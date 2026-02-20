@@ -1,3 +1,80 @@
+# Sherlock vs Elementary: The Show That Aged Better
+
+Classic TV, Elementary, Sherlock
+
+Fri, 20 Feb 2026 15:03:20 GMT
+
+https://screenrant.com/elementary-cbs-show-aged-better-than-sherlock/
+
+BBC's Sherlock had direct competition over at CBS, and after all these years, the latter has aged a lot better than Benedict Cumberbatch's show.
+---------
+
+# Werewolves Within: Rotten Tomatoes' Top-Rated Video Game Movie
+
+Movies, Werewolves Within, Recommendation
+
+Fri, 20 Feb 2026 15:00:21 GMT
+
+https://screenrant.com/werewolves-within-best-video-game-movie-rotten-tomatoes/
+
+The video game movie with the best rating on Rotten Tomatoes is based on a little-known VR experience and was a hit with critics.
+---------
+
+# Pokémon 30th Anniversary Re-Release Pricing Leaves Gamers Horrified
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 20 Feb 2026 14:56:34 GMT
+
+https://screenrant.com/pokemon-fire-red-leaf-green-price-fan-reaction/
+
+Although the re-release of the first generation of Pokémon is garnering praise, fans are divided on the pricing scheme for Switch.
+---------
+
+# Fallout 4 Is A Completely New Game If You Change One Setting
+
+Gaming, Fallout 4, Fallout
+
+Fri, 20 Feb 2026 14:56:27 GMT
+
+https://screenrant.com/fallout-4-survival-mode-new-game-setting-change/
+
+Playing Fallout 4 in Survival Mode is one of the most exciting ways to play, and it changes the experience significantly.
+---------
+
+# Prime Video’s Jack Ryan Is 1 of the Smartest Spy Dramas of the Last Decade
+
+TV, Jack Ryan, Prime Video
+
+Fri, 20 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/prime-video-jack-ryan-smartest-spy-drama-last-decade/
+
+Jack Ryan is a gem of Prime Video, and it owes a lot to how well the series tackled its themes without being like every other spy drama.
+---------
+
+# 'The Leftovers': Margaret Qualley's 3-Part Sci-Fi Series That Remains a Classic
+
+TV News, The Leftovers, Streaming Recommendations, Margaret Qualley
+
+Fri, 20 Feb 2026 15:00:19 GMT
+
+https://movieweb.com/the-leftovers-margaret-qualley-streaming-hbo-max/
+
+It might not have drawn massive ratings for HBO, but 'The Leftovers' is one of those shows we still think about to this day.
+---------
+
+# 'The Night Agent' Season 3's Major Guest Star Cameo, Explained
+
+Features, The Night Agent
+
+Fri, 20 Feb 2026 15:00:19 GMT
+
+https://movieweb.com/the-night-agent-season-3-david-zayas-cameo-explained/
+
+The Night Agent' Season 3 on Netflix continues the story of Peter Sutherland (Gabriel Basso) and features a few famous guest star appearances.
+---------
+
 # Steve Perry Addresses Journey Reunion Rumors For 2026 Farewell Tour
 
 Music, Classic Rock, Rock, Trends
