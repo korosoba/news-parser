@@ -2,8 +2,10 @@ name: Parse RSS Feeds
 
 on:
   schedule:
-    - cron: '*/30 * * * *'  # Каждые 30 минут
-  workflow_dispatch:  # Для ручного запуска
+    - cron: '*/30 * * * *'
+  workflow_dispatch:
+  push:                       # ← добавь это
+    branches: [ main ]        # или [ master ], смотря какая у тебя default
 
 jobs:
   parse:
