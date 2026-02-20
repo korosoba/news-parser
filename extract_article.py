@@ -55,24 +55,22 @@ def extract_article(url: str, output_dir: Path):
     print(f"→ Processing: {url}")
     
     try:
+        # Кастомные заголовки для обхода блокировок
         headers = {
             "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/132.0.0.0 Safari/537.36",
             "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,image/avif,image/webp,*/*;q=0.8",
             "Accept-Language": "en-US,en;q=0.5",
         }
 
-        # В 2.0+ decode не нужен — функция сама возвращает str
-        downloaded = trafilatura.fetch_url(
+        # Скачиваем через fetch_response (новый API в 2.0+)
+        response = trafilatura.fetch_response(
             url,
-            requests_kwargs={
-                "headers": headers,
-                "timeout": (10, 20),
-                "allow_redirects": True,
-            }
+            no_ssl=False,
+            # Здесь можно добавить больше параметров, но headers пока не поддерживаются напрямую
         )
 
-        if not downloaded:
-            print("  trafilatura не смог скачать → пробуем requests...")
+        if response is None:
+            print("  fetch_response вернул None → пробуем requests...")
             try:
                 r = requests.get(url, headers=headers, timeout=20, allow_redirects=True)
                 print(f"  requests статус: {r.status_code} {r.reason}")
@@ -84,6 +82,12 @@ def extract_article(url: str, output_dir: Path):
             except Exception as req_e:
                 print(f"  requests ошибка: {type(req_e).__name__} → {req_e}")
                 return None, None
+        else:
+            downloaded = response.html if hasattr(response, 'html') else response.text
+
+        if not downloaded:
+            print("  Не удалось получить текст страницы")
+            return None, None
 
         # Метаданные
         metadata = trafilatura.extract_metadata(downloaded)
