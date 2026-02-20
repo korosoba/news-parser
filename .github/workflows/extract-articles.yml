@@ -34,6 +34,11 @@ jobs:
           echo "${{ inputs.urls }}" > urls.txt
           cat urls.txt
 
+      - name: Debug secrets availability
+        run: |
+          echo "GROQ_API_KEY length: ${{ secrets.GROQ_API_KEY != '' && length(secrets.GROQ_API_KEY) || 'NOT FOUND' }}"
+          # НЕ выводим значение! Только длину, чтобы не слить секрет в лог
+          
       - name: Run extraction
         run: |
           python extract_article.py $(cat urls.txt | tr '\n' ' ')
