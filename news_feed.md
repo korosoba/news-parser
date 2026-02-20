@@ -1,3 +1,300 @@
+# Shudder's New R-Rated Zombie Horror Based On Popular Book Debuts To Disappointing Rotten Tomatoes Score
+
+Movies, This Is Not a Test
+
+Fri, 20 Feb 2026 21:00:39 GMT
+
+https://screenrant.com/this-is-not-a-test-rotten-tomatoes-score-debut-shudder/
+
+Zombie horror meets teenage angst in Shudder's new R-rated book adaptation, but critics are not impressed according to Rotten Tomatoes.
+---------
+
+# Jane's Psycho Killer Reveal Nearly Didn't Make The Horror-Thriller's Final Cut
+
+Movies, Psycho Killer, Horror
+
+Fri, 20 Feb 2026 21:00:04 GMT
+
+https://screenrant.com/jane-psycho-killer-reveal-pregnant-almost-cut-georgina-campbell/
+
+Georgina Campbell talks Psycho Killer, having two horror movies in theaters at the same time and how Jane's character reveal was almost cut.
+---------
+
+# Shoresy Season 5 Officially Ending A Series-Long "Chapter" For Nat & Shoresy Explained By Star
+
+TV, Shoresy
+
+Fri, 20 Feb 2026 20:55:54 GMT
+
+https://screenrant.com/shoresy-season-5-rink-lost-new-chapter-tasya-teles/
+
+Exclusive: Nat actor Tasya Teles discusses the chapter-ending changes that befall Shoresy and Nat in season 5 and what they mean for season 6.
+---------
+
+# Bob Dylan's Misheard Lyric: The Hilarious Moment That Changed The Beatles Forever
+
+Music, Classic Rock, The Beatles, Bob Dylan
+
+Fri, 20 Feb 2026 20:52:32 GMT
+
+https://screenrant.com/the-beatles-bob-dylan-1964-delmonico-hotel-meeting-impact/
+
+Discover how a misheard lyric led to a transformative meeting between Bob Dylan and The Beatles, sparking a musical revolution and shifting the course of popular music.
+---------
+
+# Top 3 Must-Watch Prime Video Shows This Weekend: February 20–22, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 20 Feb 2026 20:47:21 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-feb-20-22-2026/
+
+Discover the best shows to binge-watch on Prime Video this weekend, February 20–22, 2026, including top trending hit series and acclaimed hidden gems.
+---------
+
+# Xbox CEO Phil Spencer Steps Down As Microsoft Confirms Replacement
+
+Gaming, Xbox Series X/S, Triple-A Games, PC
+
+Fri, 20 Feb 2026 20:42:47 GMT
+
+https://screenrant.com/xbox-ceo-phil-spencer-retiring/
+
+Xbox is undergoing a major leadership shakeup, including the departure of Microsoft Gaming CEO Phil Spencer, and the new CEO might be controversial.
+---------
+
+# New Remake Of Tom Hanks' '80s Cult Classic Sets Multiple Streaming Records Just Weeks After Release
+
+TV, The 'Burbs, The 'Burbs - Season 1
+
+Fri, 20 Feb 2026 20:36:40 GMT
+
+https://screenrant.com/the-burbs-peacock-remake-show-streaming-records/
+
+Peacock's remake of Tom Hanks' 1980s comedy film The 'Burbs has shattered streaming records, with hundreds of millions of minutes viewed so far.
+---------
+
+# Invincible's New Character Ella Mental Gets Origin Story Alongside Her Video Game Debut
+
+Comics, Invincible
+
+Fri, 20 Feb 2026 20:32:41 GMT
+
+https://screenrant.com/invincible-creators-new-comic-ella-mental-tv-show-season-4/
+
+The Invincible franchise is set to introduce a new major superpowered character, but not in the animated series' season 4 on Prime Video.
+---------
+
+# Apple TV’s 3-Part Epic Space Opera Is The Babylon 5 Replacement You’ve Been Searching For
+
+Streaming TV, Foundation
+
+Fri, 20 Feb 2026 20:30:19 GMT
+
+https://screenrant.com/apple-tv-foundation-space-opera-babylon-5-replacement/
+
+Babylon 5 was one of the most ambitious sci-fi TV shows of all time, but Apple TV's time jumping mathematical space opera is a perfect replacement.
+---------
+
+# Everything To Know About The Masked Singer Season 14's Ozzfest Night (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Fri, 20 Feb 2026 20:25:12 GMT
+
+https://screenrant.com/everything-to-know-about-the-masked-singer-season-14-ozzfest-night-spoilers/
+
+The Masked Singer season 14's Ozzfest Night will pay tribute to a music legend, and welcome back a beloved past contestant to the show.
+---------
+
+# Marvel's The Incredible Hulk Show Changed TV But is Being Forgotten
+
+TV, The Incredible Hulk, Marvel
+
+Fri, 20 Feb 2026 21:00:22 GMT
+
+https://www.cbr.com/marvel-the-incredible-hulk-redefined-drama-forgotten/
+
+Marvel's original The Incredible Hulk show was groundbreaking television, and yet, decades later, it's slowly being tossed to the side.
+---------
+
+# Prometheus is Finally Getting the Love It Deserves Thanks to Netflix
+
+Movies, Alien, Prometheus
+
+Fri, 20 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/most-watched-netflix-prometheus-getting-love-it-deserves/
+
+Prometheus was a divisive prequel in the Alien canon, but thanks to Netflix, the movie is finally getting the attention it needs.
+---------
+
+# Eiza González Suits Up As Wonder Woman in DCU Fan Art With David Corenswet’s Superman
+
+Movies, DCU, DC Comics, Wonder Woman, Wonder Woman 1984
+
+Fri, 20 Feb 2026 20:21:22 GMT
+
+https://www.cbr.com/eiza-gonzlez-suits-up-as-wonder-woman-dcu-david-corenswet-superman/
+
+James Gunn just caught a very real glimpse at what his new Wonder Woman might look like for the DCU.
+---------
+
+# Scrubs Revival Premiere Shifts Format, Welcomes Back Two Original Stars
+
+TV, Scrubs, ABC
+
+Fri, 20 Feb 2026 20:14:49 GMT
+
+https://www.cbr.com/scrubs-revival-cast-neil-flynn-christa-miller/
+
+Scrubs Revival Premiere Shifts Format, Welcomes Back Two Original Stars
+---------
+
+# The Night Agent Becomes the No. 1 Series in the World After Rare Perfect Score
+
+TV, The Night Agent
+
+Fri, 20 Feb 2026 20:01:13 GMT
+
+https://www.cbr.com/netflix-the-night-agent-success-season-3-february-2026/
+
+The series had stumbled in Season 2, but it's back on track with its best-rated season yet.
+---------
+
+# Dragon Quest VII Reimagined Is a Perfect Introduction to the Franchise
+
+Games, Dragon Quest
+
+Fri, 20 Feb 2026 20:01:13 GMT
+
+https://www.cbr.com/dragon-quest-vii-reimagined-review-near-perfect/
+
+Dragon Quest VII Reimagined is the perfect jumping in point for any onlooking gamer that wants to get into this acclaimed franchise.
+---------
+
+# This DC Superhero Team Quietly Surpassed the JLA
+
+Comics, DC Comics, Justice League, worlds finest, Superman
+
+Fri, 20 Feb 2026 20:01:13 GMT
+
+https://www.cbr.com/justice-league-not-dc-flagship-team-worlds-finest-jsa/
+
+The last few years have seen the Justice League dethroned as DC's foremost superhero team, defeating the purpose of the series.
+---------
+
+# 10 Best Arthouse Documentaries, Ranked
+
+Movie, Baraka, Koyaanisqatsi, Moonage Daydream, Häxan
+
+Fri, 20 Feb 2026 20:57:14 GMT
+
+https://collider.com/best-arthouse-documentaries-ranked/
+
+Normal documentaries are nice and all, but those with arthouse sensibilities, like Koyaanisqatsi and Man with a Movie Camera, can be more exciting.
+---------
+
+# Netflix's 4-Part Legal Thriller Loses Fan Interest Despite 'Bosch' Universe Connection
+
+TV News, The Lincoln Lawyer, Bosch, Netflix, Michael Connelly
+
+Fri, 20 Feb 2026 20:39:36 GMT
+
+https://collider.com/netflix-the-lincoln-lawyer-bingeable-bosch-replacement-drops-from-streaming-top-5-february-2026/
+
+Netflix's Bosch alternative, The Lincoln Lawyer, seems to be losing its hold on streaming after a successful Season 4 debut.
+---------
+
+# Sam Rockwell’s Forgotten 80% RT Biopic Is an 8-Part Weekend Binge That Still Hits
+
+TV Features, Fosse/Verdon, Sam Rockwell, Michelle Williams, Hulu
+
+Fri, 20 Feb 2026 20:33:13 GMT
+
+https://collider.com/sam-rockwell-fosse-verdon-fx-miniseries-weekend-binge/
+
+Sam Rockwell stars in Fosse/Verdon as Bob Fosse, the famous choreographer and director behind Sweet Charity, Cabaret, and Chicago.
+---------
+
+# 10 Greatest Gangster Movie Characters of the Last 100 Years, Ranked
+
+Movie, Crime, The Godfather, Pulp Fiction, The Untouchables
+
+Fri, 20 Feb 2026 20:30:13 GMT
+
+https://collider.com/best-gangster-movie-characters-last-100-years-ranked/
+
+From Tony Montana to Al Capone himself, these are the best gangster movie characters over the last century, played by titans like Pacino and De Niro.
+---------
+
+# 6 TV Shows From the 1980s That Aged Like Fine Wine
+
+TV, Cheers, Hill Street Blues, Miami Vice, 1980s
+
+Fri, 20 Feb 2026 20:23:12 GMT
+
+https://collider.com/80s-tv-shows-aged-like-fine-wine/
+
+The 1980s delivered several iconic TV shows that are now considered masterpieces, including Cheers, Dallas, and Miami Vice.
+---------
+
+# Anime Based on Popular Korean Manhwa
+
+TV Lists, Anime
+
+Fri, 20 Feb 2026 21:00:06 GMT
+
+https://movieweb.com/anime-korean-manhwa-based/
+
+Taken from the pages of manhwa and webtoons, these anime series draw influence from Korean and Japanese storytelling to create must-watch TV.
+---------
+
+# Stream 'Wayward Pines,' the 2-Season Sci-Fi Series That Made 'Stranger Things' Possible
+
+TV News, Wayward Pines, Stranger Things, Streaming Recommendations
+
+Fri, 20 Feb 2026 21:00:05 GMT
+
+https://movieweb.com/sci-fi-wayward-pines-stranger-things-february-2026/
+
+The creators of the Netflix phenomenon had their debut with this vastly underrated mystery show.
+---------
+
+# James Gunn Debunks Claims 'The Brave and the Bold' is Being Delayed to Fast-track 'The Batman Part III'
+
+Movie News, James Gunn, DCU, The Batman Part II, The Brave and the Bold
+
+Fri, 20 Feb 2026 20:48:23 GMT
+
+https://movieweb.com/dcu-batman-james-gunn-debunks-the-batman-brave-bold-rumors/
+
+The DC Studios co-CEO has shut down several Batman rumors.
+---------
+
+# 'Andor' Creator Tony Gilroy Says Disney Banned "Fascist" Description
+
+TV News, Andor, Star Wars
+
+Fri, 20 Feb 2026 20:23:09 GMT
+
+https://movieweb.com/andor-creator-finally-says-what-disney-didnt-want-you-to-hear/
+
+Tony Gilroy details how he got around marketing 'Andor' without being able to say "fascism."
+---------
+
+# The Best 80s Kids Movies Ever Made
+
+Movie Lists, 1980s
+
+Fri, 20 Feb 2026 20:01:19 GMT
+
+https://movieweb.com/80s-best-kids-movies/
+
+From 'Ghostbusters' to 'The Princess Bride', the 80's delivered some of the greatest kids movies ever that can still be enjoyed today.
+---------
+
 # Forget Palpatine, Star Wars Just Brought Back the Last Character I Ever Expected
 
 Movies, Star Wars, Star Wars: Galactic Racer
