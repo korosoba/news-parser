@@ -7,29 +7,34 @@ from pathlib import Path
 import json
 
 def extract_article(url: str, output_dir: Path):
+    """
+    Скачивает статью по URL и сохраняет чистый текст в указанную папку.
+    Возвращает путь к файлу и метаданные или (None, None) при неудаче.
+    """
     print(f"→ Processing: {url}")
     
     try:
-        downloaded = trafilatura.fetch_url(url, decode=True)
+        # В новых версиях trafilatura decode=True больше не нужен — по умолчанию возвращается str
+        downloaded = trafilatura.fetch_url(url)
         if not downloaded:
-            print("  Failed to download (possible block / 4xx / 5xx)")
+            print("  Failed to download (possible block / 4xx / 5xx / empty response)")
             return None, None
 
-        # Основной текст
+        # Основной текст — самый надёжный вариант по умолчанию
         text = trafilatura.extract(
             downloaded,
             include_comments=False,
             include_tables=False,
             include_links=False,
             include_formatting=False,
-            favor_precision=True,
+            favor_precision=True,          # стараемся не резать важное
         )
 
         if not text or len(text.strip()) < 150:
             print("  Text too short / not found → fallback mode")
             text = trafilatura.extract(downloaded, no_fallback=False)
-            if not text:
-                print("  Even fallback failed")
+            if not text or len(text.strip()) < 100:
+                print("  Even fallback failed or text too short")
                 return None, None
 
         # Метаданные
@@ -38,7 +43,11 @@ def extract_article(url: str, output_dir: Path):
         pub_date = metadata.get("date") or datetime.utcnow().strftime("%Y-%m-%d")
 
         # Безопасное имя файла
-        safe_title = "".join(c if c.isalnum() or c in " -_" else "_" for c in title).strip("_")[:100]
+        safe_title = "".join(
+            c if c.isalnum() or c in " -_" else "_"
+            for c in title
+        ).strip("_")[:100]
+
         if not safe_title:
             safe_title = url.split("/")[-1].split("?")[0][:80] or "article"
 
@@ -56,17 +65,28 @@ def extract_article(url: str, output_dir: Path):
             f.write(text)
 
         print(f"  Saved → {out_path}")
-        return out_path, {"url": url, "title": title, "file": str(filename)}
+        print(f"  Text length: {len(text):,} characters")
+
+        return out_path, {
+            "url": url,
+            "title": title,
+            "published": pub_date,
+            "file": str(filename),
+            "text_length": len(text)
+        }
 
     except Exception as e:
-        print(f"  Error: {e}")
+        print(f"  Error: {type(e).__name__}: {e}")
         return None, None
 
 
 def main():
-    parser = argparse.ArgumentParser(description="Extract article text using trafilatura (GitHub Actions friendly)")
+    parser = argparse.ArgumentParser(
+        description="Extract article text using trafilatura (GitHub Actions friendly)"
+    )
     parser.add_argument("urls", nargs="+", help="One or more article URLs")
-    parser.add_argument("--output-dir", default="extracted_articles", help="Output directory")
+    parser.add_argument("--output-dir", default="extracted_articles",
+                        help="Output directory (will be created if not exists)")
     args = parser.parse_args()
 
     output_dir = Path(args.output_dir)
@@ -77,9 +97,10 @@ def main():
         if meta:
             results.append(meta)
 
-    # Сохраняем краткий отчёт в json (удобно для последующих шагов)
+    # Сохраняем краткий отчёт в json
     if results:
-        report_path = output_dir / f"extraction_report_{datetime.utcnow().strftime('%Y%m%d_%H%M%S')}.json"
+        timestamp = datetime.utcnow().strftime("%Y%m%d_%H%M%S")
+        report_path = output_dir / f"extraction_report_{timestamp}.json"
         with open(report_path, "w", encoding="utf-8") as f:
             json.dump(results, f, ensure_ascii=False, indent=2)
         print(f"Report saved: {report_path}")
@@ -89,8 +110,12 @@ def main():
 
 if __name__ == "__main__":
     if len(sys.argv) < 2:
-        print("Usage (examples):")
+        print("Usage examples:")
         print("  python extract_article.py https://screenrant.com/article-slug/")
         print("  python extract_article.py url1 url2 url3 --output-dir my_articles")
         sys.exit(1)
+    
+    # Для отладки — выводим версию trafilatura
+    print(f"trafilatura version: {trafilatura.__version__}")
+    
     main()
