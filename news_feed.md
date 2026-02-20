@@ -1,3 +1,25 @@
+# Steve Perry Addresses Journey Reunion Rumors For 2026 Farewell Tour
+
+Music, Classic Rock, Rock, Trends
+
+Fri, 20 Feb 2026 14:52:55 GMT
+
+https://screenrant.com/steve-perry-journey-reunion-rumors-2026-tour-response/
+
+It’s the news Journey fans have been waiting for—but it might not be the answer they wanted. Steve Perry finally speaks out on those reunion reports.
+---------
+
+# Prime Video's 4-Part Sci-Fi Comedy Is One Of The Smartest Shows Of The Decade
+
+Classic TV, Upload
+
+Fri, 20 Feb 2026 14:45:18 GMT
+
+https://screenrant.com/prime-video-upload-smartest-sci-fi-show-decade/
+
+Prime Video has some of the best sci-fi TV shows, and among them is an underrated sci-fi comedy that's one of the smartest shows of the decade.
+---------
+
 # Marvel Reveals the Plan For Its Next Big Hulk Crossover Series
 
 Comics, Marvel, Hulk
