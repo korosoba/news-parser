@@ -14,33 +14,37 @@ def extract_article(url: str, output_dir: Path):
     print(f"→ Processing: {url}")
     
     try:
-        # В новых версиях trafilatura decode=True больше не нужен — по умолчанию возвращается str
         downloaded = trafilatura.fetch_url(url)
         if not downloaded:
             print("  Failed to download (possible block / 4xx / 5xx / empty response)")
             return None, None
 
-        # Основной текст — самый надёжный вариант по умолчанию
-        text = trafilatura.extract(
+        # Извлекаем текст + метаданные одним вызовом
+        result = trafilatura.extract(
             downloaded,
+            with_metadata=True,            # ← вот ключевой параметр
             include_comments=False,
             include_tables=False,
             include_links=False,
             include_formatting=False,
-            favor_precision=True,          # стараемся не резать важное
+            favor_precision=True,
         )
 
-        if not text or len(text.strip()) < 150:
-            print("  Text too short / not found → fallback mode")
-            text = trafilatura.extract(downloaded, no_fallback=False)
-            if not text or len(text.strip()) < 100:
-                print("  Even fallback failed or text too short")
+        if result is None:
+            print("  Extraction returned None → fallback mode")
+            result = trafilatura.extract(downloaded, no_fallback=False, with_metadata=True)
+            if result is None:
+                print("  Even fallback failed")
                 return None, None
 
-        # Метаданные
-        metadata = trafilatura.metadata.extract(downloaded) or {}
-        title = metadata.get("title") or "No title"
-        pub_date = metadata.get("date") or datetime.utcnow().strftime("%Y-%m-%d")
+        # result теперь объект Document
+        text = result.text
+        if not text or len(text.strip()) < 150:
+            print("  Text too short after extraction")
+            return None, None
+
+        title = result.title or "No title"
+        pub_date = result.date or datetime.utcnow().strftime("%Y-%m-%d")
 
         # Безопасное имя файла
         safe_title = "".join(
@@ -115,7 +119,7 @@ if __name__ == "__main__":
         print("  python extract_article.py url1 url2 url3 --output-dir my_articles")
         sys.exit(1)
     
-    # Для отладки — выводим версию trafilatura
+    # Для отладки — выводим версию
     print(f"trafilatura version: {trafilatura.__version__}")
     
     main()
