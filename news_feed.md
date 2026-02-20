@@ -1,3 +1,223 @@
+# Spider-Man: Brand New Day Is Officially Ignoring These 2 Huge MCU Stories
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 20 Feb 2026 21:45:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-ignoring-thunderbolts-daredevil-connections/
+
+New details about Spider-Man: Brand New Day confirms Tom Holland's movie is ignoring some huge MCU stories that should be part of Peter Parker's life.
+---------
+
+# TMNT’s Most Unexpected Revival in 42 Years Kicks Off Its Darkest Era Yet in 2026
+
+Comics, Teenage Mutant Ninja Turtles
+
+Fri, 20 Feb 2026 21:40:50 GMT
+
+https://screenrant.com/tmnt-future-splinter-revival-death-dark-era-comics-2026/
+
+IDW Publishing marks Teenage Mutant Ninja Turtles' 300th issue with blind bag variant covers, and a new, dark, emotionally charged story arc.
+---------
+
+# Top 3 Must-Watch Paramount+ Shows This Weekend: February 20–22, 2026
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Fri, 20 Feb 2026 21:40:20 GMT
+
+https://screenrant.com/best-paramount-plus-shows-to-binge-weekend-feb-20-22-2026/
+
+Discover the top 3 must-watch Paramount+ shows this weekend, February 20–22, 2026, including new releases, trending hits, and acclaimed hidden gems.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (Feb 21-22)
+
+Movies, Prime Video, Recommendation
+
+Fri, 20 Feb 2026 21:34:21 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-february-21/
+
+Those looking for movies to watch on Prime Video this weekend have come to the right place, with three exciting films up on the streamer.
+---------
+
+# Netflix's New 10-Part R-Rated Legal Comedy Debuts To Stellar Rotten Tomatoes Score
+
+TV, Strip Law
+
+Fri, 20 Feb 2026 21:31:36 GMT
+
+https://screenrant.com/strip-law-netflix-show-rotten-tomatoes-score-debut/
+
+Netflix's new adult-animated legal comedy with 10 episodes premiered to a strong early critical reception, earning a fresh Tomatometer score.
+---------
+
+# This 57-Year-Old Spider-Man Villain Is In A Better Position Than Ever For His First Live-Action Appearance
+
+Superheroes, Spider-Noir
+
+Fri, 20 Feb 2026 21:30:19 GMT
+
+https://screenrant.com/spider-noir-show-man-mountain-marko-live-action-debut-possible/
+
+A villain who has been in the Marvel Universe for nearly six decades could finally make his live-action debut, via Prime Video's Spider-Noir show.
+---------
+
+# John Cena and Idris Elba's Heads of State Climbs Amazon Prime Video Charts
+
+Movies, Heads of State
+
+Fri, 20 Feb 2026 21:36:58 GMT
+
+https://www.cbr.com/john-cenas-best-film-in-years-with-68-rt-score-hits-no-6-on-prime-videos-us-charts/
+
+Heads of State, starring John Cena and Idris Elba, is climbing the Prime Video charts.
+---------
+
+# Crunchyroll’s New Witch Hat Atelier Trailer Positions Witch Hat Atelier as Frieren's Spring 2026 Replacement
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End, Fantasy, Crunchyroll
+
+Fri, 20 Feb 2026 21:30:12 GMT
+
+https://www.cbr.com/new-witch-hat-atelier-trailer-frieren-replacement-crunchyroll-spring-2026/
+
+Frieren: Beyond Journey's End is losing the top spot in fantasy anime to Crunchyroll's next magical Spring 2026 release.
+---------
+
+# Teenage Mutant Ninja Turtles Reveals Big Plans for Its 300th Issue
+
+Comics, TMNT, Teenage Mutant Ninja Turtles
+
+Fri, 20 Feb 2026 21:19:53 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-reveals-big-plans-for-300th-issue/
+
+Celebrating an unreal milestone for TMNT, the creators of the Heroes on the Half Shell have something seriously special on tap for #300.
+---------
+
+# 5 Neo-Western Movies Nobody Remembers
+
+Movies, Western, Lone Star, The Way of the Gun
+
+Fri, 20 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/forgotten-neo-western-movies/
+
+These excellent neo-westerns all reshaped the classic genre for modern times, but failed to hit the zeitgeist for one reason or another.
+---------
+
+# Star Trek: Starfleet Academy Fails to Make Nielsen's Top 10 Streaming List
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Fri, 20 Feb 2026 21:07:47 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-ratings-week-two-streaming-paramount-plus/
+
+Star Trek: Starfleet Academy misses Nielsen's top 10 streaming originals list for the second week in a row, raising concern.
+---------
+
+# Hulu's March Anime Lineup Is a Win for Fantasy Fans Tired of Isekai Clones
+
+Anime, Hulu, I Parry Everything: What Do You Mean I'm the Strongest? I'm Not Even an Adventurer Yet!, Rooster Fighter, Sword of the Demon Hunter: Kijin Gentosho
+
+Fri, 20 Feb 2026 21:03:13 GMT
+
+https://www.cbr.com/hulu-march-anime-release-fantasy-no-isekai/
+
+Hulu reveals a stacked March 2026 anime lineup which includes renowned hits like Jujutsu Kaisen in addition to lesser-known gems like Rooster Fighter.
+---------
+
+# This Gritty 7-Part Crime Drama Rewrites the Western for the 21st Century
+
+TV Features, Sons of Anarchy, Western, Kurt Sutter, Hulu
+
+Fri, 20 Feb 2026 21:44:12 GMT
+
+https://collider.com/this-gritty-crime-drama-subverted-the-western-genre/
+
+In trading horses for Harleys and cowboys for outlaws, gritty crime drama Sons of Anarchy paved the way to the modern-day neo-Western.
+---------
+
+# Move Over 'Righteous Gemstones,' This Hilarious 90% RT British Sitcom Is the Perfect Weekend Binge
+
+TV Features, Everyone Else Burns, Comedy, Channel 4, Sitcom
+
+Fri, 20 Feb 2026 21:39:13 GMT
+
+https://collider.com/everyone-else-burns-british-sitcom-perfect-weekend-binge/
+
+Everyone Else Burns follows a family as they navigate a strict religious sect that delivers humor and heart with a relatable coming-of-age tale.
+---------
+
+# 10 Most Perfectly Written Fantasy Movies, Ranked
+
+Movie, Fantasy, Being John Malkovich, The Lord of the Rings, The Princess Bride
+
+Fri, 20 Feb 2026 21:24:12 GMT
+
+https://collider.com/perfectly-written-fantasy-movies-ranked/
+
+From epic masterpieces like The Lord of the Rings to grounded comedies like Harvey, these fantasy movies are incredible triumphs of screenwriting.
+---------
+
+# 'Redux Redux' Review: This Low-Budget Sci-Fi Revenge Tale Is Better Than Most Multiverse Movies
+
+Movie Reviews, Redux Redux, Michaela McManus, Sci-Fi, Action
+
+Fri, 20 Feb 2026 21:15:58 GMT
+
+https://collider.com/redux-redux-review-sci-fi-revenge-multiverse/
+
+Redux Redux might be a low-budget action-thriller, but this multiversal sci-fi story is incredibly ambitious.
+---------
+
+# Glen Powell's Favorite Christopher Nolan Movie Isn't the One He Was In
+
+Exclusives, How to Make a Killing, Glen Powell, Topher Grace, Jessica Henwick
+
+Fri, 20 Feb 2026 21:12:45 GMT
+
+https://collider.com/glen-powell-jessica-henwick-favorite-christopher-nolan-movie-how-to-make-a-killing-interview/
+
+Glen Powell, Topher Grace, and Jessica Henwick discuss their personal interests, roles that left an impact on them, and the most intimidating roles.
+---------
+
+# 'Scrubs' Season 10 Is Officially Bringing Back One of the Show's Best Characters
+
+TV News, Scrubs, Christa Miller, Rachel Bilson
+
+Fri, 20 Feb 2026 21:05:59 GMT
+
+https://collider.com/scrubs-season-10-revival-cast-neil-flynn-janitor-return-christa-miller-rachel-bilson-andy-ridings-lisa-gilroy-guest-stars/
+
+Days before the show's official return, Neil Flynn's Janitor if returning for the Scrubs revival, and he's not the only one.
+---------
+
+# Taylor Sheridan's 'Landman' Faces Stiff Competition From His 3-Part Crime Masterpiece
+
+TV News, Tulsa King, Taylor Sheridan, Landman, Paramount Plus
+
+Fri, 20 Feb 2026 21:04:44 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-crime-saga-overtakes-landman-streaming-success-paramount-plus-february-2026/
+
+Taylor Sheridan's hugely successful Landman rivals the TV legend's other hit crime drama on streaming.
+---------
+
+# 'Grey's Anatomy' Stars Share Tributes to Eric Dane Following Death
+
+TV News, Eric Dane, Grey's Anatomy
+
+Fri, 20 Feb 2026 21:10:32 GMT
+
+https://movieweb.com/greys-anatomy-stars-tribute-eric-dane/
+
+After the late 'Grey's Anatomy' star Eric Dane passed away due to complications from ALS, his co-stars honored his memory with touching tributes.
+---------
+
 # Shudder's New R-Rated Zombie Horror Based On Popular Book Debuts To Disappointing Rotten Tomatoes Score
 
 Movies, This Is Not a Test
