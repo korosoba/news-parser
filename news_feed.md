@@ -1,3 +1,14 @@
+# Pokémon FireRed and LeafGreen Officially Coming to Nintendo Switch
+
+Games, Pokemon
+
+Fri, 20 Feb 2026 15:05:12 GMT
+
+https://www.cbr.com/pokemon-firered-leafgreen-nintendo-switch-february-2026/
+
+Nintendo has announced that Pokémon FireRed & LeafGreen are coming to Nintendo Switch & Switch 2 on February 27, following a new Pokémon Presents.
+---------
+
 # Sherlock vs Elementary: The Show That Aged Better
 
 Classic TV, Elementary, Sherlock
