@@ -11,19 +11,19 @@ import json
 # ────────────────────────────────────────────────
 # Настройки Groq
 GROQ_API_KEY = os.getenv("GROQ_API_KEY")
-GROQ_MODEL = "llama-3.1-70b-versatile"  # можно заменить на "llama-3.3-70b-tool-use", "mixtral-8x7b-32768" и т.д.
+GROQ_MODEL = "llama-3.1-70b-versatile"
 
 def get_groq_summary(text: str) -> str | None:
     if not GROQ_API_KEY:
-        print("  GROQ_API_KEY не найден в переменных окружения → пересказ пропущен")
+        print("  GROQ_API_KEY не найден → пересказ пропущен")
         return None
 
     url = "https://api.groq.com/openai/v1/chat/completions"
     
     prompt = f"""Ты эксперт по кино и сериалам. 
 Прочитай текст статьи и сделай качественный, лаконичный пересказ на русском языке (примерно 400–700 символов).
-Сохрани ключевые факты, анализ, теории, имена актёров/режиссёров/режиссёра.
-Не добавляй ничего от себя, не придумывай. Пиши увлекательно, без спойлеров, если они не критичны.
+Сохрани ключевые факты, анализ, теории, имена актёров/режиссёров.
+Не добавляй ничего от себя. Пиши увлекательно, без спойлеров, если они не критичны.
 Текст статьи:
 {text[:100000]}"""
 
@@ -55,37 +55,31 @@ def extract_article(url: str, output_dir: Path):
     print(f"→ Processing: {url}")
     
     try:
-        # Кастомные заголовки — часто решает проблему блокировки
         headers = {
             "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/132.0.0.0 Safari/537.36",
             "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,image/avif,image/webp,*/*;q=0.8",
             "Accept-Language": "en-US,en;q=0.5",
-            "Accept-Encoding": "gzip, deflate, br",
-            "Connection": "keep-alive",
-            "Upgrade-Insecure-Requests": "1"
         }
 
-        # Пробуем через trafilatura с кастомными параметрами
+        # В 2.0+ decode не нужен — функция сама возвращает str
         downloaded = trafilatura.fetch_url(
             url,
-            decode=True,
             requests_kwargs={
                 "headers": headers,
-                "timeout": (10, 20),   # connect timeout 10s, read timeout 20s
+                "timeout": (10, 20),
                 "allow_redirects": True,
-                "verify": True
             }
         )
 
         if not downloaded:
-            print("  trafilatura не смог скачать → пробуем requests напрямую...")
+            print("  trafilatura не смог скачать → пробуем requests...")
             try:
                 r = requests.get(url, headers=headers, timeout=20, allow_redirects=True)
                 print(f"  requests статус: {r.status_code} {r.reason}")
                 if r.status_code == 200:
                     downloaded = r.text
                 else:
-                    print(f"  requests тоже не прошёл: {r.status_code}")
+                    print(f"  requests не прошёл: {r.status_code}")
                     return None, None
             except Exception as req_e:
                 print(f"  requests ошибка: {type(req_e).__name__} → {req_e}")
@@ -107,13 +101,13 @@ def extract_article(url: str, output_dir: Path):
         )
 
         if not text or len(text.strip()) < 150:
-            print("  Текст слишком короткий → fallback")
+            print("  Текст короткий → fallback")
             text = trafilatura.extract(downloaded, no_fallback=False)
             if not text or len(text.strip()) < 100:
-                print("  Даже fallback не дал нормальный текст")
+                print("  Fallback не помог")
                 return None, None
 
-        # ─── Сохраняем оригинал ───────────────────────────────────────
+        # Сохранение оригинала
         safe_title = "".join(c if c.isalnum() or c in " -_" else "_" for c in title).strip("_")[:100]
         if not safe_title:
             safe_title = url.split("/")[-1].split("?")[0][:80] or "article"
@@ -133,7 +127,7 @@ def extract_article(url: str, output_dir: Path):
 
         print(f"  Оригинал сохранён → {orig_path}")
 
-        # ─── Пересказ от Groq ─────────────────────────────────────────
+        # Пересказ
         summary = get_groq_summary(text)
         summary_path = None
 
@@ -168,7 +162,7 @@ def extract_article(url: str, output_dir: Path):
 
 
 def main():
-    parser = argparse.ArgumentParser(description="Extract + Groq summary (GitHub Actions)")
+    parser = argparse.ArgumentParser(description="Extract + Groq summary")
     parser.add_argument("urls", nargs="+", help="URLs")
     parser.add_argument("--output-dir", default="extracted_articles")
     args = parser.parse_args()
@@ -194,7 +188,7 @@ def main():
 if __name__ == "__main__":
     if len(sys.argv) < 2:
         print("Пример:")
-        print("  python extract_article.py https://screenrant.com/... ")
+        print("  python extract_article.py https://screenrant.com/...")
         sys.exit(1)
     
     print(f"trafilatura {trafilatura.__version__}")
