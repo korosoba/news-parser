@@ -2,8 +2,8 @@ name: Daily Telegram Report + Reset
 
 on:
   schedule:
-    - cron: '0 8 * * *'           # 08:00 UTC каждый день
-  workflow_dispatch:              # для теста
+    - cron: '0 8 * * *'           # 08:00 UTC каждый день (~11:00 МСК)
+  workflow_dispatch:              # для ручного запуска / теста
 
 jobs:
   daily:
@@ -28,21 +28,28 @@ jobs:
             echo "has_content=false" >> $GITHUB_OUTPUT
           fi
 
+      - name: Rename / copy file for Telegram
+        if: steps.check.outputs.has_content == 'true'
+        run: cp news_feed.md "news-${{ steps.date.outputs.today }}.md"
+
       - name: Send to Telegram (only if file has content)
         if: steps.check.outputs.has_content == 'true'
         uses: appleboy/telegram-action@master
         with:
           to: ${{ secrets.TELEGRAM_CHAT_ID }}
           token: ${{ secrets.TELEGRAM_BOT_TOKEN }}
-          document: ./news_feed.md
-          document_file_name: "news-${{ steps.date.outputs.today }}.md"
+          document: ./news-${{ steps.date.outputs.today }}.md
           caption: |
             Ежедневный дайджест новостей кино и сериалов
             За период: ${{ steps.date.outputs.today }}
             (файл очищен после отправки)
 
+      - name: Clean up temporary dated file
+        if: always()
+        run: rm -f news-*.md || true
+
       - name: Reset news_feed.md
-        if: always()  # очищаем даже если отправки не было
+        if: always()
         run: |
           echo "# Новости кино и сериалов — ${{ steps.date.outputs.today }}" > news_feed.md
           echo "" >> news_feed.md
