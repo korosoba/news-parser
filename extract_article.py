@@ -8,8 +8,8 @@ import json
 
 def extract_article(url: str, output_dir: Path):
     """
-    Скачивает статью по URL и сохраняет чистый текст в указанную папку.
-    Возвращает путь к файлу и метаданные или (None, None) при неудаче.
+    Скачивает статью по URL и сохраняет чистый текст + метаданные.
+    Совместимо с trafilatura 2.0.0+
     """
     print(f"→ Processing: {url}")
     
@@ -19,10 +19,17 @@ def extract_article(url: str, output_dir: Path):
             print("  Failed to download (possible block / 4xx / 5xx / empty response)")
             return None, None
 
-        # Извлекаем текст + метаданные одним вызовом
-        result = trafilatura.extract(
+        # 1. Метаданные отдельно (возвращает Document или None)
+        metadata = trafilatura.extract_metadata(downloaded)
+        
+        title = getattr(metadata, 'title', "No title") if metadata else "No title"
+        pub_date = getattr(metadata, 'date', None)
+        if pub_date is None:
+            pub_date = datetime.utcnow().strftime("%Y-%m-%d")
+
+        # 2. Чистый текст без метаданных в выводе
+        text = trafilatura.extract(
             downloaded,
-            with_metadata=True,            # ← вот ключевой параметр
             include_comments=False,
             include_tables=False,
             include_links=False,
@@ -30,21 +37,12 @@ def extract_article(url: str, output_dir: Path):
             favor_precision=True,
         )
 
-        if result is None:
-            print("  Extraction returned None → fallback mode")
-            result = trafilatura.extract(downloaded, no_fallback=False, with_metadata=True)
-            if result is None:
-                print("  Even fallback failed")
-                return None, None
-
-        # result теперь объект Document
-        text = result.text
         if not text or len(text.strip()) < 150:
-            print("  Text too short after extraction")
-            return None, None
-
-        title = result.title or "No title"
-        pub_date = result.date or datetime.utcnow().strftime("%Y-%m-%d")
+            print("  Text too short / not found → fallback mode")
+            text = trafilatura.extract(downloaded, no_fallback=False)
+            if not text or len(text.strip()) < 100:
+                print("  Even fallback failed or text too short")
+                return None, None
 
         # Безопасное имя файла
         safe_title = "".join(
@@ -86,7 +84,7 @@ def extract_article(url: str, output_dir: Path):
 
 def main():
     parser = argparse.ArgumentParser(
-        description="Extract article text using trafilatura (GitHub Actions friendly)"
+        description="Extract article text using trafilatura 2.0+ (GitHub Actions friendly)"
     )
     parser.add_argument("urls", nargs="+", help="One or more article URLs")
     parser.add_argument("--output-dir", default="extracted_articles",
@@ -101,7 +99,6 @@ def main():
         if meta:
             results.append(meta)
 
-    # Сохраняем краткий отчёт в json
     if results:
         timestamp = datetime.utcnow().strftime("%Y%m%d_%H%M%S")
         report_path = output_dir / f"extraction_report_{timestamp}.json"
@@ -119,7 +116,6 @@ if __name__ == "__main__":
         print("  python extract_article.py url1 url2 url3 --output-dir my_articles")
         sys.exit(1)
     
-    # Для отладки — выводим версию
     print(f"trafilatura version: {trafilatura.__version__}")
     
     main()
