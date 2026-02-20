@@ -1,3 +1,256 @@
+# Xbox Drops 4 New Free Games You Can Try Now, No Game Pass Needed
+
+Gaming, Xbox Series X/S
+
+Fri, 20 Feb 2026 16:52:16 GMT
+
+https://screenrant.com/xbox-4-free-downloads-no-game-pass-february/
+
+Xbox has just released a bunch of exciting demos for players to try, including a highly-anticipated new effort from Capcom.
+---------
+
+# Resident Evil Requiem's Leaked Trophy List Confirms This Game Is Massive
+
+Gaming, Resident Evil 9, Resident Evil
+
+Fri, 20 Feb 2026 16:51:27 GMT
+
+https://screenrant.com/resident-evil-requiem-leaked-trophy-achievements/
+
+Resident Evil Requiem's list of achievements has leaked online, confirming just how much we'll be able to explore, see, and do in the upcoming game.
+---------
+
+# Batman 2's Filming Start Window Seemingly Revealed In New Report
+
+Movies, The Batman Part II, Batman
+
+Fri, 20 Feb 2026 16:45:46 GMT
+
+https://screenrant.com/batman-2-filming-start-window-report/
+
+The Batman Part II's filming start window has seemingly been revealed in a new report, roughly four years after the first film was released.
+---------
+
+# The Night Agent Season 3 Interview with Gabriel Basso
+
+Videos, The Night Agent, The Night Agent - Season 3, Gabriel Basso
+
+Fri, 20 Feb 2026 16:45:19 GMT
+
+https://screenrant.com/video/the-night-agent-season-3-gabriel-basso-interview/
+
+The Night Agent star Gabriel Basso reflects on season 3 themes, Peter's emotional state after saying goodbye to Rose, and his endgame for the series.
+---------
+
+# Netflix's New 6-Part Crime Thriller Series Resurges On Streaming & It's A Must-Binge
+
+TV, Netflix, His & Hers
+
+Fri, 20 Feb 2026 16:45:19 GMT
+
+https://screenrant.com/his-and-hers-netflix-thriller-series-february-streaming-success-must-watch/
+
+Netflix's hit crime thriller series is one of the streamer's most popular recent shows, and with its resurgence on the charts, a binge is in order.
+---------
+
+# Arrow Is Surprisingly Back, 3 Years After Oliver Queen's Final Appearance
+
+Classic TV, Arrow
+
+Fri, 20 Feb 2026 16:45:19 GMT
+
+https://screenrant.com/absolute-green-arrow-season-1-inspiration-oliver-queen-killer/
+
+We thought we saw the last of Oliver Queen with the end of the Arrowverse, but somehow, DC has managed to reignite the spark in the Green Arrow story.
+---------
+
+# 1 Year Later, Cobra Kai Has Gotten Even Better
+
+TV, Cobra Kai, Karate Kid: Legends
+
+Fri, 20 Feb 2026 16:34:46 GMT
+
+https://screenrant.com/cobra-kai-aged-well-after-karate-kid-legends/
+
+One year later, Cobra Kai's ability to blend psychological depth with the world of the Karate Kid movies has set a new standard for the franchise.
+---------
+
+# DC Introduces New Teen Titans Team Led by Red Hood In 2026
+
+DC Comics, Teen Titans
+
+Fri, 20 Feb 2026 16:30:19 GMT
+
+https://screenrant.com/teen-titans-dc-reboot-superhero-team-lineup-comics/
+
+DC Comics officially unveils an iconic superhero team's new line-up, set to debut in summer 2026, led by a key sidekick-turned-anti-hero.
+---------
+
+# Why Gerard Butler’s $80M Sci-Fi Bomb Is Now Suddenly Popular
+
+Movies, Timeline, Gerard Butler
+
+Fri, 20 Feb 2026 16:30:19 GMT
+
+https://screenrant.com/gerard-butler-timeline-sci-fi-movie-flop-success-streaming/
+
+Despite its disastrous box office and scathing reviews, Gerard Butler's earliest sci-fi movie is now lighting up streaming charts 23 years later.
+---------
+
+# Jujutsu Kaisen Won’t Truly Peak Until This 1 Iconic Scene Hits the Anime
+
+Anime, Jujutsu Kaisen
+
+Fri, 20 Feb 2026 16:30:19 GMT
+
+https://screenrant.com/jjk-anime-cannot-peak-before-perfect-preparation-arc/
+
+Jujutsu Kaisen's third season might be the franchise's best yet, but it won't be 100% peak until the anime adapts the manga's most fulfilling moment.
+---------
+
+# Hello Kitty's Sanrio Returns to the U.S. With Colorful New Collection for 2 Underrated Characters (Exclusive)
+
+Anime, sanrio, merchandise, collectibles
+
+Fri, 20 Feb 2026 16:30:12 GMT
+
+https://www.cbr.com/sanrio-pochacco-usahana-loungefly-bag-release/
+
+Sanrio unveils a new collection featuring two of the Hello Kitty company's most underrated (yet widely beloved) mascot characters.
+---------
+
+# 10 Best DC Comics Since 2000 That Must Be Read Right Now
+
+Comics, DC Comics
+
+Fri, 20 Feb 2026 16:30:12 GMT
+
+https://www.cbr.com/best-dc-comics-since-2000-ranked/
+
+DC Comics has been around for decades, but some of the iconic publisher's best stories have come in the years since the turn of the century
+---------
+
+# 8 Best-Written New-Gen Anime Heroes of the 2020s, Ranked
+
+Anime
+
+Fri, 20 Feb 2026 16:15:22 GMT
+
+https://www.cbr.com/best-new-gen-anime-heroes-2020s-ranked/
+
+Modern audiences have redefined what they're looking for in protagonists, and the best new-gen anime heroes of the 2020s get it exactly right.
+---------
+
+# Pierce Brosnan's Lost Western With a 'Dark Winds' Star Is Riding High 9 Years Later
+
+TV News, The Son, Pierce Brosnan, Yellowstone, Western
+
+Fri, 20 Feb 2026 16:51:09 GMT
+
+https://collider.com/pierce-brosnan-forgotten-western-the-son-digital-streaming-success-february-2026/
+
+Nearly 10 years later, this forgotten Pierce Brosnan Western is finally gaining traction on streaming. Here's where to watch it.
+---------
+
+# Mads Mikkelsen’s Most Divisive Fantasy Film Is Getting Its Due on Streaming
+
+Movie News, Fantastic Beasts: The Secrets of Dumbledore, Mads Mikkelsen, Jude Law, Harry Potter
+
+Fri, 20 Feb 2026 16:36:22 GMT
+
+https://collider.com/mads-mikkelsen-fantasy-movie-harry-potter-fantastic-beasts-secrets-of-dumbledore-streaming-success-february-2026/
+
+Mads Mikkelsen's $200 million fantasy misfire, the franchise-ending Fantastic Beasts: The Secrets of Dumbledore, is getting a new life on streaming.
+---------
+
+# 4 Years Later, This White-Knuckle Survival Thriller Is Outlasting the Streaming Competition
+
+Movie News, Fall, The Grey, Liam Neeson, Virginia Gardner
+
+Fri, 20 Feb 2026 16:30:08 GMT
+
+https://collider.com/fall-2022-streaming-success-netflix-february-2026/
+
+The only survival thriller to rival Liam Neeson's The Gray is suddenly a streaming sensation 4 years later.
+---------
+
+# 3 Years After ‘The Batman,’ Robert Pattinson's Long-Delayed Sequel Is Finally Back in Motion
+
+Movie News, The Batman Part II, Robert Pattinson, Matt Reeves, The Batman
+
+Fri, 20 Feb 2026 16:19:30 GMT
+
+https://collider.com/the-batman-2-sequel-update-filming-plans-may-2026-robert-pattinson-matt-reeves/
+
+Matt Reeves' long-awaited sequel, The Batman Part 2, gets the update we've been waiting 3 years for as Robert Pattinson heads back to Gotham.
+---------
+
+# One of the Greatest Sitcoms of the 21st Century Is About To Become a $130 Problem Once Netflix Drops It
+
+TV Features, Brooklyn Nine-Nine, Peacock, Andy Samberg, Sitcom
+
+Fri, 20 Feb 2026 16:17:15 GMT
+
+https://collider.com/brooklyn-nine-nine-best-sitcom-peacock-streaming/
+
+Netflix subscribers will need to switch to Peacock if they want to binge all 8 seasons of Andy Samberg's hit NBC comedy, Brooklyn Nine-Nine.
+---------
+
+# Gore Verbinski's Bonkers Sci-Fi Hit Just Overtook a Beloved Time-Travel Cult Favorite
+
+Movie News, Safety Not Guaranteed, Colin Trevorrow, Good Luck, Have Fun, Don't Die, Gore Verbinski
+
+Fri, 20 Feb 2026 16:16:12 GMT
+
+https://collider.com/good-luck-have-fun-dont-die-overtakes-safety-not-guaranteed-box-office-5-million/
+
+Jurassic World director's time travel gem, Safety Not Guaranteed, just lost its box office rank to Gore Verbinski's new sci-fi comeback.
+---------
+
+# ‘Project Hail Mary’ Gets the Best Popcorn Bucket We've Ever Seen at Alamo Drafthouse [Exclusive]
+
+Exclusives, Project Hail Mary, Alamo Drafthouse, Ryan Gosling, Andy Weir
+
+Fri, 20 Feb 2026 16:00:12 GMT
+
+https://collider.com/project-hail-mary-popcorn-bucket-glasses-menu-screenings-images-alamo-drafthouse/
+
+Ahead of Project Hail Mary's premiere, Alamo Drafthouse has unveiled a new popcorn bucket, glasses, and special screenings for the buzzy adaptation.
+---------
+
+# James Cameron Calls Netflix Warner Bros. Deal "Disastrous" in New Letter
+
+Movie News, James Cameron, Netflix
+
+Fri, 20 Feb 2026 16:36:52 GMT
+
+https://movieweb.com/james-cameron-disastrous-netflix-warner-bros-deal/
+
+James Cameron spared no words in a new letter that calls the impending Netflix-Warner Bros. deal "disastrous."
+---------
+
+# '28 Years Later: The Bone Temple' Is Now on Digital Streaming
+
+Movie News, 28 Years Later: The Bone Temple, 28 Years Later
+
+Fri, 20 Feb 2026 16:01:40 GMT
+
+https://movieweb.com/28-years-later-the-bone-temple-digital-streaming/
+
+Humanity prevails in the exclusive behind-the-scenes clip from '28 Years Later: The Bone Temple,' now on digital streaming.
+---------
+
+# 'Toy Story 5' Cast: Every New and Returning Voice Actor Confirmed
+
+TV Lists, Toy Story 5, Toy Story
+
+Fri, 20 Feb 2026 16:01:17 GMT
+
+https://movieweb.com/toy-story-5-cast/
+
+The 'Toy Story' franchise has been going for so long that the new movie's cast is a blend of old and new, but for various reasons.
+---------
+
 # Eric Dane's Final Role Explained & When It Comes Out
 
 Streaming TV, Euphoria
