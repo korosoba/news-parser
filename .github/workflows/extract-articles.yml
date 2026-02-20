@@ -35,10 +35,27 @@ jobs:
         run: |
           python extract_article.py $(cat urls.txt | tr '\n' ' ')
 
-      - name: Commit extracted files
+      - name: Commit extracted files (safe version)
         run: |
           git config --local user.email "github-actions[bot]@users.noreply.github.com"
           git config --local user.name "GitHub Actions"
-          git add extracted_articles/
-          git commit -m "Extracted articles from manual trigger ($(date +'%Y-%m-%d %H:%M UTC'))" || echo "No new articles"
-          git push || echo "No push needed"
+          
+          # Показываем статус для отладки (можно потом убрать)
+          git status
+          
+          # Проверяем, появились ли хоть какие-то файлы в папке
+          if ls extracted_articles/*.txt 1> /dev/null 2>&1 || \
+             ls extracted_articles/*.json 1> /dev/null 2>&1; then
+          
+            echo "Найдены файлы → добавляем в индекс"
+            git add extracted_articles/
+            
+            # Коммитим только если реально есть изменения
+            git commit -m "Extracted articles from manual trigger ($(date +'%Y-%m-%d %H:%M UTC'))" || echo "Commit skipped (no real changes)"
+            
+            # Push только если был коммит
+            git push || echo "Push skipped"
+          
+          else
+            echo "Нет извлечённых файлов → пропускаем commit и push"
+          fi
