@@ -1,47 +1,57 @@
-name: Daily News Feed to Telegram
+name: Daily Telegram Report + Reset
 
 on:
   schedule:
-    - cron: '0 8 * * *'          # каждый день в 8:00 UTC (это ~11:00 МСК, подстрой под себя)
-  workflow_dispatch:             # для ручного теста
+    - cron: '0 8 * * *'           # 08:00 UTC каждый день
+  workflow_dispatch:              # для теста
 
 jobs:
-  parse-and-send:
+  daily:
     runs-on: ubuntu-latest
     permissions:
-      contents: write            # если нужно коммитить изменения news_feed.md
+      contents: write
 
     steps:
-    - name: Checkout repository
-      uses: actions/checkout@v4
+      - name: Checkout repository
+        uses: actions/checkout@v4
 
-    - name: Set up Python
-      uses: actions/setup-python@v5
-      with:
-        python-version: '3.12'
+      - name: Get current date
+        id: date
+        run: echo "today=$(date +'%Y-%m-%d')" >> $GITHUB_OUTPUT
 
-    - name: Install dependencies
-      run: pip install feedparser
+      - name: Check if file exists and has content
+        id: check
+        run: |
+          if [ -s news_feed.md ]; then
+            echo "has_content=true" >> $GITHUB_OUTPUT
+          else
+            echo "has_content=false" >> $GITHUB_OUTPUT
+          fi
 
-    - name: Run parser
-      run: python parse_news.py
+      - name: Send to Telegram (only if file has content)
+        if: steps.check.outputs.has_content == 'true'
+        uses: appleboy/telegram-action@master
+        with:
+          to: ${{ secrets.TELEGRAM_CHAT_ID }}
+          token: ${{ secrets.TELEGRAM_BOT_TOKEN }}
+          document: ./news_feed.md
+          document_file_name: "news-${{ steps.date.outputs.today }}.md"
+          caption: |
+            Ежедневный дайджест новостей кино и сериалов
+            За период: ${{ steps.date.outputs.today }}
+            (файл очищен после отправки)
 
-    - name: Commit changes (if any)
-      run: |
-        git config --local user.email "action@github.com"
-        git config --local user.name "GitHub Action"
-        git add news_feed.md seen_guids.json
-        git commit -m "Daily news feed update $(date +'%Y-%m-%d')" || echo "No changes"
-        git push || echo "No push needed"
+      - name: Reset news_feed.md
+        if: always()  # очищаем даже если отправки не было
+        run: |
+          echo "# Новости кино и сериалов — ${{ steps.date.outputs.today }}" > news_feed.md
+          echo "" >> news_feed.md
+          echo "Файл очищен после ежедневной отправки." >> news_feed.md
 
-    - name: Send news_feed.md to Telegram
-      if: always()                     # отправляем даже если парсер упал
-      uses: appleboy/telegram-action@master
-      with:
-        to: ${{ secrets.TELEGRAM_CHAT_ID }}
-        token: ${{ secrets.TELEGRAM_BOT_TOKEN }}
-        document: ./news_feed.md                   # отправляем файл
-        caption: |
-          Ежедневный дайджест новостей кино/сериалов
-          Дата: $(date +'%Y-%m-%d')
-          Новых статей сегодня: [можно добавить счётчик, если доработаешь скрипт]
+      - name: Commit reset
+        run: |
+          git config --local user.email "github-actions[bot]@users.noreply.github.com"
+          git config --local user.name "GitHub Actions"
+          git add news_feed.md
+          git commit -m "Daily reset news_feed.md after report (${{ steps.date.outputs.today }})" || echo "No changes"
+          git push || echo "No push needed"
