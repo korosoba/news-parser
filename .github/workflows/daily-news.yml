@@ -1,0 +1,47 @@
+name: Daily News Feed to Telegram
+
+on:
+  schedule:
+    - cron: '0 8 * * *'          # каждый день в 8:00 UTC (это ~11:00 МСК, подстрой под себя)
+  workflow_dispatch:             # для ручного теста
+
+jobs:
+  parse-and-send:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write            # если нужно коммитить изменения news_feed.md
+
+    steps:
+    - name: Checkout repository
+      uses: actions/checkout@v4
+
+    - name: Set up Python
+      uses: actions/setup-python@v5
+      with:
+        python-version: '3.12'
+
+    - name: Install dependencies
+      run: pip install feedparser
+
+    - name: Run parser
+      run: python parse_news.py
+
+    - name: Commit changes (if any)
+      run: |
+        git config --local user.email "action@github.com"
+        git config --local user.name "GitHub Action"
+        git add news_feed.md seen_guids.json
+        git commit -m "Daily news feed update $(date +'%Y-%m-%d')" || echo "No changes"
+        git push || echo "No push needed"
+
+    - name: Send news_feed.md to Telegram
+      if: always()                     # отправляем даже если парсер упал
+      uses: appleboy/telegram-action@master
+      with:
+        to: ${{ secrets.TELEGRAM_CHAT_ID }}
+        token: ${{ secrets.TELEGRAM_BOT_TOKEN }}
+        document: ./news_feed.md                   # отправляем файл
+        caption: |
+          Ежедневный дайджест новостей кино/сериалов
+          Дата: $(date +'%Y-%m-%d')
+          Новых статей сегодня: [можно добавить счётчик, если доработаешь скрипт]
