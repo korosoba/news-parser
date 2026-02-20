@@ -26,6 +26,9 @@ jobs:
       - name: Install trafilatura
         run: pip install trafilatura
 
+      - name: Install requests
+        run: pip install requests
+
       - name: Prepare URLs file
         run: |
           echo "${{ inputs.urls }}" > urls.txt
