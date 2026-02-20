@@ -1,3 +1,102 @@
+# Forget Palpatine, Star Wars Just Brought Back the Last Character I Ever Expected
+
+Movies, Star Wars, Star Wars: Galactic Racer
+
+Fri, 20 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/star-wars-brings-back-ben-quadinaros-podracer-phantom-menace/
+
+While the hype may be focused around The Mandalorian & Grogu, I still can't believe Star Wars is bringing back one of the most unexpected characters.
+---------
+
+# 8 Netflix TV Shows Better Than Anything Has Ever Done
+
+Streaming TV, Netflix, HBO
+
+Fri, 20 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/netflix-shows-better-than-hbo-original-series/
+
+HBO may be renowned as the home for prestige TV, but Netflix has its own array of incomparable original series that are peerless in their genres.
+---------
+
+# Top 3 Must-Watch Netflix Shows This Weekend: February 20–22, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 20 Feb 2026 19:53:20 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-weekend-feb-20-22-2026/
+
+Discover the top 3 Netflix shows to watch this weekend, February 20–22, 2026, featuring the most talked-about series perfect for a full binge.
+---------
+
+# Glen Powell Reveals The Secret To Making His A24 Murderer Likable In Divisive New Comedy
+
+Interviews, How to Make a Killing, Glen Powell, Jessica Henwick, Topher Grace
+
+Fri, 20 Feb 2026 19:31:57 GMT
+
+https://screenrant.com/how-to-make-a-killing-glen-powell-jessica-henwick-topher-grace-interview/
+
+How To Make A Killing's Glen Powell, Jessica Henwick & Topher Grace share which Redfellow they would save, and how to make murders larger than life.
+---------
+
+# 3 Best New & Returning Thriller Series To Binge-Watch This Weekend
+
+TV, The Night Agent, 56 Days, The Last Thing He Told Me
+
+Fri, 20 Feb 2026 19:30:20 GMT
+
+https://screenrant.com/best-thriller-series-weekend-binge-watch-february/
+
+Across Netflix, Apple TV, and Prime Video, the three best thriller series to binge this weekend include both new and popular returning shows.
+---------
+
+# Dungeons & Dragons Crochet Patter Book Review
+
+Games, Dungeons and Dragons
+
+Fri, 20 Feb 2026 19:46:12 GMT
+
+https://www.cbr.com/dnd-crochet-pattern-book-review/
+
+From Gloves of Missile Snaring to the Eye and Hand of Vecna, crafty DnD fans won't want to miss the official Dungeons & Dragons Crochet pattern book.
+---------
+
+# Solo Leveling Officially Reveals a Villainous New Sung Jinwoo Transformation
+
+Anime, Solo Leveling, Solo Leveling:ARISE, manhwa, Manga
+
+Fri, 20 Feb 2026 19:35:21 GMT
+
+https://www.cbr.com/solo-leveling-arise-transformation-monarch-heaven-annihilating-dragons/
+
+Solo Leveling just revealed an entirely new version of Sung Jinwoo; and he might actually be the series’ most powerful villain.
+---------
+
+# Tom Hardy’s Forgotten ‘MobLand’ Precursor Loses Box Office Rank to Chris Hemsworth’s Acclaimed Crime Thriller
+
+Movie News, Tom Hardy, The Drop, Crime 101, Chris Hemsworth
+
+Fri, 20 Feb 2026 19:49:44 GMT
+
+https://collider.com/tom-hardy-forgotten-mobland-precursor-the-drop-overtaken-by-chris-hemsworth-acclaimed-thriller-crime-101-box-office-30-million/
+
+A Tom Hardy crime thriller from 2014 that served as a precursor to MobLand has been overtaken twice over at the box office by Crime 101.
+---------
+
+# 10 Most Influential Movies of the 21st Century, Ranked
+
+Movie, The Avengers, The Social Network, The Dark Knight, 2000s
+
+Fri, 20 Feb 2026 19:40:12 GMT
+
+https://collider.com/most-influential-movies-21st-century-ranked/
+
+Animated gems like Spirited Away and comic book adaptations like The Dark Knight are among the most influential movies released in the last 26 years.
+---------
+
 # Scrubs Reboot Sets Return For Two Of OG Show's Longest-Running Stars
 
 TV, Scrubs
