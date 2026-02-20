@@ -1,0 +1,27 @@
+name: Parse RSS Feeds
+
+on:
+  schedule:
+    - cron: '*/30 * * * *'  # Каждые 30 минут
+  workflow_dispatch:  # Для ручного запуска
+
+jobs:
+  parse:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v4
+    - name: Set up Python
+      uses: actions/setup-python@v5
+      with:
+        python-version: '3.12'
+    - name: Install dependencies
+      run: pip install feedparser
+    - name: Run parser
+      run: python parse_news.py
+    - name: Commit and push changes
+      run: |
+        git config --local user.email "action@github.com"
+        git config --local user.name "GitHub Action"
+        git add news_feed.md seen_guids.json
+        git commit -m "Update news feed: $(date)" || echo "No changes to commit"
+        git push
