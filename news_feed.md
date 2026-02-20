@@ -1,3 +1,399 @@
+# Scrubs Reboot Sets Return For Two Of OG Show's Longest-Running Stars
+
+TV, Scrubs
+
+Fri, 20 Feb 2026 19:26:07 GMT
+
+https://screenrant.com/scrubs-reboot-cast-neil-flynn-christa-miller/
+
+The upcoming reboot of the medical sitcom Scrubs is set to feature the return of two of the longest-running characters from the original series.
+---------
+
+# Marvel Stealth Drops a First Look at Its New Hulk After a 5-Year Wait (Details Here)
+
+Comics, Marvel, Hulk
+
+Fri, 20 Feb 2026 19:24:57 GMT
+
+https://screenrant.com/marvel-new-hulk-first-look-hostilicus-details/
+
+A mysterious new Hulk is finally getting released and is setting up to reshape Marvel's gamma-powered universe in ways never seen before.
+---------
+
+# Steam Outages Reported As Players Locked Out Of Online Games
+
+Gaming, Steam, Gaming Hardware, PC
+
+Fri, 20 Feb 2026 19:20:11 GMT
+
+https://screenrant.com/steam-down-outage-reported-online-games/
+
+Users are mass reporting issues with Valve's PC gaming platform Steam, as an outage appears to be limiting its functionality on Friday, February 20.
+---------
+
+# Taylor Sheridan’s 100% RT Crime Thriller Is His Best Series Yet
+
+Streaming TV, Taylor Sheridan, Mayor of Kingstown
+
+Fri, 20 Feb 2026 19:03:19 GMT
+
+https://screenrant.com/taylor-sheridan-mayor-of-kingstown-best-show/
+
+Taylor Sheridan's 100% Rotten Tomatoes crime thriller Mayor of Kingstown season 4 is an all-time great series, and is arguably his best TV show yet.
+---------
+
+# The Heartwarming Origin Story Behind 2025's Animated Oscars Hopeful Revealed In Arco Clip
+
+Exclusive, Arco
+
+Fri, 20 Feb 2026 19:00:20 GMT
+
+https://screenrant.com/video/arco-movie-writing-process-clip/
+
+Exclusive: ScreenRant presents a BTS clip from Arco, revealing how Ugo Bienvenu and Félix de Givry wrote the Oscar-nominated animated film.
+---------
+
+# Timothy Olyphant’s New Villain Return Officially Ends 7-Year TV Streak After Netflix Series Cancellation
+
+Streaming TV, Timothy Olyphant, Stick
+
+Fri, 20 Feb 2026 19:00:20 GMT
+
+https://screenrant.com/timothy-olyphant-stick-season-2-return-break-7-year-streak/
+
+Thanks a series regular promotion and returning as a villainous character, Timothy Olyphant has broken a seven-year television streak.
+---------
+
+# These Classic Novels Need the "Wuthering Heights" Treatment Next
+
+Books, Wuthering Heights
+
+Fri, 20 Feb 2026 18:56:00 GMT
+
+https://screenrant.com/classic-novels-that-need-sexy-remake-wuthering-heights/
+
+These literary classics could use a sexy update.
+---------
+
+# God Of War Ragnarok Sequel Premise Found Hidden In Game Files
+
+Gaming, God of War: Ragnarok, God of War, Triple-A Games, PC
+
+Fri, 20 Feb 2026 18:49:47 GMT
+
+https://screenrant.com/god-of-war-egypt-setting-ragnarok-game-files/
+
+A dataminer has found unused dialog in God of War Ragnarok's game files that seems to be from a sequel's potential introductory sequence.
+---------
+
+# Prime Video's Ambitious 8-Part Sci-Fi Series Is The Ideal Weekend Binge
+
+Classic TV, Recommendation, Sci-Fi
+
+Fri, 20 Feb 2026 18:45:19 GMT
+
+https://screenrant.com/prime-video-tales-from-the-loop-sci-fi-series-weekend-binge/
+
+Sci-fi series can often take a long time to fully appreciate and digest, but a Prime Video series with 8 episodes is the perfect weekend binge.
+---------
+
+# One Of Square Enix’s Best RPG Series Is Officially Coming Back
+
+Gaming, NieR: Automata, Square Enix, NieR, Triple-A Games, PC
+
+Fri, 20 Feb 2026 18:44:34 GMT
+
+https://screenrant.com/square-enix-nier-automata-to-be-continued/
+
+Fans have been waiting since 2017 for a proper new installment, and the latest teaser confirms that a continuation is officially on its way.
+---------
+
+# 6 Months Later, 2025’s 52% RT Dracula Is No. 4 on Prime Video’s Global Chart
+
+Movies, Dracula
+
+Fri, 20 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/caleb-landry-jones-romance-dracula-streaming-success-prime-video-february-2026/
+
+The film was thrown aside by critics after its release, but audiences are praising it and pushing it to the near top of Prime Video.
+---------
+
+# 10 Best Modern Spy Thrillers of the 21st Century, Ranked
+
+Movies, Thriller, Casino Royale, Mission: Impossible, Kingsman: The Secret Service
+
+Fri, 20 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/best-modern-spy-thrillers-ranked-list/
+
+These spy thrillers represent the very best that the genre has to offer in the high-tech, big-budget landscape of the 21st century.
+---------
+
+# The 10 Greatest Legend of Zelda Games Ever Made, Ranked
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, The Legend of Zelda: Tears of the Kingdom
+
+Fri, 20 Feb 2026 18:45:12 GMT
+
+https://www.cbr.com/greatest-zelda-games-40th-anniversary/
+
+Zelda has 40 years worth of gaming masterpieces under its belt, so choosing the best of them is an impossible undertaking. We gave it a try anyway.
+---------
+
+# The DCU Needs To Feature These 10 Villains
+
+Superheroes, DCU, DC Comics
+
+Fri, 20 Feb 2026 18:30:13 GMT
+
+https://www.cbr.com/dc-villains-we-need-to-see-in-the-dcu/
+
+James Gunn, Peter Safran, may we have your attention please?
+---------
+
+# Paramount+'s School Spirits Surges on the U.S. Streaming Charts
+
+TV, School Spirits, Paramount Plus, Drama
+
+Fri, 20 Feb 2026 18:00:16 GMT
+
+https://www.cbr.com/paramount-plus-school-spirits-supernatural-streaming-hit-february-2026/
+
+The third season of the Paramount+ series is a Top 10 hit.
+---------
+
+# The Tragic Reason Quentin Tarantino’s Films Haven’t Been the Same
+
+Movies, Quentin Tarantino
+
+Fri, 20 Feb 2026 18:00:16 GMT
+
+https://www.cbr.com/quentin-tarantino-sally-menke/
+
+The style that defined Quentin Tarantino's films was lost forever when this cinema legend passed away in 2010.
+---------
+
+# The Complete Scream Timeline
+
+Movies, Scream, Horror
+
+Fri, 20 Feb 2026 17:55:48 GMT
+
+https://www.cbr.com/video/the-complete-scream-timeline/
+
+The Complete Scream Timeline
+---------
+
+# Interview: Ti West, Giancarlo Esposito & Moses Sumney Discuss MaXXXine
+
+Movies, MaXXXine, Horror
+
+Fri, 20 Feb 2026 17:52:42 GMT
+
+https://www.cbr.com/video/interview-ti-west-giancarlo-esposito-moses-sumney-discuss-maxxxine/
+
+Ti West, Giancarlo Esposito, and Moses Sumney speak to CBR about MaXXXine.
+---------
+
+# Interview: Kevin Bacon and Elizabeth Debicki Discuss MaXXXine
+
+Movies, MaXXXine, Horror
+
+Fri, 20 Feb 2026 17:51:39 GMT
+
+https://www.cbr.com/video/interview-kevin-bacon-and-elizabeth-debicki-discuss-maxxxine/
+
+Kevin Bacon and Elizabeth Debicki speak to CBR's Hannah Rose about MaXXXine.
+---------
+
+# The Complete Nightmare on Elm Street Timeline
+
+Movies, Nightmare on Elm Street, Horror
+
+Fri, 20 Feb 2026 17:45:13 GMT
+
+https://www.cbr.com/video/the-complete-nightmare-on-elm-street-timeline/
+
+The Complete Nightmare on Elm Street Timeline
+---------
+
+# 'The Dreadful' Review: 'Game of Thrones' Sophie Turner & Kit Harington Reunite for a Disappointing Gothic Horror
+
+Movie Reviews, The Dreadful, Kit Harington, Sophie Turner, Marcia Gay Harden
+
+Fri, 20 Feb 2026 19:13:40 GMT
+
+https://collider.com/the-dreadful-review-sophie-turner-kit-harington-horror/
+
+The Dreadful, a reunion for Game of Thrones’ Sophie Turner and Kit Harington, is full of Gothic intrigue, but comes to a disappointing conclusion.
+---------
+
+# 1 Week Before Season 2, Apple TV's Easy-To-Binge Sci-Fi Action Thriller Climbs Streaming Charts
+
+TV News, Apple TV, Sci-Fi, Action Thriller, Monarch: Legacy of Monsters
+
+Fri, 20 Feb 2026 18:57:16 GMT
+
+https://collider.com/monarch-legacy-of-monsters-apple-tv-sci-fi-action-thriller-streaming-success-february-2026/
+
+Apple TV’s sci-fi action thriller climbs streaming charts with globe-spanning conspiracies, monster mayhem, and unstoppable binge momentum.
+---------
+
+# 20 Greatest Blockbuster Movie Masterpieces of All Time, Ranked
+
+Movie, Die Hard, Blockbuster, Avatar, Jurassic Park
+
+Fri, 20 Feb 2026 18:52:12 GMT
+
+https://collider.com/best-blockbuster-movie-masterpieces-of-all-time-ranked/
+
+There have been many exceptional blockbusters that have paved the way forward for filmmaking over the years, including Jaws, Avatar, and Die Hard.
+---------
+
+# Decades Later, Paul McCartney Pulled Off His Most Surprising Collaboration in 2015
+
+Music Features, Paul McCartney, The Beatles, Kanye West, Rihanna, Music
+
+Fri, 20 Feb 2026 18:39:43 GMT
+
+https://collider.com/paul-mccartney-collaboration-rihanna-kanye-west/
+
+The 2015 collaboration of Paul McCartney, Rihanna, and Kanye West on FourFiveSeconds broke barriers, united generations, and redefined music.
+---------
+
+# 3 Best Shows To Watch On Netflix This Weekend (Feb 21-22)
+
+TV, Netflix, The Night Agent, Mike & Molly, Olympo
+
+Fri, 20 Feb 2026 18:36:13 GMT
+
+https://collider.com/best-netflix-shows-watch-weekend-february-20/
+
+The Night Agent, Mike & Molly, and Olympo make up our list of the best Netflix shows to watch the weekend of February 20, 2026.
+---------
+
+# Ryan Coogler's Sci-Fi Reboot of 'The X-Files' Gets a Huge Casting Update
+
+TV News, The X-Files, Ryan Coogler, Sinners, Sci-Fi
+
+Fri, 20 Feb 2026 18:34:37 GMT
+
+https://collider.com/x-files-ryan-coogler-sci-fi-series-reboot-sinners-casting-director-francine-maisler/
+
+Ryan Coogler's upcoming The X-Files reboot is making significant progress, as it has received a major update about the show's casting.
+---------
+
+# As a Hardcore Fan, This Is My Ranking of the All-Time Best '80s Horror Movies
+
+Movie, Horror, A Nightmare on Elm Street, The Thing, Poltergeist
+
+Fri, 20 Feb 2026 18:29:18 GMT
+
+https://collider.com/hardcore-horror-fan-best-80s-horror-movies-ranked/
+
+As someone who loves horror, the '80s are a particularly special decade, producing many of the genre's masterpieces like The Thing and Poltergeist.
+---------
+
+# In Just 3 Seasons, Eric Dane's ‘Grey’s Anatomy’ Arc Became the Drama’s Most Crucial Character Turn
+
+TV Features, Eric Dane, Grey's Anatomy, Chyler Leigh, Series
+
+Fri, 20 Feb 2026 18:15:12 GMT
+
+https://collider.com/eric-dane-mark-sloan-lexie-slexie-greys-anatomy-crucial-character-turn/
+
+Eric Dane’s Mark Sloan evolves from flirt to emotional anchor in one of Grey’s Anatomy’s most compelling arcs.
+---------
+
+# 'KPop Demon Hunters' Directors Are Going Bolder and Bigger for the Netflix Sequel: "We're Up for the Challenge"
+
+Exclusives, Netflix, KPop Demon Hunters, Oscars, FYC
+
+Fri, 20 Feb 2026 18:00:15 GMT
+
+https://collider.com/kpop-demon-hunters-2-oscars-directors-maggie-kang-chris-appelhans-interview/
+
+Discover the behind-the-scenes story of KPop Demon Hunters, the groundbreaking animated film that took Netflix by storm, in this exclusive interview.
+---------
+
+# Taylor Sheridan's 102-Minute Neo-Western Predating ‘Yellowstone’ Is Climbing Streaming Charts
+
+Movie News, Hell or High Water, Taylor Sheridan, Jeff Bridges, Chris Pine
+
+Fri, 20 Feb 2026 17:48:24 GMT
+
+https://collider.com/taylor-sheridan-western-pre-yellostone-hell-or-high-water-streaming-success-comeback-february-2026/
+
+Taylor Sheridan's 102-minute neo-western, Hell or High Water, starring Chris Pine and Jeff Bridges, is a sudden streaming success.
+---------
+
+# Eric Dane's 10 Best 'Grey's Anatomy' Episodes
+
+TV Lists, Grey's Anatomy
+
+Fri, 20 Feb 2026 18:50:15 GMT
+
+https://movieweb.com/eric-dane-best-greys-anatomy-episodes/
+
+Eric Dane, who passed away on Feb. 19, 2026, from his ALS battle, starred on 'Grey's Anatomy' as beloved character Mark Sloan.
+---------
+
+# Netflix's 'BioShock' Movie Gets Production Update From Producer
+
+Movie News, BioShock
+
+Fri, 20 Feb 2026 18:42:07 GMT
+
+https://movieweb.com/netflix-bioshock-movie-update-roy-lee/
+
+Netflix is "anxious" to get the upcoming live-action video game adaptation of 'BioShock' off the ground.
+---------
+
+# 'Breaking Bad' IMDb Score Review-Bombed by 'Game of Thrones' Fans
+
+TV News, Breaking Bad, A Knight Of The Seven Kingdoms, Game Of Thrones
+
+Fri, 20 Feb 2026 18:30:58 GMT
+
+https://movieweb.com/breaking-bad-perfect-imdb-score-lost-game-of-thrones-review-bombing/
+
+The two fandoms have lashed out at each other over 'A Knight of the Seven Kingdoms' latest masterpiece episode.
+---------
+
+# James Gunn Denies DCU Series 'Paradise Lost' Was Canceled
+
+Movie News, DCU, Paradise Lost, James Gunn, Wonder Woman (DCU)
+
+Fri, 20 Feb 2026 18:16:30 GMT
+
+https://movieweb.com/james-gunn-confirms-fate-of-long-awaited-dcu-series-three-years-later/
+
+James Gunn confirms that the Wonder Woman prequel series for HBO is still in development.
+---------
+
+# 'Starfleet Academy's Talaxian Furfly Gag Sets Up "The Trouble with Tribbles" Tribute
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Fri, 20 Feb 2026 18:00:18 GMT
+
+https://movieweb.com/star-trek-starfleet-academy-tribbles-tribute/
+
+'Star Trek: The Original Series' has an iconic episode that's almost as old as the franchise itself, and 'Starfleet Academy' is ready to pay homage.
+---------
+
+# Netflix's Perfect 8-Episode Sci-Fi Series 'Pluto' Is the Most Slept-On Show on Streaming
+
+Features, Pluto, Netflix, Streaming Recommendations
+
+Fri, 20 Feb 2026 18:00:18 GMT
+
+https://movieweb.com/pluto-streaming-netflix-february-2026/
+
+Forget 'Stranger Things,' Netflix users need to binge-watch the best hard sci-fi show of the decade, 'Pluto.'
+---------
+
 # James Gunn Confirms Whether DCU's Wonder Woman Prequel Is Officially Cancelled Amid Rumors
 
 TV, Paradise Lost, Wonder Woman, DC Universe
