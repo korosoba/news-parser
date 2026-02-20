@@ -1,3 +1,333 @@
+# 20 Funniest The Far Side Comics That Have Aged Like Fine Wine
+
+Comics, The Far Side
+
+Fri, 20 Feb 2026 23:00:22 GMT
+
+https://screenrant.com/funniest-far-side-comics-gary-larson/
+
+Ripped straight from the funny pages, these are the 45 most hilarious Far Side comic strips that will never get old.
+---------
+
+# Kissing Is The Easy Part Stars Paris Berelc & Asher Angel Share Love For The Movie, Hopes For The Future
+
+Movies
+
+Fri, 20 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/kissing-is-the-easy-part-paris-berelc-asher-angel-interview/
+
+Exclusive: Kissing is the Easy Part stars Paris Berelc and Asher Angel describe their excitement about the story and their hopes to return in sequels.
+---------
+
+# The Hunt For Ben Solo Is Hopefully Not Dead Yet
+
+Movies, Ben Solo/Kylo Ren, Star Wars
+
+Fri, 20 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/star-wars-hunt-for-ben-solo-not-dead-yet/
+
+With Dave Filoni taking on a larger role at Lucasfilm, there's renewed hope that the abandoned Star Wars movie The Hunt for Ben Solo could be revisited.
+---------
+
+# Skyrim Player Discovers New Trick For Avoiding Fall Damage After 15 Years
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games, PC
+
+Fri, 20 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/skyrim-avoid-fall-damage-trick-cabbage/
+
+Skyrim is full of interesting secrets and exploits, and 15 years later, there might still be some that even seasoned players haven't seen.
+---------
+
+# Dragon Ball's Next Anime Will Unveil a New Class of Fighter Stronger Than Any Saiyan
+
+Anime, Dragon Ball, Dragon Ball Super: The Galactic Patrol
+
+Fri, 20 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/dragon-ball-galactic-patrol-new-fighter-stronger-saiyan/
+
+Dragon Ball's Saiyans are some of the franchise's strongest warriors, but a new anime will introduce the one type of fighter much stronger.
+---------
+
+# Peaky Blinders' Major New Shelby Family Recast Clarified By Creator Steven Knight
+
+Movies, Peaky Blinders: The Immortal Man
+
+Fri, 20 Feb 2026 22:52:35 GMT
+
+https://screenrant.com/peaky-blinders-immortal-man-duke-shelby-barry-keoghan-recast-steven-knight/
+
+Peaky Blinders creator Steven Knight explains the surprising decision behind recasting a Shelby family member for Netflix's The Immortal Man.
+---------
+
+# Dakota Fanning's 6-Part Netflix Psychological Thriller Series Is The Perfect One-Night Weekend Binge
+
+TV, Netflix, The Perfect Couple
+
+Fri, 20 Feb 2026 22:45:31 GMT
+
+https://screenrant.com/the-perfect-couple-netflix-thriller-series-must-watch/
+
+All Her Fault star Dakota Fanning plays a key role in this mysterious Netflix psychological thriller series that can't be put down on a weekend binge.
+---------
+
+# Knight of the Seven Kingdoms: The Betrayal That Reframes Game of Thrones
+
+TV, A Knight Of The Seven Kingdoms
+
+Fri, 20 Feb 2026 22:45:21 GMT
+
+https://screenrant.com/video/knight-of-the-seven-kingdoms-the-betrayal-that-reframes-game-of-thrones/
+
+Knight of the Seven Kingdoms: The Betrayal That Reframes Game of Thrones explores the shocking Dunk and Egg betrayal that reshapes Westeros history, deepens George R.R. Martin’s lore, and changes how fans see Game of Thrones and House of the Dragon.
+---------
+
+# John Wick’s Next Big Comeback Is 7 Years Too Late to Be the Hit Fans Wanted
+
+Gaming, John Wick
+
+Fri, 20 Feb 2026 22:38:11 GMT
+
+https://screenrant.com/john-wick-video-game-new-release-disappointing-too-late/
+
+John Wick's newly announced project could be what the franchise needs to revitalize it, but it may be roughly half a decade too late now.
+---------
+
+# Bill Hader's 'Barry': A Unique Crime Thriller on HBO
+
+Classic TV, Barry
+
+Fri, 20 Feb 2026 22:30:19 GMT
+
+https://screenrant.com/barry-bill-hader-hbo-best-crime-thriller-series/
+
+Bill Hader's twisted crime comedy series Barry is one of the best HBO shows ever made, and it's an easy binge with just 32 half-hour episodes.
+---------
+
+# Prime Video's The Expanse Revived Hard Sci-Fi for the 21st Century
+
+TV, The Expanse, Sci-Fi, Prime Video
+
+Fri, 20 Feb 2026 23:00:13 GMT
+
+https://www.cbr.com/prime-video-the-expanse-hard-sci/
+
+Sci-fi on TV has always been a hard sell, but one amazing series brought it back for a whole generation.
+---------
+
+# Avengers: Doomsday May Continue the MCU's Worst Fantastic Four Trend
+
+Movies, MCU, Avengers: Doomsday, Fantastic Four
+
+Fri, 20 Feb 2026 22:45:12 GMT
+
+https://www.cbr.com/mcu-killed-3-fantastic-four-members-avengers-doomsday-problem/
+
+Three superheroes have fallen victim to the Marvel Cinematic Universe's darkest tradition, and it will spell trouble for the next Avengers film.
+---------
+
+# The Lord of the Rings: Aragorn's Hug in The Two Towers, Explained
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Two Towers
+
+Fri, 20 Feb 2026 22:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-aragorn-hug-explained-everything/
+
+Aragorn is one of the most important characters in The Lord of the Rings and one huge proof why he was always going to be king.
+---------
+
+# Sony Developing Animated Venom Movie With Tom Hardy’s Involvement
+
+Movies, Venom
+
+Fri, 20 Feb 2026 22:13:46 GMT
+
+https://www.cbr.com/venom-animated-movie-tom-hardy/
+
+Sony is working on an animated Venom movie, breaking from the live-action trilogy. Tom Hardy is expected to be involved in some capacity.
+---------
+
+# DC Will End A Very Popular Absolute Universe Book, And Scott Snyder Explains Why
+
+Comics, comics
+
+Fri, 20 Feb 2026 22:13:30 GMT
+
+https://www.cbr.com/dc-ending-absolute-martian-manhunter/
+
+Not all of the Absolute stories are built to last forever, and a fan favorite is coming to an end.
+---------
+
+# Justice League Joins Forces with Sonic The Hedgehog For Another Explosive Crossover
+
+Comics, Sonic the Hedgehog, Justice League, DC Comics, DCU
+
+Fri, 20 Feb 2026 22:10:25 GMT
+
+https://www.cbr.com/justice-league-joins-forces-with-sonic-the-hedgehog-explosive-dc-crossover/
+
+A brand-new Justice League and Sonic The Hedgehog crossover is on the way for 2026 and it looks absolutely stunning.
+---------
+
+# Jessica Henwick Says Daredevil: Born Again Season 2 Will Please Netflix Fans
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Fri, 20 Feb 2026 22:05:26 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-jessica-henwick/
+
+The former Marvel Netflix star talks about seeing Charlie Cox on set in his new Daredevil suit.
+---------
+
+# The Dystopian Sci-Fi That Inspired a 4-Part TV Series Is a Shock Free Streaming Hit
+
+Movie News, Snowpiercer, Bong Joon Ho, Chris Evans
+
+Fri, 20 Feb 2026 23:00:13 GMT
+
+https://collider.com/snowpiercer-dystopian-sci-fi-thriller-free-streaming-success-tubi-february-2026/
+
+Snowpiercer, Bong Joon Ho’s 2013 dystopian sci-fi film, is now a free streaming sensation on Tubi and remains as timely as ever.
+---------
+
+# 10 Best Movies That Are Under 70 Minutes Long, Ranked
+
+Movie, The Kid, It's Such A Beautiful Day, Sherlock Jr., Following
+
+Fri, 20 Feb 2026 22:50:12 GMT
+
+https://collider.com/best-movies-under-70-minutes-ranked/
+
+Classic movies like The Adventures of Prince Achmed, The Kid, and Armored Car Robbery show how you don't need a long runtime to make a great film.
+---------
+
+# Top 20 Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, Andrei Rublev, Pulp Fiction, Mulholland Dr., The Passion Of Joan Of Arc
+
+Fri, 20 Feb 2026 22:48:14 GMT
+
+https://collider.com/best-movies-last-100-years/
+
+Pulp Fiction, Andrei Rublev, and 2001: A Space Odyssey are all among the absolute greatest cinematic achievements of the last 100 years.
+---------
+
+# Iconic Sci-Fi Series ‘Doctor Who’ Revives One of Its Most Divisive Stories in a Surprising Way
+
+TV News, Doctor Who: The Movie, Doctor Who, Science Fiction, 4K Blu-ray
+
+Fri, 20 Feb 2026 22:45:40 GMT
+
+https://collider.com/doctor-who-the-movie-franchise-return-4k-blu-ray/
+
+While Doctor Who's future remains uncertain after the breakup with Disney, a classic that divided audiences, is set for a 4K/Blu-ray re-release.
+---------
+
+# HBO's Stellar 7-Part Miniseries Made the Most of Its $100M+ Budget
+
+TV Features, John Adams, HBO, Paul Giamatti, HBO Max
+
+Fri, 20 Feb 2026 22:33:13 GMT
+
+https://collider.com/john-adams-hbo-miniseries-100m-budget-paul-giamatti/
+
+The Emmy-winning HBO miniseries John Adams, starring Paul Giamatti and Laura Linney, used its big budget to be as historically accurate as possible.
+---------
+
+# 12 Years Later, Christopher Nolan’s Sci-Fi Phenomenon Bends Time on Streaming Again
+
+Movie News, Christopher Nolan, Sci-Fi, Interstellar, Matthew McConaughey
+
+Fri, 20 Feb 2026 22:30:12 GMT
+
+https://collider.com/interstellar-christopher-nolan-sci-fi-phenomenon-free-streaming-tubi-february-2026/
+
+Interstellar, Christopher Nolan’s visually stunning sci-fi drama starring Matthew McConaughey, is now streaming free on Tubi.
+---------
+
+# 2 Years After Tom Hardy's 'Last Dance,' Venom Is Officially Back With a New Movie
+
+Movie News, Venom, Zach Lipovsky, Sony Pictures Animation, Final Destination Bloodlines
+
+Fri, 20 Feb 2026 22:22:57 GMT
+
+https://collider.com/venom-animated-movie-final-destination-bloodlines-directors-tom-hardy-involved/
+
+2 years after Tom Hardy said goodbye to his alien buddy, Venom is returning with a brand new movie following in Spider-Verse's footsteps.
+---------
+
+# 5 '90s Movie Masterpieces That Just Keep Getting Better
+
+Movie, The Iron Giant, Terminator 2: Judgment Day, Heat, Tombstone
+
+Fri, 20 Feb 2026 22:21:13 GMT
+
+https://collider.com/90s-movie-masterpieces-keep-getting-better/
+
+Although the '90s produced many cinematic classics, some movies, like Groundhog Day and Terminator 2: Judgment Day, keep getting better and better.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (Feb 21-22)
+
+Movie, Prime Video, Hedda, A Cinderella Story, Mickey 17
+
+Fri, 20 Feb 2026 22:19:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-february-20/
+
+A Cinderella Story, Hedda, and Mickey 17 make up our list of the best movies to watch on Prime Video the weekend of February 20, 2026.
+---------
+
+# Mel Gibson's "Monster" of a War Movie Will Leave Streaming Imminently
+
+Movie, Braveheart, Mel Gibson, History, War
+
+Fri, 20 Feb 2026 22:00:12 GMT
+
+https://collider.com/braveheart-mel-gibson-monster-war-movie-leaving-streaming-pluto-tv-february-2026/
+
+Mel Gibson’s Braveheart, the five-time Oscar-winning war epic, leaves Netflix at the end of the month. Here's everything you need to know.
+---------
+
+# Sony Announces New 'Venom' Movie, Tom Hardy Returning in Some Capacity
+
+Movie News, Venom, Tom Hardy
+
+Fri, 20 Feb 2026 22:37:56 GMT
+
+https://movieweb.com/venom-animated-movie-tom-hardy-set-at-sony/
+
+Sony are moving away from their live-action Marvel movies with a new animated Venom movie.
+---------
+
+# Stephen King's Sci-Fi Thriller 'The Institute' Is an Underrated Binge-Watch
+
+Features, The Institute, Stephen King
+
+Fri, 20 Feb 2026 22:30:17 GMT
+
+https://movieweb.com/the-institute-stephen-king-sci-fi-thriller-underrated/
+
+'The Institute' Season 2 is coming in 2026, and the sci-fi thriller TV series is based on the novel by Stephen King and streaming on MGM+.
+---------
+
+# Why Steven Spielberg's 'Disclosure Day' is the Must-See Sci-Film of 2026
+
+Features, Disclosure Day
+
+Fri, 20 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/disclosure-day-steven-spielberg-exciting-2026-sci-fi-movie/
+
+Steven Spielberg returns to sci-fi and summer blockbusters with his upcoming movie about aliens, 'Disclosure Day.'
+---------
+
 # Spider-Man: Brand New Day Is Officially Ignoring These 2 Huge MCU Stories
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
