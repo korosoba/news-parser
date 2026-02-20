@@ -1,0 +1,44 @@
+name: Extract Full Articles (manual)
+
+on:
+  workflow_dispatch:
+    inputs:
+      urls:
+        description: 'URLs to extract (one per line)'
+        required: true
+        type: string
+
+jobs:
+  extract:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.12'
+
+      - name: Install trafilatura
+        run: pip install trafilatura
+
+      - name: Prepare URLs file
+        run: |
+          echo "${{ inputs.urls }}" > urls.txt
+          cat urls.txt
+
+      - name: Run extraction
+        run: |
+          python extract_article.py $(cat urls.txt | tr '\n' ' ')
+
+      - name: Commit extracted files
+        run: |
+          git config --local user.email "github-actions[bot]@users.noreply.github.com"
+          git config --local user.name "GitHub Actions"
+          git add extracted_articles/
+          git commit -m "Extracted articles from manual trigger ($(date +'%Y-%m-%d %H:%M UTC'))" || echo "No new articles"
+          git push || echo "No push needed"
