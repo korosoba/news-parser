@@ -1,3 +1,146 @@
+# Netflix Has Officially Found Its Reacher Replacement (New Season Now Streaming)
+
+Streaming TV, The Night Agent, Reacher
+
+Fri, 20 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/night-agent-season-3-netflix-reacher-replacement/
+
+It's not every day that a show like Reacher comes along, but Netflix has established its own version of the action-thriller hit with a similar format.
+---------
+
+# The Walking Dead Peaked With the Best Episode in Zombie TV History
+
+TV, The Walking Dead, Horror, Zombie
+
+Fri, 20 Feb 2026 23:50:12 GMT
+
+https://www.cbr.com/the-walking-dead-best-episode-no-way-out/
+
+As this episode of The Walking Dead celebrates its tenth anniversary, it deserves recognition as the greatest episode in zombie television history.
+---------
+
+# 8 Unresolved Movie Cliffhangers That Make Fans Furious
+
+Movies, District 9, The Italian Job
+
+Fri, 20 Feb 2026 23:40:12 GMT
+
+https://www.cbr.com/worst-unresolved-movie-cliffhangers-list/
+
+These movies end on massive cliffhangers that have never been fixed--and probably never will be.
+---------
+
+# Tracker Season 3's Return Could Raise the Stakes Greatly For Justin Hartley
+
+TV, Tracker, CBS
+
+Fri, 20 Feb 2026 23:30:13 GMT
+
+https://www.cbr.com/tracker-season-3-justin-hartley-new-era/
+
+Tracker Season 3 is finally coming back and could see Justin Hartley in a new type of danger fans won't expect.
+---------
+
+# Awesome Cartoons Only 2000s Kids Will Remember
+
+TV, Teen Titans, Avatar: The Last Airbender, Kim Possible, cartoons
+
+Fri, 20 Feb 2026 23:29:55 GMT
+
+https://www.cbr.com/awesome-cartoons-2000s/
+
+2000s kids grew up with such incredible shows, like Dexter's Laboratory and Kim Possible, even now they remember them clearly
+---------
+
+# 5 Classic Transformers Anime No One Remembers
+
+Anime, Transformers
+
+Fri, 20 Feb 2026 23:15:52 GMT
+
+https://www.cbr.com/best-transformers-classic-anime-fans-forgot/
+
+The Transformers franchise has been around so long and garnered so much success that a few classic Transformers anime have already been forgotten.
+---------
+
+# Brendan Fraser's Rental Family Tops Hulu's US Movie Charts
+
+Movies
+
+Fri, 20 Feb 2026 23:02:31 GMT
+
+https://www.cbr.com/in-just-1-day-brendan-frasers-87-rt-japanese-drama-hits-no-1-on-hulu-in-the-us/
+
+Brendan Fraser's latest film, Rental Family, quickly climbed to the top spot on Hulu's list of most popular movies in the United States.
+---------
+
+# These 10 Great Sitcoms Still Hold Up Surprisingly Well
+
+TV, Sitcom, The Golden Girls, Parks and Recreation, The Fresh Prince of Bel-Air
+
+Fri, 20 Feb 2026 23:46:13 GMT
+
+https://collider.com/tv-sitcoms-hold-up-surprisingly-well/
+
+Sitcoms come and go, but certain shows surprisingly hold up over time, like Parks and Recreation, The Golden Girls, and The Fresh Prince of Bel-Air.
+---------
+
+# 10 Most Criminally Overlooked 'The Office' Episodes, Ranked
+
+TV, The Office, Steve Carell, John Krasinski, Comedy
+
+Fri, 20 Feb 2026 23:44:12 GMT
+
+https://collider.com/the-office-underrated-episodes-ranked/
+
+Revisit The Office's most underrated and almost forgotten episodes that deserve another look, from "The Fire" to "Customer Loyalty."
+---------
+
+# Taylor Sheridan Challenges George R.R. Martin to a Western Duel on Streaming
+
+TV News, Taylor Sheridan, Landman, George R.R. Martin, Dark Winds
+
+Fri, 20 Feb 2026 23:40:29 GMT
+
+https://collider.com/taylor-sheridan-landman-2-part-western-overtakes-george-r-r-martin-crime-series-dark-winds-streaming-success-prime-video-february-2026/
+
+Taylor Sheridan's Landman is outpacing George R.R. Martin's Western series Dark Winds on a surprising streaming platform. Read on for more.
+---------
+
+# Russell Crowe’s World War II-Era Legal Thriller Becomes a Streaming Favorite
+
+Movie News, Nuremberg, Russell Crowe, War, Rami Malek
+
+Fri, 20 Feb 2026 23:30:13 GMT
+
+https://collider.com/russell-crowe-world-war-2-legal-thriller-nuremberg-streaming-success-prime-video-february-2026/
+
+Russell Crowe’s WW2 film Nuremberg may have underwhelmed at the box office, but it’s now a Top 10 title on Prime Video with strong audience scores.
+---------
+
+# Rock Legend Eric Clapton Founded Two Iconic Bands That Only Released One Album
+
+Music Features, Eric Clapton and Steve Winwood: Live from Madison Square Garden, Music, Rock
+
+Fri, 20 Feb 2026 23:15:13 GMT
+
+https://collider.com/eric-clapton-iconic-bands-released-one-album/
+
+Blind Faith and Derek and the Dominos both released albums one year apart.
+---------
+
+# 7 Years Later, HBO's Award-Winning Historical Epic Conquers a New Streaming Home
+
+TV News, Craig Mazin, Chernobyl, Drama, Apple TV
+
+Fri, 20 Feb 2026 23:13:45 GMT
+
+https://collider.com/chernobyl-last-of-us-creator-breakthrough-emmy-darling-streaming-success-apple-tv-february-2026/
+
+Chernobyl, the critically acclaimed HBO miniseries about the 1986 nuclear disaster, has found renewed success on Apple TV.
+---------
+
 # 20 Funniest The Far Side Comics That Have Aged Like Fine Wine
 
 Comics, The Far Side
