@@ -11,7 +11,7 @@ import json
 # ────────────────────────────────────────────────
 # Настройки Groq
 GROQ_API_KEY = os.getenv("GROQ_API_KEY")
-GROQ_MODEL = "llama-3.1-70b-versatile"  # или "llama-3.3-70b-tool-use", "mixtral-8x7b-32768" и т.д.
+GROQ_MODEL = "llama-3.1-70b-versatile"  # можно заменить на "llama-3.3-70b-tool-use", "mixtral-8x7b-32768" и т.д.
 
 def get_groq_summary(text: str) -> str | None:
     if not GROQ_API_KEY:
@@ -25,7 +25,7 @@ def get_groq_summary(text: str) -> str | None:
 Сохрани ключевые факты, анализ, теории, имена актёров/режиссёров/режиссёра.
 Не добавляй ничего от себя, не придумывай. Пиши увлекательно, без спойлеров, если они не критичны.
 Текст статьи:
-{text[:100000]}"""  # обрезаем, если статья огромная
+{text[:100000]}"""
 
     payload = {
         "model": GROQ_MODEL,
@@ -55,15 +55,48 @@ def extract_article(url: str, output_dir: Path):
     print(f"→ Processing: {url}")
     
     try:
-        downloaded = trafilatura.fetch_url(url)
-        if not downloaded:
-            print("  Failed to download")
-            return None, None
+        # Кастомные заголовки — часто решает проблему блокировки
+        headers = {
+            "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/132.0.0.0 Safari/537.36",
+            "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,image/avif,image/webp,*/*;q=0.8",
+            "Accept-Language": "en-US,en;q=0.5",
+            "Accept-Encoding": "gzip, deflate, br",
+            "Connection": "keep-alive",
+            "Upgrade-Insecure-Requests": "1"
+        }
 
+        # Пробуем через trafilatura с кастомными параметрами
+        downloaded = trafilatura.fetch_url(
+            url,
+            decode=True,
+            requests_kwargs={
+                "headers": headers,
+                "timeout": (10, 20),   # connect timeout 10s, read timeout 20s
+                "allow_redirects": True,
+                "verify": True
+            }
+        )
+
+        if not downloaded:
+            print("  trafilatura не смог скачать → пробуем requests напрямую...")
+            try:
+                r = requests.get(url, headers=headers, timeout=20, allow_redirects=True)
+                print(f"  requests статус: {r.status_code} {r.reason}")
+                if r.status_code == 200:
+                    downloaded = r.text
+                else:
+                    print(f"  requests тоже не прошёл: {r.status_code}")
+                    return None, None
+            except Exception as req_e:
+                print(f"  requests ошибка: {type(req_e).__name__} → {req_e}")
+                return None, None
+
+        # Метаданные
         metadata = trafilatura.extract_metadata(downloaded)
         title = getattr(metadata, 'title', "No title") if metadata else "No title"
         pub_date = getattr(metadata, 'date', None) or datetime.utcnow().strftime("%Y-%m-%d")
 
+        # Текст
         text = trafilatura.extract(
             downloaded,
             include_comments=False,
@@ -74,10 +107,10 @@ def extract_article(url: str, output_dir: Path):
         )
 
         if not text or len(text.strip()) < 150:
-            print("  Text too short → fallback")
+            print("  Текст слишком короткий → fallback")
             text = trafilatura.extract(downloaded, no_fallback=False)
             if not text or len(text.strip()) < 100:
-                print("  Even fallback failed")
+                print("  Даже fallback не дал нормальный текст")
                 return None, None
 
         # ─── Сохраняем оригинал ───────────────────────────────────────
@@ -130,7 +163,7 @@ def extract_article(url: str, output_dir: Path):
         }
 
     except Exception as e:
-        print(f"  Error: {type(e).__name__}: {e}")
+        print(f"  Общая ошибка: {type(e).__name__}: {e}")
         return None, None
 
 
