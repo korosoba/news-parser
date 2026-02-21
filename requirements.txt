@@ -1,0 +1,3 @@
+python-telegram-bot==20.8          # или 21.x, если используешь новую версию
+requests==2.32.3
+python-dotenv==1.0.1
