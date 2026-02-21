@@ -95,7 +95,7 @@ def extract_article(url: str, output_dir: Path):
                     preview_text = text
 
                 response = client.chat.completions.create(
-                    model="llama-3.1-70b-versatile",      # или llama-3.3-70b, mixtral-8x7b-32768, gemma2-27b-it — подбери по цене/качеству
+                    model="llama-3.3-70b-versatile",      # или llama-3.3-70b, mixtral-8x7b-32768, gemma2-27b-it — подбери по цене/качеству
                     messages=[
                         {
                             "role": "system",
