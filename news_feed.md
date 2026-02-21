@@ -1,3 +1,388 @@
+# Forgotten 95% RT Netflix Action Thriller Shows Reacher How It’s Done
+
+Movies, Reacher, Rebel Ridge
+
+Sat, 21 Feb 2026 04:30:18 GMT
+
+https://screenrant.com/rebel-ridge-reacher-netflix-lesson/
+
+Netflix is the home of one incredible action thriller that not only boasts a 95% Rotten Tomatoes but also serves as lesson for Prime Video’s Reacher.
+---------
+
+# Apple TV Elevates Its Fantasy Game With A New Shared Universe
+
+Streaming TV, Brandon Sanderson, Apple TV, Sci-Fi
+
+Sat, 21 Feb 2026 03:46:19 GMT
+
+https://screenrant.com/apple-tv-cosmere-universe-fantasy-universe/
+
+After setting up two successful universes, Apple TV is now all set to pave the way for another exciting one and completely level up its fantasy game.
+---------
+
+# Trending 4-Part Cyberpunk Masterpiece Still Feels Ahead Of Its Time
+
+Classic TV, Mr. Robot
+
+Sat, 21 Feb 2026 03:00:36 GMT
+
+https://screenrant.com/mr-robot-sci-fi-thriller-masterpiece/
+
+An epic 4-part cyberpunk masterpiece is now trending several years after its end, and it is hard not to see how it still feels ahead of its time.
+---------
+
+# Watch The Great Wuxia Romance Film Michelle Yeoh Made 7 Years Before Crouching Tiger, Hidden Dragon
+
+Classic Movies, Butterfly and Sword
+
+Sat, 21 Feb 2026 03:00:36 GMT
+
+https://screenrant.com/butterfly-and-sword-wuxia-romance-movie-michelle-yeoh/
+
+Michelle Yeoh starred in a quality wuxia full of romance and over-the-top sword-fighting seven years before Crouching Tiger, Hidden Dragon.
+---------
+
+# Avengers: Armageddon Kicks Off A New Marvel Era In 2026
+
+Marvel Comics, The Avengers, Marvel
+
+Sat, 21 Feb 2026 01:30:19 GMT
+
+https://screenrant.com/avengers-new-era-2026-marvel-comics-armageddon-details/
+
+Marvel officially confirms how the Avengers' new event series will kick off, marking the beginning of a new era for Earth's Mightiest Heroes.
+---------
+
+# Redux Redux Ending Explained: How The Multiverse Works And Why Irene Is Traveling Through It
+
+Movies, Redux Redux
+
+Sat, 21 Feb 2026 01:20:19 GMT
+
+https://screenrant.com/redux-redux-ending-explained/
+
+Redux Redux is a clever fusion of a revenge thriller and a multiverse story, with an emotionally raw tale about grief and vengeance underlying it all.
+---------
+
+# Tom Hardy's Underappreciated Capone Gangster Role Leaving Netflix
+
+Movies, Capone
+
+Sat, 21 Feb 2026 01:15:19 GMT
+
+https://screenrant.com/tom-hardy-capone-leaving-netflix-gangster-movie/
+
+Tom Hardy is a specialist in gritty gangster roles, but this sublime performance has slipped under the radar. Don't miss it before it leaves Netflix.
+---------
+
+# The Witcher 3's Best Romance Isn't Triss Or Yen, Says Geralt Actor
+
+Gaming
+
+Sat, 21 Feb 2026 01:00:02 GMT
+
+https://screenrant.com/witcher-3-best-romance-geralt-actor/
+
+Doug Cockle has an answer to the long-running Witcher 3 debate, but there's one character that he'd place above both of the classic favorites.
+---------
+
+# Pokémon Royal Sapphire Is The Ultimate Gen 3 Experience
+
+Gaming, Pokemon, Nintendo
+
+Sat, 21 Feb 2026 01:00:02 GMT
+
+https://screenrant.com/url/pokemon-royal-sapphire-gen-3-fan-remake/
+
+Pokémon Royal Sapphire is an ambitious ROM hack that transforms the original game whilst retaining the charm that made it so great in the first place.
+---------
+
+# DC Is Redeeming Batman & Catwoman's Romance With a Major Redesign After 86 Years
+
+DC Comics, Catwoman, Batman
+
+Sat, 21 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/catwoman-major-makeover-absolute-redesign-batman-love-interest/
+
+After decades of heartbreak and near-misses, DC is finally giving Batman and Catwoman the fresh start fans have waited 86 years to see.
+---------
+
+# Netflix's Godless Outshines Taylor Sheridan's Yellowstone Universe
+
+TV, Godless
+
+Sat, 21 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/netflix-godless-better-taylor-sheridans-yellowstone/
+
+Taylor Sheridan's Yellowstone universe has become a benchmark for the Western genre, but Netflix's miniseries is arguably better.
+---------
+
+# 10 Perfect Anime Miniseries With No Bad Episodes
+
+Anime, Erased, Terror in Resonance, FLCL, Ping Pong The Animation, Puella Magi Madoka Magica, Odd Taxi, Cyberpunk: Edgerunners, Devilman Crybaby, A Place Further Than the Universe, Death Parade
+
+Sat, 21 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/best-short-anime-perfect-beginning-to-end/
+
+In only a handful of hard-hitting episodes, some of the greatest miniseries proved that anime doesn't need a movie or a decade-long run to win big.
+---------
+
+# John Travolta's Early-2000s Cyber Thriller Arrived Before the World Was Ready (It Is, Now)
+
+Movies, Swordfish
+
+Sat, 21 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/john-travolta-swordfish-cyber-thriller-ahead-of-its-time/
+
+Although flawed, there's no cyber heist thriller quite like the one John Travolta and an all-star cast made back in 2001.
+---------
+
+# 5 Sci-Fi Games That Are 10/10, No Notes
+
+Games, Sci-Fi, Video Games
+
+Sat, 21 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/best-sci-fi-games-no-notes/
+
+The best sci-fi games let players dive headfirst into the future.
+---------
+
+# Official Dragon Ball Release Gives the Manga Its Original Colors Back After 40 Years
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sat, 21 Feb 2026 04:09:18 GMT
+
+https://www.cbr.com/dragon-ball-rare-shonen-jump-release-draft-art-color-reveal/
+
+A classic piece of original Dragon Ball art has finally received its proper coloring, 40 years after publication.
+---------
+
+# Netflix’s Collateral Perfected the One-Night Binge
+
+TV, Thriller, Netflix, Collateral
+
+Sat, 21 Feb 2026 04:00:13 GMT
+
+https://www.cbr.com/netflix-collateral-perfect-one-night-binge/
+
+With a less than four-hour runtime, Netflix's Collateral proves that short crime thrillers pack more impact than overdrawn limited series.
+---------
+
+# School Spirits Season 3: Alfred Van Heidt's Body Snatching Revealed
+
+TV, School Spirits, Paramount Plus
+
+Sat, 21 Feb 2026 03:45:13 GMT
+
+https://www.cbr.com/school-spirits-dr-hunter-price-possession-reveal-fallout/
+
+In School Spirits Season 3, Episode 6, Alfred Van Heidt is revealed as the ghost who stole Kyle's body, raising new questions.
+---------
+
+# Into the Badlands Climbs to No. 6 on Apple TV U.S. VOD Rankings
+
+TV, Into the Badlands
+
+Sat, 21 Feb 2026 03:24:57 GMT
+
+https://www.cbr.com/into-the-badlands-dystopian-action-success-apple-pvod-february-2026/
+
+Seven years after its cancellation, Into the Badlands has reached the No. 6 spot on Apple TV's U.S. video-on-demand series rankings.
+---------
+
+# 10 Underrated Mecha Anime That Are Almost as Good as Evangelion (And Way Less Confusing)
+
+Anime, Neon Genesis Evangelion, mecha
+
+Sat, 21 Feb 2026 03:15:56 GMT
+
+https://www.cbr.com/underrated-mecha-anime-less-confusing-evangelion/
+
+Evangelion might still be one of the most revered Mecha anime, but there are others just as deserving of praise that aren't nearly as confusing.
+---------
+
+# Steam Users Can Claim Free Platforming Game Until February 24
+
+Games, Steam
+
+Sat, 21 Feb 2026 03:10:13 GMT
+
+https://www.cbr.com/steam-free-platformer-games-february-2026-brother-save-him/
+
+A hardcore platformer is free on Steam as part of a limited-time deal.
+---------
+
+# Robert De Niro’s Forgotten Crime Masterpiece Finds a New Streaming Home
+
+Movie News, Robert De Niro, Once Upon a Time in America, Joe Pesci, Sergio Leone
+
+Sat, 21 Feb 2026 02:45:14 GMT
+
+https://collider.com/robert-de-niro-crime-masterpiece-once-upon-a-time-in-america-streaming-tubi-march-2026/
+
+Robert De Niro’s underperforming gangster epic, Once Upon a Time in America, has found a new free streaming home. Find out more here.
+---------
+
+# ‘The Pitt’s Most Brutal Patient Case After 6 Intense Hours Is Impossible To Look Away From
+
+TV Features, The Pitt, Katherine LaNasa, HBO Max
+
+Sat, 21 Feb 2026 02:26:13 GMT
+
+https://collider.com/the-pitt-season-2-episode-7-dana-sexual-assault-patient-case/
+
+The Pitt Season 2 Episode 7 delves into the sensitive topic of sexual assault with a realistic and empathetic portrayal.
+---------
+
+# This $6M TV Pilot Accidentally Created a Sci-Fi Franchise That Lasted Nearly 30 Years
+
+TV Features, Stargate SG-1, Stargate, Netflix, Prime Video
+
+Sat, 21 Feb 2026 01:55:12 GMT
+
+https://collider.com/stargate-sg-1-pilot-30-year-sci-fi-franchise/
+
+Stargate SG-1 sunk $6 million into its pilot episode, and the result was a 30 year franchise spanning different shows and movies.
+---------
+
+# HBO Max Cuts Josh Brolin’s 81-Minute Supernatural Western From Its Library
+
+Movie News, Jonah Hex, HBO Max, Josh Brolin, Megan Fox
+
+Sat, 21 Feb 2026 01:45:13 GMT
+
+https://collider.com/jonah-hex-josh-brolin-81-minute-supernatural-western-leaving-hbo-max-february-2026/
+
+HBO Max is removing Jonah Hex, Josh Brolin's 81-minute sci-fi Western that flopped at the box office 16 years ago. Here's how long you have to watch.
+---------
+
+# One of Stephen King's Weirdest Horror Adaptations Is About to Leave Netflix
+
+Movie News, Stephen King, Christine, Netflix, John Carpenter
+
+Sat, 21 Feb 2026 01:17:42 GMT
+
+https://collider.com/christine-stephen-king-horror-adaptation-leaving-netflix-streaming-march-2026/
+
+A chilling Stephen King adaptation is leaving Netflix soon, taking its lean 110-minute terror and cult-classic level of dread with it.
+---------
+
+# The Most Bingeable Anime of All Time Is Now Streaming for Free 14 Years Later
+
+TV News, RWBY, RWBY Chibi, Anime, Action
+
+Sat, 21 Feb 2026 01:14:38 GMT
+
+https://collider.com/rwby-bingeable-anime-series-free-streaming-pluto-tv-february-2026/
+
+One of the greatest anime franchises ever is streaming free this weekend, with Pluto TV hosting a massive marathon for fans. Read on for more.
+---------
+
+# Will Smith's Fantasy Remake Is a Streaming Hit While Sequel Remains in Limbo
+
+Movie News, Will Smith, Aladdin, Disney, Fantasy
+
+Sat, 21 Feb 2026 01:05:48 GMT
+
+https://collider.com/aladdin-remake-will-smith-fantasy-spectacle-streaming-success-disney-plus-february-2026/
+
+A long-overlooked Will Smith fantasy spectacle is suddenly surging on streaming after 7 years. Read on for more details.
+---------
+
+# Tom Hardy and Daniel Craig's Crime Caper Is Leaving Streaming Ahead of Jason Statham's Reboot
+
+Movie News, Layer Cake, Daniel Craig, Tom Hardy, Prime Video
+
+Sat, 21 Feb 2026 00:48:53 GMT
+
+https://collider.com/layer-cake-tom-hardy-daniel-craig-cult-classic-ahead-of-jason-statham-reboot-leaving-streaming-prime-video-march-2026/
+
+Daniel Craig's cult classic crime thriller, Layer Cake, co-starring Tom Hardy, is scheduled to leave Prime Video soon. Read on for more details.
+---------
+
+# 3 Years After Killing the Franchise, Blumhouse's Hated Horror Reboot Is a Quiet Streaming Hit
+
+Movie News, The Exorcist: Believer, David Gordon Green, Horror, Leslie Odom Jr.
+
+Sat, 21 Feb 2026 00:43:32 GMT
+
+https://collider.com/the-exorcist-believer-failed-horror-revival-streaming-success-netflix-february-2026/
+
+The failed franchise-starter and horror reboot, The Exorcist: Believer, is having a resurgence on streaming. Find out more here.
+---------
+
+# 3 Best Shows To Binge On Prime Video This Weekend (Feb 21-22)
+
+TV, Prime Video, 56 Days, The Terminal List: Dark Wolf, Invincible
+
+Sat, 21 Feb 2026 00:43:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-february-20/
+
+56 Days, Invincible, and The Terminal List: Dark Wolf make up our list of the best Prime Video shows to watch the weekend of February 20, 2026.
+---------
+
+# 7 Prime Video Action Thriller Series That Are Better Than 'Reacher'
+
+TV Lists, Reacher, Prime Video
+
+Sat, 21 Feb 2026 03:00:32 GMT
+
+https://movieweb.com/prime-video-thriller-shows-better-reacher/
+
+'Reacher' Season 4, starring Alan Ritchson, is coming soon, but Amazon Prime Video has other action thriller TV shows that fans will like.
+---------
+
+# 'Marty Supreme' Furthers Its Box-Office Record Heading Towards Oscars
+
+Movie News, Marty Supreme, Everything Everywhere All at Once, A24, Box Office Milestones
+
+Sat, 21 Feb 2026 02:30:17 GMT
+
+https://movieweb.com/marty-supreme-box-office-a24-record/
+
+The question remains whether the Josh Safdie movie will take home as much gold as 'Everything Everywhere All at Once.'
+---------
+
+# 10 Devastating Vietnam War Movies Better Than 'Apocalypse Now'
+
+Movie Lists, War
+
+Sat, 21 Feb 2026 02:00:19 GMT
+
+https://movieweb.com/vietnam-war-movies-better-apocalypse-now/
+
+Directed by Francis Ford Coppola. 'Apocalypse Now' is often regarded as the greatest Vietnam War movie, but these other movies are arguably better.
+---------
+
+# Divisive Hard Sci-Fi Revival 'Alien: Earth' Is the Perfect 8-Part Weekend Binge
+
+Features, Alien: Earth, Hulu, Streaming Recommendations
+
+Sat, 21 Feb 2026 01:30:17 GMT
+
+https://movieweb.com/alien-earth-streaming-hulu-february-2026/
+
+Now that debates have cooled down on the series, it's time to dive back into the impressive experience.
+---------
+
+# 'Y: The Last Man' Was One of the Most Ambitious Sci-fi Series of the Decade
+
+Features, Y: The Last Man, Cultural Reassessment, Hulu
+
+Sat, 21 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/y-the-last-man-tv-show-hulu-streaming-deleted/
+
+From creative differences to the pandemic, the series was doomed almost from the start.
+---------
+
 # Netflix Has Officially Found Its Reacher Replacement (New Season Now Streaming)
 
 Streaming TV, The Night Agent, Reacher
