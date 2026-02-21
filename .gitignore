@@ -1,0 +1,13 @@
+# Секреты и локальные настройки
+.env
+korosoba.env
+*.env
+
+# Временные файлы Python
+__pycache__/
+*.pyc
+*.pyo
+*.pyd
+
+# Временные файлы бота
+temp_*.txt
