@@ -45,6 +45,12 @@ jobs:
           echo "${{ inputs.urls }}" > urls.txt
           cat urls.txt
 
+      - name: Отладка переменных окружения перед запуском Python
+        run: |
+          echo "GROQ_API_KEY из secrets (маскировано): ${{ secrets.GROQ_API_KEY != '' && 'есть' || 'нет' }}"
+          echo "Длина GROQ_API_KEY в bash: ${#GROQ_API_KEY}"
+          echo "GROQ_API_KEY первые 4 символа (если есть): ${GROQ_API_KEY:0:4}"
+
       - name: Run extraction + summarization
         if: steps.check_key.outputs.has_key == 'true'
         run: python extract_article.py $(cat urls.txt | tr '\n' ' ')
