@@ -1,3 +1,333 @@
+# Mortal Kombat Legends: Scorpion's Revenge Crowned Best Movie In Franchise
+
+Movies, Mortal Kombat Legends: Scorpion's Revenge, Recommendation
+
+Sat, 21 Feb 2026 15:41:18 GMT
+
+https://screenrant.com/best-mortal-kombat-movie-scorpions-revenge-recommendation/
+
+Mortal Kombat's most famous movies came out in 1995 and 2021, yet the best film of them all is a little-known release from 2020.
+---------
+
+# Netflix’s 3-Season Post-Apocalyptic Sci-Fi Show Still Deserves A Watch 10 Years Later
+
+TV, Travelers
+
+Sat, 21 Feb 2026 15:31:18 GMT
+
+https://screenrant.com/netflix-post-apocalyptic-sci-fi-show-travelers-must-watch/
+
+One bold move in the past could change the future forever in Netflix's acclaimed sci-fi hidden gem, with a clever premise and strong performances.
+---------
+
+# Bloodborne "PC Port" Leaves Gamers Completely Floored
+
+Gaming, Bloodborne
+
+Sat, 21 Feb 2026 15:31:18 GMT
+
+https://screenrant.com/bloodborne-pc-port-unofficial-fan-reaction/
+
+Discover the updated shadPS4 emulator that allows fans to unofficially play Bloodborne on PC.
+---------
+
+# CIA's Necar Zadegan Compares Her Time On NCIS: New Orleans To Her New Mission In The Dick Wolf Universe
+
+Network TV, CIA
+
+Sat, 21 Feb 2026 15:30:07 GMT
+
+https://screenrant.com/cia-premiere-necar-zadegan-nikki-reynard-ncis-comparison-interview/
+
+CIA star Necar Zadegan breaks down what makes the new series different from FBI, compares it to NCIS, and teases her dynamic with Tom Ellis' Colin.
+---------
+
+# Walton Goggins' Early Roles In The Next Karate Kid & Major League: Back To The Minors
+
+Movies, Walton Goggins, Explainer
+
+Sat, 21 Feb 2026 15:15:19 GMT
+
+https://screenrant.com/walton-goggins-forgotten-early-roles-major-league-karate-kid/
+
+Walton Goggins is known for roles in great franchises like the MCU and The White Lotus but his early roles were in some forgettable sequels.
+---------
+
+# 6 Secret Codes for Hilary Duff 2026 Tour Tickets (Lucky Me Tour)
+
+Music, Hilary Duff, Pop
+
+Sat, 21 Feb 2026 15:00:22 GMT
+
+https://screenrant.com/hilary-duff-lucky-me-tour-2026-presale-codes/
+
+Grab active presale codes for Hilary Duff’s 2026 Lucky Me Tour. Use codes like CHORD and LUCKY to secure tickets before the general public sell-out!
+---------
+
+# Netflix's The Night Agent's Ending Gets Compared To The Shield
+
+TV, The Night Agent
+
+Sat, 21 Feb 2026 15:00:19 GMT
+
+https://screenrant.com/the-night-agent-endgame-the-shield-comparison-shawn-ryan/
+
+EXCLUSIVE: The creator of Netflix's hit crime thriller series reveals his plans for the show and how it's similar to The Shield.
+---------
+
+# 10 Perfect Crunchyroll Anime to Binge After Wrapping Solo Leveling
+
+Anime, Solo Leveling
+
+Sat, 21 Feb 2026 15:00:19 GMT
+
+https://screenrant.com/perfect-crunchyroll-anime-to-watch-after-solo-leveling/
+
+Unsure what to watch after Solo Leveling? Check out these 10 must-see Crunchyroll anime series for fast-paced action and gripping storylines.
+---------
+
+# The Walking Dead Is Finally Solving Its Long-Running Ending Problem
+
+Classic TV, The Walking Dead
+
+Sat, 21 Feb 2026 15:00:19 GMT
+
+https://screenrant.com/walking-dead-franchise-spinoffs-ending-closure/
+
+The Walking Dead has faced many problems throughout the franchise's history, but after nearly a decade, it may finally be solving its greatest issue.
+---------
+
+# Brand New Day is Marvel’s Best Shot at Ending a 19-Year-Old Spider-Man Curse
+
+Comics, Spider-Man: Brand New Day
+
+Sat, 21 Feb 2026 15:00:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-marvel-movie-curse-multiple-villains/
+
+Spider-Man: Brand New Day will be Marvel and Sony's third attempt at a particular story approach that has cursed each iteration of the character.
+---------
+
+# Wednesday Season 3 Reportedly Gets Major Filming Update
+
+TV, Wednesday
+
+Sat, 21 Feb 2026 15:48:53 GMT
+
+https://www.cbr.com/wednesday-season-3-filming-update/
+
+With some luck, the wait in between Seasons 2 and 3 won't be as long.
+---------
+
+# Why Bruce Wayne’s Angst Is Worse Than Superman’s Optimism
+
+Comics, DC Comics, Batman, Superman
+
+Sat, 21 Feb 2026 15:30:12 GMT
+
+https://www.cbr.com/bruce-wayne-angst-more-damaging-than-supermans-idealism/
+
+Many have claimed that Superman is too much a boy scout to be interesting, but Bruce Wayne's brooding nature is just as tiresome.
+---------
+
+# It's Officially the End of an Era for Sherlock Holmes
+
+Movies, Sherlock Holmes, Mystery
+
+Sat, 21 Feb 2026 15:20:11 GMT
+
+https://www.cbr.com/sherlock-holmes-modern-movie/
+
+The next Sherlock Holmes movie must follow the example of several TV adaptations before it and update the material in this unexpected way.
+---------
+
+# Frieren Is Officially the Saddest Shonen Anime of the Decade
+
+Anime, Frieren: Beyond Journey's End
+
+Sat, 21 Feb 2026 15:15:12 GMT
+
+https://www.cbr.com/best-new-gen-shonen-anime-frieren-beyond-journeys-end/
+
+More than just an adventure, Frieren: Beyond Journey's End stands as one of the most moving anime of the 2020s.
+---------
+
+# 30 Years Later, Scream Hits No. 9 on Streaming Charts Ahead of Highly Anticipated Sequel
+
+Movies, Scream
+
+Sat, 21 Feb 2026 15:07:59 GMT
+
+https://www.cbr.com/scream-classic-slasher-horror-streaming-success-paramount-plus-february-2026/
+
+As Scream 7 prepares to hit theaters, audiences around the world can't get enough of the original movie— making it one of the most streamed worldwide.
+---------
+
+# The 1 Rockford Files Detail Everyone Gets Wrong 52 Years Later
+
+TV, TV Legends Revealed, The Rockford Files
+
+Sat, 21 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/rockford-files-james-garner-origin-series-roy-huggins-stephen-cannell/
+
+In a brand-new TV Legends Revealed, discover how fans are mistaken about how the iconic TV drama, The Rockford Files, was created
+---------
+
+# Netflix’s 6-Part Spy Thriller Is the Streaming Hit Nobody Predicted
+
+TV News, Reacher, Unfamiliar, The Night Manager, Slow Horses
+
+Sat, 21 Feb 2026 15:49:12 GMT
+
+https://collider.com/netflix-spy-thriller-unfamiliar-streaming-success-february-2026/
+
+Netflix’s easy-to-binge 6-part spy thriller, Unfamiliar, is becoming a must-watch hit on streaming. Here’s what you need to know.
+---------
+
+# This 3-Part Action Thriller Just Left Netflix To Become a $185 Weekend Binge
+
+TV Features, Warrior, HBO Max, Andrew Koji, Action
+
+Sat, 21 Feb 2026 15:41:12 GMT
+
+https://collider.com/warrior-tv-series-action-thriller-hbo-streaming/
+
+Warrior, which just left Netflix and can be streamed on HBO Max, blends classic action and drama against the backdrop of a criminal underworld.
+---------
+
+# Bruce Willis' Forgotten Crime Thriller With an 'Equalizer' Icon Locks in a New Streaming Home
+
+Movie News, Bruce Willis, The Siege, STARZ, Denzel Washington
+
+Sat, 21 Feb 2026 15:40:12 GMT
+
+https://collider.com/bruce-willis-denzel-washington-the-siege-crime-thriller-streaming-starz-march-2026/
+
+Bruce Willis's 1998 crime thriller The Siege, also starring Denzel Washington, is about to be available on a new streamer. Find out where below.
+---------
+
+# 'Yellowstone' Fans Need To Watch This 60-Year-Old Western With a Horror Icon
+
+TV Features, Western, Iron Horse, Ellen Burstyn, Yellowstone
+
+Sat, 21 Feb 2026 15:38:12 GMT
+
+https://collider.com/yellowstone-fans-watch-iron-horse-western-series-ellen-burstyn/
+
+The overlooked, short-lived Western series Iron Horse, starring Dale Robertson and Ellen Burstyn, is the perfect binge for Yellowstone fans.
+---------
+
+# 10 Great American '70s Shows That Could Never Be Made Today
+
+TV, 1970s, The Dukes of Hazzard, Charlie's Angels, All In The Family
+
+Sat, 21 Feb 2026 15:33:12 GMT
+
+https://collider.com/70s-shows-could-never-be-made-today/
+
+While we loved these series in the '70s, iconic shows like Sanford and Son, Charlie's Angels, and The Dukes of Hazzard could never be made today.
+---------
+
+# Guy Ritchie’s World War II Gamble Is on Borrowed Time on Streaming
+
+Movie News, The Ministry of Ungentlemanly Warfare, Guy Ritchie, Henry Cavill, Alan Ritchson
+
+Sat, 21 Feb 2026 15:20:12 GMT
+
+https://collider.com/ministry-of-ungentlemanly-warfare-guy-ritchie-ww2-gamble-leaving-starz-march-2026/
+
+Guy Ritchie's The Ministry of Ungentlemanly Warfare, starring a stacked cast led by Henry Cavill, won't be available to stream for much longer.
+---------
+
+# Netflix’s Hard-Hitting 3-Part Conspiracy Thriller Surges on Streaming
+
+TV News, Netflix, The Night Agent, Gabriel Basso, Reacher
+
+Sat, 21 Feb 2026 15:16:12 GMT
+
+https://collider.com/the-night-agent-3-part-reacher-replacement-netflix-streaming-success-february-2026/
+
+Netflix’s 3-part action thriller, The Night Agent, is making the wait for Reacher Season 4 feel shorter.
+---------
+
+# 8 Best Miniseries Everyone Has Been Sleeping On
+
+TV, Devs, The Underground Railroad, Mrs. Davis, TV Miniseries
+
+Sat, 21 Feb 2026 15:12:12 GMT
+
+https://collider.com/best-miniseries-everyone-sleeping-on/
+
+Devs, I’m a Virgo, Dead Ringers, Mrs. Davis, Scavengers Reign, and more make up our list of miniseries everyone has been sleeping on.
+---------
+
+# 26 Years Ago, Mark Ruffalo’s Breakout Role Came in This Incredible Oscar-Nominated Drama
+
+Movie Features, Mark Ruffalo, You Can Count on Me, Kenneth Lonergan, Laura Linney
+
+Sat, 21 Feb 2026 15:04:15 GMT
+
+https://collider.com/mark-ruffalo-breakout-role-you-can-count-on-me/
+
+Mark Ruffalo’s major breakout performance was in Kenneth Lonegan’s debut, You Can Count on Me, alongside Laura Linney.
+---------
+
+# One of the Greatest Crime Thrillers of All Time Is Heading to Starz
+
+Movie News, Training Day, Denzel Washington, Crime, STARZ
+
+Sat, 21 Feb 2026 15:00:12 GMT
+
+https://collider.com/training-day-denzel-washington-crime-thriller-streaming-starz-march-2026/
+
+One of the greatest crime thrillers of all time, Training Day, will be available to stream on Starz starting March 1. Read on for more details.
+---------
+
+# Glen Powell Proved He Would Be a Star in 2-Part Thriller-Comedy 'Scream Queens'
+
+Features, Glen Powell, Scream Queens, Career Arc Reframe, Streaming Recommendations
+
+Sat, 21 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/scream-queens-glen-powell-breakout-role/
+
+More than a decade ago, Powell showed his comedic and charismatic acting chops.
+---------
+
+# When 'Paradise' Season 2 Releases on Hulu & Full Schedule
+
+Features, Paradise, Hulu
+
+Sat, 21 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/paradise-season-2-release-schedule-hulu/
+
+'Paradise' Season 2 releases on Hulu in February 2026, and the political thriller stars Sterling K. Brown and Shailene Woodley.
+---------
+
+# '28 Years Later' Director Nia DaCosta Explains What The Bone Temple Means
+
+Movie News, 28 Years Later: The Bone Temple, Nia DaCosta
+
+Sat, 21 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/28-years-later-director-nia-dacosta-explainst-bone-temple-meaning/
+
+The filmmaker gives her take on what the titular structure represents.
+---------
+
+# Possible 'Daredevil: Born Again' MCU Crossover Addressed by Showrunner
+
+TV News, Daredevil: Born Again, MCU
+
+Sat, 21 Feb 2026 14:56:42 GMT
+
+https://movieweb.com/mcu-daredevil-born-again-no-crossovers-spiderman-thor-explained/
+
+It's a big old Marvel Cinematic Universe, so could Daredevil be part of it?
+---------
+
 # 10 Best Shows Like Bones
 
 Classic TV, Bones
