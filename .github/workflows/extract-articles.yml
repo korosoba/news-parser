@@ -24,7 +24,7 @@ jobs:
           python-version: '3.12'
 
       - name: Install dependencies
-        run: pip install trafilatura requests
+        run: pip install trafilatura requests groq
 
       - name: Проверка наличия GROQ_API_KEY
         id: check_key
