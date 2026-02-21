@@ -1,3 +1,300 @@
+# There's Only 1 Dragon Ball Z Retcon That Actually Made the Series Better
+
+Anime, Dragon Ball
+
+Sat, 21 Feb 2026 23:30:18 GMT
+
+https://screenrant.com/best-dbz-anime-retcon-broly-character/
+
+As one of the longest-running franchises in anime, it's no surprise that Dragon Ball has a ton of retcons, and there's only one that's actually good.
+---------
+
+# Naruto New Anime's First Look Proves We Don't Need A Remake
+
+Classic TV, Naruto
+
+Sat, 21 Feb 2026 23:30:18 GMT
+
+https://screenrant.com/road-of-naruto-studio-pierrot-modern-animation-remake/
+
+There's been talk of a Naruto remake for years, but Studio Parriot's modern-animation tease proves exactly why this project just isn't needed.
+---------
+
+# Star Trek’s First Horror Episode Is One Of The Worst Of The Original Series
+
+Classic TV, Star Trek: The Original Series
+
+Sat, 21 Feb 2026 23:25:19 GMT
+
+https://screenrant.com/star-trek-horror-episode-catspaw-worst/
+
+The Star Trek franchise has done its fair share of horror episodes, but the very first is one of the worst outings of the entire Original Series.
+---------
+
+# Doctor Who's The War Between The Land And The Sea Death Explained
+
+TV, The War Between the Land and the Sea, Doctor Who
+
+Sat, 21 Feb 2026 23:08:45 GMT
+
+https://screenrant.com/doctor-who-the-war-between-the-land-and-the-sea-death-reason/
+
+The showrunner of one of Doctor Who's popular spinoffs revealed why this specific character had to suffer a heartbreaking fate.
+---------
+
+# Boruto Filler List: Every Episode You Can Skip
+
+Anime, Boruto: Naruto Next Generations
+
+Sat, 21 Feb 2026 23:00:21 GMT
+
+https://screenrant.com/boruto-filler-list-every-episode-skip/
+
+Just like its predecessor Naruto Shippuden, Boruto is filled with many filler episodes that deviate from the main story.
+---------
+
+# DC Reveals A Robin Twist Even Darker Than Jason Todd’s Death
+
+Comics, Batman, Robin, DC Comics
+
+Sat, 21 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/robin-twist-darker-than-jason-todd-death-earth-3-owlman/
+
+A new story from DC reveals a far darker twist for Batman's legacy of Robins, and it's even worse than Jason Todd's death at the hands of the Joker.
+---------
+
+# Ghost In The Shell’s Opening Credits Is The Greatest In Sci-Fi History
+
+Movies, Ghost in the Shell
+
+Sat, 21 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/ghost-in-the-shell-greatest-opening-credits/
+
+The most incredible opening credits sequences in the history of science fiction is from a seminal cyberpunk movie that came out in the mid 1990s.
+---------
+
+# 5 Flash Villains DC Really Needs to Leave Behind ASAP
+
+DC Comics, The Flash
+
+Sat, 21 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/worst-flash-villains-dc-comics-get-rid-of-list/
+
+Not every Flash foe can make it past the finish line.
+---------
+
+# Pokémon Has A Free Roguelike, And It'll Keep You Busy For Months
+
+Gaming, Pokemon, Triple-A Games
+
+Sat, 21 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/pokemon-free-roguelike-pokerogue-download/
+
+The Pokémon series is just about to celebrate its 30th anniversary, and there are tons of celebrations happening, even in the community.
+---------
+
+# Fallout, Resident Evil Collide In Jaw-Dropping New Horror
+
+Gaming, Fallout, Resident Evil
+
+Sat, 21 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/fallout-resident-evil-new-open-world-horror/
+
+Fallout and Resident Evil are two of the most iconic franchises in gaming and ILL combines them both in one convenient package.
+---------
+
+# 5 '80s Slashers Better Than Friday the 13th
+
+Movies, Friday the 13th, Horror
+
+Sat, 21 Feb 2026 23:40:12 GMT
+
+https://www.cbr.com/80s-slashers-better-than-friday-the-13th-list/
+
+Friday the 13th redefined the slasher genre, but the '80s delivered more than a few other slashers that are even better than the original.
+---------
+
+# These Classic 2010s Anime Are Unwatchable Today
+
+Anime, Attack on Titan, No Game No Life, Sword Art Online
+
+Sat, 21 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/classic-2010s-anime-that-are-officially-unwatchable/
+
+Many of what were once considered the greatest anime of the 2010s have since been exposed as complete frauds.
+---------
+
+# Emma Stone's Maniac is the Perfect Netflix Thriller
+
+TV, Maniac
+
+Sat, 21 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/emma-stone-netflix-maniac-streaming-perfection/
+
+The show also stars Jonah Hill alongside Stone as two broken people trying to navigate their grief through an experimental drug trial.
+---------
+
+# Jeffrey Dean Morgan’s 2022 Thriller Fall Hits No. 2 on Netflix’s U.S. Chart
+
+Movies, Fall
+
+Sat, 21 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/jeffrey-dean-morgan-thriller-streaming-success-netflix-february-2026/
+
+The terror in this Jeffrey Dean Morgan film is real enough to make your heart beat out of your chest, and fans can't get enough of it on Netflix.
+---------
+
+# Daredevil: Born Again Creator Explains Why Disney+ Show Doesn’t Crossover With the Larger MCU: 'I'd Be Into It'
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Sat, 21 Feb 2026 22:54:26 GMT
+
+https://www.cbr.com/daredevil-born-again-creator-marvel-crossover/
+
+Co-creator and showrunner Dario Scardapane breaks down the in-universe and behind-the-scenes reasons why Daredevil exists in its own corner of the MCU
+---------
+
+# Netflix's Stellar Award-Winning 7-Part Thriller Miniseries Keeps Getting Better
+
+TV Features, Baby Reindeer, Netflix, Thriller, Emmy Awards
+
+Sat, 21 Feb 2026 23:41:12 GMT
+
+https://collider.com/netflix-baby-reindeer-award-winning-thriller-miniseries-getting-better/
+
+Netflix's Baby Reindeer is a haunting thriller that delves into the dark and complicated sides of humanity through extraordinary performances.
+---------
+
+# Anya Taylor-Joy’s 127-Minute Sci-Fi Epic Is Winning Over ‘The Last of Us’ Fans
+
+Movie News, The Gorge, Anya Taylor-Joy, Apple TV, The Last of Us
+
+Sat, 21 Feb 2026 23:40:12 GMT
+
+https://collider.com/anya-taylor-joy-127-minute-sci-fi-epic-the-gorge-perfect-for-the-last-of-us-fans-apple-tv-streaming-success-february-2026/
+
+Anya Taylor-Joy's 127-minute sci-fi epic with Miles Teller, The Gorge, is winning on streaming thanks to The Last of Us fans. Read on for details.
+---------
+
+# 6 Brutal War Movies That Are Better Than ‘Saving Private Ryan'
+
+Movie, War, Saving Private Ryan, Platoon, Apocalypse Now
+
+Sat, 21 Feb 2026 23:37:12 GMT
+
+https://collider.com/brutal-war-movies-better-than-saving-private-ryan/
+
+From Platoon to Full Metal Jacket to Come and See, these brutal war films are arguably better than Saving Private Ryan.
+---------
+
+# 10 Most Perfect War Thrillers, Ranked
+
+Movie, Inglourious Basterds, Army of Shadows, The Hurt Locker, The Guns Of Navarone
+
+Sat, 21 Feb 2026 23:28:12 GMT
+
+https://collider.com/perfect-war-thrillers-ranked/
+
+There are quite a few war movies that also function as pretty much perfect thrillers, including Inglourious Basterds and Where Eagles Dare.
+---------
+
+# The Cartoon Network Series That Traumatized ’90s Kids Is Heading to Free Streaming
+
+TV News, Courage the Cowardly Dog, Cartoon Network, Tubi, Comedy
+
+Sat, 21 Feb 2026 23:20:12 GMT
+
+https://collider.com/courage-the-cowardly-dog-traumatizing-cartoon-network-show-streaming-tubi-march-2026/
+
+A surreal dark comedy cartoon that spooked an entire generation of kids, Courage the Cowardly Dog, is coming to a free streamer. Find out more.
+---------
+
+# 10 Greatest TV Characters of the 2000s, Ranked
+
+TV, The Office, Arrested Development, The Sopranos, Mad Men
+
+Sat, 21 Feb 2026 23:08:12 GMT
+
+https://collider.com/best-tv-characters-2000s-ranked/
+
+The 2000s boasts some of the most iconic TV characters of all time, including Mad Men's Don Draper and Arrested Development's Lucille Bluth.
+---------
+
+# Val Kilmer Played a Terrific Villain in This Ridiculous 2010 Gem
+
+Movie Features, MacGruber, Val Kilmer, Will Forte, Ryan Phillippe
+
+Sat, 21 Feb 2026 23:05:12 GMT
+
+https://collider.com/macgruber-val-kilmer-villain/
+
+Val Kilmer played a ridiculous and hilarious villain in the comedy gem, MacGruber.
+---------
+
+# Jason Statham’s $200 Million Crowd-Pleasing Blockbuster Has Aged Like Fine Wine
+
+Movie News, Fast & Furious Presents: Hobbs & Shaw, Jason Statham, David Leitch, Dwayne Johnson
+
+Sat, 21 Feb 2026 23:00:12 GMT
+
+https://collider.com/jason-statham-200-million-crowd-pleasing-blockbuster-hobbs-and-shaw-global-streaming-success-february-2026/
+
+Jason Statham's $200 million crowd-pleasing blockbuster with Dwayne Johnson and Idris Elba has become streaming's new sleeper hit.
+---------
+
+# The Most Addictive Korean Dramas
+
+TV Lists, K-Drama
+
+Sat, 21 Feb 2026 23:30:17 GMT
+
+https://movieweb.com/korean-dramas-most-addictive/
+
+If you're looking for a good laugh, cry, or mystery to solve, many K-dramas got you covered. Here are some of the most addictive ones.
+---------
+
+# Netflix's 'One Piece' Teases Tarantino-Style Villains in Season 2
+
+TV News, One Piece, Netflix
+
+Sat, 21 Feb 2026 23:24:24 GMT
+
+https://movieweb.com/netflix-one-piece-tarantino-villains/
+
+More than 30 new characters are coming in Season 2 including Baroque Works.
+---------
+
+# 'Homecoming' Is an Underrated Thriller Series on Prime Video You Must Watch
+
+Features, Homecoming, Cultural Reassessment
+
+Sat, 21 Feb 2026 23:16:17 GMT
+
+https://movieweb.com/homecoming-underrated-amazon-prime-video-thriller/
+
+'Homecoming' is a thriller series on Amazon Prime Video with two seasons and stars Julia Roberts, Stephan James, and Janelle Monáe.
+---------
+
+# 'Star Trek: Starfleet Academy' Just Replaced Christmas With Worlds Day After 60 Years
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Sat, 21 Feb 2026 23:00:17 GMT
+
+https://movieweb.com/star-trek-starfleet-academy-worlds-day/
+
+In six decades, 'Star Trek' has never really explained what happened to Christmas, but 'Starfleet Academy' just provided an answer.
+---------
+
 # Black Mirror Episodes Worthy Of Sequels: Exploring Unresolved Stories
 
 Streaming TV, Black Mirror
