@@ -1,3 +1,322 @@
+# 17 Best Snowy Seeds In Minecraft 1.21
+
+Gaming, Minecraft, PC
+
+Sat, 21 Feb 2026 19:00:19 GMT
+
+https://screenrant.com/best-snowy-seeds-minecraft/
+
+Some of the best world seeds for Minecraft 1.21 are ones that generate snowy worlds filled with cold biomes that reflect the incoming winter months.
+---------
+
+# Kevin Costner's 5-Part Western Masterpiece Has A Strange Legacy
+
+Classic TV, Yellowstone
+
+Sat, 21 Feb 2026 19:00:18 GMT
+
+https://screenrant.com/yellowstone-kevin-costner-western-show-legacy/
+
+A-list actor Kevin Costner was part of a show that forever changed Western television, but the series' complicated legacy is full of controversy.
+---------
+
+# 2026’s Biggest K-Drama Ends A 26-Year Drought For Song Hye-kyo
+
+Streaming TV, K-Drama
+
+Sat, 21 Feb 2026 18:54:19 GMT
+
+https://screenrant.com/tantara-ends-26-year-drought-song-hye-kyo/
+
+There are many things to be excited about 2026's biggest K-drama, including how it snaps a 26-year drought for one of Hallyu's most important actors.
+---------
+
+# T'Challa's Compelling Character Arc In Captain America: Civil War
+
+Movies, Captain America: Civil War, Op-Ed, T'Challa
+
+Sat, 21 Feb 2026 18:45:19 GMT
+
+https://screenrant.com/tchalla-best-character-arc-captain-america-civil-war/
+
+T'Challa may have been the main character of Black Panther but his most compelling character came in his earlier supporting appearance.
+---------
+
+# Surprise Pokémon Release Hints At Major Pokémon Day 2026 Plans
+
+Gaming, Pokemon, Triple-A Games
+
+Sat, 21 Feb 2026 18:39:44 GMT
+
+https://screenrant.com/pokemon-day-2026-firered-leafgreen-reveals/
+
+Pokémon Day 2026 is almost here, and the latest reveal suggests that we might have a lot more in store for this year than we did in 2025.
+---------
+
+# Robert Downey Jr.’s 7-Part HBO Historical Thriller Was Inspired By Stanley Kubrick
+
+Classic TV, The Sympathizer, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb
+
+Sat, 21 Feb 2026 18:30:20 GMT
+
+https://screenrant.com/robert-downey-jr-the-sympathizer-show-stanley-kubrick/
+
+Legendary director Stanley Kubrick has had an enormous influence on cinema, but he's also the inspiration behind this underappreciated RDJ TV show.
+---------
+
+# Timothée Chalamet Reveals His “Riskiest” Role Yet That “Didn’t Get Its Fair Shake”
+
+Movies, Timothée Chalamet, Wonka
+
+Sat, 21 Feb 2026 18:29:12 GMT
+
+https://screenrant.com/timothee-chalamet-riskiest-role-wonka/
+
+Timothée Chalamet candidly discusses how despite the movie's enormous box office success, his role in this film was risky for his career.
+---------
+
+# Nerve: The Underrated 2016 Thriller You Need To Rediscover
+
+Movies, Nerve, Recommendation
+
+Sat, 21 Feb 2026 18:15:19 GMT
+
+https://screenrant.com/nerve-underrated-thriller-recommendation/
+
+2016 was home to a techno-thriller that performed well at the box office, yet has been forgotten by far too many people in the past decade.
+---------
+
+# Margot Robbie's Best On-Screen Chemistry: Focus with Will Smith
+
+People, parents, Margot Robbie, Will Smith, Wuthering Heights, Focus
+
+Sat, 21 Feb 2026 18:02:14 GMT
+
+https://screenrant.com/wuthering-heights-margot-robbie-best-chemistry-costar-focus-will-smith/
+
+Discover the chemistry between Margot Robbie and Will Smith in the 2015 blockbuster film Focus, where their on-screen relationship stole the show and contributed to the movie's success.
+---------
+
+# The Problem With Lost Isn't The Ending
+
+Classic TV, Lost
+
+Sat, 21 Feb 2026 18:01:19 GMT
+
+https://screenrant.com/lost-show-problem-not-ending/
+
+Lost has one of the most controversial finales of all time, but the ending had the potential for perfection if it weren't for the show's real problem.
+---------
+
+# Josh Brolin’s DC Western Jonah Hex Is Leaving HBO Max 15 Years After Its 11% RT Debut
+
+Movies, Jonah Hex, DCU, DC Comics
+
+Sat, 21 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/josh-brolin-dc-western-jonah-hex-leaving-hbo-max/
+
+Before he was Cable or Thanos for Marvel, Josh Brolin tried his hand for DC and it was a downright disaster, and now HBO Max is deleting it.
+---------
+
+# Disney's Upcoming Eragon Series is the Perfect Star Wars Replacement
+
+TV, Star Wars, Eragon, Fantasy
+
+Sat, 21 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/disney-eragon-reboot-star-wars-replacement-show/
+
+Disney's live-action Star Wars shows have made waves, but a returning fantasy series could dethrone the iconic franchise.
+---------
+
+# Gundam Wing's Best Mecha Returns After 3 Years With Exclusive Design Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing, merchandise, action figures, bandai, Gundam Wing: Endless Waltz
+
+Sat, 21 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/gundam-wing-metal-composite-action-figure-february-release/
+
+Over 30 years after the anime debuted, two metal action figures based on the main mech from New Mobile Report Gundam Wing are being re-released.
+---------
+
+# Lonesome Dove: The Legacy of Robert Duvall's Iconic Western Role
+
+TV, Western, Lonesome Dove
+
+Sat, 21 Feb 2026 18:31:12 GMT
+
+https://www.cbr.com/robert-duvall-lonesome-dove-legacy/
+
+One of the most influential Western series of all time, Lonesome Dove paved the way for many of the modern genre hits fans have come to know and love.
+---------
+
+# 5 Best Fantasy Games On the Nintendo Switch You Probably Haven't Played
+
+Games, Nintendo Switch
+
+Sat, 21 Feb 2026 18:15:12 GMT
+
+https://www.cbr.com/best-nintendo-switch-fantasy-games-you-havent-played/
+
+Some of the best fantasy games for the Nintendo Switch and Switch 2 have been totally overlooked.
+---------
+
+# 4 Years After the Last Episode, The Walking Dead Hits No. 9 on PVOD
+
+TV, The Walking Dead
+
+Sat, 21 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/the-walking-dead-zombie-pvod-success-february-2026/
+
+The horror series is proving its longevity as fans still await to find out what's next.
+---------
+
+# 5 Mind-Bending Modern Sci-Fi Shows You Need to Watch
+
+TV, Sci-Fi, Dark, Black Mirror, Severance
+
+Sat, 21 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/best-mind-bending-sci-fi-shows-list/
+
+Some of the best sci-fi shows boldly deliver twisting stories that feel exciting, clever, and dangerously close to real life.
+---------
+
+# Denzel Washington's "Chilling" Political Thriller Remake Finds a New Streaming Home
+
+Movie News, Denzel Washington, The Manchurian Candidate, STARZ, Jonathan Demme
+
+Sat, 21 Feb 2026 19:00:12 GMT
+
+https://collider.com/denzel-washington-the-manchurian-candidate-remake-chilling-political-thriller-streaming-starz-march-2026/
+
+Denzel Washington's political thriller The Manchurian Candidate is joining a new streamer this March. Find out where below.
+---------
+
+# Jason Statham Quietly Stole the Show in This $235 Million Spy Movie Heading to New Streamer
+
+Movie News, Paul Feig, Jason Statham, Melissa McCarthy, Spy
+
+Sat, 21 Feb 2026 18:40:12 GMT
+
+https://collider.com/jason-statham-scene-stealer-paul-feig-spy-streaming-starz-march-2026/
+
+Jason Statham flexed his comedic chops in the comedy film Spy, which is heading to a new streamer this March. Find out more.
+---------
+
+# 10 Animated Movies That No One Remembers but Are Worth Rediscovering
+
+Movie, Animation, Atlantis: The Lost Empire, Cats Don't Dance, American Pop
+
+Sat, 21 Feb 2026 18:28:12 GMT
+
+https://collider.com/animated-movies-no-one-remembers-worth-rediscovering/
+
+Dinosaur and Princess Iron Fan are among the most forgotten animated movies that are worth watching today, thanks to their artistry and strong themes.
+---------
+
+# John Cena’s Early Action Bomb Is Finding Redemption on Streaming
+
+Movie News, John Cena, Reacher, The Marine, STARZ
+
+Sat, 21 Feb 2026 18:20:12 GMT
+
+https://collider.com/john-cena-the-marine-early-action-bomb-streaming-starz-march-2026/
+
+John Cena's critically panned Reacher replacement, The Marine, is about to hit a new streamer this March. Find out where below.
+---------
+
+# ‘The Pitt’ Is About to Rewrite Chaos After Its Most Unexpected Blow 7 Hours Later
+
+TV Features, The Pitt, Noah Wyle, HBO Max
+
+Sat, 21 Feb 2026 18:14:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-7-code-black-cyberattack-explained/
+
+The Pitt's ER staff face chaos as a targeted cyberattack forces them to revert to analog methods, complicating patient care and adding stress.
+---------
+
+# In Just 2 Weeks, Sony's 'KPop Demon Hunters' Successor Is Set to Topple 'Wuthering Heights' at the Box Office
+
+Music News, Wuthering Heights, GOAT, Box Office, Margot Robbie
+
+Sat, 21 Feb 2026 18:12:35 GMT
+
+https://collider.com/sony-kpop-demon-hunters-succesor-goat-overtakes-wuthering-heights-domestic-box-office-15-million/
+
+Life is imitating art at the box office, as the underdog sports movie GOAT has beaten the odds to take down Wuthering Heights.
+---------
+
+# 19 Years Later, Mark Wahlberg's 'Reacher'-Like Thriller Targets a New Streaming Home
+
+Movie News, Mark Wahlberg, Shooter, Antoine Fuqua, Kate Mara
+
+Sat, 21 Feb 2026 18:00:12 GMT
+
+https://collider.com/shooter-mark-wahlberg-reacher-replacement-thriller-streaming-starz-march-2026/
+
+Mark Wahlberg's Reacher companion piece, the action-thriller film Shooter, is heading to a new streamer in March. Find out more.
+---------
+
+# The Statue of Liberty Will Be Featured in New Movie Titled 'Lady Liberty'
+
+Movie News
+
+Sat, 21 Feb 2026 19:01:16 GMT
+
+https://movieweb.com/the-statue-of-liberty-is-getting-its-own-origin-movie/
+
+The upcoming historical drama will detail the creation and dedication of one of America's greatest monuments.
+---------
+
+# 'The Killing' Is a Reboot Thriller Series True Crime Fans Can't Miss on Streaming
+
+TV News, The Killing, Streaming Recommendations
+
+Sat, 21 Feb 2026 19:01:16 GMT
+
+https://movieweb.com/thriller-killing-true-crime-streaming-february-2026/
+
+It's like 'The X-Files,' but in the crime genre.
+---------
+
+# Why 'The Artful Dodger' Is One of the Best Shows on Hulu
+
+Features, The Artful Dodger
+
+Sat, 21 Feb 2026 19:01:16 GMT
+
+https://movieweb.com/the-artful-dodger-hulu-romance-underrated/
+
+Hulu's 'The Artful Dodger' is an underrated romance period drama, and Season 2, starring Thomas Brodie-Sangster and Maia Mitchell, is streaming now.
+---------
+
+# Neil Flynn, Christa Miller Set to Reprise 'Scrubs' Roles for Season 10
+
+TV News, Scrubs, Christa Miller
+
+Sat, 21 Feb 2026 18:01:17 GMT
+
+https://movieweb.com/scrubs-announces-return-of-two-original-stars/
+
+Neil Flynn (The Janitor) and Christa Miller (Jordan Sullivan) are officially confirmed to rejoin the cast of 'Scrubs' for the show's 2026 revival.
+---------
+
+# 8 10/10 Action-Adventure Movies To Watch With the Whole Family
+
+Movie Lists, Action, Star Wars
+
+Sat, 21 Feb 2026 18:01:17 GMT
+
+https://movieweb.com/action-adventure-movies-for-whole-family/
+
+Looking to sit back, relax, and enjoy a movie suited for all ages? These are fun for the kids and also offer something for adults.
+---------
+
 # The Night Agent: Netflix's Action Thriller That Could Last Forever
 
 Streaming TV, The Night Agent
