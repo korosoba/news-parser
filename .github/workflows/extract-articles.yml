@@ -53,6 +53,8 @@ jobs:
 
       - name: Run extraction + summarization
         if: steps.check_key.outputs.has_key == 'true'
+        env:
+          GROQ_API_KEY: ${{ secrets.GROQ_API_KEY }}   # ← ключ передаётся напрямую в env Python
         run: python extract_article.py $(cat urls.txt | tr '\n' ' ')
 
       - name: Сообщение если ключ отсутствует
