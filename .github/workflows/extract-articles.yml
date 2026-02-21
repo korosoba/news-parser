@@ -29,12 +29,15 @@ jobs:
       - name: Проверка наличия GROQ_API_KEY
         id: check_key
         run: |
-          if [ -z "${{ secrets.GROQ_API_KEY }}" ]; then
-            echo "GROQ_API_KEY не найден или пустой"
-            echo "has_key=false" >> $GITHUB_OUTPUT
-          else
-            echo "GROQ_API_KEY найден (длина: ${#GROQ_API_KEY})"
+          key="${{ secrets.GROQ_API_KEY }}"
+          length=${#key}
+          echo "Длина ключа (без маскировки): $length"
+          if [ $length -gt 40 ]; then  # минимальная длина Groq ключа ~51, поставил с запасом
             echo "has_key=true" >> $GITHUB_OUTPUT
+            echo "GROQ_API_KEY найден (длина: $length)"
+          else
+            echo "has_key=false" >> $GITHUB_OUTPUT
+            echo "GROQ_API_KEY не найден или пустой (длина: $length)"
           fi
 
       - name: Prepare URLs file
