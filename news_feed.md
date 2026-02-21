@@ -1,3 +1,234 @@
+# PlayStation Drops 6 New Freebies, No PS Plus Required
+
+Gaming, PlayStation (Original)
+
+Sat, 21 Feb 2026 20:45:19 GMT
+
+https://screenrant.com/playstation-6-new-free-downloads-try-february/
+
+Discover 6 free game demos available now for PlayStation 4 and 5 users, including indie hits and co-op horror titles, without requiring PS Plus.
+---------
+
+# Russell Crowe's New $45.5M WWII Box Office Gem Is Coming To Netflix Next Month To Be Discovered By American Subscribers
+
+Movies, Nuremberg, Netflix
+
+Sat, 21 Feb 2026 20:29:23 GMT
+
+https://screenrant.com/nuremberg-2025-movie-netflix-streaming-release-date-confirmed-russell-crowe/
+
+Netflix finally sets a streaming release date for Russell Crowe's new WWII movie, allowing American subscribers to discover the box office gem.
+---------
+
+# Spawn Star Keith David Addresses Potential Franchise Return For New Reboot After Voicing Iconic Antihero
+
+TV, Spawn
+
+Sat, 21 Feb 2026 20:23:46 GMT
+
+https://screenrant.com/spawn-reboot-keith-david-return-response/
+
+Spawn: The Animated Series voice actor Keith David says whether he would return to the franchise should the fan favorite HBO show ever be rebooted.
+---------
+
+# New Evil Dead Movie Officially Begins Filming Ahead Of Evil Dead Burn’s 2026 Release
+
+Movies
+
+Sat, 21 Feb 2026 20:19:30 GMT
+
+https://screenrant.com/evil-dead-wrath-filming-start/
+
+As the 2026 release of Evil Dead Burn approaches, a new installment in the Evil Dead franchise has now officially started its production.
+---------
+
+# This 7-Part HBO Fantasy Show Is An Adaptation Done Right
+
+Classic TV, true blood
+
+Sat, 21 Feb 2026 20:02:19 GMT
+
+https://screenrant.com/true-blood-fantasy-adaptation-hbo-show-done-right/
+
+HBO's most arguably ambitious adaptation proves that a show can forge its own path while still being true to the heart of its source material.
+---------
+
+# Everybody Loves Raymond: The Sophisticated Suburban Family Sitcom
+
+Classic TV, Everybody Loves Raymond
+
+Sat, 21 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/everybody-loves-raymond-sophisticated-sitcom-full-house/
+
+Everybody Loves Raymond stands out from other classic American sitcoms with its unique blend of adult humor and sophisticated storytelling.
+---------
+
+# Marvel Comics' Strongest Heroes with Psionic Powers, Ranked
+
+Superheroes, Marvel
+
+Sat, 21 Feb 2026 20:45:12 GMT
+
+https://www.cbr.com/strongest-marvel-heroes-with-psionic-powers/
+
+Telepaths, telekinetics, and mutants, oh my!
+---------
+
+# Limited-Edition Spy x Family UNO Cards Are Coming to McDonald's Happy Meals This Month
+
+Anime, Spy X Family, merchandise, collectibles, mcdonald's, Spy x Family
+
+Sat, 21 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/spy-x-family-uno-cards-mcdonalds-happy-meal/
+
+McDonald’s Japan teams up with Spy x Family for a new Happy Meal featuring collectible UNO cards.
+---------
+
+# I'm Sorry but 29 Years Later, I Still Can't Accept Harry Potter's Most Questionable Piece of Lore
+
+Movies, Harry Potter, Fantasy
+
+Sat, 21 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/im-sorry-but-28-years-later-i-still-cant-accept-harry-potters-most-questionable-piece-of-lore/
+
+The Houses students were sorted into at Hogwarts often branded them as good or evil, and I still can't look past this piece of Harry Potter lore.
+---------
+
+# 6 TV Shows Everyone Was Watching in 1996
+
+TV, Friends, The X-Files, ER
+
+Sat, 21 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/highest-rated-1996-tv-shows-everyone-was-watching/
+
+These shows were feverishly discussed around the watercooler at countless workplaces throughout '96 - and a couple of them may surprise you.
+---------
+
+# Leonardo DiCaprio's 22-Year-Old Biopic Soars Onto Free Streaming
+
+Movie News, Leonardo DiCaprio, The Aviator, Martin Scorsese, Tubi
+
+Sat, 21 Feb 2026 20:40:15 GMT
+
+https://collider.com/the-aviator-leonardo-dicaprio-oscar-snub-biopic-streaming-free-tubi-march-2026/
+
+After more than 2 decades, Leonardo DiCaprio’s biggest Oscar snub takes off on a free streamer. Here's where to watch Martin Scorsese's The Aviator.
+---------
+
+# 5 Horror Movies From the 2000s That Are Almost Perfect
+
+Movie, Horror, The Ring, 28 Days Later, The Others
+
+Sat, 21 Feb 2026 20:36:12 GMT
+
+https://collider.com/horror-movies-2000s-almost-perfect/
+
+Horror experienced a shift in the 2000s, with movies like The Ring and 28 Days Later achieving near-perfect status thanks to their bold execution.
+---------
+
+# The David Bowie Song That Was More Vulnerable Than "Heroes" Ever Dared to Be
+
+Music Features, David Bowie, Rock, Music, Billboard Hot 100
+
+Sat, 21 Feb 2026 20:35:13 GMT
+
+https://collider.com/david-bowie-song-more-vulnerable-than-heroes/
+
+One of the best songs from David Bowie's Station to Station album channels paranoia and regret into a song that challenges Heroes.
+---------
+
+# 10 Greatest 1-Season Shows of the 2020s (So Far)
+
+TV, TV Miniseries, Adolescence, The Queen's Gambit, Station Eleven
+
+Sat, 21 Feb 2026 20:28:12 GMT
+
+https://collider.com/best-1-season-shows-2020s/
+
+Adolescence, The Queen's Gambit, and Midnight Mass are some of the best shows of the 2020s, proof that you only need one season to tell a great story.
+---------
+
+# A 168-Minute Frontier Epic Perfect for Taylor Sheridan Fans Is Moving Streamers
+
+Movie News, Gangs of New York, Leonardo DiCaprio, Martin Scorsese, Daniel Day-Lewis
+
+Sat, 21 Feb 2026 20:20:12 GMT
+
+https://collider.com/gangs-of-new-york-perfect-for-taylor-sheridan-fans-streaming-starz-march-2026/
+
+Director Martin Scorsese's historical epic Gangs of New York, with Daniel Day-Lewis, is heading to a new streaming in March. Find out more.
+---------
+
+# 10 Romantic Movies That Are As Good As 'Titanic'
+
+Movie, Eternal Sunshine of the Spotless Mind, Casablanca, Cinema Paradiso, Titanic
+
+Sat, 21 Feb 2026 20:17:12 GMT
+
+https://collider.com/romantic-movies-as-good-as-titanic/
+
+Not many romantic movies are as good as Titanic, but a few are on the same level, including classics like Casablanca, Vertigo, and Before Sunrise.
+---------
+
+# 10 Sitcoms That Feel Like They Were Built for Streaming
+
+TV, Sitcom, Friends, How I Met Your Mother, Schitt's Creek
+
+Sat, 21 Feb 2026 20:17:12 GMT
+
+https://collider.com/sitcoms-built-for-streaming/
+
+Friends, New Girl, How I Met Your Mother, Schitt's Creek, and more make up our list of sitcoms that feel like they were built for streaming.
+---------
+
+# The Worst Movie of the 2010s Is Being Tested on a New Streamer
+
+Movie News, Jack and Jill, Adam Sandler, Al Pacino, STARZ
+
+Sat, 21 Feb 2026 20:00:12 GMT
+
+https://collider.com/adam-sandler-jack-and-jill-worst-movie-of-the-2010s-streaming-starz-march-2026/
+
+Jack and Jill, considered by some to be the worst movie of the 2010s, is heading to a new streamer this March. Find out where below.
+---------
+
+# Netflix's 'Peaky Blinders' Movie Cast - Every New, Returning, and Missing Actor Confirmed
+
+Features, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Sat, 21 Feb 2026 20:31:17 GMT
+
+https://movieweb.com/peaky-blinders-movie-cast-returning-missing-actors/
+
+Cillian Murphy is back in the flat cap, and he's brought some very interesting company. Who else is coming with him?
+---------
+
+# Sarah Chalke Looks Back on 'Roseanne' Casting
+
+TV News, Roseanne, Scrubs
+
+Sat, 21 Feb 2026 20:00:16 GMT
+
+https://movieweb.com/scrubs-star-young-naive-role-in-another-classic-sitcom/
+
+Before reprising her role as Elliot Reed in 'Scrubs' Season 10, Sarah Chalke remembers her time taking over the role of Becky in 'Roseanne' Season 6.
+---------
+
+# 'Paradise' Is a Great Thriller to Watch While Waiting for 'Silo' Season 3
+
+Features, Paradise
+
+Sat, 21 Feb 2026 20:00:16 GMT
+
+https://movieweb.com/paradise-perfect-thriller-silo-fans/
+
+'Paradise' Season 2 premieres on Hulu on February 23, 2026, and the political thriller starring Sterling K. Brown is great for Apple TV's 'Silo' fans.
+---------
+
 # Hogwarts Legacy: Twilight Labyrinth Lets You Explore A Creepy New Area
 
 Gaming, Hogwarts Legacy, Triple-A Games, PC
