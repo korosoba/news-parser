@@ -80,25 +80,81 @@ def extract_article(url: str, output_dir: Path):
         print(f"  Text length: {len(text):,} characters")
 
         # ────────────────────────────────────────────────
-        # Тестовый вызов Groq (минимальный)
+        # Groq: полноценный пересказ статьи
         # ────────────────────────────────────────────────
+        summary_path = None
+        summary_meta = None
+
         if GROQ_AVAILABLE and os.getenv("GROQ_API_KEY"):
             try:
                 client = Groq()
-                # Самый простой запрос — проверка связи
-                test_response = client.chat.completions.create(
-                    messages=[{"role": "user", "content": "Скажи 'Groq работает!' на русском"}],
-                    model="llama-3.1-8b-instant",  # самая быстрая и дешёвая модель для теста
-                    max_tokens=20,
-                    temperature=0.0
+
+                # Ограничиваем текст, чтобы уложиться в контекст модели
+                preview_text = text[:12000].strip()  # ~3000–4000 токенов, безопасно для большинства моделей
+                if len(preview_text) < 300:
+                    preview_text = text
+
+                response = client.chat.completions.create(
+                    model="llama-3.1-70b-versatile",      # или llama-3.3-70b, mixtral-8x7b-32768, gemma2-27b-it — подбери по цене/качеству
+                    messages=[
+                        {
+                            "role": "system",
+                            "content": (
+                                "Ты эксперт по кино и сериалам. "
+                                "Прочитай статью и напиши краткий пересказ на русском языке (180–350 слов). "
+                                "Сфокусируйся на ключевых идеях, теориях, анализе, историческом контексте, символизме, влиянии. "
+                                "Избегай спойлеров к сюжету. Держись близко к тексту. "
+                                "Если статья о актёре — подчеркни его роль и карьеру. "
+                                "Если подборка — перечисли основные пункты."
+                            )
+                        },
+                        {"role": "user", "content": f"Статья:\n{preview_text}"}
+                    ],
+                    temperature=0.5,
+                    max_tokens=600,
+                    top_p=0.9
                 )
-                test_text = test_response.choices[0].message.content.strip()
-                print(f"Groq тест успешен: {test_text}")
+
+                summary_text = response.choices[0].message.content.strip()
+
+                # Сохраняем
+                summary_filename = f"{safe_title}__{pub_date}__groq_summary.txt"
+                summary_path = output_dir / summary_filename
+
+                with open(summary_path, "w", encoding="utf-8") as f:
+                    f.write(f"URL: {url}\n")
+                    f.write(f"Title: {title}\n")
+                    f.write(f"Original file: {filename}\n")
+                    f.write(f"Model: {response.model}\n")
+                    f.write(f"Tokens: {response.usage.total_tokens if hasattr(response.usage, 'total_tokens') else 'N/A'}\n")
+                    f.write("-" * 70 + "\n\n")
+                    f.write(summary_text)
+
+                print(f" Groq summary saved → {summary_path}")
+                print(f" Summary length: {len(summary_text):,} characters")
+
+                summary_meta = {
+                    "summary_file": str(summary_filename),
+                    "summary_length": len(summary_text),
+                    "model": response.model,
+                    "tokens": response.usage.total_tokens if hasattr(response.usage, 'total_tokens') else None
+                }
+
             except Exception as e:
-                print(f"Groq тест НЕ удался: {type(e).__name__}: {str(e)}")
-        else:
-            print("Groq пропущен: библиотека или ключ недоступны")
-        # ────────────────────────────────────────────────
+                print(f" Groq error: {type(e).__name__}: {str(e)}")
+                summary_meta = {"error": str(e)}
+
+        # Добавляем в мета-данные
+        meta_dict = {
+            "url": url,
+            "title": title,
+            "published": pub_date,
+            "file": str(filename),
+            "text_length": len(text),
+            "summary": summary_meta or {"summary_file": None}
+        }
+
+        return out_path, meta_dict
 
         return out_path, {
             "url": url,
