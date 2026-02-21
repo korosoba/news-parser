@@ -2,16 +2,23 @@
 import os
 import time
 import requests
+import json
+import asyncio
 from dotenv import load_dotenv
 from telegram import Update
-from telegram.ext import Application, CommandHandler, MessageHandler, filters, CallbackContext
+from telegram.ext import Application, MessageHandler, filters, CallbackContext
 
-load_dotenv()
+# Загружаем переменные из файла (укажи правильное имя)
+load_dotenv("korosoba.env")  # или просто load_dotenv() если переименовал в .env
 
+# Отладка загрузки переменных
 print("=== Отладка переменных из .env ===")
 print("TELEGRAM_BOT_TOKEN:", os.getenv("TELEGRAM_BOT_TOKEN", "не найден"))
 print("GITHUB_TOKEN:", os.getenv("GITHUB_TOKEN", "не найден")[:10] + "..." if os.getenv("GITHUB_TOKEN") else "не найден")
 print("GITHUB_REPO_OWNER:", os.getenv("GITHUB_REPO_OWNER", "не найден"))
+print("GITHUB_REPO_NAME:", os.getenv("GITHUB_REPO_NAME", "не найден"))
+print("GITHUB_WORKFLOW_NAME:", os.getenv("GITHUB_WORKFLOW_NAME", "не найден"))
+print("TELEGRAM_CHAT_ID:", os.getenv("TELEGRAM_CHAT_ID", "не найден"))
 print("====================================")
 
 TELEGRAM_BOT_TOKEN = os.getenv("TELEGRAM_BOT_TOKEN")
@@ -26,28 +33,35 @@ GITHUB_HEADERS = {
     "Accept": "application/vnd.github.v3+json"
 }
 
-# Сайты для проверки URL (опционально)
 ALLOWED_DOMAINS = ["screenrant.com", "cbr.com", "collider.com", "movieweb.com"]
 
 def is_valid_url(url: str) -> bool:
-    return any(domain in url for domain in ALLOWED_DOMAINS)
+    return any(domain in url.lower() for domain in ALLOWED_DOMAINS)
 
-def dispatch_workflow(url: str) -> str:
-    """Запускает workflow с URL как input"""
-    url = f"https://api.github.com/repos/{GITHUB_OWNER}/{GITHUB_REPO}/actions/workflows/{GITHUB_WORKFLOW}/dispatches"
+def dispatch_workflow(article_url: str) -> str:
+    """Запускает workflow с URL статьи как input"""
+    dispatch_url = f"https://api.github.com/repos/{GITHUB_OWNER}/{GITHUB_REPO}/actions/workflows/{GITHUB_WORKFLOW}/dispatches"
+    
     data = {
-        "ref": "main",  # твоя default ветка
-        "inputs": {"urls": url}
+        "ref": "main",
+        "inputs": {"urls": article_url}
     }
-    response = requests.post(url, headers=GITHUB_HEADERS, json=data)
+    
+    print(f"[dispatch] Отправляем в workflow ссылку: {article_url}")
+    print(f"[dispatch] Запрос на: {dispatch_url}")
+    print(f"[dispatch] Body: {data}")
+    
+    response = requests.post(dispatch_url, headers=GITHUB_HEADERS, json=data)
+    
+    print(f"[dispatch] Ответ GitHub: {response.status_code} {response.text[:200]}")
+    
     if response.status_code == 204:
         print("Workflow dispatched successfully")
         return get_latest_run_id()
     else:
-        raise Exception(f"Dispatch failed: {response.text}")
+        raise Exception(f"Dispatch failed: {response.status_code} {response.text}")
 
 def get_latest_run_id() -> str:
-    """Получает ID последнего запущенного run"""
     url = f"https://api.github.com/repos/{GITHUB_OWNER}/{GITHUB_REPO}/actions/runs?per_page=1"
     response = requests.get(url, headers=GITHUB_HEADERS)
     if response.ok:
@@ -57,7 +71,6 @@ def get_latest_run_id() -> str:
     raise Exception("No runs found")
 
 def wait_for_run_completion(run_id: str, timeout=300, interval=10) -> bool:
-    """Ждёт завершения run (success or failure)"""
     start_time = time.time()
     while time.time() - start_time < timeout:
         url = f"https://api.github.com/repos/{GITHUB_OWNER}/{GITHUB_REPO}/actions/runs/{run_id}"
@@ -65,56 +78,102 @@ def wait_for_run_completion(run_id: str, timeout=300, interval=10) -> bool:
         if response.ok:
             status = response.json()["status"]
             conclusion = response.json()["conclusion"]
+            print(f"[wait] Статус run {run_id}: {status} / conclusion: {conclusion}")
             if status == "completed":
-                print(f"Run completed with {conclusion}")
                 return conclusion == "success"
         time.sleep(interval)
     raise TimeoutError("Workflow timeout")
 
-def get_summary_file_url(title: str, pub_date: str) -> str:
-    """Генерирует URL для скачивания __groq_summary.txt"""
-    safe_title = "".join(c if c.isalnum() or c in " -_" else "_" for c in title).strip("_")[:100]
-    filename = f"{safe_title}__{pub_date}__groq_summary.txt"
-    return f"https://raw.githubusercontent.com/{GITHUB_OWNER}/{GITHUB_REPO}/main/extracted_articles/{filename}"
-
 async def handle_url(update: Update, context: CallbackContext):
     url = update.message.text.strip()
-    if not is_valid_url(url):
-        await update.message.reply_text("Неверный URL. Отправь ссылку на статью с screenrant/cbr/collider/movieweb.")
+    
+    if not url.startswith("http"):
+        await update.message.reply_text("Это не похоже на ссылку. Отправь URL статьи.")
         return
-
+    
+    if "api.github.com" in url:
+        await update.message.reply_text("Это служебный URL GitHub, а не статья. Отправь ссылку на новость.")
+        return
+    
+    if not is_valid_url(url):
+        await update.message.reply_text("Ссылка должна быть с screenrant.com, cbr.com, collider.com или movieweb.com.")
+        return
+    
+    print(f"[handle_url] Получена ссылка от пользователя: {url}")
+    await update.message.reply_text(f"Обрабатываю статью:\n{url}")
+    
     try:
-        await update.message.reply_text("Запускаю обработку...")
+        await update.message.reply_text("Запускаю обработку... (1–3 минуты)")
+        
         run_id = dispatch_workflow(url)
         success = wait_for_run_completion(run_id)
-
-        if success:
-            # Здесь нужно получить title и pub_date — для простоты предположим, что мы знаем их (или парсим из repo API)
-            # В реальности: можно парсить json-отчёт из repo, но для начала используй фиксированные (подставь из лога)
-            # Пример: из лога ты знаешь title и date
-            # Альтернатива: после run скачать extraction_report.json и взять оттуда
-            title = "Marvel Is Officially Rewriting a Major Part of Captain America_s Origin After 64 Years"  # подставь реальный
-            pub_date = "2026-02-20"
-            file_url = get_summary_file_url(title, pub_date)
-
-            # Скачиваем файл
-            response = requests.get(file_url)
-            if response.ok:
-                with open("temp_summary.txt", "wb") as f:
-                    f.write(response.content)
-                await update.message.reply_document(document=open("temp_summary.txt", "rb"), caption="Groq-саммари статьи")
-                os.remove("temp_summary.txt")
-            else:
-                await update.message.reply_text("Не удалось скачать саммари.")
-        else:
-            await update.message.reply_text("Workflow завершился с ошибкой.")
+        
+        if not success:
+            await update.message.reply_text("Workflow завершился с ошибкой. Проверь логи в GitHub Actions.")
+            return
+        
+        # Даём GitHub время на push файлов
+        await asyncio.sleep(15)
+        
+        # Получаем список файлов в extracted_articles
+        contents_url = f"https://api.github.com/repos/{GITHUB_OWNER}/{GITHUB_REPO}/contents/extracted_articles?ref=main"
+        resp = requests.get(contents_url, headers=GITHUB_HEADERS)
+        if not resp.ok:
+            raise Exception(f"Не удалось получить список файлов: {resp.status_code} {resp.text}")
+        
+        files = resp.json()
+        report_file = None
+        for f in files:
+            if f["name"].startswith("extraction_report_") and f["name"].endswith(".json"):
+                report_file = f
+                break
+        
+        if not report_file:
+            raise Exception("Не найден extraction_report.json")
+        
+        # Скачиваем отчёт
+        json_resp = requests.get(report_file["download_url"])
+        if not json_resp.ok:
+            raise Exception("Не удалось скачать report.json")
+        
+        reports = json_resp.json()
+        if not reports:
+            raise Exception("Report пустой")
+        
+        latest = reports[0]
+        summary_info = latest.get("summary", {})
+        summary_filename = summary_info.get("summary_file")
+        
+        if not summary_filename:
+            raise Exception("В отчёте нет summary_file (Groq не сработал?)")
+        
+        # Скачиваем саммари
+        raw_url = f"https://raw.githubusercontent.com/{GITHUB_OWNER}/{GITHUB_REPO}/main/extracted_articles/{summary_filename}"
+        summary_resp = requests.get(raw_url)
+        if not summary_resp.ok:
+            raise Exception(f"Не удалось скачать саммари: {summary_resp.status_code}")
+        
+        temp_file = "temp_groq_summary.txt"
+        with open(temp_file, "wb") as f:
+            f.write(summary_resp.content)
+        
+        await update.message.reply_document(
+            document=open(temp_file, "rb"),
+            caption=f"Groq-саммари для статьи:\n{url}"
+        )
+        
+        os.remove(temp_file)
+        await update.message.reply_text("Готово! Присылай следующую ссылку, если хочешь.")
+    
     except Exception as e:
         await update.message.reply_text(f"Ошибка: {str(e)}")
+        print(f"[ERROR] {type(e).__name__}: {str(e)}")
 
 def main():
     app = Application.builder().token(TELEGRAM_BOT_TOKEN).build()
     app.add_handler(MessageHandler(filters.TEXT & ~filters.COMMAND, handle_url))
-    app.run_polling()
+    print("Бот запущен и ожидает сообщений...")
+    app.run_polling(allowed_updates=Update.ALL_TYPES)
 
 if __name__ == "__main__":
     main()
