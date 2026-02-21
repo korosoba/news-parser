@@ -1,3 +1,14 @@
+# Pokémon Pokopia Full Pokédex Leaks Ahead Of Launch
+
+Gaming, Pokémon Pokopia
+
+Sat, 21 Feb 2026 05:00:27 GMT
+
+https://screenrant.com/pokemon-pokopia-pokedex-leak-how-many-mon/
+
+Centro LEAKS shares an image suggesting Pokémon Pokopia, set to launch on Nintendo Switch 2, will feature over 300 Pokémon.
+---------
+
 # Forgotten 95% RT Netflix Action Thriller Shows Reacher How It’s Done
 
 Movies, Reacher, Rebel Ridge
