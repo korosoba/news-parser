@@ -1,3 +1,190 @@
+# 10 Best Shows Like Bones
+
+Classic TV, Bones
+
+Sat, 21 Feb 2026 14:45:19 GMT
+
+https://screenrant.com/best-shows-like-bones/
+
+Over 20 years later, Bones is still Fox's most iconic crime drama ever created— but fans of the quirky procedural have many fulfilling alternatives.
+---------
+
+# Christopher Nolan Snubbed For Best Director At 2011 Oscars
+
+Movies, Christopher Nolan, Op-Ed
+
+Sat, 21 Feb 2026 14:45:19 GMT
+
+https://screenrant.com/academy-awards-snub-christopher-nolan-best-director/
+
+Christopher Nolan has only been nominated for Best Director twice in his storied career, and in 2011, he was snubbed for some of his best work.
+---------
+
+# Marvel’s Original Silver Surfer Actor Breaks Silence On Fantastic Four: First Steps’ Reimagining
+
+Movies, The Fantastic Four: First Steps, Silver Surfer, Fantastic Four: Rise of the Silver Surfer, Marvel Cinematic Universe
+
+Sat, 21 Feb 2026 14:45:03 GMT
+
+https://screenrant.com/fantastic-four-first-steps-silver-surfer-doug-jones-reaction/
+
+Doug Jones, who previously played the Silver Surfer, reveals his reaction to the reimagining of the character in The Fantastic Four: First Steps.
+---------
+
+# Sony Animation Is Showing Disney How It's Done
+
+Movies, KPop Demon Hunters, Disney, Pixar
+
+Sat, 21 Feb 2026 14:42:18 GMT
+
+https://screenrant.com/sony-animation-kpop-demon-hunters-lesson-disney/
+
+Disney used to be the dominating force in the world of animated movies, but Sony may be the studio poised to finally end the House of Mouse's reign
+---------
+
+# HBO’s 7-Part Crime Masterpiece With 95% RT Score Is Among Its Very Best
+
+Streaming TV, HBO, Mare of Easttown
+
+Sat, 21 Feb 2026 14:39:18 GMT
+
+https://screenrant.com/hbo-mare-of-easttown-series-must-watch/
+
+HBO's masterpiece with a 95% RT score, Mare of Easttown, is among the network's very best series of all time and is the perfect weekend binge watch.
+---------
+
+# New Serial Killer Horror Movie With 0% RT Critic Score Isn't Faring Much Better With Audiences
+
+Movies, Psycho Killer, Horror
+
+Sat, 21 Feb 2026 14:37:53 GMT
+
+https://screenrant.com/psycho-killer-rotten-tomatoes-audience-score/
+
+A new horror movie that follows the hunt for a dangerous serial killer earns a poor score from audiences on Rotten Tomatoes after critics give it 0%.
+---------
+
+# Netflix's 4-Part Masterpiece Psychological Thriller Series Is One Of Its Best
+
+TV, Netflix, Adolescence
+
+Sat, 21 Feb 2026 14:30:18 GMT
+
+https://screenrant.com/netflix-adolescence-thriller-series-best/
+
+Among Netflix's best TV shows is a psychological thriller series that can be binged in one night and is one of the streamer's most impactful releases.
+---------
+
+# Friends' Episode 'The One After the Super Bowl' Made TV History With 2 Records
+
+Classic TV, Friends
+
+Sat, 21 Feb 2026 14:30:18 GMT
+
+https://screenrant.com/friends-super-bowl-most-watched-episode-guest-stars-tv-history/
+
+Friends made TV history in different ways throughout its 10-season run, but one episode made history with a fun and unique double record.
+---------
+
+# One Of The Most Promising Looking Upcoming Animated Movies Just Got Canceled
+
+Movies, Amphibia
+
+Sat, 21 Feb 2026 14:15:19 GMT
+
+https://screenrant.com/animated-movie-canceled-upcoming-matt-braly-update/
+
+Despite its promise, a truly interesting animated movie is not set to continue forward - though it does have a successor of sorts on the way.
+---------
+
+# 5 Iconic Star Trek Alien Species That Changed Sci-Fi Forever (Ranked)
+
+Star Trek
+
+Sat, 21 Feb 2026 14:05:19 GMT
+
+https://screenrant.com/star-trek-best-alien-races-species-ranked/
+
+The most beloved beings from strange new worlds.
+---------
+
+# In Just 1 Day, Zac Efron’s 89% RT Wrestling Drama The Iron Claw Hits No. 7 on Netflix in the U.S.
+
+Movies, The Iron Claw
+
+Sat, 21 Feb 2026 14:00:12 GMT
+
+https://www.cbr.com/zac-efron-wrestling-drama-iron-claw-netflix-streaming-success-feb-2026/
+
+Zac Efron's critically acclaimed sports biopic is making a comeback on the Netflix streaming charts.
+---------
+
+# 10 Best Sci-Fi Anthology Episodes, Ranked
+
+TV, Sci-Fi, Love, Death & Robots, Black Mirror, The Twilight Zone
+
+Sat, 21 Feb 2026 14:48:12 GMT
+
+https://collider.com/best-sci-fi-anthology-tv-episodes-ranked/
+
+Explore the best sci-fi anthology episodes, ranked by storytelling, visuals, and impact, from shows like The Twilight Zone and Black Mirror.
+---------
+
+# Ana de Armas' $90 Million Action Thriller Hits a Fresh Setback on Streaming
+
+Movie News, Ana De Armas, John Wick, From the World of John Wick: Ballerina, Keanu Reeves
+
+Sat, 21 Feb 2026 14:40:12 GMT
+
+https://collider.com/john-wick-ballerina-ana-de-armas-90-million-action-thriller-leaving-starz-march-2026/
+
+Ana de Armas' John Wick spin-off, Ballerina, is about to leave its streaming home. Find out more about the action-packed film here.
+---------
+
+# Disney's Most Ambitious $2.3B Sci-Fi Smash Just Levelled Up
+
+Movie News, Disney+, Avatar: The Way of Water, James Cameron, Streaming
+
+Sat, 21 Feb 2026 14:20:12 GMT
+
+https://collider.com/disney-ambitious-sci-fi-movie-avatar-the-way-of-water-streaming-success-february-2026/
+
+James Cameron's $2.3 billion box office smash, Avatar: The Way of Water, is one of the ten most-streamed movies on Disney+.
+---------
+
+# 'F1's Sequel Needs To Include an Epic Matchup With This '90s Movie
+
+Movie Features, Tom Cruise, Brad Pitt, F1, Days of Thunder
+
+Sat, 21 Feb 2026 14:10:12 GMT
+
+https://collider.com/f1-sequel-brad-pitt-tom-cruise-days-of-thunder-crossover/
+
+With F1 officially getting a sequel, it’s time for Brad Pitt’s racing series to crossover with Tom Cruise’s Days of Thunder.
+---------
+
+# Taylor Sheridan Fans Have One Last Chance To Stream This 90-Minute Neo-Western
+
+Movie News, Taylor Sheridan, Blue Ruin, Jeremy Saulnier, Macon Blair
+
+Sat, 21 Feb 2026 14:00:12 GMT
+
+https://collider.com/blue-ruin-near-perfect-90-minute-neo-western-taylor-sheridan-fans-leaving-starz-march-2026/
+
+Blue Ruin, the near-perfect neo-noir film that launched the career of Jeremy Saulnier, is about to leave the Starz streaming service in March.
+---------
+
+# Dove Cameron’s Erotic Thriller 56 Days Hits No. 1 on Prime Video With a Strong Rotten Tomatoes Score
+
+TV News, 56 Days, Dove Cameron, Prime Video
+
+Sat, 21 Feb 2026 14:45:59 GMT
+
+https://movieweb.com/56-days-best-prime-video-crime-thriller-rotten-tomatoes-streaming-in-america-february-2026/
+
+Prime Video scores a huge hit with this steamy mystery thriller.
+---------
+
 # The Night Agent Author's New Book Gives Netflix The Perfect Espionage Thriller Show
 
 Streaming TV, The Night Agent
