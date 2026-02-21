@@ -8,6 +8,12 @@ from telegram.ext import Application, CommandHandler, MessageHandler, filters, C
 
 load_dotenv()
 
+print("=== Отладка переменных из .env ===")
+print("TELEGRAM_BOT_TOKEN:", os.getenv("TELEGRAM_BOT_TOKEN", "не найден"))
+print("GITHUB_TOKEN:", os.getenv("GITHUB_TOKEN", "не найден")[:10] + "..." if os.getenv("GITHUB_TOKEN") else "не найден")
+print("GITHUB_REPO_OWNER:", os.getenv("GITHUB_REPO_OWNER", "не найден"))
+print("====================================")
+
 TELEGRAM_BOT_TOKEN = os.getenv("TELEGRAM_BOT_TOKEN")
 TELEGRAM_CHAT_ID = os.getenv("TELEGRAM_CHAT_ID")
 GITHUB_TOKEN = os.getenv("GITHUB_TOKEN")
