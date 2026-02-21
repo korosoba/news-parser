@@ -1,3 +1,234 @@
+# Ranking Scream 7's Characters From Least To Most Likely To Die
+
+New Movies, Scream 7, Scream
+
+Sat, 21 Feb 2026 16:55:19 GMT
+
+https://screenrant.com/scream-7-characters-ranked-least-most-likely-die/
+
+There will be plenty of character deaths in Scream 7, so let's rank all the main ones from least to most likely to die as Ghostface targets Sidney.
+---------
+
+# Daredevil: Born Again Season 2's Iron Fist Rumors Candidly Addressed By Star
+
+TV, Daredevil: Born Again, Daredevil: Born Again - Season 2, Marvel Cinematic Universe, Marvel
+
+Sat, 21 Feb 2026 16:47:09 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-colleen-wing-return-jessica-henwick-response/
+
+With Krysten Ritter as Jessica Jones in Daredevil: Born Again season 2, an Iron Fist star candidly reveals whether they are in the new season too.
+---------
+
+# Jacob Elordi's Controversial New Movie Losing Its #1 Status To An Animated Underdog In Week 2
+
+Movies, Box Office, Wuthering Heights, GOAT
+
+Sat, 21 Feb 2026 16:42:50 GMT
+
+https://screenrant.com/wuthering-heights-goat-box-office-sophomore-weekend-competition-domestic-chart-report/
+
+Jacob Elordi's controversial new movie, which debuted at No. 1 last weekend, has been in a neck-and-neck race with a well-reviewed animated movie.
+---------
+
+# Super Rant Rewatch: 2008's Iron Man Really Was The MCU's Perfect Foundation
+
+Superheroes, Iron Man, Marvel Cinematic Universe, Avengers: Doomsday
+
+Sat, 21 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/super-rant-rewatch-2008-iron-man-the-perfect-mcu-foundation/
+
+Our Super Rant Rewatch of Marvel movies before Avengers: Doomsday has brought us to 2008's Iron Man this weekend (the MCU's perfect foundation).
+---------
+
+# How To Train Your Dragon 2's Faithfulness To $622M Animated Sequel Addressed By EP
+
+Movies, How To Train Your Dragon 2, How to Train Your Dragon
+
+Sat, 21 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/how-to-train-your-dragon-2-faithfulness-roy-lee/
+
+Exclusive: Executive producer Roy Lee offers a tease of How to Train Your Dragon 2 and how faithful it will be to the original animated hit.
+---------
+
+# The Pitt Season 2 Finally Hints At What's Really Going On With Dr. Al-Hashimi
+
+Streaming TV, The Pitt
+
+Sat, 21 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/the-pitt-season-2-dr-al-hashimi-ptsd-clues/
+
+The Pitt season 2 has finally hinted at what's really going on with Dr. Al-Hashimi, tying into a larger theme of the new episodes.
+---------
+
+# Elden Ring's Official 2026 Return Has Gamers Torn
+
+Gaming, Elden Ring, PC
+
+Sat, 21 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/elden-ring-2026-tarnished-release-date-fan-reaction/
+
+Elden Ring fans are torn over the return of Elden Ring in 2026, with some arguing that they'd rather wait it out longer and others growing impatient.
+---------
+
+# Apple TV's Hit Mystery Series Returns With Disappointing Season 2 Rotten Tomatoes Score After Officially Going Beyond The Book
+
+TV, The Last Thing He Told Me
+
+Sat, 21 Feb 2026 16:29:51 GMT
+
+https://screenrant.com/the-last-thing-he-told-me-season-2-rotten-tomatoes-score-debut/
+
+The Last Thing He Told Me has returned with another season, but the reviews are disappointing as the series is officially moving on from the novel.
+---------
+
+# Ubisoft Confirms Iconic Franchise Comeback, & Fans Are Thrilled
+
+Gaming, Ubisoft, Triple-A Games, PC
+
+Sat, 21 Feb 2026 16:29:08 GMT
+
+https://screenrant.com/ubisoft-rayman-anniversary-comeback/
+
+There's probably more trouble ahead for Ubisoft, but CEO Yves Guillemot has promised one bright spot for long-time fans to look forward to.
+---------
+
+# 64 Years Later, Marvel Officially Unveils the New Advanced Iron Man
+
+Comics, Iron Man
+
+Sat, 21 Feb 2026 16:14:44 GMT
+
+https://screenrant.com/iron-man-new-tony-stark-replacement-design-aim/
+
+There's a new Iron Man in town, as Tony Stark clashes with his official replacement. Marvel just unveiled the "Advanced Iron Man,"
+---------
+
+# Scrubs Revival Rotten Tomatoes Score Unveiled
+
+TV, Scrubs, Rotten Tomatoes
+
+Sat, 21 Feb 2026 16:30:12 GMT
+
+https://www.cbr.com/scrubs-revival-rotten-tomatoes-score/
+
+Although some headlines dubbed the Scrubs revival as "millennial cringe," the show debuted with a strong Rotten Tomatoes score.
+---------
+
+# 10 Best Dragon Ball Super Moro Saga Fights, Ranked
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Sat, 21 Feb 2026 16:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-best-fights-moro-saga/
+
+Dragon Ball Super's Galactic Patrol Prisoner Saga is a formative storyline that's rich in character development, but also full of phenomenal fights.
+---------
+
+# 1 Elrond Line Spoiled the Shire's Fate in The Lord of the Rings Films
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring
+
+Sat, 21 Feb 2026 16:00:11 GMT
+
+https://www.cbr.com/peter-jackson-lotr-changed-elrond-quote-lore/
+
+The Lord of the Rings novel included some Elrond dialogue that hinted at the future, but Peter Jackson had a good reason to cut it from the films.
+---------
+
+# 10 Best Alien & Predator Games of All Time
+
+Games, Alien, Predator, retro games, Horror
+
+Sat, 21 Feb 2026 16:00:11 GMT
+
+https://www.cbr.com/best-alien-predator-video-games-list/
+
+Alien and Predator are iconic sci-fi horror franchises that have inspired many must-play games.
+---------
+
+# 23 Years Later, Dwayne Johnson’s Cult Buddy Comedy Is Moving to a New Streamer
+
+Movie News, Dwayne Johnson, Action, STARZ, The Rundown
+
+Sat, 21 Feb 2026 16:40:13 GMT
+
+https://collider.com/the-rundown-dwayne-johnson-cult-buddy-comedy-streaming-starz-march-2026/
+
+Dwayne Johnson's forgotten buddy action comedy, The Rundown, is heading to a new streamer. Find out where below.
+---------
+
+# Glen Powell’s ‘Succession’-Style Drama Is Off to a Rocky Start at the Box Office
+
+Movie News, Glen Powell, How to Make a Killing, Margaret Qualley, Succession
+
+Sat, 21 Feb 2026 16:32:12 GMT
+
+https://collider.com/glen-powell-succession-style-movie-how-to-make-a-killing-box-office-3-million/
+
+Glen Powell’s messy Succession-style A24 thriller, How to Make a Killing, is off to a rough start at the box office.
+---------
+
+# ‘Wuthering Heights’ Waltzes Past a Massive Box Office Milestone Despite Divisive Reviews
+
+Movie News, Wuthering Heights, Jacob Elordi, Margot Robbie, Emerald Fennell
+
+Sat, 21 Feb 2026 16:22:12 GMT
+
+https://collider.com/wuthering-heights-box-office-100-million-margot-robbie-jacob-elordi/
+
+Emerald Fennell’s Wuthering Heights adaptation continues bringing in audiences at the box office despite polarizing reviews.
+---------
+
+# Steven Spielberg’s $603 Million Alien Invasion Epic Is Changing Streamers
+
+Movie News, War of The Worlds, Tom Cruise, Steven Spielberg, Sci-Fi
+
+Sat, 21 Feb 2026 16:20:12 GMT
+
+https://collider.com/steven-spielberg-war-of-the-worlds-tom-cruise-sci-fi-alien-invasion-epic-streaming-starz-march-2026/
+
+Steven Spielberg's War of the Worlds, starring Tom Cruise and Dakota Fanning, is invading a new streaming platform in March. Find out more.
+---------
+
+# Margot Robbie’s Star-Making 180-Minute Crime Epic Starts a New Streaming Chapter
+
+Movie News, Margot Robbie, Leonardo DiCaprio, Martin Scorsese, The Wolf of Wall Street
+
+Sat, 21 Feb 2026 16:01:12 GMT
+
+https://collider.com/wolf-of-wall-street-margot-robbie-star-making-180-minute-crime-epic-streaming-starz-march-2026/
+
+Martin Scorsese's epic three-hour crime film The Wolf of Wall Street, which gave Margot Robbie a star-making role, is heading to a new streamer.
+---------
+
+# 'Predator: Badlands' Director Used 'Star Trek' as His "North Star"
+
+Interviews, Predator: Badlands, Dan Trachtenberg, Star Trek
+
+Sat, 21 Feb 2026 16:01:17 GMT
+
+https://movieweb.com/predator-badlands-director-star-trek-2009-emotional-north-star/
+
+Dan Trachtenberg's focus on emotion has helped revive the classic sci-fi/action franchise.
+---------
+
+# 'Neuromancer': The Future of Sci-Fi Television Brought to Life by Apple TV
+
+Features, Neuromancer, Upcoming Tease
+
+Sat, 21 Feb 2026 16:01:17 GMT
+
+https://movieweb.com/neuromancer-apple-tv-change-sci-fi/
+
+Apple TV+ is adapting William Gibson's prolific novel, and the timing couldn't be more relevant. Here's why this show will be a masterpiece.
+---------
+
 # Mortal Kombat Legends: Scorpion's Revenge Crowned Best Movie In Franchise
 
 Movies, Mortal Kombat Legends: Scorpion's Revenge, Recommendation
