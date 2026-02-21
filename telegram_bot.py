@@ -85,10 +85,6 @@ def wait_for_run_completion(run_id: str, timeout=300, interval=10) -> bool:
     raise TimeoutError("Workflow timeout")
 
 async def handle_url(update: Update, context: CallbackContext):
-if update.effective_chat.id != int(TELEGRAM_CHAT_ID):
-    await update.message.reply_text("Извини, я работаю только с владельцем.")
-    return
-    
     url = update.message.text.strip()
     
     if not url.startswith("http"):
