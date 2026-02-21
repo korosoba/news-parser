@@ -100,7 +100,7 @@ async def handle_url(update: Update, context: CallbackContext):
         return
     
     print(f"[handle_url] Получена ссылка от пользователя: {url}")
-    await update.message.reply_text(f"Обрабатываю статью:\n{url}")
+    await update.message.reply_text(f"Обрабатываю: {url}")
     
     try:
         await update.message.reply_text("Запускаю обработку... (1–3 минуты)")
@@ -112,8 +112,8 @@ async def handle_url(update: Update, context: CallbackContext):
             await update.message.reply_text("Workflow завершился с ошибкой. Проверь логи в GitHub Actions.")
             return
         
-        # Даём GitHub время на push файлов
-        await asyncio.sleep(15)
+        # Даём GitHub время на push файлов (увеличил для надёжности)
+        await asyncio.sleep(30)
         
         # Получаем список файлов в extracted_articles
         contents_url = f"https://api.github.com/repos/{GITHUB_OWNER}/{GITHUB_REPO}/contents/extracted_articles?ref=main"
@@ -122,14 +122,17 @@ async def handle_url(update: Update, context: CallbackContext):
             raise Exception(f"Не удалось получить список файлов: {resp.status_code} {resp.text}")
         
         files = resp.json()
-        report_file = None
-        for f in files:
-            if f["name"].startswith("extraction_report_") and f["name"].endswith(".json"):
-                report_file = f
-                break
         
-        if not report_file:
-            raise Exception("Не найден extraction_report.json")
+        # Ищем все report.json и сортируем по имени (timestamp в имени: YYYYMMDD_HHMMSS — по убыванию, чтобы взять самый новый)
+        report_files = [f for f in files if f["name"].startswith("extraction_report_") and f["name"].endswith(".json")]
+        if not report_files:
+            raise Exception("Не найден ни один extraction_report.json")
+        
+        # Сортировка: самый свежий — с самым большим timestamp в имени
+        report_files.sort(key=lambda f: f["name"], reverse=True)
+        report_file = report_files[0]  # берём первый (самый новый)
+        
+        print(f"[handle_url] Выбран самый свежий report: {report_file['name']}")
         
         # Скачиваем отчёт
         json_resp = requests.get(report_file["download_url"])
@@ -147,11 +150,13 @@ async def handle_url(update: Update, context: CallbackContext):
         if not summary_filename:
             raise Exception("В отчёте нет summary_file (Groq не сработал?)")
         
-        # Скачиваем саммари
-        raw_url = f"https://raw.githubusercontent.com/{GITHUB_OWNER}/{GITHUB_REPO}/main/extracted_articles/{summary_filename}"
-        summary_resp = requests.get(raw_url)
+        # Формируем raw-URL для скачивания
+        raw_summary_url = f"https://raw.githubusercontent.com/{GITHUB_OWNER}/{GITHUB_REPO}/main/extracted_articles/{summary_filename}"
+        
+        # Скачиваем
+        summary_resp = requests.get(raw_summary_url)
         if not summary_resp.ok:
-            raise Exception(f"Не удалось скачать саммари: {summary_resp.status_code}")
+            raise Exception(f"Не удалось скачать саммари: {summary_resp.status_code} {summary_resp.text}")
         
         temp_file = "temp_groq_summary.txt"
         with open(temp_file, "wb") as f:
@@ -163,11 +168,11 @@ async def handle_url(update: Update, context: CallbackContext):
         )
         
         os.remove(temp_file)
-        await update.message.reply_text("Готово! Присылай следующую ссылку, если хочешь.")
+        await update.message.reply_text("Готово! Если нужно — присылай следующую ссылку.")
     
     except Exception as e:
         await update.message.reply_text(f"Ошибка: {str(e)}")
-        print(f"[ERROR] {type(e).__name__}: {str(e)}")
+        print(f"Полная ошибка: {type(e).__name__}: {str(e)}")
 
 def main():
     app = Application.builder().token(TELEGRAM_BOT_TOKEN).build()
