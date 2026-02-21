@@ -6,6 +6,16 @@ from datetime import datetime
 from pathlib import Path
 import json
 
+import os
+
+try:
+    from groq import Groq
+    GROQ_AVAILABLE = True
+    print("Groq библиотека установлена и импортирована успешно")
+except ImportError:
+    GROQ_AVAILABLE = False
+    print("Библиотека groq НЕ установлена → саммаризация будет пропущена")
+
 def extract_article(url: str, output_dir: Path):
     """
     Скачивает статью по URL и сохраняет чистый текст + метаданные.
@@ -68,6 +78,27 @@ def extract_article(url: str, output_dir: Path):
 
         print(f"  Saved → {out_path}")
         print(f"  Text length: {len(text):,} characters")
+
+        # ────────────────────────────────────────────────
+        # Тестовый вызов Groq (минимальный)
+        # ────────────────────────────────────────────────
+        if GROQ_AVAILABLE and os.getenv("GROQ_API_KEY"):
+            try:
+                client = Groq()
+                # Самый простой запрос — проверка связи
+                test_response = client.chat.completions.create(
+                    messages=[{"role": "user", "content": "Скажи 'Groq работает!' на русском"}],
+                    model="llama-3.1-8b-instant",  # самая быстрая и дешёвая модель для теста
+                    max_tokens=20,
+                    temperature=0.0
+                )
+                test_text = test_response.choices[0].message.content.strip()
+                print(f"Groq тест успешен: {test_text}")
+            except Exception as e:
+                print(f"Groq тест НЕ удался: {type(e).__name__}: {str(e)}")
+        else:
+            print("Groq пропущен: библиотека или ключ недоступны")
+        # ────────────────────────────────────────────────
 
         return out_path, {
             "url": url,
