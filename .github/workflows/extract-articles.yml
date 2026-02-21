@@ -26,14 +26,14 @@ jobs:
       - name: Install dependencies
         run: pip install trafilatura requests
 
-      - name: Проверка наличия GROQ_API_KEY1
+      - name: Проверка наличия GROQ_API_KEY
         id: check_key
         run: |
-          if [ -z "${{ secrets.GROQ_API_KEY1 }}" ]; then
-            echo "GROQ_API_KEY1 не найден или пустой"
+          if [ -z "${{ secrets.GROQ_API_KEY }}" ]; then
+            echo "GROQ_API_KEY не найден или пустой"
             echo "has_key=false" >> $GITHUB_OUTPUT
           else
-            echo "GROQ_API_KEY1 найден (длина: ${#GROQ_API_KEY1})"
+            echo "GROQ_API_KEY найден (длина: ${#GROQ_API_KEY})"
             echo "has_key=true" >> $GITHUB_OUTPUT
           fi
 
