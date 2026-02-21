@@ -1,3 +1,267 @@
+# The Night Agent: Netflix's Action Thriller That Could Last Forever
+
+Streaming TV, The Night Agent
+
+Sat, 21 Feb 2026 17:46:19 GMT
+
+https://screenrant.com/night-agent-netflix-anthology-action-thriller-last-forever/
+
+Netflix is the frontrunner of television adaptations, but its acclaimed action thriller The Night Agent could theoretically never have to end.
+---------
+
+# All Oscars 2026 Best Actor Performances, Ranked Worst To Best
+
+New Movies, Oscars
+
+Sat, 21 Feb 2026 17:41:18 GMT
+
+https://screenrant.com/oscars-2026-best-actor-nominees-ranked-worst-best-list/
+
+The 2026 Oscars has a historically great Best Actor race, and ranking the five nominees is virtually impossible. I’m doing it anyway.
+---------
+
+# New Racing Movie Rival To Brad Pitt's F1 Rockets Up The Chart To Become 2026's #1 Movie Worldwide
+
+Movies, Box Office
+
+Sat, 21 Feb 2026 17:37:08 GMT
+
+https://screenrant.com/pegasus-3-china-box-office-debut-record/
+
+A new racing movie rival to F1 speeds past a major milestone at the global box office that makes it the highest-grossing movie of the year so far.
+---------
+
+# 8 Years Later, Marvel’s “Perfect” Spider-Man Movie Hits Harder Than Any MCU Blockbuster
+
+Comics, Spider-Man: Into The Spider-Verse, Spider-Man
+
+Sat, 21 Feb 2026 17:36:37 GMT
+
+https://screenrant.com/best-spider-man-movies-into-the-spider-verse-legacy/
+
+One Spider-Man movie has proven to be far more influential than any other in recent memory, and the fruits of its influence are only starting to grow.
+---------
+
+# Dakota Fanning’s 6-Part Netflix Thriller Is A Perfect Miniseries
+
+Classic TV, The Perfect Couple, Dakota Fanning
+
+Sat, 21 Feb 2026 17:31:19 GMT
+
+https://screenrant.com/the-perfect-couple-netflix-crime-drama-thriller-perfect-miniseries/
+
+Dakota Fanning is becoming the queen of TV thrillers, and her note-perfect Netflix miniseries makes the best of the actress's skill set.
+---------
+
+# 10 Most Expensive Lorwyn Eclipsed Magic: The Gathering Cards
+
+Gaming, Magic: The Gathering, tabletop games
+
+Sat, 21 Feb 2026 17:31:19 GMT
+
+https://screenrant.com/mtg-lorwyn-eclipsed-cards-worth-most-money/
+
+Magic: The Gathering's latest set shows that in-house sets still have plenty of value to offer for fans of the beloved tabletop card game.
+---------
+
+# After 86 Years, Batman is Ready to Break DC’s Most Sacred Rule
+
+Comics, Batman
+
+Sat, 21 Feb 2026 17:28:28 GMT
+
+https://screenrant.com/batman-sacred-rule-broken-robin-sidekick-future/
+
+Batman's main ongoing run is at a critical juncture, and with one iconic character seemingly out of the picture, Batman may be all alone soon.
+---------
+
+# 10 Best 'So Bad It's Good' Movies Of The Last 100 Years, Ranked
+
+Classic Movies, Ranking
+
+Sat, 21 Feb 2026 17:20:20 GMT
+
+https://screenrant.com/best-so-bad-its-good-movies-last-100-years/
+
+'So bad it's good' movies are entertaining for all the wrong reasons, and the best are fondly remembered for the pure joy they bring audiences.
+---------
+
+# The Night Agent Season 3’s Rose Replacement Was Not What I Was Expecting
+
+Streaming TV, The Night Agent
+
+Sat, 21 Feb 2026 17:15:18 GMT
+
+https://screenrant.com/the-night-agent-season-3-rose-replacement-isabel-character-genesis-rodriguez/
+
+Rose isn't involved in The Night Agent season 3, but her "replacement" character is not what viewers might expect when it comes to Peter's story.
+---------
+
+# The Dinosaurs Trailer
+
+TV, The Dinosaurs
+
+Sat, 21 Feb 2026 17:15:09 GMT
+
+https://screenrant.com/video/the-dinosaurs-trailer/
+
+Netflix releases the first trailer for The Dinosaurs.
+---------
+
+# Monarch: Legacy of Monsters Cast Talks Titans, Tim’s Secrets & Mae’s Glow-Up
+
+TV, Monarch: Legacy of Monsters
+
+Sat, 21 Feb 2026 17:15:12 GMT
+
+https://www.cbr.com/video/monarch-legacy-of-monsters-cast-talks-titans-tim-s-secrets-mae-s-glow-up/
+
+Monarch: Legacy of Monsters Season 2 gets deeper, bigger, and more personal.Anna Sawai, Kiersey Clemons, and Joe Tippett sit down with CBR Presents to unpack Titans, shifting loyalties, and the subtle character choices fans might have missed.
+---------
+
+# Neon Genesis Evangelion's Shinji Ikari Is Still Anime’s Worst Protagonist
+
+Anime, Neon Genesis Evangelion, The End Of Evangelion, mecha
+
+Sat, 21 Feb 2026 17:15:12 GMT
+
+https://www.cbr.com/neon-genesis-evangelion-shinji-ikari-worst-anime-mc/
+
+Shinji Ikari, the protagonist of Neon Genesis Evangelion, is a character who has divided fans since the series premiered in 1995.
+---------
+
+# Surprise Thriller Hit Barron's Cove Featured a Deleted Scene That 'Changes the Whole Film'
+
+CBR Exclusives, Barron's Cove
+
+Sat, 21 Feb 2026 17:10:31 GMT
+
+https://www.cbr.com/barrons-cove-deleted-scene-changes-whole-film/
+
+Writer and director Evan Ari Kelman breaks down the one deleted scene from Barron's Cove that would have driven home the moment that changes the film.
+---------
+
+# 28 Days Later: The Bone Temple Is Already Running Out of Steam on the Top 10 PVOD Charts
+
+Movies, 28 Years Later, 28 Years Later: The Bone Temple, 28 Days Later, 28 Weeks Later
+
+Sat, 21 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/28-years-later-bone-temple-streaming-success-apple-tv-february-2026/
+
+One of the most praised zombie horror franchises of all-time is following up a lackluster theater run with some streaming struggles.
+---------
+
+# Official Transformers Concept Art Reveals 2 New Autobots in Major Early Design Changes
+
+Anime, Transformers
+
+Sat, 21 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/transformers-universal-studios-concept-art-new-autobot-reveal/
+
+A new round of Transformers designs showcases previously unseen official art, and it involves two Autobots never glimpsed in the movies.
+---------
+
+# 10 Marvel Characters Whose Writing Made Them Iconic
+
+Superheroes, Marvel
+
+Sat, 21 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/marvel-characters-strong-writers-iconic-status/
+
+These Marvel characters earned their stardom thanks to excellent comic book writers.
+---------
+
+# Netflix’s 2-Part American Crime Series Is the Greatest of All Time
+
+TV Features, Mindhunter, David Fincher, Jonathan Groff, Holt McCallany
+
+Sat, 21 Feb 2026 17:47:12 GMT
+
+https://collider.com/mindhunter-netflix-american-crime-series-greatest-of-all-time/
+
+David Fincher's Netflix series, Mindhunter, delves into the origins of criminal profiling and features brilliant performances from its leads.
+---------
+
+# 12 Years Later, Denzel Washington’s Gritty CIA Thriller Is Reintroducing Itself on Streaming
+
+Movie News, Denzel Washington, Safe House, STARZ, Ryan Reynolds
+
+Sat, 21 Feb 2026 17:40:12 GMT
+
+https://collider.com/denzel-washington-safe-house-gritty-cia-thriller-streaming-starz-march-2026/
+
+Denzel Washington's critically divisive action thriller Safe House will soon be available to stream on a new platform. Find out where below.
+---------
+
+# Bradley Cooper’s 'Is This Thing On?' Tells the True Story of a Broken Marriage Saved by One Joke
+
+Movie Features, Will Arnett, Bradley Cooper, Is This Thing On?, Laura Dern
+
+Sat, 21 Feb 2026 17:36:12 GMT
+
+https://collider.com/is-this-thing-on-true-story-bradley-cooper-will-arnett/
+
+In Is This Thing On?, Bradley Cooper’s newest film, Will Arnett’s character is based on the true story of comedian John Bishop.
+---------
+
+# The 195-Minute Blockbuster That Ruled a Generation Is Making Waves on a New Streamer
+
+Movie News, Titanic, James Cameron, Leonardo DiCaprio, Kate Winslet
+
+Sat, 21 Feb 2026 17:20:12 GMT
+
+https://collider.com/titanic-generation-defining-195-minute-blockbuster-streaming-starz-march-2026/
+
+The generation-defining romance epic Titanic, starring Kate Winslet and Leonardo DiCaprio, is heading to a new streaming home. Find out more.
+---------
+
+# The ’90s Sci-Fi Hit That Defined a Generation Returns to Theaters
+
+Movie News, The Fifth Element, Bruce Willis, Gary Oldman, Milla Jovovich
+
+Sat, 21 Feb 2026 17:00:13 GMT
+
+https://collider.com/the-fifth-element-rewatchable-90s-sci-fi-classic-returning-to-theaters-july-2026/
+
+The Fifth Element, the iconic 1997 sci-fi movie starring Bruce Willis and Milla Jovovich, is set to return to theaters this summer. Get the details.
+---------
+
+# 'Monarch' Producer Tells How the Series Plants "Seeds" for the MonsterVerse
+
+Exclusives, Monarch: Legacy of Monsters, Monsterverse
+
+Sat, 21 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/monarch-producer-how-series-plants-seeds-for-monsterverse-films/
+
+Tory Tunnell describes the challenges of connecting the saga's film and TV components.
+---------
+
+# Mick Garris' 'Fear Itself' Remains a Missed Opportunity 18 Years Later
+
+TV News, fear itself, Streaming Recommendations, Stephen King
+
+Sat, 21 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/fear-itself-stephen-king-streaming-tubi/
+
+As a much tamer version of 'Masters of Horror, 'Fear Itself' had the potential for big things, but never got the chance to shine on NBC.
+---------
+
+# Why Quentin Tarantino Hated 'True Detective' Season 1
+
+Features, True Detective
+
+Sat, 21 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/quentin-tarantino-hated-true-detective/
+
+Quentin Tarantino, the filmmaker who has made popular movies such as 'Kill Bill' and 'Pulp Fiction' hated 'True Detective' Season 1.
+---------
+
 # Ranking Scream 7's Characters From Least To Most Likely To Die
 
 New Movies, Scream 7, Scream
