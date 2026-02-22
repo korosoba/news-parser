@@ -1,3 +1,58 @@
+# Xbox Game Pass New Free Day One Release Is "Great From Start To Finish"
+
+Gaming, Xbox Game Pass, PC, Triple-A Games, High on Life 2
+
+Sun, 22 Feb 2026 11:30:19 GMT
+
+https://screenrant.com/xbox-game-pass-new-free-day-one-hit/
+
+A brand-new day-one release has just arrived on Xbox Game Pass, and players are already praising it, saying it’s a great game “from start to finish.”
+---------
+
+# Wordle History: Today's Answer & All Past Words
+
+Gaming, Wordle, NYT Games
+
+Sun, 22 Feb 2026 11:00:19 GMT
+
+https://screenrant.com/wordle-history/
+
+Wordle is a simple daily word game that has taken the internet by storm. With only 6 chances to get the right answer, players may need a little help.
+---------
+
+# Star Trek: Starfleet Academy Introduces New Holiday: All-Worlds Day
+
+Streaming TV, Star Trek: Starfleet Academy, Star Trek
+
+Sun, 22 Feb 2026 11:00:18 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-all-worlds-day/
+
+Star Trek is replete with holidays, both fictional and in real life. Star Trek: Starfleet Academy adds a new day off to the franchise's growing list.
+---------
+
+# Fallout 4: Whispering Hills Is A Full-On Horror Experience To Scare You Senseless
+
+Gaming, Fallout 4, Fallout, Triple-A Games, PC
+
+Sun, 22 Feb 2026 11:00:18 GMT
+
+https://screenrant.com/fallout-4-whispering-hills-horror-fan-expansion/
+
+Fear typically isn't the dominant emotion in the Fallout universe, but this Fallout 4 overhaul definitely isn't for the faint of heart.
+---------
+
+# Prime Video's Controversial Justice Judy Continues a Historic 30-Year TV Trend
+
+TV, Judge Judy, Judy Justice, Prime Video
+
+Sun, 22 Feb 2026 11:00:12 GMT
+
+https://www.cbr.com/prime-video-controversial-justice-judy-historic-30-year-tv-trend/
+
+Millions tune in for Judge Judy's unique brand of law and stability in uncertain times, despite some controversy among fans.
+---------
+
 # Fallout Meets Baldur's Gate 3 In New RPG You Can Try Free Now
 
 Gaming, Steam, Indie Games, PC
