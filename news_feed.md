@@ -1,3 +1,267 @@
+# Superman & Lois: A 10/10 Superhero Show From Start To Finish
+
+Classic TV, Superman & Lois
+
+Sun, 22 Feb 2026 15:45:18 GMT
+
+https://screenrant.com/superman-and-lois-perfect-superhero-show-arrowverse/
+
+Some superhero shows flop, others are remembered as masterpieces, but The CW's 4-season drama Superman & Lois is truly one of the best of the best.
+---------
+
+# After 27 Years, The Baldur's Gate TV Show Can Finally Reveal What Happened To This Fan-Favorite Hero
+
+Streaming TV, Baldur's Gate
+
+Sun, 22 Feb 2026 15:45:18 GMT
+
+https://screenrant.com/baldurs-gate-show-xan-what-happened-reveal/
+
+It's been 27 years, but the Baldur's Gate franchise can still provide a proper end to this character's story via HBO Max's live-action show.
+---------
+
+# Sony Pictures Animation: The New Animation Powerhouse
+
+Movies, Op-Ed, Sony
+
+Sun, 22 Feb 2026 15:40:18 GMT
+
+https://screenrant.com/sony-pictures-animation-king-genre-best-movies/
+
+While Disney, Pixar, Studio Ghibli, and DreamWorks are still major players, it feels like Sony Pictures Animation is starting to take over the genre.
+---------
+
+# HBO's 2-Part Psychological Thriller Series Is One Of Its Best
+
+Streaming TV, Euphoria, HBO
+
+Sun, 22 Feb 2026 15:30:18 GMT
+
+https://screenrant.com/euphoria-hbo-best-pyschological-thriller-series/
+
+This 2-part HBO series reinvented teen drama. It became one of their most controversial shows, earning awards and a cult following along the way.
+---------
+
+# Resident Evil Leaks Tease Return Of Multiple Classic Games
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sun, 22 Feb 2026 15:30:18 GMT
+
+https://screenrant.com/resident-evil-10-remake-leaks/
+
+Resident Evil fans are in for a treat, as reputable leakers tease that several upcoming entries in the beloved franchise are only a short wait away.
+---------
+
+# 10/10 Sci-Fi Shows Are Rare, But Netflix's 4-Part Series Has Zero Bad Episodes
+
+Streaming TV, Love, Death & Robots, Netflix, Sci-Fi
+
+Sun, 22 Feb 2026 15:24:18 GMT
+
+https://screenrant.com/love-death-and-robots-no-bad-episodes-netflix-sci-fi/
+
+Netflix has created a true masterpiece with this four season animated sci-fi anthology that pushes every genre storytelling boundary.
+---------
+
+# Alexandra Daddario’s 3-Part Horror Series Gets Major Filming Update From Showrunner
+
+TV, Mayfair Witches
+
+Sun, 22 Feb 2026 15:17:08 GMT
+
+https://screenrant.com/mayfair-witches-season-3-filming-wrap/
+
+Alexandra Daddario's horror series is making a comeback as the showrunner has confirmed a filming update ahead of the release of Mayfair Witches.
+---------
+
+# 10 Romance Shows Better Than Bridgerton
+
+Streaming TV, Bridgerton
+
+Sun, 22 Feb 2026 15:15:18 GMT
+
+https://screenrant.com/romance-tv-shows-better-than-bridgerton/
+
+Bridgerton has taken the world by storm over the last six years, but there are many romantic alternatives for fans of Netflix's hit historical drama.
+---------
+
+# Jason Statham Stars In New Action-Comedy Similar To 2015's Spy
+
+Movies, Jason Statham, Spy, Explainer
+
+Sun, 22 Feb 2026 15:15:18 GMT
+
+https://screenrant.com/jason-statham-stole-my-bike-similar-spy/
+
+Jason Statham is starring in a new action-comedy where he is playing himself, and this role could be similar to his character in a 2015 film.
+---------
+
+# Tim Roth's 3-Part Crime Drama Series Is A Perfect Weekend Binge
+
+Classic TV, Lie to Me
+
+Sun, 22 Feb 2026 15:04:19 GMT
+
+https://screenrant.com/tim-roth-lie-to-me-crime-series-weekend-binge/
+
+Beyond its big star, this was one of the more unique procedurals of its time. It didn't get enough attention, but it can be binged in a weekend.
+---------
+
+# Bandai Namco Accidentally Leaks Dragon Ball Xenoverse 3
+
+Anime
+
+Sun, 22 Feb 2026 15:46:28 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-accidentally-leaks/
+
+A big Dragon Ball reveal was accidentally leaked by Bandai Namco in this major release update.
+---------
+
+# BAFTA Film Awards 2026: Complete Winners List
+
+Movies, awards
+
+Sun, 22 Feb 2026 15:16:09 GMT
+
+https://www.cbr.com/bafta-film-awards-2026-winners-list/
+
+The 2026 edition will be presented by actor Alan Cummings.
+---------
+
+# Shailene Woodley & Thomas Doherty Reveal Paradise’s Dark New Era
+
+TV, Paradise
+
+Sun, 22 Feb 2026 15:15:12 GMT
+
+https://www.cbr.com/video/shailene-woodley-thomas-doherty-reveal-paradise-s-dark-new-era/
+
+Paradise stars Shailene Woodley & Thomas Doherty talk Season 2 shakeups.From apocalypse optimism to full-on pessimism, the duo dives into how Paradise pushes its characters into darker, more vulnerable territory this season.
+---------
+
+# James Gunn Confirms Major DCU Plans for Superman & Batman
+
+Movies, Superman, Man of Tomorrow, Supergirl, DCU, DC Comics, Batman, The Batman, The Batman Part II
+
+Sun, 22 Feb 2026 15:11:58 GMT
+
+https://www.cbr.com/james-gunn-confirms-major-dcu-plans-for-superman-batman/
+
+James Gunn is fed up with reports about Superman and Batman, so he dropped major DCU updates that shut down false rumors.
+---------
+
+# Prime Video's Acclaimed Religious Series Is Back in the Top 10 on PVOD Ahead of Season 6
+
+TV, The Chosen
+
+Sun, 22 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/prime-video-religious-series-the-chosen-streaming-success-february-2026/
+
+As fans eagerly await new episodes of Prime Video's hit religious drama, the series is skyrocketing on the PVOD charts.
+---------
+
+# 27 Years Later, the Voyager Episode That Broke a Rare Star Trek Rule Hits Even Harder
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Sun, 22 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/rule-breaking-star-trek-voyager-episode-still-hard-hitting/
+
+The Doctor’s trust in his programming in this episode of Voyager leads to a tragic mistake, highlighting the dangers of blind faith in technology.
+---------
+
+# DC's 85-Episode Superhero Masterpiece Will Soon Stream for Free
+
+TV News, Batman: The Animated Series, Kevin Conroy, Mark Hamill, Cartoon Network
+
+Sun, 22 Feb 2026 15:40:12 GMT
+
+https://collider.com/batman-animated-series-superhero-masterpiece-streaming-tubi-march-2026/
+
+Batman: The Animated Series, a masterpiece of the superhero genre, is coming to a free streaming service next month. Find out more.
+---------
+
+# 'Masters of the Universe' Appears To Be Following the Formula of This 2023 Blockbuster
+
+Movie Features, Masters of the Universe, He-Man and the Masters of the Universe, Barbie, Mattel
+
+Sun, 22 Feb 2026 15:33:12 GMT
+
+https://collider.com/masters-of-the-universe-real-world-mattel-barbie/
+
+Mattel’s upcoming Masters of the Universe movie seems to be taking a page from their 2023 hit, Barbie.
+---------
+
+# Netflix's 10/10 Cyberpunk Sci-Fi Series Is a Forgotten Masterpiece
+
+TV Features, Altered Carbon, Netflix, Anthony Mackie, Joel Kinnaman
+
+Sun, 22 Feb 2026 15:29:12 GMT
+
+https://collider.com/altered-carbon-netflix-cyberpunk-sci-fi-series-forgotten-masterpiece/
+
+Netflix's groundbreaking cyberpunk masterpiece, Altered Carbon, deserves to be remembered despite being cancelled after just two seasons.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Misfire Still Tops Johnny Depp’s $100 Million Bomb
+
+Movie News, Rebecca Ferguson, Mercy, Johnny Depp, Transcendence
+
+Sun, 22 Feb 2026 15:20:33 GMT
+
+https://collider.com/rebecca-ferguson-mercy-overtakes-johnny-depp-transcendence-box-office-24-million/
+
+Well, at least Rebecca Ferguson’s latest sci-fi experiment passed Johnny Depp’s $100 million disaster at the box office.
+---------
+
+# 7 Years Later, Guy Ritchie’s Fantasy Remake Is Back in the Streaming Spotlight
+
+Movie News, Aladdin, Guy Ritchie, Will Smith, Disney Plus
+
+Sun, 22 Feb 2026 15:20:12 GMT
+
+https://collider.com/guy-ritchie-forgotten-fantasy-remake-aladdin-global-streaming-success-disney-plus-february-2026/
+
+7 years after a successful theatrical run, Guy Ritchie's completely forgotten Aladdin remake reanimates on streaming.
+---------
+
+# Steven Spielberg’s 10/10 Cult Sensation Reaches Free Streaming Next Month
+
+TV News, Pinky and the Brain, Cartoon Network, Steven Spielberg, Pinky, Elmyra, and the Brain
+
+Sun, 22 Feb 2026 15:00:12 GMT
+
+https://collider.com/steven-spielberg-pinky-and-the-brain-cult-classic-cartoon-network-streaming-tubi-march-2026/
+
+Executive produced by Steven Spielberg, the cult classic cartoon series Pinky and the Brain is coming to a free streaming service. Find out more.
+---------
+
+# Steven Bochco's 'Cop Rock' Remains a Misunderstood Experiment in TV
+
+TV News, Cop Rock, Cultural Reassessment, Steven Bochco
+
+Sun, 22 Feb 2026 15:01:17 GMT
+
+https://movieweb.com/cop-rock-steven-bochco-musical-police-drama/
+
+The world wasn't ready for a musical police procedural in 1990, but that doesn't mean 'Cop Rock' was a bad show.
+---------
+
+# 'The Boys' Season 5 Can't Kill Homelander Because of the Spin-off 'Gen V'
+
+Features, The Boys, Gen V
+
+Sun, 22 Feb 2026 15:01:17 GMT
+
+https://movieweb.com/the-boys-season-5-why-homelander-should-live/
+
+While 'The Boys' Season 5 is coming soon on Amazon Prime Video, Homelander (Antony Starr) needs to survive so he can appear in the spin-off 'Gen V.'
+---------
+
 # New Elvis Concert Movie's RT Audience Score Is Even Bigger Than Tom Hanks' Oscar-Nominated Biopic
 
 Movies, EPiC: Elvis Presley in Concert
