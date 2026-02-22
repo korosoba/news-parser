@@ -1,3 +1,223 @@
+# All 5 Cooper Hoffman Movies, Ranked
+
+Classic Movies, Cooper Hoffman
+
+Sun, 22 Feb 2026 21:45:19 GMT
+
+https://screenrant.com/cooper-hoffman-movies-best/
+
+In a just a few short years, Cooper Hoffman has solidified his reputation as one of Hollywood's most exciting up and coming young stars
+---------
+
+# The Haunting Of Hill House: Netflix's Best Horror Series
+
+Classic TV, The Haunting of Hill House
+
+Sun, 22 Feb 2026 21:30:19 GMT
+
+https://screenrant.com/the-haunting-of-hill-house-netflix-best-horror-series-masterpiece/
+
+Netflix now has a superb selection of TV series in the horror genre, but this modern classic remains a standout on the streaming platform.
+---------
+
+# MCU Theory Makes This Obscure 61-Year-Old Spider-Man Character Brand New Day's Villain
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Theory
+
+Sun, 22 Feb 2026 21:30:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-crime-master-villain-theory/
+
+Based on the synopsis, a rather obscure villain from Spider-Man's rogues' gallery could turn out to be Spider-Man: Brand New Day's villain.
+---------
+
+# The Elder Scrolls 6 Official Update Is Good News For Fallout 5
+
+Gaming, The Elder Scrolls 6, Fallout 5, The Elder Scrolls, Fallout, Triple-A Games
+
+Sun, 22 Feb 2026 21:30:19 GMT
+
+https://screenrant.com/fallout-5-creation-engine-elder-scrolls-6/
+
+News on The Elder Scrolls 6 is slow, but some key insight into Bethesda's proprietary engine is a promising sign for future games like Fallout 5.
+---------
+
+# The Witcher Getting Multiple New 2026 Releases, Starting This March
+
+Gaming, The Witcher, PC
+
+Sun, 22 Feb 2026 21:01:19 GMT
+
+https://screenrant.com/the-witcher-cd-projekt-red-new-releases-2026/
+
+The Witcher fans are getting multiple new releases starting this March, as CD Projekt Red gears up for The Witcher 4's release next year.
+---------
+
+# House of the Dragon Season 3's Trailer Explains George R.R. Martin's Absence
+
+TV, House of the Dragon, hbo, Game Of Thrones
+
+Sun, 22 Feb 2026 21:30:12 GMT
+
+https://www.cbr.com/house-of-the-dragon-trailer-explain-george-rr-martin-hbo-beef/
+
+House of the Dragon Season 3 has been highly anticipated, and now its latest trailer sheds light on George R.R. Martin's separation from it.
+---------
+
+# Frieren Season 2's New Demons are About to Make the Anime Much Darker
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 22 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/frieren-season-2-is-getting-darker-with-new-demons/
+
+Frieren: Beyond Journey's End Season 2 has been a fun and relaxing ride, but the anime is about to get darker.
+---------
+
+# Psychological Thriller Watching You Hits No. 2 on Global Disney+ Charts
+
+TV, Watching You, Disney+
+
+Sun, 22 Feb 2026 21:09:22 GMT
+
+https://www.cbr.com/watching-you-psychological-thriller-hulu-disney-plus-success-february-2026/
+
+The psychological thriller has quickly become a hit on Disney+, rising to the second most-watched show in just two days.
+---------
+
+# The Perfect Wednesday Replacement Becomes an Instant Global Hit on Netflix 7 Years Later
+
+Movies, Wednesday, The Addams Family
+
+Sun, 22 Feb 2026 21:00:13 GMT
+
+https://www.cbr.com/the-animated-addams-family-global-hit-netflix-february-2026/
+
+The Addams Family still has the it(t) factor
+---------
+
+# 6 Beloved ’90s Comfort Movies That Didn’t Age Well
+
+Movies, Forrest Gump, Space Jam, The Sandlot
+
+Sun, 22 Feb 2026 21:00:13 GMT
+
+https://www.cbr.com/beloved-90s-comfort-movies-didnt-age-well/
+
+The '90s were full of iconic gems that stood the test of time, but these 6 beloved movies from the era haven't aged as well as some fans remember.
+---------
+
+# 1998’s Divisive Sci-Fi Smash Is on Borrowed Time on Streaming
+
+Movie News, Godzilla, Sci-Fi, MonsterVerse
+
+Sun, 22 Feb 2026 21:40:13 GMT
+
+https://collider.com/godzilla-1998-controversial-sci-fi-remake-leaving-streaming-netflix-march-2026/
+
+The 1998 Godzilla reboot, which grossed $379 million worldwide despite harsh reviews, will leave streaming next month. Find out more here.
+---------
+
+# 5 Movie Masterpieces From the 2000s That Just Keep Getting Better
+
+Movie, Zodiac, Eternal Sunshine of the Spotless Mind, Mulholland Drive, Where the Wild Things Are
+
+Sun, 22 Feb 2026 21:27:12 GMT
+
+https://collider.com/2000s-movie-masterpieces-keep-getting-better/
+
+2000s movie masterpieces like In the Mood for Love and Where the Wild Things Are don't seem to get older; they just get better with each passing year.
+---------
+
+# Guy Ritchie’s 123-Minute War Drama Is on Borrowed Time on Streaming
+
+Movie News, Guy Ritchie, Guy Ritchie's The Covenant, War, Jake Gyllenhaal
+
+Sun, 22 Feb 2026 21:20:12 GMT
+
+https://collider.com/guy-ritchie-the-covenant-123-minute-war-drama-leaving-netflix-march-2026/
+
+Guy Ritchie’s The Covenant, which grossed just $21.9 million worldwide despite strong reviews, leaves Netflix U.S. soon. Read on for more.
+---------
+
+# Netflix’s Forgotten Bill Skarsgård Crime Miniseries Is the Perfect 6-Episode Weekend Binge
+
+TV Features, Bill Skarsgård, Netflix, Clark, TV Miniseries
+
+Sun, 22 Feb 2026 21:18:12 GMT
+
+https://collider.com/bill-skarsgard-clark-netflix-crime-miniseries-perfect-weekend-binge/
+
+Netflix's overlooked crime miniseries Clark, starring Bill Skarsgård, deserves more recognition for its unconventional storytelling.
+---------
+
+# ‘Game of Thrones’ Gave Us 1 Unforgettable Quote Every Season
+
+TV, Game Of Thrones, HBO, George R.R. Martin, Fantasy
+
+Sun, 22 Feb 2026 21:17:12 GMT
+
+https://collider.com/game-of-thrones-hbo-best-quotes-every-season/
+
+The HBO fantasy series Game of Thrones is filled with many iconic quotes, but there are some standout lines that truly define every season.
+---------
+
+# 10 Most Intimidating Alfred Hitchcock Villains, Ranked
+
+Movie, Alfred Hitchcock, Thriller, Villains, Anthony Perkins
+
+Sun, 22 Feb 2026 21:03:13 GMT
+
+https://collider.com/alfred-hitchcock-movie-villains-best-ranked/
+
+Alfred Hitchcock was known for excellent villains, with Mrs. Danvers, Norman Bates, and Bruno Antony among the most intimidating.
+---------
+
+# The Smartest 5-Part Sitcom in History Will Be Impossible To Stream After Next Month
+
+TV News, Arrested Development, The Arrested Development Documentary Project, Jason Bateman, Netflix
+
+Sun, 22 Feb 2026 21:00:13 GMT
+
+https://collider.com/arrested-development-smartest-5-part-sitcom-leaving-netflix-march-2026/
+
+Arrested Development will leave Netflix in the U.S. soon, removing all 84 episodes from the platform. Find out how long you have to watch the series.
+---------
+
+# 10 Hidden Gem Dramas That'll Break Your Heart
+
+Movie, Drama, The Place Beyond the Pines, Wildlife, The Quiet Girl
+
+Sun, 22 Feb 2026 20:57:12 GMT
+
+https://collider.com/hidden-gem-dramas-heartbreaking/
+
+Many dramas have crushed our souls over the years, with lesser-known gems like Vortex and The Quiet Girl proving to be quietly devastating.
+---------
+
+# Biggest Bollywood Flops of All Time
+
+Movie Lists
+
+Sun, 22 Feb 2026 21:01:18 GMT
+
+https://movieweb.com/biggest-bollywood-flops-of-all-time/
+
+When a viewer doesn’t connect with the content put to screen, even the greatest powers of the world cannot save a flick from crashing.
+---------
+
+# Sci-Fi Reboot 'V' Deserved Better Than 2 Seasons on Network Television
+
+TV News, V, Cultural Reassessment, Sci-Fi
+
+Sun, 22 Feb 2026 21:01:17 GMT
+
+https://movieweb.com/v-2009-remake-deserved-better-than-2-seasons/
+
+'V' was about 15 years too early, and probably would have fared much better in today's streaming landscape.
+---------
+
 # Netflix's 4-Part Crime Drama Is Already An Undisputed Classic
 
 Classic TV, Adolescence
