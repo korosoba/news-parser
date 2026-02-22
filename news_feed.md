@@ -1,3 +1,223 @@
+# John Wayne’s Last 10 Westerns, Ranked
+
+Classic Movies, John Wayne, Ranking
+
+Sun, 22 Feb 2026 16:55:18 GMT
+
+https://screenrant.com/john-wayne-last-westerns-ranked/
+
+The Duke was a consummate Hollywood star all the way up to the end, and some of his last 10 westerns offer the finest work of his career.
+---------
+
+# Every Season Of Apple TV's 3-Part Sci-Fi Series Is Perfect From Start To Finish
+
+Streaming TV, Foundation, Apple TV, Sci-Fi, Recommendation
+
+Sun, 22 Feb 2026 16:33:18 GMT
+
+https://screenrant.com/foundation-every-season-perfect-apple-tv-sci-fi/
+
+Perfect sci-fi shows are rare, even on a platform as competent with the genre as Apple TV, but this 3 season hit is absolutely flawless.
+---------
+
+# D&D Fans, Don't Sleep On This Amazing Upcoming 5e Release
+
+Tabletop, Dungeons & Dragons, Dungeons and Dragons
+
+Sun, 22 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/ready-set-encounter-vol-1-dnd-5e-daggerheart/
+
+An amazing 5e expansion is set to be released soon, and Dungeons & Dragons players and DMs won’t want to miss out on its upcoming contents.
+---------
+
+# Marvel Just Perfectly Explained Why Spider-Man Has A New Suit In Brand New Day
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 22 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/spider-man-brand-new-day-new-suit-explanation/
+
+Tom Holland's Peter Parker has a new suit in Spider-Man: Brand New Day, and Marvel has now perfectly explained why his costume has changed.
+---------
+
+# 10 Best Western Shows That Never Got The Attention They Deserved
+
+Classic TV
+
+Sun, 22 Feb 2026 16:30:18 GMT
+
+https://screenrant.com/best-western-shows-deserve-more-attention/
+
+The Western has a distinct feel, but its stories all bring their own flair to the genre. These installments flew criminally under the radar.
+---------
+
+# Margot Robbie's New Movie Becomes Her First Since Barbie To Hit Huge Global Box Office Milestone
+
+Movies, Box Office Milestone, Wuthering Heights
+
+Sun, 22 Feb 2026 16:26:53 GMT
+
+https://screenrant.com/wuthering-heights-2026-box-office-150-million-global-milestone/
+
+Margot Robbie's new movie hits a huge global box office milestone during its sophomore weekend, become her first to do so since 2023's Barbie.
+---------
+
+# 7 Years Later, Netflix’s 98% RT Thriller ‘Kingdom’ Is Still One Of Its Best Series
+
+Streaming TV, Netflix, Kingdom
+
+Sun, 22 Feb 2026 16:18:18 GMT
+
+https://screenrant.com/netflix-kingdom-thriller-best-series/
+
+7 years after its worldwide release, Netflix's original horror thriller Kingdom remains one of the streamer's best ever series after its cancellation.
+---------
+
+# It: Welcome to Derry Season 2 Update: HBO's Release Formula & Renewal Delays
+
+Streaming TV, It: Welcome to Derry
+
+Sun, 22 Feb 2026 16:15:19 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-delays-hbo-release-strategy/
+
+It: Welcome to Derry is one of HBO's biggest recent hits, and the wait for its renewal is even worse after the studio's recent release formula.
+---------
+
+# The Elder Scrolls 6 Gameplay Tease Has Gamers Seriously Happy
+
+Gaming, The Elder Scrolls
+
+Sun, 22 Feb 2026 16:00:18 GMT
+
+https://screenrant.com/elder-scrolls-6-gameplay-tease-fan-reaction/
+
+Bethesda's Todd Howard reveals The Elder Scrolls VI will go back to the series' classic gameplay style.
+---------
+
+# Demon Slayer: Infinity Castle Officially Returns, & It's Terrible News for Anime Fans
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Demon Slayer: Kimetsu no Yaiba
+
+Sun, 22 Feb 2026 16:45:05 GMT
+
+https://www.cbr.com/demon-slayer-new-movie-4dx-infinity-castle-streaming-delay/
+
+Demon Slayer is back in theaters with a new version of Infinity Castle, and it's not what anime fans were hoping for in 2026.
+---------
+
+# Russell Crowe's Gritty War World 2 Thriller Sets Netflix Release Date
+
+Movies, Nuremberg, Russell Crowe
+
+Sun, 22 Feb 2026 16:05:55 GMT
+
+https://www.cbr.com/russell-crowe-gritty-world-war-2-thriller-nuremberg-sets-netflix-release-date/
+
+It's one of Russell Crowe's best and most powerful movies to date, and we now know when the audience-praised film will land on Netflix.
+---------
+
+# The Best RPG Ending Is Still the Greatest 14 Minutes in Gaming History
+
+Games, Fallout New Vegas, Fallout, Video Games
+
+Sun, 22 Feb 2026 16:00:12 GMT
+
+https://www.cbr.com/best-rpg-ending-gaming-history-fallout-new-vegas/
+
+After more than a decade, one of this RPG's endings is still 100% unbeatable.
+---------
+
+# The Secret Life of Pets is Making a Netflix Comeback as the Perfect Toy Story Replacement
+
+Movies, The Secret Life of Pets, Toy Story, Netflix
+
+Sun, 22 Feb 2026 16:00:12 GMT
+
+https://www.cbr.com/netflix-the-secret-life-of-pets-comeback-perfect-toy-story-replacement/
+
+This Illumination film shares more than just a concept with Toy Story - it shares a powerful message about change and friendship.
+---------
+
+# Apple TV’s Sci-Fi Phenomenon Is the Sleeper Hit Everyone’s Binging
+
+TV News, Severance, Adam Scott, Ben Stiller, Apple TV
+
+Sun, 22 Feb 2026 16:40:12 GMT
+
+https://collider.com/severance-record-breaking-sci-fi-series-streaming-success-apple-tv-february-2026/
+
+Severance, Apple TV's record-breaking sci-fi series, has become an unmissable streaming sleeper hit ahead of the premiere of its next season.
+---------
+
+# For 3 Seasons, This Unexpected 'Friday the 13th' Show Had Nothing To Do With the Classic Horror Franchise
+
+TV Features, Horror, Friday the 13th: The Series, Friday the 13th, Paramount
+
+Sun, 22 Feb 2026 16:27:13 GMT
+
+https://collider.com/friday-the-13th-the-series-1980s-horror/
+
+In the 1980s, there was a horror series purposely named Friday the 13th: The Series that had nothing to do with Jason or Camp Crystal Lake.
+---------
+
+# This 6-Part Superhero Classic Lands on a New Free Streaming Home
+
+TV News, The Powerpuff Girls, Cartoon Network, Tubi, Superhero
+
+Sun, 22 Feb 2026 16:20:12 GMT
+
+https://collider.com/powerpuff-girls-6-part-superhero-classic-cartoon-network-series-streaming-tubi-march-2026/
+
+The classic superhero cartoon show The Powerpuff Girls is coming to a free streaming service next month. Find out more.
+---------
+
+# The 242-Minute DC Spectacle That Changed Hollywood Dominates Streaming
+
+Movie News, Zack Snyder's Justice League, Zack Snyder, HBO Max, Jason Momoa
+
+Sun, 22 Feb 2026 16:00:12 GMT
+
+https://collider.com/zack-snyders-justice-league-dc-industry-changing-epic-global-streaming-success-hbo-max-february-2026/
+
+Zack Snyder's cut of Justice League, DC's 242-minute industry-changing epic, is making waves on streaming years after it first premiered.
+---------
+
+# Margot Robbie’s 136-Minute Gothic Romance Tops Guy Ritchie’s Subversive Spy Thriller at the Box Office
+
+Movie News, Wuthering Heights, The Man From U.N.C.L.E., Guy Ritchie, Margot Robbie
+
+Sun, 22 Feb 2026 15:55:43 GMT
+
+https://collider.com/wuthering-heights-overtakes-guy-ritchie-the-man-from-uncle-box-office-150-million/
+
+Wuthering Heights has overtaken a beloved Guy Ritchie spy thriller at the box office despite divisive reviews.
+---------
+
+# 'Evil Dead Wrath' Goes Retro With New Filming Update
+
+Movie News, Evil Dead, Evil Dead Burn, Horror
+
+Sun, 22 Feb 2026 16:48:43 GMT
+
+https://movieweb.com/evil-dead-wrath-goes-retro-with-new-filming-update/
+
+We're getting a teaser for 'Evil Dead Wrath' before we even have a synopsis for 'Evil Dead Burn,' which is the next movie in the franchise.
+---------
+
+# Every New Movie and TV Show Coming to Netflix in March 2026
+
+Features, Netflix
+
+Sun, 22 Feb 2026 16:00:17 GMT
+
+https://movieweb.com/every-new-movie-tv-show-netflix-march-2026/
+
+Horror, mature romance, thriller, action, and aliens, Netflix's March 2026 line-up offers something for everyone.
+---------
+
 # Superman & Lois: A 10/10 Superhero Show From Start To Finish
 
 Classic TV, Superman & Lois
