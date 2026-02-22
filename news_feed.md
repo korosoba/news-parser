@@ -1,3 +1,234 @@
+# New Elvis Concert Movie's RT Audience Score Is Even Bigger Than Tom Hanks' Oscar-Nominated Biopic
+
+Movies, EPiC: Elvis Presley in Concert
+
+Sun, 22 Feb 2026 14:52:49 GMT
+
+https://screenrant.com/epic-elvis-presley-in-concert-rotten-tomatoes-audience-score/
+
+The Rotten Tomatoes Popcornmeter score of EPiC: Elvis Presley in Concert beats out the stellar audience score of Tom Hanks' Elvis biopic from 2022.
+---------
+
+# How To Make A Killing Ending Twist Explained By Director & Star Of Glen Powell's A24 Thriller
+
+Movies, How to Make a Killing
+
+Sun, 22 Feb 2026 14:45:22 GMT
+
+https://screenrant.com/how-to-make-a-killing-ending-explained-john-patton-ford-jessica-henwick/
+
+The twist ending of Glen Powell's A24 thriller How to Make a Killing is explained by star Jessica Henwick and director John Patton Ford.
+---------
+
+# Game 6, A Unique Baseball Movie Starring Michael Keaton & Robert Downey Jr.
+
+Movies, Game 6, Recommendation
+
+Sun, 22 Feb 2026 14:45:19 GMT
+
+https://screenrant.com/game-6-robert-downey-jr-michael-keaton-underrated-baseball-movie/
+
+Michael Keaton and Robert Downey Jr. starred in a small comedic thriller about baseball that features a pretty great cast.
+---------
+
+# What's Going On With The Next Planet Of The Apes Movie?
+
+Movies, Planet of the Apes, Kingdom of the Planet of the Apes
+
+Sun, 22 Feb 2026 14:30:18 GMT
+
+https://screenrant.com/kingdom-of-planet-of-the-apes-sequel-status-2027-release/
+
+After Kingdom of the Planet of the Apes, the franchise's future is unclear, but it all points to it having an exciting project in the near future.
+---------
+
+# GTA 6 Full List Of Side Activities Shows We'll Be Playing This Game For Years
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Sun, 22 Feb 2026 14:30:18 GMT
+
+https://screenrant.com/gta-6-all-side-missions-open-world/
+
+GTA VI is set to have a ton of different repeatable side activities and we couldn't be more excited to dive into them.
+---------
+
+# Hulu’s 8-Part Sci-Fi Thriller ‘Alien Earth’ With 94% RT Score Is a Must-Watch This Weekend
+
+Streaming TV, Hulu, Alien: Earth
+
+Sun, 22 Feb 2026 14:25:19 GMT
+
+https://screenrant.com/hulu-alien-earth-series-must-watch/
+
+Hulu's 8-part sci-fi thriller series Alien: Earth is one of the best shows of 2025. With a 94% Rotten Tomatoes score, it's a must-watch this weekend.
+---------
+
+# Stellan Skarsgård’s 10 Best Movies, Out Of All 100+ He’s Appeared In
+
+Classic Movies, Stellan Skarsgård
+
+Sun, 22 Feb 2026 14:15:19 GMT
+
+https://screenrant.com/stellan-skarsgrds-10-best-movies-out-of-all-100-hes-appeared-in/
+
+Stellan Skarsgård has left an undeniable mark on the movie industry, as he's consistently challenged himself with complex and emotionally rich roles
+---------
+
+# X-Men's Angel Transforms into Apocalypse's Horseman of Death
+
+Comics, X-Men
+
+Sun, 22 Feb 2026 14:00:19 GMT
+
+https://screenrant.com/x-men-angel-archangel-redesign-x-force-horseman-death/
+
+X-Men just transformed one of its greatest founding heroes, perfecting one of their most iconic designs after decades of waiting.
+---------
+
+# Zelda Meets Valheim And Studio Ghibli In Jaw-Dropping New Survival RPG
+
+Gaming, The Legend of Zelda, Studio Ghibli
+
+Sun, 22 Feb 2026 14:00:19 GMT
+
+https://screenrant.com/zelda-peaks-and-tides-new-survival-rpg/
+
+Of Peaks and Tides is an upcoming open-world survival game that has a truly beautiful art style and some nice features to boot.
+---------
+
+# HBO's Detective Thriller Has 4 Great Seasons, But Only 1 Is Truly Perfect
+
+TV, True Detective
+
+Sun, 22 Feb 2026 14:00:19 GMT
+
+https://screenrant.com/true-detective-only-first-season-hbo-masterpiece/
+
+Two cops struggle to unearth the twisted conspiracy behind a series of gruesome murders in this iconic psychological thriller that was never bettered.
+---------
+
+# These Classic DBZ Movies Are Unwatchable
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Sun, 22 Feb 2026 14:15:12 GMT
+
+https://www.cbr.com/unwatchable-classic-dragon-ball-z-movies-ranked/
+
+The worst DBZ movies give the impression that Akira Toriyama's legendary Shonen franchises is about nothing more than mindless fighting.
+---------
+
+# Game Of Thrones Stars' 'Weird' Reunion Movie Is Now Available on VOD
+
+Movies, The Dreadful
+
+Sun, 22 Feb 2026 14:00:12 GMT
+
+https://www.cbr.com/kit-harington-sophie-turner-dreadful-pvod-debut/
+
+Two Game of Thrones stars make an unlikely reunion in a new Gothic horror film that just arrived on VOD.
+---------
+
+# Tom Cruise's Edge of Tomorrow Is the Benchmark for Sci-Fi Action Movies
+
+Movies, Edge of Tomorrow, Sci-Fi, Action
+
+Sun, 22 Feb 2026 14:00:12 GMT
+
+https://www.cbr.com/edge-of-tomorrow-sci-fi-action-movie-benchmark/
+
+Tom Cruise's underrated 2014 sci-fi film deserves more credit for revolutionizing the genre.
+---------
+
+# A 112-Minute True-Story World War II Drama Is Netflix’s Latest Sleeper Hit
+
+Movie News, The Swedish Connection, Netflix, World War II, Schindler's List
+
+Sun, 22 Feb 2026 14:55:35 GMT
+
+https://collider.com/ww2-drama-the-swedish-connection-streaming-success-netflix-february-2026/
+
+Netflix’s 112-minute WW2 drama, The Swedish Connection, has become a streaming sleeper hit.
+---------
+
+# Russell Crowe’s $7 Million Military Thriller Finally Gets Its Due on Streaming
+
+Movie News, Land of Bad, Russell Crowe, Liam Hemsworth, William Eubank
+
+Sun, 22 Feb 2026 14:41:12 GMT
+
+https://collider.com/russell-crowe-military-thriller-land-of-bad-global-streaming-success-apple-tv-february-2026/
+
+Only 2 years after it first premiered, Russell Crowe's $7 million military thriller Land of Bad is finally getting its due on streaming.
+---------
+
+# In Just 3 Seasons, Alan Ritchson’s ‘Reacher’ Completely Rewrites a Major Action TV Problem
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Action
+
+Sun, 22 Feb 2026 14:33:12 GMT
+
+https://collider.com/reacher-tv-show-avoids-tortured-hero-trope-action-shows/
+
+Alan Ritchson's portrayal of Jack Reacher in the Prime Video series smartly avoids the common trope of the tortured action hero.
+---------
+
+# Taylor Sheridan’s Gritty 2-Part Western Keeps Breaking Records
+
+TV News, Taylor Sheridan, Landman, Billy Bob Thornton, Ali Larter
+
+Sun, 22 Feb 2026 14:27:16 GMT
+
+https://collider.com/landman-streaming-success-paramount-plus-top-10-record-milestone-200-days/
+
+Taylor Sheridan’s gritty oil drama, Landman, is still breaking streaming records on Paramount+.
+---------
+
+# The 2010s Sci-Fi Prequel That Won Fans Over Is Free To Watch Soon
+
+Movie News, Transformers, Bumblebee, Sci-Fi
+
+Sun, 22 Feb 2026 14:20:12 GMT
+
+https://collider.com/bumblebee-best-2010s-sci-fi-transformers-prequel-free-streaming-kanopy-march-2026/
+
+Bumblebee, the acclaimed Transformers prequel starring Hailee Steinfeld and John Cena, will be available to stream for free next month.
+---------
+
+# 8 Classic Movies That Feel Newly Relevant Again
+
+Movie, Classics, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, 1984, To Kill A Mockingbird
+
+Sun, 22 Feb 2026 14:16:12 GMT
+
+https://collider.com/classic-movies-newly-relevant/
+
+It’s a Wonderful Life, To Kill a Mockingbird, Citizen Kane, and more make up our list of classic movies that feel newly relevant again.
+---------
+
+# 11 Years Later, Mark Wahlberg’s Crowd-Pleasing Comedy Is Free To Watch
+
+Movie News, Mark Wahlberg, Will Ferrell, Daddy's Home, Comedy
+
+Sun, 22 Feb 2026 14:00:12 GMT
+
+https://collider.com/mark-wahlberg-daddys-home-crowd-pleasing-comedy-free-streaming-kanopy-february-2026/
+
+More than a decade after its theatrical release, Will Ferrell and Mark Wahlberg's Daddy’s Home is now available to stream for free. Read on for more.
+---------
+
+# Robin Williams' Brother Only Appeared in One Movie, but It Was a '90s Classic
+
+Movie Features, Robin Williams, Mrs. Doubtfire, Comedy
+
+Sun, 22 Feb 2026 13:56:12 GMT
+
+https://collider.com/robin-williams-brother-mrs-doubtfire/
+
+Robin Williams’ brother, Robert, only appeared in one of his films: 1993’s Mrs. Doubtfire.
+---------
+
 # All 4 Seasons Of This Sci-Fi Epic Are Note-Perfect From Start To Finish
 
 Classic TV, Sci-Fi, Recommendation
