@@ -1,3 +1,36 @@
+# Fallout Meets Baldur's Gate 3 In New RPG You Can Try Free Now
+
+Gaming, Steam, Indie Games, PC
+
+Sun, 22 Feb 2026 10:30:18 GMT
+
+https://screenrant.com/steam-free-fallout-baldurs-gate-3-new-rpg/
+
+Fallout and Baldur's Gate are two classics of the genre, but this new release manages to marry the two in a way that makes sense.
+---------
+
+# Hogwarts Legacy: Arena Breathes New Life Into The RPG
+
+Gaming, Hogwarts Legacy
+
+Sun, 22 Feb 2026 10:00:18 GMT
+
+https://screenrant.com/hogwarts-legacy-arena-battle-expansion-fans/
+
+Hogwarts Legacy: Arena is a unique mod that adds a dedicated duelling zone where you can face off against hordes of enemies.
+---------
+
+# 10 Marvel Comics Superheroes With the Worst Powers, Ranked
+
+Movie, Marvel Comics, X-Men, Marvel, MCU
+
+Sun, 22 Feb 2026 10:26:12 GMT
+
+https://collider.com/marvel-comics-superheroes-worst-powers-ranked/
+
+Explore the Marvel Comics universe and discover the superheroes with the most unusual and least desirable powers, from ForgetMeNot to Hindsight Lad.
+---------
+
 # HBO’s New 6-Part Fantasy Masterpiece Series Is the Perfect One-Night Weekend Watch
 
 Streaming TV, A Knight Of The Seven Kingdoms, HBO
