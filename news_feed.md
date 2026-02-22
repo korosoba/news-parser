@@ -1,3 +1,421 @@
+# The Witcher 3: Song Of Wind Is A "Mini Expansion" You Can Download Now
+
+Gaming, The Witcher 3: Wild Hunt
+
+Sun, 22 Feb 2026 05:00:26 GMT
+
+https://screenrant.com/witcher-3-song-of-wind-expansion-fan-made/
+
+Discover a new adventure in The Witcher 3: Wild Hunt with the free Song of Wind expansion.
+---------
+
+# Netflix's Original Zombie Hit with 89% RT Will Mark 2026's Biggest Streaming Comeback
+
+TV, All Of Us Are Dead
+
+Sun, 22 Feb 2026 04:50:18 GMT
+
+https://screenrant.com/all-of-us-are-dead-season-2-netflix-streaming-comeback-potential/
+
+One of Netflix's coolest Webtoon adaptations is coming back from the dead with a brand-new story for season 2.
+---------
+
+# A24's New Glen Powell Thriller Movie Based On 77-Year-Old Classic Is Dividing Critics & Audiences On Rotten Tomatoes
+
+Movies, How to Make a Killing, Glen Powell
+
+Sun, 22 Feb 2026 04:44:02 GMT
+
+https://screenrant.com/how-to-make-a-killing-movie-rotten-tomatoes-audience-score-glen-powell/
+
+A24's new R-rated thriller movie starring Glen Powell is sharply dividing critics and audiences on Rotten Tomatoes as it debuts in theaters.
+---------
+
+# 5 Best Crime Thrillers Like Reacher
+
+Streaming TV, Cross, Bosch, Jack Ryan, The Night Agent, Reacher, The Day of the Jackal
+
+Sun, 22 Feb 2026 04:13:37 GMT
+
+https://screenrant.com/crime-thriller-shows-like-reacher/
+
+Reacher is a unique addition to the action thriller genre, but a few other TV shows come close to capturing its stripped-down intensity and grit.
+---------
+
+# Netflix’s Bodies: The Perfect Dark Replacement?
+
+Classic TV, Dark, Bodies, Netflix
+
+Sun, 22 Feb 2026 03:30:18 GMT
+
+https://screenrant.com/netflix-dark-bodies-follow-up/
+
+One of the most ambitious sci-fi thrillers on Netflix from recent years not only tells a gripping story but also fills the void Dark left behind.
+---------
+
+# Only 1 Netflix Sci-Fi Show Is 10/10 In Nearly Every Episode
+
+Classic TV, Netflix, Dark
+
+Sun, 22 Feb 2026 03:00:29 GMT
+
+https://screenrant.com/netflix-dark-sci-fi-perfect-episodes/
+
+Almost all television shows experience narrative highs and lows, but one Netflix science fiction series rarely stumbles in its three-season runtime.
+---------
+
+# New Baldur's Gate 3 Mod Finally Gives Fan-Favorite Character A Glow-Up
+
+Gaming, Baldur's Gate 3, Baldur's Gate, Triple-A Games, PC
+
+Sun, 22 Feb 2026 03:00:29 GMT
+
+https://screenrant.com/baldurs-gate-3-mod-barcus-wroot-outfits/
+
+Baldur's Gate 3 isn't very kind to one of its most beloved characters, but a new mod makes up for the suffering with a surplus of style.
+---------
+
+# Mike Flanagan's Path To The Dark Tower: Via Carrie & The Mist Explained
+
+Streaming TV, Carrie, The Dark Tower, Mike Flanagan, Stephen King
+
+Sun, 22 Feb 2026 02:30:18 GMT
+
+https://screenrant.com/carrie-mike-flanagan-mist-dark-tower/
+
+Mike Flanagan needs to follow up his adaptations of Stephen King’s The Mist and Carrie with his highly-awaited “holy grail” horror remake series.
+---------
+
+# The Latest Update From The Evil Dead Franchise Shows How Brilliant The Long-Term Plan Is
+
+Movies, Evil Dead Burn, Evil Dead
+
+Sun, 22 Feb 2026 02:15:19 GMT
+
+https://screenrant.com/evil-dead-wrath-update-filming-franchise-plan-brilliant/
+
+Evil Dead Burn is set to light up theaters in summer 2026, but wheels are already turning on the franchise's future, which is set up for max success.
+---------
+
+# Christian Bale's Career-Defining Role 25 Years Ago Is Creating A Casting Headache For New Thriller Remake
+
+Movies, American Psycho, Christian Bale
+
+Sun, 22 Feb 2026 02:07:48 GMT
+
+https://screenrant.com/american-psycho-remake-patrick-bateman-actor-rejections-christian-bale-bret-easton-ellis/
+
+Oscar winner Christian Bale had one of his career-defining roles 25 years ago, but that's now creating a casting hurdle for a new thriller remake.
+---------
+
+# Pokémon FireRed and LeafGreen: How to Get Espeon & Umbreon
+
+Games, Pokemon
+
+Sun, 22 Feb 2026 04:55:12 GMT
+
+https://www.cbr.com/pokemon-firered-leafgreen-how-to-get-espeon-umbreon/
+
+Pokémon FireRed & LeafGreen return to the Kanto region, but two evolutions for the beloved Eevee, Espeon and Umbreon, are almost impossible to catch.
+---------
+
+# 10 Early One Piece Villains Fans Never Forgot
+
+Anime, One Piece
+
+Sun, 22 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/best-one-piece-villains-before-time-skip/
+
+Of the hundreds of original characters introduced throughout One Piece's story, some of the most unforgettable are the earliest villains.
+---------
+
+# Netflix's 2-Part Thriller Series With 97% on RT Is the Gold Standard for Single-Weekend Binges
+
+TV, Netflix, Mindhunter
+
+Sun, 22 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/netflix-mindhunter-perfect-weekend-binges/
+
+Netflix's Mindhunter is a perfect true crime series and even though it was canceled is still perfect for a weekend binge.
+---------
+
+# 10 Best Handtraps in Modern Yu-Gi-Oh!
+
+Games, Yu-Gi-Oh!
+
+Sun, 22 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/best-handtraps-modern-yugioh-list/
+
+These Yu-Gi-Oh! cards are the best way to interrupt an opponent's combos.
+---------
+
+# The Decision to Abandon Sixth Hokage Kakashi in Boruto Has Officially Ruined Naruto's Legacy
+
+Anime, Boruto: Naruto Next Generations, Boruto: Two Blue Vortex (2024), Manga, Naruto
+
+Sun, 22 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/naruto-legacy-sixth-hokage-kakashi-boruto-plot-hole/
+
+Boruto fans constantly argue over Naruto's legacy, but his flaw may be the nail in the coffin for the controversial sequel.
+---------
+
+# Smallville's 'Subterranean' Remains the Most Hard-to-Watch Episode
+
+TV, Smallville
+
+Sun, 22 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/smallville-subterranean-political-episode/
+
+Smallville's often-overlooked episode has taken on greater significance in today's political climate.
+---------
+
+# Ridley Scott Calls Overlooked Historical Epic Quest for Fire 'So Brilliant'
+
+Movies, Quest For Fire, Fantasy
+
+Sun, 22 Feb 2026 03:00:22 GMT
+
+https://www.cbr.com/ridley-scott-quest-for-fire-brilliant/
+
+Renowned director Ridley Scott believes that a forgotten fantasy film with an incredible Rotten Tomatoes score remains brilliant, and he's right!
+---------
+
+# The Golden Kamuy Final Season Anime Is the Craziest Shonen Anime Airing in 2026
+
+Anime, Golden Kamuy
+
+Sun, 22 Feb 2026 03:00:22 GMT
+
+https://www.cbr.com/golden-kamuy-final-season-best-new-gen-shonen-anime-2026/
+
+Golden Kamuy's final arc pushes the story's absurdity further than ever before, with every mood swing hitting harder as the story comes to a close.
+---------
+
+# HBO's Newest Targaryen Is Rewriting the Rules of Game of Thrones' Seven Kingdoms
+
+TV, A Knight Of The Seven Kingdoms, Fantasy
+
+Sun, 22 Feb 2026 02:45:12 GMT
+
+https://www.cbr.com/hbo-knight-of-the-seven-kingdoms-egg-targaryen-rewriting-game-of-thrones-rules/
+
+A Knight of the Seven Kingdoms reveals Egg as a Targaryen and proves how this changes many of the rules of the franchise going forward.
+---------
+
+# 10 Untouchable ‘80s Anime That Nobody Remembers
+
+Anime, Kimagure Orange Road, Sherlock Hound
+
+Sun, 22 Feb 2026 02:40:12 GMT
+
+https://www.cbr.com/best-forgotten-1980s-anime-no-one-remembers/
+
+The 1980s were a formative decade for anime and there are some hidden gems that don't get the attention that they deserve, despite their excellence.
+---------
+
+# These 10 Western Shows Would've Thrived in the Streaming Era
+
+TV, Western, Lonesome Dove, Deadwood, Longmire
+
+Sun, 22 Feb 2026 02:23:12 GMT
+
+https://collider.com/western-shows-better-for-streaming-era/
+
+Although they were popular at the time, Western series like Lonesome Dove, The Son, and Deadwood feel like they were meant to be streaming shows.
+---------
+
+# After 'Star Trek,' William Shatner Played a Crucial Role in This 3-Part Cult-Classic American Series
+
+TV Features, William Shatner, How the West Was Won, Western, Star Trek
+
+Sun, 22 Feb 2026 02:17:12 GMT
+
+https://collider.com/william-shatner-after-star-trek-how-the-west-was-won-western-tv-series/
+
+Star Trek legend William Shatner delivered a powerful performance in the cult-classic American Western series How the West Was Won.
+---------
+
+# 10 Most Ambitious Sci-Fi Shows, Ranked
+
+TV, Sci-Fi, Lost, Doctor Who, Andor
+
+Sun, 22 Feb 2026 02:05:12 GMT
+
+https://collider.com/ambitious-sci-fi-shows-ranked/
+
+Explore the most ambitious sci-fi TV shows that shaped the genre with their game-changing arcs, production, and characters, from Doctor Who to Lost.
+---------
+
+# HBO's Overlooked 5-Part Miniseries Had the Most Fun With One of America's Greatest Political Scandals
+
+TV Features, White House Plumbers, Woody Harrelson, Justin Theroux, HBO Max
+
+Sun, 22 Feb 2026 02:04:12 GMT
+
+https://collider.com/white-house-plumbers-hbo-miniseries-watergate-scandal-american-politics/
+
+HBO's White House Plumbers miniseries put a more satirical, funny spin on America's Watergate political scandal.
+---------
+
+# Kurt Cobain's Unexpected Feud With Guns N' Roses Started With This Controversial Song
+
+Music Features, Nirvana, Kurt Cobain, Guns N' Roses, Rock
+
+Sun, 22 Feb 2026 01:31:12 GMT
+
+https://collider.com/kurt-cobain-guns-n-roses-feud-explained/
+
+Nirvana's Kurt Cobain's disdain for Guns N' Roses was ignited by the controversial lyrics of their song 'One in a Million,' leading to a rivalry rooted in clashing ideologies and values.
+---------
+
+# Megan Fox’s Cult Horror Hit Is Moving Streamers as Sequel Buzz Builds
+
+Movie News, Megan Fox, Jennifer's Body, Horror, STARZ
+
+Sun, 22 Feb 2026 01:20:12 GMT
+
+https://collider.com/megan-fox-horror-cult-classic-jennifers-body-streaming-starz-march-2026/
+
+Megan Fox's 102-minute horror cult classic, Jennifer's Body, will be scaring a new streamer next month. Find out where below.
+---------
+
+# Jason Statham and Guy Ritchie’s Knockout Crime Caper Hits a Free Streamer Soon
+
+Movie News, Jason Statham, Guy Ritchie, Snatch, Brad Pitt
+
+Sun, 22 Feb 2026 01:01:12 GMT
+
+https://collider.com/guy-ritchie-jason-statham-snatch-classic-crime-caper-streaming-free-tubi-february-2026/
+
+Jason Statham and Guy Ritchie’s sophomore project, Snatch, will soon blast onto a free streamer. Find out more about the crime caper here.
+---------
+
+# A ‘Yellowstone’ Star’s Forgotten Crime Thriller Is Getting a Second Chance on Streaming
+
+TV News, Yellowstone, Breaking Bad, STARZ, After the Fall
+
+Sun, 22 Feb 2026 00:41:13 GMT
+
+https://collider.com/yellowstone-star-wes-bentley-forgotten-crime-thriller-after-the-fall-streaming-starz-march-2026/
+
+Yellowstone star Wes Bentley's 2014 drama After the Fall is streaming on a new platform next month. Find out where below.
+---------
+
+# Tom Hanks’ Beloved Baseball Drama Catches a New Streamer Next Month
+
+Movie News, A League of Their Own, Tom Hanks, Geena Davis, Madonna
+
+Sun, 22 Feb 2026 00:20:12 GMT
+
+https://collider.com/a-league-of-their-own-tom-hanks-sports-drama-streaming-tubi-march-2026/
+
+Tom Hanks’ beloved sports drama takes the field on a free streamer next month. Find out were to watch A League of Their Own here.
+---------
+
+# Apple TV Is Now Home to a 90% RT Sci-Fi Masterpiece That's Your Perfect Weekend Binge
+
+TV Features, Halt and Catch Fire, Mackenzie Davis, Lee Pace, AMC
+
+Sun, 22 Feb 2026 00:18:12 GMT
+
+https://collider.com/halt-and-catch-fire-amc-sci-fi-masterpiece-apple-tv-streaming/
+
+AMC's critically acclaimed series Halt and Catch Fire has recently gained renewed popularity on streaming, and it makes the perfect weekend binge.
+---------
+
+# 'Prison Break' Is an Underrated Crime Thriller Beloved by Stephen King
+
+Features, Stephen King, Cultural Reassessment, Prison Break
+
+Sun, 22 Feb 2026 03:01:17 GMT
+
+https://movieweb.com/prison-break-underrated-crime-thriller-stephen-king-fan/
+
+Stephen King recommended 'Prison Break,' the crime thriller TV show starring Dominic Purcell and Wentworth Miller, in his Entertainment Weekly column.
+---------
+
+# 'Wuthering Heights' Holds Off New Releases in Slow Box Office Weekend
+
+Movie News, Wuthering Heights
+
+Sun, 22 Feb 2026 02:57:03 GMT
+
+https://movieweb.com/wuthering-heights-continues-box-office-domination/
+
+Warner Bros. adaptation of Emily Brontë's classic novel holds onto the number one spot for two weekends in a row.
+---------
+
+# 9 'Lord of the Rings' Characters Who Deserve Their Own Prequel Movie
+
+Movie Lists, The Lord of the Rings
+
+Sun, 22 Feb 2026 02:00:17 GMT
+
+https://movieweb.com/lord-of-the-rings-characters-deserve-prequel-movie/
+
+With six live-action movies and more, these characters still haven't had their time in the spotlight.
+---------
+
+# 12 Movies Based on True Stories That Are Crazier Than Anything in Fiction
+
+Movie Lists, Drama, Horror, War
+
+Sun, 22 Feb 2026 01:31:17 GMT
+
+https://movieweb.com/movies-true-stories-crazier-fiction/
+
+These true stories are so bizarre they're almost unbelievable. Thankfully, these movies are here to tell the tale.
+---------
+
+# Netflix's DC Comics Dark Fantasy Series 'Lucifer' Is the Perfect 6-Part Binge-Watch on Streaming
+
+Features, Lucifer, Netflix, Streaming Recommendations
+
+Sun, 22 Feb 2026 01:00:18 GMT
+
+https://movieweb.com/lucifer-streaming-netflix-february-2026/
+
+After Fox cancelled it, Netflix saved 'Lucifer,' giving it three more seasons. The DC Comics series is still one of the best shows on streaming.
+---------
+
+# Why Roger Ebert Was Wrong About 2000s Movie 'The Skulls'
+
+Features, Quote, The Skulls
+
+Sun, 22 Feb 2026 01:00:18 GMT
+
+https://movieweb.com/the-skulls-roger-ebert-hated-underrated-movie/
+
+'The Skulls' was released in 2000 and starred Leslie Bibb, Paul Walker, and Joshua Jackson, and Roger Ebert gave it a bad review.
+---------
+
+# 'King Kong' Prequel 'Deep Rising' Almost Started the Monsterverse
+
+Features, King Kong, Monsterverse, Deep Rising, Cultural Reassessment
+
+Sun, 22 Feb 2026 00:00:16 GMT
+
+https://movieweb.com/deep-rising-king-kong-prequel-monsterverse/
+
+A 'King Kong' prequel tried to kick off a Monsterverse 28 years ago, but a troubled production spelled doom for the movie.
+---------
+
+# Steven Spielberg’s Forgotten Sci-Fi Series 'The Whispers' Is Deeply Scary and Unsettling
+
+TV News, Streaming Recommendations, Steven Spielberg, The Whispers, Holds Up
+
+Sun, 22 Feb 2026 00:00:16 GMT
+
+https://movieweb.com/steven-spielberg-tv-show-the-whispers/
+
+Creepy kids, an imaginary "friend," and Spielberg's rarely seen horror touch? Bring it on.
+---------
+
 # There's Only 1 Dragon Ball Z Retcon That Actually Made the Series Better
 
 Anime, Dragon Ball
