@@ -5,6 +5,9 @@ from flask import Flask, request
 from telegram import Update
 from telegram.ext import ApplicationBuilder, MessageHandler, filters, ContextTypes
 
+# =========================
+# ЛОГИ
+# =========================
 logging.basicConfig(level=logging.INFO)
 
 TELEGRAM_BOT_TOKEN = os.getenv("TELEGRAM_BOT_TOKEN")
@@ -12,9 +15,14 @@ TELEGRAM_BOT_TOKEN = os.getenv("TELEGRAM_BOT_TOKEN")
 if not TELEGRAM_BOT_TOKEN:
     raise RuntimeError("TELEGRAM_BOT_TOKEN не задан!")
 
+# =========================
+# FLASK
+# =========================
 web_app = Flask(__name__)
 
-# Создаём один event loop
+# =========================
+# TELEGRAM APPLICATION
+# =========================
 loop = asyncio.new_event_loop()
 asyncio.set_event_loop(loop)
 
@@ -31,14 +39,17 @@ async def handle_message(update: Update, context: ContextTypes.DEFAULT_TYPE):
 app.add_handler(MessageHandler(filters.TEXT & ~filters.COMMAND, handle_message))
 
 # =========================
-# STARTUP (ОДИН РАЗ)
+# STARTUP (Webhook setup)
 # =========================
 async def startup():
     await app.initialize()
     await app.start()
 
     render_url = os.environ.get("RENDER_EXTERNAL_URL")
-    webhook_url = f"{render_url}/{TELEGRAM_BOT_TOKEN}"
+    if not render_url:
+        raise RuntimeError("RENDER_EXTERNAL_URL не найден!")
+
+    webhook_url = f"{render_url}/webhook"
 
     await app.bot.delete_webhook(drop_pending_updates=True)
     await app.bot.set_webhook(webhook_url)
@@ -57,7 +68,7 @@ def health():
 # =========================
 # WEBHOOK ENDPOINT
 # =========================
-@web_app.route(f"/{TELEGRAM_BOT_TOKEN}", methods=["POST"])
+@web_app.route("/webhook", methods=["POST"])
 def webhook():
     update = Update.de_json(request.get_json(force=True), app.bot)
     loop.create_task(app.process_update(update))
