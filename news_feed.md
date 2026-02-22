@@ -1,3 +1,256 @@
+# Why Mighty Morphin Power Rangers' 2026 Reboot Introduces New Costumes After 33 Years
+
+Comics, Power Rangers
+
+Sun, 22 Feb 2026 17:52:18 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-new-costumes-reboot-explained/
+
+Over three decades since the iconic costumes made their debut and defined a franchise, the MMPR suits are getting a modernizing overhaul.
+---------
+
+# KPop Demon Hunters Just Silenced Any Doubt Over Its Oscars Status
+
+New Movies, KPop Demon Hunters, Oscars
+
+Sun, 22 Feb 2026 17:40:18 GMT
+
+https://screenrant.com/kpop-demon-hunters-movie-oscars-2026-annie-awards-reaction/
+
+It can be dangerous to be the frontrunner, but KPop Demon Hunters just proved there’s no reason to doubt it at the 2026 Academy Awards.
+---------
+
+# Why Dark Winds Can Never Fully Adapt The Leaphorn & Chee Books After Season 5 Renewal
+
+TV, Dark Winds, Dark Winds - Season 4
+
+Sun, 22 Feb 2026 17:29:34 GMT
+
+https://screenrant.com/dark-winds-leaphorn-chee-books-never-fully-adapt-zahn-mcclarnon/
+
+EXCLUSIVE: AMC has already renewed the critically acclaimed Dark Winds for season 5, but the source material can still never be completely adapted.
+---------
+
+# Bruce Willis' Wasted Wyatt Earp Movie Deserves A Remake 38 Years Later
+
+Movies, Sunset, Explainer
+
+Sun, 22 Feb 2026 17:15:19 GMT
+
+https://screenrant.com/sunset-movie-bruce-willis-wyatt-earp-waste-remake/
+
+Bruce Willis and James Garner once teamed for a Wyatt Earp movie with an incredible premise, but here's why it deserves a remake so many years later.
+---------
+
+# Netflix's 4-Part Supernatural Comedy Is One Of Its Best
+
+Streaming TV, The Good Place
+
+Sun, 22 Feb 2026 17:03:19 GMT
+
+https://screenrant.com/the-good-place-supernatural-comedy-aged-well/
+
+The Good Place stands out as a genre-defying comedy masterpiece that remains both hilarious and heartbreaking 10 years after its initial release.
+---------
+
+# TCG Card Shop Simulator Joins Xbox Game Pass on February 24
+
+Gaming, Xbox Game Pass, Indie Games
+
+Sun, 22 Feb 2026 17:00:19 GMT
+
+https://screenrant.com/tabletop-simulator-xbox-game-pass-release/
+
+Xbox Game Pass has released a day-one Early Access simulator ROG that's receiving Overwhelmingly Positive reviews from fans.
+---------
+
+# Marshals Review: Kayce Leaves The Duttons In The Past In Yellowstone's First Procedural
+
+Network TV, Yellowstone, Marshals
+
+Sun, 22 Feb 2026 17:00:19 GMT
+
+https://screenrant.com/marshals-season-1-review/
+
+Kayce Dutton returns in Marshals, showing what the Yellowstone franchise look like through network TV's most popular format — a police procedural.
+---------
+
+# Elden Ring Gets Official Huge Release On February 27
+
+Gaming, Elden Ring, PC
+
+Sun, 22 Feb 2026 17:00:19 GMT
+
+https://screenrant.com/elden-ring-nightreign-companion-guide-february-27/
+
+Elden Ring fans are getting an absolutely massive new release on February 27, 2026, and it's one that players don't want to miss out on.
+---------
+
+# Taylor Sheridan’s 8-Part Western Epic Is One Of His Best
+
+TV, Lawmen: Bass Reeves, Taylor Sheridan
+
+Sun, 22 Feb 2026 17:00:19 GMT
+
+https://screenrant.com/taylor-sheridans-8-part-western-epic-keeps-getting-better/
+
+In the midst of Sheridan's Western renaissance, one show was left behind, its potential untapped. Luckily, the series soon became a hit on Paramount+.
+---------
+
+# Evangelion Just Got Canned – And That's a Good Thing
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Sun, 22 Feb 2026 17:30:12 GMT
+
+https://www.cbr.com/evangelion-sapporo-can-design-release/
+
+In honor of 30 years of mecha excellence, Neon Genesis Evangelion is raising a frothy glass to a new branded collaboration with Sapporo beer.
+---------
+
+# 10 Marvel Villains That Must Appear In The MCU
+
+Comics, Marvel, Marvel Cinematic Universe
+
+Sun, 22 Feb 2026 17:30:12 GMT
+
+https://www.cbr.com/marvel-villains-that-need-to-be-in-mcu/
+
+The Marvel Cinematic Universe is in need of fresh, new villains. Here's who fans are dying to see come to life in one way or another.
+---------
+
+# Paradise Stars Reveal Their Apocalypse Survival Plans
+
+TV, Paradise
+
+Sun, 22 Feb 2026 17:15:12 GMT
+
+https://www.cbr.com/video/paradise-stars-reveal-their-apocalypse-survival-plans/
+
+Paradise cast talks season 2 twists and survival instincts in this candid roundtable with Nicole Brydon Bloom, Sarah Shahi, and Krys Marshall.The trio breaks down their dream apocalypse bunker spots, debating mall food courts versus practical water reserves, and what that says about their Paradise characters.
+---------
+
+# 5 Anime You Didn’t Know Aired on Nickelodeon
+
+Anime, Nickelodeon
+
+Sun, 22 Feb 2026 17:15:12 GMT
+
+https://www.cbr.com/forgotten-nickelodeon-anime/
+
+Nickelodeon isn't the first channel that comes to mind for anime fans, but it held some of the medium's greatest hidden gems no one remembers.
+---------
+
+# Hulu's Political Thriller Paradise Returns Season 2 Rotten Tomatoes Score Unveiled
+
+TV, Paradise, Rotten Tomatoes
+
+Sun, 22 Feb 2026 17:08:12 GMT
+
+https://www.cbr.com/hulu-paradise-season-2-rotten-tomatoes-score/
+
+The series was a major success when it came out in early 2025, and that seems to continue through Season 2.
+---------
+
+# The Expendables Franchise Just Arrived on Netflix
+
+Movies, The Expendables
+
+Sun, 22 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/netflix-expendables-franchise-new-streaming-home-february-2026/
+
+All four movies of this blockbuster smash action franchise have just arrived on Netflix, making for a perfect weekend movie marathon.
+---------
+
+# This A24 Medieval Fantasy Standout Will Be Free To Watch Soon
+
+TV News, The Green Knight, David Lowery, Dev Patel, A24
+
+Sun, 22 Feb 2026 17:41:12 GMT
+
+https://collider.com/the-green-knight-a24-medieval-fantasty-movie-free-streaming-kanopy-march-2026/
+
+A24’s bold medieval fantasy The Green Knight, starring Dev Patel and Alicia Vikander, will be available to stream for free this March.
+---------
+
+# This 1970's Horror Classic Is Stephen King’s Highest-Ranked Film on Rotten Tomatoes
+
+Movie Features, Carrie, Brian De Palma, Sissy Spacek, Stephen King
+
+Sun, 22 Feb 2026 17:23:12 GMT
+
+https://collider.com/carrie-stephen-king-highest-ranked-rotten-tomatoes-movie/
+
+The 1976 Brian de Palma horror classic Carrie is the highest-ranked Stephen King adaptation on Rotten Tomatoes.
+---------
+
+# A24’s Relentless Horror Masterpiece Is Landing on Free Streaming
+
+Movie News, Midsommar, Florence Pugh, A24, Horror
+
+Sun, 22 Feb 2026 17:20:13 GMT
+
+https://collider.com/midsommar-a24-relentless-horror-masterpiece-free-streaming-kanopy-march-2026/
+
+A24’s deeply unsettling horror film starring Florence Pugh, Midsommar, will be streaming free next month. Get all the details here.
+---------
+
+# What’s the Best Superhero Movie of All Time? Surely It’s One of These 10 Films
+
+Movie, Superhero, The Dark Knight, Spider-Man: Into The Spider-Verse, Superman
+
+Sun, 22 Feb 2026 17:06:12 GMT
+
+https://collider.com/best-superhero-movies/
+
+From The Dark Knight, to Spider-Man 2, to Logan, this list breaks down which superhero films truly earned their legacy and why they still matter.
+---------
+
+# Apple TV's Bingeworthy Sci-Fi Hit Resurfaces on Streaming After Exciting Update
+
+TV News, Monarch: Legacy of Monsters, Apple TV, Sci-Fi, Drama
+
+Sun, 22 Feb 2026 17:00:12 GMT
+
+https://collider.com/apple-tv-10-episode-sci-fi-hit-monarch-legacy-of-monsters-streaming-success-february-2026/
+
+Two years after it aired its season finale, Apple TV's sci-fi hit is seeing renewed interest ahead of a new season. Get all the details.
+---------
+
+# 'Marshals' Review: A Bold New Dutton Spin-Off Officially Rewrites Taylor Sheridan’s ‘Yellowstone’
+
+TV Reviews, Marshals, Luke Grimes, Gil Birmingham, Logan Marshall-Green
+
+Sun, 22 Feb 2026 17:00:12 GMT
+
+https://collider.com/marshals-review-yellowstone-spin-off-taylor-sheridan-kayce-dutton/
+
+Kayce Dutton's Yellowstone spin-off, Marshals, breaks away from the Taylor Sheridan mold, offering action-packed procedural drama.
+---------
+
+# Kurt Russell: 'Monarch' Season 2 Unleashes a Massive New Threat [Exclusive]
+
+Exclusives, Kurt Russell, Monarch: Legacy of Monsters, Monsterverse, Godzilla, King Kong
+
+Sun, 22 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/kurt-russell-monarch-season-2-threat/
+
+'Monarch: Legacy of Monsters' is back for Season 2, and star Kurt Russell is promising the biggest MonsterVerse threat yet.
+---------
+
+# The Best True-Crime Documentary Ever Made, 'The Jinx,' Actually Helped Catch the Criminal
+
+TV News, The Jinx: The Life And Deaths Of Robert Durst, Streaming Recommendations
+
+Sun, 22 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/true-crime-documentary-jinx-streaming-february-2026/
+
+The show is Andrew Jarecki's 'The Jinx,' and your mind will be blown.
+---------
+
 # John Wayne’s Last 10 Westerns, Ranked
 
 Classic Movies, John Wayne, Ranking
