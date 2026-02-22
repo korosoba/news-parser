@@ -1,3 +1,245 @@
+# Netflix's 4-Part Crime Drama Is Already An Undisputed Classic
+
+Classic TV, Adolescence
+
+Sun, 22 Feb 2026 20:30:19 GMT
+
+https://screenrant.com/adolescence-netflix-crime-drama-modern-classic/
+
+In 2025, Netflix released a four-part miniseries that took the world by storm, and it is already a classic, less than a year after its premiere.
+---------
+
+# 5 Final Fantasy Games Only True Fans Have Beaten
+
+Gaming
+
+Sun, 22 Feb 2026 20:30:19 GMT
+
+https://screenrant.com/final-fantasy-games-only-true-fans-can-beat/
+
+You really have to be a hardened veteran to beat these Final Fantasy games, as they'll stretch your fandom of the series to its limits.
+---------
+
+# 10 Greatest Documentary Movie Masterpieces Of The Last 100 Years, Ranked
+
+Movies, Blackfish, Hoop Dreams, Documentary, Man with a Movie Camera, Grizzly Man, Samsara, Baraka, Dear Zachary: A Letter to a Son About His Father, Man on Wire, Shoah
+
+Sun, 22 Feb 2026 20:25:20 GMT
+
+https://screenrant.com/best-documentary-movies-last-100-years-ranked/
+
+Epic, intimate, and unforgettable – these 10 documentary masterpieces reshaped cinema and proved real life can be more powerful than fiction.
+---------
+
+# Why Daredevil: Born Again Doesn't Crossover With The Rest Of The Marvel Cinematic Universe Explained By EP
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Sun, 22 Feb 2026 20:15:49 GMT
+
+https://screenrant.com/daredevil-born-again-not-crossover-marvel-cinematic-universe/
+
+Daredevil: Born Again showrunner Dario Scardapane discusses the series' unique place in the MCU, following a more local narrative in Hell's Kitchen.
+---------
+
+# Pokémon FireRed & LeafGreen On Switch Missing Much-Requested Online Play Feature
+
+Gaming, Pokemon, Pokemon FireRed and LeafGreen, Triple-A Games
+
+Sun, 22 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/pokemon-fire-red-leaf-green-no-online-play/
+
+Pokémon FireRed & LeafGreen are missing a key feature that would have brought the classic titles into the modern age of gaming, despite fan requests.
+---------
+
+# Resident Evil 0 Remake Leaves Gamers Divided
+
+Gaming, Resident Evil 0
+
+Sun, 22 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/resident-evil-0-remake-fan-reaction/
+
+More news about the upcoming Resident Evil 0 Remake has left fans disappointed at how long it will take to get their hands on it.
+---------
+
+# 10 Must-Watch Twilight Zone Episodes
+
+TV, The Twilight Zone
+
+Sun, 22 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/twilight-zone-episodes-better-modern-sci-fi-shows/
+
+The Twilight Zone may be in black-and-white, but it still feels as relevant now as ever, with these 10 episodes great examples of the show's peak.
+---------
+
+# HBO Max's Greatest Psychological Thriller Is This Quiet '97 Gem With 84% RT
+
+Anime, Perfect Blue
+
+Sun, 22 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/best-psychological-thriller-hbo-max-movie-perfect-blue-streaming/
+
+Discover Satoshi Kon's Perfect Blue, an animated masterpiece that blurs reality and delusion, expanding the possibilities of psychological horror.
+---------
+
+# 10 Most Underrated Comic Book Runs That Fans Haven't Praised Enough
+
+Comics, Marvel, DC Comics
+
+Sun, 22 Feb 2026 20:45:12 GMT
+
+https://www.cbr.com/most-underrated-comic-book-runs-nobody-talks-about/
+
+With so many comics for readers to choose from, plenty slip through the cracks, and these 10 are the most underrated books that nobody remembers.
+---------
+
+# Timothée Chalamet Confirms Dune 3 as His Final Film in the Franchise
+
+Movies, Dune: Part Three
+
+Sun, 22 Feb 2026 20:43:25 GMT
+
+https://www.cbr.com/timothe-chalamet-dune-3-final-film-franchise/
+
+The third installment in the Dune franchise will also be Denis Villeneuve's final film.
+---------
+
+# Demon Slayer: Infinity Castle Movie Trilogy Confirms Earliest Part 2 Release Date for 2027
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Sun, 22 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-part-2-earliest-release-date-2027/
+
+Ufotable's new official video confirms what Demon Slayer fans have been dreading -- that Infinity Castle Part 2 will not be out in 2026.
+---------
+
+# The Magicians Is a Mature Perspective on Harry Potter
+
+TV, The Magicians, Fantasy
+
+Sun, 22 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/the-magicians-mature-harry-potter-story/
+
+Harry Potter may be a timeless tale about love and friendship, but Syfy's The Magicians gave the Wizarding World a run for its money.
+---------
+
+# Eric Dane's Final Interview Becomes an Instant U.S. Streaming Hit on Netflix
+
+TV, Grey's Anatomy, Netflix
+
+Sun, 22 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/eric-dane-final-interview-famous-last-words-streaming-success-netflix-february-2026/
+
+The passing of Eric Dane was followed by an unexpected emotional video letter that has rightfully taken over Netflix.
+---------
+
+# Best South Korean Survival Series, Ranked
+
+TV, Sweet Home, All Of Us Are Dead, Squid Game
+
+Sun, 22 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/kdrama-survival-series-ranked/
+
+The golden era of K-Survival Dramas has incredible options for eager viewers looking for a thrill.
+---------
+
+# 'Mayor of Kingstown' Star's Military Masterpiece Is About To Exit Streaming
+
+Movie News, The Hurt Locker, Anthony Mackie, Kathryn Bigelow, War
+
+Sun, 22 Feb 2026 20:41:12 GMT
+
+https://collider.com/mayor-of-kingstown-star-jeremy-renner-military-masterpiece-the-hurt-locker-leaving-netflix-february-2026/
+
+The Hurt Locker, Kathryn Bigelow’s six-time Oscar-winning war thriller starring Jeremy Renner, is departing Netflix soon. Read on for more.
+---------
+
+# 8 Greatest Robert Duvall Movies To Stream for Free
+
+Movie, Robert Duvall, Bullitt, Apocalypse Now, The Eagle Has Landed
+
+Sun, 22 Feb 2026 20:38:13 GMT
+
+https://collider.com/best-robert-duvall-movies-stream-for-free/
+
+Many of the late Robert Duvall's movies are streaming for free now, from masterpieces like Apocalypse Now to underrated gems like True Confessions.
+---------
+
+# Netflix’s 6-Part ‘Yellowstone’ Replacement Rewrites Taylor Sheridan’s Most Frustrating Western Habits
+
+TV Features, Yellowstone, Netflix, Territory, Kevin Costner
+
+Sun, 22 Feb 2026 20:30:13 GMT
+
+https://collider.com/netflix-territory-yellowstone-replacement-fixes-taylor-sheridan-westerns/
+
+Netflix's Territory surpasses Yellowstone in authentic Indigenous character portrayal, offering nuanced stories and complex relationships.
+---------
+
+# Clint Eastwood’s True-Crime Prison Drama Is Hitting Free Streaming
+
+Movie News, Escape from Alcatraz, Clint Eastwood, Danny Glover, Tubi
+
+Sun, 22 Feb 2026 20:20:12 GMT
+
+https://collider.com/escape-from-alcatraz-clint-eastwood-true-crime-prison-drama-free-streaming-tubi-march-2026/
+
+Clint Eastwood’s prison break film that’s based on a true story, Escape From Alcatraz, will soon come to a free streamer. Read on for more.
+---------
+
+# 10 Most Cerebral Romance Movies, Ranked
+
+Movie, Romance, Eternal Sunshine of the Spotless Mind, Amour, Her
+
+Sun, 22 Feb 2026 20:20:12 GMT
+
+https://collider.com/romance-movies-cerebral/
+
+Over the years, romance movies like The Handmaiden and Eternal Sunshine of the Spotless Mind have proven to be both engaging and thought-provoking.
+---------
+
+# Pedro Pascal's 2024 Sci-Fi Hit Is Getting Harder To Stream
+
+Movie News, The Wild Robot, Lupita Nyong'o, Animation, Pedro Pascal
+
+Sun, 22 Feb 2026 20:00:12 GMT
+
+https://collider.com/pedro-pascal-2024-sci-fi-hit-the-wild-robot-leaving-netflix-march-2026/
+
+Lupita Nyong’o and Pedro Pascal’s emotional sci-fi hit, The Wild Robot, won’t be easy to stream much longer. Find out more here.
+---------
+
+# 'American Psycho' Remake Struggling to Cast Patrick Bateman
+
+Movie News, American Psycho, Crime, Luca Guadagnino
+
+Sun, 22 Feb 2026 20:00:17 GMT
+
+https://movieweb.com/american-psycho-remake-struggling-lead-casting/
+
+Replacing Christian Bale is no easy task.
+---------
+
+# 'Strange New Worlds' Season 4 Needs To Be a Hit for 'Star Trek' To Survive
+
+Features, Star Trek, Star Trek: Strange New Worlds, Star Trek: Starfleet Academy
+
+Sun, 22 Feb 2026 20:00:17 GMT
+
+https://movieweb.com/star-trek-next-release-important/
+
+'Star Trek's modern era has been hit or miss so far, but if 'Strange New Worlds' Season 4 isn't a hit, the franchise is in trouble.
+---------
+
 # A Knight Of The Seven Kingdoms Season 1’s IMDb Score Inflates Near Game Of Thrones Level Ahead Of Finale
 
 TV, A Knight Of The Seven Kingdoms, A Knight of the Seven Kingdoms - Season 1, Game of Thrones
