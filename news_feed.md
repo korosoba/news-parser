@@ -1,3 +1,146 @@
+# A Knight Of The Seven Kingdoms Season 1’s IMDb Score Inflates Near Game Of Thrones Level Ahead Of Finale
+
+TV, A Knight Of The Seven Kingdoms, A Knight of the Seven Kingdoms - Season 1, Game of Thrones
+
+Sun, 22 Feb 2026 19:42:10 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-imdb-score-increase-game-of-thrones-comparison/
+
+Ahead of the season 1 finale, A Knight of the Seven Kingdoms experiences a huge boost with the IMDb score, which leans closer to Game of Thrones.
+---------
+
+# 21 Years Later, This Paranormal Police Procedural Might Be Patricia Arquette's Best Work
+
+Classic TV, Medium
+
+Sun, 22 Feb 2026 19:30:18 GMT
+
+https://screenrant.com/patricia-arquette-medium-paranormal-police-drama-best-work/
+
+Well before Severance, Patricia Arquette was already stealing scenes on a very different type of show that she carried for seven seasons.
+---------
+
+# Pokémon Black & White Next-Gen Remake Leaves Gamers Torn
+
+Gaming, Pokemon Black and White
+
+Sun, 22 Feb 2026 19:30:18 GMT
+
+https://screenrant.com/pokemon-black-white-remakes-30th-anniversary-fan-speculation/
+
+As rumors swirl about a potential Pokémon Black & White remake, fans are divided on whether this version will live up to the original 2010 release.
+---------
+
+# Martin Scorsese's What Happens At Night: Leonardo DiCaprio's Shutter Island Followup?
+
+Movies, Martin Scorsese, Leonardo DiCaprio, Shutter Island, Apple TV
+
+Sun, 22 Feb 2026 19:15:19 GMT
+
+https://screenrant.com/martin-scorsese-new-movie-shutter-island-follow-up/
+
+Martin Scorsese’s upcoming movie project, which stars Leonardo DiCaprio, seems like perfect follow-up to his brilliant 16-year-old thriller movie.
+---------
+
+# Predator: Badlands' Sequel Would Break A Surprising Franchise Trend
+
+Movies, Predator: Badlands
+
+Sun, 22 Feb 2026 19:05:19 GMT
+
+https://screenrant.com/predator-badlands-movie-returning-character-first-trend/
+
+Predator: Badlands set itself up for a sequel, and if it gets another installment, it would have one element that no other Predator film does.
+---------
+
+# 8 People Pleaser Anime Characters, Ranked from Mild Pushovers to Doormats
+
+Anime, Demon Slayer: Kimetsu no Yaiba, One Piece, Doraemon, Komi Can't Communicate, My Hero Academia, Attack On Titan, Fruits Basket, Bleach
+
+Sun, 22 Feb 2026 19:50:18 GMT
+
+https://www.cbr.com/biggest-people-pleaser-characters-in-anime-ranking/
+
+Some anime characters are too nice for their own good, reducing even the greatest heroes to doormats in the wrong context.
+---------
+
+# Toy Story 5 Is Officially the End of an Era for Disney
+
+Movies, Toy Story 5, Disney, pixar
+
+Sun, 22 Feb 2026 19:45:12 GMT
+
+https://www.cbr.com/disney-toy-story-5-end-of-an-era/
+
+After a string of experimental films and TV shows, Disney's slate suggests a shift back to nostalgia, familiarity, and well-established franchises.
+---------
+
+# Judd Winick and Tom Raney's Outsiders is a Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, outsiders, Batman, DC Comics
+
+Sun, 22 Feb 2026 19:39:59 GMT
+
+https://www.cbr.com/dc-outsiders-vol-3-comic-you-should-be-reading/
+
+A new generation takes on an old mantle, but their proactive approach to stopping villains comes with dark, unexpected consequences.
+---------
+
+# Frieren Hits the Slopes In New Viral Cosplay
+
+Anime, Frieren: Beyond Journey's End, cosplay
+
+Sun, 22 Feb 2026 19:30:12 GMT
+
+https://www.cbr.com/frieren-snowboard-cosplay-winter-2026/
+
+Frieren swaps spellcasting for snowboarding in a viral cosplay video that's sure to heat up any anime fan this winter.
+---------
+
+# 8 Classic Shows That Feel Newly Relevant Again
+
+TV, Classics, The Golden Girls, The West Wing, Seinfeld
+
+Sun, 22 Feb 2026 19:49:13 GMT
+
+https://collider.com/classic-shows-newly-relevant/
+
+The West Wing, The Twilight Zone, The Golden Girls, The X-Files, and more make up our list of classic shows that feel newly relevant again.
+---------
+
+# 14 Years Later, Jason Statham's Hard-Hitting Crime Caper Is Free To Stream Next Month
+
+Movie News, Jason Statham, Safe, James Hong, Tubi
+
+Sun, 22 Feb 2026 19:40:12 GMT
+
+https://collider.com/jason-statham-hard-hitting-crime-caper-safe-streaming-tubi-march-2026/
+
+Jason Statham’s lesser-seen action thriller, Safe, is set to arrive on a free streamer next month. Read on for more details.
+---------
+
+# The Faith-Based Epic That Walked So 'The Chosen' Could Run Is Leaving Netflix
+
+Movie News, The Passion of the Christ, The Resurrection of the Christ Part 1, Mel Gibson, The Passion of the Christ: Resurrection - Chapter 1
+
+Sun, 22 Feb 2026 19:20:12 GMT
+
+https://collider.com/the-passion-of-the-christ-mel-gibson-biggest-faith-based-epic-the-chosen-replacement-leaving-netflix-end-of-february/
+
+The Passion of the Christ, the highest-grossing faith-based film ever made, is departing Netflix at the end of February. Find out more here.
+---------
+
+# 10 Scariest Monsters in Fantasy Movies, Ranked
+
+Movie, Fantasy, Pan's Labyrinth, Harry Potter and the Prisoner of Azkaban, The Witches
+
+Sun, 22 Feb 2026 19:11:12 GMT
+
+https://collider.com/scariest-monsters-fantasy-movies-ranked/
+
+From The Lord of the Rings' Shelob to Legend's Darkness, these are the most terrifying fantasy movie monsters that come straight from your nightmares.
+---------
+
 # Hollow Knight: Silksong - Delivery Quests Guide: Routes, Rewards & Tips
 
 Gaming, Hollow Knight: Silksong, Indie Games, PC
