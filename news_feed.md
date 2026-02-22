@@ -1,3 +1,256 @@
+# DC’s Most Tragic Love Story Is the One The Flash Wants You to Forget
+
+DC Comics, The Flash, Barry Allen
+
+Sun, 22 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/dc-comics-most-tragic-love-story-flash-fiona-webb-wife/
+
+Has Barry Allen's second greatest love been put back in witness protection?
+---------
+
+# Supernatural Episodes That Have Aged Well Over Time
+
+Classic TV, Supernatural
+
+Sun, 22 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/supernatural-episodes-aged-like-fine-wine/
+
+Many Supernatural episodes have stood the test of time, offering fresh insights and enjoyment for fans revisiting the show's best moments.
+---------
+
+# 12 Near-Perfect Anime That Are Definitely Not for Kids
+
+Anime
+
+Sun, 22 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/best-dark-anime-not-meant-for-kids-mature-list/
+
+Explore 12 anime series that delve into dark themes and mature storytelling, best suited for adults seeking complex narratives and intense content.
+---------
+
+# 10 Best Director Oscar Wins That Are Indisputable
+
+Classic Movies, Oscars
+
+Sun, 22 Feb 2026 23:25:19 GMT
+
+https://screenrant.com/oscars-best-director-winners-indisputable/
+
+The Best Director category at the Academy Awards is one of the most hotly contested, and only a handful of directors' wins have been indisputable.
+---------
+
+# Daniel Radcliffe Says HBO Harry Potter Series Changed His Life
+
+TV, Harry Potter, Daniel Radcliffe
+
+Sun, 22 Feb 2026 23:09:51 GMT
+
+https://screenrant.com/daniel-radcliffe-harry-potter-hbo-series-changed-life/
+
+Daniel Radcliffe revealed how he would be changing the way he handles his career due to HBO's upcoming Harry Potter reboot series.
+---------
+
+# Black Clover: 10 Strongest Characters in the Final Arc, Ranked
+
+Anime, Black Clover, Black Clover - Season 1
+
+Sun, 22 Feb 2026 23:01:21 GMT
+
+https://screenrant.com/black-clover-10-strongest-characters-final-arc-manga/
+
+Discover the 10 most powerful characters dominating Black Clover's final arc, ranked by strength, abilities, and impact on the series.
+---------
+
+# 51 Years Ago, All In The Family Aired Its Most Important Episode
+
+Classic TV, All In The Family
+
+Sun, 22 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/all-in-the-family-jeffersons-moved-up-backdoor-pilot-explained/
+
+All in the Family had some heartfelt moments, but the most touching comes between Edith and Louise in the last episode before the Jeffersons move.
+---------
+
+# 5 Essential Clone Wars Episodes to Watch Before Binging Star Wars: Maul - Shadow Lord
+
+Star Wars, Star Wars: Maul - Shadow Lord, Star Wars: The Clone Wars
+
+Sun, 22 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/essential-clone-wars-episodes-to-watch-before-star-wars-maul/
+
+Prepare for the Shadow Lord's return with these classic Clone Wars episodes.
+---------
+
+# Fallout 4: Horizon Feels Like A Completely New Game
+
+Gaming, Fallout 4
+
+Sun, 22 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/fallout-4-horizon-expansion-new-game-fan-made/
+
+Fallout 4: Horizon is a hugely ambitious overhaul for Fallout 4 that combines a ton of mods to transform the gameplay experience.
+---------
+
+# 10 Naruto Villains Who Were Actually Right All Along
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 22 Feb 2026 23:40:12 GMT
+
+https://www.cbr.com/naruto-best-villains-who-were-right/
+
+Naruto's best villains had complex motives behind their actions, and characters like Itachi and Sasuke proved that, sometimes, the villains are right.
+---------
+
+# Must-Watch Heist Movies For Every Movie Buff
+
+Movies, Crime
+
+Sun, 22 Feb 2026 23:40:12 GMT
+
+https://www.cbr.com/classic-heist-movies-movie-buff-must-watch/
+
+When just narrowing down the definitive masterpieces that shaped the heist genre as fans know it, these five quickly come to mind.
+---------
+
+# JJK Modulo Chapter 23 Proves Gege Akutami Still Has No Idea How to End a Manga
+
+Anime, Jujutsu Kaisen Modulo, Jujutsu Kaisen
+
+Sun, 22 Feb 2026 23:29:47 GMT
+
+https://www.cbr.com/jujutsu-kaisen-modulo-chapter-23-review/
+
+Jujutsu Kaisen's sequel is closing in on its finale, and things aren't looking good for the franchise.
+---------
+
+# Titus Welliver's Bosch Is Required Viewing for Prime Video
+
+TV, Bosch, Prime Video
+
+Sun, 22 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/titus-welliver-bosch-prime-video-required-viewing/
+
+Titus Welliver has become a face of prestige TV, and this is especially true for Prime Video, making his thriller series a must-watch show.
+---------
+
+# Megan Fox’s Jennifer's Body Is Moving to Starz in March 2026
+
+Movies, Jennifer's Body
+
+Sun, 22 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/megan-fox-jennifers-body-starz-streaming-march-2026/
+
+It's killing boys — and the streaming game
+---------
+
+# Liam Neeson’s 26% Rotten Tomatoes Fantasy Epic Dominates Global Streaming
+
+Movie News, Wrath of the Titans, Clash of the Titans, Liam Neeson, Fantasy
+
+Sun, 22 Feb 2026 23:40:12 GMT
+
+https://collider.com/liam-neeson-fantasy-epic-wrath-of-the-titans-netflix-global-top-10-february-2026/
+
+Wrath of the Titans has surged to #7 on Netflix’s global chart, despite earning just 26% on Rotten Tomatoes upon release.
+---------
+
+# 8 Greatest Sci-Fi Shows With Zero Bad Episodes
+
+TV, Sci-Fi, From, Fallout, Severance
+
+Sun, 22 Feb 2026 23:28:12 GMT
+
+https://collider.com/sci-fi-shows-zero-bad-episodes/
+
+Fallout, Andor, Severance, Sense8, Invincible, and more make up our list of the best sci-fi shows with zero bad episodes.
+---------
+
+# Ridley Scott’s $403.4 Million Sci-Fi Epic Dominates Netflix Worldwide
+
+Movie News, Prometheus, Alien: Covenant, Ridley Scott, Sci-Fi
+
+Sun, 22 Feb 2026 23:21:12 GMT
+
+https://collider.com/ridley-scott-prometheus-sci-fi-alien-prequel-streaming-success-netflix-global-chart-february-2026/
+
+Prometheus has climbed to #1 on Netflix globally, years after grossing over $400 million at the box office and dividing audiences.
+---------
+
+# Timothée Chalamet's Oscar Chances Hit With Huge Blow Following BAFTA Shocker
+
+Movie News, Marty Supreme, Timothée Chalamet, BAFTAs, Oscars
+
+Sun, 22 Feb 2026 23:14:42 GMT
+
+https://collider.com/bafta-film-awards-2026-full-list-of-winners-timothee-chalamet-oscar-chances/
+
+Timothée Chalamet's Oscar chances hit with a huge blow following the BAFTAs upset with One Battle After Another.
+---------
+
+# 10 Best Crime-Mystery Shows of All Time, Ranked
+
+TV, Crime, Mystery, Mindhunter, Dept. Q
+
+Sun, 22 Feb 2026 23:13:12 GMT
+
+https://collider.com/best-crime-mystery-shows-ranked/
+
+Explore the top crime-mystery TV shows that are full of tension, character development, and great storytelling, from Mindhunter to Sharp Objects.
+---------
+
+# Prime Video’s Nail-Biting World War II Thriller Faces a Streaming Setback
+
+Movie News, The Tank, Prime Video, War, Thriller
+
+Sun, 22 Feb 2026 23:00:13 GMT
+
+https://collider.com/the-tank-nail-biting-world-war-2-thriller-sinks-on-streaming-charts-prime-video-february-2026/
+
+After a strong debut, the nail-biting WW2 thriller that dominated charts The Tank is now showing signs of relenting. Here's all you need to know.
+---------
+
+# Mike Flanagan Five Hit Netflix Shows in a Row - Can He Beat the Streak?
+
+Features, Mike Flanagan
+
+Sun, 22 Feb 2026 23:30:16 GMT
+
+https://movieweb.com/mike-flanagan-five-series-netflix-streak/
+
+Mike Flanagan's Netflix series streak is unparalleled by TV creators, with several binge-worthy horror shows produced year-to-year.
+---------
+
+# Netflix's 'Godless' Is the Perfect Western for Taylor Sheridan Fans Waiting for the Next 'Yellowstone' Spin-Off
+
+Features, Godless, Netflix, Streaming Recommendations
+
+Sun, 22 Feb 2026 23:00:17 GMT
+
+https://movieweb.com/godless-streaming-netflix-february-2026/
+
+Fans of Taylor Sheridan's 'Yellowstone' spin-off '1883' need to watch Netflix's underrated Western masterpiece, 'Godless.'
+---------
+
+# ‘The Night Agent’ Owes Everything to '24'
+
+Features, The Night Agent, 24
+
+Sun, 22 Feb 2026 23:00:17 GMT
+
+https://movieweb.com/night-agent-action-thriller-24-inspiration/
+
+Netflix's hit action thriller series, The Night Agent, has a similar style and tone to Fox's 2000s Emmy-winning show, 24.
+---------
+
 # Daniel Radcliffe Shuts Down Replacing Hugh Jackman As MCU Wolverine Amid Casting Rumors
 
 Superheroes, Marvel Cinematic Universe, X-Men
