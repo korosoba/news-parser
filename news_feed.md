@@ -1,3 +1,322 @@
+# Daniel Radcliffe Shuts Down Replacing Hugh Jackman As MCU Wolverine Amid Casting Rumors
+
+Superheroes, Marvel Cinematic Universe, X-Men
+
+Sun, 22 Feb 2026 22:40:27 GMT
+
+https://screenrant.com/x-men-daniel-radcliffe-hugh-jackman-mcu-wolverine-casting-rumors-debunked/
+
+Daniel Radcliffe addresses rumors of him replacing Hugh Jackman as Wolverine in the MCU and reveals whether he is interested in a superhero role.
+---------
+
+# Star Trek's New Show Doubles Down On Harry Potter Comparisons With A Classic Hogwarts Trope
+
+Star Trek, Explainer, Star Trek: Starfleet Academy
+
+Sun, 22 Feb 2026 22:31:20 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-hogwarts-trope-copy/
+
+Star Trek: Starfleet Academy has already earned comparisons to Harry Potter with its school-based setup, but now copies a classic Hogwarts trope.
+---------
+
+# Pokémon Yellow Kaizo Is A Brutal Challenge For Hardcore Fans
+
+Gaming, Pokemon Red and Blue, Pokemon
+
+Sun, 22 Feb 2026 22:30:19 GMT
+
+https://screenrant.com/pokemon-yellow-kaizo-rom-hack-challenge/
+
+If you've been yearning for more difficutly in Pokémon games, then give Pokémon Yellow Kaizo a try and put your skills to the ultimate test.
+---------
+
+# Super Rant's Weekend Post-Credits: Thor's MCU Future, Spider-Man 4's Time Jump, Lanterns, And More
+
+Movies, Marvel Cinematic Universe, DC Universe
+
+Sun, 22 Feb 2026 22:15:19 GMT
+
+https://screenrant.com/super-rant-weekend-post-credits-thor-mcu-future-spider-man-time-jump-lanterns/
+
+Super Rant's latest weekend round-up of Marvel and DC movie and television news from the last week, making sure you don't miss a thing.
+---------
+
+# Tomb Raider Meets Zelda In Lifted, A New RPG You Can Try Free Now
+
+Gaming, The Legend of Zelda, Tomb Raider, Indie Games, PC
+
+Sun, 22 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/tomb-raider-zelda-new-game-lifted/
+
+The Legend of Zelda and Tomb Raider fans should look forward to this indie dev's debut title, which is a love letter to the franchises and the 80s.
+---------
+
+# Star Wars: Galactic Racer Story Is Exactly What The Franchise Needs Right Now
+
+Gaming, Star Wars, Star Wars: Galactic Racer, Triple-A Games, PC
+
+Sun, 22 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/star-wars-galactic-racer-story-details-small/
+
+Galactic Racer is bringing the need for speed to a galaxy far, far away, and it's refreshing to see a narrative that's not overly ambitious.
+---------
+
+# 10 Most Iconic Quotes From Western Movies
+
+Classic Movies, Ranking, Tombstone
+
+Sun, 22 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/western-movies-quotes-iconic/
+
+There are some quotes that people hear and and immediately remember the Western movie that they came from, and these are the most iconic.
+---------
+
+# DC's Underrated Robin Tim Drake Finally Gets His Moment After 36 Years
+
+DC Comics, Robin, Batman
+
+Sun, 22 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/batman-robin-future-redemption-tim-drake-dc-comics-matt-fraction/
+
+Batman writer hints at a new solo comic run for DC Comics' most underrated Robin after 36 years of being overshadowed by his fellow crimefighters.
+---------
+
+# Paradise Season 2 Cast & Character Guide: Who's Joining Sterling K. Brown For Hulu's Sci-Fi Thriller
+
+Streaming TV, Paradise
+
+Sun, 22 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/paradise-season-2-cast-returning-characters/
+
+Paradise proved to be one of 2025's surprise hits, and with the show's return imminent, now is the perfect time to learn who's involved in season 2.
+---------
+
+# Tracker Season 3 Confirms an Exciting Reunion for Justin Hartley's Show
+
+TV, Tracker
+
+Sun, 22 Feb 2026 22:50:12 GMT
+
+https://www.cbr.com/tracker-season-3-justin-hartley-jon-huertas-this-is-us-reunion/
+
+Tracker Season 3 will reunite Justin Hartley with a This Is Us co-star, with the upcoming Tracker installment primed to be one of the series' best.
+---------
+
+# 10 Co-Op Games That Are Instantly Fun, Ranked
+
+Games, Video Games
+
+Sun, 22 Feb 2026 22:45:13 GMT
+
+https://www.cbr.com/co-op-games-instantly-fun-ranked-list/
+
+Amazing co-op games like Split Fiction are perfect to play with friends.
+---------
+
+# Star Trek: Deep Space Has Aged Perfectly
+
+TV, Star Trek, Star Trek: Deep Space Nine, Paramount Plus
+
+Sun, 22 Feb 2026 22:25:12 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-better-with-time/
+
+A Star Trek series that faced fan backlash and controversy when it debuted is now seen as one its best, and inspires modern shows today.
+---------
+
+# Dragon Ball Super: The Galactic Patrol is Already Doomed
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 22 Feb 2026 22:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-season-2-the-galactic-patrol-big-problem/
+
+Dragon Ball Super: The Galactic Patrol is being built on a weak foundation that can't hope to sustain itself.
+---------
+
+# Sony's Ex-CEO Admits Regret Over 2014 Comedy That Even a Former President Called a 'Mistake'
+
+Movies, The Interview
+
+Sun, 22 Feb 2026 22:13:32 GMT
+
+https://www.cbr.com/sony-the-interview-comedy-obama-mistake/
+
+Former Sony CEO explains why one of the most hotly-anticipated comedies of an entire decade was a massive misstep for the studio.
+---------
+
+# Kevin Eastman Returns To TMNT: The Last Ronin With Prequel and Threequel
+
+Comics, Teenage Mutant Ninja Turtles, Teenage Mutant Ninja Turtles: The Last Ronin
+
+Sun, 22 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/kevin-eastman-tmnt-the-last-ronin-prequel-threequel/
+
+Franchise co-creator Kevin Eastman breaks down the Teenage Mutant Ninja Turtles' impending return to the world of The Last Ronin.
+---------
+
+# 5 Perfect Sci-Fi Horror Movies to Stream Right Now
+
+Movies, Sci-Fi, Horror, Frankenstein, The Substance
+
+Sun, 22 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/perfect-sci-fi-horror-movies-now-streaming/
+
+These sci-fi horror films are perfect for fans of either genre, and they're all available to stream right now.
+---------
+
+# Avatar: The Last Airbender Suddenly Gains New Urgency at Paramount
+
+Anime, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender, Paramount, Artificial Intelligence
+
+Sun, 22 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-paramount-ai-urgency/
+
+The upcoming Avatar: The Last Airbender sequel film's schedule change comes amid Paramount's new push to protect some of its biggest IP.
+---------
+
+# Of ‘One Battle After Another’s Supporting Characters, This Performance Deserved More Credit
+
+Movie Features, Regina Hall, Paul Thomas Anderson, One Battle After Another, Leonardo DiCaprio
+
+Sun, 22 Feb 2026 22:55:12 GMT
+
+https://collider.com/one-battle-after-another-regina-hall-supporting-performance/
+
+One Battle After Another has a lot of great supporting characters, but Regina Hall's Deandra deserves more credit than she's received.
+---------
+
+# The David Bowie Song That Now Sounds Like His Most Vulnerable and Honest Lyrics
+
+Music Features, David Bowie, Music, Rock, Billboard Hot 100
+
+Sun, 22 Feb 2026 22:52:55 GMT
+
+https://collider.com/david-bowie-be-my-wife-most-vulnerable-lyrics/
+
+David Bowie lays himself bare, turning a simple plea for love into a painfully honest portrait of loneliness during his Berlin years.
+---------
+
+# The Most Haunting World War II Film of the Century Will Be Free To Stream Next Month
+
+Movie News, The Zone of Interest, Jonathan Glazer, Sandra Hüller, War
+
+Sun, 22 Feb 2026 22:40:12 GMT
+
+https://collider.com/the-zone-of-interest-most-haunting-world-war-2-film-free-streaming-kanopy-march-2026/
+
+The Oscar-winning World War 2 drama The Zone of Interest will be free to stream next month. Find out where to watch the film here.
+---------
+
+# Time Is Running Out To Watch the Worst Sci-Fi Movie of All Time
+
+Movie News, John Travolta, Battlefield Earth, Sci-Fi, War
+
+Sun, 22 Feb 2026 22:20:13 GMT
+
+https://collider.com/battlefield-earth-john-travolta-worst-sci-fi-movie-of-all-time-leaving-netflix-end-of-february-2026/
+
+Battlefield Earth, widely considered one of the worst sci-fi movies ever made, is leaving Netflix at the end of February. Read on for details.
+---------
+
+# Tom Hardy’s Divisive 6-Part Period Series Is More Impressive Than Its Forgotten RT Score
+
+TV Features, Great Expectations, Tom Hardy, Olivia Colman, FX
+
+Sun, 22 Feb 2026 22:14:12 GMT
+
+https://collider.com/great-expectations-tom-hardy-series-better-than-rotten-tomatoes-score/
+
+This modernized take on Great Expectations has rough spots, but its engrossing atmosphere and a dynamite performance by Olivia Colman are unmissable.
+---------
+
+# The Two Beatles' Songs Paul McCartney Downplayed as Album Fillers — But History Tells a Different Story
+
+Music Features, The Beatles, Paul McCartney, Rock, Music
+
+Sun, 22 Feb 2026 22:08:39 GMT
+
+https://collider.com/paul-mccartney-called-beatles-songs-hold-me-tight-what-youre-doing-album-fillers/
+
+In his biography, Paul McCartney candidly discussed Hold Me Tight and What You're Doing as Beatles songs he considered album fillers.
+---------
+
+# 11 Years Before 'The Dark Knight,' Heath Ledger Starred in a Cheesy Fantasy Series That Competed With 'Buffy'
+
+TV Features, Fantasy, Roar, Fox, Heath Ledger
+
+Sun, 22 Feb 2026 22:06:12 GMT
+
+https://collider.com/heath-ledger-roar-fantasy-series-cheesy/
+
+Heath Ledger's cancelled-too-soon fantasy Roar, also starring Vera Farmiga, is a fun hidden gem that's been lost to time.
+---------
+
+# Stephen King’s Favorite 3-Part Sci-Fi Horror Achieves an Unprecedented Streaming Milestone
+
+TV News, From, Stephen King, Horror, MGM
+
+Sun, 22 Feb 2026 22:00:13 GMT
+
+https://collider.com/from-stephen-king-favorite-3-part-sci-fi-horror-major-streaming-milestone-mgm-plus-february-2026/
+
+Ahead of its return, From, which carries horror legend Stephen King's stamp of approval is about to cross a major streaming milestone.
+---------
+
+# Before 'Train Dreams,' Its Director Made His Stunning Debut With a 'Fallout' Star
+
+Movie Features, Jockey, Clifton Collins Jr., Moises Arias, Molly Parker
+
+Sun, 22 Feb 2026 21:56:12 GMT
+
+https://collider.com/jockey-movie-clint-bentley-clifton-collins-jr-moises-arias/
+
+Before directing Train Dreams, Clint Bentley made his directorial debut, Jockey, with Clifton Collins Jr. and Moisés Arias.
+---------
+
+# Why Daniel Radcliffe Will Not Play Wolverine in the MCU
+
+Movie News, Hugh Jackman, Daniel Radcliffe, X-Men
+
+Sun, 22 Feb 2026 22:33:51 GMT
+
+https://movieweb.com/why-daniel-radcliffe-not-play-wolverine/
+
+Daniel Radcliffe explains why he never had any plan to follow Hugh Jackman as Wolverine.
+---------
+
+# 8 Most Shocking Psychological Thriller Movies of the 21st Century
+
+Movie Lists
+
+Sun, 22 Feb 2026 22:30:17 GMT
+
+https://movieweb.com/most-shocking-psychological-thriller-movies-21st-century/
+
+Whether down to the jaw-dropping twists, the extreme subject matter, or the horror of self-recognition, these will shock you to your core.
+---------
+
+# Mark Wahlberg's 'Italian Job' Sequel: Could It Still Happen?
+
+Features, Mark Wahlberg, The Italian Job
+
+Sun, 22 Feb 2026 22:00:18 GMT
+
+https://movieweb.com/mark-wahlberg-the-italian-job-sequel/
+
+Could Mark Wahlberg's rumored 'Italian Job' sequel still happen, or is 'The Brazilian Job' toast?
+---------
+
 # All 5 Cooper Hoffman Movies, Ranked
 
 Classic Movies, Cooper Hoffman
