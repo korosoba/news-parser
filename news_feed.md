@@ -1,3 +1,311 @@
+# Hollow Knight: Silksong - Delivery Quests Guide: Routes, Rewards & Tips
+
+Gaming, Hollow Knight: Silksong, Indie Games, PC
+
+Sun, 22 Feb 2026 19:01:21 GMT
+
+https://screenrant.com/hollow-knight-silksong-delivery-quests-courier-guide/
+
+Master Hollow Knight: Silksong's challenging delivery quests with this comprehensive guide covering routes, rewards, and essential tips for success.
+---------
+
+# Pokémon Fans Officially Divided On FireRed & LeafGreen Home Support
+
+Gaming, Pokemon, Pokemon FireRed and LeafGreen
+
+Sun, 22 Feb 2026 19:01:19 GMT
+
+https://screenrant.com/pokemon-fire-red-leaf-green-home-fan-reaction/
+
+Nintendo has quietly removed one promised Pokémon FireRed and LeafGreen feature, and fans are divided about the meaning of this feature's chop.
+---------
+
+# AMC’s 4-Part Drama Is One Of Best Shows Ever Made, But It’s Been Mostly Forgotten
+
+Classic TV, Halt and Catch Fire, AMC
+
+Sun, 22 Feb 2026 19:01:19 GMT
+
+https://screenrant.com/amc-drama-halt-and-catch-fire-masterpiece-forgotten/
+
+AMC's four-part drama is one of the best TV shows ever made, but its lack of viewership means it's become mostly forgotten.
+---------
+
+# It Looks Like The Super Mario Galaxy Movie Is Going To Introduce One Of Mario's Most Annoying Enemies
+
+New Movies, The Super Mario Galaxy Movie, Explainer, Super Mario
+
+Sun, 22 Feb 2026 18:45:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-ukiki-monkey-annoying-thief/
+
+An obscure character with a reputation as a nuisance looks like he'll be getting a game accurate role in The Super Mario Galaxy Movie.
+---------
+
+# HBO's 2-Part Masterpiece Thriller Series That Changed Television Keeps Getting Better
+
+Classic TV, Big Little Lies
+
+Sun, 22 Feb 2026 18:30:18 GMT
+
+https://screenrant.com/big-little-lies-hbo-thriller-getting-better/
+
+This whip-smart HBO thriller series forever shook up the TV landscape, and an upcoming third installment ensures the show will only get better.
+---------
+
+# Red Dead Redemption Meets The Sims In New Steam Game You Can Play Free Now
+
+Gaming, Steam, Indie, PC
+
+Sun, 22 Feb 2026 18:30:18 GMT
+
+https://screenrant.com/steam-free-download-red-dead-redemption-sims/
+
+Red Dead Redemption and The Sims collide in a new game that you can and should check out for free right now on Steam, with no strings attached.
+---------
+
+# How Much Revenue Did Netflix's Hit 4-Season Historical Series Generate For The Streamer
+
+TV, Bridgerton
+
+Sun, 22 Feb 2026 18:03:28 GMT
+
+https://screenrant.com/bridgerton-netflix-historical-series-revenue/
+
+Netflix's major movies and series have been significantly boosting the streaming giant's revenue, and one series has become the most valuable.
+---------
+
+# New John Wick Game Looks Cool, But One Missing Feature Is A Huge Letdown
+
+Gaming, John Wick, Triple-A Games
+
+Sun, 22 Feb 2026 18:00:19 GMT
+
+https://screenrant.com/john-wick-sifu-sloclap-saber-action-game/
+
+John Wick is receiving a brand-new, AAA, cinematic action game, and while it looks startlingly like the work of one beloved studio, it is not.
+---------
+
+# Seinfeld: 10 Classic Episodes That Still Outshine Modern Sitcoms
+
+Classic TV, Seinfeld
+
+Sun, 22 Feb 2026 18:00:19 GMT
+
+https://screenrant.com/seinfeld-episodes-better-than-sitcoms-made-today/
+
+Seinfeld is a timeless masterpiece of multi-camera comedy. All the classic episodes are still funnier than any of the sitcoms getting made today.
+---------
+
+# Every Robert Duvall Sports Movie, Ranked
+
+Classic Movies, Robert Duvall, Ranking
+
+Sun, 22 Feb 2026 17:55:19 GMT
+
+https://screenrant.com/robert-duvall-sports-movies-ranked/
+
+Throughout his seven-decade career, Robert Duvall starred in quite a few sports movies. Which of the late legend's sports films is the best?
+---------
+
+# Ansel Elgort's Underseen Sci-Fi Jonathan Is Streaming on Netflix
+
+Movies, Jonathan
+
+Sun, 22 Feb 2026 19:00:13 GMT
+
+https://www.cbr.com/ansel-elgort-jonathan-sci-fi-streaming-netflix-february-2026/
+
+The dual-personality drama has found yet another life on streaming
+---------
+
+# 10 Years Later, the Smartest Time-Loop Episode in Sci-Fi History Is Still Untouchable
+
+TV, 12 Monkeys, Prime Video
+
+Sun, 22 Feb 2026 19:00:13 GMT
+
+https://www.cbr.com/12-monkeys-smartest-time-loop-episode-sci-fi-history/
+
+A classic time-loop episode of 12 Monkeys is an untouchable masterpiece of both the familiar genre device and how it served the characters.
+---------
+
+# Mamma Mia 3 & Meryl Streep's Return Teased by Universal Exec
+
+Movies, Mamma Mia!
+
+Sun, 22 Feb 2026 18:46:57 GMT
+
+https://www.cbr.com/mamma-mia-3-meryl-streps-teased-universal-donna-langley/
+
+The hit musical has been begging for a sequel for eight years.
+---------
+
+# John Tucker Must Die Blowing Up on Hulu Is More Problematic Than You Think
+
+Movies, John Tucker Must Die, Hulu
+
+Sun, 22 Feb 2026 18:30:12 GMT
+
+https://www.cbr.com/guilty-pleasure-john-tucker-must-die-problematic-hulu-comeback/
+
+A beloved teen comedy from the 2000s is proving surprisingly popular on Hulu, but its underlying issues are more troubling than its humorous moments.
+---------
+
+# The Best JRPG Stories Ever, Ranked
+
+Games, Final Fantasy, Nintendo
+
+Sun, 22 Feb 2026 18:15:12 GMT
+
+https://www.cbr.com/best-written-jrpgs-of-all-time-ranked/
+
+Popular JRPG franchises like Final Fantasy and Tales often offer more emotional and better-written stories than the vast majority of anime.
+---------
+
+# Taylor Sheridan’s Landman Has Just Reached a Massive Streaming Milestone
+
+TV, Landman
+
+Sun, 22 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-landman-streaming-milestone-us-charts-february-2026/
+
+Even a month after its season finale, the drama series is still breaking records.
+---------
+
+# Every Main Ben 10: Alien Force Alien, Ranked
+
+TV, Ben 10, Cartoon Network, Ben 10: Alien Force
+
+Sun, 22 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/main-ben-10-alien-force-aliens/
+
+Every alien in Ben 10: Alien Force is incredible, but who are the most powerful among them all?
+---------
+
+# 10 Horror Movies That Are 10/10 and Deserve a Rewatch
+
+Movie, Horror, Talk to Me, Absentia, It Follows
+
+Sun, 22 Feb 2026 19:04:12 GMT
+
+https://collider.com/best-horror-movies-underrated/
+
+From Oculus to It Follows, these horror masterpieces deserve more love than mainstream scares ever dared to give.
+---------
+
+# 2024’s Explosive Sci-Fi Blockbuster Wins Big on Streaming
+
+Movie News, Godzilla x Kong: Supernova, Godzilla x Kong: The New Empire, Sci-Fi, MonsterVerse
+
+Sun, 22 Feb 2026 19:00:13 GMT
+
+https://collider.com/godzilla-x-kong-explosive-sci-fi-blockbuster-hbo-max-top-10-streaming-success-february-2026/
+
+Ahead of Supernova, Godzilla x Kong: The New Empire is blasting into HBO Max’s Top 10, proving the MonsterVerse still rules at home.
+---------
+
+# 20 Greatest Action Movie Masterpieces of All Time, Ranked
+
+Movie, Action, Mad Max: Fury Road, Seven Samurai, Terminator 2: Judgment Day
+
+Sun, 22 Feb 2026 18:43:12 GMT
+
+https://collider.com/best-action-movie-masterpieces-of-all-time-ranked/
+
+Terminator 2: Judgment Day, The Matrix, and Raiders of the Lost Ark are all among the very best action movies ever made.
+---------
+
+# After 13 Years, Jason Statham’s Hard-Hitting Revenge Thriller Is Winning Streaming Fans
+
+Movie News, Jason Statham, Homefront, Thriller, James Franco
+
+Sun, 22 Feb 2026 18:40:12 GMT
+
+https://collider.com/homefront-jason-statham-hard-hitting-revenge-thriller-streaming-success-netflix-february-2026/
+
+Jason Statham’s Homefront is surging on streaming more than a decade after its release, despite mixed reviews at the time.
+---------
+
+# Before ‘Scream 7,’ Stream All 6 Slasher Hits for Free
+
+Movie News, Scream, Scream 7, Neve Campbell, Matthew Lillard
+
+Sun, 22 Feb 2026 18:20:13 GMT
+
+https://collider.com/scream-horror-slasher-franchise-streaming-free-pluto-tv-february-2026/
+
+Before Scream 7 slashes into cinemas, a free streamer is inviting fans to catch up on the first six films. Find out more here.
+---------
+
+# 10 '80s Movies That Aged Like Fine Wine
+
+Movie, 1980s, My Neighbor Totoro, Paris, Texas, Blow Out
+
+Sun, 22 Feb 2026 18:04:12 GMT
+
+https://collider.com/80s-movies-aged-like-fine-wine/
+
+Animated masterpieces like My Neighbor Totoro and crime thrillers like Thief are some of the '80s movies that have truly just gotten better with age.
+---------
+
+# Paul Mescal's Big Breakthrough Drama Is Free To Stream in March
+
+Movie News, Aftersun, Paul Mescal, Drama, A24
+
+Sun, 22 Feb 2026 18:00:12 GMT
+
+https://collider.com/aftersun-paul-mescal-breakthrough-drama-free-streaming-kanopy-march-2026/
+
+As Hamnet vies for Oscar gold, Paul Mescal’s critically acclaimed breakthrough film Aftersun is heading to a free streamer. Find out more here.
+---------
+
+# 'The Dead Zone' Remains One of Stephen King's Most Overlooked TV Adaptations
+
+TV News, The Dead Zone, Holds Up, Stephen King
+
+Sun, 22 Feb 2026 19:00:17 GMT
+
+https://movieweb.com/the-dead-zone-stephen-king-overlooked-adaptation/
+
+Despite being hugely popular at the time, 'The Dead Zone' goes overlooked by fans in favor of more modern King adaptations.
+---------
+
+# Every Ip Man Movie in Order, Chronologically and by Release Date
+
+Movie Lists, IP Man
+
+Sun, 22 Feb 2026 19:00:17 GMT
+
+https://movieweb.com/ip-man-movies-chronologically/
+
+The legendary martial arts grandmaster has been the subject of numerous films. Here are all the Ip Man movies, chronologically and by release date.
+---------
+
+# 'Marshals' Casts Riley Green in 'Yellowstone' Spin-off
+
+TV News, Marshals, Yellowstone, Paramount Plus
+
+Sun, 22 Feb 2026 18:30:08 GMT
+
+https://movieweb.com/yellowstone-spin-off-marshals-lands-major-guest-star/
+
+Riley Green is the latest country star to appear in the 'Yellowstone' franchise.
+---------
+
+# Every Movie Coming to Theaters in March 2026
+
+Features
+
+Sun, 22 Feb 2026 18:00:16 GMT
+
+https://movieweb.com/every-movie-theaters-march-2026/
+
+Ryan Gosling in space, a new Pixar Studios animation, and a meaty helping of horror make up the best movies coming to theaters in March 2026.
+---------
+
 # Why Mighty Morphin Power Rangers' 2026 Reboot Introduces New Costumes After 33 Years
 
 Comics, Power Rangers
