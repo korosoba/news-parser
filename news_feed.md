@@ -1,3 +1,366 @@
+# When Will Scream 7 Release On Paramount+?
+
+New Movies, Scream 7, Scream
+
+Mon, 23 Feb 2026 22:20:18 GMT
+
+https://screenrant.com/scream-7-streaming-release-date-when-paramount-plus/
+
+Scream 7 won't be in theaters forever, and while its streaming release date on Paramount+ isn't confirmed, we can predict when it will debut.
+---------
+
+# The Expanse Sequel Is What The Prime Video Masterpiece Sci-Fi Series Needs
+
+TV, The Expanse
+
+Mon, 23 Feb 2026 22:15:40 GMT
+
+https://screenrant.com/the-expanse-season-7-sequel-sci-fi-series-books-prime-video/
+
+A sequel series to The Expanse is exactly what the sci-fi series needs to tell some of the best stories that never made it to Prime Video.
+---------
+
+# Doctor Who's 2026 Christmas Special Is Already Problematic
+
+Streaming TV, Doctor Who
+
+Mon, 23 Feb 2026 22:15:19 GMT
+
+https://screenrant.com/doctor-who-2026-christmas-special-franchise-future/
+
+Doctor Who is in one of the roughest spots it has ever been in, and the 2026 Christmas special is not exempt in terms of how precarious it may be.
+---------
+
+# Sci-Fi’s Action-Packed DUNGEON CRAWLER CARL Series Keeps Getting Better Ahead of Its New 2026 Release
+
+Books, Sci-Fi
+
+Mon, 23 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/dungeon-crawler-carl-sci-fi-comedy-legacy-new-release/
+
+If you’re in the mood to die laughing while being pulled into non-stop action, there’s one Sci-Fi series you can’t afford to miss.
+---------
+
+# Dark Souls Meets Bloodborne In The Beast Presence
+
+Gaming, Bloodborne, Dark Souls 3, Triple-A Games
+
+Mon, 23 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/dark-souls-bloodborne-beast-presence-free-download/
+
+Bloodborne has been renewed and reimagined within the context of Dark Souls 3's world via a mod that plunges one into the other, mechanics and all.
+---------
+
+# Apple TV's 2-Part Masterpiece Series Rewrites The Rules Of Science Fiction
+
+Streaming TV, Severance
+
+Mon, 23 Feb 2026 21:45:19 GMT
+
+https://screenrant.com/apple-tv-severance-rewriters-science-fiction-rules/
+
+Apple TV is doing some spectacular things in the sci-fi genre and redefining what is possible in this type of storytelling, especially with one series
+---------
+
+# Prime Video's 3-Season Action Thriller Series Is So Good, It Could Last Forever
+
+TV, Reacher
+
+Mon, 23 Feb 2026 21:30:19 GMT
+
+https://screenrant.com/amazon-reacher-action-thriller-series-last-forever/
+
+Prime Video's hit action-thriller has the potential to become as big a franchise as Bosch thanks to its ingenious formula and current popularity.
+---------
+
+# The Best Supporting Actress Oscar Winner Favorite Just Flipped
+
+New Movies, Oscars
+
+Mon, 23 Feb 2026 21:30:19 GMT
+
+https://screenrant.com/oscars-bafta-best-supporting-actress-winner-reaction/
+
+Determining the winner of Best Supporting Actress at the 2026 Oscars has proven tricky, with the race constantly changing. The winner has now flipped.
+---------
+
+# Bluey's 2026 Return Confirms A Harsh Reality About The Show
+
+Streaming TV, Bluey
+
+Mon, 23 Feb 2026 21:15:18 GMT
+
+https://screenrant.com/bluey-2026-new-movie-specials-franchise-priorities/
+
+Bluey is moving forward to embrace the reality of growing from a small show for Australian kids to a global sensation with endless new projects.
+---------
+
+# A Knight Of The Nine Kingdoms? Why Game Of Thrones Says Westeros Has 7 Kingdoms When There Are Actually 9
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Mon, 23 Feb 2026 21:09:24 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-nine-regions-westeros-history-explained/
+
+A Knight of the Seven Kingdoms' season 1 finale unofficially changes the show's title after Egg clarifies that there are nine kingdoms in the realm.
+---------
+
+# Tom Hanks To Play Abraham Lincoln In Lincoln In The Bardo Adaptation
+
+Movies, Tom Hanks
+
+Mon, 23 Feb 2026 22:14:08 GMT
+
+https://www.cbr.com/tom-hanks-cast-lincoln-in-the-bardo/
+
+The actor has portrayed many characters, both fictional and real, and will now have a career first as an iconic U.S. President.
+---------
+
+# The Best Modern Horror Franchise Just Dropped a New Sequel That Nobody's Talking About
+
+Comics, Smile, Smile 2, Horror
+
+Mon, 23 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/smile-for-the-camera-overlooked-smile-sequel/
+
+One of the best horror franchises of the past decade just quietly released another follow-up that does things right by taking several steps back.
+---------
+
+# Liam Neeson & Steven Spielberg's $322M Historical Epic Schindler's List Sets Peacock Release Date
+
+Movies, Schindler's List, Schindler's List (1995), Epic, War
+
+Mon, 23 Feb 2026 21:53:38 GMT
+
+https://www.cbr.com/liam-neeson-steven-spielberg-historical-epic-schindlers-list-peacock-release-date/
+
+More than 30 years later, the cinematic masterpiece from Steven Spielberg has found a new streaming home for everyone to revisit it.
+---------
+
+# After Flopping in Theaters, the DCEU's Final Film Finds Redemption as Netflix Streaming Hit
+
+Superheroes, Aquaman and the Lost Kingdom
+
+Mon, 23 Feb 2026 21:53:09 GMT
+
+https://www.cbr.com/after-flopping-in-theaters-the-dceus-final-film-finds-redemption-as-netflix-streaming-hit/
+
+The superhero film was critically panned and flopped in theaters.
+---------
+
+# Netflix's Havoc is Already an Action Classic For Fans of the Genre
+
+Movies, Havoc, Netflix
+
+Mon, 23 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/netflix-havoc-tom-hardy-timothy-olyphant-team-up-modern-classic/
+
+Netflix's Havoc not only features great performances from Timothy Olyphant and Tom Hardy, but it also establishes itself as a must-watch action hit.
+---------
+
+# 5 Dark Anime So Disturbing You'll Lose Sleep
+
+Anime, Horror, The Summer Hikaru Died, Junji Ito Maniac: Japanese Tales of the Macabre, Fullmetal Alchemist Brotherhood, Serial Experiments Lain, Deadman Wonderland
+
+Mon, 23 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/anime-dark-disturbing-haunting/
+
+From body horror to the disturbing portrayals of human society, some anime were created to leave viewers so uncomfortable, they lose sleep.
+---------
+
+# 10 Superheroes Who Cannot Escape Their Biggest Failure
+
+Comics, DC Comics, Marvel
+
+Mon, 23 Feb 2026 20:46:22 GMT
+
+https://www.cbr.com/superheroes-defined-by-their-biggest-failure/
+
+These superheroes are still haunted by their past.
+---------
+
+# 10 Greatest Sci-Fi TV Heroes, Ranked
+
+TV, Sci-Fi, The Mandalorian, Star Trek: The Next Generation, Doctor Who
+
+Mon, 23 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/sci-fi-best-tv-heroes-ranked-list/
+
+From The Doctor to Eleven and Din Djarin, these incredible sci-fi TV characters redefine heroism through empathy and strength, leaving a lasting mark.
+---------
+
+# Crunchyroll Reveals First Exclusive Sneak Peek for Spring 2026 Anime Season
+
+Anime, Crunchyroll, Re:Zero -Starting Life in Another World-, Witch Hat Atelier
+
+Mon, 23 Feb 2026 20:27:28 GMT
+
+https://www.cbr.com/crunchyroll-anime-spring-2026-sneak-peek-reveal/
+
+Crunchyroll confirms a special Spring 2026 season preview featuring highlight titles, including isekai hit Re:Zero, Witch Hat Atelier and more.
+---------
+
+# Deathwatch Is a Psychological Horror War Film That Pushes Boundaries
+
+Movies, War, Horror, Deathwatch
+
+Mon, 23 Feb 2026 20:21:12 GMT
+
+https://www.cbr.com/deathwatch-scariest-wwi-movie/
+
+A WWI film not for the faint of heart, this 2002 movie features some of the most terrifying and realistic war scenes in cinema history.
+---------
+
+# 10 Near-Perfect Thrillers That No One Remembers Today
+
+Movie, Thriller, A Man Escaped, Miracle Mile, The Last Stop in Yuma County
+
+Mon, 23 Feb 2026 22:22:13 GMT
+
+https://collider.com/near-perfect-thrillers-no-one-remembers/
+
+Despite being largely forgotten today, thriller movies like Images, Cop Land, and Duel are deserving of far more attention from modern audiences.
+---------
+
+# In Just 5 Days, Prime Video’s 8-Part Thriller Series Dethroned ‘Fallout’
+
+TV News, 56 Days, Prime Video, Dove Cameron, You
+
+Mon, 23 Feb 2026 22:04:57 GMT
+
+https://collider.com/56-days-dove-cameron-prime-video-you-replacement-dominates-streaming-charts-february-2026/
+
+Prime Video's new psychological thriller series, 56 Days, starring Avan Jogia and Dove Cameron, is dominating the streamer's viewership charts.
+---------
+
+# Tom Ellis’ Loose-Cannon Agent Takes Center Stage in New Promo for 'FBI' Spin-Off ‘CIA’ [Exclusive]
+
+Exclusives, CIA, FBI, CBS, Tom Ellis, Collider Exclusive Preview
+
+Mon, 23 Feb 2026 22:00:12 GMT
+
+https://collider.com/cia-sneak-peek-tom-ellis-series-premiere-cbs-fbi-spin-off/
+
+Ahead of the premiere of CIA, a new sneak peek has been released to prepare viewers for the espionage ahead with Tom Ellis and Nick Gehlfuss.
+---------
+
+# 3 Best Shows To Watch On Netflix This Week (Feb 23-27)
+
+TV, Netflix, Love & Death, Suburgatory, Grantchester
+
+Mon, 23 Feb 2026 21:47:13 GMT
+
+https://collider.com/best-netflix-shows-watch-week-february-23/
+
+Suburgatory, Love & Death, and Grantchester make up our list of the best Netflix shows to watch the week of February 23, 2026.
+---------
+
+# 10 Greatest Movie Masterpieces of 2019, Ranked
+
+Movie, Parasite, Marriage Story, Uncut Gems, Once Upon a Time in Hollywood
+
+Mon, 23 Feb 2026 21:45:12 GMT
+
+https://collider.com/best-movies-2019-masterpieces-ranked/
+
+Parasite, 1917, and Once Upon a Time in Hollywood are all among the best movies of the year 2019.
+---------
+
+# Apple TV’s Divisive Thriller Is Surging Through the Charts Despite Major Season 2 Changes
+
+TV Features, Apple TV, The Last Thing He Told Me, Jennifer Garner, Nikolaj Coster-Waldau
+
+Mon, 23 Feb 2026 21:43:12 GMT
+
+https://collider.com/apple-tv-the-last-thing-he-told-me-season-2-changes/
+
+Season 2 of Apple TV’s thriller The Last Thing He Told Me has a major shift away from the original books, but it’s still a streaming hit.
+---------
+
+# 10 '90s Movies That Aged Like Fine Wine
+
+Movie, The Iron Giant, The Big Lebowski, Jackie Brown, Starship Troopers
+
+Mon, 23 Feb 2026 21:25:12 GMT
+
+https://collider.com/90s-movies-aged-like-fine-wine/
+
+Time has been extremely kind to '90s movie gems like Tremors and Jackie Brown, with their reputation greatly increasing in the decades since.
+---------
+
+# Everything You Need To Remember About 'Scrubs' Before Season 10 Premieres on ABC
+
+TV Features, Scrubs, Zach Braff, Bill Lawrence, Donald Faison
+
+Mon, 23 Feb 2026 21:07:12 GMT
+
+https://collider.com/scrubs-tv-show-recap-before-revival-season-10/
+
+Before Scrubs Season 10 premieres on ABC, refresh your memory with a comprehensive guide covering the show's key moments from its 9-season run.
+---------
+
+# 'The X-Files' Revival Rewrites the Sci-Fi Hit, but It Officially Deserves More Credit 10 Years Later
+
+TV Features, The X-Files, David Duchovny, Gillian Anderson, Sci-Fi
+
+Mon, 23 Feb 2026 21:06:12 GMT
+
+https://collider.com/xfiles-revival-season-10-actually-good-opinion/
+
+David Duchovny and Gillian Anderson returned for Seasons 10 and 11 of The X-Files in 2016, and its brutal reception was completely unfair.
+---------
+
+# What’s the Worst Movie Ever Made? Surely One of These 10 Films
+
+Movie, The Room, Movie 43, Troll 2, 2025: The World Enslaved by a Virus
+
+Mon, 23 Feb 2026 21:05:12 GMT
+
+https://collider.com/worst-movies-ever-made/
+
+If you're trying to declare something the worst movie of all time, it's worth looking over candidates like The Room, Troll 2, and Yoga Hosers.
+---------
+
+# Jackie Chan Played 'Street Fighter's Chun-Li First, 33 Years Ago
+
+Features, Jackie Chan, Street Fighter, City Hunter, Cultural Reassessment
+
+Mon, 23 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/city-hunter-jackie-chan-street-fighter/
+
+33 years before the latest iteration of 'Street Fighter', Jackie Chan became the first person to play Chun-Li in live-action.
+---------
+
+# 'The Night Agent' Season 4: Confirmation, Cast, & Everything We Know
+
+Features, The Night Agent, Netflix, Everything We Know
+
+Mon, 23 Feb 2026 21:01:17 GMT
+
+https://movieweb.com/the-night-agent-season-4-everything-we-know/
+
+'The Night Agent' Season 3 premiered on Netflix in February 2026 and the Netflix action thriller series stars Gabriel Basso as Peter Sutherland.
+---------
+
+# Ryan Coogler's 'The X-Files' Reboot Casts Danielle Deadwyler as Lead
+
+TV News, The X-Files
+
+Mon, 23 Feb 2026 20:27:07 GMT
+
+https://movieweb.com/ryan-coogler-x-files-cast-danielle-deadwyler/
+
+The next era of 'The X-Files from writer-director Ryan Coogler is set to feature Danielle Deadwyler one of the lead FBI agents.
+---------
+
 # Ryan Coogler's X-Files Reboot Casts Scully Replacement & Confirms Streaming Home
 
 TV
