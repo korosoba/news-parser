@@ -1,3 +1,333 @@
+# Evangelion Studio Begins Piracy Crackdown After Its Exclusive New Anime Release Leaks Online
+
+Anime, Neon Genesis Evangelion
+
+Mon, 23 Feb 2026 23:48:33 GMT
+
+https://screenrant.com/neon-genesis-evangelion-new-anime-short-asuka-leak-online-legal-action/
+
+Evangelion fans shared clips of a new exclusive anime short by creator Hideaki Anno, prompting the studio to threaten legal action.
+---------
+
+# Netflix's The Night Agent Shows Reacher How It Is Done
+
+Streaming TV, The Night Agent, Reacher
+
+Mon, 23 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/the-night-agent-season-3-reacher-character-development-better/
+
+There's no denying Prime's Reacher is a great show, but Netflix's own most-watched action thriller improves on it in one highly important way.
+---------
+
+# Pokémon Deserted Has A Real Zelda Vibe, And I'm Here For It
+
+Gaming, Pokemon, The Legend of Zelda
+
+Mon, 23 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/pokemon-deserted-zelda-inspired-rom-hack/
+
+Pokémon Deserted is a fangame that has some serious Zelda vibes, so fans of either series should be pleasantly surprised by what it has to offer.
+---------
+
+# Only 1 of Anime’s Big Three Needs a Remake ASAP & It's Not One Piece
+
+Anime, One Piece, Naruto
+
+Mon, 23 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/anime-remake-big-three-naruto-need-one-piece-future/
+
+One anime desperately needs an upgrade more than One Piece at the moment, and it's not who you might think.
+---------
+
+# Stardew Valley Meets Valheim In New RPG You Can Try Free Now
+
+Gaming, RPG, Indie, PC, Steam, Stardew Valley, Valheim
+
+Mon, 23 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/stardew-valley-valheim-romestead-free-steam-demo/
+
+RPG fans who are looking for new experiences that may remind them of Stardew Valley or even Valheim have to check out this upcoming game for free.
+---------
+
+# Marvel Reveals New Designs for Magneto, Professor X Ahead of Avengers: Doomsday
+
+Comics, Marvel, Marvel Cinematic Universe, Magneto, X-Men, Avengers: Doomsday
+
+Mon, 23 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/marvel-new-designs-magneto-professor-x-comics-avengers-doomsdays-2026/
+
+Ahead of the release of Avengers: Doomsday, Marvel just revealed brand-new designs for X-Men's famous Magneto and Professor X characters.
+---------
+
+# Why Paradise Season 2’s New Character Doesn’t Go To The Bunker Explained By Star
+
+TV, Paradise
+
+Mon, 23 Feb 2026 23:01:14 GMT
+
+https://screenrant.com/paradise-season-2-annie-bunker-refuse-shailene-woodley-response/
+
+Despite learning about the Colorado bunker, Paradise's new character, Annie, chooses not to go there, with Shailene Woodley explaining why.
+---------
+
+# Top 5 Must-Watch Prime Video Shows This Week: February 23–27, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 23 Feb 2026 22:57:19 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-week-feb-23-27-2026/
+
+The top 5 must-watch shows on Prime Video this week include new releases, hidden gems, and all-time classics like Hannibal, Psych, and Columbo.
+---------
+
+# Why You Should Watch Bradley Cooper's New Movie Even If You Don't Enjoy Stand-Up Comedy
+
+Movies, Is This Thing On?, Comedy, Recommendation
+
+Mon, 23 Feb 2026 22:50:18 GMT
+
+https://screenrant.com/is-this-thing-on-movie-bradley-cooper-stand-up-comedy-recommendation/
+
+Bradley Cooper's new film offers insight into what makes stand-up comedy compelling and tells a moving relationship story that romance fans will love.
+---------
+
+# The Bear's 'Fishes': A Masterful Episode That Changed the Show Forever
+
+Streaming TV, The Bear
+
+Mon, 23 Feb 2026 22:45:19 GMT
+
+https://screenrant.com/the-bear-fishes-episode-perfect-masterpiece/
+
+Every prestige TV show has a few standout episodes, but it's rare that one is as exquisitely note-perfect as the one in this comedy-drama.
+---------
+
+# The Pitt's Success Opens the Door for Emmy-Nominated Reality Series Reboot — Trauma: Life in the ER
+
+TV, Drama, The Pitt, ER, Trauma: Life in the E.R.
+
+Mon, 23 Feb 2026 23:48:46 GMT
+
+https://www.cbr.com/the-pitt-success-opens-the-door-for-emmy-nominated-reality-series-reboot/
+
+One of the best medical dramas of all-time, Trauma: Life In the ER is now on the verge of returning to TV, and it's all thanks to The Pitt.
+---------
+
+# Best Cartoons of All Time, Ranked
+
+TV, cartoons, Animation
+
+Mon, 23 Feb 2026 23:30:11 GMT
+
+https://www.cbr.com/the-most-popular-cartoons-of-all-time-ranked/
+
+Popular cartoons like Looney Tunes and Adventure Time leave their mark on viewers in unforgettable ways, making them timeless.
+---------
+
+# Tatsuki Fujimoto's Fire Punch Manga Is Still Way Too Dark For a New Anime Adaptation
+
+Anime, Manga, Fire Punch, Chainsaw Man
+
+Mon, 23 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/chainsaw-man-author-first-manga-fire-punch-too-dark/
+
+Chainsaw Man is Tatsuki Fujimoto's most iconic dark manga, but his first masterpiece is way to dark to adapt, even in 2026's dark trio era.
+---------
+
+# Thor's Least Popular MCU Villain Deserves a Second Chance From Fans
+
+Movies, MCU, Thor, Thor: The Dark World
+
+Mon, 23 Feb 2026 22:45:12 GMT
+
+https://www.cbr.com/mcu-most-misused-villain-malekith-deserves-reassessment/
+
+For over a decade, fans have unfairly called this Thor villain the worst in the MCU, and it is time to finally give him his due.
+---------
+
+# Xbox Shutting Down in Favor of AI, According to Xbox Co-Founder
+
+Games, Xbox (Original), Microsoft, Gaming
+
+Mon, 23 Feb 2026 22:45:06 GMT
+
+https://www.cbr.com/xbox-shutdown-artificial-intelligence-asha-sharma-seamus-blackley/
+
+Xbox creator and co-founder Seamus Blackley has offered his bleak take on the future of Microsoft Gaming & artificial intelligence.
+---------
+
+# Netflix’s The Bastard Son & The Devil Himself is Aging Perfectly
+
+TV, The Bastard Son & The Devil Himself
+
+Mon, 23 Feb 2026 22:30:12 GMT
+
+https://www.cbr.com/netflix-the-bastard-son-the-devil-himself-aging-perfectly/
+
+Netflix could have committed to this fantasy series, but without instant fan support, it was dropped forever.
+---------
+
+# 'Bosch' and 'The Lincoln Lawyer's Reunion Just Set Up the Perfect Franchise Crossover
+
+TV Features, Bosch, The Lincoln Lawyer, Bosch: Legacy
+
+Mon, 23 Feb 2026 23:47:14 GMT
+
+https://collider.com/bosch-lincoln-lawyer-michael-connelly-book-reunion-prime-video-netflix-crossover/
+
+Michael Connelly's new Harry Bosch book will include The Lincoln Lawyer, but is a television crossover even possible?
+---------
+
+# 3 Best Movies To Watch On Prime Video This Week (Feb 23-27)
+
+Movie, Prime Video, Operation Fortune: Ruse de Guerre, The Girl With All the Gifts, Sound of Metal
+
+Mon, 23 Feb 2026 23:34:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-february-23/
+
+Girl With All the Gifts, Sound of Metal, and Operation Fortune make our list of the best movies to watch on Prime Video the week of February 23, 2026.
+---------
+
+# 8 Reasons Why ‘The Last Jedi’ Is the Best Star Wars Movie
+
+Movie, Star Wars: Episode VIII - The Last Jedi, Star Wars, Rian Johnson, Disney
+
+Mon, 23 Feb 2026 23:31:13 GMT
+
+https://collider.com/the-last-jedi-best-star-wars-movie-reasons-why/
+
+The Last Jedi was a bold Star Wars movie, and arguing it's a great one is also bold, but there are reasons why it should be considered remarkable.
+---------
+
+# The Greatest Movie of Every Year of the 21st Century (So Far)
+
+Movie, Best Of, One Battle After Another, Dune: Part Two, All of Us Strangers
+
+Mon, 23 Feb 2026 23:22:12 GMT
+
+https://collider.com/best-movies-21st-century-every-year-so-far/
+
+From Crouching Tiger, Hidden Dragon (2000) to One Battle After Another (2025), these are the best movies from every year of the 21st century so far.
+---------
+
+# 7 Burning Questions I Have After 'The Night Agent' Season 3 Finale
+
+TV, The Night Agent, Netflix, Thriller, Gabriel Basso
+
+Mon, 23 Feb 2026 23:17:12 GMT
+
+https://collider.com/the-night-agent-season-3-finale-burning-questions/
+
+While we wait for Season 4, these are the burning questions I have after the Season 3 finale of the Netflix thriller series The Night Agent.
+---------
+
+# 10 Greatest War Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, War, All Quiet on the Western Front, Casablanca, Dunkirk
+
+Mon, 23 Feb 2026 23:02:12 GMT
+
+https://collider.com/best-war-movie-masterpieces-last-100-years-ranked/
+
+Grave of the Fireflies, Apocalypse Now, and Come and See are all among the very best war movies of the last 100 years.
+---------
+
+# Josh Duhamel Enters an All-Out War for the Perfect Preschool in First Look [Exclusive]
+
+Exclusives, Josh Duhamel, James Cosmo, Collider Exclusive Preview, Comedy
+
+Mon, 23 Feb 2026 23:00:12 GMT
+
+https://collider.com/preschool-first-look-image-josh-duhamel-comedy-satire/
+
+Josh Duhamel takes center stage and goes through the wringer for the perfect education in a new look at Preschool. See it here.
+---------
+
+# ’Yellowstone's Best Actor Shines in This Forgotten Thriller
+
+Movie, 10x10, Kelly Reilly, Yellowstone, Luke Evans
+
+Mon, 23 Feb 2026 22:48:12 GMT
+
+https://collider.com/yellowstone-best-actor-shines-in-this-forgotten-thriller-10x10-kelly-reilly/
+
+Yellowstone’s Kelly Reilly is kidnapped by Beauty and the Beast’s Luke Evans in 10x10, a completely unpredictable thriller full of unexpected twists.
+---------
+
+# After 37 Seasons, ‘The Simpsons’ Still Has 1 Advantage No Other TV Show Can Match
+
+TV Features, The Simpsons, Matt Groening, Disney+, Fox
+
+Mon, 23 Feb 2026 22:41:13 GMT
+
+https://collider.com/the-simpsons-37-seasons-developed-side-characters-mike-price-comments/
+
+The Simpsons' deep exploration into supporting characters allows the show to have an unmatched longevity compared to other iconic shows.
+---------
+
+# 10 Most Exciting Sci-Fi Movies of All Time, Ranked
+
+Movie, Jurassic Park, Terminator 2: Judgment Day, Mad Max: Fury Road, The Empire Strikes Back
+
+Mon, 23 Feb 2026 22:39:13 GMT
+
+https://collider.com/most-exciting-sci-fi-movies-all-time-ranked/
+
+If you're after particularly exciting sci-fi movies, it's worth watching classics like Predator, Jurassic Park, and Terminator 2: Judgment Day.
+---------
+
+# John Davidson Breaks Silence on BAFTAs Racial Slur Controversy
+
+TV News, BAFTAs, I Swear
+
+Mon, 23 Feb 2026 23:43:14 GMT
+
+https://movieweb.com/bafta-john-davidson-tourette-slur-statement/
+
+BAFTA and the CEO of Tourettes Action also issued statements amid responses from Jamie Foxx, Wendell Pierce and more stars.
+---------
+
+# The Nine Kingdoms of Westeros Explained (& Why It’s Not Seven)
+
+Features, A Knight Of The Seven Kingdoms, Game of Thrones, HBO Max
+
+Mon, 23 Feb 2026 23:32:38 GMT
+
+https://movieweb.com/game-of-thrones-nine-kingdoms-explained/
+
+Egg states that there are nine kingdoms in Westeros. Is he actually right? Let's get to counting.
+---------
+
+# Taylor Sheridan Will Never Beat His 3-Year Neo-Western Streak
+
+Features, Career Arc Reframe, Taylor Sheridan
+
+Mon, 23 Feb 2026 23:01:17 GMT
+
+https://movieweb.com/taylor-sheridan-neo-western-movies-success/
+
+In the 2010s, Taylor Sheridan made three flawless neo-Western movies in a row: 'Sicario', 'Hell or High Water', and 'Wind River.'
+---------
+
+# 'Paradise' Season 2 Sets Up the Hulu Thriller's Biggest Threat Yet
+
+Features, Paradise
+
+Mon, 23 Feb 2026 22:30:16 GMT
+
+https://movieweb.com/paradise-season-2-new-plot-twist/
+
+'Paradise' Season 2 had a three-episode premiere on Hulu on February 23, 2026, and the post-apocalyptic political thriller stars Sterling K. Brown.
+---------
+
 # When Will Scream 7 Release On Paramount+?
 
 New Movies, Scream 7, Scream
