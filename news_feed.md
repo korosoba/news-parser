@@ -1,3 +1,388 @@
+# Ryan Coogler's X-Files Reboot Casts Scully Replacement & Confirms Streaming Home
+
+TV
+
+Mon, 23 Feb 2026 20:07:31 GMT
+
+https://screenrant.com/x-files-reboot-show-hulu-danielle-deadwyler/
+
+The X-Files has found its first lead cast member, with the reboot finally gaining steam at Hulu.
+---------
+
+# How A 56-Minute-Long HBO Episode Rewrote The Rules Of Television
+
+TV, The Sopranos
+
+Mon, 23 Feb 2026 20:02:19 GMT
+
+https://screenrant.com/hbo-sopranos-college-episode-changed-television/
+
+This iconic HBO show's episode broke new ground in television history with an episode that pushed the boundaries of what viewers would accept.
+---------
+
+# GTA Online: 16 Secret Car and Vehicle Locations
+
+Gaming, Grand Theft Auto Online, PC, Grand Theft Auto 5
+
+Mon, 23 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/gta-online-secret-car-vehicles-locations-free-map/
+
+GTA Online players can drive more than 300 different kinds of vehicles. A lot of them are pricey, but there are plenty of free hidden cars to find.
+---------
+
+# Skyrim Has An "Ultra-Secret" Treasure Only 0.001% Of Players Know About
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games, PC
+
+Mon, 23 Feb 2026 20:00:18 GMT
+
+https://screenrant.com/skyrim-ultra-secret-treasure-hidden-loot/
+
+The Elder Scrolls V: Skyrim is full of little secrets and treasures, but some are particularly difficult to track down and loot.
+---------
+
+# Which Horror Movies Scary Movie 6 Will Parody Reportedly Revealed
+
+Movies, Scary Movie 6
+
+Mon, 23 Feb 2026 19:47:58 GMT
+
+https://screenrant.com/scary-movie-6-horror-movie-parodies-confirmed-report/
+
+Scary Movie 6 is set to delight and terrify as the horror movies this parody will include has reportedly been revealed.
+---------
+
+# Barack Obama-Approved Bestselling Sci-Fi Novel Officially Getting New TV Adaptation From A24
+
+TV, BBC, A24
+
+Mon, 23 Feb 2026 19:45:28 GMT
+
+https://screenrant.com/the-ministry-of-time-a24-barack-obama-tv-adaptation/
+
+The BBC and A24 are officially developing an adaptation of the Obama-approved sci-fi bestseller The Ministry of Time by debut author Kaliane Bradley.
+---------
+
+# Tom Hanks Will Play A US President For The First Time In Adaptation Of Prize-Winning Book
+
+Movies, Tom Hanks
+
+Mon, 23 Feb 2026 19:45:26 GMT
+
+https://screenrant.com/lincoln-in-the-bardo-movie-tom-hanks-cast/
+
+Tom Hanks will be playing a US president for the first time in his decades-long career for an adaptation of an award-winning book.
+---------
+
+# Tom Felton's New R-Rated Period Comedy Officially Premieres On Streaming In Less Than 2 Weeks
+
+Movies, Tom Felton, Fackham Hall
+
+Mon, 23 Feb 2026 19:38:09 GMT
+
+https://screenrant.com/tom-felton-fackham-hall-hbo-max-march-2026-release-date/
+
+Tom Felton's R-rated period comedy with a star-studded cast is officially premiering on a new streaming platform in less than two weeks.
+---------
+
+# PlayStation Plus March Free Game Appears Online Ahead Of Official Announcement
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Mon, 23 Feb 2026 19:35:50 GMT
+
+https://screenrant.com/playstation-plus-march-free-game-leak/
+
+A new PlayStation Plus game has leaked, and it looks like it's going to officially hit the PSN next month, here are all the details.
+---------
+
+# Winona Ryder Joins Wednesday Season 3 Cast, Making It Most Tim Burton Yet
+
+Streaming TV, Wednesday
+
+Mon, 23 Feb 2026 19:30:19 GMT
+
+https://screenrant.com/wednesday-season-3-tim-burton-director-winona-ryder-casting/
+
+Netflix's Wednesday has made exciting additions to its season 3 cast, and thanks to one, in particular, this season is the most Tim Burton ever.
+---------
+
+# Ryan Coogler's X-Files Reboot Gets Hulu Pilot Order With Danielle Deadwyler as Co-Lead
+
+TV, The X-Files
+
+Mon, 23 Feb 2026 20:08:01 GMT
+
+https://www.cbr.com/ryan-cooglers-x-files-reboot-hulu-pilot-order-danielle-deadwyler-cast/
+
+The reboot is finally getting a new update.
+---------
+
+# Bambi The Reckoning Sets Peacock Streaming Date in March 2026
+
+Movies, Horror, Bambi: The Reckoning
+
+Mon, 23 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/bambi-the-reckoning-horror-peacock-release-march-2026/
+
+The horror retelling is part of a thriving universe based on beloved Disney characters.
+---------
+
+# Tanzyn Crawford Explains Tanselle’s Ending and Her Future In Knight of the Seven Kingdoms Season 2
+
+TV, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-tanzyn-crawford-tanselle-ending/
+
+Is Tanselle really safe from the Targaryens in Season 2?
+---------
+
+# Nick Reiner Enters 'Not Guilty' Plea in Murders of His Parents, Rob and Michele Reiner
+
+Movies, The Princess Bride
+
+Mon, 23 Feb 2026 19:53:30 GMT
+
+https://www.cbr.com/nick-reiner-not-guilty-plea-rob-michele-reiner/
+
+Rob Reiner's son is the primary suspect in the case.
+---------
+
+# Brand New Shared Universe Competing With Marvel and DC Launches New Series
+
+Comics, indie comics
+
+Mon, 23 Feb 2026 19:36:12 GMT
+
+https://www.cbr.com/brand-new-shared-universe-compete-with-marvel-dc-summit-presents/
+
+In a CBR exclusive, see how Summit Comics is following its hit debut, Summit: Pinnacle, with a brand-new series, Summit Presents
+---------
+
+# 10 Best Superman Stories That He's Actually An Interesting Hero
+
+Comics, Superman, DC Comics, DCU
+
+Mon, 23 Feb 2026 19:30:12 GMT
+
+https://www.cbr.com/best-superman-stories-not-boring/
+
+Readers continue to fall under the misapprehension that Superman’s strength and wholesomeness make him boring, but these stories prove otherwise.
+---------
+
+# 10 Classic '80s Retro Games That Aged Badly
+
+Games, Video Games, retro games
+
+Mon, 23 Feb 2026 19:21:31 GMT
+
+https://www.cbr.com/classic-80s-games-aged-badly-list/
+
+Several classic '80s retro games, like The Legend of Zelda and Metal Gear, haven't actually aged very well.
+---------
+
+# Madhouse’s X Is an Underrated Dark Fantasy Masterpiece & 2000s Cult Classic Anime
+
+Anime, X/1999, Fantasy, Studio Madhouse
+
+Mon, 23 Feb 2026 19:15:12 GMT
+
+https://www.cbr.com/x-madhouse-best-dark-fantasy-anime-cult-classic-2000s/
+
+Studio Madhouse's 2000s-era masterpieces still hold up over two decades later, but few more than this hidden gem dark fantasy.
+---------
+
+# Chainsaw Man Accidentally Leaks Upcoming Manga Break
+
+Anime, Chainsaw Man
+
+Mon, 23 Feb 2026 18:53:13 GMT
+
+https://www.cbr.com/chainsaw-man-chapter-230-accidental-break-week-leak/
+
+Chainsaw Man just leaked the manga’s upcoming break week early, but fans are wondering whether it was actually a mistake or a publicity stunt.
+---------
+
+# Mario Tennis Fever Is the Series' Best Entry Since the GameCube
+
+Games, Mario
+
+Mon, 23 Feb 2026 18:45:13 GMT
+
+https://www.cbr.com/mario-tennis-fever-review-nintendo-switch-2-2026/
+
+Mario Tennis Fever is a return to form for the Mario Tennis series despite some modes that feel like tacked on filler.
+---------
+
+# Almost 3 Years Later, Apple TV’s More Criminally Overlooked Sci-Fi Series Is About to Return for Season 2
+
+TV Features, Monarch: Legacy of Monsters, Apple TV, Kurt Russell, Wyatt Russell
+
+Mon, 23 Feb 2026 20:08:12 GMT
+
+https://collider.com/monarch-legacy-of-monsters-season-2-apple-tv/
+
+'Monarch: Legacy of Monsters' will be returning for Season 2, and fans of the Monsterverse movies should definitely give it a watch.
+---------
+
+# George R.R. Martin’s Favorite ‘Game of Thrones’ Spin-Off Hits Unexpected Setback
+
+TV News, George R.R. Martin, Game Of Thrones, HBO, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 20:00:12 GMT
+
+https://collider.com/george-r-r-martin-favorite-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-no-nielsen-top-10/
+
+George R.R. Martin's A Knight of the Seven Kingdoms prequel series, based on his Dunk and Egg stories, struggles to achieve a major milestone.
+---------
+
+# ‘The Voice’ Season 29 Sneak Peek Shows Off Its Biggest Shake-Up Yet [Exclusive]
+
+TV News, The Voice, NBC, Peacock, Collider Exclusive Preview
+
+Mon, 23 Feb 2026 20:00:12 GMT
+
+https://collider.com/the-voice-season-29-new-rules-major-change-sneak-peek-kelly-clarkson-adam-levine-john-legend/
+
+In the upcoming The Voice Season 29, Kelly Clarkson, Adam Levine, and John Legend return as coaches, joining a special Battle of Champions edition.
+---------
+
+# The Iconic '70s Rock Band Lindsey Buckingham Viewed as Fleetwood Mac's True Rivals
+
+Music Features, Fleetwood Mac, Music, Rock, The Eagles
+
+Mon, 23 Feb 2026 19:59:41 GMT
+
+https://collider.com/lindsey-buckingham-called-the-eagles-opposite-of-fleetwood-mac/
+
+Lindsey Buckingham's comparison of Fleetwood Mac's turbulent dynamics to the Eagles' harmonious approach, reveal insights into the bands' contrasting legacies.
+---------
+
+# 20 Must-Watch Crime Movie Masterpieces, Ranked
+
+Movie, The Usual Suspects, Crime, The Godfather, The Big Sleep
+
+Mon, 23 Feb 2026 19:32:12 GMT
+
+https://collider.com/best-crime-movie-masterpieces-last-must-watch-ranked/
+
+The Usual Suspects, City of God, and The Godfather are all among the very best crime movie masterpieces every film fan must see.
+---------
+
+# George R.R. Martin Made One Early Demand for ‘A Knight of the Seven Kingdoms’
+
+TV News, A Knight Of The Seven Kingdoms, George R.R. Martin, Fantasy, Game Of Thrones
+
+Mon, 23 Feb 2026 19:30:13 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-george-rr-martin-title-request-not-dunk-and-egg-sounded-like-sitcom/
+
+The critically acclaimed fantasy series A Knight of the Seven Kingdoms, based on George R.R. Martin's novellas, almost had a different title.
+---------
+
+# 10 Gen I Pokémon That Have Aged Perfectly
+
+Movie, Pokémon, Anime, Animation, Adventure
+
+Mon, 23 Feb 2026 19:25:13 GMT
+
+https://collider.com/pokemon-gen-i-aged-perfectly/
+
+Although they're nearly thirty-years-old, Gen I Pokémon like Dragonite, Raichu, Gengar, and Victreebel are more popular and powerful than ever before.
+---------
+
+# Netflix's Perfect 3-Part Weekend Binge Crime Thriller Claims Top Spot Immediately
+
+TV News, The Night Agent, Netflix, Thriller, Drama
+
+Mon, 23 Feb 2026 19:20:42 GMT
+
+https://collider.com/netflix-crime-thriller-the-night-agent-season-3-streaming-success-february-2026/
+
+Netflix's crime thriller The Night Agent Season 3 debuts at the top of global streaming charts. Get all the details.
+---------
+
+# Win Tickets to Our Early IMAX Screening of Maggie Gyllenhaal's 'The Bride!'
+
+Exclusives, The Bride!, Screening, IMAX, Jessie Buckley
+
+Mon, 23 Feb 2026 19:12:17 GMT
+
+https://collider.com/the-bride-imax-screening-maggie-gyllenhaal-jessie-buckley/
+
+Details on how to enter for your chance to win free tickets to our early IMAX screening of Maggie Gyllenhaal's The Bride!, starring Jessie Buckley.
+---------
+
+# 6 Most Perfect James Bond Movies, Ranked
+
+Movie, James Bond, Sean Connery, GoldenEye, Licence to Kill
+
+Mon, 23 Feb 2026 19:04:12 GMT
+
+https://collider.com/perfect-james-bond-movies-ranked/
+
+Goldfinger, Casino Royale, and GoldenEye are all among the best James Bond movies that come closest to true perfection.
+---------
+
+# New 'Marshals' Clip Revealed for Latest 'Yellowstone' Spin-Off
+
+TV News, Marshals, Yellowstone
+
+Mon, 23 Feb 2026 20:05:02 GMT
+
+https://movieweb.com/marshals-clip-taylor-sheridan-yellowstone-spin-off/
+
+CBS has unveiled a new look at 'Marshals,' an upcoming 'Yellowstone' spin-off that follows Kayce Dutton becoming a U.S. Marshal.
+---------
+
+# 'Jericho' Remains a Post-Apocalyptic Sci-Fi Hidden Gem on Streaming
+
+TV News, Jericho, Streaming Recommendations, Sci-Fi
+
+Mon, 23 Feb 2026 20:00:16 GMT
+
+https://movieweb.com/jericho-post-apocalyptic-sci-fi-series-streaming-paramount-plus/
+
+Despite being canceled after one season, fans were able to bring it back thanks to a campaign that included lots and lots of nuts.
+---------
+
+# 12 Must-Watch Detective Shows on Netflix
+
+TV Lists, Mystery, Netflix
+
+Mon, 23 Feb 2026 20:00:16 GMT
+
+https://movieweb.com/netflix-best-detective-shows/
+
+Netflix is home to some of the best detective shows you will find on streaming. These are the best.
+---------
+
+# 'Stranger Things' Fans Should Watch 2-Season Mystery Thriller 'Les Revenants' (And It's Streaming Free)
+
+TV News, Stranger Things, The Returned, Streaming Recommendations
+
+Mon, 23 Feb 2026 19:00:17 GMT
+
+https://movieweb.com/les-revenants-streaming-free-tubi-february-2026/
+
+Season 1 of the series has 100% on Rotten Tomatoes, and Stephen King claims it gave him nightmares. What else would you ask for?
+---------
+
+# Former Sony Exec Reflects on the Fallout from Seth Rogen's 'The Interview'
+
+Movie News, The Interview
+
+Mon, 23 Feb 2026 18:39:17 GMT
+
+https://movieweb.com/ex-sony-boss-seth-rogen-the-interview-biggest-mistake/
+
+Michael Lynton calls the 2014 political satire the biggest mistake of his career, as it led to the Sony Pictures email hacks.
+---------
+
 # Dark Souls Gets Surprise Official Release, Available Now
 
 Gaming, Dark Souls, PC
