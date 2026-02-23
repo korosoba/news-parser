@@ -1,3 +1,432 @@
+# Sydney Sweeney's New R-Rated Thriller Officially Breaks 7-Year Box Office Record As Her Highest-Grossing Movie Of All Time
+
+Movies, The Housemaid, Sydney Sweeney, Box Office
+
+Mon, 23 Feb 2026 04:59:22 GMT
+
+https://screenrant.com/the-housemaid-movie-sydney-sweeney-highest-grossing-movie-box-office-record/
+
+Sydney Sweeney's new R-rated thriller officially becomes her highest-grossing movie of all time, breaking a seven-year box office record.
+---------
+
+# A Knight Of The Seven Kingdoms Star Teases Tanselle's Season 2 Fate
+
+TV, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 04:38:23 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-tanselle-tanzyn-crawford-fate/
+
+The conclusion of A Knight of the Seven Kingdoms season 1 left a lot of questions unanswered, including the fate of a mysterious character.
+---------
+
+# Netflix’s 2-Part Black Comedy With 20-Min Episodes Is One Of Its Best Dramas
+
+Classic TV, The End of the F***ing World, Netflix
+
+Mon, 23 Feb 2026 04:32:52 GMT
+
+https://screenrant.com/end-of-the-world-netflix-best-drama/
+
+Netflix’s long television catalog includes a 2-season black comedy that premiered nearly a decade ago but is still one of its best dramas of all time.
+---------
+
+# Sailor Moon Meets The Walking Dead in 2026's Most Exciting Action-Fantasy Release
+
+Anime, Sailor Moon, The Walking Dead
+
+Mon, 23 Feb 2026 04:30:18 GMT
+
+https://screenrant.com/magical-girl-dandelion-manga-sailor-moon-the-walking-dead/
+
+While a surprising-sounding combination, magical girl anime and manga have been subverting the subgenre for decades at this point.
+---------
+
+# Harry Potter’s Malfoy Change Already Spells Trouble For The HBO Show
+
+Streaming TV, Harry Potter
+
+Mon, 23 Feb 2026 04:15:19 GMT
+
+https://screenrant.com/harry-potter-malfoy-book-change-problem/
+
+HBO’s upcoming Harry Potter show is reportedly introducing a major Malfoy change in season 1, which could seemingly spell trouble for the TV series.
+---------
+
+# 10 Perfect Anime Films That Should’ve Broken the Oscars’ Greatest Curse
+
+Anime, Studio Ghibli, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Paprika
+
+Mon, 23 Feb 2026 04:04:58 GMT
+
+https://screenrant.com/best-anime-movies-that-deserve-an-oscar-academy-award-curse-list/
+
+Japan has been constantly ignored at the Oscars, but these anime films are masterpieces that deserved to win the grand prize in their respective years
+---------
+
+# A Knight Of The Seven Kingdoms S1 Finale Live-Blog: Recap & Reactions With ScreenRant!
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Mon, 23 Feb 2026 03:53:53 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-1-finale-recap-reactions-live-blog/
+
+Follow along with ScreenRant during the season 1 finale of A Knight of the Seven Kingdoms for expert commentary, analysis, and live reactions.
+---------
+
+# The Addams Family Conquers Netflix Ahead Of Wednesday Season 3
+
+Movies, The Addams Family, The Addams Family 2, Wednesday
+
+Mon, 23 Feb 2026 03:45:36 GMT
+
+https://screenrant.com/the-addams-family-animated-movies-netflix-streaming-success-february-2026/
+
+Two adaptations of The Addams Family surged in popularity on Netflix after the streamer announced that production has begun for Wednesday season 3.
+---------
+
+# A Knight Of The Seven Kingdoms Season 1 Finale Song: 'Sixteen Tons' Explained
+
+Streaming TV, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 03:45:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-1-finale-credits-song-explained/
+
+A Knight of the Seven Kingdoms ends on an unusual song: "Sixteen Tons" by Tennessee Ernie Ford, but it fits well with the themes of the show.
+---------
+
+# Everything We Know About A Knight Of The Seven Kingdoms Season 2: Story, Cast & Production Updates
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Mon, 23 Feb 2026 03:45:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-explained/
+
+Dunk and Egg will be back for a second season of A Knight of the Seven Kingdoms on HBO, and we already have some details for what to expect.
+---------
+
+# 10 Most Memorable 2000s Anime Character Designs, Ranked
+
+Anime
+
+Mon, 23 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/2000s-anime-character-designs-that-everyone-remembers/
+
+Many of the 2000s most iconic anime have also given the community some great character designs that fans can never forget.
+---------
+
+# JJK Modulo Chapter 23 Turns Yuji Itadori Into JJK's Eternal Grim Reaper
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo, Manga
+
+Mon, 23 Feb 2026 04:41:58 GMT
+
+https://www.cbr.com/jjk-modulo-yuji-itadori-cursed-spirits/
+
+As Jujutsu Kaisen Modulo draws to a close, the true scope of Yuji Itadori's legacy has become much clearer.
+---------
+
+# 10 Strongest Naruto Kage of All Time, Ranked
+
+Anime, Naruto, Naruto: Shippuden
+
+Mon, 23 Feb 2026 04:30:20 GMT
+
+https://www.cbr.com/naruto-kage-strongest-all-time-ranking/
+
+The Kage represent the pinnacle of strength in Naruto's story, and the all-time strongest to hold the rank forever left their mark on shinobi history.
+---------
+
+# 10 Best Pirate Video Games of All Time
+
+Games, pirates, The Legend of Zelda, Video Games
+
+Mon, 23 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/best-pirate-video-games-list/
+
+These pirate video games are the perfect way to sail the high seas.
+---------
+
+# Pokémon FireRed and LeafGreen: How to Get The National Pokedex
+
+Games, Pokemon
+
+Mon, 23 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/pokemon-firered-and-leafgreen-how-to-get-national-pokedex/
+
+The Pokémon series cut the National Pokedex, but it still existed in Pokémon FireRed & LeafGreen, which is coming to Nintendo Switch & Switch 2.
+---------
+
+# 10 Strongest Anime Mech Suits of All Time That Aren't From Neon Genesis Evangelion
+
+Anime, mecha, Neon Genesis Evangelion
+
+Mon, 23 Feb 2026 04:10:12 GMT
+
+https://www.cbr.com/best-mecha-not-evangelion-anime-strongest-mech-suit/
+
+Neon Genesis Evangelion's EVAs are some of the most iconic figures in the entire mecha genre, and only a handful of mech suits are (almost) as cool.
+---------
+
+# NCIS' New Gibbs Update Officially Rewrites the Franchise's Prequel Era
+
+TV, NCIS: Origins, NCIS
+
+Mon, 23 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/ncis-origins-season-2-herm-update-gibbs-team/
+
+An update to Leroy Jethro Gibbs' series will allow the NCIS prequel offshoot to continue trailblazing in NCIS: Origins Season 2 when it returns.
+---------
+
+# Star Trek’s Most Important Picard Line Still Defines the Entire Franchise
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Mon, 23 Feb 2026 03:30:12 GMT
+
+https://www.cbr.com/star-trek-tng-picard-important-line/
+
+One bold statement made by Captain Picard decades ago captured the core theme of Star Trek.
+---------
+
+# A Knight of the Seven Kingdoms' Peter Claffey Defends Season 1's Cliffhanger
+
+CBR Exclusives, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 03:15:12 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-finale-peter-claffey-interview/
+
+Claffey explained why the ending of "The Morrow" is so important for the series, despite being a major change from George R. R. Martin's novella.
+---------
+
+# A Knight of the Seven Kingdoms Season 1 Finale Review: Dunk & Egg Ride On
+
+TV, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 03:00:24 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-season-1-episode-6-review/
+
+A Knight of the Seven Kingdoms Season 1 Episode 6 sees Dunk look back on the friendships that have forged him into the man he is.
+---------
+
+# ‘A Knight of the Seven Kingdoms’ Showrunner Ira Parker Says George R.R. Martin Has “Only Been a Benefit” While Filming Season 2
+
+Exclusives, A Knight Of The Seven Kingdoms, Ira Parker, Peter Claffey, Dexter Sol Ansell
+
+Mon, 23 Feb 2026 04:30:13 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-finale-explained-showrunner-ira-parker-george-rr-martin-filming-season-2/
+
+A Knight of the Seven Kingdoms showrunner Ira Parker on the finale twists, Dunk and Egg's bond, new Season 2 cast, and George R.R. Martin's support.
+---------
+
+# 'A Knight of the Seven Kingdoms' Daniel Ings on What George R.R. Martin Teased About Lyonel Baratheon's Future
+
+Exclusives, A Knight Of The Seven Kingdoms, Daniel Ings, George R.R. Martin, HBO
+
+Mon, 23 Feb 2026 03:41:12 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-daniel-ings-lyonel-baratheon-george-rr-martin/
+
+Daniel Ings talks A Knight of the Seven Kingdoms finale, his character's anti-Targaryen sentiment, and George R.R. Martin's tease for Lyonel's future.
+---------
+
+# 'A Knight of the Seven Kingdoms' Finale Recap: After 5 Intense Episodes, Dunk and Egg's Season 1 Story Ends Too Soon
+
+TV Reviews, A Knight Of The Seven Kingdoms, HBO Max, Peter Claffey, Dexter Sol Ansell
+
+Mon, 23 Feb 2026 03:36:12 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-episode-6-finale-recap/
+
+A Knight of the Seven Kingdoms Season 1 comes to a poignant conclusion in the finale, delving into the aftermath of the Trial of Seven.
+---------
+
+# 10 Best TV Drama Finales of the Last 10 Years, Ranked
+
+TV, Succession, Better Call Saul, Peaky Blinders, Drama
+
+Mon, 23 Feb 2026 02:18:12 GMT
+
+https://collider.com/best-tv-drama-finales-ranked-last-10-years/
+
+These are the most satisfying drama TV finales from the past 10 years, seen in shows like Succession, Mr. Robot, and Better Call Saul.
+---------
+
+# Jason Statham’s 103-Minute Action Sequel Gets a Second Chance on Netflix
+
+Movie News, Expend4bles, Jason Statham, Netflix, Andy Garcia
+
+Mon, 23 Feb 2026 01:40:12 GMT
+
+https://collider.com/jason-statham-103-minute-action-sequel-expend4bles-streaming-success-netflix-february-2026/
+
+Jason Statham's massive action bomb with Sylvester Stallone finally finds redemption after grossing less than half its budget. Read on for more.
+---------
+
+# Rebecca Ferguson’s 2-Part Sci-Fi Thriller Faces Streaming Setback Before Finale
+
+TV News, Silo, Rebecca Ferguson, Sci-Fi, Apple TV
+
+Mon, 23 Feb 2026 01:20:12 GMT
+
+https://collider.com/rebecca-ferguson-2-part-sci-fi-thriller-silo-apple-tv-streaming-chart-season-3-update/
+
+Rebecca Ferguson's Silo has dropped out of Apple TV’s Top 10 streaming chart despite strong reviews and anticipation for Season 3 in 2026.
+---------
+
+# Alan Ritchson’s ‘Predator’ Alternative Lands on Netflix Soon
+
+Movie News, Reacher, Alan Ritchson, War Machine, Netflix
+
+Mon, 23 Feb 2026 01:00:13 GMT
+
+https://collider.com/alan-ritchson-war-machine-predator-alternative-netflix-release-date-trailer-march-2026/
+
+Alan Ritchson’s War Machine premieres on Netflix next month, with the actor promising it will be the streamer’s “biggest movie."
+---------
+
+# Star Wars' 2-Part Show That Fans Hated Actually Fixed 'The Last Jedi's Biggest Luke Skywalker Problem
+
+TV Features, The Mandalorian, The Book of Boba Fett, Star Wars: Episode VIII - The Last Jedi, Star Wars
+
+Mon, 23 Feb 2026 00:42:13 GMT
+
+https://collider.com/book-of-boba-fett-star-wars-fixed-last-jedi-luke-skywalker-problem/
+
+The Book of Boba Fett unexpectedly provided context and closure to the controversial aspects of Luke Skywalker's arc in The Last Jedi.
+---------
+
+# 2 Decades Later, Matthew McConaughey's Rom-Com Classic Is Doing Alright Alright Alright on Streaming
+
+Movie News, Matthew McConaughey, Kate Hudson, romcom, How to Lose A Guy In 10 Days
+
+Mon, 23 Feb 2026 00:40:12 GMT
+
+https://collider.com/matthew-mcconaughey-rom-com-classic-how-to-lose-a-guy-in-10-days-streaming-success-paramount-plus-peacock-february-2026/
+
+How to Lose a Guy in 10 Days is trending across Paramount+ and Peacock, proving early-2000s rom-coms never really left.
+---------
+
+# The Sci-Fi Romance Dubbed “Titanic in Space” Surges on Streaming Charts
+
+Movie News, Passengers, Chris Pratt, Jennifer Lawrence, Sci-Fi
+
+Mon, 23 Feb 2026 00:20:12 GMT
+
+https://collider.com/chris-pratt-jennifer-lawrence-sci-fi-romance-passengers-titanic-replacement-mgm-plus-top-10-streaming-success-february-2026/
+
+Chris Pratt's sci-fi dud, Passengers, has re-entered the streaming conversation, landing on the Top 10 charts despite its 30% Rotten Tomatoes score.
+---------
+
+# 'Paradise' Season 2 Review: It's No Paradise Above Ground
+
+TV Reviews, Paradise, Hulu
+
+Mon, 23 Feb 2026 05:00:24 GMT
+
+https://movieweb.com/paradise-season-2-episodes-1-3-review/
+
+The three-episode premiere takes us from underground utopia to a post-apocalypse above ground with Shailene Woodley.
+---------
+
+# What Song Plays at the End of 'A Knight of the Seven Kingdoms' Season 1?
+
+TV Shows, A Knight Of The Seven Kingdoms, HBO Max, Music
+
+Mon, 23 Feb 2026 03:30:17 GMT
+
+https://movieweb.com/a-knight-of-the-seven-kingdoms-end-credits-song/
+
+For the first time in 'Game of Thrones' history, the most recent episode ends with a song not related to Westeros.
+---------
+
+# 'A Knight of the Seven Kingdoms': Season 1 Finale Ending, Explained
+
+Features, A Knight Of The Seven Kingdoms
+
+Mon, 23 Feb 2026 03:00:30 GMT
+
+https://movieweb.com/a-knight-of-the-seven-kingdoms-ending-explained/
+
+'A Knight of the Seven Kingdoms' wraps up its inaugural season with humor and heart. Here's our breakdown.
+---------
+
+# Guy Ritchie’s 'Fountain of Youth' Was Criminally Underrated
+
+Features, Guy Ritchie, Cultural Reassessment
+
+Mon, 23 Feb 2026 02:00:17 GMT
+
+https://movieweb.com/guy-ritchie-fountain-of-youth-underrated/
+
+'Fountain of Youth', starring John Krasinski, Natalie Portman, and Laz Alonso, was met with poor reviews. Were they wrong?
+---------
+
+# 10 Best 1980s TV Shows No One Remembers
+
+TV Lists, 1980s
+
+Mon, 23 Feb 2026 01:16:17 GMT
+
+https://movieweb.com/1980s-tv-shows-forgotten/
+
+The 1980s had some great TV shows that can be considered underrated today, from 'Wings' to 'thirtysomething' and 'Sisters.'
+---------
+
+# Prime Video's Controversial Fantasy Series 'Good Omens' by Neil Gaiman Can Be Binged in a Weekend
+
+Features, Good Omens, Prime Video, Streaming Recommendations
+
+Mon, 23 Feb 2026 00:30:17 GMT
+
+https://movieweb.com/good-omens-streaming-prime-video-february-2026/
+
+Prime Video's fantasy series that's better than 'The Rings of Power,' Neil Gaiman's 'Good Omens,' is also highly controversial.
+---------
+
+# BAFTA Snubs 'Marty Supreme,' Support for 'Sinners' Changes the Oscar Race
+
+Movie News, BAFTAs, The Academy Awards
+
+Mon, 23 Feb 2026 00:15:09 GMT
+
+https://movieweb.com/bafta-snubs-timothee-chalamet-leonardo-dicaprio/
+
+The winners of the 79th BAFTAs have changed the Oscar race for Best Actor, Best Supporting Actor, and Best Supporting Actress.
+---------
+
+# Jason Statham's Sci-Fi Action Movie 'The One' Still Deserves a Sequel
+
+Features, Jason Statham, Sci-Fi, The One, Holds Up
+
+Mon, 23 Feb 2026 00:01:17 GMT
+
+https://movieweb.com/the-one-jason-statham-sci-fi-action/
+
+Jason Statham was hopping the multiverse in an action movie with Jet Li long before sci-fi overused the concept.
+---------
+
+# 'Daredevil: Born Again' Season 2 Ends Mayor Fisk Story
+
+TV News, Daredevil: Born Again, MCU
+
+Sun, 22 Feb 2026 23:55:08 GMT
+
+https://movieweb.com/daredevil-born-again-new-season-3-story/
+
+'Born Again' showrunner confirms a new story begins in Season 3.
+---------
+
 # DC’s Most Tragic Love Story Is the One The Flash Wants You to Forget
 
 DC Comics, The Flash, Barry Allen
