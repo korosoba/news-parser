@@ -1,3 +1,443 @@
+# One Piece Exec Quietly Confirms Exactly Where Season 2 Ends Ahead of Netflix’s Major Comeback
+
+TV, One Piece
+
+Tue, 24 Feb 2026 18:01:19 GMT
+
+https://screenrant.com/one-piece-season-2-netflix-tragic-finale-last-episode-details/
+
+Netflix's One Piece already had a pretty clear roadmap going into season 2, but its new co-showrunner clears up any doubts.
+---------
+
+# The Office's "Stress Relief" Episode: The Funniest Cold Open In Sitcom History
+
+Classic TV, The Office
+
+Tue, 24 Feb 2026 18:01:19 GMT
+
+https://screenrant.com/office-stress-relief-greatest-cold-open-sitcom-history/
+
+Various sitcoms have mastered the art of the hilarious cold open, but nothing gets funnier than this masterpiece opening from the late noughties.
+---------
+
+# Bestselling Sci-Fi Graphic Novel Series Scores Movie Adaptation
+
+Movies
+
+Tue, 24 Feb 2026 17:36:24 GMT
+
+https://screenrant.com/hilo-sci-fi-graphic-novel-movie-adaptation-details/
+
+A bestselling sci-fi graphic novel series has scored a movie adaptation, further expanding the already successful franchise.
+---------
+
+# Prime Video’s Binge-Worthy 8-Part Psychological Thriller Series Brings Back An Iconic ‘90s Trend
+
+TV, 56 Days
+
+Tue, 24 Feb 2026 17:30:19 GMT
+
+https://screenrant.com/56-days-prime-video-psychological-thriller-revives-90s-trend/
+
+Prime Video's number one psychological thriller show makes an unexpected choice that proves an iconic trend from the '90s has finally been revived.
+---------
+
+# "That's The Key Distinction:" CIA Showrunner Mike Weiss Compares The Show To FBI And Breaks Down That Wild Episode 1 Cliffhanger
+
+Network TV, CIA, FBI
+
+Tue, 24 Feb 2026 17:30:19 GMT
+
+https://screenrant.com/cia-fbi-show-comparisons-episode-1-cliffhanger-mike-weiss/
+
+CIA Showrunner Mike Weiss explains the differences between the show and FBI, reveals the origins of the show's big twist, and Dick Wolf's influence.
+---------
+
+# Marvel's Wolverine Release Date Officially Revealed
+
+Gaming, Marvel's Wolverine, Triple-A Games, PlayStation 5
+
+Tue, 24 Feb 2026 17:17:23 GMT
+
+https://screenrant.com/marvels-wolverine-release-date-reveal/
+
+After a Fall 2026 release window, Marvel's Wolverine finally has a release date from Insomniac, as revealed by the company's official X account.
+---------
+
+# A Stephen King Sci-Fi Movie Bomb Has Taken America By Storm For 6 Weeks On Streaming
+
+New Movies, The Running Man
+
+Tue, 24 Feb 2026 17:15:19 GMT
+
+https://screenrant.com/the-running-man-trending-paramount-plus-one-month/
+
+A Stephen King movie has been a mega streaming hit in America for six weeks straight, even though the sci-fi remake was a box office bomb.
+---------
+
+# NCIS Season 23 Is About To Break Your Heart (& You'll Be Happy About It)
+
+Network TV, NCIS
+
+Tue, 24 Feb 2026 17:07:19 GMT
+
+https://screenrant.com/ncis-season-23-worst-heartbreak-good/
+
+When NCIS season 23 returns in 2026, it will inevitably break long-term fans of the show, but the gut-punch will be worth it for what it's doing.
+---------
+
+# Pokémon Pokopia File Size Officially Confirmed
+
+Gaming, Pokémon Pokopia, Pokemon
+
+Tue, 24 Feb 2026 17:04:56 GMT
+
+https://screenrant.com/pokemon-pokopia-file-size-switch-2-confirmed/
+
+Pokémon Pokopia’s file size has popped up online ahead of launch, and it’s good news for anyone with a nearly-full library of Switch 2 games.
+---------
+
+# Apple TV’s Hit Sci-Fi Series That Started A Shared Universe Returns To Promising Rotten Tomatoes Score
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 24 Feb 2026 17:04:09 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-rotten-tomatoes-score/
+
+Apple TV's hit sci-fi series that began a shared universe on the platform returns to a promising Rotten Tomatoes score compared to its predecessor.
+---------
+
+# The Horror of Godzilla Revisits Godzilla's First Act of Terror With A Twist
+
+Comics, Godzilla, Horror
+
+Tue, 24 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/idw-publishing-the-horror-of-godzilla-release-date-confirmed/
+
+The next entry in Godzilla's Kai-Sei era is about to turn the King of the Monsters' story into a tale of absolute terror unlike any fans have seen yet
+---------
+
+# Game of Thrones' Mad King Prequel Continues a New TV Trend
+
+TV, Game Of Thrones, Fantasy, Netflix
+
+Tue, 24 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/game-of-thrones-mad-king-prequel-stage-play/
+
+HBO officially announced Game of Thrones' next spinoff, and it's a surprising choice that takes a trick from Netflix.
+---------
+
+# Disney's Aladdin Getting A Whole New Story
+
+Comics, Aladdin
+
+Tue, 24 Feb 2026 18:00:10 GMT
+
+https://www.cbr.com/aladdin-disney-hero-new-series/
+
+Following his success in a Disney animated film franchise and a live action film, Aladdin will now be heading to comics
+---------
+
+# Link Click Officially Returns With New Spring 2026 Season of The Daily Life in Lightime
+
+Anime, Link Click, Donghua
+
+Tue, 24 Feb 2026 17:40:10 GMT
+
+https://www.cbr.com/best-donghua-chinese-anime-link-click-new-shorts-2026/
+
+There are still way too many sleeper hit Donghua series fans haven't seen, and this Chinese anime returning in 2026 is the perfect place to start.
+---------
+
+# Sterling K. Brown & Julianne Nicholson Break Down Paradise Season 2
+
+TV, Paradise
+
+Tue, 24 Feb 2026 17:34:09 GMT
+
+https://www.cbr.com/video/sterling-k-brown-julianne-nicholson-break-down-paradise-season-2/
+
+Sterling K. Brown and Julianne Nicholson unpack the emotional and physical challenges shaping the next chapter. In this CBR Presents conversation, the Paradise cast talks about Xavier’s relentless drive, Annie’s complicated recovery, and the tricky balance of playing someone waking from a coma without slowing the story down.
+---------
+
+# Priyanka Chopra Trained for Weeks to Take On Karl Urban in The Bluff
+
+Movies, The Bluff
+
+Tue, 24 Feb 2026 17:23:34 GMT
+
+https://www.cbr.com/video/priyanka-chopra-trained-for-weeks-to-take-on-karl-urban-in-the-bluff/
+
+Priyanka Chopra trains for weeks to take on Karl Urban in The Bluff. The result is a final showdown that feels raw, brutal, and earned.In this CBR Presents interview, Priyanka Chopra Jonas and Karl Urban break down the physical and emotional layers behind their characters’ explosive rivalry.
+---------
+
+# Christian Bale Cast in Heat 2
+
+Movies, Heat 2, Crime, christian bale
+
+Tue, 24 Feb 2026 17:18:29 GMT
+
+https://www.cbr.com/christian-bale-cast-heat-2/
+
+Oscar-winning actor Christian Bale confirms his role in the highly anticipated sequel to Michael Mann's 1995 crime film Heat.
+---------
+
+# February 27 Will Be a Great Day for Pokemon (& Charizard) Fans
+
+Anime, Pokemon, Nintendo
+
+Tue, 24 Feb 2026 17:08:46 GMT
+
+https://www.cbr.com/pokemon-day-charizard-ebay-february-27/
+
+February 27 will be an excellent day for Pokémon fans worldwide (especially for Charizard fans).
+---------
+
+# Ghostface Targets Their Next Victim in CBR's Exclusive Scream 7 Image
+
+CBR Exclusives, Scream, Horror
+
+Tue, 24 Feb 2026 17:00:29 GMT
+
+https://www.cbr.com/ghostface-victim-scream-7-exclusive-image/
+
+Fans can't stop screaming about Scream 7.
+---------
+
+# Russell Crowe's Poker Face Is Leaving Hulu in March
+
+Movies, Poker Face
+
+Tue, 24 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/russell-crowe-poker-face-leaving-hulu-march-2026/
+
+This critically-panned film has folded once again
+---------
+
+# 'Stranger Things' Spin-Off Adds Odessa A’zion in Neon-Drenched First Look [Exclusive]
+
+TV News, Stranger Things: Tales from '85, Netflix, Collider Exclusive Preview, Odessa A'zion
+
+Tue, 24 Feb 2026 18:00:12 GMT
+
+https://collider.com/stranger-things-tales-from-85-cast-odessa-azion-nikki-baxter-character-posters-images-netflix/
+
+Get all the details about Odessa A'zion's new Stranger Things: Tales From '85 character as Netflix unleashes several neon-soaked character posters.
+---------
+
+# ‘Sonic the Hedgehog 4’ Needs To Downplay the Worst Aspect of Kristen Bell’s Amy Rose
+
+Movie Features, Sonic the Hedgehog 4, Sonic the Hedgehog 3, Sonic the Hedgehog, Sega
+
+Tue, 24 Feb 2026 17:46:12 GMT
+
+https://collider.com/sonic-the-hedgehog-4-amy-rose-kristen-bell/
+
+With Amy Rose coming to Sonic the Hedgehog 4, the character needs to not be so obsessed with the title character in the movie.
+---------
+
+# Hulu’s Near-Perfect Sci-Fi Thriller Surges Just as Season 2 Promises a Darker Turn
+
+TV Features, Paradise, Hulu, Sterling K. Brown, Shailene Woodley
+
+Tue, 24 Feb 2026 17:33:12 GMT
+
+https://collider.com/hulu-sci-fi-thriller-paradise-season-2-streaming-critical-success/
+
+Hulu’s Paradise made jaws drop in Season 1, and the newly released Season 2 is continuing to be a hit with critics.
+---------
+
+# 'Cobain' Documentary Trailer Relives a Moment That Shocked the Music World to Its Core [Exclusive]
+
+Exclusives, Kurt Cobain, Documentary, Nirvana, Music
+
+Tue, 24 Feb 2026 17:30:12 GMT
+
+https://collider.com/kurt-cobain-documentary-trailer-nirvana-the-network/
+
+The official trailer for the documentary Cobain revisits the moments leading up to and after Nirvana frontman Kurt Cobain's tragic death.
+---------
+
+# All 3 Fifty Shades of Grey Movies, Ranked by How Much I Hate Them
+
+Movie, Fifty Shades Freed, Fifty Shades Darker, Fifty Shades of Grey, Dakota Johnson
+
+Tue, 24 Feb 2026 17:23:12 GMT
+
+https://collider.com/fifty-shades-of-grey-movies-ranked/
+
+This brutally honest ranking of the Fifty Shades of Grey trilogy breaks down the cringe, faux passion, and glossy drama.
+---------
+
+# 8 Best Romantic Fantasy Movies Released Since 'The Princess Bride'
+
+Movie, The Princess Bride, Stardust, Fantasy, Romance
+
+Tue, 24 Feb 2026 17:07:12 GMT
+
+https://collider.com/best-romantic-fantasy-movies-since-the-princess-bride/
+
+Stardust, About Time, and Beauty and the Beast are all among the very best romantic fantasy movies since The Princess Bride.
+---------
+
+# ‘The Great British Baking Show: Juniors’ Season 8 Drops Sweet New Trailer [Exclusive]
+
+TV News, Junior Bake Off, Roku, Channel 4, Reality
+
+Tue, 24 Feb 2026 17:01:12 GMT
+
+https://collider.com/the-great-british-bake-off-juniors-season-8-trailer-the-roku-channel/
+
+Get an exclusive look at The Great British Baking Show: Juniors Season 8 trailer, featuring host Harry Hill, and judges Liam Charles & Ravneet Gill.
+---------
+
+# 'The Gray House' Review: Kevin Costner's Gripping 8-Part Prime Video Miniseries Is a Must-See War Drama
+
+TV Reviews, The Gray House, Kevin Costner, Prime Video, Drama
+
+Tue, 24 Feb 2026 17:01:12 GMT
+
+https://collider.com/the-gray-house-2026-review-prime-video/
+
+Prime Video's gripping miniseries The Gray House tells the untold story of two women who risked everything for the Union during the Civil War.
+---------
+
+# Torres Reacts to Bishop’s Shocking Return in ‘NCIS’ Season 23 Sneak Peek [Exclusive]
+
+Exclusives, NCIS, Wilmer Valderrama, CBS, Collider Exclusive Preview
+
+Tue, 24 Feb 2026 17:01:12 GMT
+
+https://collider.com/ncis-season-23-sneak-peek-wilmer-valderrama-cbs/
+
+In an exclusive sneak peek, NCIS Season 23's midseason premiere reveals Torres' shock upon learning of Bishop's return as a cyberterrorist.
+---------
+
+# Harlan Coben's Greatest Thriller Series Is This 100% RT Streaming Hit That's Getting Better With Age
+
+TV Features, The Innocent, Harlan Coben, Netflix, Thriller
+
+Tue, 24 Feb 2026 16:44:12 GMT
+
+https://collider.com/harlan-coben-the-innocent-netflix-2021-thriller-series-rotten-tomatoes/
+
+Harlan Coben's 2021 Netflix conspiracy thriller The Innocent is a gripping Spanish mystery about a past decision haunting the present.
+---------
+
+# 'Dune: Part 3's Timothée Chalamet Hypes "Eerie" Sequel
+
+Movie News, Dune: Part Three, Dune, Timothée Chalamet
+
+Tue, 24 Feb 2026 17:55:09 GMT
+
+https://movieweb.com/dune-part-3-eerie-hype-timothe-chalamet/
+
+Timothée Chalamet is hyping 'Dune: Part Three' as the "eeriest" entry in the franchise, with director Denis Villeneuve taking a "big swing."
+---------
+
+# 'Robin Hood' Season 2 Officially Greenlit by MGM+
+
+TV News, Robin Hood
+
+Tue, 24 Feb 2026 17:33:50 GMT
+
+https://movieweb.com/mgm-reveals-fate-of-robin-hood-series-following-finale/
+
+MGM+ has officially renewed 'Robin Hood' Season 2 nearly two months after the Season 1 finale aired.
+---------
+
+# 10-Part Sci-Fi "Masterpiece" 'Scavenger's Reign' Is Streaming on Netflix After Being Betrayed by HBO Max
+
+Features, Scavengers Reign, Netflix, Streaming Recommendations, Sci-Fi
+
+Tue, 24 Feb 2026 17:30:17 GMT
+
+https://movieweb.com/scavengers-reign-streaming-netflix-february-2026/
+
+The hard sci-fi animated series is one of the best TV shows of the decade with a perfect Rotten Tomatoes score, but HBO Max wasted it.
+---------
+
+# ‘Spider-Man: No Way Home’ Didn’t Make $2 Billion Because China Wanted Statue of Liberty Cut
+
+Movie News, Spider-Man: No Way Home, MCU
+
+Tue, 24 Feb 2026 17:22:50 GMT
+
+https://movieweb.com/spider-man-no-way-home-china-release-statue-of-liberty/
+
+The Statue of Liberty reportedly caused major issues for 'Spider-Man: No Way Home''s release in China.
+---------
+
+# Movies You Should Definitely Watch Alone
+
+Movie Lists, Drama
+
+Tue, 24 Feb 2026 17:00:18 GMT
+
+https://movieweb.com/movies-watch-alone/
+
+These movies can make you feel uncomfortable watching with friends or family, especially if there are scenes that are just too intense to handle.
+---------
+
+# Sony's Spider-Man Universe Will Get a Reboot With New Actors, CEO Confirms
+
+Movie News, Spider-Man, Venom, Morbius, Madame Web, Kraven the Hunter
+
+Tue, 24 Feb 2026 16:33:00 GMT
+
+https://movieweb.com/sony-spider-man-universe-reboot/
+
+The likes of 'Morbius' and 'Madame Web' may have faltered in every conceivable way, but Sony isn't giving up.
+---------
+
+# Christian Bale Confirms 'Heat 2' Role Alongside Leonardo DiCaprio
+
+Movie News, Heat 2
+
+Tue, 24 Feb 2026 16:28:45 GMT
+
+https://movieweb.com/christian-bale-leonardo-dicaprio-action-thriller-heat-2/
+
+Christian Bale is set to join Leonardo DiCaprio in the highly anticipated thriller sequel from Michael Mann.
+---------
+
+# Apple Sci-Fi Series 'For All Mankind' Returns in Season 5 Trailer
+
+TV News, For All Mankind, Apple TV
+
+Tue, 24 Feb 2026 16:20:38 GMT
+
+https://movieweb.com/for-all-mankind-season-5-trailer/
+
+Apple TV has debuted a trailer for Season 5 of its alt-history space drama 'For All Mankind,' teasing rising tensions between Earth and Mars.
+---------
+
+# Netflix's 'Pride and Prejudice' Teaser Reveals Emma Corrin & Jack Lowden in Romance Drama
+
+TV News, Pride and Prejudice, Netflix
+
+Tue, 24 Feb 2026 16:03:08 GMT
+
+https://movieweb.com/netflix-pride-and-prejudice-teaser/
+
+The first teaser for Netflix's adaptation of 'Pride and Prejudice' reveals Emma Corrin as Elizabeth Bennet and Jack Lowden as Mr. Darcy.
+---------
+
+# 'Scrubs' Season 10 Rotten Tomatoes Score Revealed
+
+TV News, Scrubs, Rotten Tomatoes
+
+Tue, 24 Feb 2026 15:55:29 GMT
+
+https://movieweb.com/scrubs-reboot-rotten-tomatoes-score/
+
+The first reviews are in, revealing whether the 'Scrubs' revival is just what the doctor ordered.
+---------
+
 # Christian Bale Officially Starring In Sequel To Robert De Niro’s Classic 31-Year-Old Crime Thriller
 
 Movies, Heat 2
