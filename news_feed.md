@@ -1,3 +1,344 @@
+# Lizzie McGuire Star Robert Carradine Dies At Age 71
+
+TV, Lizzie McGuire
+
+Tue, 24 Feb 2026 04:44:30 GMT
+
+https://screenrant.com/robert-carradine-death-obituary/
+
+Robert Carradine, who played Sam McGuire in the beloved Disney Channel series Lizzie McGuire, has passed away at the age of 71 years old.
+---------
+
+# Hell's Paradise Is the Best Breakout Anime Since Demon Slayer
+
+Anime, Demon Slayer
+
+Tue, 24 Feb 2026 04:30:19 GMT
+
+https://screenrant.com/hells-paradise-demon-slayer-mega-hit-crunchyroll/
+
+Improving greatly even on its exciting 2023 debut, MAPPA's Hell's Paradise is more glorious than ever in season 2 on Crunchyroll.
+---------
+
+# Upcoming Fantasy Movie Based On Bestselling Book Will Change Your Life
+
+Movies, Fantasy
+
+Tue, 24 Feb 2026 03:32:58 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-heartwarming/
+
+Netflix is bringing a bestselling magical realism book to the big screen, and the story's messages are so profound that they can change your life.
+---------
+
+# CBS Officially Fixes Most Wanted’s Worst Ending Story On FBI Season 8, Episode 11
+
+Network TV, FBI, FBI: Most Wanted
+
+Tue, 24 Feb 2026 03:28:18 GMT
+
+https://screenrant.com/fbi-season-8-episode-11-most-wanted-boring-ending-fix/
+
+Nearly a year after CBS pulled the plug on FBI: Most Wanted, FBI season 8, episode 11 finds a way to fix the spinoff's most boring story ending.
+---------
+
+# Scolina Wedding Secrets Revealed By John Boyd & Shantel VanSanten After FBI Season 8's Big Episode
+
+TV, FBI
+
+Tue, 24 Feb 2026 03:00:31 GMT
+
+https://screenrant.com/fbi-season-8-scolina-wedding-secrets-john-boyd-shantel-vansanten/
+
+John Boyd and Shantel VanSanten talk FBI season 8's big Scolina wedding episode and share some of the secrets that went into making the union.
+---------
+
+# The 5 Most Shocking Eliminations From American Idol Season 24 Hollywood Week Episode 1 (SPOILERS)
+
+Reality TV, American Idol
+
+Tue, 24 Feb 2026 03:00:31 GMT
+
+https://screenrant.com/most-shocking-eliminations-american-idol-season-24-hollywood-week-episode-1-spoilers/
+
+American Idol season 24 has so much talent that there were some shocking eliminations during Hollywood Week, which took place in Nashville.
+---------
+
+# Nina's Most Surprising Character Change In FBI Season 8 Return Explained By Shantel VanSanten
+
+Network TV, FBI, FBI: Most Wanted
+
+Tue, 24 Feb 2026 03:00:31 GMT
+
+https://screenrant.com/fbi-season-8-nina-return-action-change-shantel-vansanten/
+
+Exclusive: FBI season 8 welcomed Nina back after Most Wanted's cancellation, and she was noticeably different from the last time she was on the show.
+---------
+
+# This Martial Arts Star Played The Same Character 3 Times (Before Jet Li Played Him Twice)
+
+Classic Movies, Jet Li, Factoid
+
+Tue, 24 Feb 2026 03:00:31 GMT
+
+https://screenrant.com/this-martial-arts-star-played-the-same-character-3-times-before-jet-li-played-him-twice/
+
+Before Jet Li made the character even more famous, this martial arts star actually played him three times, all of which in great kung fu films.
+---------
+
+# Punisher’s New Series Opens With A Surprising Twist (Is Frank Castle Dying?)
+
+Comics, The Punisher, Marvel
+
+Tue, 24 Feb 2026 02:00:19 GMT
+
+https://screenrant.com/punishers-new-series-opens-with-a-surprising-twist-is-frank-castle-dying/
+
+Marvel is releasing a brand-new Punisher story, though one that's set to open with a surprising twist for Frank Castle with a threat he can't shoot.
+---------
+
+# New Overwhelmingly Positive Steam Game Is “The Best Friendship Ruiner”
+
+Gaming, Steam, PC, Indie Games
+
+Tue, 24 Feb 2026 02:00:19 GMT
+
+https://screenrant.com/super-battle-golf-overwhelmingly-positive-steam-reviews/
+
+Party games tend to turn friends against each other, and a brand-new release on Steam is taking the "friendslop" genre by storm with chaotic gameplay.
+---------
+
+# When the Dead Control the Earth, Humanity's Hopes Are Dim in the White Sky
+
+Comics, image comics, Horror
+
+Tue, 24 Feb 2026 04:58:24 GMT
+
+https://www.cbr.com/white-sky-1-review-ghosts-post-apocalypse/
+
+In a CBR review of White Sky #1, see how this horror comic gives a new spin on the usual post-apocalyptic story
+---------
+
+# 5 Weakest Super Saiyans of All Time, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, Dragon Ball Z
+
+Tue, 24 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/weakest-dragon-ball-super-saiyans-ranking/
+
+Dragon Ball's Saiyans can reach greater heights through the Super Saiyan transformation, but some of these powerful players are still rather weak.
+---------
+
+# 10 Games from 1994 That Are Now Considered Classics
+
+Games, Video Games
+
+Tue, 24 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/best-1994-video-games-classics/
+
+Sonic 3 & Knuckles and Final Fantasy VI are some of the best games 1994 has to offer.
+---------
+
+# JoJo's Bizarre Adventure Creator Recommends the Next Hit Supernatural Shonen Battle Series
+
+Anime, Jojo's Bizarre Adventure, Hirohiko Araki
+
+Tue, 24 Feb 2026 04:00:12 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-hirohiko-araki-kaijin-fugeki-praise/
+
+The creator of one of the biggest anime and manga franchises is also a fan of a currently running shonen manga that's now available internationally.
+---------
+
+# Dorohedoro Season 2 Returns in 2026 With New Season Streaming on Crunchyroll
+
+Anime, Jujutsu Kaisen, Dorohedoro, Netflix
+
+Tue, 24 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/netflix-dorohedoro-season-2-anime-hiatus-end/
+
+After a six-year hiatus, an action-packed dark fantasy finally makes its return with a new season in 2026.
+---------
+
+# These 5 Horror Sequels Blow the Original Out of the Water
+
+Movies, Horror, Bride of Frankenstein, aliens, Beetlejuice Beetlejuice
+
+Tue, 24 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/horror-sequels-outdo-the-originals/
+
+These horror sequels not only match but surpass their predecessors with unexpected twists and groundbreaking storytelling that redefined the genre.
+---------
+
+# 10 Iconic Anime Characters Who Are All Hype & No Substance
+
+Anime, My Hero Academia, Demon Slayer: Kimetsu no Yaiba, Attack On Titan, Solo Leveling, Kaiju No. 8, Death Note, Bleach, Blue Lock, Neon Genesis Evangelion
+
+Tue, 24 Feb 2026 03:15:12 GMT
+
+https://www.cbr.com/most-overrated-anime-characters-no-substance/
+
+A handful of legendary anime characters are only cool because the author said so and the fans believed them.
+---------
+
+# Where Did Tanselle Go? A Knight of the Seven Kingdoms Star Likes the Mystery
+
+CBR Exclusives, A Knight Of The Seven Kingdoms
+
+Tue, 24 Feb 2026 03:10:23 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-tanzyn-crawford-interview/
+
+Tanzyn Crawford explains why Tanselle’s fate stays ambiguous after the Season 1 finale — and why that fits her.
+---------
+
+# Tom Hanks Called Chernobyl the "Greatest" Show He's Ever Watched
+
+TV, Chernobyl, hbo
+
+Tue, 24 Feb 2026 03:00:23 GMT
+
+https://www.cbr.com/tom-hanks-chernobyl-greatest-show/
+
+Tom Hanks has spent a lifetime as a Hollywood star, but one miniseries remains the greatest show that he has ever watched.
+---------
+
+# A Knight of the Seven Kingdoms Stars React to Game of Thrones Character Comparisons
+
+TV, A Knight Of The Seven Kingdoms
+
+Tue, 24 Feb 2026 02:56:18 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-shaun-thomas-finn-bennett-interview/
+
+Shaun Thomas and Finn Bennett discuss franchise pressure, character influences, and how Dunk shapes both men’s arcs.
+---------
+
+# 3 Best Shows To Watch On Prime Video This Week (Feb 23-27)
+
+TV, Prime Video, The IT Crowd, The Capture, Outer Range
+
+Tue, 24 Feb 2026 02:15:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-week-february-23/
+
+The IT Crowd, The Capture, and Outer Range make up our list of the best shows to watch on Prime Video the week of February 23, 2026.
+---------
+
+# ‘The Fall and Rise of Reggie Dinkins’ Most Unexpected Twist Yet Rewrites the Sitcom
+
+TV, NBC, Daniel Radcliffe, The Fall and Rise of Reggie Dinkins, Tracy Morgan
+
+Tue, 24 Feb 2026 02:00:13 GMT
+
+https://collider.com/fall-and-rise-of-reggie-dinkins-tracy-morgan-erika-alexander-showrunners/
+
+Tracy Morgan, Erika Alexander, Robert Carlock, and Sam Means explain how The Fall and Rise of Reggie Dinkins changes after Episode 2.
+---------
+
+# The BAFTAs’ Latest Controversies Are a Warning Sign for the Oscars
+
+TV Features, BAFTA Awards, Oscars, BBC, Alan Cumming
+
+Tue, 24 Feb 2026 01:18:12 GMT
+
+https://collider.com/baftas-controversy-warning-sign-oscars-broadcast-standards/
+
+The BAFTAs controversy highlights inconsistent broadcast standards — and why the Oscars should take notice.
+---------
+
+# The Unexpected Bob Dylan Song the BBC Banned Over a Single "Blasphemous" Line
+
+Music Features, Music, Bob Dylan, Rock, BBC
+
+Tue, 24 Feb 2026 00:30:12 GMT
+
+https://collider.com/bob-dylan-baby-let-me-follow-you-down-banned-by-bbc/
+
+In 1962, the BBC banned a Bob Dylan song over a single lyric deemed blasphemous, revealing how strict censorship shaped early rock history.
+---------
+
+# 23 Years Ago, the Best Spy Show Ever Made Took an Unexpected Turn That Completely Changed Its DNA
+
+TV Features, 24, Kiefer Sutherland, Fox, Thriller
+
+Tue, 24 Feb 2026 00:09:13 GMT
+
+https://collider.com/24-ryan-chappelle-death-season-3-kiefer-sutherland-changed-show/
+
+The iconic spy series 24, starring Kiefer Sutherland, completely changed in Season 3 when Jack Bauer had to kill Ryan Chappelle.
+---------
+
+# 10 Forgotten Sci-Fi Action Movies That Are Massively Underrated
+
+Movie Lists, Sci-Fi, Action
+
+Tue, 24 Feb 2026 03:01:17 GMT
+
+https://movieweb.com/forgotten-sci-fi-action-movies-underrated/
+
+Even some of the best sci-fi action movies slip through the cracks, with these hidden genre gems being well worth discovering.
+---------
+
+# Zoe Saldaña's 'Rosemary's Baby' Remake Nobody Remembers Now Streaming Free
+
+Features, Rosemary's Baby, Zoe Saldana, Streaming Recommendations
+
+Tue, 24 Feb 2026 01:30:18 GMT
+
+https://movieweb.com/rosemarys-baby-remake-streaming-pluto-tv-february-2026/
+
+Before officially entering the Marvel Cinematic Universe, the actor starred in the two-part TV revival.
+---------
+
+# Hugh Jackman Says He Has Actually Become Wolverine With Hair Photo
+
+Movie News, Hugh Jackman, Deadpool & Wolverine, MCU, Superhero
+
+Tue, 24 Feb 2026 00:55:07 GMT
+
+https://movieweb.com/hugh-jackman-becomes-wolverine/
+
+The Australian actor has found himself transforming into his Marvel alter-ego in new Instagram post.
+---------
+
+# Viola Davis Attached to Adaptation of 'The Untamed' Graphic Novel
+
+Movie News, Viola Davis, Fantasy
+
+Tue, 24 Feb 2026 00:09:22 GMT
+
+https://movieweb.com/untamed-sinners-prayer-movie-adaptation/
+
+Oscar-winner Viola Davis will serve as a producer on a movie adaptation of the hit graphic novel, 'The Untamed: A Sinner's Prayer.'
+---------
+
+# Stream Ana de Armas & Keanu Reeves' Thriller Team-Up 'Knock Knock' for Free
+
+Features, Knock Knock, Keanu Reeves, Ana De Armas, Streaming Recommendations, Career Arc Reframe
+
+Tue, 24 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/knock-knock-streaming-pluto-tv-february-2026/
+
+Before the pair battled as assassins, they went head-to-head in this Eli Roth outing.
+---------
+
+# 'Boardwalk Empire' Is a Great Period Crime Drama For 'Peaky Blinkers' Fans
+
+Features, Peaky Blinders
+
+Tue, 24 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/peaky-blinders-fans-watch-boardwalk-empire-hbo/
+
+Produced by Martin Scorsese, HBO's crime thriller 'Boardwalk Empire' presents a period aesthetic that Peaky Blinders fans will love
+---------
+
 # Evangelion Studio Begins Piracy Crackdown After Its Exclusive New Anime Release Leaks Online
 
 Anime, Neon Genesis Evangelion
