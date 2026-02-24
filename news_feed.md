@@ -1,3 +1,355 @@
+# Dunk Is Exactly Right About Why He Won The Trial Of Seven In A Knight Of The Seven Kingdoms
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones, Game Of Thrones
+
+Tue, 24 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-dunk-targaryen-future-save-rhaegar/
+
+Dunk had only one guess for why the gods spared him but not a Targaryen prince in A Knight of the Seven Kingdoms, and he gets it exactly right.
+---------
+
+# Godzilla Meets Sonic The Hedgehog In New Comic Crossover
+
+Comics, Godzilla, Sonic the Hedgehog
+
+Tue, 24 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/godzilla-crossover-sonic-hedgehog-2026-comic-monarch-legacy-monsters/
+
+Godzilla officially meets a pop culture icon in this brand-new crossover event, which promises an unprecedented clash of epic proportions.
+---------
+
+# Marvel Officially Sets Up a Redemption Arc for Tom Hardy’s Venom Era
+
+Comics, Venom, Spider-Man
+
+Tue, 24 Feb 2026 23:23:18 GMT
+
+https://screenrant.com/marvel-redeems-tom-hardy-venom-era-animated-movie-theory/
+
+Now that Sony's Venom trilogy is in the rearview, a new animated movie can hopefully iterate on the character in a much different way.
+---------
+
+# Nikolaj Coster-Waldau & Angourie Rice On Unexpected Season 2 Renewal
+
+TV, The Last Thing He Told Me, Angourie Rice, Nikolaj Coster-Waldau
+
+Tue, 24 Feb 2026 23:05:35 GMT
+
+https://screenrant.com/nikolaj-coster-waldau-angourie-rice-season-2-surprise-interview/
+
+Nikolaj Coster-Waldau and Angourie Rice discuss their surprise at being asked to return for a second season of The Last Thing He Told Me, sharing how they found out and what fans can expect.
+---------
+
+# Darth Maul's Brother's Secret Role In New Star Wars Show Revealed
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Tue, 24 Feb 2026 23:02:27 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-savage-opress-role-sam-witwer-response/
+
+Maul - Shadow Lord takes place after The Clone Wars, but Sam Witwer teases that Maul's brother Savage Opress still has a role to play in the show.
+---------
+
+# Marvel's Wolverine - Release Date, Confirmed Characters, Gameplay, & Story Details
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Tue, 24 Feb 2026 23:00:20 GMT
+
+https://screenrant.com/marvels-wolverine-release-window-characters-gameplay-story/
+
+New details for Marvel's Wolverine have finally been revealed, including a potential release window alongside elements of gritty story and gameplay.
+---------
+
+# Marvel Quietly Sets Up a Major Retcon for the Superhero Team the MCU Did Dirty
+
+Comics, Marvel, Marvel Cinematic Universe
+
+Tue, 24 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/marvel-comics-runaways-what-if-major-retcon-mcu-fail/
+
+A new beginning
+---------
+
+# 10 Most Anticipated New TV Shows Releasing In March 2026 (According To Real Data)
+
+TV
+
+Tue, 24 Feb 2026 22:56:44 GMT
+
+https://screenrant.com/most-anticipated-new-tv-shows-march-2026/
+
+Based on data from predictive media analytics company Diesel Labs, ScreenRant reveals the top 10 most-hyped new TV releases of March 2026.
+---------
+
+# Netflix's 7-Part Sci-Fi Series Is One Of Its Best & The Perfect Weekend Binge
+
+TV, Netflix, Black Mirror
+
+Tue, 24 Feb 2026 22:47:36 GMT
+
+https://screenrant.com/netflix-black-mirror-sci-fi-series-best/
+
+This acclaimed 7-part Netflix Sci-Fi series is not only one of the streaming service's most iconic shows, but it is also one of its best.
+---------
+
+# Stardew Valley Fans, Mark Your Calendar For February 26
+
+Gaming, Stardew Valley, Indie Games, PC
+
+Tue, 24 Feb 2026 22:26:45 GMT
+
+https://screenrant.com/stardew-valley-symphony-seasons-concert-stream/
+
+Stardew Valley's anniversary just got even better with this update, which you don't want to miss out on when it releases later this week.
+---------
+
+# Pedro Pascal’s The Mandalorian & Grogu Apperance Revives a Major Problem
+
+Movies, The Mandalorian and Grogu
+
+Tue, 24 Feb 2026 23:50:13 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-fix-helmet-rule/
+
+Pedro Pascal's face returns in The Mandalorian and Grogu trailer, reviving the show's biggest recurring problem, but it allows the film to address it.
+---------
+
+# Hulu's Tell Me Lies Reignites Debate Over How Streaming Shows Should End
+
+TV, Tell Me Lies
+
+Tue, 24 Feb 2026 23:20:12 GMT
+
+https://www.cbr.com/hulu-tell-me-lies-ending-reignites-debate/
+
+Tell Me Lies was a standout miniseries for Hulu, and even now, its ending is still hotly debated by the fanbase.
+---------
+
+# 5 Anime Characters Who Are Just a Rip-Off of Dragon Ball's Goku
+
+Anime, Dragon Ball, Goku
+
+Tue, 24 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/popular-anime-heroes-like-goku-dragon-ball/
+
+Dragon Ball's Goku is the king of shonen battle anime, and there's no shortage of wannabe successors.
+---------
+
+# Michael Bay's Pearl Harbor Heads to Hulu on March 1
+
+Movies, michael bay, Pearl Harbor, Hulu
+
+Tue, 24 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/michael-bay-pearl-harbor-war-drama-hulu-streaming-march-2026/
+
+Hulu is about to be the new home for the Michael Bay flick with an all-star cast.
+---------
+
+# Marvel's Wolverine Release Date Proves He's Scared Of Something
+
+Games, Marvel's Wolverine
+
+Tue, 24 Feb 2026 22:45:12 GMT
+
+https://www.cbr.com/marvels-wolverine-release-date-gta-6-2026/
+
+Marvel's Wolverine finally has a release date, one that proves the X-Men's most fearsome mutant is scared of one big video game that's on the horizon.
+---------
+
+# Avengers: Doomsday Must Explain This Plot Hole From Avengers: Endgame
+
+Movies, MCU, Avengers: Endgame, Avengers: Doomsday
+
+Tue, 24 Feb 2026 22:40:12 GMT
+
+https://www.cbr.com/avengers-endgame-time-travel-plot-hole-ruins-doomsday/
+
+The Marvel Cinematic Universe's next Avengers film will need to finally explain this canon-breaking scene from the end of Avengers: Endgame.
+---------
+
+# Romance Anime's 2026 Comeback Changes the Game
+
+Anime, Shojo, Romance
+
+Tue, 24 Feb 2026 22:15:12 GMT
+
+https://www.cbr.com/2026-romance-anime-shojo-comeback/
+
+Just two months into 2026, and anime has already gifted fans with a healthy serving of romance anime, and it shows no signs of stopping.
+---------
+
+# Rebecca Ferguson's $53M Sci-Fi Mercy Is Finally Fighting for the Top of the PVOD Charts After Flopping in Theaters
+
+Movies, Mercy, Sci-Fi
+
+Tue, 24 Feb 2026 22:05:08 GMT
+
+https://www.cbr.com/rebecca-ferguson-sci-fi-mercy-streaming-success-apple-tv-february-2026/
+
+After falling flat on its face in theaters, audiences have picked up the divisive sci-fi and pushed it to the top of streaming charts.
+---------
+
+# 30 Years Later, Robert Carradine’s Most Criminally Overlooked Role Is Hiding in This Sci-Fi Thriller
+
+TV Features, Dark Skies, Sci-Fi, Thriller, Series
+
+Tue, 24 Feb 2026 23:30:12 GMT
+
+https://collider.com/robert-carradine-sci-fi-thriller-dark-skies-overlooked-performance/
+
+Why Dark Skies remains a cult sci-fi gem — and why Robert Carradine’s overlooked role deserves a second look.
+---------
+
+# The Greatest R-Rated Horror Movie of the Modern Era Doesn't Need Gore to Terrify You
+
+Movie Features, The Conjuring, James Wan, Vera Farmiga
+
+Tue, 24 Feb 2026 23:23:12 GMT
+
+https://collider.com/greatest-r-rated-horror-modern-era-conjuring-james-wan-movie/
+
+James Wan helped define a generation of horror with the stories of Ed and Lorraine Warren.
+---------
+
+# Tom Hanks Nearly Changed the Best Star Trek Movie Ever Made
+
+Movie Features, Star Trek: First Contact, Tom Hanks, Patrick Stewart, Gene Roddenberry
+
+Tue, 24 Feb 2026 23:08:13 GMT
+
+https://collider.com/tom-hanks-star-trek-first-contact/
+
+A longtime fan of Star Trek, Tom Hanks was in the running for Zefram Cochrane in ‘Star Trek: First Contact’.
+---------
+
+# 10 Most Entertaining Steven Spielberg Movies, Ranked
+
+Movie, Raiders of the Lost Ark, Steven Spielberg, Jurassic Park, Jaws
+
+Tue, 24 Feb 2026 22:56:12 GMT
+
+https://collider.com/most-entertaining-steven-spielberg-movies-ranked/
+
+Steven Spielberg has made some of the best and most entertaining blockbusters of all time, including classics like Raiders of the Lost Ark and Jaws.
+---------
+
+# 10 Greatest Sci-Fi Action Movie Masterpieces of All Time, Ranked
+
+Movie, Sci-Fi, aliens, Dune: Part Two, Total Recall
+
+Tue, 24 Feb 2026 22:42:12 GMT
+
+https://collider.com/best-sci-fi-action-movie-masterpieces-of-all-time-ranked/
+
+Edge of Tomorrow, The Matrix, and Aliens are all among the absolute best science fiction action movie masterpieces of all time.
+---------
+
+# Netflix’s Reboot of This 9-Part Classic American Series Is Making a Bigger Change Than We Realized
+
+TV Features, Little House on the Prairie, Netflix, Western, NBC
+
+Tue, 24 Feb 2026 22:28:12 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-reboot-american-series-bigger-change/
+
+Netflix's Little House on the Prairie reboot is set to reimagine the classic American series in a new light for modernization.
+---------
+
+# This Sci-Fi Horror Movie Predicted AI’s Terrifying Future Nearly 50 Years Ago
+
+Movie Features, Demon Seed, Julie Christie, Donald Cammell, Horror
+
+Tue, 24 Feb 2026 22:23:12 GMT
+
+https://collider.com/demon-seed-sci-fi-horror-ai-deepfake/
+
+The 1977 sci-fi thriller Demon Seen accidentally nailed our modern tech fears.
+---------
+
+# 10 Best Actress Oscar Wins That Have Aged Perfectly in the 21st Century
+
+Movie, Oscars, Charlize Theron, Emma Stone, Renée Zellweger
+
+Tue, 24 Feb 2026 22:22:13 GMT
+
+https://collider.com/best-actress-oscar-wins-aged-perfectly-21st-century/
+
+Of the Best Actress Oscar winners this century, the likes of Marion Cotillard for La Vie en Rose and Charlize Theron for Monster have aged the best.
+---------
+
+# After a 2 Year Delay, 'The Chosen' Season 6 Gets an Update of Biblical Proportions
+
+TV News, The Chosen, Dallas Jenkins, Prime Video, Chris Pratt
+
+Tue, 24 Feb 2026 22:06:46 GMT
+
+https://collider.com/prime-video-the-chosen-season-6-super-sized-release-update-dallas-jenkins/
+
+The Chosen’s Dallas Jenkins has finally unveiled some information about when the Biblical series will return to Prime Video. Find out more here.
+---------
+
+# 'Ted Lasso' Season 4 Release Date Teased by Hannah Waddingham
+
+TV News, Ted Lasso
+
+Tue, 24 Feb 2026 23:42:37 GMT
+
+https://movieweb.com/ted-lasso-season-4-august-release/
+
+Star Hannah Waddingham hinted that the highly anticipated series return will debut on Apple TV in August 2026.
+---------
+
+# Netflix’s ‘One Piece’ Season 2 To Play in Theaters in March
+
+TV News, One Piece
+
+Tue, 24 Feb 2026 23:30:09 GMT
+
+https://movieweb.com/netflix-one-piece-season-2-in-theaters/
+
+Fans of the popular live-action adaptation can experience the new season of Netflix's 'One Piece' on the big screen.
+---------
+
+# Ridley Scott's Divisive Sci-Fi Prequel 'Prometheus' Becomes a Streaming Hit
+
+Movie News, Hot on Streaming, Prometheus, Ridley Scott
+
+Tue, 24 Feb 2026 23:00:18 GMT
+
+https://movieweb.com/prometheus-streaming-netflix-february-2026/
+
+For some, the 'Alien' prequel is an essential part of the sci-fi franchise. For others, it's unnecessary trash.
+---------
+
+# 'Wednesday' Season 3: Netflix Confirmation, Cast, Plot, and Everything We Know So Far
+
+Features, Wednesday
+
+Tue, 24 Feb 2026 23:00:18 GMT
+
+https://movieweb.com/wednesday-season-3-plot-cast-release-window/
+
+It's better to prepare for your woeful return to Nevermore Academy now than later. Read on for everything we know about 'Wednesday' Season 3.
+---------
+
+# Before Anthony Hopkins, This Iconic Actor Was the Greatest Hannibal Lecter
+
+Features, Brian Cox, Anthony Hopkins, Manhunter
+
+Tue, 24 Feb 2026 22:30:17 GMT
+
+https://movieweb.com/manhunter-brian-cox-best-hannibal-lecter/
+
+A few years before Anthony Hopkins played Hannibal Lecter, another actor played the iconic villain and gave an even better performance.
+---------
+
 # Deltans In Star Trek: Starfleet Academy's Shocking Update
 
 TV, Star Trek, Star Trek: Starfleet Academy
