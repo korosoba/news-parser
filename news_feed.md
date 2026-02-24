@@ -1,3 +1,366 @@
+# Shonen Jump Is Officially Ending a Major Fantasy Shonen with Its Best Final Arc in Years
+
+Anime, Black Clover
+
+Tue, 24 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/black-clover-ending-shonen-jump-best-manga-final-arc-legacy/
+
+Shonen Jump's Black Clover is finishing its swan song over at Jump GIGA, but there's good news ahead for fans.
+---------
+
+# Netflix's 3-Part Detective Series Makes Building A Franchise Look Easy
+
+Classic Movies, Netflix
+
+Tue, 24 Feb 2026 20:00:19 GMT
+
+https://screenrant.com/netflix-knives-out-detective-series-makes-franchise-look-easy/
+
+Turning a single idea into a long-running franchise is no simple task, but a Netflix detective series that started 7 years ago makes it look easy.
+---------
+
+# New Rumored Batman Actor For James Gunn's DCU Finally Breaks Silence On Casting Reports
+
+Movies, The Brave and the Bold
+
+Tue, 24 Feb 2026 19:57:58 GMT
+
+https://screenrant.com/batman-dcu-casting-paul-anthony-kelly-rumors-response/
+
+One of the new popular choices for Batman in James Gunn's DC Universe franchise finally breaks his silence on being rumored for the major role.
+---------
+
+# ARC Raiders: Keeping An Eye Out Quest Guide
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Tue, 24 Feb 2026 19:56:58 GMT
+
+https://screenrant.com/arc-raiders-keeping-an-eye-out-quest-walkthrough/
+
+New quests were added to ARC Raiders with the Shrouded Sky update, including "Keeping An Eye Out." Here's where to find Bilguun's hideout for Celeste.
+---------
+
+# The Greatest Batman Movie Of All Time Is Officially Getting A Spiritual Successor
+
+Movies, Heat 2
+
+Tue, 24 Feb 2026 19:45:19 GMT
+
+https://screenrant.com/the-dark-night-christian-bale-heat-2-casting-full-circle/
+
+Almost two decades after its release, The Dark Knight is getting a surprising spiritual successor thanks to a huge casting announcement.
+---------
+
+# After 6 Years, Elle Fanning's 10/10 Masterpiece Historical Drama With Near-Perfect RT Score Keeps Getting Better
+
+TV, The Great
+
+Tue, 24 Feb 2026 19:30:19 GMT
+
+https://screenrant.com/the-great-hulu-historical-drama-series-better/
+
+Elle Fanning's historical drama series is one of the best TV shows of the last few years, and six years later, it just keeps getting better.
+---------
+
+# Paradise Season 2, Episode 3 Ending Explained: Why Jane Killed THAT Character
+
+Streaming TV, Paradise
+
+Tue, 24 Feb 2026 19:30:19 GMT
+
+https://screenrant.com/paradise-season-2-episode-3-ending-explained/
+
+Paradise returned with a bang during season 2's three-episode premiere, and its ending further cemented Jane as a villain after her latest kill.
+---------
+
+# Stephen Amell Blames Himself For Suits LA's Cancellation After One Season
+
+TV, Suits LA, Suits
+
+Tue, 24 Feb 2026 19:28:59 GMT
+
+https://screenrant.com/suits-la-cancellation-stephen-amell/
+
+Stephen Amell reveals why he blames himself for Suits LA getting canceled on NBC after just one season.
+---------
+
+# Kaley Cuoco & Sam Claflin Address Vanished Season 2's Prospects After Shocking Season 1 Finale
+
+TV, Vanished
+
+Tue, 24 Feb 2026 19:21:50 GMT
+
+https://screenrant.com/vanished-season-2-prospects-kaley-cuoco-sam-claflin/
+
+Kaley Cuoco and Sam Claflin address Vanished season 2's prospects following the mystery show's shocking season 1 finale on February 22.
+---------
+
+# James Gunn's First DC Movie Is Quickly Overthrown By Margot Robbie's Divisive Adaptation At The Domestic Box Office
+
+Movies, Wuthering Heights, The Suicide Squad, Box Office
+
+Tue, 24 Feb 2026 19:20:35 GMT
+
+https://screenrant.com/wuthering-heights-box-office-charts-james-gunn-suicide-squad-margot-robbie-comparison/
+
+One of James Gunn's DC movies is overtaken by Margot Robbie's new book-to-movie adaptation, surpassing it domestically and perhaps, soon, globally.
+---------
+
+# 36 Years Later, Twin Peaks Hits No. 7 on PVOD Charts on Twin Peaks Day
+
+TV, Twin Peaks
+
+Tue, 24 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/twin-peaks-mystery-pvod-success-february-2026/
+
+The David Lynch classic is trending once again.
+---------
+
+# The Strongest Characters in Invincible: Ranking the Viltrumites
+
+Comics, Invincible (TV Show)
+
+Tue, 24 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/invincible-strongest-viltrumites/
+
+Throughout Invincible, Mark Grayson grew stronger. From Anissa to Thragg, how does Invincible compare to his fellow Viltrumites?
+---------
+
+# Stephen Amell Takes Blame for Suits LA's Cancellation
+
+TV
+
+Tue, 24 Feb 2026 19:57:55 GMT
+
+https://www.cbr.com/suits-la-cancelled-stephen-amell-blame/
+
+Stephen Amell admits responsibility for Suits LA's cancellation, discussing character struggles and creative differences with NBC.
+---------
+
+# Robin’s Arrival: Scott Snyder's ‘R’ Tease Could Change DC
+
+Superheroes, Heroes Journey Podcast, Absolute Batman, Robin, DC Comics, Absolute Universe
+
+Tue, 24 Feb 2026 19:28:59 GMT
+
+https://www.cbr.com/video/robin-s-arrival-scott-snyder-s-r-tease-could-change-dc/
+
+Robin in the DC Absolute Universe is still a mystery, but the new ‘R’ tease tied to DC’s “Absolute Batman” has fans wondering what comes next for the Boy Wonder.In Heroes Journey Podcast Episode 19, Sean O’Connell and Sierra Nutkevitch unpack why Scott Snyder’s rollout worked, which Robin might emerge in this remix universe, and how the conversation feeds into Robin in DC's Absolute Universe. They also weigh the big-screen problem: why Robin keeps getting sidelined, and whether The Brave and the Bold is the cleanest path versus forcing Robin into Matt Reeves’ The Batman world.
+---------
+
+# Chainsaw Man Chapter 230 Review: Denji Finds Love at The End of the World
+
+Anime, Chainsaw Man
+
+Tue, 24 Feb 2026 19:14:12 GMT
+
+https://www.cbr.com/chainsaw-man-chapter-230-review/
+
+Chainsaw Man releases a perfect chapter to start the manga’s new era, beginning with replacements for Aki and Power & the introduction of new Devils.
+---------
+
+# Sonic the Hedgehog Will Meet Godzilla In Summer 2026
+
+Comics, Sonic the Hedgehog, Godzilla
+
+Tue, 24 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-x-godzilla-confirmed/
+
+It's about time that the Blue Blur faced off against the King of the Monsters.
+---------
+
+# Tom Felton's Period Parody Fackham Hall Premieres on HBO Max in March 2026
+
+Movies, Fackham Hall, tom felton, Comedy
+
+Tue, 24 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/tom-felton-fackham-hall-period-comedy-hbo-max-release-march-2026/
+
+The comedy has the critics and audiences in perfect agreement on Rotten Tomatoes.
+---------
+
+# Stranger Things: Tales From '85 Confirms Odessa A’zion as New Character Nikki
+
+TV, Stranger Things: Tales from '85, Stranger Things
+
+Tue, 24 Feb 2026 18:51:27 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-odessa-azion-nikki-baxter/
+
+The Stranger Things universe continues with a new story set in Hawkins.
+---------
+
+# Gundam Creator's Most Overlooked Mecha Anime Gets 1st U.S. Release After 42 Years
+
+Anime, mecha, Mobile Suit Gundam, Mobile Suit Zeta Gundam
+
+Tue, 24 Feb 2026 18:25:17 GMT
+
+https://www.cbr.com/gundam-yoshiyuki-tomino-heavy-metal-l-gaim-america-release/
+
+Before returning to the world of Gundam, series creator Yoshiyuki Tomino made a mecha classic that's finally being released for North American fans.
+---------
+
+# God of War Prime Video Series Casts Ed Skrein as Baldur
+
+TV, God of War, Fantasy, Prime Video
+
+Tue, 24 Feb 2026 18:21:07 GMT
+
+https://www.cbr.com/god-of-war-cast-ed-skrein-baldur/
+
+Prime Video's God of War live-action series adds Ed Skrein as Baldur, joining Ryan Hurst's Kratos and other cast members in the video game adaptation.
+---------
+
+# Paul McCartney Finds His Voice Again in New ‘Man on the Run’ Image [Exclusive]
+
+Exclusives, Documentary, Paul McCartney, Prime Video, Collider Exclusive Preview
+
+Tue, 24 Feb 2026 20:00:13 GMT
+
+https://collider.com/man-on-the-run-image-paul-mccartney-documentary-the-beatles-prime-video/
+
+A new image from the documentary Man on the Run shows Paul McCartney at his keyboard working on his creative post-Beatles revival.
+---------
+
+# Tom Hanks' 189-Minute 'Shawshank Redemption' Successor Breaks Out on Streaming 27 years Later
+
+Movie News, Tom Hanks, The Green Mile, Saving Private Ryan, Greyhound
+
+Tue, 24 Feb 2026 19:36:06 GMT
+
+https://collider.com/tom-hanks-the-green-mile-horror-masterpiece-streaming-success-apple-tv-february-2026/
+
+Tom Hanks' long-beloved Steven King adaptation, The Green Mile, has made a sudden return to streaming charts 27 years after its release.
+---------
+
+# After 8 Episodes, ‘A Knight of the Seven Kingdoms’ Focused on the Wrong Character
+
+TV Features, A Knight Of The Seven Kingdoms, HBO Max, Dexter Sol Ansell, Game Of Thrones
+
+Tue, 24 Feb 2026 19:18:12 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-dunk-egg-focused-on-wrong-character/
+
+Egg deserves more screen time in A Knight of the Seven Kingdoms as the series underutilizes his character, rich potential, and emotional depth.
+---------
+
+# Paramount+'s Cult Classic Superhero Movie Quietly Knocks Out Streaming Competition
+
+Movie News, Novocaine, Paramount Plus, Superhero, Jack Quaid
+
+Tue, 24 Feb 2026 19:15:04 GMT
+
+https://collider.com/novocaine-cult-classic-superhero-movie-streaming-success-paramount-plus-february-2026/
+
+The most underappreciated superhero movie of 2025, Novocaine, has crept back into the top 10 on Paramount+ in the U.S. Read on for more details.
+---------
+
+# All 5 Best Cinematography Nominees at the 2026 Oscars, Ranked
+
+Movie, Oscars, Sinners, Frankenstein, Train Dreams
+
+Tue, 24 Feb 2026 19:11:12 GMT
+
+https://collider.com/oscars-2026-best-cinematography-nominees-ranked/
+
+All five nominees for Best Cinematography at the 2026 Oscars are stunning, from Marty Supreme to Train Dreams, but which movie is more deserving?
+---------
+
+# Guy Ritchie’s 8-Part Prime Video Weekend Binge Slides Into Action With New Image [Exclusive]
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Collider Exclusive Preview
+
+Tue, 24 Feb 2026 19:00:13 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-prequel-series-prime-video-new-image/
+
+Prime Video's new Sherlock Holmes prequel series Young Sherlock, directed by Guy Ritchie, premieres March 4. The series stars Hero Fiennes Tiffin.
+---------
+
+# Prime Video's 'God of War' Series Finally Finds Its Main Villain in a Forgotten 'Game of Thrones' Star
+
+TV News, God of War, Ed Skrein, Prime Video, Ryan Hurst
+
+Tue, 24 Feb 2026 18:32:15 GMT
+
+https://collider.com/prime-video-god-of-war-series-cast-deadpool-star-ed-skrein-baldur/
+
+Ed Skrein, known for his villain role in Deadpool and a brief stint in Game of Thrones, will play Baldur in Prime Video's God of War series.
+---------
+
+# Paul McCartney’s Greatest Love Song of All Time Was Written During One of the Hardest Moments of His Life
+
+Music Features, Paul McCartney, Paul McCartney: Man on the Run, The Beatles, John Lennon, Music
+
+Tue, 24 Feb 2026 18:30:12 GMT
+
+https://collider.com/paul-mccartney-greatest-love-song-maybe-im-amazed-linda-mccartney/
+
+Paul McCartney's life changed after The Beatles breakup causing depression, and how Linda McCartney supported him, leading to his greatest love song.
+---------
+
+# 10 Greatest Gangster Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, City of God, Crime, Carlito's Way, Goodfellas
+
+Tue, 24 Feb 2026 18:20:12 GMT
+
+https://collider.com/best-gangster-movie-masterpieces-last-100-years-ranked/
+
+Goodfellas, City of God, and Carlito's Way are all among the very best gangster movies of the last 100 years.
+---------
+
+# 4 Years Later, 'Demon Slayer' Creators' Fantasy Video Game Adaptation Finally Gets an Update
+
+TV News, Genshin Impact, Anime, Fantasy, Demon Slayer
+
+Tue, 24 Feb 2026 18:19:19 GMT
+
+https://collider.com/demon-slayer-studio-ufotable-genshin-impact-fantasy-video-game-adaptation-series-update/
+
+Anime studio Ufotable, the studio behind Demon Slayer, has released a new video featuring a glimpse of the highly anticipated Genshin Impact anime.
+---------
+
+# The Best British Detective Series on BritBox, Ranked
+
+TV Lists, Crime
+
+Tue, 24 Feb 2026 20:00:17 GMT
+
+https://movieweb.com/britbox-best-detective-crime-series/
+
+Explore Britbox's massive catalog of outstanding television by adding these addictive detective stories to your watch list.
+---------
+
+# Prime Video's 'God of War' Casts Ed Skrein as Baldur
+
+Movie News, Ed Skrein, God of War, Prime Video
+
+Tue, 24 Feb 2026 19:11:22 GMT
+
+https://movieweb.com/god-of-war-casts-deadpool-villain/
+
+The 'God of War' cast continues to grow, as Ryan Hurst and Teresa Palmer are joined by a 'Deadpool' star as Baldur, the show's central villain.
+---------
+
+# War Masterpiece 'M*A*S*H' Set a Viewership Record That Has Stood for 43 Years
+
+TV News, M*A*S*H, Streaming Recommendations, War
+
+Tue, 24 Feb 2026 19:01:17 GMT
+
+https://movieweb.com/mash-most-watched-tv-episode-in-history-streaming-hulu/
+
+Now that streaming is here, the incredible record set by 'M*A*S*H' is likely never to be beaten.
+---------
+
 # One Piece Exec Quietly Confirms Exactly Where Season 2 Ends Ahead of Netflix’s Major Comeback
 
 TV, One Piece
