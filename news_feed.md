@@ -1,3 +1,388 @@
+# Deltans In Star Trek: Starfleet Academy's Shocking Update
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 24 Feb 2026 22:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-deltans-sexy-update/
+
+Every once in a while, Deltans pop up in Star Trek, but their reputations precede them, as Tarima described to Caleb in Star Trek: Starfleet Academy.
+---------
+
+# Netflix Officially Confirms One Piece Season 2 Theatrical Release After Massive Stranger Things Success
+
+TV, One Piece
+
+Tue, 24 Feb 2026 21:47:19 GMT
+
+https://screenrant.com/one-piece-season-2-netflix-theatrical-release-march-2026/
+
+After the Stranger Things finale became a massive success, Netflix confirms that One Piece season 2 will also be getting a theatrical release.
+---------
+
+# Stranger Things Spinoff Rewrites Main Show With New Character
+
+Streaming TV, Stranger Things
+
+Tue, 24 Feb 2026 21:45:19 GMT
+
+https://screenrant.com/tales-from-85-retconning-stranger-things-lore-new-characters/
+
+The Stranger Things universe is expanding with an animated prequel TV series, and it's rewriting the main show through a new character.
+---------
+
+# Paramount Increases Warner Bros. That Could Put Netflix Acquisition In Jeopardy
+
+Movies, Paramount Pictures, Warner Bros., Netflix
+
+Tue, 24 Feb 2026 21:38:21 GMT
+
+https://screenrant.com/paramount-warner-bros-bid-increase-netflix-jeopardy/
+
+After seeming like Netflix acquiring Warner Bros. was a done deal, Paramount has put forth a new offer that could turn the tide in their favor.
+---------
+
+# Hulu’s Sci-Fi Thriller Masterpiece Immediately Takes America By Storm On Streaming
+
+TV, Paradise
+
+Tue, 24 Feb 2026 21:31:34 GMT
+
+https://screenrant.com/paradise-season-2-hulu-streaming-success-february-2026/
+
+Following a three-episode premiere for season 2, this science-fiction thriller masterpiece series is already dominating streaming on Hulu.
+---------
+
+# Spider-Man's Live-Action Show May Be Teasing An Iconic Storyline From The '90s Cartoon
+
+Superheroes, Spider-Noir
+
+Tue, 24 Feb 2026 21:30:20 GMT
+
+https://screenrant.com/spider-noir-show-man-spider-cartoon-inspiration-possiblity/
+
+A shot in the Spider-Noir trailer creates the impression that it may draw inspiration from an iconic storyline from the 1990s Spider-Man cartoon.
+---------
+
+# NBC's Thriller Series With 18% Rotten Tomatoes Score Is Winning Over Netflix Subscribers After Landing Top 10 Chart
+
+TV, The Hunting Party, The Hunting Party - Season 1
+
+Tue, 24 Feb 2026 21:27:39 GMT
+
+https://screenrant.com/the-hunting-party-show-netflix-streaming-charts-nbc/
+
+NBC's thriller series, with an 18% Rotten Tomatoes score, is winning over Netflix subscribers after landing a spot on their Global Top 10 chart.
+---------
+
+# Resident Evil 3 Is Finally Getting The Remaster It Deserves
+
+Gaming, Resident Evil 3, Triple-A Games, PC
+
+Tue, 24 Feb 2026 21:26:51 GMT
+
+https://screenrant.com/resident-evil-3-last-escape-remaster-mod/
+
+Nearly three decades after release and years since its official remaster, Resident Evil 3 is getting an incredibly faithful modern overhaul.
+---------
+
+# The Witcher 3 Online Multiplayer Update Available Now
+
+Gaming, The Witcher 3: Wild Hunt
+
+Tue, 24 Feb 2026 21:21:19 GMT
+
+https://screenrant.com/witcher-3-online-multiplayer-update/
+
+The Online Multiplayer Mod for The Witcher 3: Wild Hunt has just received a major update that's well worth looking at if you want to play with friends
+---------
+
+# How Saturday Night Live Quietly Set Up Tracy Morgan's New 100% RT Sitcom Explained By Creators & Stars
+
+TV, The Fall and Rise of Reggie Dinkins
+
+Tue, 24 Feb 2026 21:00:20 GMT
+
+https://screenrant.com/saturday-night-live-fall-rise-reggie-dinkins-setup-tracy-morgan-daniel-radcliffe-creators-cast/
+
+Tracy Morgan, Bobby Moynihan and the cast and creators of his new sitcom explain how Saturday Night Live quietly laid the foundation for it.
+---------
+
+# It's the End of an Era for Crunchyroll's Most Controversial Anime Acquisition
+
+Anime, Crunchyroll
+
+Tue, 24 Feb 2026 21:30:12 GMT
+
+https://www.cbr.com/crunchyroll-controversial-anime-acquisition/
+
+One of Crunchyroll's most controversial anime acquisitions is nearing the end of an era.
+---------
+
+# Hulu's Paradise Is About to Replace Ryan Murphy's Love Story In Just 1 Day
+
+TV, Hulu, Paradise, Thriller
+
+Tue, 24 Feb 2026 21:25:43 GMT
+
+https://www.cbr.com/paradise-thriller-ryan-murphy-love-story-hulu-first-place-february-2026/
+
+The second season of Hulu's hit thriller is challenging the latest Ryan Murphy anthology.
+---------
+
+# Kaya-chan Isn't Scary Is 2026's New Sleeper Hit Horror Anime With Near-Perfect Crunchyroll Ratings
+
+Anime, Horror, Crunchyroll, Crunchyroll Premium
+
+Tue, 24 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/crunchyroll-best-new-horror-anime-2026-kaya-chan-isnt-scary/
+
+With near-perfect reviews, Crunchyroll's new horror series proves that the best scary stories hide the darkest secrets in plain sight.
+---------
+
+# Greatest American Hero Reboot Gets a Release Date and First-Look Image
+
+Comics, The Greatest American Hero
+
+Tue, 24 Feb 2026 21:15:06 GMT
+
+https://www.cbr.com/greatest-american-hero-reboot-release-date-and-first-look/
+
+Our favorite accidental hero is coming back, and we could not be happier.
+---------
+
+# The Night Agent Season 3 Gets 8.4 Million Views In First Week on Netflix
+
+TV, The Night Agent, Netflix, Thriller
+
+Tue, 24 Feb 2026 21:10:37 GMT
+
+https://www.cbr.com/the-night-agent-thriller-netflix-streaming-success-february-2026/
+
+The Night Agent Season 3 debuts as Netflix's second most-streamed English-language series, with 8.4 million views.
+---------
+
+# Denzel Washington's 87% RT Crime Remake Is a Global Streaming Hit
+
+Movies, Highest 2 Lowest
+
+Tue, 24 Feb 2026 21:00:13 GMT
+
+https://www.cbr.com/highest-2-lowest-crime-remake-apple-tv-success-february-2026/
+
+Denzel Washington's crime remake may have flopped in theaters, but it's finding continued success on streaming.
+---------
+
+# Wednesday Teases a Secret Cast Return in Season 3
+
+TV, Wednesday, Netflix
+
+Tue, 24 Feb 2026 21:00:13 GMT
+
+https://www.cbr.com/wednesday-season-3-cast-secret-returning-character/
+
+Netflix reveals the newcomers and returning characters for Wednesday Season 3 but leaves a noticeable gap in the list.
+---------
+
+# Julianne Nicholson Reveals Paradise Season 2 Will Answer One Major Question
+
+TV, Paradise
+
+Tue, 24 Feb 2026 20:51:52 GMT
+
+https://www.cbr.com/paradise-season-2-julianne-nicholson-reveals-big-question-answered/
+
+The actor reassures fans that Paradise will reveal if a much-anticipated reunion will happen in the second season of the Hulu series.
+---------
+
+# Dark Souls Gets Official New Release in February 2026
+
+Games, Dark Souls
+
+Tue, 24 Feb 2026 20:48:12 GMT
+
+https://www.cbr.com/dark-souls-new-rpg-release-in-february-2026/
+
+15 years after the first Dark Souls game, the newest release in the dark fantasy RPG series is sure to have fans excited.
+---------
+
+# Kaley Cuoco's Vanished Gets Encouraging Season 2 Update
+
+TV, Vanished
+
+Tue, 24 Feb 2026 20:41:15 GMT
+
+https://www.cbr.com/kaley-cuoco-vanished-potential-season-2/
+
+After all, The Flight Attendant had also started as a limited series.
+---------
+
+# You Could Argue Any of These 10 Movies Is the Best Musical Film of All Time
+
+Movie, Judy Garland, Liza Minnelli, Musical, Fred Astaire
+
+Tue, 24 Feb 2026 21:48:12 GMT
+
+https://collider.com/best-musical-movies-of-all-time-debatable/
+
+Classics like Singin' in the Rain, Cabaret, and West Side Story are all so great you could justify calling any of them the best musical film ever.
+---------
+
+# 7 Years Later, Ridley Scott's Forgotten 4-Part World War II Sci-Fi Series Finally Comes to Netflix
+
+TV News, Ridley Scott, Sci-Fi, Netflix, The Man in the High Castle
+
+Tue, 24 Feb 2026 21:45:34 GMT
+
+https://collider.com/ridley-scott-dystopian-sci-fi-series-the-man-in-high-castle-streaming-netflix-february-2026/
+
+Ridley Scott’s dystopian sci-fi series is finally heading to Netflix, bringing all four seasons of the alternate-history thriller to a new audience.
+---------
+
+# 10 Dumbest Marvel Movies, Ranked
+
+Movie, Madame Web, Thor: Love and Thunder, Fantastic Four, Howard the Duck
+
+Tue, 24 Feb 2026 21:39:13 GMT
+
+https://collider.com/worst-marvel-movies-dumb-ranked/
+
+Madame Web, Howard the Duck, and Thor: Love and Thunder are all among the worst Marvel movies that are remarkably dumb.
+---------
+
+# 16 Days After Season 2 Debut, NBC's Divisive Crime Drama Finds Success on Netflix
+
+TV News, The Hunting Party, NBC, Netflix, Procedural
+
+Tue, 24 Feb 2026 21:37:24 GMT
+
+https://collider.com/nbc-the-hunting-party-crime-drama-streaming-success-netflix-february-2026/
+
+The serial killer crime drama, with an 18% Rotten Tomatoes rating, has become Netflix's most addictive show. Get all the details here.
+---------
+
+# Hulu's 2025 Crime Thriller Becomes the Go-To Fix for 'You' Fans
+
+TV News, Hulu, Psychological Thriller, You, Watching You
+
+Tue, 24 Feb 2026 21:35:38 GMT
+
+https://collider.com/hulu-crime-thriller-watching-you-streaming-success-hulu-febraury-2026/
+
+A 6-part psychological thriller is climbing Hulu and Disney+ charts, delivering stalker-driven suspense that You fans won’t want to miss.
+---------
+
+# How George Harrison Went From Not Being a Songwriter to Being the First Beatle with a No. 1 Album
+
+Music Features, The Beatles, The Beatles Anthology
+
+Tue, 24 Feb 2026 21:30:13 GMT
+
+https://collider.com/george-harrison-first-beatle-no-1-album-all-things-must-pass/
+
+George Harrison overcame being overshadowed by Lennon and McCartney to become a solo songwriting sensation with his groundbreaking album, All Things Must Pass.
+---------
+
+# All 'Knight of the Seven Kingdoms' Season 1 Deaths, Ranked by Sheer Brutality
+
+TV, A Knight Of The Seven Kingdoms, Game Of Thrones, George R.R. Martin, HBO
+
+Tue, 24 Feb 2026 21:29:12 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-deaths-brutal-ranked/
+
+HBO's A Knight of the Seven Kingdoms Season 1 had its fair share of bloodshed, but whose death of the Game of Thrones prequel was the most brutal?
+---------
+
+# 10 Most Important Vampire Movies of All Time, Ranked
+
+Movie, Horror, Nosferatu, Sinners, Twilight
+
+Tue, 24 Feb 2026 21:27:12 GMT
+
+https://collider.com/most-important-vampire-movies-all-time-ranked/
+
+The vampire genre has been crucial for cinematic horror, and the most important movies go from the silent classic Nosferatu to the modern hit Sinners.
+---------
+
+# 10 Most Unsettling Movies of All Time, Ranked
+
+Movie, The Shining, Lake Mungo, The Exorcist, Perfect Blue
+
+Tue, 24 Feb 2026 21:18:12 GMT
+
+https://collider.com/most-unsettling-movies-all-time-ranked/
+
+Some of the most unsettling movies of all time include horror and thriller classics like The Shining, Noroi: The Curse, and The Vanishing.
+---------
+
+# 'The Rookie's Latest Season 8 Chenford Twist Is a Surprisingly Welcome Change to the Couple's Dynamic | Review
+
+TV Reviews, The Rookie, ABC, Melissa O'Neil, Eric Winter
+
+Tue, 24 Feb 2026 21:06:04 GMT
+
+https://collider.com/the-rookie-season-8-episode-8-recap-review-chenford-oscar-return/
+
+In The Rookie's latest episode, Tim's mysterious past is further explored with the arrival of his mom, while a prison transfer takes a dangerous turn.
+---------
+
+# Guy Ritchie's 'Young Sherlock' Is an Exciting March 2026 Prime Series
+
+Features, Young Sherlock, Upcoming Tease
+
+Tue, 24 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/young-sherlock-prime-guy-ritchie-return/
+
+'Young Sherlock' premieres on Amazon Prime Video in March 2026, and the series will follow Sherlock Holmes as a college student.
+---------
+
+# Today Is the Perfect Day to Revisit 'Twin Peaks'
+
+Features, Twin Peaks, Streaming Recommendations, Holds Up
+
+Tue, 24 Feb 2026 21:02:55 GMT
+
+https://movieweb.com/twin-peaks-day-streaming-paramount-february-2026/
+
+Dale Cooper entered the town of Twin Peaks on Feb. 24, so it's the perfect day to start a rewatch.
+---------
+
+# Mike Flanagan's 'Midnight Club' Broke Guinness World Record With Episode
+
+Features, Mike Flanagan, Netflix, The Midnight Club, Career Arc Reframe
+
+Tue, 24 Feb 2026 21:00:18 GMT
+
+https://movieweb.com/midnight-club-mike-flanagan-world-record/
+
+Mike Flanagan masterfully wove so many wonderful frights into his Netflix series 'The Midnight Club' that he won a Guinness World Record for it.
+---------
+
+# 'Crazy Old Lady' Review: Sadistic Horror Film Tries – And Fails – at 'Misery'
+
+2.5 star movies, Crazy Old Lady, Shudder
+
+Tue, 24 Feb 2026 20:17:01 GMT
+
+https://movieweb.com/crazy-old-lady-review/
+
+Carmen Maura shines in Shudder's new horror film, an Argentine take on Rob Reiner and Stephen King's classic.
+---------
+
+# 'The Madison' Trailer Reveals New Taylor Sheridan Series Starring Kurt Russell
+
+TV News, The Madison, Taylor Sheridan, Kurt Russell
+
+Tue, 24 Feb 2026 20:15:08 GMT
+
+https://movieweb.com/kurt-russell-madison-trailer-taylor-sheridan/
+
+Taylor Sheridan is back with yet another star-studded streaming drama for Paramount+, this time starring Kurt Russell and Michelle Pfeiffer.
+---------
+
 # Shonen Jump Is Officially Ending a Major Fantasy Shonen with Its Best Final Arc in Years
 
 Anime, Black Clover
