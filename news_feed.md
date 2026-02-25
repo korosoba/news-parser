@@ -1,3 +1,311 @@
+# 25 Best Anime Ever Made, Ranked
+
+Anime
+
+Wed, 25 Feb 2026 23:00:21 GMT
+
+https://screenrant.com/best-anime-series-ever-ranked/
+
+Anime has exploded in popularity recently, so it's natural to wonder what series in the medium rank among the best to watch all the way through.
+---------
+
+# Steam's New Limited-Time Freebie Is Perfect If You Love Red Dead Redemption 2
+
+Gaming, Steam, PC, Red Dead Redemption 2, Indie
+
+Wed, 25 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-steam-demo-way-of-hunter/
+
+If you enjoyed the vast wilderness of Red Dead Redemption 2, you can’t miss out on a new freebie that Steam is offering for a limited time.
+---------
+
+# DC's Next Level Timeline Sets Up the Perfect Roadmap for James Gunn's DCU Future
+
+DC Comics, DC, James Gunn
+
+Wed, 25 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/dc-comics-next-level-timeline-james-gunn-roadmap-dcu-future/
+
+The exciting new Next Level DC Comics timeline has just created the perfect storyline for James Gunn to follow with his version of the DCU.
+---------
+
+# 6 Anime Studios That Have Never Made A Bad Anime
+
+Anime
+
+Wed, 25 Feb 2026 23:00:19 GMT
+
+https://screenrant.com/anime-studios-no-bad-anime/
+
+Anime production studios are the backbone of the anime industry, and a very select few have consistently produced legendary titles.
+---------
+
+# Avengers: Doomsday Won’t Release In IMAX In US Theaters On Opening Weekend
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 25 Feb 2026 22:33:09 GMT
+
+https://screenrant.com/avengers-doomsday-no-opening-weekend-imax-release/
+
+Despite being one of the biggest movies of the year, Avengers: Doomsday will not be playing in IMAX theaters in the U.S. during opening weekend.
+---------
+
+# Sullivan's Crossing Season 4 Release Date & Major Maggie Twist Revealed In New Trailer After Netflix Streaming Domination
+
+TV, Sullivan's Crossing
+
+Wed, 25 Feb 2026 22:18:35 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-release-date-teaser-trailer/
+
+The CW announces Sullivan's Crossing season 4 premiere date and reveals a major twist involving Maggie's storyline in a new trailer.
+---------
+
+# Attorney General Sues Valve Over Central Game Mechanic
+
+Gaming, Valve, Live Service Games, PC
+
+Wed, 25 Feb 2026 22:15:56 GMT
+
+https://screenrant.com/valve-lawsuit-attorney-general-lootboxes/
+
+Steam proprietor and game developer Valve is now the target of a lawsuit from the New York State Attorney General hoping to rein in loot boxes.
+---------
+
+# Netflix’s 2-Part Cyberpunk Series Is One Of Its Best
+
+Classic TV, Altered Carbon, Netflix
+
+Wed, 25 Feb 2026 22:15:19 GMT
+
+https://screenrant.com/netflix-altered-carbon-best-cyberpunk-show/
+
+Altered Carbon is a nearly perfect two-season cyberpunk series on Netflix, featuring unique sci-fi concepts, great performances, and biting social commentary.
+---------
+
+# Chris Hemsworth's Netflix Action Franchise Had A Big Impact On Karl Urban's New R-Rated Pirate Action Movie
+
+Movies, The Bluff
+
+Wed, 25 Feb 2026 22:01:19 GMT
+
+https://screenrant.com/the-bluff-chris-hemsworth-extraction-impact-frank-e-flowers/
+
+Co-writer/director Frank E. Flowers talks The Bluff and how the likes of Chris Hemsworth's action franchise helped the R-rated pirate action movie.
+---------
+
+# Top 10 Fantasy Movie Sword Fights Ranked
+
+Movies, Conan the Destroyer, Red Sonja, Blade, Crouching Tiger, Hidden Dragon, The Lord of the Rings: The Fellowship of the Ring, Highlander, Pirates of the Caribbean: The Curse of the Black Pearl, The Mask of Zorro, Star Wars: Episode I - The Phantom Menace, The Princess Bride
+
+Wed, 25 Feb 2026 22:01:19 GMT
+
+https://screenrant.com/fantasy-movies-sword-fights-best-ranked/
+
+In worlds full of magic, mysterious powers, and high tech weaponry, sometimes you just can't beat a sword for that personal touch.
+---------
+
+# Spartacus Returns to Streaming Charts After Spinoff Success
+
+TV, Spartacus
+
+Wed, 25 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/spartacus-historical-drama-success-apple-tv-store-pvod-february-2026/
+
+Spartacus, from Daredevil showrunner Steven S. DeKnight, has re-entered the streaming charts after the success of the House of Ashur spinoff.
+---------
+
+# Black Sails Reaches Top 10 on Apple TV Store 9 Years After Finale
+
+TV, Black Sails
+
+Wed, 25 Feb 2026 22:59:23 GMT
+
+https://www.cbr.com/black-sails-pirate-action-success-apple-tv-store-pvod-february-2026/
+
+The 2014 pirate drama Black Sails has recently climbed to the 10th spot on Apple TV Store's most popular programs list.
+---------
+
+# 5 Action-Packed Spy Thrillers to Stream Tonight
+
+Movies, Thriller, Streaming, Atomic Blonde, Mission Impossible Fallout
+
+Wed, 25 Feb 2026 22:30:12 GMT
+
+https://www.cbr.com/action-packed-spy-thrillers-now-streaming-list/
+
+These pulse-pounding espionage flicks are all locked and loaded on streaming, just waiting to be called into action for tonight's entertainment.
+---------
+
+# As Rick and Morty Ends, the Manga Continues (Exclusive Preview)
+
+Comics, Rick and Morty
+
+Wed, 25 Feb 2026 22:18:44 GMT
+
+https://www.cbr.com/rick-and-morty-manga-volume-2-exclusive-preview/
+
+This week, Rick and Morty return to manga in the second volume of Rick and Morty: Manga, and CBR has an exclusive preview!
+---------
+
+# 10 Anime Opening Themes That Everybody Knows
+
+Anime, Attack On Titan, Frieren: Beyond Journey's End, Solo Leveling
+
+Wed, 25 Feb 2026 22:16:11 GMT
+
+https://www.cbr.com/anime-opening-theme-songs-that-everybody-knows/
+
+Some anime leave such an impact, that their opening songs will have you remembering the series instantly.
+---------
+
+# Battlestar Galactica's Controversial Finale Was a Perfect Conclusion
+
+TV, Battlestar Galactica, Sci-Fi
+
+Wed, 25 Feb 2026 22:05:12 GMT
+
+https://www.cbr.com/battlestar-galactica-perfect-finale/
+
+For many fans, this epic sci-fi finale was a full-circle culmination of everything the show bravely explored.
+---------
+
+# Steam Adds 6 More Free Games for February 2026, No Strings Attached
+
+Games, Steam
+
+Wed, 25 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/newest-free-steam-games-february-2026/
+
+February is almost over, but Steam is treating users to even more free games!
+---------
+
+# 10 DC Characters Who Need Better Writing Right Away
+
+Comics, DC Comics, Swamp Thing
+
+Wed, 25 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/dc-characters-who-deserve-better-writing/
+
+The world of DC Comics boasts one of the greatest rosters of characters in fiction, but too many are being under-served by questionable writing.
+---------
+
+# Matt Murdock Returns to a Darker Hell’s Kitchen in First Look at 'Daredevil: Born Again' Season 2 [Exclusive]
+
+Exclusives, Daredevil: Born Again, Charlie Cox, Krysten Ritter, Collider Exclusive Preview
+
+Wed, 25 Feb 2026 23:00:13 GMT
+
+https://collider.com/daredevil-born-again-season-2-image-matt-murdock-charlie-cox-kingpin-vincent-donofrio/
+
+A new image from Daredevil: Born Again Season 2 sets up a darker, comic-accurate return for Charlie Cox's Man Without Fear.
+---------
+
+# 'A Knight of the Seven Kingdoms' Season 1 Finale Made a Crucial Mistake With These Targaryen Brothers
+
+TV Features, A Knight Of The Seven Kingdoms, HBO Max, Sam Spruell, Game Of Thrones
+
+Wed, 25 Feb 2026 22:52:12 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-finale-baelor-funeral-maekar-killing/
+
+Maekar's underdeveloped character hinders A Knight of the Seven Kingdoms and leaves fans without an understanding of his grief over Baelor's death.
+---------
+
+# Alfred Hitchcock Called One of His Masterpieces a "Nonsensical" and "Unreal" Stunt
+
+Movie Features, Alfred Hitchcock, Rope, Horror, James Stewart
+
+Wed, 25 Feb 2026 22:51:12 GMT
+
+https://collider.com/alfred-hitchcock-rope-stunt-single-take-jimmy-stewart/
+
+In 1948’s Rope, Alfred Hitchcock attempted to make a film that looked like one take, which he ultimately thought was a failed experiment.
+---------
+
+# 10 Best Monsters in Fantasy Movies, Ranked
+
+Movie, The Lord of the Rings, Harry Potter, Monty Python and the Holy Grail, Pan's Labyrinth
+
+Wed, 25 Feb 2026 22:29:12 GMT
+
+https://collider.com/fantasy-movie-monsters-best-ranked/
+
+From Harry Potter to The Lord of the Rings, these are the best and most memorable monsters from fantasy cinema.
+---------
+
+# 7 Best 'Simpsons' Episodes Parodying Oscar-Nominated Movies
+
+TV, The Simpsons, Rear Window, James Bond, Thelma & Louise
+
+Wed, 25 Feb 2026 22:08:12 GMT
+
+https://collider.com/the-simpsons-episodes-oscar-nominated-movie-parodies/
+
+The Simpsons are no stranger to parody and taking shots at Oscar-nominated films like Alfred Hitchcock's Rear Window and Martin Scorsese's Cape Fear.
+---------
+
+# After ‘Top Chef,’ Padma Lakshmi Returns With a Bold New Cooking Contest [Exclusive]
+
+Reality TV, Reality, Padma Lakshmi, CBS, Collider Exclusive Preview
+
+Wed, 25 Feb 2026 22:01:12 GMT
+
+https://collider.com/americas-culinary-cup-image-padma-lakshmi-cbs-new-cooking-competition-show/
+
+A new image from America's Culinary Cup teases the tense new cooking competition under iconic former Top Chef host Padma Lakshmi.
+---------
+
+# Melissa McCarthy's Filmography Is Uneven To Say the Least, But These 3 Movies Are Masterpieces
+
+Movie, Melissa McCarthy, Spy, Can You Ever Forgive Me?, Bridesmaids
+
+Wed, 25 Feb 2026 21:54:12 GMT
+
+https://collider.com/best-melissa-mccarthy-movies-masterpieces/
+
+Melissa McCarthy is a talented actor with a notoriously spotty filmography, but movies like Bridesmaids and Spy are incredible.
+---------
+
+# Sci-Fi Thriller Favorite 'Happy Death Day' Slashes Onto New Streaming Home
+
+Movie News, Happy Death Day, Coming/Leaving Streaming, Sci-Fi
+
+Wed, 25 Feb 2026 23:00:17 GMT
+
+https://movieweb.com/happy-death-day-streaming-hbo-max-march-2026/
+
+Jessica Rothe and Christopher Landon's horror take on the time loop began one of the most underrated franchises in recent memory.
+---------
+
+# 'The Pitt' Season 2 Robby Fan Theory Fixes the Most Frustrating Problem
+
+Features, The Pitt
+
+Wed, 25 Feb 2026 23:00:17 GMT
+
+https://movieweb.com/the-pitt-season-2-robby-night-shift-theory/
+
+'The Pitt' Season 2 is streaming on HBO Max, and this fan theory about Dr. Robby (Noah Wyle) could solve a problem with the medical drama.
+---------
+
+# 22 Years Later, 'Lost' Does 1 Thing Better Than Every Other TV Show
+
+Features, Lost
+
+Wed, 25 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/lost-sci-fi-series-best-flashbacks/
+
+'Lost,' one of the most popular science-fiction TV shows, premiered in 2004 and can still be appreciated because of one element.
+---------
+
 # Terrifier 4 Seemingly Confirmed As Final One In New Production Timeline Update From Director
 
 Movies, Terrifier, Terrifier 4
