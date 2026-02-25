@@ -1,3 +1,377 @@
+# Terrifier 4 Seemingly Confirmed As Final One In New Production Timeline Update From Director
+
+Movies, Terrifier, Terrifier 4
+
+Wed, 25 Feb 2026 21:44:03 GMT
+
+https://screenrant.com/terrifier-4-final-movie-production-timeline-damien-leone/
+
+Series creator and director Damien Leone took to social media to clear up any confusion about Terrifier 4's current production timeline.
+---------
+
+# Taylor Sheridan's Lioness Gets Season 3 Update
+
+TV, Lioness
+
+Wed, 25 Feb 2026 21:43:58 GMT
+
+https://screenrant.com/lioness-season-3-release-update-genesis-rodriguez/
+
+One of the stars of Taylor Sheridan's popular spy thriller receives an exciting update for its upcoming third season.
+---------
+
+# Daredevil: Born Again Season 2 Time Jump Revealed After Kingpin Declared Martial Law
+
+TV, Daredevil: Born Again
+
+Wed, 25 Feb 2026 21:37:11 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-time-jump-dario-scardapane/
+
+Daredevil: Born Again season 2 delves into a transformed New York City after Kingpin declares martial law.
+---------
+
+# Zootopia 3 Possibility Discussed by Director After 10-Year Gap for Sequel
+
+Interviews, Zootopia
+
+Wed, 25 Feb 2026 21:36:52 GMT
+
+https://screenrant.com/zootopia-3-wait-addressed-by-director-exclusive/
+
+Zootopia director Byron Howard hints at potential third installment after 10-year gap between films, fueled by fan enthusiasm for the animated series.
+---------
+
+# Every Season Of Netflix's 3-Part Sci-Fi Series Is Perfect From Start To Finish
+
+TV, Netflix, Dark
+
+Wed, 25 Feb 2026 21:31:21 GMT
+
+https://screenrant.com/dark-netflix-sci-fi-series-every-season-perfect/
+
+Netflix has quite a few exciting sci-fi series, but this mind-bending show is easily one of its best, and every season is perfect all the way through.
+---------
+
+# Paradise Season 2 Theory Hints At Who Alex Really Is (& It Involves Time Travel)
+
+TV, Paradise
+
+Wed, 25 Feb 2026 21:31:21 GMT
+
+https://screenrant.com/paradise-season-2-alex-theory-technology-sinatra-explained/
+
+A theory about Paradise season 2 hints at who Alex really is, positing that time travel may have a role to play in the story moving forward.
+---------
+
+# Cyberpunk 2077, GTA 6 Collide In Stunning New Open-World RPG
+
+Gaming, Steam, Cyberpunk 2077, Grand Theft Auto 6
+
+Wed, 25 Feb 2026 21:31:21 GMT
+
+https://screenrant.com/cyberpunk-2077-no-law-gta-6-open-world-rpg/
+
+Explore a corrupt, neon-drenched city in NO LAW, an upcoming open-world RPG that combines elements of Cyberpunk 2077 and GTA 6.
+---------
+
+# A Bowser Jr. Detail In The Super Mario Galaxy Movie Could Set Up A Game Accurate Twist From 24 Years Ago
+
+New Movies, The Super Mario Galaxy Movie, Super Mario, Explainer
+
+Wed, 25 Feb 2026 21:31:21 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-bowser-jr-shadow-form-hint/
+
+A few details in The Super Mario Galaxy Movie suggest that a key part of Bowser Jr.'s original plan will take shape in the upcoming film.
+---------
+
+# "It's Been A Challenge" - WoW Developers On The Burden Of Midnight Being A Middle Chapter
+
+Gaming, World of Warcraft, Triple-A Games, PC
+
+Wed, 25 Feb 2026 21:16:18 GMT
+
+https://screenrant.com/wow-midnight-prey-raids-zulaman-interview/
+
+We talked to multiple developers who were tasked with bringing World of Warcraft: Midnight to life about the past, present, and future.
+---------
+
+# Micro Budget Review: A Blisteringly Funny Satire of Making Movies on the Cheap
+
+Movies, Micro Budget
+
+Wed, 25 Feb 2026 21:00:21 GMT
+
+https://screenrant.com/micro-budget-movie-review/
+
+Patrick Noth and Morgan Evans' film is so loaded with alt-comedy superstars its bound for success, even if the film-within-the-film is a mess.
+---------
+
+# Molly Ringwald Joins Yellowjackets Season 4 Cast
+
+TV, Yellowjackets
+
+Wed, 25 Feb 2026 21:41:45 GMT
+
+https://www.cbr.com/yellowjackets-cast-molly-ringwald-season-4/
+
+Iconic '80s actress Molly Ringwald signs on for a recurring role in Showtime's Yellowjackets Season 4.
+---------
+
+# Avengers: Doomsday - New Super Soldier Brotherhood Forms in the MCU
+
+Movies, Avengers: Doomsday, superheroes, Marvel Cinematic Universe
+
+Wed, 25 Feb 2026 21:29:45 GMT
+
+https://www.cbr.com/avengers-doomsday-super-soldier-brotherhood-david-harbour/
+
+David Harbour discusses the bond forming between Alexei Shostakov, Bucky Barnes, and John Walker in the Marvel Cinematic Universe.
+---------
+
+# Gundam Revives 2 Failed Anime Reboots With New Gunpla Model Kit Reveals
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam F91, Gundam Reconguista in G, toys, merchandise, bandai
+
+Wed, 25 Feb 2026 21:21:24 GMT
+
+https://www.cbr.com/gundam-reconguista-in-g-f90-bandai-gunpla/
+
+Two of Bandai's newest Gundam model kits redeem some of the brand's most notable and overlooked entries with High Grade and Master Grade collectibles.
+---------
+
+# Dragon Ball GT’s Baby Saga Is an Even More Horror-Driven Masterpiece Than the Cell Saga
+
+Anime, Dragon Ball GT, Dragon Ball, Horror
+
+Wed, 25 Feb 2026 21:15:22 GMT
+
+https://www.cbr.com/dragon-ball-gt-baby-saga-most-horror-coded-not-imperfect-cell-saga/
+
+Dragon Ball GT's Baby Saga dips the anime's toe in harrowing horror with its villain, storytelling, extreme stakes, and uncomfortable imagery.
+---------
+
+# The 3-Part Cult-Favorite Horror TV Spinoff Is Suddenly a PVOD Hit Again 8 Years After Untimely Cancellation
+
+TV, Ash vs Evil Dead, Horror
+
+Wed, 25 Feb 2026 21:00:14 GMT
+
+https://www.cbr.com/ash-vs-evil-dead-horror-apple-tv-success-february-2026/
+
+The gone-too-soon television spinoff of a beloved horror franchise becomes a digital hit in the wake of news of the next theatrical movie.
+---------
+
+# BBC's Forgotten Narnia Adaptation is a Must-Watch Before Netflix's Reboot
+
+TV, The Chronicles of Narnia, Narnia: The Magician's Nephew, Fantasy
+
+Wed, 25 Feb 2026 21:00:14 GMT
+
+https://www.cbr.com/bbc-narnia-miniseries-must-watch-before-netflix-reboot/
+
+The Chronicles of Narnia fans are likely familiar with the film trilogy from the mid-2000s, but the BBC's adaptation has been largely forgotten.
+---------
+
+# 5 Comic Book Reboots That Were Worth Reading (& 5 That Miserably Failed)
+
+Comics, DC Comics, Marvel, Transformers
+
+Wed, 25 Feb 2026 21:00:14 GMT
+
+https://www.cbr.com/comic-book-reboots-that-worked-or-failed-completely/
+
+Comic book publishers often turn to relaunches and reboots to boost sales, and some are definitely more successful than others.
+---------
+
+# Kevin Williamson's Sick Is Mandatory Viewing Before Scream 7
+
+Movies, Sick, Horror, Peacock
+
+Wed, 25 Feb 2026 20:00:12 GMT
+
+https://www.cbr.com/peacock-sick-kevin-williamson-slasher/
+
+With Scream 7 just days away, it's the perfect time to pregame with Kevin Williamson's best original horror movie, an underrated 2022 gem.
+---------
+
+# 90 Years Ago, Charlie Chaplin Said Goodbye to The Tramp in Stunning Fashion
+
+Movie Features, Charlie Chaplin, Modern Times, The Tramp, Classics
+
+Wed, 25 Feb 2026 21:42:13 GMT
+
+https://collider.com/charlie-chaplin-modern-times-tramp-last-film/
+
+In 1936’s Modern Times, Charlie Chaplin finally said goodbye to The Tramp, by having him finally “talk.”
+---------
+
+# 10 Most Ambitious Animated Movies of All Time, Ranked
+
+Movie, Animation, Millennium Actress, Who Framed Roger Rabbit, Snow White and the Seven Dwarfs
+
+Wed, 25 Feb 2026 21:29:28 GMT
+
+https://collider.com/most-ambitious-animated-movies-all-time-ranked/
+
+Who Framed Roger Rabbit, Spider-Man: Into the Spider-Verse, Fantasia, Akira, and more make our list of the most ambitious animated movies of all time.
+---------
+
+# Lauryn Hill’s Legacy Proves She Belongs in the Rock and Roll Hall of Fame
+
+Music Features, Lauryn Hill: MTV Unplugged, Music, Rock, Hip-Hop
+
+Wed, 25 Feb 2026 21:27:20 GMT
+
+https://collider.com/lauryn-hill-rock-and-roll-hall-of-fame-nomination/
+
+Lauryn Hill helped launch John Legend's career, highlighting her enduring impact and paving the way for her Rock and Roll Hall of Fame nomination.
+---------
+
+# Before 'Paradise,' Thomas Doherty Played One of His Most Divisive Characters in This Beloved Hulu Drama
+
+TV Features, Paradise, Tell Me Lies, Hulu, Grace Van Patten
+
+Wed, 25 Feb 2026 21:22:25 GMT
+
+https://collider.com/thomas-doherty-before-paradise-tell-me-lies-divisive-role/
+
+Before becoming a newcomer in Paradise Season 2, Thomas Doherty had fans scratching their heads in Hulu’s Tell Me Lies.
+---------
+
+# 10 Movies That Perfectly Track the History of the Sci-Fi Genre
+
+Movie, Science Fiction, Arrival, Children of Men, The Day The Earth Stood Still
+
+Wed, 25 Feb 2026 21:21:26 GMT
+
+https://collider.com/movies-perfectly-track-sci-fi-history/
+
+Sci-fi cinema has changed greatly throughout the decades, and one can track its evolution from classics like Metropolis to modern gems like Arrival.
+---------
+
+# Before 'Game of Thrones,' Sam Raimi's 44-Episode Fantasy Cult Classic Signaled the End of an Era
+
+TV Features, Legend of the Seeker, Rob Tapert, Sam Raimi, Fantasy
+
+Wed, 25 Feb 2026 21:18:23 GMT
+
+https://collider.com/legend-of-the-seeker-sam-raimi-fantasy-epic-adventure/
+
+Executive produced by Sam Raimi, Legend of the Seeker features action-packed episodes and a captivating romance set in a complex fantasy world.
+---------
+
+# Hulu's Biggest Sci-Fi Hit Just Did Something Completely Unheard of With Its Season 2 Return
+
+TV Features, Paradise, Sterling K. Brown, Shailene Woodley, Hulu
+
+Wed, 25 Feb 2026 21:11:21 GMT
+
+https://collider.com/paradise-season-2-premiere-shailene-woodley-annie-new-character/
+
+Paradise Season 2 kicks off with a bold move, focusing on brand-new characters in its post-apocalyptic world.
+---------
+
+# 10 Best-Looking Romance Movies, Ranked
+
+Movie, Romance, Phantom Thread, Portrait of a Lady on Fire, Call Me by Your Name
+
+Wed, 25 Feb 2026 21:05:17 GMT
+
+https://collider.com/romance-movies-best-looking-ranked/
+
+From maximalist feasts to painterly landscapes, these romance movies provide some of the best-looking visuals.
+---------
+
+# BritBox’s New Doomed Royal Romance Gets Devastating First Look [Exclusive]
+
+Exclusives, The Lady, Britbox, Natalie Dormer, Collider Exclusive Preview
+
+Wed, 25 Feb 2026 21:00:14 GMT
+
+https://collider.com/the-lady-ed-speleers-mia-mckenna-bruce-image-royal-romance-scandal-murder-britbox/
+
+Get an exclusive first look at BritBox's upcoming true crime drama The Lady, featuring Mia McKenna-Bruce and Ed Speleers in a twisted tale of love.
+---------
+
+# The Fourth and Final 'Terrifier' Movie Gets a Scary Good Update From Director
+
+Movie News, Terrifier 4, Terrifier, Damien Leone, Horror
+
+Wed, 25 Feb 2026 20:41:46 GMT
+
+https://collider.com/terrifier-4-script-update-art-the-clown-final-movie-pre-production-start-spring-2026/
+
+Terrifier 4 has gotten an official update from director Damien Leone, who has seemingly confirmed it will be the final chapter in Art's story.
+---------
+
+# Johnny Knoxville Says 'Jackass 5' Will be the End of the Franchise
+
+Movie News, Jackass 5
+
+Wed, 25 Feb 2026 21:46:31 GMT
+
+https://movieweb.com/johnny-knoxville-confirms-jackass-future/
+
+When 'Jackass 5' hits theaters in June 2026, it will mark the final film in the beloved comedy series.
+---------
+
+# 'In the Blink of an Eye' Review: Three Interconnected Stories, One Bad Film
+
+Movie Reviews, In the Blink of an Eye, Kate McKinnon, Rashida Jones
+
+Wed, 25 Feb 2026 21:44:42 GMT
+
+https://movieweb.com/in-the-blink-of-an-eye-review/
+
+'WALL-E' director and Pixar vet Andrew Stanton returns to live-action filmmaking with a well-meaning but painfully thin story about What It All Means.
+---------
+
+# 'Marshals' Rotten Tomatoes Score Parallels 'Yellowstone's Debut
+
+TV News, Marshals, Rotten Tomatoes, Yellowstone
+
+Wed, 25 Feb 2026 21:20:17 GMT
+
+https://movieweb.com/marshals-rotten-tomatoes-score-taylor-sheridan/
+
+The CBS procedural takes Kayce Dutton a long way from the Yellowstone Ranch.
+---------
+
+# Every 'Game of Thrones' Franchise Season, Ranked
+
+TV Lists, Game Of Thrones
+
+Wed, 25 Feb 2026 21:00:19 GMT
+
+https://movieweb.com/game-of-thrones-every-franchise-season-ranked/
+
+'Game of Thrones' was a huge hit for HBO, but every season of the fantasy franchise, based on George R.R. Martin's books, varies in quality.
+---------
+
+# Dove Cameron's Thriller '56 Days' Topples 'Fallout' on Prime Video
+
+TV News, 56 Days, Prime Video, Hot on Streaming
+
+Wed, 25 Feb 2026 21:00:13 GMT
+
+https://movieweb.com/56-days-streaming-prime-video-february-2026/
+
+Just days after its release, the gripping new series finally takes the #1 spot from the sci-fi show.
+---------
+
+# Every New Movie and TV Show Coming To Shudder in March 2026
+
+Features
+
+Wed, 25 Feb 2026 20:01:17 GMT
+
+https://movieweb.com/shudder-new-movies-tv-march-2026/
+
+March 2026's Shudder line-up brings new original horror movies and TV shows, plus cult classics, with something for every fan.
+---------
+
 # Tick, Tick...Boom! Biopic Deserved A Best Picture Nomination
 
 Movies, tick, tick... BOOM!, Op-Ed, Oscars
