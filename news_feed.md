@@ -1,3 +1,377 @@
+# Tick, Tick...Boom! Biopic Deserved A Best Picture Nomination
+
+Movies, tick, tick... BOOM!, Op-Ed, Oscars
+
+Wed, 25 Feb 2026 19:30:19 GMT
+
+https://screenrant.com/academy-awards-tick-tick-boom-best-picture-snub/
+
+The 2022 Oscars snubbed a fantastic biopic in the Best Picture category and doing so is one of the academy's oddest decisions.
+---------
+
+# The 1960s Episode Star Trek Should Remake Next (After Starfleet Academy's "Amok Time")
+
+Star Trek, Explainer
+
+Wed, 25 Feb 2026 19:30:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-tos-remake-episode/
+
+Starfleet Academy episode 7 is a subtle remake of Star Trek: The Original Series classic "Amok Time," but another 1960s episode also deserves a redo.
+---------
+
+# There’s Still Time To Binge Starz’s Criminally Underrated Historical Fantasy Before Its Epic Final Season
+
+Streaming TV, Outlander
+
+Wed, 25 Feb 2026 19:27:20 GMT
+
+https://screenrant.com/outlander-binge-starz-before-season-8/
+
+Ahead of the debut of its much-anticipated final season, there's still enough time to catch up on a criminally-underrated historical fantasy show.
+---------
+
+# Lyonel Baratheon's A Knight Of The Seven Kingdoms Season 2 Return Chances & Future Teased By Daniel Ings
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Wed, 25 Feb 2026 19:24:43 GMT
+
+https://screenrant.com/knight-seven-kingdoms-season-2-lyonel-baratheon-return-response-daniel-ings/
+
+Following the season 1 finale, A Knight of the Seven Kingdoms star Daniel Ings addresses whether Lyonel Baratheon will return in season 2 or beyond.
+---------
+
+# Interview With A Vampire Season 3 Release Month Confirmed With New Lestat Poster
+
+TV, Interview with the Vampire
+
+Wed, 25 Feb 2026 19:11:18 GMT
+
+https://screenrant.com/interview-with-vampire-season-3-release-month-confirmed/
+
+As the wait for AMC's acclaimed supernatural drama series continues, the release month for Interview with a Vampire season 2 has been confirmed.
+---------
+
+# Iconic Children's Book That Launched A Series 87 Years Ago Is Being Adapted Into A Movie
+
+Movies, Madeline
+
+Wed, 25 Feb 2026 19:03:15 GMT
+
+https://screenrant.com/madeline-animated-movie-development-report/
+
+An iconic children's book, last adapted into a film 28 years ago, is being transformed into an animated movie by Sycamore Studios.
+---------
+
+# Karl Urban's The Bluff 2 Chances Addressed By Director After Prime Video Debut
+
+Movies, The Bluff
+
+Wed, 25 Feb 2026 19:01:18 GMT
+
+https://screenrant.com/the-bluff-2-chances-frank-e-flowers/
+
+Exclusive: Co-writer/director Frank E. Flowers talks the chances of The Bluff 2 after Karl Urban's pirate action movie debuts on Prime Video.
+---------
+
+# Who Annie Is In Paradise Season 2 & How She Survived The Disaster
+
+Streaming TV, Paradise
+
+Wed, 25 Feb 2026 19:01:18 GMT
+
+https://screenrant.com/paradise-season-2-annie-character-shailene-woodley-survival-explained/
+
+Paradise season 2's opening episode centers around a new character named Annie. Here's everything you need to know about the show's key survivor.
+---------
+
+# Amazon Studios Adapting Bestselling Psychological Thriller Into A TV Show From The Walking Dead Showrunner
+
+TV, Amazon Studios
+
+Wed, 25 Feb 2026 19:00:19 GMT
+
+https://screenrant.com/never-to-be-found-show-development-amazon-angela-kang-report/
+
+Amazon Studios is adapting a psychological thriller novel by a bestselling author into a television series from The Walking Dead showrunner.
+---------
+
+# Why Netflix's New #1 Mystery Thriller Is Taking Over The World
+
+Movies, Netflix, Thriller, Recommendation
+
+Wed, 25 Feb 2026 18:49:28 GMT
+
+https://screenrant.com/netflix-mystery-thriller-firebreak-movie-trending-worldwide/
+
+An unexpected Netflix original has quietly dominated streaming charts, with its mixture of kidnapping and natural disaster making for a 10/10 thriller
+---------
+
+# Daredevil: Born Again Season 2 Won’t Be a “Frankenstein” Like Season 1
+
+TV, Daredevil: Born Again, superheroes, Disney+
+
+Wed, 25 Feb 2026 19:55:15 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-production-frankenstein/
+
+Daredevil: Born Again Season 1 faced creative challenges, combining old and new footage to create a cohesive story.
+---------
+
+# 10 Amazing Horror Games That Unfairly Sold Poorly
+
+Games, Horror, horror games
+
+Wed, 25 Feb 2026 19:30:11 GMT
+
+https://www.cbr.com/greatest-horror-games-sold-poorly-list/
+
+Some horror games, like The Evil Within 2, had the potential to be hits but failed to connect with gamers.
+---------
+
+# Stephanie Lang Reveals the True Story Behind Tow
+
+Movies, Tow
+
+Wed, 25 Feb 2026 19:15:12 GMT
+
+https://www.cbr.com/video/stephanie-lang-reveals-the-true-story-behind-tow/
+
+The Tow director reveals why Amanda’s $21,000 battle felt impossible to ignore.In this CBR Presents interview, Stephanie Lang breaks down what drew her to Tow and the real-life fight that powers the film. From discovering Amanda’s resilience to speaking with the real people behind the lawsuit, Lang shares why this underdog story felt urgent and personal.
+---------
+
+# Zootopia 2 Becomes Biggest Movie of 2025 in US, Surpassing Minecraft
+
+Movies, Zootopia 2, Comedy, box office
+
+Wed, 25 Feb 2026 19:06:21 GMT
+
+https://www.cbr.com/zootopia-2-box-office-highest-grossing-domestic-release-2025-minecraft/
+
+Disney's Zootopia 2 claims the top spot for 2025's biggest domestic box office hit, surpassing Jack Black's Minecraft Movie.
+---------
+
+# Gen Z Is Fighting Back Against Hollywood Movies' Masculine Stereotype, Says New Study
+
+Movies
+
+Wed, 25 Feb 2026 19:00:31 GMT
+
+https://www.cbr.com/gen-z-rejecting-hollywood-movie-trend-study/
+
+The new generation isn't on board with this old trend.
+---------
+
+# CBS' Law & Order Replacement Hits No. 5 on Paramount+ U.S. Charts
+
+TV, FBI, Crime
+
+Wed, 25 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/cbs-fbi-series-paramount-plus-streaming-success-february-2026/
+
+The hit CBS crime drama from Law & Order's Dick Wolf just returned from hiatus and is already dominating the streaming charts.
+---------
+
+# These 10 Villains Won't Be Seen In the MCU Anytime Soon
+
+Superheroes, Marvel Cinematic Universe
+
+Wed, 25 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/villains-who-will-never-be-in-the-mcu/
+
+Don't expect to see these big bads take on the Marvel Cinematic Universe any time soon.
+---------
+
+# Crunchyroll's Reincarnated as a Slime Returns for U.S. Theater Comeback 3 Years After Dividing Critics
+
+Anime, That Time I Got Reincarnated as a Slime, Crunchyroll
+
+Wed, 25 Feb 2026 18:32:54 GMT
+
+https://www.cbr.com/crunchyroll-reincarnated-as-a-slime-america-theater-new-release/
+
+One of the most highly anticipated isekai anime films of the decade finally has an official North American theatrical release date.
+---------
+
+# 10 Greatest Sega Genesis Games of All Time, Ranked
+
+Games, Sega Genesis, sega
+
+Wed, 25 Feb 2026 18:30:12 GMT
+
+https://www.cbr.com/greatest-sega-genesis-games-all-time-ranked/
+
+Sonic 3 & Knuckles and X-Men are some of the best games on the Sega Genesis.
+---------
+
+# DC's Absolute Universe’s First Crossover Event Is Finally Happening
+
+Comics, DC Comics, Batman, Superman, Wonder Woman
+
+Wed, 25 Feb 2026 18:15:35 GMT
+
+https://www.cbr.com/dc-comics-absolute-universe-crossover-event-confirmed/
+
+The Absolute Universe is heading for its very first major crossover event, and it is already shaping up to be bigger than Absolute Evil.
+---------
+
+# Jafar Panahi Explains ‘It Was Just an Accident’s Haunting, Oscar-Nominated Ending
+
+Exclusives, It Was Just an Accident, FYC, Oscars, Politics
+
+Wed, 25 Feb 2026 19:52:08 GMT
+
+https://collider.com/it-was-just-an-accident-ending-explained-jafar-panahi-interview-oscars-2026/
+
+Oscar-nominated filmmaker Jafar Panahi explains It Was Just an Accident’s chilling ending and calls for solidarity with Iranian protestors.
+---------
+
+# 10 Best Crowd-Pleasing Action Movies, Ranked
+
+Movie, Top Gun: Maverick, Raiders of the Lost Ark, Star Wars, The Lord of the Rings: The Return of the King
+
+Wed, 25 Feb 2026 19:51:12 GMT
+
+https://collider.com/best-crowd-pleasing-action-movies-ranked/
+
+Some of the best crowd-pleasing action movies of all time include classics like Raiders of the Lost Ark and more recent hits like Top Gun: Maverick.
+---------
+
+# Rebecca Ferguson’s 3-Part Sci-Fi Saga Is Rewriting Everything You Think You Know [Exclusive]
+
+TV News, Silo, Jessica Henwick, Rebecca Ferguson, Sci-Fi
+
+Wed, 25 Feb 2026 19:46:12 GMT
+
+https://collider.com/silo-season-3-origin-story-tonal-shift-jessica-henwick/
+
+Jessica Henwick reveals how Silo Season 3 rewinds to the beginning, shifts the tone dramatically, and pushes her further than ever as an actor.
+---------
+
+# Chris Pratt's 5 Best Marvel Movies, Ranked
+
+Movie, Marvel, Chris Pratt, Guardians of the Galaxy, Guardians of the Galaxy Vol. 3
+
+Wed, 25 Feb 2026 19:42:12 GMT
+
+https://collider.com/chris-pratt-marvel-movies-best-ranked/
+
+Ranking Chris Pratt’s best Marvel movies as Star-Lord, from Guardians highs to Avengers chaos, where humor and heartbreak collide.
+---------
+
+# ‘The Simpsons’ Perfect 16-Part Replacement Rewrites the Classic American Family Sitcom Code
+
+TV Features, Bob's Burgers, The Simpsons, Animation, Fox
+
+Wed, 25 Feb 2026 19:33:12 GMT
+
+https://collider.com/bobs-burgers-the-simpsons-perfect-replacement-american-sitcom/
+
+Bob's Burgers redefines the classic Simpsons formula with its more realistic portrayal of working-class life.
+---------
+
+# 'Sullivan's Crossing' Reveals Its Biggest Twist Yet in Steamy Season 4 Trailer
+
+TV News, Sullivan's Crossing, Chad Michael Murray, The CW, Netflix
+
+Wed, 25 Feb 2026 19:29:05 GMT
+
+https://collider.com/sullivans-crossing-season-4-teaser-trailer-release-date-april-2026/
+
+Cal is at a crossroads in the new trailer for Sullivan's Crossing Season 4, which now has an official 2026 release date. See it here!
+---------
+
+# Does Shakira Deserve to Be in the Rock & Roll Hall of Fame?
+
+Music Features, Rock, Shakira: MTV Unplugged, Billboard Hot 100, Music
+
+Wed, 25 Feb 2026 19:28:10 GMT
+
+https://collider.com/shakira-rock-and-roll-hall-of-fame-2026-nomination/
+
+Shakira is a first time Rock and Roll Hall of Fame nominee and only four Latin artists have been inducted before her.
+---------
+
+# 10 Years After the 'New Girl'-'Brooklyn Nine-Nine' Crossover, a Series Star Reunites With the Cop Comedy's Co-Creator
+
+TV News, New Girl, Jake Johnson, NBC, Brooklyn Nine-Nine
+
+Wed, 25 Feb 2026 19:27:23 GMT
+
+https://collider.com/new-girl-star-jake-johnson-cast-crime-comedy-sitcom-brooklyn-nine-nine-co-creator-dan-goor-nbc/
+
+Jake Johnson, best known for his role in New Girl, will return to network television as the lead of a brand-new crime series on NBC.
+---------
+
+# 'The Simpsons' Takes Its Darkest Turn Yet in 37 Years of the Classic American Sitcom
+
+TV Features, The Simpsons, Dan Castellaneta, Disney+, Sitcom
+
+Wed, 25 Feb 2026 19:27:12 GMT
+
+https://collider.com/the-simpsons-season-37-finale-kirk-bipolar-explained/
+
+In the Season 37 finale of The Simpsons, Homer learns about Kirk's bipolar disorder and how it affects him and his loved ones.
+---------
+
+# Brendan Fraser and Rachel Weisz's 'The Mummy 4' Return Isn't Just "Nostalgia Bait" [Exclusive]
+
+Movie News, Tyler Gillett, Matt Bettinelli-Olpin, Radio Silence, The Mummy
+
+Wed, 25 Feb 2026 19:14:53 GMT
+
+https://collider.com/the-mummy-4-update-not-nostalgia-bait-brendan-fraser-rachel-weisz-matt-bettinelli-olpin-tyler-gillett/
+
+Director duo Matt Bettinelli-Olpin and Tyler Gillett discuss their approach to rebooting The Mummy franchise with Brendan Fraser and Rachel Weisz.
+---------
+
+# 'The Mandalorian & Grogu' Reportedly Causing "Concerns" at Disney
+
+Movie News, The Mandalorian and Grogu, Star Wars
+
+Wed, 25 Feb 2026 19:25:47 GMT
+
+https://movieweb.com/mandalorian-and-grogu-disney-concerns/
+
+Reports suggest Disney executives are concerned if the 'Star Wars' spin-off will draw audiences to the theaters.
+---------
+
+# Natalie Portman's 'V for Vendetta" Heading to HBO Max in March
+
+Movie News, Coming/Leaving Streaming, V For Vendetta, Holds Up
+
+Wed, 25 Feb 2026 19:01:17 GMT
+
+https://movieweb.com/v-for-vendetta-streaming-hbo-march-2026/
+
+The cult-classic sci-fi remains strangely prescient.
+---------
+
+# 'Zootopia 2' Officially Highest-Grossing Movie at 2025 Box Office
+
+Movie News, Zootopia 2
+
+Wed, 25 Feb 2026 18:49:09 GMT
+
+https://movieweb.com/zootopia-2-highest-grossing-movie-2025/
+
+'Zootopia 2' has outgrossed 'A Minecraft Movie' as the highest-grossing film of 2025 at the domestic box office.
+---------
+
+# 'Mortal Kombat II' Trailer Reveals More Fatalities, Karl Urban as Johnny Cage
+
+Movie News, Mortal Kombat II
+
+Wed, 25 Feb 2026 18:28:38 GMT
+
+https://movieweb.com/mortal-kombat-ii-new-trailer/
+
+The latest trailer for the highly anticipated video game movie sequel unleashes more bloody and mayhem than ever before.
+---------
+
 # Mortal Kombat 2 Trailer Released
 
 Movies
