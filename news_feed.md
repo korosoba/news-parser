@@ -1,3 +1,388 @@
+# Pokémon Presents February 2026: Date, Start Time, & Where To Watch
+
+Gaming, Pokemon
+
+Wed, 25 Feb 2026 05:03:19 GMT
+
+https://screenrant.com/pokemon-presents-february-2026-start-time-date-watch/
+
+The Pokémon Presents for February 2026 is happening soon, with expections high for the 30th Anniversary and Gen 10 games. Here's everything to know.
+---------
+
+# Marvel's Wolverine Drops Official Release Date
+
+Gaming, Marvel's Wolverine, Triple-A Games
+
+Wed, 25 Feb 2026 04:00:19 GMT
+
+https://screenrant.com/marvels-wolverine-release-date-fan-reaction/
+
+After ages of waiting, and a no-show at 2026's first Sony State of Play stream, we now have a shocking full release date for Marvel's Wolverine.
+---------
+
+# 5 Marvel Villains Confirmed For Spider-Man Noir, Ranked By Threat Level
+
+TV, Spider-Noir, Marvel Cinematic Universe
+
+Wed, 25 Feb 2026 03:45:16 GMT
+
+https://screenrant.com/marvel-villains-confirmed-for-spider-noir-ranked/
+
+Here's our ranking for Spider-Noir villain confirmed to appear in the upcoming series starring Nicolas Cage as the titular dectetive/superhero.
+---------
+
+# Naruto’s Live-Action Movie Just Dropped Its Most Important Update Yet From Its Screenwriter
+
+Anime, Naruto
+
+Wed, 25 Feb 2026 03:01:49 GMT
+
+https://screenrant.com/naruto-live-action-movie-cretton-update-tasha-huo/
+
+The long-awaited Naruto live-action movie got a quiet update from a key screenwriter this past fall.
+---------
+
+# All High Potential Fans Must Binge This Excellent 3-Part Crime Series On Hulu
+
+Streaming TV, High Potential, Graceland
+
+Wed, 25 Feb 2026 02:15:18 GMT
+
+https://screenrant.com/high-potential-fans-watch-graceland-tv-show-hulu/
+
+11 years before High Potential started, a different crime series premiered, now available on Hulu, that is perfect for fans of the ABC show.
+---------
+
+# Netflix Is Home To A 4-Part Gritty Historical Drama Better Than Both Game Of Thrones & Outlander
+
+TV, Black Sails, Recommendation
+
+Wed, 25 Feb 2026 02:02:20 GMT
+
+https://screenrant.com/black-sails-netflix-better-than-game-of-thrones-outlander/
+
+You can watch an 18th-century historical drama on Netflix that boasts better storytelling and character arcs than Game of Thrones and its rivals.
+---------
+
+# Jackass 5 "Will Be The Last One" Confirms Johnny Knoxville
+
+Movies, Jackass, Jackass 5
+
+Wed, 25 Feb 2026 01:19:57 GMT
+
+https://screenrant.com/jackass-5-last-one-johnny-knoxville-confirm/
+
+After 25 years, Johnny Knoxville confirms that the upcoming Jackass 5 will be the final installment in the long-running stunt movie franchise.
+---------
+
+# Can We All Agree On What A Star Wars “Glup Shitto” Actually Is?
+
+Movies, Star Wars, The Mandalorian and Grogu, Star Wars: Galactic Racer
+
+Wed, 25 Feb 2026 01:00:20 GMT
+
+https://screenrant.com/star-wars-glup-shitto-term-explained-debate/
+
+Although 2026 is certainly looking to be a exciting era for "Glup Shitto" fans, some Star Wars characters really don't deserve the fan-given name.
+---------
+
+# Diablo, Dark Souls Collide In New RPG You Can Try Free
+
+Gaming, RPG, PC, Steam, Diablo, Dark Souls, Indie
+
+Wed, 25 Feb 2026 01:00:20 GMT
+
+https://screenrant.com/steam-free-diablo-dark-souls-new-rpg/
+
+If you're a fan of Diablo, Dark Souls, or perhaps even Hades, a new RPG is arriving soon, and you can try it for free right now, no strings attached.
+---------
+
+# One Piece Has Officially Been Beaten by the Biggest Manga of 2025
+
+Anime, One Piece, Berserk
+
+Wed, 25 Feb 2026 01:00:07 GMT
+
+https://screenrant.com/one-piece-beaten-biggest-manga-of-2025-berserk-sales/
+
+Despite hardly releasing much at all in 2025, Berserk has had an astounding year in sales according to ComicHub's impressive statistics.
+---------
+
+# Pokémon FireRed and LeafGreen: How to Beat Brock
+
+Games, Pokemon, Nintendo
+
+Wed, 25 Feb 2026 04:55:12 GMT
+
+https://www.cbr.com/pokemon-firered-and-leafgreen-how-to-beat-brock-charmander-starter/
+
+Brock is the hardest Gym Leader for Charmander players in Pokémon FireRed and LeafGreen, but there's one ally you can find nearby who will wreck him.
+---------
+
+# 5 Jujutsu Kaisen Moments So Dark They'll Give You Nightmares
+
+Anime, Jujutsu Kaisen, Shonen
+
+Wed, 25 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/5-jujutsu-kaisen-episodes-so-dark-they-gave-us-nightmares/
+
+The Dark Shonen Trio earned their titles honestly, with JJK unabashedly reveling in its own darkness.
+---------
+
+# For All Mankind: The Best Alternative History Show Ever Made
+
+TV, For All Mankind, Apple TV
+
+Wed, 25 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-best-alternate-history-show-ever-made/
+
+For All Mankind isn't a traditional alternate history show, but it still stands as one of the best examples of the subgenre
+---------
+
+# One Piece Season 2 Will Be Available Without a Netflix Subscription
+
+Anime, One Piece, Netflix
+
+Wed, 25 Feb 2026 04:31:07 GMT
+
+https://www.cbr.com/netflix-one-piece-season-2-premiere-america-theater-release-date/
+
+One Piece fans just got the best news they could imagine about the upcoming second season of Netflix's live-action adaptation.
+---------
+
+# This Captain America Retcon Needs to Happen in Avengers: Doomsday
+
+Movies, Avengers: Doomsday, MCU, superheroes
+
+Wed, 25 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/mcu-avengers-doomsday-captain-america-ending-retcon/
+
+Avengers: Doomsday brings Chris Evans back as Captain America, but it can only happen with a crucial retcon to his MCU story.
+---------
+
+# 10 Classic Game Boy Games That Are Unplayable Today
+
+Games, Nintendo, The Legend of Zelda, Pokemon, super mario bros
+
+Wed, 25 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/game-boy-classic-games-aged-badly-list/
+
+Classic as the Nintendo Game Boy may be, even its best titles haven't held up well.
+---------
+
+# Solo Leveling’s Sung Jinwoo is the Strongest Anime Character of 2026
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Wed, 25 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/solo-leveling-sung-jinwoo-strongest-anime-character-2026/
+
+Goku, Saitama and Gojo need to step aside, Sung Jinwoo's new ability in Solo Leveling just made him the strongest anime hero of all time.
+---------
+
+# 7 Movie Franchises That Need to End for Good in 2026
+
+Movies, Toy Story, Scream 7
+
+Wed, 25 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/movie-franchises-need-to-end-in-2026-list/
+
+Franchises like Scream and Toy Story are returning in 2026, but this doesn't mean that they should continue after these entries hit the big screen.
+---------
+
+# Matt Reeves' 8-Episode Prime Video Sci-Fi Show Is Becoming a Cult Classic
+
+TV, Tales from the Loop, matt reeves, Sci-Fi
+
+Wed, 25 Feb 2026 03:30:12 GMT
+
+https://www.cbr.com/matt-reeves-tales-from-the-loop-sci-fi-cult-classic/
+
+Matt Reeves produced one of the most criminally overlooked sci-fi shows of the 2020s, which is thankfully starting to find the audience it deserves.
+---------
+
+# Supernatural Spinoff Confirms Impala as Universe's Greatest Hero
+
+TV, Supernatural, Fantasy, The Winchesters
+
+Wed, 25 Feb 2026 03:00:24 GMT
+
+https://www.cbr.com/supernatural-winchester-spinoff-impala-hero/
+
+The Winchesters spinoff series confirms the greatest hero in the Supernatural universe in its series finale.
+---------
+
+# ‘Avatar: Fire and Ash’ Is Less Than $1 Million Shy of Passing Its Final Box Office Milestone
+
+Movie News, Avatar: Fire and Ash, James Cameron, Box Office, Avatar
+
+Wed, 25 Feb 2026 01:20:16 GMT
+
+https://collider.com/avatar-3-fire-and-ash-less-than-1-million-away-domestic-box-office-milestone-400-million/
+
+James Cameron's Avatar: Fire and Ash is about to end its theatrical run as the trilogy's lowest-grossing entry, but can it pass one final milestone?
+---------
+
+# 'The Rookie' Season 8 Confirmed for Very Important Crossover Episode
+
+TV News, The Rookie, ABC, Game Changer, Dropout TV
+
+Wed, 25 Feb 2026 01:16:08 GMT
+
+https://collider.com/the-rookie-season-8-episode-9-dropout-game-changer-crossover-episode-images/
+
+The Rookie ventures into uncharted territory with a crossover episode featuring the online game show Game Changer from comedy outfit Dropout.
+---------
+
+# Taylor Sheridan's First 'Tulsa King' Spin-Off Scraps 'NOLA King' Title and Setting 1 Month Before Filming
+
+TV News, Tulsa King, Samuel L. Jackson, Taylor Sheridan, Sylvester Stallone
+
+Wed, 25 Feb 2026 01:13:29 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-spin-off-samuel-l-jackson-creative-overhaul-new-title-frisco-texas-setting-march-2026/
+
+Taylor Sheridan's first Tulsa King spin-off, starring Samuel L. Jackson, is getting a creative overhaul and no longer take place in New Orleans.
+---------
+
+# British Icon Gives a Disappointing Update on Joining the MCU
+
+Movie News, Daniel Radcliffe, Deadpool & Wolverine (2024), Harry Potter, Marvel
+
+Wed, 25 Feb 2026 00:53:26 GMT
+
+https://collider.com/harry-potter-star-daniel-radcliffe-not-playing-wolverine-in-mcu/
+
+Harry Potter alum Daniel Radcliffe discusses the flattery but improbability of fancasting him as Wolverine. Read on for his full comments.
+---------
+
+# 5 Years Later, Kiefer Sutherland’s Post-'24' Political Thriller Makes a Timely Streaming Comeback
+
+TV News, Designated Survivor, Kiefer Sutherland, 24, ABC
+
+Wed, 25 Feb 2026 00:45:12 GMT
+
+https://collider.com/designated-survivor-kiefer-sutherlands-24-replacement-streaming-surge-success-state-of-the-union-february-2026/
+
+Five years after its final season, Kiefer Sutherland's political thriller surges on streaming, coinciding with the State of the Union address.
+---------
+
+# Netflix's 'Love Is Blind' Experiment Is Completely Broken After 10 Seasons
+
+TV Features, Love Is Blind, Netflix, Dating Shows, Competition Shows
+
+Wed, 25 Feb 2026 00:21:12 GMT
+
+https://collider.com/love-is-blind-netflix-season-10-bad-opinion/
+
+After 10 seasons, Netflix's hit reality series Love Is Blind has lost the magic it had when it premiered, and has lost sight of the show's premise.
+---------
+
+# The Highest-Grossing WW2 Movie of All Time Is Back To Devour Watchlists
+
+Movie News, Oppenheimer, Christopher Nolan, Cillian Murphy, Apple TV
+
+Wed, 25 Feb 2026 00:20:22 GMT
+
+https://collider.com/christopher-nolan-highest-grossing-ww2-movie-ever-oppenheimer-global-streaming-success-apple-tv-february-2026/
+
+The highest-grossing WW2 movie of all time is back at the top of streaming charts, despite falling short of one massive box office milestone.
+---------
+
+# 4 Years and 2 Sequels Later, Hulu's Sci-Fi Franchise Saving Hit Returns to Streaming Charts
+
+Movie News, Prey, Predator: Badlands, Dan Trachtenberg, Hulu
+
+Wed, 25 Feb 2026 00:16:46 GMT
+
+https://collider.com/prey-predator-franchise-saving-sci-fi-hit-streaming-success-hulu-february-2026/
+
+After having its viewership title snatched by Predator: Badlands, Dan Trachtenberg’s Prey is on the rise. Find out more here.
+---------
+
+# ‘The Pitt’ Just Showed Us a Completely Different Side of the ER’s Most Polarizing Doctor in 2 Minutes
+
+TV Features, The Pitt, Isa Briones, HBO Max, HBO
+
+Wed, 25 Feb 2026 00:15:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-7-santos-isa-briones-singing-baby-jane-doe-scene/
+
+The Pitt Season 2 Episode 7 reveals a different side of Dr. Trinity Santos through her touching moment with Baby Jane Doe.
+---------
+
+# New 'Super Mario Galaxy Movie' Leak Teases the Arrival of a Villainous Favorite
+
+Movie News, The Super Mario Galaxy Movie, Fantasy, Nintendo, Illumination
+
+Wed, 25 Feb 2026 00:13:57 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-secret-villain-wario-leak/
+
+Wario, a character from Nintendo's Mario franchise, may be a secret villain in the upcoming sequel to The Super Mario Galaxy Movie.
+---------
+
+# 8 Hard Sci-Fi Shows With No Bad Seasons
+
+TV Lists, Sci-Fi
+
+Wed, 25 Feb 2026 03:00:30 GMT
+
+https://movieweb.com/hard-sci-fi-shows-perfect/
+
+Hard sci-fi fans wont want to miss these incredible TV shows, which have no bad seasons at all and have compelling storylines and characters.
+---------
+
+# Spock Was Supposed To Be Half-Martian When 'Star Trek' Was Created
+
+Features, Star Trek, Star trek
+
+Wed, 25 Feb 2026 02:01:17 GMT
+
+https://movieweb.com/star-trek-spock-half-vulcan-reason/
+
+Vulcans are probably still 'Star Trek's most famous race, and that's probably down to the success of Spock. That was almost not the case.
+---------
+
+# 'NOLA King' renamed 'Frisco King' with Taylor Sheridan Writing Season 1
+
+TV News, Nola King, Taylor Sheridan, Samuel L. Jackson
+
+Wed, 25 Feb 2026 01:12:49 GMT
+
+https://movieweb.com/taylor-sheridan-writing-frisco-king/
+
+The Samuel L. Jackson 'Tulsa King' spin-off lands Sheridan as writer with filming beginning in March.
+---------
+
+# 'Hamlet' Trailer Reveals Modern Remake Starring Riz Ahmed
+
+Movie News, Riz Ahmed, Hamlet
+
+Wed, 25 Feb 2026 00:14:28 GMT
+
+https://movieweb.com/riz-ahmed-hamlet-trailer/
+
+Oscar-winner Riz Ahmed will take on the leading role of Hamlet in a modern movie adaptation of the famous Shakespeare tragedy.
+---------
+
+# Jason Statham's 7 Toughest Action Thriller Antiheroes
+
+TV Lists, Jason Statham, Action
+
+Wed, 25 Feb 2026 00:00:18 GMT
+
+https://movieweb.com/jason-statham-best-action-thriller-characters/
+
+Jason Statham has played a lot of great characters in action movies, and these are his most compelling, from 'Fast and Furious 7' to 'The Beekeper.'
+---------
+
 # Dunk Is Exactly Right About Why He Won The Trial Of Seven In A Knight Of The Seven Kingdoms
 
 Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones, Game Of Thrones
