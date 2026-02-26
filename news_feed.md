@@ -1,3 +1,443 @@
+# New Harry Potter Spinoff Series Plans At HBO Seemingly Hinted At By Exec
+
+TV, Harry Potter
+
+Thu, 26 Feb 2026 18:01:15 GMT
+
+https://screenrant.com/hbo-harry-potter-spinoff-shows-hint-wbd-executives/
+
+HBO executive JB Perrette seemingly hints at plans for a new Harry Potter spinoff series ahead of the new show's premiere in early 2027.
+---------
+
+# Justin Theroux’s Return In Netflix’s Hit 10-Part Series Officially Revealed For New Episodes Releasing In April
+
+TV, Running Point
+
+Thu, 26 Feb 2026 18:00:18 GMT
+
+https://screenrant.com/running-point-season-2-netflix-release-date-first-look-images/
+
+Netflix reveals some first-look images and confirms the premiere date for Justin Theroux's hit comedy series' sophomore season.
+---------
+
+# Resident Evil Requiem: What Will Transfer Over From New Game+?
+
+Gaming, Resident Evil 9, Triple-A Games, PC
+
+Thu, 26 Feb 2026 18:00:18 GMT
+
+https://screenrant.com/resident-evil-requiem-what-transfers-new-game-plus/
+
+Like some games in the series, Resident Evil Requiem has an official New Game+ component at launch, but not everything will carry over.
+---------
+
+# Daniel Radcliffe's Landmark Project W/ Better Rotten Tomatoes Than All Of Harry Potter Is A Must-Watch For Fans
+
+Network TV, The Fall and Rise of Reggie Dinkins, Harry Potter, Daniel Radcliffe
+
+Thu, 26 Feb 2026 17:58:19 GMT
+
+https://screenrant.com/the-fall-and-rise-of-reggie-dinkins-better-harry-potter-must-watch-daniel-radcliffe-fans/
+
+This year, Daniel Radcliffe makes a historic first in his career with a new project that blows all of the Harry Potter movies on Rotten Tomatoes.
+---------
+
+# Time Is Running Out To Read This 10/10 Sci-Fi Book Before Its $150 Million Movie Adaptation Arrives
+
+New Movies, Project Hail Mary
+
+Thu, 26 Feb 2026 17:45:19 GMT
+
+https://screenrant.com/project-hail-mary-movie-read-book-before/
+
+A major sci-fi movie is about to come out, leaving you with little time to read the 10/10 book that the $150 million production is based on.
+---------
+
+# Kevin Costner’s New 8-Part Western Series Debuts To Promising Rotten Tomatoes Score
+
+TV, The Gray House
+
+Thu, 26 Feb 2026 17:44:36 GMT
+
+https://screenrant.com/the-gray-house-rotten-tomatoes-score/
+
+Kevin Costner's new, eight-part Western TV show debuts to promising Rotten Tomatoes score after all episodes were released on streaming.
+---------
+
+# Xbox Offering Up Incredible Free Game This Weekend, No Game Pass Required
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Thu, 26 Feb 2026 17:17:21 GMT
+
+https://screenrant.com/http/xbox-free-play-days-february-26-march-1/
+
+While the Xbox team is constantly trying to offer up new experiences for fans, the Free Play Days promotion is among its most popular.
+---------
+
+# When Will The MCU's X-Men Cast Be Announced?
+
+Superheroes, X-Men, Marvel Cinematic Universe
+
+Thu, 26 Feb 2026 17:16:18 GMT
+
+https://screenrant.com/mcu-x-men-cast-announcement-when/
+
+Marvel Studios is gearing up for the MCU's first X-Men movie, so when will the cast members be officially announced? Let's look at the options.
+---------
+
+# Greatest American Hero’s New Reboot Reveals Major Release Date Update (First Look Here)
+
+Comics, The Greatest American Hero
+
+Thu, 26 Feb 2026 17:08:10 GMT
+
+https://screenrant.com/greatest-american-hero-reboot-revival-release-date-first-look/
+
+After more than four decades, The Greatest American Hero is returning with a reboot that fans have demanded.
+---------
+
+# Xbox Next-Gen Hardware Officially Confirmed, Hold On To Your Wallets
+
+Gaming, Xbox Series X/S
+
+Thu, 26 Feb 2026 17:04:27 GMT
+
+https://screenrant.com/xbox-next-gen-hardware-official-confirmation/
+
+Xbox's new leadership has announced that it's prioritizing hardware as they get ready for a new console reveal, despite rumors to the contrary.
+---------
+
+# Amanda Seyfried's The Testament of Ann Lee Sets Digital Release Date
+
+Movies, The Testament of Ann Lee
+
+Thu, 26 Feb 2026 18:03:16 GMT
+
+https://www.cbr.com/amanda-seyfried-the-testament-of-ann-lee-digital-release-date/
+
+The Golden Globe-nominated film is coming to digital platforms.
+---------
+
+# For All Mankind Is TV's Most Underrated Sci-Fi Space Drama
+
+TV, Apple TV, Sci-Fi, For All Mankind
+
+Thu, 26 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-underrated-sci-fi-show/
+
+Apple TV's sleeper sci-fi hit is slowly setting a record for the genre as its fifth season gets closer.
+---------
+
+# 5 Classic Anime Movies Better Than Anything Released Since 2020
+
+Anime, Perfect Blue, Ghost in the Shell, Nausicaä of the Valley of the Wind, Neon Genesis Evangelion: The End of Evangelion
+
+Thu, 26 Feb 2026 17:45:12 GMT
+
+https://www.cbr.com/best-classic-anime-films-better-than-new-gen/
+
+There's endless innovation going on in new anime releases, but there are some classic films that still surpass everything else as true classics.
+---------
+
+# Scream 7 Rotten Tomatoes Score Unveiled
+
+Movies, Scream, Scream 7, Rotten Tomatoes
+
+Thu, 26 Feb 2026 17:36:08 GMT
+
+https://www.cbr.com/scream-7-rotten-tomatoes-score/
+
+The new entry in the long-running slasher franchise isn't a killer.
+---------
+
+# Overhated & Underrated: Cowboys & Aliens is an Overhated Cult Classic
+
+CBR Exclusives, Overhated & Underrated, Cowboys & Aliens
+
+Thu, 26 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/overhated-underrated-cowboys-aliens/
+
+Sci-fi Westerns are a wonderful blend of two genres, but one film in the genre deserves a second chance from audiences.
+---------
+
+# 10 Best Comic Book Deaths That Actually Mean Something To The Plot
+
+Comics, DC Comics, Marvel, Batman, X-Men
+
+Thu, 26 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/best-comic-book-deaths-that-actually-mattered-marvel-dc/
+
+While comic publishers have made death nothing but a sales gimmick, there are some major events that made it count.
+---------
+
+# HBO Max Password Sharing Crackdown Expands Globally
+
+TV, HBO Max
+
+Thu, 26 Feb 2026 16:45:23 GMT
+
+https://www.cbr.com/hbo-max-password-sharing-crackdown/
+
+HBO Max is expanding its crackdown on password sharing to international markets.
+---------
+
+# Paradise’s Stars Can't Agree On How The Show Ends — Here's Why
+
+TV, Paradise
+
+Thu, 26 Feb 2026 16:24:12 GMT
+
+https://www.cbr.com/paradise-julianne-nicholson-sterling-k-brown-ending-disagreement/
+
+The end is nigh for Hulu's Paradise
+---------
+
+# HBO's Heated Rivalry Gets Massive Season 2 Filming & Release Update
+
+TV, Heated Rivalry
+
+Thu, 26 Feb 2026 16:17:38 GMT
+
+https://www.cbr.com/hbo-heated-rivalry-season-2-filming-release-update/
+
+The series everyone is craving to have back has just received a major update.
+---------
+
+# Witch Hat Atelier's Coco Carries on the Legacy of MHA's Deku
+
+Anime, Witch Hat Atelier, My Hero Academia
+
+Thu, 26 Feb 2026 16:15:12 GMT
+
+https://www.cbr.com/coco-witch-hat-atelier-spring-2026-anime-replacement-deku-mha/
+
+The era of My Hero Academia's Deku has ended, but Witch Hat Atelier is introducing a new inspirational hero who can impact a whole generation.
+---------
+
+# Netflix Is About to Add One of the Most Rewatchable Crime Thrillers of the 21st Century, but There’s a Catch
+
+TV Features, Netflix, The Mentalist, Simon Baker, Robin Tunney
+
+Thu, 26 Feb 2026 18:03:12 GMT
+
+https://collider.com/netflix-greatest-crime-thriller-the-mentalist-march-1-2026/
+
+Over 10 years after the finale, the crime thriller The Mentalist will be landing on Netflix, but sadly not in the US.
+---------
+
+# New '9-1-1' Season 9 Sneak Peek Has Eddie Facing Every Parent's Worst Nightmare [Exclusive]
+
+Exclusives, 9-1-1, Ryan Guzman, ABC, Angela Bassett
+
+Thu, 26 Feb 2026 18:01:12 GMT
+
+https://collider.com/9-1-1-season-9-episode-11-sneak-peek-ryan-guzman-cliffhanger-eddie-christopher-missing/
+
+Ryan Guzman is on the hunt for his missing child in a new sneak peek of tonight’s 9-1-1 episode. Watch it here!
+---------
+
+# Billy Magnussen and Zach Galifianakis Lead AMC’s Silicon Valley Satire in First Look [Exclusive]
+
+Exclusives, The Audacity, Zach Galifianakis, Collider Exclusive Preview, Billy Magnussen
+
+Thu, 26 Feb 2026 18:01:12 GMT
+
+https://collider.com/the-audacity-images-zack-galifianakis-billy-magnussen-simon-helberg-silicon-valley-satire/
+
+A trio of new images from AMC's The Audacity spotlights Billy Magnusson, Zach Galifianakis, and Simon Helberg as three eccentric tech bros.
+---------
+
+# Netflix's 3-Part Crime Thriller Perfect for 'Reacher' Fans Takes the Streaming Charts By Surprise
+
+TV News, The Night Agent, Netflix, Reacher, Crime
+
+Thu, 26 Feb 2026 17:57:38 GMT
+
+https://collider.com/netflix-the-night-agent-season-3-crime-thriller-reacher-replacement-global-streaming-success-february-2026/
+
+This three-season crime thriller is dominating Netflix globally, surging to #1 across major markets after briefly dipping in viewership.
+---------
+
+# 5 Greatest Frances McDormand Performances, Ranked
+
+Movie, Frances McDormand, Fargo, Three Billboards Outside Ebbing, Missouri, Nomadland
+
+Thu, 26 Feb 2026 17:38:12 GMT
+
+https://collider.com/frances-mcdormand-movies-performances-best-ranked/
+
+Frances McDormand is one of the best and most lauded actors alive, and her greatest movies include Fargo, Nomadland, and Almost Famous.
+---------
+
+# Jennifer Garner Isn’t Letting This Mystery Go in New Sneak Peek From Apple TV's 2-Part Thriller [Exclusive]
+
+Exclusives, The Last Thing He Told Me, Jennifer Garner, Angourie Rice, Nikolaj Coster-Waldau
+
+Thu, 26 Feb 2026 17:31:12 GMT
+
+https://collider.com/the-last-thing-he-told-me-season-2-sneak-peek-jennifer-garner-angourie-rice/
+
+Jennifer Garner and Angourie Rice seek out help from Judy Greer in The Last Thing He Told Me sneak peek. Watch it here.
+---------
+
+# Critics Take a Stab at 'Scream 7's Nostalgia-Filled Thrills on Rotten Tomatoes
+
+Movie News, Scream 7, Kevin Williamson, Neve Campbell, Courtney Cox
+
+Thu, 26 Feb 2026 17:17:41 GMT
+
+https://collider.com/scream-7-neve-campbell-kevin-williamson-first-reactions-rotten-tomatoes-is-it-good/
+
+The first reactions for Scream 7 are rolling in, and critics are mixed on the Neve Campbell-led sequel. Here's what they're saying.
+---------
+
+# 'School Spirits' Just Changed Everything for Maddie and Her Mom But Peyton List Warns "You're Going to Be So Heartbroken"
+
+Exclusives, Peyton List, School Spirits, Ladies Night, Paramount Plus
+
+Thu, 26 Feb 2026 17:16:51 GMT
+
+https://collider.com/school-spirits-season-3-episode-7-maddie-mom-scene-more-heartbreak-peyton-list-interview/
+
+School Spirits star Peyton List returns to Ladies Night to reveal a shocking take on that Season 3 Episode 7 scene between Maddie and her mom.
+---------
+
+# 5 Hitchcockian Masterpieces That Weren't Directed by Alfred Hitchcock, Ranked
+
+Movie, Alfred Hitchcock, Thriller, Halloween, Charade
+
+Thu, 26 Feb 2026 17:11:12 GMT
+
+https://collider.com/hitchcockian-movie-masterpieces-not-directed-by-alfred-hitchcock-ranked/
+
+Movies like Stranger by the Lake, Charade, and Body Double are Hitchcockian masterpieces that weren't actually directed by Alfred Hitchcock.
+---------
+
+# Joel Kinnaman Is in His ‘True Detective’ Era in New Look at Netflix's Next Jo Nesbø Series [Exclusive]
+
+Exclusives, Joe Nesbø's Detective Hole, Netflix, Crime, Collider Exclusive Preview
+
+Thu, 26 Feb 2026 17:01:13 GMT
+
+https://collider.com/detective-hole-image-jo-nesbo-tobias-santelmann-joel-kinnaman-netflix/
+
+Check out an exclusive sneak peek from Netflix's upcoming crime thriller Detective Hole, based on Jo Nesbø's bestselling Harry Hole novels.
+---------
+
+# Best K-Dramas About Forbidden Love
+
+TV Lists, K-Drama
+
+Thu, 26 Feb 2026 18:00:17 GMT
+
+https://movieweb.com/k-dramas-forbidden-love/
+
+Forbidden love is a universal theme found in stories from cultures around the world. But K-dramas explore it in a way that is simply unforgettable.
+---------
+
+# 'Detective Hole' Trailer Reveals Netflix's Jo Nesbo Detective Series
+
+TV News, Netflix, Joe Nesbø's Detective Hole
+
+Thu, 26 Feb 2026 17:36:31 GMT
+
+https://movieweb.com/netflix-jo-nesbo-detective-hole-trailer/
+
+Netflix brings the iconic detective to life in the first trailer for the upcoming streaming mystery thriller series.
+---------
+
+# 'Wynonna Earp' Remains a Modern Cult Classic Western Thriller on Free Streaming
+
+TV News, Wynonna Earp, Streaming Recommendations, Western
+
+Thu, 26 Feb 2026 17:01:18 GMT
+
+https://movieweb.com/wynonna-earp-streaming-tubi-february-2026/
+
+After five years, the Syfy series still has a loyal following that actually helped save 'Wynonna Earp' from being canceled.
+---------
+
+# Every New Movie and TV Show Coming to HBO Max in March 2026
+
+Features, HBO Max
+
+Thu, 26 Feb 2026 17:01:18 GMT
+
+https://movieweb.com/hbo-max-new-movies-tv-march-2026/
+
+HBO Max is bringing comedy, action, and 120+ new TV shows and movies to the streaming platform in March 2026.
+---------
+
+# 'Avengers: Doomsday' Loses U.S. IMAX Release
+
+Movie News, Avengers: Doomsday
+
+Thu, 26 Feb 2026 17:01:09 GMT
+
+https://movieweb.com/avengers-doomsday-loses-imax-release/
+
+'Avengers: Doomsday' will not open in IMAX screens due to 'Dune: Part 3' claiming the release date first.
+---------
+
+# 'For All Mankind' Spin-off 'Star City' Reveals First Look, Release Date
+
+TV News, For All Mankind, Apple TV, Sci-Fi
+
+Thu, 26 Feb 2026 16:50:54 GMT
+
+https://movieweb.com/star-city-first-look-release-date/
+
+Apple TV has unveiled a first look and confirmed the release date for its 'For All Mankind' sci-fi spin-off series 'Star City.'
+---------
+
+# 'Scream 7' Rotten Tomatoes Score Revealed
+
+Movie News, Scream 7
+
+Thu, 26 Feb 2026 15:48:31 GMT
+
+https://movieweb.com/scream-7-rotten-tomatoes-score/
+
+'Scream 7' brings the original cast back together, but it sounds like a return to basics was not what the franchise needed according to critics.
+---------
+
+# Cyberpunk Classic 'The Terminator' Is About to Land on HBO Max
+
+Movie News, Coming/Leaving Streaming, The Terminator, Holds Up
+
+Thu, 26 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/terminator-streaming-hbo-max-march-2026/
+
+It's easily one of the best cyberpunk-based genre mashups of all time.
+---------
+
+# 'Bridgerton' Season 4's Exciting Ending, Explained
+
+Features, Bridgerton, Netflix
+
+Thu, 26 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/bridgerton-season-4-ending-explained/
+
+'Bridgerton' Season 4 Part 2 came to an end with four episodes on Netflix on Feb. 26, 2026, and Sophie and Benedict's love story wraps up.
+---------
+
+# 'The Bluff' Is Streaming No.1 Globally on Prime Video with 77% Audience RT Score
+
+Movie News, The Bluff, Karl Urban, Priyanka Chopra, Action
+
+Thu, 26 Feb 2026 14:41:23 GMT
+
+https://movieweb.com/the-bluff-audience-rotten-tomatoes-streaming-february-2026/
+
+Karl Urban and Priyanka Chopra Jonas lead this pirate action romp.
+---------
+
 # 59 Years Later, Star Trek Officially Retcons One of Its Most Iconic Original Series Episodes
 
 Comics, Star Trek, Star Trek: The Original Series
