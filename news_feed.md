@@ -1,3 +1,355 @@
+# Warner Bros. Declares Paramount’s Bid Superior To Netflix’s
+
+Movies, Warner Bros., Paramount, Netflix
+
+Thu, 26 Feb 2026 21:40:51 GMT
+
+https://screenrant.com/paramount-warner-bros-offer-better-netflix-counter/
+
+Warner Bros. Discovery announced Thursday that Paramount's new proposal is better than its original agreement with Netflix.
+---------
+
+# Dakota Fanning's 2-Part Crime Thriller Series Is The Perfect Weekend Binge
+
+TV, The Alienist
+
+Thu, 26 Feb 2026 21:30:20 GMT
+
+https://screenrant.com/the-alienist-tnt-crime-thriller-series-must-watch/
+
+Dakota Fanning has starred in multiple successful thriller series in the last few years, and this 2-part crime drama is the perfect weekend binge.
+---------
+
+# Jujutsu Kaisen Season 3 Just Set a New Bar With the Anime's Most Badass Domain Expansion Yet
+
+Anime, Jujutsu Kaisen
+
+Thu, 26 Feb 2026 21:27:34 GMT
+
+https://screenrant.com/jjk-season-3-anime-new-domain-expansion-higurama-update/
+
+Domain expansions are the epitome of sorcery in Jujutsu Kaisen, and a new one introduced in the anime has just revolutionized everything seen so far.
+---------
+
+# David Boreanaz's New NBC Reboot Of 52-Year-Old Detective Series Officially Sets SEAL Team Reunion
+
+TV, The Rockford Files, SEAL Team
+
+Thu, 26 Feb 2026 21:25:23 GMT
+
+https://screenrant.com/the-rockford-files-reboot-david-boreanaz-michaela-mcmanus-reunion-casting/
+
+David Boreanaz's new NBC reboot of a 52-year-old detective series officially casts his co-star, setting a SEAL Team reunion eight years later.
+---------
+
+# Xbox Game Pass Quietly Rolls Out New Feature For Select Subscribers
+
+Gaming, Xbox Game Pass, Xbox Series X/S, Triple-A Games
+
+Thu, 26 Feb 2026 21:01:19 GMT
+
+https://screenrant.com/xbox-game-pass-new-feature-rolled-out/
+
+Microsoft has quietly issued a new feature for select members of Xbox Game Pass, and given its monthly price, you won’t want to miss it.
+---------
+
+# Wednesday's New A-List Casting Feels So Perfect, I'm Amazed It Took 3 Seasons
+
+Streaming TV, Wednesday
+
+Thu, 26 Feb 2026 21:01:19 GMT
+
+https://screenrant.com/wednesday-winona-ryder-casting-perfect-season-3/
+
+Netflix's Wednesday is no stranger to recruiting A-list cast members, but the latest addition feels so right, it's amazing it took 3 seasons.
+---------
+
+# Avengers: Doomsday Would Be Foolish To Challenge Dune 3 Now
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Dune: Part Three
+
+Thu, 26 Feb 2026 20:56:19 GMT
+
+https://screenrant.com/avengers-doomsday-dune-3-imax-screens-challenge/
+
+Avengers: Doomsday and Dune 3 have been locked into a head-to-head battle for months, but a new update proves why Marvel shouldn't go through with it.
+---------
+
+# Monsterverse Star Teases Titans' Rare New Franchise Story In Apple TV's Hit Returning Sci-Fi Series: "I'm Rooting For Them"
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Thu, 26 Feb 2026 20:54:22 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-titans-story-rare-anna-sawai/
+
+EXCLUSIVE: Monsterverse star Anna Sawai teases a rare, new story for the Titans in Apple TV's hit returning series from the franchise.
+---------
+
+# Julia Louis-Dreyfus Starring In New Apple TV Series Adaptation For First Major Show After Veep
+
+TV, Julia Louis-Dreyfus, Apple TV
+
+Thu, 26 Feb 2026 20:49:00 GMT
+
+https://screenrant.com/apple-tv-nanny-squatter-series-julia-louis-dreyfus-casting/
+
+Julia Louis-Dreyfus is set to star in a new Apple TV series adaptation, marking her first major series role after Veep.
+---------
+
+# Bridgerton Season 5: Confirmation, Book Story, Cast & Everything We Know
+
+Streaming TV, Bridgerton
+
+Thu, 26 Feb 2026 20:45:20 GMT
+
+https://screenrant.com/bridgerton-season-5-explained/
+
+Now that romance fans have swooned over Benedict and Sophie's season 4 love story, we want to know all the details about Bridgerton season 5.
+---------
+
+# Love Story Fans Need To Watch Ryan Murphy’s American Crime Story Versace
+
+TV, Love Story, American Crime Story, Ryan Murphy, Crime
+
+Thu, 26 Feb 2026 21:30:12 GMT
+
+https://www.cbr.com/ryan-murphy-love-story-the-assassination-of-gianni-versace-perfect-weekend-binge/
+
+Everything that makes Love Story unforgettable is hiding inside Ryan Murphy's true crime masterpiece.
+---------
+
+# Fox Renews Animal Control for Season 5
+
+TV, Animal Control, Comedy, fox
+
+Thu, 26 Feb 2026 21:24:46 GMT
+
+https://www.cbr.com/animal-control-season-5-renewed-fox/
+
+Fox announces the renewal of the comedy series Animal Control, starring Joel McHale, for a fifth season.
+---------
+
+# Sailor Moon Writer Teases 'Something Amazing' Coming This April
+
+Anime, Sailor Moon
+
+Thu, 26 Feb 2026 21:20:12 GMT
+
+https://www.cbr.com/sailor-moon-shining-theater-writer-production-update/
+
+The Sailor Moon writer was left impressed after visiting rehearsals for the new show, now set to debut in a matter of weeks.
+---------
+
+# The Official Anime Spin-Off of CW's Supernatural Debuted 15 Years Ago
+
+Anime, Supernatural: The Animation, Horror
+
+Thu, 26 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/official-supernatural-spinoff-madhouse-horror-anime/
+
+Supernatural was a genre-defining horror series for the CW that ran for 15 seasons, but its anime adaptation is also an overlooked gem.
+---------
+
+# This Horror Comic Was So Disturbing That The United States Almost Banned It
+
+Comics, Horror, ec comics, Tales from the Crypt
+
+Thu, 26 Feb 2026 21:00:12 GMT
+
+https://www.cbr.com/crime-suspenstories-so-disturbing-congress-ban/
+
+The history of horror in comics has been complicated by decades of censorship, leading to the demise of beloved fearful features still iconic today.
+---------
+
+# Sarah Michelle Gellar Honors Michelle Trachtenberg 1 Year After Her Passing
+
+TV, Buffy The Vampire Slayer
+
+Thu, 26 Feb 2026 21:00:07 GMT
+
+https://www.cbr.com/sarah-michelle-gellar-honors-michelle-trachtenberg-one-year-later/
+
+The Buffy actress honored her late co-star on the first anniversary of her passing.
+---------
+
+# Val Kilmer's 'I'm Your Huckleberry' Is Western's Defining Moment
+
+Movies, Tombstone, Western
+
+Thu, 26 Feb 2026 20:30:33 GMT
+
+https://www.cbr.com/tombstone-doc-holliday-greatest-western-quote/
+
+The 1990s produced some of the greatest Western movies, but one film is especially remembered for delivering the most quotable line.
+---------
+
+# 10 Classic '90s Games That Are Unplayable Today
+
+Games, retro games
+
+Thu, 26 Feb 2026 20:30:33 GMT
+
+https://www.cbr.com/throwback-90s-games-aged-badly-list/
+
+Some of the best '90s games, like Final Fantasy 6, are unplayable by modern standards.
+---------
+
+# This 9-Part Mystery Drama With 92% on RT Remains the Biggest TV Risk of Its Kind
+
+TV, WandaVision
+
+Thu, 26 Feb 2026 20:30:33 GMT
+
+https://www.cbr.com/wandavision-biggest-tv-risk/
+
+WandaVision was a unique entry in the MCU, but it was also taking major risks on TV that audiences hadn't even noticed.
+---------
+
+# Game of Thrones Prequel Sees 26 Million Viewers Per Episode on HBO Max
+
+TV, A Knight Of The Seven Kingdoms
+
+Thu, 26 Feb 2026 20:06:46 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-season-1-ratings-hbo/
+
+The Game of Thrones spinoff, A Knight of the Seven Kingdoms, becomes HBO Max's third-biggest debut with 26 million viewers worldwide.
+---------
+
+# Netflix’s ‘Reacher’ Competitor Loses 5.5 Million Views in Alarming Season 3 Debut
+
+TV News, The Night Agent, Reacher, Netflix, Action
+
+Thu, 26 Feb 2026 21:44:51 GMT
+
+https://collider.com/netflix-reacher-competitor-the-night-agent-season-3-viewership-drop-8-3-million/
+
+Netflix's black ops Reacher replacement loses 5.5 million viewers between the premieres of its second and third seasons.
+---------
+
+# Top 20 Fantasy Movies of All Time, Ranked
+
+Movie, The Lord of the Rings: The Fellowship of the Ring, Pan's Labyrinth, Spirited Away, The Wizard of Oz
+
+Thu, 26 Feb 2026 21:34:12 GMT
+
+https://collider.com/best-fantasy-movies-of-all-time-ranked/
+
+There have been so many great fantasy movies from cinema history, with some of the best including classics like Spirited Away and The Wizard of Oz.
+---------
+
+# 'Daredevil' Showrunner’s Brutal 3-Part Historical Epic Is Back on the Charts After Spin-Off Success
+
+TV News, Daredevil, Spartacus, Spartacus: House of Ashur
+
+Thu, 26 Feb 2026 21:33:08 GMT
+
+https://collider.com/spartacus-3-part-historical-epic-streaming-success-apple-tv-february-2026/
+
+A brutal three-part historical epic surges back to #1 on digital charts as its spinoff fuels renewed global streaming momentum. Read on for more.
+---------
+
+# ‘Monarch: Legacy of Monsters’ Season 1 Recap: What To Remember Before Apple TV’s Explosive Sci-Fi Returns
+
+TV Features, Monarch: Legacy of Monsters, MonsterVerse, Apple TV, Sci-Fi
+
+Thu, 26 Feb 2026 21:25:13 GMT
+
+https://collider.com/monarch-legacy-of-monsters-recap-season-1-apple-tv-monsterverse/
+
+We recap Monarch: Legacy of Monsters' complex timelines, characters, and secrets before Apple TV's sci-fi series returns for Season 2.
+---------
+
+# Robert Downey Jr.'s 5 Best Marvel Movies, Ranked
+
+Movie, Robert Downey Jr, Marvel, Iron Man, Avengers: Endgame
+
+Thu, 26 Feb 2026 21:17:12 GMT
+
+https://collider.com/robert-downey-jr-marvel-movies-best-ranked/
+
+From Iron Man to Avengers: Infinity War and Endgame, this is a ranking of Robert Downey Jr.’s most powerful MCU performances.
+---------
+
+# Netflix’s Upcoming 8-Part Dystopian Series Could Beat Apple TV and Prime Video’s Biggest Sci-Fi Hits
+
+TV Features, Netflix, Philip K. Dick, Silo, Fallout
+
+Thu, 26 Feb 2026 21:04:12 GMT
+
+https://collider.com/netflix-world-jones-made-phillip-k-dick-series-silo-fallout-replacement/
+
+While Silo and Fallout have dominated post-apocalyptic TV, Netflix has the chance to come on top with The World Jones Made.
+---------
+
+# 10 Greatest Movie Masterpieces, According to Roger Ebert
+
+Movie, Roger Ebert, Casablanca, Citizen Kane, The Tree of Life
+
+Thu, 26 Feb 2026 21:04:12 GMT
+
+https://collider.com/best-classic-movie-masterpiece-roger-ebert/
+
+Arguably the most famous movie critic who ever lived, the late Roger Ebert held many classics to a higher standard, including Vertigo and Casablanca.
+---------
+
+# ‘Man on the Run’ Review: Paul McCartney’s Prime Video Doc Is a Stellar Look at His Most Divisive Era
+
+Movie Reviews, The Beatles, Paul McCartney, Man on the Run, Prime Video
+
+Thu, 26 Feb 2026 20:58:30 GMT
+
+https://collider.com/paul-mccartney-man-on-the-run-prime-video-review/
+
+Paul McCartney’s Prime Video Man on the Run documentary digs into the post-Beatles fallout, Wings, and his fight for personal peace.
+---------
+
+# All 9 Ships in ‘The Pitt,’ Ranked
+
+TV, The Pitt, Romance, HBO Max, Noah Wyle
+
+Thu, 26 Feb 2026 20:52:12 GMT
+
+https://collider.com/the-pitt-couples-ranked/
+
+From Samira Mohan and Jack Abbot to Mel King and Frank Langdon to Trinity Santos and Yolanda Garcia, here is every couple in The Pitt, ranked.
+---------
+
+# Dave Grohl Opens Up About the Painful Truth Behind Letting Josh Freese Go and Replacing Taylor Hawkins
+
+Music Features, Dave Grohl, Foo Fighters, Rock, Music
+
+Thu, 26 Feb 2026 20:50:36 GMT
+
+https://collider.com/dave-grohl-foo-fighters-firing-josh-freese-replacing-taylor-hawkins/
+
+Dave Grohl opens up about the reasons behind letting Josh Freese go and finding a new drummer to replace Taylor Hawkins, reflecting on the band's grief and musical direction.
+---------
+
+# 'Monarch: Legacy of Monsters' Season 2 Release Schedule on Apple TV
+
+Features, Monarch: Legacy of Monsters, Monsterverse, Apple TV, Godzilla, King Kong
+
+Thu, 26 Feb 2026 21:01:17 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-season-2-release-schedule/
+
+The Monsterverse is back in 'Monarch: Legacy of Monsters' Season 2, with Godzilla and Kong facing a new threat in Titan X.
+---------
+
+# 'Running Point' Season 2 First Look, Release Date Revealed
+
+TV News, Running Point
+
+Thu, 26 Feb 2026 20:28:15 GMT
+
+https://movieweb.com/running-point-season-2-first-look-release-date/
+
+"Running Point' Season 2 has released its first look, and fans also know when it will make its debut on Netflix in 2026.
+---------
+
 # Prime Video's 10/10 Sci-Fi Franchise Makes Building A Cinematic Universe Look Easy
 
 Streaming TV, The Boys, Prime Video
