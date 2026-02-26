@@ -1,3 +1,410 @@
+# Prime Video's 10/10 Sci-Fi Franchise Makes Building A Cinematic Universe Look Easy
+
+Streaming TV, The Boys, Prime Video
+
+Thu, 26 Feb 2026 20:00:27 GMT
+
+https://screenrant.com/prime-video-the-boys-universe-how-to-build-franchise/
+
+A beloved, 10/10 sci-fi franchise created for Prime Video is proving how easy it can really be to build a cinematic universe from the ground up.
+---------
+
+# The MCU Comeback Fans Have Been Waiting For Since 2018 Is Finally Happening
+
+Streaming TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Thu, 26 Feb 2026 19:46:21 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-fixed-netflix-series-comeback/
+
+The MCU has had a string of bad luck since Avengers: Endgame ended the Infinity Saga, but thankfully, one show is set to deliver a major comeback.
+---------
+
+# Netflix's 6-Part Thriller Series With Rare Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
+
+TV, Netflix, Dear Child
+
+Thu, 26 Feb 2026 19:30:18 GMT
+
+https://screenrant.com/dear-child-netflix-thriller-series-must-watch/
+
+After 3 years, a Netflix crime thriller series with a rare perfect Rotten Tomatoes score continues to be a great pick for a one-night weekend binge.
+---------
+
+# David Chase's New Show Project: MKUltra: A True-Story Version Of Severance
+
+TV, The Sopranos, Severance
+
+Thu, 26 Feb 2026 19:30:18 GMT
+
+https://screenrant.com/david-chase-mkultra-show-mind-control-programa-severance/
+
+David Chase is back with his first TV show since The Sopranos, and his new project is very reminiscent of an ongoing sci-fi masterpiece from Apple TV.
+---------
+
+# Stardew Valley Creator Reveals New Romance Options For 1.7 Update
+
+Gaming, Stardew Valley, Indie Games, PC
+
+Thu, 26 Feb 2026 19:23:14 GMT
+
+https://screenrant.com/stardew-valley-new-marriage-candidates-17-reveal/
+
+Stardew Valley is finally adding new marriage candidates in 1.7, and creator ConcernedApe has just provided the details on who's making the cut.
+---------
+
+# How To Fix Marathon Server Slam Error Codes UI Issues
+
+Gaming, Marathon, Triple-A Games, PC
+
+Thu, 26 Feb 2026 19:21:35 GMT
+
+https://screenrant.com/marathon-server-slam-error-codes-and-fixes/
+
+The Marathon Server Slam is underway, and it has a unique set of bugs and connection issues that are happening before the official launch.
+---------
+
+# ABC Quietly Confirms The Fate Of Ryan Murphy's Risque Medical Series After One Year In Limbo
+
+Network TV, Doctor Odyssey
+
+Thu, 26 Feb 2026 19:18:19 GMT
+
+https://screenrant.com/doctor-odyssey-abc-confirms-season-2-fate/
+
+Nearly a year since Doctor Odyssey wrapped its talked-about premiere season, ABC now drops an unexpected update on the clamored season 2.
+---------
+
+# 10-Part Superman Series Becomes Worldwide Streaming Sensation On Netflix At The Right Time
+
+TV, Smallville, Superman, Netflix, Streaming Charts, DC Universe
+
+Thu, 26 Feb 2026 19:16:15 GMT
+
+https://screenrant.com/smallville-streaming-success-worldwide-netflix-february-2026/
+
+The longest-running live-action Superman TV show is back on the streaming charts for Netflix as the beloved DC Comics drama is surging worldwide.
+---------
+
+# Scrubs Reboot, Episodes 1 & 2 Review: Old & New Comes Together In Perfect Harmony For This Unique Medical Sitcom
+
+Streaming TV, Scrubs
+
+Thu, 26 Feb 2026 19:15:19 GMT
+
+https://screenrant.com/scrubs-season-10-episodes-1-2-review/
+
+Scrubs is back after more than 15 years, with the original crew returning to Sacred Heart, and so far, the reboot is the perfect continuation.
+---------
+
+# The Masked Singer's Heidi Montag Reveals Injury She Sustained As Snow Cone That Would've Taken Her Out Of The Competition & Talks About New Music
+
+Reality TV, The Masked Singer
+
+Thu, 26 Feb 2026 19:14:18 GMT
+
+https://screenrant.com/the-masked-singer-season-14-heidi-montag-snow-cone-interview/
+
+Masked Singer's Heidi Montag reveals an injury she sustained as Snow Cone that would've forced her to leave the competition if she wasn't eliminated.
+---------
+
+# In Just 1 Day, Priyanka Chopra's New R-Rated Revenge Thriller Becomes the No. 1 Film on Prime Video
+
+Movies, The Bluff
+
+Thu, 26 Feb 2026 20:00:22 GMT
+
+https://www.cbr.com/the-bluff-revenge-thriller-prime-video-success-february-2026/
+
+The latest Prime Video original movie, which stars Priyanka Chopra as a former pirate, becomes an immediate hit on the Amazon platform.
+---------
+
+# The Star Wars Character You’d Actually Be (It’s Not Who You Think)
+
+Movies, Star Wars
+
+Thu, 26 Feb 2026 19:40:24 GMT
+
+https://www.cbr.com/star-wars-character-quiz/
+
+Discover the hidden Star Wars character within you in this surprising quiz. Share your result and see where your friends ended up as well!
+---------
+
+# The Rocketeer Joined by Surprising Co-Stars in Crossover Adventure
+
+Comics, The Rocketeer, Popeye, the adventures of tintin
+
+Thu, 26 Feb 2026 19:38:47 GMT
+
+https://www.cbr.com/idw-the-rocketeer-popeye-tintin-snowy-crossover-comic/
+
+A trio of other classic comic heroes have officially joined The Rocketeer in his latest high-flying pulp adventure from IDW Publishing.
+---------
+
+# The Twilight Zone Unveils a New Horrific Story (Exclusive Preview)
+
+Comics, Twilight Zone, Horror
+
+Thu, 26 Feb 2026 19:24:29 GMT
+
+https://www.cbr.com/the-twilight-zone-horrific-story-exclusive-preview/
+
+In a CBR exclusive preview of next week's The Twilight Zone, see how a scientist investigates a creepy space horror
+---------
+
+# 10 Strongest Anime Power-Ups With the Worst Side Effects
+
+Anime
+
+Thu, 26 Feb 2026 19:20:12 GMT
+
+https://www.cbr.com/strongest-anime-transformations-worst-side-effects/
+
+Power-ups like Gon's adult form and Luffy's Second Gear are some of the most unstoppable forms in anime, and they have incredibly brutal consequences.
+---------
+
+# Mission: Impossible - Dead Reckoning Streams on Netflix
+
+Movies, Mission: Impossible - Dead Reckoning, Netflix, Action
+
+Thu, 26 Feb 2026 19:16:33 GMT
+
+https://www.cbr.com/mission-impossible-dead-reckoning-streaming-netflix-february-2026/
+
+Tom Cruise's Mission: Impossible - Dead Reckoning, a box office miss in 2023 with a 96% Rotten Tomatoes score, is now streaming on Netflix.
+---------
+
+# The Dark Knight Rises Writer Ends 13-Year Debate About Bruce Wayne’s Fate
+
+Superheroes, The Dark Knight Rises
+
+Thu, 26 Feb 2026 19:01:47 GMT
+
+https://www.cbr.com/dark-knight-rises-explains-bruce-waynes-fate/
+
+The Dark Knight Rises story writer finally confirms what happened to Christian Bale's Batman.
+---------
+
+# 10 DC Characters Who Have Kept The Multiverse Together
+
+Comics, DC Comics
+
+Thu, 26 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/dc-characters-who-held-the-multiverse-together/
+
+The Multiverse wouldn't be the same without these characters keeping it together.
+---------
+
+# Japan Reveals Top 10 Anime of 2026 So Far in Official Ranking
+
+Anime, Frieren: Beyond Journey's End, Sentenced to Be a Hero, pretty cure, precure
+
+Thu, 26 Feb 2026 18:45:12 GMT
+
+https://www.cbr.com/anime-top-streaming-ranking-winter-2026-niconico/
+
+Two months into Winter 2026, one of Japan's biggest streaming sites unveils which 10 anime titles still have the most viewers glued to their screens.
+---------
+
+# A Dark Scream Theory Rewrites the Only Movie to Break the 2-Killer Rule
+
+Movies, Scream, Horror, Scream 3
+
+Thu, 26 Feb 2026 18:30:13 GMT
+
+https://www.cbr.com/scream-theory-reveals-ghostface-killer-patrick-dempsey-horror/
+
+The only Scream movie to break the franchise's cardinal rule may hide a jaw-dropping secret that changes everything about the killer.
+---------
+
+# 10 Most Perfectly Written Horror Movies, Ranked
+
+Movie, Horror, Psycho, Get Out, The Shining
+
+Thu, 26 Feb 2026 20:03:23 GMT
+
+https://collider.com/most-perfectly-written-horror-movies-ranked/
+
+Movie masterpieces like The Exorcist and Psycho have perfectly constructed narratives, proving just how crucial great writing is for the horror genre.
+---------
+
+# CBS' Sherlock-Inspired Medical Mystery Series Returns With New Look at Its Most Dangerous Case Yet [Exclusive]
+
+TV News, Watson, Collider Exclusive Preview, CBS, Morris Chestnut
+
+Thu, 26 Feb 2026 20:00:22 GMT
+
+https://collider.com/watson-season-2-episode-11-sneak-peek-morris-chestnut-cbs/
+
+After a three-month hiatus, Watson Season 2 is back with The Tunnel Under the Elms this Sunday. Watch an exclusive sneak peek here!
+---------
+
+# Tom Holland's 5 Best Marvel Movies, Ranked
+
+Movie, Tom Holland, Spider-Man: No Way Home, Avengers: Infinity War, Captain America: Civil War
+
+Thu, 26 Feb 2026 19:55:20 GMT
+
+https://collider.com/tom-holland-marvel-movies-best-ranked/
+
+Ranking Tom Holland’s best MCU movies, from Spider-Man origins to multiverse chaos, where humor, heartbreak, and hero growth collide.
+---------
+
+# From 'Black Mirror' to 'Futurama,' 10 Chilling Quotes About AI That Hit Hard in 2026
+
+TV, Sci-Fi, Black Mirror, Futurama, Star Trek
+
+Thu, 26 Feb 2026 19:41:13 GMT
+
+https://collider.com/sci-fi-tv-ai-quotes-still-hit-hard/
+
+Science fiction has had a lot to say about AI before its rise, with lines from TV shows like Black Mirror and Futurama that resonate in 2026.
+---------
+
+# 10 Hidden-Gem Pokémon That Deserve More Love
+
+TV, Pokémon, Anime, Animation, Adventure
+
+Thu, 26 Feb 2026 19:30:12 GMT
+
+https://collider.com/pokemon-hidden-gem-deserve-more-love/
+
+Today, Pokémon has over a thousand different species, but the likes of Ninetails and Salazzle have gone ignored for far too long despite being great.
+---------
+
+# This Criminally Overlooked Procedural Needs To Stop Dragging Out 1 Crucial Storyline
+
+TV Features, Wild Cards, Vanessa Morgan, The CW, Procedural
+
+Thu, 26 Feb 2026 19:15:12 GMT
+
+https://collider.com/wild-cards-season-3-episode-4-max-ellis-distance-secret/
+
+Wild Cards' central dynamic between Max and Ellis faces strain because of secrets and lies, and it's time for the series to seriously course-correct.
+---------
+
+# George R.R. Martin's Favorite 'Game of Thrones' Spin-Off Claims Streaming Victory With Record-Breaking Finale
+
+TV News, A Knight Of The Seven Kingdoms, George R.R. Martin, Game Of Thrones, House of the Dragon
+
+Thu, 26 Feb 2026 19:07:33 GMT
+
+https://collider.com/george-r-r-martin-favorite-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-finale-viewership-record-9-million/
+
+George R.R. Martin's A Knight of the Seven Kingdoms has ended its first season as a bona fide success, setting a series record.
+---------
+
+# 20 Greatest Family Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, Ratatouille, Family, The Princess Bride, The Wizard of Oz
+
+Thu, 26 Feb 2026 19:00:13 GMT
+
+https://collider.com/best-family-movie-masterpieces-last-100-years-ranked/
+
+The Wizard of Oz, Still Walking, and The Lion King are all among the absolute greatest family movie masterpieces of the last 100 years.
+---------
+
+# Gibbs’ Shock Wedding Sparks Chaos in ‘NCIS: Origins’ Sneak Peek [Exclusive]
+
+Exclusives, NCIS: Origins, CBS, Austin Stowell, Collider Exclusive Preview
+
+Thu, 26 Feb 2026 19:00:13 GMT
+
+https://collider.com/ncis-origins-season-2-episode-9-sneak-peek-gibbs-austin-stowell/
+
+A new NCIS: Origins midseason premiere sneak peek sets up a dramatic return for Gibbs and the team this spring.
+---------
+
+# 4 Years After Ending, Taylor Sheridan's First 'Yellowstone' Spin-Off Quietly Dominates Streaming
+
+TV News, 1883, Taylor Sheridan, Red Dead Redemption, Western
+
+Thu, 26 Feb 2026 18:56:37 GMT
+
+https://collider.com/taylor-sheridan-1883-western-epic-series-first-yellowstone-prequel-streaming-success-paramount-plus-february-2026/
+
+4 years after ending, Taylor Sheridan's Western epic 1883 has made an unexpected return to streaming charts. Read on for more.
+---------
+
+# Christopher Nolan's Highest-Grossing Movies, Ranked by Box Office Earnings
+
+Movie Lists, Christopher Nolan
+
+Thu, 26 Feb 2026 20:00:26 GMT
+
+https://movieweb.com/christopher-nolan-movies-ranked-by-box-office-performance/
+
+Christopher Nolan is widely considered to be one of the best filmmakers working today, though not all of his films have been box office hits.
+---------
+
+# 'In a Violent Nature 2' Trailer Teases Slasher Sequel
+
+Movie News, In a Violent Nature
+
+Thu, 26 Feb 2026 19:56:34 GMT
+
+https://movieweb.com/in-a-violent-nature-2-trailer/
+
+The first trailer for the sequel to the cult-horror hit 'In a Violent Nature' has been revealed, setting up a new change of format.
+---------
+
+# DC's 'Wonder Twins': Isabel May Comments on Canceled HBO Movie
+
+Movie News, Scream 7, Wonder Twins, DCU
+
+Thu, 26 Feb 2026 19:11:47 GMT
+
+https://movieweb.com/scream-7-star-comments-on-canceled-dc-superhero-movie/
+
+'Scream 7' star Isabel May details finding out that the DCEU 'Wonder Twins' movie was canceled.
+---------
+
+# Tom Hardy's MMA Action Masterpiece 'Warrior' Streams on Paramount+ in March
+
+Movie News, Warrior, Paramount Plus, Coming/Leaving Streaming, Action
+
+Thu, 26 Feb 2026 19:00:18 GMT
+
+https://movieweb.com/warrior-streaming-paramount-march-2026/
+
+Tom Hardy's cult-classic MMA action movie 'Warrior' will stream on Paramount+ in March 2026 after flopping at the box office.
+---------
+
+# The Robert Kelso Wing in the 'Scrubs' Revival Implies Ken Jenkins' Character Has Died Since Season 8
+
+Features, Scrubs
+
+Thu, 26 Feb 2026 19:00:18 GMT
+
+https://movieweb.com/scrubs-revival-premiere-kelso-reference/
+
+'Scrubs' is back, and almost every member of the original cast has already made an appearance. However, Dr. Kelso is still absent, which could be bad.
+---------
+
+# 'The Boys' Season 5: Karl Urban Speaks About New & Improved Billy Butcher
+
+TV News, The Boys, Karl Urban
+
+Thu, 26 Feb 2026 18:52:49 GMT
+
+https://movieweb.com/karl-urban-upgrade-the-boys-season-5/
+
+Now donning scary new superpowers, Billy Butcher will be a force to be reckoned with in 'The Boys' Season 5, according to star Karl Urban
+---------
+
+# 'Heated Rivalry' Season 2 Release Window Teased by Creator
+
+TV News, Heated Rivalry
+
+Thu, 26 Feb 2026 18:14:52 GMT
+
+https://movieweb.com/heated-rivalry-season-2-release-window/
+
+Filming for 'Heated Rivalry' begins in August 2026 with the series aiming for a spring 2027 premiere date.
+---------
+
 # New Harry Potter Spinoff Series Plans At HBO Seemingly Hinted At By Exec
 
 TV, Harry Potter
