@@ -1,3 +1,223 @@
+# The Last Of Us Meets Rust In Huge New Free Open-World RPG
+
+Gaming, RPG, Indie, PC, The Last of Us, Rust
+
+Thu, 26 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/steam-free-open-world-rpg-2026-last-of-us-rust/
+
+A new and massive open-world RPG that feels like a healthy mix between The Last of Us and Rust will be released for free later this year.
+---------
+
+# Fantasy Reboots Rarely Hit, But This Hit 2009 Steampunk Drama Is Near-Perfect
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood, Fullmetal Alchemist: Brotherhood - Season 1, Fantasy, Drama
+
+Thu, 26 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/best-fantasy-tv-reboot-fullmetal-alchemist-brotherhood-near-perfect/
+
+There are very few fantasy reboots that have been successful, but this 2009 steampunk drama series was even better than the original show.
+---------
+
+# The X-Files Reboot: Confirmation & Everything We Know
+
+Streaming TV, The X-Files
+
+Wed, 25 Feb 2026 23:30:21 GMT
+
+https://screenrant.com/xfiles-reboot-confirmation-updates/
+
+Director Ryan Coogler is bringing the classic 1990s TV series The X-Files back to the small screen in a new reboot with a diverse cast.
+---------
+
+# Sydney Sweeney's Kim Novak Role In Scandalous Emulates Scarlett Johansson
+
+Movies, Sydney Sweeney, Scarlett Johansson
+
+Wed, 25 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/sydney-sweeney-scandalous-kim-novak-scarlett-johansson-hitchcock/
+
+Sydney Sweeney and Scarlett Johansson have often been compared, and now Sweeney is taking on a role very similar to Johansson's in a 2012 movie.
+---------
+
+# 8 Perfect Anime to Binge During One Piece’s Historic 2026 Hiatus
+
+Anime, One Piece
+
+Wed, 25 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/best-anime-binge-watch-one-piece-2026-hiatus/
+
+One Piece's stategic hiatus for the year is in full swing and these series are the perfect options for fans to explore in that time
+---------
+
+# Gen Z Is Rejecting A Hollywood Trend That's Been Plaguing Movies Since The Birth Of Cinema
+
+Movies
+
+Wed, 25 Feb 2026 23:12:09 GMT
+
+https://screenrant.com/gen-z-hollywood-trend-rejection-masculinity-in-movies/
+
+Generation Z is rejecting a major Hollywood trend driven by tired clichés that has been plaguing movies and TV since the birth of cinema.
+---------
+
+# Predator: Badlands: Why Yautja Can't Easily Kill Humans
+
+Movies, Predator, Predator: Badlands
+
+Thu, 26 Feb 2026 00:00:12 GMT
+
+https://www.cbr.com/predator-badland-explains-yautja-cant-kill-humans/
+
+Predator: Badlands shows a new side to the Yautja and, in doing so, also explains why these hunters can never kill humans.
+---------
+
+# Ryan Reynolds' Woman in Gold Joins Peacock's March Lineup
+
+Movies, Woman in Gold, Peacock, Drama
+
+Thu, 26 Feb 2026 00:00:12 GMT
+
+https://www.cbr.com/ryan-reynolds-woman-in-gold-drama-streaming-peacock-march-2026/
+
+Woman in Gold, a 2015 biographical drama featuring Ryan Reynolds and Helen Mirren, is set to join Peacock's streaming library in March.
+---------
+
+# Best Steamy TV Shows On Hulu Right Now
+
+TV, Hulu
+
+Wed, 25 Feb 2026 23:50:12 GMT
+
+https://www.cbr.com/hulu-greatest-steamy-television-shows/
+
+Hulu has some captivating and steamy shows, from the hit hockey series Heated Rivalry to the unlikely chemistry in The Great.
+---------
+
+# 5 Sith Stronger Than Darth Vader
+
+Movies, Star Wars, Sci-Fi, Darth Vader
+
+Wed, 25 Feb 2026 23:40:08 GMT
+
+https://www.cbr.com/strongest-star-wars-sith-not-darth-vader-list/
+
+Darth Vader may be the most iconic Sith of all time, but these Dark Side wielders put him to shame.
+---------
+
+# Sony's Venom Animated Movie Is Bad News for Spider-Man Fans
+
+Movies, Venom, Spider-Man, superheroes
+
+Wed, 25 Feb 2026 23:30:12 GMT
+
+https://www.cbr.com/sony-animated-venom-movie-spider-man-disappointment/
+
+Sony is officially making a new Venom movie, but it won't be what Spider-Man fans have been waiting for.
+---------
+
+# X-Men Arcade Game Officially Coming to Modern Platforms
+
+Games, X-Men
+
+Wed, 25 Feb 2026 23:20:12 GMT
+
+https://www.cbr.com/x-men-arcade-game-new-release-marvel-maximum-collection/
+
+More classic Marvel games are coming to modern platforms, as the '90s X-Men arcade title is returning in the Marvel MaXimum Collection.
+---------
+
+# Scream Movies Dominate Paramount+ Streaming Charts Before Scream 7 Release
+
+Movies, Scream, Horror, Paramount Plus
+
+Wed, 25 Feb 2026 23:17:38 GMT
+
+https://www.cbr.com/scream-movies-horror-success-paramount-plus-february-2026/
+
+The iconic Scream franchise, featuring Neve Campbell, Courteney Cox, and David Arquette, is currently dominating Paramount+ streaming charts.
+---------
+
+# Sk8: The Infinity From Studio Bones Beats Is the Next Blue Lock Replacement
+
+Anime, Blue Lock, Sk8 the Infinity, My Hero Academia
+
+Wed, 25 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/best-sports-anime-sk8-the-infinity-blue-lock-replacement/
+
+Blue Lock is famed for subverting the "power of friendship" in sports anime, but one underrated skateboarding series secretly did it first.
+---------
+
+# Taylor Sheridan's Yellowstone Spin-offs Make Franchise History
+
+TV, Yellowstone, The Madison, Marshals
+
+Wed, 25 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/yellowstone-marshals-the-madison-yellowstone-history/
+
+Yellowstone will make franchise history in March as the property returns, finally continuing the elusive story of John Dutton and his family.
+---------
+
+# Studio Ghibli's Most Magical Fantasy Movie Will Screen in IMAX for a Limited Time
+
+Movie News, Kiki's Delivery Service, Studio Ghibli, Hayao Miyazaki, IMAX
+
+Thu, 26 Feb 2026 00:00:12 GMT
+
+https://collider.com/studio-ghibli-fantasy-classic-kikis-delivery-service-theater-re-release-march-2026/
+
+Experience the magic of Studio Ghibli's classic Kiki's Delivery Service as it returns to theaters in a limited 4K IMAX release. Read on for more.
+---------
+
+# At Just $90M, Disney+’s Lowest-Budget Star Wars Series Is the Franchise’s Best Weekend Binge
+
+TV Features, Obi-Wan Kenobi, Ewan McGregor, Disney Plus, Star Wars
+
+Wed, 25 Feb 2026 23:41:12 GMT
+
+https://collider.com/star-wars-obi-wan-kenobi-disney-plus-90m-budget/
+
+Disney+ threw buckets of money at its Star Wars shows, but Obi-Wan Kenobi remains a standout in terms of story and budget.
+---------
+
+# 15 Best 'Bridgerton' Quotes, Ranked
+
+TV, Bridgerton, Romance, Netflix, Drama
+
+Wed, 25 Feb 2026 23:31:12 GMT
+
+https://collider.com/bridgerton-quotes-best-ranked/
+
+Netflix's Bridgerton delivered some iconic quotes alongside its witty comedy, family shenanigans, and societal drama. Which are the best lines?
+---------
+
+# Michelle Pfeiffer Returns to TV With These Two Star-Studded Upcoming Series
+
+Features, Margo's Got Money Troubles, Michelle Pfeiffer, The Madison
+
+Thu, 26 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/michelle-pfeiffer-margos-got-money-troubles-comeback/
+
+Michelle Pfieffer is back on TV with Taylor Sheridan's 'The Madison', but did you know she has another major series coming just one month later?
+---------
+
+# Mike Flanagan Promises Remake of 'The Mist' Goes in a "Different Direction"
+
+Movie News, The Mist, Stephen King, Mike Flanagan
+
+Wed, 25 Feb 2026 23:59:20 GMT
+
+https://movieweb.com/mike-flanagan-mist-remake-not-retread/
+
+The 'Doctor Sleep' praises the 2007 'The Mist' while assuring fans his new film adaptation won't be a 'retread."
+---------
+
 # 25 Best Anime Ever Made, Ranked
 
 Anime
