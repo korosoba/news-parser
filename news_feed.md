@@ -1,3 +1,311 @@
+# Paramount Officially Wins Warner Bros. As Netflix Backs Out
+
+TV, Netflix, Warner Bros., Paramount
+
+Thu, 26 Feb 2026 23:02:25 GMT
+
+https://screenrant.com/paramount-warner-bros-deal-netflix-exit/
+
+Netflix pulls out of the bidding war for Warner Bros. Discovery, allowing Paramount to acquire the studio.
+---------
+
+# PlayStation Quietly Delists 2025 Game And Offers Full Refunds
+
+Gaming, Amazon Games
+
+Thu, 26 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/playstation-5-game-delisted-full-refunds/
+
+PlayStation quietly delists 2025 game King of Meat, offering full refunds to players as the online dungeon crawler fails to find an audience.
+---------
+
+# After 20 Long Years, Nickelodeon Is Still Sitting on the Final Season of This Classic '90s TV Gem
+
+TV, The Adventures of Pete & Pete, Nickelodeon
+
+Thu, 26 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/nickelodeon-missing-90s-show-adventures-of-pete-and-pete-final-season/
+
+Whoever canceled the release is a real blowhole.
+---------
+
+# Is Ryan Gosling Becoming Gen Z’s Ideal Movie Star?
+
+New Movies, Ryan Gosling
+
+Thu, 26 Feb 2026 22:50:18 GMT
+
+https://screenrant.com/ryan-gosling-movies-trend-gen-z-alpha-masculinity-study/
+
+For years, Ryan Gosling was associated with a certain kind of stoic masculinity on screen. That’s changing at the best possible time.
+---------
+
+# DC’s Cancelled Shapeshifting Superhero Movie Forced Star To Reassess Their Career 4 Years Later
+
+Movies, Wonder Twins, DC Universe
+
+Thu, 26 Feb 2026 22:47:27 GMT
+
+https://screenrant.com/wonder-twins-movie-cancellation-isabel-may/
+
+After Warner Bros. cancelled one of the big DC superhero movies, one of the lead stars finally opens up on the shocking cancellation by the studio.
+---------
+
+# Yellowjackets Season 4: Confirmation, Cast, Story Details & Everything To Know
+
+TV, Yellowjackets
+
+Thu, 26 Feb 2026 22:45:20 GMT
+
+https://screenrant.com/yellowjackets-season-4-explained/
+
+Yellowjackets was renewed by Showtime for a fourth and final season, and there are already plenty of details on what to expect when the show returns.
+---------
+
+# Why Prime Video's Top Pirate Movie The Bluff Is So Popular
+
+Movies, The Bluff
+
+Thu, 26 Feb 2026 22:45:19 GMT
+
+https://screenrant.com/prime-video-the-bluff-pirate-movie-trending-world/
+
+The #1 movie on Prime Video is an action thriller pirate movie that has taken the world by surprise, and it's succeeding for all the right reasons.
+---------
+
+# The Gray House Cast & Character Guide: Who Stars In Kevin Costner's Civil War Drama
+
+Streaming TV, The Gray House
+
+Thu, 26 Feb 2026 22:31:20 GMT
+
+https://screenrant.com/the-gray-house-cast-characters/
+
+The Gray House is an Amazon Prime Video historical drama from Kevin Costner, telling the true story of spies in the Civil War, and here's who stars.
+---------
+
+# Prime Video's 10/10 Fantasy Masterpiece With Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, Prime Video, The Mighty Nein
+
+Thu, 26 Feb 2026 22:20:19 GMT
+
+https://screenrant.com/prime-video-the-mighty-nein-fantasy-series-best/
+
+This Prime Video fantasy series might have debuted recently, but after its first season, it is clear that the show is one of the streamer's best.
+---------
+
+# Who Punishes The Punisher? Marvel’s Kicks Off A Wild New Frank Castle Story
+
+Comics, The Punisher, Marvel
+
+Thu, 26 Feb 2026 22:10:18 GMT
+
+https://screenrant.com/new-punisher-marvel-series-frank-castle-brain-damage/
+
+A new ongoing Punisher series has just begun from Marvel, revealing an all-new Frank Castle story featuring some major surprise twists.
+---------
+
+# Tom Ellis' CIA Broke Into the Top 10 After Underwhelming Reviews
+
+TV, CIA
+
+Thu, 26 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/tom-ellis-cia-police-procedural-paramount-plus-success-february-2026/
+
+The series didn't had the best start after several hardships.
+---------
+
+# Mindhunter’s Ed Kemper Episode Still Shapes Netflix’s Crime Dramas
+
+TV, Mindhunter
+
+Thu, 26 Feb 2026 22:40:12 GMT
+
+https://www.cbr.com/mindhunter-most-disturbing-episode-shape-netflix-crime-dramas/
+
+Mindhunter showed fans many unique killers in its two seasons, but Ed Kemper's introduction is still leavingits mark on crime dramas.
+---------
+
+# Charlie Vickers' Favorite LOTR Scene Can Inspire The Rings of Power S3
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Fellowship of the Ring
+
+Thu, 26 Feb 2026 22:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-scene-influence-rings-of-power-season-3/
+
+The Lord of the Rings: The Rings of Power has one actor whose favorite LOTR movie scene could greatly impact Season 3.
+---------
+
+# Lisa Kudrow's The Comeback Season 3 Premiere Date Announced
+
+TV, The Comeback, hbo, Comedy
+
+Thu, 26 Feb 2026 22:20:24 GMT
+
+https://www.cbr.com/the-comeback-season-3-release-date/
+
+After a 12-year hiatus, HBO has set the premiere date for The Comeback Season 3 starring Lisa Kudrow.
+---------
+
+# Naruto's Villains Outshine Most Shonen Heroes
+
+Anime, Shonen, Naruto, Naruto: Shippuden
+
+Thu, 26 Feb 2026 22:15:12 GMT
+
+https://www.cbr.com/naruto-villains-better-than-shonen-heroes/
+
+One of Naruto's most compelling aspects has always been its infamous cast of villains because they shine brighter than the heroes.
+---------
+
+# Video Game Adaptation With Only 10% on RT Hits No. 10 on the Streaming Charts 2 Years After Box Office Flop
+
+Movies, Borderlands
+
+Thu, 26 Feb 2026 22:00:12 GMT
+
+https://www.cbr.com/borderlands-sci-fi-starz-success-february-2026/
+
+A highly-anticipated video game adaptation that ended up flopping at the box office is now a streaming hit two years later.
+---------
+
+# Brad Pitt's Ahead-of-Its-Time Crime Comedy Is Getting Redacted on Streaming
+
+Movie News, Burn After Reading, Coen Brothers, Brad Pitt, George Clooney
+
+Thu, 26 Feb 2026 22:52:46 GMT
+
+https://collider.com/burn-after-reading-brad-pitt-crime-comedy-leaving-prime-video-february-2026/
+
+The Coen Brothers’ dark comedy Burn After Reading is leaving Prime Video soon. Find out how long you have to watch Brad Pitt's funniest role.
+---------
+
+# This Early War Movie Was a Deadly Production That Took 3 Years To Make
+
+Movie Features, Hell's Angels, War, Action, History
+
+Thu, 26 Feb 2026 22:45:12 GMT
+
+https://collider.com/hells-angels-war-movie-howard-hughes/
+
+Howard Hughes’ Hell’s Angels was an ambitious early war film that took 3 years to make and was so dangerous that it led to several deaths.
+---------
+
+# Stellar First 'The Bride!' Reactions Hint That Guillermo del Toro's 'Frankenstein' May Have Met Its Match
+
+Movie News, The Bride!, Maggie Gyllenhaal, Christian Bale, Jessie Buckley
+
+Thu, 26 Feb 2026 22:36:37 GMT
+
+https://collider.com/the-bride-jessie-buckley-christian-bale-frankenstein-reimagining-first-reactions/
+
+Maggie Gyllenhaal's The Bride! appears to have been worth the wait, as first reactions are praising Jessie Buckley and Christian Bale's monster movie.
+---------
+
+# 10 Movies From 1996 That Are Now Considered Classics
+
+Movie, Fargo, The Rock, Independence Day, Scream
+
+Thu, 26 Feb 2026 22:19:12 GMT
+
+https://collider.com/best-1996-movies-classics/
+
+From Primal Fear to Scream, these are great movies released in 1996 that are now considered classics.
+---------
+
+# Forget 'Home Alone,' This '80s Classic Is What You Should Watch on Prime Video Before It's Gone
+
+Movie News, Macaulay Culkin, Uncle Buck, John Candy, John Hughes
+
+Thu, 26 Feb 2026 22:16:43 GMT
+
+https://collider.com/uncle-buck-macaulay-culkin-80s-home-alone-predcessor-leaving-prime-video-february-2026/
+
+The 1989 John Hughes comedy Uncle Buck, starring John Candy and a young Macaulay Culkin, is leaving Prime Video at the end of February.
+---------
+
+# A K-Pop Icon Begins an Unconventional Virtual Reality Rom-Com in New 'Boyfriend on Demand' Image [Exclusive]
+
+Exclusives, Boyfriend on Demand, Netflix, Collider Exclusive Preview, Blackpink
+
+Thu, 26 Feb 2026 22:01:12 GMT
+
+https://collider.com/boyfriend-on-demand-image-jisoo-blackpink-netflix-first-look-rom-com/
+
+A new image from Netflix's South Korean rom-com Boyfriend on Demand begins a virtual reality love story with BLACKPINK's Jisoo.
+---------
+
+# The Most Brutal World War 2 Revenge Epic Is Surging On Prime Video 4 Years After Its Premiere
+
+Movie Features, Sisu, World War II, Inglourious Basterds, Sisu: Road to Revenge
+
+Thu, 26 Feb 2026 21:55:12 GMT
+
+https://collider.com/sisu-brutal-revenge-epic-prime-video/
+
+Sisu is a high-octane tale of revenge as a Finnish gold miner faces off with a battalion of Nazis at the tail end of World War II.
+---------
+
+# As a Batman Fan, Here's How I'd Rank Every TV Show in the Franchise
+
+TV, Batman: The Animated Series, Gotham, Batman Beyond, Batman
+
+Thu, 26 Feb 2026 21:53:13 GMT
+
+https://collider.com/batman-fan-ranks-tv-shows/
+
+TV is an excellent medium for the World's Greatest Detective, and as a fan, I think Gotham and Batman: Beyond are some of the best Batman shows.
+---------
+
+# 'For All Mankind' Season 5 Feels More Like 'The Expanse' Than Ever
+
+Features, For All Mankind, The Expanse
+
+Thu, 26 Feb 2026 23:01:17 GMT
+
+https://movieweb.com/for-all-mankind-season-5-the-expanse-prequel/
+
+'The Expanse' doesn't have an official prequel show, but 'For All Mankind' seems like it's trying its best to give it one.
+---------
+
+# 'A Knight of the Seven Kingdoms' Finale Viewership Numbers Revealed
+
+TV News, A Knight Of The Seven Kingdoms
+
+Thu, 26 Feb 2026 22:17:54 GMT
+
+https://movieweb.com/a-knight-of-the-seven-kingdoms-finale-viewership/
+
+The HBO spin-off based on George R.R. Martin's novellas has clearly resonated with viewers.
+---------
+
+# Netflix's Sci-Fi Action Series 'Altered Carbon' Is a Masterpiece
+
+Features, Altered Carbon, Netflix, Streaming Recommendations, Sci-Fi
+
+Thu, 26 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/altered-carbon-streaming-netflix-february-2026/
+
+Netflix's 2-Season hard sci-fi cyberpunk action series 'Altered Carbon' is the perfect binge-watch this weekend.
+---------
+
+# Netflix’s 'The Night Agent' Beats Prime Video’s 'Reacher' In One Way
+
+Features, Reacher, The Night Agent
+
+Thu, 26 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/the-night-agent-better-than-reacher/
+
+While 'Reacher' is a popular Amazon Prime Video action thriller, Netflix's 'The Night Agent' has one interesting advantage over it.
+---------
+
 # Warner Bros. Declares Paramount’s Bid Superior To Netflix’s
 
 Movies, Warner Bros., Paramount, Netflix
