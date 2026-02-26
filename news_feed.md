@@ -1,3 +1,344 @@
+# Netflix’s Philip K. Dick Adaptation: Silo & Fallout’s Replacement?
+
+Streaming TV, Silo, Fallout, Netflix
+
+Thu, 26 Feb 2026 04:17:07 GMT
+
+https://screenrant.com/netflix-philip-k-dick-show-beats-silo-fallout/
+
+Silo and Fallout are great, but Netflix’s upcoming Philip K. Dick adaptation has the potential to beat them and become streaming’s next dystopian epic
+---------
+
+# Where Is The Axis Mundi In The Monsterverse?
+
+TV, Monarch: Legacy of Monsters, Monarch: Legacy of Monsters - Season 2, Monsterverse
+
+Thu, 26 Feb 2026 04:05:20 GMT
+
+https://screenrant.com/axis-mundi-monsterverse-monarch-legacy-of-monsters/
+
+The Monsterverse has spent time exploring locations like the Hollow Earth and Skull Island, but the realm known as Axis Mundi is entirely different.
+---------
+
+# Darth Maul Theory Teases The Return Of A Surprising Star Wars Villain In Shadow Lord
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Thu, 26 Feb 2026 03:40:38 GMT
+
+https://screenrant.com/darth-maul-theory-savage-opress-return-in-shadow-lord/
+
+Based on new reveals from Darth Maul actor Sam Witwer, it's possible a major Star Wars villain might be returning in the upcoming Shadow Lord series.
+---------
+
+# Scrubs’ JD & Elliot Relationship Bombshell Explained
+
+TV, Scrubs
+
+Thu, 26 Feb 2026 03:25:11 GMT
+
+https://screenrant.com/scrubs-revival-jd-elliot-divorce-lawrence-braff-chalke-response/
+
+The reboot of Scrubs is finally here, and its first episode delivered a surprising update regarding JD and Elliot's complicated relationship.
+---------
+
+# Netflix’s 8-Part Supernatural Show Gets Lovecraftian Horror Right
+
+Classic TV, Archive 81, Netflix, Horror
+
+Thu, 26 Feb 2026 03:16:55 GMT
+
+https://screenrant.com/netflix-lovecraft-archive-81-recommendation/
+
+Getting Lovecraftian horror right on the small screen is no easy feat, but one 8-part Netflix series perfectly captures the essence of cosmic horror.
+---------
+
+# This 10/10 Dark Historical Series Has The Same Secret Weapon Andor
+
+TV, Black Sails, Andor
+
+Thu, 26 Feb 2026 03:01:19 GMT
+
+https://screenrant.com/black-sails-andor-prequel-comparison/
+
+Andor has a similar structure within its franchise to another epic drama series, and audiences should watch both to compare themes and storytelling.
+---------
+
+# Spider-Man’s New Crossover Debuts A Venom/Carnage Team-Up Like We’ve Never Seen Before
+
+Comics, Spider-Man, Venom, Carnage, Marvel
+
+Thu, 26 Feb 2026 02:46:46 GMT
+
+https://screenrant.com/spider-man-new-crossover-venom-carnage-new-team-up-death-spiral/
+
+Marvel's new series is kicking off a brand-new team-up between Spider-Man, Venom, and even Carnage, albeit in a way we've never seen before.
+---------
+
+# Netflix’s New Crime Thriller Will Brutally Flip Every Reacher Rule
+
+Streaming TV, Joe Nesbø's Detective Hole, Reacher, Netflix
+
+Thu, 26 Feb 2026 02:46:31 GMT
+
+https://screenrant.com/netflix-detective-hole-flip-reacher/
+
+An exciting crime thriller series on Netflix, which is based on a bestselling book series, will seemingly flip every rule from Prime Video’s Reacher.
+---------
+
+# Naruto’s New Strongest Uchiha Sets Up Sasuke's Biggest Defeat in Decades
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 26 Feb 2026 02:30:19 GMT
+
+https://screenrant.com/naruto-new-strongest-uchiha-sarada-sasuke-defeat-sharingan-flaw/
+
+Sasuke is a tough act to follow, with his Uchiha clan successor facing a tough choice ahead to stay in the fight.
+---------
+
+# This Clue In The Masked Singer Season 14's Spice Girls Night All But Proves Pugcasso's Identity (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Thu, 26 Feb 2026 02:00:20 GMT
+
+https://screenrant.com/the-masked-singer-season-14-spice-girls-night-clue-pugcasso-identity-spoilers/
+
+The Masked Singer S14's Pugcasso's identity has been one of the biggest mysteries, but a Spice Girls Night clue might've proven who he really is.
+---------
+
+# Game of Thrones Fans, Say Hello to Your New Favorite Manga
+
+Anime, Manga, One Piece, Game Of Thrones
+
+Thu, 26 Feb 2026 04:59:24 GMT
+
+https://www.cbr.com/game-of-thrones-one-piece-best-manga/
+
+Another long-running 1990s series makes for a surprisingly good pair to George R.R. Martin's legendary Game of Thrones franchise.
+---------
+
+# Crunchyroll Adds Oshi no Ko Season 1, Season 2 Coming Spring 2026
+
+Anime, Oshi No Ko, Crunchyroll, HIDIVE, Streaming
+
+Thu, 26 Feb 2026 04:50:12 GMT
+
+https://www.cbr.com/crunchyroll-oshi-no-ko-season-1-season-2-streaming-addition/
+
+Crunchyroll is re-establishing itself as the premier anime streaming service in North America with another new hit addition to the platform.
+---------
+
+# Al Pacino & Robert De Niro Turned a 1995 Crime Classic Into Cinema's Most Untouchable Heist Flick
+
+Movies, Heat, Crime
+
+Thu, 26 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/al-pacino-robert-de-niro-heat-untouchable-heist-classic/
+
+When these two acting titans met, it resulted in a crime epic on an operatic scale, all framed around a study of obsession and unlikely connection.
+---------
+
+# 5 Overlooked Movies From the Last Decade Destined for Cult Classic Status
+
+Movies, The Life of Chuck, Babylon, Alita: Battle Angel
+
+Thu, 26 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/overlooked-modern-cult-classic-movies-list/
+
+Some modern classic films didn't receive the recognition they deserved upon release.
+---------
+
+# The 10/10 Cult Classic Game Every Sci-Fi Fan Needs To Play
+
+Games, Science Fiction
+
+Thu, 26 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/cult-classic-video-game-sci-fi-masterpiece-split-fiction/
+
+While it may not be considered a conventional sci-fi title, this game honors the genre unlike any other release prior.
+---------
+
+# Robert Duvall's Falling Down is His Most Misunderstood Masterpiece
+
+Movies, Falling Down, Thriller, Drama
+
+Thu, 26 Feb 2026 04:00:12 GMT
+
+https://www.cbr.com/robert-duvall-falling-down-greatest-misunderstood-classic/
+
+In 1993, Robert Duvall co-starred in one of the most intense thrillers of the decade, one that audiences still misunderstand 33 years later.
+---------
+
+# Harry Potter vs His Dark Materials: The Spectre-Dementor Debate
+
+TV
+
+Thu, 26 Feb 2026 03:45:11 GMT
+
+https://www.cbr.com/his-dark-materials-spectres-harry-potter-dementors-comparison/
+
+The similarities and differences between spectres from His Dark Materials and dementors from Harry Potter is a long-running fantasy debate.
+---------
+
+# 40 Years Later, Transformers: Scramble City Still Hasn’t Made It to The United States
+
+Anime, Transformers
+
+Thu, 26 Feb 2026 03:45:11 GMT
+
+https://www.cbr.com/forgotten-transformers-ova-scramble-city-us-release/
+
+One of the most obscure (and underrated) entries in the Transformers franchise is still eluding North American audiences four decades later.
+---------
+
+# The Bosch & Lincoln Lawyer Crossover Is Officially Happening
+
+TV, Bosch, The Lincoln Lawyer, Crime
+
+Thu, 26 Feb 2026 03:30:12 GMT
+
+https://www.cbr.com/bosch-lincoln-lawyer-crossover-officially-happening/
+
+Michael Connelly's characters live in the same universe, and the latest Harry Bosch novel, The Hollow, highlights the biggest issue with the TV shows.
+---------
+
+# 10 Forgotten Dragon Ball Fights That Still Hold Up Today
+
+Anime, Dragon Ball
+
+Thu, 26 Feb 2026 03:15:12 GMT
+
+https://www.cbr.com/forgotten-dragon-ball-fights-aged-well/
+
+Dragon Ball's action-packed battle shonen story makes it easy to forget some of its fights as the carnage piles up over time.
+---------
+
+# This 8-Part Sci-Fi Series Quietly Rewrites Ridley Scott's Biggest Horror Franchise
+
+TV Features, Alien, Alien: Earth, Sydney Chandler, Noah Hawley
+
+Thu, 26 Feb 2026 02:08:12 GMT
+
+https://collider.com/alien-earth-fx-noah-hawley-ridley-scott-rewrites-sci-fi-horror-biggest-franchise/
+
+Noah Hawley's Alien: Earth series takes Ridley Scott's iconic sci-fi horror franchise in a bold, thought-provoking new direction.
+---------
+
+# ‘Scrubs’ Stars Zach Braff, Donald Faison and Sarah Chalke Explain Why the Revival Needed “Resetting”
+
+Exclusives, Scrubs, Zach Braff, Donald Faison, Sarah Chalke
+
+Thu, 26 Feb 2026 02:00:38 GMT
+
+https://collider.com/scrubs-revival-zach-braff-donald-faison-sarah-chalke-interview/
+
+Zach Braff, Donald Faison and Sarah Chalke discuss the Scrubs revival, J.D. and Elliot's divorce, and why Turk and Carla are the cutest TV couple.
+---------
+
+# Netflix’s Near-Perfect Thriller Drops 40% in Viewership Before Season 4’s Major Changes
+
+TV Features, The Night Agent, Gabriel Basso, Netflix, TV Ratings
+
+Thu, 26 Feb 2026 01:33:13 GMT
+
+https://collider.com/the-night-agent-season-3-ratings-drop-season-4-changes-netflix/
+
+The Night Agent Season 3 drops 40% in viewership. Here’s what it means for Netflix’s Season 4 plans.
+---------
+
+# HBO Max's 3-Part Sci-Fi Fantasy Masterpiece Refuses To Go Extinct on Global Streaming Charts
+
+TV News, Primal, HBO Max, Fantasy, Animation
+
+Thu, 26 Feb 2026 01:00:13 GMT
+
+https://collider.com/hbo-max-3-part-dark-fantasy-masterpiece-primal-streaming-success-hbo-max-february-2026/
+
+This three-season animated dark fantasy keeps dominating global streaming charts, proving the 4 year wait between seasons was well worth it.
+---------
+
+# 52 Years Ago, Paul McCartney’s Demos for His Most Famous Album Were Stolen and He Had To Start Over
+
+Music Features, Paul McCartney, Paul McCartney: Man on the Run
+
+Thu, 26 Feb 2026 00:28:07 GMT
+
+https://collider.com/paul-mccartney-lost-demos-band-on-the-run-album/
+
+Paul McCartney and Wings overcame setbacks, including a robbery of demo tapes, to create their most iconic album, Band on the Run, in Lagos, Nigeria.
+---------
+
+# These 8 Fantasy Shows Would've Thrived in the Streaming Era
+
+TV, Fantasy, Avatar: The Last Airbender, Once Upon A Time, Charmed
+
+Thu, 26 Feb 2026 00:26:13 GMT
+
+https://collider.com/fantasy-shows-better-for-streaming-era/
+
+Although they were popular at the time, fantasy series like Once Upon a Time, Charmed, and Grimm feel like they were meant to be streaming shows.
+---------
+
+# Every Mike Flanagan Horror Movie, Ranked
+
+Movie Lists, Mike Flanagan, Horror
+
+Thu, 26 Feb 2026 03:00:30 GMT
+
+https://movieweb.com/mike-flanagan-horror-movie-ranked/
+
+Mike Flanagan's TV work often outshines his work in film, but he's a master of horror no matter the medium he chooses.
+---------
+
+# 10 Great HBO Thriller Series That Are Totally Unpredictable
+
+TV Lists, HBO Max
+
+Thu, 26 Feb 2026 02:00:18 GMT
+
+https://movieweb.com/most-unpredictable-thriller-hbo-shows/
+
+HBO is known for great television all around, and the network's thriller series are incredibly binge-worthy.
+---------
+
+# 'Scrubs' Star John C. McGinley Teases Major Turning Point in Revival [Exclusive]
+
+Movie News, Scrubs
+
+Thu, 26 Feb 2026 02:00:18 GMT
+
+https://movieweb.com/scrubs-revival-john-c-mcginley-dr-cox-exclusive/
+
+Even the greats have to decide when it's time to back down, and as we learn in the season premiere, Dr. Cox is no exception.
+---------
+
+# 'Scrubs' Star Judy Reyes Explains Turk's Struggle in Revival Season [Exclusive]
+
+TV News, Scrubs, Judy Reyes
+
+Thu, 26 Feb 2026 02:00:18 GMT
+
+https://movieweb.com/scrubs-revival-judy-reyes-turk-exclusive/
+
+The actress, who plays Carla on the hit series, gives us a preview of Turk's new position and the stress that comes with it.
+---------
+
+# 'The Napa Boys' Break Down Their Latest (and Only) Adventure
+
+Interviews, GOAT, Sarah Ramos, The Napa Boys
+
+Thu, 26 Feb 2026 00:40:07 GMT
+
+https://movieweb.com/the-napa-boys-cast-crew-interview/
+
+The cast and crew of the comedy attempt to shed some insight on the ambitious outing.
+---------
+
 # The Last Of Us Meets Rust In Huge New Free Open-World RPG
 
 Gaming, RPG, Indie, PC, The Last of Us, Rust
