@@ -1,3 +1,267 @@
+# Top 3 Must-Watch Prime Video Shows This Weekend: February 27–March 1, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 27 Feb 2026 23:38:19 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-feb-27-2026/
+
+The top 3 shows to binge-watch on Prime Video this weekend include Overcompensating, the new series The Gray House, and Jury Duty ahead of season 2.
+---------
+
+# All Titans In The Monsterverse: From Godzilla To Monarch Season 2
+
+Movies, Godzilla vs. Kong, Monsterverse
+
+Fri, 27 Feb 2026 23:30:20 GMT
+
+https://screenrant.com/godzilla-vs-kong-monsterverse-titans-known-confirmed/
+
+Legendary's Monsterverse continues to expand its impressive roster of creatures, now brimming with Titans across all its movies and shows.
+---------
+
+# Why The Original Mighty Morphin Power Rangers Are Returning In 2026
+
+Classic TV
+
+Fri, 27 Feb 2026 23:30:19 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-coming-back-2026-reason/
+
+After years of reinvention, Power Rangers is returning to its roots, with the Mighty Morhin team back for a new franchise-redefining adventure
+---------
+
+# One Of The Best Crime Shows Of All Time Keeps Getting Better Ahead Of 2027 Return
+
+Streaming TV, Line of Duty, Crime
+
+Fri, 27 Feb 2026 23:14:34 GMT
+
+https://screenrant.com/line-of-duty-crime-show-getting-better-2026-season-7/
+
+The UK has produced some top-tier crime dramas, but none have managed to push the boundaties of the genre quite like this returning hit.
+---------
+
+# Free Steam Game Novel Haven: A Cozy, 10/10 Lighthouse Bookstore Adventure
+
+Gaming, Indie Games, Steam, PC
+
+Fri, 27 Feb 2026 23:05:51 GMT
+
+https://screenrant.com/steam-10-free-game-download-keep-cozy-vibes/
+
+This entirely free Steam game lets you take a cozy break from everyday life by transforming an old lighthouse into the bookstore of your dreams.
+---------
+
+# 10 Best J.C. Staff Anime, Ranked
+
+Anime
+
+Fri, 27 Feb 2026 23:00:22 GMT
+
+https://screenrant.com/best-jc-staff-anime-ranked/
+
+J.C Staff has been around the anime industry for decades, having adapted some of the most compelling stories leading to some incredible anime.
+---------
+
+# Lord Of The Rings Fans Unite Behind New Open-World RPG
+
+Gaming, The Lord of the Rings, PC
+
+Fri, 27 Feb 2026 23:00:20 GMT
+
+https://screenrant.com/lord-of-the-rings-open-world-rpg-update/
+
+Lord of the Rings fans don't always agree on everything, but there's one thing that nearly every fan can agree on after recent Warner Bros. news.
+---------
+
+# This 9-Year-Old 59% RT Zero-Budget Movie Is Still One Of The Most Entertaining Horror Comedies Of All Time
+
+Movies, Comedy, Horror, The VelociPastor, Recommendation
+
+Fri, 27 Feb 2026 23:00:20 GMT
+
+https://screenrant.com/velocipastor-movie-horror-comedy-recommendation/
+
+This 2017 movie was nearly fresh on Rotten Tomatoes and is proof that zero-budget horror comedy movies can be very entertaining.
+---------
+
+# Frieren Season 2 Episode 6’s Manga Changes Fail the Divine Revolte Arc
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 27 Feb 2026 23:32:12 GMT
+
+https://www.cbr.com/frieren-beyond-journeys-end-season-2-episode-6-review/
+
+Frieren's latest episode makes all the wrong changes to the manga, resulting in a slow drag that fails to copy the strengths of its source material.
+---------
+
+# Universal Monsters: Phantom of the Opera is a Horror Masterpiece
+
+Comics, Phantom of the Opera, Horror
+
+Fri, 27 Feb 2026 23:31:23 GMT
+
+https://www.cbr.com/universal-monsters-phantom-opera-1-review-horror-masterpiece/
+
+In a CBR review of Universal Monsters: Phantom of the Opera #1, see how this stunning new Image adaptation of the classic work is a horror masterpiece
+---------
+
+# HBO’s Chernobyl Still Has the Most Harrowing 60 Minutes in TV History
+
+TV, Chernobyl
+
+Fri, 27 Feb 2026 23:30:12 GMT
+
+https://www.cbr.com/hbo-chernobyl-most-harrowing-60-minutes-in-tv-history/
+
+Chernobyl is an HBO miniseries that changed the genre forever, and one episode proved this while keeping viewers in suspense for an hour.
+---------
+
+# Dragon Ball: 7 Times Vegeta Was Actually a Better Hero Than Goku
+
+Anime, Vegeta, Goku, Dragon Ball
+
+Fri, 27 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/dragon-ball-vegeta-most-heroic-moments/
+
+Goku may be the protagonist of Dragon Ball's story, but Vegeta often comes out on top as the better hero.
+---------
+
+# The Moment Zack Snyder Knew Batman v Superman Would Be Controversial
+
+Movies, Batman v Superman: Dawn of Justice, superheroes, DC Extended Universe
+
+Fri, 27 Feb 2026 23:00:22 GMT
+
+https://www.cbr.com/zack-snyder-batman-v-superman-anger-fans-r-rating/
+
+Zack Snyder reveals the specific moment he knew Batman v Superman: Dawn of Justice would be controversial and divide fans.
+---------
+
+# The Sons of Anarchy Revival Has the Perfect Villain
+
+TV, Sons of Anarchy, Crime
+
+Fri, 27 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/the-sons-of-anarchy-revival-perfect-villain-opie-winston-son/
+
+The father/son dynamic is one of the most central pieces of Sons of Anarchy, and it will create the perfect villain for a potential sequel series.
+---------
+
+# You Need To Watch Hulu's 'Love Story,' and Here's 6 Reasons Why
+
+TV, Love Story, FX, Ryan Murphy, Hulu
+
+Fri, 27 Feb 2026 23:46:12 GMT
+
+https://collider.com/love-story-jfk-jr-carolyn-bessette-hulu-series-ryan-murphy-reasons-to-watch/
+
+Ryan Murphy's latest FX series Love Story, which follows John F. Kennedy Jr. and Carolyn Bessette, is the stellar show you need to be watching.
+---------
+
+# 10 Game-Changing TV Dramas That Totally Rewrote Genre's Rules
+
+TV, Breaking Bad, Lost, Game Of Thrones, Drama
+
+Fri, 27 Feb 2026 23:44:12 GMT
+
+https://collider.com/game-changing-tv-drama-shows-rewrote-genre-rules/
+
+Explore the groundbreaking TV dramas that transformed the genre and rewrote the rules of storytelling, from Breaking Bad to Game of Thrones.
+---------
+
+# Taylor Sheridan’s Harshest Neo-Western Faces Heat From 'Game of Thrones' Director's Icy Thriller
+
+Movie News, Dead of Winter, Emma Thompson, Taylor Sheridan, Wind River (2017)
+
+Fri, 27 Feb 2026 23:40:36 GMT
+
+https://collider.com/dead-of-winter-emma-thompson-taylor-sheridan-neo-western-wind-river-replacement-streaming-success-hbo-max-february-2026/
+
+Dead of Winter, Emma Thompson's icy answer to Taylor Sheridan's Wind River, is emerging as a streaming hit. Find out more.
+---------
+
+# This Cover of The Beatles' 1969 Hit "Come Together" Completely Outshines the Original Song
+
+Music Features, Music, Rock, The Beatles, Tina Turner
+
+Fri, 27 Feb 2026 23:37:41 GMT
+
+https://collider.com/tina-turner-cover-of-the-beatles-come-together-outshines-the-original/
+
+This singer's powerful rendition of The Beatles' Come Together outshines the original, showcasing her soulful blues rock style.
+---------
+
+# Matt Damon’s Forgotten World War II Dud Ducks for Cover Amid ‘Wuthering Heights’ Onslaught at the Box Office
+
+Movie News, Matt Damon, Wuthering Heights, The Monuments Men, Margot Robbie
+
+Fri, 27 Feb 2026 23:18:25 GMT
+
+https://collider.com/wuthering-heights-overtakes-matt-damon-forgotten-ww2-movie-monuments-men-global-box-office-160-million/
+
+Matt Damon and George Clooney's forgotten World War II drama, Monuments Men, has been overtaken by Wuthering Heights at the box office.
+---------
+
+# Idris Elba's Thrilling 'Luther' Successor Loses Apple TV Crown to 'Game of Thrones' Star's Crime Drama
+
+Movie News, Idris Elba, Hijack, The Last Thing He Told Me, Apple TV
+
+Fri, 27 Feb 2026 23:03:09 GMT
+
+https://collider.com/apple-tv-hijack-idris-elba-thriller-overtaken-by-jennifer-garner-series-the-last-thing-he-told-me-streaming-success-february-2026/
+
+Idris Elba's Hijack, which had been ruling over the Apple TV charts for weeks, has been replaced by The Last Thing He Told Me.
+---------
+
+# Collider's Spring TV Preview Unveils Exclusive Early Looks at Nearly 50 Must-Watch Series
+
+Exclusives, Collider Exclusive Preview, Peaky Blinders: The Immortal Man, Stranger Things: Tales from '85, Scream 7
+
+Fri, 27 Feb 2026 23:02:12 GMT
+
+https://collider.com/spring-tv-series-preview-2026-exclusive-images-interviews-sneak-peeks/
+
+Discover the hottest new TV shows premiering this spring, featuring exclusive sneak peeks and interviews from nearly 50 must-watch series.
+---------
+
+# From ‘Parks and Recreation’ Spec Script to Full-Blown Horror Get a First Look at Apple TV's New Cursed Comedy [Exclusive]
+
+Exclusives, Widow's Bay, Matthew Rhys, Apple TV, Collider Exclusive Preview
+
+Fri, 27 Feb 2026 23:00:13 GMT
+
+https://collider.com/widows-bay-image-matthew-rhys-horror-comedy-apple-tv-first-look/
+
+Get a first look at Apple TV's new horror comedy Widow's Bay, from a Parks and Rec writer, and starring The Americans alum Matthew Rhys.
+---------
+
+# 'Scream 7' Ending, Explained
+
+Features, Scream 7, Scream, Horror
+
+Fri, 27 Feb 2026 23:31:21 GMT
+
+https://movieweb.com/scream-7-ending-explained/
+
+'Scream 7' delivers another killing spree aimed at terrorizing Neve Campbell's Sidney Prescott, but who's behind the Ghostface mask?
+---------
+
+# Where Is Mateo in 'The Pitt' Season 2?
+
+Features, The Pitt
+
+Fri, 27 Feb 2026 23:00:18 GMT
+
+https://movieweb.com/where-is-mateo-the-pitt-season-2/
+
+There's a rotating team of doctors and nurses in 'The Pitt', but you might not have noticed that one key character from Season 1 is missing.
+---------
+
 # Prime Video's Spider-Noir Season 2 & Future Return Possibilities Teased By Creators
 
 TV, Spider-Noir
