@@ -1,3 +1,377 @@
+# Prime Video’s 8-Part Corporate Horror Show Eases The Wait For Apple TV’s Sci-Fi Masterpiece
+
+Streaming TV, Prime Video, The Consultant, Severance
+
+Fri, 27 Feb 2026 04:31:19 GMT
+
+https://screenrant.com/prime-video-consultant-apple-tv-severance-recommendation/
+
+Prime Video is the home of a gripping corporate horror thriller that seems to perfectly ease the wait for the return of Apple TV’s sci-fi masterpiece.
+---------
+
+# Prime Video’s The Expanse Was Saved By The Greatest TV Campaign
+
+Classic TV, Prime Video, The Expanse
+
+Fri, 27 Feb 2026 03:45:19 GMT
+
+https://screenrant.com/prime-video-greatest-fan-campaign-expanse/
+
+The sci-fi show on Prime Video was cancelled midway through its runtime before one of the greatest fan campaigns in TV history finally save the day.
+---------
+
+# Scream 7 Hit By Protests And  Melissa Barrera Responds
+
+Movies, Scream 7, Melissa Barrera, Scream
+
+Fri, 27 Feb 2026 03:37:53 GMT
+
+https://screenrant.com/scream-7-protests-melissa-barrera-responds/
+
+Scream 7's premiere gets crashed by fans protesting Melissa Barrera's firing, and the actor seemingly responds to her supporters.
+---------
+
+# Netflix’s Greatest Sci-Fi Show Masters The Art Of Time Travel Storytelling
+
+Classic TV, Netflix, Sci-Fi, Dark
+
+Fri, 27 Feb 2026 03:30:19 GMT
+
+https://screenrant.com/netflix-dark-time-travel-mastery/
+
+One of the greatest science fiction shows on Netflix seems to master the art of time travel storytelling with its perfectly well-rounded narrative.
+---------
+
+# Post-Apocalyptic Show Based On A Book That Inspired Stephen King Changes The Genre’s Rules
+
+Classic TV, Stephen King, Earth Abides, The Stand
+
+Fri, 27 Feb 2026 03:00:30 GMT
+
+https://screenrant.com/earth-abides-post-apocalyptic-rules-bend/
+
+An underrated post-apocalyptic show is based on a book that not only defined the rules of the genre but also inspired one of Stephen King’s best books
+---------
+
+# Marvel Sets Up A Wild New Iron Man Team-Up With The MCU’s Most Absurd Villain
+
+Comics, Iron Man, Marvel, M.O.D.O.K.
+
+Fri, 27 Feb 2026 02:37:51 GMT
+
+https://screenrant.com/new-iron-man-team-up-with-modok-marvel-series/
+
+Marvel's new Iron Man features a major new threat for Tony Stark, while also setting up a VERY surprising and unexpected team-up with a major villain.
+---------
+
+# The Pitt Season 2 Finally Reveals Why Mel Is Being Sued
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 27 Feb 2026 02:30:19 GMT
+
+https://screenrant.com/the-pitt-season-2-mel-king-lawsuit-measles-patient-explained/
+
+Discover the reason behind Dr. Mel King's medical malpractice lawsuit in The Pitt Season 2, episode 8. Learn how her case is likely to play out and its connection to a controversial season 1 patient.
+---------
+
+# The Pitt Season 2, Episode 8 Recap: Santos And Langdon Finally Reunite
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 27 Feb 2026 02:01:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-8-ending-explained/
+
+In The Pitt season 2, episode 8, Dr. Langdon and Dr. Santos face off as PTMC grapples with a cyberattack and medical dilemmas. A terminal patient's morphine dosage and a measles lawsuit add to the drama.
+---------
+
+# Spider-Man's Identity Change In Prime Video's Live-Action Show May Have Deeper Meaning Than You Think
+
+Superheroes, Spider-Noir, Theory
+
+Fri, 27 Feb 2026 02:00:19 GMT
+
+https://screenrant.com/spider-noir-show-ben-reilly-name-change-clone-theory/
+
+Based on a hint in the trailer, Spider-Noir may have a comic-accurate reason for making Nicolas Cage's character Ben Reilly and not Peter Parker.
+---------
+
+# Netflix’s 4-Part Series Achieves The Impossible In Its 4-Hour Runtime
+
+Classic TV, Netflix, Adolescence
+
+Fri, 27 Feb 2026 01:45:15 GMT
+
+https://screenrant.com/adolescence-impossible-filming-feat-netflix/
+
+One of Netflix best dramas of all time barely lasts for four hours, but despite its short runtime, it achieves a nearly impossible storytelling feat.
+---------
+
+# After God Is the Perfect Dark Manga Recommendation For Chainsaw Man Fans
+
+Anime, Chainsaw Man
+
+Fri, 27 Feb 2026 04:45:12 GMT
+
+https://www.cbr.com/chainsaw-man-manga-recommendation-after-god/
+
+For fans of Chainsaw Man's dark themes and complex characters, this underrated manga is the best alternative recommendation.
+---------
+
+# Spider-Man & Mary Jane Clash In Their First Meeting Since She Became Venom
+
+Comics
+
+Fri, 27 Feb 2026 04:43:39 GMT
+
+https://www.cbr.com/spider-man-venom-mary-jane-first-meeting-exclusive-preview/
+
+In a CBR exclusive preview of next week's Amazing Spider-Man, see how Spider-Man and Venom clash in their first meeting since Mary Jane became Venom
+---------
+
+# Gundam's Forgotten '90s Anime Returns With Special 30th Anniversary High Grade Gunpla Collection
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam After War Gundam X, merchandise, toys, bandai
+
+Fri, 27 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/after-war-gundam-x-30-year-anniversary-gunpla-collection/
+
+In honor of the underrated mecha anime's 30th anniversary, several old-school model kits for After War Gundam X are being re-released in 2026.
+---------
+
+# 9 Disney Games That Are 10/10 But Nobody Remembers Them
+
+Games, Disney, retro games
+
+Fri, 27 Feb 2026 04:15:12 GMT
+
+https://www.cbr.com/forgotten-disney-games-masterpieces-list/
+
+Many retro Disney games are rightfully considered classics, but some amazing games like Goof Troop have been forgotten.
+---------
+
+# Best Steamy Adult Series to Stream On Netflix
+
+TV, Netflix, Romance
+
+Fri, 27 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/best-steamy-shows-netflix/
+
+From Outlander to Lovesick, Netflix has plenty of series to scratch that steamy itch.
+---------
+
+# Action-Packed Thriller Psycho-Pass Predicted Dystopian Algorithms Before They Felt Real
+
+Anime, Psycho-Pass
+
+Fri, 27 Feb 2026 03:15:12 GMT
+
+https://www.cbr.com/crunchyroll-best-cyberpunk-anime-psycho-pass/
+
+Long before recommendation feeds ruled daily life, this high-octane sci-fi series imagined a world controlled by invisible code.
+---------
+
+# Happy Days' Chuck Cunningham Mystery Solved by Bizarre Fan Theory
+
+TV, Happy Days, Sitcoms
+
+Fri, 27 Feb 2026 03:00:24 GMT
+
+https://www.cbr.com/happy-days-fonz-dark-fan-theory-time-travel/
+
+There are many great TV mysteries, but one of the most unsolvable from Happy Days may have an answer that involves science fiction.
+---------
+
+# 10 Strongest Boruto Characters & Their Untouchable Special Powers
+
+Anime, Boruto: Naruto Next Generations
+
+Fri, 27 Feb 2026 02:45:12 GMT
+
+https://www.cbr.com/strongest-boruto-characters-special-powers/
+
+As the successor to Naruto, Boruto: Naruto Next Generations carries the torch to greater heights with the strongest characters the story's ever seen.
+---------
+
+# Stephen King-Backed 'Killing Faith' Supernatural Western Jumps to Hulu
+
+Movies, Killing Faith
+
+Fri, 27 Feb 2026 02:41:07 GMT
+
+https://www.cbr.com/stephen-king-killing-faith-western-thriller-streaming-hulu-march-2026/
+
+Famed horror author Stephen King's praised Killing Faith, which is set to gallop onto Hulu.
+---------
+
+# Fight Club Moves to Hulu: Fincher’s Controversial Drama Joins the Streamer
+
+Movies, Fight Club
+
+Fri, 27 Feb 2026 02:32:38 GMT
+
+https://www.cbr.com/david-fincher-fight-club-streaming-hulu-march-2026/
+
+David Fincher's 1999 drama Fight Club, starring Edward Norton and Brad Pitt, leaves paid video-on-demand and arrives on Hulu March 1.
+---------
+
+# 'Scream 7' Review: Not Even Neve Campbell's Return Can Save This Dying Horror Franchise
+
+Movie Reviews, Scream 7, Scream, Neve Campbell, Kevin Williamson
+
+Fri, 27 Feb 2026 04:12:02 GMT
+
+https://collider.com/scream-7-review-neve-campbell/
+
+Scream 7 sees the return of Neve Campbell in the worst film in the franchise, and a desperate nostalgia play to keep the series alive.
+---------
+
+# 'Elsbeth' Season 3's 'Gen V' Biohacker Case Finally Lets the Show Get Weird | Review
+
+TV Reviews, Elsbeth, Carrie Preston, Wendell Pierce, CBS
+
+Fri, 27 Feb 2026 04:01:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-11-recap-review-hamish-linklater/
+
+In the Season 3 midseason premiere of Elsbeth, Carrie Preston's character delves into a biohacker murder mystery.
+---------
+
+# TV's #1 Sitcom Is Rewriting the Rules With a Major Shake Up [Exclusive]
+
+TV News, Ghosts, CBS, Sitcom, Sheila Carrasco
+
+Fri, 27 Feb 2026 02:00:12 GMT
+
+https://collider.com/ghosts-season-5-the-others-cult-spirits-explained-woodstone-secret-connection-joe-port-joe-wiseman/
+
+Ghosts showrunners discuss adding a new location to Woodstone, and tease a surprising connection between Hetty & Flower, plus a flashback for Thor.
+---------
+
+# '9-1-1' Can't Decide What It Wants To Focus On in a Lackluster Season 9 | Review
+
+TV Reviews, 9-1-1, Angela Bassett, Ryan Guzman, ABC
+
+Fri, 27 Feb 2026 02:00:12 GMT
+
+https://collider.com/9-1-1-season-9-episode-11-review-recap-bachelor-auction/
+
+9-1-1 struggles with pacing, character dynamics, and a lack of cohesive storytelling in Season 9 and the cracks have been showing for a while.
+---------
+
+# ‘The Pitt’ Season 2 Episode 8 Recap: The ER’s Unexpected Chaos Sets Up the Shift’s Biggest Breaking Point Yet
+
+TV Reviews, The Pitt, Noah Wyle, Sepideh Moafi, Taylor Dearden
+
+Fri, 27 Feb 2026 02:00:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-8-recap/
+
+In The Pitt Season 2 Episode 8, a cyberattack forces PTMC's doctors and nurses to navigate even more chaos in the ER.
+---------
+
+# Channing Tatum's 2-Part Crime Series Remake Gets Kicked to the Curb on Streaming
+
+Movie News, 21 Jump Street, 22 Jump Street, Channing Tatum, Comedy
+
+Fri, 27 Feb 2026 01:15:20 GMT
+
+https://collider.com/21-jump-street-franchise-channing-tatum-crime-series-remake-leaving-streaming-prime-video-february-2026/
+
+21 Jump Street and 22 Jump Street, starring Channing Tatum and Jonah Hill, are set to exit Prime Video soon. Read on for more details.
+---------
+
+# 14 Years After Dividing a Fanbase, Ridley Scott's Sci-Fi Epic Has Been Slain on Netflix
+
+Movie News, Ridley Scott, Prometheus, Netflix, Sci-Fi
+
+Fri, 27 Feb 2026 01:01:02 GMT
+
+https://collider.com/netflix-ridley-scott-polarizing-sci-fi-movie-prometheus-overtaken-by-firebreak-spanish-thriller-streaming-success-february-2026/
+
+Ridley Scott's Prometheus, which had been dominating the Netflix charts for days, has been overtaken by a Spanish-language breakout hit.
+---------
+
+# Apple TV’s Alt-History Sci-Fi Saga Gains Momentum Before Season 5
+
+TV News, For All Mankind, Apple TV, Sci-Fi, Drama
+
+Fri, 27 Feb 2026 01:00:13 GMT
+
+https://collider.com/apple-tv-alt-history-sci-fi-saga-for-all-mankind-streaming-success-february-2026/
+
+Apple TV's acclaimed sci-fi series surges ahead of a new season, as viewers prepare for the epic continuation of the space drama.
+---------
+
+# 30 Years Later, One of the Greatest Sci-Fi Action Epics Ever Is Finally Back
+
+TV News, Neon Genesis Evangelion, Anime, Sci-Fi, Netflix
+
+Fri, 27 Feb 2026 00:41:58 GMT
+
+https://collider.com/greatest-sci-fi-action-epic-evangelion-reboot-series-announced/
+
+30 years after its debut, a legendary sci-fi anime franchise officially announces a brand new series with an auteur-heavy team. Read on for more.
+---------
+
+# 14 Years Later, Russell Crowe's Most Divisive Period Piece Is Seeing Stars in Streaming Exit
+
+Movie News, Les Misérables, Hugh Jackman, Musical, Russell Crowe
+
+Fri, 27 Feb 2026 00:41:39 GMT
+
+https://collider.com/les-miserables-russell-crowe-most-divisive-period-piece-leaving-prime-video-february-2026/
+
+The acclaimed musical Les Misérables starring Hugh Jackman and Anne Hathaway is set to leave Prime Video at the end of February.
+---------
+
+# 'The Knick' Is the Perfect Historical Drama for 'The Pitt' Fans
+
+Features, The Knick, HBO Max, Streaming Recommendations, Comparison Recommendation
+
+Fri, 27 Feb 2026 03:00:29 GMT
+
+https://movieweb.com/the-knick-hbo-max-february-2026/
+
+The two-season series directed by Steven Soderbergh and starring Clive Owen is just as powerful today as when it aired.
+---------
+
+# Every Taylor Sheridan Western Movie and TV Show, Ranked
+
+Movie Lists, Taylor Sheridan
+
+Fri, 27 Feb 2026 03:00:29 GMT
+
+https://movieweb.com/taylor-sheridan-western-movies-tv-ranked/
+
+From 'Yellowstone' to 'Hell and High Water,' Taylor Sheridan has made nine Western and neo-Western movies and TV shows.
+---------
+
+# 10 Most Unpredictable R-Rated Movies on Netflix
+
+Movie Lists, Netflix, Thriller, Horror, Sci-Fi
+
+Fri, 27 Feb 2026 02:00:17 GMT
+
+https://movieweb.com/unpredictable-r-rated-movies-netflix/
+
+Netflix offers a great selection of unpredictable R-rated movies that will keep viewers guessing at every turn.
+---------
+
+# 'Bridgerton' Season 4's Shocking Death Changes Everything
+
+Features, Bridgerton, Netflix
+
+Fri, 27 Feb 2026 01:00:19 GMT
+
+https://movieweb.com/bridgerton-season-4-john-stirling-death/
+
+'Bridgerton' Season 4 Part 2's eight episodes dropped on Netflix on Feb. 26, 2026, and stars Yerin Ha and Luke Thompson as Sophie and Benedict.
+---------
+
 # Naruto’s Best Romance Is Now the Biggest Casualty of Boruto’s Worst Betrayal Yet
 
 Anime, Boruto: Two Blue Vortex, Naruto
