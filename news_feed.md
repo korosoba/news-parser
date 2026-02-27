@@ -1,3 +1,278 @@
+# Disney's 8-Part Sci-Fi Series Is A Must-See Weekend Binge If You Missed It A Year Ago
+
+Star Wars, Disney+
+
+Fri, 27 Feb 2026 20:45:19 GMT
+
+https://screenrant.com/disney-sci-fi-series-star-wars-skeleton-crew-weekend-binge/
+
+Disney dropped an underrated sci-fi series a little over a year ago, and it makes a perfect weekend binge for those who didn't catch it upon release.
+---------
+
+# The Americans: Mastering Slow-Burn Tension In A 6-Season Spy Thriller
+
+Classic TV, The Americans
+
+Fri, 27 Feb 2026 20:30:18 GMT
+
+https://screenrant.com/the-americans-slow-burn-show-cold-war-thriller/
+
+Slow-burn storytelling can be tricky on television, but the 6-season spy thriller, The Americans, pulls it off, resulting in a masterpiece of a show.
+---------
+
+# Crimson Desert Playtime Confirmed, May Not Be As Long As You Expected
+
+Gaming, Crimson Desert, Triple-A Games, PC
+
+Fri, 27 Feb 2026 20:20:35 GMT
+
+https://screenrant.com/crimson-desert-playtime-officially-confirmed/
+
+Pearl Abyss's Crimson Desert has long been notable for its breadth, but the open-world game's playtime may not be as long as some anticipated.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (Feb 27-Mar 1)
+
+Movies, Netflix, Recommendation
+
+Fri, 27 Feb 2026 20:20:18 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-february-28/
+
+These are the best movies on Netflix to watch this weekend, and they include an action franchise, a survival thriller, and a superhero reboot.
+---------
+
+# The Gray House Soundtrack Guide: Willie Nelson & Every Other Artist Featured In The Civil War Drama
+
+Streaming TV, The Gray House
+
+Fri, 27 Feb 2026 20:15:19 GMT
+
+https://screenrant.com/the-gray-house-soundtrack-song-guide/
+
+Kevin Costner’s civil war drama, The Gray House, is filled with high octane as well as emotional music which complements every scene in the series.
+---------
+
+# Resident Evil Requiem Smashes Franchise Record Hours After Launch
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Fri, 27 Feb 2026 20:07:33 GMT
+
+https://screenrant.com/resident-evil-requiem-player-count-record-steam/
+
+Resident Evil Requiem is blazing a new future for the franchise, and it's already destroyed one previous record set by Resident Evil 4.
+---------
+
+# Ridley Scott & Demi Moore's Boundary-Breaking Action Masterpiece Invades New Streaming Home
+
+Movies, G.I. Jane
+
+Fri, 27 Feb 2026 20:03:41 GMT
+
+https://screenrant.com/gi-jane-ridley-scott-streaming-peacock-march-2026/
+
+Director Ridley Scott and Demi Moore's boundary-breaking, genre-defying action masterpiece is set to debut on a new streaming platform.
+---------
+
+# Pokémon Winds & Waves To Be Unplayable For Millions At Launch
+
+Gaming, Pokémon Winds and Waves
+
+Fri, 27 Feb 2026 20:00:25 GMT
+
+https://screenrant.com/pokemon-winds-waves-unplayable-launch-day/
+
+The 30th anniversary celebrations finally saw confirmation of Pokémon Winds & Waves, but there's one big downside to the announcement.
+---------
+
+# New Monster Teased for Monarch: Legacy of Monsters Season 2
+
+TV, Monarch: Legacy of Monsters, Monarch: Legacy of Monsters - Season 2
+
+Fri, 27 Feb 2026 20:00:25 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-titan-x-kong-godzilla-comparison/
+
+Monarch: Legacy of Monsters season 2 shifts focus to the monsters, teasing a new Titan that could surpass Godzilla and Kong as the new King or Queen. Producers discuss the risks and rewards of introducing a new character to the Monsterverse.
+---------
+
+# The Return of the King's Extended Edition Proved the Problem With Gondor
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Fri, 27 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-powerful-gandalf-quote-change-gondor-lore/
+
+The extended edition of The Lord of the Rings: The Return of the King recontextualized a quote from the novel to critique a the kingdom of Gondor.
+---------
+
+# Kevin Costner’s The Gray House Debuts to Underwhelming Rotten Tomatoes Score
+
+TV, The Gray House
+
+Fri, 27 Feb 2026 20:28:01 GMT
+
+https://www.cbr.com/kevin-costner-the-gray-house-rotten-tomatoes-score/
+
+Kevin Costner is not moving away from the Western genre anytime soon.
+---------
+
+# Sony Developing Live-Action Astro Boy Movie with Ghostbusters Directors
+
+Movies, Astro Boy, superheroes, Sci-Fi
+
+Fri, 27 Feb 2026 20:20:13 GMT
+
+https://www.cbr.com/astro-boy-movie-jason-reitman-gil-kenan-sony/
+
+Sony Pictures is reportedly working with Ghostbusters directors Jason Reitman and Gil Kenan to develop a live-action Astro Boy movie.
+---------
+
+# Every Dexter Spinoff, Explained — And How to Watch Them in Chronological Order
+
+TV, Dexter, Dexter: New Blood, Dexter: Resurrection, Dexter: Original Sin
+
+Fri, 27 Feb 2026 20:08:49 GMT
+
+https://www.cbr.com/every-dexter-spinoff-how-to-watch-in-order/
+
+The Dexter series covers more than one show, and because of that, there's a certain order to watch to fully enjoy the franchise.
+---------
+
+# Netflix's Prison Drama That Hasn't Been Matched Finds Success on PVOD 7 Years After the Last Episode
+
+TV, Orange is The New Black
+
+Fri, 27 Feb 2026 20:00:15 GMT
+
+https://www.cbr.com/orange-is-the-new-black-drama-pvod-success-february-2026/
+
+This Netflix original is finding success far beyond its original streaming home
+---------
+
+# 10 Most Original Vampire Movies of All Time, Ranked
+
+Movie, Horror, What We Do in the Shadows, Near Dark, Shadow of the Vampire
+
+Fri, 27 Feb 2026 20:29:13 GMT
+
+https://collider.com/most-original-vampire-movies-all-time-ranked/
+
+From Lifeforce to Shadow of the Vampire, these movies weren't afraid to step outside the boundaries of vampire cinema to deliver truly daring stories.
+---------
+
+# 10 Modern Sci-Fi Shows That Are Almost As Good as 'Star Trek'
+
+TV, Star Trek, Sci-Fi, The Expanse, Severance
+
+Fri, 27 Feb 2026 20:24:14 GMT
+
+https://collider.com/sci-fi-tv-shows-like-star-trek-modern/
+
+Discover modern sci-fi shows that rival the iconic Star Trek franchise in quality and execution, including The Mandalorian, Fallout, and The Expanse.
+---------
+
+# 11 Years Later, Ridley Scott's Best Sci-Fi Movie Since 'Blade Runner' Is a Massive Success
+
+Movie News, The Martian, Project Hail Mary, Ridley Scott, Paramount Plus
+
+Fri, 27 Feb 2026 20:22:53 GMT
+
+https://collider.com/ridley-scott-sci-fi-epic-the-martian-project-hail-mary-predecessor-global-streaming-success-paramount-plus-february-2026/
+
+Mere days before the release of Project Hail Mary, Ridley Scott's deep space sci-fi epic has exploded on streaming charts.
+---------
+
+# Before ‘The Wrecking Crew,’ Jason Momoa and Dave Bautista Were Brothers at War in This Hit Apple TV Sci-Fi Series
+
+TV Features, See, Apple TV, Sci-Fi, Jason Momoa
+
+Fri, 27 Feb 2026 20:22:13 GMT
+
+https://collider.com/see-apple-tv-jason-momoa-dave-bautista-brothers-wrecking-crew/
+
+This epic, 3-part Jason Momoa sci-fi series is grossly overlooked and highly underrated.
+---------
+
+# 25 Years Later, Daniel Craig's Forgotten Video Game Adaptation Reloads Onto Streaming
+
+Movie News, Lara Croft: Tomb Raider, Daniel Craig, Tomb Raider, Paramount
+
+Fri, 27 Feb 2026 20:10:15 GMT
+
+https://collider.com/daniel-craig-forgotten-video-game-movie-tomb-raider-streaming-success-25-years-later-february-2026/
+
+25 years later, Daniel Craig's forgotten pre-James Bond video game adaptation, Tomb Raider, is finding a whole new audience.
+---------
+
+# After 21 Action Movies, Liam Neeson Is Finally Teaming Up With 'Bosch's Titus Welliver
+
+Movie News, Liam Neeson, Titus Welliver, Zachary Levi, Action
+
+Fri, 27 Feb 2026 20:09:00 GMT
+
+https://collider.com/liam-neeson-bosch-star-titus-welliver-war-thriller-hotel-tehran-release-update/
+
+Liam Neeson and Bosch's Titus Welliver are teaming up for the new war thriller, Hotel Tehran, which now has a distributor.
+---------
+
+# 10 Dumbest DC Comics Movies, Ranked
+
+Movie, Batman & Robin, Suicide Squad, Wonder Woman 1984, Superman III
+
+Fri, 27 Feb 2026 20:03:12 GMT
+
+https://collider.com/worst-dc-comics-movies-dumb-ranked/
+
+Green Lantern, Suicide Squad, and Wonder Woman 1984 are all among the worst DC comics superhero movies that are just plain dumb.
+---------
+
+# Peacock's Raunchiest Comedy Returns With a Supernatural Twist in New Sneak Peek [Exclusive]
+
+Exclusives, Ted, Mark Wahlberg, Seth MacFarlane, Collider Exclusive Preview
+
+Fri, 27 Feb 2026 20:01:12 GMT
+
+https://collider.com/ted-season-2-sneak-peek-ted-ouija-board-ghost-peacock/
+
+It’s a birthday bonanza in a new sneak peek of Ted, during which the sentient stuffed animal admits to using a Ouija board. Watch it here!
+---------
+
+# 10 Animated Movies That Completely Changed Cinema Forever
+
+Movie, Animation, Akira, Snow White and the Seven Dwarfs, The Little Mermaid
+
+Fri, 27 Feb 2026 20:01:12 GMT
+
+https://collider.com/animated-movies-completely-changed-cinema/
+
+Throughout film history, animation has greatly evolved, with movies like Akira and Toy Story having the biggest impact on the ever-changing medium.
+---------
+
+# The Best Western Movies to Watch for Free on YouTube
+
+Movie Lists, YouTube, Western
+
+Fri, 27 Feb 2026 20:00:24 GMT
+
+https://movieweb.com/best-western-movies-watch-on-youtube/
+
+YouTube offers a great selection of free movies, and for Western fans, there are plenty of classic titles to stream.
+---------
+
+# 'Masters of the Universe' Creator Roger Sweet's Wife Starts GoFundMe for Healthcare Costs
+
+Exclusives, Masters of the Universe
+
+Fri, 27 Feb 2026 19:58:47 GMT
+
+https://movieweb.com/masters-of-the-universe-creator-dementia/
+
+The wife of Roger Sweet, known for his work on 'Masters of the Universe,' started a GoFundMe page and asked for support in his battle with dementia
+---------
+
 # Prime Video's Hard-Hitting Series With A Near-Perfect RT Score Is Defining Action Thrillers Right Now
 
 Streaming TV, Prime Video, Explainer
