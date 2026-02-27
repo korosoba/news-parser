@@ -1,3 +1,278 @@
+# Prime Video's Spider-Noir Season 2 & Future Return Possibilities Teased By Creators
+
+TV, Spider-Noir
+
+Fri, 27 Feb 2026 22:38:31 GMT
+
+https://screenrant.com/spider-noir-season-2-future-christopher-miller-phil-lord-tease/
+
+Phil Lord and Christopher Miller hint at the possibility of more seasons for Prime Video's Spider-Noir series, starring Nicolas Cage.
+---------
+
+# How Monarch: Legacy Of Monsters Season 2's Time Jump Has Changed Its Monsterverse Characters
+
+TV, Monarch: Legacy of Monsters, Monarch: Legacy of Monsters - Season 2, Monsterverse
+
+Fri, 27 Feb 2026 22:30:19 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-time-jump-character-changes/
+
+Anna Sawai, Kiersey Clemons, Ren Watabe, Mari Yamamoto and Joe Tippett talk Monarch: Legacy of Monsters season 2 and its time jump impact.
+---------
+
+# 2026's Upcoming Prequel Will Completely Change How You Watch This $3.3 Billion Franchise
+
+New Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Fri, 27 Feb 2026 22:30:19 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-change-franchise/
+
+A hugely popular franchise returns in 2026 with a prequel, and it will completely change how you watch the original movies from now on.
+---------
+
+# 25 Years After Star Trek: Voyager Ended, The Doctor Lives Up To His Name
+
+Star Trek, Star Trek: Voyager
+
+Fri, 27 Feb 2026 22:30:19 GMT
+
+https://screenrant.com/star-trek-voyager-doctor-starfleet-academy-lives-up-to-name/
+
+Star Trek: Voyager may have ended 25 years ago, but in Starfleet Academy, Robert Picardo's EMH Doctor is finally living up to his name.
+---------
+
+# Top 3 Must-Watch Netflix Shows This Weekend: February 27–March 1, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 27 Feb 2026 22:22:19 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-weekend-feb-27-2026/
+
+The best new shows on Netflix to binge-watch this weekend include Bridgerton season 4, part 2, Formula 1: Drive to Survive season 8, and Crap Happens.
+---------
+
+# Ryan Hurst's Live-Action Kratos: Comparing TV Adaptation To Video Game Character
+
+TV, God of War
+
+Fri, 27 Feb 2026 22:15:19 GMT
+
+https://screenrant.com/god-of-war-ryan-hurst-kratos-compared-to-christopher-judge/
+
+The first image of Kratos from Prime Video's upcoming God of War TV show allows us to compare Ryan Hurst to the original video game character.
+---------
+
+# Every Horror Movie Scary Movie 6's Trailer Parodies
+
+New Movies, Scary Movie 6
+
+Fri, 27 Feb 2026 22:11:43 GMT
+
+https://screenrant.com/scary-movie-6-trailer-horror-movie-parodies/
+
+Scary Movie 6's trailer includes plenty of references to modern horror movies. Here are all the parodies and spoofs spotted in the footage.
+---------
+
+# Paramount And Warner Bros. Deal Confirmed With Target Closing Date
+
+Movies, Warner Bros., Paramount
+
+Fri, 27 Feb 2026 22:10:23 GMT
+
+https://screenrant.com/paramount-warner-bros-deal-confirmed-closing-date/
+
+Warner Bros. Discover and Paramount make their deal official as the two industry giants reveal more details regarding their agreement.
+---------
+
+# Marvel's Forgotten 2-Part X-Men Series Deserved One More Season
+
+Classic TV, The Gifted, X-Men
+
+Fri, 27 Feb 2026 22:00:18 GMT
+
+https://screenrant.com/marvel-x-men-the-gifted-deserved-more-seasons/
+
+This forgotten X-Men series was canceled in 2019, but it deserved to have another season due to two major mysteries that remain unanswered.
+---------
+
+# Netflix Has A Perfect Ethan Hawke Double Feature To Watch Before The Academy Awards
+
+Movies, Blue Moon, The Black Phone, Recommendation
+
+Fri, 27 Feb 2026 22:00:18 GMT
+
+https://screenrant.com/netflix-movies-blue-moon-black-phone-ethan-hawke-double-feature-oscars/
+
+Ethan Hawke delivers fantastic performances in two films streaming on Netflix, and one of these films earned him a 2026 Academy Award nomination.
+---------
+
+# Batwheels Could be the Inspiration For the DCU's Batman
+
+Movies, DCU, The Batman, Batwheels
+
+Fri, 27 Feb 2026 22:45:12 GMT
+
+https://www.cbr.com/dcu-batman-reboot-take-inspiration-from-batwheels/
+
+Batwheels is a successful Batman show and one that could inspire Batman's future in terms of costume.
+---------
+
+# Star Trek 2009 Is the Best Star Wars Movie J.J. Abrams Made
+
+Movies, Star Trek, Star Wars
+
+Fri, 27 Feb 2026 22:30:12 GMT
+
+https://www.cbr.com/jj-abrams-best-star-wars-movie-star-trek/
+
+J.J. Abrams was one of the architects of the Star Wars Sequel Trilogy, but he made his best Star Wars movie long before The Force Awakens.
+---------
+
+# Zack Snyder’s Planned Superman Braniac Movie & Wants To Adapt TDKR
+
+Movies, Batman v Superman: Dawn of Justice, superheroes, DC Extended Universe
+
+Fri, 27 Feb 2026 22:15:41 GMT
+
+https://www.cbr.com/zack-snyder-superman-braniac-batman-dark-knight-returns/
+
+Director Zack Snyder reveals his unrealized plans for a Superman movie featuring Brainiac, and expresses his desire to adapt The Dark Knight Returns.
+---------
+
+# JJK Modulo Needs to Update Fans on Megumi's Status
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo, Shonen
+
+Fri, 27 Feb 2026 22:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-modulo-megumi-fushiguro-fate/
+
+JJK Modulo has offered insight into the future of the series' favorite characters, but one important question has yet to be answered.
+---------
+
+# 'A Knight of the Seven Kingdoms' Biggest Change From George R.R. Martin’s Book Is Also a Frustrating Betrayal
+
+TV Features, A Knight Of The Seven Kingdoms, HBO Max, Dexter Sol Ansell, Sam Spruell
+
+Fri, 27 Feb 2026 22:38:12 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-finale-book-change-george-rr-martin/
+
+A Knight of the Seven Kingdoms' significant deviation from George R.R. Martin's original book sets up potential conflicts for Season 2.
+---------
+
+# HBO's Near-Perfect 6-Part Sci-Fi Political Thriller Hits Harder 7 Years Later
+
+TV Features, HBO, Years and Years, Emma Thompson, Sci-Fi
+
+Fri, 27 Feb 2026 22:33:12 GMT
+
+https://collider.com/years-and-years-hbo-sci-fi-political-thriller-emma-thompson/
+
+The HBO miniseries Years and Years, starring Emma Thompson and Rory Kinnear, is a sci-fi series about political extremism that hits hard in 2026.
+---------
+
+# 'Scary Movie 6' Skewers 'Scream' and 'Sinners' in Hilarious "Leaked" Trailer
+
+Movie News, Scary Movie 6, Marlon Wayans, Regina Hall, Anna Faris
+
+Fri, 27 Feb 2026 22:26:55 GMT
+
+https://collider.com/scary-movie-6-leaked-trailer-marlon-wayans-scream-sinners-parody/
+
+Marlon Wayans has jokingly "leaked" the first official trailer for Scary Movie 6, featuring parodies for Scream and Sinners.
+---------
+
+# 3 Best Movies To Watch on Prime Video This Weekend (Feb 28-Mar 1)
+
+Movie, Prime Video, Blink Twice, The Bluff, My Mother's Wedding
+
+Fri, 27 Feb 2026 22:18:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-february-28/
+
+Blink Twice, The Bluff, and My Mother's Wedding make up our list of the best Prime Video movies to watch the weekend of February 27, 2026.
+---------
+
+# Warner Bros. Accepts Paramount's Merger Offer in Historic $110 Billion Deal
+
+Movie News, Paramount, Netflix, Warner Bros.
+
+Fri, 27 Feb 2026 22:18:11 GMT
+
+https://collider.com/paramount-buying-warner-bros-12-figure-deal-110-billion-after-netflix-drops-bid/
+
+After Netflix's shock decision not to pursue the merger, Paramount will officially pay $110 billion for Warner Bros.
+---------
+
+# ‘A Knight of the Seven Kingdoms’ Just Made a Major Change To ‘Game of Thrones’ Longest Tradition
+
+TV Features, A Knight Of The Seven Kingdoms, Game Of Thrones, HBO, Ira Parker
+
+Fri, 27 Feb 2026 22:13:12 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-finale-country-song-game-of-thrones-music/
+
+A Knight of the Seven Kingdoms deviates from Game of Thrones tradition with an unexpected soundtrack choice in the Season 1 finale.
+---------
+
+# Nicolas Cage's ‘Spider-Noir’ Leaves the Door Open for Season 2 and Beyond [Exclusive]
+
+Exclusives, Project Hail Mary, Christopher Miller, Phil Lord, Spider-Noir
+
+Fri, 27 Feb 2026 22:03:32 GMT
+
+https://collider.com/nicolas-cage-spider-noir-season-2-future-plans-christopher-miller-phil-lord-prime-video/
+
+Christopher Miller and Phil Lord shared some insight on Spider-Noir, ideas Nicolas Cage came up with for the series, and its future beyond Season 1.
+---------
+
+# ‘FBI’ Spin-Off ‘CIA’ Sends Tom Ellis on a High-Stakes Smuggler Chase in Episode 2 Sneak Peek [Exclusive]
+
+Exclusives, CIA, Tom Ellis, CBS, FBI
+
+Fri, 27 Feb 2026 22:00:37 GMT
+
+https://collider.com/cia-episode-2-sneak-peek-tom-ellis-nick-gehlfuss/
+
+A new sneak peek at CIA Episode 2 sets Tom Ellis and Nick Gehlfuss after a smuggler to find who he's working for.
+---------
+
+# ‘Is God Is’ Unleashes a Nail-Biting First Look at Brutal Revenge Thriller [Exclusive]
+
+Exclusives, Is God Is, Vivica A. Fox, Sterling K. Brown, Collider Exclusive Preview
+
+Fri, 27 Feb 2026 22:00:12 GMT
+
+https://collider.com/is-god-is-image-kara-young-mallori-johnson-revenge-thriller/
+
+Kara Young and Mallori Johnson are hot on the trailer of Sterling K. Brown in a new Is God Is image. See it here.
+---------
+
+# Action Masterpiece 'John Wick: Chapter 4' Streams on Peacock in March
+
+Movie News, John Wick: Chapter 4, Peacock, Coming/Leaving Streaming, Action
+
+Fri, 27 Feb 2026 22:30:17 GMT
+
+https://movieweb.com/john-wick-4-streaming-peacock-march-2026/
+
+Keanu Reeves' modern classic action sequel 'John Wick: Chapter 4' will stream on Peacock in March 2026.
+---------
+
+# 'Monarch's Time Travel Makes Sense, Thanks to Einstein
+
+Features, Monarch: Legacy of Monsters, Monsterverse, Godzilla, King Kong
+
+Fri, 27 Feb 2026 22:00:17 GMT
+
+https://movieweb.com/monarch-time-travel-makes-sense/
+
+'Monarch: Legacy of Monsters' features characters jumping forward in time, not aging while others do, but how is that possible?
+---------
+
 # Brandon Sanderson and Apple TV's Mistborn Gets Update
 
 Movies, Brandon Sanderson, Mistborn
