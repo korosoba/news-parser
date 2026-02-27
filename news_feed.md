@@ -1,3 +1,355 @@
+# In The Blink Of An Eye Clip Finds Rashida Jones & Daveed Diggs At Odds In Love
+
+Exclusive, In the Blink of an Eye, Rashida Jones, Daveed Diggs
+
+Fri, 27 Feb 2026 16:00:19 GMT
+
+https://screenrant.com/video/in-the-blink-of-an-eye-movie-rashida-jones-daveed-diggs-clip/
+
+Exclusive: ScreenRant presents a clip from In the Blink of an Eye, a sci-fi drama starring Rashida Jones, Kate McKinnon, and Daveed Diggs.
+---------
+
+# This Is The Greatest Stephen King Movie Of All Time - Prove Edgar Wright Wrong
+
+Movies, Challenge My GOAT, Carrie, Edgar Wright, The Running Man
+
+Fri, 27 Feb 2026 16:00:19 GMT
+
+https://screenrant.com/greatest-stephen-king-movie-challenge-my-goat-edgar-wright/
+
+The Running Man writer-director Edgar Wright picks the greatest Stephen King movie of all time.
+---------
+
+# Kayce’s Yellowstone Spinoff Crossover Chances With Beth & Rip’s Dutton Ranch Addressed By Marshals Showrunner
+
+TV, Marshals, The Dutton Ranch, Yellowstone
+
+Fri, 27 Feb 2026 15:56:23 GMT
+
+https://screenrant.com/marshals-dutton-ranch-yellowstone-crossover-chances-spencer-hudnut-response/
+
+Marshals showrunner Spencer Hudnut reveals the chances of Kayce's Yellowstone spinoff crossing over with Beth and Rip's The Dutton Ranch show.
+---------
+
+# Chris Hemsworth Teases More Thor After Avengers: Doomsday - MCU Greek Gods Storyline
+
+Movies, Thor: Love and Thunder, Marvel Cinematic Universe, Explainer
+
+Fri, 27 Feb 2026 15:56:19 GMT
+
+https://screenrant.com/thor-greek-gods-story-after-avengers-doomsday/
+
+Chris Hemsworth suggests there are plans for Thor after Avengers: Doomsday, and Thor: Love and Thunder set up the perfect story for him.
+---------
+
+# Resident Evil Requiem: All Safe Locations And Combinations
+
+Gaming, Resident Evil, Capcom, Resident Evil 9
+
+Fri, 27 Feb 2026 15:55:06 GMT
+
+https://screenrant.com/resident-evil-requiem-all-safe-locations-and-combinations/
+
+If you've come across safes while exploring in Resident Evil Requiem, we can save you some time by offering up the combination codes here.
+---------
+
+# Netflix Partners With Gintama Creator For New Anime
+
+Anime, Netflix, Gintama
+
+Fri, 27 Feb 2026 15:51:59 GMT
+
+https://screenrant.com/netflix-new-anime-2026-dandelion-gintama-creator/
+
+Netflix is expanding its anime offerings once again, with a new series from the creator of a beloved Shonen Jump franchise.
+---------
+
+# Netflix’s 4-Part Prison Thriller Is The Perfect One-Night Weekend Watch
+
+Streaming TV, Netflix, Inside Man
+
+Fri, 27 Feb 2026 15:47:19 GMT
+
+https://screenrant.com/netflix-inside-man-series-must-watch/
+
+Netflix's 4-part prison crime thriller series Inside Man is a perfect one-night weekend binge right now, starring David Tennant and Stanley Tucci.
+---------
+
+# Zack Snyder Reveals Man Of Steel 2 Plans, Including Key Superman Villain Heading To DCU
+
+Movies, Man of Steel 2, Man of Tomorrow, Superman, DC Universe
+
+Fri, 27 Feb 2026 15:47:08 GMT
+
+https://screenrant.com/man-of-steel-2-superman-vs-brainiac-zack-snyder-response/
+
+While his franchise is over, Zack Snyder confirms what he had in mind for his Man of Steel 2 movie, as those plans are heading into James Gunn's DCU.
+---------
+
+# How Bridgerton Season 4's Post-Credits Scene Teases Season 5's Next Lead Addressed By Showrunner
+
+TV, Bridgerton
+
+Fri, 27 Feb 2026 15:46:23 GMT
+
+https://screenrant.com/bridgerton-season-4-post-credits-scene-season-5-lead-clues-explained-jess-brownell/
+
+Bridgerton season 4's surprising post-credits scene includes a few clues as to who the show's next romantic lead will be, according to the showrunner.
+---------
+
+# One Of Spider-Man's Most Controversial Villains Could Be Crucial To Prime Video's Live-Action Show
+
+Streaming TV, Spider-Noir
+
+Fri, 27 Feb 2026 15:45:19 GMT
+
+https://screenrant.com/spider-noir-show-jackal-clone-ben-reilly-theory/
+
+A controversial - but extremely important - villain from Spider-Man comics could have a secret role in Prime Video's Spider-Noir TV series.
+---------
+
+# Apple TV's Godzilla Replacement Becomes a Global Success After Stellar Reviews
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Fri, 27 Feb 2026 16:00:11 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-apple-tv-global-success-stellar-reviews/
+
+As the new season arrives with stellar reviews, Apple TV's Monsterverse show featuring Godzilla re-emerges as a global streaming hit.
+---------
+
+# 5 JRPGS With the Best Plot Twists
+
+Games, JRPG, Final Fantasy
+
+Fri, 27 Feb 2026 16:00:12 GMT
+
+https://www.cbr.com/greatest-jrpgs-best-plot-twists-list/
+
+Some JRPGs, like FF7, are remembered because of their jaw-dropping plot twists.
+---------
+
+# Mega Garchomp Z Officially Coming to Pokémon Legends: Z-A
+
+Games, Pokemon, Nintendo
+
+Fri, 27 Feb 2026 15:57:12 GMT
+
+https://www.cbr.com/mega-garchomp-z-officially-coming-to-pokmon-legends-z-a/
+
+Pokémon Legends: Z-A's Mega Dimension DLC has added Mega Garchomp Z, a new Mega Evolution for one of the most fearsome Pokémon in the series.
+---------
+
+# Scream 7 Makes Franchise Record for Best Previews
+
+Movies, Scream 7, Horror, Scream
+
+Fri, 27 Feb 2026 15:57:09 GMT
+
+https://www.cbr.com/scream-7-best-franchise-previews-box-office/
+
+The new entry in the long-running slasher franchise has been shrouded in controversy, but it turns out it might still be a hit.
+---------
+
+# Why House of the Dragon Recast Rhaenyra Targaryen and Alicent Hightower
+
+TV, House of the Dragon, Game Of Thrones, Fantasy
+
+Fri, 27 Feb 2026 15:34:26 GMT
+
+https://www.cbr.com/house-of-the-dragon-recast-rhaenyra-targaryen-alicent-hightower-explained/
+
+The original Rhaenyra and Alicent actors, Emily Carey and Milly Alcock, were replaced in House of the Dragon by Olivia Cooke and Emma D’Arcy.
+---------
+
+# God of War Series Begins Production With Kratos and Atreus First Look
+
+TV, God of War, Prime Video
+
+Fri, 27 Feb 2026 15:29:18 GMT
+
+https://www.cbr.com/god-of-war-kratos-atreus-first-look-prime-video/
+
+Production has started on Prime Video's live-action God of War series, with the first look revealed at Kratos (Ryan Hurst) and Atreus (Callum Vinson).
+---------
+
+# Pokémon Winds and Waves Officially Coming to Switch 2 in 2027
+
+Games, Pokemon, Nintendo
+
+Fri, 27 Feb 2026 15:20:12 GMT
+
+https://www.cbr.com/pokemon-gen-10-wind-waves-officially-nintendo-switch-2-2027/
+
+Pokémon Winds & Pokémon Waves, the upcoming Gen 10 titles, have been announced for Nintendo Switch 2, with both launching at the same time in 2027.
+---------
+
+# Taylor Sheridan's The Madison Is Officially the End of an Era
+
+TV, The Madison, Yellowstone
+
+Fri, 27 Feb 2026 15:00:13 GMT
+
+https://www.cbr.com/taylor-sheridan-the-madison-end-of-era/
+
+The Madison shows a new side to Taylor Sheridan's Yellowstone franchise, and it sets up a change that's a long time coming for that world.
+---------
+
+# 10 Spine-Chilling Horror Anthology Comic Books That Promise Endless Scares
+
+Comics, Horror
+
+Fri, 27 Feb 2026 15:00:13 GMT
+
+https://www.cbr.com/best-scary-horror-anthology-comic-books/
+
+When just one spooky story is not enough...
+---------
+
+# TV's Best Sci-Fi Horror Series Returns With a Twisted First Look at Season 4 [Exclusive]
+
+Exclusives, From, Harold Perrineau, MGM, Collider Exclusive Preview
+
+Fri, 27 Feb 2026 16:00:13 GMT
+
+https://collider.com/from-season-4-image-first-look-best-horror-series-on-tv-amazon-mgm-plus/
+
+A new image from From Season 4 welcomes viewers back to the terrifying town full of mystery and teases more questions to be answered on MGM+.
+---------
+
+# HBO's 10-Part WWII Masterpiece Is Still the Perfect Weekend Binge 25 Years Later
+
+TV News, Band of Brothers, HBO, Tom Hanks, Donnie Wahlberg
+
+Fri, 27 Feb 2026 15:48:44 GMT
+
+https://collider.com/band-of-brothers-ww2-masterpiece-streaming-success-25-years-later-apple-tv/
+
+25 years later, HBO's 10-part WW2 masterpiece, Band of Brothers, is the perfect weekend binge watch on a surprising platform.
+---------
+
+# 4-Part Cult-Favorite Pirate Series Finds a Massive New Audience
+
+TV News, Black Sails, The Bluff, Pirates of the Caribbean, STARZ
+
+Fri, 27 Feb 2026 15:44:09 GMT
+
+https://collider.com/black-sails-r-rated-pirate-series-starz-streaming-sucess-february-2026/
+
+Starz's 4-part R-rated pirate series Black Sails is hitting the high seas nearly 10 years later, following Priyanka Chopra Jonas' new swashbuckler.
+---------
+
+# David Bowie’s Unexpected Love Affair With a Rock Guitarist’s Mother Rocked the 1970s Music Scene
+
+Music Features, David Bowie, Slash, Ziggy Stardust and the Spiders from Mars, The Man Who Fell to Earth, Rock, Music
+
+Fri, 27 Feb 2026 15:21:06 GMT
+
+https://collider.com/david-bowie-dated-famous-guitarists-slash-mother-1970s/
+
+The surprising love story between David Bowie and Slash's mother, Ola Hudson, created an unusual bond between two rock icons in the 1970s music scene.
+---------
+
+# Prime Video's ‘God of War’ Live-Action Series Officially Kicks Off Production With First Look at Kratos and Atreus
+
+TV News, God of War, Prime Video, Ryan Hurst, Ed Skrein
+
+Fri, 27 Feb 2026 15:12:58 GMT
+
+https://collider.com/god-of-war-image-kratos-atreus-prime-video-series-ryan-hurst-callum-vinson-set-filming/
+
+Get a first look at Prime Video's God of War live-action series adaptation with Ryan Hurst as Kratos and Callum Vinson as Atreus as filming starts.
+---------
+
+# ‘Bridgerton’ Star Teases a “Slightly Bolder” Direction for Violet in Season 5 After That Shocking Finale Twist
+
+Interviews, Bridgerton, Netflix, Shonda Rhimes, Romance
+
+Fri, 27 Feb 2026 15:00:13 GMT
+
+https://collider.com/bridgerton-season-4-part-2-finale-breakup-interview-ruth-gemmell/
+
+Ruth Gemmell breaks down Violet’s romance shock in Netflix’s Bridgerton, teases a bolder Season 5, and explains Francesca’s grief.
+---------
+
+# CBS' Most Underrated 'NCIS' Spin-Off Gets Spicy in New Sneak Peek [Exclusive]
+
+Exclusives, NCIS: Sydney, CBS, Collider Exclusive Preview, Procedural
+
+Fri, 27 Feb 2026 15:00:13 GMT
+
+https://collider.com/ncis-sydney-season-3-episode-9-sneak-peek-antarctica-murder-mystery-cbs/
+
+A new sneak peek at NCIS: Sydney Season 3's midseason premiere sends the task force to Antarctica for a chilling new murder investigation.
+---------
+
+# 'Tell Me Lies' Surprise Cancellation Has Left Me With 9 Burning Questions
+
+TV, Tell Me Lies, Grace Van Patten, Hulu
+
+Fri, 27 Feb 2026 14:31:12 GMT
+
+https://collider.com/tell-me-lies-series-finale-burning-questions/
+
+Tell Me Lies announced its surprise ending ahead of the Season 3 finale, and in its wake, I'm left with these burning, unresolved questions.
+---------
+
+# Why Sci-Fi's Greatest Time Machine Is Still Unbeatable To This Day
+
+Movie Features, Back to the Future, Bill and Ted's Excellent Adventure, Hot Tub Time Machine, The Time Machine
+
+Fri, 27 Feb 2026 14:26:13 GMT
+
+https://collider.com/back-to-the-future-delorean-greatest-time-machine-sci-fi/
+
+There's been many a time machine in science fiction stories, but Back to the Future's DeLorean beats them all.
+---------
+
+# Netflix's 'Reacher' Replacement Makes a Bold Choice That Completely Rewrites the Show for the Better
+
+TV Features, The Night Agent, Netflix, Thriller, Gabriel Basso
+
+Fri, 27 Feb 2026 14:19:12 GMT
+
+https://collider.com/the-night-agent-season-3-rose-exit-rewrites-show-netflix/
+
+The Night Agent Season 3 takes a risk by removing the character of Rose, but the bold choice pays off for the show.
+---------
+
+# 'Monarch' Season 2 Titan X Theory May Be True in Premiere
+
+Features, Monarch: Legacy of Monsters, Godzilla, Monsterverse, King Kong
+
+Fri, 27 Feb 2026 16:00:17 GMT
+
+https://movieweb.com/monarch-season-2-titan-x-theory-true/
+
+Since 'Monarch' teased Titan X for the second season, theories have abounded, with the wildest one potentially proving true in the premiere.
+---------
+
+# 'God of War' First Look Reveals Ryan Hurst as Kratos and Callum Vinson as Atreus
+
+TV News, God of War
+
+Fri, 27 Feb 2026 15:22:36 GMT
+
+https://movieweb.com/god-of-war-first-look-kratos-atreus/
+
+The first look at Prime Video's 'God of War' has arrived thanks to a new image straight from the production of the video game adaptation.
+---------
+
+# Uma Thurman Starred in This Intense Remake 'The Slap,' and Nobody Remembers
+
+TV News, Uma Thurman, The Slap, Holds Up, Streaming Recommendations
+
+Fri, 27 Feb 2026 15:00:18 GMT
+
+https://movieweb.com/the-slap-remake-uma-thurman/
+
+The NBC miniseries has one of the best TV ensemble casts of the 2010s.
+---------
+
 # Netflix's New Race-Against-Time Disaster Thriller Is An Instant No. 1 Global Streaming Sensation
 
 Movies, Netflix
