@@ -1,3 +1,245 @@
+# Brandon Sanderson and Apple TV's Mistborn Gets Update
+
+Movies, Brandon Sanderson, Mistborn
+
+Fri, 27 Feb 2026 21:52:01 GMT
+
+https://screenrant.com/mistborn-brandon-sanderson-movie-script-update/
+
+Author Brandon Sanderson gave an exciting update about the progress of the script for Apple TV's upcoming fantasy film adaptation and more.
+---------
+
+# This Week Is Only Getting Better For Yellowstone Fans
+
+Streaming TV, Yellowstone, The Madison, The Gray House
+
+Fri, 27 Feb 2026 21:45:19 GMT
+
+https://screenrant.com/yellowstone-spinoff-marshals-kevin-costner-the-gray-house-release-week/
+
+Taylor Sheridan is set to have his biggest year yet with 2026 hosting many major releases, but things are already heating up this week.
+---------
+
+# Scream 7 Spoiler Guide: Biggest Deaths, Cameos And Reveals
+
+Movies, Scream 7, Explainer
+
+Fri, 27 Feb 2026 21:45:19 GMT
+
+https://screenrant.com/scream-7-movie-spoilers-deaths-cameos-reveals/
+
+Scream 7 brought back Neve Campbell and her family as well as a new Ghostface killer who wants to end Sidney Prescott's story once and for all.
+---------
+
+# Power Book III: Raising Kanan Final Season Trailer Reveals Release Date
+
+TV, Power Book III: Raising Kanan
+
+Fri, 27 Feb 2026 21:22:07 GMT
+
+https://screenrant.com/power-book-iii-raising-kanan-final-trailer/
+
+The trailer for Power Book III: Raising Kanan reveals the start date for season 5, which will be the final bow for the long-running Starz drama.
+---------
+
+# Margarita Burn? The Pitt Just Introduced One Of The Weirdest Medical Cases Yet
+
+Streaming TV, The Pitt
+
+Fri, 27 Feb 2026 21:15:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-8-margarita-burn-phytophotodermatitis-explained/
+
+The Pitt, season 2, episode 8, has introduced one of the most unusual medical cases for general audiences, but how realistic is this supposed issue?
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (Feb 27-Mar 1)
+
+Movies, Prime Video, Recommendation
+
+Fri, 27 Feb 2026 21:01:19 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-february-28/
+
+The most exciting movies on Prime Video this weekend include a surprising new Original, a Liam Neeson action movie, and a star-studded spy thriller.
+---------
+
+# Crunchyroll's Near-Perfect Supernatural Thriller Surges as Season 3 Takes Its Darkest Turn Yet
+
+Anime, Jujutsu Kaisen
+
+Fri, 27 Feb 2026 21:01:19 GMT
+
+https://screenrant.com/crunchyroll-perfect-anime-jjk-season-3-streaming-surge/
+
+Jujutsu Kaisen's third season climbs to the 2nd spot worldwide on Crunchyroll, as the anime delves into its darkest arc yet with the Culling Game.
+---------
+
+# Stranger Things Star's Upcoming Netflix Show Can Help Redeem A Forgotten Horror Genre
+
+TV, Charlie Heaton
+
+Fri, 27 Feb 2026 21:01:19 GMT
+
+https://screenrant.com/netflix-show-newfoundland-horror-sea-monster-genre/
+
+Sea monster-themed horror shows have not always succeeded.. However, the best have been character-focused, and Charlie Heaton's show may hit the mark.
+---------
+
+# Studio Ghibli Finally Reveals Hayao Miyazaki's Creative Battle Behind Spirited Away
+
+Anime, Studio Ghibli, Spirited Away, Hayao Miyazaki
+
+Fri, 27 Feb 2026 21:30:12 GMT
+
+https://www.cbr.com/studio-ghibli-spirited-away-hayao-miyazaki-creative-battle/
+
+The Studio Ghibli Chronicles, producer Toshio Suzuki's first-person account of the making of all Ghibli movies, will be released for the first time.
+---------
+
+# Delroy Lindo Teases Black Panther 3 Role
+
+Movies
+
+Fri, 27 Feb 2026 21:23:29 GMT
+
+https://www.cbr.com/delroy-lindo-teases-black-panther-3-role/
+
+Black Panther 3 will introduce Denzel Washington, but another critically acclaimed actor is teasing a role in the superhero film.
+---------
+
+# 8 Perfect Survival Horror Movies Nobody Talks About Anymore
+
+Movies, Horror, The Descent, The Grey, Splinter
+
+Fri, 27 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/perfect-but-forgotten-survival-horror-movies/
+
+The survival horror genre terrifies audiences through feelings of claustrophobia and helplessness, but even some of the best have become obscure.
+---------
+
+# Crunchyroll’s Sentenced to Be a Hero Is the Perfect Berserk Replacement
+
+Anime, Sentenced to Be a Hero, Berserk, Crunchyroll, Horror
+
+Fri, 27 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/crunchyroll-best-dark-anime-new-berserk-replacement/
+
+For those patiently awaiting more Berserk content, this new dark anime hit on Crunchyroll is the perfect replacement in the meantime.
+---------
+
+# Clive Owen's Monsieur Spade Is the Last Great Detective Show of Its Kind
+
+TV, Monsieur Spade, Thriller, The Maltese Falcon, Spider-Noir
+
+Fri, 27 Feb 2026 21:00:12 GMT
+
+https://www.cbr.com/clive-owen-neo-noir-monsieur-spade-amc-maltese-falcon-sequel/
+
+In 2024, Clive Owen headlined a gripping crime Noir that resurrected a golden age detective, and Amazon just made it more relevant than ever.
+---------
+
+# The Walking Dead's Final Issue Was Pretty Hopeful For The Future
+
+Comics, The Walking Dead, Horror
+
+Fri, 27 Feb 2026 21:00:12 GMT
+
+https://www.cbr.com/the-walking-dead-final-issue-hopeful-finale/
+
+Robert Kirkman's legendary comic masterpiece, The Walking Dead might've been packed with horror and tragedy, but its finale was actually quite hopeful
+---------
+
+# 10 Movies From 1993 That Are Now Considered Classics
+
+Movie, Jurassic Park, Cliffhanger, Schindler's List, Best Movies Of The 1990s
+
+Fri, 27 Feb 2026 21:50:12 GMT
+
+https://collider.com/best-movies-1993-classics/
+
+From The Fugitive to Jurassic Park, these are the best movies of 1993 that made cinema history.
+---------
+
+# 10 Greatest Family Movies of the 2010s, Ranked
+
+Movie, Hugo, Family, Frozen, Spider-Man Into the Spider-Verse
+
+Fri, 27 Feb 2026 21:39:12 GMT
+
+https://collider.com/best-family-movies-2010s-ranked/
+
+Frozen, Paddington 2, and Pete's Dragon are all among the absolute best family movies from the 2010s.
+---------
+
+# 7 Near-Perfect Streaming Movies That No One Remembers Today
+
+Movie, Apollo 10½: A Space Age Childhood, No Sudden Move, Okja, The Vast of Night
+
+Fri, 27 Feb 2026 21:24:12 GMT
+
+https://collider.com/near-perfect-streaming-movies-no-one-remembers-today/
+
+From sci-fi adventures like Okja to riveting thrillers like No Sudden Move, these near-perfect movies have sadly fallen through the streaming cracks.
+---------
+
+# Baz Luhrmann’s Latest Movie Is a Better Tribute to the King of Rock ‘n’ Roll Than ‘Elvis’
+
+Movie Features, Elvis, EPiC: Elvis Presley in Concert, Elvis Presley, Baz Lurhmann
+
+Fri, 27 Feb 2026 21:09:12 GMT
+
+https://collider.com/baz-luhrmanns-latest-film-is-a-better-tribute-to-the-king-of-rock-n-roll-than-elvis-was/
+
+Four years after Elvis, Baz Luhrmann’s EPiC: Elvis Presley in Concert is a much better tribute to the King of Rock ’n’ Roll.
+---------
+
+# New ‘Scrubs’ Images Prove This Reboot Is Exactly What the Doctor Ordered [Exclusive]
+
+Exclusives, Scrubs, Zach Braff, Donald Faison, Collider Exclusive Preview
+
+Fri, 27 Feb 2026 21:00:13 GMT
+
+https://collider.com/scrubs-reboot-season-10-episode-3-images-sarah-chalke-zach-braff-judy-reyes-donald-faison-abc/
+
+Scrubs fans rejoice as the beloved sitcom makes a triumphant return with a new look at the reboot's next episode, featuring original cast members!
+---------
+
+# 'Star Wars: Starfighter' Star Ryan Gosling Reveals Why He Chose the Franchise
+
+Movie News, Star Wars, Star Wars: Starfighter, Ryan Gosling
+
+Fri, 27 Feb 2026 21:51:41 GMT
+
+https://movieweb.com/star-wars-starfighter-ryan-gosling-first-franchise/
+
+After passing on the MCU and DCEU, three-time Academy Award nominee Ryan Gosling reveals what drew him to 'Star Wars: Starfighter.'
+---------
+
+# President Bragg's Anti-Mars Stance Is Made Worse By 'For All Mankind's Bonus Material
+
+Features, For All Mankind
+
+Fri, 27 Feb 2026 21:00:17 GMT
+
+https://movieweb.com/for-all-mankind-season-5-mars-storyline/
+
+'For All Mankind' fans may not know about the show's additional material on Apple TV, but checking it out makes Season 5 scarier.
+---------
+
+# Netflix's Hard Sci-Fi Series 'Love, Death & Robots' Has Aged Well
+
+Features, Love, Death & Robots, Netflix, Streaming Recommendations, Sci-Fi, Holds Up
+
+Fri, 27 Feb 2026 21:00:17 GMT
+
+https://movieweb.com/love-death-robots-streaming-netflix-march-2026/
+
+Netflix's hard sci-fi cyberpunk anthology series 'Love, Death & Robots' is the best sci-fi series on streaming right now.
+---------
+
 # Disney's 8-Part Sci-Fi Series Is A Must-See Weekend Binge If You Missed It A Year Ago
 
 Star Wars, Disney+
