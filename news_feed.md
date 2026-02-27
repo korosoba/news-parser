@@ -1,3 +1,355 @@
+# Prime Video's Hard-Hitting Series With A Near-Perfect RT Score Is Defining Action Thrillers Right Now
+
+Streaming TV, Prime Video, Explainer
+
+Fri, 27 Feb 2026 19:45:19 GMT
+
+https://screenrant.com/prime-video-reacher-defining-action-thriller-tv/
+
+Some TV shows are so good, they define an entire genre during the time they're airing. That's certainly true of a current Prime Video action thriller.
+---------
+
+# HBO's 5-Part Masterpiece Drama Series Is One Of Its Best & The Perfect One-Night Weekend Binge
+
+TV, HBO Max, Chernobyl
+
+Fri, 27 Feb 2026 19:30:18 GMT
+
+https://screenrant.com/hbo-chernobyl-drama-series-best/
+
+One of the best HBO series of all time is a hard-hitting drama that will leave viewers speechless, and it is perfect for a one-night weekend binge.
+---------
+
+# Legal Dramas Don't Get More Addictive Than This 6-Part Series That Keeps Getting Better
+
+Classic TV, How to Get Away With Murder
+
+Fri, 27 Feb 2026 19:30:18 GMT
+
+https://screenrant.com/how-to-get-away-with-murder-legal-drama-bingeable-series/
+
+There are plenty of incredible legal dramas, but they don't get more addictive than this six-part series that just keeps getting better.
+---------
+
+# Scream 8's Quick Filming Start Window Teased By Franchise EP After Record-Breaking Box Office
+
+Movies, Scream 7, Scream
+
+Fri, 27 Feb 2026 19:14:30 GMT
+
+https://screenrant.com/scream-8-filming-fall-2026-producer-tease/
+
+The next installment of the Scream franchise, Scream 8, is slated to begin filming soon, according to executive producer Marianne Maddalena.
+---------
+
+# Who Plays Grey’s Anatomy’s New Doctor, Toni Wright? Where You’ve Seen The Actress Before
+
+Network TV, Grey's Anatomy
+
+Fri, 27 Feb 2026 19:13:39 GMT
+
+https://screenrant.com/greys-anatomy-new-doctor-toni-wright-jen-landon-explained/
+
+Grey's Anatomy S22 introduced Dr. Toni Wright, a plastics attending with a history with Dr. Amelia Shepherd. Find out about the actress who plays her.
+---------
+
+# Paramount Reveals 2 New Competing G.I. Joe Reboot Movies From Danny McBride & Controversial Writer
+
+Movies
+
+Fri, 27 Feb 2026 19:03:50 GMT
+
+https://screenrant.com/gi-joe-movie-franchise-reboot-max-landis-danny-mcbride/
+
+A new G.I. Joe movie is in development at Paramount alongside the one also being penned by Danny McBride and plans for a potential franchise.
+---------
+
+# Sam And Dean's Supernatural Reunion Should Only Happen On One Condition
+
+Classic TV, Supernatural, Explainer
+
+Fri, 27 Feb 2026 19:00:19 GMT
+
+https://screenrant.com/supernatural-return-one-condition-full-cast-reunion/
+
+Despite Supernatural ending in 2020, there remains plenty of talk about Sam and Dean Winchester uniting, which should only happen on one condition.
+---------
+
+# Christian Bale & Jake Gyllenhaal's "Breathtaking" New Sci-Fi Thriller Praised In Official First Reactions
+
+Movies, The Bride!
+
+Fri, 27 Feb 2026 18:43:13 GMT
+
+https://screenrant.com/the-bride-2026-first-reactions/
+
+Maggie Gyllenhaal, Jessie Buckley, Christian Bale, and Jake Gyllenhaal's latest genre-bending sci-fi thriller premieres to positive reactions.
+---------
+
+# Pokémon Winds & Waves Legendary 'Mon Spotted
+
+Gaming, Pokémon Winds and Waves, Pokemon, Triple-A Games
+
+Fri, 27 Feb 2026 18:06:05 GMT
+
+https://screenrant.com/pokemon-winds-waves-legendary-monster-trailer/
+
+The first look at a Legendary Pokémon for the next generation of games may have already snuck into the Pokémon Winds & Waves showcase reveal.
+---------
+
+# TMNT x Magic: The Gathering Set Preview
+
+Games, Magic: The Gathering
+
+Fri, 27 Feb 2026 19:30:12 GMT
+
+https://www.cbr.com/tmnt-x-mtg-set-preview-hand-is-mightier-than-the-foot/
+
+Magic: The Gathering's Teenage Mutant Ninja Turtles set is almost here, and CBR has previewed it ahead of launch, testing out its ninjas and mutamts.
+---------
+
+# G.I. Joe Reboot: Max Landis and Danny McBride Develop Two Movies
+
+Movies, G.I. Joe, Sci-Fi
+
+Fri, 27 Feb 2026 19:26:30 GMT
+
+https://www.cbr.com/g-i-joe-movies-reboot-danny-mcbride-max-landis/
+
+G.I. Joe is set for a big screen comeback with two films in early development from Max Landis Danny McBride.
+---------
+
+# Kaiju No. 8’s Brilliant Twist Is That the Hero Is the Weakest Link
+
+Anime, Kaiju No. 8, Shonen
+
+Fri, 27 Feb 2026 19:15:43 GMT
+
+https://www.cbr.com/best-new-gen-shonen-kaiju-no-8-worst-anime-mc/
+
+One of the biggest shonen anime of the new gen flips expectations by making its protagonist one of the most fragile piece on the board.
+---------
+
+# Pokémon Winds & Waves' First Legendary Pokémon Spotted By Fans
+
+Games, Pokemon, Nintendo
+
+Fri, 27 Feb 2026 19:10:13 GMT
+
+https://www.cbr.com/pokemon-winds-waves-first-legendary-pokemon-spotted/
+
+Pokémon fans believe they may have spotted the first Gen 10 Legendary in the background of the Pokémon Winds & Waves announcement trailer.
+---------
+
+# Naruto Loses No. 1 Spot as Highest-Ranked Anime Ninja of 2026
+
+Anime, Naruto, Naruto Uzumaki
+
+Fri, 27 Feb 2026 19:02:11 GMT
+
+https://www.cbr.com/naruto-best-anime-ninja-ranking-2026/
+
+A new survey determines that, despite being a global icon, Naruto Uzumaki is actually not Japan's most famous anime and manga ninja.
+---------
+
+# 10 DC Storylines That Won't Be In Live-Action Anytime Soon
+
+Comics, DCU, DC Comics
+
+Fri, 27 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/dc-comics-storylines-dcu-will-never-adapt/
+
+Some stories are best told through the comics.
+---------
+
+# Who Is Adam in Daredevil: Born Again?
+
+TV, Daredevil: Born Again
+
+Fri, 27 Feb 2026 19:00:12 GMT
+
+https://www.cbr.com/who-is-adam-daredevil/
+
+In Daredevil: Born Again, Wilson Fisk told Vanessa he knew about Adam, but who is this mysterious figure and why is he so important to them?
+---------
+
+# Al Pacino’s Greatest Godfather 2 Line Is Still the Most Powerful
+
+Movies, The Godfather Part II, The Godfather, Crime
+
+Fri, 27 Feb 2026 18:20:12 GMT
+
+https://www.cbr.com/the-godfather-2-most-powerful-al-pacino-quote/
+
+This scene in The Godfather Part II is arguably one of the strongest moments in the franchise, setting up much of the rest of the film.
+---------
+
+# 5 Perfect Retro Platformers That Nobody Talks About Anymore
+
+Games
+
+Fri, 27 Feb 2026 18:15:13 GMT
+
+https://www.cbr.com/perfect-retro-platformers-nobody-talks-about/
+
+Classic retro platforming games like Strider have been mostly forgotten in the modern era.
+---------
+
+# ‘Ted Lasso’ Star Breaks Silence on the Show’s Surprising Season 4 Return [Exclusive]
+
+Exclusives, Ted Lasso, Juno Temple, Jason Sudeikis, Apple TV
+
+Fri, 27 Feb 2026 19:39:41 GMT
+
+https://collider.com/ted-lasso-season-4-update-juno-temple-family-reunion-apple-tv/
+
+Ted Lasso star Juno Temple discusses the magic of returning to the show's family for Season 4, describing the experience as a continuation.
+---------
+
+# 5 Most Exciting Leonardo DiCaprio Movies, Ranked
+
+Movie, Leonardo DiCaprio, One Battle After Another, The Wolf of Wall Street, The Revenant
+
+Fri, 27 Feb 2026 19:39:12 GMT
+
+https://collider.com/leonardo-dicaprio-movies-exciting-ranked/
+
+Inception, One Battle After Another, and The Revenant are all among the most exciting Leonardo DiCaprio movies.
+---------
+
+# After 7 Years, It’s Time for 'The Rookie' To Wrap It Up With This Longtime Villain
+
+TV Features, The Rookie, Nathan Fillion, ABC, Procedural
+
+Fri, 27 Feb 2026 19:28:12 GMT
+
+https://collider.com/the-rookie-season-8-oscar-hutchinson-villian/
+
+Oscar Hutchinson in The Rookie is becoming tired and repetitive in his latest appearances, and it's time for the show to wrap the character up.
+---------
+
+# Netflix May Finally Have the Perfect 'Bosch' Competitor in First Trailer for New Detective Series
+
+TV News, Joe Nesbø's Detective Hole, Bosch, The Snowman, Netflix
+
+Fri, 27 Feb 2026 19:25:25 GMT
+
+https://collider.com/netflix-bosch-replacement-detective-crime-series-jo-nesbos-detective-hole-trailer/
+
+The first trailer for Jo Nesbo's Detective Hole brings the legendary murder mystery novels to life in spectacular fashion.
+---------
+
+# 'Scream 7;' Ending Explained: Does Neve Campbell Survive the Horror Franchise... Again?
+
+Movie Features, Neve Campbell, Scream, Scream 7, Courteney Cox
+
+Fri, 27 Feb 2026 19:25:04 GMT
+
+https://collider.com/scream-7-ending-explained/
+
+With Scream 7 now in theaters, how does Sidney’s latest fight with Ghostface end?
+---------
+
+# 7 Best Anime Coming to Crunchyroll and Netflix in March
+
+TV, Netflix, Crunchyroll, Anime, Frieren: Beyond Journey's End
+
+Fri, 27 Feb 2026 19:20:12 GMT
+
+https://collider.com/best-anime-crunchyroll-netflix-in-march/
+
+From new episodes of Golden Kamuy to the debut of STEEL BALL RUN: JoJo’s Bizarre Adventure, these are the best March anime on Netflix and Crunchyroll.
+---------
+
+# 10 Horror Movie Masterpieces With Great Acting, Ranked
+
+Movie, Horror, The Shining, Hereditary, The Silence of the Lambs
+
+Fri, 27 Feb 2026 19:18:12 GMT
+
+https://collider.com/best-horror-movie-masterpieces-great-acting-ranked/
+
+From The Thing to The Silence of the Lambs, these are genuine horror movie masterpieces with brilliant acting.
+---------
+
+# After 41 Years, the Greatest Sci-Fi Cult Classic of the '80s Is Officially Getting a Sequel
+
+Movie News, The Last Starfighter, Science Fiction, Comic Book, Nick Castle
+
+Fri, 27 Feb 2026 19:16:23 GMT
+
+https://collider.com/sci-fi-cult-classic-the-last-starfighter-sequel-comic-series/
+
+41 years later, the groundbreaking sci-fi cult classic, The Last Starfighter, is getting an official sequel. Read on for more.
+---------
+
+# After 3 Years, ‘Spider-Man: Beyond the Spider-Verse’ Gets a Major Production Update From Lord & Miller [Exclusive]
+
+Exclusives, Project Hail Mary, Christopher Miller, Phil Lord, Spider-Verse
+
+Fri, 27 Feb 2026 19:11:47 GMT
+
+https://collider.com/spider-verse-beyond-the-spider-verse-update-new-characters-christopher-miller-phil-lord-production-status/
+
+Christopher Miller and Phil Lord opened up on the status of Spider-Man: Beyond the Spider-Verse, new cast members, and the end of the trilogy.
+---------
+
+# March 1 Is Going to be Huge for Taylor Sheridan Fans
+
+TV News, Taylor Sheridan, Yellowstone, The Madison, Marshals
+
+Fri, 27 Feb 2026 19:06:03 GMT
+
+https://collider.com/taylor-sheridan-march-tv-release-dates-the-madison-marshals-paramount-plus-cbs/
+
+March is about to be the month Taylor Sheridan fans have been waiting for as two of the writer's most anticipated shows finally arrive.
+---------
+
+# 'G.I. Joe' Film Treatment Being Written by Disgraced Writer Max Landis
+
+Movie News, GI Joe
+
+Fri, 27 Feb 2026 19:07:24 GMT
+
+https://movieweb.com/gi-joe-film-writer-max-landis/
+
+Paramount has hired Max Landis and Danny McBride to spen scripts for a new 'G.I. Joe' film.
+---------
+
+# Tom Hanks' 'From the Earth to the Moon' Is a Must-Watch for History Fans
+
+Features, From The Earth To The Moon, Tom Hanks, HBO Max, Streaming Recommendations, Comparison Recommendation
+
+Fri, 27 Feb 2026 19:00:17 GMT
+
+https://movieweb.com/from-the-earth-to-the-moon-hbo-february-2026/
+
+After 'Apollo 13,' Hanks went back to space with Ron Howard.
+---------
+
+# Sinners' Star Delroy Lindo Told Ryan Coogler He Wants 'Black Panther 3' Role
+
+Movie News, Sinners, Delroy Lindo, MCU
+
+Fri, 27 Feb 2026 18:37:09 GMT
+
+https://movieweb.com/delroy-lindo-sinners-black-panther-3/
+
+If Delroy Lindo gets his wish, the 'Sinners' star will get to play a new role with Ryan Coogler in Marvel Studios' 'Black Panther 3.'
+---------
+
+# 'Scream 7' Star Neve Campbell Already Has a Pitch for 'Scream 8'
+
+Movie News, Scream 7
+
+Fri, 27 Feb 2026 18:26:03 GMT
+
+https://movieweb.com/neve-campbell-great-idea-scream-8/
+
+'Scream 7' director Kevin Williamson has teased that the plot of 'Scream 8' might adapt an idea Neve Campbell pitched him.
+---------
+
 # Red Dead Redemption 2: Unleashed Feels Like An Entirely New Game
 
 Gaming, Red Dead Redemption
