@@ -1,3 +1,223 @@
+# Naruto’s Best Romance Is Now the Biggest Casualty of Boruto’s Worst Betrayal Yet
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Fri, 27 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/naruto-best-romance-problem-boruto-betrayal-ino-sai/
+
+The world of Boruto has a major challenge on the road ahead for its cutest couple from Naruto.
+---------
+
+# Pokémon Decades Is A Love Letter To The Past
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 27 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/http/pokemon-decades-fan-game-legends-emerald/
+
+No matter what era of Pokémon you grew up with, everyone has a favorite, and a lot of those best memories are collected with Pokémon Decades.
+---------
+
+# Star Trek's Returning Discovery Character Is Almost A Whole New Person
+
+Star Trek, Star Trek: Starfleet Academy
+
+Fri, 27 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/star-trek-discovery-sylvia-tilly-returning-character-different/
+
+Starfleet Academy episode 8 sees the long-awaited return of Mary Wiseman as Star Trek: Discovery's Sylvia Tilly, but she's not quite how we remember.
+---------
+
+# Prime Video’s New R-Rated Pirates Of The Caribbean Replacement Is An Instant No. 1 Streaming Sensation
+
+Movies, The Bluff, Prime Video
+
+Fri, 27 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/the-bluff-movie-streaming-success-prime-video/
+
+Prime Video's new R-rated movie has become a global streaming hit, and it is the perfect Pirates of the Caribbean replacement for franchise fans.
+---------
+
+# 8 Best Solo Leveling Replacements Fans Need To Watch In 2026
+
+Anime, Solo Leveling
+
+Fri, 27 Feb 2026 00:00:19 GMT
+
+https://screenrant.com/best-solo-leveling-replacements-2026/
+
+Solo Leveling fans are expected to anticipate the show's new season well into the year. In that time, these titles are the ideal replacements.
+---------
+
+# Netflix’s New 4-Episode Premiere Is A Must-Binge This Weekend – Now Trending Worldwide
+
+Streaming TV, Bridgerton, Netflix
+
+Thu, 26 Feb 2026 23:43:19 GMT
+
+https://screenrant.com/netflix-bridgerton-season-4-must-watch/
+
+Netflix's new 4-part premiere, Bridgerton season 4, part 2, is a must-binge this weekend. Currently trending worldwide, don't miss this Netflix hit.
+---------
+
+# The World Has Been Sleeping On This Brutal Taylor Sheridan Neo-Western For 5 Years & Counting
+
+Movies, Those Who Wish Me Dead, Taylor Sheridan, Recommendation
+
+Thu, 26 Feb 2026 23:31:19 GMT
+
+https://screenrant.com/those-wish-dead-taylor-sheridan-neo-western-underrated/
+
+Taylor Sheridan is the king of the Neo-Western genre, but even his fanbase has been sleeping on his most forgotten movie from back in 2021.
+---------
+
+# Marvel Officially Reveals Venom's Most Powerful Upgrade in 38 Years
+
+Comics, Marvel, Venom
+
+Thu, 26 Feb 2026 23:31:19 GMT
+
+https://screenrant.com/venom-power-ugrade-airborn-virus-marvel-lore/
+
+The Airborne Venom Event
+---------
+
+# Paradise Just Made Season 1's Greatest Flashback Trick Even Better
+
+Streaming TV, Paradise
+
+Thu, 26 Feb 2026 23:31:19 GMT
+
+https://screenrant.com/paradise-season-2-earth-disaster-flashback-trick-graceland/
+
+Paradise's debut season had plenty of elements that made it unmissable, but season 2 has already taken the show's best trait and made it even better.
+---------
+
+# The Masked Singer Season 14 Ozzfest Night Characters & Songs Revealed (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Thu, 26 Feb 2026 23:22:58 GMT
+
+https://screenrant.com/the-masked-singer-season-14-ozzfest-night-characters-songs-revealed-spoilers/
+
+The Masked Singer S14's Ozzfest Night will pay tribute to the late rock legend Ozzy Osbourne with a celebration of his iconic music catalog.
+---------
+
+# 10 Classic Fantasy Shows That Have Aged Poorly
+
+TV, Fantasy, Charmed, Legend of the Seeker, Highlander
+
+Fri, 27 Feb 2026 00:00:12 GMT
+
+https://www.cbr.com/classic-fantasy-shows-that-aged-poorly-list/
+
+Classic fantasy television brought viewers swashbuckling and mythical adventures, but technology and budget limitations meant some aged poorly.
+---------
+
+# Daredevil: Born Again's Most Underrated Episode Deserves a Second Look
+
+TV, Daredevil: Born Again, MCU, superheroes
+
+Fri, 27 Feb 2026 00:00:12 GMT
+
+https://www.cbr.com/daredevil-born-again-charlie-cox-worst-episode-redemption/
+
+Daredevil: Born Again is back for its second season, and it's about time that fans gave the first season's most underrated episode more credit.
+---------
+
+# Steam Users Can Play Free Open-World Game Until March 2
+
+Games, Steam
+
+Thu, 26 Feb 2026 23:45:12 GMT
+
+https://www.cbr.com/steam-free-open-world-game-march-2026-age-of-water/
+
+Steam users can play an open-world survival crafting game for free for a limited time.
+---------
+
+# Netflix Drops Out of Warner Bros. Bidding War as Paramount Nears Deal
+
+Movies, Netflix, warner bros, paramount pictures
+
+Thu, 26 Feb 2026 23:41:30 GMT
+
+https://www.cbr.com/netflix-warner-bros-deal-drops-out-paramount-winner/
+
+Paramount's persistence finally paid off.
+---------
+
+# Star Trek's Section 31 Proves a Problematic Review Trend
+
+TV, Star Trek, Star Trek: Section 31, Paramount Plus
+
+Thu, 26 Feb 2026 23:30:12 GMT
+
+https://www.cbr.com/star-trek-section-31-problematic-review-trend/
+
+Buried under a deluge of bad reviews, the most controversial Star Trek film ever produced exposed a problem with how critics judge this universe.
+---------
+
+# Netflix All But Assures a Paramount Takeover in Warner Bros. Bidding War
+
+Movie News, Warner Bros., Netflix, Paramount, Streaming
+
+Thu, 26 Feb 2026 23:27:04 GMT
+
+https://collider.com/warner-bros-bidding-war-netflix-not-raising-offer-paramount-superior/
+
+In a shocking upset, Netflix will no longer be purchasing Warner Bros. following a "superior" offer from Paramount. Read on for more.
+---------
+
+# Say Goodbye to Chris Hemsworth and Cillian Murphy's Period Drama Box Office Bomb
+
+Movie News, In the Heart of the Sea, Chris Hemsworth, Ron Howard, Brendan Gleeson
+
+Thu, 26 Feb 2026 23:18:32 GMT
+
+https://collider.com/chris-hemsworth-in-the-heart-of-the-sea-cillian-murphy-tom-holland-epic-leaving-prime-video-february-2026/
+
+In the Heart of the Sea, the ambitious sea adventure with Chris Hemsworth that underperformed with critics and audiences, is set to exit Prime Video.
+---------
+
+# 'Starfleet Academy' Episode 8 Combines 'Voyager's "Real Life" & "Blink of an Eye"
+
+Features, Star Trek: Starfleet Academy, Star Trek, Star Trek: Voyager
+
+Fri, 27 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/star-trek-starfleet-academy-voyager-sequel/
+
+'Star Trek: Starfleet Academy' just acknowledged two 'Voyager' episodes at once to create a heartfelt legacy sequel.
+---------
+
+# ‘Spider-Man: Beyond the Spider-Verse’ Team Teases First Plot Details
+
+Movie News, Spider-Man: Beyond the Spider-Verse, Phil Lord, Chris Miller
+
+Thu, 26 Feb 2026 23:34:49 GMT
+
+https://movieweb.com/spider-man-beyond-the-spider-verse-first-plot-tease/
+
+'Spider-Man: Beyond the Spider-Verse' producing team Lord and Miller shared the first teases for what to expect from the threequel's plot.
+---------
+
+# Netflix Declines to Up Bid for Warner Bros. After Paramount's "Superior" Offer
+
+Movie News, Netflix
+
+Thu, 26 Feb 2026 23:07:26 GMT
+
+https://movieweb.com/netflix-warner-bros-paramount-offer/
+
+The latest offer from Paramount Skydance put a timer on Netflix's attempts to get a deal completed.
+---------
+
 # Paramount Officially Wins Warner Bros. As Netflix Backs Out
 
 TV, Netflix, Warner Bros., Paramount
