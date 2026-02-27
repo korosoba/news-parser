@@ -1,3 +1,410 @@
+# Red Dead Redemption 2: Unleashed Feels Like An Entirely New Game
+
+Gaming, Red Dead Redemption
+
+Fri, 27 Feb 2026 18:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-unleashed-mod-download/
+
+Red Dead Redemption 2: Unleashed lets blossoming cowboys roam the West as lawmen, rather than outlaw criminals.
+---------
+
+# Star Trek: Voyager's Doctor Finds Closure In Starfleet Academy
+
+Exclusive, Star Trek, Star Trek: Starfleet Academy, Star Trek: Voyager
+
+Fri, 27 Feb 2026 18:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-doctor-voyager-father-closure/
+
+Exclusive: Star Trek: Starfleet Academy's creator, Gaia Violo, explains The Doctor's surprising choice that ties up his Star Trek: Voyager story.
+---------
+
+# Bridgerton Season 4’s Steamy Bathtub Scene Proves Why The Show Is The Hottest On TV
+
+Streaming TV, Bridgerton, Bridgerton - Season 4
+
+Fri, 27 Feb 2026 18:00:19 GMT
+
+https://screenrant.com/bridgerton-season-4-benedict-sophie-bathtub-scene-female-desire/
+
+Though some seasons are spicier than others, Bridgerton has proven itself as the steamiest show on TV, and season 4's tub scene solidifies that title.
+---------
+
+# ABC's Revived Medical Series Becomes No. 1 On Disney's U.S. Charts After 16 Year Hiatus
+
+TV, Scrubs, Disney Plus, Streaming Charts
+
+Fri, 27 Feb 2026 17:58:12 GMT
+
+https://screenrant.com/scrubs-revival-season-10-streaming-success-disney-plus-february-2026/
+
+As Scrubs has officially returned to ABC, the beloved medical series has already become a streaming success on Disney+ days after its premiere.
+---------
+
+# Scream 7 Ending & Ghostface Killer Identity Explained
+
+Movies, Horror, Scream 7, Scream
+
+Fri, 27 Feb 2026 17:55:19 GMT
+
+https://screenrant.com/scream-7-ending-ghostface-killer-identity-explained/
+
+Sidney faces a new Ghostface claiming to be a familiar face, but a shocking twist awaits before a brutal finale sets up Scream’s new core trio.
+---------
+
+# Taylor Sheridan's TV Career Started On Walker, Texas Ranger: From Bit-Part to Neo-Western Dominance
+
+TV, Walker, Texas Ranger, Taylor Sheridan
+
+Fri, 27 Feb 2026 17:45:19 GMT
+
+https://screenrant.com/taylor-sheridan-tv-debut-walker-texas-ranger-neo-western/
+
+Taylor Sheridan may be the king of neo-Western television today, but he began his TV career in the shadow of another genre icon during the mid-1990s.
+---------
+
+# HBO’s New 7-Part Crime Thriller Is Already One Of Its Best
+
+Streaming TV, Task, HBO
+
+Fri, 27 Feb 2026 17:40:19 GMT
+
+https://screenrant.com/hbo-task-thriller-series-instant-classic/
+
+HBO's new 7-part epic crime thriller series Task is already one of the network's best shows of all time, created by Brad Ingelsby of Mare of Easttown.
+---------
+
+# Prime Video's Replacement For One Of The Best Crime Thriller Series Of All Time Arrives On March 11 & It's A Must-Watch
+
+TV, Prime Video, Scarpetta, The Mentalist
+
+Fri, 27 Feb 2026 17:35:19 GMT
+
+https://screenrant.com/prime-video-scarpetta-the-mentalist-replacement-must-watch/
+
+A new Prime Video crime thriller series serves as the perfect replacement for one of the genre's best shows of all time for a key reason.
+---------
+
+# 2026’s Biggest Anime Movie Just Got Hit With a Major Delay
+
+Anime, Puella Magi Madoka Magica
+
+Fri, 27 Feb 2026 17:33:27 GMT
+
+https://screenrant.com/puella-magi-madoka-magica-anime-movie-delay-2026/
+
+The long-awaited sequel to Puella Magi Madoka Magica the Movie: Rebellion gets delayed again, but an official release date has been announced.
+---------
+
+# Pokémon Winds & Waves First Pieces Of Version Exclusive Content Confirmed
+
+Gaming, Pokémon Winds and Waves, Triple-A Games
+
+Fri, 27 Feb 2026 17:32:38 GMT
+
+https://screenrant.com/pokemon-winds-waves-version-exclusive-content-confirmed/
+
+While we're still waiting on more concrete info for the 10th Generation of Pokémon, we do know of at least one exclusive right away.
+---------
+
+# Scrubs Revival Becomes 1 of the Most Popular TV Shows in the World
+
+TV, Scrubs
+
+Fri, 27 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/scrubs-medical-sitcom-disney-plus-hulu-success-february-2026/
+
+With a near-perfect score, the revival of one of the best medical shows of all time is an instant hit.
+---------
+
+# 5 Horror Movies With Flawless Twist Endings
+
+Movies, Horror, Saw, Scream
+
+Fri, 27 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/horror-movies-flawless-twist-ending-list/
+
+Horror movies like The Sixth Sense are defined by their twist endings and, with that in mind, serve as one of many others with twists fans must watch.
+---------
+
+# Apple TV's F1 Overtakes Elizabeth Olsen's Fantasy to No. 1 2 Weeks Later
+
+Movies, F1
+
+Fri, 27 Feb 2026 17:23:43 GMT
+
+https://www.cbr.com/f1-overtakes-eternity-apple-tv-february-2026/
+
+The Marvel alum's rom-com has met its match
+---------
+
+# 10 Anime Heroes Who Would Be Villains In Any Other Story
+
+Anime, anime villains, One Piece, Jujutsu Kaisen
+
+Fri, 27 Feb 2026 17:15:12 GMT
+
+https://www.cbr.com/best-anime-heroes-villains-different-show/
+
+Anime protagonists like Luffy and Denji might wear the hero title, but their actions would look downright sinister in a different series.
+---------
+
+# Pokémon Winds & Waves Gen 10 Starters: Everything We Know
+
+Games, Pokemon
+
+Fri, 27 Feb 2026 17:05:13 GMT
+
+https://www.cbr.com/pokemon-winds-waves-gen-10-starters-everything-we-know/
+
+Pokémon Winds & Waves have revealed their three starters, but there's more to Browt, Pombon, and Gecqua than what was seen in their debut trailer.
+---------
+
+# Melissa Barrera Reacts to Scream 7 Protests 2 Years After Her Firing
+
+Movies, Scream 7, Scream
+
+Fri, 27 Feb 2026 17:03:40 GMT
+
+https://www.cbr.com/melissa-barrera-scream-7-protests-reaction/
+
+For years, fans have been promising to boycott Scream 7, and it's officially happening.
+---------
+
+# 10 Worst Marvel Comics Arcs From 2000s To Now
+
+Comics, Marvel
+
+Fri, 27 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/worst-marvel-comics-arcs-since-2000-ranked/
+
+These are the most abysmal storylines from Marvel Comics over the past few decades.
+---------
+
+# The Most Underrated Shonen Anime of The 2000s Is Officially Returning With a New Sequel
+
+Anime, Zatch Bell!, shonen anime
+
+Fri, 27 Feb 2026 16:30:12 GMT
+
+https://www.cbr.com/zatch-bell-new-sequel-underrated-shonen-anime/
+
+Zatch Bell! didn't realize its full potential as a shonen anime, but its growing manga sequel has given fans hope for a promising future.
+---------
+
+# Hamnet Streams on Peacock March 6
+
+Movies, Hamnet, Peacock, Drama
+
+Fri, 27 Feb 2026 16:22:45 GMT
+
+https://www.cbr.com/hamnet-streaming-date-peacock-march-6/
+
+Another Oscar-nominated movie makes its way to streaming ahead of the big night.
+---------
+
+# Evangelion Fans Reject Asuka 'AI Slop' Tribute by PlayStation Artist
+
+Anime, Neon Genesis Evangelion
+
+Fri, 27 Feb 2026 16:14:21 GMT
+
+https://www.cbr.com/evangelion-asuka-ai-slop-playstation-artist/
+
+Evangelion fans have soundly rejected an AI-generated fan art of Asuka by the director of Stellar Blade, following the new anime announcement.
+---------
+
+# 20 Years Later, One of the Best Sitcoms of the 21st Century Returns With Hilarious First Look [Exclusive]
+
+TV News, Collider Exclusive Preview, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle, Disney
+
+Fri, 27 Feb 2026 18:00:12 GMT
+
+https://collider.com/malcolm-in-the-middle-revival-reboot-image-lifes-still-unfair-frankie-muniz-hulu/
+
+After 20 years, Malcolm in the Middle makes a comeback with Life's Still Unfair, a four-episode reunion special on Hulu, starring the iconic cast.
+---------
+
+# '9-1-1' Just Proved It's Doing Something Right With the Highest-Rated Episode in 6 Seasons
+
+TV News, 9-1-1, ABC, Drama, Procedural
+
+Fri, 27 Feb 2026 17:46:41 GMT
+
+https://collider.com/9-1-1-season-9-episode-11-highest-rated-episode-in-6-seasons/
+
+9-1-1 just proved it's doing something right with Season 9, Episode 11 becoming the highest-rated episode in 6 seasons.
+---------
+
+# ‘Love Story’ Rewrites JFK Jr.’s Most Painful Public Moment in 10 Devastating Minutes
+
+TV Features, Love Story, Ryan Murphy, Naomi Watts, FX
+
+Fri, 27 Feb 2026 17:42:13 GMT
+
+https://collider.com/love-story-jfk-jr-carolyn-bessette-battery-park-fight-episode-explained/
+
+FX's Love Story follows the tragic romance between JFK Jr. and Carolyn Bessette, who were often tabloid fodder even in their most private moments.
+---------
+
+# Netflix Is Giving 'Mindhunter' Fans an Easy-to-Binge 7-Part Replacement on March 1
+
+TV News, The Mentalist, Pedro Pascal, Netflix, Simon Baker
+
+Fri, 27 Feb 2026 17:41:20 GMT
+
+https://collider.com/mindhunter-replacement-crime-thriller-the-mentalist-streaming-netflix-march-2026/
+
+CBS' 18-year-old crime classic, The Mentalist, is coming to Netflix, making it an absolute must-watch for Mindhunter fans.
+---------
+
+# Chris Hemsworth's 5 Best Marvel Movies, Ranked
+
+Movie, Chris Hemsworth, Marvel, thor, Thor: Ragnarok
+
+Fri, 27 Feb 2026 17:36:12 GMT
+
+https://collider.com/chris-hemsworth-marvel-movies-best-ranked/
+
+From ‘Thor: Ragnarok’ to ‘Avengers: Infinity War’ and ‘Endgame,’ ranking Chris Hemsworth’s most powerful MCU performances.
+---------
+
+# 'The Napa Boys' Review: An Absurd Movie That Dares to Ask, “What If 'Sideways' Had a Bunch of Terrible Sequels?”
+
+Movie Reviews, The Napa Boys, Sideways, Comedy, Mike Mitchell
+
+Fri, 27 Feb 2026 17:20:30 GMT
+
+https://collider.com/the-napa-boys-review/
+
+The Napa Boys is an absurd comedy that acts like a strange sequel to Sideways, while poking fun at franchises.
+---------
+
+# 10 Most Perfect Movies Released Since 2020, Ranked
+
+Movie, The Brutalist, Oppenheimer, The Banshees of Inisherin, Marty Supreme
+
+Fri, 27 Feb 2026 17:10:13 GMT
+
+https://collider.com/most-perfect-movies-since-2020-ranked/
+
+Modern classics like The Brutalist, Marty Supreme, and Oppenheimer are all among the best, most perfect movies released since the year 2020.
+---------
+
+# Michelle Pfeiffer Is Taylor Sheridan's New Muse in Fresh Look at 'The Madison' [Exclusive]
+
+Exclusives, Collider Exclusive Preview, The Madison, Taylor Sheridan, Michelle Pfeiffer
+
+Fri, 27 Feb 2026 17:01:12 GMT
+
+https://collider.com/the-madison-image-taylor-sheridan-michelle-pfeiffer-intimate-western/
+
+Discover the intimate world of The Madison, with a new look at Taylor Sheridan's latest neo-Western drama, starring Michelle Pfeiffer & Kurt Russell.
+---------
+
+# Before 'Marshals,' Here's What You Need To Remember From 'Yellowstone' About Kayce Dutton
+
+TV Features, Yellowstone, Marshals, Luke Grimes, Taylor Sheridan
+
+Fri, 27 Feb 2026 17:01:12 GMT
+
+https://collider.com/marshals-yellowstone-recap-kayce-dutton-spin-off/
+
+Kayce Dutton's evolution from prodigal son to livestock commissioner and lawman in Yellowstone before his new CBS spin-off series, Marshals.
+---------
+
+# Paul Wesley Trades in Captain Kirk For a "Bad-Boy Duke" in Apple TV's Hit Historical Romance
+
+TV News, The Buccaneers, Paul Wesley, Apple TV, Kristine Froseth
+
+Fri, 27 Feb 2026 16:30:21 GMT
+
+https://collider.com/paul-wesley-cast-the-buccaneers-apple-tv-historical-romance-fantasy-character-details/
+
+Strange New Worlds star Paul Wesley is trading sci-fi for historical fantasy as he joins the cast of Aplle TV's romantic drama The Buccaneers.
+---------
+
+# 'Scrubs' Revival Reveals the Show Is Retiring Eagle After Trailer Said Otherwise
+
+Features, Scrubs
+
+Fri, 27 Feb 2026 18:00:17 GMT
+
+https://movieweb.com/scrubs-revival-trailer-lie/
+
+Turk & JD had countless Eagle moments in the original run of 'Scrubs,' but the revival seems ready to lay the tradition to rest.
+---------
+
+# Sony's 'Spider-Man' Films Get a New Streaming Home Before 'Avengers: Doomsday'
+
+Movie News, Coming/Leaving Streaming, Spider-Man, Spider-Man 2
+
+Fri, 27 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/spider-man-streaming-hbo-max-march-2026/
+
+Tobey Maguire and Andrew Garfield will use their Spidey sense on HBO Max this March.
+---------
+
+# Strongest Movie Superheroes of All Time, Ranked
+
+Movie Lists, Superhero
+
+Fri, 27 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/superheroes-strongest-all-time/
+
+It's a frequent debate among comic book movie fans -- who is the most powerful superhero to ever hit the big screen?
+---------
+
+# 'Hamnet' Peacock Streaming Release Date Revealed
+
+Movie News, Hamnet
+
+Fri, 27 Feb 2026 16:57:23 GMT
+
+https://movieweb.com/hamnet-streaming-release-date/
+
+'Hamnet' will make its streaming debut on Peacock in March 2026, nine days before the Academy Awards.
+---------
+
+# 'The Bride!' First Reactions Call Gothic Horror Film a "Big Swing"
+
+Movie News, The Bride!
+
+Fri, 27 Feb 2026 16:54:26 GMT
+
+https://movieweb.com/the-bride-first-reactions/
+
+The first reactions for Maggie Gyllenhaal's 'The Bride!' has arrived, and critics are eating up the unconventional take on a horror classic.
+---------
+
+# 'Mexicali' Clip Teases Bren Foster's New Action Thriller
+
+Movie News, Action, Thriller, Martial Arts
+
+Fri, 27 Feb 2026 16:41:54 GMT
+
+https://movieweb.com/mexicali-clip-action-thriller/
+
+The newly emerging action hero goes to war in an action-packed clip from next month's martial arts thriller.
+---------
+
+# Jonathan Majors to Star in New Untitled Daily Wire Action Film
+
+Movie News, Jonathan Majors, Action
+
+Fri, 27 Feb 2026 16:08:10 GMT
+
+https://movieweb.com/jonathan-majors-action-movie-daily-wire/
+
+After years of legal issues, former Marvel star Jonathan Majors is now in line to star in an unspecified new movie produced by The Daily Wire.
+---------
+
 # In The Blink Of An Eye Clip Finds Rashida Jones & Daveed Diggs At Odds In Love
 
 Exclusive, In the Blink of an Eye, Rashida Jones, Daveed Diggs
