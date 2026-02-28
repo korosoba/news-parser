@@ -1,3 +1,267 @@
+# Pokémon Winds & Waves: New Pokémon Center Balloon Feature Revealed
+
+Gaming, Pokémon Winds and Waves, Triple-A Games, Pokemon
+
+Sat, 28 Feb 2026 16:47:11 GMT
+
+https://screenrant.com/pokemon-winds-waves-pokemon-center-cool-detail/
+
+Nintendo's Pokémon Winds & Waves announcement reveals a clever new Pokémon Center feature, but fans are divided in their reactions to it.
+---------
+
+# 10 Best Shows That Only Ran For One-Season
+
+Streaming TV
+
+Sat, 28 Feb 2026 16:46:19 GMT
+
+https://screenrant.com/best-one-season-tv-shows-complete-story/
+
+Many iconic television shows go on for years, but some of the best stories only need one stellar season to cement their spot in TV history.
+---------
+
+# Avatar: Fire And Ash Box Office Hits Major Milestone, But In Triple The Time That The OG Movies Took
+
+Movies, Box Office, Avatar, Avatar: Fire and Ash
+
+Sat, 28 Feb 2026 16:34:30 GMT
+
+https://screenrant.com/avatar-fire-and-ash-box-office-400-million-domestic-milestone/
+
+Avatar: Fire and Ash passes a major milestone at the domestic box office, but it does so significantly slower than the two previous installments.
+---------
+
+# Jason Statham & Guy Ritchie’s Underrated & Hilarious Crime Movie Is Now Free To Stream
+
+Movies, Snatch
+
+Sat, 28 Feb 2026 16:30:40 GMT
+
+https://screenrant.com/snatch-movie-streaming-tubi-free-february-2026/
+
+26 years after first being released, Guy Ritchie's crime comedy Snatch, starring Jason Statham and Brad Pitt, is now streaming for free on Tubi.
+---------
+
+# One Actress' Historic Oscar Win Still Holds A Huge Record 88 Years Later
+
+Classic Movies, Oscars
+
+Sat, 28 Feb 2026 16:30:19 GMT
+
+https://screenrant.com/oscars-youngest-actor-multiple-wins-record/
+
+Luise Rainer made Oscars history 88 years ago with her second Academy Award win, and one record associated with it still stands to this day.
+---------
+
+# Pokémon Winds & Waves' New Pikachu Designs Are Creating Unbelievable Hype
+
+Gaming, Pokémon Winds and Waves, Triple-A Games
+
+Sat, 28 Feb 2026 16:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-pikachu-designs-fan-reaction/
+
+While Pokémon Pokopia is set to get a new form of Pikachu, Wind & Waves shocked the world with the reveal of two eccentric characters.
+---------
+
+# Scream 7 Box Office Debut Rockets Past Projections To Shatter All-Time Franchise Record
+
+Movies, Box Office, Scream, Scream 7, Horror
+
+Sat, 28 Feb 2026 16:05:29 GMT
+
+https://screenrant.com/scream-7-box-office-opening-weekend-domestic-chart-report/
+
+Scream 7 surges more than $10 million past its original opening weekend projections, breaking an all-time box office record for the horror franchise.
+---------
+
+# Young Sherlock Is Wanted For Murder In Exclusive First Look
+
+TV, Young Sherlock
+
+Sat, 28 Feb 2026 16:00:18 GMT
+
+https://screenrant.com/young-sherlock-wanted-for-murder-new-images/
+
+Exclusive: New first look images of Prime Video's Young Sherlock reveals that the titular character is wanted for several charges.
+---------
+
+# Ana De Armas & Keanu Reeves' Can’t-Miss R-Rated Thriller Is Set To Take Over New Streaming Home Next Month
+
+Movies, From the World of John Wick: Ballerina, John Wick
+
+Sat, 28 Feb 2026 16:00:18 GMT
+
+https://screenrant.com/keanu-reeves-ana-de-armas-ballerina-john-wick-hbo-max-streaming-march-2026/
+
+After becoming a hit on one platform, Ana de Armas and Keanu Reeves' R-rated thriller is about to take over a new streaming home in March.
+---------
+
+# Step Up: The Profitable Dance Franchise That Got Forgotten
+
+Movies, Step Up, Recommendation
+
+Sat, 28 Feb 2026 16:00:18 GMT
+
+https://screenrant.com/step-up-anniversary-successful-underrated-franchise/
+
+The Step Up movie series grossed over $650 million and was hugely profitable, yet nobody seems to talk about it anymore.
+---------
+
+# 5 Strongest Anime Characters Who Never Actually Fought Anyone
+
+Anime
+
+Sat, 28 Feb 2026 16:15:13 GMT
+
+https://www.cbr.com/strongest-anime-characters-no-fights/
+
+These anime characters are all incredibly powerful despite the fact that they never fight anyone in their respective series.
+---------
+
+# Evangelion 30th Anniversary Phone Case Collection Is Finally Coming to the U.S.
+
+Anime, Neon Genesis Evangelion
+
+Sat, 28 Feb 2026 16:00:12 GMT
+
+https://www.cbr.com/evangelion-casetify-phone-case-america-release/
+
+The highly sought-after Neon Genesis Evangelion 30th anniversary phone case collection from CASETiFY is finally coming to the U.S.
+---------
+
+# Liam Neeson's Action Thriller Blacklist Hits No. 6 on Prime Video
+
+Movies, Blacklight
+
+Sat, 28 Feb 2026 16:00:12 GMT
+
+https://www.cbr.com/liam-neeson-action-blacklight-prime-video-success-february-2026/
+
+Inside the film's digital redemption.
+---------
+
+# Conan the Barbarian is Still the Dark Fantasy Gold Standard
+
+Movies, Conan the Barbarian
+
+Sat, 28 Feb 2026 16:00:12 GMT
+
+https://www.cbr.com/conan-the-barbarian-dark-fantasy-standard/
+
+Conan the Barbarian delivers the definitive dark fantasy story of the '80s, and decades later, other movies are still trying to match it.
+---------
+
+# Brandon Sanderson's Apple TV Mistborn Movie Officially Gets Progress Update
+
+Movies, Brandon Sanderson, Apple TV
+
+Sat, 28 Feb 2026 15:55:11 GMT
+
+https://www.cbr.com/brandon-sanderson-apple-tv-movie-mistborn-progress-update/
+
+After claiming his novels don't work on streaming, Sanderson teamed up with Apple TV for two different adaptations.
+---------
+
+# Jessica Chastain Reveals Her Favorite Films by Nolan, Spielberg, Scorsese, and Kubrick
+
+Exclusives, Dreams, Jessica Chastain, Rupert Friend, Psychological Thriller
+
+Sat, 28 Feb 2026 16:41:08 GMT
+
+https://collider.com/jessica-chastain-dreams-erotic-thriller-favorite-christopher-nolan-movie-the-savant-interview/
+
+Jessica Chastain opens up about privilege, power dynamics, playing unlikable characters, and discusses the importance of challenging societal norms.
+---------
+
+# '1923' Star's World War II Biopic Reintroduces Itself on Streaming
+
+Movie News, Helen Mirren, Woman in Gold, 1923, Peacock
+
+Sat, 28 Feb 2026 16:40:12 GMT
+
+https://collider.com/1923-star-helen-mirren-world-war-2-biopic-woman-in-gold-streaming-peacock-march-2026/
+
+Helen Mirren played a Holocaust survivor in the film Woman in Gold, which is heading to a new streaming home this March. Find out more.
+---------
+
+# The 21st Century’s Smartest Sci-Fi Gem Lands on Free Streaming
+
+Movie News, Sci-Fi, Ex Machina, Alex Garland, Plex
+
+Sat, 28 Feb 2026 16:20:12 GMT
+
+https://collider.com/ex-machina-smartest-sci-fi-film-21st-century-streaming-plex-march-2026/
+
+This century's best sci-fi sleeper hit, Ex Machina, starring Oscar Isaac and Alicia Vikander, will stream for free this March. Read on for more.
+---------
+
+# 33 Years Later, Steven Spielberg's Definitive World War II Masterpiece Finds a New Streaming Home
+
+Movie News, Schindler's List, Steven Spielberg, Liam Neeson, Ralph Fiennes
+
+Sat, 28 Feb 2026 16:00:12 GMT
+
+https://collider.com/steven-spielberg-schindlers-list-definitive-world-war-2-movie-ever-made-streaming-peacock-march-2026/
+
+Steven Spielberg's epic World War II movie Schindler's List is coming to a new streaming platform this March. Find out more.
+---------
+
+# 10 Movies From 1945 That Are Now Considered Classics
+
+Movie, Spellbound, Classics, Mildred Pierce, Rome, Open City
+
+Sat, 28 Feb 2026 15:55:12 GMT
+
+https://collider.com/best-1945-movies-classics/
+
+Spellbound, Mildred Pierce, and Rome, Open City are all among the very best movies from the year 1945 we now consider classics.
+---------
+
+# 3 Episodes In, ‘Paradise’ Season 2 Just Confirmed the Bunker’s Biggest Threat
+
+TV Features, Paradise, Julianne Nicholson, Hulu, Sci-Fi
+
+Sat, 28 Feb 2026 15:41:12 GMT
+
+https://collider.com/paradise-season-2-biggest-threat-jane/
+
+Jane's cold-blooded efficiency and unpredictability have made her the biggest threat in Paradise Season 2.
+---------
+
+# 'Scream 7' Just Delivered a Killer Opening, Despite the Backlash
+
+Movie News, Scream 7, Courteney Cox, Neve Campbell, Isabel May
+
+Sat, 28 Feb 2026 15:41:01 GMT
+
+https://collider.com/scream-7-box-office-debut-28-million/
+
+Despite backlash and divisive reviews, Scream 7 just delivered a killer opening at the box office. Neve Campbell and Courteney Cox star.
+---------
+
+# Phil Lord & Chris Miller Talk “Different Universe" Spider-Noirs [Exclusive]
+
+Exclusives, Spider-Noir, Phil Lord, Chris Miller, Spider-Man: Into The Spider-Verse
+
+Sat, 28 Feb 2026 16:30:17 GMT
+
+https://movieweb.com/spider-noir-phil-lord-chris-miller/
+
+Nicolas Cage's animated and live-action Spider-Noir have some notable differences, according to 'Spider-Verse' writers Chris Miller and Phil Lord.
+---------
+
+# 'Girlboss' Is One of Netflix's Best Shows Despite Its Swift Cancellation
+
+Features, Girlboss, Netflix, Britt Robertson
+
+Sat, 28 Feb 2026 16:00:17 GMT
+
+https://movieweb.com/this-swiftly-canceled-netflix-flop-is-actually-an-underrated-masterpiece/
+
+Even though Netflix's 'Girlboss' was panned upon its 2017 release, it's a masterful show that deserves a second chance.
+---------
+
 # Captain America: Civil War - Masterful Balance Of MCU Characters
 
 Movies, Captain America: Civil War, Marvel Cinematic Universe, Op-Ed
