@@ -1,3 +1,245 @@
+# Resident Evil Requiem Has A Major Villain Problem
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Sat, 28 Feb 2026 22:31:19 GMT
+
+https://screenrant.com/resident-evil-requiem-villain-problem-zeno/
+
+Resident Evil Requiem's dynamic protagonist duo doesn't get the competition it deserves, and it all comes down to the same underlying issue.
+---------
+
+# Super-Rant Rewatch: 2008's Incredible Hulk Is A Better MCU Movie Than You Remember
+
+Superheroes, The Incredible Hulk, Marvel Cinematic Universe
+
+Sat, 28 Feb 2026 22:31:19 GMT
+
+https://screenrant.com/super-rant-rewatch-the-incredible-hulk-edward-norton-mcu-op-ed/
+
+Our Super Rant Rewatch this weekend is 2008's The Incredible Hulk, a truly fun MCU movie to revisit 18 years later in light of Bruce Banner's future.
+---------
+
+# Every Person On The Sgt. Pepper’s Cover Who Is Still Alive Today
+
+Music, The Beatles
+
+Sat, 28 Feb 2026 22:00:18 GMT
+
+https://screenrant.com/every-person-on-the-sgt-peppers-cover-who-is-still-alive-today/
+
+The figures on the cover of Sgt. Pepper's give fascinating insight into The Beatles' internal world, but only five people are still with us today
+---------
+
+# Final Fantasy 9 Remake Release Window Divides Gamers
+
+Gaming, Final Fantasy 9
+
+Sat, 28 Feb 2026 22:00:18 GMT
+
+https://screenrant.com/final-fantasy-9-remake-release-window-leaks-speculation/
+
+A potential remake of Final Fantasy IX has long been rumoured, but it's arguably looking less like than ever.
+---------
+
+# 10 Biggest Nintendo Franchises Of All Time, Ranked
+
+Gaming, Nintendo, Super Mario
+
+Sat, 28 Feb 2026 22:00:18 GMT
+
+https://screenrant.com/biggest-nintendo-franchises-all-time/
+
+Explore the top 10 biggest Nintendo franchises of all time, ranked by total video game unit sales, including Mario, Pokémon, Zelda, and more.
+---------
+
+# Hulu’s Most Overlooked Drama Quietly Returns as 2026’s Biggest Sleeper Hit
+
+Anime, Medalist, Medalist - Season 2, Hulu
+
+Sat, 28 Feb 2026 22:00:18 GMT
+
+https://screenrant.com/best-hulu-anime-medalist-sleeper-hit-streaming-drama/
+
+Hulu has the true best returning anime of Winter 2026, and it isn't Jujutsu Kaisen, or even Frieren, but this 2025 sleeper hit.
+---------
+
+# All Oscars 2026 Best Actress Performances, Ranked Worst To Best
+
+New Movies, Oscars
+
+Sat, 28 Feb 2026 21:45:18 GMT
+
+https://screenrant.com/oscars-2026-best-actress-nominees-ranked-worst-best-list/
+
+At the 2026 Academy Awards, Best Actress looks all but sewn up. But is the most deserving performance the one most likely to win on Oscars night?
+---------
+
+# Dragon Ball Reveals Rare 10th Anniversary Goku Art in Its Original Form After 30 Years
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sat, 28 Feb 2026 22:30:12 GMT
+
+https://www.cbr.com/dragon-ball-goku-rare-art-10-year-anniversary/
+
+A rare '90s illustration of Goku has been unearthed in full color for fans to check out.
+---------
+
+# HBO’s Task is the Best Crime Show of the Decade
+
+TV, HBO Max, Thriller, Task
+
+Sat, 28 Feb 2026 22:25:12 GMT
+
+https://www.cbr.com/hbo-task-best-crime-show-of-decade/
+
+HBO has often been the home of incredible crime series, but its latest thriller is one of the best of the decade.
+---------
+
+# This Underrated '90s Fantasy Is Still Better Than Most Modern Isekai Anime
+
+Anime, Those Who Hunt Elves, Fantasy, Isekai
+
+Sat, 28 Feb 2026 22:15:12 GMT
+
+https://www.cbr.com/isakei-those-who-hunt-elves-underrated-90s-fantasy-anime/
+
+Nearly three decades after releasing, one classic fantasy anime is a refreshing must-watch for any Isekai fan.
+---------
+
+# 5 Best Post-Apocalyptic TV Shows of All Time, Ranked
+
+TV, Science Fiction, The Last of Us, The Walking Dead
+
+Sat, 28 Feb 2026 22:00:11 GMT
+
+https://www.cbr.com/best-post-apocalyptic-tv-shows-list/
+
+In a crowded genre, post-apocalyptic shows like The Walking Dead and Station Eleven are a cut above the rest.
+---------
+
+# Keanu Reeves’ Generation-Defining Action Blockbuster Makes the Move to a New Streamer
+
+Movie News, Keanu Reeves, Speed, Sandra Bullock, Jan de bont
+
+Sat, 28 Feb 2026 22:41:12 GMT
+
+https://collider.com/keanu-reeves-speed-generation-defining-action-blockbuster-streaming-hulu-march-2026/
+
+The 1994 blockbuster Speed, starring Keanu Reeves and Sandra Bullock, is heading to a new streamer this March. Find out more.
+---------
+
+# 10 Thrillers That Are Almost Masterpieces
+
+Movie, Thriller, I'm Thinking of Ending Things, Wait Until Dark, Heretic
+
+Sat, 28 Feb 2026 22:30:12 GMT
+
+https://collider.com/thriller-movies-almost-masterpieces/
+
+Great thrillers like I'm Thinking of Ending Things and Wait Until Dark come extremely close to perfection and are only held back by minor details.
+---------
+
+# 6 Fantasy TV Shows With the Best Finales
+
+TV, Arcane, Star Wars: The Clone Wars, Avatar: The Last Airbender, Fantasy
+
+Sat, 28 Feb 2026 22:26:13 GMT
+
+https://collider.com/fantasy-tv-shows-best-finales/
+
+Revisit the best fantasy TV finales that left fans satisfied with how arcs were wrapped up, seen in shows like Arcane and Avatar: The Last Airbender.
+---------
+
+# The 5-Movie Horror Franchise With a Cult Following Arrives on HBO Max Next Month
+
+Movie News, Final Destination, Final Destination Bloodlines, Devon Sawa, Ali Larter
+
+Sat, 28 Feb 2026 22:20:12 GMT
+
+https://collider.com/final-destination-1-2-3-5-cult-horror-franchise-coming-to-streaming-hbo-max-march-2026/
+
+A handful of movies from the Final Destination franchise will all scream onto a new streamer next month. Find out more here.
+---------
+
+# 22 Years Later, 'Scrubs' Classic Horror Homage Is Still One of the Sitcom's Must-Watch Episodes
+
+TV Features, Scrubs, Zach Braff, Brendan Fraser, John C. McGinley
+
+Sat, 28 Feb 2026 22:18:12 GMT
+
+https://collider.com/scrubs-brendan-fraser-sixth-sense-sitcom-ben-death-episode/
+
+Scrubs' tribute to The Sixth Sense in "My Screw Up" featuring the return of Brendan Fraser is one of the most devastating sitcom episodes ever.
+---------
+
+# Elton John’s Most Personal Song Brought Him to Tears and Contains His Most Heartbreaking Lyrics
+
+Music Features, Music, Rock, Elton John, Billboard Hot 100
+
+Sat, 28 Feb 2026 22:07:23 GMT
+
+https://collider.com/elton-john-most-personal-song-we-all-fall-in-love-sometimes/
+
+Elton John was moved to tears creating one of his most emotional and heartbreaking songs, full of deeply personal and vulnerable lyrics.
+---------
+
+# 11 Years Later, Tom Hardy’s Brutal 156-Minute Survival Western Lands on Hulu
+
+Movie News, Tom Hardy, The Revenant, Leonardo DiCaprio, Alejandro G. Inarritu
+
+Sat, 28 Feb 2026 22:01:12 GMT
+
+https://collider.com/the-revenant-tom-hardy-brutal-survival-western-streaming-hulu-march-2026/
+
+Tom Hardy and Leonardo DiCaprio's epic Western film The Revenant is coming to a new streamer in March. Find out more.
+---------
+
+# What Are the ‘Backrooms’ in A24’s New Horror Movie, Anyway?
+
+Movie Features, Backrooms, A24, Horror, Chiwetel Ejiofor
+
+Sat, 28 Feb 2026 21:53:12 GMT
+
+https://collider.com/the-backrooms-explained-horror-a24/
+
+A24 has released the first trailer for their latest horror film, Backrooms. But what is going on in these empty rooms?
+---------
+
+# Gerard Butler’s 96-Minute Rom-Com Is About to Disappear From Netflix
+
+Movie News, The Ugly Truth, Gerard Butler, Katherine Heigl, Netflix
+
+Sat, 28 Feb 2026 21:40:12 GMT
+
+https://collider.com/gerard-butler-96-minute-rom-com-the-ugly-truth-leaving-netflix-february-2026/
+
+Netflix is removing Gerard Butler's controversial misfire with Katherine Heigl that grossed over $200 million at the box office.
+---------
+
+# Apple TV's 'Neuromancer' Cast & Character Guide
+
+Features, Neuromancer
+
+Sat, 28 Feb 2026 22:30:16 GMT
+
+https://movieweb.com/apple-tvs-neuromancer-cast-characters/
+
+Meet the cast of characters slated to star in the adaptation of William Gibson's 'Neuromancer.'
+---------
+
+# 'Task' Is a Perfect One-Night HBO Thriller to Binge Watch
+
+Features, Task
+
+Sat, 28 Feb 2026 22:01:17 GMT
+
+https://movieweb.com/task-hbo-thriller-perfect-binge/
+
+'Task' is an excellent crime thriller on HBO starring Mark Ruffalo and Tom Pelphrey, and it has been renewed for Season 2.
+---------
+
 # Karl Urban Wants To Reprise His Judge Dredd Role
 
 Movies, Karl Urban, Dredd, Judge Dredd
