@@ -1,3 +1,300 @@
+# Pokémon Z-A Home Support Window & Free Bonus Officially Revealed
+
+Gaming, Pokemon Legends Z-A, Triple-A Games
+
+Sat, 28 Feb 2026 20:32:21 GMT
+
+https://screenrant.com/pokemon-za-home-support-release-window/
+
+Pokémon Home support is finally coming to Pokémon Legends: Z-A, nearly half a year after the game's release, along with some cool rewards.
+---------
+
+# Prime Video's Expensive Spy Thriller Show Gets Season 2 Update After A Series Of Spinoff Cancellations
+
+TV, Citadel
+
+Sat, 28 Feb 2026 20:28:48 GMT
+
+https://screenrant.com/citadel-season-2-update-priyanka-chopra-jonas/
+
+After the cancellation of several spinoff shows, one star has now weighed in on season 2 of Amazon's exceedingly expensive spy thriller show.
+---------
+
+# 2-Part A24 Comedy Series Maintains Rare Rotten Tomatoes Achievement
+
+TV, Dreaming Whilst Black
+
+Sat, 28 Feb 2026 20:20:11 GMT
+
+https://screenrant.com/dreaming-whilst-black-a24-bbc-rotten-tomatoes-achievement/
+
+A comedy series produced by A24 has recently returned for its second installment, and it has maintained a rare achievement on Rotten Tomatoes.
+---------
+
+# A24’s Horror Movie Adapts Creepypasta That Inspired Apple TV’s Sci-Fi Masterpiece
+
+Movies, Severance, Backrooms, Apple TV, A24
+
+Sat, 28 Feb 2026 20:15:19 GMT
+
+https://screenrant.com/backrooms-severance-creepypasta-apple-tv-a24/
+
+A24’s most anticipated horror movie of 2026 is interestingly based on an iconic creepypasta that also inspired one of the best Apple TV sci-fi shows.
+---------
+
+# Toy Story 5 Is Honoring The '90s "Toys Come To Life" Movie Everyone Forgot
+
+New Movies, Toy Story 5
+
+Sat, 28 Feb 2026 20:01:19 GMT
+
+https://screenrant.com/toy-story-5-small-soldiers-tribute/
+
+Toy Story 5 marks the latest entry in Pixar's long-running franchise, but it pays tribute to a much less famous '90s movie about toys coming to life.
+---------
+
+# 15 Years Later, Dark Souls Players Can Explore A Completely New Area
+
+Gaming, Dark Souls
+
+Sat, 28 Feb 2026 20:01:19 GMT
+
+https://screenrant.com/dark-souls-new-area-2026-fan-project/
+
+Discover a previously unplayable area in Dark Souls, accessible through a fan-made mod.
+---------
+
+# 3 Years Ago, Michael B. Jordan's Fourth Creed Movie Was Quietly Released
+
+New Movies, Creed
+
+Sat, 28 Feb 2026 19:55:18 GMT
+
+https://screenrant.com/creed-michael-b-jordan-fourth-movie-quiet-release/
+
+Michael B. Jordan has been at the center of an entire Creed trilogy, but a fourth film in the boxing franchise was quietly released three years ago.
+---------
+
+# How Lost Revolutionized TV Storytelling And Changed Viewing Habits
+
+Classic TV, Lost
+
+Sat, 28 Feb 2026 19:45:19 GMT
+
+https://screenrant.com/lost-changed-fan-culture-television-internet-theories/
+
+There are great TV shows, and then there are shows that change television, signaling a permanent and fundamental paradigm shift in our viewing habits.
+---------
+
+# Bloodborne PS5 Remake Leak Has Gamers Losing Their Minds
+
+Gaming, Bloodborne, PlayStation 5, Triple-A Games
+
+Sat, 28 Feb 2026 19:41:59 GMT
+
+https://screenrant.com/bloodborne-playstation-5-remake-leak/
+
+FromSoft's Bloodborne is a long-overdue for a PlayStation 5 upgrade, and the latest report provides some interesting insight about the situation.
+---------
+
+# New Crunchyroll Partnership Is Big News for Solo Leveling Collectors
+
+Anime, merchandise, Crunchyroll, Solo Leveling
+
+Sat, 28 Feb 2026 20:30:12 GMT
+
+https://www.cbr.com/crunchyroll-jakks-pacific-partnership/
+
+The international anime streaming giant has signed a major deal that could turn out to be great news for Solo Leveling fans.
+---------
+
+# Kevin Smith Took the Comic Book World by Storm With Green Arrow's Return
+
+Comics, Green Arrow, CSBG, look back
+
+Sat, 28 Feb 2026 20:28:33 GMT
+
+https://www.cbr.com/kevin-smith-green-arrow-return-look-back/
+
+A look back to February 2001, as Kevin Smith returned Green Arrow to the DC Universe in a major new series
+---------
+
+# Community Writer Confirms Real Reason About the Movie's Delay: 'Do Not Be Upset'
+
+Movies, Community
+
+Sat, 28 Feb 2026 20:11:57 GMT
+
+https://www.cbr.com/community-writer-movie-delay-reason/
+
+One of Community's top creatives opens up about the exceedingly long wait that fans have endured leading up to the feature film finale.
+---------
+
+# Netflix's Bridgerton Has Surpassed The Night Agent to No. 1
+
+TV, Bridgerton
+
+Sat, 28 Feb 2026 20:00:11 GMT
+
+https://www.cbr.com/bridgerton-season-1-part-2-netflix-success-february-2026/
+
+Although both shows are part of Netflix's Most Popular TV Shows, only one will end up being the winner.
+---------
+
+# Game of Thrones: Every Season of Every Show, Officially Ranked
+
+TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Sat, 28 Feb 2026 20:00:11 GMT
+
+https://www.cbr.com/game-of-thrones-franchise-every-season-ranked/
+
+George R. R. Martin's works have been adapted into TV shows three different times on HBO. Let's see how every season ranks against one another.
+---------
+
+# Over a Decade Later, Scream's Smartest Ghostface Reveal May Never Be Topped
+
+TV, Scream, Scream 4, Horror
+
+Sat, 28 Feb 2026 19:45:12 GMT
+
+https://www.cbr.com/scream-4-smartest-ghostface-reveal-unbeatable/
+
+Billy Loomis and Stu Macher will always be iconic, but the best Ghostface reveal actually occurred years later.
+---------
+
+# 11 Years Later, This Long-Running Crime Procedural Is Still Getting Better
+
+TV Features, The Mentalist, Simon Baker, Robin Tunney, CBS
+
+Sat, 28 Feb 2026 20:44:12 GMT
+
+https://collider.com/the-mentalist-crime-procedural-simon-baker-getting-better/
+
+The Mentalist set itself apart from other crime procedurals with its unique blend of humor, illusions, and a magnetic performance from Simon Baker.
+---------
+
+# 20 Years Ago, Kirsten Dunst's ‘Wuthering Heights’ Predecessor Shocks Audiences on a New Streamer
+
+Movie News, Marie Antoinette, Kirsten Dunst, Sofia Coppola, Wuthering Heights
+
+Sat, 28 Feb 2026 20:40:12 GMT
+
+https://collider.com/marie-antoinette-kirsten-dunst-sofia-coppola-cult-classic-streaming-hulu-march-2026/
+
+Before Emerald Fennell's Wuthering Heights, Sofia Coppola made a Marie Antoinette movie that earned the ire of the French. It's now coming to Hulu.
+---------
+
+# 10 Best Picture Winners That Aged Like Fine Wine
+
+Movie, Oscars, Casablanca, The Godfather, Lawrence of Arabia
+
+Sat, 28 Feb 2026 20:36:12 GMT
+
+https://collider.com/oscar-best-picture-winners-aged-like-fine-wine/
+
+Recent picks like Parasite and all-time greats like Casablanca rank among the Best Picture Oscar winners that have aged the greatest over the decades.
+---------
+
+# All 12 'SNL' Season 51 Hosts So Far, Ranked
+
+TV, Saturday Night Live, Bad Bunny, Sabrina Carpenter, Ariana Grande
+
+Sat, 28 Feb 2026 20:28:12 GMT
+
+https://collider.com/saturday-night-live-season-51-hosts-ranked/
+
+From Super Bowl headliner Bad Bunny to Grammy-winning performer Sabrina Carpenter, we rank the guest hosts of Season 51 of the NBC series SNL.
+---------
+
+# 21 Years Later, Heath Ledger's Most Underrated Gem Is a Can't-Miss on Streaming
+
+Movie News, Lords of Dogtown, Heath Ledger, Catherine Hardwicke, Hulu
+
+Sat, 28 Feb 2026 20:20:12 GMT
+
+https://collider.com/heath-ledger-greatest-underrated-movie-lords-of-dogtown-streaming-hulu-march-2026/
+
+One of Heath Ledger's breakout Hollywood movies, Lords of Dogtown, is skating toward a new streamer this March. Find out more.
+---------
+
+# 8 Best HBO Shows Everyone Has Been Sleeping On
+
+TV, HBO, Titans, His Dark Materials, Tokyo Vice
+
+Sat, 28 Feb 2026 20:17:12 GMT
+
+https://collider.com/best-hbo-shows-everyone-sleeping-on/
+
+His Dark Materials, Titans, Tokyo Vice, Togetherness, I May Destroy You, and more make up our list of the best HBO shows everyone is sleeping on.
+---------
+
+# 10 Worst Horror Movies That Are Truly 0/10
+
+Movie, Manos: The Hands of Fate, Birdemic: Shock and Terror, Horror, Aliens vs. Predator: Requiem
+
+Sat, 28 Feb 2026 20:17:12 GMT
+
+https://collider.com/worst-horror-movies/
+
+While there have been many terrible horror movies released over the years, films like Troll 2, Slender Man, and Jaws: The Revenge are among the worst.
+---------
+
+# 10 Most 6/7 Family Movies of All Time, Ranked
+
+Movie, Family, Mary Poppins Returns, Charlie and the Chocolate Factory, The Legend of Ochi
+
+Sat, 28 Feb 2026 20:07:12 GMT
+
+https://collider.com/most-6-7-family-movies-of-all-time-ranked/
+
+Scooby-Doo, Mary Poppins Returns, and Bedknobs and Broomsticks are all among the most slightly above-agerage, 6/7 family movies ever made.
+---------
+
+# Mel Gibson’s Most Underrated Performance Gets Another Chance on Streaming
+
+Movie News, Mel Gibson, Dragged Across Concrete, Crime, Plex
+
+Sat, 28 Feb 2026 20:01:12 GMT
+
+https://collider.com/mel-gibson-most-underrated-performance-dragged-across-concrete-streaming-plex-march-2026/
+
+Mel Gibson's most underrated performance in Dragged Across Concrete will be available to stream on a new platform this March. Find out where below.
+---------
+
+# Glen Powell’s 133-Minute Stephen King Sci-Fi Remake Runs Past a Major Streaming Milestone
+
+Movie News, Glen Powell, Stephen King, The Running Man, Edgar Wright
+
+Sat, 28 Feb 2026 19:59:12 GMT
+
+https://collider.com/glen-powell-stephen-king-sci-fi-remake-the-running-man-streaming-milestone-paramount-plus-february-2026/
+
+Edgar Wright's adaptation of Stephen King's The Running Man has surpassed an important milestone on streaming.
+---------
+
+# Where 'Monarch' Season 2 Fits Into the Monsterverse Timeline
+
+Features, Monarch: Legacy of Monsters
+
+Sat, 28 Feb 2026 20:30:16 GMT
+
+https://movieweb.com/monarch-season-2-monsterverse-timeline-explained/
+
+'Monarch: Legacy of Monsters' Season 2 premiered on Apple TV on Feb. 27, 2026 and tells an exciting story about Godzilla in the Monsterverse timeline.
+---------
+
+# 'Scrubs' "Feelings Police" Scene Is the Perfect Choice for the Revival's First Proper Fantasy
+
+Features, Scrubs
+
+Sat, 28 Feb 2026 20:00:17 GMT
+
+https://movieweb.com/scrubs-revival-first-proper-fantasy/
+
+JD's fantasy sequences were a huge part of the appeal of 'Scrubs,' and the revival was proven those scenes are just as great as ever.
+---------
+
 # Which Ghostface Killed Each Victim In Scream 7
 
 Movies, Scream, Scream 7
