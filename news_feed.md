@@ -1,3 +1,278 @@
+# Prime Video’s 6-Season Space Opera Is One Of The Best Sci-Fi Book Adaptations Of The Century
+
+Classic TV, The Expanse, Prime Video, Sci-Fi
+
+Sat, 28 Feb 2026 23:30:20 GMT
+
+https://screenrant.com/prime-video-the-expanse-best-sci-fi-adaptation/
+
+Prime Video is the streaming home of an incredible 6-season space opera that is easily one of the greatest sci-fi book adaptations of the century.
+---------
+
+# Xbox Game Pass Subscribers Celebrate Modern Classic RPG Release
+
+Gaming, Xbox Game Pass, The Witcher 3: Wild Hunt
+
+Sat, 28 Feb 2026 23:30:20 GMT
+
+https://screenrant.com/xbox-game-pass-modern-classic-rpg-witcher-3/
+
+Xbox Game Pass' February 2026 games have arrived, and subscribers are celebrating a modern classic RPG that's been added to the service this month.
+---------
+
+# 8 2026 Anime That Have The Best Chance Of Beating Jujutsu Kaisen Season 3 As Anime Of The Year
+
+Anime, Jujutsu Kaisen
+
+Sat, 28 Feb 2026 23:30:20 GMT
+
+https://screenrant.com/anime-better-jujutsu-kaisen-season-3-2026/
+
+Even with Jujutsu Kaisen's mass appeal, these titles stand an equal chance of becoming anime of the year.
+---------
+
+# 20 Most Underrated Anime Series
+
+Anime
+
+Sat, 28 Feb 2026 23:01:21 GMT
+
+https://screenrant.com/most-underrated-anime/
+
+Some animes garner a lot of popularity but others tend to slip between the cracks. These are some underrated animes worth checking out.
+---------
+
+# D&D 5e Unleashes A New Expansion Inspired By FFXIV, WoW, & Avatar: The Last Airbender
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games, High Rollers - Season 3
+
+Sat, 28 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/dnd-5e-altheya-dragon-empire-high-rollers/
+
+Dungeons & Dragons players and DMs who enjoy games like FFXIV and WoW or perhaps shows like Frieren and Avatar will love this 5e supplement.
+---------
+
+# 10 Anime Somehow Worse Than One-Punch Man Season 3
+
+Anime, One Punch Man - Season 1
+
+Sat, 28 Feb 2026 23:01:19 GMT
+
+https://screenrant.com/anime-worse-one-punch-man-season-3/
+
+One-Punch Man's third season was undoubtedly bad. Unfortunately, a few other titles manage to do even worse.
+---------
+
+# The Complete Evolution Of Ghostface's Live-Action Appearances
+
+Movies, Scream, Scream 2, Scream 4, Scream VI, Scream 3, Scream 7
+
+Sat, 28 Feb 2026 22:55:19 GMT
+
+https://screenrant.com/ghostface-live-action-appearances-evolution/
+
+A spooky store-bought mask became horror royalty.
+---------
+
+# One Piece and Crocs Set Release Date for Luffy, Chopper & Thousand Sunny Clogs
+
+Anime, One Piece, Clothing, merchandise
+
+Sat, 28 Feb 2026 23:30:12 GMT
+
+https://www.cbr.com/one-piece-crocs-release-date-luffy-chopper-thousand-sunny-spring-2026/
+
+The new One Piece x Crocs collection drops this spring, allowing fans to sport their favorite characters.
+---------
+
+# Doctor Strange and Dracula Killed Each Other 50 Years Ago
+
+Comics, Horror, Doctor Strange, CSBG, Comic Book Legends Revealed, Dracula
+
+Sat, 28 Feb 2026 23:17:51 GMT
+
+https://www.cbr.com/doctor-strange-dracula-killed-each-other-50-years-ago/
+
+A look back to February 1976, when a "forced" Marvel crossover between Doctor Strange and Dracula saw the character both kill each other
+---------
+
+# The 96% RT Cartel Show That Officially Confirmed 5 Seasons Is the Perfect Series Length
+
+TV, Breaking Bad
+
+Sat, 28 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/breaking-bad-officially-confirmed-5-seasons-perfect-series-length/
+
+Quality TV is not easy to make, but one of the best shows ever proved how to do it, and it's a format that every series should follow.
+---------
+
+# 10 Easy-to-Binge Classic Anime That Are Essential Viewing for New Fans
+
+Anime, Neon Genesis Evangelion, Death Note, Puella Magi Madoka Magica, Code Geass: Lelouch of the Rebellion
+
+Sat, 28 Feb 2026 23:15:12 GMT
+
+https://www.cbr.com/classic-anime-easy-to-binge-essential-viewing/
+
+These 10 classic anime series are short enough to binge in a day, and provide an essential introduction to the medium.
+---------
+
+# Ridley Scott's $98M War Movie That Critics Hated Sets Streaming Release Date 29 Years Later
+
+Movies, G.I. Jane, ridley scott
+
+Sat, 28 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/ridley-scott-gi-jane-war-peacock-release-march-2026/
+
+The film was a commercial and critical disappointment.
+---------
+
+# Wayward Pines Is aTwisted Thriller for Severance Fans
+
+TV, Sci-Fi, Wayward Pines, Severance
+
+Sat, 28 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/severance-fans-must-watch-sci-fi-thriller-wayward-pines/
+
+This canceled mystery series might be underrated, but it's definitely worth watching, especially for fans of Severance.
+---------
+
+# 9 Open-World Games That Are 10/10, No Notes
+
+Games, open world
+
+Sat, 28 Feb 2026 23:00:12 GMT
+
+https://www.cbr.com/best-open-world-games-no-notes/
+
+Open-world gaming has come to shape the modern industry, and some titles have forged reputations as the pinnacle of that style.
+---------
+
+# Sam Raimi's Send Help Officially Ends a 39-Year-Old Trend
+
+Movies, Send Help, Horror, sam raimi
+
+Sat, 28 Feb 2026 22:50:12 GMT
+
+https://www.cbr.com/sam-raimi-return-to-horror-send-help/
+
+Sam Raimi has produced fantastic cult horror favorites since The Evil Dead in 1981, but his newest film changes things for the better.
+---------
+
+# Smile: For The Camera Continues the Acclaimed Horror Franchise With a Compelling New Story
+
+Comics, Smile
+
+Sat, 28 Feb 2026 22:49:54 GMT
+
+https://www.cbr.com/smile-for-the-camera-1-review-fashion-world-horror/
+
+In a CBR review of Smile: For the Camera #1, see how the Smile franchise continues with a compelling story of models in New York City in 2005
+---------
+
+# 44 Years Later, Ridley Scott’s Epic Sci-Fi Masterpiece Is Reborn as a Streaming Smash
+
+Movie News, Blade Runner, Ridley Scott, Harrison Ford, Blade Runner 2049
+
+Sat, 28 Feb 2026 23:21:12 GMT
+
+https://collider.com/ridley-scott-epic-sci-fi-masterpiece-blade-runner-streaming-success-prime-video-apple-tv-february-2026/
+
+44 years after it hit theaters, Ridley Scott's legendary sci-fi epic Blade Runner is reborn as the ultimate streaming smash. Read on for more.
+---------
+
+# 10 Most Devastating Sci-Fi TV Episodes of All Time, Ranked
+
+TV, Sci-Fi, Doctor Who, Black Mirror, The X-Files
+
+Sat, 28 Feb 2026 23:09:12 GMT
+
+https://collider.com/most-devastating-sci-fi-tv-episodes-all-time-ranked/
+
+Great sci-fi shows contain rich themes that challenge audiences, like in heavy episodes of Doctor Who, The X-Files, Westworld, and Black Mirror.
+---------
+
+# Don Cheadle's 5 Best Marvel Movies, Ranked
+
+Movie, Don Cheadle, Marvel, Iron Man 2, Iron Man 3
+
+Sat, 28 Feb 2026 23:05:12 GMT
+
+https://collider.com/don-cheadle-marvel-movies-best-ranked/
+
+From Iron Man 2 to Avengers: Endgame, this ranking reveals where Rhodey truly commands the MCU spotlight without backup energy.
+---------
+
+# 'Peaky Blinders' Creator's 'The Bear' Predecessor Says "Yes Chef" to a New Streamer
+
+Movie News, Bradley Cooper, Steven Knight, The Bear, Burnt
+
+Sat, 28 Feb 2026 23:01:12 GMT
+
+https://collider.com/peaky-blinders-creator-steven-knight-bradley-cooper-the-bear-predecessor-burnt-streaming-plex-march-2026/
+
+Burnt, the Bradley Cooper-led comedy drama from Steven Knight, is streaming on a new platform this March. Find out where below.
+---------
+
+# Leonardo DiCaprio's 5 Greatest Drama Movies, Ranked
+
+Movie, Leonardo DiCaprio, The Basketball Diaries, Revolutionary Road, Titanic
+
+Sat, 28 Feb 2026 22:53:12 GMT
+
+https://collider.com/leonardo-dicaprio-drama-movies-best-ranked/
+
+Titanic, The Basketball Diaries, and Revolutionary Road are all among the absolute greatest drama movies starring Leonardo DiCaprio.
+---------
+
+# 'Star Wars' Writer Gary Whitta Turned Down 'G.I. Joe' Movie
+
+Movie News, G.I. Joe 3, GI Joe
+
+Sat, 28 Feb 2026 23:19:42 GMT
+
+https://movieweb.com/star-wars-writer-reveals-why-he-turned-down-gi-joe-reboot/
+
+The writer was offered the job in November 2025, but turned it down due to not wanting to work with Paramount CEO David Ellison.
+---------
+
+# Best and Funniest Movie Drinking Games
+
+Movie Lists
+
+Sat, 28 Feb 2026 23:01:18 GMT
+
+https://movieweb.com/best-movie-drinking-games/
+
+Some films are better with alcohol and some aren't bearable without it. Here are some movies and specific rules for your next cinematic drinking game.
+---------
+
+# 'Hoppers' Star Bobby Moynihan Reveals the Movie's True Heroes [Exclusive]
+
+Movie News, Hoppers, Disney
+
+Sat, 28 Feb 2026 23:01:17 GMT
+
+https://movieweb.com/bobby-moynihan-beavers-heroes-hoppers/
+
+Beavers, more than any other animal, take the lion's share of the spotlight in Disney and Pixar's 'Hoppers.'
+---------
+
+# 'Breaking Bad' Fans Shouldn't Miss Bryan Cranston's 'Your Honor'
+
+Features, Your Honor, Bryan Cranston, Comparison Recommendation, Streaming Recommendations, Paramount Plus
+
+Sat, 28 Feb 2026 23:01:17 GMT
+
+https://movieweb.com/your-honor-streaming-paramount-plus-february-2026/
+
+The series is just as intense and gripping as the AMC series that earned the actor countless accolades.
+---------
+
 # Resident Evil Requiem Has A Major Villain Problem
 
 Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
