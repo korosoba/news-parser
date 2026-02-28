@@ -1,3 +1,201 @@
+# Scream's Intriguing Final Girl: Sam Carpenter's Complex Character
+
+Movies, Scream, Op-Ed
+
+Sat, 28 Feb 2026 14:46:18 GMT
+
+https://screenrant.com/scream-sam-carpenter-interesting-unique-final-girl/
+
+Sam Carpenter is one of horror's best final girls, yet she was also extra intriguing due to the connection to her father being a killer.
+---------
+
+# Sean Bean & Daniel Day-Lewis' Gritty New R-Rated Movie Releases On Netflix In March After Ending Huge 7-Year Streak
+
+Movies, Anemone
+
+Sat, 28 Feb 2026 14:44:27 GMT
+
+https://screenrant.com/sean-bean-anemone-netflix-streaming-release-march-2026/
+
+The new R-rated drama featuring award winners Daniel Day-Lewis (who had formerly retired from acting) and Sean Bean debuts on Netflix next month.
+---------
+
+# 10 Fantasy Series Better Than Most Blockbuster Movies
+
+Streaming TV, Fantasy
+
+Sat, 28 Feb 2026 14:38:44 GMT
+
+https://screenrant.com/fantasy-series-better-than-most-blockbuster-movies/
+
+Some fantasy TV shows are better than the most popular fantasy movies for their writing, plots, and character development, making them fantasy icons.
+---------
+
+# 20 Greatest Rock Albums Of The '90s, Ranked
+
+Music, Green Day, Rock, Classic Rock, Nirvana, Oasis, Metallica, U2
+
+Sat, 28 Feb 2026 14:37:08 GMT
+
+https://screenrant.com/greatest-90s-rock-albums-ranked/
+
+From the Grunge revolution to Pop-Punk's explosion, explore the 20 most influential '90s rock albums—including Nirvana and Metallica—that defined a de
+---------
+
+# Netflix's 2-Part Fantasy Series Based On A Best-Selling Trilogy Is One Of Its Best
+
+Classic TV, Netflix, Shadow and Bone
+
+Sat, 28 Feb 2026 14:35:10 GMT
+
+https://screenrant.com/shadow-and-bone-netflix-fantasy-series-best-canceled/
+
+Netflix created a two-season fantasy show based on a best-selling book trilogy, one that sadly ended too soon, highlighting a wider fantasy TV issue.
+---------
+
+# The Magicians: A Traditional Fantasy Series That Proves Budgets Don't Define Success
+
+Classic TV, The Magicians
+
+Sat, 28 Feb 2026 14:32:19 GMT
+
+https://screenrant.com/the-magicians-fantasy-television-traditional-shows-budget/
+
+Game of Thrones broke studios' brains, and now streamers think fantasy shows need fantastical budgets, but The Magicians proves that isn't true.
+---------
+
+# James Gunn’s DCU Would Go Even Harder With Daniel Radcliffe Playing This Classic DC Hero
+
+Movies, DC Universe, Daniel Radcliffe
+
+Sat, 28 Feb 2026 14:31:19 GMT
+
+https://screenrant.com/daniel-radcliffe-dc-comics-james-gunn-movie-the-question/
+
+There's only one answer to who the former Harry Potter star should be in the DCU.
+---------
+
+# Netflix's 3-Part Murder Mystery Series Is So Good, It Could Last Forever
+
+Classic Movies, Netflix
+
+Sat, 28 Feb 2026 14:31:19 GMT
+
+https://screenrant.com/netflix-knives-out-murder-mystery-series-last-forever/
+
+Netflix has strung together a very impressive murder mystery franchise that has shown consistently high quality, and it could go on forever.
+---------
+
+# Avengers: Armageddon Debuts New Superman-Esque Character
+
+Comics, The Avengers
+
+Sat, 28 Feb 2026 14:31:19 GMT
+
+https://screenrant.com/avengers-new-hero-superman-powers-design-details/
+
+Marvel has sneakily revealed the design for a Superman-style new character, officially debuting in the Avengers' next appearance.
+---------
+
+# Star Wars Fans Should Have "Total Faith" In Tradition-Breaking 2027 Movie, Says Star
+
+Movies, Star Wars: Starfighter, Star Wars
+
+Sat, 28 Feb 2026 14:28:51 GMT
+
+https://screenrant.com/ryan-gosling-star-wars-starfighter-shawn-levy-faith/
+
+EXCLUSIVE: Star Wars' 2027 movie breaks tradition, but Ryan Gosling assures fans that they should have "total faith" in the coming story.
+---------
+
+# Dragon Ball Would Make So Much More Sense If These 2 Sagas Were Swapped
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Sat, 28 Feb 2026 14:15:12 GMT
+
+https://www.cbr.com/dragon-ball-golden-frieza-universe-6-swap/
+
+There's an intricate and intuitive nature to Dragon Ball's storytelling, yet Dragon Ball Super would be much better if two sagas were swapped.
+---------
+
+# Community Star's Horror Hidden Gem Lands on Peacock in March
+
+Movies, Come Play, Peacock, Horror
+
+Sat, 28 Feb 2026 14:13:26 GMT
+
+https://www.cbr.com/gillian-jacobs-come-play-horror-peacock-release-march-2026/
+
+An underrated horror film starring an original Community cast member is heading to a new streaming home on Peacock next month.
+---------
+
+# Matthew Lillard's Bet With James Gunn and Freddie Prinze Jr. | Show and Tell
+
+Movies, Scream 7, Scooby Doo, Where Are You!
+
+Sat, 28 Feb 2026 14:02:12 GMT
+
+https://www.cbr.com/video/matthew-lillard-s-bet-with-james-gunn-and-freddie-prinze-jr-show-and-tell/
+
+More than hijinks and mysteries happen on the set of Scooby Doo! What did Matthew Lillard bring to Show and Tell Today?Matthew Lillard stars in Scream 7, Five Nights At Freddy's, Daredevil: Born Again and more! He also perfected the role of Shaggy. Any plans for returning to the role, like he did Stu Macher in Scream? Find out!
+---------
+
+# Sanrio Hello Kitty and Friends Gives Cinnamoroll a Rainbow Design Update With 'Plush' New Crossover
+
+Anime, sanrio, merchandise
+
+Sat, 28 Feb 2026 14:00:12 GMT
+
+https://www.cbr.com/sanrio-cinnamoroll-build-a-bear-rainbow-dreams-cinnamoroll-pompompurin/
+
+Pompompurin and Cinnamoroll are in their PJs and ready for a sleepover (complete with a few snacks) in the latest Sanrio Build-a-Bear plushie release.
+---------
+
+# Jason Statham's Divisive Remake of a 50-Year-Old Dystopian Sci-Fi Classic Is Back on Streaming
+
+Movie News, Jason Statham, Death Race, Roger Ebert, Peacock
+
+Sat, 28 Feb 2026 14:41:13 GMT
+
+https://collider.com/jason-statham-divisive-death-race-remake-dystopian-sci-fi-thriller-streaming-peacock-march-2026/
+
+Jason Statham's forgotten action film Death Race is tearing toward a new streaming home this March. Here's everything you should know.
+---------
+
+# 10 Years Later, Cillian Murphy’s Cult Action Thriller Goes Free
+
+Movie News, Cillian Murphy, Free Fire, Brie Larson, Plex
+
+Sat, 28 Feb 2026 14:20:12 GMT
+
+https://collider.com/cillian-murphy-cult-action-hit-free-fire-streaming-plex-march-2026/
+
+Cillian Murphy's underrated action gem, Free Fire, will be available to stream for free this March. Find out where below.
+---------
+
+# The Director of This 92% Rotten Tomatoes Sci-Fi Classic Once Called Its Main Character “The American Jesus”
+
+Movie, RoboCop, Peter Weller, Paul Verhoeven
+
+Sat, 28 Feb 2026 14:10:12 GMT
+
+https://collider.com/paul-verhoeven-robocop-92-percent-rotten-tomatoes-sci-fi-main-character-american-jesus/
+
+Paul Verhoeven’s 1987 masterpiece RoboCop is the most distinctly American version of the story of Jesus, and the whole series is streaming for free.
+---------
+
+# A 120-Minute Movie About a 1970s Counterculture Revival Is About to Find a New Audience
+
+Movie News, The Chosen, Religious, Jesus Revolution, Hulu
+
+Sat, 28 Feb 2026 14:01:12 GMT
+
+https://collider.com/the-chosen-star-jonathan-roumie-1970s-counterculture-jesus-revolution-streaming-hulu-march-2026/
+
+The Chosen star Jonathan Roumie's sleeper hit film, Jesus Revolution, is heading to a new streamer this March. Find out more here.
+---------
+
 # Every Season Of Aubrey Plaza’s 3-Part Sci-Fi Thriller 'Legion' Is Perfect From Start To Finish
 
 Streaming TV, Aubrey Plaza, Legion, Hulu
