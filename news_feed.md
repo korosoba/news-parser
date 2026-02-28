@@ -1,3 +1,388 @@
+# Naruto’s New Hokage Is an Insult to the Anime’s Most Underrated Ninja
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Sat, 28 Feb 2026 04:30:19 GMT
+
+https://screenrant.com/naruto-new-hokage-insult-shikamaru-intelligence-anime-theory/
+
+Acting Eighth Hokage Shikamaru Nara is in a tough position during Naruto's absence, and his decision-making has suffered in Boruto's new manga.
+---------
+
+# Netflix’s Returning 10-Part Comedy-Drama Is 10/10 Throughout Its Runtime
+
+Streaming TV, Netflix, Beef
+
+Sat, 28 Feb 2026 04:15:14 GMT
+
+https://screenrant.com/netflix-beef-comedy-drama-season-2-recommendation/
+
+Netflix is the streaming home of an incredible 10-episode comedy drama that gets better with each instalment and is also set to return very soon.
+---------
+
+# Boston Blue: Jonah & Sean's Evolving Bond After Life-Changing Shooting
+
+TV, Boston Blue, Boston Blue - Season 1, Marcus Scribner
+
+Sat, 28 Feb 2026 04:10:19 GMT
+
+https://screenrant.com/how-jonah-seans-relationship-changes-after-boston-blue-shooting-twist-interview/
+
+Marcus Scribner discusses how Jonah and Sean's bond deepens after a life-threatening shooting in Boston Blue, exploring their friendship's impact on the show's dynamics.
+---------
+
+# How Jonah Silver Is Quietly Becoming Danny Reagan's Replacement
+
+Network TV, Boston Blue, Marcus Scribner
+
+Sat, 28 Feb 2026 04:00:19 GMT
+
+https://screenrant.com/boston-blue-jonah-danny-reagan-similarities-marcus-scribner/
+
+As Jonah Silver grapples with his own sense of justice on Boston Blue, actor Marcus Scribner discusses the character's evolving path and the challenges of replacing Danny Reagan.
+---------
+
+# Spider-Man’s Cool, But Tom Holland’s Greatest Performance Is In An Overlooked 10-Part Apple TV Thriller
+
+Classic TV, Spider-Man, Tom Holland, The Crowded Room, Apple TV
+
+Sat, 28 Feb 2026 03:31:53 GMT
+
+https://screenrant.com/tom-holland-crowded-room-greatest-performance/
+
+It is hard not to associate Tom Holland with Spider-Man, but his best performance, so far, has been in an overlooked 10-part Apple TV crime thriller.
+---------
+
+# This Forgotten 1986 Jet Li Movie Was The End of An Era For The Martial Arts Genre
+
+Classic Movies, Martial Arts of Shaolin, Factoid
+
+Sat, 28 Feb 2026 03:30:19 GMT
+
+https://screenrant.com/martial-arts-of-shaolin-martial-arts-genre-end-of-era/
+
+A 1986 kung fu film starring Jet Li symbolizes the sad yet inevitable end to an incredible era in martial arts movie history.
+---------
+
+# A24's Mysterious New Movie Is The Latest To Employ A Winning Horror Film Formula
+
+Movies, Backrooms
+
+Sat, 28 Feb 2026 03:15:19 GMT
+
+https://screenrant.com/a24-horror-movie-backrooms-youtube-director/
+
+A24's unsettling new horror movie Backrooms plays in the dark depths of liminal space, and it shares a key trait with other recent horror hits.
+---------
+
+# This 10/10 John Wick Style 1970s Action Movie Almost Starred Bruce Lee
+
+Classic Movies, Bruce Lee
+
+Sat, 28 Feb 2026 03:00:31 GMT
+
+https://screenrant.com/httpsemakicmscombrand6articlesedit6331541/
+
+An amazing 1970s martial arts film with a style not unlike that of John Wick, was meant to star Bruce Lee before another genre icon landed the part.
+---------
+
+# Apple TV’s Upcoming Cyberpunk Show Is Based On An “Unfilmable” Book That Changed Sci-Fi Forever
+
+Streaming TV, Neuromancer, Sci-Fi, Apple TV
+
+Sat, 28 Feb 2026 03:00:31 GMT
+
+https://screenrant.com/apple-tv-cyberpunk-neuromancer-changed-sci-fi/
+
+One of Apple TV’s most anticipated cyberpunk shows adapts a book that is not only relevant for the times but responsible for changing sci-fi forever.
+---------
+
+# Brazilian Drama Radioactive Emergency: Netflix's New Nuclear Disaster Series
+
+Streaming TV, Chernobyl
+
+Sat, 28 Feb 2026 02:30:19 GMT
+
+https://screenrant.com/netflix-radioactive-emergency-show-chernobyl-nuclear-accident/
+
+This flawless historical drama series is one of a kind, but Netflix are trying to rival it with their new release about a similarly tragic event.
+---------
+
+# HBO Max Is Quietly Doing What Netflix Is Failing to Do for Cult Classic Anime
+
+Anime, Streaming, HBO Max, Netflix, Angel's Egg, 5 Centimeters per Second
+
+Sat, 28 Feb 2026 04:30:12 GMT
+
+https://www.cbr.com/hbo-max-vs-netflix-cult-classic-anime-march-2026/
+
+HBO Max's March 2026 content slate confirms that, while Netflix is the home for mainstream anime, Max is rapidly becoming a hub for hidden gems.
+---------
+
+# HBO's The Outsider Is a Perfect Stephen King Binge
+
+TV, The Outsider, Stephen King, Mystery, hbo
+
+Sat, 28 Feb 2026 04:00:12 GMT
+
+https://www.cbr.com/hbo-the-outsider-stephen-king-binge/
+
+This Stephen King adaptation offers a self-contained, 10-episode story that can be binge-watched in a single weekend.
+---------
+
+# This 13-Part Dark Manga Will Never Get an Anime Adaptation, & That’s a Good Thing
+
+Anime, Goodnight Punpun
+
+Sat, 28 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/goodnight-punpun-best-dark-manga-no-anime/
+
+Nearly a decade-and-a-half after its conclusion, Goodnight Punpun is still one of the best dark manga that has yet to receive an anime adaptation.
+---------
+
+# The Boroughs Already Sounds Like a Stranger Things Replacement
+
+TV, Netflix, Stranger Things, The Boroughs
+
+Sat, 28 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/duffer-bros-the-boroughs-stranger-things-replacement/
+
+The Duffer Brothers' new supernatural Netflix show is already resurrecting all the best parts of Stranger Things, with a twist.
+---------
+
+# 64 Years Later, Robert Duvall's Crime Classic Is Still the Best Debut in Movie History
+
+Movies, To Kill A Mockingbird, Crime
+
+Sat, 28 Feb 2026 03:45:12 GMT
+
+https://www.cbr.com/robert-duvall-crime-classic-to-kill-a-mockingbird-best-movie-debut-ever/
+
+While Duvall had very little screen time and barely any dialogue in the film, his contribution as Boo Radley goes way beyond mere visibility.
+---------
+
+# Bridgerton Season 4 Proves That the Series Needs All Siblings to Reunite
+
+TV, Netflix, Bridgerton
+
+Sat, 28 Feb 2026 03:30:12 GMT
+
+https://www.cbr.com/netflix-just-exposed-bridgerton-sibling-problem-with-1-scene/
+
+Bridgerton's focus on a sibling per season is great, but there are other siblings that have to return so the story makes more sense.
+---------
+
+# Apple TV's Neuromancer Will Be the Sci-Fi Event of the Decade
+
+TV, Neuromancer, Sci-Fi, Apple TV
+
+Sat, 28 Feb 2026 03:00:23 GMT
+
+https://www.cbr.com/apple-tv-neuromancer-sci-fi-cyberpunk-event/
+
+One book-to-screen adaptation that was once thought impossible is finally coming to Apple TV next year--and we couldn't be more excited.
+---------
+
+# 37 Years Ago, This Transformers Series Brought an End to the Most Iconic Era in Mecha Anime History
+
+Anime, Transformers, Transformers: Victory, mecha
+
+Sat, 28 Feb 2026 02:45:08 GMT
+
+https://www.cbr.com/transformers-victory-anime-g1-finale/
+
+Transformers: Victory was the final G1 anime, and it temporarily "ended" things for the robots in disguise by embracing its Japanese nature.
+---------
+
+# 5 Times Sakura Was a Better Ninja Than Naruto
+
+Anime, Naruto
+
+Sat, 28 Feb 2026 02:27:43 GMT
+
+https://www.cbr.com/naruto-sakura-better-ninja/
+
+Naruto and Sasuke aren't the only Hidden Leaf shinobi with generational talent.
+---------
+
+# Crunchyroll’s New Best Girl Is Officially a Bigger Star Than Ever
+
+Anime, Oshi No Ko, Crunchyroll
+
+Sat, 28 Feb 2026 02:21:42 GMT
+
+https://www.cbr.com/crunchyroll-oshi-no-ko-kana-arima-anime-best-girl/
+
+With Crunchyroll recently adding Oshi no Ko to its roster, Kana Arima's fate is practically sealed as anime's new best girl.
+---------
+
+# This Controversial Sitcom Opened to 8.8M Viewers 10 Years Ago, but Was Cancelled Just As Fast
+
+TV Features, Joel McHale, The Great Indoors, CBS, Paramount Plus
+
+Sat, 28 Feb 2026 03:14:13 GMT
+
+https://collider.com/the-great-indoors-joel-mchale-sitcom-ratings-cancellation-explained/
+
+Joel McHale’s CBS sitcom The Great Indoors sparked millennial backlash, but losing The Big Bang Theory sank it.
+---------
+
+# HBO and A24's Wild New 4-Part American Docuseries Is Unlike Any Other Weekend Binge
+
+TV Features, HBO, A24, Josh Safdie, Neighbors
+
+Sat, 28 Feb 2026 02:26:12 GMT
+
+https://collider.com/neighbors-hbo-a24-american-docuseries-perfect-weekend-binge/
+
+HBO and A24's captivating 4-part docuseries Neighbors features bizarre and kooky real-life neighbor disputes that will keep you binging.
+---------
+
+# In Between 7 ‘Scream’ Movies, Courteney Cox Starred in This 89% RT Cult Classic Comedy
+
+TV Features, Scream, Courteney Cox, Cougar Town, TBS
+
+Sat, 28 Feb 2026 02:10:12 GMT
+
+https://collider.com/scream-movies-courteney-cox-cougar-town-series/
+
+From 2009 to 2015, Scream star Courteney Cox led Cougar Town, a TBS comedy series with a cult following.
+---------
+
+# Ridley Scott's Ahead-of-Its-Time War Movie Returns 3 Decades After Dividing Critics
+
+Movie News, G.I. Jane, Ridley Scott, Demi Moore, Peacock
+
+Sat, 28 Feb 2026 01:00:30 GMT
+
+https://collider.com/ridley-scott-gi-jane-military-masterpiece-streaming-peacock-march-2026/
+
+29 years later, Ridley Scott's G.I. Jane, starring Demi Moore and Viggo Mortensen, makes a comeback on streaming.
+---------
+
+# 3 Decades After Making Academy Awards History, the Greatest Liam Neeson Movie Will Be Easier To Stream
+
+Movie News, Schindler’s List, Liam Neeson, Steven Spielberg, Ben Kingsley
+
+Sat, 28 Feb 2026 00:59:08 GMT
+
+https://collider.com/liam-neeson-schindlers-list-ww2-masterpiece-steven-spielberg-streaming-peacock-march-2026/
+
+33 years later, Liam Neeson’s 98%-rated WW2-era masterpiece is set to debut on a new streamer. Read on for more.
+---------
+
+# 3 Best Shows to Binge on Prime Video This Weekend (Feb 28-Mar 1)
+
+TV, Prime Video, Detectorists, The Gray House, Kingdom
+
+Sat, 28 Feb 2026 00:44:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-february-28/
+
+The Gray House, Kingdom, and Detectorists make up our list of the best Prime Video shows to binge the weekend of February 27, 2026.
+---------
+
+# Netflix's Surging 94% RT Comedic Thriller Is a Must-Watch for 'Derry Girls' Fans
+
+TV Features, Netflix, How To Get To Heaven From Belfast, Derry Girls, Thriller
+
+Sat, 28 Feb 2026 00:41:12 GMT
+
+https://collider.com/netflix-how-to-get-to-heaven-from-belfast-derry-girls-replacement/
+
+Four years after Derry Girls wrapped, creator Lisa McGee has now released How To Get To Heaven From Belfast, and it’s another must-watch.
+---------
+
+# John Wick Meets Pirates of the Caribbean in Prime Video's #1 Swashbuckling Epic
+
+Movie News, The Bluff, Prime Video, Karl Urban, Priyanka Chopra Jonas
+
+Sat, 28 Feb 2026 00:40:29 GMT
+
+https://collider.com/prime-video-pirates-of-the-caribbean-replacement-the-bluff-streaming-success-february-2026/
+
+Prime Video's new 103-minute Pirates of the Caribbean replacement starring Karl Urban is the perfect late-night sleeper hit.
+---------
+
+# Shows Like 'Tracker' and 'High Potential' Are Great, but Network TV Needs To Revive the Fantasy Genre in 2026
+
+TV Features, Fantasy, Merlin, Once Upon A Time, The Vampire Diaries
+
+Sat, 28 Feb 2026 00:23:12 GMT
+
+https://collider.com/fantasy-network-tv-should-revive/
+
+While crime and police procedurals are hits, network TV needs to prioritize low-budget fantasies again.
+---------
+
+# Rebecca Ferguson’s $300 Million Sci-Fi Action Spectacle Blows Up on Streaming 3 Years Later
+
+Movie News, Mission: Impossible - Dead Reckoning, Rebecca Ferguson, Netflix, Tom Cruise
+
+Sat, 28 Feb 2026 00:16:09 GMT
+
+https://collider.com/rebecca-ferguson-thriller-mission-impossible-dead-reckoning-streaming-success-netflix-february-2026/
+
+Three years after a successful theatrical run, Rebecca Ferguson's $300 million action-thriller is taking over the Netflix streaming charts.
+---------
+
+# 8 Binge-Worthy Netflix Series You Can Catch Up On In One Weekend
+
+TV Lists, Netflix
+
+Sat, 28 Feb 2026 03:01:17 GMT
+
+https://movieweb.com/netflix-shows-binge-weekend/
+
+Netflix has no shortage of binge-worthy TV series, and these shows, from 'Wednesday' to 'Beef,' can be watched in one weekend before upcoming seasons.
+---------
+
+# 10 Steamy TV Shows To Add to Your Watchlist
+
+TV Lists, Bridgerton, Outlander
+
+Sat, 28 Feb 2026 02:01:18 GMT
+
+https://movieweb.com/steamy-tv-shows/
+
+Steamy TV is on the rise, with mega-hit shows like 'Heated Rivalry' dominating pop culture discourse. Here are 10 series to add to your watchlist.
+---------
+
+# Zack Snyder Defends 'Batman v Superman' and Snyder Cut Fans
+
+Movie News, Zack Snyder, Zack Snyder's Justice League, Batman v Superman: Dawn of Justice
+
+Sat, 28 Feb 2026 01:11:51 GMT
+
+https://movieweb.com/zack-snyder-fans-snyder-cut-defense/
+
+'Batman v Superman' director Zack Snyder stood his ground on his DC movies and the massive fan base they garnered.
+---------
+
+# Stream Guy Ritchie & Jason Statham's Crime Thriller 'Snatch' Free This March
+
+Movie News, Snatch, Tubi, Coming/Leaving Streaming
+
+Sat, 28 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/snatch-streaming-tubi-march-2026/
+
+Jason Statham and Guy Ritchie's best movie, 'Snatch,' with Brad Pitt, is streaming for free on Tubi in March 2026.
+---------
+
+# 12 Action Thriller Classics Better Than Any James Bond Movie
+
+Movie Lists, James Bond
+
+Sat, 28 Feb 2026 00:00:17 GMT
+
+https://movieweb.com/action-thriller-movies-better-james-bond/
+
+While the 'James Bond' action franchise has some popular and great movies, including several starring Daniel Craig, these action thrillers are better.
+---------
+
 # Top 3 Must-Watch Prime Video Shows This Weekend: February 27–March 1, 2026
 
 Streaming TV, Prime Video, What to Watch on Prime Video
