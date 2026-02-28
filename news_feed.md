@@ -1,3 +1,278 @@
+# How Hawkeye’s Last-Minute Rewrites Completely Changed The Show Revealed By Writer
+
+TV, Hawkeye, Marvel Cinematic Universe
+
+Sat, 28 Feb 2026 18:52:54 GMT
+
+https://screenrant.com/hawkeye-marvel-show-last-minute-changes-andrew-guest/
+
+Hawkeye is one of the better-received Marvel Cinematic Universe shows, but writer Andrew Guest reveals that there were many last-minute changes.
+---------
+
+# God Of War's Kratos Star Has Perplexing Reaction To Divisive First-Look Image
+
+TV, God of War
+
+Sat, 28 Feb 2026 18:48:18 GMT
+
+https://screenrant.com/god-of-war-ryan-hurst-first-look-backlash-response/
+
+Ryan Hurst, who plays Kratos in the upcoming God of War TV show, has shared an intriguing response regarding the first-look image backlash.
+---------
+
+# One Of The Greatest Sci-Fi TV Reboots Ever Made Keeps Getting Better
+
+Classic TV, 12 Monkeys, Sci-Fi
+
+Sat, 28 Feb 2026 18:45:19 GMT
+
+https://screenrant.com/12-monkeys-greatest-tv-reboot/
+
+One of the greatest television reboots in the history of the science fiction genre somehow manages to get better and better with each new installment.
+---------
+
+# Evil Dead Franchise Diversifies With New Characters In Upcoming Films
+
+Movies, Evil Dead, Explainer
+
+Sat, 28 Feb 2026 18:45:19 GMT
+
+https://screenrant.com/evil-dead-rare-horror-franchise-changes-new-stories/
+
+The Evil Dead series is still releasing new films over 40 years after it started, and it's doing something that's rare for other horror franchises.
+---------
+
+# Bridgerton Showrunner Addresses Potentially Recasting Daphne & Simon After Missing Multiple Seasons
+
+TV, Bridgerton
+
+Sat, 28 Feb 2026 18:42:01 GMT
+
+https://screenrant.com/bridgerton-season-5-daphne-simon-recasting-jess-brownell/
+
+Will Bridgerton ever consider recasting some of the family's previously married members? Showrunner Jess Brownell explains Daphne and Simon's absence.
+---------
+
+# Elvis Is Losing To Twenty One Pilots In Concert Movie Box Office Battle, Despite Huge Advantage
+
+Movies, Box Office, EPiC: Elvis Presley in Concert
+
+Sat, 28 Feb 2026 18:39:31 GMT
+
+https://screenrant.com/epic-elvis-presley-in-concert-twenty-one-pilots-box-office-competition-domestic-chart-report/
+
+EPiC: Elvis Presley in concert is losing its domestic box office battle with Twenty One Pilots: More Than We Ever Imagined – Live in Mexico City.
+---------
+
+# 15 Best TV Shows From The '70s, Ranked
+
+Classic TV
+
+Sat, 28 Feb 2026 18:30:18 GMT
+
+https://screenrant.com/best-tv-shows-1970s-ranked/
+
+From slapstick comedies to serious dramas, the 1970s had more hits than you might remember — and many of them have aged like fine wine.
+---------
+
+# Charlie Cox's Least Favorite Daredevil: Born Again Episode Was Secretly Great
+
+Streaming TV, Daredevil: Born Again, Marvel, Marvel Cinematic Universe
+
+Sat, 28 Feb 2026 18:15:19 GMT
+
+https://screenrant.com/daredevil-born-again-charlie-cox-least-favorite-episode-great/
+
+Charlie Cox may be the perfect fit for playing Matt Murdock in the MCU, but that doesn't mean his hot takes are always one hundred percent.
+---------
+
+# Top 10 Horror Movies Of 2025: Box Office Performance
+
+Movies, Horror, Ranking
+
+Sat, 28 Feb 2026 18:15:19 GMT
+
+https://screenrant.com/highest-grossing-horror-movies-2025-box-office/
+
+The worldwide box office of 2025 was pretty down but the horror genre thrived thanks to great original films, video game adaptations, and more.
+---------
+
+# GTA 6's Top Spot On PlayStation's Trending Page Has Finally Been Stolen
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 28 Feb 2026 18:07:35 GMT
+
+https://screenrant.com/gta-6-playstation-trending-top-game/
+
+Grand Theft Auto 6 has been bumped down by a new release from its long-standing position as the #1 game on PlayStation's "trending" page.
+---------
+
+# Gundam's Landmark 2010s Series Makes a 2026 Comeback With Perfect & Master Grade Gunpla Collection
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Unicorn, merchandise, toys, bandai
+
+Sat, 28 Feb 2026 18:30:12 GMT
+
+https://www.cbr.com/gundam-unicorn-gunpla-bandai-spring-2026/
+
+Three years later, three model kits and an illuminating set of accessories for Mobile Suit Gundam Unicorn are being re-released this spring by Bandai.
+---------
+
+# How the Street Fighter Film Can Learn From Mortal Kombat II's New Trailer
+
+Movies, Mortal Kombat, Mortal Kombat II, Street Fighter
+
+Sat, 28 Feb 2026 18:30:12 GMT
+
+https://www.cbr.com/mortal-kombat-ii-solved-street-fighter-superpower-problem/
+
+The latest trailer for the Mortal Kombat II film contained an important lesson that Street Fighter's live-action adaptations have failed to learn.
+---------
+
+# Steam's Controversial Dino Crisis Port Makes 1 Thing Glaringly Obvious
+
+Games, capcom, Horror
+
+Sat, 28 Feb 2026 18:15:12 GMT
+
+https://www.cbr.com/steam-dino-crisis-controversy-port-reboot/
+
+Steam's success with Dino Crisis is one of the many obvious signs that the beloved dino-horror franchise is long overdue for a reboot.
+---------
+
+# 10 Mystery TV Shows Canceled Way Too Soon
+
+TV, Mystery, Pushing Daisies, Poker Face, Hannibal
+
+Sat, 28 Feb 2026 18:00:12 GMT
+
+https://www.cbr.com/best-mystery-tv-series-ended-too-soon/
+
+The real mystery is how anyone could have thought axing these TV shows was a good idea.
+---------
+
+# Scarlett Johansson's 5 Best Marvel Movies, Ranked
+
+Movie, Scarlett Johansson, Marvel, Black Widow, Captain America: The Winter Soldier
+
+Sat, 28 Feb 2026 18:53:12 GMT
+
+https://collider.com/scarlett-johansson-marvel-movies-best-ranked/
+
+From The Winter Soldier to Endgame, Scarlett Johansson’s most essential MCU performances ranked by impact and intensity.
+---------
+
+# Sean Bean’s Underrated Crime Film Finds a Second Life on a New Streaming Home
+
+Movie News, Sean Bean, Don't Say A Word, Plex, Brittany Murphy
+
+Sat, 28 Feb 2026 18:40:12 GMT
+
+https://collider.com/sean-bean-underrated-crime-drama-dont-say-a-word-streaming-plex-march-2026/
+
+Sean Bean's forgotten Taken replacement with Brittany Murphy, Don't Say a Word, is heading to a new streamer in March. Read on to find out where.
+---------
+
+# 8 Greatest Sci-Fi Movie Characters of the Last 5 Years, Ranked
+
+Movie, Science Fiction, Poor Things, Dune, The Substance
+
+Sat, 28 Feb 2026 18:29:12 GMT
+
+https://collider.com/best-sci-fi-movie-characters-last-5-years-ranked/
+
+Sci-fi is thriving in the 2020s, thanks to instantly iconic characters like Dune's Paul Atreides, Poor Things' Bella Baxter, and Nope's OJ Haywood.
+---------
+
+# 12 Years Later, Kevin Costner's Underrated Sports Gem Scores a Touchdown on Streaming
+
+Movie News, Kevin Costner, Sports, draft day, Plex
+
+Sat, 28 Feb 2026 18:20:12 GMT
+
+https://collider.com/kevin-costner-underrated-sports-movie-draft-day-streaming-plex-march-2026/
+
+Kevin Costner's underrated 2014 sports movie, Draft Day, is about to stream on a new platform in March. Find out where below.
+---------
+
+# ‘The Pitt’ Just Exposed One of America’s Most Brutal Truths in 5 Minutes
+
+TV Features, The Pitt, Katherine LaNasa, HBO Max, HBO
+
+Sat, 28 Feb 2026 18:14:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-8-dana-evidence-kit-scene-brutal-truth/
+
+In The Pitt Season 2 Episode 8, Dana's crucial storyline exposes the harsh realities and systemic failures faced by sexual assault survivors.
+---------
+
+# 22 Greatest Comedy Movie Masterpieces of All Time, Ranked
+
+Movie, Comedy, Some Like It Hot, Monty Python and the Holy Grail, M*A*S*H
+
+Sat, 28 Feb 2026 18:09:12 GMT
+
+https://collider.com/best-comedy-movie-masterpieces-of-all-time-ranked/
+
+Monty Python and the Holy Grail, Blazing Saddles, and Some Like It Hot are all among the best and funniest comedy movies ever made.
+---------
+
+# The Game-Changing 165-Minute Western Saddles Up on a New Streamer
+
+Movie News, Quentin Tarantino, Leonardo DiCaprio, Jamie Foxx, Django Unchained
+
+Sat, 28 Feb 2026 18:00:12 GMT
+
+https://collider.com/quentin-tarantino-django-unchained-165-minute-game-changing-western-streaming-peacock-march-2026/
+
+Quentin Tarantino's epic revenge Western, Django Unchained, is riding toward a new streaming home this March. Find out more.
+---------
+
+# ‘Will Trent' Finally Delivered This Season’s Biggest Payoff in a Perfect 42 Minutes
+
+TV Features, Will Trent, ABC, Ramon Rodriguez, Procedural
+
+Sat, 28 Feb 2026 17:54:12 GMT
+
+https://collider.com/will-trent-season-4-caleb-james-ulster/
+
+Will has a major breakthrough after confronting his birth father, Caleb, leading to a heart-to-heart and resolution to his season-long struggle.
+---------
+
+# 8 Psychological Thrillers That Are 10/10 But Nobody Remembers
+
+Movie, Psychological Thriller, Seconds, Repulsion, The Parallax View
+
+Sat, 28 Feb 2026 17:52:12 GMT
+
+https://collider.com/best-psychological-thrillers-nobody-remembers/
+
+From The Tenant to Session 9, these 10/10 psychological thrillers earned critical acclaim, but somehow faded from mainstream memory.
+---------
+
+# 'Hotel Tehran' Release Date Revealed
+
+Movie News, Liam Neeson, Zachary Levi, Action
+
+Sat, 28 Feb 2026 18:52:29 GMT
+
+https://movieweb.com/liam-neesons-cia-action-thriller-sets-release-date/
+
+Liam Neeson's new CIA action thriller, 'Hotel Tehran,' will be released in theaters later this year.
+---------
+
+# Game of Thrones: 25 Most Hated Characters of All Time, Ranked
+
+TV Lists, Game Of Thrones
+
+Sat, 28 Feb 2026 18:01:17 GMT
+
+https://movieweb.com/game-of-thrones-characters-most-hated/
+
+Villains come is a many forms. Some are loathed, some justified, and some are just evil. Game of Thrones has plenty of hated villainous characters.
+---------
+
 # Star Trek Has A New Data Replacement 32 Years Later
 
 Star Trek
