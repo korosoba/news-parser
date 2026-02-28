@@ -1,3 +1,14 @@
+# How To Open The Briefcase In Resident Evil Requiem
+
+Gaming, Resident Evil, Capcom, Resident Evil 9
+
+Sat, 28 Feb 2026 08:01:21 GMT
+
+https://screenrant.com/resident-evil-requieum-open-briefcase-rcpd/
+
+If you've come across a briefcase while exploring R.P.D. in Resident Evil Requiem and can't seem to get it open, we've got you covered here.
+---------
+
 # This Pokémon 30th Celebration Officially Goes Above And Beyond
 
 Gaming, Pokemon
