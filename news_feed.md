@@ -1,3 +1,25 @@
+# This Pokémon 30th Celebration Officially Goes Above And Beyond
+
+Gaming, Pokemon
+
+Sat, 28 Feb 2026 06:00:18 GMT
+
+https://screenrant.com/all-pokemon-30th-anniversary-logos/
+
+Get ready for the ultimate Pokémon celebration! The Pokémon Company has revealed over 1,000 unique 30th anniversary logos.
+---------
+
+# Steam Adds Terrifying New Horror Game You Can Try for Free Right Now
+
+Games, Steam, Horror
+
+Sat, 28 Feb 2026 06:00:12 GMT
+
+https://www.cbr.com/steam-new-horror-free-game-march-2026-birdwatching/
+
+Steam gamers can now dive into a whole new kind of horror experience, and it won't cost them anything to find out how scary Birdwatching can be.
+---------
+
 # GTA 5 Free Download Available Until March 4 Via Online
 
 Gaming, Grand Theft Auto Online
