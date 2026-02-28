@@ -1,3 +1,333 @@
+# Captain America: Civil War - Masterful Balance Of MCU Characters
+
+Movies, Captain America: Civil War, Marvel Cinematic Universe, Op-Ed
+
+Sat, 28 Feb 2026 15:40:19 GMT
+
+https://screenrant.com/captain-america-civil-war-mcu-balancing-act-impressive/
+
+Captain America: Civil War manages to balance a bunch of heroes, debuts two iconic characters, and has a good villain without being messy.
+---------
+
+# Melissa Barrera & Jenna Ortega's Scream Reboot Roles Praised By Matthew Lillard Amid Long-Awaited Franchise Return
+
+Movies, Scream 7
+
+Sat, 28 Feb 2026 15:32:59 GMT
+
+https://screenrant.com/scream-7-matthew-lillard-melissa-barrera-jenna-ortega-reboot-praise/
+
+Matthew Lillard addresses his departure from Scream 3 as well as his long-awaited return to the franchise after Barrera and Ortega's departures.
+---------
+
+# Sailor Moon’s Ultimate Gen Z Successor Just Hit U.S. Streaming After 20 Years
+
+Anime, Sailor Moon, Pretty Cure
+
+Sat, 28 Feb 2026 15:30:19 GMT
+
+https://screenrant.com/pretty-cure-anime-streaming-hulu-sailor-moon-successor/
+
+The magical girl anime franchise Pretty Cure, a rival to Sailor Moon, has landed on major U.S. streaming platforms Hulu and Disney+.
+---------
+
+# Pokémon Winds & Waves - Release Window, Starters, Pokedex, & Gameplay Details
+
+Gaming, Pokémon Winds and Waves, Pokemon
+
+Sat, 28 Feb 2026 15:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-release-window-starters-pokedex-gameplay/
+
+Pokémon Winds & Waves, the Gen 10 games, have finally been confirmed. Here's what to know about their release window, Starters, gameplay, and more.
+---------
+
+# 10 Best Prime Video Shows You Can Finish In A Weekend
+
+Streaming TV, Prime Video
+
+Sat, 28 Feb 2026 15:30:19 GMT
+
+https://screenrant.com/10-best-prime-video-shows-you-can-finish-in-a-weekend/
+
+Discover the 10 best Prime Video TV shows to binge in a weekend, offering high-quality, low-commitment viewing experiences in one or two sittings.
+---------
+
+# Harry Potter Spinoffs: HBO's Plan To Redeem Fantastic Beasts' Failure
+
+Streaming TV, Harry Potter
+
+Sat, 28 Feb 2026 15:15:19 GMT
+
+https://screenrant.com/harry-potter-show-spinoffs-hbo-movie-franchise-fix/
+
+Before the Harry Potter TV show comes out, HBO is already planning spinoffs, and it's the perfect chance to redeem the movies' biggest failure.
+---------
+
+# 3 Characters In Spider-Man: Brand New Day Could Offer A Big Clue About The Movie's Comic Inspiration
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 28 Feb 2026 15:15:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-clone-saga-characters-connection/
+
+The specific assortment of characters chosen for Spider-Man: Brand New Day might be a clue to one of the comic stories it may take inspiration from.
+---------
+
+# Long-Awaited Adaptation Of The Martian Author's Moon-Set Bestseller Is Still Alive, Confirms Directors 8 Years Later: "We Figured Out A Way"
+
+Movies
+
+Sat, 28 Feb 2026 15:09:35 GMT
+
+https://screenrant.com/artemis-movie-development-update-chris-miller-phil-lord/
+
+EXCLUSIVE: The long-awaited film adaptation of Andy Weir's Artemis is still in active development eight years after its initial announcement.
+---------
+
+# Resident Evil Meets Red Dead Redemption In New Western Horror
+
+Gaming, Resident Evil, Red Dead Redemption 2, Indie
+
+Sat, 28 Feb 2026 15:05:19 GMT
+
+https://screenrant.com/red-dead-redemption-horror-western-resident-evil/
+
+This upcoming Western horror game is taking Resident Evil's classic survival horror formula and giving it a Wild West-era coat of paint.
+---------
+
+# Apple TV's Star City Spinoff: A Thriller Set In The For All Mankind Universe
+
+Streaming TV, For All Mankind
+
+Sat, 28 Feb 2026 15:02:18 GMT
+
+https://screenrant.com/apple-tv-star-city-for-all-mankind-thriller-spinoff/
+
+For All Mankind is getting a spin-off, the 8-episode Star City, that, while set in the same universe, will be more of a paranoia-fueled thriller.
+---------
+
+# Timothy Olyphant's Dreamcatcher Is a Near-Perfect Sci-Fi Flick
+
+Movies, Dreamcatcher, Sci-Fi, Stephen King
+
+Sat, 28 Feb 2026 15:30:12 GMT
+
+https://www.cbr.com/timothy-olyphant-dreamcatcher-sci-fi-horror-reappraisal/
+
+A flop upon its release, this 2003 Stephen King sci-fi adaptation has found global success on HBO Max after the rise of IT: Welcome to Derry.
+---------
+
+# Skyrim Returns in New DLC in 2026 (But There's a Catch)
+
+Games, The Elder Scrolls V: Skyrim, Fallout, Doom (1993)
+
+Sat, 28 Feb 2026 15:30:12 GMT
+
+https://www.cbr.com/skyrim-new-dlc-2026-bethesda-pinball/
+
+The Elder Scrolls V: Skyrim and two other beloved video game titles are back in new DLC this year, but not in the way fans were expecting.
+---------
+
+# Princess Zelda Voice Actress Patricia Summersett Reveals The Legend of Zelda's Most Surprising Element
+
+CBR Exclusives, The Legend of Zelda
+
+Sat, 28 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/patricia-summersett-the-legend-of-zelda-surprising-game-element/
+
+Forty years on, Princess Zelda is still beloved by fans.
+---------
+
+# Prime Video's 10-Episode Black Mirror Replacement Raised the Bar for Sci-Fi Anthology Binges
+
+TV, Electric Dreams
+
+Sat, 28 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/prime-video-sci-fi-anthology-electric-dreams-black-mirror-replacement/
+
+Sci-fi is built on classic anthology storytelling, which allows for vast experimentation, and this throwback series modernizes the anthology format.
+---------
+
+# This Deliciously Dark Horror Anthology Will Haunt You Forever
+
+Comics, Ice Cream Man, Horror
+
+Sat, 28 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/ice-cream-man-deliciously-dark-horror-anthology/
+
+Feast your eyes on one of the best horror anthology comics of all time.
+---------
+
+# 10 Best Steam Next Fest Demos You Need to Play (February 2026)
+
+Games, Indie Games, Steam
+
+Sat, 28 Feb 2026 15:00:12 GMT
+
+https://www.cbr.com/best-steam-next-fest-demos-february-2026/
+
+Looking for your next game? These 10 demos from Steam Next Fest will help you find your next favorite game.
+---------
+
+# Keanu Reeves’ $450M Action Epic Returns to the Streamer It Belongs To
+
+Movie News, John Wick: Chapter 4, Keanu Reeves, Chad Stahelski, John Wick
+
+Sat, 28 Feb 2026 15:40:12 GMT
+
+https://collider.com/john-wick-chapter-4-keanu-reeves-450-million-action-spectacle-streaming-peacock-march-2026/
+
+Keanu Reeves' mega-hit action film John Wick: Chapter 4 is coming to a new streaming home this March. Here's everything you need to know.
+---------
+
+# HBO's 6-Part Series With a Sci-Fi Icon Pulls Directly From Alfred Hitchcock's Playbook
+
+TV Features, The Ray Bradbury Theater, Alfred Hitchcock, HBO, Sci-Fi
+
+Sat, 28 Feb 2026 15:38:12 GMT
+
+https://collider.com/the-ray-bradbury-theater-hbo-sci-fi-anthology-series/
+
+Acclaimed sci-fi, horror, and fantasy writer Ray Bradbury hosted a forgotten HBO anthology series similar to Alfred Hitchcock Presents.
+---------
+
+# All 13 'Bridgerton' Season 4 Needle Drops, Ranked
+
+TV, Bridgerton, Netflix, Taylor Swift, Music
+
+Sat, 28 Feb 2026 15:33:12 GMT
+
+https://collider.com/bridgerton-season-4-needle-drops-ranked/
+
+Netflix's romantic drama Bridgerton is known for its pop song covers, like Taylor Swift's "Enchanted," but which needle drop is Season 4's best?
+---------
+
+# You Only Have a Few Weeks Left to Watch the Wildest Musical of the 21st Century on Netflix
+
+Movie Features, Moulin Rouge!, Baz Luhrmann, Nicole Kidman, Ewan McGregor
+
+Sat, 28 Feb 2026 15:28:12 GMT
+
+https://collider.com/moulin-rouge-wildest-musical-21st-century-baz-luhrmann-netflix/
+
+Baz Luhrmann’s wild musical, Moulin Rouge!, is leaving Netflix soon.
+---------
+
+# Jason Statham's $162M Action-Packed Thriller Quietly Becomes a Stealth Global Streaming Hit
+
+Movie News, Jason Statham, The Beekeeper, David Ayer, Peacock
+
+Sat, 28 Feb 2026 15:20:12 GMT
+
+https://collider.com/jason-statham-the-beekeeper-action-franchise-starter-streaming-peacock-march-2026/
+
+Ahead of the upcoming sequel, Jason Statham's hit action film, The Beekeeper, is coming to a new streaming home this March. Find out more.
+---------
+
+# Apple TV’s Overlooked 10/10 Sci-Fi Gem Stomps Back to the Top of Streaming Charts
+
+TV News, Monarch: Legacy of Monsters, Kurt Russell, Wyatt Russell, Apple TV
+
+Sat, 28 Feb 2026 15:19:35 GMT
+
+https://collider.com/monarch-legacy-of-monsters-streaming-success-apple-tv-february-2026/
+
+Apple TV's 10/10 overlooked sci-fi epic, Monarch: Legacy of Monsters, is roaring back to life on streaming following Season 2 premiere.
+---------
+
+# ‘Game of Thrones’ Fans Need This 92% RT Replacement Fantasy Epic With a ‘Yellowstone’ Star
+
+TV Features, Britannia, MGM, Yellowstone, Kelly Reilly
+
+Sat, 28 Feb 2026 15:17:13 GMT
+
+https://collider.com/game-of-thrones-replacement-series-britannia-kelly-reilly/
+
+Missing Game Of Thrones after A Knight of the Seven Kingdoms? Kelly Reilly stars in this 92% RT fantasy epic built for a weekend binge.
+---------
+
+# 10 American Shows With 10+ Seasons That Are Better Than Ever
+
+TV, It's Always Sunny in Philadelphia, Law & Order: Special Victims Unit, Grey's Anatomy, Survivor
+
+Sat, 28 Feb 2026 15:12:12 GMT
+
+https://collider.com/american-tv-shows-10-or-more-seasons-better-than-ever/
+
+Law & Order: SVU, NCIS, Survivor, Criminal Minds, and more make up our list of American shows with 10 or more seasons that are better than ever.
+---------
+
+# Netflix’s Lavish 4-Part Historical Sensation Remains the One to Beat After Latest Drop
+
+TV News, Bridgerton, Netflix, Yerin Ha, Luke Thompson
+
+Sat, 28 Feb 2026 15:11:08 GMT
+
+https://collider.com/bridgerton-season-4-part-2-streaming-success-netflix-february-2026/
+
+Netflix's utterly bingeable 4-part romantic fantasy series, Bridgerton, just proved why it deserves the streaming crown.
+---------
+
+# Every Best Picture Oscar Nominee of 2026, Ranked
+
+Movie, Emma Stone, Paul Thomas Anderson, Oscars, Michael B. Jordan
+
+Sat, 28 Feb 2026 15:04:12 GMT
+
+https://collider.com/the-2026-best-picture-nominees-ranked/
+
+From One Battle After Another to Sinners, this is the definitive ranking of every 2026 Best Picture Oscar nominee.
+---------
+
+# 'Teenage Sex and Death at Camp Miasma' Trailer Promises Meta Horror Madness
+
+Movie News, Gillian Anderson
+
+Sat, 28 Feb 2026 15:30:17 GMT
+
+https://movieweb.com/first-trailer-gillian-anderson-meta-slasher/
+
+Jane Schoenbrun's latest film, due to arrive in August, stars Gillian Anderson and Hannah Einbinder.
+---------
+
+# 'Bridgerton' Season 4 Part 2's Post-Credits Scene, Explained
+
+Features, Bridgerton, Netflix
+
+Sat, 28 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/bridgerton-season-4-post-credits-scene-explained/
+
+'Bridgerton' Season 4 Part 2 began streaming on Netflix on February 26, 2026, and ends with a post-credits scene featuring Sophie and Benedict.
+---------
+
+# Wyatt Russell Speaks on Lee Shaw's 'Monarch' Season 2 Evolution [Exclusive]
+
+TV News, Monarch: Legacy of Monsters, Wyatt Russell, Apple TV
+
+Sat, 28 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/wyatt-russell-what-shaw-lost-monarch/
+
+Speaking exclusively with MovieWeb, 'Monarch' star Wyatt Russell discusses the growth from his young Lee Shaw to Kurt Russell's older version.
+---------
+
+# 'Z Nation' Is the Perfect Post-Apocalyptic Thriller Binge-Watch for Horror Fans
+
+TV News, Z Nation, Streaming Recommendations, Horror
+
+Sat, 28 Feb 2026 15:00:17 GMT
+
+https://movieweb.com/z-nation-streaming-free-tubi-february-2026/
+
+Stretching five seasons, there's a lot to love about 'Z Nation,' which is no surprise considering it was produced by The Asylum.
+---------
+
 # Scream's Intriguing Final Girl: Sam Carpenter's Complex Character
 
 Movies, Scream, Op-Ed
