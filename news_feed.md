@@ -1,3 +1,25 @@
+# The Last Of Us Part 3 Main Character Leaves Gamers Torn
+
+Gaming, The Last of Us 3
+
+Sat, 28 Feb 2026 10:30:19 GMT
+
+https://screenrant.com/last-of-us-part-3-main-character-fan-speculation/
+
+As speculation swirls around a potential The Last of Us Part III, fans are torn over who should lead the charge.
+---------
+
+# The Witcher 3: The Last Wish Recreates Geralt's Earliest Adventures
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher
+
+Sat, 28 Feb 2026 10:00:19 GMT
+
+https://screenrant.com/the-witcher-3-the-last-wish-recreates-geralts-earliest-adventures/
+
+A dedicated fan has created an ambitious mod for The Witcher 3: Wild Hunt, recreating Andrzej Sapkowski's original short stories.
+---------
+
 # How To Open The Briefcase In Resident Evil Requiem
 
 Gaming, Resident Evil, Capcom, Resident Evil 9
