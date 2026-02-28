@@ -1,3 +1,267 @@
+# Karl Urban Wants To Reprise His Judge Dredd Role
+
+Movies, Karl Urban, Dredd, Judge Dredd
+
+Sat, 28 Feb 2026 21:17:08 GMT
+
+https://screenrant.com/judge-dredd-karl-urban-return-hopes/
+
+Karl Urban's comments about reprising a role from a cult classic action film over a decade later have fans buzzing with excitement.
+---------
+
+# Star Trek Missed The Perfect Chance To Resolve A Canceled Show's Final Mystery
+
+Star Trek
+
+Sat, 28 Feb 2026 21:15:19 GMT
+
+https://screenrant.com/star-trek-missed-prodigy-crew-fate-answer-doctor/
+
+Star Trek: Prodigy ended after two seasons, leaving questions over the crew's fate, and Starfleet Academy missed the perfect chance to resolve it.
+---------
+
+# Thanks to The Fantastic Four Movie, The MCU Has The Perfect Villain For Vision's New Show
+
+Superheroes, Vision Quest, Marvel Cinematic Universe
+
+Sat, 28 Feb 2026 20:55:19 GMT
+
+https://screenrant.com/vision-quest-show-mad-thinker-villain-fantastic-four-setup/
+
+A character confirmed to exist in the MCU via The Fantastic Four: First Steps would be a great character to fight the Vision in his upcoming TV show.
+---------
+
+# Bob Dylan Positively 4th Street Meaning: The Original Diss Track Explained
+
+Music, Bob Dylan, Classic Rock, A Complete Unknown, Highway 61 Revisited
+
+Sat, 28 Feb 2026 20:52:23 GMT
+
+https://screenrant.com/bob-dylan-positively-4th-street-diss-track-explained/
+
+Before Kendrick or Taylor, there was Bob Dylan. We break down the biting history of "Positively 4th Street," the 1965 masterpiece that defined Dylan's
+---------
+
+# The Matrix 5 Is Officially in Development
+
+Movies, The Matrix, The Matrix 5
+
+Sat, 28 Feb 2026 21:33:53 GMT
+
+https://www.cbr.com/the-matrix-5-officially-in-development-drew-goddard/
+
+The sci-fi franchise released the most recent entry in 2021, but it had an underwhelming run.
+---------
+
+# Star Trek: Voyager's "In the Blink of an Eye" Is Still Untouchable
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Sat, 28 Feb 2026 21:30:12 GMT
+
+https://www.cbr.com/star-trek-smartest-sci-fi-episode-untouchable/
+
+The "In the Blink of an Eye" episode of Star Trek: Voyager is a perfect example of using high-concept science to tell an emotional and human story.
+---------
+
+# Time Is Running Out to Watch 1 of the Best Body Horrors of All-Time, The Fly, for Free
+
+Movies, Horror, The Fly
+
+Sat, 28 Feb 2026 21:17:09 GMT
+
+https://www.cbr.com/jeff-goldblum-the-fly-classic-horror-leaving-tubi/
+
+It is hands-down one of, if not the, best horror film of all-time, and fans will be forced to pay for it soon.
+---------
+
+# 10 Absolutetly Terrifying Moments From Anime That Aren't Horror
+
+Anime, Horror, Jujutsu Kaisen, Dandadan, Studio Ghibli
+
+Sat, 28 Feb 2026 21:15:12 GMT
+
+https://www.cbr.com/scariest-anime-moments-from-non-horror-anime-series/
+
+Some of anime's most traumatizing moments come from series that aren't purely focused on scaring the audience.
+---------
+
+# 'It Makes Me Cringe': Resident Evil's Virus Leak Gets Destroyed by Expert
+
+Movies, Horror, Resident Evil
+
+Sat, 28 Feb 2026 21:00:12 GMT
+
+https://www.cbr.com/resident-evil-virus-leak-gets-destroyed-by-expert/
+
+The iconic horror franchise just got destroyed by an expert that can't believe their eyes.
+---------
+
+# Dark Horse Is Bringing Back He-Man With A Twist
+
+Comics, He-Man and the Masters of the Universe, Masters of the Universe
+
+Sat, 28 Feb 2026 21:00:12 GMT
+
+https://www.cbr.com/mattel-teams-up-with-dark-horse-for-thrilling-new-he-man-adventure/
+
+Mattel and Dark Horse Comics are giving fans another chance to dive into the world of He-Man and the Masters of the Universe alongside the new film.
+---------
+
+# Holmes & Watson Ruined Sherlock Holmes' Character
+
+Movies, Sherlock Holmes, Holmes & Watson, Comedy
+
+Sat, 28 Feb 2026 21:00:12 GMT
+
+https://www.cbr.com/will-ferrell-holmes-watson-bad-ripoff/
+
+Sherlock Holmes has been reimagined by a variety of directors, but his 2018 parody stands out as the worst misunderstanding of the source material.
+---------
+
+# Jacob Elordi's Most Intense Performance Makes Prime Video's 5-Part War Series the Perfect Weekend Binge
+
+TV Features, The Narrow Road to the Deep North, Jacob Elordi, Ciarán Hinds, Olivia DeJonge
+
+Sat, 28 Feb 2026 21:34:12 GMT
+
+https://collider.com/jacob-elordi-narrow-road-to-the-deep-north-prime-video-weekend-binge/
+
+Jacob Elordi delivers a powerful performance in the five-part Prime Video war series The Narrow Road to the Deep North.
+---------
+
+# 8 Near-Perfect Westerns That No One Remembers Today
+
+Movie, Western, Blood On The Moon, Open Range, The Naked Spur
+
+Sat, 28 Feb 2026 21:29:12 GMT
+
+https://collider.com/near-perfect-westerns-no-one-remembers/
+
+From Blood on the Moon to Death Rides a Horse and The Naked Spur, these Westerns come close to perfection but have sadly been forgotten by the masses.
+---------
+
+# The 183-Minute World War II Blockbuster Roger Ebert Slammed Lands on a New Streamer
+
+Movie News, Pearl Harbor, Michael Bay, Ben Affleck, Josh Hartnett
+
+Sat, 28 Feb 2026 21:20:12 GMT
+
+https://collider.com/pearl-harbor-world-war-2-epic-roger-ebert-hated-streaming-hulu-march-2026/
+
+Pearl Harbor, the World War II epic that Roger Ebert said was "directed without grace, vision, or originality," is coming to a new streamer in March.
+---------
+
+# More Than 20 Warner Bros. Channels Under Paramount Could Trigger Cable’s Biggest Shake-Up Yet
+
+TV Features, Paramount, Skydance, Warner Bros., Streaming
+
+Sat, 28 Feb 2026 21:14:12 GMT
+
+https://collider.com/paramount-warner-bros-discovery-merger-cable-shakeup-explained/
+
+Paramount’s WBD merger could reshape streaming and cable. Here’s what it means for HBO Max, Paramount+, and the TV landscape.
+---------
+
+# Connor Storrie Is Officially the Next Great Leading Man Thanks to This 2-Minute 'Heated Rivalry' Scene
+
+TV Features, Heated Rivalry, HBO Max, Romance, Connor Storrie
+
+Sat, 28 Feb 2026 21:12:12 GMT
+
+https://collider.com/connor-storrie-heated-rivalry-episode-5-ilya-love-confession-shane/
+
+In Episode 5 of Heated Rivalry, Connor Storrie's Ilya has an emotional phone call with Hudson Williams' Shane, in which he reveals his love for him.
+---------
+
+# The Beatle Who Secretly Helped Bring One of Bob Dylan’s Most Underrated Love Songs to Life
+
+Music Features, Bob Dylan, George Harrison - All Things Pass, Music, Rock, The Beatles
+
+Sat, 28 Feb 2026 21:12:07 GMT
+
+https://collider.com/george-harrison-helped-bob-dylan-record-if-not-for-you/
+
+The unique collaboration between George Harrison and Bob Dylan on this song explores their friendship and impact on each other's careers.
+---------
+
+# The 10 Most Powerful Armies in Middle-Earth, Ranked
+
+Movie, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Rings of Power, Fantasy
+
+Sat, 28 Feb 2026 21:04:12 GMT
+
+https://collider.com/lord-of-the-rings-strongest-middle-earth-armies/
+
+From the Army of the Dead to the Last Alliance, these are the most powerful military forces in the whole of Middle-Earth
+---------
+
+# 10 Years Later, a New Audience Is About to Discover Viggo Mortensen's Most Underrated Movie
+
+Movie News, Viggo Mortensen, The Lord of the Rings, Captain Fantastic, Plex
+
+Sat, 28 Feb 2026 21:00:13 GMT
+
+https://collider.com/lord-of-the-rings-star-viggo-mortensen-twisty-2016-drama-captain-fantastic-streaming-plex-march-2026/
+
+The Lord of the Rings icon Viggo Mortensen's 2016 drama Captain Fantastic is about to stream on a new platform. Find out where below.
+---------
+
+# Every Rush Studio Album Released in the '70s, Ranked
+
+Music Features, Rock, Music, Rush: R30, Geddy Lee Asks: Are Bass Players Human Too?
+
+Sat, 28 Feb 2026 20:52:12 GMT
+
+https://collider.com/rush-70s-albums-ranked/
+
+From Fly By Night to A Farewell to Kings to Hemispheres, this is the definitive ranking of Rush's studio albums released in the 70s.
+---------
+
+# The Aliens of 'The Mandalorian and Grogu' Might Justify the Film
+
+Features, The Mandalorian and Grogu
+
+Sat, 28 Feb 2026 21:30:16 GMT
+
+https://movieweb.com/star-wars-the-mandalorian-and-grogu-alien-movie/
+
+The latest film in the 'Star Wars' franchise will deliver on the promise of Cantina sequence back in 1977.
+---------
+
+# When 'Scream 7' Will Stream on Paramount+
+
+Features, Scream 7, Scream
+
+Sat, 28 Feb 2026 21:16:18 GMT
+
+https://movieweb.com/scream-7-paramount-plus-streaming-date/
+
+If past releases are any clue, 'Scream 7' is closer to streaming than you think. Here's what we know about Paramount's plan beyond theaters.
+---------
+
+# The 'Scream' TV Remake Is Better Than Most of the Franchise's Sequels
+
+TV News, Scream, Scream: The TV Series, Streaming Recommendations
+
+Sat, 28 Feb 2026 21:01:17 GMT
+
+https://movieweb.com/scream-tv-series-horror-remake/
+
+As 'Scream 7' lands in theaters and tries to conquer horror, this 'Scream' TV show may be what you're looking for.
+---------
+
+# 5 Failed TV Adaptations That Deserve Another Chance
+
+TV Lists
+
+Sat, 28 Feb 2026 21:01:17 GMT
+
+https://movieweb.com/failed-tv-adaptations-deserve-another-chance/
+
+Everyone loves a good adaptation, but these TV shows failed audiences, and so their original stories deserve another chance on the big screen.
+---------
+
 # Pokémon Z-A Home Support Window & Free Bonus Officially Revealed
 
 Gaming, Pokemon Legends Z-A, Triple-A Games
