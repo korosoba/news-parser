@@ -1,3 +1,58 @@
+# Bloodborne: The New Nightmare Is The Ultimate Challenge
+
+Gaming, Bloodborne
+
+Sat, 28 Feb 2026 11:30:18 GMT
+
+https://screenrant.com/bloodborne-the-new-nightmare-is-the-ultimate-challenge/
+
+The New Nightmare mod for Bloodborne on PC introduces a higher enemy count, new items, and co-op functionality.
+---------
+
+# Perfect News Dramas Are Rare, But HBO's 3-Part Series Is Great From Start To Finish
+
+Classic TV, The Newsroom
+
+Sat, 28 Feb 2026 11:00:18 GMT
+
+https://screenrant.com/the-newsroom-hbo-news-drama-perfect-series/
+
+News dramas have a considerable challenge when it comes to telling a compelling story that stays authentic, but HBO delivered an incredible effort.
+---------
+
+# Pokémon Hyper Emerald Lets You Explore Hoenn And Sinnoh In One Game
+
+Gaming, Pokemon
+
+Sat, 28 Feb 2026 11:00:18 GMT
+
+https://screenrant.com/pokemon-hyper-emerald-hoenn-sinnoh-fan-game/
+
+Pokémon Hyper Emerald is one of the most extensive ROM hacks in the history of the genre, and it just got a major new update.
+---------
+
+# Every Confirmed Daredevil: Born Again Season 2 Cast Member
+
+Superheroes, Daredevil: Born Again, MCU, Marvel
+
+Sat, 28 Feb 2026 11:00:12 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-confirmed-cast-members/
+
+After the finale for Daredevil: Born Again, we run down every cast member for Season 2 that has been confirmed so far, both new and returning.
+---------
+
+# Miles Morales Joined the Marvel Universe as Spider-Man Ten Years Ago
+
+Comics, Spider-Man
+
+Sat, 28 Feb 2026 04:53:08 GMT
+
+https://www.cbr.com/miles-morales-spider-man-marvel-universe-debut/
+
+A look back to February 2016, Spider-Man (Miles Morales) made his debut as a member of the Marvel Universe
+---------
+
 # The Last Of Us Part 3 Main Character Leaves Gamers Torn
 
 Gaming, The Last of Us 3
