@@ -1,3 +1,234 @@
+# Star Trek Has A New Data Replacement 32 Years Later
+
+Star Trek
+
+Sat, 28 Feb 2026 17:30:17 GMT
+
+https://screenrant.com/star-trek-sam-data-replacement-starfleet-academy/
+
+The Next Generation's Data remains one of the most iconic characters in Star Trek's long history, but the franchise finally has a replacement.
+---------
+
+# The Matrix 5 Gets Encouraging Update From Director After 2 Years Of Silence
+
+Movies, The Matrix 5, The Matrix
+
+Sat, 28 Feb 2026 17:28:33 GMT
+
+https://screenrant.com/the-matrix-5-development-update-drew-goddard/
+
+Exclusive: With the fourth movie, The Matrix Resurrections, underperforming, The Matrix 5 director provides an encouraging update years later.
+---------
+
+# March 2026 Movie Releases: Horror, Sci-Fi, & More
+
+Movies
+
+Sat, 28 Feb 2026 17:20:18 GMT
+
+https://screenrant.com/march-2026-movies-theaters-release-dates/
+
+From new takes on classic horror movies, long-awaited sequels, drama movies, and a new Pixar adventure, March brings a bit of everything to theaters.
+---------
+
+# Monarch: Legacy Of Monsters Season 2's Shocking Death Is A Major Upgrade
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse
+
+Sat, 28 Feb 2026 17:15:19 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-season-2-death-upgrade/
+
+The returning Apple TV sci-fi series already kills a major character in its first episode, and Monarch: Legacy of Monsters season 2 changes for good.
+---------
+
+# Forget The Night Agent, Netflix’s Real Reacher Replacement Releases In 1 Month
+
+Streaming TV, The Night Agent, Reacher, Prime Video, Joe Nesbø's Detective Hole
+
+Sat, 28 Feb 2026 17:15:19 GMT
+
+https://screenrant.com/detective-hole-netflix-reacher-replacement-night-agent/
+
+As great as The Night Agent may be as a crime thriller, Netflix’s true Reacher replacement will be another upcoming show that releases in 1 month.
+---------
+
+# Scream 7's Original Story Idea Teased By Departed Directors: “Going To F**k You Up”
+
+Movies, Scream 7
+
+Sat, 28 Feb 2026 17:07:18 GMT
+
+https://screenrant.com/scream-7-radio-silence-directors-original-story-idea/
+
+Before they left Scream 7, Scream 6 directors Matt Bettinelli-Olpin and Tyler Gillett had plans to take a big swing with Ghostface's next outing.
+---------
+
+# Matt Smith's 2-Part Historical Drama Is Perfect For House Of The Dragon Fans
+
+Streaming TV, The Crown, House of the Dragon, Matt Smith
+
+Sat, 28 Feb 2026 17:01:19 GMT
+
+https://screenrant.com/house-of-the-dragon-matt-smith-the-crown-first-2-seasons/
+
+Fans of Matt Smith's performance as Daemon Targaryen in House of the Dragon must check out his Netflix series, where he plays a very different prince.
+---------
+
+# This New Zelda-Style Souls-Like Is Free To Try Until March 2
+
+Gaming, Steam
+
+Sat, 28 Feb 2026 17:01:19 GMT
+
+https://screenrant.com/zelda-soulslike-free-download-steam/
+
+Explore a magical world blending Zelda and Soulslike combat in this free Metroidvania demo during Steam Next Fest, before its full launch.
+---------
+
+# Sorry, Scream 7, But Making Scream 6 Without Sidney Wasn’t The Mistake
+
+New Movies, Scream 7, Scream VI, Scream, Op-Ed
+
+Sat, 28 Feb 2026 16:55:19 GMT
+
+https://screenrant.com/scream-7-movie-sidney-neve-campbell-return-scream-6-jokes-reaction/
+
+With numerous, dismissive references to “New York,” Scream 7 acts like Scream 6 was an embarrassing franchise blip. It’s got that backwards.
+---------
+
+# The Martian Author's Moon-Set Adaptation Gets New Update 8 Years Later
+
+Movies, The Martian, Sci-Fi, Project Hail Mary
+
+Sat, 28 Feb 2026 17:32:15 GMT
+
+https://www.cbr.com/artemis-movie-development-update/
+
+Immediately after the success of The Martian, the author's moon-based sci-fi was optioned for an adaptation which has yet to happen.
+---------
+
+# 10 Series That Can Be 2026's Anime of the Year (So Far)
+
+Anime, Frieren: Beyond Journey's End, Jujutsu Kaisen, Hell's Paradise: Jigokuraku, Isekai
+
+Sat, 28 Feb 2026 17:15:12 GMT
+
+https://www.cbr.com/2026-best-new-anime-of-the-year/
+
+The 2026 anime line-up is here, but names like Frieren: Beyond Journey's End and Jujutsu Kaisen are already making strong cases for anime of the year.
+---------
+
+# Matthew Lillard Addresses Involvement in Netflix's Scooby-Doo Live-Action Series
+
+TV, Scooby-Doo
+
+Sat, 28 Feb 2026 17:08:53 GMT
+
+https://www.cbr.com/matthew-lillard-involvement-netflix-scooby-doo-live-action-series/
+
+The actor previously played Shaggy in the live-action movies.
+---------
+
+# 10 Marvel Events That Actually Satisfied Comics Fans
+
+Comics, Marvel
+
+Sat, 28 Feb 2026 17:00:12 GMT
+
+https://www.cbr.com/marvel-comic-events-that-actually-lived-up-to-the-hype/
+
+Marvel Comics has had so many events over the years, and they don't always meet reader expectations, but these 10 events actually lived up to the hype
+---------
+
+# Russell Crowe’s 103-Minute Horror Pivot Continues To Pay Off on Streaming
+
+Movie News, The Pope's Exorcist, Russell Crowe, Netflix, Apple TV
+
+Sat, 28 Feb 2026 17:40:12 GMT
+
+https://collider.com/russell-crowe-103-minute-horror-movie-the-popes-exorcist-streaming-success-netflix-february-2026/
+
+Russell Crowe's 103-minute unexpected genre-switch, The Pope's Exorcist, is paying off for the second time since it was released.
+---------
+
+# Tom Hanks’ 118-Minute Western Gem Will Delight Taylor Sheridan Fans in March
+
+Movie News, Tom Hanks, News of the World, Paul Greengrass, Western
+
+Sat, 28 Feb 2026 17:21:12 GMT
+
+https://collider.com/tom-hanks-news-of-the-world-118-minute-western-gem-streaming-peacock-march-2026/
+
+Tom Hanks' under-appreciated Western, News of the World, is coming to a new streaming home this March. Find out more.
+---------
+
+# Thank God This Movie Idea Featuring the Stars of Harry Potter Never Happened
+
+Movie Features, Harry Potter, Daniel Radcliffe, Emma Watson
+
+Sat, 28 Feb 2026 17:18:12 GMT
+
+https://collider.com/harry-potter-actors-the-wizard-of-oz-remake-daniel-radcliffe/
+
+Daniel Radcliffe recently revealed in an interview that there was attempt to cast the three stars of Harry Potter in a Wizard of Oz remake.
+---------
+
+# A24's Oscar-Winning Sci-Fi Masterpiece Is Still Rewriting History on Streaming
+
+Movie News, Everything Everywhere All at Once, Michelle Yeoh, Jamie Lee Curtis, HBO Max
+
+Sat, 28 Feb 2026 17:00:12 GMT
+
+https://collider.com/a24-oscar-winning-sci-fi-masterpiece-everything-everywhere-all-at-once-streaming-hbo-max-march-2026/
+
+March brings the return of the sci-fi movie that reshaped the genre forever when it arrives on streaming. Find out more here.
+---------
+
+# 7 Years Later, the Best Superhero Show on TV Is Officially Ready To End
+
+TV News, The Boys, Antony Starr, Jensen Ackles, Jared Padalecki
+
+Sat, 28 Feb 2026 16:59:40 GMT
+
+https://collider.com/prime-video-the-boys-season-5-finale-wraps-post-production-eric-kripke/
+
+The Boys creator Eric Kripke has confirmed the series finale for Prime Video's beloved superhero show is "pretty much done."
+---------
+
+# Piper Curda, Bobby Moynihan Reveal the Lesson Behind 'Hoppers' [Exclusive]
+
+Exclusives
+
+Sat, 28 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/piper-curda-bobby-moynihan-lesson-hoppers/
+
+Two of the film's stars share their thoughts on what the new Pixar movie is really about.
+---------
+
+# 3-Part Crime Thriller 'The Fall' Corrects What 'The X-Files' Reboot Got Wrong
+
+TV News, The Fall, Streaming Recommendations, Thriller
+
+Sat, 28 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/the-fall-gillian-anderson-streaming-tubi-february-2026/
+
+For everything 'The X-Files' got wrong about Dana Scully's character, 'The Fall' makes up for in spades.
+---------
+
+# 'Starfleet Academy' Episode 8 Restores the Doctor To His Old Self
+
+Features
+
+Sat, 28 Feb 2026 17:00:17 GMT
+
+https://movieweb.com/starfleet-academy-fixes-the-doctor/
+
+Robert Picardo's 'Star Trek' character has felt off in 'Starfleet Academy,' but now he's back to how he was in 'Voyager.'
+---------
+
 # Pokémon Winds & Waves: New Pokémon Center Balloon Feature Revealed
 
 Gaming, Pokémon Winds and Waves, Triple-A Games, Pokemon
