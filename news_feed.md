@@ -1,3 +1,223 @@
+# Hulu's New Sci-Fi Movie Has Critics & Audiences Very Divided On Rotten Tomatoes
+
+Movies, In the Blink of an Eye
+
+Sun, 01 Mar 2026 14:47:56 GMT
+
+https://screenrant.com/in-the-blink-of-an-eye-rotten-tomatoes-critics-audience-comparison/
+
+Hulu has a new science-fiction movie helmed by a frequent Pixar director, and it is leaving critics and audiences very divided on Rotten Tomatoes.
+---------
+
+# Project Hail Mary, Ready Or Not 2 & Peaky Blinders Film Premiere On March 20
+
+Movies, Project Hail Mary, Ready or Not 2: Here I Come, Peaky Blinders: The Immortal Man, Recommendation
+
+Sun, 01 Mar 2026 14:45:18 GMT
+
+https://screenrant.com/project-hail-mary-ready-or-not-2-peaky-blinders-march-20-release-date/
+
+March 20 will be an excellent day for movie fans, with two anticipated theatrical releases and a Netflix original that continues a popular series.
+---------
+
+# Virgin River Season 7 Reveals 3 Major Romances In New Images
+
+TV, Virgin River, Virgin River - Season 7
+
+Sun, 01 Mar 2026 14:41:48 GMT
+
+https://screenrant.com/virgin-river-season-7-new-images/
+
+Virgin River Season 7 promises more heartwarming romance as new images reveal three major relationships intensifying.
+---------
+
+# Carrie Star Matthew Lillard Teases Mike Flanagan Finally Adapting Key Stephen King Book Details Missing From OG Movie
+
+TV, Carrie
+
+Sun, 01 Mar 2026 14:37:25 GMT
+
+https://screenrant.com/mike-flanagan-carrie-remake-missing-book-stories-matthew-lillard-tease/
+
+EXCLUSIVE: Matthew Lillard addresses how iconic horror series creator Mike Flanagan is keeping key Stephen King book details in new Carrie series.
+---------
+
+# Mary Wiseman Returns As Tilly In Star Trek: Starfleet Academy Episode 8
+
+Exclusive, Star Trek, Star Trek: Starfleet Academy
+
+Sun, 01 Mar 2026 14:32:26 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-episode-8-mary-wiseman-interview/
+
+ScreenRant interviews Mary Wiseman about her long-awaited guest spot in Star Trek: Starfleet Academy and Tilly turning the cadets into theater kids.
+---------
+
+# 2026’s Top New Anime Already Looks Like TV’s Next My Hero Academia
+
+Anime, My Hero Academia, Eleceed
+
+Sun, 01 Mar 2026 14:31:54 GMT
+
+https://screenrant.com/2026-new-anime-eleceed-manhwa-my-hero-academia-replacement/
+
+My Hero Academia fans who can't get enough of stories about superhumans have a lot to look forward to an upcoming anime in 2026.
+---------
+
+# The 100: A 7-Part Sci-Fi Series Got Dystopian Futures Right
+
+Classic TV, The 100
+
+Sun, 01 Mar 2026 14:31:19 GMT
+
+https://screenrant.com/the-100-post-apocalyptic-series-sci-fi-dystopian-future/
+
+The best science fiction series of all time involve some sort of existential disaster or dystopia, but the CW's 2014 hit The 100 is undefeated.
+---------
+
+# Minecraft Meets No Man's Sky In New Sci-Fi RPG You Can Try Free
+
+Gaming, Minecraft, Steam, Indie Games
+
+Sun, 01 Mar 2026 14:31:19 GMT
+
+https://screenrant.com/steam-free-minecraft-no-mans-sky-sci-fi-rpg/
+
+SpaceCraft is an upcoming online space and exploration game that features a vast galaxy for players to explore.
+---------
+
+# Netflix’s 4-Part Crime Thriller Is The Perfect One-Night Weekend Binge
+
+Streaming TV, Collateral, Netflix
+
+Sun, 01 Mar 2026 14:22:18 GMT
+
+https://screenrant.com/netflix-collateral-thriller-series-must-watch/
+
+Collateral, a forgotten 4-part crime thriller series on Netflix starring 3-time Oscar nominee Carey Mulligan, is the perfect one-night weekend binge.
+---------
+
+# This 10/10 Viral Horror Show Is Finally Getting A Huge Streaming Win
+
+TV, Don't Hug Me I'm Scared
+
+Sun, 01 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/dont-hug-me-im-scared-dropout-horror-streaming-release/
+
+One viral horror series is set to have another resurgence thanks to the announcement of its new streaming platform home after several years.
+---------
+
+# Apple TV Sci-Fi Show's Time Travel Story Explained By Returning Star
+
+TV, Monarch: Legacy of Monsters, Godzilla
+
+Sun, 01 Mar 2026 14:30:12 GMT
+
+https://www.cbr.com/monarch-legacy-of-monster-apple-tv-season-2-time-travel-explained/
+
+Apple TV's hit sci-fi series set in the Monsterverse will deal with a gripping time travel story in Season 2.
+---------
+
+# Joshua Jackson Stole the Show in This 5-Part Sci-Fi Show (& It's Coming to Free Streaming)
+
+TV
+
+Sun, 01 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/joshua-jackson-sci-fi-fringe-pluto-free-streaming-release/
+
+One of the best sci-fi series of all time is now available on a free streaming platform.
+---------
+
+# Gundam's Most Unique Universal Century Spinoff Gets New High Grade Gunpla Model Kit
+
+Anime, Mobile Suit Gundam, mecha, merchandise
+
+Sun, 01 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/gundam-double-fake-gunpla-model-kit-spring-2026/
+
+One of the most obscure Gundam manga is being brought back into the spotlight thanks to a new High Grade model kit and a corresponding re-release.
+---------
+
+# 4 Years Later, 'Ex Machina' Director's Most Divisive Film Fights for a Second Chance on Streaming
+
+Movie News, Men, Alex Garland, Ex Machina, HBO Max
+
+Sun, 01 Mar 2026 14:40:13 GMT
+
+https://collider.com/ex-machina-director-most-divisive-movie-men-2022-streaming-hbo-max-march-2026/
+
+The most controversial film from Ex Machina director Alex Garland, starring Jessie Buckley, is scheduled to land on a new streaming home in March.
+---------
+
+# After 3 Seasons, 'Reacher' Is About To Make a Major Departure From the Books
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Action
+
+Sun, 01 Mar 2026 14:33:12 GMT
+
+https://collider.com/reacher-season-4-more-action-departure-from-book-series/
+
+Reacher Season 4 is set to break records with its fight scenes, making a significant departure from the source material Gone Tomorrow.
+---------
+
+# Prime Video’s 2-Part Spy Sensation Is the Sneakiest Hit of 2026
+
+TV News, The Night Manager, Tom Hiddleston, Prime Video, Camila Morrone
+
+Sun, 01 Mar 2026 14:20:35 GMT
+
+https://collider.com/the-night-manager-prime-video-2-part-spy-drama-streaming-success-february-2026/
+
+Prime Video's 2-part spy drama that returned after a 10-year hiatus continues to be 2026's sneakiest hit.
+---------
+
+# 8 Years Later, Netflix’s Overlooked World War II Movie Is About to Disappear
+
+Movie News, World War II, Netflix, History, Drama
+
+Sun, 01 Mar 2026 14:20:12 GMT
+
+https://collider.com/the-resistance-banker-most-overlooked-world-war-2-movie-leaving-netflix-march-2026/
+
+Netflix is about to bid adieu to one of the most overlooked World War 2 movies of the decade, The Resistance Banker. Find out more.
+---------
+
+# 8 Greatest R-Rated Sci-Fi Movies of the Last 10 Years, Ranked
+
+Movie, Sci-Fi, Everything Everywhere All at Once, Nope, Predator: Killer of Killers
+
+Sun, 01 Mar 2026 14:16:12 GMT
+
+https://collider.com/best-r-rated-sci-fi-movies-last-10-years-ranked/
+
+Nope, Blade Runner 2049, Mickey 17, Frankenstein, and more make up our list of the best R-rated sci-fi movies of the last 10 years.
+---------
+
+# The 20 Greatest Family Movie Masterpieces of All Time, Ranked
+
+Movie, The Wizard of Oz, Family, It's a Wonderful Life, The Princess Bride
+
+Sun, 01 Mar 2026 14:12:13 GMT
+
+https://collider.com/best-family-movie-masterpieces-of-all-time/
+
+There have been many exceptional family movies released over the years, from all-time classics to massive hits of the modern era.
+---------
+
+# One of the Most Expensive Fantasy Sequels Ever Made Answers the Call on Streaming This March
+
+Movie News, Evan Almighty, Fantasy, Bruce Almighty, HBO Max
+
+Sun, 01 Mar 2026 14:00:12 GMT
+
+https://collider.com/steve-carell-expensive-fantasy-sequel-evan-almighty-streaming-hbo-max-march-2026/
+
+The expensive sequel to Bruce Almighty, starring Steve Carell and Morgan Freeman, is set to stream on a major platform in March.
+---------
+
 # 8 Hidden Gem Thrillers Series On Hulu You Probably Missed
 
 Streaming TV, Hulu
