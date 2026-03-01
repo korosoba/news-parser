@@ -1,3 +1,421 @@
+# Fallout: New Vegas Gets Official New Release, Coming This April
+
+Gaming, Fallout: New Vegas, PC
+
+Sun, 01 Mar 2026 05:00:26 GMT
+
+https://screenrant.com/fallout-new-vegas-lucky-38-bundle-april-2026/
+
+Fallout: New Vegas is among the most popular games in the franchise, and fans will want to check out this new release that is available this April.
+---------
+
+# Red Dead Redemption 2 Free Online Content Available To Claim For 24 Hours
+
+Gaming, Red Dead Redemption
+
+Sun, 01 Mar 2026 05:00:26 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-free-dlc-24-hours-march/
+
+Red Dead Redemption 2's latest online update offers players a limited time to claim free rewards, including gold, XP, and exclusive cosmetics.
+---------
+
+# All Anime Lovers Need to Binge This Near-Perfect Rom-Com That's Destined for Netflix
+
+Anime, Netflix
+
+Sun, 01 Mar 2026 04:57:10 GMT
+
+https://screenrant.com/best-2026-manga-akira-failing-in-love-netflix-rom-com-anime/
+
+Akira Failing in Love deserves far more exposure as the rom-com gem it is as its manga and inevitable anime.
+---------
+
+# Spider-Man: Brand New Day Can Answer My Biggest MCU Hulk Questions
+
+Superheroes, Spider-Man: Brand New Day, Hulk, Marvel Cinematic Universe
+
+Sun, 01 Mar 2026 04:55:49 GMT
+
+https://screenrant.com/spider-man-brand-new-day-can-answer-mcu-hulk-questions/
+
+The MCU's Hulk has had a weird journey since Avengers: Endgame, though Spider-Man: Brand New Day has the potential to answer some big questions.
+---------
+
+# All Buffy the Vampire Slayer Fans Need to Binge This Near-Perfect Urban Fantasy on Prime Video
+
+Anime, Monogatari Series: Off & Monster Season, Buffy The Vampire Slayer
+
+Sun, 01 Mar 2026 04:53:43 GMT
+
+https://screenrant.com/best-tv-show-like-buffy-the-vampire-slayer-bakemonogatari-anime/
+
+Explore the thematic parallels between Buffy the Vampire Slayer and Bakemonogatari, now streaming on Prime for fans seeking a unique experience.
+---------
+
+# Monarch: Legacy of Monsters Just Introduced A New Creature Pulled Straight Out Of An Iconic Horror Franchise
+
+Movies, Monarch: Legacy of Monsters, Monarch: Legacy of Monsters - Season 2, Monsterverse, Alien
+
+Sun, 01 Mar 2026 04:50:19 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-titan-x-scarabs-facehuggers-alien/
+
+In addition to the massive Titan X, episode 1 Monarch: Legacy of Monsters season 2 introduced a monster that would fit in a classic horror franchise.
+---------
+
+# 2 Of The Greatest Post-Apocalyptic Shows Are Hard To Watch But Impossible To Forget
+
+Classic TV, Station Eleven, The Leftovers, Sci-Fi
+
+Sun, 01 Mar 2026 04:46:19 GMT
+
+https://screenrant.com/leftovers-station-eleven-best-post-apocalyptic-shows/
+
+Two of the greatest post-apocalyptic shows of all time can be a little challenging to get into, but once watched, they become impossible to forget.
+---------
+
+# Will Grand Admiral Thrawn Appear In The Mandalorian & Grogu?
+
+Star Wars, Grand Admiral Thrawn, The Mandalorian and Grogu
+
+Sun, 01 Mar 2026 04:33:28 GMT
+
+https://screenrant.com/grand-admiral-thrawn-appearance-in-the-mandalorian-and-grogu/
+
+With The Mandalorian & Grogu just a few months away, one has to wonder if we might get a new look at Thrawn, the New Republic Era's major big bad.
+---------
+
+# 2021's Grittiest Neo-Noir Thriller Is True Detective's Ultimate Successor
+
+Anime, True Detective
+
+Sun, 01 Mar 2026 04:15:18 GMT
+
+https://screenrant.com/lonely-deaths-lies-noir-thriller-true-detective-successor/
+
+Kodansha is bringing one of 2021's coolest mysteries, Lonely Deaths Lie Thick as Snow, to North American readers.
+---------
+
+# The Upcoming Remake Of A Banned 1978 Horror Shockumentary Should Be On Your Must-Watch List For One Key Reason
+
+Movies, Faces of Death
+
+Sun, 01 Mar 2026 04:00:19 GMT
+
+https://screenrant.com/faces-of-death-remake-must-watch-director-daniel-goldhaber/
+
+The remake of the 1978 mondo horror movie Faces of Death is due out in April 2026, and could be one of the surprise horror hits of the spring.
+---------
+
+# Winter 2026's Anime Lineup Proves Shorter Cours Are Better
+
+Anime, Frieren: Beyond Journey's End, Hell's Paradise: Jigokuraku
+
+Sun, 01 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/winter-2026-short-anime-cours-better/
+
+A recent push towards 12-episode shorter season anime indicates the industry's future and why this isn't a bad thing.
+---------
+
+# Heart Eyes 2 Is More Important to Horror’s Future Than Scream 7
+
+Movies, Heart Eyes, Scream, Horror
+
+Sun, 01 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/heart-eyes-2-slasher-horror-more-important-scream/
+
+At this point, the Scream franchise has been run into the ground, but a new, iconic slasher was just greenlit with a surprise sequel.
+---------
+
+# Death Proof Review: Quentin Tarantino’s Messiest Movie Is Still a Blast
+
+Movies, Death Proof
+
+Sun, 01 Mar 2026 04:35:09 GMT
+
+https://www.cbr.com/death-proof-review/
+
+As an homage to car action and slasher B-movies, Quentin Tarantino's most flawed movie is still a lot of fun 19 years later.
+---------
+
+# Arnold Schwarzenegger’s Total Recall is His Best Sci-Fi Movie
+
+Movies, Sci-Fi, Total Recall, Terminator
+
+Sun, 01 Mar 2026 04:30:12 GMT
+
+https://www.cbr.com/arnold-schwarzeneggers-best-sci-fi-movie-total-recall-not-terminator/
+
+Arnold Schwarzenegger remains one of the biggest movie stars on the planet, and while Terminator made him famous, another sci-fi movie is better.
+---------
+
+# 10 Greatest Wii Games of All Time, Ranked
+
+Games, Nintendo Wii, Nintendo
+
+Sun, 01 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/greatest-wii-games-all-time-ranked/
+
+Super Mario Galaxy and Dead Space: Extraction are some of the best Wii games ever made.
+---------
+
+# Eddie Redmayne's American Netflix Thriller Is Required Viewing for Crime Movie Fans
+
+Movies, The Good Nurse, Crime, Netflix, eddie redmayne
+
+Sun, 01 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/eddie-redmayne-netflix-crime-thriller-the-good-nurse-required-viewing/
+
+While it adapts one of the most chilling true crime cases, the story relies entirely on the performances of Eddie Redmayne and Jessica Chastain.
+---------
+
+# Hunter x Hunter's New Free Roguelike Game Just Hit No. 1
+
+Anime, Hunter X Hunter
+
+Sun, 01 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-nen-x-survivor-free-chart-top/
+
+The latest win proves that the popularity of Hunter x Hunter has not waned despite frequent hiatus.
+---------
+
+# 10 Anime Masterpieces That Prove the Medium Is High Art
+
+Anime
+
+Sun, 01 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/best-anime-high-art/
+
+This list breaks down 10 anime considered artistic masterpieces, exploring the qualities that lift each title into the realm of high art.
+---------
+
+# 5 Best Standalone '80s Slasher Movies With No Sequels
+
+Movies, Horror, Terror Train, The Prowler
+
+Sun, 01 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/best-standalone-80s-slashers-no-sequels/
+
+There’s a long-running stereotype that 1980s slasher movies tended to spawn long-running series. However, there are exceptions to every rule.
+---------
+
+# The Best JRPG Ending Is Still the Greatest 20 Minutes in Video Game History
+
+Games, JRPG, Final Fantasy
+
+Sun, 01 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/best-jrpg-ending-all-time-final-fantasy-7/
+
+The greatest JRPG of the PS1 era goes out with a bang.
+---------
+
+# After 131.6M Subscribers, HBO Max Faces a Crucial New Era Under Paramount
+
+TV Features, HBO Max, Paramount Plus, Warner Bros., The Pitt
+
+Sun, 01 Mar 2026 02:42:13 GMT
+
+https://collider.com/paramount-warner-bros-merger-hbo-max-future-explained/
+
+With Paramount set to acquire Warner Bros., the future of HBO Max could potentially be up in the air.
+---------
+
+# 10 Modern Sitcoms That Are 10/10, No Notes
+
+TV, Abbott Elementary, Ghosts, Shrinking, Comedy
+
+Sun, 01 Mar 2026 02:06:13 GMT
+
+https://collider.com/modern-sitcoms-perfect/
+
+Discover the best modern sitcoms that blend humor and relatable themes to offer a perfect escape, from Ted Lasso to Abbott Elementary.
+---------
+
+# Wu‑Tang Clan's Rise to Hip‑Hop Immortality Meets Tragedy as Founding Legend Dies Just After Rock & Roll Hall of Fame Nomination
+
+Music Features, Wu: The Story of the Wu-Tang Clan, Music, Rock, Hip-Hop
+
+Sun, 01 Mar 2026 01:27:25 GMT
+
+https://collider.com/wu-tang-clan-rock-and-roll-hall-of-fame-nomination/
+
+The Wu-Tang Clan's potential induction into the Rock and Roll Hall of Fame comes amidst the tragic passing of founding member Oliver Power Grant, highlighting the group's enduring impact on hip-hop and the genre's evolution from New York to global influence.
+---------
+
+# Timothée Chalamet's Pre-'Dune' 94% RT Insta-Classic Returns to Streaming on March 1
+
+Movie News, Call Me by Your Name, Timothée Chalamet, Armie Hammer, HBO Max
+
+Sun, 01 Mar 2026 01:20:12 GMT
+
+https://collider.com/timothee-chalamet-pre-dune-classic-call-me-by-your-name-streaming-hbo-max-march-2026/
+
+Discover how Timothée Chalamet's breakthrough role launched his career and find out when you can stream it on HBO Max.
+---------
+
+# This 88-Minute Comedy With Peak Tina Fey & Steve Carell Is About to Become the Perfect Weekend Rewatch
+
+Movie News, Date Night, Steve Carell, Mark Wahlberg, HBO Max
+
+Sun, 01 Mar 2026 01:00:12 GMT
+
+https://collider.com/date-night-steve-carell-mark-wahlberg-action-romance-streaming-hbo-max-march-2026/
+
+The underrated action rom-com Date Night, starring Steve Carell and Tina Fey, is coming to a new streaming platform very soon.
+---------
+
+# The Classic Monster Masterpiece That Inspired 'The Bride!' Comes Alive on March 1
+
+Movie News, Boris Karloff, Universal Classic Monsters, HBO Max, Bride of Frankenstein
+
+Sun, 01 Mar 2026 00:40:12 GMT
+
+https://collider.com/the-bride-of-frankenstein-1935-horror-classic-streaming-hbo-max-march-2026/
+
+Before Jessie Buckley stars in Maggie Gyllenhaal's The Bride! alongside Christian Bale, the original horror classic is available to stream.
+---------
+
+# Sam Raimi's Near-Perfect 3-Part Horror Series Just Got Even Easier To Watch
+
+TV News, Sam Raimi, Ash vs Evil Dead, Horror, The Evil Dead
+
+Sun, 01 Mar 2026 00:20:12 GMT
+
+https://collider.com/sam-raimi-ash-vs-evil-dead-near-perfect-3-part-horror-series-streaming-plex-march-2026/
+
+Sam Raimi's near-perfect three-part horror series, Ash vs Evil Dead, is available on a new streamer in March. Find out where below.
+---------
+
+# Idris Elba's Intense Apple TV Thriller Didn't Need a Season 2
+
+TV Features, Hijack, Idris Elba, Apple TV, Action
+
+Sun, 01 Mar 2026 00:18:12 GMT
+
+https://collider.com/hijack-apple-tv-idris-elba-thriller-season-2-bad-opinion/
+
+Idris Elba's Apple TV thriller Hijack had an exciting premise, but Season 2 diluted the series by following another hijacking, this time on a train.
+---------
+
+# 'Daredevil: Born Again' Season 2 Is Officially Fixing a Fan-Favorite Character
+
+TV Features, Daredevil: Born Again, Deborah Ann Woll, MCU, Disney+
+
+Sun, 01 Mar 2026 00:18:12 GMT
+
+https://collider.com/daredevil-born-again-season-2-fixing-karen-page/
+
+Deborah Ann Woll's Karen Page will take center stage in Daredevil: Born Again Season 2, becoming Matt Murdock's equal and a key ally.
+---------
+
+# Netflix Is Bringing Back a Polarizing Cult-Classic Revival 7 Years After It Ended
+
+TV Features, Veronica Mars, veronica mars season 4, Kristen Bell, Netflix
+
+Sun, 01 Mar 2026 00:06:12 GMT
+
+https://collider.com/veronica-mars-back-on-netflix-cult-classic-revivals/
+
+Veronica Mars Season 4 challenged the revival formula with bold changes, exploring the show's evolution and polarizing impact on fans.
+---------
+
+# Ryan Gosling's 'Star Wars: Starfighter' Role Is His "Bravest" [Exclusive]
+
+Movie News, Ryan Gosling, Star Wars: Starfighter, Star Wars
+
+Sun, 01 Mar 2026 03:30:17 GMT
+
+https://movieweb.com/ryan-gosling-star-wars-starfighter-bravest/
+
+Gosling tells us how courage informs his character from a galaxy far, far away.
+---------
+
+# 8 TV Shows With Stacked Casts Nobody Remembers
+
+TV Lists, Catch-22, NewsRadio, The Stand, Catherine the Great, See
+
+Sun, 01 Mar 2026 03:01:16 GMT
+
+https://movieweb.com/tv-shows-forgotten-great-casts/
+
+From 'See' to 'Newsradio,' these underrated and forgotten TV shows have incredible and talented cast members.
+---------
+
+# Tom Hanks Avoided Comedic Typecast With This Oscar-Winning Performance
+
+Features, Tom Hanks, Philadelphia, Career Arc Reframe
+
+Sun, 01 Mar 2026 02:00:18 GMT
+
+https://movieweb.com/tom-hanks-rewrote-career-philadelphia/
+
+Before 'Forrest Gump', Tom Hanks shattered his comedic image with his Oscar-winning performance in 'Philadelphia'.
+---------
+
+# Epic Sci-Fi Action Movie 'Battle: Los Angeles' Streams for Free on Tubi in March
+
+Movie News, Battle: Los Angeles, Tubi, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 01 Mar 2026 01:01:18 GMT
+
+https://movieweb.com/battle-los-angeles-streaming-tubi-march-2026/
+
+The divisive alien-invasion sci-fi action blockbuster 'Battle: Los Angeles' streams for free on Tubi this March. Roger Ebert hated it.
+---------
+
+# 'Yellowstone' Is Back: Taylor Sheridan's 'Marshals' and 'The Madison' Premiere in March
+
+Features, Marshals, Yellowstone, The Madison
+
+Sun, 01 Mar 2026 01:01:18 GMT
+
+https://movieweb.com/two-yellowstone-sequels-coming-march-2026/
+
+2 Years after the flagship series ended, the 'Yellowstone' franchise continues into the future with two new spin-offs this month.
+---------
+
+# 'The Dropout' on Hulu Is a Perfect Thriller for a Weekend Binge
+
+Features
+
+Sun, 01 Mar 2026 01:01:18 GMT
+
+https://movieweb.com/the-dropout-hulu-weekend-binge/
+
+'The Dropout,' which stars Amanda Seyfried as Elizabeth Holmes and streams on Hulu, is a great weekend binge-watch.
+---------
+
+# Mark Wahlberg's Action Thriller 'Shooter' Streams for Free on Tubi
+
+Movie News, Shooter, Tubi, Coming/Leaving Streaming, Action
+
+Sun, 01 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/shooter-streaming-tubi-march-2026/
+
+Marh Wahlberg's old fashioned action thriller 'Shooter' is streaming for free on Tubi in March 2026.
+---------
+
+# 'Scrubs' Season 9 Needed To Be Made for the Revival To Be So Great
+
+Features, Scrubs
+
+Sun, 01 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/scrubs-revival-season-benefit/
+
+The 13 'Med School' episodes were almost universally despised, but the perfection of the 'Scrubs' revival proves they had to be made.
+---------
+
 # Prime Video’s 6-Season Space Opera Is One Of The Best Sci-Fi Book Adaptations Of The Century
 
 Classic TV, The Expanse, Prime Video, Sci-Fi
