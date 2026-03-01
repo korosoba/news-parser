@@ -1,3 +1,267 @@
+# Scream 7's Global Box Office Debut Outgrosses The Entire Run Of Scream 4
+
+Movies, Box Office, Horror, Scream, Scream 7
+
+Sun, 01 Mar 2026 16:32:34 GMT
+
+https://screenrant.com/scream-7-global-box-office-debut/
+
+Scream 7 takes a single weekend to outgross the entire run of 2011's Scream 4 thanks to a record-shattering global box office debut haul.
+---------
+
+# All Active Clash Of Clans Creator Codes (March 2026)
+
+Gaming, Clash of Clans, Mobile, Triple-A Games
+
+Sun, 01 Mar 2026 16:30:21 GMT
+
+https://screenrant.com/all-active-clash-of-clans-creator-codes/
+
+Clash of Clans lets you support your favorite creator by redeeming creator codes in-game. Here is every active creator code for March 2026.
+---------
+
+# 15 Best Limited Series Streaming Now
+
+Streaming TV
+
+Sun, 01 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/best-limited-series-on-streaming/
+
+Experience the best of limited series streaming now, with expertly crafted stories, exceptional acting, and binge-worthy episodes.
+---------
+
+# Marvel’s $60 Million Box Office Bomb May Have Just Become Its Biggest Win Yet
+
+Superheroes, Marvel, Sony's Spider-Man Universe
+
+Sun, 01 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/marvel-kraven-the-hunter-good-spider-man-sony-reboot/
+
+One of the lowest-grossing Marvel movies in recent history may have set up far great box office results for the near future in the long run.
+---------
+
+# Apple's Upcoming Sci-Fi Show Is The Matrix Sequel Fans Have Been Waiting For
+
+Streaming TV, Neuromancer, The Matrix
+
+Sun, 01 Mar 2026 16:23:19 GMT
+
+https://screenrant.com/apple-tv-sci-fi-show-neuromancer-matrix-successor/
+
+William Gibson's seminal cyberpunk novel Neuromancer was a major influence on The Matrix — and now, Apple is turning it into a TV show.
+---------
+
+# A24's Glen Powell Thriller Based On 77-Year-Old Classic Has Significant Week 2 Slump Despite Adding More Theaters
+
+Movies, Box Office, How to Make a Killing
+
+Sun, 01 Mar 2026 16:23:10 GMT
+
+https://screenrant.com/how-to-make-a-killing-box-office-added-theaters-second-weekend/
+
+Glen Powell's disappointing new A24 thriller slumps at the box office during its sophomore weekend even though it's playing in more theaters.
+---------
+
+# HBO's Green Lantern Cop Show: A Sci-Fi Game Changer?
+
+Streaming TV, Lanterns, The Mandalorian
+
+Sun, 01 Mar 2026 16:07:18 GMT
+
+https://screenrant.com/hbo-lanterns-science-fiction-mystery-grounded-mandalorian/
+
+Lanterns, HBO's upcoming sci-fi police procedural set in the DC Universe, could show The Mandalorian how it's done (if it lives up to the hype).
+---------
+
+# Hollywood's Endless Adaptations: Wuthering Heights & 7 Other Iconic Books
+
+Movies, Wuthering Heights
+
+Sun, 01 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/books-hollywood-keeps-adapting-movies-show/
+
+Wuthering Heights is just one of many seminal novels that Hollywood keeps adapting into movies and TV shows, along with Dracula and Little Women.
+---------
+
+# HBO Quietly Delivered One Of The Greatest Mystery Box Shows Of All Time
+
+TV, The Leftovers
+
+Sun, 01 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/the-leftovers-hbo-best-mystery-box-show/
+
+While many mystery box shows disappoint with their endings, this post-apocalyptic character drama from Lost's co-creator left viewers satisfied.
+---------
+
+# Krull: A Forgotten Fantasy Space Opera's Enduring Legacy
+
+Movies, Krull, Sci-Fi, Fantasy
+
+Sun, 01 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/krull-liam-neeson-forgotten-fantasy-movie/
+
+This fantastical space adventure is perfect for fans seeking a nostalgic, colourful sci-fi film with impressive sets and animatronics.
+---------
+
+# 'There's Gotta Be Another': Austin Tindle Talks Future of Wind Breaker
+
+CBR Exclusives, Wind Breaker
+
+Sun, 01 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/austin-tindle-wind-breaker-season-3-hopes/
+
+Following the high-energy of Wind Breaker Season 2, Austin Tindle is hopeful that Sakura will come back for a third season.
+---------
+
+# Evangelion Wacom Pro Anime Tablet for 30th Anniversary Gets Official U.S. Release
+
+Anime, Neon Genesis Evangelion
+
+Sun, 01 Mar 2026 16:00:13 GMT
+
+https://www.cbr.com/evangelion-wacom-special-edition-america-release/
+
+Neon Genesis Evangelion finally confirms the U.S. release of the Wacom MovinkPad Pro EVA Edition, following the new anime announcement.
+---------
+
+# Apple TV's Sci-Fi Series Monarch: Legacy of Monsters Officially Dethrones Shrinking as No. 1
+
+TV, Monarch: Legacy of Monsters, Shrinking
+
+Sun, 01 Mar 2026 16:00:13 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-dethrones-shrinking-apple-tv-march-2026/
+
+Shrinking has shrunk its streaming lead.
+---------
+
+# 4 Horror Games Better Than Silent Hill
+
+Games, Silent Hill, Resident Evil, horror games, Horror
+
+Sun, 01 Mar 2026 16:00:13 GMT
+
+https://www.cbr.com/horror-games-better-than-silent-hill/
+
+Silent Hill is a psychological horror masterpiece, but there are other horror games and franchises that give it competition when it comes to scares.
+---------
+
+# Netflix's His House Is Mandatory Viewing for Sinners Fans
+
+Movies, His House, Horror, Netflix
+
+Sun, 01 Mar 2026 16:00:13 GMT
+
+https://www.cbr.com/netflix-his-house-perfect-for-sinners-fans/
+
+Fans of Sinners, and especially Academy Award-nominated actress Wunmi Mosaku, should check out this 100%-rated Netflix horror gem.
+---------
+
+# HBO’s 2-Part Sci-Fi Sensation Is Fading Faster Than Anyone Expected
+
+TV News, The Last of Us, HBO Max, Kaitlyn Dever, Pedro Pascal
+
+Sun, 01 Mar 2026 16:40:12 GMT
+
+https://collider.com/last-of-us-hbo-2-part-sci-fi-series-streaming-disappointment-hbo-max-february-2026/
+
+The Last of Us, HBO's controversial two-part sci-fi series, has already been forgotten by fans as it drops off streaming charts.
+---------
+
+# 10 Best Movie Endings of the 2010s, Ranked
+
+Movie, Toy Story 3, Whiplash, Uncut Gems, Avengers: Infinity War
+
+Sun, 01 Mar 2026 16:35:12 GMT
+
+https://collider.com/best-2010s-movie-endings-ranked/
+
+The 2010s was a decade filled with great movie endings, including the final scenes for films like Toy Story 3, Whiplash, and Avengers: Infinity War.
+---------
+
+# 26 Years Ago, This Forgotten Sci-Fi Show Launched the Stellar Career of a 'Paradise' Star
+
+TV Features, The Others, Julianne Nicholson, NBC, Sci-Fi
+
+Sun, 01 Mar 2026 16:27:13 GMT
+
+https://collider.com/julianne-nicholson-the-others-sci-fi-series/
+
+Emmy winner Julianne Nicholson got her start in the sci-fi series The Others, a 2000s drama about a woman with supernatural abilities.
+---------
+
+# 9 Netflix Original Shows That Are 10/10, No Notes
+
+TV, Netflix, Arcane, Narcos, Mindhunter
+
+Sun, 01 Mar 2026 16:24:13 GMT
+
+https://collider.com/netflix-original-shows-perfect/
+
+From Wagner Moura's crime drama Narcos to the adult animated masterpiece BoJack Horseman, these original series are the gold standard of Netflix.
+---------
+
+# 10 Years Later, Matt Damon’s Most Divisive Action Sequel Finds Redemption on Streaming
+
+Movie News, Jason Bourne, Matt Damon, Apple TV, John Wick
+
+Sun, 01 Mar 2026 16:20:12 GMT
+
+https://collider.com/matt-damon-jason-bourne-divisive-action-sequel-streaming-success-apple-tv-february-2026/
+
+10 years after being panned by critics, Matt Damon's reviled John Wick replacement, Jason Bourne, finds redemption on streaming.
+---------
+
+# Taylor Sheridan's Most Divisive Star Just Took ‘Scream 7’ to New Box Office Heights
+
+Movie News, Scream 7, Michelle Randolph, Isabel May, Taylor Sheridan
+
+Sun, 01 Mar 2026 16:14:57 GMT
+
+https://collider.com/taylor-sheridan-star-michelle-randolph-scream-7-box-office-milestone-97-million/
+
+30 years later, a Taylor Sheridan star just helped the Scream franchise past a new box office milestone. See how much it's made.
+---------
+
+# Skip ‘Wuthering Heights’ and Watch This 21st Century Period Romance Before It Leaves Netflix
+
+Movie News, Pride & Prejudice, Keira Knightley, Matthew Macfadyen, Joe Wright
+
+Sun, 01 Mar 2026 16:00:13 GMT
+
+https://collider.com/pride-and-prejudice-keira-knightley-best-period-romance-of-the-century-leaving-netflix-march-2026/
+
+Director Joe Wright's generation-defining period romance movie Pride & Prejudice, starring Kiera Knightley, is about to leave Netflix. Find out more.
+---------
+
+# Kevin Spacey 'House of Cards' Lawsuit Goes to Court
+
+TV News, Kevin Spacey, House of Cards, Netflix
+
+Sun, 01 Mar 2026 16:46:29 GMT
+
+https://movieweb.com/kevin-spacey-house-of-cards-lawsuit-court/
+
+Spacey will testify that he couldn't work on the final season of 'House of Cards' because he was too sick.
+---------
+
+# 'Marshals': When & Where to Watch the New 'Yellowstone' Spin-off
+
+Features, Marshals, Yellowstone
+
+Sun, 01 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/marshals-where-to-watch-new-yellowstone-spin-off/
+
+The most recent 'Yellowstone' spin-off is coming to a new TV destination this March.
+---------
+
 # The Greatest Western Movie From Every Decade Over The Last 100 Years
 
 Classic Movies, Western, Ranking
