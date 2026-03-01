@@ -1,3 +1,278 @@
+# Binge Netflix's Best Action Series Bodyguard in Under 7 Hours
+
+Classic TV, Bodyguard
+
+Sun, 01 Mar 2026 18:57:19 GMT
+
+https://screenrant.com/netflix-bodyguard-spy-thriller-series-binge-6-episodes/
+
+Netflix’s six-episode miniseries starring Richard Madden, Bodyguard, is an exceptional action TV show that can be watched in just under seven hours.
+---------
+
+# Why Apple TV's New #1 Show Is Taking Over The World (New Episodes Out Now)
+
+Streaming TV, Monarch: Legacy of Monsters
+
+Sun, 01 Mar 2026 18:53:15 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-apple-tv-success-season-march-2026/
+
+Monarch: Legacy of Monsters is getting great reviews from both critics and audiences. Apple TV's sci-fi show expands the lore of the iconic Godzilla.
+---------
+
+# Tom Hardy's Underrated 91% RT Thriller Directed By Peaky Blinders Creator Revs Up Streaming Charts
+
+Movies, Locke, Tom Hardy, HBO Max
+
+Sun, 01 Mar 2026 18:49:37 GMT
+
+https://screenrant.com/tom-hardy-locke-movie-hbo-max-streaming-success-steven-knight/
+
+One of Tom Hardy's all-time best films from the creator of Peaky Blinders is now finding tremendous streaming success more than a decade later.
+---------
+
+# 10 Best Movies About Stand-Up Comedy, Ranked
+
+Classic Movies, Ranking
+
+Sun, 01 Mar 2026 18:45:18 GMT
+
+https://screenrant.com/best-stand-up-comedy-movies-ranked/
+
+Whether they're delivering sidesplitting laughs or serious character drama, movies about stand-up comedy offer an interesting look at the profession.
+---------
+
+# 10 Best First-Generation K-Dramas
+
+Classic TV, K-Drama
+
+Sun, 01 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/k-dramas-first-generation-better-than-modern-series/
+
+K-dramas are more prevalent than ever nowadays, but the Hallyu Wave of the 2000s resulted in some of the best Korean television shows to date.
+---------
+
+# 7 Upcoming D&D 5e Subclasses You Should Be Excited For
+
+Tabletop, Dungeons & Dragons, Dungeons and Dragons, tabletop games
+
+Sun, 01 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/dnd-upcoming-subclasses-most-exciting/
+
+After the 2024 rules update, Dungeons & Dragons is getting new subclasses and a few returning reworks; here’s what to look out for in the future.
+---------
+
+# 10 Iconic Martin Scorsese Movie Scenes That Define Cinematic Perfection
+
+Movies, Martin Scorsese
+
+Sun, 01 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/martin-scorsese-movie-scenes-basically-perfect/
+
+From the Copacabana scene in Goodfellas to the Quaaludes scene in The Wolf of Wall Street, these are Martin Scorsese's greatest movie moments.
+---------
+
+# This Steam Freebie Has Shades Of Zelda, Minecraft, And Dark Souls
+
+Gaming, Steam
+
+Sun, 01 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/steam-free-rpg-demo-zelda-minecraft-vibes/
+
+Soulscape is a sandbox RPG that puts together crafting, building, survival, fighting and dungeon exploration into one compelling game.
+---------
+
+# Spider-Man’s Newest Trailer Proves Marvel Learned The Right Lessons From 1 Show
+
+TV, Spider-Noir, Marvel Cinematic Universe
+
+Sun, 01 Mar 2026 17:55:19 GMT
+
+https://screenrant.com/spider-man-noir-trailer-daredevil-born-again/
+
+Spider-Man's next major upcoming on-screen release looks to be drawing from a place in Marvel's recent release history that seems especially wise.
+---------
+
+# Scarlett Johansson's Jurassic World Rebirth Is 1 of the Most Popular Films in the World
+
+Movies, Jurassic World Rebirth, Jurassic Park
+
+Sun, 01 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/scarlett-johansson-jurassic-world-rebirth-sci-fi-global-success-march-2026/
+
+The 2025 sci-fi action hit that helped breathe new life into a beloved franchise is officially at the top of the streaming food chain.
+---------
+
+# Sarah Michelle Gellar Confirms Buffy The Vampire Slayer Easter Egg in Ready or Not 2: Here I Come
+
+Movies, Ready or Not 2: Here I Come, Buffy The Vampire Slayer
+
+Sun, 01 Mar 2026 18:54:29 GMT
+
+https://www.cbr.com/sarah-michelle-gellar-buffy-the-vampire-slayer-easter-egg-ready-or-not-2-here-i-come/
+
+Ahead of the new reboot, Sarah Michelle Gellar's new project has a Buffy the Vampire Slayer Easter Egg.
+---------
+
+# Berserk Finally Announces Volume 43 Release Date as English Sales Pass 10 Million
+
+Anime, Berserk, Dark Horse Comics
+
+Sun, 01 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/berserk-volume-43-release-date-america/
+
+Kentaro Miura's Berserk manga is about to make a big international comeback in 2026 after hitting a major sales milestone.
+---------
+
+# IMAX’s Dune 3 Decision Just Reshaped 2026’s Biggest Box Office Battle
+
+Movies, Dune: Part Three, Avengers: Doomsday, Sci-Fi
+
+Sun, 01 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/imax-dune-3-avengers-doomsday-box-office-battle/
+
+Dune 3 just won a major war in the battle for the biggest box office hit of 2026--and it might spell disaster for this massive franchise.
+---------
+
+# 26 Years Later, The Best Final Fantasy is an Untouchable Gem
+
+Games, Final Fantasy, PlayStation (Original)
+
+Sun, 01 Mar 2026 18:15:11 GMT
+
+https://www.cbr.com/final-fantasy-greatest-game-ff9/
+
+Released in 2000 on the Sony PlayStation, Final Fantasy IX represents the peak of fantasy storytelling in gaming.
+---------
+
+# Daniel Radcliffe's The Fall and Rise of Reggie Dinkins Falls Leaves Streaming Charts
+
+TV, The Fall and Rise of Reggie Dinkins, Daniel Radcliffe
+
+Sun, 01 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/daniel-radcliffe-the-fall-and-rise-of-reggie-dinkins-peacock-failure-march-2026/
+
+Daniel Radcliffe's new series impressed critics, but it didn't become an instant streaming hit.
+---------
+
+# The Best Teen Mystery Shows
+
+TV, Yellowjackets, Chilling Adventures of Sabrina, Stranger Things, Drama
+
+Sun, 01 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/best-teen-mystery-shows/
+
+Between realistic teen dramas and dabbling in the supernatural, there are no mystery series like teen mysteries.
+---------
+
+# 20 Years Later, This Revolutionary Superhero Thriller Reintroduces Itself on Streaming
+
+Movie News, V For Vendetta, Hugo Weaving, Natalie Portman, HBO Max
+
+Sun, 01 Mar 2026 19:00:12 GMT
+
+https://collider.com/v-for-vendetta-20-years-later-arrives-on-streaming-hbo-max-march-2026/
+
+It’s been 20 years but the world can’t seem to forget V for Vendetta. Find out where the classic superhero flick will be streaming in March.
+---------
+
+# Bruce Willis' Action Bomb With a 'Yellowstone' Favorite Gets a Second Chance on Free Streaming
+
+Movie News, Bruce Willis, Acts of Violence, Action, Plex
+
+Sun, 01 Mar 2026 18:40:12 GMT
+
+https://collider.com/bruce-willis-lowest-rated-movie-acts-of-violence-streaming-plex-march-2026/
+
+Bruce Willis' lowest-rated movie on Rotten Tomatoes, Acts of Violence, is streaming on a new platform this March. Find out more here.
+---------
+
+# 10 Underrated Westerns That Can Be Called Masterpieces
+
+Movie, Westerns, Kevin Costner, Silverado, 3:10 to Yuma
+
+Sun, 01 Mar 2026 18:23:12 GMT
+
+https://collider.com/underrated-western-movies-masterpieces/
+
+Silverado, Open Range, and The Naked Spur are all among the most underrated Western movies that can be called masterpieces.
+---------
+
+# Prime Video Makes a Great Case for 'Landman' Icon's 'Lincoln Lawyer' Alternative
+
+TV News, Goliath, Billy Bob Thornton, Landman, Prime Video
+
+Sun, 01 Mar 2026 18:20:12 GMT
+
+https://collider.com/billy-bob-thornton-legal-thriller-goliath-streaming-success-prime-video-february-2026/
+
+Before starring in Landman, Billy Bob Thornton crushed all 32 episodes of this gripping legal thriller perfect for Lincoln Lawyer fans.
+---------
+
+# All 5 Best Score Nominees at the 2026 Oscars, Ranked
+
+Movie, Oscars, One Battle After Another, Bugonia, Sinners
+
+Sun, 01 Mar 2026 18:03:12 GMT
+
+https://collider.com/oscars-2026-best-score-nominees-ranked/
+
+Bugonia, Hamnet, Frankenstein, Sinners, and One Battle After Another are all nominated for Best Score at this year's Oscars, but which is the best?
+---------
+
+# ‘True Detective’ Fans Can’t Stop Hitting Play on Mark Ruffalo’s 7-Part HBO Drama
+
+TV News, Task, True Detective, Mark Ruffalo, HBO
+
+Sun, 01 Mar 2026 18:00:12 GMT
+
+https://collider.com/mark-ruffalo-task-perfect-for-true-detective-fans-streaming-success-hbo-max-february-2026/
+
+Mark Ruffalo's Task, a seven-part HBO police procedural, is winning over True Detective fans at the top of streaming charts.
+---------
+
+# 10 Years Later, HBO's 'The Night Of' Still Deserves a Season 2
+
+Features, The Night Of, HBO Max, Streaming Recommendations, Holds Up
+
+Sun, 01 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/the-night-of-streaming-hbo-february-2026/
+
+The gripping series has limitless potential to offer audiences another mystery.
+---------
+
+# 'Scream 7' Box Office Opening Weekend Sets Franchise Record
+
+Movie News, Scream 7, Scream, Box Office Milestones, box office
+
+Sun, 01 Mar 2026 18:01:53 GMT
+
+https://movieweb.com/scream-7-just-set-a-franchise-record-at-the-box-office/
+
+'Scream 7' just set a record for the best opening weekend at the domestic box office in franchise history.
+---------
+
+# 'Bridgerton' Season 4's Sophie and Benedict Romance Deserved More
+
+Features, Bridgerton
+
+Sun, 01 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/bridgerton-season-4-romance-twist-wrong/
+
+'Bridgerton' Season 4 on Netflix concluded the love story between Sophie (Yerin Ha) and Benedict Bridgerton (Luke Thompson.
+---------
+
 # Apple TV's Longest-Running Sci-Fi Show Jumps To Another Decade In Thrilling New Images (EXCLUSIVE)
 
 Exclusive, For All Mankind, Apple TV
