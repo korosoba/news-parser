@@ -1,3 +1,256 @@
+# The Greatest Western Movie From Every Decade Over The Last 100 Years
+
+Classic Movies, Western, Ranking
+
+Sun, 01 Mar 2026 15:40:18 GMT
+
+https://screenrant.com/best-western-movies-every-decade-last-100-years/
+
+There have been some great Westerns over the last 100 years, and here is the best movie released from each decade during that time frame.
+---------
+
+# Love Is Blind: Ranking The 10 Worst Couples
+
+Reality TV, Love Is Blind
+
+Sun, 01 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/love-is-blind-worst-couples-ranked/
+
+From controversial engagements to disastrous post-pod meetups, these 10 Love Is Blind couples left viewers cringing. We rank the worst LIB pairings.
+---------
+
+# “Game Of The Year Material” RPG Releases Next Week, Free Demo Available Now
+
+Gaming, Indie Games, PC, Steam
+
+Sun, 01 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/esoteric-ebb-release-date-free-demo/
+
+We're in the midst of Steam Next Fest, and one of the stand-out demos, a very promising RPG, has its full release coming in just a few days.
+---------
+
+# Cartoon Network’s Best Show Of All Time Is The Gold Standard For Fantasy Animation
+
+Classic TV, Adventure Time, Cartoon Network
+
+Sun, 01 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/cartoon-network-adventure-time-best-show-fantasy-animation-perfect/
+
+Cartoon Network's best TV show of all time set the gold standard for fantasy animation when it began over 15 years ago.
+---------
+
+# All 7 Scream Movies, Ranked Worst To Best
+
+Classic Movies, Scream
+
+Sun, 01 Mar 2026 15:15:18 GMT
+
+https://screenrant.com/every-scream-movie-ranked-worst-best/
+
+As one of the most popular slasher series of all time, Scream has been frightening filmgoers with self-referential mysteries for 30 years now
+---------
+
+# Marvel Studios Almost Cancelled MCU TV Show With All Time Record Rotten Tomatoes Score
+
+TV, Wonder Man, Marvel Cinematic Universe
+
+Sun, 01 Mar 2026 15:14:34 GMT
+
+https://screenrant.com/wonder-man-mcu-disney-show-almost-cancelled-andrew-guest-response/
+
+While it became a big success for Marvel Studios, they almost cancelled one of the most well-received MCU TV shows as the showrunner reveals it all.
+---------
+
+# 20 Best Directorial Debuts Of All Time
+
+Movies
+
+Sun, 01 Mar 2026 15:12:19 GMT
+
+https://screenrant.com/best-directorial-movie-debuts-of-all-time/
+
+From Greta Gerwig's Lady Bird to Quentin Tarantino's crime caper Reservoir Dogs, these are the greatest directorial debuts in movie history.
+---------
+
+# Sci-Fi Reboots Rarely Work, But This 4-Part Space Opera Was Perfect From Start To Finish
+
+Classic TV, Battlestar Galactica, Sci-Fi
+
+Sun, 01 Mar 2026 15:03:18 GMT
+
+https://screenrant.com/battlestar-galactica-sci-fi-reboot-successful-franchise/
+
+Before streaming dominance, this groundbreaking space opera reboot redefined television storytelling. Over 20 years later, it still holds up.
+---------
+
+# Star Wars Can Finally Make the Hunt for Ben Solo Work All Thanks to 1 Secret Retcon
+
+Comics, Star Wars, Ben Solo/Kylo Ren, Star Wars: Episode IX - The Rise of Skywalker
+
+Sun, 01 Mar 2026 15:00:21 GMT
+
+https://screenrant.com/star-wars-secret-retcon-the-hunt-for-ben-solo-comics/
+
+The teased Hunt for Ben Solo movie could work canonically within the Star Wars franchise, and this secret retcon proves how it could be done.
+---------
+
+# PlayStation Plus Subscribers Have Only 48 Hours To Grab Latest Free Games
+
+Gaming, PlayStation Plus
+
+Sun, 01 Mar 2026 15:00:21 GMT
+
+https://screenrant.com/playstation-plus-free-games-leaving-march-3/
+
+As PlayStation Plus gears up for its March 2026 games, the current slate of February Essential titles are all leaving in about 48 hours from now.
+---------
+
+# Dragon Ball: 5 Valid Reasons to Start With DBZ First
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Sun, 01 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/dragon-ball-better-to-start-with-dbz/
+
+Dragon Ball Z may be Dragon Ball's successor, but a strong case can be made for why it's the better title to watch first.
+---------
+
+# Ana de Armas’ Underseen John Wick Replacement Is Heading to HBO Max
+
+Movies, From the World of John Wick: Ballerina, John Wick
+
+Sun, 01 Mar 2026 15:00:13 GMT
+
+https://www.cbr.com/ana-de-armas-john-wick-ballerina-hbo-max-streaming-march-2026/
+
+The criminally underrated spinoff from the world of John Wick will soon be available on HBO Max.
+---------
+
+# 10 Marvel Characters Who Outgrew Their Story Arcs
+
+Comics, Marvel
+
+Sun, 01 Mar 2026 15:00:13 GMT
+
+https://www.cbr.com/marvel-characters-who-outgrew-their-original-storylines/
+
+Marvel doesn't know what to do next with these characters.
+---------
+
+# Netflix's The Night Agent Makes Reacher Look Tame
+
+TV, Reacher, The Night Agent, Netflix
+
+Sun, 01 Mar 2026 15:00:13 GMT
+
+https://www.cbr.com/netflix-the-night-agent-makes-reacher-look-tame/
+
+Reacher delivers top-tier action and stakes, but The Night Agent is a Netflix spy series that puts the Alan Ritchson series to shame.
+---------
+
+# Netflix Says Goodbye to the Spielberg Thriller That Made Daniel Craig a Star Before James Bond
+
+Movie News, Steven Spielberg, Munich, Daniel Craig, Eric Bana
+
+Sun, 01 Mar 2026 15:40:12 GMT
+
+https://collider.com/steven-spielberg-epic-masterpiece-munich-leaving-netflix-march-2026/
+
+Steven Spielberg's 2005 masterpiece, Munich, is about to leave Netflix even as its legacy takes new shape amid geopolitical tensions. Find out more.
+---------
+
+# This Stellar 7-Part Legal Drama Is One of the Greatest of the 21st Century
+
+TV Features, The Good Wife, Julianna Margulies, CBS, Drama
+
+Sun, 01 Mar 2026 15:38:12 GMT
+
+https://collider.com/the-good-wife-legal-drama-julianna-margulies-greatest-21st-century/
+
+Julianna Margulies' long-running CBS drama The Good Wife is a sharp political thriller that helped set the standard for legal dramas.
+---------
+
+# ‘Friends’ Iconic 5-Word Quote Changed Everything for the Sitcom
+
+TV Features, Friends, David Schwimmer, Jennifer Aniston, NBC
+
+Sun, 01 Mar 2026 15:29:12 GMT
+
+https://collider.com/friends-sitcom-quote-changed-everything-ross-rachel-break/
+
+The iconic "We were on a break" quote transformed Ross and Rachel's relationship on Friends, adding complexity to the beloved sitcom's romance.
+---------
+
+# One of Sci-Fi’s Strangest Cult Classics Is Finally Haunting a Major Streaming Home
+
+Movie News, Angel's Egg, HBO Max, Sci-Fi, Ghost in the Shell
+
+Sun, 01 Mar 2026 15:20:12 GMT
+
+https://collider.com/greatest-sci-fi-cult-classic-angels-egg-streaming-hbo-max-march-2026/
+
+After 40 years, the critically acclaimed animated sci-fi film directed by Mamoru Oshii will finally find a new audience on a major streaming home.
+---------
+
+# ‘Bridgerton’ Season 4’s Most Unexpected Finale Breakup Was Meant To Blindside You
+
+Interviews, Bridgerton, Netflix, Shonda Rhimes, Romance
+
+Sun, 01 Mar 2026 15:00:15 GMT
+
+https://collider.com/bridgerton-season-4-finale-breakup-explained-daniel-francis-interview/
+
+Daniel Francis explains why Lord Anderson ends his engagement to Violet after she wants to keep things casual in the Bridgerton Season 4 finale.
+---------
+
+# 10 Years Later, Paul Dano and a Gassy Harry Potter Favorite Unite in This Surreal Streaming Cult Classic
+
+Movie News, Swiss Army Man, Daniel Radcliffe, Paul Dano, HBO Max
+
+Sun, 01 Mar 2026 15:00:15 GMT
+
+https://collider.com/swiss-army-man-daniel-radcliffe-surreal-comedy-cult-classic-streaming-hbo-max-march-2026/
+
+Ten years after its release, Swiss Army Man, starring Daniel Radcliffe and Paul Dano, has found a new streaming home. Here's when it arrives.
+---------
+
+# Prime Video’s 29-Book Crime Series Adaptation Proves It’s Thinking Beyond ‘Reacher’
+
+TV Features, Scarpetta, Nicole Kidman, Prime Video, Jamie Lee Curtis
+
+Sun, 01 Mar 2026 14:53:13 GMT
+
+https://collider.com/prime-video-scarpetta-series-nicole-kidman-patricia-cornwell-books/
+
+Patricia Cornwell's medical examiner, Kay Scarpetta, is finally getting the television treatment in a new series for Prime Video.
+---------
+
+# 'Gangs of London' Is the Crime Thriller Alternative 'Peaky Blinders' Fans Need To Watch
+
+TV News, Gangs of London, Streaming Recommendations, Peaky Blinders
+
+Sun, 01 Mar 2026 15:01:17 GMT
+
+https://movieweb.com/gangs-of-london-peaky-blinders-alternative-streaming-amc/
+
+While waiting for Netflix's 'Peaky Blinders: The Immortal Man,' fans would do well to check out 'Gangs of London' on AMC+.
+---------
+
+# You Should Watch '90s Cult Classic 'The Crush' For One Reason
+
+Features, Cultural Reassessment, The Crush
+
+Sun, 01 Mar 2026 15:01:17 GMT
+
+https://movieweb.com/the-crush-alicia-silverstone-great-performance/
+
+'The Crush' was released in 1993, and the controversial thriller film stars Cary Elwes and Alicia Silverstone as Nick and Adrian.
+---------
+
 # Hulu's New Sci-Fi Movie Has Critics & Audiences Very Divided On Rotten Tomatoes
 
 Movies, In the Blink of an Eye
