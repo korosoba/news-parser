@@ -1,3 +1,234 @@
+# Apple TV's Longest-Running Sci-Fi Show Jumps To Another Decade In Thrilling New Images (EXCLUSIVE)
+
+Exclusive, For All Mankind, Apple TV
+
+Sun, 01 Mar 2026 17:43:42 GMT
+
+https://screenrant.com/for-all-mankind-season-5-new-images/
+
+EXCLUSIVE: Apple TV's For All Mankind moves forward to another decade of bold science-fiction storytelling in new images from season 5.
+---------
+
+# My Heat 2 Predictions For Which Characters Christian Bale & Leonardo DiCaprio Are Actually Playing
+
+Movies, Heat 2, Heat, Op-Ed
+
+Sun, 01 Mar 2026 17:40:19 GMT
+
+https://screenrant.com/heat-2-casting-predictions-christian-bale-leonardo-dicaprio-adam-driver-characters/
+
+Christian Bale and Leonardo DiCaprio are confirmed for Heat 2, but there's a lot of mystery surrounding who they're playing; here are my predictions.
+---------
+
+# Spider-Noir: Can Prime Video's Unique Show Save Sony's Spider-Man Universe?
+
+Streaming TV, Spider-Noir
+
+Sun, 01 Mar 2026 17:37:19 GMT
+
+https://screenrant.com/prime-video-spider-noir-show-fix-sony-spiderman-universe/
+
+Prime Video's upcoming Spider-Noir show starring Nicolas Cage will finally redeem the grand, failed experiment that is Sony's Spider-Man Universe.
+---------
+
+# Prime Video’s Explosive Action Thriller Perfect For James Bond Fans Is Surging On Streaming
+
+Movies, MR-9, Prime Video, Streaming Charts
+
+Sun, 01 Mar 2026 17:35:58 GMT
+
+https://screenrant.com/mr-9-do-or-die-prime-video-streaming-success-march-2026/
+
+Prime Video is seeing success for a James Bond-like replacement as a 2023 action thriller is now surging on the streaming charts three years later.
+---------
+
+# Apple TV’s 8-Part Crime Thriller With 90% On Rotten Tomatoes Keeps Getting Better Ahead Of Its 2026 Return
+
+TV, Criminal Record
+
+Sun, 01 Mar 2026 17:33:18 GMT
+
+https://screenrant.com/apple-tv-criminal-record-thriller-peter-capaldi-2026-comeback/
+
+One bold move sets the stage for another gripping mystery in the highly anticipated 2026 return of Apple TV's critically acclaimed crime thriller.
+---------
+
+# Paradise Feels Like A Completely Different Show In Season 2
+
+Streaming TV, Paradise
+
+Sun, 01 Mar 2026 17:32:19 GMT
+
+https://screenrant.com/paradise-season-2-different-show/
+
+Paradise’s three-part season 2 premiere explores new territory outside the bunker, but potentially abandons its unique premise in the process.
+---------
+
+# Will Fourth Wing Be Prime Video's Answer to Game of Thrones?
+
+Streaming TV, Game Of Thrones, Fourth Wing
+
+Sun, 01 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/prime-video-fourth-wing-show-fanbase-popular-adaptation/
+
+Prime Video’s Game of Thrones replacement is a fantasy series with a huge fanbase, and it might give the streamer an edge in the streaming wars.
+---------
+
+# 10/10 Spinoffs Are Rare, But This 6-Season Legal Drama Is Just As Good As The Original
+
+TV, the good fight, The Good Wife
+
+Sun, 01 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/1010-spinoffs-are-rare-but-this-6-season-legal-drama-is-just-as-good-as-the-original/
+
+Most spinoffs struggle to compare to their predecessors, but this 6-season legal drama outshone the original show with a uniquely compelling story.
+---------
+
+# DC’s $82M Box Office Flop Is A Global Streaming Sensation 22 Years Later
+
+Movies, Catwoman
+
+Sun, 01 Mar 2026 17:20:48 GMT
+
+https://screenrant.com/catwoman-netflix-streaming-success-march-2026/
+
+DC movies haven't always been successful, and a 22-year-old box office flop has finally found redemption on streaming, but is it worth the hype?
+---------
+
+# Disney’s 10 Most Shocking Box Office Failures
+
+Classic Movies, Disney
+
+Sun, 01 Mar 2026 17:20:18 GMT
+
+https://screenrant.com/disney-box-office-failures-surprising/
+
+It's always shocking when a Disney movie flops at the box office, but these failures are the most surprising in the company's long history.
+---------
+
+# 10 Strongest Naruto Characters as of 2026, Ranked
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 01 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/naruto-strongest-characters-as-of-2026/
+
+The power creep of the Fourth Great Ninja War created a clear gap between the strongest characters and everyone else in Naruto.
+---------
+
+# Scream 7 Sets All-Time Franchise Box Office Record for Best Opening
+
+Movies, Scream 7, Horror
+
+Sun, 01 Mar 2026 17:14:30 GMT
+
+https://www.cbr.com/scream-7-slashes-projections-to-shatter-all-time-franchise-box-office-record/
+
+Despite protests, the new slasher managed to score a major record.
+---------
+
+# Robert De Niro's 30-Year-Old Creature Feature Is Heading to HBO Max at the Perfect Time
+
+Movies, Mary Shelley's Frankenstein
+
+Sun, 01 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/robert-de-niro-creature-feature-frankenstein-hbo-max-march-2026/
+
+De Niro starred in a stunning creature feature alongside Helena Bonham Carter and John Cleese in the 90s, and it's heading to HBO Max.
+---------
+
+# Kathryn Newton Embraces Her Scream Queen Era In  Ready Or Not 2's Exclusive Look
+
+CBR Exclusives, Horror, Ready Or Not 2
+
+Sun, 01 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/kathryn-newton-exclusive-ready-or-not-2-image/
+
+Ready or not, a sequel is on the way.
+---------
+
+# After Todd McFarlane's Western Horror Comic I'm More Excited Than Ever About DC's Gunslinger Comeback
+
+Comics, Jonah Hex, Spawn, Horror
+
+Sun, 01 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/dc-next-level-jonah-hex-comeback-after-todd-mcfarlane-gunslinger-spawn/
+
+Todd McFarlane and Brett Booth's Gunslinger Spawn revived reader interest in the Wild West, paving the way for DC Comics to follow suit.
+---------
+
+# 'Game of Thrones' Star's Gritty 3-Part Crime Thriller Dominates 'MobLand' Fans' Watchlists
+
+TV News, Gangs of London, MobLand, AMC+, Drama
+
+Sun, 01 Mar 2026 17:40:12 GMT
+
+https://collider.com/amc-better-version-of-mobland-gangs-of-london-streaming-success-february-2026/
+
+A Peaky Blinders star leads AMC's brutal Gangs of London, which is leaving MobLand in the dust on streaming. Read on for details.
+---------
+
+# 3 Years Later, Taron Egerton’s Bonkers '80s Video Game Movie Proves Skeptics Wrong
+
+Movie News, Tetris, Taron Egerton, Apple TV, Streaming
+
+Sun, 01 Mar 2026 17:20:12 GMT
+
+https://collider.com/taron-egerton-bonkers-80s-video-game-adaptation-tetris-streaming-success-apple-tv-february-2026/
+
+Three years later, Taron Egerton's bonkers video game adaptation, Tetris, is a streaming success. Find out where the blocks land below.
+---------
+
+# Led Zeppelin’s Legendary 60s Album Delivered Their First U.S. Billboard No. 1 and Changed Rock Forever
+
+Music Features, Led Zeppelin, Music, Rock, Billboard Hot 100
+
+Sun, 01 Mar 2026 17:00:13 GMT
+
+https://collider.com/led-zeppelins-first-us-billboard-no-1-led-zeppelin-ii/
+
+Led Zeppelin's second album not only achieved commercial success but also revolutionized the rock genre, paving the way for hard rock and heavy metal.
+---------
+
+# Craving More ‘Frankenstein’? This Oscar-Nominated Horror Epic Just Found a Streaming Home
+
+Movie News, Mary Shelley's Frankenstein, Kenneth Branagh, Robert De Niro, Helena Bonham Carter
+
+Sun, 01 Mar 2026 17:00:13 GMT
+
+https://collider.com/mary-shelleys-frankenstein-1994-oscar-nominated-horror-classic-streaming-hbo-max-march-2026/
+
+After Guillermo del Toro's take, now's the chance to stream 1994's Oscar-nominated Mary Shelley's Frankenstein when it awakens on streaming.
+---------
+
+# Ridley Scott's Overlooked Action Thriller 'Black Rain' Is Now on Prime Video
+
+Movie News, Black Rain, Streaming Recommendations, Ridley Scott
+
+Sun, 01 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/black-rain-ridley-scott-streaming-prime-video/
+
+People tend to forget that 'Black Rain' exists, making it easily one of Ridley Scott's best hidden gems on streaming.
+---------
+
+# Every New Movie and TV Show Coming to Peacock in March 2026
+
+Features, Peacock
+
+Sun, 01 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/peacock-new-movie-tv-show-march-2026/
+
+Peacock's March 2026 lineup of new titles includes 'Wicked,' 'Ted' season 2, an action classic, and an absurd horror movie.
+---------
+
 # Scream 7's Global Box Office Debut Outgrosses The Entire Run Of Scream 4
 
 Movies, Box Office, Horror, Scream, Scream 7
