@@ -1,3 +1,234 @@
+# Fallout 4's Starting Area Has A Secret Room Filled With Loot
+
+Gaming, Fallout 4, Fallout, Triple-A Games, PC
+
+Sun, 01 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/fallout-4-secret-loot-room-early-game/
+
+Fallout 4 is a game that's filled with secrets of all kinds, but some can be found as soon as you exit the vault for the first time.
+---------
+
+# Almost A Decade Ago, Sentimental Value's Director Made One Of The Best Superhero Movies Of All Time
+
+Horror, Joachim Trier, Thelma, Recommendation
+
+Sun, 01 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/sentimental-value-director-joachim-trier-great-superhero-movie-thelma/
+
+This 2017 supernatural horror movie made by the director of Sentimental Value is one of the most distinctive superhero films in the genre's history.
+---------
+
+# A Knight Of The Seven Kingdoms Proves Game Of Thrones’ Best Storytelling Formula Still Works
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones, A Knight of the Seven Kingdoms - Season 1
+
+Sun, 01 Mar 2026 21:02:19 GMT
+
+https://screenrant.com/knight-of-the-seven-kingdoms-game-thrones-storytelling-formula/
+
+A Knight of the Seven Kingdoms masterfully employs Game of Thrones’ signature season structure to deliver intense action and emotional impact.
+---------
+
+# Prime Video's New Spider-Man Series Will Officially Make History With Rare Rating For The Marvel Superhero
+
+TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Sun, 01 Mar 2026 21:00:26 GMT
+
+https://screenrant.com/spider-noir-tv-mpa-rating-spiderman-comparison-prime-video/
+
+The new live-action Spider-Man TV show for Prime Video is set to break Marvel history when it premieres as its new official rating has been revealed.
+---------
+
+# AMC’s Brilliant 2-Part Comedy Rewrites The Rules Of Sitcoms
+
+Classic TV, Kevin Can F**k Himself, Sitcoms
+
+Sun, 01 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/kevin-can-f-himself-sitcom-dark-twist-genius/
+
+A two-season comedy that aired on AMC rewrites the rules of sitcoms with a creative and bold premise that raises questions about the genre.
+---------
+
+# Xbox May Be Killing PlayStation Exclusives On PC
+
+Gaming, PlayStation 5, Xbox Series X/S, PC
+
+Sun, 01 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/playstation-exclusive-pc-ports-new-xbox/
+
+After a period of PlayStation exclusives eventually making their way to PC, Sony appears to be changing course—and it may be Xbox's fault.
+---------
+
+# The Best War Movie From Every Decade Over The Last 100 Years
+
+Classic Movies, War, Ranking
+
+Sun, 01 Mar 2026 20:55:19 GMT
+
+https://screenrant.com/best-war-movies-every-decade-last-100-years/
+
+There have been some amazing war movies released over the last 100 years, spanning countless wars, and here are the best from each decade.
+---------
+
+# NCIS Season 23 Is Fixing Ziva Replacement's Controversial Exit
+
+TV, NCIS
+
+Sun, 01 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/ncis-season-23-rewrite-ellie-bishop-season-18-exit/
+
+Ziva David's replacement on NCIS is a controversial moment that's finally getting a revisit in the best way..
+---------
+
+# Sarah Michelle Gellar Reacts to Scream Connection in Ready Or Not 2: Here I Come
+
+Movies, Ready or Not 2: Here I Come, Buffy The Vampire Slayer, Scream
+
+Sun, 01 Mar 2026 21:24:24 GMT
+
+https://www.cbr.com/sarah-michelle-gellar-scream-connection-ready-or-not-2-here-i-come/
+
+Buffy the Vampire Slayer star Sarah Michelle Gellar talks the connection between Ready or Not 2: Here I Come and the Scream franchise.
+---------
+
+# Solo Leveling Isn’t Just a Power Fantasy, It’s Pure Cosmic Horror
+
+Anime, Horror, Solo Leveling
+
+Sun, 01 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/solo-leveling-cosmic-horror-monarchs-lovecraft-influence/
+
+Solo Leveling is known as a simple power fantasy anime that's all about aura farming, but what actually makes the story unique is its brand of horror.
+---------
+
+# Tom Hanks' A Beautiful Day in the Neighborhood Sets Tubi Release Date in March Ahead of Abraham Lincoln Biopic
+
+CBR Exclusives, Tom Hanks, Tubi, A Beautiful Day in the Neighborhood
+
+Sun, 01 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/tom-hanks-a-beautiful-day-in-the-neighborhood-tubi-release-march-2026/
+
+Ahead of his new historic role, one of Tom Hanks' most beloved recent films is heading to a free streaming home.
+---------
+
+# Ryan Gosling’s First Man is a Must-See Movie Before Project Hail Mary
+
+Movies, First Man, Project Hail Mary, Sci-Fi
+
+Sun, 01 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/ryan-gosling-first-man-must-see-before-project-hail-mary/
+
+Ryan Gosling is no stranger to sci-fi, but his hidden gem space movie is a must-see before Project Hail Mary.
+---------
+
+# The Ambitious 1994 Epic That Launched a Record-Breaking 10-Part Sci-Fi Universe Is Aging Like Fine Wine
+
+Movie News, Stargate, Roland Emmerich, Stargate SG-1, Sci-Fi
+
+Sun, 01 Mar 2026 21:40:12 GMT
+
+https://collider.com/stargate-ambitious-1994-sci-fi-epic-global-streaming-success-chili-february-2026/
+
+Stargate, which launched the record-breaking 10-part sci-fi series, Stargate SG-1, is quietly surging on global charts decades after its release.
+---------
+
+# The Definitive 2000s Superhero Trilogy Crashes Onto a New Streamer
+
+Movie News, Spider-Man, Sam Raimi, Superhero, HBO Max
+
+Sun, 01 Mar 2026 21:20:12 GMT
+
+https://collider.com/spider-man-trilogy-definitive-2000s-superhero-movies-streaming-hbo-max-march-2026/
+
+The best superhero trilogy, Sam Raimi's Spider-Man, is swinging onto a new streamer this March. Find out where below.
+---------
+
+# Disney+ Has Never Had a Better Masterpiece Than This 2-Part Sci-Fi Series
+
+TV Features, Loki, Tom Hiddleston, MCU, Disney+
+
+Sun, 01 Mar 2026 21:18:12 GMT
+
+https://collider.com/loki-disney-plus-marvel-series-sci-fi-masterpiece/
+
+With the MCU and Star Wars under its purview, Disney+ is capable of excellent sci-fi storytelling, and Loki's two-season series remains its very best.
+---------
+
+# All 12 Targaryen Deaths in the Game of Thrones Franchise, Ranked
+
+TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, HBO
+
+Sun, 01 Mar 2026 21:17:12 GMT
+
+https://collider.com/game-of-thrones-franchise-targaryen-deaths-ranked/
+
+House Targaryen is no stranger to death, as Game of Thrones, House of the Dragon, and A Knight of the Seven Kingdoms feature notable casualties.
+---------
+
+# 10 Heaviest Musical Movies, Ranked
+
+Movie, West Side Story, Dancer in the Dark, Cabaret, All That Jazz
+
+Sun, 01 Mar 2026 21:03:12 GMT
+
+https://collider.com/heaviest-musical-movies-ranked/
+
+Heavy musicals aren't too common, but there are a handful of bleak ones out there for sure, including classics like West Side Story and Cabaret.
+---------
+
+# A Gritty World War II Epic Comes to Streaming for 'Band of Brothers' Fans
+
+TV News, Band of Brothers, The Pacific, World War II, Masters of the Air
+
+Sun, 01 Mar 2026 21:00:13 GMT
+
+https://collider.com/band-of-brothers-replacement-gritty-ww2-epic-the-pacific-streaming-success-apple-tv-february-2026/
+
+The gripping WW2 miniseries, spawned from Band of Brothers, is experiencing a notable resurgence in viewership, making it the ultimate weekend binge.
+---------
+
+# Shia LaBeouf Interview Released Following Second New Orleans Arrest
+
+Movie News
+
+Sun, 01 Mar 2026 21:31:47 GMT
+
+https://movieweb.com/shia-labeouf-interview-second-arrest/
+
+LaBeouf takes "10,000%" responsibility for his behavior leading up to his latest arrest. "But I had a great time."
+---------
+
+# Every New TV Show Coming to Apple TV in March 2026
+
+Features, Apple TV
+
+Sun, 01 Mar 2026 21:30:18 GMT
+
+https://movieweb.com/apple-tv-new-tv-series-march-2026/
+
+Apple TV+ March 2026 line-up sees the return of 'For All of Mankind,' along with two new thrilling series for subscribers to binge.
+---------
+
+# Netflix's First 10 Original Series, Ranked
+
+TV Lists, Netflix, Orange is The New Black, Daredevil
+
+Sun, 01 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/netflix-first-10-original-series-ranked/
+
+Juggernaut streamer Netflix broke new ground with their original shows, and the first 10 were solid right out of the gate.
+---------
+
 # Prime's Kratos Comes To Life In Bloody Live-Action God Of War Art After Controversial First Image
 
 TV, God of War
