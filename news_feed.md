@@ -1,3 +1,300 @@
+# 6 Ways Rewatching Princess Bride In 2026 Makes It Even Better
+
+Movies, The Princess Bride, Cary Elwes, Mandy Patinkin
+
+Sun, 01 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/princess-bride-2026-rewatch-better/
+
+A list of reasons why you should rewatch Rob Reiner's The Princess Bride in 2026 and why you may appreciate the film more as an adult.
+---------
+
+# Star Trek Enters Uncertain Era After Season 2 Wrap Of Starfleet Academy
+
+TV, Star Trek, Star Trek: Starfleet Academy, Star Trek: Strange New Worlds
+
+Sun, 01 Mar 2026 22:25:09 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-wrapped-no-new-shows-in-production/
+
+The end of production of both Star Trek: Starfleet Academy and Strange New Worlds places Star Trek in an uncertain future after nearly a decade.
+---------
+
+# 10 Highest Grossing Theatrical Movie Re-Releases Of All Time
+
+Classic Movies
+
+Sun, 01 Mar 2026 22:15:19 GMT
+
+https://screenrant.com/best-movie-rereleases-box-office/
+
+From iconic horror to kids’ classics, the most successful theatrical re-releases prove that great cinema never loses its timeless appeal
+---------
+
+# 13 Years Later, Netflix’s 6-Season Thriller Is Nearly A Masterpiece
+
+Streaming TV, Netflix, House of Cards
+
+Sun, 01 Mar 2026 22:12:18 GMT
+
+https://screenrant.com/netflix-house-of-cards-thriller-series-masterpiece/
+
+Netflix's 6-season political thriller series House of Cards was a season away from being a true masterpiece, nearly ruined by a disappointing ending.
+---------
+
+# Robert De Niro's Most Underrated Crime Movie Is Now Streaming At The Perfect Time
+
+Movies, Robert De Niro, Casino
+
+Sun, 01 Mar 2026 22:03:13 GMT
+
+https://screenrant.com/robert-de-niro-casino-movie-netflix-streaming/
+
+The violent based-on-fact 1990s crime movie that ranks as one of Robert De Niro's most underrated is now streaming at the perfect time.
+---------
+
+# Skyrim: Echoes Of The Silver Chain Includes Multiple New Locations To Explore
+
+Gaming, The Elder Scrolls V: Skyrim
+
+Sun, 01 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/skyrim-echoes-silver-chain-new-quest-mod/
+
+Discover the untold stories of Skyrim's guards in the extensive Echoes of a Silver Chain mod, featuring five unique character-driven quests and more.
+---------
+
+# Every Swamp Thing Movie & TV Show, Ranked
+
+Classic Movies, Swamp Thing, Ranking
+
+Sun, 01 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/swamp-thing-movies-tv-shows-ranked/
+
+DC's Swamp Thing is one of the most successful horror comic characters of all time, and he has appeared in a surprising number of movies and TV shows.
+---------
+
+# Dave Bautista's Sci-Fi Action Movie Finds Redemption On Prime After Less Than $1M Box Office Haul
+
+Movies, Afterburn, Dave Bautista, Prime Video, Streaming Charts
+
+Sun, 01 Mar 2026 21:46:43 GMT
+
+https://screenrant.com/dave-bautista-afterburn-movie-streaming-success/
+
+Following its terrible box office run, Dave Bautista's sci-fi action adventure movie has now found success in 2026 through the world of streaming.
+---------
+
+# Final Destination Movies Ranked By Intensity Of Deaths
+
+Movies, Final Destination
+
+Sun, 01 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/final-destination-movies-ranked-death-intensity/
+
+The Final Destination movies are known for their creative and brutal deaths, but some movies in the saga had more intense deaths than others.
+---------
+
+# Wesley Snipes' Gallowwalkers Strangest Genre Mashup of All Time
+
+Movies, Western, Horror, Gallowwalkers
+
+Sun, 01 Mar 2026 22:50:12 GMT
+
+https://www.cbr.com/wesley-snipes-gallowwalkers-weirdest-zombie-western-mashup/
+
+In 2012, Wesley Snipes tried to begin his career comeback as a gunslinger in what became the weirdest Western of the 2010s.
+---------
+
+# Shonen Jump's Next-Generation Anime Hit Confirms Free Streaming in North America
+
+Anime, Crunchyroll, Shonen Jump, Akane-banashi, Netflix, Streaming
+
+Sun, 01 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/crunchyroll-shonen-jump-next-gen-anime-free/
+
+One of the most hotly anticipated anime adaptations of the year already has a streaming home lined up, and it is totally free for most fans.
+---------
+
+# Prime Video's Tales From the Void Pulls Off the Smartest Haunted Doll Story in Decades
+
+TV, Tales from the Void, Horror
+
+Sun, 01 Mar 2026 22:25:12 GMT
+
+https://www.cbr.com/prime-video-tales-from-the-void-plastic-smile-smart-haunted-doll-story/
+
+Tales From the Void is a Prime Video horror gem, and one episode delivers one of the best haunted doll stories in a long time.
+---------
+
+# Taylor Sheridan's Marshals Sets Unwanted Rotten Tomatoes Record
+
+TV, Marshals
+
+Sun, 01 Mar 2026 22:23:10 GMT
+
+https://www.cbr.com/taylor-sheridan-marshals-rotten-tomatoes-score/
+
+Ahead of his future move to Universal, Taylor Sheridan has a few more shows coming out, including a Yellowstone spinoff.
+---------
+
+# 2026's Witch Hat Atelier Puts Every Other Fantasy Anime to Shame
+
+Anime, Witch Hat Atelier, Fantasy
+
+Sun, 01 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-upcoming-crunchyroll-hit-fantasy-anime/
+
+This upcoming Spring anime season will premiere a new fantasy anime that will prove the genre isn't running out of steam.
+---------
+
+# Prime Video's Cross Is a Streaming Hit Despite Divisive Reviews
+
+TV, Cross
+
+Sun, 01 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/cross-season-2-prime-video-success-march-2026/
+
+One of Prime Video's hottest action thrillers is lighting up the streaming competition, even in spite of its decidedly divisive review scores.
+---------
+
+# Roger's 8 Best American Dad Episodes, Ranked
+
+TV, American Dad!
+
+Sun, 01 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/american-dad-best-roger-episodes/
+
+From persona-fueled revenge stories to James Bond parodies, dive into the rankings of the most memorable Roger episodes from American Dad!
+---------
+
+# 10 Most Perfect Movies of the Last 50 Years, Ranked
+
+Movie, The Lion King, The Dark Knight, Jurassic Park, Oppenheimer
+
+Sun, 01 Mar 2026 22:42:12 GMT
+
+https://collider.com/most-perfect-movies-last-50-years-ranked/
+
+The Lion King, The Dark Knight, and Oppenheimer are all among the best, most perfect movies of the last 50 years.
+---------
+
+# 'Mayor of Kingstown' Star's 'Downton Abbey' Parody Wines and Dines a New Streamer
+
+Movie News, Mayor of Kingstown, Downton Abbey, Fackham Hall, HBO Max
+
+Sun, 01 Mar 2026 22:40:12 GMT
+
+https://collider.com/mayor-of-kingstown-star-emma-laird-downton-abbey-parody-fackham-hall-streaming-hbo-max-march-2026/
+
+Mayor of Kingstown star Emma Laird's Downton Abbey parody, Fackham Hall, is heading to HBO Max this March. Here's everything you should know.
+---------
+
+# James Cameron’s Best Script Is for a Film He Didn’t Direct
+
+Movie Features, Strange Days, Kathryn Bigelow, James Cameron, Ralph Fiennes
+
+Sun, 01 Mar 2026 22:31:12 GMT
+
+https://collider.com/james-cameron-best-script-strange-days/
+
+James Cameron's best script was for Strange Days, directed by Kathryn Bigelow.
+---------
+
+# Paul McCartney Made a Hilarious Cameo in Rob Reiner’s Final Film
+
+Movie Features, Spinal Tap II: The End Continues, This is Spinal Tap, Rob Reiner, Paul McCartney
+
+Sun, 01 Mar 2026 22:24:12 GMT
+
+https://collider.com/paul-mccartney-was-hilarious-in-rob-reiners-final-film/
+
+Paul McCartney made a hilarious appearance in 'Spinal Tap II: The End Continues', director Rob Reiner's final film.
+---------
+
+# Netflix's First Smash Hit Series Makes a Criminally Good Streaming Comeback
+
+TV News, Orange Is the New Black, Netflix, Apple TV, Drama
+
+Sun, 01 Mar 2026 22:20:12 GMT
+
+https://collider.com/orange-is-the-black-netflix-first-smash-hit-series-streaming-success-february-2026/
+
+12 years after its premiere, Netflix's first proper smash-hit series, Orange Is the New Black, is seeing renewed interest on streaming services.
+---------
+
+# Netflix’s 4-Part Anime Masterpiece Is a $150K Per Episode Cult Classic Binge
+
+TV Features, Attack On Titan, Netflix, Anime, Action
+
+Sun, 01 Mar 2026 22:14:12 GMT
+
+https://collider.com/attack-on-titan-netflix-anime-masterpiece-cult-classic-binge/
+
+Attack on Titan is the perfect introduction to anime, with its engaging premise, dynamic animation, and deep thematic exploration, despite its high production budget.
+---------
+
+# 3 Years Before 'Criminal Minds,' This Missing Persons Thriller Perfected the Formula
+
+TV Features, Without a Trace, Criminal Minds, Procedural, Crime
+
+Sun, 01 Mar 2026 22:06:12 GMT
+
+https://collider.com/without-a-trace-thriller-police-procedural-missing-persons/
+
+Without a Trace, starring Anthony LaPaglia and Poppy Montgomery, is a stellar police procedural that nailed the thriller formula.
+---------
+
+# Christopher Nolan's Unforgettable Breakout Thriller Finds a Familiar Streamer 26 Years Later
+
+Movie News, Memento, Christopher Nolan, Guy Pearce, Joe Pantoliano
+
+Sun, 01 Mar 2026 22:00:12 GMT
+
+https://collider.com/christopher-nolan-memento-unforgettable-breakout-thriller-streaming-hbo-max-march-2026/
+
+Christopher Nolan’s breakaway hit thriller Memento, starring Guy Pearce, finds a new streaming home next month. Find out more here.
+---------
+
+# 15 Hidden Gem 'So Bad It's Good' Movies No One Remembers
+
+Movie Lists
+
+Sun, 01 Mar 2026 22:30:17 GMT
+
+https://movieweb.com/movie-bad-good-hidden-gem/
+
+If you think you have seen every entertainingly awful movie, here is a new watchlist of obscure so-bad-it's-good titles for your next movie night.
+---------
+
+# Netflix's Sci-Fi Masterpiece 'Black Mirror' Has the Best Episode in TV History
+
+Features, Black Mirror, Netflix, Streaming Recommendations, Sci-Fi
+
+Sun, 01 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/black-mirror-best-episode-tv-history/
+
+'Black Mirror's best episode, "Shut Up and Dance," is the best episode in TV history. Sorry, 'Breaking Bad.'
+---------
+
+# If You Miss 'Stranger Things,' Watch Apple TV Thriller 'Home Before Dark'
+
+Features, Comparison Recommendation, Home Before Dark, Stranger Things
+
+Sun, 01 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/home-before-dark-stranger-things-replacement/
+
+'Stranger Things' fans will love 'Home Before Dark,' the Apple TV thriller series starring Jim Sturgess and Brooklynn Prince.
+---------
+
 # Fallout 4's Starting Area Has A Secret Room Filled With Loot
 
 Gaming, Fallout 4, Fallout, Triple-A Games, PC
