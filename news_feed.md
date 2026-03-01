@@ -1,3 +1,223 @@
+# Grant Gustin Replaced As The Flash In DCU Art After The Perfect Candidate's Casting Comments
+
+Movies, The Flash, DC Universe, Arrowverse, Grant Gustin
+
+Sun, 01 Mar 2026 23:32:54 GMT
+
+https://screenrant.com/the-flash-walker-scobell-grant-gustin-dcu-barry-allen-wally-west-art/
+
+Arrowverse's Grant Gustin gets replaced as The Flash by the perfect candidate in James Gunn's DC Universe through art after the actor's casting talk.
+---------
+
+# Kong & The Planet Of The Apes' 2017 Crossover Bridges Two Iconic Ape Franchises
+
+Comics, Planet of the Apes, King Kong, Monsterverse
+
+Sun, 01 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/planet-of-the-apes-best-movie-crossover-king-kong-comic/
+
+The Planet of the Apes franchise's most exciting crossover flew under the radar in 2017 despite featuring an even more famous movie ape.
+---------
+
+# 10 Best Animated Feature Oscar Wins That Are Indisputable
+
+Classic Movies, Oscars
+
+Sun, 01 Mar 2026 23:25:18 GMT
+
+https://screenrant.com/oscars-best-animated-film-indisputable/
+
+Though the category has only been around since 2001, the Oscar for Best Animated Feature has been awarded to several all-time classics.
+---------
+
+# Super Rant's Weekend Post-Credits: Beyond The Spider-Verse, Avengers: Doomsday, Smallville, And More
+
+Superheroes, Marvel Cinematic Universe, DC Universe
+
+Sun, 01 Mar 2026 23:10:19 GMT
+
+https://screenrant.com/super-rant-weekend-post-credits-spider-verse-doomsday-smallville/
+
+Super Rant's latest weekend round-up of Marvel and DC movie and television news from the last week, making sure you don't miss a thing.
+---------
+
+# The Actor Awards Winners 2026
+
+TV, The Actor Awards
+
+Sun, 01 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/actor-awards-winners-2026/
+
+The Actor Awards 2026 ceremony has finally arrived and ScreenRant will be updating this year's winners list live throughout the event.
+---------
+
+# All 8 Seasons of This Action-Packed Teen Drama Are Perfect From Start to Finish
+
+Anime, My Hero Academia, Drama
+
+Sun, 01 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/best-action-teen-drama-my-hero-academia-anime/
+
+This stellar teen drama that has eight seasons is perfect all the way through and every fan of superheroes and action needs to watch it.
+---------
+
+# GTA 6 Strip Club Gameplay Has Gamers Divided
+
+Gaming, Grand Theft Auto 6
+
+Sun, 01 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/gta-6-strip-club-gameplay-gamer-reaction/
+
+Though it's hardly a make or break point of discussion for GTA VI, players are hotly debating what strip clubs are going to be like.
+---------
+
+# 10 Best Horror Movies To Watch If You Love Scream
+
+Movies, Scream, Scream 7, I Know What You Did Last Summer, Happy Death Day, Urban Legend, Valentine, Black Christmas, Wrong Turn, House of Wax, Cherry Falls, The Cabin in the Woods, Final Destination
+
+Sun, 01 Mar 2026 22:55:19 GMT
+
+https://screenrant.com/horror-movies-best-watch-scream-fans/
+
+A selection of 10 great horror movies to watch if you enjoy the Scream films, including classic slashers and hits from the 90s and 2000s.
+---------
+
+# Pokémon Winds & Waves Japanese Logo Teases Gen 10’s Gimmick
+
+Games, Pokemon
+
+Sun, 01 Mar 2026 23:40:12 GMT
+
+https://www.cbr.com/pokemon-winds-waves-gimmick-japanese-logo/
+
+Pokémon fans just got their first teaser for Winds & Waves’ new gameplay gimmick in a wholly unexpected place.
+---------
+
+# 5 Lord of the Rings Characters That Rival Sauron’s Power, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Sun, 01 Mar 2026 23:40:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-fantasy-characters-more-powerful-sauron-ranked-list/
+
+Sauron may be the Dark Lord who nearly took over Middle-earth, but these Lord of the Rings characters are even more powerful.
+---------
+
+# 10 Darkest Pokedex Entries of All Time, Ranked
+
+Anime, Pokemon, Nintendo
+
+Sun, 01 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/pokemon-darkest-pokedex-entries-of-all-time/
+
+Not all Pokémon are cute and cuddly, and these ten Pokedex entries prove that life-threatening danger awaits at every corner in the Pokémon world.
+---------
+
+# The Connection Between 1883 and 1923, Explained
+
+TV, 1883, 1923, Yellowstone
+
+Sun, 01 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/yellowstone-1883-1923-connection-explained/
+
+Both 1883 and 1923 are prequels to Yellowstone exploring the history and origins of the Dutton Family dynasty, but how exactly are they connected?
+---------
+
+# Spider-Man & The Amazing Spider-Man Available to Stream on HBO Max in March 2026
+
+Superheroes, Spider-Man, The Amazing Spider-Man
+
+Sun, 01 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/spider-man-hbo-max-release-march-2026/
+
+Two of the best Spider-Man feature film series have a brand-new streaming home, giving subscribers hours of web-slinging action to pour over.
+---------
+
+# AMC’s Quiet Crime Masterpiece Just Extended One of TV’s Rarest Streaks With Its Season 4 Debut
+
+TV Features, AMC+, Crime, Dark Winds, Zahn McClarnon
+
+Sun, 01 Mar 2026 23:39:12 GMT
+
+https://collider.com/dark-winds-amc-crime-masterpiece-season-4-debut-television-rare-streak/
+
+If you're not watching the decade's most perfect show, you're totally missing out on more than entertainment.
+---------
+
+# 10 Controversial Movies That Have Aged Like Fine Wine
+
+Movie, Casino Royale, The Exorcist, Brokeback Mountain, A Clockwork Orange
+
+Sun, 01 Mar 2026 23:29:12 GMT
+
+https://collider.com/controversial-movies-aged-like-fine-wine/
+
+Casino Royale, A Clockwork Orange, Brokeback Mountain, and more make up our list of controversial movies that have aged like fine wine.
+---------
+
+# 10 Strongest MCU TV Show Villains, Ranked
+
+TV, MCU, What If...?, Loki, Marvel Zombies
+
+Sun, 01 Mar 2026 23:13:12 GMT
+
+https://collider.com/strongest-mcu-tv-show-villains-ranked/
+
+Explore the ranking of the most powerful villains from Marvel's TV shows, including Kingpin, Agatha Harkness, and Death.
+---------
+
+# Actor Awards 2026 Winners List (Updated Live)
+
+FYC, SAG, Kristen Bell, Actors, One Battle After Another
+
+Sun, 01 Mar 2026 23:00:13 GMT
+
+https://collider.com/actor-awards-sag-aftra-2026-winners-list/
+
+Stay tuned to Collider for live updates from the 2026 Actor Awards presented by SAG-AFTRA, honoring the absolute best in film and TV performances.
+---------
+
+# Two ‘Scream’ Stars Reunited for This Slasher About a Ronald Reagan-Loving Serial Killer
+
+Movie Features, David Arquette, Scream, Courteney Cox, The Tripper
+
+Sun, 01 Mar 2026 22:55:12 GMT
+
+https://collider.com/the-tripper-courteney-cox-david-arquette-scream-horror/
+
+Scream star Courteney Cox appeared in The Tripper, a strange horror slasher starring, co-written and directed by David Arquette.
+---------
+
+# Oscar-Winning Sci-Fi Action Movie 'Everything Everywhere All at Once' Streaming on HBO Mac Now
+
+Movie News, Everything Everywhere All at Once, HBO Max, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 01 Mar 2026 23:30:17 GMT
+
+https://movieweb.com/everything-everywhere-all-at-once-streaming-hbo-max-march-2026/
+
+The multi-Oscar-winning sci-fi action movie 'EEAAO' with fight scenes designed by YouTubers is now streaming on HBO Max.
+---------
+
+# Catch Up on Sci-Fi Netflix Series '3 Body Problem' Stephen King Loves
+
+Features, Quote, 3 Body Problem, Netflix, Stephen King
+
+Sun, 01 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/3-body-problem-netflix-binge-watch/
+
+'3 Body Problem' is a sci-fi series on Netflix that Stephen King has praised, and Season 2 is going to stream on the platform in 2026.
+---------
+
 # 6 Ways Rewatching Princess Bride In 2026 Makes It Even Better
 
 Movies, The Princess Bride, Cary Elwes, Mandy Patinkin
