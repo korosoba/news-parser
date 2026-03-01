@@ -1,3 +1,14 @@
+# Dark Souls Returns With Brand New Official Release, Available Now
+
+Gaming, Dark Souls, PC
+
+Sun, 01 Mar 2026 09:00:18 GMT
+
+https://screenrant.com/dark-souls-soul-of-cinder-goblet-new-release/
+
+Dark Souls fans still have a lot to be excited about after all this time, with a brand-new release available to check out now.
+---------
+
 # SNL Comes Back Strong With Connor Storrie and Hudson Williams
 
 TV, Saturday Night Live
