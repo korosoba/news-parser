@@ -1,3 +1,245 @@
+# Prime's Kratos Comes To Life In Bloody Live-Action God Of War Art After Controversial First Image
+
+TV, God of War
+
+Sun, 01 Mar 2026 20:49:25 GMT
+
+https://screenrant.com/god-of-war-show-kratos-art-image-prime-video-controversy/
+
+Following the controversial first-look at Prime Video's upcoming God of War TV show, Ryan Hurst's new Kratos now gets a bloody makeover.
+---------
+
+# Prime Video’s Reacher Replacement Could Last Forever
+
+TV, Reacher, Scarpetta
+
+Sun, 01 Mar 2026 20:31:18 GMT
+
+https://screenrant.com/prime-video-scarpetta-reacher-replacement-run-forever-books/
+
+A new Prime Video crime drama could give Reacher a run for its money, proving a goldmine by lasting as long as one of Prime Video's biggest hit.
+---------
+
+# 10 Best Games To Play If You're A Fan Of John Wick
+
+Gaming, John Wick, Triple-A Games, PC
+
+Sun, 01 Mar 2026 20:31:18 GMT
+
+https://screenrant.com/best-john-wick-video-games-for-fans/
+
+Despite a lack of great John Wick games, there's no shortage of excellent spiritual successors to help you live out your assassin fantasies.
+---------
+
+# Tom Holland's Horrific Spider-Man Mutation Comes To Life in Brand New Day Art After MCU Rumors
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 01 Mar 2026 20:15:32 GMT
+
+https://screenrant.com/spiderman-brand-new-day-tom-holland-six-arms-mcu-art/
+
+Following rumors of Spider-Man: Brand New Day having a mutation twist in store for Tom Holland's hero, Peter Parker's horror is depicted in art.
+---------
+
+# Spring 2026 Movies Preview: Exclusive Images From Mortal Kombat II, The Mandalorian & More
+
+New Movies
+
+Sun, 01 Mar 2026 20:05:52 GMT
+
+https://screenrant.com/2026-spring-movie-preview-exclusive-images/
+
+From The Bride! to Michael, here are the most anticipated Spring 2026 releases hitting theaters and streaming this season.
+---------
+
+# HBO's Underrated Fantasy Series: His Dark Materials Deserves More Praise
+
+Classic TV, His Dark Materials
+
+Sun, 01 Mar 2026 20:04:19 GMT
+
+https://screenrant.com/hbo-his-dark-materials-show-deserved-more-attention/
+
+An underwatched 3-part miniseries on HBO is a hidden masterpieces that got several elements right and deserves more attention than it got.
+---------
+
+# One Piece’s Live-Action Team Shuts Down a Major Casting Debate
+
+Anime, One Piece, One Piece - Season 2
+
+Sun, 01 Mar 2026 20:02:55 GMT
+
+https://screenrant.com/one-piece-netflix-live-action-debate-eiichiro-oda-casting/
+
+The One Piece live-action adaptation has just settled a major casting debate, revealing the extent of Eiichiro Oda's involvement in the series.
+---------
+
+# 10 Biggest PlayStation Franchises Of All Time
+
+Gaming, PlayStation 5, Triple-A Games
+
+Sun, 01 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/biggest-playstation-franchises-all-time-ranked/
+
+PlayStation has amassed quite a few hits over the years, and the best-selling franchises under the Sony umbrella have all been virtually unstoppable.
+---------
+
+# Bryan Cranston's Top 10 TV Roles: From Seinfeld to Breaking Bad
+
+Classic TV, Bryan Cranston
+
+Sun, 01 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/bryan-cranston-best-tv-shows-ranked/
+
+From Malcolm in the Middle to Breaking Bad, the legendary Bryan Cranston has spent his career starring in some of the greatest TV shows ever made.
+---------
+
+# JJ Abrams' Person of Interest Hits Even Harder Today
+
+TV, Person of Interest, Sci-Fi, J.J. Abrams
+
+Sun, 01 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/jj-abrams-person-of-interest-reprisal/
+
+A Batman-inspired TV series about technology and AI is even more relevant today than when it first aired.
+---------
+
+# Attack on Titan Gets New MAPPA Design Update That's a Cut Above the Original Anime
+
+Anime, Attack on Titan, mappa, Attack On Titan
+
+Sun, 01 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/attack-on-titan-mappa-hot-pepper-beauty-anime-makeover/
+
+Fans of Attack on Titan can now see the characters get radical new looks as part of a promotion with a popular Japanese cosmetic booking service.
+---------
+
+# Smallville Becomes Global Streaming Sensation On Netflix at the Best Time
+
+TV, Smallville, Superman
+
+Sun, 01 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/smallville-fantasy-netflix-success-march-2026/
+
+One of the most beloved Superman series of all time is taking over the global streaming charts on a major platform, and for good reason.
+---------
+
+# Every Ruler to Sit on House of the Dragon's Iron Throne
+
+TV, House of the Dragon, Game Of Thrones, Fantasy
+
+Sun, 01 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/house-of-the-dragon-every-king-queen-sat-iron-throne/
+
+The Iron Throne has long been a significant point of contention in Westeros' storied history, with many kings living and dying in pursuit of it.
+---------
+
+# HBO Max Snags Steve Carell’s 10/10 Oscar-Winning Masterpiece
+
+Movie News, Steve Carell, Little Miss Sunshine, HBO Max, Alan Alda
+
+Sun, 01 Mar 2026 20:40:12 GMT
+
+https://collider.com/steve-carell-little-miss-sunshine-oscar-winning-masterpiece-streaming-hbo-max-march-2026/
+
+HBO Max is adding Steve Carell's Oscar-winning masterpiece, Little Miss Sunshine, to its catalog this March. Here's everything you should know.
+---------
+
+# 8 Unexpected Westerns That Are Lowkey Masterpieces
+
+Movie, Western, Hondo, Hang 'Em High, Johnny Guitar
+
+Sun, 01 Mar 2026 20:38:12 GMT
+
+https://collider.com/western-movies-lowkey-masterpieces/
+
+Westerns like Hondo and Johnny Guitar are genuinely great, to the point where one might consider them unlikely but worthy masterpieces of the genre.
+---------
+
+# After 6 Years, This Overlooked Streaming Service Is Beating HBO Max in 1 Crucial Area
+
+TV Features, HBO Max, Tubi, A Knight Of The Seven Kingdoms, Ben 10
+
+Sun, 01 Mar 2026 20:29:12 GMT
+
+https://collider.com/hbo-max-tubi-cartoon-network-shows/
+
+After a licensing agreement with Cartoon Network evaporated, HBO Max is set to lose hundreds of animated shows to Tubi.
+---------
+
+# 'Jujutsu Kaisen' Sets Hulu Release Amid Incredibly High-Stakes Season 3
+
+TV News, Jujutsu Kaisen, JUJUTSU KAISEN: Execution, Hulu, Crunchyroll
+
+Sun, 01 Mar 2026 20:20:12 GMT
+
+https://collider.com/jujutsu-kaisen-hulu-release-update-march-2026-amid-season-3/
+
+Hulu announces the addition of a new season of Jujutsu Kaisen to its streaming catalog, amid the incredibly high-stakes Season 3.
+---------
+
+# James Cameron’s $6 Million Sci-Fi Revolution Finds a New Streaming Home
+
+Movie News, The Terminator, Sci-Fi, Arnold Schwarzenegger, HBO Max
+
+Sun, 01 Mar 2026 20:00:12 GMT
+
+https://collider.com/the-terminator-james-cameron-6-million-sci-fi-movie-streaming-hbo-max-march-2026/
+
+The most impressive low-budget sci-fi movie ever, The Terminator, is getting a new streaming home. Find out where below.
+---------
+
+# 10 Animated TV Shows That No One Remembers but Are Worth Rediscovering Now
+
+Movie, Animation, The Animals of Farthing Wood, Cybersix, Class Of The Titans
+
+Sun, 01 Mar 2026 20:00:12 GMT
+
+https://collider.com/animated-tv-shows-no-one-remembers-worth-rediscovering-now/
+
+The animated landscape on TV is quite crowded, meaning deserving gems like Skyland and The Animals of Farthing Wood have sadly been all but forgotten.
+---------
+
+# Jason Statham's Action Thriller 'The Beekeeper' Is Streaming on Peacock
+
+Movie News, The Beekeeper, Peacock, Coming/Leaving Streaming, Action
+
+Sun, 01 Mar 2026 20:30:17 GMT
+
+https://movieweb.com/beekeeper-streaming-peacock-march-2026/
+
+Jason Statham's 'John Wick' rip-off action thriller by 'Suicide Squad' director, David Ayer, is now streaming on Peacock.
+---------
+
+# The 'Knight of the Seven Kingdoms' Blooper Reel Is Hilarious
+
+TV News, A Knight Of The Seven Kingdoms, HBO Max, Fantasy
+
+Sun, 01 Mar 2026 20:21:49 GMT
+
+https://movieweb.com/a-knight-of-the-seven-kingdoms-blooper-reel-hilarious/
+
+With much mugging, cursing, and at least one fart joke.
+---------
+
+# These 10 Underrated Sci-Fi TV Shows Are Worth a Watch
+
+TV Lists, The Expanse, Orphan Black
+
+Sun, 01 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/sci-fi-tv-shows-underrated/
+
+If these 10 underrated sci-fi TV masterpieces flew under your radar, be sure to add them to your watchlist posthaste.
+---------
+
 # Forget Fallout & The Last Of Us, This 87% RT Drama Has The Scariest Apocalypse On TV
 
 Streaming TV, Paradise, Fallout, The Last of Us
