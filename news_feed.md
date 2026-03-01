@@ -1,3 +1,201 @@
+# Forget Fallout & The Last Of Us, This 87% RT Drama Has The Scariest Apocalypse On TV
+
+Streaming TV, Paradise, Fallout, The Last of Us
+
+Sun, 01 Mar 2026 19:45:18 GMT
+
+https://screenrant.com/paradise-scariest-apocalypse-show-fallout-last-of-us-comparison/
+
+With post-apocalyptic TV shows on the rise, several terrifying versions of Earth have been introduced, but this RT hit quietly has one of the worst.
+---------
+
+# Prime Video's 3-Part Fantasy Series With 100% RT Score Could Make HBO's Game Of Thrones Replacement Look Bad
+
+Streaming TV, Baldur's Gate 3
+
+Sun, 01 Mar 2026 19:37:19 GMT
+
+https://screenrant.com/legend-of-vox-machina-prime-video-baldurs-gate-3-hbo-fantasy/
+
+The Legend of Vox Machina has a 100% positive score on Rotten Tomatoes, and as the Baldur's Gate adaptation has a struggle ahead, it may outrank it.
+---------
+
+# GTA 6 Meets SimCity In Massive New 2026 Sandbox Game
+
+Gaming, Grand Theft Auto 6, Indie Games, PC
+
+Sun, 01 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/gta-6-simcity-new-sandbox-game-citystate/
+
+This upcoming sandbox game has a lot of ambition, and the creative selection of cool features should make it worth playing when it releases.
+---------
+
+# Quentin Tarantino's 10 Greatest Collaborators, Ranked
+
+Classic Movies, Quentin Tarantino, Explainer
+
+Sun, 01 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/quentin-tarantino-collaborators-ranked/
+
+Quentin Tarantino has worked with some amazing collaborators over the years, and here are the 10 best that helped him succeed over the years.
+---------
+
+# Why Tracker Is Not Airing On Its Regular Timeslot Tonight (March 1) & When Season 3, Episode 10 Release
+
+Network TV, Tracker
+
+Sun, 01 Mar 2026 19:27:18 GMT
+
+https://screenrant.com/tracker-not-airing-regular-timeslot-march-1-2026-season-3-episode-10-release/
+
+After its winter hiatus, Tracker season 3 is set to return with fresh episodes. However, Justin Hartley is not airing on its regular timeslot.
+---------
+
+# Netflix CEO Ted Sarandos Explains Why He Quit The Battle For Warner Bros.
+
+Movies, Netflix
+
+Sun, 01 Mar 2026 19:18:59 GMT
+
+https://screenrant.com/netflix-ceo-ted-sarandos-wbd-paramount-merger-battle-quit-explanation/
+
+Netflix's co-CEO Ted Sarandos has finally broken his silence after a shocking twist in the battle to acquire Warner Bros. Discovery and its assets.
+---------
+
+# Netflix’s 6-Part Crime Drama Keeps Getting Better Ahead Of 2026 Return
+
+TV, Peaky Blinders
+
+Sun, 01 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/peaky-blinders-franchise-getting-better-2026-return-netflix/
+
+One of Netflix's most critically acclaimed crime shows ever is set to return soon, but will the historical show's spinoff get the credit it deserves?
+---------
+
+# Elden Ring Meets Elder Scrolls In New Fantasy RPG You Can Try Free Now
+
+Gaming, Steam
+
+Sun, 01 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/steam-free-fantasy-rpg-elden-ring-next-fest/
+
+Embark on a fantasy adventure in the free demo of Road To Yvhalon, a VR game that combines elements of Elden Ring and The Elder Scrolls.
+---------
+
+# Canon Events: Blade Only Reached His Full Potential After Meeting Marvel's Living Vampire
+
+Comics, Horror, Canon Events, Blade, Spider-Man, Marvel
+
+Sun, 01 Mar 2026 19:49:08 GMT
+
+https://www.cbr.com/canon-events-blade-vs-morbius-changed-everything-marvel-vampire-hunter/
+
+Blade's full transformation into a blood-lusted super-strong dhampir was kicked off by his big screen debut, but came about differently in the comics.
+---------
+
+# Jack Nicholson Improvised The Shining's Most Famous Line
+
+Movies, Horror, Stephen King, The Shining
+
+Sun, 01 Mar 2026 19:45:12 GMT
+
+https://www.cbr.com/jack-nicholson-the-shining-improvised-line/
+
+Jack Nicholson's performance in The Shining is one of the most impressive horror performances in the genre, and one improvised line proves this.
+---------
+
+# These Iconic 2000s Anime Characters Who Are Still Untouchable Today
+
+Anime, Code Geass: Lelouch of the Rebellion, Naruto, Bleach, Death Note
+
+Sun, 01 Mar 2026 19:15:13 GMT
+
+https://www.cbr.com/most-iconic-2000s-anime-characters-still-untouchable-today/
+
+Characters like Lelouch and Light have ignited global fandoms, shaped storytelling trends, and continue to inspire both new creators and viewers.
+---------
+
+# 8 Most Exciting Thriller Shows Coming to Netflix in 2026
+
+TV, Netflix, Beef, Black Doves, The Gentlemen
+
+Sun, 01 Mar 2026 19:49:13 GMT
+
+https://collider.com/thriller-shows-netflix-2026-most-anticipated/
+
+Something Very Bad Is Going to Happen, Beef Season 2, and more make up our list of the most exciting thriller shows coming to Netflix in 2026.
+---------
+
+# Blumhouse's Sci-Fi Horror Crowd-Pleaser Relives Its Success on Streaming as Fans Wait for Third Movie
+
+Movie News, Happy Death Day, Happy Death Day 2U, Jessica Rothe, Christopher Landon
+
+Sun, 01 Mar 2026 19:40:12 GMT
+
+https://collider.com/happy-death-day-best-horror-franchise-streaming-hbo-max-march-2026/
+
+The greatest sci-fi horror franchise, Happy Death Day, is headed to a new streamer next month. Find out more here.
+---------
+
+# 8 People Who Won Oscars for the Wrong Movie
+
+Movie, Oscars, Mahershala Ali, Al Pacino, Jamie Lee Curtis
+
+Sun, 01 Mar 2026 19:40:12 GMT
+
+https://collider.com/people-won-oscars-wrong-movies/
+
+We're thrilled that living icons like Kevin Costner and Ennio Morricone have Oscars to their name, but sadly, they won them for the wrong movies.
+---------
+
+# Stephen King's Forgotten 104-Minute Adaptation Haunts a New Streamer
+
+Movie News, 1408, Stephen King, John Cusack, Plex
+
+Sun, 01 Mar 2026 19:20:13 GMT
+
+https://collider.com/forgotten-104-minute-stephen-king-adaptation-1408-streaming-on-plex-march-2026/
+
+The forgotten 104-minute Stephen King adaptation 1408, starring John Cusack, is streaming on a new platform this March.
+---------
+
+# The MCU Changed Marvel Comics Forever - But It's Not the First Time
+
+Features, MCU
+
+Sun, 01 Mar 2026 19:46:17 GMT
+
+https://movieweb.com/mcu-changed-marvel-comics-forever/
+
+Marvel changing the comics to match the movies is not a phenomenon exclusive to the Marvel Cinematic Universe.
+---------
+
+# 'SNL' BAFTAs Sketch Features Connor Storrie as Armie Hammer
+
+TV News, BAFTAs, Saturday Night Live, Comedy
+
+Sun, 01 Mar 2026 19:43:52 GMT
+
+https://movieweb.com/snl-baftas-sketch-connor-storrie/
+
+The sketch is brought to you by the "National Workforce of Rethinking Disabilities." Think about it.
+---------
+
+# Best Korean Movies on Amazon Prime Video to Watch Right Now
+
+Movie Lists, Prime Video, International
+
+Sun, 01 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/korean-movies-on-prime-video/
+
+There is an abundance of movies available for Amazon Prime members, we take a look at the best Korean movies on Prime Video to watch right now
+---------
+
 # Binge Netflix's Best Action Series Bodyguard in Under 7 Hours
 
 Classic TV, Bodyguard
