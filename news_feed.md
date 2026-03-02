@@ -1,3 +1,388 @@
+# Dragon Ball's Next Great Era Will Prove the Anime Doesn't Need Goku Anymore
+
+Anime, Dragon Ball
+
+Mon, 02 Mar 2026 04:30:19 GMT
+
+https://screenrant.com/dragon-ball-new-era-does-not-need-goku-anime-theory/
+
+Dragon Ball has evolved in ways that keep the story thrilling. Now, it’s time for the franchise to evolve again and begin a new era of storytelling.
+---------
+
+# Noah Wyle Gives Exciting The Pitt Season 3 Update
+
+TV, The Pitt
+
+Mon, 02 Mar 2026 04:27:30 GMT
+
+https://screenrant.com/the-pitt-season-3-update-noah-wyle/
+
+The Pitt star, Noah Wyle, gives a surprising update regarding the progress of season 3 and more at The Actor Awards press conference.
+---------
+
+# Zendaya & Tom Holland Are Already Married, Says Law Roach
+
+Movies, Zendaya, Tom Holland
+
+Mon, 02 Mar 2026 03:10:35 GMT
+
+https://screenrant.com/zendaya-tom-holland-married-law-roach-reports/
+
+Spider-Man star Zendaya's stylist drops a major update on the status of the pair's nuptials during a red carpet interview at the Actor Awards.
+---------
+
+# Dark Winds Season 4, Episode 3 Ending Explained: Why Irene Kissed Leaphorn
+
+Streaming TV, Dark Winds, Dark Winds - Season 4
+
+Mon, 02 Mar 2026 03:05:18 GMT
+
+https://screenrant.com/dark-winds-season-4-episode-3-ending-explained/
+
+Discover the shocking reason behind Irene's unexpected action towards Leaphorn in Dark Winds Season 4, Episode 3. Spoiler alert: her motives are darker than they appear.
+---------
+
+# Marvel's Infernal Hulk Unleashes The Horror The MCU Needs
+
+Marvel Comics, Hulk, Marvel
+
+Mon, 02 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/the-hulk-new-era-horror-twist-mcu-infernal-hulk/
+
+Marvel's new Hulk comic presents a new level of horror that explores the Jade Giant's darkest depths, which is a perfect twist for the MCU to borrow.
+---------
+
+# Monica's Fate In Yellowstone Spinoff Marshals Confirmed By EP Of Kayce Dutton Series
+
+Network TV, Marshals
+
+Mon, 02 Mar 2026 02:22:30 GMT
+
+https://screenrant.com/marshas-show-monica-death-explained-yellowstone/
+
+On the heels of Marshals' premiere on CBS, showrunner Spencer Hudnut breaks down the decision for Monica's fate in the Yellowstone sequel spinoff.
+---------
+
+# 10 Greatest Animated Movie Masterpieces of the 21st Century, Ranked
+
+Anime, Spirited Away, Disney
+
+Mon, 02 Mar 2026 02:15:43 GMT
+
+https://screenrant.com/greatest-animated-movies-21st-century-ranking/
+
+Some animated masterpieces broke the mold. Leaving an indelible mark on viewers, these films redefined what is possible in animation.
+---------
+
+# Where Are Rip & Beth In Kayce's Yellowstone Sequel, Marshals?
+
+Network TV, Yellowstone, Marshals
+
+Mon, 02 Mar 2026 02:02:19 GMT
+
+https://screenrant.com/beth-rip-marshals-where/
+
+As the Yellowstone franchise continues with its first sequel series, Marshals leave viewers wondering where Rip and Beth are in Kayce's show.
+---------
+
+# New Open-World RPG Blends Zelda With Skyrim, And You Can Try Free Now
+
+Gaming, Steam, The Legend of Zelda, The Elder Scrolls V: Skyrim
+
+Mon, 02 Mar 2026 02:00:20 GMT
+
+https://screenrant.com/steam-free-classic-zelda-skyrim-open-world-rpg/
+
+Discover the enchanting world of Ædloran, where pixel art meets epic adventure.
+---------
+
+# Netflix’s Official Follow-Up To Stranger Things Keeps Looking Better And Better
+
+TV, Stranger Things, Something Very Bad Is Going to Happen
+
+Mon, 02 Mar 2026 02:00:20 GMT
+
+https://screenrant.com/netflix-duffer-brothers-something-very-bad-is-going-to-happen-upcoming-show/
+
+A dark psychological thriller with hints of pitch-black comedy, the Duffer Brothers' Stranger Things followup at Netflix couldn't be more different.
+---------
+
+# 'Funtime Freddy Was Tough': Kellen Goff Talks FNAF, Michael B. Jordan, & Fire Force's Final Season
+
+Anime, interview, Five Nights at Freddy's, Fire Force
+
+Mon, 02 Mar 2026 04:57:44 GMT
+
+https://www.cbr.com/kellen-goff-interview/
+
+CBR sits down with voice actor Kellen Goff to discuss his biggest roles and upcoming projects.
+---------
+
+# 70 Years Later, Tetsujin 28 Is Still the Most Underappreciated Anime of All Time
+
+Anime, Gigantor, mecha
+
+Mon, 02 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/tetsujin-28-gigantor-post-ww2-mecha-underappreciated-anime/
+
+Tetsujin 28, better known as Gigantor, is responsible for building the framework for modern mecha anime, yet it still flies under the radar.
+---------
+
+# This New Horror Flop Just Reinvented Slashers for the 21st Century
+
+Movies, Psycho Killer, Horror, Slasher
+
+Mon, 02 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/psycho-killer-horror-flop-reinvented-21st-century-slashers/
+
+While the latest modern slasher isn't blowing away critics and audiences, it does have one main quality that could impact future horror films.
+---------
+
+# 10 Greatest Sega Dreamcast Games of All Time, Ranked
+
+Games, dreamcast, sega
+
+Mon, 02 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/greatest-sega-dreamcast-games-all-time-ranked/
+
+Sonic Adventure 2 and Quake III Arena are some of the greatest Dreamcast games ever made.
+---------
+
+# Scream 7 Created a Tatum Prescott Dilemma That the Sequel Has to Fix
+
+Movies, Scream, Scream 7, Horror
+
+Mon, 02 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/scream-7-tatum-prescott-character-crisis/
+
+Scream 7's Tatum Prescott is set to carry the torch of the Scream franchise, but the sequel has one thing it has to fix before that happens.
+---------
+
+# Dragon Ball Official Site App Shutting Down in March 2026
+
+Anime, Dragon Ball
+
+Mon, 02 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/dragon-ball-shutting-down-official-app-2026/
+
+Dragon Ball fans are losing one of the franchise's most beloved features this year, and there are only weeks left to enjoy it as it stands today.
+---------
+
+# 10 Untouchable Anime Villains That Fans Were Right to Root For
+
+Anime, anime villains
+
+Mon, 02 Mar 2026 03:55:12 GMT
+
+https://www.cbr.com/greatest-anime-villains-fans-still-love/
+
+With characters like Attack on Titan's Reiner and Naruto's Itachi, fans found themselves cheering for characters who were meant to be feared.
+---------
+
+# Skeleton Crew: The Star Wars Series That Deserves a Second Season
+
+TV, Star Wars: Skeleton Crew, Star Wars
+
+Mon, 02 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/star-wars-skeleton-crew-renewing-brainer/
+
+Skeleton Crew wasn't a quiet failure — it was a proof of concept and proves that a second season has to happen.
+---------
+
+# 5 Most Quotable Crime Movie Lines of All Time
+
+Movies, Crime, The Godfather, Goodfellas
+
+Mon, 02 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/most-quotable-crime-movie-lines-list/
+
+Movies like The Godfather and Scarface may not be for everyone, but the crime movies' quotes are known to everyone.
+---------
+
+# One Piece Officially Names the Strongest Mythical Zoan Devil Fruit of All Time
+
+Anime, One Piece
+
+Mon, 02 Mar 2026 03:28:45 GMT
+
+https://www.cbr.com/one-piece-chapter-1175-review/
+
+Loki's Devil Fruit is finally here, and it's already proven itself to be one of the most destructive Devil Fruits of all time.
+---------
+
+# Prime Video's Steamy New Book Adaptation Sounds Like the Perfect Replacement for 'Heated Rivalry' [Exclusive]
+
+TV News, Off Campus, Heated Rivalry, Prime Video, HBO Max
+
+Mon, 02 Mar 2026 03:57:26 GMT
+
+https://collider.com/prime-video-heated-rivalry-replacement-off-campus-update-stephen-kalyn/
+
+With the huge success of Heated Rivalry, Prime Video's answer to the steamy hockey show has gotten a big update.
+---------
+
+# 'Sinners' Star Michael B. Jordan Wins Actor Award for Groundbreaking Dual Performance
+
+Movie News, Michael B. Jordan, SAG, The Actor Awards, Sinners
+
+Mon, 02 Mar 2026 03:39:28 GMT
+
+https://collider.com/michael-b-jordan-sinners-wins-outstanding-performance-by-a-male-actor-in-a-leading-role-2026-actor-awards-sag-aftra/
+
+Sinners star Michael B. Jordan claims victory for Best Actor in a Lead Role for his groundbreaking performance.
+---------
+
+# 'Sinners' Wins Actor Award for Outstanding Performance by a Cast in a Motion Picture
+
+Movie News, Sinners, Ryan Coogler, The Actor Awards, Michael B. Jordan
+
+Mon, 02 Mar 2026 03:30:16 GMT
+
+https://collider.com/sinners-wins-outstanding-performance-by-a-cast-in-a-motion-picture-2026-actor-awards-sag-aftra/
+
+Ryan Coogler’s Sinners has won Outstanding Performance by a Cast in a Motion Picture at the SAG Awards, marking a major moment for the cast and crew.
+---------
+
+# Jessie Buckley Wins Outstanding Performance by a Female in a Leading Role for 'Hamnet' at the Actor Awards
+
+Movie News, Jessie Buckley, The Actor Awards, Rose Byrne, Hamnet
+
+Mon, 02 Mar 2026 03:17:08 GMT
+
+https://collider.com/jessie-buckely-hamnet-wins-outstanding-performance-by-a-female-actor-in-a-leading-role-2026-actor-awards-sag-aftra/
+
+Jessie Buckley has taken home the Actor Award for Best Female Actor in a Lead Role thanks to her performance in Hamnet.
+---------
+
+# 'Dark Winds' Zahn McClarnon on What's Next for Joe After That Unexpected Face-Off: "He Might Lose Everything"
+
+Interviews, Dark Winds, Zahn McClarnon, AMC, AMC+
+
+Mon, 02 Mar 2026 03:00:24 GMT
+
+https://collider.com/dark-winds-season-4-episode-3-zahn-mcclarnon-joe-leaphorn-interview/
+
+Dark Winds' Zahn McClarnon discusses Season 4 Episode 3's face-off between Joe Leaphorn and Irene Vaggan and his experience as a first-time director.
+---------
+
+# 'Tracker' Wraps Up a Thrilling Cliffhanger by Throwing Colter Shaw Into a Crime Conspiracy | Review
+
+TV Reviews, Tracker, Justin Hartley, Sofia Pernas, CBS
+
+Mon, 02 Mar 2026 03:00:24 GMT
+
+https://collider.com/tracker-season-3-episode-10-recap-review-colter-billie-return/
+
+Tracker Season 3's midseason premiere sees Colter Shaw face a conspiracy after a near-death experience, uncovering a web of corruption.
+---------
+
+# Noah Wyle's 'The Pitt' Beats Taylor Sheridan's 'Landman' for Major Actor Award Win
+
+TV News, The Actor Awards, SAG, The Pitt, Noah Wyle
+
+Mon, 02 Mar 2026 02:29:30 GMT
+
+https://collider.com/hbo-the-pitt-wins-outstanding-performance-by-an-ensemble-in-a-drama-series-2026-actor-awards-sag-aftra/
+
+HBO's The Pitt continues its awards season streak with the Actor Award for Best Drama Ensemble. Read on for more.
+---------
+
+# 10 Most Exciting Netflix Shows To Binge-Watch, Ranked
+
+TV, Netflix, Stranger Things, Dept. Q, Squid Game
+
+Mon, 02 Mar 2026 02:18:12 GMT
+
+https://collider.com/exciting-netflix-shows-binge-watch-ranked/
+
+Dive into the most exciting Netflix shows that are perfect for binge-watching, including Stranger Things, Squid Game, and Beef.
+---------
+
+# 'The Studio' Dominates Actor Awards With Outstanding Ensemble in a Comedy Series Win
+
+TV News, The Actor Awards, SAG, The Studio, Seth Rogen
+
+Mon, 02 Mar 2026 02:11:53 GMT
+
+https://collider.com/apple-tv-the-studio-wins-outstanding-performance-by-an-ensemble-in-a-comedy-series-2026-actor-awards-sag-aftra/
+
+The Studio continues its superb Actor Awards run by taking home the prize for Best Comedy Ensemble.
+---------
+
+# 'Marshals' Officially Confirms What Happened to Monica Dutton After 'Yellowstone'
+
+TV Features, Marshals, Yellowstone, Kelsey Asbille, Luke Grimes
+
+Mon, 02 Mar 2026 02:00:12 GMT
+
+https://collider.com/marshals-premiere-monica-dutton-kayce-wife-death-yellowstone/
+
+The premiere of CBS' Yellowstone spin-off Marshals reveals Monica Dutton's fate, confirming her death and shocking fans.
+---------
+
+# These 10 Western TV Shows Are Worth the Watch
+
+TV Lists, Deadwood, Dark Winds
+
+Mon, 02 Mar 2026 03:00:29 GMT
+
+https://movieweb.com/western-tv-shows/
+
+If you're a fan of horses and guns and drawls, look no further than these 10 Western TV shows. Add them to your watchlist.
+---------
+
+# Oscars 2026: 'Sinners,' 'One Battle After Another' Win Precursor Awards
+
+Movie News, Sinners, One Battle After Another, The Oscars | Academy Awards
+
+Mon, 02 Mar 2026 02:34:36 GMT
+
+https://movieweb.com/sinners-one-battle-after-another-music-guild-pga-awards/
+
+Which one will win big on Oscars night?
+---------
+
+# 'Monarch' Season 2 Features 'Godzilla x Kong' Titan Story Movies Skipped
+
+Features, Monarch: Legacy of Monsters, Monsterverse, King Kong, Godzilla
+
+Mon, 02 Mar 2026 02:00:18 GMT
+
+https://movieweb.com/monarch-titan-story-godzilla-kong-skipped/
+
+The Monsterverse features numerous Titans, often skipping much of their origins, but 'Monarch' Season 2 may be fixing that.
+---------
+
+# 'The Night Agent' Fixed Season 2’s Rose Problem by Writing Her Off
+
+Features, The Night Agent
+
+Mon, 02 Mar 2026 01:16:17 GMT
+
+https://movieweb.com/the-night-agent-season-3-rose-problem/
+
+To fix one of the biggest criticisms of Season 2, 'The Night Agent' wrote off Rose. Was this a good call? Here's our breakdown.
+---------
+
+# 'Scrubs' Revival Suggests JD Never Worked at St. Vincent's After Season 8
+
+Features, Scrubs
+
+Mon, 02 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/scrubs-revival-season8-retcon/
+
+JD left Sacred Heart in 'Scrubs' Season 8 to work at another hospital, but the revival seems unsure about what actually happened.
+---------
+
 # Grant Gustin Replaced As The Flash In DCU Art After The Perfect Candidate's Casting Comments
 
 Movies, The Flash, DC Universe, Arrowverse, Grant Gustin
