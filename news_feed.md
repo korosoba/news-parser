@@ -1,3 +1,344 @@
+# 7 Best Mortal Kombat Movie Fights Straight Out Of The Video Games
+
+Movies, Mortal Kombat II, Mortal Kombat, Mortal Kombat: Annihilation
+
+Mon, 02 Mar 2026 22:50:18 GMT
+
+https://screenrant.com/mortal-kombat-movie-fights-best-video-game-accurate/
+
+A selection of Mortal Kombat movie battles that resemble the games, including iconic scenes from the original films and the 2021 reboot.
+---------
+
+# HBO's 8-Part Psychological Thriller Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, HBO Max, Sharp Objects
+
+Mon, 02 Mar 2026 22:26:37 GMT
+
+https://screenrant.com/hbo-sharp-objects-thriller-series-best/
+
+HBO's psychological thriller series is one of the best shows it has ever released, and that makes it the perfect choice to watch this week.
+---------
+
+# Netflix's 5-Part Sitcom Proved Some Shows Just Shouldn't Be Revived
+
+TV, Fuller House, Full House
+
+Mon, 02 Mar 2026 22:23:19 GMT
+
+https://screenrant.com/netflix-fuller-house-revivals-not-work/
+
+Netflix's decision to revive an iconic sitcom proved not every show needs to return, failing to provide viewers with a compelling reason to tune in.
+---------
+
+# Prime Video's 10/10 Hit TV Show Officially Returns This Month
+
+TV, Invincible
+
+Mon, 02 Mar 2026 22:20:18 GMT
+
+https://screenrant.com/invincible-show-return-prime-video-this-month/
+
+Amazon Prime Video is bringing back one of its best TV shows this month, with season 4 of a hit series officially right around the corner.
+---------
+
+# Netflix's The Night Agent Can't Compete With The Reacher Unless It Nails Season 4
+
+Streaming TV, The Night Agent, Reacher
+
+Mon, 02 Mar 2026 22:16:18 GMT
+
+https://screenrant.com/the-night-agent-reacher-replacement-season-4-make-or-break/
+
+Netflix has high hopes for its Reacher-like crime thriller, but it won't ever truly compete if it can't get past this upcoming make-or-break moment.
+---------
+
+# AMC's Western Series With Perfect RT Score Proves What Sci-Fi Fans Realized 8 Years Ago
+
+Streaming TV, Dark Winds
+
+Mon, 02 Mar 2026 22:13:19 GMT
+
+https://screenrant.com/dark-winds-zahn-mcclarnon-westworld-talent/
+
+AMC's western noir series Dark Winds, led by Zahn McClarnon's incredible performance, is one of the greatest TV shows on the air right now.
+---------
+
+# New Outlander Spinoffs & Universe Expansion After Blood Of My Blood Teased By Showrunner
+
+TV, Outlander, Outlander: Blood of My Blood
+
+Mon, 02 Mar 2026 22:03:29 GMT
+
+https://screenrant.com/outlander-spinoffs-universe-expansion-blood-of-my-blood-producers/
+
+Exclusive: Outlander season 8 showrunner Matthew B. Roberts addresses additional spinoffs in the franchise's future beyond Blood of My Blood.
+---------
+
+# The New Batman Adventures: A Silver Lining To Joel Schumacher's Dark Knight
+
+Classic TV, The New Batman Adventures
+
+Mon, 02 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/batman-joel-schumacher-movies-new-batman-adventures-show/
+
+Joel Schumacher's Batman movies are not the best the franchise has to offer, but they did help influence The New Batman Adventures, no small thing.
+---------
+
+# Dark Souls Meets Elden Ring In New Fantasy RPG You Can Try Free Now
+
+Gaming
+
+Mon, 02 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/steam-free-download-elden-ring-bearer-last-flame/
+
+While there is no shortage of Souls-likes out in the wild, it's always nice to find one that's free to try, and has promise to boot.
+---------
+
+# Anya Taylor-Joy's $174M Apocalyptic Sci-Fi Becomes Global Netflix Streaming Hit In Much-Deserved New Comeback
+
+Movies, Furiosa: A Mad Max Saga, Mad Max, Streaming Charts
+
+Mon, 02 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/anya-taylor-joy-furiosa-mad-max-netflix-streaming-success-march-2026/
+
+Anya Taylor-Joy's sci-fi action thriller sees another comeback on streaming after being a baffling box office flop, despite much critical acclaim.
+---------
+
+# 22 Years Ago, DC Created the Only Evil Superman That Actually Matters
+
+Comics, Superman, Injustice, DC Comics
+
+Mon, 02 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/absolute-power-only-evil-superman-story-that-matters-dc-comics/
+
+The Evil Superman trope has outstayed its welcome at DC Comics, but one story still stands out as one of the best takes on the fall of Clark Kent.
+---------
+
+# Where to Start With Pokémon TCG
+
+Games, Pokemon, Pokemon Trading Card Game
+
+Mon, 02 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/pokemon-tcg-beginners-guide/
+
+It's never been easier to get into the Pokémon Trading Card game.
+---------
+
+# Jim Carrey ‘Clone’ Theory Shut Down by César Awards After Going Viral
+
+Movies, jim carrey, Jim Carrey
+
+Mon, 02 Mar 2026 22:09:46 GMT
+
+https://www.cbr.com/jim-carrey-clone-theory-shut-down/
+
+The Mask actor seems to have taken the role too seriously.
+---------
+
+# Seth MacFarlane Confirms Ted's Future at Peacock
+
+TV, Peacock, Ted
+
+Mon, 02 Mar 2026 22:06:22 GMT
+
+https://www.cbr.com/ted-season-3-ending-seth-macfarlane/
+
+Ted creator Seth MacFarlane addresses the show's future ahead of the Season 2 premiere on Peacock.
+---------
+
+# Rumored Super Mario Galaxy Movie Plot Hints at 3 New Characters
+
+Movies, The Super Mario Galaxy Movie
+
+Mon, 02 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-rumored-plot-characters/
+
+The Super Mario Bros. Movie sequel is set to introduce several new faces familiar to video game fans.
+---------
+
+# Jon Hamm Breaks Down Hoppers’ Mayor Jerry and That Fletch Question
+
+Movies, Hoppers
+
+Mon, 02 Mar 2026 22:00:11 GMT
+
+https://www.cbr.com/video/jon-hamm-breaks-down-hoppers-mayor-jerry-and-that-fletch-question/
+
+Jon Hamm opens up about playing Mayor Jerry in Hoppers and why the character’s growth hits harder than you’d expect. From joking about his most-used emoji to breaking down the film’s environmental themes, Hamm explains how Hoppers balances big laughs with real consequences.
+---------
+
+# NCIS Season 23 Is Replacing Ziva by Repeating a Revival Trick
+
+TV, NCIS
+
+Mon, 02 Mar 2026 22:00:11 GMT
+
+https://www.cbr.com/ncis-season-23-ellie-bishop-replace-ziva-david-legacy/
+
+With its shocking return, NCIS Season 23 is giving Cote de Pablo's iconic Ziva David a true spiritual successor, raising the stakes for the CBS show.
+---------
+
+# ’50s Horror Classics That Still Terrify Audiences
+
+Movies, Horror
+
+Mon, 02 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/50s-horror-classics-still-scare-audience/
+
+The horror genre has changed a lot since the '50s, but there are still some classic films that terrify audiences.
+---------
+
+# A Near-Perfect Sailor Moon Era America Wasn't Ready For Is Finally Easier to Watch
+
+Anime, Sailor Moon, Pretty Guardian Sailor Moon
+
+Mon, 02 Mar 2026 21:16:12 GMT
+
+https://www.cbr.com/pretty-guardian-sailor-moon-tv-series-america-easy-watch/
+
+Sailor Moon fans reclaim territory long disregarded by Western distributors, creating a watchable English version for the 2003 live-action TV series.
+---------
+
+# 10 Action-Packed Anime No One Remembers That Hit Like Blockbuster Movies
+
+Anime, Action
+
+Mon, 02 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/forgotten-anime-like-blockbuster-action-movies/
+
+Though rarely discussed today, anime like Kabaneri of the Iron Fortress and Darker than Black once felt as massive as summer blockbusters.
+---------
+
+# 10 Movie Trilogies Where Only the First Chapter Is a Masterpiece
+
+Movie, Iron Man, Men in Black, Ocean's Eleven, Teenage Mutant Ninja Turtles
+
+Mon, 02 Mar 2026 22:48:12 GMT
+
+https://collider.com/movie-trilogies-first-chapter-is-a-masterpiece/
+
+The Matrix, Clerks, and Men In Black are notable examples of movie trilogies where only the first installment can truly be called a masterpiece.
+---------
+
+# 10 21st-Century Oscar Wins That Keep Getting Better
+
+Movie, Oscars, Parasite, Peter Jackson, Daniel Day-Lewis
+
+Mon, 02 Mar 2026 22:22:13 GMT
+
+https://collider.com/oscar-wins-21st-century-keep-getting-better/
+
+From Peter Jackson's Best Director win in 2004 to Moonlight claiming the top prize in 2017, these 21st-century Oscar wins only get better with age.
+---------
+
+# One of ABC’s Most Classic Franchises Just Got an Unexpected $100,000 Makeover Twist
+
+TV Features, The Bachelor, ABC, HGTV, The Bachelorette
+
+Mon, 02 Mar 2026 22:19:12 GMT
+
+https://collider.com/abc-bachelor-franchise-hgtv-bachelor-mansion-takeover-explained/
+
+HGTV and The Bachelor team up as 12 alumni compete for $100K by renovating the iconic mansion.
+---------
+
+# Bob Odenkirk’s ‘Normal’ Teases a ‘Fargo’-Style Crime Showdown in New Look [Exclusive]
+
+Exclusives, Normal, Bob Odenkirk, Lena Headey, Collider Exclusive Preview
+
+Mon, 02 Mar 2026 22:00:12 GMT
+
+https://collider.com/bob-odenkirk-normal-new-image-action-movie/
+
+Bob Odenkirk embraces a mustache in a new look at his upcoming action film, Normal. See it here.
+---------
+
+# 3 Best Shows To Watch on Netflix This Week (Mar 2-6)
+
+TV, Netflix, Wind Breaker, Bridgerton, Brooklyn Nine-Nine
+
+Mon, 02 Mar 2026 21:48:12 GMT
+
+https://collider.com/best-netflix-shows-watch-week-march-2/
+
+Wind Breaker, Bridgerton, and Brooklyn Nine-Nine make up our list of the best shows to watch on Netflix the week of March 2, 2026.
+---------
+
+# 9 Years Later, Matt Damon's Strangest Sci-Fi Movie Finds a Second Life on Streaming
+
+Movie News, Downsizing, Matt Damon, Sci-Fi, Paramount Plus
+
+Mon, 02 Mar 2026 21:33:38 GMT
+
+https://collider.com/matt-damon-strangest-sci-fi-movie-downsizing-global-streaming-success-netflix-march-2026/
+
+Matt Damon's strangest sci-fi movie is finding a second life on streaming after 9 years.
+---------
+
+# Gerard Butler’s Long-Awaited $58.3 Million Crime Thriller Sequel Is Winning Over ‘Heat’ Fans
+
+Movie News, Den of Thieves 2: Pantera, Netflix, Gerard Butler, O'Shea Jackson Jr.
+
+Mon, 02 Mar 2026 21:33:27 GMT
+
+https://collider.com/gerard-butler-crime-thriller-den-of-thieves-2-streaming-success-prime-video-march-2026/
+
+Gerard Butler's long-awaited $58.3M crime thriller Den of Thieves 2 is winning over Heat fans on Prime Video.
+---------
+
+# The 10 Worst Adaptations of Great Classic Books, Ranked
+
+Movie, The Golden Compass, The Hobbit: The Battle of the Five Armies, The Dark Tower, The Time Machine
+
+Mon, 02 Mar 2026 21:26:12 GMT
+
+https://collider.com/worst-adaptations-great-books-classics-ranked/
+
+Movie adaptations like The Golden Compass and The Cat in the Hat misunderstand and misrepresent everything that makes their source materials great.
+---------
+
+# After 30 Years, 'Resident Evil' Star Reveals Why Zach Cregger's New Movie Is Exactly What the Franchise Needs [Exclusive]
+
+Exclusives, Resident Evil, Resident Evil 7, Nick Apostolides, video game movies
+
+Mon, 02 Mar 2026 21:16:44 GMT
+
+https://collider.com/resident-evil-franchise-evolution-new-bold-remakes-stories-leon-voice-actor-nick-apostolides/
+
+Nick Apostolides explains why Resident Evil continues to thrive by letting new creators reinvent the franchise across games and film adaptations.
+---------
+
+# 5 Years Later, Disney’s 92% RT Oscar Winner Gets Sequel Tease
+
+Movie News, Encanto, Disney+, Byron Howard, Animation
+
+Mon, 02 Mar 2026 21:09:32 GMT
+
+https://collider.com/encanto-2-sequel-update-director-byron-howard-delayed-by-zootopia-2-overlap-still-in-development/
+
+Encanto director Byron Howard reveals insights into the production process and hints at the potential for an Encanto sequel, noting team overlap.
+---------
+
+# 'X-Files' Forgotten AI Episode Is More Controversial in 2026, 33 Year Later
+
+Features, The X-Files, Sci-Fi
+
+Mon, 02 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/x-files-episode-controversial-2026/
+
+In 1993, 'The X-Files' was ahead of its time, with an early episode that shows technological foresight and feels even more controversial today.
+---------
+
 # Steam Makes 2025 Game Completely Free Until March 4
 
 Gaming, Indie, Steam, PC
