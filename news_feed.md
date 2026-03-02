@@ -1,3 +1,58 @@
+# God Of War Sequel Leak Confirms We're Saying Goodbye To Kratos
+
+Gaming, God of War, Sony, PlayStation 5
+
+Mon, 02 Mar 2026 11:51:59 GMT
+
+https://screenrant.com/god-of-war-sequel-leak-new-character-no-kratos/
+
+The secret new IP from Sony Santa Monica Studio is set to be an expansion of the God of War universe, only without Kratos.
+---------
+
+# GTA 6 Pre-Orders Leak, Hold Onto Your Wallets
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Mon, 02 Mar 2026 11:16:33 GMT
+
+https://screenrant.com/gta-6-pre-orders-leak-start-date-rumor/
+
+The cost of GTA VI has been a particular point of discussion in the community, and the pre-orders have now seemingly gone online for the first time.
+---------
+
+# PlayStation Gamers Have 24 Hours To Grab 4 Free Games
+
+Gaming, PlayStation Plus, PlayStation 5
+
+Mon, 02 Mar 2026 10:36:50 GMT
+
+https://screenrant.com/playstation-4-free-games-24-hours-march-2026/
+
+PlayStation Plus subscribers can get their hands on four worthwhile free games, but they need to move fast to do so.
+---------
+
+# The Witcher 4 New Look Officially Confirmed, Mark Your Calendars
+
+Gaming, The Witcher 4, The Witcher
+
+Mon, 02 Mar 2026 10:34:12 GMT
+
+https://screenrant.com/witcher-4-new-look-gameplay-june-2026/
+
+Get ready for an exciting glimpse into The Witcher 4 as CD Projekt RED confirms an official game reveal at the Unreal Engine Fest 2026 in June.
+---------
+
+# Kevin Bacon's Sirens Is What Single-Day Binges Were Made For
+
+TV, Sirens, Netflix, Comedy
+
+Mon, 02 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/kevin-bacon-netflix-sirens-perfect-single-day-binge/
+
+Kevin Bacon made his mark in movies, but his TV credits include this Netflix show that reminds fans what streaming was supposed to be all about.
+---------
+
 # Star Trek: Starfleet Academy EPs Reveal More Of Mysterious Dar-Sha Alien Species
 
 TV, Star Trek, Star Trek: Starfleet Academy
