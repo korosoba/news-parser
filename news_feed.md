@@ -1,3 +1,300 @@
+# The Boys' Spinoff Gen V Is A Perfect Example Of A Successful Spinoff Series
+
+Streaming TV, Gen V, The Boys
+
+Mon, 02 Mar 2026 23:35:19 GMT
+
+https://screenrant.com/gen-v-the-boys-spinoff-perfect/
+
+The Boys' spinoff Gen V has become a standout example of a successful spinoff series, expanding the franchise with its own unique stories & critique.
+---------
+
+# Tom Hardy's Taboo: Why This Forgotten Crime Series Deserves A Second Chance
+
+Streaming TV, Taboo
+
+Mon, 02 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/tom-hardy-taboo-crime-drama-season-2-renewal-chances/
+
+With the success of a popular Tom Hardy crime TV series, a similar but forgotten project of his deserves a second life now more than ever.
+---------
+
+# Spider-Man and Venom Team Up Amidst Major Revelations and Consequences
+
+Comics, Spider-Man, Venom, Marvel
+
+Mon, 02 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/spider-man-venom-brand-new-team-up-carnage/
+
+Spider-Man and Venom are gearing up for an exciting and unique new team-up (following a major reveal that absolutely compromises Peter Parker).
+---------
+
+# Spider-Man’s Best Suit Returns 42 Years Later, Thanks to Superboy Prime
+
+Comic-Con, Spider-Man, Superman
+
+Mon, 02 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/spider-man-black-suit-returns-superboy-prime/
+
+Spider-Man has donned a multitude of iconic suits during his 64 years in comics, and now, after 42 years, his best suit returns thanks to [SPOILER].
+---------
+
+# Netflix's 4-Part Sci-Fi Thriller Series Is The Perfect One-Night Binge
+
+TV, Netflix, The Signal
+
+Mon, 02 Mar 2026 23:27:09 GMT
+
+https://screenrant.com/the-signal-netflix-sci-fi-thriller-series-must-watch/
+
+Netflix's underrated sci-fi thriller series is a hidden gem that can be watched in a single night, and it makes for quite the shocking binge.
+---------
+
+# Bridgerton Season 4’s Whistledown Twist Finally Gives Book Readers A Mystery Of Their Own
+
+Streaming TV, Bridgerton, Bridgerton - Season 4
+
+Mon, 02 Mar 2026 23:15:20 GMT
+
+https://screenrant.com/bridgerton-season-4-new-lady-whistledown-book-readers-mystery/
+
+The Bridgerton season 4 finale surprises book readers with a new Lady Whistledown, creating a mystery for both show watchers and book fans alike.
+---------
+
+# Top 5 Must-Watch Netflix Shows This Week: March 2–6, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 02 Mar 2026 23:08:19 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-week-march-2-6-2026/
+
+The top shows to binge-watch this week on Netflix include all-time greats like The West Wing, Breaking Bad, Black Sails, Shameless, and Southland.
+---------
+
+# Why 2000s Shows Are Reviving Amid Supernatural's Future Potential Reboot
+
+Classic TV, Supernatural
+
+Mon, 02 Mar 2026 23:05:19 GMT
+
+https://screenrant.com/supernatural-revival-likely-tv-shows-2000s-reboots/
+
+As 2000s hits return in the midst of reboot culture,  fans wonder why a Supernatural revival hasn't happened yet despite the cast and fandom's desire.
+---------
+
+# Scream 7's Stu Macher Twist Was Missing A Much-Needed Ghostface Cameo
+
+Movies, Scream 7, Scream
+
+Mon, 02 Mar 2026 23:05:19 GMT
+
+https://screenrant.com/scream-7-stu-macher-return-ai-twist-emma-roberts-jill-missing-cameo/
+
+Scream 7 found a way to bring back past franchise characters, including Matthew Lillard's Stu, but there was a specific person missing.
+---------
+
+# Pokémon Ruby & Sapphire Official Return Leaks Online
+
+Gaming, Pokemon
+
+Mon, 02 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/pokemon-ruby-sapphire-nintendo-switch-2-rerelease-leak/
+
+It seems that Pokémon Ruby and Sapphire may be making an official comeback, thanks to some interesting reveals from FireRed and LeafGreen on Switch.
+---------
+
+# 10 Untouchable Seinen Manga Masterpieces That Still Need a Proper Anime Adaptation
+
+Anime, seinen
+
+Mon, 02 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/best-seinen-manga-anime-adaptation/
+
+These seinen anime all have the potential to spawn incredible anime adaptations.
+---------
+
+# The Mummy 4: Is Tomb of the Dragon Emperor Canon?
+
+Movies, The Mummy, Fantasy, The Mummy: Tomb of the Dragon Emperor
+
+Mon, 02 Mar 2026 23:12:52 GMT
+
+https://www.cbr.com/the-mummy-4-tomb-of-the-dragon-emperor-canon/
+
+The Mummy 4 directors address the canon status of Tomb of the Dragon Emperor.
+---------
+
+# Ahead of Guy Ritchie's Live-Action Remake, Beloved Animated Classic With 83% RT Finds New Success on Streaming
+
+Movies, Hercules, Disney+
+
+Mon, 02 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/hercules-animated-disney-plus-success-march-2026/
+
+A beloved Disney animated classic is surging on streaming ahead of a planned live-action remake from Guy Ritchie and the Russo Brothers.
+---------
+
+# Michelle Pfeiffer’s The Madison Signals a New Era for Taylor Sheridan
+
+TV, The Madison, Yellowstone, Western
+
+Mon, 02 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-the-madison-emmy-awards-contender-op-ed/
+
+Paramount+'s new neo-Western series from Yellowstone co-creator Taylor Sheridan could change the game in the showrunner's favor.
+---------
+
+# Baz Luhrmann's EPiC: Elvis Presley in Concert Fixes His Most Divisive Problem
+
+Movies, EPiC: Elvis Presley in Concert, Elvis
+
+Mon, 02 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/baz-luhrmann-epic-elvis-presley-in-concert-fix-problem/
+
+EPiC: Elvis Presley in Concert is Baz Luhrmann's best work and finally fixes one aspect of the divisive director.
+---------
+
+# Foo Fighters' Dave Grohl Crowned This Song Their Most Emotional and Heaviest Track Ever Written
+
+Music Features, Foo Fighters, Dave Grohl, Rock, Music
+
+Mon, 02 Mar 2026 23:51:22 GMT
+
+https://collider.com/foo-fighters-dave-grohl-most-emotional-song-aurora/
+
+A hidden gem from Foo Fighters' album There Is Nothing Left to Lose, holds a special place in Dave Grohl's heart as one of his most emotionally and musically heavy tracks.
+---------
+
+# Netflix Sets Spring Release for the Greatest 8-Part Fantasy Series Since ‘Game of Thrones’
+
+TV News, Outlander, Game Of Thrones, Netflix, Starz
+
+Mon, 02 Mar 2026 23:46:29 GMT
+
+https://collider.com/outlander-season-8-netflix-international-spring-release-date/
+
+Netflix has revealed that international subscribers outside the U.S. will be able to stream Outlander Season 8 soon, but U.S. fans face a longer wait.
+---------
+
+# Taylor Sheridan Never Wanted To Make This 122-Minute Electric Western Sleeper Hit
+
+Movie News, Sicario: Day Of The Soldado, Taylor Sheridan, Sicario, Netflix
+
+Mon, 02 Mar 2026 23:45:59 GMT
+
+https://collider.com/taylor-sheridan-never-wanted-to-make-sicario-day-of-the-soldado-streaming-success-february-2026/
+
+Taylor Sheridan fans can't stop watching this 122-minute electric Western sleeper hit that he never wanted to make.
+---------
+
+# 3 Best Movies To Watch on Prime Video This Week (March 2-6)
+
+Movie, Prime Video, Josie And The Pussycats, The Place Beyond the Pines, The Silence of the Lambs
+
+Mon, 02 Mar 2026 23:34:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-march-2/
+
+Josie and the Pussycats, Silence of the Lambs, and Place Beyond the Pines make our list of best movies to watch on Prime Video the week of March 2.
+---------
+
+# Every Stephen King Book That Needs an Adaptation ASAP, Ranked
+
+Movie, Stephen King, The Dark Tower, The Talisman, Books
+
+Mon, 02 Mar 2026 23:30:12 GMT
+
+https://collider.com/stephen-king-books-without-adaptations-ranked/
+
+While many Stephen King novels have movie or TV adaptations, there are a surprising number that don't, including The Eyes of the Dragon and Revival.
+---------
+
+# All 5 'Scream' Movies of the 21st Century, Ranked
+
+Movie, Scream, Scream 3, Scream 4, Scream 7
+
+Mon, 02 Mar 2026 23:23:12 GMT
+
+https://collider.com/scream-movies-21st-century-ranked/
+
+From the disappointing but hardly bad Scream 3 to the underrated and great Scream 4, we've ranked every 21st century entry in the iconic slasher saga.
+---------
+
+# 9 Burning Questions I Have After the 'Bridgerton' Season 4 Finale
+
+TV, Bridgerton, Netflix, Shonda Rhimes, Romance
+
+Mon, 02 Mar 2026 23:17:13 GMT
+
+https://collider.com/bridgerton-season-4-finale-burning-questions/
+
+While we wait for Season 5, these are the burning questions I have after the Season 4 finale of the beloved Netflix romantic drama Bridgerton.
+---------
+
+# 10 Classic Fantasy Movies That Have Aged Like Fine Wine
+
+Movie, Fantasy, Time Bandits, The Princess Bride, The Wizard of Oz
+
+Mon, 02 Mar 2026 23:03:12 GMT
+
+https://collider.com/classic-fantasy-movies-that-have-aged-like-fine-wine/
+
+Sleeping Beauty, Time Bandits, and The Last Unicorn are great, classic fantasy movies that have only gotten better with age.
+---------
+
+# HGTV's D'Arcy Carden and Sherry Cola Reveal the Most Unexpected Vacation Spot on New American Travel Show
+
+Exclusives, Wild Vacation Rentals, D'Arcy Carden, HGTV
+
+Mon, 02 Mar 2026 23:01:12 GMT
+
+https://collider.com/hgtv-darcy-carden-sherry-cola-wild-vacation-rentals-american-travel-show/
+
+HGTV stars D'Arcy Carden and Sherry Cola break down their experience travelling America for Wild Vacation Rentals and the jump to unscripted TV.
+---------
+
+# 25 Years Later, Fans of Prime Video's Hit Thriller Series Are Discovering the Forgotten Original Movie With Morgan Freeman
+
+Movie News, Along Came a Spider, Kiss the Girls, Cross, Morgan Freeman
+
+Mon, 02 Mar 2026 22:57:48 GMT
+
+https://collider.com/prime-video-cross-fans-discover-morgan-freeman-alex-cross-political-thriller-along-came-the-spider-streaming-success-march-2026/
+
+25 years later, America's most underrated political thriller with Morgan Freeman has officially been rediscovered.
+---------
+
+# 'Zootopia 2' Topples 'The Lion King's Domestic Box-Office Earnings
+
+Movie News, Zootopia 2, Box Office Milestones, The Lion King
+
+Mon, 02 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/zootopia-2-box-office-the-lion-king/
+
+It took three months, but the animated sequel scores another massive win.
+---------
+
+# 'The Next Giant Leap' Reveals More About 'For All Mankind' Season 5 Than the Show's Actual Trailer
+
+TV Lists, For All Mankind
+
+Mon, 02 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/for-all-mankind-season-5-other-reveals/
+
+2004-2012 was a turbulent era in 'For All Mankind's trailer. There's a better way to learn about it than watching the Season 5 trailer.
+---------
+
 # 7 Best Mortal Kombat Movie Fights Straight Out Of The Video Games
 
 Movies, Mortal Kombat II, Mortal Kombat, Mortal Kombat: Annihilation
