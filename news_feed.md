@@ -1,3 +1,443 @@
+# Pixar's New Movie Debuts With Studio's Best Rotten Tomatoes Score In 11 Years
+
+Movies, Hoppers
+
+Mon, 02 Mar 2026 17:31:40 GMT
+
+https://screenrant.com/hoppers-movie-rotten-tomatoes-score-debut-disney-pixar/
+
+Pixar's new movie with an Avatar-like premise debuts with one of the studio's best Rotten Tomatoes scores yet in 11 years, ahead of its release.
+---------
+
+# Star Trek: SAM Bonds With 4 Iconic Characters From Deep Space Nine & Voyager
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Mon, 02 Mar 2026 17:30:18 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-sam-sisko-dax-doctor-link/
+
+Star Trek: Starfleet Academy's Series Acclimation Mil gradually became linked to legends from Star Trek: Deep Space Nine and Star Trek: Voyager.
+---------
+
+# 22 Best Seeds For Minecraft 1.21 Bedrock Edition
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Mon, 02 Mar 2026 17:30:18 GMT
+
+https://screenrant.com/minecraft-best-seeds-bedrock-edition/
+
+The Bedrock Edition of Minecraft has plenty of gorgeous world seeds that could give you one of your best open-world sandbox experiences.
+---------
+
+# Sonic The Hedgehog 4 Begins Filming As Director Reveals First Set Photo Teasing Amy’s Arrival
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Mon, 02 Mar 2026 17:27:53 GMT
+
+https://screenrant.com/sonic-the-hedgehog-4-filming-begins-set-photo-amy-hammer/
+
+Director Jeff Fowler reveals that Sonic the Hedgehog 4 has officially begun filming with a set photo hyping up Amy's arrival in the sequel.
+---------
+
+# Fox’s New Remake Of Iconic Medical Series Officially Returning For Season 2
+
+TV, Best Medicine
+
+Mon, 02 Mar 2026 17:27:48 GMT
+
+https://screenrant.com/best-medicine-season-2-renewal-fox/
+
+Fox's remake of the iconic British comedy Doc Martin, titled Best Medicine, has been officially renewed for a second season.
+---------
+
+# Crunchyroll Finally Makes the Big Jujutsu Kaisen Change That Fans Have Begged For
+
+Anime, Crunchyroll, Jujutsu Kaisen
+
+Mon, 02 Mar 2026 17:22:49 GMT
+
+https://screenrant.com/jujutsu-kaisen-crunchyroll-blu-ray-change-better/
+
+This unexpected and sudden decision by Crunchyroll has fans buzzing about Jujutsu Kaisen Season 2 all over again, as Season 3 is airing.
+---------
+
+# Sinners' Path To Winning Best Picture Is The Same As Two Polar Opposite Former Winners
+
+New Movies, Oscars, Sinners
+
+Mon, 02 Mar 2026 17:16:19 GMT
+
+https://screenrant.com/sinners-best-picture-oscars-sag-ace-wins-history/
+
+Sinners is fresh off a stellar weekend, one that proves it has a path to winning Best Picture. It just needs to copy two polar opposite winners.
+---------
+
+# Pokémon Winds & Waves Starter Final Evolutions Already Dividing Players
+
+Gaming, Pokémon Winds and Waves, Pokemon
+
+Mon, 02 Mar 2026 17:11:17 GMT
+
+https://screenrant.com/pokemon-winds-waves-starter-final-evolutions-speculation/
+
+The final evolutions for the starter 'mons in Pokémon Winds & Waves are proving to be a point of intense debate for players.
+---------
+
+# Upcoming Horror Series Based On Bestselling Book Needs To Include 1 Perfect Cameo
+
+TV, Andy Muschietti, Jamie Lee Curtis, Horror
+
+Mon, 02 Mar 2026 17:02:19 GMT
+
+https://screenrant.com/the-final-girl-support-group-show-jamie-lee-curtis-perfect-cameo/
+
+Barbara and Andy Muschietti's upcoming HBO Max horror show, based on a bestselling book, absolutely needs to feature 1 beloved horror actor.
+---------
+
+# 8 Years Ago, All American Fixed The Worst Thing About Teen Drama Shows
+
+Network TV, All American
+
+Mon, 02 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/all-american-fix-worst-thing-high-school-drama-shows/
+
+All American hits many of the same beats found in other high school drama shows, but it fixes the absolute worst thing about teens on screens.
+---------
+
+# Everything Everywhere All at Once: Sci-Fi Hit Streaming on HBO Max
+
+Movies, Everything Everywhere All at Once, HBO Max, Sci-Fi
+
+Mon, 02 Mar 2026 17:28:30 GMT
+
+https://www.cbr.com/everything-everywhere-all-at-once-streaming-hbo-max-march-2026/
+
+YouTube martial arts stars helped create the Oscar-winning sci-fi film Everything Everywhere All at Once, now streaming on HBO Max.
+---------
+
+# Fox Seals the Fate of Its Best Medicine
+
+TV, Best Medicine
+
+Mon, 02 Mar 2026 17:26:11 GMT
+
+https://www.cbr.com/fox-best-medicine-season-2-fate/
+
+The show debuted to encouraging reviews, and Fox decided its fate ahead of its season finale.
+---------
+
+# DanMachi Season 6 Will Be This Hit Adventure Fantasy's Best Anime Season Yet
+
+Anime, Is It Wrong To Try To Pick Up Girls In A Dungeon?, Fantasy, Adventure
+
+Mon, 02 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/danmachi-season-6-new-best-fantasy-anime/
+
+The ultimate adventure fantasy anime is finally return with its best season yet.
+---------
+
+# Sarah Michelle Gellar Reveals Hollywood Almost Blocked Her From Becoming Buffy the Vampire Slayer
+
+Movies, Buffy The Vampire Slayer, Ready or Not 2: Here I Come, Ready Or Not 2
+
+Mon, 02 Mar 2026 17:04:45 GMT
+
+https://www.cbr.com/sarah-michelle-gellar-hollywood-blocked-buffy-the-vampire-slayer-cruel-intentions/
+
+The Buffy the Vampire Slayer star became a legend thanks to the hit series, but she almost lost all her iconic roles.
+---------
+
+# Hoppers Review: Pixar’s New Animal Squad Could Rival Ice Age & Madagascar
+
+Movies, Hoppers
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/hoppers-review/
+
+This hilarious, heartfelt eco-adventure has stunning visuals, a standout hero, and adorable animals — plus big laughs and sequel-ready worldbuilding.
+---------
+
+# The 27-Year-Old Horror That Revitalized a Major Subgenre Is Now Streaming on HBO Max
+
+Movies, The Blair Witch Project, Blair Witch
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/blair-witch-project-franchise-streaming-hbo-max-march-2026/
+
+One of the most iconic (and important) horror movies of an entire generation is now part of the HBO Max library, as are its hotly debated sequels.
+---------
+
+# Marvel Studios Needs a Street-Level Spider-Man Now More Than Ever
+
+Comics, Spider-Man: Brand New Day, MCU, superheroes
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/marvel-studios-needs-street-level-spider-man-brand-new-day/
+
+With Spider-Man: Brand New Day just a few months away, Marvel can't afford to miss the opportunity to give fans a street-level Spider-Man.
+---------
+
+# Keaton’s Fate Puts Tracker’s Biggest Issue to the Test
+
+TV, Tracker, Crime
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/keaton-highlights-tracker-biggest-issue/
+
+In the latest episode, Tracker is at risk of falling into a common trap for procedurals. Keaton's fate was left open, placing Tracker at a crossroads.
+---------
+
+# 10 Thor Storylines That The MCU Needs To Include
+
+Comics, Marvel, Marvel Comics, Marvel Cinematic Universe
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/thor-storylines-mcu-can-still-use/
+
+When will we get an apology for Thor: Love and Thunder?
+---------
+
+# Pacific Rim's Long-Awaited Return Has A Release Date
+
+Comics, Pacific Rim
+
+Mon, 02 Mar 2026 16:51:26 GMT
+
+https://www.cbr.com/pacific-rim-final-breach-release-date-confirmed/
+
+Pacific Rim is coming back with a brand-new story featuring some of fans' favorite characters, and there are only a couple months left to wait.
+---------
+
+# ‘DMV’s Blooper Reel Proves This CBS Comedy Deserves a Season 2 [Exclusive]
+
+TV News, DMV, CBS, Tim Meadows, Paramount Plus
+
+Mon, 02 Mar 2026 17:30:12 GMT
+
+https://collider.com/dmv-season-1-blooper-reel-cbs-sitcom-tim-meadows-molly-kearney/
+
+Watch an exclusive blooper reel from the CBS sitcom DMV, showcasing the show's hilarious cast and comedic timing as they navigate the workplace.
+---------
+
+# An Ultra-Violent WWII Sequel Just Toppled a $225M Sci-Fi Giant
+
+Movie News, Sisu, Sisu: Road to Revenge, World War II, Stephen Lang
+
+Mon, 02 Mar 2026 17:20:11 GMT
+
+https://collider.com/violent-ww2-movie-sisu-2-overtakes-jurassic-world-rebirth-streaming-success-hbo-max-prime-video-march-2026/
+
+One of the most violent WW2 movies of the last 10 years just made a $225M sci-fi tentpole extinct on streaming.
+---------
+
+# 'Yellowstone' Spin-Off Showrunner Explains Why They Had To Kill Off a Main Character in Episode 1
+
+TV News, Marshals, Yellowstone, Luke Grimes, CBS
+
+Mon, 02 Mar 2026 17:06:53 GMT
+
+https://collider.com/yellowstone-spin-off-marshals-monica-death-kelsey-asbille-exit-explained-showrunner-spencer-hudnut/
+
+Marshals showrunner Spencer Hudnut explains why they chose to kill off a Yellowstone fan favorite character immediately.
+---------
+
+# 'Paradise' Season 2 Episode 4 Recap: Tragedy Strikes Xavier's Quest in the Sci-Fi Show’s Most Heartwrenching Hour
+
+TV Reviews, Paradise, Sterling K. Brown, Shailene Woodley, Hulu
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://collider.com/paradise-season-2-episode-4-recap-sterling-k-brown-shailene-woodley/
+
+In Paradise Season 2 Episode 4, Xavier and Annie's paths cross, leading to an emotional journey filled with loss, hope, and the search for loved ones.
+---------
+
+# ‘Sweetness’ Turns Fandom Into a Dangerous Game in New Look at Psychological Thriller [Exclusive]
+
+Exclusives, Sweetness, Justin Chatwin, Thriller, Collider Exclusive Preview
+
+Mon, 02 Mar 2026 17:00:12 GMT
+
+https://collider.com/sweetness-image-kate-hallett-obsession-psychological-thriller-movie/
+
+The cops are hot on Kate Hallett’s trail in a new image from the music-obsessed thriller, Sweetness. See it here!
+---------
+
+# 'Hoppers' Review: Pixar's Animal Take on 'Avatar' Is One of the Studio’s Funniest Movies Yet
+
+Movie Reviews, Hoppers, Pixar, Bobby Moynihan, Meryl Streep
+
+Mon, 02 Mar 2026 17:00:01 GMT
+
+https://collider.com/hoppers-movie-review-pixar/
+
+Pixar’s Hoppers is a wild, hilarious comedy and one of the studio’s funniest films yet.
+---------
+
+# Clint Eastwood’s '90s Western Masterpiece Just Met Its Match at the Box Office
+
+Movie News, Unforgiven, Clint Eastwood, Wuthering Heights, Jacob Elordi
+
+Mon, 02 Mar 2026 16:58:41 GMT
+
+https://collider.com/wuthering-heights-overtakes-clint-eastwood-western-unforgiven-box-office-191-million/
+
+The greatest Western of the 1990s has been taken out at the box office by 2026's most controversial film yet.
+---------
+
+# Prime Video's Dark New ‘Pirates of the Caribbean’ Alternative Shows No Mercy to Competitors
+
+Movie News, The Bluff, Pirates of the Caribbean, Priyanka Chopra Jonas, Karl Urban
+
+Mon, 02 Mar 2026 16:42:34 GMT
+
+https://collider.com/prime-video-the-bluff-black-sails-replacement-streaming-success-march-2026/
+
+Prime Video's new swashbuckling action thriller starring Priyanka Chopra Jonas and Karl Urban makes streaming competition walk the plank.
+---------
+
+# ‘Avatar: Fire and Ash’ Falls Drastically Short of Expectations as It Passes Final Box Office Milestone
+
+Movie News, Avatar: Fire and Ash, Avatar, Avatar: The Way of Water, James Cameron
+
+Mon, 02 Mar 2026 16:20:06 GMT
+
+https://collider.com/avatar-3-fire-and-ash-global-box-office-1-48-billion/
+
+Avatar: Fire and Ash has crossed one last major milestone at the global box office, nearing the end of it's run with significantly less than the first
+---------
+
+# 'Dungeons & Dragons' Is a Terrible Fantasy Movie but Has Exactly 1 Redeeming Quality
+
+Movie Features, Dungeons & Dragons, Jeremy Irons, New Line Cinema, Dungeons and Dragons
+
+Mon, 02 Mar 2026 16:18:29 GMT
+
+https://collider.com/dungeons-and-dragons-movie-2000-terrible-fantasy-jeremy-irons/
+
+The original D&amp;D movie is an all-time stinker with an all-time great villain performance at the center.
+---------
+
+# Hard Sci-Fi Masterpiece 'Gattaca' Lands New Streaming Home
+
+Movie News, Gattaca, Coming/Leaving Streaming, Sci-Fi
+
+Mon, 02 Mar 2026 17:30:16 GMT
+
+https://movieweb.com/gattaca-sci-fi-streaming-tubi-march-2026/
+
+Voted the "most scientifically accurate movie ever made" by NASA scientists, this Ethan Hawke and Uma Thurman gem is now on free streaming.
+---------
+
+# Every New Movie and TV Show Coming to Paramount+ in March 2026
+
+Features, Paramount Plus
+
+Mon, 02 Mar 2026 17:30:16 GMT
+
+https://movieweb.com/paramount-new-movie-tv-march-2026/
+
+A new series from Taylor Sheridan and a lineup of classic movies make up the best movies and TV shows coming to Paramount+.
+---------
+
+# 'Mike & Nick & Nick & Alice' Teases Hulu's R-Rated Action Time Travel Comedy
+
+Movie News, Vince Vaughn, James Marsden, Mike & Nick & Nick & Alice, Action, Comedy, Sci-Fi
+
+Mon, 02 Mar 2026 17:21:21 GMT
+
+https://movieweb.com/mike-nick-nick-alice-trailer/
+
+Vince Vaughn, James Marsden, and Eiza González join forces in the sci-fi action comedy caper.
+---------
+
+# Netflix's 'One Piece' Season 2 Final Trailer Unveiled
+
+TV News, One Piece
+
+Mon, 02 Mar 2026 17:20:43 GMT
+
+https://movieweb.com/netflix-one-piece-season-2-final-trailer/
+
+Netflix's 'One Piece' Season 2 final trailer reveals how the big-budget manga adaptation is leveling up the action and adventure.
+---------
+
+# 'Hoppers' Review: Pixar's Weirdest Movie Is Also Wildly Good
+
+4 star movies, Hoppers
+
+Mon, 02 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/hoppers-review/
+
+Pixar's 30th theatrical release (!) has what the studio's other movies lack: it actually feels like it was made by a single director.
+---------
+
+# 'Paradise' Season 2, Episode 4 Recap & Review: This One's Going To Hurt
+
+TV Reviews, Paradise
+
+Mon, 02 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/paradise-season-2-episode-4-recap-review/
+
+The Hulu series takes a dark turn in "A Holy Charge" as Xavier and Annie's journey delivers tragedy – and a possible sci-fi twist.
+---------
+
+# Best Horror Mockumentaries of All Time
+
+Movie Lists, Horror
+
+Mon, 02 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/best-horror-mockumentaries/
+
+Horror isn't exactly real. But in the case of the best horror mockumentaries ever, they're so well made that you'll believe it is.
+---------
+
+# 'War Machine' First Reactions Praise Netflix's Alan Ritchson Sci-Fi Action Movie
+
+Movie News, Netflix, Alan Ritchson, Action, Thriller, Sci-Fi, War Machine
+
+Mon, 02 Mar 2026 16:10:17 GMT
+
+https://movieweb.com/netflix-war-machine-first-reactions-clip/
+
+First reactions have praised 'Reacher' star Alan Ritchson's new action movie as a no-nonsense treat that makes you go "Hell yeah."
+---------
+
+# Ryan Gosling Says Being a Teacher Is a "Superpower" in 'Project Hail Mary' [Exclusive]
+
+Movie News, Project Hail Mary, Ryan Gosling, Sci-Fi
+
+Mon, 02 Mar 2026 15:45:16 GMT
+
+https://movieweb.com/ryan-gosling-project-hail-mary-teacher-superpower/
+
+Not just anyone can make friends with a multi-legged rock-skinned extraterrestrial. You need the patience of a middle school teacher.
+---------
+
+# HBO Max To Merge With Paramount+ Once Deal Closes
+
+TV News, HBO Max
+
+Mon, 02 Mar 2026 15:37:56 GMT
+
+https://movieweb.com/hbo-max-paramount-plus-merge/
+
+Paramount has announced that it plans to merge HBO Max and Paramount+ once the deal closes.
+---------
+
 # 3 Best Movies To Watch On Netflix This Week (March 2-6)
 
 Classic Movies, Netflix, Recommendation
