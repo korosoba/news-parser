@@ -1,3 +1,377 @@
+# Steam Makes 2025 Game Completely Free Until March 4
+
+Gaming, Indie, Steam, PC
+
+Mon, 02 Mar 2026 21:01:20 GMT
+
+https://screenrant.com/steam-free-third-person-shooter-march-2026-deal/
+
+A 2025 shooter with roguelike mechanics, akin to the popular Vampire Survivors, is being offered for free on Steam, but you need to move fast.
+---------
+
+# The Greatest Opening Scene in Western Movie History Remains Undisputed 59 Years Later
+
+Movies, Once Upon a Time in the West, Sergio Leone
+
+Mon, 02 Mar 2026 21:01:20 GMT
+
+https://screenrant.com/greatest-western-movie-opening-scene-once-upon-a-time-in-the-west/
+
+This Western's opening is the GOAT.
+---------
+
+# The 2020s' "New James Bond" Is Another Daniel Craig Character
+
+Movies, Daniel Craig
+
+Mon, 02 Mar 2026 21:01:20 GMT
+
+https://screenrant.com/daniel-craig-knives-out-new-james-bond/
+
+James Bond is the most famous example of a movie character who passes from one actor to the next, but Daniel Craig might've started another one.
+---------
+
+# Top 5 Must-Watch Prime Video Shows This Week: March 2–6, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 02 Mar 2026 20:52:19 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-week-march-2-6-2026/
+
+Discover the top 5 must-watch Prime Video series this week, including underrated crime dramas, hidden gem comedies, and a new Sherlock Holmes prequel.
+---------
+
+# Spider-Man Villains Electro & Sandman Reveal Full Design For Upcoming Live-Action Marvel Series
+
+TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Mon, 02 Mar 2026 20:51:30 GMT
+
+https://screenrant.com/spider-noir-electro-sandman-designs-spiderman-tv-show/
+
+The upcoming Spider-Man TV show, Spider-Noir, has finally revealed the full design for the new takes on Sandman and Electro in Nicolas Cage's series.
+---------
+
+# Kyoto Animation Co-Founder President & CEO Hideaki Hatta Dies at 76
+
+Anime, Violet Evergarden
+
+Mon, 02 Mar 2026 20:09:23 GMT
+
+https://screenrant.com/kyoto-animation-co-founder-ceo-hideaki-hatta-death/
+
+One of anime's most beloved, consistently excellent studios has announced the tragic passing of one of its founding figures.
+---------
+
+# Outlander Season 8 Officially Brings Back Divisive Jamie & Claire Story After Big "Betrayal"
+
+Exclusive, Outlander
+
+Mon, 02 Mar 2026 20:00:35 GMT
+
+https://screenrant.com/outlander-season-8-jamie-claire-john-betrayal-story-return-caitriona-balfe/
+
+EXCLUSIVE: Outlander revisits a divisive story for Jamie and Claire and Caitriona Balfe addresses the big betrayal and the chaos that follows.
+---------
+
+# Netflix's One Piece Drops Final Season 2 Trailer (Watch Here)
+
+Anime, One Piece, Netflix
+
+Mon, 02 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/netflix-one-piece-season-2-final-trailer/
+
+Netflix's One Piece is preparing for an epic return with Season 2, and it just dropped its final, most exciting trailer yet.
+---------
+
+# Pokemon TCG Pocket: 10 Best Cards In Paldean Wonders
+
+Gaming, Pokemon Trading Card Game Pocket, Triple-A Games
+
+Mon, 02 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/pokemon-tcg-pocket-best-cards-in-paldean-wonders/
+
+The Paldean Wonders set is here, and as Scarlet & Violet favorites come back, there are a ton of new cards that shake up the meta in a huge way.
+---------
+
+# Slow Horses: Apple TV's Fast-Paced Series Sets New Streaming Standards
+
+Streaming TV, Slow Horses
+
+Mon, 02 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/slow-horses-apple-tv-schedule-new-seasons-fast/
+
+Apple TV's political thriller, Slow Horses, is not just an excellent original drama; its rapid release schedule sets the bar for other shows.
+---------
+
+# Jerry Bruckheimer Confirms Johnny Depp’s Potential Return for Pirates 6
+
+Movies, Pirates of the Caribbean, Fantasy
+
+Mon, 02 Mar 2026 21:04:44 GMT
+
+https://www.cbr.com/pirates-of-the-caribbean-6-johnny-depp-jack-sparrow-return/
+
+Pirates of the Caribbean franchise producer Jerry Bruckheimer addresses rumors of Johnny Depp's replacement in the series.
+---------
+
+# The Twilight Zone's 'The Grave' Is a Haunting Western Horror Story
+
+TV, The Twilight Zone, Horror, Western
+
+Mon, 02 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/the-twilight-zone-the-grave-horror-western-episode/
+
+The Twilight Zone has many great episodes, but one Season 3 story hits the sweet spot between Westerns and horror that still scares viewers today.
+---------
+
+# Dwayne Johnson's $305M 'Mindless Summer Entertainment' Movie Is Now Available to Stream for Free
+
+Movies, Skyscraper
+
+Mon, 02 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/dwayne-johnson-skyscraper-streaming-free-tubi-march-2026/
+
+A Dwayne Johnson action movie that received a mixed critical reception is streaming for free this month.
+---------
+
+# Pixar’s ‘Hoppers’ Has a First Look Dominating Disney+, Changing Marketing in a Big Way
+
+Movies, Hoppers, pixar, Disney+
+
+Mon, 02 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/pixar-hoppers-first-look-studio-marketing-all-wrong/
+
+Pixar's Hoppers is already building excitement, and it's due to a first look that sets up the importance of marketing a movie.
+---------
+
+# God of War Sons of Sparta Review
+
+Games, God of War
+
+Mon, 02 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/god-of-war-sons-of-sparta-review/
+
+God of War returns with Sons of Sparta that goes into a different direction with making the game into a 2D action-metroidvania.
+---------
+
+# Arkham Asylum: A Serious House on Serious Earth Is Seriously DC’s Scariest Graphic
+
+Comics, DC Comics
+
+Mon, 02 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/arkham-asylum-a-serious-house-on-serious-earth-scariest-dc-graphic-novel/
+
+Out of all the Batman stories, this one's the most haunting.
+---------
+
+# Frank E. Flowers Talks Karl Urban, Priyanka Chopra, and Pirate Chaos
+
+Movies, The Bluff
+
+Mon, 02 Mar 2026 20:37:34 GMT
+
+https://www.cbr.com/video/frank-e-flowers-talks-karl-urban-priyanka-chopra-and-pirate-chaos/
+
+The Bluff isn’t just a swashbuckler — it’s a home invasion thriller set on an island, soaked in sweat, swagger, and blood.Frank E. Flowers breaks down The Bluff’s wild pirate action and how AGBO helped bring it to life.
+---------
+
+# Valve Officially Wins Major Rothschild Lawsuit
+
+Games, Half-Life, Portal, Left 4 Dead, Steam
+
+Mon, 02 Mar 2026 20:30:11 GMT
+
+https://www.cbr.com/valve-officially-wins-major-rothschild-lawsuit/
+
+Half-Life and Portal developer Valve claims a massive win in a lawsuit against Leigh Rothschild that could have major implications going forward.
+---------
+
+# Guy Ritchie's Young Sherlock Rotten Tomatoes Score Unveiled
+
+TV, Young Sherlock, guy ritchie, Rotten Tomatoes
+
+Mon, 02 Mar 2026 20:01:44 GMT
+
+https://www.cbr.com/guy-ritchie-young-sherlock-rotten-tomatoes-score/
+
+After setting a record even before it premiered, the new adventure mystery series is off to the best start.
+---------
+
+# Miami Vice Is Available to Stream for Free Ahead of Reboot
+
+TV, Miami Vice
+
+Mon, 02 Mar 2026 20:01:12 GMT
+
+https://www.cbr.com/miami-vice-tubi-release-date-march-2026/
+
+One of the most beloved cop shows of all time (that is heading for another feature film reboot) has a new streaming home, and it's totally free.
+---------
+
+# 10 Greatest Sci-Fi Movie Masterpieces of the '60s, Ranked
+
+Movie, 2001: A Space Odyssey, Sci-Fi, Planet of the Apes, Seconds
+
+Mon, 02 Mar 2026 21:04:12 GMT
+
+https://collider.com/best-sci-fi-movie-masterpieces-60s-ranked/
+
+2001: A Space Odyssey, Planet of the Apes, and Seconds are all among the absolute best sci-fi movies of the 1960s.
+---------
+
+# Victoria Pedretti Casts a Spell on You in New ‘Forbidden Fruits’ Image [Exclusive]
+
+Exclusives, Forbidden Fruits, Lili Reinhart, Lola Tung, Collider Exclusive Preview
+
+Mon, 02 Mar 2026 21:00:13 GMT
+
+https://collider.com/forbidden-fruits-image-lili-reinhart-victoria-pedretti-lola-tung-alexandra-shipp-witchy-horror-comedy/
+
+Discover the thrilling world of Forbidden Fruits, a slasher movie that combines witchy vibes, Mean Girls-inspired comedy, & a talented ensemble cast.
+---------
+
+# ‘The Matrix 5’ Confirmed With 1 Key Update From First-Time Franchise Director
+
+Movie News, The Matrix 5, The Matrix, Wachowskis, Warner Bros.
+
+Mon, 02 Mar 2026 20:57:46 GMT
+
+https://collider.com/the-matrix-5-update-script-still-writing-drew-goddard-writer-director/
+
+The Matrix 5 finally gets a promising update 5 years after the last film in the franchise hit theaters. See what writer/director Drew Goddard said.
+---------
+
+# With 96% on Rotten Tomatoes, Harrison Ford’s Highest-Rated Movie Isn’t What You Think
+
+Movie, Harrison Ford, The Fugitive, Tommy Lee Jones, U.S. Marshals
+
+Mon, 02 Mar 2026 20:55:12 GMT
+
+https://collider.com/96-rotten-tomatoes-harrison-ford-the-fugitive-highest-rated-movie/
+
+Fans can argue over Indiana Jones and Star Wars, but Harrison Ford’s best movie on Rotten Tomatoes is officially his 1993 thriller The Fugitive.
+---------
+
+# March Brings 10 Brutal Saw Movies to Streaming
+
+Movie News, Tobin Bell, Saw, Horror, Netflix
+
+Mon, 02 Mar 2026 20:50:37 GMT
+
+https://collider.com/saw-franchise-streaming-netflix-all-10-movies-march-2026/
+
+Get ready for a spine-chilling experience as the entire Saw franchise, including Saw X, arrives on Netflix in March.
+---------
+
+# Keri Russell Gives Major 'The Diplomat' Season 4 Update [Exclusive]
+
+TV News, The Diplomat, Keri Russell, Netflix, The Actor Awards
+
+Mon, 02 Mar 2026 20:43:30 GMT
+
+https://collider.com/the-diplomat-season-4-update-keri-russell-netflix/
+
+Keri Russell gives a thrilling update on The Diplomat Season 4 at Netflix after winning at the SAG Actor Awards for her role in the political drama.
+---------
+
+# 7 Sci-Fi Shows That Would've Thrived in the Streaming Era
+
+TV, Sci-Fi, Babylon 5, The Outer Limits, The Sarah Jane Adventures
+
+Mon, 02 Mar 2026 20:37:12 GMT
+
+https://collider.com/sci-fi-shows-better-for-streaming-era/
+
+Although they were popular at the time, sci-fi series like Babylon 5 and The Sarah Jane Adventures, feel like they were meant to be streaming shows.
+---------
+
+# Polarizing ‘Tár’-Style Psychological Thriller Surges in America
+
+Movie News, Netflix, Tar, Thriller, Cate Blanchett
+
+Mon, 02 Mar 2026 20:33:29 GMT
+
+https://collider.com/tar-replacement-psychological-thriller-accused-streaming-success-march-2026/
+
+A 106-minute Tár replacement is a sudden streaming sensation on Netflix despite polarizing reviews.
+---------
+
+# 3 Best Movies To Watch on Netflix This Week (Mar 2-6)
+
+Movie, Netflix, Jurassic World Dominion, Chef, Casino
+
+Mon, 02 Mar 2026 20:31:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-march-2/
+
+Jurassic World: Dominion, Casino, and Chef make up our list of the best Netflix movies to watch the week of March 2, 2026.
+---------
+
+# The Best Part of Every Pokémon Generation
+
+TV, Pokémon, Anime, Animation, Adventure
+
+Mon, 02 Mar 2026 20:05:12 GMT
+
+https://collider.com/pokemon-best-part-every-generation/
+
+Every Pokémon generation has a particular element that makes it stand out, from the Physical/Special split in Gen IV to the Mega Evolutions in Gen VI.
+---------
+
+# Timothée Chalamet's Shocking 'Marty Supreme' Oscar Upset Is Likely
+
+Features, Timothée Chalamet, Marty Supreme
+
+Mon, 02 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/timothee-chalamet-marty-supreme-oscar-upset/
+
+While Timothee Chalamet's Oscar win for 'Marty Supreme' seemed inevitable when nominations were announced, it might not happen.
+---------
+
+# 'Hannibal' Made a Thriller Icon Even Better, and It Still Deserves a Part 4
+
+TV News, Hannibal, Streaming Recommendations
+
+Mon, 02 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/hannibal-lecter-remake-silence-of-the-lambs/
+
+Can you think of a better TV remake than NBC's 'Hannibal'?
+---------
+
+# 'Spider-Noir' Promo Reveals Sandman, Electro & More Marvel Villains
+
+TV News, Spider-Noir
+
+Mon, 02 Mar 2026 20:58:20 GMT
+
+https://movieweb.com/spider-noir-sandman-electro/
+
+Sandman, Electro, Silvermane, and Black Cat are all present in new promotional material for 'Spider-Noir.'
+---------
+
+# The Best War Movies Based on True Stories
+
+Movie Lists, War
+
+Mon, 02 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/war-movies-based-true-story/
+
+While many movies are based on real-life wars, these war movies are based on the true stories that take place within them.
+---------
+
 # Only 1 Of The 4 Acting Oscar Categories Has A Winner Locked Up
 
 New Movies, Oscars
