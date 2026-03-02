@@ -1,3 +1,399 @@
+# Only 1 Of The 4 Acting Oscar Categories Has A Winner Locked Up
+
+New Movies, Oscars
+
+Mon, 02 Mar 2026 19:50:22 GMT
+
+https://screenrant.com/oscars-2026-acting-category-races-check-in/
+
+With two weeks to go until the 2026 Oscars, most of the acting categories are still up in the air. Only one performance has locked up a win.
+---------
+
+# Demon Slayer Anime Studio Confirms Four New Anime Dropping (Details Here)
+
+Anime, Demon Slayer, Genshin Impact, Touken Ranbu Warriors, HoYoverse
+
+Mon, 02 Mar 2026 19:50:07 GMT
+
+https://screenrant.com/ufotable-demon-slayer-new-anime-2026/
+
+Ufotable, the animation studio behind Demon Slayer, has four confirmed anime projects coming up and every anime fan needs to check them out.
+---------
+
+# Netflix's 7-Part Dystopian TV Show Has A Sci-Fi Problem That's Only Going To Get Worse
+
+TV, Black Mirror
+
+Mon, 02 Mar 2026 19:43:23 GMT
+
+https://screenrant.com/black-mirror-netflix-dystopian-sci-fi-problem-technology/
+
+Netflix's most iconic sci-fi series depended on predicting the next technological innovation, but what happens when reality outstrips the show?
+---------
+
+# Ted Season 3's Fate Seemingly Confirmed By Seth MacFarlane Ahead Of Record-Setting Show's Return
+
+TV, Ted
+
+Mon, 02 Mar 2026 19:33:03 GMT
+
+https://screenrant.com/ted-season-3-fate-ending-seth-macfarlane/
+
+Exclusive: Seth MacFarlane seemingly confirms what the plans are for Ted season 3 as the record-setting show gears up for its season 2 return.
+---------
+
+# One-Punch Man Creator Condemns Top Manga Service After Massive Scandal Rocks the Industry
+
+Anime, One-Punch Man
+
+Mon, 02 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/shogakukan-controversy-kazuaki-kurita-one-punch-man-explained/
+
+One of the biggest scandals in recent years for the manga world is unfolding with some of its biggest creators speaking out.
+---------
+
+# Jason Bourne Franchise: Movies In Order, From 2002 To Latest Installment
+
+Movies, Jason Bourne, Ranking
+
+Mon, 02 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/every-jason-bourne-movie-order/
+
+The Jason Bourne film franchise started in 2002 and the most recent entry was in 2016, giving us over a decade of exciting action.
+---------
+
+# Prime Video's New 8-Part Sherlock Holmes Series Debuts To Perfect Rotten Tomatoes Score
+
+TV, Young Sherlock, Sherlock Holmes
+
+Mon, 02 Mar 2026 19:28:47 GMT
+
+https://screenrant.com/young-sherlock-show-rotten-tomatoes-score-debut-prime-video/
+
+Prime Video's new eight-part Sherlock Holmes series debuts with a perfect Rotten Tomatoes score, even beating Benedict Cumberbatch's iconic version.
+---------
+
+# DC’s New Slasher Horror Series Takes on Scream 7 After Its 33% RT Meltdown
+
+Comics, Green Arrow, Scream
+
+Mon, 02 Mar 2026 19:28:22 GMT
+
+https://screenrant.com/absolute-green-arrow-slasher-better-scream-disaster/
+
+DC’s new slasher horror series, inspired by Scream and Halloween, ushers in a dark, thrilling era for an iconic Golden Age hero.
+---------
+
+# Peacock's 2-Part Crime Series Is One Of Its Best
+
+TV, Poker Face
+
+Mon, 02 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/poker-face-peacock-crime-series-best/
+
+In a daring twist on the classic murder mystery format, Peacock's universally-praised murder mystery show subverts the audience's expectations.
+---------
+
+# Hulu's New R-Rated Sci-Fi Crime Movie Reveals Time Traveling Gangsters In Mike & Nick & Nick & Alice Trailer
+
+Movies, Mike & Nick & Nick & Alice
+
+Mon, 02 Mar 2026 18:59:57 GMT
+
+https://screenrant.com/hulu-mike-nick-nick-alice-trailer/
+
+The trailer for Mike & Nick & Nick & Alice reveals time-traveling gangsters played by Vince Vaughn and more in Hulu's new R-rated sci-fi crime movie.
+---------
+
+# Is Frieren: Beyond Journey's End Manga Canceled? Current Status Explained
+
+Anime, Frieren: Beyond Journey's End
+
+Mon, 02 Mar 2026 19:48:21 GMT
+
+https://www.cbr.com/frieren-beyond-journeys-end-manga-cancel-truth/
+
+Rumors on social media platforms claim that the manga has been canceled following a cover-up scandal by Shogakukan.
+---------
+
+# Shanks' New Devil Fruit Will Change One Piece Forever
+
+Anime, One Piece
+
+Mon, 02 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/one-piece-shanks-new-devil-fruit-gryphon/
+
+Fans may think Shanks is only a Haki master, but he's had a Devil Fruit up his sleeve all along.
+---------
+
+# Reacher Breaks 1 Crucial Lee Child Trope to Succeed
+
+TV, Reacher, Prime Video, Action
+
+Mon, 02 Mar 2026 19:10:12 GMT
+
+https://www.cbr.com/reacher-breaks-novel-important-rule/
+
+Reacher has been one of Prime Video's most popular TV series, but it wouldn't have been possible without this key detail.
+---------
+
+# Pixar's Hoppers Rotten Tomatoes Score Unveiled
+
+Movies, Hoppers, Rotten Tomatoes
+
+Mon, 02 Mar 2026 19:04:31 GMT
+
+https://www.cbr.com/pixar-hoppers-rotten-tomatoes-score/
+
+In 2024, Inside Out 2 broke multiple records, but Pixar's new film has debuted with an even better score.
+---------
+
+# Ridley Scott's New Dave Bautista Thriller Is Officially 1 of the Most-Watched Films in America
+
+Movies, Thriller, Trap House
+
+Mon, 02 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/ridley-scotts-new-dave-bautista-thriller-is-officially-1-of-the-most-watched-films-in-america/
+
+No one could've seen this type of runaway streaming success coming for Ridley Scott's and Dave Bautista's box office flop.
+---------
+
+# 10 Comic Book Masterpieces That Wouldn't Work As A Movie
+
+Comics, Marvel, DC Comics
+
+Mon, 02 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/comic-book-masterpieces-hollywood-cant-adapt/
+
+There are countless live-action adaptations of some truly outstanding comics, but these ten books seem nearly impossible for Hollywood to adapt well.
+---------
+
+# The Marvel and Fall Out Boy Collab Everyone's Talking About: CBR's Backstage Pass
+
+CBR Exclusives, Ready or Not 2: Here I Come, Horror, Monarch: Legacy of Monsters
+
+Mon, 02 Mar 2026 18:59:48 GMT
+
+https://www.cbr.com/the-marvel-and-fall-out-boy-collab-everyones-talking-about-cbrs-backstage-pass/
+
+In this week's The Backstage Pass, we discuss Marvel, Fall Out Boy, Kathryn Newton's new Scream Queen and Kurt Russell's drawing skills
+---------
+
+# Solo Leveling Fans Get First Look at Cha Haein’s Official Season 3 Design
+
+Anime, Solo Leveling
+
+Mon, 02 Mar 2026 18:56:12 GMT
+
+https://www.cbr.com/solo-leveling-season-3-cha-haein-design-concept-art-leak/
+
+An early Solo Leveling production leak has surfaced that shows off the first known concept art of Cha Haein’s design in Season 3 of the anime.
+---------
+
+# Sonic the Hedgehog 4 Gets Major Filming Update After Finally Casting Amy Rose
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Mon, 02 Mar 2026 18:48:08 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-4-major-filming-update/
+
+After casting Amy Rose, Sonic the Hedgehog 4 gets a massive production update from director Jeff Fowler.
+---------
+
+# Brendan Fraser's Inkheart Needs a Sequel
+
+Movies, Fantasy, Inkheart
+
+Mon, 02 Mar 2026 18:31:13 GMT
+
+https://www.cbr.com/brendan-fraser-inkheart-sequel/
+
+Brendan Fraser is an adventure movie icon, which his why it's finally time for Inkheart to get a much deserved sequel.
+---------
+
+# 'Bridgerton' Stars Reveal Which Explosive Showdown Never Made It Into Season 4
+
+Interviews, Bridgerton, Netflix, Shonda Rhimes, Romance
+
+Mon, 02 Mar 2026 19:45:12 GMT
+
+https://collider.com/bridgerton-season-4-lady-penwood-cressida-twist-katie-leung-isabella-wei-interview/
+
+Katie Leung and Isabella Wei spill on Araminta’s Sophie fixation, Posy’s bold Part 2 glow-up, and the Bridgerton showdown fans never got in Season 4.
+---------
+
+# This Divisive 6-Part Sci-Fi Masterpiece Found Its Missing Piece in a ‘Bosch’ Star
+
+TV Features, Lost, ABC, Bosch, Titus Welliver
+
+Mon, 02 Mar 2026 19:30:12 GMT
+
+https://collider.com/lost-6-season-masterpiece-bosch-star-titus-welliver-performance/
+
+Titus Welliver’s role as “The Man in Black” on Lost offered a critical piece of background that fundamentally changed the show’s history.
+---------
+
+# 'Paradise' Star Shailene Woodley Breaks Down Her Devastating "Holy Charge" Scene With Sterling K. Brown
+
+Exclusives, Paradise, Shailene Woodley, Hulu, Sci-Fi
+
+Mon, 02 Mar 2026 19:30:12 GMT
+
+https://collider.com/paradise-season-2-episode-4-shailene-woodley-thomas-doherty-annie-death-scene-link-romance-interview/
+
+Paradise Season 2 stars Shailene Woodley and Thomas Doherty discuss Annie and Link's romance and Episode 4's most devastating scene.
+---------
+
+# 12 Years Later, Rebecca Ferguson’s Forgotten $100 Million ‘Gladiator’ Replacement Reminds Audiences It Still Exists
+
+Movie News, Rebecca Ferguson, Dwayne Johnson, Hercules, Gladiator
+
+Mon, 02 Mar 2026 19:25:57 GMT
+
+https://collider.com/rebecca-ferguson-gladiator-replacement-hercules-streaming-success-march-2026/
+
+12 years later, Rebecca Ferguson's $100 million Gladiator replacement is reminding audiences that it's worth a weekend watch.
+---------
+
+# Barbie Ferreira Trades ‘Euphoria’ for Love and Ambition in New Look at ‘Mile End Kicks’ [Exclusive]
+
+Exclusives, Mile End Kicks, Barbie Ferreira, Devon Bostick, Collider Exclusive Preview
+
+Mon, 02 Mar 2026 19:04:55 GMT
+
+https://collider.com/mile-end-kicks-image-barbie-ferreira-indie-rock-romance-100-rotten-tomatoes/
+
+Discover the inspiring journey of young adults in Mile End Kicks, a film that explores dreams, friendship, and the entertainment industry.
+---------
+
+# 10 Action Movies That Are a Masterclass in Excitement
+
+Movie, Action, Mission: Impossible - Fallout, The Raid: Redemption, Oldboy
+
+Mon, 02 Mar 2026 19:04:13 GMT
+
+https://collider.com/action-movies-masterclass-excitement/
+
+Action masterpieces like Mission: Impossible - Fallout and The Raid: Redemption are masterclasses in how to keep things exciting from start to finish.
+---------
+
+# Kate McKinnon's New Sci-Fi Epic Struggles to Take Off on Hulu
+
+Movie News, Stranger Things, Andrew Stanton, In the Blink of an Eye, Kate McKinnon
+
+Mon, 02 Mar 2026 18:56:22 GMT
+
+https://collider.com/kate-mckinnon-sci-fi-movie-in-the-blink-of-an-eye-disappointing-debut-hulu/
+
+Kate McKinnon's ambitious new sci-fi movie is struggling to take off on streaming despite a stellar cast.
+---------
+
+# Apple TV’s New Must-Watch Thriller Series Finally Sets Release Date After Major Setback
+
+TV News, Apple TV, Traqués, Thriller, Benoît Magimel
+
+Mon, 02 Mar 2026 18:49:22 GMT
+
+https://collider.com/apple-tv-thriller-series-the-hunt-release-date-march-2026-plagiarism-delay/
+
+The latest book-to-screen adaptation from Apple TV has finally set a release date. Here’s when you can watch the first two episodes.
+---------
+
+# Queen's Brian May Admitted This Sleeper Hit Song Made Him Deeply Uncomfortable to Perform Due to the Lyrics
+
+Music Features, Queen, Rock, Music, Brian May, Freddie Mercury
+
+Mon, 02 Mar 2026 18:45:12 GMT
+
+https://collider.com/brian-may-queen-greatest-song-dont-stop-me-now/
+
+Queen's Brian May initially felt this hit song downplayed HIV/AIDS dangers, but later acknowledged its powerful impact and joyous spirit.
+---------
+
+# Stephen Colbert Just Turned ‘The Late Show’ Cancellation Into a Crucial CBS Victory
+
+TV Features, Stephen Colbert, Late Show with Stephen Colbert, The Late Show with Stephen Colbert, CBS
+
+Mon, 02 Mar 2026 18:44:13 GMT
+
+https://collider.com/stephen-colbert-producers-guild-awards/
+
+CBS's decision to cancel Stephen Colbert's 'The Late Show' was shocking, but the comedian proved the network wrong after winning a PGA award.
+---------
+
+# Pixar's 'Hoppers' Rotten Tomatoes Score Revealed
+
+Movie News, Hoppers
+
+Mon, 02 Mar 2026 19:27:09 GMT
+
+https://movieweb.com/hoppers-pixar-rotten-tomatoes-score/
+
+According to critics on Rotten Tomatoes, 'Hoppers' is Pixar's best film in years.
+---------
+
+# 'Marshals': Monica Dutton's Fate Damages a Beloved 'Yellowstone' Arc
+
+Features, Marshals, Yellowstone
+
+Mon, 02 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/monica-dutton-yellowstone-fate-kayce-arc/
+
+The latest 'Yellowstone' spin-off kicks off with a twist, and Kayce Dutton's arc in the original series is at stake.
+---------
+
+# Villains Don't Get Scarier Than in This Taron Egerton's 'Black Bird'
+
+TV News, Streaming Recommendations, Black Bird, Taron Egerton
+
+Mon, 02 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/black-bird-streaming-march-2026/
+
+The six-episode miniseries is based on a very disturbing true story.
+---------
+
+# 'Sonic the Hedgehog 4' First Look Revealed by Director as Production Begins
+
+Movie News, Sonic the Hedgehog, Jeff Fowler
+
+Mon, 02 Mar 2026 18:28:51 GMT
+
+https://movieweb.com/sonic-4-first-look-production-image/
+
+'Sonic the Hedgehog 4' director Jeff Fowler gave fans an exciting update on the film, confirming the official start of production.
+---------
+
+# Prime Video's 'Scarpetta' Is Here to Rival 'Reacher' & 'Jack Ryan'
+
+Features, Scarpetta
+
+Mon, 02 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/scarpetta-better-reacher-jack-ryan/
+
+Nicole Kidman stars in 'Scarpetta', based on a 29-novel crime thriller series by author Patricia Cornwell.
+---------
+
+# 'Pinocchio Unstrung' Trailer With Freddy Krueger Horror Icon Robert Englund
+
+Movie News, Pinocchio: Unstrung, Horror, Robert Englund, Poohniverse: Monsters Assemble (2025)
+
+Mon, 02 Mar 2026 17:43:19 GMT
+
+https://movieweb.com/first-trailer-horror-pinocchio-unstrung/
+
+A dark reimagining of a classic fairy tale is set to ruin childhoods with the release of another twisted character out for blood.
+---------
+
 # Pixar's New Movie Debuts With Studio's Best Rotten Tomatoes Score In 11 Years
 
 Movies, Hoppers
