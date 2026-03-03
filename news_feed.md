@@ -1,3 +1,190 @@
+# Rick and Morty's Best Spin-Off Is Officially Returning With Massive New Finale
+
+Comics, Rick and Morty
+
+Tue, 03 Mar 2026 22:58:56 GMT
+
+https://screenrant.com/rick-morty-series-end-new-fake-finale/
+
+Rick and Morty reveals its series finale was a fake-out and announces a massive new ending that will be the series' TRUE ending after its epic run.
+---------
+
+# 10 Harsh Realities Of Rewatching The Mummy, 27 Years Later
+
+Movies, The Mummy, The Mummy Returns, The Mummy: Tomb of the Dragon Emperor, Brendan Fraser, Rachel Weisz, John Hannah
+
+Tue, 03 Mar 2026 22:50:20 GMT
+
+https://screenrant.com/the-mummy-1999-movie-rewatch-harsh-realities/
+
+A list of 10 harsh realities of rewatching Brendan Fraser's The Mummy from 1999, including the villains motivation and aging special effects.
+---------
+
+# 6 Years Later, Netflix Cancelling This 3-Part Comedy Series Has Aged Terribly
+
+Classic TV, GLOW
+
+Tue, 03 Mar 2026 22:46:19 GMT
+
+https://screenrant.com/netflix-glow-tv-series-canceled-aged-badly/
+
+Netflix regularly cancels promising TV shows, but GLOW was one of the most heartbreaking. Years later, there has not been a show that fills that gap.
+---------
+
+# Michael B. Jordan's New Remake Of Classic 58-Year-Old Crime Thriller Gets Encouraging Production Update
+
+Movies, Michael B. Jordan
+
+Tue, 03 Mar 2026 22:08:41 GMT
+
+https://screenrant.com/michael-b-jordan-thomas-crown-affair-remake-production-update/
+
+Exclusive: The new remake of a classic 58-year-old Hollywood crime thriller, set to star Michael B. Jordan, gets an encouraging production update.
+---------
+
+# Stephen King Gives Glowing Review Of Jason Statham’s “Perfect” New Action Movie
+
+Movies, Stephen King, Shelter
+
+Tue, 03 Mar 2026 22:05:42 GMT
+
+https://screenrant.com/shelter-jason-statham-movie-stephen-king-review/
+
+Jason Statham's new action movie has a 64% critics' score and underperformed at the box office, but Stephen King gives it a glowing review.
+---------
+
+# Seth MacFarlane Confirms The Orville Season 4 is Written
+
+TV, The Orville, Hulu, Sci-Fi
+
+Tue, 03 Mar 2026 22:25:09 GMT
+
+https://www.cbr.com/seth-macfarlane-the-orville-season-4-update-written/
+
+The Orville creator Seth MacFarlane reveals that Season 4 is written, but production is pending.
+---------
+
+# 10 Best New-Gen Anime That Are Objectively Better Than Solo Leveling
+
+Anime, Solo Leveling
+
+Tue, 03 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/best-new-gen-anime-better-than-solo-leveling/
+
+Although Solo Leveling is the fan-favorite anime of the decade, it's nowhere near the best.
+---------
+
+# Horror Versions of Comic Book Characters
+
+Comics, CSBG, Horror, The Line It Is Drawn
+
+Tue, 03 Mar 2026 22:09:36 GMT
+
+https://www.cbr.com/horror-versions-of-comic-book-characters/
+
+In a brand-new Line it is Drawn, see comic book characters drawn as horror versions of themselves
+---------
+
+# Netflix’s Bridgerton Overtakes The Night Agent’s Views Takes No.1 Spot
+
+TV, Bridgerton, The Night Agent, Netflix
+
+Tue, 03 Mar 2026 22:07:08 GMT
+
+https://www.cbr.com/netflix-bridgerton-overtakes-the-night-agent-no-1-success/
+
+Dearest gentle reader, there is only one official ruler of the charts.
+---------
+
+# After 2 Cancelled Spin-Offs, 'FBI's Newest Expansion Is Already a Streaming Hit
+
+TV News, Tom Ellis, Thriller, CIA, Paramount Plus
+
+Tue, 03 Mar 2026 22:50:34 GMT
+
+https://collider.com/tom-ellis-fbi-spin-off-cia-streaming-success-paramount-plus-march-2026/
+
+Tom Ellis’ new high-stakes crime thriller climbs Paramount+ charts fast, fueled by franchise ties, odd-couple tension, and strong U.S. demand.
+---------
+
+# 10 Movies From 1972 That Are Now Considered Classics
+
+Movie, The Godfather, Cabaret, Last Tango in Paris, Aguirre, the Wrath of God
+
+Tue, 03 Mar 2026 22:42:12 GMT
+
+https://collider.com/best-1972-movies-classics/
+
+The Godfather, Cabaret, and Aguirre, The Wrath of God are all among the greatest movies from 1972 that we now consider classics.
+---------
+
+# 15 Years Later, Guy Ritchie's 8-Part Sherlock Holmes Return Debuts to a Perfect Rotten Tomatoes Score
+
+TV News, Young Sherlock, Sherlock Holmes, Guy Ritchie, Prime Video
+
+Tue, 03 Mar 2026 22:37:19 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-holmes-prime-video-series-rotten-tomatoes-score-is-it-good/
+
+Young Sherlock, Guy Ritchie's first crack at the IP since 2015's Game of Shadows, is a certified hit on Rotten Tomatoes.
+---------
+
+# Universal's Dark Universe Set for Reboot 9 Years After Tom Cruise's Failed Franchise Starter
+
+TV News, Kevin Williamson, Dark Universe, Universal Monsters Shared Universe, Universal
+
+Tue, 03 Mar 2026 22:30:30 GMT
+
+https://collider.com/dark-universe-series-reboot-vampire-diaries-replacement-frankenstein-dracula-wolf-man-scream-7-director-kevin-williamson-writing/
+
+Scream's Kevin Williamson reveals he is writing a reboot of the Dark Universe with a new Vampire Diaries-inspired series.
+---------
+
+# 19 Years Later, Nicolas Cage's Long-Delayed 'National Treasure 3' Shows First Signs of Life
+
+Movie News, National Treasure, National Treasure 3, Nicolas Cage, National Treasure: Book of Secrets
+
+Tue, 03 Mar 2026 22:20:24 GMT
+
+https://collider.com/nicolas-cage-national-treasure-3-script-complete-jerry-bruckheimer/
+
+After an agonizing 19 year wait, Jerry Bruckheimer has officially confirmed that National Treasure 3 is "coming along."
+---------
+
+# Netflix's 'One Piece' Season 2 Episode Runtimes Revealed
+
+TV News, One Piece, Netflix
+
+Tue, 03 Mar 2026 22:48:34 GMT
+
+https://movieweb.com/netflix-one-piece-season-2-runtime/
+
+The upcoming second season of Netflix's 'One Piece' is going to be a lengthy one.
+---------
+
+# 'A Knight of Seven Kingdoms' Star Responds to Racial Backlash
+
+TV News, A Knight Of The Seven Kingdoms, HBO Max
+
+Tue, 03 Mar 2026 22:38:27 GMT
+
+https://movieweb.com/a-knight-of-seven-kingdoms-racist-backlash-star-responds/
+
+George R.R. Martin thought Tanzyn Crawford was perfect for the role of Tanselle. Bigots online thought differently.
+---------
+
+# 9 Prime Video Miniseries That Are 10/10 Masterpieces
+
+TV Lists, Prime Video
+
+Tue, 03 Mar 2026 22:30:18 GMT
+
+https://movieweb.com/prime-video-miniseries-perfect/
+
+From 'Swarm' to 'A Very English Scandal,' there are several impressive Amazon Prime Video miniseries that TV fans will enjoy watching.
+---------
+
 # Dolly Review: This Back-To-Basics Slasher Is Sick, Vicious & Dull
 
 Movies, Dolly, Horror
