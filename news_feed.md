@@ -1,3 +1,212 @@
+# Young Sherlock Reviews Preview Prime Video's Fresh Take On A Classic
+
+Streaming TV, Young Sherlock
+
+Tue, 03 Mar 2026 23:46:23 GMT
+
+https://screenrant.com/young-sherlock-reviews-rotten-tomatoes-explained/
+
+Prime Video's Young Sherlock, based on Andrew Lane's novels, receives praise for its fresh take on the youthful Sherlock Holmes, and standing out.
+---------
+
+# The Underrated 36% RT Video Game Adaptation Even Movie Masterpieces Could Learn From
+
+Movies, Resident Evil
+
+Tue, 03 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/resident-evil-sequel-setup-movie-masterpiece-learn-from/
+
+The first movie adaptation of the Resident Evil video game franchise might be widely regarded as a horror flop, but it is worth watching.
+---------
+
+# Star Trek's Next Big Series Will Ditch Popular TV Trend That's Holding Starfleet Back
+
+Comics, Star Trek
+
+Tue, 03 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/star-trek-zero-point-ditch-trend-easter-eggs-tv-show-future/
+
+A new approach.
+---------
+
+# All 7 Jurassic Park Movies In Order, From 1993 To Now
+
+Classic Movies, Jurassic Park
+
+Tue, 03 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/jurassic-park-movies-in-order-all/
+
+The Jurassic Park franchise spans four decades and seven movies, and each installment has raised the stakes with more and more dinosaur mayhem.
+---------
+
+# 21 & 22 Jump Street: The Last Great Comedy Franchise
+
+Movies, 21 Jump Street
+
+Tue, 03 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/21-jump-street-comedy-franchise-get-better/
+
+Jonah Hill and Channing Tatum's 21 Jump Street and 22 Jump Street are two of our best comedy movies and make up the last great comedy franchise.
+---------
+
+# Guy Ritchie's Young Sherlock: A Return to Old School Camera Work
+
+TV, Young Sherlock, Guy Ritchie
+
+Tue, 03 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/young-sherlock-memory-sequences-benedict-cumberbatch-vfx-comparison-showrunner/
+
+Discover how Guy Ritchie's new series, Young Sherlock, brings a fresh approach to the iconic detective, focusing on old school camera techniques.
+---------
+
+# Forgotten PS1 Classic Comes To Modern Consoles After Being Unplayable For Decades
+
+Gaming, PlayStation (Original), PC
+
+Tue, 03 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/playstation-5-revived-ps1-classic-2026/
+
+This long-forgotten PlayStation 1 cult classic just got a current-gen reboot after being unplayable for most gamers for decades now.
+---------
+
+# 10 Biggest Marvel/DC Crossovers Fans Are Still Begging To See
+
+Comics, DC Comics, Marvel
+
+Tue, 03 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/marvel-dc-crossovers-need-happen/
+
+DC and Marvel are on a roll, but they can't quit yet!
+---------
+
+# Land Of The Lustrous Changed Anime Forever & Still Has Even Better Ratings Than Frieren
+
+Anime, Land of the Lustrous, Fantasy, Frieren: Beyond Journey's End
+
+Tue, 03 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/land-of-the-lustrous-best-fantasy-anime-better-than-frieren/
+
+Studio Orange's Land of the Lustrous is one of the best fantasy anime to come out in the past two decades and it's overdue for more love.
+---------
+
+# Disney's $2.7B Star-Studded Avengers Film That Defined a Franchise Is a Streaming Hit Ahead of New Sequel
+
+Movies, Action, Avengers, MCU, Marvel, Avengers: Doomsday, Avengers: Infinity War, Avengers: Endgame
+
+Tue, 03 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/avengers-action-film-streaming-success-disney-plus-march-2026/
+
+No matter how many years pass, this global sensation continues to find its way back toward the top of Disney's streaming charts.
+---------
+
+# Kurt Russell's Dexter Riley Trilogy Remains a Sci-Fi Cult Classic
+
+Movies, Disney, Sci-Fi
+
+Tue, 03 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/kurt-russell-dexter-riley-disney-sci-fi-cult-classic/
+
+Released during Disney's dark era, the Dexter Riley trilogy is one of the best examples of Disney's post-Walt brand, suitable for the whole family.
+---------
+
+# The Addams Family is the Perfect Netflix Weekend Watch
+
+Movies, The Addams Family, oscar isaac
+
+Tue, 03 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/netflix-oscar-isaac-the-addams-family-perfect-weekend-watch/
+
+Before Frankenstein, Oscar Isaac helped reanimate another spooky franchise in a movie trending on Netflix.
+---------
+
+# The Star Trek Episode With 'the Best Ending Ever Filmed' According to Michael Dorn
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Tue, 03 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/star-trek-tng-michael-dorn-the-drumhead-best-ending-ever/
+
+This iconic Star Trek episode stands as a testament to the show's ability to create meaningful, cerebral science fiction with longevity.
+---------
+
+# KPop Demon Hunters Sequel Could Explore Mira, Zoey & Even Derpy’s Origins
+
+Movies, KPop Demon Hunters
+
+Tue, 03 Mar 2026 22:59:44 GMT
+
+https://www.cbr.com/kpop-demon-hunters-2-producer-teases-mira-zoey-origins-and-even-derpy/
+
+KPop Demon Hunters producer Michelle Wong discusses potential storylines for the anticipated sequel, including delving into the origins of characters.
+---------
+
+# The 2013 White House Thriller That Battled ‘Olympus Has Fallen’ Lands on Paramount+
+
+Movie News, Channing Tatum, Action, White House Down, Paramount Plus
+
+Tue, 03 Mar 2026 23:51:53 GMT
+
+https://collider.com/channing-tatum-gerard-butler-olympus-has-fallen-replacement-white-house-down-streaming-paramount-plus-march-2026/
+
+Channing Tatum's political action movie, White House Down, is heading to a new streaming home very soon. Find out more details here.
+---------
+
+# 9 Million 'Yellowstone' Fans Watched Taylor Sheridan's Most Controversial Spin-Off Yet
+
+TV News, Yellowstone, Marshals, Taylor Sheridan, Paramount Plus
+
+Tue, 03 Mar 2026 23:41:48 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-cbs-debut-success-9-million-views/
+
+Even with franchise-low reviews, Taylor Sheridan's Marshals is still wrangling Yellowstone fans with a huge debut.
+---------
+
+# Dylan Sprouse Returns to Theatres in New Look at 2026 Serial Killer Thriller [Exclusive]
+
+Exclusives, Josh Duhamel, Dylan Sprouse, Collider Exclusive Preview, Thriller
+
+Tue, 03 Mar 2026 23:01:13 GMT
+
+https://collider.com/neglected-image-first-look-dylan-sprouse-psychological-serial-killer-thriller/
+
+Get an exclusive look at Neglected, an action-packed thriller featuring Josh Duhamel and Dylan Sprouse, directed by David Lipper.
+---------
+
+# 3 Sci-Fi Movies Roger Ebert Hated and Was Wrong About (Plus 1 He Got Right)
+
+Movie Lists, Roger Ebert, The Thing, Hollow Man
+
+Tue, 03 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/roger-ebert-hated-sci-fi-reviews-wrong/
+
+The acclaimed critic was a bit off the mark in his assessment of 'The Thing,' 'Hollow Man,' and 'Stargate.'
+---------
+
+# Every Monsterverse Character Played by Multiple Actors
+
+Features, Monsterverse
+
+Tue, 03 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/monsterverse-characters-played-multiple-actors/
+
+The Monsterverse features plenty of characters who are portrayed by different actors, including Takehiro Hira, Kurt Russell, and John C. Reilly.
+---------
+
 # Rick and Morty's Best Spin-Off Is Officially Returning With Massive New Finale
 
 Comics, Rick and Morty
