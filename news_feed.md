@@ -1,3 +1,421 @@
+# The Greatest Dark Fantasy Franchise of All Time Returns in 2026 With Brand-New Entry
+
+Comics, Hellboy
+
+Tue, 03 Mar 2026 19:51:17 GMT
+
+https://screenrant.com/hellboy-greatest-dark-fantasy-franchise-returns/
+
+The NeverEnding Story, Hellboy, and Legend are some of the most legendary films in the dark fantasy genre. Now, one of these franchises is returning.
+---------
+
+# New Dracula Movie Is Coming For American Home Release Very Soon After $41M Box Office
+
+Movies, Dracula, Prime Video
+
+Tue, 03 Mar 2026 19:49:58 GMT
+
+https://screenrant.com/dracula-2026-movie-digital-american-streaming-release-date/
+
+The latest cinematic take on the legendary Dracula has officially landed its streaming release date for American viewers after its theatrical run.
+---------
+
+# ABC's Scrubs Reboot Is A Rare Example Of A Revival Done Right
+
+Network TV, Scrubs
+
+Tue, 03 Mar 2026 19:45:20 GMT
+
+https://screenrant.com/scrubs-revival-done-right-abc-comedy-series/
+
+ABC successfully revived its beloved medical comedy 16 years later, even after its widely hated final season, by finding the perfect new start.
+---------
+
+# Every D&D Book Confirmed For 2026
+
+Gaming, Dungeons and Dragons, tabletop games
+
+Tue, 03 Mar 2026 19:30:31 GMT
+
+https://screenrant.com/dnd-books-release-schedule-2026/
+
+2026 is bound to be an expansive year for D&amp;D, with new books expanding the updated 5e content further by providing excellent tools for any player.
+---------
+
+# Apple TV's Slow Horses Replacement Spy Thriller Series Shares One Element With One Of The Genre's Best
+
+TV, Slow Horses, Safe Houses, Apple TV
+
+Tue, 03 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/apple-tv-safe-houses-spy-thriller-series-homeland-connection/
+
+Apple TV already has the perfect replacement for Slow Horses, and this new spy thriller series borrows something from one of the genre's best shows.
+---------
+
+# Underrated Baseball Movie 'Hardball' Features Young Michael B. Jordan
+
+Movies, Michael B. Jordan, Hardball, Recommendation
+
+Tue, 03 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/michael-b-jordan-hardball-baseball-movie-recommendation/
+
+Michael B. Jordan stars alongside Keanu Reeves in a hidden gem sports film that is worth checking out ahead of baseball season.
+---------
+
+# Dark: Netflix's Time Travel Sci-Fi Masterpiece Is Still Great
+
+Classic TV, Dark
+
+Tue, 03 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/dark-sci-fi-supernatural-masterpiece-netflix-show/
+
+Time travel is one of the more difficult subgenres of sci-fi storytelling, but Netflix's Dark, a 3-season German-language series, nails the concept.
+---------
+
+# HBO's 2-Part Thriller Series Completely Rewrites The Rules Of Book Adaptations
+
+Streaming TV, Sharp Objects
+
+Tue, 03 Mar 2026 19:15:18 GMT
+
+https://screenrant.com/big-little-lies-changes-book-adaptation-rules/
+
+HBO's wildly popular 2-season thriller show totally changes everything you thought you knew about book-to-TV adaptations — and it's not done yet.
+---------
+
+# Hulu's 6-Part Dystopian Series Is One Of Its Best
+
+TV, The Handmaid's Tale
+
+Tue, 03 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/hulu-the-handmaids-tale-best-dystopian-series/
+
+One bold move in Hulu's six-part dystopian sci-fi series changes everything, leaving viewers shocked by a turning point that no one saw coming.
+---------
+
+# Resident Evil Requiem Players Outraged After Game's Latest Broken Record
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Tue, 03 Mar 2026 18:52:39 GMT
+
+https://screenrant.com/resident-evil-requiem-metacritic-score-breaks-record-reactions/
+
+Resident Evil Requiem just smashed another gaming record, but players aren't convinced that it deserves the acclaim or that it will stay for long.
+---------
+
+# The Legend of Vox Machina Season 4 Premiere Date Set by Prime Video
+
+TV, The Legend of Vox Machina, Fantasy, Prime Video
+
+Tue, 03 Mar 2026 19:34:42 GMT
+
+https://www.cbr.com/legend-of-vox-machina-season-4-release-date-prime-vidoe-critical-role/
+
+After a two-year wait, The Legend of Vox Machina Season 4 premieres on Prime Video on June 3.
+---------
+
+# Netflix Renews Little House on the Prairie Reboot for Season 2
+
+TV, Little House on the Prairie, Netflix
+
+Tue, 03 Mar 2026 19:01:14 GMT
+
+https://www.cbr.com/netflix-little-house-on-the-prairie-reboot-fate/
+
+The reboot was announced in January 2025.
+---------
+
+# 10 Marvel Friendships That Matter More Than Romantic Arcs
+
+Superheroes, Marvel
+
+Tue, 03 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/marvel-friendships-that-matter-more-than-romances/
+
+These friendships are nothing short of super.
+---------
+
+# Sam Heughan Reflects on Being Satisfied With Outlander's Final Season
+
+TV, Outlander
+
+Tue, 03 Mar 2026 18:33:47 GMT
+
+https://www.cbr.com/sam-heughan-outlander-final-season-not-satisfied/
+
+The long-running time travel romance series is coming to an end, but its lead star isn't satisfied with the ending because of a very valid reason.
+---------
+
+# Yellowstone Producer Confirms New Spinoff Keeps Taylor Sheridan’s Signature Western Tone: 'A Lot of Crazy Stuff'
+
+TV, The Dutton Ranch, Yellowstone
+
+Tue, 03 Mar 2026 18:21:52 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-signature-western-tone-crazy-stuff/
+
+Producer David Glasser explains how Beth and Rip's spinoff will be closer in tone to Yellowstone than the Kayce Dutton-centric Marshals on CBS.
+---------
+
+# Sonic the Hedgehog 4 Casts Ben Kingsley in Key Role
+
+Movies, Sonic the Hedgehog 4, ben kingsley, Sonic the Hedgehog
+
+Tue, 03 Mar 2026 18:20:41 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-4-ben-kingsley/
+
+Sonic the Hedgehog 4 may have found Jim Carrey's replacement.
+---------
+
+# This Classic PS2 JRPG Is 10/10, No Notes
+
+Games, JRPG, retro games, PlayStation 2
+
+Tue, 03 Mar 2026 18:15:11 GMT
+
+https://www.cbr.com/this-classic-ps2-jrpg-is-1010-no-notes-persona-4/
+
+One of the greatest JRPGs on the PS2 is still a masterpiece today.
+---------
+
+# It's an Official New Era For Cyberpunk 2077
+
+Games, Cyberpunk 2077, Sci-Fi
+
+Tue, 03 Mar 2026 18:06:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-officially-returns-new-sci-fi-release-march-2026/
+
+The newest Cyberpunk 2077 release demands the attention of gamers and Keanu Reeves fans everywhere.
+---------
+
+# Apple TV's Hit Sci-Fi Series Becomes a Streaming Hit on a Surprise Platform
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 03 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-sci-fi-prime-video-success-march-2026/
+
+A popular sci-fi series on Apple TV becomes a streaming hit on another platform, but there's a catch.
+---------
+
+# HBO Quietly Made a Secret Tombstone Sequel With Deadwood
+
+TV, Deadwood, Western
+
+Tue, 03 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/timothy-olyphant-deadwood-tombstone-sequel/
+
+Timothy Olyphant is synonymous with the Western genre, and one of his projects feels like a secret sequel to Tombstone.
+---------
+
+# 20 Movies You Should Watch Before the 2026 Oscars
+
+Movie, Michael B. Jordan, Oscars, Sentimental Value, One Battle After Another
+
+Tue, 03 Mar 2026 19:43:12 GMT
+
+https://collider.com/oscars-2026-movies-you-must-watch/
+
+With the 2026 Academy Awards coming up this March 15th, these are the must-watch films that you should see to be caught up with the nominees.
+---------
+
+# 2 Taylor Sheridan Stars Take ’Scream 7’ Past First Major Box Office Milestone in 4 Days
+
+Movie News, Taylor Sheridan, Isabel May, Michelle Randolph, Scream 7
+
+Tue, 03 Mar 2026 19:14:53 GMT
+
+https://collider.com/taylor-sheridan-stars-isabel-may-michelle-randolph-scream-7-box-office-milestone-100-million/
+
+Scream 7 has passed its first major box office milestone in just four days; the movie features Taylor Sheridan stars Isabel May and Michelle Randolph.
+---------
+
+# 10 Best Adaptations of Great Classic Books, Ranked
+
+Movie, The Wizard of Oz, Ran, Apocalypse Now, Pride & Prejudice
+
+Tue, 03 Mar 2026 19:11:12 GMT
+
+https://collider.com/best-adaptations-great-books-classics-ranked/
+
+From The Grapes of Wrath to The Wizard of Oz, these movies are brilliant adaptations of classic novels, expertly translating them to the big screen.
+---------
+
+# NEON's 1st Video Game Adaptation Looks Absolutely Terrifying [Exclusive]
+
+Exclusives, Exit 8, Neon, Video Game, Collider Exclusive Preview
+
+Tue, 03 Mar 2026 19:00:13 GMT
+
+https://collider.com/exit-8-image-neon-video-game-adaptation-american-release-date-2026/
+
+NEON's first video game adaptation, Exit 8, receives a terror-filled new image. See it here!
+---------
+
+# Before Becoming Rock Music's Wildest '60s Legend, He Was a UCLA Film Student With a Genius IQ
+
+Music Features, Rock, Music, Jim Morrison: The Wild Child, The Doors: Live in Europe 1968
+
+Tue, 03 Mar 2026 18:36:51 GMT
+
+https://collider.com/jim-morrison-the-doors-rock-legend-genius-iq/
+
+Before fronting The Doors, Jim Morrison studied film at UCLA and reportedly tested at genius level before becoming one of rock’s wildest icons.
+---------
+
+# 'Scream 7' Ultimately Fails Because It Disrespects the 30-Year-Old Horror Franchise
+
+Movie Features, Scream 7, Neve Campbell, Horror, Scream
+
+Tue, 03 Mar 2026 18:31:12 GMT
+
+https://collider.com/scream-7-fail-franchise-disrespect/
+
+Scream 7 doesn’t work because it mostly ignores the last two films and is too nostalgic for when the series was centered on Neve Campbell.
+---------
+
+# 3 Years Later, One of the Best Horror Games Gets Chilling Poster for New Movie Adaptation [Exclusive]
+
+Exclusives, The Mortuary Assistant, Willa Holland, Horror, Shudder
+
+Tue, 03 Mar 2026 18:31:12 GMT
+
+https://collider.com/the-mortuary-assistant-video-game-movie-adaptation-poster-shudder/
+
+A new poster for The Mortuary Assistant teases the corpses waiting to be examined and embalmed in the demonic horror video game adaptation.
+---------
+
+# 194-Minute Epic Disaster Movie Set To Sail Away From Netflix Next Month
+
+Movie News, Titanic, Netflix, Romance, James Cameron
+
+Tue, 03 Mar 2026 18:31:08 GMT
+
+https://collider.com/james-cameron-titanic-epic-disaster-movie-leaving-netflix-march-2026/
+
+Titanic, the iconic disaster romance film directed by James Cameron and starring Leonardo DiCaprio, is leaving Netflix soon. Get all the details.
+---------
+
+# Netflix's Most Anticipated Historical Reboot Has Already Been Renewed for Season 2
+
+TV News, Little House on the Prairie, Netflix, Laura Ingalls Wilder: Prairie to Page
+
+Tue, 03 Mar 2026 18:19:55 GMT
+
+https://collider.com/netflix-little-house-on-the-prairie-reboot-season-2-renewed-first-image/
+
+Netflix has already decided the future of its Little House on the Prairie reboot while also sharing the show's first image.
+---------
+
+# Say Goodbye to Chris Pratt's 91% Rotten Tomatoes War Thriller
+
+Movie News, Zero Dark Thirty, War, Thriller, Action
+
+Tue, 03 Mar 2026 18:14:12 GMT
+
+https://collider.com/chris-pratt-war-thriller-zero-dark-thirty-leaving-streaming-netflix-april-2026/
+
+One of the most unflinching war thrillers of the century, starring Chris Pratt, is leaving Netflix soon, marking the end of its current streaming run.
+---------
+
+# 'The Odyssey' Star Praises Anne Hathaway & Christopher Nolan's Work Ethic
+
+Movie News, The Odyssey, Anne Hathaway
+
+Tue, 03 Mar 2026 19:52:02 GMT
+
+https://movieweb.com/anne-hathaway-the-odyssey-method/
+
+Logan Marshall-Green detailed what it was like working on 'The Odyssey' and spoke highly of Anne Hathaway's commitment to her role.
+---------
+
+# HBO Max's R-Rated Thriller 'Industry' Is a Global Streaming Success
+
+TV News, Industry, HBO Max, Hot on Streaming
+
+Tue, 03 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/industry-streaming-hbo-max-march-2026/
+
+HBO Max's controversial R-rated British finance thriller 'Industry' is a worldwide phenomenon on streaming.
+---------
+
+# 'Mortal Kombat 2' Cast & Character Guide for Video Game Sequel
+
+Features, Mortal Kombat II, Mortal Kombat, video games, Action
+
+Tue, 03 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/mortal-kombat-2-cast-characters/
+
+'Mortal Kombat 2' is back for another round, with the video game sequel bringing numerous new and returning characters from the games to life.
+---------
+
+# 'The Mummy 4' Directors Confirm Whether 'The Mummy 3' Is Canon
+
+Movie News, The Mummy
+
+Tue, 03 Mar 2026 18:55:21 GMT
+
+https://movieweb.com/the-mummy-4-directors-canon-originals/
+
+'The Mummy 4' directors Matt Bettinelli-Olpin and Tyler Gillett addressed where the last 'Mummy' movie stands in terms of being canon to their movie.
+---------
+
+# 'God of War' Creator Says First Look at Amazon Series Is 'Terrible'
+
+TV News, God of War
+
+Tue, 03 Mar 2026 18:40:30 GMT
+
+https://movieweb.com/god-of-war-creator-amazon-first-look/
+
+Video game creator isn't holding back on the upcoming Prime Video adaptation of the iconic 'God of War' franchise.
+---------
+
+# 'World War II With Tom Hanks' Release Date Revealed
+
+TV News, Tom Hanks
+
+Tue, 03 Mar 2026 18:19:07 GMT
+
+https://movieweb.com/world-war-ii-tom-hanks-series-premiere/
+
+The History Channel has unveiled the trailer and release date for their upcoming documentary series 'World War II with Tom Hanks.'
+---------
+
+# 'Scream 7' Removed Post-Credits Scene Featuring Original Villain Return
+
+Features, Scream 7, Scream, Horror
+
+Tue, 03 Mar 2026 18:02:48 GMT
+
+https://movieweb.com/scream-7-removed-post-credits-scene/
+
+It turns out that 'Scream 7' had one more killer reveal up its sleeve, featuring the return of a franchise icon.
+---------
+
+# Spartacus: House of Ashur’ Season 2: Everything We Know
+
+Features, Spartacus
+
+Tue, 03 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/spartacus-house-of-ashur-season-2-everything-we-know/
+
+'Spartacus: House of Ashur' was a blast, and here are all the details about Season 2 of the Starz series starring Nick E. Tarabay.
+---------
+
 # Prime Video’s Next Sci-Fi Game Adaptation Moving Forward With Debuting Actor & Nashville Star
 
 TV, Life Is Strange, Life is Strange
