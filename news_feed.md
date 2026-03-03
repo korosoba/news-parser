@@ -1,3 +1,388 @@
+# American Idol Season 24: Who Made It To The Top 20? (SPOILERS)
+
+Reality TV, American Idol
+
+Tue, 03 Mar 2026 03:00:30 GMT
+
+https://screenrant.com/american-idol-season-24-top-20-spoilers/
+
+The American Idol S24 contestants are headed to Hawaii for the all-new 'Ohana round, and we've got the scoop on who advance from there to the Top 20.
+---------
+
+# The Scrubs Revival Officially Erased Season 9 From Existence
+
+Streaming TV, Scrubs
+
+Tue, 03 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/scrubs-revival-erase-season-9-bring-back-sacred-heart/
+
+Scrubs made a pretty big mistake with its most controversial season, but its recent revival has found the best way to set it right after 16 years.
+---------
+
+# Star Trek: Starfleet Academy Pays Off 35-Year-Old Klingon Shakespeare Joke
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 03 Mar 2026 02:12:01 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-klingon-shakespeare-joke/
+
+The Klingons have long claimed Shakespeare is best in their language. Star Trek: Starfleet Academy finally shows the Bard in the "original Klingon."
+---------
+
+# 10 Retro Anime That Can Be Streamed Completely Free
+
+Anime
+
+Tue, 03 Mar 2026 02:00:19 GMT
+
+https://screenrant.com/retro-anime-streamed-free/
+
+Discover 10 retro anime series from the 80s and 90s that you can stream for free online, including Ghost in the Shell, Angel Cop, and more.
+---------
+
+# The Evil Dead's Bruce Campbell Reveals Cancer Diagnosis
+
+Movies, Bruce Campbell
+
+Tue, 03 Mar 2026 01:34:35 GMT
+
+https://screenrant.com/bruce-campbell-reveals-cancer-diagnosis/
+
+The Evil Dead star, Bruce Campbell, revealed on social media that he was diagnosed with a "treatable" but not "curable" cancer.
+---------
+
+# HBO's New Formula Will Make A Knight Of The Seven Kingdoms The Most Bingeable TV Show Of All Time
+
+Streaming TV, A Knight of the Seven Kingdoms, Game Of Thrones
+
+Tue, 03 Mar 2026 01:15:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-more-seasons-anthology-bingeable-fantasy/
+
+Fantasy TV shows are pretty heavy, but HBO discovered the careful formula that will make its newest series even more bingeable as it goes on.
+---------
+
+# 10 TV Shows That Make You Root For Terrible Characters
+
+Classic TV
+
+Tue, 03 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/tv-shows-sympathize-terrible-people-characters/
+
+One of the best tricks a TV series can pull is making you empathize with terrible people. Shows like Barry and Succession have done it masterfully.
+---------
+
+# 86 Years Later, Batman & Joker’s New Showdown Will Be Like Nothing We’ve Seen Before
+
+DC Comics, Batman, Joker
+
+Tue, 03 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/batman-joker-new-showdown-arkham-tower-patient-x-preview/
+
+The Dark Knight is about to have a new encounter with Joker in DC's new Batman series, though their showdown will be unlike anything before.
+---------
+
+# Winona Ryder Cast In Wednesday Season 3: Is She Playing An Unexpected Character?
+
+Streaming TV, Wednesday
+
+Tue, 03 Mar 2026 00:45:19 GMT
+
+https://screenrant.com/wednesday-season-3-winona-ryder-not-playing-hero/
+
+The latest addition to Wednesday season 3 is Winona Ryder, and while she's perfect for it, she probably won't play the character everyone expects.
+---------
+
+# Yellowstone's Biggest Challenger Officially Drops in 2026, And it's the Classic Western Revival Fans Need
+
+DC Comics, Yellowstone, Jonah Hex
+
+Tue, 03 Mar 2026 00:31:19 GMT
+
+https://screenrant.com/jonah-hex-western-revival-yellowstone-challenger/
+
+Yellowstone’s biggest challenger rides in 2026 as a classic Western hero returns, blending gritty frontier drama with superhero action.
+---------
+
+# Hell’s Paradise Dethrones JJK & Frieren to Become 2026’s Top-Rated Shonen for 3 Weeks Straight
+
+Anime, Hell's Paradise: Jigokuraku, Frieren: Beyond Journey's End, Jujutsu Kaisen
+
+Tue, 03 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/hells-paradise-beats-jujutsu-kaisen-frieren-imdb-ratings-3-weeks/
+
+New shonen royalty has been crowned: Hell’s Paradise has consistently beaten both Jujutsu Kaisen and Frieren's IMDb ratings for nearly a full month.
+---------
+
+# The Razor Crest's Return is the End of an Era for The Mandalorian
+
+Movies, Sci-Fi, The Mandalorian and Grogu
+
+Tue, 03 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/jon-favreau-end-of-the-mandalorian-lone-wolf-era/
+
+Jon Favreau is bringing The Mandalorian to the big screen, and one major change proves it's the end of an era for Din Djarin.
+---------
+
+# Netflix's Monster With 416 Million Hours Watched Is a Perfect 1-Weekend Binge
+
+TV, Monster: The Ed Gein Story, Crime, Netflix
+
+Tue, 03 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/netflix-crime-show-monster-ed-gein-perfect-1-weekend-binge/
+
+Netflix has turned structured crime dramas into cultural events, and the viewership success of this recent hit is hard to ignore.
+---------
+
+# Steam Users Can Claim Free Open-World Game Until March 5
+
+Games, Steam
+
+Tue, 03 Mar 2026 04:30:12 GMT
+
+https://www.cbr.com/steam-free-game-march-2026-world-crafter-td/
+
+An open-world survival crafting game is free on Steam for a limited time.
+---------
+
+# The Perfect Open-World Game That Everyone Forgot About
+
+Games, open world
+
+Tue, 03 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/perfect-open-world-game-forgotten-middle-earth-shadow-of-war/
+
+One of the best open-world games ever made has been overlooked by virtually everyone.
+---------
+
+# Syfy's Bitten Is a Mature, Underrated Vampire Diaries Replacement
+
+TV, Bitten, Fantasy, The Vampire Diaries
+
+Tue, 03 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/syfy-bitten-vampire-diaries-replacement-show/
+
+This Syfy vampire show delivered a mature, gory, and horror-focused fantasy story that has almost disappeared in today's TV landscape.
+---------
+
+# Mortal Kombat II Is Removing Johnny Cage's Romance With Sonya Blade
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Tue, 03 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/mortal-kombat-ii-johnny-cage-sonya-blade-no-romance/
+
+The Mortal Kombat II film doesn't show signs of a romance between Johnny Cage and Sonya Blade, and that may work for the best.
+---------
+
+# Demon Slayer's Next Chapter Just Became Official
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Kadokawa
+
+Tue, 03 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/demon-slayer-new-era-animec-launch/
+
+A newly formed company is set to revolutionize the remaining instalments of Infinity Castle's movie trilogy.
+---------
+
+# The Mentalist Surges on Netflix Worldwide 11 Years After Finale
+
+TV, The Mentalist
+
+Tue, 03 Mar 2026 03:52:41 GMT
+
+https://www.cbr.com/the-mentalist-crime-thriller-success-netflix-march-2026/
+
+Less than 48 hours after hitting Netflix, The Mentalist, starring Simon Baker, has climbed to the top 10 streaming series worldwide.
+---------
+
+# 26 Years Later, Snatch Still Moves Faster Than Most Modern Thrillers
+
+Movies, Snatch, Crime, Thriller, guy ritchie
+
+Tue, 03 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/guy-ritchie-snatch-crime-classic-modern-thriller/
+
+Most modern thrillers could take some inspiration from Guy Ritchie's most quotable and iconic classic crime movie.
+---------
+
+# Prime Video’s Bold Spider-Man Swing Is Exactly What Marvel Has Avoided for Years
+
+TV Features, Spider-Noir, Prime Video, Spider-Man, Nicolas Cage
+
+Tue, 03 Mar 2026 04:18:12 GMT
+
+https://collider.com/spider-noir-spider-man-marvel-rating-explained/
+
+Spider-Noir breaks Marvel tradition by being the first Spider-Man series with a TV-14 rating.
+---------
+
+# 'The Rookie's Newest Partnership Takes the Spotlight Over a Flashy 'Game Changers' Cameo | Review
+
+TV Reviews, The Rookie, ABC, Mekia Cox, Deric Augustine
+
+Tue, 03 Mar 2026 04:00:12 GMT
+
+https://collider.com/the-rookie-season-8-episode-9-review-recap-nyla-miles-partnership/
+
+Nyla Harper and Miles Penn form a new partnership while investigating a bank robbery case; meanwhile, a Game Changers cameo adds unexpected humor.
+---------
+
+# 3 Best Shows To Watch on Prime Video This Week (March 2-6)
+
+TV, Prime Video, My Lady Jane, Reacher, Chloe
+
+Tue, 03 Mar 2026 04:00:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-week-march-2/
+
+My Lady Jane, Reacher, and Chloe make up our list of the best Prime Video shows to watch the week of March 2, 2026.
+---------
+
+# Hollywood Needs to Adapt This 63-Year-Old Sci-Fi Classic Novel After Leonardo Dicaprio Failed To
+
+TV Features, Kurt Vonnegut, Leonardo DiCaprio, Noah Hawley, Sci-Fi
+
+Tue, 03 Mar 2026 03:32:12 GMT
+
+https://collider.com/kurt-vonnegut-sci-fi-cats-cradle-adaptation-explained/
+
+Revered author Kurt Vonnegut has many books that would work perfectly on screen, but Cat’s Cradle isn’t one of them.
+---------
+
+# Netflix Is Quietly Adding All 205 Episodes of This Controversial Sitcom
+
+TV Features, All In The Family, Netflix, Streaming, Sitcom
+
+Tue, 03 Mar 2026 03:19:13 GMT
+
+https://collider.com/netflix-all-in-the-family-streaming-explained/
+
+All in the Family is coming to Netflix. Here’s why Norman Lear’s groundbreaking sitcom still feels essential decades later.
+---------
+
+# The ‘Community’ Movie Has One Thing Most Revivals Don’t, and Its Latest Update Hints It’s Still There
+
+TV Features, Community, Peacock, Donald Glover
+
+Tue, 03 Mar 2026 03:10:13 GMT
+
+https://collider.com/comunity-movie-revival-update-cast-reuniting-peacock/
+
+The Community movie's latest update should be a huge encouragement for fans of the show.
+---------
+
+# Netflix’s Greatest Sci-Fi of the 21st Century Was a Network Cult Hit Before Streaming
+
+TV Features, Black Mirror, Netflix, Charlie Brooker, Channel 4
+
+Tue, 03 Mar 2026 02:09:12 GMT
+
+https://collider.com/black-mirror-netflix-channel-4-cult-hit-before-streaming/
+
+Before Black Mirror dominated Netflix queues, it built a cult following on Channel 4.
+---------
+
+# 20 Years Later, This 9.8-Rated IMDb Episode Confirms This Sitcom is One of The Greatest of All Time
+
+TV Features, Zach Braff, John C. McGinley, Scrubs, NBC
+
+Tue, 03 Mar 2026 02:08:12 GMT
+
+https://collider.com/scrubs-highest-rated-episode-best-sitcoms-my-lunch/
+
+Scrubs' emotional episode "My Lunch" is the highest rated on IMDb and the most memorable for how it portrays John C. McGinley's Dr. Perry Cox.
+---------
+
+# ‘Law & Order’ Has Nothing on This Near-Perfect Crime Series That Completely Changed TV 33 Years Ago
+
+TV Features, Homicide: Life on the Street, Andre Braugher, Procedural, Crime
+
+Tue, 03 Mar 2026 00:09:12 GMT
+
+https://collider.com/homicide-life-on-the-street-crime-drama-series-changed-television/
+
+Law & Order has become an iconic crime franchise, but Homicide: Life on the Street was unlike anything the genre had seen before.
+---------
+
+# 10 Classic Rock Albums To Listen to If You Love Fleetwood Mac's Greatest Album of All Time
+
+Music Features, Fleetwood Mac, Rock, Music, 1970s
+
+Mon, 02 Mar 2026 23:59:12 GMT
+
+https://collider.com/classic-rock-albums-listen-if-you-love-fleetwood-mac-rumours/
+
+Only a few albums come close to Fleetwood Mac's magnum opus, including classics like Kate Bush's Hounds of Love and Steve McQueen by Prefab Sprout.
+---------
+
+# 9 Intense Netflix Action Thriller Series Better Than ‘Reacher’
+
+TV Lists, Reacher
+
+Tue, 03 Mar 2026 03:00:29 GMT
+
+https://movieweb.com/action-thriller-shows-better-reacher/
+
+'Reacher' fans will want to watch these great Netflix action thriller TV shows that feature fast-paced scenes and interesting characters.
+---------
+
+# 'Big Little Lies' Fans Don't Want to Miss Peacock' 'All Her Fault'
+
+Features, Big Little Lies, All Her Fault, Peacock, Comparison Recommendation, Streaming Recommendations
+
+Tue, 03 Mar 2026 02:00:17 GMT
+
+https://movieweb.com/all-hear-fault-streaming-peacock-march-2026/
+
+The eight-part series feels like a worthy successor to the HBO hit.
+---------
+
+# 10 Martial Arts TV Shows With Movie-Quality Action
+
+TV Lists, Action
+
+Tue, 03 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/martial-arts-tv-shows-high-quality/
+
+From 'Last Samurai Standing' to 'Cobra Kai', these TV shows combine various martial arts techniques to create movie-level entertainment
+---------
+
+# Mike Flanagan's 'The Exorcist' Adds Former Supergirl Sasha Calle To Cast
+
+Movie News, The Exorcist, Sasha Calle, Netflix, The Flash
+
+Tue, 03 Mar 2026 00:07:03 GMT
+
+https://movieweb.com/netflix-dc-mike-flanagans-the-exorcist/
+
+Former Supergirl star Sasha Calle will team up with director Mike Flanagan for his work on 'The Exorcist,' coming to theaters in 2027.
+---------
+
+# 'Scrubs' Revival's Season 9 Retcon Keeps These 2 JD Storylines
+
+Features, Scrubs
+
+Tue, 03 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/scrubs-revival-saved-two-jd-season-9-storylines/
+
+'Scrubs: Med School' has been almost completely expunged from the sitcom's timeline, except for two Season 9 JD storylines.
+---------
+
 # The Boys' Spinoff Gen V Is A Perfect Example Of A Successful Spinoff Series
 
 Streaming TV, Gen V, The Boys
