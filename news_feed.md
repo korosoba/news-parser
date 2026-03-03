@@ -1,3 +1,432 @@
+# Prime Video’s Next Sci-Fi Game Adaptation Moving Forward With Debuting Actor & Nashville Star
+
+TV, Life Is Strange, Life is Strange
+
+Tue, 03 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/life-is-strange-prime-video-cast-maisy-stella-tatum-grace-hopkins/
+
+After the success of Fallout, Prime Video is developing a TV show adaptation of yet another sci-fi series, and the two leads have just been announced.
+---------
+
+# Scary Movie 6 Risks Repeating The Franchise’s Biggest Mistake (But It Makes Sense)
+
+Movies, Scary Movie, Scary Movie 6
+
+Tue, 03 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/scary-movie-6-risks-repeating-the-franchises-biggest-mistake-but-it-makes-sense/
+
+The first Scary Movie 6 trailer teases a return to the franchise's anarchic roots, but will the movie's ambitions derail its long-awaited comeback?
+---------
+
+# How Robert De Niro & Brad Pitt's Underrated Legal Drama Faithfully Captured '60s Hell's Kitchen Detailed By Director
+
+Movies, Sleepers
+
+Tue, 03 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/sleepers-movie-60s-hells-kitchen-faithful-video-exclusive/
+
+ScreenRant is proud to present an exclusive clip from Sleepers' 30th anniversary release showing how the legal drama captured '60s Hell's Kitchen.
+---------
+
+# Dragon Ball Finally Teases The Announcement Fans Have Waited 2 Years For
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Tue, 03 Mar 2026 17:26:16 GMT
+
+https://screenrant.com/dragon-ball-super-teaser-manga-hiatus-return/
+
+The official Dragon Ball website hints at future 'Super' developments, sparking speculation about the return of the Dragon Ball Super manga.
+---------
+
+# HBO Max and Paramount+ Merger: What It Means For Streaming Services
+
+Streaming TV, Paramount Plus, HBO Max
+
+Tue, 03 Mar 2026 17:14:18 GMT
+
+https://screenrant.com/hbo-max-future-fate-after-paramount-deal-explained/
+
+The merger of HBO Max and Paramount+ will impact both streaming services, including possible programming changes when the acquisition is confirmed.
+---------
+
+# DC Officially Releases Parasite Design for Superman's New Appearance
+
+Comics, Superman
+
+Tue, 03 Mar 2026 17:05:30 GMT
+
+https://screenrant.com/superman-new-parasite-design-absolute-dc/
+
+DC unveils classic Man of Steel villain's terrifying new look for Superman’s next chapter, and it’s unlike anything fans have seen before.
+---------
+
+# Guy Ritchie's Young Sherlock Debuts Amidst Rivalry with Steven Knight's Peaky Blinders Movie
+
+Movies, Young Sherlock, Peaky Blinders: The Immortal Man
+
+Tue, 03 Mar 2026 17:05:18 GMT
+
+https://screenrant.com/guy-ritchie-steven-knight-young-sherlock-immortal-man-gangster-britain/
+
+Fans of British gangster flicks are in for one heck of a week, as the two biggest names in the business face off directly for the first time.
+---------
+
+# Missi Pyle Has Questions About Amy Landecker's Disastrous Date In For Worse Clip
+
+Exclusive, For Worse, Bradley Whitford, Missi Pyle, Amy Landecker
+
+Tue, 03 Mar 2026 17:01:18 GMT
+
+https://screenrant.com/video/for-worse-movie-missi-pyle-amy-landecker-clip/
+
+Exclusive: ScreenRant presents a clip from the hilarious new rom-com For Worse, starring Amy Landecker, Nico Hiraga, Missi Pyle, and Bradley Whitford.
+---------
+
+# 10 Modern Rock Albums Like Led Zeppelin (That Actually Deliver)
+
+Music, Classic Rock, Led Zeppelin, Rock, Rival Sons, This Is a Film About the Black Keys
+
+Tue, 03 Mar 2026 16:51:24 GMT
+
+https://screenrant.com/modern-rock-albums-led-zeppelin-fans/
+
+Tired of retro-cosplay? From Greta Van Fleet to Rival Sons, these are the modern records that capture the true alchemy of Led Zeppelin’s legacy.
+---------
+
+# Doctor Strange Kneels Before Robert Downey Jr.'s Doctor Doom In Avengers: Doomsday Art After MCU Rumors
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 03 Mar 2026 16:50:19 GMT
+
+https://screenrant.com/doctor-strange-doom-allies-avengers-doomsday-mcu-art/
+
+Amid rumors that Doctor Doom and Strange will work together in Avengers: Doomsday, new MCU art showcases the two characters interacting.
+---------
+
+# Paramount and MGM+ Confirm Treasure Island TV Series Starring Hayley Atwell
+
+TV, Pirates of the Caribbean, Mission: Impossible
+
+Tue, 03 Mar 2026 17:23:45 GMT
+
+https://www.cbr.com/treasure-island-tv-series-paramount-mgm-casts-hayley-atwell/
+
+A hotly-anticipated streaming series perfect for fans of the Pirates of the Caribbean franchise adds a Mission: Impossible star in a leading role
+---------
+
+# Young Sherlock Cast Breaks Down Guy Ritchie’s Bold Vision
+
+TV, Young Sherlock
+
+Tue, 03 Mar 2026 17:20:41 GMT
+
+https://www.cbr.com/video/young-sherlock-cast-breaks-down-guy-ritchie-s-bold-vision/
+
+Zine Tseng and Max Irons pull back the curtain on how Guy Ritchie balances classic Sherlock Holmes intelligence with pace, humor, and pure spectacle. The cast explains why this origin story keeps the precise logic longtime fans love while opening the door for a new generation.
+---------
+
+# D&D Officially Returns to Beloved Campaign Setting in 2026
+
+Games, Dungeons and Dragons
+
+Tue, 03 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/dnd-new-ravenloft-campaign-announced-2026/
+
+The mists of Ravenloft have appeared once more, as the beloved campaign setting is returning to Dungeons & Dragons in 2026, through a new sourcebook.
+---------
+
+# 5 Well-Written Anime That Are Actually Better Than Frieren
+
+Anime, Frieren: Beyond Journey's End
+
+Tue, 03 Mar 2026 17:15:08 GMT
+
+https://www.cbr.com/great-anime-better-than-frieren/
+
+Frieren is phenomenal, but some series push even further, delivering sharper tragedy, deeper character work, and more daring endings.
+---------
+
+# Matthew Parkhill on Reinventing Sherlock Holmes
+
+TV, Young Sherlock
+
+Tue, 03 Mar 2026 17:10:15 GMT
+
+https://www.cbr.com/video/matthew-parkhill-on-reinventing-sherlock-holmes/
+
+Showrunner Matthew Parkhill breaks down why this version is messier, more unfiltered, and still figuring himself out.In this CBR Presents interview, Parkhill explains how he carved out creative freedom by setting the series before A Study in Scarlet, turning canon into a playground instead of a constraint
+---------
+
+# Young Sherlock Reveals the Secret Friendship That Changes Everything
+
+TV, Young Sherlock
+
+Tue, 03 Mar 2026 17:03:01 GMT
+
+https://www.cbr.com/video/young-sherlock-reveals-the-secret-friendship-that-changes-everything/
+
+Hero Fiennes Tiffin and Donal Finn reveal how this origin story reshapes everything we thought we knew about Sherlock and Moriarty.In this CBR Presents interview, the Young Sherlock stars break down exploring Sherlock’s early years, the emotional weight of making Moriarty a true friend first, and why that bond makes their eventual split even more painful.
+---------
+
+# Robert Downey Jr.'s Sherlock Holmes is the Only One to Use Martial Arts
+
+Movies, Sherlock Holmes
+
+Tue, 03 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/sherlock-holmes-robert-downey-jr-martial-arts-superpower/
+
+Robert Downey Jr.'s Sherlock Holmes is a great adaptation, and his martial arts skills prove just how underused other versions were.
+---------
+
+# Bob Odenkirk’s John Wick Replacement Sequel Is Heading to Netflix After Underwhelming Box Office Run
+
+Movies, Nobody 2, Netflix
+
+Tue, 03 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/bob-odenkirk-nobody-2-netflix-release-date-mar-14-2026/
+
+After underwhelming at the box office last year, the sequel to Bob Odenkirk's action franchise is heading to Netflix for a fresh shot at success.
+---------
+
+# Jurassic World: Rebirth's Streaming Success Proves Why Fans Must Watch The Lost World
+
+Movies, Jurassic Park, Jurassic World Rebirth, The Lost World: Jurassic Park
+
+Tue, 03 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/jurassic-world-rebirth-redeemed-the-lost-world-jurassic-park/
+
+Jurassic World: Rebirth is a streaming giant right now and a reminder that The LostWorld: Jurassic Park deserves another look.
+---------
+
+# Daredevil: Born Again's Time Jump Rewrites Jessica Jones' Netflix Era
+
+TV, Daredevil: Born Again, Jessica Jones, MCU
+
+Tue, 03 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-jessica-jones-luke-cage-marriage-defenders/
+
+Jessica Jones returns in Daredevil: Born Again Season 2, and she could be coming with major changes to her story.
+---------
+
+# Anjelica Huston and Danny Huston’s New Fantasy Movie Casts 3 New Stars [Exclusive]
+
+Movie News, Anjelica Huston, Danny Huston, Animation, Musical
+
+Tue, 03 Mar 2026 17:30:14 GMT
+
+https://collider.com/the-christmas-witch-trial-of-la-befana-cast-anjelica-huston-danny-huston-animated-musical-fantasy/
+
+Anjelica Huston and Danny Huston team up for the new animated adventure The Christmas Witch Trial of La Befana, with pioneering animation techniques.
+---------
+
+# ‘Game of Thrones’ Movie Confirmed From ‘Andor’ Writer 7 Years After the Most Disappointing Finale in TV History
+
+Movie News, Game Of Thrones, Beau Willimon, Andor, George R.R. Martin
+
+Tue, 03 Mar 2026 17:04:27 GMT
+
+https://collider.com/game-of-thrones-movie-warner-bros-andor-writer-beau-willimon/
+
+Game of Thrones is officially getting a movie adaptation at Warner Bros., with Andor writer Beau Willimon penning the script.
+---------
+
+# Pixar's Bonkers New 97% RT Sci-Fi Movie Gets Thrilling New Look [Exclusive]
+
+Movie News, Hoppers, Pixar, Disney, Collider Exclusive Preview
+
+Tue, 03 Mar 2026 17:01:12 GMT
+
+https://collider.com/hoppers-new-image-disney-pixar-animated-movie/
+
+Discover the groundbreaking technology that allows humans to communicate with animals in Pixar's latest animated film, Hoppers, with an all-star cast.
+---------
+
+# Kaouther Ben Hania Built the Oscar-Nominated ‘Voice of Hind Rajab’ Around a Call You “Can’t Look Away” From
+
+Collider Signature, The Voice of Hind Rajab, Four Daughters, Oscar, Academy Awards
+
+Tue, 03 Mar 2026 16:58:57 GMT
+
+https://collider.com/voice-of-hind-rajab-kaouther-ben-hania-interview-oscars-2026/
+
+Oscar nominee Kaouther Ben Hania explains why The Voice of Hind Rajab had to feel immediate and demand accountability.
+---------
+
+# 18 Years Ago, This Cult Classic Now on Prime Video Proved Great Fantasy Doesn't Have To Be Grim
+
+TV Features, Merlin, BBC, Prime Video, Fantasy
+
+Tue, 03 Mar 2026 16:44:13 GMT
+
+https://collider.com/merlin-fantasy-series-cult-classic-prime-video-streaming/
+
+Unlike modern genre hits like Game of Thrones and The Witcher, Merlin successfully embraced a lighter tone, which more fantasies need to do.
+---------
+
+# Taylor Sheridan and Harry Potter Set to Go Head-to-Head Following Huge Paramount Announcement
+
+TV News, Harry Potter, Taylor Sheridan, Yellowstone, Paramount Plus
+
+Tue, 03 Mar 2026 16:33:38 GMT
+
+https://collider.com/paramount-plus-warner-brothers-merger-harry-potter-series-taylor-sheridan-series-same-streamer/
+
+Taylor Sheridan and Harry Potter set to go head-to-head following Paramount merger announcement.
+---------
+
+# Henry Cavill Has 1 Rule to Keep His New Sci-Fi Epic From Becoming Like ‘The Witcher’
+
+TV News, Henry Cavill, Warhammer 40k, The Witcher, Fantasy
+
+Tue, 03 Mar 2026 16:24:23 GMT
+
+https://collider.com/henry-cavill-warhammer-40000-series-three-strike-rule-pitching-integrity/
+
+A new report says Henry Cavill has a three-strike rule on the set of Warhammer 40,000 to ensure writers know the franchise when they pitch ideas.
+---------
+
+# 8 Most Exciting Thriller Movies Coming to Netflix in 2026
+
+Movie, Netflix, Thriller, War Machine, Peaky Blinders: The Immortal Man
+
+Tue, 03 Mar 2026 16:23:12 GMT
+
+https://collider.com/thriller-movies-netflix-2026-most-anticipated/
+
+War Machine, Peaky Blinders: The Immortal Man, Apex, and more make up our list of the most anticipated thriller movies coming to Netflix in 2026.
+---------
+
+# 'Outlander' Season 8 Review: Sam Heughan and Caitriona Balfe's Epic Fantasy Series Slowly Builds Toward a Stellar Finale
+
+TV Reviews, Outlander, Sam Heughan, Caitriona Balfe, STARZ
+
+Tue, 03 Mar 2026 16:01:12 GMT
+
+https://collider.com/outlander-season-8-review-sam-heughan-caitriona-balfe/
+
+Sam Heughan and Caitriona Balfe anchor the emotional final season of Outlander as Jamie and Claire return to Fraser's Ridge. Read our review.
+---------
+
+# 5 Years Later, David Oyelowo's New Thriller Emerges From Isolation in Twisted First Look [Exclusive]
+
+Exclusives, David Oyelowo, Nate Parker, AMC Theaters, Collider Exclusive Preview
+
+Tue, 03 Mar 2026 16:01:12 GMT
+
+https://collider.com/newborn-image-david-oyelowo-psychological-thriller/
+
+A new image for the psychological thriller Newborn shows an unraveling David Oyelowo re-entering the world after years in solitary.
+---------
+
+# Greatest Actresses of All Time, According to the American Film Institute
+
+Movie Lists, Audrey Hepburn
+
+Tue, 03 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/afi-best-actresses-of-all-time/
+
+The AFI has ranked the 100 greatest movie stars of all time, and these are the best actresses to have ever graced Hollywood.
+---------
+
+# 'Game of Thrones' Prequel Movie In the Works From 'Andor' Writer
+
+Movie News, Game of Thrones, Game Of Thrones
+
+Tue, 03 Mar 2026 16:17:11 GMT
+
+https://movieweb.com/game-of-thrones-movie-writer-aegon/
+
+The 'Gameo f Thrones' movie will reportedly revolve around the character fans have been years waiting for.
+---------
+
+# Prime Video's 'The Magicians' Is the Perfect Binge-Watch Before HBO's 'Harry Potter'
+
+TV News, The Magicians, Streaming Recommendations, Fantasy
+
+Tue, 03 Mar 2026 16:07:55 GMT
+
+https://movieweb.com/the-magicians-streaming-prime-video-march-2026/
+
+The epic fantasy masterpiece adapted from Lev Grossman's novels definitely stands the test of time.
+---------
+
+# Gerard Butler’s 'Empire City' Adds Danny Huston & More to Cast
+
+Casting News, Gerard Butler, Empire City, Action, Thriller
+
+Tue, 03 Mar 2026 15:43:32 GMT
+
+https://movieweb.com/gerard-butler-empire-city-cast-action/
+
+The 'Die Hard'-style action thriller has revealed its supporting cast as filming wraps.
+---------
+
+# 'Maniac Cop' Remake From Director Nicolas Winding Refn Is Happening
+
+Movie News, Maniac Cop, Action, Horror, Bruce Campbell, Nicolas Winding Refn
+
+Tue, 03 Mar 2026 15:08:26 GMT
+
+https://movieweb.com/maniac-cop-remake-happening-refn/
+
+The filmmaker behind the 1988 original, William Lustig, confirmed that the action horror remake is happening and will film in the fall.
+---------
+
+# 'Zootopia 2' Sets Disney+ Release Date After Record-Breaking Box Office Run
+
+Movie News, Zootopia 2, Disney+, Disney
+
+Tue, 03 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/zootopia-2-disney-plus-release-date/
+
+After charting as one of the 10 highest-grossing movies ever, 'Zootopia 2' will make its debut on Disney+ later this month.
+---------
+
+# 'Scream 7' Totally Wasted Stu Macher's Legacy Character Return
+
+Features, Scream 7
+
+Tue, 03 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/scream-7-stu-matthew-lillard-return/
+
+Stu Macher's (Matthew Lillard) return in 'Scream 7' was highly anticipated by fans, but the twist is disappointing, and his appearance is lackluster.
+---------
+
+# 'Sonic 4' Adds Ben Kingsley to the Video Game Sequel
+
+Movie News, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Tue, 03 Mar 2026 14:50:52 GMT
+
+https://movieweb.com/sonic-the-hedgehog-4-ben-kingsley/
+
+The star-studded cast of 'Sonic the Hedgehog 4' just added a major Hollywood icon as Jim Carrey's return remains unconfirmed.
+---------
+
+# ‘Scrubs’ Creator Bill Lawrence Explains Reasoning Behind J.D. & Elliot Twist
+
+TV News, Scrubs, Bill Lawrence
+
+Tue, 03 Mar 2026 14:38:09 GMT
+
+https://movieweb.com/scrubs-season-10-divorce-twist-bill-lawrence/
+
+'Scrubs' Season 10 has continued the characters in a number of controversial ways, with one twist going too far for some.
+---------
+
 # X-Men's New Villain Has Marvel's Ultimate Healing Factor
 
 Comics, X-Men, Deadpool
