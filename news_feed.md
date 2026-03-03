@@ -1,3 +1,366 @@
+# X-Men's New Villain Has Marvel's Ultimate Healing Factor
+
+Comics, X-Men, Deadpool
+
+Tue, 03 Mar 2026 14:30:18 GMT
+
+https://screenrant.com/x-men-marvel-best-healing-factor-strongest-creationist/
+
+Marvel's X-Men comics just introduced a radical new type of healing factor, making even the unkillable Deadpool look like a weakling.
+---------
+
+# D&D 2026 Roadmap Revealed Alongside Multiple New Sourcebooks
+
+Gaming, Dungeons and Dragons
+
+Tue, 03 Mar 2026 14:30:18 GMT
+
+https://screenrant.com/dungeons-dragons-roadmap-2026-new-dnd-sourcebooks-seasons/
+
+Dungeons & Dragons has officially revealed its 2026 roadmap, which includes multiple new sourcebooks and "seasons" of content throughout the year.
+---------
+
+# One Of TV’s Best Crime Thrillers Ever Finds Renewed Life On Netflix As A Streaming Hit 11 Years Later
+
+TV, The Mentalist, Netflix
+
+Tue, 03 Mar 2026 14:24:23 GMT
+
+https://screenrant.com/the-mentalist-netflix-streaming-success-march-2026/
+
+One of the best crime thrillers of all time earns renewed life on Netflix, becoming a streaming hit 11 years after it ended.
+---------
+
+# Fallout 3, New Vegas Remake Teaser Leaves Gamers Torn
+
+Gaming, Fallout: New Vegas, Fallout
+
+Tue, 03 Mar 2026 14:16:12 GMT
+
+https://screenrant.com/fallout-3-new-vegas-remake-2026-tease-gamer-reaction/
+
+Fallout remakes are almost certainly on the way at some point, but a new update has gamers feeling all sorts of different ways.
+---------
+
+# Xbox Game Pass Getting This Decade's Best Open-World RPG
+
+Gaming, Xbox Game Pass, Triple-A Games, PC, Cyberpunk 2077
+
+Tue, 03 Mar 2026 14:15:51 GMT
+
+https://screenrant.com/xbox-game-pass-march-2026-open-world-rpg/
+
+Xbox Game Pass already received some remarkable games this year, but it’s about to get better with the best open-world RPG joining the catalog soon.
+---------
+
+# Pokémon Scarlet & Violet Final DLC Announced As Gen 10 Arrives
+
+Gaming, Pokemon Scarlet and Violet, Triple-A Games
+
+Tue, 03 Mar 2026 14:09:19 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-final-dlc-gen-10/
+
+As Winds & Waves have been officially unveiled, Scarlet & Violet will be winding down, and will deliver its final season this year.
+---------
+
+# Apple TV's Ambitious Sci-Fi Series Becomes Streaming Sensation After New Episode
+
+TV, Monarch: Legacy of Monsters, Apple TV
+
+Tue, 03 Mar 2026 14:00:38 GMT
+
+https://screenrant.com/monarch-season-2-apple-tv-streaming-success-march-2026/
+
+An ambitious Apple TV Sci-Fi series recently returned with season 2, and the show has already become a global hit after only one new episode.
+---------
+
+# Xbox Game Pass Officially Losing 6 Free Games This Month
+
+Gaming, Xbox Game Pass
+
+Tue, 03 Mar 2026 13:50:36 GMT
+
+https://screenrant.com/xbox-game-pass-6-free-games-leaving-march-2026/
+
+As Xbox Game Pass gets its latest arrivals for March 2026, half a dozen games are leaving the service, so check them out while you still can.
+---------
+
+# Every Kazuo Ishiguro Movie & TV Show, Ranked
+
+Movies, Living, The Remains of the Day, Never Let Me Go
+
+Tue, 03 Mar 2026 13:45:19 GMT
+
+https://screenrant.com/kazuo-ishiguro-movies-tv-shows-ranked/
+
+Nobel Prize winner and Oscar-nominated screenwriter Kazuo Ishiguro has many book adaptations and screenplays, but some stand out as the best.
+---------
+
+# Steam 2025 Hidden Gem Free To Claim And Keep For 24 More Hours
+
+Gaming, Steam, PC
+
+Tue, 03 Mar 2026 13:41:17 GMT
+
+https://screenrant.com/steam-free-march-2026-deal-24-hours/
+
+There's an incredible 2025 game on Steam that's an absolute hidden gem, and it's only free to download and keep for 24 more hours.
+---------
+
+# Fallout: New Vegas Officially Gets New Release April 2026
+
+Games, Fallout New Vegas, Fallout
+
+Tue, 03 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/fallout-new-vegas-officially-gets-new-release-april-2026/
+
+Fallout: New Vegas fans are and tabletop gamers alike are about to get the exclusive gear they didn't know they were missing out on.
+---------
+
+# 5 Classic 2000s Anime Heroes Who Are Unlikable Today
+
+Anime, Code Geass: Lelouch of the Rebellion, Death Note, Naruto, Ouran High School Host Club
+
+Tue, 03 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/classic-2000s-anime-heroes-that-are-officially-unlikable/
+
+Several of the heroes who 2000s anime fans loved are actually despicable.
+---------
+
+# Taylor Sheridan’s 2-Season Masterpiece Returns to Streaming Charts but Not on Paramount+
+
+TV, Landman, Drama, Prime Video
+
+Tue, 03 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/taylor-sheridans-landman-prime-video-streaming-success-march-2026/
+
+With news of a third season on the way, Taylor Sheridan fans are flocking to one of his best Western dramas - but on a surprising streaming platform.
+---------
+
+# The 92% RT Crime Drama That Launched Taylor Sheridan's Empire, Sicario, Is Now Streaming on Netflix
+
+Movies, Drama, Crime, Sicario, Sicario: Day Of The Soldado
+
+Tue, 03 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-crime-drama-sicario-streaming-success-neflix-march-2026/
+
+Not many can argue that this film launched Taylor Sheridan's streaming empire, and it's finally coming to Netflix.
+---------
+
+# Godzilla x Kong: The New Empire's Suko Honors and Fixes Toho's Worst Idea
+
+Movies, Godzilla x Kong: The New Empire, Monsterverse
+
+Tue, 03 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/monsterverse-godzilla-x-kong-the-new-empire-suko-perfect/
+
+Godzilla x Kong: The New Empire's Suko is a unique but well-liked character that honors Toho's most annoying and frustrating character.
+---------
+
+# A Knight of the Seven Kingdoms Breaks Game of Thrones' Biggest HBO Rule
+
+TV, A Knight Of The Seven Kingdoms, Game Of Thrones, Fantasy
+
+Tue, 03 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/knight-of-the-seven-kingdoms-redeems-game-of-thrones-broken-rule/
+
+A Knight of the Seven Kingdoms saves the Game of Thrones franchise in the most surprising way possible: by breaking its longest-standing rule.
+---------
+
+# A Forgotten Cartoon Classic Is Returning For An Much-Needed Finale
+
+Comics, Jem and the Holograms
+
+Tue, 03 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/jem-and-the-holograms-comic-revival-boom-studios/
+
+One of TV's greatest cartoons of the '80s is returning with the promise of a proper (and long overdue) finale.
+---------
+
+# Nearly 20 Years Later, Avatar: The Last Airbender Fans Solve a Canon Problem After the Original Show
+
+Anime, Avatar: The Last Airbender
+
+Tue, 03 Mar 2026 12:30:12 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-anime-vs-netflix-canon-theory/
+
+Astute Avatar: The Last Airbender fans may have pinpointed the canon reason for the changes between the original series and the Netflix adaptation.
+---------
+
+# Netflix Is Removing One of The Most Unique Sci-Fi Classics of the 21st Century
+
+Movie News, Netflix, District 9, Neill Blomkamp, Peter Jackson
+
+Tue, 03 Mar 2026 14:27:31 GMT
+
+https://collider.com/netflix-removes-political-sci-fi-movie-district-9-april-2026/
+
+Netflix is removing the most brazenly political sci-fi movie of the 21st Century as District 9 goes offline next month.
+---------
+
+# The Best New Sci-Fi Series of 2025 Gets Official Update Fans Have Been Waiting For
+
+TV News, Alien: Earth, Ridley Scott, Noah Hawley, Hulu
+
+Tue, 03 Mar 2026 14:13:14 GMT
+
+https://collider.com/ridley-scott-sci-fi-series-alien-earth-season-2-update-production-start/
+
+Ridley Scott's sci-fi series Alien: Earth confirms a key Season 2 detail with a single production update.
+---------
+
+# ‘Industry’ Star Max Minghella Unpacks the Batman-Joker Relationship That Ultimately Brought Down Whitney
+
+Exclusives, Industry, Max Minghella, Kit Harington, Myha'la
+
+Tue, 03 Mar 2026 14:00:12 GMT
+
+https://collider.com/industry-season-4-finale-explained-max-minghella-interview-whitney/
+
+Max Minghella discusses Industry Season 4, the collapse of Whitney Halberstram, what made Clayface a standout experience, and directing The Shards.
+---------
+
+# 1 Dad, 3 Kids, and Zero Clue What He’s Doing: See Nate Bargatze in 'The Breadwinner' [Exclusive]
+
+Exclusives, The Breadwinner, Collider Exclusive Preview, Eric Appel, Comedy
+
+Tue, 03 Mar 2026 14:00:12 GMT
+
+https://collider.com/the-breadwinner-image-nate-bargatze-comedy/
+
+Sony's new comedy The Breadwinner received a new image that thrusts comedian Nate Bargatze into the role of a stay-at-home dad.
+---------
+
+# Say Goodbye to the 2nd Highest-Rated Racing Movie of All Time on Netflix
+
+Movie News, Matt Damon, Christian Bale, Ford v Ferrari, Netflix
+
+Tue, 03 Mar 2026 13:57:32 GMT
+
+https://collider.com/matt-damon-christian-bale-ford-v-ferrari-leaving-netflix-april-2026/
+
+Say goodbye to Matt Damon and Christian Bale's high-octane racing movie as Netflix removes it.
+---------
+
+# 10 Heaviest Best Picture Winners of All Time, Ranked
+
+Movie, The Godfather Part II, Oppenheimer, No Country for Old Men, Schindler's List
+
+Tue, 03 Mar 2026 13:56:12 GMT
+
+https://collider.com/heaviest-best-picture-winners-all-time-ranked/
+
+The heaviest movies to win Best Picture at the Oscars include classics like Platoon and The Godfather Part II, and more recent films like Oppenheimer.
+---------
+
+# 10 Classic 2000s Cartoons That Are Ready for a Reboot Now
+
+TV, Animation, Teen Titans, Kim Possible, Danny Phantom
+
+Tue, 03 Mar 2026 13:45:12 GMT
+
+https://collider.com/classic-2000s-cartoons-ready-for-reboot/
+
+Although they're considered classics, now is the perfect time for beloved 2000s cartoons like Teen Titans and Kim Possible to be rebooted in 2026.
+---------
+
+# ‘Star Trek’s Most Famous Quote Has an Unexpected Lovecraftian Connection From 83 Years Ago
+
+TV Features, Star Trek: The Original Series, Star Trek, H.P. Lovecraft, NBC
+
+Tue, 03 Mar 2026 13:44:12 GMT
+
+https://collider.com/star-trek-most-famous-quote-lovecraft-connection/
+
+Star Trek's famous opening monologue has a surprising evolution, paying homage to Captain James Cook and H.P. Lovecraft.
+---------
+
+# 10 Years Later, Martin Scorsese's $30M Pilot Is Still the Most Ambitious Failure in HBO History
+
+TV Features, Vinyl, Martin Scorsese, HBO Max, Bobby Cannavale
+
+Tue, 03 Mar 2026 13:37:12 GMT
+
+https://collider.com/vinyl-hbo-series-cancelled-30m-dollar-pilot-martin-scorsese/
+
+Bobby Cannavale and Olivia Wilde starred in HBO's Vinyl, an ambitious series from Martin Scorsese that had an expensive pilot, only to be cancelled.
+---------
+
+# 20 Most Badass Women in Anime
+
+TV, Anime, Naruto, Black Butler, Tokyo Ghoul
+
+Tue, 03 Mar 2026 13:18:12 GMT
+
+https://collider.com/anime-women-badass/
+
+From Frieren to Nami, the most badass women in anime are independent, fierce, and ready to take on the world.
+---------
+
+# 'The Furious' to Close This Month's US Film Festival
+
+Movie News, The Furious, Action, Thriller, Martial Arts
+
+Tue, 03 Mar 2026 14:15:17 GMT
+
+https://movieweb.com/the-furious-release-boston-film-festival/
+
+The martial arts action thriller masterpiece joins Bob Odenkirk's 'Normal' at the 2026 Boston Underground Film Festival.
+---------
+
+# 'Hannibal' Is a Horror TV Show That Keeps Getting Better
+
+Features, Hannibal, Holds Up
+
+Tue, 03 Mar 2026 14:00:16 GMT
+
+https://movieweb.com/hannibal-psychological-thriller-holds-up/
+
+'Hannibal,' a TV series about cannibalistic serial killer Hannibal Lecter (Mads Mikkelsen), keeps getting better, and is a stand-out horror series.
+---------
+
+# 'Killer Elite' Unites Jason Statham and Robert De Niro for Intense Action Thriller
+
+Movie News, Killer Elite, Streaming Recommendations, Jason Statham, Robert De Niro
+
+Tue, 03 Mar 2026 13:30:16 GMT
+
+https://movieweb.com/killer-elite-jason-statham-robert-de-niro-streaming-tubi/
+
+15 years after hitting theaters, the teaming of Jason Statham and Robert De Niro remains an underrated action thriller gem on streaming.
+---------
+
+# 'Blade Runner' Took 25 Years to Become One of Greatest Sci-Fi of All Time
+
+Features, Blade Runner, Cultural Reassessment
+
+Tue, 03 Mar 2026 13:01:17 GMT
+
+https://movieweb.com/blade-runner-final-cut-greatest-sci-fi/
+
+'Blade Runner' was a box office flop, but the Ridley Scott science-fiction movie has become regarded as one of the most important in the genre.
+---------
+
+# Why Dr. Cox Chose JD Over Elliot in the 'Scrubs' Revival
+
+Features, Scrubs
+
+Tue, 03 Mar 2026 12:00:16 GMT
+
+https://movieweb.com/scrubs-revival-dr-cox-decision/
+
+JD taking over from Dr. Cox as Chief of Medicine is a huge twist, especially when Elliot was there to do so all along.
+---------
+
 # GTA 6 Leaked Gameplay Footage Emerges Ahead Of Trailer Three
 
 Gaming, Grand Theft Auto, Grand Theft Auto 6
