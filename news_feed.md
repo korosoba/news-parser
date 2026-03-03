@@ -1,3 +1,322 @@
+# Bloodborne Just Got New Bosses, Quests, And Weapons In Major Overhaul
+
+Gaming, Bloodborne
+
+Tue, 03 Mar 2026 21:01:20 GMT
+
+https://screenrant.com/bloodborne-mod-new-bosses-quests-weapons/
+
+Discover the ultimate Bloodborne experience with Hardborne, a fan-made mod featuring new bosses, quests, and weapons.
+---------
+
+# 49 Years Later, Fleetwood Mac’s Rumours Is Back In Billboard’s Top 5 — Here’s Why
+
+Music, Fleetwood Mac, Classic Rock
+
+Tue, 03 Mar 2026 20:55:09 GMT
+
+https://screenrant.com/fleetwood-mac-rumours-2026-chart-resurgence/
+
+49 years after its release, Fleetwood Mac's 'Rumours' is a Top 5 hit in 2026. From TikTok to TV syncs, here is the data behind its resurgence.
+---------
+
+# Netflix Officially Confirms New Squid Game Series 9 Months After OG Show's Ending
+
+TV, Squid Game, Squid Game: The Challenge
+
+Tue, 03 Mar 2026 20:51:56 GMT
+
+https://screenrant.com/netflix-squid-game-the-vip-challenge-series-confirmed/
+
+Squid Game ended in June 2025, but the franchise is far from over now that Netflix has announced a new series based on the Korean drama.
+---------
+
+# What Was That? Monsterverse's Scary New Skull Island Creature Explained
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse, Explainer
+
+Tue, 03 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-vinerat-skull-island-creature-explained/
+
+The season 2 premiere of Monarch: Legacy of Monsters introduced a small but terrifying new creature that occupies Kong's home, Skull Island.
+---------
+
+# Aegon's Conquest Prequel Officially Rewrites The Rules Of Game Of Thrones
+
+Streaming TV, Game Of Thrones, Game of Thrones, Aegon's Conquest
+
+Tue, 03 Mar 2026 20:34:19 GMT
+
+https://screenrant.com/game-of-thrones-movie-aegons-conquest-hbo-franchise-future/
+
+The upcoming GoT prequel is turning the franchise on its head, and viewers will never engage with stories set in Westeros the same way again.
+---------
+
+# The Gilded Age Season 4's Official Plot Details Confirm Trouble For Bertha & The Russells
+
+TV, The Gilded Age
+
+Tue, 03 Mar 2026 20:33:43 GMT
+
+https://screenrant.com/gilded-age-season-4-plot-details-bertha-russells-trouble/
+
+The Gilded Age season 4's official plot details confirm trouble for Bertha and the Russell family as they must reckon with consequences.
+---------
+
+# Netflix Has 1 More Chance To Redeem Its Stranger Things Replacement
+
+TV, Wednesday, Stranger Things
+
+Tue, 03 Mar 2026 20:30:18 GMT
+
+https://screenrant.com/netflix-wednesday-season-3-redeem-show-save-franchise/
+
+The search for Netflix's next Stranger Things is ongoing, but the streaming service's handling of one iconic hit may have derailed its chances.
+---------
+
+# After 5 Years, Prime Video's Action Series With Near-Perfect Rotten Tomatoes Score Keeps Getting Better Ahead Of 2026 Return
+
+TV, Prime Video, Invincible
+
+Tue, 03 Mar 2026 20:20:20 GMT
+
+https://screenrant.com/invincible-season-4-prime-video-action-series-better-2026-return/
+
+One of Prime Video's best action series returns this month with new episodes, and the beloved show only keeps getting better years later.
+---------
+
+# Jurassic World Rebirth: Fixing the Franchise's Scary Dinosaurs Problem
+
+Movies, Jurassic World Rebirth
+
+Tue, 03 Mar 2026 20:15:19 GMT
+
+https://screenrant.com/jurassic-world-rebirth-chris-pratt-movies-fix-dinosaurs/
+
+Jurassic World Rebirth is an improvement from the Chris Pratt-led World films; one of the reasons why is that it treats dinosaurs like animals.
+---------
+
+# Amazon's New Andy Weir Sci-Fi Movie Reportedly Has Twice The Budget Of Ridley Scott's The Martian
+
+Movies, Project Hail Mary
+
+Tue, 03 Mar 2026 20:06:29 GMT
+
+https://screenrant.com/project-hail-mary-budget-the-martian-comparison-andy-weir-movies/
+
+Amazon MGM's new sci-fi epic based on Andy Weir's book has nearly twice the budget of The Martian, and will face an uphill battle at the box office.
+---------
+
+# David Duchovny's Evolution Finds Redemption on Streaming 25 Years After Flopping in Theaters
+
+Movies, Evolution
+
+Tue, 03 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/david-duchovny-evolution-sci-fi-paramount-plus-success-march-2026/
+
+One of David Duchovny's most underrated science fiction films is finding redemption in the realm of streaming decades after bombing at the box office.
+---------
+
+# Was Tom Cruise's Mission: Impossible – Dead Reckoning Really a Flop?
+
+Movies, Mission: Impossible - Dead Reckoning
+
+Tue, 03 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/mission-impossible-dead-reckoning-tom-cruise-not-flop/
+
+Half a billion grossed. A 96% audience score. And somehow, a flop. The Mission: Impossible - Dead Reckoning narrative has always been missing context.
+---------
+
+# 30 Years Later, This is The Greatest DC Comics Elseworlds Story Ever Told
+
+Comics, Western, Spawn, Jonah Hex
+
+Tue, 03 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/kingdom-come-greatest-elseworlds-comic-dc/
+
+DC Comics gave readers one character reinvention after another throughout the 1990s, and its most powerful story turns 30 this year.
+---------
+
+# Jason Statham's Death Race is the Perfect Mid-Budget Movie
+
+Movies, Death Race, Sci-Fi
+
+Tue, 03 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/jason-statham-death-race-best-mid-budget-movie/
+
+An icon of the action, Jason Statham's sci-fi thriller proved that Hollywood's tried and true mid-budget films were some of the best available.
+---------
+
+# 5 Alternate Scream 7 Endings That Would've Been Better Than the Actual Ending
+
+Movies, Scream 7
+
+Tue, 03 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/alternate-scream-7-endings-better-ghostface-reveals/
+
+The Scream franchise's most divisive movie let fans down with its Ghostface reveal. Here are a few more entertaining options we can imagine instead.
+---------
+
+# 6 Best Slow-Burn Detective Shows, Ranked
+
+TV, Mindhunter, Bosch, Crime
+
+Tue, 03 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/best-slow-burn-detective-shows-ranked-list/
+
+Dive into the top slow-burn detective shows that master character development and intricate storytelling to keep audiences on the edge of their seats.
+---------
+
+# Dragon Ball Super: Beerus Promises 'More Faithful Representation' of Toyotarou's Manga
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball, Dragon Ball Super
+
+Tue, 03 Mar 2026 19:58:23 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-remake-toyotarou-manga-faithful/
+
+Dragon Ball Super's upcoming anime remake of the Beerus Saga will be more faithful to Toyotarou's manga than ever, according to an official statement.
+---------
+
+# Sam Raimi’s 113-Minute Hit Is Just $3 Million Shy of Overtaking His Most Devilishly Entertaining Horror Movie
+
+Movie News, Drag Me to Hell, Sam Raimi, Send Help, Box Office
+
+Tue, 03 Mar 2026 21:01:08 GMT
+
+https://collider.com/sam-raimi-horror-movie-send-help-about-to-overtake-drag-me-to-hell-box-office-88-million/
+
+Sam Raimi's latest hit, Send Help, is on the verge of overtaking his cult classic 2009 film, Drag Me to Hell, at the box office.
+---------
+
+# 48 Years Later, Horror’s Most Infamous Movie Returns With a Brutal Reimagining [Exclusive]
+
+Exclusives, Faces of Death, Barbie Ferreira, Dacre Montgomery, Collider Exclusive Preview
+
+Tue, 03 Mar 2026 21:00:13 GMT
+
+https://collider.com/faces-of-death-remake-48-years-later-iconic-horror-movie-first-look/
+
+Discover the chilling new version of Faces of Death, where an online moderator stumbles upon a group re-enacting the original's killings.
+---------
+
+# 8 Netflix Miniseries That Are 10/10 Masterpieces
+
+TV, Netflix, TV Miniseries, Baby Reindeer, Adolescence
+
+Tue, 03 Mar 2026 20:45:12 GMT
+
+https://collider.com/netflix-miniseries-perfect-masterpieces/
+
+Adolescence, Baby Reindeer, The Queen's Gambit, Ripley, Unbelievable, and more make up our list of Netflix miniseries that are 10/10 masterpieces.
+---------
+
+# Say Goodbye to the Greatest '90s Film on Netflix This Week
+
+Movie Features, Forrest Gump, Tom Hanks, Robin Wright, Robert Zemeckis
+
+Tue, 03 Mar 2026 20:42:12 GMT
+
+https://collider.com/tom-hanks-forrest-gump-leaving-netflix/
+
+Tom Hanks’s most iconic Oscar-winning epic ‘Forrest Gump’ is leaving Netflix on March 5th.
+---------
+
+# The David Bowie Song He Wrote as a Joke That Somehow Hit the Top 10 on the Charts
+
+Music Features, David Bowie, Rock, Music, Billboard Hot 100
+
+Tue, 03 Mar 2026 20:30:12 GMT
+
+https://collider.com/david-bowie-wrote-the-laughing-gnome-as-joke-becomes-top-10-hit/
+
+Before Space Oddity, David Bowie released The Laughing Gnome, a novelty track that became an unexpected hit, showcasing Bowie's experimental and fearless approach to music.
+---------
+
+# 10 Greatest British Movie Masterpieces of All Time, Ranked
+
+Movie, Trainspotting, Lawrence of Arabia, A Clockwork Orange, The Red Shoes
+
+Tue, 03 Mar 2026 20:19:12 GMT
+
+https://collider.com/greatest-british-movie-masterpieces-all-time-ranked/
+
+If you're after masterpieces of British cinema, classics like The Red Shoes, Lawrence of Arabia, and A Clockwork Orange are all must-watches.
+---------
+
+# 30 Years Later, This Sci-Fi Cult Classic Is Finally Ready for a Reboot
+
+TV Features, TekWar, William Shatner, Star Trek, TekWar: TekLab
+
+Tue, 03 Mar 2026 20:15:07 GMT
+
+https://collider.com/tekwars-william-shatner-sci-fi-cult-classic-30th-anniversary/
+
+William Shatner’s TekWar is a bonafide sci-fi cult classic that could use an upgrade.
+---------
+
+# 2026's Next Horror Smash Is Not for the Faint of Heart With Twisted Sneak Peek [Exclusive]
+
+Exclusives, Dolly, Seann William Scott, Collider Exclusive Preview, Horror
+
+Tue, 03 Mar 2026 20:00:12 GMT
+
+https://collider.com/dolly-sneak-peek-fabianne-therese-fights-max-the-impaler/
+
+Fabianne Therese fights with a pro-wrestler in a brand new look at twisted psychological horror movie Dolly. Watch it here!
+---------
+
+# Tom Hanks' Classic Crime Thriller Loses Box Office Rank to the Biggest Movie of 2026 So Far
+
+Movie News, Road to Perdition, Tom Hanks, Wuthering Heights, Margot Robbie
+
+Tue, 03 Mar 2026 19:55:10 GMT
+
+https://collider.com/wuthering-heights-overtakes-tom-hanks-classic-road-to-perdition-box-office-190-million/
+
+Wuthering Heights has overtaken Tom Hanks' beloved crime drama at the box office, as it nears the $200 million mark. Find out more here.
+---------
+
+# 'Bridgerton' Season 4: Why Daphne and Simon Are Missing
+
+Features, Bridgerton
+
+Tue, 03 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/bridgerton-daphne-simon-rege-jean-page/
+
+'Bridgerton' Season 4 is taking Netflix (and the ton) by storm, but these two characters are missing. Here's why.
+---------
+
+# Prime Video's 'Life Is Strange' Series Casts Chloe and Max
+
+TV News, Life Is Strange, Prime Video, video games
+
+Tue, 03 Mar 2026 20:00:35 GMT
+
+https://movieweb.com/life-is-strange-prime-video-cast/
+
+Amazon's 'Life is Strange' video game adaptation finds its leads in two up-and-coming stars set to bring the time-bending series to life.
+---------
+
+# Chinese School Dramas to Add to Your Watch List
+
+TV Lists, Drama
+
+Tue, 03 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/chinese-school-dramas/
+
+Capturing what it is like to grow up, these Chinese school dramas are must-watch titles for those looking to get into the genre.
+---------
+
 # The Greatest Dark Fantasy Franchise of All Time Returns in 2026 With Brand-New Entry
 
 Comics, Hellboy
