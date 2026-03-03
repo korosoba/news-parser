@@ -1,3 +1,333 @@
+# Dolly Review: This Back-To-Basics Slasher Is Sick, Vicious & Dull
+
+Movies, Dolly, Horror
+
+Tue, 03 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/dolly-movie-2026-review/
+
+Rod Blackhurst's Dolly delivers exactly what its poster promises, but it proves to be such a simple slasher that it fails to deliver anything new.
+---------
+
+# 8 Comic Storylines Confirmed For Invincible Season 4
+
+TV, Invincible
+
+Tue, 03 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/invincible-season-4-comic-book-storylines-confirmed/
+
+Invincible season 4 is pulling several storylines straight out of Robert Kirkman's comics, with these ones officially confirmed to be included.
+---------
+
+# Stardew Valley Is Getting New Content All Month, Thanks To The Fans
+
+Gaming, Stardew Valley
+
+Tue, 03 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/stardew-valley-new-content-march-2026-mod-event/
+
+Stardew Valley is getting a ton of new content, and we're not talking about the 1.7 update: this time, it’s all fan-made, and ready to download now.
+---------
+
+# I Can't Believe Disney Pretends This 8-Part Fantasy Series Never Happened
+
+TV, Willow
+
+Tue, 03 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/willow-disney-fantasy-tv-series-deleted/
+
+Disney+ has produced and cancelled several original fantasy TV shows in the streaming era, but one is a strange case of pretending it never happened.
+---------
+
+# Netflix's 3-Part Spy Thriller Series Is One Of Its Best
+
+TV, Netflix, The Night Agent
+
+Tue, 03 Mar 2026 21:31:19 GMT
+
+https://screenrant.com/netflix-the-night-agent-thriller-series-best/
+
+One of Netflix's most popular TV shows is a spy thriller series with three seasons that has managed to charm its way to huge success worldwide.
+---------
+
+# Nicole Kidman Continues Career Trend In Patricia Cornwell's Scarpetta On Prime Video
+
+Streaming TV, Scarpetta
+
+Tue, 03 Mar 2026 21:31:19 GMT
+
+https://screenrant.com/prime-video-scarpetta-nicole-kidman-book-adaptation-trend/
+
+Prime Video is giving us yet another exciting adaptation of a best-selling novel series, while continuing a major Hollywood star's new career trend.
+---------
+
+# The Same Story That Crouching Tiger, Hidden Dragon Is Based On Received A Movie 33 Years Earlier
+
+Classic Movies, Crouching Tiger, Hidden Dragon, Factoid
+
+Tue, 03 Mar 2026 21:31:19 GMT
+
+https://screenrant.com/crouching-tiger-hidden-dragon-movie-early-version-story-1967/
+
+33 years before Crouching Tiger, Hidden Dragon, a Hong Kong studio made a martial arts film based on the same source material.
+---------
+
+# Only 1 Star Wars Project Can Officially Redeem The Sequel Trilogy
+
+Streaming TV, Star Wars, Star Wars: The Clone Wars
+
+Tue, 03 Mar 2026 21:15:19 GMT
+
+https://screenrant.com/star-wars-sequels-clone-wars-show-redeem-trilogy/
+
+The Star Wars sequel trilogy has been met with mixed reviews. Could a Clone Wars-style series set during the First Order-Resistance War be the redemption the trilogy needs?
+---------
+
+# Glen Powell's How to Make a Killing is Divisive Among Fans and Critics
+
+Movies, How to Make a Killing, Crime
+
+Tue, 03 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/glen-powell-how-to-make-a-killing-american-psycho-replacement/
+
+This new dark comedy crime thriller is fun at times, but there's also a good reason it has fans and critics divided.
+---------
+
+# House of Cards Was Netflix's First Near-Perfect Bingeworthy Show
+
+TV, House of Cards, Thriller, Netflix
+
+Tue, 03 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-house-of-cards-bingeworthy-political-thriller/
+
+A staple of Netflix's early catalogue, this political thriller series changed everything about the way streaming platforms worked.
+---------
+
+# Star Wars Special Editions Blu-ray and DVD Release in 2026
+
+Movies, Star Wars, Sci-Fi, Star Wars: Episode IV - A New Hope
+
+Tue, 03 Mar 2026 21:43:31 GMT
+
+https://www.cbr.com/star-wars-original-trilogy-blu-ray-dvd-2026-special-editions/
+
+The Star Wars original trilogy Special Editions are set for a 2026 Blu-ray and DVD release.
+---------
+
+# Avatar: Fire & Ash's Final Milestone Confirms Its $1.48 Billion Box Office Disappointment
+
+Movies, Sci-Fi, Avatar, Avatar: The Way of Water, Avatar: Fire and Ash
+
+Tue, 03 Mar 2026 21:39:48 GMT
+
+https://www.cbr.com/avatar-fire-ash-bad-news-box-office-disappointment/
+
+The numbers might look eye-popping but, in reality, Avatar: Fire and Ash didn't do what James Cameron promised.
+---------
+
+# Pokémon Pokopia's Near-Perfect Ratings Prove Change Is Needed
+
+Games, Pokemon, Nintendo
+
+Tue, 03 Mar 2026 21:35:12 GMT
+
+https://www.cbr.com/pokemon-pokopia-perfect-ratings-officially-proves-franchise-change/
+
+Pokémon Pokopia has received incredible reviews across the board, proving that the franchise is long overdue for more experimental titles.
+---------
+
+# The 6 Horror Franchises Scary Movie 6 Needs to Roast
+
+Movies, Scary Movie 6, Horror
+
+Tue, 03 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/6-horror-franchises-scary-movie-6-needs-to-roast-list/
+
+Scary Movie 6 is coming, and between The Conjuring and The Black Phone, there are more than a few horror franchises worth poking fun at.
+---------
+
+# CBS' Tracker Hits No. 9 on Paramount+ After Unexpected Season 3 Twist
+
+TV, Tracker, Paramount Plus
+
+Tue, 03 Mar 2026 21:28:52 GMT
+
+https://www.cbr.com/tracker-paramount-streaming-march-2026/
+
+The best show on CBS came back with a bang, marking an unexpected change to the series' familiar formula.
+---------
+
+# Christopher Nolan’s Inception Still Deserves More Flak For Ripping Off Paprika
+
+Anime, Paprika, Inception, Studio Madhouse, Christopher Nolan
+
+Tue, 03 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/christopher-nolan-inception-paprika-plagiarism/
+
+Christopher Nolan's Inception was a box-office smashin 2010, but many believe its succes comes off the back of Satoshi Kon's 2006 anime film, Paprika.
+---------
+
+# God of War Series First Look Sparks Criticism from Creator David Jaffe
+
+TV, God of War, Prime Video
+
+Tue, 03 Mar 2026 21:03:29 GMT
+
+https://www.cbr.com/god-of-war-prime-video-first-look-creator-david-jaffe-reacts/
+
+God of War video game creator David Jaffe criticizes the first look at Prime Video's live-action series, calling the image 'terrible' and 'dumb.'
+---------
+
+# 'RJ Decker' Review: ABC's Wonderfully Weird New Crime Comedy Is a Standout Procedural
+
+TV Reviews, RJ Decker, Scott Speedman, Procedural, ABC
+
+Tue, 03 Mar 2026 22:00:12 GMT
+
+https://collider.com/rj-decker-review-crime-procedural-abc-scott-speedman/
+
+ABC's latest crime comedy procedural, RJ Decker, offers a unique blend of humor and suspense, with a complex lead character and intriguing cases.
+---------
+
+# A ‘Schindler’s List’ Star Takes Control of a Post-Apocalyptic Empire in New Look at March 13th’s Epic Sci-Fi Release [Exclusive]
+
+Exclusives, Storm Rider: Legend of Hammerhead, Cosmo Jarvis, Sci-Fi, Collider Exclusive Preview
+
+Tue, 03 Mar 2026 22:00:12 GMT
+
+https://collider.com/storm-rider-legend-of-hammerhead-sci-fi-fantasy-image-caroline-goodall/
+
+The sci-fi fantasy Storm Rider: Legend of Hammerhead received a new image introducing Caroline Goodall as a post-apocalyptic villain.
+---------
+
+# 10 Movie Classics From the '60s That Keep Getting Better
+
+Movie, 2001: A Space Odyssey, Once Upon a Time in the West, Point Blank, Le Samouraï
+
+Tue, 03 Mar 2026 21:57:12 GMT
+
+https://collider.com/60s-movie-classics-keep-getting-better/
+
+The '60s were a seminal decade for cinema, and movies like Le Samouraï and Harakiri remain classics that keep getting better with each passing year.
+---------
+
+# 8 Years Later, a Western Horror Movie With 2 Taylor Sheridan Stars Surges on Streaming
+
+Movie News, Winchester, Helen Mirren, 1923, Sarah Snook
+
+Tue, 03 Mar 2026 21:39:47 GMT
+
+https://collider.com/taylor-sheridan-stars-jason-clarke-helen-mirren-western-horror-movie-winchester-streaming-success-tubi-march-2026/
+
+Helen Mirren's horror film Winchester, about the woman who built one of the strangest homes in America, is having a surge on streaming. Find out more.
+---------
+
+# 10 Horror Movies That Are More Disturbing Than 'Hereditary'
+
+Movie, Hereditary, Martyrs, Cannibal Holocaust, Bring Her Back
+
+Tue, 03 Mar 2026 21:38:12 GMT
+
+https://collider.com/horror-movies-more-disturbing-than-hereditary/
+
+Not many horror movies are more disturbing than Hereditary, so it's worth celebrating ones like Martyrs and Bring Her Back that arguably were.
+---------
+
+# Gore Verbinski's $260M Western Flop Is Still Better Than It Has Any Right to Be
+
+Movie Features, The Lone Ranger, Gore Verbinski, Johnny Depp, Armie Hammer
+
+Tue, 03 Mar 2026 21:38:12 GMT
+
+https://collider.com/disney-lone-ranger-movie-gore-verbinski-western-flop/
+
+It was never going to be Pirates of the Caribbean, but this Disney Western should've been a bigger hit.
+---------
+
+# In 43 Minutes, ‘Yellowstone’s New Spin-Off Answers Fans' Biggest Question About This Dutton's Death
+
+TV Features, Marshals, Yellowstone, The Dutton Ranch, Taylor Sheridan
+
+Tue, 03 Mar 2026 21:36:37 GMT
+
+https://collider.com/marshals-yellowstone-spin-off-john-death-explained/
+
+Kayce Dutton faces new challenges that could impact the future of Yellowstone and the larger franchise after John's death and Jamie's disappearance.
+---------
+
+# As a Spider-Man Fan, Here's How I'd Rank All 13 TV Shows in the Franchise
+
+TV, Spider-Man, The Spectacular Spider-Man, Your Friendly Neighborhood Spider-Man
+
+Tue, 03 Mar 2026 21:29:12 GMT
+
+https://collider.com/spider-man-fan-ranks-tv-shows/
+
+TV is an excellent medium for Peter Parker, and as a fan, I think The Spectacular Spider-Man and Spider-Man Unlimited are some of the best shows.
+---------
+
+# 'The Orville' Season 4 Is Officially Written After 4 Years of Cancellation Fears
+
+TV News, The Orville, Seth MacFarlane, Hulu, Science Fiction
+
+Tue, 03 Mar 2026 21:26:29 GMT
+
+https://collider.com/hulu-sci-fi-star-trek-replacement-the-orville-season-4-script-update-seth-macfarlane/
+
+4 years after Season 3 debuted, Seth MacFarlane has provided a very encouraging update on The Orville Season 4.
+---------
+
+# Harrison Ford’s 3 Greatest Sci-Fi Action Films Are Officially Tied at 94% on Rotten Tomatoes
+
+Movie, Harrison Ford, Star Wars, Indiana Jones, Blade Runner
+
+Tue, 03 Mar 2026 21:18:12 GMT
+
+https://collider.com/harrison-ford-sci-fi-action-movies-blade-runner-star-wars-indiana-jones-94-rotten-tomatoes/
+
+Blade Runner, Raiders of the Lost Ark, and Star Wars are all tied at 94% on Rotten Tomatoes, but which sci-fi classic is officially the best?
+---------
+
+# 'Scream 8' Needs to Fix the Most Important Horror Trend
+
+Features, Scream, Scream 7, New Nightmare
+
+Tue, 03 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/scream-8-meta-commentary-new-nightmare/
+
+Following the disappointing critical reaction to 'Scream 7', which stars Neve Campbell as Sidney Prescott, 'Scream 8' needs to tell a specific story.
+---------
+
+# 'The Miniature Wife' Trailer Reveals Elizabeth Banks Peacock Series
+
+TV Trailers, The Miniature Wife, Peacock, Comedy
+
+Tue, 03 Mar 2026 21:52:58 GMT
+
+https://movieweb.com/elizabeth-banks-the-miniature-wife-first-trailer-peacock/
+
+'The Miniature Wife' is not (intentionally) affiliated with the 'Honey, I Shrunk The Kids' movies.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off 'Marshals' Unnderperforms on Paramount+'s Streaming Charts
+
+TV News, Marshals, Paramount Plus, Hot on Streaming, Yellowstone
+
+Tue, 03 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/marshals-streaming-paramount-march-2026/
+
+Taylor Sheridan's new 'Yellowstone' spin-off series, 'Y: Marshals,' with Kayce Dutton, has a weak streaming debut on Paramount+.
+---------
+
 # Bloodborne Just Got New Bosses, Quests, And Weapons In Major Overhaul
 
 Gaming, Bloodborne
