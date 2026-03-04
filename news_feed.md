@@ -1,3 +1,399 @@
+# Blumhouse's Indefinitely Postponed Sci-Fi Thriller Resuscitates Release Hopes After Officially Earning Franchise's First R-Rating
+
+Movies, SOULM8TE, M3GAN
+
+Wed, 04 Mar 2026 18:05:17 GMT
+
+https://screenrant.com/soulm8te-blumhouse-movie-mpa-r-rating-release-hopes/
+
+After releasing two sci-fi thriller movies, Blumhouse’s spinoff film, which was pulled from the calendar, receives an update from the MPA.
+---------
+
+# This Near-Perfect 2010s Crime Thriller Was Secretly A Western In Disguise
+
+Classic TV, Justified
+
+Wed, 04 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/justified-tv-show-thriller-western-in-disguise/
+
+This six-part series should fall squarely in the police drama category, but its unique tone has made it synonymous with the Western genre.
+---------
+
+# Every Arrowverse TV Show, Ranked From Worst To Best
+
+Classic TV, Arrowverse, DC
+
+Wed, 04 Mar 2026 17:45:19 GMT
+
+https://screenrant.com/arrowverse-tv-shows-ranked/
+
+The Arrowverse was an impressive attempt to explore a shared universe inspired by comic book stories, with several incredible shows, and some less so.
+---------
+
+# Abbott Elementary Season 6's Fate Officially Decided By ABC
+
+Network TV, Abbott Elementary
+
+Wed, 04 Mar 2026 17:41:30 GMT
+
+https://screenrant.com/abbott-elementary-season-6-renewal-confirmation/
+
+Ahead of its anticipated return after a brief mid-cycle hiatus, ABC officially confirms the future of Abbott Elementary with the fate of season 6.
+---------
+
+# Neve Campbell's Scream Franchise Return Is The 1st New Horror Movie To Hit Huge Box Office Milestone
+
+Movies, Horror, Box Office Milestone, Scream, Scream 7
+
+Wed, 04 Mar 2026 17:31:49 GMT
+
+https://screenrant.com/scream-7-box-office-100-million-global-milestone/
+
+The new Scream movie, which features Neve Campbell's return, is the first 2026 horror release to hit a key global box office milestone.
+---------
+
+# Paradise Season 2’s Annie Twist Highlights What Makes The Show So Special
+
+Streaming TV, Paradise
+
+Wed, 04 Mar 2026 17:31:20 GMT
+
+https://screenrant.com/paradise-season-2-annie-death-twist-show-special/
+
+Paradise pulled off a major shock with its big newcomer, Annie, and this unexpected surprise quietly revealed what makes the thriller stand out.
+---------
+
+# Attack on Titan Announces Bold New Collaboration, Changing the Franchise Forever
+
+Anime, Attack on Titan, Attack On Titan
+
+Wed, 04 Mar 2026 17:20:41 GMT
+
+https://screenrant.com/attack-titan-jakks-pacific-collaboration-change-franchise-forever/
+
+It is official, Attack on Titan is getting a brand-new collaboration that is setting up huge changes for the massive franchise and its fans.
+---------
+
+# How Would The 2026 Oscars Go If Each Movie Could Only Win One Award?
+
+New Movies, Oscars
+
+Wed, 04 Mar 2026 17:15:20 GMT
+
+https://screenrant.com/oscars-2026-movies-only-win-one-award/
+
+One Battle After Another and Sinners figure to dominate at the 2026 Oscars, but what would the results be like if every film could only win one award?
+---------
+
+# DC Officially Releases Reverse-Flash Design for Flash's New Appearance
+
+Comics, The Flash
+
+Wed, 04 Mar 2026 17:12:54 GMT
+
+https://screenrant.com/flash-new-reverse-flash-design-absolute-dc/
+
+DC officially unveils Reverse-Flash’s striking new look, and fans are already divided over the bold redesign shaking up The Flash’s legacy.
+---------
+
+# Outlander Season 8 Review: The Final Chapter Of Sam Heughan & Caitriona Balfe's Romantasy Reclaims Its Old Magic
+
+Streaming TV, Outlander - Season 8, Outlander
+
+Wed, 04 Mar 2026 17:08:21 GMT
+
+https://screenrant.com/outlander-season-8-review/
+
+Outlander season 8's first three episodes set the stage for a dramatic conclusion, welcoming back the enveloping magic that once defined the series.
+---------
+
+# Tony's Greatest Sopranos Line Is the Most Powerful Crime TV Quote
+
+TV, The Sopranos, Crime, hbo
+
+Wed, 04 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/tony-soprano-best-crime-tv-quote/
+
+This line from the first episode of The Sopranos introduced audiences to Tony's worldview, setting up his arc for the entire iconic HBO series.
+---------
+
+# Tina Fey's The Four Seasons Officially Confirms Season 2 Release Date
+
+TV, The Four Seasons
+
+Wed, 04 Mar 2026 17:33:37 GMT
+
+https://www.cbr.com/tina-fey-the-four-seasons-season-2-release-date/
+
+Pack your bags, as new holidays await with Netflix's wanderlust, drama-filled series is almost pack.
+---------
+
+# Invincible Gives Explosive Look At Why Lee Pace's Thragg Is An Extinction-Level Threat
+
+TV, Action, Invincible
+
+Wed, 04 Mar 2026 17:23:09 GMT
+
+https://www.cbr.com/invincible-explosive-look-at-lee-pace-thragg-extinction-level-threat-prime-video/
+
+The latest reveal for Season 4 of Invincible is beginning to make everyone understand what Thragg is about to do to Earth.
+---------
+
+# 10 Best New Anime to Watch in March 2026
+
+Anime
+
+Wed, 04 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/10-best-new-anime-to-watch-in-march-2026/
+
+10 anime that need to be caught up to in March 2026, from new debuts to latest seasons from compelling anime.
+---------
+
+# Abbott Elementary’s Fate Sealed by ABC Ahead of Season 5 Finale
+
+TV, Abbott Elementary
+
+Wed, 04 Mar 2026 17:07:39 GMT
+
+https://www.cbr.com/abbott-elementary-renewed-season-6-abc/
+
+ABC reveals whether school will remain in session at Abbott Elementary for another season.
+---------
+
+# 'I Don’t Want To Do This Ever Again’: Dolly's Seann William Scott Hints At Quitting Horror
+
+Movies, Dolly
+
+Wed, 04 Mar 2026 17:00:40 GMT
+
+https://www.cbr.com/dolly-seann-william-scott-quitting-horror-over-gruesome-moment/
+
+Dolly may be Seann William Scott's last horror movie for one revolting reason.
+---------
+
+# New Yellowstone Spinoff Is Already Running Out of Steam on Paramount+ After Just 3 Days
+
+TV, Marshals
+
+Wed, 04 Mar 2026 17:00:13 GMT
+
+https://www.cbr.com/yellowstone-marshals-paramount-plus-running-out-of-steam/
+
+Yellowstone fans are quickly checking out of the latest spinoff set in Taylor Sheridan's expansive neo-Western universe.
+---------
+
+# Disney’s Pirates of the Caribbean Remains the Best Adventure Movies Ever
+
+Movies, Pirates of the Caribbean, Pirates of the Caribbean: The Curse of the Black Pearl, Disney
+
+Wed, 04 Mar 2026 17:00:13 GMT
+
+https://www.cbr.com/pirates-of-the-caribbean-best-adventure-movie-ever/
+
+Pirates of the Caribbean: The Curse of the Black Pearl is a perfect Disney movie and also a standout adventure film, still worth watching.
+---------
+
+# Netflix's Jo Nesbø's Detective Hole Will Make Bosch Look Tame
+
+TV, Netflix, Joe Nesbø's Detective Hole, Crime
+
+Wed, 04 Mar 2026 17:00:13 GMT
+
+https://www.cbr.com/netflix-jo-nesbos-detective-hole-darker-than-bosch/
+
+Netflix is poised to deliver a psychological-horror-infused thriller that challenges what viewers have come to expect from the crime genre.
+---------
+
+# DC Comics Is Turning Marvel's Major Mistake Into A Massive Win
+
+Comics, DC Comics, Marvel
+
+Wed, 04 Mar 2026 17:00:13 GMT
+
+https://www.cbr.com/dc-comics-major-marvel-mistake-absolutely-genius/
+
+With the end of Marvel's Ultimate Universe around the corner, DC Comics is taking advantage of their competitor's mistake in a major way.
+---------
+
+# 'FBI' Hits 150th Episode Milestone With a Personal Mission for Eva Ramos in New Images [Exclusive]
+
+TV News, FBI, CBS, Paramount Plus
+
+Wed, 04 Mar 2026 18:00:12 GMT
+
+https://collider.com/fbi-cbs-150th-episode-first-look-images-juliana-aiden-martinez-missy-peregrym-zeeko-zaki/
+
+In the upcoming 150th episode of FBI, Special Agent Eva Ramos confronts her past when a dangerous drug kingpin resurfaces. Check out the images now!
+---------
+
+# HBO’s Epic New Fantasy Series Officially Adds a Crucial Character to Season 2's Expanding Cast
+
+TV News, A Knight Of The Seven Kingdoms, Game Of Thrones, Lucy Boynton, Fantasy
+
+Wed, 04 Mar 2026 17:59:35 GMT
+
+https://collider.com/a-knight-of-the-seven-kingdoms-season-2-cast-lucy-boynton-lady-rohanne-hbo-game-of-thrones-spin-off/
+
+Season 2 of HBO's A Knight of the Seven Kingdoms has found its Lady Rohanne with Barbie's Lucy Boynton.
+---------
+
+# Apple TV Just Axed Its Most Underrated 2-Part Series
+
+TV News, Palm Royale, Kristen Wiig, Carol Burnett, Laura Dern
+
+Wed, 04 Mar 2026 17:49:00 GMT
+
+https://collider.com/apple-tv-palm-royale-season-3-cancelled-kristen-wiig-dark-comedy/
+
+After 2 critically acclaimed seasons, Apple TV and Kirsten Wiig's darkly comedic series The Palm Royale has had its fate decided.
+---------
+
+# Netflix’s ‘White Lotus’ Rival Finally Has a Season 2 Release Date
+
+TV News, The Four Seasons, Tina Fey, Will Forte, Colman Domingo
+
+Wed, 04 Mar 2026 17:40:25 GMT
+
+https://collider.com/netflix-the-four-seasons-season-2-release-date-first-images-tina-fey-will-forte-colman-domingo/
+
+Tina Fey, Will Forte, and Colman Domingo are ready to check into The Four Seasons for the 2nd chapter in some brand new images.
+---------
+
+# Star Wars' New Prequel Story Gets 30-Minute Behind the Scenes Look [Exclusive]
+
+Exclusives, Star Wars, Lucasfilm, Books
+
+Wed, 04 Mar 2026 17:31:13 GMT
+
+https://collider.com/star-wars-outlaws-low-red-moon-author-mike-chen-narrators-jay-rincon-eric-johnson-audiobook-explained/
+
+Penguin Random House has shared a new sit-down interview between the author and narrators of the new Star Wars Outlaws prequel, Low Red Moon.
+---------
+
+# After 5 Seasons, ABC Just Decided the Fate of Its Most Popular Comedy Ever
+
+TV News, Abbott Elementary, ABC, Quinta Brunson, Sitcom
+
+Wed, 04 Mar 2026 17:28:39 GMT
+
+https://collider.com/abbott-elementary-season-6-renewed-abc-award-winning-sitcom/
+
+ABC's awards season darling, Abbott Elementary, has officially had its fate decided after 5 amazing seasons.
+---------
+
+# 7-Part Historical Detective Series Sets Final Chapter as Filming Begins
+
+TV News, Miss Scarlet and The Duke, PBS, Drama, Mystery
+
+Wed, 04 Mar 2026 17:02:40 GMT
+
+https://collider.com/miss-scarlet-season-7-series-ending-pbs-filming-begins-production-start/
+
+Historical murder mystery detective drama series Miss Scarlet is officially set to end with Season 7 which is now in production.
+---------
+
+# 1 Global Tour, 2 Oscars, Now Get a First Look at Billie Eilish’s 3D Concert Film [Exclusive]
+
+Movie News, Collider Exclusive Preview, Billie Eilish, James Cameron, Music
+
+Wed, 04 Mar 2026 17:00:13 GMT
+
+https://collider.com/billie-eilish-hit-me-hard-and-soft-tour-concert-film-3d-first-look-image/
+
+Get an exclusive look at Billie Eilish's upcoming concert movie, Hit Me Hard and Soft: The Tour (Live in 3D), set to release in theaters on May 8.
+---------
+
+# All 7 'Scream' Movies, Ranked by Scariness
+
+Movie, Scream, Scream VI, Scream 7
+
+Wed, 04 Mar 2026 16:46:13 GMT
+
+https://collider.com/scream-movies-ranked-scariness/
+
+This is the definitive ranking of every Scream movie, from Wes Craven's 1996 original to Scream 7, purely by scariness.
+---------
+
+# It's Crime Time in Action-Packed Season 2 Trailer for 'The Bad Guys' Prequel Series [Exclusive]
+
+Exclusives, The Bad Guys: Breaking In, Netflix, Chris Diamantopoulos, Patton Oswalt
+
+Wed, 04 Mar 2026 16:30:17 GMT
+
+https://collider.com/the-bad-guys-breaking-in-season-2-trailer-netflix/
+
+The Bad Guys: Breaking In sets its return with an action-packed Season 2 trailer that has Mr. Wolf in the gaming taking on new, more daring heists.
+---------
+
+# 'Bridgerton' Season 5: Confirmation, Plot, Cast & Everything We Know
+
+Features, Bridgerton, Everything We Know
+
+Wed, 04 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/bridgerton-season-5-everything-we-know/
+
+'Bridgerton' Season 5 has been confirmed by Netflix, and Season 4 of the hit romance series stars Yerin Ha and Luke Thompson as Sophie and Benedict.
+---------
+
+# HBO's 'Lanterns' Teaser Finally Offers New Look at DCU Series
+
+TV News, Lanterns
+
+Wed, 04 Mar 2026 17:38:55 GMT
+
+https://movieweb.com/hbo-lanterns-teaser-dcu-reboot/
+
+The long-awaited DCU reboot of 'Green Lantern' has been unleashed in a new teaser for 'Lanterns' from HBO.
+---------
+
+# Keanu Reeves Underrated Action Flop '47 Ronin' Makes a Comeback on Streaming
+
+Movie News, 47 Ronin, HBO Max, Hot on Streaming
+
+Wed, 04 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/47-ronin-streaming-hbo-max-march-2026/
+
+Keanu Reeves' divisive samurai action box office flop '47 Ronin' is a streaming success on HBO Max.
+---------
+
+# How To Watch the MonsterVerse in Chronological Order and Release Order
+
+Features, Monsterverse, Godzilla, King Kong
+
+Wed, 04 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/monsterverse-movie-order/
+
+The MonsterVerse has a rich and complex mythology, and here is how to keep track of watching the Godzilla and Kong hybrid franchise.
+---------
+
+# 'Five Nights at Freddy's 2' Peacock Streaming Release Date Revealed
+
+Movie News, Five Nights at Freddy's 2, Five Nights at Freddy’s, Peacock, Horror
+
+Wed, 04 Mar 2026 16:43:19 GMT
+
+https://movieweb.com/five-nights-at-freddys-2-streaming-release-date/
+
+The divisive second entry in the 'Five Nights at Freddy's' series comes to Peacock in April.
+---------
+
+# 'Scary Movie 6' Lands New Release Date
+
+Movie News, Scary Movie 6
+
+Wed, 04 Mar 2026 16:12:21 GMT
+
+https://movieweb.com/scary-movie-6-release-date-change/
+
+Paramount has bumped up the release of 'Scary Movie' by one week, with franchise star Marlon Wayans teasing what jokes to expect from the sixth film.
+---------
+
 # PBS' Long-Running Sherlock Holmes Replacement Officially Ending After 7 Seasons
 
 TV, Miss Scarlet and The Duke
