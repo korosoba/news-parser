@@ -1,3 +1,333 @@
+# PBS' Long-Running Sherlock Holmes Replacement Officially Ending After 7 Seasons
+
+TV, Miss Scarlet and The Duke
+
+Wed, 04 Mar 2026 16:05:52 GMT
+
+https://screenrant.com/miss-scarlet-and-the-duke-season-7-ending-confirmed-pbs-masterpiece/
+
+PBS Masterpiece has confirmed that intrepid detective Eliza Scarlet and her friends will return for one last season in Miss Scarlet season 7.
+---------
+
+# Steam's New Free 9/10 RPG Is A Narrative-Driven Hit
+
+Gaming, Steam, PC, Indie
+
+Wed, 04 Mar 2026 16:04:32 GMT
+
+https://screenrant.com/steam-free-game-9-10-rpg-march-2026/
+
+Steam players who are interested in detective games should check out a new RPG release that is being offered for free and is praised by players.
+---------
+
+# X-Men's Iceman Unleashes New Codename and Powers, After 63 Years
+
+Comics, X-Men
+
+Wed, 04 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/x-men-iceman-new-powers-omega-level/
+
+An iconic X-Men hero who founded the team 63 years ago just underwent a permanent transformation, becoming one of the most powerful mutants.
+---------
+
+# Jimmy Tatro Steals The Show In Scream 7's Opening Scene
+
+Movies, Scream 7
+
+Wed, 04 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/scream-7-opening-scene-franchise-best-gag/
+
+The Scream movies have always been renowned for their opening scenes, and despite its many glaring flaws, Scream 7 nails its opening scene.
+---------
+
+# Spider-Man: Far From Home: The MCU's Underrated Rom-Com
+
+Movies, Marvel Cinematic Universe, Spider-Man: Far from Home, Op-Ed
+
+Wed, 04 Mar 2026 15:45:19 GMT
+
+https://screenrant.com/mcu-romantic-comedy-spider-man-far-from-home/
+
+The MCU might be known for epic superhero action but one of its films is actually a romantic comedy and a really good one at that.
+---------
+
+# Zelda, Red Dead Redemption Collide In New Open-World Game That's Available Now
+
+Gaming, Steam, Red Dead Redemption 2, The Legend of Zelda: Tears of the Kingdom
+
+Wed, 04 Mar 2026 15:28:59 GMT
+
+https://screenrant.com/zelda-red-dead-redemption-new-open-world-rpg/
+
+A new open-world game with some real Red Dead DNA combines horse breeding, training, and exploration in a take on 13th century Mongolia.
+---------
+
+# Taylor Sheridan's New 13-Part Western Series Officially Breaks Huge 8-Year Viewership RecordTaylor Sheridan's New 13-Part Western Series Officially Breaks Huge 8-Year Viewership Record
+
+TV, Marshals, Yellowstone
+
+Wed, 04 Mar 2026 15:28:40 GMT
+
+https://screenrant.com/taylor-sheridan-marshals-premiere-scripted-series-viewership-record/
+
+Yellowstone spinoff Marshals is off to a great start, breaking a CBS record that has stood for almost a decade and beating the original series.
+---------
+
+# Xbox Game Pass Just Shadow-Dropped A Phenomenal Free Zelda-Like
+
+Gaming, Xbox Game Pass, PC
+
+Wed, 04 Mar 2026 15:23:34 GMT
+
+https://screenrant.com/xbox-game-pass-free-zelda-like-march-2026/
+
+Xbox has officially announced March's lineup of free games headed to Xbox Game Pass, and it includes a true hidden gem for Zelda fans.
+---------
+
+# It's The End Of An Era For PlayStation 5
+
+Gaming, playstation 5, Triple-A Games, PC
+
+Wed, 04 Mar 2026 15:22:01 GMT
+
+https://screenrant.com/playstation-5-no-more-pc-games-sales/
+
+While Sony has branched out to multiple forms of distribution in recent years, a report suggests that there's going to be a drastic shift.
+---------
+
+# Marvel Officially Announces New Leader for the Avengers' New Appearance
+
+Comics, The Avengers
+
+Wed, 04 Mar 2026 15:15:21 GMT
+
+https://screenrant.com/avengers-new-leader-change-iron-man-tony-stark-armageddon/
+
+As the Avengers officially embark on a major new era, Marvel has announced that the team will have a surprise new leader. What you need to know.
+---------
+
+# As Rick and Morty Nears The End, We Have An Exclusive Preview
+
+Comics, Rick and Morty
+
+Wed, 04 Mar 2026 16:05:45 GMT
+
+https://www.cbr.com/rick-morty-end-near-exclusive-preview/
+
+Rick and Morty's finale is fast approaching, and CBR has an exclusive preview of this week's Rick and Morty: The End #4
+---------
+
+# Why Anders Holm Refused to Do One Specific Impression in Monarch Season 2
+
+Movies, Monarch: Legacy of Monsters, Sci-Fi, Kong: Skull Island
+
+Wed, 04 Mar 2026 16:05:39 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-anders-holm-john-goodman-impression/
+
+Monarch: Legacy of Monsters Season 2 star Anders Holm reveals to CBR how he crafted his performance as a young John Goodman.
+---------
+
+# Five Nights at Freddy's 2 Sets Peacock Release Date
+
+Movies, Five Nights at Freddy's, Five Nights at Freddy's 2
+
+Wed, 04 Mar 2026 16:04:10 GMT
+
+https://www.cbr.com/five-nights-at-freddys-2-peacock-release-date-april-2026/
+
+The franchise has been very popular with audiences, but critics hate it.
+---------
+
+# Gundam Wing Unites With Free-To-Play Game Apex Legends for 30th Anniversary
+
+Anime, Mobile Suit Gundam Wing, Gundam, Apex Legends
+
+Wed, 04 Mar 2026 16:01:25 GMT
+
+https://www.cbr.com/gundam-wing-30th-anniversary-apex-legends-release/
+
+Mobile Suit Gundam Wing is officially collaborating with one of the most popular free-to-play games in the U.S. for its 30th anniversary.
+---------
+
+# These Classic Game Boy Advance Games Are 10/10, No Notes
+
+Games, Pokemon, The Legend of Zelda
+
+Wed, 04 Mar 2026 16:00:11 GMT
+
+https://www.cbr.com/game-boy-advance-best-pokemon-games-of-all-time/
+
+These GBA games come as close to perfection as any titles Nintendo has ever released.
+---------
+
+# HBO's Downton Abbey Replacement Adds Snow White Star as Season 4's Plot Is Unveiled
+
+TV, The Gilded Age
+
+Wed, 04 Mar 2026 15:28:09 GMT
+
+https://www.cbr.com/hbo-the-gilded-age-season-4-casting-synopsis-update/
+
+The cast of HBO's Downton Abbey replacement continues to grow ahead of the show's Season 4 return.
+---------
+
+# 16 Years Later, Scrubs Revival Sets ABC's Best Streaming Viewership
+
+TV, Scrubs
+
+Wed, 04 Mar 2026 15:00:26 GMT
+
+https://www.cbr.com/scrubs-revival-premiere-ratings-abc-best-streaming-viewership/
+
+Scrubs has already proven how to make a successful revival.
+---------
+
+# Denis Villeneuve's Dune Trilogy Is Skipping Children of Dune
+
+Movies, Sci-Fi, Dune
+
+Wed, 04 Mar 2026 15:00:26 GMT
+
+https://www.cbr.com/denis-villeneuve-dune-trilogy-skipping-frank-herbert-children-of-dune/
+
+Dune has become a sensation on the big screen with the first two movies in the franchise, but it seems that it is secretly skipping another book.
+---------
+
+# Gaten Matarazzo and Sean Giambrone Get Baked in 8 New Images From ‘Pizza Movie’ [Exclusive]
+
+Exclusives, Gaten Matarazzo, Sean Giambrone, Lulu Wilson, Collider Exclusive Preview
+
+Wed, 04 Mar 2026 16:01:12 GMT
+
+https://collider.com/pizza-movie-stoner-comedy-first-look-images-gaten-matarazzo-sean-giambrone-lulu-wilson/
+
+Get a first look at hilarious stoner comedy Pizza Movie, a new generation's classic featuring Gaten Matarazzo, Sean Giambrone, and Lulu Wilson.
+---------
+
+# Jason Statham’s Latest Action Hit Gets Hailed as “Fantastic” By Stephen King
+
+Movie News, Stephen King, Jason Statham, Shelter, The Beekeeper 2
+
+Wed, 04 Mar 2026 16:01:00 GMT
+
+https://collider.com/stephen-king-praises-jason-statham-shelter/
+
+Stephen King shares his thoughts on Jason Statham's new action hit, Statham, giving the film his official stamp of approval.
+---------
+
+# This Iconic 10-Part Horror Franchise Is Coming to Netflix, but It’s Missing the Best Entry in Years
+
+Movie Features, Saw, James Wan, Leigh Whannell, Spiral
+
+Wed, 04 Mar 2026 15:47:22 GMT
+
+https://collider.com/saw-horror-franchise-best-film-spiral-netflix/
+
+The Saw franchise is coming to Netflix, but the brilliant standalone film, Spiral, is not among them.
+---------
+
+# Paul McCartney's Most Beautiful Song From 2018 Was Inspired by One of the Greatest Songwriters of All Time
+
+Music Features, Paul McCartney, Taylor Swift, Music, Rock
+
+Wed, 04 Mar 2026 15:30:12 GMT
+
+https://collider.com/paul-mccartney-song-who-cares-inspired-by-taylor-swift-friendship/
+
+Friendship between legendary musician Paul McCartney and pop superstar Taylor Swift rooted in mutual respect inspired his song Who Cares.
+---------
+
+# 60 Years Ago Today, John Lennon Almost Ruined The Beatles With This Outrageous Moment
+
+Music Features, The Beatles, Music, John Lennon, Rock
+
+Wed, 04 Mar 2026 15:15:13 GMT
+
+https://collider.com/john-lennon-almost-ruined-the-beatles-more-popular-than-jesus/
+
+John Lennon's infamous 1966 Jesus comment threatened The Beatles' career and future, leading to the band's decision to stop touring and Sgt. Peppers.
+---------
+
+# Tom Hanks' Epic New 20-Part World War II Series Sets Release Date
+
+TV News, Tom Hanks, World War II, Saving Private Ryan, War
+
+Wed, 04 Mar 2026 15:07:24 GMT
+
+https://collider.com/tom-hanks-new-ww2-documentary-series-release-date-the-history-channel/
+
+Tom Hanks' new WW2 series, World War II with Tom Hanks has set a release date on the History channel.
+---------
+
+# "With All Due Respect," Christian Bale Says 'The Bride!' Sets the Record Straight Where Mary Shelley Got It Wrong
+
+Exclusives, The Bride!, Christian Bale, Jessie Buckley, Maggie Gyllenhaal
+
+Wed, 04 Mar 2026 15:00:26 GMT
+
+https://collider.com/the-bride-christian-bale-jessie-buckley-penelope-cruz-maggie-gyllenhaal-peter-sarsgaard-interview/
+
+The stars discuss the tonal tightrope, the creation of The Bride and Frank, how Mary Shelley got it wrong and the importance of strong scene partners.
+---------
+
+# Netflix’s Upcoming Fantasy Drama Pairs Sally Field and Lewis Pullman in New Look Ahead of May 8 Release [Exclusive]
+
+Exclusives, Remarkably Bright Creatures, Sally Field, Lewis Pullman, Collider Exclusive Preview
+
+Wed, 04 Mar 2026 15:00:26 GMT
+
+https://collider.com/remarkably-bright-creatures-image-sally-field-lewis-pullman-netflix-adaptation-fantasy-drama/
+
+A new image from Netflix's Remarkably Bright Creatures adaptation sets Sally Field and Lewis Pullman on a wondrous, life-affirming journey.
+---------
+
+# Apple TV's 'Slow Horses' Creator Set to Remake Ian McShane's Iconic '80s Detective Series
+
+TV News, Slow Horses, BBC, Drama, Crime
+
+Wed, 04 Mar 2026 14:43:39 GMT
+
+https://collider.com/slow-horses-creator-jackson-lamb-lovejoy-series-remake/
+
+Apple TV's Slow Horses creator, Jackson Lamb, is set to remake Ian McShane's iconic detective series Lovejoy.
+---------
+
+# 'Little House on the Prairie' Netflix Release Date, First Look Revealed
+
+TV News, Little House on the Prairie
+
+Wed, 04 Mar 2026 15:31:46 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-release-date-first-look/
+
+Netflix's new reboot of 'Little House on the Prairie' has been revealed in the first look image and release date.
+---------
+
+# Luke Grimes' Underrated Western Remake Is a Must-Watch for 'Marshals' Fans
+
+Movie News, The Magnificent Seven, Streaming Recommendations, Western
+
+Wed, 04 Mar 2026 15:00:29 GMT
+
+https://movieweb.com/the-magnificent-seven-streaming-mgm-plus-march-2026/
+
+A remake of a remake, Antoine Fuqua's 'The Magnificent Seven' is way better than critics think, and a must-watch for Luke Grimes fans.
+---------
+
+# 'Scream 7' Fixes a Frustrating Problem with 'Scream 2022' and 'Scream VI'
+
+Features, Scream 7
+
+Wed, 04 Mar 2026 15:00:29 GMT
+
+https://movieweb.com/scream-7-sidney-prescott-great-storyline-op-ed/
+
+'Scream 7' stars Neve Campbell as final girl Sidney Prescott and includes an element that was missing from 'Scream (2022)' and 'Scream VI.'
+---------
+
 # Resident Evil Requiem DLC Lead Character Leaks
 
 Gaming, Resident Evil 9, Triple-A Games, PC
