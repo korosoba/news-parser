@@ -1,3 +1,80 @@
+# Leon's Fate In Resident Evil Requiem Ending Shocks Fans
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Wed, 04 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/resident-evil-requiem-leon-death-bad-ending-reactions/
+
+Resident Evil Requiem continues Leon S. Kennedy's iconic long-running story, and a lot of players weren't prepared for a shocking conclusion.
+---------
+
+# Assassin's Creed Legend Ezio Set To Return, But Fans Are Divided
+
+Gaming
+
+Wed, 04 Mar 2026 11:19:36 GMT
+
+https://screenrant.com/assassins-creed-ezio-return-hexe/
+
+Rumors suggest Ezio Auditore may return in Assassin's Creed Hexe, guiding the protagonist and teaching Assassin's Guild skills. Set for a 2027 release
+---------
+
+# Metal Gear Solid x Rainbow Six Siege (How To Unlock, Abilities, & Cosmetics
+
+Gaming, Tom Clancy's Rainbow Six Siege, Live Service Games, PC
+
+Wed, 04 Mar 2026 11:06:30 GMT
+
+https://screenrant.com/rainbow-six-siege-mgs-solid-snake-unlock-abilities/
+
+Rainbow Six Siege just got a major addition to its operator pool, offering easily the best collaboration effort the series has seen yet.
+---------
+
+# Dark Souls Publisher Teases New RPG, Mark Your Calendars
+
+Gaming, Dark Souls
+
+Wed, 04 Mar 2026 11:05:36 GMT
+
+https://screenrant.com/dark-souls-publisher-bandai-namco-new-rpg-teaser/
+
+Bandai Namco Entertainment has announced a new RPG set to be unveiled this Thursday or Friday.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 4, 2026
+
+Movie, Rango, Zootopia, Zootopia 2, Toy Story 3
+
+Wed, 04 Mar 2026 12:00:12 GMT
+
+https://collider.com/movie-quiz-mar-4-2026-zootopia-rango/
+
+Two animated features, released on the exact same month and day: March 4th! Rango was in 2011 and Zootopia was in 2016. Can you tell them apart?
+---------
+
+# 'Zootopia' Is Still Disney's Greatest Movie of the Century
+
+Features, Disney, Zootopia
+
+Wed, 04 Mar 2026 12:00:17 GMT
+
+https://movieweb.com/zootopia-disney-best-original-movie/
+
+'Zootopia' remains Disney's best movie of all time, and not just because of its box office haul.
+---------
+
+# 'The Matrix 5' Is "Still in the Works," Director Drew Goddard Confirms
+
+Movie News, Keanu Reeves, Action, Sci-Fi, The Matrix, The Matrix 5
+
+Wed, 04 Mar 2026 11:06:57 GMT
+
+https://movieweb.com/matrix-5-happening-script-update/
+
+The 'Project Hail Mary' and 'Lost' writer revealed what's going on with the next chapter in sci-fi action saga.
+---------
+
 # Steam Just Revived Its Biggest Ever Free Game, Yours To Keep Now
 
 Gaming, Steam, Counter-Strike: Global Offensive
