@@ -1,3 +1,355 @@
+# A24 Wins Against 20 Studios To Adapt Mystery Thriller Novel Into TV Series
+
+TV, A24
+
+Wed, 04 Mar 2026 22:47:24 GMT
+
+https://screenrant.com/we-are-the-dead-tv-show-rights-a24-wins-bid-report/
+
+A24 wins a massive bidding war against 20 different studios to adapt an upcoming mystery thriller novel into a television series.
+---------
+
+# Marvel Has Only One Path to Fix Its Most Controversial Spider-Man Story
+
+Comics, Spider-Man
+
+Wed, 04 Mar 2026 22:38:23 GMT
+
+https://screenrant.com/marvel-fix-spider-man-one-more-day-controversy-path/
+
+The Amazing Spider-Man hasn't been the same in a long while, and only one proposed story event could possibly unearth it from the rut it is in.
+---------
+
+# Prime Video's 7-Part Crime Thriller Series Is So Good, The Franchise Might Never End
+
+TV, Bosch
+
+Wed, 04 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/bosch-universe-prime-video-franchise-never-end/
+
+Although Prime Video's iconic crime thriller franchise has been around for over a decade, these book adaptations show no sign of slowing down yet.
+---------
+
+# How School Spirits Season 3 Ending Twist Will Impact Season 4 Addressed By Creators
+
+TV, School Spirits
+
+Wed, 04 Mar 2026 22:27:57 GMT
+
+https://screenrant.com/school-spirits-season-4-boundary-twist-impact-tease-nate-megan-trinrud-oliver-goldstick/
+
+School Spirits season 4 will be significantly impacted by the show's latest twist, with the executive producing trio previewing what's next.
+---------
+
+# Every Green Lantern Confirmed In The DC Universe
+
+TV, Lanterns, DC Universe
+
+Wed, 04 Mar 2026 22:20:19 GMT
+
+https://screenrant.com/every-green-lantern-corps-member-confirmed-for-the-dc-universe/
+
+James Gunn's DC Universe has confirmed the existence of several Green Lanterns. Here are all the known members of the intergalactic group.
+---------
+
+# Margot Robbie’s Ocean’s Eleven Prequel Movie Hits Major New Setback
+
+Movies, Ocean's Eleven
+
+Wed, 04 Mar 2026 22:12:54 GMT
+
+https://screenrant.com/margot-robbies-oceans-eleven-prequel-director-exits/
+
+Margot Robbie's untitled Ocean's Eleven prequel just suffered a major setback that could impact the film's future.
+---------
+
+# Stephen Amell's New Baywatch Reboot Casts Major Buchannon Role
+
+TV, Baywatch
+
+Wed, 04 Mar 2026 22:12:34 GMT
+
+https://screenrant.com/baywatch-reboot-jessica-belkin-charlie-vale-cast/
+
+Baywatch is heading back to the small screen for the 2026-2027 TV season, and another actor has just been cast in a major role opposite Stephen Amell.
+---------
+
+# New Lanterns Trailer: 10 Biggest Reveals About The Green Lantern Show & DCU Connections
+
+Superheroes, Lanterns, DC Universe
+
+Wed, 04 Mar 2026 22:10:24 GMT
+
+https://screenrant.com/lanterns-trailer-10-biggest-reveals-dcu-connections/
+
+The first trailer for DC Studios' Lanterns series has arrived, featuring a collection of exciting Green Lantern first looks and DCU connections.
+---------
+
+# 10 Best Sherlock Holmes Actors Of All Time, Ranked
+
+Streaming TV, Sherlock Holmes
+
+Wed, 04 Mar 2026 22:00:21 GMT
+
+https://screenrant.com/sherlock-holmes-actors-ranked/
+
+Sherlock Holmes has been played by hundreds of actors on film and TV, and some have stood out for their loyalty to the books or their unique approach.
+---------
+
+# Fallout 5 Be Damned, Fallout: The New West Is Coming
+
+Gaming, Fallout, Fallout: New Vegas, Fallout 5
+
+Wed, 04 Mar 2026 22:00:21 GMT
+
+https://screenrant.com/fallout-new-west-march-2026-demo-fan-project/
+
+A new demo for the Fallout: New Vegas overhaul that brings the cancelled Project Van Buren to life is about to release for the first time.
+---------
+
+# Margot Robbie’s Ocean’s 11 Prequel Director Exits Due to Creative Differences
+
+Movies, Ocean's Eleven
+
+Wed, 04 Mar 2026 22:48:27 GMT
+
+https://www.cbr.com/margot-robbies-oceans-11-prequel-hits-a-major-setback-as-director-exits/
+
+Warner Bros. and LuckyChap's Ocean's Eleven prequel starring Margot Robbie faces a setback as critically-acclaimed director Lee Isaac exits.
+---------
+
+# Gerard Butler's New Action Movie Empire City Adds Angel Has Fallen Co-Star Danny Huston
+
+Movies, Empire City, Gerard Butler
+
+Wed, 04 Mar 2026 22:34:15 GMT
+
+https://www.cbr.com/gerard-butler-empire-city-casts-danny-huston/
+
+Gerard Butler's next action thriller is in the works with new cast members revealed, including an exciting Fallen reunion.
+---------
+
+# Boba Fett’s Star Wars Future: Temuera Morrison ‘Put On the Shelf’
+
+TV, The Book of Boba Fett, Star Wars, Sci-Fi
+
+Wed, 04 Mar 2026 22:31:22 GMT
+
+https://www.cbr.com/temuera-morrison-boba-fett-star-wars-future-shelved/
+
+Temuera Morrison, who played Boba Fett, reveals that Lucasfilm has 'put him on the shelf' and may bring the character back later.
+---------
+
+# Jeremy Renner's Forgotten Doc Holliday Movie Will Never Beat Tombstone
+
+Movies, Western, Tombstone
+
+Wed, 04 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/jeremy-renner-doc-holliday-forgotten-tombstone-movie/
+
+Doc Holliday has become an legendary figure in cinema, but it's for the best that Jeremy Renner's attempt at the character has been forgotten.
+---------
+
+# 5 Anime Beach Episodes Essential for Spring Break
+
+Anime, Shonen, Shojo, Attack On Titan, Jujutsu Kaisen, Gintama, Bleach
+
+Wed, 04 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/anime-beach-episodes-spring-break-viewing/
+
+Heading to the beach for spring break is a treasured pastime for students, and anime has a habit of perfectly capturing beach shenanigans.
+---------
+
+# Armageddon Tops Tubi Streaming Charts 28 Years Later
+
+Movies, Tubi, Armageddon, Ben Affleck
+
+Wed, 04 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/ben-affleck-armaggedon-sci-fi-tubi-success-march-2026/
+
+While critics were not kind to the misunderstood film, it's still finding new audiences almost three decades later.
+---------
+
+# Project Hail Mary Could Be the Best Emotional Sci-Fi Film Since ET
+
+Movies, Project Hail Mary, E.T. the Extra-Terrestrial, Sci-Fi
+
+Wed, 04 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/et-project-hail-mary-emotional-sci-fi-successor/
+
+Project Hail Mary's powerful alien friendship can become the first bond since E.T. the Extra-Terrestrial to hit like a generational classic.
+---------
+
+# Marshals: Monica's Tragic Fate Explained
+
+TV, Marshals, Yellowstone, Western
+
+Wed, 04 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/did-monica-dutton-die-in-yellowstone-marshals-explained/
+
+Yellowstone reveals Monica Long-Dutton's fate in Kayce's new spinoff show for CBS, Marshals, explaining why Kelsey Asbille didn't join the series.
+---------
+
+# 10 Marvel Comics Villains Who Are Just Hateful
+
+Superheroes, Marvel
+
+Wed, 04 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/marvel-villains-who-are-defined-by-pure-hatred/
+
+Marvel Comics' most memorable villains are driven by their hatred.
+---------
+
+# Guillermo del Toro Gives Ryan Gosling's Project Hail Mary a Stellar Review
+
+Movies, Project Hail Mary, guillermo del toro, ryan gosling
+
+Wed, 04 Mar 2026 21:46:12 GMT
+
+https://www.cbr.com/guillermo-del-toro-ryan-gosling-project-hail-mary-review/
+
+After comparisons to Interstellar, the upcoming sci-fi film received a great review from a critically acclaimed filmmaker.
+---------
+
+# 2 Years After the CBS Series Ended, 'Blue Bloods' Icon Joins Christopher Meloni's Ambitious Sports Series
+
+TV News, Bridget Moynahan, Dan Fogelman, Paradise, Blue Bloods
+
+Wed, 04 Mar 2026 22:55:36 GMT
+
+https://collider.com/hulu-sports-series-the-land-cast-blue-bloods-star-bridget-moynahan/
+
+Paradise creator Dan Fogelman's upcoming sports series with Christopher Meloni has added another crime procedural favorite. Read on for more.
+---------
+
+# 'The Mummy 4' Directors Confirm the Franchise's Worst Movie Isn't Canon
+
+Movie News, The Mummy: Tomb of the Dragon Emperor, Rachel Weisz, The Mummy, Radio Silence
+
+Wed, 04 Mar 2026 22:53:53 GMT
+
+https://collider.com/the-mummy-4-tomb-of-the-dragon-emperor-not-canon-directors-radio-silence-matt-bettinelli-olpin-tyler-gillett/
+
+The Mummy fans can rest easy knowing that the upcoming fourth movie will ignore the events of Tomb of the Dragon Emperor.
+---------
+
+# Say Goodbye to Netflix’s Forgotten Sci-Fi Action Flick Before It’s Gone for Good
+
+Movie Features, Power Rangers, Naomi Scott, Elizabeth Banks, Bryan Cranston
+
+Wed, 04 Mar 2026 22:52:12 GMT
+
+https://collider.com/biggest-superhero-flop-power-rangers-netflix-march-2026/
+
+Despite an amazing cast and powerful performances, the 2017 Power Rangers film failed to deliver on its promise.
+---------
+
+# This Genre-Defining 24-Episode Historical Fantasy Anime Just Became Harder To Watch
+
+TV Features, Demon Slayer, Anime, Sword of the Demon Hunter: Kijin Gentosho, Crunchyroll
+
+Wed, 04 Mar 2026 22:50:12 GMT
+
+https://collider.com/historical-fantasy-anime-harder-to-watch-sword-of-the-demon/
+
+Sword of the Demon Hunter: Kijin Gentōshō is a dark fantasy anime that fans of Demon Slayer will absolutely love. Here's why you should binge it.
+---------
+
+# Margot Robbie's Long-Delayed 'Ocean's 11' Prequel Hits Another Speed Bump
+
+Movie News, Lee Isaac Chung, Ocean's Eleven, Margot Robbie, Warner Bros.
+
+Wed, 04 Mar 2026 22:35:16 GMT
+
+https://collider.com/margot-robbie-oceans-11-prequel-loses-director-lee-isaac-chung/
+
+Margot Robbie's long-gestating Ocean's 11 prequel has hit a snag, as Minari director Lee Isaac Chung has left the project.
+---------
+
+# Ranking the 10 Most Perfect Disney Animated Movies
+
+Movie, Walt Disney, Animation, Beauty and the Beast, The Lion King
+
+Wed, 04 Mar 2026 22:30:12 GMT
+
+https://collider.com/most-perfect-disney-animated-movies-ranked/
+
+Beauty and the Beast, The Lion King, and Sleeping Beauty are all among the best, most perfect Disney animated movies of all time.
+---------
+
+# 'Industry' Season 5 Needs To Address These 8 Things (or Else)
+
+TV, Industry, HBO, Thriller, Television
+
+Wed, 04 Mar 2026 22:08:12 GMT
+
+https://collider.com/industry-season-5-things-to-address/
+
+The HBO series Industry is set to end with Season 5, and the financial thriller show fully can't wrap up without addressing these things first.
+---------
+
+# Adam Scott Is Haunted in New Look at NEON’s 2026 Irish Horror Movie [Exclusive]
+
+Exclusives, Hokum, Adam Scott, Horror, Collider Exclusive Preview
+
+Wed, 04 Mar 2026 22:00:14 GMT
+
+https://collider.com/adam-scott-hokum-image-irish-horror-movie-supernatural-thriller/
+
+Adam Scott leads the cast in Hokum, a supernatural horror film set in Ireland, where his character discovers a sinister presence in his rental home.
+---------
+
+# 5 Forgotten 2000s Thrillers That Have Aged Like Fine Wine
+
+Movie, Thriller, Insomnia, A History of Violence, Frailty
+
+Wed, 04 Mar 2026 21:54:12 GMT
+
+https://collider.com/forgotten-2000s-thrillers-that-have-aged-like-fine-wine/
+
+From Insomnia to A History of Violence, these overlooked 2000s thrillers have aged beautifully and deserve a second look today.
+---------
+
+# George R.R. Martin Calls HBO’s 5-Part Drama’s Ending the Greatest of All Time
+
+TV Features, George R.R. Martin, HBO, Six Feet Under, Game Of Thrones
+
+Wed, 04 Mar 2026 21:44:14 GMT
+
+https://collider.com/george-rr-martin-greatest-tv-ending-six-feet-under/
+
+After five seasons, Six Feet Under culminated in one of the greatest conclusions of all time when the Fishers were finally put to rest.
+---------
+
+# Mel Gibson & Robert Downey Jr.'s 'The Singing Detective' Forgotten Mystery
+
+Features, Cultural Reassessment, Mel Gibson, The Singing Detective, Mystery, Robert Downey Jr.
+
+Wed, 04 Mar 2026 22:00:19 GMT
+
+https://movieweb.com/singing-detective-mel-gibson-robert-downey-jr-mystery/
+
+In 2003, Mel Gibson and Robert Downey Jr. shared the screen in a detective comedy that boldly mixed genres, but has remained largely forgotten.
+---------
+
+# 'The Bear' Guest Star Jamie Lee Curtis Confirms Fate of Series After Season 5
+
+Movie News, The Bear, Hulu
+
+Wed, 04 Mar 2026 21:54:08 GMT
+
+https://movieweb.com/the-bear-season-5-fate/
+
+Jamie Lee Curtis, one of the biggest guest stars on 'The Bear,' confirmed what the future holds for the show after its Season 5 return.
+---------
+
 # MTG Icon's New TCG Debuts First Look At Retro Card Art
 
 Gaming, Magic: The Gathering, tabletop games
