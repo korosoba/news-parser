@@ -1,3 +1,388 @@
+# The Super Mario Galaxy Movie Has One Of The Longest Runtime In The Nintendo Franchise's History
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Wed, 04 Mar 2026 04:31:24 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-runtime-confirmed-nintendo-franchise-history/
+
+Ahead of its release, The Super Mario Galaxy Movie finally has a runtime, which will become one of the longest in the Nintendo franchise's history.
+---------
+
+# Christian Bale Calls Upcoming American Psycho Remake A “Bold Choice”
+
+Movies, American Psycho
+
+Wed, 04 Mar 2026 03:11:41 GMT
+
+https://screenrant.com/american-psycho-remake-bold-christian-bale-response/
+
+Amid uncertainty about the upcoming American Psycho remake, original Patrick Bateman star Christian Bale calls the project a "bold choice."
+---------
+
+# 6 Upcoming Book Adaptations You Cannot Miss
+
+TV, Cape Fear, Project Hail Mary, Remarkably Bright Creatures, Imperfect Women, The Odyssey, Scarpetta
+
+Wed, 04 Mar 2026 03:03:24 GMT
+
+https://screenrant.com/6-upcoming-book-adaptations-you-cannot-miss/
+
+These 2026 movies and TV shows will bring book stories to life with impressive casts and phenomenal visuals, and you absolutely cannot miss them.
+---------
+
+# This 41-Year-Old Sci-Fi Movie Has The Best Script Of All Time
+
+Classic Movies, Back to the Future
+
+Wed, 04 Mar 2026 03:00:30 GMT
+
+https://screenrant.com/back-to-the-future-best-movie-script/
+
+It's been over 40 years since the release of this '80s sci-fi classic, yet its screenplay is still considered one of the greatest in cinema history.
+---------
+
+# 7 Near-Perfect Isekai Anime No One Remembers
+
+Anime, No Game, No Life
+
+Wed, 04 Mar 2026 03:00:30 GMT
+
+https://screenrant.com/near-perfect-isekai-anime-no-one-remembers/
+
+Isekai has become one of the most popular genres over the past few years, and there are a handful of series that don't get the credit they deserve.
+---------
+
+# New God of War Actor Continues A Weirdly Specific Casting Trend
+
+TV, God of War, Deadpool
+
+Wed, 04 Mar 2026 02:36:02 GMT
+
+https://screenrant.com/god-of-war-actor-continues-casting-trend-ed-skrein-deadpool/
+
+God of War's cast is quite impressive, though one exciting actor joining the Amazon series does continue a weirdly specific casting trend.
+---------
+
+# Jonathan Frakes Directs Final Star Trek Episode: Star Trek: Starfleet Academy 9
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Wed, 04 Mar 2026 02:22:32 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-jonathan-frakes-last-episode-confirm/
+
+Exclusive: Jonathan Frakes directs Star Trek: Starfleet Academy episode 9, and it's the last of his epic run of Star Trek episodes that he has helmed.
+---------
+
+# What Happened To Bishop & Is She Back With Torres? Emily Wickersham's NCIS Season 23 Return Explained
+
+Network TV, NCIS
+
+Wed, 04 Mar 2026 02:00:19 GMT
+
+https://screenrant.com/ncis-season-23-episode-10-recap-explained/
+
+Emily Wickersham returns to NCIS after five years, with the show revisiting Ellie Bishop's loose arcs and setting up her future in the franchise.
+---------
+
+# Better Call Saul: How Breaking Bad Spawned A Flawless Sequel
+
+Classic TV, Better Call Saul
+
+Wed, 04 Mar 2026 01:45:19 GMT
+
+https://screenrant.com/better-call-saul-every-season-perfect-from-start-to-finish/
+
+Not many sequels even come close to their parent show for a single season, let alone six years of gradually increasing superlatives like this one.
+---------
+
+# Hulu’s Sci-Fi Thriller Masterpiece Deserves Its Streaming Success
+
+Streaming TV, Paradise
+
+Wed, 04 Mar 2026 01:15:21 GMT
+
+https://screenrant.com/paradise-hulu-success-2026-deserved-sci-fi-thriller/
+
+This science-fiction thriller series is now in its second season, and it fully deserves all of the nationwide and global streaming success.
+---------
+
+# Stephen King's Sleepwalkers Finds New Streaming Home on Netflix
+
+Movies, Stephen King, Sleepwalkers
+
+Wed, 04 Mar 2026 04:50:58 GMT
+
+https://www.cbr.com/stephen-kings-sleepwalkers-avengers-endgame-of-horror-streaming-netflix-march-2026/
+
+After 29 years, Stephen King's cult classic horror film Sleepwalkers has found a new streaming home on Netflix.
+---------
+
+# Lucifer's Revival: How Netflix Saved a Hidden Gem
+
+TV, Lucifer, Netflix, Fantasy
+
+Wed, 04 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/netflix-saved-lucifer-revival/
+
+Tom Ellis starred in a brilliant fantasy show that was cancelled before it could tell its full story, only to be saved by Netflix at the last minute.
+---------
+
+# Captain America Has the Greatest Quote In Superhero Movie History
+
+Movies, Captain America: The First Avenger, superheroes
+
+Wed, 04 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/mcu-captain-america-first-avenger-greatest-quote-superhero-movies/
+
+The MCU has modernized the superhero genre, and one quote still defines the franchise and the entire genre.
+---------
+
+# 20 Years Later, Blackbeard & Shanks' Groundbreaking Fight Is More Mysterious Than Ever
+
+Anime, One Piece
+
+Wed, 04 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/one-piece-blackbeard-shanks-fight-reveal/
+
+One Piece's legendary Blackbeard vs Shanks battle has only gotten more mysterious since it was first teased.
+---------
+
+# Predator: Badlands Tops Blu-ray and DVD Sales Charts
+
+Movies, Predator: Badlands
+
+Wed, 04 Mar 2026 04:40:10 GMT
+
+https://www.cbr.com/predator-badlands-success-best-selling-movie-blu-ray-dvd-february-2026/
+
+Predator: Badlands, the latest installment in the popular sci-fi franchise, has quickly become the best-selling movie on Blu-ray and DVD.
+---------
+
+# 10 Best Demon Slayer Anime Quotes, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 04 Mar 2026 04:30:13 GMT
+
+https://www.cbr.com/best-demon-slayer-anime-quotes-ranked/
+
+Demon Slayer's best anime quotes won't be forgotten by shonen fans anytime soon.
+---------
+
+# Pokémon Legends: Z-A Adds New Free Download for a Limited Time
+
+Games, Pokemon
+
+Wed, 04 Mar 2026 04:16:16 GMT
+
+https://www.cbr.com/pokemon-legends-z-a-new-free-download-march-2026/
+
+Following the announcement of Pokémon Winds and Pokémon Waves, Pokémon Legends: Z-A continues to be supported.
+---------
+
+# Marshals Officially Rewrites Kayce Dutton’s Yellowstone Arc With 1 Scene
+
+TV, Marshals, Yellowstone, Western
+
+Wed, 04 Mar 2026 04:16:16 GMT
+
+https://www.cbr.com/marshals-kayce-dutton-yellowstone-storyline-rewrite/
+
+The new Yellowstone spinoff, Marshals, has already drastically changed Kayce Dutton's storyline--and this single scene proves it.
+---------
+
+# Peaky Blinders Movie The Immortal Man Gets Exciting Release Update
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Wed, 04 Mar 2026 04:16:16 GMT
+
+https://www.cbr.com/peaky-blinders-the-immortal-man-exciting-release-update-steven-knight/
+
+Netflix has officially announced the release dates for The Immortal Man, and fans don't have to wait long before the Peaky Blinders finale arrives.
+---------
+
+# My Hero Academia Final Season Gets Global Netflix Release Date
+
+Anime, My Hero Academia, Netflix
+
+Wed, 04 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/netflix-mha-final-season-global-release-date/
+
+My Hero Academia fans are less than one month away from the streaming release they have been looking forward to and hoping to avoid in equal measure.
+---------
+
+# ‘Little House on the Prairie’s Brutal 2-Part Episode Completely Rewrites the Series
+
+TV Features, Little House on the Prairie, NBC, Peacock, Netflix
+
+Wed, 04 Mar 2026 04:12:13 GMT
+
+https://collider.com/little-house-on-the-prairie-brutal-2-part-episode-rewrites-series/
+
+Little House on the Prairie hits its darkest in "May We Make Them Proud" with the tragic death of Mary's baby and the fallout for the family.
+---------
+
+# John Wayne Said This Scene Is the Best Performance of His Entire Career
+
+Movie Features, John Wayne, True Grit, Western, John Ford
+
+Wed, 04 Mar 2026 04:06:12 GMT
+
+https://collider.com/true-grit-john-wayne-best-scene/
+
+True Grit is one of John Wayne's best performances, but there's one scene in particular the Duke believed to be the finest work of his career.
+---------
+
+# HBO Max Officially Combining With This Divisive Streamer Could Change 2 Things for Subscribers
+
+TV Features, HBO Max, Warner Bros., Paramount, Streaming
+
+Wed, 04 Mar 2026 04:04:12 GMT
+
+https://collider.com/hbo-max-paramount-plus-merger-subscriber-impact-explained/
+
+HBO Max and Paramount+ plan to merge into one platform. Here’s how the change could affect subscribers and HBO’s future.
+---------
+
+# HBO's Risky 8-Part Classic Was Based on the "Worst Idea" Its Creator Ever Heard
+
+TV Features, Entourage, Doug Ellin, Mark Wahlberg, HBO
+
+Wed, 04 Mar 2026 04:00:12 GMT
+
+https://collider.com/entourage-hbo-series-based-on-mark-wahlberg/
+
+HBO's Hollywood satire Entourage is based on Mark Wahlberg's career, which its creator Doug Ellin thought was a bad idea for a show.
+---------
+
+# 10 Years Ago, This 3-Part Gothic Horror Masterpiece Surprised Fans With an Unexpected Series Finale
+
+TV Features, Penny Dreadful, Eva Green, John Logan, Showtime
+
+Wed, 04 Mar 2026 04:00:12 GMT
+
+https://collider.com/penny-dreadful-horror-masterpiece-surprise-series-finale/
+
+10 years ago, Showtime's horror masterpiece Penny Dreadful ended after three seasons with a series finale that shocked and surprised fans.
+---------
+
+# After 16 Years Away, 'Scrubs' Returns With Record-Shattering Ratings on ABC
+
+TV News, Scrubs, Hulu, ABC
+
+Wed, 04 Mar 2026 03:57:12 GMT
+
+https://collider.com/abc-zach-braff-scrubs-reboot-11-million-views-first-5-days/
+
+ABC's highly anticipated Scrubs reboot is a massive success, becoming one of the network's biggest debuts in 5 days.
+---------
+
+# 26 Episodes Later, 'High Potential' Takes a Completely New Direction With Its Biggest Mystery Ever | Review
+
+TV, High Potential, Kaitlin Olson, Procedural, ABC
+
+Wed, 04 Mar 2026 03:01:12 GMT
+
+https://collider.com/high-potential-season-2-episode-13-recap-review-roman-abducted/
+
+Arthur gets a major breakthrough in Roman's disappearance case in High Potential's latest murder-mystery episode, marking a change from the OG series.
+---------
+
+# Netflix’s 3-Part Action Thriller Is a Perfect Weekend Binge That Makes 'Reacher' Look Soft
+
+TV Features, Netflix, The Night Agent, Reacher, Gabriel Basso
+
+Wed, 04 Mar 2026 02:04:12 GMT
+
+https://collider.com/netflix-thriller-series-the-night-agent-weekend-binge/
+
+The Netflix thriller The Night Agent is the perfect weekend binge, and it should be a go-to for Reacher fans.
+---------
+
+# Netflix Makes Kevin Bacon's 26-Year-Old Sci-Fi Monster Movie Disappear
+
+Movie News, Kevin Bacon, Hollow Man, Horror, Paul Verhoeven
+
+Wed, 04 Mar 2026 01:39:47 GMT
+
+https://collider.com/kevin-bacon-forgotten-sci-fi-horror-movie-hollow-man-leaving-streaming-netflix-february-2026/
+
+The chilling tale of Hollow Man, where Kevin Bacon delivers a haunting performance alongside Josh Brolin, has disappeared from streaming.
+---------
+
+# 1 Year Later, Apple TV's Oscar-Nominated 'Top Gun: Maverick' Successor Laps the Competition
+
+TV News, F1, Brad Pitt, Apple TV, Sports
+
+Wed, 04 Mar 2026 01:27:23 GMT
+
+https://collider.com/brad-pitt-racing-epic-f1-streaming-success-apple-tv-march-2026/
+
+After briefly losing its top spot, the Brad Pitt-led racing epic F1 has returned to the #1 position on Apple TV's streaming charts.
+---------
+
+# 10 Underrated TV Shows You Can Binge in Just 8 Hours
+
+TV Lists, Love Life
+
+Wed, 04 Mar 2026 03:01:17 GMT
+
+https://movieweb.com/underrated-tv-shows-binge-watch/
+
+From 'Love Life' to 'Wet Hot American Summer,' these TV shows have unfortunately been forgotten, but they make for great quick binge-watches.
+---------
+
+# 'Avatar: Fire and Ash' Box Office Overcomes 'Jurassic Park'
+
+Movie News, Avatar: Fire and Ash, Jurassic Park, Box Office Milestones
+
+Wed, 04 Mar 2026 02:01:17 GMT
+
+https://movieweb.com/avatar-fire-and-ash-box-office-jurassic-park/
+
+James Cameron's latest sequel pushes his all-time totals that much closer to Steven Spielberg.
+---------
+
+# 'The Orville' Season 4 Teased by Seth MacFarlane
+
+TV News, The Orville, Hulu, Sci-Fi
+
+Wed, 04 Mar 2026 01:50:21 GMT
+
+https://movieweb.com/the-orville-season-4-update/
+
+It's the most positive update about 'The Orville' fans have heard in a while.
+---------
+
+# Even More 'Stranger Things' Spin-offs Are on the Way
+
+TV News, Stranger Things, Matt Duffer, Ross Duffer
+
+Wed, 04 Mar 2026 01:30:17 GMT
+
+https://movieweb.com/stranger-things-new-spin-off-confirmed-duffer-brothers/
+
+The franchise looks to expand exponentially.
+---------
+
+# Every New Movie and TV Show Coming to Prime Video in March 2026
+
+Features, Prime Video
+
+Wed, 04 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/prime-video-new-movie-tv-march-2026/
+
+New original shows, return of some fan favorites, and plenty of action cinema make up the best of Prime Video in March
+---------
+
 # Young Sherlock Reviews Preview Prime Video's Fresh Take On A Classic
 
 Streaming TV, Young Sherlock
