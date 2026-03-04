@@ -1,3 +1,355 @@
+# MTG Icon's New TCG Debuts First Look At Retro Card Art
+
+Gaming, Magic: The Gathering, tabletop games
+
+Wed, 04 Mar 2026 20:39:58 GMT
+
+https://screenrant.com/tcg-cataclysm-arcade-card-reveal/
+
+A new trading card game from a major Magic: The Gathering icon has some cool art to show off, and the one-pack promise might be even better.
+---------
+
+# Christian Bale’s New R-Rated Sci-Fi Horror Divides Critics With Rotten Tomatoes Score Debut
+
+Movies, The Bride!
+
+Wed, 04 Mar 2026 20:34:58 GMT
+
+https://screenrant.com/the-bride-christian-bale-rotten-tomatoes-score-debut/
+
+Christian Bale and Jessie Buckley's new sci-fi thriller, directed by Maggie Gyllenhaal, debuts with plenty of negative reviews among the positive.
+---------
+
+# Netflix's 10/10 Horror Masterpiece Has One Of The Greatest TV Plot Twists Ever
+
+TV Guide, The Haunting of Hill House
+
+Wed, 04 Mar 2026 20:30:18 GMT
+
+https://screenrant.com/haunting-of-hill-house-bent-neck-lady-nell-twist-perfect/
+
+The most ingenious revelation in this 10/10 horror TV masterpiece is set up as early as the pilot, leaving viewers eager to unravel the mystery.
+---------
+
+# Robert Downey Jr.'s Sherlock Holmes Returns As Streaming Hit In The United States After Guy Ritchie's New Sherlock
+
+Movies, Sherlock Holmes, Young Sherlock
+
+Wed, 04 Mar 2026 20:29:23 GMT
+
+https://screenrant.com/robert-downey-jr-sherlock-holmes-movies-march-streaming-hit/
+
+Guy Ritchie's new Sherlock Holmes release has brought back interest in Robert Downey Jr.'s detective, who experiences a streaming resurgence.
+---------
+
+# Keanu Reeves' 3 Upcoming John Wick Projects, Ranked By Hype
+
+New Movies, John Wick, John Wick: Chapter 5, John Wick Animated Prequel
+
+Wed, 04 Mar 2026 20:21:19 GMT
+
+https://screenrant.com/keanu-reeves-john-wick-upcoming-projects-ranked-hype/
+
+Keanu Reeves is returning for three more John Wick projects, and while they're each exciting, the hype behind the upcoming releases is varied.
+---------
+
+# Netflix's Popular Action Series With 89% Rotten Tomatoes Gets Season 2 Release Date & First Trailer
+
+TV, Bloodhounds
+
+Wed, 04 Mar 2026 20:14:21 GMT
+
+https://screenrant.com/bloodhounds-season-2-trailer-release-date-netflix/
+
+A Netflix action K-drama gets a release date for its section season and reveals a trailer teasing the higher stakes and brutal fights to come.
+---------
+
+# Hulk and Punisher's New Connection Officially Revealed Ahead of Spider-Man Team
+
+Comics, Hulk, punisher, Spider-Man
+
+Wed, 04 Mar 2026 20:13:35 GMT
+
+https://screenrant.com/spider-man-long-way-home-hulk-punisher-connection/
+
+Hulk, Spidey, and Punisher's next showdown, revealed!
+---------
+
+# Maggie Gyllenhaal's The Bride! Explores Love, Rebellion in Gritty 1930s Chicago
+
+Horror, The Bride!
+
+Wed, 04 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/the-bride-movie-review/
+
+Maggie Gyllenhaal's bold adaptation of The Bride of Frankenstein set in 1930s Chicago explores love, rebellion, and societal norms through a monster's eyes.
+---------
+
+# This is the Exact Moment That Game of Thrones Became a Fantasy Masterpiece
+
+TV, Game Of Thrones, hbo, Fantasy
+
+Wed, 04 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/game-of-thrones-s1-finale-fantasy-masterpiece/
+
+HBO's Game of Thrones cemented the legacy of its acclaimed first season in this unforgettable moment that changed everything for the series.
+---------
+
+# Keanu Reeves’ 47 Ronin Deserves a Reappraisal
+
+Movies, Keanu Reeves, 47 Ronin, Fantasy
+
+Wed, 04 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/keanu-reeves-47-ronin-fantasy-flop-second-chance/
+
+Keanu Reeves’ 47 Ronin was dismissed as a samurai flop in 2013, but the fantasy epic is finding new life on streaming and deserves a second look.
+---------
+
+# Jamie Lee Curtis Confirms The Bear's Fifth and Final Season
+
+TV, The Bear, FX, Hulu
+
+Wed, 04 Mar 2026 20:47:08 GMT
+
+https://www.cbr.com/the-bear-season-5-ending-jamie-lee-curtis/
+
+The Bear star Jamie Lee Curtis reveals the hit FX drama will conclude with its fifth season, as production wraps on the beloved series.
+---------
+
+# March 4 is a Monumental Day For Solo Leveling Fans
+
+Anime, Solo Leveling
+
+Wed, 04 Mar 2026 20:45:14 GMT
+
+https://www.cbr.com/solo-leveling-manhwa-webtoon-8-year-anniversary-march-4/
+
+8 years later, the Solo Leveling manhwa remains the definitive adaptation of Sung Jinwoo’s story, and it’s still the most successful manhwa ever made.
+---------
+
+# Rick and Morty Just Admitted Its Series Finale Was a Lie
+
+Comics, Rick and Morty
+
+Wed, 04 Mar 2026 20:37:53 GMT
+
+https://www.cbr.com/rick-and-morty-forever-release-date-confirmed/
+
+Rick and Morty's upcoming series finale has just been revealed as a fake out, even if the real ending to the story is still just around the corner
+---------
+
+# Young Sherlock Star Teases a Different Kind of Moriarty–Sherlock Relationship
+
+CBR Exclusives, Young Sherlock
+
+Wed, 04 Mar 2026 20:28:21 GMT
+
+https://www.cbr.com/young-sherlock-teases-moriarty-sherlock-relationship/
+
+Sherlock Holmes fans are well aware of the detective's relationship with archenemy Moriarty, but the new series fully changes that.
+---------
+
+# Ahead of New Sherlock Holmes Series, Robert Downey Jr's 17-Year-Old Action Thriller Hits No. 10 on Prime Video
+
+Movies, Sherlock Holmes
+
+Wed, 04 Mar 2026 20:02:26 GMT
+
+https://www.cbr.com/sherlock-holmes-action-thriller-prime-video-success-march-2026/
+
+Robert Downey Jr.'s Sherlock Holmes returns to the Prime Video Top 10 charts ahead of Guy Ritchie's new Sherlock Holmes series.
+---------
+
+# The Most Brutal Ghostface Kills in Scream History, Ranked
+
+Movies, Scream, Scream 7, Horror
+
+Wed, 04 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/ghostface-kills-scream-history-ranked-list/
+
+Ghostface has haunted the Scream franchise for years, and in that time, he has made some truly horrific kills.
+---------
+
+# The Bride! Review: Christian Bale & Jessie Buckley Deliver a Dark Romance With 1 Big Flaw
+
+Movies, The Bride!
+
+Wed, 04 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/the-bride-review/
+
+The Bride! has amazing performances and a beautiful setting, but struggles with its most important element.
+---------
+
+# 8 Current Sci-Fi Shows That Already Feel Like Classics
+
+TV, Sci-Fi, For All Mankind, Silo, Severance
+
+Wed, 04 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/recent-sci-fi-shows-modern-classics-list/
+
+Even before their finales, these ongoing science-fiction shows already feel like the greatest of all time.
+---------
+
+# Kate McKinnon's Bold New Sci-Fi Movie Connects 3 Wildly Different Timelines in Intimate Sneak Peek [Exclusive]
+
+Exclusives, In the Blink of an Eye, Andrew Stanton, Kate McKinnon, Collider Exclusive Preview
+
+Wed, 04 Mar 2026 21:00:12 GMT
+
+https://collider.com/in-the-blink-of-an-eye-behind-the-scenes-video-diary-andrew-stanton-kate-mckinnon-daveed-diggs-rashida-jones/
+
+In the Blink of an Eye director, Andrew Stanton, welcomes viewers to the sprawling set of the sci-fi flick. Watch the featurette here.
+---------
+
+# Christian Bale's New Monster Movie Might Be the Most Divisive Movie of 2026
+
+Movie News, The Bride!, Jessie Buckley, Christian Bale, Maggie Gyllenhaal
+
+Wed, 04 Mar 2026 20:53:28 GMT
+
+https://collider.com/the-bride-jessie-buckley-christian-bale-frankenstein-remake-rotten-tomatoes-score-is-it-good/
+
+Reviews for Jessie Buckley and Christian Bale's The Bride! are in, and critics are completely divided on Rotten Tomatoes.
+---------
+
+# The Highest-Rated Pokémon Game of All-Time Releases Tomorrow
+
+Gaming News, Pokémon, Pokemon Legends   Arceus, Pokemon: The First Movie, Gaming
+
+Wed, 04 Mar 2026 20:51:49 GMT
+
+https://collider.com/highest-rated-pokemon-game-pokopia-release-date-march-5-2026/
+
+The highest-rated Pokémon game of all-time, Pokopia, arrives tomorrow. Get all the details here.
+---------
+
+# In Just 5 Days, 'Resident Evil: Requiem' Is Officially Surging to a Franchise Record After Selling 5 Million Copies
+
+Movie News, Resident Evil, Resident Evil 7, Video Game, Capcom
+
+Wed, 04 Mar 2026 20:43:30 GMT
+
+https://collider.com/resident-evil-requiem-surges-to-franchise-record-5-million-copies-sold/
+
+In just 5 days, Resident Evil: Requiem has officially reached a new franchise-record, selling 5 million copies.
+---------
+
+# 10 '80s Movie Masterpieces You Absolutely Forgot Existed
+
+Movie, 1980s, Local Hero, Tender Mercies, Talk Radio
+
+Wed, 04 Mar 2026 20:36:12 GMT
+
+https://collider.com/80s-movie-masterpieces-you-forgot-existed/
+
+From the late Robert Duvall's Tender Mercies to Michael Keaton's Clean and Sober, these brilliant '80s movies have sadly been forgotten by the masses.
+---------
+
+# ‘Sonic the Hedgehog 4’ Is Moving at Warp Speed Toward 2027 Release Date
+
+Movie News, Sonic the Hedgehog, Sonic the Hedgehog 2, Sonic the Hedgehog 3, Sonic the Hedgehog 4
+
+Wed, 04 Mar 2026 20:31:36 GMT
+
+https://collider.com/sonic-the-hedgehog-4-filming-start-jeff-fowler-amy-rose-image/
+
+Director Jeff Fowler has confirmed Sonic the Hedgehog 4 has begun filming, with Kristen Bell set to voice Amy Rose in the next Paramount sequel.
+---------
+
+# Prime Video’s 3-Part Fantasy Weekend Binge Is the Greatest ‘Rings of Power’ Replacement Show
+
+TV Features, The Wheel of Time, The Lord of the Rings: The Rings of Power, Prime Video, Fantasy
+
+Wed, 04 Mar 2026 20:26:12 GMT
+
+https://collider.com/prime-video-rings-of-power-greatest-replacement-series-wheel-of-time-3-seasons/
+
+Viewers who are enjoying Season 2 of The Rings of Power will find a similar allure in Prime Video’s The Wheel of Time.
+---------
+
+# A24’s Anthony Bourdain Biopic Update Promises to Celebrate the Iconic Chef 8 Years After His Death [Exclusive]
+
+Exclusives, Leo Woodall, Anthony Bourdain, Dominic Sessa, A24
+
+Wed, 04 Mar 2026 20:18:12 GMT
+
+https://collider.com/anthony-bourdain-biopic-movie-tony-a24-update-leo-woodall/
+
+Tony star, Leo Woodall, opens up about the “really fun” biopic and teases another top-tier performance from Dominic Sessa.
+---------
+
+# Fan-Favorite 'White Lotus' Star Teases Potential Season 4 Return [Exclusive]
+
+TV News, The White Lotus, Leo Woodall, Mike White, HBO Max
+
+Wed, 04 Mar 2026 20:10:57 GMT
+
+https://collider.com/the-white-lotus-season-4-leo-woodall-return-possibilty-response/
+
+One beloved star from The White Lotus Season 2 would "seriously consider" returning in a future season.
+---------
+
+# 12 Years Later, Christopher Nolan's Most Beautiful Sci-Fi Epic Takes Off on Free Streaming
+
+Movie News, Christopher Nolan, Matthew McConaughey, Interstellar, Tubi
+
+Wed, 04 Mar 2026 20:07:23 GMT
+
+https://collider.com/christopher-nolan-sci-fi-epic-interstellar-free-streaming-success-tubi-march-2026/
+
+Christopher Nolan's Interstellar has resurfaced on free streaming platforms, offering viewers a chance to experience its stunning visuals.
+---------
+
+# Every Must-See TV Show Streaming in March 2026
+
+Features
+
+Wed, 04 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/tv-show-streaming-march-2026/
+
+Daredevil, Sherlock Holmes, and two Taylor Sheridan series are new to streaming in March 2026.
+---------
+
+# 'The Bride' Director Maggie Gyllenhaal Says Warner Bros. Asked To Cut Down Violence
+
+Movie News, The Bride!, Maggie Gyllenhaal
+
+Wed, 04 Mar 2026 20:21:24 GMT
+
+https://movieweb.com/the-bride-cut-violent-scenes/
+
+Maggie Gyllenhaal talks about test screening 'The Bride!,' what was cut, and the importance of violence to the story.
+---------
+
+# The Most Disliked Characters in the Harry Potter Franchise
+
+Movie Lists, Harry Potter
+
+Wed, 04 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/harry-potter-most-disliked-characters/
+
+Liking or disliking a character can be highly subjective, but a few prominent characters in the Wizarding World have earned the fans' wrath.
+---------
+
+# 'The Bride!' Review: Jessie Buckley Breathes Life into a Monstrous Mess
+
+3.5 star movies, The Bride!, Jessie Buckley, Christian Bale
+
+Wed, 04 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/the-bride-review/
+
+Christian Bale co-stars in Maggie Gyllenhaal's gorgeous Frankenstein's monster of a movie that nearly flies apart at the seams.
+---------
+
 # Bridgerton Season 5 Gets Major Filming Update Just Days After Final Season 4 Episodes Dropped
 
 TV, Bridgerton
