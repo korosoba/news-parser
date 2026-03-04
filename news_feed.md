@@ -1,3 +1,14 @@
+# The Witcher Returns With Official New Sequel On March 11
+
+Gaming, The Witcher, The Witcher 3: Wild Hunt, PC
+
+Wed, 04 Mar 2026 09:00:19 GMT
+
+https://screenrant.com/the-witcher-sequel-blood-stone-2-march-11/
+
+The Witcher is getting an official new sequel next week, continuing Geralt's story through a new region and set to release on March 11.
+---------
+
 # God Of War Leak Has Fans Torn On Future Settings
 
 Gaming, God of War, Triple-A Games
