@@ -1,3 +1,245 @@
+# Game Of Thrones Prequel Movie Features Aegon's Conquest With A Beau WillimonScreenplay
+
+Streaming TV, Game Of Thrones, Game of Thrones
+
+Wed, 04 Mar 2026 23:45:19 GMT
+
+https://screenrant.com/game-of-thrones-aegons-conquest-movie-andor-writer/
+
+The upcoming Game Of Thrones prequel movie will focus on Aegon Targaryen's conquest, with Andor writer Beau Willimon penning the screenplay.
+---------
+
+# One Piece Season 2 Just Dropped a Huge Cameo That Should Get Fans Hyped
+
+Anime, One Piece, One Piece - Season 2
+
+Wed, 04 Mar 2026 23:31:19 GMT
+
+https://screenrant.com/one-piece-season-2-bartolomeo-cameo-big-change/
+
+Ahead of its release, One Piece Season 2 just revealed a surprising cameo from a character originally introduced after the series' time skip.
+---------
+
+# Netflix’s The Four Seasons Reveals Season 2 Release Date & First-Look Images After Steve Carell’s Shocking Fate
+
+TV, The Four Seasons
+
+Wed, 04 Mar 2026 23:13:13 GMT
+
+https://screenrant.com/the-four-seasons-netflix-season-2-release-date-first-images/
+
+After the shocking fate of Steve Carell's character, Netflix's The Four Seasons now has a season 2 release date and first-look images.
+---------
+
+# All 4 Seasons Of This Netflix Crime Thriller Series Are Perfect From Start To Finish
+
+TV, Netflix, Ozark
+
+Wed, 04 Mar 2026 23:02:58 GMT
+
+https://screenrant.com/ozark-netflix-crime-thriller-series-no-bad-seasons/
+
+One of Netflix's best crime thriller series is a TV show that simply has no bad seasons, starting strong and getting even better along the way.
+---------
+
+# Youngblood Review: Remake of Rob Lowe's 1986 Hockey Film Powerfully Subverts the Sports Movie as an Anti-Racist Screed
+
+Movies, Youngblood
+
+Wed, 04 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/youngblood-movie-review/
+
+Hubert Davis's film subtly points at the dog whistles of racism that plague modern hockey.
+---------
+
+# Crunchyroll is Changing Solo Leveling Forever With Massive New Collaboration
+
+Anime, Solo Leveling, Crunchyroll
+
+Wed, 04 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/crunchyroll-is-changing-solo-leveling-forever-with-massive-new-collaboration/
+
+The Solo Leveling franchise is about to be changed forever, and it is all thanks to a new partnership that Crunchyroll has made for the series.
+---------
+
+# It's Officially a New Era for Sony and the PS5
+
+Games, PlayStation 5
+
+Wed, 04 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/ps5-sony-new-era-playstation-games-pc/
+
+Sony is rumored to be undergoing a huge shift in how it releases games, which could mark a new era for its systems, especially the PlayStation 5.
+---------
+
+# Monarch Star Kiersey Clemons Reveals How Their Character Was Created
+
+CBR Exclusives, Monarch: Legacy of Monsters
+
+Wed, 04 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/kiersey-clemons-monarch-season-2-character-sex-education/
+
+There's a surprising connection to an unexpected series.
+---------
+
+# 30 Years Later, The Best Isekai Mecha Anime of All Time Is Still Criminally Underrated
+
+Anime, The Vision of Escaflowne, Isekai, mecha
+
+Wed, 04 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/best-isekai-mecha-anime-visions-of-escaflowne/
+
+One of the greatest anime series of all time continues to be wildly underrated today, even after helping redefine two entire genres.
+---------
+
+# Star Trek Quietly Erased Deep Space Nine's Darkest Sisko Storyline From Trek History
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: Deep Space Nine
+
+Wed, 04 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/star-trek-erased-ds9-darkest-sisko-storyline/
+
+Star Trek: Deep Space Nine has a reputation for dark and gritty storytelling, but one of its darkest Sisko details vanished almost immediately.
+---------
+
+# The Scream Franchise Should Have Ended With Scream 4
+
+Movies, Scream
+
+Wed, 04 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/scream-franchise-should-have-ended-with-scream-4/
+
+Scream 4 may not have made as much money as the other movies in the franchise, but that doesn't mean it wasn't the perfect ending for the series.
+---------
+
+# Steam Adds 5 New Free Games in March 2026, No Strings Attached
+
+Games, Steam
+
+Wed, 04 Mar 2026 22:59:12 GMT
+
+https://www.cbr.com/new-free-steam-games-march-2026/
+
+March just started, but Steam has already added 5 new free-to-keep games.
+---------
+
+# Prime Video's 10/10 Anti-War Masterpiece Is Waiting to Be Discovered on Streaming
+
+Movie News, War, Bollywood, Sholay, Prime Video
+
+Wed, 04 Mar 2026 23:47:34 GMT
+
+https://collider.com/ikkis-anti-war-masterpiece-movie-streaming-success-prime-video-march-2026/
+
+Ikkis, a critically acclaimed new war movie from India, is storming the global streaming charts. Find out more details here.
+---------
+
+# 'Coyote vs. Acme' Star Details "Maddening" Experience of the Movie's 2023 Cancellation
+
+Movie News, Coyote Vs. Acme, Will Forte, John Cena, Warner Bros.
+
+Wed, 04 Mar 2026 23:38:15 GMT
+
+https://collider.com/coyote-vs-acme-looney-tunes-movie-cancellation-reaction-will-forte/
+
+Will Forte finally addresses his frustration over the initial handling of his upcoming film, Coyote vs. Acme. Read on for more.
+---------
+
+# 25 Greatest Erotic Movies of the Last 25 Years, Ranked
+
+Movie, Romance, Poor Things, Fair Play, Disobedience
+
+Wed, 04 Mar 2026 23:31:12 GMT
+
+https://collider.com/best-erotic-movies-past-25-years-ranked/
+
+Little Children, Disobedience, and Poor Things are among the best erotic movies of the last 25 years.
+---------
+
+# In Just 2 Minutes, ABC's Latest Franchise Crossover Shattered Reality TV Rules With a Hardcore Twist
+
+TV, HGTV, The Bachelor, Competition Shows, Bachelor in Paradise
+
+Wed, 04 Mar 2026 23:25:13 GMT
+
+https://collider.com/bachelor-mansion-takeover-hgtv-mid-challenge-elimination-twist-explained/
+
+HGTV’s Bachelor Mansion Takeover shocks viewers with a mid-challenge elimination that flips the usual reality competition format and changes the game.
+---------
+
+# 30 Years Later, It's Officially Time for Hollywood to Quietly Stop Making Scream Movies
+
+Movie Features, Scream, Scream 7, Neve Campbell, Courteney Cox
+
+Wed, 04 Mar 2026 23:22:12 GMT
+
+https://collider.com/scream-horror-franchise-break/
+
+After Scream 7, it’s time for this horror franchise to take a break, regroup, and come back with new ideas.
+---------
+
+# 37 Years Later, One of the Most Influential Dark Fantasy Sagas of All Time Passes a Huge Milestone
+
+TV News, Berserk, Anime, Fantasy
+
+Wed, 04 Mar 2026 23:12:51 GMT
+
+https://collider.com/dark-fantasy-manga-series-berserk-10-million-english-copies-sold-milestone/
+
+The most influential dark fantasy series ever has just reached a major milestone, marking a huge moment for the genre. Read on for more.
+---------
+
+# Elton John's Greatest Song of All Time Never Hit No. 1 and It Was Predicted in the Lyrics
+
+Music Features, Music, Rock, Elton John
+
+Wed, 04 Mar 2026 23:01:12 GMT
+
+https://collider.com/elton-john-rocket-man-never-number-one-predicted-in-meaning/
+
+Elton John's Rocket Man Never made the number one spot in the charts, but the meaning of misunderstanding in the song aligns with the fact.
+---------
+
+# Samara Weaving and Jason Segel’s Romantic Getaway Turns Murderous in First Look at 2026 Action Comedy [Exclusive]
+
+Exclusives, Over Your Dead Body, Jason Segel, Samara Weaving, Collider Exclusive Preview
+
+Wed, 04 Mar 2026 23:01:12 GMT
+
+https://collider.com/samara-weaving-jason-segel-over-your-dead-body-action-comedy-thriller-image/
+
+Samara Weaving is in the fight of her life in a new look at Over Your Dead Body, the latest thriller from David Leitch. See it here.
+---------
+
+# 'Ocean's' Prequel Starring Margot Robbie Loses Director Lee Isaac Chung
+
+Movie News, Ocean's Eleven, Ocean's 14, Margot Robbie
+
+Wed, 04 Mar 2026 23:28:57 GMT
+
+https://movieweb.com/oceans-prequel-director-lee-isaac-chung/
+
+'Minari' director Lee Isaac Chung has dropped out of the 'Ocean's Eleven' prequel.'
+---------
+
+# Alan Ritchson's 'War Machine' Netflix Release Details
+
+Features, Alan Ritchson, Netflix, War Machine
+
+Wed, 04 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/alan-ritchson-war-machine-release-netflix/
+
+'Reacher' star Alan Ritchson is back in action as a one-man army in 'War Machine', but when does the sci-fi movie release on Netflix?
+---------
+
 # A24 Wins Against 20 Studios To Adapt Mystery Thriller Novel Into TV Series
 
 TV, A24
