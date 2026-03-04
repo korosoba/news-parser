@@ -1,3 +1,410 @@
+# Bridgerton Season 5 Gets Major Filming Update Just Days After Final Season 4 Episodes Dropped
+
+TV, Bridgerton
+
+Wed, 04 Mar 2026 19:37:17 GMT
+
+https://screenrant.com/bridgerton-season-5-filming-update-jess-brownell/
+
+Just days after Bridgerton settled the fate of one star-crossed romance, a new update confirms that season 5 has already taken a big leap forward.
+---------
+
+# Netflix's Crime Thriller With Near-Perfect Rotten Tomatoes Score Is Worth Watching
+
+Movies, Netflix, Woman of the Hour
+
+Wed, 04 Mar 2026 19:31:27 GMT
+
+https://screenrant.com/woman-of-the-hour-netflix-thriller-movie-must-watch/
+
+Netflix crime thrillers are some of the streamer's best releases, and that is why subscribers need to watch this one with a near-perfect RT score.
+---------
+
+# A Spider-Man Villain Who Has Never Made A Live-Action Appearance Might Get Two In 2026
+
+Superheroes, Spider-Noir, Spider-Man: Brand New Day, Explainer
+
+Wed, 04 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/spider-noir-show-tombstone-two-versions-character-possibility/
+
+A mystery character in Prime Video's Spider-Noir show creates the possibility that one Marvel Comics villain will get live-action versions in 2026.
+---------
+
+# Sydney Sweeney’s 8-Part Limited Series Is The Best HBO Thriller Of All Time
+
+Classic TV, Sharp Objects, Sydney Sweeney
+
+Wed, 04 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/sharp-objects-hbo-best-thriller-all-time/
+
+Sydney Sweeney may be famous for Euphoria and The White Lotus, but another HBO series is actually her best, and it's an underrated thriller.
+---------
+
+# Iconic Steam Game Is Free To Keep If You Act Fast
+
+Gaming, Planet Coaster, Steam, Triple-A Games, PC
+
+Wed, 04 Mar 2026 19:18:12 GMT
+
+https://screenrant.com/planet-coaster-free-steam-game/
+
+Most free Steam games are smaller titles looking for promotion, but occasionally a major, genre-defining hit actually joins in on the fun.
+---------
+
+# DC Officially Debuts Its New Lex Luthor, Rewriting 86 Years of Superman History
+
+Comics, Lex Luthor, Superman
+
+Wed, 04 Mar 2026 19:15:27 GMT
+
+https://screenrant.com/new-lex-luthor-rewrite-superman-history-absolute-dc/
+
+2025 was a HUGE year for Lex Luthor. However, 2026 is set to be even bigger as DC officially reveals its new take on this iconic villain.
+---------
+
+# James Gunn's New DC Series Lanterns Officially Sets Release Month On HBO After Multiple Delays
+
+TV, Lanterns, DC Universe, HBO
+
+Wed, 04 Mar 2026 19:15:24 GMT
+
+https://screenrant.com/lanterns-dc-show-release-date-hbo-confirmed/
+
+HBO has finally confirmed the official release date for the next major DC Universe TV show from DC Studios, Lanterns, as it arrives this summer.
+---------
+
+# Tom Selleck Officially Sets First New Crime Series After Blue Bloods Ending
+
+TV, Tom Selleck, Blue Bloods
+
+Wed, 04 Mar 2026 19:13:33 GMT
+
+https://screenrant.com/tom-selleck-crime-justice-history-docuseries/
+
+Tom Selleck officially sets his first new crime series since Blue Bloods was canceled by CBS, and its 14-season run came to an end in December 2024.
+---------
+
+# New Lanterns Trailer Officially Reveals Hal Jordan's Costume Design In HBO's DC Series
+
+TV, Lanterns, DC Universe
+
+Wed, 04 Mar 2026 19:10:48 GMT
+
+https://screenrant.com/lanterns-show-trailer-hbo-dcu/
+
+The first Lanterns trailer has finally been released by DC Studios, showing the HBO superhero drama with Kyle Chandler and Aaron Pierre as the leads.
+---------
+
+# Why Chicago Fire Is Not Airing On Its Regular Timeslot Tonight (March 4) & When Season 14, Episode 13 Releases
+
+Network TV, Chicago Fire, One Chicago
+
+Wed, 04 Mar 2026 19:02:18 GMT
+
+https://screenrant.com/chicago-fire-not-airing-regular-timeslot-march-4-2026-season-14-episode-13-release/
+
+The One Chicago franchise is due for a comeback after a short hiatus, but Chicago Fire fans need to take note of a scheduling change for Firehouse 51.
+---------
+
+# Star Trek: Prodigy Wins Emmy Award
+
+TV, Star Trek: Prodigy, Star Trek, Sci-Fi
+
+Wed, 04 Mar 2026 19:33:30 GMT
+
+https://www.cbr.com/star-trek-prodigy-emmy-award-animation/
+
+Star Trek: Prodigy, the beloved but canceled animated series, won another Emmy Award.
+---------
+
+# Gravity Falls Resurges on Streaming Charts 10 Years Later
+
+TV, Gravity Falls
+
+Wed, 04 Mar 2026 19:27:38 GMT
+
+https://www.cbr.com/gravity-falls-animated-pvod-success-march-2026/
+
+Gravity Falls is still finding new success a full decade after airing its final episode on television.
+---------
+
+# Lanterns    Official Teaser   HBO Max
+
+TV, Lanterns
+
+Wed, 04 Mar 2026 19:10:39 GMT
+
+https://www.cbr.com/video/lanterns-official-teaser/
+
+DC Studios officially unveiled the teaser for the upcoming Lanterns
+---------
+
+# James Gunn's Lanterns Trailer Drawing Criticism for Not Showing Any Superpowers, Except for One
+
+TV, DCU, Lanterns, Action
+
+Wed, 04 Mar 2026 19:08:30 GMT
+
+https://www.cbr.com/james-gunn-dcu-lanterns-trailer-criticism-hbo-max-aaron-pierre/
+
+The long-awaited official trailer for James Gunn's Lanterns is combustible — DCU fans upset it revealed only one superpower.
+---------
+
+# 10 Marvel Heroes Must Lead The Avengers Next
+
+Comics, Marvel Comics
+
+Wed, 04 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/marvel-heroes-who-should-be-leading-the-avengers/
+
+Marvel has featured numerous characters leading the Avengers, but only a select few feel both worthy and overlooked by the House of Ideas.
+---------
+
+# 40 Years Later, Transformers Dares to Be Stupid With New Wreck-Gar Prototype Reveal
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys, action figures
+
+Wed, 04 Mar 2026 18:45:12 GMT
+
+https://www.cbr.com/transformers-wreck-gar-newage-toys-prototype/
+
+40 years after his cinematic debut in The Transformers: The Movie, a TV-talking Junkion 'checks in' for a new action figure from Newage Toys.
+---------
+
+# 10 Changes Pokémon Winds & Waves Need to Make to Beat Scarlet & Violet
+
+Games, Pokemon
+
+Wed, 04 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/pokemon-winds-waves-changes-scarlet-violet/
+
+Pokémon Winds & Waves are coming, and they won't have to work too hard to outdo the disasters that were Pokémon Scarlet & Violet on Nintendo Switch.
+---------
+
+# Game of Thrones’ Aegon's Conquest Movie Starts a New Era of Fantasy Films
+
+Movies, Fantasy, Game Of Thrones
+
+Wed, 04 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/game-of-thrones-aegon-conquest-movie-new-era-fantasy-films/
+
+Game of Thrones is finally making the jump to films with Aegon's Conquest, and it's launching a new era for fantasy films.
+---------
+
+# Scott Snyder Addresses The Ending Of DC's Absolute Universe
+
+Comics, DC Comics
+
+Wed, 04 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/scott-snyder-dc-comics-absolute-universe-ending/
+
+Scott Snyder talks about what fans can expect from DC's blossoming Absolute Universe and its ending.
+---------
+
+# Christian Bale Breaks Silence on American Psycho Remake
+
+Movies, American Psycho, christian bale
+
+Wed, 04 Mar 2026 18:09:49 GMT
+
+https://www.cbr.com/christian-bale-reacts-american-psycho-remake/
+
+Patrick Bateman actor Christian Bale speaks out on the upcoming American Psycho reboot.
+---------
+
+# Crunchyroll Becomes the Official Home of 2023's Darkest Anime Satire
+
+TV News, Oshi No Ko, Crunchyroll, Anime, Dark
+
+Wed, 04 Mar 2026 19:47:04 GMT
+
+https://collider.com/crunchyroll-dark-anime-satire-oshi-no-ko-streaming-crunchyroll-march-2026/
+
+Crunchyroll makes it simple to catch up on the decade’s darkest showbiz anime as Season 3 rolls out new episodes. Read on for more details.
+---------
+
+# Seth MacFarlane Interview: Ted Series, The Orville, and The Naked Gun Reboot with Liam Neeson
+
+Movie, Seth MacFarlane
+
+Wed, 04 Mar 2026 19:37:28 GMT
+
+https://collider.com/video/seth-macfarlane-interview-ted-series-the-orville-and-the-naked-gun-reboot-with-liam-neeson/
+
+Twelve years ago, writer-director Seth MacFarlane introduced audiences to Ted in his first-ever feature. The R-rated buddy comedy starred Mark Wahlberg as John Bennett, whose childhood best friend is a talking teddy bear (voiced by MacFarlane) he wished to life on a star. Though it sounds like the premise of a Disney movie, Ted was less cuddly plushie, and more like exactly what you'd expect from the creator behind American Dad! and Family Guy.In his new Peacock series, Ted, MacFarlane takes viewers back to the formative high school years of John (Max Burkholder) and Ted, in 1993, when, as the tagline reads, everything went wrong. Rather than hang around the house causing havoc, John's family makes Ted attend high school with John, where the duo discovers the highs and lows of being a teenager. The show also stars Alanna Ubach, Scott Grimes, and Giorgia Whigham as John's family.Before the extended first episode premieres on January 11, Collider's Steve Weintraub spoke with MacFarla
+---------
+
+# Apple TV's Most-Anticipated Sci-Fi Spin-Off Will Arrive Sooner Than Expected
+
+TV News, Monarch: Legacy of Monsters, Wyatt Russell, AppleTV, Sci-Fi
+
+Wed, 04 Mar 2026 19:29:22 GMT
+
+https://collider.com/apple-tv-new-sci-fi-monarch-legacy-of-monsters-spin-off-wyatt-russell-filming-update/
+
+Apple TV's new sci-fi hit, Monarch: Legacy of Monsters, has exciting news about filming of its spin-off, courtesy of series star Wyatt Russell.
+---------
+
+# The Fight to Save Ianto’s Shrine: Iconic 'Torchwood' Memorial Wall Caretaker Vows to Protect 17 Years of Fandom History [Exclusive]
+
+Exclusives, Torchwood, Doctor Who, Sci-Fi, Drama
+
+Wed, 04 Mar 2026 19:28:31 GMT
+
+https://collider.com/torchwood-ianto-shrine-taken-down-april-2026-currator-comments/
+
+Torchwood fans worldwide are rallying alongside the curator to save Ianto's Shrine, a memorial wall dedicated to the beloved character Ianto Jones.
+---------
+
+# Despite This Classic Horror Film’s $50 Million Box Office Success, the 1976 Rock Song It Inspired Was a Flop
+
+Music Features, Rock, Music, The Texas Chainsaw Massacre, The Ramones: It's Alive (1974-1996)
+
+Wed, 04 Mar 2026 19:26:56 GMT
+
+https://collider.com/texas-chainsaw-massacre-1974-box-office-success-ramones-chainsaw-song-flop/
+
+The 1976 horror film The Texas Chain Saw Massacre inspired the Ramones' iconic punk rock song Chain Saw on their self-titled debut album.
+---------
+
+# 21 Years After Creating the Franchise, 'God of War's Creator Already Hates Prime Video's New Series
+
+TV News, God of War, Prime Video, Fantasy, Ronald D. Moore
+
+Wed, 04 Mar 2026 19:24:47 GMT
+
+https://collider.com/god-of-war-creator-david-jaffe-first-look-reaction/
+
+God of War creator David Jaffe shares his thoughts on the first-look image from Amazon Prime Video's highly anticipated TV adaptation.
+---------
+
+# 15 Years Later, Green Lantern Finally Gets the Gritty 'True Detective'-Style Adaptation the Hero Deserves
+
+TV News, Lanterns, Kyle Chandler, Aaron Pierre, HBO Max
+
+Wed, 04 Mar 2026 19:22:29 GMT
+
+https://collider.com/dc-hbo-lanterns-series-first-trailer-hal-jordan-john-stewart/
+
+Following a leak online, HBO has officially released the first trailer for the DCU's Lanterns. See it in all its green glory here!
+---------
+
+# 'One Battle After Another's Ambitious Edit by Andy Jurgensen Sends Paul Thomas Anderson's Film to the Oscars
+
+FYC, One Battle After Another, Paul Thomas Anderson, Thriller, Andy Jurgensen
+
+Wed, 04 Mar 2026 19:12:12 GMT
+
+https://collider.com/one-battle-after-another-paul-thomas-anderson-oscars-andy-jurgensen-editor/
+
+One Battle After Another editor Andy Jurgensen shapes Leonardo DiCaprio and Teyana Taylor's movie, taking Paul Thomas Anderson's film to the Oscars.
+---------
+
+# Top Pick for Voldemort Shuts Down ‘Harry Potter’ Casting Rumors
+
+TV News, Cillian Murphy, Harry Potter, Peaky Blinders, Ralph Fiennes
+
+Wed, 04 Mar 2026 19:07:34 GMT
+
+https://collider.com/hbo-harry-potter-reboot-peaky-blinders-star-cillian-murphy-not-playing-voldemort/
+
+Ahead of The Immortal Man, Peaky Blinders icon Cillian Murphy once again confirms he will not be playing Voldemort in HBO's Harry Potter series.
+---------
+
+# 10 Greatest Spy Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, The Lives of Others, Casino Royale, Notorious, Alphaville
+
+Wed, 04 Mar 2026 19:02:12 GMT
+
+https://collider.com/best-spy-movie-masterpieces-last-100-years-ranked/
+
+From Hitchcockian highlights like Notorious to modern-day gems like Casino Royale, these spy movies showcase the brilliance of the genre at its best.
+---------
+
+# Every New Movie and TV Show Coming to Hulu and Disney+ in March 2026
+
+Features, Hulu, Disney+
+
+Wed, 04 Mar 2026 19:31:17 GMT
+
+https://movieweb.com/hulu-disney-new-movies-tv-march-2026/
+
+From Daredevil to the Academy Awards, here are all the new movies and TV shows coming to Disney+ and Hulu for March.
+---------
+
+# HBO's 'Lanterns' Trailer Reveals DCU Series Release Date
+
+TV News, Lanterns, DCU, HBO Max
+
+Wed, 04 Mar 2026 19:28:29 GMT
+
+https://movieweb.com/hbo-lanterns-trailer-early/
+
+After years of wondering, fans have a better idea of when HBO Max's 'Lanterns' series will make its debut, thanks to the first trailer.
+---------
+
+# Daniel Craig & Tom Hardy's Crime Thriller Cult Classic 'Layer Cake Is Streaming for Free on Pluto TV
+
+Movie News, Layer Cake, Pluto TV, Coming/Leaving Streaming
+
+Wed, 04 Mar 2026 19:01:17 GMT
+
+https://movieweb.com/layer-cake-streaming-pluto-march-2026/
+
+Before James Bond, Daniel Craig and Tom Hardy's cult classic crime thriller 'Layer Cake' is streaming for free on Pluto TV.
+---------
+
+# Sci-Fi Movie 'Dark City' Flopped At Box Office Before Becoming Cult Classic
+
+Features, Dark City, Sci-Fi, Cultural Reassessment
+
+Wed, 04 Mar 2026 19:01:17 GMT
+
+https://movieweb.com/dark-city-sci-fi-flop-cult-classic/
+
+A sci-fi masterpiece years ahead of its time has since found a second life as a cult classic after bombing at the box office.
+---------
+
+# 'Monarch: Legacy of Monsters' Season 2 Image Reveals Titan X
+
+TV News, Monarch: Legacy of Monsters, Monsterverse
+
+Wed, 04 Mar 2026 18:50:12 GMT
+
+https://movieweb.com/monarch-season-2-titan-x-new-look/
+
+A new promotional image for 'Monarch: Legacy of Monsters' offers the best look yet at Titan X, the latest addition to the MonsterVerse.
+---------
+
+# Every Must-See Movie Streaming in March 2026
+
+Features
+
+Wed, 04 Mar 2026 18:17:08 GMT
+
+https://movieweb.com/streaming-movie-march-2026/
+
+Here are all the movies coming to streaming services like Netflix, Prime Video, Peacock, and Paramount+.
+---------
+
+# ‘A Knight of the Seven Kingdoms’ Just Cast a Future Lannister for Season 2
+
+TV News, A Knight Of The Seven Kingdoms, Fantasy, HBO Max
+
+Wed, 04 Mar 2026 18:12:00 GMT
+
+https://movieweb.com/a-knight-of-the-seven-kingdoms-season-2-sets-brand-new-cast-future-lannister/
+
+'A Knight of the Seven Kingdoms' casts three major roles for season 2, including one who will have a huge effect on the Game of Thrones universe.
+---------
+
 # Blumhouse's Indefinitely Postponed Sci-Fi Thriller Resuscitates Release Hopes After Officially Earning Franchise's First R-Rating
 
 Movies, SOULM8TE, M3GAN
