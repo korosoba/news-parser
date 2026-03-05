@@ -1,3 +1,443 @@
+# 6 Marvel Gangsters Who Could Fight Spider-Man In Live-Action In 2026
+
+Superheroes, Spider-Man: Brand New Day, Spider-Noir
+
+Thu, 05 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/spider-man-marvel-gangsters-live-action-candidates/
+
+With organized crime poised to be at the heart of two different Spider-Man live-action projects in 2026, multiple villains are on the table.
+---------
+
+# Pokèmon Pokopia: How To Get Lumber
+
+Gaming, Pokemon Pokopia
+
+Thu, 05 Mar 2026 19:20:29 GMT
+
+https://screenrant.com/pokmon-pokopia-how-to-get-lumber/
+
+Building stuff is fun in Pokèmon Pokopia, but you're going to need a bunch of lumber to make it happen. Here's how to get more.
+---------
+
+# High Potential Season 3 Confirmed With 1 Major Change For ABC Hit
+
+Network TV, High Potential
+
+Thu, 05 Mar 2026 19:19:15 GMT
+
+https://screenrant.com/high-potential-season-3-renewal-confirmation/
+
+ABC has officially confirmed that Kaitlin Olson is coming back for High Potential season 3, but it will have a major change when it returns this fall.
+---------
+
+# Kimiko Speaks In The Boys Season 5: A Game-Changing Development
+
+Streaming TV, The Boys
+
+Thu, 05 Mar 2026 19:15:19 GMT
+
+https://screenrant.com/how-kimiko-can-talk-the-boys-season-5ideatorcraigelvy/
+
+We all assumed Kimiko (Karen Fukuhara) would be speaking more in The Boys season 5, but the new trailer shows her being downright loquacious.
+---------
+
+# 26 Years After X-Men, Why Is Hollywood Still Afraid Of Comic-Accurate Costumes?
+
+Streaming TV, Superhero
+
+Thu, 05 Mar 2026 19:01:19 GMT
+
+https://screenrant.com/superhero-adaptations-comic-accurate-costumes-hollywood/
+
+Superhero movies have entered the mainstream, yet these projects still shy away from properly portraying their heroes with comic-accurate costumes.
+---------
+
+# 10 Best-Written Naruto Characters That Prove Just How Deep The Series Is
+
+Anime, Naruto
+
+Thu, 05 Mar 2026 19:01:19 GMT
+
+https://screenrant.com/best-written-naruto-characters-ranked/
+
+Within the vast Shinobi world of Naruto, these characters represent the story's most impactful points of reference
+---------
+
+# Netflix's New Peaky Blinders Movie Returns With Outstanding Rotten Tomatoes Score
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Thu, 05 Mar 2026 19:00:04 GMT
+
+https://screenrant.com/peaky-blinders-immortal-man-rotten-tomatoes-score-debut-netflix-movie/
+
+Cillian Murphy's Peaky Blinders return is off to a success with critics, as the new Netflix movie sequel has landed a great Rotten Tomatoes score.
+---------
+
+# How One Battle After Another Editor Helped PTA's Film Toe The Line Between Humor & Danger
+
+Interviews, One Battle After Another
+
+Thu, 05 Mar 2026 18:56:08 GMT
+
+https://screenrant.com/one-battle-after-another-editor-andy-jurgensen-tone-humor-danger/
+
+One Battle After Another editor Andy Jurgensen dives into his collaboration with Paul Thomas Anderson, from song choices to "a few small beers."
+---------
+
+# Harry Potter Series Officially Confirms New Gryffindor, Slytherin, Hufflepuff & Ravenclaw Student Castings
+
+TV, Harry Potter
+
+Thu, 05 Mar 2026 18:45:29 GMT
+
+https://screenrant.com/harry-potter-series-gryffindor-slytherin-hufflepuff-ravenclaw-student-casting/
+
+HBO has released new Harry Potter series cast images of the actors portraying the students in Gryffindor, Slytherin, Hufflepuff & Ravenclaw.
+---------
+
+# Bridgerton Season 4's 10 Best Changes From The Book
+
+Streaming TV, Bridgerton
+
+Thu, 05 Mar 2026 18:45:19 GMT
+
+https://screenrant.com/bridgerton-season-4-book-changes/
+
+Bridgerton season 4 mostly stays true to Julia Quinn’s bestselling novel, but it does make some significant changes to its source material.
+---------
+
+# 9-1-1 & 9-1-1: Nashville Officially Renewed by ABC
+
+TV, 9-1-1, 9-1-1: Nashville
+
+Thu, 05 Mar 2026 19:34:25 GMT
+
+https://www.cbr.com/abc-9-1-1-nashville-9-1-1-fate/
+
+The future of both 9-1-1 shows on ABC has officially been revealed.
+---------
+
+# 6 Anime Everyone Forgot Aired on Cartoon Network
+
+Anime, toonami, Cartoon Network
+
+Thu, 05 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/forgotten-2000s-cartoon-network-toonami-adult-swim-anime-list/
+
+Everyone remembers series like Dragon Ball Z, but some Cartoon Network anime has been memory-holed by fans.
+---------
+
+# 5 Iconic Dragon Ball Fights That Have Zero Bad Episodes
+
+Anime, Dragon Ball, best fights, Goku, Vegeta
+
+Thu, 05 Mar 2026 19:25:08 GMT
+
+https://www.cbr.com/best-dragon-ball-fights-no-bad-episodes/
+
+Dragon Ball loves to feature extended showdowns, some of which maintain momentum without any dead weight or false steps along the way.
+---------
+
+# ABC Renews High Potential for Season 3
+
+TV, High Potential
+
+Thu, 05 Mar 2026 19:23:59 GMT
+
+https://www.cbr.com/high-potential-season-3-fate-revealed/
+
+One of the biggest breakout hit crime drama series of the decade just got the update that fans have bene waiting for after a stellar Season 2.
+---------
+
+# Samuel L. Jackson's Frisco King Co-Stars Revealed
+
+TV
+
+Thu, 05 Mar 2026 19:16:42 GMT
+
+https://www.cbr.com/samuel-l-jackson-frisco-king-cast/
+
+Samuel L. Jackson gets his co-stars revealed for his upcoming TV series from Yellowstone creator Taylor Sheridan.
+---------
+
+# Christian Bale Breaks Down Frank’s Fan Encounter
+
+Movies, The Bride!
+
+Thu, 05 Mar 2026 19:16:12 GMT
+
+https://www.cbr.com/video/christian-bale-breaks-down-frank-s-fan-encounter/
+
+Christian Bale gets real about fame in The Bride and the moment that quietly redefines Frank.Speaking with CBR Presents, Bale dives into the film’s sharp take on hero worship, villain culture, and why audiences crave black-and-white narratives. He opens up about fan expectations, the pressure of celebrity, and why the “best of me is on film.”
+---------
+
+# Harry Potter TV Reboot Officially Casts New Hogwarts Students
+
+TV, Harry Potter
+
+Thu, 05 Mar 2026 19:13:10 GMT
+
+https://www.cbr.com/harry-potter-tv-reboot-cast-new-hogwarts-students/
+
+Ahead of the show's release in early 2027, the Harry Potter TV series reboot has added a series of newcomers.
+---------
+
+# Guy Ritchie's Young Sherlock Is Already the No. 1 Show on Prime Video
+
+TV, Young Sherlock
+
+Thu, 05 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/guy-ritchie-young-sherlock-prime-video-success-march-2026/
+
+The streaming game is afoot.
+---------
+
+# Jay & Silent Bob Take Over the Marvel Universe This Summer
+
+Comics, Jay and Silent Bob Strike Back, kevin smith, Marvel Comics, Marvel
+
+Thu, 05 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/jay-silent-bob-jays-of-future-past-marvel-comics-release-date/
+
+Two of pop culture's greatest stoner superheroes are heading to the Marvel Universe for a crossover that absolutely no one saw coming.
+---------
+
+# Mike Flanagan's New Exorcist Film Officially Reunites Him With Carla Gugino & 10 More Returning Actors
+
+Movies, The Exorcist, Horror
+
+Thu, 05 Mar 2026 18:54:10 GMT
+
+https://www.cbr.com/mike-flanagan-the-exorcist-carla-gugino-among-returning-actors/
+
+Carla Gugino and 10 more actors who frequently collaborate with Mike Flanagan will appear in the filmmaker's upcoming The Exorcist reboot.
+---------
+
+# '9-1-1' and Its 'Nashville' Spin-Off Just Got the Best Update Ahead of Tonight's Crossover Episode
+
+TV News, 9-1-1, 9-1-1: Nashville, Procedural
+
+Thu, 05 Mar 2026 19:28:27 GMT
+
+https://collider.com/9-1-1-renewed-season-10-nashville-season-2-abc-best-disaster-series/
+
+ABC has decided the fate of its smash hit disaster shows 9-1-1 and its spin-off 9-1-1: Nashville ahead of tonight's crossover episode.
+---------
+
+# The Best-Reviewed Movie of 2025 Scores a Sequel Update Ahead of Academy Awards
+
+Movie News, One Battle After Another, Leonardo DiCaprio, Teyana Taylor, Paul Thomas Anderson
+
+Thu, 05 Mar 2026 19:17:22 GMT
+
+https://collider.com/leonardo-dicaprio-one-battle-after-another-civil-war-masterpiece-sequel-talks-teyana-taylor/
+
+Teyana Taylor confirms talks of a potential sequel to One Battle After Another centered on her character, Perfidia Beverly Hills.
+---------
+
+# The Fate of 2025's Most Popular Series Has Been Decided
+
+TV News, High Potential, Kaitlin Olson, ABC, Hulu
+
+Thu, 05 Mar 2026 19:13:26 GMT
+
+https://collider.com/abc-high-potential-season-3-renewed-most-popular-series-2025-showrunner-todd-harthan-exits/
+
+After becoming 2025's most watched show on network TV, the fate of Kaitlin Olson's High Potential has been decided by ABC.
+---------
+
+# 10 'Game of Thrones' Episodes That Aged Like Fine Wine
+
+TV, Game Of Thrones, Fantasy, HBO, A Song of Ice and Fire
+
+Thu, 05 Mar 2026 19:05:12 GMT
+
+https://collider.com/game-of-thrones-episodes-aged-like-fine-wine/
+
+Game of Thrones is still one of the best fantasy shows ever, and episodes like "Kissed by Fire" and "The Rains of Castamere" have aged beautifully.
+---------
+
+# 'The X Files' Reboot Star Breaks Silence on Ryan Coogler's Hotly Anticipated Series [Exclusive]
+
+TV News, The X Files, Danielle Deadwyler, Rooster, Ryan Coogler
+
+Thu, 05 Mar 2026 19:04:36 GMT
+
+https://collider.com/the-x-files-reboot-cast-danielle-deadwyler-ryan-coogler-what-to-expect/
+
+Danielle Deadwyler speaks out for the first time since joining Ryan Coogler's X Files reboot series in the lead role. Here's what to expect!
+---------
+
+# ‘Bridgerton’s Simone Ashley Hunts For the Truth in ‘This Tempting Madness’ First Look [Exclusive]
+
+Exclusives, Simone Ashley, Austin Stowell, Thriller, Collider Exclusive Preview
+
+Thu, 05 Mar 2026 19:01:12 GMT
+
+https://collider.com/this-tempting-madness-sneak-peek-simone-ashley-psychological-thriller/
+
+A new image for This Tempting Madness sees a determined Simone Ashley trying to piece together her shattered memories and learn the truth.
+---------
+
+# This Classic Rock Album Masterpiece Almost Destroyed Pink Floyd
+
+Music Features, Pink Floyd, Music, Rock, Billboard Hot 100
+
+Thu, 05 Mar 2026 18:54:25 GMT
+
+https://collider.com/pink-floyd-album-the-wall-nearly-destroyed-the-band/
+
+A classic rock album nearly tore Pink Floyd apart as creative clashes and rising tensions pushed the band to the brink before it became a masterpiece.
+---------
+
+# One of the Highest Grossing Horror Sequels of 2026 Is Finally Taking a Stab at Streaming
+
+Movie News, Five Nights at Freddy's, Five Nights at Freddy's 2, Scream 7, Matthew Lillard
+
+Thu, 05 Mar 2026 18:35:11 GMT
+
+https://collider.com/five-nights-at-freddys-2-matthew-lillard-horror-sequel-streaming-release-date-peacock-april-2026/
+
+Five Nights at Freddy's 2, the sequel to the surprise box office hit, is set to debut on streaming soon. Find out when and where here.
+---------
+
+# Netflix's New 'Vikings' Successor Is an Epic Greek Series From 'Heated Rivalry's Creator
+
+TV News, Heated Rivalry, HBO Max, Netflix, Streaming
+
+Thu, 05 Mar 2026 18:34:42 GMT
+
+https://collider.com/netflix-heated-rivalry-creator-jacob-tierney-greek-epic-series-alexander-jason-bateman-producing/
+
+Fresh of the success of Heated Rivalry, creator Jacob Tierney is teaming with Netflix for a historical drama about Alexander the Great.
+---------
+
+# Star of HBO's Best Sci-Fi Series Returns to Network for 'The White Lotus' Season 4
+
+TV News, The White Lotus, Vincent Cassel, HBO, Drama
+
+Thu, 05 Mar 2026 18:29:52 GMT
+
+https://collider.com/hbo-the-white-lotus-season-4-cast-vincent-cassel-corentin-fila-nadia-tereszkiewicz/
+
+French acting icon Vincent Cassel leads a trio of new stars set to check into The White Lotus for Season 4 of the HBO series.
+---------
+
+# 'Star Wars' Actor Temuera Morrison Updates on Boba Fett Plans
+
+TV News, Star Wars, The Book of Boba Fett
+
+Thu, 05 Mar 2026 19:37:08 GMT
+
+https://movieweb.com/star-wars-boba-fett-update/
+
+Temuera Morrison revealed that Lucasfilm has put the character of Boba Fett "on the shelf" but suggest he could return someday.
+---------
+
+# Movies That Scratch the Same Itch as Dead Poets Society
+
+Movie Lists, Dead Poets Society
+
+Thu, 05 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/movies-like-dead-poets-society/
+
+Over the years, there have been other films that carry the same simple and powerful feeling as the' Dead Poets Society'.
+---------
+
+# 'Paranormal Activity' Director Promises Sequel Was Written for the "Fans"
+
+Movie News, Paranormal Activity
+
+Thu, 05 Mar 2026 18:40:11 GMT
+
+https://movieweb.com/paranormal-activity-sequel-update-ian-tuason/
+
+Ian Tuason has his heart in the right place as he develops the next chapter.
+---------
+
+# 'The Great Escape' Classic WWII Action Movie is a Hit on Free Streaming Site Pluto TV
+
+Movie News, The Great Escape, Tubi, Hot on Streaming
+
+Thu, 05 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/great-escape-streaming-tubi-march-2026/
+
+Steve McQueen's timeless Second World War action masterpiece, 'The Great Escape,' is making a comeback on free streaming.
+---------
+
+# 'Longmire': A 6-Season Neo-Western Series Is Better Than Any Taylor Sheridan Show
+
+Features, Longmire, Western
+
+Thu, 05 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/neo-western-series-longmire-taylor-sheridan/
+
+The flawless neo-Western you've been looking for since 'Yellowstone' ended is 6 seasons of pure excellence.
+---------
+
+# 'Abbott Elementary' Renewed for Season 6 by ABC
+
+TV News, Abbott Elementary
+
+Thu, 05 Mar 2026 17:59:42 GMT
+
+https://movieweb.com/abbott-elementary-renewed-season-6/
+
+'Abbott Elementary' is ABC's first television renewal of the year and continues to be a hit with critics and audiences.
+---------
+
+# 'Project Hail Mary' Director's "No Green Screen" Comments Clarified
+
+Movie News, Project Hail Mary, Sci-Fi
+
+Thu, 05 Mar 2026 17:50:40 GMT
+
+https://movieweb.com/project-hail-mary-director-clarifies-green-screen/
+
+'Project Hail Mary' co-director Christopher Miller has set about clarifying comments that the sci-fi epic didn't employ the use of green screen.
+---------
+
+# 'The Testaments' Trailer Reveals Hulu's 'Handmaid's Tale' Sequel
+
+TV News, The Testaments, The Handmaid's Tale, Hulu
+
+Thu, 05 Mar 2026 17:11:21 GMT
+
+https://movieweb.com/the-testaments-trailer/
+
+The first trailer for 'The Testaments' explores themes that will be familiar to fans of 'The Handmaid's Tale,' but from a new angle.
+---------
+
+# 'The Boys' Final Season 5 Trailer Released by Prime Video
+
+TV Trailers, The Boys
+
+Thu, 05 Mar 2026 17:06:00 GMT
+
+https://movieweb.com/the-boys-final-season-trailer/
+
+The final season of 'The Boys' is nearly upon us, as Prime Video has unleashed the action-packed trailer.
+---------
+
+# 'Star Trek: Starfleet Academy' Releases Surprise Sequel To "The Omega Directive"
+
+Features, Star Trek: Starfleet Academy, Star Trek, Star Trek: Voyager
+
+Thu, 05 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/starfleet-academy-omega-voyager-sequel/
+
+'Star Trek's new show apparently isn't done with the 'Voyager' references, despite a recent sequel to two classic episodes.
+---------
+
 # DC’s True Green Lantern Costume Design Confirmed For 2026 DCU Release
 
 Superheroes, Lanterns, DC Universe
