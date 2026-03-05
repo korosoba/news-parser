@@ -1,3 +1,388 @@
+# DC’s True Green Lantern Costume Design Confirmed For 2026 DCU Release
+
+Superheroes, Lanterns, DC Universe
+
+Thu, 05 Mar 2026 14:30:18 GMT
+
+https://screenrant.com/hbo-lanterns-trailer-real-green-lantern-suit-dc-reveal/
+
+HBO's new trailer for Lanterns has been released, and DC has now confirmed Green Lantern's true costume design in the James Gunn DCU franchise.
+---------
+
+# Marvel Unleashes One of Its Strongest Villains for Star-Lord's Official Return
+
+Comics, Star-Lord, Nova
+
+Thu, 05 Mar 2026 14:30:18 GMT
+
+https://screenrant.com/star-lord-return-peter-quill-nova-strongest-villain/
+
+Star-Lord is finally back, embarking on a new adventure in the Marvel Universe. But can Peter Quill stop an ancient evil alongside Nova?
+---------
+
+# House Of The Dragon Season 3 Trailer Hints At Changes To GRRM's Fire & Blood
+
+Streaming TV, House of the Dragon
+
+Thu, 05 Mar 2026 14:30:18 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-battle-gullet-baela-book-change/
+
+The House of the Dragon season 3 trailer shows some major upcoming moments in the HBO series, and it also hints at some big changes to GRRM's book.
+---------
+
+# Taylor Sheridan’s Yellowstone Gamble Pays Off Big Time With New 13-Part Western
+
+Network TV, Yellowstone, Marshals
+
+Thu, 05 Mar 2026 14:27:18 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-marshals-gamble-payoff/
+
+Despite still being early in its run, Taylor Sheridan is already reaping the rewards of his major Yellowstone risk from his new 13-part series.
+---------
+
+# 10 Surprise Canadian Musicians Dominating The US Billboard Charts (2026)
+
+Music, Drake, The Weeknd, Heated Rivalry, Tate McRae, Shania Twain, Spotify, Rock, Pop
+
+Thu, 05 Mar 2026 14:13:17 GMT
+
+https://screenrant.com/canadian-musicians-dominating-us-charts/
+
+Canada is staging a takeover of the charts. From Tate McRae’s #1 hits to the hockey romance vibe, meet the stars you didn't know were Canadian.
+---------
+
+# Sarah J. Maas Confirms 3 More ACOTAR Books, Release Dates Revealed For 2026 & 2027
+
+Books, A Court of Thorns and Roses, A Court of Thorns and Roses (2015)
+
+Thu, 05 Mar 2026 14:09:10 GMT
+
+https://screenrant.com/acotar-6-7-sequels-release-dates-confirmed-sarah-j-maas/
+
+Romantasy sensation Sarah J Maas has confirmed three more books in her enduringly popular ACOTAR series - and two will be released very soon.
+---------
+
+# Scream 7 Breaks A Major Franchise Rule (That Will Shape Its Sequel Story)
+
+Movies, Scream 7, Scream
+
+Thu, 05 Mar 2026 14:05:18 GMT
+
+https://screenrant.com/scream-7-kill-returning-characters-break-franchise-rule-future/
+
+Scream 7 makes one surprising choice that will shape the future of the franchise, as the movie's ending leaves the series with a major problem.
+---------
+
+# Netflix's New 8-Episode Provocative Series Based On Popular Book Debuts To Stellar Rotten Tomatoes Score
+
+TV, Vladimir
+
+Thu, 05 Mar 2026 14:03:35 GMT
+
+https://screenrant.com/vladimir-season-1-rotten-tomatoes-score-debut/
+
+The provocative new Netflix limited series Vladimir, with Rachel Weisz and Leo Woodall leading, is off to a sizzling hot start on Rotten Tomatoes.
+---------
+
+# Peaky Blinders: The Immortal Man Review – Tommy  Shelby Returns In Boldest & Most Visually Stunning Ghost Story To End An Epic Era
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Thu, 05 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/peaky-blinders-the-immortal-man-review/
+
+Cillian Murphy returns as the legendary Tommy Shelby in a gritty, tragic, action-packed reckoning with uneven new villains in The Immortal Man.
+---------
+
+# This Prior PlayStation Exclusive Is Coming To A Nintendo Platform This Year
+
+Gaming, PlayStation 5, Triple-A Games
+
+Thu, 05 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/kena-bridge-of-spirits-switch-2-reveal/
+
+Sony has had some interesting exclusivity deals in the past few years, and this ex-PlayStation exclusive will arrive on a Nintendo system soon.
+---------
+
+# Nathan Fillion's Firefly Cast Reunions Spark Revival Hopes
+
+TV, Firefly, Serenity, Sci-Fi
+
+Thu, 05 Mar 2026 14:08:12 GMT
+
+https://www.cbr.com/nathan-fillion-firefly-cast-social-media-recruitment/
+
+Firefly fans are buzzing as Nathan Fillion reunites with cast members, sparking speculation about a potential revival of the beloved sci-fi series.
+---------
+
+# Jennifer Garner's The Last Thing He Told Me Introduces Rita Wilson in Tense Clip
+
+CBR Exclusives, The Last Thing He Told Me
+
+Thu, 05 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/the-last-thing-he-told-me-introduces-rita-wilson-clip/
+
+The new episode introduces yet another familiar face.
+---------
+
+# Paramount's GI Joe Reboot Could Save Military Sci-Fi (if It Comes to Streaming)
+
+TV, G.I. Joe, g.i. joe: a real american hero, Paramount, Action
+
+Thu, 05 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/paramount-gi-joe-action-reboot-streaming-could-save-military-sci-fi/
+
+G.I. Joe could be heading back to the big screen, but a streaming show building upon the success of other shows and comics might be a better route.
+---------
+
+# A Game of Thrones Movie Is About to Reveal the Dragon That Built Westeros
+
+Movies, Game Of Thrones, Fantasy, House of the Dragon
+
+Thu, 05 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/game-of-thrones-movie-reveals-balerion-dragon-fantasy/
+
+The latest Game of Thrones prequel is about to unleash the true power that built House Targaryen--and it's going to be epic.
+---------
+
+# Star Trek Already Has a New Story For Starfleet Academy Fans
+
+Comics, Star Trek: Starfleet Academy, Star Trek
+
+Thu, 05 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/holly-hunter-star-trek-starfleet-academy-exclusive-first-look/
+
+The latest hit Star Trek series is heading to uncharted territory for a thrilling new story featuring the next generation of interstellar adventurers.
+---------
+
+# Wyatt and Kurt Russell Are Dreaming of a Father-Son Western
+
+CBR Exclusives, Monarch: Legacy of Monsters
+
+Thu, 05 Mar 2026 13:15:11 GMT
+
+https://www.cbr.com/wyatt-kurt-russell-father-son-western/
+
+The Monarch: Legacy of Monsters stars tease their dream team-up — and reveal which Wyatt Russell movie sparked their idea.
+---------
+
+# Converse Launches Limited-Edition Hello Kitty & Friends Chuck Taylor Sneakers
+
+Anime, Hello Kitty, sanrio, merchandise, Clothing
+
+Thu, 05 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/hello-kitty-converse-chuck-taylor-collection-march-2026/
+
+Hello Kitty and her friends are making fans' feet sweet with a kawaii new collection of Converse x Sanrio shoes, hoodies and more.
+---------
+
+# 30 Greatest Thriller Miniseries of All Time, Ranked
+
+TV, Thriller, Chernobyl, Sharp Objects, When They See Us
+
+Thu, 05 Mar 2026 14:19:12 GMT
+
+https://collider.com/best-thriller-miniseries-ranked/
+
+The best thriller miniseries ever made offer gripping viewing experiences with just a few episodes, from Sharp Objects to The Days to Chernobyl.
+---------
+
+# 'Peaky Blinders: The Immortal Man' Review: Cillian Murphy's Netflix Crime Hit Delivers a Brutal, Bleak Finale
+
+TV Reviews, Peaky Blinders, Peaky Blinders: The Immortal Man, Cillian Murphy, Barry Keoghan
+
+Thu, 05 Mar 2026 14:01:12 GMT
+
+https://collider.com/peaky-blinders-the-immortal-man-movie-review-netflix-cillian-murphy/
+
+Peaky Blinders: The Immortal Man explores the haunting legacy of Cillian Murphy's Tommy Shelby via high-stakes action and emotional depth.
+---------
+
+# ‘Young Sherlock’ Showrunner Promises Answers for the Finale Key Reveal That “Opens Up a Whole New World”
+
+Exclusives, Young Sherlock, Dónal Finn, Matthew Parkhill, Hero Fiennes Tiffin
+
+Thu, 05 Mar 2026 14:01:12 GMT
+
+https://collider.com/young-sherlock-ending-explained-finale-key-reveal-donal-finn-moriarty-showrunner-matthew-parkhill/
+
+Dónal Finn and showrunner Matthew Parkhill discuss Young Sherlock, the developing Holmes and Moriarty rivalry, and plans for Season 2 and beyond.
+---------
+
+# Stephen Graham Keeps a ‘MobLand’ Star on a Leash in New Look at 96% RT Psychological Thriller [Exclusive]
+
+Exclusives, Heel, Stephen Graham, Anson Boon, Collider Exclusive Preview
+
+Thu, 05 Mar 2026 14:01:12 GMT
+
+https://collider.com/heel-stephen-graham-anson-boon-image-psychological-thriller/
+
+Get an exclusive preview of Heel, a psychological thriller starring Stephen Graham and Anson Boon, where Graham plays a twisted father figure.
+---------
+
+# Netflix's 4-Part WWII Miniseries Features One of Mark Ruffalo's Greatest Roles Ever
+
+TV Features, All The Light We Cannot See, Mark Ruffalo, Netflix, War
+
+Thu, 05 Mar 2026 13:33:12 GMT
+
+https://collider.com/all-the-light-we-cannot-see-netflix-ww2-mark-ruffalo-performance/
+
+Shawn Levy's Netflix WWII miniseries All the Light We Cannot See might've been a critical flop, but it gave us a powerful Mark Ruffalo performance.
+---------
+
+# 'Tracker' Just Proved the Action Procedural Needs To Change Its Format 3 Seasons In
+
+TV Reviews, Tracker, Justin Hartley, Procedural, CBS
+
+Thu, 05 Mar 2026 13:31:12 GMT
+
+https://collider.com/tracker-justin-hartley-cbs-procedural-change-format/
+
+Tracker's Season 3 two-part episodes enhance character development and showcase the show's potential, proving the format can work.
+---------
+
+# 10 Movie Characters Who Don't Look Like Their Book Counterparts
+
+Movie, Wuthering Heights, Carrie, X-Men, Dracula
+
+Thu, 05 Mar 2026 13:09:12 GMT
+
+https://collider.com/movie-characters-dont-look-like-book-counterparts/
+
+There are many movie characters who don't look like how they're described on the page, like Hugh Jackman's Wolverine and Jacob Elordi's Heathcliff.
+---------
+
+# 2025’s Most Breathtaking Sci-Fi Is an Instant Cult Classic That's Finally Available to Stream
+
+Movie Features, Arco, Animation, Natalie Portman, Mark Ruffalo
+
+Thu, 05 Mar 2026 12:24:12 GMT
+
+https://collider.com/arco-streaming-online-natalie-portman/
+
+Arco, featuring Natalie Portman, Mark Ruffalo, and Will Ferrell, is the best animated film of 2025, and you can now watch it at home.
+---------
+
+# After 30 Years, Star Trek Just Quietly Rewrote a Classic ‘Voyager’ Episode
+
+TV Features, Star Trek: Starfleet Academy, Star Trek: Voyager, Robert Picardo, Paramount Plus
+
+Thu, 05 Mar 2026 12:22:12 GMT
+
+https://collider.com/star-trek-starfleet-academy-voyager-secret-villain/
+
+The latest episode of Star Trek: Starfleet Academy puts a dark twist on a Star Trek: Voyager episode.
+---------
+
+# In Just 4 Days, Netflix’s Greatest Weekend Binge Series Raked in a Colossal 5.6M Viewers
+
+TV Features, Bridgerton, Netflix, Yerin Ha, Luke Thompson
+
+Thu, 05 Mar 2026 12:22:12 GMT
+
+https://collider.com/bridgerton-season-4-part-2-netflix-5m-viewers/
+
+Just four days after the releases of Bridgerton Season 4 Part 2, the Netflix series has been seen by 5.6 million viewers.
+---------
+
+# Amazon's 'Jack Ryan' Movie Finally Gets Release Date
+
+Movie News, Jack Ryan, Tom Clancy's Jack Ryan, Prime Video, Action, Thriller
+
+Thu, 05 Mar 2026 14:19:15 GMT
+
+https://movieweb.com/jack-ryan-spin-off-movie-release-date/
+
+Returning star Wendell Pierce has now revealed when the currently untitled action thriller will make its debut.
+---------
+
+# 'Starfleet Academy' Season 1's Penultimate Episode Reminds Everyone the Furflies Are Coming
+
+Features, Star Trek: Starfleet Academy, Star Trek, Star Trek: The Original Series
+
+Thu, 05 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/starfleet-academy-new-tos-clue/
+
+'Star Trek: The Original Series' has a deceptively dangerous episode involving tiny, fuzzy aliens. 'Starfleet Academy' is doing it again.
+---------
+
+# Marvel Unveils 'Fantastic Four' Prequel Comic 'Shalla-Bal: Silver Surfer'
+
+Movie News, The Fantastic Four: First Steps, MCU
+
+Thu, 05 Mar 2026 13:50:24 GMT
+
+https://movieweb.com/fantastic-four-shalla-bal-silver-surfer-spin-off-comic/
+
+Marvel Comics has announced 'Shalla-Bal: Silver Surfer' as the next focus for its 'The Fantastic Four: First Steps' tie-in, 'First Foes.'
+---------
+
+# Liam Neeson Military Sci-Fi Action Flop 'Battleship' Now Streaming Free
+
+Movie News, Battleship, Coming/Leaving Streaming, Liam Neeson
+
+Thu, 05 Mar 2026 13:30:17 GMT
+
+https://movieweb.com/battleship-liam-neeson-streaming-tubu-march-2026/
+
+The fact that this movie even got made in the first place is baffling, but for those that have never seen it, 'Battleship' is now on Tubi.
+---------
+
+# This 'Apocalypse Now' Line is Still One of the Most Brutal War Movie Quotes
+
+Features, Great Line, Apocalypse Now
+
+Thu, 05 Mar 2026 13:00:18 GMT
+
+https://movieweb.com/apocalypse-now-iconic-war-quote/
+
+'Apocalypse Now,' starring Martin Sheen and Marlon Brando, is one of the most iconic war movies and has a line that is still unforgettable today.
+---------
+
+# 'Highlander' Original Script Is Getting a Graphic Novel Adaptation
+
+Movie News, Highlander, Action, Fantasy
+
+Thu, 05 Mar 2026 12:41:04 GMT
+
+https://movieweb.com/highlander-original-script-comic-adaptation/
+
+Alongside the upcoming Henry Cavill-led reboot, 'Highlander' creator Gregory Widen will adapt his original script into a new graphic novel.
+---------
+
+# 'Mexicali' Trailer Unleashes Bren Foster in New Action Thriller
+
+Movie News, Action, Thriller, Martial Arts
+
+Thu, 05 Mar 2026 12:30:16 GMT
+
+https://movieweb.com/mexicali-trailer-action-thriller/
+
+The action thriller is due to hit theaters and streaming in the U.S. next week.
+---------
+
+# 'Scrubs' Revival's "My Rom-Com" Feels Like a Sequel to "My Old Lady"
+
+Features, Scrubs
+
+Thu, 05 Mar 2026 12:01:16 GMT
+
+https://movieweb.com/scrubs-revival-my-old-lady-tribute/
+
+"My Old Lady" remains one of the most emotional 'Scrubs' episodes of all time, but "My Rom-Com" wasn't put off from being a follow-up.
+---------
+
 # Netflix’s Vladimir’s Ending Explained: What Happens To M After Her Dangerous Obsession
 
 Streaming TV, Vladimir
