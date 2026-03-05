@@ -1,3 +1,388 @@
+# Boston Blue’s Jamie, Eddie, & Baby Cameos Addressed By Creator
+
+TV, Boston Blue
+
+Thu, 05 Mar 2026 04:27:31 GMT
+
+https://screenrant.com/boston-blue-jamie-baby-eddie-cameos-brandon-margolis-response/
+
+Boston Blue creator, Brandon Margolis, revealed whether Blue Blood veterans Jamie, Eddie, or their child would appear in the show.
+---------
+
+# After 86 Years, DC Massively Changes Batman & Joker’s Entire Dynamic
+
+Comics, Batman, Joker, DC Comics
+
+Thu, 05 Mar 2026 04:19:38 GMT
+
+https://screenrant.com/dc-changes-batman-joker-relationship-patient-x/
+
+After 86 years, DC is giving Batman and Joker one of the most fascinating status quo shifts we've ever seen, redefining their entire dynamic.
+---------
+
+# Are Halstead & Upton Back Together After The 2026 One Chicago Corssover? Jay & Hailey’s Future Explained
+
+Network TV, One Chicago, Chicago P.D.
+
+Thu, 05 Mar 2026 04:02:19 GMT
+
+https://screenrant.com/one-chicago-2026-crossover-upton-halstead-future-explained/
+
+The 2026 One Chicago crossover reunite Jay Halstead and Hailey Upton, but at the end of the TV special, the pair's future still leaves uncertainties.
+---------
+
+# 2026 One Chicago Crossover Review: Deaths, Secrets, & Reunions Help NBC Deliver The Best Network TV Event In Years
+
+Network TV, One Chicago, Chicago Fire, Chicago P.D., Chicago Med
+
+Thu, 05 Mar 2026 04:00:19 GMT
+
+https://screenrant.com/one-chicago-crossover-2026-review/
+
+A year after NBC resurrected the tradition, One Chicago nearly perfects the art of network TV crossover with its ambitious 2026 special event.
+---------
+
+# 5 Characters Who Are Officially Stronger Than Naruto, Ranked
+
+Anime, Naruto, Boruto: Naruto Next Generations
+
+Thu, 05 Mar 2026 03:07:13 GMT
+
+https://screenrant.com/ninja-stronger-than-naruto-uzumaki-anime-list/
+
+Naruto doesn't hold the title of strongest, as these characters have greater powers than him and are currently the top five in the series' universe.
+---------
+
+# If You Enjoy Female-Led Martial Arts Movies, Watch This Amazing 56-Year-Old Classic & Its Sequel
+
+Classic Movies, Recommendation
+
+Thu, 05 Mar 2026 03:00:31 GMT
+
+https://screenrant.com/the-lady-hermit-black-tavern-female-led-martial-arts-movie-sequel/
+
+A 1971 classic and its secret sequel make for a entertaining watch for those who enjoy female-led martial arts movies.
+---------
+
+# DC's Green Lantern Trailer Is Hiding Its Major Superman Movie Connection
+
+Superheroes, Lanterns, Superman, DC Universe
+
+Thu, 05 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/green-lanterns-trailer-superman-movie-connection/
+
+As exciting as the brand-new trailer for HBO's Lanterns is, the new DCU show is clearly hiding one its biggest connections to 2025's Superman.
+---------
+
+# André is an Idiot Review: Comedic Documentary Turns Cancer Into a Silly Joke
+
+Movies, André is an Idiot
+
+Thu, 05 Mar 2026 02:00:19 GMT
+
+https://screenrant.com/andre-is-an-idiot-movie-review/
+
+Tony Benna's documentary of a man battling colon cancer aims for irreverence, but is mostly conventionally sweet.
+---------
+
+# This Clue From Masked Singer Ozzfest Night All But Confirms Galaxy Girl's Identity (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Thu, 05 Mar 2026 02:00:19 GMT
+
+https://screenrant.com/the-masked-singer-season14-galaxy-girl-identity-clue-ozzfest-night-spoilers/
+
+The Masked Singer season 14's Galaxy Girl has been a mystery all season, but one of the panelists might've finally guessed her true identity.
+---------
+
+# Titan X May Be The Closest We'll Ever Get To A Monsterverse Version Of This Fan-Favorite Kaiju
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse, Explainer
+
+Thu, 05 Mar 2026 02:00:19 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-season-2-titan-x-biollante-similar/
+
+The main villain of Monarch: Legacy of Monsters season 2 bears a striking resemblance to a specific monster in Toho's Godzilla franchise.
+---------
+
+# 10 Most Unwatchable Anime of the 2000s, Ranked
+
+Anime, 2000s, Mars Of Destruction
+
+Thu, 05 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/2000s-anime-most-unwatchable-ranked/
+
+The 2000s were a formative decade for anime that also includes some truly terrible programs that represent the industry's worst efforts.
+---------
+
+# Taylor Sheridan Continues a Disturbing Pattern in Marshals
+
+TV, Marshals, Yellowstone, Western
+
+Thu, 05 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/taylor-sheridan-monica-dutton-marshals-fate/
+
+Monica Dutton's fate only reiterates the criticism of Yellowstone's portrayal of female characters in the main show and spinoffs.
+---------
+
+# How James Cameron Almost Made the Most Controversial Spider-Man Movie Ever
+
+Movies, Spider-Man, james cameron, superheroes
+
+Thu, 05 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/james-cameron-dark-spider-man-movie-sam-raimi-marvel/
+
+An Academy Award-winning director nearly made the first Spider-Man movie ever, which would have taken a much darker turn than Sam Raimi's trilogy.
+---------
+
+# The Princess and the Frog's Disney+ Success Proves 2D Animation Still Works
+
+Movies, Disney, The Princess and the Frog
+
+Thu, 05 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/disney-the-princess-and-the-frog-proves-2d-animation-works/
+
+The Princess and the Frog may have ended 2D animation, but its streaming success proves the medium should return in a new way.
+---------
+
+# Prime Video's New Spider-Man Series Can Fix Sony's Sinister Six Mistake
+
+TV, Spider-Noir, Spider-Man, MCU
+
+Thu, 05 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/prime-video-spider-noir-saving-sony-spiderman-sinister-six/
+
+The latest news about Prime Video's Spider-Noir is a good sign that the series can finally break a certain live-action Spider-Man curse.
+---------
+
+# 25 Years Ago, Nintendo Released the Most Offensive Game of All Time
+
+Games, Nintendo, Nintendo 64, Video Games
+
+Thu, 05 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/conkers-bad-fur-day-retrospective-n64-nintendo-rare/
+
+This game proves that Nintendo's reputation isn't always family-friendly.
+---------
+
+# It's the End of an Era for Official Classroom of the Elite Publisher After 22 Years
+
+Anime, Classroom of the Elite, Seven Seas, Artificial Intelligence, light novels, Manga
+
+Thu, 05 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/seven-seas-entertainment-mediado-acquire/
+
+America's biggest indie manga and light novel publisher just got picked up in a major new industry merger, and fans are concerned about what's next.
+---------
+
+# Monica's Tragic Yellowstone Fate Cancels Kayce's Best Story in Marshals
+
+TV, Marshals, Yellowstone
+
+Thu, 05 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/marshals-cancel-kayce-monica-dutton-second-baby-story/
+
+Monica's fate in Yellowstone's Marshals is a tragedy for Kayce Dutton's spinoff but also a devastating blow to the couple's hopes in Season 5.
+---------
+
+# Why J. R. R. Tolkien Would Like Peter Jackson's The Lord of the Rings Films
+
+Movies, The Lord of the Rings, Fantasy
+
+Thu, 05 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/lotr-tolkien-peter-jackson-biggest-myth-false/
+
+The Lord of the Rings fans are wrong about how J. R. R. Tolkien would have reacted to Peter Jackson's trilogy of film adaptations.
+---------
+
+# These Dragon Ball Sagas Would Be So Much Better Without Vegeta
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Thu, 05 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/dragon-ball-sagas-cell-buu-vegeta/
+
+As much as Vegeta adds to the Cell and Buu Sagas of DBZ, these classic Dragon Ball storylines would be even better without him.
+---------
+
+# Sorry 'Reacher' Fans, The Prime Video Series Isn't Alan Ritchson's Best Role
+
+Movie, Alan Ritchson, Kevin James, Playdate, Reacher
+
+Thu, 05 Mar 2026 04:03:13 GMT
+
+https://collider.com/reacher-isnt-alan-ritchson-best-role-playdate-prime-video/
+
+Reacher is a near-perfect use of Alan Ritchson, but his experience on sitcoms was better utilized in the 2025 Kevin James action comedy Playdate.
+---------
+
+# Apple TV’s Sci-Fi Dominance Keeps Growing After It Quietly Cancels Another 2-Part Series
+
+TV Features, Palm Royale, Apple TV, Sci-Fi, Streaming
+
+Thu, 05 Mar 2026 04:03:13 GMT
+
+https://collider.com/apple-tv-palm-royale-season-3-cancellation/
+
+Palm Royale ends at Apple TV+ after Season 2, but its explosive finale proves the glossy dramedy still had major stories left to tell.
+---------
+
+# 10 Movies From 1942 That Are Now Considered Classics
+
+Movie, Casablanca, Classics, Bambi, To Be or Not to Be
+
+Thu, 05 Mar 2026 04:03:13 GMT
+
+https://collider.com/best-1942-movies-classics/
+
+Casablanca, Bambi, and To Be or Not to Be are among the greatest movies from the year 1942 that are now considered classics.
+---------
+
+# Netflix Announces Surprise New Star-Studded ‘Squid Game’ Project Out of Nowhere
+
+TV News, Squid Game, Squid Game: The Challenge, Netflix
+
+Thu, 05 Mar 2026 01:01:36 GMT
+
+https://collider.com/netflix-squid-game-spin-off-series-the-vip-challenge-cast-details/
+
+Less than a year after the original series came to a close, Netflix has announced an unexpected new Squid Game project out of nowhere.
+---------
+
+# Prime Video's 'Road House' Sequel Is Making Progress Despite Guy Ritchie's Exit
+
+Movie News, Jake Gyllenhaal, Doug Liman, Road House 2, Amazon
+
+Thu, 05 Mar 2026 00:33:57 GMT
+
+https://collider.com/prime-video-jake-gyllenhaal-road-house-2-post-production-update-producer-charles-roven/
+
+Jake Gyllenhaal's highly anticipated Road House 2 is making great progress at Prime Video despite losing director Guy Ritchie.
+---------
+
+# 10 Western Shows To Watch if You Love 'Marshals'
+
+TV, Marshals, Yellowstone, Dark Winds, Western
+
+Thu, 05 Mar 2026 00:27:12 GMT
+
+https://collider.com/western-shows-like-marshals/
+
+Fans of the Yellowstone spin-off Marshals, starring Luke Grimes, will also enjoy Western shows like Dark Winds, Justified, and Billy the Kid.
+---------
+
+# 'Daredevil: Born Again' Finally Explains Matt’s Real Place in the MCU After 4 Crossovers
+
+TV Features, Daredevil: Born Again, Marvel, Charlie Cox, MCU
+
+Thu, 05 Mar 2026 00:25:12 GMT
+
+https://collider.com/daredevil-born-again-matt-murdock-place-in-the-mcu/
+
+After four major MCU crossovers, here’s where Matt Murdock stands in the Marvel Universe.
+---------
+
+# 9 Years After His Last Run, Ozzy Is Officially Back To Prove the Haters Wrong in 'Survivor 50'
+
+TV Features, Survivor, CBS, Competition Shows, Jeff Probst
+
+Thu, 05 Mar 2026 00:18:12 GMT
+
+https://collider.com/survivor-50-ozzy-coach-cirie-rivalry-alliance-explained/
+
+Ozzy's alliance with Cirie may help him finally reach the end of 'Survivor.' As long as Coach's revenge doesn't come first.
+---------
+
+# 'Bridgerton' Season 4 Defies Review Bombing as Part 2 Debuts to Huge Netflix Numbers
+
+TV News, Bridgerton, Yerin Ha, Luke Thompson, Netflix
+
+Thu, 05 Mar 2026 00:02:35 GMT
+
+https://collider.com/bridgerton-season-4-part-2-streaming-success-netflix-march-2026-despite-review-bombing/
+
+Despite facing review bombing, the second part of Bridgerton Season 4 continues to be a streaming hit, getting a top spot on Netflix's Top 10.
+---------
+
+# 'Resident Evil Requiem’s Voice of Leon Kennedy Says This Game Is an Instant Cult Classic for Hardcore Fans [Exclusive]
+
+Gaming News, Resident Evil 7, Nick Apostolides, Video Game, Capcom
+
+Thu, 05 Mar 2026 00:00:12 GMT
+
+https://collider.com/resident-evil-requiem-cult-classic-hardcore-fans-leon-kennedy-nick-apostolides/
+
+Nick Apostolides discusses Leon Kennedy’s evolution in Resident Evil Requiem and the lasting weight of Raccoon City.
+---------
+
+# 'Smallville' Climbs the Worldwide Netflix Charts in a Pivotal DC Year
+
+TV News, Smallville, Netflix, Hot on Streaming
+
+Thu, 05 Mar 2026 03:00:29 GMT
+
+https://movieweb.com/smallville-superman-netflix-march-2026/
+
+The Tom Welling-starring series is finding newfound attention from fans around the globe.
+---------
+
+# 'Jurassic World Rebirth' Quickly Tops the Netflix Chart Days After Debut
+
+Movie News, Jurassic World Rebirth, Netflix, Hot on Streaming
+
+Thu, 05 Mar 2026 02:00:17 GMT
+
+https://movieweb.com/jurassic-world-rebirth-streaming-netflix-march-2026/
+
+Netflix subscribers were clearly chomping at the bit to sink their teeth into the latest prehistoric adventure.
+---------
+
+# Keanu Reeves' Career-Defining Action Thriller 'Speed' Now Streaming on Hulu
+
+Movie News, Keanu Reeves, Speed, Coming/Leaving Streaming
+
+Thu, 05 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/speed-streaming-hulu-march-2026/
+
+The iconic '90s film was Sandra Bullock's Hollywood breakout as well.
+---------
+
+# The 6 Best Book Adaptations Streaming on Netflix Right Now
+
+TV Lists, Netflix
+
+Thu, 05 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/best-book-to-screen-adaptations-stream-on-netflix/
+
+Regardless of how true to the source material they are, these book-to-screen adaptations are some of Netflix's best titles to stream right now.
+---------
+
+# 2026 Oscars Taps Billy Crystal, Meg Ryan for Rob Reiner Tribute
+
+Movie News, Rob Reiner, Billy Crystal, Meg Ryan, When Harry Met Sally
+
+Thu, 05 Mar 2026 00:26:22 GMT
+
+https://movieweb.com/billy-crystal-meg-ryan-rob-reiner-oscars-tribute/
+
+Billy Crystal and Meg Ryan, known for 'When Harry Met Sally,' will honor director Rob Reiner with a tribute at the 2026 Oscars.
+---------
+
 # Game Of Thrones Prequel Movie Features Aegon's Conquest With A Beau WillimonScreenplay
 
 Streaming TV, Game Of Thrones, Game of Thrones
