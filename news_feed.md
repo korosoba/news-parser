@@ -1,3 +1,432 @@
+# DC's Superior Green Lantern TV Show Was Not Afraid Of Going Into Space
+
+Classic TV, Green Lantern: The Animated Series, Lanterns, DC, Green Lantern
+
+Thu, 05 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/green-lantern-the-animated-series-better-hbo-show/
+
+The new Green Lantern show Lanterns is facing criticism for its decision to keep the characters grounded on Earth, avoiding the space adventures that previous Green Lantern series embraced.
+---------
+
+# Netflix's 6-Part Psychological Thriller Series With A Major Twist Is The Perfect One-Night Weekend Binge
+
+TV, Netflix, Behind Her Eyes
+
+Thu, 05 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/behind-her-eyes-netflix-thriller-series-must-watch/
+
+Those looking for the perfect thriller series to watch on Netflix this weekend need to check out this one-night binge show with a shocking twist.
+---------
+
+# Scary Movie 6 Trailer Parodies Oscar-Nominated Horror Films
+
+Movies, Scary Movie 6
+
+Thu, 05 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/scary-movie-6-trailer-reveals-modern-horror-greatness/
+
+Scary Movie 6 is parodying many recent horror films, and a few of the films featured in the trailer show how the genre has evolved in recent years.
+---------
+
+# After 67 Years, DC Unveils Supergirl’s Riskiest Redesign of All Time
+
+DC Comics, Supergirl
+
+Thu, 05 Mar 2026 21:01:18 GMT
+
+https://screenrant.com/supergirl-dramatic-new-costume-redesign-cyborg/
+
+We’re used to Supergirl cycling through temporary costume changes. However, DC appears to be going all in on a new Kara Zor-El redesign.
+---------
+
+# Christian Bale on Reinventing Frankenstein for The Bride!
+
+Movies, Christian Bale, The Bride
+
+Thu, 05 Mar 2026 21:01:18 GMT
+
+https://screenrant.com/christian-bale-the-bride-reinventing-frankenstein-boris-karloff/
+
+Christian Bale discusses his process in reinventing the iconic Frankenstein character for Maggie Gyllenhaal's film The Bride!, drawing inspiration from the original novel and Boris Karloff's portrayal.
+---------
+
+# HBO's New Comedy Show With A Major Ted Lasso Reunion Debuts To Stellar Rotten Tomatoes Score
+
+TV, Rooster
+
+Thu, 05 Mar 2026 21:00:22 GMT
+
+https://screenrant.com/rooster-hbo-show-rotten-tomatoes-score-debutx/
+
+The new HBO comedy led by Steve Carell, which also includes a major Ted Lasso reunion, has debuted to a solid score on Rotten Tomatoes.
+---------
+
+# 8 Best Movies You Need To Watch This Month Before They Leave Netflix
+
+Classic Movies, Netflix
+
+Thu, 05 Mar 2026 20:55:19 GMT
+
+https://screenrant.com/best-movies-leaving-netflix-march-2026/
+
+Netflix's catalog is in constant flux, and there are 8 amazing movies leaving the platform throughout March that can't be missed.
+---------
+
+# Henry Cavill’s Voltron Live-Action Movie Release Window Revealed
+
+Movies, Voltron, Henry Cavill
+
+Thu, 05 Mar 2026 20:51:25 GMT
+
+https://screenrant.com/henry-cavill-voltron-live-action-movie-release-window/
+
+Henry Cavill is starring in a big screen version of the iconic Voltron franchise, and new reporting reveals when it might be released in theaters.
+---------
+
+# The Boys Season 5: Who Plays Ryan This Season?
+
+Streaming TV, The Boys
+
+Thu, 05 Mar 2026 20:45:20 GMT
+
+https://screenrant.com/who-plays-ryan-the-boys-season-5/
+
+The Boys season 5 trailer has given fans a lot to chew on, including a reminder that Ryan is still in play, but is he played by the same actor?
+---------
+
+# Marathon Loadout Basics: What You Need For Every Raid
+
+Gaming, Marathon, Live Service Games, PC
+
+Thu, 05 Mar 2026 20:37:23 GMT
+
+https://screenrant.com/marathon-loadout-guide-essential-raid-items/
+
+Bungie's new extraction shooter is a complex game that doesn't spell much out for you, so here's a rundown of what you'll want in every Marathon raid.
+---------
+
+# Disney Slashes Disney+ & Hulu Bundle Price by 62%
+
+TV, Disney+, Hulu
+
+Thu, 05 Mar 2026 21:45:53 GMT
+
+https://www.cbr.com/disney-plus-hulu-streaming-deal/
+
+A major streaming discount is announced by Disney for a limited time ahead of the upcoming merger.
+---------
+
+# Nintendo's Mario Kart World Update Leak Quietly Reveals Big Plans for 2026
+
+Games, Mario Kart, Nintendo
+
+Thu, 05 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/mario-kart-world-update-leak-nintendo-2026-plans/
+
+Nintendo may have just leaked their big changes coming to Mario Kart World later this year, and online Battle Mode fans couldn't be more excited.
+---------
+
+# 5 MCU Characters Who Rival Thanos’ Power (And Might Be Even Stronger)
+
+Movies, MCU, superheroes
+
+Thu, 05 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/mcu-characters-stronger-than-thanos/
+
+These Marvel Cinematic Universe characters are even stronger than Thanos himself--and may be the most powerful beings in the universe.
+---------
+
+# Mace Windu's Star Wars Returned Is Confirmed With An Unexpected Twist
+
+Comics, Star Wars
+
+Thu, 05 Mar 2026 21:28:16 GMT
+
+https://www.cbr.com/star-wars-hyperspace-stories-mace-windu-return-confirmed/
+
+In the name of the Galactic Senate of the Republic, read this comic.
+---------
+
+# Transformers Gets 'Revenge' With Official Design Update for Optimus Prime & Jetfire
+
+Anime, Transformers, merchandise, Transformers: Revenge of the Fallen, toys
+
+Thu, 05 Mar 2026 21:20:12 GMT
+
+https://www.cbr.com/transformers-dramatic-cature-rotf-jetfire-combine/
+
+Released 15 years ago, Transformers: Revenge of the Fallen is back with a new 'Dramatic Capture' toy set featuring the film's most epic combination.
+---------
+
+# 15 Years Ago, Candy Candy Made an Unlikely Cameo on Saturday Night Live
+
+Anime, Candy Candy, Saturday Night Live
+
+Thu, 05 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/saturday-night-live-forgotten-anime-reference-candy-candy/
+
+Over a decade ago, Saturday Night Live made one joke about a forgotten anime that still stings.
+---------
+
+# Lord of the Rings: The Hunt for Gollum May Be Recasting Arwen Role
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Thu, 05 Mar 2026 21:14:53 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-arwen-recast-liv-tyler/
+
+The upcoming Lord of the Rings film, The Hunt for Gollum, may recast the iconic role of Arwen, originally played by Liv Tyler.
+---------
+
+# The House with a Clock in Its Walls Becomes a Netflix Hit
+
+Movies, The House With a Clock in its Walls, Netflix, Fantasy
+
+Thu, 05 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/the-house-with-a-clock-in-its-walls-fantasy-netflix-success-march-2026/
+
+The dark fantasy film starring Jack Black and Cate Blanchett is a hit on Netflix despite mixed reviews.
+---------
+
+# Kevin Costner’s The Gray House Is Prime Video Latest Western Hit
+
+Movies, The Gray House, Western, Prime Video
+
+Thu, 05 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/kevin-costner-the-gray-house-western-streaming-success-prime-video/
+
+Kevin Costner's latest Western Prime Video series is already a hit, despite a less-than-enthusiastic response from critics.
+---------
+
+# Michael Bay’s Ambulance is His Best Movie Since The Rock
+
+Movies, Ambulance, Thriller
+
+Thu, 05 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/michael-bay-ambulance-best-movie-since-the-rock/
+
+Michael Bay's latest action outing is a refreshing back-to-basics thriller that's his best work since The Rock
+---------
+
+# 'Sullivan's Crossing' Star Says Fans "Deserve to Know the Truth" About His Shocking Season 4 Exit
+
+TV News, Sullivan's Crossing, Scott Patterson, The CW, Romance
+
+Thu, 05 Mar 2026 21:48:33 GMT
+
+https://collider.com/sullivans-crossing-season-4-scott-patterson-exit-explained-creative-differences/
+
+Gilmore Girls star Scott Patterson reveals why he will not be returning for Season 4 of the cozy drama series Sullivan's Crossing.
+---------
+
+# Season 2 of FX's 'Tulsa King' Alternative Adds the Star of 2025's Best Miniseries
+
+TV News, The Lowdown, Ethan Hawke, FX, Betty Gilpin
+
+Thu, 05 Mar 2026 21:47:22 GMT
+
+https://collider.com/the-lowdown-season-2-fx-ethan-hawke-crime-series-tulsa-king-replacement-cast-betty-gilpin/
+
+Season 2 of Ethan Hawke's FX series The Lowdown has taken its first step forward with GLOW's Betty Gilpin.
+---------
+
+# 10 Sci-Fi Movies That Are Now Officially Masterpieces
+
+Movie, Science Fiction, Tetsuo: The Iron Man, Everything Everywhere All at Once, Donnie Darko
+
+Thu, 05 Mar 2026 21:34:12 GMT
+
+https://collider.com/sci-fi-movies-now-officially-masterpieces/
+
+Although no one would've expected it, sci-fi movies like District 9 and Donnie Darko have aged incredibly well, becoming certified masterpieces today.
+---------
+
+# 8 Reasons It’s Hard To Watch the Lord of the Rings Trilogy Today
+
+Movie, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring
+
+Thu, 05 Mar 2026 21:04:12 GMT
+
+https://collider.com/lord-of-the-rings-trilogy-tough-to-watch-today/
+
+Years of cultural overexposure and dated CGI are among several reasons the Lord of the Rings trilogy is tough to watch in 2026.
+---------
+
+# 4 Years Later, Barry Keoghan Channels the Shelby Spirit in ‘Peaky Blinders: The Immortal Man’ Sneak Peek [Exclusive]
+
+Movie News, Peaky Blinders: The Immortal Man, Collider Exclusive Preview, Cillian Murphy, Netflix
+
+Thu, 05 Mar 2026 21:00:13 GMT
+
+https://collider.com/peaky-blinders-movie-the-immortal-man-sneak-peek-barry-keoghan-netflix/
+
+Watch a sneak peek from the Peaky Blinders movie, The Immortal Man, featuring Barry Keoghan as Duke Shelby. Learn about the star-studded cast & more!
+---------
+
+# Best Prime Video Shows Everyone Has Been Sleeping On
+
+TV, Goliath, Prime Video, Dead Ringers, A League of Their Own
+
+Thu, 05 Mar 2026 20:52:13 GMT
+
+https://collider.com/best-prime-video-shows-overlooked/
+
+When you're done devouring shows like Cross and The Boys, dive into one of these Prime Video shows that have flown under the radar.
+---------
+
+# Keanu Reeves' First Original Action Movie Since 'John Wick' Moves Forward With an 'F1' Star
+
+Movie News, Keanu Reeves, Tim Miller, Steven Waddington, Matthew Vaughn
+
+Thu, 05 Mar 2026 20:36:40 GMT
+
+https://collider.com/keanu-reeves-first-original-action-movie-since-john-wick-cast-f1-star-callie-cooke/
+
+Keanu Reeves' first original action movie in a decade, directed by Tim Miller, has added an F1 star to the cast.
+---------
+
+# The Greatest Anti-James Bond Spy Movies, Ranked
+
+Movie, The Spy Who Came In From The Cold, Tinker Tailor Soldier Spy, James Bond, The Ipcress File
+
+Thu, 05 Mar 2026 20:29:13 GMT
+
+https://collider.com/best-anti-james-bond-spy-movies-ranked/
+
+Movies like The Ipcress File and The Conversation are the antithesis of everything James Bond stands for, but that doesn't make them any less great.
+---------
+
+# Creator of Apple TV's #1 Thriller Sets the Record Straight on Season 3
+
+TV News, Idris Elba, Hijack, Apple TV, Christine Adams
+
+Thu, 05 Mar 2026 20:24:36 GMT
+
+https://collider.com/apple-tv-idris-elba-thriller-hijack-season-3-update-creator-jim-field-smith/
+
+Hijack creator Jim Field Smith discusses potential storylines for Season 3, addressing what could be next for Idris Elba's action hero.
+---------
+
+# Netflix's Record-Breaking 2025 Fantasy Epic Loses Its Grip on Top 10 Charts
+
+Movie News, KPop Demon Hunters, Netflix, Animation, Fantasy
+
+Thu, 05 Mar 2026 20:19:33 GMT
+
+https://collider.com/netflix-kpop-demon-hunters-drops-from-top-ten-streaming-charts-march-2026/
+
+After eight months of global chart domination, Netflix’s most-watched movie ever is beginning to lose momentum on streaming. Read on for more.
+---------
+
+# 'Scrubs' System Failure Storyline Copies 'The Pitt's Recent Season 2 Twist
+
+Features, Scrubs, The Pitt
+
+Thu, 05 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/scrubs-revival-the-pitt-twist/
+
+Although it's more than likely a weird coincidence, 'Scrubs' just copied 'The Pitt's storyline a matter of days later. Read to find out more.
+---------
+
+# 'Godzilla: Legacy of Monsters' Struggles on Streaming Against Apple TV+'s 'Shrinking'
+
+TV News, Monarch: Legacy of Monsters, Apple TV, Hot on Streaming, Sci-Fi
+
+Thu, 05 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-streaming-failure-apple-march-2026/
+
+Apple TV+'s Godzilla series, 'Monarch: Legacy of Monsters,' struggles on the streaming charts against Season 3 of 'Shrinking.'
+---------
+
+# 'Outlander': Get Season 8 Full Release Schedule for STARZ Series
+
+Features, Outlander
+
+Thu, 05 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/outlander-season-8-release-schedule/
+
+It's time to go through the stones one last time, Sassenachs. Get the full release schedule for 'Outlander' Season 8.
+---------
+
+# 'Naked Gun' Producer Seth MacFarlane Addresses Possible Sequel
+
+Movie News, The Naked Gun, Seth MacFarlane
+
+Thu, 05 Mar 2026 20:47:47 GMT
+
+https://movieweb.com/seth-macfarlane-the-naked-gun-sequel/
+
+While many fans want a sequel to 'The Naked Gun,' producer Seth MacFarlane explained that the decision is out of his hands.
+---------
+
+# 'The Golden Mean' Series at Netflix Taps 'Heated Rivalry' Creator
+
+TV News, Heated Rivalry, Alexander
+
+Thu, 05 Mar 2026 20:37:15 GMT
+
+https://movieweb.com/the-golden-mean-series-netflix/
+
+Netflix has ordered 'Alexander,' a new series about the relationship between Alexander the Great and Aristotle.
+---------
+
+# Your Friends & Neighbors' Season 2 Trailer Released by Apple
+
+TV News, Your Friends and Neighbors
+
+Thu, 05 Mar 2026 20:34:23 GMT
+
+https://movieweb.com/your-friends-and-neighbors-season-2-trailer/
+
+New trailer for 'Your Friends & Neighbors' Season 2 shows James Marsden's imposing presence alongside Jon Hamm and Olivia Munn.
+---------
+
+# 'The Exorcist' Casts 11 Mike Flanagan Regulars
+
+Movie News, Mike Flanagan, The Exorcist, Horror
+
+Thu, 05 Mar 2026 20:00:42 GMT
+
+https://movieweb.com/the-exorcist-flanagan-cast-reunion/
+
+Mike Flanagan's next horror feature gets a super-sized casting update with the director bringing back several regular collaborators.
+---------
+
+# Every Goodfellas Character Based on a Real Person
+
+Movie Lists, Goodfellas
+
+Thu, 05 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/goodfellas-character-based-on-a-real-person/
+
+A few gangsters from Martin Scorsese's Goodfellas are based on real characters. Here's what the movie changed about them.
+---------
+
+# HBO's 'Harry Potter' Casts Key Characters From Each Hogwarts House
+
+TV News, Harry Potter, HBO Max
+
+Thu, 05 Mar 2026 19:43:07 GMT
+
+https://movieweb.com/hbo-harry-potter-hogwarts-cast/
+
+21 new cast members, representing the four Hogwarts houses, were cast for roles in HBO Max's 'Harry Potter' reboot.
+---------
+
 # 6 Marvel Gangsters Who Could Fight Spider-Man In Live-Action In 2026
 
 Superheroes, Spider-Man: Brand New Day, Spider-Noir
