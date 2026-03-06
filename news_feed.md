@@ -1,3 +1,333 @@
+# Win Tickets to See James Marsden Action-Comedy Mike & Nick & Nick & Alice With ScreenRant
+
+Exclusive, Mike & Nick & Nick & Alice
+
+Fri, 06 Mar 2026 20:33:35 GMT
+
+https://screenrant.com/mike-nick-nick-alice-screening-tickets/
+
+ScreenRant is hosting a screening of Hulu's R-rated action-comedy Mike & Nick & Nick & Alice, with a Q&amp;A with the director following the film.
+---------
+
+# Netflix's 3-Part True Crime Series Is One Of Its Best
+
+Classic TV, Narcos
+
+Fri, 06 Mar 2026 20:30:18 GMT
+
+https://screenrant.com/narcos-netflix-best-true-crime-thriller-series/
+
+Narcos is based on the fascinating true story of the rise of the Medellín cocaine cartel under Pablo Escobar, and the DEA manhunt set to find him.
+---------
+
+# 3 Best Netflix Shows To Watch This Weekend (Mar 6–8, 2026)
+
+Streaming TV, Netflix
+
+Fri, 06 Mar 2026 20:20:18 GMT
+
+https://screenrant.com/best-netflix-shows-to-watch-weekend-march-6-8/
+
+The top 3 must-watch Netflix shows for March 6-8, 2026, are new releases and top trending shows like Vladimir, The Dinosaurs, and The TikTok Killer.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (March 7-8)
+
+Movies, Netflix, Recommendation
+
+Fri, 06 Mar 2026 20:20:18 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-march-7/
+
+Netflix's best movies to watch this weekend are three genuine heavy hitters with beloved stars, and two of them are part of global hit franchises.
+---------
+
+# Lost's Pilot: The Critical Change That Saved Jack's Life & The Show
+
+Classic TV, Lost
+
+Fri, 06 Mar 2026 20:16:22 GMT
+
+https://screenrant.com/lost-tv-show-best-pilot-main-character-death-twist/
+
+The Lost pilot is one of the great TV show series premieres, but it almost went in an entirely different direction, and not for the better.
+---------
+
+# Does Pixar's Hoppers Have A Post-Credits Scene?
+
+New Movies, Hoppers
+
+Fri, 06 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/hoppers-post-credits-scene/
+
+Pixar movies are no strangers to having bonus sequences in the credits. Here's whether Hoppers has any post-credits scenes worth checking out.
+---------
+
+# Fallout: London Is Getting An Official New Release
+
+Gaming, Fallout, Fallout 4
+
+Fri, 06 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/fallout-london-official-new-release-kickstarter/
+
+Fallout: London is one of the most impressive mods of all time, and it's getting an exciting new release via a Kickstarter campaign.
+---------
+
+# Prime Video's Upcoming Sci-Fi Series Will Show Star Trek How It's Done
+
+Streaming TV, Star Trek, Star Trek: The Original Series, The Expanse
+
+Fri, 06 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/prime-video-the-captives-war-sci-fi-show-star-trek/
+
+A new sci-fi series from Prime Video could be the most Star Trek-like show that isn't part of the franchise, capturing the essence of the franchise.
+---------
+
+# Jeremy Allen White Transforms into CGI Alien Rotta for The Mandalorian
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Fri, 06 Mar 2026 20:49:11 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-star-wars-jeremy-allan-white-rotta-hutt-creed/
+
+The Bear star Jeremy Allen White channels Jabba the Hutt and learns Huttese to bring Rotta, the ripped son of the iconic Star Wars villain, to life.
+---------
+
+# Transformers Rolls Out Its Biggest Dinobot With New Movie-Accurate Grimlock Reveal
+
+Anime, Transformers, merchandise, Transformers: Age of Extinction, toys, hasbro
+
+Fri, 06 Mar 2026 20:45:12 GMT
+
+https://www.cbr.com/transformers-studio-series-age-of-extinction-grimlock-first-look/
+
+A new Transformers Studio Series toy showcases the best representation to date of the big-screen 2014 rendition of the Dinobots' vicious leader.
+---------
+
+# Rebecca Ferguson's Silo Season 4 Officially Wraps Filming
+
+TV, Silo
+
+Fri, 06 Mar 2026 20:35:35 GMT
+
+https://www.cbr.com/apple-tv-silo-season-4-wraps-filming/
+
+An exciting update is revealed for Rebecca Ferguson's acclaimed series amid the continued wait for Season 3.
+---------
+
+# Lilo & Stitch Remake's Jumba Lore Changes Makes More Sense
+
+Movies, Disney, Lilo & Stitch
+
+Fri, 06 Mar 2026 20:31:12 GMT
+
+https://www.cbr.com/lilo-stitch-remake-jumba-villain-change-explained/
+
+Lilo & Stitch has made some big changes to the original story, but one villainous change is better than fans believe.
+---------
+
+# Alan Ritchson War Machine Praised by Hideo Kojima As Predator X Metal Gear
+
+Movies, War Machine, Netflix, Sci-Fi
+
+Fri, 06 Mar 2026 20:09:29 GMT
+
+https://www.cbr.com/alan-ritchson-netflix-war-machine-sci-fi-predator-metal-gear-hideo-kojima/
+
+Hideo Kojima, creator of Metal Gear, praises Alan Ritchson's military sci-fi Netflix film War Machine, comparing it to Predator and Metal Gear.
+---------
+
+# 6 Movies That Failed to Be the Next Pirates of the Caribbean
+
+Movies, Pirates of the Caribbean, Fantasy
+
+Fri, 06 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/adventure-movies-copied-pirates-of-the-caribbean-franchise-list/
+
+Pirates of the Caribbean is one of the biggest Disney franchises of all time, but the studio still hasn't been able to match its success.
+---------
+
+# 5 Best Steamy Shows to Watch on Max Right Now
+
+TV, Game Of Thrones, Euphoria, HBO Max, The White Lotus
+
+Fri, 06 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/best-steamy-shows-on-max-right-now/
+
+HBO established its reputation with boundary-pushing television, and these shows carry on the tradition with sultry, sensational programming.
+---------
+
+# Chris Claremont Reveals Why He Can't Choose Just One Favorite X-Men Story
+
+Comics, X-Men, chris claremont
+
+Fri, 06 Mar 2026 19:55:26 GMT
+
+https://www.cbr.com/chris-claremont-cant-choose-favorite-x-men-story-why/
+
+Legendary comic book scribe Chris Claremont opens up about why he can't choose a favorite X-Men storyline from his iconic run on the franchise.
+---------
+
+# 5 Years Ago, 'Hamnet's Jessie Buckley Gave a Brilliantly Dark Performance as a Different Kind of Mother
+
+Movie Features, The Lost Daughter, Hamnet, The Bride!, Jessie Buckley
+
+Fri, 06 Mar 2026 20:57:12 GMT
+
+https://collider.com/jessie-buckley-the-lost-daughter/
+
+Jessie Buckley was nominated for her first Oscar in The Lost Daughter, the directorial debut of Maggie Gyllenhaal.
+---------
+
+# '9-1-1' Star Ryan Guzman Teases Eddie's Season 9 Love Life: "I Want It to Happen So Bad" [Exclusive]
+
+TV News, 9-1-1, Ryan Guzman, ABC, Procedural
+
+Fri, 06 Mar 2026 20:54:37 GMT
+
+https://collider.com/9-1-1-season-9-ryan-guzman-teases-eddie-diaz-love-life/
+
+9-1-1 star Ryan Guzman hints at potential romance for his character but remains cautious about making promises for the show's storyline.
+---------
+
+# Best '70s Movies That Aged Like Fine Wine
+
+Movie, Apocalypse Now, Taxi Driver, Jaws, The Sting
+
+Fri, 06 Mar 2026 20:29:12 GMT
+
+https://collider.com/70s-movies-aged-like-fine-wine/
+
+The 1970s were a pivotal decade for cinema, and some of its greatest gems, like The Exorcist and Apocalypse Now, have only gotten better with age.
+---------
+
+# After 16 Years and 6 Spin-Offs, The Walking Dead Creator Addresses Rumors of an 'Avengers: Endgame'-Like Crossover
+
+TV News, Robert Kirkman, The Walking Dead, The Walking Dead: Dead City, Horror
+
+Fri, 06 Mar 2026 20:25:23 GMT
+
+https://collider.com/the-walking-dead-avengers-endgame-style-crossover-not-happening-robert-kirkman/
+
+The Walking Dead creator Robert Kirkman has addressed rumors of a major crossover event that unites the franchise's 7 shows.
+---------
+
+# 10 Binge-Worthy HBO Shows That Get Better After Season 1
+
+TV, HBO, Rome, Boardwalk Empire, Succession
+
+Fri, 06 Mar 2026 20:23:12 GMT
+
+https://collider.com/hbo-shows-better-after-season-1-binge-worthy/
+
+These HBO series find their footing and evolve into must-watch shows after a strong but sometimes uneven first season, from Veep to Succession.
+---------
+
+# 10 Best Classic Rock Artists of All Time, Ranked
+
+Music Features, Jimi Hendrix, The Beatles, Bruce Springsteen, David Bowie
+
+Fri, 06 Mar 2026 20:06:13 GMT
+
+https://collider.com/best-classic-rock-artists-ranked/
+
+The greatest classic rock artists and bands of all time include legendary ones like The Beatles, Led Zeppelin, Jimi Hendrix, and Fleetwood Mac.
+---------
+
+# 20 Best Oscar-Winning Performances of the 21st Century, Ranked
+
+Movie, Lupita Nyong'o, Oscars, Daniel Day-Lewis, Actors
+
+Fri, 06 Mar 2026 20:03:12 GMT
+
+https://collider.com/best-oscar-winning-performances-21st-century-ranked/
+
+The greatest Oscar-winning performances of the 21st century include work from Daniel Day-Lewis in There Will Be Blood and Charlize Theron in Monster.
+---------
+
+# 'Invincible' Star Still Wants To Join the MCU 2 Years After Exiting 'Thunderbolts*'
+
+Movie News, Steven Yeun, Thunderbolts*, Invincible, Lewis Pullman
+
+Fri, 06 Mar 2026 20:02:38 GMT
+
+https://collider.com/invincible-star-steven-yeun-thunderbolts-reaction-mcu-return-hopes/
+
+Steven Yeun has shared his thoughts on Marvel's Thunderbolts* after leaving the project and hopes to still join the MCU.
+---------
+
+# 3 Best Shows To Watch on Netflix This Weekend
+
+TV, Netflix, Peaky Blinders, Vladimir, Boyfriend on Demand
+
+Fri, 06 Mar 2026 20:00:13 GMT
+
+https://collider.com/best-netflix-shows-watch-weekend-march-6/
+
+Boyfriend on Demand, Peaky Blinders, and Vladimir make up our list of the best Netflix shows to watch the weekend of March 6, 2026.
+---------
+
+# Andy Serkis’ 'Animal Farm' Revealed in a Gripping New First Look [Exclusive]
+
+Movie News, Andy Serkis, Animal Farm, George Orwell, Collider Exclusive Preview
+
+Fri, 06 Mar 2026 20:00:13 GMT
+
+https://collider.com/animal-farm-81-years-later-andy-serkis-animated-movie-image/
+
+Experience a fresh perspective on George Orwell's classic with this exclusive image from Andy Serkis' Animal Farm adaptation, 81 years later.
+---------
+
+# 'Heel' Review: Stephen Graham's Twisted Thriller Loses Its Nerve
+
+Movie Reviews, Heel, Stephen Graham
+
+Fri, 06 Mar 2026 20:25:16 GMT
+
+https://movieweb.com/heel-movie-review/
+
+Graham and Andrea Riseborough elevate an uneven thriller about a couple with an unorthodox plan to rehabilitate a local hooligan.
+---------
+
+# 12 K-Dramas About K-Pop Idols to Watch Next
+
+TV Lists, K-Drama
+
+Fri, 06 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/k-dramas-about-idols-kpop/
+
+These K-dramas dive deep into South Korea's idol and K-pop industry, offering music, romance, and drama.
+---------
+
+# Prime Video's 'Love, Death + Robots' Hard Sci-Fi Replacement 'Secret Level' Is One of Its Best Series
+
+Features, Secret Level, Prime Video, Streaming Recommendations, Sci-Fi
+
+Fri, 06 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/secret-level-prime-video-best-sci-fi/
+
+Prime Video's video game sci-fi anthology series 'Secret Level' is one of the best shows on the streaming platform.
+---------
+
+# 'War Machine' Star Alan Ritchson Breaks Down Underwater Stunt
+
+Movie News, War Machine
+
+Fri, 06 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/alan-ritchson-war-machine-netflix-stunt/
+
+Netflix's new sci-fi action blockbuster has a stunt that not even 'Reacher' star Alan Ritchson would try again.
+---------
+
 # Heated Rivalry Season 2 Gets Writing Update After Creator's New Netflix Series Was Announced
 
 TV, Heated Rivalry
