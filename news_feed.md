@@ -1,3 +1,432 @@
+# Chris Pine Books 8-Year Netflix Return In New Survival Thriller With Frequent Zack Snyder Collaborator
+
+Movies, Chris Pine
+
+Fri, 06 Mar 2026 18:00:34 GMT
+
+https://screenrant.com/yeti-movie-chris-pine-sofia-boutella-casting-netflix/
+
+Chris Pine will return to Netflix after eight years with an upcoming survival thriller that reunites him with a frequent Zack Snyder collaborator.
+---------
+
+# Pokémon Pokopia: How To Customize & Paint Items & Buildings
+
+Gaming, Pokemon Pokopia
+
+Fri, 06 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/pokemon-pokopia-how-to-customize-paint-items-buildings/
+
+Learn how to customize and paint items and buildings in Pokémon Pokopia using Smearguru and your own creativity.
+---------
+
+# Star Trek: Starfleet Academy Character Undergoes Major Transformation
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Fri, 06 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-sam-character-change/
+
+Following Series Acclimation Mil's rebirth in Star Trek: Starfleet Academy, SAM 2.0 isn't quite the same person her friends or audiences remember.
+---------
+
+# Why Mandalorian & Grogu Has Din Djarin Remove His Helmet Again Addressed By Jon Favreau And Pedro Pascal
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Fri, 06 Mar 2026 17:56:37 GMT
+
+https://screenrant.com/mandalorian-and-grogu-movie-why-din-djarin-removes-helmet-jon-favreau-pedro-pascal/
+
+Din Djarin may take his helmet off in The Mandalorian and Grogu, but the moment hasn't lost any of its power, according to star Pedro Pascal.
+---------
+
+# Pokèmon Pokopia: How To Get Leaves
+
+Gaming, Pokemon Pokopia
+
+Fri, 06 Mar 2026 17:44:43 GMT
+
+https://screenrant.com/pokemon-pokopia-how-to-get-leaves/
+
+Do you have a crafting recipe or project calling for a Leaf or two? Don't worry, as we'll tell you how to get more leaves.
+---------
+
+# Silo Season 4 Gets Major Production Update As Rebecca Ferguson's Juliette Prepares For Long-Awaited Return
+
+TV, Silo
+
+Fri, 06 Mar 2026 17:31:20 GMT
+
+https://screenrant.com/silo-season-4-production-filming-wrap-apple-tv/
+
+Apple TV offers audiences a major update on Silo season 4, a year after we last saw Rebecca Ferguson's Juliette in the second season finale.
+---------
+
+# HBO’s 8-Part Psychological Thriller Series Has One Of The Greatest Plot Twists Of The Century
+
+TV, Sharp Objects
+
+Fri, 06 Mar 2026 17:26:20 GMT
+
+https://screenrant.com/sharp-objects-hbo-miniseries-greatest-plot-twist/
+
+One ingenious and unexpected last-second twist choice elevates this HBO show from a great psychological thriller to a genuine all-time classic.
+---------
+
+# Lana Condor Officially Returning In Netflix's To All The Boys I've Loved Before Franchise Series After 5 Years
+
+TV, XO, Kitty, To All the Boys, Lana Condor
+
+Fri, 06 Mar 2026 17:21:15 GMT
+
+https://screenrant.com/lana-condor-xo-kitty-season-3-return-confirmation/
+
+Lana Condor starred as Lara Jean Song Covey in all three To All The Boys films. Now she’s set to reprise the character this spring on Netflix.
+---------
+
+# Alan Ritchson's War Machine 2 Is “Fully” Mapped Out & Is "Going To Be Sick"
+
+Exclusive, War Machine
+
+Fri, 06 Mar 2026 17:15:42 GMT
+
+https://screenrant.com/war-machine-2-story-outline-tease-alan-ritchson-patrick-hughes/
+
+Exclusive: Star Alan Ritchson promises War Machine 2 is "going to be sick" while revealing that the sequel has already been mapped out.
+---------
+
+# Prime Video's 6-Part Crime Thriller Series With Near-Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
+
+TV, Prime Video, Sweetpea
+
+Fri, 06 Mar 2026 17:15:18 GMT
+
+https://screenrant.com/sweetpea-prime-video-thriller-series-must-watch/
+
+An exciting serial killer series is now a global streaming sensation on Prime Video, and the show is made for a one-night weekend binge.
+---------
+
+# JJK Season 3, Episode 10 Release Date & Time
+
+Anime, shonen anime, Shonen, Jujutsu Kaisen
+
+Fri, 06 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-season-3-episode-10-release-date-time/
+
+Now that Itadori has what he came for, Fushiguro and Reggie Star come to blows in Jujutsu Kaisen Episode 57.
+---------
+
+# Seann William Scott Reveals The Brutal Reaction From His First Live Audience in Hollywood
+
+Movies, Dolly
+
+Fri, 06 Mar 2026 17:14:04 GMT
+
+https://www.cbr.com/seann-william-scott-brutal-reaction-first-live-audience/
+
+The Dolly star recalls one of his most disheartening early acting experiences.
+---------
+
+# Netflix’s Peaky Blinders Sequel Series Officially Introduces the New Shelby Generation
+
+Movies, Action, Crime, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Fri, 06 Mar 2026 17:08:22 GMT
+
+https://www.cbr.com/netflix-peaky-blinders-sequel-series-new-shelby-generation/
+
+As it turns out, things are just getting started for the Shelby family and Peaky Blinders.
+---------
+
+# Stephen Graham Keeps Mobland Star on a Leash in Tense Clip From Heel
+
+CBR Exclusives, MobLand, Heel
+
+Fri, 06 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/stephen-graham-anson-boon-heel-clip/
+
+CBR unveils an exclusive clip from the upcoming thriller film to celebrate its release in theaters.
+---------
+
+# Tom Ellis' 10-Part FBI Offshoot Hits No. 8 Days After Falling Off the U.S. Streaming Charts
+
+TV, CIA, FBI
+
+Fri, 06 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/tom-ellis-fbi-cia-series-paramount-streaming-success-march-2026/
+
+The new FBI spin-off series starring Tom Ellis is now climbing up the streaming charts shortly after its debut last month.
+---------
+
+# The Mandalorian and Grogu Replaced Boba Fett as Star Wars' Next Movie Star
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Fri, 06 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/star-wars-replaced-boba-fett-mandalorian-and-grogu/
+
+The Mandalorian and Grogu is bringing Star Wars back to the big screen at long last, but one iconic character has been left behind.
+---------
+
+# Christian Bale Reveals The Harsh Truth About Celebrity That's 'Always a Disappointment'
+
+Movies, christian bale, Batman, Batman Begins, The Dark Knight, The Dark Knight Rises
+
+Fri, 06 Mar 2026 16:28:09 GMT
+
+https://www.cbr.com/christian-bale-reveals-harsh-truth-about-celebrity-life/
+
+The acclaimed Dark Knight actor isn't afraid to say the quiet part out loud.
+---------
+
+# 29 Years Later, A New Pokémon Revival Is Officially Revealed
+
+Anime, Pokemon, bandai
+
+Fri, 06 Mar 2026 16:17:01 GMT
+
+https://www.cbr.com/pokemon-plakoro-bandai-return/
+
+One of the most obscure Pokémon titles of all time is officially coming back for the first time since 1997.
+---------
+
+# 5 Years Later, The Most Underrated Fantasy Anime is Better Than Ever
+
+Anime, Ranking of Kings
+
+Fri, 06 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/ranking-of-kings-most-underrated-fantasy-anime/
+
+After years of flying under the radar, this hidden fantasy gem is finally stepping into the spotlight.
+---------
+
+# Prime Video's New 8-Part Civil War Spy Series Overcomes Mixed Reviews To Claim Top 5 Spot
+
+TV News, The Gray House, Kevin Costner, Western, Yellowstone
+
+Fri, 06 Mar 2026 18:00:36 GMT
+
+https://collider.com/prime-video-civil-war-spy-series-the-gray-house-streaming-success-prime-video-march-2026/
+
+Former Yellowstone star Kevin Costner's new Civil War spy series The Gray House is a certified hit on Prime Video.
+---------
+
+# John Lennon’s Brutal Paul McCartney Diss Track Is Still One of Rock’s Greatest Songs Ever Written
+
+Music Features, The Beatles, John Lennon, Paul McCartney, Rock, Music
+
+Fri, 06 Mar 2026 17:41:31 GMT
+
+https://collider.com/beatles-john-lennon-paul-mccartney-how-do-you-sleep-diss-track/
+
+After The Beatles split, John Lennon released How Do You Sleep? a savage diss track aimed directly at Paul McCartney during their heated feud.
+---------
+
+# Rebecca Ferguson's 4-Part Sci-Fi Saga Scores an Official Filming Update
+
+TV News, Silo, Sci-Fi, Rebecca Ferguson, Apple TV
+
+Fri, 06 Mar 2026 17:39:17 GMT
+
+https://collider.com/rebecca-ferguson-apple-tv-sci-fi-series-silo-season-4-wraps-filming-ahead-of-season-3/
+
+Before Season 3 debuts this year, the fourth and final chapter of Rebecca Ferguson's Silo has officially wrapped filming.
+---------
+
+# ’New Girl’ Star Puts a Fresh Twist on ‘Garfield’ 2 Years After Failed Chris Pratt Movie
+
+TV News, Animation, garfield, Lamorne Morris, Nickelodeon
+
+Fri, 06 Mar 2026 17:32:08 GMT
+
+https://collider.com/new-garfield-tv-series-paramount-plus-cast-lamorne-morris/
+
+Paramount+ has ordered a new Garfield series 2 years after failed Chris Pratt movie, with a beloved New Girl star set to lead.
+---------
+
+# Justin Hartley’s Latest 'Tracker' Case Is 1 of the Most Moving Yet in New Season 3 Sneak Peek [Exclusive]
+
+Exclusives, Tracker, Justin Hartley, CBS, Drama
+
+Fri, 06 Mar 2026 17:30:12 GMT
+
+https://collider.com/tracker-season-3-episode-11-sneak-peek-justin-hartley/
+
+Justin Hartley is back in action as Colter Shaw and onto a new case in an exclusive look at this week’s episode. Watch it here!
+---------
+
+# HBO's Harry Potter Series Officially Confirms 21 New Cast Members
+
+TV News, Harry Potter, HBO
+
+Fri, 06 Mar 2026 17:19:51 GMT
+
+https://collider.com/hbo-harry-potter-series-cast-gryffindor-slytherin-ravenclaw-hufflepuff-students/
+
+With filming on Season 1 almost complete, HBO has announced a whopping 21 new cast members for the Harry Potter series.
+---------
+
+# 'Scrubs' Star Trades Sacred Heart for a 'Home Delivery' in Hilarious First Trailer [Exclusive]
+
+Exclusives, Donald Faison, Rainn Wilson, Joe Pantoliano, Comedy
+
+Fri, 06 Mar 2026 17:00:12 GMT
+
+https://collider.com/home-delivery-official-trailer-comedy-drama-rainn-wilson-donald-faison-joe-pantoliano/
+
+Donald Faison, Rainn Wilson, Joe Pantoliano, and more star in the official trailer for Home Delivery. Watch it here!
+---------
+
+# Michael B. Jordan and Juno Temple Soar in New Look at Netflix’s Upcoming Fantasy Adventure Movie [Exclusive]
+
+Exclusives, Swapped, Michael B. Jordan, Juno Temple, Collider Exclusive Preview
+
+Fri, 06 Mar 2026 17:00:12 GMT
+
+https://collider.com/michael-b-jordan-juno-temple-netflix-adventure-movie-swapped-first-look/
+
+A new look at Nathan Greno’s Swapped showcases the blossoming connection between Michael B. Jordan and Juno Temple’s characters. See it here!
+---------
+
+# 'Halloween’s Danielle Harris Wraps Production on ‘The Devouring’ From Filmmaker Chris McGowan and Executive Producer Sterling Beaumon [Exclusive]
+
+Exclusives, Horror, Halloween, Thriller, FBI: Most Wanted
+
+Fri, 06 Mar 2026 17:00:12 GMT
+
+https://collider.com/the-devouring-first-look-image-danielle-harris-production-wrapped-new-horror-movie/
+
+The first image from the horror film The Devouring sees Danielle Harris caught in a haunting cafe where she's released a great evil.
+---------
+
+# Hold Space in Your Wardrobe For Loungefly's New 'Wicked' Collection [Exclusive]
+
+Movie News, Wicked: For Good, Wicked, Merchandise, Cynthia Erivo
+
+Fri, 06 Mar 2026 16:30:12 GMT
+
+https://collider.com/wicked-loungefly-collection-for-good-glinda-elphaba-matching-merch/
+
+Loungefly's new Wicked collection features bags and wallets celebrating the friendship between Glinda and Elphaba from the musical and films.
+---------
+
+# Forget 'Reacher' Season 4, Amazon's 'Jack Ryan' Finally Returns Soon
+
+Features, Tom Clancy's Jack Ryan, Reacher, Jack Ryan (2025)
+
+Fri, 06 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/jack-ryan-movie-return-before-reacher/
+
+The wait for 'Reacher' continues, but 'Jack Ryan' is already on the way, and we couldn't be more thrilled.
+---------
+
+# Steven Yeun Confirms He's Still Open to Joining the MCU: "Never Say Never"
+
+Movie News, Steven Yeun, Thunderbolts*, MCU, Gillian Jacobs
+
+Fri, 06 Mar 2026 17:59:02 GMT
+
+https://movieweb.com/steven-yeun-thunderbolts-exit-marvel-return/
+
+The actor nearly starred in 'Thunderbolts*' but had to exit due to scheduling conflicts.
+---------
+
+# 'Alien: Earth' Season 2 Production Start Revealed
+
+TV News, Alien: Earth
+
+Fri, 06 Mar 2026 17:52:48 GMT
+
+https://movieweb.com/alien-earth-season-2-production-update/
+
+Sydney Chandler confirmed that filming on 'Alien: Earth' begins in summer 2026.
+---------
+
+# 'Son of the Soil': Low-Budget Action Thriller Hits U.S. Theaters
+
+Movie News, Action, Thriller
+
+Fri, 06 Mar 2026 17:30:16 GMT
+
+https://movieweb.com/son-of-the-soil-us-theater-release/
+
+The low-budget action thriller, which follows a former soldier on a mission of revenge, continues to fight its way into the spotlight.
+---------
+
+# 'Ted Lasso' Season 4 Teaser Show's Brendan Hunt's Return as Coach Beard
+
+TV News, Ted Lasso, Apple TV
+
+Fri, 06 Mar 2026 17:15:38 GMT
+
+https://movieweb.com/coach-beard-ted-lasso-season-4/
+
+Brendan Hunt is finally back as Coach Willis Beard in a short teaser video for Apple TV+'s 'Ted Lasso' Season 4.
+---------
+
+# 'What Happens at Night': First Look at Leonardo DiCaprio's Transformation
+
+Movie News, What Happens at Night, Leonardo DiCaprio, Martin Scorsese
+
+Fri, 06 Mar 2026 17:05:10 GMT
+
+https://movieweb.com/what-happens-at-night-leonardo-dicaprio-first-look/
+
+Leonardo DiCaprio sports an unconventional look in the first set photos from Martin Scorsese's upcoming horror-thriller 'What Happens at Night.'
+---------
+
+# 'War Machine' Ending, Explained
+
+Features, War Machine, Netflix, Alan Ritchson, Sci-Fi, Action
+
+Fri, 06 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/war-machine-ending-explained/
+
+Alan Ritchson stars in Netflix's latest sci-fi action movie 'War Machine', which pits the 'Reacher' star against an otherworldly robotic threat.
+---------
+
+# Christian Bale on Remake of 'American Psycho': "I Like Brave People"
+
+Movie News, American Psycho, Christian Bale, Horror, Luca Guadagnino
+
+Fri, 06 Mar 2026 16:41:24 GMT
+
+https://movieweb.com/christian-bale-american-psycho-remake/
+
+Christian Bale reacts to the new film based on his iconic character in 'American Psycho' from director Luca Guadagnino.
+---------
+
+# 'Ted' Season 2 Turned Seth MacFarlane Into Bill Clinton Using AI
+
+TV News, Ted
+
+Fri, 06 Mar 2026 16:38:43 GMT
+
+https://movieweb.com/ted-season-2-bill-clinton-ai/
+
+Seth MacFarlane was turned into Bill Clinton in one of the funniest moments from 'Ted' Season 2.
+---------
+
+# Henry Cavill & Guy Ritchie's Non-Stop WWII Action Epic 'Ministry of Ungentlemanly Warfare' Isn't Slowing Down on Streaming
+
+Movie News, The Ministry of Ungentlemanly Warfare, STARZ, Hot on Streaming, Action
+
+Fri, 06 Mar 2026 16:30:17 GMT
+
+https://movieweb.com/ministry-of-ungentlemanly-warfare-streaming-starz-march-2026/
+
+After 'Man from UNCLE,' Guy Ritchie and Henry Cavill reunited for 'The Ministry of Ungentlemanly Warfare,' which is streaming on Starz.
+---------
+
 # Liam Neeson Contains New The Last Of Us-Like Infection In R-Rated Sci-Fi Hit Cold Storage’s Opening Scene
 
 Exclusive, Cold Storage, Liam Neeson
