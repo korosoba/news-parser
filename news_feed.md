@@ -1,3 +1,366 @@
+# Ted Season 2's More Emotional Storylines Teased By Seth MacFarlane & Stars
+
+TV, Ted
+
+Fri, 06 Mar 2026 00:00:18 GMT
+
+https://screenrant.com/ted-season-2-emotional-storylines-macfarlane-whigham-burkholder-grimes-ubach/
+
+Seth MacFarlane and stars Max Burkholder, Giorgia Whigham, Scott Grimes and Alanna Ubach talk Ted season 2 and its more emotional storylines.
+---------
+
+# PlayStation Plus Users Praise Open-World Freebie As "Breath Of The Wild For PlayStation"
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Fri, 06 Mar 2026 00:00:18 GMT
+
+https://screenrant.com/playstation-plus-free-open-world-zelda-botw-style/
+
+If you're a PlayStation Plus owner and are looking for a new game to try that's like Breath of the Wild, there's one available right now.
+---------
+
+# 5 Reasons Scream 7 Has The Most Negative Reviews In The Franchise
+
+Horror, Scream 7
+
+Fri, 06 Mar 2026 00:00:18 GMT
+
+https://screenrant.com/scream-7-movie-reviews-negative-explained/
+
+Scream 7 has been met with disappointment from fans of the franchise and has been critically panned, making it the lowest-rated Scream movie.
+---------
+
+# Matt Damon's 1999 Crime Thriller Classic Leaves Netflix In 8 Days - Last Chance To Watch
+
+Classic Movies, The Talented Mr. Ripley
+
+Thu, 05 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/talented-mr-ripley-movie-leaving-netflix-march-2026/
+
+Matt Damon starred in a crime thriller in 1999. The classic movie is about to leave Netflix in a few days, making this your last chance to watch it.
+---------
+
+# Star Wars' Bold New 2027 Movie Is "Punk" With "Tremendous" Ending, Says Star
+
+Movies, Star Wars: Starfighter, Star Wars
+
+Thu, 05 Mar 2026 23:27:01 GMT
+
+https://screenrant.com/star-wars-starfighter-punk-ending-reshoots-daniel-ings-response/
+
+EXCLUSIVE: Ahead of the movie's 2027 release, Star Wars: Starfighter actor Daniel Ings hints how the movie will have a "punk feel to it."
+---------
+
+# School Spirits Season 3 Finale: Ley Lines Mystery Explained
+
+Streaming TV, School Spirits
+
+Thu, 05 Mar 2026 23:15:38 GMT
+
+https://screenrant.com/school-spirits-season-3-ending-explained/
+
+School Spirits season 3's finale unpacked how the ley lines work, Simon's return to the real world, and Alfred Van Heidt's power, setting the stage.
+---------
+
+# Vladimir: Netflix Just Added The Perfect 8-Part Series to Binge This Weekend
+
+Streaming TV, Netflix, Vladimir
+
+Thu, 05 Mar 2026 23:12:19 GMT
+
+https://screenrant.com/netflix-vladimir-series-watch-weekend-binge/
+
+Discover the perfect weekend binge with Netflix's new 8-part series Vladimir, blending comedy, drama, and romance starring Rachel Weisz & Leo Woodall.
+---------
+
+# Bandai Namco Reveals New RPG Based On Massive Anime Franchise
+
+Gaming, Sword Art Online, Triple-A Games, RPG, PC
+
+Thu, 05 Mar 2026 23:09:17 GMT
+
+https://screenrant.com/sword-art-online-echoes-aincrad-rpg-bandai-namco/
+
+The next Bandai Namco RPG has been unveiled, and it's taking players to the realm of one of the most well-known anime series worldwide.
+---------
+
+# Pokémon Null Released, This Game Will Destroy You
+
+Gaming, Pokemon, Triple-A Games
+
+Thu, 05 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/pokemon-null-available-now-challenge-rom-hack/
+
+Described as the "evolution of difficulty," this Pokémon game isn't playing around, and will test the absolute limits of your abilities.
+---------
+
+# Top 10 DC Comics Villain Designs, Ranked:
+
+DC Comics
+
+Thu, 05 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/10-best-dc-comics-villain-designs-ranked/
+
+The best-designed DC Comics villains aren't necessarily the most popular, but instead the most visually striking and effective at embodying evil.
+---------
+
+# Walmart Reveals Exclusive One Piece Goods in the U.S. This March
+
+Anime, One Piece
+
+Fri, 06 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/walmart-one-piece-exclusives-america-march/
+
+One Piece fans should set their sails to their local Walmart if they want to get their hands on some exclusive anime goods this March.
+---------
+
+# 8 Near-Perfect Netflix Crime Movies You Can Watch Right Now
+
+Movies, Netflix, Crime
+
+Fri, 06 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/near-perfect-netflix-crime-movies-list/
+
+From The Irishman to El Camino, Netflix has some amazing crime movies worth watching now that viewers will love.
+---------
+
+# Scott Patterson Explains Surprising Sullivan's Crossing Exit
+
+TV, Sullivan's Crossing
+
+Thu, 05 Mar 2026 23:25:54 GMT
+
+https://www.cbr.com/scott-patterson-exits-sullivans-crossing/
+
+Scott Patterson is clearing the air about his exit from the show ahead of Season 4.
+---------
+
+# Nintendo's 10/10 Cult Classic Game Is Lost to Time After 16 Years
+
+Games, Nintendo, retro games
+
+Thu, 05 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/nintendo-cult-classic-game-ds-masterpiece-hotel-dusk-last-window/
+
+One of the greatest Nintendo DS games ever is nearly impossible to play today.
+---------
+
+# Jason Bateman's DTF St. Louis: Crime Comedy Series Rises on HBO Max Charts
+
+TV, DTF St. Louis, HBO Max, Crime
+
+Thu, 05 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/jason-bateman-dtf-st-louis-comedy-success-hbo-max-march-2026/
+
+DTF St. Louis, starring Jason Bateman, quickly becomes the 2nd most-watched series on HBO Max, surpassing Game of Thrones prequel.
+---------
+
+# Avengers: Endgame's Success is Still Impossible to Copy
+
+Movies, Avengers: Endgame, Spider-Man: Beyond the Spider-Verse, Marvel Cinematic Universe
+
+Thu, 05 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/avengers-endgame-impossible-to-replicate/
+
+Avengers: Endgame ended an era for the MCU, and as other superhero franchises try to do the same, it's only more obvious how impossible that is.
+---------
+
+# HBO's 3-Part Peak Fantasy His Dark Materials Still Outshines Game of Thrones
+
+TV, His Dark Materials, Fantasy, hbo, Game Of Thrones
+
+Thu, 05 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/hbo-his-dark-materials-fantasy-hit-outshines-game-of-thrones/
+
+The more focused adaptation has quietly built a stronger legacy than HBO's Game of Thrones, with a rewarding conclusion that proves its case.
+---------
+
+# A Court of Thorn and Roses TV Series Might Finally Happen
+
+TV, A Court of Thorns and Roses
+
+Thu, 05 Mar 2026 22:38:11 GMT
+
+https://www.cbr.com/a-court-of-thorns-and-roses-series-update/
+
+Hulu might have pulled the plug on the planned fantasy adaptation, but it's not quite dead after all.
+---------
+
+# Natalie Portman's V for Vendetta Suddenly Becomes Streaming Hit
+
+Movies, V For Vendetta, HBO Max, Thriller
+
+Thu, 05 Mar 2026 22:36:31 GMT
+
+https://www.cbr.com/natalie-portman-v-for-vendetta-thriller-success-hbo-max-march-2026/
+
+V for Vendetta, starring Natalie Portman, is a streaming hit 20 years after its release.
+---------
+
+# Ryan Gosling's Sci-Fi Movie Breaks from Digital VFX Trend
+
+Movies, Project Hail Mary
+
+Thu, 05 Mar 2026 22:18:59 GMT
+
+https://www.cbr.com/ryan-gosling-project-hail-mary-sci-fi-no-green-screen-vfx/
+
+Ryan Gosling's new sci-fi film, Project Hail Mary, stands out from other blockbusters by avoiding digital green and blue-screen effects.
+---------
+
+# Jason Statham’s Gritty New Action Classic Is Finally Available on Streaming
+
+Movie Features, Shelter, Jason Statham, Naomi Ackie, Bill Nighy
+
+Thu, 05 Mar 2026 23:54:12 GMT
+
+https://collider.com/jason-statham-shelter-neo-western/
+
+Jason Statham’s little seen Neo-Western ‘Shelter’ has a new life on VOD.
+---------
+
+# Apple TV's 2-Part Mystery Thriller Returns to Instant Success After 3-Year Hiatus
+
+TV News, The Last Thing He Told Me, Jennifer Garner, Nikolaj Coster-Waldau, Angourie Rice
+
+Thu, 05 Mar 2026 23:48:28 GMT
+
+https://collider.com/game-of-thrones-star-nikolaj-coster-waldau-the-last-thing-he-told-me-season-2-streaming-success-apple-tv-march-2026/
+
+Season 2 of Jennifer Garner and Nikolaj Coster-Waldau’s The Last Thing He Told Me is a streaming sleeper hit. Find out more here.
+---------
+
+# 7 Years Later, One of the Most Overlooked WWII Epics Ever Finally Gets Its Due on Streaming
+
+Movie News, Midway, Tubi, Patrick Wilson, Woody Harrelson
+
+Thu, 05 Mar 2026 23:29:39 GMT
+
+https://collider.com/midway-overlooked-ww2-movie-streaming-success-tubi-march-2026/
+
+One of the most overlooked WW2 movies of all time is finally getting its due on streaming charts. Find out where to watch the epic film for free.
+---------
+
+# The Goriest Video Game Movie of the 21st Century Conquers Streaming
+
+Movie News, Mortal Kombat, Karl Urban, HBO Max, Mortal Kombat II
+
+Thu, 05 Mar 2026 23:14:38 GMT
+
+https://collider.com/mortal-kombat-2021-shogun-star-hiroyuki-sanada-video-game-adaptation-streaming-success-hbo-max-march-2026/
+
+Ahead of the upcoming sequel, 2021's Mortal Kombat starring Hiroyuki Sanada is surging on streaming charts. Read on for more details.
+---------
+
+# 20 Greatest Gangster Movie Masterpieces of All Time, Ranked
+
+Movie, Goodfellas, Crime, The Godfather, Carlito's Way
+
+Thu, 05 Mar 2026 23:08:13 GMT
+
+https://collider.com/best-gangster-movies/
+
+Goodfellas, The Godfather, and Carlito's Way are all among the absolute best gangster movies ever made.
+---------
+
+# Keke Palmer Leads a Crew of Colorful Crooks in Stunning New 'I Love Boosters' Image [Exclusive]
+
+Exclusives, I Love Boosters, Boots Riley, Keke Palmer, Collider Exclusive Preview
+
+Thu, 05 Mar 2026 23:00:13 GMT
+
+https://collider.com/i-love-boosters-image-keke-palmer-naomi-ackie-taylour-paige-poppy-liu-crime-comedy/
+
+I Love Booster has received a stunning new look at Keke Palmer and her colorfully-dressed crew of shoplifters dead set on rocking the fashion world.
+---------
+
+# 10 Actors Who've Been in Both 10/10 and 1/10 Movies
+
+Movie, Face/Off, John Travolta, Nicolas Cage, Robert De Niro
+
+Thu, 05 Mar 2026 22:45:12 GMT
+
+https://collider.com/actors-in-perfect-and-terrible-movies/
+
+Certain actors have starred in movies both great and terrible, including prolific legends like Robert De Niro, Ellen Burstyn, and Christopher Walken.
+---------
+
+# 14 Years Later, One of the Greatest Franchise-Starters of All Time Assembles on Streaming
+
+Movie News, The Avengers, Avengers: Doomsday, Marvel, Disney+
+
+Thu, 05 Mar 2026 22:43:42 GMT
+
+https://collider.com/the-avengers-most-important-mcu-movie-streaming-success-disney-plus-march-2026/
+
+14 years later, the blockbuster that launched Marvel's modern shared universe is climbing charts again as hype builds for 2026’s next mega event.
+---------
+
+# Netflix’s Steamy 4-Part Romantic Hit Continues To Dominate Streaming
+
+TV News, Bridgerton, Netflix, The Night Agent, Romance
+
+Thu, 05 Mar 2026 22:30:36 GMT
+
+https://collider.com/netflix-bridgerton-season-4-part-2-romance-series-streaming-success-march-2026/
+
+Netflix’s R-rated period sensation is nearly tripling the views of a major action thriller, holding #1 across multiple countries.
+---------
+
+# This 1965 Beatles Song Inspired Bob Dylan's Diss Track “4th Time Around”
+
+Music Features, Rock, Music, Bob Dylan, The Beatles
+
+Thu, 05 Mar 2026 22:30:12 GMT
+
+https://collider.com/bob-dylan-4th-time-around-the-beatles-norwegian-wood-inspiration/
+
+4th Time Around is Bob Dylan's witty response to The Beatles' Norwegian Wood, and a way for him to reclaim his acoustic sound.
+---------
+
+# 8 Spider-Man Characters Sony Could Actually Build Its Reboot Universe Around
+
+Movie Lists, Spider-Man
+
+Fri, 06 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/spider-man-characters-sony-reboot/
+
+With news that Sony Pictures might reboot their live-action Spider-Man spin-off films, these are the characters who could carry a movie.
+---------
+
+# HBO's 'Lanterns' Is Taking Risks DCU Fans Weren't Prepared For
+
+Features, Lanterns, DCU
+
+Thu, 05 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/lanterns-trailer-dcu-uncharted-territory/
+
+The 'Lanterns' trailer grounded aesthetic is a far cry from the cosmic setting of the comics, but that might be what the DCU needs right now.
+---------
+
+# Prime Video's 'The Tick' 2-Season Sci-Fi Reboot Is Better Than the Original
+
+Features, The Tick, Prime Video, Sci-Fi
+
+Thu, 05 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/the-tick-prime-video-sci-fi-reboot/
+
+Prime Video produced two seasons of an underrated superhero sci-fi series that was better than the original, but didn't get the respect it deserved.
+---------
+
 # DC's Superior Green Lantern TV Show Was Not Afraid Of Going Into Space
 
 Classic TV, Green Lantern: The Animated Series, Lanterns, DC, Green Lantern
