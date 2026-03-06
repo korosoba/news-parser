@@ -1,3 +1,278 @@
+# Disney’s Live-Action Robin Hood Remake Gets Disappointing Update From Director
+
+Movies, Robin Hood
+
+Fri, 06 Mar 2026 22:56:22 GMT
+
+https://screenrant.com/disney-live-action-robin-hood-cancelled/
+
+Disney's live-action Robin Hood gets a disappointing update from director Carlos López Estrada.
+---------
+
+# Hulu's New Hit Sci-Fi Movie That Is Dividing Audiences & Critics Is A Weekend Must-Watch
+
+TV, Hulu, In the Blink of an Eye
+
+Fri, 06 Mar 2026 22:43:49 GMT
+
+https://screenrant.com/in-the-blink-of-an-eye-hulu-sci-fi-movie-must-watch/
+
+This new Hulu Sci-Fi movie explores different timelines, and with it dividing audiences and critics, it's better to check it out for yourself.
+---------
+
+# Apple TV's Slow Horses: A Top Spy Thriller Series with 5 Seasons
+
+Streaming TV, Slow Horses
+
+Fri, 06 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/slow-horses-apple-tv-best-spy-thriller-series/
+
+Apple TV’s spy thriller starring one of Britain's best actors has been consistently good, making it one of the streaming platform's best TV shows.
+---------
+
+# The Bride! Ending Explained (In Detail)
+
+New Movies, The Bride!, Explainer
+
+Fri, 06 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/the-bride-movie-ending-explained/
+
+The Bride brings the classic Universal horror story back to the big screen in a reimagining. and the ending leaves several questions open.
+---------
+
+# How To Get Silk In Marathon & What It’s Used For
+
+Gaming, Marathon, Live Service Games, PC
+
+Fri, 06 Mar 2026 22:10:40 GMT
+
+https://screenrant.com/marathon-silk-use-reward-pass-guide/
+
+Like many live-service games, Marathon has multiple in-game currencies to earn, including Silk, which isn't immediately obvious in its uses.
+---------
+
+# Pokopia: All Materials Made By Pokémon & How To Get Them
+
+Gaming, Pokemon Pokopia
+
+Fri, 06 Mar 2026 22:01:19 GMT
+
+https://screenrant.com/pokopia-materials-pokemon-how-to-get-them-lumber-twine-fluff/
+
+Learn how Pokémon in Pokopia can help you craft and build by processing materials like lumber, iron ore, and more.
+---------
+
+# Upcoming Stephen King Adaptation Could Become The Best Western TV Show Ever
+
+Streaming TV, The Dark Tower, Stephen King, Mike Flanagan
+
+Fri, 06 Mar 2026 22:01:19 GMT
+
+https://screenrant.com/mike-flanagan-dark-tower-stephen-king-western-tv-show/
+
+Mike Flanagan, known for adapting Stephen King's works, is developing a TV series based on The Dark Tower. With its unique blend of Western, fantasy, and horror elements, this adaptation has the potential to become one of the best Western TV shows ever made.
+---------
+
+# Gendry Baratheon's Legacy Examined by Lyonel Baratheon Actor in AKOTSK
+
+TV
+
+Fri, 06 Mar 2026 22:01:19 GMT
+
+https://screenrant.com/knight-seven-kingdoms-lyonel-gendry-baratheon-dunk-comparison-daniel-ings/
+
+AKOTSK actor Daniel Ings discusses how his character Lyonel Baratheon would feel about Gendry leading House Baratheon, exploring the evolution of the powerful family.
+---------
+
+# Disney Cancels Live-Action Remake of Classic 1973 Animated Film Robin Hood
+
+Movies, Robin Hood, Disney, Comedy
+
+Fri, 06 Mar 2026 22:35:54 GMT
+
+https://www.cbr.com/disney-robin-hood-live-action-remake-movie-canceled/
+
+Disney has officially scrapped its planned live-action remake of the 1973 animated classic Robin Hood.
+---------
+
+# This Throwaway DBZ Quote Foreshadowed the Most Heartbreaking Twist in Franchise History
+
+Anime, Dragon Ball, Dragon Ball Z, quotes
+
+Fri, 06 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/dragon-ball-z-quote-bulma-foreshadows-future-trunks-gohan/
+
+An innocent line from Bulma to Future Trunks about her baby following in Gohan's footsteps inadvertently teases one of Dragon Ball's darkest stories.
+---------
+
+# Tom Hardy's Crime Show Taboo Gets Season 2 Update From Steven Knight
+
+TV, Taboo
+
+Fri, 06 Mar 2026 22:10:50 GMT
+
+https://www.cbr.com/tom-hardy-crime-drama-taboo-season-2-update-creator/
+
+Ahead of MobLand return, Tom Hardy fans got an update on an older crime series.
+---------
+
+# The Impact of Mary Shelley's Words on The Bride Is Revealed by Jessie Buckley
+
+Movies, The Bride!
+
+Fri, 06 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/jessie-buckley-mary-shelley-the-bride-impact/
+
+The Bride! star Jessie Buckley explains the way Mary Shelley's words are "like laser beams" and why they scare people so much in the film.
+---------
+
+# Disney's Eragon Remake Will Be the TV Event of the Decade
+
+TV, Disney, Eragon, Fantasy
+
+Fri, 06 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/disney-eragon-remake-better-than-narnia/
+
+Narnia may be coming to Netflix, but Disney has its own fantasy property that can become the TV event of the decade.
+---------
+
+# Tom Hardy's Locke is His True Masterpiece
+
+Movies, Thriller, Locke
+
+Fri, 06 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/tom-hardy-locke-forgotten-masterpiece/
+
+Directed by Steven Knight, the highway thriller traps Tom Hardy with his consequences inside a moving car for its entire runtime.
+---------
+
+# Russell Crowe Harshly Criticized This 148-Minute Epic Dominating Streaming
+
+Movie News, Gladiator II, Russell Crowe, Ridley Scott, Gladiator
+
+Fri, 06 Mar 2026 22:50:10 GMT
+
+https://collider.com/ridley-scott-epic-russell-crowe-criticized-gladiator-2-global-streaming-success-paramount-plus-march-2026/
+
+Russell Crowe harshly criticized this 148-minute Ridley Scott 2024 historical epic, which is now dominating the streaming charts.
+---------
+
+# 10 Movies From 1946 That Are Now Considered Classics
+
+Movie, Classics, Notorious, The Best Years of Our Lives, It's a Wonderful Life
+
+Fri, 06 Mar 2026 22:49:13 GMT
+
+https://collider.com/best-1946-movies-classics/
+
+1946 was a great year for classic film, as proven through movies like It's a Wonderful Life, Notorious, and The Best Year of Our Lives.
+---------
+
+# Christian Bale's Favorite Movie Monster Roars on HBO Max as 2027's Sci-Fi Sequel Looms
+
+Movie News, Christian Bale, Godzilla x Kong: The New Empire, The Bride!, HBO Max
+
+Fri, 06 Mar 2026 22:34:21 GMT
+
+https://collider.com/christian-bale-favorite-sci-fi-franchise-godzilla-x-kong-the-new-empire-streaming-success-hbo-max-march-2026/
+
+Christian Bale recently shared details about his favorite sci-fi franchise, which seems to have helped it dominate the streaming charts.
+---------
+
+# All 100 Episodes of One of the Greatest Sci-Fi Shows Ever Are Now Free To Stream
+
+TV Features, Fringe, J.J. Abrams, Sci-Fi, Pluto TV
+
+Fri, 06 Mar 2026 22:34:12 GMT
+
+https://collider.com/fringe-pluto-tv-streaming-greatest-sci-fi-show/
+
+The 5-season hit sci-fi series Fringe, starring Anna Torv, Joshua Jackson, and John Noble, is now completely free on Pluto TV.
+---------
+
+# 10 Greatest Comedy Movies of the '90s
+
+Movie, Comedy, 90s, My Cousin Vinny, Waiting for Guffman
+
+Fri, 06 Mar 2026 22:21:12 GMT
+
+https://collider.com/best-comedy-movies-90s-ranked/
+
+The '90s produced some of the most iconic comedy movies ever, from Oscar-winning classics like My Cousin Vinny to prescient gems like The Truman Show.
+---------
+
+# The Stephen King-Endorsed 109-Minute Western Thriller Sets Hulu Streaming Date
+
+Movie News, Killing Faith, Stephen King, Hulu, Thriller
+
+Fri, 06 Mar 2026 22:18:36 GMT
+
+https://collider.com/stephen-king-endorsed-western-thriller-killing-faith-streaming-release-date-hulu-march-2026/
+
+A Stephen King–backed supernatural Western brings dread, moral tension, and frontier horror to Hulu soon. Read on for more details.
+---------
+
+# Best Movies To Watch on Prime Video This Weekend
+
+Movie, Prime Video, Shrek, Shadow Force, Parenthood
+
+Fri, 06 Mar 2026 22:18:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-march-6/
+
+Shrek, Shadow Force, and Parenthood make up our list of the best movies to watch on Prime Video the weekend of March 6, 2026.
+---------
+
+# Netflix’s Most Surprising Season 2 Renewal Is a Bold Bet on the Future of American Westerns
+
+TV Features, Netflix, Little House on the Prairie, Western, Television
+
+Fri, 06 Mar 2026 22:12:12 GMT
+
+https://collider.com/netflix-little-house-on-the-prairie-season-2-renewal-american-westerns-streaming/
+
+Netflix surprises fans by renewing Little House on the Prairie for Season 2 before its premiere, signaling strong confidence in the Western genre.
+---------
+
+# These Rachel McAdams Movies Are Total Bangers
+
+Movie, Rachel McAdams, Mean Girls, About Time, The Notebook
+
+Fri, 06 Mar 2026 22:05:12 GMT
+
+https://collider.com/best-rachel-mcadams-movies-bangers/
+
+Mean Girls, The Notebook, and Spotlight are all among the best and most essential movies starring Oscar nominee Rachel McAdams.
+---------
+
+# ‘Two Women’ Strikes a Bold Tone With First Look at Hit Remake of a 1970 Classic [Exclusive]
+
+Exclusives, Two Women, Comedy, Sundance Film Festival, Collider Exclusive Preview
+
+Fri, 06 Mar 2026 22:00:13 GMT
+
+https://collider.com/two-women-images-laurence-leboeuf-karine-gonthier-hyndman-chloe-robichaud/
+
+A set of new images from the French comedy Two Women sees Laurence Leboeuf and Karine Gonthier-Hyndman trying to spice up their mundane lives.
+---------
+
+# HBO's Latest Mystery Miniseries 'DTF St. Louis' Surges on Streaming
+
+TV News, Hot on Streaming, DTF St. Louis
+
+Fri, 06 Mar 2026 22:16:17 GMT
+
+https://movieweb.com/dtf-st-louis-streaming-march-2026/
+
+The small-town thriller stars 'Stranger Things' icon David Harbour, as well as 'Ozark's Jason Bateman.
+---------
+
 # How Stephen Graham & Heel Cast Found Emotional Freedom Amid The Thriller's "Claustrophobia"
 
 Interviews, Heel
