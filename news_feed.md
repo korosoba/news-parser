@@ -1,3 +1,234 @@
+# What Really Happened To Faith Fraser? Outlander Season 8 Answers Explained
+
+Streaming TV, Outlander, Outlander - Season 8
+
+Fri, 06 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/what-really-happened-to-faith-fraser-outlander-season-8-answers-explained/
+
+Outlander season 8 dives right into the mystery of Faith Fraser, revealing the fate of Fanny Pocock's mother and presenting even more big questions.
+---------
+
+# Teenage Mutant Ninja Turtles Gain Kaiju Forms In Epic Godzilla Crossover
+
+Comics, Teenage Mutant Ninja Turtles, Godzilla
+
+Fri, 06 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-godzilla-kaiju-forms/
+
+For the first time in 42 years, the Teenage Mutant Ninja Turtles receive a massive power upgrade that puts them on the same level as Godzilla.
+---------
+
+# 10 Iconic Horror Movie Quotes No One Talks About
+
+Classic Movies, Horror, Explainer
+
+Fri, 06 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/iconic-horror-movie-quotes-no-one-talks-about/
+
+There are some incredible horror movie quotes everyone loves delivering to their movie friends, but there are also some great obscure quotes.
+---------
+
+# Spider-Man: A Complete & Totally Objective Ranking of Peter Parker’s 5 Best Jobs
+
+Comics, Spider-Man
+
+Fri, 06 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/peter-parker-spider-man-best-jobs-list/
+
+Peter Parker has had several unique jobs throughout comic book media and adaptations, but some fare far better for the character's lifestyle.
+---------
+
+# Xbox Project Helix Explains Unexpected PlayStation Exclusives Decision
+
+Gaming, Xbox Game Pass, PC, Triple-A Games, PlayStation 5
+
+Fri, 06 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/xbox-project-helix-pc-games-playstation-exclusives-problem/
+
+Xbox's upcoming next-gen console has been announced, but it has hit a unique snag as PlayStation is reportedly not playing ball anymore.
+---------
+
+# Why Karl Urban's New Swashbuckling Action Movie Is Topping Streaming Charts In America & Worldwide
+
+Movies, The Bluff, Explainer
+
+Fri, 06 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/the-bluff-movie-trending-america-worldwide-explained/
+
+Karl Urban has a new movie on Prime Video that has become a quick number one hit, and here is why this movie has reached the top of the charts.
+---------
+
+# The 10 Greatest Fantasy Series Over the Last 15 Years
+
+Streaming TV, Fantasy
+
+Fri, 06 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/best-fantasy-shows-past-15-years/
+
+Over the past 15 years, the success of Game of Thrones has led to a resurgence in great fantasy TV shows like Outlander and The Wheel of Time.
+---------
+
+# One Piece Officially Crowns a New Strongest Character With Its Most Powerful Devil Fruit of All Time
+
+Anime, One Piece, One Piece (1997)
+
+Fri, 06 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/one-piece-new-strongest-character-loki-devil-fruit-details/
+
+One Piece's latest revelation about Loki's devil fruit has turned the tables on who the series' strongest creature is
+---------
+
+# Walking Dead Creator Robert Kirkman Addresses Rumored Crossover Event
+
+TV, The Walking Dead
+
+Fri, 06 Mar 2026 23:38:46 GMT
+
+https://www.cbr.com/the-walking-dead-robert-kirkman-talks-crossover-event/
+
+Walking Dead creator Robert Kirkman sets the record straight on the rumored Avengers: Endgame-style crossover event.
+---------
+
+# Frieren Flawlessly Transformed This Deadly TV Trope Into Fantasy Gold
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 06 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/frieren-best-fantasy-slow-burn/
+
+This analysis of Frieren: Beyond Journey's End explores how it's plot differs from standard fantasy anime, subverting the genre's time-tested tropes.
+---------
+
+# Ted TV Series Becomes Peacock's Top Watched Show in the US
+
+TV, Ted, Peacock, Comedy
+
+Fri, 06 Mar 2026 23:10:43 GMT
+
+https://www.cbr.com/ted-comedy-success-peacock-march-2026/
+
+Ted, the raunchy comedy prequel to the hit film series, has become Peacock's most-watched TV show in the United States.
+---------
+
+# Ella Purnell's Fallout Replacement Sweetpea Is a Cult Classic Thriller in the Making
+
+TV, Sweetpea, Fallout, Thriller
+
+Fri, 06 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/ella-purnell-fallout-replacement-sweetpea-cult-classic-thriller-potential/
+
+You probably know Ella Purnell from Fallout, maybe even Yellowjackets or Arcane, but her six-episode thriller is poised to become a cult classic.
+---------
+
+# Apocalypto is the Most Ruthless Survival Movie Ever
+
+Movies, Apocalypto, Thriller
+
+Fri, 06 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/apocalypto-most-ruthless-survival-movie-ever/
+
+The work of Mel Gibson can also provide a visceral experience for audiences, and that was definitely the case with his 2006 historical epic.
+---------
+
+# Prime Video's 'Reacher' Fans Need To See These 10 Action Thriller Shows
+
+TV, Reacher, Prime Video, Action, Thriller
+
+Fri, 06 Mar 2026 23:46:12 GMT
+
+https://collider.com/action-thrillers-better-than-reacher-prime-video/
+
+As great as the action series Reacher is, there are other Prime Video thriller shows that are even better, like The Night Manager and Absentia.
+---------
+
+# 6 Modern Sci-Fi Shows That Are 10/10, No Notes
+
+TV, Sci-Fi, Severance, Pluribus, Andor
+
+Fri, 06 Mar 2026 23:44:12 GMT
+
+https://collider.com/modern-sci-fi-tv-shows-perfect/
+
+Discover modern sci-fi shows that are highly praised for their exceptional storytelling, world-building, and performances, from Severance to Pluribus.
+---------
+
+# After a 4-Year Wait, Chris Pratt's Hit Prime Video Thriller Gets a Season 2 Update
+
+TV News, The Terminal List, Chris Pratt, Prime Video, Taylor Kitsch
+
+Fri, 06 Mar 2026 23:40:07 GMT
+
+https://collider.com/chris-pratt-the-terminal-list-season-2-prime-video-thriller-series-wraps-filming/
+
+Chris Pratt's hit action thriller, The Terminal List, has received a release update on its long-awaited second season.
+---------
+
+# Alan Ritchson’s Must-Watch New Role: How 3 Seasons of ‘Reacher’ Prepared Him for ‘War Machine’
+
+Exclusives, War Machine, Alan Ritchson, Reacher, Patrick Hughes
+
+Fri, 06 Mar 2026 23:36:11 GMT
+
+https://collider.com/alan-ritchson-war-machine-netflix-movie-patrick-hughes-reacher-season-4-interview/
+
+Alan Ritchson's new Netflix movie, War Machine, has more in common with Reacher than you think.
+---------
+
+# Collider's Spring Preview Wraps With Nearly 50 Exclusive Looks at the Season's Must-See Movies
+
+Exclusives, Collider Exclusive Preview, Peaky Blinders: The Immortal Man, Scream 7, The Devil Wears Prada 2
+
+Fri, 06 Mar 2026 23:31:12 GMT
+
+https://collider.com/spring-movie-preview-exclusive-early-looks-nearly-50-must-see-movies/
+
+Discover the most anticipated movies of the upcoming spring season with Collider's exclusive preview, featuring nearly 50 new titles.
+---------
+
+# 10 Years Later, 'Coraline' Creators' 97% RT Fantasy Masterpiece Is About To Leave Netflix
+
+Movie News, Kubo and the Two Strings, Netflix, Fantasy, Animation
+
+Fri, 06 Mar 2026 23:28:32 GMT
+
+https://collider.com/kubo-and-the-two-strings-fantasy-epic-leaving-netflix-april-2026/
+
+A 97% RT Oscar-nominated fantasy masterpiece exits Netflix this April, marking a major loss in the platform’s monthly departures.
+---------
+
+# Uma Thurman Returns to Action With Shocking Look at Prime Video’s New Thriller 'Pretty Lethal' [Exclusive]
+
+Movie News, Collider Exclusive Preview, Pretty Lethal, Uma Thurman, Prime Video
+
+Fri, 06 Mar 2026 23:00:13 GMT
+
+https://collider.com/uma-thurman-new-action-movie-pretty-lethal-prime-video-first-look/
+
+Prime Video's upcoming action thriller Pretty Lethal features Uma Thurman & Lana Condor alongside a talented ensemble cast in a high-stakes thriller.
+---------
+
+# 'The X-Files' Is More Relevant Than Ever After 33 Years
+
+Features, The X-Files, Sci-Fi, Holds Up
+
+Fri, 06 Mar 2026 23:00:18 GMT
+
+https://movieweb.com/greatest-sci-fi-series-x-files-timeless/
+
+The X-Files has plenty of alien-related plots, making it one of the most ideal shows to watch now.
+---------
+
 # Disney’s Live-Action Robin Hood Remake Gets Disappointing Update From Director
 
 Movies, Robin Hood
