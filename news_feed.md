@@ -1,3 +1,377 @@
+# Xbox Drops 2 Free Games This Weekend, No Game Pass Required
+
+Gaming, Xbox Series X/S, Triple-A Games
+
+Fri, 06 Mar 2026 05:01:23 GMT
+
+https://screenrant.com/xbox-free-games-without-game-pass-march-2026/
+
+Two games are free on Xbox this weekend, and you don't need Xbox Game Pass of any tier to partake in this weekend-long free play event.
+---------
+
+# Guy Ritchie's Young Sherlock Redeems His Failed King Arthur Adaptation
+
+Streaming TV, Guy Ritchie, King Arthur: Legend of the Sword, Young Sherlock
+
+Fri, 06 Mar 2026 04:00:19 GMT
+
+https://screenrant.com/young-sherlock-king-arthur-redemption-guy-ritchie/
+
+Guy Ritchie has created a new Sherlock Holmes series for Prime Video, which seems to perfectly make up for his failed movie adaptation from 2017.
+---------
+
+# Horror Master Junji Ito's New Release Drops New Look at His Darkest Tales Yet (Exclusive)
+
+Anime, Junji Ito
+
+Fri, 06 Mar 2026 04:00:19 GMT
+
+https://screenrant.com/junji-ito-horror-manga-statues-trailer-exclusive-look/
+
+Including stories of circus catastrophes and spectral scarecrows, Junji Ito's new short story collection ranks among his darkest.
+---------
+
+# Two Years Later, We’re Still Learning 10 New Details About Star Wars’ Most Divisive Series (And Its Canceled Future)
+
+Star Wars, The Acolyte
+
+Fri, 06 Mar 2026 03:40:17 GMT
+
+https://screenrant.com/new-details-about-star-wars-acolyte-future-leslye-headland-reveals/
+
+Nearly two years after its cancellation, Acolyte showrunner Leslye Headland recently shared new reveals about the Star Wars show's intended future.
+---------
+
+# 8 Upcoming Sci-Fi Shows You Cannot Miss
+
+Streaming TV, Sci-Fi, Neuromancer, Blade Runner 2099, Snowball Earth, Lanterns, Star Wars: Maul - Shadow Lord
+
+Fri, 06 Mar 2026 02:15:19 GMT
+
+https://screenrant.com/upcoming-sci-fi-shows-you-cannot-miss/
+
+Sci-fi is more popular than ever, giving viewers plenty of TV shows to pick from. These eight upcoming shows have true potential for greatness.
+---------
+
+# Marvel Just Killed Off A Classic Spider-Man Villain (And It’s MJ’s Fault)
+
+Comics, Spider-Man, Venom, Mary Jane Watson, Marvel
+
+Fri, 06 Mar 2026 02:04:58 GMT
+
+https://screenrant.com/marvel-kills-spider-man-villain-shocker-mj-fault/
+
+Marvel's new Death Spiral event has arrived, kicking off with surprising murder of a classic Spider-Man villain (here's how it connects to Mary Jane).
+---------
+
+# The Pitt Season 2, Episode 9 Recap: A Water Park Disaster Is Heading For PTMC
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 06 Mar 2026 02:01:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-9-ending-explained/
+
+In the latest episode of The Pitt season 2, PTMC struggles with the aftermath of a cyberattack while dealing with a water park disaster and more medical emergencies. Read the full recap here.
+---------
+
+# Shonen Jump's 2026 Anime Mega-Hit Will Finally Dethrone Jujutsu Kaisen and Demon Slayer
+
+Anime, Kagurabachi, Demon Slayer, Jujutsu Kaisen
+
+Fri, 06 Mar 2026 02:00:19 GMT
+
+https://screenrant.com/kagurabachi-2026-shonen-jump-mega-hit-dethrone-demon-slayer/
+
+Shonen Jump is the home of the best shonen in the anime world, and this Shonen Jump sensation has what it takes to take the top spot in an instant.
+---------
+
+# Sullivan's Crossing Season 4: Show Shaken By Scott Patterson's Departure
+
+Network TV, Sullivan's Crossing
+
+Fri, 06 Mar 2026 01:15:19 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-scott-patterson-risky-exit/
+
+Sullivan's Crossing season 4 faces a major change with Scott Patterson's exit, shifting focus from central figure Sully & risking the show's dynamics.
+---------
+
+# Shonen Jump's 2026 Anime of the Year Contender Confirms Free Streaming Home
+
+Anime, Shonen Jump
+
+Fri, 06 Mar 2026 01:01:23 GMT
+
+https://screenrant.com/akane-banashi-shonen-jump-anime-streaming-home/
+
+One of Shonen Jump's top new-gen series promises to be one of the best anime of 2026 and be accessible for international fans in spring.
+---------
+
+# Dragon Ball Z's Forgotten Shonen Jump Successor Is Finally Coming to Netflix
+
+Anime, Toriko, Netflix
+
+Fri, 06 Mar 2026 04:59:12 GMT
+
+https://www.cbr.com/toriko-netflix-release-date-march-2026/
+
+The release will give the forgotten anime series a much needed second wind in the West.
+---------
+
+# Jujutsu Kaisen Episode 56 Officially Makes Yuji Itadori the Villain of His Own Story
+
+Anime, Jujutsu Kaisen
+
+Fri, 06 Mar 2026 04:50:06 GMT
+
+https://www.cbr.com/jujutsu-kaisen-episode-56-review/
+
+The trial of Yuji Itadori continues JJK Season 3's incredible string of episodes.
+---------
+
+# Project Hail Mary’s “No Green Screen” Claim, Explained
+
+Movies, Project Hail Mary, Sci-Fi
+
+Fri, 06 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/project-hail-mary-no-green-screen-explained/
+
+Chris Miller, co-director of Project Hail Mary, made a claim about using green screens and practical effects that confused a lot of savvy film fans.
+---------
+
+# This New-Gen Anime’s Near-Perfect Writing Breaks Every Shonen Hero Mold
+
+Anime, Vinland Saga
+
+Fri, 06 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/vinland-saga-thorfinn-new-gen-anime-near-perfect-shonen-writing/
+
+This exploration of Vinland Saga breaks down why Thorfinn's pacifism makes him a powerful shonen protagonist.
+---------
+
+# Patrick Dempsey's Memory of a Killer Is Crime TV's Biggest Fumble in Years
+
+TV, Memory of a Killer, Crime
+
+Fri, 06 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/memory-of-a-killer-patrick-dempsey-dexter-replacement-crime-tv-fumble/
+
+This new Fox series suggests there's an appetite for grittier crime dramas on network TV to rival specialty networks and streaming, but it fell flat.
+---------
+
+# Klaus Janson Discusses His Iconic Career and 40 Years of Dark Knight Returns (Exclusive)
+
+Comics, Batman, klaus janson
+
+Fri, 06 Mar 2026 04:42:41 GMT
+
+https://www.cbr.com/klaus-janson-iconic-career-dark-knight-returns-40th-anniversary-interview/
+
+In an exclusive interview with Klaus Janson ahead of the opening of his first United States art show, we discussed his iconic career
+---------
+
+# Is Ted OK? is a Remarkable New Series
+
+Comics, indie comics
+
+Fri, 06 Mar 2026 04:15:31 GMT
+
+https://www.cbr.com/is-ted-ok-1-review-remarkable-new-indie-comic-series/
+
+In a CBR review of Is Ted OK? #1, see how this bold new series helps to celebrate what makes comic books such a powerful artistic medium
+---------
+
+# 7 Underrated Nintendo Games That Are Bonafide 10/10 Masterpieces, Ranked
+
+Games, Nintendo
+
+Fri, 06 Mar 2026 04:15:11 GMT
+
+https://www.cbr.com/best-underrated-nintendo-games-perfect-masterpieces-ranked/
+
+Some of Nintendo's greatest games ever are seriously underrated by fans.
+---------
+
+# Slugs is a Forgotten Jaws Copycat Everyone Needs to See
+
+Movies, Slugs, Jaws, Horror
+
+Fri, 06 Mar 2026 04:15:11 GMT
+
+https://www.cbr.com/slugs-bloodiest-jaws-copycat-never-seen/
+
+Jaws is a classic creature feature and one that spawned many copycats, including Slugs, a cult horror classic that's as bloody as it is fun.
+---------
+
+# Jerry's Favorite Seinfeld Episode Is Still the Most Perfect 30 Minutes in Sitcom History
+
+TV, Seinfeld, Jerry Seinfeld, Comedy
+
+Fri, 06 Mar 2026 04:15:11 GMT
+
+https://www.cbr.com/jerry-seinfeld-favorite-episode/
+
+Jerry Seinfeld's favorite Seinfeld episode still stands as a flawless example of sitcom storytelling nearly 30 years later.
+---------
+
+# Apple TV’s Latest Renewal Is a Reminder That the Greatest TV Doesn’t Have To Be Sci-Fi or Fantasy
+
+TV Features, Shrinking, Jason Segal, Harrison Ford, Apple TV
+
+Fri, 06 Mar 2026 04:18:13 GMT
+
+https://collider.com/apple-tv-shrinking-season-4-renewal-best-non-sci-fi-series/
+
+Shrinking’s Season 4 renewal proves Apple TV+ excels beyond sci-fi, delivering heartfelt, ensemble-driven storytelling.
+---------
+
+# ‘Love Story’ Turns JFK Jr. and Carolyn Bessette’s Happiest Episode Into a 2-Scene Gut Punch
+
+TV, Love Story, FX, Hulu, John F. Kennedy
+
+Fri, 06 Mar 2026 04:06:12 GMT
+
+https://collider.com/love-story-jfk-jr-carolyn-bessette-episode-6-wedding-gillian-robespierre-interview/
+
+Love Story director Gillian Robespierre discusses the intimate essence of JFK Jr. & Carolyn Bessette's wedding in Episode 6 through haunting visuals.
+---------
+
+# 10 Near-Perfect Noir Movies That No One Remembers Today
+
+Movie, Film Noir, Angels with Dirty Faces, I Am a Fugitive from a Chain Gang, Leave Her to Heaven
+
+Fri, 06 Mar 2026 04:03:12 GMT
+
+https://collider.com/near-perfect-noir-movies-no-one-remembers-today/
+
+Noir movie masterpieces like Odd Man Out and Leave Her to Heaven have sadly been forgotten by modern audiences and are long overdue for rediscovery.
+---------
+
+# 'The Pitt's Most Intense Med Student Breakdown Has a Much Deeper Hidden Meaning
+
+Exclusives, The Pitt, Shabana Azeez, HBO Max, HBO
+
+Fri, 06 Mar 2026 04:00:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-9-javadi-breakdown-shabana-azeez-interview/
+
+Shabana Azeez discusses the deeper meaning behind Javadi's breakdown in The Pitt Season 2, and how it reflects the pressures faced by med students.
+---------
+
+# 'Elsbeth' Season 3 Episode 12 Recap: Carrie Preston's Murder Mystery Series Makes Jeff Hiller Completely Wig Out
+
+TV Reviews, Elsbeth, Carrie Preston, Jeff Hiller, Wendell Pierce
+
+Fri, 06 Mar 2026 04:00:12 GMT
+
+https://collider.com/elsbeth-season-3-episode-12-recap-review-jeff-hiller/
+
+Elsbeth investigates the murder of a high-profile wig maker, unraveling a web of secrets in the competitive world of hair craftsmanship.
+---------
+
+# ‘Love Story’s Alessandro Nivola Responds to JFK Jr. and Carolyn Bessette’s Nephew’s Harsh Criticism [Exclusive]
+
+Exclusives, Love Story, FX, Ryan Murphy, Alessandro Nivola, John F. Kennedy
+
+Fri, 06 Mar 2026 03:17:12 GMT
+
+https://collider.com/love-story-jfk-jr-carolyn-bessette-alessandro-nivola-episode-6-interview/
+
+Alessandro Nivola responds to Jack Schlossberg’s criticism of Ryan Murphy’s FX Love Story and breaks down Episode 6’s emotional Calvin Klein scenes.
+---------
+
+# In 49 Minutes, HBO’s 7-Part Dark Comedy Miniseries Revealed Its Most Unexpected Villain
+
+TV Features, HBO, Linda Cardellini, DTF St. Louis, Jason Bateman
+
+Fri, 06 Mar 2026 02:30:12 GMT
+
+https://collider.com/dtf-st-louis-episode-1-villain-explained/
+
+Only one episode into DTF St. Louis and although Jason Bateman looks to be the villain, Linda Cardellini might just surprise everybody.
+---------
+
+# ‘The Pitt’s Shawn Hatosy Explains What Abbot and Robby’s Episode 9 Conversation Really Means
+
+Exclusives, The Pitt, Shawn Hatosy, HBO Max, HBO
+
+Fri, 06 Mar 2026 02:00:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-9-director-shawn-hatosy-interview/
+
+Shawn Hatosy reveals the challenges of directing The Pitt Season 2 Episode 9 and the emotional depth behind Abbot and Robby's conversation.
+---------
+
+# '9-1-1' Season 9 Finally Delivers a Near-Perfect Episode
+
+TV Reviews, 9-1-1, Oliver Stark, Jennifer Love Hewitt, ABC
+
+Fri, 06 Mar 2026 02:00:12 GMT
+
+https://collider.com/9-1-1-season-9-episode-12-recap-review-crossover-buck/
+
+9-1-1 Season 9 focuses on the Firefighter Games, family drama, and exciting crossover teasers in a fantastic new episode.
+---------
+
+# 10 Most Perfect Movie Musicals Ever Made, Ranked
+
+Movie, Musical, Chicago, The Sound of Music, West Side Story
+
+Fri, 06 Mar 2026 01:11:13 GMT
+
+https://collider.com/most-perfect-musical-movies-ranked/
+
+From The Wizard of Oz to The Sound of Music, these movie musicals are practically perfect in every way.
+---------
+
+# 8 Masterpiece Crime Miniseries That Keep You in Constant Suspense
+
+TV Lists, TV Miniseries, The Beast in Me
+
+Fri, 06 Mar 2026 03:00:30 GMT
+
+https://movieweb.com/best-crime-miniseries-suspense/
+
+From 'The Beast in Me' to 'Zero Day,' these crime miniseries are incredible and will keep you entertained from start to finish.
+---------
+
+# Christopher Nolan's 10/10 Crime Thriller 'Memento' Lands New Streaming Home
+
+Movie News, Memento, Coming/Leaving Streaming
+
+Fri, 06 Mar 2026 02:00:17 GMT
+
+https://movieweb.com/memento-streaming-hbo-march-2026/
+
+One of the Oscar winner's first films is arguably one of his best (and one of the most complex).
+---------
+
+# Every Mike Flanagan Horror TV Show on Netflix, Ranked
+
+TV Lists, Mike Flanagan, Netflix, Horror
+
+Fri, 06 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/mike-flanagan-horror-tv-shows-ranked/
+
+Mike Flanagan made five horror TV shows for Netflix, from 'The Haunting of Hill House' to 'The Midnight Club,' and some are better than others.
+---------
+
+# Prime Video's All-Star Cast 'Mad Dogs' Is the Best 2010s TV Remake Thriller
+
+TV News, Mad Dogs, Streaming Recommendations
+
+Fri, 06 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/mad-dogs-remake-prime-video-march-2026/
+
+Steve Zahn, Ben Chaplin, Billy Zane, Romany Malco, and Michael Imperioli. Need we say more?
+---------
+
 # Ted Season 2's More Emotional Storylines Teased By Seth MacFarlane & Stars
 
 TV, Ted
