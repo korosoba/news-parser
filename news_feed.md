@@ -1,3 +1,377 @@
+# Heated Rivalry Season 2 Gets Writing Update After Creator's New Netflix Series Was Announced
+
+TV, Heated Rivalry
+
+Fri, 06 Mar 2026 19:43:14 GMT
+
+https://screenrant.com/heated-rivalry-season-2-writing-update-jacob-tierney/
+
+As Heated Rivalry season 2 has been confirmed, the creator shares a crucial writing update, following the news of his upcoming Netflix series.
+---------
+
+# Sydney Sweeney's 2025 R-Rated Thriller Is A Must-Watch On Streaming This Weekend
+
+Movies, Sydney Sweeney, The Housemaid
+
+Fri, 06 Mar 2026 19:35:19 GMT
+
+https://screenrant.com/the-housemaid-movie-sydney-sweeney-streaming-march-2026/
+
+Sydney Sweeney stars in the R-rated thriller 'The Housemaid,' now available to stream. Co-starring Amanda Seyfried, it's a must-watch box office hit.
+---------
+
+# What Really Went Wrong With The Lone Gunmen, The X-Files' Short-Lived Spinoff
+
+Classic TV, The Lone Gunmen
+
+Fri, 06 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/the-x-files-lone-gunmen-spinoff-failure-fast-cancellation-explained/
+
+The X-Files smartly spun off some of its most engaging side characters. Why the series was so short-lived is a mystery in and of itself.
+---------
+
+# The Walking Dead Reunion Series With Rick, Negan, Daryl & More's New Update Is What Fans Wanted To Hear
+
+TV, The Walking Dead
+
+Fri, 06 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/the-walking-dead-sequel-series-reunion-update/
+
+The Walking Dead sequel series that reunites Rick, Daryl, Negan, and more characters has received a new update, and it's what fans wanted.
+---------
+
+# War Machine Ending Explained: How The Killer Robot’s Origin Sets Up A Sequel
+
+New Movies, War Machine, Explainer
+
+Fri, 06 Mar 2026 19:20:18 GMT
+
+https://screenrant.com/war-machine-netflix-2026-movie-ending-explained/
+
+War Machine’s ending seems to reveal what’s next for Alan Ritchson’s 81, as well as how this experience has completely changed him.
+---------
+
+# Nintendo Officially Sues U.S. Government
+
+Gaming, Nintendo, Triple-A Games
+
+Fri, 06 Mar 2026 19:10:08 GMT
+
+https://screenrant.com/nintendo-officially-sues-us-government/
+
+Nintendo's latest legal maneuver goes after a significantly higher-profile target than usual, following a recent decision by the Supreme Court.
+---------
+
+# GTA 6 PC Mod Support Has Fans Split
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Fri, 06 Mar 2026 19:09:11 GMT
+
+https://screenrant.com/gta-6-pc-mod-support-gamer-reaction-speculation/
+
+GTA 6 is still a ways out, and PC support remains a hot topic among Rockstar fans, with many split on how it will be handled.
+---------
+
+# War Machine's Giant Killer Robot Comes From A Real-Life Nightmare
+
+Movies, War Machine
+
+Fri, 06 Mar 2026 19:00:42 GMT
+
+https://screenrant.com/war-machine-movie-robot-inspiration-explained/
+
+EXCLUSIVE: Reacher’s Alan Ritchson stars in a new film War Machine, and the director is revealing the shocking backstory behind this movie.
+---------
+
+# Justin Hartley Busts A Fake ID Business In Tracker Season 3 Clip
+
+Exclusive, Tracker, Tracker - Season 3, Justin Hartley
+
+Fri, 06 Mar 2026 19:00:18 GMT
+
+https://screenrant.com/video/tracker-season-3-episode-11-justin-hartley-clip/
+
+Exclusive: ScreenRant presents a clip from Tracker season 3, episode 11, where Justin Hartley's Colter Shaw uncovers a teen's underground ID business.
+---------
+
+# Halo: Reach Noble Team Officially Returning In New Release
+
+Gaming, Halo, Halo: Reach
+
+Fri, 06 Mar 2026 19:00:18 GMT
+
+https://screenrant.com/halo-reach-noble-team-official-return-flashpoint-expansion/
+
+Halo: Flashpoint is one of the coolest ways experience the universe, and the TTRPG is adding some iconic Halo: Reach characters.
+---------
+
+# Alan Ritchson's War Machine Debuts Strong on Rotten Tomatoes
+
+Movies, War Machine
+
+Fri, 06 Mar 2026 19:34:46 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-netflix-rotten-tomatoes-score/
+
+Reacher star Alan Ritchson's new action movie has arrived on Netflix with a strong score on Rotten Tomatoes.
+---------
+
+# Paramount+ Rebooting Animated Classic Garfield
+
+TV, Garfield
+
+Fri, 06 Mar 2026 19:28:31 GMT
+
+https://www.cbr.com/paramount-rebooting-garfield-animated-series/
+
+The reboot will be separated from the ongoing film series.
+---------
+
+# 10 Anime Series That Went From Quiet Underdogs to Ultimate Hits
+
+Anime, Frieren: Beyond Journey's End, Odd Taxi
+
+Fri, 06 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/underrated-anime-became-best-of-the-year/
+
+There's no exact science to what makes an anime successful and there are some interesting titles that started off slow, only to become huge hits.
+---------
+
+# In Just 1 Day, ABC's The Lincoln Lawyer Replacement With 80% RT Is an Instant Streaming Sensation
+
+TV, RJ Decker
+
+Fri, 06 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/abc-crime-drama-rj-decker-hulu-streaming-success-march-2026/
+
+Immediately after its premiere, ABC's new crime drama starring Scott Speedman is an instant streaming hit.
+---------
+
+# New Demon Slayer Scientific Study Tests Nezuko's Bamboo Muzzle Against the Real Thing
+
+Anime, Demon Slayer
+
+Fri, 06 Mar 2026 18:45:12 GMT
+
+https://www.cbr.com/demon-slayer-nezuko-bamboo-muzzle-scientific-study/
+
+A new official study generates a surprising discovery about the iconic bamboo muzzle worn by Nezuko Kamado in Demon Slayer: Kimetsu no Yaiba.
+---------
+
+# Steven Spielberg's The Dinosaurs Documentary Now Streaming on Netflix
+
+TV, The Dinosaurs, steven spielberg
+
+Fri, 06 Mar 2026 18:30:19 GMT
+
+https://www.cbr.com/steven-spielberg-the-dinosaurs-documentary-streaming-netflix/
+
+Netflix has just created the dream project for anyone who loves dinosaurs, Steven Spielberg, and Morgan Freeman.
+---------
+
+# Alfred Hitchcock Remade His Own Movie
+
+Movies, The Man Who Knew Too Much, Thriller
+
+Fri, 06 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/alfred-hitchcock-remade-own-movie/
+
+Alfred Hitchcock had no reason to remake this 1934 film, but he did it for a very personal reason that has become attached to his legacy.
+---------
+
+# After 63 Years, Cyclops Ditches His Signature Look For Something More Brutal
+
+Comics, X-Men, Cyclops
+
+Fri, 06 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/x-men-cyclops-4-new-visor-reveal/
+
+The original leader of the X-Men is about to trade in his classic visor for a brand-new look as the Shadows of Tomorrow continue to loom overhead.
+---------
+
+# Pedro Pascal's Gladiator II Role Influenced Star Wars Mandalorian Changes
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Fri, 06 Mar 2026 18:19:42 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-star-wars-pedro-pascal-gladiator-2/
+
+Pedro Pascal's intense Gladiator II role prepared him for physical Mandalorian changes in Star Wars' first movie in 7 years.
+---------
+
+# Resident Evil Requiem's Canon Ending, Explained
+
+Games, Resident Evil, Resident Evil 4, horror games
+
+Fri, 06 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/resident-evil-requiem-canon-ending-explained/
+
+Resident Evil Requiem has multiple endings, including a heartbreaking bad end and an official canon ending.
+---------
+
+# These Thrillers Are Masterclasses in Technical Filmmaking
+
+Movie, Thriller, Chinatown, Psycho, Blow Out
+
+Fri, 06 Mar 2026 19:40:12 GMT
+
+https://collider.com/thrillers-masterclasses-technical-filmmaking/
+
+From Blow Out to Chinatown, these thriller movies deliver a masterclass in directing, editing, cinematography, and other behind-the-scenes values.
+---------
+
+# 5 Days Later, HBO's Audacious Crime Thriller Steals 'A Knight of the Seven Kingdoms' Streaming Crown
+
+TV News, DTF St. Louis, Mystery, Game Of Thrones, HBO Max
+
+Fri, 06 Mar 2026 19:30:10 GMT
+
+https://collider.com/dtf-st-louis-murder-mystery-overtakes-a-knight-of-the-seven-kingdoms-streaming-success-hbo-max-march-2026/
+
+A brand-new 7-episode murder mystery surged up streaming charts in just days, overtaking a major fantasy spin-off in less than a week.
+---------
+
+# CBS' 2026 Crime Series Recruits a Beloved 'Brooklyn Nine-Nine' Star
+
+TV News, Matthew Gray Gubler, Einstein, CBS, Criminal Minds
+
+Fri, 06 Mar 2026 19:26:41 GMT
+
+https://collider.com/criminal-minds-star-matthew-gray-gubler-cbs-series-einstein-cast-brooklyn-nine-nine-star-melissa-fumero/
+
+After being delayed, Matthew Gray Gubler's upcoming CBS crime series, Einstein, is moving forward with a perfect new cast member.
+---------
+
+# Ryan Gosling’s Sci-Fi Epic and 'Super Mario Galaxy' Set to Dominate: The 27 Most Anticipated Movies of Spring 2026
+
+Movie Features, Project Hail Mary, Hoppers, The Super Mario Galaxy Movie, The Drama
+
+Fri, 06 Mar 2026 19:18:12 GMT
+
+https://collider.com/new-movie-releases-spring-2026/
+
+We’ve got plenty of exciting movies to look forward to this fall, including Project Hail Mary, Michael, and The Super Mario Galaxy Movie.
+---------
+
+# Prime Video's New 8-Part British Spy Series Is Officially #1 Worldwide
+
+TV News, Guy Ritchie, Young Sherlock, Sherlock Holmes, Hero Fiennes Tiffin
+
+Fri, 06 Mar 2026 19:04:10 GMT
+
+https://collider.com/prime-video-young-sherlock-8-part-superhit-streaming-success-number-1-worldwide-march-2026/
+
+Prime Video's new Sherlock Holmes series becomes the streamers #1 series worldwide.
+---------
+
+# 25 Years Later, Ridley Scott’s $92M War Epic Is Still an Undisputed Classic
+
+Movie News, Black Hawk Down, Ridley Scott, Josh Hartnett, Ewan McGregor
+
+Fri, 06 Mar 2026 18:57:51 GMT
+
+https://collider.com/ridley-scott-war-epic-black-hawk-down-undisputed-classic-streaming-success-apple-tv-march-2026/
+
+25 years later, Ridley Scott's $92 million war epic is still an undisputed classic on streaming.
+---------
+
+# PBS' Remake of a 180-Year-Old Classic Quietly Climbs Streaming Charts in America
+
+TV News, Sam Claflin, Jeremy Irons, The Count of Monte Cristo, PBS
+
+Fri, 06 Mar 2026 18:54:28 GMT
+
+https://collider.com/pbs-the-count-of-monte-cristo-book-adaptation-series-streaming-success-amazon-channels-march-2026/
+
+The Count of Monte Cristo, starring Sam Claflin and Jeremy Irons, is now a streaming hit in America thanks to Amazon. Read on for more details.
+---------
+
+# HBO Max's 10-Part 'Shrinking' Replacement Sets a New Standard on Rotten Tomatoes
+
+TV News, Rooster, Steve Carell, HBO Max, Rotten Tomatoes
+
+Fri, 06 Mar 2026 18:54:00 GMT
+
+https://collider.com/steve-carell-hbo-max-10-part-shrinking-replacement-rooster-rotten-tomatoes-score-is-it-good/
+
+Steve Carell's new 10-part Shrinking replacement sets a new standard on Rotten Tomatoes.
+---------
+
+# Disney's Gritty Sci-Fi Blockbuster Is Still the No. 1 Streaming Hit a Month After Landing on Hulu
+
+Movie News, Predator: Badlands, Sci-Fi, Hulu, Prey
+
+Fri, 06 Mar 2026 18:26:23 GMT
+
+https://collider.com/predator-badlands-hulu-sci-fi-hit-21-days-on-disney-plus-top-10-streaming-success-march-2026/
+
+Dan Trachtenberg's Predator: Badlands continues to dominate streaming after conquering Hulu. Read more about the sci-fi hit here.
+---------
+
+# ABC's New Detective Series Based on a 39-Year-Old Novel Is Coming For 'High Potential's Critical Acclaim
+
+TV News, RJ Decker, Scott Speedman, ABC, Adelaide Clemens
+
+Fri, 06 Mar 2026 18:14:12 GMT
+
+https://collider.com/abc-crime-series-high-potential-replacement-rj-decker-rotten-tomatoes-score-is-it-good/
+
+RJ Decker, ABC's newest entry to the crime procedural genre, has debuted to a very positive Rotten Tomatoes rating.
+---------
+
+# The 30 Greatest Actors of Our Time
+
+Movie Lists
+
+Fri, 06 Mar 2026 19:01:17 GMT
+
+https://movieweb.com/greatest-actors-today/
+
+These actors have defined cinema in the modern era, bringing in audiences and winning praise from critics, and earning awards.
+---------
+
+# Mark Hamill's 'The Big Red One': A Forgotten Masterpiece War Movie
+
+Features, The Big Red One, Cultural Reassessment
+
+Fri, 06 Mar 2026 19:01:16 GMT
+
+https://movieweb.com/big-red-one-war-movie-masterpiece/
+
+Samuel Fuller's 'The Big Red One' draws on personal WWII experience, delivering a vastly underrated war epic that's worth revisiting.
+---------
+
+# Netflix's 'One Piece' Popcorn Bucket Revealed for Season 2 Theatrical Debut
+
+TV News, One Piece
+
+Fri, 06 Mar 2026 18:36:42 GMT
+
+https://movieweb.com/netflix-one-piece-popcorn-bucket/
+
+Netflix's popular live-action adaptation of 'One Piece' is headed to the big screen with the popcorn bucket.
+---------
+
+# 'Walking Dead' Creator Talks Challenges of Massive Franchise Crossover
+
+TV News, The Walking Dead, Robert Kirkman
+
+Fri, 06 Mar 2026 18:34:57 GMT
+
+https://movieweb.com/the-walking-dead-crossover-plans-robert-kirkman/
+
+Fans would love to see it happen, but the sprawling franchise makes it all the much harder.
+---------
+
 # Chris Pine Books 8-Year Netflix Return In New Survival Thriller With Frequent Zack Snyder Collaborator
 
 Movies, Chris Pine
