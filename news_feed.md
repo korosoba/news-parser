@@ -1,3 +1,124 @@
+# Pepper Saltzman Became Modern Family's Best Supporting Character In Just 10 Episodes
+
+Classic TV, Modern Family
+
+Fri, 06 Mar 2026 12:00:18 GMT
+
+https://screenrant.com/modern-family-best-supporting-character-pepper-saltzman/
+
+Despite only appearing in 10 episodes, Pepper Saltzman — played by the great Nathan Lane — is Modern Family's best supporting character by far.
+---------
+
+# The Elder Scrolls 6 Fans Hyped Following Official Xbox Announcement
+
+Gaming, The Elder Scrolls 6, PC
+
+Fri, 06 Mar 2026 11:42:57 GMT
+
+https://screenrant.com/elder-scrolls-6-official-xbox-announcement-gamers-react/
+
+The Elder Scrolls 6 fans are officially excited after a new announcement from Xbox, and it might finally be time to board the hype train.
+---------
+
+# Jisoo's New K-Drama Is Finally Here: Where To Watch & Plot Explained
+
+Streaming TV, Boyfriend on Demand
+
+Fri, 06 Mar 2026 11:30:18 GMT
+
+https://screenrant.com/boyfriend-on-demand-jisoo-k-drama-streaming-netflix/
+
+Jisoo's long-awaited return to K-dramas has finally come with 2026's Boyfriend on Demand, and the Netflix original romantic comedy doesn't disappoint.
+---------
+
+# Xbox Drops 2 Free Games You've 48 Hours To Check Out, No Game Pass Needed
+
+Gaming, Xbox Series X/S, Xbox Game Pass
+
+Fri, 06 Mar 2026 11:07:52 GMT
+
+https://screenrant.com/xbox-2-free-games-march-28-hours-no-game-pass/
+
+Xbox Game Pass is a pretty compelling offering, but there's plenty of fun to be had even if you don't subscribe.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 6, 2026
+
+Movie, Daylight, Saving Mr. Banks, Out of Time, Saving Private Ryan
+
+Fri, 06 Mar 2026 12:00:12 GMT
+
+https://collider.com/movie-quiz-mar-6-2026-saving-silverman-out-of-time/
+
+Daylight Saving Time starts this weekend. Before we lose an hour of sleep, here's a quiz about movie titles that contain Daylight, Saving, or Time.
+---------
+
+# Ranking Every TV Episode That's Almost Perfect on IMDb
+
+TV, Television, Game Of Thrones, Better Call Saul, Avatar: The Last Airbender
+
+Fri, 06 Mar 2026 11:17:12 GMT
+
+https://collider.com/tv-episodes-almost-perfect-imdb-ranked/
+
+Games of Thrones' "The Rains of Castamere" and Better Call Saul's "Plan and Execution" have reached that rare, almost perfect rating on IMDb.
+---------
+
+# 10 Years Ago, Matthew McConaughey Fought for Freedom in This Divisive War Western
+
+Movie, Matthew McConaughey, Free State of Jones, Mahershala Ali, Keri Russell
+
+Fri, 06 Mar 2026 11:15:12 GMT
+
+https://collider.com/10-years-ago-matthew-mcconaughey-divisive-war-western-free-state-of-jones/
+
+Despite telling a forgotten and fascinating story from American history, Matthew McConaughey’s Civil War Western Free State of Jones was a major flop.
+---------
+
+# Nicolas Cage's 8-Episode Prime Video Spider-Man Show Needs To Avoid the Genre's Worst Habit
+
+TV Features, Spider-Noir, Nicolas Cage, Spider-Man, Prime Video
+
+Fri, 06 Mar 2026 11:11:12 GMT
+
+https://collider.com/nicolas-cage-spider-man-prime-video-spider-noir-doesnt-need-love-interest/
+
+Nicolas Cage's upcoming Spider-Noir Prime Video series should feature a Spider-Man that doesn't have a love interest.
+---------
+
+# Netflix Is Officially Cutting This 4-Part Historical Masterpiece Loose to a Free Streaming Home
+
+TV Features, Black Sails, Netflix, Roku, Plex
+
+Fri, 06 Mar 2026 11:08:12 GMT
+
+https://collider.com/black-sails-leaving-netflix-april-2026-free-to-stream/
+
+Black Sails is set to depart Netflix, though viewers can watch the pirate epic for free on Roku and Plex.
+---------
+
+# Netflix's 'War Machine' Cast Guide - Where You Recognize Every Actor From
+
+Features, War Machine, Netflix
+
+Fri, 06 Mar 2026 12:00:16 GMT
+
+https://movieweb.com/war-machine-cast-guide-netflix/
+
+Netflix's 'War Machine' stars 'Reacher's Alan Ritchson and several other high-profile actors, and here's where you have seen them before.
+---------
+
+# 'The Wild Robot 2' in the Works: Title, Directors & Story Details Revealed
+
+Movie News, The Wild Robot Escapes, The Wild Robot, Animation
+
+Fri, 06 Mar 2026 11:55:28 GMT
+
+https://movieweb.com/the-wild-robot-2-sequel-in-development/
+
+DreamWorks Animation has confirmed that a sequel to 'The Wild Robot,' titled 'The Wild Robot Escapes,' is in development with new directors.
+---------
+
 # Resident Evil 30th Anniversary Game Officially Announced Days After Requiem's Launch
 
 Gaming, Resident Evil
