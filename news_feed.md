@@ -1,3 +1,322 @@
+# How Stephen Graham & Heel Cast Found Emotional Freedom Amid The Thriller's "Claustrophobia"
+
+Interviews, Heel
+
+Fri, 06 Mar 2026 21:54:14 GMT
+
+https://screenrant.com/heel-movie-stephen-graham-andrea-riseborough-anson-boone-interview/
+
+The stars of Heel delve into the emotional depth and surprising humanity of a dark thriller that's far more of a "fairy tale" than it appears to be.
+---------
+
+# The Least-Watched Movie In The Star Wars Franchise Is Much Better Than I Remember
+
+Star Wars, Solo: A Star Wars Story, Op-Ed
+
+Fri, 06 Mar 2026 21:46:18 GMT
+
+https://screenrant.com/solo-least-watched-star-wars-movie-better-than-remember/
+
+The Star Wars franchise's most overlooked movie is actually an underrated gem whose performance was hurt by unfortunate timing and forced callbacks.
+---------
+
+# HBO's 8-Part Crime Series Is A Weekend Binge You Won't Regret
+
+Classic TV, The Penguin
+
+Fri, 06 Mar 2026 21:46:18 GMT
+
+https://screenrant.com/hbo-the-penguin-crime-tv-series-weekend-binge/
+
+Some weekend binges are more entertaining that others, but one HBO crime series with 8 episodes is viewing no one could possibly regret.
+---------
+
+# One Of Netflix's Best Thriller Series Of All Time Resurges In The US & Is A Weekend Must-Binge
+
+TV, Netflix, The Lincoln Lawyer
+
+Fri, 06 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/the-lincoln-lawyer-netflix-thriller-series-march-2026-streaming-success-binge/
+
+One of Netflix's best thriller series just resurged on the charts after falling out of them, and it offers subscribers the perfect weekend binge.
+---------
+
+# Pixar's Hoppers: A Return to Original Storytelling Excellence
+
+Movies, Hoppers
+
+Fri, 06 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/hoppers-pixar-return-to-form-original-movie/
+
+Pixar's new movie, Hoppers, is a return to form. It's the studio's best original film in years (and proof they shouldn't give up on original stories).
+---------
+
+# Daredevil Season 2 Will Give Us The Jessica Jones Story We’ve All Been Waiting For
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe, Jessica Jones
+
+Fri, 06 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/daredevil-season-2-jessica-jones-luke-cage-married-theory/
+
+Marvel's Daredevil: Born Again season 2 is in the perfect position to give us the MCU Jessica Jones story we've been wanting since 2019.
+---------
+
+# 3 Best Prime Video Shows To Watch This Weekend (Mar 6–8, 2026)
+
+Streaming TV
+
+Fri, 06 Mar 2026 21:28:18 GMT
+
+https://screenrant.com/best-prime-video-shows-to-watch-weekend-march-6-8/
+
+The best Prime Video shows to watch this weekend include the new crime thriller Cross, prank comedy Jury Duty, and spy action series Young Sherlock.
+---------
+
+# Henry Cavill, Jake Gyllenhaal, and Eiza González Become Guy Ritchie's Most Stellar Trio Yet In First Look At New Thriller In The Grey
+
+Movies, In the Grey, Henry Cavill, Jake Gyllenhaal, Eiza Gonzalez, Guy Ritchie
+
+Fri, 06 Mar 2026 21:26:22 GMT
+
+https://screenrant.com/in-the-grey-henry-cavill-jake-gyllenhaal-eiza-gonzalez-first-images/
+
+Henry Cavill, Jake Gyllenhaal and Eiza Gonzalez are set to star in the upcoming thriller In the Grey, and first look images have just been released.
+---------
+
+# Hoppers Ending Explained: What Mabel Learns And The Truth Behind The Film's Real Villain
+
+Movies, Hoppers
+
+Fri, 06 Mar 2026 21:20:19 GMT
+
+https://screenrant.com/hoppers-ending-explained/
+
+Hoppers offers a surprisingly complex approach to activism and empathy that underscores the morals of Pixar's body-hopping animated adventure.
+---------
+
+# Outlander Showrunner Explains Original Star's Surprise Season 8 Return After Last Appearance 7 Years Ago
+
+TV, Outlander, Outlander - Season 8
+
+Fri, 06 Mar 2026 21:18:08 GMT
+
+https://screenrant.com/outlander-season-8-episode-1-tobias-menzies-return-frank-twist-explained-matthew-b-roberts/
+
+Outlander showrunner Matthew B. Roberts and star Sam Heughan discuss the surprise return in season 8.
+---------
+
+# Movies Streaming on Disney+ That are Better than Hercules
+
+Movies, Disney+, Hercules
+
+Fri, 06 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/disney-movies-better-hercules-streaming/
+
+Hercules has become a beloved Disney movie over the years, but there are some streaming now that are even better.
+---------
+
+# Fantastic Four Director Matt Shakman to Helm Sci-Fi The Last Orbit
+
+Movies, The Fantastic Four: First Steps, Sci-Fi
+
+Fri, 06 Mar 2026 21:25:56 GMT
+
+https://www.cbr.com/the-last-orbit-movie-matt-shakman-direct-tristar-ben-mezrich/
+
+Fantastic Four director Matt Shakman signs on to adapt Ben Mezrich's upcoming novel The Last Orbit, a sci-fi thriller.
+---------
+
+# Nintendo Officially Sues US Government Over Tariffs
+
+Games, Nintendo
+
+Fri, 06 Mar 2026 21:23:11 GMT
+
+https://www.cbr.com/nintendo-lawsuit-us-government-tariffs/
+
+Nintendo has sued the United States of America's government over tariffs affecting its hardware sales, which have now been deemed illegal.
+---------
+
+# Frieren Season 2 Episode 7 Confirms The Golden Land Arc is Coming
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 06 Mar 2026 21:16:12 GMT
+
+https://www.cbr.com/frieren-season-2-episode-7-golden-land-arc-tease/
+
+Frieren’s latest episode gives fans their first real tease for the Golden Land Arc through an anime-only added scene.
+---------
+
+# 10 Near-Perfect Anime Movies With 100% Happy Endings
+
+Anime, Studio Ghibli
+
+Fri, 06 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/best-near-perfect-anime-movies-with-happy-endings/
+
+10 anime movies which deliver uplifting endings and celebrate new beginnings.
+---------
+
+# 1 Day After Renewal, ABC's Record-Breaking Series Returns to Top the Charts
+
+TV, High Potential
+
+Fri, 06 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/abc-high-potential-hulu-disney-plus-success-march-2026/
+
+Following news of its Season 3 renewal, Hulu and Disney+ subscribers are revisiting ABC's record-breaking comedy drama series.
+---------
+
+# The Bluff Is the Anti–Pirates of the Caribbean Movie
+
+Movies, Action, Pirates of the Caribbean, The Bluff
+
+Fri, 06 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/prime-video-the-bluff-anti-pirates-of-the-caribbean/
+
+Prime Video's newest pirate film is gaining traction with audiences, but the movie really acts as the anti-Pirates of the Caribbean movie.
+---------
+
+# 10 ’90s X-Men Costumes That Are Still Cool Today
+
+Comics, X-Men
+
+Fri, 06 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/90s-coolest-x-men-costumes/
+
+The 1990s gave fans some of the best comic book costumes ever, and these ten X-Men looks were the absolute best of the best.
+---------
+
+# Ranking the 10 Most Ambitious Movies of the 21st Century
+
+Movie, The Lord of the Rings: The Two Towers, Boyhood, Avatar, Everything Everywhere All at Once
+
+Fri, 06 Mar 2026 21:50:12 GMT
+
+https://collider.com/ambitious-movies-21st-century-ranked/
+
+The most ambitious movies of the 21st century so far include modern classics like Mad Max: Fury Road, Boyhood, and The Lord of the Rings trilogy.
+---------
+
+# Hulu Loses Screen Rights to Its Prospective 'Game of Thrones' Competitor 2 Years After Cancellation
+
+TV News, The Wheel of Time, Hulu, Fantasy, Prime Video
+
+Fri, 06 Mar 2026 21:46:50 GMT
+
+https://collider.com/a-court-of-thrones-and-roses-game-of-thrones-replacement-fantasy-series-screen-rights-return-to-sarah-j-mass-after-cancelled-hulu-adaptation/
+
+A long-stalled fantasy TV adaptation finally gets a status update after two quiet years, giving fans clarity on what’s next for the shelved project.
+---------
+
+# 5 Lord of the Rings Characters That Rival Sauron, Ranked by Power
+
+Movie, The Lord of the Rings: The Rings of Power, The Lord of the Rings, The Hobbit, Fantasy
+
+Fri, 06 Mar 2026 21:40:13 GMT
+
+https://collider.com/lord-of-the-rings-fantasy-characters-more-powerful-sauron-ranked/
+
+From Tom Bombadil to Saruman the White, these are the rare individuals throughout Lord of the Rings that could stand against Sauron.
+---------
+
+# After a Perfect 1st Season, ‘A Knight of the Seven Kingdoms’ Is Officially Facing Its Biggest Challenge
+
+TV Features, A Knight Of The Seven Kingdoms, George R.R. Martin, HBO Max, Game Of Thrones
+
+Fri, 06 Mar 2026 21:38:13 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-george-rr-martin-dunk-and-egg-books/
+
+A Knight of the Seven Kingdoms Season 1 wowed fans, but with limited source material, the series should go beyond George R.R. Martin's books.
+---------
+
+# '9-1-1: Nashville' Star Chris O'Donnell Reacts to Season 2 Renewal [Exclusive]
+
+TV News, 9-1-1: Nashville, 9-1-1, ABC, Procedural
+
+Fri, 06 Mar 2026 21:30:12 GMT
+
+https://collider.com/9-1-1-nashville-renewed-season-2-chris-odonnell-reaction/
+
+9-1-1: Nashville star Chris O'Donnell talks about the show's renewal for a second season, its growth, and the benefits of the 9-1-1 crossover.
+---------
+
+# Nintendo Sues the United States Government 2 Weeks After Trump's Tariffs Were Ruled Illegal
+
+Movie News, Nintendo, The Super Mario Galaxy Movie, Donald Trump, Nintendo Switch
+
+Fri, 06 Mar 2026 21:26:21 GMT
+
+https://collider.com/nintendo-united-states-government-tariff-lawsuit/
+
+Video game superpower Nintendo is going head-to-head with the U.S. government due to Donald Trump's tariff policies.
+---------
+
+# Anderson .Paak Is Changing the Future of K-Pop [Exclusive]
+
+Exclusives, Anderson .Paak, K-Pops!, Comedy
+
+Fri, 06 Mar 2026 21:26:08 GMT
+
+https://collider.com/k-pops-anderson-paak-more-k-pop-collaborations-soundtrack/
+
+Anderson .Paak is interested in collaborating with more K-pop artists following the release of his new family comedy movie, K-Pops!.
+---------
+
+# Great Movies From the Last 10 Years That Will Become Cult Classics
+
+Movie, Furiosa: A Mad Max Saga, Annette, Babylon, The Handmaiden
+
+Fri, 06 Mar 2026 21:24:12 GMT
+
+https://collider.com/best-movies-last-10-years-will-become-cult-classics/
+
+From Eddington to Annette, these movies from the last decade might've been dismissed upon release, but are well on their way to cult classic status.
+---------
+
+# The Rolling Stones' Most Controversial '70s Album Was Hated at First but Is Now a Rock Masterpiece
+
+Music Features, The Rolling Stones, Mick Jagger, Keith Richards
+
+Fri, 06 Mar 2026 21:22:32 GMT
+
+https://collider.com/rolling-stones-exile-on-main-st-controversial-rock-masterpiece-album/
+
+Exile on Main St., the Rolling Stones' 1972 double album, faced mixed reviews upon release. Now, over 50 years later, it's recognized as a rock masterpiece despite the band's struggles and poor production.
+---------
+
+# Tom Hiddleston’s Nail-Biting 12-Part Spy Thriller Quietly Dominates Streaming
+
+TV News, Tom Hiddleston, The Night Manager, Thriller, Prime Video
+
+Fri, 06 Mar 2026 21:22:24 GMT
+
+https://collider.com/tom-hiddleston-the-night-manager-season-2-spy-thriller-streaming-success-prime-video-march-2026/
+
+A gripping 12-episode espionage thriller climbs global streaming charts again, proving prestige spy stories still hook audiences years later.
+---------
+
+# 11 Great Netflix Shows That Were Canceled Too Early
+
+TV Lists, Netflix
+
+Fri, 06 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/netflix-shows-canceled-too-soon/
+
+Netflix has canceled a lot of great TV shows that fans loved, from 'Santa Clarita Diet' to 'The Society.'
+---------
+
 # Win Tickets to See James Marsden Action-Comedy Mike & Nick & Nick & Alice With ScreenRant
 
 Exclusive, Mike & Nick & Nick & Alice
