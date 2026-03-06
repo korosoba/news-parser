@@ -1,3 +1,388 @@
+# Liam Neeson Contains New The Last Of Us-Like Infection In R-Rated Sci-Fi Hit Cold Storage’s Opening Scene
+
+Exclusive, Cold Storage, Liam Neeson
+
+Fri, 06 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/video/cold-storage-movie-liam-neeson-sci-fi-clip/
+
+Exclusive: ScreenRant presents the first 10 minutes of Cold Storage, a new R-rated sci-fi hit starring Liam Neeson, Georgina Campbell, and Joe Keery.
+---------
+
+# Alan Ritchson’s New Netflix Sci-Fi Movie Was Even More Physically Demanding Than Reacher
+
+Movies, War Machine, Reacher
+
+Fri, 06 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/alan-ritchson-war-machine-netflix-more-physically-demanding-reacher-comparison/
+
+Exclusive: Alan Ritchson opens up about his new Netflix sci-fi movie proved to be even more physically demanding than his work on Reacher.
+---------
+
+# Netflix's 4-Part Crime Thriller Series Is One Of Its Best
+
+TV, The Lincoln Lawyer
+
+Fri, 06 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/lincoln-lawyer-netflix-best-legal-drama-thriller-series/
+
+With a formula that avoids the pitfalls of dated relevance, this crime hit shows no signs of slowing down, hinting at a long future on Netflix.
+---------
+
+# 6 Years Later, Netflix's Dark Series Creators & Star Officially Reuniting For New HBO Max Thriller Show
+
+TV, Dark
+
+Fri, 06 Mar 2026 15:47:51 GMT
+
+https://screenrant.com/dark-creators-lisa-vicari-reunion-hbo-max-struwwelpeter-series/
+
+Six years after the conclusion of Dark, the creators and star of the hit Netflix sci-fi show are reuniting for a buzzy new thriller on HBO Max.
+---------
+
+# How Bowser Jr. Can Help Set Up A Luigi's Mansion Spinoff In The Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Fri, 06 Mar 2026 15:40:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-bowser-jr-paintbrush-setup-luigis-mansion/
+
+Bowser Jr.'s role in The Super Mario Galaxy Movie includes a detail that could lead to setup for a Luigi's Mansion spinoff film.
+---------
+
+# Scream 7 Subtly Reveals Solution To Ghostface Problem
+
+Movies, Scream 7
+
+Fri, 06 Mar 2026 15:31:18 GMT
+
+https://screenrant.com/scream-7-ghostface-connection-sidney-tatum-problem/
+
+Scream 7 has a controversial Ghostface problem, but the solution to it was subtly revealed earlier in the movie, with some extra solutions.
+---------
+
+# Why Nope Deserved Oscar Nominations: A Deep Dive Into The Snub
+
+Movies, Nope, Op-Ed
+
+Fri, 06 Mar 2026 15:31:18 GMT
+
+https://screenrant.com/nope-academy-awards-snub-jordan-peele/
+
+Jordan Peele's foray into the sci-fi horror genre delivered a classic that was somehow completely shut out at the Academy Awards.
+---------
+
+# Netflix’s Peaky Blinders Sequel Series Set Images Reveal New Look At Shelby Family Gang’s Next Generation
+
+TV, Peaky Blinders
+
+Fri, 06 Mar 2026 15:28:46 GMT
+
+https://screenrant.com/peaky-blinders-sequel-series-production-update-set-images/
+
+Peaky Blinders is back to cause trouble on the cobbled streets of Birmingham, and set images reveal what could be the start of more chaos.
+---------
+
+# 2022's Greatest Horror Franchise Returns in 2026 with New Series (Exclusive)
+
+Comics, Smile
+
+Fri, 06 Mar 2026 15:28:29 GMT
+
+https://screenrant.com/smile-horror-franchise-new-series-exclusive/
+
+One of the biggest horror sensations of 2022 expands its universe in 2026 with a chilling new series, and we have an exclusive first look.
+---------
+
+# David Boreanaz's New Reboot Of NBC's The Rockford Files Confirms Intriguing Story Change From OG Detective Series
+
+TV, The Rockford Files
+
+Fri, 06 Mar 2026 15:23:50 GMT
+
+https://screenrant.com/nbc-rockford-files-reboot-jacki-weaver-new-character/
+
+The new reboot of The Rockford Files, led by David Boreanaz, has confirmed a shift from the original series by introducing a new character.
+---------
+
+# The Best Video Games of 2026, So Far
+
+Games
+
+Fri, 06 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/best-video-games-of-2026-so-far/
+
+2026 has just gotten started, but there have already been some amazing new games.
+---------
+
+# Netflix Officially Renews The Night Agent for Season 4
+
+TV, The Night Agent
+
+Fri, 06 Mar 2026 15:41:31 GMT
+
+https://www.cbr.com/netflix-the-night-agent-season-4-fate/
+
+The streamer had previously teased the news months before Season 3 premiered.
+---------
+
+# Why Alan Ritchson Says Reacher Would Beat His New Netflix Character In a Fight
+
+Movies, War Machine, Reacher
+
+Fri, 06 Mar 2026 15:35:47 GMT
+
+https://www.cbr.com/war-machine-alan-ritchson-reacher-beat-81/
+
+The action star reveals the outcome of two of his characters finally facing off against one another.
+---------
+
+# Henry Cavill’s Voltron Live-Action Movie Release Window Revealed
+
+Movies, Voltron, Henry Cavill
+
+Fri, 06 Mar 2026 15:31:41 GMT
+
+https://www.cbr.com/henry-cavill-voltron-live-action-movie-release-window/
+
+The film has been in development for over two decades.
+---------
+
+# Resident Evil Requiem Gets First Official Update March 2026
+
+Games, Resident Evil
+
+Fri, 06 Mar 2026 15:20:12 GMT
+
+https://www.cbr.com/resident-evil-requiem-first-official-update-march-2026/
+
+Resident Evil Requiem is already a massive hit, and it's using its first update to give fans of the horror franchise exactly what they've demanded.
+---------
+
+# Alien: Earth Sets Season 2 Production Window, Lead Star Confirms
+
+TV, Horror, Sci-Fi, Alien, Prometheus
+
+Fri, 06 Mar 2026 15:05:29 GMT
+
+https://www.cbr.com/alien-earth-confirms-season-2-production-window/
+
+The long-awaited update on Season 2 of Alien: Earth has finally arrived.
+---------
+
+# Marvel Keeps Failing One Character That Should Be More Respected
+
+Comics, Marvel, Horror, Man-Thing
+
+Fri, 06 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/marvel-keeps-failing-man-thing-horror-comics/
+
+Since Stan Lee and Jack Kirby brought Marvel to its Silver Age heights, its characters have been iconic, but it's been failing a Bronze Age icon.
+---------
+
+# New Final Fantasy Game Officially Releasing in March 2026
+
+Games, Final Fantasy
+
+Fri, 06 Mar 2026 14:40:40 GMT
+
+https://www.cbr.com/final-fantasy-official-new-jrpg-game-2026/
+
+The next epic Final Fantasy game is set to be released later this month.
+---------
+
+# 10 Confusing Pieces of Dragon Ball Lore That Make No Sense
+
+Anime, Dragon Ball, Akira Toriyama
+
+Fri, 06 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/dragon-ball-lore-confusing-makes-no-sense/
+
+Dragon Ball has established a robust world over the course of four decades, the likes of which are occasionally prone to puzzling lore and ret-cons
+---------
+
+# Hugh Jackman Is Adorably Doomed in New Look at 2026's Coziest Murder Mystery Movie [Exclusive]
+
+Exclusives, The Sheep Detectives, Hugh Jackman, Nicholas Braun, Collider Exclusive Preview
+
+Fri, 06 Mar 2026 16:00:13 GMT
+
+https://collider.com/hugh-jackman-the-sheep-detectives-image-mystery-comedy/
+
+Hugh Jackman steps into the role of proud sheep papa in a new look at The Sheep Detectives. See it here!
+---------
+
+# After 'Resident Evil,' Milla Jovovich Finds Her Biggest Challenge Yet
+
+Exclusives, Protector, Milla Jovovich, Matthew Modine, Resident Evil
+
+Fri, 06 Mar 2026 15:30:12 GMT
+
+https://collider.com/milla-jovovich-protector-resident-evil-stunts-action-scenes-interview/
+
+Milla Jovovich discusses the most challenging action sequences of her career, her role as a producer, and why this movie is so personal for her.
+---------
+
+# 'Dolly' Review: This Horror Disaster Is an Insult to the Exploitation Genre
+
+Movie Reviews, Dolly, Ethan Suplee, Seann William Scott, Horror
+
+Fri, 06 Mar 2026 15:23:56 GMT
+
+https://collider.com/dolly-movie-review-horror/
+
+Dolly, starring Fabianne Therese and Seann William Scott, is a weak, tedious, and plodding mother-monster movie.
+---------
+
+# Apple TV's New 'Ted Lasso' Season 4 Teaser Confirms a Major Plot Point
+
+TV News, Ted Lasso, Apple TV, Jason Sudeikis, Hannah Waddingham
+
+Fri, 06 Mar 2026 15:20:43 GMT
+
+https://collider.com/apple-tv-most-popular-series-ever-ted-lasso-season-4-teaser-plot-point-womens-soccer/
+
+Apple TV's most popular series ever, Ted Lasso, is officially back in a new teaser for Season 4.
+---------
+
+# Alan Ritchson’s New Netflix Sci-Fi Movie Is This Generation’s ‘Predator’
+
+Movie News, Alan Ritchson, Reacher, Netflix, War Machine
+
+Fri, 06 Mar 2026 15:18:30 GMT
+
+https://collider.com/netflix-alan-ritchson-war-machine-sci-fi-movie-rotten-tomatoes-is-it-good/
+
+Alan Ritchson's new Netflix sci-fi movie War Machine has impressed critics on Rotten Tomatoes as the film hits streaming.
+---------
+
+# After 9 Episodes, 'Sheriff Country' Just Repeated 'Fire Country's Most Ridiculous Problem
+
+TV Features, Sheriff Country, Fire Country, Procedural
+
+Fri, 06 Mar 2026 15:17:12 GMT
+
+https://collider.com/sheriff-country-fire-biggest-problem-mickey-travis-romance/
+
+Sheriff Country feels like it hit another big snag in its latest episode, as the latest drama hurts the show in the same way it weakens Fire Country.
+---------
+
+# TV’s Best British Boarding School Dramedy Returns in Must-See Season 3 Trailer [Exclusive]
+
+Exclusives, Boarders, BBC, Tubi, Comedy
+
+Fri, 06 Mar 2026 15:15:12 GMT
+
+https://collider.com/boarders-season-3-trailer-bbc-tubi/
+
+School is back in session and more stressful than ever in an exclusive look at the trailer for Boarders Season 3.
+---------
+
+# New 2-Minute Sneak Peek Reveals Shudder’s Next Found-Footage Nightmare [Exclusive]
+
+Exclusives, Shudder, Found Footage, Collider Exclusive Preview, Horror
+
+Fri, 06 Mar 2026 15:00:13 GMT
+
+https://collider.com/bodycam-found-footage-horror-movie-sneak-peek/
+
+Discover the chilling new found footage horror film, Bodycam, starring Jaime M. Callica and Sean Rogerson. Exclusive clip and details inside.
+---------
+
+# From 'Ted Lasso' to 'Shrinking,' Bill Lawrence Maps Out His Ultimate TV Multiverse
+
+Exclusives, Rooster, Steve Carell, Bill Lawrence, HBO Max
+
+Fri, 06 Mar 2026 15:00:13 GMT
+
+https://collider.com/rooster-steve-carell-ted-lasso-shrinking-crossover-bill-lawrence-comments/
+
+Bill Lawrence and Matt Tarses discuss their inspiration with Steve Carell and share multiverse crossover ideas with Scrubs, Shrinking and Bad Monkey.
+---------
+
+# Prime Video’s Tom Clancy Spin-Off Faces 1 Big Challenge After 'Reacher' Changed the Game
+
+TV Features, Prime Video, Tom Clancy's Jack Ryan, Jack Ryan, Reacher
+
+Fri, 06 Mar 2026 14:26:12 GMT
+
+https://collider.com/prime-video-tom-clancy-jack-ryan-movie-spinoff-challenge/
+
+The spin-off for Tom Clancy’s Jack Ryan is almost here, but the movie has a lot to live up to after Reacher’s success.
+---------
+
+# 'Assassin' Trailer Promises Non-Stop 'John Wick'-Style Action
+
+Movie News, Action, Thriller, John Wick
+
+Fri, 06 Mar 2026 15:45:16 GMT
+
+https://movieweb.com/assassin-trailer/
+
+The action thriller teases the same non-stop combat as 'John Wick' and 'The Raid.'
+---------
+
+# 'The Night Agent' Renewed for Season 4 at Netflix
+
+TV News, The Night Agent
+
+Fri, 06 Mar 2026 15:14:30 GMT
+
+https://movieweb.com/netflix-night-agent-season-4-renewal/
+
+Netfilx has officially renewed 'The Night Agent' for Season 4, a few weeks after the third season debut of the action thriller series.
+---------
+
+# Henry Cavill's Live-Action 'Voltron' Remake Gets Release Update
+
+Movie News, Henry Cavill, Voltron, Action, Sci-Fi
+
+Fri, 06 Mar 2026 15:03:33 GMT
+
+https://movieweb.com/henry-cavill-voltron-live-action-remake-release/
+
+A live-action remake of the beloved 80s sci-fi action series has been in the works for decades, and we finally have a release window.
+---------
+
+# Controversial 'RoboCop' Remake Lands on Free Streaming
+
+Movie News, RoboCop, Coming/Leaving Streaming, Sci-Fi
+
+Fri, 06 Mar 2026 15:00:18 GMT
+
+https://movieweb.com/robocop-remake-streaming-tubi-march-2026/
+
+Joel Kinnaman's remake of 'RoboCop' was saved by a single scene, which you can now watch for free on Tubi.
+---------
+
+# When Jessie Buckley's 'The Bride!' Will Stream on HBO Max
+
+Features, The Bride!
+
+Fri, 06 Mar 2026 15:00:18 GMT
+
+https://movieweb.com/the-bride-hbo-max-streaming-date/
+
+'The Bride', a Gothic romance film starring Christian Bale and Jessie Buckley, will be available to stream on HBO Max soon.
+---------
+
+# 'James Bond' Reboot Finds New Villain Favorite in 'Peaky Blinders' Cillian Murphy
+
+Movie News, James Bond, Action, Cillian Murphy
+
+Fri, 06 Mar 2026 14:22:39 GMT
+
+https://movieweb.com/james-bond-villain-favorite-cillian-murphy/
+
+The 'Oppenheimer' Oscar winner finds himself at the top of the bookies' list for the main villain in Amazon's reboot of the beloved action franchise.
+---------
+
 # The Night Agent Season 4's Fate Confirmed After Declining Netflix Viewership
 
 TV, The Night Agent
