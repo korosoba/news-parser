@@ -1,3 +1,311 @@
+# Sherlock: How The Detective Series Revolutionized Fandom Culture
+
+Classic TV, Sherlock
+
+Sat, 07 Mar 2026 23:34:18 GMT
+
+https://screenrant.com/sherlock-bbc-series-changed-fandom-culture/
+
+One of the best detective shows of all time is a four-part series that was such a success that it ended up changing fandom culture forever.
+---------
+
+# Tobias Menzies' Surprise Outlander Season 8 Voiceover Makes Up For Losing Claire's
+
+Streaming TV, Outlander
+
+Sat, 07 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/outlander-season-8-claire-voiceover-tobias-menzies-frank/
+
+It would have been great to see Outlander season 8 bring back an old tradition, but what the romantasy show did instead was a wonderful alternative.
+---------
+
+# How A Scrapped DC Crossover Actually Created Marvel's Most Comically Overpowered Team
+
+Comics, Justice League, Squadron Supreme, The Avengers
+
+Sat, 07 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/squadron-supreme-dc-created-crossover/
+
+Something sinisters led to a supreme creation.
+---------
+
+# 40 Years Ago Today, An Underrated Fantasy Franchise Was Launched & It's About To Live Again
+
+Classic Movies, Highlander, Explainer
+
+Sat, 07 Mar 2026 23:25:18 GMT
+
+https://screenrant.com/highlander-movie-40-anniversary-fantasy-franchise/
+
+It has been 40 years since an underrated fantasy franchise was unleashed onto the world and a new chapter in the series is in production right now.
+---------
+
+# Kevin Hart & Dwayne Johnson Exchange Hilarious Banter In Jumanji 4 Clips
+
+Movies, Jumanji, Jumanji 4, Kevin Hart, Dwayne Johnson
+
+Sat, 07 Mar 2026 23:16:12 GMT
+
+https://screenrant.com/jumanji-4-set-videos-kevin-hart-dwayne-johnson-banter/
+
+Jumanji 4 is looking more like a comedy goldmine as Kevin Hart and Dwayne Johnson offer a sneak peek of their behind-the-scenes interactions.
+---------
+
+# Zelda's Spiritual Successor Is Officially Coming, and Fans Aren't Ready For It
+
+Gaming, The Legend of Zelda
+
+Sat, 07 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/bels-fanfare-zelda-spiritual-successor-kickstarter-funded/
+
+This indie RPG on Kickstarter looks like the best spiritual successor yet to The Legend of Zelda franchise and it is going to be a blast to play!
+---------
+
+# Resident Evil Requiem’s Scariest Boss Just Got Nerfed In The Funniest Way
+
+Gaming, Resident Evil 9, Triple-A Games
+
+Sat, 07 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/resident-evil-requiem-spider-boss-nerf-mod/
+
+Resident Evil Requiem features a boss fight that was scarier than anything else in the game, at least until this mod came around and nerfed it.
+---------
+
+# 10 Greatest Pilot Episodes In TV History
+
+TV
+
+Sat, 07 Mar 2026 22:58:19 GMT
+
+https://screenrant.com/greatest-pilot-tv-episodes-all-time/
+
+Explore the best TV pilot episodes that set the stage for legendary series, showcasing exceptional storytelling and character introductions.
+---------
+
+# 10 Best Fights In Bruce Lee Movies
+
+Movies, Bruce Lee, The Way of the Dragon, Enter the Dragon, Big Boss, Game of Death, Fist of Fury
+
+Sat, 07 Mar 2026 22:55:19 GMT
+
+https://screenrant.com/best-fights-bruce-lee-movies/
+
+Bruce Lee's fight scenes are so iconic and impressive that they are worth watching even if you have no interest in martial arts or 70s movies.
+---------
+
+# Frieren Season 2 Episode 7 Review: Subversive Fan Service Meets Shonen Battle Perfection
+
+Anime, Frieren: Beyond Journey's End
+
+Sat, 07 Mar 2026 23:37:12 GMT
+
+https://www.cbr.com/frieren-season-2-episode-7-review/
+
+Frieren’s latest episode gives JJK and Hell’s Paradise a run for their money with one of the best anime fights of 2026 so far.
+---------
+
+# 6 Apple TV Sci-Fi Shows Better Than Anything Else on Streaming
+
+TV, Sci-Fi, Apple TV, Foundation
+
+Sat, 07 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/best-apple-tv-sci-fi-shows-list/
+
+These Apple TV+ original series prove that the streamer does sci-fi better than anyone else.
+---------
+
+# 2026's No. 1 Returning Isekai Re:Zero Is the Best-Written Reincarnation Anime in Years
+
+Anime, Re:Zero -Starting Life in Another World-, Isekai
+
+Sat, 07 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/best-reincarnation-isekai-anime-returning-2026/
+
+Among 2026’s returning isekai titles, one timeloop-driven anime clearly leads the pack with its impressive narrative depth.
+---------
+
+# Daniel Radcliffe's The Lost City Returns to the Charts as Free Streaming Hit on Pluto TV
+
+Movies, The Lost City, Daniel Radcliffe
+
+Sat, 07 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/daniel-radcliffe-adventure-the-lost-city-pluto-tv-success-march-2026/
+
+Daniel Radcliffe has multiple projects right now, and even his old ones are getting attention.
+---------
+
+# Jack Ryan's Movie Is the End of the Streaming Era
+
+Movies, Jack Ryan (2025), Tom Clancy's Jack Ryan, Action
+
+Sat, 07 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/jack-ryan-movie-end-of-streaming-era/
+
+Tom Clancy's Jack Ryan was Prime Video's 4-part flagship action series, but the next installment's theatrical release sinals a major shift for the IP.
+---------
+
+# Crunchyroll Sued Over Allegedly Leaking Fans' Anime Viewing Secrets After $16M Settlement
+
+Anime, Crunchyroll
+
+Sat, 07 Mar 2026 22:56:23 GMT
+
+https://www.cbr.com/crunchyroll-sued-fans-anime-viewing-secrets/
+
+Anime streaming giant Crunchyroll is accused of sharing user information with a marketing company and could be ordered to pay over $2.5K if convicted.
+---------
+
+# Stranger Things' Jamie Campbell Bower Reignites Debate Over Eleven's Fate
+
+TV, Stranger Things
+
+Sat, 07 Mar 2026 22:51:51 GMT
+
+https://www.cbr.com/stranger-things-jamie-campbell-bower-eleven-fate/
+
+Three months after the series finale, fans are still left with many questions.
+---------
+
+# 25 Years Later, the Sci-Fi Masterpiece Critics Ignored Is Officially Breaking Streaming Records
+
+Movie News, Donnie Darko, Jake Gyllenhaal, Sci-Fi
+
+Sat, 07 Mar 2026 23:40:12 GMT
+
+https://collider.com/jake-gyllenhaal-donnie-darko-sci-fi-masterpiece-free-streaming-fawesome-march-2026/
+
+25 years after its release, Donnie Darko, Jake Gyllenhaal's breakout role, is now streaming free. Read on for details.
+---------
+
+# Perfect Sci-Fi Movies That Nobody Remembers
+
+Movie, Sci-Fi, The Fifth Element, Lost in Space, Europa Report
+
+Sat, 07 Mar 2026 23:37:12 GMT
+
+https://collider.com/perfect-sci-fi-movies-nobody-remembers/
+
+From Scanners and The Fifth Element to Europa Report and Cloud Atlas, these films are perfect sci-fi movies that nobody remembers.
+---------
+
+# HBO’s Most Acclaimed Series of 2025 Just Hit a 1 Billion-Minute High
+
+TV News, HBO Max, The Pitt, Noah Wyle, streaming
+
+Sat, 07 Mar 2026 23:20:13 GMT
+
+https://collider.com/noah-wyle-the-pitt-most-acclaimed-medical-series-streaming-milestone-hbo-max-march-2026/
+
+HBO's award-winning medical drama The Pitt, starring Noah Wyle, has hit an impressive streaming milestone. Find out more below.
+---------
+
+# 10 Crime Books That Deliver the Same Thrill As Netflix's 'The Lincoln Lawyer'
+
+TV, The Lincoln Lawyer, Netflix, Crime, Books
+
+Sat, 07 Mar 2026 23:08:12 GMT
+
+https://collider.com/crime-books-like-the-lincoln-lawyer-netflix/
+
+If you love Netflix's The Lincoln Lawyer, these crime books deliver the same level of thrills, including James Patterson's Along Came a Spider.
+---------
+
+# 58 Years Ago, Elvis Presley Was Warned This Song Was Too Honest to Release— He Recorded It Anyway
+
+Music Features, Elvis, Rock, Elvis Presley
+
+Sat, 07 Mar 2026 23:08:07 GMT
+
+https://collider.com/elvis-presley-if-i-can-dream-too-honest-recorded-anyway/
+
+Elvis Presley's If I Can Dream, a song he fought to record despite pushback became his biggest hit in years and showcased his passion and commitment to meaningful music.
+---------
+
+# 18 Years Before He Took Over the Franchise, Dave Filoni Directed the Worst Star Wars Film
+
+Movie Features, Dave Filoni, Star Wars: The Clone Wars, Star Wars
+
+Sat, 07 Mar 2026 23:05:12 GMT
+
+https://collider.com/star-wars-the-clone-wars-movie-worst-dave-filoni/
+
+In 2008, Dave Filoni directed Star Wars: The Clone Wars, easily the worst film in the Star Wars franchise.
+---------
+
+# This 85% Rated Martial Arts Masterpiece Is Currently the #1 Free Movie in America
+
+Movie News, Kill Bill: Vol. 1, Kill Bill: Vol. 2, Kill Bill: The Whole Bloody Affair, Quentin Tarantino
+
+Sat, 07 Mar 2026 23:00:12 GMT
+
+https://collider.com/quentin-tarantino-kill-bill-vol-1-2-martial-arts-masterpiece-streaming-free-fawesome-march-2026/
+
+Quentin Tarantino’s iconic revenge films Kill Bill: Vol. 1 and Kill Bill: Vol. 2 are now streaming free on Fawesome more than two decades later.
+---------
+
+# 'Peaky Blinders: The Immortal Man' Stuns in Every Regard
+
+Movie Reviews, Peaky Blinders: The Immortal Man, Netflix
+
+Sat, 07 Mar 2026 23:30:17 GMT
+
+https://movieweb.com/peaky-blinders-the-immortal-man-review/
+
+Tommy Shelby is forced from his self-imposed exile to face an existential threat to his family and country.
+---------
+
+# Neve Campbell's 'Wild Things' Is Still a Great '90s Erotic Thriller
+
+Interviews, Wild Things, Holds Up
+
+Sat, 07 Mar 2026 23:16:18 GMT
+
+https://movieweb.com/wild-things-erotic-thriller-holds-up/
+
+'Wild Things,' which was released in 1998, is an erotic thriller movie starring Neve Campbell, Denise Richards, and Kevin Bacon.
+---------
+
+# Movies That Accurately Portray Abusive Relationships
+
+Movie Lists
+
+Sat, 07 Mar 2026 23:00:18 GMT
+
+https://movieweb.com/movies-that-accurately-portray-abusive-relationships/
+
+Over time, several movies have addressed relationship abuse and domestic violence, but only a handful have authentically portrayed the realities.
+---------
+
+# Mark Wahlberg's Thriller Drama 'Deepwater Horizon' Surges on Streaming
+
+Movie News, Deepwater Horizon, Hot on Streaming
+
+Sat, 07 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/deepwater-horizon-streaming-march-2026/
+
+The film is based on the 2010 disaster that took place in the Gulf of Mexico.
+---------
+
+# These 'Wuthering Heights' Adaptations Prove the 2026 Film Failed the Book
+
+Features, Wuthering Heights
+
+Sat, 07 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/wuthering-heights-adaptations-beat-2026-remake/
+
+While many have tried, there are only a few who have successfully adapted 'Wuthering Heights' for the screen, and these two stand out for one reason.
+---------
+
 # Jonathan Frakes Directs Action-Packed Star Trek: Starfleet Academy Episode 9
 
 Interviews, Star Trek: Starfleet Academy, Star Trek, Jonathan Frakes
