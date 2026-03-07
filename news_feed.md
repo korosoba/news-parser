@@ -1,3 +1,256 @@
+# The Bride Ends Warner Bros. Record-Breaking Box Office Streak With Disappointing US Debut
+
+Movies, The Bride!, Horror, Box Office
+
+Sat, 07 Mar 2026 16:32:43 GMT
+
+https://screenrant.com/the-bride-movie-domestic-box-office-debut/
+
+The Bride!'s disappointing opening weekend projections see it ending Warner Bros. long-running streak of stellar domestic box office debuts.
+---------
+
+# Top 10 Crime Drama Shows To Rewatch
+
+Classic TV, Crime
+
+Sat, 07 Mar 2026 16:31:18 GMT
+
+https://screenrant.com/best-crime-dramas-to-rewatch/
+
+The crime drama genre is filled with some incredible TV shows, but not all of them are rewatchable; this list considers the series that never get old.
+---------
+
+# Alan Ritchson’s New War Movie Has A Sci-Fi Plot Twist You’d Never Expect Unless You Knew About It Before
+
+Movies, War Machine
+
+Sat, 07 Mar 2026 16:31:18 GMT
+
+https://screenrant.com/war-machine-sci-fi-movie-twist-plot/
+
+Alan Ritchson's newest movie looks like a big silly action movie on the surface, but it has a wonderful sci-fi twist that changes everything.
+---------
+
+# GTA 6 Leaked Gameplay Roasted By Fans, And We Can See Why
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 07 Mar 2026 16:31:18 GMT
+
+https://screenrant.com/gta-6-leaked-gameplay-2026-fan-reaction/
+
+While many people have claimed to leak information about GTA 6 over the past few years, fans are roasting this new display that recently surfaced.
+---------
+
+# Who Is Taylor Frankie Paul? Get To Know The Star Of Bachelorette Season 22
+
+Reality TV, The Bachelorette, The Bachelor
+
+Sat, 07 Mar 2026 16:23:37 GMT
+
+https://screenrant.com/next-bachelorette-season-22-taylor-frankie-paul-explained/
+
+The Bachelorette season 22 starring Taylor Frankie Paul premieres soon, and there's so much to know about the newest star of the reality dating show.
+---------
+
+# Sean Bean's New Crime Series Makes Him The Anti-Ned Stark
+
+Streaming TV, This City Is Ours
+
+Sat, 07 Mar 2026 16:23:18 GMT
+
+https://screenrant.com/this-city-is-ours-sean-bean-anti-ned-stark/
+
+This City Is Ours is an exciting new crime show in which Sean Bean plays a crime boss who is killed, sparking a power struggle for succession.
+---------
+
+# Pixar’s Hoppers Debuts At #1 In America With Record-Breaking Box Office Haul
+
+Movies, Hoppers, Box Office, Pixar
+
+Sat, 07 Mar 2026 16:20:50 GMT
+
+https://screenrant.com/hoppers-box-office-opening-weekend-domestic-chart-report/
+
+Pixar's sci-fi adventure movie Hoppers debuts at No. 1 in the U.S. with an opening weekend that sees it breaking a box office record for the studio.
+---------
+
+# DC Reveals Joker’s Entire Legacy With Epic New Art (Proving His Villain GOAT Status)
+
+DC Comics, Joker, Batman
+
+Sat, 07 Mar 2026 16:00:19 GMT
+
+https://screenrant.com/joker-legacy-new-gatefold-art-dc-comics-batman-7/
+
+The latest issue of DC Comics' Batman features one of the most unique art pieces starring the Joker, encapsulating his entire supervillain legacy.
+---------
+
+# 2026's Darkhorse Anime of the Year Contender Is Way More Important Than Anime Fans Think
+
+Anime, Hell's Paradise: Jigokuraku
+
+Sat, 07 Mar 2026 16:00:19 GMT
+
+https://screenrant.com/hells-paradise-darkhorse-anime-year-important/
+
+In a genre defined by tropes and cliches, Hell's Paradise boldly subverts expectations, redefining what shonen is capable of.
+---------
+
+# 10 TV Show Reboots That Failed to Capture The Originals' Magic
+
+Classic TV
+
+Sat, 07 Mar 2026 16:00:19 GMT
+
+https://screenrant.com/tv-shows-give-reboots-bad-name/
+
+Beloved TV shows and movies are constantly getting reboots due to nostalgia, but there are some reboot series that are simply disappointments.
+---------
+
+# 10 Most Flawless Anime Films of All Time, Ranked
+
+Anime, Studio Ghibli
+
+Sat, 07 Mar 2026 16:45:12 GMT
+
+https://www.cbr.com/perfect-anime-best-of-all-time/
+
+10 Anime films that are so flawless that they have been captivating fans for years, ranked from good to best.
+---------
+
+# Move Over, Hatsune Miku: The Project Sekai Replacement Is Officially Coming to the U.S.
+
+Anime, Hatsune Miku, YouTube, RPG
+
+Sat, 07 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/hololive-dreams-official-america-release/
+
+This Project Sekai replacement based on the top virtual pop star agency is on its way to take Hatsune Miku's throne with its official U.S. release.
+---------
+
+# 10 Nintendo Switch Games That Are 10/10, No Notes
+
+Games, Nintendo Switch
+
+Sat, 07 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/best-nintendo-switch-games-no-notes/
+
+These 10 Nintendo Switch games show why it's one of the most popular consoles of all time.
+---------
+
+# The Walking Dead Creator Reveals the Original Title That Would Have Changed Things Forever
+
+Comics, The Walking Dead
+
+Sat, 07 Mar 2026 15:45:12 GMT
+
+https://www.cbr.com/the-walking-dead-robert-kirkman-original-title-ideas/
+
+The smash hit zombie series almost had a very different name before ultimately landing on The Walking Dead.
+---------
+
+# The Lord of the Rings: The Hunt For Gollum Can Finally Introduce Fatty Bolger
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Fantasy
+
+Sat, 07 Mar 2026 15:45:12 GMT
+
+https://www.cbr.com/lotr-hunt-for-gollum-introduce-hobbit-fatty-bolger/
+
+Fatty Bolger is a forgotten Hobbit in The Lord of the Rings that The Hunt for Gollum can finally shine a light on.
+---------
+
+# 44 Years Later, Martin Scorsese’s Dark Comedy That Inspired ‘Joker’ Is Streaming for Free
+
+Movie News, The King of Comedy, Taxi Driver, Joker, Joaquin Phoenix
+
+Sat, 07 Mar 2026 16:40:12 GMT
+
+https://collider.com/martin-scorsese-king-of-comedy-inspired-joaquin-phoenix-joker-streaming-pluto-march-2026/
+
+The Martin Scorsese movie that inspired Joaquin Phoenix's Joker more heavily than Taxi Driver is streaming for free this month. Find out more.
+---------
+
+# ‘The Bride!’ Ends Warner Bros.’ 9-Movie Winning Streak at the Box Office After Divisive Reviews
+
+Movie News, The Bride!, Jessie Buckley, Christian Bale, Maggie Gyllenhaal
+
+Sat, 07 Mar 2026 16:30:09 GMT
+
+https://collider.com/the-bride-box-office-debut-3-million-first-warner-bros-movie-not-at-1-in-a-year/
+
+The Bride! has broken a 9-movie streak for Warner Bros. at the box office after divisive reviews.
+---------
+
+# Before ‘Alien: Earth’ Season 2 Arrives, Ridley Scott's 98% RT Classic Reclaims Its Throne
+
+Movie News, alien, Ridley Scott, aliens, Alien: Romulus
+
+Sat, 07 Mar 2026 16:20:13 GMT
+
+https://collider.com/ridley-scott-influential-sci-fi-alien-global-streaming-success-prime-video-apple-tv-march-2026/
+
+47 years after it first hit theaters, Ridley Scott's exceptionally influential sci-fi film Alien is a hit on streaming once again. Find out more here.
+---------
+
+# Jason Statham’s 116-Minute Sci-Fi Sleeper Hit Is the Perfect Mash-Up of 'Jaws' and 'Predator'
+
+Movie News, Meg 2: The Trench, Jason Statham, HBO Max, Prime Video
+
+Sat, 07 Mar 2026 16:00:12 GMT
+
+https://collider.com/jason-statham-sci-fi-sleeper-hit-streaming-success-hbo-max-march-2026/
+
+Jason Statham's 116-minute sci-fi sleeper hit, Meg 2: The Trench, is the perfect mash-up of Jaws and Predator. Here's where to watch.
+---------
+
+# Scott Grimes: Susan's Absence Causes Chaos in 'Ted' Season 2 [Exclusive]
+
+Exclusives, Ted, Scott Grimes
+
+Sat, 07 Mar 2026 16:30:17 GMT
+
+https://movieweb.com/scott-grimes-susan-ted-season-2/
+
+'Ted' Season 2 will show Alanna Ubach's Susan Bennett in a very different light.
+---------
+
+# Guy Ritchie's 'In the Grey' First Look Unveils Henry Cavill & Jake Gyllenhaal Action Thriller
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie
+
+Sat, 07 Mar 2026 16:30:09 GMT
+
+https://movieweb.com/henry-cavill-in-the-grey-first-look/
+
+The first-look images of 'In the Grey' reveal Guy Ritchie's star-studded action thriller featuring Henry Cavill, Jake Gyllenhaal, and Eiza González.
+---------
+
+# Jeremy Allen White's Hutt Is the Adonis Creed of 'The Mandalorian & Grogu'
+
+Movie News, The Mandalorian and Grogu, Star Wars, Jeremy Allen White
+
+Sat, 07 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/rotta-hutt-adonis-creed-mandalorian-grogu/
+
+The character last seen in 'Star Wars: The Clone Wars' has been given a major glow-up.
+---------
+
+# 'Bridgerton's Most Insufferable Characters, Ranked
+
+TV Lists, Bridgerton, Netflix
+
+Sat, 07 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/bridgerton-most-insufferable-characters/
+
+'Bridgerton' is home to some of Netflix's most beloved characters – and some of its worst.
+---------
+
 # Phil Dunster Is Still Denying Ted Lasso Return Despite Being On Season 4 Set
 
 TV, Ted Lasso, Phil Dunster, Apple TV
