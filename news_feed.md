@@ -1,3 +1,311 @@
+# Phil Dunster Is Still Denying Ted Lasso Return Despite Being On Season 4 Set
+
+TV, Ted Lasso, Phil Dunster, Apple TV
+
+Sat, 07 Mar 2026 15:42:47 GMT
+
+https://screenrant.com/phil-dunster-ted-lasso-season-4-return-set-appearance-denial/
+
+Exclusive: Phil Dunster continues to deny his apparent return as Jamie Tartt for Ted Lasso season 4, despite being spotted on set for the season.
+---------
+
+# The Best Disney Movies Of The Past Decade: A Year-by-Year Breakdown
+
+Movies, Disney, Ranking
+
+Sat, 07 Mar 2026 15:40:19 GMT
+
+https://screenrant.com/best-disney-movie-each-year-2016-2025/
+
+The past decade for Disney has seen each year feature great films from superhero blockbusters to modern animated hits to well-received dramas.
+---------
+
+# Marvel Star Is Grateful She Wasn’t Cast As Rey In The Star Wars Sequel Trilogy
+
+Movies, Jessica Henwick, Star Wars
+
+Sat, 07 Mar 2026 15:40:14 GMT
+
+https://screenrant.com/jessica-henwick-star-wars-rey-not-cast-grateful/
+
+Even though playing Rey in the Star Wars sequel trilogy was a major role, this Marvel star is now grateful that she did not get the part.
+---------
+
+# The Legend of Zelda Fans Outraged At 40th Anniversary Celebration
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Sat, 07 Mar 2026 15:31:18 GMT
+
+https://screenrant.com/legend-of-zelda-40th-anniversary-fan-reaction/
+
+A huge milestone for The Legend of Zelda series has come and gone, leaving some fans bewildered at the lack of news regarding the beloved franchise.
+---------
+
+# You'll Love The CW's 8-Season Sports Drama, Even If You Hate Football
+
+Network TV, All American
+
+Sat, 07 Mar 2026 15:31:18 GMT
+
+https://screenrant.com/all-american-cw-sports-drama-love-hate-football/
+
+You don't need to love football to enjoy The CW's 8-season sports drama. In fact, the series is perfect for those who never even watch the sport.
+---------
+
+# Resident Evil Requiem May Have Given Us Our First Code: Veronica Tease
+
+Gaming, Resident Evil 9, Triple-A Games
+
+Sat, 07 Mar 2026 15:17:23 GMT
+
+https://screenrant.com/resident-evil-requiem-code-veronica-tease/
+
+Resident Evil Requiem is nothing if not nostalgic, but it isn't shying away from some big hints toward what the series' future may hold.
+---------
+
+# 12 Biggest Theories For Bridgerton's New Lady Whistledown, Ranked
+
+Streaming TV, Bridgerton
+
+Sat, 07 Mar 2026 15:15:18 GMT
+
+https://screenrant.com/bridgerton-new-lady-whistledown-theories-ranked/
+
+Bridgerton season 4 ended with the bombshell that a new Lady Whistledown has emerged, but the new gossip writer may already be hiding in plain sight.
+---------
+
+# The Early '90s: The Golden Era Of Sports Movies
+
+Movies, Sports, Op-Ed
+
+Sat, 07 Mar 2026 15:15:18 GMT
+
+https://screenrant.com/sports-movies-best-time-early-1990s/
+
+Sports films from the early '90s were a great blend of critically acclaimed projects and movies aimed at kids, making for the genre's golden era.
+---------
+
+# Luke Cage Star Says “It’s Time” For Marvel Return 7 Years After Last Appearance
+
+Marvel Comics, Luke Cage, Marvel
+
+Sat, 07 Mar 2026 15:12:36 GMT
+
+https://screenrant.com/luke-cage-marvel-return-mike-colter-response/
+
+Luke Cage ended eight years ago, and it has been nearly 7 years since his last appearance, but one star has stated it's time for the hero to return.
+---------
+
+# Only One Avatar: The Last Airbender Episode Comes Close To Beating Breaking Bad's Very Best
+
+TV, Avatar: The Last Airbender, The Last Airbender, Breaking Bad
+
+Sat, 07 Mar 2026 15:01:18 GMT
+
+https://screenrant.com/avatar-last-airbender-best-episode-beat-breaking-bad/
+
+How does AtLA’s best episode stack up against Breaking Bad’s finest? Surprisingly, it’s the Game of Thrones fandom that just gave AtLA the edge.
+---------
+
+# Guy Ritchie Reunites With 3 Frequent Collaborators In First Look at In the Grey
+
+Movies, guy ritchie, In the Grey
+
+Sat, 07 Mar 2026 15:42:45 GMT
+
+https://www.cbr.com/guy-ritchie-in-the-grey-first-look-henry-cavill-jake-gyllenhaal-eiza-gonzalez/
+
+The filmmaker couldn't be busier, especially after the successful release of Young Sherlock.
+---------
+
+# 24 Years Later, Karl Urban Reveals the 'Biggest Challenge' When Filming Lord of the Rings
+
+Movies, Sci-Fi, Fantasy, The Lord of the Rings
+
+Sat, 07 Mar 2026 15:16:34 GMT
+
+https://www.cbr.com/karl-urban-reveals-biggest-challenge-filming-lord-of-the-rings/
+
+The Boys is ready to scorch earth in its finale, but one of the shows biggest stars still remembers what it was like to film The Lord of the Rings.
+---------
+
+# Saw Franchise Sets Netflix Release Date
+
+Movies, Saw
+
+Sat, 07 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/saw-franchise-netflix-release-date-march-2026/
+
+One of the bloodiest horror franchises of an entire generation is about to have a new streaming home, albeit with one serious catch.
+---------
+
+# The MCU Saved The Guardians of the Galaxy
+
+Movies, MCU, Guardians of the Galaxy
+
+Sat, 07 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/star-lord-comic-origin-ruined-mcu-guardians-of-the-galaxy/
+
+The Marvel Cinematic Universe removed the darkest aspect of the Guardians of the Galaxy's formation from the comic books.
+---------
+
+# 10 Batman Characters Who Need Stronger Storylines
+
+Superheroes, DC Comics
+
+Sat, 07 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/batman-characters-who-outgrew-their-storylines/
+
+Sorry, but these Batman characters are running out of steam.
+---------
+
+# Prime Video's 56 Days Is a Twisty, Binge-Worthy Weekend Watch
+
+TV, 56 Days, Prime Video, Thriller
+
+Sat, 07 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/prime-video-56-days-weekend-binge/
+
+56 Days proves that eight episodes are more than enough to keep you engaged and on the edge of your seat.
+---------
+
+# Rebecca Ferguson’s Bingeworthy Sci-Fi Masterpiece Will Finally Show Us How the World Ended
+
+TV Features, Silo, Jessica Henwick, Rebecca Ferguson, Apple TV
+
+Sat, 07 Mar 2026 15:41:12 GMT
+
+https://collider.com/silo-season-3-jessica-henwick-plot-dual-timelines/
+
+After Silo's most shocking finale yet, Season 3 will explore the origins of its dystopian world through dual timelines.
+---------
+
+# Netflix Is Removing Ridley Scott’s 158-Minute ‘Succession’ Alternative
+
+Movie News, House of Gucci, Succession, Netflix, Ridley Scott
+
+Sat, 07 Mar 2026 15:40:13 GMT
+
+https://collider.com/ridley-scott-succession-replacement-hous-of-gucci-leaving-netflix-march-2026/
+
+Netflix has announced it will be removing Ridley Scott's 158-minute controversial Succession alternative starring Adam Driver.
+---------
+
+# HBO's Stellar 98% RT American Crime Series Has Zero Weak Seasons
+
+TV Features, Barry, Bill Hader, HBO Max, Crime
+
+Sat, 07 Mar 2026 15:38:12 GMT
+
+https://collider.com/barry-hbo-crime-series-zero-weak-seasons/
+
+HBO's Barry, starring Bill Hader, Henry Winkler, and Sarah Goldberg, is gripping crime series that doubles as a Hollywood satire.
+---------
+
+# 10 TV Masterpieces That No One Remembers but Are Worth Rediscovering
+
+TV, Television, In Living Color, Flight of the Conchords, Matlock
+
+Sat, 07 Mar 2026 15:33:12 GMT
+
+https://collider.com/tv-masterpieces-no-one-remembers-worth-rediscovering/
+
+In Living Color, Matlock, Timeless, and Flight of the Conchords are some of the TV gems that many have forgotten but are worth rediscovering today.
+---------
+
+# 10 Best Crowd-Pleasing Sci-Fi Movies, Ranked
+
+Movie, Star Wars, E.T. the Extra-Terrestrial, Superman, Avengers: Endgame
+
+Sat, 07 Mar 2026 15:28:12 GMT
+
+https://collider.com/best-crowd-pleasing-sci-fi-movies-ranked/
+
+Some of the most crowd-pleasing sci-fi movies of all time include undeniable classics like Star Wars, Back to the Future, and Jurassic Park.
+---------
+
+# Fiercely Loyal Fanbase Sends ‘Landman’ Star’s 2003 Sci-Fi Movie Smashing Past Streaming Competition
+
+Movie News, Ang Lee, Hulk, Eric Bana, Sam Elliott
+
+Sat, 07 Mar 2026 15:24:30 GMT
+
+https://collider.com/hulk-2003-sam-elliott-sci-fi-streaming-success-hbo-max-march-2026/
+
+Landman fans send one star’s forgotten sci-fi superhero movie climbing the streaming charts after 23 years.
+---------
+
+# Matt Damon’s $19 Million Neo-Western Quietly Becomes a Must-Watch for 'Landman' Fans
+
+Movie News, Stillwater, Matt Damon, Landman, Taylor Sheridan
+
+Sat, 07 Mar 2026 15:21:12 GMT
+
+https://collider.com/matt-damon-landman-replacement-stillwater-streaming-success-prime-video-apple-tv-march-2026/
+
+Matt Damon's $19 million thrilled hailed as the perfect alternative to Landman is getting a second chance on streaming charts.
+---------
+
+# Netflix’s Steamy New 8-Part Comedy Tames Streaming Competition
+
+TV News, Netflix, Rachel Weisz, Leo Woodall, Vladimir
+
+Sat, 07 Mar 2026 15:15:24 GMT
+
+https://collider.com/netflix-8-part-comedy-series-vladimir-rachel-weisz-streaming-success-march-2026/
+
+Netflix’s steamy new 8-part comedy series Vladimir is taming the streaming competition just days after it premiered.
+---------
+
+# 145-Minute Neo-Western Proves It’s a Must-Watch for 'John Wick' Fans
+
+Movie News, Anil Kapoor, Prime Video, Western, Action
+
+Sat, 07 Mar 2026 15:07:08 GMT
+
+https://collider.com/subedaar-john-wick-style-action-movie-neo-western-streaming-success-prime-video-march-2026/
+
+A new 145-minute action-packed neo-western is delivering non-stop thrills on streaming. Here’s where you can watch it.
+---------
+
+# If You’ve Ever Wanted ‘Back to the Future 4,’ This Hilarious Sci-Fi Movie Is the Next Best Thing
+
+Movie Features, Nirvanna the Band the Show the Movie, Nirvanna the Band the Show, Back to the Future, Comedy
+
+Sat, 07 Mar 2026 15:04:13 GMT
+
+https://collider.com/nirvanna-the-band-the-show-the-movie-back-to-the-future/
+
+The hilarious new comedy Nirvanna the Band the Show the Movie might be the closest we ever get to Back to the Future 4.
+---------
+
+# Ben Stiller to White House: Not a Part of Your "Propaganda Machine"
+
+Movie News, Tropic Thunder, Ben Stiller, Donald Trump
+
+Sat, 07 Mar 2026 15:30:18 GMT
+
+https://movieweb.com/ben-stiller-to-white-house/
+
+Stiller slams the administration's unauthorized use of a clip from 'Tropic Thunder.'
+---------
+
+# Alan Ritchson and Brad Pitt's 'War Machine': Are the Netflix Movie Related?
+
+Features, Alan Ritchson, Brad Pitt, War Machine, Netflix
+
+Sat, 07 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/war-machine-alan-ritchson-brad-pitt-netflix/
+
+Netflix officially has two original movies called 'War Machine'. Are the films starring Alan Ritchson and Brad Pitt related?
+---------
+
 # Tom Hanks' Underrated 2021 Film Showcases His Remarkable Acting Skills
 
 Movies, Tom Hanks, Finch, Op-Ed
