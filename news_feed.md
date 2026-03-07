@@ -1,3 +1,234 @@
+# Tom Hanks' Underrated 2021 Film Showcases His Remarkable Acting Skills
+
+Movies, Tom Hanks, Finch, Op-Ed
+
+Sat, 07 Mar 2026 14:45:18 GMT
+
+https://screenrant.com/tom-hanks-finch-great-acting-alone/
+
+Tom Hanks is often at his best when he's basically acting all alone on screen, which he mostly pulled off in an underrated movie from 2021.
+---------
+
+# Fourth Wing TV Show: Confirmation, Story & Everything We Know
+
+TV, Fourth Wing, Upcoming Releases
+
+Sat, 07 Mar 2026 14:30:20 GMT
+
+https://screenrant.com/fourth-wing-tv-show-confirmation-story-updates/
+
+Rebecca Yarros' fantasy novel Fourth Wing is already getting a TV adaptation, and Amazon Prime Video is keen to bring the BookTok sensation to life.
+---------
+
+# Star Trek Is Finally Addressing Voyager’s Most Frustrating Janeway Debate
+
+Comics, Star Trek, Star Trek: Voyager
+
+Sat, 07 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/star-trek-voyager-janeway-problem-prime-directive-theory/
+
+Finally going there.
+---------
+
+# Red Dead Redemption 2: Life Of Crime Will Keep You Busy Till RDR3
+
+Gaming, Red Dead Redemption 2
+
+Sat, 07 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-life-of-crime-fan-expansion/
+
+Discover the Life of Crime mod for Red Dead Redemption 2, allowing players to create a new character and dive into a life of crime with a skill tree.
+---------
+
+# Christian Bale Explains The True Meaning Of His New Sci-Fi Horror Movie’s Ending
+
+Movies, The Bride!, Frankenstein, Sci-Fi, Horror
+
+Sat, 07 Mar 2026 14:27:46 GMT
+
+https://screenrant.com/the-bride-ending-explained-christian-bale-response/
+
+The ending of Christian Bale's new science-fiction horror movie, The Bride!, is explained by the star, who digs into the story's deeper meaning.
+---------
+
+# Marlon Brando Actually Played Vito Corleone Twice, the Second Time in 1990
+
+Movies, The Godfather, The Freshman, Marlon Brando
+
+Sat, 07 Mar 2026 14:24:32 GMT
+
+https://screenrant.com/freshmen-marlon-brando-godfather-reprisal/
+
+How many times did Marlon Brando play Don Vito Corleone? If you said "once," you're not exactly wrong, but you're not 100% right either.
+---------
+
+# Every Sydney Sweeney TV Show, Ranked
+
+TV, Sydney Sweeney
+
+Sat, 07 Mar 2026 14:24:18 GMT
+
+https://screenrant.com/sydney-sweeney-tv-shows-ranked/
+
+Sydney Sweeney's most emotionally charged performances are ranked, from tragic arcs to unforgettable supporting roles in these TV shows.
+---------
+
+# Young Sherlock Fixes Sherlock's Biggest Mistake With Holmes Sibling Story
+
+Streaming TV, Young Sherlock
+
+Sat, 07 Mar 2026 14:15:19 GMT
+
+https://screenrant.com/young-sherlock-fixes-benedict-cumberbatcht-show-sister/
+
+Prime Video's Young Sherlock repeats the biggest mistake of Benedict Cumberbatch's Sherlock, but, surprisingly, it also fixes it brilliantly.
+---------
+
+# 5 Movies That Ripped Off Gremlins, Ranked By Originality
+
+Classic Movies, Gremlins, Ranking
+
+Sat, 07 Mar 2026 14:15:19 GMT
+
+https://screenrant.com/gremlins-rip-offs-originality/
+
+Gremlins is an iconic piece of '80s pop culture, and it spawned a legion of imitators. Which Gremlins knock-off is the most original?
+---------
+
+# The Night Agent All But Confirms Rose's Return For Season 4 With Major Show Change
+
+Streaming TV, The Night Agent
+
+Sat, 07 Mar 2026 14:02:19 GMT
+
+https://screenrant.com/the-night-agent-season-4-rose-return-setup-los-angeles-change/
+
+New details about The Night Agent season 4 on Netflix all but confirms that Luciane Buchanan is coming back as Rose Larkin to the hit spy thriller.
+---------
+
+# 7 Banned TV Episodes That Were 10/10
+
+TV, Twilight Zone, Seinfeld, South Park
+
+Sat, 07 Mar 2026 14:30:12 GMT
+
+https://www.cbr.com/best-banned-tv-episodes-list/
+
+Television has a history of banning episodes for decades, but some of them were actually amazing.
+---------
+
+# The Super Mario Galaxy Movie Levels Up With Yoshi Popcorn Bucket
+
+Movies, Super Mario Bros., The Super Mario Galaxy Movie
+
+Sat, 07 Mar 2026 14:28:03 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-unveils-yoshi-popcorn-bucket/
+
+WOW — The Super Mario Galaxy Movie just sent Yoshi fans into orbit with this.
+---------
+
+# 30 Years Ago, This Mecha Series Released the Best Anime Ending Ever
+
+Anime, Neon Genesis Evangelion, mecha
+
+Sat, 07 Mar 2026 14:15:13 GMT
+
+https://www.cbr.com/neon-genesis-evangelion-mecha-series-best-anime-ending/
+
+The ending of Neon Genesis Evangelion transformed mecha into a visceral vehicle for deeply personal explorations of psychological trauma and identity.
+---------
+
+# Hello Kitty's Sanrio Gets New Tamagotchi Models for Pompompurin for International Release
+
+Anime, sanrio, merchandise, toys
+
+Sat, 07 Mar 2026 14:01:12 GMT
+
+https://www.cbr.com/sanrio-pompompurin-anniversary-tamagotchi/
+
+The latest Sanrio Tamagotchi collaboration focuses on Pompompurin, with these upcoming items celebrating the hat-wearing dog's latest birthday.
+---------
+
+# Jason Statham’s Operation Fortune Is Secretly One of His Most Crowd-Pleasing Movies
+
+Movies, Operation Fortune: Ruse de Guerre, Jason Statham, guy ritchie
+
+Sat, 07 Mar 2026 14:01:12 GMT
+
+https://www.cbr.com/jason-statham-operation-fortune-most-crowd-pleasing-movie/
+
+Operation Fortune: Ruse de Guerre isn't the most beloved spy movie out there, but fans still can't get enough of the Jason Statham film.
+---------
+
+# 6 Sitcoms With the Best Finales
+
+TV, Friends, Schitt's Creek, Seinfeld, Comedy
+
+Sat, 07 Mar 2026 14:48:12 GMT
+
+https://collider.com/sitcom-tv-shows-best-finales/
+
+Explore the best sitcom finales that prove good endings can help cement some shows' legacies, as seen in Friends, The Office, and Seinfeld.
+---------
+
+# This Is the Mount Rushmore of Steven Spielberg Movies
+
+Movie, Raiders of the Lost Ark, Steven Spielberg, Jaws, Schindler's List
+
+Sat, 07 Mar 2026 14:42:13 GMT
+
+https://collider.com/best-steven-spielberg-movies-mount-rushmore/
+
+Narrowing Steven Spielberg's four best and most important movies is a daunting task, but classics like Jaws and Schindler's List surely make the cut.
+---------
+
+# Clint Eastwood’s Final Movie Continues To Prove Warner Bros. Wrong 2 Years Later
+
+Movie News, Juror #2, Clint Eastwood, Warner Bros., HBO Max
+
+Sat, 07 Mar 2026 14:40:13 GMT
+
+https://collider.com/clint-eastwood-final-movie-juror-number-2-streaming-success-hbo-max-march-2026/
+
+Two years after a bungled theatrical release, Clint Eastwood's final movie, Juror #2, continues to prove Warner Bros. wrong.
+---------
+
+# Jason Statham’s 97-Minute Action Thriller Quietly Becomes an Easy Watch in the U.S.
+
+Movie News, Jason Statham, Action, Blitz, Tubi
+
+Sat, 07 Mar 2026 14:21:12 GMT
+
+https://collider.com/jason-statham-action-thriller-blitz-streaming-hit-tubi-march-2026/
+
+Jason Statham's forgotten 97-minute action thriller Blitz is popular on U.S. streaming. Here's everything you need to know.
+---------
+
+# 'Weapons' Best Performance Also Broke a Surprising 55-Year-Old Oscar Record
+
+Movie Features, Weapons, Amy Madigan, Academy Awards, Oscars
+
+Sat, 07 Mar 2026 14:11:12 GMT
+
+https://collider.com/weapons-amy-madigan-oscars-longest-gap-between-nominations-actress/
+
+With her performance in Weapons, Amy Madigan breaks the record for most time between nominations for an actress.
+---------
+
+# Chris Pratt's 138-Minute Sci-Fi Epic Is Finally Getting the Comeback It Deserves
+
+Movie News, The Tomorrow War, Chris Pratt, Prime Video, J.K. Simmons
+
+Sat, 07 Mar 2026 14:00:13 GMT
+
+https://collider.com/chris-pratt-sci-fi-epic-the-tomorrow-war-streaming-success-prime-video-march-2026/
+
+Chris Pratt's $200 million straight-to-streaming blockbuster, The Tomorrow War, has aged much better than you remember. Read on for more.
+---------
+
 # 12 Best Teen Dramas On Streaming, Ranked
 
 Streaming TV
