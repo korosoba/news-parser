@@ -1,3 +1,91 @@
+# Skyrim: Dragonbreak Feels Like A Completely New Game
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games, PC
+
+Sat, 07 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/skyrim-dragonbreak-2026-overhaul-fan-made-download/
+
+Designed for long-term players and beyond, Skyrim: Dragonbreak will likely get you to replay Bethesda's best-selling RPG all over again.
+---------
+
+# Star Trek: Starfleet Academy's Insane Super Villain Plan
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Sat, 07 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/star-trek-just-went-bigger-than-it-ever-has-before/
+
+Star Trek: Starfleet Academy episode 9 ends with an escalation that goes beyond what's been previously seen or possible in Star Trek before.
+---------
+
+# Cyberpunk 2077 Second Expansion Divides Gamers, And We Can See Why
+
+Gaming, Cyberpunk 2077
+
+Sat, 07 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-second-expansion-gamer-reaction/
+
+Fans divided over potential for a second Cyberpunk 2077 expansion, as CDPR focuses on sequel and other projects, but surprises are possible.
+---------
+
+# Yellowstone: Kayce's Spinoff Finally Fixes A Thomas Rainwater Mistake
+
+TV, Marshals, Yellowstone
+
+Sat, 07 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/cbs-yellowstone-spinoff-marshals-correct-chairman-thomas-rainwater-title/
+
+A Yellowstone spinoff on CBS starring Luke Grimes as Kayce Dutton, who becomes a U.S. Marshal, makes an important correction to the original series.
+---------
+
+# The Amazing Spider-Man’s Flash Thompson Its Still the Series' Best Villain
+
+Movies, The Amazing Spider-Man, Spider-Man
+
+Sat, 07 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/the-amazing-spider-man-underrated-flash-thompson-best-villain/
+
+The Amazing Spider-Man's Flash Thompson doesn't get much attention, but he's proven even years later to be one of the series' best villains.
+---------
+
+# 15 Years Ago, 'Scream' Already Had the Best Twist Ending of All Time
+
+Movie Features, Scream, Scream 4, Neve Campbell, Emma Roberts
+
+Sat, 07 Mar 2026 11:03:12 GMT
+
+https://collider.com/scream-4-best-twist-ending-of-all-time/
+
+Scream IV was a divisive sequel to the original trilogy, but it wrapped up the franchise better than any of the subsequent movies.
+---------
+
+# This Ridiculous 96% RT 3-Part Sitcom Is Officially the Perfect Weekend Binge
+
+TV Features, Fisk, Netflix, Sitcom
+
+Sat, 07 Mar 2026 10:51:12 GMT
+
+https://collider.com/best-weekend-binge-sitcom-fisk-3-seasons/
+
+Rotten Tomatoes proves that audiences are in love with this hilarious, 3-part workplace sitcom.
+---------
+
+# 'Garfield' Paramount+ Series Casts Lamorne Morris
+
+TV News, garfield, The Garfield Movie, Lamorne Morris
+
+Sat, 07 Mar 2026 11:05:08 GMT
+
+https://movieweb.com/new-garfield-series-cast/
+
+Paramount+ has ordered a new 2D-animated 'Garfield' series, with Lamorne Morris set to voice the titular orange cat.
+---------
+
 # Game Of Thrones Fans Unite Around New Open World RPG
 
 Gaming
