@@ -1,3 +1,190 @@
+# Why Outlander Will End With Season 8 Even Though Diana Gabaldon Has Yet To Publish Book 10
+
+TV, Outlander, History
+
+Sat, 07 Mar 2026 19:37:17 GMT
+
+https://screenrant.com/outlander-season-8-ending-diana-gabaldon-final-book-not-published-explained-maril-davis-matthew-roberts/
+
+Outlander is ending with its eighth season, but the book series by Diana Gabaldon is far from over, prompting fans to question why it must end now.
+---------
+
+# After 4 Years, BookTok’s Most Controversial Book Ending Finally Makes Sense
+
+Books, Vladimir
+
+Sat, 07 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/netflix-vladimir-julia-may-jonas-ending-change/
+
+One popular BookTok book ended on a controversial, confusing note, and four years later, the Netflix adaptation finally clears things up.
+---------
+
+# Steam Drops 8 New Free Games You Can Download And Keep Fore
+
+Gaming, Steam
+
+Sat, 07 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/steam-8-free-games-march-2026-keep-forever/
+
+Discover 8 brand new free games on Steam that you can download and keep forever. From indie gems to multiplayer hits.
+---------
+
+# Why Ted Lasso Season 4 Exists Despite Original Season 3 Plan Explained By Creator Bill Lawrence
+
+TV, Ted Lasso, Apple TV
+
+Sat, 07 Mar 2026 19:21:31 GMT
+
+https://screenrant.com/ted-lasso-season-4-creation-original-season-3-plan-explained-bill-lawrence/
+
+Exclusive: Creator Bill Lawrence opens up about why Ted Lasso season 4 is finally happening, despite the Apple TV comedy's original three-season plan.
+---------
+
+# Scrubs Season 11 Prospects Addressed By Creator After Strong Ratings For Medical Revival
+
+TV, Scrubs
+
+Sat, 07 Mar 2026 19:19:59 GMT
+
+https://screenrant.com/scrubs-season-11-prospects-bill-lawrence/
+
+Scrubs creator Bill Lawrence shares a hopeful update about the possibility of the show returning for season 11 thanks to season 10's stellar ratings.
+---------
+
+# Alexander Skarsgård’s 4-Part Drama Was HBO’s Last Great Show
+
+Classic TV, Succession, Alexander Skarsgard
+
+Sat, 07 Mar 2026 19:14:18 GMT
+
+https://screenrant.com/succession-hbo-last-great-show/
+
+HBO has launched many game-changing shows, but its last true masterpiece series, which starred Alexander Skarsgård, ended three years ago.
+---------
+
+# A Knight of the Seven Kingdoms Leaves Major Clues About Game of Thrones' Future, and You Totally Missed It
+
+TV, A Knight Of The Seven Kingdoms, A Knight of the Seven Kingdoms - Season 1, Game of Thrones, Fantasy
+
+Sat, 07 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/knight-seven-kingdoms-clue-future-game-thrones/
+
+The finale of A Knight of the Seven Kingdoms may have hidden a clever detail in plain sight, hinting at a major twist in the story of Dunk and Egg.
+---------
+
+# Star Trek Surely Can't Avoid A Famous Ship Returning Now
+
+Streaming TV, Star Trek: Starfleet Academy
+
+Sat, 07 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/star-trek-discovery-return-starfleet-academy-finale/
+
+Star Trek: Starfleet Academy has featured a number of familiar faces, but few returning ships, and that surely has to change in season 1's finale.
+---------
+
+# The Best Netflix Fantasy Anime Is Finally Getting a Sequel
+
+Anime, Delicious in Dungeon
+
+Sat, 07 Mar 2026 19:15:11 GMT
+
+https://www.cbr.com/delicious-in-dungeon-best-fantasy-anime-netflix-sequel/
+
+Delicious in Dungeon is one of the strongest fantasy series on Netflix, and it's officially returning with a brand-new chapter.
+---------
+
+# Downton Abbey: The Grand Finale Sets Netflix Release Day in March 2026
+
+Movies, Downton Abbey, Downton Abbey: The Grand Finale
+
+Sat, 07 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/downton-abbey-the-grand-finale-netflix-release-march-2026/
+
+Even after premiering the final film, the period franchise still finds ways to surprise fans.
+---------
+
+# Gundam Wing's Prototype Villain Mecha Gets Exclusive New Bandai Release After 31 Years
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing, merchandise, toys, action figures, bandai
+
+Sat, 07 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/gundam-wing-tallgeese-bandai-metal-robot-spirits-action-figure/
+
+One of the most notable 'villain' mobile suits from Gundam Wing is getting a weapon-laden action figure from the Metal Robot Spirits series.
+---------
+
+# Amy Adams’ Most "Nauseating" 5-Star Performance Is Officially a Click Away
+
+Movie News, Nocturnal Animals, Amy Adams, Jake Gyllenhaal, Aaron Taylor-Johnson
+
+Sat, 07 Mar 2026 19:40:12 GMT
+
+https://collider.com/amy-adams-nocturnal-animals-nasty-neo-noir-streaming-paramount-plus-march-2026/
+
+Director Tom Ford's star-studded neo-noir film Nocturnal Animals has a new streaming home this month. Find out more details below.
+---------
+
+# These Cold War Movies That Are More Relevant Today
+
+Movie, War, On the Beach, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb
+
+Sat, 07 Mar 2026 19:28:12 GMT
+
+https://collider.com/cold-war-movies-more-relevant-today/
+
+Cold War movies like The Manchurian Candidate and The Lives of Others are, sadly, more relevant than ever in today's highly volatile, uncertain world.
+---------
+
+# Before ‘MobLand’ Season 2 Returns, Watch Helen Mirren’s Near-Perfect WWII Thriller
+
+Movie News, Helen Mirren, Ian McKellen, The Good Liar, World War II
+
+Sat, 07 Mar 2026 19:20:12 GMT
+
+https://collider.com/helen-mirren-near-perfect-ww2-thriller-good-liar-streaming-paramount-plus-march-2026/
+
+In a single decade, Helen Mirren coincidentally starred in three time-hopping movies partially set during World War II. One of them is on Paramount+.
+---------
+
+# 11 Years Later, Tom Hardy’s $533 Million Western Is a Must-Watch on Streaming
+
+Movie News, Tom Hardy, Western, The Revenant, Peacock
+
+Sat, 07 Mar 2026 19:00:12 GMT
+
+https://collider.com/tom-hardy-the-revenant-oscar-winning-western-streaming-success-peacock-march-2026/
+
+Tom Hardy's triple-Oscar-winning Western, The Revenant, is a streaming hit in the U.S. Find out where below.
+---------
+
+# 7 Iconic Movies Audiences Later Discovered Were Actually Adaptations
+
+Movie Lists
+
+Sat, 07 Mar 2026 19:30:17 GMT
+
+https://movieweb.com/famous-movies-didnt-realize-were-adaptations/
+
+Whether they follow the source material or not, these movies are technically adaptations, but some viewers are unaware of their story origins.
+---------
+
+# Russell Crowe's World War II Drama 'Nuremberg' Streaming on Netflix
+
+Features, Netflix, Nuremberg, Russell Crowe
+
+Sat, 07 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/nuremberg-2025-streaming-on-netflix/
+
+The World War II drama starring Rami Malek and Russell Crowe comes to Netflix on March 7.
+---------
+
 # Ghostbusters 6 Gets An Update From Star, Two Years After Frozen Empire's Underwhelming Box Office
 
 Movies, Ghostbusters 6, Ghostbusters, Mckenna Grace
