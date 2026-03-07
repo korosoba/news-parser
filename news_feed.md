@@ -1,3 +1,256 @@
+# Steam Machine Release Window Update Is Music To Our Ears
+
+Gaming, Steam, Triple-A Games, PC
+
+Sat, 07 Mar 2026 17:42:58 GMT
+
+https://screenrant.com/steam-machine-release-window-update-2026/
+
+After a bit of concerning back-and-forth, Valve has offered an update that confirms some good news for the Steam Machine's release window.
+---------
+
+# Netflix’s New R-Rated Sci-Fi Thriller With Reacher Star Debuts To Solid Rotten Tomatoes Score
+
+Movies, War Machine
+
+Sat, 07 Mar 2026 17:42:57 GMT
+
+https://screenrant.com/war-machine-netflix-rotten-tomatoes-score/
+
+Reacher star Alan Ritchson has a violent new R-rated movie out on Netflix, and the action sci-fi has debuted to a solid Rotten Tomatoes score.
+---------
+
+# 10 Great Movies Recommended by Hayao Miyazaki
+
+Classic Movies, Hayao Miyazaki
+
+Sat, 07 Mar 2026 17:40:19 GMT
+
+https://screenrant.com/hayao-miyazaki-favorite-movies-recommendations/
+
+Hayao Miyazaki is one of the greatest filmmakers of all time, and his favorite movies clearly shaped his development as a storyteller.
+---------
+
+# 10 Times Ross Geller Was The Actual Worst In Friends
+
+Classic TV, Friends
+
+Sat, 07 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/ross-geller-terrible-friends-moments/
+
+Ross Geller is one of the most divisive TV characters, and these ten Friends moments prove that, as a person, he is the actual worst.
+---------
+
+# 10 Ways Pokémon Winds & Waves Could Fix The Mistakes Of Scarlet & Violet
+
+Gaming, Pokemon, Pokemon Winds and Waves
+
+Sat, 07 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/10-ways-pokmon-winds-waves-could-fix-the-mistakes-of-scarlet-violet/
+
+Pokémon Scarlet and Violet had some serious issues that Pokémon Winds and Waves can correct and improve on.
+---------
+
+# NCIS Is Ruining Gibbs To Save Its Trailblazing Show
+
+Network TV, NCIS, NCIS: Origins
+
+Sat, 07 Mar 2026 17:24:18 GMT
+
+https://screenrant.com/ncis-origins-season-2-ruins-gibbs-legacy-op-ed/
+
+CBS's Super Tuesday return in 2026 makes it clear that NCIS is prioritizing its trailblazing spinoff than preserving a specific part of Gibbs' legacy.
+---------
+
+# 8 Most Anticipated Upcoming Video Game Movies, Ranked By Hype
+
+Movies, Resident Evil, A Minecraft Movie 2, Sonic the Hedgehog 4, Helldivers 2, Street Fighter, Mortal Kombat II, The Legend of Zelda, The Super Mario Galaxy Movie
+
+Sat, 07 Mar 2026 17:20:18 GMT
+
+https://screenrant.com/video-game-movies-upcoming-movie-exciting-ranked/
+
+A list of hotly anticipated video game movies to keep an eye on in 2026 and 2027, including action movies and fantasy adaptations.
+---------
+
+# Alan Ritchson’s Explosive New Sci-Fi Action Movie Instantly Dominates American Streaming
+
+Movies, War Machine, Netflix, Alan Ritchson, Streaming Charts
+
+Sat, 07 Mar 2026 17:15:28 GMT
+
+https://screenrant.com/war-machine-netflix-movie-streaming-success-march-2026/
+
+Following the release of the new Netflix sci-fi action adventure movie with Alan Ritchson, the 2026 entry has become a streaming hit in the US.
+---------
+
+# Bill Lawrence's Rooster: Steve Carell Is Dream Lead in HBO Comedy Series
+
+TV, Rooster, Steve Carell, HBO
+
+Sat, 07 Mar 2026 17:00:18 GMT
+
+https://screenrant.com/why-steve-carell-was-the-dream-lead-for-hbos-new-comedy-series-rooster/
+
+Discover why Steve Carell was the perfect choice to lead HBO's new comedy series Rooster, created by Bill Lawrence, blending family drama and workplace humor.
+---------
+
+# 10 Shows That Started Slow But Ended As Masterpieces
+
+Classic TV
+
+Sat, 07 Mar 2026 17:00:18 GMT
+
+https://screenrant.com/tv-shows-started-show-became-masterpiece/
+
+These shows needed a little breathing room to find their footing, but ultimately became some of the most memorable shows in TV history.
+---------
+
+# Most Terrifying Horror Icons of the 21st Century, Ranked
+
+Movies, Horror
+
+Sat, 07 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/most-terrifying-horror-icons-21st-century-ranked-list/
+
+These six horror movie villains are easily the most terrifying and beloved icons the genre has seen introduced since 2000
+---------
+
+# 5 Single-Season Fantasy TV Masterpieces
+
+TV, Fantasy, WandaVision, Lockwood & Co.
+
+Sat, 07 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/best-fantasy-tv-shows-one-season-list/
+
+While some fantasy epics go on for far too long, shows like My Lady Jane and WandaVision perfect their story in a single season.
+---------
+
+# 10 Anime Where Fan Service Is Key to the Plot
+
+Anime, Fire Force, Dandadan, Kill la Kill
+
+Sat, 07 Mar 2026 17:15:11 GMT
+
+https://www.cbr.com/anime-with-the-best-fan-service/
+
+Anime fans know fan service is a controversial topic, but these 10 series make fan service an important part of their plots.
+---------
+
+# Dark Winds Features a Twilight Reunion in New Clip (Exclusive)
+
+TV, Dark Winds, Twilight
+
+Sat, 07 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/dark-winds-season-4-twilight-reunion-clip/
+
+The series features a rare perfect score across all four seasons.
+---------
+
+# Apple TV’s 10/10 Sci-Fi Series With No Bad Episodes Is the Ultimate Weekend Binge
+
+TV News, Severance, Apple TV, Ben Stiller, Adam Scott
+
+Sat, 07 Mar 2026 17:40:12 GMT
+
+https://collider.com/apple-tv-perfect-sci-fi-series-severance-streaming-success-march-2026/
+
+Apple TV's only 10/10 sci-fi series with no bad episodes has become the ultimate weekend binge. Here's everything to know about Severance.
+---------
+
+# What's the Best Romantic Movie Ever Made? Surely It's One of These 10 Films
+
+Movie, Romance, Before Sunset, Before Sunrise, Brief Encounter
+
+Sat, 07 Mar 2026 17:36:12 GMT
+
+https://collider.com/best-romantic-movies-ever-made/
+
+From Casablanca to Before Sunrise, these timeless love stories could each claim the title of greatest romance ever made.
+---------
+
+# 16 Years Later, Martin Scorsese’s Genre-Defining Mystery Gets Its Due on Streaming
+
+Movie News, Shutter Island, Martin Scorsese, Leonardo DiCaprio, Mark Ruffalo
+
+Sat, 07 Mar 2026 17:20:12 GMT
+
+https://collider.com/martin-scorsese-genre-defining-mystery-shutter-island-streaming-free-pluto-tv-march-2026/
+
+The star-studded Martin Scorsese movie with one of the most shocking twist endings of all time, Shutter Island, is streaming for free this month.
+---------
+
+# Domhnall Gleeson’s Oscar-Nominated Movie Will Move You to Tears — and It’s Only 7 Minutes Long
+
+Movie Features, Domhnall Gleeson, Oscars, Animation, Retirement Plan
+
+Sat, 07 Mar 2026 17:19:12 GMT
+
+https://collider.com/retirement-plan-oscar-short-domhnall-gleeson/
+
+Retirement Plan, nominated in the Animated Short category at this year’s Oscars, is a stunning 7-minute film narrated by Domhnall Gleeson.
+---------
+
+# 12 Years Later, Tom Cruise’s Time-Loop Sci-Fi Thriller Keeps Winning Over Viewers
+
+Movie News, Edge of Tomorrow, Tom Cruise, Emily Blunt, Sci-Fi
+
+Sat, 07 Mar 2026 17:00:13 GMT
+
+https://collider.com/tom-cruise-time-loop-sci-fi-thriller-edge-of-tomorrow-streaming-success-prime-video-apple-tv-march-2026/
+
+12 years after it first hit theaters, Tom Cruise's legendary sci-fi film with Emily Blunt keeps proving it was ahead of its time.
+---------
+
+# 'Monarch' S2 Stars Reveal Whether Their Characters Trust Monarch
+
+Exclusives, Monarch: Legacy of Monsters
+
+Sat, 07 Mar 2026 17:30:17 GMT
+
+https://movieweb.com/monarch-season-2-characters-believe-monarch/
+
+'Monarch: Legacy of Monsters' stars Anna Sawai and Joe Tippett discuss whether their characters still have faith in the company they work for.
+---------
+
+# Netflix Buys Ben Affleck's AI Company
+
+Movie News, Ben Affleck, Netflix
+
+Sat, 07 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/netflix-buys-ben-afflecks-ai-company/
+
+The actor says the partnership is about the "need to preserve what makes storytelling human."
+---------
+
+# Jason Statham's New Action Thriller 'Shelter' Is The Number One Movie on Digital
+
+Movie News, Shelter, Hot on Streaming, Action
+
+Sat, 07 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/shelter-streaming-amazon-store-march-2026/
+
+After flopping at the box office, Jason Statham's 'Shelter' is a major success on digital streaming.
+---------
+
+# 'The Green Mile' Remains One of Stephen King's Most Faithful Movie Adaptations
+
+Movie News, The Green Mile, Cultural Reassessment, Stephen King
+
+Sat, 07 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/the-green-mile-stephen-king-second-best-movie/
+
+Voted Stephen King's second-best movie by IMDb users, 'The Green Mile' is an iconic piece of cinema that stays true to the source material.
+---------
+
 # The Bride Ends Warner Bros. Record-Breaking Box Office Streak With Disappointing US Debut
 
 Movies, The Bride!, Horror, Box Office
