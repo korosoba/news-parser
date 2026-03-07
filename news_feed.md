@@ -1,3 +1,300 @@
+# Jonathan Frakes Directs Action-Packed Star Trek: Starfleet Academy Episode 9
+
+Interviews, Star Trek: Starfleet Academy, Star Trek, Jonathan Frakes
+
+Sat, 07 Mar 2026 22:43:33 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-episode-9-jonathan-frakes-interview/
+
+ScreenRant interviews Jonathan Frakes about directing Star Trek: Starfleet Academy episode 9 and being an eternal optimist about Star Trek.
+---------
+
+# ARC Raiders Skill Tree Progression Guide (Levels 1-75)
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Sat, 07 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/arc-raiders-skill-upgrade-guide/
+
+Optimize your ARC Raiders raids with this comprehensive guide covering the best early-game, mid-game, and end-game skills to unlock for each path.
+---------
+
+# All 30 Pixar Movies Ranked From Worst To Best (Including Hoppers)
+
+Movies, Elemental, Inside Out 2, Elio, Pixar
+
+Sat, 07 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/pixar-movies-ranked-every/
+
+From Toy Story to Hoppers, how do all 29 of Pixar's animated movie releases rank from worst to best? Does your favorite rank in our top 3?
+---------
+
+# 7 Highly Anticipated Shows That Were Made But Never Released
+
+Classic TV
+
+Sat, 07 Mar 2026 22:30:18 GMT
+
+https://screenrant.com/tv-shows-made-never-released/
+
+Some of the best television shows of all time never made it to air, leaving only bits and pieces behind of what could have been unforgettable titles.
+---------
+
+# Professor X's Many Marvel Comics Deaths, Ranked
+
+Marvel Comics, X-Men, Marvel
+
+Sat, 07 Mar 2026 22:30:18 GMT
+
+https://screenrant.com/every-time-professor-x-died-marvel-xmen-comics/
+
+Professor X really has a penchant for dying and coming back to life, each time with a different aftermath for the X-Men and mutantkind.
+---------
+
+# Young Sherlock Star With A James Bond Connection Wants To Play Denis Villeneuve’s 007
+
+Movies, Young Sherlock, James Bond
+
+Sat, 07 Mar 2026 22:17:39 GMT
+
+https://screenrant.com/james-bond-movie-casting-interest-hero-fiennes-tiffin/
+
+As the new Sherlock, Hero Fiennes Tiffin wonders if he should aim for a role in another major franchise, James Bond, or leave it for another actor.
+---------
+
+# The MCU’s Longest Movie Sets Up An Impossible Challenge For Avengers: Doomsday
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 07 Mar 2026 22:15:19 GMT
+
+https://screenrant.com/mcu-avengers-endgame-doomsday-longest-movie-challenge/
+
+The MCU's longest movie has set up an impossible challenge for Avengers: Doomsday that it'll have to address one way or the other.
+---------
+
+# DC Comics' New Joker Needs To Star In Batman's Next Movie
+
+DC Comics, The Joker, Batman
+
+Sat, 07 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/joker-next-era-perfect-twist-batman-2/
+
+DC Comics' 2026 reinvention of the Joker introduces a very different Clown Prince of Crime, who deserves to make the jump to live-action soon.
+---------
+
+# Prime Video's 8-Part Sci-Fi Miniseries Is One Of Its Best
+
+Streaming TV, Tales from the Loop
+
+Sat, 07 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/tales-from-the-loop-prime-video-best-miniseries-sci-fi/
+
+Tales from the Loop is an exciting and innovative TV show with unusual source material. The series is one of the best sci-fi TV shows on Prime Video.
+---------
+
+# The Best Horror Movie From Every Decade Over The Last 100 Years
+
+Movies, Horror
+
+Sat, 07 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/best-horror-movies-every-decade-100-years/
+
+The horror genre is one littered with masterpieces, so choosing the best movie from each decade over the past 100 years is no easy task.
+---------
+
+# 5 Valid Reasons Yellowstone Fans Hate Marshals
+
+TV, Marshals, Yellowstone
+
+Sat, 07 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/reasons-yellowstone-fans-hate-marshals-list/
+
+Kayce Dutton's Yellowstone spinoff, Marshals, is already off to a rough start with Yellowstone fans.
+---------
+
+# The Marvel Character You’d Actually Be (It’s Not Who You Think)
+
+Movies, Marvel, MCU, superheroes
+
+Sat, 07 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/marvel-cinematic-universe-character-quiz/
+
+Which Marvel Cinematic Universe character best matches your personality? You might be surprised.
+---------
+
+# The Best Classic Action Anime of the 2000s
+
+Anime, Digimon, Fullmetal Alchemist: Brotherhood, Gurren Lagann
+
+Sat, 07 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/best-action-anime-of-the-2000s/
+
+These anime offer the best action of their time, while also telling timeless, unforgettable stories.
+---------
+
+# Karl Urban Reveals His 1 Condition for Chronicles of Riddick Sequel Return
+
+Movies, The Chronicles of Riddick, karl urban
+
+Sat, 07 Mar 2026 22:07:26 GMT
+
+https://www.cbr.com/karl-urban-chronicles-of-riddick-return-condition/
+
+Karl Urban speaks about potentially reuniting with Vin Diesel for a new Riddick film.
+---------
+
+# Steven Spielberg's The Dinosaurs Tops Netflix Streaming Charts
+
+TV, The Dinosaurs
+
+Sat, 07 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/the-dinosaurs-netflix-streaming-success-march-2026/
+
+The new dinosaur series from Steven Spielberg has become a major hit immediately upon its arrival.
+---------
+
+# 5 Horror Movies That Prove Real Life Is Scarier Than Fiction
+
+Movies, Horror, A Nightmare on Elm Street, The Strangers
+
+Sat, 07 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/horror-movies-based-on-real-life-list/
+
+Horror movies like Zodiac and A Nightmare on Elm Street couldn't be more different but their origins make them similar.
+---------
+
+# 5 Best Cold War Spy Shows, Ranked
+
+TV, Get Smart, Mission: Impossible, War
+
+Sat, 07 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/best-cold-war-spy-shows-list/
+
+The Cold War era defined the spy genre for a century, and television was quick to capitalize on the audience's love of espionage.
+---------
+
+# 21 Years Later, Keanu Reeves’ $100 Million "Cursed" Comic Book Movie Invades Streaming Charts
+
+Movie News, Keanu Reeves, Constantine, Rachel Weisz, AMC+
+
+Sat, 07 Mar 2026 22:40:12 GMT
+
+https://collider.com/keanu-reeves-cursed-comic-book-movie-constantine-streaming-success-amc-plus-march-2026/
+
+Keanu Reeves' cult comic book movie Constantine is a surprise streaming hit in the U.S. Find out where below.
+---------
+
+# The 10 Greatest One Vs. Many Movie Fights of All Time
+
+Movie, Action, Kill Bill: Vol. 1, Oldboy, RRR
+
+Sat, 07 Mar 2026 22:30:12 GMT
+
+https://collider.com/best-one-vs-many-movie-fights-all-time/
+
+Movies like Oldboy and Kill Bill feature some of the most exhilarating fights where a lone, courageous hero faces a seemingly endless horde of foes.
+---------
+
+# 14 Years Later, the 130-Minute Thriller That Angered ‘Reacher’ Fans Is Streaming Free
+
+Movie News, Jack Reacher, Tom Cruise, Christopher McQuarrie, Reacher
+
+Sat, 07 Mar 2026 22:20:12 GMT
+
+https://collider.com/tom-cruise-jack-reacher-rage-baited-lee-child-fans-streaming-free-pluto-tv-march-2026/
+
+Fans of Lee Child's novels can now watch Tom Cruise's take on Jack Reacher on free streaming this month. Find out more here.
+---------
+
+# 'Scary Movie 6' Is Already Proving It’s Focusing on the Wrong Targets
+
+Movie Features, Scary Movie 6, Marlon Wayans, Anna Faris, Regina Hall
+
+Sat, 07 Mar 2026 22:15:12 GMT
+
+https://collider.com/scary-movie-6-cancel-culture/
+
+With the first trailer for Scary Movie 6, it’s focus on “cancelling cancel culture” has us worried its targeting the wrong things.
+---------
+
+# Bob Dylan Has Heard Many Covers of "Knockin' on Heaven's Door," but This One Remains the Greatest of All Time
+
+Music Features, Bob Dylan, Rock, Music, Bruce Springsteen
+
+Sat, 07 Mar 2026 22:02:22 GMT
+
+https://collider.com/bob-dylan-knockin-on-heavens-door-bruce-springsteen-cover/
+
+Bruce Springsteen's live rendition of Knockin' on Heaven's Door with Tom Morello, during the 2015 MusiCares Person of the Year event, received high praise from Bob Dylan himself.
+---------
+
+# Ben Affleck’s 128-Minute Action Thriller Holds Strong Against U.S. Streaming Competition
+
+Movie News, Ben Affleck, Action, The Accountant, Hulu
+
+Sat, 07 Mar 2026 22:00:12 GMT
+
+https://collider.com/ben-affleck-action-thriller-the-accountant-streaming-success-hulu-march-2026/
+
+Ben Affleck's action thriller The Accountant is proving popular on U.S. streaming. Find out where to watch below.
+---------
+
+# Alexander Skarsgård’s 2 New A24 Movies Are a Must-Watch Comedic Masterclass
+
+Movie Features, Alexander Skarsgard, Pillion, The Moment, A24
+
+Sat, 07 Mar 2026 21:45:12 GMT
+
+https://collider.com/alexander-skarsgard-comedic-actor-the-moment-pillion-a24/
+
+With The Moment and Pillion, Alexander Skarsgård is proving that he’s a great comedic actor.
+---------
+
+# Joel Kinnaman’s $130 Million Sci-Fi Reboot That Divided Critics Gets a Shot at Redemption 12 Years Later
+
+Movie News, Joel Kinnaman, RoboCop, Gary Oldman, Michael Keaton
+
+Sat, 07 Mar 2026 21:40:12 GMT
+
+https://collider.com/joel-kinnaman-failed-sci-fi-franchise-starter-robocop-reboot-streaming-free-pluto-tv-march-2026/
+
+Joel Kinnaman's RoboCop reboot wasn't successful enough to launch a franchise; it's streaming for free this month. Find out more.
+---------
+
+# Apple TV's Expanding Sci-Fi Franchise Seems Built for 'The Expanse' Fans
+
+Features, For All Mankind, Upcoming Tease
+
+Sat, 07 Mar 2026 22:31:16 GMT
+
+https://movieweb.com/for-all-mankind-2026-expansion/
+
+With 'The Expanse's revival looking as unlikely as ever, Apple TV has provided a strikingly similar space opera as an alternative.
+---------
+
+# Alan Ritchson's 'War Machine' or Jack Reacher: Which Action Hero's Tougher?
+
+Features, Alan Ritchson, War Machine, Jack Reacher, Reacher
+
+Sat, 07 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/alan-ritchson-action-tougher-jack-reacher/
+
+Alan Ritchson pushes his tough-guy persona to the max in 'War Machine', giving Jack Reacher a run for his money.
+---------
+
 # Pokémon Just Got A Brand New LEGO Set Thanks To This Creative Fan
 
 Gaming, Pokemon, LEGO, Triple-A Games, Nintendo
