@@ -1,3 +1,289 @@
+# Pokémon Just Got A Brand New LEGO Set Thanks To This Creative Fan
+
+Gaming, Pokemon, LEGO, Triple-A Games, Nintendo
+
+Sat, 07 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/pokemon-lego-eevee-set-bidoof/
+
+While you might not get to see your favorite Pokémon officially brought to life in LEGO, creations like these are easily the next best thing.
+---------
+
+# Band Of Brothers Fans Will Love The Sound Of Tom Hanks' New WWII Project
+
+Streaming TV, Tom Hanks, Band of Brothers
+
+Sat, 07 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/tom-hanks-ww2-documentary-series-band-of-brothers-replacement/
+
+Tom Hanks is gearing up to release a massive WWII project that spans over 20 hours later this year, and Band of Brothers fans won’t want to miss it.
+---------
+
+# Ethan Hawke's The Lowdown Casts Betty Gilpin For Season 2
+
+TV, The Lowdown
+
+Sat, 07 Mar 2026 21:17:35 GMT
+
+https://screenrant.com/the-lowdown-season-2-betty-gilpin-cast-details/
+
+Ethan Hawke's hit FX drama series, The Lowdown, just found one of its newest stars for its highly anticipated second season.
+---------
+
+# 8 Dystopian TV Shows With Masterful World-Building & Character-Driven Stories
+
+Classic TV, Dark, Arcane, Cyberpunk: Edgerunners
+
+Sat, 07 Mar 2026 21:15:18 GMT
+
+https://screenrant.com/dystopian-tv-shows-perfect-from-start-to-finish/
+
+From post-apocalyptic worlds to alternate realities, these dystopian TV shows excel in crafting compelling stories and rich universes.
+---------
+
+# Timothée Chalamet’s Oscar Hopes Are Officially In Jeopardy As Backlash Escalates Over Ballet & Opera Comments
+
+Movies, Timothée Chalamet, Oscars
+
+Sat, 07 Mar 2026 21:02:25 GMT
+
+https://screenrant.com/timothee-chalamet-oscars-ballet-opera-comments-backlash/
+
+Timothée Chalamet's remarks about ballet and opera performances have ignited a fiery response, and his Oscar hopes are now in jeopardy.
+---------
+
+# 7 Episodes Of Batman: The Animated Series That Are Pure Horror
+
+Classic TV, Batman: The Animated Series
+
+Sat, 07 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/batman-the-animated-series-horror-episodes/
+
+Batman: The Animated Series is renowned for its dark and gritty tone, but these seven episodes took the show's unsettling content to new heights.
+---------
+
+# 6 Reasons To Drop The One Piece Anime And Read The Manga In 2026
+
+Anime, One Piece
+
+Sat, 07 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/one-piece-anime-better-manga-reasons-explained/
+
+Discover why now is the perfect time to transition from watching the One Piece anime to reading the manga.
+---------
+
+# Red Dead Redemption 3's Lead Character Has Gamers Divided
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 07 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-3s-lead-character-has-gamers-divided/
+
+Red Dead Redemption 3 might be light years away, but that hasn't stopped fans speculating on a potential protagonist.
+---------
+
+# A Blink-And-You-Missed-It Easter Egg In The Super Mario Galaxy Movie Subtly Teases Princess Daisy
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Sat, 07 Mar 2026 20:55:18 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-princess-daisy-emblem-tease/
+
+A blink-and-you-missed-it Easter egg in a clip for The Super Mario Galaxy Movie subtly teases Princess Daisy, indicating that she is out there.
+---------
+
+# Mortal Kombat 2 Hyped by Karl Urban as 'Best Video Game Adaptation' Ever
+
+Movies, Mortal Kombat II
+
+Sat, 07 Mar 2026 21:34:11 GMT
+
+https://www.cbr.com/mortal-kombat-2-karl-urban-best-video-game-adaptation/
+
+Johnny Cage actor Karl Urban makes a bold claim for the upcoming video game movie sequel.
+---------
+
+# Scrubs Season 11 Renewal Chances Addressed By Creator
+
+TV, Scrubs
+
+Sat, 07 Mar 2026 21:18:07 GMT
+
+https://www.cbr.com/scrubs-reboot-renewal-chances-bill-lawrence/
+
+The medical series returned to an unexpectedly exciting reception.
+---------
+
+# 10 Strongest Versions of Ichigo Kurosaki Across the Bleach Universe, Ranked
+
+Anime, Bleach
+
+Sat, 07 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/bleach-strongest-ichigo-kurosaki-form/
+
+Ichigo's strength stems from his hybrid background, being human, Shinigami, Hollow, and Quincy, which enables him to access many transformations.
+---------
+
+# Hulu’s Near-Perfect Original Movies
+
+Movies, Hulu, Prey, No One Will Save You
+
+Sat, 07 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/hulu-near-perfect-original-movie-list/
+
+Hulu has become known for its incredible original movies, with some even rivalling major blockbuster releases.
+---------
+
+# 10 DC Comics That Have Defined Its Characters
+
+Comics, DC Comics
+
+Sat, 07 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/character-defining-dc-comics-stories/
+
+DC Comics has so many iconic characters, and these stories are the ones that have defined them for decades.
+---------
+
+# 10 Movies From 1948 That Are Now Considered Classics
+
+Movie, The Treasure of the Sierra Madre, Classics, Rope, Letter from an Unknown Woman
+
+Sat, 07 Mar 2026 21:38:12 GMT
+
+https://collider.com/best-1948-movies-classics/
+
+Rope, Treasure of the Sierra Madre, and Letter from an Unknown Woman are all among the greatest movies from 1948 we now consider classics.
+---------
+
+# All 5 Hours of This Apple TV Sci-Fi Series Are a Perfect Weekend Binge From Start to Finish
+
+TV Features, Murderbot, Alexander Skarsgard, Apple TV, Sci-Fi
+
+Sat, 07 Mar 2026 21:33:12 GMT
+
+https://collider.com/murderbot-apple-tv-sci-fi-episodes-perfect-start-to-finish/
+
+Murderbot, featuring a cyborg bodyguard played by Alexander Skarsgård, is one of Apple TV's most groundbreaking sci-fi comedy series.
+---------
+
+# 10 Western Masterpieces Better Than 'Tombstone'
+
+Movie, Unforgiven, The Searchers, The Good, the Bad and the Ugly, Tombstone
+
+Sat, 07 Mar 2026 21:29:12 GMT
+
+https://collider.com/western-masterpieces-better-than-tombstone/
+
+Tombstone is undoubtedly a brilliant Western classic worthy of acclaim, but timeless masterpieces like The Searchers and Unforgiven far surpass it.
+---------
+
+# 10 Near-Perfect Crime Movies That No One Remembers Today
+
+Movie, Crime, Outlaw: Gangster VIP, Armored Car Robbery, Dillinger
+
+Sat, 07 Mar 2026 21:20:12 GMT
+
+https://collider.com/near-perfect-crime-movies-no-one-remembers-today/
+
+Plenty of great crime movies aren't particularly well-known or remembered, including the likes of Massacre Gun, Dillinger, and Outlaw: Gangster VIP.
+---------
+
+# 3 Months Later, Disney’s $35 Million Failure Barely Clings to Streaming Charts
+
+Movie News, Disney, Ella McCay, Disney+, Jamie Lee Curtis
+
+Sat, 07 Mar 2026 21:20:12 GMT
+
+https://collider.com/disney-biggest-commercial-failure-2025-ella-mccay-streaming-hulu-march-2026/
+
+Disney's biggest commercial failure of 2025, Ella McCay, is barely clinging to its position in the U.S. streaming charts. Read on for details.
+---------
+
+# Now Is the Perfect Time To Binge Netflix’s 10/10 Sci-Fi Thriller Ahead of Its 2026 Return
+
+TV Features, 3 Body Problem, Science Fiction, Netflix, Streaming
+
+Sat, 07 Mar 2026 21:14:12 GMT
+
+https://collider.com/3-body-problem-netflix-season-2-2026/
+
+Now is the perfect time to binge Netflix’s ambitious sci-fi series 3 Body Problem before the story continues with its highly anticipated 2026 return.
+---------
+
+# HBO Max's Top 10 Officially Made This American Crime Series Your New Streaming Obsession
+
+TV Features, HBO Max, Memory of a Killer, Patrick Dempsey, Crime
+
+Sat, 07 Mar 2026 21:12:12 GMT
+
+https://collider.com/memory-of-a-killer-hbo-max-top-10-streaming-worldwide/
+
+This week, Patrick Dempsey's FOX crime drama Memory of a Killer cracked HBO Max's Top 10 worldwide, making it a stellar binge.
+---------
+
+# 10 Most Perfect Fantasy Movies of the 20th Century, Ranked
+
+Movie, The Wizard of Oz, It's a Wonderful Life, The Seventh Seal, Sleeping Beauty
+
+Sat, 07 Mar 2026 21:12:12 GMT
+
+https://collider.com/most-perfect-fantasy-movies-20th-century-ranked/
+
+The Wizard of Oz, It's a Wonderful Life, and Sleeping Beauty are all among the very best and most perfect 20th century fantasy movies.
+---------
+
+# Netflix’s 2-Part Fantasy Epic Was a Failed ‘Game of Thrones’ Replacement
+
+TV Features, Shadow and Bone, Netflix, Jessie Mei Li, Ben Barnes
+
+Sat, 07 Mar 2026 21:06:12 GMT
+
+https://collider.com/netflix-shadow-and-bone-fantasy-game-of-thrones-replacement/
+
+Netflix's fantasy series, Shadow and Bone, offered a unique take on the genre but was cancelled after just two seasons, leaving fans wanting more.
+---------
+
+# 10 Oscar-Nominated Roles That Resurrected Actors' Careers
+
+Movie, The Substance, Oscars, Actors, Katharine Hepburn
+
+Sat, 07 Mar 2026 21:06:12 GMT
+
+https://collider.com/oscar-nominated-roles-resurrected-actors-careers/
+
+Substantial performances that caught the Academy's attention.
+---------
+
+# 'Lara Croft: Tomb Raider' Surges on Streaming Before Prime Video Reboot
+
+Movie News, Lara Croft: Tomb Raider, Hot on Streaming, Action
+
+Sat, 07 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/lara-croft-tomb-raider-streaming-tubi-march-2026/
+
+Ahead of Prime Video's small screen reboot of the beloved franchise, Angelina Jolie's original movie has found new life on Tubi.
+---------
+
+# 'The Craft' Is an Underrated '90s Movie That Keeps Getting Better
+
+Features, The Craft, Comparison Recommendation
+
+Sat, 07 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/the-craft-underrated-1990s-horror-movie/
+
+'The Craft' is an underrated horror movie released in 1996, the same year as 'Scream,' starring Neve Campbell and Skeet Ulrich.
+---------
+
 # Prime Video's Critical Role Adaptations: A Fantasy Franchise That Could Last Forever
 
 Streaming TV, Critical Role
