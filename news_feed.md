@@ -1,3 +1,14 @@
+# Disney’s Lord Of The Rings Fantasy Series Replacement Is Changing Network TV In A Bizarre Way
+
+Network TV, Eragon, High Potential
+
+Sat, 07 Mar 2026 06:52:18 GMT
+
+https://screenrant.com/disney-eragon-changes-network-tv/
+
+As Disney's new fantasy series that could start a franchise enters active development, it unexpectedly changes the state of network TV moving forward.
+---------
+
 # Steam Drops Free Zombie Survival Game You Can Download And Keep Forever
 
 Gaming, Steam, PC, Indie
