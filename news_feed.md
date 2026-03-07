@@ -1,3 +1,212 @@
+# Ghostbusters 6 Gets An Update From Star, Two Years After Frozen Empire's Underwhelming Box Office
+
+Movies, Ghostbusters 6, Ghostbusters, Mckenna Grace
+
+Sat, 07 Mar 2026 18:52:39 GMT
+
+https://screenrant.com/ghostbusters-6-status-update-mckenna-grace/
+
+A Ghostbusters franchise star provides an update on the potential sixth movie two years after Frozen Empire's underwhelming box office performance.
+---------
+
+# Prime Video's 2-Part Post-Apocalyptic Series Is One Of Its Best
+
+Streaming TV, Fallout
+
+Sat, 07 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/prime-video-fallout-best-post-apocalyptic-series/
+
+The Fallout TV series had a difficult task ahead, adapting an enormously popular video game, but it is one of the best dystopian shows on Prime Video
+---------
+
+# PlayStation Drops 6 New Free Downloads You Can Try Now Without PS Plus
+
+Gaming, PlayStation (Original)
+
+Sat, 07 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/playstation-free-ps5-downloads-no-ps-plus/
+
+Discover 6 exciting upcoming PlayStation games available to try for free, including Under the Island, Mega Carrier Simulator, and more.
+---------
+
+# 10 Must-Watch Upcoming Fantasy TV Shows
+
+Streaming TV, Fantasy
+
+Sat, 07 Mar 2026 18:01:18 GMT
+
+https://screenrant.com/upcoming-fantasy-shows-you-cannot-miss/
+
+From a new Star Wars cartoon to a remake of The Human Vapor, there are a ton of exciting fantasy shows in the pipeline for the coming months.
+---------
+
+# John Wick Meets Uncharted In Brutal New 2026 Single-Player Game
+
+Gaming, John Wick, Uncharted, Steam
+
+Sat, 07 Mar 2026 18:01:18 GMT
+
+https://screenrant.com/john-wick-uncharted-new-single-player-rpg/
+
+Discover the gritty action of Blackwood, where a DVD store owner by day becomes a deadly assassin by night, blending cover shooting and martial arts.
+---------
+
+# Taylor Sheridan's First Western Series Is The Total Opposite Of The Yellowstone Franchise
+
+TV, Dr. Quinn, Medicine Woman, Taylor Sheridan
+
+Sat, 07 Mar 2026 17:55:19 GMT
+
+https://screenrant.com/dr-quinn-taylor-sheridan-first-western-series-yellowstone-opposite/
+
+Decades before creating the Yellowstone saga, Taylor Sheridan made his Western debut in a classic 1990s series that's the opposite of his own work.
+---------
+
+# Scream 7 Box Office Brutally Crashes With Franchise's Worst Week 2 Drop
+
+Movies, Box Office, Scream, Scream 7
+
+Sat, 07 Mar 2026 17:49:46 GMT
+
+https://screenrant.com/scream-7-box-office-week-2-domestic-drop-franchise-comparison/
+
+Although it had the best domestic debut of the entire franchise, Scream 7 is hit with a similarly record-breaking drop in its sophomore weekend.
+---------
+
+# The 10 Best Scarlet & Violet Era Pokémon TCG Sets, Ranked
+
+Games, Pokemon Trading Card Game
+
+Sat, 07 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/every-scarlet-violet-era-pokemon-tcg-set-ranked/
+
+These are the 10 greatest Pokémon TCG sets from the Scarlet & Violet era.
+---------
+
+# Alan Ritchson's War Machine Tops Netflix Streaming Charts After Just 1 Day
+
+Movies, War Machine
+
+Sat, 07 Mar 2026 18:03:10 GMT
+
+https://www.cbr.com/war-machine-netflix-streaming-success-march-2026/
+
+Reacher star Alan Ritchson's new movie has become an instant hit.
+---------
+
+# Steam Users Can Claim Free Pirate Game Until March 9
+
+Games, Steam
+
+Sat, 07 Mar 2026 17:45:12 GMT
+
+https://www.cbr.com/steam-free-game-march-2026-limited-time-crowalt/
+
+A pirate adventure game is 100% free on Steam for a limited time.
+---------
+
+# This 5-Star Historical Thriller Is the Smartest War Movie Since ‘Schindler’s List’
+
+Movie News, The Zone of Interest, Sandra Hüller, World War II, Jonathan Glazer
+
+Sat, 07 Mar 2026 18:40:12 GMT
+
+https://collider.com/zone-of-interest-most-harrowing-ww2-movie-streaming-free-pluto-tv-march-2026/
+
+One of the most harrowing World War II movies ever made, The Zone of Interest, is streaming on a new platform this month. Find out more.
+---------
+
+# 10 Most Groundbreaking Movies of the Last 10 Years
+
+Movie, Black Panther, Parasite, Roma, Oppenheimer
+
+Sat, 07 Mar 2026 18:28:12 GMT
+
+https://collider.com/most-groundbreaking-movies-last-10-years-ranked/
+
+Movies like Black Panther and The Shape of Water proved incredibly influential over the last ten years, reshaping modern filmmaking sensibilities.
+---------
+
+# 7 Days Before ‘The Madison’ Premieres, Watch Kurt Russell’s Most Brutal 168-Minute Western
+
+Movie News, The Hateful Eight, Kurt Russell, The Madison, Quentin Tarantino
+
+Sat, 07 Mar 2026 18:20:12 GMT
+
+https://collider.com/kurt-russell-western-sleeper-hit-the-hateful-eight-quentin-tarantino-streaming-success-prime-video-apple-tv-march-2026/
+
+Before The Madison arrives, Kurt Russell starred in Quentin Tarantino's brutal 168-minute Western that's dominating streaming. Read on for more.
+---------
+
+# 8 Most Violent Musical Movies of All Time, Ranked
+
+Movie, Sweeney Todd: The Demon Barber of Fleet Street, Repo! The Genetic Opera, South Park: Bigger, Longer & Uncut, Phantom Of The Paradise
+
+Sat, 07 Mar 2026 18:09:12 GMT
+
+https://collider.com/most-violent-musical-movies-all-time-ranked/
+
+Musicals aren't usually known for their violence, but some are, like Sweeney Todd: The Demon Barber of Fleet Street and Repo! The Genetic Opera.
+---------
+
+# 11 Years Later, A24’s Cerebral Sci-Fi Thriller Becomes a Free Streaming Cult Classic
+
+Movie News, Ex Machina, Alex Garland, Oscar Isaac, Domhnall Gleeson
+
+Sat, 07 Mar 2026 18:01:12 GMT
+
+https://collider.com/ex-machina-a24-cerebral-sci-fi-thriller-streaming-free-pluto-march-2026/
+
+More than a decade later, Alex Garland's Ex Machina remains the most cerebral sci-fi movie that A24 has released; it's now streaming for free.
+---------
+
+# Hulu's Underrated Hard Sci-Fi Cyberpunk Series 'Heavenly Delusion' Is a 10/10 Masterpiece
+
+Features, Heavenly Delusion, Hulu, Streaming Recommendations, Sci-Fi
+
+Sat, 07 Mar 2026 18:30:17 GMT
+
+https://movieweb.com/heavenly-delusion-best-sci-fi-streaming-hulu/
+
+Hulu subscribers can binge watch the best modern sci-fi post-apocalyptic series, 'Heavenly Delusion,' in a single day.
+---------
+
+# This 'Scrubs' Character Perfectly Foreshadowed Another Bill Lawrence Show 18 Years Before It Released
+
+Features, Scrubs, Shrinking
+
+Sat, 07 Mar 2026 18:30:17 GMT
+
+https://movieweb.com/scrubs-character-foreshadowed-another-bill-lawrence-show/
+
+This easily-missed moment from 'Scrubs' actually reveals that Bill Lawrence's TV shows are more connected than audiences might realize.
+---------
+
+# 'Iron Man' Star Terrence Howard Alleges New Reason for Disney Firing
+
+Movie News, Terrence Howard, Iron Man
+
+Sat, 07 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/terrence-howard-disney-firing-threat/
+
+Shortly before the release of 'Iron Man', Terrence Howard threatened producer Joel Silver, who happened to be Susan Downey's producing partner.
+---------
+
+# 'The Last of Us' Season 3: Confirmation, Release Window, & Everything We Know
+
+Features, The Last of Us
+
+Sat, 07 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/the-last-of-us-season-3-everything-we-know/
+
+HBO's acclaimed adaptation of the video game series is gearing up for another run, but what will 'The Last of Us' Season 3 look like?
+---------
+
 # Steam Machine Release Window Update Is Music To Our Ears
 
 Gaming, Steam, Triple-A Games, PC
