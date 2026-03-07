@@ -1,3 +1,58 @@
+# Game Of Thrones Fans Unite Around New Open World RPG
+
+Gaming
+
+Sat, 07 Mar 2026 10:00:19 GMT
+
+https://screenrant.com/game-of-thrones-open-world-rpg-fan-reaction/
+
+Game of Thrones fans have been burned by video game adaptations before, but there's strong consensus over a new open-world ASOIF RPG.
+---------
+
+# GTA 6 PS4 Version Leaves Gamers Torn, And We Can See Why
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Sat, 07 Mar 2026 10:00:19 GMT
+
+https://screenrant.com/gta-6-ps4-version-leak-gamer-reaction/
+
+A Sony leak has revealed what appears to be a PlayStation 4 version of Grand Theft Auto 6, and fans aren't sure what to think about it.
+---------
+
+# Evangelion Accidentally Leaked Its New 30th Anniversary Anime – So Now It’s Releasing It for Free
+
+Anime, Neon Genesis Evangelion
+
+Sat, 07 Mar 2026 09:54:51 GMT
+
+https://www.cbr.com/evangelion-30th-anniversary-anime-free-streaming-march-2026/
+
+The studio behind Neon Genesis Evangelion is officially releasing its new 30th-anniversary anime for free after accidentally leaking it online.
+---------
+
+# 10 Fastest-Paced Thriller Movies of All Time, Ranked
+
+Movie, Thriller, Snowpiercer, The Bourne Ultimatum, Taken
+
+Sat, 07 Mar 2026 10:46:12 GMT
+
+https://collider.com/fastest-paced-thriller-movies-all-time-ranked/
+
+From Heat to Mad Max: Fury Road and The Bourne Ultimatum, these pulse-pounding thrillers redefine nonstop tension and urgency.
+---------
+
+# 25 Greatest Deserted Island Movies, Ranked
+
+Movie, Adventure, Cast Away, Isle of Dogs, The Red Turtle
+
+Sat, 07 Mar 2026 10:17:12 GMT
+
+https://collider.com/best-deserted-island-movies-ranked/
+
+Getting stuck on a desert island does not sound ideal, but movies like Cast Away, The Red Turtle, and The Beach make for great movie nights.
+---------
+
 # Disney’s Lord Of The Rings Fantasy Series Replacement Is Changing Network TV In A Bizarre Way
 
 Network TV, Eragon, High Potential
