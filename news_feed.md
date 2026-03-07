@@ -1,3 +1,388 @@
+# Netflix's New Jurassic Park Replacement From Steven Spielberg Debuts To Perfect Rotten Tomatoes Score
+
+TV, The Dinosaurs, Netflix, Documentary
+
+Sat, 07 Mar 2026 04:32:41 GMT
+
+https://screenrant.com/the-dinosaurs-show-rotten-tomatoes-score-debut-steven-spielberg-netflix/
+
+Steven Spielberg's new Netflix series about dinosaurs debuts to a perfect Rotten Tomatoes score, as viewers wait for more Jurassic Park.
+---------
+
+# Superman’s Most Powerful Form Of All Time Comes From A Major Villain Death
+
+Comics, Superman, DC Comics
+
+Sat, 07 Mar 2026 04:30:55 GMT
+
+https://screenrant.com/superman-most-powerful-form-of-all-time-doomsday-sacrifice-dc-ko/
+
+Although Superman just received his most powerful form of all time in the DC Universe, it's all thanks to the death of a major supervillain.
+---------
+
+# Donnie Wahlberg Confirms Marisa Ramirez's Boston Blue Season 2 Fate
+
+TV, Boston Blue
+
+Sat, 07 Mar 2026 04:03:26 GMT
+
+https://screenrant.com/donnie-wahlberg-marisa-ramirez-boston-blue-season-2/
+
+Donnie Wahlberg may have just confirmed the fate of Marisa Ramirez's character Maria Baez in Boston Blue season 2.
+---------
+
+# This Shocking Anakin Skywalker Prequel Trilogy Detail Foreshadows Ahsoka Nearly A Decade Before Her Debut
+
+Movies, Anakin Skywalker/Darth Vader, Ahsoka Tano
+
+Sat, 07 Mar 2026 03:50:19 GMT
+
+https://screenrant.com/star-wars-anakin-skywalker-ahsoka-tano-podracer/
+
+One subtle detail in Star Wars: Episode I - The Phantom Menace has a shocking connection to Anakin Skywalker's Jedi Padawan, Ahsoka Tano.
+---------
+
+# Monsters Inc. 3 Reportedly In Development At Pixar
+
+Movies, Monsters, Inc.
+
+Sat, 07 Mar 2026 03:23:31 GMT
+
+https://screenrant.com/monsters-inc-3-officially-in-development-pixar/
+
+Monsters Inc. 3 could be on its way to movie screens everywhere as the iconic franchise's sequel is now reportedly in development at Pixar.
+---------
+
+# Jack Reacher’s Sherlock Inspiration Makes Sense After New Prime Video Show
+
+Streaming TV, Reacher, Young Sherlock, Prime Video
+
+Sat, 07 Mar 2026 03:00:31 GMT
+
+https://screenrant.com/jack-reacher-young-sherlock-inspiration/
+
+Lee Child drew inspiration from Sherlock Holmes when he first wrote the Jack Reacher books, which makes even more sense after Prime Video’s new show.
+---------
+
+# Pixar's Incredibles 3 Finally Gets A New Release Window
+
+TV, Incredibles 3
+
+Sat, 07 Mar 2026 02:46:33 GMT
+
+https://screenrant.com/incredibles-3-new-release-window/
+
+Pixar's Incredibles 3 finally receives a new release window nearly three decades after the debut of the first film in 2004.
+---------
+
+# 10 Thrilling Anime So Good They Made Fans Root For The Bad Guys
+
+Anime
+
+Sat, 07 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/best-anime-root-bad-guys/
+
+These anime series execute moral dilemmas a little too well, to the point where villains start to look like the heroes
+---------
+
+# All 6 Live-Action Green Lantern Costumes, Ranked By Comics Accuracy
+
+Superheroes, Lanterns, DC Universe
+
+Sat, 07 Mar 2026 02:15:55 GMT
+
+https://screenrant.com/green-lantern-movie-tv-costumes-ranked-comics-accuracy/
+
+The newest Green Lantern costume has caused some controversy, so here's our ranking of all the major live-action suits based on comicbook accuracy.
+---------
+
+# Louis Theroux Explores Toxic Masculinity In New Netflix Documentary
+
+TV, Adolescence
+
+Sat, 07 Mar 2026 02:01:18 GMT
+
+https://screenrant.com/inside-the-manosphere-netflix-adolescence-toxic-masculinity/
+
+Just as Adolescence got everyone talking about toxic masculinity in spring 2025, Theroux's new Netflix documentary could well do the same this year.
+---------
+
+# After The Evil Dead, Bruce Campbell’s Horror Legacy is Still Unmatched
+
+Movies, The Evil Dead, Horror
+
+Sat, 07 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/bruce-campbell-the-evil-dead-horror-legacy-no-equal/
+
+Bruce Campbell's legacy in horror goes far beyond The Evil Dead, and it's helped make him an one-of-a-kind icon.
+---------
+
+# Netflix's The Abandons Is a Modern Western That Deserves Recognition
+
+TV, Western, Netflix, The Abandons
+
+Sat, 07 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/netflix-the-abandons-modern-western-classic/
+
+Supported by a strong cast, early setup, and a lack of excess, this Western show's one season was enough to live on as a modern classic.
+---------
+
+# The Strongest Naruto Characters From Every Era, Ranked
+
+Anime, Naruto, Naruto: Shippuden
+
+Sat, 07 Mar 2026 04:45:12 GMT
+
+https://www.cbr.com/naruto-strongest-characters-every-era-ranked/
+
+Naruto's harsh shinobi world breeds new generations of stronger and stronger fighters with every era, but only one can be the strongest.
+---------
+
+# Why Sherlock and Moriarty’s Origins Are So Painful in Young Sherlock
+
+CBR Exclusives, Young Sherlock
+
+Sat, 07 Mar 2026 04:40:28 GMT
+
+https://www.cbr.com/young-sherlock-hero-fiennes-tiffin-donal-finn-interview/
+
+Hero Fiennes Tiffin and Donal Finn reflect on stepping into the young versions of the iconic characters for the Prime Video series.
+---------
+
+# Final Fantasy 7 Remake Part 3 Returning to Wutai & Rocket Town
+
+Games, Final Fantasy 7 Remake
+
+Sat, 07 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/final-fantasy-7-remake-part-3-update-rocket-town/
+
+The Director of Final Fantasy 7 Remake Part 3 has confirmed that certain iconic locations that were skipped in Rebirth will appear in the game.
+---------
+
+# The Great God Pan Shaped Lovecraft But Still Has No Movie Adaptation
+
+Movies, Horror, H.P. Lovecraft
+
+Sat, 07 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/horror-story-shaped-lovecraft-the-great-god-pan-no-movie-adaptation/
+
+The Great God Pan by Arthur Machen is a profound horror story that inspired Lovecraft, and yet it's never gotten the big-screen treatment.
+---------
+
+# Anne Rice’s 3-Part Gothic Series Created the Lore Blueprint for Supernatural’s Monster Rules
+
+TV, Interview with the Vampire, Supernatural, Horror
+
+Sat, 07 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/anne-rice-interview-with-a-vampire-created-supernatural-lore-blueprint/
+
+Anne Rice changed the face of Southern Gothic fiction forever, and supernatural series still feels its effects today.
+---------
+
+# Taylor Sheridan's Yellowstone: Tate Dutton's Redeemed Character in Marshals
+
+TV, Marshals, Yellowstone
+
+Sat, 07 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/cbs-marshals-yellowstone-tate-dutton-upgrade/
+
+A CBS Yellowstone spinoff, Marshals, fixes one of the original show’s most wasted characters, adding grief, conflict, and real stakes in the premiere.
+---------
+
+# Disney, Netflix & Crunchyroll Leave Anime's Most Underrated '90s Fantasy Show Trapped in Licensing Hell
+
+Anime, Sorcerous Stabber Orphen, Streaming, HIDIVE
+
+Sat, 07 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/orphen-first-anime-licensing-hell-march-2026/
+
+Every major U.S. streaming service is leaving one of the most underrated anime series of all time in the realm of Licensing Hell at the end of March.
+---------
+
+# Crunchyroll’s Newest Dark Fantasy Anime Is Already the Best New Series of 2026
+
+Anime, Sentenced to Be a Hero, Fantasy, Crunchyroll
+
+Sat, 07 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/crunchyroll-best-new-fantasy-anime-2026-sentenced-to-be-hero/
+
+In a year that's been full of exciting fantasy anime, Sentenced to Be a Hero sets new standard with its dark, subversive take on genre staples.
+---------
+
+# Netflix Has a 7-Part Horror Miniseries ‘From’ Fans Need To Watch Next
+
+TV Features, From, Midnight Mass, Netflix, Mike Flanagan
+
+Sat, 07 Mar 2026 04:32:12 GMT
+
+https://collider.com/midnight-mass-netflix-miniseries-from-fans-need-to-watch-next/
+
+Netflix's seven-episode miniseries, Midnight Mass from Mike Flanagan, remains one of the best shows on the streamer.
+---------
+
+# Netflix’s 8-Part Sci-Fi Masterpiece Turns 1 Moment Into Streaming’s Hardest Watch
+
+TV Features, The Fall of the House of Usher, Netflix, Mike Flanagan, Carla Gugino
+
+Sat, 07 Mar 2026 04:14:13 GMT
+
+https://collider.com/the-fall-of-the-house-of-usher-party-scene-meaning/
+
+The Fall of the House of Usher brought Edgar Allan Poe into the modern era in a series that is not for the faint of heart.
+---------
+
+# This Is the Mount Rushmore of Slasher Movies
+
+Movie, Psycho, The Texas Chain Saw Massacre, Halloween, Scream
+
+Sat, 07 Mar 2026 04:09:13 GMT
+
+https://collider.com/best-slasher-movies-mount-rushmore/
+
+All-time horror classics like Psycho and Halloween are among the four best and most important slasher movies ever made.
+---------
+
+# In Just 2 Weeks, Netflix’s Near-Perfect Binge Thriller Surged To 80.8M Hours Watched
+
+TV Features, The Lincoln Lawyer, Manuel Garcia-Rulfo, Neve Campbell, Netflix
+
+Sat, 07 Mar 2026 04:00:13 GMT
+
+https://collider.com/the-lincoln-lawyer-season-4-netflix-thriller-80m-hours-watched/
+
+The Lincoln Lawyer captured 80.8 million hours watched in just two weeks with its Season 4 return on Netflix.
+---------
+
+# Now’s the Time To Binge Netflix’s Brutal 8-Part Thriller Ahead of Its 2026 Return
+
+TV Features, Bloodhounds, Netflix, Action, Thriller
+
+Sat, 07 Mar 2026 02:52:12 GMT
+
+https://collider.com/netflix-thriller-kdrama-bloodhounds-weekend-binge/
+
+Netflix's violent Bloodhounds is an 8-episode K-drama thriller with brutal action, big heart, and one of the streamer's best weekend binges.
+---------
+
+# Netflix’s 8-Part Harlan Coben Miniseries Is Still an Undisputed Classic
+
+TV Features, Netflix, Stay Close, Harlan Coben, Fool Me Once
+
+Sat, 07 Mar 2026 02:34:12 GMT
+
+https://collider.com/netflix-harlan-coben-miniseries-stay-close-classic/
+
+The Harlan Coben miniseries Stay Close on Netflix is a twisted, unexpected thriller that’ll have you gripped until the very end.
+---------
+
+# Boo! Pixar Shocks Fans With the Announcement of 'Monsters Inc. 3'
+
+Movie News, Monsters Inc., Monsters University, Monsters At Work, Pixar
+
+Sat, 07 Mar 2026 02:12:46 GMT
+
+https://collider.com/monsters-inc-3-confirmed-pixar-incredible-3-coco-2-release-years/
+
+With Toy Story 5 on the horizon, Pixar is now prepping a return to Monstropolis with a third Monster's Inc. movie.
+---------
+
+# 10 Best Netflix Miniseries of All Time, Ranked
+
+TV, Netflix, Adolescence, The Queen's Gambit, When They See Us
+
+Sat, 07 Mar 2026 01:27:12 GMT
+
+https://collider.com/best-netflix-miniseries-ranked/
+
+Dive into the best Netflix miniseries ever made, ranked by storytelling, performances, and cultural impact, from Adolescence to The Queen's Gambit.
+---------
+
+# 1 Year After Ending, Taylor Sheridan's Best 'Yellowstone' Spin-Off Dominates Streaming as Divisive Sequel Debuts
+
+TV News, 1923, Taylor Sheridan, Brandon Sklenar, Helen Mirren
+
+Sat, 07 Mar 2026 00:59:38 GMT
+
+https://collider.com/1923-taylor-sheridan-the-godfather-replacement-streaming-success-itunes-march-2026/
+
+Taylor Sheridan's epic two-season neo-Western series 1923 is aging like fine wine on streaming as Marshals divides Yellowstone fans. Find out more.
+---------
+
+# 28 Years Later, Ben Affleck's Cult Classic Sci-Fi Actioner Explodes on Streaming Charts
+
+Movie News, Armageddon, Ben Affleck, Bruce Willis, Michael Bay
+
+Sat, 07 Mar 2026 00:54:21 GMT
+
+https://collider.com/ben-affleck-90s-sci-fi-classic-armageddon-streaming-success-tubi-march-2026/
+
+Ben Affleck's classic '90s sci-fi blockbuster Armageddon is getting serious attention on streaming 2 decades later. Find out more.
+---------
+
+# 10 Most Explosive Action Thriller Shows for the Perfect Weekend Binge
+
+TV Lists, Action
+
+Sat, 07 Mar 2026 03:00:30 GMT
+
+https://movieweb.com/best-action-thriller-shows-weekend-binge/
+
+From 'Reacher' to 'Bodyguard,' these action thriller TV shows will be the perfect entertainment over a single weekend.
+---------
+
+# 'The Bride!' Ending, Explained
+
+Features, Maggie Gyllenhaal, The Bride!, Bride of Frankenstein
+
+Sat, 07 Mar 2026 02:52:16 GMT
+
+https://movieweb.com/the-bride-ending-explained/
+
+Maggie Gyllenhaal's quasi-adaptation of 'The Bride of Frankenstein' takes the monster mash to a whole new level.
+---------
+
+# 'GOAT' Passes 'Rocky' Box Office Domestically
+
+Movie News, GOAT, Rocky, Box Office Milestones
+
+Sat, 07 Mar 2026 02:00:17 GMT
+
+https://movieweb.com/goat-movie-box-office-rocky/
+
+The animated basketball outing managed to overcome one of the greatest sports dramas of all time.
+---------
+
+# 8 Near-Perfect Netflix Miniseries With One Enormous Fatal Flaw
+
+TV Lists, TV Miniseries, Adolescence
+
+Sat, 07 Mar 2026 01:00:19 GMT
+
+https://movieweb.com/netflix-miniseries-almost-perfect/
+
+Netflix has some fantastic miniseries, including Mike Flanagan's 'The Fall of the House of Usher,' but they're not quite perfect.
+---------
+
+# Hulu's New True Crime Docuseries About Skylar Neese Is Heartbreaking
+
+Features, Hulu, True Crime
+
+Sat, 07 Mar 2026 00:00:16 GMT
+
+https://movieweb.com/true-crime-lovers-cant-miss-heartbreaking-friends-like-these-skylar-neese/
+
+Skylar Neese was a sweet 16-year-old who found herself the victim of a quieter type of bullying that turned ferociously evil.
+---------
+
 # What Really Happened To Faith Fraser? Outlander Season 8 Answers Explained
 
 Streaming TV, Outlander, Outlander - Season 8
