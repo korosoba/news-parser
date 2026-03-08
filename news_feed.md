@@ -1,3 +1,267 @@
+# Unreleased Star Wars Animated Series: The Untold Story of Detours
+
+Streaming TV, Star Wars
+
+Sun, 08 Mar 2026 23:45:20 GMT
+
+https://screenrant.com/star-wars-detours-animated-show-never-released-lucasfilm/
+
+Discover the untold story of Star Wars Detours, an animated series that was canceled despite completing 39 episodes. Explore the reasons behind its cancellation and why it remains unreleased to this day.
+---------
+
+# Rob Reiner's Stephen King Horror With 86% On Rotten Tomatoes Is Back On Netflix After 5 Years
+
+Streaming TV, Misery
+
+Sun, 08 Mar 2026 23:42:27 GMT
+
+https://screenrant.com/mystery-rob-reiner-stephen-king-horror-movie-netflix-streaming/
+
+Rob Reiner only made one horror movie during his career, but it just happens to be one of the best Stephen King adaptations ever rendered onscreen.
+---------
+
+# The Boys Season 5's Supernatural Reunion Is Doing Dean & Castiel In Reverse
+
+Streaming TV, The Boys
+
+Sun, 08 Mar 2026 23:37:18 GMT
+
+https://screenrant.com/the-boys-season-5-supernatural-reunion-dean-castiel-reverse/
+
+The final trailer of the fifth season of Amazon Prime’s hit superheroes series, The Boys, has been released, and it includes a Supernatural reunion.
+---------
+
+# 10 Riverdale Moments That Prove It Was The Most Unhinged TV Show Of All Time
+
+Classic TV, Riverdale
+
+Sun, 08 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/riverdale-moments-unhinged-tv-show/
+
+The teen drama Riverdale progressively got more and more outlandish, and these 10 moments prove it's the most unhinged TV show of all time.
+---------
+
+# One Piece Finally Reveals Imu's Biggest Weakness, But Exploiting It Is Seriously Dark
+
+Anime, One Piece, One Piece (1997)
+
+Sun, 08 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/one-piece-imu-weakness-domi-reversi-dark/
+
+One Piece reveals a game-changing loophole in Imu's demonic curse. But exploiting this weakness comes with a heavy price.
+---------
+
+# 7 Worst Superhero Resurrections In Comic History, Ranked
+
+Marvel Comics, Marvel, DC Comics
+
+Sun, 08 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/worst-superhero-resurrection-all-time/
+
+Comic book deaths are rarely permanent, but some Marvel and DC characters' returns are special in how they undermine the impact of their own demise.
+---------
+
+# The 10 Best Modern Reimaginations Of Classic Horror Movie Monsters
+
+Classic Movies, The Bride!, Ranking
+
+Sun, 08 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/best-modern-reimagination-classic-horror-monster-movies/
+
+There have been some incredible re-imaginings of classic horror movies over the years, and here are the best of the best new versions of horror.
+---------
+
+# 86 Years Later, DC Unveils The Joker’s Scariest Form of All Time, and Batman isn’t Prepared
+
+Comics, Batman
+
+Sun, 08 Mar 2026 23:01:32 GMT
+
+https://screenrant.com/batman-joker-sane-crown-storms-villain/
+
+The Joker's creepiest self has just materialized in Batman's main comic book run, which has the potential for the best Joker story in decades.
+---------
+
+# Dragon Ball’s New Anime Can Finally Fix Super Saiyan 4’s One Fatal Flaw
+
+Anime, Dragon Ball
+
+Sun, 08 Mar 2026 23:01:18 GMT
+
+https://screenrant.com/dragon-ball-new-anime-super-saiyan-4-flaw-fix-canon-introduction/
+
+Dragon Ball Super: Beerus is bringing back the first arc of Dragon Ball Super, and it has a rare opportunity to fix a major issue.
+---------
+
+# 10 Best RPG Sequels Of All Time
+
+Gaming, RPG, Triple-A Games
+
+Sun, 08 Mar 2026 23:01:18 GMT
+
+https://screenrant.com/best-rpg-sequels-all-time/
+
+Roleplaying games often seem destined to produce numerous sequels, and the subsequent iteration regularly leads to genre masterpieces emerging.
+---------
+
+# CTW Cayman CEO Ryuichi Sasaki Discusses the Rise of Anime Browser Games
+
+CBR Exclusives, Anime
+
+Sun, 08 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/ctw-cayman-ryuichi-sasaki/
+
+Following a big 2025 for CTW Cayman, company CEO Ryuichi Sasaki sits down with CBR to discuss his vision for the future of anime gaming.
+---------
+
+# Ghostbusters Actress Jennifer Runyon Dies at 65
+
+TV, Ghostbusters, obituary
+
+Sun, 08 Mar 2026 23:28:33 GMT
+
+https://www.cbr.com/jennifer-runyon-dead/
+
+Beloved Ghostbusters and Murder She Wrote actress and Charles in Charge star Jennifer Runyon tragically passes away at the age of 65
+---------
+
+# 10 Anime That Would Have Been Way Better From the Villains' Perspective
+
+Anime, anime villains
+
+Sun, 08 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/anime-villains-better-protagonists/
+
+Anime like My Hero Academia and Demon Slayer would become far more interesting if the focus shifted to the antagonists.
+---------
+
+# Fire Country Rises on Streaming Amid Creative Shakeup
+
+TV, CBS, Fire Country
+
+Sun, 08 Mar 2026 23:01:12 GMT
+
+https://www.cbr.com/cbs-fire-country-streaming-success-march-2026/
+
+The hit drama series is catching fire on streaming following a creative shakeup behind the scenes.
+---------
+
+# Tim Burton's Beetlejuice Beetlejuice Has a New Resurgence on the Global Netflix Charts
+
+Movies, Beetlejuice Beetlejuice, Netflix
+
+Sun, 08 Mar 2026 23:01:12 GMT
+
+https://www.cbr.com/tim-burton-beetlejuice-beetlejuice-netflix-success-march-2026/
+
+The horror comedy is dominating global streaming charts, becoming a must-watch for fans of the cult classic.
+---------
+
+# The Official 10 Strongest Jujutsu Kaisen Characters as of 2026, Ranked
+
+Anime, Jujutsu Kaisen
+
+Sun, 08 Mar 2026 23:01:12 GMT
+
+https://www.cbr.com/jjk-strongest-characters-2026-ranked/
+
+Jujutsu Kaisen Modulo shook up the rankings of JJK's strongest characters in a major way.
+---------
+
+# 6 Single-Season Shows That Became Instant Classics
+
+TV, Band of Brothers, Firefly, Freaks and Geeks, Drama, Streaming
+
+Sun, 08 Mar 2026 23:01:12 GMT
+
+https://www.cbr.com/single-season-shows-instant-classics-list/
+
+These 6 TV shows took the world by storm in a single season to become instant classics, even if some were canceled well before their time.
+---------
+
+# 7 Stephen King Books That Are Perfect for TV
+
+TV, Stephen King, Horror, Fantasy, Books
+
+Sun, 08 Mar 2026 23:44:12 GMT
+
+https://collider.com/stephen-king-books-perfect-for-tv/
+
+Although many of Stephen King's books have been adapted, now is the time for his other novels, like The Eyes of the Dragon, to make their TV debut.
+---------
+
+# ‘One Piece’ Season 1 Recap: What To Remember Before Netflix’s Fantasy Adventure Series Returns
+
+TV Features, Netflix, One Piece, Fantasy, Adventure
+
+Sun, 08 Mar 2026 23:42:12 GMT
+
+https://collider.com/one-piece-season-1-recap-netflix/
+
+We recap the Straw Hat Pirates' thrilling adventures in One Piece Season 1 before the next chapter premieres March 10 on Netflix.
+---------
+
+# 15 Years Later, We're Finally Getting More ‘Bridesmaids’ — With a Twist
+
+Movie News, Bridesmaids, Rose Byrne, Kristen Wiig, Comedy
+
+Sun, 08 Mar 2026 23:20:13 GMT
+
+https://collider.com/bridesmaids-oscars-reunion-rose-byrne-kristen-wiig-maya-rudolph-melissa-mccarthy/
+
+A Bridesmaids reunion is reportedly in the works for the 98th Academy Awards, bringing Rose Byrne together with Kristen Wiig and more.
+---------
+
+# The $250 Million Taylor Sheridan Universe Is Suddenly Losing Its Top Spot on Paramount+
+
+TV News, Marshals, Taylor Sheridan, Yellowstone, Luke Grimes
+
+Sun, 08 Mar 2026 23:00:12 GMT
+
+https://collider.com/taylor-sheridan-marshals-landman-rankings-disappointment-paramount-plus-chart-march-2026/
+
+Paramount+’s current U.S. chart has Marshals at No. 5 and Landman at No. 9 among TV shows, a softer snapshot for Taylor Sheridan’s streaming empire
+---------
+
+# Alan Ritchson's 'War Machine' Netflix Thriller Breaks Military Action Norms
+
+Features, Alan Ritchson, Netflix, War Machine, Action
+
+Sun, 08 Mar 2026 23:30:16 GMT
+
+https://movieweb.com/alan-ritchson-war-machine-military-action/
+
+Alan Ritchson's 'War Machine' features an unexpected change to standard military action tropes, and it's not the robot.
+---------
+
+# Prime Video's Canceled 2-Part Hard Sci-Fi Mystery Series 'Outer Range' Is One of Its Best
+
+Features, Outer Range, Prime Video, Streaming Recommendations, Sci-Fi
+
+Sun, 08 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/outer-range-prime-video-best-sci-fi-canceled/
+
+'Outer Range' remains one of the best sci-fi mystery shows that's streaming on Prime Video, despite being canceled after Season 2.
+---------
+
+# Laurie Strode's Iconic 'Halloween' Quote Is Scarier Than Ever, Nearly 50 Years On
+
+Features, Halloween, Great Line
+
+Sun, 08 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/halloween-quote-greatest-horror-line/
+
+Laurie Strode's flip denial turns to mortified belief in the terrifying final quote in 'Halloween'. Here's what it means and why it holds up.
+---------
+
 # 10 Best Episodes Of Supernatural, Ranked
 
 Classic TV, Supernatural
