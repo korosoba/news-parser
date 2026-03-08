@@ -1,3 +1,267 @@
+# 10 Best Episodes Of Supernatural, Ranked
+
+Classic TV, Supernatural
+
+Sun, 08 Mar 2026 22:45:19 GMT
+
+https://screenrant.com/supernatural-episodes-that-are-perfect-no-notes/
+
+The top 10 Supernatural episodes, ranked by fans and critics, featuring iconic moments, meta concepts, and standout performances viewers love.
+---------
+
+# 12 Best K-Dramas About Fake Dating
+
+Streaming TV, K-Drama
+
+Sun, 08 Mar 2026 22:45:19 GMT
+
+https://screenrant.com/k-dramas-about-fake-dating/
+
+From Her Private Life to Crazy Love to Business Proposal, Korean dramas that use the fake dating/pretend relationship trope never get old.
+---------
+
+# James Gunn's DCU Is Already Failing Wonder Woman
+
+Streaming TV, Wonder Woman, DC
+
+Sun, 08 Mar 2026 22:31:18 GMT
+
+https://screenrant.com/james-gunn-dcu-wonder-woman-failed/
+
+Discover how James Gunn's DCU is failing to give Wonder Woman the representation she deserves, despite her iconic status and popularity.
+---------
+
+# Jujutsu Kaisen's Sequel Confirms The True Fate of a Fan Favorite Hero, and It's Brutal
+
+Anime, Jujutsu Kaisen
+
+Sun, 08 Mar 2026 22:31:18 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-confirms-panda-fate-brutal/
+
+Jujutsu Kaisen's sequel has finally reintroduced one of the original series' most beloved characters, and his fate is far from ideal.
+---------
+
+# 10 Best Original Score Oscar Wins That Are Indisputable
+
+Classic Movies, Oscars
+
+Sun, 08 Mar 2026 22:25:19 GMT
+
+https://screenrant.com/oscars-best-original-score-winners-indisputable/
+
+The Best Original Score category at the Oscars awards excellence in film music, and these 10 scores snagged the trophy with ease.
+---------
+
+# Prime Video's Mind-Bending Sci-Fi Miniseries Is One You Have To Watch Twice
+
+Classic TV, Tales from the Loop
+
+Sun, 08 Mar 2026 22:12:19 GMT
+
+https://screenrant.com/tales-from-the-loop-sci-fi-prime-video-watch-twice/
+
+Amazon Prime Video’s mind-bending science fiction TV show, based on Simon Stålenhag’s artwork, needs to be watched twice to be fully appreciated.
+---------
+
+# This New D&D 5.5 Ravenloft Subclass Is Going To Infuriate Your DM
+
+Tabletop, Dungeons & Dragons, Dungeons and Dragons, tabletop games
+
+Sun, 08 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/dnd-new-subclass-grave-cleric-update-ravenloft/
+
+A powerful Dungeons & Dragons subclass may make their way back into the TTRPG with the new Ravenloft book, and it’s going to be a nightmare for DMs.
+---------
+
+# Avengers Concept Art Includes An MCU Adaptation Of Iron Man's All-New, All-Different Armor
+
+Marvel Comics, Iron Man, Avengers: Infinity War, Marvel Cinematic Universe
+
+Sun, 08 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/iron-man-suit-mcu-infinity-war-all-new/
+
+Iron Man's most underrated comic book suit of armor almost appeared in Avengers: Infinity War, as confirmed by official MCU concept art.
+---------
+
+# All Terminator Movies In Order, From 1984 To Now
+
+Movies, Terminator, The Terminator
+
+Sun, 08 Mar 2026 21:55:18 GMT
+
+https://screenrant.com/terminator-movies-correct-order-1984-now/
+
+The Terminator is a cornerstone sci-fi action franchise, even though some entries in the long-running movie saga are much better than others.
+---------
+
+# Breaking Bad's Giancarlo Esposito Reveals Favorite Gus Scene
+
+TV
+
+Sun, 08 Mar 2026 22:20:11 GMT
+
+https://www.cbr.com/breaking-bad-better-call-saul-giancarlo-esposito-favorite-gus-scene/
+
+Breaking Bad and Better Call Saul star Giancarlo Esposito shares his all-time favorite scene as Gus Fring.
+---------
+
+# 10 Great Anime With Even Better Sequels
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Sun, 08 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/best-anime-better-season-2/
+
+Follow-up seasons from anime like Demon Slayer and Mob Psycho 100 improved on what were already great beginnings.
+---------
+
+# One Piece Footwear Collection Officially Hits the U.S. Ahead of New Netflix Release
+
+Anime, One Piece
+
+Sun, 08 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-one-piece-season-2-footwear-collection/
+
+The highly sought-after One Piece Crocs collection is officially hitting the U.S. ahead of Netflix's new Season 2 release.
+---------
+
+# HBO's Watchmen Shows How a V for Vendetta Sequel Could Work
+
+Movies, V For Vendetta, Watchmen, HBO Max
+
+Sun, 08 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/hbo-watchmen-show-how-v-for-vendetta-sequel-could-work/
+
+Fans still want the V for Vendetta sequel to happen and succeed, and HBO's Watchmen series offers the key to that success.
+---------
+
+# Netflix's 3-Season Action Sleeper Resurrected '90s Thrillers for the 2020s
+
+TV, The Night Agent, Netflix, Action, Thriller
+
+Sun, 08 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-the-night-agent-action-sleeper-resurrected-90s-thrillers/
+
+This Netflix action sleeper hit is reminiscent of '90s thrillers, signalling that it's time for a resurrection of the style for the small screen.
+---------
+
+# 40 Years Later, James Cameron’s Second Sci-Fi Masterpiece Is Aging Like Fine Wine
+
+Movie News, James Cameron, aliens, HBO Max, Sigourney Weaver
+
+Sun, 08 Mar 2026 22:40:13 GMT
+
+https://collider.com/james-cameron-sci-fi-masterpiece-aliens-streaming-success-hbo-max-march-2026/
+
+40 years later, the second sci-fi masterpiece of James Cameron's career is still scaring up fans on streaming. Find out more below.
+---------
+
+# 6 Years Later, George Lucas' Sci-Fi Masterpiece Is Still the Only Reason Modern Star Wars Works
+
+TV Features, Star Wars, Star Wars: The Clone Wars, George Lucas, Animation
+
+Sun, 08 Mar 2026 22:36:12 GMT
+
+https://collider.com/star-wars-the-clone-wars-modern-franchise-impact/
+
+Six years after its finale, Star Wars: The Clone Wars remains the creative foundation for modern Star Wars, from The Mandalorian to Ahsoka.
+---------
+
+# 10 Best Crowd-Pleasing Fantasy Movies of All Time
+
+Movie, Fantasy, The Wizard of Oz, Wicked, Harry Potter and the Prisoner of Azkaban
+
+Sun, 08 Mar 2026 22:28:12 GMT
+
+https://collider.com/best-crowd-pleasing-fantasy-movies/
+
+The Wizard of Oz, The Princess Bride, KPop Demon Hunters, and more make up our list of the best crowd-pleasing fantasy movies of all time.
+---------
+
+# Taylor Sheridan’s Divisive 2-Part Thriller Rewrites His Best ‘Sicario’ Scene
+
+TV Features, Zoe Saldana, Lioness, Taylor Sheridan, Sicario
+
+Sun, 08 Mar 2026 22:22:13 GMT
+
+https://collider.com/taylor-sheridan-lioness-season-2-rewrites-best-sicario-scene/
+
+In Lioness, a thrilling chase scene reminiscent of Sicario leaves viewers on the edge of their seats, showcasing Taylor Sheridan's gritty action.
+---------
+
+# A24’s Dreamlike Medieval Fantasy Epic Is About to Vanish From Streaming
+
+Movie News, The Green Knight, A24, Fantasy, Alicia Vikander
+
+Sun, 08 Mar 2026 22:20:13 GMT
+
+https://collider.com/a24-dreamlike-medieval-fantasy-epic-the-green-knight-leaving-pluto-tv-streaming-march-2026/
+
+A24’s The Green Knight is currently streaming for free, giving viewers a limited window to revisit Dev Patel’s mesmerizing medieval fantasy.
+---------
+
+# 10 Best Crime TV Finales of the Last 10 Years, Ranked
+
+TV, Crime, Better Call Saul, The Americans, Killing Eve
+
+Sun, 08 Mar 2026 22:13:12 GMT
+
+https://collider.com/best-crime-show-finales-ranked-last-10-years/
+
+Discover the most unforgettable crime TV finales from the past decade, seen in shows like Better Call Saul, The Americans, and Mr. Robot.
+---------
+
+# This 110-Minute "Killer Toy" Favorite Is Retreating From Free Streaming
+
+Movie News, Small Soldiers, Kirsten Dunst, Phil Hartman, Joe Dante
+
+Sun, 08 Mar 2026 22:00:13 GMT
+
+https://collider.com/small-soldiers-killer-toy-favorite-leaving-pluto-tv-streaming-march-2026/
+
+Small Soldiers is currently streaming for free, giving viewers a limited window to revisit Joe Dante’s wildly satirical 1998 action comedy.
+---------
+
+# 16 Years Ago, the Guys Behind ‘Uncut Gems’ Could Make an Oddly Moving Movie About Parenting
+
+Movie Features, Josh Safdie, Benny Safdie, Daddy Longlegs, Ronald Bronstein
+
+Sun, 08 Mar 2026 21:55:12 GMT
+
+https://collider.com/safdie-brothers-daddy-longlegs/
+
+With their 2010 film Daddy Longlegs, Josh and Benny Safdie took a nostalgic look at a father struggling to do his best.
+---------
+
+# '80s Cult Classic 'The Monster Squad' Gathered the 'Avengers' of Horror and It's Streaming Free
+
+Movie News, The Monster Squad, Coming/Leaving Streaming
+
+Sun, 08 Mar 2026 22:01:17 GMT
+
+https://movieweb.com/monster-squad-streaming-tubi-march-2026/
+
+Are you looking for a perfect gateway horror movie for the smaller ones?
+---------
+
+# The Oscars Needs to Fix the Best Picture Category
+
+Features, The Oscars | Academy Awards
+
+Sun, 08 Mar 2026 22:01:17 GMT
+
+https://movieweb.com/oscars-need-to-fix-best-picture-category/
+
+There's a clear genre bias, a safe pick pattern and, as a result, many winners lack cultural longevity.
+---------
+
 # 10 TV Shows That Require A Second Viewing To Understand
 
 Classic TV
