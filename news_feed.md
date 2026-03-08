@@ -1,3 +1,113 @@
+# 10 TV Shows That Get Better With Every Rewatch
+
+Classic TV
+
+Sun, 08 Mar 2026 19:18:19 GMT
+
+https://screenrant.com/tv-shows-get-better-on-a-rewatch/
+
+These great shows are just as enjoyable on a rewatch as they were the first time around, offering new thoughts and emotions when seen in a new light.
+---------
+
+# Christopher Nolan’s The Odyssey Needs To Get 1 Underrated Monster Moment Right
+
+Movies, The Odyssey
+
+Sun, 08 Mar 2026 19:15:18 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-scylla-charybdis/
+
+The Odyssey will inevitably condense Homer's epic poem, but the Christopher Nolan movie needs to include one underrated monster moment.
+---------
+
+# JJK Modulo Series Review: Yuji Itadori's Extraterrestrial Battle Finally Gives Fans a Happy Ending
+
+Anime, Jujutsu Kaisen Modulo, Jujutsu Kaisen
+
+Sun, 08 Mar 2026 19:50:44 GMT
+
+https://www.cbr.com/jjk-modulo-review/
+
+JJK Modulo has drawn to a close, bringing an end to one of the most unique sequels in the history of shonen manga.
+---------
+
+# Fabian Nicieza and Mark Bagley's New Warriors is a Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, New Warriors, Marvel
+
+Sun, 08 Mar 2026 19:29:16 GMT
+
+https://www.cbr.com/new-warriors-vol-1-comics-you-should-be-reading/
+
+New Warriors' first volume offered something captivating, as the team took on powerful threats and tackled serious issues while growing up together.
+---------
+
+# Netflix's Ginny & Georgia Season 4 Gets Major Filming Update
+
+TV, Ginny & Georgia
+
+Sun, 08 Mar 2026 19:23:57 GMT
+
+https://www.cbr.com/ginny-and-georgia-season-4-filming-update/
+
+Exciting news is revealed for fans of Ginny & Georgia on Netflix.
+---------
+
+# Steven Spielberg’s 89% RT Sci-Fi Thriller Is Suddenly Leaving Free Streaming
+
+Movie News, Minority Report, Steven Spielberg, Sci-Fi, Tom Cruise
+
+Sun, 08 Mar 2026 19:40:12 GMT
+
+https://collider.com/steven-spielberg-prophetic-sci-fi-thriller-minority-report-leaving-pluto-tv-streaming-march-2026/
+
+Steven Spielberg’s Minority Report is currently listed in Pluto TV’s “Leaving Soon” section, giving viewers limited time to revisit Tom Cruise’s hit.
+---------
+
+# 10 Greatest Screenplays of the '90s, Ranked
+
+Movie, Pulp Fiction, LA Confidential, Fargo, The Truman Show
+
+Sun, 08 Mar 2026 19:39:12 GMT
+
+https://collider.com/best-screenplays-90s-ranked/
+
+The 1990s saw the rise of many all-time great screenplays, from prescient satires like The Truman Show to generation-defining gems like Pulp Fiction.
+---------
+
+# HBO’s Superhero Series Remains the Most Ambitious Comic Adaptation of the 21st Century
+
+TV Features, Watchmen, HBO, Damon Lindelof, Yahya Abdul-Mateen II
+
+Sun, 08 Mar 2026 19:29:13 GMT
+
+https://collider.com/watchmen-hbo-superhero-series-best-adaptation-21st-century/
+
+HBO's adaptation of Watchmen both continues the story in the original graphic novel and builds upon it.
+---------
+
+# ‘Bridgerton’ Fans Now Have a $103 Million Historical Drama Sequel To Watch on Netflix
+
+Movie News, Downton Abbey 3, Downton Abbey: The Grand Finale, Bridgerton, Netflix
+
+Sun, 08 Mar 2026 19:20:12 GMT
+
+https://collider.com/bridgerton-replacement-downton-abbey-the-grand-finale-historical-drama-sequel-streaming-netflix-march-2026/
+
+After launching on Peacock last fall, Downton Abbey: The Grand Finale makes its Netflix streaming debut this month. Find out more here.
+---------
+
+# 'Marvel Zombies vs. The Army of Darkness' Is a Great Forgotten Crossover
+
+Features
+
+Sun, 08 Mar 2026 19:30:16 GMT
+
+https://movieweb.com/marvel-zombies-army-darkness-crossover/
+
+'Marvel Zombies vs. The Army of Darkness' came along at a unique point in both Marvel and 'Evil Dead's franchise history.
+---------
+
 # Netflix's Upcoming Western Reboot Is The Antidote To Yellowstone
 
 Classic TV, Little House on the Prairie
