@@ -1,3 +1,300 @@
+# 10 TV Shows That Require A Second Viewing To Understand
+
+Classic TV
+
+Sun, 08 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/tv-shows-make-sense-after-watch-twice/
+
+From mind-bending supernatural thrillers like Twin Peaks to layered, nuanced, complex dramas like Mad Men, these TV shows demand a second viewing.
+---------
+
+# 5 Must-Play Legend Of Zelda Games
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Sun, 08 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/legend-zelda-must-play-games/
+
+There are few video game series as storied as Nintendo's The Legend of Zelda, and these five are the most essential adventures yet released.
+---------
+
+# All 9 Alien Movies In Order, From 1979 To Now
+
+Movies, Alien
+
+Sun, 08 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/alien-movies-in-order-all/
+
+The Alien franchise is one of the most important in all of sci-fi cinema, with each instalment charting the evolution of the genre itself.
+---------
+
+# Spider-Man: Brand New Day Can Deliver Marvel’s Best Romance Reset in Decades
+
+Comics, Spider-Man
+
+Sun, 08 Mar 2026 21:24:18 GMT
+
+https://screenrant.com/spider-man-brand-new-day-romance-reset-peter-mary-jane-comic-theory/
+
+Spider-Man: Brand New Day is already miles ahead of where its comic book counterpart left its characters, with a romance sure to blossom.
+---------
+
+# 10 Best Romance Movie Couples, Ranked By Chemistry
+
+Classic Movies, Romance
+
+Sun, 08 Mar 2026 21:15:19 GMT
+
+https://screenrant.com/romance-movie-couples-ranked/
+
+From long-standing childhood sweethearts to lusty romantic chance encounters, these iconic movie couples' chemistry was truly off the charts
+---------
+
+# Writers Guild Awards Winners 2026
+
+TV, WGA (Writers Guild of America), WGA Awards
+
+Sun, 08 Mar 2026 21:11:37 GMT
+
+https://screenrant.com/writers-guild-awards-winners-2026/
+
+The 78th Annual Writers Guild Awards is finally here, and ScreenRant will be revealing the winners in realtime throughout the night.
+---------
+
+# Marvel Has a New Strongest Hero, Officially Stealing Superman from DC
+
+Comics, X-Men, Superman
+
+Sun, 08 Mar 2026 21:09:25 GMT
+
+https://screenrant.com/x-men-new-hero-superman-spider-man-merge/
+
+Marvel has a new strongest hero, as Spider-Man and Superman combine into a merged form. The result is the newest addition to... X-MEN lore?!
+---------
+
+# The Boys Season 5 Trailer Teases Soldier Boy's Controversial Comic Storyline
+
+Streaming TV, The Boys
+
+Sun, 08 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/the-boys-season-5-soldier-boy-homelander-comic-reference/
+
+The trailer for The Boys' fifth and final season contains a sly nod to Soldier Boy's controversial comic book storyline with Homelander.
+---------
+
+# Valheim Meets Far Cry Primal And Skyrim In New Sandbox Survival RPG
+
+Gaming
+
+Sun, 08 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/open-world-rpg-like-valheim-meets-skyrim/
+
+Immerse yourself in a hardcore survival simulator set in prehistoric Europe, where you must hunt, craft, and survive against nature itself.
+---------
+
+# Sydney Sweeney's 10 Best Movie Roles More Than Make Up For Madame Web
+
+Classic Movies, Sydney Sweeney, Ranking
+
+Sun, 08 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/sydney-sweeney-best-movie-roles/
+
+Sydney Sweeney was one of the people criticized for Madame Web's failure, but she has plenty of roles where she proved she was a good actor.
+---------
+
+# House of Ashur Is Finally Running Out of Steam Amid Season 2 Uncertainty
+
+TV, Spartacus: House of Ashur
+
+Sun, 08 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/spartacus-house-of-ashur-historical-starz-march-2026/
+
+After a thrilling debut, the show has yet to receive a Season 2 renewal.
+---------
+
+# 5 Ghost Story Movies That Make A Nightmare on Elm Street Look Tame
+
+Movies, A Nightmare on Elm Street, Horror
+
+Sun, 08 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/ghost-story-movies-scarier-than-a-nightmare-on-elm-street-list/
+
+A Nightmare on Elm Street is a scary ghost story movie, but there are others that the iconic slasher can't compete with.
+---------
+
+# Tamon's B-Side Is the Must-Watch 2026 Anime for KPop Demon Hunters Fans
+
+Anime, KPop Demon Hunters, Tamon's B-Side, Comedy
+
+Sun, 08 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/kpop-demon-hunters-recommendation-tamons-b-side/
+
+For fans of KPop Demon Hunters who can't get enough of idols, Tamon's B-Side is the must-watch anime of 2026.
+---------
+
+# 1 Scene Proves Sinners Deserves the Best Picture Oscar
+
+Movies, Sinners
+
+Sun, 08 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/sinners-deserves-best-picture-oscar/
+
+Sinners became one of the greatest films of 2025, with a single scene making it worthy of an Academy Award for Best Picture
+---------
+
+# Chris Claremont Confirms New Work On The Way, But Fans Will Have To Wait
+
+CBR Exclusives, X-Men, chris claremont
+
+Sun, 08 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/chris-claremont-confirms-new-work-on-the-way/
+
+Legendary X-Men scribe and comic book creator Chris Claremont promises that he does have new comics coming, even if they are running late.
+---------
+
+# 5 Classic TV Shows That Are Sadly Unwatchable Today
+
+TV, Friends, The Simpsons, Sex and the City
+
+Sun, 08 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/classic-tv-shows-unwatchable-today-list/
+
+These beloved TV shows have lost their charm as outdated humor, poor special effects, and regressive views make them cringeworthy re-watches.
+---------
+
+# 10 Most Perfect Movies of the Last 3 Years, Ranked
+
+Movie, Sinners, Oppenheimer, Marty Supreme, Wicked
+
+Sun, 08 Mar 2026 21:43:12 GMT
+
+https://collider.com/most-perfect-movies-last-3-years-ranked/
+
+From Sinners to Oppenheimer, the last 3 years have given us some truly perfect movies that will stand the test of time.
+---------
+
+# The Most Iconic Rom-Com of the 2000s Breaks Up With Streaming
+
+Movie News, Bridget Jones's Diary, Bridget Jones: The Edge of Reason, Bridget Jones: Mad About The Boy, Bridget Jones's Baby
+
+Sun, 08 Mar 2026 21:41:12 GMT
+
+https://collider.com/renee-zellweger-rom-com-classic-bridget-joness-diary-leaving-pluto-tv-streaming-march-2026/
+
+Bridget Jones’s Diary is available on streaming right now, giving viewers limited time to revisit Renée Zellweger’s endlessly rewatchable rom-com.
+---------
+
+# 18 Years Before 'The Secret Agent,' Wagner Moura Led This Underappreciated Crime Action Movie Series
+
+Movie Features, Wagner Moura, Elite Squad, Elite Squad: The Enemy Within, Action
+
+Sun, 08 Mar 2026 21:23:12 GMT
+
+https://collider.com/wagner-moura-elite-squad-series/
+
+Long before he starred in Narcos and The Secret Agent, Wagner Moura was the lead in the action films Elite Squad and Elite Squad: The Enemy Within.
+---------
+
+# The Most Underappreciated 'John Wick' Movie Sets Major Streaming Comeback Less Than 1 Year Later
+
+Movie News, John Wick, From the World of John Wick: Ballerina, HBO Max
+
+Sun, 08 Mar 2026 21:20:12 GMT
+
+https://collider.com/ballerina-most-underappreciated-john-wick-movie-streaming-hbo-max-march-2026/
+
+The underappreciated John Wick spin-off starring Ana de Armas makes a major streaming comeback on HBO Max this month.
+---------
+
+# Steven Spielberg Failed To Turn This Cursed Sci-Fi Reboot Into a Masterpiece 43 Years Ago
+
+TV Features, Twilight Zone: The Movie, Steven Spielberg, John Landis, George Miller
+
+Sun, 08 Mar 2026 21:14:12 GMT
+
+https://collider.com/steven-spielberg-twilight-zone-movie-deaths-john-landis/
+
+Despite the impressive lineup, Twilight Zone: The Movie failed to capture the essence of the original series and resulted in a tragic accident on set.
+---------
+
+# 30 Years Later, Mel Gibson’s Brutal Oscar-Winning War Epic Makes Its Final Stand on Streaming
+
+Movie News, Braveheart, Mel Gibson, Mel Gibson's 'Braveheart': A Filmmaker's Passion, Streaming
+
+Sun, 08 Mar 2026 21:01:12 GMT
+
+https://collider.com/mel-gibson-brutal-historical-war-epic-braveheart-leaving-streaming-pluto-tv-march-2026/
+
+Thirty years after its release, Braveheart is listed in Pluto TV’s “Leaving Soon” section, giving viewers a limited time to revisit Mel Gibson’s epic.
+---------
+
+# 10 Movies From 1947 That Are Now Considered Classics
+
+Movie, Film Noir, The Lady From Shanghai, Gentleman's Agreement, Kiss of Death
+
+Sun, 08 Mar 2026 20:56:12 GMT
+
+https://collider.com/best-1947-movies-classics/
+
+Noir films like The Lady from Shanghai, Out of the Past, and Kiss of Death are all among the very best movies from 1947 we now consider classics.
+---------
+
+# Ryan Gosling: Grown Men Cry At 'Project Hail Mary'
+
+Interviews, Project Hail Mary, Ryan Gosling, Sci-Fi
+
+Sun, 08 Mar 2026 21:35:51 GMT
+
+https://movieweb.com/ryan-gosling-grown-men-cry-project-hail-mary-exclusive/
+
+Grown men have been known to cry watching the new sci-fi film 'Project Hail Mary,' and that's all right by star Ryan Gosling.
+---------
+
+# All 'Scream' Ghostfaces, Ranked by How Easy They Are To Figure Out
+
+Movie Lists, Scream, Horror
+
+Sun, 08 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/scream-every-ghostface-ranked-obvious/
+
+'Scream 7' is the latest entry in the popular horror franchise featuring the iconic masked killer Ghostface, and some are more obvious than others.
+---------
+
+# 'The Night Agent' Scores 133.1M Hours Watched After Season 3 Premiere
+
+TV News, The Night Agent, Netflix, Hot on Streaming
+
+Sun, 08 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/the-night-agent-netflix-trending-march-2026/
+
+Fans are diving into all three seasons on the streamer.
+---------
+
+# Robert De Niro's 'Brazil' Is an Underrated Sci-Fi Thriller Movie
+
+Features, Robert De Niro, Holds Up, Brazil
+
+Sun, 08 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/brazil-robert-de-niro-sci-fi-thriller-underrated/
+
+'Brazil', directed by Terry Gilliam, satirizes multiple relevant topics and features an incredible performance by Robert De Niro.
+---------
+
 # 10 Most Underrated Gary Oldman Movies Of All Time
 
 Movies, Gary Oldman, Nobody's Baby, Immortal Beloved, Romeo Is Bleeding, State of Grace, Rosencrantz & Guildenstern Are Dead, The Contender, The Firm, Chattahoochee, Track 29
