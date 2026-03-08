@@ -1,3 +1,234 @@
+# Baldur's Gate 3 Meets Cyberpunk 2077 In Ambitious New RPG
+
+Gaming, RPG, PC, Cyberpunk 2077, Baldur's Gate 3
+
+Sun, 08 Mar 2026 15:45:18 GMT
+
+https://screenrant.com/biosynth-cyberpunk-baldurs-gate-3-new-rpg/
+
+An ambitious new RPG is in the works, blending inspirations drawn from Baldur’s Gate 3 and Cyberpunk 2077, and you won’t want to miss it.
+---------
+
+# First Warner Bros. Movie To Debut After Paramount Merger Announcement Is Set To Lose Tens Of Millions
+
+Movies, The Bride!, Box Office
+
+Sun, 08 Mar 2026 15:32:43 GMT
+
+https://screenrant.com/the-bride-movie-global-box-office-debut/
+
+Warner Bros., which is expected to merge with Paramount Skydance after new negotiations, sees their first movie since the announcement set to flop.
+---------
+
+# If You Like Hoppers, You Need To Watch The Underrated Animated Show That Helped Make It
+
+Movies, Hoppers, We Bare Bears
+
+Sun, 08 Mar 2026 15:30:18 GMT
+
+https://screenrant.com/hoppers-we-bare-bears-show-watch/
+
+Those who liked Hoppers and its world and story are also primed to loved the animated show that helped make the newly released 2026 movie.
+---------
+
+# Bridgerton Star Officially Makes This Upcoming Romance Book Adaptation A Must-Watch
+
+Movies, Bridgerton
+
+Sun, 08 Mar 2026 15:30:18 GMT
+
+https://screenrant.com/bridgerton-phoebe-dynevor-emily-henry-beach-read-movie-adaptation/
+
+One of Bridgerton's biggest stars has signed on to lead another major romance adaptation, which also has the potential to become a huge franchise.
+---------
+
+# 22 Best Minecraft Seeds For Cherry Blossom
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Sun, 08 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/best-minecraft-seeds-cherry-blossom/
+
+The Cherry Blossom biome is fairly hard to find in Minecraft, but players can generate worlds that guarantee this environment using the best seeds.
+---------
+
+# Dungeons & Dragons’ New 4-Part Series Is the Perfect Follow-Up to 2023’s 92% Fantasy Hit
+
+Comics, Dungeons and Dragons
+
+Sun, 08 Mar 2026 15:00:18 GMT
+
+https://screenrant.com/dungeons-dragons-new-series-honor-thieves-followup/
+
+The Dungeons and Dragons' franchise returns with a brand-new series, and it’s already living up to the movie’s 92% Rotten Tomatoes rating.
+---------
+
+# Invincible Season 4 Reading Guide: Which Comics To Read Before
+
+TV, Invincible
+
+Sun, 08 Mar 2026 15:00:19 GMT
+
+https://screenrant.com/invincible-season-4-comics-reading-guide/
+
+Invincible season 4 releases on Prime Video soon, and these are the comic issues to read before then to get a sense of where the story is going.
+---------
+
+# 10 Great Non-Western TV Shows That Feel Like Westerns
+
+Classic TV, Western
+
+Sun, 08 Mar 2026 15:00:19 GMT
+
+https://screenrant.com/non-western-tv-shows-feel-like/
+
+Westerns are often characterized by a desert or frontier setting, vigilante justice, and antiheroes, and some great non-Western TV shows share these.
+---------
+
+# Yu-Gi-Oh Returns to Saturday Morning Cartoons
+
+Anime, Yu-Gi-Oh!, RetroCrush, Yu-Gi-Oh! Duel Monsters
+
+Sun, 08 Mar 2026 15:30:12 GMT
+
+https://www.cbr.com/yu-gi-oh-retrocrush-free-watch-saturday-morning-cartoons/
+
+The most iconic Yu-Gi-Oh! anime is one of many titles heading to a 24/7 streaming programming block of nostalgic animated goodness.
+---------
+
+# In Less Than 30 Days, One Piece's Elbaph Arc Finally Begins
+
+Anime, One Piece
+
+Sun, 08 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/one-piece-elbaph-arc-release-date/
+
+After months of hiatus, One Piece finally returns with its biggest anime arc yet.
+---------
+
+# Young Sherlock Star Officially Joins James Bond Casting Speculation: 'It Would Be a Dream'
+
+Movies, Drama, Young Sherlock
+
+Sun, 08 Mar 2026 15:07:56 GMT
+
+https://www.cbr.com/hero-fiennes-tiffin-james-bond-casting-speculation/
+
+The young actor wants to take on the role of James Bond in 007, but under one condition — one that's abnormal in Hollywood.
+---------
+
+# 40 Years Later, This Classic '80s Game is 100% Unplayable
+
+Games, The Legend of Zelda
+
+Sun, 08 Mar 2026 15:00:11 GMT
+
+https://www.cbr.com/legend-of-zelda-80s-games-unplayable-in-2026/
+
+Not only is this game a complete disaster from start to finish, but every single one of its sequels has improved upon it.
+---------
+
+# Brie Larson Stole The Show in Kong: Skull Island
+
+Movies, Action, Kong: Skull Island
+
+Sun, 08 Mar 2026 15:00:11 GMT
+
+https://www.cbr.com/brie-larson-stole-the-show-kong-skull-island/
+
+Despite its action-packed monster chaos, this 2017 film starring Brie Larson and Tom Hiddleston also depicts post-war aimlessness.
+---------
+
+# 18 Years Later, Daniel Craig’s Forgotten 137-Minute World War II Epic Invades Free Streaming
+
+Movie News, Defiance, Daniel Craig, Liev Schreiber, World War II
+
+Sun, 08 Mar 2026 15:41:12 GMT
+
+https://collider.com/daniel-craig-forgotten-ww2-movie-defiance-streaming-free-pluto-tv-march-2026/
+
+Daniel Craig starred in the overlooked World War 2 movie, Defiance, after his James Bond debut; the movie is streaming for free this month.
+---------
+
+# 'Star Trek' Completely Rewrites the Rules of Sci-Fi Television in Just 50 Minutes
+
+TV Features, Star Trek, Star Trek: The Original Series, William Shatner, Sci-Fi
+
+Sun, 08 Mar 2026 15:27:12 GMT
+
+https://collider.com/star-trek-city-on-the-edge-of-forever-episode-kirk-keeler-death/
+
+In the Star Trek episode, "The City on the Edge of Forever," William Shatner's Kirk is forced to make an impossible decision to save the future.
+---------
+
+# As a Superman Fan, Here's How I'd Rank All 13 TV Shows in the Franchise
+
+TV, Superman, Superman & Lois, Smallville, Superman: The Animated Series
+
+Sun, 08 Mar 2026 15:24:12 GMT
+
+https://collider.com/superman-fan-ranks-tv-shows/
+
+TV is an excellent medium for the Man of Steel, and as a fan, I think Smallville, Krypton, and Superman & Lois are some of the greatest shows.
+---------
+
+# Before 'The Odyssey,' Christopher Nolan's 94% RT Masterpiece Flips the Script and Is Streaming for Free
+
+Movie News, Memento, Christopher Nolan, Mystery, Streaming
+
+Sun, 08 Mar 2026 15:20:12 GMT
+
+https://collider.com/christopher-nolan-masterpiece-memento-free-streaming-fawesome-march-2026/
+
+Twenty-six years after its release, Christopher Nolan’s Memento is now streaming free. Here's everything you should know about the twisty thriller.
+---------
+
+# 27 Years Later, Tim Burton’s Underrated Gothic Horror Falls Behind 'Wuthering Heights' at the Box Office
+
+Movie News, Johnny Depp, Tim Burton, Sleepy Hollow, Wuthering Heights
+
+Sun, 08 Mar 2026 15:06:58 GMT
+
+https://collider.com/wuthering-heights-overtakes-tim-burton-sleepy-hollow-box-office-210-million/
+
+Tim Burton’s most underrated gothic horror just lost its box office rank to Wuthering Heights.
+---------
+
+# Before David Fincher’s 'Squid Game' Spin-Off, His $48 Million Home-Invasion Film Hits Free Streaming
+
+Movie News, David Fincher, Panic Room, Jodie Foster, Kristen Stewart
+
+Sun, 08 Mar 2026 15:01:12 GMT
+
+https://collider.com/david-fincher-panic-room-home-invasion-thriller-streaming-free-pluto-tv-march-2026/
+
+David Fincher ran into major trouble when Nicole Kidman quit Panic Room two weeks into production; the movie was made with Jodie Foster instead.
+---------
+
+# Disney Slashes Streaming Prices for Limited Time
+
+TV News, Disney+, Hulu, Streaming
+
+Sun, 08 Mar 2026 15:14:21 GMT
+
+https://movieweb.com/disney-slashes-streaming-prices-limited-time/
+
+For a limited time, you can get a Disney+/Hulu bundle for just $4.99/month...but only for a while.
+---------
+
+# 'The Twilight Saga: Breaking Dawn' Was Snubbed at the Academy Awards
+
+Features, The Twilight Saga, The Twilight Saga: Breaking Dawn - Part 1
+
+Sun, 08 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/twilight-saga-thousand-years-academy-awards/
+
+The 84th Academy Awards Best Original Song category only nominated two songs, snubbing Christina Perri's hit "A Thousand Years."
+---------
+
 # Scrubs’ Missing Fan-Favorite Character Will Return On One Condition, Reveals Creator
 
 TV, Scrubs
