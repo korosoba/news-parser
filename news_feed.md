@@ -1,3 +1,190 @@
+# Fringe Was Unrecognizable By Its Final Season
+
+Classic TV, Fringe
+
+Sun, 08 Mar 2026 17:45:18 GMT
+
+https://screenrant.com/fringe-sci-fi-series-unrecognizable-final-season/
+
+Tons of sci-fi shows appeared in the 2000s and early 2010s, and this forgotten one was one of the era's best entries despite its changes.
+---------
+
+# Jujutsu Kaisen Confirms The Heartbreaking Fate of a Beloved Hero, and the Fandom Will Never Recover
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Sun, 08 Mar 2026 17:31:18 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-megumi-death-explained/
+
+The final chapter of Jujutsu Kaisen Modulo brings both resolution and heartbreak, as the series confirms the tragic end of a fan-favorite character.
+---------
+
+# Animal Crossing: City Folk Deluxe Will Keep You Busy For Months
+
+Gaming, Animal Crossing
+
+Sun, 08 Mar 2026 17:31:18 GMT
+
+https://screenrant.com/animal-crossing-city-folk-deluxe-best-ac-game/
+
+Discover how the Animal Crossing: City Folk Deluxe mod transforms a once-weak installment into the best AC game.
+---------
+
+# 6 Years Later, The Best Modern Dark Fantasy Anime is Officially Back
+
+Anime, Dorohedoro
+
+Sun, 08 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/dorohedoro-best-dark-fantasy-anime-season-2/
+
+MAPPA's oddball seinen dark fantasy anime is back, and only a matter of weeks away with Dorohedoro season 2.
+---------
+
+# Star Trek: Starfleet Academy's Tragic Saucer Separation In '300th Night'
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Sun, 08 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-saucer-separation-tragic-unique/
+
+Star Trek: Starfleet Academy's USS Athena did what the Starship Enterprise has done before, but this saucer separation is sad in a different way.
+---------
+
+# Stardew Valley Meets Valheim In New RPG You Can Try Free Now
+
+Gaming, Stardew Valley, Valheim
+
+Sun, 08 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/stardew-valley-meets-valheim-in-new-rpg-you-can-try-free-now/
+
+Echowood is an upcoming adventure farming simulator that combines elements of some pretty popular releases into one compelling package.
+---------
+
+# Resident Evil Poll Proves Capcom Is Overlooking Its Best Characters
+
+Gaming, Resident Evil 9, Triple-A Games, PC
+
+Sun, 08 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/resident-evil-best-characters-poll-reactions/
+
+The Resident Evil franchise has no shortage of iconic characters, but these unsuspecting fan-favorites deserve another chance in the spotlight.
+---------
+
+# Ella Purnell's Sweetpea Is a Streaming Hit Ahead of Season 2
+
+TV, Sweetpea
+
+Sun, 08 Mar 2026 17:40:17 GMT
+
+https://www.cbr.com/ella-purnell-sweetpea-streaming-success-march-2026/
+
+Amid the wait for Season 2, Ella Purnell's serial killer thriller series is rising on the streaming charts.
+---------
+
+# One Of The Most Popular Manga Of All Time Has Matched Superman's Sales
+
+Comics, DC Comics, One Piece
+
+Sun, 08 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/one-piece-match-superman-sales-run/
+
+Sorry, Supes.
+---------
+
+# 3 Years Later, Animal Crossing's True Replacement Is Aging Like Fine Wine
+
+Games, Disney Dreamlight Valley, Animal Crossing: New Horizons
+
+Sun, 08 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/best-animal-crossing-replacement-dreamlight-valley/
+
+Nintendo has yet to announce the next Animal Crossing, but the perfect replacement has been here for years.
+---------
+
+# Solo Leveling Celebrates Jinwoo's Birthday With Art and Merch Reveals
+
+Anime, Solo Leveling
+
+Sun, 08 Mar 2026 17:03:12 GMT
+
+https://www.cbr.com/solo-leveling-sung-jinwoo-birthday-celebration-march-8/
+
+It’s Sung Jinwoo’s birthday today, and the Solo Leveling franchise is giving fans all kinds of fun surprises to celebrate the Shadow Monarch.
+---------
+
+# Before the Netflix Hit, Matthew McConaughey’s $40 Million Legal Masterpiece Is Now Streaming for Free
+
+Movie News, The Lincoln Lawyer, Matthew McConaughey, Netflix
+
+Sun, 08 Mar 2026 17:40:12 GMT
+
+https://collider.com/matthew-mcconaughey-the-lincoln-lawyer-legal-drama-free-streaming-fawesome-march-2026/
+
+The Lincoln Lawyer, the 2011 legal thriller that later inspired Netflix’s long-running Mickey Haller series, is now streaming free. Read on for more.
+---------
+
+# Every Clint Eastwood Fan Can Now Watch Jude Law’s $97 Million World War II Thriller
+
+Movie News, Clint Eastwood, American Sniper, Enemy At The Gates, World War II
+
+Sun, 08 Mar 2026 17:20:12 GMT
+
+https://collider.com/jude-law-enemy-at-the-gates-ww2-thriller-for-clint-eastwood-fans-streaming-free-pluto-tv-march-2026/
+
+Fans of Clint Eastwood's American Sniper can now check out Jude Law's Enemy at the Gates, the WW2 thriller that's streaming for free this month.
+---------
+
+# Michael B. Jordan Should’ve Received His First Oscar Nomination 8 Years Ago for Playing the MCU’s Best Villain
+
+Movie Features, Black Panther, Michael B. Jordan, Ryan Coogler, Sinners
+
+Sun, 08 Mar 2026 17:03:12 GMT
+
+https://collider.com/michael-b-jordan-black-panther-killmonger-oscars/
+
+Sinners is Michael B. Jordan's first Oscar nomination, but it should have been his performance as Killmonger in Ryan Coogler's Black Panther.
+---------
+
+# 12 Years Later, Benedict Cumberbatch’s WWII Biopic Cracks the Free Streaming Code
+
+Movie News, War, Benedict Cumberbatch, The Imitation Game, Streaming
+
+Sun, 08 Mar 2026 17:00:12 GMT
+
+https://collider.com/benedict-cumberbatch-ww2-biopic-the-imitation-game-free-streaming-fawesome-march-2026/
+
+Twelve years after its release, The Imitation Game, starring Benedict Cumberbatch, is now streaming for free. Find out more about the WW2 biopic here.
+---------
+
+# 'Red Cliff' Is a Better Historical Epic Than 'Gladiator' and 'Braveheart'
+
+Features, Red Cliff, Comparison Recommendation
+
+Sun, 08 Mar 2026 17:30:17 GMT
+
+https://movieweb.com/red-cliff-forgotten-war-movie/
+
+'Red Cliff,' directed by John Woo and released in 2008, is a better historical war movie than popular films like 'Gladiator' and 'Braveheart.'
+---------
+
+# 'The Terminal List' Season 2: Confirmation, Plot, Cast & Everything We Know
+
+Features, The Terminal List
+
+Sun, 08 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/the-terminal-list-season-2-everything-we-know/
+
+'The Terminal List' Season 2 will star Chris Pratt as James Reece, and fans want to know more about the Prime Video action thriller's next season.
+---------
+
 # 10 Mystery Science Theater 3000 Episodes To Watch If You’re New To The Series
 
 Classic TV, Mystery Science Theater 3000
