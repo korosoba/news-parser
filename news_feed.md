@@ -1,3 +1,377 @@
+# After God Is the Chainsaw Man Successor Fans Didn't Know They Needed
+
+Anime, Chainsaw Man
+
+Sun, 08 Mar 2026 04:59:46 GMT
+
+https://screenrant.com/after-god-chainsaw-man-successor-dark-fantasy/
+
+Chainsaw Man has its own bonkers successor already, and you've seriously been missing out on it.
+---------
+
+# Naruto's Next Anime Will Officially Redeem The Franchise's Most Controversial Character
+
+Anime, Naruto
+
+Sun, 08 Mar 2026 04:45:19 GMT
+
+https://screenrant.com/naruto-next-anime-make-fans-love-boruto/
+
+Naruto's sequel series is widely considered to be much worse than the original, but with a new anime on the way, one character might be redeemed.
+---------
+
+# 10 Underrated Detective Movies You Should Binge Next
+
+Movies, Copycat, Brick, Klute
+
+Sun, 08 Mar 2026 04:43:35 GMT
+
+https://screenrant.com/best-detective-movies-worth-binging-list/
+
+Looking for detective thrillers? Check these out.
+---------
+
+# Apple TV’s Dark Matter: Everything Everywhere All At Once’s Perfect Replacement?
+
+Streaming TV, Apple TV, Dark Matter, Everything Everywhere All at Once
+
+Sun, 08 Mar 2026 04:40:18 GMT
+
+https://screenrant.com/dark-matter-apple-tv-everything-everywhere-all-at-once/
+
+Apple TV is the home of a compelling 9-part sci-fi series that perfectly fills the void left by an incredible 4-year-old Oscar-winning masterpiece.
+---------
+
+# Dragon Ball Secretly Has Anime's Most Retconned Character Of All Time, and It's Not Who Fans Think
+
+Anime, Dragon Ball
+
+Sun, 08 Mar 2026 04:30:19 GMT
+
+https://screenrant.com/dragon-ball-piccolo-most-retcons-anime-history/
+
+Dragon Ball is one of the longest-running anime series of all time, and it has a ton of retcons, but one character is retconned more than anyone else.
+---------
+
+# Evil: Stephen King-Approved Horror Show Gets Better With Each Season
+
+Classic TV, Evil, Horror
+
+Sun, 08 Mar 2026 04:05:36 GMT
+
+https://screenrant.com/evil-every-season-better-horror/
+
+A horror masterpiece, which has been approved by Stephen King, only keeps getting better with each new instalment in its incredible four-season run.
+---------
+
+# These 5 Resident Evil Games Deserve To Be Remakes Next
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sun, 08 Mar 2026 04:00:19 GMT
+
+https://screenrant.com/resident-evil-best-games-remake-next/
+
+Resident Evil has already delivered a long succession of iconic remakes, but these five classics are all strong candidates for the future.
+---------
+
+# 8 Best New-Gen Fantasy Anime With Zero Bad Episodes (All 10/10)
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 08 Mar 2026 03:51:30 GMT
+
+https://screenrant.com/best-new-fantasy-anime-no-bad-episodes-list/
+
+While the classics are amazing, these new-gen anime have everything they need to be considered among the best fantasy anime of all time.
+---------
+
+# Why Watching Gen V Before The Boys Season 5 Is Crucial
+
+Streaming TV, The Boys, Prime Video, Gen V
+
+Sun, 08 Mar 2026 03:31:37 GMT
+
+https://screenrant.com/gen-v-the-boys-essential-spinoff-viewing/
+
+One of the best sci-fi shows on Prime Video is set to return soon, but before its release, it is necessary to watch its incredibly spinoff series.
+---------
+
+# Disney's New Movie Unlocks Pixar's All-Time Elite Rotten Tomatoes List
+
+Movies, Hoppers, Disney, Pixar
+
+Sun, 08 Mar 2026 03:21:56 GMT
+
+https://screenrant.com/hoppers-movie-pixar-top-5-rotten-tomatoes-audience-score-elite-list/
+
+Disney's new sci-fi movie is becoming the biggest Pixar comeback yet, and now a Rotten Tomatoes score is enough to join the studio's elite list.
+---------
+
+# It's the End of an Era for JJK
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Sun, 08 Mar 2026 04:46:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-modulo-end-of-era/
+
+Yuji Itadori's adventures with the next generation of jujutsu sorcerers have already drawn to a close.
+---------
+
+# 10 Iconic Anime That Were Only Good For the First Season
+
+Anime
+
+Sun, 08 Mar 2026 04:46:12 GMT
+
+https://www.cbr.com/best-anime-only-good-first-season/
+
+A few beloved series like Tokyo Ghoul and Sword Art Online are remembered almost entirely for their incredible first season.
+---------
+
+# 'Most Stressed I've Ever Been': Yuji Itadori's VA Talks Jujutsu Kaisen, Shibuya Incident, & the Future of the Culling Game
+
+Anime, interview, Interviews, Jujutsu Kaisen
+
+Sun, 08 Mar 2026 04:45:00 GMT
+
+https://www.cbr.com/adam-mcarthur-interview-jjk-yuji-itadori/
+
+Yuji Itadori's voice actor, Adam McArthur, sat down with CBR to discuss the success of Jujutsu Kaisen Season 3.
+---------
+
+# 5 Great Apple TV Shows That Were Buried by Severance
+
+TV, Severance, Apple TV
+
+Sun, 08 Mar 2026 04:40:12 GMT
+
+https://www.cbr.com/great-apple-tv-shows-buried-by-severance/
+
+Severance has become the height of modern television, but that doesn't stop other Apple series from deserving their time in the sun.
+---------
+
+# Final Fantasy's Forgotten Spin-Off Game Has Aged Like Fine Wine
+
+Games, Final Fantasy
+
+Sun, 08 Mar 2026 04:15:12 GMT
+
+https://www.cbr.com/best-forgotten-final-fantasy-spinoff-dissidia-012/
+
+The Final Fantasy series is dragging out the Dissidia name for another mobile game that's going to flop, ignoring the clut classic that fans love.
+---------
+
+# 8 Perfect Sci-Fi Shows With Zero Filler
+
+TV, Sci-Fi, Battlestar Galactica, Severance, Tales from the Loop
+
+Sun, 08 Mar 2026 04:10:12 GMT
+
+https://www.cbr.com/perfect-sci-fi-shows-with-zero-filler-list/
+
+While many TV series include filler content, shows like Severance and Orphan Black are a true dream for sci-fi fans.
+---------
+
+# Steam Drops 5 New Free Games in March 2026, No Strings Attached
+
+Games, Steam
+
+Sun, 08 Mar 2026 04:00:12 GMT
+
+https://www.cbr.com/newest-free-steam-games-march-2026/
+
+Steam is giving away more free games this month, and once you claim them, they're yours to keep.
+---------
+
+# Everyone Ignores Peter Jackson's Underrated Film Forgotten Silver
+
+Movies, The Lord of the Rings, Forgotten Silver, peter jackson
+
+Sun, 08 Mar 2026 03:40:12 GMT
+
+https://www.cbr.com/before-lord-of-the-rings-peter-jackson-forgotten-silver/
+
+Peter Jackson is beloved for his work on The Lord of the Rings, but Forgotten Silver is a gem of his that no one talks about.
+---------
+
+# 15 Years Later, Chris Pratt's Greatest Parks & Rec Line Is Still 1 of the Funniest Quotes in Sitcom History
+
+TV, Parks and Recreation, Chris Pratt, Comedy
+
+Sun, 08 Mar 2026 03:40:12 GMT
+
+https://www.cbr.com/chris-pratt-parks-and-rec-funniest-quote/
+
+Parks and Rec has many hilarious characters, but Chris Pratt's Andy Dwyer is the only one to offer one of the funniest moments of improv on TV.
+---------
+
+# 35 Years Later, This Untouchable Dragon Ball Transformation Still Hasn’t Been Beaten
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sun, 08 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/best-dragon-ball-transformation-frieza/
+
+Dragon Ball has made a name for itself through its momentous transformations, but none can compare to Frieza's first transformation.
+---------
+
+# After 2 Years, One Chicago's Latest Crossover Proves 'P.D.' Can Finally Fix Its Biggest Mistake
+
+TV Features, One Chicago, Chicago P.D., Jesse Lee Soffer, Tracy Spiridakos
+
+Sun, 08 Mar 2026 04:00:12 GMT
+
+https://collider.com/chicago-pd-crossover-jay-halstead-hailey-upton/
+
+The latest One Chicago crossover event addresses Chicago P.D.'s biggest mistake with Jay Halstead's departure and the Upstead relationship.
+---------
+
+# 10 Best HBO Miniseries of All Time, Ranked
+
+TV, HBO, Band of Brothers, Chernobyl, Sharp Objects
+
+Sun, 08 Mar 2026 04:00:12 GMT
+
+https://collider.com/best-hbo-miniseries-ranked/
+
+Dive into HBO's best miniseries, ranked by quality and impact on television, featuring shows like Band of Brothers, Chernobyl, and Sharp Objects.
+---------
+
+# From 'Fallout' to 'Doctor Who,' the 10 Greatest Sci-Fi TV Quotes About War
+
+TV, Sci-Fi, Science Fiction, Fallout, Doctor Who
+
+Sun, 08 Mar 2026 04:00:12 GMT
+
+https://collider.com/best-sci-fi-tv-quotes-about-war/
+
+Sci-fi shows are home to deep, insightful quotes about the nature of war, as heard in lines from Fallout, Doctor Who, and Battlestar Galactica.
+---------
+
+# 18 Years Later, Jason Statham’s Forgotten Heist Thriller Is Hooking Free Streaming Viewers Fast
+
+Movie News, Jason Statham, The Bank Job, Streaming, Crime
+
+Sun, 08 Mar 2026 01:20:12 GMT
+
+https://collider.com/jason-statham-gritty-heist-thriller-the-bank-job-free-streaming-fawesome-march-2026/
+
+Eighteen years after its release, The Bank Job is now streaming free on Fawesome, giving viewers another chance to revisit Jason Statham’s thriller.
+---------
+
+# 18 Years Later, Shia LaBeouf’s 27% Rated Action Hit Just Landed on Free Streaming in America
+
+Movie News, Shia LaBeouf, Eagle Eye, Michelle Monaghan, Julianne Moore
+
+Sun, 08 Mar 2026 01:00:13 GMT
+
+https://collider.com/shia-labeouf-prophetic-sci-fi-thriller-eagle-eye-streaming-free-pluto-tv-march-2026/
+
+An important stepping stone in Shia LaBeouf's journey to stardom, the sci-fi movie Eagle Eye is streaming for free this month. Find out more.
+---------
+
+# Bradley Cooper's 105-Minute Sci-Fi Shocker Is Now Streaming for Free
+
+Movie News, Limitless, Bradley Cooper, Sci-Fi, Streaming
+
+Sun, 08 Mar 2026 00:40:12 GMT
+
+https://collider.com/bradley-cooper-high-concept-sci-fi-hit-limitless-free-streaming-fawesome-march-2026/
+
+Fifteen years after its release, Limitless is now streaming free on Fawesome, giving fans another chance to revisit Bradley Cooper’s addictive hit.
+---------
+
+# 4 Years Later, the $150 Million "So Bad It's Good" Sci-Fi Spectacle Is Now Streaming for Free
+
+Movie News, Moonfall, Roland Emmerich, Sci-Fi, Streaming
+
+Sun, 08 Mar 2026 00:20:12 GMT
+
+https://collider.com/roland-emmerich-sci-fi-misfire-moonfall-free-streaming-fawesome-march-2026/
+
+Four years after crashing into theaters, Roland Emmerich's sci-fi disaster Moonfall is now streaming for free. Find out more details below.
+---------
+
+# Hulu Just Added a 95% RT Sitcom That's Worth Rediscovering Now
+
+TV Features, New Girl, Hulu, Zooey Deschanel, Sitcom
+
+Sun, 08 Mar 2026 00:18:12 GMT
+
+https://collider.com/new-girl-streaming-hulu-sitcom-watch-now/
+
+Zooey Deschanel's hit FOX sitcom New Girl, also starring Jake Johnson, Lamorne Morris, and Max Greenfield, has aged incredibly well.
+---------
+
+# Apple TV’s Best Sci-Fi Completely Rewrites American History in Surprising Ways
+
+TV Features, For All Mankind, Apple TV, Sci-Fi, Ronald D. Moore
+
+Sun, 08 Mar 2026 00:18:12 GMT
+
+https://collider.com/for-all-mankind-apple-tv-best-sci-fi-rewrites-american-history/
+
+Apple TV's best sci-fi series, For All Mankind, rewrites American history with an ongoing space race, reshaping technology, politics, and society.
+---------
+
+# 10 Years Later, the Most Emotionally Devastating Sci-Fi Movie of the Century Is Finally Free To Stream
+
+Movie News, Arrival, Denis Villeneuve, Jeremy Renner, Amy Adams
+
+Sun, 08 Mar 2026 00:00:13 GMT
+
+https://collider.com/amy-adams-arrival-most-devastating-sci-fi-movie-of-the-century-streaming-free-pluto-tv-march-2026/
+
+The most moving sci-fi movie of the century, Denis Villeneuve's Arrival, is more accessible than ever this month. Find out more.
+---------
+
+# The 8 Most-Binge-Worthy Hospital Shows of the Century (So Far)
+
+TV Lists, The Pitt
+
+Sun, 08 Mar 2026 03:00:17 GMT
+
+https://movieweb.com/medical-tv-dramas-binge-watch/
+
+From 'Grey's Anatomy' to 'The Pitt,' there are several binge-worthy medical drama TV shows that fans are enjoying.
+---------
+
+# 'Tell Me Lies' Is an Erotic Thriller on Hulu That Keeps Getting Better
+
+Features, Tell Me Lies
+
+Sun, 08 Mar 2026 00:45:16 GMT
+
+https://movieweb.com/tell-me-lies-erotic-thriller-binge-watch/
+
+'Tell Me Lies' just ended with Season 3 on Hulu and stars Grace Van Patten and Jackson White as Lucy Albright and Stephen DeMarco.
+---------
+
+# 'Monster's Inc 3' Among New Pixar Films in Development
+
+Movie News, Disney, Monsters Inc. 3
+
+Sun, 08 Mar 2026 00:21:57 GMT
+
+https://movieweb.com/pixar-new-projects-monsters-inc-3/
+
+Over a decade after its last entry, Pixar is finally set to develop a third new movie in the 'Monsters, Inc.' franchise.
+---------
+
+# 10 Netflix Fantasy Series That Are Better Than 'The Witcher'
+
+TV Lists, Wednesday, Sweet Tooth
+
+Sun, 08 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/netflix-fantasy-shows/
+
+'The Witcher' didn't live up to expectations, but fear not, dear TV watcher -- these 10 Netflix fantasy shows are even better.
+---------
+
 # Sherlock: How The Detective Series Revolutionized Fandom Culture
 
 Classic TV, Sherlock
