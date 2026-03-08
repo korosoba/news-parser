@@ -1,3 +1,300 @@
+# George Clooney's Least Discussed Great Performance: The Descendants
+
+Movies, The Descendants, Recommendation
+
+Sun, 08 Mar 2026 13:45:18 GMT
+
+https://screenrant.com/the-descendants-george-clooney-best-underrated-performance/
+
+George Clooney has delivered great performances throughout his storied career, yet one of his best is from a movie that people rarely discuss.
+---------
+
+# Ginny & Georgia Season 4 Gets Major Production Update After Season 3’s Game-Changing Cliffhangers
+
+TV, Ginny & Georgia
+
+Sun, 08 Mar 2026 13:36:37 GMT
+
+https://screenrant.com/ginny-georgia-season-4-filming-wrap/
+
+Answers about Georgia's surprise pregnancy and her dangerous mother and stepfather are closer than ever thanks to this Ginny & Georgia update.
+---------
+
+# Marvel's $61M Box Office Bomb Officially Marked The End Of An Era For Spider-Man
+
+Superheroes, Spider-Man, Kraven the Hunter, Marvel Cinematic Universe
+
+Sun, 08 Mar 2026 13:31:18 GMT
+
+https://screenrant.com/kraven-the-hunter-spider-man-movies-end-era/
+
+One of the biggest box office bombs focused on a Marvel character has ended a Spider-Man era for good, changing the franchise's future in a big way.
+---------
+
+# I May Destroy You: A Forgotten Masterpiece Of The 2020s
+
+Classic TV, I May Destroy You
+
+Sun, 08 Mar 2026 13:31:18 GMT
+
+https://screenrant.com/i-may-destroy-you-best-2020s-tv-shows-forgotten/
+
+2020 saw the release of one of the best and most important TV shows of the decade, but, unfortunately, it has already been forgotten.
+---------
+
+# Resident Evil Fans Unite Behind Upcoming Leaked Remake
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sun, 08 Mar 2026 13:31:18 GMT
+
+https://screenrant.com/resident-evil-remake-curren-gen-fan-reaction/
+
+Resident Evil is going back to its roots with these remakes, and despite some pushback, fans are surprisingly optimistic about the news.
+---------
+
+# 10 Best X-Men Villains Introduced Since 2000
+
+Comics, X-Men
+
+Sun, 08 Mar 2026 13:31:18 GMT
+
+https://screenrant.com/best-x-men-villains-introduced-since-2000/
+
+Here are the 10 best X-Men villains introduced in the last twenty-six years, what they can do, and what makes them so interesting.
+---------
+
+# 27 Years Ago, Marvel Changed Movie History Forever With a $3.95 Billion Fumble
+
+Movies, Spider-Man
+
+Sun, 08 Mar 2026 13:17:53 GMT
+
+https://screenrant.com/marvel-changed-movie-history-spider-man-fumble/
+
+27 years ago, Marvel changed movie history with one $3.95 billion fumble that is still haunting them today. Yet, fans wouldn't have it any other way.
+---------
+
+# 2008's Record-Breaking War Movie Leaves Netflix This Month
+
+Movies, The Hurt Locker, Netflix
+
+Sun, 08 Mar 2026 13:15:18 GMT
+
+https://screenrant.com/the-hurt-locker-netflix-leave-date-movie/
+
+You only have weeks left to watch one of the most well-regarded war movies of all time on Netflix before it leaves the streaming service.
+---------
+
+# HBO Max’s 2-Part Slasher Series Is Perfect For Scream Fans
+
+TV, Pretty Little Liars, Pretty Little Liars: Original Sin, Scream, Scream 7
+
+Sun, 08 Mar 2026 13:01:18 GMT
+
+https://screenrant.com/scream-7-hbo-pretty-little-liars-slasher-r-rated-series/
+
+Although HBO Max's classic slasher series has been almost entirely forgotten, the show is perfect for fans who want more Scream after Scream 7.
+---------
+
+# The 1 Thing the Neuromancer TV Show Has To Get Right Immediately
+
+Streaming TV, Neuromancer, Apple TV
+
+Sun, 08 Mar 2026 13:01:18 GMT
+
+https://screenrant.com/neuromancer-cyberpunk-thriller-first-shot-perfect/
+
+Apple's new show all comes down to one shot.
+---------
+
+# Every Predator Movie, Ranked by Rewatchability
+
+Movies, Predator, Sci-Fi
+
+Sun, 08 Mar 2026 13:30:11 GMT
+
+https://www.cbr.com/every-predator-movie-ranked-by-rewatchability-list/
+
+The Predator franchise has more than a few fun entries, but even the best ones may not be the most rewatchable.
+---------
+
+# 3 Years Later, Keanu Reeves' $447M Revenge Thriller Defeats Competition on HBO Max Amid Sequel Uncertainty
+
+Movies, John Wick: Chapter 4, Keanu Reeves
+
+Sun, 08 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/keanu-reeves-thriller-john-wick-4-hbo-max-streaming-success-march-2026/
+
+Keanu Reeves' epic revenge story is surging on its new streaming home as fans eagerly await news of a potential sequel.
+---------
+
+# Steven Soderbergh’s Haywire is a Forgotten Spy Thriller That Does a Lot With a Little
+
+Movies, haywire
+
+Sun, 08 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/steven-soderbergh-forgotten-thriller-haywire-proves-less-is-more/
+
+2011's Haywire is a spy thriller few people know about, but it remains one of the best examples of a great modern spy story in recent years.
+---------
+
+# Studio Ghibli Revives Precious Anime Memories With Totoro & Howl's Moving Castle Mugs
+
+Anime, My Neighbor Totoro, Howl's Moving Castle, Studio Ghibli, merchandise
+
+Sun, 08 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/studio-ghibli-howl-totoro-mug-release/
+
+Studio Ghibli's official store revives two adorable pieces of kitchenware which pay tribute to My Neighbor Totoro and Howl's Moving Castle.
+---------
+
+# DC Comics' Most Haunting Villain Yet Belongs To Absolute Martian Manhunter
+
+Comics, DC Comics
+
+Sun, 08 Mar 2026 12:00:11 GMT
+
+https://www.cbr.com/absolute-martian-manhunter-despair-the-zero/
+
+The most twisted villain of all time is now a permanent fixture in the life of the Absolute Universe's most mind-bending hero.
+---------
+
+# 4 Years Later, Tom Cruise’s $1.4 Billion Masterpiece Soars Back Into the U.S. Top 10
+
+Movie News, Tom Cruise, Top Gun: Maverick, Action, Paramount Plus
+
+Sun, 08 Mar 2026 13:41:12 GMT
+
+https://collider.com/tom-cruise-top-gun-maverick-action-masterpiece-streaming-success-paramount-plus-march-2026/
+
+Tom Cruise's Top Gun: Maverick, cited as a movie that saved cinema following the pandemic, is a streaming hit again. Find out where below.
+---------
+
+# Ranking the 20 Best Crime Movie Masterpieces Ever Made
+
+Movie, Crime, Se7en, City of God, The Godfather
+
+Sun, 08 Mar 2026 13:30:12 GMT
+
+https://collider.com/best-crime-movies/
+
+Se7en, The Godfather, and Memories of Murder are all among the very best crime movies ever made.
+---------
+
+# CBS’ First ‘Fire Country’ Spin-Off Quietly Sets Streaming Competition Ablaze After Just 1 Season
+
+TV News, Sheriff Country, CBS, Paramount Plus, Streaming
+
+Sun, 08 Mar 2026 13:21:12 GMT
+
+https://collider.com/cbs-fire-country-spin-off-sheriff-country-streaming-success-paramount-plus-march-2026/
+
+CBS' explosive Fire Country spin-off starring Morena Baccarin, Sheriff Country, is a streaming hit again in the U.S. Find out more here.
+---------
+
+# 6 Years Before 'John Wick,' Keanu Reeves & Chris Evans Made This Unhinged Action Cult Classic
+
+Movie, Street Kings, Keanu Reeves, David Ayer, Chris Evans
+
+Sun, 08 Mar 2026 13:12:12 GMT
+
+https://collider.com/john-wick-keanu-reeves-street-kings-david-ayer-unhinged-cop-thriller-chris-evans/
+
+In between the Matrix trilogy and John Wick, Keanu Reeves starred in David Ayer’s Street Kings, a violent cop action thriller with Chris Evans.
+---------
+
+# Apple TV's 4-Part Answer to 'Succession' Quietly Returns to Streaming Charts
+
+TV News, The Morning Show, Succession, Apple TV, Streaming
+
+Sun, 08 Mar 2026 13:01:12 GMT
+
+https://collider.com/jennifer-aniston-the-morning-show-succession-replacement-streaming-success-apple-tv-march-2026/
+
+The controversial Apple TV series The Morning Show, starring Jennifer Aniston and Reese Witherspoon, is back on the U.S. streaming charts.
+---------
+
+# Ranking the 10 Best Pixar Movie Masterpieces
+
+Movie, Pixar, Animation, WALL-E, The Incredibles
+
+Sun, 08 Mar 2026 12:56:12 GMT
+
+https://collider.com/best-pixar-movie-masterpieces-ranked/
+
+The Incredibles, Toy Story, and WALL-E are all among the absolute best movies ever made by animation giant Pixar.
+---------
+
+# Crunchyroll’s 13-Episode Fantasy Anime Is a Rare Gem for ‘Lord of the Rings’ Fans
+
+TV Features, Crunchyroll, Anime, Record Of Lodoss War, The Lord of the Rings
+
+Sun, 08 Mar 2026 12:50:12 GMT
+
+https://collider.com/crunchyroll-best-fantasy-anime-series-record-of-lodoss-war/
+
+A band of heroes, dark magic, and classic fantasy adventure make this Crunchyroll anime a must-watch for Lord of the Rings fans.
+---------
+
+# 10 Greatest R-Rated Thriller Masterpieces of the Last 10 Years, Ranked
+
+Movie, Thriller, Oppenheimer, Uncut Gems, Joker
+
+Sun, 08 Mar 2026 12:45:12 GMT
+
+https://collider.com/best-r-rated-thriller-masterpieces-last-10-years-ranked/
+
+From Parasite to Oppenheimer, here are the greatest R-rated thrillers of the last decade, ranked by impact, tension, and craft.
+---------
+
+# 16 Years Before He Was an Oscar Nominee, Delroy Lindo was a Hilarious Stand-Out in This Pixar Movie
+
+Movie Features, Pixar, Up, Delroy Lindo, Sinners
+
+Sun, 08 Mar 2026 12:44:12 GMT
+
+https://collider.com/delroy-lindo-up-pixar/
+
+Before his Oscar-nominated turn in Sinners, Delroy Lindo was great at Beta, the talking dog in Pixar’s Up.
+---------
+
+# A 121-Episode 'Lost' Rewatch Proves This Sci-Fi Character Was Completely Doomed From the Start
+
+TV Features, Lost, ABC, Terry O'Quinn, Sci-Fi
+
+Sun, 08 Mar 2026 12:42:12 GMT
+
+https://collider.com/lost-john-locke-character-reveal-tragic/
+
+After rewatching Lost, it becomes clear that Terry O'Quinn's John Locke was always going to be the most tragic character.
+---------
+
+# Scott Grimes Opens Up About 'Ted' Season 2’s Wildest Episode [Exclusive]
+
+Exclusives, Ted, Scott Grimes
+
+Sun, 08 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/scott-grimes-matty-ted-season-2/
+
+Dungeons & Dragons plays a major role in 'Ted' Season 2's craziest episode, which star Scott Grimes explains in a new interview.
+---------
+
+# 3 Hard Sci-Fi Shows All Cyberpunk Fans Need to Stream
+
+TV Lists, Streaming Recommendations, Altered Carbon, Mr. Robot, Cyberpunk: Edgerunners, Sci-Fi
+
+Sun, 08 Mar 2026 12:00:20 GMT
+
+https://movieweb.com/3-hard-sci-fi-shows-all-cyberpunk-fans-need-to-stream/
+
+From murder investigations to hacktivism, these three shows have everything a cyberpunk fan could want in a series, and more.
+---------
+
 # Xbox Game Pass Drops Free Game That's Already A Steam Smash-Hit
 
 Gaming, Xbox Game Pass, Triple-A Games, PC, F1 24
