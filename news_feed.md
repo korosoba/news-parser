@@ -1,3 +1,311 @@
+# 10 Most Underrated Gary Oldman Movies Of All Time
+
+Movies, Gary Oldman, Nobody's Baby, Immortal Beloved, Romeo Is Bleeding, State of Grace, Rosencrantz & Guildenstern Are Dead, The Contender, The Firm, Chattahoochee, Track 29
+
+Sun, 08 Mar 2026 20:45:18 GMT
+
+https://screenrant.com/gary-oldman-movies-underrated/
+
+Discover the lesser-known gems in Gary Oldman's filmography that showcase his incredible acting range and utterly fearless performances.
+---------
+
+# Disney+'s 2-Part Fantasy Series Is One Of Its Best
+
+Classic TV, Percy Jackson & the Olympians
+
+Sun, 08 Mar 2026 20:32:19 GMT
+
+https://screenrant.com/percy-jackson-and-the-olympians-disney-plus-best-fantasy-show/
+
+Percy Jackson and the Olympians is one of the best fantasy shows on Disney+ and the upcoming season 3 is set to take on a darker and more mature tone.
+---------
+
+# The Modern-Day Peaky Blinders Deserves Its 91% RT Score
+
+Streaming TV, This City Is Ours
+
+Sun, 08 Mar 2026 20:30:18 GMT
+
+https://screenrant.com/this-city-is-ours-modern-peaky-blinders-deserves-praise/
+
+This City is Ours stars Sean Bean as a crime boss, whose death triggers a power struggle. The show is impressing both critics and audiences.
+---------
+
+# Super Rant's Weekend Post-Credits: Lanterns Trailer, Spider-Noir Villains, And More
+
+Superheroes, Marvel Cinematic Universe, DC Universe
+
+Sun, 08 Mar 2026 20:15:18 GMT
+
+https://screenrant.com/super-rant-weekend-post-credits-lanterns-trailer-spider-noir-villains-robert-downey-jr/
+
+Super Rant's latest weekend round-up of Marvel and DC movie and television news from the last week, making sure you don't miss a thing.
+---------
+
+# One Resident Evil Requiem Plot Point Makes Absolutely No Sense
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Sun, 08 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/resident-evil-requiem-braille-puzzle-story-problem/
+
+Resident Evil Requiem has an engaging story to tell, but you have to let your brain take a back seat to survive its most ludicrous leap.
+---------
+
+# 8 Sci-Fi Space Shows Better Than Star Trek
+
+Classic TV, Star Trek, Sci-Fi
+
+Sun, 08 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/sci-fi-space-shows-better-star-trek/
+
+Star Trek is one of the best sci-fi shows of all time, but these eight shows prove that it definitely isn't the best that has ever aired.
+---------
+
+# Assassin's Creed Is 100% Free for a Limited Time
+
+Games, Assassin's Creed Unity, Assassin's Creed
+
+Sun, 08 Mar 2026 20:40:12 GMT
+
+https://www.cbr.com/assassins-creed-free-dlc-unity-march-2026/
+
+One of the best Assassin's Creed games just got a completely free update ahead of its upcoming free-to-play window alongside other franchise hits
+---------
+
+# Solo Leveling Is 1 Step Away From a Major Crunchyroll Milestone
+
+Anime, Solo Leveling
+
+Sun, 08 Mar 2026 20:30:11 GMT
+
+https://www.cbr.com/solo-leveling-is-1-step-away-from-a-major-crunchyroll-milestone/
+
+One of the biggest hit anime series of the decade is getting ever closer to crossing one of the most massive milestones of all time.
+---------
+
+# The Best Damon Salvatore Quotes in The Vampire Diaries
+
+TV, The Vampire Diaries, Fantasy, The CW
+
+Sun, 08 Mar 2026 20:30:11 GMT
+
+https://www.cbr.com/the-vampire-diaries-best-damon-salvatore-quotes/
+
+Damon Salvatore is a big personality on The Vampire Diaries but he's also delivered on some truly unforgettable quotes.
+---------
+
+# Pulp Fiction Star Calls Out Quentin Tarantino for Controversial Dialogue
+
+Movies, Quentin Tarantino, Pulp Fiction
+
+Sun, 08 Mar 2026 20:21:06 GMT
+
+https://www.cbr.com/quentin-tarantino-dialogue-criticized-pulp-fiction-rosanna-arquette/
+
+Quentin Tarantino shouldn't be given a "hall pass" for his controversial dialogue, according to one of the stars of Pulp Fiction.
+---------
+
+# Crunchyroll's Sentenced to Be a Hero Has Changed Anime Heroes Forever
+
+Anime, Sentenced to Be a Hero, Crunchyroll, Fantasy
+
+Sun, 08 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/best-dark-fantasy-anime-2026-sentenced-to-be-a-hero/
+
+Sentenced to Be a Hero is one of 2026's most refreshing arrivals in anime, and it's all because of how this show makes becoming a hero a bad thing.
+---------
+
+# From Is Blowing Up on Streaming Ahead of Season 4
+
+TV, From
+
+Sun, 08 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/from-sci-fi-horror-mgm-plus-success-march-2026/
+
+The series is the perfect replacement for Lost and Dark.
+---------
+
+# The 10 Most Character-Defining Marvel Stories Of All Time
+
+Comics, Marvel
+
+Sun, 08 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/most-character-defining-marvel-stories/
+
+It can be hard to choose what comics to read for certain Marvel characters, but these ten Marvel books are must-read character-defining masterpieces.
+---------
+
+# Pixar’s 10 Biggest Opening Weekends Ever, Ranked
+
+Movies, pixar, Hoppers, box office
+
+Sun, 08 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/hoppers-pixar-biggest-opening-weekends-box-office-ranked-list/
+
+With Hopper opening in theaters, revisit some of Pixar's biggest opening weekends, from Inside Out to Toy Story.
+---------
+
+# Harry Styles Crashes Ryan Gosling’s Saturday Night Live Monologue
+
+TV, Saturday Night Live, SNL
+
+Sun, 08 Mar 2026 19:52:58 GMT
+
+https://www.cbr.com/harry-styles-crashes-ryan-gosling-saturday-night-live-monologue/
+
+Ryan Monologue's recent Saturday Night Live monologue gets crashed by Harry Styles in classic sketch comedy fashion, much to the delight of fans.
+---------
+
+# 10 Action Movies That Are Near-Perfect Masterpieces
+
+Movie, Action, John Wick: Chapter 4, The Rock, Die Hard: With a Vengeance
+
+Sun, 08 Mar 2026 20:47:12 GMT
+
+https://collider.com/action-movies-near-perfect-masterpieces/
+
+From The Rock to John Wick: Chapter 4, these exciting action movies are great and come extremely close to being faultless masterpieces of the genre.
+---------
+
+# This 84% RT Survival Thriller Is Pulling a New Generation of Viewers Into the Water
+
+Movie News, Crawl, Kaya Scodelario, Paramount Plus, Thriller
+
+Sun, 08 Mar 2026 20:40:12 GMT
+
+https://collider.com/most-intense-survival-thriller-crawl-streaming-paramount-plus-march-2026/
+
+The 2019 survival thriller Crawl, starring Kaya Scodelario and Barry Pepper is now available on a new streaming home amid the development of a sequel.
+---------
+
+# This Is the Mount Rushmore of Zombie Movies
+
+Movie, Night of the Living Dead, Dawn of the Dead, 28 Days Later, Shaun of the Dead
+
+Sun, 08 Mar 2026 20:33:12 GMT
+
+https://collider.com/best-zombie-movies-mount-rushmore/
+
+Narrowing down the four best, most important zombie movies ever made isn't easy, but classics like Dawn of the Dead and 28 Years Later make the cut.
+---------
+
+# 33 Years Later, the Most Iconic Football Movie in History Is Leaving Free Streaming
+
+Movie News, Rudy, Sean Astin, Sports, Streaming
+
+Sun, 08 Mar 2026 20:20:12 GMT
+
+https://collider.com/rudy-most-iconic-football-movie-leaving-pluto-tv-streaming-march-2026/
+
+Rudy, the beloved sports drama starring Sean Astin, is currently streaming for free, making now the right time to revisit this sports classic.
+---------
+
+# Netflix’s 3-Part Post-Apocalyptic Masterpiece Rewrites Sci-Fi Genre Rules
+
+TV Features, Sweet Tooth, Sci-Fi, Netflix, Drama
+
+Sun, 08 Mar 2026 20:18:12 GMT
+
+https://collider.com/sweet-tooth-netflix-post-apocalyptic-sci-fi-genre/
+
+Netflix's Sweet Tooth rewrites post-apocalyptic sci-fi with a hopeful, family-friendly tone, offering an optimistic take on a typically dark genre.
+---------
+
+# Before 'Hamnet,' Jessie Buckley Became a Star as a Country Singer in This 92% RT Surprise
+
+Movie Features, Jessie Buckley, Wild Rose, Hamnet, Oscars
+
+Sun, 08 Mar 2026 20:18:12 GMT
+
+https://collider.com/jessie-buckley-wild-rose-hamnet/
+
+The British music drama Wild Rose laid the foundations for Jessie Buckley's Oscar journey with Hamnet.
+---------
+
+# These Groundbreaking Mystery Shows Don't Waste a Single Scene
+
+TV, Mystery, Severance, Death Note, From
+
+Sun, 08 Mar 2026 20:17:12 GMT
+
+https://collider.com/mystery-shows-no-wasted-scenes/
+
+The best mystery shows are the ones that use every scene to piece together its story, as seen in series like Severance, Death Note, and From.
+---------
+
+# 10 Greatest Superhero Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, Superhero, The Incredibles, Spider-Man: Into The Spider-Verse, Captain America: The Winter Soldier
+
+Sun, 08 Mar 2026 20:03:12 GMT
+
+https://collider.com/best-superhero-movie-masterpieces-last-100-years-ranked/
+
+From acclaimed sequels like X2: X-Men United to wholly original ideas like The Incredibles, these are the best superhero movies of the last century.
+---------
+
+# Matt Damon’s 126-Minute Career-Defining Drama Has Quietly Made a Streaming Move
+
+Movie News, Matt Damon, Good Will Hunting, Paramount Plus, Ben Affleck
+
+Sun, 08 Mar 2026 20:01:12 GMT
+
+https://collider.com/matt-damon-126-minute-career-defining-drama-streaming-paramount-plus-march-2026/
+
+Good Will Hunting, starring Matt Damon and which marked a turning point in his career, has quietly arrived on a new streaming home.
+---------
+
+# Rosanna Arquette Calls Out Quentin Tarantino Over N-Word
+
+Movie News, Quentin Tarantino, Rosanna Arquette, Pulp Fiction
+
+Sun, 08 Mar 2026 20:42:09 GMT
+
+https://movieweb.com/rosanna-arquette-quentin-tarantino-racist/
+
+Rosanna Arquette objects to the director's use of the N-word in his films. "It’s not art, it’s just racist and creepy.”
+---------
+
+# James Gunn's Latest 'Lantern' Post Might Spoil the Series Mystery
+
+Features, Lanterns, DCU
+
+Sun, 08 Mar 2026 20:30:16 GMT
+
+https://movieweb.com/james-gunn-green-lanterns-tease/
+
+James Gunn shared a series of Green Lantern comics whose storylines might reveal the plot of 'Lanterns' and the mystery at the heart of the DCU.
+---------
+
+# 'A Knight of the Seven Kingdoms' Fixes What's Wrong With Modern Fantasy
+
+Features, A Knight Of The Seven Kingdoms, Game of Thrones, Fantasy
+
+Sun, 08 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/knight-of-the-seven-kingdoms-fixes-modern-fantasy/
+
+George R.R. Martin and Ira Parker's six-episode series understands the importance of good character work.
+---------
+
+# 'The Bride' Bombs As 'Hoppers' Breaks Pixar's 9-Year Box Office Streak
+
+Movie News, The Bride!, Hoppers, box office, Scream 7
+
+Sun, 08 Mar 2026 19:54:00 GMT
+
+https://movieweb.com/the-bride-bombs-hoppers-breaks-pixars-box-office-streak/
+
+The new experimental horror movie 'The Bride!' bombed at the box office this weekend, but Pixar had its first major original hit in nearly a decade.
+---------
+
 # 10 TV Shows That Get Better With Every Rewatch
 
 Classic TV
