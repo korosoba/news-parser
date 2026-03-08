@@ -1,3 +1,36 @@
+# Pokémon Legends: Z-A Free Download Available Now For Series' 30th Anniversary
+
+Gaming, Pokemon Legends Z-A
+
+Sun, 08 Mar 2026 09:30:18 GMT
+
+https://screenrant.com/pokemon-legends-za-free-download-march-2026-anniversary/
+
+As Pokémon turns 30, fans of Pokémon Legends: Z-A can grab a free Mega Stone for Garchomp's new Mega Evolution.
+---------
+
+# Resident Evil's Next Three Leaked Games Prove We'll Be Eating Well For Years
+
+Gaming, Resident Evil, Resident Evil 9, Triple-A Games
+
+Sun, 08 Mar 2026 09:00:19 GMT
+
+https://screenrant.com/resident-evil-next-3-games-leaked-resi-10-remakes/
+
+We might already know what comes next for the Resident Evil series, and if true, it's a very good time to be a fan.
+---------
+
+# 10 TV Characters Who Entered Their Redemption Era
+
+TV, Loki, New Girl, Parks and Recreation, Game Of Thrones
+
+Sun, 08 Mar 2026 09:26:12 GMT
+
+https://collider.com/best-tv-character-redemption-arcs/
+
+Meet the TV characters who transformed from villains to heroes through great redemption arcs, from Game of Thrones' Theon Greyjoy to the MCU's Loki.
+---------
+
 # SNL Recap: Ryan Gosling Hosts As Harry Styles Guest Stars
 
 TV, Saturday Night Live
