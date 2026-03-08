@@ -1,3 +1,377 @@
+# Netflix's Upcoming Western Reboot Is The Antidote To Yellowstone
+
+Classic TV, Little House on the Prairie
+
+Sun, 08 Mar 2026 19:01:18 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-yellowstone-antidote/
+
+One of the most anticipated shows on Netflix is the reboot of the classic Western TV show, Little House on the Prairie, which is not like Yellowstone.
+---------
+
+# The Last Of Us Officially Returns With New Release This March
+
+Gaming, The Last of Us, PC
+
+Sun, 08 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/the-last-of-us-part-1-new-joel-ellie-release-march-2026/
+
+The Last of Us is among the most iconic post-apocalyptic zombie franchises ever made, and fans are getting a brand-new release this month.
+---------
+
+# Pixar Pulls The Biggest Comeback Of The Decade With New Disney Movie Setting Box Office Record
+
+Movies, Hoppers, Pixar, Box Office
+
+Sun, 08 Mar 2026 18:57:58 GMT
+
+https://screenrant.com/hoppers-box-office-biggest-opening-original-animated-movie-global-record/
+
+In addition to receiving critical acclaim, the opening of Pixar's Hoppers is helping the animation studio make a significant box office comeback.
+---------
+
+# Crime Drama Fans Must Watch Bryan Cranston's Forgotten 96% RT Series
+
+Classic TV, Bryan Cranston, sneaky pete
+
+Sun, 08 Mar 2026 18:45:18 GMT
+
+https://screenrant.com/sneaky-pete-bryan-cranston-crime-drama-must-watch/
+
+Discover the dark comedy crime drama Sneaky Pete, co-created by Bryan Cranston, that has flown under the radar despite its 97% Rotten Tomatoes score.
+---------
+
+# Pokèmon Pokopia: How To Get Bricks
+
+Gaming, Pokemon Pokopia
+
+Sun, 08 Mar 2026 18:37:09 GMT
+
+https://screenrant.com/pokmon-pokopia-how-to-get-bricks/
+
+You'll need to use Bricks to build quite a few things during your cozy adventure, so here's how to get more of this material.
+---------
+
+# Why Michael Mann's 3 Hour Crime Movie Has Stood The Test Of Time To Get Viewers Excited For A Sequel 31 Years Later
+
+Movies, Heat, Crime, Explainer
+
+Sun, 08 Mar 2026 18:30:18 GMT
+
+https://screenrant.com/heat-still-good-relevant-today-31-years-later/
+
+It's been 31 years since Michael Mann's 3-hour-long heist movie changed the face of the genre, and viewers are still excited for its upcoming sequel.
+---------
+
+# All 11 Titan Types In Attack On Titan Explained
+
+Anime, Attack on Titan
+
+Sun, 08 Mar 2026 18:01:19 GMT
+
+https://screenrant.com/attack-titan-types-versions-explained/
+
+Hajime Isayama's Attack on Titan features many iconic Titan types, and each Titan variant is unique. Here are all 11 types of AoT Titans explained.
+---------
+
+# Lethal Weapon: A Timeless Masterpiece of Buddy Cop Cinema
+
+Movies, Lethal Weapon
+
+Sun, 08 Mar 2026 18:01:17 GMT
+
+https://screenrant.com/lethal-weapon-buddy-cop-movie-aged-well/
+
+Nearly four decades later, the quintessential buddy cop movie — 1987's Lethal Weapon — remains a timeless masterpiece of action cinema.
+---------
+
+# Dark Souls: Archthrones Is The Dark Souls We've Been Waiting For
+
+Gaming, Dark Souls
+
+Sun, 08 Mar 2026 18:01:17 GMT
+
+https://screenrant.com/dark-souls-4-archthrones-fan-project/
+
+Discover Dark Souls: Archthrones, an unofficial but fully-fledged expansion offering new lore, enemies, bosses, and more.
+---------
+
+# 10 Best RPGs To Play If You Love Game Of Thrones
+
+Gaming, Game of Thrones, RPG, PC, A Song of Ice and Fire
+
+Sun, 08 Mar 2026 18:01:17 GMT
+
+https://screenrant.com/best-game-of-thrones-video-games-for-fans/
+
+If you're a fan of Game of Thrones and are sick of waiting for a truly great RPG set in Westeros, these 10 games will scratch that ASOIF itch.
+---------
+
+# Alien: Romulus Overtakes Jurassic World on a Surprising Streaming Platform
+
+Movies, Alien: Romulus, Sci-Fi, Jurassic World
+
+Sun, 08 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/alien-romulus-overtakes-jurassic-world-rebirth-hbo-max-march-2026/
+
+The legacy sequel that officially resurrected a classic sci-fi franchise is officially dominating the streaming charts in a surprising move.
+---------
+
+# Stephen King Movies That Completely Changed the Books
+
+Movies, Stephen King, Horror
+
+Sun, 08 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/stephen-king-movies-completely-changed-book-list/
+
+Stephen King has had numerous books adapted to the screen, and while some took big liberties with the material, they are still beloved anyway.
+---------
+
+# The Best Medical Drama Series of All Time ER Is Challenging The Pitt on HBO Max
+
+Movies, The Pitt, ER, HBO Max
+
+Sun, 08 Mar 2026 18:41:11 GMT
+
+https://www.cbr.com/er-medical-drama-challenging-the-pitt-hbo-max-march-2026/
+
+The Pitt might be one of the biggest medical shows on television, but its reign at the top of the charts has just been challenged by a longtime heavy-
+---------
+
+# Pixar Is Using Disney's Animated Musical Plan for Its Next Movie
+
+Movies, Disney, Animation
+
+Sun, 08 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/pixar-using-disney-musical-animation/
+
+Pixar has created some of the most iconic animated movies of all time, and now it is taking a new page from Disney's playbook.
+---------
+
+# Before Landman, Taylor Sheridan Got His Start as an Actor in Veronica Mars
+
+TV, Landman, Veronica Mars, The CW
+
+Sun, 08 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/landman-taylor-sheridan-veronica-mars-debut-acting-role/
+
+Before creating some of the best shows on TV, Taylor Sheridan made his start with a small recurring role in CW's Veronica Mars.
+---------
+
+# 10 Naruto Characters With the Most Wasted Potential
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 08 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/naruto-shippuden-characters-wasted-potential/
+
+Naruto & Naruto: Shippuden delivered some of the strongest ninja ever seen in anime, but a few characters never mattered the way they should've.
+---------
+
+# Tom Felton's Fackham Hall Becomes an Instant Streaming Hit on HBO Max
+
+Movies, Fackham Hall, tom felton
+
+Sun, 08 Mar 2026 18:04:06 GMT
+
+https://www.cbr.com/tom-felton-period-comedy-fackham-hall-hbo-max-success-march-2026/
+
+The period drama is the perfect spoof for Downton Abbey, Airplane!, and Monty Python fans.
+---------
+
+# Crunchyroll Claims Another Netflix 'Exclusive' With New Dorohedoro Streaming Release
+
+Anime, Dorohedoro, Crunchyroll, Netflix
+
+Sun, 08 Mar 2026 18:00:11 GMT
+
+https://www.cbr.com/crunchyroll-dorohedoro-season-2-streaming-release-date/
+
+One of the hottest dark fantasy anime series makes its way to Crunchyroll, just in time for new episodes after a long, 6-year wait.
+---------
+
+# Emma Watson's 13-Year-Old Hollywood True-Crime Drama Won’t Be on Streaming Much Longer
+
+Movie News, The Bling Ring, Emma Watson, Crime, Streaming
+
+Sun, 08 Mar 2026 19:00:13 GMT
+
+https://collider.com/emma-watson-true-crime-drama-the-bling-ring-leaving-pluto-tv-streaming-end-of-march-2026/
+
+The Bling Ring is currently listed in Pluto TV’s rotating “Leaving Soon” lineup, giving viewers limited time to revisit Emma Watson’s chaotic hit.
+---------
+
+# 6 Best Korean Folklore Movies of All Time, Ranked
+
+Movie, South Korea, The Wailing, A Tale of Two Sisters, KPop Demon Hunters
+
+Sun, 08 Mar 2026 18:49:12 GMT
+
+https://collider.com/best-korean-folklore-movies-all-time-ranked/
+
+KPop Demon Hunters, Exhuma, The Wailing, The Mimic, and more make up our list of the best Korean folklore movies of all time.
+---------
+
+# Bruce Springsteen Secretly Hated the Album That Made Him Famous and Became His Biggest Hit
+
+Music Features, Bruce Springsteen
+
+Sun, 08 Mar 2026 18:48:19 GMT
+
+https://collider.com/bruce-springsteen-secretly-hated-his-biggest-album-born-to-run/
+
+Bruce Springsteen's iconic album Born to Run became a hit despite the artist's initial disdain, and how it transformed his career.
+---------
+
+# Move Over 'Reacher' — Alan Ritchson’s $80M Sci-Fi Action Movie Is the New King of Streaming
+
+Movie News, Alan Ritchson, Reacher, War Machine, Netflix
+
+Sun, 08 Mar 2026 18:45:22 GMT
+
+https://collider.com/alan-ritchson-biggest-star-sci-fi-movie-war-machine-global-streaming-success-netflix-march-2026/
+
+Alan Ritchson’s new Netflix sci-fi action movie War Machine has surged to the top of the streamer’s worldwide charts. Read on for details.
+---------
+
+# Say Goodbye to A24’s Oscar-Winning Drama That Sparked Endless Controversy
+
+Movie News, The Whale, A24, HBO Max, Brendan Fraser
+
+Sun, 08 Mar 2026 18:41:12 GMT
+
+https://collider.com/brendan-fraser-the-whale-a24-most-controversial-oscar-winning-drama-leaving-streaming-hbo-max-march-2026/
+
+A24's The Whale, starring Brendan Fraser, is set to leave a major streaming home this month, almost four years after its theatrical release.
+---------
+
+# This Is the Most Rewatchable Sci-Fi Movie Masterpiece of the 21st Century — Plus 9 Others
+
+Movie, Science Fiction, Children of Men, Dune: Part Two, Edge of Tomorrow
+
+Sun, 08 Mar 2026 18:41:12 GMT
+
+https://collider.com/most-rewatchable-sci-fi-movie-masterpieces-21st-century/
+
+Sci-fi masterpieces like Annihilation and Children of Men reward multiple rewatches, thanks to their complex narratives and engaging character arcs.
+---------
+
+# 10 Most Disturbing Movies Without Extreme Violence, Ranked
+
+Movie, Oppenheimer, The Zone of Interest, All That Jazz, The Night of the Hunter
+
+Sun, 08 Mar 2026 18:31:12 GMT
+
+https://collider.com/most-disturbing-movies-without-extreme-violence-ranked/
+
+Movies like Oppenheimer, The Zone of Interest, and The Wages of Fear are intense and disturbing without showing any extreme violence on screen.
+---------
+
+# 18 Years Later, Jake Gyllenhaal’s Serial Killer Masterpiece Reopens the Case on a Free Streamer
+
+Movie News, Zodiac, David Fincher, Streaming, Robert Downey Jr
+
+Sun, 08 Mar 2026 18:20:12 GMT
+
+https://collider.com/david-fincher-serial-killer-thriller-zodiac-free-streaming-fawesome-march-2026/
+
+18 years after its release, David Fincher’s star-studded true-crime thriller Zodiac is now streaming for free. Read on for more details.
+---------
+
+# Essential Classics About Tortured Artists That Every Movie Lover Must Watch
+
+Movie, Babylon, Black Swan, Inside Llewyn Davis, Loving Vincent
+
+Sun, 08 Mar 2026 18:11:12 GMT
+
+https://collider.com/essential-classics-tortured-artists-every-movie-lover-must-watch/
+
+From Black Swan to Babylon, these movies explore the pressures and demands that come with truly great art through the eyes of a tortured protagonist.
+---------
+
+# ABC’s Cozy 8-Part Police Drama Is Suddenly the Hottest Show on Streaming
+
+TV News, The Rookie, ABC, Drama, Procedural
+
+Sun, 08 Mar 2026 18:00:12 GMT
+
+https://collider.com/abc-nathan-fillion-the-rookie-cozy-8-part-police-drama-streaming-success-hulu-march-2026/
+
+ABC's fan-favorite drama continues to dominate streaming, both domestically and internationally. Get all the details about The Rookie here.
+---------
+
+# Best Shows on BritBox With High Rotten Tomatoes Scores
+
+TV Lists, Rotten Tomatoes
+
+Sun, 08 Mar 2026 19:00:19 GMT
+
+https://movieweb.com/best-shows-on-britbox-high-rotten-tomatoes-scores/
+
+Of all the great small-screen productions available on BritBox, these are the cream of the crop, according to Rotten Tomatoes.
+---------
+
+# Tom Hardy's Thriller 'Locke' Revs Up the HBO Max Charts
+
+Movie News, Hot on Streaming, Tom Hardy, Locke, HBO Max
+
+Sun, 08 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/locke-tom-hardy-hbox-max-march-2026/
+
+The movie, which is contained entirely in one car, might be Hardy's most tense performance.
+---------
+
+# 'Hoppers' Release Date Marks Six Year Anniversary of Major Turning Point for Pixar
+
+Features, Hoppers
+
+Sun, 08 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/pixar-hoppers-6-year-anniversary-onward/
+
+'Hoppers' March 6, 2026, release date has it opening on the sixth anniversary of 'Onward', which was supposed to kick off a new era for Pixar.
+---------
+
+# Every Alex Garland Movie, Ranked
+
+Movie Lists, Alex Garland
+
+Sun, 08 Mar 2026 18:30:17 GMT
+
+https://movieweb.com/alex-garland-ranked/
+
+The director of the upcoming 'Elden Ring' movie has had an impressive filmography up to this point.
+---------
+
+# Ryan Gosling Cracks in 'SNL's "Passing Notes" Sketch
+
+TV Trailers, Ryan Gosling, Saturday Night Live, Comedy
+
+Sun, 08 Mar 2026 18:09:28 GMT
+
+https://movieweb.com/ryan-gosling-snl-passing-notes/
+
+Ryan Gosling has a history of breaking during sketches on 'Saturday Night Light.' Last night, the writers took full advantage.
+---------
+
+# 'Scrubs' Revival Episode 3 Makes It Clear How Difficult JD & Elliot's Divorce Has Been
+
+Features, Scrubs
+
+Sun, 08 Mar 2026 18:00:16 GMT
+
+https://movieweb.com/scrubs-revival-jd-elliot-fix/
+
+The JD storyline that no one wanted to happen in the 'Scrubs' revival seemed like it had been mishandled. That's now been rectified.
+---------
+
 # Fringe Was Unrecognizable By Its Final Season
 
 Classic TV, Fringe
