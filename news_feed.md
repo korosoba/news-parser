@@ -1,3 +1,223 @@
+# Scrubs’ Missing Fan-Favorite Character Will Return On One Condition, Reveals Creator
+
+TV, Scrubs
+
+Sun, 08 Mar 2026 14:21:35 GMT
+
+https://screenrant.com/scrubs-revival-doctor-bob-kelso-return-bill-lawrence-response/
+
+The return of Scrubs has everyone reminiscing on old times, including a fan-favorite character who has claimed they will return on one condition.
+---------
+
+# Camila Mendes' Overlooked 96% Rom-Com: Música
+
+Movies, Música, Camila Mendes, Recommendation
+
+Sun, 08 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/musica-camila-mendes-great-romantic-comedy-recommendation/
+
+Camila Mendes starred in a romantic comedy in 2024 that has a tremendous Rotten Tomatoes rating and is an overlooked great rom-com.
+---------
+
+# A 38-Year-Old Game Has A Surprising Influence On The Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Sun, 08 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-bros-2-influence-wart/
+
+A classic Nintendo game released in 1988 appears to have a surprising amount on influence on the story of The Super Mario Galaxy Movie.
+---------
+
+# Xbox Offering Free Call Of Duty Game For 24 More Hours
+
+Gaming, Call of Duty, Triple-A Games, PC
+
+Sun, 08 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/xbox-call-duty-black-ops-7-free/
+
+This weekend, Xbox is offering a free weekend for multiple games, and two of them don't require an active Xbox Game Pass subscription.
+---------
+
+# It Took 9 Episodes, But The Pitt Season 2 Introduced A Patient We’ve Been Waiting For (With A Twist)
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Sun, 08 Mar 2026 14:12:18 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-9-firecracker-july-4th-accident-sad-twist/
+
+After months of anticipation, The Pitt season 2 delivers the 4th of July injury we were all waiting for in episode 9, but the case takes a dark turn.
+---------
+
+# Pokémon Champions Will Make One Major Change To The Pokémon Competitive Scene
+
+Gaming, Pokemon
+
+Sun, 08 Mar 2026 14:00:18 GMT
+
+https://screenrant.com/pokemon-champions-ev-iv-explanation-info/
+
+Pokémon Champions is bringing major changes to the world of competitive Pokémon, and fans are considering whether they'll be good for the community.
+---------
+
+# Fantasy TV Shows That Improve After Season 1
+
+Streaming TV, Fantasy
+
+Sun, 08 Mar 2026 14:00:18 GMT
+
+https://screenrant.com/fantasy-shows-get-better-after-season-1/
+
+Not all fantasy shows start strong. From epic battles to dark mysteries, these series delivering richer plots, lore, and epic moments after Season 1.
+---------
+
+# 10 Marvel Heroes Who Stronger Because Of Their Flaws
+
+Comics, Marvel
+
+Sun, 08 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/marvel-heroes-who-are-better-due-to-their-flaws/
+
+With great power, comes even greater struggles to overcome.
+---------
+
+# 15 Years Later, Jake Gyllenhaal’s High-Stakes Sci-Fi Time-Loop Thriller Breaks Into Free Streaming
+
+Movie News, Sci-Fi, Source Code, Jake Gyllenhaal, Streaming
+
+Sun, 08 Mar 2026 14:40:12 GMT
+
+https://collider.com/jake-gyllenhaal-high-stakes-sci-fi-time-loop-thriller-source-code-free-streaming-fawesome-march-2026/
+
+Jake Gyllenhaal’s underrated 2011 sci-fi thriller Source Code by director Duncan Jones, is now streaming free. Find out more below.
+---------
+
+# 'Scream 7' Pushes the Iconic Horror Franchise Past a Stunning $1 Billion Milestone
+
+Movie News, Scream 7, Neve Campbell, Courteney Cox, Scream
+
+Sun, 08 Mar 2026 14:34:10 GMT
+
+https://collider.com/scream-7-global-box-office-150-million-franchise-total-record-over-1-billion/
+
+Scream 7 has officially pushed the 30-year-old franchise past the $1 billion mark at the box office.
+---------
+
+# 5 Seasons Later, It's Finally Time To Say Goodbye to 'The Bear'
+
+TV Features, The Bear, FX, Jeremy Allen White, Drama
+
+Sun, 08 Mar 2026 14:29:12 GMT
+
+https://collider.com/the-bear-season-5-show-ending/
+
+As The Bear prepares for its fifth season, the show's character arcs are poised for a satisfying conclusion, marking the end of a journey.
+---------
+
+# 3 Years Later, Marvel's Most Impressive Superhero Sequel Swings Across Disney+ Charts
+
+Movie News, Spider-Man: Across the Spider-Verse, Marvel, Disney+, Streaming
+
+Sun, 08 Mar 2026 14:20:12 GMT
+
+https://collider.com/spider-man-across-the-spider-verse-streaming-success-disney-plus-february-2026/
+
+The Spider-Man movie many people consider the superhero's most impressive is a streaming hit on Disney+. Find out more details below.
+---------
+
+# Tom Hanks’ 82% Rotten Tomatoes Comedy Classic Proves His Oscar Range Beyond ‘Forrest Gump’
+
+Movie Features, A League of Their Own, Tom Hanks, Geena Davis, Madonna
+
+Sun, 08 Mar 2026 14:09:12 GMT
+
+https://collider.com/tom-hanks-a-league-of-their-own/
+
+Before ‘Forrest Gump,’ Tom Hanks’ most layered performance arrived in an unexpected place: Penny Marshall’s baseball comedy ‘A League of Their Own'.
+---------
+
+# Anderson .Paak Reveals the 1 Thing He Wants You to Take Away From His Deeply Personal Directorial Debut [Exclusive]
+
+Exclusives, Anderson .Paak, K-Pops!, Comedy, Yvette Nicole Brown
+
+Sun, 08 Mar 2026 14:00:12 GMT
+
+https://collider.com/k-pops-anderson-paak-directorial-debut-wants-families-take-away-love/
+
+Anderson .Paak shared what he hopes the big takeaway is for families when watching his directorial debut comedy, K-Pops!.
+---------
+
+# Prime Video's Controversial 3-Part YA Romance Has Smashed a Massive Streaming Milestone
+
+TV News, The Summer I Turned Pretty, Lola Tung, Prime Video, Streaming
+
+Sun, 08 Mar 2026 14:00:12 GMT
+
+https://collider.com/the-summer-i-turned-pretty-controversial-3-part-ya-romance-200-days-streaming-milestone-prime-video-march-2026/
+
+The Summer I Turned Pretty, Prime Video's discourse-dominating series, has just hit an incredible milestone. Here's everything you should know.
+---------
+
+# 15 Years Later, ‘Fallout’ EP’s Unforgettable Sci-Fi Masterpiece Proves Its Staying Power
+
+TV News, Jonathan Nolan, Person of Interest, Michael Emerson, Jim Caviezel
+
+Sun, 08 Mar 2026 13:56:17 GMT
+
+https://collider.com/person-of-interest-jonathan-nolan-sci-fi-masterpiece-streaming-success-netflix-march-2026/
+
+15 years later, Jonathan Nolan’s 103-episode sci-fi masterpiece Person of Interest proves it’s still one of the best of the genre.
+---------
+
+# Ranking the 2026 Best Animated Short Nominees
+
+Movie, Oscars, Academy Awards, Animation
+
+Sun, 08 Mar 2026 13:55:12 GMT
+
+https://collider.com/oscars-2026-best-animated-short-nominees-ranked/
+
+We're going to rank every single Oscar nomine
+---------
+
+# Disney's Live-Action 'Robin Hood' Remake Canceled
+
+Movie News, Robin Hood
+
+Sun, 08 Mar 2026 14:00:16 GMT
+
+https://movieweb.com/disney-quietly-cancels-live-action-remake/
+
+Director Carlos López Estrada, who was set to direct the project, broke the news.
+---------
+
+# Hugh Jackman's 'Van Helsing' Rises From the Grave on New Streaming Home
+
+Movie News, Van Helsing, Coming/Leaving Streaming, Hugh Jackman
+
+Sun, 08 Mar 2026 14:00:16 GMT
+
+https://movieweb.com/van-helsing-streaming-tubi-march-2026/
+
+22 years after premiering in theaters, Jackman's failed horror reboot is more than ever on it's new free streaming home.
+---------
+
+# 'The Madison' Sets Yellowstone Franchise Record For Least Episodes In a Season - Can It Work?
+
+Features, The Madison, Yellowstone
+
+Sun, 08 Mar 2026 14:00:16 GMT
+
+https://movieweb.com/the-madison-episode-count-franchise-record/
+
+'The Madison' makes 'Yellowstone' franchise history in a way that may push audiences away, while 'Marshals' offers longer-form storytelling.
+---------
+
 # George Clooney's Least Discussed Great Performance: The Descendants
 
 Movies, The Descendants, Recommendation
