@@ -1,3 +1,388 @@
+# Top 5 Netflix Shows To Watch This Week: March 9–13, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 09 Mar 2026 19:52:31 GMT
+
+https://screenrant.com/best-netflix-shows-watch-week-march-9-13-2026/
+
+The top 5 Netflix shows to watch this week include new releases like One Piece and Virgin River & trending hits like Steven Spielberg's The Dinosaurs.
+---------
+
+# Win Project Hail Mary ScreenX Screening Tickets in Los Angeles
+
+Exclusive, Project Hail Mary
+
+Mon, 09 Mar 2026 19:50:17 GMT
+
+https://screenrant.com/project-hail-mary-free-screening-tickets-in-la/
+
+Enter to win tickets for an exclusive early screening of Project Hail Mary in immersive ScreenX format at AMC Burbank 16 on March 17. RSVP now for your chance to experience the sci-fi epic on a giant 270-degree panoramic screen.
+---------
+
+# 8 Upcoming Superhero Shows You Cannot Miss
+
+Streaming TV, Superhero
+
+Mon, 09 Mar 2026 19:46:28 GMT
+
+https://screenrant.com/upcoming-superhero-shows-you-cannot-miss/
+
+The superhero genre has taken pride of place at the box office over the last couple of decades, and now it's taking over the TV landscape too.
+---------
+
+# Dark Winds Season 4 Abandoning OG Premise For Chee Has Tragic Consequences, Teases Star
+
+TV, Dark Winds
+
+Mon, 09 Mar 2026 19:45:56 GMT
+
+https://screenrant.com/dark-winds-season-4-chee-los-angeles-move-response-kiowa-gordon/
+
+EXCLUSIVE: After the latest round of ghost sickness, Dark Winds star Kiowa Gordon opens up about how the show's new location will impact Chee.
+---------
+
+# Marathon Review - For Now, It's A Sprint
+
+Gaming, Marathon, Triple-A Games, PC
+
+Mon, 09 Mar 2026 19:36:53 GMT
+
+https://screenrant.com/marathon-review/
+
+The extraction shooter genre is hard to get right, but Bungie has a strong baseline here with Marathon that needs to be built upon long-term.
+---------
+
+# Hulu's 6-Part Western Series Is One Of Its Best
+
+TV, Justified
+
+Mon, 09 Mar 2026 19:34:26 GMT
+
+https://screenrant.com/justified-hulu-fx-best-western-series/
+
+One unexpected choice turned this cop show into a gritty modern masterpiece, taking the Western genre to a darker, more unpredictable place.
+---------
+
+# Avengers: Doomsday Star Confirms "Every Character Has Their Moment" Amid Growing Casting Concerns
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 09 Mar 2026 19:27:56 GMT
+
+https://screenrant.com/avengers-doomsday-characters-cameo-concerns-lewis-pullman/
+
+One of the major stars for Avengers: Doomsday addresses cameo concerns and how each character will be serviced in the Phase 6 installment this year.
+---------
+
+# Marvel Officially Confirms Sandman's Design For Spider-Man's New Appearance
+
+Superheroes, Spider-Man, Spidey and His Amazing Friends, Marvel Cinematic Universe
+
+Mon, 09 Mar 2026 19:27:13 GMT
+
+https://screenrant.com/spider-man-tv-show-disney-plus-sandman-marvel-reveal/
+
+Marvel officially confirms Sandman's design for Spider-Man's new appearance, and the villain goes up against another of Peter Parker's foes in 2026.
+---------
+
+# Making Best-Selling Game Of 2025 Doesn’t Save Battlefield 6 Devs From Layoffs
+
+Gaming, Battlefield 6, Battlefield, Live Service Games, PC
+
+Mon, 09 Mar 2026 19:24:22 GMT
+
+https://screenrant.com/battlefield-6-layoffs-ea-battlefield-studios/
+
+Battlefield 6 shattered franchise records and became the best-selling game of 2025, yet EA is still laying off staff at all four Battlefield Sudios.
+---------
+
+# Why Netflix's New #1 Steven Spielberg Show Is Taking Over US Charts
+
+Streaming TV, The Dinosaurs
+
+Mon, 09 Mar 2026 19:16:18 GMT
+
+https://screenrant.com/the-dinosaurs-netflix-show-success-streaming-march-2026/
+
+Steven Spielberg's reputation as a filmmaker holds a great deal of weight, and his latest TV show is reaping the benefits over on Netflix.
+---------
+
+# Fox Renews Medical Drama Doc for Season 3 Amid Record Audience
+
+TV, Doc, Drama, fox
+
+Mon, 09 Mar 2026 19:29:36 GMT
+
+https://www.cbr.com/doc-season-3-renewed-fox/
+
+Fox has ordered a 22-episode third season of the medical drama Doc, following its 7.3 million-strong viewership in its second season.
+---------
+
+# Disney Finally Gives Tinker Bell Their Own Live-Action Series
+
+TV, Tinker Bell, Disney+, Disney
+
+Mon, 09 Mar 2026 19:17:59 GMT
+
+https://www.cbr.com/tinker-bell-live-action-series-tinker-bell-disney-plus/
+
+A beloved character is heading to Disney+ in their own live-action series.
+---------
+
+# Sophie Turner's Thriller Steal Returns to Prime Video Streaming Charts
+
+TV, Steal, Prime Video, Thriller
+
+Mon, 09 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/sophie-turner-steal-thriller-prime-video-success-march-2026/
+
+Sophie Turner's latest thriller is a sleeper hit on Prime Video two months after debut
+---------
+
+# R-Rated Fantasy Movies That Changed the Genre
+
+Movies, Fantasy, Conan the Barbarian, Highlander
+
+Mon, 09 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/r-rated-fantasy-movies-changed-genre/
+
+While many of the best fantasy movies are family-friendly, the genre has been at its best when it isn't afraid to get dark, and these movies prove it.
+---------
+
+# 6 Crime Shows Better Than Peaky Blinders
+
+TV, Crime, Peaky Blinders: The Immortal Man, Breaking Bad
+
+Mon, 09 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/crime-shows-better-than-peaky-blinders-list/
+
+Peaky Blinders became a TV sensation through its all-star look at organized crime, but some shows are even better, and remain must-watch masterpieces.
+---------
+
+# 10 Hilarious Far Side Comics About Soldiers
+
+Comics, The Far Side
+
+Mon, 09 Mar 2026 18:56:57 GMT
+
+https://www.cbr.com/funny-far-side-comics-about-soldiers/
+
+Gary Larson has many preferred outlets he often returns to in delivering humor in The Far Side. One of the more hilarious being the use of soldiers.
+---------
+
+# EA Lays Off Battlefield Staff Despite High Sales
+
+Games, Battlefield
+
+Mon, 09 Mar 2026 18:25:12 GMT
+
+https://www.cbr.com/ea-lays-off-battlefield-staff/
+
+EA has laid off a number of dedicated staff members working on the Battlefield series, despite the most recent entry selling millions of units.
+---------
+
+# Sylvester Stallone To Executive Produce New John Rambo Prequel Movie
+
+Movies, John Rambo, Rambo, Action
+
+Mon, 09 Mar 2026 18:17:45 GMT
+
+https://www.cbr.com/sylvester-stallon-rambo-prequel-movie/
+
+Sylvester Stallone, the original John Rambo actor, will be an executive producer on Lionsgate's new Rambo prequel movie.
+---------
+
+# 9 Biggest Letdowns of the Winter 2026 Anime Season
+
+Anime, Hana-Kimi, Trigun, Crunchyroll
+
+Mon, 09 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/most-disappointing-anime-winter-2026-season/
+
+The Winter 2026 lineup has become one of the best in recent memory, but these nine anime series couldn't live up to the same heightened expectations.
+---------
+
+# Marshals Creator Confirms Official Yellowstone Characters Will 'Pop Up' This Season After Thrilling Episode 2 Reference
+
+TV, Marshals, Yellowstone
+
+Mon, 09 Mar 2026 18:13:39 GMT
+
+https://www.cbr.com/marshals-episode-2-rip-reference-more-yellowstone-characters-coming/
+
+Marshals showrunner Spencer Hudnut confirms more Yellowstone reprisals are coming after Episode 2 name-drop.
+---------
+
+# 35 Years Later, This Thriller Remains the Only Horror Film to Win Best Picture
+
+Movie, The Silence of the Lambs, Anthony Hopkins, Jodie Foster, Academy Awards
+
+Mon, 09 Mar 2026 19:54:27 GMT
+
+https://collider.com/silence-of-lambs-1991-horror-movie-best-picture/
+
+After three decades The Silence of the Lambs remains the only horror to win Best Picture at the Academy Awards.
+---------
+
+# It's Official, After 73 Years a Classic Disney Character Is Finally Getting Their Own Series
+
+TV News, Tinker Bell, Disney, Disney+, Peter Pan
+
+Mon, 09 Mar 2026 19:51:51 GMT
+
+https://collider.com/peter-pan-live-action-tv-series-tinkerbell-tink-adaptation-details-disney/
+
+73 years after Disney's animated adaptation of Peter Pan, Tinkerbell is officially getting her own live-action TV series.
+---------
+
+# These 'Bridgerton' Characters Deserve a Spin-Off
+
+TV, Bridgerton, Queen Charlotte: A Bridgerton Story, Netflix, Romance
+
+Mon, 09 Mar 2026 19:36:21 GMT
+
+https://collider.com/bridgerton-characters-deserve-spin-off/
+
+With the size of Bridgerton's expanded cast, now is the time for characters like Kate and Anthony Bridgerton to have their own spin-off series.
+---------
+
+# Sylvester Stallone Returns to the 'Rambo' Franchise for a Thrilling New Chapter
+
+Movie News, Sylvester Stallone, John Rambo, Noah Centineo, First Blood
+
+Mon, 09 Mar 2026 19:34:29 GMT
+
+https://collider.com/john-rambo-prequel-movie-sylvester-stallone-executive-producer-production-update/
+
+Rambo prequel movie John Rambo just got an incredible update as Sylvester Stallone officially joins as an executive producer on the film.
+---------
+
+# 3 Best Movies To Watch on Netflix This Week
+
+Movie, Netflix, The Perfect Neighbor, Train Dreams, I'm Still Here
+
+Mon, 09 Mar 2026 19:31:19 GMT
+
+https://collider.com/best-netflix-movies-watch-week-march-9/
+
+Train Dreams, The Perfect Neighbor, and I'm Still Here make up our list of the best movies to watch on Netflix the week of March 9, 2026.
+---------
+
+# These Are the Worst Horror Movies of the Last 5 Years, and It's Not Even Close
+
+Movie, Horror, Scream 7, Winnie the Pooh: Blood and Honey
+
+Mon, 09 Mar 2026 19:21:13 GMT
+
+https://collider.com/worst-horror-movies-last-5-years/
+
+While we're currently experiencing a golden age for horror, there have still been terrible movies in the last 5 years, from Scream 7 to Night Swim.
+---------
+
+# Netflix’s 30-Episode Spy Thriller Just Racked Up 133.1M Hours Across 3 Seasons
+
+TV Features, Netflix, The Night Agent, Gabriel Basso, Thriller
+
+Mon, 09 Mar 2026 19:00:12 GMT
+
+https://collider.com/netflix-spy-thriller-the-night-agent-133-million-hours/
+
+In the past week, all three seasons of The Night Agent made it to Netflix’s Top 10, earning 133.1 million hours viewed.
+---------
+
+# The Most Perfect Fantasy Movies Released Since 'The Lord of the Rings'
+
+Movie, Fantasy, Pan's Labyrinth, Howl's Moving Castle, The Shape of Water
+
+Mon, 09 Mar 2026 18:32:12 GMT
+
+https://collider.com/most-perfect-fantasy-movies-since-the-lord-of-the-rings/
+
+The Lord of the Rings remains the pinnacle of cinematic fantasy, but a few masterpieces have come out since, including Pan's Labyrinth and Cinderella.
+---------
+
+# Guy Ritchie's 'National Treasure' Hit Finally Overtakes Anya Taylor-Joy's Sci-Fi Movie on Apple TV
+
+Movie News, Fountain of Youth, Guy Ritchie, Apple TV, John Krasinski
+
+Mon, 09 Mar 2026 18:29:50 GMT
+
+https://collider.com/guy-ritchie-the-fountain-of-youth-overtakes-anya-taylor-joy-sci-fi-the-gorge-apple-tv-charts-in-america/
+
+Guy Ritchie's underrated National Treasure replacement has finally overtaken Anya Taylor-Joy's sci-fi hit The Gorge on Apple TV's charts in America.
+---------
+
+# 'Bosch' Spin-Off Levels Up With 'Law & Order' Legend in Key Role
+
+TV News, Ballard, Benjamin Bratt, Prime Video, Hulu
+
+Mon, 09 Mar 2026 18:14:55 GMT
+
+https://collider.com/bosch-spin-off-ballard-season-2-cast-benjamin-bratt/
+
+Bosch spin-off Ballard adds Law & Order star Benjamin Bratt in a recurring role ahead of Season 2 release on Prime Video.
+---------
+
+# Corey Parker, 'Will & Grace' and 'Friday the 13th' Actor, Dead at 60
+
+TV News, Will & Grace, Friday the 13th
+
+Mon, 09 Mar 2026 19:40:21 GMT
+
+https://movieweb.com/corey-parker-dies-actor/
+
+The actor was battling metastatic stage 4 cancer, according to a GoFundMe updated last month.
+---------
+
+# Stephen Colbert Criticizes Paramount After Winning WGA Award for Bravery
+
+TV News, Stephen Colbert, Late Show with Stephen Colbert
+
+Mon, 09 Mar 2026 19:30:32 GMT
+
+https://movieweb.com/stephen-colbert-wga-award/
+
+The Late Night host won the Walter Bernstein statue named after the blacklisted screenwriter.
+---------
+
+# 'The Boys' Season 5's Supe Virus Storyline Is the Show's Biggest 'X-Men' Homage Yet
+
+Features, The Boys, X-Men
+
+Mon, 09 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/the-boys-season-5-x-men-love-letter/
+
+'X-Men' has clearly been a big influence on 'The Boys' since day one, but it's taken until now for the tribute to be complete.
+---------
+
+# Luke Cage Star Mike Colter Teases Potential MCU Return in 'Daredevil: Born Again"
+
+TV News, Mike Colter, Luke Cage, Daredevil: Born Again, Netflix
+
+Mon, 09 Mar 2026 18:21:09 GMT
+
+https://movieweb.com/mike-colter-luke-cage-daredevil-return/
+
+Mike Colter seems more open than ever to returning to the MCU as Luke Cage, discussing a possible role in 'Daredevil: Born Again' Season 2.
+---------
+
+# 'Avatar 4' Is "Very Likely" According to James Cameron
+
+Movie News, Avatar, Avatar: Fire and Ash, Avatar 4
+
+Mon, 09 Mar 2026 18:12:34 GMT
+
+https://movieweb.com/avatar-4-sequel-james-cameron/
+
+James Cameron has commented on the future of the 'Avatar' franchise after the 'Fire & Ash's run at the box office.
+---------
+
 # Only One Streaming Series Has More Lore Than Netflix's Epic Fantasy Adaptation
 
 TV, One Piece, The Lord of the Rings: The Rings of Power
