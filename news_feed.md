@@ -1,3 +1,377 @@
+# After 2 Years, Jujutsu Kaisen Finally Confirms Gojo's True Fate
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Mon, 09 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-gojo-final-fate-heartwarming/
+
+Nearly two years after Jujutsu Kaisen's ending, its sequel manga reveals more about Satoru Gojo, showing that his fate wasn't so tragic after all.
+---------
+
+# Netflix's 5-Part Crime Thriller Series Is Perfect From Start To Finish
+
+TV, Money Heist
+
+Mon, 09 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/money-heist-netflix-crime-thriller-perfect-start-to-finish/
+
+Netflix's standout crime thriller used ingenious plotting and a time-jumping narrative to keep viewers guessing, making the 5-part show a success.
+---------
+
+# This Free Steam JRPG Is A 9/10 Gem You Can Keep Forever
+
+Gaming, Indie, Steam, RPG, PC
+
+Mon, 09 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/steam-free-jrpg-metal-hunter-download-keep/
+
+Just recently, a new JRPG with 9/10 reviews has been released on Steam, and you can download it for free and keep it forever once you claim it.
+---------
+
+# Why You Shouldn't Sleep On Riz Ahmed's Underrated 2025 Crime Thriller
+
+Movies, Riz Ahmed, Relay, Recommendation
+
+Mon, 09 Mar 2026 20:30:38 GMT
+
+https://screenrant.com/relay-movie-riz-ahmed-underrated/
+
+Riz Ahmed stars in a 2025 movie whose ensemble cast, unique premise, and tense storytelling make it one of the year's most underrated crime thrillers.
+---------
+
+# David Dastmalchian Knows His Street Fighter Performance Has To Live Up To One Of Cinema's Fan-Favorite Villains
+
+Movies, Street Fighter, David Dastmalchian, Saturn Awards
+
+Mon, 09 Mar 2026 20:19:28 GMT
+
+https://screenrant.com/david-dastmalchian-street-fighter-performance-mbison-raul-julia-comparison/
+
+Exclusive: David Dastmalchian praises Street Fighter's worldbuilding and acknowledges the expectations for his performance of an iconic villain.
+---------
+
+# Apple TV’s Upcoming Psychological Thriller Can Rewrite The Rules Of Hollywood Remakes
+
+TV, Cape Fear
+
+Mon, 09 Mar 2026 20:15:36 GMT
+
+https://screenrant.com/apple-tv-cape-fear-remake-scorsese-improve-original/
+
+In a bold move, Apple TV's next psychological thriller could redefine the rules of Hollywood remakes by building on the legacy of an iconic thriller.
+---------
+
+# Honkai Star Rail 4.1 Livestream: Date & Time, New Characters & Banners, Updates & More
+
+Gaming, Honkai: Star Rail, PC, Live Service Games, RPG
+
+Mon, 09 Mar 2026 20:07:22 GMT
+
+https://screenrant.com/honkai-star-rail-41-livestream-date-time-characters/
+
+Developer HoYoverse has officially announced the Honkai: Star Rail 4.1 livestream, which will add a new playable character and much more.
+---------
+
+# Diablo Meets The Legend Of Zelda In New Fantasy RPG
+
+Gaming, Steam, PC
+
+Mon, 09 Mar 2026 20:00:32 GMT
+
+https://screenrant.com/diablo-zelda-new-dark-fantasy-rpg/
+
+Fans of RPG franchises are always on the hunt for a game that manages to capture the spirit of classics, and it seems like this one could do just that
+---------
+
+# Dark Winds Season 4 Subtly Pays Homage To Robert Redford
+
+Streaming TV, Dark Winds, Robert Redford, Dark Winds - Season 4
+
+Mon, 09 Mar 2026 20:00:32 GMT
+
+https://screenrant.com/dark-winds-season-4-robert-redford-homage-jeremiah-johnson/
+
+Dark Winds season 4, episode 4 pays tribute to the late actor Robert Redford with a subtle Jeremiah Johnson movie theater marquee, reflecting Redford's deep connection to the series.
+---------
+
+# Apple TV's Neuromancer Is the Perfect Replacement for Altered Carbon
+
+TV, Apple TV, Neuromancer, Sci-Fi
+
+Mon, 09 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/apple-tv-neuromancer-altered-carbon-replacement/
+
+This upcoming sci-fi series, based on a book by cyberpunk pioneer William Gibson, should fill the void left by Netflix's unjustly cancelled cult hit.
+---------
+
+# The Jurassic World Movies Are Charting on Netflix for One Clear Reason
+
+Movies, Jurassic Park, Jurassic World, Jurassic World Rebirth, Netflix
+
+Mon, 09 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/jurassic-world-movies-netflix-streaming-success-reason/
+
+Even though just two of the seven Jurassic World movies have done well with critics, the franchise still consistently releases blockbusters.
+---------
+
+# The Boys Final Season Release Schedule Confirmed by Prime Video
+
+TV, The Boys
+
+Mon, 09 Mar 2026 20:32:27 GMT
+
+https://www.cbr.com/the-boys-final-season-release-schedule/
+
+The release schedule for every single episode of The Boys' fifth and final season has just been officially confirmed by Amazon Prime Video.
+---------
+
+# 8 Best Wasteland Movies to Watch If You Love Fallout
+
+Movies, Fallout, Mad Max, Resident Evil
+
+Mon, 09 Mar 2026 20:30:40 GMT
+
+https://www.cbr.com/best-wasteland-movies-like-fallout-list/
+
+Fallout delivered a fun look at the wastelands in media, and there are many movies that deliver even more entertaining experiences.
+---------
+
+# Marvel Productions' Original Transformers Show Reveals New Look at Major G1 Turning Point
+
+Anime, Transformers, The Transformers
+
+Mon, 09 Mar 2026 20:20:34 GMT
+
+https://www.cbr.com/transformers-g1-immobilizer-episode-storyboard/
+
+Newly revealed storyboards for an episode of the classic Transformers cartoon give a closer look at an iconic episode after 41 years.
+---------
+
+# Prime Video's We Were Liars Promotes Season 1 Star Dempsey Bryk  to Series Regular
+
+TV, We Were Liars
+
+Mon, 09 Mar 2026 20:19:57 GMT
+
+https://www.cbr.com/prime-video-we-were-liars-season-2-dempsey-bryk-series-regular/
+
+One fan-favorite star from Prime Video's hit mystery drama adaptation is back in Season 2 in an even more prominent role than before.
+---------
+
+# Mahoraga From JJK Just Made an Appearance in The Newest Hit Manga
+
+Anime, Jujutsu Kaisen
+
+Mon, 09 Mar 2026 20:16:32 GMT
+
+https://www.cbr.com/jjk-mahoraga-iconic-shonen-villain-cameo-someone-hertz/
+
+The biggest new hit in Shonen Jump recently paid tribute to JJK with a cameo from Mahoraga.
+---------
+
+# Arnold Schwarzenegger's '80s-Defining Action Thriller Commando Is Getting a Sequel
+
+Movies, Action, Thriller, Conan the Barbarian, Commando, Predator
+
+Mon, 09 Mar 2026 20:09:38 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-defining-action-thriller-predator-conan-commando-sequel/
+
+It's been four decades since Arnold Schwarzenegger delivered a classic film that he says will finally get a sequel.
+---------
+
+# The Punisher's Upcoming MCU Appearances Can Save Armor Wars
+
+Movies, MCU, Armor Wars, Spider-Man: Brand New Day
+
+Mon, 09 Mar 2026 20:00:29 GMT
+
+https://www.cbr.com/punisher-save-mcu-war-machine-armor-wars/
+
+The MCU's Armor Wars series has faced numerous setbacks, but a certain character's upcoming appearances could help the project finally materialize.
+---------
+
+# One Major Issue Is Ruining Spider-Man
+
+Comics, Spider-Man
+
+Mon, 09 Mar 2026 20:00:29 GMT
+
+https://www.cbr.com/too-many-spider-people-might-be-ruining-spider-man/
+
+The Marvel superhero has been in the limelight for so long, that others are beginning to steal his spot.
+---------
+
+# Prime Video’s 4-Part 'Bridgerton' Replacement Could Be Its Next Perfect Weekend Binge
+
+TV Features, Streaming, Bridgerton, Prime Video, Netflix
+
+Mon, 09 Mar 2026 21:01:12 GMT
+
+https://collider.com/prime-video-seeking-persephone-bridgerton-replacement-weekend-binge/
+
+Prime Video’s Seeking Persephone is a four-part Regency romance about a marriage of convenience that slowly turns into an unexpected love story.
+---------
+
+# Alamo Drafthouse Proves Why It's the No. 1 Destination for 'The Super Mario Galaxy Movie' Fans [Exclusive]
+
+Exclusives, The Super Mario Galaxy Movie, Alamo Drafthouse, Chris Pratt, Charlie Day
+
+Mon, 09 Mar 2026 21:01:12 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-alamo-drafthouse-popcorn-bucket-family-screenings-menu-mario-kart/
+
+Alamo Drafthouse is celebrating The Super Mario Galaxy Movie with an adorable new popcorn bucket, menu, family screenings, and more.
+---------
+
+# The Best Panels To Attend at Awesome Con 2026
+
+TV, Awesome Con, Stranger Things, The White Lotus, The Legend of Vox Machina
+
+Mon, 09 Mar 2026 21:01:12 GMT
+
+https://collider.com/awesome-con-2026-best-panels-to-attend/
+
+Awesome Con 2026 features many exciting panels, including Stranger Things villain Jamie Campbell Bower and The White Lotus scene-stealer Parker Posey.
+---------
+
+# 'One Piece's King of the Pirates Teases the Arrival of a 'Cobra Kai' Icon to Netflix's Hit Series [Exclusive]
+
+Exclusives, One Piece, Netflix, Cobra Kai, Xolo Mariduena
+
+Mon, 09 Mar 2026 20:57:01 GMT
+
+https://collider.com/one-piece-season-3-xolo-mariduena-fire-first-ace-tease-inaki-godoy/
+
+Netflix's One Piece live-action gets Season 3 update on Cobra Kai star Xolo Maridueña as fan-favorite character Fire Fist Ace. Get the details here.
+---------
+
+# 3 Best Shows To Watch on Netflix This Week
+
+TV, Netflix, Formula 1: Drive to Survive, Grey's Anatomy, The Staircase
+
+Mon, 09 Mar 2026 20:47:15 GMT
+
+https://collider.com/best-netflix-shows-watch-week-march-9/
+
+Formula 1: Drive to Survive, Grey's Anatomy, and The Staircase make up our list of the best shows to watch on Netflix the week of March 9, 2026.
+---------
+
+# 5 Forgotten '70s Thrillers That Have Aged Like Fine Wine
+
+Movie, Thriller, Sorcerer, The Parallax View, Best Movies Of The 1970s
+
+Mon, 09 Mar 2026 20:45:40 GMT
+
+https://collider.com/forgotten-70s-thrillers-aged-like-fine-wine/
+
+From The Conversation to Sorcerer, these forgotten ’70s thrillers still simmer with paranoia, conspiracy, and nerve-shredding tension.
+---------
+
+# 10 Great Movies From the Last 5 Years That Will Become Cult Classics
+
+Movie, Bodies Bodies Bodies, Argylle, Bottoms, Late Night With the Devil
+
+Mon, 09 Mar 2026 20:26:32 GMT
+
+https://collider.com/best-movies-last-5-years-will-become-cult-classics/
+
+From Bottoms to Bodies, Bodies, Bodies, these movies are well on their way to becoming the type of cult classic that future audiences will fawn over.
+---------
+
+# 10 Years Later, Mark Wahlberg's Greatest Movie Ever Has Aged Like Fine Wine
+
+Movie Features, Deepwater Horizon, Mark Wahlberg, Kurt Russell, Peter Berg
+
+Mon, 09 Mar 2026 20:17:33 GMT
+
+https://collider.com/mark-wahlberg-deepwater-horizon-greatest-movie/
+
+Why Mark Wahlberg’s true life disaster thriller ‘Deepwater Horizon’ is the actor’s greatest movie ever.
+---------
+
+# 'Marshals' Finally Explains How 'Yellowstone's Deadly Train Station Impacts Kayce 2 Years After the Finale
+
+TV Features, Marshals, Yellowstone, Luke Grimes, Wes Bentley
+
+Mon, 09 Mar 2026 20:12:32 GMT
+
+https://collider.com/yellowstone-marshals-zone-of-death-train-station-explained/
+
+Believe it or not, the Zone of Death legal loophole in Yellowstone, explored in the latest Marshals episode, is rooted in reality.
+---------
+
+# Robert Downey Jr.'s Forgotten 7-Part HBO Thriller Owes Its Brilliance to Stanley Kubrick
+
+TV Features, The Sympathizer, HBO, Stanley Kubrick, Thriller
+
+Mon, 09 Mar 2026 20:06:32 GMT
+
+https://collider.com/robert-downey-jr-hbo-miniseries-the-sympathizer-stanley-kubrick/
+
+Park Chan-wook's HBO miniseries The Sympathizer, starring Robert Downey Jr., was heavily influenced by the work of Stanley Kubrick.
+---------
+
+# Paul Bettany Shuts Down 'Harry Potter' Voldemort Rumors
+
+TV News, Harry Potter, Paul Bettany, MCU
+
+Mon, 09 Mar 2026 21:02:32 GMT
+
+https://movieweb.com/harry-potter-reboot-paul-bettany-voldemort/
+
+Paul Bettany would not confirm anything about casting rumors teasing his appearance in the new 'Harry Potter' show.
+---------
+
+# Before 'The Boys," Seth Rogen's 'Preacher' Pushed Boundaries for Comic TV
+
+Features, Preacher, The Boys, Comparison Recommendation, Streaming Recommendations, Seth Rogen
+
+Mon, 09 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/preacher-tv-show-the-boys-comic/
+
+The four-season AMC series marked the filmmaker's first executive producing efforts for TV but the show now feels forgotten.
+---------
+
+# Why Jason Statham “Drooled Over” Martial Arts Movie 'Enter the Dragon'
+
+Features, Enter the Dragon, Quote
+
+Mon, 09 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/jason-statham-enter-the-dragon-praise/
+
+Action star Jason Statham was heavily inspired by Bruce Lee's 'Enter the Dragon' shaping his career and the way he approaches fighting in his movies.
+---------
+
+# 2026 Oscars Rob Reiner Tribute: Corey Feldman Reacts to Snub
+
+Movie News, Rob Reiner, Corey Feldman, The Oscars | Academy Awards
+
+Mon, 09 Mar 2026 20:38:52 GMT
+
+https://movieweb.com/oscars-rob-reiner-tribute-corey-feldman/
+
+The former child star blamed his work against child sexual assault for the omission in a social media post.
+---------
+
+# 'Tink': Disney+ Developing Live-Action Tinker Bell Series
+
+TV News, Tink, Disney+, Tinker Bell, Peter Pan
+
+Mon, 09 Mar 2026 20:17:28 GMT
+
+https://movieweb.com/disney-tink-live-action-series/
+
+The previously planned live-action film 'Tink' starring Reese Witherspoon is now being developed as a Disney+ series.
+---------
+
 # Top 5 Netflix Shows To Watch This Week: March 9–13, 2026
 
 Streaming TV, Netflix, What to Watch on Netflix
