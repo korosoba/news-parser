@@ -1,3 +1,311 @@
+# DC Rewrites 60 Years of History With New Poison Ivy Update Ahead of Batman’s Next Appearance
+
+Comics, Poison Ivy
+
+Mon, 09 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/poison-ivy-absolute-batman-new-design-update-explainer/
+
+DC recently unveiled a bold new design for Poison Ivy. Now, that design has received a major update that rewrites more than 60 years of tradition.
+---------
+
+# Taylor Sheridan's Yellowstone Replacement Franchise Is Finally Taking Shape
+
+Streaming TV, Tulsa King, Taylor Sheridan, Frisco King
+
+Mon, 09 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/taylor-sheridan-tulsa-king-franchise-yellowstone-replacement/
+
+Taylor Sheridan’s TV empire may have found its next Yellowstone-sized franchise, and the success of this Texas-based spinoff would confirm it.
+---------
+
+# Sherlock Holmes Modern TV Adaptations: Ranking The Best & Worst
+
+Streaming TV, Sherlock Holmes
+
+Mon, 09 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/sherlock-holmes-modern-tv-shows-ranked/
+
+Sherlock Holmes has found great success on TV in recent years, with some shows making interesting changes to the character's lore and more.
+---------
+
+# Ethan Hawke's 3-Part Batman Series Is One Of DC's Unique Releases
+
+Superheroes, Batman, Batwheels, DC Universe
+
+Mon, 09 Mar 2026 21:31:43 GMT
+
+https://screenrant.com/ethan-hawke-batman-tv-show-dc-batwheels-hbo-max/
+
+Years after he passed on playing Batman, Ethan Hawke finally gets to play the Dark Knight in a successful DC series, and it is a unique release.
+---------
+
+# The Peripheral: Amazon's Underrated Cyberpunk Thriller Series
+
+Classic TV, The Peripheral
+
+Mon, 09 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/prime-video-the-peripheral-best-cyberpunk-series/
+
+Despite being canceled after just one season, Prime Video's cyberpunk series The Peripheral remains an underrated gem of the sci-fi genre.
+---------
+
+# Yoshi Actor For Super Mario Galaxy Movie Officially Revealed
+
+Movies, The Super Mario Galaxy Movie
+
+Mon, 09 Mar 2026 21:26:21 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-yoshi-donald-glover-voice-revealed/
+
+Less than a month before The Super Mario Galaxy Movie arrives in theaters, the voice actor for Yoshi has finally been officially revealed.
+---------
+
+# Top 5 Must-Watch Prime Video Shows This Week: March 9–13, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 09 Mar 2026 21:19:19 GMT
+
+https://screenrant.com/best-prime-video-shows-watch-week-march-9-13-2026/
+
+Discover the best Prime Video shows to stream this week, including hidden gems & viral hits, from crime thrillers to legal dramas & sci-fi mysteries.
+---------
+
+# FX's Disinherited Looks Set To Become The Next Succession
+
+Streaming TV, Succession, Disinherited
+
+Mon, 09 Mar 2026 21:15:19 GMT
+
+https://screenrant.com/succession-fx-disinherited-tv-series-successor/
+
+HBO's Succession is one of the most highly renowned drama shows of the last decade, but FX may have found a worthy successor to this iconic series.
+---------
+
+# Yoshi, Mario & More Fight Cosmic War With Bowser In Nintendo's Super Mario Galaxy Movie Trailer
+
+Gaming, The Super Mario Galaxy Movie, Nintendo
+
+Mon, 09 Mar 2026 21:10:45 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-nintendo-final-trailer-release/
+
+Nintendo isn't slowing down as they continue delighting fans with another Super Mario Galaxy Movie trailer with surprise appearances.
+---------
+
+# Pixar's Elio Becomes a Streaming Hit After Box Office Disappointment
+
+Movies, Disney+, Elio, Animation
+
+Mon, 09 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/pixar-elio-animation-disney-success-march-2026/
+
+Pixar's Elio finds redemption on Disney+ one year later after box office disappointment.
+---------
+
+# The MCU’s First X-Men Team Can Beat Fox By Sticking to the Classics
+
+Movies, MCU, X-Men
+
+Mon, 09 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/mcu-x-men-team-fix-this-fox-movie-mistake/
+
+The MCU's X-Men has a lot of potential, but to go beyond Fox's many teams, it has to homage the original lineup.
+---------
+
+# Spider-Man and His Amazing Friend's Firestar Could Be Sadie Sink's Role in Brand New Day
+
+Movies, Spider-Man: Brand New Day, MCU
+
+Mon, 09 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-sadie-sink-firestar/
+
+Sadie Sink's role in Spider-Man: Brand New Day is the source of major speculation but Spider-Man and His Amazing Friend's Firestar may be the answer.
+---------
+
+# Prime Video's Sherlock Holmes Is Officially the End of an Era
+
+TV, Young Sherlock, Prime Video, Sherlock Holmes
+
+Mon, 09 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/young-sherlock-end-holmes-sister-era/
+
+Young Sherlock refreshes the franchise, but the new series should also bring one controversial Sherlock Holmes trend to an end.
+---------
+
+# Jeff Daniels Cast in Apple TV's The Morning Show Season 5
+
+TV, The Morning Show, The Newsroom, Apple TV
+
+Mon, 09 Mar 2026 21:51:33 GMT
+
+https://www.cbr.com/the-morning-show-season-5-cast-jeff-daniels/
+
+Actor Jeff Daniels joins the cast of Apple TV's hit series The Morning Show in its fifth season, starring Jennifer Aniston and Reese Witherspoon.
+---------
+
+# Nicolas Cage Plays a Different Spider-Man Noir in New Prime Video Series
+
+TV, Spider-Noir (2025), Spider-Man, superheroes
+
+Mon, 09 Mar 2026 21:23:14 GMT
+
+https://www.cbr.com/spider-noir-nicolas-cage-spider-man-spider-verse-character/
+
+Nicolas Cage reprises his role as Spider-Man Noir in the Prime Video series Spider-Noir, but in a different universe.
+---------
+
+# It: Welcome to Derry Teased to Be Even 'Greater' in Unconfirmed Season 2
+
+TV, It: Welcome to Derry
+
+Mon, 09 Mar 2026 21:21:48 GMT
+
+https://www.cbr.com/it-welcome-to-derry-season-2-greater-andy-muschietti/
+
+The series has yet to officially score a Season 2 renewal.
+---------
+
+# Super Mario Final Trailer Shell
+
+Games, The Super Mario Galaxy Movie, The Super Mario Bros. Movie, Nintendo
+
+Mon, 09 Mar 2026 21:13:09 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-final-trailer-released/
+
+The final trailer for the Super Mario Galaxy Movie has officially arrived courtesy of the latest Nintendo Direct, and it is perfect.
+---------
+
+# The Shocking Strategy Netflix Is Using to Get 'One Piece' Seasons to Fans Faster [Exclusive]
+
+TV News, One Piece, Emily Rudd, Netflix
+
+Mon, 09 Mar 2026 22:01:12 GMT
+
+https://collider.com/netflix-one-piece-season-2-cast-future-pressure-speed-turnaround-time-between-seasons/
+
+The cast of One Piece speaks to Collider about the pressure to release seasons of the hit Netflix show more quickly after a 3-year wait for Season 2.
+---------
+
+# The Legendary 1965 Rolling Stones Song Keith Richards Wrote in His Sleep
+
+Music Features, Music, Rock, The Rolling Stones, Keith Richards
+
+Mon, 09 Mar 2026 21:31:12 GMT
+
+https://collider.com/1965-keith-richards-wrote-cant-get-no-satisfaction-rolling-stones/
+
+Rolling Stones guitarist Keith Richards composed the legendary Satisfaction riff while asleep, and this wild event shaped the band's trajectory.
+---------
+
+# 10 Nearly Perfect HBO Dramas, Ranked
+
+TV, HBO, Deadwood, Band of Brothers, True Detective
+
+Mon, 09 Mar 2026 21:29:12 GMT
+
+https://collider.com/nearly-perfect-hbo-dramas-ranked/
+
+From The Sopranos to Deadwood, these near-perfect HBO dramas redefined prestige television with unforgettable characters and writing.
+---------
+
+# Tim Burton's $452M Sequel Finally Finds It's Own Cult Classic Audience 2 Years Later
+
+Movie News, Tim Burton, Beetlejuice Beetlejuice, Fantasy, Comedy
+
+Mon, 09 Mar 2026 21:26:59 GMT
+
+https://collider.com/tim-burton-sequel-beetlejuice-beetlejuice-2-netflix-streaming-success-march-2026/
+
+Tim Burton's 120-minute, $452 million sequel to his cult classic film Beetlejuice is finally finding its audience 2 years after it hit theaters.
+---------
+
+# This Is the Mount Rushmore of Thriller Movies
+
+Movie, Psycho, The Silence of the Lambs, High And Low, Chinatown
+
+Mon, 09 Mar 2026 21:22:12 GMT
+
+https://collider.com/best-thriller-movies-mount-rushmore/
+
+Narrowing the best and most important thrillers ever made is a daunting task, but classics like The Silence of the Lambs and Psycho make the cut.
+---------
+
+# 'The Last of Us' Returns This Month With New Official Release
+
+TV News, The Last of Us, Naughty Dog, Neil Druckmann, PlayStation (Original)
+
+Mon, 09 Mar 2026 21:12:57 GMT
+
+https://collider.com/the-last-of-us-part-1-new-release-joel-ellie-collectible-march-2026/
+
+Joel and Ellie reunite in a new The Last of Us release set to arrive this month from Dark Horse Direct. See the collectible statue here.
+---------
+
+# 'Elsbeth' Season 3 Continues Its Unforgettable Guest Star Winning Streak in New Sneak Peek With Steve Buscemi [Exclusive]
+
+Exclusives, Elsbeth, CBS, Steve Buscemi, Carrie Preston
+
+Mon, 09 Mar 2026 21:12:52 GMT
+
+https://collider.com/elsbeth-season-3-episode-13-sneak-peek-steve-buscemi/
+
+A new sneak peek at Elsbeth Season 3, Episode 13, casts Steve Buscemi as a crossword champion who helps Carrie Preston's titular sleuth.
+---------
+
+# 'Outlander' Scores Big Worldwide on Netflix as Final Season Kicks Off
+
+TV News, Outlander, Netflix, Hot on Streaming
+
+Mon, 09 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/outlander-netflix-march-2026/
+
+Fans around the world are diving into the first seven seasons of the time-traveling love story.
+---------
+
+# George Lucas Improved 'Return of the Jedi's Final Scene With Update 'Star Wars' Score
+
+Features, Star Wars: Episode VI - Return of the Jedi, Star Wars
+
+Mon, 09 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/star-wars-george-lucas-biggest-change/
+
+The 'Star Wars' creator is often criticized for over-altering his iconic Original Trilogy. However, one change can't be faulted.
+---------
+
+# 'The Super Mario Galaxy' Movie Casts Donald Glover as Yoshi
+
+Movie News, The Super Mario Galaxy Movie, Donald Glover
+
+Mon, 09 Mar 2026 21:55:48 GMT
+
+https://movieweb.com/super-mario-galaxy-trailer-yoshi-voice/
+
+Donald Glover will take on an exciting new voice-over role as Yoshi in 'The Super Mario Galaxy Movie.'
+---------
+
+# Mike Flanagan Signs Overall Amazon MGM Deal
+
+TV News, Mike Flanagan, Prime Video, The Dark Tower
+
+Mon, 09 Mar 2026 21:05:24 GMT
+
+https://movieweb.com/mike-flanagan-signs-amazon-deal/
+
+Mike Flanagan has inked a new deal that sets up his future streaming shows with a cozy new home, with The Dark Tower looming on the horizon.
+---------
+
 # After 2 Years, Jujutsu Kaisen Finally Confirms Gojo's True Fate
 
 Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
