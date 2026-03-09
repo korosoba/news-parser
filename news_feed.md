@@ -1,3 +1,322 @@
+# Cyberpunk 2077 Gets Official Huge Release On March 17
+
+Gaming, Cyberpunk 2077, PC
+
+Mon, 09 Mar 2026 04:00:25 GMT
+
+https://screenrant.com/cyberpunk-2077-volume-two-dark-horse-library-march-17/
+
+Cyberpunk 2077 fans have an exciting new release coming out next week that includes expands on the game's universe, and it's absolutely massive.
+---------
+
+# Netflix’s 2-Part Action Fantasy Thriller Is Already a Perfect 10/10 Weekend Binge
+
+Anime, Alchemy of Souls, Netflix
+
+Mon, 09 Mar 2026 03:58:49 GMT
+
+https://screenrant.com/netflix-best-fantasy-thriller-alchemy-of-souls-weekend-binge/
+
+The trend-setting K-drama output of Netflix is practically unmatched, but there's still time to revisit one of the medium's greatest hits from 2021.
+---------
+
+# Christian Bale's New R-Rated Monster Film Is Dividing Critics & Audiences On Rotten Tomatoes
+
+Movies, The Bride!, Warner Bros. Pictures, Horror, Thriller
+
+Mon, 09 Mar 2026 03:47:10 GMT
+
+https://screenrant.com/the-bride-2026-movie-rotten-tomatoes-audience-score/
+
+Christian Bale and Maggie Gyllenhaal's new R-rated monster movie is dividing critics and audiences on Rotten Tomatoes as it debuts in theaters.
+---------
+
+# Rocky Meets Ninja Assassin In Netflix’s Must-See 8-Part Returning Action K-Drama Hit
+
+Streaming TV, Bloodhounds, Ninja Assassin, Netflix
+
+Mon, 09 Mar 2026 03:46:34 GMT
+
+https://screenrant.com/bloodhounds-season-2-rain-ninja-assassin-casting/
+
+One of the best action K-dramas on Netflix returns soon, and, this time around, it will seemingly come off as a combination of Rocky & Ninja Assassin.
+---------
+
+# Crunchyroll's Most-Anticipated 2026 Anime Will Make JJK's Gojo Completely Irrelevant
+
+Anime, Jujutsu Kaisen, Witch Hat Atelier
+
+Mon, 09 Mar 2026 03:25:06 GMT
+
+https://screenrant.com/jjk-gojo-satoru-irrelevant-witch-hat-atelier-quifrey-anime/
+
+Spring 2026's most closely-watched upcoming anime release could introduce a new wave of white-haired ikemen fandom with Witch Hat Atelier's Qifrey.
+---------
+
+# Qui-Gon Jinn's Phantom Menace Tricks Prove The Jedi's True Fatal Flaw
+
+Movies, Qui-Gon Jinn, Star Wars: Episode I - The Phantom Menace
+
+Mon, 09 Mar 2026 03:15:19 GMT
+
+https://screenrant.com/star-wars-qui-gon-jinn-jedi-tricks-fatal-flaw/
+
+The various Force tricks that Qui-Gon Jinn uses throughout The Phantom Menace reveal the real fatal flaw of the prequel trilogy Jedi Order.
+---------
+
+# Apple TV’s 8-Part Detective Drama Quietly Pulls Off One Of The Wildest Genre Shifts In TV History
+
+Streaming TV, Sugar, Apple TV
+
+Mon, 09 Mar 2026 03:15:19 GMT
+
+https://screenrant.com/apple-tv-sugar-wild-genre-bend-twist/
+
+There is an 8-part detective TV show on Apple TV that features one of the most shocking genre-bending sci-fi twists in the history of television.
+---------
+
+# Paul Bettany Responds To Lord Voldemort Casting Rumors For Harry Potter
+
+TV, Harry Potter, Paul Bettany
+
+Mon, 09 Mar 2026 02:57:43 GMT
+
+https://screenrant.com/paul-bettany-responds-lord-voldemort-rumors-harry-potter-hbo/
+
+EXCLUSIVE: MCU star Paul Bettany finally addresses whether he'll portray the iconic Lord Voldemort in HBO's upcoming Harry Potter Reboot.
+---------
+
+# How Star Wars Would Have Shown Yoda’s Darker Side In Lucasfilm’s Most Controversial Release
+
+Star Wars, Yoda, The Acolyte
+
+Mon, 09 Mar 2026 02:49:47 GMT
+
+https://screenrant.com/star-wars-yoda-dark-side-in-acolyte-season-2/
+
+Although Star Wars' controversial High Republic series was cancelled, we know what Yoda's surprising role would have been in a second season.
+---------
+
+# Apple TV’s Returning 9-Part Ozark Replacement Can Become The Next Big Crime Drama Epic
+
+Streaming TV, Your Friends and Neighbors, Ozark, Apple TV
+
+Mon, 09 Mar 2026 02:45:18 GMT
+
+https://screenrant.com/ozark-apple-tv-your-friends-and-neighbors-crime-epic/
+
+Apple TV’s returning 9-part crime thriller, which comes off as the perfect replacement to Netflix’s Ozark, can become the next big thing in the genre.
+---------
+
+# JJK Modulo's Final Chapter Officially Makes Yuji the New Ryomen Sukuna
+
+Anime, Jujutsu Kaisen Modulo, Jujutsu Kaisen
+
+Mon, 09 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/jjk-modulo-chapter-25-yuji-itadori-ryomen-sukuna/
+
+After a long and arduous journey, it seems as though Yuji Itadori is destined to suffer the same fate as Ryomen Sukuna.
+---------
+
+# Criminal Minds' 6 Most Evil Unsubs, Ranked
+
+TV, Criminal Minds
+
+Mon, 09 Mar 2026 03:40:13 GMT
+
+https://www.cbr.com/criminal-minds-dark-evil-villains/
+
+All unsubs on Criminal Minds are disturbing, but these six are nightmare fuel.
+---------
+
+# 23 Years Ago, Nintendo Released Mario's Most Underrated Game
+
+Games, Mario, Nintendo
+
+Mon, 09 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/mario-most-underrated-game-nintendo-mar10/
+
+Mario games are incredibly popular, but one entry in the franchise is criminally underrated.
+---------
+
+# Adam Sandler's Forgotten Fantasy Movie Tried to Beat The Lord of The Rings at Its Own Game
+
+Movies, The Lord of the Rings, Adam Sandler, Fantasy
+
+Mon, 09 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/adam-sandlers-forgotten-fantasy-movie-beat-the-lord-of-the-rings-at-its-own-game/
+
+Claimed to be the next Lord of the Rings, many wonder what happened to the bizarre fantasy film adaptation that Adam Sandler once inherited.
+---------
+
+# 59 Years Later, the 2 Most Powerful Words in Sci-Fi History Remain Undeniable
+
+TV, Star Trek, Star trek, Sci-Fi
+
+Mon, 09 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/star-trek-prime-directive-most-important-sci-fi-quote/
+
+Since 1966, Star Trek has been one of the most important sci-fi franchises ever made, and just two words are among its greatest legacies.
+---------
+
+# Sumikko Gurashi Limited-Edition Seiko Watch Gets International Release Date
+
+Anime, merchandise, collectibles
+
+Mon, 09 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/sumikko-gurashi-seiko-watch-international-release/
+
+Almost the entire Sumikko Gurashi lineup now graces the dial of their very own limited-edition Seiko watch, and it's everything collectors could want.
+---------
+
+# Every New Character Cast in Netflix’s One Piece Season 2 (So Far)
+
+Anime, One Piece, Netflix
+
+Mon, 09 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/netflix-one-piece-season-2-new-characters-cast/
+
+Netflix's live-action Netflix is guaranteed to take over the internet again when Season 2 finally drops, and these stars are here to make sure of it.
+---------
+
+# The Best Open-World Action RPGs of All Time, Ranked
+
+Games, open world, action rpg
+
+Mon, 09 Mar 2026 02:30:12 GMT
+
+https://www.cbr.com/best-open-world-action-rpgs-all-time-ranked-list/
+
+The Witcher 3 and Elden Ring rank among the best open-world RPGs ever.
+---------
+
+# The 7 B-Movie Slasher Films That Modern Horror Still Can’t Top
+
+Movies, Slasher, The Texas Chain Saw Massacre, Horror
+
+Mon, 09 Mar 2026 02:30:12 GMT
+
+https://www.cbr.com/b-movie-slasher-films-modern-horror-still-cant-top-list/
+
+Modern horror is fun, but not always perfect, and some great B-movie slashers prove that many underrated hits can't be topped.
+---------
+
+# 9 Must-Watch Isekai Coming This Spring
+
+Anime, Re:Zero -Starting Life in Another World-, That Time I Got Reincarnated as a Slime, Farming Life in Another World, Isekai
+
+Mon, 09 Mar 2026 02:15:12 GMT
+
+https://www.cbr.com/best-new-isekai-spring-2026/
+
+The upcoming isekai anime lineup is a big part of the Spring 2026 season that promises to deliver some of the biggest debuts and returns of the year.
+---------
+
+# 44 Years Later, This Ambitious 2-Part Fantasy Series Returned Before a Quick Cancellation
+
+TV Features, Fox, Fantasy, Fantasy Island, Drama
+
+Mon, 09 Mar 2026 03:00:12 GMT
+
+https://collider.com/fantasy-island-2021-fox-series-cancelled/
+
+The 1970s hit Fantasy Island got a sequel series on FOX in 2021, only for it to be axed in just two seasons.
+---------
+
+# After a 6-Year Time Jump, Apple TV’s Greatest Sitcom of the Last Decade Is Completely Different
+
+TV Features, Trying, Apple TV, Rafe Spall, Sitcom
+
+Mon, 09 Mar 2026 03:00:12 GMT
+
+https://collider.com/apple-tv-greatest-sitcom-trying-season-5-plot/
+
+Trying, Apple TV's most underrated show, reinvents itself with a 6-year time jump, paving the way for new storylines in Season 5.
+---------
+
+# 10 Best Stephen King TV Shows, Ranked
+
+TV, Stephen King, The Outsider, Castle Rock, It: Welcome to Derry
+
+Mon, 09 Mar 2026 02:44:12 GMT
+
+https://collider.com/best-stephen-king-shows-ranked/
+
+Discover the best Stephen King TV adaptations that have impressed horror fans and critics, from IT: Welcome to Derry to The Outsider.
+---------
+
+# 'Tracker’ Is Still Missing 1 Thing After a Twisty Action-Packed Case for Colter | Review
+
+TV Reviews, Tracker, Justin Hartley, CBS, Procedural
+
+Mon, 09 Mar 2026 02:00:23 GMT
+
+https://collider.com/tracker-season-3-episode-11-recap-review-colter-reenie-new-subplot/
+
+Tracker's Colter Shaw takes on a case in New York, uncovering a sinister conspiracy while Reenie Greene considers a new legal challenge.
+---------
+
+# 'Marshals' Episode 2 Proves Kayce Can't Keep the 'Yellowstone' Train Station a Secret for Long | Review
+
+TV Reviews, Marshals, Luke Grimes, Logan Marshall-Green, CBS
+
+Mon, 09 Mar 2026 01:00:12 GMT
+
+https://collider.com/marshals-episode-2-recap-review-kayce-dutton-train-station/
+
+Kayce Dutton and his U.S. Marshal team uncover secrets from Yellowstone, testing their loyalty and skills in a dangerous mission.
+---------
+
+# Netflix's Steamy New 8-Part Thriller Is Already Coming for 'Bridgerton's Crown
+
+TV News, Vladimir, Bridgerton, Netflix, Rachel Weisz
+
+Mon, 09 Mar 2026 00:20:12 GMT
+
+https://collider.com/rachel-weisz-steamy-thriller-series-vladimir-bridgerton-fans-streaming-success-netflix-march-2026/
+
+Netflix's sizzling new comedy-drama thriller, Vladimir, has immediately shot up the streaming charts, challenging the reign of Bridgerton.
+---------
+
+# 48 Years Later, Jackie Chan’s Martial Arts Game-Changer Is Finally Winning Over America
+
+TV News, Drunken Master, Jackie Chan, Kung Fu, Martial Arts
+
+Mon, 09 Mar 2026 00:00:12 GMT
+
+https://collider.com/jackie-chan-most-influential-martial-arts-movie-the-drunken-master-streaming-success-tubi-march-2026/
+
+Jackie Chan became a martial arts legend with this 48-year-old film, which is seeing renewed interest in America. Get all the details.
+---------
+
+# Steven Spielberg 2-Season Gem 'Amazing Stories' Is a Sci-Fi Fantasy Masterpiece
+
+TV News, Amazing Stories, Steven Spielberg, Streaming Recommendations
+
+Mon, 09 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/steven-spielberg-amazing-stories-sci-fi-fantasy-masterpiece/
+
+The iconic '80s show featured the work of directors such as Clint Eastwood, Martin Scorsese, and Robert Zemeckis, among others.
+---------
+
+# Brad Pitt's Hard Sci-Fi Gem 'Ad Astra' Lands New Streaming Home
+
+Movie News, Ad Astra, Coming/Leaving Streaming
+
+Mon, 09 Mar 2026 00:01:17 GMT
+
+https://movieweb.com/ad-astra-streaming-tubi-march-2026/
+
+Even though it's one of the best films in the genre in recent years, not many people saw it.
+---------
+
 # Unreleased Star Wars Animated Series: The Untold Story of Detours
 
 Streaming TV, Star Wars
