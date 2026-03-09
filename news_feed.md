@@ -1,3 +1,113 @@
+# Hulu's 3-Part Period Drama Series Is One Of Its Best
+
+Streaming TV, The Great
+
+Mon, 09 Mar 2026 23:46:18 GMT
+
+https://screenrant.com/the-great-hulu-period-drama-series-best/
+
+The Great is one of the best historical dramas on Hulu, with excellent acting and costume design. Despite its low accuracy, it is worth a binge-watch.
+---------
+
+# Bob Odenkirk Addresses Potential Pluribus Season 2 Cameo After Giving Season 1 A Glowing Review
+
+TV, Pluribus, Pluribus - Season 2, Bob Odenkirk, Saturn Awards
+
+Mon, 09 Mar 2026 23:46:08 GMT
+
+https://screenrant.com/bob-odenkirk-pluribus-season-2-role-chances-season-1-review/
+
+EXCLUSIVE: After multiple Better Call Saul stars appear in Pluribus season 1, Bob Odenkirk addresses whether he will be in season 2 of the show.
+---------
+
+# HBO's 8-Part Fantasy Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, HBO Max, Game Of Thrones
+
+Mon, 09 Mar 2026 23:44:56 GMT
+
+https://screenrant.com/hbo-game-of-thrones-fantasy-series-best/
+
+HBO's 8-part masterpiece fantasy series is one of its best releases and every fan of the genre absolutely needs to watch it at least once.
+---------
+
+# Hoppers Has Two Great Villains — But Only One Of Them Gets Real Comeuppance
+
+Movies, Hoppers
+
+Mon, 09 Mar 2026 23:20:18 GMT
+
+https://screenrant.com/hoppers-villains-consequences-pixar-op-ed/
+
+Pixar's Hoppers has two antagonists going up against Mabel's efforts to save the glade, but only one of them actually pays for their actions.
+---------
+
+# James Cameron Finally Addresses Avatar Franchise's Future
+
+Movies, Avatar: Fire and Ash, Avatar
+
+Mon, 09 Mar 2026 23:21:44 GMT
+
+https://www.cbr.com/james-cameron-avatar-4-update-cancellation-reports/
+
+Avatar's future finally gets an update from James Cameron after Fire and Ash fell short of expectations.
+---------
+
+# Studio Ghibli Promises Restock After Kiki's Delivery Service Backpack Sells Out in a Day
+
+Anime, Studio Ghibli, merchandise, Kiki's Delivery Service
+
+Mon, 09 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/studio-ghibli-kikis-delivery-service-backpack-sell-out-restock/
+
+Studio Ghibli's latest tribute to a beloved side character from Kiki's Delivery Service is now one of Ghibli's hottest-selling merch items of 2026.
+---------
+
+# ‘The Pitt’s Shawn Hatosy Breaks Silence on Dr. Robby’s Season 2 Struggles
+
+TV News, The Pitt, Shawn Hatosy, Noah Wyle, HBO Max
+
+Mon, 09 Mar 2026 23:40:12 GMT
+
+https://collider.com/the-pitt-season-2-shawn-hatosy-explains-dr-robby-struggles-mental-health/
+
+The Pitt star Shawn Hatosy, who plays Dr. Jack Abbot, breaks his silence on Dr. Robby's ongoing struggles in Season 2.
+---------
+
+# Guillermo del Toro Teases His Return to TV's Longest Running Live-Action Sitcom
+
+TV News, Guillermo del Toro, It's Always Sunny in Philadelphia, Rob McElhenney, Kaitlin Olson
+
+Mon, 09 Mar 2026 23:15:12 GMT
+
+https://collider.com/guillermo-del-toro-returns-to-its-always-sunny-in-philadelphia-in-new-image/
+
+Guillermo del Toro marks his return to It’s Always Sunny in Philadelphia via a social media post. See it here!
+---------
+
+# Stranger Things Returns Tomorrow With a Brand New Adventure
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Mon, 09 Mar 2026 23:09:45 GMT
+
+https://collider.com/stranger-things-tales-from-hawkins-2-release-date-march-10/
+
+Stranger Things officially returns tomorrow with the release of a new comic book anthology, Stranger Things Volume 10: Tales from Hawkins 2.
+---------
+
+# 'Breaking Bad' Confirmed Walter White's Devastating Fate in Just 2 Minutes
+
+TV Features, Breaking Bad, Bryan Cranston, Vince Gilligan, Crime
+
+Mon, 09 Mar 2026 23:09:12 GMT
+
+https://collider.com/breaking-bad-episode-3-krazy-8-death-confirmed-walter-white-fate/
+
+Breaking Bad Episode 3, "And the Bag's in the River," features the death of Krazy-8, the moment Walter White realized killing could fix his problems.
+---------
+
 # This Shakespeare Line Still Reigns As The Greatest In Literary History
 
 Books, The Tragedy of Macbeth
