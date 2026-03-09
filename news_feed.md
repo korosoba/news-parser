@@ -1,3 +1,443 @@
+# Only One Streaming Series Has More Lore Than Netflix's Epic Fantasy Adaptation
+
+TV, One Piece, The Lord of the Rings: The Rings of Power
+
+Mon, 09 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/netflix-one-piece-more-lore-streaming-series/
+
+One bold move by Netflix has set its epic fantasy adaptation apart from the competition, leaving fans to ponder the depths of its growing lore.
+---------
+
+# Emma’s New LA Job In Dark Winds Season 4 Explained By Star
+
+TV, Dark Winds
+
+Mon, 09 Mar 2026 17:55:25 GMT
+
+https://screenrant.com/dark-winds-season-4-emma-new-job-los-angeles-deanna-allison/
+
+EXCLUSIVE: Dark Winds star Deanna Allison explains Emma's new job in LA, and how it impacts her appearance in season 4.
+---------
+
+# Peaky Blinders Series’ Cancelled Original Ending Plans Finally Revealed With Major Shelby Death Change
+
+TV, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Mon, 09 Mar 2026 17:55:22 GMT
+
+https://screenrant.com/peaky-blinders-original-ending-canceled-major-shelby-death/
+
+Peaky Blinders star has shared that the original ending for the series was scrapped following a change in plans, leading to the death of a Shelby.
+---------
+
+# Jurassic World Rebirth Streaming Success Suggests Sequel Potential
+
+Movies, Jurassic World Rebirth
+
+Mon, 09 Mar 2026 17:45:18 GMT
+
+https://screenrant.com/jurassic-world-rebirth-streaming-netflix-hbo-max-success-sequel/
+
+Jurassic World Rebirth is another hit in the Jurassic franchise, and its recent streaming success further proves that a sequel is likely happening.
+---------
+
+# 2024's Best Anime is Getting an Official Follow-up, But It's Not Coming to Crunchyroll
+
+Anime, Look Back, Crunchyroll
+
+Mon, 09 Mar 2026 17:38:28 GMT
+
+https://screenrant.com/look-back-follow-up-live-action-anime-2024-not-crunchyroll/
+
+The best anime of 2024 is getting an official follow-up, but there is a huge catch for fans who want to watch, because it won't be on Crunchyroll.
+---------
+
+# Adult Swim Finally Resurrects an Unforgettable '90s Anime Classic, But There's a Big Catch
+
+Anime, Sailor Moon
+
+Mon, 09 Mar 2026 17:36:45 GMT
+
+https://screenrant.com/saillor-moon-adult-swim-return-5am-death-slot/
+
+Sailor Moon is coming back home with Adult Swim, and while it's unfortunately in the Death Slot, it's a welcome addition for those up early enough.
+---------
+
+# Upcoming Garfield Show Can Redeem Chris Pratt's 36% RT Disappointment
+
+Streaming TV, The Garfield Movie
+
+Mon, 09 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/paramount-new-garfield-series-chris-pratt-movie-redeem/
+
+Chris Pratt's 36% RT animated film left fans disappointed, but Paramount's upcoming comedy offers this franchise the perfect shot at redemption.
+---------
+
+# Dark Souls 2 Next-Gen Graphics Overhaul Leaves Gamers Stunned
+
+Gaming, Dark Souls, Triple-A Games, PC
+
+Mon, 09 Mar 2026 17:26:57 GMT
+
+https://screenrant.com/dark-souls-2-next-gen-fan-overhaul-path-tracing/
+
+Dark Souls 2 didn't get nearly the respect it deserved upon launch, but now, it seems like a lot of fans are going to be flocking back.
+---------
+
+# Network TV’s Longest-Running Active Sitcom Is Already A Streaming Success Ahead Of Its End
+
+Network TV, The Neighborhood
+
+Mon, 09 Mar 2026 17:24:18 GMT
+
+https://screenrant.com/the-neighborhood-streaming-success-before-ending/
+
+May will mark the end of network TV's longest-running active sitcom on broadcast. Before that, it's already proving its streaming prowess.
+---------
+
+# This Free Steam Game Gives Cyberpunk 2077 Vibes, And I Loved It
+
+Gaming
+
+Mon, 09 Mar 2026 17:22:11 GMT
+
+https://screenrant.com/free-steam-game-cyberpunk-2077/
+
+Discover the thought-provoking world of D1AL-OGUE, a free Steam puzzle game set in a cyberpunk city.
+---------
+
+# Percy Jackson Season 3 Book Change Will Impact a Major Olympian God
+
+TV, Percy Jackson & the Olympians
+
+Mon, 09 Mar 2026 17:44:44 GMT
+
+https://www.cbr.com/percy-jackson-season-3-book-change-hera-ming-na-wen/
+
+Just like with the previous two seasons, Percy Jackson Season 3 will feature its fair share of changes from the Rick Riordan novel it'll be based on.
+---------
+
+# Avatar: The Last Airbender Creator Teases 'Awesome' Sequel 5 Years in the Making
+
+Anime, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender
+
+Mon, 09 Mar 2026 17:41:22 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-legend-of-aang-filming-update/
+
+One of the original creators of Avatar: The Last Airbender teases the 'awesome' feature film sequel while talking Magic: The Gathering.
+---------
+
+# James Gunn's Marvel Cast Talk the Possibility of Guardians Of The Galaxy 4
+
+Movies, Guardians of the Galaxy, Marvel, MCU
+
+Mon, 09 Mar 2026 17:39:45 GMT
+
+https://www.cbr.com/james-gunns-marvel-cast-talk-the-possibility-of-guardians-of-the-galaxy-4/
+
+The cast of the Guardians of the Galaxy trilogy finally answered a question that's been on fans' minds.
+---------
+
+# Alan Ritchson Finally Confirms When Reacher Season 4 Release Window
+
+TV, Reacher
+
+Mon, 09 Mar 2026 17:33:23 GMT
+
+https://www.cbr.com/alan-ritchson-reacher-season-4-release-window/
+
+Fans won't have to wait long to have the best Prime Video series back.
+---------
+
+# Tom Cruise’s New Streaming Hit Proves Mission: Impossible Still Has Life
+
+Movies, Mission: Impossible, tom cruise
+
+Mon, 09 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/tom-cruise-mission-impossible-streaming-success-sequel-potential/
+
+Mission: Impossible may not be over after The Final Reckoning, if Tom Cruise's latest streaming stats are any indication.
+---------
+
+# DC Reveals a Brand New Joker, And He's a Nightmare
+
+Comics, Batman
+
+Mon, 09 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/dc-comics-reimagined-joker-matt-fraction-batman/
+
+DC Comics has finally given fans their first full look at the new Joker, and his secrets are somehow even more terrifying than he is.
+---------
+
+# Sonic The Hedgehog's Voice Actor Confirms How SEGA Describes The Blue Blur
+
+CBR Exclusives, Sonic the Hedgehog
+
+Mon, 09 Mar 2026 17:18:22 GMT
+
+https://www.cbr.com/ryan-drummond-4-words-sega-used-to-define-sonic/
+
+Ryan Drummond confirms just how SEGA described Sonic the Hedgehog.
+---------
+
+# 4 Nintendo Switch Co-Op Games That Are Instantly Fun
+
+Games, Nintendo Switch, Nintendo, Multiplayer Games
+
+Mon, 09 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/best-nintendo-switch-coop-games/
+
+The best co-op games on the Nintendo Switch will instantly get players hooked.
+---------
+
+# Amazon Jacks Up Pokémon Pokopia Price Amid Supply Issues
+
+Games, Pokemon
+
+Mon, 09 Mar 2026 16:55:12 GMT
+
+https://www.cbr.com/amazon-pokemon-pokopia-price-increase-supply-issues/
+
+Amazon has increased the price of physical copies of Pokémon Pokopia, after shortages made it difficult to buy the Nintendo Switch 2 exclusive.
+---------
+
+# Mike Flanagan's TV Future Sealed in Multi-Year Deal With Prime Video
+
+TV, Mike Flanagan, Prime Video
+
+Mon, 09 Mar 2026 16:52:36 GMT
+
+https://www.cbr.com/mike-flanagan-multi-year-deal-prime-video/
+
+After his success with Netflix, Mike Flanagan has found a new streaming home.
+---------
+
+# 24 Years Before Peter Jackson, This Was the Best Middle-earth Adaptation
+
+Animation, The Hobbit, The Lord of the Rings, J.R.R. Tolkien
+
+Mon, 09 Mar 2026 18:04:12 GMT
+
+https://collider.com/1977-hobbit-better-tolkien-adaptation-than-you-remember/
+
+Before Peter Jackson’s Lord of the Rings trilogy, the 1977 animated Hobbit captured Tolkien’s tone and storytelling better than most adaptations.
+---------
+
+# The Tragic Motorcycle Crash That Halted Bob Dylan at the Height of Fame
+
+Music Features, Bob Dylan, Rock, Pop
+
+Mon, 09 Mar 2026 18:00:37 GMT
+
+https://collider.com/the-tragic-motorcycle-crash-that-halted-bob-dylan-at-the-height-of-fame/
+
+On July 29, 1966, Bob Dylan was involved in a motorcycle crash that halted his career at only 25 years old.
+---------
+
+# 10 Greatest Anime Without a Video Game Adaptation
+
+TV, Anime, Ping Pong The Animation, Erased, Sonny Boy
+
+Mon, 09 Mar 2026 17:42:12 GMT
+
+https://collider.com/best-anime-no-video-game-adaptation/
+
+From the table tennis thrill of Ping Pong the Animation to the mystery of Erased, it's shocking these anime don't have a video game adaptation.
+---------
+
+# Disney Cancels Remake of 1973 Animated Classic
+
+Movie News, Robin Hood, Animation, Disney, Carlos López Estrada
+
+Mon, 09 Mar 2026 17:41:06 GMT
+
+https://collider.com/disney-cancels-remake-of-1973-animated-robin-hood-movie/
+
+After more than 6 years in development at Disney, a remake of the beloved 1973 animated classic Robin Hood movie has been cancelled.
+---------
+
+# 'Outlander' Fans Outraged by Season 8's Major Changes From Book to Screen
+
+TV News, Outlander, Outlander: Blood of My Blood, STARZ, Ronald D. Moore
+
+Mon, 09 Mar 2026 17:37:59 GMT
+
+https://collider.com/outlander-season-8-premiere-storyline-book-changes-fans-outraged/
+
+Outlander fans are rejecting this storyline from the Season 8 premiere that makes a major change from the beloved book series.
+---------
+
+# 40 Years Later, 'Ferris Bueller's Day Off' Stars Reunite For New Movie
+
+Movie News, Ferris Bueller's Day Off, Alan Ruck, Matthew Broderick, Jon Turteltaub
+
+Mon, 09 Mar 2026 17:35:29 GMT
+
+https://collider.com/ferris-buellers-day-off-cast-reunites-new-movie-40-years-later-matthew-broderick-alan-ruck/
+
+Ferris Bueller's Day Off stars Matthew Broderick and Alan Ruck react to reuniting 40 years later on new comedy The Best Is Yet to Come.
+---------
+
+# 20 Years Later, A Genre-Defining Sci-Fi Masterpiece is Officially Surging on U.S Streaming Charts
+
+TV News, Firefly, Joss Whedon, Sci-Fi, Western
+
+Mon, 09 Mar 2026 17:21:31 GMT
+
+https://collider.com/firefly-sci-fi-western-streaming-success-amazon-march-2026/
+
+20 years after this hit sci-fi western was cancelled without cause, Firefly has set a streaming comeback.
+---------
+
+# Elijah Wood Agrees With ‘Lord of the Rings’ Co-Star on Playing His Most Iconic Role as Long as He’s "Alive and Able"
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Elijah Wood, Ian McKellen, Andy Serkis
+
+Mon, 09 Mar 2026 16:46:15 GMT
+
+https://collider.com/lord-of-the-rings-elijah-wood-agrees-orlando-bloom-playing-roles-as-long-as-alive-and-able/
+
+Lord of the Rings star Elijah Wood agrees with his co-star on playing his most iconic role while he's "alive and able."
+---------
+
+# Michael B. Jordan Was Fantastic in This Gripping Courtroom Drama 6 Years Before ‘Sinners’
+
+Movie Features, Michael B. Jordan, Just Mercy, Jamie Foxx, Sinners
+
+Mon, 09 Mar 2026 16:39:12 GMT
+
+https://collider.com/michael-b-jordan-just-mercy-netflix/
+
+Michael B. Jordan gave one of his best performances in Just Mercy, alongside Jamie Foxx and Brie Larson.
+---------
+
+# 10 Most Suspenseful Stephen King Books, Ranked
+
+Movie, Stephen King, Misery, The Long Walk, The Dead Zone
+
+Mon, 09 Mar 2026 16:04:12 GMT
+
+https://collider.com/most-suspenseful-stephen-king-books-ranked/
+
+The most suspenseful Stephen King books include classics like The Stand and Cujo, alongside 21st-century releases like 11/22/63 and Under the Dome.
+---------
+
+# 'Firefly' Soars on Streaming Amid Revival Rumors on Social Media
+
+TV News, Firefly, Hot on Streaming, Sci-Fi
+
+Mon, 09 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/firefly-streaming-hit-prime-video-march-2026/
+
+Following a series of cryptic videos on social media posted by Nathan Fillion, 'Firefly' has experienced a resurgence on streaming.
+---------
+
+# Every Bonnie and Clyde Movie, Ranked
+
+Movie Lists
+
+Mon, 09 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/bonnie-and-clyde-movies/
+
+When it comes to movie famous movie duos, there is none that is as recognizable as criminal masterminds, Bonnie and Clyde.
+---------
+
+# 'Ted' Season 3 in Doubt, Seth MacFarlane Says
+
+TV News, Ted, Seth MacFarlane
+
+Mon, 09 Mar 2026 17:47:22 GMT
+
+https://movieweb.com/ted-season-3-seth-macfarlane-update/
+
+Will there be a 'Ted' Season 3? McFarlane spills the beans on the financial conversations behind the scenes of the hit Peacock series.
+---------
+
+# 'The Mandalorian and Grogu' Won't Have a Talking Grogu, Kathleen Kennedy Says
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Kathleen Kennedy
+
+Mon, 09 Mar 2026 17:38:07 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-baby-yoda-talk/
+
+Former Lucasfilm president Kathleen Kennedy has confirmed that Grogu will not speak in the upcoming 'Star Wars' film, 'The Mandalorian and Grogu.'
+---------
+
+# The Duffer Brothers's Netflix Series 'The Boroughs' Draws From 'Cocoon'
+
+Features, The Boroughs, Upcoming Tease
+
+Mon, 09 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/the-boroughs-netflix-inspired-cocoon/
+
+The Duffer Brothers' new sci-fi series The Boroughs owes a lot to this classic Ron Howard movie
+---------
+
+# Paul Bettany Teases 'VisionQuest' Being a Differrent Type of MCU Series
+
+TV News, Vision Quest, Paul Bettany
+
+Mon, 09 Mar 2026 16:55:38 GMT
+
+https://movieweb.com/avengers-veteran-teases-unique-new-mcu-spin-off/
+
+Paul Bettany says that 'VisionQuest' will see the android Avenger go on a journey of self-discovery.
+---------
+
+# Guy Ritchie's 'Young Sherlock' Topples Prime Video's Best on Streaming
+
+TV News, Young Sherlock, Hot on Streaming, Guy Ritchie
+
+Mon, 09 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/young-sherlock-streaming-hit-prime-video-march-2026/
+
+Less than a week after its premiere, 'Young Sherlock' is already proving to be a big hit for Prime Video, but will we get a second season?
+---------
+
+# Mike Flanagan's 'Haunting of Hill House' Episode Is Still a Masterpiece
+
+Features, Holds Up, Mike Flanagan, Netflix, The Haunting of Hill House
+
+Mon, 09 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/mike-flanagan-hill-house-episode-masterpiece/
+
+Mike Flanagan is an exceptional writer and director, and his most devastating episode in Netflix's Thriller series is a masterful display of talent.
+---------
+
+# 'Paradise' Season 2, Episode 5 Recap and Review: "The Mailman"
+
+TV Reviews, Paradise
+
+Mon, 09 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/paradise-season-2-episode-5-recap-review/
+
+'Paradise' finally answered the question of Teri's whereabouts, and introduced one of the most compelling apocalypse survivors on TV.
+---------
+
+# Best Revenge-Themed K-Dramas That Are So Satisfying
+
+TV Lists, Drama
+
+Mon, 09 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/k-drama-best-revenge/
+
+With intricate planning and the element of surprise, these clever protagonists trap and outsmart those who hurt them in delicious and dramatic ways.
+---------
+
 # 3 Best Movies To Watch On Prime Video This Week (March 9-13)
 
 Classic Movies, Prime Video, Recommendation
