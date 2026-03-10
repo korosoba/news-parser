@@ -1,3 +1,234 @@
+# DC’s Newest Superman May Be Dark But He Doesn’t Lose The Character’s Most Important Trait
+
+Comics, Superman, DC Comics
+
+Tue, 10 Mar 2026 23:40:18 GMT
+
+https://screenrant.com/absolute-superman-most-important-trait-inspiring-dc-comics-parasite/
+
+DC's new Superman is younger, darker, and more intense, though a new chapter just proved he still shares one key trait with the OG Man of Steel.
+---------
+
+# 10 Best Steamy Thriller Series Like Vladimir
+
+Streaming TV, Vladimir
+
+Tue, 10 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/steamy-thriller-shows-like-vladimir/
+
+The top 10 steamy thriller series similar to Vladimir, featuring intense relationships and suspenseful plotlines that keep you hooked.
+---------
+
+# Outlander's Full Timeline & Time Travel Explained
+
+Streaming TV, Outlander
+
+Tue, 10 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/outlander-timeline-time-travel-explained/
+
+From the moment Claire slipped through the stones of Craigh na Dun, Outlander's timeline got pretty complicated. Of course, that was only the start.
+---------
+
+# New Star Wars Prequel Is Officially Bringing Back Andor's Luthen & Kleya
+
+TV, Andor, Star Wars, Luthen Rael
+
+Tue, 10 Mar 2026 23:26:08 GMT
+
+https://screenrant.com/star-wars-reign-of-empire-edge-of-abyss-luthen-kleya-andor-return/
+
+Andor is over, but Luthen Rael and Kleya Marki are back for a new Star Wars story set a year before the events of season 1 in the Disney+ series.
+---------
+
+# One Of The Coen Brothers' Most Underrated Movies Is Turning 10 This Year
+
+Movies, Coen Brothers, Hail, Caesar!, Recommendation
+
+Tue, 10 Mar 2026 23:15:18 GMT
+
+https://screenrant.com/hail-caesar-10-year-anniversary-coen-brothers-recommendation/
+
+One of the Coen brothers' lesser-known movies that is just as good as their most famous classics will be celebrating its 10th anniversary in 2026.
+---------
+
+# Bob Odenkirk Reveals Return Status Of His John Wick-esque Franchise After $100M Box Office Run
+
+Movies, Nobody 2, Nobody, Bob Odenkirk, Saturn Awards
+
+Tue, 10 Mar 2026 23:09:46 GMT
+
+https://screenrant.com/bob-odenkirk-nobody-3-return-update/
+
+Exclusive: Bob Odenkirk offers a status update on the return of his John Wick-like action franchise after it crossed the $100 million mark.
+---------
+
+# Liam Neeson's $177M Action Remake Of '80s Classic Flopped For One Reason As Director Hoped For Trilogy
+
+Movies, The A-Team
+
+Tue, 10 Mar 2026 23:06:29 GMT
+
+https://screenrant.com/a-team-box-office-flop-trilogy-hopes-joe-carnahan/
+
+Liam Neeson's $177 million action remake of a 1980s classic flopped for one reason, according to the director, who hoped it would launch a trilogy.
+---------
+
+# XO, Kitty Cast Ages: How The Show's Actors Compare To Characters
+
+Streaming TV, XO, Kitty
+
+Tue, 10 Mar 2026 23:06:20 GMT
+
+https://screenrant.com/xo-kitty-how-old-major-characters-age-explained/
+
+XO, Kitty's characters differ in age from their actors, including Anna Cathcart's Kitty to the ensemble cast playing students in their 20s and 30s.
+---------
+
+# 10 Strongest Superman-Level Heroes DC Has Introduced Since 2000
+
+Comics, Superman
+
+Tue, 10 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/superman-level-strongest-dc-heroes-introduced-since-2000/
+
+DC's Superman is known for his immense strength and endless array of abilities, however there are modern heroes who can match his incredible power.
+---------
+
+# Final Fantasy, Zelda Collide In New RPG You Can Try Free Now
+
+Gaming, RPG, JRPG, Steam, Final Fantasy, The Legend of Zelda, Indie, PC
+
+Tue, 10 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/steam-free-rpg-zelda-final-fantasy/
+
+Fans of The Legend of Zelda and Final Fantasy games can’t miss out on the chance to try this upcoming JRPG for free on Steam right now.
+---------
+
+# Sorority Row May Finally Be Getting a Sequel, Writer Teases
+
+Movies, The House on Sorority Row, Sorority Row
+
+Tue, 10 Mar 2026 23:28:36 GMT
+
+https://www.cbr.com/sorority-row-2-horror-sequel-teased/
+
+The dormant horror franchise appears to be returning in the very near future.
+---------
+
+# Chainsaw Man Ends The Reze Era With Final Official Art Release
+
+Anime, Chainsaw Man
+
+Tue, 10 Mar 2026 23:20:12 GMT
+
+https://www.cbr.com/chainsaw-man-reze-arc-final-art-theatrical-event/
+
+Chainsaw Man’s Reze has had a generational run as a new anime icon, but now the series is officially saying goodbye to her for good with new art.
+---------
+
+# Crunchyroll Gets New Anime Streaming Rival With 25+ Hours of Fullmetal Alchemist Free
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood
+
+Tue, 10 Mar 2026 23:10:12 GMT
+
+https://www.cbr.com/fullmetal-alchemist-brotherhood-free-streaming-amasian-tv/
+
+A North American-based streaming service expands its content catalog with one of anime's most beloved science-fiction shonen titles.
+---------
+
+# Christoph Waltz's Gothic Horror Film Dracula Finds Second Life on PVOD
+
+Movies, Dracula, Fantasy
+
+Tue, 10 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/christoph-waltzs-dracula-pvod-success-march-2026/
+
+Luc Besson's Dracula, starring Christoph Waltz, Caleb Landry Jones, and Zoë Bleu, is a hit on PVOD despite mixed reviews from critics.
+---------
+
+# How the Frasier Revival's Niles Replacement Broke the Niles Rules
+
+TV, Frasier, Sitcoms, Paramount Plus
+
+Tue, 10 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/frasier-2023-alan-cornwall-niles-crane-comparsion/
+
+The Frasier revival's Niles replacement, Alan Cornwall, successfully broke the defining rule that made Niles Crane so memorable.
+---------
+
+# Nearly 21 Years Later, a Legendary Sci-Fi Comic Adaptation Begs To Be Remembered
+
+Movie News, V For Vendetta, Natalie Portman, Hugo Weaving, The Wachowskis
+
+Tue, 10 Mar 2026 23:51:57 GMT
+
+https://collider.com/v-for-vendetta-sci-fi-cult-classic-streaming-success-hbo-max-march-2026/
+
+The cult classic dystopian thriller V for Vendetta witnessed a resurgence on the domestic streaming charts one week before its 21st anniversary.
+---------
+
+# The Best Jurassic Movie in a Decade Is Dominating 2 Streaming Services
+
+Movie News, Jurassic World Rebirth, Scarlett Johansson, Jonathan Bailey, Sci-Fi
+
+Tue, 10 Mar 2026 23:39:20 GMT
+
+https://collider.com/jurassic-world-rebirth-sci-fi-reboot-streaming-success-netflix-hbo-max-march-2026/
+
+With a sequel on the way, the Jurassic saga is still going strong, with Jurassic World Rebirth conquering not 1, but 2 streaming platforms.
+---------
+
+# One of the Greatest Beatles Covers Is This 1969 Track Some Say Is Better Than the Original
+
+Music Features, The Beatles, Nina Simone, George Harrison - All Things Pass, Rock, Music
+
+Tue, 10 Mar 2026 23:25:00 GMT
+
+https://collider.com/1969-the-beatles-here-comes-the-sun-nina-simone-cover/
+
+Nina Simone's soulful rendition of The Beatles' 'ere Comes the Sun in 1971 brought a deeper emotional depth to the song, reflecting the hope and resilience of the Black community during a time of political unrest and civil rights struggles.
+---------
+
+# Hulu’s 4-Part Dark Comedy Sleeper Hit Is the Perfect Weekend Binge
+
+TV Features, Atlanta, Donald Glover, Brian Tyree Henry, Hulu
+
+Tue, 10 Mar 2026 23:18:12 GMT
+
+https://collider.com/hulu-us-atlanta-series-weekend-binge-donald-glover/
+
+Donald Glover’s Atlanta blends comedy, surrealism, and drama. Here’s why the acclaimed FX series is the perfect weekend binge.
+---------
+
+# 15 Oscar Bait Movies That Actually Won Oscars, Ranked
+
+Movie, Oscars, Academy Awards, Green Book, Bombshell
+
+Tue, 10 Mar 2026 23:07:12 GMT
+
+https://collider.com/oscar-bait-movies-actually-won/
+
+Green Book, Bombshell, and Evita were shamelessly baiting Oscars upon release, and indeed they took home Academy gold.
+---------
+
+# 9 Perfect Superhero Castings No One Believed In
+
+Movie Lists, Superhero, Batman, The Batman, The Dark Knight, The Fantastic Four: First Steps, The Avengers, X-Men, Captain America: The First Avenger, The Dark Knight Rises
+
+Tue, 10 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/perfect-superhero-movie-casting-fans-skeptical/
+
+From actors who were cast as Batman and in several Marvel movies, these casting choices were met with skepticism, but the actors proved people wrong.
+---------
+
 # Titus Welliver's 2026 Bosch Return In Crime Series With Rare Perfect Rotten Tomatoes Score Repeats A Season 1 Strength
 
 TV, Ballard, Bosch
