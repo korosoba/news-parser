@@ -1,3 +1,344 @@
+# Turtle Team-Up Is A Great New Way To Teach Magic: The Gathering
+
+Gaming, Magic: The Gathering, tabletop games
+
+Tue, 10 Mar 2026 21:00:22 GMT
+
+https://screenrant.com/turtle-team-up-is-a-great-new-way-to-teach-magic-the-gathering/
+
+In the first true co-op experience for Magic: The Gathering, Turtle Team Up ushers in a fantastic era for teaching new players Magic.
+---------
+
+# The Scrubs Revival: A Rare Success That Honors The Comedy's Core Elements
+
+Streaming TV, Scrubs
+
+Tue, 10 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/scrubs-season-10-avoids-reboot-problem-characters-kids/
+
+Modern reboots can go wrong in a dozen ways, but Scrubs season 10 has managed to avoid a subtle but common pitfall to find some rare success.
+---------
+
+# Our Final Predictions For Oscars 2026's Best Director Lineup: Who Will Win?
+
+New Movies, Oscars, award ceremonies, Directors Guild of America Awards, BAFTA
+
+Tue, 10 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/oscars-2026-best-director-predictions/
+
+The Oscars 2026 winner for Best Director is about to be crowned. Here's our final prediction for who will win after a frontrunner emerged.
+---------
+
+# The Best Storyline For Spider-Man's Live-Action Show Was Told 57 Years Ago
+
+Superheroes, Spider-Noir, Theory
+
+Tue, 10 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/spider-noir-show-silvermane-lifeline-tablet-saga-story-inspiration-theory/
+
+What is Silvermane's goal in Prime Video's Spider-Noir series? The best-possible answer to this question stems from a 1969 story arc.
+---------
+
+# Netflix's Sci-Fi Survival Movie With 58% RT Score Officially Cracks Top 5 Most Popular Movies List
+
+Movies, The Great Flood
+
+Tue, 10 Mar 2026 20:11:30 GMT
+
+https://screenrant.com/the-great-flood-netflix-top-5-non-english-most-popular-movies-list-update/
+
+Netflix's sci-fi survival movie with a 58% Rotten Tomatoes score officially cracks the list of their top five most popular movies of all time.
+---------
+
+# Prime Video's 16-Part Sci-Fi Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, Prime Video, Gen V, The Boys
+
+Tue, 10 Mar 2026 20:10:19 GMT
+
+https://screenrant.com/prime-video-gen-v-sci-fi-series-best/
+
+One of Prime Video's best TV shows is this 16-part Sci-Fi series with impeccable VFC, complex characters, many plot twists, and heartbreaking deaths.
+---------
+
+# Pokémon Radiant Takes Players Back To The Alola Region
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 10 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/pokemon-radiant-sun-moon-sequel-fan-game/
+
+The Alola region is one of the most visually striking and interesting aspects of the Pokémon series, so a return is completely welcome.
+---------
+
+# The 2 Best Spy Franchises Of All Time Made The Same Movie 11 Years Ago
+
+Movies, James Bond, Mission: Impossible
+
+Tue, 10 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/james-bond-spectre-mission-impossible-rogue-nation-same-movie/
+
+James Bond and Mission: Impossible remain the two biggest spy movie franchises around, but somehow managed to copy each other in the same year.
+---------
+
+# Why Netflix's New #1 Movie Is Taking Over The World
+
+New Movies, War Machine
+
+Tue, 10 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/war-machine-movie-netflix-streaming-success-march-2026/
+
+Netflix has a brand-new movie taking over its streaming charts worldwide. Here's why the action sci-fi film with a major star is worth watching.
+---------
+
+# From Is a Sci-Fi Supernatural Horror Series That Appeals to All
+
+TV, From, Sci-Fi
+
+Tue, 10 Mar 2026 21:00:13 GMT
+
+https://www.cbr.com/from-show-worth-watching-if-you-hate-sci-fi/
+
+Sci-fi isn't for everyone, but I think there is one series in the genre that is so good that everyone should check it out, even the haters.
+---------
+
+# Young Sherlock's Success Proves its Time For the Missing Third Film
+
+Movies, Young Sherlock, Sherlock Holmes, Sherlock Holmes 3
+
+Tue, 10 Mar 2026 21:00:13 GMT
+
+https://www.cbr.com/sherlock-holmes-streaming-success-proves-third-movie-needed/
+
+Guy Ritchie's Young Sherlock series is a streaming hit, but it also makes the missing third movie in his trilogy more glaring for its absence.
+---------
+
+# Forgotten Horror Masterpieces Have Aged Like Fine Wine
+
+Movies, Horror
+
+Tue, 10 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/forgotten-horror-movie-aged-well-list/
+
+These underrated cult classic horror movies are better than the vast majority of the horror flicks releasing today.
+---------
+
+# Re:Zero Is Finally Making a Comeback as the Best Dark Isekai of the Last 10 Years
+
+Anime, Re:Zero -Starting Life in Another World-, Isekai
+
+Tue, 10 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/re-zero-season-4-best-dark-isekai-anime-2026/
+
+The decade's darkest isekai is finally returning, and given the light novel arcs it will adapt, it's sure to be the anime's most brutal season yet.
+---------
+
+# Chainsaw Man Chapter 231 Review
+
+Anime, Chainsaw Man
+
+Tue, 10 Mar 2026 20:04:12 GMT
+
+https://www.cbr.com/chainsaw-man-chapter-231-review/
+
+Part 2 of the Chainsaw Man manga is officially ending in only 1 more chapter, making the latest chapter’s plot twist even more heartbreaking.
+---------
+
+# Apple TV's Hit Sci-Fi Series Is Now Challenging Young Sherlock on Prime Video Charts
+
+TV, Monarch: Legacy of Monsters, Young Sherlock, Prime Video
+
+Tue, 10 Mar 2026 20:01:12 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-challenging-young-sherlock-prime-video-charts-march-2026/
+
+Young Sherlock may be at No. 1 show on Prime Video's charts right now, but a popular Apple TV series is coming for the top spot.
+---------
+
+# Mission: Impossible Can Continue, But Only If Tom Cruise Makes 1 Big Change
+
+Movies, Mission: Impossible, tom cruise, Thriller
+
+Tue, 10 Mar 2026 20:01:12 GMT
+
+https://www.cbr.com/mission-impossible-franchise-future-tom-cruise-change/
+
+The Mission: Impossible franchise doesn't have to end with The Final Reckoning, but it needs to enter a new era.
+---------
+
+# 10 Obscure Justice League Members Who Should Be In The DCU
+
+Comics, DCU, DC Comics
+
+Tue, 10 Mar 2026 20:01:12 GMT
+
+https://www.cbr.com/obscure-justice-league-members-who-need-a-dcu-debut/
+
+These lesser-known Justice League members should make their way into live-action media.
+---------
+
+# Stephen King's The Institute Teases 'Torture' for the Characters in Season 2
+
+TV, The Institute
+
+Tue, 10 Mar 2026 19:59:54 GMT
+
+https://www.cbr.com/stephen-king-joe-freeman-torture-the-institute-season-2/
+
+The series, which is the perfect replacement for Stranger Things, will return in 2026 with new episodes.
+---------
+
+# Netflix's 'One Piece' Cast Reacts to THOSE Surprise Season 2 Cameos: "I Screamed!"
+
+Exclusives, One Piece, Netflix, Emily Rudd, Mackenyu
+
+Tue, 10 Mar 2026 21:00:13 GMT
+
+https://collider.com/one-piece-season-2-netflix-cameos-dragon-sabo-brook-cast-inaki-godoy-interview/
+
+The cast of Netflix's One Piece breaks down Season 2's surprise cameos, featuring characters you'd never expect to appear this early.
+---------
+
+# This Monstrously Forgotten Horror Movie Is the Best Frankenstein Tale of the 2020s
+
+Movie Features, Lisa Frankenstein, Kathryn Newton, Cole Sprouse, Diablo Cody
+
+Tue, 10 Mar 2026 20:57:13 GMT
+
+https://collider.com/forgotten-cult-horror-film-lisa-frankenstein-underrated/
+
+Lisa Frankenstein, written by Diablo Cody, is the best Frankenstein tale of the 2020s.
+---------
+
+# 10 Most Perfect Miniseries of the Last 10 Years, Ranked
+
+TV, TV Miniseries, Chernobyl, Station Eleven, Black Bird
+
+Tue, 10 Mar 2026 20:46:12 GMT
+
+https://collider.com/most-perfect-miniseries-last-10-years-ranked/
+
+From Chernobyl to Station Eleven, these miniseries delivered unforgettable storytelling without filler.
+---------
+
+# Pixar’s Recent Comments Miss the Mark on Why Their Movies Are Must-Watch Timeless Classics
+
+Movie Features, Pixar, Pete Docter, Hoppers, Elio
+
+Tue, 10 Mar 2026 20:38:12 GMT
+
+https://collider.com/pixar-pete-docter-comments-elio/
+
+Pixar’s Pete Docter recently said the studio’s films aren’t therapy, but their catalogue of movies proves that isn’t true.
+---------
+
+# In Just 3 Days, Alan Ritchson Proves He Doesn't Need 'Reacher' as New Sci-Fi Movie Hits Instant-Classic Status
+
+Movie News, War Machine, Alan Ritchson, Reacher, Netflix
+
+Tue, 10 Mar 2026 20:37:57 GMT
+
+https://collider.com/reacher-star-alan-ritchson-sci-fi-movie-war-machine-most-watched-netflix-title-39-million-views-march-2026/
+
+Alan Ritchson is once again a streaming sensation, with his Netflix action movie War Machine becoming a huge hit for the streamer.
+---------
+
+# These Groundbreaking K-Dramas Don't Waste a Single Scene
+
+TV, South Korea, Business Proposal, The Glory, The Art of Sarah
+
+Tue, 10 Mar 2026 20:29:12 GMT
+
+https://collider.com/k-dramas-no-wasted-scenes/
+
+The best K-dramas are the ones that use every scene to its advantage, as seen in shows like The Art of Sarah, Kingdom, and Business Proposal.
+---------
+
+# 5 Forgotten Horror Movies That Have Aged Like Fine Wine
+
+Movie, Horror, The Wicker Man, The Sentinel, The Fog
+
+Tue, 10 Mar 2026 20:27:12 GMT
+
+https://collider.com/forgotten-horror-movies-aged-like-fine-wine/
+
+From The Wicker Man to Prince of Darkness, these forgotten horror movies still haunt, disturb, and reward modern rewatches.
+---------
+
+# Say Goodbye to Netflix's Greatest 5-Part Sitcom Revival Next Month
+
+TV Features, Arrested Development, Jason Bateman, Jeffrey Tambor, Michael Cera
+
+Tue, 10 Mar 2026 20:22:12 GMT
+
+https://collider.com/arrested-development-netflix-greatest-sitcom-revivals-leaving-april-2026/
+
+Arrested Development's unique style and ambitious attempts at revival make its Netflix disappearance significant in the streaming industry.
+---------
+
+# 6 Near-Perfect Superhero Movies That No One Remembers Today
+
+Movie, Superhero, Sky High, Mystery Men, The Rocketeer
+
+Tue, 10 Mar 2026 20:18:12 GMT
+
+https://collider.com/near-perfect-superhero-movies-no-one-remembers-today/
+
+Mystery Men, Sky High, and The Rocketeer are excellent, easily recommendable superhero movies that are sadly mostly forgotten today.
+---------
+
+# All 50 Oscar-Nominated Movies at the 2026 Academy Awards, Ranked
+
+Movie, Oscars, One Battle After Another, Sinners, Hamnet
+
+Tue, 10 Mar 2026 20:03:12 GMT
+
+https://collider.com/oscar-nominees-movies-2026-ranked/
+
+50 movies are nominated in the different categories at this year's Oscars, and we're ranking them all, from One Battle After Another to Sinners.
+---------
+
+# Prime Video's Hard Sci-Fi Masterpiece 'Fallout' Saved the Post-Apocalyptic Genre
+
+TV News, Fallout, Prime Video, Streaming Recommendations, Sci-Fi
+
+Tue, 10 Mar 2026 21:00:19 GMT
+
+https://movieweb.com/fallout-saved-sci-fi-post-apocalyptic-genre/
+
+After 'Mad Max: Fury Road,' Prime Video's 'Fallout' saved the sci-fi/post-apocalyptic genre.
+---------
+
+# Mona Fastvold on How "Radical" a "Complete Utopia" Is in 'The Testament of Ann Lee'
+
+Features
+
+Tue, 10 Mar 2026 20:11:10 GMT
+
+https://movieweb.com/the-testament-of-ann-lee-mona-fastvold-interview/
+
+The filmmaker reflects on telling a story that ignites a "conversation with the past" in her historical musical.
+---------
+
+# 'Scrubs' Season 2's "My New Coat" Explains Why JD Doesn't Dress Like Former Chiefs of Medicine
+
+Features, Scrubs
+
+Tue, 10 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/scrubs-revival-jd-white-coat/
+
+Zach Braff's JD should really be wearing a white coat as Sacred Heart's new Chief of Medicine, but 'Scrubs' already explained why he isn't.
+---------
+
 # Extraction 3's Filming Start Window Revealed For Chris Hemsworth's Netflix Sequel
 
 Movies, Extraction 3, Extraction, Chris Hemsworth
