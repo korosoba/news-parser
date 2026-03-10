@@ -1,3 +1,443 @@
+# Blizzard’s Diablo Officially Returns With a New 4-Part Series
+
+Comics, Diablo, Diablo 4
+
+Tue, 10 Mar 2026 17:33:55 GMT
+
+https://screenrant.com/diablo-new-series-blizzard/
+
+2026 is shaping up to be an epic year for Diablo fans, with a new expansion on the horizon and now news of a new four-part series.
+---------
+
+# 10 Best-Written Female Characters In Shonen Anime, Ranked
+
+Anime
+
+Tue, 10 Mar 2026 17:31:21 GMT
+
+https://screenrant.com/best-written-female-anime-characters-shonen-list/
+
+These female characters are heads and shoulders above their peers in the Shonen community.
+---------
+
+# Kurt Russell Has The Perfect Western Replacement For Tombstone In 2026
+
+Streaming TV, The Madison, Tombstone
+
+Tue, 10 Mar 2026 17:21:18 GMT
+
+https://screenrant.com/kurt-russell-tombstone-replacement-the-madison/
+
+After 23 years, Kurt Russell has the opportunity to replace Tombstone from his acting portfolio with a brand new Western project with a stacked cast.
+---------
+
+# Keira Knightley's Official Introduction As Evil Harry Potter Villain Is Brilliantly Unrecognizable In New Adaptation
+
+Movies, Harry Potter, Keira Knightley
+
+Tue, 10 Mar 2026 17:20:25 GMT
+
+https://screenrant.com/keira-knightley-dolores-umbridge-harry-potter-order-phoenix-audible-voice-revealed/
+
+A new clip reveals Keira Knightley's debut as the villainous Dolores Umbridge in the latest version of Harry Potter and the Order of the Phoenix.
+---------
+
+# Hoppers' 13 Easter Eggs & Pixar Movie References (Including All On Dr. Sam's Chalkboard)
+
+New Movies, Hoppers
+
+Tue, 10 Mar 2026 17:20:19 GMT
+
+https://screenrant.com/hoppers-easter-eggs-movie-references-chalkboard/
+
+Pixar's movie Hoppers is loaded with Easter eggs and references to the studio's history and other Disney movies, including a pivotal chalkboard.
+---------
+
+# 15 Biggest One Piece Season 2 Easter Eggs
+
+Streaming TV, One Piece
+
+Tue, 10 Mar 2026 17:15:19 GMT
+
+https://screenrant.com/one-piece-season-2-easter-eggs/
+
+One Piece season 2 is a treasure trove of Easter eggs, filled with references to upcoming events, obscure characters, and recurring jokes.
+---------
+
+# Denzel Washington's Crime Movie Man On Fire Gets Netflix Remake In Action-Packed New Trailer
+
+TV, Man on Fire
+
+Tue, 10 Mar 2026 17:05:41 GMT
+
+https://screenrant.com/man-on-fire-show-trailer-netflix-remake/
+
+Yahya Abdul-Mateen II is set to take over the role originated by Denzel Washington in Netflix's upcoming series remake of the film Man on Fire.
+---------
+
+# 3 Body Problem Season 2 Reportedly Faces Reduced Episode Count Ahead Of Netflix Release
+
+TV, 3 Body Problem
+
+Tue, 10 Mar 2026 17:02:45 GMT
+
+https://screenrant.com/3-body-problem-season-2-episode-count-reduced-netflix/
+
+Netflix is expected to release 3 Body Problem season 2 this year, but a new report suggests the show's return will feature a reduced episode count.
+---------
+
+# One Piece Season 2's Best Special Effect Gets Even Better When You Know How It Was Done
+
+Anime, One Piece
+
+Tue, 10 Mar 2026 17:01:18 GMT
+
+https://screenrant.com/one-piece-live-action-netflix-giants-editor-best-practical-effects/
+
+One Piece's live-action series nails its two Elbaph giants thanks to a classic blend of perspectives and practical effects.
+---------
+
+# Street Fighter Reboot Actor’s Mortal Kombat 2 Jab Candidly Addressed By Franchise Star: "Last Person That Should Be Talking S--t"
+
+Movies, Street Fighter, Mortal Kombat II, Mortal Kombat, Lewis Tan
+
+Tue, 10 Mar 2026 16:55:28 GMT
+
+https://screenrant.com/street-fighter-mortal-kombat-2-andrew-schulz-joke-lewis-tan-response/
+
+After a Street Fighter cast member recently dissed Mortal Kombat II, one of the franchise’s stars has broken his silence about the criticism.
+---------
+
+# Henry Cavill's Early Breakthrough Role in The Tudors
+
+TV, Henry Cavill, The Tudors, Showtime
+
+Tue, 10 Mar 2026 17:33:49 GMT
+
+https://www.cbr.com/tudors-henry-cavill-performance-praise/
+
+Henry Cavill's standout performance in the Showtime historical drama The Tudors launched his career before Superman and The Witcher.
+---------
+
+# DreamWorks Had to Greenlight a Wild Robot Sequel
+
+Movies, The Wild Robot, Animation
+
+Tue, 10 Mar 2026 17:30:21 GMT
+
+https://www.cbr.com/dreamworks-greenlight-wild-robot-sequel/
+
+Wild Robot was a huge hit for DreamWorks, and it feels like another easy win with a sequel on the way.
+---------
+
+# Mighty Morphin Power Rangers Power Rangers Is Getting an Unexpected Reboot
+
+Comics, Power Rangers, Mighty Morphin Power Rangers
+
+Tue, 10 Mar 2026 17:30:21 GMT
+
+https://www.cbr.com/boom-studios-power-rangers-0-release-date-confirmed/
+
+Mighty Morphin Power Rangers fans can look forward to yet another reboot of their favorite franchise, and it sounds utterly Morphinomenal.
+---------
+
+# Every Mario Game on the SNES, Ranked
+
+Games, Mario, Nintendo
+
+Tue, 10 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/every-mario-snes-game-ranked/
+
+The SNES and Mario went hand in hand as the famous mascot had some of his best games on Nintendo's sophomore console.
+---------
+
+# Avengers: Doomsday Star Addresses Fans’ Biggest Fear About the MCU’s Next Crossover
+
+Movies, Marvel Cinematic Universe, Thunderbolts*
+
+Tue, 10 Mar 2026 16:35:48 GMT
+
+https://www.cbr.com/avengers-doomsday-not-mcu-cameo-fest-lewis-pullman/
+
+A collective sigh of relief can be heard from the MCU fandom following Avengers: Doomsday star Lewis Pullman's latest comments on the movie.
+---------
+
+# Crunchyroll’s You and I Are Polar Opposites Keeps Breaking Every Rom-Com Rule
+
+Anime, Crunchyroll, Comedy
+
+Tue, 10 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/crunchyroll-new-best-comedy-romance-anime/
+
+Crunchyroll's 2026 anime lineup is already full of hits, including this breakout comedy.
+---------
+
+# Studio Ghibli Enters Its Next Chapter With an Official First Look
+
+Anime, Studio Ghibli, The Secret World of Arrietty, Whisper of the Heart, GKIDS
+
+Tue, 10 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/studio-ghibli-whisper-of-the-heart-secret-world-of-arrietty-remaster-imax-first-look/
+
+Fans of Studio Ghibli can look forward to seeing two of the most beloved (and underrated) animated films of all time in IMAX for the very first time.
+---------
+
+# Apple TV's Wine Drama Drops of God Pours the First Taste of Season 2 Finale
+
+CBR Exclusives, Drops of God, Apple TV
+
+Tue, 10 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/apple-tv-wine-drama-drops-of-god-season-2-finale-clip/
+
+The critically acclaimed drama based on a popular manga series builds up to a bold Season 2 finale in CBR's exclusive new clip.
+---------
+
+# This 87% RT Channing Tatum's Roofman is His Most Underrated Movie
+
+Movies, Roofman
+
+Tue, 10 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/channing-tatum-roofman-most-underrated-movie/
+
+Channing Tatum has many beloved movies in his career, but his most recent comedy is an underrated gem that most people missed.
+---------
+
+# Loot Studios' Malediction Expansion Tabletop Card Game Review
+
+Games, TCG, Tabletop, RPG, collectibles
+
+Tue, 10 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/malediction-mcg-expansion-review-loot-studios/
+
+Malediction's recent product expansion proves Loot Studios is a worthy challenger in the tabletop arena.
+---------
+
+# Paramount+’s Highest-Rated ‘NCIS’ Spin-Off Breaks Into Top 10 Streaming Chart
+
+TV News, NCIS, NCIS: Origins, CBS, Procedural
+
+Tue, 10 Mar 2026 17:33:13 GMT
+
+https://collider.com/ncis-spin-off-hailed-as-the-franchises-best-ncis-origins-surges-on-streaming/
+
+As the NCIS franchise continues on CBS, its best spin-off is back on streaming charts with a new season renewal locked. Get all the details.
+---------
+
+# Netflix’s 9-Part Comfort-Watch Makes Rare Jump to Free Streaming
+
+TV News, Somebody Feed Phil, Netflix, Prime Video, Everybody Loves Raymond
+
+Tue, 10 Mar 2026 17:25:25 GMT
+
+https://collider.com/netflix-crowd-pleaser-somebody-feed-phil-season-9-free-streaming-youtube-2027/
+
+Netflix’s long-running feel-good travel series is expanding beyond the paywall, preparing for a rare move toward free streaming online.
+---------
+
+# Taylor Sheridan's Controversial Tom Clancy Adaptation Makes Surprise Comeback Thanks to Free Streamer
+
+Movie News, Tom Clancy's Without Remorse, Taylor Sheridan, Tubi, Tom Clancy
+
+Tue, 10 Mar 2026 17:22:21 GMT
+
+https://collider.com/taylor-sheridan-tom-clancy-adaptation-without-remorse-free-streaming-success-tubi-march-2026/
+
+Taylor Sheridan's controversial Tom Clancy adaptation, Without Remorse, starring Michael B. Jordan, resurfaces on a free streaming service.
+---------
+
+# Netflix's Remake of Denzel Washington's Hottest Thriller Drops Sizzling First Trailer
+
+TV News, Man on Fire, Yahya Abdul-Mateen II, Netflix, Bobby Cannavale
+
+Tue, 10 Mar 2026 17:20:34 GMT
+
+https://collider.com/netflix-man-on-fire-denzel-washington-remake-first-trailer-yahya-abdul-mateen-ii/
+
+Netflix has dropped the first official trailer for its long-awaited Man on Fire remake, with Yahya Abdul-Mateen II in the lead role.
+---------
+
+# Disney Confirms Live-Action Mother Gothel in 'Tangled' Remake First Look
+
+Movie News, Tangled, Kathryn Hahn, Disney, Walt Disney Animation Studios
+
+Tue, 10 Mar 2026 17:02:32 GMT
+
+https://collider.com/tangled-cast-kathryn-hahn-mother-gothel-live-action-remake-disney/
+
+Disney finally confirms Kathryn Hahn as Mother Gothel in the hotly anticipated live-action Tangled remake with perfect first look.
+---------
+
+# The Most Controversial Movie of 2026 Just Passed a Major Box Office Milestone
+
+Movie News, Wuthering Heights, Margot Robbie, Jacob Elordi, Emerald Fennell
+
+Tue, 10 Mar 2026 16:36:59 GMT
+
+https://collider.com/wuthering-heights-most-controversial-movie-of-2026-passes-200-million-worldwide-box-office-milestone/
+
+Emerald Fennell's Wuthering Heights, starring Margot Robbie and Jacob Elordi, has passed a major worldwide box office milestone. Find out more.
+---------
+
+# The Ultimate 'Project Hail Mary' Fan Event is Here – and You're Invited
+
+Movie News, Project Hail Mary, Giveaway, Audible, Ryan Gosling
+
+Tue, 10 Mar 2026 16:33:45 GMT
+
+https://collider.com/project-hail-mary-audible-event-ryan-gosling-andy-weir-phil-lord-chris-miller/
+
+Details on how to attend Audible's exclusive Project Hail Mary Global Virtual Event before the movie hits theaters.
+---------
+
+# MGM+'s Most-Watched Sci-Fi Horror Series Returns April 19 With Terrifying New Trailer
+
+TV News, From, MGM, Sci-Fi, Horror
+
+Tue, 10 Mar 2026 16:30:42 GMT
+
+https://collider.com/sci-fi-horror-series-from-season-4-trailer-amazon-mgm-plus-april-19-release/
+
+Watch the terrifying new trailer for MGM+'s most-watched sci-fi horror series From ahead of Season 4's April 19 return.
+---------
+
+# Michael B. Jordan’s Remake of Pierce Brosnan's Wildly Underrated 1999 Crime Thriller Just Scored a Massive Update
+
+Movie News, Michael B. Jordan, The Thomas Crown Affair, Adria Arjona, Aubrey Plaza
+
+Tue, 10 Mar 2026 16:24:30 GMT
+
+https://collider.com/michael-b-jordan-the-thomas-crown-affair-remake-production-update/
+
+Michael B. Jordan's 58-year-old crime remake of The Thomas Crown Affair finally gets the hopeful update fans have been waiting for.
+---------
+
+# Josh Duhamel Goes Full 'Godfather' in Sneak Peek From New March 17 Movie [Exclusive]
+
+Exclusives, Josh Duhamel, James Cosmo, Comedy, Drama
+
+Tue, 10 Mar 2026 16:00:12 GMT
+
+https://collider.com/josh-duhamel-preschool-movie-sneak-peek/
+
+Josh Duhamel gives Michael Socha an offer he can’t refuse in a new look at his upcoming comedy, Preschool. Watch it here.
+---------
+
+# 'Man on Fire' Trailer Teases Netflix's Action Thriller Reboot Series
+
+TV News, Netflix, Man on Fire, Action, Thriller
+
+Tue, 10 Mar 2026 17:23:15 GMT
+
+https://movieweb.com/netflix-man-on-fire-trailer/
+
+Yahya Abdul-Matten II takes over from Denzel Washington as an elite but tortured action hero.
+---------
+
+# ‘Good Luck, Have Fun, Don’t Die’ Is Now Streaming on Digital Platforms
+
+Movie News, Sam Rockwell, Haley Lu Richardson, Good Luck, Have Fun, Don't Die, Gore Verbinski
+
+Tue, 10 Mar 2026 17:16:22 GMT
+
+https://movieweb.com/good-luck-have-fun-dont-die-digital-streaming/
+
+The Sam Rockwell-led sci-fi comedy has already racked up positive reviews from critics and audiences.
+---------
+
+# Steven Spielberg's 'The Dinosaurs' Takes a Bite Out of Streaming on Netflix
+
+TV News, The Dinosaurs, Hot on Streaming, Steven Spielberg
+
+Tue, 10 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/the-dinosaurs-streaming-netflix-march-2026/
+
+Since its debut on March 6, 'The Dinosaurs' has been stomping out the competition on Netflix.
+---------
+
+# Prime Video's 'Scarpetta'- Where You Recognize Every Actor From
+
+Features, Scarpetta
+
+Tue, 10 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/scarpetta-prime-video-cast-guide/
+
+'Scarpetta,' the Amazon Prime Video thriller that premieres on March 11, 2026, has a talented cast of actors, including main star Nicole Kidman.
+---------
+
+# The Best Korean Dramas About CEOs
+
+TV Lists, Drama
+
+Tue, 10 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/korean-dramas-best-ceo/
+
+Explore the best Korean dramas about CEOs, full of romance, office intrigue, and must-watch stories that keep fans hooked.
+---------
+
+# Tilly Norwood AI Studio Releases Music Single and Video
+
+Movie News, Music, The Oscars | Academy Awards
+
+Tue, 10 Mar 2026 16:48:29 GMT
+
+https://movieweb.com/tilly-norwood-music-video/
+
+The studio behind AI "actor" Tilly Norwood, has released a single and music video, titled 'Take the Lead,’ as response to the Hollywood backlash.
+---------
+
+# 'Bait' Trailer Unveils Prime Video's James Bond Meta-Comedy Series
+
+TV News, Bait, Riz Ahmed, James Bond
+
+Tue, 10 Mar 2026 16:34:51 GMT
+
+https://movieweb.com/riz-ahmed-bait-prime-video-trailer/
+
+Oscar winner Riz Ahmed leads the latest trailer for 'Bait,' a meta series about the casting of the next James Bond.
+---------
+
+# The 'Undertone' Team Talks Bringing Terrors From Beyond to Life for A24
+
+Features, undertone, Nina Kiri, Adam DiMarco, A24
+
+Tue, 10 Mar 2026 16:12:11 GMT
+
+https://movieweb.com/undertone-cast-crew-interview-a24/
+
+Director Ian Tuason and stars Adam DiMarco and Nina Kiri on the unnerving new horror movie.
+---------
+
+# 'The X-Files': Everything We Know About Ryan Coogler's Reboot
+
+Features, The X-Files, Everything We Know
+
+Tue, 10 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/the-x-files-ryan-coogler-reboot-everything-we-know/
+
+Ryan Coogler is making a reboot of 'The X-Files,' the iconic sci-fi TV series starring David Duchovny and Gillian Anderson that aired on Fox.
+---------
+
+# Alan Ritchson's 10 Best Performances, Ranked
+
+TV Lists, Alan Ritchson
+
+Tue, 10 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/alan-ritchson-best-performances/
+
+Reacher star Alan Ritchson has been working in Hollywood for nearly 20 years. These are his best performances, ranked.
+---------
+
 # GTA Online Has Officially Reached The End Of An Era
 
 Gaming
