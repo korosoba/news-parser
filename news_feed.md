@@ -1,3 +1,289 @@
+# Samurai Champloo Live-Action Series Announced by Tomorrow Studios
+
+Anime, Samurai Champloo
+
+Tue, 10 Mar 2026 21:48:58 GMT
+
+https://screenrant.com/samurai-champloo-live-action-series-toonami-anime/
+
+Tomorrow Studios confirms production of a new live-action anime adaptation, with One Piece producers and the original show's creator returning.
+---------
+
+# The Real Reason Hannibal Season 4 Isn’t Happening Yet Explained By Creator: “A Bit Messy Right Now”
+
+TV, Hannibal, NBC, Bryan Fuller, Horror, Saturn Awards
+
+Tue, 10 Mar 2026 21:39:53 GMT
+
+https://screenrant.com/hannibal-season-4-not-happening-yet-reason-rights-issues-bryan-fuller/
+
+Exclusive: Creator Bryan Fuller explains the real reason why Hannibal season 4 isn't happening yet, but he is still hopeful for his chances.
+---------
+
+# Debunking AI: Young Sherlock Stars Marvel At Guy Ritchie's Dual Approach To Holmes
+
+Exclusive, Debunking AI
+
+Tue, 10 Mar 2026 21:32:22 GMT
+
+https://screenrant.com/young-sherlock-hero-fiennes-tiffin-donal-finn-zine-tseng-debunking-ai/
+
+In the latest Debunking AI episode, Young Sherlock stars Hero Fiennes Tiffin, Dónal Finn, and Zine Tseng clear up misconceptions about their careers.
+---------
+
+# DTF St. Louis: The Origin of HBO's Mystery Series Title Explained
+
+TV, DTF St. Louis, HBO
+
+Tue, 10 Mar 2026 21:31:19 GMT
+
+https://screenrant.com/dtf-st-louis-series-title-origin-steven-conrad/
+
+Steven Conrad, creator of HBO's new mystery series DTF St. Louis, discusses the real-world inspiration behind the show's unique title and how it ties into the story's suspenseful themes.
+---------
+
+# Andy Weir Teases Next Sci-Fi Book & Potential Project Hail Mary Sequel
+
+Movies, Project Hail Mary
+
+Tue, 10 Mar 2026 21:30:27 GMT
+
+https://screenrant.com/andy-weir-next-sci-book-project-hail-mary-sequel-tease/
+
+EXCLUSIVE: Andy Weir is days away from seeing Project Hail Mary be adapted for the big screen, and he’s now revealing if he’ll ever write a sequel.
+---------
+
+# HBO's 8-Part Psychological Thriller Series With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+TV, HBO Max, Sharp Objects
+
+Tue, 10 Mar 2026 21:27:42 GMT
+
+https://screenrant.com/hbo-sharp-objects-thriller-series-cast-best/
+
+This HBO psychological thriller series is one of the best shows it has ever released, and without such a talented cast, it would not have worked.
+---------
+
+# Stephen Graham's New Drama Is Even Darker Than Adolescence
+
+Movies, Heel
+
+Tue, 10 Mar 2026 21:20:18 GMT
+
+https://screenrant.com/stephen-graham-heel-recomendation/
+
+Stephen Graham's harrowing Heel takes some surprising and shocking turns, leading to a narrative that's even darker than the amazing Adolescence.
+---------
+
+# ABC's New Detective Series Based On 39-Year-Old Novel Officially Breaks Huge 5-Year Viewership Record
+
+TV, RJ Decker
+
+Tue, 10 Mar 2026 21:16:25 GMT
+
+https://screenrant.com/abc-rj-decker-top-10-pm-drama-viewership-record/
+
+ABC's new detective drama, which is based on a 39-year-old novel, has broken a five-year record just days after a well-received premiere.
+---------
+
+# HBO’s Lanterns Looks Killer, But It Has Me Worried About the DCU’s Future for One Reason
+
+Streaming TV, Lanterns, HBO, DC Universe
+
+Tue, 10 Mar 2026 21:02:42 GMT
+
+https://screenrant.com/lanterns-hbo-max-mythology-shallow-dcu-future/
+
+The DCU is still in its infancy, and HBO's Lanterns will have a lot to fulfill in terms of how the Green Lantern Corps lore fits into this continuity.
+---------
+
+# Paramount CEO David Ellison's "Turbulent" First Meeting With WB Execs Revealed In New Report
+
+Movies, Paramount Pictures, Warner Bros., David Ellison
+
+Tue, 10 Mar 2026 21:02:38 GMT
+
+https://screenrant.com/paramount-warner-bros-first-meeting-david-ellison-turbulent/
+
+Even though Paramount has defeated Netflix in the bidding war for Warner Bros., the first meeting was reportedly "turbulent" and did not go as hoped.
+---------
+
+# Star Trek: Discovery's Anthony Rapp on Series Finale Unfinished Storylines
+
+TV, Star Trek: Discovery, Star Trek, Sci-Fi
+
+Tue, 10 Mar 2026 21:55:19 GMT
+
+https://www.cbr.com/star-trek-discvoery-ending-anthony-rapp-mourns/
+
+Star Trek: Discovery star Anthony Rapp reflects on the show's abrupt ending.
+---------
+
+# Quentin Tarantino Slams Pulp Fiction Star Over N-Word Criticism: 'You Took the Money'
+
+Movies, Quentin Tarantino, Pulp Fiction
+
+Tue, 10 Mar 2026 21:41:36 GMT
+
+https://www.cbr.com/quentin-tarantin-response-rosanna-arquette-pulp-fiction-controversy/
+
+Quentin Tarantino is firing back after his written dialogue was labeled as "racist and creepy" by one of the stars of Pulp Fiction.
+---------
+
+# George Lucas Hailed 2001: A Space Odyssey the 'Ultimate Sci-Fi Movie'
+
+Movies, 2001: A Space Odyssey, george lucas, Sci-Fi
+
+Tue, 10 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/george-lucas-2001-space-odyssey-best-science-fiction-movie/
+
+George Lucas called this film the ultimate sci-fi movie, and it's hard to disagree with him.
+---------
+
+# Alan Ritchson’s War Machine Is Netflix’s Second Biggest Movie Debut of 2026
+
+Movies, War Machine, Netflix, Sci-Fi
+
+Tue, 10 Mar 2026 21:24:34 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-sci-fi-thriller-netflix-success-debut-2026/
+
+Alan Ritchson's military sci-fi action movie War Machine topped Netflix's Top 10 English films list with 39.3 million views.
+---------
+
+# Dustin Hoffman's $189M Disaster Movie Outbreak That Surged During COVID-19 Resurfaces on Streaming 6 Years Later
+
+Movies, Action, Thriller, Drama, Outbreak
+
+Tue, 10 Mar 2026 21:19:39 GMT
+
+https://www.cbr.com/dustin-hoffman-classic-disaster-movie-outbreak-streaming-success-apple-tv-march-2026/
+
+It stands as one of the most ominous, and timeless, disaster movies of all-time and it's doing big streaming numbers.
+---------
+
+# 8 Anime From 1998 That Are Now Verified Classics
+
+Anime, Outlaw Star, Cowboy Bebop
+
+Tue, 10 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/best-anime-released-1998/
+
+1998 was a standout year for anime that introduced several series that have become undeniable evergreen classics, including Cowboy Bebop and Trigun.
+---------
+
+# Transformers Revives 2 Forgotten Predacons With Official Concept Art Reveal
+
+Anime, Transformers, Transformers: Rise of the Beasts
+
+Tue, 10 Mar 2026 21:08:38 GMT
+
+https://www.cbr.com/transformers-rise-of-the-beasts-double-punch-scorponok-concept-art/
+
+Concept art for the most recent live-action Transformers movie shows a look at much earlier versions of the film's arachnid Predacon drones.
+---------
+
+# ABC's New Crime Series Comes for 'High Potential's Crown With Record-Breaking Debut
+
+TV News, ABC, High Potential, RJ Decker, Crime
+
+Tue, 10 Mar 2026 21:54:43 GMT
+
+https://collider.com/abc-high-potential-replacement-rj-decker-viewership-11-million-debut/
+
+High Potential may finally have a true competitor, as the crime series R.J. Decker just had a record-breaking debut for ABC.
+---------
+
+# 10 Near-Perfect Family Movies That No One Remembers Today
+
+Movie, Family, Angels in the Outfield, Robin Hood, Chitty Chitty Bang Bang
+
+Tue, 10 Mar 2026 21:42:13 GMT
+
+https://collider.com/near-perfect-family-movies-no-one-remembers-today/
+
+Fly Away Home, Balto, and Black Beauty are all excellent forgotten family movies that deserve to be rediscovered.
+---------
+
+# Will Smith’s $585M Sci-Fi Blockbuster That Predicted 'Batman v Superman' Surges on Streaming
+
+Movie News, Batman v Superman: Dawn of Justice, Zack Snyder, I Am Legend, Will Smith
+
+Tue, 10 Mar 2026 21:39:11 GMT
+
+https://collider.com/i-am-legend-sci-fi-blockbuster-predicted-a-batman-vs-superman-movie-streaming-success-march-2026/
+
+Will Smith's 2007 sci-fi blockbuster, I Am Legend, predicted a Batman vs Superman movie 9 years before it happened. Now it's trending on streaming.
+---------
+
+# 8 Psychological Thrillers Nominated for Best Picture, Ranked
+
+Movie, Academy Awards, Thriller, Parasite, The Silence of the Lambs
+
+Tue, 10 Mar 2026 21:31:12 GMT
+
+https://collider.com/psychological-thrillers-nominated-for-best-picture-oscar-ranked/
+
+Gaslight, Parasite, and The Silence of the Lambs are all among the best psychological thrillers nominated for Best Picture, but which is the best?
+---------
+
+# Alan Ritchson Claims Explosive New Sci-Fi Movie Beats 'Reacher' in 1 Key Way
+
+Movie News, Reacher, Alan Ritchson, War Machine, Netflix
+
+Tue, 10 Mar 2026 21:26:59 GMT
+
+https://collider.com/alan-ritchson-sci-fi-movie-war-machine-harder-role-than-reacher-netflix/
+
+Alan Ritchson says Netflix’s sci-fi action movie War Machine was even more physically demanding than filming Reacher Season 3.
+---------
+
+# This Is the Mount Rushmore of Disney Movies
+
+Movie, Snow White and the Seven Dwarfs, Disney, The Lion King, Toy Story
+
+Tue, 10 Mar 2026 21:23:12 GMT
+
+https://collider.com/best-disney-movies-mount-rushmore/
+
+It isn't easy to narrow down the four most iconic Disney movies, but classics like The Lion King and Snow White and the Seven Dwarfs make the cut.
+---------
+
+# Taylor Sheridan Fans Have a New '1923' Replacement Series To Watch
+
+TV Features, Taylor Sheridan, 1923, Hallmark, When Calls the Heart
+
+Tue, 10 Mar 2026 21:07:14 GMT
+
+https://collider.com/taylor-sheridan-1923-replacement-hope-valley-1874-hallmark-us/
+
+Taylor Sheridan fans looking for a new show might enjoy Hallmark’s upcoming pioneer series, Hope Vallery: 1874.
+---------
+
+# Timothée Chalamet Called “Vapid” & “Shallow” After Recent Opera Comments
+
+Movie News, Timothée Chalamet, Whoopi Goldberg, Patton Oswalt
+
+Tue, 10 Mar 2026 21:32:20 GMT
+
+https://movieweb.com/timothee-chalamet-opera-ballet-backlash/
+
+Whoopi Goldberg and Patton Oswalt quipped about the actor dismissing entire art forms.
+---------
+
+# When 'Scarpetta' Releases on Prime Video & Full Release Schedule
+
+Features, Scarpetta, Prime Video
+
+Tue, 10 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/scarpetta-prime-video-release-schedule/
+
+Discover when Amazon Prime Video will unveil its new crime thriller series 'Scarpetta', starring Nicole Kidman and Jamie Lee Curtis.
+---------
+
 # Turtle Team-Up Is A Great New Way To Teach Magic: The Gathering
 
 Gaming, Magic: The Gathering, tabletop games
