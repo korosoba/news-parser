@@ -1,3 +1,135 @@
+# Star Wars Returns With Official New Standalone Adventure On March 17
+
+Gaming, Star Wars, PC
+
+Tue, 10 Mar 2026 11:49:09 GMT
+
+https://screenrant.com/star-wars-hyperspace-stories-grievous-march-2026/
+
+Star Wars returns next week with an official new standalone adventure that brings back one of the franchise's most iconic characters.
+---------
+
+# One Piece's Dragon Explained: Why He Saves Luffy & What He Does Next
+
+Streaming TV, One Piece
+
+Tue, 10 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/one-piece-live-action-dragon-explained/
+
+The most mysterious character in One Piece season 2 is known only as Dragon, raising questions about his identity and why he saved Luffy’s life.
+---------
+
+# Zelda: Ocarina Of Time Reimagined In Beautiful New Remake
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Tue, 10 Mar 2026 10:43:58 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-unreal-engine/
+
+A Zelda adventure reimagined with a vibrant anime art style powered by Unreal Engine 5, showcasing breathtaking visuals and gorgeous gameplay.
+---------
+
+# Steam Hit Adventure Game Completely Free To Keep Forever Until March 16
+
+Gaming, Steam
+
+Tue, 10 Mar 2026 10:35:53 GMT
+
+https://screenrant.com/steam-free-deponia-keep-forever-march-2026/
+
+Point and click adventure Deponia is totally free to download and keep, as long as you get it done before March 16.
+---------
+
+# 5 Years Since Its Oscar Win, This Absolute Masterpiece Has Been Completely Forgotten
+
+Movie Features, Nomadland, Chloé Zhao, Frances McDormand, Oscars
+
+Tue, 10 Mar 2026 11:31:13 GMT
+
+https://collider.com/nomadland-best-picture-winner-oscars/
+
+Chloé Zhao’s Nomadland is one of the most misunderstood Best Picture winners in recent memory and deserves more attention.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — March 10, 2026
+
+TV, Landman, Mad Men, Fargo, Your Friends and Neighbors
+
+Tue, 10 Mar 2026 11:01:12 GMT
+
+https://collider.com/tv-quiz-mar-10-2026-jon-hamm-mad-men/
+
+Today is Jon Hamm's birthday, so let's root around in his ever-growing television career and pig out on what you might know.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 10, 2026
+
+Movie, 3:10 to Yuma, Love Affair, The Wolverine
+
+Tue, 10 Mar 2026 10:59:13 GMT
+
+https://collider.com/movie-quiz-mar-10-2026-310-to-yuma-original-remake/
+
+Besides 50 years, what else separates these two versions of 3:10 to Yuma? Rather than 10 paces and draw, let's do 8 questions and guess!
+---------
+
+# 15 Worst Best Picture Oscar Winners Ever, Ranked
+
+Movie, Oscars, Gigi, Green Book, Shakespeare in Love
+
+Tue, 10 Mar 2026 10:12:12 GMT
+
+https://collider.com/worst-best-picture-oscar-winners-ranked/
+
+From From Around the World in 80 Days to Green Book, these are the all-time worst Best Picture winners that make us question the Academy's taste.
+---------
+
+# 'Outlander' Final Season Debuts With 100% on Rotten Tomatoes
+
+TV News, Outlander, STARZ
+
+Tue, 10 Mar 2026 11:35:36 GMT
+
+https://movieweb.com/outlander-season-8-rotten-tomatoes-score/
+
+'Outlander' Season 8 debuted with a rare 100% Rotten Tomatoes score after earning rave reviews and critical acclaim following its premiere.
+---------
+
+# Idris Elba Returns as 'Luther' in First BTS Look at New Netflix Sequel
+
+TV News, Luther, Netflix, Idris Elba
+
+Tue, 10 Mar 2026 11:05:25 GMT
+
+https://movieweb.com/idris-elba-luther-netflix-movie-first-look/
+
+The crime thriller follow-up is now filming in the United Kingdom, with new behind-the-scenes images and footage emerging.
+---------
+
+# 'The Big Lebowski' Religion Is Real and Dudeism Started 21 Years Ago
+
+Features, The Big Lebowski, Coen Brothers, Jeff Bridges
+
+Tue, 10 Mar 2026 11:01:16 GMT
+
+https://movieweb.com/the-big-lebowski-real-religion/
+
+A mere 7 years after the release of 'The Big Lebowski', the Coen brothers' comedy inspired its dedicated fan base to create a real religion.
+---------
+
+# 'Reacher' Season 4 Will Debut This Year, Alan Ritchson Confirms
+
+TV News, Reacher, Alan Ritchson, Action, Prime Video
+
+Tue, 10 Mar 2026 10:36:02 GMT
+
+https://movieweb.com/reacher-season-4-release-date-best-yet/
+
+The Prime Video action hero has also hailed the new series as the "best" yet.
+---------
+
 # Who Plays Brook In Live-Action One Piece
 
 Streaming TV, One Piece
