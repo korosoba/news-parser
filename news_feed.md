@@ -1,3 +1,223 @@
+# Titus Welliver's 2026 Bosch Return In Crime Series With Rare Perfect Rotten Tomatoes Score Repeats A Season 1 Strength
+
+TV, Ballard, Bosch
+
+Tue, 10 Mar 2026 22:42:59 GMT
+
+https://screenrant.com/titus-welliver-bosch-return-ballard-season-2/
+
+Harry Bosch is officially coming back to the small screen in 2026, and Titus Welliver's character will be repeating a franchise strength.
+---------
+
+# Our Final Predictions For Oscars 2026's Best Picture Lineup: Who Will Win?
+
+New Movies, Oscars, Producers Guild Of America Awards, WGA Awards, BAFTA, Directors Guild of America Awards, The Actor Awards
+
+Tue, 10 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/oscars-2026-best-picture-predictions/
+
+The Best Picture winner at the Oscars 2026 will soon be announced, so its time for our final predictions for what movie will win among the nominees.
+---------
+
+# A Fan Favorite Jujutsu Kaisen Romance Just Became Official Series Canon
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Tue, 10 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-dabura-kyoko-romance-canon/
+
+Two beloved characters from Jujutsu Kaisen have just confirmed their romance, and it's the cutest and most unexpected in the franchise so far.
+---------
+
+# Crunchyroll Layoffs Update Confirms New Restructuring in 2026
+
+Anime, Crunchyroll
+
+Tue, 10 Mar 2026 22:25:16 GMT
+
+https://screenrant.com/crunchyroll-restructuring-layoffs-march-2026/
+
+The anime streaming giant is reportedly jettisoning more staff as Crunchyroll's latest layoffs story continues to develop.
+---------
+
+# Why Paramount Shutting Down HBO Max Is Far More Complex Than Just Merging Platforms, Explained By Streaming Expert
+
+Movies, Paramount Plus, HBO Max, Paramount Pictures, Warner Bros.
+
+Tue, 10 Mar 2026 22:22:25 GMT
+
+https://screenrant.com/paramount-hbo-max-shutdown-explained-streaming-expert/
+
+As Warner Bros. Discovery and Paramount Skydance prepare to merge, it may become more complicated than predicted to keep HBO Max afloat.
+---------
+
+# Jamie Lee Curtis Was “Like Professor X” In Personally Casting 2 Of Her Scarpetta Co-Stars
+
+TV, Scarpetta, Scarpetta - Season 1, Prime Video
+
+Tue, 10 Mar 2026 22:08:34 GMT
+
+https://screenrant.com/scarpetta-series-jamie-lee-curtis-cast-involvement-bobby-cannavale-ariana-debose/
+
+Ariana DeBose and Bobby Cannavale talk Scarpetta and how Jamie Lee Curtis was "like Professor X" in casting them for the Prime Video series.
+---------
+
+# Chopper's One Piece Devil Fruit: All 3 Forms & His "Secret" Explained
+
+Streaming TV, One Piece
+
+Tue, 10 Mar 2026 22:06:44 GMT
+
+https://screenrant.com/one-piece-chopper-devil-fruit-explained-secret/
+
+Chopper is another Devil Fruit user introduced to Netflix’s One Piece, complete with teases of a secret that enhances his already powerful abilities.
+---------
+
+# Karl Urban's Busy 2026: From The Boys Finale To Mortal Kombat II
+
+Streaming TV, Mortal Kombat II
+
+Tue, 10 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/karl-urban-2026-success-johnny-cage-mortal-kombat-2/
+
+With his trending pirate movie and The Boys' final season, 2026 was already the year of Karl Urban. Mortal Kombat 2 is just the cherry on top.
+---------
+
+# Disney's 100% Rotten Tomatoes Masterpiece Returns This Fall With Brand-New Release
+
+Comics, Gravity Falls
+
+Tue, 10 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/disney-gravity-falls-returns-new-release/
+
+Disney’s 100% Rotten Tomatoes cartoon masterpiece is returning this fall with a brand-new release that fans won’t want to miss.
+---------
+
+# Shonen Anime's Dark Trio Is Being Replaced With 2026's 3 Biggest Isekai Releases
+
+Anime, Re:Zero -Starting Life in Another World-, That Time I Got Reincarnated as a Slime, Ascendance of a Bookworm, Isekai, Shonen, shonen anime
+
+Tue, 10 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/shonen-anime-dark-trio-dethroned-best-isekai-2026/
+
+The Spring 2026 lineup has three major isekai titles coming back, and they may give some of the best shonen series a run for their money in 2026.
+---------
+
+# KPop Demon Hunters Inspired D&D Book Smashes Kickstarter Goal
+
+Games, Dungeons and Dragons, KPop Demon Hunters
+
+Tue, 10 Mar 2026 22:07:12 GMT
+
+https://www.cbr.com/kpop-demon-hunters-dungeons-and-dragons-smashes-kickstarter-goal/
+
+Idols of the Neon Dark is an upcoming Dungeons & Dragons book inspired by KPop Demon Hunters, and it's already smashed its Kickstarter goal.
+---------
+
+# Jason Bateman's Crime Comedy DTF St. Louis Is No. 1 on HBO Max US Charts
+
+TV, DTF St. Louis, HBO Max, Mystery
+
+Tue, 10 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/jason-bateman-dtf-st-louis-dark-comedy-success-hbo-max-march-2026/
+
+Jason Bateman's murder mystery tops the streaming charts on HBO Max in the US.
+---------
+
+# The Best Star Trek-Style Sci-Fi Show of the 2010s Wasn't Actually Star Trek
+
+TV, Sci-Fi, The Orville, Star Trek
+
+Tue, 10 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/the-orville-best-star-trek-style-sci-fi-show-2010s/
+
+Seth MacFarlane’s The Orville started as a sci-fi comedy, but it quietly became the closest modern successor to classic Star Trek storytelling.
+---------
+
+# Scarlett Johansson’s Spongebob Movie is a Adaptation of The Odyssey
+
+Movies, The SpongeBob SquarePants Movie, scarlett johansson, The Odyssey
+
+Tue, 10 Mar 2026 22:00:13 GMT
+
+https://www.cbr.com/the-spongebob-squarepants-movie-is-the-odyssey/
+
+The Odyssey is one of the biggest movies of 2026, but Scarlett Johansson's 2004 comedy may have secretly perfected that story.
+---------
+
+# Prime Video’s New Guy Ritchie Sherlock Show Tops the Benedict Cumberbatch Series in 1 Major Way
+
+TV News, Guy Ritchie, Young Sherlock, Sherlock, Rotten Tomatoes
+
+Tue, 10 Mar 2026 22:30:12 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-overtakes-benedict-cumberbatch-sherlock-rotten-tomatoes-score-is-it-good/
+
+Guy Ritchie's Young Sherlock's is defeating the Benedict Cumberbatch 2010 adaptation on Rotten Tomatoes. See what critics are saying.
+---------
+
+# Every Rush Studio Album Released in the 80s, Ranked
+
+Music News, Rush: R30, Geddy Lee Asks: Are Bass Players Human Too?, Rock, Music, Lists, Rush - Grace Under Pressure
+
+Tue, 10 Mar 2026 22:30:12 GMT
+
+https://collider.com/rush-80s-albums-ranked/
+
+From Hold Your Fire to Permanent Waves to Moving Pictures, this is the definitive ranking of Rush's studio albums released in the 80s.
+---------
+
+# 10 Greatest Movies Based on American History, Ranked
+
+Movie, Oppenheimer, Lincoln, 12 Years a Slave, JFK
+
+Tue, 10 Mar 2026 22:21:12 GMT
+
+https://collider.com/best-movies-based-on-american-history-ranked/
+
+From United 93, to JFK, to Oppenheimer, these are the best films about the most important parts of American history.
+---------
+
+# In Just 4 Days, Tom Felton's R-Rated Historical Movie Is an Instant Streaming Hit
+
+Movie News, Fackham Hall, Bridgerton, Knives Out, Damian Lewis
+
+Tue, 10 Mar 2026 22:05:21 GMT
+
+https://collider.com/tom-felton-r-rated-murder-mystery-comedy-fackham-hall-hbo-max-number-1-hit-streaming-success-march-2026/
+
+Damian Lewis and Tom Felton star in the satirical murder mystery film Fackham Hall, currently the number one film on HBO Max. Find out more.
+---------
+
+# Tom Cruise and Jon M. Chu Filmed a Secret Paramount Promo
+
+Movie News, Tom Cruise
+
+Tue, 10 Mar 2026 22:48:14 GMT
+
+https://movieweb.com/tom-cruise-secret-paramount-project/
+
+'Mission: Impossible''s Tom Cruise and 'Wicked''s Jon M. Chu are in a new partnership to develop an ad for Paramount Pictures.
+---------
+
+# 'Bosch' Spin-off 'Ballard' Officially Casts Titus Welliver as Season 2 Gets Release Update
+
+TV News, Bosch, Titus Welliver
+
+Tue, 10 Mar 2026 22:44:25 GMT
+
+https://movieweb.com/bosch-ballard-season-2-release-update/
+
+Not only will a new season of the spin-off premiere later this year, but the beloved actor will reprise his role.
+---------
+
 # Samurai Champloo Live-Action Series Announced by Tomorrow Studios
 
 Anime, Samurai Champloo
