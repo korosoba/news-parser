@@ -1,3 +1,410 @@
+# Extraction 3's Filming Start Window Revealed For Chris Hemsworth's Netflix Sequel
+
+Movies, Extraction 3, Extraction, Chris Hemsworth
+
+Tue, 10 Mar 2026 19:33:22 GMT
+
+https://screenrant.com/extraction-3-filming-start-window-chris-hemsworth-netflix/
+
+An Extraction 3 update reveals when Chris Hemsworth will begin filming for the next Netflix sequel, as the action franchise slowly expands.
+---------
+
+# Paradise Season 2, Episode 5 Ending Explained: Who Is Gary & What Does He Want With Teri?
+
+Streaming TV, Paradise
+
+Tue, 10 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/paradise-season-2-episode-5-ending-explained/
+
+Paradise's latest episode focused on Xavier's newest companion, but the former mailman is hiding a dark secret from the protagonist involving Teri.
+---------
+
+# LEGO Officially Reveals First-Ever Mario Minifigure & New Sets
+
+Gaming, Mario, LEGO, Triple-A Games
+
+Tue, 10 Mar 2026 19:22:41 GMT
+
+https://screenrant.com/lego-mario-minifigure-reveal-sets/
+
+LEGO is finally taking the step that Super Mario fans have been asking for, revealing a future where Nintendo characters take on minifigure form.
+---------
+
+# Mike Flanagan's Long-Awaited Horror Reunion After 13 Years In New Stephen King Series Addressed By Star
+
+TV, Carrie, Mike Flanagan, Katee Sackhoff, Horror, Prime Video, Saturn Awards
+
+Tue, 10 Mar 2026 19:20:54 GMT
+
+https://screenrant.com/mike-flanagan-carrie-series-horror-reunion-katee-sackhoff/
+
+Exclusive: One of the stars of Mike Flanagan's next Stephen King series addresses their excitement at finally getting a horror reunion with him.
+---------
+
+# David Harbour, Jason Bateman & Linda Cardellini Discuss True Meaning Behind DTF St. Louis
+
+TV, DTF St. Louis, Jason Bateman, David Harbour, Linda Cardellini
+
+Tue, 10 Mar 2026 19:03:12 GMT
+
+https://screenrant.com/dtf-st-louis-real-meaning-david-harbour-jason-bateman-linda-cardellini-joy-sunday/
+
+In an interview, the stars of HBO's DTF St. Louis reveal the deeper themes and emotions behind the show's raunchy title, delving into the characters' complex relationships and personal struggles.
+---------
+
+# The Rings Of Power's Next Season Will Be An Origin Story For LOTR's Scariest Villains
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Tue, 10 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-nazgul-ringwraiths-origin-story/
+
+Prime Video's Rings of Power will have to fill in the details regarding a particular LOTR enemy in season 3, even if it wouldn't strictly be canon.
+---------
+
+# The Ascent Clip Highlights A Climber's Perseverance Against All Odds
+
+Exclusive, SXSW, Documentary
+
+Tue, 10 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/the-ascent-documentary-sxsw-mandy-horvath-clip/
+
+Exclusive: ScreenRant presents a clip from The Ascent, which follows climber Mandy Horvath as she attempts to reach Mt. Kilimanjaro's summit.
+---------
+
+# 4 Must-Watch Netflix Movies Leaving This Week: March 9–13, 2026
+
+Movies, Netflix
+
+Tue, 10 Mar 2026 18:56:19 GMT
+
+https://screenrant.com/netflix-movies-leaving-soon-march-2026/
+
+Critically acclaimed and star-studded movies leaving Netflix soon: Are You There God? It's Me, Margaret, House of Gucci, and The Talented Mr. Ripley.
+---------
+
+# Brooklyn Nine-Nine Creator's New NBC Detective Series Casts Rick & Morty Star, With Character Details Revealed
+
+TV, Brooklyn Nine-Nine
+
+Tue, 10 Mar 2026 18:46:59 GMT
+
+https://screenrant.com/nbc-dan-goor-detective-series-pilot-keith-david-character-details/
+
+The new detective comedy from the creator of Brooklyn Nine-Nine has found its new authority figure by casting an absolutely legendary actor.
+---------
+
+# Fox’s Best Medicine Is House Meets Gilmore Girls (& It Was Just Renewed For Part 2)
+
+Network TV, Best Medicine, Best Medicine - Season 1, Gilmore Girls, House
+
+Tue, 10 Mar 2026 18:23:19 GMT
+
+https://screenrant.com/best-medecine-gilmore-girls-house-replacement/
+
+Fox’s new medical dramedy combines the intrigue of medical mysteries of House with the cozy appeal of an eccentric small town of Gilmore Girls.
+---------
+
+# Saving Private Ryan Had Veterans Walking Out of the Theater
+
+Movies, War, Saving Private Ryan
+
+Tue, 10 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/saving-private-ryan-veterans-movie-theater-walk-out/
+
+For many veterans, Saving Private Ryan became an unexpected catalyst for confronting, and sometimes even healing, long-held trauma.
+---------
+
+# Samurai Champloo Live-Action Adaptation in the Works From Netflix’s One Piece Studio
+
+TV, Samurai Champloo, Adventure, Netflix
+
+Tue, 10 Mar 2026 19:20:24 GMT
+
+https://www.cbr.com/samurai-champloo-live-action-series-one-piece-netflix/
+
+Tomorrow Studios, behind Netflix's One Piece adaptation, is bringing the beloved anime Samurai Champloo to live-action.
+---------
+
+# Melania Trump's Documentary Melania Becomes a Streaming Sensation on Prime Video
+
+Movies, Melania
+
+Tue, 10 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/melania-documentary-prime-video-success-march-2026/
+
+After being rushed to streaming, the controversial documentary is proving everyone wrong.
+---------
+
+# Every Pixar Movie Confirmed After Toy Story 5
+
+Movies, pixar, Toy Story 5, Monsters Inc., Ratatouille, Coco 2, Hoppers
+
+Tue, 10 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/every-pixar-movie-after-toy-story-5/
+
+Upcoming Pixar movies include long-awaited sequels Monsters Inc. 3 and Coco 2 and originals like Ono Ghost Market and the first Pixar musical.
+---------
+
+# 8 Best High-Concept Sci-Fi Shows of All Time, Ranked
+
+TV, Dark, The Expanse, Love, Death & Robots, Sci-Fi
+
+Tue, 10 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/best-high-concept-sci-fi-shows-list/
+
+Science fiction's flair for complex concepts becomes obvious through these excellent shows.
+---------
+
+# Man on Fire Trailer: Yahya Abdul-Mateen II Stars in Action Thriller Reboot
+
+Movies, Man on Fire, Netflix, Thriller
+
+Tue, 10 Mar 2026 18:51:09 GMT
+
+https://www.cbr.com/man-on-fire-netflix-trailer/
+
+Netflix unveils the first teaser trailer for its new adaptation of Man on Fire, starring Yahya Abdul-Mateen II.
+---------
+
+# DC Debuts Aquaman’s Striking New Look After the Jason Momoa Era
+
+Comics, Aquaman, DC Comics
+
+Tue, 10 Mar 2026 18:35:13 GMT
+
+https://www.cbr.com/emperor-aquaman-15-jason-momoa-similarities/
+
+Aquaman has a shocking new look after the events of DC K.O., and it is just one of several that he is carrying into the next chapter of DC All In.
+---------
+
+# HBO Max's 3-Part Sci-Fi Fantasy Masterpiece, Primal, With 100% RT Is Surging on U.S. Streaming Charts Charts
+
+TV, Fantasy, Primal, Sci-Fi
+
+Tue, 10 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/hbo-max-sci-fi-fantasy-masterpiece-primal-streaming-success-hbo-max-march-2026/
+
+The series is amazing, and arguably perfect in every way, and it's dominating global streaming charts.
+---------
+
+# Hatsune Miku's Official Redesign Signals a Bold New Era for Vocaloid Fans
+
+Anime, Hatsune Miku
+
+Tue, 10 Mar 2026 17:56:25 GMT
+
+https://www.cbr.com/hatsune-miku-v6-design-new-era/
+
+Hatsune Miku is getting a new design in 2026, and this stylized new incarnation coincides a major update for the popular Piapro Vocaloid.
+---------
+
+# How the Scarpetta Cast Built the Show’s Younger Timeline
+
+TV, Scarpetta
+
+Tue, 10 Mar 2026 17:55:21 GMT
+
+https://www.cbr.com/video/how-the-scarpetta-cast-built-the-show-s-younger-timeline/
+
+Scarpetta’s young cast break down the serial killer story driving the new series. Jake Cannavale, Hunter Parrish, and Rosy McEwen explain what makes the thriller elements so compelling and how they approached playing younger versions of iconic characters.
+---------
+
+# Best Crime Dramas Like ‘The Sopranos’ To Watch Right Now
+
+TV, The Sopranos, Boardwalk Empire, The Wire, Breaking Bad
+
+Tue, 10 Mar 2026 19:44:13 GMT
+
+https://collider.com/best-crime-dramas-like-the-sopranos/
+
+Sons of Anarchy, The Wire, Ozark, Boardwalk Empire, and more make up our list of the best crime dramas like The Sopranos to watch.
+---------
+
+# Prime Video's 8-Part 'Reacher' Successor Is Following in Alan Ritchson's Footsteps
+
+TV News, Scarpetta, Nicole Kidman, Prime Video, Thriller
+
+Tue, 10 Mar 2026 19:41:11 GMT
+
+https://collider.com/prime-video-reacher-replacement-scarpetta-rotten-tomatoes-score-is-it-good/
+
+Nicole Kidman is standing right alongside Alan Ritchson's Reacher and Aldis Hodge's Cross with Scarpetta's strong start on Rotten Tomatoes.
+---------
+
+# Taylor Sheridan Fans Flock to $169 Million Western Masterpiece To Make Up for 'Marshals' Disappointment
+
+TV News, Taylor Sheridan, 1883, Isabel May, Tim McGraw
+
+Tue, 10 Mar 2026 19:29:04 GMT
+
+https://collider.com/taylor-sheridan-western-masterpiece-1883-streaming-success-itunes-march-2026/
+
+Taylor Sheridan's Western masterpiece, 1883, witnessed a resurgence after the premiere of his new show, Marshals. Find out more.
+---------
+
+# These 1950s Movie Classics Keep Getting Better
+
+Movie, Sunset Boulevard, The Night of the Hunter, All About Eve, 12 Angry Men
+
+Tue, 10 Mar 2026 19:19:12 GMT
+
+https://collider.com/1950s-movie-classics-keep-getting-better/
+
+1950s movies like Sunset Boulevard, The Searchers, and The Seventh Seal remain highly regarded, and over fifty years later, are better than ever.
+---------
+
+# Rebecca Ferguson's Sci-Fi Thriller Sets Home Release Date
+
+Movie News, Mercy, Rebecca Ferguson, Chris Pratt, Prime Video
+
+Tue, 10 Mar 2026 19:12:08 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-thriller-mercy-home-video-release-date-april-7-2026/
+
+After becoming one of the biggest bombs of 2026 so far, Rebecca Ferguson's Mercy is ready to face judgement on home video platforms.
+---------
+
+# HBO Max’s 3-Part Fantasy Series Is Still One of Its Best
+
+TV Features, Primal, Genndy Tartakovsky, HBO Max, Adult Swim
+
+Tue, 10 Mar 2026 19:08:13 GMT
+
+https://collider.com/primal-hbo-max-genndy-tartakovsky-fantasy-series/
+
+Genndy Tartakovsky’s Primal is one of the best fantasy shows on HBO Max. Here's why it's worth a watch.
+---------
+
+# 'Reacher's Alan Ritchson Takes Over Netflix With the Streamer's #1 Sci-Fi Blockbuster
+
+Movie News, Alan Ritchson, War Machine, Netflix, Patrick Hughes
+
+Tue, 10 Mar 2026 18:48:16 GMT
+
+https://collider.com/reacher-star-alan-ritchson-sci-fi-movie-war-machine-streaming-success-netflix-march-2026/
+
+Alan Ritchson's new Netflix sci-fi movie War Machine is running the competition into the ground after a blockbuster debut. Find out more.
+---------
+
+# Even Rebecca Ferguson's 2026 Sci-Fi Misfire Made More Than Christian Bale's New 'Frankenstein' Remake
+
+Movie News, Christian Bale, Jessie Buckley, The Bride!, Maggie Gyllenhaal
+
+Tue, 10 Mar 2026 18:42:31 GMT
+
+https://collider.com/christian-bale-the-bride-trailing-rebecca-ferguson-mercy-box-office-13-million/
+
+Christian Bale delivered his second major theatrical bomb this week, as The Bride! fell significantly short of expectations in its box office debut.
+---------
+
+# 10 Best Period Dramas of the Last 10 Years, Ranked
+
+Movie, Little Women, Portrait of a Lady on Fire, The Favourite, Emma.
+
+Tue, 10 Mar 2026 18:42:12 GMT
+
+https://collider.com/best-period-dramas-last-10-years-ranked/
+
+From coming-of-age tales to tragicomedies, period dramas remain a beloved genre — these contemporary masterpieces stand among the best.
+---------
+
+# Prime Video's Hit 10/10 'Bosch' Spin-Off Recruits a 'Handmaid's Tale' Favorite for Season 2
+
+TV News, Bosch, Ballard, The Handmaid's Tale
+
+Tue, 10 Mar 2026 18:30:43 GMT
+
+https://collider.com/prime-video-bosch-spin-off-ballard-season-2-cast-handmaids-tale-star-ever-carradine/
+
+The Handmaid's Tale star Ever Carradine has joined Season 2 of Prime Video's smash-hit Bosch spin-off, Ballard. Read on for more.
+---------
+
+# 'Harry Potter' Actor Katie Leung Would Not "Go Back" To Time Filming Iconic Franchise
+
+Movie News, Harry Potter, Bridgerton
+
+Tue, 10 Mar 2026 19:40:10 GMT
+
+https://movieweb.com/harry-potter-katie-leung-hbo-series/
+
+The 'Bridgerton' star reflects on her time filming the 'Harry Potter' films and is not as nostalgic to return as some fans are.
+---------
+
+# Timothée Chalamet's Ballet & Opera Controversy Explained
+
+Features, Timothée Chalamet, The Oscars | Academy Awards
+
+Tue, 10 Mar 2026 19:30:17 GMT
+
+https://movieweb.com/timothee-chalamet-ballet-opera-controversy/
+
+Timothée Chalamet, who starred in 'Marty Supreme,' sparked backlash after dismissing ballet and opera in a CNN/Variety town hall.
+---------
+
+# Harvey Weinstein Takes Credit for 'Yellowstone' in Prison Interview
+
+TV News, Harvey Weinstein, Yellowstone
+
+Tue, 10 Mar 2026 19:14:37 GMT
+
+https://movieweb.com/harvey-weinstein-yellowstone-prison-interview/
+
+The disgraced producer maintains his innocence and dishes on the Oscars in a new interview from prison.
+---------
+
+# 'Dawson's Creek' Star Joshua Jackson Pays Tribute to Late co-star James Van Der Beek For the First Time
+
+Movie News, James Van Der Beek, Joshua Jackson, Dawson's Creek
+
+Tue, 10 Mar 2026 18:42:50 GMT
+
+https://movieweb.com/joshua-jackson-james-van-der-beek-death/
+
+Joshua Jackson broke his silence on James Van Der Beek's passing after they starred together in the hit '90s show, 'Dawson's Creek.'
+---------
+
+# Quentin Tarantino Responds to 'Pulp Fiction's Rosanna Arquette N-Word Criticism
+
+Movie News, Quentin Tarantino, Pulp Fiction, Rosanna Arquette
+
+Tue, 10 Mar 2026 18:39:41 GMT
+
+https://movieweb.com/quentin-tarantino-pulp-fiction-criticism-response/
+
+Director Quentin Tarantino is firing back following recent criticisms over his use of the N-word in his movies.
+---------
+
+# Disney's Live-Action 'Tangled' Remake Casts Kathryn Hahn as Mother Gothel
+
+Movie News, Tangled, Kathryn Hahn
+
+Tue, 10 Mar 2026 18:12:44 GMT
+
+https://movieweb.com/tangled-kathryn-hahn-mother-gothel/
+
+Kathryn Hahn moves from the Marvel Cinematic Universe to the Disney live-action remake of 'Tangled' in the role of Mother Gothel.
+---------
+
+# Netflix's 'Castlevania' Series Is a Better Fantasy Adaptation Than 'The Witcher'
+
+Features, Castlevania, The Witcher, Netflix, Streaming Recommendations
+
+Tue, 10 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/castlevania-better-adaptation-the-witcher-failure/
+
+Netflix's 'The Witcher' adaptation might have flopped, but the 94% Rotten Tomatoes rated 'Castlevania' series is the best fantasy show on streaming.
+---------
+
 # Blizzard’s Diablo Officially Returns With a New 4-Part Series
 
 Comics, Diablo, Diablo 4
