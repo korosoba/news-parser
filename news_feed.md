@@ -1,3 +1,355 @@
+# Westworld: HBO's Ambitious Sci-Fi Series That Lost Its Way
+
+Classic TV, Westworld
+
+Wed, 11 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/westworld-hbo-sci-fi-western-could-have-been-best/
+
+HBO's sci-fi western series Westworld was supposed to be its next big tentpole show after Game of Thrones, but it went over a lot of viewers' heads.
+---------
+
+# 55 Years Ago Today, George Lucas Released His Original Sci-Fi Masterpiece That Predates Star Wars
+
+Classic Movies, Explainer, THX 1138
+
+Wed, 11 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/thx-1138-movie-55-year-anniversary-george-lucas/
+
+George Lucas released his masterpiece sci-fi debut 55 years ago and here is how it influenced the genre and his future as a filmmaker with Star Wars.
+---------
+
+# Atlanta: Donald Glover's Surrealist Masterpiece on Hulu
+
+Classic TV, Atlanta - Season 1
+
+Wed, 11 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/hulu-atlanta-dramedy-masterpiece-series-best/
+
+Hulu is currently streaming all four seasons of Donald Glover's dramedy series Atlanta, and it's one of the greatest TV shows of the 21st century.
+---------
+
+# Ethan Hawke's Crime Series With Near-Perfect RT Score Adds Tommy Lee Jones For Season 2
+
+TV, The Lowdown
+
+Wed, 11 Mar 2026 20:40:42 GMT
+
+https://screenrant.com/the-lowdown-season-2-tommy-lee-jones-cast-details/
+
+Oscar-winning actor Tommy Lee Jones is set to join Ethan Hawke's crime series with a near-perfect Rotten Tomatoes score as it prepares for season 2.
+---------
+
+# Why Alan Ritchson's New Action Movie War Machine Skipped A Theatrical Release After Strong 39.3M Views On Netflix
+
+Movies, War Machine
+
+Wed, 11 Mar 2026 20:39:27 GMT
+
+https://screenrant.com/war-machine-2026-netflix-movie-no-theater-release-explained-erin-westerman/
+
+A Lionsgate executive explains why the studio released Alan Ritchson's War Machine on Netflix instead of going for a big theatrical roll-out.
+---------
+
+# Our Final Predictions For Oscars 2026's Best Actor Lineup: Who Will Win?
+
+New Movies, Oscars
+
+Wed, 11 Mar 2026 20:31:20 GMT
+
+https://screenrant.com/oscars-2026-best-actor-predictions/
+
+There are several stars vying for Best Actor at the Oscars 2026. Here's our final prediction for who will win among the confirmed lineup of nominees.
+---------
+
+# Netflix's Hit 2-Season Adventure Series Just Gets Better And Better
+
+Streaming TV, Netflix
+
+Wed, 11 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/netflix-one-piece-live-action-better-season-2/
+
+A fantasy adventure series on Netflix is currently on its second season, but the show is already getting better and better as it goes along.
+---------
+
+# Age of Attraction: Netflix's New 5-Part Series Is The Perfect ‘Love Is Blind’ Replacement
+
+Streaming TV, Netflix, Love Is Blind
+
+Wed, 11 Mar 2026 20:24:19 GMT
+
+https://screenrant.com/netflix-age-of-attraction-series-must-watch/
+
+Discover the new Netflix dating series 'Age of Attraction' that's taking over where Love Is Blind left off, with its unique twist on reality dating.
+---------
+
+# The Boys' Prequel Series Vought Rising Gets Update From Jensen Ackles
+
+TV, Vought Rising, The Boys
+
+Wed, 11 Mar 2026 20:22:36 GMT
+
+https://screenrant.com/the-boys-vought-rising-filming-wrapped-jensen-ackles/
+
+Jensen Ackles, star of the upcoming prequel of The Boys, Vought Rising, gave fans an exciting update regarding the show's production.
+---------
+
+# Why Emma Roberts' Ghostface Didn't Return In Scream 7 Despite Being Related To Sidney Prescott
+
+Movies, Scream 7, Scream
+
+Wed, 11 Mar 2026 20:11:35 GMT
+
+https://screenrant.com/scream-7-emma-roberts-jill-prescott-absence-explained-guy-busick/
+
+Although several Ghostfaces returned in Scream 7, the writer explains why Emma Roberts' version didn't return despite being related to Sidney.
+---------
+
+# Darren Aronofsky’s $100 Million Biblical Gamble Noah Changed Religious Movies for Good
+
+Movies, darren aronofsky, Noah, Fantasy
+
+Wed, 11 Mar 2026 21:01:10 GMT
+
+https://www.cbr.com/darren-aronofsky-biblical-gamble-noah-changed-religious-movies/
+
+Aronofsky’s failure taught Hollywood a valuable lesson: don't mess too much with the source material, especially when it comes to religious content.
+---------
+
+# Keanu Reeves’ Action Classic Speed Ranks 8th on Hulu
+
+Movies, Speed, Hulu, Action
+
+Wed, 11 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/keanu-reeves-speed-success-hulu-march-2026/
+
+Speed, the 1994 action movie starring Keanu Reeves and Sandra Bullock, has climbed the Hulu charts, ranking 8th in the US.
+---------
+
+# Taylor Sheridan's Sons of Anarchy Exit Was the Turning Point of His Career
+
+TV, Yellowstone, Sons of Anarchy
+
+Wed, 11 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-sons-of-anarchy-exit-yellowstone-empire/
+
+Taylor Sheridan had a recurring role in early seasons of FX's Sons of Anarchy, but his exit paved the way for a massive Yellowstone empire.
+---------
+
+# Ryan Gosling's Project Hail Mary Solves Biggest Adaptation Problem
+
+Movies, Project Hail Mary, Sci-Fi
+
+Wed, 11 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-book-adaptation-problem-solved/
+
+Ryan Gosling's Project Hail Mary is told entirely through Dr. Grace's first-person POV, and the film found the best way to adapt this onscreen.
+---------
+
+# Netflix Unveils First Look at Will Ferrell's New Golf Comedy Series The Hawk
+
+Movies, Netflix
+
+Wed, 11 Mar 2026 20:36:57 GMT
+
+https://www.cbr.com/netflix-the-hawk-will-ferrell-first-look/
+
+Following last year's success of Happy Gilmore 2, Netflix has announced a new golf comedy series starring another Saturday Night Live icon.
+---------
+
+# Transformers Gives Starscream's Fellow Seeker an Official Cinematic Redesign
+
+Anime, Transformers, Transformers One, merchandise, toys, action figures, hasbro
+
+Wed, 11 Mar 2026 20:35:12 GMT
+
+https://www.cbr.com/transformers-studio-series-thundercracker-reveal/
+
+The first images for a new Transformers Studio Series action figures reveals the toy for the cinematic take on a classic Decepticon Seeker jet.
+---------
+
+# The Greatest Pirates of the Caribbean Action Scenes
+
+Movies, Pirates of the Caribbean, Pirates of the Caribbean: Dead Man's Chest, Action
+
+Wed, 11 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/greatest-pirates-of-the-caribbean-action-scenes-list/
+
+Pirates of the Caribbean is one of the greatest action-adventure franchises, and there are some scenes that need to be studied.
+---------
+
+# That Time I Got Reincarnated as a Slime's 2026 Return Already Looks Better Than Ever Before It Even Debuts
+
+Anime, That Time I Got Reincarnated as a Slime, Isekai
+
+Wed, 11 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/best-isekai-fantasy-2026-reincarnated-as-a-slime-season-4/
+
+That Time I Got Reincarnated as a Slime returns soon as part of the Spring 2026 lineup, and the first look already looks better than ever before.
+---------
+
+# Taylor Sheridan’s Yellowstone Spinoff Marshals Officially Hits No. 1
+
+TV, Marshals
+
+Wed, 11 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-marshals-streaming-no-1-paramount-plus-march-2026/
+
+The Yellowstone franchise continues with the first spinoff sequel, which has set several franchise records.
+---------
+
+# Arnold Schwarzenegger’s King Conan Can Be a Perfect Legacy Sequel
+
+Movies, Fantasy
+
+Wed, 11 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-king-conan-return-perfect-legacy-sequel/
+
+Conan is coming back to the big screen with Arnold Schwarzenegger back, and it has the potential to be the greatest legacy sequel ever.
+---------
+
+# ‘Sheriff Country’ Episode 12 Sneak Peek Shows Mickey Investigating a Violent Kidnapping [Exclusive]
+
+Exclusives, Sheriff Country, Morena Baccarin, CBS, Fire Country
+
+Wed, 11 Mar 2026 21:00:13 GMT
+
+https://collider.com/sheriff-country-season-1-episode-12-sneak-peek-cbs-fire-country-spin-off-morena-baccarin-matt-lauria/
+
+Morena Baccarin and Matt Lauria are hot on the trail of a suspected home invasion in a fresh look at Sheriff Country. See it here!
+---------
+
+# ‘A Knight of the Seven Kingdoms’ Season 2 Quietly Confirmed a ‘Game of Thrones’ Lannister Connection
+
+TV Features, A Knight Of The Seven Kingdoms, Game Of Thrones, HBO Max, Lucy Boynton
+
+Wed, 11 Mar 2026 20:45:12 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-season-2-lady-rohanne-lannister/
+
+A Knight of the Seven Kingdoms Season 2 has a deep connection to the Game of Thrones' Lannisters, with a new character named Lady Rohanne.
+---------
+
+# 10 Years Later, Zack Snyder’s Divisive Superhero Epic Has a Batman Scene That Aged Like Fine Wine
+
+Movie, Zack Snyder, Batman v Superman: Dawn of Justice, Justice League, Ben Affleck
+
+Wed, 11 Mar 2026 20:42:12 GMT
+
+https://collider.com/zack-snyder-batman-v-superman-divisive-superhero-epic-one-near-perfect-action-sequence/
+
+Zack Snyder’s superhero movies can be divisive, but Batman v Superman features a relentless, 10/10 fight scene with Ben Affleck’s Dark Knight.
+---------
+
+# 15 Years Later, This Forgotten Sci-Fi War Movie Is Perfect for 'War Machine' Fans
+
+Movie News, Battle Los Angeles, Black Hawk Down, Independence Day, War Machine
+
+Wed, 11 Mar 2026 20:29:50 GMT
+
+https://collider.com/battle-los-angeles-forgotten-sci-fi-epic-alan-ritchson-machine-alternative-streaming-success-tubi-march-2026/
+
+The forgotten military sci-fi movie Battle: Los Angeles witnessed a bump in streaming viewership following Alan Ritchson's hit War Machine.
+---------
+
+# 10 Film Noir Masterpieces That Defined the ‘80s, Ranked
+
+Movie
+
+Wed, 11 Mar 2026 20:28:12 GMT
+
+https://collider.com/film-noir-masterpieces-1980s-ranked/
+
+From Body Double to Blade Runner to Streets of Fire, these compelling film noir classics define the 1980s.
+---------
+
+# As a Gen Zer, These Are the Classic Sci-Fi Movies That I Rewatch the Most
+
+Movie, Science Fiction, Terminator 2: Judgment Day, Blade Runner, Metropolis
+
+Wed, 11 Mar 2026 20:21:12 GMT
+
+https://collider.com/movies-gen-z-fans-watch-the-most/
+
+As a Gen Z cinephile and certified sci-fi enjoyer, I constantly find myself revisiting certified classics like Metropolis, Blade Runner, and Alien.
+---------
+
+# HBO's Ridiculous 2-Part Comedy Series Hits Even Harder on a Rewatch Today
+
+TV Features, Nathan Fielder, Nathan for You, The Rehearsal, David Ellison
+
+Wed, 11 Mar 2026 20:11:12 GMT
+
+https://collider.com/the-rehearsal-hbo-comedy-nathan-fielder-rewatch/
+
+The Rehearsal Season 2 explores Nathan Fielder's past work, including his satirical take on antisemitism that was removed from Paramount+.
+---------
+
+# Anya Taylor-Joy’s Rumored Lord of the Rings Casting Is 10/10
+
+Movie Features, Anya Taylor-Joy, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Andy Serkis
+
+Wed, 11 Mar 2026 20:05:12 GMT
+
+https://collider.com/anya-taylor-joy-lord-of-the-rings-hunt-for-gollum-arwen-rumor/
+
+A rumor that Anya Taylor-Joy could join The Lord of the Rings: The Hunt for Gollum has fans speculating she may play a younger version of Arwen.
+---------
+
+# ‘Fire Country’ Season 4 Sneak Peek Shows Bode Facing Fallout From Tyler’s Shocking Secret [Exclusive]
+
+Exclusives, Fire Country, Max Thieriot, Alona Tal, CBS
+
+Wed, 11 Mar 2026 20:00:12 GMT
+
+https://collider.com/fire-country-season-4-episode-12-sneak-peek-cbs-max-thieriot-alona-tal/
+
+Max Thieriot and Alona Tal come to blows in a new look at this week’s Fire Country episode. See it here!
+---------
+
+# Seth MacFarlane Says 'Ted' Could Run for "20 Seasons"
+
+Exclusives, Ted, Seth MacFarlane, Peacock
+
+Wed, 11 Mar 2026 20:00:12 GMT
+
+https://collider.com/ted-season-2-peacock-seth-macfarlane-scott-grimes-interview/
+
+Seth MacFarlane and the stars of Peacock's Ted discuss bringing the bear to life, joyful moments on set, epic Season 2 sets, and emotional scenes.
+---------
+
+# 'Archive 81' Is a Great Netflix Thriller That Still Needs a Season 2
+
+Features, Archive 81, Netflix
+
+Wed, 11 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/archive-81-netflix-needs-season-2/
+
+'Archive 81' began streaming for one eight-episode season on Netflix in January 2021, and it stars Dina Shihabi and Mamoudou Athie.
+---------
+
+# 'The Lowdown' Season 2 Casts Tommy Lee Jones
+
+TV News, The Lowdown
+
+Wed, 11 Mar 2026 20:44:13 GMT
+
+https://movieweb.com/tommy-lee-jones-the-lowdown-season-2/
+
+The legendary Oscar-winning actor has officially joined the acclaimed neo-noir drama starring Ethan Hawke.
+---------
+
 # Firefly Reboot: Exploring Spinoff Comics & Novels as Potential Storylines
 
 Classic TV, Firefly
