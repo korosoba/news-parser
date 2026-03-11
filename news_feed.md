@@ -1,3 +1,443 @@
+# Denzel Washington's Upcoming Netflix Historical Epic Gets Major New Production Update
+
+Movies, Denzel Washington
+
+Wed, 11 Mar 2026 17:30:31 GMT
+
+https://screenrant.com/denzel-washington-hannibal-netflix-movie-production-start-update/
+
+Denzel Washington's upcoming Netflix historical epic gets a major new production update indicating when it will start filming.
+---------
+
+# Did You Catch Loki's Live-Action Cameo In One Piece Season 2?
+
+Streaming TV, One Piece
+
+Wed, 11 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/one-piece-season-2-loki-live-action-cameo/
+
+Loki may only be a recent addition in the One Piece manga series, but he makes a brief cameo in the second season of Netflix's live-action One Piece.
+---------
+
+# Michelle Pfeiffer & Taylor Sheridan's New 6-Part Western Series Is "Even Better" In Season 2, Teases Returning Star
+
+TV, The Madison, The Madison - Season 1, Paramount Plus, Western
+
+Wed, 11 Mar 2026 17:20:53 GMT
+
+https://screenrant.com/the-madison-season-2-better-than-season-1-alaina-pollack-tease/
+
+EXCLUSIVE: Michelle Pfeiffer is starring in Taylor Sheridan’s latest Western, and one of the cast members is giving ScreenRant a teaser of season 2.
+---------
+
+# Crocodile's Devil Fruit, Backstory & Real Plan In One Piece Live-Action Explained
+
+Streaming TV, One Piece
+
+Wed, 11 Mar 2026 17:08:30 GMT
+
+https://screenrant.com/one-piece-live-action-crocodile-mr-0-explained/
+
+Crocodile is a mysterious, villainous presence of One Piece season 2, causing many to wonder what his true motivations, powers, and backstory are.
+---------
+
+# Why Zendaya Is The Perfect New Recasting For Jodie Foster's Silence Of The Lambs Role Explained By Hannibal Creator
+
+TV, Hannibal, Horror, The Silence of the Lambs, Zendaya, Jodie Foster, Saturn Awards
+
+Wed, 11 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/zendaya-jodie-foster-silence-the-lambs-hannibal-recast-perfect-bryan-fuller/
+
+Exclusive: Hannibal creator Bryan Fuller is doubling down on Zendaya being his dream recasting for Jodie Foster's Silence of the Lambs character.
+---------
+
+# New Green Lantern Map Permanently Changes 86 Years of DC Lore
+
+DC Comics, Green Lantern
+
+Wed, 11 Mar 2026 16:58:43 GMT
+
+https://screenrant.com/green-lantern-lore-change-new-oa-map/
+
+The newly revealed map of Oa marks a massive shift for Green Lantern lore, changing how the Corps’ homeworld has been portrayed for 86 years.
+---------
+
+# After 84 Years, DC Makes A Historic Change To Superman's Fortress Of Solitude
+
+DC Comics, Superman
+
+Wed, 11 Mar 2026 16:57:09 GMT
+
+https://screenrant.com/superman-lore-change-fortress-solitude/
+
+DC shakes up Superman's origin story with a time-displaced Clark Kent, challenging the Man of Steel's rich history after eighty-four years.
+---------
+
+# Kate Winslet Officially Starring In New Lord Of The Rings Movie With Elijah Wood Confirmed To Return
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Kate Winslet
+
+Wed, 11 Mar 2026 16:55:46 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-kate-winslet-cast-filming-start-date/
+
+The Lord of the Rings: The Hunt for Gollum has officially landed a major cast member, as Kate Winslet is set to join Andy Serkis' upcoming film.
+---------
+
+# It's Official, Gojo Isn't Even Close to Jujutsu Kaisen's Most Popular Character
+
+Anime, Satoru Gojo, Jujutsu Kaisen
+
+Wed, 11 Mar 2026 16:50:16 GMT
+
+https://screenrant.com/its-official-gojo-isnt-even-close-to-jujutsu-kaisens-most-popular-character/
+
+In a shocking turn of events, the most popular character in the Jujutsu Kaisen franchise is not Satoru Gojo anymore, and that may be due to Season 3.
+---------
+
+# All 5 Seasons Of Netflix’s Best Psychological Thriller Are Perfect From Start To Finish
+
+TV, You
+
+Wed, 11 Mar 2026 16:45:19 GMT
+
+https://screenrant.com/you-netflix-five-seasons-perfect-from-start-to-finish/
+
+Netflix might have created a lot of popular psychological thriller shows, but this 10/10 five-season masterpiece stands out as the best of them.
+---------
+
+# Every Mario Game On the Nintendo 64, Ranked
+
+Games, Mario
+
+Wed, 11 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/every-mario-n64-game-ranked-list/
+
+The Nintendo 64 brought not only 3D performance, but a bunch of Mario games. We've ranked all of Mario's games outing on the 64.
+---------
+
+# This Forgotten '80s Sci-Fi Classic Is Making An Unexpected Return
+
+Comics, The Last Starfighter
+
+Wed, 11 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/the-last-starfighter-sequel-mad-cave-studios-details/
+
+A cult classic film that remains a pioneer in the sci-fi genre will get an exciting new sequel story this summer.
+---------
+
+# The Art of Gravity Falls Book Announced by Disney
+
+TV, Gravity Falls
+
+Wed, 11 Mar 2026 17:28:23 GMT
+
+https://www.cbr.com/gravity-falls-artbook-release-date/
+
+Gravity Falls fans have been waiting for this for the past decade.
+---------
+
+# Yellowstone Star Martin Sensmeier Joins AMC’s Dark Winds in a Key Role
+
+TV, Yellowstone, Dark Winds
+
+Wed, 11 Mar 2026 17:21:54 GMT
+
+https://www.cbr.com/martin-sensmeier-cast-amc-dark-winds-season-5/
+
+Although Season 4 is currently underway, production on Season 5 has already started.
+---------
+
+# Reminders of Him Review: This Colleen Hoover Adaptation Is a Total Nothingburger
+
+Movies, Reminders of Him
+
+Wed, 11 Mar 2026 17:17:42 GMT
+
+https://www.cbr.com/reminders-of-him-review/
+
+Reminders of Him is another cheesy Colleen Hoover adaptation with Maika Monroe front and center, trying to redeem herself from a troubled past.
+---------
+
+# Crunchyroll's Worst-Rated New Fantasy Anime Reveals Season 2 Trailer for Spring 2026 Comeback
+
+Anime, The Beginning After the End, Crunchyroll
+
+Wed, 11 Mar 2026 17:13:11 GMT
+
+https://www.cbr.com/the-beginning-after-the-end-season-2-crunchyroll-new-trailer-release-date/
+
+Fans just got a new look at the Spring 2026 comeback for one of the worst-rated (yet utterly captivating) isekai anime shows of the past year.
+---------
+
+# The Lord of the Rings: The Hunt for Gollum Casts Kate Winslet
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Wed, 11 Mar 2026 16:59:41 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-hunt-for-gollum-cast-kate-winslet/
+
+Oscar-winning actress Kate Winslet joins the cast of The Lord of the Rings: The Hunt for Gollum.
+---------
+
+# 5 Perfect '80s Movies Nobody Remembers
+
+Movies
+
+Wed, 11 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/5-perfect-80s-movies-nobody-remembers-list/
+
+The 1980s were jam-packed with beloved masterpieces, but some of the decade's best films have been unfortunately forgotten by audiences today.
+---------
+
+# Prime Video's Scarpetta' Is TV's Newest Dexter Rival
+
+TV, Scarpetta, Prime Video, Thriller
+
+Wed, 11 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/prime-video-scarpetta-dexter-rival/
+
+Prime Video's new thriller series accomplishes something that Dexter's prequel series, Dexter: Original Sin, did especially well.
+---------
+
+# Supergirl Gets Last-Minute Creative Shakeup Just 3 Months Before Release
+
+Movies, Supergirl, DCU
+
+Wed, 11 Mar 2026 16:29:23 GMT
+
+https://www.cbr.com/supergirl-creative-shakeup-new-composer-claudia-sarne/
+
+With three months to go until release, the second DC Universe movie, Supergirl, is still making some major creative changes.
+---------
+
+# 10 Most Perfect Bob Dylan Songs, Ranked
+
+Music Features, Music, Bob Dylan, Rock, A Complete Unknown
+
+Wed, 11 Mar 2026 17:27:12 GMT
+
+https://collider.com/perfect-bob-dylan-songs-ranked/
+
+Bob Dylan has written plenty of classic songs over the decades, with some of his most perfect ones being "Like a Rolling Stone" and "Hurricane."
+---------
+
+# Cartoon Network's 8-Part Fantasy Series Revival Won't Ruin the Series' 10/10 Original Ending
+
+TV News, Regular Show, Cartoon Network, Animation, Sitcom
+
+Wed, 11 Mar 2026 17:22:15 GMT
+
+https://collider.com/cartoon-network-regular-show-revival-rigby-actor-william-saylers-comments/
+
+Regular Show star William Salyers addresses the possibility of reprising his role in the upcoming spin-off two years after the revival's announcement.
+---------
+
+# Creator of Most Disappointing ‘Yellowstone’ Spin-Off Confirms Cameos From Franchise Favorites
+
+TV News, Marshals, Yellowstone, Luke Grimes, Taylor Sheridan
+
+Wed, 11 Mar 2026 17:11:28 GMT
+
+https://collider.com/marshals-yellowstone-most-disappointing-spin-off-franchise-cameos-creator-spencer-hudnut/
+
+Marshals creator Spencer Hudnut hints at possible appearances of popular characters from Yellowstone, expressing an open-door policy for crossovers.
+---------
+
+# Andy Serkis' Lord of the Rings Prequel Movie Officially Casts Kate Winslet in Key Role
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Kate Winslet, Andy Serkis, The Lord of the Rings
+
+Wed, 11 Mar 2026 17:06:50 GMT
+
+https://collider.com/lord-of-the-rings-the-hunt-for-gollum-cast-kate-winslet/
+
+One Rose to rule them all: Titanic icon Kate Winslet has officially been cast in a lead role for The Lord of the Rings: The Hunt for Gollum.
+---------
+
+# Netflix’s Most Ambitious Action Franchise Gets a Mission: Impossible-Style Update Ahead of Part 3
+
+Movie News, Extraction, Extraction 2, Chris Hemsworth, Sam Hargrave
+
+Wed, 11 Mar 2026 16:45:35 GMT
+
+https://collider.com/extraction-3-filming-update-mission-impossible-cinematographer-shooting-locations/
+
+Chris Hemsworth is set to return as Tyler Rake in Extraction 3, which received an exciting production update recently. Find out more.
+---------
+
+# 12 Years Later, This 7-Part Sci-Fi Show Is Making the Wait Between 'Silo' Seasons Feel Shorter
+
+TV News, The 100, Silo, Apple TV, Sci-Fi
+
+Wed, 11 Mar 2026 16:39:26 GMT
+
+https://collider.com/the-100-7-part-dystopian-sci-fi-series-perfect-for-silo-apple-tv-pvod-charts-streaming-success-march-2026/
+
+The CW's fan-favorite dystopian sci-fi series, The 100, perfect for fans of Apple TV's Silo, tops PVOD charts, 6 years after airing its finale.
+---------
+
+# Rebecca Ferguson Officially Confirms Return Window For Her 3-Part Apple TV Sci-Fi Series
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Wed, 11 Mar 2026 16:22:59 GMT
+
+https://collider.com/silo-season-3-release-window-summer-2026-update-apple-tv-rebecca-ferguson/
+
+Rebecca Ferguson has revealed the official release window for Season 3 of her dystopian sci-fi series Silo on Apple TV.
+---------
+
+# Netflix Is Remaking the Greatest Action Movie Since ‘Die Hard’
+
+Movie News, The Raid, Patrick Hughes, Netflix, Action
+
+Wed, 11 Mar 2026 16:16:41 GMT
+
+https://collider.com/netflix-the-raid-remake-movie-patrick-hughes-update/
+
+War Machine director Patrick Hughes has revealed that Netflix's American remake of the action classic The Raid is still alive.
+---------
+
+# Josh Gates Investigates Dracula, UFOs, and Lincoln in First 'Expedition Files' Trailer Ahead of April 1 Return [Exclusive]
+
+TV News, Expedition Files, Expedition Unknown, Josh Gates, Discovery Channel
+
+Wed, 11 Mar 2026 16:00:12 GMT
+
+https://collider.com/expedition-files-season-4-trailer-josh-gates-discovery/
+
+Watch the first trailer for Season 4 of Expedition Files, featuring explorer Josh Gates delving into historical mysteries, Dracula, UFOs, and more!
+---------
+
+# New 'Ceremony' Trailer Reveals Incredible Must-Watch Story of Survival Ahead of SXSW Premiere [Exclusive]
+
+Exclusives, Documentary, SXSW, History, Drama
+
+Wed, 11 Mar 2026 16:00:12 GMT
+
+https://collider.com/ceremony-trailer-sxsw-premiere-banchi-hanuse-indigenous-documentary/
+
+Banchi Hanuse’s latest project, Ceremony, charts the course of an Indigenous community’s attempt to right the wrongs of the past. See the trailer!
+---------
+
+# 'Fuze' Trailer Unveils Action Thriller Starring Aaron Taylor-Johnson & Theo James
+
+Movie News, Fuze, Aaron Taylor-Johnson, Action
+
+Wed, 11 Mar 2026 17:35:40 GMT
+
+https://movieweb.com/fuze-trailer/
+
+A new trailer for 'Fuze' has been released, offering our best look yet at the tense action heist thriller starring Aaron Taylor-Johnson & Theo James.
+---------
+
+# 'He Bled Neon' Trailer Reveals Action Thriller Starring 'Peaky Blinders' Alum Joe Cole
+
+Movie News, Joe Cole, He Bled Neon
+
+Wed, 11 Mar 2026 17:22:45 GMT
+
+https://movieweb.com/joe-cole-he-bled-neon-trailer/
+
+Joe Cole, who also stars in AMC's 'Gangs of London,' is taking his action chops to the American Southwest.
+---------
+
+# 'The Lord of the Rings: The Hunt for Gollum' Adds Kate Winslet in Lead Role
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Wed, 11 Mar 2026 17:05:16 GMT
+
+https://movieweb.com/kate-winslet-lord-of-the-rings-gollum/
+
+The has joined the cast of the 'Lord of the Rings' spin-off.
+---------
+
+# Taylor Sheridan's Most Underrated Crime Series is Also his Most Addictive
+
+Features, Mayor of Kingstown, Taylor Sheridan
+
+Wed, 11 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/taylor-sheridan-mayor-of-kingstown-tv-binge/
+
+'Wind River's Taylor Sheridan and Jeremy Renner reunite for the gritty crime series, 'Mayor of Kingstown'.
+---------
+
+# David Ellison Underwhelms Warner Bros. Executives in First Meeting
+
+Movie News, David Ellison
+
+Wed, 11 Mar 2026 16:12:09 GMT
+
+https://movieweb.com/david-ellison-warner-bros-meeting/
+
+The Paramount CEO admits to turbulent bidding process but dedicates his love of movies
+---------
+
+# Live-Action 'Samurai Champloo' in the Works From Netflix's 'One Piece' Producers
+
+TV News, Samurai Champloo, One Piece, Anime, Action
+
+Wed, 11 Mar 2026 16:08:32 GMT
+
+https://movieweb.com/samurai-champloo-live-action-remake-one-piece/
+
+After Netflix's 'One Piece,' the cult action series 'Samurai Champloo' is getting a live-action adaptation.
+---------
+
+# 'Reminders of Him' Review: The Most Baffling Colleen Hoover Movie Yet
+
+Movie Reviews, Reminders of Him, Maika Monroe
+
+Wed, 11 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/reminders-of-him-review/
+
+Maika Monroe and Tyriq Withers' chemistry elevates an overly melodramatic adaptation that requires a hefty suspension of disbelief.
+---------
+
+# 'One Piece' Season 2 Ending & the Netflix Adaptation's Future, Explained
+
+Features, One Piece
+
+Wed, 11 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/one-piece-season-2-ending-explained/
+
+The season 2 finale sets the stage for a brutal and large-scale conflict in Netflix's 'One Piece'.
+---------
+
+# Anime Series With One Season You Can Binge in a Day
+
+TV Lists, Anime
+
+Wed, 11 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/anime-one-season-binge/
+
+Some of the best anime are short but sweet, and these are series you can get through in a single day.
+---------
+
+# 'Ready or Not' Tops Streaming Charts Ahead of Anticipated Sequel
+
+Movie News, Ready or Not, Hot on Streaming, Horror
+
+Wed, 11 Mar 2026 15:22:25 GMT
+
+https://movieweb.com/ready-or-not-streaming-hulu-march-2026/
+
+Ahead of 'Ready or Not 2: Here I Come,' the 2019 film that started it all is making a comeback on streaming.
+---------
+
 # Why Tashigi Looks So Much Like Zoro's Childhood Friend In One Piece Season 2
 
 Streaming TV, One Piece
