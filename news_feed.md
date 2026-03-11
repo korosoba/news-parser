@@ -1,3 +1,157 @@
+# Netflix's 6-Part Spy Thriller Series With Near-Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
+
+TV, Netflix, Black Doves
+
+Wed, 11 Mar 2026 22:36:28 GMT
+
+https://screenrant.com/black-doves-netflix-spy-thriller-series-must-watch/
+
+With only six episodes, this hit Netflix spy thriller series emerges as the perfect option for a one-night weekend binge, and it features a big star.
+---------
+
+# One Piece Season 2 Just Foreshadowed Gear 5, and Everyone Missed it
+
+Anime, One Piece, Netflix
+
+Wed, 11 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/netflix-one-piece-luffy-gear-5-foreshadow/
+
+Season 2 of One Piece makes many changes from the original series, including setting up Luffy's biggest power up through little easter eggs.
+---------
+
+# 9 Weirdest Details In Old Pixar Movies
+
+Movies, Pixar, Toy Story, Toy Story 2, Toy Story 3, Up, Cars, Inside Out, Finding Nemo, The Good Dinosaur, Lilo & Stitch
+
+Wed, 11 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/pixar-movies-weird-details/
+
+Disney Pixar movies are full of subtle nods and strange references you may never notice even if you've watched them multiple times.
+---------
+
+# Tommy Lee Jones Joins The Lowdown Season 2
+
+TV, The Lowdown, tommy lee jones
+
+Wed, 11 Mar 2026 22:52:55 GMT
+
+https://www.cbr.com/tommy-lee-jones-the-lowdown-season-2/
+
+Tommy Lee Jones breaks a 37-year-old career trend with his latest role.
+---------
+
+# Every Free Game Steam, PlayStation Plus, Xbox & Epic
+
+Games, Free Games, Steam, PlayStation 5, Xbox Series X (1)
+
+Wed, 11 Mar 2026 22:43:12 GMT
+
+https://www.cbr.com/all-free-games-steam-playstation-plus-xbox-epic/
+
+Looking for free games? These are the free titles currently available on major gaming platforms.
+---------
+
+# Star Trek’s 94% RT Series May Never Get Its Planned Sequel After “Out of Our Hands” Update
+
+TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus
+
+Wed, 11 Mar 2026 22:38:33 GMT
+
+https://www.cbr.com/star-trek-strange-new-world-year-one-sequel-update/
+
+“We think it would be a great [show], it’s the next thing for Star Trek"
+---------
+
+# 10 Anime Series That Somehow Got Better After a Perfect First Season
+
+Anime, Attack On Titan
+
+Wed, 11 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/best-anime-perfect-season-1-still-good/
+
+Anime like Mob Psycho 100 and Vinland Saga managed the rare feat of improving even after an incredible debut.
+---------
+
+# Harry Bosch's Return to TV Casts 3 Key Roles for the New Prequel Series
+
+TV News, Bosch: Legacy, Bosch: Start of Watch, Bosch
+
+Wed, 11 Mar 2026 22:50:30 GMT
+
+https://collider.com/bosch-prequel-start-of-watch-cast-azita-ghanizada-william-fichtner-kathleen-wilhoite/
+
+Amazon and Cameron Monaghan's Bosch prequel, Start of Watch, has expanded its cast with a trio of new stars including William Fichtner.
+---------
+
+# Netflix’s Near-Perfect 8-Part Horror Series Is So Good You Can Start With Any Episode
+
+TV Features, Netflix, Guillermo del Toro's Cabinet of Curiosities, Guillermo del Toro, Frankenstein
+
+Wed, 11 Mar 2026 22:41:12 GMT
+
+https://collider.com/netflix-guillermo-del-toro-cabinet-of-curiosities-anthology-series/
+
+Its creator earned the nickname "Maestro of Monsters" for a reason.
+---------
+
+# Sci-Fi Fans Have Just 2 Days To Watch This Legendary Dystopian Saga
+
+Movie News, The Hunger Games, Sci-Fi, The Hunger Games: Sunrise on the Reaping, Jennifer Lawrence
+
+Wed, 11 Mar 2026 22:38:10 GMT
+
+https://collider.com/hunger-games-franchise-dystopian-sci-fi-franchise-leaving-peacock-march-13/
+
+Explore the impact and legacy of the Hunger Games franchise and catch the films before they leave streaming in just 2 days. Read on for more.
+---------
+
+# 35 Best Anime Series of All Time, Ranked
+
+TV, Anime, Fullmetal Alchemist, One Piece, Mushi-Shi
+
+Wed, 11 Mar 2026 22:31:12 GMT
+
+https://collider.com/best-anime-series-all-time-ranked/
+
+From Fullmetal Alchemist to Dragon Ball and Cowboy Bebop, these are the all-time greatest anime series that have cemented the medium's legacy.
+---------
+
+# 10 Dystopian Books Better Than 'The Hunger Games'
+
+Movie, The Hunger Games, The Road, The Giver, The Handmaid's Tale
+
+Wed, 11 Mar 2026 22:22:13 GMT
+
+https://collider.com/dystopian-books-better-than-the-hunger-games/
+
+The Hunger Games might be the best-known dystopian tale in recent memory, but books like The Giver, The Handmaid’s Tale, and The Road are superior.
+---------
+
+# Netflix's Most Stress-Inducing Series Returns With a Brand-New Story on April 16
+
+TV News, Beef, Netflix, Anthology, Carey Mulligan
+
+Wed, 11 Mar 2026 22:07:26 GMT
+
+https://collider.com/netflix-best-anthology-series-beef-season-2-release-date-april-16/
+
+Netflix has set Beef Season 2 for April 16, with Oscar Isaac, Carey Mulligan, Charles Melton, and Cailee Spaeny leading the anthology’s new chapter.
+---------
+
+# Apple TV+'s Sci-Fi Thriller 'Pluribus' Faces Major Streaming Setback Ahead of Season 2
+
+TV News, Pluribus, Apple TV, Hot on Streaming, Sci-Fi
+
+Wed, 11 Mar 2026 22:30:17 GMT
+
+https://movieweb.com/pluribus-streaming-failure-apple-march-2026/
+
+Apple TV+'s Certified Fresh sci-fi thriller dark comedy 'Pluribus' struggles on streaming as Season 2 hit with behind-the-scenes setbacks.
+---------
+
 # One Piece Fans Hold Key to Joy Boy's Official Design Reveal
 
 Anime, One Piece
