@@ -1,3 +1,311 @@
+# 10 Saddest Anime Of All Time, Ranked
+
+Anime, Takopi's Original Sin, Banana Fish
+
+Wed, 11 Mar 2026 03:55:18 GMT
+
+https://screenrant.com/best-sad-anime-series-ranked/
+
+Other series may feature a couple of sad scenes, but these ones are emotional from the beginning to the end. Warning: tissues are advised!
+---------
+
+# Star Trek: Year One Spinoff Update: Paramount+ Decision On Captain Kirk Series
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 11 Mar 2026 02:05:23 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-year-one-kirk-spinoff-update/
+
+Star Trek: Strange New Worlds co-showrunner Henry Alonso Myers gives an update on their proposed Paul Wesley-led Captain Kirk.
+---------
+
+# Every Pokémon Protagonist’s Official Name
+
+Gaming, Pokemon
+
+Wed, 11 Mar 2026 02:00:30 GMT
+
+https://screenrant.com/pokemon-protagonist-trainer-official-real-names-who/
+
+The protagonists that have appeared throughout the mainline Pokémon games have official names that have been used in spin-off media in the past.
+---------
+
+# Prime Video's New 8-Part Crime Thriller Based On Best-Selling Series Debuts With Solid Rotten Tomatoes Score
+
+TV, Scarpetta, Scarpetta - Season 1, Crime, Thriller, Prime Video
+
+Wed, 11 Mar 2026 01:09:18 GMT
+
+https://screenrant.com/scarpetta-rotten-tomatoes-score-debut/
+
+Prime Video has another critical hit on its hands after debuting with a solid Rotten Tomatoes score for its new crime thriller series.
+---------
+
+# An Easter Egg In The Super Mario Galaxy Movie May Hint At Yet Another Hidden Boss
+
+New Movies, The Super Mario Galaxy Movie, Super Mario, Explainer
+
+Wed, 11 Mar 2026 01:00:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-dino-piranha-easter-egg-boss-hint/
+
+The Super Mario Galaxy Movie trailer finally confirmed Wart's return to the franchise, and in the process, dropped a hint about another Mario boss.
+---------
+
+# Hoppers' Moral Is Sweet On The Surface, But Surprisingly Tricky In Practice
+
+Movies, Hoppers
+
+Wed, 11 Mar 2026 00:20:19 GMT
+
+https://screenrant.com/hoppers-moral-activism-op-ed/
+
+Hoppers approaches the subject of activism with a positive moral and a quietly complex approach to the importance of balancing anger with empathy.
+---------
+
+# Emma Leaphorn's Resistance To Joe's Retirement In Dark Winds Explained
+
+Interviews, Dark Winds, AMC, AMC+, Deanna Allison
+
+Wed, 11 Mar 2026 00:10:37 GMT
+
+https://screenrant.com/dark-winds-season-4-emma-leaphorn-retirement-thoughts-deanna-allison/
+
+Dark Winds star Deanna Allison discusses Emma Leaphorn's unwavering support for her husband Joe's career, even as she grapples with the impact of his work on their relationship and her own grief.
+---------
+
+# Resident Evil Requiem Is Leading The Series Down A Dark Path, & Fans May Hate It
+
+Gaming, Resident Evil 9, Triple-A Games
+
+Wed, 11 Mar 2026 00:00:19 GMT
+
+https://screenrant.com/resident-evil-requiem-fan-reaction-action-horror-genre/
+
+Resident Evil Requiem balances horror with action, and it is the latter gameplay formula that may soon sweep the franchise off its feet again.
+---------
+
+# Disney+'s 8-Part Sci-Fi Fantasy Series Could've Launched An Entire Cinematic Universe
+
+Classic TV, The Acolyte, Star Wars
+
+Wed, 11 Mar 2026 00:00:19 GMT
+
+https://screenrant.com/the-acolyte-disney-plus-star-wars-high-republic-universe/
+
+Discover how Disney+'s Star Wars: The Acolyte, a science fiction and fantasy series, had the potential to launch its own cinematic universe. Explore the show's unique setting and its connection to the High Republic era of Star Wars.
+---------
+
+# 10 Highest Grossing Sci-Fi Movies Of All Time At The U.S. Box Office
+
+Movies, Sci-Fi
+
+Wed, 11 Mar 2026 00:00:19 GMT
+
+https://screenrant.com/scifi-movies-highest-grossing-domestic-box-office/
+
+Science fiction is an imaginative genre that continues to amaze audiences, and these 10 sci-fi films have performed the best at the U.S. box office.
+---------
+
+# Dragon Ball Super Manga Hiatus Gets a Quiet Update
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Wed, 11 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-vjump-april-2026-hiatus-update/
+
+An official announcement has confirmed the immediate fate of the Dragon Ball Super manga, and things aren't looking good for the near future.
+---------
+
+# A Decade Later, Grimgar, Ashes & Illusions Is Still Criminally Underrated Isekai Masterpiece
+
+Anime, Grimgar, Ashes and Illusions
+
+Wed, 11 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/most-underrated-isekai-anime-grimgar-ashes-and-illusions/
+
+A decade after its release, this unusually clever fantasy anime remains widely overlooked.
+---------
+
+# Marshals Episode 2 Highlights Yellowstone's Tragic Dutton Family Sacrifices
+
+TV, Marshals, Yellowstone
+
+Wed, 11 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/marshals-episode-2-kayce-dutton-yellowstone-reference-explained/
+
+Marshals makes a powerful reference to Kayce Dutton's Yellowstone story in Episode 2, quietly calling back to the family's harshest reality.
+---------
+
+# This Overlooked LOTR Line Proved Sméagol Was Just as Evil as Gollum
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Hunt for Gollum
+
+Wed, 11 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-golloum-darkest-quote-return-of-the-king/
+
+With only two words, the extended edition of Peter Jackson's The Lord of the Rings: The Return of the King revealed the truth about Sméagol.
+---------
+
+# 10 Classic Nintendo DS Games That Are Unplayable Today
+
+Games, Nintendo, Video Games
+
+Wed, 11 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/nintendo-ds-games-classic-games-aged-badly-list/
+
+Super Mario 64 DS and Guitar Hero: On Tour are DS games that are either partly or wholly unplayable today.
+---------
+
+# Netflix Exec Reveals Why Its New Shonen Jump Anime Is Such a Risky Bet
+
+Anime, Netflix, Gintama, weekly shonen jump
+
+Wed, 11 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/netflix-dandelion-shonen-jump-anime-risky-bet/
+
+A major Netflix executive explains why the site's next Shonen Jump-based anime may be hit-or-miss with viewers, despite its famous creator.
+---------
+
+# The Audacity Gets Early Renewal Ahead of Series Premiere on AMC
+
+TV, The Audacity
+
+Wed, 11 Mar 2026 02:50:16 GMT
+
+https://www.cbr.com/the-audacity-renewed-season-2-amc/
+
+AMC doles out an early renewal for the new series from one of the writers of Better Call Saul.
+---------
+
+# Dead Man's Gun: The Twilight Zone-Inspired Western Anthology Series
+
+TV, Dead Man's Gun, Western
+
+Wed, 11 Mar 2026 02:45:11 GMT
+
+https://www.cbr.com/dead-mans-gun-perfect-twilight-zone-fans/
+
+Dead Man's Gun was a 1990s anthology series that aired on Showtime and brought a Wild West twist to Rod Serling's The Twilight Zone.
+---------
+
+# 10 Best Shonen Anime Where Every Arc Is A Masterpiece
+
+Anime, shonen anime, Shonen
+
+Wed, 11 Mar 2026 02:45:11 GMT
+
+https://www.cbr.com/best-shonen-anime-good-every-arc/
+
+Shonen has slowly perfected its formula for decades, and the best shonen anime, from One Piece to JoJo's Bizarre Adventure, have nailed that formula.
+---------
+
+# Russell Crowe's Forgotten WWII Drama Nuremberg Deserves to Be Remembered
+
+Movies, Nuremberg, Russell Crowe, War
+
+Wed, 11 Mar 2026 02:45:11 GMT
+
+https://www.cbr.com/russell-crowe-nuremberg-forgotten-wwii-drama/
+
+The war drama starring Russell Crowe was completely overshadowed by much louder blockbuster competition, but it is now trending on streaming.
+---------
+
+# 10 Most Perfect Movies of the Last 10 Years, Ranked
+
+Movie, Portrait of a Lady on Fire, Arrival, The Lighthouse, La La Land
+
+Wed, 11 Mar 2026 03:58:12 GMT
+
+https://collider.com/most-perfect-movies-last-10-years-ranked/
+
+From Parasite to Portrait of a Lady on Fire, these 10 movies from the past decade delivered flawless storytelling and unforgettable performances.
+---------
+
+# HBO Max’s Emmy-Winning 7-Part Mystery Series Remains One of Its Best
+
+TV Features, Mare of Easttown, Kate Winslet, HBO Max, Cailee Spaeny
+
+Wed, 11 Mar 2026 03:19:12 GMT
+
+https://collider.com/mare-of-easttown-best-hbo-mystery/
+
+Mare of Easttown takes the time-honored tradition of a grizzled detective and grounds it in the world of Delaware County.
+---------
+
+# 16 Years Later, 'Fringe's Groundbreaking Reveal Is Still Sci-Fi at Its Best
+
+TV Features, Fringe, John Noble, Fox, Sci-Fi
+
+Wed, 11 Mar 2026 03:00:13 GMT
+
+https://collider.com/fringe-peter-episode-reveal-walter-bishop-groundbreaking-sci-fi/
+
+In Fringe Season 2, Episode 16, it's revealed that Walter's son Peter is actually Peter from a parallel universe.
+---------
+
+# Netflix’s 6-Part Spy Thriller Masterpiece Is Still the Perfect Weekend Binge
+
+TV Features, Netflix, Richard Madden, Thriller, Bodyguard
+
+Wed, 11 Mar 2026 03:00:13 GMT
+
+https://collider.com/bodyguard-netflix-spy-thriller-richard-madden/
+
+Netflix's Bodyguard is a perfect one-season thriller, avoiding the pitfalls of unnecessary sequels and delivering a complete, gripping story.
+---------
+
+# ‘High Potential’ Finally Spotlights a Fan-Favorite Character in This Must-Watch Episode
+
+TV Reviews, High Potential, Javicia Leslie, Procedural, ABC
+
+Wed, 11 Mar 2026 02:00:23 GMT
+
+https://collider.com/high-potential-season-2-episode-14-recap-review-daphne-dottie-return/
+
+In High Potential Season 2 Episode 14, Major Crimes investigates an attempt on Dottie's life, while Daphne faces a pivotal decision about her career.
+---------
+
+# 4 Epic War Miniseries Better Than Any Classic Movie
+
+TV Lists, War
+
+Wed, 11 Mar 2026 02:30:17 GMT
+
+https://movieweb.com/epic-war-miniseries-better-than-movies/
+
+These masterpiece TV miniseries stack up against the best war movies in cinematic history.
+---------
+
+# 10 '90s Crime Thriller Shows That Were Way Ahead Of Their Time
+
+TV Lists
+
+Wed, 11 Mar 2026 02:00:28 GMT
+
+https://movieweb.com/90s-crime-thrillers-ahead-of-their-time/
+
+These gritty crime thrillers from the 1990s pushed the boundaries of what television could offer and they still hold up today.
+---------
+
+# 8 Clues That Robby Dies In 'The Pitt' Season 2
+
+TV Lists, The Pitt
+
+Wed, 11 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/the-pitt-season-2-robby-death-clues/
+
+'The Pitt' Season 2 is currently streaming on Max on Thursday evenings, and fans think that there are several signs that Dr. Robby (Noah Wyle) dies.
+---------
+
 # DC’s Newest Superman May Be Dark But He Doesn’t Lose The Character’s Most Important Trait
 
 Comics, Superman, DC Comics
