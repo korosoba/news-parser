@@ -1,3 +1,410 @@
+# Why Tashigi Looks So Much Like Zoro's Childhood Friend In One Piece Season 2
+
+Streaming TV, One Piece
+
+Wed, 11 Mar 2026 14:31:19 GMT
+
+https://screenrant.com/why-tashigi-looks-like-kuina-zoro-friend-one-piece/
+
+A new character in One Piece season 2, Tashigi, looks a lot like Zoro’s childhood friend Kuina, raising the question of whether this was intentional.
+---------
+
+# Crunchyroll's Most Controversial Manhwa Adaptation Is Returning with Official Season 2 Release Date
+
+Anime, The Beginning After the End
+
+Wed, 11 Mar 2026 14:28:14 GMT
+
+https://screenrant.com/the-beginning-after-end-season-2-release-date-crunchyroll/
+
+Is the poorly-received Solo Leveling killer about to redeem itself in season 2?
+---------
+
+# New Pokémon Rival Smashes Kickstarter Goal In 10 Minutes, And We Can See Why
+
+Gaming, Pokemon
+
+Wed, 11 Mar 2026 14:24:51 GMT
+
+https://screenrant.com/pokemon-rival-kickstarter-wonderful-neoran-valley/
+
+A new Pokémon clone hit its Kickstarter goal in just ten minutes, and, after looking at everything it has to offer, I'm not even surprised.
+---------
+
+# DC's Absolute Universe Unveils Poison Ivy's Most Powerful Form Yet
+
+DC Comics, Batman, Poison Ivy
+
+Wed, 11 Mar 2026 14:20:56 GMT
+
+https://screenrant.com/absolute-batman-poison-ivy-new-powers/
+
+DC's Absolute Universe officially unveils the true form of one of Batman's most powerful and underrated villains, who receives a massive power-up.
+---------
+
+# Apple TV's 3-Season Streaming Show Returned Harrison Ford To His Best
+
+Streaming TV, Shrinking, Apple TV
+
+Wed, 11 Mar 2026 14:15:19 GMT
+
+https://screenrant.com/shrinking-apple-tv-series-harrison-ford-best-show/
+
+Shrinking on Apple TV+ is a bingeworthy gem with a star-studded cast that sees Star Wars and Indiana Jones icon Harrison Ford at his best.
+---------
+
+# Rick & Morty Season 9 Release Date Officially Confirmed With First Look Revealed
+
+TV, Rick and Morty
+
+Wed, 11 Mar 2026 14:10:44 GMT
+
+https://screenrant.com/rick-and-morty-season-9-release-date-confirmed/
+
+Rick and Morty season 9's release date has finally been revealed, and the fan-favorite sci-fi series will not take long to return with new episodes.
+---------
+
+# Dylan O'Brien's New Sci-fi Dystopian Thriller Bomb Finally Begins Streaming On Hulu This Week After Quiet Theatrical Release
+
+Movies, Anniversary, Dylan O'Brien, Hulu
+
+Wed, 11 Mar 2026 14:07:55 GMT
+
+https://screenrant.com/anniversary-dylan-obrien-hulu-streaming-release-march-2026/
+
+Dylan O'Brien's new sci-fi dystopian thriller movie that bombed at the box office quietly begins streaming on Hulu following its theatrical release.
+---------
+
+# Amy Adams' 8-Part HBO Thriller Series Is Perfect From Start To Finish
+
+TV, Sharp Objects
+
+Wed, 11 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/amy-adams-sharp-objects-hbo-limited-series-masterpiece/
+
+A psychological thriller that keeps viewers on the edge of their seats from start to finish, Amy Adams' HBO show is a must-watch for genre fans.
+---------
+
+# David Fincher's 'The Girl With The Dragon Tattoo': 15 Years Later, No Sequels
+
+Movies, The Girl With the Dragon Tattoo, Op-Ed
+
+Wed, 11 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/girl-with-the-dragon-tattoo-no-sequel-david-fincher-disappointment/
+
+David Fincher's adaptation of The Girl with the Dragon Tattoo remains one of his best movies, yet it tragically never got the sequel it deserved.
+---------
+
+# CBS Reveals NCIS Recast Of 139-Episode Veteran In New Trailer
+
+Network TV
+
+Wed, 11 Mar 2026 13:52:49 GMT
+
+https://screenrant.com/ncis-origins-season-2-episode-11-trailer-dwayne-pride-recast-reveal/
+
+CBS debuts the first-look at a 139-episode veteran character who has officially been recast for a new generation of NCIS storytelling in new trailer.
+---------
+
+# Prime Video's Crime Thriller Scarpetta Rotten Tomatoes Score Unveiled
+
+TV, Scarpetta, Rotten Tomatoes, nicole kidman
+
+Wed, 11 Mar 2026 14:19:34 GMT
+
+https://www.cbr.com/prime-video-scarpetta-rotten-tomatoes-score/
+
+The series is perfect for Bones and Reacher fans, and its rating proves it.
+---------
+
+# Nintendo Switch Online Free for 1-Year in Deal That Ends April 14
+
+Games, Nintendo, Nintendo Switch
+
+Wed, 11 Mar 2026 14:16:12 GMT
+
+https://www.cbr.com/nintendo-switch-online-free-for-1-year-limited-time-deal/
+
+Anyone who buys a new Nintendo Switch 2 can now also get a year of free access to Nintendo Switch Online, but there's a catch.
+---------
+
+# The 8-Year-Old Rihanna Performance That Has Influenced Nicole Kidman's New Scarpetta
+
+CBR Exclusives, nicole kidman, Scarpetta
+
+Wed, 11 Mar 2026 14:07:09 GMT
+
+https://www.cbr.com/rihanna-performance-nicole-kidman-scarpetta/
+
+A Rihanna role helped inspire a character in this new crime thriller.
+---------
+
+# One Sonic Voice Line Still Haunts Ryan Drummond Decades Later
+
+CBR Exclusives, Sonic the Hedgehog
+
+Wed, 11 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/ryan-drummond-sonic-voice-line-still-haunts-him/
+
+It's not the line you're thinking of, either.
+---------
+
+# 10 Underrated X-Men That Fans Must Talk About More
+
+Comics, X-Men
+
+Wed, 11 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/underrated-x-men-runs-that-nobody-talks-about/
+
+The X-Men's history is packed with tons of iconic stories, but these 10 underrated X-Men runs are never talked about, and it's time for that to change
+---------
+
+# How Netflix's 3 Body Problem Raised the Bar for Hard Sci-Fi
+
+TV, 3 Body Problem, Sci-Fi, Netflix
+
+Wed, 11 Mar 2026 13:27:31 GMT
+
+https://www.cbr.com/netflix-3-body-problem-best-hard-sci-fi-streaming-show/
+
+Netflix's 3 Body Problem adapts Liu Cixin's novel into a complex hard sci-fi series that trusts viewers to engage with its scientific concepts.
+---------
+
+# Cyberpunk 2077 Officially Getting New Release On March 17
+
+Games, Cyberpunk 2077
+
+Wed, 11 Mar 2026 13:26:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-official-new-release-march-17/
+
+Cyberpunk 2077's new release seeks to capitalize on how much fans continue to love the original game, and the dystopian world of Night City.
+---------
+
+# 10 Strongest Dragon Ball Super: Beerus Characters, Ranked
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball, Dragon Ball Super, Dragon Ball Z
+
+Wed, 11 Mar 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-strongest-characters-ranked/
+
+Power levels in Dragon Ball Super: Beerus aren't as clear as fans might think.
+---------
+
+# Alien: Earth Creator's 5-Part Crime Drama With 93% RT Becomes a Global Streaming Sensation 2 Years After Last Episode
+
+TV, Fargo
+
+Wed, 11 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/noah-hawley-crime-drama-fargo-hbo-max-global-success-march-2026/
+
+Noah Hawley's hit crime series with the Coen brothers is dominating the streaming charts around the world, and now is the perfect time to watch it.
+---------
+
+# Sean Connery’s Dragonheart Helped Create the Star Wars Prequels
+
+Movies, Fantasy, Dragonheart, Star Wars
+
+Wed, 11 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/sean-connery-dragonheart-helped-create-star-wars-prequel/
+
+Long before the Star Wars prequels, Dragonheart showed George Lucas that CGI characters could carry scenes thanks to Sean Connery’s iconic dragon.
+---------
+
+# 'Rick and Morty' Is Back Sooner Than Expected With Wild First Season 9 Images
+
+TV News, Rick and Morty, Adult Swim, Dan Harmon
+
+Wed, 11 Mar 2026 14:00:12 GMT
+
+https://collider.com/rick-and-morty-season-9-first-images-release-date-adult-swim/
+
+Adult Swim released the first images for Rick and Morty Season 9, teasing more multiversal mayhem and confirming a surprisingly near release date.
+---------
+
+# 'One Piece' Season 2 Star Teases the Fate of an Absent Character From the Original Anime
+
+Interviews, Charithra Chandran, Netflix, One Piece, Fantasy
+
+Wed, 11 Mar 2026 14:00:12 GMT
+
+https://collider.com/one-piece-season-2-charithra-chandran-karoo-fate-anime-interview/
+
+One Piece's Charithra Chandran discusses her character's relationship with the Straw Hats in Season 2 and drops hints about Karoo's whereabouts.
+---------
+
+# Will Ferrell’s New 10-Part Netflix Series Marks a New "Legend" Era in Sports Comedy
+
+TV News, Will Ferrell, Netflix, Talladega Nights: The Ballad of Ricky Bobby, Comedy
+
+Wed, 11 Mar 2026 13:50:54 GMT
+
+https://collider.com/will-ferrell-10-part-netflix-sports-comedy-the-hawk-teaser-release-window/
+
+Actor Will Ferrell is set to return to television with the comedy series The Hawk, where he plays fictional golfer Lonnie Hawkins. Get the details.
+---------
+
+# 'Sinners' Star Delroy Lindo's Most Forgotten Performance Is This 32-Year-Old Spike Lee Gem
+
+Movie Features, Crooklyn, Delroy Lindo, Spike Lee, Alfre Woodard
+
+Wed, 11 Mar 2026 13:32:13 GMT
+
+https://collider.com/delroy-lindo-crooklyn-spike-lee/
+
+Delroy Lindo was phenomenal as a father in 1994’s Crooklyn, Spike Lee’s underseen family film.
+---------
+
+# ‘Shrinking’ Star Luke Tennie Reacts to Episode 7’s Heartbreaking Loss and How It Changes Everything for Sean
+
+Exclusives, Shrinking, Luke Tennie, Abbott Elementary, The Pitt
+
+Wed, 11 Mar 2026 13:00:12 GMT
+
+https://collider.com/shrinking-season-3-episode-7-explained-maya-loss-abbott-elementary-the-pitt-luke-tennie-interview/
+
+Luke Tennie discusses Shrinking, Sean's growth, the impression guest star Sherry Cola made on Season 3, and joining Abbott Elementary and The Pitt.
+---------
+
+# Vampire Movies So Great That They Became the Blueprint
+
+Movie, Vampire, Dracula, Twilight, Blade
+
+Wed, 11 Mar 2026 12:40:13 GMT
+
+https://collider.com/vampire-movies-became-blueprint/
+
+Dracula, Twilight, The Lost Boys, Blade, Nosferatu, and more make up our list of vampire movies so great that they became the blueprint.
+---------
+
+# Prime Video’s 8-Part Sci-Fi Miniseries Does What Most Superhero Movies Won’t
+
+TV Features, Prime Video, The Boys, The Boys Presents: Diabolical, Animation
+
+Wed, 11 Mar 2026 12:33:12 GMT
+
+https://collider.com/the-boys-diabolical-prime-video-superhero-genre-experimentation/
+
+Prime Video’s animated anthology The Boys Presents: Diabolical proves the superhero genre still thrives when creators are allowed to take risks.
+---------
+
+# Blumhouse's Ridiculous 6-Part American Crime Show Is a 10/10 One-Night Binge
+
+TV Features, The Thing About Pam, Blumhouse, Renée Zellweger, Crime
+
+Wed, 11 Mar 2026 12:12:12 GMT
+
+https://collider.com/the-thing-about-pam-true-story-nbc-crime-blumhouse-renee-zellweger/
+
+Renée Zellweger's NBC crime series The Thing About Pam takes on a bizarre true story with a strangely comedic tone.
+---------
+
+# This Oscar-Nominated Movie With 100% on RT Is a Hidden Apple TV Gem
+
+Movie Features, Come See Me in the Good Light, Apple TV, Ryan White, Tig Notaro
+
+Wed, 11 Mar 2026 12:09:12 GMT
+
+https://collider.com/come-see-me-in-the-good-light-documentary-oscars-apple-tv/
+
+Ryan White’s documentary, Come See Me in the Good Light, is a wonderful Oscar-nominated gem on Apple TV.
+---------
+
+# Roger Ebert Hated 'Spice World,' but Audiences Still Love the Camp '90s Classic
+
+Features, Cultural Reassessment, Spice World, Roger Ebert
+
+Wed, 11 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/spice-world-roger-ebert-hated-90s-classic/
+
+The comical and campy 'Spice World' wasn't the best film, but it deserves more love, and it definitely shouldn't be on Roger Ebert's most hated list.
+---------
+
+# 'Michael' Star Sets Record Straight After Paris Jackson Suddenly Distanced Herself From Next Month's Biopic
+
+Movie News, Michael, Colman Domingo, Paris Jackson, michael jackson
+
+Wed, 11 Mar 2026 13:35:23 GMT
+
+https://movieweb.com/michael-biopic-colman-domingo-paris-jackson-conflict/
+
+Colman Domingo has set the record straight on the Michael Jackson biopic conflict that saw Paris Jackson distance herself from the film.
+---------
+
+# Disney Paying Harvey Weinstein Pension in Prison
+
+Movie News, Harvey Weinstein
+
+Wed, 11 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/disney-harvey-weinstein-pension/
+
+Sometimes, not even a guilty verdict is enough to dissolve a contract.
+---------
+
+# 'Avatar: Fire & Ash' Fans: Watch Disney's Trending Sci-Fi 'Predator' Epic
+
+Features, Avatar: Fire and Ash, Predator: Badlands, Disney, Sci-Fi, Comparison Recommendation
+
+Wed, 11 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/avatar-fire-and-ash-sci-fi-epic-predator-badlands/
+
+If more sci-fi worlds like 'Avatar: Fire and Ash's Pandora beckon, then Disney's 95% Rotten Tomatoes rated trending epic is a must-watch.
+---------
+
+# 'Mexicali' Reviews Hail Action Thriller as "One of the Best of the Year"
+
+Movie News, Action, Thriller, Martial Arts
+
+Wed, 11 Mar 2026 12:58:53 GMT
+
+https://movieweb.com/mexicali-reviews-action-best/
+
+First reviews prove rising star Bren Foster is the action hero to watch as he shows off his martial arts skills in Rambo-style throwback.
+---------
+
+# My Final 2026 Oscar Predictions, Including A Chalamet vs. Jordan Upset
+
+Features, The Oscars | Academy Awards, The Academy Awards, One Battle After Another, Sinners, Timothée Chalamet, Michael B. Jordan
+
+Wed, 11 Mar 2026 12:30:17 GMT
+
+https://movieweb.com/oscars-2026-final-predictions/
+
+One Battle vs. Sinners. Timotheé vs. Michael B. Buckley vs. The Bride! Here is who we expect to win big on Oscars night.
+---------
+
+# 'The Texas Chainsaw Massacre' Remake Deserves a Second Chance on Free Streaming
+
+Movie News, The Texas Chainsaw Massacre, Cultural Reassessment, Horror
+
+Wed, 11 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/the-texas-chainsaw-massacre-2003-streaming-tubi-march-2026/
+
+Marcus Nispel's remake of Tobe Hooper's 1974 classic doesn't get enough credit for how it influenced modern horror.
+---------
+
+# When 'Virgin River' Season 7 Releases on Netflix & Full Release Schedule
+
+Features, Virgin River, Netflix
+
+Wed, 11 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/virgin-river-season-7-netflix-release-schedule/
+
+'Virgin River' Season 7 is coming back to Netflix in March 2026, and the drama series stars Martin Henderson and Alexandra Breckenridge.
+---------
+
 # Halo 7 Release Window Has Fans Split As Halo's 25th Anniversary Looms
 
 Gaming, Halo
