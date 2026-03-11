@@ -1,3 +1,256 @@
+# One Piece Fans Hold Key to Joy Boy's Official Design Reveal
+
+Anime, One Piece
+
+Wed, 11 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/one-piece-joyboy-design-reveal-fan-vote/
+
+One Piece 2nd global popularity poll is officially here, giving the fandom a massive chance to uncover Joy Boy's look.
+---------
+
+# HBO's Secret Voldemort Casting Brings J.K. Rowling's Harry Potter Full Circle
+
+Streaming TV, Harry Potter
+
+Wed, 11 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/harry-potter-tv-show-voldemort-casting-secret-full-circle/
+
+HBO is keeping a secret from us in the lead-up to its Harry Potter TV show. Given the nature of JK Rowling's story, the whole thing is rather ironic.
+---------
+
+# John Stamos & Lizzy Caplan's Robbery Thriller Drag Revealed In First-Look Images (Exclusive)
+
+Movies, SXSW, Drag
+
+Wed, 11 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/john-stamos-lizzy-caplan-drag-movie-images-exclusive/
+
+EXCLUSIVE: A robbery takes an unusual turn in first-look images from Drag, a comedic robbery thriller starring John Stamos and Lizzy Caplan.
+---------
+
+# Disney Sequel With Near-Perfect Rotten Tomatoes Score Is A Must-Watch This Week (Now Streaming)
+
+New Movies, Zootopia 2
+
+Wed, 11 Mar 2026 21:20:19 GMT
+
+https://screenrant.com/zootopia-2-streaming-release-disney-plus-recommendation/
+
+A new Disney sequel with a near-perfect Rotten Tomatoes score has finally made its streaming debut, making it a must-watch this week for all.
+---------
+
+# Scarpetta: Prime Video’s New 8-Part Crime Thriller Is Already The Perfect Weekend Binge
+
+Streaming TV, Prime Video, Scarpetta
+
+Wed, 11 Mar 2026 21:12:18 GMT
+
+https://screenrant.com/prime-video-scarpetta-series-must-watch/
+
+Discover the new 8-part crime thriller series Scarpetta, starring Nicole Kidman, now streaming on Prime Video – perfect to binge-watch this weekend.
+---------
+
+# The MCU Officially Cast Its New Iron Fist But Danny Rand Is Still Likely To Return Soon
+
+Superheroes, Marvel Cinematic Universe, Eyes of Wakanda, Daredevil: Born Again
+
+Wed, 11 Mar 2026 21:11:19 GMT
+
+https://screenrant.com/mcu-new-iron-fist-eyes-of-wakanda-finn-jones-return/
+
+Despite the fact that the MCU has officially cast its new Iron Fist, Finn Jones' Danny Rand remains likely to return soon to the Marvel franchise.
+---------
+
+# Stephen King's 11.22.63 Is a Perfect Historical Fiction Mashup
+
+TV, 11.22.63, Stephen King, Sci-Fi
+
+Wed, 11 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/stephen-king-11-22-63-historical-fiction/
+
+Stephen King isn't just a horror master. He's a fantastic sci-fi writer, too, and this historical fiction masterpiece proves it.
+---------
+
+# Predator’s Standalone Stories Revitalize Franchise Success
+
+Movies, Predator: Badlands, Predator
+
+Wed, 11 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/predator-franchise-new-direction/
+
+Predator's new direction, focusing on standalone stories, has revitalized the franchise and restored interest in a once-struggling series.
+---------
+
+# Landman Falls On Paramount+ Streaming Chart
+
+TV, Landman, Paramount Plus, Drama
+
+Wed, 11 Mar 2026 21:37:28 GMT
+
+https://www.cbr.com/landman-drama-success-paramount-plus-march-2026/
+
+One of Paramount+'s most popular shows is nearly off the streaming chart.
+---------
+
+# Shay Mitchell Joins Stephen Amell in Fox's Baywatch Reboot
+
+TV, Baywatch
+
+Wed, 11 Mar 2026 21:24:02 GMT
+
+https://www.cbr.com/baywatch-reboot-shay-mitchell/
+
+Shay Mitchell joins Stephen Amell in the Baywatch reboot series.
+---------
+
+# Jensen Ackles Gives Production Update on The Boys Prequel Ahead of Season 5 Release
+
+TV, The Boys
+
+Wed, 11 Mar 2026 21:22:38 GMT
+
+https://www.cbr.com/jensen-ackles-vought-rising-season-1-filming-wrap/
+
+The update every one of The Boys fans has been waiting on has finally arrived, and just ahead of the original show's final season.
+---------
+
+# 10 Best Fantasy Anime With 10/10 Romance
+
+Anime, Fantasy, Romance, Frieren: Beyond Journey's End
+
+Wed, 11 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/best-fantasy-anime-romances/
+
+Fantasy is one of the most consistently popular genres across fiction, and these anime compliment that genre perfectly with amazing romance.
+---------
+
+# 20 Years Later, the Best 2000s Sitcom Ever Made Finally Returns Next Month
+
+TV News, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Disney+, Sitcom
+
+Wed, 11 Mar 2026 21:51:22 GMT
+
+https://collider.com/malcolm-in-the-middle-lifes-still-unfair-sitcom-revival-release-date-disney-plus-april-10-2026/
+
+Malcolm in the Middle: Life’s Still Unfair premieres April 10 on Disney+, bringing back Frankie Muniz, Bryan Cranston, and more nearly 20 years later.
+---------
+
+# 10 Movies From 1943 That Are Now Considered Classics
+
+Movie, Shadow of a Doubt, Classics, The Life and Death of Colonel Blimp, The More the Merrier
+
+Wed, 11 Mar 2026 21:51:13 GMT
+
+https://collider.com/best-1943-movies-classics/
+
+Shadow of a Doubt, Heaven Can Wait, and The Life and Death of Colonel Blimp are all great movies from the year 1943 that we now consider classics.
+---------
+
+# Apple TV’s Addictive 2-Part Suburban Crime Thriller Returns on April 3
+
+TV News, Jon Hamm, Your Friends & Neighbors, Your Friends and Neighbors, Apple TV
+
+Wed, 11 Mar 2026 21:38:50 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-apple-tv-release-date-april-3-2026/
+
+Apple TV has confirmed that Your Friends & Neighbors Season 2 premieres globally on April 3, with James Marsden joining Jon Hamm for the next chapter.
+---------
+
+# Disney’s New Star Wars Series Begins on April 6
+
+TV News, Darth Maul, Star Wars: Maul - Shadow Lord, Star Wars, Disney+
+
+Wed, 11 Mar 2026 21:30:57 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-disney-plus-release-date-april-6-2026/
+
+Lucasfilm’s new animated series Star Wars: Maul – Shadow Lord begins with a two-episode premiere on Disney+ next month. Get all of the details here!
+---------
+
+# 10 Intense Post-2010 Action Movies That Are Perfect
+
+Movie, Action, One Battle After Another, Mad Max: Fury Road, Black Panther
+
+Wed, 11 Mar 2026 21:30:12 GMT
+
+https://collider.com/perfect-action-movies-post-2010/
+
+The past 15 years have produced some exhilarating modern action classics, including One Battle After Another and Everything Everywhere All at Once.
+---------
+
+# HBO's Most Divisive Series Returns This April After a 4-Year Wait for Season 3
+
+TV News, Euphoria, HBO, Drama, Sydney Sweeney
+
+Wed, 11 Mar 2026 21:26:53 GMT
+
+https://collider.com/euphoria-season-3-hbo-controversial-drama-release-date-april-12-2026/
+
+HBO has confirmed that Euphoria Season 3 premieres on April 12, with Zendaya and most of the main cast returning for the eight-episode new season.
+---------
+
+# Alex Turner Says This Sleeper Hit Arctic Monkeys Song Is the Band’s Greatest and Most Personal Ever Written
+
+Music Features, Music, Arctic Monkeys - At The Apollo, Rock, Billboard Hot 100
+
+Wed, 11 Mar 2026 21:26:39 GMT
+
+https://collider.com/alex-turner-the-arctic-monkeys-greatest-song-505/
+
+Arctic Monkeys frontman Alex Turner has finally opened up about the deeply personal inspiration behind their hit song 505.
+---------
+
+# Sydney Sweeney's Historical Adaptation of a 113-Year-Old Novel Adds 'Downton Abbey' and 'Game of Thrones' Stars
+
+Movie News, Sydney Sweeney, Hugh Dancy, Dominic West, Rose Leslie
+
+Wed, 11 Mar 2026 21:20:25 GMT
+
+https://collider.com/sydney-sweeney-historical-novel-adaptation-custom-of-the-country-cast-matthew-goode-rose-leslie-martha-plimpton-hugh-dancy-dominic-west/
+
+Sydney Sweeney's Gilded Age replacement, The Custom of the Country, has rounded out a huge cast including a Downton Abbey favorite.
+---------
+
+# Tommy Lee Jones Ends 3-Year Acting Hiatus for Season 2 of FX's 'Tulsa King' Competitor
+
+TV News, The Lowdown, Ethan Hawke, Tommy Lee Jones, Hulu
+
+Wed, 11 Mar 2026 21:13:30 GMT
+
+https://collider.com/fx-tulsa-king-replacement-the-lowdown-season-2-cast-tommy-lee-jones/
+
+Ethan Hawke's The Lowdown Season 2 has added the legendary Tommy Lee Jones to the cast, marking his first scripted TV role in 4 decades.
+---------
+
+# Netflix's 'One Piece' Just Set Up 10 Unexpected Season 3 Mysteries
+
+TV, One Piece, Netflix, Anime
+
+Wed, 11 Mar 2026 21:07:14 GMT
+
+https://collider.com/netflix-one-piece-season-3-mysteries/
+
+Netflix's live action adaptation of One Piece just delivered an epic Season 2, laying the foundation for mysteries that need to be solved in Season 3.
+---------
+
+# Taylor Sheridan Star Billy Bob Thornton's Legal Drama 'Goliath' Is a 4-Part Must-Watch Gem
+
+Features, Goliath, Streaming Recommendations
+
+Wed, 11 Mar 2026 21:30:16 GMT
+
+https://movieweb.com/goliath-streaming-march-2026/
+
+Billy Bob Thornton has had a masterful career, but this 4-Season legal drama is an underseen gem that deserves more love.
+---------
+
 # Westworld: HBO's Ambitious Sci-Fi Series That Lost Its Way
 
 Classic TV, Westworld
