@@ -1,3 +1,388 @@
+# Firefly Reboot: Exploring Spinoff Comics & Novels as Potential Storylines
+
+Classic TV, Firefly
+
+Wed, 11 Mar 2026 19:45:19 GMT
+
+https://screenrant.com/firefly-revival-comic-book-sequel-story-exists/
+
+With the year's biggest TV sci-fi news about to drop, it's worth considering exactly what could come from Nathan Fillion's announcement.
+---------
+
+# Colleen Hoover's New Movie Sets Record-High Rotten Tomatoes Score
+
+Movies, Reminders of Him
+
+Wed, 11 Mar 2026 19:42:30 GMT
+
+https://screenrant.com/reminders-of-him-rotten-tomatoes-score/
+
+Colleen Hoover's new movie sets a record-high Rotten Tomatoes score following the two previous film adaptations of the author's bestselling books.
+---------
+
+# Daisy Edgar-Jones’ New Remake Of Kate Winslet’s Classic 31-Year-Old Novel Adaptation Officially Delayed
+
+Movies, Sense and Sensibility, Daisy Edgar-Jones
+
+Wed, 11 Mar 2026 19:30:43 GMT
+
+https://screenrant.com/sense-sensibility-daisy-edgar-jones-october-2026-release-delay/
+
+The release of Daisy Edgar-Jones upcoming adaptation of Jane Austen's classic novel Sense and Sensibility has now been delayed to later 2026 date.
+---------
+
+# Disney’s $3.65 Billion Renaissance Wouldn’t Exist Without Little Shop Of Horros
+
+Classic Movies, Little Shop of Horrors, Disney
+
+Wed, 11 Mar 2026 19:22:19 GMT
+
+https://screenrant.com/little-shop-of-horrors-movie-flop-but-start-disney-renaissance/
+
+Explore the unexpected origins of the Disney Renaissance, tracing its roots back to a campy musical that wilted on screen but led to Menken & Ashman.
+---------
+
+# 10 Best Free Movies On Roku Channel In 2026
+
+Movies, The Roku Channel, Roku, Ranking
+
+Wed, 11 Mar 2026 19:20:19 GMT
+
+https://screenrant.com/2026-roku-movies-best/
+
+Roku offers up some fantastic films on their streaming channel, with animated classics, Oscar-nominated projects, and more available for free.
+---------
+
+# Scarpetta’s Opening Scene Borrows From An Iconic 10/10 Psychological Thriller
+
+TV, Scarpetta, Twin Peaks
+
+Wed, 11 Mar 2026 19:15:20 GMT
+
+https://screenrant.com/scarpetta-show-opening-scene-twin-peaks-similar/
+
+With a body on the train tracks, Scarpetta's grim opening scene echoes a classic TV murder mystery, setting the stage for a twisted tale of its own.
+---------
+
+# Netflix Just Added The Man In The High Castle – One Of The Best Sci-Fi Thriller Series Ever
+
+Streaming TV, Netflix, The Man in the High Castle
+
+Wed, 11 Mar 2026 19:12:18 GMT
+
+https://screenrant.com/netflix-man-in-the-high-castle-series-must-watch/
+
+Discover the critically acclaimed dystopian sci-fi series The Man in the High Castle. It's a must-binge 4-season masterpiece now streaming on Netflix.
+---------
+
+# Pokémon Scorched Silver Is The Johto Sequel We Always Wanted
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 11 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/pokemon-scorched-silver-johto-sequel-rom-hack/
+
+With many fans still citing Johto as the best generation of Pokémon, there's plenty of demand to return to this iconic region.
+---------
+
+# Hannibal Creator Reveals Secret TV Project With Clive Barker Is In The Works
+
+TV, Bryan Fuller, Clive Barker, Horror, Saturn Awards
+
+Wed, 11 Mar 2026 18:51:27 GMT
+
+https://screenrant.com/bryan-fuller-clive-barker-secret-tv-project/
+
+Exclusive: Hannibal creator Bryan Fuller reveals he has a "dream-come-true" secret TV project in the works with horror author Clive Barker.
+---------
+
+# Jessie Buckley's Versatile Acting Dominates Cinema In The 2020s
+
+Movies, Jessie Buckley, Op-Ed
+
+Wed, 11 Mar 2026 18:31:19 GMT
+
+https://screenrant.com/jessie-buckley-great-versatile-performances-2020s-decade/
+
+Jessie Buckley is expected to win the Best Actress Oscar in 2026, yet her entire decade so far is filled with great and versatile performances.
+---------
+
+# The Long Riders Bank Scene Is Still the Greatest Shootout in Movie History
+
+Movies, The Long Riders, Western
+
+Wed, 11 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/the-long-riders-greatest-western-shootout-movie-history/
+
+This bank robbery scene is a masterclass in practical stunt work and choreography that revived the Western genre for a new era.
+---------
+
+# Clint Eastwood's Gran Torino Resurfaces on Streaming Charts
+
+Movies, Clint Eastwood, Gran Torino
+
+Wed, 11 Mar 2026 19:19:56 GMT
+
+https://www.cbr.com/clint-eastwood-gran-torino-streaming-success-march-2026/
+
+Clint Eastwood's most powerful movie is making a resurgence almost two decades after its release.
+---------
+
+# Daniel Radcliffe Gives Honest Feedback on The Devil Wears Prada Harry Potter Scene: 'Good Luck'
+
+Movies, Harry Potter, The Devil Wears Prada, Daniel Radcliffe
+
+Wed, 11 Mar 2026 19:01:37 GMT
+
+https://www.cbr.com/daniel-radcliffe-feedback-the-devil-wears-prada-harry-potter-scene/
+
+The cult classic comedy was praised for its accurate fashion approach, but one scene was deemed impossible by Daniel Radcliffe.
+---------
+
+# 6 Spider-Man Comic Stories That May Define Tom Holland’s Next MCU Trilogy
+
+Movies, Spider-Man: Brand New Day, MCU, superheroes
+
+Wed, 11 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/spider-man-comic-stories-define-tom-holland-mcu-trilogy-list/
+
+Tom Holland's Spider-Man kicks off a new era with Brand New Day, and these epic comic stories will define his next trilogy.
+---------
+
+# One Piece Celebrates New Netflix Release With 17-Piece Capsule Collection
+
+Anime, One Piece, Netflix
+
+Wed, 11 Mar 2026 18:51:51 GMT
+
+https://www.cbr.com/netflix-one-piece-season-2-capsule-collection/
+
+A new 17-piece capsule collection featuring Sanji actor Taz Skylar is being released in the U.S. following the Season 2 launch of Netflix's One Piece.
+---------
+
+# 1 of the Most Perfect Superhero Movies, Spider-Man 2, Is Swinging Up the Charts 22 Years Later
+
+Movies, superheroes, MCU, Marvel, Spider-Man, Spider-Man 2
+
+Wed, 11 Mar 2026 18:41:02 GMT
+
+https://www.cbr.com/tobey-maguire-perfect-superhero-spider-man-2-streaming-success-hbo-max-march-2026/
+
+It is hands-down one of the most perfect films in the history of the superhero genre and, two decades later, it's climbing the charts yet again.
+---------
+
+# MTG Card Featuring FF 15 Character Has Skyrocketed In Value
+
+Games, Magic: The Gathering, Final Fantasy
+
+Wed, 11 Mar 2026 18:25:12 GMT
+
+https://www.cbr.com/ff-mtg-card-flash-photography-value-price/
+
+A Magic: The Gathering card featuring Prompto from Final Fantasy 15 has suddenly skyrocketed in value, shocking anyone who purchased it in the past.
+---------
+
+# Rick and Morty Sets Season 9 Release Date & Promises 'No AI Slop'
+
+TV, Rick and Morty
+
+Wed, 11 Mar 2026 18:12:51 GMT
+
+https://www.cbr.com/rick-and-morty-season-9-release-date/
+
+Rick and Morty finally sets a return date for Season 9 with a promise to avoid "AI slop."
+---------
+
+# Rebecca Ferguson's Silo Season 3 Release Window
+
+TV, Silo
+
+Wed, 11 Mar 2026 18:09:42 GMT
+
+https://www.cbr.com/rebecca-ferguson-silo-season-3-release-window/
+
+The series has been one of the most beloved Apple TV shows, and it's set to return with Season 3 soon.
+---------
+
+# Event Horizon Sequel Shocks With an Unexpected Connection to the 27-Year-Old Sci-Fi Thriller
+
+Comics, Event Horizon
+
+Wed, 11 Mar 2026 18:08:15 GMT
+
+https://www.cbr.com/event-horizon-sequel-connections-thriller-advance-review/
+
+In a CBR advance review of Event Horizon: Inferno #1, learn how well the sequel series connects with the original cult classic sci-fi film
+---------
+
+# Best Adapted Screenplay Nominees at the 2026 Oscars, Ranked
+
+Movie, Oscars, One Battle After Another, Hamnet, Frankenstein
+
+Wed, 11 Mar 2026 19:36:12 GMT
+
+https://collider.com/oscars-2026-best-adapted-screenplay-nominees-ranked/
+
+Bugonia, Frankenstein, Hamnet, One Battle After Another, and Train Dreams are the 2026 Oscar nominees for Best Adapted Screenplay; which is the best?
+---------
+
+# Taylor Sheridan's Failed Franchise-Starter With a 'Sinners' Favorite Is a Free Streaming Smash
+
+Movie News, Michael B. Jordan, Taylor Sheridan, Prime Video, Without Remorse
+
+Wed, 11 Mar 2026 19:04:35 GMT
+
+https://collider.com/michael-b-jordan-taylor-sheridan-jack-ryan-replacement-without-remorse-streaming-success-tubi-march-2026/
+
+Michael B. Jordan's forgotten franchise-starter, Without Remorse, written by Taylor Sheridan, is having a streaming resurgence. Find out more.
+---------
+
+# This 5-Part 10/10 Sci-Fi Series Has No Bad Episodes
+
+TV Features, Fringe, J.J. Abrams, Anna Torv, Joshua Jackson
+
+Wed, 11 Mar 2026 19:00:12 GMT
+
+https://collider.com/fringe-5-seasons-sci-fi-no-bad-episodes/
+
+Fringe follows the FBI team tasked with investigating The Pattern, a series of inexplicable events that take place in the world of fringe science.
+---------
+
+# 10 Best Years in Cinema History, Ranked
+
+Movie, Pulp Fiction, Gone with the Wind, Parasite, Fight Club
+
+Wed, 11 Mar 2026 18:51:12 GMT
+
+https://collider.com/best-years-cinema-history-ranked/
+
+Even though good movies come out every year, some years from cinema history stand out as being especially great, including 1994, 1939, and 1927.
+---------
+
+# Prime Video's Divisive 2-Part 'True Detective' Successor Refuses To Let Go on Streaming
+
+TV News, Cross, Prime Video, True Detective, Crime
+
+Wed, 11 Mar 2026 18:40:17 GMT
+
+https://collider.com/cross-season-2-prime-video-reacher-replacement-crime-series-streaming-success-march-2026/
+
+As Scarpetta officially debuts on Prime Video, the streamer's hit crime thriller Cross refuses to back down on the charts.
+---------
+
+# Creator of One of the Best Sci-Fi Series Ever Returns to TV After Hulu Permanently Removed Series
+
+TV News, Y: The Last Man, Hulu, Sci-Fi, Animal Kingdom
+
+Wed, 11 Mar 2026 18:34:27 GMT
+
+https://collider.com/y-the-last-man-sci-fi-series-creator-eliza-clark-hulu-drama-durango/
+
+5 years after Hulu pulled the plug on Y: The Last Man, creator Eliza Clark is reteaming with the streamer for a gripping new series.
+---------
+
+# George R.R. Martin's Smash-Hit Neo-Western Adds a 'Terminal List' Star for Season 5
+
+TV News, Dark Winds, George R.R. Martin, Chris Pratt, The Terminal List
+
+Wed, 11 Mar 2026 18:20:18 GMT
+
+https://collider.com/dark-winds-season-5-cast-terminal-list-star-martin-sensmeir/
+
+Dark Winds Season 5 continues to round out its cast with the addition of Chris Pratt's Terminal List co-star, Martin Sensmeir.
+---------
+
+# MCU Star Finally Breaks His Silence on Those 'Harry Potter' Voldemort Reports
+
+TV News, Harry Potter, MCU, Paul Bettany, HBO
+
+Wed, 11 Mar 2026 18:11:21 GMT
+
+https://collider.com/mcu-star-paul-bettany-hbo-harry-potter-series-voldemort-rumors-response/
+
+MCU star Paul Bettany has addressed the rumors of him joining the new Harry Potter series as Voldemort after Cillian Murphy denied his own casting.
+---------
+
+# 'Power Ballad' Trailer: First Look at Paul Rudd & Nick Jonas Musical Comedy
+
+Movie News, Power Ballad, Paul Rudd, Nick Jonas, Comedy
+
+Wed, 11 Mar 2026 19:30:48 GMT
+
+https://movieweb.com/power-ballad-trailer/
+
+Lionsgate has unveiled the first trailer for John Carney's musical comedy 'Power Ballad,' which sees Paul Rudd and Nick Jonas battle for a hit song.
+---------
+
+# 'The Bell Jar' Adaptation Casts Billie Eilish, Sarah Polley Directing
+
+Movie News, Billie Eilish, Sarah Polley
+
+Wed, 11 Mar 2026 19:20:31 GMT
+
+https://movieweb.com/billie-eilish-the-bell-jar-movie/
+
+The upcoming adaptation would mark only the second successful attempt at reviving the book, after multiple projects stagnated.
+---------
+
+# 'Showgirls' Star Gina Gershon Was "Offended" by Controversial Scene
+
+Movies, Showgirls, Gina Gershon
+
+Wed, 11 Mar 2026 19:10:10 GMT
+
+https://movieweb.com/showgirls-gina-gershon-offensive-scene/
+
+The actress was so shocked by a scene involving Nomi's roommate Molly that she asked the director to cut it.
+---------
+
+# Roger Ebert Was Wrong About This Sam Raimi-Produced Horror Movie
+
+Features, Roger Ebert, Sam Raimi, The Grudge, Quote
+
+Wed, 11 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/roger-ebert-the-grudge-sam-raimi/
+
+Roger Ebert hated 'The Grudge', produced by Sam Raimi, but this was one of his many misses.
+---------
+
+# 'Star Trek: Strange New Worlds' Spin-Off 'Year One' Fate Up to Paramount
+
+TV News, Star Trek: Strange New Worlds, Star Trek
+
+Wed, 11 Mar 2026 18:56:52 GMT
+
+https://movieweb.com/star-trek-year-one-update/
+
+'Star Trek: Strange New Worlds' co-showrunner Henry Alonso Myers reveals they have pitched 'Star Trek: Year One' to Paramount.
+---------
+
+# Ma Dong-seok Action Movies That Are a Genre in Itself
+
+Movie Lists, Action, Dong-seok Ma
+
+Wed, 11 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/ma-dong-seok-action-movies/
+
+Action movies featuring Korean star Ma Dong-seok often come hand-in-hand with an entertaining mix of drama, comedy, and power-packed fight sequences.
+---------
+
+# 'Hokum' Trailer Reveals New Adam Scott Horror From 'Oddity' Director
+
+Movie News, Hokum, Horror, Adam Scott
+
+Wed, 11 Mar 2026 17:40:47 GMT
+
+https://movieweb.com/hokum-movie-first-trailer/
+
+Scott trades the laughs for a bit of intense 'Hokum' in the new horror trailer that sees an author checking into a haunted hotel.
+---------
+
 # Denzel Washington's Upcoming Netflix Historical Epic Gets Major New Production Update
 
 Movies, Denzel Washington
