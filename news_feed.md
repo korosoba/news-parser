@@ -1,3 +1,245 @@
+# 7 Most Shocking Reveals In Netflix’s The TikTok Killer
+
+Streaming TV
+
+Wed, 11 Mar 2026 23:31:19 GMT
+
+https://screenrant.com/urlthe-tiktok-killer-netflix-documentary-reveals/
+
+Netflix’s latest true crime documentary, The TikTok Killer, depicts the brutal murder of Esther Estepa and reveals some shocking details.
+---------
+
+# Undertone Proves Just How Important This 1 Film Trick Is To Effective Horror
+
+Movies, undertone
+
+Wed, 11 Mar 2026 23:21:19 GMT
+
+https://screenrant.com/undertone-horror-audio-design-op-ed/
+
+Undertone's best attributes as a horror film rely on an often overlooked aspect of the filmmaking process to unnerve audiences in clever ways.
+---------
+
+# How Shrinking Season 3’s Heartbreaking Loss Will “Alter The Entire Course” Of The Show Explained By Star
+
+TV, Shrinking, Shrinking - Season 3
+
+Wed, 11 Mar 2026 23:16:36 GMT
+
+https://screenrant.com/shrinking-season-3-episode-7-maya-loss-impact-luke-tennie-response/
+
+Shrinking season 3, episode 7 ends with a shocking and heartbreaking loss, and Luke Tennie explains what it means for the show's future.
+---------
+
+# One Piece's Creator Quietly Confirmed the Live-Action Series Won't Last Forever
+
+Anime, One Piece, Netflix
+
+Wed, 11 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/one-piece-oda-confirms-netflix-series-end-point/
+
+Eiichiro Oda has planned the live-action series until a certain point, as confirmed by the cast.
+---------
+
+# Taylor Sheridan Retcons John Dutton's 'Train Station' In Yellowstone Spinoff Marshals
+
+Network TV, Marshals, Yellowstone
+
+Wed, 11 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/marshals-yellowstone-zone-of-death-john-dutton-retcon/
+
+Taylor Sheridan just redefined one of Yellowstone's darkest recurring storylines, bringing John Dutton's crimes closer to the real world.
+---------
+
+# After 23 Years, The Nostalgic MapleStory Classic World Opens Beta Test Signups
+
+Gaming, PC, Triple-A Games
+
+Wed, 11 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/maple-story-classic-launch-details/
+
+This classic 2003 multiplayer game is making a nostalgic return, designed to look just like it used to—and you can sign up for the beta now.
+---------
+
+# Alien: Romulus Sequel Eyes Michael Sarnoski to Direct
+
+Movies, Alien: Romulus
+
+Wed, 11 Mar 2026 23:35:22 GMT
+
+https://www.cbr.com/alien-romulus-sequel-michael-sarnoski/
+
+The Alien: Romulus sequel reportedly has one name at the top of the list for director.
+---------
+
+# Gundam Revives Traditional Japanese Art 250 Years Later in New Gunpla Collection
+
+Anime, Mobile Suit Gundam, merchandise, toys, bandai
+
+Wed, 11 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/gundam-ukiyo-e-bandai-gunpla-collection/
+
+A new trio of easy-to-construct Mobile Suit Gundam model kits combines classic giant mecha designs with Edo-period Ukiyo-e artwork.
+---------
+
+# Star Wars: Edge of the Abyss Novel Explores Andor's Galactic Empire Era
+
+TV, Star Wars, Andor, Sci-Fi
+
+Wed, 11 Mar 2026 23:14:50 GMT
+
+https://www.cbr.com/star-wars-reign-of-empire-edge-of-the-abyss-andor-prequel-luthen-kleya/
+
+Rebecca Roanhorse's Star Wars: Reign of the Empire - Edge of the Abyss novel delves into the early days of the Galactic Empire.
+---------
+
+# Stephen King's The Running Man Is Finally Running Out of Steam, Losing No. 1
+
+Movies, The Running Man
+
+Wed, 11 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/stephen-king-the-running-man-sci-fi-paramount-plus-running-out-of-fuel-march-2026/
+
+The sci-fi film flopped in theaters but dominated the charts since its release on digital and streaming.
+---------
+
+# Hollywood Is Reviving G.I. Joe — These 8 Toy Franchises Should Be Next
+
+Movies, G.I. Joe, M.A.S.K.
+
+Wed, 11 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/toy-franchises-need-movies-after-gi-joe-list/
+
+Paramount is rebooting G.I. Joe, and with this comes the chance for similar movie reimaginings of classic 1980s and 1990s toy and cartoon brands.
+---------
+
+# HBO's Mare of Easttown Shows Broadchurch How It's Done
+
+TV, Mare of Easttown, Thriller, Mystery, hbo
+
+Wed, 11 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/hbo-mare-of-easttown-broadchurch-comparison/
+
+This HBO series understands that the journey of the characters is just as important as the case.
+---------
+
+# 3 Years Later, Idris Elba's Most Legendary Character Is Officially Back With First Images
+
+Movie News, Idris Elba, Netflix, Luther, Luther: The Fallen Sun
+
+Wed, 11 Mar 2026 23:45:38 GMT
+
+https://collider.com/idris-elba-british-detective-luther-movie-sequel-netflix-first-look-images/
+
+The first-look images at Idris Elba on the set of his John Luther sequel have surfaced online, confirming the film is now in production.
+---------
+
+# Before Thanos, Josh Brolin Was a Terrifying Villain in This 2005 Thriller Now Streaming for Free
+
+Movie News, Josh Brolin, Into the Blue, Paul Walker, Jessica Alba
+
+Wed, 11 Mar 2026 23:35:47 GMT
+
+https://collider.com/josh-brolin-thriller-into-the-blue-free-streaming-tubi-pluto-march-2026/
+
+Into the Blue, the 2005 underwater heist thriller starring Paul Walker, Jessica Alba, and Josh Brolin, is now streaming free on both Tubi & Pluto TV.
+---------
+
+# 7 Mystery Shows Where Every Episode Is 10/10, No Notes
+
+TV, Mystery, Twin Peaks, Lost, Sherlock
+
+Wed, 11 Mar 2026 23:26:12 GMT
+
+https://collider.com/mystery-shows-every-episode-perfect/
+
+Twin Peaks, Sherlock, and Lost are among the masterful mystery TV shows that keep every episode unpredictable and impossible to stop watching.
+---------
+
+# 'Avengers: Doomsday' Will Be So Much More Than a "Cameo Fest" Says MCU Star
+
+Movie News, Thunderbolts*, Avengers: Doomsday, Lewis Pullman, MCU
+
+Wed, 11 Mar 2026 23:25:49 GMT
+
+https://collider.com/avengers-doomsday-marvel-cameo-concerns-response-thunderbolts-star-lewis-pullman/
+
+Lewis Pullman says Avengers: Doomsday will not be a “cameo fest,” teasing that the Russo brothers are making sure every character gets a big moment.
+---------
+
+# 'Parks and Rec' Nearly Lost Its Best Character 17 Years Ago Because the Actor Was Too "Weird" and "Intense"
+
+TV Features, Parks and Recreation, Nick Offerman, Sitcom, NBC
+
+Wed, 11 Mar 2026 23:18:12 GMT
+
+https://collider.com/parks-and-rec-ron-swanson-best-character-nick-offerman-casting/
+
+Parks and Recreation's standout character, Ron Swanson, nearly didn't happen because of NBC's doubts about Nick Offerman's acting approach.
+---------
+
+# After 2 Hit Seasons, 'Landman' Fans Will Never Guess Billy Bob Thornton's Favorite Scene
+
+TV News, Landman, Paramount Plus, Billy Bob Thornton, Taylor Sheridan
+
+Wed, 11 Mar 2026 23:11:35 GMT
+
+https://collider.com/landman-billy-bob-thornton-favorite-scene-season-2-cooper-taylor-sheridan-series/
+
+Billy Bob Thornton has revealed his favorite scene in Taylor Sheridan's smash-hit series, Landman, and fans may be surprised by his answer.
+---------
+
+# 10 Perfect Double Features To Watch With 'Sinners'
+
+Movie, Sinners, From Dusk Till Dawn, Us, Candyman
+
+Wed, 11 Mar 2026 23:11:12 GMT
+
+https://collider.com/sinners-double-features/
+
+Creed, Black Panther, Us, Candyman, 30 Days of Night, and more make up our list of the best double features to watch with Sinners.
+---------
+
+# Taylor Sheridan Fans May Need To Be Patient for 'Landman' Season 3
+
+TV News, Landman, Michelle Randolph, Taylor Sheridan, Paramount Plus
+
+Wed, 11 Mar 2026 22:58:47 GMT
+
+https://collider.com/taylor-sheridan-landman-season-3-uncertain-update-michelle-randolph/
+
+Landman star Michelle Randolph has given a disappointing update on the Taylor Sheridan show's third season, hinting it still might be a while.
+---------
+
+# Cobie Smulders Would Return to the MCU "In a Heartbeat" After Disappointing Exit
+
+Movie News, Cobie Smulders, MCU, Secret Invasion
+
+Wed, 11 Mar 2026 23:09:57 GMT
+
+https://movieweb.com/cobie-smulders-mcu-return-maria-hill/
+
+Fans said goodbye to Maria Hill in 'Secret Invasion,' but Smulders might not be done with the character just yet.
+---------
+
+# 10 Timeless Sitcoms That Get Better Every Time You Rewatch Them
+
+TV Lists, Schitt's Creek
+
+Wed, 11 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/timeless-sitcoms-improve-rewatch/
+
+From 'Brooklyn Nine-Nine' to 'Cheers,' these popular sitcoms are even more interesting, smart, and funny the more that you rewatch them.
+---------
+
 # Netflix's 6-Part Spy Thriller Series With Near-Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
 
 TV, Netflix, Black Doves
