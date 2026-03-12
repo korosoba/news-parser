@@ -1,3 +1,245 @@
+# The Lighting Strike That Saves Luffy In One Piece Season 2 Isn't An Accident
+
+Streaming TV, One Piece
+
+Thu, 12 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/one-piece-season-2-luffy-saved-lightning-dragon-explaned/
+
+Luffy is saved by a seemingly coincidental lightning strike in a climactic scene of One Piece season 2, though this may have been intentional.
+---------
+
+# Halo: Parasite's Wake Is An Official New Prequel Coming This Year
+
+Gaming, Halo
+
+Thu, 12 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/halo-parasites-wake-september-2026-release-date/
+
+The history of the Halo franchise is expanding before the release of Halo: Campaign Evolved, adding more context to the first game in the series.
+---------
+
+# HBO’s Underrated 8-Part Crime Thriller 'Duster' Is The Perfect Weekend Binge
+
+Streaming TV, HBO, Duster
+
+Thu, 12 Mar 2026 22:48:19 GMT
+
+https://screenrant.com/hbo-duster-thriller-series-weekend-binge/
+
+HBO's most underrated 8-part crime thriller, Duster, is a stylish throwback with a star-studded cast. Perfect for a weekend binge-watch on HBO Max.
+---------
+
+# Prime Video's 8-Part Cyberpunk Series Is The Perfect Weekend Binge
+
+TV, Prime Video, The Peripheral
+
+Thu, 12 Mar 2026 22:33:45 GMT
+
+https://screenrant.com/the-peripheral-prime-video-sci-fi-series-must-watch/
+
+One of Prime Video's most interesting TV shows is this 8-part cyberpunk sci-fi series that hails from a beloved author of the genre and is intense.
+---------
+
+# Bob Odenkirk's Nobody 2 On Netflix: The Perfect Companion To Better Call Saul
+
+Movies, Better Call Saul
+
+Thu, 12 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/nobody-2-bob-odenkik-better-call-saul-replacement-netflix/
+
+Better Call Saul might have been Bob Odenkirk's first foray into gritty crime drama, but this role picks up where Jimmy McGill left off.
+---------
+
+# One Piece Just Hinted Season 3 is Coming Sooner Than Fans Thought
+
+Anime, One Piece, Netflix
+
+Thu, 12 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/one-piece-season-3-release-sooner-fans-think/
+
+At long last, Season 2 of One Piece is here. Fans only want more, and luckily Season 3 may not take as long as Season 2 did to release.
+---------
+
+# Virgin River Finally Brings A 4-Year-Old Storyline To A Close With A Concerning Twist
+
+Streaming TV, Virgin River
+
+Thu, 12 Mar 2026 22:15:18 GMT
+
+https://screenrant.com/virgin-river-jack-mel-baby-congenital-heart-defect/
+
+After four years, Virgin River season 7 wraps up one of the longest-running storylines, but it comes with a concerning twist that will shape season 8.
+---------
+
+# Netflix's The Lincoln Lawyer Remains Streaming's No. 1 Show
+
+TV, The Lincoln Lawyer
+
+Thu, 12 Mar 2026 23:01:25 GMT
+
+https://www.cbr.com/netflix-the-lincoln-lawyer-season-4-streaming-success/
+
+Netflix is dominating the streaming charts and it's not even close.
+---------
+
+# Criminal Minds Becomes a Hit on Paramount+ in the US Ahead of Season 19
+
+TV, Criminal Minds, Crime, Paramount Plus
+
+Thu, 12 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/criminal-minds-crime-procedural-paramount-success-march-2026/
+
+Criminal Minds becomes a hit on Paramount+ in the U.S. ahead of its highly anticipated return with Season 19.
+---------
+
+# Parks & Rec's Greatest Scene Is Still the Funniest 4 Minutes in Sitcom History
+
+TV, Parks and Recreation, Comedy, NBC
+
+Thu, 12 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/parks-and-rec-ice-rink-scene-funniest-4-minutes-sitcom-history/
+
+Parks and Recreation became a fan favorite series quickly, but one episode in particular has the funniest scene in sitcom history.
+---------
+
+# 90-Minute Action Movies Every Predator Fan Should Watch
+
+Movies, Action, Predator, Nobody
+
+Thu, 12 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/90-minute-action-movie-predator-fan-watch-list/
+
+In 1987, Predator set the gold-standard for tight action movies, and there are plenty of brilliant films of the genre that are short and sweet.
+---------
+
+# 10 Most Perfect Games Released Since 2000, Ranked
+
+Games, Video Games, Bloodborne
+
+Thu, 12 Mar 2026 22:45:11 GMT
+
+https://www.cbr.com/most-perfect-games-since-2000-ranked/
+
+The greatest games of the 21st century give retro classics some serious competition.
+---------
+
+# Jared Padalecki's New Netflix Movie Gets Exciting Update
+
+Movies, Guarding Stars, Jared Padalecki
+
+Thu, 12 Mar 2026 22:36:36 GMT
+
+https://www.cbr.com/guarding-stars-netflix-jared-padalecki-wrap-filming/
+
+Jared Padalecki drops an exciting update on his upcoming Netflix movie.
+---------
+
+# Gaming in the '90s: The Nintendo Power Awards
+
+Games, Gaming in the '90s, retro games
+
+Thu, 12 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/gaming-in-the-90s-nintendo-power-awards/
+
+The Nintendo Power Awards were one of the best parts of gaming in the '90s.
+---------
+
+# Universal Pictures Makes Bold Move That Puts It at Odds With Netflix
+
+Movies, universal pictures
+
+Thu, 12 Mar 2026 22:02:43 GMT
+
+https://www.cbr.com/universal-pictures-theatrical-windows-2026/
+
+This can be good or bad news depending on how one feels about the state of the feature film industry.
+---------
+
+# 'Fallout' Icon's 6-Part Crime Thriller Takes a Stab at Streaming Success
+
+TV News, Sweetpea, Fallout, Ella Purnell, Prime Video
+
+Thu, 12 Mar 2026 22:57:13 GMT
+
+https://collider.com/sweetpea-fallout-star-ella-purnell-british-dark-comedy-streaming-success-prime-video-march-2026/
+
+Fallout star Ella Purnell's British dark comedy series Sweetpea is a global streaming hit on Prime Video. Find out more.
+---------
+
+# 20 Years Later, These Are the Best Movies of 2026
+
+Movie, The Departed, Casino Royale, Miami Vice, The Wind That Shakes the Barley
+
+Thu, 12 Mar 2026 22:55:12 GMT
+
+https://collider.com/best-movies-2006/
+
+The Departed, Children of Men, and Casino Royale are all among the absolute best movies from 2006.
+---------
+
+# 2024's Overlooked Thriller From a Taylor Sheridan Director Finds Success on HBO Max
+
+Movie News, Relay, Riz Ahmed, Lily James, Taylor Sheridan
+
+Thu, 12 Mar 2026 22:42:08 GMT
+
+https://collider.com/taylor-sheridan-best-movie-hell-or-high-water-director-david-mackenzie-relay-streaming-success-hbo-max-march-2026/
+
+The director of Taylor Sheridan's Hell or High Water just delivered a major streaming hit starring Lily James and Riz Ahmed. Find out more.
+---------
+
+# All 3 'Reacher' Seasons, Ranked
+
+TV, Reacher, Jack Reacher, Alan Ritchson, Prime Video
+
+Thu, 12 Mar 2026 22:24:13 GMT
+
+https://collider.com/reacher-tv-show-seasons-ranked/
+
+From small-town mystery to globe spanning chaos, we've definitively ranked every season of Alan Ritchson's Reacher from worst to best.
+---------
+
+# 5 Years Before 'War Machine', Alan Ritchson Made His Own Cyberpunk Thriller With a Perfect Role for Himself
+
+Movie, Dark Web: Cicada 3301, Alan Ritchson, War Machine, Reacher
+
+Thu, 12 Mar 2026 22:09:12 GMT
+
+https://collider.com/alan-ritchson-war-machine-dark-web-cicada-3301-cyberpunk-thriller-perfect-role/
+
+Netflix’s sci-fi hit War Machine isn’t Alan Ritchson’s first techno thriller, as he also directed 2021’s internet thriller Dark Web: Cicada 3301.
+---------
+
+# 10 Forgotten '90s Movies That Have Aged Like Fine Wine
+
+Movie, Drive, A Fistful of Fingers, Industrial Symphony No. 1: The Dream of the Brokenhearted, Wing Chun
+
+Thu, 12 Mar 2026 22:09:12 GMT
+
+https://collider.com/forgotten-90s-movies-aged-like-fine-wine/
+
+Of the many movies from the '90s that have been largely forgotten, a few have aged like fine wine, including the likes of Drive and Wing Chun.
+---------
+
+# Ridley Scott's Flawless 1979 Sci-Fi Debut Screams Loud and Clear on Streaming
+
+Movie News, Ridley Scott, Alien, HBO Max
+
+Thu, 12 Mar 2026 22:08:45 GMT
+
+https://collider.com/ridley-scott-first-sci-fi-masterpiece-alien-streaming-success-hbo-max-march-2026/
+
+Ridley Scott's groundbreaking sci-fi film Alien continues to stand the test of time, garnering attention on streaming globally to become a silent hit.
+---------
+
 # The Gates Review: Mason Gooding & James Van Der Beek's Bad Night Is Aggressively Dull
 
 Movies, The Gates
