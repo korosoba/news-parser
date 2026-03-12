@@ -1,3 +1,366 @@
+# 10 Perfect K-Dramas Streaming Now on Netflix
+
+Anime, K-Drama
+
+Thu, 12 Mar 2026 04:08:05 GMT
+
+https://screenrant.com/perfect-k-drama-streaming-netflix/
+
+Discover the top 10 K-dramas streaming on Netflix, perfect for beginners, from thrilling survival stories to heartfelt rom-coms
+---------
+
+# Gojo's 10 Best Jujutsu Kaisen Quotes, Ranked
+
+Anime, Jujutsu Kaisen
+
+Thu, 12 Mar 2026 04:00:25 GMT
+
+https://screenrant.com/best-gojo-satoru-quotes-in-jujutsu-kaisen-anime-manga/
+
+Never at a loss for words, Jujutsu Kaisen's Gojo had an exceptional gift of gab. It wasn't all braggadocio, though, much was quite profound.
+---------
+
+# Guy Ritchie’s In The Grey Redeems His Henry Cavill & Jake Gyllenhaal Movies
+
+Movies, Guy Ritchie, Jake Gyllenhaal, Henry Cavill, In the Grey, The Ministry of Ungentlemanly Warfare, The Man From U.N.C.L.E.
+
+Thu, 12 Mar 2026 03:45:32 GMT
+
+https://screenrant.com/guy-ritchie-henry-cavill-jake-gyllenhaal-in-the-grey/
+
+Guy Ritchie’s upcoming action thriller movie with Henry Cavill and Jake Gyllenhaal has the potential to make up for his three box office failures.
+---------
+
+# Naruto's Next Anime Will Confirm the Series' True Strongest Uchiha Isn't Who Fans Thought
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 12 Mar 2026 03:30:27 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-strongest-uchiha-sarada/
+
+Naruto's recent sequel anime ended in 2023, but with plans for Part 2 on the horizon, it looks like Sarada Uchiha is setting the record straight.
+---------
+
+# The DCU’s First Green Lantern Just Got A New Costume & Title
+
+Comics, Green Lantern, DC Comics, Lanterns
+
+Thu, 12 Mar 2026 03:10:43 GMT
+
+https://screenrant.com/dcu-green-lantern-guy-gardner-new-costume-title-allsight/
+
+Guy Gardner, the DCU's debut Green Lantern, just got a brand-new costume and title ahead of his next live-action appearance in Lanterns.
+---------
+
+# Reacher’s Neagley Spinoff Avoids Ballard’s Lost Bosch Opportunity
+
+Streaming TV, Bosch, Reacher, Neagley, Ballard, Titus Welliver
+
+Thu, 12 Mar 2026 03:00:19 GMT
+
+https://screenrant.com/bosch-ballard-mistake-reacher-neagley-avoids/
+
+As exciting as Titus Welliver’s return as Harry Bosch in Ballard may seem, it reveals one lost opportunity Reacher’s Neagley spinoff is not missing.
+---------
+
+# Star Trek Generations: Picard's Rescue In Deleted Scene Ignores Kirk's Death
+
+Movies, Star Trek, Star Trek: Generations
+
+Thu, 12 Mar 2026 02:54:47 GMT
+
+https://screenrant.com/picards-48-rt-star-trek-movie-awkwardly-ignores-kirks-death-in-deleted-scene/
+
+Star Trek Generations cut a scene where Captain Picard was rescued from Veridian III, and it was for the best after Kirk gets totally ignored.
+---------
+
+# Reacher Season 4 Release Window & Neagley Spinoff’s Importance Confirmed
+
+Streaming TV, Reacher
+
+Thu, 12 Mar 2026 01:30:19 GMT
+
+https://screenrant.com/reacher-season-4-release-neagley-important/
+
+Reacher season 4 has gotten a new release update, which seems to establish that its Neagley spinoff is far more important than it previously seemed.
+---------
+
+# Netflix’s Upcoming Movie Based On A Bestselling Book Features The Most Meta Casting
+
+Movies, Remarkably Bright Creatures, Spider-Man 2
+
+Thu, 12 Mar 2026 01:03:31 GMT
+
+https://screenrant.com/netflix-remarkably-bright-creatures-alfred-molina-doc-ock-marcellus/
+
+Netflix finally announced who will play Marcellus the Octopus in Remarkably Bright Things, and the casting is both perfect and hilariously meta.
+---------
+
+# Resident Evil 4 Remake: All Lake Door Puzzle Solutions
+
+Gaming, Resident Evil 4, PC, Resident Evil, Triple-A Games
+
+Thu, 12 Mar 2026 01:00:22 GMT
+
+https://screenrant.com/resident-evil-4-remake-lake-door-puzzle-solutions/
+
+In Resident Evil 4 Remake, Leon Kennedy will have to deal with his old nemesis as he searches for the President's daughter - complicated door puzzles.
+---------
+
+# Sailor Moon's Naoko Takeuchi Releases New Art That Reunites All 10 Sailor Guardians
+
+Anime, Sailor Moon, merchandise, food
+
+Thu, 12 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/sailor-moon-naoko-takeuchi-meiji-art-spring-2026/
+
+Sailor Moon returns for another official collaboration combining candies with stylish new Naoko Takeuchi-original art.
+---------
+
+# Severance's Sci-Fi Concept Was Already Explored in Dollhouse
+
+TV, Dollhouse, Sci-Fi, Severance
+
+Thu, 12 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/severance-sci-fi-concept-dollhouse-explained/
+
+Severance deserves all the praise it receives, but it's not the first show to split personalities to fill a work quota.
+---------
+
+# 10 Funniest Comedy Anime Streaming on Crunchyroll
+
+Anime, Crunchyroll, Comedy
+
+Thu, 12 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/crunchyroll-funniest-comedy-anime/
+
+Crunchyroll's anime library is constantly growing to include more hits and hidden gems, including the best anime comedies.
+---------
+
+# Adam Sandler's Click Was the End of an Era
+
+Movies, Adam Sandler, Comedy, Click
+
+Thu, 12 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/adam-sandler-click-marked-end-era/
+
+Adam Sandler dominated the comedy box office for a decade, and one of his best projects marked the end of his impressive winning streak.
+---------
+
+# Final Fantasy's Greatest Game Remains an Untouchable Gem
+
+Games, Final Fantasy, Final Fantasy VII
+
+Thu, 12 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/greatest-final-fantasy-game-untouchable-ff7/
+
+Everyone has their favorite Final Fantasy game, but this installment stands above all the rest.
+---------
+
+# It's Official, Dexter's Most Historic Era Is Finally Over
+
+TV, Dexter, Crime, Netflix
+
+Thu, 12 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/dexter-most-historic-netflix-era-finally-over/
+
+Dexter found new life on Netflix, but that's coming to an end as more than 30 regions, including Canada, will lose streaming access soon.
+---------
+
+# Steve Martin's Dead Men Don't Wear Plaid is a Near-Perfect Detective Spoof
+
+Movies, Only Murders in the Building, Comedy, Dead Men Don't Wear Plaid
+
+Thu, 12 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/steve-martin-dead-men-dont-wear-plaid-perfect/
+
+Steve Martin was a crucial part of Only Murders in the Building's success, but this '80s comedy primed him for the bumbling detective genre.
+---------
+
+# 33 Years Later, Val Kilmer's Most Legendary Western Gets Resurrected on Streaming
+
+Movies
+
+Thu, 12 Mar 2026 03:03:07 GMT
+
+https://www.cbr.com/tombstone-streaming-success-march-2026/
+
+One of the best Westerns ever made is resurrected on streaming.
+---------
+
+# These Classic Shonen Anime Are Unwatchable Today
+
+Anime, Shonen
+
+Thu, 12 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/classic-shonen-anime-that-are-officially-unwatchable-list/
+
+It can be seriously hard to watch former shonen anime classics like Rurouni Kenshin today.
+---------
+
+# Dragon Ball Z's Most Brutal Villain Is Making an Official Comeback
+
+Anime, Dragon Ball, merchandise, bandai
+
+Thu, 12 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/dragon-ball-z-broly-solid-edge-works-the-battle-release/
+
+The biggest and baddest villain from DBZ is coming back with one of the hottest collectible releases of the year (so far).
+---------
+
+# 10 Most Exciting Thrillers of the 21st Century, Ranked
+
+Movie, Mission: Impossible - Fallout, The Departed, Inglourious Basterds, One Battle After Another
+
+Thu, 12 Mar 2026 03:03:12 GMT
+
+https://collider.com/most-exciting-thrillers-21st-century-ranked/
+
+There have been many exciting thrillers made since the turn of the 21st century, including modern classics like Fast Five, Gravity, and The Departed.
+---------
+
+# This 6-Part 10/10 Fantasy Series on Prime Video Keeps Getting Better Every Season
+
+TV Features, Grimm, Prime Video, Fantasy, Horror
+
+Thu, 12 Mar 2026 03:00:13 GMT
+
+https://collider.com/grimm-nbc-fantasy-horror-series-better-each-season/
+
+The 6-season fantasy horror series Grimm on NBC turned the police procedural on its head by solving crimes tied to fairy tales.
+---------
+
+# Netflix's 3-Part Time Travel Series Is the Perfect Weekend Binge Before Its 2026 Return
+
+TV Features, The Way Home, Hallmark, Fantasy, Netflix
+
+Thu, 12 Mar 2026 03:00:13 GMT
+
+https://collider.com/the-way-home-netflix-time-travel-fantasy-perfect-binge/
+
+The Way Home, now streaming on Netflix, is a heartwarming fantasy drama that follows a family unraveling generation-spanning mysteries.
+---------
+
+# 3 Classic Rock Songs the Rock Bands Who Wrote Them Actually Hated
+
+Music Features, Radiohead, Oasis, Nirvana, Rock, Music
+
+Thu, 12 Mar 2026 01:08:44 GMT
+
+https://collider.com/radiohead-oasis-nirvana-hated-their-classic-rock-songs/
+
+Radiohead, Oasis, and Nirvana have expressed their dislike for their most popular hits Creep, Wonderwall, and Smells Like Teen Spirit.
+---------
+
+# 3 Years Later, Keanu Reeves’ $447 Million Blockbuster Makes Mincemeat of Streaming Competition
+
+Movie News, John Wick: Chapter 4, Keanu Reeves, Chad Stahelski, John Wick
+
+Thu, 12 Mar 2026 00:02:41 GMT
+
+https://collider.com/john-wick-chapter-4-keanu-reeves-blockbuster-streaming-success-hbo-max-march-2026/
+
+Keanu Reeves' critically acclaimed blockbuster John Wick: Chapter 4 recently witnessed a streaming resurgence. Find out more.
+---------
+
+# One of the Most Acclaimed Stephen King Adaptations Ever Made Quietly Walks Toward Streaming Success
+
+Movie News, The Long Walk, Stephen King, STARZ, David Jonsson
+
+Wed, 11 Mar 2026 23:59:58 GMT
+
+https://collider.com/stephen-king-sci-fi-survival-thriller-the-long-walk-streaming-success-starz-march-2026/
+
+Stephen King's 10/10 survival thriller is the perfect sleeper hit you'll never revisit. Find out how you can watch the acclaimed movie here.
+---------
+
+# 10 Brilliant Movies That Are Under 90 Minutes Long
+
+Movie Lists, Paths of Glory, Rashomon, Toy Story, Grave of the Fireflies, The Nightmare Before Christmas, The Blair Witch Project, Evil Dead II, Fruitvale Station
+
+Thu, 12 Mar 2026 02:00:28 GMT
+
+https://movieweb.com/best-movies-under-90-minutes/
+
+From 'Fruitvale Station' to 'The Blair Witch Project,' these great movies tell interesting and important stories in under 90 minutes.
+---------
+
+# 8 Reasons ‘Jack Ryan’ Is a Better Action Thriller Than ‘Reacher’
+
+TV Lists, Reacher, Jack Ryan (2025)
+
+Thu, 12 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/jack-ryan-better-than-reacher/
+
+'Jack Ryan', Amazon Prime Video's four-season action thriller series, beats 'Reacher' starring Alan Ritchson in several ways.
+---------
+
+# Anthology 'Tales from the Crypt' Is the Best Midnight Horror Show You've Never Seen
+
+Features, Tales From the Crypt
+
+Thu, 12 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/tales-from-the-crypt-horror-anthology/
+
+It also has one of the most iconic TV opening sequences of the 20th century.
+---------
+
+# 'Scrubs' Episode 4 Makes Its Clear Elliot Needs To Keep Up Or Retire Like Dr. Cox Did
+
+Features, Scrubs
+
+Thu, 12 Mar 2026 00:30:16 GMT
+
+https://movieweb.com/new-scrubs-episode-proves-dr-cox-wasnt-an-isolated-case/
+
+Dr. Cox stepping away as Sacred Heart's Chief of Medicine was a huge twist. Now, it looks like 'Scrubs' is teasing something similar for Elliot.
+---------
+
+# Oscars Security Upgraded in Response to FBI Drone Attack Warning in California
+
+Movie News, Oscars
+
+Thu, 12 Mar 2026 00:10:52 GMT
+
+https://movieweb.com/oscars-security-fbi-drone-attack-california/
+
+The FBI released an official statement about a possible threat to the 98th Academy Awards.
+---------
+
+# $100K Action Thriller 'Hierarchy' Is a Global Streaming Success on Netflix
+
+Movie News, Netflix, Hot on Streaming, Action Man
+
+Thu, 12 Mar 2026 00:00:16 GMT
+
+https://movieweb.com/hierarchy-streaming-netflix-march-2026/
+
+Netflix subscribers cannot get enough of this low-budget action thriller that was inspired by Michael Mann's 'Heat.'
+---------
+
+# 'One Piece' Season 2 Cast - Every New and Returning Anime Character
+
+Features, One Piece, Netflix
+
+Thu, 12 Mar 2026 00:00:16 GMT
+
+https://movieweb.com/one-piece-season-2-cast-guide/
+
+There are dozens of returning and new characters in the second season of 'One Piece' on Netflix. Get them straight.
+---------
+
 # 7 Most Shocking Reveals In Netflix’s The TikTok Killer
 
 Streaming TV
