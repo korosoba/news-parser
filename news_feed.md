@@ -1,3 +1,377 @@
+# DC Reinvents Batman's Court Of Owls As Heroes
+
+DC Comics, Batman
+
+Thu, 12 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/batman-court-owls-heroes-absolute-universe/
+
+DC's Absolute Batman reveals a traditional villain group is the total opposite of their usual selves, and that a familiar hero fights among them.
+---------
+
+# Xbox Drops 5 New Games You Can Play Free For Until March 15
+
+Gaming, Xbox Game Pass, Xbox Series X/S
+
+Thu, 12 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/xbox-5-free-games-march-2026-72-hours-free-play-days/
+
+Discover 5 new free games available to download and play on Xbox this weekend as part of the Free Play Days event, running until March 15.
+---------
+
+# Mark Wahlberg's Underrated 2005 Crime Thriller Is Leaving Netflix In 8 Days - Last Chance To Watch
+
+Movies, Four Brothers, Mark Wahlberg, Netflix
+
+Thu, 12 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/four-brothers-movie-leaving-netflix-march-2026/
+
+With time running out to catch one 2000s crime thriller on Netflix, there’s no better moment to experience this classic on the streaming service.
+---------
+
+# 4 Years Later, Netflix’s Longest-Running Series Is Still One Of Its Best
+
+Classic TV, Grace and Frankie, Netflix
+
+Thu, 12 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/netflix-grace-frankie-longest-running-series-best/
+
+Despite all the new shows Netflix has released in the last four years, their longest-running series is still one of their all-time best.
+---------
+
+# HBO's 10-Part War Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, HBO Max, Band of Brothers
+
+Thu, 12 Mar 2026 20:55:19 GMT
+
+https://screenrant.com/hbo-band-of-brothers-war-series-best/
+
+HBO has released many excellent shows over the years, but this war series ranks above most of them as one of its best releases to date.
+---------
+
+# Jenna Ortega's New Remake Of Cult Classic 34-Year-Old Crime Thriller Gets Major Boost In New Update
+
+Movies, Single White Female, Jenna Ortega
+
+Thu, 12 Mar 2026 20:53:57 GMT
+
+https://screenrant.com/jenna-ortega-single-white-female-remake-writer-producers-update/
+
+Jenna Ortega's upcoming remake of a 34-year-old cult classic thriller adds a new screenwriter whose resume includes a 2022 horror movie hit.
+---------
+
+# HBO's Watchmen: A Sci-Fi Masterpiece Despite Alan Moore's Disapproval
+
+Classic TV, Watchmen
+
+Thu, 12 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/hbo-watchmen-series-alan-moore-reaction-embarrassing-sci-fi-series/
+
+HBO has a nine-part sci-fi masterpiece that stands out for its quality and themes, and even though it pissed off its author, it's a must-watch.
+---------
+
+# Tom Hanks’ Secret 9-Part Band of Brothers Sequel Is Worth A Binge
+
+TV, Masters of the Air, Band of Brothers
+
+Thu, 12 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/tom-hanks-masters-of-the-air-band-of-brothers-successor-binge/
+
+Despite its high-profile cast, great story, and massive budget, Band of Brothers' final installment didn't garner as much praise as its predecessors.
+---------
+
+# Scarpetta TV Show vs. Books: 8 Biggest Changes Explained
+
+Streaming TV, Scarpetta
+
+Thu, 12 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/scarpetta-prime-video-show-changes-patricia-cornwell-novels/
+
+Prime Video’s new hit thriller, Scarpetta, made several alterations to Patricia Cornwell’s bestselling and long-running mystery book series.
+---------
+
+# This Chrono Trigger Remake Is So Beautiful I Could Cry
+
+Gaming, Square Enix, Chrono Trigger
+
+Thu, 12 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/chrono-trigger-2026-remake-fan-made-square-enix/
+
+This Chrono Trigger HD-2D remake showcases the timeless JRPG's potential in stunning pixel art style, sparking hopes for an official release.
+---------
+
+# Wynonna Earp Quietly Became SYFY’s Biggest Cult Hit Since Battlestar Galactica
+
+TV, Wynonna Earp, syfy, Battlestar Galactica, Sci-Fi
+
+Thu, 12 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/wynonna-earp-syfy-biggest-cult-hit-post-battlestar-galactica/
+
+Wynonna Earp pushed the Earp legacy in a new direction, with plenty of supernatural and gunslinging action for fans of both westerns and sci-fi.
+---------
+
+# Keanu Reeves' John Wick 4 is the Action Franchise's Best
+
+Movies, Keanu Reeves, John Wick 4, Action
+
+Thu, 12 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/keanu-reeves-john-wick-4-action-franchise-best/
+
+John Wick: Chapter 4 pushed the franchise to its peak. Three years later, the extended action epic is dominating streaming again.
+---------
+
+# Naruto Gives Deidara a Brand-New Akatsuki Design in Official Reveal
+
+Anime, Naruto
+
+Thu, 12 Mar 2026 20:40:12 GMT
+
+https://www.cbr.com/naruto-mobile-deidara-official-trailer-release/
+
+A new official trailer gives an infamous Naruto Akatsuki member the spotlight in the latest release.
+---------
+
+# Super Mario 3D World - World Bowser (100% Completion) by Mario Party Legacy (Clip)
+
+Games, Nintendo
+
+Thu, 12 Mar 2026 20:30:24 GMT
+
+https://www.cbr.com/video/super-mario-3d-world-world-bowser-100-completion-by-mario-party-legacy-clip/
+
+100% Completion of Super Mario 3D World - World Bowser by Mario Party Legacy
+---------
+
+# Perfect Sci-Fi Movies That Prove AI Is the Ultimate Villain
+
+Movies, The Matrix
+
+Thu, 12 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/perfect-sci-fi-movie-prove-ai-ultimate-villain-list/
+
+AI has always been a threat and these science fiction movies were the first to admit it.
+---------
+
+# Georgie & Mandy's First Marriage Clip: Georgie's Birthday Goes Awry
+
+TV, Georgie & Mandy's First Marriage
+
+Thu, 12 Mar 2026 20:26:55 GMT
+
+https://www.cbr.com/georgie-mandys-first-marriage-clip-213/
+
+CBR's exclusive sneak peek at the next episode of Georgie & Mandy's First Marriage previews how Georgie's birthday party goes awry.
+---------
+
+# Dragon Ball’s Most Underrated Sequel Officially Turns 30 This Month
+
+Anime, Dragon Ball GT, Dragon Ball
+
+Thu, 12 Mar 2026 20:25:12 GMT
+
+https://www.cbr.com/dragon-ball-gt-30-year-anniversary/
+
+The most underrated and controversial entry in the entire Dragon Ball franchise is celebrating a major milestone, and fans should celebrate it too.
+---------
+
+# The Most Popular Animal Crossing New Horizons Villagers
+
+Games, Nintendo
+
+Thu, 12 Mar 2026 20:22:07 GMT
+
+https://www.cbr.com/video/the-most-popular-animal-crossing-new-horizons-villagers/
+
+Thanks to their looks, theme, rarity, and personality, several Animal Crossing characters have become popular among fans of New Horizons.
+---------
+
+# Steven Knight & Tom Harper Break Down the Peaky Blinders Movie
+
+Movies, Peaky Blinders: The Immortal Man
+
+Thu, 12 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/video/steven-knight-tom-harper-break-down-the-peaky-blinders-movie/
+
+In this interview, Peaky Blinders screenwriter Steven Knight and director Tom Harper reveal how the highly anticipated film evolved from the show’s six-episode structure into a focused two-hour story centered on Tommy Shelby.
+---------
+
+# Kate Winslet's The Hunt for Gollum Role Fixes Peter Jackson's LOTR Regret
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 12 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-casting-fixed-the-hunt-for-gollum/
+
+The Lord of the Rings: The Hunt for Gollum's latest casting update makes up for one of Peter Jackson's unfulfilled wishes from the original trilogy.
+---------
+
+# Netflix's 9-Part Detective Thriller Gets Massive Season 2 Update
+
+TV News, Dept. Q, Netflix, Matthew Goode, Crime
+
+Thu, 12 Mar 2026 21:02:46 GMT
+
+https://collider.com/dept-q-season-2-filming-update-netflix-crime-detective-thriller-matthew-goode/
+
+Netflix's sleeper hit crime thriller Dept. Q, starring Matthew Goode, has just scored a major filming update for Season 2.
+---------
+
+# 10 Most Perfect Horror Movies of the Last 5 Years, Ranked
+
+Movie, Horror, Longlegs, Barbarian, Sinners
+
+Thu, 12 Mar 2026 20:54:13 GMT
+
+https://collider.com/perfect-horror-movies-last-5-years/
+
+There have been many exceptional horror films released in the past 5 years, including the likes of Barbarian, Nosferatu, and Sinners.
+---------
+
+# Obsessed With JFK Jr. and Carolyn Bessette? These Books Tell the Real 'Love Story'
+
+TV, Love Story, Books, FX, Romance
+
+Thu, 12 Mar 2026 20:53:15 GMT
+
+https://collider.com/love-story-jfk-jr-carolyn-bessette-books/
+
+While Love Story takes certain liberties with the romance between John F. Kennedy Jr. and Carolyn Bessette, these books tell the real story.
+---------
+
+# Anime Shows That Are Better Than You Think
+
+TV, Anime, Best TV Shows, I Was Reincarnated as the 7th Prince so I Can Take My Time Perfecting My Magical Ability, Animation
+
+Thu, 12 Mar 2026 20:44:13 GMT
+
+https://collider.com/anime-shows-better-than-you-think/
+
+Unfairly overlooked anime shows like World Trigger, Wakfu, and Astra Lost in Space are better than they get credit for.
+---------
+
+# Taylor Sheridan's Yellowstone Universe Enters a New Era With 'Dutton Ranch' First Look
+
+TV News, The Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount Plus
+
+Thu, 12 Mar 2026 20:33:16 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-first-look-image-branding-change/
+
+Dutton Ranch has officially started separating itself from classic Yellowstone branding in a first look at the long-awaited Taylor Sheridan spin-off.
+---------
+
+# Mark Ruffalo's 7-Part HBO Crime Thriller Is a Perfect One-Night Binge
+
+TV Features, HBO Max, Task, Mark Ruffalo, Tom Pelphrey
+
+Thu, 12 Mar 2026 20:24:12 GMT
+
+https://collider.com/task-hbo-crime-thriller-one-night-binge-before-season-2/
+
+HBO's crime thriller Task, featuring standout performances by Mark Ruffalo and Tom Pelphrey, is a must-watch before Season 2.
+---------
+
+# 2026’s Most Entertaining Sci-Fi Movie Getting Blu-Ray Release Next Month
+
+Movie News, Good Luck, Have Fun, Don't Die, Gore Verbinski, Sci-Fi, Sam Rockwell
+
+Thu, 12 Mar 2026 20:08:40 GMT
+
+https://collider.com/good-luck-have-fun-dont-die-sam-rockwell-sci-fi-movie-home-video-release-date-april-21/
+
+Good Luck, Have Fun, Don't Die, directed by Gore Verbinski, is getting a physical release this April after debuting on digital. Read on for more.
+---------
+
+# The Secret Behind ’The Pitt’s Supporting Cast Is Hiding in Plain Sight
+
+TV Features, The Pitt, Isa Briones, HBO Max, Theaters
+
+Thu, 12 Mar 2026 20:07:13 GMT
+
+https://collider.com/the-pitt-supporting-cast-theater-actors-opinion/
+
+The Pitt’s standout performances may come from its theater-trained actors, whose stage experience helps bring realism to the hit medical drama.
+---------
+
+# 10 Great Animated Movies That Are Officially Modern Classics
+
+Movie, Animation, Ne Zha 2, Spider-Man Into the Spider-Verse, Flow
+
+Thu, 12 Mar 2026 20:04:10 GMT
+
+https://collider.com/best-animated-movies-officially-modern-classics/
+
+Released in the last 15 years, movies like Klaus and Ne Zha 2 have already proven themselves as genuine modern classics set to stand the test of time.
+---------
+
+# 10 Greatest Screenplays of the 2000s, Ranked
+
+Movie, Eternal Sunshine of the Spotless Mind, Adaptation, Mulholland Drive, Pan's Labyrinth
+
+Thu, 12 Mar 2026 20:03:02 GMT
+
+https://collider.com/best-screenplays-2000s-ranked/
+
+Screenplays like those from Memento and Mulholland Drive rank among the all-time greatest, proving that the 2000s were a golden age for screenwriting.
+---------
+
+# 'Scrubs' Revival's Use of Orthorexia Nervosa Wouldn't Have Worked In the 2000s
+
+Features, Scrubs
+
+Thu, 12 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/scrubs-revival-orthorexia-explained/
+
+Orthorexia had already been identified when 'Scrubs' was originally on the air, so why didn't it ever appear in the show? Read on to find out.
+---------
+
+# 3-Part Mystery Crime Series 'Broadchurch' Is a Hidden Bingeworthy Gem
+
+TV News, Broadchurch, Streaming Recommendations
+
+Thu, 12 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/broadchurch-streaming-march-2026/
+
+When it comes to small-town thrillers, it doesn't get any better than this one, and it can be watched entirely free.
+---------
+
+# 'Alien: Romulus' Sequel Eying 'A Quiet Place' Director Michael Sarnoski
+
+Movie News, Alien: Romulus, Alien
+
+Thu, 12 Mar 2026 20:39:37 GMT
+
+https://movieweb.com/alien-romulus-sequel-michael-sarnoski/
+
+'A Quiet Place: Day One' director Michael Sarnoski is being eyed to direct the next film in the 'Alien' franchise.
+---------
+
+# 'Anima's Sydney Chandler on the Importance of Human Mistakes in an AI World
+
+Features, Sydney Chandler
+
+Thu, 12 Mar 2026 20:25:27 GMT
+
+https://movieweb.com/anima-movie-sydney-chandler-interview/
+
+The actor reflects on her new sci-fi road trip movie and maintaining humanity in a world moving towards AI.
+---------
+
 # Sailor Moon Officially Returns With New Modern Design That Is Nothing Short of Incredible
 
 Anime, Sailor Moon, Universal Studios
