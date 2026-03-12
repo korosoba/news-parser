@@ -1,3 +1,443 @@
+# Lanterns Star Joins James Gunn's Superman Sequel Man Of Tomorrow
+
+Movies, Man of Tomorrow, Lanterns
+
+Thu, 12 Mar 2026 17:37:12 GMT
+
+https://screenrant.com/man-of-tomorrow-movie-aaron-pierre-green-lantern-cast/
+
+One of the main stars of HBO's Lanterns TV show is officially joining the cast of Man of Tomorrow, James Gunn's upcoming Superman follow-up.
+---------
+
+# The Man in the High Castle: A Masterful Alternate History Sci-Fi Series On Netflix
+
+Classic TV, The Man in the High Castle
+
+Thu, 12 Mar 2026 17:32:19 GMT
+
+https://screenrant.com/the-man-in-the-high-castle-sci-fi-thriller-masterpiece-series-netflix/
+
+Netflix just released a show that will likely go down as one of the greatest sci-fi dystopias of all time, although it isn't for the faint-hearted.
+---------
+
+# Our Final Oscars 2026 Predictions For All 24 Categories: Who Will Win?
+
+New Movies, Oscars
+
+Thu, 12 Mar 2026 17:20:19 GMT
+
+https://screenrant.com/oscars-2026-predictions-all-categories/
+
+With the official Oscars 2026 nominations now confirmed for every category, here's ScreenRant's predictions for who will win in all 24 categories.
+---------
+
+# Absolute Zatanna Redesign Officially Showcased In New DC Art
+
+DC Comics, Zatanna, Wonder Woman
+
+Thu, 12 Mar 2026 17:17:11 GMT
+
+https://screenrant.com/absolute-wonder-woman-zatanna-new-redesign-costume/
+
+DC Comics artist Mark Brooks unveils striking new artwork for Wonder Woman's next appearance, showcasing a new take on a hero's gorgeous redesign.
+---------
+
+# Scarpetta’s Wildest Twist Has Nothing To Do With The Psychological Thriller’s Murders
+
+TV, Scarpetta
+
+Thu, 12 Mar 2026 17:15:18 GMT
+
+https://screenrant.com/scarpetta-show-ai-janet-twist-book-change-explained/
+
+In a shocking departure from the source novels, Scarpetta's most absurd and credibility-killing storyline has nothing to do with its killings.
+---------
+
+# Netflix Lost Daredevil in 2022, but 1 Year Later Its True Successor Arrived (And It's Only Getting Better)
+
+Anime, Daredevil, Bloodhounds
+
+Thu, 12 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/bloodhounds-daredevil-true-successor-netflix/
+
+Daredevil's tenure on Netflix was never born to last, but outside of Disney+ it's born again in a different way through Bloodhounds.
+---------
+
+# Keith David Doesn't Know Winnie The Pooh In Mike & Nick & Nick & Alice Clip
+
+Movies, Mike & Nick & Nick & Alice, SXSW, Keith David
+
+Thu, 12 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/video/mike-nick-nick-alice-keith-david-clip/
+
+Exclusive: ScreenRant presents a clip from Mike & Nick & Nick & Alice, starring Vince Vaughn, James Marsden, Eiza Gonzalez, and Keith David.
+---------
+
+# Prime Video's New 8-Part Crime Thriller Based On Bestsellers Is Dividing Critics & Audiences On Rotten Tomatoes
+
+TV, Scarpetta, Scarpetta - Season 1
+
+Thu, 12 Mar 2026 17:00:14 GMT
+
+https://screenrant.com/scarpetta-show-rotten-tomatoes-audience-score-prime-video/
+
+Nicole Kidman and Jamie Lee Curtis star in a new Prime Video series, but critics and audiences have very different reactions to the crime thriller.
+---------
+
+# Malcolm In The Middle Revival Trailer: Frankie Muniz, Cast Reunite For Hulu Series
+
+TV, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Thu, 12 Mar 2026 16:56:25 GMT
+
+https://screenrant.com/malcolm-in-the-middle-revival-trailer-frankie-muniz/
+
+Hulu has released the first trailer for the Malcolm in the Middle revival, featuring the return of the original cast, including Frankie Muniz as Malcolm and Jane Kaczmarek as Lois. The four-episode limited series premieres on April 10.
+---------
+
+# Desert Warrior Trailer
+
+Movies, Desert Warrior
+
+Thu, 12 Mar 2026 16:55:59 GMT
+
+https://screenrant.com/video/desert-warrior-trailer/
+
+Vertical releases the first trailer for Desert Warrior starring Anthony Mackie.
+---------
+
+# Children of Men Feels More Terrifying Than Ever
+
+Movies, Children of Men
+
+Thu, 12 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/children-of-men-terrifying-sci-fi-masterpiece/
+
+This dystopian sci-fi masterpiece feels more realistic than ever, and that's what makes it so terrifying
+---------
+
+# Jon Bernthal's The Punisher Is a Grounded Marvel Comic Book Adaptation
+
+TV, The Punisher, Crime, Netflix, Marvel
+
+Thu, 12 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/jon-bernthal-the-punisher-best-netflix-crime-show/
+
+Jon Bernthal has never been such a punishing force as in this one-time Netflix favorite.
+---------
+
+# Marvel Reveals Spider-Man/Superman #1 Covers and An Early Look At The Interior
+
+Comics, Spider-Man, Superman, Marvel, DC Comics
+
+Thu, 12 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/marvel-spider-man-superman-1-covers-sneak-peek-interior-pages/
+
+Marvel Comics gives fans their first look at all the explosive action to come when Spider-Man/Superman #1 arrives in comic book stores this Summer.
+---------
+
+# Netflix's New Creature Feature, Thrash, Is the Perfect Jaws Replacement
+
+Movies, Horror, Jaws
+
+Thu, 12 Mar 2026 17:27:42 GMT
+
+https://www.cbr.com/netflix-creature-feature-thrash-perfect-jaws-replacement/
+
+Inspired by the horror created by Jaws, a new Netflix creature feature promises to make audiences run for land.
+---------
+
+# Oscars Security Increased Amid Concerns of Potential Attack on California
+
+Movies, The Oscars | Academy Awards
+
+Thu, 12 Mar 2026 17:26:56 GMT
+
+https://www.cbr.com/academy-awards-oscars-2026-security/
+
+Security will be boosted at the Academy Awards following an FBI alert about a potential attack on California.
+---------
+
+# The Greatest JRPG of the 2020s Is a Remake That Outshines the Original
+
+Games, Final Fantasy VII Remake, Final Fantasy VII Rebirth, JRPG, Final Fantasy
+
+Thu, 12 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/greatest-jrpg-of-the-2020s-best-remake-ff7-rebirth/
+
+There have been some amazing JRPG remakes, but this one even outsides the original.
+---------
+
+# A Smallville Star Brings A New Gothic Fantasy Series To Life for Titan
+
+Comics, Smallville, horror comics
+
+Thu, 12 Mar 2026 16:55:22 GMT
+
+https://www.cbr.com/smallville-kristin-kreuk-black-star-horror-comic/
+
+Kristin Kreuk goes from young Superman's muse on Smallville to creating a comic of her own.
+---------
+
+# Crimson Desert Launch Times Officially Confirmed
+
+Games, Black Desert Online, action rpg
+
+Thu, 12 Mar 2026 16:32:12 GMT
+
+https://www.cbr.com/crimson-desert-launch-times-officially-confirmed/
+
+Pearl Abyss has revealed the release time for Crimson Desert, the highly anticipated action RPG prequel to the Black Desert Online franchise.
+---------
+
+# Bluey Returns to Disney+ with New Minisodes and Stage Show
+
+TV, Bluey, Animation, Disney+
+
+Thu, 12 Mar 2026 16:18:07 GMT
+
+https://www.cbr.com/bluey-new-mini-episodes-stage-show-special-disney-plus/
+
+Bluey fans rejoice! The beloved Heeler family is back with 10 new minisodes on Disney+, premiering May 20, plus a Stage Show.
+---------
+
+# CBS Just Officially Replaced Matlock's First Main Character
+
+TV, Matlock
+
+Thu, 12 Mar 2026 16:16:12 GMT
+
+https://www.cbr.com/cbs-matlock-new-character-hunter-billy-martinez-replacement/
+
+Kathy Bates' outstanding CBS series faces major disruptions as Matlock accommodates a significant casting change following serious allegations.
+---------
+
+# 10 Years Later, 'Black Mirror's Best Episode Is Getting Its Own Spin-Off
+
+TV News, Black Mirror, Netflix, Science Fiction, Romance
+
+Thu, 12 Mar 2026 17:17:29 GMT
+
+https://collider.com/netflix-sci-fi-series-black-mirror-san-junipero-spin-off-comic/
+
+The fan-favorite Black Mirror episode San Junipero is getting a surprise spin-off 10 years after the beloved story aired on Netflix.
+---------
+
+# ‘Eighth Grade’s Elsie Fisher Stumbles Upon a Time Traveling Adventure in ‘Sparks’ Sneak Peek [Exclusive]
+
+Exclusives, Elsie Fisher, SXSW, Eighth Grade, Drama
+
+Thu, 12 Mar 2026 17:00:12 GMT
+
+https://collider.com/sparks-elsie-fisher-sneak-peek-sxsw-premiere-details/
+
+Eighth Grade star Elsie Fisher is in for a time-traveling adventure in a new look at Sparks. See it here!
+---------
+
+# Prime Video's 'Bosch' Spin-Off Adds Star of the Best Horror Series of the Decade
+
+TV News, Bosch
+
+Thu, 12 Mar 2026 16:37:20 GMT
+
+https://collider.com/prime-video-bosch-spin-off-ballard-season-2-cast-hamish-linklater/
+
+Hamish Linklater, the star of Gen V, Midnight Mass, and more, has officially joined Season 2 of Prime Video's Bosch spin-off, Ballard.
+---------
+
+# 20 Years Later, the Greatest Sitcom of the 2000s Returns With Hysterical New Trailer
+
+TV News, Malcolm in the Middle: Life's Still Unfair, Bryan Cranston, Frankie Muniz, Malcolm in the Middle
+
+Thu, 12 Mar 2026 16:36:49 GMT
+
+https://collider.com/malcolm-in-the-middle-lifes-still-unfair-trailer-bryan-cranston/
+
+Malcolm, Hal, Lois, and the rest of the Wilkersons are back in a hysterical new trailer for Disney's Malcolm in the Middle revival.
+---------
+
+# 61 Years Ago, The Rolling Stones Wrote Their Greatest Song and It Became Their First Original Number One Hit
+
+Music Features, Rock, Music, The Rolling Stones, Mick Jagger
+
+Thu, 12 Mar 2026 16:30:12 GMT
+
+https://collider.com/61-years-ago-the-rolling-stones-wrote-the-last-time-first-number-one/
+
+The Rolling Stones' groundbreaking first original hit, The Last Time, is tied to a decades-long legal battle and is influenced by blues and gospel.
+---------
+
+# New Punk Rock Coming-of-Age Movie Gets Epic Trailer Ahead of SXSW Premiere [Exclusive]
+
+Exclusives, Edie Arnold Is a Loser, SXSW, Comedy, Drama
+
+Thu, 12 Mar 2026 16:02:22 GMT
+
+https://collider.com/edie-arnold-is-a-loser-trailer-sxsw-premiere-details/
+
+A coming-of-age tale blends punk rock and Catholic school woes in Edie Arnold Is a Loser trailer. See it here.
+---------
+
+# Seth MacFarlane Teases 'Family Guy's New 'Stewie' Spin-Off
+
+TV News, Peacock, Seth MacFarlane, Ted, Family Guy
+
+Thu, 12 Mar 2026 16:00:43 GMT
+
+https://collider.com/seth-macfarlane-family-guy-spin-off-stewie-fox/
+
+Creator Seth MacFarlane hints at a new Family Guy spin-off during an exclusive interview about the bigger, bolder second season of Ted on Peacock.
+---------
+
+# Say Goodbye to ‘The Boys’: Erin Moriarty and Karen Fukuhara Tease “Devastating” 10/10 Finale [Exclusive]
+
+Exclusives, The Boys, Erin Moriarty, Karen Fukuhara, Colby Minifie
+
+Thu, 12 Mar 2026 16:00:13 GMT
+
+https://collider.com/the-boys-season-5-erin-moriarty-karen-fukuhara-colby-minifie-reaction-to-finale-interview/
+
+Colby Minifie, Erin Moriarty and Karen Fukuhara discuss the emotional toll of the show's final season and what fans can expect from the series finale.
+---------
+
+# New Trailer Reveals 'Into the Spider-Verse' Meets 'Fast and Furious' Style Action Movie [Exclusive]
+
+Movie News, Billy Zane, Animation, Thriller, Action
+
+Thu, 12 Mar 2026 16:00:13 GMT
+
+https://collider.com/takeover-trailer-quavo-billy-zane-hyrbid-live-action-animation-graphic-novel/
+
+Watch the new trailer for Takeover, an action-packed film starring Quavo and Billy Zane that blends live-action with Trioscope's hybrid animation.
+---------
+
+# 5 Years Later, Fantasy’s Greatest Adaptation Deserves To Be Revived After a Major Update
+
+TV Features, A Court of Thorns and Roses, Fantasy, Books, Hulu
+
+Thu, 12 Mar 2026 15:37:12 GMT
+
+https://collider.com/a-court-of-thorns-and-roses-tv-series-revival-sarah-j-maas-major-update-new-books/
+
+With the news that Sarah J. Maas is releasing new books in her Court of Thorns and Roses series, now is the time to give it a proper TV show.
+---------
+
+# Disney+ Sets Vertical Video Launch With Verts
+
+Movie News, Disney+
+
+Thu, 12 Mar 2026 17:30:44 GMT
+
+https://movieweb.com/disney-plus-vertical-video-launch/
+
+Disney+ is introducing a TikTok-style vertical video feature called "Verts" to its mobile app, giving subscribers short-form content to swipe through.
+---------
+
+# Steven Spielberg's 'The Dinosaurs' Fails To Topple 'Bridgerton' on Netflix
+
+TV News, The Dinosaurs, Hot on Streaming, Bridgerton
+
+Thu, 12 Mar 2026 17:30:17 GMT
+
+https://movieweb.com/bridgerton-beats-the-dinosaurs-streaming-netflix-march-2026/
+
+Not even Spielberg and his prehistoric beasts can best the comings and goings of London's high society on Netflix.
+---------
+
+# 'Reacher' Season 4 Release Plan Repeats 'The Terminal List' Mistake
+
+Features, Reacher, The Terminal List
+
+Thu, 12 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/reacher-season-4-terminal-list-mistake/
+
+Season 4 of Reacher is taking longer than usual to come out, repeating a mistake made by another popular Prime Video show.
+---------
+
+# 'Disclosure Day' Trailer Unleashes Steven Spielberg Sci-Fi Thriller
+
+Movie News, Disclosure Day
+
+Thu, 12 Mar 2026 16:51:35 GMT
+
+https://movieweb.com/disclosure-day-trailer-steven-spielberg/
+
+The new trailer lifts the curtain on Spielberg's secretive UFO film starring Emily Blunt and Josh O'Connor.
+---------
+
+# Russell Crowe's New War Thriller 'Nuremberg' Dominates the Dinosaurs on Netflix
+
+Movie News, Nuremberg, Netflix, Russell Crowe, War, Thriller
+
+Thu, 12 Mar 2026 16:30:17 GMT
+
+https://movieweb.com/nuremberg-russell-crowe-stream-netflix-march-2026/
+
+The political war thriller stars Rami Malek alongside Crowe and has quickly proven popular on streaming.
+---------
+
+# Universal Extending Theatrical Release Windows
+
+Movie News, The Odyssey, The Super Mario Galaxy Movie, Reminders of Him
+
+Thu, 12 Mar 2026 16:29:30 GMT
+
+https://movieweb.com/universal-theatrical-windows-announcement/
+
+Universal Pictures is committed to keeping movies like 'The Odyssey' and 'The Super Mario Galaxy Movie' in theaters longer.
+---------
+
+# 'Family Guy' Spin-Off Centered on Stewie Griffin Officially Happening at Fox
+
+TV News, Family Guy, Seth MacFarlane
+
+Thu, 12 Mar 2026 16:23:55 GMT
+
+https://movieweb.com/seth-macfarlane-confirms-family-guy-spin-off/
+
+Seth MacFarlane will give Stewie Griffin his own animated spin-off series, as confirmed by reports of a new 'Family Guy' series being greenlit.
+---------
+
+# Best Movies Where Robots Take Over, Ranked
+
+Movie Lists, Sci-Fi
+
+Thu, 12 Mar 2026 16:01:17 GMT
+
+https://movieweb.com/movies-where-robots-take-over/
+
+As we witness the rapid progression in artificial intelligence and automation all around us, these movies feel more relevant than ever.
+---------
+
+# 'Alien: Earth' Star Sydney Chandler "Would Love" to Take on the Predator
+
+TV News, Alien: Earth, Sydney Chandler, Predator
+
+Thu, 12 Mar 2026 16:01:16 GMT
+
+https://movieweb.com/alien-earth-sydney-chandler-predator-crossover/
+
+While the actor hasn't read any Season 2 scripts, she's more than willing to go toe-to-toe with the Yautja.
+---------
+
+# Will There Be 'War Machine 2': Confirmation, Cast, Plot, Everything We Know
+
+Features, War Machine, Alan Ritchson, Netflix, Everything We Know, Action
+
+Thu, 12 Mar 2026 16:01:16 GMT
+
+https://movieweb.com/war-machine-2-everything-we-know/
+
+Alan Ritchson's 'War Machine' exploded onto Netflix, with the sci-fi action thriller becoming an instant hit, but is there a sequel on the way?
+---------
+
 # Red Dead Redemption Meets Valheim In This Beautiful New Open-World Western RPG
 
 Gaming, RPG, Steam, PC, Indie, Red Dead Redemption, Valheim
