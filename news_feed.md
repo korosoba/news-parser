@@ -1,3 +1,443 @@
+# Sailor Moon Officially Returns With New Modern Design That Is Nothing Short of Incredible
+
+Anime, Sailor Moon, Universal Studios
+
+Thu, 12 Mar 2026 19:45:37 GMT
+
+https://screenrant.com/sailor-moon-new-anime-short-design-universal/
+
+Sailor Moon's iconic look gets a stunning modern makeover in an all-new animated short that blends her classic look with modern CG animation.
+---------
+
+# Prime Video's Reacher Replacement Won't Worry Alan Ritchson's Series
+
+TV, Reacher, Scarpetta
+
+Thu, 12 Mar 2026 19:45:19 GMT
+
+https://screenrant.com/prime-video-scarpetta-reacher-replacement-not-as-good/
+
+Prime Video's new psychological thriller proves that it takes more than A-list stars to recreate the appeal of Reacher, Alan Ritchson's hit series.
+---------
+
+# HBO's New Comedy Series With Ted Lasso Star Breaks Huge 10-Year-Old Viewership Record
+
+TV, Rooster
+
+Thu, 12 Mar 2026 19:40:45 GMT
+
+https://screenrant.com/rooster-show-most-watched-hbo-comedy-premiere-viewership-record/
+
+HBO's new comedy series featuring a Ted Lasso star shatters a massive viewership record that has stood untouched for more than 10 years.
+---------
+
+# Sydney Sweeney's Power Girl Fights Jason Momoa's Lobo In New DC Art Ahead Of The Supergirl Movie
+
+Superheroes, DC Universe, Supergirl
+
+Thu, 12 Mar 2026 19:38:34 GMT
+
+https://screenrant.com/sydney-sweeney-power-girl-jason-momoa-lobo-supergirl-dc-art/
+
+Jason Momoa's Lobo will debut in 2026's Supergirl movie, and this new DC Universe art sees the Main Man fighting Sydney Sweeney's Power Girl.
+---------
+
+# Best Original Song Oscar Winners: 2000–2025 List
+
+Movies, Oscars, Music, Billie Eilish, KPop Demon Hunters, Barbie, Sinners, Eminem, Lady Gaga
+
+Thu, 12 Mar 2026 19:35:27 GMT
+
+https://screenrant.com/oscars-best-original-song-winners-list/
+
+From the viral "Naatu Naatu" to Eminem’s historic win and Billie Eilish’s streak, here is every Best Original Song Oscar winner from 2000–2025.
+---------
+
+# The Boys Star Warns That Series Finale's Audience Emotions Are "Going To Be Mixed" Ahead Of Season 5 Premiere
+
+TV, The Boys, The Boys - Season 5
+
+Thu, 12 Mar 2026 19:30:28 GMT
+
+https://screenrant.com/the-boys-season-5-finale-audience-mix-reaction-warning-erin-moriarty/
+
+When the final episode of The Boys is released on Prime Video in May, fans will have strong reactions to the ending, according to the cast.
+---------
+
+# Chainsaw Man Drops Massive Part 3 Hint That Has the Fandom Buzzing
+
+Anime, Chainsaw Man
+
+Thu, 12 Mar 2026 19:30:22 GMT
+
+https://screenrant.com/chainsaw-man-part-3-hint-to-be-continued/
+
+Chainsaw Man fans are buzzing with speculation after a subtle change to the final chapter's message hinted at the possibility of Part 3.
+---------
+
+# Netflix's Shadow & Bone Sends A Sad Message To All Romantasy Fans
+
+Classic TV, Shadow and Bone
+
+Thu, 12 Mar 2026 19:15:18 GMT
+
+https://screenrant.com/shadow-and-bone-romantasy-series-netflix-message-fans/
+
+Romantasy fans expect a lot from TV book adaptations, but the sad truth is that even when everything is done right, there's no guarantee of success.
+---------
+
+# Pokémon Pokopia: How To Get Special Foods For Eevee Evolutions
+
+Gaming, Pokemon Pokopia
+
+Thu, 12 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/pokemon-pokopia-special-foods-eevee-evolutions/
+
+Discover how to find Eevee and its evolutions in Pokémon Pokopia, including special foods and quests required to attract them to your world.
+---------
+
+# Netflix Writers Discuss Crafting Engaging Stories in Attention Span Era
+
+TV, Netflix, WGA Awards
+
+Thu, 12 Mar 2026 18:48:13 GMT
+
+https://screenrant.com/netflix-movies-tv-background-audience-priority-writers-response-wga-awards/
+
+Acclaimed Netflix writers and directors share insights on keeping audiences engaged in an era of dwindling attention spans and rapid-fire content consumption.
+---------
+
+# The 6 Greatest Live-Action Spider-Man Villains Ever Put on Screen, Ranked
+
+Movies, Spider-Man, MCU, Spider-Man: Brand New Day
+
+Thu, 12 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/greatest-live-action-spider-man-villains-ever-ranked-list/
+
+Spider-Man has had a lot of terrific villains, but these are the best (and most sinister) enemies that the wall-crawler ever faced onscreen.
+---------
+
+# Marshals Gets Renewed for Season 2 at CBS
+
+TV, Marshals
+
+Thu, 12 Mar 2026 18:58:46 GMT
+
+https://www.cbr.com/marshals-renewed-season-2-cbs/
+
+The future of the new Yellowstone spinoff has officially been revealed.
+---------
+
+# Chris Claremont's Favorite X-Men Storyline Revealed in CBR's The Backstage Pass!
+
+CBR Exclusives, X-Men, Backstage Pass
+
+Thu, 12 Mar 2026 18:46:49 GMT
+
+https://www.cbr.com/chris-claremonts-favorite-x-men-storyline-revealed-in-cbrs-the-backstage-pass/
+
+We also head to Emerald City Comic Con, interview Hoppers cast, and talk horror with Seann William Scott.
+---------
+
+# This One-of-a-Kind Fantasy Masterpiece Is 2026’s Must-Watch Anime
+
+Anime, To Your Eternity, Fantasy
+
+Thu, 12 Mar 2026 18:35:22 GMT
+
+https://www.cbr.com/best-returning-isekai-2026-to-your-eternity-season-3/
+
+To Your Eternity might reach its finale soon, and 2026 is the perfect time to watch the series that left its mark on the fantasy anime genre.
+---------
+
+# Netflix Confirms KPop Demon Hunters Sequel
+
+Movies, KPop Demon Hunters, Netflix
+
+Thu, 12 Mar 2026 18:34:15 GMT
+
+https://www.cbr.com/kpop-demon-hunters-sequel-netflix/
+
+The fan demand for a sequel to the smash hit is finally being met by Netflix.
+---------
+
+# Superman Sequel Man of Tomorrow Adds Aaron Pierre for DCU Crossover
+
+Superheroes, Man of Tomorrow, DCU, Lanterns
+
+Thu, 12 Mar 2026 18:28:34 GMT
+
+https://www.cbr.com/superman-man-of-tomorrow-dcu-crossover-lanterns-aaron-pierre-john-stewart/
+
+Aaron Pierre joins the cast of Superman: Man of Tomorrow as Green Lantern John Stewart, setting the stage for the first DCU crossover in the sequel.
+---------
+
+# 'More and More Absurd': Unemployed Killers Support Group's Author Discusses Potential Anime Adaptation
+
+CBR Exclusives, Interviews, interview
+
+Thu, 12 Mar 2026 18:25:12 GMT
+
+https://www.cbr.com/unemployed-killers-support-group-rio-interview/
+
+In an exclusive interview with CBR, Unemployed Killers Support Group's author talks about his vision for the future of the noir manga.
+---------
+
+# Jada Pinkett Smith Confirms Return to A Different World Revival
+
+TV, a different world
+
+Thu, 12 Mar 2026 18:12:55 GMT
+
+https://www.cbr.com/a-different-world-netflix-jada-pinkett-smith/
+
+Fans of the original series have been wondering if Jada Pinkett Smith would return in the Netflix revival.
+---------
+
+# Solo Leveling Officially Gives the Jeju Island Raid a New Ending
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Thu, 12 Mar 2026 18:04:13 GMT
+
+https://www.cbr.com/solo-leveling-arise-sugimoto-reiji-hunter-origin-jeju-island-new-ending/
+
+Solo Leveling's new manhwa chapter reveals the fate of Goto Ryuji's Blade Guild after the Jeju Island Raid ended poorly for Japan's S-Rank Hunters.
+---------
+
+# Tim Roth Breaks Down His Showdown With Thomas Shelby
+
+Movies, Peaky Blinders: The Immortal Man
+
+Thu, 12 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/video/tim-roth-breaks-down-his-showdown-with-thomas-shelby/
+
+In this interview with CBR Presents, Tim Roth opens up about stepping into the Peaky Blinders universe for the first time and why he deliberately avoided watching the series before filming.The Reservoir Dogs and Lie to Me star talks about reuniting with Cillian Murphy, filming an intense confrontation with Shelby, and how he worked with creator Steven Knight to reshape his character into something more layered.
+---------
+
+# 10 Best Crowd-Pleasing Sci-Fi Movies of All Time, Ranked
+
+Movie, Star Wars, Back to the Future, The Matrix, Sci-Fi
+
+Thu, 12 Mar 2026 19:52:13 GMT
+
+https://collider.com/best-crowd-pleasing-sci-fi-movies/
+
+Everything Everywhere All at Once, Mad Max: Fury Road, Back to the Future, and more make up our list of the best crowd-pleasing sci-fi movies.
+---------
+
+# 10 Best Horror Movies To Go Into Blind
+
+Movie, Horror, The Autopsy of Jane Doe, The Descent, Get Out
+
+Thu, 12 Mar 2026 19:48:12 GMT
+
+https://collider.com/best-horror-movies-go-into-blind/
+
+From the psychological dread of Hereditary to claustrophobic survival stories like The Descent, these are the best horror movies to go into blind.
+---------
+
+# Seth MacFarlane Says 'Ted' Could Run for "20 Seasons"
+
+Exclusives, Ted, Seth MacFarlane, Peacock
+
+Thu, 12 Mar 2026 19:30:12 GMT
+
+https://collider.com/ted-season-2-seth-macfarlane-scott-grimes-interview/
+
+Seth MacFarlane and the stars of Peacock's Ted discuss bringing the bear to life, joyful moments on set, epic Season 2 sets, and emotional scenes.
+---------
+
+# All 6 Quentin Tarantino Movies From the 21st Century, Ranked
+
+Movie, Kill Bill: The Whole Bloody Affair, Inglourious Basterds, Django Unchained, Once Upon a Time in Hollywood
+
+Thu, 12 Mar 2026 19:29:12 GMT
+
+https://collider.com/every-quentin-tarantino-movie-21st-century-ranked/
+
+There have been six Quentin Tarantino movies in the 21st century so far, including Inglourious Basterds and Kill Bill... but which is the best?
+---------
+
+# 'Slanted' Review: Mckenna Grace Stars in a Sharp Body Horror Teen Movie
+
+Movie Reviews, Slanted, Mckenna Grace, Horror
+
+Thu, 12 Mar 2026 19:16:21 GMT
+
+https://collider.com/slanted-movie-review-mckenna-grace-horror/
+
+Slanted is a witty, heartfelt, and insightful look at cultural identity in immigrant teenagers.
+---------
+
+# 7 Greatest Sitcoms With Less Than 5 Seasons, Ranked
+
+TV, Sitcom, The Good Place, Santa Clarita Diet, Mythic Quest
+
+Thu, 12 Mar 2026 19:01:12 GMT
+
+https://collider.com/best-sitcoms-less-than-5-seasons-ranked/
+
+NBC's The Good Place, Netflix's Santa Clarita Diet, and Apple TV's Mythic Quest are among the great sitcoms under 5 seasons, but which is the best?
+---------
+
+# Ranking the 10 Best Oscar-Winning Biopics Ever Made
+
+Movie, Biopic, Oppenheimer, 12 Years a Slave, Amadeus
+
+Thu, 12 Mar 2026 18:55:12 GMT
+
+https://collider.com/oscar-winning-biopics-ranked/
+
+Oppenheimer, Amadeus, and Schindler's List are all among the very best biopic movies that won Academy Awards.
+---------
+
+# Taylor Sheridan's Latest 'Yellowstone' Spin-Off Scores Major Expansion at CBS
+
+TV News, Yellowstone, Marshals, Taylor Sheridan, CBS
+
+Thu, 12 Mar 2026 18:45:29 GMT
+
+https://collider.com/cbs-yellowstone-spin-off-marshals-season-2-renewed/
+
+Taylor Sheridan's latest Yellowstone spin-off, Marshals, just scored a Season 2 renewal on CBS after a record-breaking series debut.
+---------
+
+# Prime Video's ‘Bosch’ Replacement Expands With a ‘Hateful Eight’ Star
+
+TV News, Bishop, Prime Video, Bosch, Jennifer Jason Leigh
+
+Thu, 12 Mar 2026 18:37:32 GMT
+
+https://collider.com/prime-video-cop-thriller-crime-drama-bishop-cast-jennifer-jason-leigh/
+
+Prime Video's new Bosch replacement, Bishop, has added Hateful Eight star Jennifer Jason Leigh opposite Joel Kinnaman & John Malkovich.
+---------
+
+# Prime Video's #1 New Guy Ritchie Mystery Series Just Got an Epic Season 2 Update
+
+TV News, Young Sherlock, Prime Video, Guy Ritchie, Mystery
+
+Thu, 12 Mar 2026 18:24:33 GMT
+
+https://collider.com/young-sherlock-season-2-prime-video-update-simon-maxwell/
+
+Prime Video's new number one mystery series, Guy Ritchie's Young Sherlock, just received a promising Season 2 update from EP Simon Maxwell.
+---------
+
+# '90s Cult Horror Adventure Series 'Eerie, Indiana' Is Streaming Free
+
+Features, Eerie, Indiana, Streaming Recommendations
+
+Thu, 12 Mar 2026 19:30:20 GMT
+
+https://movieweb.com/eerie-indiana-streaming-free-tubi-march-2026/
+
+This one often crossed the line of family-friendly adventures with stories that were a little bit too heavy for children.
+---------
+
+# 'Half Man' New Photos Reveal Unrecognizable Richard Gadd
+
+TV News, Half Man, Richard Gadd, Jamie Bell, HBO Max
+
+Thu, 12 Mar 2026 19:15:16 GMT
+
+https://movieweb.com/half-man-richard-gadd-new-photos-hbo/
+
+The filmmaker is back with another series that sounds just as ambitious as his 'Baby Reindeer.'
+---------
+
+# 'KPop Demon Hunters 2' Officially Greenlit by Netflix
+
+Movie News, Netflix, KPop Demon Hunters, Fantasy, Action
+
+Thu, 12 Mar 2026 19:04:22 GMT
+
+https://movieweb.com/kpop-demon-hunters-sequel-netflix/
+
+A KPop Demon Hunters sequel is officially happening at Netflix, with the hit animated feature finally getting a follow-up.
+---------
+
+# Kate Winslet Will Finally Make Up For 'Lord of the Rings' Role She Turned Down
+
+Features, The Lord of the Rings
+
+Thu, 12 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/kate-winslet-lord-of-rings-hunt-for-gollum-cast/
+
+Kate Winslet is finally joining this beloved fantasy world as she has a role in 'The Lord of the Rings: The Hunt for Gollum.'
+---------
+
+# 'Marshals' Lands Season 2 Renewal From CBS
+
+TV News, Marshals
+
+Thu, 12 Mar 2026 18:55:17 GMT
+
+https://movieweb.com/marshals-season-2-renewal-cbs/
+
+Taylor Sheridan's latest 'Yellowstone' spin-off will live to see another season after record-breaking viewership on CBS.
+---------
+
+# 'Man of Tomorrow' Adds 'Lanterns' Star Aaron Pierre
+
+Movie News, Man of Tomorrow, Aaron Pierre, Lanterns, Green Lantern
+
+Thu, 12 Mar 2026 18:27:22 GMT
+
+https://movieweb.com/man-of-tomorrow-aaron-pierre-green-lantern/
+
+2027's 'Man of Tomorrow' will include Aaron Pierre as John Stewart/Green Lantern under SC Studios co-CEO James Gunn.
+---------
+
+# 'Project Hail Mary' Directors Tease Andy Weir Unofficial Sci-Fi Trilogy
+
+Movie News, Project Hail Mary, Sci-Fi
+
+Thu, 12 Mar 2026 18:26:08 GMT
+
+https://movieweb.com/project-hail-mary-directors-tease-sci-fi-trilogy/
+
+Directors Phil Lord and Christopher Miller tease another sci-fi adaptation that has been hindered by limitations for years.
+---------
+
+# How Netflix's 'One Piece' Season 2 Makes Big Changes From the Anime
+
+TV Lists, One Piece
+
+Thu, 12 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/one-piece-season-2-anime-differences/
+
+The new season features plenty of surprising additions and omissions from the anime that has helped inspire it.
+---------
+
+# Must-Watch Sad Movies That Are Certified Tearjerkers
+
+Movie Lists, Drama
+
+Thu, 12 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/movies-saddest-tearjerkers/
+
+Looking for a sappy love story, the loss of a beloved pet, or a cruel reminder that the justice system isn't fair? This list has a film for whatever g
+---------
+
+# 'Desert Warrior' Trailer Teases Anthony Mackie's Action Epic
+
+Movie News, Anthony Mackie, Desert Warrior
+
+Thu, 12 Mar 2026 17:55:12 GMT
+
+https://movieweb.com/desert-warrior-trailer-anthony-mackie/
+
+The MCU star goes back to the seventh century for the brutal new adventure.
+---------
+
 # Lanterns Star Joins James Gunn's Superman Sequel Man Of Tomorrow
 
 Movies, Man of Tomorrow, Lanterns
