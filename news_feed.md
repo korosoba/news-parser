@@ -1,3 +1,179 @@
+# 3 Best New Shows To Binge In One Night This Weekend: March 13–15, 2026
+
+Streaming TV
+
+Thu, 12 Mar 2026 23:54:19 GMT
+
+https://screenrant.com/best-new-shows-to-binge-weekend-march-13-15-2026/
+
+The top 3 new series to binge-watch this weekend include a Netflix docuseries, a gripping crime thriller, and a highly anticipated neo-Western.
+---------
+
+# Scrubs Finally Calls Out Its Most Toxic Trait After 25 Years
+
+Streaming TV, Scrubs
+
+Thu, 12 Mar 2026 23:45:18 GMT
+
+https://screenrant.com/outlander-season-10-call-out-toxic-dr-cox/
+
+Scrubs has been around a long time, so there are obviously troublesome elements in the original show. The revival handles them in just the right way.
+---------
+
+# Netflix One Piece Missing Scenes Could Return, Live-Action Star Says
+
+TV, One Piece, Netflix
+
+Thu, 12 Mar 2026 23:15:18 GMT
+
+https://screenrant.com/one-piece-season-2-missing-manga-stories-future-return-rob-colletti/
+
+One Piece star Rob Colletti hints at the possibility of more storylines being adapted in future seasons, despite not being included in season 2.
+---------
+
+# This Mario Game May Explain How Bowser Jr. Is Defeated In The Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Thu, 12 Mar 2026 23:15:18 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-sunshine-fludd-beat-bowser-jr/
+
+An iconic device from a classic Mario game may be instrumental to the fight against Bowser Jr. in The Super Mario Galaxy Movie.
+---------
+
+# First New Sailor Moon Design in Years Finally Comes to America With Official April Debut
+
+Anime, Sailor Moon
+
+Thu, 12 Mar 2026 23:30:16 GMT
+
+https://www.cbr.com/sailor-moon-universal-studios-hollywood-show/
+
+Sailor Moon fans in North America get the chance to watch one of the franchise's most spectacular shows, and it's only weeks away.
+---------
+
+# 55 Best Manga of All Time
+
+Anime, Manga
+
+Thu, 12 Mar 2026 23:23:42 GMT
+
+https://www.cbr.com/best-manga-ever/
+
+From Demon Slayer and Naruto to Akira and Slam Dunk, the best manga of all time continue to captivate new and seasoned readers.
+---------
+
+# Crunchyroll's Spy x Family Is the Perfect Binge at 50 Episodes
+
+Anime, Spy X Family, Crunchyroll, War, Spy x Family
+
+Thu, 12 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/crunchyroll-best-war-anime-bingewatch-spy-x-family/
+
+This 3-part drama inspired by the Cold War is one of the most bingeable anime streaming on Crunchyroll.
+---------
+
+# 10 Years Later, Mark Wahlberg's Big-Budget Disaster Epic Wins Big on Streaming
+
+Movie News, Mark Wahlberg, Deepwater Horizon, Peter Berg, Kurt Russell
+
+Thu, 12 Mar 2026 23:57:58 GMT
+
+https://collider.com/mark-wahlberg-disaster-epic-deepwater-horizon-streaming-success-netflix-march-2026/
+
+Mark Wahlberg's true-story disaster epic Deepwater Horizon tanked at the box office, but it's redeeming itself on streaming a decade later.
+---------
+
+# Russell Crowe’s Hard-Boiled Detective Drama Is a Must-Watch for 'Cross' Fans
+
+Movie News, Sleeping Dogs, Russell Crowe, Cross, Netflix
+
+Thu, 12 Mar 2026 23:49:56 GMT
+
+https://collider.com/russell-crowe-detective-drama-cross-replacement-sleeping-dogs-streaming-success-paramount-plus-march-2026/
+
+Russell Crowe's hard-boiled detective drama is winning over Cross fans as it dominates watchlists. Read on for more details.
+---------
+
+# Fans of Alan Ritchson’s ‘War Machine’ Help Tom Cruise’s 126-Minute Sci-Fi Epic Explode on Streaming
+
+Movie News, Oblivion, Tom Cruise, Alan Ritchson, War Machine
+
+Thu, 12 Mar 2026 23:45:12 GMT
+
+https://collider.com/tom-cruise-alan-ritchson-war-machine-replacement-oblivion-streaming-success-apple-tv-march-2026/
+
+Tom Cruise's 126-minute sci-fi film is winning big on streaming thanks to fans of Alan Ritchson's War Machine. Find out which movie it is here.
+---------
+
+# These Netflix 4-Part Miniseries Are Classics You Can Binge in a Weekend
+
+TV, Netflix, Adolescence, All The Light We Cannot See, Death By Lightning
+
+Thu, 12 Mar 2026 23:38:12 GMT
+
+https://collider.com/netflix-4-part-miniseries-binge-in-a-weekend/
+
+Adolescence, Death by Lightning, and When They See Us are among Netflix's best miniseries that are only four episodes, perfect to binge in a weekend.
+---------
+
+# Apple TV+'s 3-Part Sleeper Hit Comedy Just Keeps Getting Better
+
+TV Features, Shrinking, Jason Segel, Brett Goldstein, Harrison Ford
+
+Thu, 12 Mar 2026 23:30:12 GMT
+
+https://collider.com/shrinking-apple-tv-plus-best-comedy/
+
+Jason Segel stars in Shrinking, a series about grief from the perspective of a therapist who decides to tell his patients exactly what he thinks.
+---------
+
+# 10 Near-Perfect Animated Movies That No One Remembers Today
+
+Movie, Animation, Cat City, The Remarkable Life of Ibelin, In This Corner of the World
+
+Thu, 12 Mar 2026 23:30:12 GMT
+
+https://collider.com/near-perfect-animated-movies-no-one-remembers-today/
+
+In This Corner of the World, Cat City, and The Adventures of Prince Achmed are breathtaking animated movies that you probably haven't even heard of.
+---------
+
+# 15 Fantasy Movies That Are Bangers From Start to Finish
+
+Movie, Fantasy, The Lord of the Rings: The Return of the King, The Green Knight, Harry Potter
+
+Thu, 12 Mar 2026 23:13:12 GMT
+
+https://collider.com/best-fantasy-movies-bangers/
+
+Some fantasy films prove to be filled with quality and excellent in each passing moment, such as Pan's Labyrinth, Spirited Away, and The Wizard of Oz.
+---------
+
+# Apple TV’s $10M Episodic Sci-Fi Gamble Paid Off With 3 Near-Perfect Seasons
+
+TV Features, Foundation, Lee Pace, David S. Goyer, Apple TV
+
+Thu, 12 Mar 2026 23:03:12 GMT
+
+https://collider.com/foundation-apple-tv-sci-fi-10-million-per-episode-near-perfect-seasons/
+
+Apple TV's Foundation delivers a visually stunning and engaging sci-fi epic, justifying its $10 million per episode budget.
+---------
+
+# New 'Malcolm in the Middle' Revival Trailer Released
+
+TV News, Malcolm in the Middle: Life's Still Unfair, Frankie Muniz, Bryan Cranston
+
+Thu, 12 Mar 2026 23:34:16 GMT
+
+https://movieweb.com/malcolm-in-the-middle-sequel-trailer/
+
+Things have only gotten wilder in the 20 years since we last saw Malcolm and his family.
+---------
+
 # The Lighting Strike That Saves Luffy In One Piece Season 2 Isn't An Accident
 
 Streaming TV, One Piece
