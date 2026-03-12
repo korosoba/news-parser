@@ -1,3 +1,267 @@
+# The Gates Review: Mason Gooding & James Van Der Beek's Bad Night Is Aggressively Dull
+
+Movies, The Gates
+
+Thu, 12 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/the-gates-movie-2026-review/
+
+Mason Gooding and James Van Der Beek certainly try to elevate The Gates, but John Burr's script is a woefully simple-minded affair lacking everything.
+---------
+
+# PlayStation 6 Release Date Leak Confirms We Need To Start Saving Now
+
+Gaming, PlayStation 5
+
+Thu, 12 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/playstation-6-release-window-2027-leak/
+
+The PlayStation 6 could be set for a release relatively soon, so you might want to start saving up for it soon.
+---------
+
+# Move Over Jujutsu Kaisen and Frieren: 2026's Anime of the Year is the Series No One is Talking About
+
+Anime, Jujutsu Kaisen, Frieren: Beyond Journey's End, In the Clear Moonlit Dusk, In the Clear Moonlit Dusk (2020)
+
+Thu, 12 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/clear-moonlit-dusk-anime-year-2026-not-frieren-jujutsu-kaisen/
+
+As shows like Jujutsu Kaisen and Frieren: Beyond Journey's End dominate headlines, a lesser-known series is quietly becoming anime of the year.
+---------
+
+# 8 Biggest Things You Learn Rewatching All Pirates Of The Caribbean Movies In Order
+
+Movies, Pirates of the Caribbean, Pirates of the Caribbean: The Curse of the Black Pearl, Pirates of the Caribbean: Dead Man's Chest, Pirates of the Caribbean: At World's End, Pirates of the Caribbean: On Stranger Tides, Pirates of the Caribbean: Dead Men Tell No Tales
+
+Thu, 12 Mar 2026 21:51:19 GMT
+
+https://screenrant.com/pirates-of-the-caribbean-rewatch-in-order-lessons/
+
+The franchise contains many details you may miss unless you watch all the films in order, such as strange character arcs and the rules of the sea.
+---------
+
+# How Many Kids J.D. Has In Scrubs Revival Clarified By Showrunner
+
+TV, Scrubs
+
+Thu, 12 Mar 2026 21:19:44 GMT
+
+https://screenrant.com/scrubs-how-many-kids-jd-explained-aseem-batra/
+
+Scrubs is back after 16 years off the air, but fans still have a major question about J.D.’s family, which the showrunner has now answered.
+---------
+
+# Wapol's Future In One Piece Live-Action Series Discussed By Rob Colletti
+
+Streaming TV, One Piece, Netflix
+
+Thu, 12 Mar 2026 21:13:09 GMT
+
+https://screenrant.com/wapol-one-piece-season-3-future-return-potential-rob-colletti-response/
+
+One Piece live-action actor Rob Colletti discusses the possibility of Wapol's return in future seasons, hinting at the character's emotional depth and potential redemption arc.
+---------
+
+# Nicole Kidman's Scarpetta is Prime Video's Latest Crime Thriller Hit
+
+TV, Scarpetta, Crime, Prime Video
+
+Thu, 12 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/scarpetta-crime-thriller-prime-video-success-march-2026/
+
+Nicole Kidman's Scarpetta becomes Prime Video's No. 1 most-watched TV series in the U.S. after just one day.
+---------
+
+# Avengers: Doomsday Needs to Fix The MCU Captain America Problem
+
+Movies, Avengers: Doomsday, The Falcon and the Winter Soldier, Captain America: Brave New World
+
+Thu, 12 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/avengers-doomsday-fix-mcu-sam-wilson-captain-america-problem/
+
+Following his recent adventures in the MCU, there's a huge problem facing Sam Wilson's Captain America in Avengers: Doomsday.
+---------
+
+# Yakoh Shinobi Ops Director Talks Making a Ninja Game (Exclusive)
+
+Games, PlayStation (Original), yakoh shinobi ops
+
+Thu, 12 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/yakoh-shinobi-ops-interview-2026-ninja-game/
+
+Yakoh Shinobi Ops director, Takumi Hirai, sits down with CBR to talk about the co-op ninja gameplay, character designs, abilities, and more.
+---------
+
+# Timothy Olyphant & Pedro Pascal's Star Wars Team-Up Is Already a Modern Classic
+
+TV, The Mandalorian
+
+Thu, 12 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/timothy-olyphant-pedro-pascal-the-mandalorian-team-up-modern-classic/
+
+This now iconic TV episode brought together two icons for a truly unforgettable Sci-Fi Western adventure that could influence a franchise's future.
+---------
+
+# Resident Evil Requiem Story Expansion Officially Coming Soon
+
+Games, Resident Evil
+
+Thu, 12 Mar 2026 21:56:12 GMT
+
+https://www.cbr.com/resident-evil-requiem-expansion-coming-2026/
+
+The director of Resident Evil Requiem gives fans a surprising update on the future of the franchise and the game's next chapter.
+---------
+
+# Marvel Debuts Jessica Jones' Striking New Look Ahead Of Krysten Ritter's Return
+
+Comics, Marvel, Marvel Comics, Daredevil, Daredevil: Born Again
+
+Thu, 12 Mar 2026 21:52:49 GMT
+
+https://www.cbr.com/marvel-jessica-jones-striking-new-look-ahead-of-krysten-ritters-daredevil-return/
+
+If you thought you were ready for Jessica Jones' return in March, think again, because Marvel just shook things up with her new look.
+---------
+
+# Paramount+ Has the Perfect Marathon for Horror Fans on Friday the 13th
+
+Movies, Friday the 13th, Paramount Plus
+
+Thu, 12 Mar 2026 21:34:36 GMT
+
+https://www.cbr.com/friday-the-13th-streaming-paramount-plus-march-2026/
+
+Horror fans celebrating Friday the 13th this month will have to do so on Paramount+.
+---------
+
+# Super Mario 3D World - World Castle (100% Completion) by Mario Party Legacy (Clip)
+
+Games, Nintendo
+
+Thu, 12 Mar 2026 21:31:53 GMT
+
+https://www.cbr.com/video/super-mario-3d-world-world-castle-100-completion-by-mario-party-legacy-clip/
+
+100% Completion of Super Mario 3D World - World Castle by Mario Party Legacy
+---------
+
+# Lord of the Rings' Missing Its Aragorn vs. Sauron Scene Is the Trilogy's Most Controversial Change
+
+Movies, Fantasy, The Lord of the Rings
+
+Thu, 12 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-aragorn-vs-sauron-scene-controversial-change/
+
+Fans are divided on whether Peter Jackson was right to delete this dramatic fight scene from the end of The Lord of the Rings: The Return of the King.
+---------
+
+# Super Mario 3D World - World Mushroom (100% Completion) by Mario Party Legacy (Clip)
+
+Games, Nintendo
+
+Thu, 12 Mar 2026 21:25:47 GMT
+
+https://www.cbr.com/video/super-mario-3d-world-world-mushroom-100-completion-by-mario-party-legacy-clip/
+
+100% Completion of Super Mario 3D World - World Mushroom by Mario Party Legacy
+---------
+
+# 'The Pitt's Isa Briones Returns to Broadway 'Just in Time' With a Look at Her New Role [Exclusive]
+
+Exclusives, Isa Briones, The Pitt, Matthew Morrison, Jonathan Groff
+
+Thu, 12 Mar 2026 22:00:13 GMT
+
+https://collider.com/the-pitt-star-isa-briones-brodway-return-just-in-time-connie-francis-character-details/
+
+Isa Briones teases the “grace and femininity” she’ll get to embody as Connie Francis in Broadway’s Just in Time. Learn more here!
+---------
+
+# 1988 No. 1 Hit Sold Over a Million Copies and Became One of the Decade’s Biggest Songs
+
+Music Features, Paula Abdul, Pop, American Idol, 80s, Music
+
+Thu, 12 Mar 2026 21:44:54 GMT
+
+https://collider.com/1988-no-1-hit-sold-over-a-million-copies-and-became-one-of-the-decades-biggest-songs/
+
+Paula Abdul’s 1988 hit Straight Up sold over 1 million copies, reached No. 1 on the Billboard Hot 100, and became a defining pop song of the 1980s.
+---------
+
+# Amazon’s Failed $60 Million ‘Mad Max’ Attempt Sets Prime Video Ablaze
+
+Movie News, Afterburn, Prime Video, Dave Bautista, Samuel L. Jackson
+
+Thu, 12 Mar 2026 21:35:23 GMT
+
+https://collider.com/amazon-mad-max-replacement-afterburn-streaming-success-prime-video-march-2026/
+
+Amazon's failed $60 million Mad Max replacement has found redemption streaming on Prime Video after bombing at the box office.
+---------
+
+# 10 Movie Masterpieces That Are Even More Relevant Today
+
+Movie, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, Network, All the President's Men, The Great Dictator
+
+Thu, 12 Mar 2026 21:19:13 GMT
+
+https://collider.com/movie-masterpieces-more-relevant-today/
+
+From All the President's Men to Network, these classic movie gems are truly timeless, and their messages feel more relevant and powerful than ever.
+---------
+
+# Kerry Washington's 30% Rotten Tomatoes Actioner Becomes a Surprise Prime Video Hit
+
+Movie News, Shadow Force, Kerry Washington, Prime Video, Streaming
+
+Thu, 12 Mar 2026 21:17:52 GMT
+
+https://collider.com/prime-video-kerry-washington-action-movie-shadow-force-streaming-success-march-2026/
+
+Kerry Washington's action movie that earned just $5 million from a reported $40 million budget is a quiet streaming hit on Prime Video.
+---------
+
+# Sylvester Stallone's 4-Part Crime Thriller Adds a 'The Rookie' Star in New Key Role
+
+TV News, Tulsa King, Flula Borg., Taylor Sheridan, Sylvester Stallone
+
+Thu, 12 Mar 2026 21:09:31 GMT
+
+https://collider.com/tulsa-king-season-4-cast-flula-borg-tech-billionaire-taylor-sheridan/
+
+Taylor Sheridan’s highest-rated crime drama, Tulsa King, has cast the perfect star to play a tech billionaire facing off against Sylvester Stallone.
+---------
+
+# 'Starfleet Academy' Season 1 Finale Explains Why Discovery Doesn't Help Save the Day
+
+Features, Star Trek: Starfleet Academy, Star Trek, Star Trek: Discovery
+
+Thu, 12 Mar 2026 22:01:17 GMT
+
+https://movieweb.com/starfleet-academy-missing-discovery-cameo-fixed/
+
+The USS Discovery's Spore Drive would have been a huge advantage in 'Starfleet Academy's Season 1 finale. Here's why the ship is absent.
+---------
+
+# 'Big Mistakes' Trailer Reveals Dan Levy's New Netflix Series, Release Date
+
+TV News, Dan Levy, Netflix
+
+Thu, 12 Mar 2026 21:42:53 GMT
+
+https://movieweb.com/big-mistakes-trailer-netflix/
+
+The 'Schitt's Creek' creator is returning to the small screen with an ambitious new series for the streamer.
+---------
+
 # DC Reinvents Batman's Court Of Owls As Heroes
 
 DC Comics, Batman
