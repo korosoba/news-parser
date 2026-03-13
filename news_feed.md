@@ -1,3 +1,344 @@
+# Netflix's Best K-Drama of 2026 is Officially Over, and It Needs a Second Season
+
+Anime, Netflix, K-Drama
+
+Fri, 13 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/netflix-best-action-k-drama-miss-hong-season-2/
+
+From its nostalgic '90s setting to its exceptional female-led cast, Undercover Miss Hong is Netflix's new sleeper hit and it needs a sequel.
+---------
+
+# Prime Video's The Legend Of Vox Machina Is One Of Its Best
+
+Streaming TV, The Legend of Vox Machina
+
+Fri, 13 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/prime-video-the-legend-of-vox-machina-best-show/
+
+Prime Video has put out several big TV winners, but its 3-season fantasy show, which has wowed critics across the board, is among the very best.
+---------
+
+# Missing Resident Evil Requiem? Check Out This Free Resi Adventure Now
+
+Gaming, Resident Evil, Triple-A Games
+
+Fri, 13 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/resident-evil-requiem-free-download-revelations-episode-one/
+
+If you haven't had the chance to check out the stellar Resident Evil Requiem for any reason, there's another RE experience right around the corner.
+---------
+
+# Pink Floyd Syd Barrett Firing: The One Word That Changed Rock History
+
+Music, Classic Rock, Pink Floyd
+
+Fri, 13 Mar 2026 22:55:15 GMT
+
+https://screenrant.com/pink-floyd-syd-barrett-no-one-word-firing/
+
+Before the stadium tours and flying pigs, Pink Floyd was defined by a brutal betrayal in a driveway that changed rock history forever.
+---------
+
+# Top 3 Must-Watch Netflix Shows This Weekend: March 13–15, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 13 Mar 2026 22:44:18 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-watch-weekend-march-13-15-2026/
+
+The top Netflix shows to binge-watch this weekend include The Man in the High Castle, the Murdoch dynasty docuseries and the crime mystery That Night.
+---------
+
+# Larry David His New HBO Series At SXSW
+
+TV, Larry David, SXSW, HBO
+
+Fri, 13 Mar 2026 22:35:24 GMT
+
+https://screenrant.com/new-larry-david-hbo-show-title-cast-release-date-details/
+
+Larry David discusses his hilarious upcoming HBO series celebrating the United States of America's 250th anniversary at SXSW.
+---------
+
+# 10 Underrated & Forgotten TV Shows Worth Revisiting
+
+Classic TV
+
+Fri, 13 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/near-perfect-tv-shows-no-one-remembers-today/
+
+Some great TV shows became forgettable & not because of their quality, but because of poor marketing, strong competition, bad release plans, & more.
+---------
+
+# Charlie Day Teases It’s Always Sunny Season 18’s Follow-Up Episode
+
+TV, It's Always Sunny in Philadelphia, Guillermo del Toro, Charlie Day
+
+Fri, 13 Mar 2026 22:20:25 GMT
+
+https://screenrant.com/its-always-sunny-in-philadelphia-season-18-charlie-day-mcpoyle/
+
+Charlie Day reveals the return of an iconic guest star in the highly anticipated It's Always Sunny in Philadelphia season 18 and more.
+---------
+
+# Reminders of Him's Only Genuinely Solid Quality Highlights The Best Part Of Colleen Hoover Movies
+
+Movies, Reminders of Him
+
+Fri, 13 Mar 2026 22:20:18 GMT
+
+https://screenrant.com/reminders-of-you-colleen-hoover-movies-casting/
+
+Reminders of Him is the latest adaptation of a Colleen Hoover book to suffer from a core thematic weakness but benefit from a common strength.
+---------
+
+# Jared Padalecki Has Finally Completed His First Movie After 16 Years With New Netflix Adaptation
+
+Movies, Guarding Stars, Jared Padalecki, Netflix
+
+Fri, 13 Mar 2026 22:07:10 GMT
+
+https://screenrant.com/guarding-stars-netflix-movie-filming-wrapped-jared-padalecki/
+
+Jared Padalecki is best known for his role on Supernatural, but the actor is returning to the movies with a new Netflix romcom, which he just filmed.
+---------
+
+# Transformers' Star-Spangled Star Eagle Has Officially Landed in America
+
+Anime, Transformers, toys, merchandise, hasbro, action figures
+
+Fri, 13 Mar 2026 23:02:12 GMT
+
+https://www.cbr.com/transformers-deluxe-class-star-eagle-hasbro-walmart-collector-con-release/
+
+Hasbro and the Transformers are ready to celebrate the USA's next major milestone in style with a pitch-perfect Star-Spangled Star Eagle release.
+---------
+
+# 10 Weirdest Details in '90s Sitcoms
+
+TV, Sitcoms, The Fresh Prince of Bel-Air, Friends, Boy Meets World
+
+Fri, 13 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/90s-sitcoms-weirdest-details-list/
+
+'90s sitcoms are the pinnacle of nostalgia. But it seems like some of the best shows also share some of the oddest traits.
+---------
+
+# After The Bride!, Universal Has 5 Classic Monsters That Deserve Their Own Revival Movie
+
+Movies, The Bride!, Horror
+
+Fri, 13 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/the-bride-universal-classic-monsters-deserve-revival-list/
+
+The Bride! proves Universal Monsters still deserve attention, and there are many others that could thrive with a modern audience.
+---------
+
+# Firefly PVOD Surge on Amazon Prime Video Amid Reunion Teases
+
+TV, Firefly
+
+Fri, 13 Mar 2026 22:50:04 GMT
+
+https://www.cbr.com/nathan-fillions-14-episode-cult-sci-fi-surges-on-streaming-after-major-announcement-tease/
+
+Firefly, the 2002 sci-fi adventure series created by Joss Whedon, is surging on Amazon Prime Video's PVOD chart amid reunion teases.
+---------
+
+# 7 Multi-Season Anime on Netflix With No Bad Seasons
+
+Anime, Netflix
+
+Fri, 13 Mar 2026 22:45:12 GMT
+
+https://www.cbr.com/netflix-best-anime-no-bad-seasons/
+
+Netflix's growing anime catalog hides a great selection of anime masterpieces with no bad seasons.
+---------
+
+# 8 Best Frieren Mage Staff Designs, Ranked
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 13 Mar 2026 22:40:12 GMT
+
+https://www.cbr.com/best-frieren-mage-staff-designs-ranked/
+
+The mage staffs in Frieren are unique, with different designs, and each of them has been ranked from good to best in terms of design.
+---------
+
+# Netflix’s The Lincoln Lawyer Officially Starts Production on Season 5
+
+TV, The Lincoln Lawyer
+
+Fri, 13 Mar 2026 22:37:06 GMT
+
+https://www.cbr.com/netflix-the-lincoln-lawyer-season-5-production-start/
+
+Netflix isn't wasting any time when it comes to its hit legal drama.
+---------
+
+# Cobie Smulders Open to Returning as Maria Hill in MCU
+
+TV, Secret Invasion, Marvel Cinematic Universe, superheroes
+
+Fri, 13 Mar 2026 22:35:44 GMT
+
+https://www.cbr.com/cobie-smulders-mcu-marvel-future-maria-hill/
+
+Marvel Cinematic Universe star Cobie Smulders expresses interest in reprising her role as Maria Hill, despite the character's recent demise.
+---------
+
+# The Legend of Zelda Returns This Year With 40th Anniversary Release
+
+Games, The Legend of Zelda, Nintendo
+
+Fri, 13 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/the-legend-of-zelda-returns-2026-new-release/
+
+Two years after the release of Echoes of Wisdom, The Legend of Zelda is officially returning in 2026.
+---------
+
+# Taylor Sheridan's Highest-Rated Movie Finally Gets a Major 4K Blu-Ray Release 10 Years Later
+
+Movie News, Hell or High Water, Taylor Sheridan, Chris Pine, Jeff Bridges
+
+Fri, 13 Mar 2026 22:53:24 GMT
+
+https://collider.com/taylor-sheridan-neo-western-thriller-hell-or-high-water-4k-blu-ray-release-may-2026/
+
+The second installment of Taylor Sheridan's American Frontier trilogy, Hell or High Water, starring Chris Pine, is getting a new 4K Blu-ray release.
+---------
+
+# 10 Most Criminally Forgotten '80s Shows, Ranked
+
+TV, 1980s, Fraggle Rock, Moonlighting, Growing Pains
+
+Fri, 13 Mar 2026 22:46:13 GMT
+
+https://collider.com/criminally-forgotten-80s-tv-shows-ranked/
+
+From the family sitcom Growing Pains to the Bruce Willis series Moonlighting, too many great shows in the '80s have been overshadowed and forgotten.
+---------
+
+# 10 Heaviest Sci-Fi TV Shows, Ranked
+
+TV, Sci-Fi, Black Mirror, The Last of Us, Dark
+
+Fri, 13 Mar 2026 22:45:12 GMT
+
+https://collider.com/heavy-sci-fi-shows-ranked/
+
+Explore the heaviest sci-fi shows with dense narratives, complex themes, and grim tones, seen in series like The Last of Us, Dark, and Black Mirror.
+---------
+
+# Netflix Kills Off One of Matt Damon's All-Time Best Movies
+
+Movie News, Matt Damon, The Talented Mr. Ripley, Psychological Thriller, Netflix
+
+Fri, 13 Mar 2026 22:37:40 GMT
+
+https://collider.com/matt-damon-crime-thriller-the-talented-mr-ripley-leaving-netflix-march-13/
+
+Matt Damon's Oscar-nominated role in The Talented Mr. Ripley is sadly no longer available to stream on a particular platform. Read on for more.
+---------
+
+# Netflix Serves Up a 91% RT Historical Drama for ‘Bridgerton’ Fans
+
+Movie News, Netflix, Downton Abbey: The Grand Finale, Romance, Bridgerton
+
+Fri, 13 Mar 2026 22:24:09 GMT
+
+https://collider.com/bridgerton-replacement-downton-abbey-the-grand-finale-streaming-march-2026/
+
+A lavish two-hour period-drama sequel lands on Netflix in the midst of Bridgerton Season 4, giving fans another scandal-filled escape.
+---------
+
+# 10 Greatest Sci-Fi Movie Masterpieces of the Last 15 Years, Ranked
+
+Movie, Science Fiction, Dune: Part Two, Everything Everywhere All at Once, Melancholia
+
+Fri, 13 Mar 2026 22:19:12 GMT
+
+https://collider.com/best-sci-fi-movie-masterpieces-last-15-years-ranked/
+
+Since 2011, several movies have proven themselves as true masterpieces of the sci-fi genre, including Arrival and Everything Everywhere All at Once.
+---------
+
+# 2 Years After 'Curb Your Enthusiasm' Ended, Larry David Returns to HBO
+
+TV News, Larry David, HBO, Curb Your Enthusiasm, Barack Obama
+
+Fri, 13 Mar 2026 22:15:26 GMT
+
+https://collider.com/hbo-larry-david-curb-your-enthusiasm-replacement-life-larry-and-the-pursuit-of-unhappiness-sneak-peek/
+
+At long last, Curb Your Enthusiasm icon Larry David returns in the first sneak peek at his Obama-produced series. See it here!
+---------
+
+# Steve Carell’s Return to TV Just Broke a 10-Year-Old Record on HBO
+
+TV News, Rooster, Bill Lawrence, HBO Max, Steve Carell
+
+Fri, 13 Mar 2026 22:09:58 GMT
+
+https://collider.com/steve-carell-new-series-rooster-hbo-viewing-record-biggest-comedy-debut-in-10/
+
+HBO’s new comedy-drama Rooster has become the network’s biggest U.S. comedy debut in more than 10 years, drawing 2.4 million viewers.
+---------
+
+# 'Seekers of Infinite Love' Review: Hannah Einbinder Can’t Rescue a Familiar Family Road Trip
+
+Movie Reviews, Seekers of Infinite Love, Hannah Einbinder, Justin Theroux, SXSW
+
+Fri, 13 Mar 2026 22:08:40 GMT
+
+https://collider.com/seekers-of-infinite-love-review-hannah-einbinder-justin-theroux-sxsw/
+
+Seekers of Infinite Love has a decent cast and some fun moments, but it isn’t quite as funny or charming as one would hope.
+---------
+
+# 'Scrubs' Revival's "My Poker Face" Wastes What Could Have Been 2 Iconic Patient Storylines
+
+Features, Scrubs
+
+Fri, 13 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/scrubs-revival-cracks-showing/
+
+The patients could often be the highlight of classic-era 'Scrubs' episodes, but "My Poker Face" proves the show is struggling in this respect.
+---------
+
+# New Trailer for 97%-Rated Horror Flick 'Obsession' Released
+
+Movie News, Obsession
+
+Fri, 13 Mar 2026 22:49:08 GMT
+
+https://movieweb.com/obsession-horror-movie-trailer/
+
+The viral content creator Curry Baker is taking his talents to the film industry
+---------
+
+# Denzel Washington's Hannibal Movie Officially Filming This Summer
+
+Movie News
+
+Fri, 13 Mar 2026 22:23:09 GMT
+
+https://movieweb.com/denzel-washington-hannibal-netflix-filming/
+
+The actor's reunion with 'Training Day' director Antoine Fuqua was initially announced back in 2023.
+---------
+
 # DC Officially Unveils New Shazam Design and Codename for Superman's New Comic Appearance
 
 Comics, Shazam, Superman
