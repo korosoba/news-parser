@@ -1,3 +1,388 @@
+# Better Call Saul: The Ultimate Spinoff Success Story
+
+TV, Better Call Saul, Breaking Bad
+
+Fri, 13 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/better-call-saul-make-spinoffs-look-easy/
+
+TV spinoffs have a notoriously high failure rate, but this six-part masterpiece is the gold standard for how to go about following up a beloved show.
+---------
+
+# 4 Burning Questions Alan Ritchson's War Machine Sequel Must Answer
+
+New Movies, War Machine
+
+Fri, 13 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/war-machine-sequel-questions-answer/
+
+There are some major unanswered questions left from War Machine that a sequel to Alan Ritchson's action sci-fi movie will have to answer.
+---------
+
+# Steven Spielberg Officially Making First-Ever Western Movie After 55 Years & It “Kicks Ass”
+
+Movies, Steven Spielberg, Western
+
+Fri, 13 Mar 2026 19:28:25 GMT
+
+https://screenrant.com/steven-spielberg-western-movie-development-update/
+
+Steven Spielberg is stepping out of his comfort zone and getting fitted for a cowboy hat, as he reveals he's making a Western film that "kicks ass."
+---------
+
+# Prime Video's Underrated 8-Part Sci-Fi Series Should've Streamed On A Rival Platform
+
+Classic TV, The Peripheral
+
+Fri, 13 Mar 2026 19:27:19 GMT
+
+https://screenrant.com/prime-video-the-peripheral-sci-fi-series-stream-apple/
+
+Prime Video abruptly canceled a sci-fi series with great potential — but it may have had a  better chance at success is it was on a rival streamer.
+---------
+
+# Billy Joel Health Update: Piano Man’s Emotional Full Circle At Carnegie Hall
+
+Music, Billy Joel, Classic Rock
+
+Fri, 13 Mar 2026 19:17:09 GMT
+
+https://screenrant.com/billy-joel-health-update-carengie-hall/
+
+Alexa Ray Joel shares a major health update on Billy Joel’s brain disorder recovery after a rare appearance at his Carnegie Hall tribute concert.
+---------
+
+# Netflix's 10-Part Thriller Series With High Rotten Tomatoes Score Is The Perfect Weekend Binge
+
+TV, Netflix, The Society
+
+Fri, 13 Mar 2026 19:13:55 GMT
+
+https://screenrant.com/the-society-netflix-thriller-series-must-watch/
+
+Netflix's 10-part thriller series makes for a perfect weekend binge due to its exciting cast, tense atmosphere, and mind-bending mysteries.
+---------
+
+# Keanu Reeves' 2025 R-Rated Fantasy Flop Is Now Redeemed As American Streaming Sensation
+
+Movies, Good Fortune, Keanu Reeves, STARZ, Streaming Charts
+
+Fri, 13 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/keanu-reeves-good-fortune-starz-streaming-success-march-2026/
+
+After struggling at the box office in 2025, Keanu Reeves' R-rated fantasy movie finds new success in 2026 as a streaming hit for the beloved actor.
+---------
+
+# Warrior: The Best Martial Arts TV Series of All Time
+
+Classic TV, Warrior
+
+Fri, 13 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/warrior-hbo-series-best-martial-arts-tv-show/
+
+Based on an original idea by the late, great Bruce Lee, HBO's three-season action drama Warrior is the greatest martial arts TV show ever made.
+---------
+
+# Project Hail Mary's Rotten Tomatoes Score Continues An Impressive 17-Year Streak
+
+Movies, Project Hail Mary
+
+Fri, 13 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/project-hail-mary-rotten-tomatoes-score-director-streak/
+
+Project Hail Mary, starring Ryan Gosling, has earned a strong critic score on Rotten Tomatoes, continuing an impressive streak that started in 2009.
+---------
+
+# 10 Most Important Nintendo Games Of All Time
+
+Gaming, Nintendo
+
+Fri, 13 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/most-important-nintendo-games-all-time/
+
+Explore the top 10 Nintendo games that have shaped the gaming industry, from Super Mario Bros. to Animal Crossing, and their impact on the world.
+---------
+
+# Frieren Season 2 Episode 8 Review: Stark’s Smirk Says It All
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 13 Mar 2026 19:37:12 GMT
+
+https://www.cbr.com/frieren-season-2-episode-8-review/
+
+Sorry JJK fans, Frieren Season 2 just released one of the coolest anime fights in the single best anime episode of the year, and it’ll be hard to top.
+---------
+
+# NBCU Cancels Access Hollywood, Karamo, the Steve Wilkos Show
+
+TV, nbc universal, NBC
+
+Fri, 13 Mar 2026 19:36:09 GMT
+
+https://www.cbr.com/access-hollywood-karamo-steve-wilkos-canceled-nbc-universal/
+
+NBCUniversal cancels its long-running series Access Hollywood, Karamo, and The Steve Wilkos Show as it exits the first-run syndication business.
+---------
+
+# Top 10 Anime to Watch in Spring 2026, According to Japan
+
+Anime, Isekai, Farming Life in Another World, That Time I Got Reincarnated as a Slime, Re:Zero -Starting Life in Another World-
+
+Fri, 13 Mar 2026 19:30:13 GMT
+
+https://www.cbr.com/anime-spring-2026-ranking-japan-survey/
+
+Animate Times reveals which 10 titles have viewers in Japan waiting with bated breath for the upcoming Spring 2026 anime season.
+---------
+
+# 10 Anime Movies Where Every Frame Is a Masterpiece
+
+Anime, Ghost in the Shell, Akira, Mononoke the Movie: The Phantom in the Rain, Princess Mononoke, Angel's Egg, Promare, Neon Genesis Evangelion, Perfect Blue, The Night Is Short, Walk On Girl, Redline
+
+Fri, 13 Mar 2026 19:25:12 GMT
+
+https://www.cbr.com/best-anime-movie-masterpieces/
+
+The anime industry is quickly stepping up its game, but some of the most gorgeous films ever animated are still classics that aged incredibly well.
+---------
+
+# Scarlett Johansson's Horror The Exorcist From Mike Flanagan Starts Production
+
+Movies, The Exorcist
+
+Fri, 13 Mar 2026 19:00:26 GMT
+
+https://www.cbr.com/scarlett-johansson-the-exorcist-production-start/
+
+The reboot will feature ScarJo's first horror role.
+---------
+
+# The 8 Biggest Blockbuster Letdowns of the 2020s So Far
+
+Movies, One Battle After Another, MCU, Indiana Jones
+
+Fri, 13 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/biggest-blockbuster-failures-2020s-list/
+
+The 2020s have had no shortage of surprising and disappointing box office flops, and some stand out as examples of missed opportunities for Hollywood.
+---------
+
+# 5 Hidden Gem Detective Shows Every Mystery Fan Should Binge
+
+TV, Mystery, Line of Duty, The Afterparty
+
+Fri, 13 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/best-underrated-detective-shows-list/
+
+There are some hidden gem detective shows to discover with captivating stories and intriguing murder mysteries that every mystery fan should binge.
+---------
+
+# Paramount+ Confirms the End of an Era for Mayor of Kingstown
+
+TV, Mayor of Kingstown
+
+Fri, 13 Mar 2026 18:57:29 GMT
+
+https://www.cbr.com/paramount-confirms-mayor-of-kingstown-ending/
+
+It's officially the end of an era for the hit Taylor Sheridan series on Paramount+.
+---------
+
+# Taylor Sheridan's The Madison Rotten Tomatoes Score Unveiled
+
+TV, The Madison, Marshals
+
+Fri, 13 Mar 2026 18:21:23 GMT
+
+https://www.cbr.com/taylor-sheridan-the-madison-rotten-tomatoes-score/
+
+After Marshals scored an unwanted franchise record, the new Western series gets the the Sheridanverse back on track.
+---------
+
+# Netflix’s 6-Part Crime Thriller Earned 127M Hours of Viewership in Just 6 Months
+
+TV Features, Untamed, Eric Bana, Sam Neill, Netflix
+
+Fri, 13 Mar 2026 19:33:12 GMT
+
+https://collider.com/untamed-netflix-thriller-127-million-hours-viewership/
+
+This Netflix thriller set in Yosemite quietly racked up 127M viewing hours in six months. Here’s why Untamed deserves a spot on your watchlist.
+---------
+
+# 10 Greatest Screenplays of the '80s, Ranked
+
+Movie, The Princess Bride, Raging Bull, Raiders of the Lost Ark, Blue Velvet
+
+Fri, 13 Mar 2026 19:29:12 GMT
+
+https://collider.com/best-screenplays-80s-ranked/
+
+The screenplays for movie masterpieces like Raging Bull, Blue Velvet, and When Harry Met Sally... rank among the greatest produced during the 1980s.
+---------
+
+# 10 Greatest Netflix Shows You Can Binge in One Week, Ranked
+
+TV, Netflix, Bridgerton, Mindhunter, The Haunting of Hill House
+
+Fri, 13 Mar 2026 19:24:12 GMT
+
+https://collider.com/best-netflix-shows-binge-one-week-ranked/
+
+Discover the top Netflix shows that are perfect for binge-watching in just one week, including shows like Bridgerton, Mindhunter, and One Day.
+---------
+
+# 1975 Bob Dylan Song Ranked Among the Greatest Classic Rock Tracks of All Time
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Fri, 13 Mar 2026 19:17:59 GMT
+
+https://collider.com/1975-bob-dylan-song-now-ranked-among-the-greatest-classic-rock-tracks-of-all-time/
+
+Bob Dylan’s Tangled Up in Blue from the 1975 album Blood on the Tracks remains one of his most iconic folk-rock songs with a complex story.
+---------
+
+# Guy Ritchie's First Sherlock Holmes Project in 15 Years Is a Runaway Hit on Prime Video
+
+Movie News, Sherlock Holmes, Guy Ritchie, Young Sherlock, Hero Fiennes Tiffin
+
+Fri, 13 Mar 2026 19:12:23 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-holmes-return-streaming-success-prime-video-march-2026/
+
+Guy Ritchie's eight-episode Young Sherlock series claimed the Prime Video streaming crown, becoming an instant smash hit for the streamer.
+---------
+
+# ‘FBI’ Sneak Peek: Maggie Faces a Deadly Returning Villain Ahead of March 16th's New Episode [Exclusive]
+
+Exclusives, FBI, Missy Peregrym, CBS, Procedural
+
+Fri, 13 Mar 2026 19:06:30 GMT
+
+https://collider.com/fbi-season-8-episode-14-sneak-peek-missy-peregrym-cbs/
+
+A new sneak peek at FBI Season 8, Episode 14 finds Missy Peregrym in a dire situation with a dangerous man from her past.
+---------
+
+# Netflix's Fantasy Epic Proves the 3-Year Wait for Season 2 Was Worth It
+
+TV News, One Piece, Netflix, Adventure, Fantasy
+
+Fri, 13 Mar 2026 19:01:46 GMT
+
+https://collider.com/netflix-fantasy-series-live-action-one-piece-season-2-streaming-success-march-2026/
+
+Netflix's live-action adaptation of One Piece Season 2 has taken the streaming world by storm, debuting at #1 and dominating global charts.
+---------
+
+# After Netflix's 'The Dinosaurs,' NBC's New Must-Watch Prehistoric Disaster Series Gets Epic First Look [Exclusive]
+
+TV News, Surviving Earth, NBC, Peacock, Documentary
+
+Fri, 13 Mar 2026 19:00:12 GMT
+
+https://collider.com/surviving-earth-first-look-images-new-prehistoric-extinction-disaster-series-nbc/
+
+Discover the untold stories of Earth's mass extinctions through NBC's new series Surviving Earth, premiering June 4. Get a first look at the series!
+---------
+
+# 3 Netflix Shows Perfect for a Weekend Binge
+
+TV, Netflix, One Piece, The Man in the High Castle, Virgin River
+
+Fri, 13 Mar 2026 19:00:12 GMT
+
+https://collider.com/best-netflix-shows-watch-weekend-march-13/
+
+One Piece, The Man in the High Castle, and Virgin River make up our list of the best shows to binge on Netflix the weekend of March 13th, 2026.
+---------
+
+# Netflix Finds a Way to Dino-Dominate Streaming 1 Week After Record-Breaking New Series
+
+TV News, The Dinosaurs, Netflix, Steven Spielberg, Jurassic World Rebirth
+
+Fri, 13 Mar 2026 18:52:21 GMT
+
+https://collider.com/netflix-the-dinosaurs-streaming-event-success-dinosaur-week-march-2026/
+
+Netflix dominates streaming with its new CG-animated nature documentary series The Dinosaurs, accompanied by Jurassic World movies and much more!
+---------
+
+# 'The Gray House' Becomes Streaming Hit on Prime Video
+
+Movie News, The Gray House
+
+Fri, 13 Mar 2026 19:47:24 GMT
+
+https://movieweb.com/the-gray-house-march-streaming-hit-prime-video/
+
+'The Gray House,' a civil war thriller series produced by Kevin Costner and Morgan Freeman, has entered the Top 10 most watched shows on Prime Video.
+---------
+
+# Netflix's 'One Piece' Fails To Replicate Success of Season 1 on Streaming
+
+TV News, One Piece, Hot on Streaming, Netflix
+
+Fri, 13 Mar 2026 19:30:17 GMT
+
+https://movieweb.com/one-piece-season-2-streaming-netflix-march-2026/
+
+It's not a failure by any means, but 'One Piece' Season 2 is struggling in one peculiar way on streaming following its premiere on March 10.
+---------
+
+# Production on Taylor Sheridan's 'Mayor of Kingstown' Final Season Officially Starts
+
+TV News, Mayor of Kingstown, Taylor Sheridan, Jeremy Renner
+
+Fri, 13 Mar 2026 19:01:30 GMT
+
+https://movieweb.com/mayor-of-kingston-ending-season-5/
+
+Season 4 only wrapped up in January but the team is already back at it.
+---------
+
+# 'Silo' Season 3 Release Window Confirms Apple TV's Sci-Fi Streak Continues
+
+Features, Silo, Sci-Fi, Apple TV
+
+Fri, 13 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/silo-season-3-apple-tv-sci-fi-streak/
+
+With the impending release of 'Silo' Season 3', which stars Rebecca Ferguson, Apple TV extends its unbreakable sci-fi streak.
+---------
+
+# The DCU Is Officially Making Good on James Gunn's Promise To Vary Each Project's Style
+
+Features, DCU, James Gunn, Upcoming Tease
+
+Fri, 13 Mar 2026 18:30:16 GMT
+
+https://movieweb.com/dcu-james-gunns-style-promise/
+
+The DCU's 2026 slate will show if the franchise can be a shared universe with varying styles or just the James Gunn show.
+---------
+
+# 'Crystal Lake' Images Tease Arrival of 'Friday the 13th' Villain Pamela Voorhees
+
+TV News, Crystal Lake, Friday the 13th, Peacock
+
+Fri, 13 Mar 2026 18:13:39 GMT
+
+https://movieweb.com/crystal-lake-photos-friday-the-13th/
+
+With just a photo of a bloody knife, it's hard to ignore that iconic blue sweater.
+---------
+
 # A24's New Horror Movie Undertone Was Secretly Inspired By A Classic Children's TV Series
 
 Movies, undertone, Horror, A24
