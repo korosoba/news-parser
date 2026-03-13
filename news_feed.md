@@ -1,3 +1,333 @@
+# Why Miles Morales' Secret Third Spider-Man Movie Is Worth Watching Before Beyond The Spider-Verse
+
+Classic Movies, Explainer, Marvel
+
+Fri, 13 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/miles-morales-spider-man-movie-spider-within-recommendation/
+
+There was a third Spider-Verse movie in Miles Morales Spider-Man franchise that many people don't know about but is a fantastic addition.
+---------
+
+# 8 Best Parody Films To Watch If You Love Scary Movie
+
+Movies, Scary Movie, A Haunted House, Shaun of the Dead, Hot Fuzz, The Cabin in the Woods, Not Another Teen Movie, The Final Girls, Tucker & Dale vs. Evil, What We Do in the Shadows
+
+Fri, 13 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/best-parody-films-like-scary-movie/
+
+Scary Movie does a great job parodying horror movies, but many other films offer a unique take on the genre that fans of the series will enjoy.
+---------
+
+# The Rings Of Power Feels Like The Trailer For A Better LOTR Show That Doesn't Exist
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Fri, 13 Mar 2026 20:30:18 GMT
+
+https://screenrant.com/the-rings-of-power-feels-like-trailer-lotr-show/
+
+There was such great potential for a Second Age Lord of the Rings show, but Rings of Power feels more like the trailer than the larger product.
+---------
+
+# Marvel Comics Has The Perfect Monster To Fight Nicolas Cage's Spider-Man (Not The Lizard)
+
+Superheroes, Spider-Noir, Spider-Man
+
+Fri, 13 Mar 2026 20:30:18 GMT
+
+https://screenrant.com/spider-noir-show-vermin-monster-not-lizard-possibility/
+
+A storyline akin to the Lizard's would make a lot of sense for Spider-Noir, but he's not the only sewer-dwelling monster Ben Reilly could meet.
+---------
+
+# For Your (Re)Consideration: Kiki's Delivery Service Is A Timeless Coming-of-Age Journey
+
+Movies, Kiki's Delivery Service
+
+Fri, 13 Mar 2026 20:16:29 GMT
+
+https://screenrant.com/kikis-delivery-service-1989-movie-review-imax-rerelease/
+
+Miyazaki's blend of whimsy, slice-of-life charm, and coming-of-age themes with Ghibli’s signature artistry is as potent today as it was in 1989.
+---------
+
+# Resident Evil Meets Silent Hill In Disturbing Survival Horror Sequel
+
+Gaming, Resident Evil
+
+Fri, 13 Mar 2026 20:13:22 GMT
+
+https://screenrant.com/remothered-red-nuns-legacy-preview-resident-evil/
+
+Remothered: Red Nun’s Legacy is the long-awaited final part to the beloved survival horror trilogy, and it looks like it could be the best yet.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is Leaving On Monday)
+
+Movies, Netflix, Recommendation
+
+Fri, 13 Mar 2026 20:04:37 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-march-14/
+
+Subscribers have a great selection of movies to watch on Netflix this weekend, and they have to rush to catch a classic before it leaves the streamer.
+---------
+
+# How The Stars Of A24's Intense New Horror Movie Became Immersed In Unique Filming Format
+
+Movies, undertone, Horror, A24, Nina Kiri, Adam DiMarco
+
+Fri, 13 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/undertone-movie-a24-filming-format-immersive-tuason-kiri-dimarco/
+
+Writer/director Ian Tuason and stars Nina Kiri and Adam DiMarco talk Undertone and how the A24 horror film's unique filming format immersed them.
+---------
+
+# Hometown Cha-Cha-Cha: Netflix's Best Romantic Weekend Binge
+
+Streaming TV, Hometown Cha-Cha-Cha
+
+Fri, 13 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/hometown-cha-cha-cha-netflix-romance-drama-weekend-binge/
+
+Netflix is home to some of the greatest love stories of the century, but Hometown Cha-Cha-Cha is one of the most romantic weekend binges possible.
+---------
+
+# Pokémon Stellar Is An Unlikely Sequel To FireRed & LeafGreen
+
+Gaming, Pokemon, Triple-A Games, PC
+
+Fri, 13 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/pokemon-stellar-fire-red-leaf-green-sequel-rom-hack/
+
+Coming off of the heels of the official release of Pokémon FireRed & LeafGreen on Nintendo Switch, you can now play the Kanto sequel.
+---------
+
+# Forget The Sopranos - HBO's True Masterpiece Is Timothy Olyphant's 92% RT Western
+
+TV, Deadwood, Western, hbo, The Sopranos
+
+Fri, 13 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/timothy-olyphant-deadwood-vs-sopranos/
+
+While The Sopranos has always been the biggest HBO show, Timothy Olyphant's Western may be even better.
+---------
+
+# Project Hail Mary’s Rocky Marketing May be a Mistake
+
+Movies, Project Hail Mary, Sci-Fi
+
+Fri, 13 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-rocky-marketing-mistake/
+
+The reviews for Project Hail Mary are (inter)stellar. But one marketing aspect is concerning for book lovers.
+---------
+
+# Gachiakuta Still Hasn’t Been Beat By Any New 2026 Anime
+
+Anime, Gachiakuta, Crunchyroll, Fantasy
+
+Fri, 13 Mar 2026 20:46:12 GMT
+
+https://www.cbr.com/gachiakuta-crunchyroll-best-new-dark-fantasy/
+
+Not even the best anime offerings from 2026 have been able to beat Crunchyroll's best dark fantasy series from last year.
+---------
+
+# Steam Users Can Claim Free Game With Very Positive Reviews Until March 16
+
+Games, Steam
+
+Fri, 13 Mar 2026 20:35:12 GMT
+
+https://www.cbr.com/steam-free-game-very-positive-reviews-march-2026-deponia/
+
+A Steam game with rave reviews is 100% free for a limited time.
+---------
+
+# Sentenced to Be a Hero's Creators React to the Success of Crunchyroll's Best New Fantasy Anime
+
+CBR Exclusives, Sentenced to Be a Hero, Interviews
+
+Fri, 13 Mar 2026 20:30:37 GMT
+
+https://www.cbr.com/rocket-shokai-mephisto-sentenced-to-be-a-hero-interview/
+
+CBR sits down with Rocket Shokai and Mephisto to discuss the recent success of their hit light novel, Sentenced to Be a Hero.
+---------
+
+# Action Movies With Better Stunts Than Mission: Impossible
+
+Movies, Action, Mission: Impossible
+
+Fri, 13 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/action-movies-better-stunts-mission-impossible-list/
+
+Mission Impossible is now known for its incredible stunts, but Tom Cruise isn't the only action star to put it all on the line to entertain.
+---------
+
+# Steven Spielberg’s The Adventures of Tintin Is a Forgotten Classic
+
+Movies, the adventures of tintin, Adventure
+
+Fri, 13 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/steven-spielberg-adventures-of-tintin-hidden-classic/
+
+The masterful filmmaker's sole animated feature remains one of his most entertaining blockbusters of the 21st century.
+---------
+
+# 10 Superman Characters Who Outgrew Their Storylines
+
+Comics, DC Comics, Superman, Lex Luthor
+
+Fri, 13 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/superman-characters-outgrew-storylines/
+
+Superman has been gifted one of the greatest supporting casts of heroes and villains in comics, and some have evolved far beyond their origins.
+---------
+
+# This Infuriating but Necessary Oscar-Nominated Movie on HBO Max Is a Must-Watch
+
+Movie Features, The Alabama Solution, Academy Awards, Documentary, HBO Max
+
+Fri, 13 Mar 2026 21:05:12 GMT
+
+https://collider.com/the-alabama-solution-oscars-documentary-hbo-max/
+
+The Alabama Solution, nominated for Best Documentary at this year’s Oscars, is a horrifying, necessary film to watch.
+---------
+
+# Taylor Sheridan's 6-Part Neo-Western Has Critics Dueling on Rotten Tomatoes
+
+TV News, Taylor Sheridan, The Madison, Rotten Tomatoes, Landman
+
+Fri, 13 Mar 2026 20:56:07 GMT
+
+https://collider.com/taylor-sheridan-neo-western-the-madison-rotten-tomatoes-score-is-it-good/
+
+The critics' reviews of Taylor Sheridan's new series, The Madison, are out, and much like Landman, they paint a divisive picture. Get all the details.
+---------
+
+# Near-Perfect Dark Fantasy Movies That No One Remembers Today
+
+Movie, Faust, Fantasy, The Phantom Carriage, Macario
+
+Fri, 13 Mar 2026 20:45:13 GMT
+
+https://collider.com/near-perfect-dark-fantasy-movies-no-one-remembers-today/
+
+Faust, The Phantom Carriage, and The Meeting Point are all among the best dark fantasy movies you've probably never even heard of.
+---------
+
+# 6 Upcoming Book Adaptations That You Simply Must Watch
+
+Movie, The Odyssey, Project Hail Mary, Remarkably Bright Creatures, The Hunger Games: Sunrise on the Reaping
+
+Fri, 13 Mar 2026 20:39:12 GMT
+
+https://collider.com/upcoming-book-movie-adaptations-you-must-watch/
+
+From ambitious sci-fi sagas like Project Hail Mary to epic tales of myth like The Odyssey, these upcoming book-to-movie adaptations are unmissable.
+---------
+
+# 25 Years Later, Angelina Jolie's Video Game Icon Returns to the Spotlight Before Prime Video's Revival
+
+Movie News, Lara Croft: Tomb Raider, Angelina Jolie, Gerard Butler, Tubi
+
+Fri, 13 Mar 2026 20:38:57 GMT
+
+https://collider.com/lara-croft-tomb-raider-angelina-jolie-video-game-movie-free-streaming-success-tubi-march-2026/
+
+The Tomb Raider franchise is gaining steam on a free streaming service as anticipation builds for Prime Video and Sophie Turner's reboot.
+---------
+
+# Jennifer Garner Just Teased an ‘Alias’ Reunion 25 Years Later, but There’s a Catch [Exclusive]
+
+TV Features, Jennifer Garner, Alias, J.J. Abrams, The Last Thing He Told Me
+
+Fri, 13 Mar 2026 20:36:12 GMT
+
+https://collider.com/jennifer-garner-alias-reunion-25th-anniversary-plans-interview/
+
+When asked about the possibility of an Alias reunion or revival, Jennifer Garner said a certain condition must be met.
+---------
+
+# These Great Horror Movies Are Required Viewing for Any Film Fan
+
+Movie, Get Out, The Shining, Horror, The Thing
+
+Fri, 13 Mar 2026 20:29:12 GMT
+
+https://collider.com/best-horror-movies-required-viewing/
+
+Horror movie classics like Alien, The Shining, and The Exorcist are so great and important that anyone who calls themself a cinephile must watch them.
+---------
+
+# Jennifer Garner’s Apple TV Thriller Just Blew Up Its Entire Premise With Its Biggest Twist Yet
+
+Exclusives, Jennifer Garner, Nikolaj Coster-Waldau, The Last Thing He Told Me, Apple TV
+
+Fri, 13 Mar 2026 20:23:12 GMT
+
+https://collider.com/last-thing-he-told-me-season-2-death-jennifer-garner-nikolaj-coster-waldau-interview/
+
+Jennifer Garner and Nikolaj Coster-Waldau break down The Last Thing He Told Me's biggest midseason twists.
+---------
+
+# Watch Out, Taylor Sheridan: Steven Spielberg Is Making His First-Ever Western After 55 Years
+
+Movie News, Steven Spielberg, Western, SXSW, Disclosure Day
+
+Fri, 13 Mar 2026 20:21:09 GMT
+
+https://collider.com/steven-spielberg-next-movie-after-disclosure-day-first-western-ever-taylor-sheridan/
+
+Taylor Sheridan is getting some stiff competition, as Steven Spielberg confirms his next movie after Disclosure Day will be his first Western.
+---------
+
+# HBO's Cancelled-Too-Soon 8-Part Crime Thriller Gets a Second Life
+
+TV News, Duster, Josh Holloway, HBO, J.J. Abrams
+
+Fri, 13 Mar 2026 20:18:28 GMT
+
+https://collider.com/hbo-max-8-part-crime-thriller-duster-surges-streaming-success-march-2026/
+
+Duster, the cancelled HBO Max crime thriller from J.J. Abrams and LaToya Morgan, remains one of the streamer’s best hidden gems.
+---------
+
+# 'Star Trek: Starfleet Academy' Season 2: Production Status, Release Window, & Everything We Know
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Fri, 13 Mar 2026 21:01:16 GMT
+
+https://movieweb.com/star-trek-starfleet-academy-season-2-everything-we-know/
+
+'Starfleet Academy' has been pretty divisive among 'Star Trek' fans, but that hasn't stopped Paramount+ planning for the future.
+---------
+
+# Steven Spielberg Is Officially Making His Long-Awaited Western Debut
+
+Movie News, Western, Steven Spielberg
+
+Fri, 13 Mar 2026 20:31:50 GMT
+
+https://movieweb.com/steven-spielberg-western-movie/
+
+Steven Spielberg has teased that he's developing a Western that "kicks ass" following his upcoming sci-fi film 'Disclosure Day'.
+---------
+
 # Better Call Saul: The Ultimate Spinoff Success Story
 
 TV, Better Call Saul, Breaking Bad
