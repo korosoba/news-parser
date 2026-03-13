@@ -1,3 +1,278 @@
+# DC Officially Unveils New Shazam Design and Codename for Superman's New Comic Appearance
+
+Comics, Shazam, Superman
+
+Fri, 13 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/superman-king-shazam-redesign-absolute-universe/
+
+Hail the King!
+---------
+
+# That Thief In One Piece Season 2's Premiere Is Way More Important Than He Seems
+
+Streaming TV, One Piece
+
+Fri, 13 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/one-piece-season-2-bartolomeo-thief-important/
+
+A lowly thief is introduced to the Straw Hat Pirates in Netflix’s live-action One Piece, with the show omitting how important he will become.
+---------
+
+# 10 Great Pirate Movies For Fans Of One Piece
+
+Classic Movies, One Piece, Ranking
+
+Fri, 13 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/pirate-movies-recommendations-one-piece/
+
+With One Piece coming back to Netflix, here is a look at some of the best pirate movies that fans of the swashbuckling series can watch.
+---------
+
+# The Madison: Taylor Sheridan’s New Series Isn't A Yellowstone Spinoff – And That’s A Good Thing
+
+Streaming TV, The Madison, Taylor Sheridan, Yellowstone
+
+Fri, 13 Mar 2026 21:47:20 GMT
+
+https://screenrant.com/the-madison-taylor-sheridan-new-series-yellowstone-spinoff-explained/
+
+The Madison, starring Michelle Pfeiffer & Kurt Russell, distinguishes itself from Yellowstone while keeping Sheridan's neo-Western themes in Montana.
+---------
+
+# Paramount Shutting Down Bet+
+
+Movies, BET, BET+, Paramount Plus
+
+Fri, 13 Mar 2026 21:43:19 GMT
+
+https://screenrant.com/paramount-shutting-down-bet/
+
+Paramount is officially getting rid of another major streaming service after its acquisition of Warner Bros. Discovery.
+---------
+
+# Why Disney+'s New #1 Movie Is Taking Over The World
+
+Movies, Zootopia 2, Disney+
+
+Fri, 13 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/zootopia-2-movie-disney-plus-streaming-success-march-2026/
+
+Disney+'s latest #1 movie is dominating globally, thanks to its clever mystery, returning creators, and family-friendly adventure audiences love.
+---------
+
+# If You Loved The Substance, Don't Sleep On This Great Fusion Of Get Out And Pen15
+
+Movies, Slanted
+
+Fri, 13 Mar 2026 21:20:19 GMT
+
+https://screenrant.com/slanted-movie-rec-op-ed/
+
+Slanted is a terrific fusion of body horror, social satire, and teen dramedy that doesn't pull any punches with a story about race in high school.
+---------
+
+# Alien: Earth Season 2's Ideal Wendy & The Lost Boys Story Pitched By Star As Production Gears Up
+
+TV, Alien: Earth, Alien, Sydney Chandler, Horror, SXSW
+
+Fri, 13 Mar 2026 21:15:45 GMT
+
+https://screenrant.com/alien-earth-season-2-wendy-lost-boys-story-ideal-pitch-sydney-chandler/
+
+Exclusive: Sydney Chandler shares her thoughts where Alien: Earth season 2 should take Wendy and the Lost Boys as production starts to ramp.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A Michael B. Jordan Hit)
+
+Movies, Prime Video, Recommendation
+
+Fri, 13 Mar 2026 21:15:09 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-march-14/
+
+Prime Video's movies to watch this weekend include a fan-favorite classic, a Michael B. Jordan masterpiece, and the perfect companion to the Oscars.
+---------
+
+# Prime Video's Thriller Cross Overtakes Young Sherlock on Streaming Charts
+
+TV, Young Sherlock, Cross, Prime Video
+
+Fri, 13 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/cross-season-2-thriller-prime-video-success-march-2026/
+
+Prime Video's crime thriller Cross overtakes Young Sherlock on the streaming charts.
+---------
+
+# Battlestar Galactica's Groundbreaking Miniseries is a Sci-Fi Masterpiece
+
+TV, Battlestar Galactica, Sci-Fi
+
+Fri, 13 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/battlestar-galactica-smartest-hard-sci-fi-tv/
+
+Streaming-era science fiction needs to reflect on the past if it ever wants to replicate the success Battlestar Galactica achieved in just 3 hours.
+---------
+
+# Murder by Death Feels Like the Perfect Knives Out Prequel
+
+Movies, Knives Out, Murder by Death, Mystery
+
+Fri, 13 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/murder-by-death-perfect-knives-out-prequel/
+
+Rian Johnson has perfected the comedy whodunit through his Knives Out series, but a 1970s forgotten classic helped create the niche genre.
+---------
+
+# Disney's $1.8B Sequel Zootopia 2 Is Officially the No. 1 Title in the World
+
+Movies, Zootopia 2
+
+Fri, 13 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/zootopia-2-animated-disney-plus-success-march-2026/
+
+The film is officially taking over streaming.
+---------
+
+# Quentin Tarantino Called Hello Mary Lou: Prom Night II 1 of His Favorite Horror Movies
+
+Movies, Quentin Tarantino, Horror
+
+Fri, 13 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/quentin-tarantino-called-33-year-old-cult-classic-1-of-his-favorite-horror-movies/
+
+Quentin Tarantino has stated that this 33-year-old cult classic is one of his favorite horror movies, praising its bold style and wild imagination.
+---------
+
+# Say Goodbye to Bet+ as Paramount Officially Announces Phaseout
+
+TV, Paramount Plus, paramount pictures, Paramount
+
+Fri, 13 Mar 2026 21:21:30 GMT
+
+https://www.cbr.com/paramount-plus-replace-bet-plus-phaseout/
+
+Paramount's domination has officially begun.
+---------
+
+# Disney+'s Percy Jackson and the Olympians Wraps Filming on Season 3
+
+TV, Percy Jackson & the Olympians, Disney+
+
+Fri, 13 Mar 2026 21:21:26 GMT
+
+https://www.cbr.com/percy-jackson-olympians-season-3-wraps-filming/
+
+Disney+ announces a filming wrap for Season 3 of Percy Jackson and the Olympians with a new set photo.
+---------
+
+# Crunchyroll’s Release Schedule Is Making Digimon Beatbreak's Dub Unwatchable
+
+Anime, Digimon Beatbreak, Digimon
+
+Fri, 13 Mar 2026 21:20:12 GMT
+
+https://www.cbr.com/crunchyroll-digimon-beatbreak-dub-unwatchable/
+
+Digimon Beatbreak reinvents the monster-taming franchise with a cyberpunk edge, but a clumsy batch drop release schedule has fractured the fandom.
+---------
+
+# 10 Greatest Oscar-Winning Sci-Fi Movies, Ranked
+
+Movie, Oscar, Academy Awards, Sci-Fi, Everything Everywhere All at Once
+
+Fri, 13 Mar 2026 21:59:12 GMT
+
+https://collider.com/oscar-winning-sci-fi-movies-best-ranked/
+
+Terminator 2: Judgment Day, Arrival, and Everything Everywhere All at Once are all among the best Oscar-winning science fiction movies.
+---------
+
+# 25 Years Later, HBO's WWII Masterpiece Proves It's Still the Perfect Weekend Binge
+
+TV News, Band of Brothers, Tom Hanks, Steven Spielberg, HBO
+
+Fri, 13 Mar 2026 21:50:09 GMT
+
+https://collider.com/band-of-brothers-hbo-max-weekend-binge-25-years-later-streaming-success-march-2026/
+
+Twenty-five years after its debut, Band of Brothers remains one of HBO Max’s best binge-watches as it circles back into the streaming top 10.
+---------
+
+# 10 Fantasy Books That Are As Good as Harry Potter
+
+Movie, Fantasy, Harry Potter, Books, The Hobbit trilogy
+
+Fri, 13 Mar 2026 21:48:13 GMT
+
+https://collider.com/fantasy-books-like-harry-potter/
+
+From Percy Jackson & the Olympians to The Lord of the Rings, these fantasy books capture the same magic that made Harry Potter unforgettable.
+---------
+
+# The Best Characters in 'One Piece: Into the Grand Line,' Ranked
+
+TV, One Piece, Netflix, Anime
+
+Fri, 13 Mar 2026 21:34:13 GMT
+
+https://collider.com/one-piece-season-2-best-characters-ranked/
+
+Season 2 of Netflix's hit One Piece brings back the Straw Hat crew and introduces several new major players, but who is the best character among them?
+---------
+
+# These Superhero Movies Are Near-Perfect Masterpieces
+
+Movie, Superhero, The Batman, Captain America: The First Avenger, Superman
+
+Fri, 13 Mar 2026 21:21:12 GMT
+
+https://collider.com/superhero-movies-near-perfect-masterpieces/
+
+Superman, The Batman, Captain America: The First Avenger, and Doctor Strange are just shy of being considered masterpieces within the superhero genre.
+---------
+
+# 3 Best Movies To Watch on Prime Video This Weekend
+
+Movie, Prime Video, Sinners, The Unbearable Weight of Massive Talent, Raging Bull
+
+Fri, 13 Mar 2026 21:18:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-march-13/
+
+Sinners, The Unbearable Weight of Massive Talent, and Raging Bull make our list of the best Prime Video movies to watch the weekend of March 13, 2026.
+---------
+
+# Netflix’s Greatest 2-Part Crime Thriller Features One of the Most Chilling Performances in TV History
+
+TV Features, Mindhunter, Jonathan Groff, Cameron Britton, Netflix
+
+Fri, 13 Mar 2026 21:12:12 GMT
+
+https://collider.com/mindhunter-netflix-greatest-thriller-cameron-britton-performance/
+
+Paradise's Cameron Britton delivers a chilling and nuanced performance as notorious killer Ed Kemper in Netflix's crime thriller Mindhunter.
+---------
+
+# 10 Must-Watch R-Rated Sci-Fi Movies of the Last 10 Years, Ranked
+
+Movie Lists, Sci-Fi
+
+Fri, 13 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/best-r-rated-sci-fi-movies-decade/
+
+From 'Everything Everywhere All At Once' to 'Frankenstein,' these R-rated sci-fi movies tell fascinating stories.
+---------
+
 # Why Miles Morales' Secret Third Spider-Man Movie Is Worth Watching Before Beyond The Spider-Verse
 
 Classic Movies, Explainer, Marvel
