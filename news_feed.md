@@ -1,3 +1,322 @@
+# Interview With The Vampire Season 3 Release Date and Title Sequence
+
+TV, Interview with the Vampire, AMC
+
+Fri, 13 Mar 2026 04:00:27 GMT
+
+https://screenrant.com/interview-with-the-vampire-season-3-release-date-opening-title-sequence/
+
+Interview with the Vampire season 3, also known as The Vampire Lestat, just announced its release date and a brand-new title sequence.
+---------
+
+# Netflix's One Piece Team Confirms Season 2's Biggest Cameos Were Way more Complicated than Fans Think (Exclusive)
+
+Anime, One Piece
+
+Fri, 13 Mar 2026 03:55:19 GMT
+
+https://screenrant.com/one-piece-netflix-live-action-sabo-brook-bartolomeo-cameos/
+
+While even its season finale sets up the next thrilling arc with one major cameo, the talk of the town is several far more shocking appearances.
+---------
+
+# If You’re Tired Of Depressing Post-Apocalyptic Shows, Netflix’s Hopeful 3-Part Drama Is Perfect For You
+
+Classic TV, Netflix, Sweet Tooth
+
+Fri, 13 Mar 2026 03:46:20 GMT
+
+https://screenrant.com/sweet-tooth-hopeful-netflix-post-apocalyptic/
+
+Most post-apocalyptic shows have bleak and depressing storylines, but one Netflix series dares to defy the norm and brings a hopeful spin to the genre
+---------
+
+# It's Officially Time For 1 Major Virgin River Character To Die
+
+Streaming TV, Virgin River, Virgin River - Season 7
+
+Fri, 13 Mar 2026 03:30:19 GMT
+
+https://screenrant.com/virgin-river-brady-motorcycle-crash/
+
+After the emotional ending of Netflix's Virgin River season 7, it's time to admit that one major Virgin River character needs to die.
+---------
+
+# HBO Crime Thriller Masterpiece’s 8 Episodes Quietly Deliver The Best Lovecraft Horror In Modern TV
+
+Streaming TV, True Detective, Horror, HBO
+
+Fri, 13 Mar 2026 03:00:19 GMT
+
+https://screenrant.com/true-detective-hbo-lovecraft-horror/
+
+One of the best crime thrillers on HBO subtly  infuses Lovecraftian elements in its storyline and delivers one of the best takes on cosmic horror.
+---------
+
+# Spider-Man & Superman Get Their Own Civil War In Official Marvel & DC Art
+
+Comics, Superman, Spider-Man, Marvel, DC Comics
+
+Fri, 13 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/spider-man-superman-official-civil-war-marvel-dc-art-variant-cover/
+
+Ahead of their official Marvel/DC Comics crossover, we just got our first look at Spider-Man and Superman's new Civil War-inspired artwork.
+---------
+
+# Apple TV’s Neuromancer Will Prove Cyberpunk is 100% Real
+
+Streaming TV, Neuromancer, Apple TV, Sci-Fi
+
+Fri, 13 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-real/
+
+Apple TV’s highly-anticipated sci-fi show is adapting a seminal cyberpunk novel, which will seemingly prove that cyberpunk is 100% more real than ever
+---------
+
+# I Love Boosters Review: Boots Riley's Bombastic, Surreal Heist Comedy Messily Dismantles The Oligarchy In Plasticized Technicolor
+
+Movies, SXSW, I Love Boosters
+
+Fri, 13 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/i-love-boosters-movie-review/
+
+Boots Riley approaches his newest film with righteous anger, bizarre comedy, and a love for the women fighting for the possibility of a change.
+---------
+
+# Netflix’s Dinosaur Docuseries Makes Glaring Errors That Can’t Be Ignored
+
+Streaming TV, The Dinosaurs
+
+Fri, 13 Mar 2026 02:00:24 GMT
+
+https://screenrant.com/netflix-the-dinosaurs-inaccuracies-speculation/
+
+While The Dinosaurs is an entertaining watch, the glaring factual errors and omitted information raise questions about its educational value.
+---------
+
+# 10 Movies To Watch As A Perfect Double Feature With KPop Demon Hunters
+
+Movies, KPop Demon Hunters, Dupes
+
+Fri, 13 Mar 2026 01:15:12 GMT
+
+https://screenrant.com/10-movies-kpop-demon-hunters-perfect-double-features/
+
+Here's some of our best recommendations for movies that would pair nicely with Netflix's KPop Demon Hunters for a double feature movie night.
+---------
+
+# LEGO Reveals the First Official One Piece Set of 2026 for New Netflix Release
+
+Anime, One Piece, LEGO, toys, merchandise
+
+Fri, 13 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/lego-netflix-one-piece-gum-gum-fruit-release/
+
+One Piece fans get another way to celebrate the release of Season 2 of Netflix's live-action streaming adaptation courtesy of LEGO.
+---------
+
+# It's Time to Admit This Star Trek: TNG Character Never Deserved The Hate
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Fri, 13 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-unearned-wesley-crusher-hate/
+
+When Star Trek: The Next Generation debuted, fans overwhelmingly rejected a key character, but nearly four decades later, it's clear they were wrong.
+---------
+
+# Star Wars is Setting Up Grogu as the Next Yoda
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Fri, 13 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/the-mandalorian-grogu-new-star-wars-yoda/
+
+The latest trailer for The Mandalorian and Grogu hinted that a new character will be taking over Yoda's role in the future of the Star Wars franchise.
+---------
+
+# 10 Best Mecha Anime Villains Who Weren’t Robots
+
+Anime, mecha, Code Geass: Lelouch of the Rebellion, Mobile Suit Gundam, Neon Genesis Evangelion
+
+Fri, 13 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/mecha-anime-best-villains-not-robots/
+
+Mecha anime's greatest villains prove that, sometimes, robots aren't always the deadliest creatures the heroes will face.
+---------
+
+# JJK Episode 57 Finally Fixes the Jujutsu Kaisen Manga's Biggest Flaw
+
+Anime, Jujutsu Kaisen
+
+Fri, 13 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-episode-57-review/
+
+Megumi Fushiguro has always been one of JJK's most underutilized characters, and thanks to MAPPA, he's finally got the moment he deserves.
+---------
+
+# The Greatest Fire Emblem Line Is the Most Powerful Quote in JRPG History
+
+Games, Fire Emblem: Three Houses, Fire Emblem, JRPG
+
+Fri, 13 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/fire-emblem-three-houses-most-powerful-quotes-jrpgs/
+
+Fire Emblem's best quote is hiding in plain sight.
+---------
+
+# The MCU’s Most Divisive Sequel Still Gets One Major Thing Perfect
+
+Movies, Marvel Cinematic Universe, Avengers: Age of Ultron
+
+Fri, 13 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/mcu-age-of-ultron-perfect-avengers-team/
+
+Though it's not as beloved as some other MCU projects, this 2015 sequel has one core aspect the rest of the franchise has been missing
+---------
+
+# Steam's Free Horror Game With 30 Million Players Flagged as Unsafe for Children
+
+Anime, video game, Steam
+
+Fri, 13 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/doki-doki-literature-club-steam-unsafe-for-children/
+
+Government authorities cited the game’s mature and psychological content in their warning.
+---------
+
+# 5 Perfect 1980s Anime That Nobody Remembers
+
+Anime
+
+Fri, 13 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/underrated-1980s-anime-no-flaws-list/
+
+Some of the best '80s anime have been almost completely forgotten.
+---------
+
+# It's the End of an Era for Harry Potter
+
+Movies, Fantasy, Harry Potter
+
+Fri, 13 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/harry-potter-end-of-era/
+
+The Harry Potter fandom has evolved over the years, and with a new Harry Potter television show already filming, a big shift is on the way.
+---------
+
+# 'The Pitt's Biggest Secret to Success Started With a Note From Noah Wyle
+
+Collider Signature, The Pitt, HBO Max, HBO, Drama
+
+Fri, 13 Mar 2026 03:00:13 GMT
+
+https://collider.com/the-pitt-season-2-episode-10-explained-director-damian-marcano/
+
+The Pitt director Damian Marcano reveals behind-the-scenes secrets from Season 2 Episode 10, including the show's distinctive filmmaking style.
+---------
+
+# 10 Perfect Double Features To Watch With 'One Battle After Another'
+
+Movie, One Battle After Another, Inherent Vice, The Big Lebowski, Running on Empty
+
+Fri, 13 Mar 2026 03:00:13 GMT
+
+https://collider.com/one-battle-after-another-double-features/
+
+The Big Lebowski, Inherent Vice, The Master, and more make up our list of the best double features to watch with One Battle After Another.
+---------
+
+# 'Elsbeth' Season 3 Episode 13 Review: Steve Buscemi Meets His Match With Carrie Preston
+
+TV Reviews, Elsbeth, Carrie Preston, Steve Buscemi, CBS
+
+Fri, 13 Mar 2026 03:00:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-13-review-recap-steve-buscemi/
+
+Elsbeth dives into the world of competitive crossword solving and meets Steve Buscemi's Simon, the latest murderer of the week.
+---------
+
+# 'The Pitt's Unexpected Doctor Panic Attack Is a Turning Point for Season 2's Shift
+
+Exclusives, The Pitt, HBO, HBO Max, Drama
+
+Fri, 13 Mar 2026 01:00:13 GMT
+
+https://collider.com/the-pitt-season-2-episode-10-supriya-ganesh-mohan-panic-attack-interview/
+
+Supriya Ganesh discusses Mohan's pivotal panic attack scene in The Pitt Season 2 Episode 10 and its impact on the rest of the shift.
+---------
+
+# '9-1-1' Is Failing Buck and Eddie on Every Level | Review
+
+TV Reviews, 9-1-1, Oliver Stark, Ryan Guzman, ABC
+
+Fri, 13 Mar 2026 01:00:13 GMT
+
+https://collider.com/9-1-1-season-9-episode-13-recap-review-buck-eddie-road-trip/
+
+9-1-1 Season 9 Episode 13 fails to deliver a meaningful emotional payoff for Buck and Eddie, despite promising potential for their character development.
+---------
+
+# The Forgotten Oscars Category Gave Us an Award That Couldn’t Exist Today
+
+Movie Features, Sunrise: A Song of Two Humans, Academy Awards, Oscars, Lillian Gish
+
+Fri, 13 Mar 2026 00:12:12 GMT
+
+https://collider.com/first-oscars-title-writing-category-joseph-farnham/
+
+The Oscars category of Best Title Writing only existed at the first Academy Awards.
+---------
+
+# These 10 Sci-Fi TV Shows Can Be Binged in One Weekend
+
+TV Lists, Firefly, Watchmen
+
+Fri, 13 Mar 2026 02:00:28 GMT
+
+https://movieweb.com/sci-fi-tv-shows-one-season/
+
+If you aren't in the mood for a lengthy binge, check out these sci-fi TV shows that you can watch in one weekend.
+---------
+
+# 7 Apple TV Original Series With No Bad Seasons (#2 Is a Sci-Fi Masterpiece)
+
+TV Lists, Apple TV
+
+Fri, 13 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/perfect-apple-tv-shows-no-bad-seasons/
+
+From the comedy 'Ted Lasso' to the sci-fi series 'Foundation,' these original shows from Apple TV have several high-quality seasons.
+---------
+
+# Luc Besson's 'Dracula' Beats Sydney Sweeney's 'The Housemaid' on Apple Digital Streaming
+
+Movie News, Dracula, The Housemaid, Hot on Streaming
+
+Fri, 13 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/dracula-beats-the-housemaid-streaming-apple-march-2026/
+
+Sydney Sweeney's R-rated 2025 thriller 'The Housemaid' is beaten by Luc Besson's divisive 'Dracula' remake on Apple digital streaming chart.
+---------
+
 # 3 Best New Shows To Binge In One Night This Weekend: March 13–15, 2026
 
 Streaming TV
