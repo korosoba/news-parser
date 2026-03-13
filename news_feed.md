@@ -1,3 +1,399 @@
+# A24's New Horror Movie Undertone Was Secretly Inspired By A Classic Children's TV Series
+
+Movies, undertone, Horror, A24
+
+Fri, 13 Mar 2026 18:00:18 GMT
+
+https://screenrant.com/undertone-a24-movie-sesame-street-secret-inspiration/
+
+Exclusive: Writer/director Ian Tuason reveals how a classic children's TV series served as a secret inspiration for his A24 horror movie Undertone.
+---------
+
+# Why HBO Max’s New #1 Documentary Film Is Taking Over America
+
+Movies, Fukushima: A Nuclear Nightmare
+
+Fri, 13 Mar 2026 17:45:18 GMT
+
+https://screenrant.com/fukushima-documentary-hbo-max-streaming-success-march-2026/
+
+The #1 movie on HBO Max right now is a documentary, Fukushima: A Nuclear Nightmare, an exploration of the real-life Fukushima nuclear disaster.
+---------
+
+# Kill Me Review: Charlie Day Gives A Career-Best Performance In Surprisingly Raw Murder Mystery Thriller
+
+Movies, Kill Me, SXSW, Charlie Day
+
+Fri, 13 Mar 2026 17:37:54 GMT
+
+https://screenrant.com/kill-me-movie-2026-review-sxsw/
+
+Peter Warren's Kill Me is a fascinating and funny mix of mental health commentary and wacky comedy in a way that only Charlie Day can anchor.
+---------
+
+# Nintendo's Lawsuit Against The U.S. Government Just Took An Unexpected Turn
+
+Gaming, Nintendo, Triple-A Games
+
+Fri, 13 Mar 2026 17:36:25 GMT
+
+https://screenrant.com/nintendo-us-government-lawsuit-update/
+
+Following Nintendo's lawsuit against the US Government, it seems like the case has taken a turn, and the consequences could play out over years.
+---------
+
+# The 10/10 Sitcom That Broke The Seinfeld Curse Premiered 20 Years Ago Today, And It Still Holds Up
+
+Classic TV, The New Adventures of Old Christine
+
+Fri, 13 Mar 2026 17:26:44 GMT
+
+https://screenrant.com/new-adventures-old-christine-seinfeld-curse-julia-louis-dreyfus/
+
+In 2006, the Seinfeld curse was finally broken when a hilarious sitcom starring one of its leads premiered, and it's still making fans laugh today.
+---------
+
+# DC Officially Confirms The Joker & Harley Quinn's Designs For Batman's New Appearance
+
+Superheroes, Batman, Batwheels, DC Universe
+
+Fri, 13 Mar 2026 17:24:56 GMT
+
+https://screenrant.com/batwheels-hbo-max-batman-dc-joker-harley-quinn-reveal/
+
+The Joker and Harley Quinn team up in Batman's new appearance, and the Dark Knight villains do so with vibrant designs to fight two DC heroes.
+---------
+
+# Friday The 13th's Franchise Return Officially Revealed In First Look At Crystal Lake Images
+
+TV, Friday the 13th, Crystal Lake, Horror
+
+Fri, 13 Mar 2026 17:21:28 GMT
+
+https://screenrant.com/friday-the-13th-crystal-lake-show-images-peacock/
+
+In the first images for the upcoming series Crystal Lake, a return to the iconic camp setting first visiting in Friday the 13th has been revealed.
+---------
+
+# James Gunn's Justice League Already Has 2 Confirmed Members
+
+Movies, DC Universe
+
+Fri, 13 Mar 2026 17:15:19 GMT
+
+https://screenrant.com/james-gunn-dcu-justice-league-members-confirmed/
+
+James Gunn is laying a solid foundation for DC's greatest superhero team of all time, with two characters confirmed and more on the way.
+---------
+
+# Donald Glover Voices Yoshi In Super Mario Galaxy Movie, Similar To Vin Diesel's Groot
+
+Movies, The Super Mario Galaxy Movie
+
+Fri, 13 Mar 2026 17:15:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-yoshi-casting-trick/
+
+Yoshi's voice actor in The Super Mario Galaxy was recently revealed, and it's a casting trick that was also used in another Chris Pratt franchise.
+---------
+
+# 10 Games To Cure Your Pokopia FOMO
+
+Gaming, Pokemon, Pokemon Pokopia, Nintendo Switch 2
+
+Fri, 13 Mar 2026 17:08:58 GMT
+
+https://screenrant.com/10-games-like-pokopia/
+
+Discover 10 games that capture the essence of Pokémon Pokopia, offering similar creature-collecting and life-simulation elements.
+---------
+
+# Crystal Lake: Peacock Reveals First Look at Friday the 13th Prequel
+
+TV, Crystal Lake, Friday the 13th, Peacock
+
+Fri, 13 Mar 2026 17:56:41 GMT
+
+https://www.cbr.com/friday-the-13th-crystal-lake-first-look/
+
+Peacock celebrates Friday the 13th with a first look at the anticipated horror series.
+---------
+
+# Reese Witherspoon’s $142M Comedy Classic Breaks Into Peacock’s Top 10 Ahead of TV Reboot
+
+Movies, Legally Blonde, Peacock
+
+Fri, 13 Mar 2026 17:36:57 GMT
+
+https://www.cbr.com/reese-witherspoon-legally-blonde-comedy-peacock-success-march-2026/
+
+Reese Witherspoon's iconic 25-year-old comedy classic sees a surge in streaming popularity on Peacock ahead of its small screen reboot.
+---------
+
+# 10 Forgotten Gaming Masterpieces From the ’90s That Aged Perfectly
+
+Games, retro games
+
+Fri, 13 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/1990s-forgotten-video-games-masterpieces/
+
+Some of the best '90s games have been forgotten, but they're still 10/10 masterpieces.
+---------
+
+# Avatar’s Return to Earth Gets an Exciting Update From James Cameron
+
+Movies, Avatar, james cameron, Sci-Fi
+
+Fri, 13 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/james-cameron-avatar-return-to-earth-update/
+
+Director James Cameron gave fans exciting confirmation about the future of the Avatar franchise and its eventual return to Earth.
+---------
+
+# Robert Kirkman's Upcoming Megatron Story Changes The Legendary Villain Forever
+
+Comics, Transformers
+
+Fri, 13 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/skybound-image-transformers-31-release-date-confirmed/
+
+The Energon Universe is about to crack open a whole new chapter for the Transformers' most infamous villain as Robert Kirkman's next story begins.
+---------
+
+# Solo Leveling Fans Need to See This New Anime Open World Game Releasing Soon
+
+Anime, open world, Solo Leveling, The Seven Deadly Sins, Netflix
+
+Fri, 13 Mar 2026 17:27:18 GMT
+
+https://www.cbr.com/open-world-game-seven-deadly-sins-origin-preview/
+
+Solo Leveling fans itching for a perfect open world game should circle March 16 on their calendars for this upcoming PS5 release.
+---------
+
+# Marvel Drops a Massive Tease Ahead Of X-Men '97 Season 2
+
+Comics
+
+Fri, 13 Mar 2026 17:04:09 GMT
+
+https://www.cbr.com/x-men-97-season-two-1-comic-release-date-confirmed/
+
+The X-Men will be back sooner than fans thought.
+---------
+
+# 10 Far Side Comics About Getting Older That Hit Way Too Close To Home
+
+Comics, The Far Side
+
+Fri, 13 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/funny-far-side-comics-about-getting-old/
+
+Getting older comes with many downfalls and Gary Larson uses The Far Side to depict them in humorous ways that can hit too close to home.
+---------
+
+# JJK Season 3, Episode 11 Release Date & Time
+
+Anime, Jujutsu Kaisen, Shonen, Crunchyroll
+
+Fri, 13 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-season-3-episode-11-date-time/
+
+As Jujutsu Kaisen Season 3, Cour 1 draws near its end, fans have just two more episodes to enjoy before the mid-season break.
+---------
+
+# Doctor Who: Missing Dalek's Master Plan Episodes Found and Restored
+
+TV, Doctor Who, Doctor Who / Whoniverse, Sci-Fi
+
+Fri, 13 Mar 2026 16:08:31 GMT
+
+https://www.cbr.com/doctor-who-episodes-missing-daleks-master-plan-streaming/
+
+The lost episodes 'The Nightmare Begins' and 'Devil's Planet' from Doctor Who's third season have been found and will be restored for streaming.
+---------
+
+# 'X-Men '97' Season 2 Expands With Unexpected Summer Release
+
+TV News, X-Men '97, Marvel, Marvel Animation, X-Men
+
+Fri, 13 Mar 2026 17:47:41 GMT
+
+https://collider.com/x-men-97-season-2-comic-series-prequel-release-june-2026-pre-order/
+
+X-Men '97 Season 2 is getting a prequel comic book series leading up to its summer release date on Disney+. Get the details here.
+---------
+
+# 10 War Movie Masterpieces With Great Acting, Ranked
+
+Movie, War, Platoon, The Deer Hunter, Apocalypse Now
+
+Fri, 13 Mar 2026 17:40:32 GMT
+
+https://collider.com/best-war-movies-great-acting/
+
+The Deer Hunter, Platoon, and Paths of Glory are all among the very best war movies that benefit from incredible performances.
+---------
+
+# Prime Video's 'Bosch'-Like Thriller Puts the Pedal to the Metal With a Fast Saga Favorite
+
+TV News, Bosch, Jordana Brewster, Bishop, Prime Video
+
+Fri, 13 Mar 2026 17:34:11 GMT
+
+https://collider.com/prime-videos-bosch-like-thriller-puts-the-pedal-to-the-metal-with-a-fast-saga-favorite/
+
+Jordana Brewster, best known for her role as Mia Toretto in the Fast Saga, has joined Prime Video's new Bosch-like series, Bishop.
+---------
+
+# Liam Neeson’s 99-Minute Sci-Fi Comedy Is an Instant Home Video Hit
+
+Movie News, Liam Neeson, Cold Storage, Joe Keery, Stranger Things
+
+Fri, 13 Mar 2026 17:20:40 GMT
+
+https://collider.com/liam-neeson-sci-fi-movie-cold-storage-streaming-success-prime-video-itunes-march-2026/
+
+Liam Neeson, Georgina Campbell, and Joe Keery's sci-fi comedy film Cold Storage has emerged as an instant hit on PVOD platforms. Find out more.
+---------
+
+# Apple TV's Sci-Fi Blockbuster Has 'Fallout' Running for Shelter With Huge Prime Video Debut
+
+TV News, Fallout, Monarch: Legacy of Monsters, Apple TV, Sci-Fi
+
+Fri, 13 Mar 2026 16:55:12 GMT
+
+https://collider.com/apple-tv-sci-fi-blockbuster-monarch-legacy-of-monsters-season-2-overtakes-fallout-streaming-succes-prime-video-march-2026/
+
+Apple's blockbuster sci-fi series Monarch: Legacy of Monsters is garnering major additional viewership via Prime Video. Find out more.
+---------
+
+# 10 Most Perfect War Movies of the 21st Century, Ranked
+
+Movie, Oppenheimer, War, The Voice of Hind Rajab, Downfall
+
+Fri, 13 Mar 2026 16:52:02 GMT
+
+https://collider.com/most-perfect-war-movies-21st-century-ranked/
+
+Downfall, Oppenheimer, and Inglourious Basterds are great war movies that represent the genre's best in the 21st century.
+---------
+
+# Disney's 10/10 Harry Potter Competitor Completes Its Season 3 Quest
+
+TV News, Percy Jackson & the Olympians, Disney+, Walker Scobell, Harry Potter
+
+Fri, 13 Mar 2026 16:49:25 GMT
+
+https://collider.com/disney-plus-harry-potter-replacement-percy-jackson-and-the-olympians-season-3-wrapped-filming/
+
+Get ready Demigods, because Percy Jackson and the Olympians Season 3 has scored a major update after a hit sophomore run.
+---------
+
+# Perfect Post-'War Machine' Sci-Fi Action Flick 'Battle: Los Angeles' Explodes on Free Streaming
+
+Movie News, Battle: Los Angeles, War Machine, Tubi, Sci-Fi, Action, War
+
+Fri, 13 Mar 2026 18:01:17 GMT
+
+https://movieweb.com/battle-los-angeles-stream-free-tubi-march-2026/
+
+Aaron Eckhart's largely forgotten war movie is being rediscovered by audiences eager for another sci-fi action hit following Netflix's 'War Machine.'
+---------
+
+# 'The American President': A Political Drama Roger Ebert Adored Is Streaming on Netflix
+
+Features, Roger Ebert, The American President
+
+Fri, 13 Mar 2026 18:01:17 GMT
+
+https://movieweb.com/roger-ebert-the-american-president-streaming/
+
+'The American President', starring Michael Douglas and directed by Rob Reiner, was adored by Roger Ebert. Catch it on Netflix.
+---------
+
+# 'Daredevil: Born Again' Season 2 Teaser Reveals Return of MCU Villain
+
+TV News, Daredevil: Born Again
+
+Fri, 13 Mar 2026 17:43:51 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-teaser-wesley/
+
+The latest preview for 'Daredevil: Born Again' Season 2 has sneakily revealed the return of a key character from Netflix's 'Daredevil.'
+---------
+
+# 'Project Hail Mary' Review: Ryan Gosling Saves Humanity in the Year's First Great Film
+
+4 star movies, Project Hail Mary, Ryan Gosling, Chris Miller, Phil Lord
+
+Fri, 13 Mar 2026 17:30:17 GMT
+
+https://movieweb.com/project-hail-mary-review/
+
+Gosling and Sandra Hüller star in Phil Lord and Chris Miller’s visually stunning tug of war between light humor and hard science.
+---------
+
+# Rosamund Pike Says 'Doom' Movie Is "One of the Worst Films Ever Made"
+
+Movie News, Doom, Rosamund Pike, Dwayne Johnson
+
+Fri, 13 Mar 2026 17:19:10 GMT
+
+https://movieweb.com/rosamund-pike-doom-worst-film-ever-made/
+
+Rosamund Pike has described her 2005 film 'Doom' with Dwayne Johnson as "one of the worst films ever made," saying she feared it could end her career.
+---------
+
+# Animated Movies That Feel Like a Warm Hug
+
+Movie Lists, Animation
+
+Fri, 13 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/animated-movies-that-feel-like-a-warm-hug/
+
+When you're feeling down, these animated movies can help lift you up, just like being wrapped up in a warm hug.
+---------
+
+# 'One Piece' Is a Masterpiece Everyone Needs To Binge on Netflix This Weekend
+
+Opinion, One Piece, Netflix
+
+Fri, 13 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/netflix-one-piece-binge/
+
+It's a miracle Netflix's live-action 'One Piece' adaptation works as well as it does.
+---------
+
+# Jenna Ortega Cast For Lead Role in 'Single Female,' Remake of 1992's 'Single White Female'
+
+Movie News, Jenna Ortega, Single White Female
+
+Fri, 13 Mar 2026 16:32:26 GMT
+
+https://movieweb.com/jenna-ortegas-remake-of-90s-erotic-thriller-moves-forward/
+
+'Wednesday' star Jenna Ortega is confirmed to play a leading role in an upcoming remake of the 1992 horror classic 'Single White Female.'
+---------
+
+# Matthew Fox Says 'Bone Tomahawk' Was the Moment He Decided to Step Away From Acting [Exclusive]
+
+Movie News, Bone Tomahawk, Matthew Fox, Kurt Russell, Western, Horror
+
+Fri, 13 Mar 2026 16:31:17 GMT
+
+https://movieweb.com/matthew-fox-bone-tomahawk-step-away-acting/
+
+Speaking exclusively with MovieWeb, the actor shared his love of westerns and what drew him to Taylor Sheridan's 'The Madison.'
+---------
+
 # Xbox Game Pass Gets Surprise New Day One Release For March
 
 Gaming, Super Meat Boy, Xbox Game Pass
