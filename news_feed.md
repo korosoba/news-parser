@@ -1,3 +1,421 @@
+# Xbox Game Pass Gets Surprise New Day One Release For March
+
+Gaming, Super Meat Boy, Xbox Game Pass
+
+Fri, 13 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/xbox-game-pass-new-day-one-free-game-march-2026/
+
+Xbox Game Pass is getting another excellent day one game that you definitely won't want to sleep on.
+---------
+
+# Caroline Goodall Introduces A Fascinating Mythos In Storm Rider: Legend of Hammerhead Clip
+
+Movies, Storm Rider: Legend of Hammerhead, Caroline Goodall
+
+Fri, 13 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/storm-rider-legend-of-hammerhead-movie-mythology-caroline-goodall-clip/
+
+Exclusive: ScreenRant presents a clip from the fascinating sci-fi adventure movie, Storm Rider: The Legend of Hammerhead, which is in theaters now!
+---------
+
+# Buffy the Vampire Slayer Sequel Series: A Template for Supernatural's Potential Reboot
+
+Streaming TV, Buffy the Vampire Slayer Sequel Series, Supernatural
+
+Fri, 13 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-hulu-reboot-supernatural-show/
+
+If Supernatural were to give fans what they want and launch a reboot, they'd do well to take a page out of this Hulu fantasy sequel series's playbook.
+---------
+
+# The 1 Rule To Adapting Colleen Hoover's Novels Explained By Reminders Of Him Stars
+
+Movies, Reminders of Him
+
+Fri, 13 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/reminders-of-him-colleen-hoover-novel-adapting-rules-cast/
+
+Stars Maika Monroe, Tyriq Withers, Rudy Pankow, Bradley Whitford & Lauren Graham talk Reminders of Him and adapting Colleen Hoover's novel.
+---------
+
+# GTA 5 Limited-Time Free Download Available To Claim Now
+
+Gaming, Grand Theft Auto, Grand Theft Auto 5
+
+Fri, 13 Mar 2026 15:56:27 GMT
+
+https://screenrant.com/gta-5-free-download-limited-time-online-mode/
+
+As part of St Patrick's Day celebrations in GTA V, players can grab some unique items and cosmetics in GTA Online.
+---------
+
+# Lincoln Lawyer Season 5's Filming & Release Window Reportedly Revealed At Netflix
+
+TV, The Lincoln Lawyer
+
+Fri, 13 Mar 2026 15:49:55 GMT
+
+https://screenrant.com/lincoln-lawyer-season-5-filming-release-window-update-netflix/
+
+Mere weeks after the show's return, The Lincoln Lawyer season 5 has already begun filming, and it sounds like new episodes could debut soon.
+---------
+
+# Sylvester Stallone & Jason Statham's 4-Part Action Movie Series On Netflix Is The Perfect Weekend Binge
+
+Movies, The Expendables
+
+Fri, 13 Mar 2026 15:45:18 GMT
+
+https://screenrant.com/expendables-movie-series-netflix-recommendation/
+
+Sylvester Stallone and Jason Statham's four-part action saga is available in full on Netflix and makes the perfect weekend binge for action fans.
+---------
+
+# Marshals Gives Taylor Sheridan His First Major Win Of 2026
+
+Network TV, Marshals
+
+Fri, 13 Mar 2026 15:42:25 GMT
+
+https://screenrant.com/marshals-season-2-renewal-taylor-sheridan-win/
+
+2026 is a huge year for neo-Western specialist Taylor Sheridan, and he already has his first major success story little more than two months in.
+---------
+
+# Star Trek's Newest Villain Is Very Similar To A Rival Sci-Fi Show's Final Boss
+
+Streaming TV, Star Trek: Starfleet Academy
+
+Fri, 13 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/star-trek-nus-braka-the-expanse-marco-inaros/
+
+Starfleet Academy's Nus Braka is the best villain Star Trek has had for a long time, but bears a strong similarity to another sci-fi antagonist.
+---------
+
+# One Piece Season 2 Proves Oda Is Fixing The Manga's Biggest Timeline Flaw
+
+Anime, One Piece
+
+Fri, 13 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/one-piece-season-2-fix-big-manga-flaw-foreshadowing/
+
+By dropping major characters into the story years early, the live-action series brilliantly rewrites the original canon.
+---------
+
+# Absolute Batman #19 Variant Cover Reveals A Terrifying, Twisted Foe
+
+Comics, Absolute Batman
+
+Fri, 13 Mar 2026 16:04:19 GMT
+
+https://www.cbr.com/absolute-batman-19-variant-cover-scarecrow/
+
+Just in case one of Batman's most frightening villains was not scary enough for you.
+---------
+
+# 10 Cloverfield Lane Is Secretly the Best Sequel of the 21st Century
+
+Movies, 10 Cloverfield Lane, Cloverfield, Sci-Fi, Thriller, john goodman
+
+Fri, 13 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/john-goodman-sci-fi-thriller-10-cloverfield-lane-best-sequel/
+
+Sometimes, the way to create the best sequel in a sci-fi franchise is by completely distancing from the franchise itself.
+---------
+
+# Bosch: The Realistic TV Detective That Redefined the Genre
+
+TV, Bosch, Prime Video, Crime
+
+Fri, 13 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/prime-video-bosch-realistic-tv-detective/
+
+Prime Video's Bosch introduced a groundbreaking detective with a realistic portrayal, redefining the TV detective genre.
+---------
+
+# Maybe Batman is the True Villain of Gotham After All
+
+Comics, Batman
+
+Fri, 13 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/batman-is-the-true-villain-of-gotham/
+
+Gotham seems to face new threats on a daily basis and at a certain point one has to question whether Batman is to blame.
+---------
+
+# Captain Marvel Continues a New Era for the Guardians of the Galaxy in an Exclusive First Look
+
+Comics, Guardians of the Galaxy
+
+Fri, 13 Mar 2026 15:45:26 GMT
+
+https://www.cbr.com/captain-marvel-imperial-guardians-galaxy-first-look/
+
+In a CBR exclusive first look of next month's Imperial Guardians #2, see the new Guardians of the Galaxy team in action, including Captain Marvel
+---------
+
+# Prime Video Officially Announces Ad Free Service Phaseout
+
+TV, Prime Video
+
+Fri, 13 Mar 2026 15:41:48 GMT
+
+https://www.cbr.com/prime-video-removes-ad-free-service/
+
+With all the other streaming services announcing big changes, Prime Video couldn't miss the opportunity to do the same.
+---------
+
+# World's Biggest Anime Piracy Streamer HiAnime Shuts Down
+
+Anime, piracy
+
+Fri, 13 Mar 2026 15:38:24 GMT
+
+https://www.cbr.com/hianime-streaming-piracy-shutdown/
+
+The most prolific and notorious anime piracy streaming site has gone dark, possibly for good.
+---------
+
+# Bradley Cooper Takes the Lead To Direct Margot Robbie’s $1.42B Crime Franchise Reboot
+
+Movies, Ocean's Eleven
+
+Fri, 13 Mar 2026 15:26:25 GMT
+
+https://www.cbr.com/oceans-prequel-bradley-cooper-in-talks-writer-director/
+
+After losing Ryan Gosling and Lee Isaac Chung, Bradley Cooper may be the saving grace this upcoming crime franchise reboot needs.
+---------
+
+# Spider-Man: Brand New Day Rumors Addressed by Steven Yeun 2 Years After Thunderbolts Recasting
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 13 Mar 2026 15:15:58 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-mcu-casting-rumors-steven-yeun/
+
+Steven Yeun addresses the rumors that Marvel and Sony wanted him for Spider-Man: Brand New Day after dropping out of Thunderbolts* as Sentry.
+---------
+
+# Steve Carell Faces a Shocking Twist in Sneak Peek at HBO’s New 'Shrinking' Replacement [Exclusive]
+
+Exclusives, Rooster, Steve Carell, Phil Dunster, HBO Max
+
+Fri, 13 Mar 2026 16:00:12 GMT
+
+https://collider.com/rooster-episode-2-sneak-peek-steve-carell-takes-charly-clive-to-the-police-hbo-max/
+
+Steve Carell and Charly Clive prepare for a visit to the local police station in a new look at HBO Max’s Rooster. See it here!
+---------
+
+# 20 Years Later, This Controversial Casting Choice Still Defines a Sci-Fi Masterpiece
+
+TV Features, Battlestar Galactica, Katee Sackhoff, Sci-Fi, NBC Universal
+
+Fri, 13 Mar 2026 15:42:04 GMT
+
+https://collider.com/battlestar-galactica-katee-sackhoff-starbuck-casting-backlash/
+
+The decision to make Battlestar Galactica's Starbuck a woman is only part of what makes it one of the best sci-fi shows of all time.
+---------
+
+# 'High Potential' Season 3 Officially Needs To Solve Its Roman Mystery, but There's a Catch
+
+TV Features, High Potential, Kaitlin Olson, ABC, Crime
+
+Fri, 13 Mar 2026 15:16:15 GMT
+
+https://collider.com/high-potential-season-3-roman-reveal-storyline/
+
+Kaitlin Olson's ABC crime hit High Potential needs to reveal Roman's and continue his storyline in Season 3.
+---------
+
+# The MCU’s Best Series Officially Returns to Disney+ This Month
+
+TV News, Daredevil, Disney+, Daredevil: Born Again
+
+Fri, 13 Mar 2026 15:00:21 GMT
+
+https://collider.com/best-mcu-series-daredevil-season-2-release-date-march-24-2026/
+
+The best MCU series is officially returning to Disney+ with an 8-part saga as Daredevil returns on March 24.
+---------
+
+# 'Stranger Things' Creators' New Netflix Horror Series Gets Twisted Friday the 13th Trailer
+
+Trailers, Something Very Bad Is Going to Happen, Camila Morrone, Jennifer Jason Leigh, Netflix
+
+Fri, 13 Mar 2026 15:00:13 GMT
+
+https://collider.com/matt-and-ross-duffers-new-horror-series-unveils-its-latest-trailer/
+
+Matt and Ross Duffer’s new horror series, Something Very Bad Is Going to Happen, has just dropped a new trailer. Watch it here!
+---------
+
+# '9-1-1's New Highest-Rated Episode Ever Proves What Audiences Really Want
+
+TV News, 9-1-1, Oliver Stark, Angela Bassett, Ryan Guzman
+
+Fri, 13 Mar 2026 14:42:03 GMT
+
+https://collider.com/9-1-1-season-9-episode-13-highest-rated-episode-ever-imdb-audience/
+
+9-1-1's latest episode, Mother's Boy, has achieved the series' highest IMDb rating of 9.5, surpassing previous high-scoring instalments.
+---------
+
+# Netflix’s $530M 6-Part Series Still Stands as the Streamer’s Biggest Flex
+
+TV Features, Netflix, The Crown, Elizabeth Debicki, Claire Foy
+
+Fri, 13 Mar 2026 14:41:47 GMT
+
+https://collider.com/netflix-series-the-crown-530m-biggest-flex-budget/
+
+10 years since its release, Netflix’s The Crown still remains as the streamer’s best and most impressive original series.
+---------
+
+# AMC's 10/10 Sleeper Hit Fantasy Series Is Officially Returning in June
+
+TV News, Interview with the Vampire, Fantasy, AMC, A Knight Of The Seven Kingdoms
+
+Fri, 13 Mar 2026 14:40:45 GMT
+
+https://collider.com/interview-with-the-vampire-the-vampire-lestat-release-date-june-7-2026-amc-plus/
+
+The greatest vampire series ever finally sets the release date for Season 3 of The Vampire Lestat.
+---------
+
+# 'Reminders of Him' Review: Maika Monroe Elevates a Sappy but Sincere Colleen Hoover Adaptation
+
+Movie Reviews, Reminders of Him, Maika Monroe, Colleen Hoover
+
+Fri, 13 Mar 2026 14:34:52 GMT
+
+https://collider.com/reminders-of-him-movie-review-colleen-hoover-maika-monroe/
+
+Maika Monroe and Tyriq Withers are a believable romantic pair in this tender Colleen Hoover adaptation.
+---------
+
+# 1971 Rod Stewart's Classic Hit Almost Wasn’t Released but Became His Breakout No. 1 Song
+
+Music Features, Rod Stewart, Rock, Music, Billboard Hot 100
+
+Fri, 13 Mar 2026 14:30:58 GMT
+
+https://collider.com/1971-rod-stewart-classic-no-1-hit-maggie-may-almost-not-released/
+
+Rod Stewart’s 1971 No. 1 hit Maggie May launched his solo superstardom and was inducted into the Grammy Hall of Fame in 2017.
+---------
+
+# Taylor Sheridan’s Action Thriller 'Sicario' Is Streaming on Netflix in the US
+
+Movie News, Sicario, Netflix, Coming/Leaving Streaming, Action
+
+Fri, 13 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/sicario-streaming-netflix-march-2026/
+
+Taylor Sheridan and Denis Villeneuve's Oscar-winning action crime thriller 'Sicario' is now streaming on Netflix in the US.
+---------
+
+# The Most Unforgettable TLC TV Shows, Ranked
+
+TV Lists
+
+Fri, 13 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/most-unforgettable-tlc-tv-shows-ranked/
+
+The channel boasts an extensive list of reality television programming that often captured family mechanics, ways of life, and unique situations.
+---------
+
+# 'Peaky Blinders' Star Barry Keoghan Volunteers as Next Bond Villain in Amazon Reboot [Exclusive]
+
+Exclusives, James Bond, Peaky Blinders, Peaky Blinders: The Immortal Man, Barry Keoghan, Cillian Murphy
+
+Fri, 13 Mar 2026 15:53:09 GMT
+
+https://movieweb.com/barry-keoghan-volunteers-next-bond-villain/
+
+Speaking exclusively with MovieWeb, 'The Immortal Man' star puts himself forward for Steven Knight's reboot after Cillian Murphy plays coy.
+---------
+
+# 'The School Duel' Trailer Reveals New Thriller Starring 'The Office's Oscar Nuñez
+
+Movie News, The School Duel
+
+Fri, 13 Mar 2026 15:31:57 GMT
+
+https://movieweb.com/the-school-duel-thriller-trailer/
+
+The upcoming dystopian thriller 'The School Duel' gets a tense new trailer.
+---------
+
+# 'Blood Ties' Trailer Unleashes Action Thriller That Hits the US Next Month
+
+Movie News, The Raid, Action, Thriller, Martial Arts
+
+Fri, 13 Mar 2026 15:21:16 GMT
+
+https://movieweb.com/ikatan-darah-blood-ties-trailer-action/
+
+From 'The Raids' Iko Uwais, the revenge flick promises to act as the perfect companion piece to the modern martial arts masterpiece.
+---------
+
+# 'Michael' Images Put Jaafar Jackson Center Stage in New Look at Biopic [Exclusive]
+
+Exclusives, Michael, michael jackson
+
+Fri, 13 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/michael-jackson-new-images/
+
+MovieWeb has the pleasure of debuting a trio of new images of Jaafar Jackson's incredible transformation into the King of Pop.
+---------
+
+# Robert Eggers' Epic 2022 Viking Movie Is Far Better Than its Box Office Suggests
+
+Features, The Northman, Cultural Reassessment
+
+Fri, 13 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/the-northman-action-fantasy-recommendation/
+
+Robert Eggers' first non-horror foray, 'The Northman', is a highly acclaimed Viking action epic that deserves more views
+---------
+
+# 'All Day & All Night' Rounds Out Cast for Josh Hartnett Action Thriller
+
+Movie News, Josh Hartnett, Tommy Wirkola, Action
+
+Fri, 13 Mar 2026 14:40:06 GMT
+
+https://movieweb.com/all-day-all-night-cast/
+
+Kumail Nanjiani, O'Shea Jackson Jr., John Leguizamo, and Dan Fogler have joined Josh Hartnett in the upcoming action thriller 'All Day & All Night.'
+---------
+
+# 'Alien: Romulus' Conquers Global Streaming on HBO Max
+
+Movie News, Hot on Streaming, Alien: Romulus
+
+Fri, 13 Mar 2026 14:35:22 GMT
+
+https://movieweb.com/alien-romulus-global-streaming-hit-march-2026/
+
+Is it the best in the franchise after the 1979 original and its 1986 sequel?
+---------
+
 # Sam Elliott's "Bizarre" $245M Sci-Fi Adaptation Is Smashing Up Worldwide Streaming Charts 23 Years Later
 
 Movies, Hulk, Marvel Cinematic Universe, HBO Max, Streaming Charts, Sam Elliott
