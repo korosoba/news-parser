@@ -1,3 +1,300 @@
+# Prime Video’s New 8-Part Crime Thriller Based On Best-Selling Series Becomes An Instant Worldwide Streaming Sensation
+
+TV, Scarpetta, Scarpetta - Season 1
+
+Sat, 14 Mar 2026 14:52:56 GMT
+
+https://screenrant.com/scarpetta-prime-video-streaming-success-march-2026/
+
+Based on Patricia Cornwell's long-running series of best-selling novels, Prime Video's Scarpetta has quickly become a worldwide streaming hit.
+---------
+
+# Toy Story 5: Woody's Aging Revisited In Upcoming Pixar Movie
+
+Movies, Toy Story 5, Toy Story 2, Toy Story
+
+Sat, 14 Mar 2026 14:45:18 GMT
+
+https://screenrant.com/toy-story-5-woody-aging-storyline-return-toy-story-2/
+
+The fifth installment of Pixar's Toy Story franchise is set to bring back this key detail from Toy Story 2, reminding just how fragile life really is.
+---------
+
+# Prime Video's Top 10 Comedy Movies Ranked
+
+Movies, Prime Video, Comedy, Ranking
+
+Sat, 14 Mar 2026 14:40:19 GMT
+
+https://screenrant.com/amazon-prime-video-comedy-movies-best-ranked/
+
+Prime Video is home to some fantastic and hilarious films, from parodies to animated classics to romantic comedies.
+---------
+
+# 10 TV Characters That Lost The Audience's Love
+
+Classic TV
+
+Sat, 14 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/tv-characters-fell-out-of-love-with/
+
+Many TV characters were made to be loved by the audience, but they ended up being hated either due to changes or a different perspective.
+---------
+
+# Nathan Fillion's Cult Classic 14-Part Sci-Fi Series Quietly Lands American Streaming Resurgence At The Perfect Time
+
+TV, Firefly, Nathan Fillion, Streaming Charts
+
+Sat, 14 Mar 2026 14:20:06 GMT
+
+https://screenrant.com/nathan-fillion-firefly-amazon-vod-streaming-success-march-2026/
+
+The iconic sci-fi series led by Nathan Fillion is finding tremendous success in 2026 for Americans as it's surging in streaming at the right time.
+---------
+
+# Netflix's 5-Part Crime Series Should've Gone Wrong, But It Became A 10/10 Thriller
+
+Classic TV, You
+
+Sat, 14 Mar 2026 14:15:19 GMT
+
+https://screenrant.com/you-netflix-crime-thriller-series-success-surprising/
+
+Netflix has spent a lot of time developing crime shows, from true crime to fiction, and everything in between, but not every crime show has landed.
+---------
+
+# 10 Fantasy Movie Scenes That Made Us Do A Double-Take
+
+Movies, Doctor Strange, The Lord of the Rings: The Fellowship of the Ring, Harry Potter and the Prisoner of Azkaban, Fantasy, The Hobbit: The Desolation of Smaug, The Princess Bride, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe, Stardust, Star Wars: Episode V - The Empire Strikes Back, Maleficent, The Neverending Story
+
+Sat, 14 Mar 2026 14:15:19 GMT
+
+https://screenrant.com/fantasy-movie-scenes-double-take/
+
+The fantasy genre is full of movies that may make you double take, whether it's thanks to a clever camera effect or a shock reveal.
+---------
+
+# 10 Best Next-Gen DC Villains Introduced Since 2000
+
+DC Comics, Batman, Superman, Wonder Woman
+
+Sat, 14 Mar 2026 14:00:18 GMT
+
+https://screenrant.com/best-dc-villains-introduced-after-2000/
+
+Since 2000, DC has introduced a new generation of villains who have redefined the legacies of the heroes they fight against. Here are 10 of the best.
+---------
+
+# One Piece Season 2's Best Character Is A Straw Hat, But It's Not Luffy
+
+Streaming TV, One Piece
+
+Sat, 14 Mar 2026 14:00:18 GMT
+
+https://screenrant.com/one-piece-season-2-live-action-zoro-star/
+
+One Piece season 2's biggest character highlight is a member of the Straw Hat crew, but it's not the Netflix adaptation's main man, Monkey D. Luffy.
+---------
+
+# Fallout 5's Announcement Has Gamers Concerned About Their Own Mortality
+
+Gaming, Fallout, Fallout 5
+
+Sat, 14 Mar 2026 14:00:18 GMT
+
+https://screenrant.com/fallout-5-announcement-elder-scrolls-6/
+
+Fallout 5 is still a very long way away and gamers are getting worried about if they'll even live to see it release.
+---------
+
+# Crunchyroll’s New Action-Packed Fantasy Spectacle Finally Takes the Fight to America
+
+Anime, Fate/strange Fake
+
+Sat, 14 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/crunchyroll-fate-stay-fake-american-fantasy-anime/
+
+Fate/Stay Fake has taken fantasy anime to an interesting new location: the United States of America.
+---------
+
+# 19 Years Later, This 10/10 Dark Fantasy Anime Needs a Remake
+
+Anime, Claymore
+
+Sat, 14 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/claymore-best-dark-fantasy-anime-needs-remake/
+
+Claymore was one of the best fantasy anime of the 2000s, and it deserved so much better than the rushed ending that it got.
+---------
+
+# From the Earth to the Moon: Tom Hanks' Groundbreaking HBO Miniseries
+
+TV, Sci-Fi, Tom Hanks, From The Earth To The Moon, HBO Max
+
+Sat, 14 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/tom-hanks-from-the-earth-to-the-moon-best-hbo-space-drama/
+
+Tom Hanks’ 12-part HBO miniseries epic still stands as one of the most accomplished space dramas ever made.
+---------
+
+# 8 Most The Most Controversial Horror Comics So Far
+
+Comics, Horror
+
+Sat, 14 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/most-controversial-horror-comics-ever-published/
+
+Some horror comics are too intense for the public to handle.
+---------
+
+# ‘Reacher’ Fans Push Alan Ritchson’s Alien Invasion Blockbuster Past Major Streaming Milestone in 1 Week
+
+Movie News, Alan Ritchson, War Machine, Reacher, Netflix
+
+Sat, 14 Mar 2026 14:41:16 GMT
+
+https://collider.com/alan-ritchson-war-machine-sci-fi-movie-streaming-success-netflix-march-2026-week-at-number-1-on-streaming/
+
+Reacher star Alan Ritchson continues to dominate streaming as his epic Netflix sci-fi movie passes a major streaming milestone.
+---------
+
+# ‘House of the Dragon’ Season 3 Is Already Setting Up the Story’s Greatest Tragedy
+
+TV Features, House of the Dragon, HBO Max, George R.R. Martin, HBO
+
+Sat, 14 Mar 2026 14:41:12 GMT
+
+https://collider.com/house-of-the-dragon-season-3-jaehaera-targaryen-recast-character-tragedy/
+
+House of the Dragon Season 3 recasts Jaehaera Targaryen, setting up the show to explore the character's tragic storyline in the Dance of the Dragons.
+---------
+
+# This Intense 45-Hour Descent Into Crime Is Still the Gold Standard for Streaming
+
+TV News, Breaking Bad, Bryan Cranston, Aaron Paul, Vince Gilligan
+
+Sat, 14 Mar 2026 14:40:13 GMT
+
+https://collider.com/breaking-bad-greatest-crime-show-ever-streaming-success-weekend-binge-netflix-march-2026/
+
+One of the three greatest shows ever made with a staggering 62 episodes is still the perfect weekend binge. Here's what you should know.
+---------
+
+# Perfect Anthology Shows That Have Aged Like Fine Wine
+
+TV, Anthology, The Twilight Zone, Black Mirror, Love, Death & Robots
+
+Sat, 14 Mar 2026 14:33:12 GMT
+
+https://collider.com/anthology-tv-shows-aged-like-fine-wine/
+
+Time has been extremely kind to anthology shows like CBS' The Twilight Zone and Netflix's Black Mirror, with their reputation improving with age.
+---------
+
+# Hulu's 10/10 Psychological Thriller Has Officially Aged Very Well
+
+TV Features, Revenge, Thriller, Mystery, Hulu
+
+Sat, 14 Mar 2026 14:30:12 GMT
+
+https://collider.com/revenge-drama-series-streaming-hulu-aged-well/
+
+The psychological drama series Revenge, starring Emily VanCamp, is a scandalous, addictive binge about a woman haunted by her past.
+---------
+
+# 10 Most Ambitious Best Picture Winners, Ranked
+
+Movie, Lawrence of Arabia, Ben-Hur, Oppenheimer, The Lord of the Rings: The Return of the King
+
+Sat, 14 Mar 2026 14:28:12 GMT
+
+https://collider.com/most-ambitious-best-picture-winners-ranked/
+
+The most ambitious Best Picture winners of all time include classics like Lawrence of Arabia and newer movies like Everything Everywhere All at Once.
+---------
+
+# The Most Ambitious 30-Hour Sci-Fi Epic in History Is Still Dominating the Global Charts
+
+TV News, Foundation, Apple TV, Jared Harris, Lee Pace
+
+Sat, 14 Mar 2026 14:20:12 GMT
+
+https://collider.com/apple-tv-ambitious-sci-fi-series-foundation-streaming-success-march-2026/
+
+Apple TV's blazingly bingeable three-part sci-fi sleeper hit still hasn't reached its peak, with another season on the way.
+---------
+
+# 1977 Classic David Bowie Hit Now Ranked Among His Most Influential Songs
+
+Music Features, Music, Rock, David Bowie
+
+Sat, 14 Mar 2026 14:15:12 GMT
+
+https://collider.com/1977-classic-david-bowie-hit-now-ranked-among-his-most-influential-songs/
+
+David Bowie's 1977 hit Sound and Vision from the album Low revolutionized rock singles with its experimental production and unconventional structure.
+---------
+
+# Martin Scorsese’s Most Intense 210-Minute Gamble Is Seeing a Massive 2026 Resurgence
+
+Movie News, The Irishman, Martin Scorsese, Netflix, Robert De Niro
+
+Sat, 14 Mar 2026 14:00:12 GMT
+
+https://collider.com/martin-scorsese-intense-crime-saga-the-irishman-streaming-success-netflix-march-2026/
+
+Martin Scorsese's 3.5 hour epic crime saga starring Robert De Niro, The Irishman, is still an undisputed classic over five years later.
+---------
+
+# MovieWeb's Reviews of Every 2026 Oscar Best Picture Nominee
+
+Movie Lists, Oscars
+
+Sat, 14 Mar 2026 14:30:17 GMT
+
+https://movieweb.com/best-picture-nominee-reviews/
+
+Looking to catch up quickly before Hollywood's biggest night? Here are all the Oscar movies in one place.
+---------
+
+# ‘Peaky Blinders: The Immortal Man’ True Story & Modern Relevance Explained
+
+Exclusives, Peaky Blinders: The Immortal Man, Cillian Murphy, Steven Knight
+
+Sat, 14 Mar 2026 14:25:20 GMT
+
+https://movieweb.com/peaky-blinders-immortal-man-story-explained/
+
+While the 'Peaky Blinders' movie takes place in World War II, writer Steven Knight and star Cillian Murphy see how it relates to the present.
+---------
+
+# George R.R. Martin's 'Dark Winds' Is the Best Show You're Not Watching
+
+Features, Dark Winds, Streaming Recommendations, George R.R. Martin
+
+Sat, 14 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/dark-winds-streaming-binge-watch-amc-march-2026/
+
+'Dark Winds' masterfully blends Native American culture with a thrilling procedural to deliver a series that's unlike anything on TV right now.
+---------
+
+# How Peter Jackson's 'Lord of the Rings' Changed a Gandalf Line Into a Legendary Movie Quote
+
+Features, The Lord of the Rings, Great Line
+
+Sat, 14 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/gandalf-iconic-lord-of-rings-quote/
+
+Gandalf's most famous 'Lord of the Rings' line is surprisingly different in the books. Here's why it was changed and why it worked so well.
+---------
+
 # 10 Near-Perfect Anime From the 2010s That Are Already Being Forgotten ( But Shouldn’t Be)
 
 Anime
