@@ -1,3 +1,278 @@
+# Why A Key Severance Season 1 Star Has Yet To Return To Apple TV's Sci-Fi Hit Explained
+
+TV, Severance, Sci-Fi, SXSW
+
+Sat, 14 Mar 2026 17:54:37 GMT
+
+https://screenrant.com/severance-petey-not-returned-why-yul-vazquez/
+
+EXCLUSIVE: After being important in season 1, a key Severance star explains why they have not returned yet to the Apple TV hit series.
+---------
+
+# X-Men '97 Season Two Comic Officially Lands This June
+
+Comics, X-Men
+
+Sat, 14 Mar 2026 17:45:24 GMT
+
+https://screenrant.com/x-men-97-season-two-prequel-release-date/
+
+Marvel just announced X-Men '97: Season Two - a five-issue prelude comic that will bridge the first and second television seasons.
+---------
+
+# Spider-Verse’s Peter B. Parker Actor Addresses Live-Action Spinoff Chances After Nicolas Cage’s 2026 Spider-Man Series
+
+Movies, Spider-Verse, Jake Johnson, Marvel Cinematic Universe, SXSW
+
+Sat, 14 Mar 2026 17:39:43 GMT
+
+https://screenrant.com/spider-verse-peter-b-parker-live-action-spinoff-chances-jake-johnson/
+
+Exclusive: Spider-Verse star Jake Johnson weighs in on the chances of Peter B. Parker getting a live-action spinoff after Nicolas Cage's series.
+---------
+
+# Scream 7 Passes Huge U.S. Box Office Milestone, Smashing Franchise Speed Record
+
+Movies, Scream 7, Scream, Horror, Box Office Milestone
+
+Sat, 14 Mar 2026 17:38:30 GMT
+
+https://screenrant.com/scream-7-box-office-100-million-domestic-milestone/
+
+Scream 7 is the fourth movie in the iconic horror franchise to pass a major domestic box office milestone, breaking the speed record by a wide margin.
+---------
+
+# Hulu Abruptly Cancels Buffy The Vampire Slayer Sequel Series
+
+TV
+
+Sat, 14 Mar 2026 17:32:57 GMT
+
+https://screenrant.com/buffy-vampire-slayer-sequel-series-hulu-cancelled-sarah-michelle-gellar/
+
+The reboot of Buffy the Vampire Slayer is officially dead at Hulu.
+---------
+
+# 10 Crime Dramas Similar to Prime Video's Scarpetta
+
+Streaming TV, Scarpetta, Bosch, Cardinal
+
+Sat, 14 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/crime-drama-shows-like-scarpetta/
+
+10 gripping crime dramas similar to Prime Video's Scarpetta, featuring forensic investigations and complex characters working through crime drama.
+---------
+
+# Star Trek Just Had Its Best Captain Catchphrase Since Picard's "Engage"
+
+Streaming TV, Star Trek
+
+Sat, 14 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/star-trek-best-captain-catchphrase-picard-engage-reno/
+
+Many Star Trek captains have a signature phrase to send their ship into warp, with Picard's "Engage" the most iconic. Now, there's another classic.
+---------
+
+# 10 Best Rock & Roll Original Song Oscar Wins, Ranked
+
+Awards, Oscars, Music, Classic Rock, Rock, Bob Dylan, Bruce Springsteen
+
+Sat, 14 Mar 2026 17:19:42 GMT
+
+https://screenrant.com/best-rock-songs-won-oscars-ranked/
+
+From Bob Dylan to Bruce Springsteen, we rank the most iconic rock and roll hits to ever win the Best Original Song Oscar ahead of the 2026 ceremony.
+---------
+
+# The Madison Episode 3 Ending Explained: What's Next For The Clyburns?
+
+Streaming TV, The Madison
+
+Sat, 14 Mar 2026 17:18:36 GMT
+
+https://screenrant.com/the-madison-episode-3-discussion-ending-explained/
+
+Discover how Stacy's tough love is transforming her daughters in The Madison, and explore Abby's budding romance that could keep her in Montana. Spoilers for episode 3.
+---------
+
+# Netflix's 4-Part Sci-Fi Series Is So Good, It Could Last Forever
+
+Streaming TV, Love, Death & Robots, Sci-Fi, Netflix, Recommendation
+
+Sat, 14 Mar 2026 17:13:10 GMT
+
+https://screenrant.com/love-death-and-robots-premise-sci-fi-last-forever-netflix/
+
+Even the best sci-fi shows have a shelf life, but one four season hit from Netflix could buck this trend and go on until the end of time.
+---------
+
+# Hulu Cancels Sarah Michelle Gellar's Buffy the Vampire Slayer Revival
+
+TV, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Sat, 14 Mar 2026 17:55:50 GMT
+
+https://www.cbr.com/sarah-michelle-gellar-buffy-the-vampire-slayer-revival-canceled/
+
+After the encouraging update about Buffy the Vampire Slayer: New Sunnydale's update, Sarah Michelle Gellar revealed some bad news.
+---------
+
+# Tommy Lee Jones' Double Jeopardy Resurfaces on Netflix 27 Years Later
+
+Movies, Double Jeopardy
+
+Sat, 14 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/tommy-lee-jones-double-jeopardy-netflix-success-march-2026/
+
+One of Tommy Lee Jones and Ashley Judd's most critically underrated thrillers is making a run for the top of the streaming charts on Netflix.
+---------
+
+# Frieren Season 2 Foreshadows Sein's Return to the Anime
+
+Anime, Frieren: Beyond Journey's End
+
+Sat, 14 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/frieren-season-2-foreshadows-the-return-of-sein-the-priest/
+
+As the epic battles against the demons of the Divine Revolt Arc concludes, Frieren mentions a character that fans were afraid they'd never see again.
+---------
+
+# G.I. Joe Will Feature A Popular Storyline Once Again, But With A Twist
+
+Comics, G.I. Joe
+
+Sat, 14 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/gi-joe-first-look-real-american-hero-silent-missions/
+
+G.I. Joe is returning next month, but with a major twist that fans of Cobra are going to love.
+---------
+
+# 10 Greatest Metroidvanias of All Time, Ranked
+
+Games, metroidvania
+
+Sat, 14 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/greatest-metroidvanias-all-time-ranked-list/
+
+From classics like Super Metroid to modern hits like Hollow Knight: Silksong, these are the best Metroidvanias ever.
+---------
+
+# Hannah Einbinder Confirms 'Hacks' Is Officially Ending [Exclusive]
+
+TV News, Hannah Einbinder, Hacks, Seekers of Infinite Love, SXSW
+
+Sat, 14 Mar 2026 17:57:55 GMT
+
+https://collider.com/hacks-final-season-5-wrapped-final-season-hannah-einbinder/
+
+Hannah Einbinder confirms Season 5 of HBO's hit show Hacks has wrapped and that it is officially the end of the series.
+---------
+
+# Sarah Michelle Gellar's 'Buffy the Vampire Slayer' Reboot Cancelled by Hulu
+
+TV News, Buffy The Vampire Slayer, Sarah Michelle Gellar, Buffy the Vampire Slayer Sequel Series, Hulu
+
+Sat, 14 Mar 2026 17:55:56 GMT
+
+https://collider.com/buffy-the-vampire-slayer-hulu-reboot-cancelled-sarah-michelle-gellar/
+
+Buffy fans are in for a devastating shock as Sarah Michelle Gellar reveals Hulu has cancelled the upcoming reboot.
+---------
+
+# 'A Quiet Place' Star Shares a Hopeful Update on 'Part III' and the Abbott Family's Role [Exclusive]
+
+Exclusives, A Quiet Place Part III, Millicent Simmonds, Pretty Lethal, SXSW
+
+Sat, 14 Mar 2026 17:55:49 GMT
+
+https://collider.com/a-quiet-place-part-3-update-millicent-simmonds-abbott-family/
+
+Millicent Simmonds shared an update on the status of A Quiet Place: Part III and her hopes for the Abbott family in the horror threequel.
+---------
+
+# ‘The Hunger Games: Sunrise on the Reaping’ Gets a Panem-Sized Update From Iris Apatow [Exclusive]
+
+Movie News, The Hunger Games: Sunrise on the Reaping, Iris Apatow, Elle Fanning, Francis Lawrence, SXSW
+
+Sat, 14 Mar 2026 17:54:08 GMT
+
+https://collider.com/the-hunger-games-sunrise-on-the-reaping-update-iris-apatow-working-with-elle-fanning/
+
+Iris Apatow breaks her silence on starring opposite Elle Fanning in The Hunger Games: Sunrise on the Reaping.
+---------
+
+# Netflix Locks Users Out of the Brutal World War II Hit That Trauma-Bonded Its Cast
+
+Movie News, Fury, Brad Pitt, Shia LaBeouf, Jon Bernthal
+
+Sat, 14 Mar 2026 17:40:12 GMT
+
+https://collider.com/brad-pitt-fury-ww2-movie-trauma-bonded-cast-netflix-restricted-ad-supported-tier-march-2026/
+
+Netflix is restricting access to David Ayer's harrowing WW2 film Fury, which trauma-bonded its star-studded cast, including Brad Pitt.
+---------
+
+# All 7 Movies Nominated for Best Director, but No Other Oscars
+
+Movie, Academy Awards, Oscar, Mulholland Drive, Directors
+
+Sat, 14 Mar 2026 17:28:13 GMT
+
+https://collider.com/movies-nominated-for-best-director-oscar-only/
+
+Movies like Mulholland Drive, Blue Velvet, and The Last Temptation of Christ are notable for being nominated for Best Director, but no other Oscars.
+---------
+
+# After 29 Years, Say Goodbye to Ethan Hawke's Essential 106-Minute Sci-Fi Thriller
+
+Movie News, Gattaca, Ethan Hawke, Tubi, Jude Law
+
+Sat, 14 Mar 2026 17:20:12 GMT
+
+https://collider.com/ethan-hawke-gattaca-essential-sci-fi-thriller-leaving-tubi-april-2026/
+
+Ethan Hawk's acclaimed sci-fi cult classic Gattaca is set to depart free streaming at the end of the month. Here's how to watch it.
+---------
+
+# 'Ready or Not 2: Here I Come' Review: All Hell Breaks Loose in This Unhinged, Bloody Sequel
+
+Movie Reviews, Ready or Not 2: Here I Come, Samara Weaving, Kathryn Newton, Sarah Michelle Gellar
+
+Sat, 14 Mar 2026 17:14:04 GMT
+
+https://collider.com/ready-or-not-2-here-i-come-review-samara-weaving-kathryn-newton/
+
+Ready or Not 2: Here I Come, starring Samara Weaving and Kathryn Newton, is a violent, wild time at the movies.
+---------
+
+# 10 Most Undeniable Best Actress Oscar Wins, Ranked
+
+Movie, Fargo, Sophie's Choice, Misery, Annie Hall
+
+Sat, 14 Mar 2026 17:10:12 GMT
+
+https://collider.com/undeniable-best-actress-oscar-wins-ranked/
+
+Some lead actress performances stand out as undeniable Oscar winners for their years, like Frances McDormand in Fargo and Kathy Bates in Misery.
+---------
+
+# 10 Explosive Action Miniseries You Can Binge-Watch in a Weekend
+
+TV Lists, Band of Brothers, The Continental
+
+Sat, 14 Mar 2026 17:30:17 GMT
+
+https://movieweb.com/best-action-tv-miniseries/
+
+You'll get your cardio in through osmosis this weekend. Be sure to add these explosive action miniseries to your watchlist.
+---------
+
 # The Madison's Matthew Fox Addresses Preston Death And Season 1 Finale
 
 TV, The Madison, Taylor Sheridan, Paramount Plus
