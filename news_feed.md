@@ -1,3 +1,223 @@
+# 10 Best Free RPGs On Xbox Game Pass Right Now
+
+Gaming, Xbox Game Pass, Triple-A Games, PC
+
+Sat, 14 Mar 2026 00:00:20 GMT
+
+https://screenrant.com/best-rpgs-xbox-game-pass/
+
+Xbox wasn't always the best platform for RPGs, but over the years, Xbox Game Pass has become the best way to play many of the genre greats.
+---------
+
+# Friday The 13th Creator Announces New Jason Film
+
+Movies, Friday the 13th, Warner Bros.
+
+Fri, 13 Mar 2026 23:52:44 GMT
+
+https://screenrant.com/friday-the-13th-creator-sean-cunningham-new-film/
+
+Friday the 13th co-creator revealed that a new movie could be on the way after Paramount's acquisition of Warner Bros. Discovery.
+---------
+
+# Top 3 Must-Watch Prime Video Shows This Weekend: March 13–15, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 13 Mar 2026 23:50:19 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-watch-weekend-march-13-15-2026/
+
+The best new shows to binge-watch this weekend on Prime Video include trending hits like 56 Days, Young Sherlock, and star-studded thriller Scarpetta.
+---------
+
+# Every Dragon Ball Villain Goku Never Beat Ranked From Weakest To Strongest
+
+Anime
+
+Fri, 13 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/every-dragon-ball-villain-goku-not-beat/
+
+Goku has always been rightfully seen as one of the strongest characters in Dragon Ball, but there are a handful of villains even he could never beat.
+---------
+
+# Every New Boss Confirmed For The Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Fri, 13 Mar 2026 23:16:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-new-bosses-confirmed/
+
+Multiple bosses from the Super Mario games are confirmed to make their big-screen debuts in The Super Mario Galaxy Movie.
+---------
+
+# In Just 1 Day, Netflix's Romance Drama Virgin River Becomes a Streaming Hit
+
+TV, Virgin River, Netflix, Romance
+
+Sat, 14 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/virgin-river-romance-drama-netflix-success-march-2026/
+
+Virgin River is one of the most-watched TV series on Netflix worldwide just one day after Season 7's release.
+---------
+
+# Friday the 13th's Evil Dead Easter Egg Can Change the Franchise
+
+Movies, Friday the 13th, Evil Dead
+
+Sat, 14 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/friday-the-13th-evil-dead-easter-egg/
+
+One Easter Egg in Jason Goes to Hell can change the entire future of the Friday the 13th franchise.
+---------
+
+# 10 Greatest Anime Arcs That Completely Changed The Series Forever
+
+Anime
+
+Fri, 13 Mar 2026 23:45:12 GMT
+
+https://www.cbr.com/best-anime-arcs-changed-story-forever/
+
+Some story arcs reshaped their anime in ways that could never be undone, and it was the best thing that could have happened to the story.
+---------
+
+# Zack Snyder's 300: Rise of an Empire Rises on Netflix Charts
+
+Movies, 300: Rise of an Empire, zack snyder
+
+Fri, 13 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/300-rise-of-an-empire-zack-snyder-netflix-march-2026/
+
+The forgotten film makes a splash on Netflix's global streaming charts 12 years after its release.
+---------
+
+# Chainsaw Man Part 3 More Likely After Fujimoto’s New Statement
+
+Anime, Chainsaw Man
+
+Fri, 13 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/chainsaw-man-manga-ending-creator-statement-part-3-coming/
+
+Tatsuki Fujimoto has finally spoken out after the reveal of Chainsaw Man Part 2 ending, and the case for Part 3 of the manga just got a bit better.
+---------
+
+# The Best Alien Movie in 38 Years Is Still Screaming Loud and Proud on Streaming
+
+Movie News, Alien: Romulus, Fede Alvarez, Ridley Scott, Sci-Fi
+
+Fri, 13 Mar 2026 23:59:38 GMT
+
+https://collider.com/alien-romulus-ridley-scott-sci-fi-movie-streaming-success-hbo-max-march-2026/
+
+Fede Álvarez's Alien: Romulus revived the dormant Alien franchise, and now it's the number five movie on HBO Max. Find out more here.
+---------
+
+# This 27-Year-Old Brendan Fraser Fantasy Adventure Saga Is Storming Streaming Ahead of 'The Mummy 4'
+
+Movie News, The Mummy, The Mummy Returns, Brendan Fraser, HBO Max
+
+Fri, 13 Mar 2026 23:46:19 GMT
+
+https://collider.com/the-mummy-1-2-brendan-fraser-adventure-classics-streaming-success-hbo-max-march-2026/
+
+Before the 2nd movie's theatrical re-release, The Mummy, along with its sequel, The Mummy Returns, surged on streaming charts over the weekend.
+---------
+
+# 3 Prime Video Shows Perfect for a Weekend Binge
+
+TV, Prime Video, Scarpetta, A Small Light, Clean Slate
+
+Fri, 13 Mar 2026 23:44:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-march-13/
+
+Scarpetta, A Small Light, and Clean Slate make up our list of the best Prime Video shows to binge the weekend of March 13th, 2026.
+---------
+
+# Prime Video's 2026 'Pirates of the Caribbean' Successor Isn't Walking the Plank on Streaming
+
+Movie News, Prime Video, The Bluff, Karl Urban, Priyanka Chopra Jonas
+
+Fri, 13 Mar 2026 23:30:43 GMT
+
+https://collider.com/prime-video-pirates-of-the-caribbean-replacement-the-bluff-streaming-success-march-2026/
+
+The Bluff, starring Priyanka Chopra Jonas and Karl Urban, has topped Prime Video's global charts since its release. Read on for more details.
+---------
+
+# 'Outlander' Season 8's Most Controversial Twist Ties Back to the Beginning
+
+TV Features, Outlander, Caitriona Balfe, Diana Gabaldon, STARZ
+
+Fri, 13 Mar 2026 23:23:12 GMT
+
+https://collider.com/outlander-season-8-premiere-faith-fraser-controversy/
+
+Outlander's Season 8 premiere reveals that Faith survived, a controversial choice that impacts several storylines.
+---------
+
+# Jackie Chan’s $359M Martial Arts Reboot Kicks Its Way Up Streaming Charts
+
+Movie News, Jackie Chan, The Karate Kid, Martial Arts, Netflix
+
+Fri, 13 Mar 2026 23:18:22 GMT
+
+https://collider.com/jackie-chan-the-karate-kid-2010-reboot-streaming-success-apple-tv-march-2026/
+
+Jackie Chan's 2010 martial arts film The Karate Kid has made a resurgence on streaming charts, 16 years after its theatrical release.
+---------
+
+# 31 Years Later, This 6-Part Cult-Classic Fantasy Officially Deserves a Reboot
+
+TV Features, Xena: Warrior Princess, Lucy Lawless, Fantasy, Action
+
+Fri, 13 Mar 2026 23:09:12 GMT
+
+https://collider.com/xena-warrior-princess-lucy-lawless-fantasy-cult-classic-deserves-a-reboot/
+
+Xena: Warrior Princess deserves a reboot after its 1995 debut, capitalizing on modern technology and representation.
+---------
+
+# 41 Years Later, the Greatest Sci-Fi Adventure Movie of All Time Blasts Onto Apple TV Charts
+
+Movie News, Apple TV, Back to the Future, Michael J. Fox, Sci-Fi
+
+Fri, 13 Mar 2026 23:09:10 GMT
+
+https://collider.com/sci-fi-adventure-movie-back-to-the-future-streaming-success-apple-tv-march-2026/
+
+The iconic 1985 sci-fi comedy Back to the Future, starring Michael J. Fox and Christopher Lloyd, has made a comeback on streaming charts.
+---------
+
+# Every Steven Spielberg Alien Movie, Ranked (#1 Is an Underrated Sci-Fi Masterpiece)
+
+Movie Lists, Steven Spielberg, Sci-Fi
+
+Sat, 14 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/steven-spielberg-alien-movies-ranked/
+
+Spielberg will make us look up again in 2026 with 'Disclosure Day.' In the meantime, let's check out his alien films and see how they rank.
+---------
+
+# 'Peaky Blinders: The Immortal Man' Star Tim Roth Changed 1 Aspect of his Character During Filming
+
+Movie News, Peaky Blinders: The Immortal Man, Tim Roth
+
+Fri, 13 Mar 2026 23:20:49 GMT
+
+https://movieweb.com/peaky-blinders-tim-roth-villain-change/
+
+Tim Roth's Beckett went through one important change during production for 'Peaky Blinders: The Immortal Man,' as revealed to MovieWeb.
+---------
+
 # Netflix's Best K-Drama of 2026 is Officially Over, and It Needs a Second Season
 
 Anime, Netflix, K-Drama
