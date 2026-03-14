@@ -1,3 +1,212 @@
+# X-Men's Jean Grey Just Debuted Her Scariest Redesign of All Time
+
+Comics, X-Men, jean grey
+
+Sat, 14 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/x-men-jean-grey-redesign-knull/
+
+A dark god.
+---------
+
+# Jujutsu Kaisen Already Set Up its Next Series After Modulo, But It's Easy To Miss
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Sat, 14 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-sequel-setup/
+
+Jujutsu Kaisen Modulo may not be the end for the Jujutsu Kaisen franchise as multiple signs point to a new series by Akutami and Iwasaki.
+---------
+
+# 9 Niche TV Shows That Became Global Hits
+
+Classic TV
+
+Sat, 14 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/niche-tv-shows-everyone-watched/
+
+From Game of Thrones to Heated Rivalry, some of the biggest hit TV shows of all time seemed to have niche appeal before they found a massive audience.
+---------
+
+# After 19 Years, Spider-Man Fans May Be About to Get That 'One More Day' Retcon...
+
+Comics, Spider-Man
+
+Sat, 14 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/spider-man-marriage-mary-jane-together/
+
+Is you-know-what finally happening, Spider-fans?
+---------
+
+# 10 Near-Perfect Family Movies That No One Remembers Today
+
+Movies, Flubber, MouseHunt, Matilda, Anastasia, National Treasure, The Road to El Dorado, Fly Away Home, Stardust, Treasure Planet, Small Soldiers, Family
+
+Sat, 14 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/forgotten-family-movies-near-perfect/
+
+Great movies suitable for audiences of all ages that may have slipped under your radar, including live-action and animated titles.
+---------
+
+# 8 Games To Scratch Your Fallout 5 Itch Right Now
+
+Gaming, Fallout
+
+Sat, 14 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/fallout-5-style-games-play-now/
+
+There is a lot that is distinct about the Fallout franchise, but its unique flavor can also be found in a handful of other like-minded games.
+---------
+
+# 8 Best-Written Anime With Zero Boring Characters
+
+Anime
+
+Sat, 14 Mar 2026 23:45:12 GMT
+
+https://www.cbr.com/anime-with-best-written-characters/
+
+Anime like Hunter x Hunter and Gintama avoid the usual mistake of filling their story with background characters who add nothing to the plot.
+---------
+
+# Buffy the Vampire Slayer Fans React to Hulu Canceling the Revival
+
+TV, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Sat, 14 Mar 2026 23:31:29 GMT
+
+https://www.cbr.com/buffy-vampire-slayer-fans-react-hulu-cancellation/
+
+Buffy fans are NOT happy after Sarah Michelle Gellar revealed that Hulu canceled the revival series.
+---------
+
+# 10 Classic Manga That Are Unreadable Today
+
+Anime, Manga
+
+Sat, 14 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/throwback-manga-aged-poorly-list/
+
+Not every classic manga is worth re-reading today.
+---------
+
+# Studio Ghibli Returns Totoro, Spirited Away & Kiki Passport Cases to Official Store After 2 Years
+
+Anime, Studio Ghibli, merchandise, My Neighbor Totoro, Kiki's Delivery Service, Spirited Away
+
+Sat, 14 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/studio-ghibli-totoro-spirited-away-kikis-delivery-service-passport-case-release/
+
+After two years, Studio Ghibli's Totoro, Kiki's Delivery Service and Spirited Away-inspired passport cases return to the company's official store.
+---------
+
+# Shonen's 'Big Three' Anime Will Never Be the Same After 2026
+
+Anime, Bleach, One Piece, Naruto
+
+Sat, 14 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/bleach-naruto-one-piece-big-three-shonen-returns-changes-2026/
+
+As One Piece and Naruto continue to trudge along, Bleach is finally coming to an end.
+---------
+
+# Michael B. Jordan’s $370M Horror Hit Reaches No. 5 on Prime Video Ahead of Oscars Night
+
+Movies, Horror, Sinners
+
+Sat, 14 Mar 2026 23:07:26 GMT
+
+https://www.cbr.com/michael-b-jordan-horror-hit-sinners-streaming-success-oscars-prime-video-march-2026/
+
+One of the most awarded horror films of all-time is one the verge of breaking another record at the Oscars, and now it's back atop streaming charts.
+---------
+
+# Parks & Rec Hid the Greatest Joke in Sitcom History in Plain Sight for 7 Seasons
+
+TV, Parks and Recreation, Comedy, NBC
+
+Sat, 14 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/parks-and-rec-best-jerry-joke-changing-names/
+
+Parks and Rec proved many times that it was more than just a workplace comedy, featuring evolving long-running jokes and character development.
+---------
+
+# Rebecca Ferguson’s 4-Part Sci-Fi Hit Loses Fans Following Final Season Reveal
+
+TV News, Sci-Fi, Silo, Rebecca Ferguson, Apple TV
+
+Sat, 14 Mar 2026 23:40:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-hit-series-silo-apple-tv-chart-drop-final-season-revelation/
+
+After the reveal that Silo will end with Season 4, Apple TV’s sci-fi smash is no longer showing the same chart strength it once had.
+---------
+
+# Star Trek’s Most Divisive Spin-Off Warps Past a Major Streaming Milestone
+
+TV News, Star Trek: Starfleet Academy, Holly Hunter, Star Trek, Paramount Plus
+
+Sat, 14 Mar 2026 23:20:12 GMT
+
+https://collider.com/star-trek-divisive-spin-off-starfleet-academy-streaming-milestone-paramount-plus-march-2026/
+
+The latest Star Trek spin-off, Starfleet Academy, has defied controversy to earn an impressive milestone on U.S. streaming. Read on for details.
+---------
+
+# After 4 Episodes, Apple TV’s Sleeper Hit Thriller Is a Game-Changer for the Streamer
+
+TV Features, The Last Thing He Told Me, Apple TV, Thriller, Jennifer Garner
+
+Sat, 14 Mar 2026 23:18:12 GMT
+
+https://collider.com/apple-tv-last-thing-he-told-me-season-2-episode-4-grady-death/
+
+Grady Bradford's unexpected death in The Last Thing He Told Me Season 2 intensifies the mystery and leaves fans with more questions than answers.
+---------
+
+# This 10/10 Western Series Got a Forgotten Sequel That's Finally Free To Watch
+
+TV Features, Lonesome Dove, Return to Lonesome Dove, Western, Robert Duvall
+
+Sat, 14 Mar 2026 23:18:12 GMT
+
+https://collider.com/lonesome-dove-sequel-western-streaming-pluto-tv/
+
+Robert Duvall's brilliant Western miniseries Lonesome Dove got an unexpected sequel, Return to Lonesome Dove, with a largely different cast.
+---------
+
+# Idris Elba’s 15-Part Thriller Is the Streaming Hit Critics Didn’t Predict
+
+TV News, Hijack, Apple TV, Idris Elba, Streaming
+
+Sat, 14 Mar 2026 23:00:12 GMT
+
+https://collider.com/idris-elba-thriller-hijack-streaming-success-apple-tv-march-2026/
+
+Hijack is one of the biggest shows right now, with Season 2 helping push Idris Elba’s thriller back toward the top of streaming charts.
+---------
+
+# James Gunn's Infinity Stone Retcon Created an Enormous Misconception About the MCU
+
+Features, MCU, The Avengers, James Gunn, Canon Shift
+
+Sat, 14 Mar 2026 23:01:16 GMT
+
+https://movieweb.com/james-gunn-mcu-infinity-stone-retcon/
+
+James Gunn wrote the lore for the Infinity Stones in 90 minutes, altering the future of the MCU while also rewriting its history.
+---------
+
 # Outlander's Newest Prophecy Is A Frustrating Reminder Of What The Show Has Forgotten
 
 Streaming TV
