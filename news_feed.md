@@ -1,3 +1,322 @@
+# Resident Evil 5 Remake Needs To Keep This Iconic Scene, Fans Agree
+
+Gaming, Resident Evil 5, Resident Evil
+
+Sat, 14 Mar 2026 04:30:18 GMT
+
+https://screenrant.com/resident-evil-5-remake-chris-boulder-punch-scene/
+
+Fans already have strong opinions about whether a certain iconic scene should appear in a Resident Evil 5 remake, if Capcom ever gets around to it.
+---------
+
+# The Sun Never Sets Review: Love Triangle Drama Is A Triumphant Return For Director Joe Swanberg
+
+Movies, SXSW, The Sun Never Sets
+
+Sat, 14 Mar 2026 04:12:18 GMT
+
+https://screenrant.com/the-sun-never-sets-2026-movie-review-sxsw/
+
+Dakota Fanning and Jake Johnson take especially well to the mumblecore director's naturalism, in what may be his best film yet.
+---------
+
+# Dark Souls 2: Firelink Edition Is Basically A Whole New Game
+
+Gaming, Dark Souls
+
+Sat, 14 Mar 2026 04:00:26 GMT
+
+https://screenrant.com/dark-souls-2-firelink-edition-fan-expansion/
+
+Firelink Edition is a mod for Dark Souls 2: Scholar of the First Sin that transforms the experience from top to bottom.
+---------
+
+# 8 New Boruto Jutsu So Strong, They're Beyond God Tier
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Sat, 14 Mar 2026 03:59:00 GMT
+
+https://screenrant.com/boruto-strongest-jutsu-god-tier/
+
+Boruto's upping the ante in the jutsu department, from space-time to all possible futures.
+---------
+
+# Netflix’s #2 TV Show Is A Reminder To Watch The Best Dinosaur Documentary Of All Time
+
+Streaming TV, The Dinosaurs, Prehistoric Planet
+
+Sat, 14 Mar 2026 03:45:49 GMT
+
+https://screenrant.com/netflix-the-dinosaurs-prehistoric-planet-recommendation/
+
+Netflix's The Dinosaurs has quickly jumped to the top of the streaming charts, and it's a perfect reminder to go watch Apple TV's celebrated dino doc.
+---------
+
+# Titus Welliver’s Prime Video Return Secretly Confirms Bosch Never Ended
+
+Streaming TV, Titus Welliver, Bosch, Ballard
+
+Sat, 14 Mar 2026 03:30:19 GMT
+
+https://screenrant.com/titus-welliver-bosch-return-ballard-spinoff-franchise-never-end/
+
+It’s been a while since the main Bosch series ended on Prime Video, but Titus Welliver’s return as Harry Bosch seems to secretly continues its run.
+---------
+
+# Guardians of the Galaxy's New Strongest Hero Unleashes a Disturbingly Unique Superpower
+
+Comics, Guardians of the Galaxy
+
+Sat, 14 Mar 2026 03:05:24 GMT
+
+https://screenrant.com/guardians-galaxy-cosmic-ghost-rider-powers/
+
+In the new Marvel series Imperial Guardians, Cosmic Ghost Rider's unique ability adds a shocking twist to the team's mission.
+---------
+
+# Netflix's 8-Part Noir Detective Thriller From 2023 Is One of Its Greatest
+
+Anime, Pluto, Netflix
+
+Sat, 14 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/netflix-best-detective-thriller-pluto-anime-movie/
+
+The streaming giant is home to a ton of gripping mysteries, but none perhaps as gorgeous as this 2023 icon.
+---------
+
+# I Love Boosters Receives Unanimous Rotten Tomatoes Score
+
+Movies, I Love Boosters, Keke Palmer, Demi Moore
+
+Sat, 14 Mar 2026 02:11:23 GMT
+
+https://screenrant.com/i-love-boosters-rotten-tomatoes-score-debut/
+
+Keke Palmer and Demi Moore's new science fiction crime thriller debuts with undivided critical response after its SXSW premiere.
+---------
+
+# Sydney Chandler & Takehiro Hira's Emotional New Sci-Fi Movie Involved "A Lot Of Experimentation" During Filming
+
+Movies, Anima, SXSW, Takehiro Hira, Sydney Chandler
+
+Sat, 14 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/sydney-chandler-takehiro-hira-anima-movie-experimentation-brian-tetsuro-ivie-maximilian-lee-piazza/
+
+Sydney Chandler, Takehiro Hira and their Anime director and co-star talk their emotional new sci-fi movie and its experimental style of filming.
+---------
+
+# Undertone Review: A24's Latest Horror Movie Is an 84-Minute Panic Attack
+
+Movies, undertone
+
+Sat, 14 Mar 2026 04:56:38 GMT
+
+https://www.cbr.com/undertone-review/
+
+Ian Tuason's haunting, sound-driven A24 film Undertone has strong performances, relentless tension, and deeply unsettling moments.
+---------
+
+# Netflix Is Adding the 1 Shonen Jump Crossover Dragon Ball Z Fans Missed
+
+Anime, Toriko, One Piece, Netflix
+
+Sat, 14 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/toriko-one-piece-crossover-netflix-streaming-release-date/
+
+The 2011 collaboration between two Shonen Jump titans has been historically hard to stream in the West.
+---------
+
+# This Parks & Rec Episode Still Has the Most Disturbing Cold Open in Sitcom History
+
+TV, Parks and Recreation, Comedy, NBC, Nick Offerman
+
+Sat, 14 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/parks-and-rec-most-disturbing-cold-open/
+
+Parks and Recreation had many memorable cold openings during its seven seasons, but one episode was nauseating for some.
+---------
+
+# 10 Best-Written Superhero Anime With Amazing Action
+
+Anime, My Hero Academia, Tiger & Bunny, To Be Hero X, One-Punch Man
+
+Sat, 14 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/superheroes-best-written-anime-amazing-action/
+
+Anime is a medium that's especially receptive to superhero stories, some of which go above and beyond with their writing and battles.
+---------
+
+# 10 Greatest PS1 Masterpieces of All Time, Ranked
+
+Games, PlayStation (Original)
+
+Sat, 14 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/best-ps1-masterpieces-ranked-list/
+
+PS1 games like FF7 are 10/10, no notes.
+---------
+
+# Crunchyroll, HIDIVE, and Every Legal Anime Streaming Option for HiAnime Users Right Now
+
+Anime, Streaming, piracy, Crunchyroll, HIDIVE, RetroCrush
+
+Sat, 14 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/anime-streaming-legal-options-crunchyroll-hidive/
+
+While HiAnime may currently be down -- possibly for good -- there are other legal streaming options out there for anime fans, both large and small.
+---------
+
+# Gilmore Girls Fans Still Can't Rewatch the Episode That Fumbled Its Best Character
+
+TV, Gilmore Girls, Drama, The CW
+
+Sat, 14 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/gilmore-girls-episode-fumbled-best-character-luke/
+
+Gilmore Girls has many controversial character choices, but only one character was fundamentally tarnished in a single episode.
+---------
+
+# The Planet of the Apes's Streaming Success Proves Fans Still Want More
+
+Movies, Dawn of the Planet of the Apes, Planet of the Apes, HBO Max
+
+Sat, 14 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/hbo-planet-of-the-apes-streaming-success-future/
+
+The Planet of the Apes franchise remains a streaming hit and solidifies just how much fans want from the series.
+---------
+
+# 10 Anime Miniseries Where Every Episode Is a Masterpiece
+
+Anime, TV Miniseries, Mobile Suit Gundam
+
+Sat, 14 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/anime-miniseries-every-episode-masterpiece/
+
+A long-running anime can deliver endless entertainment, but there are also plenty of equally interesting anime miniseries with minimal episodes.
+---------
+
+# 10 Best Isekai Anime That Aren't Just Shonen Slop in Disguise
+
+Anime, Isekai
+
+Sat, 14 Mar 2026 02:30:12 GMT
+
+https://www.cbr.com/best-isekai-anime-not-shonen-list/
+
+The greatest isekai anime, like Log Horizon and Overlord, deliver much more than reheated shonen tropes.
+---------
+
+# This Is the Mount Rushmore of Vampire Movies
+
+Movie, Nosferatu, Dracula, Let the Right One In, Sinners
+
+Sat, 14 Mar 2026 03:09:12 GMT
+
+https://collider.com/best-vampire-movies-mount-rushmore/
+
+Landmark vampire movies like Sinners, Nosferatu, and Let the Right One In are among the genre's best and most important.
+---------
+
+# Prime Video's Perfect 3-Part Fantasy Series Rewrites the Rules of the Genre
+
+TV Features, The Wheel of Time, Prime Video, Fantasy, Josha Stradowski
+
+Sat, 14 Mar 2026 03:00:13 GMT
+
+https://collider.com/wheel-of-time-prime-video-fantasy-rewrites-genre-rules/
+
+In "The Road to the Spear," The Wheel of Time defies fantasy genre expectations by focusing on character development and worldbuilding.
+---------
+
+# 10 Movies From 1951 That Are Now Considered Classics
+
+Movie, The Day The Earth Stood Still, A Streetcar Named Desire, The African Queen, Classics
+
+Sat, 14 Mar 2026 02:56:13 GMT
+
+https://collider.com/best-1951-movies-classics/
+
+A Streetcar Named Desire, The Day the Earth Stood Still, and The African Queen are all among the very best, classic movies from 1951.
+---------
+
+# 'Heated Rivalry's Hudson Williams Just Joined an 8-Episode Mystery Thriller You'll Obsess Over
+
+TV Features, Hudson Williams, Heated Rivalry, Television
+
+Sat, 14 Mar 2026 02:16:13 GMT
+
+https://collider.com/heated-rivalry-hudson-williams-yaga-crave-mystery-thriller/
+
+Heated Rivalry breakout Hudson Williams' next project is a small-town mystery thriller Yaga based on Slavic folklore.
+---------
+
+# ‘Avengers: Doomsday’ Is Making Its Massive Call Sheet Worth It [Exclusive]
+
+Exclusives, Avengers: Doomsday, Marvel, Lewis Pullman, SXSW
+
+Sat, 14 Mar 2026 00:15:55 GMT
+
+https://collider.com/avengers-doomsday-update-lewis-pullman-fans-dream-every-character-matters/
+
+Avengers: Doomsday actor Lewis Pullman discusses the film's stacked cast, the Russo brothers' directing style, and the importance of each character.
+---------
+
+# Guy Ritchie's Hit Crime Saga Surges Again as Season 2 Looms
+
+TV News, MobLand, Guy Ritchie, Paramount Plus, Crime
+
+Sat, 14 Mar 2026 00:02:23 GMT
+
+https://collider.com/guy-ritchie-mobland-tom-hardy-crime-series-streaming-success-paramount-plus-march-2026/
+
+Guy Ritchie's action-packed crime drama is back on streaming charts as another one of his projects becomes a streaming sensation. Get all the details.
+---------
+
+# 8 TV Shows Trending Worldwide You Have To Watch This Weekend
+
+TV Lists, One Piece
+
+Sat, 14 Mar 2026 02:00:30 GMT
+
+https://movieweb.com/tv-shows-trending-worldwide-binge-watch/
+
+From a medical drama to a live-action adaptation, these TV shows on streaming platforms Netflix, Disney+, HBO Max, and Apple TV are trending.
+---------
+
+# 'Ted' Star Giorgia Whigham Addresses Puking Scene With Scott Grimes in Season 2
+
+Exclusives, Ted, Peacock
+
+Sat, 14 Mar 2026 01:30:17 GMT
+
+https://movieweb.com/ted-season-2-giorgia-whigham/
+
+In 'Ted' Season 2, Giorgia Whigham's Blaire Bennett has a nasty scene with Scott Grimes' Matty Bennett, which Whigham discusses with MovieWeb.
+---------
+
+# How Failed 'Star Wars' Prequel Helped Directors Shape 'Project Hail Mary' [Exclusive]
+
+Movie News, Solo: A Star Wars Story, Chris Miller, Phil Lord, Project Hail Mary
+
+Sat, 14 Mar 2026 00:26:22 GMT
+
+https://movieweb.com/star-wars-solo-impact-project-hail-mary/
+
+Directors Phil Lord and Chris Miller reflect on reuniting with former collaborators to jump into a new universe.
+---------
+
 # 10 Best Free RPGs On Xbox Game Pass Right Now
 
 Gaming, Xbox Game Pass, Triple-A Games, PC
