@@ -1,3 +1,212 @@
+# Big Little Lies' Return Finally Gets Filming Update 3 Years After Being Announced
+
+TV, Big Little Lies
+
+Sat, 14 Mar 2026 15:51:08 GMT
+
+https://screenrant.com/big-little-lies-david-e-kelley-creator-season-3-production/
+
+Big Little Lies is not so little anymore, and fans are dying to know when to expect the long-awaited season 3.
+---------
+
+# New A24 Horror Movie And Record-Breaking Romance Shine At U.S. Box Office Despite Oscars Competition
+
+Movies, Reminders of Him, Box Office, A24, Horror, undertone
+
+Sat, 14 Mar 2026 15:45:40 GMT
+
+https://screenrant.com/reminders-of-him-undertone-box-office-opening-weekend-domestic-chart-report/
+
+Although the Oscars will keep many U.S. moviegoers at home on Sunday, A24's latest horror movie and a new romance outperform box office expectations.
+---------
+
+# The Entire Walking Dead Franchise Currently Has Just 2 Seasons Left
+
+Classic TV, The Walking Dead
+
+Sat, 14 Mar 2026 15:45:22 GMT
+
+https://screenrant.com/walking-dead-franchise-only-2-seasons-left/
+
+The Walking Dead has been running for 16 years, and it seems that the clock is finally running out for one of the best zombie franchises ever made.
+---------
+
+# The Boys Spinoffs: Amazon's Balanced Approach vs. Marvel's Oversaturation
+
+Streaming TV, The Boys
+
+Sat, 14 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/prime-video-the-boys-shared-universe-better-than-marvel/
+
+The MCU has been going downhill due to oversaturation, but Prime Video's The Boys universe has found the right balance for a shared universe.
+---------
+
+# Free Steam Game With 98% Positive Reviews Is One You Can't Miss
+
+Gaming, Steam, Indie, PC
+
+Sat, 14 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/steam-free-game-98-positive-reviews-download/
+
+There’s a delightfully weird game on Steam with 98% Positive reviews that can be claimed and played for free, and it may have flown under your radar.
+---------
+
+# Revival Of All-Time Great Crime Thriller Series Shot Down By Star After Netflix Popularity Resurgence 11 Years Later
+
+TV, The Mentalist, SXSW
+
+Sat, 14 Mar 2026 15:18:36 GMT
+
+https://screenrant.com/the-mentalist-revival-netflix-success-robin-tunney-response/
+
+EXCLUSIVE: As one of TV's popular procedurals enjoys a Netflix resurgence, the chances of a revival get a candid response from a main cast member.
+---------
+
+# James Cameron’s Upcoming Grimdark Adaptation Should Learn 1 Lesson From His First Avatar Movie
+
+Movies, James Cameron, The Devils
+
+Sat, 14 Mar 2026 15:15:18 GMT
+
+https://screenrant.com/james-cameron-the-devils-avatar-vfx/
+
+James Cameron's upcoming grimdark fantasy adaptation has everything necessary to be incredible if he learns 1 lesson from his first Avatar movie.
+---------
+
+# Why Anne Hathaway's The Devil Wears Prada 2 Won't Have Andy's Ex-Boyfriend Nate Returning In The Sequel
+
+Movies, The Devil Wears Prada 2
+
+Sat, 14 Mar 2026 15:07:22 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-nate-not-returning-explained-adrian-grenier/
+
+Anne Hathaway is stepping into her old shoes once again for The Devil Wears Prada 2, but everyone is wondering where her on-screen boyfriend Nate is.
+---------
+
+# 10 Details You Only Notice When Rewatching Lost Season 1
+
+Classic TV, Lost
+
+Sat, 14 Mar 2026 15:02:19 GMT
+
+https://screenrant.com/lost-season-1-rewatch-details-notice/
+
+Lost Season 1 Rewatch: 10 Hidden Details You Missed
+---------
+
+# Sam Raimi's The Evil Dead: A Horror Masterpiece That Aged Perfectly
+
+Movies, The Evil Dead
+
+Sat, 14 Mar 2026 15:00:19 GMT
+
+https://screenrant.com/evil-dead-sam-raimi-masterpiece/
+
+All these years later, Sam Raimi's first ever movie — the indie horror classic The Evil Dead — is still his masterpiece (and it hasn't aged a day).
+---------
+
+# 10 ‘90s Classics That Rewrote Sci-Fi Anime Forever
+
+Anime, Sci-Fi
+
+Sat, 14 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/1990s-anime-changed-sci-fi-forever/
+
+The '90s were an iconic time for science fiction anime, with titles like Evangelion and Ghost in the Shell completely changing the game.
+---------
+
+# It's Officially a New Era for Resident Evil in 2026
+
+Games, Resident Evil, Resident Evil 7, horror games
+
+Sat, 14 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/resident-evil-new-era-2026-re-requiem-franchise/
+
+Resident Evil Requiem has officially ushered in a new era for the classic Capcom franchise.
+---------
+
+# The Thin Red Line is the Greatest Ensemble WWII Movie Ever
+
+Movies, War
+
+Sat, 14 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/thin-red-line-best-wwii-ensemble-film/
+
+With a strong cast, The Thin Red Line remains one of the best World War II films that accurately portrays the Army’s role in the Battle of Guadalcanal
+---------
+
+# A24’s Groundbreaking New Horror Movie Sends ‘The Bride!’ Reeling in Early Box Office Battle
+
+Movie News, undertone, The Bride!, Box Office, A24
+
+Sat, 14 Mar 2026 15:43:07 GMT
+
+https://collider.com/a24-horror-movie-undertone-overtakes-the-bride-global-box-office-10-million/
+
+A24’s diabolical new horror movie, Undertone, has sent The Bride! running from the box office altar. See how much it’s made.
+---------
+
+# Guy Ritchie’s $200 Million Straight-to-Streaming Misfire Is Winning Over ‘Young Sherlock’ Fans
+
+Movie News, Fountain of Youth, Apple TV, Guy Ritchie, Young Sherlock
+
+Sat, 14 Mar 2026 15:41:12 GMT
+
+https://collider.com/guy-ritchie-fountain-of-youth-young-sherlock-fans-streaming-success-apple-tv-march-2026/
+
+Young Sherlock fans are flocking to check out Guy Ritchie's $200 million straight-to-streaming misfire on Apple TV. Find out more here.
+---------
+
+# 17 Years Later, Matt Damon’s $60 Million Clint Eastwood Classic Still Delivers a Knockout
+
+Movie News, Invictus, Matt Damon, Clint Eastwood, Morgan Freeman
+
+Sat, 14 Mar 2026 15:21:12 GMT
+
+https://collider.com/matt-damon-sports-biopic-clint-eastwood-masterpiece-invictus-streaming-success-prime-video-apple-tv-march-2026/
+
+17 years after it first hit theaters, Matt Damon's $60 million masterpiece directed by Clint Eastwood is better than you remember.
+---------
+
+# Ryan Gosling’s 94% RT Sci-Fi Sensation Outpaces Taylor Swift’s ‘Eras Tour’ in Theaters
+
+Movie News, Ryan Gosling, Project Hail Mary, Taylor Swift: The Eras Tour, Taylor Swift
+
+Sat, 14 Mar 2026 15:08:58 GMT
+
+https://collider.com/project-hail-mary-overtakes-taylor-swift-eras-tour-more-theaters-box-office/
+
+Ryan Gosling’s 94% RT sci-fi movie Project Hail Mary has broken a box office record set by Taylor Swift’s Eras Tour.
+---------
+
+# Move Over 'Euphoria,' This Steamy $40M Series Is Officially the New King of HBO Max
+
+TV News, Heated Rivalry, Euphoria, HBO Max, HBO
+
+Sat, 14 Mar 2026 15:00:12 GMT
+
+https://collider.com/heated-rivalry-steamy-6-part-drama-series-streaming-success-hbo-max-march-2026/
+
+HBO's six-part drama that's even steamier than Euphoria is overstaying its welcome at the top of streaming charts. Find out more here.
+---------
+
+# 10 Years Later, 'Moonlight' Is More Important Than Ever
+
+Features, Moonlight, Sinners, Oscars
+
+Sat, 14 Mar 2026 15:01:16 GMT
+
+https://movieweb.com/moonlight-oscar-winner-important/
+
+'Moonlight' promised to usher in a new era of Hollywood. What happened next makes its place in movie history all the more important.
+---------
+
 # Prime Video’s New 8-Part Crime Thriller Based On Best-Selling Series Becomes An Instant Worldwide Streaming Sensation
 
 TV, Scarpetta, Scarpetta - Season 1
