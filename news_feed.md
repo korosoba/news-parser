@@ -1,3 +1,333 @@
+# Outlander's Newest Prophecy Is A Frustrating Reminder Of What The Show Has Forgotten
+
+Streaming TV
+
+Sat, 14 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/outlander-season-8-cunningham-prophecy-show-forget/
+
+Outlander's prophecies and predictions are always thrilling, but the addition of new ones in season 8 is just a reminder of those that went ignored.
+---------
+
+# Every Flash Sidekick, Ranked From Slowest to Fastest
+
+DC Comics, The Flash, Wally West, Impulse
+
+Sat, 14 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/every-flash-sidekick-ranked-slowest-fastest/
+
+These kids can move.
+---------
+
+# Christopher Nolan's The Odyssey Secures Extended Theatrical Windows & IMAX Showings
+
+Movies, The Odyssey, Spider-Man: Brand New Day
+
+Sat, 14 Mar 2026 22:27:43 GMT
+
+https://screenrant.com/christopher-nolan-odyssey-spider-man-box-office-battle-update/
+
+The Odyssey and Spider-Man: Brand New Day will do battle at theaters this summer, and Christopher Nolan's movie has already scored a big win.
+---------
+
+# HBO Max's Primal: The Ultimate Dinosaur TV Show
+
+Streaming TV, Primal
+
+Sat, 14 Mar 2026 22:14:18 GMT
+
+https://screenrant.com/primal-hbo-max-best-dinosaur-show-of-all-time/
+
+Netflix's The Dinosaurs is taking over the streamer, but there's another, better dinosaur TV show on HBO Max, currently on its third season.
+---------
+
+# Brian Review: Ben Wang Continues His Stellar Run In Hilariously Vulnerable High School Comedy
+
+Movies, Brian, SXSW
+
+Sat, 14 Mar 2026 22:04:18 GMT
+
+https://screenrant.com/brian-2026-movie-review-sxsw/
+
+Ben Wang delivers another great performance in Will Ropp's feature directorial debut, a comedy on the complexities of adolescence and adulthood.
+---------
+
+# "I Blew It": YouTuber States Regrets on Netflix Anime Dub Cameo Performance
+
+Anime, Netflix, Baki, Baki Hanma, Baki-Dou: The Invincible Samurai
+
+Sat, 14 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/netflix-baki-dou-moist-critical-english-dub-regrets-bad/
+
+In a surprising twist, popular YouTuber MoistCr1TiKal admits to being disappointed with his first experience of anime voice acting for these reasons.
+---------
+
+# 7 Upcoming Thriller Shows You Cannot Miss
+
+Streaming TV, Thriller
+
+Sat, 14 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/upcoming-thriller-shows-you-cannot-miss/
+
+New seasons of these highly anticipated thriller series, both new and returning, are already creating buzz — and they aren't even out yet.
+---------
+
+# Fallout: Padre Mateo Has Serious Red Dead Redemption Vibes
+
+Gaming, Fallout 4, Fallout
+
+Sat, 14 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/fallout-padre-mateo-western-mod-rdr/
+
+Fallout: Padre Mateo has a nice Western vibe that should appeal to fans of both Red Dead Redemption and Fallout: New Vegas. Check it out.
+---------
+
+# Why Tom Felton's Under-Seen 2025 Comedy Movie Is Topping Streaming In America
+
+Movies, Fackham Hall
+
+Sat, 14 Mar 2026 21:55:18 GMT
+
+https://screenrant.com/fackham-hall-movie-hbo-max-success-march-2026/
+
+Fackham Hall, a 2025 period-piece parody starring Tom Felton, did not draw crowds in theaters but has found its audience on a U.S. streaming service.
+---------
+
+# Frasier Blows Up on Streaming Despite Revival Cancelation
+
+TV, Frasier, Paramount Plus
+
+Sat, 14 Mar 2026 22:44:35 GMT
+
+https://www.cbr.com/frasier-streaming-success-march-2026/
+
+The beloved sitcom is blowing up the streaming charts despite the unfortunate fate of the revival.
+---------
+
+# 5 Dark Sci-Fi Shows Better Than Black Mirror
+
+TV, Sci-Fi, Dark, Maniac, Black Mirror
+
+Sat, 14 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/dark-sci-fi-better-than-black-mirror-list/
+
+Black Mirror is one of the most prominent dark sci-fi series on TV, but there are others that do dark sci-fi better.
+---------
+
+# Netflix's 6-Part Crime Drama That Night Turned Into 1 of the Most Popular Shows
+
+TV, Netflix, That Night
+
+Sat, 14 Mar 2026 22:29:43 GMT
+
+https://www.cbr.com/netflix-that-night-crime-drama-global-success-march-2026/
+
+The six-part crime drama, perfect for I Know What You Did Last Summer fans, truly tested how far a family would go after a deadly mistake.
+---------
+
+# 10 Heartbreaking Anime That Are Almost Unwatchable Today
+
+Anime, Berserk, Neon Genesis Evangelion, Studio Ghibli
+
+Sat, 14 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/saddest-anime-unwatchable-2026/
+
+An exploration of the most emotionally devastating anime ever released, analyzing why each is so heartbreaking
+---------
+
+# Paramount Cancels Max Landis’ 'Weird & Subversive' G.I. Joe Reboot
+
+Movies, G.I. Joe, max landis
+
+Sat, 14 Mar 2026 22:13:08 GMT
+
+https://www.cbr.com/paramount-passes-max-landis-g-i-joe/
+
+Max Landis reveals the bizarre premise for his ill-fated G.I. Joe reboot that Paramount rejected.
+---------
+
+# Guy Ritchie's First Sherlock Holmes Project in 15 Years Is a Stealth Global Hit on Prime Video
+
+TV, Crime, Drama, Comedy, Young Sherlock
+
+Sat, 14 Mar 2026 22:11:45 GMT
+
+https://www.cbr.com/guy-ritchie-sherlock-holmes-streaming-success-prime-video-march-2026/
+
+It's taken no time at all for Guy Ritchie's latest Sherlock Holmes project to dominate Prime Video — better than all but one other series.
+---------
+
+# Solo Leveling: Arise Overdrive Gets First Official Update March 2026
+
+Anime, Solo Leveling
+
+Sat, 14 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/solo-leveling-arise-overdrive-march-2026-update/
+
+One of the most highly-requested features is finally coming to Solo Leveling: Arise Overdrive this March, along with other promising content.
+---------
+
+# The Mentalist Just Hit Netflix and is Required Viewing 11 Years Later
+
+TV, The Mentalist, Scarpetta, Netflix, Crime
+
+Sat, 14 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/the-mentalist-crime-thriller-netflix-scarpetta-connection/
+
+Discover why this beloved crime procedural has become a must-watch on Netflix, especially with its interesting connection to a brand new hit series.
+---------
+
+# Ice Cube’s War of the Worlds Beats Snow White for the Worst Film of 2025 at the Razzie Awards
+
+Movies, War of the Worlds
+
+Sat, 14 Mar 2026 21:58:58 GMT
+
+https://www.cbr.com/ice-cube-war-of-the-worlds-razzie-awards-winner-2026/
+
+The 2025 science fiction epic that critics and audiences alike couldn't stand was just awarded one of the least coveted industry awards of all time.
+---------
+
+# ‘Tracker’ Is Officially a Different Show Following Its Most Brutal Case
+
+TV Features, Tracker, Justin Hartley, Paramount Plus, CBS
+
+Sat, 14 Mar 2026 22:52:12 GMT
+
+https://collider.com/tracker-season-3-to-the-bone-most-brutal-case/
+
+Tracker has taken on a darker tone since Season 1 with Colter Shaw getting into more dangerous cases in Season 3.
+---------
+
+# 10 Sci-Fi Movies That Are 10/10 But Nobody Remembers
+
+Movie, Sci-Fi, Aniara, Beyond the Black Rainbow, Europa Report
+
+Sat, 14 Mar 2026 22:51:12 GMT
+
+https://collider.com/perfect-sci-fi-movies-no-one-remembers/
+
+From Coherence to Aniara, these sci-fi movies delivered brilliant ideas, tension, and storytelling, yet they remain strangely forgotten today.
+---------
+
+# Sci-Fi TV’s Most Defining Moment of the 21st Century Still Has No Equal
+
+TV Features, Lost, Matthew Fox, Evangeline Lilly, Ian Somerhalder
+
+Sat, 14 Mar 2026 22:41:13 GMT
+
+https://collider.com/lost-opening-sci-fi-tv-most-defining-moment-of-the-21st-century/
+
+Lost’s iconic opening drops viewers into chaos immediately, redefining how television pilots could begin for years to come.
+---------
+
+# Neo-Western Lovers Beware — Netflix Is Blocking Robert Rodriguez’s $58 Million Cult Classic
+
+Movie News, Antonio Banderas, Breaking Bad, Desperado, Robert Rodriguez
+
+Sat, 14 Mar 2026 22:40:12 GMT
+
+https://collider.com/netflix-blocks-antonio-banderas-desperado-robert-rodriguez-cult-classic-ad-supported-tier-march-2026/
+
+Netflix is restricting access to Robert Rodriguez's cult classic Desperado, starring Antonio Banderas and Salma Hayek. Find out more.
+---------
+
+# 10 Funniest Shows of the 1990s, Ranked
+
+TV, Seinfeld, Frasier, The Simpsons, South Park
+
+Sat, 14 Mar 2026 22:34:12 GMT
+
+https://collider.com/funniest-shows-1990s-ranked/
+
+Seinfeld, The Simpsons, and South Park are all among the absolute best, funniest comedy shows of the '90s.
+---------
+
+# 10 R-Rated Crime Movies That Are 10/10 No Notes
+
+Movie, Crime, No Country for Old Men, Heat, The Godfather Part II
+
+Sat, 14 Mar 2026 22:28:12 GMT
+
+https://collider.com/r-rated-crime-movies-perfect/
+
+10 R-rated crime masterpieces like 'Goodfellas' and 'No Country for Old Men' prove why some gangster films feel absolutely perfect.
+---------
+
+# 36 Years Later, Netflix Axes the Oscar-Winning Stephen King Thriller That Redefined Psychological Horror
+
+Movie News, Stephen King, Netflix, Misery, Horror
+
+Sat, 14 Mar 2026 22:20:12 GMT
+
+https://collider.com/stephen-king-misery-oscar-winning-thriller-leaving-netflix-april-2026/
+
+One of the very best Stephen King adaptations, Misery starring Kathy Bates, is set to lose its place in the Netflix catalog next month.
+---------
+
+# Prime Video's 'Young Sherlock' Just Set Up 8 Unexpected Season 2 Mysteries
+
+TV, Young Sherlock, Prime Video, Mystery, Guy Ritchie
+
+Sat, 14 Mar 2026 22:08:12 GMT
+
+https://collider.com/prime-video-young-sherlock-season-2-mysteries/
+
+From the evolution of Sherlock and Moriarty and the chance of Dr. Watson showing up, we have a ton of burning questions for 'Young Sherlock.'
+---------
+
+# Ridley Scott's 4-Part WWII Sci-Fi Favorite Takes Over a New Streamer
+
+Movie News, The Man in the High Castle, Prime Video, Alexa Davalos, Rufus Sewell
+
+Sat, 14 Mar 2026 22:00:12 GMT
+
+https://collider.com/ridley-scott-man-in-the-high-castle-ww2-sci-fi-series-streaming-netflix-march-2026/
+
+The cult classic Prime Video show The Man in the High Castle has debuted on a new streaming home this month. Find out more.
+---------
+
+# Perfect '80s Movies That Nobody Remembers Today
+
+Movie, 1980s, My Dinner with Andre, Running on Empty, The Verdict
+
+Sat, 14 Mar 2026 21:53:12 GMT
+
+https://collider.com/perfect-80s-movies-nobody-remembers/
+
+My Dinner With Andre, Running on Empty, and The Verdict are among the perfect movies from the '80s that are completely forgotten by audiences.
+---------
+
+# Steven Spielberg's Sci-Fi Miniseries Is Must-Watch Before 'Disclosure Day'
+
+Features, Comparison Recommendation, Disclosure Day, Steven Spielberg, Taken
+
+Sat, 14 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/steven-spielberg-sci-fi-taken-disclosure-day/
+
+24 Years Ago, Steven Spielberg's sci-fi miniseries 'Taken' explored UFOs, and is a must-watch ahead of 'Disclosure Day'.
+---------
+
+# Movies Where Cheating Led To Horrible Outcomes
+
+Movie Lists, Drama
+
+Sat, 14 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/movies-where-cheating-led-to-horrible-outcomes/
+
+From 'Gone Girl to 'Great Gatsby,' there are endless cautionary tales to warn you against cheating.
+---------
+
 # Paramount Not Moving Forward With Max Landis G.I. Joe Film
 
 Movies, GI Joe
