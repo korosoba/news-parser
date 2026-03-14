@@ -1,3 +1,311 @@
+# J.J. Abrams' Other 2000s Sci-Fi Show Beat Lost
+
+Classic TV, Lost, Fringe, Recommendation
+
+Sat, 14 Mar 2026 20:50:12 GMT
+
+https://screenrant.com/fringe-tv-show-beat-lost-2000s-sci-fi/
+
+Lost may have been the 2000s' most iconic series, but J.J. Abrams' other sci-fi epic ultimately outperformed it where it mattered most.
+---------
+
+# Dynasty: The Murdochs - Netflix's New Docuseries on Murdoch Empire & Sibling Rivalry
+
+Streaming TV
+
+Sat, 14 Mar 2026 20:47:19 GMT
+
+https://screenrant.com/netflix-dynasty-the-murdochs-series-watch/
+
+Discover the real-life Shakespearean drama of the Murdoch family empire in Netflix's new 4-part docuseries, Dynasty: The Murdochs, trending now.
+---------
+
+# Everything Everywhere All At Once Team’s New AI Documentary Required Reading “Over 3,300 Pages Of Transcripts”
+
+Movies, The AI Doc: Or How I Became an Apocaloptomist, SXSW
+
+Sat, 14 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/eeao-the-ai-documentary-research-directors-producers-sxsw/
+
+Everything Everywhere All at Once's Daniel Kwan and The AI Doc team break down the extensive research that their documentary required to make.
+---------
+
+# 1 Virgin River Season 7 Storyline Redeems The Romance Show’s Most Hated Couple
+
+Streaming TV, Virgin River
+
+Sat, 14 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/virgin-river-lizzie-denny-postpartum-anxiety/
+
+Netflix's Virgin River season 7 delivers a heart-wrenching storyline that transforms the show's most despised couple, redefining their relationship.
+---------
+
+# All Signs Point To These 2 Long-Missing Bosses Appearing In The Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Explainer
+
+Sat, 14 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/all-signs-point-to-these-2-long-missing-bosses-appearing-in-the-super-mario-galaxy-movie/
+
+Based on the characters already confirmed for the story, two more long-missing bosses have good chances of showing up in The Super Mario Galaxy Movie.
+---------
+
+# The Witcher 3: Brothers In Arms Will Keep You Busy Until The Witcher 4
+
+Gaming, The Witcher 3: Wild Hunt
+
+Sat, 14 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/witcher-3-brothers-in-arms-fan-expansion-free-download/
+
+Experience The Witcher 3: Wild Hunt like never before with the Brothers in Arms mod, featuring 5,825 bug fixes.
+---------
+
+# 8 X-Men With The Most Deaths In Marvel Comics
+
+Marvel Comics, X-Men, Marvel
+
+Sat, 14 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/xmen-died-most-times-marvel-comics/
+
+Marvel heroes are well acquainted with death, but the X-Men are especially prone to dying and coming back to life due to their mutant nature.
+---------
+
+# Hogwarts Legacy 2 Be Damned, This 2026 RPG Will Scratch Your Wizarding Itch
+
+Gaming, Witchbrook
+
+Sat, 14 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/hogwarts-legacy-2-witchbrook-2026-wizard-sim/
+
+Immerse yourself in the magical world of Witchbrook, a life-simulation RPG where you attend Witchbrook College.
+---------
+
+# 10 TV Sitcoms That Never Lose Their Charm On Rewatch
+
+Classic TV, Sitcoms
+
+Sat, 14 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/best-sitcoms-to-rewatch/
+
+These rewatchable sitcoms never get old. From classic network hits to modern streaming comedies, these shows get funnier every time you revisit them.
+---------
+
+# Star Trek: Section 31 Escapes All Razzie Nominations
+
+Movies, Star Trek: Section 31
+
+Sat, 14 Mar 2026 20:42:16 GMT
+
+https://www.cbr.com/star-trek-section-31-razzie-awards/
+
+Some critics of the panned Star Trek film were predicting it to be a major "winner" at the Razzies.
+---------
+
+# Even Sean Giambrone Thought Stranger Things Season 5 Had a 'Missing Episode'
+
+CBR Exclusives, Stranger Things
+
+Sat, 14 Mar 2026 20:41:21 GMT
+
+https://www.cbr.com/sean-giambrone-stranger-things-missing-episode/
+
+The Conformity Gate was so popular that even other actors believed it was real.
+---------
+
+# Clint Eastwood's Pale Ride Set 2 Western Movie Record in the 1980s
+
+Movies, Pale Rider, Western
+
+Sat, 14 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/clint-eastwood-pale-rider-western-movie-box-office-record/
+
+Clint Eastwood's legendary Western movie Pale Rider was the highest-grossing Western of the 1980s, and coincidentally, Eastwood's only '80s Western.
+---------
+
+# Dragon Ball Super Finally Unites Gogeta and Vegito
+
+Anime, Dragon Ball, merchandise, bandai
+
+Sat, 14 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/dragon-ball-super-gogeta-vegito-bandai-clearise-release/
+
+A new Dragon Ball release has brought together Gogeta and Vegito in their iconic Super Saiyan forms.
+---------
+
+# This 2026 Crunchyroll Series Will Be the Best Fantasy Anime of the Decade
+
+Anime, Wistoria: Wand and Sword, Crunchyroll
+
+Sat, 14 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/wistoria-wand-and-sword-2026-crunchyroll-best-fantasy-shonen-anime/
+
+Wistoria: Wand and Sword is ready to return with season 2 on Crunchyroll in April 2026, and it might become one of the best fantasy shonen anime.
+---------
+
+# Marvel’s New Street-Level Hero Reinvents A Fan-Favorite Hero
+
+Comics, Marvel
+
+Sat, 14 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/mortal-thor-reinvents-an-iconic-avenger/
+
+A bold new version of Thor has been taking the street-level Marvel Universe by storm, and it's absolutely genius
+---------
+
+# Dev Patel's Harrowing 125-Minute Thriller Is a Sudden Streaming Sensation
+
+Movie News, Dev Patel, Hotel Mumbai, Jason Isaacs, Armie Hammer
+
+Sat, 14 Mar 2026 20:40:12 GMT
+
+https://collider.com/dev-patel-true-crime-thriller-hotel-mumbai-streaming-netflix-march-2026/
+
+Dev Patel's critically acclaimed fact-based thriller Hotel Mumbai debuted on a new streaming home this month. Find out more.
+---------
+
+# 1968 Elvis Presley Track Almost Went Unreleased Because He Hated the Song
+
+Music Features, Elvis Presley, Rock, Music, Billboard Hot 100
+
+Sat, 14 Mar 2026 20:40:05 GMT
+
+https://collider.com/1968-elvis-presley-track-almost-went-released-because-he-hated-the-song/
+
+Elvis Presley’s 1968 song Dominick from Stay Away, Joe nearly went unreleased after the singer strongly disliked the track.
+---------
+
+# 10 Nearly Perfect Drama Movies, Ranked
+
+Movie, Drama, The Assassination of Jesse James by the Coward Robert Ford, The Deer Hunter, Little Children
+
+Sat, 14 Mar 2026 20:38:12 GMT
+
+https://collider.com/nearly-perfect-drama-movies-ranked/
+
+Nearly perfect drama movies like Carol and The Deer Hunter prove how powerful storytelling can reach unforgettable emotional depth.
+---------
+
+# 5 Years Later, ‘Dexter: Resurrection’ Season 2 Is Officially Bringing Back a Franchise Best
+
+TV Features, Dexter, Dexter: Resurrection, Michael C. Hall, Clyde Phillips
+
+Sat, 14 Mar 2026 20:33:12 GMT
+
+https://collider.com/dexter-resurrection-season-2-opening-title-sequence/
+
+Dexter: Resurrection is set to bring back the beloved opening credits sequence for Season 2, offering a nostalgic return to the franchise's roots.
+---------
+
+# All 8 James Bond Actors, Ranked by Number of Movies
+
+Movie, James Bond, 007, Dr. No, Skyfall
+
+Sat, 14 Mar 2026 20:20:12 GMT
+
+https://collider.com/james-bond-actors-number-movies-ranked/
+
+From Sean Connery to Daniel Craig, this is how many movies each James Bond actor starred in, from least to most.
+---------
+
+# Jason Statham’s Funniest Movie Makes an Explosive Return to Streaming 11 Years Later
+
+TV News, Spy, Jason Statham, Comedy, Melissa McCarthy
+
+Sat, 14 Mar 2026 20:20:12 GMT
+
+https://collider.com/jason-statham-funniest-movie-spy-streaming-success-starz-top-10-march-2026/
+
+Paul Feig’s Spy has landed in Starz’s U.S. Top 10, bringing Jason Statham’s riotous comedy turn back into focus more than a decade later.
+---------
+
+# John Cena Became a Hollywood Superstar 20 Years Ago With This Underseen War Thriller
+
+Movie Features, John Cena, Tubi, The Marine, WWE
+
+Sat, 14 Mar 2026 20:14:12 GMT
+
+https://collider.com/john-cena-the-marine-20th-annivesary-acting-debut/
+
+While John Cena might be a bona fide film star, he cut his teeth on the lean and mean war thriller The Marine.
+---------
+
+# Stephen King's Forgotten 7-Part Sci-Fi Thriller Is Officially One of His Best
+
+TV Features, Stephen King, Golden Years, Horror, Sci-Fi
+
+Sat, 14 Mar 2026 20:12:12 GMT
+
+https://collider.com/stephen-king-golden-years-cbs-best-series-forgotten/
+
+Stephen King's forgotten TV series Golden Years, about a janitor who starts aging in reverse, is a must-watch for fans of the horror icon.
+---------
+
+# This Is the Mount Rushmore of Horror Movie Directors
+
+Movie, John Carpenter, Horror, Wes Craven, David Cronenberg
+
+Sat, 14 Mar 2026 20:11:12 GMT
+
+https://collider.com/horror-movie-directors-mount-rushmore/
+
+Narrowing down the four best and most influential horror movies directors is daunting, but John Carpenter and Wes Craven surely make the cut.
+---------
+
+# 15 Years Later, No Legal Drama Can Beat This Masterpiece With a Near-Perfect Rotten Tomatoes Score
+
+TV Features, Suits, Patrick J. Adams, Gina Torres, Sarah Rafferty
+
+Sat, 14 Mar 2026 20:06:13 GMT
+
+https://collider.com/suits-legal-drama-american-procedural/
+
+Suits remains the gold standard in legal dramas, thanks to its bold premise that turns a dropout into a successful lawyer at a prestigious firm.
+---------
+
+# The 'Scrubs' Revival Mentioning Ollie's Name Doesn't Mean JD's Kids Will Appear This Season
+
+Features, Scrubs
+
+Sat, 14 Mar 2026 20:30:17 GMT
+
+https://movieweb.com/scrubs-revival-ollie-reveal/
+
+"My Poker Face" is the first time in the 'Scrubs' revival that we hear the name of JD & Elliot's son. However, don't expect more reveals anytime soon.
+---------
+
+# Cult British Sci-Fi Series 'Misfits' Is the Perfect Weekend Binge
+
+Features, Misfits, Streaming Recommendations, Sci-Fi
+
+Sat, 14 Mar 2026 20:00:16 GMT
+
+https://movieweb.com/misfits-cult-sci-fi-binge-watch-streaming/
+
+The five-season British sci-fi series 'Misfits' is streaming on Hulu and Peacock and is the perfect binge-watch for the weekend.
+---------
+
+# 'Scarpetta' Is Prime Video's Exciting New Thriller You Should Binge-Watch
+
+Features
+
+Sat, 14 Mar 2026 20:00:16 GMT
+
+https://movieweb.com/scarpetta-thriller-weekend-binge-watch/
+
+'Scarpetta,' which stars Nicole Kidman as Dr. Kay Scarpetta, premiered on Amazon Prime Video on March 11, 2026.
+---------
+
 # This HBO Max Tear-Jerker Is Your Perfect Weekend Watch
 
 Movies, We Live in Time, HBO Max
