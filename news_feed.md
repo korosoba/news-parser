@@ -1,3 +1,267 @@
+# The Madison's Matthew Fox Addresses Preston Death And Season 1 Finale
+
+TV, The Madison, Taylor Sheridan, Paramount Plus
+
+Sat, 14 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/the-madison-season-1-paul-death-premiere-matthew-fox-explained/
+
+EXCLUSIVE: The Madison star explains the unexpected death of a major character in the first episode and teases a pivotal moment in the finale.
+---------
+
+# Resident Evil Meets Content Warning In New Steam Game You Can Try Free Now
+
+Gaming, Steam, Resident Evil, Indie Games, PC
+
+Sat, 14 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/resident-evil-content-warning-steam-free-demo/
+
+Forget Resident Evil, this multiplayer horror game promises to keep you on edge with the real thrill that lies in controlling the chaos.
+---------
+
+# 6 Perfect Sci-Fi Shows Based On Books
+
+Classic TV, Sci-Fi
+
+Sat, 14 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/sci-fi-tv-shows-based-on-books-perfect/
+
+The rich concepts and ideas explored in sci-fi books can be ideal subjects for TV shows, and many of the best even go beyond their source material.
+---------
+
+# "Glossier And Weaker": Reacher's Creator Disliked This Adaptation The Most For Breaking A Key Rule From His Book
+
+Movies, Jack Reacher: Never Go Back, Reacher
+
+Sat, 14 Mar 2026 16:56:18 GMT
+
+https://screenrant.com/reacher-never-look-back-lee-child-adaptation-dislike-glossy/
+
+Jack Reacher author Lee Child tends to be nice about every adaptation of his books, but there's one live-action outing that left him disappointed.
+---------
+
+# The Great Gatsby's Best Quote Isn't the One Everyone Thinks
+
+Books, The Great Gatsby
+
+Sat, 14 Mar 2026 16:45:21 GMT
+
+https://screenrant.com/great-gatsby-greatest-line-literature-history/
+
+F. Scott Fitzgerald's The Great Gatsby is considered a pillar of Western literature, but fans have chosen the wrong quote to represent its message.
+---------
+
+# Netflix's 8-Part Erotic Thriller Series Breaks All The Rules Of Storytelling
+
+Streaming TV, Vladimir
+
+Sat, 14 Mar 2026 16:45:18 GMT
+
+https://screenrant.com/netflix-vladimir-breaks-storytelling-rules/
+
+Netflix's hit erotic thriller, based on a bestseller by Julia May Jonas, breaks the rules of storytelling, making it a much more interesting story.
+---------
+
+# First Warner Bros. Movie Post Paramount Merger Announcement Slammed With Brutal Week 2 Box Office Drop
+
+Movies, The Bride!, Box Office
+
+Sat, 14 Mar 2026 16:38:53 GMT
+
+https://screenrant.com/the-bride-movie-box-office-week-2-domestic-drop/
+
+The first new Warner Bros. movie after the announcement that they'll be merging with Paramount has a severe sophomore weekend box office drop.
+---------
+
+# Prime Video's Scarpetta: A New Crime Thriller with Endless Potential
+
+Streaming TV, Scarpetta
+
+Sat, 14 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/scarpetta-prime-video-crime-thriller-series-last-forever/
+
+Prime Video's star-studded new crime thriller series has already been greenlit for season 2, but it has the potential to go on for much longer.
+---------
+
+# One Piece’s 2026 Return Desperately Needs to Fix the Anime's Most Frustrating Rule
+
+Anime, One Piece
+
+Sat, 14 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/one-piece-anime-opening-spoiler-bad-habit/
+
+One Piece anime returns for the Elbaph arc in 2026 with huge upgrades, but it must fix its frustrating habit of spoiling the story.
+---------
+
+# Marvel's Spider-Man 2 Free Download Leaves Gamers Stunned: "No Words"
+
+Gaming, Marvel's Spider-Man 2
+
+Sat, 14 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/marvels-spider-man-2-free-download-playstation-plus-march-2026/
+
+Discover how PlayStation Plus members are reacting to the free download of Marvel's Spider-Man 2.
+---------
+
+# MGM+'s 3-Part Sci-Fi Horror Series Returns to No. 1 Ahead of Highly Anticipated Season 4
+
+TV, From
+
+Sat, 14 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/from-sci-fi-horror-mgm-plus-success-no-1-march-2026/
+
+The series has been a major hit for MGM+, and that success continues.
+---------
+
+# 10 Deadpool & Wolverine Easter Eggs That Set Up Avengers: Doomsday
+
+Comics, Deadpool & Wolverine, MCU, Avengers: Doomsday
+
+Sat, 14 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/marvel-easter-eggs-deadpool-wolverine-set-up-avengers-doomsday-list/
+
+Deadpool & Wolverine may be more important than we think when it comes to setting up the epic events of the MCU's upcoming event, Avengers: Doomsday.
+---------
+
+# Transformers' Bumblebee Optimus Prime Design Returns as New High-End Model Kit
+
+Anime, Transformers, Bumblebee, merchandise, toys
+
+Sat, 14 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/transformers-bumblebee-optimus-prime-yolopark-model-kit/
+
+A new Optimus Prime model kit that recreates both of his robot mode designs from the best live-action Transformers movies is on the way.
+---------
+
+# 5 Rare Fantasy Shows That Achieved True Perfection
+
+TV, Buffy The Vampire Slayer, Xena: Warrior Princess, Supernatural, Fantasy
+
+Sat, 14 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/perfect-fantasy-tv-shows-list/
+
+While there aren't many fantasy TV shows that are perfect, shows like Supernatural and Xena: Warrior Princess are just that.
+---------
+
+# The First Episode of One Piece’s New Season Officially Confirms This Is Already the Greatest Adaptation of All Time
+
+Anime, One Piece
+
+Sat, 14 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/netflix-one-piece-season-2-best-anime-adaptation/
+
+After nearly 30 years, One Piece has finally received the anime adaptation that it always deserved.
+---------
+
+# Samara Weaving's Ready or Not 2: Here I Come Debuts With Strong Rotten Tomatoes Score
+
+Movies, Ready or Not 2: Here I Come, Ready Or Not 2, Ready or Not, Rotten Tomatoes
+
+Sat, 14 Mar 2026 16:08:15 GMT
+
+https://www.cbr.com/samara-weaving-ready-or-not-2-here-i-come-rotten-tomatoes-score/
+
+The sequel is heading to theaters soon, and critics are impressed.
+---------
+
+# Marvel Reveals Daredevil's Striking New Villain Before Live-Action Comeback
+
+Comics, Daredevil
+
+Sat, 14 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/marvel-daredevil-new-villain-omen-revealed/
+
+Marvel Comics has given fans their first look at the next terrifying villain set to take center stage in Daredevil's world in just a few weeks.
+---------
+
+# Netflix Restricts Access to Matt Damon’s Divisive 109-Minute Sci-Fi Epic
+
+Movie News, Matt Damon, Wagner Moura, Elysium, Diego Luna
+
+Sat, 14 Mar 2026 17:00:12 GMT
+
+https://collider.com/matt-damon-netflix-blocks-sci-fi-elysium-ad-supported-tier-march-2026/
+
+Netflix is blocking Matt Damon's Elysium, the divisive sci-fi epic from the director of District 9, for subscribers to its ad-supported tier.
+---------
+
+# Tom Hardy’s Forgotten 115-Minute Western Gallops Onto a New Frontier Next Month
+
+Movie News, Lawless, Tom Hardy, Shia LaBeouf, Jessica Chastain
+
+Sat, 14 Mar 2026 16:41:12 GMT
+
+https://collider.com/tom-hardy-lawless-forgotten-western-drama-streaming-free-tubi-april-2026/
+
+Tom Hardy stunned audiences in his underappreciated Western drama about one family’s illegal dealings. Soon, it will stream for free.
+---------
+
+# This Is the Mount Rushmore of Action Movies
+
+Movie, Action, Die Hard, The Matrix, Raiders of the Lost Ark
+
+Sat, 14 Mar 2026 16:36:12 GMT
+
+https://collider.com/best-action-movies-mount-rushmore/
+
+Action classics like Die Hard, The Matrix, and Mad Max: Fury Road surely are among the four best and most iconic films in the genre.
+---------
+
+# Netflix Blocks Michael Keaton's Delicious 115-Minute McDonald's Origin Story for Certain Users
+
+Movie News, Michael Keaton, Nick Offerman, The Founder, Netflix
+
+Sat, 14 Mar 2026 16:20:13 GMT
+
+https://collider.com/netflix-blocks-michael-keaton-the-founder-mcdonalds-origin-story-ad-supported-tier-march-2026/
+
+Netflix is restricting access this month to Michael Keaton's forgotten McDonald's movie The Founder. Find out more below.
+---------
+
+# Colleen Hoover Continues 3-Movie Winning Streak Despite Scathing Reviews
+
+Movie News, Reminders of Him, Colleen Hoover, Regretting You, It Ends With Us
+
+Sat, 14 Mar 2026 16:15:16 GMT
+
+https://collider.com/colleen-hoover-reminders-of-him-box-office-debut-20-million/
+
+Colleen Hoover has pulled off a 3-movie winning streak at the global box office despite scathing reviews.
+---------
+
+# The Disaster Movie That Convinced 10% of America the World Was Ending Is Back
+
+Movie News, 2012, Roland Emmerich, Disney+, Chiwetel Ejiofor
+
+Sat, 14 Mar 2026 16:00:12 GMT
+
+https://collider.com/roland-emmerich-2012-disaster-movie-streaming-success-disney-plus-march-2026/
+
+17 years later, the disaster movie that scared 10% of America into thinking the world was ending is staging a streaming comeback.
+---------
+
+# 'Starfleet Academy' Season 1's Finale Falsely Promises  All the Cadets Will One Day Serve Aboard the Same Ship
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Sat, 14 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/starfleet-academy-cadets-future-tease/
+
+"Rubincon" sees the cadets save the day with very little help from their superiors, suggesting they'll be a crew to be reckoned with in the future.
+---------
+
 # Big Little Lies' Return Finally Gets Filming Update 3 Years After Being Announced
 
 TV, Big Little Lies
