@@ -1,3 +1,344 @@
+# Elijah Wood's Mysterious Ready Or Not 2 Character May Be Immortal, Teases Star
+
+Movies, SXSW, Ready or Not 2: Here I Come
+
+Sat, 14 Mar 2026 19:11:49 GMT
+
+https://screenrant.com/ready-or-not-2-elijah-wood-mystery-character-immortal-tease/
+
+EXCLUSIVE: Ready or Not 2: Here I Come will be fighting its way to theaters soon, and Elijah Wood's character is the talk of the town.
+---------
+
+# Why Michelle Pfeiffer Was The Only Choice For Apple TV’s Wild New Comedy Explained By Creator
+
+TV, Margo's Got Money Troubles, SXSW, Apple TV
+
+Sat, 14 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/michelle-pfeiffer-margos-got-money-troubles-only-choice-creator-cast-sxsw/
+
+Creator David E. Kelley and the cast of Margo's Got Money Troubles talk the Apple TV comedy and why Michelle Pfeiffer was the perfect choice.
+---------
+
+# Starz's 8-Part Fantasy Series Keeps Getting Better
+
+Streaming TV, Outlander
+
+Sat, 14 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/outlander-starz-best-historical-fantasy-series/
+
+Star’xs 8-part series, adapted from the popular bestselling fantasy novels by Diana Gabaldon, keeps getting better with each new installment.
+---------
+
+# Tomb Raider Meets REPO In Wild New Co-Op Game
+
+Gaming, Tomb Raider, Indie, Steam, PC
+
+Sat, 14 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/treasure-hunters-tomb-raider-style-co-op/
+
+A new co-op “friendslop” game that feels like a mix between REPO and Tomb Raider has just hit Steam, and you may want to check it out with your pals.
+---------
+
+# 12 Must-Have Minecraft Mods You Need To Download In 2026
+
+Gaming, Minecraft
+
+Sat, 14 Mar 2026 19:00:18 GMT
+
+https://screenrant.com/best-minecraft-mods-list/
+
+Transform your Minecraft experience in 2026 with top mods that enhance visuals, improve performance, and add exciting new gameplay features.
+---------
+
+# Severance Season 3's "Terrific" Scripts Teased By Star As Apple TV's Sci-Fi Hit Finally Gears Up To Begin Shooting
+
+TV, Severance, SXSW
+
+Sat, 14 Mar 2026 18:41:42 GMT
+
+https://screenrant.com/severance-season-3-scripts-production-update-adam-scott/
+
+EXCLUSIVE: One of the lauded stars of Severance teases that the third season will be just as amazing and will start production very soon.
+---------
+
+# From Critical Acclaim To Controversy: The Downfall Of BBC's Sherlock
+
+Classic TV, Sherlock
+
+Sat, 14 Mar 2026 18:31:19 GMT
+
+https://screenrant.com/sherlock-series-fan-reception-critics-turned-against-reason/
+
+One of the best detective TV shows of all time is a 4-part series that went from being everyone's favorite to being endlessly mocked and criticized.
+---------
+
+# Why Project Hail Mary's Rotten Tomatoes Score Is Near-Perfect
+
+Movies, Project Hail Mary
+
+Sat, 14 Mar 2026 18:31:19 GMT
+
+https://screenrant.com/project-hail-mary-rotten-tomatoes-score-reviews-explained/
+
+Critics rave about Ryan Gosling's performance and the sci-fi story in Christopher Miller and Phil Lord's Project Hail Mary, with an 95% RT score.
+---------
+
+# Steam Just Dropped A New Racer With Positive Reviews That You Can Play For Free
+
+Gaming, Steam
+
+Sat, 14 Mar 2026 18:31:19 GMT
+
+https://screenrant.com/steam-racer-hobby-horse-free/
+
+Discover Hobby Horse: First Ride, a unique free racing game on Steam with positive reviews, offering customization, obstacle courses, and more.
+---------
+
+# 10 Canceled TV Shows That Later Became Cult Classics
+
+Classic TV
+
+Sat, 14 Mar 2026 18:20:18 GMT
+
+https://screenrant.com/canceled-tv-shows-became-cult-classics/
+
+Explore the TV shows that were canceled too soon but found a dedicated fanbase over time, becoming cult classics through reruns and streaming.
+---------
+
+# 10 Must-Watch Netflix Anime With New Episodes in 2026
+
+Anime, Netflix, One Piece, My Hero Academia, Pokemon
+
+Sat, 14 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/netflix-must-watch-anime-new-episodes-in-2026/
+
+Check out all of Netflix's new anime releases for 2026, including brand-new shows and more seasons of fan-favorite series.
+---------
+
+# Zack Snyder's Justice League Remains Hollywood's Biggest Fan Victory
+
+Movies, Zack Snyder's Justice League, DCU, zack snyder
+
+Sat, 14 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/zack-snyders-justice-league-fan-movement-legacy/
+
+Fan movements like #ReleasetheSnyderCut could actually force a major Hollywood studio to surrender.
+---------
+
+# GTA 6 Controversy Threatens to Shake Up 2026 Release Date
+
+Games, Grand Theft Auto
+
+Sat, 14 Mar 2026 18:55:12 GMT
+
+https://www.cbr.com/gta-6-release-date-controversy-2026/
+
+Another country is creating a major controversy for Grand Theft Auto that might just push back the next game's already delayed release date.
+---------
+
+# Kate Hudson’s Song Sung Blue Won an Unexpected Razzie Award
+
+Movies, Song Sung Blue
+
+Sat, 14 Mar 2026 18:54:25 GMT
+
+https://www.cbr.com/kate-hudson-song-sung-blue-razzie-award/
+
+Kate Hudson's Best Actress Academy Award nomination just won her the best Razzie that any star could possibly ask to receive.
+---------
+
+# Liane Moriarty's The Last Anniversary Mystery Drama Hits Top 10 on AMC+
+
+TV, Mystery, AMC, Big Little Lies
+
+Sat, 14 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/big-little-lies-the-last-anniversary-mystery-drama-amc-succes-march-2026/
+
+Big Little Lies author gets another streaming hit with the 6-Part drama miniseries The Last Anniversary on AMC+.
+---------
+
+# The Greatest Dragon Ball Adaptations of All Time, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 14 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/best-dragon-ball-adaptations-ranked/
+
+Akira Toriyama's Dragon Ball is an eternal classic, but there are different ways to experience this story, some of which hold up better than others.
+---------
+
+# Gundam's Most Forgotten Reboot Makes a Surprise Comeback With New Master Grade Gunpla Model Kit Expansion
+
+Anime, Mobile Suit Gundam, merchandise, toys, bandai
+
+Sat, 14 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/gundam-f90-cluster-master-grade-gunpla-expansion/
+
+An epic add-on for the Master Grade Cluster Gundam model kit is just one of the many Gunpla collectibles being released by Bandai in the month of May.
+---------
+
+# Netflix’s 2-Part Fantasy Adventure Series That Keeps Getting Better Is the Perfect Weekend Binge
+
+TV Features, One Piece, Netflix, Fantasy, Adventure
+
+Sat, 14 Mar 2026 19:00:13 GMT
+
+https://collider.com/one-piece-netflix-fantasy-adventure-keeps-getting-better-weekend-binge/
+
+Netflix's live-action One Piece adaptation is a must-watch, seamlessly blending beloved characters, vibrant visuals, and engaging storylines.
+---------
+
+# 9 Years Later, Netflix Locks Users Out of Taylor Sheridan’s Neo-Western Crime Drama
+
+Movie News, Wind River, Taylor Sheridan, Elizabeth Olsen, Jeremy Renner
+
+Sat, 14 Mar 2026 19:00:13 GMT
+
+https://collider.com/taylor-sheridan-netflix-blocks-wind-river-icy-neo-western-ad-supported-tier-march-2026/
+
+Not every Netflix subscriber can access Taylor Sheridan's icy neo-Western Wind River this month. Find out if you make the cut.
+---------
+
+# Jason Bateman’s 5-Part American Sleeper Hit Took ‘Seinfeld’ and Made It Worse
+
+TV Features, Arrested Development, Seinfeld, Jason Bateman, Sitcom
+
+Sat, 14 Mar 2026 19:00:13 GMT
+
+https://collider.com/arrested-development-jason-bateman-seinfeld-sitcom/
+
+Arrested Development takes Seinfeld's "no hugging, no learning" concept to new extremes, creating a dysfunctional, selfish, and funny family.
+---------
+
+# 10 Movies From 1952 That Are Now Considered Classics
+
+Movie, Umberto D., Classics, Singin in the Rain, The Greatest Show on Earth
+
+Sat, 14 Mar 2026 18:54:12 GMT
+
+https://collider.com/best-1952-movies-classics/
+
+Singin' in the Rain, Umberto D., and Ikiru are all among the very best movies from 1952 that we now consider classics.
+---------
+
+# After a 3-Year Wait, Prime Video’s Most Heartfelt Series Returns on March 20
+
+TV News, Jury Duty, Prime Video, Ted Lasso, Comedy
+
+Sat, 14 Mar 2026 18:40:13 GMT
+
+https://collider.com/jury-duty-company-retreat-march-2026-release-date/
+
+As Ted Lasso prepares to return this summer, Prime Video's hit mockumentary series with the same positivity sets its Season 2 release date.
+---------
+
+# 20 Years After the Original, Justin Theroux Says 'The Devil Wears Prada 2' Is Exactly "the Movie You Would Want" [Exclusive]
+
+Exclusives, The Devil Wears Prada 2, Justin Theroux, Seekers of Infinite Love, SXSW
+
+Sat, 14 Mar 2026 18:34:34 GMT
+
+https://collider.com/the-devil-wears-prada-2-reaction-justin-theroux/
+
+Justin Theroux believes The Devil Wears Prada 2 is exactly the sequel to the fashion-forward film that fans are looking for after 20 years of waiting.
+---------
+
+# Horror Movies That Completely Changed Cinema Forever
+
+Movie, Horror, The Texas Chain Saw Massacre, Night of the Living Dead, The Exorcist
+
+Sat, 14 Mar 2026 18:29:13 GMT
+
+https://collider.com/horror-movies-completely-changed-cinema-forever/
+
+Masterful horror films like The Blair Witch Project and Psycho were significant in many ways, proving that the genre had the power to redefine cinema.
+---------
+
+# Netflix Blocks Robert De Niro's Forgotten $20 Million Sports Movie
+
+Movie News, Hands of Stone, Edgar Ramirez, Robert De Niro, Boxing
+
+Sat, 14 Mar 2026 18:20:12 GMT
+
+https://collider.com/robert-de-niro-netflix-blocks-hands-of-stone-boxing-bomb-ad-supported-tier-march-2026/
+
+Robert De Niro has starred in several boxing movies; the worst of them is being restricted for some users by Netflix this month. Find out more.
+---------
+
+# ‘Fire Country’ Dethroned by Its More Popular Spin-Off With Just 12 Episodes
+
+TV News, Sheriff Country, Fire Country, Procedural
+
+Sat, 14 Mar 2026 18:00:12 GMT
+
+https://collider.com/sheriff-country-overtakes-fire-country-streaming-success-paramount-plus-march-2026/
+
+Sheriff Country has surpassed its predecessor in both ratings and streaming popularity. Here's everything you should know.
+---------
+
+# 'Monarch: Legacy of Monsters' Season 2 Has Fixed a Season 1 Problem
+
+Features, Monarch: Legacy of Monsters, Monsterverse, Apple TV
+
+Sat, 14 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-season-2-more-titans/
+
+Monarch: Legacy of Monsters season 2 hit the ground running in its first 2 episodes, showcasing far more monster action than season 1 did.
+---------
+
+# 'Ready or Not 2' Review: Samara Weaving Returns for Senseless Sequel
+
+3 star movies, Ready or Not 2: Here I Come, Samara Weaving
+
+Sat, 14 Mar 2026 18:59:53 GMT
+
+https://movieweb.com/ready-or-not-2-review/
+
+Kathryn Newton, Sarah Michelle Gellar, and Shawn Hatosy join the game in a sequel that's twice as violent and half as fun.
+---------
+
+# Sarah Michelle Gellar Confirms Hulu's 'Buffy' Reboot' is Officially Canceled
+
+TV News, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series, Sarah Michelle Gellar
+
+Sat, 14 Mar 2026 18:26:57 GMT
+
+https://movieweb.com/buffy-reboot-cancelled-hulu/
+
+Buffy actress Sarah Michelle Gellar shared an Instagram video confirming that her upcoming revival series will no longer move forward at Hulu.
+---------
+
+# 'The Leftovers' Is the Perfect Sci-Fi Thriller Series for 'Lost' Fans
+
+Features, The Leftovers, Lost, Comparison Recommendation
+
+Sat, 14 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/the-leftovers-perfect-lost-fans/
+
+'The Leftovers' aired for three seasons on HBO, and the sci-fi thriller series is a perfect recommendation for fans of 'Lost.'
+---------
+
+# Every Movie Parodied in 'Scary Movie 3'
+
+Movie Lists
+
+Sat, 14 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/every-movie-parodied-in-scary-movie-3/
+
+The Scary Movie franchise is full of horror parodies. Here are all the ones that you will find in the third installment of the long-running franchise.
+---------
+
 # Why A Key Severance Season 1 Star Has Yet To Return To Apple TV's Sci-Fi Hit Explained
 
 TV, Severance, Sci-Fi, SXSW
