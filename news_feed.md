@@ -1,3 +1,234 @@
+# Paramount Not Moving Forward With Max Landis G.I. Joe Film
+
+Movies, GI Joe
+
+Sat, 14 Mar 2026 21:50:41 GMT
+
+https://screenrant.com/paramount-declines-max-landis-gi-joe-film/
+
+Max Landis' potential G.I. Joe film is no longer in the works as Paramount and Hasbro decide to pass on his iteration of the story.
+---------
+
+# Disney+'s Percy Jackson Series Proves That Harry Potter Is In Danger
+
+Streaming TV, Percy Jackson & the Olympians, Harry Potter
+
+Sat, 14 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/percy-jackson-and-the-olympians-disney-harry-potter-danger/
+
+HBO may think that its Harry Potter TV show is a shoo-in, but another fantasy adaptation from Disney+ showcases a potential danger on the horizon.
+---------
+
+# The Lion King's Circle Of Life Translation Ignites A Feud
+
+Movies, The Lion King, Disney
+
+Sat, 14 Mar 2026 21:15:33 GMT
+
+https://screenrant.com/the-lion-king-circle-of-life-opening-translationdispute-lebo-m-learnmore-jonasi/
+
+A viral video about The Lion King song, Circle of Life, has caused a social media feud between a comedian and one of the film's composers.
+---------
+
+# Crimson Desert Looks Way Better On One Platform
+
+Gaming, Crimson Desert, Triple-A Games, PC
+
+Sat, 14 Mar 2026 21:13:22 GMT
+
+https://screenrant.com/crimson-desert-pc-better-digital-foundry/
+
+Crimson Desert has some impressive open-world landscapes to show off, but you'll appreciate them more with the right tech to back it up.
+---------
+
+# All 10 Oscars 2026 Best Picture Nominees As Reviewed By ScreenRant
+
+Movies, Oscars, One Battle After Another, Sinners, F1, Train Dreams, Sentimental Value, The Secret Agent, Frankenstein, Marty Supreme, Hamnet, Bugonia
+
+Sat, 14 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/all-10-oscars-2026-best-picture-nominees-as-reviewed-by-screenrant/
+
+The 2026 Academy Awards are finally here and you can read all of ScreenRant's reviews of each Best Picture nominee from One Battle to Sinners.
+---------
+
+# Peacock's Poker Face Is The Perfect Show For Agatha Christie Fans
+
+Classic TV, Poker Face
+
+Sat, 14 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/peacock-poker-face-perfect-agatha-christie-fans/
+
+If you are a fan of Agatha Christie’s work, then Peacock’s underrated whodunit series with a unique premise should be on your watchlist.
+---------
+
+# 10 Best Supporting Actress Oscar Wins That Are Indisputable
+
+Classic Movies, Oscars
+
+Sat, 14 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/best-supporting-actress-oscar-wins-indisputable/
+
+The Best Supporting Actress category proves that you don't need to be the lead to steal the show. These 10 Oscar winners are absolutely indisputable.
+---------
+
+# PlayStation Plus New Free Game Is A 140 Hour Juggernaut Of A JRPG
+
+Gaming, PlayStation Plus, Persona 5 Royal
+
+Sat, 14 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/playstation-plus-140-hour-jrpg-free-march/
+
+PlayStation Plus has a number of new games added to PS Plus Extra in March, including a massive JRPG that you can spend over 140 hours with.
+---------
+
+# Does J. Edgar Die in Bosch? His Fate, Explained
+
+TV, Bosch, Bosch: Legacy
+
+Sat, 14 Mar 2026 21:30:11 GMT
+
+https://www.cbr.com/bosch-j-edgar-fate-explained/
+
+The Bosch series has had many great characters including J. Edgar but many fans have wondered what happened to the character and if he died.
+---------
+
+# Netflix Restricts Access to Matt Damon’s Sci-Fi Movie Elysium
+
+Movies, matt damon, Elysium
+
+Sat, 14 Mar 2026 21:25:24 GMT
+
+https://www.cbr.com/matt-damon-elysium-netflix-restricted/
+
+There's an unfortunate catch if you want to watch the Matt Damon movie on Netflix.
+---------
+
+# 6 Naruto Rivalries Better Than Sasuke vs. Naruto
+
+Anime, Naruto, Naruto: Shippuden
+
+Sat, 14 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/naruto-best-rivalries-sasuke-naruto-masterpiece-writing/
+
+Naruto contains rivalries with sharper emotional logic and more purposeful storytelling than the main rivalry between Sasuke and Naruto ever managed.
+---------
+
+# Jason Momoa Fans Must Buy This Before Supergirl Hits Theaters
+
+Comics, DC Comics
+
+Sat, 14 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/dc-comics-lobo-1-release-date-confirmed/
+
+Something big is coming before Supergirl soars onto the silver screen.
+---------
+
+# Ted's 'Dungeons & Dealers' Episode Accurately Captures D&D Experience
+
+TV, Ted, Peacock, Fantasy
+
+Sat, 14 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/peacock-ted-dungeons-and-dealers-accurate-dnd-experience/
+
+This Ted Season 2 episode surpasses Stranger Things by authentically depicting a chaotic, fun game experience.
+---------
+
+# 'Landman’ Strikes Oil While Taylor Sheridan’s New 'Yellowstone' Series Runs Dry
+
+TV News, Landman, Marshals, Yellowstone, Taylor Sheridan
+
+Sat, 14 Mar 2026 21:40:12 GMT
+
+https://collider.com/taylor-sheridan-landman-overtakes-marshals-paramount-plus-streaming-chart-march-2026/
+
+Paramount+’s current chart shows Landman ahead of Marshals, suggesting the newer spin-off is already being overtaken by other Sheridan shows.
+---------
+
+# 59 Years Ago, This Classic 1967 Beatles Hit Reached No. 1 in Over 9 Countries
+
+Music Features, The Beatles, John Lennon, Paul McCartney, Rock, Music
+
+Sat, 14 Mar 2026 21:39:17 GMT
+
+https://collider.com/59-years-ago-beatles-1967-hit-hello-goodby-no-1-over-9-countries/
+
+A song born from a playful word association exercise, became a global hit for The Beatles after the tragic passing of their manager Brian Epstein.
+---------
+
+# 10 Greatest Fantasy TV Shows You Can Binge in One Week, Ranked
+
+TV, Fantasy, Midnight Mass, Arcane, Loki
+
+Sat, 14 Mar 2026 21:26:12 GMT
+
+https://collider.com/best-fantasy-shows-binge-one-week-ranked/
+
+Discover the top fantasy TV shows that offer rich world-building and compelling characters, perfect for binge-watching in a week, from Arcane to Loki.
+---------
+
+# Before 'The Boys,' Karl Urban’s Ruthless Vampire Epic Stakes Its Claim on Free Streaming
+
+Movie News, Paul Bettany, Priest, Fantasy, Karl Urban
+
+Sat, 14 Mar 2026 21:20:13 GMT
+
+https://collider.com/priest-paul-bettany-karl-urban-dark-fantasy-vampire-epic-streaming-tubi-march-2026/
+
+Paul Bettany's forgotten dark fantasy film Priest, also featuring Karl Urban, is heading to a new streaming home this month. Find out more.
+---------
+
+# Collider Reviews All 2026 Oscar Best Picture Nominees
+
+Movie, Sinners, Hamnet, One Battle After Another, Academy Awards
+
+Sat, 14 Mar 2026 21:14:12 GMT
+
+https://collider.com/collider-reviews-every-2026-oscar-best-picture-nominees/
+
+Collider has reviewed every Best Picture nominee at the 2026 Academy Awards, including One Battle After Another, Sinners, and Marty Supreme.
+---------
+
+# Hulu Subscribers Have 1 Day To Watch 2025's Best Political Thriller Before the Oscars
+
+Movie News, The Secret Agent, Wagner Moura, Academy Awards, Hulu
+
+Sat, 14 Mar 2026 21:00:12 GMT
+
+https://collider.com/the-secret-agent-2025-best-political-thriller-streaming-success-hulu-march-2026/
+
+The 2026 Oscars best sleeper hit, The Secret Agent starring Wagner Moura, is a streaming hit in the U.S. Find out more below.
+---------
+
+# 10 Perfectly Balanced Double Feature Movie Pairings To Watch Tonight
+
+Movie Lists, Oppenheimer, Batman Begins, Godzilla Minus One, Superman Returns, Speed Racer, Ford v Ferrari, Her, Casino, Goodfellas, Drive, Baby Driver, Lost in Translation, The Shape of Water, The Apartment, War of The Worlds, Ed Wood
+
+Sat, 14 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/best-double-feature-movie-pairings/
+
+From 'When Harry Met Sally' to 'Godzilla Minus One', these 10 cinematic pairings take great films and combine them into something grander.
+---------
+
+# Netflix Cut Karoo From 'One Piece' Season 2, But There's Still Hope
+
+Features, One Piece, Netflix
+
+Sat, 14 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/one-piece-best-character-cut/
+
+Tragically, Karoo of the Supersonic Duck Squadron doesn't appear in Netflix's live-action 'One Piece' show...or at least, not yet.
+---------
+
 # J.J. Abrams' Other 2000s Sci-Fi Show Beat Lost
 
 Classic TV, Lost, Fringe, Recommendation
