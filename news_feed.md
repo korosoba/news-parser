@@ -1,3 +1,212 @@
+# This HBO Max Tear-Jerker Is Your Perfect Weekend Watch
+
+Movies, We Live in Time, HBO Max
+
+Sat, 14 Mar 2026 19:56:18 GMT
+
+https://screenrant.com/we-live-in-time-movie-recommendation-hbo-max/
+
+Florence Pugh and Andrew Garfield's emotional 2024 movie We Live In Time is currently streaming on HBO Max, and it's the perfect weekend movie.
+---------
+
+# Maya's Mysterious Absence: Will Moe's Fiancée Return to The Simpsons?
+
+TV, The Simpsons
+
+Sat, 14 Mar 2026 19:45:19 GMT
+
+https://screenrant.com/simpsons-season-37-maya-missing-return-moe-episode/
+
+The Simpsons fans concerned by the sudden disappearance of a character from the streaming version of season 37 can breathe easy. She'll be back soon.
+---------
+
+# Upcoming Fantasy Show Based On A BookTok Favorite Needs To Embrace 1 Element
+
+Streaming TV, Fantasy
+
+Sat, 14 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/from-blood-and-ash-tv-show-spicy-scenes/
+
+A popular BookTok series is being turned into a TV show, and one story element could make the onscreen adaptation a global streaming sensation.
+---------
+
+# Top 10 Marvel Single-Issue Comics Ever, Ranked
+
+Marvel Comics, Marvel
+
+Sat, 14 Mar 2026 19:30:18 GMT
+
+https://screenrant.com/best-single-marvel-comics-issues-ranked/
+
+Some of the best Marvel comics pack masterful storytelling, art, and character work in a single issue, requiring no prior knowledge to excel.
+---------
+
+# Starfield PS5 Release Date Appears In New Leak
+
+Gaming, Starfield, PlayStation 5, Triple-A Games, PC
+
+Sat, 14 Mar 2026 19:29:26 GMT
+
+https://screenrant.com/starfield-ps5-release-date-leak/
+
+It looks like we don't have long to wait until Starfield finally comes to PlayStation 5, as several distinct reports all suggest the same date.
+---------
+
+# After 2 Years, DC’s Newest Batman Officially Becomes An Even Darker Knight
+
+Comics, Batman, DC Comics
+
+Sat, 14 Mar 2026 19:25:19 GMT
+
+https://screenrant.com/absolute-batman-becomes-a-darker-knight-poison-ivy-dc/
+
+Just when you thought he couldn't get darker or more brutal, DC's new Absolute Batman is taking things to the next level with a major evolution.
+---------
+
+# Ryan Gosling Shares a Promising Update on Star Wars: Starfighter
+
+Movies, Star Wars: Starfighter, Star Wars, ryan gosling
+
+Sat, 14 Mar 2026 19:46:39 GMT
+
+https://www.cbr.com/ryan-gosling-update-star-wars-starfighter/
+
+Hollywood icon and incoming Star Wars star Ryan Gosling gives fans some high hopes for Star Wars: Starfighter when the film finally arrives.
+---------
+
+# Every Superhero in Your Friendly Neighborhood Spider-Man, Ranked
+
+TV, Your Friendly Neighborhood Spider-Man, Spider-Man, Animation, Marvel
+
+Sat, 14 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/every-superhero-in-your-friendly-neighborhood-spiderman-list/
+
+Your Friendly Neighborhood Spider-Man is Marvel's newest animated series, and fans are still buzzing over all the hero cameos.
+---------
+
+# 10 Must-See Blockbusters That Were Too 'Big' for the Oscars to Handle
+
+Movies, Oscars, The Dark Knight, Jurassic Park
+
+Sat, 14 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/blockbusters-that-were-too-big-for-the-oscars-to-handle-list/
+
+Missing out on Best Picture Academy Award nominations, these highly praised blockbusters didn't receive the recognition they deserved.
+---------
+
+# Pretty Lethal Cast Reveal the Deadliest Ballet Moves
+
+Movies, Pretty Lethal
+
+Sat, 14 Mar 2026 19:28:35 GMT
+
+https://www.cbr.com/video/pretty-lethal-cast-reveal-the-deadliest-ballet-moves/
+
+The Pretty Lethal cast breaks down the deadliest ballet moves. Maddie Ziegler, Lana Condor, Millicent Simmonds, Avantika Vandanapu, Iris Apatow, and director Vicky Jewson join CBR Presents at SXSW 2026 to talk about turning ballet into a full-on action movie.The cast reveals which ballet techniques could actually be dangerous in real life, how their intense five-week ballet boot camp shaped the film, and why the sisterhood behind the scenes became the heart of the story.
+---------
+
+# Ryan Reynolds' Thriller The Captive Finds Redemption on Netflix 12 Years Later
+
+Movies, ryan reynolds, The Captive
+
+Sat, 14 Mar 2026 19:17:27 GMT
+
+https://www.cbr.com/ryan-reynolds-the-captive-thrtiller-netflix-success-march-2026/
+
+Ryan Reynolds' thriller finds unexpected redemption on Netflix 12 years after its release.
+---------
+
+# Top 20 Horror Movies of All Time, Ranked
+
+Movie, Sinners, Horror, John Carpenter, The Exorcist
+
+Sat, 14 Mar 2026 19:49:12 GMT
+
+https://collider.com/best-horror-movies-of-all-time/
+
+There have been many exceptional horror films released throughout film history, from all-time classics like Psycho to recent hits like Sinners.
+---------
+
+# The Decade’s Most Gripping 152-Minute Murder Mystery Lands a New Streaming Home
+
+Movie News, Project Hail Mary, Sandra Hüller, Anatomy of a Fall, Mystery
+
+Sat, 14 Mar 2026 19:41:12 GMT
+
+https://collider.com/anatomy-of-a-fall-one-of-the-most-gripping-murder-mysteries-of-the-decade-streaming-netflix-march-2026/
+
+Project Hail Mary star Sandra Hüller's Anatomy of a Fall, one of the most gripping murder mysteries of the decade, is coming to a new streamer.
+---------
+
+# Say Goodbye to the Longest Oscar-Nominated Film Ever Leaving Netflix Soon
+
+Movie Features, O.J.: Made in America, Documentary, ESPN, Netflix
+
+Sat, 14 Mar 2026 19:36:12 GMT
+
+https://collider.com/oj-made-in-america-leaving-netflix-longest-oscar-nominee/
+
+O.J.: Made in America, which is the longest Oscar-nominated film ever at 467 minutes, is leaving Netflix soon.
+---------
+
+# These Thriller Shows Get Better With Every Rewatch
+
+TV, Thriller, Twin Peaks, Manifest, Mindhunter
+
+Sat, 14 Mar 2026 19:28:13 GMT
+
+https://collider.com/thriller-tv-shows-better-with-rewatch/
+
+ABC's Twin Peaks, NBC's Manifest, Netflix's Mindhunter, and Fox's 24 are some of the best thriller TV shows that only get better with every rewatch.
+---------
+
+# 19 Years Later, Henry Cavill’s Scandalous 4-Part Historical Drama Steams Up Streaming
+
+TV News, Henry Cavill, Jonathan Rhys Meyers, Showtime, The Tudors
+
+Sat, 14 Mar 2026 19:20:12 GMT
+
+https://collider.com/henry-cavill-historical-romance-drama-the-tudors-streaming-success-starz-march-2026/
+
+The Tudors is getting fresh attention from streaming viewers again, bringing one of Henry Cavill’s earliest major roles back into the spotlight.
+---------
+
+# 4 Most Exciting Sci-Fi Movies Officially Coming to Netflix in 2026
+
+Movie, Sci-Fi, Netflix, 11817, Michael B. Jordan
+
+Sat, 14 Mar 2026 19:18:12 GMT
+
+https://collider.com/sci-fi-movies-netflix-2026-most-anticipated/
+
+Ladies First, Ray Gunn, Swapped, and 11817 make up our list of the most exciting sci-fi movies coming to Netflix in 2026.
+---------
+
+# The Most Influential Movies of the ‘70s That Are Still Huge Today
+
+Movie, The Godfather, Star Wars: Episode IV - A New Hope, The Exorcist, Jaws
+
+Sat, 14 Mar 2026 19:18:12 GMT
+
+https://collider.com/influential-movies-1970s/
+
+From gritty urban dramas like Taxi Driver to groundbreaking sci-fi such as A New Hope, these are some of the most influential 1970s films.
+---------
+
+# 8 Cult Classic Movies That Roger Ebert Hated, but Audiences Loved
+
+Movie Lists, Roger Ebert
+
+Sat, 14 Mar 2026 19:31:17 GMT
+
+https://movieweb.com/roger-ebert-cult-classic-movies-hated-audiences-loved/
+
+Roger Ebert was always vocal about films he hated, but he was wrong about these cult classic movies that audiences ultimately grew to love.
+---------
+
 # Elijah Wood's Mysterious Ready Or Not 2 Character May Be Immortal, Teases Star
 
 Movies, SXSW, Ready or Not 2: Here I Come
