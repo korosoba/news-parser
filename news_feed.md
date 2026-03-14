@@ -1,3 +1,80 @@
+# The Witcher Returns In Official Huge Release On March 24
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher, PC
+
+Sat, 14 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/the-witcher-omnibus-collection-3-march-24/
+
+The Witcher is officially making a return later this month in a brand-new release, featuring epic new tales following Geralt and company.
+---------
+
+# Hulu's 8-Part Sci-Fi Series Was So Good, We Forgave It For Breaking A Franchise
+
+Streaming TV, Alien: Earth, Alien
+
+Sat, 14 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/alien-earth-hulu-sci-fi-series-break-franchise/
+
+Hulu's Alien: Earth, despite deviating from the franchise's established canon, captivates viewers with its innovative storytelling and chilling Xenomorph encounters, making it a must-watch sci-fi series.
+---------
+
+# Resident Evil Code: Veronica Remake Tease Has Gamers Losing It
+
+Gaming, Resident Evil
+
+Sat, 14 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/resident-evil-code-veronica-remake-tease-leon-actor/
+
+Fans are buzzing about potential rumors of a Resident Evil Code: Veronica remake.
+---------
+
+# 10 Heaviest Crime TV Shows, Ranked
+
+TV, Crime, The Sopranos, True Detective, The Wire
+
+Sat, 14 Mar 2026 11:33:10 GMT
+
+https://collider.com/heavy-crime-shows-ranked/
+
+Dive into the heaviest crime TV shows that showcase intense themes, bleak realism, and unflinching storytelling, from The Sopranos to True Detective.
+---------
+
+# The Greatest Movies From Every 2026 Best Actress Oscar Nominee
+
+Movie, Academy Awards, Jessie Buckley, Rose Byrne, Emma Stone
+
+Sat, 14 Mar 2026 11:11:12 GMT
+
+https://collider.com/2026-best-actress-oscar-nominees-greatest-movies/
+
+From Emma Stone’s Poor Things to Jessie Buckley’s The Lost Daughter, here's every 2026 Best Actress Oscar nominee’s best movie.
+---------
+
+# This 8-Part Police Procedural Is a Near-Perfect Crime Hit, but There's a Catch
+
+TV Features, Hudson & Rex, Procedural, Crime, Drama
+
+Sat, 14 Mar 2026 11:08:12 GMT
+
+https://collider.com/hudson-and-rex-police-procedural-john-reardon/
+
+The police procedural Hudson & Rex, about a detective and his canine sidekick, is a crime hit, though its John Reardon recasting caused controversy.
+---------
+
+# Star Wars' First Original Movie in 10 Years Will Be Worth the Wait, Says Ryan Gosling [Exclusive]
+
+Exclusives, Star Wars, Star Wars: Starfighter, Ryan Gosling, Shawn Levy
+
+Sat, 14 Mar 2026 11:00:12 GMT
+
+https://collider.com/ryan-gosling-star-wars-starfighter-update-worth-the-wait-fans-not-disappointed/
+
+Ryan Gosling discusses the upcoming Star Wars film Starfighter, expressing excitement and confidence in director Shawn Levy's vision.
+---------
+
 # Ready Or Not 2: Here I Come Review – Lackluster Comedy-Horror Sequel Plays A Weak Game
 
 Movies, Ready or Not 2: Here I Come, SXSW
