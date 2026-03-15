@@ -1,3 +1,366 @@
+# Homer Simpson's Top 10 Unforgettable Jobs on The Simpsons
+
+Network TV, The Simpsons
+
+Sun, 15 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/homer-simpsons-jobs-ranked/
+
+Homer has had so many different jobs on The Simpsons, from food critic to astronaut, that his employment history has become a running joke.
+---------
+
+# 5 Best Square Enix RPGs To Try First
+
+Gaming, Square Enix, Triple-A Games, PC
+
+Sun, 15 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/best-square-enix-rpgs-try-first/
+
+It can be tricky to get started with Square Enix RPGs, but none of these iconic games from the studio's best franchises will steer you wrong.
+---------
+
+# Atlanta: 10 Years Later, Donald Glover’s 4-Season Masterpiece Is Still One Of TV’s Best
+
+Streaming TV, Donald Glover, Atlanta - Season 1
+
+Sun, 15 Mar 2026 18:57:18 GMT
+
+https://screenrant.com/donald-glover-atlanta-best-tv-show/
+
+Atlanta, created by Donald Glover, has been called one of the best TV shows of the 21st century. Learn about its unique blend of surrealism & satire.
+---------
+
+# Most Of Apple TV Sci-Fi Show’s Cast Almost Went Naked For 98% RT Series
+
+TV, Pluribus, Pluribus - Season 1, Apple TV, Sci-Fi
+
+Sun, 15 Mar 2026 18:38:38 GMT
+
+https://screenrant.com/pluribus-hive-mind-cast-naked-vince-gilligan-rhea-seehorn/
+
+Apple TV's science-fiction masterpiece series with a 98% critics' score on Rotten Tomatoes almost had most of its cast go naked for a unique reason.
+---------
+
+# Disney's New Star Wars Show Is Perfect For Prequel Trilogy Fans
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Darth Maul, Disney
+
+Sun, 15 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-perfect-prequel-trilogy-fans/
+
+Disney's new Star Wars TV show is a perfect treat for prequel trilogy fans, especially those attached to one particular Sith lord.
+---------
+
+# Michael B. Jordan Grins Over Casting Rumors For Reboot Of Iconic 42-Year-Old Crime Series
+
+Movies, Miami Vice
+
+Sun, 15 Mar 2026 18:24:35 GMT
+
+https://screenrant.com/michael-b-jordan-miami-vice-casting-rumors-response/
+
+Oscar nominee Michael B. Jordan addresses rumors that he is attached to a new movie reboot inspired by an iconic 42-year-old cop series.
+---------
+
+# How One Piece Season 3 Will Be Tonally Different From Past Netflix Seasons Teased By Star
+
+TV, One Piece, Anime
+
+Sun, 15 Mar 2026 18:19:40 GMT
+
+https://screenrant.com/one-piece-season-3-tone-change-teased-emily-rudd/
+
+One Piece star Emily Rudd hints at a tonal shift in season 3, suggesting a more grounded and relatable storyline that resonates with audiences.
+---------
+
+# How Black Mirror's "San Junipero" Was A "F**k You" To The Show's Critics
+
+Streaming TV, Black Mirror
+
+Sun, 15 Mar 2026 18:15:18 GMT
+
+https://screenrant.com/black-mirror-san-junipero-critics-response/
+
+Black Mirror has several memorable episodes like “USS Callister” and “White Christmas,” but the show’s best episode was the perfect answer to critics.
+---------
+
+# 40 Years Later, Transformers “Kills” Optimus Prime All Over Again
+
+Comics, Transformers, The Transformers: The Movie
+
+Sun, 15 Mar 2026 18:05:19 GMT
+
+https://screenrant.com/transformers-kills-optimus-prime-again-elita-prime/
+
+40 years after 1986's Transformers movie, the franchise has decided to kill Optimus Prime once again following a major Matrix of Leadership twist.
+---------
+
+# How One Of SXSW’s Buzziest Horror Movies Went From A Short Into A DIY Anthology Hit
+
+Movies, Grind, Horror, SXSW
+
+Sun, 15 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/sxsw-grind-buzzy-response-short-movie-origins-directors-cast-sxsw/
+
+Directors Brea Grant, Ed Dougherty, Chelsea Stardust and the Grind cast share how the buzzy SXSW horror movie went from a short into a DIY anthology.
+---------
+
+# 10 Action Anime With Better Fights Than Dragon Ball
+
+Anime, Dragon Ball, Naruto, Chainsaw Man, Jujutsu Kaisen
+
+Sun, 15 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/dragon-ball-action-anime-with-better-fights/
+
+While Dragon Ball’s legacy and importance are indisputable, these series have it beat in terms of high-octane battle sequences.
+---------
+
+# Corey Feldman Names the Worst Movie He's Ever Done: 'A Disaster'
+
+Movies, National Lampoon's Last Resort
+
+Sun, 15 Mar 2026 19:13:46 GMT
+
+https://www.cbr.com/corey-feldman-reflects-national-lampoons-last-resort/
+
+Corey Feldman singles out one film as the worst movie he's ever appeared in, explaining what exactly went wrong.
+---------
+
+# Emma Stone's Bugonia Finally Sets Netflix Release Date
+
+Movies, Bugonia, Netflix
+
+Sun, 15 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/emma-stone-bugonia-netflix-release-date-april-2026/
+
+Emma Stone's Academy Award-nominated remake of a cult classic sci-fi comedy is finally heading to Netflix as its streaming home.
+---------
+
+# Special Ops: Lioness Returns to the Top 10 Ahead of Season 3
+
+TV, Lioness, Thriller, Paramount Plus
+
+Sun, 15 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/paramount-spy-thriller-special-ops-lioness-streaming-success-march-2026/
+
+Taylor Sheridan's hit spy-thriller series is back on the streaming charts ahead of its upcoming season.
+---------
+
+# Kevin Bacon and Kyra Sedgwick Talk Horror Comedy Family Movie | SXSW 2026
+
+Movies, SXSW, Family Movie
+
+Sun, 15 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/video/kevin-bacon-and-kyra-sedgwick-talk-horror-comedy-family-movie-sxsw-2026/
+
+Family Movie stars Kevin Bacon, Kyra Sedgwick, Sosie Bacon and Travis Bacon in a horror-comedy about a dysfunctional filmmaking family whose movie shoot goes completely off the rails.At SXSW 2026, the cast breaks down how the script captured their personalities after the writer interviewed them separately. They talk about their chaotic group chat, how their characters mirror real family dynamics, and the moment a real dead body shows up in the story’s low-budget horror production.
+---------
+
+# Canon Events: Jason Todd's Dark Finale Set Up Red Hood's Future
+
+Comics, Canon Events, DC Comics, Red Hood, Jason Todd, batman: death in the family
+
+Sun, 15 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/canon-events-jason-todd-death-red-hood-future/
+
+The violent end of Jason Todd's Robin was only the beginning for one of DC's most popular villains-turned-anti-hero, Red Hood.
+---------
+
+# Star Trek Fans Think the Borg Created This Villain, But Discovery Quietly Confirmed Another Origin
+
+TV, Star Trek, Sci-Fi, Star Trek: Discovery
+
+Sun, 15 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/star-trek-fans-borg-vger-theory-explained/
+
+Fans speculated that a mysterious villain from an early Star Trek movie was created by the Borg, but Star Trek: Discovery offered up a better choice.
+---------
+
+# 7 Best Multi-Season Anime Streaming on Disney+
+
+Anime, Disney+, Bleach, Marvel, Star Wars
+
+Sun, 15 Mar 2026 18:15:11 GMT
+
+https://www.cbr.com/disney-anime-multiple-seasons/
+
+Disney+ has a variety of anime series available to stream, from sci-fi classics to adaptations of Star Wars and Marvel Comics.
+---------
+
+# A Knight of the Seven Kingdoms Still Rules Streaming 1 Month After Finale
+
+TV, Game Of Thrones, A Knight Of The Seven Kingdoms, Fantasy
+
+Sun, 15 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/game-of-thrones-knight-of-the-seven-kingdoms-streaming-success-march-2026/
+
+Four weeks after its season finale, this acclaimed Game of Thrones spinoff series is still ruling the streaming charts.
+---------
+
+# Invincible Delivers Epic One-Punch Man Tribute in Eye-Catching New Cover
+
+Comics, Invincible
+
+Sun, 15 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/invincible-one-punch-man-cover-tribute/
+
+Invincible is honoring One Punch Man with an absolutely stunning new cover, and fans will have to act fast if they want to collect it.
+---------
+
+# Jack Nicholson’s 97-Minute Comedy That Sparked a Cultural Movement Is Leaving Netflix
+
+Movie News, The Bucket List, Jack Nicholson, Morgan Freeman, Netflix
+
+Sun, 15 Mar 2026 19:00:12 GMT
+
+https://collider.com/jack-nicholson-comedy-the-bucket-list-leaving-streaming-netflix-april-2026/
+
+The Jack Nicholson and Morgan Freeman movie that coined a popular modern phrase, The Bucket List, is leaving streaming soon.
+---------
+
+# 10 Neo-Westerns That Are 10/10 But Nobody Remembers
+
+Movie, The Three Burials of Melquiades Estrada, An Unfinished Life, Lonely Are the Brave, Western
+
+Sun, 15 Mar 2026 18:49:12 GMT
+
+https://collider.com/perfect-neo-westerns-nobody-remembers/
+
+Let Him Go, Thunderheart, Lonely Are the Brave, Americana, Vampires, and more make up our list of perfect neo-Westerns that nobody remembers.
+---------
+
+# 4 Years Later, Brad Pitt’s High-Speed Action Thriller Zooms Onto Free Streaming
+
+Movie News, Brad Pitt, Bullet Train, David Leitch, Aaron Taylor-Johnson
+
+Sun, 15 Mar 2026 18:40:12 GMT
+
+https://collider.com/brad-pitt-high-octane-action-movie-bullet-train-streaming-free-tubi-april-2026/
+
+Brad Pitt’s star-studded Japanese remake is gunning for a free streamer next month. Find out where to watch the high-octane Bullet Train.
+---------
+
+# 10 Most Perfect Action Thrillers, Ranked
+
+Movie, Action, Thriller, The Raid 2, No Country for Old Men
+
+Sun, 15 Mar 2026 18:40:12 GMT
+
+https://collider.com/most-perfect-action-thrillers-ranked/
+
+From Die Hard to Heat, these action thrillers ignite tension, craft iconic characters, and redefine cinematic adrenaline.
+---------
+
+# 1976 Classic Hit Song Became a Massive Success Despite Controversial Lyrics
+
+Music Features, Rod Stewart, Music, Rock, Billboard Hot 100
+
+Sun, 15 Mar 2026 18:35:33 GMT
+
+https://collider.com/1976-classic-hit-tonights-the-night-song-became-a-massive-success-despite-controversial-lyrics/
+
+Despite radio bans and controversy, Rod Stewart’s 1976 hit Tonight’s the Night (Gonna Be Alright) became one of the biggest songs of his career.
+---------
+
+# HBO Max Is Quietly Removing Henry Cavill’s Franchise-Starting Superhero Drama
+
+Movie News, Man of Steel, Henry Cavill, Zack Snyder, Kevin Costner
+
+Sun, 15 Mar 2026 18:20:12 GMT
+
+https://collider.com/henry-cavill-superhero-drama-man-of-steel-superman-movie-leaving-streaming-hbo-max-march-2026/
+
+Henry Cavill’s superhero drama that first saw him don Superman's iconic outfit will soon leave streaming. Find out more here.
+---------
+
+# 10 American Action Movies That No One Remembers but Are Worth Rediscovering Today
+
+Movie, Action, Last Action Hero, Duel, The Losers
+
+Sun, 15 Mar 2026 18:11:12 GMT
+
+https://collider.com/american-action-movies-no-one-remembers-worth-rediscovering-today/
+
+From Van Damme's Hard Target to Spielberg's Duel, these great American action movies have slipped through the cracks but are still worth your time.
+---------
+
+# 17 Years Later, Tom Hardy’s Brutal Crime Drama Breaks Onto Free Streaming
+
+Movie News, bronson, Tom Hardy, Tubi, Nicolas Winding Refn
+
+Sun, 15 Mar 2026 18:00:12 GMT
+
+https://collider.com/tom-hardy-true-crime-drama-bronson-streaming-free-tubi-april-2026/
+
+Tom Hardy’s most overlooked true crime drama, Bronson, will soon fight its way onto a free streamer. Read on for more details.
+---------
+
+# Val Kilmer's Cult Classic Crime Thriller 'Felon' Is Streaming for Free
+
+Movie News, Felon, Tubi, Coming/Leaving Streaming
+
+Sun, 15 Mar 2026 19:01:17 GMT
+
+https://movieweb.com/felon-leaving-streaming-free-tubi-march-2026/
+
+Val Kilmer's cult-classic crime thriller, 'Felon,' is streaming free on Tubi for a limited time.
+---------
+
+# 'Without Remorse': Taylor Sheridan and Michael B. Jordan's Underrated Action Thriller
+
+Features, Without Remorse, Michael B. Jordan, Taylor Sheridan
+
+Sun, 15 Mar 2026 19:01:17 GMT
+
+https://movieweb.com/taylor-sheridan-michael-b-jordan-without-remorse/
+
+Despite being made by two of the biggest stars and creators in Hollywood, everyone missed 'Without Remorse'.
+---------
+
+# The 10 Greatest Directors Who Never Won the Best Director Oscar, Ranked
+
+Movie Lists, Oscars, Stanley Kubrick, Alfred Hitchcock, David Lynch
+
+Sun, 15 Mar 2026 18:30:17 GMT
+
+https://movieweb.com/greatest-directors-never-won-best-director/
+
+Not every great filmmaker was awarded an Academy Award for their directorial work, and these ten have influenced cinema for decades.
+---------
+
+# 'What Happens at Night': Cast, Plot, and Everything We Know So Far
+
+Features, What Happens at Night, Martin Scorsese
+
+Sun, 15 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/what-happens-at-night-cast-plot/
+
+Martin Scorsese's next film features an all-star cast and an intriguing plot. Read on for everything we know about 'What Happens at Night.'
+---------
+
+# 'Reminders Of Him' Flies at the Box Office, 'Hoppers' Holds Steady, 'The Bride!' Crashes
+
+Movie News, Reminders of Him, Hoppers, The Bride!
+
+Sun, 15 Mar 2026 17:56:08 GMT
+
+https://movieweb.com/reminders-of-him-flies-box-office-hoppers-steady-the-bride-crashes/
+
+Plus, 'Scream 7' officially becomes the highest-grossing movie in the franchise.
+---------
+
 # HBO’s 2-Season Cult Classic Series Is Pure Late 2000s Nostalgia
 
 TV, Flight of the Conchords
