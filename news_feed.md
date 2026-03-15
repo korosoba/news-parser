@@ -1,3 +1,333 @@
+# Power Ballad Review: Paul Rudd & Nick Jonas Sing Beautifully Together In Yet Another John Carney Heartwarmer
+
+Movies, Power Ballad, SXSW
+
+Sun, 15 Mar 2026 13:56:39 GMT
+
+https://screenrant.com/power-ballad-2026-movie-review-sxsw/
+
+The director of Once and Sing Street continues his legacy of crowd-pleasing, musical comedy-dramas, thanks to another likeable Paul Rudd performance.
+---------
+
+# Yellowstone Connections To Taylor Sheridan's New Western Series Teased By Kurt Russell
+
+TV, The Madison, Yellowstone
+
+Sun, 15 Mar 2026 13:54:03 GMT
+
+https://screenrant.com/the-madison-yellowstone-connection-taylor-sheridan-shows-kurt-russell/
+
+Taylor Sheridan's Yellowstone universe became a huge worldwide hit, and now his latest Western series, The Madison, could also be linked.
+---------
+
+# Being Human: The Underrated Vampire Show That Outshines Buffy
+
+Classic TV, Being Human
+
+Sun, 15 Mar 2026 13:45:19 GMT
+
+https://screenrant.com/being-human-uk-best-buffy-the-vampire-slayer-replacement/
+
+Many TV shows have tried to take Buffy the Vampire Slayer's place, but only one, underrated vampire show has come very close to achieving that.
+---------
+
+# Oscar Snubs: 9 Movies Overlooked At The 2021 Awards
+
+Movies, Oscars, Op-Ed
+
+Sun, 15 Mar 2026 13:45:19 GMT
+
+https://screenrant.com/movies-snubbed-by-academy-awards-2021/
+
+The 2021 Academy Awards snubbed some of the best performances, screenplays, and documentaries of the year.
+---------
+
+# Blumhouse's Most Underrated Horror Franchise Will Get Its Finale, Even If Its Star Has To Wait 30 Years
+
+Movies, Horror, Happy Death Day, SXSW, Happy Death Day to Us
+
+Sun, 15 Mar 2026 13:30:22 GMT
+
+https://screenrant.com/blumhouse-happy-death-day-3-ending-wait-jessica-rothe-promise/
+
+EXCLUSIVE: The star of a Blumhouse horror franchise expresses interest in returning for the scrapped final movie, even if it takes decades.
+---------
+
+# 20 Years Later, the 2000s' Best Detective Show Has Never Been More Obvious
+
+TV, Psych
+
+Sun, 15 Mar 2026 13:30:18 GMT
+
+https://screenrant.com/psych-2000s-best-detective-show/
+
+You know that's right.
+---------
+
+# Can Prime Video's The House Of The Spirits Adaptation Redeem The 1993 Movie?
+
+Streaming TV, The House of the Spirits
+
+Sun, 15 Mar 2026 13:30:18 GMT
+
+https://screenrant.com/house-of-the-spirits-prime-video-redeem-movie/
+
+Prime Video is bringing Isabel Allende's novel, The House of the Spirits, to TV, and it will be hoping for a warmer reception than the 1993 film.
+---------
+
+# Buffy’s New Slayer Reveals First-Look Image & Addresses Sequel Series’ Sudden Cancellation
+
+TV, Ryan Kiera Armstrong, Buffy The Vampire Slayer
+
+Sun, 15 Mar 2026 13:28:42 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-hulu-sequel-ryan-kiera-armstrong-first-look-cancellation-response/
+
+An image of the new Slayer is revealed as Ryan Kiera Armstrong responds to Hulu's sudden cancellation of the Buffy the Vampire Slayer sequel series.
+---------
+
+# 10 Best Batman Suit Designs In DC Movies & Shows, Ranked
+
+Movies, Batman
+
+Sun, 15 Mar 2026 13:15:18 GMT
+
+https://screenrant.com/batman-suit-designs-best-dc-movies-shows-ranked/
+
+Batman has worn a number of suits over the years in his various movie and show appearances, but some of these costumes stand above the rest.
+---------
+
+# When Usopp Will Reach Elbaph In Live-Action One Piece (At Netflix's Current Pace)
+
+Streaming TV, One Piece
+
+Sun, 15 Mar 2026 13:14:40 GMT
+
+https://screenrant.com/one-piece-when-usopp-reach-elbaph-live-action/
+
+One Piece season 2 established the giant land of Elbaph as a dream destination for Usopp, so when could he fulfil this in the live-action show?
+---------
+
+# Why War Machine Skipped Theaters for a Netflix #1 Debut
+
+Movies, War Machine, Sci-Fi, War, Netflix
+
+Sun, 15 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/reason-war-machine-skipped-theaters-netflix/
+
+Sometimes, straight-to-streaming can signify a weaker-quality film, but that's not the case for Netflix's War Machine, starring Alan Ritchson.
+---------
+
+# 5 Most Disturbing Black Mirror Episodes
+
+TV, Black Mirror, Netflix, Sci-Fi
+
+Sun, 15 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/disturbing-black-mirror-episodes/
+
+From blackmail to virtual reality, many of Black Mirror's most disturbing episodes feel dangerously close to reality.
+---------
+
+# Archie Comics Will Introduce a New Character with One of the Coolest Names of All Time
+
+Comics, Archie Comics
+
+Sun, 15 Mar 2026 13:16:40 GMT
+
+https://www.cbr.com/archie-comics-introduce-new-character-coolest-names-all-time-exclusive/
+
+In a CBR exclusive reveal, Archie Comics is set to debut a brand-new character to tie in with the 2026 World Cup
+---------
+
+# Dragon Ball Super: Beerus Can Fix the Original Anime's Biggest Mistake
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball, Dragon Ball Super
+
+Sun, 15 Mar 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-anime-fix-biggest-problem/
+
+Dragon Ball Super suffered from one issue bigger than all others, and Dragon Ball Super: Beerus has the chance to fix it.
+---------
+
+# Paul Bettany’s Priest Is a Free Streaming Hit on Tubi 15 Years After Flopping
+
+Movies, Priest
+
+Sun, 15 Mar 2026 13:07:31 GMT
+
+https://www.cbr.com/paul-bettany-priest-action-tubi-success-march-2026/
+
+One of the most underrated action-horror manhwa adaptations of all time is now completely free on an equally underrated streaming service.
+---------
+
+# Hello Kitty Celebrates 51-Year Anniversary in Style With Official Monochrome Wrist Watch
+
+Anime, Hello Kitty, sanrio, merchandise
+
+Sun, 15 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-monochrome-watch/
+
+A new monochromatic series of Sanrio items lets fans wear a fashionable and chic watch featuring more mature versions of Hello Kitty and her sister.
+---------
+
+# Jeph Loeb's Joke About Wonder Woman's Comics Reveals A New DC  Partnership
+
+Comics, Wonder Woman, jeph loeb
+
+Sun, 15 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/jeph-loeb-wonder-woman-allan-heinberg-comics-reunion/
+
+Comic book legend Jeph Loeb has a surprising message for Wonder Woman fans who are worried about his upcoming story involving the character.
+---------
+
+# Taylor Sheridan’s 10-Part Epic Western Proves Why It’s His One True Masterpiece
+
+TV News, 1883, Taylor Sheridan, Isabel May, Sam Elliott
+
+Sun, 15 Mar 2026 13:42:12 GMT
+
+https://collider.com/taylor-sheridan-western-masterpiece-1883-streaming-success-paramount-plus-march-2026/
+
+Taylor Sheridan's first Yellowstone prequel series, 1883, is proving its phenomenal staying power on streaming.
+---------
+
+# Blake Lively’s ‘Jaws’ Replacement Is Being Removed From Netflix in 16 Days
+
+Movie News, The Shallows, Blake Lively, Jaws, Jaume Collet-Serra
+
+Sun, 15 Mar 2026 13:41:12 GMT
+
+https://collider.com/blake-lively-shark-thriller-the-shallows-jaws-replacement-leaving-netflix-april-2026/
+
+Netflix is removing Blake Lively's hit survival thriller that Jaws fans are flocking to, The Shallows. Find out how long you have to watch it.
+---------
+
+# 10 Comedy Movie Masterpieces With Great Acting, Ranked
+
+Movie, Comedy, Some Like It Hot, In Bruges, The Big Lebowski
+
+Sun, 15 Mar 2026 13:31:12 GMT
+
+https://collider.com/10-comedy-movie-masterpieces-with-great-acting-ranked/
+
+Comedy masterpieces like Some Like It Hot and The Big Lebowski prove brilliant acting is what truly turns great jokes into timeless films.
+---------
+
+# April Brings a Final Exodus for Ridley Scott’s $268.2 Million Biblical Epic
+
+Movie News, Exodus: Gods and Kings, Ridley Scott, Christian Bale, Tubi
+
+Sun, 15 Mar 2026 13:21:13 GMT
+
+https://collider.com/ridley-scott-biblical-epic-exodus-gods-and-kings-streaming-free-tubi-april-2026/
+
+Ridley Scott’s biblical box office bomb starring Christian Bale searches for a new following on a free streamer next month. Read on for more.
+---------
+
+# 12 Years Later, 'The Batman' Director's Post-Apocalyptic Sci-Fi Masterpiece Roars on Streaming
+
+Movie News, Dawn of the Planet of the Apes, Gary Oldman, Matt Reeves, Sci-Fi
+
+Sun, 15 Mar 2026 13:12:13 GMT
+
+https://collider.com/dawn-of-the-planet-of-the-apes-sci-fi-blockbuster-streaming-success-hbo-max-march-2026/
+
+Andy Serkis and Matt Reeves' Dawn of the Planet of the Apes proves its the perfect sequel on streaming. Read on for more.
+---------
+
+# 10 Classic Fantasy Movies That Are Still Masterpieces Today
+
+Movie, Fantasy, The Wizard of Oz, Snow White and the Seven Dwarfs, The Princess Bride
+
+Sun, 15 Mar 2026 13:12:13 GMT
+
+https://collider.com/classic-fantasy-movies-still-masterpieces-today/
+
+From The Wizard of Oz to Fantasia, and from Mary Poppins to Dragonslayer, these classic fantasy films are still beloved and highly influential today.
+---------
+
+# 10 Years Later, Chris Pratt’s Infamous “Titanic in Space” Sci-Fi Romance Runs Out of Fuel
+
+Movie News, Passengers, Sci-Fi, Jennifer Lawrence, Chris Pratt
+
+Sun, 15 Mar 2026 13:00:13 GMT
+
+https://collider.com/chris-pratt-passengers-sci-fi-titanic-in-space-streaming-success-hulu-top-10-march-2026/
+
+Chris Pratt's Passengers has resurfaced on streaming, putting the much-mocked “Titanic in Space” sci-fi romance back in the conversation.
+---------
+
+# 10 Blockbuster Action Movies With Great Acting, Ranked
+
+Movie, Action, Sinners, The Dark Knight, Die Hard
+
+Sun, 15 Mar 2026 12:45:13 GMT
+
+https://collider.com/blockbuster-action-movies-great-acting-ranked/
+
+Die Hard, Terminator 2: Judgment Day, The Fugitive, Aliens, The Dark Knight, and more make up our list of blockbuster action movies with great acting.
+---------
+
+# 'Silo's Creator Made a 7-Part Police Procedural That's Finally Free To Watch
+
+TV Features, Jeff Goldblum, NBC, Raines, Procedural
+
+Sun, 15 Mar 2026 12:42:12 GMT
+
+https://collider.com/raines-series-police-procedural-graham-yost-jeff-goldblum/
+
+Justified and Silo creator Graham Yost made Raines, a forgotten police procedural starring Jeff Goldblum as a murder detective with a secret.
+---------
+
+# 7 Near-Perfect HBO Thriller Shows That Keep You Guessing What's Next
+
+TV, HBO, Thriller, Big Little Lies, Perry Mason
+
+Sun, 15 Mar 2026 12:39:12 GMT
+
+https://collider.com/hbo-thriller-shows-keep-you-guessing/
+
+The best HBO thriller shows are the ones that keep audiences guessing what's next, which is true for series like Big Little Lies and The Leftovers.
+---------
+
+# Paramount Pictures Rejects Max Landis 'G.I. Joe' Pitch
+
+Movie News, GI Joe, Max Landis
+
+Sun, 15 Mar 2026 12:15:06 GMT
+
+https://movieweb.com/paramount-rejects-max-landis-gi-joe/
+
+Landis called his idea "subversive" and "weird," but it sounds a lot like 'G.I. Joe: Retaliation.'
+---------
+
+# How Oscar Betting Odds Work: The Man Behind The Lines Explains The 2026 Race
+
+Interviews, Oscars
+
+Sun, 15 Mar 2026 12:00:17 GMT
+
+https://movieweb.com/oscars-2026-betting-odds-interview/
+
+An Oscars bookmaker reveals how the betting odds for the Academy Awards are created, who's likely going to win - and the biggest mistakes people make.
+---------
+
+# Henry Cavill's 'Hellraiser: Hellworld' Now Streaming Free on Pluto TV
+
+Movie News, Hellraiser: Hellworld, Streaming Recommendations, Henry Cavill
+
+Sun, 15 Mar 2026 12:00:17 GMT
+
+https://movieweb.com/hellraiser-hellworld-henry-cavill-streaming-pluto-tv-march-2026/
+
+20 years ago, Cavill starred in one one of the most bizarre entries in the 'Hellraiser' franchise alongside Lance Henriksen.
+---------
+
 # The Last Of Us Meets Stardew Valley In New RPG You Can Try Free Now
 
 Gaming, RPG, Steam, PC, Indie, The Last of Us, Stardew Valley
