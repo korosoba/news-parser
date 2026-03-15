@@ -1,3 +1,256 @@
+# Every Vegeta Transformation in Dragon Ball History, Ranked From Weakest to Strongest
+
+Anime, Dragon Ball
+
+Sun, 15 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/every-vegeta-transformation-dragon-ball-strength-ranked/
+
+Vegeta has always been one of the strongest characters in Dragon Ball: these are his strongest transformations in the franchise.
+---------
+
+# 10 Deepest The Far Side Comics That Fans Are Still Thinking About Decades Later
+
+Comics, The Far Side
+
+Sun, 15 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/deepest-far-side-comics-ever-ranked/
+
+Exploring the deep end of The Far Side.
+---------
+
+# Uncharted 5's Lead Character Leaves Gamers Torn
+
+Gaming, Uncharted, Uncharted 5
+
+Sun, 15 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/uncharted-5-lead-character-cassie-drake-gamer-reaction/
+
+Who should front up in a potential fifth Uncharted game is proving to be a divisive debate in the fan base.
+---------
+
+# The Best Action Movie From Every Decade Over The Last 100 Years
+
+Movies, Action, Recommendation
+
+Sun, 15 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/best-action-movies-every-decade-100-years/
+
+Selecting the best action movie from each decade of the past century is no easy task, especially with so many genre classics to choose from.
+---------
+
+# How Charlie Day's "Unreliable Narrator" In 100% RT Murder Mystery Gives It A Unique Edge
+
+Movies, Kill Me, SXSW, Charlie Day
+
+Sun, 15 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/charlie-day-kill-me-unreliable-narrator-murder-mystery-edge-cast-director-sxsw/
+
+Charlie Day, writer/director Peter Warren and the Kill Me cast talk the acclaimed new murder mystery and how its unreliable narrator gives it an edge.
+---------
+
+# Don't Sleep On This Free Xbox Game Pass Title, Available Now
+
+Gaming, Xbox Game Pass, PC, Indie
+
+Sun, 15 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/xbox-game-pass-free-dropshot-play-now/
+
+While some remarkable titles have been added to the Xbox Game Pass catalog, there is one awesome game that may have flown under your radar.
+---------
+
+# Star Wars' Deadliest Droid is An Absolute Juggernaut With Over 50,000 Confirmed Kills
+
+TV, Star Wars, Star Wars Rebels
+
+Sun, 15 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/star-wars-deadliest-droid-chopper/
+
+This droid causes problems on purpose.
+---------
+
+# Crunchyroll’s New Fantasy Gets Even Better After Watching This Anime
+
+Anime, Fate/strange Fake, Fate/Zero
+
+Sun, 15 Mar 2026 23:46:12 GMT
+
+https://www.cbr.com/fate-strange-fake-crunchyroll-breakout-fantasy-near-perfect-action-anime/
+
+Watching Fate/Zero before Fate/strange Fake turns the experience into an unforgettable and essential watch stationed among the most iconic anime.
+---------
+
+# 1 of the Greatest ‘Frimmel’ Moments Is Celebrated in the Latest Frieren Limited Edition Release
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 15 Mar 2026 23:37:46 GMT
+
+https://www.cbr.com/frieren-msi-official-limited-edition-release/
+
+One of the greatest "Frimmel" ship quotes is celebrated in the latest Frieren: Beyond Journey's End limited edition series.
+---------
+
+# Weapons Ends Oscars Horror Drought With Best Supporting Actress Win
+
+Movies, Oscars, Weapons
+
+Sun, 15 Mar 2026 23:34:23 GMT
+
+https://www.cbr.com/amy-madigan-wins-oscar-weapons/
+
+Weapons star Amy Madigan breaks a 57-year trend with her major win at the Academy Awards.
+---------
+
+# 5 '80s Masterpieces That Only Exist Because Star Wars Succeeded
+
+Movies, Star Wars, Sci-Fi
+
+Sun, 15 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/80s-masterpieces-exist-because-star-wars-list/
+
+Star Wars was a groundbreaking film in the '70s, and its success led to even more impressive sci-fi movies that viewers still love.
+---------
+
+# 10 Best 2000s Manga That Still Haven’t Ended Yet
+
+Anime, Manga
+
+Sun, 15 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/classic-2000s-long-running-manga-that-still-havent-ended/
+
+10 manga from the 2000s that are still ongoing and are at the top of their game to this day.
+---------
+
+# Netflix's The Night Agent Loses Steam on Streaming After S4 Renewal
+
+TV, The Night Agent, Netflix
+
+Sun, 15 Mar 2026 23:07:28 GMT
+
+https://www.cbr.com/the-night-agent-netflix-streaming-march-2026/
+
+The Reacher competitor loses steam on streaming following the news of its renewal at Netflix.
+---------
+
+# Bruce Willis' Razzie-Nominated Sci-Fi Film Armageddon Is a Hit on Tubi
+
+Movies, Armageddon, Tubi, Sci-Fi
+
+Sun, 15 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/bruce-willis-armaggedon-sci-fi-tubi-success-march-2026/
+
+Bruce Willis' 1998 sci-fi film Armageddon becomes a streaming hit on Tubi despite negative reviews and 7 Golden Raspberry Award nominations.
+---------
+
+# Animal Kingdom: 5 Tragic Characters You Wished Never Met the Codys
+
+TV, Animal Kingdom, Crime
+
+Sun, 15 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/animal-kingdom-tragic-characters-list-ranked/
+
+The Codys bring the drama on TNT's Animal Kingdom. Unfortunately, that means a lot of the people in their lives become their victims.
+---------
+
+# Netflix’s 3-Part Classic Sci-Fi Reboot Is One of Its Best
+
+TV Features, Lost In Space, Netflix, Molly Parker, Toby Stephens
+
+Sun, 15 Mar 2026 23:42:12 GMT
+
+https://collider.com/lost-in-space-netflix-sci-fi-reboot-best/
+
+Netflix's Lost in Space revives the classic sci-fi series with a modern 3-part drama through fresh perspective and improved special effects.
+---------
+
+# 3 Years Later, the NCIS Spin-Off Everyone Completely Forgot About Becomes an Unexpected Hit
+
+TV Features, NCIS: Sydney, NCIS, CBS, Crime
+
+Sun, 15 Mar 2026 23:34:12 GMT
+
+https://collider.com/ncis-sydney-paramount-plus-renewed-season-4/
+
+The Paramount+ series NCIS: Sydney was just renewed for Season 4, though remains one of the lesser-known spin-offs in the franchise.
+---------
+
+# Netflix’s 'KPop Demon Hunters' Wins Best Animated Feature | Oscars 2026
+
+Movie News, KPop Demon Hunters, Netflix, Animation, Academy Awards
+
+Sun, 15 Mar 2026 23:33:27 GMT
+
+https://collider.com/kpop-demon-hunters-best-animated-feature-oscars-2026/
+
+KPop Demon Hunters has won Best Animated Feature at the 2026 Academy Awards, marking a major victory for Netflix. Read on for more details.
+---------
+
+# ‘Reacher’ Star Teases "Wild, Gnarly, on Steroids" Season 4 of Alan Ritchson's Prime Video Juggernaut [Exclusive]
+
+TV News, Reacher, Jack Reacher, Prime Video, Alan Ritchson, SXSW
+
+Sun, 15 Mar 2026 23:31:29 GMT
+
+https://collider.com/reacher-season-4-update-wild-gnarly-christopher-rodriguez-marquette-tease-prime-video/
+
+Christopher Rodriguez-Marquette has teased his especially meaty role in Reacher Season 4 with Alan Ritchson.
+---------
+
+# ‘Severance’s Best Couple Provide Clarity on Season 3 of Apple TV’s 10/10 Sci-Fi Series [Exclusive]
+
+TV News, Severance, Adam Scott, Britt Lower, Apple TV, SXSW
+
+Sun, 15 Mar 2026 23:30:27 GMT
+
+https://collider.com/severance-season-3-return-details-adam-scott-britt-lower/
+
+Severance stars Adam Scott and Britt Lower provide some insight on the Season 3 return for Apple TV's best sci-fi show.
+---------
+
+# 'Weapons' Defies the Academy Awards' Bias for Horror With Historic Win for Amy Madigan
+
+Movie News, Amy Madigan, Academy Awards, Weapons, Horror
+
+Sun, 15 Mar 2026 23:24:47 GMT
+
+https://collider.com/weapons-amy-madigan-wins-best-supporting-actress-2026-academy-awards-oscars/
+
+Amy Madigan has won the Academy Award for Best Supporting Actress thanks to her now-iconic performance as Aunt Gladys in Weapons.
+---------
+
+# Masterpiece Vietnam War Movie 'Platoon' Is Streaming Free on Tubi
+
+Movie News, Platoon, Tubi, Coming/Leaving Streaming
+
+Sun, 15 Mar 2026 23:30:17 GMT
+
+https://movieweb.com/platoon-leaving-streaming-free-tubi-march-2026/
+
+The popular Vietnam War movie 'Platoon' starring Willem Dafoe is streaming for free on Tubi for a limited time.
+---------
+
+# Guy Ritchie Reached the Height of Success With 'Sherlock Holmes' - Has It Panned Out?
+
+Features, Sherlock Holmes, Guy Ritchie, Career Arc Reframe
+
+Sun, 15 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/sherlock-changed-guy-ritchie-career/
+
+Guy Ritchie reached the height of success with 'Sherlock Holmes', and continues to balance personal filmmaking with studio fare.
+---------
+
 # Oscars 2026 Live-Blog: Follow Along With ScreenRant
 
 Movies, Oscars
