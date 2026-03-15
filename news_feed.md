@@ -1,3 +1,333 @@
+# HBO’s 2-Season Cult Classic Series Is Pure Late 2000s Nostalgia
+
+TV, Flight of the Conchords
+
+Sun, 15 Mar 2026 17:45:19 GMT
+
+https://screenrant.com/hbo-flight-of-the-conchords-nostalgia/
+
+HBO has always produced some of the most memorable TV shows, but their two-season cult classic from the late 2000s is pure nostalgia.
+---------
+
+# Kurt Russell's New 6-Part Western Series Instantly Soars Onto Streaming Charts For Another Big Taylor Sheridan Win
+
+TV, The Madison, Taylor Sheridan
+
+Sun, 15 Mar 2026 17:42:55 GMT
+
+https://screenrant.com/the-madison-paramount-plus-streaming-success-march-2026/
+
+Kurt Russell has officially joined Taylor Sheridan's western universe in a new series titled The Madison, which is now dominating streaming charts.
+---------
+
+# 10 Best Virgin River Couples, Ranked By Chemistry
+
+Streaming TV, Virgin River
+
+Sun, 15 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/virgin-river-couples-ranked/
+
+Throughout Virgin River, couples get together and break up all the time, causing drama. These 10 pairings on the Netflix show are the best.
+---------
+
+# Sydney Sweeney’s Forgotten Thriller Role Is In The Most Disturbing TV Show Of All Time
+
+Classic TV, The Handmaid's Tale, Sydney Sweeney
+
+Sun, 15 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/sydney-sweeney-handmaids-tale-most-disturbing-tv-show/
+
+From The White Lotus to Euphoria, Sydney Sweeney has had some iconic TV roles, but many forget she starred in television's most disturbing show.
+---------
+
+# Pokémon Winds & Waves Will Have Historic Launch, According To New Info
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Sun, 15 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-switch-2-development-cycle-info/
+
+There's a lot riding on Pokémon Winds & Waves, the upcoming Gen 10 games, and new info shows just how much of a priority it's been on the Switch 2.
+---------
+
+# Why Aaron Paul Left Invincible Season 4 Clarified By Showrunner Robert Kirkman
+
+TV, Invincible, Invincible - Season 4
+
+Sun, 15 Mar 2026 17:27:25 GMT
+
+https://screenrant.com/invincible-season-4-aaron-paul-exit-explained-robert-kirkman/
+
+Invincible showrunner Robert Kirkman opens up about why Aaron Paul didn't return for season 4.
+---------
+
+# Robert Downey Jr.'s Doctor Doom's Shocking Disfigurement Revealed In Avengers: Doomsday Art After MCU Rumors
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, The Avengers, Doctor Doom, Robert Downey Jr.
+
+Sun, 15 Mar 2026 17:10:57 GMT
+
+https://screenrant.com/avengers-doomsday-robert-downey-jr-doctor-doom-face-mcu-art/
+
+After many rumors of how the Avengers: Doomsday story will tackle Robert Downey Jr.'s Doctor Doom, Victor's disfigurement is depicted through art.
+---------
+
+# Colleen Hoover's New Movie Almost Earned Her First R-Rating Before A Key Scene Was Cut
+
+Movies
+
+Sun, 15 Mar 2026 17:06:08 GMT
+
+https://screenrant.com/reminders-of-him-almost-r-rating-mpa-cut-scene-explained-vanessa-caswell/
+
+Director Vanessa Caswill discussed how Reminders of Him's adaptation could've turned R-rated, but they decided to cut a key scene from the source.
+---------
+
+# New GTA 6 Graphical Details Stun Fans, And We Can See Why
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Sun, 15 Mar 2026 17:00:18 GMT
+
+https://screenrant.com/gta-6-graphical-breakdown-raytracing/
+
+As fans rabidly await the release of GTA 6, some keen players have broken down the graphics already shown, revealing an impressive amount of detail.
+---------
+
+# 10 Strongest Invincible Characters In The Comics, Ranked
+
+TV
+
+Sun, 15 Mar 2026 17:00:18 GMT
+
+https://screenrant.com/invincible-strongest-characters-comics-ranked/
+
+Invincible is full of incredible warriors, but some of the strongest heroes and villains haven't even been introduced to the TV show yet.
+---------
+
+# Dexter Star Michael C. Hall Cast as Darkseid’s Son Orion in DCU Fan Art
+
+Movies, Dexter, DC Comics
+
+Sun, 15 Mar 2026 17:30:10 GMT
+
+https://www.cbr.com/michael-c-hall-cast-orion-dcu-fan-art/
+
+An exquisite piece of fan art casts Dexter star Michael C. Hall in one of the most overdue DC Comics roles of all time, and it is perfect.
+---------
+
+# The Mentalist's Robin Tunney Shoots Down Revival Talks Despite Netflix Popularity
+
+TV, The Mentalist
+
+Sun, 15 Mar 2026 17:21:09 GMT
+
+https://www.cbr.com/the-mentalist-revival-chances-robin-tunney-netflix-success/
+
+The lead star of the popular crime thriller has no interest in a revival, despite its recent streaming resurgence on Netflix.
+---------
+
+# The Best-Written Western RPGs Ever, Ranked
+
+Games, video game, Role Playing Game
+
+Sun, 15 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/best-written-western-rpgs-all-time-ranked/
+
+Some of the best video games ever made were produced in North America and Europe, including Western RPGs that rival their JRPG counterparts.
+---------
+
+# Joker: Folie à Deux Is Now an HBO Max Hit 2 Years After Flopping
+
+Movies, Joker: Folie a Deux, DCU, superheroes
+
+Sun, 15 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/dc-joker-folie-a-deux-streaming-success-hbo-max-march-2026/
+
+One of DC's most infamous bombs is back at the top of the streaming charts (and no one understands why).
+---------
+
+# 5 Perfect Thriller Movies Nobody Talks About Anymore
+
+Movies, Thriller, The Perfect Host, Fracture
+
+Sun, 15 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/best-forgotten-thriller-movies-ever-list/
+
+From a chilling neo-noir to a time-bending mystery, these overlooked thrillers will keep you on the edge of your seat.
+---------
+
+# Kill Me Cast on Dark Comedy, Depression, and Wild Moments | SXSW 2026
+
+Movies, SXSW, Kill Me
+
+Sun, 15 Mar 2026 16:39:30 GMT
+
+https://www.cbr.com/video/kill-me-cast-on-dark-comedy-depression-and-wild-moments-sxsw-2026/
+
+The SXSW 2026 cast reveals how the dark comedy balances absurd humor with a serious story about depression and mental health.Allison Williams, Charlie Day, Giancarlo Esposito, and writer/director Peter Warren break down the film’s wild tone, memorable moments, and why comedy and pain often go hand in hand. The cast also shares behind-the-scenes stories, from Giancarlo’s viral social media moment to Williams still getting recognized for Get Out.
+---------
+
+# Firefly Finally Returns With Animated Sequel Series
+
+TV, Firefly
+
+Sun, 15 Mar 2026 16:39:20 GMT
+
+https://www.cbr.com/firefly-animated-series-announced/
+
+Fans of the beloved cult classic series have been waiting for this for 24 years.
+---------
+
+# The Cast of Drag on Brutal Stunts, Screaming Takes & SXSW Chaos | SXSW 2026
+
+Movies, SXSW, Drag
+
+Sun, 15 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/video/the-cast-of-drag-on-brutal-stunts-screaming-takes-sxsw-chaos-sxsw-2026/
+
+At SXSW 2026, DeVito joins John Stamos, Lizzy Caplan, Lucy DeVito and Christine Ko to talk about the intense indie thriller and how its wild concept came together.The cast explains how Drag blends contained thriller tension with chaotic physical comedy, including real stunt performers taking brutal falls and long overnight shoots in a single house location.
+---------
+
+# New Hatsune Miku Design Transforms the Vocaloid Into Edo-Period Kimono Beauty
+
+Anime, Hatsune Miku, merchandise
+
+Sun, 15 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/hatsune-miku-hokusai-design-reveal/
+
+A new wave of ukiyo-e Hatsune Miku merchandise reunites the Piapro Vocaloid with traditional Japanese aesthetics.
+---------
+
+# Gachiakuta Already Has the Best Potential of Any New-Gen Anime
+
+Anime, Gachiakuta
+
+Sun, 15 Mar 2026 16:15:13 GMT
+
+https://www.cbr.com/gachiakuta-crunchyroll-new-dark-shonen-masterpiece-anime-most-potential/
+
+This anime dominated Fall 2025 Crunchyroll rankings and outpaced industry heavyweights like My Hero Academia, One Piece, and Solo Leveling.
+---------
+
+# Mark Wahlberg’s Pre-'Uncharted' Video Game Disaster Lands on Free Streaming
+
+Movie News, Max Payne, Mark Wahlberg, Mila Kunis, Tubi
+
+Sun, 15 Mar 2026 17:41:12 GMT
+
+https://collider.com/mark-wahlberg-video-game-adaptation-before-uncharted-max-payne-streaming-free-tubi-april-2026/
+
+Mark Wahlberg’s critically-panned video game adaptation with Mila Kunis gets a second shot on a free streamer next month.
+---------
+
+# 30 Years Later, the Coen Brothers’ 95% RT Crime Masterpiece Is on Thin Ice on Streaming
+
+Movie News, Fargo, Joel Coen, Ethan Coen, Frances McDormand
+
+Sun, 15 Mar 2026 17:20:12 GMT
+
+https://collider.com/coen-brothers-crime-thriller-fargo-leaving-streaming-hbo-max-march-2026/
+
+Time is running out for fans of the Coen Brothers to stream their beloved darkly comedic crime caper. Find out more here.
+---------
+
+# 10 Saddest Best Picture Oscar Winners of All Time, Ranked
+
+Movie, Titanic, Schindler's List, The Deer Hunter, West Side Story
+
+Sun, 15 Mar 2026 17:04:12 GMT
+
+https://collider.com/saddest-best-picture-oscar-winners-ranked/
+
+Plenty of Best Picture Oscar winners have been tearjerkers, with classics like Ordinary People, Titanic, and The Deer Hunter being among the saddest.
+---------
+
+# Michael Douglas’ 114-Minute Romantic Political Classic Ends Its Term on Netflix
+
+Movie News, Michael Douglas, Netflix, Rob Reiner, The American President
+
+Sun, 15 Mar 2026 17:00:12 GMT
+
+https://collider.com/michael-douglas-political-romance-the-american-president-leaving-netflix-april-2026/
+
+Michael Douglas' 10/10 political romance with Annette Bening, The American President, is set to leave Netflix. Find out when below.
+---------
+
+# Prime Video’s 85% RT Crime Thriller Falls to a ‘Pirates of the Caribbean’-Style Adventure on the Charts
+
+TV News, Prime Video, Pirates of the Caribbean, The Bluff, Cross
+
+Sun, 15 Mar 2026 16:40:12 GMT
+
+https://collider.com/pirates-of-the-caribbean-replacement-the-bluff-overtakes-crime-thriller-cross-streaming-success-prime-video-march-2026/
+
+Prime Video's new swashbuckling series The Bluff is outperforming the streamer's best crime thriller on the U.S. charts. Find out more here.
+---------
+
+# 'Game of Thrones' Star's 6-Part Thriller Is Back for a New Heist on the Prime Video Charts
+
+TV News, Game Of Thrones, Sophie Turner, Prime Video, Steal
+
+Sun, 15 Mar 2026 16:20:12 GMT
+
+https://collider.com/sophie-turner-thriller-series-steal-streaming-hit-prime-video-march-2026/
+
+Game of Thrones star and upcoming Lara Croft, Sophie Turner's 6-part thriller is back in the Prime Video streaming charts.
+---------
+
+# Western Movies That Are Nearly Perfect
+
+Movie, Western, Ride the High Country, Seraphim Falls, Hang 'Em High
+
+Sun, 15 Mar 2026 16:06:12 GMT
+
+https://collider.com/western-movies-nearly-perfect/
+
+From the original 3:10 to Yuma to the more recent Slow West, these films are perfect examples of Westerns that come very close to absolute perfection.
+---------
+
+# Tom Cruise's 'Top Gun: Maverick' Is a Major Streaming Success on Paramount+
+
+Movie News, Top Gun: Maverick, Paramount Plus, Hot on Streaming, Top Gun
+
+Sun, 15 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/top-gun-maverick-streaming-success-paramount-march-2026/
+
+While fans wait for 'Top Gun 3,' Tom Cruise's 96% rated, $1.4 billion action sequel, 'Top Gun: Maverick,' is a major streaming success on Paramount+.
+---------
+
+# Sorry Christopher Nolan, 'The SpongeBob SquarePants Movie' Already Perfectly Adapted 'The Odyssey'
+
+Features, Christopher Nolan, The Odyssey, The SpongeBob SquarePants Movie
+
+Sun, 15 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/spongebob-squarepants-movie-the-odyssey-christopher-nolan/
+
+Surprisingly, 'The SpongeBob SquarePants' movie from 2004 adapts the Greek epic Homer's 'Odyssey' better than most traditional filmmakers.
+---------
+
+# Prime Video's Ad-Free Tier Gets 'Ultra' Upgrade
+
+TV News, Prime Video, Streaming, Amazon
+
+Sun, 15 Mar 2026 16:37:12 GMT
+
+https://movieweb.com/prime-videos-ad-free-tier-gets-ultra-upgrade/
+
+You'll have to pay more, obviously.
+---------
+
 # Charlie Day's Comedy Thriller Debuts With A Career-High Rotten Tomatoes Score
 
 Movies, Kill Me
