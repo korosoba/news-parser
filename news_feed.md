@@ -1,3 +1,234 @@
+# Super Rant's Weekend Post-Credits: John Stewart In Superman 2, Avengers: Doomsday Updates, Spider-Noir, And More
+
+Superheroes, Marvel Cinematic Universe, DC Universe
+
+Sun, 15 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/super-rant-weekend-post-credits-man-of-tomorrow-avengers-doomsday-spider-noir/
+
+Super Rant's latest weekend round-up of Marvel and DC movie and television news from the last week, making sure you don't miss a thing.
+---------
+
+# Apocalypse Now & The Deer Hunter Are "Mythological" Compared To Other Best War Movies, Says Oscar-Winning Platoon Director
+
+Movies, Platoon, Oliver Stone
+
+Sun, 15 Mar 2026 20:15:00 GMT
+
+https://screenrant.com/apocalypse-now-the-deer-hunter-mythological-war-movies-oliver-stone/
+
+Oscar-winning Platoon director Oliver Stone claims Apocalypse Now and The Deer Hunter feel disconnected from his own Vietnam experiences.
+---------
+
+# Netflix's One Piece Is Cutting A Major Fight From Season 3
+
+Streaming TV, One Piece
+
+Sun, 15 Mar 2026 20:01:18 GMT
+
+https://screenrant.com/one-piece-netflix-mr-4-merry-christmas-baseball-fight-cut/
+
+A massive fight scene from the original One Piece story may not happen as expected, thanks to a specific action moment in Netflix’s season 2.
+---------
+
+# 5 Best D&D Settings Of All Time
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 15 Mar 2026 20:01:18 GMT
+
+https://screenrant.com/best-dungeons-dragons-setting-all-time/
+
+The right campaign setting can make or break a game of D&amp;D, and the best of the best all provide opportunities to make it truly memorable.
+---------
+
+# Honkai: Star Rail – Top Free-To-Play Anime Sci-Fi RPG Reveals March 2026 Update
+
+Anime, Genshin Impact, RPG
+
+Sun, 15 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/honkai-star-rail-anime-rpg-march-2026-update/
+
+One of the top free-to-play anime sci-fi RPGs has officially announced its latest update to the chaotic world of Planarcadia for March 2026.
+---------
+
+# From Has the Creepiest Rules in Horror TV History
+
+TV, From, Horror, Prime Video
+
+Sun, 15 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/mgm-from-creepy-invitation-rule/
+
+From proves that turning mundane things into absolute life-and-death stakes is the best way to build lasting dread and horror.
+---------
+
+# Crunchyroll's Supernatural Mystery Keeps Getting Darker Every Episode
+
+Anime, Oshi No Ko
+
+Sun, 15 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/oshi-no-ko-crunchyroll-must-watch-supernatural-dark-anime/
+
+Oshi no Ko has been a dark drama since the beginning, and it's only getting more brutal.
+---------
+
+# Ryan Kiera Armstrong Unveils First-Look Image at Buffy the Vampire Slayer Revival
+
+TV, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Sun, 15 Mar 2026 20:10:45 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-new-sunnydale-ryan-kiera-armstrong-first-look/
+
+After keeping everything about it under wraps, the new Slayer breaks silence on the revival.
+---------
+
+# The Pizza Movie Cast Get Hilariously Unhinged at SXSW
+
+Movies, SXSW
+
+Sun, 15 Mar 2026 20:01:28 GMT
+
+https://www.cbr.com/video/the-pizza-movie-cast-get-hilariously-unhinged-at-sxsw/
+
+Pizza Movie cast reveals their weirdest nightmares and the chaotic idea behind the film.At SXSW 2026, Gaten Matarazzo, Sean Giambrone, Lulu Wilson, Peyton Elizabeth Lee, and Jack Martin join writers and directors Brian McElhaney and Nick Kocher to talk about their completely unhinged comedy Pizza Movie. The cast swaps nightmare scenarios—from spiders with chainsaws to mayonnaise phobias—while the filmmakers explain how the movie’s absurd premise started with one relatable problem: trying to order food while high.
+---------
+
+# 10 Most Rereadable Moments from Marvel's Ultimate Wolverine, Ranked
+
+Comics, Marvel
+
+Sun, 15 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/most-rereadable-moments-marvel-ultimate-wolverine-ranked/
+
+Marvel's Ultimate Wolverine is ultimately reading again, and again, and again...
+---------
+
+# All 18 International Movies Ever Nominated for a Best Picture Oscar, Ranked
+
+Movie, The Secret Agent, Sentimental Value, Parasite, Crouching Tiger, Hidden Dragon
+
+Sun, 15 Mar 2026 20:56:12 GMT
+
+https://collider.com/every-international-movie-best-picture-oscar-nominated-ranked/
+
+18 international movies have been nominated for a Best Picture Oscar, including Sentimental Value and The Secret Agent, but which is the best overall?
+---------
+
+# This Is the Mount Rushmore of Action Movie Directors
+
+Movie, Action, Christopher Nolan, John Woo, James Cameron
+
+Sun, 15 Mar 2026 20:56:12 GMT
+
+https://collider.com/best-action-movie-directors-mount-rushmore/
+
+Auteurs like Christopher Nolan and James Cameron surely rank among the four best, most iconic and influential action movie directors ever.
+---------
+
+# 10 Genius Movies With the Greatest Dialogue Ever
+
+Movie, Casablanca, Pulp Fiction, His Girl Friday, The Social Network
+
+Sun, 15 Mar 2026 20:27:12 GMT
+
+https://collider.com/genius-movies-best-dialogue-ever/
+
+From the poetry of romantic dramas like Before Sunrise to the stark cynicism of satires like Network, these genius movies master the art of dialogue.
+---------
+
+# After Glitching in Theaters, Disney’s 2025 Sci-Fi Epic Is Rebooting on Streaming
+
+Movie News, Jared Leto, TRON: Ares, Disney+, Disney
+
+Sun, 15 Mar 2026 20:20:12 GMT
+
+https://collider.com/tron-ares-sci-fi-box-office-disaster-streaming-success-disney-plus-march-2026/
+
+Disney's 2025 box office disaster starring Jared Leto, Tron: Ares, has found surprising success on streaming in the U.S.
+---------
+
+# Prime Video’s 85% RT Weekend Binge Thriller Just Found Its Secret Weapon
+
+TV Features, Cross, Aldis Hodge, Johnny Ray Gill, Prime Video
+
+Sun, 15 Mar 2026 20:18:12 GMT
+
+https://collider.com/cross-prime-video-season-2-bobby-trey-secret-weapon/
+
+In Cross Season 2, Bobby Trey, played by Johnny Ray Gill, steals the spotlight as the series' most flamboyant and sinister villain.
+---------
+
+# 7 Crime Shows That Are 10/10, but Nobody Remembers Today
+
+TV, Crime, Black Bird, Mr Inbetween, Bosch
+
+Sun, 15 Mar 2026 20:17:12 GMT
+
+https://collider.com/crime-tv-shows-nobody-remembers/
+
+Prime Video's Bosch, FX's The Shield, and Netflix's The Chestnut Man are some of the perfect crime shows that are completely forgotten by audiences.
+---------
+
+# 10 Worst Movies With Non-Linear Plots, Ranked
+
+Movie, Gotti, 9 Songs, The Snowman, The Number 23
+
+Sun, 15 Mar 2026 20:03:12 GMT
+
+https://collider.com/worst-movies-non-linear-plots-ranked/
+
+Unfortunately, movies like The Number 23 and Gotti can't take advantage of their non-linear narratives, resulting in mediocre and exhausting efforts.
+---------
+
+# Netflix’s Easy-To-Binge 2-Part True-Crime Hit Is Pulling in ‘Tinder Swindler’ Fans
+
+TV News, Netflix, True Crime, The Tinder Swindler, The TikTok Killer
+
+Sun, 15 Mar 2026 20:00:12 GMT
+
+https://collider.com/tiktok-killer-tinder-swindler-replacement-true-crime-streaming-success-netflix-march-2026/
+
+Netflix's two-part The Tinder Swindler replacement, a true-crime documentary series The TikTok Killer, is an instant hit. Find out more.
+---------
+
+# Dichen Lachman Teases “A Whole World We Don’t Know” About Gemma in Severance
+
+Interviews, Dichen Lachman, Severance, Apple TV
+
+Sun, 15 Mar 2026 20:42:22 GMT
+
+https://movieweb.com/dichen-lachman-severance-whole-new-world/
+
+She also reassures fans frustrated with the long wait. "Anything that's good takes time."
+---------
+
+# Every Must-Watch Movie Coming to Theaters in April 2026
+
+Features
+
+Sun, 15 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/movie-theaters-release-dates-april-2026/
+
+Here are all the movies coming to theaters in April 2026, including major and limited releases.
+---------
+
+# The Best Modern TV Shows Set in the '80s
+
+TV Lists, 1980s
+
+Sun, 15 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/modern-tv-shows-set-in-80s/
+
+There's no denying the wave of '80s nostalgia that has flooded TV screens with excellent modern shows set in that iconic time.
+---------
+
 # Dexter Resurrection: The Best New Crime Thriller Of 2025 Remains The Ultimate One-Night Weekend Binge
 
 Streaming TV, Dexter: Resurrection
