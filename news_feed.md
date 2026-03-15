@@ -1,3 +1,267 @@
+# Charlie Day's Comedy Thriller Debuts With A Career-High Rotten Tomatoes Score
+
+Movies, Kill Me
+
+Sun, 15 Mar 2026 15:52:32 GMT
+
+https://screenrant.com/kill-me-charlie-day-movie-rotten-tomatoes-score/
+
+It's always sunny for Charlie Day until his new comedy thriller, Kill Me, takes a dark turn, but the Rotten Tomatoes score is a career-high for Day.
+---------
+
+# Hoppers Box Office Sets Major Pixar Record With Weekend 2 Drop
+
+Movies, Box Office, Hoppers
+
+Sun, 15 Mar 2026 15:44:11 GMT
+
+https://screenrant.com/hoppers-box-office-week-2-domestic-drop/
+
+A new record has arrived for Pixar, with Hoppers having just experienced a shocking box office hold between its first and second weekends.
+---------
+
+# Scream 7 Breaks The Franchise's All-Time Box Office Record After 30 Years
+
+Movies, Scream, Scream 7, Box Office, Horror
+
+Sun, 15 Mar 2026 15:36:42 GMT
+
+https://screenrant.com/scream-7-franchise-comparison-worldwide-box-office/
+
+Scream 7 hits a gigantic global box office total that makes it the highest-grossing installment in the franchise, breaking a 30-year record.
+---------
+
+# HBO's 10-Part Post-Apocalyptic Series Deserves As Much Love As Fallout
+
+Classic TV, Fallout, Station Eleven, Sci-Fi, Recommendation
+
+Sun, 15 Mar 2026 15:32:18 GMT
+
+https://screenrant.com/hbo-max-station-eleven-dystopian-series-reception-fallout/
+
+Fallout has proved that life after the end of the world doesn't have to be all doom and gloom, but an HBO miniseries did the same years earlier.
+---------
+
+# 10 Best Period Drama Movies On HBO Max Right Now, Ranked
+
+Classic Movies, HBO Max, Ranking
+
+Sun, 15 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/hbo-max-period-drama-movies-best-ranked/
+
+HBO Max features one of the finest collections of movies on streaming today, and the platform has an exceptional selection of period dramas.
+---------
+
+# 16 Best Disney Renaissance Songs
+
+Classic Movies, Disney
+
+Sun, 15 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/best-disney-renaissance-movie-songs/
+
+Discover the 16 most iconic songs from Disney's Renaissance era, featuring timeless classics from Menken & Ashman, Elton John, & Phil Collins.
+---------
+
+# Ready Or Not 2's New Cabal Of Wealthy Satan Worshippers Explained By Directors & Stars
+
+Movies, Ready or Not 2: Here I Come, Ready or Not, SXSW
+
+Sun, 15 Mar 2026 15:29:40 GMT
+
+https://screenrant.com/ready-or-not-2-new-satan-worshippers-explained-directors-stars/
+
+EXCLUSIVE: The directors and stars of Ready or Not 2: Here I Come explain the horror sequel's new roster of Satan-worshipping villains.
+---------
+
+# Apple TV's Foundation Is So Good, The Sci-Fi Show Could Last Forever
+
+Streaming TV, Foundation, Sci-Fi, Apple TV, Recommendation
+
+Sun, 15 Mar 2026 15:13:19 GMT
+
+https://screenrant.com/foundation-apple-tv-sci-fi-show-last-forever/
+
+Apple's most ambitious sci-fi show adapts one of the most complex books in the genre's history, and there's no reason it ever has to conclude.
+---------
+
+# 12 Unresolved TV Cliffhangers That Still Frustrate Us
+
+Classic TV
+
+Sun, 15 Mar 2026 15:02:18 GMT
+
+https://screenrant.com/unresolved-tv-show-cliffhangers-still-frustrate-us/
+
+Explore 12 TV series finales that ended on shocking cliffhangers, leaving fans forever with unanswered questions and unresolved storylines.
+---------
+
+# Taylor Sheridan's The Madison Defeats Marshals on Paramount+'s U.S. Charts
+
+TV, The Madison
+
+Sun, 15 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/michelle-pfeiffer-the-madison-western-defeats-marshals-paramount-plus-march-2026/
+
+The series has already improved Marshals' disastrous score and it's an instant streaming hit.
+---------
+
+# Predator: Badlands Fans Need to See Turbo Kid
+
+Movies, Predator: Badlands, Turbo Kid
+
+Sun, 15 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/predator-badlands-turbo-kid-must-watch/
+
+Predator: Badlands is a great addition to the franchise and a perfect companion to the sci-fi masterpiece, Turbo Kid.
+---------
+
+# HBO's The Penguin Makes The Sopranos Look Tame
+
+TV, The Penguin, HBO Max, Crime
+
+Sun, 15 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/the-penguin-hbo-crime-masterpiece-rivals-the-sopranos/
+
+HBO's 2024 surprise masterpiece crime thriller is the best in decades, and its brutality rivals that of The Sopranos.
+---------
+
+# The Grind Cast on Their Wildest Real-Life Hustles | SXSW 2026
+
+Movies, SXSW
+
+Sun, 15 Mar 2026 15:49:28 GMT
+
+https://www.cbr.com/video/the-grind-cast-on-their-wildest-real-life-hustles-sxsw-2026/
+
+At SXSW 2026, Barbara Crampton, Rob Huebel, Brea Grant, and Ed Dougherty break down the strange, exhausting, and sometimes hilarious gigs that inspired the dark comedy of Grind.From Rob Huebel pedaling a rickshaw in brutal summer heat to Brea Grant transcribing prison phone calls for pennies, the cast shares the real-life “grind” behind their careers.
+---------
+
+# After 3 Years, HBO's Big Little Lies Gets Season 3 Filming Update
+
+TV, Big Little Lies
+
+Sun, 15 Mar 2026 15:23:21 GMT
+
+https://www.cbr.com/big-little-lies-season-3-filming-update/
+
+Before The White Lotus, this HBO series kicked off the limited-series-turned-show trend.
+---------
+
+# 6 Best Returning Anime Kickstarting a New Era in 2026
+
+Anime, Frieren: Beyond Journey's End, Bleach
+
+Sun, 15 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/2026-best-anime-kickstarting-new-era/
+
+Several major anime comebacks in 2026 are setting the stage for a new chapter in the medium.
+---------
+
+# 25 Years Later, Heath Ledger’s Cult Fantasy Romance Exits the Realm of Free Streaming
+
+Movie News, A Knight's Tale, Heath Ledger, Tubi, Paul Bettany
+
+Sun, 15 Mar 2026 16:00:12 GMT
+
+https://collider.com/heath-ledger-medieval-romance-a-knights-tale-leaving-streaming-tubi-april-2026/
+
+Heath Ledger's action-packed medieval romance comedy cult classic, A Knight's Tale, is about to leave free streaming. Here's where to catch it.
+---------
+
+# Netflix Is Pulling the Only Dexter Series Fans Still Care About in 15 Days
+
+TV News, Dexter, Michael C. Hall, Netflix
+
+Sun, 15 Mar 2026 15:40:12 GMT
+
+https://collider.com/netflix-removing-dexter-showtime-classic-march-2026/
+
+Netflix is removing one of the most beloved television shows of the 2000s, the darkly comic crime drama Dexter. Here's how long you have to watch it.
+---------
+
+# Netflix's 4-Part 10/10 Psychological Thriller Simply Can't Be Beat
+
+TV Features, Ozark, Jason Bateman, Netflix, Crime
+
+Sun, 15 Mar 2026 15:27:12 GMT
+
+https://collider.com/ozark-netflix-best-psychological-thriller-jason-bateman/
+
+Jason Bateman's 4-season crime thriller, starring Laura Linney, Julia Garner, and Tom Pelphrey, is among the best of what Netflix has to offer.
+---------
+
+# 25 Years Later, 'Firefly' Cast Reunites to Revive the Beloved Sci-Fi Series With a Major Twist
+
+TV News, Firefly, Awesome Con, Nathan Fillion, Alan Tudyk
+
+Sun, 15 Mar 2026 15:24:11 GMT
+
+https://collider.com/firefly-animated-series-cast-returning-nathan-fillion/
+
+Firefly stars including Nathan Fillion, Alan Tudyk, and Gina Torres reunited at Awesome Con, teasing a return to the franchise after 25 years.
+---------
+
+# These Netflix Shows Have Aged Like Milk
+
+TV, Netflix, Love Is Blind, House of Cards, The Witcher
+
+Sun, 15 Mar 2026 15:24:12 GMT
+
+https://collider.com/netflix-shows-aged-like-milk-bad/
+
+Time hasn't been kind to once beloved Netflix shows like Love Is Blind, 13 Reasons Why, and House of Cards, with their reputation only getting worse.
+---------
+
+# 10 Years Later, Netflix Removes the Most Ruthlessly Review-Bombed Movie Ever
+
+Movie News, Ghostbusters, Paul Feig, Kristen Wiig, Melissa McCarthy
+
+Sun, 15 Mar 2026 15:20:12 GMT
+
+https://collider.com/ghostbusters-reboot-netflix-removing-most-ruthlessly-review-bombed-movie-in-history/
+
+You're running out of time to watch the most ruthlessly review-bombed movie in history, the 2016 Ghostbusters reboot directed by Paul Feig.
+---------
+
+# Adam Scott's Horror Movie 'Hokum' Is A Must-Watch
+
+Features, Hokum, Adam Scott, Horror
+
+Sun, 15 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/hokum-horror-movie-2026-upcoming/
+
+Neon's new Irish folk horror movie 'Hokum should be at the top of every true horror fan's list for 2026 with auteur Damian McCarthy behind the camera.
+---------
+
+# 'Firefly' Animated Series In Development With Original Stars Returning
+
+TV News, Firefly, Sci-Fi, Nathan Fillion
+
+Sun, 15 Mar 2026 15:38:44 GMT
+
+https://movieweb.com/firefly-animated-series-in-development-original-stars-returning/
+
+Better two-plus decades late than never.
+---------
+
+# Chris Hemsworth & Tom Holland's 'In the Heart of the Sea' Fixes Major Marvel Mistake
+
+Features, Chris Hemsworth, Tom Holland, In the Heart of the Sea, MCU
+
+Sun, 15 Mar 2026 15:01:17 GMT
+
+https://movieweb.com/chris-hemsworth-tom-holland-forgotten-flop/
+
+Chris Hemsworth and Tom Holland's 'In the Heart of the Sea' has done what 10 years' worth of Marvel movies have not.
+---------
+
 # Hulu's 2-Part Series With Perfect 100% Rotten Tomatoes Score Is The Best Modern Superhero TV Show
 
 Classic TV, Extraordinary
