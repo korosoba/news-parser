@@ -1,3 +1,267 @@
+# Hulu's 2-Part Series With Perfect 100% Rotten Tomatoes Score Is The Best Modern Superhero TV Show
+
+Classic TV, Extraordinary
+
+Sun, 15 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/extraordinary-best-superhero-tv-show/
+
+This two-season British superhero show is the perfect show to watch for fans of the genre who are sick of the MCU and experiencing superhero fatigue.
+---------
+
+# Steam Drops Remarkable 9/10 RPG Freebie That You Can Download Now
+
+Gaming, Steam, RPG, Indie, PC
+
+Sun, 15 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/steam-free-game-9-10-rpg-release-download/
+
+Players will be delighted to know that an RPG that mixes various types of genres can be downloaded and played for free on Steam, no strings attached.
+---------
+
+# Firefly Season 2 Officially Happening With OG Cast 24 Years Later
+
+TV, Firefly, Serenity
+
+Sun, 15 Mar 2026 14:37:10 GMT
+
+https://screenrant.com/firefly-reboot-animated-series-original-cast-return/
+
+After a couple of weeks teasing an important announcement, Nathan Fillion and the cast of Firefly finally unveils their special reunion project.
+---------
+
+# Hulu’s New Star-Studded Sci-Fi Crime Comedy Breaks A Decades-Old Time Travel Movie Tradition
+
+Movies, SXSW, Mike & Nick & Nick & Alice
+
+Sun, 15 Mar 2026 14:35:11 GMT
+
+https://screenrant.com/mike-nick-nick-alice-time-travel-no-scientists-tradition-break-bendavid-grabinski/
+
+EXCLUSIVE: Vince Vaughn, James Marsden, and Eiza González's new science-fiction crime comedy movie breaks a long-running time travel movie tradition.
+---------
+
+# Snatch At 25: Guy Ritchie's Crime Caper Still Delivers Laughs And Thrills
+
+Movies, Snatch
+
+Sun, 15 Mar 2026 14:32:18 GMT
+
+https://screenrant.com/snatch-brad-pitt-guy-ritchie-movie-aged-well/
+
+The Guy Ritchie-directed crime caper, Snatch, starring Jason Statham and Brad Pitt, is a fantastic movie that still delivers even 25 years later.
+---------
+
+# 10 Best New Movies On Hulu In March 2026, Ranked
+
+Classic Movies, Hulu, Ranking
+
+Sun, 15 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/hulu-new-movies-march-2026-best-ranked/
+
+Hulu is adding a ton of new movies to the platform in March, and these 10 flicks should go to the top of your must-watch list.
+---------
+
+# 10 Ways Rewatching All 8 Harry Potter Movies In Order Changes How You Look At The Films
+
+Movies, Harry Potter, Harry Potter and the Goblet of Fire, Harry Potter and the Sorcerer's Stone, Harry Potter and the Chamber of Secrets, Harry Potter and the Order of the Phoenix, Harry Potter and the Prisoner of Azkaban, Harry Potter and the Deathly Hallows - Part 1, Harry Potter and the Deathly Hallows - Part 2, Harry Potter and the Half-Blood Prince
+
+Sun, 15 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/harry-potter-movies-rewatching-changes/
+
+The Harry Potter films are legendary in the fantasy genre, and rewatching them in order may reveal things you never noticed before.
+---------
+
+# The 40-Year-Old Virgin: A Timeless Comedy That Hasn't Aged
+
+Movies, The 40-Year-Old Virgin
+
+Sun, 15 Mar 2026 14:02:19 GMT
+
+https://screenrant.com/steve-carell-40-year-old-virgin-hbo-max-success-aged-well/
+
+Steve Carell's The 40-Year-Old Virgin is one of the great comedy classics, and even 21 years after its debut, it remains as funny and smart as ever.
+---------
+
+# Resident Evil Requiem’s New Grace Nerf Will Make Your Playthrough Way Harder
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Sun, 15 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/resident-evil-requiem-grace-nerf-difficulty-mod/
+
+Resident Evil Requiem arms Grace with an immensely powerful weapon almost from the start, but this mod takes it down a notch or two.
+---------
+
+# Cyclops Just Officially Replaced Magneto by Finally Turning On the X-Men
+
+Comics, X-Men, Cyclops, Magneto
+
+Sun, 15 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/cyclops-change-x-men-lore-new-base/
+
+Cyclops' actions in X-Men United #1 introduce fracture the X-Men's unity, making him the biggest wildcard and potential threat to the team.
+---------
+
+# Jake Gyllenhaal's Road House Remake Is Heading to Tubi in March 2026
+
+Movies, Road House
+
+Sun, 15 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/jake-gyllenhaal-road-house-action-tubi-release-date-march-2026/
+
+While his latest theatrical release bombed, Jake Gyllenhaal's 2-year-old hit is heading to free streaming.
+---------
+
+# 10 Most Perfect Horror Games of All Time, Ranked
+
+Games, Silent Hill, Resident Evil, horror games
+
+Sun, 15 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/most-perfect-horror-games-of-all-time-ranked/
+
+Some classic horror games, like Silent Hill 2, are so good that they reach perfection.
+---------
+
+# 10 Best Shonen Anime If You’re Craving Another Solo Leveling
+
+Anime, Solo Leveling, Shonen Jump, One-Punch Man, Jujutsu Kaisen
+
+Sun, 15 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/solo-leveling-best-shonen-action-anime/
+
+10 shonen anime that are the best solution for anyone craving for another Solo Leveling-worthy watch.
+---------
+
+# Epic Adds 2 Free Games With Great Reviews Available Until March 19
+
+Games, Epic Games Store
+
+Sun, 15 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/epic-free-games-march-2026-cozy-grove/
+
+Gamers can now get two hit titles completely free through the Epic Games Store, and there are only days left before the price goes back up.
+---------
+
+# The Conners Final Season Finally Lands Netflix Release Date
+
+TV, The Conners, Roseanne, Netflix
+
+Sun, 15 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/the-conners-season-7-netflix-release-date-march-2026/
+
+The final season of the hotly debated Roseanne spinoff series is finally heading to a new streaming home on the biggest platform online.
+---------
+
+# Sorry, But Invincible Is Better Than The Boys
+
+Comics, Invincible, The Boys
+
+Sun, 15 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/invincible-better-than-the-boys-debate/
+
+With both The Boys and Invincible returning to Prime Video soon, the major difference in quality between the two has become more apparent to fans
+---------
+
+# WWE Fans Risk Losing Streaming Access in April Without This Switch
+
+TV News, WWE, Peacock, ESPN, Sports
+
+Sun, 15 Mar 2026 15:00:13 GMT
+
+https://collider.com/wwe-streaming-peacock-subscribers-need-espn-april-2026-change/
+
+WWE’s major events have moved away from Peacock in the U.S., with ESPN’s direct-to-consumer service now becoming the key streaming destination.
+---------
+
+# 24 Years Later, Henry Cavill’s Forgotten Literary Adaptation Lands on Free Streaming
+
+Movie News, The Count of Monte Cristo, Henry Cavill, Guy Pearce, Jim Caviezel
+
+Sun, 15 Mar 2026 14:40:12 GMT
+
+https://collider.com/henry-cavill-forgotten-literary-adaptation-the-count-of-monte-cristo-streaming-tubi-april-2026/
+
+More than two decades later, the literary adaptation that jump-started Henry Cavill’s career sails onto a free streamer. Read on for more!
+---------
+
+# Apple TV’s 3-Part Sci-Fi Space Opera Quietly Rebelled Against the Books It's Based On
+
+TV Features, Foundation, Lee Pace, Apple TV, Sci-Fi
+
+Sun, 15 Mar 2026 14:29:13 GMT
+
+https://collider.com/foundation-apple-tv-adaptation-based-on-books/
+
+Foundation was inspired by Isaac Asimov's novels of the same name, but has deviated from the source material to great success.
+---------
+
+# Netflix Buries 2025's “Ferocious” $151 Million Post-Apocalyptic Zombie Reboot
+
+Movie News, 28 Years Later, Danny Boyle, Ralph Fiennes, Jodie Comer
+
+Sun, 15 Mar 2026 14:20:12 GMT
+
+https://collider.com/netflix-blocks-28-years-later-post-apocalyptic-zombie-reboot-ad-supported-tier-march-2026/
+
+Netflix has blocked the critically acclaimed post-apocalyptic horror film 28 Years Later for some of its subscribers this month. Find out more.
+---------
+
+# A Brutal April Exit Looms for Taylor Sheridan’s 8-Part Spy Thriller
+
+TV News, Taylor Sheridan, Lioness, Paramount Plus, Landman
+
+Sun, 15 Mar 2026 14:00:13 GMT
+
+https://collider.com/taylor-sheridan-spy-thriller-lioness-prime-sample-leaving-april-2026/
+
+Taylor Sheridan’s Lioness is set to become harder to sample through Prime in April, making Paramount+ the main destination for fans.
+---------
+
+# 'Eight Is Enough': Where the Cast Is Today
+
+TV Lists, Eight Is Enough
+
+Sun, 15 Mar 2026 14:00:18 GMT
+
+https://movieweb.com/eight-is-enough-cast-today/
+
+To celebrate the legacy of one of the most beloved families of the 70s, we look at where the cast of Eight Is Enough is today.
+---------
+
+# Post-Apocalyptic Thriller 'Paradise' Surges on Streaming Ahead of Finale
+
+TV News, Paradise, Hot on Streaming, Thriller
+
+Sun, 15 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/paradise-streaming-hit-disney-plus-hulu-march-2026/
+
+'Paradise' took the streaming world by storm following its premiere in 2025, and as the Season 2 finale draws near, it continues to be a massive hit.
+---------
+
+# Russell Crowe's 'Lord of Rings' Role Would Have Fixed a Book Difference
+
+Features, The Lord of the Rings, Quote
+
+Sun, 15 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/russell-crowe-lord-of-rings-role-book-change/
+
+Russell Crowe was offered an important role in 'Lord of the Rings,' which would have solved a problem with the adaptation of J.R. Tolkien's work.
+---------
+
 # Power Ballad Review: Paul Rudd & Nick Jonas Sing Beautifully Together In Yet Another John Carney Heartwarmer
 
 Movies, Power Ballad, SXSW
