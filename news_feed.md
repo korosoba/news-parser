@@ -1,3 +1,245 @@
+# The Sympathizer: HBO's Vietnam War Spy Thriller Starring Robert Downey Jr.
+
+TV, The Sympathizer
+
+Sun, 15 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/robert-downey-jr-the-sympathizer-hbo-spy-thriller-recommendation/
+
+This HBO thriller becomes more relevant to world events every day, with biting satire that can be applied to the present epoch as much as its own.
+---------
+
+# Uma Thurman's New "Ballet-Fu" R-Rated Action Movie Pretty Lethal Has A Sweet Central Message
+
+Movies, Pretty Lethal, SXSW, Uma Thurman, Prime Video
+
+Sun, 15 Mar 2026 21:30:41 GMT
+
+https://screenrant.com/uma-thurman-pretty-lethal-movie-sweet-message-director-cast-sxsw/
+
+Uma Thurman, director Vicky Jewson and the Pretty Lethal cast talk the R-rated ballet action movie and the sweet message as its center.
+---------
+
+# From Anime to Webtoons: Every Upcoming Netflix Live-Action Adaptation
+
+Anime, webtoon, Netflix
+
+Sun, 15 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/anime-webtoons-every-live-action-adaptation-netflix/
+
+Fans uncertain about the future of Netflix's live actions might reconsider thanks to these upcoming webtoon and anime adaptations.
+---------
+
+# Forget Pokémon Pokopia, Fans Are Fixated On A Sequel To The Studio's Prior Hit
+
+Gaming, Pokemon Pokopia, Pokemon, Dragon Quest, Triple-A Games
+
+Sun, 15 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/pokemon-pokopia-studio-next-game-dragon-quest/
+
+Pokémon Pokopia has been a smash success, and a lot of the reason for that comes from one of the games that developer Omega Force worked on before.
+---------
+
+# Apple TV's Underrated Sci-Fi Series: See Is Jason Momoa's Best Performance
+
+Classic TV, See
+
+Sun, 15 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/apple-tv-see-sci-fi-series-jason-momoa-best/
+
+Despite being a great TV show, Apple TV’s 3-part sci-fi series that stars Jason Momoa remains an underrated gem that deserves more attention.
+---------
+
+# Fallout 5 Length Has Gamers More Hyped Than Ever Before
+
+Gaming, Fallout 5, Fallout
+
+Sun, 15 Mar 2026 21:30:18 GMT
+
+https://screenrant.com/fallout-5-story-length-600-hours-gamer-reaction/
+
+The potential length of Fallout 5 is very much up for debate right now, but it's likely going to be an absolute beast in any case.
+---------
+
+# The Real Sauron Will Finally Appear In The Rings Of Power Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 15 Mar 2026 21:01:19 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-real-sauron-appear/
+
+Sauron has taken several forms already in The Lord of the Rings: The Rings of Power, but season 3 should finally introduce the real villain.
+---------
+
+# 10 Movies Too Upsetting To Watch A Second Time
+
+Movies, The Bachelor, Career, lamaze, Discipline, Childcare, Preschool, Oral Hygiene, Nutrition, Trauma, Hurricane Katrina
+
+Sun, 15 Mar 2026 21:01:19 GMT
+
+https://screenrant.com/movies-too-upsetting-to-watch-again/
+
+These unforgettable films deliver incredible storytelling but are so emotionally devastating that many viewers can only handle watching them once.
+---------
+
+# Resident Evil’s Next Remake Hints At Iconic RE10 Protagonist
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sun, 15 Mar 2026 21:01:19 GMT
+
+https://screenrant.com/resident-evil-code-veronica-remake-claire-re10/
+
+We don't know much about Resident Evil 10 yet, but we know a lot more about the next remake, and it might hold the answer to everything.
+---------
+
+# Star Trek: Starfleet Academy EP Confirms Season 2's Major Risk
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Sun, 15 Mar 2026 21:45:50 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-season-2-cliffhanger/
+
+Star Trek: Starfleet Academy EP Noga Landau addresses the show's future and reveals how Season 2 is taking a major gamble.
+---------
+
+# Robert Pattinson & Zendaya’s The Drama Has a Secret Breaking the Internet
+
+Movies, The Drama, Thriller, A24
+
+Sun, 15 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/the-drama-zendaya-robert-pattinson-a24-twist/
+
+Starring Zendaya and Robert Pattinson, The Drama is doing something different with its marketing.
+---------
+
+# The Best '90s Saturday Morning Cartoons That Nobody Remembers
+
+TV, animated, Extreme Ghostbusters, Biker Mice From Mars, The Pirates Of Dark Water
+
+Sun, 15 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/best-forgotten-90s-saturday-morning-cartoons-list/
+
+From mech suits and galactic wars to edgy new heroes, these '90s cartoons may have faded into obscurity, but they left a lasting impact on fans.
+---------
+
+# 7 Near-Perfect Anime No One Remembers Because They Were Canceled Too Soon
+
+Anime, Isekai
+
+Sun, 15 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/near-perfect-anime-no-one-remembers-canceled-too-soon/
+
+Overlooked anime like Deadman Wonderland and Land of the Lustrous might be remembered very differently if they had been allowed to continue.
+---------
+
+# Apple TV's Silo Resurfaces on the Streaming Charts Ahead of Season 3
+
+TV, Silo, Apple TV, Sci-Fi
+
+Sun, 15 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/silo-sci-fi-dystopia-apple-tv-success-march-2026/
+
+Apple TV's dystopian series Silo, starring Rebecca Ferguson, is making a comeback on streaming charts ahead of Season 3's anticipated release.
+---------
+
+# Aragorn's 'For Frodo' Still Defines the Lord of the Rings Trilogy 20 Years Later
+
+Movies, The Lord of the Rings
+
+Sun, 15 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/aragorn-for-frodo-define-lord-of-the-rings-trilogy/
+
+The Lord of the Rings trilogy has many great moments, but Aragorn's most important declaration means more than anything.
+---------
+
+# Streaming Surge Proves Spider-Man 3's Version of Venom Actually Worked
+
+Movies, Spider-Man 3, Spider-Man, Venom
+
+Sun, 15 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/spider-man-3-venom-worked/
+
+Sam Raimi's divisive Spider-Man 3 still has the best adaptation of Venom ever featured in a live-action Marvel movie.
+---------
+
+# 5 Fantasy Shows You’ll Wish You Watched Sooner
+
+TV, Fantasy, Galavant, The Magicians, A Knight Of The Seven Kingdoms
+
+Sun, 15 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/underrated-fantasy-shows-worth-watching-now-list/
+
+These fantasy shows might have flown beneath your radar, but you'll regret not checking them out today.
+---------
+
+# 7 Near-Perfect Family Fantasy Movies That No One Remembers Today
+
+Movie, Family, Fantasy, Animation, On Borrowed Time
+
+Sun, 15 Mar 2026 21:42:12 GMT
+
+https://collider.com/near-perfect-family-fantasy-movies-no-one-remembers-today/
+
+The Little Fox, The Adventures of Prince Achmed, and On Borrowed Time are amazing family fantasy movies you've probably never even heard of.
+---------
+
+# 16 Seasons Later, This Insane Sitcom Continues to Pick Up Steam on Hulu
+
+TV, Bob's Burgers, FOX TV, Loren Bouchard, H. Jon Benjamin
+
+Sun, 15 Mar 2026 21:19:12 GMT
+
+https://collider.com/bobs-burgers-fox-season-16-hulu-sitcom/
+
+Bob's Burgers went through growing pains in early seasons, and had to adapt the tone in order to be successful.
+---------
+
+# HBO’s 8-Part American Gothic Thriller Is a Sleeper Hit
+
+TV Features, Sharp Objects, Amy Adams, Gillian Flynn, Sophia Lillis
+
+Sun, 15 Mar 2026 21:14:12 GMT
+
+https://collider.com/hbo-sharp-objects-american-gothic-thriller/
+
+HBO's adaptation of Gillian Flynn's Sharp Objects is a gripping thriller that captures the novel's dark atmosphere and complex characters.
+---------
+
+# Prime Video's 8-Part Guy Ritchie Series Completely Rewrites a Classic Detective Story
+
+TV Features, Young Sherlock, Prime Video, Guy Ritchie, Mystery
+
+Sun, 15 Mar 2026 21:06:12 GMT
+
+https://collider.com/young-sherlock-prime-video-guy-ritchie-detective-origin-story/
+
+Guy Ritchie's new Prime Video series Young Sherlock tells the origin story of the classic detective and avoids the case-of-the-week format.
+---------
+
+# Steven Spielberg Theory: 'Disclosure Day' Is Secret Sci-Fi Classic Sequel
+
+Features, Disclosure Day, Steven Spielberg, Close Encounters of The Third Kind, Sci-Fi
+
+Sun, 15 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/steven-spielberg-theory-disclosure-day-sequel/
+
+Steven Spielberg fans are buzzing over 'Disclosure Day', with many believing it may be a secret sequel to a sci-fi classic.
+---------
+
 # Super Rant's Weekend Post-Credits: John Stewart In Superman 2, Avengers: Doomsday Updates, Spider-Noir, And More
 
 Superheroes, Marvel Cinematic Universe, DC Universe
