@@ -1,3 +1,157 @@
+# Dexter Resurrection: The Best New Crime Thriller Of 2025 Remains The Ultimate One-Night Weekend Binge
+
+Streaming TV, Dexter: Resurrection
+
+Sun, 15 Mar 2026 19:41:19 GMT
+
+https://screenrant.com/best-new-crime-thriller-dexter-resurrection-weekend-binge/
+
+Dexter: Resurrection, the most shockingly good new show of 2025, is a must-watch crime thriller series that demands a one-night weekend binge-watch.
+---------
+
+# Netflix's The OA So Good, The Final Episode Of The Sci-Fi Show Makes Fans Mad
+
+Classic TV, The OA
+
+Sun, 15 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/netflix-the-oa-final-episode-cliffhanger-fans-disappointed/
+
+Netflix has some interesting sci-fi TV shows, but the final episode of one of its best sci-fi series left fans disappointed and wanting more.
+---------
+
+# 10 Harsh Realities Of Playing Fallout 4 In 2026
+
+Gaming, Fallout 4, Triple-A Games, PC
+
+Sun, 15 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/fallout-4-harsh-realities-2026/
+
+Fallout 4 is still one of the most easily replayable games in the franchise, but replaying the game today comes with a few painful truths.
+---------
+
+# Everything To Know About The Masked Singer Season 14 Star Trek Night, Including Cat Witch’s Song (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Sun, 15 Mar 2026 19:27:18 GMT
+
+https://screenrant.com/the-masked-singer-season-14-star-trek-night-everything-to-know-cat-witch-song-spoilers/
+
+The Masked Singer S14 Star Trek Night will celebrate the 60th anniversary of the iconic sci-fi franchise, and it's going to be out of this world.
+---------
+
+# How To Watch Oscars 2026: Streaming Info, Start Time & Everything You Need To Know
+
+Network TV, Oscars
+
+Sun, 15 Mar 2026 19:22:54 GMT
+
+https://screenrant.com/oscars-2026-how-to-watch-streaming-start-time/
+
+The 2026 Oscars take place today, and here is all the information you need to watch them, including the streamer, time, and biggest nominees.
+---------
+
+# Monsters Inc. 3 Reports Addressed By Original Star As New Adult Comedy Reveals A Surprise Pixar Easter Egg
+
+Movies, Monsters, Inc., SXSW
+
+Sun, 15 Mar 2026 19:21:44 GMT
+
+https://screenrant.com/monsters-inc-3-reports-john-goodman-response/
+
+Monsters Inc. star John Goodman discusses recent rumors about a potential third movie while promoting his new adult comedy Chili Finger.
+---------
+
+# Happy Death Day 3 Update Revealed by Jessica Rothe
+
+Movies, Horror, Happy Death Day, Happy Death Day 2U, Happy Death Day to Us, SXSW
+
+Sun, 15 Mar 2026 19:52:24 GMT
+
+https://www.cbr.com/happy-death-day-3-jessica-rothe-update/
+
+Exclusive: Horror fans have been waiting for almost a decade for the franchise to finally get another film.
+---------
+
+# een DecidedThe 2-Part Medical Drama Dominating Global Streaming Gets Its Final Diagnosis
+
+TV News, Doc, Grey's Anatomy, Fox, Molly Parker
+
+Sun, 15 Mar 2026 19:40:12 GMT
+
+https://collider.com/medical-drama-doc-season-3-renewed-fox-record-breaking-viewership/
+
+FOX's hit medical drama starring Molly Parker has been renewed for a third season following its impressive performance across multiple platforms.
+---------
+
+# 10 Greatest Fantasy-Adventure Movies of All Time, Ranked
+
+Movie, Fantasy, The Lord of the Rings, The Wizard of Oz, The Princess Bride
+
+Sun, 15 Mar 2026 19:38:12 GMT
+
+https://collider.com/best-fantasy-adventure-movies-all-time-ranked/
+
+From foundational entries like The Wizard of Oz to cult classics like The Princess Bride, these movies are the apex of the fantasy-adventure subgenre.
+---------
+
+# Netflix’s 3-Part Weekend Binge Was a Prestige Crime Thriller It Couldn’t Afford
+
+TV Features, Bloodline, Kyle Chandler, Ben Mendelsohn, Netflix
+
+Sun, 15 Mar 2026 19:30:12 GMT
+
+https://collider.com/netflix-bloodline-prestige-crime-thriller-budget-problems/
+
+Bloodline followed the Netflix model of boasting a great hook and an even better cast, yet it maintained its momentum for only a single season.
+---------
+
+# 2026 Oscars Winners List (Updated Live)
+
+FYC, Academy Awards, One Battle After Another, Sinners, Conan O'Brien
+
+Sun, 15 Mar 2026 19:30:12 GMT
+
+https://collider.com/oscars-2026-winners-list/
+
+Stay tuned to Collider for live updates and a complete list of winners from the 98th Academy Awards hosted by Conan O'Brien.
+---------
+
+# Ahead of the Sequel, Anya Taylor-Joy’s $1B Smash Hit Levels Up on Streaming
+
+Movie News, The Super Mario Bros. Movie, Anya Taylor-Joy, Peacock, Fantasy
+
+Sun, 15 Mar 2026 19:20:12 GMT
+
+https://collider.com/anya-taylor-joy-video-game-blockbuster-super-mario-bros-movie-streaming-success-march-2026/
+
+The Super Mario Bros. Movie returns to the streaming charts once more during Mario Day, as anticipation for the sequel continues.
+---------
+
+# 10 Most Undeniable Best Actor Oscar Wins, Ranked
+
+Movie, The Revenant, On The Waterfront, Raging Bull, There Will Be Blood
+
+Sun, 15 Mar 2026 19:19:12 GMT
+
+https://collider.com/best-actor-oscar-wins-undeniable-ranked/
+
+Some of the most undeniable Best Actor Oscar wins of all time include Leonardo DiCaprio in The Revenant and Marlon Brando in On the Waterfront.
+---------
+
+# Breaking Bad Originally Rejected As "The Single Worst Idea I’ve Ever Heard"
+
+TV News, Breaking Bad, Vince Gilligan, Pluribus
+
+Sun, 15 Mar 2026 19:33:49 GMT
+
+https://movieweb.com/breaking-bad-originally-rejected-single-worst-idea-ever/
+
+And that was one of the nicer responses.
+---------
+
 # Homer Simpson's Top 10 Unforgettable Jobs on The Simpsons
 
 Network TV, The Simpsons
