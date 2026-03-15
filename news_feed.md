@@ -1,3 +1,267 @@
+# Oscars 2026 Live-Blog: Follow Along With ScreenRant
+
+Movies, Oscars
+
+Sun, 15 Mar 2026 22:55:43 GMT
+
+https://screenrant.com/oscars-2026-live-blog-screenrant/
+
+Join Deputy News Editor Graeme Guttmann, Senior Editor of Reviews & Prestige Content Alex Harrison, and Senior News Editor Jordan Williams.
+---------
+
+# Diego Luna’s Overlooked Thriller Remake Is Perfect For Fans Of Andor
+
+Movies, Kiss of the Spider Woman, Andor, Star Wars
+
+Sun, 15 Mar 2026 22:35:19 GMT
+
+https://screenrant.com/andor-diego-luna-kiss-of-the-spider-woman-remake/
+
+Andor has ended, but an overlooked thriller remake starring Diego Luna is the perfect watch for fans of the acclaimed Disney+ Star Wars series.
+---------
+
+# Disney+'s VisionQuest Sci-Fi Show Rewrites The Rules Of The MCU
+
+Streaming TV, Vision Quest, Marvel Cinematic Universe
+
+Sun, 15 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/vision-quest-series-rewrites-mcu-rules/
+
+This upcoming MCU series set to premiere in 2026 has a different approach to storytelling that promises to be unlike anything the franchise has seen.
+---------
+
+# GTA 6 Fans Debating New PS6, Xbox Helix Leaks
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Sun, 15 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/gta-6-playstation-6-xbox-helix-fan-reaction/
+
+Grand Theft Auto 6 has spent nearly a whole console generation in the oven, and now may release just about a year before the PS6 and Xbox Helix.
+---------
+
+# 10 Comic Book Characters Who Resemble Batman, Ranked
+
+DC Comics, Batman
+
+Sun, 15 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/best-batman-copycat-comics/
+
+DC's Batman archetype has been mirrored by dozens of characters throughout the decades, and at least ten of them put their own creative spin on it.
+---------
+
+# Pluribus’ Biggest Carol Criticism Candidly Addressed By Rhea Seehorn Ahead Of Season 2
+
+TV, Pluribus, Pluribus - Season 1, Rhea Seehorn
+
+Sun, 15 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/pluribus-carol-unlikable-criticism-rhea-seehorn-response/
+
+Rhea Seehorn's Pluribus character, Carol Sturka, has been frequently criticized for being unlikable, which the actor now directly addresses.
+---------
+
+# Oscars 2026 Winners
+
+Movies, Oscars
+
+Sun, 15 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/oscars-winners-2026/
+
+The 98th Academy Awards ceremony has finally arrived to close out awards season, here are the winners and nominees of the night.
+---------
+
+# 10 TV Side Characters Who Had Serious Main Character Energy
+
+Classic TV
+
+Sun, 15 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/tv-show-main-character-energy-supporting/
+
+From crime dramas to mockumentary comedies, every series has its fan-favorite characters. However, not every one of them is the lead in the show.
+---------
+
+# Dead by Daylight Returns with a 4-Part Spinoff 10 Years Later
+
+Comics, Dead by Daylight
+
+Sun, 15 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/dead-by-daylight-return-new-spinoff/
+
+Dead by Daylight is one of the most successful live-service horror games ever made. Now, the horror franchise returns with a new 4-part spinoff.
+---------
+
+# Scrubs Misses Hulu U.S. Top 10 Halfway Through Season 1
+
+TV, Scrubs
+
+Sun, 15 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/scrubs-medical-comedy-hulu-failure-march-2026/
+
+Despite its strong premiere on ABC, Scrubs isn't a huge streaming sensation.
+---------
+
+# Supernatural's Most-Watched Episode Is the Most Problematic 42 Minutes of Winchester Lore
+
+TV, Supernatural, Horror, The CW
+
+Sun, 15 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/supernatural-route-666-problematic-episode/
+
+Sam & Dean Winchester's most-watched Supernatural episode is still controversial among fans.
+---------
+
+# M3GAN 3.0 Gets Promising Update After Underrated $39M Sequel Flopped in Theaters
+
+CBR Exclusives, M3GAN, M3GAN 2.0
+
+Sun, 15 Mar 2026 22:20:23 GMT
+
+https://www.cbr.com/m3gan-future-addressed-allison-williams/
+
+Ahead of the upcoming spinoff, the original series received an encouraging debut.
+---------
+
+# 10 Magical Fantasy Anime With Action-Packed Battles
+
+Anime, Jujutsu Kaisen, Fullmetal Alchemist: Brotherhood
+
+Sun, 15 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/fantasy-anime-with-magic-action-packed-battles/
+
+These top-tier fantasy anime are jam-packed with stirring battles fans will never get bored with.
+---------
+
+# Oscars 2026: Complete Winners List (Updating Live)
+
+Movies, Oscars
+
+Sun, 15 Mar 2026 22:01:23 GMT
+
+https://www.cbr.com/oscars-2026-complete-winners-list/
+
+The Academy Awards ceremony is underway and we are updating the list live as winners are announced.
+---------
+
+# David Harbour's Dark Comedy DTF St. Louis Drops in HBO Max Global Rankings
+
+TV, HBO Max, DTF St. Louis, Stranger Things
+
+Sun, 15 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/dtf-st-louis-comedy-crime-hbo-max-charts-march-2026/
+
+David Harbour's new HBO Max series DTF St. Louis is losing steam in global streaming charts, but still holds the No. 2 spot in the US.
+---------
+
+# Dragon Ball Reveals Rare Art Featuring Goku and an Apology From Akira Toriyama
+
+Anime, Dragon Ball
+
+Sun, 15 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/dragon-ball-rare-akira-toriyama-goku-art-apology/
+
+A beloved Dragon Ball feature just gave fans a glimpse at a classic piece of art by (and a heartfelt apology from) creator Akira Toriyama.
+---------
+
+# 5 Single-Season Sci-Fi TV Masterpieces
+
+TV, Firefly, Watchmen, Devs, Sci-Fi
+
+Sun, 15 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/single-season-sci-fi-tv-masterpieces-list/
+
+Quantity doesn't always equal quality, and that is certainly the case for these incredible single-season sci-fi shows.
+---------
+
+# The MCU’s 6 Most Catastrophic Character Decisions
+
+Movies, Marvel Cinematic Universe
+
+Sun, 15 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/mcus-worst-character-decisions-list/
+
+Characters like Loki and Tony Stark are beloved, but they are also the source of some of the franchise's worst choices.
+---------
+
+# Crunchyroll’s 13-Episode Anime Horror Hidden Gem Is Still the Scariest of All Time
+
+TV Features, Paranoia Agent, Crunchyroll, Anime, Horror
+
+Sun, 15 Mar 2026 22:37:12 GMT
+
+https://collider.com/crunchyroll-paranoia-agent-13-episode-anime-horror/
+
+Even after 20 years, Paranoia Agent reigns supreme in the world of horrific anime by tapping into a deep feeling of dread and psychological fears.
+---------
+
+# 10 Most Exciting K-Dramas To Binge-Watch, Ranked
+
+TV, South Korea, Kingdom, The Silent Sea, The Glory
+
+Sun, 15 Mar 2026 22:14:12 GMT
+
+https://collider.com/exciting-k-dramas-binge-watch-ranked/
+
+Discover the most thrilling and captivating Korean dramas to binge-watch, including shows like Kingdom, The Glory, and My Name.
+---------
+
+# 10 Most Perfect Movies of the Last 5 Years, Ranked
+
+Movie, Spider-Man: Across the Spider-Verse, Killers of the Flower Moon, The Holdovers, The Batman
+
+Sun, 15 Mar 2026 21:56:12 GMT
+
+https://collider.com/most-perfect-movies-last-5-years-ranked/
+
+From Oppenheimer to Spider-Man: Across the Spider-Verse, these flawless films from the last five years delivered unforgettable storytelling and craft.
+---------
+
+# 8 Perfect Brain-Soothing Comfort Shows to Get You Through a Breakup
+
+TV Lists, Grey's Anatomy, Insecure, The Golden Girls, MasterChef Junior, The Great British Bake Off, Game Of Thrones, Crazy Ex-Girlfriend
+
+Sun, 15 Mar 2026 22:30:17 GMT
+
+https://movieweb.com/comfort-shows-get-through-breakup/
+
+For a variety of reasons, these shows will help take your mind off things, and each pick pairs well with your favorite pint of ice cream.
+---------
+
+# 98th Academy Awards 2026 Results: LIVE - Every Winner and Nominee
+
+Movie News, Oscars, Sinners, One Battle After Another, F1, Marty Supreme
+
+Sun, 15 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/academy-award-oscar-winners-2026/
+
+A complete list of winners from the 98th Academy Awards, celebrating the best movies of 2025 on Hollywood's biggest night.
+---------
+
+# The 10 Greatest 2010s TV Shows Nobody Remembers
+
+Movie Lists
+
+Sun, 15 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/greatest-2010s-shows-nobody-remembers/
+
+These modern shows are fantastic, and yet they were overshadowed by bigger names in the Golden Age of TV.
+---------
+
 # The Sympathizer: HBO's Vietnam War Spy Thriller Starring Robert Downey Jr.
 
 TV, The Sympathizer
