@@ -1,3 +1,300 @@
+# Diablo 4 Free To Download And Play For 72 Hours
+
+Gaming, Diablo, Diablo 4, Diablo IV: Vessel of Hatred
+
+Sun, 15 Mar 2026 05:00:18 GMT
+
+https://screenrant.com/diablo-4-free-to-download-and-play-for-72-hours/
+
+Diablo IV is available to enjoy at no cost as part of Xbox Free Play Days For All, with the event running until March 18 for the game.
+---------
+
+# The Last Of Us Officially Returns This Summer With A Horrific New Release
+
+Gaming, The Last of Us, The Last of Us: Part 1, PC
+
+Sun, 15 Mar 2026 04:45:17 GMT
+
+https://screenrant.com/last-of-us-horrific-bloater-summer-2026/
+
+The Last of Us is officially returning this summer with a brand-new official release that's absolutely horrifying, and you may want to brace yourself.
+---------
+
+# Cyberpunk 2077 Legends: Into The Night Officially Coming This Summer
+
+Gaming, Cyberpunk 2077
+
+Sun, 15 Mar 2026 04:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-legends-into-the-night-summer-2026/
+
+Cyberpunk Legends: Into the Night is a co-op driven card game that's now on track to start shipping by the end of July.
+---------
+
+# Steam Gamers Have 24 Hours To Claim And Keep A Classic Free Game
+
+Gaming, Steam, Indie, PC
+
+Sun, 15 Mar 2026 04:04:18 GMT
+
+https://screenrant.com/steam-free-game-24-hours-march-2026/
+
+It's a rare sight when Steam offers a paid game entirely free to keep, with this underrated gem being an excellent addition to any library.
+---------
+
+# 10 Fantasy Books To Read While We Wait For ACOTAR 6 and 7
+
+Fantasy, A Court of Thorns and Roses, Sarah J. Maas
+
+Sun, 15 Mar 2026 03:59:22 GMT
+
+https://screenrant.com/best-books-read-while-waiting-court-throne-roses-book-6-7/
+
+Discover 10 fantasy novels to read while waiting for the next ACOTAR. From epic worlds to steamy romances, these must-reads will captivate fans
+---------
+
+# 4 Years Later, Crunchyroll's Best Supernatural Action Series Is Still Near-Perfect
+
+Anime, Mob Psycho 100
+
+Sun, 15 Mar 2026 03:45:19 GMT
+
+https://screenrant.com/crunchyroll-best-sci-fi-tv-show-mob-psycho-100-start-to-finish/
+
+This Studio Bones anime raised the bar for equal parts comedy and healing, emotional catharsis.
+---------
+
+# Attack On Titan Pulled Of The Greatest Villain Twist In Sci-Fi TV History
+
+Classic TV, Attack On Titan, Attack on Titan
+
+Sun, 15 Mar 2026 03:45:19 GMT
+
+https://screenrant.com/attack-on-titan-dystopian-series-best-villain-twist/
+
+An incredible 4-season dystopian science fiction series pulled off one of the most incredible and unforgettable villain twists in the history of TV.
+---------
+
+# Marvel Rivals Releases Daredevil MCU Skin Inspired by Born Again Season 2
+
+Gaming, Daredevil: Born Again, Marvel Rivals, Marvel Cinematic Universe
+
+Sun, 15 Mar 2026 03:40:56 GMT
+
+https://screenrant.com/marvel-rivals-new-mcu-skin-best-yet-daredevil-born-again/
+
+Although Marvel Rivals already boasts some truly great skins inspired by the MCU, the latest addition to is arguably one of its best yet.
+---------
+
+# A24's New R-Rated Paranormal Horror Has Critics & Audience Very Divided On Rotten Tomatoes
+
+Movies, undertone, A24, Horror
+
+Sun, 15 Mar 2026 03:17:19 GMT
+
+https://screenrant.com/undertone-movie-a24-rotten-tomatoes-audience-critics-score-divide/
+
+A24's new R-rated horror is now playing in theaters, but the movie's paranormal concept is dividing critics and audiences on Rotten Tomatoes.
+---------
+
+# The Greatest Crime Movies From Every Decade Of The Last 100 Years
+
+Classic Movies, Ranking, Heat
+
+Sun, 15 Mar 2026 03:13:43 GMT
+
+https://screenrant.com/best-crime-movies-every-decade-last-100-years/
+
+There have been some amazing crime movies released since the start of movies, and each decade has a masterpiece that stands out from the others.
+---------
+
+# BookWalker Global CEO Samuel Pinansky Discusses the Future of Digital Manga
+
+CBR Exclusives, Manga, Interviews
+
+Sun, 15 Mar 2026 03:59:11 GMT
+
+https://www.cbr.com/bookwalker-ceo-samuel-pinansky-interview/
+
+BookWalker Global CEO Sam Pinansky sits down for an exclusive interview with CBR to discuss the company's plans for the future of manga
+---------
+
+# All of Sukuna's Forms, Ranked by Strength
+
+Anime, Jujutsu Kaisen
+
+Sun, 15 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/jjk-sukuna-strongest-forms-ranked/
+
+The King of Curses takes on various forms in JJK, each of which is dangerous enough to pose a threat to the series' strongest characters.
+---------
+
+# Annoying Game of Thrones Characters Fans Still Can't Stand 7 Years Later
+
+TV, Game Of Thrones, Fantasy, hbo
+
+Sun, 15 Mar 2026 03:40:12 GMT
+
+https://www.cbr.com/game-of-thrones-annoying-characters-fans-hate-list/
+
+As great as Game of Thrones was during its eight seasons, many of its characters still annoy fans years later.
+---------
+
+# Netflix’s Best-Kept Vampire Action Anime Is Leaving on April 6
+
+Anime, Netflix
+
+Sun, 15 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/netflix-sirius-the-jaeger-streaming-end-date/
+
+One of the most underrated vampire anime of the past decade is about to lose its streaming home on a major platform in just a matter of weeks.
+---------
+
+# Zelda: Ocarina of Time Finally Gets the Next-Gen Remake It Deserves
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sun, 15 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-next-gen-remake-40th-anniversary/
+
+The Legend of Zelda: Ocarina of Time just got the remake fans had hoped to see in celebration of the series' 40th anniversary — no thanks to Nintendo.
+---------
+
+# JJ Abrams' Fringe Is the Smartest Paranormal Epic Since The X-Files
+
+TV, Fringe, J.J. Abrams, Sci-Fi
+
+Sun, 15 Mar 2026 03:10:13 GMT
+
+https://www.cbr.com/jj-abrams-fringe-smartest-paranormal-sci-fi-epic-since-x-files/
+
+A five-season paranormal procedural built on the foundation The X-Files built and perfectly bridged the gap between network and Prestige TV.
+---------
+
+# 10 Western RPGs That Are Perfect From Start to Finish
+
+Games, Role Playing Game
+
+Sun, 15 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/most-perfect-western-rpgs-ranked/
+
+North America and Europe have made titles that can rival even the greatest JRPGs.
+---------
+
+# Star Trek: Starfleet Academy Won't Bring Back 2 Stars for Season 2
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Sun, 15 Mar 2026 02:46:45 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-season-2-missing-characters/
+
+It's been confirmed that two stars from the first season will not be back in Season 2 of the polarizing Star Trek series.
+---------
+
+# Breakout Light Novel Author Rocket Shokai Already Has 2 New Fantasy Anime Streaming on Crunchyroll
+
+Anime, Sentenced to Be a Hero, Crunchyroll
+
+Sun, 15 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/crunchyroll-best-new-fantasy-anime-rocket-shokai/
+
+Rocket Shokai is a fast rising name in the manga and anime world after his debut two stories are slam dunks and quickly becoming fan favorites.
+---------
+
+# 6 Forgotten Western Shows That Still Rule
+
+TV, Western, Gunsmoke, Lonesome Dove
+
+Sun, 15 Mar 2026 02:20:12 GMT
+
+https://www.cbr.com/forgotten-western-shows-still-hold-up-list/
+
+Adventure in the Wild West has always been one of America's favorite TV pastimes, and some forgotten classics still represent the best there is.
+---------
+
+# How a $10,000 Deal Gave ‘The Twilight Zone’ an Oscar-Winning Episode
+
+TV Features, The Twilight Zone, CBS, Academy Awards
+
+Sun, 15 Mar 2026 03:15:12 GMT
+
+https://collider.com/twilight-zone-oscar-winning-episode-explained/
+
+A haunting Oscar-winning short film became one of ‘The Twilight Zone’s’ most unusual episodes after CBS bought it for Season 5.
+---------
+
+# 9 Horror Shows That Are 10/10 but Nobody Remembers Today
+
+TV, Horror, The Outer Limits, Channel Zero, Friday the 13th: The Series
+
+Sun, 15 Mar 2026 03:00:13 GMT
+
+https://collider.com/horror-tv-shows-nobody-remembers/
+
+The Outer Limits, Friday the 13th: The Series, and Channel Zero are some of the perfect horror TV series that are completely forgotten by audiences.
+---------
+
+# Joss Whedon’s 2-Part Cyberpunk Sci-Fi Cult Classic Marked the End of an Era
+
+TV Features, Dollhouse, Joss Whedon, Eliza Dushku, Fran Kranz
+
+Sun, 15 Mar 2026 03:00:13 GMT
+
+https://collider.com/dollhouse-joss-whedon-cyberpunk-sci-fi-series/
+
+Before diving into superhero content, Joss Whedon's last pure sci-fi series was Dollhouse, a show that explored identity and morality.
+---------
+
+# 10 TV Shows That Get Better After Season 1
+
+TV, Breaking Bad, Industry, Sex and the City, The Office
+
+Sun, 15 Mar 2026 03:00:13 GMT
+
+https://collider.com/shows-that-get-better-after-season-1/
+
+Explore TV series that find their footing and grow in quality after the first season, including shows like Breaking Bad, Industry, and Seinfeld.
+---------
+
+# MonsterVerse Fans Have Until April To Watch the Sci-Fi Franchise's Best Spin-Off on Prime Video
+
+TV News, MonsterVerse, Monarch: Legacy of Monsters, Sci-Fi, Apple TV
+
+Sun, 15 Mar 2026 00:20:12 GMT
+
+https://collider.com/monsterverse-sci-fi-spin-off-monarch-legacy-of-monsters-prime-sample-leaving-april-2026/
+
+Monarch: Legacy of Monsters is currently available through Prime’s Apple TV+ sample offering, but that window is ending in April.
+---------
+
+# 5 Years Later, Taylor Sheridan’s Forgotten Spy Thriller Makes a Free Streaming Comeback
+
+Movie News, Michael B. Jordan, Tom Clancy's Without Remorse, Tom Clancy, Taylor Sheridan
+
+Sun, 15 Mar 2026 00:00:12 GMT
+
+https://collider.com/taylor-sheridan-michael-b-jordan-spy-movie-without-remorse-streaming-tubi-march-2026/
+
+Tom Clancy’s Without Remorse is now streaming on Tubi, where the Michael B. Jordan-led spy thriller is gaining fresh attention five years later.
+---------
+
+# 'You' Is Still the Most Obsession-Worthy Thriller on Netflix
+
+Features, You, Netflix
+
+Sun, 15 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/you-netflix-thriller-holds-up/
+
+'You,' which streamed for five seasons and moved to Netflix from Lifetime after Season 1, stars Penn Badgley as Joe Goldberg.
+---------
+
 # X-Men's Jean Grey Just Debuted Her Scariest Redesign of All Time
 
 Comics, X-Men, jean grey
