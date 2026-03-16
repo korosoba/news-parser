@@ -1,3 +1,278 @@
+# Disney's 6-Part Psychological Thriller Is One Of Its Best
+
+Classic TV, Moon Knight, Marvel, Disney+
+
+Mon, 16 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/moon-knight-disney-psychological-thriller-best/
+
+Moon Knight, a psychological thriller within the Marvel Cinematic Universe, showcases Oscar Isaac's complex portrayal of a superhero with Dissociative Identity Disorder, making it one of Disney+'s best original series.
+---------
+
+# Steam's New Free Cyberpunk Game Called "Insanely Good" By Players
+
+Gaming, Steam, PC, Indie Games
+
+Mon, 16 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/cyberpunk-free-game-steam-rpg/
+
+There's always been an audience for Cyberpunk, but now that Cyberpunk 2077 has pulled more people in, there's a long road ahead for the genre.
+---------
+
+# 10 Overlooked Manhwa Netflix Needs to Turn Into K-Dramas Next
+
+Anime, Eleceed (2019)
+
+Mon, 16 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/overlooked-manhwa-need-netflix-adaptations/
+
+Discover 10 manhwa that desperately need a live-action Netflix adaptation, from rom-coms to action thrillers.
+---------
+
+# Jessie Buckley's New Horror Movie Would Be Even Better If It Were A Different Genre
+
+Movies, Horror, Jessie Buckley, The Bride!, Explainer
+
+Mon, 16 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/the-bride-movie-horror-different-genre-musical/
+
+While it has been winning over fans of the horror genre for its loud, vibrant, violent, and stylish storytelling, Jessie Buckley's movie has one flaw.
+---------
+
+# 5 Best New Shows Arriving On Streaming This Week: March 16–20, 2026
+
+Streaming TV, Deadloch, Jury Duty, Tyler Perry’s Beauty in Black, Imperfect Women
+
+Mon, 16 Mar 2026 22:54:18 GMT
+
+https://screenrant.com/best-new-shows-streaming-this-week/
+
+Discover the top 5 new shows premiering on Netflix, HBO Max, Apple TV, and Prime Video this week, March 16-20, 2026, including Jury Duty & Deadloch.
+---------
+
+# It Took 30 Years, But Neon Genesis Evangelion Finally Has the True Ending it Always Deserved
+
+Anime, Neon Genesis Evangelion
+
+Mon, 16 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/neon-genesis-evangelion-true-ending-asuka/
+
+Evangelion's 30th anniversary short film gives Asuka her own satisfying ending, a light-hearted send-off to one of anime most beloved characters.
+---------
+
+# Jared Padalecki's New Netflix Movie Is A Twist On Supernatural's Best Episode
+
+Classic TV, Supernatural
+
+Mon, 16 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/supernatural-best-episode-jared-padalecki-guarding-stars/
+
+Jared Padalecki will be starring in a romantic movie on Netflix alongside Leighton Meester, and it's a twist on one of Supernatural’s best episodes.
+---------
+
+# Why Horror's Multiple Victories At The 98th Oscars Are So Important
+
+Movies, Weapons, Sinners, Frankenstein, Oscars, Horror
+
+Mon, 16 Mar 2026 22:20:19 GMT
+
+https://screenrant.com/oscars-horror-victories-genre-op-ed/
+
+Even beyond the success of Sinners, horror had a historically good night at the 98th Academy Awards, which speaks to the genre's evolution.
+---------
+
+# Fans Just Discovered a Big Jujutsu Kaisen Season 3 Easter Egg, and It's Seriously Impressive
+
+Anime, Jujutsu Kaisen
+
+Mon, 16 Mar 2026 22:15:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-3-culling-game-real-location/
+
+Jujutsu Kaisen's third season has been incredible, and a fan on Instagram just found an Easter egg that makes the season even better.
+---------
+
+# Sons Of Anarchy: The Best Crime Drama Of The 2010s That Hasn't Been Replaced
+
+Classic TV, Sons of Anarchy
+
+Mon, 16 Mar 2026 22:15:19 GMT
+
+https://screenrant.com/sons-of-anarchy-fx-crime-thriller-series-never-replaced/
+
+One of FX's best crime dramas and TV shows in general still hasn't been replaced, even though it has been over a decade since it ended.
+---------
+
+# Prime Video's The Bluff Rises to No. 1 on Streaming Charts
+
+Movies, The Bluff
+
+Mon, 16 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/the-bluff-streaming-prime-video-march-2026/
+
+Melania gets defeated by Priyanka Chopra and Karl Urban's pirate epic on the Prime Video charts.
+---------
+
+# Time-Travel Shows That Can Be Called Peak Sci-Fi
+
+TV, 12 Monkeys, Science Fiction, Travelers, Journeyman, Continuum, Timeless
+
+Mon, 16 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/peak-sci-fi-time-travel-shows-list/
+
+In the era of Peak TV, sci-fi TV series are smarter than ever, and the excellence of these time-travel shows proves just how good genre fans have it.
+---------
+
+# Oscar Winning Westerns For Fans Of Wyatt Earp And Tombstone
+
+Movies, Western, Shane, Unforgiven
+
+Mon, 16 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/oscar-winning-westerns-must-watch-list/
+
+The Western has always been one of the most respected genres by the Academy, leading to some of the greatest Oscar-winning pictures in history.
+---------
+
+# 9 Anime Fantasy Worlds With the Strongest Magic
+
+Anime, Frieren: Beyond Journey's End, Black Clover, Fate/strange Fake
+
+Mon, 16 Mar 2026 22:45:12 GMT
+
+https://www.cbr.com/fantasy-anime-strongest-power-systems/
+
+From Frieren: Beyond Journey's End to Fate/strange Fake, fantasy anime is full of exciting power systems full of powerful magic.
+---------
+
+# Disney's Zootopia 2 Finally Solves the First Movie's Biggest Mystery
+
+Movies, Zootopia 2
+
+Mon, 16 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/disney-zootopia-2-solve-original-mystery/
+
+Zootopia set up a mystery that the sequel finally solved, but there is so much more to dive into about the series' worldbuilding.
+---------
+
+# Netflix Erased Longmire's Near-Perfect Legacy
+
+TV, Longmire, Western, Netflix
+
+Mon, 16 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-erase-longmire-neo-western-streaming-legacy/
+
+Netflix quietly erased the legacy of a six-part crime series that helped pave the way for Yellowstone and the neo-Western boom of the last decade.
+---------
+
+# Jared Padalecki Just Wrapped His First Movie in More Than 10 Years
+
+Movie News, Jared Padalecki, Supernatural, Leighton Meester, Netflix
+
+Mon, 16 Mar 2026 22:54:59 GMT
+
+https://collider.com/guarding-stars-wraps-filming-jared-padalecki-shares-photo/
+
+Supernatural’s Jared Padalecki has officially finished filming his upcoming Netflix rom-com, Guarding Stars. See his social media post here.
+---------
+
+# 3 Best Movies To Watch on Prime Video This Week (Mar 16-20)
+
+Movie, Prime Video, Roofman, Resident Evil, The Silence of the Lambs
+
+Mon, 16 Mar 2026 22:34:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-march-16/
+
+Roofman, Resident Evil, and The Silence of the Lambs make up our list of the best movies to watch on Prime Video the week of March 16, 2026.
+---------
+
+# After Multiple Cancellations, One ‘Dexter’ Series Is Still Thriving
+
+TV News, Dexter: Resurrection, Michael C. Hall, Paramount, Dexter
+
+Mon, 16 Mar 2026 22:30:12 GMT
+
+https://collider.com/only-dexter-show-not-canceled-resurrection-streaming-success-march-2026/
+
+The only remaining Dexter show that Paramount hasn't canceled is proving its worth with continued streaming success.
+---------
+
+# 10 Funniest Movies From the Last 40 Years, Ranked
+
+Movie, Comedy, The Room, The Big Lebowski, Army of Darkness
+
+Mon, 16 Mar 2026 22:22:12 GMT
+
+https://collider.com/funniest-movies-past-40-years-ranked/
+
+There have been plenty of great comedies released in the last 40 years, with classics like The Big Lebowski and Hot Fuzz being some of the funniest.
+---------
+
+# These Netflix Thriller Shows Are Totally Unpredictable
+
+TV, Netflix, Thriller, His & Hers, Ozark
+
+Mon, 16 Mar 2026 22:17:12 GMT
+
+https://collider.com/netflix-thriller-shows-totally-unpredictable/
+
+The best Netflix thriller shows are the ones that are unpredictable and keep you guessing, which can be said for series like Ozark and Squid Game.
+---------
+
+# The Coolest Cult Classic of Ryan Gosling’s Career Gets Its Tires Slashed by Acclaimed Neo-Noir at the Box Office
+
+Movie News, Drive, Ryan Gosling, Crime 101, Chris Hemsworth
+
+Mon, 16 Mar 2026 22:15:12 GMT
+
+https://collider.com/drive-coolest-cult-classic-of-ryan-gosling-career-box-office-overtaken-by-chris-hemsworth-crime-101/
+
+Chris Hemsworth's well-received neo-noir heist movie Crime 101 has overtaken the coolest cult classic of Ryan Gosling's career at the box office.
+---------
+
+# Taylor Sheridan's ‘The Madison’ Honors the Actor Who Almost Played John Dutton
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus, Michelle Pfeiffer
+
+Mon, 16 Mar 2026 22:13:31 GMT
+
+https://collider.com/the-madison-robert-redford-tribute-pilot-episode-explained-taylor-sheridan/
+
+The Madison honors the late Robert Redford in its pilot episode, and the tribute goes much deeper than a simple nod to A River Runs Through It.
+---------
+
+# Fox’s 6-Part Alternative to ‘The Chosen’ Officially Releases This Week
+
+TV News, The Chosen, Fox, Hulu, Dallas Jenkins
+
+Mon, 16 Mar 2026 22:00:12 GMT
+
+https://collider.com/fox-alternative-to-the-chosen-the-faithful-women-of-the-bible-release-date-march-22/
+
+Fox's alternative series to The Chosen, titled The Faithful: Women of the Bible, will officially be released this week.
+---------
+
+# Why Hulu's 'Buffy the Vampire Slayer' Revival Was Cancelled
+
+Features, Buffy the Vampire Slayer Sequel Series
+
+Mon, 16 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/buffy-the-vampire-slayer-hulu-revival-cancelled/
+
+Hulu canceled the 'Buffy the Vampire Slayer' revival from director Chloe Zhao and starring Ryan Kiera Armstrong as a new slayer named Nova.
+---------
+
 # 10 One Piece Movies Ranked: From Worst to Best
 
 Anime, One Piece
