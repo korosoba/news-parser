@@ -1,3 +1,399 @@
+# 10 Near Perfect Anime Films Every Adult Fan Needs to Watch At Least Once
+
+Anime
+
+Mon, 16 Mar 2026 03:50:19 GMT
+
+https://screenrant.com/best-anime-films-adults-near-perfect/
+
+Explore a curated list of 10 thought-provoking anime films that resonate with mature themes and are best suited for adult audiences.
+---------
+
+# Jessie Buckley’s Hamnet Oscars Win Sets All-Time Historic Record
+
+Movies, Jessie Buckley, Hamnet, Oscars
+
+Mon, 16 Mar 2026 03:49:57 GMT
+
+https://screenrant.com/hamnet-jessie-buckley-best-actress-oscars-record/
+
+Jessie Buckley who starred in Hamnet as Agnes Shakespeare made history as the first Irish actor to win Best Actress at the 98th Academy Awards.
+---------
+
+# Netflix’s Most Underseen 13-Part Anime With A 100% RT Score Has Surprisingly Returned After 6 Years
+
+Streaming TV, Dorohedoro, Netflix
+
+Mon, 16 Mar 2026 03:46:19 GMT
+
+https://screenrant.com/netflix-dorohedoro-surprising-season-2-return/
+
+An overlooked 13-part anime, with a perfect Rotten Tomatoes score of 100%, is all set to return on Netflix almost after six years since its premiere.
+---------
+
+# Marvel Rivals Just Dropped The Coolest Skin For The Thing (Rooted In The Comics)
+
+Marvel Comics, Marvel Rivals, The Thing
+
+Mon, 16 Mar 2026 03:40:39 GMT
+
+https://screenrant.com/marvel-rivals-new-skin-for-the-thing-comics-fear-itself/
+
+Marvel Rivals continues their hot streak of awesome skins inspired by the original comics, thanks to an all-new costume for the The Thing.
+---------
+
+# The Decade's Best Samurai Anime So Far Is About to Get Better This Summer
+
+Anime, Crunchyroll, The Elusive Samurai
+
+Mon, 16 Mar 2026 03:31:19 GMT
+
+https://screenrant.com/the-elusive-samurai-decade-best-anime/
+
+CloverWorks knocked it out of the park with season 1 of its gorgeous historical epic.
+---------
+
+# 10 Near-Perfect Isekai Anime Masterpieces That Redefined the Genre
+
+Anime, Isekai, Re:Zero -Starting Life in Another World-, Sonny Boy
+
+Mon, 16 Mar 2026 03:25:45 GMT
+
+https://screenrant.com/isekai-anime-masterpieces-redefined-genre/
+
+These 10 isekai anime deserve to be called masterpieces that have redefined the established limits of the genre.
+---------
+
+# James Wan’s Game Adaptation Fills Mad Max’s Void
+
+Streaming TV, Mad Max: Fury Road
+
+Mon, 16 Mar 2026 03:15:19 GMT
+
+https://screenrant.com/mad-max-pacific-drive-james-wan-follow-up/
+
+Mad Max: Fury Road’s sequel will probably never see the light of day after Furiosa, but James Wan’s upcoming game adaptation could be its replacement.
+---------
+
+# Baldur’s Gate 3: Act 2 Checklist (Everything You Don’t Want To Miss)
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Mon, 16 Mar 2026 03:00:20 GMT
+
+https://screenrant.com/baldurs-gate-3-act-2-checklist-quests-companions/
+
+Act 2 of Baldur's Gate 3 sends the party to the Shadow-Cursed Lands: a region shrouded in darkness that's filled with secrets and quests to complete.
+---------
+
+# Better Call Saul Meets Training Day In Netflix’s Exciting New 10-Part Legal Manga Adaptation
+
+Streaming TV, Better Call Saul, Training Day, Netflix
+
+Mon, 16 Mar 2026 03:00:19 GMT
+
+https://screenrant.com/sins-of-cujo-better-caul-saul-training-day-netflix/
+
+Netflix’s upcoming 10-part legal manga adaptations seemingly comes off as the combination of the best elements from Better Call Saul and Training Day.
+---------
+
+# Michael B. Jordan Makes Oscars History With Best Actor Win For Sinners
+
+Movies, Oscars, Michael b jordan, Sinners
+
+Mon, 16 Mar 2026 02:54:37 GMT
+
+https://screenrant.com/michael-b-jordan-oscars-2026-best-actor-win-twins-second-record/
+
+Michael B. Jordan becomes the first actor since Lee Marvin to win an Oscar for portraying multiple characters in the same film, earning the Best Actor award for his role as the SmokeStack Twins in Sinners.
+---------
+
+# The Line it is Drawn Does Their I'ds of March!
+
+Comics, CSBG, I'ds of March, The Line It Is Drawn
+
+Mon, 16 Mar 2026 03:59:37 GMT
+
+https://www.cbr.com/the-line-it-is-drawn-does-their-ids-of-march/
+
+In a brand-new Line it is Drawn, the Line draws their I'ds of March!
+---------
+
+# 10 Strongest Dragon Ball Characters That Goku Never Fought, Ranked
+
+Anime, Dragon Ball
+
+Mon, 16 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/dragon-ball-strongest-characters-never-fought-goku-ranked/
+
+Goku has fought almost every notable combatant in Dragon Ball, but there are still a few powerhouses he has yet to face off against.
+---------
+
+# The 2026 I'ds of March!
+
+Comics, I'ds of March, CSBG, Avengers
+
+Mon, 16 Mar 2026 03:44:45 GMT
+
+https://www.cbr.com/the-2026-ids-of-march/
+
+CSBG shares their "I'ds" of March, things they would change in various comic books.
+---------
+
+# 12 Years Later, This Game of Thrones Scene Is Still the Greatest Moment in the Series
+
+TV, Game Of Thrones, Fantasy, hbo
+
+Mon, 16 Mar 2026 03:40:12 GMT
+
+https://www.cbr.com/best-got-scene-s4-tyrion-lannister-in-court/
+
+Of all the miraculous scenes and sequences in Game of Thrones, there is one that remains the most satisfying of them all.
+---------
+
+# 10 Nintendo Switch Games That Are Way Better On the Switch 2
+
+Games, Nintendo, Nintendo Switch
+
+Mon, 16 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/nintendo-switch-games-better-on-switch-2/
+
+Some of the best Switch 2 games actually debuted on the Switch.
+---------
+
+# New JoJo's Bizarre Adventure Nanoblock Release Takes Aim at LEGO Fans Worldwide
+
+Anime, Jojo's Bizarre Adventure, merchandise, toys
+
+Mon, 16 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-nanoblock-international-release/
+
+The world of Nanoblocks is expanding with several new block kits based on the Stands and Stand users of the JoJo's Bizarre Adventure franchise.
+---------
+
+# Street Fighter 6’s Alex Blew Us Away After Our Early Hands-On
+
+Games, Street Fighter 6
+
+Mon, 16 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/alex-street-fighter-6-preview-dlc/
+
+We got an early demo of Street Fighter 6's newer character DLC.
+---------
+
+# Hunter x Hunter Already Has 2 Near-Perfect Anime Adaptations, But Still No Ending
+
+Anime, Hunter X Hunter, Hunter x Hunter, Shonen, shonen anime
+
+Mon, 16 Mar 2026 03:15:10 GMT
+
+https://www.cbr.com/best-1990s-dark-shonen-manga-hunter-x-hunter-ending/
+
+Only 1 iconic dark shonen manga has been in the game since the '90s with 2 near-flawless anime adaptations despite the manga still being incomplete.
+---------
+
+# Every Canceled Disney Live-Action Remake (Including Robin Hood)
+
+Movies, Disney, Robin Hood, The Aristocats, Bambi, Snow White and the Seven Dwarfs, Aladdin
+
+Mon, 16 Mar 2026 03:14:17 GMT
+
+https://www.cbr.com/every-canceled-disney-live-action-remake/
+
+Disney has canceled multiple live-action remakes, from Robin Hood and Bambi to The Aristocats and an Aladdin prequel.
+---------
+
+# Despite Major Momentum, Sinners Fails to Break Horror’s 34-Year Oscars Curse
+
+Movies
+
+Mon, 16 Mar 2026 02:55:09 GMT
+
+https://www.cbr.com/one-battle-after-another-sinners-best-picture-oscars-2026/
+
+It was a tight race for Best Picture at the Academy Awards and Sinners came up short.
+---------
+
+# Apple TV's 2-Part Modern Sci-Fi Classic Sets a New Gold Standard for Television
+
+TV Features, Severance, Dichen Lachman, Adam Scott, Apple TV
+
+Mon, 16 Mar 2026 03:22:12 GMT
+
+https://collider.com/severance-apple-tv-sci-fi-classic-new-television-standard/
+
+Apple TV's Severance delves into the tragic consequences of sci-fi technology through the heartwrenching episode "Chikhai Bardo."
+---------
+
+# 6 Game-Changing Sitcoms That Totally Rewrite Genre Rules
+
+TV, Sitcom, The Simpsons, It's Always Sunny in Philadelphia, I Love Lucy
+
+Mon, 16 Mar 2026 03:00:13 GMT
+
+https://collider.com/game-changing-sitcoms-rewrite-genre-rules/
+
+Learn all about how these groundbreaking sitcoms challenged norms, tackled social issues, and redefined the genre, from The Simpsons to I Love Lucy.
+---------
+
+# 'One Battle After Another' Is the 2026 Best Picture Winner at the Academy Awards
+
+Movie News, One Battle After Another, Academy Awards, Leonardo DiCaprio, Paul Thomas Anderson
+
+Mon, 16 Mar 2026 02:39:54 GMT
+
+https://collider.com/one-battle-after-another-wins-best-picture-2026-academy-awards-oscars/
+
+One Battle After Another has officially won Best Picture at the 2026 Academy Awards, capping off a dominant season for Paul Thomas Anderson’s film.
+---------
+
+# 'Hamnet's Jessie Buckley Wins Best Actress in a Leading Role at the 2026 Academy Awards
+
+Movie News, Hamnet, Jessie Buckley, Chloé Zhao, Academy Awards
+
+Mon, 16 Mar 2026 02:31:16 GMT
+
+https://collider.com/hamnet-best-actress-in-a-leading-role-2026-academy-awards-oscars/
+
+Jessie Buckley has officially won Best Actress at the 2026 Academy Awards for Hamnet, capping off a huge awards run for Chloé Zhao’s acclaimed film.
+---------
+
+# Paul Thomas Anderson Wins Best Director for 'One Battle After Another' at 2026 Academy Awards
+
+Movie News, Sinners, Ryan Coogler, Michael B. Jordan, Paul Thomas Anderson
+
+Mon, 16 Mar 2026 02:27:24 GMT
+
+https://collider.com/one-battle-after-another-paul-thomas-anderson-best-director-2026-academy-awards-oscars/
+
+Paul Thomas Anderson has taken home his first Best Director Oscar for One Battle After Another at the 2026 Oscars.
+---------
+
+# Michael B. Jordan Makes History by Winning Best Lead Actor for ‘Sinners'
+
+Movie News, Michael B. Jordan, Sinners, Timothée Chalamet, Ryan Coogler
+
+Mon, 16 Mar 2026 02:21:33 GMT
+
+https://collider.com/sinners-michael-b-jordan-best-actor-in-a-leading-role-2026-academy-awards-oscars/
+
+Michael B. Jordan has officially won the Oscar for Best Actor in a Leading Role for his performance in Ryan Coogler's Sinners.
+---------
+
+# 'Tracker's Latest Episode Makes Us Long for the Good Old Days With Colter and Reenie | Review
+
+TV Features, Tracker, Justin Hartley, CBS, Procedural
+
+Mon, 16 Mar 2026 02:00:24 GMT
+
+https://collider.com/tracker-season-3-episode-12-recap-justin-hartley-fiona-rene/
+
+Colter Shaw delves into a kidnapping case with unexpected twists in the latest episode of Tracker, as he searches for answers and confronts dark secrets.
+---------
+
+# 'Weapons' Star Amy Madigan Praises the Horror Genre, 'Sinners,' and DEI Following Historic Oscar Win [Exclusive]
+
+Movie News, Amy Madigan, Weapons, Academy Awards, Sinners
+
+Mon, 16 Mar 2026 01:44:16 GMT
+
+https://collider.com/weapons-amy-madigan-oscar-academy-awards-win-horror-genre-dei-representation/
+
+Following her historic win at the Academy Awards, Weapons star Amy Madigan spoke with Collider on the horror genre's importance in the industry.
+---------
+
+# 'Marshals' Episode 3 Reveals a New and Dangerous Threat for Kayce | Review
+
+TV Features, Marshals, Luke Grimes, Logan Marshall-Green, Yellowstone
+
+Mon, 16 Mar 2026 01:01:13 GMT
+
+https://collider.com/marshals-episode-3-review-recap-luke-grimes/
+
+In Marshals Episode 3, Kayce finds himself caught between Montana and the Rez, leading to dangerous confrontations and a new threat emerging.
+---------
+
+# ‘Marshals’ Star Logan Marshall-Green Teases a Bumpy Road That Will Put a Wedge Between Cal and Kayce
+
+Exclusives, Marshals, Logan Marshall-Green, Luke Grimes, Yellowstone
+
+Mon, 16 Mar 2026 01:01:13 GMT
+
+https://collider.com/marshals-episode-3-logan-marshall-green-interview/
+
+Logan Marshall-Green discusses Marshals, how Kayce Dutton and Cal's past will come back to haunt them, and finding a brotherhood with Luke Grimes.
+---------
+
+# One Battle After Another' Wins Best Picture Oscar
+
+Movie News, Oscars, Bugonia, F1, Frankenstein, Hamnet, Marty Supreme, One Battle After Another, The Secret Agent, Sentimental Value, Sinners, Train Dreams
+
+Mon, 16 Mar 2026 02:43:33 GMT
+
+https://movieweb.com/2026-oscar-winner-best-picture/
+
+The 2026 Oscar for Best Picture was officially awarded to Paul Thomas Anderson's 'One Battle After Another.'
+---------
+
+# Jessie Buckley Wins 2026 Oscar for Best Actress
+
+Movie News, Oscars, Jessie Buckley, Rose Byrne, Kate Hudson, Renate Reinsve, Emma Stone
+
+Mon, 16 Mar 2026 02:35:58 GMT
+
+https://movieweb.com/2026-oscar-best-actress-jessie-buckley/
+
+In her first time being nominated, Jessie Buckley takes home the 2026 Oscar for Best Actress
+---------
+
+# Michael B. Jordan Wins 2026 Best Actor Award for Performance in 'Sinners'
+
+Movie News, Oscars, Leonardo DiCaprio, Timothée Chalamet, Ethan Hawke, Michael B. Jordan, Wagner Moura
+
+Mon, 16 Mar 2026 02:27:38 GMT
+
+https://movieweb.com/oscar-winner-2025-best-actor-michael-b-jordan/
+
+Playing two roles, Michael B. Jordan earned his first Oscar for Best Actor in Ryan Coogler's 'Sinners.'
+---------
+
+# 'The Singers' and "Two People Exchanging Saliva' Tie for Best Live-Action Short at 2026 Oscars
+
+Movie Lists, Oscars
+
+Mon, 16 Mar 2026 01:17:57 GMT
+
+https://movieweb.com/all-ties-oscars-history/
+
+For only the seventh time in Oscars history, two nominees tied for an award, this one coming in the Best-Live-Action Short Category.
+---------
+
+# Every Oscars 2026 Record, First, & Landmark
+
+Movie Lists, Oscars
+
+Mon, 16 Mar 2026 00:47:03 GMT
+
+https://movieweb.com/oscars-2026-records-firsts-landmarks/
+
+The 2026 Oscars are filled with major landmark moments. Keep up to date with all of it!
+---------
+
+# Henry Cavill’s Long-Awaited Action Thriller in the Grey Deserves More Attention
+
+Features, In the Grey, Guy Ritchie, Henry Cavill
+
+Mon, 16 Mar 2026 00:15:17 GMT
+
+https://movieweb.com/henry-cavill-in-the-grey-2026-anticipated/
+
+Henry Cavill will reunite with Guy Ritchie for the action thriller, 'In the Grey', in May 2026, but the movie hasn't gotten the support it deserves.
+---------
+
 # Every Vegeta Transformation in Dragon Ball History, Ranked From Weakest to Strongest
 
 Anime, Dragon Ball
