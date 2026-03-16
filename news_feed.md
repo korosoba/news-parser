@@ -1,3 +1,443 @@
+# Sydney Sweeney’s All-Time Record-Breaking R-Rated Thriller Sets Streaming Release Date
+
+Movies, The Housemaid
+
+Mon, 16 Mar 2026 19:41:29 GMT
+
+https://screenrant.com/the-housemaid-sydney-sweeney-starz-streaming-release-date/
+
+Sydney Sweeney's R-rated thriller The Housemaid is coming home and will be available to stream on Starz, as an official release date was revealed.
+---------
+
+# Captain America and Doctor Doom Team Up For Marvel's Next Massive Project: Avengers Armageddon
+
+Comics, Captain America, Doctor Doom, Marvel
+
+Mon, 16 Mar 2026 19:37:28 GMT
+
+https://screenrant.com/captain-america-doctor-doom-teamup-avengers-armageddon/
+
+Marvel just dropped major team-up news.
+---------
+
+# A Quiet Place’s Official New Series is Already Here, and It’s Glorious
+
+Comics, A Quiet Place, A Quiet Place Part III, A Quiet Place Part II
+
+Mon, 16 Mar 2026 19:33:11 GMT
+
+https://screenrant.com/a-quiet-place-new-series-storm-warning/
+
+A Quiet Place: Storm Warning is a terrific new entry in the compelling horror franchise, and there's never been a better time to hop onto it.
+---------
+
+# Prime Video's 6-Part Western Series Is Perfect From Start To Finish
+
+TV, The English
+
+Mon, 16 Mar 2026 19:31:22 GMT
+
+https://screenrant.com/the-english-prime-video-western-series-perfect-from-start-to-finish/
+
+This Prime Video show's visually stunning storytelling and complex characters made it a standout in the crowded field of Western TV shows.
+---------
+
+# Sean Penn's Wild Reason For Skipping Oscars 2026 Despite Winning Revealed
+
+Movies, Oscars, Sean Penn
+
+Mon, 16 Mar 2026 19:29:37 GMT
+
+https://screenrant.com/sean-penn-skipped-oscars-win-zelenskyy-ukraine-war/
+
+Sean Penn's wild reason for skipping the 98th Academy Awards, despite winning the Oscar for Best Supporting Actor, has been revealed.
+---------
+
+# Every Time The Oscars Ended In A Tie
+
+New Movies, Oscars
+
+Mon, 16 Mar 2026 19:20:19 GMT
+
+https://screenrant.com/oscars-awards-tie-history/
+
+The Oscars have had multiple instances where a category ends in a tie, rewarding not one, but two movies. Here's each time it has happened.
+---------
+
+# The Last Of Us Season 3 Adds Two To Cast, Including Key Video Game Character With Major Joel Connection
+
+TV, The Last of Us
+
+Mon, 16 Mar 2026 19:07:25 GMT
+
+https://screenrant.com/the-last-of-us-season-3-cast-patrick-wilson-jason-ritter/
+
+As The Last of Us gears up for season 3, two stars have joined its cast while three more are promoted to series regulars after debuting in season 2.
+---------
+
+# Firefly Rebooted As Animated Series: A Controversial Decision Explained
+
+Classic TV, Firefly, Doctor Who
+
+Mon, 16 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/firefly-animated-series-follows-doctor-who-new-format/
+
+The announcement that Fox's cult-classic space Western Firefly is returning to our TV screens hasn't pleased everyone, given the show's new format.
+---------
+
+# Kathryn Newton Is Still Not Used To People Blowing Up After Ready Or Not 2 Directors' Reunion
+
+Movies, Ready or Not 2: Here I Come, Ready or Not, Horror, SXSW, Kathryn Newton
+
+Mon, 16 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/kathryn-newton-ready-not-2-director-reunion-people-blowing-up/
+
+Kathryn Newton talks reuniting with Radio Silence for Ready or Not 2: Here I Come and the insanity of dealing with people blowing up in front of her.
+---------
+
+# 8-Part CBS Sitcom Delivers One Last Surprise Ahead Of Series Finale
+
+TV, The Neighborhood, CBS
+
+Mon, 16 Mar 2026 18:54:30 GMT
+
+https://screenrant.com/the-neighborhood-farewell-special-cbs-finale/
+
+A hit 8-part sitcom from CBS delivers one last surprise, offering a moment of celebration before the series finale.
+---------
+
+# Daredevil: Born Again Podcast Trailer Released by Disney+
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Mon, 16 Mar 2026 19:30:27 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-disney-podcast/
+
+Disney+ surprises fans with the trailer for the Daredevil: Born Again companion podcast, offering insights into the Marvel Studios show.
+---------
+
+# April 9 Is a Good Day for Demon Slayer Fans Waiting on Infinity Castle's Streaming Release
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Mon, 16 Mar 2026 19:21:33 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-final-theater-release-date/
+
+Demon Slayer: Kimetsu no Yaiba fans may not have to wait too much longer before Infinity Castle makes its streaming debut.
+---------
+
+# Alan Ritchson's $29M Underseen WWII Sleeper Hit Resurfaces on Streaming 2 Years Later
+
+Movies, The Ministry of Ungentlemanly Warfare
+
+Mon, 16 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/alan-ritchson-the-ministry-of-ungentlemanly-warfare-starz-success-march-2026/
+
+Ahead of Reacher Season 4, Alan Ritchson's underseen World War II action movie is blowing up on streaming.
+---------
+
+# 5 Sci-Fi TV Adaptations That Are Better Than Their Books
+
+TV, Sci-Fi, The Expanse, The 100
+
+Mon, 16 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/sci-fi-tv-adaptations-better-than-their-books-list/
+
+From dystopian dramas to worldbuilding epics, these sci-fi shows turned their original novels into gripping on-screen retellings.
+---------
+
+# Bob Odenkirk Explains Why He Became an Action Star in Normal | SXSW 2026
+
+Movies, SXSW, Normal
+
+Mon, 16 Mar 2026 18:50:47 GMT
+
+https://www.cbr.com/video/bob-odenkirk-explains-why-he-became-an-action-star-in-normal-sxsw-2026/
+
+At SXSW, Bob Odenkirk joins director Ben Wheatley, writer/producer Derek Kolstad, and producer Marc Provissiero to break down the film’s gritty action, practical stunts, and small-town mystery.The team reveals how Odenkirk trained for intense fight scenes, why audiences connect with older action heroes, and how Normal evolved from the creative momentum behind Nobody.
+---------
+
+# Netflix Renews Hit Comedy Series Free Bert for Season 2
+
+TV, Free Bert, Netflix
+
+Mon, 16 Mar 2026 18:42:50 GMT
+
+https://www.cbr.com/netflix-free-bert-renewed-season-2/
+
+Netflix is officially moving forward with a new season of the hit series Free Bert.
+---------
+
+# 10 Iconic Anime Redemption Arcs That Still Make Zero Sense
+
+Anime
+
+Mon, 16 Mar 2026 18:30:05 GMT
+
+https://www.cbr.com/best-anime-redemption-arcs-undeserved/
+
+From Dragon Ball's greatest villains to the most unlikable characters in anime, redemption arcs just don't make any sense for some characters.
+---------
+
+# 10 Times Batman Was Destined To Be Defeated
+
+Comics, Batman, DC Comics, Wonder Woman
+
+Mon, 16 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/times-batman-was-completely-outmatched/
+
+Since his 1939 creation, Batman has fought some of the most powerful beings in the DCU, leading to some of the most mismatched fights in comics.
+---------
+
+# Sandra Oh Reveals Her Perfect Ending For Omni-Man In Invincible
+
+CBR Exclusives, Invincible
+
+Mon, 16 Mar 2026 17:56:45 GMT
+
+https://www.cbr.com/invincible-sandra-oh-omni-man-redemption-arc/
+
+Will Omni-Man actually get the ending he deserves?
+---------
+
+# Prime Video Ultra's 5 Concurrent Streams Will Beat Out Netflix
+
+Movies, Prime Video, Netflix, Action
+
+Mon, 16 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/prime-video-ultra-netflix-new-gold-standard/
+
+Prime Video's new ad-free tier is giving Netflix a run for its money as it appeals to larger households who want the best out of their subscription.
+---------
+
+# Only 3 Fantasy Movies Are Better Than The Lord of the Rings
+
+Movie, Fantasy, The Seventh Seal, The Lord of the Rings, Pan's Labyrinth
+
+Mon, 16 Mar 2026 19:39:12 GMT
+
+https://collider.com/fantasy-movies-better-than-lord-of-the-rings/
+
+The Lord of the Rings is the apex of cinematic fantasy, but movies like Pan's Labyrinth and The Seventh Seal better execute the trilogy's main themes.
+---------
+
+# 10 Shows That Are Perfect Follow-Ups to Prime Video’s ‘Young Sherlock’
+
+TV, Young Sherlock, Peaky Blinders, Doctor Who, Sherlock
+
+Mon, 16 Mar 2026 19:37:12 GMT
+
+https://collider.com/shows-like-young-sherlock-prime-video/
+
+Fans of the Guy Ritchie's Prime Video series Young Sherlock will also enjoy shows like Peaky Blinders, Lucifer, Elementary, and The Gentleman.
+---------
+
+# 1985 Classic Hit Became a Massive Success Despite Being Voted the Worst Song of the 1980s by Rolling Stone
+
+Music Features, Rock, Starship, Music, Billboard Hot 100
+
+Mon, 16 Mar 2026 19:35:11 GMT
+
+https://collider.com/1985-classic-hit-we-built-this-city-became-massive-success-despite-voted-the-worst-song-of-the-1980s/
+
+Despite being voted one of the worst songs of the 1980s, We Built This City became a massive success, charting No.1 worldwide.
+---------
+
+# 3 Best Movies To Watch on Netflix This Week
+
+Movie, Netflix, Nobody 2, Nuremberg, BlackBerry
+
+Mon, 16 Mar 2026 19:31:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-march-16/
+
+BlackBerry, Nobody 2, and Nuremberg make up our list of the best movies to watch on Netflix the week of March 16, 2026.
+---------
+
+# Patrick Wilson Joins HBO's Hit Sci-Fi Horror Series in Major Season 3 Role
+
+TV News, The Last of Us, Patrick Wilson, HBO Max, Kaitlyn Dever
+
+Mon, 16 Mar 2026 19:28:37 GMT
+
+https://collider.com/the-last-of-us-cast-season-3-patrick-wilson-abbys-dad/
+
+The Last of Us Season 3 has cast The Conjuring star Patrick Wilson to play a pivotal role in the next installment of the HBO adaptation.
+---------
+
+# All 4 Oscar-Winning Performances of 2026, Ranked
+
+Movie, Sinners, One Battle After Another, Hamnet, Weapons
+
+Mon, 16 Mar 2026 19:21:13 GMT
+
+https://collider.com/every-2026-oscar-winning-performance-ranked/
+
+Jessie Buckley, Michael B. Jordan, Amy Madigan, and Sean Penn all won acting Oscars in 2026, but which of them gave the best performance overall?
+---------
+
+# 23 Years Later, This Forgotten Crossover Still Has One of the Most Insane Showdowns
+
+Horror, Freddy vs. Jason, Friday the 13th, Robert Englund
+
+Mon, 16 Mar 2026 18:56:12 GMT
+
+https://collider.com/freddy-vs-jason-horror-crossover-critics-wrong/
+
+Freddy vs. Jason may only have 42% on Rotten Tomatoes, but this horror crossover still proves why it became a cult classic.
+---------
+
+# 'Stranger Things' Star Reveals How 'The First Shadow' Changed His Performance in Season 5 [Exclusive]
+
+Exclusives, Stranger Things: The First Shadow, Stranger Things, Awesome Con, Jamie Campbell Bower
+
+Mon, 16 Mar 2026 18:52:32 GMT
+
+https://collider.com/stranger-things-jamie-campbell-bower-the-first-shadow-henry-creel-broadway/
+
+Jamie Campbell Bower reveals how Stranger Things: The First Shadow deepened his empathy for Henry Creel ahead of playing Vecna in Season 5.
+---------
+
+# 10 Most Perfect Historical Epic Movies, Ranked
+
+Movie, Barry Lyndon, Schindler’s List, Lawrence of Arabia, Braveheart
+
+Mon, 16 Mar 2026 18:31:13 GMT
+
+https://collider.com/most-perfect-historical-epic-movies-ranked/
+
+Historical epics like Lawrence of Arabia and Gladiator prove spectacle, ambition, and power can turn history into unforgettable cinema.
+---------
+
+# Michael B. Jordan’s 2-Part Netflix Sci-Fi Show Is the Perfect Binge After His Oscar Win
+
+TV Features, Michael B. Jordan, Raising Dion, Netflix, Sinners
+
+Mon, 16 Mar 2026 18:27:12 GMT
+
+https://collider.com/michael-b-jordan-netflix-sci-fi-series-raising-dion/
+
+Before he took home Oscar gold, Michael B. Jordan dived headfirst into the sci-fi genre with Netflix’s Raising Dion.
+---------
+
+# 'Buffy' Reboot Director Chloé Zhao Addresses Cancellation, but Teases Future
+
+TV News, Buffy The Vampire Slayer, Chloé Zhao, Buffy the Vampire Slayer Sequel Series
+
+Mon, 16 Mar 2026 19:09:45 GMT
+
+https://movieweb.com/buffy-reboot-canceled-creator-repsonse/
+
+The filmmaker offered a cryptic update on whether the series could live on outside of Hulu.
+---------
+
+# 'One Piece' Season 3: Confirmation, Plot, Cast & Everything We Know
+
+Features, One Piece, Netflix, Everything We Know
+
+Mon, 16 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/one-piece-season-3-everything-we-know/
+
+'One Piece' is a beloved fantasy live-action adaptation on Netflix, and after Season 2 dropped on Mar. 10, 2026, fans want to know about Season 3.
+---------
+
+# 'Double Jeopardy' on Netflix: '90s Thriller Hits Streaming Charts
+
+Movie News, Hot on Streaming, Double Jeopardy
+
+Mon, 16 Mar 2026 18:57:09 GMT
+
+https://movieweb.com/double-jeppardy-thriller-streaming-march-2026/
+
+'Double Jeopardy,' starring Ashley Judd and Tommy Lee Jones, is rising up on the streaming charts on Netflix.
+---------
+
+# Prime Video's 'Invincible' Season 4 Lands Rotten Tomatoes Score
+
+TV News, Invincible, Prime Video, Superhero
+
+Mon, 16 Mar 2026 18:05:07 GMT
+
+https://movieweb.com/invincible-season-4-rotten-tomatoes-score/
+
+'Invincible' Season 4 has debuted with a 100% on Rotten Tomatoes, with early reviews lauding the Prime Video superhero series as the "gold standard."
+---------
+
+# DC Writer Grant Morrison Defends Green Lantern from 'Lanterns' Creator "Stupid" Comments
+
+TV News, Lanterns, DCU
+
+Mon, 16 Mar 2026 18:00:45 GMT
+
+https://movieweb.com/grant-morrison-green-lanterns-creator-comments/
+
+Alan Moore, writer of 'All-Star Superman,' criticized Damon Lindelof, calling his comments "jockish dismissal of superhero conventions."
+---------
+
+# 'Road House' Remake Lands New Free Streaming Home This Month
+
+Movie News, Road House, Coming/Leaving Streaming
+
+Mon, 16 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/road-house-remake-streaming-tubi-march-2026/
+
+Jake Gyllenhaal's divisive remake of Patrick Swayze's 1989 action classic is heading to Tubi for the first time ever.
+---------
+
+# 'Sinners' & 'One Battle After Another': Warner Bros.' History of Politically Charged Filmmaking
+
+Features, Sinners, One Battle After Another, Oscars
+
+Mon, 16 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/warner-bros-political-cinema-sinners-one-battle-after-another/
+
+Warner Bros.' two major 2025 Oscar candidates showcase a legacy of politically-focused filmmaking that's lasted over a century.
+---------
+
+# 'Dutton Ranch' Director Says 'Yellowstone' Spin-Off Feels Like Season 6 of Series
+
+TV News, Yellowstone, The Dutton Ranch, Marshals
+
+Mon, 16 Mar 2026 17:36:05 GMT
+
+https://movieweb.com/dutton-ranch-yellowstone-season-6/
+
+Greg Yaitanes explains the tonal and narrative similarities between 'Dutton Ranch' and the original 'Yellowstone.'
+---------
+
+# 'A Quiet Place Part III' Adds Jack O'Connell, Jason Clarke, & Katy O’Brian
+
+Movie News, A Quiet Place Part III
+
+Mon, 16 Mar 2026 17:20:58 GMT
+
+https://movieweb.com/a-quiet-place-3-new-cast/
+
+Emily Blunt, Noah Jupe, Cillian Murphy, and Millicent Simmonds will return for 'A Quiet Place Part III.'
+---------
+
+# Why Each Original Cast Member Left Grey’s Anatomy
+
+TV Lists, Grey's Anatomy
+
+Mon, 16 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/greys-anatomy-why-each-original-cast-member-left/
+
+Grey's Anatomy first premiered in 2005, and now only two original cast members remain. Why did everyone else choose to leave?
+---------
+
 # KPop Demon Hunters 2’s Official Confirmation Couldn’t Have Come At A Better Time
 
 Movies, KPop Demon Hunters
