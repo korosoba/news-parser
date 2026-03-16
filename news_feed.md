@@ -1,3 +1,432 @@
+# 10 One Piece Movies Ranked: From Worst to Best
+
+Anime, One Piece
+
+Mon, 16 Mar 2026 21:42:30 GMT
+
+https://screenrant.com/best-one-piece-anime-movies-ranked-list/
+
+Discover the best and worst One Piece movies, ranked by story, animation, and character development.
+---------
+
+# Dakota Fanning’s Hit 8-Part Netflix Crime Thriller Series Gets Disappointing Season 2 Return Update
+
+TV, Ripley
+
+Mon, 16 Mar 2026 21:36:30 GMT
+
+https://screenrant.com/ripley-netflix-season-2-andrew-scott-update/
+
+Dakota Fanning's acclaimed 8-episode Netflix crime thriller series based on a classic suspense novel gets a disappointing season 2 return update.
+---------
+
+# Resident Evil Requiem Graphics Update That Changes Grace And Leon's Look Splits Fans
+
+Gaming, Resident Evil 9, Nvidia, Triple-A Games
+
+Mon, 16 Mar 2026 21:34:11 GMT
+
+https://screenrant.com/resident-evil-requiem-nvidia-ai-changing-grace/
+
+Resident Evil Requiem will never be the same after NVIDIA launches its newly announced upscaling technology, which has already unnerved many gamers.
+---------
+
+# Prime Video's New #1 Show Can't Compete With Amazon's Best Crime Thriller Series
+
+TV, Scarpetta, Reacher
+
+Mon, 16 Mar 2026 21:31:19 GMT
+
+https://screenrant.com/scarpetta-critics-audience-reception-worse-than-reacher/
+
+Despite its star-studded cast and big budget, Rotten Tomatoes scores reveal that Prime Video's Reacher replacement can't compare to the original show.
+---------
+
+# HBO's 8-Part Fantasy Series With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+TV, HBO Max
+
+Mon, 16 Mar 2026 21:30:03 GMT
+
+https://screenrant.com/hbo-game-of-thrones-fantasy-series-cast-best/
+
+HBO is known for making quality shows, and this fantasy series managed to accomplish that by getting its cast right, with veterans and rising stars.
+---------
+
+# Timothy Olyphant’s Twisted New Thriller Remake Debuts With Solid Rotten Tomatoes Score
+
+Movies, Over Your Dead Body, Timothy Olyphant
+
+Mon, 16 Mar 2026 21:29:23 GMT
+
+https://screenrant.com/over-your-dead-body-movie-rotten-tomatoes-score/
+
+Timothy Olyphant appears to have another hit on his hands with his new thriller remake that has debuted with a solid score on Rotten Tomatoes.
+---------
+
+# Netflix Just Added One Of 2024’s Biggest Oscar Snubs
+
+Streaming TV, Netflix, BlackBerry
+
+Mon, 16 Mar 2026 21:23:19 GMT
+
+https://screenrant.com/netflix-blackberry-movie-must-watch/
+
+The critically acclaimed 2023 biopic BlackBerry, with a 97% Rotten Tomatoes score, is a must-watch modern classic that is now streaming on Netflix.
+---------
+
+# 25 Years Ago Today, Christopher Nolan Released His Breakout Movie (& It's Still One Of His Best)
+
+Classic Movies, Explainer, Memento
+
+Mon, 16 Mar 2026 21:20:18 GMT
+
+https://screenrant.com/christopher-nolan-memento-25-year-anniversary/
+
+Christopher Nolan released one of his all-time best movies 25 years ago today and it stands the test of time as the movie that defined his career.
+---------
+
+# Timothée Chalamet Reveals Gritty First Official Look At Paul Atreides' Dune 3 Return
+
+Movies, Dune: Part Three, Timothée Chalamet
+
+Mon, 16 Mar 2026 21:12:30 GMT
+
+https://screenrant.com/dune-3-paul-atreides-timothee-chalamet-first-look/
+
+Ahead of Dune: Part Three's release by Warner Bros. in December 2026, Timothée Chalamet has revealed a new look at a hooded Paul Atreides.
+---------
+
+# DC Officially Releases Lobo's New Design Ahead of Jason Momoa’s Supergirl Era
+
+DC Comics, Jason Momoa, Lobo
+
+Mon, 16 Mar 2026 21:09:38 GMT
+
+https://screenrant.com/dc-lobo-official-redesign-jason-momoa-comparison/
+
+2026 is shaping up to be a major year for DC’s Lobo. And now, DC has officially released The Main Man's latest redesign for his next appearance.
+---------
+
+# Sydney Sweeney's $395M R-Rated Thriller The Housemaid Sets Starz Release Date
+
+Movies, The Housemaid
+
+Mon, 16 Mar 2026 21:49:44 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-starz-release-date-march-2026/
+
+After three historical box office bombs, Sydney Sweeney's R-rated thriller set a new box office record.
+---------
+
+# Michael B. Jordan's Without Remorse: Free Streaming Success
+
+Movies, Without Remorse, Thriller, Tubi
+
+Mon, 16 Mar 2026 21:49:23 GMT
+
+https://www.cbr.com/michael-b-jordan-without-remorse-thriller-success-tubi-march-2026/
+
+Despite receiving mostly negative reviews five years ago, Michael B. Jordan's action thriller Without Remorse is now the No.1 movie on Tubi.
+---------
+
+# Must-Watch Westerns With the Greatest Endings, Ranked
+
+Movies, Western
+
+Mon, 16 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/must-watch-westerns-greatest-endings-list/
+
+Since the Golden Age of Hollywood, Westerns have given cinema some of its finest moments, and some stand out for their perfect endings.
+---------
+
+# Alan Ritchson Shares Solid Snake Fan Art After Hideo Kojima’s Comment
+
+Movies, Metal Gear Solid, metal gear solid, War Machine
+
+Mon, 16 Mar 2026 21:00:56 GMT
+
+https://www.cbr.com/alan-ritchson-metal-gear-solid-snake-movie-hideo-kojima-fan-art/
+
+Alan Ritchson shares Solid Snake fan art hinting at interest in playing the role after Hideo Kojima compared his Netflix film War Machine.
+---------
+
+# South Park's Most Offensive Episode Is Still Legendary 25 Years Later
+
+TV, South Park, Comedy
+
+Mon, 16 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/south-park-it-hits-the-fan-most-offensive-episode/
+
+In 2001, South Park took on the fight against television censors and FCC rules in an episode that remains legendary today.
+---------
+
+# Tim Roth’s New MCU Comments Could Tease a New Avengers Team
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 16 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/tim-roth-mcu-abomination-avengers-doomsday-team/
+
+Tim Roth's return as Abomination isn't off the table, but his newest comments could tease a secret Avengers lineup.
+---------
+
+# Forget Kevin Costner, Kayce Dutton Is the New Face of Yellowstone
+
+TV, Marshals, Yellowstone
+
+Mon, 16 Mar 2026 20:42:56 GMT
+
+https://www.cbr.com/yellowstone-replace-john-dutton-with-kayce-in-marshals/
+
+As the lead in Marshals, Kayce Dutton emerges as the most important character in the Yellowstone franchise, surpassing even Kevin Costner's iconic John Dutton.
+---------
+
+# Sorry, Kpop Demon Hunters, but the Real Idol Champions Are Finally Debuting in ZZZ in Exciting March 2026 Update
+
+Anime, Genshin Impact, PlayStation 5
+
+Mon, 16 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/zzz-angels-of-delusion-march-2026-update/
+
+The Angels of Delusion are finally together in the upcoming March 2026 update to Zenless Zone Zero.
+---------
+
+# 10 Times the Most-Nominated Oscars Movie Lost Everything
+
+Movies, Oscars, The Shawshank Redemption, Drama
+
+Mon, 16 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/most-nominated-oscars-movie-lost-list/
+
+The Oscars has a history of setting up record-breaking nomination streaks only for films to lose everything, and 2026 is a reminder of past snubs.
+---------
+
+# 5 Best-Written Naruto Characters Who Prove Just How Deep the Series Is
+
+Anime, Naruto, Naruto: Shippuden, shonen anime, Shonen
+
+Mon, 16 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/best-written-naruto-characters-who-provide-depth/
+
+Even after 23 years, Naruto still has some of the deepest characters in anime.
+---------
+
+# 10 Most Perfect Spy Movies, Ranked
+
+Movie, Munich, The Conversation, The Lives of Others, Notorious
+
+Mon, 16 Mar 2026 21:48:12 GMT
+
+https://collider.com/most-perfect-spy-movies-ranked/
+
+Perfect spy movies like Tinker Tailor Soldier Spy and The Bourne Ultimatum prove espionage is more paranoia and psychology than gadgets.
+---------
+
+# 10 Most Underrated War Movies of the Last 100 Years, Ranked
+
+Movie, War, A Midnight Clear, Lifeboat, Tigerland
+
+Mon, 16 Mar 2026 21:48:12 GMT
+
+https://collider.com/most-underrated-war-movies-last-100-years-ranked/
+
+A Midnight Clear, Lifeboat, and Tigerland are all among the most overlooked war movies of the last 100 years.
+---------
+
+# 10 Most Perfect Classic Rock Albums of the '80s, Ranked
+
+Music Features, Bruce Springsteen, Music, Rock, Guns N' Roses
+
+Mon, 16 Mar 2026 21:46:12 GMT
+
+https://collider.com/most-perfect-classic-rock-albums-80s-ranked/
+
+Combat Rock by The Clash and Appetite for Destruction by Guns n' Roses are among the absolute best, most perfect classic rock albums of the 1980s.
+---------
+
+# 'Buffy the Vampire Slayer' Reboot's Star Breaks Her Silence on the Show's Cancellation
+
+TV News, Buffy The Vampire Slayer, Sarah Michelle Gellar, Hulu, Ryan Kiera Armstrong
+
+Mon, 16 Mar 2026 21:43:08 GMT
+
+https://collider.com/buffy-the-vampire-slayer-reboot-ryan-kiera-armstrong-breaks-her-silence-on-cancellation/
+
+Buffy the Vampire Slayer reboot star Ryan Kiera Armstrong has broken her silence after the show was canned by Hulu.
+---------
+
+# Jessie Buckley’s 6-Part War Series Is a Forgotten Gem Worth Watching
+
+TV Features, Jessie Buckley, The Last Post, Hamnet, BBC
+
+Mon, 16 Mar 2026 21:39:12 GMT
+
+https://collider.com/jessie-buckley-the-last-post-period-drama/
+
+Before becoming an Oscar winner for her role in Hamnet, Jessie Buckley starred in this must-watch period drama in 2017.
+---------
+
+# 10 Must-Watch Monster Movie Masterpieces Like 'The Bride!'
+
+Horror, The Bride!, Jennifer's Body, Ginger Snaps, Jessie Buckley
+
+Mon, 16 Mar 2026 21:39:12 GMT
+
+https://collider.com/best-female-monster-movies-like-the-bride/
+
+Feel the feminine rage with 10 women-led creature features like Maggie Gyllenhaal's The Bride!
+---------
+
+# 10 Greatest Psychological Torture Movies, Ranked
+
+Movie, Oldboy, Se7en, A Clockwork Orange, Misery
+
+Mon, 16 Mar 2026 21:39:12 GMT
+
+https://collider.com/best-psychological-torture-movies-ranked/
+
+Movies like Oldboy and Misery are harrowing experiences that force their characters (and us) to endure intense and scarring psychological torture.
+---------
+
+# Christian Bale's Classic Monster Movie Remake Threatens to Become 2026's Biggest Box Office Misfire So Far
+
+Movie News, The Bride!, Christian Bale, Jessie Buckley, Box Office
+
+Mon, 16 Mar 2026 21:34:34 GMT
+
+https://collider.com/the-bride-box-office-misfire-second-weekend-21-million/
+
+Magie Gyllenhaal's The Bride! has struggled in its second weekend at the box office and is threatening to become 2026's biggest flop yet
+---------
+
+# 'Stranger Things' Star Jamie Campbell Bower Is Heading to the Biggest Fantasy Series in TV History [Exclusive]
+
+Exclusives, The Lord of the Rings: The Rings of Power, Jamie Campbell Bower, Stranger Things, Awesome Con
+
+Mon, 16 Mar 2026 21:30:12 GMT
+
+https://collider.com/jamie-campbell-bower-the-lord-of-the-rings-rings-of-power-season-3-middle-earth-dream-prime-video-fantasy/
+
+Jamie Campbell Bower has opened up about joining The Lord of the Rings: The Rings of Power Season 3.
+---------
+
+# No One's Talking About This Insane 2026 Oscars Snub
+
+Movie Features, Jennifer Lawrence, Die My Love, Lynne Ramsay, Robert Pattinson
+
+Mon, 16 Mar 2026 21:22:12 GMT
+
+https://collider.com/jennifer-lawrence-die-my-love-2026-oscars-snub/
+
+Jennifer Lawrence should have gotten an Oscar nomination for her exceptional performance in Lynne Ramsay's Die My Love.
+---------
+
+# 'Dune 3' Reveals First Look at Timothée Chalamet as Transformed Paul Atreides
+
+Movie News, Dune: Part Three, Timothée Chalamet, Dune
+
+Mon, 16 Mar 2026 21:36:22 GMT
+
+https://movieweb.com/dune-3-first-look-poster/
+
+The actor may not have won his Oscar, but there's a lot to look forward to in 2026.
+---------
+
+# Sonic the Hedgehog 4' To Feature Jim Carrey as Robotnik According to New Rumor
+
+Movie News, Sonic the Hedgehog 4, Jim Carrey
+
+Mon, 16 Mar 2026 21:25:11 GMT
+
+https://movieweb.com/sonic-the-hedgehog-4-jim-carrey/
+
+Jim Carrey is rumored to be on his way back to the 'Sonic the Hedgehog' franchise as Robotnik in 'Sonic the Hedgehog 4.'
+---------
+
+# 'M3GAN' Star Allison Williams Says "Sun Never Sets" on the Franchise
+
+Movie News, M3GAN 2.0, Allison Williams, SOULM8TE
+
+Mon, 16 Mar 2026 21:19:40 GMT
+
+https://movieweb.com/megan-3-plans-allison-williams/
+
+A spin-off may have been pulled from release, but don't count M3GAN out quite yet.
+---------
+
+# 'Into the Badlands' Is the Most Underrated Martial Arts Action Series
+
+Features, Martial Arts, Into the Badlands, Cultural Reassessment
+
+Mon, 16 Mar 2026 21:01:17 GMT
+
+https://movieweb.com/into-the-badlands-underrated-martial-arts-series/
+
+'Into the Badlands', a three-season series starring Daniel Wu, is a must-see for every martial arts fan.
+---------
+
+# 'Minions & Monsters' Adds Jeff Bridges, Christoph Waltz & More Oscar Winners
+
+Movie News, Minions & Monsters, Allison Janney, Jesse Eisenberg, Jeff Bridges, Zoey Deutch, Christoph Waltz, Bobby Moynihan
+
+Mon, 16 Mar 2026 20:21:50 GMT
+
+https://movieweb.com/minions-monsters-cast/
+
+Jeff Bridges, Christoph Waltz, and other major stars officially have roles in Illumination's upcoming 'Minions & Monsters' movie.
+---------
+
+# Netflix's 'One Piece' Has the Best Action Sequence of the Year
+
+Features, One Piece, Netflix
+
+Mon, 16 Mar 2026 20:00:16 GMT
+
+https://movieweb.com/one-piece-netflix-zoro-action-sequence/
+
+'One Piece' Season 2, which began streaming on Netflix on Mar. 10, 2026, stars Iñaki Godoy and features an impressive action scene.
+---------
+
+# 'I Love Boosters' Review: Keke Palmer Electrifies Anti-Capitalist Heist Comedy
+
+4.5 star movies, I Love Boosters, Boots Riley, Keke Palmer
+
+Mon, 16 Mar 2026 19:58:46 GMT
+
+https://movieweb.com/i-love-boosters-review/
+
+Boots Riley recruits Demi Moore and an all-star cast for his surreal and wildly ambitious follow-up to 'Sorry To Bother You.'
+---------
+
+# I Attended The 2026 Oscars — Here's What Really Happens Inside The Dolby Theater
+
+Features, Oscars
+
+Mon, 16 Mar 2026 19:57:53 GMT
+
+https://movieweb.com/oscars-2026-ceremony-report/
+
+Behind the wins and tears, here's what really happened at the 2026 Academy Awards from our reporter on the ground.
+---------
+
+# 'The Housemaid' Streaming Release Date Revealed
+
+Movie News, The Housemaid
+
+Mon, 16 Mar 2026 19:52:01 GMT
+
+https://movieweb.com/the-housemaid-streaming-release-date/
+
+'The Housemaid,' starring Sydney Sweeney and Amanda Seyfried, is finally headed to streaming on Starz this April.
+---------
+
 # Sydney Sweeney’s All-Time Record-Breaking R-Rated Thriller Sets Streaming Release Date
 
 Movies, The Housemaid
