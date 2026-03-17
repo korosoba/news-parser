@@ -1,3 +1,421 @@
+# FBI's Maggie Will "Never Be The Same" After Season 8's Major Tragedy, Explains Missy Peregrym
+
+TV, FBI, Missy Peregrym
+
+Tue, 17 Mar 2026 20:01:25 GMT
+
+https://screenrant.com/fbi-season-8-erin-death-impact-maggie-explained-missy-peregrym/
+
+Miss Peregym has played Maggie for years on FBI, but she’s now dealing with a personal tragedy that will be hard to accept, according to the actress.
+---------
+
+# How Adam Scott & Danielle Deadwyler's New Sci-Fi Thriller Uses Their Past Roles Against Audiences, Teases The Saviors Director
+
+Movies, The Saviors, SXSW, Adam Scott, Danielle Deadwyler
+
+Tue, 17 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/the-saviors-adam-scott-danielle-deadwyler-past-roles-audiences-expectations-sxsw/
+
+Director Kevin Hamedani and his cast of The Saviors talk their new sci-fi thriller and how it flips Adam Scott & Danielle Deadwyler's past roles.
+---------
+
+# DC Officially Confirms Brainiac Queen Villain For Batman's New Appearance
+
+DC Comics, Batman
+
+Tue, 17 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/batman-villain-brainiac-queen-return/
+
+Batman's Justice League team welcomes several new unlikely members, but also faces a familiar villain who returns with desires of revenge.
+---------
+
+# The Madison: A New Western Show Inspired By Classic TV Series Bonanza And The Big Valley
+
+Streaming TV, The Madison, Bonanza, The Big Valley
+
+Tue, 17 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/the-madison-taylor-sheridan-western-bonanza-big-valley-plot/
+
+Taylor Sheridan's latest Western series owes much of its premise to two classic TV shows from the 1960s, including an all-time great of the genre.
+---------
+
+# Paradise Season 2, Episode 6 Ending Explained: Why Jane Is Really Working For Sinatra
+
+Streaming TV, Paradise
+
+Tue, 17 Mar 2026 19:45:20 GMT
+
+https://screenrant.com/paradise-season-2-episode-6-ending-explained/
+
+After showcasing Jane's backstory, Paradise's latest episode just revealed her real reason for working with Sinatra, along with who may stop her.
+---------
+
+# Dune 3's Trailer Officially Changes The Best Modern Sci-Fi Franchise Forever
+
+Movies, Dune: Part Three, Dune
+
+Tue, 17 Mar 2026 19:37:25 GMT
+
+https://screenrant.com/dune-3-trailer-timothee-chalamet-paul-atreides-death-ruler/
+
+The first Dune: Part Three trailer has been released, and fans of the Sci-Fi franchise are in for a rude awakening, as the movie forever changes it.
+---------
+
+# 9 Months Before Avengers: Doomsday, Marvel Rewrites Doctor Doom’s Legacy With A Brand-New Character
+
+Comics, Doctor Doom, Avengers: Doomsday, Marvel
+
+Tue, 17 Mar 2026 19:36:19 GMT
+
+https://screenrant.com/marvel-rewrites-doctor-doom-legacy-with-new-character-alina-von-doom/
+
+Marvel has released a new preview debuting a brand-new character connected to Doctor Doom's legacy, confirming their ties to the ruler of Latveria.
+---------
+
+# Christian Bale's New R-Rated Sci-Fi Movie Expected To Lose Warner Bros. $90M After Barely Squeezing Past A Box Office Milestone
+
+Movies, The Bride!, Box Office
+
+Tue, 17 Mar 2026 19:36:16 GMT
+
+https://screenrant.com/the-bride-warner-bros-box-office-loss-report/
+
+Christian Bale's new R-rated sci-fi movie is expected to lose Warner Bros. $90 million after barely squeezing past a box office milestone.
+---------
+
+# Dark Winds: AMC's Unique Crime Series Blending Genres
+
+Streaming TV, Dark Winds
+
+Tue, 17 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/dark-winds-amc-crime-series-invent-genre/
+
+AMC's Dark Winds recently premiered season 4 in 2026, and it once again reminds us how uniquely excellent and genre-bending the show is.
+---------
+
+# The Lincoln Lawyer Season 5 Plot Details & Character Upgrade Revealed As Production Officially Begins
+
+TV, The Lincoln Lawyer, Netflix
+
+Tue, 17 Mar 2026 19:18:43 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-5-cobie-smulder-series-regular-update-casting/
+
+The Lincoln Lawyer season 5 plot details have been revealed, alongside a big character upgrade, as production gets underway.
+---------
+
+# 10 Underrated Flash Runs That Fans Need To Read
+
+Comics, DC Comics
+
+Tue, 17 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/underrated-flash-runs-nobody-talks-about/
+
+The Flash deserves more appreciation from DC Comics fans.
+---------
+
+# Nirvanna the Band the Show the Movie Is a Love Letter to Back to the Future
+
+Movies, Back to the Future, Nirvanna the Band the Show the Movie, Nirvanna the Band the Show
+
+Tue, 17 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/nirvanna-the-band-the-show-the-movie-back-to-the-future-related/
+
+This year's most acclaimed comedy is also a cinematic love letter to one of Robert Zemeckis' greatest filmmaking feats.
+---------
+
+# Ryan Gosling's Sci-Fi Project Hail Mary Sets All-Time Career Rotten Tomatoes Audience Record
+
+Movies, Project Hail Mary, ryan gosling, Rotten Tomatoes
+
+Tue, 17 Mar 2026 19:55:17 GMT
+
+https://www.cbr.com/ryan-gosling-project-hail-mary-rotten-tomatoes-audience-record/
+
+After critics declared it one of the best films of 2026, the sci-fi epic has just set a new record for Ryan Gosling.
+---------
+
+# Netflix's The Lincoln Lawyer Adds 7 to Cast for Season 5
+
+TV, The Lincoln Lawyer, Netflix
+
+Tue, 17 Mar 2026 19:40:02 GMT
+
+https://www.cbr.com/netflix-the-lincoln-lawyer-season-5-cast-additions/
+
+Several new names have boarded Netflix's beloved legal drama series.
+---------
+
+# Stranger Things Spinoff: Tales From ’85 Screens in Theaters Before Netflix Debut
+
+TV, Stranger Things: Tales from '85, Netflix, Stranger Things
+
+Tue, 17 Mar 2026 19:31:58 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-theaters/
+
+Netflix is bringing Stranger Things: Tales from '85 to select theaters on April 18, five days before its streaming debut on Netflix.
+---------
+
+# 10 Greatest PS1 Games of All Time, Ranked
+
+Games, PlayStation (Original)
+
+Tue, 17 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/greatest-ps1-games-of-all-time-ranked-list/
+
+The original PS1 is one of the best consoles ever, and these games represent the best it has to offer.
+---------
+
+# One Legolas Quote is Still the Weirdest Part of the Lord of the Rings Trilogy
+
+Movies, The Lord of the Rings
+
+Tue, 17 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/legolas-quote-weirdest-part-of-the-lord-of-the-rings-trilogy/
+
+Legolas is a vital part of The Lord of the Rings, but he's also the source of one of the weirdest quotes in the entire trilogy.
+---------
+
+# The Seekers of Infinite Love Cast Gets Real About “The Ick” | SXSW 2026
+
+Movies, Seekers of Infinite Love, SXSW
+
+Tue, 17 Mar 2026 19:21:42 GMT
+
+https://www.cbr.com/video/the-seekers-of-infinite-love-cast-gets-real-about-the-ick-sxsw-2026/
+
+Who’s the real cult leader in Seekers of Infinite Love?Justin Theroux, Hannah Einbinder, and the cast have some strong opinions.During SXSW 2026, the cast dives into the film’s cult dynamics, chaotic group energy, and the moments that push things into uncomfortable territory.
+---------
+
+# 10 Most Stressful Anime Series of All Time, Ranked
+
+Anime, Jujutsu Kaisen, Death Note
+
+Tue, 17 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/most-stressful-anime-series-ranked-streaming-list/
+
+Watching anime like Jujutsu Kaisen can be a seriously stressful experience.
+---------
+
+# Netflix's Sci-Fi Masterpiece-Inspired Graphic Novel Is Already A Major Success
+
+Comics, Black Mirror
+
+Tue, 17 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/black-mirror-san-junpiero-kickstarter-comic-success/
+
+One of the best modern queer sci-fi romances has been given new life.
+---------
+
+# 28 Years Later, Jason Statham's Debut Crime Thriller Aged Like Fine Wine
+
+Movie Features, Lock, Stock and Two Smoking Barrels, Jason Statham, Vinnie Jones, Guy Ritchie
+
+Tue, 17 Mar 2026 19:56:13 GMT
+
+https://collider.com/jason-statham-lock-stock-two-smoking-barrels-crime-thriller/
+
+Guy Ritchie and Jason Statham changed British cinema 28 years ago with ‘Lock, Stock and Two Smoking Barrels.’
+---------
+
+# 15 Years After Changing TV, George R.R. Martin's Original Fantasy Series Surges on Streaming
+
+TV News, George R.R. Martin, Game Of Thrones, A Knight Of The Seven Kingdoms, Fantasy
+
+Tue, 17 Mar 2026 19:45:09 GMT
+
+https://collider.com/game-of-thrones-george-r-r-martin-most-iconic-fantasy-adaptation-streaming-success-apple-tv-march-2026/
+
+George R.R. Martin’s most popular fantasy adaptation, Game of Thrones, is making a comeback on digital charts amid its prequel's streaming success.
+---------
+
+# 8 Perfect Action Movies Absolutely Anyone Can Enjoy
+
+Movie, Action, Now You See Me, The Mummy, Top Gun: Maverick
+
+Tue, 17 Mar 2026 19:44:13 GMT
+
+https://collider.com/action-movies-for-everyone/
+
+Now You See Me, Con Air, The Mummy, Speed, Fast Five, Top Gun: Maverick, and more make up our list of perfect action movies anyone can enjoy.
+---------
+
+# HBO's 'Succession' Alternative Takes a Major Streaming Hit Ahead of Fifth and Final Season
+
+TV News, Industry, HBO Max, Drama, BBC
+
+Tue, 17 Mar 2026 19:38:24 GMT
+
+https://collider.com/industry-season-4-sleeper-hit-streaming-drop-hbo-max-march-2026/
+
+HBO's critically acclaimed drama suddenly disappears from the top charts a few weeks after airing the season finale. Read on for more details.
+---------
+
+# Almost 10 Years After Being Announced, Hulu's Long-Awaited Video Game Adaptation Is Officially “Dead”
+
+TV News, Hitman, Hitman 3, Derek Kolstad
+
+Tue, 17 Mar 2026 19:37:26 GMT
+
+https://collider.com/hulu-cancels-hitman-adaptation-major-video-game-series-dead/
+
+Hulu has officially cancelled its adaptation of one of the most popular video games of the 2000s. See what happened here.
+---------
+
+# Jason Momoa and Karl Urban Duke It Out as Their New Prime Video Hits Battle for Streaming Dominance
+
+Movie News, Jason Momoa, Red Notice, The Bluff, The Wrecking Crew
+
+Tue, 17 Mar 2026 19:34:44 GMT
+
+https://collider.com/jason-momoa-the-wrecking-crew-karl-urban-the-bluff-streaming-success-prime-video-march-2026/
+
+Jason Momoa’s new Prime Video action movie is battling a rising Karl Urban gritty thriller as both climb the platform’s global charts.
+---------
+
+# Netflix's Near-Perfect Pirate Fantasy Sails Past Major Streaming Milestone With 16 Million Views
+
+TV News, One Piece, Netflix, Adventure
+
+Tue, 17 Mar 2026 19:33:01 GMT
+
+https://collider.com/one-piece-season-2-pirate-fantasy-series-streaming-milestone-16-million-views-netflix-march-2026/
+
+Season 2 of the best anime adaptation ever made, One Piece, maintains its streaming dominance on Netflix a week after its release.
+---------
+
+# 10 Greatest Thriller Masterpieces Since 2010, Ranked
+
+Movie, Thriller, Prisoners, Parasite, Uncut Gems
+
+Tue, 17 Mar 2026 19:19:13 GMT
+
+https://collider.com/best-thriller-masterpieces-since-2010-ranked/
+
+Over the last fifteen years, several brilliant thrillers have wowed audiences, from instant classics like Gone Girl to Oscar winners like Parasite.
+---------
+
+# 24 Seasons Later, ’Family Guy’s Unexpected Spin-Off Already Has a Big Problem
+
+TV Features, Family Guy, Seth MacFarlane, Hulu, Fox
+
+Tue, 17 Mar 2026 19:08:12 GMT
+
+https://collider.com/family-guy-stewie-spinoff-issues-explained/
+
+The news about the upcoming Family Guy spinoff Stewie has shocked fans, especially since the tyrannical toddler's a big part of the flagship series.
+---------
+
+# 1974 Classic Song Wasn’t a Hit on Release But It Was Praised by Bob Dylan for Exceptional Songwriting
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Tue, 17 Mar 2026 18:52:36 GMT
+
+https://collider.com/1974-classic-song-wasnt-a-hit-on-release-but-it-was-praised-by-bob-dylan-for-exceptional-songwriting/
+
+Bob Dylan considers Randy Newman one of the most talented songwriters, praising his early songs Louisiana 1927 and Sail Away for their depth and simplicity.
+---------
+
+# 'Dune 3': How Does Duncan Idaho Return in ‘Messiah’? Explained
+
+Features, Dune, Dune: Part Three, Jason Momoa
+
+Tue, 17 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/dune-3-jason-momoa-return/
+
+Jason Momoa's return in 'Dune 3' might seem surprising, but it makes sense to anyone who's read 'Dune Messiah.'
+---------
+
+# 'Jack Ryan's New Movie Sets Up a Dominant Comeback Year Amidst 'Reacher' Season 4's Delays
+
+Features, Reacher, Tom Clancy's Jack Ryan: Ghost War
+
+Tue, 17 Mar 2026 19:30:18 GMT
+
+https://movieweb.com/amazon-jack-ryan-vs-reacher-season-4/
+
+'Reacher' is in danger of losing the #1 Jack action thriller spot as 'Jack Ryan' returns with an explosive new movie after two decades.
+---------
+
+# 'Daredevil: Born Again' Season 2 Reactions Revealed
+
+TV News, Daredevil: Born Again, Disney+, MCU
+
+Tue, 17 Mar 2026 19:12:56 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-reactions/
+
+After screeners were sent out, critics have now shared their first official reactions to Marvel Televison's 'Daredevil: Born Again' Season 2.
+---------
+
+# Dave Bautista's $1.3M Post-Apocalyptic Action Thriller Finds Redemption on Streaming
+
+Movie News, Afterburn, Hot on Streaming, Action
+
+Tue, 17 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/afterburn-streaming-hit-prime-video-march-2026/
+
+After failing to make a dent at the box office, Bautista's 2025 action thriller 'Afterburn' is now a global hit on streaming.
+---------
+
+# 'Devs': Hulu's 8-Part Cyberpunk Miniseries Is the Perfect Sci-Fi Show Nobody Remembers
+
+Features, Sci-Fi, Devs, Altered Carbon, Comparison Recommendation
+
+Tue, 17 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/devs-cyberpunk-miniseries-forgotten/
+
+'Devs' blends science with philosophy, resulting in one of the most intellectually stimulating shows ever made.
+---------
+
+# 'Hokum' Review: Adam Scott Gets Spooked in Frightening Folk Horror
+
+Movie Reviews, Hokum, Adam Scott
+
+Tue, 17 Mar 2026 18:50:42 GMT
+
+https://movieweb.com/hokum-review/
+
+The latest from 'Oddity' director Damian McCarthy is an exhilarating horror film filled with immensely satisfying scares.
+---------
+
+# 'The White Lotus' Season 4 Adds Kumail Nanjiani, Chloe Bennet & More
+
+TV News, The White Lotus, Kumail Nanjiani, Chloe Bennet
+
+Tue, 17 Mar 2026 18:41:28 GMT
+
+https://movieweb.com/the-white-lotus-season-4-new-cast-marvel/
+
+The two Marvel alums, 'New Girl' star Max Greenfield, and more check in to the France-set season.
+---------
+
+# 'Dune: Part Three' Trailer Confirms It Was Shot Mostly on Film Instead of Digital
+
+Movie News, Dune: Part Three
+
+Tue, 17 Mar 2026 18:08:32 GMT
+
+https://movieweb.com/dune-part-three-trailer-shot-on-film/
+
+There is a very specific reason why 'Dune 3' looks so different from the past two films.
+---------
+
 # Netflix's 5-Part Jurassic Park Series With Glen Powell Is Perfect From Start To Finish
 
 TV, Netflix, Jurassic World: Camp Cretaceous, Jurassic Park
