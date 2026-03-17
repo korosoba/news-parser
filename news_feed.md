@@ -1,3 +1,223 @@
+# Twilight Zone Episodes With Breathtaking Twists, Surprises, And Themes
+
+Classic TV, The Twilight Zone
+
+Mon, 16 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/twilight-zone-episodes-will-leave-you-speechless/
+
+Some of the best episodes of The Twilight Zone manage to steal your breath with their unbelievable twists, frightening shocks, and moving finales.
+---------
+
+# Horror Icon Barbara Crampton Is Ready To Become “The Betty White” Of The Genre
+
+Movies, Barbara Crampton, Horror, SXSW
+
+Mon, 16 Mar 2026 23:17:09 GMT
+
+https://screenrant.com/barbara-crampton-horror-betty-white-comparison/
+
+Exclusive: Barbara Crampton shares her desire to become the Betty White of the horror genre as she begins taking on different kinds of roles.
+---------
+
+# Dune 3 Posters Reveal Gritty First Looks At Robert Pattinson’s New Villain & Jason Momoa’s Return
+
+Movies, Dune: Part Three, Dune
+
+Mon, 16 Mar 2026 23:15:12 GMT
+
+https://screenrant.com/dune-3-official-posters-revealed/
+
+The hype for Dune: Part Three is higher than ever as new posters are revealed, including looks at Robert Pattinson and Jason Momoa's characters.
+---------
+
+# Toy Story 3’s Ending Proves the Franchise Doesn’t Need a Villain to Be Sad
+
+Movies, Toy Story 5, Toy Story 3, pixar
+
+Tue, 17 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/toy-story-3-ending-sadder-than-villain/
+
+Toy Story 3's ending is still one of the saddest moments in Pixar, and the latest sequel doesn't need a villain to evoke sadness.
+---------
+
+# Netflix's Under a Dark Sun Is an Underrated French Thriller
+
+TV, Netflix, Thriller, Under a Dark Sun
+
+Tue, 17 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/netflix-under-a-dark-sun-twisted-thriller-binge/
+
+Netflix's original, twist-filled thriller keeps viewers guessing until the very end and deserves more recognition.
+---------
+
+# New Transformers Action Figure Collection Gives Optimus Prime His Most Colorful Release of All Time
+
+Anime, Transformers, optimus prime, merchandise, toys, action figures
+
+Mon, 16 Mar 2026 23:30:32 GMT
+
+https://www.cbr.com/transformers-optimus-prime-galaxy-toys-mini-02-micromaster-scale-reveal/
+
+An upcoming action figure collection of Optimus Prime 'repaints' homages various characters and concepts from throughout Transformers history.
+---------
+
+# Dune: Part Three Character Posters Reveal First Look at New & Returning Characters
+
+Movies, Dune: Part Three
+
+Mon, 16 Mar 2026 23:25:18 GMT
+
+https://www.cbr.com/dune-3-character-posters/
+
+Dune: Part Three character posters reveal a first look at the characters in the upcoming threequel.
+---------
+
+# Michael B. Jordan Names Princess Mononoke His Favorite Movie Ever
+
+Movies, michael b jordan, Princess Mononoke
+
+Mon, 16 Mar 2026 23:07:44 GMT
+
+https://www.cbr.com/michael-b-jordan-favorite-movie-princess-mononoke/
+
+Oscar-winning actor reveals his favorite movie of all time after his historic win for Best Actor.
+---------
+
+# ‘Wheel of Time’ Star To Headline Gritty New Crime Drama
+
+TV News, Young Sherlock, Dónal Finn, Drama, History
+
+Tue, 17 Mar 2026 00:00:12 GMT
+
+https://collider.com/young-sherlock-donal-finn-turpin-audio-drama/
+
+'Young Sherlock' favorite Donal Finn is about to tackle a folkloric British figure in a new project.
+---------
+
+# Prime Video’s 2-Part Sci-Fi Binge Hasn’t Even Reached Its Peak
+
+TV News, Fallout, Prime Video, Walton Goggins, Ella Purnell
+
+Mon, 16 Mar 2026 23:45:12 GMT
+
+https://collider.com/prime-video-2-part-sci-fi-series-perfect-for-binging-fallout-streaming-success-march-2026/
+
+Prime Video's two-part sci-fi series, perfect for binging, still hasn't reached its peak with another season on the way.
+---------
+
+# Harry Styles' Concert Film Climbs Netflix’s Charts Ahead of BTS’ Reunion
+
+Movie News, Harry Styles, Music, Netflix, Pop
+
+Mon, 16 Mar 2026 23:45:12 GMT
+
+https://collider.com/harry-styles-one-night-in-manchester-netflix-streaming-success-ahead-of-bts-reunion-march-2026/
+
+Harry Styles' new concert film emerged as an instant hit on Netflix, a week ahead of the BTS reunion event. Find out more.
+---------
+
+# 20 Greatest Sitcom Masterpieces of All Time, Ranked
+
+TV, Sitcom, The Office, I Love Lucy, Seinfeld
+
+Mon, 16 Mar 2026 23:34:12 GMT
+
+https://collider.com/best-sitcom-masterpieces-of-all-time-ranked/
+
+From The Office, to Cheers, to Seinfeld, these sitcom masterpieces all rank among the best TV shows of all time.
+---------
+
+# 3 Episodes In, ‘Marshals’ Needs To Avoid Making This Mistake With Kayce and Belle
+
+TV Features, Marshals, Luke Grimes, Arielle Kebbel, Yellowstone
+
+Mon, 16 Mar 2026 23:30:12 GMT
+
+https://collider.com/marshals-yellowstone-kayce-belle-romance-mistake/
+
+As Marshals unfolds, Kayce and Belle's complex relationship could lead to a romance, but the show should avoid a contrived love story.
+---------
+
+# ‘Edge of Tomorrow’ Meets ‘Everything Everywhere All At Once’ in HBO Max’s New 97% RT Sci-Fi Hit
+
+Movie News, Redux Redux, Everything Everywhere All at Once, Edge of Tomorrow, Michaela McManus
+
+Mon, 16 Mar 2026 23:30:12 GMT
+
+https://collider.com/redux-redux-edge-of-tomorrow-meets-everything-everywhere-all-at-once-hbo-max-sci-fi-hit-streaming-success/
+
+A new sci-fi movie titled Redux Redux is eviscerating competition on HBO Max with its 97% score on Rotten Tomatoes. Find out more.
+---------
+
+# Anya Taylor-Joy Returns to the Sci-Fi World of Dune in Ferocious First Poster
+
+Movie News, Dune, Dune: Part Two, Dune: Part Three, Denis Villeneuve
+
+Mon, 16 Mar 2026 23:28:19 GMT
+
+https://collider.com/dune-part-3-poster-anya-taylor-joy-robert-pattinson-jason-momoa-first-look/
+
+Sci-Fi fans just got their first look at Dune: Part 3, which includes Anya Taylor-Joy, Robert Pattinson, and Jason Momoa.
+---------
+
+# Taylor Sheridan’s New Series Just Shot Straight to No. 1 on Paramount+
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus, Michelle Pfeiffer
+
+Mon, 16 Mar 2026 23:15:12 GMT
+
+https://collider.com/the-madison-paramount-plus-streaming-sensation-overnight-success-march-2026/
+
+Taylor Sheridan’s new series The Madison has shot straight to the top of Paramount+’s charts, becoming an instant streaming hit after its debut.
+---------
+
+# Apple TV's 10/10 Crime Thriller Is a Perfect Binge Before It Returns Next Month
+
+TV Features, Criminal Record, Peter Capaldi, Apple TV, Crime
+
+Mon, 16 Mar 2026 23:10:12 GMT
+
+https://collider.com/criminal-record-apple-tv-crime-thriller-perfect-binge/
+
+The Apple TV crime thriller Criminal Record, starring Peter Capaldi and Cush Jumbo, is a captivating series about to return for Season 2.
+---------
+
+# Robert Pattinson's 'Dune 3' Villain and Duncan Idaho's Return Revealed
+
+Movie News, Dune: Part Three, Robert Pattinson, Anya Taylor-Joy, Timothée Chalamet
+
+Mon, 16 Mar 2026 23:36:08 GMT
+
+https://movieweb.com/dune-3-first-look-robert-pattinson/
+
+All-new posters showcase just how much the cast of characters have been through since 'Dune: Part Two,' with a teaser right around the corner.
+---------
+
+# DC's 'Lanterns' Creator Has Been Dissed By Alan Moore and Grant Morrison
+
+Features, Damon Lindelof, Lanterns, Watchmen, Alan Moore, Grant Morrison
+
+Mon, 16 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/damon-lindelof-alan-moore-grant-morrison-criticism/
+
+Both Alan Moore and Grant Morrison have taken issue with how Damon Lindelof, creator of 'Lanterns,' has approached the DC Universe.
+---------
+
+# 'Wardriver' Review: Dane DeHaan (Sort of) Makes this Crime Thriller a Less Bumpy Ride
+
+3 star movies, Wardriver, Dane DeHaan, Sasha Calle
+
+Mon, 16 Mar 2026 23:01:14 GMT
+
+https://movieweb.com/wardriver-review/
+
+The tech-heist doesn't reinvent the wheel, but it also doesn't embarrass the genre.
+---------
+
 # Disney's 6-Part Psychological Thriller Is One Of Its Best
 
 Classic TV, Moon Knight, Marvel, Disney+
