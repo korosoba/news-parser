@@ -1,3 +1,322 @@
+# 35 Years Later, Dragon Ball’s True GOAT Is Still the Most Underrated Hero in Anime
+
+Anime, Dragon Ball
+
+Tue, 17 Mar 2026 03:50:19 GMT
+
+https://screenrant.com/dbz-anime-true-goat-future-trunks-unsung-hero-anime/
+
+One character in Dragon Ball has forever reshaped the series, making him worthy of being called one of the series' greatest characters of all time.
+---------
+
+# Prime Video’s Scarpetta Is The Perfect Dexter Antithesis
+
+Streaming TV, Scarpetta, Dexter, Prime Video
+
+Tue, 17 Mar 2026 03:30:18 GMT
+
+https://screenrant.com/prime-video-scarpetta-dexter-antithesis/
+
+A closer look at one of Prime Video’s latest TV additions to the crime thriller genre reveals that it serves as the perfect anti-thesis to Dexter.
+---------
+
+# Upcoming Fantasy Adaptation Is The Perfect Follow-Up To 6-Year-Old Show With 91% RT Score
+
+Streaming TV, Fantasy, The Magicians
+
+Tue, 17 Mar 2026 03:15:22 GMT
+
+https://screenrant.com/the-magicians-king-hill-tv-show-perfect-followup/
+
+The Magicians fans rejoice! A new fantasy adaptation is on the horizon, and it promises to be the perfect follow-up to the beloved six-year-old show
+---------
+
+# Apple TV's Summer 2026 Sci-Fi Lineup: Silo, For All Mankind, and Sugar Return
+
+Streaming TV, Silo, Star City, Sugar, Apple TV, Sci-Fi
+
+Tue, 17 Mar 2026 02:30:18 GMT
+
+https://screenrant.com/apple-tv-summer-2026-silo-sugar-star-city/
+
+Apple TV’s incredible science fiction lineup for Summer 2026 proves that the upcoming season is officially stacked to the brim for fans of the genre.
+---------
+
+# Star Trek: Legacy Series 'Never Gonna Happen,' Says TNG Actress Marina Sirtis
+
+TV, Star Trek, Star Trek: Picard
+
+Tue, 17 Mar 2026 02:09:49 GMT
+
+https://screenrant.com/star-trek-legacy-never-happen-marina-sirtis/
+
+3 years after Star Trek: Picard ended, fans still want its proposed continuation, Star Trek: Legacy, but Marina Sirtis explains why it won't happen.
+---------
+
+# Star Wars’ New Maul Trailer Is Giving Major Force Unleashed Vibes
+
+TV, Star Wars, Star Wars: The Force Unleashed, Star Wars: Maul - Shadow Lord
+
+Tue, 17 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/star-wars-new-maul-trailer-force-unleashed-nod/
+
+Star Wars' newest trailer for Maul: Shadow Lord has arrived, featuring a super cool scene evoking the classic Force Unleashed video games.
+---------
+
+# This 15-Year-Old Apocalyptic Romance Movie Aged Way Better Than You'd Expect
+
+Movies, Romance, Ewan McGregor, Eva Green, Recommendation
+
+Tue, 17 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/perfect-sense-movie-apocalyptic-romance-age-well/
+
+With striking similarities to our experiences during the COVID-19 pandemic, this apocalyptic romance movie should have become a more popular film.
+---------
+
+# Venom Lore Changes Forever, As Eddie Brock's Father Is Killed
+
+Marvel Comics, Venom, Marvel
+
+Tue, 17 Mar 2026 01:20:19 GMT
+
+https://screenrant.com/venom-father-dead-spider-man-lore-change/
+
+Marvel officially kills off the character who secretly created Venom decades ago, setting the stage for a new chapter in the symbiote saga.
+---------
+
+# Star Trek: Starfleet Academy's Standout Villain Not Returning For Season 2
+
+Streaming TV, Star Trek: Starfleet Academy, Star Trek
+
+Tue, 17 Mar 2026 01:20:19 GMT
+
+https://screenrant.com/star-trek-lost-best-new-villain/
+
+Paul Giamatti's Nus Braka won't be returning for Star Trek: Starfleet Academy's second season, leaving fans wondering how the show will replace him.
+---------
+
+# The Real Reason V For Vendetta Changed Lead Actors Mid-Production Revealed By Director 20 Years Later
+
+Movies, V For Vendetta, Hugo Weaving, James Purefoy
+
+Tue, 17 Mar 2026 01:07:26 GMT
+
+https://screenrant.com/v-for-vendetta-actors-change-hugo-weaving-james-purefoy-clarified-director/
+
+EXCLUSIVE: Hugo Weaving replacing James Purefoy in V for Vendetta is clarified by director James McTeigue 20 years after the movie's release.
+---------
+
+# Dragon Ball Is About to Kick Off a Major New Anniversary Celebration
+
+Anime, Dragon Ball, namco bandai
+
+Tue, 17 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/dragon-ball-gekishin-squadra-season-4-anniversary-update/
+
+One of the hottest Dragon Ball titles of the past year is about to celebrate its next milestone in a major way, and fans have barely 24 hours to wait.
+---------
+
+# Naruto’s Kakashi Hatake Is Still the Coolest Anime Character of All Time
+
+Anime, Naruto, Naruto: Shippuden
+
+Tue, 17 Mar 2026 03:50:12 GMT
+
+https://www.cbr.com/naruto-best-ninja-kakashi-hatake-coolest-anime-character/
+
+Sorry Satoru Gojo fans, but Naruto's greatest ninja is still the all-time coolest anime character.
+---------
+
+# The Vampire Diaries Universe: How Legacies Broke Its Own Rules
+
+TV, The Vampire Diaries, The Originals, Legacies
+
+Tue, 17 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/the-vampire-diaries-universe-legacies-broke-rules/
+
+The Vampire Diaries universe was largely flawless until it broke major rules, leaving fans confused.
+---------
+
+# Michael Mann’s the Last of the Mohicans Resurges in Streaming Popularity
+
+Movies, The Last of the Mohicans
+
+Tue, 17 Mar 2026 03:34:36 GMT
+
+https://www.cbr.com/michael-mann-last-of-the-mohicans-drama-success-tubi-us-march-2026/
+
+Michael Mann's Academy Award-winning historical drama The Last of the Mohicans, starring Daniel Day-Lewis, is experiencing a resurgence on streaming.
+---------
+
+# Warner Bros. Discovery CEO Celebrates Record-Breaking Oscars Wins
+
+Movies, Oscars, warner bros
+
+Tue, 17 Mar 2026 03:18:29 GMT
+
+https://www.cbr.com/david-zaslav-historic-oscar-night-email-warner-bros/
+
+Warner Bros. Discovery CEO David Zaslav praises the company's historic Oscar night, with films winning 11 Academy Awards, including Best Picture.
+---------
+
+# Does Kurt Russell Die in The Madison?
+
+TV, The Madison
+
+Tue, 17 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/does-kurt-russell-die-in-the-madison/
+
+The premiere of Taylor Sheridan's and Michelle Pfeiffer's new Paramount+ series, The Madison, fully reveals the fate of Kurt Russell's character.
+---------
+
+# The Best Gen Alpha Games, Ranked
+
+Games, Video Games, Roblox - Game
+
+Tue, 17 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/gen-alpha-best-games-roblox-mario-kart-world/
+
+Gen Alpha's childhood was dominated by games like Mario Kart World and Roblox.
+---------
+
+# 10 Surreal Anime Masterpieces That Feel Like Nightmares
+
+Anime, Neon Genesis Evangelion, The Promised Neverland, Paprika, Berserk
+
+Tue, 17 Mar 2026 03:05:56 GMT
+
+https://www.cbr.com/best-surreal-anime-like-nightmares/
+
+For many fans, anime peaks as an artistic medium when leaning into surreal visuals to bring to life that which usually only exists in nightmares.
+---------
+
+# Highest-Grossing One Piece Director Reveals Why New Movie Is an Original: 'If It Becomes Just Adaptations, Anime Will Be Finished'
+
+Anime, One Piece, One Piece Film: Red
+
+Tue, 17 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/one-piece-film-red-director-new-anime-release/
+
+The director behind the highest-grossing One Piece film reveals why his new movie is an anime-original rather than an adaptation.
+---------
+
+# Fantasy Shows That Are (Almost) As Good As The Lord of the Rings
+
+TV, The Lord of the Rings, Fantasy, Arcane, The Witcher
+
+Tue, 17 Mar 2026 02:45:13 GMT
+
+https://www.cbr.com/fantasy-shows-almost-as-good-as-lotr-list/
+
+The Lord of the Rings is the gold standard for fantasy entertainment, but there are some incredible TV shows that may rival it.
+---------
+
+# Stephen King’s Forgotten 10-Part Horror Show Is Still One of His Creepiest Adaptations
+
+TV Features, Chapelwaite, Adrien Brody, Stephen King, Horror
+
+Tue, 17 Mar 2026 03:42:12 GMT
+
+https://collider.com/stephen-king-chapelwaite-horror-series-best-adaptation/
+
+Adrien Brody leads Stephen King’s Chapelwaite, a 10-episode horror series that delivers eerie gothic atmosphere and bloody vampire scares.
+---------
+
+# Netflix’s 8-Episode Sleeper Hit Thriller Builds To an Unexpected Twist You Won’t See Coming
+
+TV Features, Vladimir, Rachel Weisz, Leo Woodall, Netflix
+
+Tue, 17 Mar 2026 03:19:12 GMT
+
+https://collider.com/netflix-vladimir-sleeper-hit-twist-explained/
+
+Netflix’s Vladimir is a dark comedy thriller about obsession, campus scandal, and a finale that reframes the entire eight-episode story.
+---------
+
+# 5 Steamy Thrillers To Watch if You Love 'The Housemaid'
+
+Movie, The Housemaid, Thriller, Wild Things, Color of Night
+
+Tue, 17 Mar 2026 03:07:13 GMT
+
+https://collider.com/movies-like-the-housemaid/
+
+Fans of Sydney Sweeney and Amanda Seyfried's box-office smash The Housemaid will enjoy steamy thrillers like Dressed to Kill and Wild Things.
+---------
+
+# 3 Best Shows to Binge on Netflix This Week
+
+TV, Netflix, Younger, Beastars, Anime
+
+Tue, 17 Mar 2026 03:00:12 GMT
+
+https://collider.com/best-netflix-shows-watch-week-march-16/
+
+Younger, A Friend, A Murderer, and Beastars make up our list of the best Netflix shows to binge the week of March 16, 2026.
+---------
+
+# 'The Rookie' Season 8 Frees Its Most Terrifying Villain in a Thrilling New Episode | Review
+
+TV Reviews, The Rookie, ABC, Nathan Fillion, Melissa O'Neil
+
+Tue, 17 Mar 2026 03:00:12 GMT
+
+https://collider.com/the-rookie-season-8-episode-11-liam-glasser-freed/
+
+In the latest episode of The Rookie Season 8, Liam Glasser is set free, setting up intense drama and raising questions about justice and safety.
+---------
+
+# R-Rated Horror Movies That Are 10/10, No Notes
+
+Movie, Horror, The Silence of the Lambs, The Shining, alien
+
+Tue, 17 Mar 2026 02:48:12 GMT
+
+https://collider.com/r-rated-horror-movies-perfect/
+
+R-rated horror masterpieces like The Exorcist and The Shining prove that some scary movies reach perfect 10/10 status.
+---------
+
+# NBC’s 13M Viewers Sleeper Hit Is Officially a Reminder That Hits Don’t Have To Be Sci-Fi
+
+TV Features, The Fall and Rise of Reggie Dinkins, NBC, Tracy Morgan, Daniel Radcliffe
+
+Tue, 17 Mar 2026 00:30:12 GMT
+
+https://collider.com/fall-and-rise-of-reggie-dinkins-nbc-sitcom-sleeper-hit/
+
+Though the buzziest TV seems to be on streaming these days, The Fall and Rise of Reggie Dinkins just proved there's still life in classic sitcoms.
+---------
+
+# Every 'Reacher' TV Season & Movie, Ranked
+
+TV Lists, Reacher
+
+Tue, 17 Mar 2026 02:00:29 GMT
+
+https://movieweb.com/reacher-tv-seasons-movie-ranked/
+
+'Reacher' Season 1 premiered on Amazon Prime Video in 2022 and stars Alan Ritchson as the beloved action hero.
+---------
+
+# 'The Last of Us' Season 3 Officially Adds Patrick Wilson & Jason Ritter
+
+TV News, The Last of Us
+
+Tue, 17 Mar 2026 01:01:48 GMT
+
+https://movieweb.com/the-last-of-us-patrick-wilson-cast/
+
+The actors will join the post-apocalyptic HBO show in key roles that will move the narrative past Joel's death.
+---------
+
 # Twilight Zone Episodes With Breathtaking Twists, Surprises, And Themes
 
 Classic TV, The Twilight Zone
