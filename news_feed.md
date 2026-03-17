@@ -1,3 +1,322 @@
+# Mark Wahlberg’s Cult Crime Thriller Is About To Leave Netflix
+
+Movies, Mark Wahlberg, Netflix, Four Brothers
+
+Tue, 17 Mar 2026 23:44:20 GMT
+
+https://screenrant.com/netflix-leaving-soon-mark-wahlberg-four-brothers-movie-watch/
+
+Don't miss out on watching Mark Wahlberg's cult classic crime thriller Four Brothers before it leaves Netflix on March 20, 2026.
+---------
+
+# Father of Tomorrow Preview Showcases Redesign for Superman's Dad
+
+Comics, Superman
+
+Tue, 17 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/superman-new-redesign-father-jor-el/
+
+Runs in the family
+---------
+
+# Godzilla's Live-Action Show Drops A Confusing Hint About Mothra's Monsterverse History
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 17 Mar 2026 23:15:20 GMT
+
+https://screenrant.com/monarch-legacy-monsters-monarch-mothra-easter-egg-new-york-city/
+
+Monarch: Legacy of Monsters season 2, episode 3 dropped an Easter egg that adds a confusing detail to Mothra's Monsterverse history.
+---------
+
+# The Greatest Fantasy Anime of All Time Just Dropped Winter 2026's Best Episode
+
+Anime, Frieren the Slayer, Frieren: Beyond Journey's End - Season 2, Fantasy
+
+Tue, 17 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/frieren-best-fantasy-anime-greatest-episode-winter-2026/
+
+The best fantasy anime series of all time just dropped Winter 2026's greatest episode that will be nearly impossible for any other show to top.
+---------
+
+# HBO's Upcoming Baldur's Gate Adaptation Has A Tougher Job Than Harry Potter
+
+Streaming TV, Baldur's Gate, Harry Potter
+
+Tue, 17 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/hbo-baldurs-gate-3-series-more-difficult-than-harry-potter/
+
+HBO won't have an easy time with its Harry Potter TV show, but that's nothing compared to the obstacles faced by its other fantasy adaptation.
+---------
+
+# Jessica Rothe's New Horror Movie Required A Seance After Filming In A House That's "150% Haunted"
+
+Movies, Imposters, Horror, SXSW, Jessica Rothe
+
+Tue, 17 Mar 2026 22:59:42 GMT
+
+https://screenrant.com/jessica-rothe-imposters-movie-house-haunted-seance-director-cast-sxsw/
+
+Jessica Rothe, Caleb Phillips and Yul Vazquez talk their new horror movie Imposters and how the house they filmed in was "150% haunted."
+---------
+
+# Netflix's 3-Season Action Series Was So Good, Fans Demanded Jessica Jones' Return
+
+Classic TV, Jessica Jones, Marvel
+
+Tue, 17 Mar 2026 22:45:20 GMT
+
+https://screenrant.com/jessica-jones-netflix-action-series-fan-demand-return/
+
+Jessica Jones, Netflix's acclaimed superhero series, ended in 2019 but fans demanded the return of Krysten Ritter's character. Marvel listened and brought her back in Daredevil: Born Again.
+---------
+
+# Spider-Man Show With 97% RT Keeps Getting Better Ahead Of Its Fall 2026 Return
+
+Streaming TV, Marvel, Spider-Man, Your Friendly Neighborhood Spider-Man
+
+Tue, 17 Mar 2026 22:15:19 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-art-book-characters-plot-change/
+
+The Spectacular Spider-Man may be the gold standard, but Disney+'s Spider-Man show, which will return in Fall 2026, is giving it a run for its money.
+---------
+
+# The Man In The High Castle: Netflix's Prime Video Original Series Is Changing Streaming
+
+Classic TV, The Man in the High Castle, Netflix, Prime Video
+
+Tue, 17 Mar 2026 22:06:52 GMT
+
+https://screenrant.com/netflix-man-in-the-high-castle-prime-video-series-redefining-streaming/
+
+For the past decade and a half, most streaming originals have been kept away from rival platforms. But this Prime Video original has changed all that.
+---------
+
+# Star Wars' Kelly Marie Tran Reflects on Last Jedi Backlash 9 Years Later
+
+CBR Exclusives, Star Wars
+
+Tue, 17 Mar 2026 23:24:01 GMT
+
+https://www.cbr.com/kelly-marie-tran-star-wars-the-last-jedi-backlash-biggest-gift/
+
+Star Wars actress Kelly Marie Tran discusses her Hollywood journey and the impact of online fan backlash from The Last Jedi.
+---------
+
+# David Tennant Returns as Tenth Doctor for 15 New Audio Adventures
+
+TV, Doctor Who
+
+Tue, 17 Mar 2026 23:11:45 GMT
+
+https://www.cbr.com/doctor-who-the-tenth-doctor-adventures-2027-david-tennant/
+
+David Tennant reprises his role as the beloved Tenth Doctor for 15 hour-long audio episodes produced by Big Finish Productions.
+---------
+
+# Channing Tatum's Crime Comedy Roofman Dominates Streaming Charts Worldwide
+
+Movies, Roofman, Comedy, Crime
+
+Tue, 17 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/channing-tatum-roofman-crime-comedy-success-march-2026/
+
+Channing Tatum's 87% RT crime comedy Roofman is a streaming hit, dominating charts worldwide.
+---------
+
+# Honkai: Star Rail’s Brightest Star Finally Shines in New Firefly Limited Edition U.S. Release
+
+Anime, Genshin Impact
+
+Tue, 17 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/honkai-star-rail-firefly-limitededition-release/
+
+Honkai: Star Rail's silver-haired heroine, Firefly, is finally getting her long-awaited limited edition collection released in the U.S.
+---------
+
+# Reunions That Will Prove Avengers: Doomsday Is More Than a Cameo Fest
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, X-Men
+
+Tue, 17 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/character-reunions-avengers-doomsday-more-than-cameo/
+
+Avengers: Doomsday's cast is already confirmed to be reuniting some duos that we haven't seen for years, proving something important about the movie.
+---------
+
+# Elden Ring Officially Gets New Release in March 2026
+
+Games, Elden Ring
+
+Tue, 17 Mar 2026 22:50:12 GMT
+
+https://www.cbr.com/elden-ring-official-new-release-march-2026/
+
+Elden Ring fans can't afford to miss the JRPG franchise's latest release.
+---------
+
+# 10 Best Cyberpunk Anime of All Time, Ranked
+
+Anime, Sci-Fi
+
+Tue, 17 Mar 2026 22:25:12 GMT
+
+https://www.cbr.com/best-cyberpunk-anime-all-time-ranked-list/
+
+The greatest cyberpunk anime creates futuristic worlds that feel real.
+---------
+
+# Jonathan Frakes Reacts to 'Absurd' Star Trek: Starfleet Academy Gag
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Tue, 17 Mar 2026 22:20:24 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-glitter-jonathan-frakes/
+
+Star Trek legend Jonathan Frakes reacts to that running gag from Starfleet Academy Season 1.
+---------
+
+# 7 Best Candidates to Succeed Beerus as God of Destruction
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Tue, 17 Mar 2026 22:20:21 GMT
+
+https://www.cbr.com/best-dragon-ball-beerus-god-of-destruction-replacement/
+
+God of Destruction is one of Dragon Ball Super's most important honors, and there are some interesting potential candidates who could replace Beerus.
+---------
+
+# Lanterns Creator Damon Lindelof Responds to Green Lantern Writer’s Criticism
+
+TV, Lanterns, DCU, hbo
+
+Tue, 17 Mar 2026 22:07:42 GMT
+
+https://www.cbr.com/green-lantern-damon-lindelof-response-lanterns-trailer-criticism/
+
+Lanterns creator Damon Lindelof addresses comments made on a comedy podcast, taking responsibility for a dumb joke that upset Green Lantern fans.
+---------
+
+# ‘The X-Files’ Formula Comes From This Cult Horror Series Released 52 Years Ago
+
+TV Features, Darren McGavin, Chris Carter, Fantasy, Horror
+
+Tue, 17 Mar 2026 23:37:12 GMT
+
+https://collider.com/kolchak-the-night-stalker-fantasy-horror-series-x-files/
+
+Kolchak: The Night Stalker inspired modern paranormal TV shows like The X-Files with its unique blend of horror, mystery, and investigative journalism.
+---------
+
+# 10 Netflix Drama Shows That Are 10/10 but Nobody Remembers Today
+
+TV, Netflix, Narcos, The OA, GLOW
+
+Tue, 17 Mar 2026 23:12:12 GMT
+
+https://collider.com/netflix-drama-shows-nobody-remembers/
+
+Most people know the Netflix heavy hitters, but drama shows like Wagner Moura's Narcos and cult classic The OA are completely forgotten by audiences.
+---------
+
+# 10 Worst Movies of the Last 25 Years, Ranked From Bad to Terrible
+
+Movie, 2025: The World Enslaved by a Virus, Saving Christmas, Cats, Verotika
+
+Tue, 17 Mar 2026 23:07:12 GMT
+
+https://collider.com/worst-movies-last-25-years-ranked-bad/
+
+From Battlefield Earth to 2025: The World Enslaved by a Virus, these cinematic misfires are the worst movies made between 1999 and 2024.
+---------
+
+# Sophie Turner's Best Series Since 'Game of Thrones' Is Stealing Viewers on Prime Video
+
+TV News, Steal, Game Of Thrones, Prime Video, Sophie Turner
+
+Tue, 17 Mar 2026 22:47:22 GMT
+
+https://collider.com/sophie-turner-dark-crime-thriller-steal-streaming-success-prime-video-march-2026/
+
+A ‘Game of Thrones’ star leads this dark heist thriller quietly climbing Prime Video charts as viewers discover the tense six-episode series.
+---------
+
+# After 25 Years, 'Firefly' Cast Reacts to Bringing the Sci-Fi Cult Classic Back to Life [Exclusive]
+
+Exclusives, Firefly, Alan Tudyk, Awesome Con, Nathan Fillion
+
+Tue, 17 Mar 2026 22:42:27 GMT
+
+https://collider.com/firefly-cast-alan-tudyk-nathan-fillion-hopes-relief-reaction-animated-series-continuation/
+
+The cast of Firefly opened up about their hopes for the new animated series and the relief of knowing more is finally coming for the cult classic.
+---------
+
+# 18 Years Later, Clint Eastwood's Most Brutal Movie Makes a Major Streaming Comeback
+
+Movie News, Clint Eastwood, Gran Torino, AMC+, Streaming
+
+Tue, 17 Mar 2026 22:30:45 GMT
+
+https://collider.com/clint-eastwood-most-brutal-movie-gran-torino-streaming-success-amc-plus-march-2026/
+
+18 years later, Clint Eastwood's most brutal movie, Gran Torino, is a surprise streaming hit after getting snubbed at the Academy Awards.
+---------
+
+# 1967 Bob Dylan Classic Was Absolutely Transformed By the Legendary Jimi Hendrix
+
+Music Features, Music, Rock, Bob Dylan, Jimi Hendrix
+
+Tue, 17 Mar 2026 22:30:12 GMT
+
+https://collider.com/this-1967-bob-dylan-classic-was-absolutely-transformed-by-the-legendary-jimi-hendrix/
+
+Bob Dylan's original 1967 acoustic version of All Along the Watchtower was transformed by Jimi Hendrix's explosive electric cover.
+---------
+
+# 6 Best Blondie Albums, Ranked
+
+Music Features, Music, Blondie, 1970s, 1980s
+
+Tue, 17 Mar 2026 22:21:12 GMT
+
+https://collider.com/best-blondie-albums-ranked/
+
+Blondie is one of the best new wave rock bands of all time and has released some legendary albums, including Parallel Lines and Eat to the Beat.
+---------
+
+# Without This 1994 Classic, We May Not Have Had 'The Haunting of Hill House' [Exclusive]
+
+Exclusives, Henry Thomas, Legends of the Fall, Awesome Con, All the Pretty Horses
+
+Tue, 17 Mar 2026 22:06:14 GMT
+
+https://collider.com/henry-thomas-legends-of-the-fall-career-breakthrough-1994/
+
+E.T. star Henry Thomas opens up about the three films that defined his career so far — and they may not be the ones you'd expect. Find out more here.
+---------
+
+# New 'Super Mario Galaxy Movie' Clip Shows Mario's First Meeting With Yoshi
+
+Movie News, The Super Mario Galaxy Movie
+
+Tue, 17 Mar 2026 22:27:21 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-clip-mario-yoshi/
+
+Donald Glover's Yoshi was the star of a new clip from Universal's 'The Super Mario Galaxy Movie' ahead of its release
+---------
+
 # Xbox Project Helix's Official Name Has Fans Concerned
 
 Gaming, Xbox Series X/S, Gaming Hardware
