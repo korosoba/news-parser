@@ -1,3 +1,443 @@
+# Netflix's 5-Part Jurassic Park Series With Glen Powell Is Perfect From Start To Finish
+
+TV, Netflix, Jurassic World: Camp Cretaceous, Jurassic Park
+
+Tue, 17 Mar 2026 18:02:09 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-netflix-series-perfect-start-finish/
+
+Glen Powell is one of the stars of Netflix's 5-part Jurassic Park series, and the sci-fi show is among the iconic franchise's best entries.
+---------
+
+# Daredevil: Born Again Season 2 First Reactions Are In
+
+TV, Daredevil: Born Again, Daredevil: Born Again - Season 2, Marvel Cinematic Universe
+
+Tue, 17 Mar 2026 18:00:26 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-first-reactions-are-in/
+
+The first reactions to Daredevil: Born Again season 2 arrive on social media a week ahead of its official streaming premiere on Disney+.
+---------
+
+# Titus Welliver’s New Gritty Crime Thriller Series Is Officially Releasing This Summer
+
+TV, The Westies
+
+Tue, 17 Mar 2026 17:53:38 GMT
+
+https://screenrant.com/the-westies-mgm-plus-release-date-confirmed/
+
+Titus Welliver is soon returning to television, and to the crime genre specifically, after ending his long run as Detective Harry Bosch.
+---------
+
+# Grogu's Silent Journey: Why He Won't Speak In The Mandalorian & Grogu
+
+Movies, The Mandalorian and Grogu
+
+Tue, 17 Mar 2026 17:46:19 GMT
+
+https://screenrant.com/mandalorian-and-grogu-movie-no-grogu-dialogue/
+
+Kathleen Kennedy revealed that Grogu won't speak in the new movie, but that might just be a good thing.
+---------
+
+# Netflix's New Stranger Things Series Sets Early Release With Theatrical Debut
+
+TV, Stranger Things: Tales from '85, Stranger Things, Stranger Things: Tales From '85 - Season 1
+
+Tue, 17 Mar 2026 17:45:32 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-episodes-1-2-theatrical-preview/
+
+Netflix's new Stranger Things series sets an early release with a theatrical debut, four months after the main series came to a conclusion.
+---------
+
+# Nintendo Switch 2 Has A Brand-New Feature You'll Want To Enable Now
+
+Gaming, Nintendo Switch 2
+
+Tue, 17 Mar 2026 17:41:58 GMT
+
+https://screenrant.com/nintendo-switch-2-has-a-brand-new-feature-youll-want-to-enable-now/
+
+You can now make your original Switch games look considerably better while using your Switch 2 in handheld mode.
+---------
+
+# Dungeons & Dragons’ Will Officially Return in Summer With a Brand-New 4-Part Series
+
+Comics, Dungeons & Dragons: Honor Among Thieves, Dungeons and Dragons, Dungeons & Dragons
+
+Tue, 17 Mar 2026 17:41:01 GMT
+
+https://screenrant.com/dungeons-dragons-return-new-series-total-party-killers/
+
+Dungeons & Dragons saw a major resurgence after Honor Among Thieves. Now, this D&amp;D renaissance will continue this summer with a brand-new series.
+---------
+
+# Darth Maul's Return To Star Wars Inspired By Horror Icons Michael Myers & Jason Voorhees
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Halloween, Friday the 13th
+
+Tue, 17 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/star-wars-darth-maul-return-inspired-by-michael-myers-jason/
+
+This iconic Star Wars character is a horror villain after all, with two legends of the genre serving as direct inspiration for his screen return.
+---------
+
+# Toonami's Newest Action Anime Sensation is Officially a Streaming Hit
+
+Anime, Rooster Fighter, Disney+
+
+Tue, 17 Mar 2026 17:26:56 GMT
+
+https://screenrant.com/rooster-fighter-toonami-new-action-anime-hit-streaming/
+
+Viewers who thought they'd seen it all in anime should think again, as Toonami's newest and craziest series has taken the streaming world by storm.
+---------
+
+# Elder Scrolls 6 Be Damned, TES Fans Have A Major 2026 Release To Celebrate
+
+Gaming, The Elder Scrolls, Triple-A Games, PC
+
+Tue, 17 Mar 2026 17:22:41 GMT
+
+https://screenrant.com/elder-scrolls-skyrim-oblivion-remake-2026-update/
+
+Bethesda continues to keep The Elder Scrolls 6 behind closed doors, but the latest updates on another Elder Scrolls project are a lot more visible.
+---------
+
+# Jason Bateman's DTF St. Louis Overtakes The Pitt as No. 1 HBO Max Show
+
+TV, DTF St. Louis, Mystery, HBO Max
+
+Tue, 17 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/jason-bateman-dtf-st-louis-the-pitt-hbo-max-success-march-2026/
+
+Jason Bateman's murder mystery series DTF St. Louis overtakes The Pitt as the No. 1 most-watched show on HBO Max in the US.
+---------
+
+# Marvel Brings Back Ultron, Vision, and Scarlet Witch, But With A Twist
+
+Comics, Scarlet Witch, Vision, Marvel
+
+Tue, 17 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/wiccan-and-hulking-raid-on-ultron-scarlet-witch-vision-return/
+
+One of the worst villains in the entire Marvel Universe is making a major comeback as part of the biggest superhero family reunion of the year.
+---------
+
+# Daredevil Star Gives Actual Reason For His Black Suit in Born Again Season 2
+
+TV, Action, superheroes, Crime, Daredevil, Daredevil: Born Again
+
+Tue, 17 Mar 2026 17:31:12 GMT
+
+https://www.cbr.com/charlie-cox-daredevil-born-again-gives-reason-for-black-suit-in-season-2/
+
+The next season of Daredevil: Born Again introduces the iconic black suit, and Charlie Cox just explained why.
+---------
+
+# Sam Rockwell's Good Luck, Have Fun, Don't Die is the Best Sci-Fi Movie of 2026
+
+Movies, Good Luck, Have Fun, Don't Die, Sci-Fi, sam rockwell
+
+Tue, 17 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/sam-rockwell-good-luck-have-fun-dont-die-ai-sci-fi-2026-streaming-now/
+
+Sam Rockwell and Gore Verbinski gave audiences the most timely sci-fi movie of 2026, and it's available on digital right now.
+---------
+
+# The White Lotus Season 4 Opens Its Doors to Max Greenfield, Kumail Nanjiani, Chloe Bennet, Charlie Hall & Jarrad Paul
+
+TV, The White Lotus
+
+Tue, 17 Mar 2026 17:29:47 GMT
+
+https://www.cbr.com/the-white-lotus-season-4-casts-max-greenfield-kumail-nanjiani-chloe-bennet/
+
+Ahead of Season 4's production start, The White Lotus is still checking in guests.
+---------
+
+# Most Perfect Games Released in the '90s, Ranked
+
+Games, retro games
+
+Tue, 17 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/most-perfect-90s-games-ranked-list/
+
+The '90s produced some of the greatest video games of all time, with a handful just as amazing now as they were in the Backstreet Boys era.
+---------
+
+# Michael B. Jordan’s 97% RT Horror Sinners Is Dominating HBO Max Charts After Losing Best Picture
+
+Movies, Horror, Sinners, Oscars
+
+Tue, 17 Mar 2026 17:06:09 GMT
+
+https://www.cbr.com/michael-b-jordan-oscar-horror-sinners-streaming-success-hbo-max-march-2026/
+
+Yet again, the iconic horror film Sinners is No. 1 in the streaming world.
+---------
+
+# David Dastmalchian’s Kingdom of Earth Is Summer's Must-Read Horror Comic
+
+CBR Exclusives, Dark Horse Comics
+
+Tue, 17 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/david-dastmalchian-kingdom-of-earth-comic-release-date-confirmed/
+
+Dark Horse Comics continues its horror storytelling with Kingdom of Earth, introducing readers to a fascinating new world teeming with creatures.
+---------
+
+# Timothée Chalamet’s Paul Atreides Returns in Epic First Dune: Part Three Teaser
+
+Movies, Dune: Part Three, Denis Villeneuve, Sci-Fi
+
+Tue, 17 Mar 2026 16:35:31 GMT
+
+https://www.cbr.com/dune-part-three-teaser-trailer-footage-description/
+
+It is almost time to head back to Arrakis for Denis Villeneuve's final Dune movie.
+---------
+
+# Naruto's 20th Anniversary Episode Delays Are Ruining the Franchises's 2026 Momentum
+
+Anime, Naruto
+
+Tue, 17 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/naruto-new-episode-production-delays-2026/
+
+Although Naruto's 20th anniversary has already come and gone, fans never got the new episodes they were promised.
+---------
+
+# The Mummy Officially Returns to Theaters on April 17
+
+Movie News, Lee Cronin's The Mummy, The Mummy, Jack Reynor, Lee Cronin
+
+Tue, 17 Mar 2026 18:04:36 GMT
+
+https://collider.com/lee-cronins-the-mummy-theaters-release-date-april-17-2026/
+
+The next adaptation of the classic Universal monster The Mummy officially comes to theaters next month on April 17.
+---------
+
+# Stranger Things Returns to Theaters For Epic Event on April 18
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Animation, Netflix
+
+Tue, 17 Mar 2026 18:00:20 GMT
+
+https://collider.com/stranger-things-tales-from-85-theatrical-release-april-18-ticket-details-netflix/
+
+Stranger Things: Tales From ’85 is set to have a theatrical release 5 days before the series arrives on Netflix. Get the details.
+---------
+
+# 10 Animated Heroes Who Could Beat Invincible
+
+TV, Invincible, Animation, Ben 10, My Hero Academia
+
+Tue, 17 Mar 2026 18:00:12 GMT
+
+https://collider.com/animated-heroes-could-beat-invincible/
+
+Despite what his name might suggest, Invincible is anything but, and powerful characters like Scarlet Witch and Ben Tenysson could probably beat him.
+---------
+
+# Ahead of 'Firefly's Return, One Star's 4-Part Sci-Fi Cult Classic Invades Streaming
+
+TV News, Resident Alien, Sci-Fi, Drama, Alan Tudyk
+
+Tue, 17 Mar 2026 18:00:07 GMT
+
+https://collider.com/alan-tudyk-resident-alien-sci-fi-cult-classic-streaming-success-apple-tv-march-2026/
+
+Syfy's highly-rated sci-fi drama was cancelled after four seasons but it's still popular on streaming services. Get all the details.
+---------
+
+# 1971 Joni Mitchell Classic Love Song Ranked as a Standout Track From One of the Greatest Albums of All-Time
+
+Music Features, Joni Mitchell - Both Sides Now - Live at the Isle of Wight Festival 1970, Music, Rock, Billboard Hot 100
+
+Tue, 17 Mar 2026 17:59:25 GMT
+
+https://collider.com/1971-joni-mitchell-classic-love-song-ranked-as-standout-track-from-one-of-the-greatest-albums-of-all-time/
+
+Joni Mitchell's iconic 1971 album Blue features a standout love song, contributing to her rich discography and solidifying her place in music history.
+---------
+
+# Henry Cavill's Next Detective Thriller Locks in Runtime 30-Minutes Under the First Film
+
+Movie News, Enola Holmes 3, Henry Cavill, Millie Bobby Brown, Enola Holmes
+
+Tue, 17 Mar 2026 17:59:09 GMT
+
+https://collider.com/enola-holmes-3-runtime-30-minutes-shorter-than-original-henry-cavill-millie-bobby-brown-netflix/
+
+Henry Cavill's next detective thriller, Enola Holmes 3, starring Millie Bobby Brown, has officially set a shorter runtime than the first two movies.
+---------
+
+# After a 3-Year Wait, Prime Video's Best Original Series Returns on March 20
+
+TV News, Jury Duty, Prime Video, James Marsden, Lee Eisenberg
+
+Tue, 17 Mar 2026 17:56:27 GMT
+
+https://collider.com/jury-duty-season-2-company-retreat-release-date-march-20-2026/
+
+After 3 years away, Jury Duty returns this week on Prime Video with a new anthology installment titled Company Retreat.
+---------
+
+# The Fate of Netflix's Controversial 6-Part Comedy Series Has Been Decided
+
+TV News, Free Bert, Netflix, Comedy, Streaming
+
+Tue, 17 Mar 2026 17:56:05 GMT
+
+https://collider.com/netlflix-free-bert-season-2-renewed/
+
+Netflix is doubling down on one of its most controversial shows as the streamer greenlights Season 2 of this 6-part comedy series.
+---------
+
+# Guy Ritchie and Henry Cavill’s Epic WWII Movie Proves Why It Was Always Meant for Streaming
+
+Movie News, Guy Ritchie, Henry Cavill, The Ministry of Ungentlemanly Warfare, Alan Ritchson
+
+Tue, 17 Mar 2026 17:42:53 GMT
+
+https://collider.com/guy-ritchie-henry-cavill-ww2-movie-ministry-of-ungentlemanly-warfare-streaming-success-starz-march-2026/
+
+Henry Cavill and Guy Ritchie's second film together, The Ministry of Ungentlemanly Warfare, is a streaming hit after underperforming in theaters.
+---------
+
+# Titus Welliver's Gritty 'Bosch' Follow Up Sets Summer Release Date
+
+TV News, The Westies, Titus Welliver, Bosch
+
+Tue, 17 Mar 2026 17:41:45 GMT
+
+https://collider.com/titus-welliver-the-westies-gritty-crime-thriller-series-release-date-july-12-2026-mgm-plus/
+
+Bosch star Titus Welliver returns to the world of gritty crime drama in The Westies, which has set an official release date on MGM+ for this summer.
+---------
+
+# 'Bad Man': Seann William Scott's Action Movie Finds Success on Prime Video
+
+Movie News, Bad Man, Seann William Scott, Prime Video, Action
+
+Tue, 17 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/bad-man-stream-prime-march-2026/
+
+The 2025 action comedy, which finds the 'American Pie' star breaking bad as a no-nonsense cop, has found an audience on streaming.
+---------
+
+# Thrillers That Are Based on True Stories
+
+Movie Lists, Thriller
+
+Tue, 17 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/thrillers-based-on-true-stories/
+
+Be prepared to sit on the edge of your seat as you watch these thriller films that are based on terrifyingly true stories.
+---------
+
+# 'Dune: Part Three' Is an "Action-Packed Thriller," Says Denis Villeneuve
+
+Movie News, Dune: Part Three, Denis Villeneuve
+
+Tue, 17 Mar 2026 17:43:15 GMT
+
+https://movieweb.com/dune-3-action-thriller-denis-villeneuve/
+
+The filmmaker reveals how his third film pivots away from what audiences might have expected after the last two chapters.
+---------
+
+# 'Paradise' Renewed for Season 3 by Hulu
+
+TV News, Paradise, Hulu
+
+Tue, 17 Mar 2026 17:35:58 GMT
+
+https://movieweb.com/paradise-season-3-renewal-hulu/
+
+After a highly-successful run in its first two seasons, Hulu's 'Paradise' is now confirmed to continue its story into Season 3.
+---------
+
+# 'Tomb Raider' Set Photos Reveal Sophie Turner Dual Wielding Pistols in Prime Video Series
+
+TV News, Tomb Raider, Sophie Turner, Apple TV
+
+Tue, 17 Mar 2026 17:30:48 GMT
+
+https://movieweb.com/tomb-raider-set-photos-sophie-turner/
+
+New photos from the set of Prime Video's 'Tomb Raider' series have surfaced online, offering a closer look at Sophie Turner's gun-wielding Lara Croft.
+---------
+
+# '28 Years Late: Bone Temple' Lands Netflix Streaming Release
+
+Movie News, 28 Years Later: The Bone Temple
+
+Tue, 17 Mar 2026 17:26:21 GMT
+
+https://movieweb.com/28-years-later-bone-temple-streaming-netflix/
+
+The latest entry in the '28 Years Later' franchise will be available to stream starting Mar. 31, 2026.
+---------
+
+# 'Spider-Man: Brand New Day' Trailer Clips Are Now Available To Watch
+
+Features, Spider-Man: Brand New Day, Spider-Man
+
+Tue, 17 Mar 2026 17:09:35 GMT
+
+https://movieweb.com/spider-man-brand-new-day-teasers/
+
+Tom Holland's upcoming 'Spider-Man' movie has started to post short clips from what must be an imminent trailer. Read on to find out more.
+---------
+
+# 'Daredevil: Born Again's Vincent D'Onofrio Teases "Most Dangerous" Kingpin Yet in Season 2 [Exclusive]
+
+TV News, Daredevil, Daredevil: Born Again, Vincent D'Onofrio
+
+Tue, 17 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-kingpin-most-dangerous/
+
+Speaking with MovieWeb, Vincent D'Onofrio confirms that 'Born Again' Season 2 will find Kingpin feeling more violent and scary than ever.
+---------
+
+# Every Time Tony Soprano Cheated on Carmela, in Order
+
+TV Lists, The Sopranos
+
+Tue, 17 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/tony-soprano-mistresses-in-order-the-sopranoes/
+
+Tony Soprano cheats on his wife, Carmela, plenty of times in The Sopranos. Here is the chronology of his infidelity.
+---------
+
+# 'Daredevil: Born Again' Showrunner Confirms 'Avengers' Character Is Key to Street Level MCU [Exclusive]
+
+TV News, Daredevil, Daredevil: Born Again, MCU, Disney+
+
+Tue, 17 Mar 2026 16:30:17 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-val-fontaine-key/
+
+Speaking exclusively with MovieWeb, the creatives behind 'Born Again' offered some spoilery insight into Season 2's new villain.
+---------
+
 # Amazon's Surprising James Bond Comedy Series: Bait
 
 Streaming TV, Bait
