@@ -1,3 +1,388 @@
+# Xbox Project Helix's Official Name Has Fans Concerned
+
+Gaming, Xbox Series X/S, Gaming Hardware
+
+Tue, 17 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/xbox-project-helix-official-name-speculation/
+
+Xbox has a history of confusing and questionable naming conventions – will Project Helix continue the unfortunate tradition or turn things around?
+---------
+
+# 10 Groundbreaking TV Episodes That Changed Everything
+
+Classic TV
+
+Tue, 17 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/forgotten-tv-episodes-changed-world/
+
+From the groundbreaking interracial kiss in Star Trek to the first major character death in Bonanza, these classic TV episodes changed the world.
+---------
+
+# Spider-Man's Status In Kingpin's Daredevil Season 2 Story Addressed By Born Again EPs
+
+TV, Daredevil: Born Again, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Superhero
+
+Tue, 17 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-spiderman-connection-explained-kingpin/
+
+EXCLUSIVE: Ahead of Brand New Day, Spider-Man's MCU status in Kingpin's Daredevil: Born Again season 2 storyline gets addressed by the creative team.
+---------
+
+# How Star Wars' Most Divisive Movie Gave 1 Actor The Opportunity To Do Rom-Com Remake & Centuries-Spanning Horror Movie
+
+Movies, Star Wars: Episode VIII - The Last Jedi, Kelly Marie Tran, SXSW, Rock Springs, The Wedding Banquet
+
+Tue, 17 Mar 2026 21:57:36 GMT
+
+https://screenrant.com/star-wars-last-jedi-kelly-marie-tran-career-opportunities-reflection/
+
+EXCLUSIVE: The Last Jedi continues to be a polarizing Star Wars movie, but it provided one actor with the opportunity to explore other genres.
+---------
+
+# Supergirl Debuts Wild New Costume for Her Next Comic Appearance
+
+Comics, Supergirl, DC Comics
+
+Tue, 17 Mar 2026 21:54:24 GMT
+
+https://screenrant.com/supergirl-new-costume-prequel-krypton/
+
+Supergirl gets a brand-new costume for her upcoming appearance and it is unlike anything she has ever worn before, and for a good reason.
+---------
+
+# Michael B. Jordan's Post-Oscar Win Career: A Look At What's Ahead
+
+New Movies, Michael B. Jordan, Oscars
+
+Tue, 17 Mar 2026 21:50:19 GMT
+
+https://screenrant.com/michael-b-jordan-career-movies-after-oscar-win/
+
+Michael B. Jordan has won his first Oscar, Best Actor for his performance at Sinners, and here's what we know about his plans for the future.
+---------
+
+# Paradise Season 2 Confirms Time Travel Theories With Shocking Revelation
+
+Streaming TV, Paradise, Hulu
+
+Tue, 17 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/paradise-season-2-time-travel-theory-confirmed-jane-explained/
+
+Paradise season 2 confirms the show's time travel theories as it delivers a shocking revelation about one central character.
+---------
+
+# Danny DeVito & Lizzy Caplan's New Thriller Movie Puts An Exciting Twist On Home Alone, Teases Drag Star
+
+Movies, Drag, SXSW
+
+Tue, 17 Mar 2026 21:38:34 GMT
+
+https://screenrant.com/danny-devito-lizzy-caplan-drag-movie-home-alone-twist-sxsw/
+
+Danny DeVito, Lizzy Caplan and the rest of the Drag team talk their new thriller and how it puts an exciting new twist on the Home Alone formula.
+---------
+
+# Netflix’s 4-Part Crime Thriller Is One Of Its Very Best
+
+Streaming TV, Netflix, Adolescence
+
+Tue, 17 Mar 2026 21:36:20 GMT
+
+https://screenrant.com/netflix-adolescence-best-thriller-series/
+
+Adolescence is the best critically acclaimed 4-part crime thriller on Netflix, featuring remarkable one-take episodes and standout performances.
+---------
+
+# Should You Kill Or Spare The Tisseur In Clair Obscur: Expedition 33?
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Tue, 17 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/clair-obscur-expedition-33-tisseur-choice-fight/
+
+The Tisseur in Clair Obscur: Expedition 33 is an optional boss that seems peaceful, and it isn't entirely clear whether you should kill it or not.
+---------
+
+# Netflix's Oscar-Winning Hit KPop Demon Hunters Returns to Streaming Charts
+
+Movies, KPop Demon Hunters, Netflix, Animation
+
+Tue, 17 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/kpop-demon-hunters-animation-netflix-success-march-2026/
+
+Academy Award winner KPop Demon Hunters is dominating Netflix streaming charts worldwide after its historic win.
+---------
+
+# Kurt Russell's Best Tombstone Line Was Stolen From The Last Hunt
+
+Movies, Tombstone, Western
+
+Tue, 17 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/kurt-russells-best-tombstone-line-stolen-from-the-last-hunt/
+
+Kurt Russell is a legend in Tombstone, but one of his best quotes came from a much older movie: The Last Hunt.
+---------
+
+# Pixar's Hoppers Officially Proves Why Jon Hamm Is Great At Comedy
+
+Movies, Mad Men, Hoppers, Animation
+
+Tue, 17 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/pixars-hoppers-jon-hamm-great-comedy-drama-actor/
+
+With Pixar's latest animated hit, this Mad Men star is eager to be taken not-so-seriously as an actor.
+---------
+
+# Watson Climbs Paramount+ Charts Amid Uncertain Future
+
+TV, Watson, Paramount Plus
+
+Tue, 17 Mar 2026 21:43:24 GMT
+
+https://www.cbr.com/watson-streaming-success-march-2026/
+
+Though Watson's future remains uncertain, it continues to find success on Paramount+.
+---------
+
+# Netflix’s War Machine: 80M Views in 2 Weeks for Sci-Fi Thriller
+
+Movies, War Machine, Netflix, Sci-Fi
+
+Tue, 17 Mar 2026 21:28:53 GMT
+
+https://www.cbr.com/war-machine-sci-fi-streaming-success-netflix-march-2026/
+
+Netflix's military sci-fi thriller War Machine, starring Alan Ritchson and Dennis Quaid, has racked up 80.
+---------
+
+# Steins;Gate's 100% RT Score Still Undersells It's Emotional Nature
+
+Anime, Steins;Gate, Sci-Fi, Romance
+
+Tue, 17 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/steins-gate-underrated-dark-sci-fi-anime/
+
+Stein's;Gate may have a perfect Rotten Tomatoes score, but it still hangs on the fringes despite its deep emotional nature.
+---------
+
+# Vin Diesel’s Groot Return Tease Could Confirm This Massive Secret Wars Moment In The MCU
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Tue, 17 Mar 2026 21:00:14 GMT
+
+https://www.cbr.com/mcu-vin-diesel-groot-return-confirm-secret-wars-moment/
+
+Vin Diesel might have teased Groot's future in the MCU and surprise fans in a massive way for Avengers: Secret Wars.
+---------
+
+# James Bond Is Making A Major Comeback, And It's Soon
+
+Comics, James Bond
+
+Tue, 17 Mar 2026 21:00:14 GMT
+
+https://www.cbr.com/james-bond-titan-comics-ian-fleming-signature-collection/
+
+New details emerge of James Bond's next adventure - and fans of the iconic spy won't want to miss out.
+---------
+
+# Chuck Is the Perfect Blend of Sci-Fi & Spy Action
+
+TV, Chuck, Sci-Fi
+
+Tue, 17 Mar 2026 21:00:14 GMT
+
+https://www.cbr.com/chuck-spy-sci-fi-masterpiece/
+
+There are many great spy and sci-fi shows out there, but only one combines both genres perfectly and becomes iconic.
+---------
+
+# Lord of the Rings Game Officially Confirmed for 2026
+
+Games, The Lord of the Rings
+
+Tue, 17 Mar 2026 20:45:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-game-2026-circle-of-conflict/
+
+A new Lord of the Rings game will see players battle for the fate of Middle-earth.
+---------
+
+# 10 Best Monsters in Animated Movies, Ranked
+
+Movie, Animation, Sleeping Beauty, Fantasy, The Nightmare Before Christmas
+
+Tue, 17 Mar 2026 21:55:13 GMT
+
+https://collider.com/animated-movie-monsters-best-ranked/
+
+The all-time best, scariest monsters in animated movies include Shrek, Jack Skellington, and Maleficent's final dragon form in Sleeping Beauty.
+---------
+
+# 10 Classic Comedy Movies That Are Still Masterpieces Today
+
+Movie, Comedy, The Apartment, Blazing Saddles, Some Like It Hot
+
+Tue, 17 Mar 2026 21:42:12 GMT
+
+https://collider.com/classic-comedy-movies-still-masterpieces-today/
+
+Classic comedy movies like Duck Soup and Modern Times were already exceptional when they came out, but they're also still comedic masterpieces today.
+---------
+
+# 3 Months Later, Jamie Campbell Bower Opens Up About Painful ‘Stranger Things’ Goodbye [Exclusive]
+
+Exclusives, Stranger Things, Jamie Campbell Bower, Awesome Con
+
+Tue, 17 Mar 2026 21:41:08 GMT
+
+https://collider.com/stranger-things-finale-ending-jamie-campbell-bower-saying-goodbye-hardest-part-emotional-netflix/
+
+Jamie Campbell Bower opens up about the emotional toll of wrapping Stranger Things, reflecting on the final days on set of the Netflix series.
+---------
+
+# 10 Near-Perfect Sci-Fi Movies That No One Remembers Today
+
+Movie, The Super Inframan, Woman in the Moon, The Call of Cthulhu, Spirits of the Air, Gremlins of the Clouds
+
+Tue, 17 Mar 2026 20:48:12 GMT
+
+https://collider.com/near-perfect-sci-fi-movies-no-one-remembers/
+
+The science fiction genre is home to plenty of movies that are pretty great, yet also pretty forgotten, including Chronopolis and Woman in the Moon.
+---------
+
+# 18 Years Later, Tom Hardy's Crime Thriller Breakout Role Keeps Getting Better
+
+Movie Features, Tom Hardy, RocknRolla, Gerard Butler, Guy Ritchie
+
+Tue, 17 Mar 2026 20:38:12 GMT
+
+https://collider.com/tom-hardy-forgotten-performance-rocknrolla/
+
+Tom Hardy was underrated in Guy Ritchie's RocknRolla, a classic British gangster film about a crew that fails upward.
+---------
+
+# As a Lord of the Rings Fan, These Are the 10 Best 'Rings of Power' Episodes
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, J.R.R. Tolkien, Fantasy
+
+Tue, 17 Mar 2026 20:30:12 GMT
+
+https://collider.com/lord-of-the-rings-fan-ranks-rings-of-power-episodes/
+
+As a big Lord of the Rings fan, Prime Video's Rings of Power isn't the best of J. R. R. Tolkien's world, but it does feature some standout episodes.
+---------
+
+# Even 'Reacher's Alan Ritchson Can't Beat Bob Odenkirk's Action Hero in Shock Netflix Upset
+
+Movie News, War Machine, Netflix, Alan Ritchson, Nobody 2
+
+Tue, 17 Mar 2026 20:30:01 GMT
+
+https://collider.com/reacher-alan-ritchson-sci-fi-movie-war-machine-overtaken-by-bob-odenkirk-action-sequel-nobody-2-streaming-success-netflix-march-2026/
+
+Just two weeks after dominating Netflix, Alan Ritchson's War Machine has been dethroned from its streaming top spot by a surprising title.
+---------
+
+# 10 Shakespeare Movies That Are Amazing From Start to Finish
+
+Movie, Shakespeare, Romeo and Juliet, Drama, Throne of Blood
+
+Tue, 17 Mar 2026 20:27:12 GMT
+
+https://collider.com/best-shakespeare-movies-amazing/
+
+Some movies based on Shakespeare are flat-out amazing, including all-timers like Throne of Blood and Zeffirelli's Romeo and Juliet.
+---------
+
+# Taylor Sheridan’s $84.9 Million Neo-Western Thriller Is Still an Undisputed Classic 11 Years Later
+
+Movie News, Sicario, Taylor Sheridan, Apple TV, Josh Brolin
+
+Tue, 17 Mar 2026 20:21:49 GMT
+
+https://collider.com/taylor-sheridan-neo-western-thriller-sicario-streaming-success-apple-tv-march-2026/
+
+Taylor Sheridan's $84.9 million neo-Western thriller, which he wrote over 10 years ago, remains an undisputed classic.
+---------
+
+# Hulu's 2-Part Fantasy Mythology Series Puts This 'Game of Thrones' Star in the Spotlight
+
+TV Features, Atlantis, BBC, Hulu, Mark Addy
+
+Tue, 17 Mar 2026 20:21:12 GMT
+
+https://collider.com/atlantis-hulu-fantasy-mythology-game-of-thrones-mark-addy/
+
+Atlantis is a thrilling fantasy series that explores Greek mythology, featuring a hilarious central trio and Game of Thrones star Mark Addy.
+---------
+
+# 'Dune: Part Three' Set Up the Franchise's Future With Leto II Atreides
+
+Features, Dune: Part Three, Sci-Fi, Denis Villeneuve
+
+Tue, 17 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/dune-3-leto-atreides-future/
+
+In fact, a good chunk of the trailer seems concerned with teasing events that won't happen in the movie.
+---------
+
+# Cobie Smulders on Growth, Risk, and Her Jason Segel Reunion for ‘Shrinking’
+
+Interviews, Cobie Smulders, Shrinking
+
+Tue, 17 Mar 2026 21:35:08 GMT
+
+https://movieweb.com/shrinking-season-3-cobie-smulders-interview/
+
+The actor opens up about the experience of reuniting with her 'How I Met Your Mother' costar for the Apple TV series.
+---------
+
+# Big Finish's Announcement About David Tennant's 'Doctor Who' Comeback Rules Him Out of 2026 Christmas Special
+
+Features, Doctor Who
+
+Tue, 17 Mar 2026 21:00:23 GMT
+
+https://movieweb.com/doctor-who-david-tennant-comeback-2026/
+
+David Tennant will be reprising his role as the Tenth Doctor in a new set of Big Finish audio plays. But what does that mean for 'Doctor Who'?
+---------
+
+# Bob Odenkirk's 'Nobody 2' Beats Alan RItchson's 'War Machine' on Netflix Streaming Charts
+
+Movie News, Nobody 2, Netflix, Hot on Streaming, Alan Ritchson
+
+Tue, 17 Mar 2026 20:30:17 GMT
+
+https://movieweb.com/nobody-2-streaming-netflix-beats-war-machine/
+
+Bob Odenkirk's action sequel 'Nobody 2' is streaming on Netflix, and it's more popular than Alan Ritchson's sci-fi action blockbuster 'War Machine.'
+---------
+
+# 'Stranger Things: Tales From '85' First 2 Episodes Screening in Theaters
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Tue, 17 Mar 2026 20:24:55 GMT
+
+https://movieweb.com/stranger-things-spin-off-theater-screenings/
+
+The theatrical event will be held on Apr. 18 before the show's Apr. 23 premiere.
+---------
+
 # FBI's Maggie Will "Never Be The Same" After Season 8's Major Tragedy, Explains Missy Peregrym
 
 TV, FBI, Missy Peregrym
