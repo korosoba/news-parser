@@ -1,3 +1,366 @@
+# Prime Video’s 10-Part Sci-Fi Series Is Like A Secret Season Of Black Mirror
+
+TV, Black Mirror, Electric Dreams
+
+Wed, 18 Mar 2026 21:03:20 GMT
+
+https://screenrant.com/electric-dreams-prime-video-black-mirror-secret-season/
+
+With its star-studded cast and original explorations of sci-fi premises, Prime Video's cyberpunk series feels like a secret season of Black Mirror.
+---------
+
+# DC Just Unveiled Wonder Woman's Greatest Redesign Yet, Including Jaw-Dropping New Weapon
+
+Comics, Wonder Woman
+
+Wed, 18 Mar 2026 21:01:19 GMT
+
+https://screenrant.com/wonder-woman-redesign-new-weapon/
+
+Wonder Woman has seen various evolutions of her classic costume over her 85 years in comics. Now, DC has unveiled her latest redesign.
+---------
+
+# Bob Odenkirk's New Action Movie Nearly Cut One Of Its Funniest Jokes From A Brutal Fight Scene
+
+Movies, Normal, SXSW, Bob Odenkirk
+
+Wed, 18 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/bob-odenkirk-normal-movie-joke-cut-almost-fight-scene/
+
+Bob Odenkirk and the rest of his Normal team talk their new R-rated action movie and how they almost cut one of its funniest jokes in a fight scene.
+---------
+
+# HBO's 6-Part Crime Thriller Series With Near-Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
+
+TV, HBO Max, True Detective
+
+Wed, 18 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/true-detective-hbo-crime-thriller-series-must-watch/
+
+Fans of dark shows should check out HBO's 6-part crime thriller series, which is perfect for a one-night weekend binge with an intriguing mystery.
+---------
+
+# Hogwarts Legacy Meets Stardew Valley In This New RPG
+
+Gaming, Steam, Indie Games, PC
+
+Wed, 18 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/magic-school-rpg-stardew-valley-hogwarts-legacy/
+
+Hogwarts Legacy was released all the way back in 2023, and fans are still wanting to revisit magical schools - this game should deliver on that front.
+---------
+
+# Jason Bateman Sets First Directorial Movie In 11 Years With Netflix Crime Comedy
+
+Movies, Jason Bateman
+
+Wed, 18 Mar 2026 20:53:43 GMT
+
+https://screenrant.com/the-cackling-of-the-dodos-movie-jason-bateman-directing-return-netflix/
+
+Arrested Development and Ozark star Jason Bateman is returning to Netflix to direct a brand-new movie with Rockwell and Woody Harrelson.
+---------
+
+# Netflix’s 3-Part Psychological Thriller Series Has One Of Its Best Casts Ever
+
+Streaming TV, Netflix, Bloodline
+
+Wed, 18 Mar 2026 20:47:19 GMT
+
+https://screenrant.com/netflix-bloodline-thriller-series-cast-best/
+
+Netflix's Bloodline is hailed for its exceptional ensemble cast, featuring top-notch actors like Kyle Chandler, Ben Mendelsohn, and Linda Cardellini.
+---------
+
+# Pokémon Pokopia: Where To Find Chef Dente's Buddy's Book
+
+Gaming, Pokemon Pokopia, Triple-A Games
+
+Wed, 18 Mar 2026 20:45:17 GMT
+
+https://screenrant.com/pokemon-pokopia-chef-dente-buddy-book-location-walkthrough/
+
+Later on in the Pokémon Pokopia questline featuring Chef Dente, you'll be tasked with finding a mysterious book that pops up out of nowhere.
+---------
+
+# Netflix's 2-Part Crime Thriller Series Was So Good, Its Cancellation Is Still Embarrassing
+
+TV, Mindhunter
+
+Wed, 18 Mar 2026 20:34:21 GMT
+
+https://screenrant.com/mindhunter-crime-thriller-series-cancellation-netflix-embarrassing/
+
+A blend of true crime drama and psychological thriller, Netflix's two-season masterpiece should have lasted a lot longer given its critical acclaim.
+---------
+
+# Marvel Unveils Major Bucky Barnes Redesign For Captain America's New Appearance
+
+Marvel Comics, Bucky Barnes, Captain America, Marvel
+
+Wed, 18 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/captain-america-kill-bucky-barnes-winter-soldier-redesign/
+
+Marvel officially reveals a brand-new twist that changes Captain America and Bucky Barnes' shared history and adds another layer of tragedy.
+---------
+
+# Marvel Pits Earth's Heroes Against the Hulk as the Infernal Era Begins Its Finale
+
+Comics, Hulk
+
+Wed, 18 Mar 2026 21:02:30 GMT
+
+https://www.cbr.com/hulk-earth-heroes-fight-exclusive-reveal/
+
+In a CBR exclusive reveal of the solicitation and cover of Infernal Hulk #8, see how Earth's Mightiest Heroes have to take on the Jade Giant
+---------
+
+# Sterling K. Brown's Sci-Fi Series Paradise Dominates Hulu & Disney+ Charts
+
+TV, Hulu, Sci-Fi, Paradise
+
+Wed, 18 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/paradise-sci-fi-thriller-hulu-success-march-2026/
+
+Sterling K. Brown's Paradise is the No. 1 most-watched TV series on Hulu in the US and ranks among the Top 10 on Disney+ worldwide.
+---------
+
+# Prime Video’s Jack Ryan is the 'American James Bond'
+
+Movies, Thriller, Tom Clancy's Jack Ryan: Ghost War
+
+Wed, 18 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/prime-video-jack-ryan-ghost-war-american-james-bond/
+
+Jack Ryan: Ghost War has released its first trailer, and it's clear that a new version of James Bond is coming to the big screen.
+---------
+
+# 10 Most Brutal Invincible Fights, Ranked
+
+Comics, Invincible, image comics, superheroes
+
+Wed, 18 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/10-most-brutal-invincible-conquest-omni-man-fights-ranked/
+
+Invincible is one of the most brutal series in superhero history, and these 10 fights are easily the most intense in the history of the entire comic.
+---------
+
+# HBO Max's Best TV Show Isn't The Sopranos, It's This Steven Spielberg-Approved Drama
+
+TV, The Sopranos, Succession, steven spielberg, HBO Max
+
+Wed, 18 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/steven-spielberg-favorite-hbo-drama-succession/
+
+Steven Spielberg loves this eight-year-old drama that gives even The Sopranos a run for its money as the best series on HBO Max.
+---------
+
+# Avengers: Doomsday vs. Dune: Part Three: Why Studios Refuse To Move Films
+
+Movies, Avengers: Doomsday, Dune: Part Three, Jumanji 4
+
+Wed, 18 Mar 2026 20:58:12 GMT
+
+https://www.cbr.com/avengers-doomsday-dune-3-release-date-same-day/
+
+Disney and Warner Bros. are sticking to their guns, releasing Avengers: Doomsday and Dune: Part Three on the same day.
+---------
+
+# The Rocketeer Will Return Sooner Than Fans Think, But With A Twist
+
+Comics, The Rocketeer
+
+Wed, 18 Mar 2026 20:44:04 GMT
+
+https://www.cbr.com/the-rocketeer-infiltrator-comic-release-date-confirmed/
+
+The Rocketeer is back with a brand-new adventure.
+---------
+
+# The Brian Cast Breaks Down Awkward Teen Truths | SXSW 2026
+
+Movies, SXSW, Brian
+
+Wed, 18 Mar 2026 20:30:13 GMT
+
+https://www.cbr.com/video/the-brian-cast-breaks-down-awkward-teen-truths-sxsw-2026/
+
+At SXSW, director Will Ropp and stars Ben Wang, Randall Park, Edi Patterson, Natalie Morales, and William H. Macy unpack what makes Brian such an unexpectedly honest coming-of-age story.From awkward school elections to uncomfortable crushes and emotional outbursts, the cast dives into the painfully real moments that define Brian’s journey.
+---------
+
+# Optimus Prime's Darkest Successor Returns in New 'Secret' Transformers Release
+
+Anime, Transformers, merchandise
+
+Wed, 18 Mar 2026 20:30:13 GMT
+
+https://www.cbr.com/transformers-shattered-glass-rodimus-bluestreak-yolopark-release/
+
+Two of the rarest Yolopark Transformers model kits that were once esoteric chase figures are finally available to order directly for a limited time.
+---------
+
+# 10 Beloved Books Hollywood Turned Into Shockingly Bad Movies
+
+Movies, Wuthering Heights, Percy Jackson & The Olympians: The Lightning Thief, The Dark Tower
+
+Wed, 18 Mar 2026 20:30:13 GMT
+
+https://www.cbr.com/worst-book-to-movie-adaptations-list/
+
+Whether they be tone deaf or just plain inaccurate, these films go beyond the pale.
+---------
+
+# Stellar 10/10 Fantasy Shows That Nobody Remembers Today
+
+TV, Fantasy, Warehouse 13, The Librarians, Merlin
+
+Wed, 18 Mar 2026 21:07:13 GMT
+
+https://collider.com/fantasy-shows-nobody-remembers/
+
+Syfy's Warehouse 13, BBC's Merlin, and TNT's The Librarians are some of the perfect fantasy shows that are completely forgotten by audiences.
+---------
+
+# 3 Months Later, ‘Stranger Things’ Star Says There's Still Unfinished Business Between Vecna and Will [Exclusive]
+
+Exclusives, Stranger Thing, Stranger Things, Jamie Campbell Bower, Awesome Con
+
+Wed, 18 Mar 2026 20:49:42 GMT
+
+https://collider.com/stranger-things-vecna-will-unfinished-business-after-series-finale-jamie-campbell-bower/
+
+Jamie Campbell Bower hints at an unfinished story between Henry Creel and Will Byers in Stranger Things, following the controversial series finale.
+---------
+
+# 1974 Classic Queen Song Was Their Breakthrough Hit on the Billboard Hot 100
+
+Music Features, Music, Rock, Queen, Freddie Mercury
+
+Wed, 18 Mar 2026 20:46:13 GMT
+
+https://collider.com/1974-classic-queen-song-was-their-breakthrough-hit-on-the-billboard-hot-100/
+
+Killer Queen became Queen's breakthrough hit, securing their place on the Billboard Hot 100 and establishing their iconic theatrical rock sound.
+---------
+
+# 8 Seasons Later, 'The Rookie' Officially Proved That the Series Can't Just Be a Procedural Anymore
+
+TV Features, The Rookie, Melissa O'Neil, Procedural, ABC
+
+Wed, 18 Mar 2026 20:44:13 GMT
+
+https://collider.com/the-rookie-season-8-procedural-serialized-lucy-chen/
+
+The latest episode of The Rookie Season 8, "Aftermath," exemplifies the fact that the series shouldn't just be a regular procedural TV show anymore.
+---------
+
+# 10 Movies From 1954 That Are Now Considered Classics
+
+Movie, Dial M for Murder, Classics, Seven Samurai, Rear Window
+
+Wed, 18 Mar 2026 20:42:13 GMT
+
+https://collider.com/best-1954-movies-classics/
+
+1954 was one of the great year for classic film, giving us all-time masterpieces like Rear Window, Seven Samurai, and Dial M for Murder.
+---------
+
+# Netflix Sets 2026 Debut for the First-Ever 'Lord of the Flies' TV Series in 72 Years
+
+TV News, Adolescence, Jack Thorne, Lord of the Flies, Netflix
+
+Wed, 18 Mar 2026 20:38:10 GMT
+
+https://collider.com/netflix-lord-of-the-flies-adaptation-tv-series-release-date-may-4-2026/
+
+Netflix has revealed a summer 2026 release date for Adolescence co-creator Jack Thorne's series take on Lord of the Flies.
+---------
+
+# A Flanaverse Regular Met Mark Hamill — And Instantly Regretted Not Saying This [Exclusive]
+
+Exclusives, Henry Thomas, The Fall of the House of Usher, Mark Hamill, Awesome Con
+
+Wed, 18 Mar 2026 20:30:48 GMT
+
+https://collider.com/mark-hamill-the-fall-of-the-house-of-usher-co-star-starstruck-reaction-henry-thomas/
+
+Henry Thomas reveals his starstruck encounter with Mark Hamill on the set of The Fall of the House of Usher, sharing insight into the Flanafam.
+---------
+
+# 8 Alternate History Movies Better Than Any Period Piece
+
+Movie, Inglourious Basterds, District 9, Anastasia, History
+
+Wed, 18 Mar 2026 20:28:13 GMT
+
+https://collider.com/alternate-history-movies-better-than-period-pieces/
+
+Anastasia, District 9, Inglourious Basterds, Never Let Me Go, and more make up our list of alternate history movies better than any period piece.
+---------
+
+# This 5-Part Star Trek Rival Becomes a Must-Watch Cult Classic for Sci-Fi Fans on Apple TV
+
+TV News, Babylon 5, Star Trek, Apple TV, Sci-Fi
+
+Wed, 18 Mar 2026 20:25:38 GMT
+
+https://collider.com/babylon-5-cult-classic-sci-fi-series-star-trek-replacement-streaming-success-apple-tv-march-2026/
+
+Apple TV has successfully revived Babylon 5, with the cult classic sci-fi adventure soaring on the platform's PVOD charts.
+---------
+
+# 10 Best Panels To Attend at MegaCon Orlando 2026
+
+Movie, Fan Expo, The X-Files, Lost, Hocus Pocus
+
+Wed, 18 Mar 2026 20:22:12 GMT
+
+https://collider.com/megacon-orlando-2026-best-panels-to-attend/
+
+Covering everything from The X-Files to The Mummy, Doctor Who, and Star Trek, MegaCon Orlando 2026 is set to be one of the biggest expos of the year.
+---------
+
+# 'Toy Story 5' Should Have Made the New Buzz Lightyears Look and Sound Like Chris Evans' Version
+
+Features, Toy Story 5, Lightyear
+
+Wed, 18 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/toy-story-5-failed-lightyear-redemption/
+
+2022's 'Lightyear' made the confusing choice to recast Buzz, and no one really knew why. 'Toy Story 5' could have fixed that.
+---------
+
+# Jason Momoa's 'The Last Manhunt' Now Streaming on Tubi
+
+Movie News, The Last Manhunt
+
+Wed, 18 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/jason-momoa-last-manhunt-streaming-march-2026/
+
+The underseen western film 'The Last Manhunt' from Jason Momoa has hit free streaming.
+---------
+
+# Long-Awaited 'Hitman' TV Show Officially "Dead in the Water" at Hulu
+
+TV News, hitman, Derek Kolstad, Hulu
+
+Wed, 18 Mar 2026 19:46:28 GMT
+
+https://movieweb.com/hitman-tv-show-reboot-cancelled/
+
+Filmmaker Derek Kolstad confirmed the news, with the series first announced back in 2017.
+---------
+
 # Netflix Planning Global KPop Demon Hunters Tour With HUNTR/X Trio
 
 Movies, KPop Demon Hunters
