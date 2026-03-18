@@ -1,3 +1,443 @@
+# Netflix Planning Global KPop Demon Hunters Tour With HUNTR/X Trio
+
+Movies, KPop Demon Hunters
+
+Wed, 18 Mar 2026 19:21:33 GMT
+
+https://screenrant.com/kpop-demon-hunters-world-tour-huntrx-netflix/
+
+Days after KPop Demon Hunters took home two Academy Awards, it has been revealed that Netflix is planning a global tour for the phenomenon.
+---------
+
+# Why Invincible Season 4 “Won’t Reset” As Robert Kirkman Teases More Chaotic World For Superheroes
+
+TV, Invincible, Invincible - Season 4, Prime Video
+
+Wed, 18 Mar 2026 19:21:19 GMT
+
+https://screenrant.com/invincible-season-4-world-explained-superheroes-chaos/
+
+Exclusive: Robert Kirkman and Simon Racioppa tease a more chaotic, violent world for all of the superheroes in Prime Video's Invincible season 4.
+---------
+
+# Netflix's 3-Part Sci-Fi Series With Rare Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, Netflix, Travelers
+
+Wed, 18 Mar 2026 19:20:19 GMT
+
+https://screenrant.com/netflix-travelers-sci-fi-series-best/
+
+One of the best Netflix Sci-Fi series is a multi-season show that has a rare perfect Rotten Tomatoes score and thrives on a mind-bending concept.
+---------
+
+# Disney's New Star Wars TV Series Redeems The Best Prequel Trilogy Character, Darth Maul
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Wed, 18 Mar 2026 19:15:19 GMT
+
+https://screenrant.com/disney-star-wars-shadow-lord-darth-maul-redeem-prequel-trilogy/
+
+Discover how Disney's upcoming Star Wars animated series, Maul - Shadow Lord, is set to redeem the beloved prequel trilogy villain, Darth Maul, in a new heroic light.
+---------
+
+# Steam's Newest Free Open-World RPG Is Blowing Up
+
+Gaming, Steam, The Seven Deadly Sins, Triple-A Games, PC
+
+Wed, 18 Mar 2026 19:10:50 GMT
+
+https://screenrant.com/steam-free-open-world-rpg-trending-march-2026/
+
+A massive new RPG released on Steam this week, and it's already climbed to the top of the charts thanks to costing absolutely nothing upfront.
+---------
+
+# DC Officially Unveils Extreme Riddler Redesign for Batman's New Appearance
+
+DC Comics, The Riddler, Batman
+
+Wed, 18 Mar 2026 19:03:57 GMT
+
+https://screenrant.com/batman-official-riddler-redesign-mutant-arm/
+
+The past five years have placed the Riddler in the spotlight like never before, culminating in his latest and most extreme look yet.
+---------
+
+# Invincible Season 4 Interview with Sandra Oh
+
+Interviews, Invincible, Invincible - Season 4, Sandra Oh
+
+Wed, 18 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/video/invincible-season-4-sandra-oh-debbie-grayson-emotional-scenes-interview/
+
+Invincible star Sanda Oh, who plays Debbie Grayson, discusses her arc in season 4, how she will most likely handle Omni-Man's return, and whether she would return for the live-action.
+---------
+
+# Andrew Scott's Award-Winning Psychological Thriller Just Got Even Better 2 Years Later
+
+TV, Ripley
+
+Wed, 18 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/ripley-season-2-andrew-scott-not-happening-better/
+
+The one-season run of Andrew Scott's iconic Netflix book adaptation proves to be a refreshing change of pace in the psychological thriller genre.
+---------
+
+# Kevin Bacon's New Horror Movie Starring His Own Family Debuts With Perfect Rotten Tomatoes Score
+
+Movies, Family Movie, Horror
+
+Wed, 18 Mar 2026 18:38:27 GMT
+
+https://screenrant.com/family-movie-kevin-bacon-rotten-tomatoes-score-debut/
+
+A new horror movie that was directed by Kevin Bacon and Kyra Sedgwick, starring them and their children, earns a perfect Rotten Tomatoes score.
+---------
+
+# Netflix’s Scooby-Doo Series Officially Casts Live-Action Fred, Velma & Shaggy
+
+TV, Scooby-Doo, Netflix
+
+Wed, 18 Mar 2026 18:35:47 GMT
+
+https://screenrant.com/scooby-doo-netflix-show-shaggy-fred-velma-live-action-casting/
+
+Netflix's live-action reboot of the Scooby-Doo franchise is adding more cast members, as the whole iconic Mystery Inc. group has been set.
+---------
+
+# Apple TV's Imperfect Women Becomes an Instant Streaming Hit Despite Mixed Reviews
+
+TV, Imperfect Women, AppleTV+
+
+Wed, 18 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/imperfect-women-thriller-apple-tv-success-march-2026/
+
+The show didn't impress critics, but it attracted attention instantly after its release.
+---------
+
+# Every Scream Movie Ranked By Box Office (Including Scream 7)
+
+Movies, Scream 7, Scream, Horror
+
+Wed, 18 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/scream-movies-ranked-box-office-ranked-list/
+
+Scream 7's box office is shattering all franchise records. How does the new sequel compare to the rest of the Scream movies?
+---------
+
+# Netflix's Scooby-Doo Live-Action Series Casts Fred, Velma & Shaggy
+
+TV, Scooby-Doo, Scooby-Doo (Live Action)
+
+Wed, 18 Mar 2026 18:58:08 GMT
+
+https://www.cbr.com/netflix-scooby-doo-cast-velma-fred-shaggy/
+
+Daphne actress Mckenna Grace gets her co-stars for the live-action Scooby-Doo series revealed.
+---------
+
+# New Star Wars Game from Ubisoft Officially Confirmed for June 2026
+
+Games, Star Wars
+
+Wed, 18 Mar 2026 18:48:12 GMT
+
+https://www.cbr.com/new-star-wars-game-ubisoft-june-2026/
+
+Ubisoft has announced a new Star Wars game is coming in June, one that's made in conjunction with one of the most popular board games of all time.
+---------
+
+# Mr. Mercedes Season 2 Is the Perfect Stephen King Binge
+
+TV, Mr. Mercedes, Stephen King, Crime, Drama
+
+Wed, 18 Mar 2026 18:46:26 GMT
+
+https://www.cbr.com/stephen-king-mr-mercedes-crime-drama-rare-rotten-tomatoes-score/
+
+While everyone knows Stephen King adaptations like The Shining or IT: Welcome to Derry, Mr. Mercedes is one of his best stories.
+---------
+
+# Star Trek: Legacy Is 'Never Gonna Happen' Says TNG Icon
+
+TV, Star Trek
+
+Wed, 18 Mar 2026 18:43:37 GMT
+
+https://www.cbr.com/star-trek-legacy-marina-sirtis-update/
+
+It's not looking good for the long-awaited Star Trek spinoff.
+---------
+
+# Shaun The Sheep The Beast of Mossy Bottom   Official Trailer
+
+Movies, Shaun the Sheep: Adventures from Mossy Bottom, Shaun the Sheep
+
+Wed, 18 Mar 2026 18:30:32 GMT
+
+https://www.cbr.com/video/shaun-the-sheep-the-beast-of-mossy-bottom-trailer/
+
+GKIDS confirmed the release date and released the official trailer for Shaun The Sheep The Beast of Mossy Bottom
+---------
+
+# Mile End Kicks Cast Reveal First Concerts and Character Playlists | SXSW 2026
+
+Movies, SXSW, Mile End Kicks
+
+Wed, 18 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/video/mile-end-kicks-cast-reveal-first-concerts-and-character-playlists-sxsw-2026/
+
+What happens when a rom-com about Montreal’s 2011 indie scene has a prop vape with diva energy?The Mile End Kicks cast and director Chandler Levack break down the music, the mood, and the chaos behind the movie.
+---------
+
+# Your Name's Makoto Shinkai Praises New Anime Movie as an 'Ideal' Film
+
+Anime, Makoto Shinkai
+
+Wed, 18 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/makoto-shinkai-new-anime-movie-new-dawn-praise-ideal/
+
+Your Name director Makoto Shinkai grants his seal of approval to a new anime film directed by a former member of his animation staff.
+---------
+
+# Why Hulu Scrapped the Buffy the Vampire Slayer Reboot
+
+TV, Buffy The Vampire Slayer, Hulu, Horror
+
+Wed, 18 Mar 2026 18:29:46 GMT
+
+https://www.cbr.com/buffy-reboot-canceled-reason-why-hulu/
+
+Buffy the Vampire Slayer fans were shocked to learn Hulu canceled the highly anticipated reboot.
+---------
+
+# Fleetwood Mac's Stevie Nicks Got "Burned Out" Listening to This Legendary 1960s Band
+
+Music Features, Fleetwood Mac, Stevie Nicks, Music, Rock, The Beatles
+
+Wed, 18 Mar 2026 19:21:17 GMT
+
+https://collider.com/fleetwood-mac-stevie-nicks-got-burned-out-listening-to-the-beatles/
+
+Stevie Nicks of Fleetwood Mac found inspiration in The Beatles but eventually grew tired of the overexposure, turning to other iconic artists like Diana Ross and Aretha Franklin for her own musical influences.
+---------
+
+# 10 Awful Movie Sequels That Felt Rushed
+
+Movie, Wonder Woman 1984, Superman IV: The Quest for Peace, Transformers: Revenge of the Fallen, Sequel
+
+Wed, 18 Mar 2026 19:19:13 GMT
+
+https://collider.com/worst-movie-sequels-felt-rushed/
+
+Wonder Woman 1984, Cars 2, and Huntsman: Winter's War are inferior sequels that clearly suffered from rushed productions.
+---------
+
+# 25 Years After Lord of the Rings, Sean Bean’s Gritty New Fantasy Series Makes an Incredible Streaming Comeback
+
+TV News, The Lord of the Rings, Sean Bean, Robin Hood (2025), MGM
+
+Wed, 18 Mar 2026 19:08:31 GMT
+
+https://collider.com/sean-bean-fantasy-series-robin-hood-streaming-success-mgm-plus-march-2026/
+
+Sean Bean's latest fantasy project, an adaptation of Robin Hood, has returned to the streaming charts in the U.S. Read on for more.
+---------
+
+# 44 Years Later, Stephen King’s Upcoming Dark Fantasy Series Could Become TV’s Next Great Western
+
+TV Features, Stephen King, The Dark Tower, Mike Flanagan, Prime Video
+
+Wed, 18 Mar 2026 19:00:12 GMT
+
+https://collider.com/stephen-king-the-dark-tower-prime-video-next-great-western/
+
+Stephen King's greatest book series, the Dark Tower, is set to become a television series and could be the boost the Western genre needs.
+---------
+
+# 18 Years Later, Val Kilmer's Stellar Western Miniseries Is Perfect for 'Tombstone' Fans
+
+TV Features, Comanche Moon, Val Kilmer, Western, Lonesome Dove
+
+Wed, 18 Mar 2026 19:00:12 GMT
+
+https://collider.com/comanche-moon-western-prequel-lonesome-dove/
+
+The Lonesome Dove prequel Comanche Moon, which stars Val Kilmer, Karl Urban, and Elizabeth Banks, explores a different side of the iconic Western.
+---------
+
+# 10 Greatest Movie Franchises That Are the Perfect Weekend Binge
+
+Movie, John Wick, Predator: Badlands, Harry Potter, The Evil Dead
+
+Wed, 18 Mar 2026 18:52:12 GMT
+
+https://collider.com/best-movie-franchises-perfect-weekend-binge/
+
+Great movie franchises like Mad Max, John Wick, and Harry Potter have enough movies to perfectly binge over a weekend without becoming overwhelming.
+---------
+
+# Scooby-Doo's Most Legendary Characters Are Officially Back With New Netflix Cast
+
+TV News, Scooby-Doo, Netflix, Mckenna Grace
+
+Wed, 18 Mar 2026 18:47:59 GMT
+
+https://collider.com/netflix-scooby-doo-reboot-cast-fred-velma-shaggy-maxwell-jenkins-ryder-fortson-tanner-hagen/
+
+Netflix's Scooby-Doo has cast every member of Mystery Inc except the talking dog himself as Reacher and The Pitt stars join the cast.
+---------
+
+# Forget Captain America: Chris Evans' $40 Million Post-Apocalyptic Sci-Fi Conquers Global Streaming
+
+Movie News, Chris Evans, Fallout, Pluto TV, Snowpiercer
+
+Wed, 18 Mar 2026 18:43:49 GMT
+
+https://collider.com/chris-evans-sci-fi-masterpiece-snowpiercer-streaming-success-pluto-tv-march-2026/
+
+Chris Evans' 2014 sci-fi thriller Snowpiercer, directed by Oscar-winner Bong Joon Ho, is a streaming hit in the U.S. Find out where here.
+---------
+
+# Netflix's 4-Part 'Reacher' Competitor Is Taking Over The World (But Is Already Losing Steam)
+
+TV News, Netflix, Reacher, The Night Agent, Drama
+
+Wed, 18 Mar 2026 18:17:09 GMT
+
+https://collider.com/netflix-reacher-replacement-the-night-agent-streaming-drop-march-2026-after-season-4-renewal/
+
+A top Netflix thriller’s latest season is cooling faster than expected worldwide despite a fresh renewal. Read on for more details.
+---------
+
+# 'Lilo & Stitch 2' Officially Sets Release Date Following Remake's $1B Box Office Domination
+
+Movie News, Lilo & Stitch 2, Lilo & Stitch, Disney
+
+Wed, 18 Mar 2026 17:47:48 GMT
+
+https://collider.com/lilo-and-stitch-2-release-date-may-26-2028-disney-remake-live-action/
+
+Disney has officially set a release date for live-action remake sequel Lilo & Stitch 2 following $1B+ box office haul in 2025.
+---------
+
+# Netflix's 'Scooby-Doo' Series Casts Fred, Velma, Shaggy & Scooby-Doo
+
+TV News, Scooby-Doo, Netflix
+
+Wed, 18 Mar 2026 19:25:39 GMT
+
+https://movieweb.com/netflixs-scooby-doo-series-rounds-out-cast-to-play-iconic-main-crew/
+
+Netflix now has the four main actors playing Shaggy Rogers, Fred Jones, Velma Dinkley, and Daphne Blake set for the new 'Scooby-Doo' show.
+---------
+
+# Prime Video's Divisive Pirate Action Thriller 'The Bluff' Continues to Dominate Streaming
+
+Movie News, The Bluff, Karl Urban, Action, Thriller, Prime Video
+
+Wed, 18 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/the-bluff-stream-prime-march-2026/
+
+Starring Priyanka Chopra and Karl Urban, 'The Bluff' has found an audience thanks to its 'John Wick'-style action with a 19th-century period twist.
+---------
+
+# 10 Movies & TV Shows That Listened to Audiences' Perfect Fancasting Suggestions
+
+Movie Lists
+
+Wed, 18 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/movies-tv-shows-listened-to-audiences-perfect-fancasting/
+
+These iconic movies and TV shows succeeded for a few reasons, but especially because they took the time to listen to audiences' fancasting ideas.
+---------
+
+# 'The Incredibles 3' Lands 2028 Release Date From Disney & Pixar
+
+Movie News, Incredibles 3, Disney
+
+Wed, 18 Mar 2026 18:34:36 GMT
+
+https://movieweb.com/the-incredibles-3-release-date/
+
+Disney and Pixar's 'Incredibles 3' is now set to come to theaters in the spring of 2028, as Bob Parr, Helen Parr, and their kids get set for battle.
+---------
+
+# First Look at Ella Purnell in Season 2 of 'Sweetpea' Released
+
+TV News, Ella Purnell, Sweetpea
+
+Wed, 18 Mar 2026 18:21:06 GMT
+
+https://movieweb.com/sweetpea-season-2-ella-purnell-photo/
+
+The Starz series is set to return sometime later this year.
+---------
+
+# 'Lilo & Stitch 2' Gets Release Date From Disney
+
+Movie News, Lilo & Stitch 2, Lilo & Stitch
+
+Wed, 18 Mar 2026 18:11:24 GMT
+
+https://movieweb.com/lilo-stitch-2-remake-release-date/
+
+Disney's new CEO Josh D'Amario has announced that 'Lilo & Stitch 2' will open in theaters over Memorial Day weekend 2028.
+---------
+
+# 'Euphoria' Season 3 Gets "Whirlwind" Tease by Zendaya
+
+TV News, Euphoria, Zendaya Coleman
+
+Wed, 18 Mar 2026 18:09:22 GMT
+
+https://movieweb.com/zendaya-whirlwind-euphoria-season-3/
+
+The actress spoke about the crunched shooting schedule at the premiere of her new film 'The Drama.'
+---------
+
+# Netflix & Crunchyroll's 'Dandadan' is the Best Sci-Fi Show in Years
+
+Features, Dandadan, Netflix, Sci-Fi
+
+Wed, 18 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/dandadan-sci-fi-masterpiece-future-classic/
+
+Netflix and Crunchyroll's two-season sci-fi action anime 'Dandadan' is a future classic of the science fiction genre. Season 3 is in the works.
+---------
+
+# 'Reacher' Could Go on Forever, But Alan Ritchson's Dream Role Sounds Better
+
+Movie, Reacher, metal gear solid, Alan Ritchson
+
+Wed, 18 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/alan-ritchson-metal-gear-solid-snake/
+
+Alan Ritchson, who stars in Amazon Prime Video's hit action thriller series 'Reacher,' has shared that he would love to play this iconic role.
+---------
+
+# Most Memorable Movie Characters With an Eye Patch
+
+Movie Lists
+
+Wed, 18 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/most-iconic-characters-with-an-eye-patch/
+
+Adding mystery and danger, the eye patch is a memorable and timeless mark on many great heroes and villains.
+---------
+
 # Jean-Claude Van Damme's R-Rated Action Classic Getting A24 Reboot With MCU Star
 
 Movies, Bloodsport
