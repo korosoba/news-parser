@@ -1,3 +1,355 @@
+# Elden Ring Gets Unexpected Official Release On March 31
+
+Gaming, Elden Ring, PC
+
+Wed, 18 Mar 2026 04:00:25 GMT
+
+https://screenrant.com/elden-ring-malenia-messmer-march-31-release/
+
+Elden Ring fans are officially getting a completely unexpected new release on March 31, 2026, and you definitely won't want to miss this one.
+---------
+
+# Forget Autobots vs Decepticons, A New Transformers Faction Is Born
+
+Comics, Transformers
+
+Wed, 18 Mar 2026 03:19:15 GMT
+
+https://screenrant.com/new-transformers-faction-energon-universe-notobots/
+
+In the wake of a major status quo change for the Autobots, a brand-new faction of Transformers was just formed in Skybound's Energon Universe.
+---------
+
+# 6 BookTok Books That Need To Become TV Shows
+
+Books, Romance, Fantasy
+
+Wed, 18 Mar 2026 03:17:10 GMT
+
+https://screenrant.com/6-booktok-books-that-need-to-become-tv-shows/
+
+Discover 6 captivating BookTok books that deserve an onscreen adaptation, offering complex stories and relatable themes for a TV audience.
+---------
+
+# How Brad Pitt’s $633 Million Blockbuster Perfectly Sets Up The Dynamic Lanterns Is Going For
+
+Superheroes, Lanterns, DC Universe, F1
+
+Wed, 18 Mar 2026 02:02:27 GMT
+
+https://screenrant.com/how-brad-pitt-f1-perfectly-sets-up-the-dynamic-for-lanterns-dc/
+
+Remarkably, Brad Pitt's $633 million blockbuster looks to be a perfect blueprint for the dynamics we'll be seeing in DC's Lanterns show.
+---------
+
+# Apple TV's Hit Sci-Fi Series Murderbot Will Become More Cyberpunk In Season 2
+
+Streaming TV, Murderbot, Apple TV
+
+Wed, 18 Mar 2026 01:15:19 GMT
+
+https://screenrant.com/murderbot-season-2-more-cyberpunk-apple-tv-sci-fi/
+
+Murderbot Season 2 leans into the cyberpunk genre, exploring a corporate mining installation and darker themes, while maintaining its comedic elements and endearing characters.
+---------
+
+# 7 Near-Perfect Manga That Will Never Get Anime Adaptations
+
+Anime
+
+Wed, 18 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/manga-perfect-never-get-anime-adaptation/
+
+Explore seven highly acclaimed manga series that, despite their popularity, are unlikely to ever receive anime adaptations.
+---------
+
+# CBS Officially Ends NCIS After 34 Years
+
+Network TV, NCIS
+
+Wed, 18 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/ncis-shut-down-after-34-years/
+
+In a jaw-dropping plot twist, CBS ends NCIS season 23, episode 12 with the massive revelation that the agency is officially shutting down.
+---------
+
+# 11 TV Shows We Thought Would Be The Next Lost
+
+Classic TV, Lost
+
+Wed, 18 Mar 2026 00:45:19 GMT
+
+https://screenrant.com/mystery-tv-shows-almost-next-lost/
+
+Lost is one of the most influential mystery series of all time, but potential successors have popped up over the years— only to remain in its shadow.
+---------
+
+# DC Confirms That Absolute Robin is Basically Joker’s Son
+
+Comics, Batman
+
+Wed, 18 Mar 2026 00:37:34 GMT
+
+https://screenrant.com/batman-new-robin-raised-joker-absolute-universe/
+
+Scott Snyder's Absolute Batman run is close to finally debuting its Robins, whose relationship with Joker is as twisted as you can imagine.
+---------
+
+# Ahead of Wonder Woman’s New Appearance, DC Officially Drops First Look at the Next-Gen Trinity Team
+
+DC Comics, Wonder Woman
+
+Wed, 18 Mar 2026 00:30:19 GMT
+
+https://screenrant.com/wonder-woman-new-appearance-dc-next-gen-trinity-team/
+
+DC has just embarked on a brand-new era for its heroes and villains, and Wonder Woman is no exception.
+---------
+
+# Prime Video’s New Hit Scarpetta Already Shooting Season 2 Days After Premiere
+
+TV, Scarpetta, Prime Video
+
+Wed, 18 Mar 2026 03:51:42 GMT
+
+https://www.cbr.com/scarpetta-season-2-starts-filming-prime-video/
+
+Just days after the first season's streaming premiere on Prime Video, new episodes are already in production.
+---------
+
+# 5 Must-Watch Crunchyroll Anime Debuting in Spring 2026
+
+Anime, Crunchyroll, Daemons of the Shadow Realm, Witch Hat Atelier
+
+Wed, 18 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/crunchyroll-best-new-anime-spring-2026/
+
+Crunchyroll is one of the best destinations to stream anime and it's set to showcase some especially strong series in the upcoming Spring 2026 season.
+---------
+
+# Fantasy Shows Better Than Game of Thrones
+
+TV, Fantasy, Game Of Thrones, Percy Jackson & the Olympians, His Dark Materials
+
+Wed, 18 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/fantasy-shows-beat-game-of-thrones-list/
+
+Although HBO's Game of Thrones is considered one of the best fantasy shows ever on TV, series like Percy Jackson and House of the Dragon do it better.
+---------
+
+# Gundam Reveals 2 New Exclusive High Grade Gunpla Model Kits for First-Time Bandai Release
+
+Anime, merchandise, toys, Mobile Suit Gundam, bandai
+
+Wed, 18 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/bandai-gundam-hoshimachi-suisei-gunpla-model-kit-reveal/
+
+The first two hololive VTuber x Mobile Suit Gundam kits have been revealed, presenting two of the most iconic mobile suits in a different 'tune.'
+---------
+
+# The First Dune: Part Three Trailer Finally Shows the War the Books Skipped
+
+Movies, Sci-Fi, Dune: Part Three
+
+Wed, 18 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/dune-part-three-trailer-shows-war-dune-messiah-skipped/
+
+Paul Atredies and his Fremen return to the big screen in 2026, and it is finally fixing Dune: Messiah's biggest missing part.
+---------
+
+# Hulu's Paradise Pulls Off TV's Rarest Genre Trick
+
+TV, Paradise, Hulu, Sci-Fi
+
+Wed, 18 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/hulu-paradise-season-2-genre-shift/
+
+This Hulu series has evolved from a political thriller to a post-apocalyptic drama and will probably move into sci-fi in an upcoming season.
+---------
+
+# The Greatest Open-World Games Ever Made, Ranked
+
+Games, Fallout, Red Dead Redemption 2, Elden Ring, open world
+
+Wed, 18 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/most-epic-open-world-games-masterpiece-elden-ring/
+
+The open-world genre is a little overcrowded these days, but these games will always be classics.
+---------
+
+# Prime Video’s Deadloch Finally Returns This Week After 3-Year Hiatus
+
+TV, Deadloch
+
+Wed, 18 Mar 2026 03:00:35 GMT
+
+https://www.cbr.com/deadloch-season-2-prime-video-march-2026/
+
+It's taken three years for new episodes to arrive on Prime Video, but it's finally happening this week.
+---------
+
+# 10 '80s Action Gems To Watch Before The 40th Anniversary Of Aliens
+
+Movies, aliens, Action
+
+Wed, 18 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/10-80s-action-gems-to-watch-before-the-40th-anniversary-of-aliens/
+
+With the 40th anniversary of Aliens just around the corner, these 10 80's masterpieces are must-watch gems for fans of James Cameron's action epic.
+---------
+
+# This Short & Sweet Rom-Com With Near-Perfect Ratings Finally Returns to TV This Spring
+
+Anime, The Angel Next Door Spoils Me Rotten, Romance
+
+Wed, 18 Mar 2026 02:55:12 GMT
+
+https://www.cbr.com/crunchyroll-good-ratings-angel-next-door-spoils-me-rotten-season-2/
+
+The Angel Next Door Spoils Me Rotten is finally returning for an improved second season that's set to reach greater heights and tease a bright future.
+---------
+
+# Netflix’s 8-Part Sci-Fi Thriller Is One of the Best Shows on Any Streaming Platform
+
+TV Features, Bodies, Netflix, Stephen Graham, Sci-Fi
+
+Wed, 18 Mar 2026 03:04:12 GMT
+
+https://collider.com/netflix-sci-fi-thriller-bodies-best-shows/
+
+In 2023, Netfix released one of its best sci-fi thrillers to date with Bodies, starring Adolescence’s very own Stephen Graham.
+---------
+
+# Apple TV's Ridiculous 4-Part Comedy Is Still the Best Binge-Watch
+
+TV Features, Mythic Quest, Sitcom, Comedy, Apple TV
+
+Wed, 18 Mar 2026 03:00:13 GMT
+
+https://collider.com/mythic-quest-apple-tv-comedy-best-binge-watch/
+
+Apple TV's forgotten series Mythic Quest, starring Rob Mac, Danny Pudi, and Charlotte Nicdao, remains a fun, silly binge for comedy fans.
+---------
+
+# Hulu’s Best 6-Part Western Quietly Turns Into a Crime Thriller
+
+TV Features, Justified, Timothy Olyphant, Walton Goggins, Margo Martindale
+
+Wed, 18 Mar 2026 03:00:13 GMT
+
+https://collider.com/justified-hulu-best-western-crime-show/
+
+Justified's top-notch writing and memorable characters set it apart from other crime dramas of the 21st century.
+---------
+
+# All 10 Paul Thomas Anderson Movies, Ranked by Entertainment Value
+
+Movie, Paul Thomas Anderson, There Will Be Blood, Boogie Nights, One Battle After Another
+
+Wed, 18 Mar 2026 02:59:14 GMT
+
+https://collider.com/paul-thomas-anderson-movies-ranked-entertainment-value/
+
+From Boogie Nights to the Oscar-winning One Battle After Another, we've ranked every Paul Thomas Anderson movie by entertainment value.
+---------
+
+# 'High Potential's Latest Twisty Season 2 Episode Brings Back Its Most Suspicious Character |  Review
+
+TV Reviews, High Potential, Kaitlin Olson, Procedural, ABC
+
+Wed, 18 Mar 2026 02:00:24 GMT
+
+https://collider.com/high-potential-season-2-episode-15-recap-review-captain-wagner-return/
+
+In the latest episode of High Potential, Captain Wagner returns with a suspicious interest in the Roman investigation.
+---------
+
+# 'Will Trent’s Latest Shocking Season 4 Twist Will Be a Massive Game-Changer
+
+Exclusives, Will Trent, Ramon Rodriguez
+
+Wed, 18 Mar 2026 01:02:12 GMT
+
+https://collider.com/will-trent-season-4-episode-11-ramon-rodriguez/
+
+Ramón Rodríguez discusses Will Trent Season 4, shooting in Puerto Rico, and how the roller coaster of Episode 11 will continue until the finale.
+---------
+
+# Shonda Rhimes Shares Next 'Bridgerton' Star She's Considering for Spin-Off
+
+TV News, Bridgerton, Queen Charlotte: A Bridgerton Story, Netflix, Shonda Rhimes
+
+Wed, 18 Mar 2026 02:40:31 GMT
+
+https://movieweb.com/shonda-rhimes-shares-next-bridgerton-star-spin-off/
+
+It's time this fan favorite got her moment in the sun.
+---------
+
+# 8 Upcoming Netflix Shows You Cannot Miss
+
+TV Lists, Netflix
+
+Wed, 18 Mar 2026 02:00:29 GMT
+
+https://movieweb.com/upcoming-netflix-shows-must-watch/
+
+Netflix has an exciting upcoming schedule of TV shows in 2026, from the Duffer Brothers' new shows to a reboot of a classic story.
+---------
+
+# 12 Box Office Flops That Overcame Backlash & Became Classic Movies
+
+Movie Lists, Drama, Sci-Fi, Comedy
+
+Wed, 18 Mar 2026 01:00:17 GMT
+
+https://movieweb.com/box-office-flops-became-classic-movies/
+
+These films persist as classics among fans, but many don't even realize they flopped at the box office when they were first released.
+---------
+
+# 'The Super Mario Galaxy' Promo Features Pikmin and R.O.B.
+
+Movie News, The Super Mario Galaxy Movie
+
+Wed, 18 Mar 2026 00:33:07 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-cameos-pikmin-rob/
+
+Two non-Mario-related characters will appear in 'The Super Mario Galaxy Movie', potentially setting up a 'Smash Bros.' adaptation.
+---------
+
+# 10 Ongoing 10/10 Mystery Thriller Series That Just Keep Getting Better
+
+TV Lists, Thriller
+
+Wed, 18 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/mystery-thriller-series-keep-getting-better/
+
+From an Amazon Prime Video crime thriller to a comedy thriller on Netflix, these TV shows improve every season.
+---------
+
+# Riz Ahmed Admits Even He Asked 'Andor' Head Why His 'Rogue One' Rebel Didn't Appear
+
+TV News, Rogue One: A Star Wars Story, Riz Ahmed, Andor
+
+Tue, 17 Mar 2026 23:57:57 GMT
+
+https://movieweb.com/star-wars-andor-riz-ahmed-missing-explained/
+
+Fans were hoping to see more of Bodhi Rook in the prequel, but Tony Gilroy confirmed that the timelines would have gotten too complicated.
+---------
+
 # Mark Wahlberg’s Cult Crime Thriller Is About To Leave Netflix
 
 Movies, Mark Wahlberg, Netflix, Four Brothers
