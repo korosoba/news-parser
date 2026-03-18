@@ -1,3 +1,366 @@
+# Prime Video's New Reboot Of Iconic 37-Year-Old Series Officially Releases Next Month
+
+TV, American Gladiators
+
+Wed, 18 Mar 2026 22:43:09 GMT
+
+https://screenrant.com/prime-video-american-gladiators-reboot-release-date/
+
+Prime Video's new reboot of an iconic 37-year-old series officially releases next month, as new key art has also been revealed to audiences.
+---------
+
+# Marathon’s New Ranked Mode Is Super Weird… And Genius
+
+Gaming, Marathon, Live Service Games, PC
+
+Wed, 18 Mar 2026 22:33:58 GMT
+
+https://screenrant.com/marathon-ranked-mode-explained-good/
+
+A Ranked game mode feels almost incompatible with the extraction shooter genre, but Marathon has a bizarre new system that just might work.
+---------
+
+# Moon Knight's Nemesis Gets Hardcore Redesign in New Comic Appearance
+
+Comics, Moon Knight
+
+Wed, 18 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/moon-knight-bushman-return-redesign/
+
+Very intense.
+---------
+
+# 6 Biggest Problems Doctor Who Needs To Fix In Season 16
+
+Streaming TV, Doctor Who
+
+Wed, 18 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/doctor-who-season-16-problems-fix/
+
+Doctor Who season 16 could be make or break for the longest-running sci-fi show on TV, but it needs to get some essential elements in place first.
+---------
+
+# Bosch’s Prime Video Successor Just Added A TV Crime Legend To Its Cast
+
+Streaming TV, Ballard, Law & Order
+
+Wed, 18 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/ballard-season-2-bosch-spinoff-benjamin-bratt-casting/
+
+Prime Video's Bosch successor made a great start last year, but with this legendary addition to the cast it's surely about to get even better.
+---------
+
+# Spider-Man Trailer Includes Lookalike for X-Men's Rogue
+
+Comics, Spider-Man: Brand New Day, X-Men
+
+Wed, 18 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/new-spider-man-trailer-x-men-rogue-brand-new-day/
+
+Spider-Man: Brand New Day's trailer is packed with villains, but we think it may also show an X-Men icon lurking in the background.
+---------
+
+# Crimson Desert Review: Ambitious To A Fault
+
+Gaming, Crimson Desert
+
+Wed, 18 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/crimson-desert-pc-review/
+
+Crimson Desert is an admirably ambitious RPG that offers up a ton of interesting ideas, but they never really come together into a cohesive whole.
+---------
+
+# Netflix’s 6-Part Series Is The Perfect One-Night Binge Before Season 2
+
+Streaming TV, Netflix, Free Bert
+
+Wed, 18 Mar 2026 21:48:20 GMT
+
+https://screenrant.com/netflix-free-bert-season-2-watch/
+
+Free Bert, the 6-part Netflix comedy series starring Bert Kreischer, is the perfect one-night binge after its success & before its season 2 release.
+---------
+
+# Forgotten Animated Shows: 10 Underrated Gems From The Past
+
+Classic TV
+
+Wed, 18 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/near-perfect-animated-shows-nobody-remembers/
+
+There are many near-perfect animated TV shows that became forgettable for different reasons unrelated to their quality, but they are worth revisiting.
+---------
+
+# 31 Years Later, Elaine Benes' Greatest Seinfeld Line Is Still One Of The Funniest Quotes In Sitcom History
+
+Classic TV, Seinfeld
+
+Wed, 18 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/seinfeld-elaine-benes-funniest-quote-sitcom-history/
+
+In the Seinfeld season 6 premiere, "The Chaperone", Elaine (Julia Louis-Dreyfus) delivers her funniest, and most telling, line of the series.
+---------
+
+# All of Yuji Itadori's Forms, Ranked By Strength
+
+Anime, Jujutsu Kaisen
+
+Wed, 18 Mar 2026 22:55:18 GMT
+
+https://www.cbr.com/jjk-yuji-itadori-strongest-forms-ranked/
+
+Jujutsu Kaisen's protagonist has numerous breakthroughs as a sorcerer, each of which leaves him stronger than the last.
+---------
+
+# Undertone Director Teases Trilogy Plans As A24 Horror Film Smashes Box Office
+
+Movies, undertone
+
+Wed, 18 Mar 2026 22:00:45 GMT
+
+https://www.cbr.com/undertone-ending-sequel-interview/
+
+Ian Tuason says the Undertone ending is purposely ambiguous because he plans to continue the story: ""You'll see Evy again."
+---------
+
+# Why Marty Supreme's Brutal Oscars Shutout Is Not Timothée Chalamet's Fault
+
+Movies, Marty Supreme, Oscars, Sinners
+
+Wed, 18 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/marty-supreme-oscar-loss-not-timothee-chalamet-fault/
+
+Marty Supreme was overhyped before it inevitably underdelivered
+---------
+
+# Billy Butcher May Become The Boys' Biggest Villain in Final Season
+
+TV, The Boys, Prime Video
+
+Wed, 18 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/the-boys-season-5-billy-butcher-best-bait-switch-tv-history/
+
+As The Boys approaches its finale, Billy Butcher's dark transformation threatens to make him the show's most sinister villain, surpassing Homelander.
+---------
+
+# Crimson Desert Officially Lives Up to the Hype
+
+Games, open world, Crimson Desert
+
+Wed, 18 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/crimson-desert-review-biggest-open-world-games/
+
+Crimson Desert combines the best of open-world games and forges its own identity.
+---------
+
+# Amazon's Fallout Star Raises Doubts About Season 3 Return
+
+TV, Fallout
+
+Wed, 18 Mar 2026 21:47:32 GMT
+
+https://www.cbr.com/fallout-season-3-prime-video-justin-theroux-return-doubts/
+
+Prime Video's Fallout might not bring back an important character for Season 3.
+---------
+
+# Netflix Plans KPop Demon Hunters Global Concert Tour Ahead of 2029 Sequel
+
+Movies, KPop Demon Hunters, Netflix, Animation
+
+Wed, 18 Mar 2026 21:40:43 GMT
+
+https://www.cbr.com/kpop-demon-hunters-concert-tour/
+
+Netflix is bringing the animated K-Pop idols of KPop Demon Hunters on a global concert tour, targeting major cities ahead of the 2029 sequel.
+---------
+
+# 10 Pokémon Games That Have Aged the Best, Ranked
+
+Games, Pokemon, Nintendo, retro games
+
+Wed, 18 Mar 2026 21:30:13 GMT
+
+https://www.cbr.com/pokemon-games-aged-well-ranked-list/
+
+The best classic Pokémon games feel like they haven't aged a day.
+---------
+
+# Prime Video's Post-Apocalyptic Hit Fallout Continues Global Domination
+
+TV, Fallout, Sci-Fi, Prime Video
+
+Wed, 18 Mar 2026 21:30:13 GMT
+
+https://www.cbr.com/fallout-sc-fi-dystopian-prime-video-success-march-2026/
+
+Prime Video's post-apocalyptic series Fallout remains a global streaming sensation, dominating charts worldwide even a month after its finale.
+---------
+
+# Ashley Park & Cast Talk Basic’s Wild Social Media Truth | SXSW 2026
+
+Movies, SXSW
+
+Wed, 18 Mar 2026 21:30:13 GMT
+
+https://www.cbr.com/video/ashley-park-cast-talk-basic-s-wild-social-media-truth-sxsw-2026/
+
+What if your biggest relationship rival… isn’t your partner, but their past online?At SXSW, Ashley Park, Taylor John Smith, Chelsea Devantez, and Ashley Nicolle Black unpack the very real story that inspired Basic—and how social media quietly rewires modern relationships.From “deep liking” spirals to finstas and accidental online rivalries, this conversation dives into the film’s core idea: sometimes the real conflict isn’t your partner—it’s the version of their past you can’t stop scrolling.
+---------
+
+# Nicole Kidman’s “Berserk” 8-Part 'Reacher' Successor Bamboozles ‘Young Sherlock’ on Prime Video
+
+TV News, Nicole Kidman, Scarpetta, Young Sherlock, Prime Video
+
+Wed, 18 Mar 2026 22:49:27 GMT
+
+https://collider.com/nicole-kidman-reacher-replacement-crime-thriller-scarpetta-overtakes-young-sherlock-streaming-success-prime-video-march-2026/
+
+Nicole Kidman's new series, Scarpetta, has replaced Guy Ritchie's Young Sherlock as Prime Video's number one show. Find out more.
+---------
+
+# Say Goodbye to Your Weekend, Hulu’s 2-Part Sci-Fi Thriller Is Crushing Again
+
+TV Features, Paradise, Hulu, Sterling K. Brown, Sci-Fi
+
+Wed, 18 Mar 2026 22:42:13 GMT
+
+https://collider.com/hulu-sci-fi-thriller-paradise-streaming-success/
+
+Season 2 of Paradise changed its pace and focus, but has continued to be a streaming hit on Hulu.
+---------
+
+# 25 Greatest Steamy Movies of All Time, Ranked
+
+Movie, The Handmaiden, Y Tu Mamá También, Basic Instinct, Body Heat
+
+Wed, 18 Mar 2026 22:31:13 GMT
+
+https://collider.com/best-erotic-movies-of-all-time-ranked/
+
+The Handmaiden, The Dreamers, and Wild Things are all among the absolute greatest and steamiest erotic movies ever made.
+---------
+
+# 10 Drama Movie Masterpieces With Great Acting, Ranked
+
+Movie, Drama, Amadeus, Raging Bull, The Godfather Part II
+
+Wed, 18 Mar 2026 22:22:13 GMT
+
+https://collider.com/best-drama-movie-masterpieces-great-acting-ranked/
+
+Drama masterpieces like There Will Be Blood and Amadeus prove unforgettable acting is what turns powerful stories into timeless cinema.
+---------
+
+# Exactly 1 Year After ‘Adolescence’, Netflix’s Must-Watch Companion Piece Becomes an Instant Streaming Hit
+
+Movie News, Adolescence, Netflix, Stephen Graham, Louis Theroux: Inside the Manosphere
+
+Wed, 18 Mar 2026 22:12:33 GMT
+
+https://collider.com/netflix-adolescence-replacement-crime-documentary-louis-theroux-inside-the-manosphere-streaming-success-march-2026/
+
+One year after Netflix's Adolescence took the world by storm, the new companion piece Into the Manosphere has emerged as an instant hit.
+---------
+
+# Best Picture Oscar Winners of the 21st Century, Ranked
+
+Movie, Academy Awards, One Battle After Another, Oppenheimer, Parasite
+
+Wed, 18 Mar 2026 21:51:13 GMT
+
+https://collider.com/best-picture-oscar-winners-21st-century-ranked/
+
+We are revisiting every Best Picture winner of the 21st century, from Gladiator to One Battle After Another, and ranking them from worst to best.
+---------
+
+# 'Spider-Man: Brand New Day' Trailer Finally Fixes the Issue With Marvel TV Shows
+
+Movie Features, Spider-Man: Brand New Day, Daredevil: Born Again, Marvel Studios, Tom Holland
+
+Wed, 18 Mar 2026 21:40:17 GMT
+
+https://collider.com/spider-man-brand-new-day-daredevil-connections-marvel-tv-shows-fix/
+
+The new Spider-Man movie is a step in the right direction for Marvel's continuity issues.
+---------
+
+# You Don’t Have Long To Watch This Absurdly Tense Oscar-Winning Movie Leaving Netflix Soon
+
+Movie Features, Free Solo, Netflix, Documentary, Sports
+
+Wed, 18 Mar 2026 21:30:13 GMT
+
+https://collider.com/free-solo-documentary-netflix/
+
+Free Solo, the Oscar-winning documentary about free solo climber Alex Honnold, is leaving Netflix soon.
+---------
+
+# HBO’s Near-Perfect 13-Part Satire Series Is Still the Smartest Weekend Binge on Streaming
+
+TV Features, John Oliver, Last Week Tonight With John Oliver, HBO Max, The Daily Show
+
+Wed, 18 Mar 2026 21:17:12 GMT
+
+https://collider.com/john-oliver-last-week-tonight-smartest-weekend-binge/
+
+John Oliver leaves no stone unturned in his weekly news show that tackles some of America's most pressing issues.
+---------
+
+# Critical Role Star Officially Confirms Campaign 4 Crossover Episodes [Exclusive]
+
+Gaming News, Awesome Con, Critical Role, Gaming, Fantasy
+
+Wed, 18 Mar 2026 21:17:10 GMT
+
+https://collider.com/critical-role-campaign-4-multi-party-crossover-episodes-release-update/
+
+Sam Riegel reveals Critical Role’s ambitious Campaign 4 crossover episodes were filmed last fall and could arrive soon.
+---------
+
+# Influencers Livvy Dunne, Noah Beck, & Brooks Nader Shine in 'Baywatch' Set Photos
+
+TV News, Baywatch
+
+Wed, 18 Mar 2026 22:02:13 GMT
+
+https://movieweb.com/first-look-at-baywatch-reboot-reveals-influencer-filled-cast/
+
+New set photos from the upcoming 'Baywatch' reboot showed influencers Livvy Dunne, Noah Beck, and Brooks Nader in action on the beach.
+---------
+
+# First Look at Val Kilmer's Posthumous AI Appearance in 'As Deep as the Grave'
+
+Movie News, Val Kilmer
+
+Wed, 18 Mar 2026 22:00:54 GMT
+
+https://movieweb.com/val-kilmer-ai-movie-first-look/
+
+The actor and his estate supported his digital likeness being used for the film he signed on to before his passing.
+---------
+
+# Apple TV's Steamy Thriller 'Imperfect Women' Is a Must-Watch
+
+Features, Imperfect Women
+
+Wed, 18 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/imperfect-women-must-watch-thriller/
+
+'Imperfect Women' is a fun new thriller series on AppleTV starring Kate Mara and Kerry Washington.
+---------
+
 # Prime Video’s 10-Part Sci-Fi Series Is Like A Secret Season Of Black Mirror
 
 TV, Black Mirror, Electric Dreams
