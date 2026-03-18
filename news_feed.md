@@ -1,3 +1,157 @@
+# Jack Ryan Season 5: Why It's Not Happening, Sequel Movie & Spinoff Plans
+
+TV, Tom Clancy's Jack Ryan, Upcoming Releases
+
+Wed, 18 Mar 2026 23:46:20 GMT
+
+https://screenrant.com/jack-ryan-season-5-not-happening-franchise-future-everything-we-know/
+
+Jack Ryan season 5 is not going to happen on Prime Video, but that does not mean the end of Tom Clancy's world and here is what is coming next.
+---------
+
+# Marvel Officially Kills Off Guardian Of The Galaxy Blackjack O'Hare
+
+Marvel Comics, Guardians of the Galaxy, Thor, Marvel
+
+Wed, 18 Mar 2026 23:45:02 GMT
+
+https://screenrant.com/thor-kill-off-hero-guardians-galaxy/
+
+Marvel delivers a brutal death for a beloved Guardian of the Galaxy character right as they were getting the prominence they long deserved.
+---------
+
+# Elisabeth Moss' Divisive Apple TV Show Imperfect Women Continues An Unfortunate Thriller Trend
+
+Streaming TV, Imperfect Women, Elisabeth Moss
+
+Wed, 18 Mar 2026 23:30:20 GMT
+
+https://screenrant.com/elisabeth-moss-apple-tv-thriller-imperfect-women-rotten-tomatoes-trend/
+
+Apple TV's newest series with Elisabeth Moss isn't quite unanimously loved, following up on another divisive thriller from the actor's recent past.
+---------
+
+# Omni-Man's Confrontation With Debbie In Invincible Season 4 Teased By Sandra Oh
+
+TV, Invincible, Invincible - Season 4
+
+Wed, 18 Mar 2026 23:26:44 GMT
+
+https://screenrant.com/invincible-season-4-omni-man-debbie-confrontation-sandra-oh/
+
+Exclusive: Sandra Oh discusses a possible, long-awaited confrontation between Debbie and Omni-Man, suggesting it's not only inevitable but essential.
+---------
+
+# Apple TV's New 8-Part Thriller Series Adaptation Took 6 Years To Finally Make Despite Its Star Power
+
+TV, Imperfect Women, Imperfect Women - Season 1
+
+Wed, 18 Mar 2026 23:03:12 GMT
+
+https://screenrant.com/imperfect-women-apple-tv-adaptation-6-year-delay-elisabeth-moss/
+
+EXCLUSIVE: Even with the award-winning star power leading its cast, it took six years for this eight-episode Apple TV thriller to be made.
+---------
+
+# Wait, Did Spider-Man: Brand New Day Just Spoil Daredevil: Born Again Season 2?
+
+Superheroes, Spider-Man: Brand New Day, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 18 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/wait-did-spider-man-brand-new-day-just-spoil-daredevil-born-again-season-2/
+
+Based on what we know about Daredevil: Born Again season 2, we need to talk about a couple of key moments from Spider-Man: Brand New Day's trailer.
+---------
+
+# Big Little Lies: The Iconic HBO Series With An A-List Cast
+
+Streaming TV, Big Little Lies
+
+Wed, 18 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/big-little-lies-best-cast-tv/
+
+HBO is famous for attracting top-tier acting talent, and the outstanding A-list cast of this thriller series blows other shows out of the water.
+---------
+
+# Frieren's New Official Anime Short Brings Back Its Most Awkward Magic Spell
+
+Anime, Frieren: Beyond Journey's End
+
+Wed, 18 Mar 2026 23:10:12 GMT
+
+https://www.cbr.com/frieren-beyond-journeys-end-new-anime-spinoff-episode-awkward-magic-spell/
+
+Frieren: Beyond Journey's End fans just got the chance to revisit the single most awkward spell in the latest episode of an underrated spinoff anime.
+---------
+
+# Showtime's Groundbreaking Series Masters of Horror Finds New Life on PVOD
+
+TV, Masters of Horror, Showtime, Horror
+
+Wed, 18 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/masters-of-horror-showtime-apple-tv-success-march-2026/
+
+Showtime's groundbreaking anthology series, Masters of Horror, finds renewed popularity on PVOD platforms, becoming a streaming hit 21 years later.
+---------
+
+# Justice League Members Who Can Join John Stewart In Man Of Tomorrow
+
+Movies, Man of Tomorrow, Lanterns, DCU
+
+Wed, 18 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/justice-league-heroes-join-john-stewart-superman-man-of-tomorrow/
+
+Aaron Pierre's John Stewart is returning in Man of Tomorrow after debuting in Lanterns, and more Justice League members from DC Comics could join him.
+---------
+
+# All 7 'Bridgerton' Romances, Ranked By Chemistry
+
+TV, Bridgerton, Queen Charlotte: A Bridgerton Story, Netflix, Romance
+
+Wed, 18 Mar 2026 23:26:14 GMT
+
+https://collider.com/bridgerton-couples-chemistry-ranked/
+
+From Season 1's Daphne and Simon to Season 4's Benedict and Sophie, which Bridgerton couple has the best chemistry in the Netflix romance series?
+---------
+
+# 9 Episodes After Ulster's Death, ‘Will Trent’ Has Officially Found Its Next Great Villain
+
+TV Features, Will Trent, Procedural, Ramon Rodriguez, ABC
+
+Wed, 18 Mar 2026 23:19:12 GMT
+
+https://collider.com/will-trent-ulster-daughter-adelaid-villain-mallory-jansen/
+
+Following James Ulster's death, Will Trent has found its next great villain with Ulster's biological daughter, Adelaide, played by Mallory Jansen.
+---------
+
+# John Malkovich & Sam Rockwell Play CIA Agents in First Look at 'Wild Horse Nine'
+
+Movie News, John Malkovich, Sam Rockwell
+
+Wed, 18 Mar 2026 23:06:44 GMT
+
+https://movieweb.com/wild-horse-nine-john-malkovich-sam-rockwell/
+
+The movie takes up the mantle of tragicomedy in a breathtaking setting from 'The Banshees of Inisherin.'
+---------
+
+# Season 2 of 'Frieren: Beyond Journey's End' is a Major Anime Streaming Success on Crunchyroll
+
+TV News, Frieren: Beyond Journey's End, Crunchyroll, Hot on Streaming, Fantasy
+
+Wed, 18 Mar 2026 23:01:18 GMT
+
+https://movieweb.com/frieren-beyond-journeys-end-streaming-success-crunchyroll-march-2026/
+
+The highest rated fantasy TV series ever made, 'Frieren: Beyond Journey's End,' is a major streaming success on Crunchyroll.
+---------
+
 # Prime Video's New Reboot Of Iconic 37-Year-Old Series Officially Releases Next Month
 
 TV, American Gladiators
