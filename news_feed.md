@@ -1,3 +1,267 @@
+# Schedule 1 Just Got A Massive Free March 2026 Update
+
+Gaming, Schedule I
+
+Thu, 19 Mar 2026 22:52:12 GMT
+
+https://screenrant.com/schedule-1-free-weather-update-march-2026/
+
+Schedule 1 fans just got an absolutely huge game-changing update introducing brand-new systems, and it's absolutely free to download and play now.
+---------
+
+# 15 Stars We're Excited to See at MEGACON Orlando 2026
+
+Movies, Fan Expo
+
+Thu, 19 Mar 2026 22:36:58 GMT
+
+https://screenrant.com/megacon-orlando-2026-diego-luna-lord-of-the-rings/
+
+MEGACON Orlando is back from March 19–22, and ScreenRant has all the info on the top guests of the con, from Lord of the Rings to Star Wars.
+---------
+
+# Brand New Day’s Major Spider-Man Webbing Change Explained (Comics & Tobey Maguire Connections)
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 19 Mar 2026 22:35:28 GMT
+
+https://screenrant.com/brand-new-day-spider-man-organic-webbing-change-explained-comics-tobey-maguire/
+
+Big changes are coming for Tom Holland's Spider-Man in the MCU's Brand New Day, connecting to the original comics and even Tobey Maguire's Webslinger.
+---------
+
+# How Finn Wolfhard’s Wild New Comedy Was A “Pivot Into Jumping Off A Cliff” After Stranger Things
+
+Movies, Crash Land, SXSW, Finn Wolfhard
+
+Thu, 19 Mar 2026 22:30:18 GMT
+
+https://screenrant.com/finn-wolfhard-crash-land-movie-pivot-after-stranger-things-sxsw/
+
+Finn Wolfhard and the Crash Land team talk their wild new comedy and how it was a major pivot for him coming off of Stranger Things' ending.
+---------
+
+# 33 Years Later, The Objective Greatest Sports Anime of All Time is Still One Step Away From Perfection
+
+Anime, Slam Dunk
+
+Thu, 19 Mar 2026 22:30:18 GMT
+
+https://screenrant.com/slam-dunk-greatest-sports-anime-ever-needs-remake/
+
+Slam Dunk, the iconic sports anime from the 90s, is long overdue for a remake that would introduce the series to a new generation of fans.
+---------
+
+# Project Hail Mary Ending Explained: What Happens To Grace (And The Big Secret About His Mission)
+
+Movies, Project Hail Mary
+
+Thu, 19 Mar 2026 22:20:19 GMT
+
+https://screenrant.com/project-hail-mary-ending-explained/
+
+Project Hail Mary's ending comes with a major reveal about Grace and the reason for his mission into space, all while paying off his emotional growth.
+---------
+
+# Prime Video's 6-Part Psychological Thriller Series Is The Perfect One-Night Weekend Binge
+
+TV, Prime Video, Wilderness
+
+Thu, 19 Mar 2026 22:09:52 GMT
+
+https://screenrant.com/wilderness-prime-video-thriller-series-must-watch/
+
+One of Prime Video's most underrated series is a psychological thriller anchored by two skilled stars that keeps viewers guessing until the end.
+---------
+
+# Final Fantasy 12 Official 20th Anniversary Release Unveiled By Square Enix
+
+Gaming, Final Fantasy, Triple-A Games, PC
+
+Thu, 19 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/final-fantasy-12-20th-anniversary-official-release/
+
+It's been two decades since the launch of the memorable Final Fantasy 12, which further expands on the multi-game world of Ivalice.
+---------
+
+# All 6 Guardians Of The Globe Members In Invincible Season 4 & Their Powers
+
+Streaming TV, Invincible
+
+Thu, 19 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/invincible-season-4-guardians-of-the-globe-members-powers/
+
+Invincible’s Guardians of the Globe have gone through a lot of changes over the years; here is the current team roster and their various powers.
+---------
+
+# Marvel Announces Doctor Doom's Return, But It's Way Too Soon
+
+Comics, Marvel, Doctor Doom
+
+Thu, 19 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/doctor-doom-return-alive-captain-america/
+
+Marvel A-lister's quick resurrection, explained.
+---------
+
+# 6 Shows From 2020 That Are Already Classics
+
+TV, Ted Lasso, Star Trek: Picard, Bridgerton
+
+Thu, 19 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/2020-tv-shows-instant-classics/
+
+2020 was an interesting year for television, with some new shows that debuted that year that could already be considered classics in the making.
+---------
+
+# The Madison's Robert Redford Tribute Explained
+
+TV, The Madison, Robert Redford
+
+Thu, 19 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/the-madison-robert-redford-tribute/
+
+A Hollywood icon receives a thoughtful tribute in the pilot of The Madison, Taylor Sheridan's latest neo-Western series for Paramount+.
+---------
+
+# Super Mario Galaxy's Smash Bros. Movie Theory Has 1 Major Problem
+
+Games, The Super Mario Galaxy Movie, Mario, Nintendo
+
+Thu, 19 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-smash-bros-movie-theory-problem/
+
+The Super Mario Galaxy Movie will feature a non-Mario character, causing fans to speculate about a Smash Bros. movie, despite one huge problem.
+---------
+
+# NCIS Rises to No. 2 on Paramount+ Charts After Shocking Twist
+
+TV, NCIS, Paramount Plus
+
+Thu, 19 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/ncis-paramount-plus-streaming-march-2026/
+
+The hit show's rise on the streaming charts follows a shocking twist in the latest episode.
+---------
+
+# John Carpenter Can Finally Answer The Thing's Biggest Question
+
+Movies, The Thing, Sci-Fi
+
+Thu, 19 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/john-carpenter-the-thing-ending-answer/
+
+John Carpenter's The Thing is a beloved sci-fi film with an ambiguous ending that may finally get the answer fans have been searching for.
+---------
+
+# Jack O'Connell’s A Quiet Place 3 Casting Marks A Major Horror Milestone
+
+Movies, A Quiet Place, Horror, A Quiet Place Part III
+
+Thu, 19 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/jack-oconnell-casting-a-quiet-place-3-horror/
+
+Jack O’Connell is quickly becoming the ultimate face of modern horror, and his work is not just limited to Sinners.
+---------
+
+# Prime Video's Jury Duty Is the Perfect Single-Day Binge Before Season 2
+
+TV, Jury Duty, Prime Video, Comedy
+
+Thu, 19 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/prime-video-jury-duty-perfect-single-day-binge-before-season-2/
+
+With Season 2 dropping on March 20, Prime Video's hilarious social experiment Jury Duty is perfect to binge in just one day.
+---------
+
+# 10 Horror Movies That Roger Ebert Considered Perfect
+
+Movie, Roger Ebert, Halloween, The Exorcist, Psycho
+
+Thu, 19 Mar 2026 22:54:13 GMT
+
+https://collider.com/best-horror-movies-roger-ebert/
+
+Roger Ebert loved horror movies like May, Halloween, and Psycho, even going so far as to give them his highest rating of four stars.
+---------
+
+# 'Pluribus' Creator Says 'The Pitt' Is "Kicking Our Butts" in Brutally Honest Season 2 Update
+
+TV News, Pluribus, Vince Gilligan, Sci-Fi, Apple TV
+
+Thu, 19 Mar 2026 22:51:28 GMT
+
+https://collider.com/apple-tv-sci-fi-series-pluribus-creator-vince-gilligan-season-2-update-the-pitt-comparison/
+
+Pluribus creator Vince Gilligan affirms Season 2 will take some time, even poking fun at Noah Wyle and HBO's The Pitt.
+---------
+
+# Reneé Rapp Officially Returns to Acting in Season 5 of Apple TV's Messiest Series
+
+TV News, The Morning Show, Apple TV, Jennifer Aniston, Reese Witherspoon
+
+Thu, 19 Mar 2026 22:49:11 GMT
+
+https://collider.com/apple-tv-messiest-series-the-morning-show-season-5-renee-rapp/
+
+Reneé Rapp returns to acting as she joins Season 5 of Apple TV's messiest drama series, The Morning Show, starring Reese Witherspoon & more.
+---------
+
+# Taylor Sheridan’s 'Tulsa King' Spin-Off Hits Huge Production Milestone After Creative Overhaul
+
+TV News, Tulsa King, Frisco King, Taylor Sheridan, Samuel L. Jackson
+
+Thu, 19 Mar 2026 22:24:46 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-spin-off-frisco-king-filming-start-fort-worth-texas-march-20-2026/
+
+Frisco King, Taylor Sheridan’s Tulsa King spin-off starring Samuel L. Jackson, is officially beginning production in Fort Worth, Texas.
+---------
+
+# 10 Classic Sci-Fi Movies That Are Still Masterpieces Today
+
+Movie, Science Fiction, Blade Runner, Alien
+
+Thu, 19 Mar 2026 22:08:13 GMT
+
+https://collider.com/classic-sci-fi-movies-still-masterpieces-today/
+
+From escapist adventures like Star Wars to piercing, cerebral dramas like Blade Runner, these sci-fi movies are truly timeless masterpieces of cinema.
+---------
+
+# 2 Years Later, This 10-Part Spy Thriller Still Proves To Be the Perfect Weekend Binge
+
+TV News, The Day of the Jackal, Reacher, Alan Ritchson, Peacock
+
+Thu, 19 Mar 2026 22:07:59 GMT
+
+https://collider.com/the-day-of-the-jackal-spy-thriller-streaming-success-peacock-march-2026/
+
+Peacock's 10/10 spy thriller is still proving why it's the perfect weekend binge, especially for fans of Prime Video's Reacher.
+---------
+
+# Marvel Star's 2026 Horror Movie Is Perfect 'Final Destination' Replacement
+
+Features, Horror, Whistle, Final Destination
+
+Thu, 19 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/whistle-horror-final-destination-replacement/
+
+Dafne Keene's overlooked 2026 horror film 'Whistle' has all the elements to make it the perfect 'Final Destination' replacement.
+---------
+
 # Taylor Frankie Paul Speaks Out Amid Bachelorette Cancellation.
 
 Reality TV, The Bachelorette
