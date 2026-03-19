@@ -1,3 +1,443 @@
+# Netflix Confirms No Secret Stranger Things Episode On Blu-ray Release
+
+Streaming TV, Stranger Things
+
+Thu, 19 Mar 2026 17:48:42 GMT
+
+https://screenrant.com/stranger-things-netflix-complete-series-release-no-secret-episode/
+
+Netlfix announced that we would be getting a complete collection of Stranger Things on Blu-ray this summer, putting an end to a long-held theory.
+---------
+
+# The Blacklist: NBC's 10/10 Spy Thriller That's Worth Binging
+
+Classic TV, The Blacklist
+
+Thu, 19 Mar 2026 17:45:22 GMT
+
+https://screenrant.com/the-blacklist-james-spader-thriller-series-worth-commitment/
+
+Despite NBC's The Blacklist being one of the best spy shows of the decade, its 218 episodes can be daunting— but the 10-season thriller is worth it.
+---------
+
+# 10 Best Feel-Good Movies On Netflix
+
+Movies, Netflix, Ranking
+
+Thu, 19 Mar 2026 17:45:22 GMT
+
+https://screenrant.com/netflix-feel-good-movies-best/
+
+Netflix is home to some fantastic feel-good films that are ideal to watch to escape the stresses of the real world.
+---------
+
+# A Minecraft Movie 2 Reportedly Casts Alex With Major Star
+
+Movies, A Minecraft Movie, A Minecraft Movie 2
+
+Thu, 19 Mar 2026 17:43:46 GMT
+
+https://screenrant.com/a-minecraft-movie-2-kirsten-dunst-alex-casting-report/
+
+A Minecraft Movie 2 adds a major star to the cast, and she will seemingly be playing Alex, who is another playable character alongside Steve.
+---------
+
+# Netflix's Animated Spinoff Stranger Things: Tales From '85 Can Fix The Finale's Biggest Flaw
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Thu, 19 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-fix-finale-upside-down-problem/
+
+The upcoming animated spinoff, Stranger Things: Tales From '85, has the opportunity to explore parts of the story the finale never explained.
+---------
+
+# Ethan Hawke & Russell Crowe's New Depression-Era Thriller Officially Lands Release Date
+
+Movies, The Weight
+
+Thu, 19 Mar 2026 17:24:20 GMT
+
+https://screenrant.com/the-weight-movie-release-date-russell-crowe-ethan-hawke/
+
+A buzzy Depression-era thriller starring Ethan Hawke and Russell Crowe has just landed distribution and now has an official theatrical release date.
+---------
+
+# Touch Me Review: Addison Heimann's Latest Is A Deliriously Horny & Mesmerizing Sci-Fi Thrill Ride
+
+Movies, Touch Me, Horror
+
+Thu, 19 Mar 2026 17:22:22 GMT
+
+https://screenrant.com/touch-me-movie-2026-review/
+
+Addison Heimann's Touch Me could have benefited from a little more rounding out of its central characters, but is so stylish, hilarious and wild.
+---------
+
+# Spider-Man: Brand New Day Quietly Breaks An 18-Year Movie Hiatus For This Iconic Marvel Character
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Thu, 19 Mar 2026 17:21:13 GMT
+
+https://screenrant.com/spiderman-brand-new-day-punisher-movie-return/
+
+Spider-Man: Brand New Day quietly marks the return of an iconic comic character to the big screen for the first time since their last outing in 2008.
+---------
+
+# Kristen Stewart To Make TV Debut In New Prime Video Series The Challenger
+
+TV, Kristen Stewart
+
+Thu, 19 Mar 2026 17:16:29 GMT
+
+https://screenrant.com/kristen-stewart-the-challenger-show-prime-video/
+
+Kristen Stewart will be making her television debut in a new Prime Video limited series from creator Maggie Cohn and director James Hawes.
+---------
+
+# New Wheel Of Time Movies & TV Shows Officially Happening After Prime Video's Cancellation Last Year
+
+TV, The Wheel of Time
+
+Thu, 19 Mar 2026 17:14:09 GMT
+
+https://screenrant.com/wheel-of-time-movies-tv-show-video-games-development-thomas-vu/
+
+The Wheel of Time is now set to return with TV, film, and video game adaptations of Robert Jordan's iconic fantasy novels in development.
+---------
+
+# KPop Demon Hunters Is the Most Important Oscar Winner Since Spider-Verse
+
+Movies, KPop Demon Hunters, Animation
+
+Thu, 19 Mar 2026 17:30:13 GMT
+
+https://www.cbr.com/netflix-kpop-demon-hunters-most-important-oscar-winner/
+
+The animation category is tough in the Oscars, but Netflix's smash-hit movie is the most important win since Into the Spider-Verse.
+---------
+
+# A Minecraft Movie 2 Casts Kirsten Dunst
+
+Movies, A Minecraft Movie 2, A Minecraft Movie
+
+Thu, 19 Mar 2026 17:26:55 GMT
+
+https://www.cbr.com/a-minecraft-movie-sequel-kirsten-dunst/
+
+Major casting news has been revealed for the sequel to A Minecraft Movie.
+---------
+
+# Leonardo DiCaprio and Jennifer Lawrence’s Long-Awaited Martin Scorsese Movie Gets First Look
+
+Movies, What Happens at Night
+
+Thu, 19 Mar 2026 17:25:35 GMT
+
+https://www.cbr.com/martin-scorsese-what-happens-at-night-leonardo-dicaprio-jennifer-lawrence-first-look/
+
+As production gets underway on Martin Scorsese's next movie, Leonardo DiCaprio shares a first look at him and Jennifer Lawrence on set.
+---------
+
+# The Wheel of Time Reboot Announced: Animated Series, Films, and Video Game
+
+TV, The Wheel of Time, Prime Video
+
+Thu, 19 Mar 2026 17:22:38 GMT
+
+https://www.cbr.com/the-wheel-of-time-animated-series-movies-video-game/
+
+iwot Studios reveals plans for a new Wheel of Time adaptation, including an animated series, feature films, and a video game.
+---------
+
+# Studio Ghibli Brings Gardening Dreams Into Full Bloom With New Totoro and Kiki Planters for Spring 2026
+
+Anime, Studio Ghibli, My Neighbor Totoro, Kiki's Delivery Service, merchandise
+
+Thu, 19 Mar 2026 17:21:18 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-kikis-delivery-service-new-flower-planter-release/
+
+Studio Ghibli's new anime-inspired planters let Totoro, Mei and Jiji help fans cultivate beautiful indoor gardens for spring 2026.
+---------
+
+# Netflix Announces ThIs Summer Will Be Different Series
+
+TV
+
+Thu, 19 Mar 2026 17:19:27 GMT
+
+https://www.cbr.com/netflix-this-summer-will-be-different-series/
+
+Following its literary success, the bestselling novel is getting turned into a TV series at Netflix.
+---------
+
+# 10 Best Indie Games of All Time, Ranked
+
+Games, Indie Games, Video Games
+
+Thu, 19 Mar 2026 17:16:19 GMT
+
+https://www.cbr.com/best-indie-games-steam-ranked-list/
+
+Hollow Knight and Stardew Valley are some of the most popular games on Steam, but they 100% live up to the hype.
+---------
+
+# Can Dutton Ranch Revive Yellowstone's Iconic Storyline?
+
+TV, Yellowstone, Marshals, The Dutton Ranch
+
+Thu, 19 Mar 2026 17:16:13 GMT
+
+https://www.cbr.com/dutton-ranch-yellowstone-franchise-redemption/
+
+As Marshals disappoints Yellowstone fans, Dutton Ranch starring Kelly Reilly and Cole Hauser is the franchise's last hope to revive John Dutton's iconic story.
+---------
+
+# Rebecca Ferguson's 2017 Sci-Fi Movie Becomes a Free Streaming Sensation
+
+Movies, rebecca ferguson, Life, Tubi
+
+Thu, 19 Mar 2026 17:00:13 GMT
+
+https://www.cbr.com/rebecca-ferguson-life-sci-fi-streaming-success-tubi-march-2026/
+
+Nine years after a disappointing box office run, Rebecca Ferguson's underrated sci-fi thriller finds new life on streaming.
+---------
+
+# Is This the Best Megacon Ever? How eBay Is Changing the Game
+
+Movies, conventions
+
+Thu, 19 Mar 2026 16:58:10 GMT
+
+https://www.cbr.com/ebay-live-megacon-2026-orlando-convention-event-guide/
+
+eBay has everything the ultimate fan needs to build their collection and have some fun along the way at MEGACON Orlando 2026.
+---------
+
+# Britney Spears' No. 1 Hit Was Turned Down by Multiple Artists Before Becoming One of the Biggest Songs Ever
+
+Music Features, Britney Spears, Pop, Janet Jackson., Music
+
+Thu, 19 Mar 2026 17:57:23 GMT
+
+https://collider.com/britney-spears-no-1-song-toxic-biggest-hit/
+
+The unspoken history behind this smash hit and how it was rejected multiple times by other artists before becoming Britney Spears biggest hit.
+---------
+
+# Kristen Stewart Makes TV Debut in Prime Video’s Stellar New Historical Space Thriller
+
+TV News, Prime Video, Kristen Stewart, Sci-Fi, Thriller
+
+Thu, 19 Mar 2026 17:50:17 GMT
+
+https://collider.com/prime-video-kristen-stewart-space-thriller-sally-ride-the-challenger/
+
+Kristen Stewart is set to make her TV debut leading Prime Video’s new For All Mankind rival, The Challenger, as space icon Sally Ride.
+---------
+
+# 'Sonic the Hedgehog 4' Officially Brings Back Its Best Characters After Cliffhanger Ending
+
+Movie News, Sonic the Hedgehog 4, Ben Kingsley, Nick Offerman, Matt Berry
+
+Thu, 19 Mar 2026 17:42:37 GMT
+
+https://collider.com/sonic-the-hedgehog-4-keanu-reeves-jim-carrey-returning-cast-nick-offerman-ben-kingsley/
+
+Sonic the Hedgehog 4 has assembled a dynamite cast, confirming the returns of both Keanu Reeves and Jim Carrey as Shadow and Dr. Robotnik.
+---------
+
+# Prime Video's 3-Part Fantasy Saga Is Officially Returning 1 Year After Shock Cancellation
+
+TV News, The Wheel of Time, Prime Video, Rosamund Pike, Arcane
+
+Thu, 19 Mar 2026 17:34:40 GMT
+
+https://collider.com/prime-video-fantasy-series-the-wheel-of-time-animated-series-movie-video-games-arcane-producer-thomas-vu/
+
+The Wheel of Time lives! Arcane producer Thomas Vu is planning to revive the franchise with several new projects, including an animated series.
+---------
+
+# 10 Perfect Classic Rock Albums That Nobody Remembers
+
+Music Features, Music, Rock, 1970s, 1980s
+
+Thu, 19 Mar 2026 17:11:13 GMT
+
+https://collider.com/perfect-classic-rock-albums-nobody-remembers/
+
+If you're after classic rock albums that have been forgotten or overlooked, it's worth listening to Skylarking by XTC and Tim by The Replacements.
+---------
+
+# 'Daredevil: Born Again' Scores a Colossal Update 5 Days Before Season 2 Debuts
+
+TV News, Daredevil, Daredevil: Born Again, Disney+
+
+Thu, 19 Mar 2026 17:01:57 GMT
+
+https://collider.com/daredevil-born-again-season-3-filming-start-march-19-2026/
+
+Daredevil fans can rest easy after Born Again Season 2 concludes in a few weeks, as filming on Season 3 has officially begun.
+---------
+
+# 'Wicked: For Good' Officially Pulls Back the Curtain on Jeff Goldblum's Wizard Ahead of Peacock Debut [Exclusive]
+
+Exclusives, Wicked: For Good, Jeff Goldblum, Ariana Grande, Cynthia Erivo
+
+Thu, 19 Mar 2026 17:00:13 GMT
+
+https://collider.com/wicked-for-good-jeff-goldblum-behind-the-scenes-bonus-content-peacock-streaming-release-date/
+
+Jeff Goldblum takes audiences on a skip down the Yellow Brick Road in a brand new Wicked: For Good featurette. See it here!
+---------
+
+# Gerard Butler's 700-Year Spanning Crime Thriller Is Officially Coming to Netflix
+
+Movie News, Gerard Butler, Netflix, Oscar Isaac, Al Pacino
+
+Thu, 19 Mar 2026 16:32:54 GMT
+
+https://collider.com/gerard-butler-historical-crime-thriller-in-the-hand-of-dante-netflix/
+
+Gerard Butler, Oscar Isaac, Gal Gadot, and Jason Momoa star in this new 700-year spanning crime epic now coming to Netflix.
+---------
+
+# 'Pretty Lethal' Review: Timothée Chalamet Doesn't Want Smoke With These Badass Ballerinas
+
+Movie Reviews, Pretty Lethal, Uma Thurman, Maddie Ziegler, SXSW
+
+Thu, 19 Mar 2026 16:05:34 GMT
+
+https://collider.com/pretty-lethal-review-uma-thurman-maddie-ziegler/
+
+Pretty Lethal, starring Maddie Ziegler and Uma Thurman, is a killer ballerina film that has plenty of fun with its concept.
+---------
+
+# Apple TV's Latest Mystery Thriller Officially Proves That It Keeps Getting Better [Exclusive]
+
+Exclusives, Apple TV, The Last Thing He Told Me, Angourie Rice, Judy Greer
+
+Thu, 19 Mar 2026 16:02:01 GMT
+
+https://collider.com/the-last-thing-he-told-me-season-2-episode-5-sneak-peek-judy-greer-angourie-rice/
+
+A new sneak peek at The Last Thing He Told Me Season 2 sees Judy Greer offering Angourie Rice some important advice in her search for answers.
+---------
+
+# 'The Terror' Season 3 Reveals Cast & Release Date
+
+TV News, The Terror, Dan Stevens
+
+Thu, 19 Mar 2026 17:30:36 GMT
+
+https://movieweb.com/the-terror-season-3-dan-stevens/
+
+The all-new entry in the anthology stars Dan Stevens and will premiere on May 7.
+---------
+
+# A Glaring 'Paradise' Plot Hole Suggests a Game-Changing Theory Could Be True
+
+Features, Paradise
+
+Thu, 19 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/paradise-plot-hole-game-changing-theory/
+
+'Paradise' Season 2's biggest continuity error might actually be a sly detail that blows the show's whole story apart and proves this shocking theory.
+---------
+
+# Best Movies on Crave to Watch Right Now
+
+TV Lists
+
+Thu, 19 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/best-movies-crave-watch-right-now/
+
+Crave has the HBO and Max catalogs and much more; these are the best movies you can watch on the Canadian streaming service.
+---------
+
+# Jamie Lee Curtis Admits She Signed on for 'Halloween' Sequel Not Knowing Trilogy Plan
+
+Movie News, Halloween, Jamie Lee Curtis
+
+Thu, 19 Mar 2026 16:46:54 GMT
+
+https://movieweb.com/jamie-lee-curtis-halloween-reboot-trilogy/
+
+Jamie Lee Curtis had no idea how many 'Halloween' movies she signed up for when she agreed to her last one.
+---------
+
+# 'Stranger Things: The Complete Series' to Release on Blu-ray and 4K UHD
+
+TV News, Stranger Things, Netflix
+
+Thu, 19 Mar 2026 16:42:10 GMT
+
+https://movieweb.com/stranger-things-the-complete-series-boxed-set/
+
+'Stranger Things: The Complete Series' boxset is available to pre-order now in both Special and Deluxe editions on Blu-ray and 4K UHD.
+---------
+
+# 'They Will Kill You' Review: Zazie Beetz Slays Satanists in Crowdpleasing Action Thriller
+
+4 star movies, They Will Kill You, Zazie Beetz
+
+Thu, 19 Mar 2026 16:41:44 GMT
+
+https://movieweb.com/they-will-kill-you-review/
+
+Zazie Beetz and Myha'la lead the cast of Kirill Sokolov's delightfully deranged action thriller.
+---------
+
+# Chris Pratt & Rebecca Ferguson's Sci-Fi Action Thriller Sets Streaming Date
+
+Movie News, Mercy, Coming/Leaving Streaming, Sci-Fi
+
+Thu, 19 Mar 2026 16:30:18 GMT
+
+https://movieweb.com/mercy-streaming-release-date-prime-video-march-2026/
+
+After bombing at the box office, 'Mercy' is finally headed to Prime Video just in time for the weekend.
+---------
+
+# Anthony Mackie's $150M Controversial Action Epic Could Be Box Office Flop
+
+Features, Desert Warrior, Action, Anthony Mackie
+
+Thu, 19 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/anthony-mackie-action-flop-desert-warrior/
+
+Anthony Mackie's 'Desert Warrior' is poised to be a box-office disaster after years of delays and controversy surrounding the production.
+---------
+
+# Movies That Will Completely Change the Way You Think About Life
+
+Movie Lists
+
+Thu, 19 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/movies-that-will-change-the-way-you-think/
+
+Here's a list of films that will inspire you, change your perspectives on life and society, and leave a lasting impact on you for the better.
+---------
+
+# Sarah Michelle Gellar Urges 'Buffy' Fans to Avoid Reading Leaked Reboot Scripts
+
+TV News, Buffy the Vampire Slayer Sequel Series, Sarah Michelle Gellar
+
+Thu, 19 Mar 2026 15:07:08 GMT
+
+https://movieweb.com/sarah-michelle-gellar-urges-fans-not-to-read-leaked-script/
+
+Hoping to not ruin the show's vision, 'Buffy' star Sarah Michelle Gellar advises fans against reading scripts from the reboot that leaked online.
+---------
+
 # The PlayStation 3 Just Got A System Update In Year Of Our Lord 2026
 
 Gaming, PlayStation 3, Triple-A Games
