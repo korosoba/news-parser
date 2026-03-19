@@ -1,3 +1,322 @@
+# Cyberpunk 2077 Officially Confirms The End Of An Era
+
+Gaming, Cyberpunk, Cyberpunk 2077
+
+Thu, 19 Mar 2026 03:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-end-of-era-dlc-plans/
+
+Developer CD Projekt Red has confirmed that fans shouldn't expect any more story DLC for beloved RPG Cyberpunk 2077.
+---------
+
+# Animula Nook Preview: A Cozy Adventure In A Miniature World
+
+Gaming, Triple-A Games, PC, Animal Crossing, Indie Games
+
+Thu, 19 Mar 2026 02:30:20 GMT
+
+https://screenrant.com/animula-nook-alpha-preview/
+
+I went hands-on with the alpha build of an upcoming cozy game and discovered a huge adventure full of charming details, in a miniature world.
+---------
+
+# 50 Years Ago Today, David Bowie Made His Movie Debut In This Sci-Fi Classic
+
+Classic Movies, The Man Who Fell to Earth, Explainer
+
+Thu, 19 Mar 2026 02:00:32 GMT
+
+https://screenrant.com/david-bowie-the-man-who-fell-to-earth-50-year-anniversary/
+
+It has been 50 years since musical icon David Bowie made his movie debut in a cult classic sci-fu movie and here is what you need to know.
+---------
+
+# The Best Ninja Anime in Years is Finally Here (And It Lives Up to the Hype)
+
+Anime, Sekiro: Shadows Die Twice
+
+Thu, 19 Mar 2026 02:00:32 GMT
+
+https://screenrant.com/sekiro-no-defeat-best-ninja-anime-2026/
+
+Sekiro: No Defeat promises to bring authentic shinobi action to the screen with stunning hand-drawn animation.
+---------
+
+# Guy Ritchie's Young Sherlock: A New Twist On The Classic Detective
+
+Streaming TV, Young Sherlock
+
+Thu, 19 Mar 2026 01:53:19 GMT
+
+https://screenrant.com/young-sherlock-guy-ritchie-series-season-1-gets-better/
+
+Prime Video's exciting new crime thriller series directed by Guy Ritchie is living up to the hype, with each episode better than the last.
+---------
+
+# Star Trek: Enterprise Actor Hated Filming Fan-Favorite Mirror Universe Episodes
+
+Classic TV, Star Trek, Star Trek: Enterprise
+
+Thu, 19 Mar 2026 01:14:54 GMT
+
+https://screenrant.com/star-trek-enterprise-connor-trinneer-hated-mirror-universe-episodes/
+
+Star Trek: Enterprise season 4's "In a Mirror, Darkly" are popular episodes set in the Mirror Universe, but one actor remembers them with scorn.
+---------
+
+# 10 Strongest Jujutsu Kaisen Characters of All Time, Ranked
+
+Anime, Jujutsu Kaisen
+
+Thu, 19 Mar 2026 01:01:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-most-powerful-characters/
+
+While not everyone in Jujutsu Kaisen cursed energy, the strongest characters have dangerous techniques and high levels of cursed energy.
+---------
+
+# 8 Retro Anime That Do Everything Solo Leveling Does, But Better
+
+Anime, Solo Leveling, Dragon Ball
+
+Thu, 19 Mar 2026 00:46:24 GMT
+
+https://screenrant.com/retro-anime-better-than-solo-leveling/
+
+Solo Leveling may be one of the most popular new-gen series, but these classic anime have similar themes executed in a better way.
+---------
+
+# Cross Season 3: Confirmation, Story & Everything We Know
+
+Streaming TV, Cross
+
+Thu, 19 Mar 2026 00:30:20 GMT
+
+https://screenrant.com/cross-season-3-explained/
+
+Cross season 3 has officially been renewed by Prime Video, and here's everything we know about the upcoming storylines and characters.
+---------
+
+# Nick Offerman's New Kids Movie Is Great For Families (And Currently Has A Wild RT Score)
+
+Movies, The Pout-Pout Fish
+
+Thu, 19 Mar 2026 00:20:19 GMT
+
+https://screenrant.com/the-pout-pout-fish-rec-feature/
+
+The Pout-Pout Fish is a colorful cartoon that's great for younger audiences — and has a shockingly great score with critics on Rotten Tomatoes.
+---------
+
+# Gundam Wing Reveals What the Original Anime Left Out After 31 Years
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing
+
+Thu, 19 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/gundam-wing-prequel-manga-collectors-edition-release/
+
+Three decades after the anime debuted, one of the most important Mobile Suit Gundam entries is having two forgotten manga prequels re-released.
+---------
+
+# 60 Best Romance Anime Of All Time, Ranked
+
+Anime, Romance, Shojo
+
+Thu, 19 Mar 2026 03:48:08 GMT
+
+https://www.cbr.com/best-romance-anime-to-watch/
+
+Portrayals of romance in anime are one of the most endearing and memorable parts, and there are plenty of love stories just waiting to be enjoyed.
+---------
+
+# Chainsaw Man’s Abrupt Manga Ending Changes Everything About the Reze Arc Movie's Streaming Release
+
+Anime, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc, Manga
+
+Thu, 19 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/chainsaw-man-manga-ending-reze-arc-movie-release-date/
+
+Chainsaw Man's abrupt ending shakes up the franchise at the worst moment for fans who have been waiting patiently for the Reze Arc movie on streaming.
+---------
+
+# Chris Evans’ Human Torch Return Set Up The Council of Reeds
+
+Movies, Avengers: Doomsday, MCU, Deadpool & Wolverine
+
+Thu, 19 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/chris-evans-human-torch-doctor-doom-secret-weapon-avengers-doomsday/
+
+Deadpool & Wolverine's best cameo may have secretly set up the only way to defeat Doctor Doom in Avengers: Doomsday.
+---------
+
+# Rod Serling's The Loner Is a Wildly Underrated Western Series
+
+TV, The Loner, Western
+
+Thu, 19 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/rod-serling-tv-western-the-loner-underrated/
+
+Rod Serling's socially conscious cowboy TV drama was way ahead of its time.
+---------
+
+# Steam Adds 5 New Free Games With Positive Reviews You Can Keep Forever
+
+Games
+
+Thu, 19 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/steam-new-free-games-march-2026-positive-reviews/
+
+Steam's newest free games are a hit with players, with positive and very positive reviews.
+---------
+
+# Dreamcatcher's Most Disgusting Scene Was Ahead of Its Time
+
+Movies, Stephen King, Dreamcatcher, Sci-Fi
+
+Thu, 19 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/stephen-king-dreamcatcher-disgusting-scene-ahead-of-its-time/
+
+Stephen King's Dreamcatcher is a unique sci-fi film with a controversially disgusting scene that, decades later, has proven to be ahead of its time.
+---------
+
+# 8 Best British Crime Dramas
+
+TV, Peaky Blinders, Sherlock, Luther, Crime
+
+Thu, 19 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/best-british-crime-dramas/
+
+From Idris Elba as DCI Luther to David Tennant and Olivia Colman in Broadchurch, Great Britain has produced some of the most epic crime dramas on TV.
+---------
+
+# Dragon Ball Z Finally Brings Back 1 of Vegeta's Strongest Attacks
+
+Anime, Dragon Ball, merchandise, bandai
+
+Thu, 19 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/dragon-ball-vegeta-big-bang-attack-banpresto-figure/
+
+Vegeta has returned to the spotlight in Dragon Ball Z’s stunning new release.
+---------
+
+# 5 Best Dragon Ball Z Villain Transformations, Ranked
+
+Anime, Dragon Ball Z, anime villains, Dragon Ball
+
+Thu, 19 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/best-dragon-ball-z-villain-transformations-ranked/
+
+Dragon Ball Z is an anime that loves using transformations left and right, and some of the story's villains get the very best power-ups.
+---------
+
+# Netflix’s 7-Part Sleeper Hit Is Quietly Becoming TV’s Perfect Weekend Binge
+
+TV Features, Virgin River, Netflix, Drama, Streaming
+
+Thu, 19 Mar 2026 03:16:13 GMT
+
+https://collider.com/virgin-river-netflix-perfect-weekend-binge/
+
+Virgin River has become Netflix’s longest-running drama—and its perfect comfort binge. Here’s why it’s so easy to watch.
+---------
+
+# Prime Video Officially Says Goodbye to Current Ad-Free Streaming Tier in Major Shakeup
+
+TV Features, Prime Video, Streaming Services, Amazon, Streaming
+
+Thu, 19 Mar 2026 03:00:13 GMT
+
+https://collider.com/prime-video-ultra-ad-free-streaming-tier-amazon/
+
+Prime Video will launch a new Ultra streaming tier, replacing its current ad-free model with a $4.99 monthly fee increase.
+---------
+
+# 'Paddington' Director's ‘Labubu’ Movie Officially Takes a Monstrous Step Forward
+
+Movie News, Paul King, Wonka, Sony Pictures, Paddington
+
+Thu, 19 Mar 2026 00:00:13 GMT
+
+https://collider.com/labubu-movie-paul-king-directing-writing-sony-pop-mart-update/
+
+POP MART and Sony Pictures are developing a Labubu movie with Paul King set to direct, produce, and co-write the script.
+---------
+
+# Every 'Jack Ryan' TV Season & Movie, Ranked
+
+TV Lists, Jack Ryan
+
+Thu, 19 Mar 2026 02:00:29 GMT
+
+https://movieweb.com/jack-ryan-tv-seasons-movies-ranked/
+
+The beloved 'Jack Ryan' franchise has several movies and a popular Amazon Prime Video TV series starring John Krasinski.
+---------
+
+# Every Spider-Man Villain In 'Brand New Day'
+
+Movie Lists, Spider-Man: Brand New Day
+
+Thu, 19 Mar 2026 01:00:19 GMT
+
+https://movieweb.com/spider-man-villains-brand-new-day/
+
+'Spider-Man: Brand New Day' introduces new foes to the MCU, as well as some long-awaited returns.
+---------
+
+# Netflix Responds to Matt Damon Claim About Repeating Plot Points
+
+Movie News, Matt Damon, Netflix
+
+Thu, 19 Mar 2026 00:46:59 GMT
+
+https://movieweb.com/netflix-execs-matt-damon-response/
+
+Execs at the streamer denied his remarks about the demands they make for their movies, with one calling the claims "offensive."
+---------
+
+# JD & Elliot's Bumpy 'Scrubs' Love Story Is Being Borrowed by Another Couple In the Revival
+
+Features, Scrubs
+
+Thu, 19 Mar 2026 00:30:18 GMT
+
+https://movieweb.com/scrubs-revival-will-they-wont-they/
+
+The will-they/won't-they storyline at the core of the original 'Scrubs' run is now being adapted for the revival era.
+---------
+
+# 10 Must-See Panels To Look Forward to at Megacon Orlando 2026
+
+Movie Lists
+
+Thu, 19 Mar 2026 00:21:21 GMT
+
+https://movieweb.com/megacon-orlando-2026-panels/
+
+MovieWeb will be at Megacon Orlando with exclusive access to some of the biggest stars in geek media. Don't miss a beat!
+---------
+
+# 'Invincible' Season 4: Every Voice Actor and Character
+
+Features, Invincible
+
+Thu, 19 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/invincible-season-4-voice-cast-characters/
+
+'Invincible' Season 4 is poised to take Prime Video by storm. Here's a list of every voice actor and character on the show's expansive roster.
+---------
+
 # Jack Ryan Season 5: Why It's Not Happening, Sequel Movie & Spinoff Plans
 
 TV, Tom Clancy's Jack Ryan, Upcoming Releases
