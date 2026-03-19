@@ -1,3 +1,366 @@
+# Taylor Frankie Paul Speaks Out Amid Bachelorette Cancellation.
+
+Reality TV, The Bachelorette
+
+Thu, 19 Mar 2026 21:50:32 GMT
+
+https://screenrant.com/taylor-frankie-paul-responds-after-abc-cancels-bachelorette-over-dv-allegations/
+
+Taylor Frankie Paul released a statement after ABC's cancellation o her season of The Bachelorette, following a video of her and ex Dakota Mortensen.
+---------
+
+# Prime Video’s New 8-Part Series With Rare Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Streaming TV, Prime Video, Jury Duty Presents: Company Retreat
+
+Thu, 19 Mar 2026 21:48:20 GMT
+
+https://screenrant.com/prime-video-jury-duty-season-2-watch/
+
+Jury Duty: Company Retreat, the sophomore season of Prime Video's Emmy-nominated comedy series, debuts with a perfect 100% Rotten Tomatoes score.
+---------
+
+# Every Assassin's Creed Setting So Far (Spin-Offs Included)
+
+Gaming, Assassin's Creed, Assassin's Creed Valhalla, Assassin's Creed Odyssey, Assassin's Creed Origins
+
+Thu, 19 Mar 2026 21:30:21 GMT
+
+https://screenrant.com/assassins-creed-settings-all-games-historical-time-period/
+
+The Assassin’s Creed franchise immerses players in incredibly detailed reenactments of historical cities from Ancient Greece to Revolutionary Russia.
+---------
+
+# Lewis Pullman's New Sci-Fi Rom-Com Hit A Surprising Setback On Day 1 After Star Was Hospitalized
+
+Movies, Wishful Thinking, SXSW, Lewis Pullman, Maya Hawke
+
+Thu, 19 Mar 2026 21:30:20 GMT
+
+https://screenrant.com/lewis-pullman-wishful-thinking-movie-filming-setback-star-hospitalized/
+
+Lewis Pullman , Maya Hawke and the Wishful Thinking team talk the sci-fi rom-com and how it hit a surprising setback on the first day of filming.
+---------
+
+# The Masked Singer Season 14 Contestant Evan Ross Reveals His Favorite Stingray Performance & What Exciting Projects Are Up Next For Him
+
+Reality TV, The Masked Singer
+
+Thu, 19 Mar 2026 21:21:29 GMT
+
+https://screenrant.com/the-masked-singer-season-14-evan-ross-stingray-interview/
+
+In an interview with ScreenRant, The Masked Singer season 14's Evan Ross discussed his journey as Stingray and revealed what's next for him.
+---------
+
+# Netflix’s New 6-Part Crime Thriller Series Debuts To Solid Rotten Tomatoes Score Amid Streaming Success
+
+TV, That Night, Netflix
+
+Thu, 19 Mar 2026 21:14:36 GMT
+
+https://screenrant.com/that-night-netflix-series-rotten-tomatoes-score/
+
+A new Netflix crime thriller series has been released on Netflix, and the hit show's mysterious story has granted it a solid Rotten Tomatoes score.
+---------
+
+# Big Little Lies Season 3 Plot Details & Time Jump Seemingly Revealed As Author Confirms New Book Details
+
+TV, Big Little Lies, HBO
+
+Thu, 19 Mar 2026 21:06:09 GMT
+
+https://screenrant.com/big-little-lies-season-3-plot-details-time-jump-book-liane-moriarty/
+
+The author of Big Little Lies reveals what viewers can expect from the upcoming season 3 of the HBO series, including why there’s a time jump.
+---------
+
+# Peaky Blinders: Every Season Ranked Worst To Best
+
+TV, Peaky Blinders
+
+Thu, 19 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/peaky-blinders-every-season-ranked-worst-best/
+
+All six seasons of Peaky Blinders are packed with captivating storylines, but some are simply better than others. Find out how the seasons rank.
+---------
+
+# Project Hail Mary: Directors Address Alien Reveal In Sci-Fi Film Adaptation
+
+Movies, Project Hail Mary, Ryan Gosling
+
+Thu, 19 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/project-hail-mary-spoiler-marketing-phil-lord-chris-miller-response/
+
+Amazon MGM's Project Hail Mary directors Phil Lord and Chris Miller discuss the marketing strategy behind revealing the alien character Rocky early in trailers, assuring fans the twist is not the focus of the film adaptation.
+---------
+
+# Cartoon Network Brings Back Regular Show After 9 Years
+
+TV, Regular Show, Cartoon Network
+
+Thu, 19 Mar 2026 20:51:48 GMT
+
+https://screenrant.com/regular-show-the-lost-tapes-release-date-cartoon-network/
+
+Cartoon Network is bringing back one of its most popular series 9 years after it concluded, and it'll be here sooner than expected.
+---------
+
+# ABC Cancels The Bachelor Season 22 Ahead of Premiere
+
+TV, ABC, The Bachelorette
+
+Thu, 19 Mar 2026 21:47:24 GMT
+
+https://www.cbr.com/abc-cancels-the-bachelorette-season-22/
+
+ABC has shelved the upcoming season just days before it was set to premiere.
+---------
+
+# Phoenix Jones Breaks Down the Cost of Being a Superhero | SXSW 2026
+
+Movies, SXSW, Phoenix Jones: The Rise and Fall of a Real Life Superhero
+
+Thu, 19 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/video/phoenix-jones-breaks-down-the-cost-of-being-a-superhero-sxsw-2026/
+
+Phoenix Jones: The Rise and Fall of a True Superhero gets real fast.Phoenix Jones and director Bayan Joonam unpack the emotional weight of being a real-life superhero—and why it’s not as simple as good vs bad. From moral conviction to unintended consequences, this conversation explores the cost of stepping in when others won’t.
+---------
+
+# This Sci-Fi Shonen Hit Is Stealing Demon Slayer’s Thunder in 2026 With Its Own 3-Part Finale
+
+Anime, Dr. Stone, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Thu, 19 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/dr-stone-science-future-3-part-finale-beats-demon-slayer/
+
+Dr. Stone: Science Future's third and final part promises to end the celebrated shonen anime on the best note possible and innovate industry trends.
+---------
+
+# Outlander Season 8 Premiere Scores Highest Ratings in 4 Years
+
+TV, Outlander, STARZ, Fantasy
+
+Thu, 19 Mar 2026 21:09:29 GMT
+
+https://www.cbr.com/outlander-season-8-premiere-ratings-4-year-high-starz/
+
+The Outlander Season 8 premiere attracted 3 million multiplatform viewers.
+---------
+
+# Austin Butler's $32M Crime Thriller Finds Redemption on Global HBO Max Charts After Flopping in Theaters
+
+Movies, Caught Stealing
+
+Thu, 19 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/caught-stealing-crime-thriller-hbo-max-success-march-2026/
+
+HBO Max subscribers are propelling Austin Butler's underseen crime thriller up the charts less than a year after it flopped in theaters.
+---------
+
+# Why Dune: Part Three’s 17-Year Time Jump Changes Everything for Alia Atreides
+
+Movies, Dune: Part Three, Dune, Denis Villeneuve, Dune: Part Two
+
+Thu, 19 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/dune-part-three-17-year-time-jump-changes-alia-atreides/
+
+Fans are finally going to get more than they bargained for with more Alia content than ever before in Dune: Part Three.
+---------
+
+# 10 Spider-Man Storylines That Brand New Day May Feature
+
+Comics, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Thu, 19 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/comic-storylines-spider-man-brand-new-day-trailer-maybe-hinting-at/
+
+It's a brand new day for Peter Parker.
+---------
+
+# Criminal Minds' Disturbing Replicator Villain Arc Still Gives Fans Chills
+
+TV, Criminal Minds, Crime
+
+Thu, 19 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/criminal-minds-most-disturbing-unsub-replicator/
+
+Criminal Minds has become iconic for its terrifying killers, but one of them remains the most unforgettable and twisted.
+---------
+
+# Netflix Sets Maya Hawke to Lead The God of the Woods Series
+
+TV, Netflix
+
+Thu, 19 Mar 2026 20:57:18 GMT
+
+https://www.cbr.com/netflix-maya-hawke-the-god-of-the-woods/
+
+Netflix locks down a Stranger Things fan favorite to play the lead in the streamer's next new drama series.
+---------
+
+# Netflix’s Darker 6-Part Answer to Apple TV's ‘Bad Sisters’ Is a Streaming Sensation
+
+TV News, Bad Sisters, Netflix, Thriller, That Night
+
+Thu, 19 Mar 2026 21:48:30 GMT
+
+https://collider.com/that-night-netflix-spanish-crime-thriller-streaming-success-march-2026/
+
+Netflix has a new hit international thriller on its hands; this one is a six-part answer to Apple TV's Bad Sisters. Find out more.
+---------
+
+# 32 Years Later, This Horror Epic Remains the Most Faithful Frankenstein Ever Put on Film
+
+Movie Features, Mary Shelley's Frankenstein, Kenneth Branagh, Guillermo del Toro, Frankenstein
+
+Thu, 19 Mar 2026 21:45:13 GMT
+
+https://collider.com/mary-shelleys-frankenstein-faithful-adaptation-hbo-max/
+
+Mary Shelley’s Frankenstein, Kenneth Branagh’s 1994 film, remains the most faithful adaptation of Mary Shelley’s horror novel.
+---------
+
+# This Stellar 3-Part Crime Drama Keeps Getting Better With Every Season
+
+TV Features, Lie to Me, Tim Roth, Fox, Procedural
+
+Thu, 19 Mar 2026 21:28:13 GMT
+
+https://collider.com/lie-to-me-series-tim-roth-crime-drama-keeps-getting-better/
+
+Tim Roth's crime drama, Lie to Me, combines psychological science with gripping investigations, offering a fresh take on the crime procedural.
+---------
+
+# 'Train to Busan' Meets 'Parasite' In the Post-Apocalyptic Masterpiece Dominating Streaming
+
+Movie News, Snowpiercer, Bong Joon Ho, Chris Evans, Train to Busan
+
+Thu, 19 Mar 2026 21:19:48 GMT
+
+https://collider.com/snowpiercer-post-apocalyptic-sci-fi-masterpiece-streaming-success-pluto-tv-march-2026/
+
+Director Bong Joon-ho's star-studded sci-fi comic book adaptation, Snowpiercer, is witnessing a surge on streaming. Find out more.
+---------
+
+# Best Director Oscar Winners of the 21st Century, Ranked
+
+Movie, Academy Awards
+
+Thu, 19 Mar 2026 21:19:13 GMT
+
+https://collider.com/best-director-oscar-winners-21st-century-ranked/
+
+From Steven Soderbergh to Paul Thomas Anderson, we're looking back at the 21st-century Best Director Oscar winners to see who among them is the best.
+---------
+
+# ABC Cancels Season 22 of Hit Reality Dating Series 3 Days Before Premiere
+
+TV News, The Bachelorette, The Bachelor, ABC, Disney+
+
+Thu, 19 Mar 2026 21:07:33 GMT
+
+https://collider.com/the-bachelorette-season-22-cancelled-taylor-frankie-paul-domestic-violence-allegations/
+
+ABC has made the shock decision to pull The Bachelorette Season 22's release following domestic violence accusations against its lead star.
+---------
+
+# After 39 Years, Arnold Schwarzenegger Needs to Return To the Predator Series
+
+Movie Features, Arnold Schwarzenegger, Predator, Predator: Killer of Killers, Dan Trachtenberg
+
+Thu, 19 Mar 2026 20:54:12 GMT
+
+https://collider.com/arnold-schwarzenegger-predator-return/
+
+Arnold Schwarzenegger recently implied he’s in discussions to return to the Predator franchise, and he absolutely should.
+---------
+
+# 9 Amazing Apple TV Miniseries That Are 10/10, No Notes
+
+TV, Apple TV, TV Miniseries, Black Bird, Masters of the Air
+
+Thu, 19 Mar 2026 20:53:12 GMT
+
+https://collider.com/apple-tv-miniseries-perfect-no-notes/
+
+From the WWII epic Masters of the Air to the critically acclaimed thriller Black Bird, these miniseries are the best of what Apple TV has to offer.
+---------
+
+# Rebecca Ferguson's Franchise-Ending Sci-Fi Movie Gets a Crushing Update
+
+Movie News, Rebecca Ferguson, Dune: Part Three, Sci-Fi, Warner Bros.
+
+Thu, 19 Mar 2026 20:50:30 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-epic-dune-part-3-one-scene-only-update/
+
+Dune franchise star Rebecca Ferguson dishes on her appearance in the upcoming sci-fi epic, including some disappointing revelations.
+---------
+
+# The 10 Scariest Animal Attack Movies Ever Made
+
+Movie, The Grey, Jaws, Backcountry, Cujo
+
+Thu, 19 Mar 2026 20:34:13 GMT
+
+https://collider.com/scariest-animal-attack-movies/
+
+Jaws, The Birds, and Backcountry are all among the best and most terrifying animal attack movies ever made.
+---------
+
+# 'Off Campus' Teaser and Release Date Revealed by Prime Video
+
+TV News, Off Campus, Prime Video
+
+Thu, 19 Mar 2026 21:50:37 GMT
+
+https://movieweb.com/prime-video-off-campus-first-teaser/
+
+The new series is based on the Elle Kennedy book series of the same name, with Season 1 adapting the book 'The Deal.'
+---------
+
+# 'The Bachelorette' Season 22 Canceled by ABC
+
+TV News, The Bachelorette, Reality
+
+Thu, 19 Mar 2026 21:41:09 GMT
+
+https://movieweb.com/the-bachelorette-season-22-canceled/
+
+Following shocking new reports, ABC has officially canceled the newest season of 'The Bachelorette.'
+---------
+
+# 'ER' Is 'The Pitt's Perfect Replacement Show Trending on HBO Max
+
+Features, The Pitt, ER, Comparison Recommendation
+
+Thu, 19 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/the-pitt-er-replacement/
+
+'The Pitt' fans will love 'ER,' the medical drama that aired on NBC for 15 seasons from 1994 to 2009 and is trending on HBO Max.
+---------
+
+# 'Enigma Variations' Casts Aaron Taylor-Johnson in Netflix Series
+
+TV News, Aaron Taylor-Johnson, Jeremy Allen White, Netflix
+
+Thu, 19 Mar 2026 20:16:13 GMT
+
+https://movieweb.com/aaron-taylor-johnson-enigma-variations-netflix/
+
+Jeremy Allen White was originally cast in the role when the project was announced in 2025.
+---------
+
 # Buffy's Canceled Reboot: Plot, New Slayer, & Everything We Know About Hulu's Scrapped Pilot
 
 Streaming TV, Buffy the Vampire Slayer Sequel Series
