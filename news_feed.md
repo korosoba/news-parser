@@ -1,3 +1,443 @@
+# Buffy's Canceled Reboot: Plot, New Slayer, & Everything We Know About Hulu's Scrapped Pilot
+
+Streaming TV, Buffy the Vampire Slayer Sequel Series
+
+Thu, 19 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/buffy-vampire-slayer-new-sunnydale-reboot-hulu-canceled-pilot/
+
+More details about Chloé Zhao and Sarah Michelle Gellar's Buffy the Vampire Slayer: New Sunnydale pilot, which was canceled by Hulu last week.
+---------
+
+# DC Officially Releases Lex Luthor Redesign for Wonder Woman’s New Appearance
+
+Comics, Wonder Woman, Lex Luthor
+
+Thu, 19 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/dc-official-wonder-woman-war-new-lex-luthor-redesign/
+
+DC unveils Lex Luthor’s bold new redesign for Wonder Woman’s future era, transforming the iconic villain with a striking, 10/10 new look.
+---------
+
+# Kevin Bacon & His Family’s Unique New Horror Movie Was “A Dream Scenario” Apart From 1 Thing
+
+Movies, Family Movie, Horror, SXSW, Kevin Bacon, Sosie Bacon
+
+Thu, 19 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/kevin-bacon-family-movie-dream-scenario-kyra-sedgwick-sosie-travis-sxsw/
+
+Kevin Bacon, Kyra Sedgwick, Travis Bacon and Sosie Bacon talk their unique new horror movie, Family Movie, and why production was mostly a dream.
+---------
+
+# Apple TV's Polarizing 8-Part Mystery Crime Series Is An Instant Streaming Hit
+
+TV, Imperfect Women, Apple TV
+
+Thu, 19 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/imperfect-women-apple-tv-streaming-success-march-2025/
+
+Apple TV's polarizing, eight-episode mystery crime series becomes an instant streaming hit despite how divided critics are about the series.
+---------
+
+# PlayStation Plus Gamers In Love With Service's Best Free Game "In A Long Time"
+
+Gaming, PlayStation Plus, PlayStation 5
+
+Thu, 19 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/playstation-plus-best-free-game-march-2026/
+
+PlayStation Plus subscribers shouldn't miss this excellent new free game, available to download and play now.
+---------
+
+# Ryan Gosling's Campaign For Marvel Antihero "Is A Complicated Situation" Following Avengers: Doomsday Casting Rumors
+
+Movies, Ryan Gosling, Marvel Cinematic Universe, Ghost Rider, Avengers: Doomsday
+
+Thu, 19 Mar 2026 20:00:11 GMT
+
+https://screenrant.com/ghost-rider-marvel-studios-discussion-complicated-ryan-gosling/
+
+As Ryan Gosling wants to play one of Marvel's famous antiheroes, the actor gives a new update on joining the MCU after Avengers: Doomsday rumors.
+---------
+
+# The Bachelorette Season 22 Officially Canceled Amid Taylor Frankie Paul Controversy
+
+TV, The Bachelorette
+
+Thu, 19 Mar 2026 19:55:28 GMT
+
+https://screenrant.com/the-bachelorette-season-22-taylor-frankie-paul-abc-canceled/
+
+ABC has now canceled Taylor Frankie Paul's The Bachelorette season 22 following new claims of domestic abuse and a corresponding video.
+---------
+
+# Xbox Getting Major Free RPG, No Game Pass Required
+
+Gaming
+
+Thu, 19 Mar 2026 19:49:30 GMT
+
+https://screenrant.com/wuthering-waves-xbox-version-leak/
+
+Many games are still operating as console exclusives, especially when it comes to RPGs, but one title seems primed to arrive on Xbox.
+---------
+
+# Prime Video's 15-Part Sci-Fi Series Rewrites The Rules Of Video Game Adaptations
+
+TV, Secret Level
+
+Thu, 19 Mar 2026 19:45:20 GMT
+
+https://screenrant.com/secret-level-video-game-anthology-series-break-rules/
+
+Prime Video's ambitious sci-fi series reinvents the video game adaptation genre with its unique blend of star power and quick, immersive episodes.
+---------
+
+# Robert Pattinson & Zendaya's New A24 Movie Declared Their First Win Of Three Films In 2026
+
+Movies, The Drama
+
+Thu, 19 Mar 2026 19:41:58 GMT
+
+https://screenrant.com/the-drama-movie-first-reactions-robert-pattinson-zendaya/
+
+Robert Pattinson and Zendaya's new A24 movie has been declared their first win of three films in 2026 that they will be co-starring in together.
+---------
+
+# Marvel June 2026 Solicitations
+
+Comics, Marvel
+
+Thu, 19 Mar 2026 20:00:43 GMT
+
+https://www.cbr.com/marvel-june-2026-solicitations-spider-man-hulk-punisher/
+
+The Marvel Universe will never be the same again after the launch of Armageddon in the Marvel June 2026 solicitations
+---------
+
+# Nathan Fillion's Police Drama The Rookie Dominates Hulu Charts in the US
+
+TV, The Rookie, ABC, Hulu
+
+Thu, 19 Mar 2026 20:00:13 GMT
+
+https://www.cbr.com/the-rookie-police-procedural-abc-hulu-success-march-2026/
+
+ABC's popular police procedural The Rookie, starring Nathan Fillion, has surged to the top of Hulu charts in the US.
+---------
+
+# Marvel’s New Spider-Man Trailer Teases Punisher and The Hand's Transformation
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 19 Mar 2026 20:00:13 GMT
+
+https://www.cbr.com/mcu-spider-man-brand-new-day-punisher-the-hand-connection/
+
+Frank Castle is back in Spider-Man: Brand New Day, and it may be teasing his darkest story ever.
+---------
+
+# Gundam's Most Iconic Enemy Mecha Makes a Comeback With New Bandai Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, bandai, toys, action figures
+
+Thu, 19 Mar 2026 19:40:13 GMT
+
+https://www.cbr.com/gundam-sazabi-bandai-metal-robot-spirits-release/
+
+A new Premium Bandai action figure beautifully recreates Char Aznable's final mobile suit from the first major Mobile Suit Gundam anime movie.
+---------
+
+# The Legend of Zelda Officially Returns in 2026 With Brand-New Port
+
+Games, The Legend of Zelda
+
+Thu, 19 Mar 2026 19:35:13 GMT
+
+https://www.cbr.com/zelda-twilight-princess-2026-new-port-pc/
+
+Now, fans of the Zelda franchise will be able to experience the spiritual successor to Ocarina of Time on PC.
+---------
+
+# Star Trek: Starfleet Academy Calls Out a Missing Piece of Starfleet Canon 60 Years Later
+
+TV, Star Trek, Star Trek: Starfleet Academy, Sci-Fi
+
+Thu, 19 Mar 2026 19:28:12 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-calls-out-missing-military-canon/
+
+A tiny detail in the Season 1 finale of Starfleet Academy subtly settled an open 60-year-old question about Star Trek's central organization.
+---------
+
+# Spider-Man: Brand New Day Trailer Smashes Record With 718M Views
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Thu, 19 Mar 2026 19:21:17 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-breaks-trailer-record-deadpool-and-wolverine/
+
+The Spider-Man: Brand New Day trailer set a new record, garnering 718.6 million views in its first 24 hours, surpassing the previous record.
+---------
+
+# Chuck Norris Hospitalized After Medical Emergency
+
+TV, Chuck Norris
+
+Thu, 19 Mar 2026 19:19:12 GMT
+
+https://www.cbr.com/chuck-norris-hospitalized-medical-emergency/
+
+Chuck Norris was rushed to the hospital following an apparent medical emergency in Hawaii.
+---------
+
+# Hitman: Agent 47 Resurfaces on Streaming After Hulu Cancels TV Reboot
+
+Movies, Hitman: Agent 47
+
+Thu, 19 Mar 2026 19:04:09 GMT
+
+https://www.cbr.com/hitman-agent-47-streaming-march-2026/
+
+Now that the TV reboot has been canceled, the previous movie featuring Zachary Quinto is picking up steam on streaming.
+---------
+
+# Jason Statham's Stephen King-Approved Action Movie Is Still Dominating PVOD 1 Month After Release
+
+Movies, Shelter
+
+Thu, 19 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/jason-statham-shelter-action-movie-pvod-success-march-2026/
+
+If there's one thing Hollywood knows, it's that a Jason Statham action movie will dominate on digital and streaming after its theatrical run.
+---------
+
+# 26 Years Ago, This Foo Fighters Track Wasn't a Hit but Now It's One of the Greatest Rock Songs of All Time
+
+Music Features, Foo Fighters, Dave Grohl, Rock, Music
+
+Thu, 19 Mar 2026 20:00:13 GMT
+
+https://collider.com/26-years-ago-foo-fighters-everlong-greatest-rock-song-of-all-time/
+
+Released in 1997, this Foo Fighters’ song was not a major hit at first but is now widely regarded as one of the greatest rock songs of all time.
+---------
+
+# 8 Most Perfectly Directed Action Movies of All Time, Ranked
+
+Movie, Action, Inglourious Basterds, Raiders of the Lost Ark, Mad Max: Fury Road
+
+Thu, 19 Mar 2026 19:52:13 GMT
+
+https://collider.com/most-perfectly-directed-action-movies-all-time-ranked/
+
+Mad Max: Fury Road, Speed, The Matrix, Raiders of the Lost Ark, and more make up our list of the most perfectly directed action movies of all time.
+---------
+
+# Tom Hardy’s Epic Western Rolls Like a Tumbleweed in Box-Office Re-Release
+
+Movie News, Tom Hardy, Leonardo DiCaprio, The Revenant, Alejandro G. Inarritu
+
+Thu, 19 Mar 2026 19:49:11 GMT
+
+https://collider.com/tom-hardy-epic-western-the-revenant-re-release-box-office-500-thousand/
+
+Tom Hardy's Oscar-winning epic Western, The Revenant, performed so-so in its domestic re-release. Find out how much it grossed here.
+---------
+
+# 1971 John Lennon Interview Revealed Heated Rivalry With This Other Legendary Rock Band
+
+Music Features, John Lennon, Mick Jagger, Music, Rock
+
+Thu, 19 Mar 2026 19:28:33 GMT
+
+https://collider.com/1971-john-lennon-interview-revealed-heated-rivalry-with-rolling-stones/
+
+A John Lennon interview in 1971 accused The Rolling Stones of imitating The Beatles and that they were not in the same class.
+---------
+
+# Crunchyroll’s 12-Part Dark Fantasy Is the Perfect Weekend Binge for These 2 Surprising Reasons
+
+Exclusives, Sentenced to Be a Hero, Anime, Crunchyroll, Animation
+
+Thu, 19 Mar 2026 19:12:13 GMT
+
+https://collider.com/crunchyroll-anime-sentenced-to-be-a-hero-voice-actors-interview/
+
+Emi Lo and Dawn M. Bennett discuss their character development process for Teoritta and Kivia and behind-the-scenes moments from the show.
+---------
+
+# ‘Everything Everywhere All At Once’ Creators Officially Returning With Colossal Sci-Fi Action Movie [Exclusive]
+
+Movie News, Daniels, Daniel Kwan, The AI Doc: Or How I Became an Apocaloptimist, Daniel Scheinert
+
+Thu, 19 Mar 2026 19:09:49 GMT
+
+https://collider.com/the-daniels-new-sci-fi-action-movie-after-everything-everywhere-all-at-once-daniel-kwan-daniel-scheinert/
+
+The Daniels, known for Everything Everywhere All at Once, reveal their next movie will begin production this summer for a November 2027 release.
+---------
+
+# Fantasy Movies With the Greatest Dialogue Ever
+
+Movie, Fantasy, The Princess Bride, Monty Python and the Holy Grail, The Emperor's New Groove
+
+Thu, 19 Mar 2026 19:03:13 GMT
+
+https://collider.com/fantasy-movies-best-dialogue-ever/
+
+From Aladdin to The Princess Bride, these fantasy movies are perfect examples of how well-crafted, inventive dialogue can greatly enhance the genre.
+---------
+
+# 10 Best 'NCIS' Episodes, Ranked According to IMDb
+
+TV, NCIS, CBS, Crime
+
+Thu, 19 Mar 2026 19:00:13 GMT
+
+https://collider.com/best-ncis-episodes-ranked-imdb/
+
+NCIS has been a fan favorite police procedural TV show for decades, and these are the best episodes, according to IMDb.
+---------
+
+# Ryan Gosling Was so Lonely During His Sci-fi Epic He Had The Production Build Him a Co-Star
+
+Exclusives, Project Hail Mary, Ryan Gosling
+
+Thu, 19 Mar 2026 19:00:13 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-star-wars-starfighter-interview/
+
+Ryan Gosling discusses his experience filming alone for 100 days, the Harry Styles song that became the movies anthem, and Star Wars: Starfighter.
+---------
+
+# Prime Video's 10 Best Action Shows You Can Binge in a Weekend
+
+TV, Action, Reacher, Young Sherlock, Fallout
+
+Thu, 19 Mar 2026 19:00:13 GMT
+
+https://collider.com/best-prime-video-action-shows-binge-in-a-weekend/
+
+Young Sherlock, Reacher, Fallout, and Gen V are among Prime Video's best action series that are both exciting and perfect to binge in a weekend.
+---------
+
+# Matt Damon & Kevin Smith's 'Dogma' Is a Streaming Success on Apple Ahead of Sequel
+
+Movie News, Dogma, Apple TV, Hot on Streaming
+
+Thu, 19 Mar 2026 20:00:19 GMT
+
+https://movieweb.com/dogma-streaming-success-apple-march-2026/
+
+Before 'Dogma 2,' Matt Damon and Kevin Smith fans have been binge-watching the original 'Dogma' on the Apple TV store.
+---------
+
+# MovieWeb's MEGACON Orlando 2026 Panels
+
+Features
+
+Thu, 19 Mar 2026 19:46:33 GMT
+
+https://movieweb.com/movieweb-megacon-orlando-2026-panels/
+
+MovieWeb's Joe Deckelmeier will host panels with several Hollywood stars at MEGACON Orlando 2026. Here's what's on the menu.
+---------
+
+# 'Wild Horse Nine' Trailer Reveals Sam Rockwell CIA Thriller
+
+Movie News, Wild Horse Nine, Thriller, Martin McDonagh, Sam Rockwell, Three Billboards Outside Ebbing, Missouri
+
+Thu, 19 Mar 2026 19:44:45 GMT
+
+https://movieweb.com/wild-horse-nine-trailer/
+
+Writer and director Martin McDonagh is back with another comedic thriller in the new trailer for 'Wild Horse Nine'.
+---------
+
+# Atom Eve's Invincible' Season 4 Twist: Worst Reason Sidelines Powerful Hero
+
+Features, Invincible, Prime Video
+
+Thu, 19 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/atom-eve-invincible-twist-worst-reason/
+
+'Invincible' Season 4 continues to sideline Atom Eve, keeping her out of the fight for a terrible reason.
+---------
+
+# 'Spider-Man: Brand New Day' Trailer Breaks Record With 718.6 Million Views
+
+Movie News, Spider-Man: Brand New Day, MCU
+
+Thu, 19 Mar 2026 18:52:31 GMT
+
+https://movieweb.com/spider-man-brand-new-day-trailer-record/
+
+'Spider-Man: Brand New Day' nearly doubled the trailer views 'Deadpool & Wolverine' generated in just eight hours.
+---------
+
+# Paramount & Warner Bros. Merger "Not" on Fast Track for Approval From Department of Justice
+
+Movie News, Paramount Plus, David Ellison, HBO Max
+
+Thu, 19 Mar 2026 18:52:23 GMT
+
+https://movieweb.com/paramount-warner-merger-approval/
+
+The DOJ will remain "aggressive" and "not political" in reviewing the Paramount-Warner Bros. deal, according to regulators.
+---------
+
+# 'Neighbors' Season 2 Officially Greenlit at HBO
+
+TV News, Neighbors, HBO Max
+
+Thu, 19 Mar 2026 18:45:26 GMT
+
+https://movieweb.com/neighbors-season-2-hbo/
+
+The documentary series will unravel an all-new batch of disputes in a second season.
+---------
+
+# 'What Happens at Night': First Look at Jennifer Lawrence & Leonardo DiCaprio in New Scorsese Thriller
+
+Movie News, What Happens at Night, Martin Scorsese, Jennifer Lawrence, Leonardo DiCaprio
+
+Thu, 19 Mar 2026 18:44:59 GMT
+
+https://movieweb.com/what-happens-at-night-scorsese-first-look/
+
+Martin Scorsese's next film, a psychological thriller based on the Peter Cameron novel, has officially started production.
+---------
+
+# 'The Matrix 5' Gets New Update From Director Drew Goddard
+
+Movie News, The Matrix, The Matrix 5, Drew Goddard
+
+Thu, 19 Mar 2026 18:43:59 GMT
+
+https://movieweb.com/the-matrix-5-update-drew-goddard/
+
+Drew Goddard is penning the next 'Matrix' sequel, along with plans to direct the follow-up that is still on the way.
+---------
+
+# 'The Challenger' Series Starring Kristen Stewart Greenlit at Amazon
+
+TV News, Kristen Stewart
+
+Thu, 19 Mar 2026 18:30:25 GMT
+
+https://movieweb.com/the-challenger-series-kristen-stewart-amazon/
+
+'The Challenger,' which has been in development at Amazon since 2024, has finally gotten a series order.
+---------
+
 # Netflix Confirms No Secret Stranger Things Episode On Blu-ray Release
 
 Streaming TV, Stranger Things
