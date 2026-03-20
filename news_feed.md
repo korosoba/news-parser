@@ -1,3 +1,432 @@
+# Jujutsu Kaisen Reveals Its True Strongest Sorcerer
+
+Anime, Explainer, Jujutsu Kaisen
+
+Fri, 20 Mar 2026 17:00:22 GMT
+
+https://screenrant.com/jujutsu-kaisen-takaba-stronger-gojo/
+
+The one character who can beat Gojo.
+---------
+
+# Netflix's Second Original Series: Orange Is The New Black's Timeless Relevance
+
+Classic TV, Orange is The New Black
+
+Fri, 20 Mar 2026 17:00:22 GMT
+
+https://screenrant.com/orange-is-the-new-black-netflix-original-still-relevant/
+
+The Netflix show remains a quality piece of television to this day despite being one of the first series to navigate the streaming transition.
+---------
+
+# Brendan Fraser & Rachel Weisz's The Mummy 4 Finally Gets Filming Start Window
+
+Movies, The Mummy
+
+Fri, 20 Mar 2026 16:56:44 GMT
+
+https://screenrant.com/the-mummy-4-filming-start-window-revealed-radio-silence/
+
+Following a release date announcement earlier this year, The Mummy 4 starring Brendan Fraser and Rachel Weisz now has a filming start window.
+---------
+
+# Taylor Frankie Paul's Bachelorette Season Cancellation: Everything We Know & What Happens Next
+
+Reality TV, The Bachelorette, The Bachelor
+
+Fri, 20 Mar 2026 16:50:08 GMT
+
+https://screenrant.com/the-bachelorette-season-22-cancellation-taylor-frankie-paul-what-happens-next/
+
+ABC canceled The Bachelorette season 22 starring Taylor Frankie Paul, leaving fans wondering what will happen next for her and the show.
+---------
+
+# The Pitt Season 2 Officially Debunks A Major Robby Death Theory
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 20 Mar 2026 16:45:20 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-11-robby-death-theory-debunked/
+
+The Pitt season 2, episode 11 confirms a popular fan theory about Dr. Robby is impossible due to a plot development involving Duke's CT scan.
+---------
+
+# Netflix is Officially Losing its Best Anime in Massive Blow to the Streaming Giant
+
+Anime, Netflix, Mob Psycho 100, Kimi ni Todoke: From Me to You, Kabaneri of the Iron Fortress
+
+Fri, 20 Mar 2026 16:41:46 GMT
+
+https://screenrant.com/netflix-losing-mob-psycho-100/
+
+Netflix is officially losing the greatest anime of all time, along with several other Netflix Original anime series, throughout the rest of 2026.
+---------
+
+# Project Hail Mary Has A Post-Credits Surprise (But It's Not A Scene)
+
+New Movies, Project Hail Mary
+
+Fri, 20 Mar 2026 16:35:29 GMT
+
+https://screenrant.com/project-hail-mary-post-credits-scene-explained/
+
+Surprise, surprise, surprise: Project Hail Mary includes something in its post-credits, but it's not an after-credits scene. Here's what it is.
+---------
+
+# Why Ryan Gosling's Project Hail Mary Tones Down 1 Element Of Andy Weir's Sci-Fi Novel Explained
+
+Movies, Project Hail Mary, Ryan Gosling
+
+Fri, 20 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/ryan-gosling-project-hail-mary-erid-toned-down-explained-goddard-lord-miller-weir/
+
+Ryan Gosling, Phil Lord, Chris Miller, Andy Weir and Drew Goddard talk Project Hail Mary and toning down a specific element from the novel.
+---------
+
+# The Lowdown season 2 is confirmed, so catch up on season 1 in one weekend.
+
+Streaming TV, The Lowdown
+
+Fri, 20 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/the-lowdown-weekend-binge-season-2-update/
+
+The Lowdown season 2 is on its way with Tommy Lee Jones and Betty Gilpin joining, so now's the time to get caught up on Hulu's 8-episode crime show.
+---------
+
+# 10 Anime Under 100 Episodes That Are Outright Masterpieces
+
+Anime
+
+Fri, 20 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/best-anime-under-100-episodes/
+
+These titles prove that length has little to do with a story's overall quality.
+---------
+
+# Suits Star Patrick J. Adams Jokes About His Time on Legends Of Tomorrow
+
+TV, The Madison, DC's Legends of Tomorrow
+
+Fri, 20 Mar 2026 16:49:34 GMT
+
+https://www.cbr.com/suits-patrick-j-adams-hourman-legends-of-tomorrow/
+
+Has Patrick J. Adams moved on from comic book adaptations for good?
+---------
+
+# Prime Video's Bait Debuts to Perfect Rotten Tomatoes Score
+
+TV, Bait, Rotten Tomatoes, Prime Video
+
+Fri, 20 Mar 2026 16:43:01 GMT
+
+https://www.cbr.com/prime-video-bait-rotten-tomatoes-score/
+
+Prime Video is teasing its James Bond era.
+---------
+
+# Ken Kwapis Breaks Down The Shaggs’ Legacy | SXSW 2026
+
+Movies, SXSW
+
+Fri, 20 Mar 2026 16:30:13 GMT
+
+https://www.cbr.com/video/ken-kwapis-breaks-down-the-shaggs-legacy-sxsw-2026/
+
+Ken Kwapis breaks down why this infamous band still fascinates decades later.At SXSW, Kwapis dives into the emotional truth behind The Shaggs, revealing how their “discordant” sound hides something deeply human. From gaining the trust of Dot and Betty Wiggin to pivoting from a failed feature film into a deeply personal documentary, this interview unpacks it all. Plus, the surprising role of musicologist Susan Rogers and what “authenticity” really means in music.If you’ve ever wondered why The Shaggs sound the way they do, this documentary might finally answer it.
+---------
+
+# Jujutsu Kaisen Episode 59 Release Date & Time
+
+Anime, Jujutsu Kaisen, shonen anime, Shonen, Crunchyroll
+
+Fri, 20 Mar 2026 16:16:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-season-3-episode-12-release-date-time/
+
+After several episodes of following Itadori and Fushiguro, JJK's mid-season 3 finale joins Yuta Okkotsu for the Sendai Colony 4-way battle.
+---------
+
+# Netflix Assassin's Creed Series Begins Production in Rome, Set in 64 AD
+
+TV, Assassin's Creed, Netflix
+
+Fri, 20 Mar 2026 16:14:50 GMT
+
+https://www.cbr.com/netflix-assassins-creed-setting-timeline-filming-begins/
+
+Netflix's live-action Assassin's Creed series has officially started filming in Rome, Italy, set in 64 AD during the Roman Empire.
+---------
+
+# Channing Tatum's $533M Action Remake Film Series Is Climbing Up the Charts 12 Years Later
+
+Movies, 21 Jump Street, 22 Jump Street, Paramount Plus
+
+Fri, 20 Mar 2026 16:06:05 GMT
+
+https://www.cbr.com/21-jump-street-action-remake-paramount-plus-success-march-2026/
+
+Paramount+ subscribers cannot stop streaming Channing Tatum movies.
+---------
+
+# A New Power Ranger Is Confirmed To Appear, And Soon
+
+Comics, Power Rangers
+
+Fri, 20 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/striking-tiger-unlimited-ranger-power-rangers-unlimited/
+
+The next major series is introducing a brand-new hero to the Power Rangers franchise, and they could very well be the most Morphinomenal of all time.
+---------
+
+# Netflix’s No. 2 Movie Nobody 2 Proves the Danger of Action Franchise Fatigue
+
+Movies, Nobody 2, Action, Netflix
+
+Fri, 20 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/netflixs-nobody-2-proves-danger-action-franchise-fatigue/
+
+This action-packed sequel is finding major success on Netflix's charts, but it's the prime example of a worrying franchise trend.
+---------
+
+# The Status of Sonic and Shadow's Long-Running Relationship Has Been Confirmed
+
+CBR Exclusives, Sonic the Hedgehog
+
+Fri, 20 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/shadow-sonic-relationship-explained-david-humphrey/
+
+Decades later, these two hedgehogs are still deeply loved.
+---------
+
+# Prime Video's The English Outshines Yellowstone
+
+TV, Western, The English, Yellowstone
+
+Fri, 20 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/prime-video-the-english-outshines-yellowstone/
+
+Prime Video's The English outshines most Westerns with its compact story, authentic cinematography, and fresh take on overdone genre tropes.
+---------
+
+# 3 Years Later, 'X-Files' Star Returns to Her Cult Classic Fantasy Saga
+
+TV News, Mayfair Witches, The X-Files, Annabeth Gish, AMC+
+
+Fri, 20 Mar 2026 17:09:24 GMT
+
+https://collider.com/mayfair-witches-season-3-fantasy-series-x-files-star-annabeth-gish-returning/
+
+Annabeth Gish, known for her role in The X-Files, is set to return in Season 3 of AMC's cult classic fantasy series, Mayfair Witches.
+---------
+
+# 'The X Files' Meets 'The West Wing' in Your Next Must-See Sci-Fi Obsession [Exclusive]
+
+Exclusives, The X-Files, The West Wing, Sci-Fi, Drama
+
+Fri, 20 Mar 2026 17:00:14 GMT
+
+https://collider.com/saucer-country-tv-series-adaptation-sci-fi-political-thriller-what-to-expect-alberto-lopez/
+
+Blending The X-Files and The West Wing, Saucer Country’s producer promises it’s got something for everyone. Find out more here.
+---------
+
+# 2019 Billie Eilish Song Almost Didn't Make the Album — Now It’s Considered Her Best Written Track
+
+Music Features, Billie Eilish, Music, Billboard Hot 100, Pop
+
+Fri, 20 Mar 2026 16:53:29 GMT
+
+https://collider.com/billie-eilish-everything-i-wanted-2019-best-written-track/
+
+Billie Eilish's harrowing nightmare inspired her hit song Everything I Wanted, a deeply personal track about mental health and sibling support, nearly left off her debut album.
+---------
+
+# The Greatest Fantasy Saga of All Time Returns With New The Lord of the Rings Release on November 6
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, Andy Serkis
+
+Fri, 20 Mar 2026 16:51:37 GMT
+
+https://collider.com/lord-of-the-rings-new-fantasy-project-tabletop-rpg-circle-of-conflict/
+
+The Lord of the Rings universe continues to expand, with a new tabletop RPG set in the Third Age of Middle-earth announced for Fall 2026.
+---------
+
+# Noah Kahan’s Stellar Career Is Only Getting Better After Life-Changing Advice From Legendary Folk Rocker
+
+Exclusives, SXSW, Noah Kahan, Noah Kahan: Out of Body
+
+Fri, 20 Mar 2026 16:51:25 GMT
+
+https://collider.com/noah-kahan-netflix-documentary-out-of-body-great-divide-tour-interview/
+
+Noah Kahan and Nick Sweeney talk about the process of making such a personal documentary, as well as the success of Kahan selling out his 2026 tour.
+---------
+
+# 'Yellowstone' Spin-Off Star Luke Grimes Teases an "Intense" Finale Cliffhanger
+
+Exclusives, Marshals, Luke Grimes, SXSW, Yellowstone
+
+Fri, 20 Mar 2026 16:38:12 GMT
+
+https://collider.com/marshals-season-1-finale-cliffhanger-explained-luke-grimes-arielle-kebbel-ash-santos/
+
+Luke Grimes, Arielle Kebbel, Ash Santos and Brecken Merrill discuss Season 1's intense finale cliffhanger, filming challenges, and Season 2 renewal.
+---------
+
+# ‘Over Your Dead Body’ Review: Even Jason Segel and Samara Weaving Can't Save This Messy Thriller
+
+Movie Reviews, Over Your Dead Body, Samara Weaving, Jason Segel, SXSW
+
+Fri, 20 Mar 2026 16:15:17 GMT
+
+https://collider.com/over-your-dead-body-review-jason-segel-samara-weaving/
+
+Over Your Dead Body, starring Jason Segel and Samara Weaving, is a thriller-comedy that loses its way and never recovers.
+---------
+
+# FX’s Stellar 2-Sister Crime Drama With Victoria Pedretti Is Already a Must-Watch [Exclusive]
+
+Exclusives, Victoria Pedretti, Forbidden Fruits, Peter Gould, FX
+
+Fri, 20 Mar 2026 16:10:13 GMT
+
+https://collider.com/victoria-pedretti-disinherited-kiera-allen-peter-gould-fx-series-better-call-saul-follow-up/
+
+Victoria Pedretti shares some insight into her new series Disinherited and gushes about working alongside Kiera Allen. Find out more here.
+---------
+
+# Disney Reveals Epic New ‘Zootopia 2’ Tie-In Merch [Exclusive]
+
+Exclusives, Zootopia 2
+
+Fri, 20 Mar 2026 16:00:12 GMT
+
+https://collider.com/zootopia-2-loungefly-bags-accessory-collection-images/
+
+Loungefly has released a new collection of Zootopia 2 accessories featuring Nick, Judy, and other citizens from the smash hit sequel.
+---------
+
+# Season 2 of Netflix’s 8-Part Sci-Fi Series Is Worth the Wait According to 1 New Addition [Exclusive]
+
+TV News, 3 Body Problem, Claudia Doumit, Netflix, SXSW
+
+Fri, 20 Mar 2026 16:00:12 GMT
+
+https://collider.com/3-body-problem-season-2-claudia-doumit-new-character-explained/
+
+The Boys star Claudia Doumit has broken her silence on joining the Season 2 cast of Netflix's best sci-fi series, 3 Body Problem.
+---------
+
+# Gripping and Realistic Sci-Fi Epic 'District 9' Is Leaving Netflix on March 31
+
+Movie News, District 9, Coming/Leaving Streaming
+
+Fri, 20 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/district-9-leaving-netflix-march-2026/
+
+Now's the last chance to stream the impressive big-screen debut by Neill Blomkamp.
+---------
+
+# Prime Video's New James Bond-Related Comedy 'Bait' Debuts With 100% on Rotten Tomatoes
+
+TV News, Bait, Prime Video, James Bond, Riz Ahmed
+
+Fri, 20 Mar 2026 17:00:07 GMT
+
+https://movieweb.com/bait-rotten-tomatoes-score/
+
+Prime Video's meta James Bond series 'Bait' has received significant critical acclaim ahead of its debut, resulting in a 100% Rotten Tomatoes score.
+---------
+
+# 'Faces of Death' Remake Posters Deemed "Too Disturbing" To Display in Public
+
+Movie News, Faces of Death, Daniel Goldhaber
+
+Fri, 20 Mar 2026 16:46:10 GMT
+
+https://movieweb.com/faces-of-death-remake-too-disturbing/
+
+The director behind the upcoming 'Faces of Death' horror thrille remake says "they keep banning our movies."
+---------
+
+# Best 'Oliver Twist' Movie Adaptations, Ranked
+
+Movie Lists, Oliver Twist
+
+Fri, 20 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/oliver-twist-movie-adaptation/
+
+This timeless piece of literature from Charles Dickens has been adapted numerous times over the years. Here are the best movie adaptations, ranked.
+---------
+
+# Disney Sci-Fi Film 'Bicentennial Man' Becomes a Streaming Hit
+
+Movie News, Bicentennial Man, Hot on Streaming
+
+Fri, 20 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/bicentennial-man-streaming-hit-march-2026/
+
+The Robin Williams film has become one of Tubi's most popular films in recent days.
+---------
+
+# How Much 'Project Hail Mary' Needs To Make To Profit at the Box Office
+
+Features, Project Hail Mary
+
+Fri, 20 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/project-hail-mary-box-office-profit/
+
+Amazon MGM has invested $200 million into the sci-fi movie 'Project Hail Mary' from directors Phil Lord and Chris Miller and starring Ryan Gosling.
+---------
+
+# 'Project Hail Mary' Is Now Ryan Gosling's Highest Rated Movie on Rotten Tomatoes
+
+Movie News, Project Hail Mary, Ryan Gosling
+
+Fri, 20 Mar 2026 15:39:37 GMT
+
+https://movieweb.com/project-hail-mary-ryan-gosling-rotten-tomatoes/
+
+The leading man behind the likes of 'La La Land' and 'Drive' just broke his own record on Rotten Tomatoes.
+---------
+
+# Jason Statham's 92% Rated 'John Wick' Rip-off Lands New Streaming Home
+
+Movie News, The Beekeeper, Coming/Leaving Streaming, Jason Statham
+
+Fri, 20 Mar 2026 15:30:18 GMT
+
+https://movieweb.com/the-beekeeper-jason-statham-streaming-hulu-april-2026/
+
+It might not be an exact carbon copy of Keanu Reeve's modern action classic, but 'The Beekeeper' definitely shares similarities.
+---------
+
+# ‘Fast Forever’ Hires ‘Hunger Games’ Writer to Pen Vin Diesel's Action Finale
+
+Movie News, Fast Forever, Vin Diesel
+
+Fri, 20 Mar 2026 14:32:31 GMT
+
+https://movieweb.com/fast-forever-script-writer-michael-lesslie/
+
+Along with the next 'Hunger Games' and 'X-Men' movies, Michael Lesslie will write the script for Vin Diesel's 'Fast Forever.'
+---------
+
 # Spider-Man: Brand New Day Finally Fixes A 9-Year MCU Problem
 
 Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
