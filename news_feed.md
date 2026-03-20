@@ -1,3 +1,223 @@
+# Why You Need To Be Watching Netflix's Next Big Anime
+
+Anime, Netflix, JoJo's Bizarre Adventure, Op-Ed
+
+Fri, 20 Mar 2026 23:33:15 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-steel-ball-run-netflix-biggest-anime-2026/
+
+This Netflix anime is already a masterpiece.
+---------
+
+# Pokémon Winds & Waves Leaked Catching System Praised By Fans
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Fri, 20 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/pokemon-winds-waves-leaked-catching-system/
+
+Gen 10 leaks abound, and some suggest Pokémon Winds and Waves will be adopting a more recent, crucial change to the series' catching mechanics.
+---------
+
+# 8 Pulitzer-Winning Fiction Novels You Have To Give A Shot
+
+Books
+
+Fri, 20 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/perfect-pullitzer-prize-winning-novels-aged-well/
+
+These Pulitzer-winners are absolute must-read material.
+---------
+
+# Jujutsu Kaisen Modulo's 10 Biggest Unanswered Questions
+
+Anime, Jujutsu Kaisen Modulo
+
+Fri, 20 Mar 2026 23:50:12 GMT
+
+https://www.cbr.com/jjk-modulo-biggest-mysteries/
+
+JJK's sequel filled in the gaps on some of Jujutsu Kaisen's lore, but it also spawned an entirely new set of questions.
+---------
+
+# Netflix's Bloodhounds Season 2 Finally Arrives Next Month
+
+TV, Bloodhounds
+
+Fri, 20 Mar 2026 23:39:12 GMT
+
+https://www.cbr.com/netflix-bloodhounds-season-2-trailer/
+
+The acclaimed, action-packed series is soon returning to Netflix after a three-year wait for fans.
+---------
+
+# 7 Dark Anime Masterpieces That Almost Lost Everyone on the First Episode
+
+Anime, Attack on Titan, Made in Abyss, Steins;Gate, Re:Zero -Starting Life in Another World-
+
+Fri, 20 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/darkest-anime-debut-episodes/
+
+Great anime like Made in Abyss and Devilman Crybaby started off in ways that almost pushed fans to quit too soon.
+---------
+
+# Naoko Takeuchi's Official Sailor Moon Art Appears on New Cherry Blossom Manhole Cover
+
+Anime, Sailor Moon
+
+Fri, 20 Mar 2026 23:05:12 GMT
+
+https://www.cbr.com/sailor-moon-cherry-blossom-design-new-manhole-cover/
+
+Sailor Moon fans get a new way to celebrate their favorite franchise as one of Tokyo's most beloved features returns with new designs.
+---------
+
+# Regular Show Returns to Cartoon Network as The Lost Tapes
+
+TV, Regular Show, Cartoon Network, Animation
+
+Fri, 20 Mar 2026 23:00:54 GMT
+
+https://www.cbr.com/regular-show-the-lost-tapes-premiere-date-cartoon-network/
+
+After a 9-year hiatus, Regular Show makes a comeback on Cartoon Network with a new revival titled The Lost Tapes, set to premiere in May.
+---------
+
+# For All Mankind Is Raising the Bar for High-Risk Sci-Fi
+
+TV, For All Mankind, Apple TV, Sci-Fi
+
+Fri, 20 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/for-all-mankind-raising-the-bar-for-sci-fi-with-aliens/
+
+A throwaway line from the pilot episode of For All Mankind may have predicted that the show is going places it's never touched before.
+---------
+
+# Where Project Hail Mary Ranks Among Every Phil Lord & Chris Miller Movie
+
+Movies, Project Hail Mary, Sci-Fi
+
+Fri, 20 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/every-phil-lord-christopher-miller-movie-project-hail-mary-ranked-list/
+
+Project Hail Mary marks the tenth directorial collaboration between Phil Lord and Christopher Miller. How does it rank among the rest of their movies?
+---------
+
+# Netflix's Stellar 2-Part Fantasy Remake Is the Current King of Streaming
+
+TV News, One Piece, Netflix, Pirates of the Caribbean, Action
+
+Fri, 20 Mar 2026 23:51:56 GMT
+
+https://collider.com/netflix-one-piece-season-2-fantasy-series-streaming-success-march-2026/
+
+A swashbuckling Netflix series dominates globally, topping charts worldwide and proving its unstoppable streaming power. Read on for more.
+---------
+
+# Star Wars Icon's 12-Year-Old Thriller Is About To Leave Streaming
+
+Movie News, Ewan McGregor, Star Wars, Son of a Gun, Tubi
+
+Fri, 20 Mar 2026 23:45:53 GMT
+
+https://collider.com/ewan-mcgregor-forgotten-action-thriller-son-of-a-gun-leaving-streaming-tubi-march-2026/
+
+A gritty, overlooked action thriller is leaving free streaming soon, making now the perfect time to catch this intense, underseen crime story.
+---------
+
+# 3 Prime Video Shows Perfect for a Weekend Binge
+
+TV, Prime Video, Gracepoint, Mr. & Mrs. Smith, Jury Duty Presents: Company Retreat
+
+Fri, 20 Mar 2026 23:43:15 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-march-20/
+
+Gracepoint, Mr. & Mrs. Smith, and Jury Duty make up our list of the best Prime Video shows to watch the weekend of March 20, 2026.
+---------
+
+# Hulu Revives Agatha Christie's Sinister 103-Minute Murder Mystery on April 30
+
+Movie News, A Haunting in Venice, Agatha Christie, Kenneth Branagh, Hulu
+
+Fri, 20 Mar 2026 23:40:17 GMT
+
+https://collider.com/agatha-christie-murder-mystery-adaptation-a-haunting-in-venice-streaming-hulu-april-30-2026/
+
+Discover the atmospheric and thrilling A Haunting in Venice, the adaptation of Agatha Christie's classic detective story, coming to Hulu.
+---------
+
+# Apple TV’s 10/10 Sci-Fi Secret Weapon You Forgot About Is Surging Before Season 2
+
+TV News, Dark Matter, Apple TV, Joel Edgerton, Jennifer Connelly
+
+Fri, 20 Mar 2026 23:33:45 GMT
+
+https://collider.com/apple-tv-sci-fi-sleeper-hit-dark-matter-streaming-success-march-2026/
+
+Apple TV's 10/10 sci-fi secret weapon you forgot about is quietly surging on streaming before the premiere of Season 2. Read on for more.
+---------
+
+# 23 Years Later, Hulu Cancelling the 'Buffy' Reboot Makes No Sense
+
+TV Features, Buffy The Vampire Slayer, Sarah Michelle Gellar, Hulu, Horror
+
+Fri, 20 Mar 2026 23:22:12 GMT
+
+https://collider.com/buffy-the-vampire-slayer-reboot-cancelled-hulu-mistake/
+
+Hulu's decision to cancel Sarah Michelle Gellar and Chloé Zhao's Buffy the Vampire Slayer reboot isn't just a mistake, but it doesn't make sense.
+---------
+
+# 54 Years Later, This Stellar War Series Masterpiece Is Getting Better With Age
+
+TV Features, M*A*S*H, Alan Alda, CBS, Hulu
+
+Fri, 20 Mar 2026 23:09:12 GMT
+
+https://collider.com/mash-classic-american-tv-show-binge-watch/
+
+MASH remains a timeless blend of comedy and drama, offering a poignant critique of war and its impact on soldiers' lives.
+---------
+
+# Prime Video's Gritty 5-Part Sci-Fi Epic Returns for the Last Time on April 8
+
+TV News, The Boys, Antony Starr, Karl Urban, Prime Video
+
+Fri, 20 Mar 2026 23:07:33 GMT
+
+https://collider.com/prime-video-superhero-series-the-boys-final-season-5-release-date-april-8-2026/
+
+The Boys concludes with its fifth and final season on April 8. Fans can expect mayhem, madness, and a diabolical ride.
+---------
+
+# 'Everything Everywhere...' Director Confirms Details of New Sci-Fi Action Film
+
+Movie News, Everything Everywhere All at Once
+
+Fri, 20 Mar 2026 23:46:09 GMT
+
+https://movieweb.com/everything-everywhere-directors-new-sci-fi/
+
+Daniel Kwan teased that the follow-up to the Oscar-winning sci-fi film will return to that realm and shoot this summer.
+---------
+
+# The 10 Best Chuck Norris Movies
+
+Movie Lists, Chuck Norris
+
+Fri, 20 Mar 2026 23:30:17 GMT
+
+https://movieweb.com/best-chuck-norris-movies/
+
+Legendary action star and martial artist Chuck Norris has died at the age of 86. The following are his greatest movies.
+---------
+
 # Sarah Michelle Gellar’s New R-Rated Horror Movie Officially Breaks All-Time Rotten Tomatoes Record After 27 Years
 
 Movies, Ready or Not 2: Here I Come, Ready or Not, Sarah Michelle Gellar
