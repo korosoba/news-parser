@@ -1,3 +1,344 @@
+# PlayStation Gamers Split Over Unexpected Rebrand And Name Change
+
+Gaming, PlayStation Plus
+
+Fri, 20 Mar 2026 04:01:24 GMT
+
+https://screenrant.com/playstation-name-change-rebrand-gamer-reaction/
+
+PlayStation is rebranding, and its name change is already beginning to cause a stir in the community that it will be affecting.
+---------
+
+# Mob Cinema Fans Totally Missed Netflix's 20-Episode Crime Thriller and, Frankly, It's Criminal
+
+Anime, Vincenzo
+
+Fri, 20 Mar 2026 03:59:19 GMT
+
+https://screenrant.com/crime-criminal-mob-cinema-vincenzo-netflix-k-drama/
+
+Netflix's exclusive streaming content owes its origins to the crime and mob genre, but this 2021 K-drama carries that flame a decade later.
+---------
+
+# Warner Bros.'s New Action Horror With Marvel & Harry Potter Stars Debuts To Stellar Rotten Tomatoes Score
+
+Movies, They Will Kill You, Horror, Zazie Beetz, Warner Bros.
+
+Fri, 20 Mar 2026 03:56:33 GMT
+
+https://screenrant.com/they-will-kill-you-movie-rotten-tomatoes-score-debut/
+
+A new Warner Bros. horror movie starring Marvel and Harry Potter stars debuts to a stellar Rotten Tomatoes score ahead of its theatrical release.
+---------
+
+# A Fistful Of Dollars’ Remake Has Found Its Perfect Clint Eastwood Replacement In DCU’s Lanterns
+
+Movies, Clint Eastwood, A Fistful of Dollars, Rebel Ridge, Lanterns, Aaron Pierre
+
+Fri, 20 Mar 2026 03:46:19 GMT
+
+https://screenrant.com/lanterns-rebel-ridge-aaron-pierre-fistful-of-dollars-remake/
+
+A classic Clint Eastwood Western, with a 98% RT score, is being remade, and it might have already found its perfect lead in DCU’s upcoming series.
+---------
+
+# Prime Video's Upcoming Sci-Fi Series Proves The Need For A Reboot Of A 6-Part Space Opera Masterpiece
+
+Streaming TV, Sci-Fi, Prime Video, The Expanse
+
+Fri, 20 Mar 2026 03:31:51 GMT
+
+https://screenrant.com/prime-video-the-captives-war-reminder-need-more-the-expanse/
+
+As Prime Video's upcoming show takes viewers on a new space opera adventure, it's impossible not to reflect on the masterpiece that ended too soon.
+---------
+
+# Naruto: Every Tailed Beast & Jinchuriki In The Series
+
+Anime, Naruto, Boruto: Naruto Next Generations
+
+Fri, 20 Mar 2026 03:30:19 GMT
+
+https://screenrant.com/naruto-tailed-beasts-bijuu-jinchuriki-powers-explained/
+
+The mythology of the Tailed Beasts and their Jinchuriki is central to the Naruto story, but you don't need a catchy song to remember them all.
+---------
+
+# 9 New Gen Anime Every Dragon Ball Fan Needs To Watch At Least Once
+
+Anime
+
+Fri, 20 Mar 2026 03:15:19 GMT
+
+https://screenrant.com/new-gen-anime-dragon-ball-fans-need-watch/
+
+Discover 9 action-packed modern anime that Dragon Ball fans will love, featuring epic battles, unforgettable characters, and thrilling storylines.
+---------
+
+# Like Dune, Apple TV’s New Cyberpunk Show Can Prove “Unfilmable” Sci-Fi Books Are Finally Adaptable
+
+Streaming TV, Dune, Neuromancer
+
+Fri, 20 Mar 2026 03:01:02 GMT
+
+https://screenrant.com/dune-apple-tv-cyberpunk-neuromancer-unfilmable/
+
+After Denis Villeneuve‘s Dune films, it’s hard not to see how an Apple TV cyberpunk show will also prove that “unfilmable” sci-fi books are adaptable.
+---------
+
+# Scrubs Season 10 Has The Perfect Season 1 Callback To Break Fans' Hearts
+
+Streaming TV, Scrubs
+
+Fri, 20 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/scrubs-callback-jd-elliot-pizza-scene-season-1-perfect/
+
+Scrubs has always known how to break out hearts, and the revival's fourth episode just used the perfect season 1 flashback to do it all over again.
+---------
+
+# 7 Upcoming Animated Shows You Cannot Miss
+
+Streaming TV, Something is Killing the Children, X-Men '97, Eleceed
+
+Fri, 20 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/upcoming-animated-shows-you-cannot-miss/
+
+These seven highly-anticipated animated TV shows will captivate audiences with their compelling stories and impressive visuals.
+---------
+
+# 6 Years Before Netflix’s One Piece, This Star Teamed Up With Justin Bieber for an Unlikely Collab
+
+Anime, One Piece
+
+Fri, 20 Mar 2026 04:04:46 GMT
+
+https://www.cbr.com/justin-bieber-music-video-netflix-one-piece-emily-rudd/
+
+Before Netfix's One Piece live-action, Emily Rudd, the actress behind Nami, was featured in a Justin Bieber music video during her early days.
+---------
+
+# Transformers' Forgotten G1 Decepticon Gets a Big Action Figure Update With New Prototype Reveal
+
+Anime, Transformers, merchandise, action figures, toys
+
+Fri, 20 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/transformers-flywheels-flight-track-dr-wu-action-figure-prototype/
+
+An upcoming Transformers action figure updates one of the most obscure Generation 1 Decepticons, complete with images of a more heroic repaint.
+---------
+
+# Universal Studios' She-Wolf of London is Still the Most Deceptive Monster Movie
+
+Movies, universal pictures, She-Wolf of London, Universal Monsters
+
+Fri, 20 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/universal-she-wolf-of-london-deceptive-monster-movie-cheated-fans/
+
+Universal Pictures' She-Wolf of London promised a unique werewolf film and delivered something completely different.
+---------
+
+# Comedy Legend Jon Lovitz Stole the Show in 2 Friends Episodes 8 Years Apart
+
+TV, Friends, Comedy, NBC
+
+Fri, 20 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/friends-guest-star-stole-show-2-episodes/
+
+There are more than a few famous guest stars on Friends, but one who appeared twice in almost a decade was an instant highlight from the start.
+---------
+
+# ‘We’re Competing With Disney’: One Piece Anime Remake Updates ‘Old Story’ for New Generation With New Netflix Release
+
+Anime, One Piece, Netflix, Shonen Jump
+
+Fri, 20 Mar 2026 03:36:52 GMT
+
+https://www.cbr.com/one-piece-anime-remake-netflix-update/
+
+The long-awaited One Piece anime remake is updating its nearly 30-year-old story for a younger generation with its upcoming Netflix release.
+---------
+
+# CBR’s Official Winter 2026 Anime Series Power Ranking (Week 11)
+
+Anime, Anime Power Rankings
+
+Fri, 20 Mar 2026 03:23:12 GMT
+
+https://www.cbr.com/winter-2026-anime-most-popular-best-series-ranking-11/
+
+CBR’s latest Official Anime Series Power Ranking tracks the best and most popular series of the past two weeks, from JJK to Sentenced to Be a Hero.
+---------
+
+# Taylor Sheridan’s Without Remorse Failed to Launch a Tom Clancy Universe
+
+Movies, Tom Clancy's Without Remorse, Action
+
+Fri, 20 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/taylor-sheridan-without-remorse-failed-tom-clancy-universe/
+
+This brutal action flick didn't appeal to Clancy heads or Sheridan fans, rendering the prospective sequel a permanent resident of development hell.
+---------
+
+# 10 PS1 JRPGs That Are 10/10, No Notes
+
+Games, PlayStation (Original), Final Fantasy, retro games
+
+Fri, 20 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/greatest-ps1-jrpgs-all-time-ranked/
+
+Decades after the '90s, the best PS1 JRPGs still stand alongside the greatest games of all time.
+---------
+
+# 5 Strongest God Forms in Dragon Ball, Ranked
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Fri, 20 Mar 2026 03:09:08 GMT
+
+https://www.cbr.com/dragon-ball-strongest-god-forms-ranked-list/
+
+Powerful transformations are par for the course in Dragon Ball, but there are forms possessed by dangerous deities that are in a league of their own.
+---------
+
+# Netflix's American Primeval Is a Gritty, Unfiltered Look at the Old West
+
+TV, American Primeval, Netflix, Western
+
+Fri, 20 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/netflix-american-primeval-1883-replacement/
+
+Set in 1857 in the Utah Territory, this Netflix miniseries provides an unfiltered glimpse into the American frontier across six episodes.
+---------
+
+# Prime Video’s 3-Part Crime Thriller Franchise Is Quietly Getting Better
+
+TV Features, Bosch, Ballard, Bosch: Legacy, Prime Video
+
+Fri, 20 Mar 2026 03:07:13 GMT
+
+https://collider.com/prime-video-bosch-franchise-gets-better-legacy-ballard/
+
+Prime Video’s Bosch franchise evolves from solid procedural to standout crime saga with Legacy and Ballard raising the bar.
+---------
+
+# 10 Most Perfect Movies of the Last 15 Years, Ranked
+
+Movie, Portrait of a Lady on Fire, Aftersun, The Worst Person in the World, Whiplash
+
+Fri, 20 Mar 2026 03:04:13 GMT
+
+https://collider.com/most-perfect-movies-of-the-last-15-years-ranked/
+
+From Parasite to Mad Max: Fury Road, these modern masterpieces prove the last 15 years delivered some of cinema’s most perfect films.
+---------
+
+# 8 Horror Movies That Prove This Is Hollywood’s Best New Scream Queen
+
+Movie, Maika Monroe, It Follows, Longlegs, Watcher
+
+Fri, 20 Mar 2026 03:00:13 GMT
+
+https://collider.com/maika-monroe-best-horror-movies/
+
+Tau, Watcher, Longlegs, It Follows, Greta, and more make our list of Maika Monroe's best horror movies, proving she's the greatest new scream queen.
+---------
+
+# ‘Love Story’s Most Devastating 5 Minutes Tease the End of an Era in Its Penultimate Episode
+
+Interviews, Love Story, John F. Kennedy, Hulu, Ryan Murphy
+
+Fri, 20 Mar 2026 02:00:23 GMT
+
+https://collider.com/love-story-episode-8-jfk-jr-carolyn-princess-diana-death-juli-weiner-interview/
+
+Juli Weiner breaks down FX and Hulu’s Love Story as an intimate, tension-filled portrait of JFK Jr. and Carolyn Bessette’s marriage under pressure.
+---------
+
+# '9-1-1' Fans Should Be Very Worried for Buck After a Crushing New Reveal | Review
+
+TV Reviews, 9-1-1, Oliver Stark, ABC, Procedural
+
+Fri, 20 Mar 2026 01:01:13 GMT
+
+https://collider.com/9-1-1-season-9-episode-14-recap-review-buck-pills/
+
+Buck's emotional turmoil and potential pill addiction loom large in the latest episode of 9-1-1, leaving fans worried about his well-being.
+---------
+
+# ‘The Pitt’s Most Controversial Episode Exposes America’s Darkest Truth in 5 Minutes
+
+TV Features, The Pitt, Noah Wyle, Fiona Dourif, HBO Max
+
+Fri, 20 Mar 2026 01:01:13 GMT
+
+https://collider.com/the-pitt-season-2-episode-11-ice-storyline-noah-wyle-speech/
+
+The Pitt delves into the harsh reality of ICE agents in hospitals, mirroring current events and highlighting the struggles of staff and patients.
+---------
+
+# Apple TV's Guy Ritchie Original Movie Continues Streaming Domination 250 Days Later
+
+Movie News, Guy Ritchie, John Krasinski, Natalie Portman, Fountain of Youth
+
+Fri, 20 Mar 2026 00:16:43 GMT
+
+https://collider.com/fountain-of-youth-guy-ritchie-indiana-jones-replacement-streaming-milestone-apple-tv-march-2026/
+
+Guy Ritchie's $180 million action-adventure film may not have spawned a franchise, but it's certainly doing phenomenally well on streaming.
+---------
+
+# Amy Madigan’s ‘Weapons’ Oscar Win Is the First Performance To Achieve This Feat in 58 Years
+
+Movie Features, Weapons, Academy Awards, Amy Madigan, Rosemary's Baby
+
+Fri, 20 Mar 2026 00:12:13 GMT
+
+https://collider.com/amy-madigan-weapons-best-supporting-actress-oscar-horror-rosemarys-baby/
+
+Amy Madigan's win for Weapons marks the first time since Ruth Gordon in Rosemary’s Baby that a Best Supporting Actress winner came from a horror film.
+---------
+
+# ‘Yellowstone’ Star’s Forgotten 'Taken’ Meets ‘Face/Off’ Sci-Fi Misfire Finds New Life on Streaming
+
+Movie News, Yellowstone, Kevin Costner, Gary Oldman, Tommy Lee Jones
+
+Fri, 20 Mar 2026 00:02:49 GMT
+
+https://collider.com/kevin-costner-forgotten-taken-meets-faceoff-action-movie-criminal-streaming-success-tubi-march-2026/
+
+Kevin Costner's star-studded action movie Criminal, which also featured Tommy Lee Jones and Gary Oldman, is quietly climbing the streaming charts.
+---------
+
+# Emily Blunt's Worst Movie Was Inspired by This 1952 Film That's Dominating Streaming
+
+Movie News, Emily Blunt, John Wayne, The Quiet Man, Wild Mountain Thyme
+
+Fri, 20 Mar 2026 00:01:40 GMT
+
+https://collider.com/wild-mountain-thyme-emily-blunt-worst-movie-inspired-by-john-wayne-the-quiet-man-streaming-success-itunes-march-2026/
+
+With a leading role in Steven Spielberg's Disclosure Day around the corner, there couldn't be a better time to revisit her worst movie.
+---------
+
+# 'Spider-Man' Director Set to Produce Cyberpunk Thriller 'Not Safe for Life'
+
+Movie News, Jon Watts
+
+Fri, 20 Mar 2026 00:29:51 GMT
+
+https://movieweb.com/not-safe-for-life-cyberpunk-thriller-jon-watts/
+
+'Spider-Man: Homecoming' director gears up for production on newcomer's dark cyber thriller
+---------
+
 # V for Vendetta Director Explains How Movie Predicted the Future 20 Years Later
 
 Comics, V For Vendetta
