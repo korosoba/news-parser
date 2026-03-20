@@ -1,3 +1,300 @@
+# FBI Team Is "Very Worried" For Maggie After Family Tragedy As Missy Peregrym Skips Next Season 8 Episode
+
+TV, FBI
+
+Fri, 20 Mar 2026 21:38:37 GMT
+
+https://screenrant.com/fbi-season-8-team-worried-maggie-bell-explained-juliana-aiden-martinez/
+
+After experiencing a major tragedy on FBI, Maggie will be forced to navigate her new normal, with her co-workers worried about her well-being.
+---------
+
+# How Fear Street Star's New Body Horror Movie Is The Culmination Of Their 10-Year Friendship With Ugly Cry Director & Co-Star
+
+Movies, Ugly Cry, Horror, SXSW
+
+Fri, 20 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/ryan-simpkins-ugly-cry-movie-emily-anderson-friendship-cast-director-sxsw/
+
+Fear Street alum Ryan Simpkins and the Ugly Cry team talk the body horror movie and how it's a culmination of their friendship with their director.
+---------
+
+# Anne With An E: Netflix's Perfect Period Drama Adaptation
+
+Streaming TV, Anne With an E
+
+Fri, 20 Mar 2026 21:16:19 GMT
+
+https://screenrant.com/anne-with-an-e-netflix-best-book-adaptations-period-dramas/
+
+Page-to-screen adaptations are more popular than ever, but Netflix's Anne with an E is one of the best period dramas released by any platform.
+---------
+
+# Ready Or Not 2 Ending & Whether Grace's Fate Is "Definitive" Explained
+
+Movies, Ready or Not 2: Here I Come
+
+Fri, 20 Mar 2026 21:12:16 GMT
+
+https://screenrant.com/ready-or-not-2-ending-grace-story-complete-explained-radio-silence/
+
+Ready or Not 2: Here I Come's directors explain if Grace's story is over and whether there will be more sequels in store for the franchise.
+---------
+
+# Chuck Norris' 15 Best Movies, Ranked
+
+Movies, Chuck Norris, Ranking
+
+Fri, 20 Mar 2026 21:00:22 GMT
+
+https://screenrant.com/chuck-norris-best-movies-ranked/
+
+Chuck Norris has an action and martial arts filmography that lives up to his legendary meme status.
+---------
+
+# Why There's Skepticism Surrounding The Wheel Of Time's New Projects In Development
+
+Streaming TV, The Wheel of Time
+
+Fri, 20 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/wheel-of-time-new-adaptations-development-ai-platform-concerns/
+
+The Wheel of Time is getting a major expansion with animated series, films, and a new game in development, but a key detail is causing concern.
+---------
+
+# Elden Ring Is A Completely Different Game With This Survival Mode
+
+Gaming, Elden Ring
+
+Fri, 20 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/elden-ring-survival-mode-mod-download/
+
+Discover a new way to experience Elden Ring with the ER Survival Modpack, which introduces survival mechanics, improved co-op, and more.
+---------
+
+# Naruto's Next Anime Will Debut the Series' Strongest Sharingan of All Time
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Fri, 20 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-strongest-sharingan-naruto-sarada/
+
+Naruto fans are in for a treat when the next anime introduces a new Sharingan ability that may surpass all before it.
+---------
+
+# The Best Dinosaur Movie Since Steven Spielberg's Jurassic Park Officially Releases On Streaming In 2 Weeks
+
+Movies, Primitive War, Jurassic Park
+
+Fri, 20 Mar 2026 20:59:35 GMT
+
+https://screenrant.com/primitive-war-dinosaur-movie-hulu-streaming-release-date/
+
+Jurassic Park franchise fans should get excited, as the best dinosaur movie since Steven Spielberg's first is releasing on streaming soon.
+---------
+
+# Netflix Revives Powers Superhero Noir Series as Adult Animated Show
+
+TV, Powers, Netflix, superheroes
+
+Fri, 20 Mar 2026 21:51:00 GMT
+
+https://www.cbr.com/powers-animated-series-netflix/
+
+Brian Michael Bendis and Michael Avon Oeming's Powers comic gets a second chance as an adult animated Netflix series.
+---------
+
+# Stanley Kubrick Said The Godfather is the 'Greatest Movie Ever Made'
+
+Movies, The Godfather
+
+Fri, 20 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/stanley-kubrick-the-godfather-greatest-movie-ever/
+
+The timeless classic that left an indelible mark on cinema's most influential mind.
+---------
+
+# 10 Great Anime With the Good Kind of Fan Service
+
+Anime, Gurren Lagann, Dragon Ball, Solo Leveling
+
+Fri, 20 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/great-anime-with-the-best-fan-service/
+
+Any element of a show that exists specifically to appease the fans can be considered fan service, and these anime give fans exactly what they want.
+---------
+
+# 2026 DC/Marvel TV Tournament - Day Two!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Fri, 20 Mar 2026 21:07:10 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-day-two/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows!
+---------
+
+# Spider-Man: Brand New Day: Tom Holland Explains Peter’s Identity Crisis
+
+Movies
+
+Fri, 20 Mar 2026 21:04:50 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-tom-holland-story-about/
+
+Spider-Man: Brand New Day star Tom Holland reveals the movie's unique theme, focusing on Peter Parker's identity crisis.
+---------
+
+# Sonic the Hedgehog 4 Could Jim Carrey's Robotnik Sacrifice
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog 3, Sonic the Hedgehog
+
+Fri, 20 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/paramount-sonic-the-hedgehog-4-teaser-reverse-jim-carrey-robotnik-sacrifice/
+
+Sonic the Hedgehog 4 looks to bring back big names, including Jim Carrey, and that means it will likely reverse his big sacrifice in a fun way.
+---------
+
+# This Agatha Christie Mystery Masterpiece Will Have You Hooked From Start to Finish
+
+TV, And Then There Were None, Mystery, BBC One
+
+Fri, 20 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/mystery-masterpiece-and-then-there-were-none/
+
+Agatha Christie is an iconic mystery novelist, but her best story has an equally fun series that gets fans interested immediately.
+---------
+
+# Why the Jedi Order Failed in Star Wars Comics (& What We Learned)
+
+Comics, Star Wars
+
+Fri, 20 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/jedi-order-failed-in-star-wars-comics-why-explained/
+
+The Jedi Order collapsed on the big screen, with the Empire soon taking over the galaxy. The comics may hold the answers as to how this happened.
+---------
+
+# 10 Historic Records That Were Shattered at the 2026 Oscars
+
+Movie, Sinners, Academy Awards, One Battle After Another, Oscar
+
+Fri, 20 Mar 2026 21:48:13 GMT
+
+https://collider.com/oscars-2026-records-broken/
+
+Many records were broken at the 2026 Academy Awards, including Warner Bros. tying for most wins ever by a single studio.
+---------
+
+# 8 Sci-Fi Movies That Are 10/10 but Nobody Remembers Today
+
+Movie, Sci-Fi, Children of Men, Soylent Green, Minority Report
+
+Fri, 20 Mar 2026 21:33:12 GMT
+
+https://collider.com/sci-fi-movies-nobody-remembers/
+
+As expansive as the sci-fi genre is within cinema, too many great movies are completely forgotten by audiences, like Moon and The Quiet Earth.
+---------
+
+# The Last 'Dragon Ball Z' Movie by Akira Toriyama Is Officially Heading to Streaming
+
+Movie News, Dragon Ball Super: Super Hero, Dragon Ball, Anime, Hulu
+
+Fri, 20 Mar 2026 21:32:28 GMT
+
+https://collider.com/dragon-ball-super-hero-anime-movie-streaming-hulu-april-13-2026/
+
+Dragon Ball Super: Super Hero, the highest-rated film in the franchise, will be available to stream starting April 13, 2026.
+---------
+
+# 10 Western Masterpieces That No One Remembers Today
+
+Movie, Western, Angel and the Badman, The Emigrants, Aferim!
+
+Fri, 20 Mar 2026 21:22:13 GMT
+
+https://collider.com/western-masterpieces-no-one-remembers/
+
+The Western genre has many masterpieces, but some worthy movies, like Lonely Are the Brave and The Emigrants, have sadly been forgotten by the masses.
+---------
+
+# These Prime Video Movies Are a Must-Watch This Weekend
+
+Movie, Prime Video, Hail Caesar, Uptown Girls, Scarlett Johansson
+
+Fri, 20 Mar 2026 21:18:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-march-20/
+
+Zeta, Hail, Caesar!, and Uptown Girls make up our list of the best Prime Video movies to watch the weekend of March 20, 2026.
+---------
+
+# 'Jo Nesbø’s Detective Hole' Review: Netflix’s Thrilling Nordic Noir Adaptation Is the Perfect Binge for 'Bosch' Fans
+
+TV Reviews, Joe Nesbø's Detective Hole, Joel Kinnaman, Netflix, Crime
+
+Fri, 20 Mar 2026 21:00:13 GMT
+
+https://collider.com/jo-nesbos-detective-hole-review-netflix-tobias-santelmann-joel-kinnaman/
+
+Jo Nesbø's Detective Hole, Netflix's adaptation of the Norwegian crime series, boasts an atmospheric story, strong performances, and a gripping plot.
+---------
+
+# Major Theater Chain Officially Hit With Class Action Lawsuit
+
+Movie News, Cineplex, Movie Theaters, Theaters, Tickets
+
+Fri, 20 Mar 2026 20:59:41 GMT
+
+https://collider.com/cineplex-class-action-lawsuit-online-fees-update-opt-out-date-moving-forward/
+
+Canada’s largest theater chain, Cineplex, is officially facing a massive class action lawsuit over online booking fees. Get the details.
+---------
+
+# 'Peaky Blinders: The Immortal Man' Ending, Explained
+
+Features, Peaky Blinders: The Immortal Man
+
+Fri, 20 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/peaky-blinders-the-immortal-man-ending-explained/
+
+Netflix's latest 'Peaky Blinders' sequel movie delivers an epic conclusion to the Tommy Shelby saga, and it's rich in symbolic meaning.
+---------
+
+# The 'Invincible' Cast and Crew Talk Eve's Major Reveal, Nolan's Return, and Season 4
+
+TV Shows, Invincible, Steven Yeun, Robert Kirkman
+
+Fri, 20 Mar 2026 21:12:30 GMT
+
+https://movieweb.com/invincible-interview-steven-yeun-robert-kirkman/
+
+Steven Yeun, Robert Kirkman, and more open up about that shocking season opener and how many more seasons we've got left.
+---------
+
+# Stephen King's Sci-Fi Action Remake Flop Continues Streaming Redemption
+
+Movie News, The Running Man, Stephen King, Action, Sci-Fi
+
+Fri, 20 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/running-man-stephen-king-stream-march-2026/
+
+Directed by Edgar Wright and starring Glen Powell, 'The Running Man' has proven to be hugely popular on streaming.
+---------
+
 # New On Netflix: 3 Shows Worth A Weekend Binge
 
 Streaming TV, Netflix, What to Watch on Netflix
