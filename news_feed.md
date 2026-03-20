@@ -1,3 +1,366 @@
+# New On Netflix: 3 Shows Worth A Weekend Binge
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 20 Mar 2026 20:58:19 GMT
+
+https://screenrant.com/netflix-new-shows-weekend-binge-watch/
+
+Discover the top trending Netflix shows to binge this weekend, including action-packed crime thrillers, anime classics, and Tyler Perry's hit series.
+---------
+
+# Did Taylor Frankie Paul Get Engaged At The End Of Her Canceled Bachelorette Season?
+
+Reality TV, The Bachelorette, The Bachelor
+
+Fri, 20 Mar 2026 20:49:46 GMT
+
+https://screenrant.com/did-taylor-frankie-paul-get-engaged-at-the-end-of-her-canceled-bachelorette-season/
+
+ABC canceled The Bachelorette season 22, but spoilers have been leaked about who won Taylor Frankie Paul's season and whether she got engaged.
+---------
+
+# When Will Shawn Hatosy's Jack Abbot Return In The Pitt Season 2?
+
+TV, The Pitt, The Pitt - Season 2
+
+Fri, 20 Mar 2026 20:45:43 GMT
+
+https://screenrant.com/the-pitt-season-2-jack-abbot-return-theory/
+
+With fan-favorite Dr. Jack Abbot missing from the last two episodes of The Pitt season 2, we look at when exactly Shawn Hatosy could return again.
+---------
+
+# PlayStation Confirms Controversial Tech For Future Consoles
+
+Gaming, PlayStation 5, Triple-A Games
+
+Fri, 20 Mar 2026 20:41:23 GMT
+
+https://screenrant.com/playstation-console-future-frame-generation/
+
+This has been a messy week for video game technology thanks to DLSS 5, and the latest update from PlayStation might divide console owners.
+---------
+
+# Euphoria Star's New 94% RT Drama Is About Being "Completely Imperfect" In Your 20s
+
+Movies, Mile End Kicks, SXSW, Barbie Ferreira
+
+Fri, 20 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/barbie-ferreira-mile-end-kicks-twenties-imperfect-cast-director-sxsw/
+
+Euphoria alum Barbie Ferreira and the Mile End Kicks director and cast talk their acclaimed new drama and being "imperfect" in their 20s.
+---------
+
+# Why Apple TV's Shrinking Season 3 Is Taking Over US Streaming Charts (Even Beating Monarch: Legacy Of Monsters)
+
+Streaming TV, Shrinking
+
+Fri, 20 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/shrinking-apple-tv-streaming-success-march-2026/
+
+Monarch: Legacy of Monsters is certainly a big deal, but it has been overcome on Apple TV's US streaming charts by a delightfully clever dramedy.
+---------
+
+# New Switch 2 Model Adds Replaceable Battery, But Don’t Get Excited Yet
+
+Gaming, Nintendo Switch 2, Gaming Hardware
+
+Fri, 20 Mar 2026 20:21:53 GMT
+
+https://screenrant.com/switch-2-new-model-replaceable-battery-europe-only/
+
+Nintendo is reportedly introducing new Switch 2 and Joy-Con 2 models that let you swap out the batteries, but it may not be available worldwide.
+---------
+
+# Prime Video’s 6-Part Crime Thriller Is One Of Its Best New Shows To Binge
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 20 Mar 2026 20:15:19 GMT
+
+https://screenrant.com/prime-video-deadloch-season-2-weekend-binge/
+
+Deadloch season 2, a 6-part crime series on Prime Video, is the follow-up to season 1's perfect 100% Rotten Tomatoes score and is ready to binge now.
+---------
+
+# James Gunn Confirms Supergirl's Timeline With Superman Movie & Man Of Tomorrow Sequel
+
+Movies, Supergirl, DC
+
+Fri, 20 Mar 2026 20:10:54 GMT
+
+https://screenrant.com/supergirl-movie-dc-universe-timeline-superman-james-gunn/
+
+Supergirl is certainly making an entrance, and DC's James Gunn has officially confirmed how exactly the movie and her character fit into the timeline.
+---------
+
+# Marvel Rivals: How To Play White Fox (Abilities, Ultimate, Tips & Tricks)
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Fri, 20 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/marvel-rivals-white-fox-build-best-abilities-ultimate-team-comps/
+
+White Fox is the newest Strategist for Marvel Rivals in Season 7, sporting fluid healing and support abilities to help out her team in many ways.
+---------
+
+# 12 Years After Ending, Claymore Is Still an Untouchable Dark Fantasy Manga
+
+Anime, Manga, Claymore
+
+Fri, 20 Mar 2026 20:45:42 GMT
+
+https://www.cbr.com/best-underrated-dark-fantasy-claymore-manga/
+
+Despite its disappointing anime adaptation, this untouchable dark fantasy manga is a masterpiece that still doesn't get the recognition it deserves.
+---------
+
+# 10 Avengers: Doomsday Heroes Who Are Worthy of Lifting Mjolnir
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Fri, 20 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/avengers-doomsday-heroes-worthy-of-lifting-mjolnir-list/
+
+Avengers: Doomsday has more than a few powerful heroes, but of the large roster, only a handful could lift Mjolnir.
+---------
+
+# Invincible Season 4: The Real Reason It Hits So Hard
+
+TV, Invincible
+
+Fri, 20 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/video/invincible-season-4-the-real-reason-it-hits-so-hard/
+
+In this deep dive, Robert Kirkman and Simon Racioppa explain how Invincible flips the superhero formula by focusing on consequences that stick. From Mark carrying trauma across seasons to the meticulous crafting of intense scenes, the show is designed to feel real—even in its wildest moments. They also tease how Season 4 raises the stakes with harder choices and deeper emotional fallout. It’s not just about what happens—it’s about how it stays with you.
+---------
+
+# Malcolm in the Middle Finally Returns After 20 Years
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle
+
+Fri, 20 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-reboot-disney-plus-premiere-date/
+
+Malcolm in the Middle: Life's Still Unfair is bringing back the beloved sitcom after two decades.
+---------
+
+# The Last House on the Left Is Still Too Shocking For the Elevated Horror Wave
+
+Movies, The Last House on the Left, Netflix, Horror
+
+Fri, 20 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/netflix-the-last-house-on-the-left-too-shocking-elevated-horror/
+
+The Last House on the Left is dominating Netflix and with good reason because it covers one element that elevated horror can't accomplish easily.
+---------
+
+# Brendan Fraser & Rachel Weisz's The Mummy 4 Finally Gets Filming Start Window
+
+Movies, The Mummy 4
+
+Fri, 20 Mar 2026 19:52:48 GMT
+
+https://www.cbr.com/the-mummy-4-filming-window/
+
+The O’Connells will embark on a new adventure 18 years later.
+---------
+
+# Steam Users Have Until March 22 to Snag a Monster Catching Game for Free
+
+Games, Steam
+
+Fri, 20 Mar 2026 19:50:12 GMT
+
+https://www.cbr.com/steam-free-game-march-2026-pet-lands/
+
+A creature-collector game is free to keep on Steam, but this limited-time deal won't last long.
+---------
+
+# 7 Near-Perfect Isekai Anime No One Remembers
+
+Anime, Isekai
+
+Fri, 20 Mar 2026 19:48:23 GMT
+
+https://www.cbr.com/best-forgotten-isekai-anime-masterpieces/
+
+With so many great (and not so great) isekai anime released over the last decade, it's easy to understand how a few hidden gems got lost in the mix.
+---------
+
+# Gundam Seed Deactivates Its Mecha With New Real Grade Gunpla Model Kit Release
+
+Anime, Mobile Suit Gundam, Gundam SEED, Mobile Suit Gundam SEED, toys, merchandise, bandai
+
+Fri, 20 Mar 2026 19:40:16 GMT
+
+https://www.cbr.com/gundam-seed-deactive-mode-gunpla-real-grade-model-kit/
+
+Four Gundam Real Grade kits are being re-released to showcase the Cosmic Era's 'Deactive Mode,' and they're being joined by an all-new collectible.
+---------
+
+# DC Comics' Absolute Two-Face and Absolute Penguin Confirmed
+
+Comics, Absolute Batman
+
+Fri, 20 Mar 2026 19:35:35 GMT
+
+https://www.cbr.com/dc-comics-absolute-two-face-absolute-penguin-first-look/
+
+Batman's biggest villains look absolutely brilliant in their redesigns.
+---------
+
+# Netflix's Divisive $4.9 Billion Sci-Fi Franchise Is the Perfect Weekend Binge
+
+Movie Features, Jurassic World, Jurassic Park, Steven Spielberg, Netflix
+
+Fri, 20 Mar 2026 20:50:13 GMT
+
+https://collider.com/jurassic-world-movies-netflix-perfect-weekend-binge/
+
+Jurassic World revitalized the Jurassic Park franchise with four new movies that set characters in the terrifying world of escaped dinosaurs.
+---------
+
+# 2023 Was the Best Year for Cinema in the 21st Century
+
+Movie, Poor Things, The Zone of Interest, Oppenheimer, All of Us Strangers
+
+Fri, 20 Mar 2026 20:39:12 GMT
+
+https://collider.com/2023-best-year-cinema-21st-century-these-movies-prove-it/
+
+2023 produced several great movies that have already been anointed as genuine cinematic masterpieces, including Poor Things and The Zone of Interest.
+---------
+
+# 9 Years Later, Marvel's Most Divisive Show Deserves a Weekend Binge Before 'Daredevil: Born Again' Returns
+
+TV Features, The Defenders, Daredevil: Born Again, Daredevil, Jessica Jones
+
+Fri, 20 Mar 2026 20:38:13 GMT
+
+https://collider.com/marvel-defenders-binge-before-daredevil-born-again-season-2/
+
+Marvel's Defenders was initially overlooked but has since proven to be a valuable proof of concept for the MCU's small-screen potential.
+---------
+
+# 'The Last of Us' Season 3 Casts Star Wars Alum To Play Divisive Character in HBO's Hit Sci-Fi Horror Series
+
+TV News, The Last of Us, The Last Of Us Part II Remastered, Bridgerton
+
+Fri, 20 Mar 2026 20:32:30 GMT
+
+https://collider.com/hbo-the-last-of-us-season-3-cast-michelle-mao-kyriana-krater-yara-lev/
+
+The Last of Us Season 3 has found its Yara and Lev in two stars from Bridgerton and Star Wars: Skeleton Crew. Read on for more.
+---------
+
+# 'Tow' Review: Rose Byrne's ‘If I Had Legs I’d Kick You’ Follow-Up Fails Its Good Intentions
+
+Movie Reviews, Tow, Rose Byrne, Dominic Sessa, Octavia Spencer
+
+Fri, 20 Mar 2026 20:32:09 GMT
+
+https://collider.com/tow-movie-review-rose-byrne/
+
+While clearly made with the best intentions and Rose Byrne is terrific, Tow is bogged down by a shallow script.
+---------
+
+# 7 Near-Perfect 20th Century Sci-Fi Movies That No One Remembers Today
+
+Movie, Science Fiction, Six-String Samurai, Colossus: The Forbin Project, The City of Lost Children
+
+Fri, 20 Mar 2026 20:24:12 GMT
+
+https://collider.com/sci-fi-movies-20th-century-no-one-remembers/
+
+From The City of Lost Children to Golem, these sci-fi gems from the 20th century have been unfairly forgotten but remain worthy of rediscovery today.
+---------
+
+# ‘Invincible’ Season 4 Stars Officially Confirm Dark Turn for Mark and Eve
+
+Interviews, Invincible, Prime Video, Steven Yeun, Gillian Jacobs
+
+Fri, 20 Mar 2026 20:11:57 GMT
+
+https://collider.com/invincible-season-4-steven-yeun-gillian-jacobs-mark-eve-powers-meaning/
+
+Invincible stars Steven Yeun and Gillian Jacobs preview Season 4 and what to expect from the complicated characters.
+---------
+
+# 7 Near-Perfect Marvel Movies That No One Remembers Today
+
+Movie, The Incredible Hulk, Hulk, Marvel, Superhero
+
+Fri, 20 Mar 2026 20:09:12 GMT
+
+https://collider.com/near-perfect-marvel-movies-no-one-remembers-today/
+
+Ultimate Avengers, Hulk, and The Wolverine are overlooked Marvel superhero movies that nobody remembers these days.
+---------
+
+# 10 Most Perfect War Epics, Ranked
+
+Movie, Saving Private Ryan, Come And See, War, War and Peace
+
+Fri, 20 Mar 2026 19:58:13 GMT
+
+https://collider.com/most-perfect-war-epic-movies-ranked/
+
+Flawless war epics like Saving Private Ryan, and Apocalypse Now reveal the scale, horror, and human cost behind cinema’s greatest battles.
+---------
+
+# John Lennon Refused to Support This 1970 Beatles Solo Album
+
+Music Features, Music, The Beatles, John Lennon, Ringo Starr, Rock
+
+Fri, 20 Mar 2026 19:51:12 GMT
+
+https://collider.com/john-lennon-refused-to-support-ringo-starr-1970-album/
+
+John Lennon's thoughts on Ringo Starr's 1970 solo album Beaucoups of Blues, and how it differed from The Beatles' sound, despite being praised by the former drummer.
+---------
+
+# Disney Adds Two New MCU Movies to Phase 7
+
+Movie News, MCU
+
+Fri, 20 Mar 2026 20:04:09 GMT
+
+https://movieweb.com/marvel-phase-7-release-date-delay/
+
+Two new dates are now officially confirmed for the MCU's upcoming slate of films in Phase 7.
+---------
+
+# Netflix's 'Assassin's Creed' Officially in Production, Full Cast Revealed
+
+TV News, Assassin's Creed, Netflix
+
+Fri, 20 Mar 2026 20:01:36 GMT
+
+https://movieweb.com/assassins-creed-netflix-full-cast-reveal/
+
+The TV series will tell an original tale as opposed to adapting a video game storyline.
+---------
+
+# Steve Carell HBO Comedy 'Rooster' Climbs US Streaming Charts
+
+TV News, Rooster, Steve Carell
+
+Fri, 20 Mar 2026 19:30:17 GMT
+
+https://movieweb.com/steve-carell-rooster-streaming-march-2026/
+
+From the co-creator of 'Ted Lasso' comes a new HBO series starring Steve Carell that is currently dominating the streaming charts.
+---------
+
 # Netflix’s New 6-Part Crime Thriller Is A Perfect One-Night Weekend Binge
 
 Streaming TV, Netflix, Furies
