@@ -1,3 +1,267 @@
+# V for Vendetta Director Explains How Movie Predicted the Future 20 Years Later
+
+Comics, V For Vendetta
+
+Fri, 20 Mar 2026 00:00:20 GMT
+
+https://screenrant.com/v-for-vendetta-predicted-future-director/
+
+V for Vendetta was, sadly, ahead of its time.
+---------
+
+# Crimson Desert: Where To Find Iron Ore
+
+Gaming, Crimson Desert
+
+Fri, 20 Mar 2026 00:00:20 GMT
+
+https://screenrant.com/crimson-desert-iron-ore-locations/
+
+In Crimson Desert, you’ll need to get lots of iron ore in the early and mid-game to upgrade your equipment. Here’s some advice on how to find it.
+---------
+
+# Jason Statham & Guy Ritchie's $104M Heist Thriller Hit Leaves Netflix In 5 Days
+
+Movies
+
+Thu, 19 Mar 2026 23:57:20 GMT
+
+https://screenrant.com/netflix-wrath-of-man-jason-statham-guy-ritchie-thriller-movie/
+
+Jason Statham and Guy Ritchie's hit heist movie 'Wrath of Man' is leaving Netflix in 5 days. Watch the $104M thriller before it's gone on March 25.
+---------
+
+# The Rings Of Power Season 3 Will Restore A Missing Part Of LOTR
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Thu, 19 Mar 2026 23:45:19 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-lotr-war-sauron/
+
+There's a key element of Middle-earth that we didn't get to see in The Lord of the Rings, but Rings of Power season 3 is bringing it full force.
+---------
+
+# How Hard Is Crimson Desert?
+
+Gaming, Crimson Desert, PC
+
+Thu, 19 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/crimson-desert-difficulty-how-hard/
+
+Crimson Desert is a massive game with seemingly endless content, cleverly designed puzzles, and some seriously challenging encounters.
+---------
+
+# This Netflix Hit Just Dethroned The Biggest Anime Around
+
+Anime, Frieren: Beyond Journey's End, JoJo's Bizarre Adventure, Netflix
+
+Thu, 19 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/frieren-loses-greatest-anime-jojos-bizarre-adventure/
+
+Anime has a new top show to watch.
+---------
+
+# Prime Video's Cross Season 3 Has An Exciting Advantage
+
+Streaming TV, Cross
+
+Thu, 19 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/cross-season-3-prime-video-advantage/
+
+After the success of Cross seasons 1 and 2, Prime Video renewed the show for season 3, and it has a massive advantage over the past two installments.
+---------
+
+# Crimson Desert: How To Craft More Palmer Pills
+
+Gaming, Crimson Desert, PC
+
+Thu, 19 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/crimson-desert-how-to-craft-palmer-pills/
+
+Palmer Pills in Crimson Desert are an essential consumable item that are in short supply, that is unless you have the crafting recipe to make more.
+---------
+
+# The Madison, Jury Duty & More New Shows To Watch This Weekend
+
+Streaming TV, The Madison, Jury Duty Presents: Company Retreat, Deadloch, Imperfect Women, The Comeback
+
+Thu, 19 Mar 2026 23:05:19 GMT
+
+https://screenrant.com/new-shows-to-watch-this-weekend-march-20-2026/
+
+Discover the top new streaming shows this weekend, including The Madison, Jury Duty, Deadloch, and more must-watch series across HBO Max & Paramount+.
+---------
+
+# DC Officially Announces New Precognitive Superpower for Flash's New Appearance
+
+DC Comics, The Flash
+
+Thu, 19 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/flash-new-power-precognition-explained/
+
+2026 marks a brand-new era for DC’s Flash, and with this comes a new superpower that will make the Scarlet Speedster even more overpowered.
+---------
+
+# 10 Hardest PS4 Games of All Time, Ranked by Difficulty
+
+Games, PlayStation 4, PlayStation (Original), Sony
+
+Fri, 20 Mar 2026 00:00:13 GMT
+
+https://www.cbr.com/hardest-ps4-games-of-all-time-ranked-by-difficulty-list/
+
+PS4 games like Bloodborne are some of the hardest modern games.
+---------
+
+# The Spider-Man: Brand New Day Trailer Makes Disney+’s She-Hulk an Essential Rewatch
+
+Movies, Spider-Man: Brand New Day, She-Hulk: Attorney at Law, Marvel Cinematic Universe
+
+Fri, 20 Mar 2026 00:00:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-trailer-she-hulk-essential/
+
+Spider-Man: Brand New Day's latest trailer offers a lot of new information and makes She-Hulk: Attorney at Law a must-see
+---------
+
+# Walton Goggins Stole the Show in This 7-Season Crime Drama With 90% on Rotten Tomatoes
+
+TV, The Shield, walton goggins, Crime
+
+Fri, 20 Mar 2026 00:00:13 GMT
+
+https://www.cbr.com/walton-goggins-the-shield-tv-crime-drama/
+
+Walton Goggins has thrived in movies and television of late, but one of his best shows is a crime drama that has become underrated.
+---------
+
+# One Piece Elbaf Island Arc Gets Netflix Release Date
+
+Anime, One Piece, Netflix
+
+Thu, 19 Mar 2026 23:41:59 GMT
+
+https://www.cbr.com/one-piece-elbaf-arc-netflix-release-date/
+
+For many anime watchers, Crunchyroll may no longer be the go-to streaming platform when it comes to the One Piece franchise.
+---------
+
+# 10 Weirdest Anime That Somehow Became New-Gen Streaming Hits
+
+Anime
+
+Thu, 19 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/weirdest-anime-masterpiece-new-gen-streaming-hits/
+
+Some of the strangest anime out there, like Kakegurui and Devilman Crybaby, unexpectedly found massive audiences online.
+---------
+
+# 10 Explosive Action Movies To Watch on Tubi if You Loved Without Remorse
+
+Movies, Action, Without Remorse, First Blood
+
+Thu, 19 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/action-movies-tubi-like-without-remorse-list/
+
+Without Remorse is leading the charts on Tubi, and there are other great action movies like it to watch on the streaming service.
+---------
+
+# Ryan Gosling Officially Breaks Silence on Long-Rumored MCU Role
+
+Movie News, Ryan Gosling, Project Hail Mary, Ghost Rider, MCU
+
+Thu, 19 Mar 2026 23:59:20 GMT
+
+https://collider.com/ryan-gosling-confirms-marvel-casting-talks-ghost-rider-mcu-role/
+
+Ahead of his Star Wars debut, Ryan Gosling reveals he has had discussions with Marvel about playing Ghost Rider in the MCU.
+---------
+
+# Rebecca Ferguson's New Sci-Fi Movie Is Officially Coming to Streaming After $54.3M Box Office Run
+
+Movie News, Mercy, Rebecca Ferguson, Chris Pratt, Prime Video
+
+Thu, 19 Mar 2026 23:41:50 GMT
+
+https://collider.com/rebecca-ferguson-divisive-sci-fi-movie-mercy-chris-pratt-prime-video-streaming-release-date-march-22-2026/
+
+Rebecca Ferguson's divisive sci-fi movie, which grossed $54 million at the box office, is coming to Prime Video. Find out how to watch here.
+---------
+
+# As a 'Game of Thrones' Fan, These Are the HBO Fantasy's 10 Greatest Episodes
+
+TV, Game Of Thrones, HBO, George R.R. Martin, Fantasy
+
+Thu, 19 Mar 2026 23:38:12 GMT
+
+https://collider.com/game-of-thrones-fan-ranks-best-episodes/
+
+As a big Game of Thrones fan, I think Season 2's "Blackwater" and Season 6's "The Winds of Winter" are among the best of the HBO fantasy series.
+---------
+
+# 10 Best Movies of 1984 That Still Hold Up Today
+
+Movie, Amadeus, Ghostbusters, Stop Making Sense, Paris, Texas
+
+Thu, 19 Mar 2026 23:31:12 GMT
+
+https://collider.com/best-movies-1984/
+
+Amadeus, The Killing Fields, and Ghostbusters are all among the best, classic movies from 1984 that still hold up today.
+---------
+
+# 'Bullet Train' Stars Battle Harry Potter in the $192M Hit Taking Over the World
+
+Movie News, The Lost City, Sandra Bullock, Channing Tatum, Brad Pitt
+
+Thu, 19 Mar 2026 23:08:46 GMT
+
+https://collider.com/the-lost-city-bullet-train-stars-sandra-bullock-channing-tatum-brad-pitt-streaming-success-pluto-tv-march-2026/
+
+An action-packed romantic comedy starring Sandra Bullock and Channing Tatum is surging on a free streaming platform. Find out more here.
+---------
+
+# Dark Actin Fantasy Series 'Dororo' Is the Best Show to Binge Watch on Streaming This Weekend
+
+Features, Dororo, Prime Video
+
+Fri, 20 Mar 2026 00:00:19 GMT
+
+https://movieweb.com/prime-videos-single-season-dark-fantasy-is-the-perfect-binge-watch/
+
+Prime Video is host to the best dark fantasy action series in years, 'Dororo,' and you should binge-watch the entire season this weekend on streaming.
+---------
+
+# 'Star Trek: Picard' Never Confirmed 'Voyager's Alternate Future Captain La Forge Reveal
+
+Features, Star Trek: Picard, Star Trek, Star Trek: Voyager
+
+Fri, 20 Mar 2026 00:00:19 GMT
+
+https://movieweb.com/star-trek-picard-geordi-missed-chance/
+
+LeVar Burton had a cameo as Geordi La Forge in 'Star Trek: Voyager,' which could have been paid off in 'Picard.' It wasn't, though.
+---------
+
+# Dr. Park Being Friends With Turk Is the 'Scrubs' Revival's Biggest Reveal in Episode 6
+
+Features, Scrubs
+
+Thu, 19 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/scrubs-revival-dr-park-important/
+
+Joel Kim Booster's 'Scrubs' character is a great nemesis for JD, but "My Angel" reveals a surprising Turk connection too.
+---------
+
 # Schedule 1 Just Got A Massive Free March 2026 Update
 
 Gaming, Schedule I
