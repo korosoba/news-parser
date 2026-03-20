@@ -1,3 +1,410 @@
+# Netflix’s New 6-Part Crime Thriller Is A Perfect One-Night Weekend Binge
+
+Streaming TV, Netflix, Furies
+
+Fri, 20 Mar 2026 19:19:19 GMT
+
+https://screenrant.com/netflix-furies-season-2-weekend-watch/
+
+Furies season 2, a new 6-part Netflix series, is the perfect action crime thriller to binge this weekend. It's ideal for a one-night weekend binge.
+---------
+
+# Easy A's Greatest Movie Parents Of All Time Finally Have A Great Follow-Up In New Comedy Brian
+
+Movies, Brian, SXSW
+
+Fri, 20 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/brian-2026-movie-easy-a-parents-follow-up-cast-director-sxsw/
+
+Director Will Ropp and the cast of Brian talk their new high school comedy movie and how it gives the perfect follow-up to Easy A's parents.
+---------
+
+# Fallout 5's Setting Already Offers Us Limitless Possibilities
+
+Gaming, Fallout, Fallout 5
+
+Fri, 20 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/fallout-5-setting-gamer-discussion/
+
+There are a ton of locations in North America that we have yet to visit, or only touched upon in Fallout, and the world is our oyster.
+---------
+
+# Prime Video's Reboot Of Iconic '90s Series Has A Tough Rival To Beat
+
+TV, American Gladiators
+
+Fri, 20 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/prime-video-american-gladiators-uk-show-beat/
+
+Gladiators defined the 90s, and while the UK reboot has enjoyed great success, the upcoming American reboot must also live up to the high standard set
+---------
+
+# How Spider-Man: Brand New Day Fits Into The MCU Timeline Explained
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 20 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/how-spider-man-brand-new-day-fits-into-the-mcu-timeline-explained/
+
+The first trailer for the new film is finally here, and with it come some interesting questions about Brand New Day's place in the MCU's timeline.
+---------
+
+# GTA 6 Gameplay Leaks Have Gamers Obsessed With New Features
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Fri, 20 Mar 2026 18:59:15 GMT
+
+https://screenrant.com/gta-6-gameplay-leaks-march-2026/
+
+Grand Theft Auto 6 leaks have offered neat glimpses at what gameplay might look like, and it is interesting to reflect back on how they've evolved.
+---------
+
+# Code Hula Hoop: Did Dana Already Save Emma’s Life In The Pitt Season 2?
+
+Streaming TV, The Pitt
+
+Fri, 20 Mar 2026 18:45:59 GMT
+
+https://screenrant.com/the-pitt-season-2-code-hula-hoop-emma-dana-save-life/
+
+The Pitt season 2, episode 12 is gearing up to be an intense outing as Emma fends off an agitated patient, but Dana's quick thinking likely helped.
+---------
+
+# How The Sopranos Revolutionized TV: The Show That Changed Everything
+
+Classic TV, The Sopranos
+
+Fri, 20 Mar 2026 18:45:18 GMT
+
+https://screenrant.com/the-sopranos-hbo-every-show-tried-to-copy/
+
+HBO has long set the gold standard for prestige TV, and it owes its sterling reputation to this often-imitated iconic crime thriller series.
+---------
+
+# Netflix's 10-Part Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, Netflix, Maid
+
+Fri, 20 Mar 2026 18:40:16 GMT
+
+https://screenrant.com/netflix-maid-limited-series-best/
+
+One of Netflix's best shows is a limited series starring a rising star that promises plenty of drama and twists for first-time viewers.
+---------
+
+# If There's A Telepathic Villain In Brand New Day, They May Be This Forgotten Spider-Man Character
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 20 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-telepathic-villain-mindworm-possibility/
+
+The Spider-Man: Brand New Day trailer raises the possibility of a telepathic enemy in the movie. If that's true, it may be this Marvel character.
+---------
+
+# Witch Hat Atelier & 5 Other Anime You Need to Watch This Spring
+
+Anime, Witch Hat Atelier, Dorohedoro, Rooster Fighter, Snowball Earth
+
+Fri, 20 Mar 2026 19:09:32 GMT
+
+https://www.cbr.com/must-watch-anime-spring-2026-rooster-fighter-dorohedoro/
+
+The Spring 2026 season is loaded with promising anime series, but Witch Hat Atelier and these five other series hold a different kind of excitement.
+---------
+
+# Best MCU Theories After The Spider-Man: Brand New Day Trailer
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 20 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/mcu-theories-after-spider-man-brand-new-day-trailer-list/
+
+The Spider-Man: Brand New Day trailer gave fans lots to think about, and there are some new theories about the MCU's new movie.
+---------
+
+# 6 Hard Sci-Fi Shows That Are 10/10
+
+TV, Sci-Fi, The Expanse, Foundation
+
+Fri, 20 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/best-hard-sci-fi-shows-list/
+
+From Earthbound technological dramas to space-based thrillers, these hard sci-fi shows explore plausible ideas and real-world scientific studies.
+---------
+
+# Halloween Legend John Carpenter Announces Very First Graphic Novel That Horror Fans Must Read
+
+Comics, John Carpenter
+
+Fri, 20 Mar 2026 18:48:21 GMT
+
+https://www.cbr.com/john-carpenter-horror-graphic-novel-cathedral-release-date-confirmed/
+
+One of horror cinema's greatest filmmakers brings his vision to the comic book medium.
+---------
+
+# Marvel Announces Upcoming Movie Release Dates for 2028, 2029
+
+Movies, marvel studios, Marvel Cinematic Universe, superheroes
+
+Fri, 20 Mar 2026 18:43:55 GMT
+
+https://www.cbr.com/marvel-movie-release-dates-2028-2029/
+
+Disney has added three new Marvel movie release dates to its calendar: July 28, 2028, May 4, 2029, and July 13, 2029.
+---------
+
+# After HiAnime's Shutdown, Rightsholders Recruit the Public to Expose Streaming Piracy for Netflix Rewards
+
+Anime, piracy, Streaming
+
+Fri, 20 Mar 2026 18:30:13 GMT
+
+https://www.cbr.com/anti-piracy-online-hunter-streaming-reward/
+
+The piracy ecosystem faces major changes as fans are being recruited to track illegal websites.
+---------
+
+# Chuck Norris Honored by Sylvester Stallone, Stephen King & More
+
+TV, Chuck Norris
+
+Fri, 20 Mar 2026 18:29:15 GMT
+
+https://www.cbr.com/chuck-norris-tributes/
+
+Sylvester Stallone and other stars are paying tribute to action icon Chuck Norris following his death at the age of 86.
+---------
+
+# One Piece’s All-Time Peak Manga Arc Finally Gets an Official Anime Adaptation in 2026
+
+Anime, One Piece
+
+Fri, 20 Mar 2026 18:28:25 GMT
+
+https://www.cbr.com/one-piece-elbaph-arc-release-date-2026/
+
+After years of anticipation, one of One Piece’s most important arcs is finally coming to life on screen for the first time.
+---------
+
+# War Machine Sequel? Movie’s Star Teases His Character's Return
+
+Movies, War Machine
+
+Fri, 20 Mar 2026 18:18:08 GMT
+
+https://www.cbr.com/war-machine-2-tease-esai-morales/
+
+Netflix, give us War Machine 2.
+---------
+
+# Invincible Season 4: Steven Yeun Breaks Down Mark’s Rage
+
+TV, Invincible
+
+Fri, 20 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/video/invincible-season-4-steven-yeun-breaks-down-mark-s-rage/
+
+Invincible Season 4 dives deeper into Mark’s struggle than ever before. Steven Yeun breaks down how Mark’s rage, responsibility, and search for freedom are all colliding in a major way.Joining him, Gillian Jacobs explores Eve’s evolving identity and how the series keeps challenging both characters in unexpected ways. From their grounded, intimate scenes to the show’s wild, brutal action, this interview highlights what makes Invincible stand out.
+---------
+
+# 10 Darkest Netflix Shows Ever Made, Ranked
+
+TV, Netflix, Adolescence, Mindhunter, Behind Her Eyes
+
+Fri, 20 Mar 2026 19:23:12 GMT
+
+https://collider.com/dark-netflix-shows-ranked/
+
+Explore the most emotionally intense Netflix shows that delve into the darkest corners of the human mind, including Adolescence, Dark, and You.
+---------
+
+# 10 Years Later, Kevin Costner's Forgotten Crime Thriller Is Back From the Dead
+
+Movie News, Criminal, Kevin Costner, Yellowstone, Tubi
+
+Fri, 20 Mar 2026 19:12:27 GMT
+
+https://collider.com/kevin-costner-action-thriller-criminal-free-streaming-success-tubi-march-2026/
+
+Yellowstone star Kevin Costner's overlooked, critically panned action thriller Criminal is a surprise free-streaming hit.
+---------
+
+# 3 Netflix Shows Perfect for a Weekend Binge
+
+TV, Furies, Digman!, Grace and Frankie, Netflix
+
+Fri, 20 Mar 2026 19:00:13 GMT
+
+https://collider.com/best-netflix-shows-watch-weekend-march-20/
+
+Digman!, Furies, and Grace and Frankie make up our list of Netflix shows to binge the weekend of March 20, 2026.
+---------
+
+# Before 'House of the Dragon' Season 3, Matt Smith's Criminally Underrated Thriller Dominates HBO Max
+
+Movie News, Austin Butler, HBO Max, Caught Stealing, Matt Smith
+
+Fri, 20 Mar 2026 18:54:24 GMT
+
+https://collider.com/austin-butler-crime-movie-caught-stealing-global-streaming-success-hbo-max-march-2026/
+
+Austin Butler's underrated 2025 box-office bomb has earned a place in the top 10 of HBO Max's global rankings. Find out where below.
+---------
+
+# 10 Classic Thrillers That Are Still Masterpieces Today
+
+Movie, Thriller, Psycho, M, The Maltese Falcon
+
+Fri, 20 Mar 2026 18:40:12 GMT
+
+https://collider.com/classic-thrillers-still-masterpieces/
+
+From Psycho to Cape Fear, these classic thrillers remaing crowning achievements of the genre and still maintain their masterpiece status to this day.
+---------
+
+# 'Brian' Review: This Stellar Coming-of-Age Story Is One of the Funniest Movies of 2026 So Far
+
+Movie Reviews, Brian, Ben Wang, Randall Park, SXSW
+
+Fri, 20 Mar 2026 18:28:57 GMT
+
+https://collider.com/brian-movie-review-ben-wang/
+
+Brian, starring Ben Wang, is the best film from this year’s SXSW Festival, and one of the funniest comedies of 2026 so far.
+---------
+
+# Near-Perfect R.L. Stine Horror Movie Is Officially Returning For a 2026 Sequel
+
+Movie News, R.L. Stine, R.L. Stine's Pumpkinhead, Tubi, Horror
+
+Fri, 20 Mar 2026 18:28:43 GMT
+
+https://collider.com/rl-stine-pumpkinhead-2-sequel-tubi-october-2026-release-date/
+
+Tubi has announced a sequel to R.L. Stine's Pumpkinhead following 100-million-hours viewed on the 2025 smash hit YA horror movie.
+---------
+
+# Timothée Chalamet’s ‘Marty Supreme’ Officially Begins Streaming on April 24
+
+Movie News, Marty Supreme, HBO Max, Timothée Chalamet, A24
+
+Fri, 20 Mar 2026 18:23:59 GMT
+
+https://collider.com/marty-supreme-streaming-hbo-max-release-date-april-24-2026-timothee-chalamet/
+
+Timotheé Chalamet's near-perfect A24 sports movie, Marty Supreme, sets official streaming date. Here's where you can watch it.
+---------
+
+# 3 Years After Making Box Office History, Christopher Nolan's Most Ambitious WWII Epic Surges on Streaming
+
+Movie News, Oppenheimer, Cillian Murphy, Christopher Nolan, Robert Downey Jr
+
+Fri, 20 Mar 2026 18:20:26 GMT
+
+https://collider.com/christopher-nolan-oppenheimer-highest-grossing-ww2-movie-streaming-success-hbo-max-march-2026/
+
+The highest-grossing WW2 movie in history, Christopher Nolan's Oppenheimer, is staging an epic streaming comeback three years later.
+---------
+
+# 32 Years Later, These Are the Greatest Movies of 1994
+
+Movie, The Shawshank Redemption, Pulp Fiction, Forrest Gump, Ed Wood
+
+Fri, 20 Mar 2026 18:18:13 GMT
+
+https://collider.com/best-1994-movies/
+
+1994 is considered one of the best years ever for film, thanks to all-time classics like Pulp Fiction, Quiz Show, and Forrest Gump.
+---------
+
+# 'Project Hail Mary' Ending & Grace's Fate, Explained
+
+Features, Project Hail Mary, Ryan Gosling
+
+Fri, 20 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/project-hail-mary-ending-explained/
+
+Phil Lord and Chris Miller's Sci-Fi epic pulls out all the stops for its unexpected and heartfelt conclusion.
+---------
+
+# Will Smith's 'I, Robot' Sci-Fi Action Movie Is a Streaming Success on AMC+
+
+Movie News, I, Robot, AMC+, Hot on Streaming, Sci-Fi
+
+Fri, 20 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/i-robot-streaming-amc-march-2026/
+
+The unfaithful adaptation of Isaac Asimov's classic sci-fi novel, 'I, Robot,' is a streaming success over 20 years later on AMC+.
+---------
+
+# John Lithgow Almost Quit ‘Harry Potter’ Reboot Because of J.K. Rowling
+
+TV News, Harry Potter, John Lithgow
+
+Fri, 20 Mar 2026 18:56:34 GMT
+
+https://movieweb.com/john-lithgow-harry-potter-jk-rowling/
+
+Author J.K. Rowling's controversial views almost led to John Lithgow dropping out of HBO's upcoming 'Harry Potter' reboot.
+---------
+
+# Best Motivational TV Shows on Netflix to Watch Right Now
+
+TV Lists, Netflix
+
+Fri, 20 Mar 2026 18:00:28 GMT
+
+https://movieweb.com/motivational-tv-shows-on-netflix/
+
+Sometimes viewers need a little inspiration to get through their day, and Netflix has plenty of motivational TV shows to offer.
+---------
+
+# 'Lioness': Taylor Sheridan's Returning Action Thriller Is a Must-Watch
+
+Features, Taylor Sheridan, Upcoming Tease, Lioness
+
+Fri, 20 Mar 2026 18:00:27 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-returns-2026/
+
+'Lioness', also known as 'Special Ops: Lioness', is one of Taylor Sheridan's most underrated shows and deserves better.
+---------
+
+# As 'Zack Snyder's Justice League' Turns 5, We Ask What It Was Really All For
+
+Features, Zack Snyder's Justice League, Cultural Reassessment
+
+Fri, 20 Mar 2026 17:53:57 GMT
+
+https://movieweb.com/zack-snyder-justice-league-debated-movie/
+
+Reflecting on one of the most debated movies of the 21st century, five years after its release. Does Zack Snyder's vision hold up?
+---------
+
+# Timothée Chalamet's 'Marty Supreme' Lands HBO Max Release Date
+
+Movie News, Marty Supreme, HBO Max, Timothée Chalamet
+
+Fri, 20 Mar 2026 17:35:15 GMT
+
+https://movieweb.com/marty-supreme-release-date-hbo-max/
+
+Audiences will be able to revisit the ping-pong biopic on the streamer on Apr. 24.
+---------
+
 # Jujutsu Kaisen Reveals Its True Strongest Sorcerer
 
 Anime, Explainer, Jujutsu Kaisen
