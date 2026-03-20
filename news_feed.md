@@ -1,3 +1,311 @@
+# Sarah Michelle Gellar’s New R-Rated Horror Movie Officially Breaks All-Time Rotten Tomatoes Record After 27 Years
+
+Movies, Ready or Not 2: Here I Come, Ready or Not, Sarah Michelle Gellar
+
+Fri, 20 Mar 2026 22:51:16 GMT
+
+https://screenrant.com/ready-or-not-2-here-i-come-rotten-tomatoes-audience-score-sarah-michelle-gellar-record/
+
+Sarah Michelle Gellar's new horror movie has officially broken an all-time Rotten Tomatoes record after 27 years, following its release.
+---------
+
+# 17 Rarest Pokémon In Pokémon GO & How To Get Them
+
+Gaming, Pokemon GO, Pokemon, Triple-A Games, Live Service Games
+
+Fri, 20 Mar 2026 22:30:21 GMT
+
+https://screenrant.com/pokemon-go-rarest-pokemon/
+
+There are hundreds of Pokémon to catch in Pokémon GO, but some of them are rarer than others, like regional exclusives or Armored Mewtwo.
+---------
+
+# Matthew Fox's New TV Series Finally Does The Story Lost Dropped 22 Years Ago
+
+Streaming TV, The Madison, Lost, Matthew Fox
+
+Fri, 20 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/lost-matthew-fox-character-die-plane-crash-the-madison/
+
+After 22 years, Lost's scrapped plan for Jack's death resurfaces in The Madison, where Matthew Fox's character meets a similar fate in a plane crash, showcasing a connection between the two series.
+---------
+
+# Amazon's Best Action Thriller Franchise Officially Returns In 2 Months
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Explainer
+
+Fri, 20 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/jack-ryan-movie-release-amazon-prime-video/
+
+One of the best action thriller franchises on Prime Video is coming back, but with a movie this time, and here is what you need to know.
+---------
+
+# Supernatural’s New Series Is Officially Saving the Franchise After Spin-Off’s 42% RT Meltdown
+
+Comics, Supernatural
+
+Fri, 20 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/supernatural-new-series-save-franchise-meltdown-the-winchesters/
+
+Supernatural is one of the most popular and iconic fandoms of all time, and now it's getting a new series after The Winchesters failed.
+---------
+
+# The Comeback Season 3 Review: Valerie Cherish's Final Chapter
+
+Streaming TV, The Comeback
+
+Fri, 20 Mar 2026 22:25:57 GMT
+
+https://screenrant.com/the-comeback-season-3-review/
+
+In The Comeback season 3, Lisa Kudrow delivers a powerful performance as Valerie Cherish, navigating the ever-changing landscape of fame & reality TV.
+---------
+
+# Are Taylor Frankie Paul's Bachelorette Season 22 Men Eligible For Bachelor In Paradise After Cancellation?
+
+Reality TV, The Bachelorette, The Bachelor
+
+Fri, 20 Mar 2026 22:21:09 GMT
+
+https://screenrant.com/the-bachelorette-season-22-men-eligible-bachelor-in-paradise-after-cancellation-taylor-frankie-paul/
+
+The Bachelorette S22 starring Taylor Frankie Paul has been canceled, but will fans ever have the chance to meet the men who competed for her heart?
+---------
+
+# If You Loved Rose Byrne's Oscar-Nominated Turn, You Can't Miss Her New RT Certified Fresh Drama
+
+Movies, Tow
+
+Fri, 20 Mar 2026 22:20:20 GMT
+
+https://screenrant.com/rose-byrne-tow-rec/
+
+Tow, Rose Byrne's follow-up to her Academy Award-nominated performance in If I Had Legs I'd Kick You, highlights the star's best traits as an actor.
+---------
+
+# Star Wars Theory: Jabba’s Son Will Be A Major Wild Card In The Mandalorian & Grogu
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Fri, 20 Mar 2026 22:09:24 GMT
+
+https://screenrant.com/star-wars-theory-jabba-son-wild-in-mandalorian-grogu-rotta/
+
+New Star Wars reveals about the son of Jabba the Hutt may be pointing to a surprising twist for Jeremy Allen White's Rotta in the Mandalorian & Grogu.
+---------
+
+# Marvel Resurrects MCU Villain Agatha Timly In The Comics
+
+Marvel Comics, Marvel's Werewolf By Night, Marvel
+
+Fri, 20 Mar 2026 22:00:57 GMT
+
+https://screenrant.com/marvel-resurrects-mcu-villain-agatha-timly/
+
+An overlooked Marvel Cinematic Universe villain makes an unexpected comeback sporting a striking visual transformation and enhanced powers.
+---------
+
+# Predator: Badlands Is the No. 3 Most-Watched Movie in US
+
+Movies, Predator: Badlands, Predator, Disney+
+
+Fri, 20 Mar 2026 22:46:09 GMT
+
+https://www.cbr.com/predator-badlands-most-watched-movie-us-sci-fi-disney-plus/
+
+Disney's Predator: Badlands, the highest-grossing Predator movie ever, earning $184M worldwide, ranked as the 3rd most-watched movie in the US.
+---------
+
+# Every MCU Movie Releasing in 2026 and Beyond (March 2026 Update)
+
+Movies, Marvel Cinematic Universe
+
+Fri, 20 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/every-mcu-movie-releasing-in-2026-and-beyond/
+
+The MCU isn't going away anytime soon. Here are all the upcoming projects for 2026 and beyond.
+---------
+
+# Patlabor EZY Officially Debuts This Year as Patlabor's Latest Action-Packed Sci-Fi Hit
+
+Anime, Patlabor: The TV Series, mecha
+
+Fri, 20 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/new-mecha-patlabor-ezy-anime-debut-2026/
+
+Patlabor is a foundational mecha and sci-fi series that's set to reach new heights with its bold new anime that gives mechs a modern makeover.
+---------
+
+# Tom Holland's Billion-Dollar Spider-Man Franchise Resurfaces on Streaming After 718M Record-Breaking Trailer
+
+Movies, Marvel, MCU, Marvel Comics, Spider-Man, Spider-Man 2, Spider-Man 3, The Amazing Spider-Man, The Amazing Spider-Man 2, Spider-Man: Homecoming, Spider-Man: Far from Home, Spider-Man: No Way Home, Spider-Man: Brand New Day
+
+Fri, 20 Mar 2026 22:12:30 GMT
+
+https://www.cbr.com/tom-holland-billion-dollar-spider-man-streaming-success-disney-plus-march-2022/
+
+Just give all the records to Tom Holland's record-setting franchise, because he's taking them anyway — now back toward the top of streaming as well.
+---------
+
+# HBO’s The Last of Us Casts Lev in Controversial Decision After Game Creator’s Exit
+
+TV, The Last of Us
+
+Fri, 20 Mar 2026 22:00:31 GMT
+
+https://www.cbr.com/the-last-of-us-season-3-casts-lev/
+
+A controversial casting choice has been made for the trans character Lev in The Last of Us Season 3.
+---------
+
+# Taylor Sheridan Officially Confirms Kevin Costner's John Dutton Replacement
+
+TV, Yellowstone, Marshals
+
+Fri, 20 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/yellowstone-replace-john-dutton-with-thomas-rainwater/
+
+Taylor Sheridan's neo-Western flagship crumbled when Kevin Costner left Yellowstone, but a spinoff is replacing John Dutton with a familiar face.
+---------
+
+# Jaws Best Scene Inspired Predator: Badland's Campfire Scene
+
+Movies, Predator: Badlands, Jaws
+
+Fri, 20 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/predator-badlands-heartbreaking-creature-scene-jaws-inspiration/
+
+Predator: Badlands has more than a few epic moments, but one of its saddest wouldn't exist without a beloved scene from Steven Spielberg's Jaws.
+---------
+
+# Disney+'s Coven Academy Nears Release With Major Milestone
+
+TV, Agatha All Along, Disney+
+
+Fri, 20 Mar 2026 21:55:31 GMT
+
+https://www.cbr.com/disneys-agatha-all-along-replacement-nears-release-with-major-milestone/
+
+While Agatha All Along's future has yet to be confirmed, Disney+ is moving along with the perfect replacement.
+---------
+
+# 8 Years Later, Taylor Sheridan’s Sweeping American Western That Changed TV Still Hasn’t Been Topped
+
+TV News, Yellowstone, Taylor Sheridan, Kevin Costner, Paramount
+
+Fri, 20 Mar 2026 22:48:41 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-western-series-streaming-success-paramount-plus-march-2026/
+
+The sweeping 5-season American Western written by prolific film and television scribe Taylor Sheridan still hasn't been topped on streaming charts.
+---------
+
+# As a Taylor Sheridan Fan, Here's How I'd Rank All 12 of His TV Shows
+
+TV, Taylor Sheridan, Yellowstone, Landman, The Madison
+
+Fri, 20 Mar 2026 22:46:13 GMT
+
+https://collider.com/taylor-sheridan-fan-ranks-tv-shows/
+
+TV has been an excellent medium for Taylor Sheridan, and as a fan, I think Yellowstone, 1923, Landman, and Tulsa King are some of his best shows.
+---------
+
+# 8 Classic 2000s TV Shows That Have Aged Like Fine Wine
+
+TV, The Wire, 2000s, Breaking Bad, Band of Brothers
+
+Fri, 20 Mar 2026 22:44:12 GMT
+
+https://collider.com/classic-2000s-shows-aged-well/
+
+Revisit classic 2000s TV series that have stood the test of time and offer timeless entertainment, including The Sopranos, Lost, and The Wire.
+---------
+
+# Taylor Sheridan's 3-Part Neo-Western Surges on Streaming Ahead of New Season
+
+TV News, Taylor Sheridan, Landman, Paramount Plus, Drama
+
+Fri, 20 Mar 2026 22:30:38 GMT
+
+https://collider.com/landman-taylor-sheridan-neo-western-streaming-success-prime-video-itunes-march-2026/
+
+Taylor Sheridan's gritty oil drama continues to dominate global streaming charts on several platforms as a new season looms. Read on for more here.
+---------
+
+# 5 Years After His MCU Movie Debut, Charlie Cox Addresses Those Spider-Man and Avengers Rumors
+
+Movie News, Avengers: Doomsday, Charlie Cox, Daredevil: Born Again, Spider-Man: Brand New Day
+
+Fri, 20 Mar 2026 22:19:48 GMT
+
+https://collider.com/charlie-cox-daredevil-rumored-role-spider-man-brand-new-day-avengers-doomsday/
+
+Charlie Cox gave a cryptic response about Daredevil's potential appearances in Spider-Man: Brand New Day and Avengers: Doomsday.
+---------
+
+# Paramount's 3-Part Crime Trilogy Is One of the Best on Any Streaming Platform
+
+Movie, The Godfather, Al Pacino, Crime
+
+Fri, 20 Mar 2026 22:19:12 GMT
+
+https://collider.com/the-godfather-paramount-3-part-crime-trilogy-best-on-any-streaming-platform/
+
+Francis Ford Coppola’s Godfather trilogy is officially the perfect series of crime movies for a weekend binge, and Al Pacino has never been better.
+---------
+
+# Netflix Is Officially Losing the Most Intense Best Picture Winner of the 21st Century
+
+Movie Features, The Hurt Locker, Kathryn Bigelow, Jeremy Renner, Anthony Mackie
+
+Fri, 20 Mar 2026 21:59:12 GMT
+
+https://collider.com/the-hurt-locker-leaving-netflix/
+
+The Hurt Locker, Kathryn Bigelow’s 2009 Best Picture winner at the Oscars, is leaving Netflix in just a few weeks.
+---------
+
+# 38 Years Later, Jean-Claude Van Damme's Most Iconic Action Movie Is Getting the A24 Treatment
+
+Movie News, Jean-Claude Van Damme, Bloodsport, Michaela Coel, Martial Arts
+
+Fri, 20 Mar 2026 21:55:33 GMT
+
+https://collider.com/jean-claude-van-damme-action-movie-bloodsport-a24-remake-michaela-coel/
+
+A24 is set to remake the iconic martial arts film Bloodsport, with Black Panther: Wakanda Forever's Michaela Coel writing and directing.
+---------
+
+# 'Firefly's Nathan Fillion Confirms Reboot Recasting the Late Ron Glass
+
+TV News, Firefly, Nathan Fillion, Serenity
+
+Fri, 20 Mar 2026 22:24:15 GMT
+
+https://movieweb.com/firefly-reboot-recasting-animated-return/
+
+Glass, who played Derrial Book in the original show and in 'Serenity,' passed away in 2016.
+---------
+
+# 'Reacher' Fans Should Watch Prime's #1 Worldwide Thriller 'Scarpetta'
+
+Features, Reacher, Scarpetta, Comparison Recommendation
+
+Fri, 20 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/scarpetta-reacher-replacement-prime-thriller/
+
+'Scarpetta' is based on the novel series by Patricia Cornwell and is a new crime thriller series on Amazon Prime Video starring Nicole Kidman.
+---------
+
 # FBI Team Is "Very Worried" For Maggie After Family Tragedy As Missy Peregrym Skips Next Season 8 Episode
 
 TV, FBI
