@@ -1,3 +1,91 @@
+# Star Trek: Starfleet Academy Confirms Federation President
+
+TV, Star Trek, Star Trek: Discovery, Star Trek: Starfleet Academy
+
+Sat, 21 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-laira-rillak-still-federation-president/
+
+Star Trek: Starfleet Academy's season 1 finale has an Easter egg about who the Federation President is, which follows Star Trek: Discovery canon.
+---------
+
+# Daredevil’s Best Story in 33 Years is the One Marvel Initially Rejected
+
+Comics, Daredevil, Daredevil: Born Again - Season 1, Daredevil: Born Again - Season 2, Daredevil: Born Again
+
+Sat, 21 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/daredevil-best-story-marvel-rejected-frank-miller/
+
+Daredevil arguably wouldn't be the iconic Marvel character he is today, especially in the MCU, if it wasn't for one of his best comic stories.
+---------
+
+# Zelda Meets Valheim In Gorgeous New Sandbox RPG
+
+Gaming, The Legend of Zelda, Valheim, The Legend of Zelda: Ocarina of Time, Steam
+
+Sat, 21 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/zelda-valheim-elements-new-2026-sandbox-rpg/
+
+A blend of Valheim's crafting and base building with Zelda's exploration and combat in Elements, an upcoming open world RPG set in Elemythia.
+---------
+
+# 10 X-Men Who Could Could Destroy The Justice League
+
+Comics, X-Men
+
+Sat, 21 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/x-men-who-could-defeat-the-justice-league/
+
+The Justice League might be DC Comics' most prominent team, but any of these X-Men could defeat the powerful superhero force.
+---------
+
+# Why Is It Even Called 'Blade Runner' Anyway?
+
+Movie Features, Blade Runner, Ridley Scott, Harrison Ford, Hampton Fancher
+
+Sat, 21 Mar 2026 11:40:12 GMT
+
+https://collider.com/blade-runner-meaning-behind-movie-name/
+
+While Blade Runner adapts the classic Phillip K. Dick story Do Androids Dream of Electric Sheep?, its title draws from another source.
+---------
+
+# 10 Greatest Thriller Shows You Can Binge in One Week, Ranked
+
+TV, Thriller, You, Killing Eve, Prison Break
+
+Sat, 21 Mar 2026 11:33:13 GMT
+
+https://collider.com/best-thriller-shows-binge-one-week-ranked/
+
+Discover great thriller shows that offer gripping stories and intense suspense, perfect for binge-watching in one week, from The Night Agent to You.
+---------
+
+# 7 Prime Video Thriller Shows That Are Totally Unpredictable
+
+TV, Prime Video, Thriller, Reacher, Bosch
+
+Sat, 21 Mar 2026 11:16:12 GMT
+
+https://collider.com/prime-video-thriller-shows-totally-unpredictable/
+
+The best Prime Video thriller shows are the ones that are unpredictable and keep you guessing, which can be said for series like Reacher and The Boys.
+---------
+
+# Hulu's Near-Perfect 3-Part Dramedy Is the Gold Standard for Weekend Binges
+
+TV Features, Reservation Dogs, Hulu, Zahn McClarnon, Sterlin Harjo
+
+Sat, 21 Mar 2026 11:08:12 GMT
+
+https://collider.com/reservation-dogs-hulu-best-weekend-binge/
+
+Sterlin Harjo's brilliant comedy-drama Reservation Dogs is a charming coming-of-age series about Indigenous teens living on a reservation.
+---------
+
 # Pokémon Legends Delta Takes Players Back To Hoenn
 
 Gaming, Pokemon FireRed and LeafGreen
