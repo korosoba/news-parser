@@ -1,3 +1,212 @@
+# George Clooney's Classic 15-Part Medical Series Is "Major Cringe" For Real-Life Surgeon Due To 1 Character Detail
+
+TV, George Clooney, ER, The Pitt
+
+Sat, 21 Mar 2026 16:00:32 GMT
+
+https://screenrant.com/george-clooney-er-show-cringe-surgeon-depiction-accuracy/
+
+Exclusive: A surgeon critiques TV doctors from classic shows like ER and modern medical dramas like The Pitt and how they impact real-life surgeons.
+---------
+
+# The Madison Season 1 Ending Explained: Why Stacy Returned To Montana
+
+Streaming TV, The Madison
+
+Sat, 21 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/the-madison-season-1-ending-explained/
+
+Discover the reasons behind Stacy's life-changing decision in the emotional season 1 finale of The Madison, as she leaves New York for Montana.
+---------
+
+# Disney's 7-Part Fantasy Series Was The Closest Thing To A Live-Action Frozen Remake
+
+Classic TV, Frozen, Once Upon A Time
+
+Sat, 21 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/once-upon-a-time-live-action-frozen-next-best-thing/
+
+A full live-action Frozen remains a distant dream, but Elsa and Anna have made their non-animated debut already in an epic fairytale TV show.
+---------
+
+# Batman Needs a New Robin. But How Can DC Do It?
+
+Comics, Batman, DC Comics, Robin
+
+Sat, 21 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/batman-needs-new-robin-solution/
+
+For decades, one part of the Batman's lore has stayed the same and it desperately needs to change in order for the franchise to get better.
+---------
+
+# The Madison Season 2: Release Date, Story, & Everything We Know
+
+Streaming TV, The Madison
+
+Sat, 21 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/the-madison-season-2-status-release-date-cast-story-explained/
+
+Taylor Sheridan's new Western series introducing the Clyburns of New York ends with some major questions, making The Madison season 2 more intriguing.
+---------
+
+# Pokémon Definitive HeartGold Is The Perfect Way To Revisit Johto
+
+Gaming, Pokemon
+
+Sat, 21 Mar 2026 16:00:18 GMT
+
+https://screenrant.com/pokemon-definitive-heart-gold-rom-hack/
+
+Pokémon Definitive HeartGold is an ambitious ROM hack that transforms the base experience into something entirely new.
+---------
+
+# Project Hail Mary Box Office Threatens Oppenheimer's Record-Setting Debut As It Reaches New Heights For Amazon
+
+Movies, Box Office, Project Hail Mary
+
+Sat, 21 Mar 2026 15:56:29 GMT
+
+https://screenrant.com/project-hail-mary-opening-weekend-box-office-oppenheimer-amazon/
+
+Project Hail Mary is shooting for the stars as the box office numbers could topple Christopher Nolan's epic movie, Oppenheimer.
+---------
+
+# John Krasinski Could Break A Harrison Ford Movie Record
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan
+
+Sat, 21 Mar 2026 15:55:19 GMT
+
+https://screenrant.com/jack-ryan-movie-franchise-john-krasinski-harrison-ford-record-beat/
+
+With Jack Ryan: Ghost War moving the franchise from television to movies, John Krasinski has the chance to break a long-held Harrison Ford record.
+---------
+
+# Guy Ritchie's Murder Mystery Series Young Sherlock Knocked Off No. 1 on Prime Video
+
+TV, Young Sherlock
+
+Sat, 21 Mar 2026 16:15:30 GMT
+
+https://www.cbr.com/guy-ritchie-young-sherlock-murder-mystery-prime-video-drop-march-2026/
+
+The series has yet to be renewed for Season 2.
+---------
+
+# The Real Story Behind Daredevil’s Black Suit
+
+TV, Daredevil: Born Again
+
+Sat, 21 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/video/the-real-story-behind-daredevil-s-black-suit/
+
+Daredevil: Born Again’s black suit has a deeper meaning than you think.Marvel’s Dario Scardapane and Sana Amanat break down Matt Murdock’s darker evolution.In this interview, the creative team reveals why Daredevil goes full shadow mode and what it says about his role as a resistance figure in New York. They also dig into Kingpin’s ultimate power play, debating whether Fisk is more dangerous as a leader or a symbol. Plus, why Born Again stays grounded instead of diving into multiverse chaos. If you’re curious about Daredevil Born Again black suit meaning, Kingpin MCU future, or Marvel street-level storytelling, this is a must-watch.
+---------
+
+# The Secret Behind Project Hail Mary’s Most Emotional Moment
+
+Movies, Project Hail Mary
+
+Sat, 21 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/video/the-secret-behind-project-hail-mary-s-most-emotional-moment/
+
+SPOILERS AHEAD! Project Hail Mary’s Beatles needle drop almost didn’t happen.Phil Lord and Chris Miller break down why “Two of Us” became the film’s most emotional moment.The duo dives into the challenge of securing a Beatles track, why that specific song connects so deeply to the story, and how it ties into the film’s core themes of friendship and empathy. They also reveal how Rocky came to life through practical puppetry and why Ryan Gosling’s reluctant hero makes the story hit harder.
+---------
+
+# Final Fantasy Officially Surprises Fans With a New Game on March 24
+
+Games, Final Fantasy
+
+Sat, 21 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/final-fantasy-ix-remake-new-rpg-2026/
+
+The next installment in the Final Fantasy series is about to release, and that's not the only big news for fans of the JRPG franchise.
+---------
+
+# A New Batman-Inspired Trading Card Set Is A Must-Have For Fans Of The Dark Knight
+
+CBR Exclusives, Batman: The Animated Series
+
+Sat, 21 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/upper-deck-batman-the-animated-series-trading-cards-confirmed/
+
+Upper Deck's new trading set is the one Batman fans have been waiting for.
+---------
+
+# The Madison's Preston Clyburn Flashbacks Fix the Biggest Yellowstone Mistake
+
+TV, The Madison, Yellowstone, Paramount Plus
+
+Sat, 21 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/the-madison-fixes-taylor-sheridan-yellowstone-mistake-preston-clyburn-flashbacks/
+
+Lee Dutton's death has been an issue with Yellowstone fans since 2018, and Taylor Sheridan has finally redeemed himself with The Madison.
+---------
+
+# How The Madison Season 1 Ending Sets Up Season 2
+
+TV, The Madison, Yellowstone, Paramount Plus
+
+Sat, 21 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/the-madison-ending-explained/
+
+The Madison's Stacy Clyburn makes a life-changing decision as the family heads back to New York City, and start to feel the weight of Preston's death.
+---------
+
+# The Lord of the Rings' Aragorn Was Isildur's Heir, But Boromir Was His True Successor
+
+Movies, The Lord of the Rings
+
+Sat, 21 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-aragorn-boromir-successor/
+
+Aragorn is a true hero in The Lord of the Rings, but even though he's Isildur's heir, there was another human who was perfect to rule Gondor.
+---------
+
+# Russell Crowe’s 148-Minute WWII Epic Wages Total War on Streaming
+
+Movie News, Russell Crowe, Nuremberg, World War II, Rami Malek
+
+Sat, 21 Mar 2026 16:20:12 GMT
+
+https://collider.com/russell-crowe-ww2-epic-nuremberg-streaming-success-netflix-itunes-amazon-march-2026/
+
+Russell Crowe's Nuremberg has cemented itself as a home video blockbuster; it's now on a rampage on Netflix. Find out more below.
+---------
+
+# 24 Years Later, Martin Scorsese’s Scene-Stealing Turn Defines This 90-Minute Crime Comedy
+
+Movie News, Shark Tale, Martin Scorsese, The Mandalorian and Grogu, DreamWorks
+
+Sat, 21 Mar 2026 16:00:12 GMT
+
+https://collider.com/martin-scorsese-crime-comedy-shark-tale-streaming-success-netflix-march-2026/
+
+Martin Scorsese memorably voiced a character in Shark Tale, the millennial animated hit swimming up the streaming charts. Find out more.
+---------
+
+# Ridley Scott's 'The Man in the High Castle' Has Never Been More Relevant Than in 2026
+
+Features, The Man in the High Castle, Holds Up
+
+Sat, 21 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/ridley-scott-man-in-the-high-castle/
+
+Executive-produced by Ridley Scott, 'The Man in the High Castle' gets more disturbing with each passing year.
+---------
+
 # MobLand Wouldn’t Exist Without Liev Schreiber’s 7-Part Crime Drama
 
 Streaming TV, MobLand
