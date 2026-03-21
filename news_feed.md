@@ -1,3 +1,135 @@
+# HBO Max's Emmy-Winning 5-Season Comedy Series Is Officially Ending This Year With First Look Revealed
+
+TV, Hacks
+
+Sat, 21 Mar 2026 14:47:52 GMT
+
+https://screenrant.com/hacks-season-5-ending-confirmed-first-images/
+
+Hacks creators tease a satisfying conclusion with callbacks to past seasons, a focus on Deborah and Ava's evolving friendship, and great guest stars.
+---------
+
+# "A Tale of Two Cities" Still Owns the Title Of Greatest Opening Line In Literature
+
+Books, A Tale of Two Cities
+
+Sat, 21 Mar 2026 14:46:24 GMT
+
+https://screenrant.com/best-opening-line-literature-dickens-two-cities/
+
+This opening sentence is still the GOAT.
+---------
+
+# Avengers: Doomsday - Doctor Doom vs Captain America: Civil War Remake
+
+Movies, Avengers: Doomsday
+
+Sat, 21 Mar 2026 14:45:19 GMT
+
+https://screenrant.com/avengers-doomsday-captain-america-civil-war-tony-stark-evil/
+
+The MCU's next big movie is proving to be a remake of Civil War, only that, this time, it's clear that the side to root for is Team Captain America.
+---------
+
+# Both Live-Action 2026 Spider-Man Projects May Be Adapting The Same Iconic Storyline
+
+Superheroes, Spider-Man: Brand New Day, Spider-Noir, Explainer
+
+Sat, 21 Mar 2026 14:45:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-noir-man-spider-storylines-similar/
+
+Certain signs point to both live-action Spider-Man projects releasing in 2026 adding their own takes on a specific Spider-Man storyline.
+---------
+
+# Lord Of The Rings: The Rings Of Power Borrows Opening From Movies
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Sat, 21 Mar 2026 14:30:20 GMT
+
+https://screenrant.com/rings-of-power-copy-lotr-movie-opening/
+
+The Lord of the Rings: The Rings of Power and Jackson's Lord of the Rings movies have a lot in common, including the opening voiceover by Galadriel.
+---------
+
+# Dark Souls 3 10th Anniversary Remaster Leaves Gamers Divided
+
+Gaming, Dark Souls 3
+
+Sat, 21 Mar 2026 14:30:20 GMT
+
+https://screenrant.com/dark-souls-3-2026-remaster-10th-anniversary-rumors/
+
+As Dark Souls 3 approaches its 10th anniversary, fans speculate about a potential remaster.
+---------
+
+# Crimson Desert Announces Key Update After Backlash
+
+Gaming, Crimson Desert, Triple-A Games, PC
+
+Sat, 21 Mar 2026 14:29:56 GMT
+
+https://screenrant.com/crimson-desert-update-controls-backlash/
+
+Crimson Desert's launch was massive but rocky, and a newly announced patch will attempt to address some of the criticism received so far.
+---------
+
+# Robin Williams’ ’90s AI Sci-Fi Film Powers Up Again on Free Streaming
+
+Movie News, Robin Williams, Bicentennial Man, Chris Columbus, Sci-Fi
+
+Sat, 21 Mar 2026 14:40:12 GMT
+
+https://collider.com/robin-williams-90s-cult-sci-fi-movie-bicentennial-man-streaming-free-tubi-march-2026/
+
+Discover the cult classic sci-fi film Bicentennial Man, starring Robin Williams, now available for free. Here's how to stream the film.
+---------
+
+# Ryan Gosling’s Stellar Sci-Fi Blockbuster Officially Blows Past 'The Martian' in Box Office Debut
+
+Movie News, Ryan Gosling, Project Hail Mary, The Martian, Matt Damon
+
+Sat, 21 Mar 2026 14:39:23 GMT
+
+https://collider.com/project-hail-mary-overtakes-the-martian-box-office-debut-ryan-gosling-sci-fi-masterpiece/
+
+Ryan Gosling's near-perfect sci-fi masterpiece Project Hail Mary has officially beaten Matt Damon's The Martian in a stellar box office debut.
+---------
+
+# Hulu's 4-Part Post-Apocalyptic Sitcom Is Perfect From Start to Finish
+
+TV Features, The Last Man on Earth, Hulu, Will Forte, Kristen Schaal
+
+Sat, 21 Mar 2026 14:38:12 GMT
+
+https://collider.com/the-last-man-on-earth-fox-sitcom-perfect-start-to-finish/
+
+The absurd FOX sitcom The Last Man on Earth, starring Will Forte, Mary Steenburgen, and Kristen Schaal, is an amazing post-apocalyptic series.
+---------
+
+# 2026's Latest Horror Sequel Is Officially Facing Tough Competition at the Box Office
+
+Movie News, Ready or Not, Ready or Not 2: Here I Come, Samara Weaving, Box Office
+
+Sat, 21 Mar 2026 14:32:26 GMT
+
+https://collider.com/ready-or-not-2-box-office-10-million-samara-weaving-horror-sequel/
+
+Samara Weaving's return to horror, Ready or Not 2: Here I Come, is officially facing tough competition at the box office.
+---------
+
+# 'Daredevil: Born Again' Showrunners Detail How the Media Ties into Season 2
+
+TV News, Daredevil: Born Again, Disney+
+
+Sat, 21 Mar 2026 14:27:33 GMT
+
+https://movieweb.com/daredevil-born-again-media-season-2/
+
+'Daredevil: Born Again' showrunner Dario Scardapane and EP Sana Amanat tease a new kind of battle for the Man Without Fear.
+---------
+
 # Taylor Sheridan’s New 6-Part Series Is Worth A Weekend Binge After Season 3 Update
 
 Streaming TV, Taylor Sheridan, The Madison
