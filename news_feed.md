@@ -1,3 +1,157 @@
+# Where To Watch All The Hobbit Movies On Streaming In 2026
+
+Movies, The Hobbit, The Hobbit: An Unexpected Journey, The Hobbit: The Desolation of Smaug, The Hobbit: The Battle of the Five Armies, The Lord of the Rings
+
+Sat, 21 Mar 2026 18:05:19 GMT
+
+https://screenrant.com/the-hobbit-movies-2026-streaming-watch-where/
+
+The Hobbit trilogy deserves to be rewatched, and these are the places you can stream it in 2026.
+---------
+
+# Ready Or Not 2: Here I Come Losing Box Office Battle Against Bollywood Sequel
+
+Movies, Ready or Not 2: Here I Come, Box Office
+
+Sat, 21 Mar 2026 18:02:26 GMT
+
+https://screenrant.com/ready-or-not-2-here-i-come-dhurandhar-the-revenge-box-office/
+
+Ready or Not 2: Here I Come is facing an even bloodier mess in a battle at the box office as it faces off against a Bollywood sequel.
+---------
+
+# The Two Best Sci-Fi Movies Of The Decade Enter HBO Max's Top 10 After Sequel Trailer
+
+Movies, Dune, HBO Max
+
+Sat, 21 Mar 2026 18:00:20 GMT
+
+https://screenrant.com/dune-movies-hbo-max-streaming-success-sci-fi-movies-best-2020s/
+
+Two of the best Sci-Fi movies of all time have surged on HBO Max, and viewers should check them out ahead of the franchise's next release.
+---------
+
+# Prime Video's Top 10 Comedy TV Shows
+
+Streaming TV
+
+Sat, 21 Mar 2026 18:00:20 GMT
+
+https://screenrant.com/prime-video-best-comedy-series/
+
+Prime Video has a wide selection of comedy television shows– from award-winning classics like Fleabag to new releases like Overcompensating.
+---------
+
+# Legend Of Zelda Fans Are In Love With This Xbox Game Pass Freebie
+
+Gaming, The Legend of Zelda
+
+Sat, 21 Mar 2026 18:00:20 GMT
+
+https://screenrant.com/legend-of-zelda-xbox-game-pass-free-game/
+
+Minishoot' Adventures is a day one Xbox Game Pass release, and it's proving hugely popular with those who have given it a go.
+---------
+
+# Andy Weir on Breaking Fans’ Hearts with Project Hail Mary
+
+Movies, Project Hail Mary
+
+Sat, 21 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/video/andy-weir-on-breaking-fans-hearts-with-project-hail-mary/
+
+The author of Project Hail Mary reacts to the intense fan love for Rocky and what it feels like seeing that connection hit even harder on screen.Andy Weir dives into creating emotional reactions, the scale of adapting the story into a film, and why Rocky resonates so deeply. He also talks about music in storytelling, including a Beatles needle drop that hits unexpectedly hard, plus his own favorite movie music moment. If you love sci-fi, space stories, and character-driven storytelling, this Project Hail Mary interview delivers.
+---------
+
+# Ryan Murphy's Controversial Medical Drama Nip/Tuck Dominates PVOD Charts
+
+TV, Nip/Tuck, Ryan Murphy, Drama
+
+Sat, 21 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/ryan-murphy-medical-drama-nip-tuck-pvod-success-march-2026/
+
+Ryan Murphy's groundbreaking medical drama Nip/Tuck is currently dominating PVOD charts and streaming platforms, showcasing its enduring popularity.
+---------
+
+# 10 Heroes Who Could Beat Superman With Ease
+
+Comics, Superman
+
+Sat, 21 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/heroes-who-could-beat-superman-how-they-win/
+
+Superman may be the Man of Steel, but everyone has a weakness, and these heroes may just be his Kryptonite.
+---------
+
+# In Just 1 Day, Cillian Murphy's Crime Saga Peaky Blinders Is 1 of the Most Watched Movies in the World
+
+TV, Peaky Blinders: The Immortal Man, Peaky Blinders, Crime, Drama
+
+Sat, 21 Mar 2026 17:50:36 GMT
+
+https://www.cbr.com/cillian-murphyscrime-saga-peaky-blinders-streaming-success-netflix-march-2026/
+
+It took all of 24 hours for Cillian Murphy's Peaky Blinders' masterpiece to take over the streaming world.
+---------
+
+# 10 Years Later, Chris Pratt’s $100M Sci-Fi Spectacle Still Pulls Streaming Viewers Into Its Orbit
+
+Movie News, Chris Pratt, Passengers, Jennifer Lawrence, Rebecca Ferguson
+
+Sat, 21 Mar 2026 18:20:13 GMT
+
+https://collider.com/chris-pratt-sci-fi-blockbuster-jennifer-lawerence-passengers-streaming-success-hulu-hbo-max-march-2026/
+
+Ten years after its release, Chris Pratt's sci-fi thriller Passengers has mysteriously returned to the Top 10 charts on Hulu and HBO Max.
+---------
+
+# 32 Years Later, This Medical Drama Classic Surges Back on Streaming for 'The Pitt' Fans
+
+TV Features, ER, The Pitt, Noah Wyle, John Wells
+
+Sat, 21 Mar 2026 18:05:12 GMT
+
+https://collider.com/er-tv-show-streaming-charts-the-pitt-fans/
+
+With The Pitt Season 2 currently dominating HBO Max, another iconic medical drama is getting a boost on streaming, and it's not hard to see why.
+---------
+
+# 16 Years Later, Bradley Cooper’s Worst Thriller Is Haunting Streaming
+
+Movie News, Bradley Cooper, Case 39, Renée Zellweger, Horror
+
+Sat, 21 Mar 2026 18:00:13 GMT
+
+https://collider.com/bradley-cooper-worst-thriller-case-39-streaming-success-tubi-march-2026/
+
+The worst movie on Bradley Cooper's resumé is a horror dud with a 22% score on Rotten Tomatoes. It's now seeing a surge on streaming. Find out more.
+---------
+
+# HBO Max's Sci-Fi Action Series 'Lazarus' is the Best Binge-Watch on Streaming
+
+Features, Lazarus, HBO Max, Streaming Recommendations
+
+Sat, 21 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/lazarus-sci-fi-action-hbo-max-binge-watch/
+
+From the co-creator of 'John Wick,' the sci-fi action series 'Lazarus' has no bad episodes and is streaming on HBO Max.
+---------
+
+# Sci-Fi TV Masterpiece 'Firefly' Is Perfect Weekend Binge Trending on Amazon
+
+Features, Streaming Recommendations, Firefly, Serenity, Sci-Fi, Prime Video
+
+Sat, 21 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/firefly-sc-fi-series-perfect-binge/
+
+Following the announcement of revival plans, a beloved sci-fi series is trending on Amazon, making it the perfect weekend binge.
+---------
+
 # Chenford Gets A Wedding Update After The Rookie Season 8 Brings Tim Back To The Field
 
 Network TV, The Rookie
