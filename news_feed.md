@@ -1,3 +1,223 @@
+# 10 Underrated Animated Films You’ll Wish You Watched Sooner
+
+Classic Movies, Animation
+
+Sat, 21 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/animated-movies-underrated-watched-sooner/
+
+There are a ton of underrated animated films out there, but you'll be kicking yourself if you don't watch these gems right away.
+---------
+
+# Don't Overlook This Free Xbox Game Pass RPG On March 25
+
+Gaming, Xbox Game Pass, PC, Indie, Absolum
+
+Sat, 21 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/xbox-game-pass-free-rpg-absolum-march/
+
+One of the coolest and least well-known games of 2025 is making its way into the Xbox Game Pass catalog on March 25, so don’t miss out on it.
+---------
+
+# Are Superman, Batman and Wonder Woman Democrat or Republican? DC's Official Answer
+
+Comics, Superman, Batman
+
+Sat, 21 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/dc-heroes-official-politics-batman-superman-democrat-republican/
+
+Ever wondered how your favorite DC heroes like Batman and Superman see politics? In 2008, DC did the unthinkable and made their votes official.
+---------
+
+# Coco 2 Release Date Seemingly Revealed For 2029
+
+Movies, Coco 2, Pixar
+
+Sat, 21 Mar 2026 12:28:11 GMT
+
+https://screenrant.com/coco-2-release-date-reportedly-pixar/
+
+Coco is un poco loco, and Pixar wants more, as the sequel has been announced, but the release date is confusing after nine years of waiting for more.
+---------
+
+# Marshals Is Missing One Key Yellowstone Ingredient And It's Badly Hurting The Taylor Sheridan Series
+
+TV, Marshals, Yellowstone
+
+Sat, 21 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/marshals-show-taylor-sheridan-writing-ingredient-missing/
+
+Three episodes in, the hit Yellowstone spinoff Marshals is clearly missing one key ingredient that made the original series work so well.
+---------
+
+# Stranger Things' Best Twist Had Nothing To Do With Vecna Or The Upside Down
+
+TV, Stranger Things
+
+Sat, 21 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/stranger-things-best-twist-steve-robin/
+
+Despite its sci-fi and horror trappings, Stranger Things' best twist was secretly a quiet, character-driven moment that deepened the show's world.
+---------
+
+# 8 Forgotten '90s Movies That Are All Pure 10/10s
+
+Movies, The Freshman, Glengarry Glen Ross, Flubber
+
+Sat, 21 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/underrated-90s-movies-perfect-flubber-backdraft-freshman/
+
+These deep-cut '90s movies are must-watch.
+---------
+
+# Pokémon Phoenix Red Is A Surprisingly Dark Kanto Sequel
+
+Gaming, Pokemon, Pokemon FireRed and LeafGreen
+
+Sat, 21 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/pokemon-phoenix-red-rom-hack-kanto-sequel/
+
+Pokémon Phoenix Red is a FireRed ROM hack that takes the narrative to a surprisingly dark place.
+---------
+
+# Sandra Oh Teases Debbie’s Breaking Point in Invincible Season 4
+
+TV, Invincible
+
+Sat, 21 Mar 2026 12:15:12 GMT
+
+https://www.cbr.com/video/sandra-oh-teases-debbie-s-breaking-point-in-invincible-season-4/
+
+The long-awaited confrontation with Nolan is finally on the horizon.Sandra Oh dives deep into Debbie’s emotional journey, revealing how silence, restraint, and internal conflict shape one of Invincible’s most grounded characters. She breaks down the evolving Debbie and Nolan dynamic, the weight of betrayal, and how Debbie continues to anchor Mark through chaos.
+---------
+
+# Jane Lynch Reveals The ‘Juicy’ Role She Remembers Fondly
+
+TV, Happy's Place, The Marvelous Mrs. Maisel
+
+Sat, 21 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/happys-place-jane-lynch-marvelous-mrs-maisel-juicy-role/
+
+Sorry, it's not Sue Sylvester.
+---------
+
+# Samara Weaving And Kathryn Newton Know How To Torment Audiences If Ready or Not 3 Is Confirmed
+
+CBR Exclusives, Ready or Not, Ready or Not 2: Here I Come, interview
+
+Sat, 21 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/samara-weaving-kathryn-newton-ready-or-not-3-pitch/
+
+What game could Ready or Not twist next?
+---------
+
+# Christopher Nolan's Next Blockbuster Has Already Been Beaten By Godzilla
+
+Comics, Godzilla, The Odyssey
+
+Sat, 21 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/godzilla-monsterpiece-theatre-odyssey-idw-publishing/
+
+Christopher Nolan's The Odyssey adaptation faces some stiff (and surprising) competition from none other than Godzilla.
+---------
+
+# 8 Perfect Prime Video Shows Nobody Watched
+
+TV, Prime Video, Night Sky, I'm a Virgo, The Narrow Road to the Deep North
+
+Sat, 21 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/perfect-prime-video-shows-nobody-watched-list/
+
+None of these shows managed to crash the mainstream, but that simply means they're primed and ready to be rediscovered.
+---------
+
+# Spider-Man: Brand New Day Can Perfect the MCU's Symbiote Storyline
+
+Movies, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Sat, 21 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-best-mcu-symbiote-opportunity/
+
+The Marvel Cinematic Universe can finally fix a problem with the Symbiote storyline that has plagued Spider-Man adaptations for over 30 years.
+---------
+
+# Netflix's 7-Part 10/10 Thriller Series Has No Bad Episodes
+
+TV Features, The Watcher, Naomi Watts, Bobby Cannavale, Ryan Murphy
+
+Sat, 21 Mar 2026 12:27:15 GMT
+
+https://collider.com/netflix-the-watcher-thriller-perfect-weekend-binge/
+
+The Watcher is a thrilling suburban mystery with a star-studded cast and a chilling premise that will keep you hooked for the perfect weekend binge.
+---------
+
+# 18 Years Later, HBO’s 7-Part Historical Miniseries Is Still Near-Perfect
+
+TV Features, John Adams, Paul Giamatti, Laura Linney, HBO
+
+Sat, 21 Mar 2026 12:18:13 GMT
+
+https://collider.com/hbo-john-adams-historical-drama-gold-standard-prestige-tv/
+
+John Adams premiered 18 years ago and used its massive budget to create an award winning show with Paul Giamatti and Laura Linney.
+---------
+
+# Disney's Stellar 3-Part Sci-Fi Series Is So Good, You Can Start From Any Episode
+
+TV Features, Star Wars, Star Wars: Visions, Disney+, Sci-Fi
+
+Sat, 21 Mar 2026 12:08:13 GMT
+
+https://collider.com/star-wars-visions-disney-sci-fi-series-start-from-any-episode/
+
+Each episode of Star Wars: Visions tells a different story, making it easy to start from any place and enjoy the diverse animation.
+---------
+
+# Say Goodbye to This Gorgeous 97% RT Masterpiece Leaving Netflix Soon
+
+Movie Features, The Wild Robot, Lupita Nyong'o, Pedro Pascal, Netflix
+
+Sat, 21 Mar 2026 12:03:12 GMT
+
+https://collider.com/the-wild-robot-leaving-netflix/
+
+The Wild Robot, one of the most highly-regarded animated films of the 2020s, is leaving Netflix very soon.
+---------
+
+# After 'Project Hail Mary,' Andy Weir and Drew Goddard Are Ready To Team Up for More
+
+Exclusives, Project Hail Mary, Drew Goddard, Andy Weir, Ryan Gosling
+
+Sat, 21 Mar 2026 12:00:12 GMT
+
+https://collider.com/project-hail-mary-movie-ending-changes-drew-goddard-andy-weir-interview/
+
+Andy Weir and Drew Goddard discuss how the ending changed, working with Ryan Gosling, teaming up again, and Andy Weir teases his next novel.
+---------
+
+# Vietnam War Sci-Fi Action Thriller 'Primitive War' Lands New Streaming Home
+
+Movie News, Primitive War, Coming/Leaving Streaming, Action
+
+Sat, 21 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/primitive-war-streaming-hulu-april-2026/
+
+'Jurassic Park' meets 'Apocalypse Now' in this wild sci-fi action thriller coming to Hulu ahead of a planned sequel next year.
+---------
+
 # Star Trek: Starfleet Academy Confirms Federation President
 
 TV, Star Trek, Star Trek: Discovery, Star Trek: Starfleet Academy
