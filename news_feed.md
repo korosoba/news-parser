@@ -1,3 +1,135 @@
+# Apple TV's 2-Part Sci-Fi Series Has One Of Its Best Casts
+
+Streaming TV, Severance
+
+Sat, 21 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/severance-apple-tv-sci-fi-series-best-cast/
+
+Many of the cast members in Apple TV's great and disturbing sci-fi Severance are best known for their comedy roles which embrace their unique faces.
+---------
+
+# Studio Ghibli Gives First Miyazaki Update of 2026: and It's Exactly What Fans Wanted to Hear
+
+Anime, Studio Ghibli, Hayao Miyazaki
+
+Sat, 21 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/ghibli-first-miyazaki-update-2026-next-movie/
+
+It is official, Studio Ghibli just released the first Hayao Miyazaki update of 2026 and it is exactly what fans were hoping to hear about him.
+---------
+
+# If You're Looking For More Of Jessie Buckley, Check Out Her Performance In This Must-Watch 2018 Movie
+
+Movies, Wild Rose, Jessie Buckley, Recommendation
+
+Sat, 21 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/wild-rose-movie-jessie-buckley-performance/
+
+After her recent Oscar win and awards season sweep, Jessie Buckley has become a household name, and this 2018 movie proves it's been long overdue.
+---------
+
+# PlayStation Plus New Free Game Will Scratch Your Dark Souls Itch
+
+Gaming, PlayStation Plus, Blasphemous 2, Indie
+
+Sat, 21 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/playstation-plus-free-soulslike-march-2026/
+
+PS Plus' Game Catalog has welcomed a handful of new titles in March 2026, and one of them so happens to be a phenomenal Soulslike Metroidvania sequel.
+---------
+
+# 10 Heartbreaking Deaths That Changed Shonen Anime Forever
+
+Anime, One Piece, Naruto, Chainsaw Man
+
+Sat, 21 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/saddest-anime-deaths-changed-shonen-anime/
+
+Character deaths like Jiraiya's, Himeno's, and Ace's showed viewers that strength could also mean carrying on after someone irreplaceable is gone.
+---------
+
+# Star Trek Celebrates William Shatner’s 95th Birthday With Free Streaming Takeover
+
+TV, Star Trek
+
+Sat, 21 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/star-trek-streaming-pluto-tv-william-shatner-birthday/
+
+Fans can celebrate William Shatner's 95th birthday with classic Star Trek on free streaming.
+---------
+
+# The Thunderbolts Void Could Reveal the MCU's Uncle Ben in Brand New Day
+
+Movies, MCU, Spider-Man: Brand New Day, Thunderbolts*
+
+Sat, 21 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/thunderbolts-void-reveal-uncle-ben-spider-man-brand-new-day/
+
+The Spider-Man: Brand New Day trailer included a possible connection to Thunderbolts* that can fill in the missing piece of Peter Parker's story.
+---------
+
+# A Dark Big Bang Theory Changes Everything We Thought We Knew About Penny
+
+TV, The Big Bang Theory, Comedy, CBS
+
+Sat, 21 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/dark-big-bang-theory-changes-penny-spy-makes-sense/
+
+The Big Bang Theory introduced audiences to a lovable gang of nerds, but one of its best characters may have been hiding a dark secret.
+---------
+
+# Rebecca Ferguson’s Twisty 2-Part Sci-Fi Series Is Staging a Streaming Comeback
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Sat, 21 Mar 2026 23:00:13 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-series-silo-streaming-success-apple-tv-march-2026/
+
+Rebecca Ferguson's two-part sci-fi gamble, Silo, is staging a streaming comeback on Apple TV before its third season. Find out more here.
+---------
+
+# 10 Thriller Movies That Are Amazing From Start to Finish
+
+Movie, Thriller, Heat, Se7en, The Silence of the Lambs
+
+Sat, 21 Mar 2026 22:51:13 GMT
+
+https://collider.com/best-thriller-movies-amazing/
+
+Experience nonstop tension with masterful thrillers like Se7en and Gone Girl that grip hard, escalate smartly, and never lose momentum.
+---------
+
+# 'Crash Land' Review: 'Jackass' Meets 'Hot Rod' in This Wild, Ridiculous Comedy
+
+Movie Reviews, Crash Land, Finn Wolfhard, Gabriel LaBelle, Abby Quinn
+
+Sat, 21 Mar 2026 22:48:15 GMT
+
+https://collider.com/crash-land-review-finn-wolfhard-gabriel-labelle/
+
+Crash Land, starring Gabriel LaBelle and Finn Wolfhard, is a charming, fun story about a group of friends doing stunts and making movies together.
+---------
+
+# 9 Years Later, Netflix's 'American Vandal' Is Still One of Its Best Series
+
+Features, American Vandal, Netflix
+
+Sat, 21 Mar 2026 23:01:18 GMT
+
+https://movieweb.com/american-vandal-netflix-holds-up/
+
+'American Vandal' premiered on Netflix in 2017, and the mockumentary series about true crime starred Griffin Gluck, Tyler Alvarez, and Taylor Dearden.
+---------
+
 # Apple TV's Upcoming Cyberpunk Series Based On The Seminal Sci-Fi Novel Neuromancer Will Save A Dying Genre
 
 Streaming TV, Neuromancer, Apple TV
