@@ -1,3 +1,91 @@
+# MobLand Wouldn’t Exist Without Liev Schreiber’s 7-Part Crime Drama
+
+Streaming TV, MobLand
+
+Sat, 21 Mar 2026 15:31:19 GMT
+
+https://screenrant.com/mobland-ray-donovan-crime-drama-reworked-spinoff/
+
+Tom Hardy's crime drama TV series, MobLand was originally intended to be a British version of Liev Schreiber's Ray Donovan, serving as a prequel show.
+---------
+
+# Every Star Trek Series, Ranked By Episode Count
+
+TV, Star Trek, Ranking
+
+Sat, 21 Mar 2026 15:31:19 GMT
+
+https://screenrant.com/star-trek-series-episode-count/
+
+For 60 years, the Star Trek franchise has been a TV titan. Which of the 13 Star Trek series had the longest voyage in the final frontier?
+---------
+
+# Ariana Grande's Wicked: For Good Is the Most Popular Films in America on Peacock
+
+Movies, Wicked: For Good, Wicked
+
+Sat, 21 Mar 2026 15:30:12 GMT
+
+https://www.cbr.com/ariana-grande-wicked-for-good-fantasy-peacock-success-march-2026/
+
+After breaking records, the billion-dollar franchise has continued its success on streaming.
+---------
+
+# Magical Girl Anime Princession Orchestra Laid the Blueprint For KPop Demon Hunters’ Oscar-Winning Masterpiece
+
+Anime, KPop Demon Hunters, Oscars
+
+Sat, 21 Mar 2026 15:26:08 GMT
+
+https://www.cbr.com/kpop-demon-hunters-magical-girl-anime-inspiration/
+
+Before KPop Demon Hunters, this overlooked magical anime delivered a K-pop musical masterpiece that the award-winning film later echoed.
+---------
+
+# 2024’s Most Controversial Romance Faces Uncertain Sequel Future
+
+Movie News, It Ends With Us, Colleen Hoover, Blake Lively, Justin Baldoni
+
+Sat, 21 Mar 2026 15:40:12 GMT
+
+https://collider.com/it-ends-with-us-controversial-romance-colleen-hoover-uncertain-sequel-update/
+
+The most controversial movie of 2024 gets a teasing sequel update from its creator, Colleen Hoover. Here's everything you need to know.
+---------
+
+# 'One Piece' Star Confirms How Luffy and Vivi's Relationship Will Develop in Season 3
+
+Exclusives, Charithra Chandran, One Piece, Ladies Night, Netflix
+
+Sat, 21 Mar 2026 15:35:40 GMT
+
+https://collider.com/one-piece-season-3-luffy-vivi-relationship-charithra-chandran/
+
+On Collider Ladies Night, One Piece star Charithra Chandran explains why Vivi is able to influence Luffy in a way the other Straw Hats can't.
+---------
+
+# Crunchyroll's 8-Part Fantasy Series With a Perfect Rotten Tomatoes Score Is the Best in Anime
+
+TV Features, Crunchyroll, Gachiakuta, Anime, Fantasy
+
+Sat, 21 Mar 2026 15:28:12 GMT
+
+https://collider.com/gachiakuta-crunchyroll-fantasy-series-perfect-rotten-tomatoes-score-best-anime/
+
+Crunchyroll's epic fantasy series Gachiakuta has a perfect Rotten Tomatoes score and showcases the best in anime.
+---------
+
+# Christopher Nolan's 'The Odyssey' Bags an Extended Theatrical Release, Breaking a Pandemic-Era Policy
+
+Movie News, Christopher Nolan, The Odyssey, Matt Damon, IMAX
+
+Sat, 21 Mar 2026 15:20:12 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-extended-theatrical-release-pandemic-era-policy/
+
+Christopher Nolan's The Odyssey will be in theaters for at least five weeks, up from pandemic era's three, prioritizing theatrical experiences.
+---------
+
 # David Boreanaz & Sarah Michelle Gellar Pay Tribute To Buffy Co-Star Nicholas Brendon
 
 TV, Buffy The Vampire Slayer, Nicholas Brendon
