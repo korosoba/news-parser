@@ -1,3 +1,124 @@
+# David Boreanaz & Sarah Michelle Gellar Pay Tribute To Buffy Co-Star Nicholas Brendon
+
+TV, Buffy The Vampire Slayer, Nicholas Brendon
+
+Sat, 21 Mar 2026 15:01:34 GMT
+
+https://screenrant.com/nicholas-brendon-death-sarah-michelle-gellar-david-boreanaz-response/
+
+Following Nicholas Brendon's passing, Sarah Michelle Gellar and David Boreanaz reflect on working with the late star on Buffy The Vampire Slayer.
+---------
+
+# 2026's Biggest Fantasy Anime is Almost Here, But There's a Catch For American Fans
+
+Anime, Fantasy, Witch Hat Atelier, Netflix
+
+Sat, 21 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/2026s-biggest-fantasy-anime-is-almost-here-but-theres-a-catch-for-american-fans/
+
+The biggest fantasy anime release of 2026, and Frieren: Beyond Journey's End's rival, is almost here, but there is a huge catch for U.S. fans.
+---------
+
+# This 5-Part Horror Thriller's Reimagination Of Hitchcock's Psycho Raised The Bar For Adaptations
+
+Classic TV, Bates Motel
+
+Sat, 21 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/bates-motel-psychological-horror-psycho-hitchcock-reimagination/
+
+Alfred Hitchcock's Psycho is a horror classic, which made this modern prequel an ambitious undertaking. Ultimately, it was a risk that paid off.
+---------
+
+# Hogwarts Legacy: Night Curfew Adds Plenty Of New Ways To Play
+
+Gaming, Hogwarts Legacy
+
+Sat, 21 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-night-curfew-fan-expansion/
+
+Hogwarts Legacy Night Curfew, a free mod by nathdev, adds an immersive curfew system and 24 custom prefects.
+---------
+
+# Anya Taylor-Joy Names Her Iconic Peaky Blinders Villain The "Worst Character She's Ever Played" As Franchise Returns On Netflix
+
+TV, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Sat, 21 Mar 2026 14:59:08 GMT
+
+https://screenrant.com/anya-taylor-joy-peaky-blinders-gina-gray-worst-character/
+
+By order of the Peaky Blinders, Anya Taylor-Joy is not holding back as she speaks about the "worst character" she's ever played as the gang returns.
+---------
+
+# The Elder Scrolls 6 Officially Teases Its Map, And Theories Are Already Flying
+
+Games, The Elder Scrolls, The Elder Scrolls V: Skyrim
+
+Sat, 21 Mar 2026 15:11:12 GMT
+
+https://www.cbr.com/elder-scrolls-6-official-new-open-world-map-reveal/
+
+The director of The Elder Scrolls 6 has teased its world map, and fans can't stop talking about it.
+---------
+
+# 10 Open World Games That Pushed the Limits, Ranked
+
+Games, open world, Elden Ring, Red Dead Redemption 2
+
+Sat, 21 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/best-open-world-games-most-ambitious-ranked/
+
+The best open-world games, like Elden Ring, are so ambitious that they push the limits of what's actually possible.
+---------
+
+# 4 Years Later, Cillian Murphy's Netflix Comeback Shatters Expectations With Blockbuster 'Peaky Blinders' Movie Debut
+
+Movie News, Peaky Blinders, Peaky Blinders: The Immortal Man, Cillian Murphy, Rebecca Ferguson
+
+Sat, 21 Mar 2026 15:08:12 GMT
+
+https://collider.com/peaky-blinders-movie-the-immortal-man-netflix-streaming-success-cillian-murphy-march-2026/
+
+Cillian Murphy is officially proves he's the Immortal Man in blockbuster Netflix debut for the Peaky Blinders movie.
+---------
+
+# The Finale of Netflix's 98% YA Romance Will Arrive Far Later Than Expected in Disappointing Update
+
+Movie News, Heartstopper, Netflix, Joe Locke, Kit Connor
+
+Sat, 21 Mar 2026 15:00:13 GMT
+
+https://collider.com/heartstopper-forever-release-update-bad-news-for-fans-late-2026/
+
+The Heartstopper movie has finally received a release update, and it has fans a little disappointed. Here's everything you should know.
+---------
+
+# Where To Start Reading 'The Lord of the Rings': A Complete Guide to Tolkien's Books
+
+Features, The Lord of the Rings, J.R.R. Tolkien
+
+Sat, 21 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/where-to-start-reading-lord-of-the-rings/
+
+For the 'Lord of the Rings' movie fan who's craving another round of the Tolkienverse.
+---------
+
+# The Best Movies Set in the 80s
+
+Movie Lists
+
+Sat, 21 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/contemporary-movies-set-in-80s/
+
+The '80s remain one of the most nostalgic periods for its fashion, culture, and music. These contemporary movies capture that vibe.
+---------
+
 # HBO Max's Emmy-Winning 5-Season Comedy Series Is Officially Ending This Year With First Look Revealed
 
 TV, Hacks
