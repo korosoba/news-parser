@@ -1,3 +1,168 @@
+# Chenford Gets A Wedding Update After The Rookie Season 8 Brings Tim Back To The Field
+
+Network TV, The Rookie
+
+Sat, 21 Mar 2026 17:45:23 GMT
+
+https://screenrant.com/the-rookie-season-8-chenford-marriage-wedding-update-eric-winter/
+
+Eric Winter offers an update on Lucy Chen and Tim Bradford's possible marriage as The Rookie season 8 brings his character back on the ground.
+---------
+
+# If You're Looking For More Movies Like The Naked Gun, Look No Further Than Val Kilmer's Debut Film
+
+Movies, Top Secret!, Val Kilmer, Comedy, The Naked Gun: From the Files of Police Squad!, Recommendation
+
+Sat, 21 Mar 2026 17:45:19 GMT
+
+https://screenrant.com/top-secret-movie-val-kilmer-debut-naked-gun-similar/
+
+Val Kilmer's debut movie is a comedy film that can quench the thirst for comedy created by the 2025 remake of the classic ZAZ movie, The Naked Gun.
+---------
+
+# Spider-Man's DNA Is Mutating? The MCU's Brand New Day Tease Calls Back To A 55-Year-Old Twist
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 21 Mar 2026 17:45:19 GMT
+
+https://screenrant.com/spider-mans-dna-is-mutating-the-mcus-brand-new-day-tease-calls-back-to-a-55-year-old-twist/
+
+Spider-Man's mutating DNA, as mentioned in the Brand New Day trailer, is an old problem for the character. Here's how it worked out the first time.
+---------
+
+# How The Handmaid's Tale Sequel Series Shows A New Side Of Gilead Explained By Creator
+
+TV, The Testaments, The Handmaid's Tale
+
+Sat, 21 Mar 2026 17:37:27 GMT
+
+https://screenrant.com/the-testaments-show-differences-handmaids-tale-explained-bruce-miller/
+
+Blessed be the fruit, as Gilead is making a return in The Handmaid's Tale sequel The Testaments, as the series' creator reveals just how.
+---------
+
+# Andy Weir Requested 1 Subtle Project Hail Mary Easter Egg To Clarify A Character's Fate
+
+Movies
+
+Sat, 21 Mar 2026 17:31:47 GMT
+
+https://screenrant.com/project-hail-mary-stratt-tattoo-easter-egg-andy-weir-request-explained/
+
+In a surprising twist, the director of Project Hail Mary snuck in an Easter egg requested by author Andy Weir, hinting at a character's dark fate.
+---------
+
+# Taylor Sheridan's TV Shows Ranked From Best To Worst
+
+Streaming TV, Yellowstone, Tulsa King, The Madison
+
+Sat, 21 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/taylor-sheridan-shows-ranked/
+
+All 10 Taylor Sheridan shows, from the critically acclaimed Yellowstone to the lesser-known gems in his impressive TV portfolio, ranked best to worst.
+---------
+
+# The Monsterverse Redefines Kong: Skull Island 9 Years Later
+
+Streaming TV, Monarch: Legacy of Monsters, Kong: Skull Island, Monsterverse
+
+Sat, 21 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/monarch-bill-randa-kong-skull-island-setup/
+
+The Monsterverse redefines the events of Kong: Skull Island nine years later in the latest episode of its Apple TV spinoff series.
+---------
+
+# Robert Kirkman Wants Invincible Live-Action "Sooner" As He Teases "Movement" On Adaptation
+
+TV, Invincible, Invincible - Season 4
+
+Sat, 21 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/invincible-live-action-movie-update-robert-kirkman/
+
+Exclusive: A live-action Invincible adaptation appears to be progressing forward as creator Robert Kirkman teases "movement" behind the scenes.
+---------
+
+# 10 Pokémon Pokopia Tips To Drastically Improve Your Experience
+
+Gaming, Pokemon Pokopia, Triple-A Games, Nintendo
+
+Sat, 21 Mar 2026 17:30:20 GMT
+
+https://screenrant.com/pokemon-pokopia-advanced-postgame-tips-guide/
+
+Pokémon Pokopia is an absolutely massive game with more than a few secrets to discover, but these hidden tips are absolute game-changers when used.
+---------
+
+# 20 Years Later, Matt Damon’s 91% RT Crime Classic Is Running the Streaming Underworld
+
+Movie News, Matt Damon, Leonardo DiCaprio, The Departed, Martin Scorsese
+
+Sat, 21 Mar 2026 17:40:12 GMT
+
+https://collider.com/matt-damon-crime-classic-the-departed-streaming-success-amc-plus-march-2026/
+
+Matt Damon's crime classic with Martin Scorsese and a star-studded cast, The Departed, is having major streaming success 2 decades after its release.
+---------
+
+# 10 Worst Movies Based on Great American Novels
+
+Movie, The Great Gatsby, Salem's Lot, I Am Legend, The Scarlet Letter
+
+Sat, 21 Mar 2026 17:28:13 GMT
+
+https://collider.com/worst-movies-based-on-american-novels/
+
+From The Scarlet Letter to Fahrenheit 451, these are the worst movies based on classic American novels.
+---------
+
+# MGM+’s Epic 3-Part Western Thriller Is One of Streaming's Best
+
+TV Features, Billy the Kid, Tom Blyth, Western, MGM
+
+Sat, 21 Mar 2026 17:22:13 GMT
+
+https://collider.com/billy-the-kid-mgm-plus-western-thriller/
+
+MGM+ drama Billy the Kid masterfully blends fact and fiction, redefining the notorious outlaw's fate in a thrilling three-season journey.
+---------
+
+# Hulu’s Hitman Crime Series Blending ‘Breaking Bad’ and ‘John Wick’ Is Dominating Watchlists
+
+TV News, Memory of a Killer, Hulu, Breaking Bad, John Wick
+
+Sat, 21 Mar 2026 17:20:13 GMT
+
+https://collider.com/memory-of-a-killer-streaming-success-hulu-march-2026/
+
+Memory of a Killer, often compared to Breaking Bad and John Wick, is a streaming hit in the U.S. Here's everything you should know.
+---------
+
+# Arnold Schwarzenegger Honors the Late Chuck Norris
+
+Movie News, Chuck Norris, Arnold Schwarzenegger
+
+Sat, 21 Mar 2026 17:44:55 GMT
+
+https://movieweb.com/arnold-schwarzenegger-chuck-norris-death/
+
+After Norris passed away at the age of 86, his friend and former co-star Arnold Schwarzenegger shared a touching tribute on social media.
+---------
+
+# 'Project Hail Mary': The Biggest Differences From the Book, Explained
+
+Movie Lists, Project Hail Mary
+
+Sat, 21 Mar 2026 17:30:18 GMT
+
+https://movieweb.com/project-hail-mary-book-differences/
+
+Andy Weir's Hard Science Fiction novel has finally made it to the big screen, albeit with some changes made by Drew Goddard.
+---------
+
 # Tom Holland Explains Spider-Man's Dynamic With Punisher After Brand New Day Trailer
 
 Movies, Spider-Man: Brand New Day, The Punisher, Marvel Cinematic Universe
