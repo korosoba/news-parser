@@ -1,3 +1,201 @@
+# Taylor Sheridan’s New 6-Part Series Is Worth A Weekend Binge After Season 3 Update
+
+Streaming TV, Taylor Sheridan, The Madison
+
+Sat, 21 Mar 2026 14:13:19 GMT
+
+https://screenrant.com/taylor-sheridan-the-madison-watch-weekend-update/
+
+Taylor Sheridan's 6-part series The Madison is a must-watch weekend binge, featuring neo-Western themes, family drama, and a potential season 3.
+---------
+
+# Invincible Season 4 Thankfully Avoids A Gross Eve Scene From The Comics
+
+Streaming TV, Invincible
+
+Sat, 21 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/invincible-atom-eve-father-scene-change-comics/
+
+Invincible season 4 just changed one of the grossest scenes from the comics, and it's great to see that the show is avoiding weird scenes like that.
+---------
+
+# Final Fantasy 7 Remake Part 3 Title Splits Gamers
+
+Gaming, Final Fantasy, Final Fantasy 7
+
+Sat, 21 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/final-fantasy-7-remake-part-3-title-speculation-reaction/
+
+The third and final part of the Final Fantasy 7 Remake is set to launch in 2027, and fans are torn on what exactly it should be called.
+---------
+
+# 10 Modern One Piece Episodes That Are A Perfect 10/10
+
+Anime, One Piece
+
+Sat, 21 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/best-modern-one-piece-anime-episodes/
+
+One Piece has over a thousand episodes, but its modern episodes set the bar higher than it's ever been before, and these might be some of its best.
+---------
+
+# Ryan Gosling Breaks Down Rocky in Project Hail Mary
+
+Movies, Project Hail Mary
+
+Sat, 21 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/video/ryan-gosling-breaks-down-rocky-in-project-hail-mary/
+
+Ryan Gosling says Rocky is a diva in Project Hail Mary.But that’s exactly why the character works so well.Gosling shares what it was really like acting opposite a fully practical puppet, complete with a team of “rocketeers” bringing Rocky to life on set. The result? More spontaneity, real-time interaction, and a performance that feels alive in a way CGI rarely captures. He also reflects on iconic movie music moments and how powerful needle drops shape storytelling.
+---------
+
+# Charlie Cox Breaks Down Daredevil’s Darkest Era Yet
+
+TV, Daredevil: Born Again
+
+Sat, 21 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/video/charlie-cox-breaks-down-daredevil-s-darkest-era-yet/
+
+Daredevil: Born Again just changed Matt Murdock forever. Charlie Cox explains why the black suit signals a darker, more hunted version of Daredevil.In this CBR Presents interview, Charlie Cox and Vincent D’Onofrio break down the shifting power dynamic between Daredevil and Kingpin. From Matt operating in the shadows to Fisk’s ambitions as “President,” the stakes have never felt more grounded or more dangerous.They also dive into why their scenes together hit harder, and whether Daredevil should ever go multiverse. Plus, a surprising tease about Daredevil’s “Rivals” look.
+---------
+
+# Why Marriage Story Remains Netflix’s Most Rewatchable Romance
+
+Movies, Marriage Story, Romance, Netflix
+
+Sat, 21 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/marriage-story-netflix-evergreen-romance-drama/
+
+The amount of intensity invested by Adam Driver and Scarlett Johansson to make the story look authentic is the reason why Marriage Story stands out.
+---------
+
+# 5 Mecha Anime That Are Actually Better Than Evangelion
+
+Anime, Neon Genesis Evangelion, mecha, Mobile Suit Gundam, Macross Plus, Patlabor: The Movie
+
+Sat, 21 Mar 2026 13:56:17 GMT
+
+https://www.cbr.com/greatest-mecha-anime-better-than-evangelion/
+
+As great as Neon Genesis Evangelion still is, several mecha anime released before and after took this sci-fi genre to even greater heights.
+---------
+
+# Jack Black & Paul Rudd’s $134M Meta-Reboot Strikes Early With Netflix Release Date
+
+Movie News, Anaconda, Jack Black, Paul Rudd, Netflix
+
+Sat, 21 Mar 2026 14:20:13 GMT
+
+https://collider.com/jack-black-paul-rudd-anaconda-reboot-streaming-netflix-march-2026/
+
+Jack Black and Paul Rudd’s $134M meta creature reboot is hitting Netflix far sooner than expected after its Christmas theatrical debut.
+---------
+
+# 13 Years Ago, ‘Sinners’ Breakout Oscar Nominee Featured in This Crushing 91% Rotten Tomatoes Drama
+
+Movie Features, Philomena, Judi Dench, Steve Coogan, Wunmi Mosaku
+
+Sat, 21 Mar 2026 14:05:12 GMT
+
+https://collider.com/philomena-best-picture-nominee-wunmi-mosaku-sinners/
+
+Before earning an Oscar nomination for Sinners, Wunmi Mosaku appeared in the 2013 Best Picture nominee, Philomena.
+---------
+
+# ‘Brand New Day’ Trailer Sends 10/10 Franchise-Saving Spider-Man Epic Soaring on Disney+
+
+Movie News, Tom Holland, Spider-Man: Brand New Day, Spider-Man: Homecoming, Spider-Man
+
+Sat, 21 Mar 2026 14:05:09 GMT
+
+https://collider.com/spider-man-homecoming-streaming-success-disney-plus-march-2026-after-brand-new-day-trailer/
+
+Marvel's new trailer for Spider-Man: Brand New Day sends this franchise-saving superhero movie swinging to the top of the Disney+ charts.
+---------
+
+# Sarah Michelle Gellar Names the Actor She Wants in the 'Buffy the Vampire Slayer' Universe
+
+Exclusives, Sarah Michelle Gellar, Kathryn Newton, Ladies Night, Buffy The Vampire Slayer
+
+Sat, 21 Mar 2026 14:00:12 GMT
+
+https://collider.com/sarah-michelle-gellar-buffy-the-vampire-slayer-dream-cast-kathryn-newton/
+
+Sarah Michelle Gellar and Kathryn Newton revisit their journeys in genre in celebration of the release of Ready or Not 2.
+---------
+
+# Brad Pitt’s ’90s Cult Classic Returns With a Vicious Peacock Comeback 27 Years Later
+
+Movie News, Fight Club, Peacock, Brad Pitt, Drama
+
+Sat, 21 Mar 2026 14:00:12 GMT
+
+https://collider.com/brad-pitt-90s-cult-classic-fight-club-streaming-peacock-march-2026/
+
+Peacock revives a legendary ’90s cult classic Brad Pitt once called his best movie, bringing the iconic fan-favorite back for streaming audiences.
+---------
+
+# Elijah Wood's 'Ready or Not 2' Character Opens New Doors for the Franchise: "There Are Plenty of Ways We Could Go"
+
+Exclusives, Ready or Not 2: Here I Come, Elijah Wood, Sarah Michelle Gellar, Samara Weaving
+
+Sat, 21 Mar 2026 14:00:12 GMT
+
+https://collider.com/ready-or-not-2-elijah-wood-sarah-michelle-gellar-samara-weaving-kathryn-newton-interview/
+
+The Ready or Not 2 cast share insights into their characters' backstories and the possibilities of exploring more of the Ready or Not universe.
+---------
+
+# 8 Game-Changing Crime TV Shows That Totally Rewrite Genre Rules
+
+TV, Crime, The Sopranos, Oz, Hill Street Blues
+
+Sat, 21 Mar 2026 13:48:12 GMT
+
+https://collider.com/game-changing-crime-shows-rewrite-genre-rules/
+
+Explore how these influential crime TV shows broke the mold and forever changed the genre with their innovative approaches, from The Sopranos to Oz.
+---------
+
+# Anya Taylor-Joy’s New Sci-Fi Adventure Warps Into Theaters in Under 2 Weeks
+
+Movie News, The Super Mario Galaxy Movie, Anya Taylor-Joy, Chris Pratt, The Super Mario Bros. Movie
+
+Sat, 21 Mar 2026 13:41:12 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-adventure-sequel-the-super-mario-galaxy-movie-april-1-release-date/
+
+Anya Taylor-Joy's next big-screen movie will officially premiere in less than two weeks. Find out more information about the film here.
+---------
+
+# Marvel's First Successful Live-Action Movie Takes Over New Streaming Home
+
+Movie News, Blade, Coming/Leaving Streaming, MCU
+
+Sat, 21 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/marvel-blade-streaming-peacock-april-2026/
+
+28 years after hitting theaters, the movie that some say kickstarted the MCU takes over a new streaming home, along with its two sequels.
+---------
+
+# After Nearly 3 Seasons, 'Yellowstone's Jamie Dutton Twist Undermined Everything We Knew
+
+Features, Yellowstone, Canon Shift
+
+Sat, 21 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/yellowstone-jamie-adopted-twist/
+
+Nearly three seasons after building toward a Shakespearean tragedy, 'Yellowstone' dropped the ball with Jamie's adoption.
+---------
+
 # The Best Spaghetti Western Show Ever Released Can Be Binged In Under 8 Hours
 
 Classic TV, That Dirty Black Bag
