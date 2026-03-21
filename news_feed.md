@@ -1,3 +1,135 @@
+# CBS's Iconic 9-Part Western Crime Series From 33 Years Ago Quietly Returns To Lasso New American Streaming Resurgence
+
+TV, Chuck Norris, Walker, Texas Ranger
+
+Sat, 21 Mar 2026 18:33:24 GMT
+
+https://screenrant.com/walker-texas-ranger-apple-tv-vod-streaming-success-march-2026/
+
+As the world mourns the loss of Chuck Norris, his series Walker, Texas Ranger suddenly becomes a top-streamed show, sparking a wave of nostalgia.
+---------
+
+# Hunger Games Movie Franchise's Future Gets Insight From Sunrise On The Reaping Writer
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Sat, 21 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/hunger-games-franchise-movie-future-beyond-sunrise-on-the-reaping-billy-ray/
+
+With Sunrise on the Reaping as the last book, Hunger Games writer provides some insight into the movie franchise's future or whether it's the last.
+---------
+
+# Upcoming Fantasy Adaptation Will Make Up For A 5-Year-Old Box Office Failure
+
+Movies, The Devils, The Suicide Squad, DC, Suicide Squad
+
+Sat, 21 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/the-suicide-squad-the-devils-spiritualsuccessor/
+
+An upcoming fantasy book adaptation will make up for DC Studios' 5-year-old box office failure, promising a successful spiritual successor.
+---------
+
+# Solo Leveling & 9 Other Power Fantasy Anime That Are Perfect to Binge Watch
+
+Anime, Solo Leveling
+
+Sat, 21 Mar 2026 18:45:48 GMT
+
+https://www.cbr.com/best-power-fantasy-anime-to-watch/
+
+Solo Leveling may have reinvigorated the power fantasy genre, but it's a category surprisingly full of bingeworthy hits already.
+---------
+
+# Invincible Becomes Prime Video's Most-Watched Show in the World
+
+TV, Invincible, Prime Video, superheroes
+
+Sat, 21 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/invincible-superhero-prime-video-success-march-2026/
+
+Superhero series Invincible tops the Prime Video streaming charts, becoming the most-watched show in the United States and an international hit.
+---------
+
+# Prime Video's Carrie Reimagines Stephen King Classic With Social Media Change
+
+TV, Carrie, Mike Flanagan
+
+Sat, 21 Mar 2026 18:26:31 GMT
+
+https://www.cbr.com/prime-video-carrie-limited-series-modern-twist/
+
+The supernatural limited series will have a fresh twist.
+---------
+
+# Is Tommy Shelby’s Story Finally Over? Cillian Murphy Discusses 'Peaky Blinders' and Casting Barry Keoghan Via Text
+
+Exclusives, Peaky Blinders: The Immortal Man, Cillian Murphy, Barry Keoghan, Peaky Blinders
+
+Sat, 21 Mar 2026 18:58:52 GMT
+
+https://collider.com/peaky-blinders-movie-netflix-cillian-murphy-barry-keoghan-tommy-shelby-book/
+
+Cillian Murphy and Barry Keoghan discuss the Father's Day text that led to Netflix's Peaky Blinders movie, and Murphy confirms his next project.
+---------
+
+# 10 Best Epic Movie Masterpieces With Great Acting, Ranked
+
+Movie, Titanic, Drama, Lawrence of Arabia, Schindler's List
+
+Sat, 21 Mar 2026 18:53:12 GMT
+
+https://collider.com/epic-movie-masterpieces-great-acting-ranked/
+
+Titanic, Lawrence of Arabia, and Schindler's List are all among the very best epic movie masterpieces with incredible acting performances.
+---------
+
+# HBO's Newest ‘Game of Thrones’ Spin-Off Spreads Like Wildfire on Rival Streamer
+
+TV News, A Knight Of The Seven Kingdoms, George R.R. Martin, HBO Max, Amazon Studios
+
+Sat, 21 Mar 2026 18:40:13 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-game-of-thrones-spin-off-tops-charts-on-rival-streaming-service-amazon-channel-hbo-max/
+
+HBO's A Knight of the Seven Kingdoms is making waves on rival streaming platforms, securing a top spot on Amazon's global list.
+---------
+
+# Which Acting Oscar Win of 2026 Will Age the Best?
+
+Movie, Academy Awards, Michael B. Jordan, Amy Madigan, Jessie Buckley
+
+Sat, 21 Mar 2026 18:29:12 GMT
+
+https://collider.com/oscar-acting-winner-2026-ranked/
+
+Jessie Buckley, Michael B. Jordan, Sean Penn, and Amy Madigan all won Oscars at this year's ceremony, but which win will age the best?
+---------
+
+# Prime Video's 'Young Sherlock' Is the Perfect Follow-Up for 'Sherlock' Fans
+
+Features, Sherlock, Young Sherlock, Comparison Recommendation
+
+Sat, 21 Mar 2026 18:45:17 GMT
+
+https://movieweb.com/sherlock-young-sherlock-prime-videos-perfect-streaming/
+
+Guy Ritchie's 'Young Sheldon' has dominated Prime Video's streaming charts, and it serves as a great alternative for 'Sherlock' audiences.
+---------
+
+# 'Firefly' Revival: Production Status, Cast, & Everything We Know
+
+Features, Firefly
+
+Sat, 21 Mar 2026 18:30:18 GMT
+
+https://movieweb.com/firefly-revival-everything-we-know/
+
+There is still work to be done before 'Firefly' can finally come back to screens, but it's further along than you might think. Read on to learn more.
+---------
+
 # Where To Watch All The Hobbit Movies On Streaming In 2026
 
 Movies, The Hobbit, The Hobbit: An Unexpected Journey, The Hobbit: The Desolation of Smaug, The Hobbit: The Battle of the Five Armies, The Lord of the Rings
