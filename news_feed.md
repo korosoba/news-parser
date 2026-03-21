@@ -1,3 +1,146 @@
+# Tom Holland Explains Spider-Man's Dynamic With Punisher After Brand New Day Trailer
+
+Movies, Spider-Man: Brand New Day, The Punisher, Marvel Cinematic Universe
+
+Sat, 21 Mar 2026 17:13:08 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tom-holland-punisher-relationship/
+
+Tom Holland breaks down Spider-Man's complicated relationship with the Punisher, played by his real-life friend Jon Bernthal in Brand New Day.
+---------
+
+# Russell Crowe's New War Thriller Is Finally Redeeming Box Office Setback By Winning Over Americans On Streaming
+
+Movies, Nuremberg, War, Russell Crowe
+
+Sat, 21 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/nuremberg-movie-netflix-global-united-states-streaming-charts/
+
+Russell Crowe's new war movie is becoming a major Netflix hit in the United States, which is enough to redeem a box office setback last year.
+---------
+
+# Jujutsu Kaisen Loses Again as New Shonen Hit Steals its Throne With Ease
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo, Gachiakuta
+
+Sat, 21 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-loses-sales-to-gachiakuta/
+
+In a stunning upset, Jujutsu Kaisen's reign as manga's undisputed champion has been dethroned by a gritty shonen manga that everyone needs to read.
+---------
+
+# Marvel Officially Releases Red Hulk Redesign For Avengers: Armageddon
+
+Marvel Comics, Red Hulk, The Avengers, Marvel
+
+Sat, 21 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/avengers-armageddon-red-hulk-redesign/
+
+Marvel unveils Red Hulk's new appearance only a few months before the Avengers assemble again for the franchise's next big crossover event.
+---------
+
+# 13 Lost Episodes Better Than Anything Made Today
+
+Classic TV, Lost
+
+Sat, 21 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/lost-episodes-better-than-anything-made-today/
+
+Lost may have had its ups and downs, but some episodes have stood the test of time, continuing to shine even when held up against contemporary hits.
+---------
+
+# The Last Of Us Returns With A Gorgeous New Release This June
+
+Gaming, The Last of Us
+
+Sat, 21 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/last-of-us-june-2026-new-release-soundtrack/
+
+Mondo collaborates with Naughty Dog to release a stunning vinyl soundtrack for The Last of Us Season 2, featuring music by Gustavo Santaolalla.
+---------
+
+# What's Coming to Hulu in April 2026?
+
+TV, Hulu
+
+Sat, 21 Mar 2026 17:17:21 GMT
+
+https://www.cbr.com/whats-coming-to-hulu-in-april-2026-full-list/
+
+The streaming service has many licensed titles, with several originals including Malcolm in the Middle revival and The Handmaid's Tale spinoff.
+---------
+
+# 10 Greatest Nintendo 3DS Games of All Time, Ranked
+
+Games, Nintendo, The Legend of Zelda, Mario
+
+Sat, 21 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/greatest-nintendo-3ds-games-of-all-time-ranked/
+
+The 3DS was one of Nintendo's best handhelds, and its greatest games are hard to beat.
+---------
+
+# Buffy the Vampire Slayer Stars Pay Tribute to Buffy Co-Star Nicholas Brendon
+
+TV, Buffy The Vampire Slayer
+
+Sat, 21 Mar 2026 17:01:47 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-tribute-nicholas-brendon/
+
+Sarah Michelle Gellar, David Boreanaz, and Alyson Hannigan all shared tributes to their late co-star.
+---------
+
+# Dragon Ball Super Manga's Return Finally Gets an Update From Toyotarou
+
+Anime, Dragon Ball, Dragon Ball Super, Shonen Jump
+
+Sat, 21 Mar 2026 17:00:13 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-return-toyotarou-bio-update/
+
+Dragon Ball Super's mangaka Toyotarou has released a new statement reassuring fans that the popular DBZ manga sequel’s return is definitely happening.
+---------
+
+# 'Project Hail Mary' Confirms That We Needed To See Lord and Miller's Han Solo Prequel
+
+Movie Features, Project Hail Mary, Solo: A Star Wars Story, Phil Lord, Christopher Miller
+
+Sat, 21 Mar 2026 17:09:45 GMT
+
+https://collider.com/project-hail-mary-lord-miller-solo-a-star-wars-story/
+
+Project Hail Mary, from directors Phil Lord and Chris Miller, makes us curious what their version of Solo: A Star Wars Story would’ve been like.
+---------
+
+# 7 Years Later, the Biggest Sleeper Hit of Guy Ritchie’s Career Continues Charming Audiences
+
+Movie News, Guy Ritchie, Aladdin, Will Smith, Disney
+
+Sat, 21 Mar 2026 17:00:13 GMT
+
+https://collider.com/guy-ritchie-aladdin-remake-biggest-sleeper-hit-streaming-success-disney-plus-march-2026/
+
+The biggest hit of Guy Ritchie's career, the billion-dollar-grossing Aladdin, emerged as a sudden streaming hit. Find out more below.
+---------
+
+# 'Cross' Season 3: Confirmation, Cast, Plot & Everything We Know
+
+Features, Cross, Everything We Know
+
+Sat, 21 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/cross-season-3-everything-we-know/
+
+'Cross' is a popular crime thriller TV series on Amazon Prime Video starring Aldis Hodge as Alex Cross and is adapted from James Patterson's books.
+---------
+
 # Netflix's 3-Part Supernatural Sci-Fi Series Is So Confusing, You'll Have To Take Notes While Watching It
 
 Classic TV, Dark
