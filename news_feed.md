@@ -1,3 +1,212 @@
+# The Best Spaghetti Western Show Ever Released Can Be Binged In Under 8 Hours
+
+Classic TV, That Dirty Black Bag
+
+Sat, 21 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/that-dirty-black-bag-spaghetti-western-show-perfect-binge/
+
+That Dirty Black Bag is an AMC+ Spaghetti Western from 2022 that went criminally underseen, and still deserves another gory, darkly funny season.
+---------
+
+# The Creator of Adult Swim's Best Mecha Anime Has a Dire Warning For the Industry
+
+Anime, Code Geass: Lelouch of the Rebellion
+
+Sat, 21 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/code-geass-director-warning-anime-adaptation-industry/
+
+Code Geass director Goro Taniguchi warns that the anime industry's reliance on adaptations could lead to a decline in original content.
+---------
+
+# 20 Best Classic Rock Album Covers That Visually Defined An Era, Ranked
+
+Music, Classic Rock, The Beatles, David Bowie, Led Zeppelin, Queen, Pink Floyd, Rock
+
+Sat, 21 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/best-classic-rock-album-covers-ranked/
+
+From David Bowie’s lightning bolt to Pink Floyd’s prism, we rank the 20 most iconic classic rock album covers that fundamentally changed pop culture.
+---------
+
+# Netflix's 7-Part Sci-Fi Series With High Rotten Tomatoes Score Has One Of Its Best Casts
+
+TV, Netflix, Black Mirror
+
+Sat, 21 Mar 2026 13:15:19 GMT
+
+https://screenrant.com/netflix-black-mirror-sci-fi-series-cast-best/
+
+One of Netflix's best Sci-Fi series has an impeccable star-studded cast that just keeps getting better with every new season of the beloved show.
+---------
+
+# Andy Weir's Favorite Scenes In Project Hail Mary Movie Adaptation
+
+Movies, Project Hail Mary, Ryan Gosling
+
+Sat, 21 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/project-hail-mary-movie-andy-weir-favorite-scenes/
+
+Author Andy Weir discusses his favorite scenes from the Amazon MGM film adaptation of his beloved novel Project Hail Mary, including the high-stakes Adrian atmospheric sampling sequence and Rocky's visual design.
+---------
+
+# When They See Us: Netflix's Powerful Miniseries On The Central Park Five Case
+
+Classic TV, When They See Us
+
+Sat, 21 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/when-they-see-us-netflix-most-powerful-shows/
+
+Netflix's 2019 miniseries, When They See Us, is a powerful retelling of the infamous and tragic Central Park Five case and its fallout.
+---------
+
+# 20 Years Later, V for Vendetta's Director Explains the Key to Its Success
+
+Comics, V For Vendetta, Natalie Portman
+
+Sat, 21 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/v-for-vendetta-director-anti-superhero-movie/
+
+Verisimilitude was very valuable in this visionary venture.
+---------
+
+# Resident Evil Collides With Rust In New Horror Sandbox Survival Sim
+
+Gaming, Resident Evil, Rust
+
+Sat, 21 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/resident-evil-project-mist-sandbox-survival-rpg/
+
+Project: Mist is an upcoming open-world survival horror packed with huge monsters that could strike a chord with Resident Evil fans.
+---------
+
+# 10 Biggest Project Hail Mary Book Changes From Andy Weir's Book
+
+New Movies, Project Hail Mary
+
+Sat, 21 Mar 2026 12:55:18 GMT
+
+https://screenrant.com/project-hail-mary-movie-book-changes-explained/
+
+Ryan Gosling's sci-fi movie Project Hail Mary makes several changes to Andy Weir's book, on which it is based. Here are the 10 biggest differences.
+---------
+
+# Dark Souls Official New Sequel Drops On May 20
+
+Gaming, Dark Souls, PC
+
+Sat, 21 Mar 2026 12:45:19 GMT
+
+https://screenrant.com/dark-souls-sequel-release-may-20/
+
+Dark Souls is getting an official new sequel this year, and fans of the franchise will want to mark their calendars for May 20.
+---------
+
+# April 1 Will Be a Great Day for Ice Age Fans
+
+Movies, Ice Age, Disney+, family
+
+Sat, 21 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/ice-age-franchise-streaming-disney-plus-april-2026/
+
+The Ice Age fandom is coming out of cold storage as they get great news for this coming April.
+---------
+
+# First Gundam Anime Sequel Gets Major Action Figure Update for Classic Mecha After 41 Years
+
+Anime, Mobile Suit Gundam, Mobile Suit Zeta Gundam, merchandise, toys, action figures, bandai
+
+Sat, 21 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/zeta-gundam-bandai-action-figure-release/
+
+A new ROBOTS Spirits action figure and add-on armored vehicle recreate one of the most well-armed mechs from the second Mobile Suit Gundam anime.
+---------
+
+# 10 Action Masterpieces That Should Have Never Become Franchises
+
+Movies, Action, Die Hard, The Matrix
+
+Sat, 21 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/10-action-masterpieces-should-never-become-franchises/
+
+While these action films might've been spectacular on their own, it was a mistake for them to kick off ongoing franchises.
+---------
+
+# 7 Years Later, ‘Yellowstone’ Star’s 30% RT Revenge Thriller Is Dominating Streaming
+
+Movie News, Luke Grimes, Into the Ashes, Yellowstone, Marshals
+
+Sat, 21 Mar 2026 13:20:12 GMT
+
+https://collider.com/yellowstone-luke-grimes-revenge-thriller-into-the-ashes-streaming-success-amc-plus-march-2026/
+
+As Marshals gains attention, Luke Grimes' gritty 2019 revenge thriller Into the Ashes unexpectedly becomes a streaming hit in the U.S.
+---------
+
+# Stranger Things Star's Love Letter to Blockbuster Finally Hits Streaming
+
+Movie Features, Alex Ross Perry, Documentary, Maya Hawke, Videoheaven
+
+Sat, 21 Mar 2026 13:10:13 GMT
+
+https://collider.com/videoheaven-documentary-maya-hawke/
+
+Videoheaven, directed by Alex Ross Perry, is a loving look at video stores narrated by Maya Hawke.
+---------
+
+# ‘Outlander’ Star Sam Heughan Reacts to Claire’s Shocking Revelation and Jamie's Looming Fate
+
+Exclusives, Outlander, Sam Heughan, Caitriona Balfe
+
+Sat, 21 Mar 2026 13:00:13 GMT
+
+https://collider.com/outlander-season-8-episode-3-sam-heughan-interview-jamie-fate/
+
+Sam Heughan discusses Outlander Season 8, the fight over John Grey, Claire's magical healing, and the forces that threaten Jamie's life and the Ridge.
+---------
+
+# Bob Odenkirk Officially Breaks Silence on His 2-Part John Wick-Like Franchise's Future
+
+Movie News, Nobody, Bob Odenkirk, Nobody 2, Action
+
+Sat, 21 Mar 2026 13:00:13 GMT
+
+https://collider.com/bob-odenkirk-nobody-franchise-update-john-wick-replacement/
+
+Bob Odenkirk reveals he has ideas for two more Nobody sequels, but the future of the franchise depends on Universal Pictures' decision.
+---------
+
+# 10 Best Sword Fights in Fantasy Movies, Ranked
+
+Movie, Fantasy, Pirates of the Caribbean: Dead Man's Chest, Hero, Star Wars: Episode V - The Empire Strikes Back
+
+Sat, 21 Mar 2026 12:41:12 GMT
+
+https://collider.com/fantasy-movies-sword-fights-best-ranked/
+
+Red Sonja, Conan the Destroyer, Pirates of the Caribbean: The Curse of the Black Pearl, and more have the best sword fights in fantasy movies.
+---------
+
+# Revisit Stephen King's 'Misery' Before It Leaves Netflix
+
+Movie News, Misery, Coming/Leaving Streaming
+
+Sat, 21 Mar 2026 13:21:23 GMT
+
+https://movieweb.com/misery-leaving-netflix-march-2026/
+
+What happens when devotion turns into obsession?
+---------
+
 # 10 Underrated Animated Films You’ll Wish You Watched Sooner
 
 Classic Movies, Animation
