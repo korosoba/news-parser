@@ -1,3 +1,80 @@
+# A Clever One Piece Live-Action Detail Sets Up Netflix's Season 5
+
+Streaming TV, One Piece
+
+Sat, 21 Mar 2026 21:30:20 GMT
+
+https://screenrant.com/one-piece-live-action-season-5-set-up-water-7/
+
+Season 2 of Netflix’s One Piece contained many references to the wider world of the Grand Line, with a specific one setting up the story of season 5.
+---------
+
+# DC Heroes Ranked By Commercial Success: Batman & Superman Lead The Pack
+
+DC Comics
+
+Sat, 21 Mar 2026 21:30:20 GMT
+
+https://screenrant.com/most-successful-dc-heroes-ranked/
+
+DC's heroes are a goldmine of profitable movies, shows, games, comics, and merchandise, with some of the biggest names leading the way in sales.
+---------
+
+# Amazon’s Project Hail Mary Revives a Legendary Ryan Gosling Trend 15 Years After Drive
+
+Movies, Project Hail Mary, ryan gosling
+
+Sat, 21 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/project-hail-mary-ryan-gosling-drive-trend/
+
+Project Hail Mary looks to be another hit for Ryan Gosling, and it's also an unexpected film to bring back a trend for the actor not seen since Drive.
+---------
+
+# Netflix's How To Get To Heaven From Belfast Is a Must-Watch for Derry Girls Fans
+
+TV, Netflix, How to Get to Heaven from Belfast, Mystery, Thriller
+
+Sat, 21 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/netflix-how-to-get-to-heaven-from-belfast-mystery-thriller-instant-classic/
+
+This unconventional thriller series by Derry Girls creator Lisa McGee is seriously underrated and deserves to be on everyone's must-watch list.
+---------
+
+# HBO’s 6-Part Hard Sci-Fi Saga Gets Colossal Future Update
+
+TV News, Dune: Prophecy, HBO Max, Dune: Part Two, Dune: Part Three
+
+Sat, 21 Mar 2026 21:40:13 GMT
+
+https://collider.com/hbo-hard-sci-fi-series-dune-prophecy-season-2-wrapped-filming/
+
+HBO's best sci-fi series of the last few years, Dune: Prophecy, leaps forward with a massive Season 2 update. Here's everything you should know.
+---------
+
+# 10 Movies That Are a Genuine Challenge To Watch
+
+Movie, Grave of the Fireflies, A Serbian Film, Martyrs, Requiem for a Dream
+
+Sat, 21 Mar 2026 21:30:12 GMT
+
+https://collider.com/movies-genuine-challenge-to-watch/
+
+Notorious movies like Antichrist and Grave of the Fireflies are so harrowing and emotionally demanding that watching them is genuinely challenging.
+---------
+
+# Gore Verbinski's R-Rated Sci-Fi Flop Is Becoming 2026's New Cult Classic
+
+Movie News, Good Luck, Have Fun, Don't Die, Gore Verbinski, Sam Rockwell, Sci-Fi
+
+Sat, 21 Mar 2026 21:20:13 GMT
+
+https://collider.com/good-luck-have-fun-dont-die-strangest-sci-fi-movie-of-2026-streaming-digital-pvod-success-disappointing-box-office/
+
+The strangest sci-fi movie of the year — Good Luck, Have Fun, Don't Die — is redeeming itself on digital after a disappointing box-office performance.
+---------
+
 # Scrubs Season 10 Officially Avoids Yet Another Reboot Trap
 
 Streaming TV, Scrubs
