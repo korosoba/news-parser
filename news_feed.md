@@ -1,3 +1,201 @@
+# Marvel's New Disney Special Runtime Becomes The Longest Episode Yet After 4 Years
+
+TV, The Punisher Special Presentation, Marvel Cinematic Universe, The Punisher
+
+Sat, 21 Mar 2026 22:10:06 GMT
+
+https://screenrant.com/jon-bernthal-punisher-special-runtime-breaks-mcu-record/
+
+The Punisher special presentation will be the longest, surpassing Werewolf By Night and The Guardians of the Galaxy Holiday Special.
+---------
+
+# HBO Harry Potter Star Finally Speaks Up About Online Death Threats
+
+TV, Harry Potter
+
+Sat, 21 Mar 2026 22:02:47 GMT
+
+https://screenrant.com/hbo-harry-potter-paapa-essiedu-death-threats/
+
+One of the stars of the upcoming HBO adaptation of the Harry Potter books finally addresses all the threats that had been made on his life.
+---------
+
+# TV Shows That Defined the 1980s: From Cheers to Dynasty
+
+Classic TV
+
+Sat, 21 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/tv-shows-that-defined-1980s/
+
+From Cheers to Dynasty to Hill Street Blues to The A-Team, the television of the 1980s was an eclectic mix of sharp sitcoms and soapy melodramas.
+---------
+
+# Invincible's Robert Kirkman Teases More Changes To Comics For Season 4 & Beyond
+
+TV, Invincible, Invincible - Season 4, Prime Video
+
+Sat, 21 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/invincible-season-4-comics-differences-robert-kirkman/
+
+Exclusive: Robert Kirkman teases plans for new storylines and characters in upcoming seasons, hinting at exciting additions to the comic books.
+---------
+
+# Batman x Death Note Crossover Deepens the Dark Knight's Love Affair with Manga
+
+Anime, Death Note, Batman, DC Comics
+
+Sat, 21 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/batman-death-note-tribute/
+
+Batman has yet another manga collaboration, and this time the Dark Knight partners with Death Note for the cover of the latest Batman comic.
+---------
+
+# 10 Most Iconic The Legend Of Zelda Items Of All Time
+
+Gaming, The Legend of Zelda, Triple-A Games, Nintendo
+
+Sat, 21 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/most-iconic-zelda-items-all-time/
+
+Being one of the most influential and longstanding gaming franchises in history, The Legend of Zelda has more than a few incredibly iconic items.
+---------
+
+# Prime Video's Deadloch Season 2 Finds Instant Success on Streaming
+
+TV, Deadloch
+
+Sat, 21 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/prime-video-deadloch-season-2-streaming-march-2026/
+
+The acclaimed murder mystery series finally returned to Prime Video after a years-long wait.
+---------
+
+# Netflix's 2026 Original Anime Movie Cosmic Princess Kaguya Becomes Box Office Hit
+
+Anime, Netflix, Cosmic Princess Kaguya!
+
+Sat, 21 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-cosmic-princess-kaguya-box-office-2026/
+
+Netflix's biggest anime original movie released so far in 2026 has become a box-office hit after leaving the U.S. streaming platform.
+---------
+
+# Spider-Man: The Animated Series' Grossest Episode Lays the Groundwork For Spider-Man: Brand New Day
+
+TV, Spider-Man: Brand New Day, Spider-Man: The Animated Series
+
+Sat, 21 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-body-horror-animated-series/
+
+Spider-Man: Brand New Day looks to be setting up a classic body horror story that was made famous in Spider-Man: The Animated Series.
+---------
+
+# Chris Hemsworth's Crime 101 Is Already 2026's Most Overlooked Movie
+
+Movies, Crime 101, Crime
+
+Sat, 21 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/chris-hemsworth-crime-101-2026-overlooked-movie/
+
+In the 1990s, this glossy heist epic would have been a certified hit, but in the modern Hollywood landscape, it has struggled to find its feet.
+---------
+
+# Spider-Man’s Best Quote From Each of His MCU Appearances
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 21 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/spider-man-best-quote-each-mcu-appearance-list/
+
+Spider-Man has made a huge impact in the MCU, and with that, each appearance has also offered some unforgettable quotes.
+---------
+
+# Dwayne Johnson Combined 2 Tragic Real-Life Experiences for ’The Smashing Machine’s Most Powerful Moment
+
+Movie Features, Dwayne Johnson, Benny Safdie, The Smashing Machine, Emily Blunt
+
+Sat, 21 Mar 2026 22:05:12 GMT
+
+https://collider.com/dwayne-johnson-smashing-machine-powerful-moment-hospital/
+
+Dwayne Johnson used two heartbreaking moments from his life in his most emotional scene in The Smashing Machine.
+---------
+
+# 10 Action Shows Where Every Episode Is a Masterpiece
+
+TV, Action, 24, Andor, Daredevil
+
+Sat, 21 Mar 2026 22:03:13 GMT
+
+https://collider.com/action-shows-every-episode-masterpiece/
+
+ABC's Alias, Netflix's Daredevil, Fox's 24, Disney+'s Andor are among the rare class of action TV shows where every episode is a masterpiece.
+---------
+
+# Netflix’s Dark 6-Part Crime Thriller Proves It’s One of the Best Series Right Now
+
+TV News, Netflix, Narcos, That Night, International
+
+Sat, 21 Mar 2026 22:00:12 GMT
+
+https://collider.com/that-night-netflix-spanish-crime-thriller-perfect-binge/
+
+The gripping Spanish thriller, That Night, is now topping charts globally on Netflix. Here's what you should know about the murder-mystery series.
+---------
+
+# 10 Classic 2010s TV Shows That Have Aged Like Fine Wine
+
+TV, Best of the 2010s, Breaking Bad, Game Of Thrones, BoJack Horseman
+
+Sat, 21 Mar 2026 21:59:12 GMT
+
+https://collider.com/classic-2010s-shows-aged-well/
+
+Dive into the 2010s TV shows that have proven their staying power and cemented their status as modern classics, from Game of Thrones to Breaking Bad.
+---------
+
+# 8 Near-Perfect DC Comics Movies That No One Remembers Today
+
+Movie, DC Comics, Superhero, Animation, Batman: Year One
+
+Sat, 21 Mar 2026 21:55:13 GMT
+
+https://collider.com/near-perfect-dc-comics-movies-no-one-remembers-today/
+
+Batman: Year One, Justice League: Doom, and Superman: The Richard Donner Cut are excellent DC Comics movies that everyone forgot about.
+---------
+
+# 'Fallout' EP's First Movie Script in 12 Years Sounds Perfect for 'Interstellar' Fans
+
+Movie News, Interstellar, Jonathan Nolan, Steven Spielberg, Sci-Fi
+
+Sat, 21 Mar 2026 21:45:13 GMT
+
+https://collider.com/fallout-producer-jonathan-nolan-interstellar-spiritual-successor-sci-fi-space-opera/
+
+Jonathan Nolan, the writer of Interstellar, revealed he is working on a space opera that incorporates unused ideas from the beloved sci-fi film.
+---------
+
+# 'Spider-Man: Brand New Day' Adapts the Marvel Comics Story That Introduced Morbius in 1971
+
+Features, Spider-Man: Brand New Day, Morbius
+
+Sat, 21 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/spider-man-brand-new-day-morbius-storyline/
+
+Tom Holland's upcoming 'Spider-Man' movie borrows one of its biggest twists from a comic that inspired one of Marvel's worst movies.
+---------
+
 # A Clever One Piece Live-Action Detail Sets Up Netflix's Season 5
 
 Streaming TV, One Piece
