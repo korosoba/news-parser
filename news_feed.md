@@ -1,3 +1,157 @@
+# 20 Best Mario Kart 8 Racer & Kart Combinations
+
+Gaming, Mario Kart 8, Mario Kart
+
+Sat, 21 Mar 2026 19:00:23 GMT
+
+https://screenrant.com/best-racer-kart-combinations-mario-kart-8/
+
+Mario Kart 8 has received a balancing update that has changed the meta once again to include some interesting new viable combinations.
+---------
+
+# 6 Years Later, Supernatural's Return Just Became More Important
+
+Classic TV, Supernatural
+
+Sat, 21 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/supernatural-return-needed-more-buffy-cancel/
+
+Now that the much-anticipated revival of Buffy the Vampire Slayer has been axed, there is an opening for another nostalgic supernatural TV drama.
+---------
+
+# DC’s Next Big Era is Officially Here, & It’s Already Incredible
+
+DC Comics
+
+Sat, 21 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/dc-next-level-era-glorious-2026/
+
+The next phase of DC's All In initiative is here, and it promises a bold slate of #1 issues highlighting iconic characters.
+---------
+
+# One Piece Season 2: Laboon's Full Tragic Backstory Explained
+
+TV, One Piece, One Piece - Season 2
+
+Sat, 21 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/one-piece-season-2-laboon-tragic-backstory-explained/
+
+Netflix's One Piece introduced new fans to the sad tale of Laboon and the Rumbar Pirates, but it’s a plotline the show may take a while to tackle.
+---------
+
+# Xbox Game Pass Gets One Of 2024's Best RPGs For Free On March 24
+
+Gaming, Xbox Game Pass, Triple-A Games, PC, RPG, Like A Dragon: Infinite Wealth
+
+Sat, 21 Mar 2026 19:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-free-like-a-dragon-rpg/
+
+It’s already proven to be a great year for Xbox Game Pass with several remarkable free titles, but one new arrival is going to beat them all.
+---------
+
+# Witch Hat Atelier's Spring 2026 Debut Is Continuing Anime’s Best New Trend
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Sat, 21 Mar 2026 19:24:52 GMT
+
+https://www.cbr.com/crunchyroll-witch-hat-atelier-2-episode-debut/
+
+Witch Hat Atelier is among many new and returning series utilizing a proven strategy, maximizing the momentum of their arrival to streaming platforms.
+---------
+
+# How Strong is Stark in Frieren: Beyond Journey's End?
+
+Anime, Frieren: Beyond Journey's End
+
+Sat, 21 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/stark-is-the-strongest-anime-character-in-frieren-beyond-journeys-end/
+
+Stark was born an ordinary human, yet he's somehow the most impressive character in Frieren: Beyond Journey's End.
+---------
+
+# Why Everyone Is Wrong About Billy Bob Thornton’s Viral Ad-Lib in Tombstone
+
+Movies, Tombstone, Movie Legends Revealed, Western
+
+Sat, 21 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/tombstone-billy-bob-thornton-ad-libbed-improvised-dialogue/
+
+In a brand-new Movie Legends Revealed, discover the truth behind Billy Bob Thornton's memorable scene in the hit Western, Tombstone
+---------
+
+# Chris Pine's 103-Minute 'Reacher' Alternative Takes Over Taylor Sheridan's Longtime Streaming Home
+
+Movie News, Chris Pine, Ben Foster, The Contractor, Reacher
+
+Sat, 21 Mar 2026 19:20:13 GMT
+
+https://collider.com/chris-pine-reacher-replacement-the-contractor-passes-major-streaming-milestone-paramount-plus-taylor-sheridan/
+
+Chris Pine and Ben Foster's Reacher alternative, The Contractor, has passed a major streaming milestone. Find out more below.
+---------
+
+# Bob Dylan’s 1962 Debut Album Wasn’t a No. 1 Hit 64 Years Ago—but Became a Folk Classic
+
+Music Features, Bob Dylan, Pop, Rock, Billboard Hot 100
+
+Sat, 21 Mar 2026 19:18:24 GMT
+
+https://collider.com/bob-dylan-1962-debut-album-64-years-ago/
+
+Bob Dylan's 1962 self-titled debut album, initially rejected by the general public, eventually became a widely regarded masterpiece.
+---------
+
+# 10 Greatest War Movies You Haven't Seen
+
+Movie, War, Fires on the Plain, Army of Shadows, Come And See
+
+Sat, 21 Mar 2026 19:17:12 GMT
+
+https://collider.com/best-war-movies-you-havent-seen/
+
+Explore war cinema beyond the canon with unforgettable, lesser-known movies like Come and See, A Midnight Clear, and The Beast.
+---------
+
+# Hulu's Promising 6-Part Comedy Series Completely Proved Critics Wrong
+
+TV Features, Chad Powers, Glen Powell, Hulu, Comedy
+
+Sat, 21 Mar 2026 19:01:12 GMT
+
+https://collider.com/chad-powers-hulu-comedy-better-than-rotten-tomatoes-score/
+
+Despite its mixed reception, Glen Powell's Chad Powers is a comedy series worth watching thanks to its unique premise and emotional depth.
+---------
+
+# Beloved Fantasy Series 'Outlander' Loses Its Streaming Crown to an 8-Part Revenge Thriller
+
+TV News, The Count of Monte Cristo, Outlander, Sam Heughan, STARZ
+
+Sat, 21 Mar 2026 19:01:12 GMT
+
+https://collider.com/outlander-fantasy-favorite-loses-streaming-rank-count-of-monte-cristo-starz-march-2026/
+
+Sam Claflin’s Count of Monte Cristo adaptation beats Starz' fantasy hit series, Outlander on streaming. Here's what you should know.
+---------
+
+# Audiences Are Realizing HBO's 'Station Eleven' Is an Underrated Masterpiece
+
+Features, HBO Max, Station Eleven
+
+Sat, 21 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/station-eleven-hbo-underratated-sci-fi/
+
+3 years after it ended, HBO's fantastic miniseries 'Station Eleven' is finally getting some well-deserved appreciation and love from audiences.
+---------
+
 # CBS's Iconic 9-Part Western Crime Series From 33 Years Ago Quietly Returns To Lasso New American Streaming Resurgence
 
 TV, Chuck Norris, Walker, Texas Ranger
