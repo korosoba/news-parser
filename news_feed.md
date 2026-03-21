@@ -1,3 +1,344 @@
+# Dark Souls 3 Fans Really Won't Want To Miss This New Release
+
+Gaming, Dark Souls 3, PC, Triple-A Games
+
+Sat, 21 Mar 2026 04:00:26 GMT
+
+https://screenrant.com/dark-souls-3-abyss-watcher-figure-2026-release/
+
+Dark Souls 3, released nearly a decade ago, is home to many remarkable bosses and mechanics, and fans won’t want to miss this new release.
+---------
+
+# Upcoming Lovecraft Movie Is The Perfect Rival To Mike Flanagan’s Stephen King Movie
+
+Movies, Mike Flanagan, The Mist, Dredge, Stephen King
+
+Sat, 21 Mar 2026 03:45:19 GMT
+
+https://screenrant.com/lovecraft-mike-flanagan-the-mist-dredge/
+
+A fascinating indie Lovecraftian game is getting a movie adaptation, and it is hard not to see how it can rival Mike Flanagan’s new Stephen King film.
+---------
+
+# 8 Best New-Gen Anime Perfect for a One-Night Weekend Binge
+
+Anime, Pluto, Odd Taxi
+
+Sat, 21 Mar 2026 03:04:53 GMT
+
+https://screenrant.com/best-new-gen-anime-perfect-binge-weekend/
+
+These anime are perfect for watching in one sitting on your days off before the workweek begins, as they will make an impact in just a few episodes.
+---------
+
+# Netflix Officially Adapting New Superhero Show Based On Popular Comic Books 10 Years After First Series Was Cancelled
+
+TV, Netflix, Brian Michael Bendis, Powers
+
+Sat, 21 Mar 2026 02:55:28 GMT
+
+https://screenrant.com/netflix-powers-superhero-animated-show-development/
+
+Netflix is officially developing a TV adaptation of an independent comic book series by Ultimate Spider-Man writer, Brian Michael Bendis.
+---------
+
+# Apple TV’s 5-Season Space Opera Is 1 Of The Greatest Original Sci-Fi Franchises Of The Century
+
+Streaming TV, Apple TV, For All Mankind, Star City
+
+Sat, 21 Mar 2026 02:46:38 GMT
+
+https://screenrant.com/for-all-mankind-greatest-sci-fi-franchise/
+
+Apple TV is the home of an incredible 5-season space opera that is on the right path towards becoming one of the greatest original sci-fi franchises.
+---------
+
+# From Small Screen to Big: Peaky Blinders' The Immortal Man Transcends TV Roots
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Sat, 21 Mar 2026 02:17:19 GMT
+
+https://screenrant.com/peaky-blinders-immortal-man-movie-better-in-theaters/
+
+It isn't easy for TV shows to make the leap into the realm of cinema, but this seminal crime franchise always belonged on the big screen anyway.
+---------
+
+# 10 Most Powerful Female Characters in One Piece, Ranked
+
+Anime, One Piece
+
+Sat, 21 Mar 2026 02:15:19 GMT
+
+https://screenrant.com/one-piece-best-female-characters-anime/
+
+One Piece's vibrant roster of characters has introduced its fair share of deadly female pirates, Warlords, Holy Knights, and even an Emperor.
+---------
+
+# Avengers: Doomsday & Dune 3's Opening Weekend Will Be An Incredible Box Office Achievement For 1 Actor
+
+Movies, Dune: Part Three, Avengers: Doomsday
+
+Sat, 21 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/avengers-doomsday-dune-3-box-office-florence-pugh/
+
+Avengers: Doomsday and Dune: Part Three release on the same day, setting up an amazing weekend at the box office for one actor who is in both films.
+---------
+
+# Reacher’s Confirmed 2026 Return: It Achieves A Rare Streaming Feat On Prime Video
+
+Streaming TV, Reacher, Prime Video, Neagley
+
+Sat, 21 Mar 2026 01:31:29 GMT
+
+https://screenrant.com/reacher-season-4-neagley-2026-release-feat/
+
+Reacher is all set to return in 2026 with its fourth instalment, which seemingly allows it to achieve a rare and impressive streaming television feat.
+---------
+
+# Stephen King’s Underrated 4-Part Show Has The Greatest Post-Apocalyptic Opening
+
+Classic TV, The Stand, Stephen King
+
+Sat, 21 Mar 2026 00:47:27 GMT
+
+https://screenrant.com/stephen-king-the-stand-post-apocalyptic-opening/
+
+The opening scene in Stephen King’s most underrated television adaptation is one of the greatest in the history of the post-apocalyptic horror genre.
+---------
+
+# Dragon Ball Unearths Rare 32-Year-Old Draft Art From Gohan's Great Saiyaman Era
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sat, 21 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/dragon-ball-gohan-saiyaman-akira-toriyama-draft-art/
+
+A decades-old piece of Dragon Ball draft art just gave fans a rare glimpse at the classic manga in its partially finished state.
+---------
+
+# Frank Miller Draws the Teenage Mutant Ninja Turtles for the First Time
+
+Comics, Teenage Mutant Ninja Turtles, frank miller
+
+Sat, 21 Mar 2026 03:58:32 GMT
+
+https://www.cbr.com/frank-miller-draws-teenage-mutant-ninja-turtles-first-time/
+
+The comic book legend, Frank Miller, finally draws the Teenage Mutant Ninja Turtles for the first time for the Turtles' 300th issue
+---------
+
+# 10 Beautiful Romance Anime With Zero Love Triangles & No Creepy Age Gaps
+
+Anime, Shojo
+
+Sat, 21 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/best-romance-anime-no-love-triangles-age-gaps/
+
+Viewers looking for straightforward love stories without unnecessary drama will find plenty to enjoy in these anime.
+---------
+
+# Dexter Spin-Offs Fix Flashback Problem with Young Dexter
+
+TV, Dexter, Dexter: Resurrection, Dexter: Original Sin
+
+Sat, 21 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/dexter-resurrection-ended-weird-flashback-trend/
+
+Dexter: Resurrection has delivered some great moments for fans, and it finally ended a strange trend that has gone on too long.
+---------
+
+# JJK Season 3 Redeems Potential Man With Megumi Fushiguro's Best Fight Yet
+
+Anime, Jujutsu Kaisen
+
+Sat, 21 Mar 2026 03:31:10 GMT
+
+https://www.cbr.com/jjk-episode-58-review/
+
+MAPPA and the Jujutsu Kaisen anime are making sure that Megumi Fushiguro fans eat well this season.
+---------
+
+# 10 Classic Horror Anime That Deserve to Be Streaming Sensations in 2026
+
+Anime
+
+Sat, 21 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/horror-anime-cult-classics-streaming-sensations-2026/
+
+As streaming platforms are redefining global viewing habits in 2026, now is the perfect opportunity for many cult classic horror anime to resurface.
+---------
+
+# Marvel’s Spider-Man: Brand New Day Trailer Has a Daredevil Connection
+
+Movies, Spider-Man: Brand New Day, Daredevil: Born Again, MCU
+
+Sat, 21 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-trailer-reveals-daredevil-born-again-connection/
+
+The first trailer for Spider-Man: Brand New Day includes a surprising connection to Daredevil: Born Again Season 2.
+---------
+
+# 10 Classic Game Consoles That Are Unplayable Today
+
+Games, Video Games, Sega Genesis, Nintendo
+
+Sat, 21 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/throwback-game-console-aged-badly-nintendo-sega/
+
+Memorable game consoles like the NES and Sega Genesis are partially or completely unplayable today.
+---------
+
+# 10 Best Anime Crossover Episodes of All Time, Ranked
+
+Anime, One Piece, Dragon Ball, Gintama
+
+Sat, 21 Mar 2026 03:13:56 GMT
+
+https://www.cbr.com/best-anime-crossover-episodes-ever-ranking/
+
+The all-time best anime TV crossover events were nothing short of a cultural phenomenon.
+---------
+
+# Pixar's Hoppers Was Inspired By Studio Ghibli’s Pom Poko, Director Says
+
+Anime, Hoppers, Studio Ghibli, Pom Poko
+
+Sat, 21 Mar 2026 03:05:12 GMT
+
+https://www.cbr.com/pixar-hoppers-studio-ghibli-pom-poko-inspire/
+
+Hoppers Director Daniel Chong reveals the thematic parallels between his new beaver-centric comedy and Isao Takahata's third Studio Ghibli film.
+---------
+
+# ’Project Hail Mary’s Author Is Absolutely Missing the Point of Netflix’s Greatest 7-Part Sci-Fi Thriller
+
+TV Features, Black Mirror, Project Hail Mary, Netflix, Andy Weir
+
+Sat, 21 Mar 2026 03:09:12 GMT
+
+https://collider.com/black-mirror-misunderstood-andy-weir-project-hail-mary/
+
+Andy Weir calls Black Mirror anti-tech, but the series is really about human behavior.
+---------
+
+# 10 Best Movie Endings of the 1980s, Ranked
+
+Movie, The Empire Strikes Back, E.T. the Extra-Terrestrial, Cinema Paradiso, The Cook, the Thief, His Wife & Her Lover
+
+Sat, 21 Mar 2026 03:09:12 GMT
+
+https://collider.com/best-1980s-movie-endings-ranked/
+
+The best movie endings of the 1980s include those found in undeniable classics like The Empire Strikes Back, Cinema Paradiso, and Stand by Me.
+---------
+
+# Chris Pratt’s 8-Part Prime Video Action Thriller Is the Perfect Weekend Binge Before Its Season 2 Return
+
+TV Features, Chris Pratt, The Terminal List, Prime Video, Action
+
+Sat, 21 Mar 2026 03:00:13 GMT
+
+https://collider.com/chris-pratt-terminal-list-prime-video-action-thriller-perfect-binge/
+
+Revisit Chris Pratt's high-octane Prime Video action thriller series The Terminal List before it returns for Season 2.
+---------
+
+# After 'Spider-Man: Brand New Day,' Sony Can Finally Fix Their Ruined Comics Universe
+
+Movie Features, Spider-Man, Sony Pictures, Spider-Man: Brand New Day
+
+Sat, 21 Mar 2026 02:56:12 GMT
+
+https://collider.com/spider-man-universe-sony-failed-how-to-fix/
+
+With Sony’s Spider-Man Universe now over, the studio should try again with a stronger focus on heroes.
+---------
+
+# This 9-Part 96% RT Sitcom Somehow Made TV’s Most Uncomfortable Episode Ever
+
+TV Features, Channel 4, Peep Show, Sitcom, Comedy
+
+Sat, 21 Mar 2026 02:38:12 GMT
+
+https://collider.com/peep-show-darkest-sitcom-episode-ever/
+
+Peep Show's Season 4 episode, "Holiday," pushes the boundaries of dark humor as Jez is so dedicated to his lie he eats part of a family pet he killed.
+---------
+
+# This Stellar 2-Part Apple TV Fantasy Series Has No Bad Episodes
+
+TV Features, Apple TV, Schmigadoon!, Keegan Michael Key, Fantasy
+
+Sat, 21 Mar 2026 01:24:12 GMT
+
+https://collider.com/schmigadoon-apple-tv-fantasy-no-bad-episodes/
+
+The Apple TV series Schmigadoon, starring Keegan-Michael Key and Cecily Strong, remains a hidden gem in the streamer's growing library.
+---------
+
+# ‘Outlander’ Star Caitriona Balfe Reacts to What Episode 3’s Shocking Magic Reveal Could Mean for Claire
+
+Exclusives, Outlander, Caitriona Balfe, Sam Heughan, Sophie Skelton
+
+Sat, 21 Mar 2026 01:07:07 GMT
+
+https://collider.com/outlander-season-8-episode-3-caitriona-balfe-interview-claire-magic/
+
+Caitriona Balfe discusses Outlander Season 8, the humor in Claire and Jamie's Episode 3 fight, that shocking childbirth moment, and the looming war.
+---------
+
+# Nicholas Brendon, Best Known as Xander in ‘Buffy the Vampire Slayer,’ Dead at 54
+
+TV News, Criminal Minds, Buffy the Vampire Slayer, Buffy The Vampire Slayer, Obituary
+
+Sat, 21 Mar 2026 00:45:36 GMT
+
+https://collider.com/nicholas-brendon-buffy-the-vampire-slayer-star-dead-at-54/
+
+Nicholas Brendon, the star of Buffy the Vampire Slayer and Criminal Minds, has died at age 54.
+---------
+
+# 8 Greatest 2020s TV Shows Nobody Is Talking About (#1 Is a Hidden Gem)
+
+TV Lists, The Midnight Club
+
+Sat, 21 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/2020s-tv-shows-underrated/
+
+The 2020s have had some great TV shows, from 'The White Lotus' to 'The Pitt,' but these series are underrated.
+---------
+
+# Nicholas Brendon, 'Buffy' and 'Criminal Minds' Star, Dies at 54
+
+TV News, Buffy The Vampire Slayer, Criminal Minds
+
+Sat, 21 Mar 2026 00:49:35 GMT
+
+https://movieweb.com/nicholas-brendon-dead-buffy-criminal-minds/
+
+Nicholas Brendon, known for his work as Xander Harris on 'Buffy' and Kevin Lynch on 'Criminal Minds,' passed away at age 54.
+---------
+
+# 10 Steamiest Erotic Thriller Movies of the 21st Century
+
+Movie Lists, Thriller
+
+Sat, 21 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/erotic-thriller-movies-best-21st-century/
+
+From 'Unfaithful' to 'The Duke of Burgundy', these erotic thriller movies will leave you with a different perspective on love and lust.
+---------
+
 # Why You Need To Be Watching Netflix's Next Big Anime
 
 Anime, Netflix, JoJo's Bizarre Adventure, Op-Ed
