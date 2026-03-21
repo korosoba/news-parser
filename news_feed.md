@@ -1,3 +1,135 @@
+# Scrubs Season 10 Officially Avoids Yet Another Reboot Trap
+
+Streaming TV, Scrubs
+
+Sat, 21 Mar 2026 21:15:19 GMT
+
+https://screenrant.com/scrubs-season-10-avoid-technology-reboot-trap/
+
+Every episode of Scrubs season 10 seems to prove that, unlike most shows, this one was somehow built from the very beginning to be revived one day.
+---------
+
+# What Is The Movie The Drama About And What Could The Plot Twist Be?
+
+Movies, The Drama
+
+Sat, 21 Mar 2026 21:15:19 GMT
+
+https://screenrant.com/the-drama-movie-plot-twist-theories/
+
+Fans wonder what the Drama is really about, with a major plot twist at the film's core.
+---------
+
+# 10 Friends Episodes That Haven't Aged Well
+
+Classic TV, Friends
+
+Sat, 21 Mar 2026 21:01:18 GMT
+
+https://screenrant.com/friends-episodes-that-aged-poorly/
+
+Friends has timeless appeal as an ensemble sitcom, but there are a handful of episodes that haven't aged well in the past couple of decades.
+---------
+
+# Fallout 5 May Launch Sooner Than Expected, With One Major Catch
+
+Gaming, Fallout 5, Triple-A Games, PC
+
+Sat, 21 Mar 2026 21:01:18 GMT
+
+https://screenrant.com/fallout-5-release-date-update-no-bethesda/
+
+Although we're expecting Fallout 5 at some point in the future, veteran developers have a different idea of how Bethesda will deliver.
+---------
+
+# Hulu’s Best Sports Series of 2025 is Officially Returning With New Movie
+
+Anime, Medalist, Hulu
+
+Sat, 21 Mar 2026 21:00:11 GMT
+
+https://screenrant.com/medalist-movie-2027-best-hulu-sports-series/
+
+Hulu secretly has one of best new generation sports anime, and it's coming back with a movie in 2027 that fans can't miss.
+---------
+
+# Yellowstone's Marshals Spinoff Season 2 Breaks a Major Taylor Sheridan Trend
+
+TV
+
+Sat, 21 Mar 2026 21:18:03 GMT
+
+https://www.cbr.com/marshals-season-2-episodes/
+
+Marshals Season 2 gets an update revealing how the Yellowstone spinoff is breaking a Taylor Sheridan trend.
+---------
+
+# Chainsaw Man's Unreleased Pochita Movie Can Save Part 2's Ending
+
+Anime, Chainsaw Man
+
+Sat, 21 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/chainsaw-man-pochita-movie-part-2-manga-ending/
+
+Somewhere in MAPPA’s archive is a live-action Chainsaw Man movie clip starring Pochita, and fans have literally never needed it more than they do now.
+---------
+
+# 8 Thriller Shows That Grab You Instantly & Never Let Up
+
+TV, Yellowjackets, How to Get Away With Murder, Thriller
+
+Sat, 21 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/addictive-thriller-tv-shows-list/
+
+These top-notch thriller series start strong and keep audiences engaged with high stakes, shocking twists, and relentless pacing.
+---------
+
+# Sarah Michelle Gellar's Ready or Not 2: Here I Come Breaks 27-Year-Old Rotten Tomatoes Record
+
+Movies, Ready or Not 2: Here I Come, Ready Or Not 2, Rotten Tomatoes
+
+Sat, 21 Mar 2026 20:52:06 GMT
+
+https://www.cbr.com/sarah-michelle-gellar-ready-or-not-2-here-i-come-rotten-tomatoes-record/
+
+The Scream Queen's new movie has just set a new record.
+---------
+
+# 8 TV Shows That Get Better With Every Rewatch
+
+TV, Heated Rivalry, Avatar: The Last Airbender, Fleabag, Bridgerton
+
+Sat, 21 Mar 2026 21:18:12 GMT
+
+https://collider.com/tv-shows-get-better-on-rewatch/
+
+Heated Rivarly, Fleabag, The Good Place, Bridgerton, and more make up our list of TV shows that get better with every rewatch.
+---------
+
+# Disney’s 95% Rotten Tomatoes Fantasy Series Is the Absolute Perfect Weekend Binge
+
+TV News, Percy Jackson & the Olympians, Disney, Fantasy, Drama
+
+Sat, 21 Mar 2026 21:00:13 GMT
+
+https://collider.com/fantasy-masterpiece-percy-jackson-and-the-olympians-streaming-success-disney-plus-march-2026/
+
+This Disney+ fantasy adaptation finally lets its mythology breathe, turning a beloved book saga into a tightly paced and binge-ready streaming hit.
+---------
+
+# 'The Americans' Is the Perfect Show for 'Breaking Bad' Fans
+
+Features, The Americans, Breaking Bad
+
+Sat, 21 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/the-americans-keeps-getting-better/
+
+'The Americans' premiered in 2013 and stars Matthew Rhys and Keri Russell as a married couple named Philip and Elizabeth Jennings.
+---------
+
 # Every Romance Option In My Time At Sandrock, Ranked Worst To Best
 
 Gaming, My Time At Sandrock, PC
