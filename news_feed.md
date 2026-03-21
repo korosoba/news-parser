@@ -1,3 +1,311 @@
+# 10 Underrated Sci-Fi Shows Worth Revisiting
+
+Classic TV, Sci-Fi
+
+Sat, 21 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/forgotten-sci-fi-shows-aged-like-fine-wine/
+
+From Orphan Black to The Prisoner, these cult classic sci-fi TV shows just keep getting better and better as they wait to be discovered.
+---------
+
+# Deadpool's New Series Basically Reboots 30 Years Of Canon
+
+Marvel Comics, Deadpool, Marvel
+
+Sat, 21 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/deadpool-reboot-wade-wilson-change/
+
+Marvel is taking Deadpool back to his origins with the beginning of a new era for the Merc With a Mouth, who's back as a heartless mercenary.
+---------
+
+# 10 Manga Series that Ended Way too Abruptly
+
+Anime
+
+Sat, 21 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/manga-series-abrupt-endings/
+
+Discover 10 manga series that left fans disappointed with abrupt endings, from Demon Slayer to Yuyu Hakusho, and learn why they fell so short.
+---------
+
+# Vince Vaughn Confirms Season 2 Of Apple TV's Hit Crime Show Is "Interim One" Despite Delayed Plans For Adaptation Of 10-Year-Old Novel
+
+TV, Bad Monkey, Apple TV, Vince Vaughn
+
+Sat, 21 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/bad-monkey-season-2-razor-girl-adaptation-future-vince-vaughn/
+
+Vince Vaughn confirms season 2 of Apple TV's crime show is an "interim one," despite the anticipated plans for another novel adaptation.
+---------
+
+# Cyberpunk 2077 Sequel Official Release Date Update Is Pretty Much What Gamers Expected
+
+Gaming, Cyberpunk 2077, CD Projekt Red, Triple-A Games
+
+Sat, 21 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-sequel-release-date-update-2030/
+
+Cyberpunk 2077 and The Witcher are thriving IPs for CD Projekt Red, but the former's upcoming sequel may be in the oven for quite a while longer.
+---------
+
+# Don't Give Up On Hannibal Season 4 Just Yet
+
+TV, Hannibal
+
+Sat, 21 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/hannibal-season-4-not-give-up/
+
+Despite the cancellation of Hannibal before season 4, showrunner Bryan Fuller is eager to adapt Thomas Harris' iconic novel The Silence of the Lambs.
+---------
+
+# New Minecraft Sequel Revealed As Xbox Game Pass Day-One Release
+
+Gaming, Xbox Game Pass, Minecraft, Triple-A Games, PC
+
+Sat, 21 Mar 2026 19:43:12 GMT
+
+https://screenrant.com/minecraft-dungeons-2-xbox-game-pass-reveal/
+
+A new Minecraft game will be launching this fall, and Xbox Game Pass Ultimate and PC subscribers will have free access with their subscription.
+---------
+
+# Stacy Might Not Survive The Madison Season 2, Tease Stars After Cliffhanger Season 1 Ending
+
+TV, The Madison
+
+Sat, 21 Mar 2026 19:31:45 GMT
+
+https://screenrant.com/the-madison-season-1-ending-stacy-future-survive-season-2/
+
+The Madison has ended, but the future of one character has been on everyone's mind after the cliffhanger season finale, as stars tease season 2.
+---------
+
+# Ranking The 10 Funniest Shrinking Characters
+
+Streaming TV, Shrinking
+
+Sat, 21 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/shrinking-funniest-characters-ranked/
+
+The top 10 funniest characters on Apple TV's Shrinking, ranked by their comedic contributions to the series and the actors who take on their roles.
+---------
+
+# Apple TV's New Psychological Thriller Needs To Embrace A Rival Streamer's Strategy
+
+Streaming TV, Imperfect Women
+
+Sat, 21 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/imperfect-women-apple-tv-harlan-coben-netflix-strategy/
+
+Apple TV's new psychological thriller is underperforming and needs to take a big risk by adopting a rival platform's strategy to succeed.
+---------
+
+# 10 Strongest JJK Cursed Techniques With Massive Drawbacks
+
+Anime, Jujutsu Kaisen
+
+Sat, 21 Mar 2026 20:16:25 GMT
+
+https://www.cbr.com/strongest-jujutsu-cursed-techniques-biggest-flaws/
+
+Jujutsu Kaisen's Cursed Techniques are some of the most innovative supernatural powers of any modern anime, but some abilities come at a great cost.
+---------
+
+# Drew Goddard Reveals How Project Hail Mary Inspires Future Scientists
+
+Movies, Project Hail Mary
+
+Sat, 21 Mar 2026 20:15:14 GMT
+
+https://www.cbr.com/video/drew-goddard-reveals-how-project-hail-mary-inspires-future-scientists/
+
+Project Hail Mary’s secret weapon is its music, and Drew Goddard explains why.From emotional needle drops to Rocky’s unforgettable presence, this movie hits on a different level.
+---------
+
+# Chuck Norris' Walker, Texas Ranger Surges on PVOD Charts
+
+TV, Walker, Texas Ranger
+
+Sat, 21 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/walker-texas-ranger-chuck-norris-pvod-march-2026/
+
+Fans are visiting the iconic show following the passing of Chuck Norris.
+---------
+
+# 10 Iconic Directors' Masterpieces That Nobody Remembers Today
+
+Movies, steven spielberg, Action, Drama
+
+Sat, 21 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/10-iconic-directors-masterpieces-nobody-remembers-list/
+
+Despite being directed by iconic filmmakers, these masterpiece movies have been forgotten by most fans.
+---------
+
+# Denis Villeneuve's 4-Year-Old Sci-Fi Franchise Pulls Off Major Genre Shift
+
+Movies, Dune: Part Three
+
+Sat, 21 Mar 2026 19:33:44 GMT
+
+https://www.cbr.com/dune-part-three-genre-shift/
+
+The trailer for Denis Villeneuve's Dune: Part Three has arrived, and the director teases a major change.
+---------
+
+# Chris Evans’ Snowpiercer Is Dominating Free Streaming Charts 13 Years Later
+
+Movies, Snowpiercer
+
+Sat, 21 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/chris-evans-snowpiercer-sci-fi-pluto-tv-success-march-2026/
+
+One of the most underrated sci-fi thrillers of Chris Evans' entire career is lighting up the charts on a similarly underrated streaming platform.
+---------
+
+# Dune: Part Three: Every Character’s Age After the 17-Year Time Jump
+
+Movies, Dune: Part Three, Sci-Fi, Dune
+
+Sat, 21 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/dune-part-three-character-ages-after-time-jump-list-sci-fi/
+
+Dune: Part Three takes place seventeen years after the events of the last movie, giving each character more than a decade to mature and grow.
+---------
+
+# The Walking Dead Pilot Is Still an Absolute TV Masterpiece
+
+TV, The Walking Dead, Horror
+
+Sat, 21 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/the-walking-dead-andrew-lincoln-favorite-episode-pilot/
+
+Andrew Lincoln, star of The Walking Dead, revealed his favorite episode of the series, and it still holds up to this day.
+---------
+
+# Netflix’s 2-Part True Crime Satire Is Still the Streamer’s Greatest Comedy Ever
+
+TV Features, American Vandal, Netflix, Jimmy Tatro, Netflix Original Series
+
+Sat, 21 Mar 2026 20:14:12 GMT
+
+https://collider.com/netflix-best-comedy-series-true-crime-american-vandal/
+
+It may have only lasted two seasons, but the true crime-inspired American Vandal is among Netflix's very best originals.
+---------
+
+# 20 Years Ago, This 9-Part Sitcom Aired a Ridiculous Prank That No One Noticed
+
+TV Features, Patton Oswalt, The King of Queens, Sitcom, Comedy
+
+Sat, 21 Mar 2026 20:13:12 GMT
+
+https://collider.com/king-of-queens-patton-oswalt-prank-aired-on-tv/
+
+In The King of Queens episode "Emotional Rollercoaster," Patton Oswalt stood completely still in a scene on a dare from the writers.
+---------
+
+# 3 Classic Rock Songs That Almost Went to Other Artists Before Becoming Hits
+
+Music Features, Blondie, Aerosmith, Simple Minds: Everything is Possible, Rock, Music
+
+Sat, 21 Mar 2026 20:12:24 GMT
+
+https://collider.com/aerosmith-blondie-simple-minds-classic-rock-songs-almost-went-to-other-artist/
+
+Blondie, Simple Minds, and Aerosmith nearly saw their biggest songs go to other artists before becoming classic rock hits.
+---------
+
+# 10 Greatest Horror Movies Released Since 'It Follows'
+
+Movie, It Follows, Horror, Hereditary, The Wolf House
+
+Sat, 21 Mar 2026 20:04:13 GMT
+
+https://collider.com/best-horror-movies-since-it-follows/
+
+Hereditary, Sinners, and Train to Busan are all among the very best horror movies released since David Robert Mitchell's landmark It Follows.
+---------
+
+# ‘Gilmore Girls’ Alum Anchors Colleen Hoover’s Highest-Rated Movie Yet
+
+Movie News, Reminders of Him, Colleen Hoover, Lauren Graham, Rotten Tomatoes
+
+Sat, 21 Mar 2026 20:00:12 GMT
+
+https://collider.com/colleen-hoover-lauren-graham-reminders-of-him-rotten-tomatoes-is-it-good/
+
+Colleen Hoover's latest adaptation, Reminders of Him, has earned an important record for the author on Rotten Tomatoes. Find out more here.
+---------
+
+# This 94% RT Sci-Fi Epic Is the Streaming Hit Nobody Predicted
+
+Movie News, War for the Planet of the Apes, Dawn of the Planet of the Apes, HBO Max, Matt Reeves
+
+Sat, 21 Mar 2026 19:40:12 GMT
+
+https://collider.com/war-for-the-planet-of-the-apes-sci-fi-epic-streaming-success-march-2026/
+
+War for the Planet of the Apes, the critically acclaimed third installment in the rebooted franchise, has become a sudden global streaming hit.
+---------
+
+# 10 Greatest Fantasy Movies Released Before The Lord of the Rings
+
+Movie, Fantasy, The Wizard of Oz, Beauty and the Beast
+
+Sat, 21 Mar 2026 19:36:13 GMT
+
+https://collider.com/best-fantasy-movies-released-before-the-lord-of-the-rings/
+
+Animated gems like Beauty and the Beast and classics like The Wizard of Oz are among the best fantasy movies released before The Lord of the Rings.
+---------
+
+# Clint Eastwood's 1992 Best Picture Winner Still Holds Up as an Unforgettable Western
+
+Features, Unforgiven
+
+Sat, 21 Mar 2026 20:01:18 GMT
+
+https://movieweb.com/clint-eastwood-best-picture-winner/
+
+A legend of the screen, Clint Eastwood has no shortage of acclaim, but one Western stands tall above the others.
+---------
+
+# Tyler Perry's 'Beauty in Black' Season 2 Part 2 Is a Streaming Success on Netflix US
+
+TV News, Tyler Perry’s Beauty in Black, Netflix, Hot on Streaming, Tyler Perry
+
+Sat, 21 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/tyler-perry-beauty-in-black-streaming-success-netflix-march-2026/
+
+Tyler Perry fans have swarmed Netflix to stream Season 2 Part 2 of the R-rated crime thriller 'Beauty in Black.'
+---------
+
+# 'Star Trek: Starfleet Academy' Offers the Franchise a Unique Way Forward
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Sat, 21 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/starfleet-academy-perfect-star-trek-future/
+
+With 'Star Trek: Starfleet Academy' planned to end just before the 33rd century, it's the perfect project to carry the beloved space opera.
+---------
+
 # 20 Best Mario Kart 8 Racer & Kart Combinations
 
 Gaming, Mario Kart 8, Mario Kart
