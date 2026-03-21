@@ -1,3 +1,113 @@
+# John Boyega Has Talked Finn's Star Wars Return With Dave Filoni
+
+TV, Star Wars, John Boyega, Dave Filoni
+
+Sat, 21 Mar 2026 23:41:23 GMT
+
+https://screenrant.com/john-boyega-finn-star-wars-return-dave-filoni/
+
+Star Wars actor John Boyega revealed some exciting news regarding his potential return to the popular science fiction franchise at MEGACON.
+---------
+
+# Prime Video's the Wheel Of Time Should've Been A Cautionary Tale For The Rings Of Power
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Wheel of Time
+
+Sat, 21 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/the-wheel-of-time-prime-video-cautionary-tale-rings-of-power/
+
+Rings of Power isn't Prime Video's first divisive fantasy series. It should have been clear from day one what sorts of challenges were ahead.
+---------
+
+# Goku is Objectively Anime's Biggest Fraud, and it's Not Particularly Close
+
+Anime, Dragon Ball
+
+Sat, 21 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/goku-anime-biggest-fraud-loses-fights/
+
+There's no questioning Goku's status as one of the greatest characters in anime; after taking a closer look, however, he might not be so amazing.
+---------
+
+# 10 Most Iconic Magic Users in Anime, Ranked
+
+Anime, Frieren: Beyond Journey's End, Jujutsu Kaisen, Fullmetal Alchemist, Studio Ghibli
+
+Sat, 21 Mar 2026 23:45:12 GMT
+
+https://www.cbr.com/most-iconic-anime-wizards-witches-sorcerers/
+
+Certain magic users in anime have stood out not just because of their powers, but also for the impact they have on fans and fantasy anime itself.
+---------
+
+# 7 Smartest Fantasy Shows Ever Made
+
+TV, Fantasy, Game Of Thrones, Jonathan Strange & Mr. Norrell, The Magicians
+
+Sat, 21 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/smartest-fantasy-shows-ever-list/
+
+Fantasy television can be smarter than it gets credit for, with some shows delivering complex stories, characters and layered worldbuilding.
+---------
+
+# Cowboy Bebop Creator's Latest Anime Series Lands New U.S. TV Run
+
+Anime, Lazarus, toonami
+
+Sat, 21 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/lazarus-anime-toonami-return-2026/
+
+Anime fans in North America receive another chance to experience Shinichiro Watanabe's newest action-packed sci-fi thriller show.
+---------
+
+# 8 Single-Season Thriller TV Masterpieces
+
+TV, Black Bird, The Haunting of Hill House, Dept. Q, Thriller
+
+Sat, 21 Mar 2026 23:42:13 GMT
+
+https://collider.com/best-thriller-tv-shows-one-season-list/
+
+All Her Fault, The Night Of, The Haunting of Hill House, Black Bird, and more make up our list of single-season thriller TV masterpieces.
+---------
+
+# 5 Years Later, Tom Hanks’ Forgotten Sci-Fi Gem Quietly Becomes a Late-Night Favorite
+
+Movie News, Finch, Tom Hanks, Apple TV, Sci-Fi
+
+Sat, 21 Mar 2026 23:40:13 GMT
+
+https://collider.com/tom-hanks-bonkers-sci-fi-movie-finch-streaming-success-apple-tv-march-2026/
+
+The bonkers sci-fi movie you completely forgot Tom Hanks starred in has become the perfect late-night sleeper streaming hit.
+---------
+
+# Eric Dane’s 5-Part Michael Bay Series Charts Its Exit From HBO Max
+
+TV News, The Last Ship, Eric Dane, HBO Max, Michael Bay
+
+Sat, 21 Mar 2026 23:20:13 GMT
+
+https://collider.com/the-last-ship-eric-dane-apocalyptic-series-michael-bay-leaving-streaming-hbo-max-april-2026/
+
+Eric Dane's post-apocalyptic series The Last Ship is sailing away from its current streaming home. Find out when it departs.
+---------
+
+# HBO’s 4-Part Thriller Series Is One of the Best on Any Streaming Platform
+
+TV Features, Industry, David Jonsson, Marisa Abela, Myha'la
+
+Sat, 21 Mar 2026 23:18:12 GMT
+
+https://collider.com/industry-hbo-thriller-best-streaming/
+
+HBO's gripping thriller Industry follows the complex, cutthroat world of finance and serves up plenty of intrigue along the way.
+---------
+
 # Apple TV's 2-Part Sci-Fi Series Has One Of Its Best Casts
 
 Streaming TV, Severance
