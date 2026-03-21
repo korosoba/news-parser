@@ -1,3 +1,135 @@
+# Apple TV's Upcoming Cyberpunk Series Based On The Seminal Sci-Fi Novel Neuromancer Will Save A Dying Genre
+
+Streaming TV, Neuromancer, Apple TV
+
+Sat, 21 Mar 2026 22:45:19 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-series-novel-save-genre/
+
+Apple TV+ is set to adapt the cyberpunk classic 'Neuromancer' by William Gibson. With a strong track record in sci-fi, can the streaming service revive the struggling cyberpunk genre with this highly anticipated adaptation?
+---------
+
+# The Expanse's Marco Inaros: TV's Best Sci-Fi Villain Of The 21st Century
+
+Classic TV, The Expanse
+
+Sat, 21 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/the-expanse-marco-inaros-best-sci-fi-villain/
+
+Prime Video’s perfect sci-fi series has excelled for a number of reasons, and one of them is by including the most diabolical villain in the genre.
+---------
+
+# 10 Greatest '90s Kids Movies Ever Made
+
+Movies, Matilda
+
+Sat, 21 Mar 2026 22:25:20 GMT
+
+https://screenrant.com/10-greatest-90s-kids-movies-ever-made/
+
+The 1990s brought audiences some of the most iconic and innovative kids' movies of all time, producing award-winning classics that hold up today.
+---------
+
+# 10 Spider-Man: Brand New Day Trailer Scenes Taken Straight From Marvel Comics
+
+Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
+
+Sat, 21 Mar 2026 22:21:50 GMT
+
+https://screenrant.com/spiderman-brand-new-day-trailer-scenes-marvel-comics/
+
+Spider-Man: Brand New Day recreates iconic Marvel Comics moments, bringing classic covers and storylines to life in the MCU’s most faithful tribute ye
+---------
+
+# Netflix’s New Fantasy Series Officially Beats Game of Thrones at Its Own Game
+
+Anime, Game Of Thrones, One Piece
+
+Sat, 21 Mar 2026 22:45:12 GMT
+
+https://www.cbr.com/netflix-one-piece-game-of-thrones-best-casting/
+
+Over a half a decade later, Game of Thrones finally has competition as the most well-cast TV adaptation of all time.
+---------
+
+# The Office Star Reveals the Racy Joke NBC Cut: 'I Got Really Mad'
+
+TV, The Office
+
+Sat, 21 Mar 2026 22:33:19 GMT
+
+https://www.cbr.com/the-office-cut-kevin-joke/
+
+The Office editors were concerned that the racy joke was pushing things a bit too far.
+---------
+
+# Kevin Costner's The Gray House Western Series Loses Streaming Steam
+
+TV, The Gray House
+
+Sat, 21 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/kevin-costner-the-gray-house-prime-video-streaming-march-2026/
+
+Kevin Costner's newest Western venture is starting to run of of steam on streaming.
+---------
+
+# 4 Perfect Shows You'll Finish in a Weekend
+
+TV, Freaks and Geeks, Mare of Easttown, WandaVision
+
+Sat, 21 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/perfect-shows-weekend-binge-list/
+
+Some of the best TV shows make for perfect weekend watches
+---------
+
+# 'Severance' Season 3 Could Be Facing a Colossal Change
+
+TV Features, Severance, Kogonada, Ben Stiller, Apple TV
+
+Sat, 21 Mar 2026 22:42:13 GMT
+
+https://collider.com/severance-season-3-apple-tv-ben-stiller-kogonada-director-rumors/
+
+Recent rumors suggest that Severance Season 3 could see Ben Stiller stepping down as director and being replaced by Kogonada.
+---------
+
+# 22 Years Later, Leonardo DiCaprio’s 86% RT Masterpiece Is Cruising Through Free Streaming
+
+Movie News, Leonardo DiCaprio, The Aviator, Tubi, Martin Scorsese
+
+Sat, 21 Mar 2026 22:40:13 GMT
+
+https://collider.com/leonardo-dicaprio-the-aviator-streaming-success-tubi-march-2026/
+
+After losing out on the Best Actor trophy, Leonardo DiCaprio's 22-year-old biopic is a free streaming hit. Read on for more details.
+---------
+
+# 10 Forgotten Sci-Fi Movies That Have Aged Like Fine Wine
+
+Movie, Sci-Fi, Outland, Seconds, Dark Star
+
+Sat, 21 Mar 2026 22:28:13 GMT
+
+https://collider.com/forgotten-sci-fi-movies-aged-like-fine-wine/
+
+Dark Star, Seconds, and Outland are all excellent, sadly overlooked science fiction films that have aged like fine wine.
+---------
+
+# ‘Tulsa King’ Star’s Forgotten Action Thriller Roars Back Onto Free Streaming
+
+Movie News, Tulsa King, Frank Grillo, Black and Blue, Tubi
+
+Sat, 21 Mar 2026 22:20:12 GMT
+
+https://collider.com/tulsa-king-frank-grillo-black-and-blue-streaming-success-tubi-march-2026/
+
+Tulsa King star Frank Grillo's forgotten action thriller is a hit on a free streaming site. Read on for more about the Naomi Harris-led film.
+---------
+
 # Marvel's New Disney Special Runtime Becomes The Longest Episode Yet After 4 Years
 
 TV, The Punisher Special Presentation, Marvel Cinematic Universe, The Punisher
