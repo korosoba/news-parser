@@ -1,3 +1,212 @@
+# Marvel Just Gave Spider-Man’s Darkest Symbiote Showdown A Major Carnage Twist
+
+Comics, Spider-Man, Carnage, Marvel
+
+Sun, 22 Mar 2026 14:15:20 GMT
+
+https://screenrant.com/spider-man-symbiote-showdown-carnage-twist-death-spiral/
+
+The latest chapter of Marvel's Death Spiral reveals a major Carnage twist as the new Spider-Man event closes in on the all-new villain Torment.
+---------
+
+# Justin Hartley Reveals Whether He'd Reprise Green Arrow Role After Smallville Streaming Resurgence On Netflix
+
+TV, Smallville, DC Universe
+
+Sun, 22 Mar 2026 14:15:20 GMT
+
+https://screenrant.com/smallville-justin-hartley-green-arrow-return-netflix-success/
+
+Justin Hartley teases whether he would be game for a potential Smallville return and his hopes for a more experienced Green Arrow.
+---------
+
+# Project Hail Mary Breaks 3 Major Box Office Records As Opening Weekend Total Is Revealed
+
+Movies, Project Hail Mary, Box Office
+
+Sun, 22 Mar 2026 14:14:24 GMT
+
+https://screenrant.com/project-hail-mary-box-office-records-opening-weekend-total/
+
+Project Hail Mary is shooting for the stars, breaking three major box office records during its opening weekend, according to a new report.
+---------
+
+# Why Goku's Worst Moment In Dragon Ball Super Is Secretly Brilliant
+
+Anime, Op-Ed, Dragon Ball, Dragon Ball Super, Dragon Ball Super: The Galactic Patrol
+
+Sun, 22 Mar 2026 14:00:22 GMT
+
+https://screenrant.com/dragon-ball-next-anime-goku-moro-senzu-bean-controversy/
+
+This Goku moment gets way too much hate.
+---------
+
+# Prime Video's New 6-Part Crime Series With 100% Rotten Tomatoes Score Is An Instant Streaming Hit
+
+TV, Deadloch, Prime Video
+
+Sun, 22 Mar 2026 14:00:22 GMT
+
+https://screenrant.com/deadloch-show-prime-video-streaming-success-crime-series/
+
+Prime Video's new arrival is a crime thriller series that is already dominating the US, climbing the charts after recently dropping on the streamer.
+---------
+
+# Adam Scott & Danielle Deadwyler's New Twilight Zone-Like Sci-Fi Movie Is Dividing Critics On Rotten Tomatoes
+
+Movies, The Saviors, Adam Scott, Danielle Deadwyler
+
+Sun, 22 Mar 2026 14:00:22 GMT
+
+https://screenrant.com/the-saviors-sci-fi-movie-rotten-tomatoes-score-debut/
+
+Adam Scott and Danielle Deadwyler star in the new Twilight Zone-like sci-fi thriller The Saviors, which is dividing critics after its SXSW premiere.
+---------
+
+# Hulu Cancels Buffy Reboot, Ending Hopes For Epic Fantasy Showdown With Supernatural
+
+Classic TV, Buffy The Vampire Slayer
+
+Sun, 22 Mar 2026 14:00:22 GMT
+
+https://screenrant.com/hulu-buffy-revival-cancel-fantasy-tv-showdown/
+
+With Hulu's cancellation of an exciting fantasy TV show, it has also canceled all hopes and chances for the biggest fantasy showdown of the century.
+---------
+
+# 5 Classic Pokémon Features That Need A Comeback In Gen 10's Winds & Waves
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sun, 22 Mar 2026 14:00:22 GMT
+
+https://screenrant.com/pokemon-winds-waves-gen-10-features-return/
+
+Even with the new open-world structure and plenty of opportunities, Pokémon Winds and Waves could also thrive with a few blasts into the past.
+---------
+
+# 10 Best Westerns Streaming For Free Right Now
+
+Classic Movies, Western
+
+Sun, 22 Mar 2026 13:45:18 GMT
+
+https://screenrant.com/best-westerns-free-streaming/
+
+You don't have to break the bank to see some of the best westerns ever made, and these 10 classics are streaming for free right now.
+---------
+
+# New Star-Studded Horror Movie Debuts To Impressive Rotten Tomatoes Score
+
+Movies, Forbidden Fruits
+
+Sun, 22 Mar 2026 13:40:57 GMT
+
+https://screenrant.com/forbidden-fruits-lili-reinhart-rotten-tomatoes-score/
+
+Forbidden Fruits is if Mean Girls meets The Craft and had a baby — in the best way, and its Rotten Tomato score proves that the spells are working.
+---------
+
+# Ready or Not 2: Sarah Michelle Gellar & Elijah Wood Talk Blood, Chaos, and Villain Roles
+
+Movies, Ready Or Not 2
+
+Sun, 22 Mar 2026 14:16:41 GMT
+
+https://www.cbr.com/video/ready-or-not-2-sarah-michelle-gellar-elijah-wood-talk-blood-chaos-and-villain-roles/
+
+Ready or Not 2 is bloodier, darker, and wilder than ever. Sarah Michelle Gellar and Elijah Wood break down what it’s really like stepping into this chaotic sequel.From sticky, over-the-top blood effects to Gellar’s unforgettable hotel room story, the cast dives into the messy reality behind the horror. Elijah Wood explains his eerie “devil’s lawyer” role, while both stars reflect on why playing villains in Ready or Not 2 is just more fun. Plus, they pitch new deadly games that could fuel the franchise’s future.
+---------
+
+# Ready or Not 2: Samara Weaving and Kathryn Newton on Fake Blood and Fighting Like Sisters
+
+Movies, Ready Or Not 2
+
+Sun, 22 Mar 2026 14:16:41 GMT
+
+https://www.cbr.com/video/ready-or-not-2-samara-weaving-and-kathryn-newton-on-fake-blood-and-fighting-like-sisters/
+
+Ready or Not 2 stars Samara Weaving and Kathryn Newton get real about blood, bickering, and surviving horror chaos.The Ready or Not 2 sister dynamic might be one of the sequel’s most fun twists.
+---------
+
+# Tom Hanks Fans Grow Restless as His 33-Year-Old Rom-Com Preps Streaming Departure on March 31
+
+Movie News, Meg Ryan, Tom Hanks, Nora Ephron, Sleepless In Seattle
+
+Sun, 22 Mar 2026 14:21:14 GMT
+
+https://collider.com/tom-hanks-sleepless-in-seattle-iconic-romantic-comedy-leaving-streaming-prime-video-march-2026/
+
+Sleepless in Seattle, the iconic rom-com starring Tom Hanks and Meg Ryan, will be leaving streaming vary soon. Read on for more details.
+---------
+
+# All 5 Movies Directed by Phil Lord and Christopher Miller, Ranked
+
+Movie, Project Hail Mary, The Lego Movie, 21 Jump Street, Cloudy with a Chance of Meatballs
+
+Sun, 22 Mar 2026 14:09:41 GMT
+
+https://collider.com/phil-lord-and-christopher-miller-movies-ranked/
+
+Phil Lord and Christopher Miller have directed five movies to date, including 21 Jump Street and Project Hail Mary, but which one's the best overall?
+---------
+
+# Hulu’s 10/10 Sci-Fi Secret Weapon Is the Perfect ‘Last of Us’ Competitor
+
+TV News, Paradise, Hulu, Sci-Fi, The Last of Us
+
+Sun, 22 Mar 2026 14:00:18 GMT
+
+https://collider.com/hulu-sci-fi-secret-weapon-paradise-last-of-us-competitor-streaming-success-march-2026/
+
+Hulu's 10/10 sci-fi secret weapon, Paradise, has emerged as the streamer's perfect competitor to The Last of Us. Here's what you should know.
+---------
+
+# 10 Years Later, Chris Pratt’s Most Controversial Sci-Fi Movie From ‘Dune’ Scribe Springs Surprise Attack on Streaming
+
+Movie News, Passengers, Chris Pratt, Jennifer Lawrence, Sci-Fi
+
+Sun, 22 Mar 2026 13:51:58 GMT
+
+https://collider.com/chris-pratt-controversial-sci-fi-movie-passengers-streaming-success-march-2026/
+
+10 years later, Chris Pratt's most controversial sci-fi movie from Dune writer Jon Spaihts is proving to be a perfect weekend watch.
+---------
+
+# Say Goodbye to This 90% RT Time-Travel Cult Favorite on HBO Max
+
+Movie News, Timecrimes, Thriller, Nacho Vigalondo, HBO Max
+
+Sun, 22 Mar 2026 13:40:12 GMT
+
+https://collider.com/timecrimes-los-cronocrimenes-greatest-time-travel-movie-leaving-streaming-hbo-max-april-2026/
+
+The coolest time travel movie you'll ever see, Timecrimes, is leaving HBO Max soon. Find out how much longer you have to watch it.
+---------
+
+# 'Excalibur': '80s Liam Neeson Fantasy Movie Was Nearly the First Lord of the Rings
+
+Features, Excalibur, The Lord of the Rings, Liam Neeson
+
+Sun, 22 Mar 2026 14:01:19 GMT
+
+https://movieweb.com/liam-neesons-excalibur-lord-of-the-rings/
+
+Liam Neeson's third feature film, 'Excalibur', stemmed from a failed 'Lord of the Rings' project. Here's what we know.
+---------
+
+# 'Buffy' Stars Pay Tribute to Nicholas Brendon After Star's Tragic Death
+
+TV News, Buffy The Vampire Slayer
+
+Sun, 22 Mar 2026 13:49:28 GMT
+
+https://movieweb.com/buffy-stars-nicholas-brendon-death/
+
+Following the news of Nicholas Brendon's passing, his 'Buffy' and 'Criminal Minds' co-stars honored his memory through social media tributes.
+---------
+
 # Only One Anime Franchise Can Dethrone Demon Slayer at the Box Office, and It's 2026's Biggest Series
 
 Anime, Demon Slayer, Jujutsu Kaisen
