@@ -1,3 +1,223 @@
+# Chainsaw Man's Final Chapter Release Date and Time
+
+Anime, Chainsaw Man
+
+Sun, 22 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/chainsaw-man-chapter-232-last-release-date-time/
+
+Discover the release date and time for the highly anticipated final chapter of Chainsaw Man, the popular manga series by Tatsuki Fujimoto.
+---------
+
+# Disney's 2-Part Sci-Fi Series Was So Good, It United A Split Fandom
+
+Classic TV, Andor
+
+Sun, 22 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/disney-andor-unite-star-wars-fandom/
+
+After the Star Wars fandom was split by The Mandalorian, Andor brought Star Wars fans back together with the best instalment in the saga to date.
+---------
+
+# Pokémon Polished Crystal Is The Perfect Johto Experience
+
+Gaming, Pokemon
+
+Sun, 22 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/pokemon-polished-crystal-johto-rom-hack/
+
+Pokemon Polished Crystal is a ROM hack of the original Pokemon Crystal that makes some subtle tangible changes to the legendary title.
+---------
+
+# Marvel's Lowest Ever Movie Box Office Hero Is Set To Return To The MCU In 4 Months
+
+Movies, The Punisher
+
+Sun, 22 Mar 2026 18:55:18 GMT
+
+https://screenrant.com/marvel-hero-box-office-punisher-mcu-return/
+
+Despite his recent success in Marvel television, The Punisher hasn't always been successful in live action.
+---------
+
+# Jamie Lee Curtis Wouldn't Have Done Blumhouse's Halloween Trilogy If She Knew The Real Plan
+
+Movies, Halloween
+
+Sun, 22 Mar 2026 18:47:46 GMT
+
+https://screenrant.com/halloween-blumhouse-trilogy-plan-jamie-lee-curtis/
+
+After returning for Blumhouse's Halloween reboot trilogy, Jamie Lee Curtis now reveals that she wouldn't have come back if she knew the whole plan.
+---------
+
+# From Season 3 Ending Explained: Jim's Fate & How Tabitha Is Really Connected To Miranda
+
+Streaming TV, From
+
+Sun, 22 Mar 2026 18:45:20 GMT
+
+https://screenrant.com/from-season-3-ending-explained/
+
+From season 3 delivers a game-changing finale that answers many of the series' burning questions while creating new mysteries as well.
+---------
+
+# Project Hail Mary Directors Confirm Whether Neil DeGrasse Tyson Approved The Movie's Science Accuracy
+
+Movies, Project Hail Mary
+
+Sun, 22 Mar 2026 18:40:24 GMT
+
+https://screenrant.com/project-hail-mary-neil-degrasse-tyson-science-approval-christopher-miller-phil-lord/
+
+Project Hail Mary's directors and actor Ryan Gosling reveal whether their movie met the high standards set by astrophysicist Neil deGrasse Tyson.
+---------
+
+# Prime Video's 8-Part The Boys Series With Jason Isaacs & Don Cheadle Is So Underrated
+
+Classic TV, The Boys Presents: Diabolical, The Boys
+
+Sun, 22 Mar 2026 18:36:06 GMT
+
+https://screenrant.com/the-boys-diabolical-underrated-prime-video-series/
+
+With a lineup of A-listers in the cast, it is genuinely amazing that this forgotten spinoff of The Boys continues to slip through the cracks.
+---------
+
+# Deadloch Season 2: Prime Video's Australian Crime Comedy Earns Perfect Rotten Tomatoes Score
+
+Streaming TV, Deadloch
+
+Sun, 22 Mar 2026 18:27:50 GMT
+
+https://screenrant.com/deadloch-season-2-prime-video-rotten-tomatoes-score/
+
+Deadloch, the Australian crime comedy series from Prime Video, impresses critics with a perfect 100% Rotten Tomatoes score for its second season.
+---------
+
+# Hulu Sets Streaming Premiere Date for Horror Movie Good Boy
+
+Movies, Hulu, Good Boy
+
+Sun, 22 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/good-boy-hulu-streaming-release-date/
+
+Hulu subscribers will finally be able to check out the acclaimed horror movie in April.
+---------
+
+# Spider-Man's The Other is a Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, Spider-Man: Brand New Day, Spider-Man
+
+Sun, 22 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/spiderman-brand-new-day-the-other-comic-you-should-be-reading/
+
+Writers Peter David, Reginald Hudlin and J. Michael Straczynski's character-altering event could become very important to MCU fans in the near future.
+---------
+
+# PlayStation Plus Is Losing 2 Amazing Games Forever in April 2026
+
+Games, PlayStation (Original)
+
+Sun, 22 Mar 2026 18:35:56 GMT
+
+https://www.cbr.com/playstation-plus-games-leaving-april-2026/
+
+Time is running out to play two of the best games currently available on PlayStation Plus.
+---------
+
+# Idris Elba's Apple TV Thriller Hijack Soars in Streaming Popularity
+
+TV, Hijack, Thriller, Apple TV
+
+Sun, 22 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/idris-elba-hijack-thriller-apple-tv-success-march-2026/
+
+Idris Elba's Apple TV series Hijack continues to be a global hit, ranking No. 4 worldwide and holding a Top 10 spot in the US for nearly 200 days.
+---------
+
+# The Mandalorian & Grogu: Din Djarin’s Face Reveal Isn’t a Canon Mistake
+
+Movies, The Mandalorian and Grogu
+
+Sun, 22 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/the-mandalorian-grogu-din-djarin-face-reveal-lore-accurate/
+
+The Mandalorian and Grogu's trailer already had fans discussing a canon-breaking moment, but The Mandalorian Season 3 already solved the problem.
+---------
+
+# 40 Years Later, Star Trek's Greatest Data Episode Remains an Untouchable Sci-Fi Gem
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sun, 22 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/star-trek-greatest-data-episode-the-measure-of-a-man/
+
+Data is one of the most beloved characters from Star Trek: The Next Generation, and his early defining episode is no less powerful decades later.
+---------
+
+# HBO’s Stellar 3-Part Fantasy Series Is a TV Win That Keeps Getting Better
+
+TV Features, Primal, Genndy Tartakovsky, Adult Swim, HBO Max
+
+Sun, 22 Mar 2026 19:00:13 GMT
+
+https://collider.com/primal-fantasy-series-hbo-streaming-success/
+
+Genndy Tartakovsky’s Primal is surging on HBO as new audiences discover the bold animated fantasy series.
+---------
+
+# Idris Elba’s 93-Minute Survival Thriller Unleashes Beast Mode on Streaming
+
+Movie News, Beast, Idris Elba, Netflix, Sharlto Copley
+
+Sun, 22 Mar 2026 19:00:13 GMT
+
+https://collider.com/idris-elba-beast-forgotten-survival-thriller-streaming-netflix-april-2026/
+
+Idris Elba's forgotten 93-minute survival thriller Beast is being unleashed on a new streaming platform. Here's everything you should know.
+---------
+
+# This 8-Part Fantasy Phenomenon Is Taking Over Streaming
+
+TV News, Outlander, Romance, STARZ, Drama
+
+Sun, 22 Mar 2026 18:40:13 GMT
+
+https://collider.com/outlander-fantasy-series-streaming-success-starz-march-2026/
+
+The epic romance series Outlander is back, breaking four-year viewership records with nearly three million multi-platform viewers in its first week.
+---------
+
+# Sylvester Stallone's Crime Thriller 'Tulsa King' Still Topping Streaming Charts
+
+Features, Sylvester Stallone, Tulsa King
+
+Sun, 22 Mar 2026 18:45:18 GMT
+
+https://movieweb.com/sylvester-stallone-crime-thriller-tulsa-king-streaming-giant/
+
+Why is Sylvester Stallone's 'Tulsa King' still topping streaming charts, four months after the third season ended?
+---------
+
+# 'Saturday Night Live UK' Slammed By Critics After First Episode
+
+TV News, Saturday Night Live
+
+Sun, 22 Mar 2026 18:41:53 GMT
+
+https://movieweb.com/snl-uk-slammed-critics-first-episode/
+
+A 'Saturday Night Live' spin-off set in the United Kingdom began airing, much to the chagrin of many fans who watched the first episode.
+---------
+
 # Blumhouse's New Critically Acclaimed Horror Movie Was Slapped With An NC-17 Rating For One Gory Scene
 
 Movies, Obsession, Blumhouse
