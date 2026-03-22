@@ -1,3 +1,124 @@
+# 9 Years Ago, Ryan Gosling’s Cyberpunk Masterpiece Quietly Paved The Way For The Dune Trilogy
+
+Movies, Ryan Gosling, Dune, Blade Runner 2049
+
+Sun, 22 Mar 2026 22:42:19 GMT
+
+https://screenrant.com/ryan-gosling-blade-runner-2049-cyberpunk-dune-trilogy/
+
+Ryan Gosling's 2017 sci-fi noir Blade Runner 2049 quietly paved the way for the modern Dune trilogy, establishing director Denis Villeneuve's vision.
+---------
+
+# The Best Cyberpunk Series Of All Time Is About To Be Dethroned
+
+Streaming TV, Cyberpunk: Edgerunners, Neuromancer, Sci-Fi
+
+Sun, 22 Mar 2026 22:30:18 GMT
+
+https://screenrant.com/best-cyberpunk-tv-show-dethroned-soon/
+
+An animated Netflix show has come to define cyberpunk on TV, but an ambitious live-action literary adaptation is poised to take its crown.
+---------
+
+# The 1990s' Most Ambitious Comics Universe Still Hasn't Been Topped 30 Years Later
+
+DC Comics, Marvel
+
+Sun, 22 Mar 2026 22:30:18 GMT
+
+https://screenrant.com/amalgam-universe-marvel-dc-crossover-ambitious/
+
+In 1996, the impossible became possible.
+---------
+
+# 10 Horror Movie Oscar Wins That Are Indisputable
+
+Classic Movies, Oscars
+
+Sun, 22 Mar 2026 22:25:18 GMT
+
+https://screenrant.com/oscars-horror-movie-wins-indisputable/
+
+The Academy Awards haven't been too kind to the horror genre over the years, but these rare Oscar wins are as frightening as they are indisputable.
+---------
+
+# Andrew Garfield Shares His Reaction To Spider-Man: Brand New Day Trailer
+
+Movies, Spider-Man: Brand New Day, The Amazing Spider-Man, Marvel Cinematic Universe
+
+Sun, 22 Mar 2026 22:19:00 GMT
+
+https://screenrant.com/spider-man-brand-new-day-andrew-garfield-trailer-reaction/
+
+As Spider-Man: Brand New Day trailer buzz reaches a fever pitch, Andrew Garfield weighs in on Tom Holland's next outing as the titular Wall-Crawler.
+---------
+
+# Jeff Bridges Still Wants a Starman Sequel (And Now Is the Perfect Time)
+
+Movies, jeff bridges, Starman, Sci-Fi
+
+Sun, 22 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/jeff-bridges-starman-sequel/
+
+John Carpenter's Starman is a Jeff Bridges film that ended on a cliffhanger that he still wants to explore, and it totally needs to happen.
+---------
+
+# Stephen King's Controversial X-Files Episode Is Still Worth Revisiting
+
+TV, The X-Files, Stephen King, Sci-Fi
+
+Sun, 22 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/controversial-x-files-episode-stephen-king-worth-revisiting/
+
+While not everyone enjoyed the King of Horror's X-Files episode, it is far from the worst episode of the sci-fi show.
+---------
+
+# Paramount+ Is Removing 'The Batman’ Director’s Viral Sci-Fi Franchise-Starter
+
+Movie News, Paramount Plus, Matt Reeves, Cloverfield, J.J. Abrams
+
+Sun, 22 Mar 2026 22:40:12 GMT
+
+https://collider.com/matt-reeves-found-footage-sci-fi-franchise-starter-cloverfield-leaving-streaming-paramount-plus-april-2026/
+
+Matt Reeves' first blockbuster, the found-footage monster movie Cloverfield, is being removed from its streaming home. Find out more here.
+---------
+
+# This 76% RT Sci-Fi Spinoff Is the Perfect Single-Season Weekend Binge
+
+TV Features, RoboCop, Peter Weller, Tubi
+
+Sun, 22 Mar 2026 22:36:12 GMT
+
+https://collider.com/robocop-the-series-perfect-weekend-binge/
+
+RoboCop: The Series brought the chrome-clad law officer to the small screen, radically overhauling his world in the process.
+---------
+
+# 10 Highest-Grossing Animated Movies of All Time at the U.S. Box Office
+
+Movie, Animation, The Secret Life of Pets, The Lion King, Inside Out 2
+
+Sun, 22 Mar 2026 22:28:12 GMT
+
+https://collider.com/animated-movies-highest-grossing-domestic-box-office/
+
+The Lion King, Inside Out 2, Frozen 2, Shrek 2, and more make up the list of the highest-grossing animated movies at the US box office.
+---------
+
+# ‘Lost’ Creator’s 90-Minute ‘Hunger Games’ Meets ‘Knives Out’ Thriller Is Leaving Peacock
+
+Movie News, The Hunt, Betty Gilpin, Damon Lindelof, Craig Zobel
+
+Sun, 22 Mar 2026 22:21:13 GMT
+
+https://collider.com/hunger-games-meets-knives-out-controversial-thriller-the-hunt-leaving-streaming-peacock-may-2026/
+
+The controversial thriller The Hunt, co-written by Damon Lindelof and directed by Mare of Easttown's Craig Zobel, is leaving its streaming home soon.
+---------
+
 # This 3-Part Dark Fantasy Show From 10 Years Ago Is A Must-Watch For All Horror Fans
 
 Classic TV, Penny Dreadful
