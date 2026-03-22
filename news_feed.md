@@ -1,3 +1,234 @@
+# Only One Anime Franchise Can Dethrone Demon Slayer at the Box Office, and It's 2026's Biggest Series
+
+Anime, Demon Slayer, Jujutsu Kaisen
+
+Sun, 22 Mar 2026 13:31:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-challenge-demon-slayer-box-office/
+
+Demon Slayer set an incredible box office record in 2025, and there's only one franchise out right now that has the potential to beat it.
+---------
+
+# Xbox Game Pass' Latest Free Open-World RPG Is 4 Times Bigger Than Skyrim
+
+Gaming, Xbox Game Pass
+
+Sun, 22 Mar 2026 13:31:20 GMT
+
+https://screenrant.com/xbox-game-pass-free-open-world-bigger-than-skyrim/
+
+Discover the dystopian world of Cyberpunk 2077, now available on Xbox Game Pass. Experience a 4x larger open world than Skyrim.
+---------
+
+# Luther: The Best Non-Sherlock Detective Show On Hulu
+
+Classic TV, Luther
+
+Sun, 22 Mar 2026 13:31:20 GMT
+
+https://screenrant.com/hulu-luther-best-non-sherlock-holmes-detective-series/
+
+Among the many Sherlock Holmes TV adaptations is a great but underrated non-Sherlock detective show that's one of Hulu's best hidden gems.
+---------
+
+# 9 Best Places To Start Reading Incredible Hulk Comics
+
+Comics, Hulk
+
+Sun, 22 Mar 2026 13:15:19 GMT
+
+https://screenrant.com/hulk-comics-start-reading-marvel/
+
+The Incredible Hulk has been smashing his way through the pages of Marvel Comics for more than 60 years, here's the best places to start reading.
+---------
+
+# 7 Best Dystopian Shows Like Station Eleven
+
+Streaming TV, Station Eleven
+
+Sun, 22 Mar 2026 13:00:20 GMT
+
+https://screenrant.com/dystopian-shows-like-station-eleven/
+
+Station Eleven is a one-of-a-kind apocalypse show, but there are some other great series that will likely scratch the same itch for its fans.
+---------
+
+# Xbox Game Pass Gets Outstanding RPG For Free On April 7
+
+Gaming, Xbox Game Pass, Triple-A Games, RPG, Final Fantasy, PC
+
+Sun, 22 Mar 2026 13:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-free-rpg-final-fantasy/
+
+A legendary RPG is joining the Xbox Game Pass catalog for free on April 7, and any fan of the genre will have to make sure they check it out.
+---------
+
+# The Day That Could Decide 28 Years Later 3’s Fate Is Only 2 Weeks Away
+
+Movies, 28 Years Later: The Bone Temple, 28 Years Later
+
+Sun, 22 Mar 2026 12:55:19 GMT
+
+https://screenrant.com/28-years-later-3-bone-temple-streaming-netflix-release-date/
+
+An impending update for the 28 Years Later movie series is set to help decide the fate of 28 Years Later 3 and the wider franchise overall.
+---------
+
+# Why Ryland Grace's Hero's Journey Twist In Project Hail Mary Ending Is Significant Explained By Author Andy Weir
+
+Movies, Project Hail Mary
+
+Sun, 22 Mar 2026 12:39:41 GMT
+
+https://screenrant.com/project-hail-mary-movie-ending-ryland-grace-heros-journey-twist-explained-andy-weir/
+
+Ryan Gosling's a hero in Project Hail Mary, but the twist ending has now been explained by author Andy Weir and the complete "hero's journey."
+---------
+
+# Before Anya Taylor-Joy Joins The Lord of the Rings, The Northman Is a Must-Watch
+
+Movies, The Northman, The Lord of the Rings, Fantasy
+
+Sun, 22 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/anya-taylor-the-northman-must-watch-before-new-the-lord-of-the-rings-movie/
+
+With rumors of Anya Taylor-Joy soon coming to the world of Middle-Earth, her 2022 R-rated Viking epic is required viewing for fantasy fans.
+---------
+
+# 5 Action TV Heroes Stronger Than Reacher
+
+TV, Reacher, Action
+
+Sun, 22 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/action-tv-heroes-stronger-than-reacher-list/
+
+Alan Ritchson's Jack Reacher may be one of the strongest TV heroes of all time, but even he couldn't beat these icons of action.
+---------
+
+# 22 Years Later, The Successor to Inuyasha is Finally Here
+
+Anime, Manga
+
+Sun, 22 Mar 2026 13:15:12 GMT
+
+https://www.cbr.com/supernatural-manga-mao-anime-adaptation-sunrise/
+
+22 years since the end of Inuyasha, the iconic anime's creator has a brand-new series coming out in 2026.
+---------
+
+# Tom Cruise's $599M Flop Continues to Dominate the Global Charts 4 Months After Release
+
+Movies, Mission: Impossible - The Final Reckoning, Mission: Impossible, tom cruise
+
+Sun, 22 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/tom-cruise-mi-final-reckoning-paramount-global-streaming-success-mar-2026/
+
+It's one of the most expensive films ever made, but not even Tom Cruise's star power could make it a box office success.
+---------
+
+# Hello Kitty and Friends PEEPS Collection Launches at Walmart
+
+Anime, Hello Kitty, sanrio, merchandise
+
+Sun, 22 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/hello-kitty-easter-peeps-collaboration-walmart/
+
+Hello Kitty fans can get ready for the Easter holiday season courtesy of another crossover with one of the most beloved brands.
+---------
+
+# Every Star Wars Hallway Fight Scene, Ranked
+
+Movie, Star Wars, Rogue One: A Star Wars Story, Andor, Star Wars: Episode IV - A New Hope
+
+Sun, 22 Mar 2026 13:31:13 GMT
+
+https://collider.com/star-wars-hallway-fight-scenes-ranked/
+
+The Star Wars franchise has seen numerous memorable hallway fights across movies and TV, including brawls in Rogue One: A Star Wars Story and Andor.
+---------
+
+# Alan Ritchson's Sci-Fi Hit Loses Netflix Rank to 'Breaking Bad' Icon's 2025 Action Sequel
+
+Movie News, Alan Ritchson, Breaking Bad, Nobody 2, War Machine
+
+Sun, 22 Mar 2026 13:20:12 GMT
+
+https://collider.com/alan-ritchson-sci-fi-war-machine-overtaken-by-nobody-2-streaming-success-netflix-march-2026/
+
+Alan Ritchson's Predator replacement, War Machine, has been topped on the Netflix charts by an unlikely 2025 sequel.
+---------
+
+# Ryan Gosling’s First Time in Space Is Also One of His Most Underappreciated Roles
+
+Movie Features, First Man, Project Hail Mary, Ryan Gosling, Damien Chazelle
+
+Sun, 22 Mar 2026 13:12:13 GMT
+
+https://collider.com/ryan-gosling-first-man-damien-chazelle/
+
+8 years before he went to space in Project Hail Mary, Ryan Gosling played Neil Armstrong in Damien Chazelle’s First Man.
+---------
+
+# 1 Year Ahead of the Sequel, Jason Statham’s Action Thriller Is Making a Killer Streaming Comeback
+
+Movie News, The Beekeeper, Jason Statham, Peacock, David Ayer
+
+Sun, 22 Mar 2026 13:00:13 GMT
+
+https://collider.com/jason-statham-hard-action-thriller-the-beekeeper-streaming-success-peacock-march-2026/
+
+Jason Statham's hard action thriller, The Beekeeper, is trending in the right direction on streaming before its sequel premieres.
+---------
+
+# 10 Western Movies Absolutely Anyone Can Enjoy
+
+Movie, Western, Butch Cassidy and the Sundance Kid, Stagecoach, The Good, the Bad and the Ugly
+
+Sun, 22 Mar 2026 12:45:12 GMT
+
+https://collider.com/western-movies-for-everyone/
+
+From Stagecoach to Butch Cassidy and the Sundance Kid to True Grit, these are Western movies anyone can enjoy.
+---------
+
+# This 10/10 'Office' Quote Was Completely Improvised by Steve Carell
+
+TV Features, The Office, Steve Carell, NBC, Comedy
+
+Sun, 22 Mar 2026 12:41:12 GMT
+
+https://collider.com/best-office-quote-michael-scott-negotiation-episode-steve-carell/
+
+The Office Season 3 episode "The Negotiation" features a line from Steve Carell that he completely made up when speaking to Craig Robinson.
+---------
+
+# 'Born Again' Showrunner Explains Daredevil & Kingpin's Rivalry in Season 2
+
+TV News, Daredevil: Born Again, Disney+, MCU
+
+Sun, 22 Mar 2026 13:22:50 GMT
+
+https://movieweb.com/daredevil-born-again-matt-murdock-kingpins-rivalry/
+
+Showrunner Dario Scardapane and executive producer Sana Amanat explain the relationship between Matt Murdock and Wilson Fisk.
+---------
+
+# Quentin Tarantino & Sylvester Stallone Team Up for 1930s Gangster Series
+
+TV News, Quentin Tarantino, Sylvester Stallone
+
+Sun, 22 Mar 2026 12:57:45 GMT
+
+https://movieweb.com/quentin-tarantino-sylvester-stallone-1930s-gangster/
+
+The duo are reportedly developing a six-part limited series, set to be filmed in black and white on era-appropriate equpment.
+---------
+
 # After 30 Years, It's Time to Admit That 1996's Two Best Comedies Are Still Underrated Cult Classics
 
 Movies, Kids in the Hall: Brain Candy, Mystery Science Theater 3000
