@@ -1,3 +1,146 @@
+# 26 Fastest Pokémon, Ranked
+
+Lists, Pokemon
+
+Sun, 22 Mar 2026 20:31:21 GMT
+
+https://screenrant.com/fastest-pokemon-ranked/
+
+Speed is the name of the game in the Pokémon world, and these Pokes can move faster than the blink of an eye.
+---------
+
+# Doctor Doom's MCU Plan Would Improve If He Repeated His 1987 Villain Plan
+
+Marvel Comics, Doctor Doom, The Avengers, Marvel
+
+Sun, 22 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/purple-man-doctor-doom-beating-avengers-doomsday/
+
+Doctor Doom could conquer the MCU multiverse with a single power that could replace the Beyonders and Molecule Man in Avengers: Doomsday.
+---------
+
+# Battlestar Galactica Rewrote Its Main Villain & Became A Sci-Fi Classic
+
+Streaming TV, Battlestar Galactica
+
+Sun, 22 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/battlestar-galactica-rewrite-main-villain-baltar/
+
+The Battlestar Galactica reboot made a bold choice by drastically rewriting the iconic villain from the original TV show, and it paid off.
+---------
+
+# Anime Coming to Netflix in April 2026: Dorohedoro, One Piece & More
+
+Anime, Dorohedoro, Netflix, One Piece
+
+Sun, 22 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/netflix-anime-streaming-april-2026/
+
+Netflix's April line-up is stacked full of great anime, including several surprises for One Piece fans.
+---------
+
+# Tom Holland's 6 MCU Spider-Man Appearances To Date, Ranked
+
+Movies, Marvel Cinematic Universe, Spider-Man
+
+Sun, 22 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/spider-man-tom-holland-mcu-appearances-ranked-list/
+
+Tom Holland's Spider-Man has come a long way since he was introduced in Captain America: Civil War, but which MCU appearance was his best?
+---------
+
+# 'Kill Me' Review: Charlie Day and Allison Williams Charm in This Murder Mystery With a Twist
+
+Movie Reviews, Kill Me, Charlie Day, Allison Williams, Giancarlo Esposito
+
+Sun, 22 Mar 2026 20:49:42 GMT
+
+https://collider.com/kill-me-review-charlie-day-allison-williams/
+
+Kill Me is a twisty mystery about a murder attempt that might not have happened with lovely performances by Charlie Day and Allison Williams.
+---------
+
+# 10 Sci-Fi Miniseries That Can Be Called Masterpieces, Ranked
+
+TV, TV Miniseries, The Lost Room, Dune, V
+
+Sun, 22 Mar 2026 20:49:12 GMT
+
+https://collider.com/best-sci-fi-miniseries-masterpieces-ranked/
+
+Sci-fi TV at its peak, standout series like Watchmen and Station Eleven delivered bold ideas, emotional depth, and unforgettable worlds.
+---------
+
+# 24 Years Ago, Bruce Campell Starred in This Strange Supernatural Thriller as a Music Legend
+
+Movie Features, Bruce Campbell, Horror, Bubba Ho-Tep, Elvis Presley
+
+Sun, 22 Mar 2026 20:47:12 GMT
+
+https://collider.com/bruce-campbell-bubba-ho-tep-elvis-presley/
+
+Bruce Campbell played Elvis and gave one of his best performances in the supernatural thriller, Bubba Ho-Tep.
+---------
+
+# Steven Spielberg Fans Have Until March 31 To Watch His 35-Year-Old Fantasy Classic
+
+Movie News, Robin Williams, Steven Spielberg, Hook, Dustin Hoffman
+
+Sun, 22 Mar 2026 20:40:12 GMT
+
+https://collider.com/steven-spielberg-fantasy-peter-pan-hook-leaving-streaming-prime-video-march-2026/
+
+Hook, Steven Spielberg’s fantasy adventure starring Robin Williams and Dustin Hoffman, leaves Prime soon. Find out how long you have to fly!
+---------
+
+# 10 Romantic Masterpieces With Great Performances
+
+Movie, Romance, Casablanca, In the Mood For Love, Before Sunset
+
+Sun, 22 Mar 2026 20:33:12 GMT
+
+https://collider.com/romantic-masterpieces-great-performances/
+
+Before Sunset, In the Mood for Love, and Mississippi Masala are great romantic movies that benefit from great acting.
+---------
+
+# 10 Very Bad Movies From the Past Decade That Starred Good Actors
+
+Movie, Megalopolis, Argylle, Cats, Thor: Love and Thunder
+
+Sun, 22 Mar 2026 20:27:12 GMT
+
+https://collider.com/bad-movies-starring-good-actors-past-decade/
+
+Recent movies like Thor: Love and Thunder, Argylle, and The Snowman all starred various good actors, but each one's quality overall was anything but.
+---------
+
+# In 9 Days, Paramount+ Loses a 166-Minute Fantasy Epic That Redefined Visual Effects
+
+Movie News, The Curious Case of Benjamin Button, David Fincher, Brad Pitt, Cate Blanchett
+
+Sun, 22 Mar 2026 20:20:12 GMT
+
+https://collider.com/brad-pitt-epic-drama-curious-case-of-benjamin-button-landmark-vfx-leaving-streaming-paramount-plus-april-2026/
+
+David Fincher's landmark VFX-pushing fantasy, The Curious Case of Benjamin Button, is leaving its streaming home. Find out when.
+---------
+
+# Trump Shares 'SNL UK' sketch mocking British PM (and himself)
+
+TV News, Saturday Night Live, Donald Trump, Comedy
+
+Sun, 22 Mar 2026 20:30:28 GMT
+
+https://movieweb.com/trump-shares-snl-mocking-british-pm/
+
+Trump has regularly put down the American version of SNL, despite hosting multiple times.
+---------
+
 # The Forsytes: New PBS Masterpiece Series Debuts In US To Positive Reviews
 
 TV, The Forsytes
