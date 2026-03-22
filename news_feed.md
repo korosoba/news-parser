@@ -1,3 +1,113 @@
+# Only One Straw Hat Hasn't Been Introduced In Netflix's Live-Action One Piece
+
+Streaming TV, One Piece
+
+Sun, 22 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/one-piece-live-action-only-straw-hat-not-mentioned/
+
+The Straw Hat Pirates of Netflix’s live-action One Piece will only continue to grow in number, yet only one new member remains to be introduced.
+---------
+
+# Nightwing's Most Exciting Era of All Time Is Just Around the Corner
+
+DC Comics, Nightwing
+
+Sun, 22 Mar 2026 23:30:18 GMT
+
+https://screenrant.com/nightwing-new-era-urban-legends/
+
+Blüdhaven's hero is about to get creepy with it.
+---------
+
+# Showrunner Confirms Fallout Season 3 Will Finally Introduce Long-Awaited Game Elements
+
+TV, Fallout
+
+Sun, 22 Mar 2026 23:26:37 GMT
+
+https://screenrant.com/fallout-season-3-introduce-game-elements/
+
+Fallout season 3's showrunner, Geneva Robertson-Dworet, revealed that the upcoming chapter will feature many iconic elements from the games.
+---------
+
+# 2026 DC/Marvel TV Tournament - Round Two, Day Two!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Sun, 22 Mar 2026 23:48:49 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-round-two-day-two/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. Round two continues!
+---------
+
+# 10 Must-Watch Fantasy Anime That Have Zero Bad Arcs
+
+Anime, Frieren: Beyond Journey's End, Chainsaw Man, Jujutsu Kaisen, Attack On Titan
+
+Sun, 22 Mar 2026 23:45:12 GMT
+
+https://www.cbr.com/must-watch-fantasy-anime-zero-bad-arcs/
+
+The best fantasy anime series whisk fans away to take part in spectacular adventures, never being boring, unimaginative, or tedious.
+---------
+
+# Marvel's New Disney+ Special Officially Breaks MCU Record
+
+TV, Marvel's The Punisher, The Punisher Special Presentation, Marvel Cinematic Universe
+
+Sun, 22 Mar 2026 23:37:56 GMT
+
+https://www.cbr.com/marvel-the-punisher-disney-plus-special-runtime/
+
+The Punisher's special presentation in the works at Disney+ gets an exciting update.
+---------
+
+# Bradley Cooper's New 87% Comedy Drama Becomes an Instant Streaming Hit on Hulu After Flopping in Theaters
+
+Movies, Drama, Comedy, Is This Thing On?
+
+Sun, 22 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/bradley-cooper-comedy-drama-is-this-thing-on-streaming-success-hulu-march-2026/
+
+Bradley Cooper's box office flop is suddenly a film streaming audiences can't get enough of.
+---------
+
+# Persona Partners With Seiko to Release New 30th Anniversary Watch
+
+Anime, Persona 3 Reload, Persona, merchandise
+
+Sun, 22 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/personas-new-seiko-watch-for-30th-anniversary-goes-international/
+
+One of the best games in the Persona series' 30th anniversary automatic timepiece is finally available for fans around the world.
+---------
+
+# HBO's Funniest, Darkest Sitcom Is a 10/10 Binge Before It Returns for Season 3
+
+TV Features, The Comeback, Lisa Kudrow, Damian Young, HBO
+
+Sun, 22 Mar 2026 23:43:12 GMT
+
+https://collider.com/the-comeback-hbo-funniest-darkest-sitcom-binge-before-season-3/
+
+HBO's The Comeback is a must-watch meta-comedy that brilliantly exposes Hollywood's harsh realities through Lisa Kudrow's exceptional performance.
+---------
+
+# 'Project Hail Mary' is Getting a Follow-up From the Same Creative Team
+
+Features, Project Hail Mary, Artemis, Upcoming Tease
+
+Sun, 22 Mar 2026 23:30:17 GMT
+
+https://movieweb.com/project-hail-mary-artemis-follow-up/
+
+Following Ryan Gosling's 'Project Hail Mary', another Andy Weir sci-fi novel is being adapted by Phil Lord and Chris Miller
+---------
+
 # 5 Bob Odenkirk Movies You Need To Watch If You're A Better Call Saul Fan
 
 TV, Better Call Saul
