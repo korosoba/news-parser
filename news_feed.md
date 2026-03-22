@@ -1,3 +1,113 @@
+# The Last Of Us, Far Cry Collide In Gorgeous New Open-World FPS
+
+Gaming, Steam
+
+Sun, 22 Mar 2026 15:00:19 GMT
+
+https://screenrant.com/last-of-us-forest-reigns-new-fps/
+
+Explore a reimagined Paris overrun by nature in Forest Reigns, an open-world FPS with RPG elements.
+---------
+
+# The Leftovers: A Pioneering Mystery Box Series That Influenced Modern TV
+
+Classic TV, The Leftovers
+
+Sun, 22 Mar 2026 15:00:19 GMT
+
+https://screenrant.com/the-leftovers-hbo-mystery-show-influence-genre/
+
+One of HBO's most critically acclaimed shows is also one of its weirdest, and it's been influencing the mystery genre ever since its 2014 premiere.
+---------
+
+# 10 High Concept Anime That Get Better With Every Rewatch
+
+Anime, Death Note, Link Click
+
+Sun, 22 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/high-concept-anime-you-need-to-rewatch/
+
+Anime series that focus on truly unique and intriguing high concepts only become more magical with each subsequent rewatch.
+---------
+
+# Harry Potter's Severus Snape Actor Paapa Essiedu Opens Up About Death Threats Amid Casting Controversy
+
+TV, Harry Potter
+
+Sun, 22 Mar 2026 15:13:53 GMT
+
+https://www.cbr.com/harry-potter-severus-snape-paapa-essiedu-death-threats-casting-controversy/
+
+Just a few days after the new Albus Dumbledore admitted to almost quitting the Harry Potter series, the new Severus Snape added his own experience.
+---------
+
+# 10 SNES Games That Were 10/10 But Are Unplayable Today
+
+Games, Nintendo, retro games
+
+Sun, 22 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/throwback-snes-games-good-reviews-aged-badly-list/
+
+Some of the best SNES games were true 10/10s when they launched, but that doesn't mean they've stood the test of time.
+---------
+
+# Zendaya's Sci-Fi Franchise Dune Becomes an Instant Streaming Hit Ahead of Sequel
+
+Movies, Dune, Dune: Part Two
+
+Sun, 22 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/zendaya-dune-franchise-sci-fi-hbo-max-success-march-2026/
+
+One of the hottest feature film franchises of the past decade is taking over the streaming charts ahead of the third and final entry.
+---------
+
+# Forget 'Jurassic Park,' Your Next Favorite Dinosaur Movie Hits Streaming This April
+
+TV News, One Piece, One Piece Film: Red, Netflix
+
+Sun, 22 Mar 2026 15:19:10 GMT
+
+https://collider.com/netflix-the-one-piece-anime-remake-explained-producer-george-wada/
+
+Ahead of the 2027 sequel, the dinosaur war movie Primitive War will roar onto a new streaming home in just 2 weeks.
+---------
+
+# Forget 'Jurassic Park,' Your Next Favorite Dinosaur Movie Hits Streaming This April
+
+Movie News, Primitive War, Jeremy Piven, Sci-Fi, Jurassic Park
+
+Sun, 22 Mar 2026 15:09:11 GMT
+
+https://collider.com/primitive-war-sci-fi-dinosaur-movie-jurassic-park-replacement-streaming-hulu-april-4-2026/
+
+Ahead of the 2027 sequel, the dinosaur war movie Primitive War will roar onto a new streaming home in just 2 weeks.
+---------
+
+# HBO’s 6-Part Fantasy Epic Still Hasn’t Reached Its Peak
+
+TV News, A Knight Of The Seven Kingdoms, HBO Max, George R.R. Martin, House of the Dragon
+
+Sun, 22 Mar 2026 15:01:12 GMT
+
+https://collider.com/hbo-6-part-fantasy-epic-a-knight-of-the-seven-kingdoms-streaming-success-march-2026/
+
+HBO's six-part fantasy epic from George R.R. Martin is hanging around on watchlists much longer than expected. Read on for more details.
+---------
+
+# Jack Reacher’s Greatest Quote Proves He’s the Perfect Anti-Hero
+
+Features, Reacher
+
+Sun, 22 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/jack-reacher-best-quote-anti-hero/
+
+'Reacher' is one of the most popular action thriller series on Amazon Prime Video and stars Alan Ritchson as the main character Jack Reacher.
+---------
+
 # 6 Old-School Marvel Villains Spider-Man Should Fight In Prime Video's Live-Action Show
 
 Superheroes, Spider-Noir
