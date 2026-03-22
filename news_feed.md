@@ -1,3 +1,146 @@
+# 10 Most Rewatchable Movies On Netflix, Ranked By Popularity
+
+Movies, Netflix
+
+Sun, 22 Mar 2026 17:16:19 GMT
+
+https://screenrant.com/netflix-movies-rewatchable-most-ranked/
+
+These popular movies on Netflix can put a stop to subscribers’ scrolling daze; they offer reliable entertainment, viewing-after-viewing.
+---------
+
+# Modulo? Sorry, But This Is The Real Best Manga Sequel Around
+
+Anime, Op-Ed, Zatch Bell!, Jujutsu Kaisen Modulo
+
+Sun, 22 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/zatch-bell-2-best-shonen-manga-sequel/
+
+The manga sequel that beats Jujutsu Kaisen Modulo.
+---------
+
+# Netflix's Superb Post-Apocalyptic Series Is Still Better Than The Last Of Us
+
+Classic TV, Kingdom, The Last of Us
+
+Sun, 22 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/netflix-kingdom-better-the-last-of-us-post-apocalyptic-series/
+
+The relentless tension and unique setting of this Netflix hidden gem make it a more satisfying viewing experience than The Last of Us.
+---------
+
+# Cyberpunk 2077 Officially Returning This Year With Record-Breaking New Game
+
+Gaming, Cyberpunk 2077
+
+Sun, 22 Mar 2026 17:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-new-2026-release-record-breaking/
+
+The Official Cyberpunk Trading Card Game by WeirdCo has become the most funded Kickstarter TCG of all time, raising over £7 million.
+---------
+
+# New Jack Ryan Movie Can Finally Answer A 5-Year Franchise Mystery, And Set Up A Sequel
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Without Remorse, Jack Ryan
+
+Sun, 22 Mar 2026 16:55:20 GMT
+
+https://screenrant.com/jack-ryan-movie-without-remorse-michael-b-jordan-sequel/
+
+Jack Ryan: Ghost War can finally address whether another Tom Clancy movie is canon with the franchise or not, which could lead to a sequel.
+---------
+
+# 10 Near-Perfect PS1 Games That Are Over Too Soon
+
+Games, PlayStation (Original), retro games
+
+Sun, 22 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/near-perfect-ps1-games-that-are-short-list/
+
+Some of the best PS1 games are short and sweet, but games like Silent Hill are so good we wish they could last even longer.
+---------
+
+# World War Z Finds Global Streaming Success 13 Years Later
+
+Movies, World War Z
+
+Sun, 22 Mar 2026 17:13:29 GMT
+
+https://www.cbr.com/world-war-z-streaming-charts-march-2026/
+
+The hit zombie movie rises from the grave with newfound success on the streaming charts.
+---------
+
+# Ryan Gosling Exiting the Wolf Man Remake Is Horror's Biggest Wasted Opportunity
+
+Movies, Wolf Man
+
+Sun, 22 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/ryan-gosling-wolfman-remake-missed-opportunity/
+
+Initial designs for Wolf Man 2025 were a lot more exciting than what was made, especially given the ties to a popular horror subgenre.
+---------
+
+# Crunchyroll’s New 12-Part Anime Proves This Classic Manga Hasn’t Lost Its Power
+
+Exclusives, Hana-Kimi, Anime, Crunchyroll, Animation
+
+Sun, 22 Mar 2026 17:06:12 GMT
+
+https://collider.com/crunchyroll-hana-kimi-anime-adaptation-cast-interview/
+
+Katelyn Barr, Wyatt Baker, and Dallas Reid discuss the enduring appeal of the manga, their character challenges, and the show's relatable hook.
+---------
+
+# Every Best Actress Oscar Winner of the 21st Century, Ranked
+
+Movie, Academy Awards, Jessie Buckley, Emma Stone, Michelle Yeoh
+
+Sun, 22 Mar 2026 17:03:12 GMT
+
+https://collider.com/best-actress-oscar-winners-21st-century-ranked/
+
+We look back on 26 years' worth of Oscar-winning performances and rank each Best Actress win from worst to best, from Julia Roberts to Jessie Buckley.
+---------
+
+# Matthew McConaughey's 129-Minute Disaster Movie Is Surging on Apple TV
+
+Movie News, Apple TV, Matthew McConaughey, The Lost Bus, Streaming
+
+Sun, 22 Mar 2026 17:00:12 GMT
+
+https://collider.com/matthew-mcconaughey-disaster-movie-the-lost-bus-streaming-success-apple-tv-march-2026/
+
+Apple TV's sleeper Oscar-nominated hit, The Lost Bus, has rejoined the U.S. streaming charts following the Academy Awards. Read on for more.
+---------
+
+# 10 Best TV Shows Set in The White House
+
+TV Lists
+
+Sun, 22 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/tv-shows-set-in-the-white-house/
+
+The White House has proven to be fertile ground for TV over the years. Here are the best shows to come from it.
+---------
+
+# Robert Pattinson Will Play Two Very Different Villains in 'The Odyssey' and 'Dune: Part Three'
+
+Features, Dune: Part Three, The Odyssey, Robert Pattinson
+
+Sun, 22 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/robert-pattinson-villain-2026-dune-part-three-odyssey/
+
+Robert Pattinson is known for his incredible range, so it's fitting his villains in 'The Odyssey' and 'Dune: Part Three' couldn't be more different.
+---------
+
 # When The Phone Rings: Netflix's Masterpiece Thriller
 
 Streaming TV, When the Phone Rings
