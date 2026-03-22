@@ -1,3 +1,157 @@
+# This 3-Part Dark Fantasy Show From 10 Years Ago Is A Must-Watch For All Horror Fans
+
+Classic TV, Penny Dreadful
+
+Sun, 22 Mar 2026 22:15:19 GMT
+
+https://screenrant.com/penny-dreadful-dark-fantasy-horror-must-watch/
+
+Penny Dreadful is a horror and dark fantasy TV series with an A-list cast and it is the closest thing we have to a Universal Monsters TV show.
+---------
+
+# iZombie & Supernatural Actor Carrie Anne Fleming Dies At 51
+
+TV, Supernatural, iZombie
+
+Sun, 22 Mar 2026 22:03:29 GMT
+
+https://screenrant.com/izombie-supernatural-carrie-anne-fleming-dies/
+
+Carrie Anne Fleming who portrayed Candy Baker in iZombie and Karen Singer in Supernatural sadly passed away at 51 years old.
+---------
+
+# 10 TV Reboots That Surpassed Their Originals
+
+Classic TV
+
+Sun, 22 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/tv-reboots-beat-original-show/
+
+Reboots of classic TV shows rarely come close to matching the original series, but a rare few — from X-Men '97 to Lost in Space — are even better.
+---------
+
+# Diablo, Hades Collide In New RPG You Can Try Free Now
+
+Gaming, RPG, Steam, Indie, Hades, Diablo
+
+Sun, 22 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/steam-free-download-hades-meets-diablo/
+
+A new roguelite RPG that seems to mix Hades with Diablo is set to be released later this year, but you can already try it out for free.
+---------
+
+# Arnold Schwarzenegger Announced Sequels To 3 Of His Biggest '80s Movies, But Only 1 Makes Sense
+
+Movies, Arnold Schwarzenegger, Op-Ed
+
+Sun, 22 Mar 2026 21:55:20 GMT
+
+https://screenrant.com/arnold-schwarzenegger-conan-returning-franchises/
+
+Arnold Schwarzenegger announced a slew of potential sequels in development, but only one of his returning franchises actually makes sense.
+---------
+
+# Project Hail Mary Removes Ryland Grace's Chosen One Role in the Movie
+
+Movies, Project Hail Mary, Sci-Fi
+
+Sun, 22 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/project-hail-mary-book-change-ryland-grace-destiny/
+
+Project Hail Mary's Ryland Grace was more than an expert in Astrophage, and had a bigger reason for being the one chosen to save the world.
+---------
+
+# 10 Untouchable 2000s Anime That No One Remembers
+
+Anime
+
+Sun, 22 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/classic-2000s-anime-no-one-remembers/
+
+Anime like Naruto, Bleach, and One Piece dominated the 2000s, leading many other classics to be left forgotten.
+---------
+
+# JoJo's Bizarre Adventure Director Says Even He Doesn't Know When New Episodes Are Coming
+
+Anime, JoJo's Bizarre Adventure, Jojo's Bizarre Adventure
+
+Sun, 22 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-steel-ball-run-director-episode-release/
+
+Steel Ball Run's director Yasuhiro Kimura reveals the process behind new JoJo's Bizarre Adventure episodes.
+---------
+
+# Every Yellowjackets Character We Know Survives
+
+TV, Yellowjackets, Showtime, Thriller
+
+Sun, 22 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/yellowjackets-tv-characters-who-survive/
+
+Whether it's Christina Ricci's Misty or Melanie Lynskey's Shauna, some Yellowjackets characters definitely survive the flashbacks.
+---------
+
+# Anya Taylor-Joy Names the 'Worst Character' She's Ever Played
+
+TV, Peaky Blinders
+
+Sun, 22 Mar 2026 21:54:09 GMT
+
+https://www.cbr.com/anya-taylor-joy-recalls-peaky-blinders-role/
+
+Hollywood icon Anya Taylor-Joy has had dozens of film and TV roles, but one stands out as the "worst" in her opinion.
+---------
+
+# 8 Classic HBO Shows That Are Worth Rediscovering Now
+
+TV, HBO, The Sopranos, Oz, The Wire
+
+Sun, 22 Mar 2026 22:14:12 GMT
+
+https://collider.com/classic-hbo-shows-rewatch-now/
+
+Explore timeless HBO series that delivered captivating narratives and unforgettable performances that remain relevant today, from The Sopranos to Oz.
+---------
+
+# The Rolling Stones' Mick Jagger Named This Legend As the Greatest Singer-Songwriter of All Time
+
+Music Features, The Rolling Stones, Mick Jagger, Rock, Music, Bob Dylan
+
+Sun, 22 Mar 2026 22:03:09 GMT
+
+https://collider.com/the-rolling-stones-mick-jagger-named-bob-dylan-the-greatest-singer-songwriter-of-all-time/
+
+Rock legend Mick Jagger praises Bob Dylan's storytelling abilities and cites Desolation Row as his favorite song.
+---------
+
+# Prime Video's Thrilling 85% Gem Just Crossed a Streaming Milestone
+
+TV News, Prime Video, Cross, Aldis Hodge, Streaming
+
+Sun, 22 Mar 2026 22:00:12 GMT
+
+https://collider.com/prime-video-cross-aldis-hodge-thriller-streaming-milestone-march-2026/
+
+Prime Video's two-part crime thriller starring Aldis Hodge, Cross, has now spent 30 days in the streaming charts. Read on for more details.
+---------
+
+# Ryan Gosling Thinks 'The Angry Birds' Is Why There Isn't a 'The Nice Guys' Sequel
+
+Features, Ryan Gosling
+
+Sun, 22 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/ryan-gosling-the-nice-guys-sequel-angry-birds/
+
+'The Angry Birds Movie' blew 'The Nice Guys' away at the box office, and Ryan Gosling believes the damage runs deep.
+---------
+
 # Resident Evil Requiem’s Hardest Mode Yet Revealed In New Trailer
 
 Gaming, Resident Evil 9, Triple-A Games
