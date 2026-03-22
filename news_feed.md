@@ -1,3 +1,80 @@
+# 6 Old-School Marvel Villains Spider-Man Should Fight In Prime Video's Live-Action Show
+
+Superheroes, Spider-Noir
+
+Sun, 22 Mar 2026 14:45:20 GMT
+
+https://screenrant.com/spider-noir-show-classic-spiderman-villains-appear/
+
+Multiple old-school villains from Spider-Man's classic comics will appear in Spider-Noir. Who else should be on hand in the series?
+---------
+
+# Watch Out For This Amazing Indian Movie That Made BAFTAs History
+
+Movies, Boong, Recommendation
+
+Sun, 22 Mar 2026 14:45:20 GMT
+
+https://screenrant.com/boong-movie-indian-bafta-history-record-streaming/
+
+Lakshmipriya Devi made BAFTAs history for India with her coming-of-age directorial debut in 2026, and you should look out for its streaming debut.
+---------
+
+# One Of The Best Non-Marvel Or DC Superheroes Movies You'll Ever See Is This 16-Year-Old Animated Film
+
+Movies, Megamind, Superhero, Recommendation
+
+Sun, 22 Mar 2026 14:41:05 GMT
+
+https://screenrant.com/megamind-animated-superhero-movie-not-marvel-dc-best/
+
+With a groovy soundtrack, iconic dialogue, and gorgeous animation, this 16-year-old animated movie is a love letter to superhero cinema.
+---------
+
+# Lethal Weapon 2: How This Sequel Surpassed The Original Action Classic
+
+Movies, Lethal Weapon 2
+
+Sun, 22 Mar 2026 14:30:20 GMT
+
+https://screenrant.com/lethal-weapon-2-better-than-original/
+
+It's rare that a sequel tops the original — especially an action movie sequel — but Lethal Weapon 2 is even better than the first film.
+---------
+
+# Michael Fassbender & Rebecca Ferguson's $35M Crime Thriller Flop Is Officially Leaving Netflix At The Worst Time
+
+Movies, The Snowman, Joe Nesbø's Detective Hole
+
+Sun, 22 Mar 2026 14:24:27 GMT
+
+https://screenrant.com/the-snowman-detective-hole-movie-leaving-netflix-april-2026/
+
+2017 saw the release of the iconic Michael Fassbender flop The Snowman, and now the movie is slated to leave Netflix with the worst possible timing.
+---------
+
+# Tom Holland's Best Spider-Man Movie Is Surging on Digital After Stellar 'Brand New Day' Trailer
+
+Movie News, Spider-Man: No Way Home, Spider-Man: Brand New Day, Tom Holland, Spider-Man
+
+Sun, 22 Mar 2026 14:49:43 GMT
+
+https://collider.com/spider-man-no-way-home-streaming-digital-success-march-2026-after-brand-new-day-trailer/
+
+The record-breaking Spider-Man: Brand New Day trailer sends Tom Holland's best superhero movie to the top of the digital charts.
+---------
+
+# 1 Year Later, John Wick's First Action Movie Spin-Off Is Dominating Streaming
+
+Movie News, John Wick, From the World of John Wick: Ballerina, Ana De Armas, STARZ
+
+Sun, 22 Mar 2026 14:41:16 GMT
+
+https://collider.com/john-wick-franchise-spin-off-ballerina-streaming-success-starz-march-2026-ana-de-armas/
+
+The hidden gem of the John Wick franchise, Ana de Armas' Ballerina, is a streaming hit in the U.S. once again. Here's where to watch it.
+---------
+
 # Marvel Just Gave Spider-Man’s Darkest Symbiote Showdown A Major Carnage Twist
 
 Comics, Spider-Man, Carnage, Marvel
