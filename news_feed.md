@@ -1,3 +1,36 @@
+# Buckle Up One Piece Fans - Season 3 Will Be Completely Different
+
+Streaming TV, One Piece
+
+Sun, 22 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/one-piece-season-3-completely-different/
+
+Netflix's One Piece has enjoyed two seasons of roaring success, but as we chart a course for season 3, fans should expect something very different.
+---------
+
+# Netflix's The OA is a Sci-Fi Masterpiece That Refuses to Die
+
+TV, Netflix, The OA
+
+Sun, 22 Mar 2026 11:30:12 GMT
+
+https://www.cbr.com/netflix-the-oa-sci-fi-masterpiece-refuses-to-die/
+
+Seven years after its cancellation, this striking sci-fi series still has a very vocal fan-base that have been keeping it significant.
+---------
+
+# John Wick 4’s 'Dragon’s Breath' Scene Is Still Peak Action
+
+Movies, John Wick 4
+
+Sun, 22 Mar 2026 11:30:12 GMT
+
+https://www.cbr.com/john-wick-4-dragons-breath-best-action-scene/
+
+John Wick is one of the greatest action franchises ever, but John Wick 4 has one scene that is the best of them all.
+---------
+
 # Crimson Desert Free Download Available Until March 26
 
 Gaming, Crimson Desert
