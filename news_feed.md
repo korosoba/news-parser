@@ -1,3 +1,124 @@
+# Resident Evil Requiem’s Hardest Mode Yet Revealed In New Trailer
+
+Gaming, Resident Evil 9, Triple-A Games
+
+Sun, 22 Mar 2026 21:31:18 GMT
+
+https://screenrant.com/resident-evil-requiem-hard-mode-randomizer/
+
+Resident Evil Requiem's difficulty and replayability are soon to be increased tenfold once a new style of playthrough arrives in the future.
+---------
+
+# 8 Key Differences Between Frankenstein & The Bride!
+
+New Movies, The Bride!, Frankenstein
+
+Sun, 22 Mar 2026 21:31:18 GMT
+
+https://screenrant.com/frankenstein-movie-the-bride-key-differences/
+
+The Bride! and Frankenstein both delve into the world that was created by Mary Shelley's horror novel, but there are many differences between the two.
+---------
+
+# Netflix's New 8-Part Mystery Thriller Is One Of Its Best K-Dramas in Years
+
+TV, The Art of Sarah, Netflix
+
+Sun, 22 Mar 2026 21:30:09 GMT
+
+https://screenrant.com/best-netflix-k-drama-2026-the-art-of-sarah-streaming/
+
+Amidst the sea of cozy rom-coms, Netflix just snuck in what might be one of its best thriller K-dramas of the year, and it's the perfect binge.
+---------
+
+# DC Officially Unveils a Major Flash Villain's Design Ahead of the Speedster's Next Appearance
+
+DC Comics, The Flash
+
+Sun, 22 Mar 2026 21:21:10 GMT
+
+https://screenrant.com/mirror-master-redesign-flash-new-appearance/
+
+One of Flash's most iconic rogues is returning to the DC Universe in a major way, complete with a bold redesign.
+---------
+
+# Brendan Fraser's Oscar-Winning Drama The Whale Will Leave HBO Max in March 2026
+
+Movies, The Whale, Brendan Fraser
+
+Sun, 22 Mar 2026 21:46:58 GMT
+
+https://www.cbr.com/brendan-frasers-the-whale-leaving-hbo-max-march-2026/
+
+Brendan Fraser's Academy Award-winning drama is about to lose its hottest streaming home ahead of the star's next major franchise return.
+---------
+
+# Spartacus: House of Ashur Achieves Massive Streaming Milestone
+
+TV
+
+Sun, 22 Mar 2026 21:19:12 GMT
+
+https://www.cbr.com/spartacus-house-of-ashur-starz-milestone-march-2026/
+
+Amid an uncertain future, the franchise continues to dominate the streaming charts.
+---------
+
+# 10 Action Movies That Deliver Everything You Want from the Genre
+
+Movie, The Dark Knight, Action, Terminator 2: Judgment Day, The Empire Strikes Back
+
+Sun, 22 Mar 2026 21:43:12 GMT
+
+https://collider.com/best-action-movies-deliver-everything-you-want/
+
+The Dark Knight, Seven Samurai, and Hard Boiled are all-time great, pulse-pounding action movies that deliver everything you want from the genre.
+---------
+
+# 4 Years Later, Netflix's 82% Crime Thriller Is a Must-Watch for 'Mindhunter' Fans Before It Leaves Streaming
+
+Movie News, Mindhunter, Zodiac, Holy Spider, Thriller
+
+Sun, 22 Mar 2026 21:40:12 GMT
+
+https://collider.com/mindhunter-zodiac-replacement-holy-spider-iranian-serial-killer-thriller-leaving-streaming-netflix-april-2026/
+
+The best Zodiac and Mindhunter alternative you'll find is the Iranian serial killer movie Holy Spider, but it's leaving Netflix soon. Read for more.
+---------
+
+# 7 Colossal Action Movies That Are 10/10 but Nobody Remembers Today
+
+Movie, Action, Crank, Ip Man, Battle Royale
+
+Sun, 22 Mar 2026 21:24:12 GMT
+
+https://collider.com/action-movies-nobody-remembers/
+
+As expansive as the action genre is within cinema, too many great movies are completely forgotten by audiences, like Crank and Battle Royale.
+---------
+
+# Paramount's 2025 Action Franchise-Ender Finds Redemption After Bombing at the Box Office
+
+Movie News, Mission: Impossible - The Final Reckoning, Tom Cruise, Streaming, Paramount Plus
+
+Sun, 22 Mar 2026 21:20:12 GMT
+
+https://collider.com/tom-cruise-franchise-ending-action-movie-mission-impossible-the-final-reckoning-streaming-success-paramount-plus-march-2026/
+
+Tom Cruise's ambitious 2025 box office flop with one of the biggest budgets ever is back on the U.S. and global streaming charts.
+---------
+
+# ‘Undertone’ Proves That Director Ian Tuason Is the Perfect Choice To Reboot the Paranormal Activity Franchise
+
+Features, undertone, Paranormal Activity
+
+Sun, 22 Mar 2026 21:30:16 GMT
+
+https://movieweb.com/undertone-ian-tuason-paranormal-activity-reboot/
+
+Ian Tuason's incredible yet subtle work on the nightmarish Undertone proved why he's the right choice to reset the 'Paranormal Activity' franchise.
+---------
+
 # 10 Biggest Movies Coming To Streaming In 2026
 
 Movies, Wicked: For Good, Peaky Blinders: The Immortal Man, Five Nights at Freddy's 2, Wuthering Heights, Moana, Spider-Man: Brand New Day, Avatar: Fire and Ash, The Super Mario Galaxy Movie, 28 Years Later: The Bone Temple, The Mandalorian and Grogu
