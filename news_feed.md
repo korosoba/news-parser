@@ -1,3 +1,47 @@
+# Spider-Man: Brand New Day Is Officially Remaking The Best Spider-Man Series Of All Time
+
+Classic TV, Spider-Man: Brand New Day, Spider-Man: The Animated Series
+
+Sun, 22 Mar 2026 10:30:18 GMT
+
+https://screenrant.com/spider-man-brand-new-day-remaking-animated-series-plot/
+
+Spider-Man: Brand New Day's trailer has finally given fans a taste of what to expect, and it's shaping up to be one of the wildest Spidey stories yet.
+---------
+
+# The Elder Scrolls Returns With Official New Release This June
+
+Gaming, The Elder Scrolls IV: Oblivion Remastered, The Elder Scrolls, PC
+
+Sun, 22 Mar 2026 10:30:18 GMT
+
+https://screenrant.com/the-elder-scrolls-akatosh-dragon-god-of-time-june-2026/
+
+The Elder Scrolls officially returns this summer with a brand-new release featuring the revered Dragon God of Time and head deity, Akatosh.
+---------
+
+# 10 Most Exciting Apple TV Shows To Binge-Watch, Ranked
+
+TV, Severance, The Studio, Chief of War, Apple TV
+
+Sun, 22 Mar 2026 10:49:12 GMT
+
+https://collider.com/exciting-apple-tv-shows-binge-watch-ranked/
+
+Discover the most thrilling and engaging Apple TV shows to binge-watch, including Severance, Slow Horses, and Silo.
+---------
+
+# 11 Years Later, Prime Video's Stellar Psychological Thriller With Keanu Reeves Has Only Gotten Better
+
+Movie, Keanu Reeves, Knock Knock, Ana De Armas, Eli Roth
+
+Sun, 22 Mar 2026 10:22:13 GMT
+
+https://collider.com/knock-knock-keanu-reeves-11-years-later-prime-video-stellar-psychological-thriller/
+
+Flipping the gender dynamics of home invasion thrillers, Eli Roth’s Knock Knock pits Ana de Armas and Lorenza Izzo against a terrified Keanu Reeves.
+---------
+
 # Star Trek: Starfleet Academy Season 1 Unanswered Questions: Exploring The Plot Holes
 
 TV, Star Trek, Star Trek: Starfleet Academy
