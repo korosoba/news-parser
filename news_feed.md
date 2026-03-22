@@ -1,3 +1,278 @@
+# Final Fantasy 9 Fans Losing Their Minds Over Official Sequel Announcement
+
+Gaming, Final Fantasy 9
+
+Sun, 22 Mar 2026 04:00:28 GMT
+
+https://screenrant.com/final-fantasy-9-sequel-announcement-gamer-reaction/
+
+Final Fantasy IX fans are excited as the animated series adaptation, The Black Mages' Legacy, has entered production.
+---------
+
+# Upcoming 97% RT Horror Movie Is Inspired By A Story That Drives Stephen King’s Scariest Book
+
+Movies, Stephen King, Pet Sematary
+
+Sun, 22 Mar 2026 03:46:20 GMT
+
+https://screenrant.com/stephen-king-pet-sematary-obsession-inspiration/
+
+One of the most hyped movies of 2026, with a near-perfect Rotten Tomatoes score, is inspired by the same story that drives Stephen King’s darkest book
+---------
+
+# My Biggest MCU Netflix Questions Before Daredevil: Born Again Season 2
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe, The Defenders
+
+Sun, 22 Mar 2026 03:30:10 GMT
+
+https://screenrant.com/biggest-mcu-netflix-questions-before-daredevil-born-again-season-2/
+
+Ahead of Daredevil: Born Again season 2, I've got some big questions I'd like to have answered tied to the Netflix era of Marvel shows and beyond.
+---------
+
+# 12 Perfect 10/10 Anime Movies Everyone Should Watch at Least Once
+
+Anime
+
+Sun, 22 Mar 2026 03:30:10 GMT
+
+https://screenrant.com/perfect-anime-movies-everyone-should-watch-list/
+
+Discover the 12 top-rated anime films, all 10/10 masterpieces that span genres, offering unforgettable stories and stunning animation loved worldwide.
+---------
+
+# Vin Diesel Posts Touching Tribute To Fast & Furious Legacy As He Teases Emotional Final Chapter
+
+Movies, Fast & Furious, Fast Forever, Vin Diesel
+
+Sun, 22 Mar 2026 03:26:33 GMT
+
+https://screenrant.com/vin-diesel-fast-and-furious-tribute-teases-finale/
+
+Fast & Furious legend Vin Diesel paid an emotional tribute to every person who has ever contributed to the franchise and teased the finale.
+---------
+
+# Prime Video’s 2-Season Game Adaptation Keeps Levelling Up With Each Episode
+
+Streaming TV, Fallout, Prime Video
+
+Sun, 22 Mar 2026 03:00:20 GMT
+
+https://screenrant.com/prime-video-fallout-levelling-up/
+
+Prime Video is the streaming home of an incredible two-season video game adaptation that somehow manages to get better with each new installment.
+---------
+
+# 10 Best Anime for Beginners to Binge
+
+Anime, Fullmetal Alchemist: Brotherhood
+
+Sun, 22 Mar 2026 02:30:20 GMT
+
+https://screenrant.com/best-anime-for-beginners/
+
+Anime is incredibly popular, but the amount of choice might overwhelm those who are just getting started. So here are the best anime for beginners!
+---------
+
+# 12 Upcoming K-Dramas You Cannot Miss
+
+Streaming TV, K-Drama
+
+Sun, 22 Mar 2026 02:15:19 GMT
+
+https://screenrant.com/upcoming-k-dramas-you-cannot-miss/
+
+There have already been countless unforgettable Korean shows released in the last three months, but 2026 has many more must-watch K-dramas on the way.
+---------
+
+# HBO's Underrated 10-Part Crime Series Made Detective Shows Look Easy
+
+Classic TV, The Outsider, Stephen King
+
+Sun, 22 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/the-outsider-hbo-detective-shows-look-easy/
+
+HBO delivered an incredible 10-part crime thriller in 2020, which was so good throughout its runtime that it almost made detective shows look easy.
+---------
+
+# 8 Greatest Chinese Anime of All Time, Officially Ranked
+
+Anime
+
+Sun, 22 Mar 2026 02:00:31 GMT
+
+https://screenrant.com/best-chinese-anime-donghua-official-list/
+
+Discover the best Chinese anime with our ranked list of the top 8. These donghua masterpieces showcase stunning animation and captivating storylines.
+---------
+
+# 2026 DC/Marvel TV Tournament - Round Two, Day One!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Sun, 22 Mar 2026 03:54:59 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-round-two-day-one/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. Round two begins!
+---------
+
+# Danielle Rousseau's Death in Lost Is a Frustrating 18-Year Mistake
+
+TV, Lost, ABC
+
+Sun, 22 Mar 2026 03:40:13 GMT
+
+https://www.cbr.com/lost-never-recover-danielle-rousseau-death-mistake/
+
+Mira Furlan's Danielle Rousseau met an undeserved end in Lost's 'Meet Kevin Johnson,' leaving fans disappointed 18 years later.
+---------
+
+# 10 Strongest Yu-Gi-Oh Archetypes of the 2020s, So Far
+
+Games, Yu-Gi-Oh!
+
+Sun, 22 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/strongest-yu-gi-oh-archetypes-2020s-so-far/
+
+The 2020s have been an amazing decade for Yu-Gi-Oh, with incredibly powerful archetypes that made for unstoppable decks.
+---------
+
+# The Magicians Is Still 1 of the Best Fantasy Series of the 2010s
+
+TV, Supernatural, The Magicians, Fantasy
+
+Sun, 22 Mar 2026 03:10:12 GMT
+
+https://www.cbr.com/the-magicians-perfect-supernatural-replacement/
+
+Supernatural redefined horror and fantasy TV, but there's another underrated fantasy series that serves as a perfect replacement for the beloved show.
+---------
+
+# 10 Anime Series Where We Wish the Villains Were the Main Characters
+
+Anime
+
+Sun, 22 Mar 2026 03:00:13 GMT
+
+https://www.cbr.com/anime-series-want-villains-be-main-characters-list/
+
+The best anime villains, like Dio Brando, are so fun to watch that they actually outshine the heroes.
+---------
+
+# Sam Kieth, Comic Artist, Creator of The Maxx and Co-Creator of Sandman, Passes Away at 63
+
+Comics, sam kieth, the maxx, Wolverine
+
+Sun, 22 Mar 2026 02:51:22 GMT
+
+https://www.cbr.com/sam-kieth-the-maxx-creator-wolverine-sandman-comic-artist-obituary/
+
+Sam Kieth, the beloved comic book artist who co-created The Sandman and created The Maxx, has passed away at the age of 63
+---------
+
+# Marvel’s Galactus Actor Ralph Ineson Has Actually Appeared in the MCU Twice
+
+Movies, MCU, The Fantastic Four: First Steps, Guardians of the Galaxy
+
+Sun, 22 Mar 2026 02:40:12 GMT
+
+https://www.cbr.com/ralph-ineson-in-mcu-guardians-of-the-galaxy-before-galactus/
+
+Ralph Ineson left a strong impression in The Fantastic Four: First Steps, but Galactus was not his first part in the Marvel Cinematic Universe.
+---------
+
+# 5 Fantasy Shows Where the Villains Are Better Than the Heroes
+
+TV, Game Of Thrones, The Dark Crystal: Age of Resistance, Fantasy
+
+Sun, 22 Mar 2026 02:40:12 GMT
+
+https://www.cbr.com/fantasy-tv-shows-villains-better-than-heroes-list/
+
+From The Dark Crystal to Game of Thrones, these fantasy series feature compelling villains who drive the narrative.
+---------
+
+# New Transformers Reveal Unleashes the Beast With Major Optimus Primal Update
+
+Anime, Transformers, Beast Wars: Transformers, merchandise, toys
+
+Sun, 22 Mar 2026 02:30:12 GMT
+
+https://www.cbr.com/transformers-beast-wars-optimus-primal-yolopark-model-kit/
+
+New Transformers kits get bestial, with a new look at the upcoming animation-accurate rendition of Optimus Prime's descendant from Beast Wars.
+---------
+
+# The Scrubs Revival's New Guest Star Makes Franchise History (But Not for the Reason You Think)
+
+TV, Hulu, Scrubs, Disney+
+
+Sun, 22 Mar 2026 02:20:12 GMT
+
+https://www.cbr.com/scrubs-revival-controversial-guest-star-matt-rife-franchise-history/
+
+As Scrubs revival struggles to find its footing, the inclusion of a controversial guest star could further impact its success and perception.
+---------
+
+# 10 Game-Changing Anime Series That Totally Rewrite Genre Rules
+
+TV, Anime, Dragon Ball Z, Urusei Yatsura: Beautiful Dreamer, Yu Yu Hakusho
+
+Sun, 22 Mar 2026 03:24:13 GMT
+
+https://collider.com/game-changing-anime-shows-rewrite-genre-rules/
+
+Discover the anime series that revolutionized their genres with bold departures from convention, from Dragon Ball Z to Neon Genesis Evangelion.
+---------
+
+# Ryan Gosling’s Forgotten Fantasy Show Is a 51-Episode Masterpiece With One Big Twist
+
+TV Features, Ryan Gosling, Young Hercules, Hercules: The Legendary Journeys, Project Hail Mary
+
+Sun, 22 Mar 2026 03:19:13 GMT
+
+https://collider.com/ryan-gosling-young-hercules-series-not-on-streaming/
+
+Ryan Gosling scored his first major role in the fantasy epic Young Hercules, where he played the titular demigod.
+---------
+
+# 10 Years Later, Netflix's 7-Part Crime Drama Just Keeps Getting Better With Age
+
+TV Features, Rizzoli & Isles, Procedural, Crime, Netflix
+
+Sun, 22 Mar 2026 02:58:13 GMT
+
+https://collider.com/rizzoli-and-isles-netflix-streaming-crime-drama-still-delivers/
+
+The TNT series Rizzoli & Isles, starring Angie Harmon and Sasha Alexander, is a 10/10 binge for fans of crime procedurals.
+---------
+
+# 12 Legendary Action Thriller Movies That Are Always Crowd-Pleasers
+
+Movie Lists
+
+Sun, 22 Mar 2026 02:00:29 GMT
+
+https://movieweb.com/legendary-action-thriller-movies-crowd-pleasers/
+
+From heists to car chases to shootouts, these action thriller movies stand out as the best due to their ability to appeal to widespread audiences.
+---------
+
+# Witness Decades of Profitable Backlash in "Dynasty: The Murdochs"
+
+Features, Fox News Movie, Dynasty: The Murdochs, Bombshell
+
+Sun, 22 Mar 2026 01:30:17 GMT
+
+https://movieweb.com/dynasty-the-murdochs-binge-watch/
+
+The one-night succession binge lifts the veil on the last 40 years of media, power, and politics.
+---------
+
 # Why Netflix's New #1 Anime Is Taking Over The World (#2 Trending In The US)
 
 Streaming TV, Netflix, JoJo’s Bizarre Adventure, Anime
