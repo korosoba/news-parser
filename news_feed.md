@@ -1,3 +1,190 @@
+# 10 Biggest Movies Coming To Streaming In 2026
+
+Movies, Wicked: For Good, Peaky Blinders: The Immortal Man, Five Nights at Freddy's 2, Wuthering Heights, Moana, Spider-Man: Brand New Day, Avatar: Fire and Ash, The Super Mario Galaxy Movie, 28 Years Later: The Bone Temple, The Mandalorian and Grogu
+
+Sun, 22 Mar 2026 21:15:18 GMT
+
+https://screenrant.com/biggest-movies-coming-to-streaming-2026/
+
+2026’s biggest movies are heading to streaming, from Disney and Marvel to Star Wars and period dramas, making it a huge year for at-home viewing.
+---------
+
+# Tom Hanks Hidden Apple TV Sci-Fi Gem Is On The Global Streaming Charts 5 Years Later
+
+Movies, Tom Hanks, Finch, Dupes
+
+Sun, 22 Mar 2026 21:10:11 GMT
+
+https://screenrant.com/tom-hanks-apple-tv-sci-fi-movie-finch-streaming-success/
+
+A five-year-old hidden Apple TV sci-fi gem starring Tom Hanks as the survivor of an apocalypse is doing well on the global streaming charts.
+---------
+
+# Steam Drops Free Download For 9/10 Game That May Consume Your Life
+
+Gaming, Steam, Indie Games, PC
+
+Sun, 22 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/steam-free-demo-march-2026-scritchy-scratchy/
+
+This is the perfect opportunity to try out a well-received and out-there Steam game, which is currently offering a free download.
+---------
+
+# You Can Still Binge All 18 Episodes Of Netflix's Iconic Romance Series Before Season 3 Arrives Next Month
+
+Streaming TV, XO, Kitty
+
+Sun, 22 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/xo-kitty-binge-netflix-before-season-3/
+
+The third season of one of the best Netflix romantic series is almost out, and there’s no better time to binge all 18 episodes of the show.
+---------
+
+# Top 10 Iconic Spider-Man Battles In Marvel Comics
+
+Marvel Comics, Spider-Man, Marvel
+
+Sun, 22 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/most-important-spider-man-fights-marvel-history/
+
+Among Spider-Man's greatest battles in Marvel Comics history, certain specific encounters changed the course of Peter Parker's superhero career.
+---------
+
+# How The Dead By Daylight Movie Can Avoid Becoming Another Failed Video Game Adaptation
+
+Movies, Dead by Daylight
+
+Sun, 22 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/dead-by-daylight-movie-video-game-adaptation-success/
+
+Dead by Daylight's movie adaptation has plenty of potential, but there are some major storytelling hurdles they need to clear to become a success.
+---------
+
+# 4 Years Later, Netflix's 6-Part Crime Series Is An Easy One-Night Weekend Binge
+
+Streaming TV, Netflix, Murderville
+
+Sun, 22 Mar 2026 20:56:19 GMT
+
+https://screenrant.com/netflix-murderville-series-weekend-watch/
+
+The 6-part crime comedy series Murderville on Netflix, featuring Will Arnett and celebrity guests, is perfect for a one-night binge this weekend.
+---------
+
+# Matthew Fox Not Returning For The Madison Season 2
+
+TV, The Madison
+
+Sun, 22 Mar 2026 20:49:35 GMT
+
+https://screenrant.com/the-madison-season-2-matthew-fox-preston-not-returning-confirmed/
+
+Actor Matthew Fox, who played Paul Clyburn in the first season of Taylor Sheridan's The Madison, will not be returning for the show's second season.
+---------
+
+# Megumi Fushiguro’s Domain Expansion in JJK, Explained
+
+Anime, Jujutsu Kaisen
+
+Sun, 22 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-megumi-fushiguro-domain-expansion/
+
+Megumi Fushiguro's Domain Expansion is one of the more unique techniques in Jujutsu Kaisen, and its power grows more with each incarnation.
+---------
+
+# American Beauty Set to Leave Paramount+ Next Month
+
+Movies, American Beauty, Paramount Plus
+
+Sun, 22 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/american-beauty-leaving-paramount-plus-april-2026/
+
+Paramount+ users are running out of time to stream the acclaimed, Oscar-winning film.
+---------
+
+# 10 Strongest Marvel Characters That Must Join the MCU
+
+Comics, Marvel, MCU, X-Men
+
+Sun, 22 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/strongest-marvel-characters-not-yet-in-mcu-list/
+
+These powerful Marvel characters still haven't joined the Marvel Cinematic Universe, and it's time for that to change.
+---------
+
+# 4 Sci-Fi Shows That Got Better Every Year
+
+TV, Sci-Fi, Fringe, Westworld, Babylon 5
+
+Sun, 22 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/sci-fi-series-improved-every-season-list/
+
+These shows all doubled down on their sci-fi credentials with each passing season and emerged better for it in the eyes of die-hard genre fans.
+---------
+
+# 9 Years Later, 'Chicago P.D.' Still Hasn't Recovered From Its Most Devastating Loss
+
+TV Features, Chicago P.D., Crime, Procedural, NBC
+
+Sun, 22 Mar 2026 21:06:12 GMT
+
+https://collider.com/chicago-pd-sophia-bush-exit-erin-lindsay/
+
+The long-running NBC crime procedural Chicago P.D. was never the same after Sophia Bush's Erin Lindsay left the show in 2017.
+---------
+
+# Say Goodbye to Netflix's 10-Year-Old Horror Masterpiece on April 30
+
+Movie News, Train to Busan, Netflix, Zombie, Apocalypse
+
+Sun, 22 Mar 2026 21:00:12 GMT
+
+https://collider.com/netflix-removing-zombie-thriller-train-to-busan-leaving-streaming-may-2026/
+
+One of the most influential zombie thrillers of the decade, Train to Busan, is leaving Netflix soon. Find out how long you have to watch.
+---------
+
+# 10 Underrated Zombie Movies That Are Bangers From Start to Finish
+
+Movie, Zombie, Dead Snow, Overlord, Return of the Living Dead III
+
+Sun, 22 Mar 2026 20:56:12 GMT
+
+https://collider.com/underrated-zombie-movies-bangers/
+
+Underrated zombie films like Overlord and The Girl with All the Gifts prove the genre can deliver wild, inventive thrills from start to finish.
+---------
+
+# Denis Villeneuve's 'Dune' & 'Dune: Part Two' Stream on HBO Max Before 'Dune: Part Three's Release Date
+
+Movie News, Dune, Dune: Part Two, HBO Max, Sci-Fi
+
+Sun, 22 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/dune-sci-fi-streaming-success-hbo-max-march-2026/
+
+Denis Villeneuve's seminal hard sci-fi movie adaptation of Frank Herbert's 'Dune' is a streaming success on HBO Max before 'Dune: Part Three.'
+---------
+
+# 'Disclosure Day' Is a Sequel To Steven Spielberg's Sci-Fi TV Miniseries
+
+Features, Steven Spielberg, Close Encounters of The Third Kind, Sci-Fi, Disclosure Day, Taken
+
+Sun, 22 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/disclosure-day-steven-spielberg-taken/
+
+'Disclosure Day' looks like it could be a sequel to Steven Spielberg's 'Close Encounters', but it may be a follow-up to a forgotten TV miniseries.
+---------
+
 # 26 Fastest Pokémon, Ranked
 
 Lists, Pokemon
