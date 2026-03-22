@@ -1,3 +1,146 @@
+# 5 Bob Odenkirk Movies You Need To Watch If You're A Better Call Saul Fan
+
+TV, Better Call Saul
+
+Sun, 22 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/5-bob-odenkirk-movies-you-need-to-watch-if-youre-a-better-call-saul-fan/
+
+These films are all very Better Call Saul-coded.
+---------
+
+# Invincible Is Setting Up Mark Grayson's Future Replacement
+
+Streaming TV, Invincible
+
+Sun, 22 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/invincible-season-4-bulletproof-mark-grayson-replace-clue/
+
+Invincible season 4 is teeing up a war between Mark and the Viltrumites, with the former’s replacement also getting an increased focus.
+---------
+
+# New R-Rated Remake Of 21-Year-Old Horror Thriller Finally Releases On Hulu Next Month
+
+Movies, No Other Choice, Hulu
+
+Sun, 22 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/no-other-choice-hulu-streaming-release-date/
+
+An exciting movie is coming to Hulu soon, as subscribers will be treated to an R-rated remake of a 21-year-old film that was snubbed at the Oscars.
+---------
+
+# Leaked Resident Evil Remake Info Has Fans Seriously Hyped
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sun, 22 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/resident-evil-remake-leak-code-veronica-directors/
+
+One key detail about the next Resident Evil project might be the best indication yet that this remake will match the success of RE2 and RE4.
+---------
+
+# Pokémon’s Most Controversial Generation Is Now Its Greatest Success
+
+Anime, Pokemon, Pokemon Black and White
+
+Sun, 22 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/pokemon-black-white-best-generation/
+
+The games once criticized as a weak link in the Pokémon series are now widely regarded masterpieces that represent the series at its creative peak.
+---------
+
+# 10 Ways Rewatching All 7 Jurassic Park Movies Changes How You Look At The Films
+
+Movies, Jurassic Park, Jurassic World, The Lost World: Jurassic Park, Jurassic Park 3, Jurassic World Rebirth, Jurassic World Dominion, Jurassic World Fallen Kingdom
+
+Sun, 22 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/jurassic-park-movies-rewatching-changes/
+
+The Jurassic Park franchise is legendary, but you will notice many things you didn't spot before if you rewatch the films back-to-back.
+---------
+
+# Oshi no Ko's Replacement Is Already Superior to the Idol Anime Classic
+
+Anime, Oshi No Ko
+
+Sun, 22 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/oshi-no-ko-new-best-idol-anime-2026/
+
+Though I Am an Inept Villainess might be Doga Kobo's magical replacement for one of the best idol anime, Oshi no Ko.
+---------
+
+# 10 Strongest One Piece Characters as of 2026, Ranked
+
+Anime, One Piece
+
+Sun, 22 Mar 2026 23:00:36 GMT
+
+https://www.cbr.com/one-piece-strongest-characters-2026/
+
+These One Piece characters aren't the strongest in the entire series, but they are the most powerful fighters still standing as of Chapter 1171.
+---------
+
+# Steven Spielberg's Monster House Is Heading to Hulu
+
+Movies, Monster House
+
+Sun, 22 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/steven-spielberg-monster-house-hulu-april-2026/
+
+The acclaimed animated film gets resurrected on streaming by Hulu in April.
+---------
+
+# These Dark Fantasy Shows Are Even Better Than The Witcher
+
+TV, The Witcher, Game Of Thrones, Supernatural, Fantasy
+
+Sun, 22 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/dark-fantasy-shows-better-than-the-witcher-list/
+
+These dark fantasy series outshine The Witcher with compelling narratives, intricate plots, and captivating performances.
+---------
+
+# 7 Years Later, Disney+ Viewers Can’t Get Enough of Tom Holland's Cult-Favorite Spy Movie
+
+Movie News, Disney+, Tom Holland, Spies in Disguise, streaming
+
+Sun, 22 Mar 2026 23:00:12 GMT
+
+https://collider.com/spies-in-disguise-disney-plus-streaming-success-march-2026/
+
+Tom Holland's bonkers spy movie with Will Smith, Spies in Disguise, is a surprise hit on Disney+ in the U.S. Here's what you should know.
+---------
+
+# Shows With More Than 20 Seasons That Keep Getting Better
+
+TV, Saturday Night Live, The Simpsons, Law & Order: Special Victims Unit, NCIS
+
+Sun, 22 Mar 2026 22:56:12 GMT
+
+https://collider.com/shows-more-than-20-seasons-keep-getting-better/
+
+The Simpsons, Law & Order: SVU, NCIS, Saturday Night Live, and more make up our list of shows with more than 20 seasons that keep getting better.
+---------
+
+# Live-Action 'Samurai Champloo' Anime Could Be Better Than Netflix's 'One Piece'
+
+Features, Samurai Champloo, One Piece, Netflix
+
+Sun, 22 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/samurai-champloo-live-action-better-one-piece-netflix/
+
+The upcoming live-action 'Samurai Champloo' series could be a better anime adaptatiin than Netflix's 100% RT rated 'One Piece' series.
+---------
+
 # 9 Years Ago, Ryan Gosling’s Cyberpunk Masterpiece Quietly Paved The Way For The Dune Trilogy
 
 Movies, Ryan Gosling, Dune, Blade Runner 2049
