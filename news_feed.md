@@ -1,3 +1,135 @@
+# When The Phone Rings: Netflix's Masterpiece Thriller
+
+Streaming TV, When the Phone Rings
+
+Sun, 22 Mar 2026 16:45:19 GMT
+
+https://screenrant.com/when-the-phone-rings-netflix-multilingual-thriller-series/
+
+Out of the countless iconic thriller series on Netflix, one of the best is When The Phone Rings, a multilingual hidden gem that everyone needs to see.
+---------
+
+# Meryl Streep's Project Hail Mary Cameo Explained By Author Andy Weir
+
+Movies, Project Hail Mary, Meryl Streep
+
+Sun, 22 Mar 2026 16:45:11 GMT
+
+https://screenrant.com/project-hail-mary-meryl-streep-cameo-explained-andy-weir/
+
+A familiar voice emerges from the computerized system, adding a twist to the sci-fi adventure. Meryl Streep's voice cameo in Project Hail Mary.
+---------
+
+# 10 Upcoming Disney Movies You Cannot Miss
+
+Movies, Disney, Ranking
+
+Sun, 22 Mar 2026 16:40:18 GMT
+
+https://screenrant.com/upcoming-disney-movies-you-cannot-miss/
+
+Disney ahs some incredible movies coming out over the next couple of years and here are the ones that remain the most anticipated for the studio.
+---------
+
+# 10 Best Modern Stevie Nicks & Fleetwood Mac Covers, Ranked
+
+Music, Stevie Nicks, Fleetwood Mac, Classic Rock, Rock, Harry Styles, Miley Cyrus, Paramore
+
+Sun, 22 Mar 2026 16:36:48 GMT
+
+https://screenrant.com/best-fleetwood-mac-covers/
+
+Following MAY-A's viral "Edge of Seventeen" remix, we rank the 10 best modern Stevie Nicks and Fleetwood Mac covers that honor the White Witch.
+---------
+
+# Fans Torn Over GTA 6 GOTY Debate
+
+Gaming, Grand Theft Auto 6, Crimson Desert, Rockstar Games, The Game Awards, Triple-A Games
+
+Sun, 22 Mar 2026 16:31:21 GMT
+
+https://screenrant.com/gta-6-fan-debate-goty-crimson-desert/
+
+Grand Theft Auto 6 is still eight months away from its scheduled release date, but it seems like it is hot on its way to a Game of the Year win.
+---------
+
+# Wednesday & Castlevania: The Best Gothic TV Shows on Netflix
+
+Classic TV, Wednesday, Castlevania
+
+Sun, 22 Mar 2026 16:31:21 GMT
+
+https://screenrant.com/netflix-best-gothic-tv-shows-on-streaming/
+
+Netflix’s library is pretty expansive, so it’s no surprise that it serves as the home to two of the best Gothic TV shows on any streaming platform.
+---------
+
+# 20 Years Later, Marvel Can Finally Fix Its Worst Spider-Man Story With One Devastating Change
+
+Comics, Spider-Man
+
+Sun, 22 Mar 2026 16:27:34 GMT
+
+https://screenrant.com/spider-man-fix-one-more-day-cost-aunt-may-death/
+
+Spider-Man's newest villain is on a killing spree that could have devastating effects on the ongoing run, as well as a controversial storyline.
+---------
+
+# PlayStation Network Officially Ending in 2026
+
+Games, playstation network
+
+Sun, 22 Mar 2026 16:46:24 GMT
+
+https://www.cbr.com/playstation-network-phased-out/
+
+It's the end of an era for PlayStation with the big change coming soon.
+---------
+
+# Howl's Moving Castle 3D Puzzle Returns to Studio Ghibli Store
+
+Anime, Studio Ghibli, Howl's Moving Castle, merchandise
+
+Sun, 22 Mar 2026 16:30:15 GMT
+
+https://www.cbr.com/studio-ghibli-howls-moving-castle-3d-puzzle-2026-release/
+
+One of Studio Ghibli's most popular 3D puzzles returns, giving fans another chance to own their own anime-accurate replica of Howl's castle.
+---------
+
+# 31 Years Later, Prime Video Is About To Lose This 105-Minute Crime Thriller Masterpiece
+
+Movie News, The Usual Suspects, Christopher McQuarrie, Benicio Del Toro, Streaming
+
+Sun, 22 Mar 2026 16:40:12 GMT
+
+https://collider.com/the-usual-suspects-kevin-spacey-greatest-crime-thriller-leaving-streaming-prime-video-march-2026/
+
+The Usual Suspects, the Oscar-winning 1995 crime thriller starring Kevin Spacey and Gabriel Byrne, is leaving Prime soon. Find out more here.
+---------
+
+# Netflix’s 7-Part Masterpiece Miniseries Pulled 62M Views in Just 1 Month
+
+TV Features, The Queen's Gambit, Netflix, Anya Taylor-Joy, Thomas Brodie Sangster
+
+Sun, 22 Mar 2026 16:36:13 GMT
+
+https://collider.com/netflix-miniseries-the-queens-gambit-62-m-views-first-month/
+
+Back in 2020, the Netflix masterpiece miniseries The Queen’s Gambit pulled an impressive 62 million views in the first month.
+---------
+
+# Harry Potter Star Got Death Threats After Being Cast in HBO Reboot
+
+TV News, Harry Potter, HBO Max
+
+Sun, 22 Mar 2026 16:36:35 GMT
+
+https://movieweb.com/harry-potter-star-death-threats-hbo/
+
+“I’ve been told, ‘Quit or I’ll murder you.’”
+---------
+
 # Spider-Man: Brand New Day’s Trailer Teases The Perfect Title For Peter’s Second Trilogy
 
 Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
