@@ -1,3 +1,201 @@
+# Blumhouse's New Critically Acclaimed Horror Movie Was Slapped With An NC-17 Rating For One Gory Scene
+
+Movies, Obsession, Blumhouse
+
+Sun, 22 Mar 2026 18:17:09 GMT
+
+https://screenrant.com/obsession-movie-mpa-issue-blumhouse/
+
+Blumhouse's upcoming horror Obsession is a bloody mess, especially after this gory scene leaves director Curry Barker with a tough decision.
+---------
+
+# Daredevil: Born Again Star Confirms Spider-Man: Brand New Day Casting After Long-Anticipated Marvel Movie Reveals Trailer
+
+Movies, Spider-Man: Brand New Day, Daredevil: Born Again, Marvel Cinematic Universe
+
+Sun, 22 Mar 2026 18:15:19 GMT
+
+https://screenrant.com/daredevil-born-again-star-spider-man-brand-new-day-casting-theory-confirmed/
+
+The unexpected crossover between Daredevil and Spider-Man has fans buzzing with theories about a changing power dynamic in the Marvel Universe.
+---------
+
+# 11 Major TV Show Retcons That Infuriated Fans
+
+Classic TV
+
+Sun, 22 Mar 2026 18:15:19 GMT
+
+https://screenrant.com/tv-show-controversial-retcons-make-no-sense/
+
+These are television's biggest controversial retcons that upended canon, leaving viewers confused and infuriated, and ruining series' legacies.
+---------
+
+# DC Officially Releases Penguin Redesign Ahead of New Batman Appearance
+
+DC Comics, The Batman, Batman, The Penguin
+
+Sun, 22 Mar 2026 18:00:54 GMT
+
+https://screenrant.com/dc-officially-releases-penguin-redesign-ahead-of-new-batman-appearance/
+
+DC has unveiled the Penguin’s latest redesign ahead of his next appearance, and it’s an utterly disgusting take on Batman’s iconic villain.
+---------
+
+# The Rings Of Power's 8 Most Frustrating Book Changes So Far
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 22 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/the-rings-of-power-most-frustrating-book-changes/
+
+The Lord of the Rings: The Rings of Power has played fast and loose with Tolkien canon, but some changes are far more needless than others.
+---------
+
+# One Piece's Most Underrated Straw Hat is Secretly Key to Beating Imu
+
+Anime, One Piece, One Piece (1997)
+
+Sun, 22 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/one-piece-chopper-defeat-imu-devil-fruit/
+
+One Piece Chapter 1177 reveals Chopper as the ultimate counter to Imu’s power, reverting the demonic giant to his normal self.
+---------
+
+# Skyrim: Lordbound Is Here To Tide You Over Until Elder Scrolls 6
+
+Gaming, The Elder Scrolls V: Skyrim, The Elder Scrolls, The Elder Scrolls 6
+
+Sun, 22 Mar 2026 18:00:19 GMT
+
+https://screenrant.com/skyrim-lordbound-elder-scrolls-6-fan-expansion/
+
+Skyrim: Lordbound is a huge story expansion mod that promises to take your next Skyrim run to entirely new places.
+---------
+
+# Why Netflix's #1 Drama Is Taking Over The US (8 New Episodes Out Now)
+
+Streaming TV, Tyler Perry’s Beauty in Black, Netflix
+
+Sun, 22 Mar 2026 17:57:17 GMT
+
+https://screenrant.com/beauty-in-black-season-2-part-2-netflix-success-march-2026/
+
+In the same month Netflix released One Piece season 2 and hit reality show Age of Attraction, one soapy twist-filled drama has emerged victorious.
+---------
+
+# What Dragon Ball Super Fans Can Expect From The Manga's Next Arc
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 22 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-comeback-preview-predicitions/
+
+With the Dragon Ball Super manga coming back, fans will finally get to see Gotenks' return, the Black Frieza Saga and maybe even Super Saiyan 5.
+---------
+
+# Ready or Not 2 Directors Reveal How Far They Pushed the Gore
+
+Movies, Ready Or Not 2
+
+Sun, 22 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/video/ready-or-not-2-directors-reveal-how-far-they-pushed-the-gore/
+
+Ready or Not 2 is going bigger, bloodier, and way more ambitious. Directors Matt Bettinelli-Olpin and Tyler Gillett break down how the sequel pushes the chaos to new extremes.From literally pouring blood on actors to crafting a larger mythology, the duo explains why “too much blood” isn’t in their vocabulary. They also reveal how the sequel came together after the original’s surprise success and why they only returned if it could match or surpass the first film.
+---------
+
+# Apple TV's Imperfect Women Is Dominating on Streaming Despite Mixed Reviews
+
+TV, Imperfect Women, Apple TV, Thriller
+
+Sun, 22 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/kerry-washington-imperfect-women-thriller-apple-tv-success-march-2026/
+
+The psychological thriller miniseries Imperfect Women is dominating the Apple TV streaming charts worldwide, despite mixed reviews.
+---------
+
+# Naruto Anime Remake Gets an Unexpected Push From MrBeast
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 22 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/naruto-anime-remake-announement-mrbeast/
+
+In what could genuinely be the moment that sparks the production of a Naruto remake, MrBeast has publicly announced his support of the idea.
+---------
+
+# 10 Best Batman Stories Since 2000, Ranked
+
+Comics, Batman, DC Comics, Absolute Batman
+
+Sun, 22 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/10-best-modern-batman-stories-since-2000-ranked-list/
+
+Batman has had countless incredible stories since the start of the 21st century, but these ten stand out as the absolute best.
+---------
+
+# 8 Game-Changing Sci-Fi TV Shows That Totally Rewrite Genre Rules
+
+TV, Sci-Fi, Lost, The Twilight Zone, Star Trek: The Original Series
+
+Sun, 22 Mar 2026 18:26:12 GMT
+
+https://collider.com/game-changing-sci-fi-shows-rewrite-genre-rules/
+
+Discover the most innovative sci-fi TV shows that broke genre rules and forever changed the small screen, from Lost to The Twilight Zone.
+---------
+
+# Tom Hardy’s Batman Co-Star Anchors This WWII Biopic That Netflix Is Removing
+
+Movie News, Dunkirk, Darkest Hour, Gary Oldman, Joe Wright
+
+Sun, 22 Mar 2026 18:20:12 GMT
+
+https://collider.com/tom-hardy-batman-costar-gary-oldman-wwii-movie-darkest-hour-leaving-streaming-netflix-may-2026/
+
+Netflix is removing Tom Hardy's Batman co-star Gary Oldman's WW2 drama, Darkest Hour, which won 2 Oscars. Find out how long you have to watch it.
+---------
+
+# 10 Best Movies Directed by Actors Who Didn't Star in Them
+
+Movie, Lady Bird, Get Out, Booksmart, The Night of the Hunter
+
+Sun, 22 Mar 2026 18:11:12 GMT
+
+https://collider.com/best-movies-directed-by-actors-who-didnt-star/
+
+Greta Gerwig in Lady Bird and Olivia Wilde in Booksmart are some of the best examples of an actor directing a movie in which they don't also star.
+---------
+
+# 12 Years Later, the Most Divisive Sci-Fi Reboot of All Time Departs Streaming on March 31
+
+Movie News, Joel Kinnaman, Robocop, Sci-Fi, RoboCop
+
+Sun, 22 Mar 2026 18:00:12 GMT
+
+https://collider.com/joel-kinnaman-most-divisive-sci-fi-reboot-robocop-leaving-streaming-prime-video-march-2026/
+
+RoboCop, the 2014 reboot starring Joel Kinnaman and Gary Oldman, is leaving Prime soon. Find out how long you have to watch the action film.
+---------
+
+# Steven Spielberg's 'Terra Nova' Sci-Fi TV Series Deserved a Longer Run
+
+Features, Terra Nova, Steven Spielberg, Sci-Fi
+
+Sun, 22 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/steven-spielberg-sci-fi-terra-nova/
+
+Steven Spielberg brought his dinosaur antics to TV, but the sci-fi show was axed after only one epic season.
+---------
+
 # Sanditon: The Underappreciated Regency Drama Superior to Bridgerton
 
 Classic TV, Sanditon, Bridgerton
