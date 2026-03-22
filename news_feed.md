@@ -1,3 +1,47 @@
+# Sanditon: The Underappreciated Regency Drama Superior to Bridgerton
+
+Classic TV, Sanditon, Bridgerton
+
+Sun, 22 Mar 2026 17:31:19 GMT
+
+https://screenrant.com/bridgerton-sanditon-better-tv-series/
+
+This Jane Austen adaptation surpasses Bridgerton, offering a richer period romance drama in its consistent character arcs & sharp social commentary.
+---------
+
+# 'Top Gun' Meets ‘Transformers’ in This Colossal Sci-Fi Sequel Exploding Onto a New Streamer
+
+Movie News, Pacific Rim: Uprising, Pacific Rim, Transformers, Hulu
+
+Sun, 22 Mar 2026 17:40:12 GMT
+
+https://collider.com/pacific-rim-uprising-top-gun-meets-transformers-sci-fi-sequel-streaming-hulu-april-2026/
+
+Steven S. DeKnight's sci-fi action sequel Pacific Rim Uprising, starring John Boyega, will be available on a new streaming home next month.
+---------
+
+# Netflix Is Dropping Scarlett Johansson’s 124-Minute Psychological Thriller in 13 Days
+
+Movie News, Match Point, Scarlett Johansson, Woody Allen, Thriller
+
+Sun, 22 Mar 2026 17:20:12 GMT
+
+https://collider.com/scarlett-johansson-psychological-thriller-match-point-leaving-streaming-netflix-april-2026/
+
+The psychological thriller Match Point, which began Scarlett Johansson's partnership with Woody Allen, is being removed from Netflix. Find out when.
+---------
+
+# Netflix's Most Exciting Shows, Ranked
+
+Features, Netflix, Behind Her Eyes, The Hunting Wives, Dead to Me, Altered Carbon, The Stranger, The Night Agent, Outer Banks, One Piece, Adolescence, Baby Reindeer, Squid Game, Stranger Things
+
+Sun, 22 Mar 2026 17:30:18 GMT
+
+https://movieweb.com/netflix-most-exciting-series/
+
+Netflix has produced some of the most exciting shows on streaming – have you seen them all?
+---------
+
 # 10 Most Rewatchable Movies On Netflix, Ranked By Popularity
 
 Movies, Netflix
