@@ -1,3 +1,25 @@
+# Zelda: A Link To The Past HD Is Truly Beautiful
+
+Gaming, The Legend of Zelda
+
+Sun, 22 Mar 2026 05:01:19 GMT
+
+https://screenrant.com/zelda-link-to-the-past-hd-unofficial/
+
+Experience the magic of A Link to the Past like never before with a stunning visual upgrade, bringing the beloved SNES classic into the modern era.
+---------
+
+# Fallout Gets Official New Release In May 2026
+
+Gaming, Fallout, PC
+
+Sun, 22 Mar 2026 04:30:19 GMT
+
+https://screenrant.com/fallout-atomic-blast-may-2026/
+
+Fallout fans are getting an official new release this spring, and it's just one of several highly anticipated announcements from Bethesda.
+---------
+
 # Final Fantasy 9 Fans Losing Their Minds Over Official Sequel Announcement
 
 Gaming, Final Fantasy 9
