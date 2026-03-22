@@ -1,3 +1,135 @@
+# Clint Eastwood's Greatest Western Of All Time Officially Lands Free Streaming Release In 2 Weeks
+
+Movies, The Good, the Bad and the Ugly
+
+Sun, 22 Mar 2026 15:31:31 GMT
+
+https://screenrant.com/clint-eastwood-good-bad-ugly-tubi-free-streaming-april-2026/
+
+At 95 years old, Clint Eastwood is still one of Hollywood's most beloved actors, and one if his classic movies will soon be available to stream free.
+---------
+
+# Bloodborne's Long-Awaited PC Remaster Leaves Gamers Floored
+
+Gaming, Bloodborne
+
+Sun, 22 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/bloodborne-pc-remaster-2026-gamer-reactions/
+
+An unofficial Bloodborne PC remaster, a 2-year modding project by fromsoftserve, has impressed fans with improved graphics, stability, and more.
+---------
+
+# A New Gravity Falls Successor Just Became Official
+
+TV, Gravity Falls
+
+Sun, 22 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/gravity-falls-clara-and-the-below-successor-funded/
+
+One of the people who worked on Gravity Falls has created an upcoming release that looks as though it could be a perfect fit for fans wanting more.
+---------
+
+# An Actor Just Appeared In Star Trek & A Star Trek Parody Only A Few Days Apart
+
+Streaming TV, Star Trek
+
+Sun, 22 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/star-trek-parody-tatiana-maslany-appearance/
+
+Star Trek parodies are a dime a dozen these days, but very few actors appear in the real Star Trek and a Star Trek parody back-to-back.
+---------
+
+# What's Coming to Disney+ in April 2026?
+
+Movies, Disney+
+
+Sun, 22 Mar 2026 15:30:54 GMT
+
+https://www.cbr.com/whats-coming-to-disney-in-april-2026-full-list/
+
+In April 2026, Disney+ will feature several new originals, as well as Hulu titles.
+---------
+
+# Tom Hardy’s Unhinged 92-Minute Crime Drama Is Serving Its Final Days on Streaming
+
+Music News, Tom Hardy, bronson, Nicolas Winding Refn, Biopic
+
+Sun, 22 Mar 2026 15:40:12 GMT
+
+https://collider.com/tom-hardy-crime-drama-bronson-leaving-streaming-hbo-max-april-2026/
+
+Tom Hardy gave his most unhinged performance in Bronson, the controversial crime drama that's about to leave HBO Max. Find out when.
+---------
+
+# What Really Happened to Evy? Nina Kiri Breaks Down the 'Undertone' Ending
+
+Interviews, undertone, The Handmaid's Tale, Ladies Night, Horror
+
+Sun, 22 Mar 2026 15:26:10 GMT
+
+https://collider.com/undertone-ending-what-happened-to-evy-nina-kiri/
+
+While on Collider Ladies Night, the star of A24's Undertone, Nina Kiri, explains exactly how they pulled off that epic oner.
+---------
+
+# 6 Brilliant Anthology Shows That Just Fell Short of Being Masterpieces
+
+TV, Anthology, Love, Death & Robots, American Crime Story, The Outer Limits
+
+Sun, 22 Mar 2026 15:24:13 GMT
+
+https://collider.com/anthology-tv-shows-almost-masterpieces/
+
+Netflix's Love, Death & Robots and FX's American Crime Story are great anthology shows but remain just shy of being considered true masterpieces.
+---------
+
+# Ryan Gosling’s Colossal Sci-Fi Hit Officially Crushes Rebecca Ferguson’s Latest Thriller in 1 Weekend
+
+Movie News, Ryan Gosling, Project Hail Mary, Chris Pratt, Rebecca Ferguson
+
+Sun, 22 Mar 2026 15:21:56 GMT
+
+https://collider.com/ryan-gosling-sci-fi-project-hail-mary-overtakes-rebecca-ferguson-mercy-1-weekend-box-office-140-million/
+
+Ryan Gosling's stellar sci-fi hit, Project Hail Mary, overtakes the entire gross of Rebecca Ferguson's Mercy in one weekend.
+---------
+
+# ’The Godfather’ Meets ‘Zero Dark Thirty’ in Controversial 4-Hour Gangster Epic That Just Shattered Box Office Records
+
+Movie News, Dhurandhar, The Godfather, Zero Dark Thirty, Bollywood
+
+Sun, 22 Mar 2026 15:20:27 GMT
+
+https://collider.com/crime-epic-dhurandhar-2-box-office-success-70-million/
+
+The Godfather meets Zero Dark Thirty in controversial 4-hour gangster epic that just shattered multiple box office records.
+---------
+
+# March 31 Marks the Streaming Exit of Ryan Gosling’s Divisive ‘Drive’ Follow-Up
+
+Movie News, Only God Forgives, Drive, Ryan Gosling, Prime Video
+
+Sun, 22 Mar 2026 15:20:12 GMT
+
+https://collider.com/ryan-gosling-divisive-drive-follow-up-only-god-forgives-leaving-streaming-prime-video-march-2026/
+
+Only God Forgives, the 2013 thriller starring Ryan Gosling and Kristin Scott Thomas, leaves Prime soon. Here's how long you have to watch it.
+---------
+
+# In the Hand of Dante Picked up by Netflix for Streaming Release
+
+Movie News, Oscar Isaac, Netflix, Thriller
+
+Sun, 22 Mar 2026 15:34:19 GMT
+
+https://movieweb.com/netflix-oscar-isaac-hand-of-dante/
+
+Jason Momoa, Al Pacino, Gerald Butler, John Malkovich, Gal Gadot, and Martin Scorsese also star.
+---------
+
 # The Last Of Us, Far Cry Collide In Gorgeous New Open-World FPS
 
 Gaming, Steam
