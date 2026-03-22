@@ -1,3 +1,212 @@
+# Spider-Man: Brand New Day’s Trailer Teases The Perfect Title For Peter’s Second Trilogy
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sun, 22 Mar 2026 16:20:19 GMT
+
+https://screenrant.com/spiderman-brand-new-day-trailer-second-trilogy-name/
+
+Spider-Man: Brand New Day sets up a new age for the web-swinging hero on-screen - and its trailer hints at a title that could be used for this era.
+---------
+
+# Michael Jackson's Nephew Reveals He Danced Until His Feet Bled While Becoming The King Of Pop For Upcoming Biopic
+
+Movies, Michael, Michael Jackson
+
+Sun, 22 Mar 2026 16:15:19 GMT
+
+https://screenrant.com/michael-movie-jaafar-jackson-dance-training-family-connection/
+
+Jaafar Jackson, Michael Jackson's nephew, details the grueling dance training he underwent to capture the King of Pop's iconic moves.
+---------
+
+# Hulu's 8-Part Sci-Fi Thriller Series Is One Of Its Best
+
+Classic TV, Devs
+
+Sun, 22 Mar 2026 16:15:19 GMT
+
+https://screenrant.com/hulu-devs-sci-fi-thriller-series-best/
+
+Hulu is home to an eight-part sci-fi TV show that is not only one of the streamer's best titles, but also one of the most underrated sci-fi shows.
+---------
+
+# The Crown Is Netflix's Best-Looking Show
+
+Classic TV, The Crown, Netflix
+
+Sun, 22 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/the-crown-netflix-best-looking-period-show/
+
+Discover Netflix's most impressive historical series, with its lavish production design, meticulous attention to period detail, and cinematic quality.
+---------
+
+# Zelda Fans Are Officially In Love With Ocarina Of Time's Big Comeback
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 22 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-march-2026-official-gamer-reactions/
+
+The Ocarina of Time has returned in Lego form and it's safe to say it has gone down a storm with fans.
+---------
+
+# Sam Elliott's 43-Year-Old Jack Reacher Prototype Failed Because It Ignored The One Thing That Makes Amazon's Adaptation Work
+
+TV
+
+Sun, 22 Mar 2026 15:55:19 GMT
+
+https://screenrant.com/travis-mcgee-jack-reacher-prototype-show-failed-ignored/
+
+Sam Elliott once played the prototype for Jack Reacher, but his planned TV series failed for doing the opposite of Prime's adaptation.
+---------
+
+# Ben Stiller's New 5-Part HBO Max Series Becomes Sleeper Streaming Hit In America
+
+TV, Born to Bowl, Ben Stiller
+
+Sun, 22 Mar 2026 15:47:48 GMT
+
+https://screenrant.com/ben-stiller-born-to-bowl-hbo-max-streaming-success-march-2026/
+
+A surprise hit on HBO Max, Ben Stiller's latest series is proving that sometimes, the most anticipated shows come from the most unexpected choices.
+---------
+
+# One Piece Has Dethroned Dragon Ball as the Greatest Anime of All Time
+
+Anime, One Piece, Dragon Ball
+
+Sun, 22 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/one-piece-surpasses-dragon-ball-greatest-anime-franchise/
+
+One Piece has succeeded where so many other series have failed, and undeniably surpassed Dragon Ball as the greatest anime franchise of all time.
+---------
+
+# Ryan Gosling's Project Hail Mary Soars to No. 1 at the Box Office With Best 2026 Global Debut
+
+Movies, Project Hail Mary
+
+Sun, 22 Mar 2026 16:12:52 GMT
+
+https://www.cbr.com/ryan-gosling-project-hail-mary-box-office-best-opening-global/
+
+The sci-fi film is officially 2026's biggest blockbuster.
+---------
+
+# The Madison's Connection To Yellowstone Explained
+
+TV, Yellowstone, The Madison, Paramount+ with Showtime
+
+Sun, 22 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/is-the-madison-a-yellowstone-spinoff-explained/
+
+Taylor Sheridan's latest Montana series on Paramount+ shares Yellowstone's epic views, leading many to wonder if The Madison is connected.
+---------
+
+# Taylor Sheridan's 6-Part Western Shoots to No. 1 After Shocking Season 1 Finale
+
+TV, The Madison
+
+Sun, 22 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-madison-finale-paramount-streaming-success-march-2026/
+
+Everyone is flocking to Taylor Sheridan's latest series after the Season 1 finale set the Internet on fire.
+---------
+
+# Superman Star Branching Out Into Comics, But In An Unexpected Genre
+
+Comics, Dark Horse Comics, Superman
+
+Sun, 22 Mar 2026 15:53:47 GMT
+
+https://www.cbr.com/superman-nathan-fillion-branching-out-into-unexpected-comic-book-genre/
+
+Not many saw this coming from the Superman star in 2026, that's for sure.
+---------
+
+# 21 Years Later, Cillian Murphy’s $96M Thriller Is Surging on Paramount+
+
+Movie News, Red Eye, Cillian Murphy, Rachel McAdams, Peaky Blinders: The Immortal Man
+
+Sun, 22 Mar 2026 16:20:12 GMT
+
+https://collider.com/cillian-murphy-creepiest-thriller-red-eye-leaving-streaming-paramount-april-2026/
+
+2 decades before Peaky Blinders: The Immortal Man, Cillian Murphy was at his most sinister in Wes Craven's Red Eye, which is leaving Paramount+ soon.
+---------
+
+# 10 Fantasy Movies That Are Near Masterpieces
+
+Movie, Fantasy, Excalibur, Conan the Barbarian, Ladyhawke
+
+Sun, 22 Mar 2026 16:06:12 GMT
+
+https://collider.com/fantasy-movies-near-masterpieces/
+
+From Dragonslayer to Excalibur, these great movies fall short of being true masterpieces but remain shining examples of fantasy at its most ambitious.
+---------
+
+# After 7 Episodes, 'Fire Country' Is Quietly Changing for the Better
+
+TV Features, Fire Country, Shawn Hatosy, CBS
+
+Sun, 22 Mar 2026 16:02:12 GMT
+
+https://collider.com/fire-country-season-4-episode-12-shawn-hatosy-return/
+
+The latest episode of Fire Country teased the brilliant idea of Shawn Hatosy's Brett Richards moving to Edgewater and joining Station 42.
+---------
+
+# Leonardo DiCaprio’s 162-Minute Crime Masterpiece Takes Over HBO Max
+
+Movie News, Leonardo DiCaprio, One Battle After Another, HBO Max, Streaming
+
+Sun, 22 Mar 2026 16:00:12 GMT
+
+https://collider.com/leonardo-dicaprio-crime-masterpiece-one-battle-after-another-streaming-success-hbo-max-march-2026/
+
+Leonardo DiCaprio's Oscar-winning masterpiece, One Battle After Another, has hit new streaming heights on HBO Max. Read on for more details.
+---------
+
+# 'The Creator' Cyberpunk Sci-Fi Action War Movie Is a Streaming Success on Netflix
+
+Movie News, The Creator, Netflix, Hot on Streaming, Sci-Fi, Action
+
+Sun, 22 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/the-creator-streaming-success-netflix-march-2026-sci-fi/
+
+The original concept sci-fi action movie 'The Creator,' flopped at the box office in 2024, but it is now a streaming success on Netflix.
+---------
+
+# Will Daredevil Appear in 'Spider-Man: Brand New Day'?
+
+Features, Spider-Man: Brand New Day
+
+Sun, 22 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/spider-man-brand-new-day-daredevil-appearance/
+
+With the trailer for 'Spider-Man: Brand New Day' featuring The Punisher and the Hand, is Daredevil also in the MCU's newest movie?
+---------
+
+# Movies About Girls With Supernatural Powers
+
+Movie Lists
+
+Sun, 22 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/movies-about-girls-with-supernatural-powers/
+
+From Buffy to Carrie, these exceptional young characters with supernatural powers have made a lasting impression.
+---------
+
 # Clint Eastwood's Greatest Western Of All Time Officially Lands Free Streaming Release In 2 Weeks
 
 Movies, The Good, the Bad and the Ugly
