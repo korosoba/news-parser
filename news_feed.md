@@ -1,3 +1,146 @@
+# The Forsytes: New PBS Masterpiece Series Debuts In US To Positive Reviews
+
+TV, The Forsytes
+
+Sun, 22 Mar 2026 20:12:17 GMT
+
+https://screenrant.com/the-forsytes-pbs-show-rotten-tomatoes-score/
+
+The Forsytes, a 6-part series based on The Forsyte Saga by John Galsworthy, premieres on PBS Masterpiece with solid reviews and a 71% critics' score.
+---------
+
+# Batman v Superman, A Decade Later: Has It Aged Well?
+
+Movies, Batman v Superman: Dawn of Justice
+
+Sun, 22 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/batman-v-superman-aged-well-badly/
+
+It's been 10 years since Zack Snyder unleashed Batman v Superman: Dawn of Justice upon the world. So, how has it aged in the past decade?
+---------
+
+# 10 Years Later, Mass Effect Fans May Finally Get The Andromeda They Deserve
+
+Gaming, Mass Effect: Andromeda, Exodus, Triple-A Games, PC
+
+Sun, 22 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/exodus-gameplay-mass-effect-copy-andromeda-comparison/
+
+Mass Effect: Andromeda put the series in limbo, despite not being an entirely meritless game, but now a similar game may be showing how it's done.
+---------
+
+# Rey Will Return In Ryan Gosling's Starfighter Movie & Sets Up Her Star Wars Future (Theory)
+
+Movies, Star Wars: Starfighter
+
+Sun, 22 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/star-wars-starfighter-rey-return-future-setup-theory/
+
+If this theory is true, then Rey will be back on the big screen next year.
+---------
+
+# All 14 Star Trek Movies From 1979 To Now
+
+Classic Movies, Star Trek
+
+Sun, 22 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/star-trek-movies-1979-now/
+
+The Star Trek movie franchise spans decades, generations, and even alternate universes, and there have been 14 films in the final frontier so far.
+---------
+
+# This New Mystery Anime Is Perfect For The Apothecary Diaries Fans
+
+Anime, The Apothecary Diaries
+
+Sun, 22 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/apothecary-diaries-new-political-mystery-anime-2026/
+
+Though I Am an Inept Villainess is Doga Kobo's next body-swap anime, with the power to topple The Apothecary Diaries' legacy.
+---------
+
+# The Handmaid's Tale Spinoff The Testaments Officially Premieres in April 2026
+
+TV, The Testaments, The Handmaid's Tale
+
+Sun, 22 Mar 2026 20:00:13 GMT
+
+https://www.cbr.com/the-handmaids-tale-spinoff-the-testaments-april-2026-release-date/
+
+The dystopian universe continues with a brand-new story.
+---------
+
+# 8 Surreal Movies That Make You Feel Like You're Tripping Balls
+
+Movie, Paprika, Koyaanisqatsi, Inland Empire, Pink Floyd: The Wall
+
+Sun, 22 Mar 2026 20:18:12 GMT
+
+https://collider.com/surreal-movies-feel-like-tripping-balls/
+
+Some of the most surreal movies of all time can make you feel like you're tripping balls, including classics like Brazil and The Holy Mountain.
+---------
+
+# 13 Years Ago, ‘Breaking Bad’s Most Heartbreaking Scene Was Completely Unscripted
+
+TV Features, Breaking Bad, Vince Gilligan, Bryan Cranston, AMC
+
+Sun, 22 Mar 2026 20:18:12 GMT
+
+https://collider.com/breaking-bad-season-5-ozymandias-bryan-cranston-unscripted-holly-walter-scene/
+
+In Breaking Bad's "Ozymandias," an unplanned moment involving Holly and Bryan Cranston's reaction perfectly captures Walter White's moral descent.
+---------
+
+# 7 Stellar Sci-Fi Books About Time Travel That Are 10/10, No Notes
+
+TV, Sci-Fi, Science Fiction, Stephen King, 11.22.63
+
+Sun, 22 Mar 2026 20:17:12 GMT
+
+https://collider.com/sci-fi-books-time-travel-perfect-no-notes/
+
+Time travel is a common topic within science fiction, and books like Stephen King's 11/22/63 and Madeleine L'Engle's A Wrinkle in Time tackle it best.
+---------
+
+# Anna Kendrick and Wunmi Mosaku's Gripping Thriller Is One of the Most Unique Films on Streaming
+
+Movie Features, Alice, Darling, Anna Kendrick, Wunmi Mosaku, Thriller
+
+Sun, 22 Mar 2026 20:03:12 GMT
+
+https://collider.com/anna-kendrick-wunmi-mosaku-alice-darling/
+
+Back in 2022, Anna Kendrick and recent Oscar nominee Wumni Mosaku joined forces for a gripping, tense thriller that avoids the genre's typical format.
+---------
+
+# Sam Rockwell's 97-Minute Hard Sci-Fi Mind-Bender Is Taking Over Streaming
+
+Movie News, Moon, Sci-Fi, Sam Rockwell, Hulu
+
+Sun, 22 Mar 2026 20:00:12 GMT
+
+https://collider.com/sam-rockwell-best-hard-sci-fi-movie-moon-2009-streaming-hulu-april-2026/
+
+Duncan Jones' critically acclaimed sci-fi drama Moon, starring Sam Rockwell, will join a major streaming platform in April. Read on for more.
+---------
+
+# 'Black Bird': Underrated 6-Part Crime Thriller That You Can Binge In A Weekend
+
+Features, Black Bird, Apple TV, Paul Walter Hauser, Comparison Recommendation
+
+Sun, 22 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/black-bird-binge-watch/
+
+The most terrifying part? Though it takes poetic license, the limited series is based on a true story -- and a real-life, alleged serial killer.
+---------
+
 # Sofia Coppola & Kirsten Dunst's 5th Movie Together Is Officially Dead
 
 Movies, Sofia Coppola, Kirsten Dunst
