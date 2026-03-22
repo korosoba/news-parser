@@ -1,3 +1,25 @@
+# Pokémon Covenant Is A Love Letter To The Past You Can Try Free Now
+
+Gaming, Pokemon
+
+Sun, 22 Mar 2026 09:00:19 GMT
+
+https://screenrant.com/pokemon-covenant-classic-game-rom-hack/
+
+Discover Pokémon Covenant, a fan-made ROM hack offering over 10 hours of content, 366 obtainable Pokémon, and a unique story.
+---------
+
+# 6 Classic War TV Shows That Have Aged Like Fine Wine
+
+TV, Band of Brothers, M*A*S*H, Roots, War
+
+Sun, 22 Mar 2026 09:27:22 GMT
+
+https://collider.com/classic-war-shows-aged-well/
+
+Explore a selection of iconic war-themed television shows that have stood the test of time, from Band of Brothers to M*A*S*H.
+---------
+
 # Blade Runner Officially Returns With New Sequel On May 6
 
 Gaming, Blade Runner, PC
