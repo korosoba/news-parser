@@ -1,3 +1,300 @@
+# Why Netflix's New #1 Anime Is Taking Over The World (#2 Trending In The US)
+
+Streaming TV, Netflix, JoJo’s Bizarre Adventure, Anime
+
+Sun, 22 Mar 2026 01:15:20 GMT
+
+https://screenrant.com/jojo-bizarre-adventure-steel-ball-run-netflix-success-march-2026/
+
+Netflix’s new #1 anime is performing incredibly well and has already surpassed all other shows to become the #2 trending series in the United States.
+---------
+
+# DC Officially Confirms a Pregnancy for a Major Justice League Villain
+
+Comics, Justice League
+
+Sun, 22 Mar 2026 01:00:20 GMT
+
+https://screenrant.com/lois-lane-superwoman-new-pregnant-justice-league-dc-explained/
+
+One of the Justice League’s greatest villains has officially announced she’s pregnant, in a major rewrite to DC history that teases huge things ahead.
+---------
+
+# Titus Welliver's Upcoming Gangster Series Could Be The Next Sopranos
+
+Streaming TV, The Westies
+
+Sun, 22 Mar 2026 01:00:20 GMT
+
+https://screenrant.com/the-westies-titus-welliver-crime-series-next-sopranos/
+
+Titus Welliver's upcoming MGM+ TV series, The Westies, has all the makings of a great gangster TV masterpiece like The Sopranos and Peaky Blinders.
+---------
+
+# Resident Evil’s New Remake Rumor May Be A Godsend For One Loathed Game
+
+Gaming, Resident Evil 3, Resident Evil, Triple-A Games
+
+Sun, 22 Mar 2026 01:00:20 GMT
+
+https://screenrant.com/resident-evil-1-remake-re3/
+
+Hot off a new mainline entry, Resident Evil's future remakes have an opportunity they shouldn't pass on idly as they could correct the series.
+---------
+
+# Super Rant Rewatch: 2011's Captain America Is The MCU’s Best Period Piece By Far
+
+Superheroes, Captain America: The First Avenger, Marvel Cinematic Universe
+
+Sun, 22 Mar 2026 00:36:32 GMT
+
+https://screenrant.com/super-rant-rewatch-captain-america-first-avenger-best-mcu-period-piece/
+
+There's a lot to love in 2011's Captain America: The First Avenger, especially with Steve Rogers' imminent MCU return in Avengers: Doomsday.
+---------
+
+# Every Ghibli Fan Needs To Watch Prime Video’s 100% Rt Masterpiece That Never Got the Attention It Deserved
+
+Anime, Maquia: When the Promised Flower Blooms, Studio Ghibli
+
+Sun, 22 Mar 2026 00:30:19 GMT
+
+https://screenrant.com/maquia-promised-flower-blooms-masterpiece-prime-video/
+
+Discover the overlooked masterpiece Maquia: When the Promised Flower Blooms, a beautifully animated film with a perfect Rotten Tomatoes score.
+---------
+
+# Netflix Series With 100% Rotten Tomatoes Scores: Top 10 Ranked
+
+Classic TV, Netflix, Rotten Tomatoes
+
+Sun, 22 Mar 2026 00:30:19 GMT
+
+https://screenrant.com/netflix-series-with-perfect-rottent-tomatoes-score-ranked/
+
+Rotten Tomatoes is the ultimate arbiter of modern television, and these 10 Netflix original series have accrued perfect critical scores on the site.
+---------
+
+# Lost’s Dark Horror Twin With A 96% RT Score Will Soon Deliver Its Best Potential Season
+
+Streaming TV, Lost, From
+
+Sun, 22 Mar 2026 00:16:20 GMT
+
+https://screenrant.com/lost-from-season-4-best-season/
+
+Lost’s Dark horror twin is an incredible ongoing TV series that boasts a Rotten Tomatoes score of 96% and is about to deliver its best season to date.
+---------
+
+# Netflix's 6-Season Action Series Is So Good, It's Impossible To Just Watch One Episode
+
+Classic TV, Cobra Kai
+
+Sun, 22 Mar 2026 00:00:19 GMT
+
+https://screenrant.com/cobra-kai-netflix-not-watch-just-one-episode/
+
+Netflix’s 6-season action series is so good that it pulls you in a whirlwind of high-stakes drama, making it impossible to watch just one episode.
+---------
+
+# Netflix Is Removing A 2009 Sci-Fi Masterpiece Begging For A Sequel In Just 11 Days
+
+Movies, District 9, Netflix
+
+Sun, 22 Mar 2026 00:00:19 GMT
+
+https://screenrant.com/district-9-movie-leaving-netflix-april-2026-sci-fi-masterpiece/
+
+A2009 sci-fi movie masterpiece is in its last days on Netflix, and fans of the genre have to check it out before the film leaves the streamer soon.
+---------
+
+# 5 Biggest Differences Between the Frieren Manga & Anime
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 22 Mar 2026 01:25:12 GMT
+
+https://www.cbr.com/frieren-beyond-journeys-end-biggest-differences-anime-manga/
+
+Fans praise the Frieren anime for remaining faithful to the manga it's based on, but Madhouse has also sprinkled a few changes throughout the series.
+---------
+
+# Apple TV's For All Mankind Surges on Streaming Ahead of Season 5
+
+TV, For All Mankind
+
+Sun, 22 Mar 2026 01:22:55 GMT
+
+https://www.cbr.com/for-all-mankind-streaming-season-4-march-2026/
+
+The acclaimed series gets a streaming surge just ahead of its anticipated return on Apple TV+.
+---------
+
+# Stephen King's Sci-Fi Miniseries The Langoliers Is Perfect Single-Night TV Binge
+
+TV, The Langoliers, Stephen King, Sci-Fi
+
+Sun, 22 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/stephen-king-the-langoliers-sci-fi-binge/
+
+Stephen King's The Langoliers is a must-watch sci-fi thriller, offering a perfect two-part story for a single-night TV binge.
+---------
+
+# Jack Black's Minecraft Movie Is the Perfect Super Mario Galaxy Appetizer
+
+Movies, A Minecraft Movie, The Super Mario Galaxy Movie, The Super Mario Bros. Movie
+
+Sun, 22 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/jack-black-minecraft-movie-perfect-before-super-mario-galaxy-movie/
+
+Before his return as Bowser in The Super Mario Galaxy Movie, Jack Black starred in a blockbuster that set the stage for the upcoming Nintendo sequel.
+---------
+
+# My Hero Academia Is About to Lose One of Its Most Unexpected Releases Forever
+
+Anime, My Hero Academia, namco bandai
+
+Sun, 22 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/my-hero-academia-ultra-impact-shutdown/
+
+My Hero Academia fans are about to lose one of the most popular titles in the franchise, and there are only months left to enjoy it.
+---------
+
+# Vin Diesel Prepares to Say Goodbye to Fast & Furious With Final Film
+
+Movies, vin diesel, Fast and Furious, Fast Forever
+
+Sun, 22 Mar 2026 00:46:09 GMT
+
+https://www.cbr.com/vin-diesel-fast-and-furious-goodbye-letter/
+
+Vin Diesel is saying his farewells to the Fast & Furious franchise in a heartfelt letter about the final film.
+---------
+
+# Oda Officially Confirms Netflix One Piece’s Live-Action Nami is Perfect
+
+Anime, One Piece, Eiichiro Oda, Netflix
+
+Sun, 22 Mar 2026 00:45:13 GMT
+
+https://www.cbr.com/netflix-one-piece-oda-confirms-perfect-nami-casting/
+
+Eiichiro Oda personally drew Emily Rudd as Nami, proving that Netlfix's One Piece live-action is simply perfect.
+---------
+
+# The Best RPGs of 2026, So Far
+
+Games, Role Playing Game, Video Games
+
+Sun, 22 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/best-rpgs-2026-ranked/
+
+So far, 2026 has delivered great RPGs like Mewgenics and Monster Hunter Stories 3.
+---------
+
+# The 25 Best Disney Movies Rated G, Ranked
+
+Movies, The Lion King, Alice in Wonderland, A Bug's Life, Disney, The Little Mermaid, Toy Story, The Jungle Book
+
+Sun, 22 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/best-disney-movies-rated-g/
+
+Disney movies have always been known for being family-friendly, but some are shining examples of how good a G-rated film can be.
+---------
+
+# Lloyd's Fate In Yellowstone, Explained
+
+TV, Yellowstone, Western
+
+Sun, 22 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/yellowstone-what-happens-to-lloyd/
+
+Especially in Yellowstone's more recent seasons, ranch hand Lloyd has become a fan favorite. But given recent developments, what does his future hold?
+---------
+
+# Taylor Sheridan’s 89% Rotten Tomatoes ‘Yellowstone’ Miniseries Is Still the Greatest Spin-off
+
+TV Features, Taylor Sheridan, 1883, Yellowstone, Paramount Plus
+
+Sun, 22 Mar 2026 01:19:12 GMT
+
+https://collider.com/1883-taylor-sheridan-yellowstone-spin-off/
+
+1883 stands out as Taylor Sheridan's television triumph, offering a gritty, self-contained prequel to Yellowstone that surpasses its spin-offs.
+---------
+
+# 7 Crime Shows That Have Aged Like Milk
+
+TV, Crime, Law & Order, 24, Walker, Texas Ranger
+
+Sun, 22 Mar 2026 00:52:12 GMT
+
+https://collider.com/crime-tv-shows-aged-like-milk/
+
+Time hasn't been kind to once-beloved crime shows like Law & Order, 24, and CSI: Crime Scene Investigation, with their reputation only getting worse.
+---------
+
+# 3 Years Later, Guy Ritchie’s 82% RT War Thriller Is Being Rewritten as a Streaming Hit
+
+Movie News, Guy Ritchie's The Covenant, Guy Ritchie, Jake Gyllenhaal, Apple TV
+
+Sun, 22 Mar 2026 00:20:12 GMT
+
+https://collider.com/guy-ritchies-the-covenant-war-thriller-streaming-success-apple-tv-march-2026/
+
+Guy Ritchie's 123-minute answer to The Hurt Locker is rewriting history on streaming after flopping at the box office. Read on for details.
+---------
+
+# 10/10 Dramas Are Rare, but HBO's 4-Part Masterpiece Has Zero Bad Episodes
+
+TV Features, Succession, HBO, Brian Cox, Kieran Culkin
+
+Sun, 22 Mar 2026 00:16:13 GMT
+
+https://collider.com/succession-hbo-drama-zero-bad-episodes/
+
+Jesse Armstrong's brilliant HBO series Succession, starring Brian Cox, Kieran Culkin, and Sarah Snook, remains a consistent hit from start to finish.
+---------
+
+# Idris Elba’s 2-Part Apple TV Thriller Enters a Sudden Streaming Downturn
+
+TV News, Idris Elba, Hijack, Thriller, Apple TV
+
+Sun, 22 Mar 2026 00:00:12 GMT
+
+https://collider.com/idris-elba-hijack-apple-tv-thriller-streaming-drop-march-2026/
+
+Idris Elba's Apple TV series Hijack sees a decline in streaming rankings, potentially impacting future season renewals. Get all the details.
+---------
+
+# Mel Gibson's 'Hacksaw Ridge' Delivered One of the Hardest-Hitting Movie Quotes of All Time
+
+Features, Hacksaw Ridge, Mel Gibson
+
+Sun, 22 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/mel-gibson-hacksaw-ridge-quote/
+
+Corporal Desmond Doss's inspirational quote in 'Hacksaw Ridge' is just as powerful a decade later, speaking to Mel Gibson's strengths as a director.
+---------
+
+# Chuck Norris 'Expendables' Action Movie Reclaimed His Internet Reputation
+
+Features, Chuck Norris, The Expendables, The Expendables 2, Action
+
+Sun, 22 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/chuck-norris-expendables-2-reputation/
+
+After years of humorous Chuck Norris jokes, the action hero got the last laugh thanks to the stacked cast of iconic stars.
+---------
+
 # John Boyega Has Talked Finn's Star Wars Return With Dave Filoni
 
 TV, Star Wars, John Boyega, Dave Filoni
