@@ -1,3 +1,179 @@
+# After 30 Years, It's Time to Admit That 1996's Two Best Comedies Are Still Underrated Cult Classics
+
+Movies, Kids in the Hall: Brain Candy, Mystery Science Theater 3000
+
+Sun, 22 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/kids-hall-mystery-science-theater-3000-most-underrated-comedies-1996/
+
+No one riffed on these kids in the theaters, but now they've been rediscovered.
+---------
+
+# Best Team Comps For Ashveil In Honkai: Star Rail
+
+Gaming, Honkai: Star Rail, PC, Live Service Games
+
+Sun, 22 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/honkai-star-rail-ashveil-best-team-comps/
+
+Ashveil’s release in Honkai: Star Rail represents a new era for follow-up attack team comps, but you’ll need to choose the correct characters for him.
+---------
+
+# The MCU Just Got An Excuse To Show The One Spider-Man Scene We’ve Never Seen
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 22 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/mcu-spiderman-origin-story-spider-bite-brand-new-day/
+
+Spider-Man: Brand New Day is perfectly primed to finally show a missing part of Peter Parker's life on-screen in the Marvel Cinematic Universe.
+---------
+
+# Guy Ritchie's New 8-Part Crime Series Dethroned By Prime Video's Returning 100% RT Show
+
+TV, Young Sherlock, Invincible
+
+Sun, 22 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/invincible-show-streaming-success-young-sherlock-comparison/
+
+Guy Ritchie's new crime series became a global Prime Video hit, but it has now been surpassed by a returning fan-favorite show with a 100% RT score.
+---------
+
+# Marvel Introduces Mad Thinker As Fantastic Four's MCU Villain
+
+Superheroes, The Fantastic Four: First Steps, Fantastic Four, Marvel Cinematic Universe
+
+Sun, 22 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/fantastic-four-mad-thinker-mcu/
+
+The MCU version of a famous Marvel villain makes his debut in a flashback to the team's origin story in The Fantastic Four: First Steps' 2026 prequel.
+---------
+
+# 10 Best The Far Side Comics From the Cartoon's First Year, Ranked
+
+Comics, The Far Side
+
+Sun, 22 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/best-far-side-comics-first-year/
+
+Ranking the best Far Sides from its debut year.
+---------
+
+# The Last Of Us Hero May Finally Get The Story They Deserve
+
+Gaming, The Last of Us, The Last of Us Part 2, Triple-A Games
+
+Sun, 22 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/last-of-us-character-jerry-anderson-story/
+
+The Last of Us Season 3 may have cast a tremendously important character, and the TV show will hopefully flesh them out beyond the tiny role they had.
+---------
+
+# Project Hail Mary Breaks One Of Sci-Fi's Worst Movie Curses In The Best Way
+
+Movies, Project Hail Mary
+
+Sun, 22 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/project-hail-mary-sci-fi-movie-curse-break/
+
+Project Hail Mary's story excels on several levels - though perhaps one of its biggest feats is flipping the script on one common sci-fi tradition.
+---------
+
+# Red Dead Redemption 2: Forgotten Frontier Will Star A New Protagonist
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sun, 22 Mar 2026 11:45:18 GMT
+
+https://screenrant.com/red-dead-redemption-2-forgotten-frontier-new-protagonist/
+
+Red Dead Redemption 2: Forgotten Frontier brings the Red Dead 1 map into the sequel, and it's a mod of huge ambition.
+---------
+
+# Kevin Smith Finally Will Deliver His Long-Awaited Marvel Project
+
+Comics, Marvel, kevin smith
+
+Sun, 22 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/kevin-smith-jay-and-silent-bob-jays-of-future-past-confirmed/
+
+Kevin Smith is about to deliver a story he pitched three decades ago, and it sounds like everything fans could possibly ask for in a comic book.
+---------
+
+# The Matrix Completely Overshadowed Vincent D'Onofrio's The Thirteenth Floor
+
+Movies, The Thirteenth Floor, Sci-Fi
+
+Sun, 22 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/the-matrix-overshadowed-vincent-donofrio-the-thirteenth-floor/
+
+This 1999 sci-fi film explores philosophical questions about simulated life with a maturity that its more famous contemporaries never quite achieved.
+---------
+
+# Ryan Gosling’s Stellar New Sci-Fi Movie Makes Me VERY Excited About His Star Wars
+
+Movie Features, Project Hail Mary, Star Wars: Starfighter, Ryan Gosling, Star Wars
+
+Sun, 22 Mar 2026 12:27:12 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-star-wars-starfighter/
+
+Ryan Gosling’s performance in the new sci-fi film Project Hail Mary has us pumped for his role in the upcoming Star Wars: Starfighter.
+---------
+
+# Hulu’s Gripping 8-Part American Crime Drama Hits Even Harder on a Rewatch in 2026
+
+TV Features, The Dropout, Amanda Seyfried, Sam Waterston, Hulu
+
+Sun, 22 Mar 2026 12:15:12 GMT
+
+https://collider.com/the-dropout-hulu-crime-miniseries-amanda-seyfried/
+
+Hulu's The Dropout explores the complex story behind the Theranos scandal and the American healthcare system's flaws.
+---------
+
+# This 10/10 Sci-Fi Franchise With Near-Perfect Rotten Tomatoes Scores Has the Greatest Cast
+
+Movie Features, Dune, Denis Villeneuve, Timothée Chalamet, Zendaya
+
+Sun, 22 Mar 2026 11:57:12 GMT
+
+https://collider.com/dune-franchise-perfect-rotten-tomatoes-cast/
+
+Denis Villeneuve's sci-fi franchise, Dune, has become his greatest achievement as he brings Frank Herbert's classic characters to life.
+---------
+
+# 'The Count of Monte Cristo' Review: The Best Revenge Thriller of All Time Gets a Near-Perfect 8-Part Remake
+
+TV Reviews, The Count of Monte Cristo, Sam Claflin, Jeremy Irons, PBS
+
+Sun, 22 Mar 2026 11:44:12 GMT
+
+https://collider.com/count-of-monte-cristo-2026-review-sam-claflin-jeremy-irons/
+
+With a stellar cast and stunning production value, the newest version of The Count of Monte Cristo brings Dumas' epic story to life like never before.
+---------
+
+# Chris Stuckmann's 'Shelby Oaks' Finally Sets Streaming Release Date
+
+Movie News, Shelby Oaks, Coming/Leaving Streaming, Horror
+
+Sun, 22 Mar 2026 12:01:18 GMT
+
+https://movieweb.com/shelby-oaks-streaming-hulu-april-2026/
+
+Five months after hitting theaters, we finally know when Chris Stuckmann's debut feature, 'Shelby Oaks,' will stream on Hulu.
+---------
+
 # Buckle Up One Piece Fans - Season 3 Will Be Completely Different
 
 Streaming TV, One Piece
