@@ -1,3 +1,124 @@
+# Sofia Coppola & Kirsten Dunst's 5th Movie Together Is Officially Dead
+
+Movies, Sofia Coppola, Kirsten Dunst
+
+Sun, 22 Mar 2026 19:37:12 GMT
+
+https://screenrant.com/sofia-coppola-kirsten-dunst-fifth-movie-cancelled/
+
+Sofia Coppola and Kirsten Dunst's fifth mystery film has apparently been axed in a heartbreaking update as Coppola addresses the rumors.
+---------
+
+# 7 Upcoming Romance Shows You Cannot Miss
+
+Streaming TV, Romance, Fourth Wing, Every Year After
+
+Sun, 22 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/upcoming-romance-shows-you-cannot-miss/
+
+These seven upcoming romance stories are as swoonworthy as they are compelling, making them must-watch TV shows.
+---------
+
+# Anime Has a New Gear 5, and It's Somehow Even Stronger Than One Piece's
+
+Anime, One Piece, Jujutsu Kaisen
+
+Sun, 22 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-takaba-gear-5-one-piece/
+
+The reality-bending abilities on display in a recent hit anime mirror One Piece's Gear 5, but with one key difference.
+---------
+
+# Tarantino's From Dusk Till Dawn Has A Great TV Spinoff, But Good Luck Finding It
+
+Classic TV, From Dusk Till Dawn: The Series, From Dusk Till Dawn
+
+Sun, 22 Mar 2026 19:15:19 GMT
+
+https://screenrant.com/from-dusk-till-dawn-series-horror-spinoff-not-streaming/
+
+Quentin Tarantino stars in a 30-year-old horror classic that got a TV show in 2014, but, unfortunately, it's now very tricky to find.
+---------
+
+# Rebecca Ferguson Teases Possible Return To Peaky Blinders Franchise
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Sun, 22 Mar 2026 19:09:59 GMT
+
+https://screenrant.com/peaky-blinders-universe-kaulo-return-potential-rebecca-ferguson/
+
+Following her role in The Immortal Man, Rebecca Ferguson hints at a return to the Peaky Blinders universe, leaving fans speculating on the future.
+---------
+
+# John Boyega Confirms Talks for Star Wars Return as Finn
+
+Movies, Star Wars
+
+Sun, 22 Mar 2026 19:43:50 GMT
+
+https://www.cbr.com/star-wars-john-boyega-talks-finn-return/
+
+Star Wars fans may not have seen the last of John Boyega as Finn after all.
+---------
+
+# Brad Pitt's Oscar-Winning Drama F1 Celebrates New Milestone on Apple TV
+
+Movies, F1
+
+Sun, 22 Mar 2026 19:31:13 GMT
+
+https://www.cbr.com/brad-pitt-f1-sports-drama-milestone-apple-tv-march-2026/
+
+The film was a tremendous success and it continues to dominate.
+---------
+
+# 10 Underrated Manga That Are More Well-Written Than Demon Slayer
+
+Anime, Manga, Demon Slayer: Kimetsu no Yaiba, Psyren
+
+Sun, 22 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/demon-slayer-underrated-manga-better-writing/
+
+Many far less well-known manga series have considerably better writing than Demon Slayer, even if their fan bases are nowhere near as massive.
+---------
+
+# Say Goodbye to One of Rebecca Ferguson's Worst Rated Movies in Less Than 1 Month
+
+Movie News, Rebecca Ferguson, Michael Fassbender, The Snowman, Thriller
+
+Sun, 22 Mar 2026 19:40:12 GMT
+
+https://collider.com/rebecca-ferguson-critically-panned-thriller-the-snowman-leaving-streaming-netflix-april-2026/
+
+The critically panned serial killer movie The Snowman, starring Rebecca Ferguson and Michael Fassbender, is leaving Netflix. Find out when.
+---------
+
+# 10 Greatest Sci-Fi Movies Released Since 'Eternal Sunshine of the Spotless Mind'
+
+Movie, Eternal Sunshine of the Spotless Mind, Science Fiction, Children of Men, Interstellar
+
+Sun, 22 Mar 2026 19:38:12 GMT
+
+https://collider.com/best-sci-fi-movies-since-eternal-sunshine-of-the-spotless-mind/
+
+Epics like Interstellar and thrillers like Ex Machina are among the best sci-fi films since the 2004 release of Eternal Sunshine of the Spotless Mind.
+---------
+
+# 33 Years Later, Kurt Russell's 127-Minute Western Gem Surges on Streaming
+
+Movie News, Kurt Russell, Western, Tombstone, AMC+
+
+Sun, 22 Mar 2026 19:20:12 GMT
+
+https://collider.com/kurt-russell-western-classic-tombstone-streaming-success-amc-plus-march-2026/
+
+Kurt Russell's 127-minute Western gem Tombstone is a streaming hit on a surprise platform. Here's where to watch the cult-classic.
+---------
+
 # Chainsaw Man's Final Chapter Release Date and Time
 
 Anime, Chainsaw Man
