@@ -1,3 +1,245 @@
+# Thor Will Wield The Venom Symbiote In His Next Comic Appearance, Per Marvel
+
+Marvel Comics, Thor, Venom, Marvel
+
+Mon, 23 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/thor-venom-new-host-what-if/
+
+Venom's new host is none other than the God of Thunder himself, Thor, who gains a massive power boost in a Marvel Universe you've never seen before.
+---------
+
+# One Piece Finally Teases the Epic Luffy Fight Fans Have Waited a Decade For
+
+Anime, One Piece (1997), One Piece
+
+Mon, 23 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/one-piece-luffy-imu-fight-tease-elbaf/
+
+Fans have waited years to see Luffy stand off against the evil secret ruler of One Piece's world, and the battle is finally here.
+---------
+
+# Invincible Takes A Big Step Toward Revealing Mark's True Viltrumite History
+
+Streaming TV, Invincible
+
+Mon, 23 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/invincible-emperor-argall-bloodline-reference-mark-nolan/
+
+Invincible season 4 takes a big step toward revealing Mark's true Viltrumite history as the show inches closer to a shocking revelation.
+---------
+
+# Chernobyl: HBO's Intense Miniseries Explores Disaster's Human Toll
+
+Classic TV, Chernobyl
+
+Mon, 23 Mar 2026 22:15:20 GMT
+
+https://screenrant.com/chernobyl-hbo-miniseries-only-watch-once/
+
+HBO's 2019 miniseries, Chernobyl, explains the events of the 1986 nuclear plant disaster, and the chilling series will sit with you for a while.
+---------
+
+# One Of The Best Dystopian Sci-Fi Series Of All Time Is Now On Netflix & The Streamer Also Has Its Perfect Follow-Up
+
+TV, Netflix, The Man in the High Castle
+
+Mon, 23 Mar 2026 22:08:58 GMT
+
+https://screenrant.com/the-man-in-high-castle-netflix-1983-sci-fi-series-replacement/
+
+Netflix is the new home of one of the best dystopian sci-fi series of all time, and it also has the perfect follow-up after finishing the show.
+---------
+
+# Super Mario 64 Plus Just Got A Surprise Release, Available Now
+
+Gaming, Super Mario 64, Super Mario, Triple-A Games
+
+Mon, 23 Mar 2026 22:04:54 GMT
+
+https://screenrant.com/super-mario-64-plus-fan-game-download/
+
+Very few games become as legendary as Super Mario 64, but a new version of SM64 Plus elevates the classic platformer to a whole new level.
+---------
+
+# New Moonstar Series Serves Up All-Time Epic X-Men Art
+
+Comics, X-Men
+
+Mon, 23 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/x-men-dani-moonstar-coolest-comic-art/
+
+It is official, Marvel just revealed the coolest X-Men franchise image ever, and this new comic cover is one that every fan will want to check out.
+---------
+
+# HBO’s 8-Part Fantasy Series With Near-Perfect RT Score Revolutionized An Entire Genre
+
+TV, Game Of Thrones
+
+Mon, 23 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/game-of-thrones-fantasy-show-revolutionize-genre/
+
+One unexpected choice by HBO turned the fantasy genre on its head, changing TV forever by paving the way for other critically acclaimed genre hits.
+---------
+
+# Stephen King’s Next Dark Tower Book Gets Official Release Date
+
+Books, The Dark Tower, Stephen King
+
+Mon, 23 Mar 2026 21:59:46 GMT
+
+https://screenrant.com/stephen-king-talisman-3-dark-tower-new-book-release-window/
+
+The Dark Tower is back as Stephen King officially reveals the release date for the next book set within the vast fictional universe.
+---------
+
+# Kirsten Dunst Joins Sydney Sweeney in The Housemaid 2
+
+Movies, The Housemaid
+
+Mon, 23 Mar 2026 22:26:36 GMT
+
+https://www.cbr.com/the-housemaid-sequel-sydney-sweeney-kirsten-dunst/
+
+Sydney Sweeney's returning for the anticipated sequel with her first new co-star officially revealed.
+---------
+
+# 7 Most Empowering Quotes from the Women of Naruto
+
+Anime, Naruto, Naruto: Shippuden, Shonen
+
+Mon, 23 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/naruto-best-female-character-quotes/
+
+Some feel Naruto creator Masashi Kishimoto failed his female characters, but given their many spirited personalities, the anime did right by them.
+---------
+
+# John Krasinski’s A Quiet Place Part III Sets Up a Surprise Fantastic Four Reunion
+
+Movies, A Quiet Place Part III, john krasinski, A Quiet Place
+
+Mon, 23 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/john-krasinski-a-quiet-place-sequel-joseph-quinn-return/
+
+A Quiet Place Part II is on the way, and it could mean the return of another Fantastic Four actor from the franchise, Joseph Quinn.
+---------
+
+# Everything We Know About The Madison Season 2
+
+TV, The Madison, Paramount+ with Showtime
+
+Mon, 23 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/the-madison-season-2-everything-we-know/
+
+Paramount+ has officially released Yellowstone creator Taylor Sheridan's The Madison, and fans can already look forward to The Madison Season 2.
+---------
+
+# Taylor Sheridan's The Madison Loses Key Star in Season 2
+
+TV, The Madison
+
+Mon, 23 Mar 2026 22:00:10 GMT
+
+https://www.cbr.com/taylor-sheridans-new-western-show-loses-key-star-in-season-2/
+
+The second season of Taylor Sheridan's newest series is going to come with a major change.
+---------
+
+# 30 Years Later, Hulu's 10/10 Horror Cult Classic Is Still Near-Perfect
+
+TV Features, Buffy The Vampire Slayer, Sarah Michelle Gellar, Alyson Hannigan, Joss Whedon
+
+Mon, 23 Mar 2026 22:30:14 GMT
+
+https://collider.com/buffy-the-vampire-slayer-cult-classic-masterpiece-series/
+
+Buffy the Vampire Slayer was The WB's dark horse about one girl in all the world, destined to fight vampires, demons, and the forces of darkness.
+---------
+
+# 10 Greatest Epic Movies Released Since 'Gladiator'
+
+Movie, Gladiator, Oppenheimer, There Will Be Blood, Avatar
+
+Mon, 23 Mar 2026 22:30:14 GMT
+
+https://collider.com/best-epic-movies-since-gladiator/
+
+From The Lord of the Rings: The Return of the King to Oppenheimer, epic movies have been going strong since Ridley Scott's Gladiator debuted in 2000.
+---------
+
+# The 10 Best Actors Named "Tom"
+
+Movie, Actors, Tom Cruise, Tom Holland, Tom Hanks
+
+Mon, 23 Mar 2026 22:23:13 GMT
+
+https://collider.com/best-actors-named-tom-famous/
+
+Hollywood has a whole lot of Toms, from Tom Cruise to Tom Waits. These 10 Toms are the best in the industry.
+---------
+
+# As a Doctor Who Fan, Here's How I'd Rank All 17 Time Lords in the Sci-Fi Series
+
+TV, Doctor Who, Sci-Fi
+
+Mon, 23 Mar 2026 22:17:13 GMT
+
+https://collider.com/doctor-who-fan-ranks-time-lords/
+
+As a Doctor Who fan, I determine who is the best Time Lord of the legendary BBC sci-fi series, from William Hartnell to David Tennant to Ncuti Gatwa.
+---------
+
+# Prime Video's Reboot of TV's Greatest Ever Sci-Fi Series Officially Adds Key Star Wars Talent
+
+TV News, Prime Video, Stargate SG-1, Westworld, Star Wars
+
+Mon, 23 Mar 2026 22:09:32 GMT
+
+https://collider.com/prime-video-stargate-reboot-update-westworld-star-wars-production-designer-vfx-artist/
+
+The Stargate franchise revival series adds 2 perfect sci-fi alums: Westworld production designer Nathan Crowley & Rogue One VFX supervisor Mohen Leo.
+---------
+
+# 2025’s Most Violent WWII Sequel Officially Overtakes Alan Ritchson’s 'War Machine' on Netflix
+
+Movie News, Sisu, Sisu: Road to Revenge, Netflix, World War II
+
+Mon, 23 Mar 2026 22:00:45 GMT
+
+https://collider.com/2025-most-violent-ww2-sequel-sisu-road-to-revenge-netflix-streaming-success-march-2026/
+
+Jalmari Helander's WWII sequel Sisu: Road to Revenge quickly rises on Netflix US charts immediately after arriving on the streaming platform.
+---------
+
+# US Senators Flag Paramount/Warner Bros. Deal as "National Security Threat"
+
+Movie News, Paramount Plus, HBO Max
+
+Mon, 23 Mar 2026 22:27:47 GMT
+
+https://movieweb.com/warner-bros-paramount-merger-senate-security-threat/
+
+Middle East and Chinese funds could control news and popular media in US.
+---------
+
+# 'Spider-Man: Brand New Day's Peter Parker Twist Fixes Forgotten 'Ms. Marvel' Moment
+
+Features, Spider-Man: Brand New Day, MCU
+
+Mon, 23 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/spider-man-peter-twist-mcu-change/
+
+The X-Men still haven't featured in the MCU in any meaningful way, but 'Spider-Man: Brand New Day' could be about to change that.
+---------
+
 # Supernatural Stars Reunite As 'Douchebags' In The Boys Season 5
 
 TV, The Boys, Supernatural
