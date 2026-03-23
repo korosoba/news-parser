@@ -1,3 +1,267 @@
+# The Madison Cast Exit Derails Season 2 Of Taylor Sheridan's New Hit Western Series
+
+Streaming TV, The Madison
+
+Mon, 23 Mar 2026 14:02:18 GMT
+
+https://screenrant.com/the-madison-season-2-matthew-fox-preston-exit-derail/
+
+Not long after The Madison ended its 6-episode debut run on Paramount+, the Taylor Sheridan family Western loses an original cast member.
+---------
+
+# Crimson Desert PS5 Players Urged To Change One Setting For Instant Graphics Improvement
+
+Gaming, Crimson Desert
+
+Mon, 23 Mar 2026 14:00:32 GMT
+
+https://screenrant.com/crimson-desert-ps5-instant-graphics-boost-setting/
+
+Crimson Desert players on PS5 are struggling with the game's performance, but there's an easy fix you can try by just changing one setting.
+---------
+
+# Riftbound Unleashed Set Exclusive Card Preview
+
+Gaming, Riftbound: League of Legends Trading Card Game, tabletop games
+
+Mon, 23 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/riftbound-unleashed-exclusive-card-preview/
+
+We have another exclusive card for Riftbound, and given how lore-heavy the Unleashed set is going to be, it's worth checking out.
+---------
+
+# Elektra's Potential Return In Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day
+
+Mon, 23 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/spiderman-brand-new-day-hand-elektra-return-setup/
+
+Spider-Man: Brand New Day includes a few connections to Netflix's Marvel universe, and it could be setting up another character's return.
+---------
+
+# Iceman's Hulk Form Officially Returns in X-Men Comics
+
+Comics, X-Men, Hulk
+
+Mon, 23 Mar 2026 13:58:10 GMT
+
+https://screenrant.com/x-men-iceman-hulk-redesign/
+
+X-Men's Hulk is making a comeback!
+---------
+
+# Tom Holland Elaborates On How Spider-Man: Brand New Day Is Different From Original MCU Trilogy
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Tom Holland
+
+Mon, 23 Mar 2026 13:53:29 GMT
+
+https://screenrant.com/spiderman-brand-new-day-tone-difference-mcu-trilogy-explained-tom-holland/
+
+Following the Spider-Man: Brand New Day trailer, Tom Holland shares how the fourth film will be massively different from his first MCU trilogy.
+---------
+
+# Reacher Star Alan Ritchson Caught Allegedly Beating Up Neighbor On Video
+
+TV, Reacher, Alan Ritchson
+
+Mon, 23 Mar 2026 13:35:57 GMT
+
+https://screenrant.com/reacher-alan-ritchson-assault-video-report/
+
+Alan Ritchson is caught on video beating up his neighbor, although there are very conflicting accounts of what led to the explosive moment.
+---------
+
+# Why Sam Mendes’ Beatles Cinematic Universe Is 2026's Real Blockbuster
+
+Music, The Beatles, Sam Mendes, The Beatles - Four Films, Paul Mescal, Barry Keoghan, Marvel Cinematic Universe, Harris Dickinson
+
+Mon, 23 Mar 2026 13:21:52 GMT
+
+https://screenrant.com/beatles-cinematic-universe-sam-mendes-blockbuster/
+
+Move over Marvel. From Paul Mescal's casting to the $400M budget, here's why the Sam Mendes Beatles "Cinematic Universe" is 2026's biggest movie story
+---------
+
+# New Xbox Livestream Coming Later This Week, Featuring "Brand-New Reveals"
+
+Gaming, Xbox Series X/S
+
+Mon, 23 Mar 2026 13:14:55 GMT
+
+https://screenrant.com/xbox-partner-preview-livestream-march-26-time/
+
+An Xbox Partner Preview has been announced for March 26, teasing upcoming games, brand-new reveals, and world premieres. Here's when and how to watch.
+---------
+
+# Apple TV's Divisive Psychological Thriller Isn't Winning Audiences Over On Rotten Tomatoes
+
+TV, Imperfect Women, Apple TV
+
+Mon, 23 Mar 2026 13:05:15 GMT
+
+https://screenrant.com/imperfect-women-apple-tv-rotten-tomatoes-score/
+
+Apple TV's divisive psychological thriller mystery show isn't winning audiences over on Rotten Tomatoes, less than a week after the series premiere.
+---------
+
+# Val Kilmer's Wyatt Earp is Worse Than Doc Holliday in Tombstone
+
+Movies, Western, Tombstone
+
+Mon, 23 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/val-kilmer-wyatt-earp-worse-than-doc-holliday-tombstone/
+
+Val Kilmer became famous in the Western genre for his performance as Doc Holliday, but he once played another titular Western hero with less success.
+---------
+
+# Brad Pitt's The Curious Case of Benjamin Button Is Losing Its Streaming Home Next Month
+
+Movies, The Curious Case of Benjamin Button, Brad Pitt
+
+Mon, 23 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/brad-pitt-curious-case-benjamin-button-leaving-paramount-april-2026/
+
+Pitt's epic fantasy romance movie will no longer be available for streaming in the coming weeks.
+---------
+
+# 10 Biggest Project Hail Mary Book-to-Movie Changes (And Why the Ending Is Different)
+
+Movies, Project Hail Mary, Sci-Fi
+
+Mon, 23 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-book-to-movie-changes-list/
+
+The Project Hail Mary movie changes some things from the book, including a darker reason behind Grace's amnesia.
+---------
+
+# For All Mankind Season 5 Review: Apple's Hard Sci-Fi Enters Its Riskiest Era Yet
+
+TV, For All Mankind, Apple TV, Sci-Fi
+
+Mon, 23 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/for-all-mankind-season-5-review/
+
+For All Mankind makes big leaps in its fifth season, where the fight for independence on Mars escalates into a universal conflict.
+---------
+
+# Adam Driver's 83% Rotten Tomatoes Sci-FI Thriller Is a Perfect Spielberg Homage
+
+Movie Features, Midnight Special, Michael Shannon, Adam Driver, Joel Edgerton
+
+Mon, 23 Mar 2026 13:50:12 GMT
+
+https://collider.com/adam-driver-michael-shannon-midnight-special-spielberg/
+
+Jeff Nichols’ Spielberg-influenced Midnight Special is an underrated sci-fi movie featuring Adam Driver and Michael Shannon.
+---------
+
+# 10 Movies That Sucked Because They Tried To Appeal to Everyone
+
+Movie, Justice League, Solo: A Star Wars Story, The Hobbit: The Battle of the Five Armies, Jupiter Ascending
+
+Mon, 23 Mar 2026 13:19:12 GMT
+
+https://collider.com/worst-movies-tried-to-appeal-to-everyone/
+
+From Cats to Jupiter Ascending, these movies tried to appeal to everyone, but lost their identity and struggled to connect with any audience.
+---------
+
+# 'For All Mankind' Season 5 Review: Apple TV's Best Sci-Fi Series Makes Another Colossal Change
+
+TV Reviews, For All Mankind, Joel Kinnaman, Ronald D. Moore, Apple TV
+
+Mon, 23 Mar 2026 13:00:13 GMT
+
+https://collider.com/for-all-mankind-season-5-review-apple-tv/
+
+Apple TV sci-fi series For All Mankind continues to thrive with groundbreaking changes and compelling storytelling in Season 5.
+---------
+
+# ‘DTF St. Louis’ Makes Unexpected Progress in Its Twisty Love Triangle Murder Mystery
+
+Exclusives, DTF St. Louis, Richard Jenkins, Joy Sunday, HBO Max
+
+Mon, 23 Mar 2026 13:00:13 GMT
+
+https://collider.com/dtf-st-louis-episode-4-richard-jenkins-joy-sunday-interview/
+
+Richard Jenkins and Joy Sunday discuss DTF St. Louis, their unconventional partnership, favorite scenes, and how Homer got his notebook.
+---------
+
+# 8 Forgotten Movies Turning 20 in 2026
+
+Movie, Electroma, Gamera The Brave, Desperation, Red Road
+
+Mon, 23 Mar 2026 12:51:12 GMT
+
+https://collider.com/forgotten-movies-turning-20-in-2026/
+
+Plenty of movies are celebrating their 20th anniversaries without much fanfare in 2026, including Electroma, Ten Canoes, and Gamera the Brave.
+---------
+
+# Marvel Had No Plans for Daredevil's Return Until 'Spider-Man: No Way Home' Cameo
+
+TV News, Daredevil: Born Again, Daredevil, Spider-Man: No Way Home, MCU
+
+Mon, 23 Mar 2026 14:01:35 GMT
+
+https://movieweb.com/spider-man-no-way-home-saved-daredevil/
+
+Had Charlie Cox not returned for a cameo in 'Spider-Man: No Way Home,' the MCU's Multiverse Saga would look very different.
+---------
+
+# 10 Perfect Amazon Prime Video Shows With No Bad Seasons
+
+TV Lists, Fleabag, Cross
+
+Mon, 23 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/perfect-prime-video-tv-shows/
+
+Consider this your cue to add these shows to your watchlist. These 10 Prime Video series are perfect from beginning to end.
+---------
+
+# 'The Madison' Star Confirms Exit Following Emotional Season 1 Finale
+
+TV News, The Madison, Taylor Sheridan, Matthew Fox
+
+Mon, 23 Mar 2026 13:34:24 GMT
+
+https://movieweb.com/the-madison-season-2-matthew-fox-paul-not-returning-confirmed/
+
+One of the key players in Season 1 of Taylor Sheridan's hit new Western, Matthew Fox, has officially confirmed the fate of his character, Paul.
+---------
+
+# 'The Office' Star Reveals Cut Joke That Made Him "Really Mad"
+
+TV News, The Office, Brian Baumgartner
+
+Mon, 23 Mar 2026 13:21:51 GMT
+
+https://movieweb.com/the-office-brian-baumgartner-kevin-malone-cut-joke-mad/
+
+Brian Baumgartner, who played Kevin Malone in The Office, was really upset when one of his jokes was cut from an early episode of the fifth season.
+---------
+
+# How 'Project Hail Mary's Rocky Looks In the Andy Weir Novel vs. the Movie
+
+Features, Project Hail Mary
+
+Mon, 23 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/project-hail-mary-rocky-book-movie-differences/
+
+Discover how accurately Rocky the alien is depicted in 'Project Hail Mary,' the sci-fi movie starring Ryan Gosling, vs. the book by Andy Weir.
+---------
+
 # LEGO Star Wars Officially Returns This Year
 
 Gaming, Lego Star Wars, Star Wars, PC
