@@ -1,3 +1,311 @@
+# How Peaky Blinders: The Immortal Man Pays Tribute To Helen McCrory's Polly
+
+Movies, Peaky Blinders: The Immortal Man
+
+Mon, 23 Mar 2026 21:15:20 GMT
+
+https://screenrant.com/how-the-peaky-blinders-movie-pays-tribute-to-missing-fan-favorite-character/
+
+The latest installment in the Peaky Blinders franchise, Peaky Blinders: The Immortal Man, paid tribute to one of its best and fan-favorite characters.
+---------
+
+# David Dastmalchian's New Psychological Thriller Also Came With A Career-First For The DCU Vet
+
+Movies, Sender, SXSW, David Dastmalchian
+
+Mon, 23 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/david-dastmalchian-sender-movie-career-first-cast-director-sxsw/
+
+David Dastmalchian and his Sender team talk their new psychological thriller and how it gave the DC Universe veteran a career-first with his role.
+---------
+
+# All 10 Marvel Villains In Spider-Man: Brand New Day, Ranked By Threat Level
+
+Movies, Ranking, Spider-Man: Brand New Day
+
+Mon, 23 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/spiderman-brand-new-day-marvel-villains-ranked-threat/
+
+The Spider-Man: Brand New Day trailer shows several villains that Spider-Man will face, while hinting at others and still hiding some known ones.
+---------
+
+# Netflix’s Hit 6-Part Psychological Thriller Gets Better With Each Episode
+
+TV, His & Hers
+
+Mon, 23 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/netflix-his-and-hers-psychological-thriller-better-episode/
+
+Two lovers must confront their dark pasts to unravel a twisted web of secrets that threaten to consume them in Netflix's new psychological thriller.
+---------
+
+# Xbox Game Pass Getting One Of The Most-Anticipated Sequels Of All-Time
+
+Gaming, Xbox Game Pass
+
+Mon, 23 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-day-one-may-subnautica-2/
+
+One of the newest titles coming to Xbox Game Pass is also one of the most anticipated sequels ever, so subcribers might want to give it a try.
+---------
+
+# HBO's New Harry Potter Series Is Officially Solving A 29-Year-Old Ron Weasley Mystery In Season 1
+
+TV, Harry Potter, Harry Potter - Season 1
+
+Mon, 23 Mar 2026 20:54:22 GMT
+
+https://screenrant.com/harry-potter-hbo-series-ron-nose-dirt-reason-mystery-solve/
+
+It’s been almost 30 years since the first Harry Potter book was released, but one unsolved mystery will finally be revealed in the upcoming TV show.
+---------
+
+# Every Sherlock Episode, Ranked Worst To Best
+
+Classic TV, Sherlock
+
+Mon, 23 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/sherlock-episodes-ranked-worst-to-best/
+
+The BBC's Sherlock is one of the best detective shows of all time, but as good as it is, some of its episodes are better than the rest.
+---------
+
+# Netflix's 3-Part Sci-Fi Series With Rare Perfect Rotten Tomatoes Score Has One Of Its Best First Seasons
+
+TV, Netflix, Travelers
+
+Mon, 23 Mar 2026 20:36:26 GMT
+
+https://screenrant.com/netflix-travelers-sci-fi-series-first-season-best/
+
+A Netflix sci-fi series that comes close to perfection is one of the shows on the streaming service to have an excellent, must-watch first season.
+---------
+
+# Jay Duplass Cast His New Biographical Movie's Lead On A Dare
+
+Movies, See You When I See You, Jay Duplass, SXSW
+
+Mon, 23 Mar 2026 20:34:31 GMT
+
+https://screenrant.com/jay-duplass-see-you-when-i-see-you-cooper-raiff-cast-dare-sxsw/
+
+Jay Duplass and his See You When I See You cast talk the biographical dramedy and how he cast the movie's leading star on a dare from the actor.
+---------
+
+# Apple TV's Hit 5-Part Space Opera Series Returns With Solid Rotten Tomatoes Score
+
+TV, For All Mankind, For All Mankind - Season 5
+
+Mon, 23 Mar 2026 20:32:28 GMT
+
+https://screenrant.com/for-all-mankind-season-5-rotten-tomatoes-score/
+
+One of Apple TV’s highest-rated series is about to return, and the upcoming season is already showing a lot of promise on Rotten Tomatoes.
+---------
+
+# 6 Years Later, Netflix’s 10/10 Post-Apocalypse Masterpiece Is Finally Returning For Season 2
+
+Anime, Dorohedoro, Netflix
+
+Mon, 23 Mar 2026 21:17:00 GMT
+
+https://www.cbr.com/netflix-crunchyroll-dorohedoro-season-2/
+
+Dorohedoro fans have been waiting over 5 years for new episodes, yet its imminent return sets the dark fantasy anime up for unprecedented success.
+---------
+
+# PlayStation's Most Overlooked Exclusive Is an Untouchable Cult Classic
+
+Games, PlayStation (Original), Sony, retro games
+
+Mon, 23 Mar 2026 21:15:13 GMT
+
+https://www.cbr.com/most-underrated-playstation-exclusive-game-ps3-folklore/
+
+Back on the PlayStation 3, a cult classic exclusive launched that not only puts other fantasy outings to shame, but was sorely overlooked by fans.
+---------
+
+# HBO Casts Mahershala Ali in Mark Ruffalo’s 96% RT Task Ahead of Season 2
+
+TV, Task
+
+Mon, 23 Mar 2026 21:05:08 GMT
+
+https://www.cbr.com/hbo-casts-mahershala-task-season-2/
+
+The Oscar-winning actor joins the critically acclaimed drama in a key role.
+---------
+
+# This Landmark Western Paved the Way For Generations of TV Programming — And Deserves Much More Recognition From Modern Fans
+
+TV, Western, Have Gun - Will Travel, CBS
+
+Mon, 23 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/have-gun-will-travel-underrated-western-influence/
+
+This forgotten Western series was not only one of the first episodic TV shows but also had a huge influence on Star Trek.
+---------
+
+# Marvel’s Biggest Problem Could Point To One Spider-Man Writer
+
+Comics, Marvel, dan slott, Absolute Batman
+
+Mon, 23 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/marvel-problem-dan-slott-spider-man/
+
+This comics writer recently asked for customers to save his Spider-Man series, but it's already proving to be a long-rumored Marvel problem.
+---------
+
+# Jane Lynch Confirms  Her Upcoming Law and Order Role: 'The Bar Was High'
+
+CBR Exclusives, Law and Order, Happy's Place
+
+Mon, 23 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/jane-lynch-teases-law-and-order-role/
+
+The Emmy Award-winning actor will play a "shark" lawyer on the procedural series.
+---------
+
+# Paramount+'s Sean Penn Documentary Titled Superpower Explains His 2026 Oscars Absence
+
+Movies, Superpower, One Battle After Another, Paramount+ with Showtime
+
+Mon, 23 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/sean-penn-oscars-absence-superpower-paramount/
+
+Sean Penn's absence at the Oscars wasn't a shock as it's tied to a powerful Paramount+ documentary called Superpower.
+---------
+
+# 15 Years Later, K-On! Is Still the Blueprint For Kyoto Animation's Success
+
+Anime, K-On!, kyoto animation, 2000s, Shojo
+
+Mon, 23 Mar 2026 20:44:09 GMT
+
+https://www.cbr.com/kyoto-animation-k-on-cute-girls-doing-cute-things-anime/
+
+Everything that makes watching cute girls doing cute things in anime started with this iconic 2000s series from acclaimed studio Kyoto Animation.
+---------
+
+# 'Carrie' Star Reveals a Major Update for Mike Flanagan's Next Prime Video Steven King Adaptation [Exclusive]
+
+Exclusives, Carrie, Mike Flanagan, Heather Graham, Fan Expo
+
+Mon, 23 Mar 2026 21:26:20 GMT
+
+https://collider.com/mike-flanagan-already-has-more-stephen-king-planned-for-prime-video-exclusive/
+
+Mike Flanagan is already working on more Stephen King adaptations for his new overall deal with Prime Video. Read on for more.
+---------
+
+# 7 Forgotten Thrillers That Are Still Perfect Today
+
+Movie, Thriller, End of Watch, Seconds, Roadgames
+
+Mon, 23 Mar 2026 21:22:13 GMT
+
+https://collider.com/forgotten-thriller-movies-still-perfect/
+
+Although largely forgotten by general audiences, thriller films like Road Games, Punishment Park, and End of Watch are still absolutely perfect today.
+---------
+
+# Prime Video’s 133-Minute ‘Reacher’ Replacement Is an Instant Streaming Hit
+
+Movie News, Reacher, Prime Video, Action, Thriller
+
+Mon, 23 Mar 2026 20:52:29 GMT
+
+https://collider.com/prime-video-reacher-replacement-agent-zeta-instant-streaming-hit-march-2026/
+
+Prime Video's latest attempt to recapture Reacher's success seems to have paid off handsomely. Find out how the streamer's new film is performing.
+---------
+
+# After ‘The Comeback,’ Watch This Underrated Lisa Kudrow Show on Netflix
+
+TV, Netflix, No Good Deed, The Dinosaurs, Supergirl
+
+Mon, 23 Mar 2026 20:47:13 GMT
+
+https://collider.com/best-netflix-shows-watch-week-march-23/
+
+The Dinosaurs, No Good Deed, and Supergirl make up our list of the best Netflix shows to watch the week of March 23, 2026.
+---------
+
+# All 7 Jurassic Park Movies, Ranked by Suspense
+
+Movie, Jurassic Park, The Lost World: Jurassic Park, Jurassic World
+
+Mon, 23 Mar 2026 20:45:13 GMT
+
+https://collider.com/jurassic-park-movies-ranked-suspense/
+
+From slow-burn dread to sharp chases, this ranking explores the franchise’s suspense, with Jurassic Park and Jurassic World defining tension.
+---------
+
+# Marvel's 'Blade' Star Joins Mark Ruffalo in Season 2 of HBO's Best Crime Series
+
+TV News, Task, Mahershala Ali, Brad Ingelsby, HBO Max
+
+Mon, 23 Mar 2026 20:36:48 GMT
+
+https://collider.com/mahershala-ali-cast-task-season-2-hbo-crime-series/
+
+Mahershala Ali has joined Mark Ruffalo in Season 2 of HBO's smash hit crime drama Task. Get all the details here.
+---------
+
+# 'IT: Welcome to Derry' Creators Confirm Season 2 Officially Happening
+
+TV News, It: Welcome to Derry, It, Andres Muschietti, Barbara Muschietti, Stephen King
+
+Mon, 23 Mar 2026 21:22:42 GMT
+
+https://movieweb.com/it-welcome-to-derry-season-2-renewal/
+
+Andy and Barbara Muschietti share that it's a matter of when, not if, and shared some plot details about the next outing.
+---------
+
+# 'Rad' Is Being Shown in Theaters After Being Unavailable On Streaming
+
+Features, Rad
+
+Mon, 23 Mar 2026 21:01:18 GMT
+
+https://movieweb.com/rad-theatrical-release-40th-anniversary/
+
+'Rad,' the sports movie released in 1986 starring Bill Allen and Lori Loughlin, is being released in movie theaters for a few nights in March 2026.
+---------
+
+# 'The Madison' Beats 'Marshals' on Paramount+ Streaming Chart
+
+TV News, The Madison
+
+Mon, 23 Mar 2026 20:46:22 GMT
+
+https://movieweb.com/the-madison-paramount-streaming-march-2026/
+
+Taylor Sheridan's new star-studded western drama 'The Madison' has beat out a 'Yellowstone' spin-off after a heart-wrenching season finale.
+---------
+
+# 'Wonder Man' Renewed for Season 2 by Marvel and Disney+
+
+TV News, Wonder Man, MCU, Disney+
+
+Mon, 23 Mar 2026 20:35:14 GMT
+
+https://movieweb.com/wonder-man-season-2-renewal/
+
+Following countless questions, Marvel has officially renewed 'Wonder Man' for a second season of action on Disney+.
+---------
+
 # Star Trek: TNG Surpassed TOS with 'Yesterday's Enterprise'
 
 Classic TV, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation
