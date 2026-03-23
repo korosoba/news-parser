@@ -1,3 +1,223 @@
+# Cornbread Mafia Documentary: True Story Of Legendary Cannabis Outlaws
+
+Movies, SXSW
+
+Mon, 23 Mar 2026 18:36:41 GMT
+
+https://screenrant.com/cornbread-mafia-how-iconic-outlaw-story-became-cat-mouse-doc/
+
+Discover the untold story of the Cornbread Mafia, a legendary cannabis operation turned documentary, as the filmmakers and former members reveal the origins and downfall of this notorious group.
+---------
+
+# Solo Leveling's One True Replacement is Finally Dropping in 2026, and Its New Trailer is Here at Last
+
+Anime, Solo Leveling
+
+Mon, 23 Mar 2026 18:30:18 GMT
+
+https://screenrant.com/tomb-raider-king-trailer-solo-leveling-replacement/
+
+Tired of waiting for Season 3 of Solo Leveling? Well, its biggest rival and successor is already on the way, and just dropped a new teaser!
+---------
+
+# Oda Has a Heart Breaking Reason For Approving One Piece's Big Remake
+
+Anime, One Piece
+
+Mon, 23 Mar 2026 18:26:19 GMT
+
+https://screenrant.com/one-piece-remake-heartbreaking-reason-approving/
+
+Eiichiro Oda reveals the real reason behind his desire to have an entire One Piece anime remake, and it is one that every fan will agree with.
+---------
+
+# Jim Morrison Miami Trial: The Story Behind The Mugshot That Killed The Doors
+
+Music, The Doors, No One Here Gets Out Alive: A Tribute To Jim Morrison, Classic Rock
+
+Mon, 23 Mar 2026 18:09:09 GMT
+
+https://screenrant.com/this-mugshot-killed-the-doors/
+
+Did the FBI kill The Doors? Discover the true story of Jim Morrison’s 1969 Miami arrest and the "missing" evidence that changed rock history forever.
+---------
+
+# Netflix's 7-Part Dystopian Series Made Sci-Fi Look Easy
+
+Streaming TV, Black Mirror
+
+Mon, 23 Mar 2026 18:05:19 GMT
+
+https://screenrant.com/netflixs-7-part-dystopian-series-made-sci-fi-look-easy/
+
+Netflix's iconic dystopian masterpiece made sci-fi storytelling look easy, prompting a slew of copycats that couldn't match its critical acclaim.
+---------
+
+# For All Mankind Season 5 Review: Apple TV's Otherworldly Sci-Fi Is At Its Peak
+
+Streaming TV, For All Mankind, For All Mankind - Season 5
+
+Mon, 23 Mar 2026 18:05:19 GMT
+
+https://screenrant.com/for-all-mankind-season-5-review/
+
+For All Mankind season 5 delivers one of the most compelling and tense seasons of the show to date as conflicts heat up and power hangs in the balance
+---------
+
+# Tim Roth Addresses Abomination's Potential MCU Villain Return 4 Years After She-Hulk
+
+Movies, She-Hulk: Attorney at Law, Marvel Cinematic Universe, The Incredible Hulk, Shang-Chi and the Legend of the Ten Rings, Tim Roth
+
+Mon, 23 Mar 2026 18:01:34 GMT
+
+https://screenrant.com/abomination-villain-mcu-return-potential-tim-roth-response/
+
+After playing Emil Blonsky/Abomination in The Incredible Hulk, Shang-Chi and She-Hulk, Tim Roth opens up about his potential MCU future.
+---------
+
+# Jude Law's 93% RT Crime Heist Movie Finds Redemption on Global Charts After Flopping in Theaters
+
+Movies, The Order, HBO Max
+
+Mon, 23 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/jude-law-the-order-crime-heist-hbo-max-success-march-2026/
+
+HBO Max subscribers are propelling an underseen crime heist movie starring Jude Law up the streaming charts.
+---------
+
+# Marvel and DC Blatantly Copied Each Other, And Fans Noticed
+
+Comics, Marvel, DC Comics, Batman
+
+Mon, 23 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/moments-when-marvel-dc-secretly-copied-each-other/
+
+Since the Golden Age, Marvel and DC have looked to each other for ideas, sometimes taking direct inspiration without credit.
+---------
+
+# Ryan Gosling's Colossal 2026 Sci-Fi Hit Is Officially Rivaling 'Oppenheimer's Massive Box Office Opening
+
+Movie News, Project Hail Mary, Andy Weir, Ryan Gosling, Sci-Fi
+
+Mon, 23 Mar 2026 18:38:30 GMT
+
+https://collider.com/project-hail-mary-breaks-box-office-record-amazon-mgm-ryan-gosling-sci-fi-blockbuster/
+
+Project Hail Mary, starring Ryan Gosling, breaks opening weekend box office records for Amazon MGM, and directors Phil Lord and Christopher Miller.
+---------
+
+# 10 Near-Perfect '90s Movies That No One Remembers Today
+
+Movie, Pleasantville, That Thing You Do!, Postcards From The Edge, Reversal of Fortune
+
+Mon, 23 Mar 2026 18:31:13 GMT
+
+https://collider.com/near-perfect-90s-movies-no-one-remembers/
+
+Some of the '90s greatest gems, like Postcards From the Edge and Exotica, have sadly been forgotten despite being near-perfect triumphs of the decade.
+---------
+
+# CBS Decides Fate of Tom Ellis' New ‘FBI’ Spin-Off Series After Just 5 Episodes
+
+TV News, CIA, Tom Ellis, CBS, FBI
+
+Mon, 23 Mar 2026 18:15:18 GMT
+
+https://collider.com/cia-season-2-renewed-cbs-fbi-spin-off-series-tom-ellis/
+
+CBS has decided to double down on FBI spin-off CIA after just five episodes, green lighting the Tom Ellis-led series for Season 2.
+---------
+
+# 'Reacher's Alan Ritchson Reportedly Attacked by Angry Neighbor in Violent Altercation
+
+TV News, Alan Ritchson, Reacher, Prime Video, TMZ
+
+Mon, 23 Mar 2026 18:08:50 GMT
+
+https://collider.com/reacher-alan-ritchson-neighborhood-fight-tennessee-altercation-police-involvement/
+
+Reacher's Alan Ritchson is officially working with the police after a shocking altercation with a neighbor outside his Tennessee home.
+---------
+
+# 'Star Trek: Starfleet Academy' Ending With Season 2
+
+TV News, Star Trek: Starfleet Academy
+
+Mon, 23 Mar 2026 18:41:30 GMT
+
+https://movieweb.com/star-trek-starfleet-academy-canceled/
+
+Paramount+ and CBS Studios have pulled the plug on 'Star Trek: Starfleet Academy', making it one of the shortest runs of any 'Star Trek' series.
+---------
+
+# John Boyega Has Called Dave Filoni and Hinted at Potential 'Star Wars' Return
+
+Movie News, Star Wars, John Boyega
+
+Mon, 23 Mar 2026 18:26:24 GMT
+
+https://movieweb.com/star-wars-john-boyega-return-lucasfilm-change/
+
+John Boyega confirms he's reached out to the new Lucasfilm head since the change was announced.
+---------
+
+# 'Hacks' Season 5 Trailer Reveals Deborah Vance Making One Last Comeback
+
+TV News, Hacks
+
+Mon, 23 Mar 2026 18:14:54 GMT
+
+https://movieweb.com/hacks-season-5-hbo-trailer/
+
+Jean Smart may be coming for that fifth Emmy once and for all.
+---------
+
+# 'The Housemaid's Secret' Officially Adds Kirsten Dunst to Sydney Sweeney Sequel
+
+Movie News, The Housemaid's Secret, The Housemaid, Sydney Sweeney, Kirsten Dunst
+
+Mon, 23 Mar 2026 18:12:24 GMT
+
+https://movieweb.com/the-housemaids-secret-kirsten-dunst-casting/
+
+Kirsten Dunst is set to star alongside Sydney Sweeney in 'The Housemaid' movie sequel 'The Housemaid's Secret.'
+---------
+
+# 'Alpha' Review: A Maddening, Boldly Original Look at Overcoming Trauma
+
+Movie Reviews, Alpha, Julia Ducournau
+
+Mon, 23 Mar 2026 18:02:31 GMT
+
+https://movieweb.com/alpha-review/
+
+Palme d'Or-winning director Julia Ducournau's visual brilliance remains intact, as does her penchant for often indecipherable storytelling
+---------
+
+# The 'Scrubs' Revival Deserves To Have Already Been Renewed by Now
+
+Features, Scrubs
+
+Mon, 23 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/scrubs-revival-earned-reward/
+
+'Scrubs' is currently in the middle of a nine-episode run. However, the show's revival has been so good that ABC should have already ordered more.
+---------
+
+# 10 Best Shows About the Yakuza
+
+TV Lists, Crime
+
+Mon, 23 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/yakuza-tv-shows/
+
+The following television shows examine Japan's largest criminal organization, the Yakuza, from various angles, making them essential viewing.
+---------
+
 # Top 5 Memorable Deaths In The Ready Or Not Horror Franchise
 
 Movies, Ready or Not
