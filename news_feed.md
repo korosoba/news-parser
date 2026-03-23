@@ -1,3 +1,322 @@
+# 3 Best Movies To Watch On Prime Video This Week (March 23-27)
+
+Classic Movies, Prime Video, Recommendation
+
+Mon, 23 Mar 2026 15:30:18 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-week-march-23/
+
+There are literally dozens of movies on Prime Video right now, but these three flicks should go to the top of your must-watch list.
+---------
+
+# Pokémon Alola Seaglass Could Be The Best Pokémon Game In Years
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 23 Mar 2026 15:22:31 GMT
+
+https://screenrant.com/pokemon-alola-seaglass-rom-hack-release-plans/
+
+In a year where Pokémon is commanding a lead in multiple forms of media, we're also getting a ton of fan output with some of the best games yet.
+---------
+
+# Yellowstone's Two Best Characters Officially Return In Two Months
+
+TV, The Dutton Ranch
+
+Mon, 23 Mar 2026 15:18:24 GMT
+
+https://screenrant.com/yellowstone-dutton-ranch-show-release-date-beth-rip-return-confirmed/
+
+With the release date for The Dutton Ranch confirmed, two of Yellowstone's best characters will soon get the chance to headline their own spinoff.
+---------
+
+# Undertale Officially Returns This Year With The Determination Symphony
+
+Gaming, Undertale, PC, Indie Games
+
+Mon, 23 Mar 2026 15:15:30 GMT
+
+https://screenrant.com/undertale-official-2026-return-determination-symphony/
+
+Undertale is going on an orchestral tour once again in 2026, bringing one of gaming's best soundtracks to wider audiences in grandiose fashion.
+---------
+
+# Mike Flanagan's "The Haunting of Hill House": Netflix's New Horror Genre
+
+Classic TV, The Haunting of Hill House
+
+Mon, 23 Mar 2026 15:15:19 GMT
+
+https://screenrant.com/haunting-of-hill-house-netflix-mike-flanagan-horror-miniseries-genre/
+
+Mike Flanagan has the title for horror champ for now, and his series of TV shows, beginning with The Haunting of Hill House, are their own genre.
+---------
+
+# Send Help Deleted Scene Finds Rachel McAdams & Dylan O'Brien At Each Other's Throats
+
+Exclusive, Send Help, Rachel McAdams, Dylan O'Brien
+
+Mon, 23 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/video/send-help-rachel-mcadams-dylan-obrien-digital-release-clip/
+
+Exclusive: ScreenRant presents an exclusive deleted scene from Send Help, featuring Rachel McAdams and Dylan O'Brien in all their acerbic glory.
+---------
+
+# Sonic The Hedgehog 4's Cast Quietly Revives A 20-Year Partnership
+
+Movies, Sonic the Hedgehog 4
+
+Mon, 23 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/sonic-the-hedgehog-4-cast-revives-partnership/
+
+Sonic the Hedgehog 4 brings yet another stacked list of actors, and also continues a beloved ongoing partnership from the last 20 years.
+---------
+
+# Beth & Rip Bring Crime & Murder To Texas In Gritty Trailer For Yellowstone Sequel Series Dutton Ranch
+
+TV, The Dutton Ranch, Yellowstone
+
+Mon, 23 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/dutton-ranch-show-trailer-yellowstone-sequel-beth-rip/
+
+Paramount just released a brand-new teaser trailer and first look images for the upcoming Yellowstone spinoff show, Dutton Ranch.
+---------
+
+# Crimson Desert: How To Find & Mount A Dragon
+
+Gaming, Crimson Desert, PC
+
+Mon, 23 Mar 2026 14:48:23 GMT
+
+https://screenrant.com/crimson-desert-find-mount-dragon/
+
+If you're looking to find and mount a dragon in Crimson Desert, you may want to temper your expectations quite a bit and prepare for a long haul.
+---------
+
+# Whiplash Vs Marty Supreme: Comparing Intense Performances & Themes
+
+Movies, Whiplash, Marty Supreme, Recommendation
+
+Mon, 23 Mar 2026 14:45:19 GMT
+
+https://screenrant.com/whiplash-movie-marty-supreme-miles-teller-similar/
+
+Every fan of Marty Supreme and Timothée Chalamet's performance in the movie must watch this 2014 film starring J.K. Simmons and Miles Teller.
+---------
+
+# Yellowstone Spinoff The Dutton Ranch Reveals Trailer & Release Date
+
+TV, The Dutton Ranch, Yellowstone, Paramount Plus
+
+Mon, 23 Mar 2026 15:21:55 GMT
+
+https://www.cbr.com/yellowstone-spinoff-the-dutton-ranch-trailer-release-date/
+
+Beth and Rip's Yellowstone spinoff finally receives a trailer and premiere date from Paramount+.
+---------
+
+# 7 Cult Classic PS1 Games No One Remembers in 2026
+
+Games, PlayStation (Original), retro games, Sony
+
+Mon, 23 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/cult-classic-ps1-games-no-one-remembers-2026/
+
+Some PS1 hidden gems built a cult following, but even those games have been forgotten in 2026.
+---------
+
+# Evangelion Ending Explained in Official Interview With Yoko Takahashi
+
+Anime, Neon Genesis Evangelion
+
+Mon, 23 Mar 2026 14:45:12 GMT
+
+https://www.cbr.com/evangelion-ending-explained-yoko-takahashi/
+
+Years after confusing many fans, the ending of the Evangelion anime series is being defended (and explained) by the official voice of the franchise.
+---------
+
+# What Happened to Emily in The Handmaid's Tale? Her Character Arc, Explained
+
+TV, The Handmaid's Tale, Drama, television, Hulu, feature
+
+Mon, 23 Mar 2026 14:30:12 GMT
+
+https://www.cbr.com/handmaids-tale-emily-fate-and-character-arc-explained/
+
+Handmaid's Tale is a stunning series, and Emily is a main character who has kept audiences coming back time and time again.
+---------
+
+# Reacher Star Alan Ritchson Caught Fighting Neighbor on Video
+
+TV, Reacher
+
+Mon, 23 Mar 2026 14:11:18 GMT
+
+https://www.cbr.com/reacher-alan-ritchson-fighting-neighbor-video/
+
+The Reacher star was caught on video as he had a physical disagreement with a neighbor.
+---------
+
+# Taylor Sheridan's Long-Awaited 'Yellowstone' Sequel Finally Arrives on May 15
+
+TV News, Yellowstone, The Dutton Ranch, Taylor Sheridan, Paramount Plus
+
+Mon, 23 Mar 2026 15:09:03 GMT
+
+https://collider.com/yellowstone-spin-off-dutton-ranch-trailer-release-date-taylor-sheridan-kelly-reilly-cole-hauser/
+
+Taylor Sheridan's next Yellowstone spin-off series, Dutton Ranch, starring Kelly Reilly and Cole Hauser, has released a first trailer.
+---------
+
+# The Best 3-Part Legal Thriller on TV Returns to Streaming This Week
+
+TV News, Daredevil: Born Again, Disney+, Marvel, Charlie Cox
+
+Mon, 23 Mar 2026 15:07:38 GMT
+
+https://collider.com/disney-plus-legal-thriller-daredevil-born-again-season-2-release-date-march-24-2026-this-week/
+
+Disney+’s epic legal thriller, Daredevil: Born Again, returns to streaming this week after a lengthy hiatus.
+---------
+
+# CBS’ Stellar New Sitcom Officially Reveals a Shocking Sneak Peek Ahead of Tonight's Episode [Exclusive]
+
+Exclusives, DMV, CBS, Tim Meadows, Harriet Dyer
+
+Mon, 23 Mar 2026 15:00:12 GMT
+
+https://collider.com/dmv-episode-14-sneak-peek-tim-meadows-alex-tarrant-cbs-underrated-sitcom/
+
+A new sneak peek from Episode 14 of CBS' comedy series DMV sees Tim Meadows learn something surprising about one of his co-workers
+---------
+
+# Henry Cavill’s Colossal Fantasy Remake Gets Dark New Images
+
+Movie News, Highlander, Henry Cavill, Highlander Reboot, Russell Crowe
+
+Mon, 23 Mar 2026 14:56:12 GMT
+
+https://collider.com/henry-cavill-colossal-fantasy-epic-highlander-reboot-set-images/
+
+Henry Cavill’s colossal fantasy epic, Chad Stahelski’s Highlander reboot, gets a new look via set images.
+---------
+
+# Beloved 8-Part Fantasy Series With Near-Perfect Rotten Tomatoes Score May Not Officially Be Over
+
+TV News, Outlander, STARZ, Fantasy, Caitriona Balfe
+
+Mon, 23 Mar 2026 14:49:29 GMT
+
+https://collider.com/outlander-8-part-fantasy-series-may-not-be-over-additional-books/
+
+Outlander’s showrunner teases that the 8-part fantasy series may not be officially over, as the series wraps up before the final books have been relea
+---------
+
+# Rebecca Ferguson Hints at Return to Netflix's Greatest Crime Series
+
+Movie News, Rebecca Ferguson, Peaky Blinders: The Immortal Man, Netflix, Peaky Blinders
+
+Mon, 23 Mar 2026 14:48:18 GMT
+
+https://collider.com/rebecca-ferguson-netflix-crime-thriller-peaky-blinders-return-potential/
+
+Rebecca Ferguson teases that she might return to the Peaky Blinders universe, following the epic new movie.
+---------
+
+# Netflix Just Removed One of Taylor Sheridan’s Best Gritty Thrillers
+
+TV News, Lioness, Taylor Sheridan, Netflix, Paramount Plus
+
+Mon, 23 Mar 2026 14:37:10 GMT
+
+https://collider.com/netflix-removes-taylor-sheridan-lioness-series-internationally/
+
+The hit series will likely not return to the streamer for future seasons.
+---------
+
+# 3 of the Greatest Rock Concept Albums of All Time
+
+Music Features, Rock, Music, My Chemical Romance: Life on the Murder Scene, The Beatles, Green Day
+
+Mon, 23 Mar 2026 14:30:31 GMT
+
+https://collider.com/3-greatest-rock-concept-albums-of-all-time-the-beatles-green-day-my-chemical-romance/
+
+Discover the groundbreaking rock concept albums that pushed boundaries and redefined the genre, featuring Green Day's American Idiot, My Chemical Romance's The Black Parade, and The Beatles' Sgt. Pepper's Lonely Hearts Club Band.
+---------
+
+# Chuck Norris’ Bodyguard Officially Reveals What the Late Star, 86, Thought of the Memes About Him
+
+TV News, Chuck Norris, Chuck Norris: Karate Kommandos, Obituary, TMZ
+
+Mon, 23 Mar 2026 14:22:23 GMT
+
+https://collider.com/chuck-norris-loved-memes-about-him-late-action-star-dead-86-bodyguard-reaction/
+
+Chuck Norris’ bodyguard has officially revealed what the late action star really thought of all the internet memes.
+---------
+
+# 25 Best Psychological Thrillers With Great Acting, Ranked
+
+Movie, Thriller, Silence of the Lambs, Nightcrawler, Gone Girl
+
+Mon, 23 Mar 2026 14:14:13 GMT
+
+https://collider.com/best-psychological-thrillers-great-acting/
+
+Nightcrawler, Gone Girl, and The Silence of the Lambs are among the best psychological thriller movies with incredible performances.
+---------
+
+# Netflix To Adapt Superhero Comic'Powers' Into Adult Animation Series
+
+TV News, Powers
+
+Mon, 23 Mar 2026 15:07:22 GMT
+
+https://movieweb.com/netflix-powers-animated-series/
+
+Netflix may just found the perfect response to the popularity of 'Invincible' with an animated adaptation of 'Powers.'
+---------
+
+# Ryan Gosling Missed Tom Cruise Landing Helicopter on 'Star Wars: Starfighter' Set
+
+Movie News, Star Wars: Starfighter, Ryan Gosling, Tom Cruise
+
+Mon, 23 Mar 2026 15:05:44 GMT
+
+https://movieweb.com/star-wars-starfighter-ryan-gosling-missed-tom-cruise/
+
+Ryan Gosling missed Tom Cruise's surprise visit to the set of 'Star Wars: Starfighter' because it happened to be his one scheduled day off.
+---------
+
+# 'Supernatural' & 'iZombie' Star Carrie Ann Fleming Dies Aged 51
+
+TV News, Supernatural, iZombie
+
+Mon, 23 Mar 2026 14:51:46 GMT
+
+https://movieweb.com/supernatural-carrie-anne-fleming-dead/
+
+Carrie Ann Fleming, best known for her fan-favorite roles in 'Supernatural' and 'iZombie,' passed away in February at 51 years old.
+---------
+
+# 'Agent Zeta' Action Thriller Finds Quick Success on Prime Video
+
+Movie News, Action, Thriller, Prime Video
+
+Mon, 23 Mar 2026 14:30:17 GMT
+
+https://movieweb.com/agent-zeta-action-stream-prime-march-2026/
+
+The Jason Bourne meets Jason Statham spy thriller is quickly climbing the ranks on Amazon Prime Video after debuting last week.
+---------
+
 # The Madison Cast Exit Derails Season 2 Of Taylor Sheridan's New Hit Western Series
 
 Streaming TV, The Madison
