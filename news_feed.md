@@ -1,3 +1,135 @@
+# Zelda: Twilight Princess 4K Update Leaves Gamers Drooling
+
+Gaming, The Legend of Zelda: Twilight Princess
+
+Mon, 23 Mar 2026 11:30:17 GMT
+
+https://screenrant.com/zelda-twilight-princess-4k-update-2026/
+
+Fans are eagerly anticipating a potential 4K remaster of The Legend of Zelda: Twilight Princess.
+---------
+
+# Fallout Returning In 2027 With A New Game
+
+Gaming, Fallout: New Vegas, Fallout
+
+Mon, 23 Mar 2026 11:00:20 GMT
+
+https://screenrant.com/fallout-chicago-2027-unofficial-game-release-window/
+
+Fallout Chicago just released a new demo, and the developers are now aiming for a full release in 2027.
+---------
+
+# The Warner Bros. Merger Changes Everything For Star Trek Movies
+
+Movies, Star Trek, paramount pictures, warner bros
+
+Mon, 23 Mar 2026 11:30:12 GMT
+
+https://www.cbr.com/star-trek-no-more-movies-warner-bros-paramount-merger/
+
+With SkyDance's purchase of both Paramount and Warner Bros. it may be even more difficult for Star Trek to find a way to movie screens in the future.
+---------
+
+# 10 Fan-Favorite DC Characters Who Completely Vanished
+
+Comics, DC Comics
+
+Mon, 23 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/popular-dc-characters-who-completely-vanished/
+
+Where did they go, DC Comics?
+---------
+
+# 40 Best Comedy Series of All Time, Ranked According to IMDb
+
+TV, Comedy, South Park, Rick and Morty, The Office
+
+Mon, 23 Mar 2026 11:36:12 GMT
+
+https://collider.com/best-comedy-shows-of-all-time-ranked-imdb/
+
+If you're in need of a new comedy series, check out IMDb to find some of the top funniest shows, including South Park and Rick and Morty.
+---------
+
+# This 'Project Hail Mary' Star Delivered a Perfect Performance in a 96% Rotten Tomatoes Crime Drama Now on Netflix
+
+Movie Features, Project Hail Mary, Sandra Hüller, Anatomy of a Fall, Netflix
+
+Mon, 23 Mar 2026 11:36:12 GMT
+
+https://collider.com/sandra-huller-anatomy-of-a-fall-netflix/
+
+3 years before Project Hail Mary, Sandra Hüller earned an Oscar nomination for her performance in Anatomy of a Fall, which is now on Netflix.
+---------
+
+# 10 Years Later, the Bizarre Movie That Beat Ryan Gosling's 'The Nice Guys' Will Leave Streaming This Month
+
+Movie News, Prime Video, The Angry Birds Movie, The Nice Guys, Ryan Gosling
+
+Mon, 23 Mar 2026 11:21:12 GMT
+
+https://collider.com/ryan-gosling-the-nice-guys-overtaken-by-the-angry-birds-movie-at-box-office-leaving-streaming-prime-video-march-31-2026/
+
+The Angry Birds Movie, the 2016 animated hit that beat Ryan Gosling's The Nice Guys at the box office, is about to leave streaming.
+---------
+
+# 'Invincible's Sandra Oh Explains Season 4's Completely New Spotlight on the Grayson Family
+
+Interviews, Invincible, Sandra Oh
+
+Mon, 23 Mar 2026 11:15:13 GMT
+
+https://collider.com/invincible-season-4-sandra-oh-debbie-mark-nolan-omni-man-prime-video-interview/
+
+Invincible's Sandra Oh talks about Debbie's emotional state in Season 4.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — March 23, 2026
+
+TV, The Diplomat, Felicity, The Americans, Running Wilde
+
+Mon, 23 Mar 2026 11:01:12 GMT
+
+https://collider.com/tv-quiz-mar-23-2026-keri-russell-felicity-diplomat/
+
+Rustle up the knowledge that you carry about Keri Russell, and see what you can recall about her shows and roles.
+---------
+
+# Paul Thomas Anderson's Post-WWII Cult Classic Storms Off Prime Video in 8 Days
+
+Movie News, The Master, Paul Thomas Anderson, Philip Seymour Hoffman, Joaquin Phoenix
+
+Mon, 23 Mar 2026 11:00:13 GMT
+
+https://collider.com/paul-thomas-anderson-the-master-ww2-cult-classic-leaving-streaming-prime-video-march-31-2026/
+
+The Master, Paul Thomas Anderson’s acclaimed 2012 WW2 drama starring Joaquin Phoenix and Philip Seymour Hoffman, is leaving streaming.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 23, 2026
+
+Movie, The Ides of March, Knives Out, Remember the Titans, The Peacemaker
+
+Mon, 23 Mar 2026 10:59:13 GMT
+
+https://collider.com/movie-quiz-mar-23-2026-clooney-gosling-ides-of-march/
+
+It's been over a week since the Ides of March (3/15). Today we're pitting the stars of that film (George Clooney and Ryan Gosling) against each other.
+---------
+
+# 'Ted' Season 2's Abortion Episode Is Way Edgier Than Its Banned 'Family Guy' Counterpart
+
+Features, Ted, Family Guy
+
+Mon, 23 Mar 2026 11:00:18 GMT
+
+https://movieweb.com/ted-family-guy-controversial-episodes/
+
+Fox prevented an episode of 'Family Guy' from hitting the airwaves in 2020, but another Seth MacFarlane show just got around the same problem.
+---------
+
 # Steam 2022 Game Completely Free To Keep Forever Before March 25
 
 Gaming, Steam
