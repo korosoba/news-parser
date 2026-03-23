@@ -1,3 +1,91 @@
+# Another Agent May Be Leaving NCIS In New Finale Preview
+
+TV, NCIS, NCIS: Origins, NCIS: Origins - Season 2
+
+Mon, 23 Mar 2026 23:47:46 GMT
+
+https://screenrant.com/ncis-origins-season-2-mary-jo-exit/
+
+NCIS might have another casting change on its hands as fans wait for the season finale. A clue on who might be leaving is in the latest NCIS trailer.
+---------
+
+# Jason Segel's New Thriller Remake Director Really Wanted To See Him "Get Beat To S--t" In Over Your Dead Body
+
+Movies, Over Your Dead Body, SXSW, Jason Segel, Samara Weaving
+
+Mon, 23 Mar 2026 23:44:30 GMT
+
+https://screenrant.com/jason-segel-over-your-dead-body-remake-beat-up-director-writers-cast-sxsw/
+
+Director Jorma Taccone and the team behind Over Your Dead Body talk the thriller remake and why he wanted to see Jason Segel "get beat to s--t."
+---------
+
+# 12 Best Manhwa Recommendations
+
+Anime, manwha, webtoon, HYBE Webtoons
+
+Mon, 23 Mar 2026 23:40:12 GMT
+
+https://www.cbr.com/perfect-manhwa-recommendations/
+
+Manhwa like Solo Leveling have have been dominating in readers' lists for a while, and there are plenty out there that shouldn't be ignored.
+---------
+
+# Sailor Moon Ocean Bomb Returns With New Can Design After 2 Years
+
+Anime, Sailor Moon, merchandise
+
+Mon, 23 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/sailor-moon-crystal-ocean-bomb-new-can-design-reveal/
+
+Sailor Moon is getting a new design for one of the most beloved merchandise lines, and the rest of the Sailor Guardians aren't far behind.
+---------
+
+# Netflix's ‘Virgin River’ Season 7 Finale Twist Sets Up Mel and Jack’s Toughest Chapter Yet
+
+TV News, Virgin River, Netflix, Drama, Martin Henderson
+
+Mon, 23 Mar 2026 23:43:49 GMT
+
+https://collider.com/virgin-river-showrunner-patrick-sean-smith-mel-jack-season-7-twist-explained/
+
+Virgin River showrunner Patrick Sean Smith discusses Mel and Jack's challenging journey and defends the heartbreaking twist in the Season 7 finale.
+---------
+
+# 47 Years Ago, This No. 1 Queen Song Inspired by Elvis Presley Became One of the Band’s Biggest Hits
+
+Music Features, Freddie Mercury, Queen, Brian May, Elvis Presley
+
+Mon, 23 Mar 2026 23:38:11 GMT
+
+https://collider.com/47-years-ago-queen-song-crazy-little-thing-called-love-inspired-by-elvis-presley/
+
+Written in only 10 minutes, Queen’s Crazy Little Thing Called Love was inspired by Elvis Presley and became one of the band’s most unexpected No. 1.
+---------
+
+# 11 Years Later, Matt Damon’s $600M Sci-Fi Gem Is Dominating Streaming Once Again
+
+Movie News, The Martian, Ridley Scott, Sci-Fi, Prometheus
+
+Mon, 23 Mar 2026 23:36:24 GMT
+
+https://collider.com/ridley-scott-least-controversial-sci-fi-epic-the-martian-digital-vod-success-itunes-march-2026/
+
+The Martian, Ridley Scott's 2015 sci-fi blockbuster starring Matt Damon, is once again dominating streaming charts 11 years after its release.
+---------
+
+# This Forgotten 3-Part Sci-Fi Gem Quietly Rewrites the Superhero Genre's Rules
+
+TV Features, The Greatest American Hero, Superhero, Sci-Fi, Fantasy
+
+Mon, 23 Mar 2026 23:33:12 GMT
+
+https://collider.com/the-greatest-american-hero-sci-fi-series-rewrites-rules/
+
+The forgotten sci-fi series The Greatest American Hero, starring William Katt as the unlikely hero Ralph, is a fun, free-to-watch binge for superhero
+---------
+
 # Marvel Officially Crowns Its Permanent New Sorcerer Supreme
 
 Comics, Marvel
