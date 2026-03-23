@@ -1,3 +1,278 @@
+# Prime Video's The Summer I Turned Pretty Replacement Sets Release Date & Unveils First Look Images
+
+TV, Every Year After, The Summer I Turned Pretty
+
+Mon, 23 Mar 2026 19:34:33 GMT
+
+https://screenrant.com/every-year-after-show-prime-video-images-release-date/
+
+Prime Video has found the perfect replacement for those missing The Summer I Turned Pretty in the new romance series Every Year After.
+---------
+
+# Did X-Men Just Show Us Cyclops' Permanent New Powers?
+
+Marvel Comics, Cyclops, X-Men, Marvel
+
+Mon, 23 Mar 2026 19:32:54 GMT
+
+https://screenrant.com/x-men-cyclops-new-powers/
+
+Cyclops' powers might evolve in Marvel's new X-Men series, as he seemingly gains the ability to manipulate his optic blasts in a brand-new way.
+---------
+
+# The Mandalorian Is A Masterclass In How To Divide A Fandom
+
+Streaming TV, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Mon, 23 Mar 2026 19:31:20 GMT
+
+https://screenrant.com/the-mandalorian-hype-dead-season-3-movie/
+
+Explore how The Mandalorian, once a cultural sensation, divided its fan base with its third season, and the challenges the upcoming movie faces to regain its widespread appeal.
+---------
+
+# Avatar 4 & Avatar 5's Fate Seemingly Confirmed After Fire & Ash Finishes $1.4B Box Office Run
+
+Movies, Avatar 4, Avatar 5, Avatar: Fire and Ash, Avatar
+
+Mon, 23 Mar 2026 19:26:32 GMT
+
+https://screenrant.com/avatar-4-avatar-5-release-date-confirmed-disney-schedule/
+
+Avatar 4 and Avatar 5's fate has seemingly been confirmed after Fire & Ash finishes its $1.4 billion run at the box office.
+---------
+
+# J.J. Abrams' 6-Part Sci-Fi Series Made Mystery Box Shows Look Easy
+
+Classic TV, Lost, J.J. Abrams, Sci-Fi
+
+Mon, 23 Mar 2026 19:24:47 GMT
+
+https://screenrant.com/lost-sci-fi-series-made-mystery-box-shows-look-easy/
+
+One show mastered the art of the cliffhanger, leaving viewers on the edge of their seats in a way that many tried to copy but none could replicate.
+---------
+
+# HBO Max's Thriller With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, HBO Max, Juror #2
+
+Mon, 23 Mar 2026 19:21:52 GMT
+
+https://screenrant.com/hbo-max-juror-number-2-thriller-movie-best/
+
+One of the best movies on HBO Max is a thought-provoking thriller directed by a Hollywood legend with a few major stars, and its ending is shocking.
+---------
+
+# The X-Files: A Sci-Fi Thriller That Has Aged Exceptionally Well
+
+Classic TV, The X-Files
+
+Mon, 23 Mar 2026 19:15:19 GMT
+
+https://screenrant.com/the-x-files-shows-modern-sci-fi-series-how-its-done/
+
+The X-Files is one of the greatest sci-fi TV shows of all time, and all 11 seasons of the procedural are still as worth watching now as ever.
+---------
+
+# Pokémon Fans Hoping Pokopia DLC Fixes Major Oversight
+
+Gaming, Pokemon Pokopia
+
+Mon, 23 Mar 2026 19:00:21 GMT
+
+https://screenrant.com/pokemon-pokopia-dlc-ice-type/
+
+Pokémon fans notice the absence of Ice-type Pokémon in Pokopia and hope for a snowy DLC to introduce cold biomes to the cozy life sim.
+---------
+
+# Jo Nesbø’s Detective Hole Review: Netflix’s Atmospheric Crime Thriller Is Elevated By A Stellar Cast
+
+Streaming TV, Joe Nesbø's Detective Hole, Jo Nesbo's Detective Hole - Season 1, Netflix
+
+Mon, 23 Mar 2026 18:59:34 GMT
+
+https://screenrant.com/jo-nesbo-detective-hole-season-1-review/
+
+Although Jo Nesbø’s Detective Hole is weighed down by its long runtime, it proves to be an atmospheric crime thriller with memorable performances.
+---------
+
+# Netflix’s New 5-Part Thriller & 4 More Shows Worth Watching This Week
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 23 Mar 2026 18:52:21 GMT
+
+https://screenrant.com/netflix-new-shows-to-watch-this-week/
+
+Netflix's new 5-part thriller Radioactive Emergency is a must-watch this week, as well as Something Very Bad Is Going To Happen and Detective Hole.
+---------
+
+# HBO's Half Man From Baby Reindeer Creator Is Releasing in April 2026
+
+TV, Half Man, Baby Reindeer
+
+Mon, 23 Mar 2026 19:26:55 GMT
+
+https://www.cbr.com/richard-gadd-half-man-release-date/
+
+After Baby Reindeer's resounding success, the show's creator has a brand-new project coming out soon.
+---------
+
+# Project Hail Mary Was Almost Banned From Using One Very Important Song
+
+CBR Exclusives, Project Hail Mary
+
+Mon, 23 Mar 2026 19:22:25 GMT
+
+https://www.cbr.com/phil-lord-christopher-miller-beatles-song-project-hail-mary/
+
+This song was worth the fight for earning the rights to.
+---------
+
+# Sydney Sweeney's The Housemaid Can Be Her Billion-Dollar Franchise
+
+Movies, The Housemaid
+
+Mon, 23 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-billion-dollar-franchise/
+
+Sydney Sweeney's recent novel adaptation smash hit, which she helped produce, shows an alternate path for franchise box office success in the 2020s.
+---------
+
+# 8 New The Walking Dead Spinoffs the Franchise Can't Afford to Skip
+
+TV, The Walking Dead, The Walking Dead: Daryl Dixon, The Walking Dead: Dead City
+
+Mon, 23 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/the-walking-dead-spinoffs-fans-want-list/
+
+After the upcoming seasons of Daryl Dixon and Dead City, the Walking Dead franchise can develop in many other brilliant spinoffs.
+---------
+
+# Witch Hat Atelier Is Tearing Down the New Isekai Fantasy Era in 2026
+
+Anime, Witch Hat Atelier, Crunchyroll, Isekai
+
+Mon, 23 Mar 2026 18:55:17 GMT
+
+https://www.cbr.com/witch-hat-atelier-crunchyroll-best-fantasy-not-isekai/
+
+Crunchyroll's next big hit is the biggest threat to the dominance of isekai fantasy anime in 2026.
+---------
+
+# These Noir Movies Are Near-Perfect Masterpieces
+
+Movie, Film Noir, Touch of Evil, Dark Passage, Mildred Pierce
+
+Mon, 23 Mar 2026 19:40:12 GMT
+
+https://collider.com/noir-movies-almost-masterpieces/
+
+From Mildred Pierce to Touch of Evil, these film noir masterpieces are still highly regarded because they come extremely close to utter perfection.
+---------
+
+# 8 Thriller Shows Where Every Episode Is 10/10, No Notes
+
+TV, Thriller, From, Severance, Fargo
+
+Mon, 23 Mar 2026 19:36:13 GMT
+
+https://collider.com/thriller-shows-every-episode-perfect-no-notes/
+
+The Americans, From, and Severance are among the masterful thriller TV shows that keep every episode unpredictable and impossible to stop watching.
+---------
+
+# 'NCIS' Longest-Serving Cast Member With 400+ Episodes Was Never Supposed To Be a Main Character
+
+TV Features, NCIS, Sean Murray, CBS, Action
+
+Mon, 23 Mar 2026 19:36:13 GMT
+
+https://collider.com/ncis-mcgee-sean-murray-longest-serving-cast-member/
+
+Sean Murray's Agent McGee was only supposed to be in one episode of NCIS, but a last-minute invite back changed everything.
+---------
+
+# Chuck Norris’ Stellar 9-Part Western Masterpiece Is Officially a Global Streaming Hit
+
+TV News, Chuck Norris, Walker, Texas Ranger, Crime, Apple
+
+Mon, 23 Mar 2026 19:21:38 GMT
+
+https://collider.com/chuck-norris-global-crime-stopping-hit-walker-texas-ranger-streaming-success-apple-tv-march-2026/
+
+Following Chuck Norris' death, his popular martial arts Western series surged in popularity on streaming, becoming a must-watch. Get all the details.
+---------
+
+# After ‘Project Hail Mary,’ Head to Netflix To Watch Ryan Gosling’s Best Rom-Com
+
+Movie, Netflix, Crazy, Stupid, Love., Sisu: Road to Revenge, The Bad Guys 2
+
+Mon, 23 Mar 2026 19:19:12 GMT
+
+https://collider.com/best-netflix-movies-watch-week-march-23/
+
+Sisu: Road to Revenge, The Bad Guys 2, and Crazy, Stupid, Love make up our list of the best movies to watch on Netflix the week of March 23, 2026.
+---------
+
+# 10 Years Later, This Stellar 3-Part Reboot Is Perfect for Sci-Fi Fans
+
+TV Features, Star Trek, J.J. Abrams, Chris Pine
+
+Mon, 23 Mar 2026 19:00:14 GMT
+
+https://collider.com/star-trek-reboot-jj-abrams-10-years-later/
+
+J.J. Abrams' take on Star Trek gave the iconic sci-fi franchise a new lease on life thanks to incredible casting and a smart premise.
+---------
+
+# Harry Potter Star Officially Addresses Snape Casting Backlash Ahead of 2027 Premiere
+
+TV News, Harry Potter, HBO
+
+Mon, 23 Mar 2026 19:00:08 GMT
+
+https://collider.com/harry-potter-new-snape-paapa-essiedu-death-threats-response-casting-backlash/
+
+Paapa Essiedu has revealed that he has received death threats and racist abuse since being cast as Severus Snape in HBO’s upcoming Harry Potter series
+---------
+
+# 10 Bruce Springsteen Songs You NEED To See Live In 2026
+
+Music Features, Bruce Springsteen, Rock, Music, Road Diary: Bruce Springsteen and The E Street Band
+
+Mon, 23 Mar 2026 18:46:12 GMT
+
+https://collider.com/bruce-springsteen-songs-to-see-live-in-2026/
+
+These are the 10 songs that you need to see Bruce Springsteen and the E Street Band perform live in 2026 on the Land of Hope and Dreams American Tour.
+---------
+
+# Drew Goddard Details His Vision for Scrapped Spider-Man Film 'The Sinister Six'
+
+Movie News, The Sinister Six, Drew Goddard, Spider-Man
+
+Mon, 23 Mar 2026 19:02:38 GMT
+
+https://movieweb.com/spider-man-sinister-six-drew-goddard-explained/
+
+Drew Goddard revealed he wanted his Sinister Six movie to feel like a summer annual, explaining how the 2014 Sony hack doomed the film.
+---------
+
+# 'Project Hail Mary's Unexpected Post-Credits Scene Is Worth Sticking Around
+
+Features, Project Hail Mary, Sci-Fi
+
+Mon, 23 Mar 2026 19:00:19 GMT
+
+https://movieweb.com/project-hail-mary-unexpected-post-credits/
+
+'Project Hail Mary' shares one final moment with the audience that is definitely unexpected, but adds another touching moment.
+---------
+
 # Cornbread Mafia Documentary: True Story Of Legendary Cannabis Outlaws
 
 Movies, SXSW
