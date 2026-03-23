@@ -1,3 +1,333 @@
+# 3 Best Movies To Watch On Netflix This Week (March 23-27)
+
+Classic Movies, Netflix, Recommendation
+
+Mon, 23 Mar 2026 16:46:18 GMT
+
+https://screenrant.com/best-netflix-movies-watch-week-march-23/
+
+If you're tired of spending hours looking for something to watch on Netflix, why not check out these three flicks that are guaranteed to please?
+---------
+
+# CIA Season 2's Fate Officially Decided By CBS After Rocky Season 1 Production
+
+TV, CIA, FBI
+
+Mon, 23 Mar 2026 16:44:51 GMT
+
+https://screenrant.com/cia-season-2-renewal-cbs/
+
+CBS has now announced an official decision on the fate of CIA season 2, the latest spinoff series in the network's hit FBI TV franchise.
+---------
+
+# GTA 6 Fans Torn Over Nintendo Switch 2 Version
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Mon, 23 Mar 2026 16:33:41 GMT
+
+https://screenrant.com/gta-6-nintendo-switch-2-leaks/
+
+We're just months away from the launch of Grand Theft Auto 6, and fans are already wondering what the deal is with a Switch 2 port.
+---------
+
+# Marvel Officially Confirms JIGSAW For Next Punisher Comic
+
+Marvel Comics, The Punisher, Marvel
+
+Mon, 23 Mar 2026 16:31:18 GMT
+
+https://screenrant.com/punisher-vs-jigsaw-new-appearance/
+
+Marvel officially brings back Frank Castle's greatest enemy as the main antagonist for the next big chapter in the Punisher's war against crime.
+---------
+
+# Malcolm in the Middle: The Underrated 2000s Sitcom That Paved the Way
+
+Classic TV, Malcolm in the Middle
+
+Mon, 23 Mar 2026 16:31:18 GMT
+
+https://screenrant.com/malcolm-in-the-middle-underrated-2026-revival/
+
+26 years ago, a series starring Bryan Cranston was released, yet it remains underrated even with a revival, which is set to premiere in 2026.
+---------
+
+# Why Prime Video's New #1 Movie Is Taking Over The World (The Sci-Fi Thriller Was A Box Office Flop)
+
+New Movies, Prime Video, Mercy
+
+Mon, 23 Mar 2026 16:15:18 GMT
+
+https://screenrant.com/mercy-movie-prime-video-trending-worldwide/
+
+Prime Video has a new movie trending worldwide after its streaming debut, turning a sci-fi thriller from a box office flop into a huge hit.
+---------
+
+# Dakota Fanning's Marvel Casting Is Officially Debunked After MCU Casting Rumors
+
+Movies, Marvel Cinematic Universe, Dakota Fanning
+
+Mon, 23 Mar 2026 16:09:26 GMT
+
+https://screenrant.com/dakota-fanning-mcu-casting-rumors-response/
+
+After several years of being rumored to have been cast in the Marvel Cinematic Universe franchise, Dakota Fanning finally sets the record straight.
+---------
+
+# Bachelor Mansion Takeover Is Officially The Best Bachelor Spin-Off Series
+
+Reality TV, Bachelor Mansion Takeover
+
+Mon, 23 Mar 2026 16:06:31 GMT
+
+https://screenrant.com/bachelor-mansion-take-over-officially-best-bachelor-spin-off-series/
+
+HGTV's Bachelor Mansion Takeover is the latest Bachelor spin-off series, and it's definitely the best show in the franchise for so many reasons.
+---------
+
+# Dragon Ball Super Releases New Manga, But There's One Big Catch
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Mon, 23 Mar 2026 16:03:10 GMT
+
+https://screenrant.com/dragon-ball-super-new-manga-action-figure/
+
+Dragon Ball Super fans get excited, because a brand-new manga for the Super series was just announced, but there is a massive catch to it.
+---------
+
+# Kayce Dutton's New Potential Love Interest After Monica's Death Will Cause Problems With Yellowstone Characters
+
+TV, Marshals, Yellowstone
+
+Mon, 23 Mar 2026 16:02:53 GMT
+
+https://screenrant.com/marshals-show-kayce-dutton-love-interest-conflict-yellowstone-characters/
+
+Kayce Dutton's new possible love interest following Monica's death is going to cause some problems for Yellowstone's characters, says returning actor.
+---------
+
+# 5 Unusable Jujutsu Kaisen Cursed Techniques
+
+Anime, Jujutsu Kaisen
+
+Mon, 23 Mar 2026 16:50:11 GMT
+
+https://www.cbr.com/jjk-cursed-techniques-impossible-to-use/
+
+JJK's Cursed Techniques often come at a cost to the sorcerer who uses them, making some abilities virtually impossible to use in the wrong hands.
+---------
+
+# Supernatural Is Bring Back A Favorite Character For A New Era
+
+Comics, Supernatural
+
+Mon, 23 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/supernatural-special-castiel-release-date-confirmed/
+
+There's more good news for Team Free Will.
+---------
+
+# How Alan Ritchson's Height Compares to Jack Reacher's
+
+TV, Reacher, Jack Reacher
+
+Mon, 23 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/alan-ritchson-jack-reacher-height-weight-size-comparison/
+
+Like the canonical Jack Reacher, actor Alan Ritchson boasts an imposing physical frame.
+---------
+
+# Disney Unveils First Look at The Rock as Maui With Moana Release Just 4 Months Away
+
+Movies, Moana
+
+Mon, 23 Mar 2026 16:29:28 GMT
+
+https://www.cbr.com/disney-first-look-the-rock-maui-moana-trailer/
+
+The ocean is calling.
+---------
+
+# NBC's The Hunting Party Learns from The Blacklist's Mistakes
+
+TV, The Hunting Party, The Blacklist, Crime
+
+Mon, 23 Mar 2026 16:20:11 GMT
+
+https://www.cbr.com/nbc-the-hunting-party-the-blacklist-replacement/
+
+NBC learned from The Blacklist, evolving its formula to create a suspenseful killer-of-the-week series that only gets better as it goes.
+---------
+
+# Avatar Aang: The Last Airbender's Will Be the Franchise's Biggest Comeback Ever
+
+Anime, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender
+
+Mon, 23 Mar 2026 16:18:55 GMT
+
+https://www.cbr.com/avatar-aang-the-last-airbender-movie-release-2026/
+
+After 20 years, Avatar: The Last Airbender's new official sequel is already on the way and coming to streaming this year.
+---------
+
+# Ryan Gosling Credits 5 'Ninjas' Who Bring His Project Hail Mary Co-star to Life
+
+Movies, Project Hail Mary, Sci-Fi
+
+Mon, 23 Mar 2026 16:16:08 GMT
+
+https://www.cbr.com/ryan-gosling-rocky-project-hail-mary/
+
+Ryan Gosling just revealed arguably one of the most interesting secrets about Project Hail Mary.
+---------
+
+# Rebecca Ferguson's Sci-Fi Mercy Finds Redemption on Prime Video
+
+Movies, Mercy
+
+Mon, 23 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/rebecca-ferguson-mercy-sci-fi-prime-video-success-march-2026/
+
+Rebecca Ferguson has a brand-new streaming hit.
+---------
+
+# Spider-Man Brand New Day Is Repeating No Way Home’s Trailer Trick
+
+Movies, Spider-Man, Daredevil, Spider-Man: Brand New Day
+
+Mon, 23 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-repeating-no-way-home-trailer-trick/
+
+As the hype for Spider-Man: Brand New Day ramps up, eagle-eyed fans might notice ways it could repeat No Way Home's infamous tricks.
+---------
+
+# Disney Officially Reveals 'Moana' Live-Action Trailer and It Looks Stunning
+
+Movie News, Moana, Disney, Dwayne Johnson, Thomas Kail
+
+Mon, 23 Mar 2026 16:28:45 GMT
+
+https://collider.com/moana-live-action-trailer-disney-the-rock/
+
+Disney has revealed the first trailer for the live-action remake of Moana, which sees The Rock reprise his role as the demi-god Maui. Watch it here.
+---------
+
+# The Best Sitcom of the 21st Century Returns on April 9 With New Trailer
+
+TV News, Hacks, HBO Max, Jean Smart, Hannah Einbinder
+
+Mon, 23 Mar 2026 16:16:33 GMT
+
+https://collider.com/hacks-season-5-trailer-release-date-hbo-max/
+
+Deborah Vance is back from the dead in the first trailer for Hacks Season 5. The fifth and final season airs next month.
+---------
+
+# ‘The Saviors’ Review: Adam Scott and Danielle Deadwyler’s Satire Can’t Make Its Most Stellar Ideas Work
+
+Movie Reviews, The Saviors, Adam Scott, Danielle Deadwyler, Theo Rossi
+
+Mon, 23 Mar 2026 16:03:46 GMT
+
+https://collider.com/the-saviors-review-adam-scott-danielle-deadwyler/
+
+The Saviors, starring Adam Scott and Danielle Deadwyler, is a moral tale that’s far too obvious and one-dimensional.
+---------
+
+# Nathan Fillion’s Stellar 8-Part ABC Series Gets Official Sneak Peek Ahead of Tonight's New Episode [Exclusive]
+
+TV News, The Rookie, Nathan Fillion, Shawn Ashmore, ABC
+
+Mon, 23 Mar 2026 16:00:12 GMT
+
+https://collider.com/the-rookie-season-8-episode-12-sneak-peek/
+
+ABC has released a new sneak peek at The Rookie Season 8, Episode 12, in which Wesley comes under fire during his campaign.
+---------
+
+# 'Paradise' Season 2 Episode 7 Recap: Hulu's Sci-Fi Series Sets Up a Catastrophic Finale With a Massive Reveal
+
+TV Reviews, Paradise, Sterling K. Brown, Julianne Nicholson, Hulu
+
+Mon, 23 Mar 2026 16:00:12 GMT
+
+https://collider.com/paradise-season-2-episode-7-recap/
+
+Paradise Season 2 Episode 7, titled "The Final Countdown," delivers shocking revelations and sets the stage for a catastrophic climax.
+---------
+
+# 5 Years Later, ‘NCIS’ Brings Back Bishop With a Major Twist Ahead of 500th Episode [Exclusive]
+
+TV News, NCIS, Wilmer Valderrama
+
+Mon, 23 Mar 2026 16:00:12 GMT
+
+https://collider.com/ncis-500th-episode-emily-wickersham-bishop-return-reaction-explained-cbs/
+
+As NCIS approaches its 500th episode, the cast discusses the return of Emily Wickersham's Eleanor Bishop and what it means for the team.
+---------
+
+# 'Moana' Trailer Reveals Live-Action Remake of Disney Animated Classic
+
+Movie News, Moana, Disney, Dwayne Johnson
+
+Mon, 23 Mar 2026 16:36:10 GMT
+
+https://movieweb.com/moana-trailer-unveils-disneys-latest-live-action-remake/
+
+Disney shared the first trailer for the live-action remake for the animated Disney classic 'Moana' 10 years after its initial debut.
+---------
+
+# Jason Momoa Shares Emotional Plea After Escaping Raging Floods
+
+Movie News, Jason Momoa
+
+Mon, 23 Mar 2026 16:34:21 GMT
+
+https://movieweb.com/jason-momoa-emotional-plea-floods/
+
+The former Aquaman actor has taken to social media to raise awareness and help provide relief.
+---------
+
+# Violent WWII Action Movie 'Sisu: Road to Revenge' Is a Netflix Streaming Success After Box Office Flop
+
+Movie News, Sisu: Road to Revenge, Netflix, Hot on Streaming, Action
+
+Mon, 23 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/sisu-2-streaming-success-netflix-march-2026-action/
+
+After flopping at the box office, the World War II action thriller inspired by 'John Wick' and 'Rambo,' 'Sisu 2,' is a streaming success on Netflix.
+---------
+
+# 'Project Hail Mary's Real Life Science Scenes, Ranked By Movie Accuracy
+
+Features, Project Hail Mary
+
+Mon, 23 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/project-hail-mary-science-accuracy/
+
+'Project Hail Mary,' the science-fiction movie starring Ryan Gosling as Ryland Grace, is adapted from Andy Weir's novel.
+---------
+
+# 'Dutton Ranch' Trailer Reveals 'Yellowstone' Sequel Release Date
+
+TV News, Yellowstone, Taylor Sheridan, Dutton Ranch
+
+Mon, 23 Mar 2026 15:47:31 GMT
+
+https://movieweb.com/dutton-ranch-trailer-yellowstone/
+
+Rip Wheeler and Beth Dutton return in spin-off that's due to debut on Paramount+ in May.
+---------
+
 # 3 Best Movies To Watch On Prime Video This Week (March 23-27)
 
 Classic Movies, Prime Video, Recommendation
