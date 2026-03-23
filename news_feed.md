@@ -1,3 +1,113 @@
+# Marvel Officially Crowns Its Permanent New Sorcerer Supreme
+
+Comics, Marvel
+
+Mon, 23 Mar 2026 23:00:21 GMT
+
+https://screenrant.com/new-sorcerer-supreme-scarlet-witch-doctor-strange/
+
+Friend or foe?
+---------
+
+# Skyrim Meets Stardew Valley In Gorgeous New Sandbox RPG
+
+Gaming, Indie, RPG, PC, Steam
+
+Mon, 23 Mar 2026 23:00:21 GMT
+
+https://screenrant.com/hawthorn-skyrim-stardew-valley-sandbox-rpg/
+
+A gorgeous new sandbox RPG that seems to be inspired by Skyrim and Stardew Valley is currently in development, and it already seems promising.
+---------
+
+# 5 Movies To Watch If You Liked Project Hail Mary
+
+Movies, Project Hail Mary
+
+Mon, 23 Mar 2026 23:00:21 GMT
+
+https://screenrant.com/project-hail-mary-similar-movies/
+
+These films may scratch the itch for fans looking for more movies like Project Hail Mary.
+---------
+
+# Back to the Future: The Musical Documentary Hits Streaming This Week
+
+Movies, Back to the Future
+
+Mon, 23 Mar 2026 23:15:24 GMT
+
+https://www.cbr.com/back-to-the-future-musical-documentary-streaming/
+
+Great scott! Back to the Future returns this week with a surprising new release for the franchise on multiple streaming platforms.
+---------
+
+# Ryan Gosling's Project Hail Mary Gets High Praise From Space Expert
+
+Movies, Project Hail Mary, Sci-Fi
+
+Mon, 23 Mar 2026 23:03:46 GMT
+
+https://www.cbr.com/project-hail-mary-ryan-gosling-sci-fi-high-praise-space-expert/
+
+Astrophysicist Dr. Becky praises the scientific accuracy and storytelling of Ryan Gosling's space movie Project Hail Mary.
+---------
+
+# 10 Steamy Psychological Thrillers That Make Sydney Sweeney's The Housemaid Look Tame
+
+Movies, The Housemaid, Thriller, Eyes Wide Shut
+
+Mon, 23 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/steamy-psychological-thrillers-like-the-housemaid-list/
+
+The Housemaid is a perfect example of the modern erotic thriller, and there are many other past movies that serve as the foundation.
+---------
+
+# The Last Of Us: Everything You Need To Know About Ellie's Infection
+
+TV, The Last of Us, television
+
+Mon, 23 Mar 2026 23:00:13 GMT
+
+https://www.cbr.com/the-last-of-us-ellie-infection-facts-trivia/
+
+The Last of Us is a grim world ravaged by a fungal zombie-like outbreak. The key to overcoming it rests on one teenage girl.
+---------
+
+# ‘Sender’ Review: ‘Severance’ and ‘Pluribus’ Stars Lead a Trippy Thriller That Can't Deliver on Its Best Ideas
+
+Movie Reviews, Sender, Britt Lower, Rhea Seehorn, David Dastmalchian
+
+Mon, 23 Mar 2026 22:52:13 GMT
+
+https://collider.com/sender-movie-review-britt-lower-rhea-seehorn-david-dastmalchian/
+
+Sender, starring Britt Lower and Rhea Seehorn, is a messy, frenetic thriller that can’t deliver its many ideas effectively.
+---------
+
+# A Brand-New Rebecca Ferguson Sci-Fi Movie Is Now on Prime Video
+
+Movie, Prime Video, Mercy, Valley Girl, Hope Gap
+
+Mon, 23 Mar 2026 22:35:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-march-23/
+
+Mercy, Hope Gap, and Valley Girl make up our list of the best Prime Video movies to stream the week of March 23, 2026.
+---------
+
+# Chuck Norris: Man, Meme, and Conflicted Immortality
+
+Features, Chuck Norris, Missing in Action, Sidekicks, The Delta Force
+
+Mon, 23 Mar 2026 23:00:20 GMT
+
+https://movieweb.com/chuck-norris-the-man-meme-and-immortally/
+
+Chuck Norris' passing has left movie fans and pop culture enthusiasts with a range of emotions, so let's break it down.
+---------
+
 # Thor Will Wield The Venom Symbiote In His Next Comic Appearance, Per Marvel
 
 Marvel Comics, Thor, Venom, Marvel
