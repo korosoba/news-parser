@@ -1,3 +1,102 @@
+# Supernatural Stars Reunite As 'Douchebags' In The Boys Season 5
+
+TV, The Boys, Supernatural
+
+Mon, 23 Mar 2026 21:48:04 GMT
+
+https://screenrant.com/the-boys-season-5-jared-padalecki-misha-collins-jensen-ackles-reunion-villains/
+
+Jared Padalecki, Misha Collins, and Jensen Ackles make a surprise appearance in The Boys season 5 as unscrupulous characters, departing from their Supernatural personas.
+---------
+
+# Astro Bot Returns With Official New Release On March 26
+
+Gaming, Astro Bot, PC
+
+Mon, 23 Mar 2026 21:45:40 GMT
+
+https://screenrant.com/astro-bot-red-panda-release-march-26/
+
+Astro Bot is officially back this month with a brand-new release that PlayStation gamers will definitely want to check out, available March 26.
+---------
+
+# Eric Kripke's 5-Part Sci-Fi Series Will Have The Ending Supernatural Was Robbed Of
+
+Streaming TV, The Boys
+
+Mon, 23 Mar 2026 21:31:20 GMT
+
+https://screenrant.com/eric-kripke-the-boys-ending-season-5-supernatural-robbed/
+
+Supernatural's ending divided fans, who felt that it was underwhelming. However, The Boys appears to be setting up a much more satisfying ending.
+---------
+
+# Taylor Sheridan's Espionage Thriller Series Is Leaving Netflix Next Month
+
+TV
+
+Mon, 23 Mar 2026 21:56:12 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-espionage-thriller-leaving-netflix-april-2026/
+
+Taylor Sheridan's underrated spy show is losing a streaming home before its upcoming third season.
+---------
+
+# 8 Reasons It's Tough to Watch Harry Potter Today
+
+Movies, Harry Potter
+
+Mon, 23 Mar 2026 21:30:13 GMT
+
+https://www.cbr.com/harry-potter-tough-watch-today-list/
+
+Harry Potter is getting a TV reboot on HBO, and some of the biggest issues from the movie series might be fixed.
+---------
+
+# Prime Video's Near-Perfect 2-Part Horror Thriller Is Unlike Any Zombie Story Ever Told
+
+TV Features, In the Flesh, BBC, Zombie, Horror
+
+Mon, 23 Mar 2026 21:52:13 GMT
+
+https://collider.com/horror-thriller-zombie-series-in-the-flesh-perfection/
+
+Prime Video’s overlooked zombie drama In the Flesh is a 97% Rotten Tomatoes gem with queer horror, heartbreak, and only 9 episodes.
+---------
+
+# Fire Country's Official 2-Hour 'Sheriff Country' Crossover Event Gets Explosive First Look
+
+TV News, Fire Country, Sheriff Country, CBS
+
+Mon, 23 Mar 2026 21:49:52 GMT
+
+https://collider.com/fire-country-sheriff-country-crossover-cbs-first-look-teaser-trailer/
+
+CBS has revealed a teaser for the first-ever crossover event between Fire Country and Sheriff Country, promising a high-stakes two-hour event.
+---------
+
+# Tom Hardy’s Stellar 10-Year-Old Crime Movie Officially Proves a Perfect Fit for 'Sinners' Fans
+
+Movie News, Legend, Tom Hardy, Sinners, Michael B. Jordan
+
+Mon, 23 Mar 2026 21:43:58 GMT
+
+https://collider.com/tom-hardy-dual-performance-legend-streaming-success-march-2026/
+
+10 years before Michael B. Jordan won an Oscar for his performance in Sinners, Tom Hardy gave an incredible dual performance in his true-crime hit.
+---------
+
+# 10 Lamest Zombie Movies of All Time, Ranked
+
+Movie, Zombie, Redneck Zombies, Resident Evil: Welcome to Raccoon City, Burial Ground
+
+Mon, 23 Mar 2026 21:39:12 GMT
+
+https://collider.com/worst-zombie-movies-lame/
+
+From bland gore to wasted setups, the lamest zombie movie flops including Day of the Dead: Bloodline and Zombie Strippers.
+---------
+
 # How Peaky Blinders: The Immortal Man Pays Tribute To Helen McCrory's Polly
 
 Movies, Peaky Blinders: The Immortal Man
