@@ -1,3 +1,300 @@
+# Top 5 Memorable Deaths In The Ready Or Not Horror Franchise
+
+Movies, Ready or Not
+
+Mon, 23 Mar 2026 17:45:18 GMT
+
+https://screenrant.com/ready-or-not-movies-best-kills-ranked/
+
+Almost every death in the Ready or Not films is memorable, but these are the ones that truly stand out.
+---------
+
+# American Idol Season 24 Hawaii Week Part 2 Songs Revealed (SPOILERS)
+
+Reality TV, American Idol
+
+Mon, 23 Mar 2026 17:43:28 GMT
+
+https://screenrant.com/american-idol-season-24-hawaii-week-part-2-songs-revealed-spoilers/
+
+American Idol season 24 has announced the songs for Hawaii Week Part 2 at Aulani, as the remaining ten contestants compete for America's Vote.
+---------
+
+# One Of The Biggest RPGs Of 2024 Is Getting Major DLC
+
+Gaming, Dragon's Dogma II, Triple-A Games, PC
+
+Mon, 23 Mar 2026 17:40:09 GMT
+
+https://screenrant.com/dragons-dogma-2-expansion-teaser-capcom/
+
+Two years after the release of Dragon's Dogma 2, Capcom appears to be teasing an expansion, meaning the RPG may finally reach its potential.
+---------
+
+# Pretty Lethal Review: Mean Girls Gets The John Wick Treatment In A Movie That Hardly Scratches The Surface
+
+Movies, Pretty Lethal
+
+Mon, 23 Mar 2026 17:39:15 GMT
+
+https://screenrant.com/pretty-lethal-movie-2026-review/
+
+Vicky Jewson's Pretty Lethal is full of well-executed action and a solid idea for changing the John Wick style of action, but only somewhat works.
+---------
+
+# Crunchyroll Officially Responds to Data Breach With New Statement
+
+Anime, Crunchyroll
+
+Mon, 23 Mar 2026 17:36:42 GMT
+
+https://screenrant.com/crunchyroll-breach-cyberattack-claims-response-march-2026/
+
+Crunchyroll's latest security breach has left fans wondering if their private info is truly safe, as 100GB of user data has been leaked.
+---------
+
+# Netflix's 5-Part Jurassic Park Series With Glen Powell Breaks An All-Time Franchise Record
+
+TV, Netflix, Jurassic World: Camp Cretaceous, Jurassic Park
+
+Mon, 23 Mar 2026 17:34:51 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-netflix-series-franchise-record/
+
+Glen Powell's Jurassic Park series on Netflix is one of the franchise's best, managing to beat even Steven Spielberg's original to break a record.
+---------
+
+# Taylor Sheridan Officially Retcons Beth & Rip's Yellowstone Ending For Dutton Ranch
+
+Streaming TV, Yellowstone, Dutton Ranch
+
+Mon, 23 Mar 2026 17:32:20 GMT
+
+https://screenrant.com/dutton-ranch-beth-rip-yellowstone-ending-retcon/
+
+New details about Dutton Ranch officially confirms that Taylor Sheridan has retconned a major detail in Beth and Rip's Yellowstone happy-ending.
+---------
+
+# 10 Sci-Fi Books Similar to Dune: Must-Read Alternatives
+
+Movies, Dune
+
+Mon, 23 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/sci-fi-books-as-good-as-dune/
+
+Frank Herbert’s Dune book series is one of the best science fiction novels ever, but there are others in the genre that are just as enthralling.
+---------
+
+# Taylor Sheridan's New 6-Part Western Series Dethrones Paramount's Toughest Competitor To Lasso No. 1 Streaming Spot
+
+TV, The Madison
+
+Mon, 23 Mar 2026 17:12:22 GMT
+
+https://screenrant.com/taylor-sheridan-the-madison-show-streaming-success-paramount-plus-chart/
+
+Taylor Sheridan's new six-part Western series officially dethrones Paramount's toughest competitor to lasso the No. 1 streaming spot.
+---------
+
+# Star Trek's Divisive New Series Officially Ending After Just 2 Seasons
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Mon, 23 Mar 2026 17:12:07 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-season-2-end/
+
+After dividing critics and audiences in season 1, Paramount+ will not be granting a third season to its new live-action Star Trek series.
+---------
+
+# CBS Seals the Fate of Tom Ellis' CIA 1 Week Before Finale
+
+TV, CIA
+
+Mon, 23 Mar 2026 17:30:55 GMT
+
+https://www.cbr.com/cbs-tom-ellis-cia-renewal-fate/
+
+The network has officially revealed what's next for Tom Ellis.
+---------
+
+# 85-Year-Old Universal Monster Icon Returns With A Twist
+
+Comics, The Wolf Man
+
+Mon, 23 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/universal-monsters-blood-of-the-wolf-man-comic-release-date-confirmed/
+
+Horror fans can expect a full moon when this cinematic classic is updated is comic book form.
+---------
+
+# The Expendables 2 Has Chuck Norris’ Greatest Cameo
+
+Movies, The Expendables 2, Netflix, Action
+
+Mon, 23 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/netflix-chuck-norris-greatest-cameo-expendables/
+
+In 2012, Chuck Norris found the defining role of his career in an underrated action sequel, where he officially mythologized himself as an icon.
+---------
+
+# Xbox Livestream Officially Coming March 2026 With "Brand-New Reveals"
+
+Games, Xbox Series X (1), Microsoft
+
+Mon, 23 Mar 2026 17:20:11 GMT
+
+https://www.cbr.com/xbox-livestream-new-game-reveals-march-2026/
+
+Microsoft has announced its first Xbox Partner Preview under the new managament team's regime, which include reveals for brand-new titles.
+---------
+
+# Nintendo's Most Underrated N64 Game Is an Untouchable Hidden Gem
+
+Games, Nintendo 64, Nintendo
+
+Mon, 23 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/nintendo-most-underrated-n64-game-hidden-gem-blast-corps/
+
+The N64 has plenty of untouchable gems, but this Rare co-developed game takes the cake.
+---------
+
+# Star Trek: Starfleet Academy Canceled by Paramount+ After Two Seasons
+
+TV, Star Trek: Starfleet Academy, Star Trek, Paramount Plus
+
+Mon, 23 Mar 2026 17:15:11 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-canceled-season-2-paramount-plus/
+
+Paramount+ has canceled the divisive Star Trek: Starfleet Academy series after just two seasons, marking the end of new Star Trek TV production.
+---------
+
+# Dragon Ball Super Manga Comeback Begins With First Look at New Toyotarou Chapter
+
+Anime, Dragon Ball Super
+
+Mon, 23 Mar 2026 17:15:09 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-toyotarou-new-chapter-first-look/
+
+Dragon Ball Super's long-awaited manga return gets even more good news as Toyotarou is back with his first new Dragon Ball chapter in years.
+---------
+
+# HBO Seals the Fate of Its 99% RT Dark Comedy Hacks Ahead of Season 5 Premiere
+
+TV, Comedy, Hacks, HBO Max
+
+Mon, 23 Mar 2026 17:10:27 GMT
+
+https://www.cbr.com/hbo-seals-the-fate-of-hacks-ahead-of-season-5-premiere/
+
+The fate of one of the best shows on HBO Max has been officially decided.
+---------
+
+# Crunchyroll Officially Responds to Report Claiming 100 GB User Data Leak
+
+Anime, Crunchyroll
+
+Mon, 23 Mar 2026 16:52:10 GMT
+
+https://www.cbr.com/crunchyroll-data-leak-official-statement/
+
+Crunchyroll finally makes an official statement regarding the shocking report that 100 GB of user data has been compromised by a threat actor.
+---------
+
+# Paramount+ Cancels the Best New Star Trek Series After Backlash
+
+TV News, Star Trek: Starfleet Academy, Paramount Plus, Star Trek, Holly Hunter
+
+Mon, 23 Mar 2026 17:27:39 GMT
+
+https://collider.com/star-trek-starfleet-academy-season-2-officially-ending-cancelled-paramount/
+
+Star Trek: Starfleet Academy is officially set to end with Season 2 at Paramount+, as the sci-fi spin-off will not be renewed for Season 3.
+---------
+
+# ‘Paradise’s Creator and Stars Break Down Season 2, Episode 7 and What the Nosebleeds Actually Mean [Exclusive]
+
+Exclusives, Paradise, Sterling K. Brown, Dan Fogelman, Hulu
+
+Mon, 23 Mar 2026 17:15:57 GMT
+
+https://collider.com/paradise-season-2-episode-7-explained-sterling-k-brown-dan-fogelman-enuka-okuma-interview/
+
+Dan Fogelman, Sterling K. Brown and Enuka Okuma discuss the making of Season 2, character evolutions, and the show's long-term plan for Season 3.
+---------
+
+# Nathan Fillion Confirms 'Firefly' Animated Series Will Recast Key Character
+
+TV News, Firefly, Nathan Fillion, ABC, Animation
+
+Mon, 23 Mar 2026 17:11:16 GMT
+
+https://collider.com/firefly-animated-reboot-re-casting-shepherd-book-ron-glass/
+
+The Firefly animated series is underway, and fans are excited. And star Nathan Fillion clarified who would make their return to the Serenity.
+---------
+
+# 'Project Hail Mary' Directors Interested in Reviving Their Pitch for 'The Flash' in the DCU
+
+Movie News, DCU, The Flash, Phil Lord, Chris Miller
+
+Mon, 23 Mar 2026 17:03:57 GMT
+
+https://movieweb.com/phil-lord-chris-miller-flash-film/
+
+The 'Project Hail Mary' directors were hired in 2015 to write a treatment for 'The Flash' and think the concept could still be revived.
+---------
+
+# 20 Best TV Villains of the Last 25 Years
+
+TV Lists, Drama
+
+Mon, 23 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/best-tv-villains-last-25-years/
+
+Over the past 25 years, some especially memorable and dastardly villains have made their way to TV.
+---------
+
+# The Best Western Trilogy of All Time Shoots Onto New Free Streaming Home
+
+Movie News, A Fistful of Dollars, Coming/Leaving Streaming, Clint Eastwood
+
+Mon, 23 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/the-dollars-trilogy-clint-eastwood-streaming-tubi-april-2026/
+
+Widely regarded as the best Western saga ever made, Clint Eastwood's seminal classics will be free to stream this coming April.
+---------
+
+# 'The King' First Hinted At Timotheé Chalamet's Major Career Rebrand
+
+Features, The King, Timothée Chalamet, Career Arc Reframe
+
+Mon, 23 Mar 2026 17:00:17 GMT
+
+https://movieweb.com/the-king-timothee-chalamet-career-rebrand/
+
+Following a string of smaller indie films, Timotheé Chalamet rebranded his acting career with 'The King,' a period drama movie on Netflix.
+---------
+
+# 'Moana' Trailer Reveals Live-Action Remake of Disney Animated Classic
+
+Movie News, Moana, Disney, Dwayne Johnson
+
+Mon, 23 Mar 2026 16:36:10 GMT
+
+https://movieweb.com/moana-trailer-disney-remake-release/
+
+Disney shared the first trailer for the live-action remake for the animated Disney classic 'Moana' 10 years after its initial debut.
+---------
+
 # 3 Best Movies To Watch On Netflix This Week (March 23-27)
 
 Classic Movies, Netflix, Recommendation
