@@ -1,3 +1,245 @@
+# Star Trek: TNG Surpassed TOS with 'Yesterday's Enterprise'
+
+Classic TV, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation
+
+Mon, 23 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/star-trek-the-next-generation-surpass-tos-episode/
+
+Overall, Star Trek: The Next Generation is a better show than The Original Series, but you can pinpoint the exact episode it surpassed the flagship.
+---------
+
+# Apple TV's 3-Part Sci-Fi Series Defies All The Rules Of Storytelling
+
+Streaming TV, Foundation, Sci-Fi, Apple TV
+
+Mon, 23 Mar 2026 20:18:21 GMT
+
+https://screenrant.com/foundation-sci-fi-show-apple-tv-breaks-rules-storytelling/
+
+There's a lot that Apple has done for sci-fi TV shows in the modern age, but none have elevated the entire genre quite like this literary adaptation.
+---------
+
+# Task Season 2 Story Details & Mark Ruffalo’s New Rival Revealed As True Detective Star Joins Cast
+
+TV, Task
+
+Mon, 23 Mar 2026 20:11:30 GMT
+
+https://screenrant.com/task-season-2-mahershala-ali-cast/
+
+After a critically acclaimed first season, HBO's Task is returning for season 2, and has added an Academy Award-winning actor to its new cast.
+---------
+
+# Harley Quinn Has a Brand-New Costume That Turns Her Into DC's New Batman
+
+Comics, Harley Quinn, Batman
+
+Mon, 23 Mar 2026 20:10:09 GMT
+
+https://screenrant.com/harley-quinn-new-batman-costume-dc/
+
+Harley Quinn’s new era has finally arrived, and with it comes a new codename and costume that have essentially turned her into DC’s new Batman.
+---------
+
+# Marvel Renews A Live-Action MCU TV Show For A Season 2 For Only The Third Time Ever
+
+TV, Wonder Man, Marvel Cinematic Universe
+
+Mon, 23 Mar 2026 20:06:02 GMT
+
+https://screenrant.com/wonder-man-season-2-renewal-confirmed-marvel-disney-plus/
+
+Marvel Studios has officially decided the fate for one of their MCU TV shows as Wonder Man season 2 is moving forward at Disney+ following season 1.
+---------
+
+# Hulu's 5-Part Crime Thriller Series Was So Good, It Proved Everyone Wrong
+
+TV, Fargo
+
+Mon, 23 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/fargo-hulu-sequel-movie-proved-everyone-wrong/
+
+Hulu's iconic crime thriller masterpiece seemed like a terrible idea, but the show soon proved to be a 10/10 cult hit with no bad episodes.
+---------
+
+# Pokémon Colosseum Teaser Leaves Gamers Baffled
+
+Gaming
+
+Mon, 23 Mar 2026 20:01:19 GMT
+
+https://screenrant.com/pokemon-colosseum-march-2026-teaser-return/
+
+A new Pokémon Colosseum teaser has left fans feeling a bit baffled, especially considering its upcoming release on Nintendo Switch Online.
+---------
+
+# Love Story Actor Teases "Difficult To Watch" Finale Of Carolyn Bessette & JFK Jr. Series
+
+TV, Love Story
+
+Mon, 23 Mar 2026 19:58:42 GMT
+
+https://screenrant.com/love-story-finale-ending-constance-zimmer-response/
+
+Love Story's finale is nearly here, and the heartbreaking truth is becoming a reality as one star prepares the audience for a tragic season finale.
+---------
+
+# Ready Or Not 2 Ending Explained: Grace's Loopholes & Who Survives
+
+New Movies, Ready or Not 2: Here I Come, Ready or Not
+
+Mon, 23 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/ready-or-not-2-ending-twist-explained/
+
+Ready or Not 2 pairs Samara Weaving's Grace with her sister, Faith (Kathryn Newton), and the ending is filled with twists and explosive deaths.
+---------
+
+# Everything To Know About The Masked Singer Season 14 Semi-Finals, Including Galaxy Girl's Song (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Mon, 23 Mar 2026 19:48:36 GMT
+
+https://screenrant.com/the-masked-singer-season-14-semi-finals-what-to-know-galaxy-girl-song-spoilers/
+
+The Masked Singer season 14 semi-finals episode is right around the corner, and there's a lot to know about it, including Galaxy Girl's song.
+---------
+
+# Steven Spielberg Sci-Fi Classics to Watch Before Disclosure Day
+
+Movies, Disclosure Day, steven spielberg, Sci-Fi
+
+Mon, 23 Mar 2026 20:30:11 GMT
+
+https://www.cbr.com/steven-spielberg-sci-fi-classic-must-watch-before-disclosure-day/
+
+Disclosure Day is Spielberg's next summer blockbuster, and there are lots of sci-fi classics for fans to watch before it comes out.
+---------
+
+# Disney+ Renews Marvel's Wonder Man for Season 2
+
+TV, Wonder Man, Marvel Cinematic Universe, Disney+
+
+Mon, 23 Mar 2026 20:28:27 GMT
+
+https://www.cbr.com/wonder-man-renewed-season-2-disney-plus-marvel/
+
+Disney+ renews Marvel's Wonder Man for a second season, following the series's successful debut on the streaming platform.
+---------
+
+# Japan Has Already Officially Crowned Its Top Anime Series of Spring 2026
+
+Anime, Re:Zero -Starting Life in Another World-, Jojo's Bizarre Adventure, JoJo's Bizarre Adventure
+
+Mon, 23 Mar 2026 20:05:12 GMT
+
+https://www.cbr.com/japan-top-anime-series-spring-2026-rezero/
+
+One of the latest anime rankings has officially named the top series of Spring 2026, and it will almost certainly surprise everyone.
+---------
+
+# Amazon's Elvis & Nixon Is Still the King's Most Bizarre Movie
+
+Movies, Elvis & Nixon
+
+Mon, 23 Mar 2026 20:00:13 GMT
+
+https://www.cbr.com/amazon-elvis-nixon-bizarre-movie/
+
+Elvis & Nixon is a largely unheard of film on Amazon Prime, but it's also one of the strangest looks at the two historical icons in recent years.
+---------
+
+# Star Trek: Scouts Final Episodes Released on YouTube
+
+TV, Star Trek, YouTube Premium, Sci-Fi
+
+Mon, 23 Mar 2026 19:44:24 GMT
+
+https://www.cbr.com/star-trek-scouts-finale-youtube/
+
+The final three installments of the animated Star Trek series aimed at preschoolers, Star Trek: Scouts, are now available to stream on YouTube.
+---------
+
+# 10 Classic Action Movies That Are Still Masterpieces Today
+
+Movie, Action, Raiders of the Lost Ark, Terminator 2: Judgment Day, RoboCop
+
+Mon, 23 Mar 2026 20:25:12 GMT
+
+https://collider.com/classic-action-movies-still-masterpieces/
+
+Classics like Aliens and Raiders of the Lost Ark don't get older, they just get better, proving that action is truly a timeless genre when done right.
+---------
+
+# This 84% Rotten Tomatoes Fantasy Series Was Near-Perfect Until Disney+ Quietly Destroyed It
+
+TV Features, Willow, Disney+, Warwick Davis
+
+Mon, 23 Mar 2026 20:24:12 GMT
+
+https://collider.com/willow-tv-series-disney-removed-from-streaming/
+
+Despite its fanbase and positive critical reception, Willow's sequel series was totally removed from Disney+ and is now unavailable to new audiences.
+---------
+
+# The Best Marvel Series Since 'WandaVision' Scores Rare Season 2 Renewal
+
+TV News, Wonder Man, Yahya Abdul-Mateen II, Ben Kingsley, MCU
+
+Mon, 23 Mar 2026 20:20:15 GMT
+
+https://collider.com/wonder-man-season-2-renewed-disney-plus/
+
+Disney has decided the fate of Marvel's new hit series, Wonder Man, almost 2 months after Season 1 arrived on the streamer.
+---------
+
+# 10 Space Travel Movies That Are As Good as 'Interstellar'
+
+Movie, Interstellar, Gravity, 2001: A Space Odyssey, Arrival
+
+Mon, 23 Mar 2026 20:05:12 GMT
+
+https://collider.com/space-travel-movies-like-interstellar/
+
+Explore powerful space journeys like Gravity and The Martian, where emotion and survival rival the impact of Interstellar.
+---------
+
+# Jonathan Frakes Sets the Record Straight on Star Trek Retirement Rumors [Exclusive]
+
+TV News, Star Trek, Jonathan Frakes, Gates McFadden, Fan Expo
+
+Mon, 23 Mar 2026 20:01:41 GMT
+
+https://collider.com/star-trek-jonathan-frakes-not-retiring-directing-no-new-shows-sci-fi/
+
+Frakes addresses recent headlines claiming his retirement from Star Trek, assuring fans he's still involved with the franchise at a recent convention.
+---------
+
+# Netflix's Longest-Running Series 'Virgin River' Is a Streaming Success After Releasing Season 7
+
+TV News, Virgin River, Netflix, Hot on Streaming
+
+Mon, 23 Mar 2026 20:00:21 GMT
+
+https://movieweb.com/virgin-river-streaming-success-netflix-march-2026/
+
+The new season of 'Virgin River' on Netflix has sent the hit American drama up the streaming chart. Season 8 of 'Virgin River' is already confirmed.
+---------
+
+# 'Blade Runner 2049' Is Finally Getting the Praise It Always Deserved
+
+Movies, Blade Runner 2, Blade Runner, Ryan Gosling
+
+Mon, 23 Mar 2026 20:00:21 GMT
+
+https://movieweb.com/blade-runner-2049-sci-fi-underrated/
+
+'Blade Runner 2049' is finally getting some mainstream praise, after Ryan Gosling's impressive role in the science-fiction movie 'Project Hail Mary.'
+---------
+
 # Prime Video's The Summer I Turned Pretty Replacement Sets Release Date & Unveils First Look Images
 
 TV, Every Year After, The Summer I Turned Pretty
