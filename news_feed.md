@@ -1,3 +1,201 @@
+# Zelda: The Wind Waker Fans Losing It Over Toon Link's Unexpected Return
+
+Gaming, The Legend of Zelda: The Wind Waker
+
+Tue, 24 Mar 2026 11:30:21 GMT
+
+https://screenrant.com/zelda-wind-waker-toon-link-2026-free-browser-game/
+
+A fan-made The Legend of Zelda: Wind Waker browser game has taken the internet by storm, allowing players to sail across Hyrule online.
+---------
+
+# Avatar: Fire & Ash Digital Release Date Confirmed
+
+Movies, Avatar: Fire and Ash, Avatar
+
+Tue, 24 Mar 2026 11:15:24 GMT
+
+https://screenrant.com/avatar-fire-ash-digital-release-date-confirmed/
+
+Avatar: Fire and Ash is coming home after a hefty box office run that saw the James Cameron-directed sci-fi epic earn over $1.4 billion.
+---------
+
+# Fallout 4 New Paid Content Officially Confirmed By Bethesda Boss
+
+Gaming, Fallout 4
+
+Tue, 24 Mar 2026 11:12:37 GMT
+
+https://screenrant.com/fallout-4-new-content-2026-paid-mods-confirmed/
+
+Bethesda's Creation Club, which offers both free and paid mods, remains a point of contention for fans.
+---------
+
+# The Witcher Officially Returns Today With New Adventures For Geralt
+
+Gaming, The Witcher 3: Wild Hunt, PC
+
+Tue, 24 Mar 2026 10:55:08 GMT
+
+https://screenrant.com/witcher-geralt-return-new-official-omnibus-2026/
+
+The Witcher 3 fans can officially dive into a brand-new set of exciting adventures featuring our beloved protagonist, Geralt, available to claim now.
+---------
+
+# PlayStation 5 Getting Huge Free Open-World RPG You Won't Need PS Plus For
+
+Gaming, PlayStation 5, RPG, Xbox Series X/S, Steam
+
+Tue, 24 Mar 2026 10:46:34 GMT
+
+https://screenrant.com/playstation-5-open-world-free-no-ps-plus-aniimo/
+
+An upcoming free-to-play open-world RPG is coming to PS5. Explore Idyll, collect creatures, and enjoy this Pokémon-inspired game.
+---------
+
+# PlayStation Plus 3-Month Freebie Available To Claim Before April 2
+
+Gaming, PlayStation Plus
+
+Tue, 24 Mar 2026 10:45:19 GMT
+
+https://screenrant.com/playstation-plus-free-3-months-discord-nitro/
+
+PlayStation Plus subscribers can get a free 3-month Discord Nitro subscription from March 3 to May 2.
+---------
+
+# Judge Dredd’s Origins Were Inspired By A Dirty Harry Copycat
+
+Comics, Judge Dredd, john wagner, 2000 ad
+
+Tue, 24 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/judge-dredd-forgotten-origin-one-eyed-jack-2000-ad/
+
+Many readers view Judge Dredd as the king of British comics, but his existence traces back to a forgotten rip-off of Clint Eastwood's Dirty Harry.
+---------
+
+# Netflix’s 7-Part Sleeper Hit Has All the Signs of a Modern Western Masterpiece
+
+TV Features, The Abandons, Kurt Sutter, Netflix, Streaming
+
+Tue, 24 Mar 2026 11:34:13 GMT
+
+https://collider.com/netflix-the-abandons-review-modern-western-worth-watching/
+
+Why The Abandons is still worth checking out on Netflix.
+---------
+
+# 13 Years After 'Star Trek,' William Shatner Led This Forgotten 10/10 Police Procedural
+
+TV Features, T.J. Hooker, William Shatner, Procedural, Crime
+
+Tue, 24 Mar 2026 11:34:13 GMT
+
+https://collider.com/william-shatner-tj-hooker-streaming-tubi/
+
+William Shatner might be best known for playing Captain Kirk in Star Trek, though his police procedural T.J. Hooker features some of his best work.
+---------
+
+# 10 Greatest Sci-Fi Movies Made Before '2001: A Space Odyssey' Changed Everything
+
+Movie, 2001: A Space Odyssey, Godzilla, Science Fiction, Invasion of the Body Snatchers
+
+Tue, 24 Mar 2026 11:32:13 GMT
+
+https://collider.com/best-sci-fi-movies-before-2001-a-space-odyssey/
+
+Silent dramas like Metropolis and pioneering creature features like Godzilla are among the best sci-fi movies released before 2001: A Space Odyssey.
+---------
+
+# In Just 3 Days, ‘Project Hail Mary’ Has Officially Crushed Steven Spielberg’s Sci-Fi Cult Classic
+
+Movie News, Project Hail Mary, Steven Spielberg, Sci-Fi, A.I. Artificial Intelligence
+
+Tue, 24 Mar 2026 11:30:14 GMT
+
+https://collider.com/project-hail-mary-box-office-overtakes-steven-spielberg-underrated-sci-fi-hit-ai-artificial-intelligence-140-million/
+
+Ryan Gosling's Project Hail Mary has already overtaken the lifetime box-office haul of Steven Spielberg's most underrated sci-fi movie. Find out more.
+---------
+
+# One of the Best War Thrillers of All Time Has Arrived on Netflix & It Keeps Getting Better
+
+Movie Features, Sisu: Road to Revenge, Sisu, Netflix, Stephen Lang
+
+Tue, 24 Mar 2026 11:03:13 GMT
+
+https://collider.com/sisu-2-streaming-wwii-thriller-movie-netflix-hit/
+
+Stephen Lang helped make this WWII sequel better than its predecessor.
+---------
+
+# Part 2 of Taylor Sheridan’s Western Epic Is Officially Returning to Paramount+ Sooner Than Expected
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus, Yellowstone
+
+Tue, 24 Mar 2026 11:01:12 GMT
+
+https://collider.com/the-madison-season-2-update-confirmed-episode-count/
+
+The Madison Season 2 has already been filmed, with Kurt Russell and Michelle Pfeiffer both set to return to Taylor Sheridan’s Paramount+ drama.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — March 24, 2026
+
+TV, Cougar Town, Nurse Jackie, Veep, The Wire
+
+Tue, 24 Mar 2026 11:01:12 GMT
+
+https://collider.com/tv-quiz-mar-24-2026-television-reunions/
+
+It's always fun when actors from one show find their way back to one another in a new show. Were these television reunions memorable to you?
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 24, 2026
+
+Movie, Star Trek, Zero Dark Thirty, Ghostbusters, Lightyear
+
+Tue, 24 Mar 2026 10:59:13 GMT
+
+https://collider.com/movie-quiz-mar-24-2026-pratt-pine-hemsworth-evans/
+
+If you're in the mood for comparing the Chrises, you're in luck. The work of Chris Evans, Chris Hemsworth, Chris Pine, and Chris Pratt collide!
+---------
+
+# 'Star Trek: Year One' Needs the Green Light Even More After 'Starfleet Academy' Cancelation
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Tue, 24 Mar 2026 11:30:17 GMT
+
+https://movieweb.com/star-trek-one-way-forward-after-starfleet-academy-canceled/
+
+With no new 'Star Trek' shows currently in active production, the speculative 'Year One' needs to be confirmed as taking the franchise forward.
+---------
+
+# 'Ghostbusters' Director Joins White-Knuckle Supernatural Thriller '71 Minutes'
+
+Movie News, Jason Reitman, Ghostbusters, Ghostbusters: Afterlife, Thriller
+
+Tue, 24 Mar 2026 11:20:21 GMT
+
+https://movieweb.com/jason-reitman-producing-71-minutes-sony/
+
+'Ghostbusters: Afterlife' director Jason Reitman is set to produce '71 Minutes,' a supernatural thriller that Sony acquired after a bidding war.
+---------
+
+# 'Project Hail Mary' Author Andy Weir Has a Big Problem With 'Interstellar'
+
+Features, Interstellar, Project Hail Mary, Sci-Fi
+
+Tue, 24 Mar 2026 11:00:18 GMT
+
+https://movieweb.com/interstellar-andy-weir-problem/
+
+Andy Weir, the author of the science-fiction novel 'Project Hail Mary,' shared his thoughts on 'Interstellar,' the 2014 Christopher Nolan movie.
+---------
+
 # GTA 6 Delay 3 Fears Intensify Following New Rockstar Scandal
 
 Gaming, Grand Theft Auto 6
