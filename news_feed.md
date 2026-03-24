@@ -1,3 +1,135 @@
+# Netflix’s 7-Part Crime Thriller Is Quietly One Of Its Best Shows To Binge
+
+Streaming TV, Netflix, Who Is Erin Carter?
+
+Tue, 24 Mar 2026 22:48:19 GMT
+
+https://screenrant.com/netflix-who-is-erin-carter-series-binge-watch/
+
+Discover Netflix's hidden gem, Who Is Erin Carter?, a 7-part action crime thriller set in sun-soaked Barcelona, perfect for a mid-week popcorn binge.
+---------
+
+# Taylor Sheridan's New Yellowstone Series Is Saying The Quiet Part Out Loud
+
+TV, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Tue, 24 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/taylor-sheridan-dutton-ranch-yellowstone-series-continued/
+
+Taylor Sheridan's next Yellowstone spinoff Dutton Ranch might center Beth and Rip, but it looks more like a sequel than a spinoff from its trailer.
+---------
+
+# Avengers and X-Men Officially Debut Matching Costumes for New Comic Appearance
+
+Comics, X-Men, The Avengers
+
+Tue, 24 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/avengers-x-men-new-costumes-matching-redesign/
+
+In awesome new images, fans can see the matching costumes worn by the Avengers and X-Men in their new appearance. Spider-Man, Wolverine and more...
+---------
+
+# The Comeback Season 3: Lisa Kudrow's Final Chapter In HBO's Cult Classic
+
+Interviews, Lisa Kudrow, The Comeback, SXSW, HBO
+
+Tue, 24 Mar 2026 22:23:56 GMT
+
+https://screenrant.com/why-the-comeback-season-3-is-end-of-lisa-kudrows-hbo-comedy/
+
+As The Comeback returns for its long-awaited third and final season, Lisa Kudrow reflects on Valerie Cherish's journey and the show's satirical take on Hollywood's ever-changing landscape.
+---------
+
+# No Netflix Needed: Gundam's Next Movie Finally Gets U.S. Release Date
+
+Anime, Mobile Suit Gundam: Hathaway, Mobile Suit Gundam
+
+Tue, 24 Mar 2026 22:45:12 GMT
+
+https://www.cbr.com/gundam-hathaway-sorcery-of-nymph-circe-america-theater-release-date/
+
+The next Gundam animated feature film is officially getting the North American release that its predecessor completely missed out on.
+---------
+
+# John Wick's Long-Gestating Caine Spinoff Finally Set to Start Filming
+
+Movies, John Wick, Caine John Wick Spinoff
+
+Tue, 24 Mar 2026 22:43:23 GMT
+
+https://www.cbr.com/john-wick-caine-spinoff-start-filming/
+
+While the status of John Wick 5 remains uncertain, the next spinoff is officially moving forward.
+---------
+
+# 5 Underrated Studio Ghibli Films You Need to Watch ASAP
+
+Anime, Studio Ghibli, The Tale of the Princess Kaguya
+
+Tue, 24 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/underrated-studio-ghibli-movies-watch-now/
+
+Studio Ghibli is one of most notable names in anime, yet it's still responsible for some formative films that have slipped through the cracks!
+---------
+
+# 10 Open-World Games That Actually Feel Like Real Places
+
+Games, open world, Red Dead Redemption 2, Grand Theft Auto
+
+Tue, 24 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/open-world-games-feel-like-real-places-list/
+
+Some open-world games, like RDR2, are so immersive that it's hard to believe they're not real places.
+---------
+
+# John Wick Spin-Off Finally Confirmed After 1-Year Wait
+
+Movie News, Donnie Yen, John Wick, John Wick: Chapter 4
+
+Tue, 24 Mar 2026 22:52:17 GMT
+
+https://collider.com/john-wick-donnie-yen-caine-spin-off-movie-filming-start-april-2026/
+
+Donnie Yen is officially set to star in and direct a new John Wick spin-off following his Chapter 4 character, Caine, with filming kicking off soon.
+---------
+
+# ‘Nobody Wants This’ Makes a Once-Uncomfortable 24-Episode Sitcom Feel Relevant Again
+
+TV Features, Netflix, Nobody Wants This, CBS, Bridget Loves Bernie
+
+Tue, 24 Mar 2026 22:47:12 GMT
+
+https://collider.com/nobody-wants-this-bridget-loves-bernie-cbs-sitcom/
+
+Cancelled in 1972, CBS’s Bridget Loves Bernie tackled interfaith love — Netflix’s Nobody Wants This picks up where it left off.
+---------
+
+# 'Reacher's Alan Ritchson Officially Cleared of Legal Consequences After Viral Fight Video
+
+TV News, Alan Ritchson, TMZ, Reacher, Crime
+
+Tue, 24 Mar 2026 22:36:47 GMT
+
+https://collider.com/reacher-alan-ritchson-not-facing-criminal-charges-after-viral-fight-video-tennessee-police/
+
+The Tennessee police have concluded Reacher star Alan Ritchson acted in self-defense in the recent viral video and will not face criminal charges.
+---------
+
+# First 'Bridgerton' Season 5 Teaser Shines a Light on a Queer Romance
+
+TV News, Bridgerton
+
+Tue, 24 Mar 2026 22:40:35 GMT
+
+https://movieweb.com/bridgerton-season-5-teaser/
+
+The season will feature Francesca and Michaela Stirling as their blossoming romance takes center stage.
+---------
+
 # New John Wick Spinoff To Begin Filming 1 Year After Being Announced
 
 Movies, Caine John Wick Spinoff, John Wick, Donnie Yen
