@@ -1,3 +1,168 @@
+# 10 Best Non-Powered Villains in Marvel History, Ranked
+
+Comics, Marvel
+
+Tue, 24 Mar 2026 12:31:21 GMT
+
+https://screenrant.com/best-marvel-villains-introduced-since-2000-no-powers/
+
+Some of Marvel's greatest villains don't have any superhuman powers, using their wits, skills and unique gadgets to conquer the X-Men and Avengers.
+---------
+
+# PlayStation Plus Free Games For April 2026 Come With A Unique Catch
+
+Gaming, PlayStation Plus
+
+Tue, 24 Mar 2026 12:21:05 GMT
+
+https://screenrant.com/playstation-plus-essential-april-2026-free-games-delay/
+
+The Essential games for April should be arriving on PlayStation Plus soon, but there's a possible catch to this latest batch of monthly titles.
+---------
+
+# Bridgerton Season 5 Couple Confirmed In New Teaser
+
+TV, Bridgerton
+
+Tue, 24 Mar 2026 12:07:02 GMT
+
+https://screenrant.com/bridgerton-season-5-trailer-francesca-michaela-sterling/
+
+Netflix's Bridgerton is bringing the gossip, drama, and romance back to the ton, as the season's next couple has been confirmed in a new teaser.
+---------
+
+# Assassin's Creed Hexe Release Date Leaves Gamers Split
+
+Gaming, Assassin's Creed
+
+Tue, 24 Mar 2026 12:00:22 GMT
+
+https://screenrant.com/assassins-creed-hexe-release-date-gamer-speculation-reaction/
+
+Explore the latest rumors surrounding Assassin's Creed Hexe, including its potential release date in 2027, gameplay updates, and more.
+---------
+
+# Punisher Enters Spider-Man: One More Day Era as Mister Negative's Soldier
+
+Comics, The Punisher, Spider-Man: Brand New Day
+
+Tue, 24 Mar 2026 12:00:22 GMT
+
+https://screenrant.com/spider-man-brand-new-day-punisher-mister-negative/
+
+As the Punisher barrels into Spider-Man's Brand New Day era, Frank Castle will be the subject of a dark new twist - one that risks Spidey's life.
+---------
+
+# Bridgerton Season 5 Officially Confirms Francesca and Michaela's Season
+
+TV, Bridgerton
+
+Tue, 24 Mar 2026 12:20:30 GMT
+
+https://www.cbr.com/bridgerton-season-5-confirms-lead-couple/
+
+The steamy series is moving further away from the regular order of the books.
+---------
+
+# 5 Years Ago, This 100% Rotten Tomatoes Sitcom Was One of TV’s Best Until Its Ending Ruined Everything
+
+TV Features, Kim's Convenience, Simu Liu, Sitcom, Netflix
+
+Tue, 24 Mar 2026 12:36:12 GMT
+
+https://collider.com/kims-convenience-ending-ruined-everything-writers-room-diversity/
+
+Kim's Convenience was praised for its representation on-camera, but behind the scenes, the show faced challenges that led to its cancellation.
+---------
+
+# 10 Greatest Kids Movies of the Last 100 Years, Ranked
+
+Movie, WALL-E, The Wizard of Oz, Mary Poppins, Spirited Away
+
+Tue, 24 Mar 2026 12:28:12 GMT
+
+https://collider.com/best-kids-movies-last-100-years-ranked/
+
+Many exceptional kids' movies have been released over the past century, including Mary Poppins, The Wizard of Oz, and E.T. the Extra-Terrestrial.
+---------
+
+# Netflix Officially Reveals 'Bridgerton' Season 5's Main Couple
+
+TV News, Bridgerton, Netflix, Drama, Romance
+
+Tue, 24 Mar 2026 12:18:55 GMT
+
+https://collider.com/netflix-reveals-bridgerton-season-5-couple-reveal-francesca-michaela-stirling/
+
+Production has begun on Season 5 of Bridgerton, and Netflix has officially revealed who the main couple will be.
+---------
+
+# The 20 Best Bond Girls (So Far), Ranked
+
+Movie, James Bond, On Her Majesty's Secret Service, Casino Royale, Goldfinger
+
+Tue, 24 Mar 2026 12:14:12 GMT
+
+https://collider.com/bond-girls-ranked-best/
+
+From Eva Green as Vesper Lynd to Michelle Yeoh as Wai Lin, this is the definitive ranking of the most iconic women of the most historic franchise.
+---------
+
+# ‘Outlander’ Star Sophie Skelton on Whether Fans Might Still Learn Season 1’s Biggest Unanswered Question
+
+Exclusives, Outlander, Sophie Skelton, Richard Rankin
+
+Tue, 24 Mar 2026 12:00:12 GMT
+
+https://collider.com/outlander-season-8-episode-3-sophie-skelton-richard-rankin-interview/
+
+Sophie Skelton and Richard Rankin discuss Outlander Season 8, the bond between Brianna and Roger, and Brianna's reaction to learning about John Grey.
+---------
+
+# 11 Years Later, This Insane American Remake of a Drama Miniseries Has Aged Like Milk
+
+TV Features, The Slap, Zachary Quinto, Drama, NBC
+
+Tue, 24 Mar 2026 11:41:12 GMT
+
+https://collider.com/the-slap-nbc-miniseries-aged-like-milk/
+
+The NBC miniseries The Slap, starring Zachary Quinto, Peter Sarsgaard, Uma Thurman, and Brian Cox, was a major misfire for several reasons.
+---------
+
+# 'Task' Season 2 Adds Mahershala Ali to Mark Ruffalo's HBO Crime Thriller
+
+TV News
+
+Tue, 24 Mar 2026 12:50:22 GMT
+
+https://movieweb.com/mahershala-ali-mark-ruffalo-task/
+
+The 'True Detective' veteran is heading back to HBO to co-star in another acclaimed drama.
+---------
+
+# Steven Spielberg's Masterpiece War Movie 'Saving Private Ryan' Is Streaming for Free on Tubi in April 2026
+
+Movie News, Saving Private Ryan, Tubi, Coming/Leaving Streaming, Action
+
+Tue, 24 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/saving-private-ryan-greatest-war-movie-streaming-free-tubi-april-2026/
+
+Released in 1998, 'Saving Private Ryan,' the "greatest war movie ever made" according to Rotten Tomatoes users, will stream for free on Tubi in April.
+---------
+
+# Ignore ‘Reacher,’ Prime’s Action Thriller 'Cross' Is Even Better
+
+Features, Reacher, Cross, Comparison Recommendation
+
+Tue, 24 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/cross-prime-video-better-than-reacher/
+
+'Cross,' the action thriller TV series on Amazon Prime Video starring Aldis Hodge, is perfect for fans of 'Reacher.'
+---------
+
 # Zelda: The Wind Waker Fans Losing It Over Toon Link's Unexpected Return
 
 Gaming, The Legend of Zelda: The Wind Waker
