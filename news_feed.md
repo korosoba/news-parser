@@ -1,3 +1,278 @@
+# Apple TV Sci-Fi Series For All Mankind Ending With Season 6
+
+TV, For All Mankind
+
+Tue, 24 Mar 2026 14:08:09 GMT
+
+https://screenrant.com/for-all-mankind-season-6-renewal-ending-confirmed-apple-tv-sci-fi/
+
+Apple TV's acclaimed science-fiction series For All Mankind, which will premiere its fifth season this week, has been renewed for a final season.
+---------
+
+# PlayStation Network Rebrand Leak Confirms Service's New Name
+
+Gaming, PlayStation 5
+
+Tue, 24 Mar 2026 14:01:51 GMT
+
+https://screenrant.com/playstation-network-rebrand-new-name-leaks/
+
+Sony has been quietly rebranding the PlayStation Network this month, and players are just now beginning to take notice of changes to the service.
+---------
+
+# Fantasy Life Review: This Heartfelt Comedy Can’t Get Out Of Its Own Way
+
+New Movies, Fantasy Life
+
+Tue, 24 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/fantasy-life-2025-movie-review/
+
+Fantasy Life has some funny moments and a great performance from Amanda Peet, but it struggles to make its strengths add up to much in the end.
+---------
+
+# The Rings Of Power Needs To Switch Genres In Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Tue, 24 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/the-rings-of-power-change-genre-fantasy-season-3/
+
+Middle-earth will kick into the next stage of Sauron's attempt to rule in Rings of Power season 3, which means the show's tone and themes will change.
+---------
+
+# Kathryn Newton's Top Horror Performances Ranked
+
+Movies, Kathryn Newton, Horror
+
+Tue, 24 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/kathryn-newton-best-horror-movies-ranked/
+
+Kathryn Newton has become a huge Scream Queen in recent years, and these are her best horror movies.
+---------
+
+# Harry Potter Series' First Official Looks At New Platform 9 3/4 & The Leaky Cauldron Finally Revealed
+
+TV, Harry Potter
+
+Tue, 24 Mar 2026 13:56:32 GMT
+
+https://screenrant.com/harry-potter-series-platform-nine-three-quarters-leaky-cauldron-first-look/
+
+As production continues for the new Harry Potter TV series, several videos reveal the first look at the new Platform 9 3/4 and the Leaky Cauldron.
+---------
+
+# Xbox Giving Away Multiple Halo Games For Basically Free Right Now
+
+Gaming, Xbox Series X/S, Triple-A Games, PC
+
+Tue, 24 Mar 2026 13:48:46 GMT
+
+https://screenrant.com/xbox-steam-halo-sale-basically-free/
+
+During a deeply discounted Halo franchise sale, you can pick up two Halo games for basically nothing, but you have a limited time to act.
+---------
+
+# Jon Bernthal’s Gritty The Punisher Return Before Spider-Man: Brand New Day Officially Revealed
+
+TV, The Punisher Special Presentation, The Punisher, Marvel Cinematic Universe
+
+Tue, 24 Mar 2026 13:31:23 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-frank-castle-jon-bernthal-return-poster/
+
+As he will make his MCU film debut this summer in Spider-Man: Brand New Day, Marvel Studios has confirmed when Jon Bernthal's Punisher spinoff drops.
+---------
+
+# Kontinental '25 Review: Radu Jude's Acerbic, Awkwardly Funny Social Critique Examines The Cost Of Urban Renewal
+
+Movies, Kontinental '25
+
+Tue, 24 Mar 2026 13:31:20 GMT
+
+https://screenrant.com/kontinental-25-movie-review/
+
+The Romanian iconoclastic director Radu Jude's latest film goes for a more intimate approach in criticizing our tendency to erase the past.
+---------
+
+# Chico's Rebound Review - A Challenging Block-Breaking Puzzler That Will Hook You
+
+Gaming, Indie
+
+Tue, 24 Mar 2026 13:23:09 GMT
+
+https://screenrant.com/chicos-rebound-review/
+
+Discover the addictive gameplay of Chico's Rebound, a block-breaking puzzler with an interconnected tower full of mystery and adventure.
+---------
+
+# Jane Lynch Breaks Down Happy’s Place’s Wildest Character
+
+TV, Happy's Place
+
+Tue, 24 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/video/jane-lynch-breaks-down-happy-s-place-s-wildest-character/
+
+In this CBR Presents interview, Jane Lynch opens up about playing a narcissistic mother in Happy’s Place and why balancing humor with emotional truth is everything. She explains how the character’s “love bombing” dynamic works, the real-life inspiration behind the writing, and why every role starts with vulnerability. Plus, Lynch reflects on her signature style of playing bold personalities and what makes this performance hit differently.
+---------
+
+# Sigourney Weaver's Avatar: Fire and Ash Sets Digital Release Date
+
+Movies, Avatar, Avatar: Fire and Ash
+
+Tue, 24 Mar 2026 14:11:10 GMT
+
+https://www.cbr.com/sigourney-weaver-avatar-fire-and-ash-digital-release-date-march-2026/
+
+The legendary actress' franchise's future has just been confirmed.
+---------
+
+# Apple TV Officially Confirms the For All Mankind Season 5
+
+TV, For All Mankind
+
+Tue, 24 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-fate/
+
+The decision comes ahead of the new season, which debuted with strong reviews.
+---------
+
+# 10 Forgotten Cult Classics That Are Must-Watch Anime in 2026
+
+Anime, Revolutionary Girl Utena, Sci-Fi, Fantasy
+
+Tue, 24 Mar 2026 13:15:12 GMT
+
+https://www.cbr.com/best-2000s-anime-cult-classics-no-one-remembers-2026/
+
+Cult classic anime like Revolutionary Girl Utena and Serial Experiments Lain absolutely need to be watched in 2026.
+---------
+
+# Hellboy's Revival Confirmed Ahead of A Major Anniversary
+
+Comics, Hellboy
+
+Tue, 24 Mar 2026 13:01:22 GMT
+
+https://www.cbr.com/giant-robot-hellboy-returns-release-date-confirmed/
+
+As Hellboy Day approaches, the World Destroyer returns with a surprisingly perfect sequel.
+---------
+
+# Who Is Dominique Kohl In Reacher?
+
+TV, Reacher
+
+Tue, 24 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/reacher-dominique-kohl-quinn-victim-explained/
+
+Reacher Season 3 is all about his relationship to a soldier named Dominique Kohl, and she is incredibly important to Jack Reacher and his past.
+---------
+
+# Apple TV's 'For All Mankind' Officially Comes To an End
+
+TV News, For All Mankind, Star City, Apple TV, Sci-Fi
+
+Tue, 24 Mar 2026 14:00:12 GMT
+
+https://collider.com/for-all-mankind-renewed-season-6-renewed-final-apple-tv-season-5-release-date/
+
+Apple TV has renewed For All Mankind for a sixth and final season ahead of the show’s Season 5 premiere on March 27.
+---------
+
+# 2025’s Most Ambitious Sci-Fi Sequel Officially Sets Digital Release Date
+
+Movie News, Avatar: Fire and Ash, James Cameron, Sam Worthington, Stephen Lang
+
+Tue, 24 Mar 2026 14:00:12 GMT
+
+https://collider.com/avatar-fire-and-ash-digital-physical-media-release-date/
+
+The most ambitious sci-fi sequel of 2025, Avatar: Fire and Ash, is officially coming to digital and physical media. Found out when here.
+---------
+
+# Jon Bernthal Officially Confirms More 'Punisher' Is Coming in 7 Weeks
+
+Movie News, Punisher, Jon Bernthal, Daredevil: Born Again, Disney+
+
+Tue, 24 Mar 2026 13:28:27 GMT
+
+https://collider.com/the-punisher-release-date-one-last-kill-poster-jon-bernthal-disney-plus/
+
+Jon Bernthal officially confirms Frank Castle's return with first look at Punisher: One Last Kill and reveals the release date.
+---------
+
+# ’Outlander’ Showrunner Confirms Whether Fans Will See Tobias Menzies' Frank in the Final Season
+
+Exclusives, Outlander, Caitriona Balfe, Sam Heughan
+
+Tue, 24 Mar 2026 13:00:12 GMT
+
+https://collider.com/outlander-season-8-tobias-menzies-showrunner-matthew-b-roberts-executive-producer-maril-davis-interview/
+
+Showrunner Matthew B. Roberts and EP Maril Davis discuss Outlander Season 8, Claire's magical healing, and Jamie's possible fate.
+---------
+
+# 'Avatar: Fire and Ash' Lands Digital & Physical Release Dates
+
+Movie News, Avatar: Fire and Ash
+
+Tue, 24 Mar 2026 14:00:46 GMT
+
+https://movieweb.com/avatar-fire-and-ash-digital-streaming-date/
+
+The third chapter of the James Cameron sci-fi franchise 'Avatar' is headed to digital at the end of the month.
+---------
+
+# 'Project Hail Mary' Topples Its Hard Sci-Fi Predecessor at the Box Office
+
+Movie News, Project Hail Mary, The Martian, Box Office Milestones
+
+Tue, 24 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/project-hail-mary-beats-the-martian-box-office-opening-weekend/
+
+'Project Hail Mary' managed to exceed all expectations at the box office this past weekend on its way to toppling 'The Martian.'
+---------
+
+# TV Thrillers You Can Binge in One Night
+
+TV Lists, Thriller, Stay Close, Mare of Easttown, clickbait, Cruel Summer, Behind Her Eyes, Citadel, The Undoing, Paradise
+
+Tue, 24 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/tv-thrillers-one-night-binge/
+
+These are the best TV thrillers you can binge in just a few hours.
+---------
+
+# Dwayne Johnson Details the Challenges of Playing Live-Action Maui in 'Moana' Remake
+
+Movie News, Moana, Dwayne Johnson
+
+Tue, 24 Mar 2026 13:27:27 GMT
+
+https://movieweb.com/dwayne-johnson-moana-live-action-challenges-bodysuit-wig/
+
+Dwayne Johnson explained why it was difficult to play the demigod Maui while wearing a bodysuit and wig for the live-action 'Moana' remake.
+---------
+
+# 'Severance' is the Decade's Best Sci-Fi Series and Is Trending On Streaming
+
+Features, Severance
+
+Tue, 24 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/severance-sci-fi-trending-apple-tv/
+
+'Severance' is the best sci-fi TV series of the decade and stars Adam Scott as Mark Scout, who works at Lumon Industries.
+---------
+
 # 10 Best Non-Powered Villains in Marvel History, Ranked
 
 Comics, Marvel
