@@ -1,3 +1,124 @@
+# GTA 6 Delay 3 Fears Intensify Following New Rockstar Scandal
+
+Gaming, Grand Theft Auto 6
+
+Tue, 24 Mar 2026 10:21:43 GMT
+
+https://screenrant.com/gta-6-delay-3-fears-new-rockstar-scandal/
+
+Rockstar Games, developer of highly anticipated GTA 6, faces a new scandal involving unpaid employee wages, raising concerns about potential delays.
+---------
+
+# Mike Flanagan's Lost Hell House Series Is Still Mandatory
+
+TV, Mike Flanagan, Horror, Netflix
+
+Tue, 24 Mar 2026 10:00:12 GMT
+
+https://www.cbr.com/netflix-mike-flanagan-lost-hell-house-series/
+
+Mike Flanagan made a name for himself with The Haunting of Hill House and The Haunting of Bly Manor, but there was supposed to be a third series.
+---------
+
+# Peaky Blinders: The Immortal Man's Tommy Shelby Is a Better Father Than Michael Corleone
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders, Netflix
+
+Tue, 24 Mar 2026 10:00:12 GMT
+
+https://www.cbr.com/netflix-peaky-blinders-movie-tommy-shelby-better-father-than-michael-corleone/
+
+Peaky Blinders: The Immortal Man isn't a typical gangster story, and the fact that Tommy Shelby is a better dad than Michael Corleone proves it.
+---------
+
+# 8 Greatest Superhero Movie Masterpieces of the Last 10 Years, Ranked
+
+Movie, Superhero, Avengers: Endgame, Spider-Man Into the Spider-Verse, Black Panther Wakanda Forever
+
+Tue, 24 Mar 2026 10:41:13 GMT
+
+https://collider.com/best-superhero-movie-masterpieces-last-10-years-ranked/
+
+The Batman, Superman, Black Panther: Wakanda Forever, Avengers: Endgame, and more make up our list of the best superhero movies of the last 10 years.
+---------
+
+# ‘Yellowstone’s Replacement for Kevin Costner Has Officially Been Revealed
+
+TV News, Yellowstone, Marshals, Taylor Sheridan, Paramount Plus
+
+Tue, 24 Mar 2026 10:30:14 GMT
+
+https://collider.com/marshals-yellowstone-replacement-for-john-dutton-thomas-rainwater/
+
+Marshals has officially positioned Thomas Rainwater as the character now filling John Dutton’s old protector role in the Yellowstone franchise.
+---------
+
+# 30 Bloodiest Horror Movies of All Time, Ranked
+
+Movie, Horror, Evil Dead, Dead Alive, Martyrs
+
+Tue, 24 Mar 2026 10:28:12 GMT
+
+https://collider.com/bloodiest-horror-movies-ranked/
+
+Some horror movies are bloodier than others, and films like Saw, Evil Dead, Martyrs, and Tokyo Gore Police go all the way off on the gore.
+---------
+
+# The 8 Most Perfect Movies of the Last 6 Years, Ranked
+
+Movie, Sinners, One Battle After Another, Everything Everywhere All at Once, Poor Things
+
+Tue, 24 Mar 2026 10:23:12 GMT
+
+https://collider.com/most-perfect-movies-last-6-years-ranked/
+
+Poor Things, One Battle After Another, Sinners, Nosferatu, Babylon, and more make up our list of the most perfect movies of the last six years.
+---------
+
+# Rebecca Ferguson’s $60M Sci-Fi Flop Is Becoming 2026's New Cult Classic
+
+Movie News, Mercy, Rebecca Ferguson, Chris Pratt, Prime Video
+
+Tue, 24 Mar 2026 10:15:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-movie-mercy-streaming-success-prime-video-march-2026/
+
+Rebecca Ferguson's new sci-fi movie with Chris Pratt is already the #1 movie in the world on streaming. Find out how to watch here.
+---------
+
+# 'Daredevil: Born Again' Season 1 Recap: What To Remember Before Charlie Cox's Marvel Series Returns
+
+TV Features, Daredevil: Born Again, MCU, Charlie Cox, Disney+
+
+Tue, 24 Mar 2026 10:08:12 GMT
+
+https://collider.com/daredevil-born-again-season-1-recap-disney-plus-marvel/
+
+We recap key plot points, character developments, and storylines to remember from Daredevil: Born Again Season 1 before the show returns for Season 2.
+---------
+
+# 14 Years Later, Tom Hanks' Most Ambitious Sci-Fi Flop Keeps Getting Better With Age
+
+Movie, Cloud Atlas, Tom Hanks, Lilly Wachowski, Lana Wachowski
+
+Tue, 24 Mar 2026 10:06:12 GMT
+
+https://collider.com/cloud-atlas-tom-hanks-14-years-later-forgotten-sci-fi-flop-more-relevant-than-ever/
+
+With Tom Hanks and Halle Berry leading a cast of great actors playing weirdos, Cloud Atlas is an infamous flop and a genuinely brilliant sci-fi epic.
+---------
+
+# 17 Years Later, One of the Greatest Sci-Fi Disaster Movies Ever Is Dominating Streaming Once Again
+
+Movie News, John Cusack, Amanda Peet, 2012, Roland Emmerich
+
+Tue, 24 Mar 2026 10:00:12 GMT
+
+https://collider.com/roland-emmerich-sci-fi-disaster-epic-2012-streaming-success-disney-plus-march-2026/
+
+Roland Emmerich's sci-fi blockbuster from 2009 is having a resurgence. Here's what you should know about the disaster movie, 2012.
+---------
+
 # Marvel’s Officially Unveils Wild New Guardians Line-Up
 
 Gaming, Marvel, Triple-A Games
