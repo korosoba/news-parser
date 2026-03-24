@@ -1,3 +1,256 @@
+# Every Single Star Trek Show Is Officially Dead, Jim
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 24 Mar 2026 20:34:18 GMT
+
+https://screenrant.com/every-star-trek-show-is-over/
+
+The Star Trek franchise has entered uncharted territory, with every show now officially canceled, leaving fans to wonder what lies ahead.
+---------
+
+# Netflix's Stranger Things Is Officially Returning With A New Release In 1 Month & The Time to Binge It Is Now
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Tue, 24 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-netflix-series-binge/
+
+Netflix's Stranger Things franchise continues with an exciting new chapter next month, and now is the time to get ready before it's too late.
+---------
+
+# Netflix's 2-Part Fantasy Series Is So Good, It Could Last Over A Decade
+
+Streaming TV, One Piece, Fantasy, Netflix
+
+Tue, 24 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/one-piece-netflix-live-action-12-seasons-last-over-a-decade/
+
+It's hard for fantasy shows to last beyond a few seasons, but this colorful Netflix hit has all the ingredients to go on for decades to come.
+---------
+
+# PlayStation 6 AI Implementation Officially Confirmed
+
+Gaming, PlayStation 5, Triple-A Games
+
+Tue, 24 Mar 2026 20:14:09 GMT
+
+https://screenrant.com/playstation-6-ai-use-confirmed-sony/
+
+As Sony starts to figure out how to wind down the PlayStation 5 era, Mark Cerny and his team are already trying to pave the way for the PS6.
+---------
+
+# The Elder Scrolls 6 Fans Marking Their Calendars For March 26
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls
+
+Tue, 24 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/elder-scrolls-6-march-26-reveal-hopes/
+
+Elder Scrolls fans are convinced the game could rear its head at an upcoming Xbox livestream, but all signs point to another disappointment.
+---------
+
+# 4 Years Later, Netflix’s 8-Part Sci-Fi Thriller Is Still Worth Watching Now
+
+Streaming TV, Netflix, Archive 81
+
+Tue, 24 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/netflix-archive-81-thriller-series-watch/
+
+Archive 81, a blend of found-footage horror and psychological drama, remains one of Netflix's top-rated sci-fi thrillers four years after its debut.
+---------
+
+# Scarlet Witch Just Pulled Off An Insane Move That Would Make Doctor Strange Jealous
+
+Comics, Scarlet Witch, Doctor Strange, Marvel
+
+Tue, 24 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/scarlet-witch-just-pulled-off-an-insane-move-that-would-make-doctor-strange-jealous/
+
+The Scarlet Witch is Marvel's new Sorcerer Supreme, pulling off a major feat of power that Doctor Strange himself would struggle to achieve.
+---------
+
+# HBO Max's New Documentary Explores Climber Dean Potter's Life And Legacy
+
+Streaming TV, SXSW
+
+Tue, 24 Mar 2026 19:53:36 GMT
+
+https://screenrant.com/dark-wizard-reveals-true-origin-behind-one-of-most-infamous-climbers/
+
+Discover the untold story of legendary climber Dean Potter in HBO Max's new four-part documentary, The Dark Wizard, as filmmakers delve into his life, death-defying feats, and personal struggles.
+---------
+
+# Paramount’s Sonic 4 Cast: The 13 Main Actors Confirmed for the 2027 Sequel
+
+Movies, Sonic the Hedgehog 4
+
+Tue, 24 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-4-confirmed-cast-list/
+
+The highly anticipated video game sequel's cast features plenty of returning favorites, plus a host of new additions sure to get fans' pulses racing.
+---------
+
+# CBCS Has Confirmed When It Will Close For Good
+
+Comics, comics
+
+Tue, 24 Mar 2026 20:25:03 GMT
+
+https://www.cbr.com/cbcs-comic-grading-company-closing/
+
+One of the biggest comic book grading companies is shutting down, and there are only weeks left before its doors close for good.
+---------
+
+# 10 Biggest Anime Oscar Snubs of All Time, Ranked
+
+Anime, Studio Ghibli
+
+Tue, 24 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/biggest-anime-oscar-snubs-of-all-time/
+
+Incredible anime films like A Silent Voice and Ponyo never received the recognition they deserved on the biggest stage.
+---------
+
+# Dakota Fanning Picked Up a Wildly Unexpected New Skill
+
+Movies, The Sun Never Sets, SXSW, Drama
+
+Tue, 24 Mar 2026 20:04:08 GMT
+
+https://www.cbr.com/dakota-fanning-the-sun-never-sets-bulldozer-driving/
+
+Acting wasn't the only skill required for Dakota Fanning's new movie.
+---------
+
+# The Martian Resurfaces PVOD Charts as Its Follow-Up Dominates in Theaters
+
+Movies, The Martian, Project Hail Mary, Sci-Fi
+
+Tue, 24 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/ridley-scott-the-martian-streaming-success-after-project-hail-mary-sci-fi/
+
+One of the greatest sci-fi epics of the 2010s is back on the streaming charts as a spiritual successor becomes the biggest film of 2026.
+---------
+
+# Sam Claflin's The Count of Monte Cristo Becomes a Hit on PVOD
+
+TV, The Count of Monte Cristo
+
+Tue, 24 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/sam-claflin-the-count-of-monte-cristo-pvod-success-march-2026/
+
+Sam Claflin's 8-part miniseries adaptation of Alexandre Dumas' classic novel The Count of Monte Cristo is a PVOD streaming hit.
+---------
+
+# Netflix's Peaky Blinders: The Immortal Man Sets Up a TV Revival
+
+Movies, Peaky Blinders: The Immortal Man
+
+Tue, 24 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/netflix-peaky-blinders-immortal-man-tv-revival/
+
+Netflix has made some incredible crime dramas, and its newest original movie promises to create an iconic TV revival.
+---------
+
+# Chris Pratt’s $267M Animated Comedy Surges on Hulu 2 Weeks Before Super Mario Movie 2
+
+Movies, The Garfield Movie
+
+Tue, 24 Mar 2026 19:57:13 GMT
+
+https://www.cbr.com/chris-pratt-the-garfield-movie-comedy-hulu-success-march-2026/
+
+Ahead of The Super Mario Galaxy Movie, Chris Pratt fans are streaming another one of the actor's animated comedies on Hulu.
+---------
+
+# The Nintendo Character You’d Actually Be (It’s Not Who You Think)
+
+Games, Nintendo Quiz, Nintendo
+
+Tue, 24 Mar 2026 19:54:36 GMT
+
+https://www.cbr.com/what-nintendo-character-are-you-quiz/
+
+Whether you're a Mario, Link, or Samus, this quiz is for you!
+---------
+
+# After 5 Years, Psych 4 Finally Gets an Update
+
+TV, Psych
+
+Tue, 24 Mar 2026 19:54:30 GMT
+
+https://www.cbr.com/psych-4-movie-update/
+
+Five years after the latest Psych movie, fans finally get an update on the fourth film in the series from two of its biggest stars.
+---------
+
+# 'NCIS' Stars Reveal the Real Reason the Series Still Works After 500 Episodes
+
+Collider Rewind, NCIS, Wilmer Valderrama, Paramount, CBS
+
+Tue, 24 Mar 2026 20:00:12 GMT
+
+https://collider.com/ncis-500-episodes-wilmer-valderrama-emily-wickersham-retrospective/
+
+Wilmer Valderrama and Emily Wickersham discuss the secret behind NCIS' success, as the hit series reaches a milestone 500 episodes.
+---------
+
+# David Bowie Released One of the Greatest Songs of All Time in 1977 and Nobody Cared
+
+Music Features, David Bowie, Rock, Music, Billboard Hot 100
+
+Tue, 24 Mar 2026 20:00:12 GMT
+
+https://collider.com/1977-david-bowie-classic-heroes-flopped-now-one-of-his-greatest-songs/
+
+David Bowie's groundbreaking song that failed to achieve commercial success upon release but eventually became one of Bowie's most celebrated hits.
+---------
+
+# 'Kontinental ’25' Review: A Romanian Social Satire That Understands Your Struggles, Too
+
+Movie Reviews, Kontinental '25
+
+Tue, 24 Mar 2026 20:22:47 GMT
+
+https://movieweb.com/kontinental-25-review/
+
+Romanian master of the absurd, Radu Jude, plays it fairly straight in this timely satire about a woman guilt-ridden over the death of a homeless man.
+---------
+
+# Netflix Removing Taylor Sheridan's 'Special Ops: Lioness' From International Streaming Before Season 3
+
+TV News, Lioness, Netflix, Coming/Leaving Streaming, Taylor Sheridan
+
+Tue, 24 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-leaving-streaming-netflix-april-2026/
+
+Taylor Sheridan's most underrated action thriller series, 'Special Ops: Lioness,' will no longer stream on Netflix ahead of Season 3's release.
+---------
+
+# How 'Spider-Man: Brand New Day's Scorpion Differs From the Comics
+
+Features, Spider-Man: Brand New Day, MCU
+
+Tue, 24 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/spider-man-brand-new-day-scorpion-comics-explained/
+
+The trailer for 'Spider-Man: Brand New Day' provides a first look at Michael Mando's Scorpion and how he differs from his comic counterpart.
+---------
+
 # Paradise Season 2, Episode 7 Ending Explained: How President Bradford Foreshadowed The Bunker’s Fate
 
 Streaming TV, Paradise
