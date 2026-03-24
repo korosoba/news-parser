@@ -1,3 +1,322 @@
+# Ryan Coogler's New X-Files Reboot Script Gets First Reaction From Gillian Anderson
+
+TV
+
+Tue, 24 Mar 2026 18:46:51 GMT
+
+https://screenrant.com/ryan-coogler-x-files-reboot-script-gillian-anderson-reaction/
+
+Gillian Anderson shares her honest reaction to Ryan Coogler's X-Files reboot.
+---------
+
+# Fantastic Four Officially Debut Their Most Creative Costumes Yet
+
+Marvel Comics, Fantastic Four, Marvel
+
+Tue, 24 Mar 2026 18:40:23 GMT
+
+https://screenrant.com/fantastic-four-new-costumes-reed-richards-rome/
+
+The Fantastic Four's Reed Richards and Johnny Storm ditch their classic uniforms for a drastically different look that suits their new adventure.
+---------
+
+# The Mummy 4's Rating Confirmed By Directors As They Tease Risky "Push To The Edge" For Sequel Violence
+
+Movies, The Mummy 4, The Mummy
+
+Tue, 24 Mar 2026 18:30:52 GMT
+
+https://screenrant.com/the-mummy-4-movie-pg-13-rating-risks-radio-silence/
+
+Brendan Fraser is returning for The Mummy 4, and the new directors are revealing how they plan to “step over the line” and take risks with the film.
+---------
+
+# Ethan Hawke's Underrated Western Series: The Good Lord Bird on HBO Max
+
+Classic TV, The Good Lord Bird, Western, Ethan Hawke
+
+Tue, 24 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/hbo-western-the-good-lord-bird-ethan-hawke-must-watch/
+
+Forget everything you know about TV Westerns, this forgotten masterpiece rips up the rule book and gives us an entirely fresh perspective on history.
+---------
+
+# Every Ghostface Reveal In The Scream Movie Franchise, Ranked
+
+Movies, Scream, Ranking
+
+Tue, 24 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/scream-movie-franchise-ghostface-reveals-ranked/
+
+The best part of any Scream movie is the reveal of who is behind the Ghostface mask, and each film has their own strengths and weaknesses.
+---------
+
+# Disney's New Live-Action Cinderella Spinoff Pivots Focus On Her Cruel Stepsisters
+
+Movies, Cinderella, Disney
+
+Tue, 24 Mar 2026 18:27:24 GMT
+
+https://screenrant.com/disney-cinderella-spinoff-movie-stepsisters-development/
+
+Anastasia and Drizella are finally getting all the attention as Disney plans to give the ugly stepsisters a makeover in a live-action movie.
+---------
+
+# 8 Biggest Unanswered Questions From The Madison Season 1
+
+Streaming TV, The Madison
+
+Tue, 24 Mar 2026 18:21:58 GMT
+
+https://screenrant.com/the-madison-season-1-unanswered-questions/
+
+The Madison season 1 ended with a shocking cliffhanger, and there are several questions that need answers when season 2 finally premieres.
+---------
+
+# Avengers: Doomsday Finally Has An Out To Its Dune 3 Showdown
+
+New Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 24 Mar 2026 18:20:20 GMT
+
+https://screenrant.com/avengers-doomsday-avoid-dune-3-release-solution/
+
+After so much uncertainty with the Dunesday showdown, Marvel now has a chance to get out of Avengers: Doomsday competition with Dune 3.
+---------
+
+# The Halo TV Show Was Given Up On Way Too Soon
+
+Classic TV, Halo
+
+Tue, 24 Mar 2026 18:15:19 GMT
+
+https://screenrant.com/halo-tv-show-adaptation-development-delays-cancel-too-soon/
+
+This Paramount+ video game adaptation TV show was destined for greatness, but it was unfortunately canceled before it could truly flourish.
+---------
+
+# HBO's Harry Potter Is Finally Delivering On Fans Requests For More Quidditch
+
+Streaming TV, Harry Potter
+
+Tue, 24 Mar 2026 18:05:45 GMT
+
+https://screenrant.com/harry-potter-tv-show-hbo-quidditch-image-hufflepuff-gryffindor/
+
+HBO's first image for the Harry Potter show was clearly strategically selected, since it reveals that one of our greatest requests will be answered.
+---------
+
+# Chainsaw Man's Ending Is Actually Perfect
+
+Anime, Chainsaw Man
+
+Tue, 24 Mar 2026 18:53:12 GMT
+
+https://www.cbr.com/chainsaw-man-chapter-232-review/
+
+Tatsuki Fujimoto's Chainsaw Man manga has officially come to an end. It's a beautiful, bittersweet ending that many won't appreciate until later.
+---------
+
+# Hello Kitty Island Adventure Officially Reveals New City Town Trailer, April 16 Release Date
+
+Anime, Hello Kitty Island Adventure, Hello Kitty
+
+Tue, 24 Mar 2026 18:53:09 GMT
+
+https://www.cbr.com/hello-kitty-island-adventure-city-town-trailer-release-date/
+
+Hello Kitty Island Adventure is getting a major update, and it's giving gamers access to a brand-new locale in just a matter of weeks.
+---------
+
+# Love Story Creator Teases Legendary Hollywood Couple in Season 2: 'They Have the Right Intensity'
+
+TV, Love Story
+
+Tue, 24 Mar 2026 18:43:33 GMT
+
+https://www.cbr.com/love-story-season-2-hollywood-couple-right-intensity-connor-hines/
+
+After a season dedicated to John F. Kennedy Jr. and Carolyn Bessette, Love Story creator Connor Hines knows which couple Season 2 should focus on.
+---------
+
+# Taika Waititi Opens Up About Gaming and Brawl Stars
+
+Games, Clash of Clans, taika waititi
+
+Tue, 24 Mar 2026 18:15:11 GMT
+
+https://www.cbr.com/taika-waititi-video-games-interview-brawl-stars/
+
+Acclaimed filmmaker Taika Waititi opens up about his experience watching video games evolve and stepping into the world of Brawl Stars.
+---------
+
+# Disney Announces Live-Action Cinderella Spinoff
+
+Movies, Disney, Cinderella
+
+Tue, 24 Mar 2026 18:12:32 GMT
+
+https://www.cbr.com/disney-cinderella-spinoff-stepsisters/
+
+Disney's next live-action spinoff of an animated classic will be the perfect Maleficent replacement.
+---------
+
+# Netflix Brings Back Jennifer Garner to Reboot 13 Going on 30, But There's a Catch
+
+Movies, 13 Going on 30, Netflix
+
+Tue, 24 Mar 2026 18:03:08 GMT
+
+https://www.cbr.com/netflix-13-going-on-30-reboot-jennifer-garner/
+
+The new reboot will feature People We Meet on Vacation and Percy Jackson stars.
+---------
+
+# 10 Sci-Fi Indie Comics Since 2000 That Fans Must Read
+
+Comics, Sci-Fi, image comics, jeff lemire
+
+Tue, 24 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/must-read-sci-fi-indie-comics-since-2000/
+
+The world of indie comics has always been a place for science fiction to thrive, and the 21st century is an incredible testament to that fact.
+---------
+
+# Pokémon Legends: Z-A Free Downloads Officially Available Until March 31
+
+Games, Pokemon, Nintendo
+
+Tue, 24 Mar 2026 17:56:12 GMT
+
+https://www.cbr.com/pokemon-legends-z-a-free-downloads-officially-available-march-2026/
+
+From now till the end of March, Pokémon Legends: Z-A players have their final chance to use an expiring, highly valuable Mystery Gift code.
+---------
+
+# Crunchyroll Reveals Full Spring 2026 Anime Streaming List & Release Dates
+
+Anime, Crunchyroll, Witch Hat Atelier, Re:Zero -Starting Life in Another World-, One Piece, The Beginning or the End
+
+Tue, 24 Mar 2026 17:53:28 GMT
+
+https://www.cbr.com/crunchyroll-spring-2026-anime-release-dates/
+
+Crunchyroll's Spring 2026 official anime lineup includes the critically acclaimed fantasy Witch Hat Atelier, the isekai hit Re:Zero Season 4 and more.
+---------
+
+# Netflix Officially Confirms It's No Longer Adapting Bridgerton
+
+TV, Bridgerton, Netflix
+
+Tue, 24 Mar 2026 17:50:12 GMT
+
+https://www.cbr.com/netflix-bridgerton-season-5-adaptation-changes/
+
+Bridgerton Season 5 has announced its latest couple, and it proves that Netflix is officially focusing on a new direction.
+---------
+
+# Elton John's Cover of This Beatles Classic Is the Greatest Billboard No. 1 of All Time
+
+Music Features, Elton John
+
+Tue, 24 Mar 2026 18:50:41 GMT
+
+https://collider.com/elton-john-billboard-no-1-cover-of-beatles-classic-lucy-in-the-sky-with-diamonds/
+
+Elton John and John Lennon's collaboration on Lucy in the Sky with Diamonds resulted in Elton's Billboard No. 1 hit, showcasing their friendship and musical chemistry before Lennon's tragic death.
+---------
+
+# 'The Sun Never Sets' Review: Dakota Fanning Gets Caught in a Love Triangle in This Solidly Grounded Romance
+
+Movie Reviews, The Sun Never Sets, Joe Swanberg, Dakota Fanning, Jake Johnson
+
+Tue, 24 Mar 2026 18:42:26 GMT
+
+https://collider.com/the-sun-never-sets-review-dakota-fanning-jake-johnson/
+
+The Sun Never Sets, starring Dakota Fanning and Jake Johnson, is a well-handled, grounded love triangle romance.
+---------
+
+# Netflix Is Officially Remaking One of the Most Iconic Rom-Coms of the 21st Century
+
+Movie News, 13 Going on 30, Emily Bader, Logan Lerman, Jennifer Garner
+
+Tue, 24 Mar 2026 18:13:50 GMT
+
+https://collider.com/13-going-on-30-remake-netflix-cast-emily-bader-logan-lerman-jennifer-garner-producing/
+
+Netflix is officially remaking 13 Going on 30, one of the best rom-coms of the 21st century. Here's who's leading the Jennifer Garner-produced movie.
+---------
+
+# 'NCIS' Gained Its Best New Character When Tony Left 10 Years Ago
+
+TV Features, NCIS, Michael Weatherly, Wilmer Valderrama, CBS, Collider Rewind
+
+Tue, 24 Mar 2026 18:06:12 GMT
+
+https://collider.com/ncis-tony-replacement-nick-torres-wilmer-valderrama/
+
+When Michael Weatherly exited NCIS, Wilmer Valderrama's Torres joined the cast to fill the void, quickly becoming the best new character.
+---------
+
+# HBO Max Is Set To Have Its Biggest Expansion Yet in Just 2 Days
+
+TV News, The Pitt, HBO Max, Harry Potter, Game Of Thrones
+
+Tue, 24 Mar 2026 18:02:44 GMT
+
+https://collider.com/hbo-max-uk-ireland-expanion-launch-march-26-2026/
+
+HBO Max will officially launch in the UK and Ireland on March 26 with The Pitt, HBO classics, blockbuster movies, and multiple new pricing tiers.
+---------
+
+# ‘Sleepy Hollow’ Is Officially Getting a New 5-Part Limited Release [Exclusive]
+
+Exclusives, Sleepy Hollow, Comics, Tim Burton, IDW
+
+Tue, 24 Mar 2026 18:01:12 GMT
+
+https://collider.com/sleepy-hollow-new-comic-book-prequel-release-5-part-limited-run/
+
+Discover the chilling origins of the Headless Horseman's witch in Sleepy Hollow: The Witches of the Western Wood, a new comic prequel from IDW.
+---------
+
+# ‘Bosch’ Star Titus Welliver Honors Late Series Creator With Heartfelt Tribute
+
+TV News, Bosch, Bosch: Legacy, Titus Welliver
+
+Tue, 24 Mar 2026 17:56:24 GMT
+
+https://collider.com/bosch-titus-welliver-michael-connelly-eric-overmyer-tribute/
+
+Titus Welliver & Michael Connelly honor the late Eric Overmyer, calling Bosch “one of the best detective stories ever told on television.”
+---------
+
+# 10 Most Perfect Opening Scenes of All Time, Ranked
+
+Movie, The Dark Knight, Trainspotting, Inglourious Basterds, Scream
+
+Tue, 24 Mar 2026 17:52:13 GMT
+
+https://collider.com/most-perfect-movie-opening-scenes-ranked/
+
+Some of the best opening scenes of all time can be found in iconic movies like The Dark Knight, Scream, and Indiana Jones and the Last Crusade.
+---------
+
+# Sydney Sweeney Sci-Fi Film 'Gundam' Adds' Spider-Man: Brand New Day' Star Michael Mando
+
+Movie News, Sydney Sweeney, Michael Mando, Gundam, Spider-Man: Brand New Day
+
+Tue, 24 Mar 2026 18:39:09 GMT
+
+https://movieweb.com/gundam-netflix-film-cast-michael-mando/
+
+Michael Mando, who will star in Marvel's 'Spider-Man: Brand New Day,' is now set to star alongside Sydney Sweeney in the upcoming 'Gundham' film.
+---------
+
 # Missing Link: The Underrated Stop-Motion Animated Gem That Made History
 
 Movies, Missing Link, Recommendation
