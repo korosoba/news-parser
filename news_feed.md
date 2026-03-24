@@ -1,3 +1,135 @@
+# 12 Upcoming Netflix Shows You Cannot Miss
+
+Streaming TV, Netflix
+
+Tue, 24 Mar 2026 23:15:19 GMT
+
+https://screenrant.com/upcoming-netflix-shows-you-cannot-miss/
+
+Netflix has already released countless unforgettable titles in 2026, but Q2 releases will be even more exciting, spanning genres, countries, and more.
+---------
+
+# Fallout Season 3 Expands To New Location Balancing Growth And Cohesion
+
+Streaming TV, Fallout
+
+Tue, 24 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/fallout-season-3-new-locations-game-ghoul-colorado-risk/
+
+As Fallout season 3 prepares to explore new regions, including areas from the game series, fans wonder how the show will balance new expansion.
+---------
+
+# How Prime Video's New 6-Part Comedy Pulled Off Its James Bond Connection Explained By Bait Creator Riz Ahmed
+
+TV, Bait, SXSW, Riz Ahmed
+
+Tue, 24 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/prime-video-bait-show-james-bond-connection-explained-riz-ahmed/
+
+Riz Ahmed talks his new six-part comedy Bait, its personal inspirations and how the Prime Video series pulled off its James Bond connection.
+---------
+
+# Marvel Just Gave Us Captain America At His Most Unhinged
+
+Comics, Captain America, Marvel
+
+Tue, 24 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/marvel-unhinged-captain-america-series-latveria-mission/
+
+Marvel's new Captain America,
+---------
+
+# Zelda: Oracle Of Seasons Revamped Leaves Gamers In Awe
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Tue, 24 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/zelda-oracle-of-seasons-revamped-remaster-hopes/
+
+The Legend of Zelda: Oracle of Seasons and Oracle of Ages are absolute classics, and Nintendo should revisit them at some point.
+---------
+
+# Chainsaw Man's Ending Doesn't Confirm Part 3, and Fans Need to Accept That's Okay
+
+Anime, Chainsaw Man
+
+Tue, 24 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/chainsaw-man-part-3-not-happening-good/
+
+Chainsaw Man's shocking Part 2 ending leaves readers questioning if a continuation is even necessary after its satisfying character arcs and twists.
+---------
+
+# Apple TV's Upcoming Sci-Fi Series Is Pretty Close To A Live-Action Cyberpunk 2077
+
+Streaming TV, Neuromancer, Cyberpunk 2077, Cyberpunk: Edgerunners
+
+Tue, 24 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-2077-sci-fi-series-close/
+
+Discover how Apple TV+'s Neuromancer series is the blueprint for Cyberpunk 2077, offering fans a live-action adaptation of the iconic cyberpunk game.
+---------
+
+# 10 Southern Gothic Horror Movies That Make Ryan Coogler’s Sinners Look Tame
+
+Movies, Sinners, Horror
+
+Tue, 24 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/southern-gothic-horror-movies-better-than-sinners-list/
+
+Ryan Coogler's Sinners is a great Southern Gothic horror movie, but there are others that are just as interesting, if not even better.
+---------
+
+# These 10 Musical Movies Are Almost Perfect but Nobody Remembers
+
+Movie, Musical, The Sapphires, Enchanted, The Muppets
+
+Tue, 24 Mar 2026 23:16:13 GMT
+
+https://collider.com/musical-movies-almost-perfect-nobody-remembers/
+
+Sing Street, 8 Women, and Once are overlooked, near-perfect movie musicals that are sadly forgotten today.
+---------
+
+# 5 Years Later, the Greatest Superhero Sci-Fi Saga on TV Is Still Dominating Streaming
+
+TV News, Steven Yeun, Invincible, Robert Kirkman, Prime Video
+
+Tue, 24 Mar 2026 23:11:29 GMT
+
+https://collider.com/prime-video-superhero-show-invincible-season-4-streaming-success-march-2026/
+
+Prime Video's Invincible is a streaming hit once again, with the premiere of Season 4 launching the superhero show to the top of streaming charts.
+---------
+
+# MGM+’s New Critically Acclaimed Series Is Officially Building a Cult Following
+
+TV News, MGM, American Classic, Laura Linney, Kevin Kline
+
+Tue, 24 Mar 2026 23:04:30 GMT
+
+https://collider.com/mgms-critically-acclaimed-comedy-sensation-is-quietly-building-up-a-cult-audience/
+
+A critically loved comedy is quietly building a loyal audience with strong reviews, steady growth, and word of mouth buzz.
+---------
+
+# Disney Cancels Deal With OpenAI After Sora Shutdown
+
+Movie News, Disney
+
+Tue, 24 Mar 2026 23:17:30 GMT
+
+https://movieweb.com/disney-cancels-open-ai-deal/
+
+After OpenAI shut down the Sora app, Disney canceled its lucrative $1 billion deal with the company, which included licensing for Disney characters.
+---------
+
 # Netflix’s 7-Part Crime Thriller Is Quietly One Of Its Best Shows To Binge
 
 Streaming TV, Netflix, Who Is Erin Carter?
