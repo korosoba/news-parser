@@ -1,3 +1,388 @@
+# Jumanji 3 Release Date Moves To Compete In Dune 3 & Avengers: Doomsday Box Office Aftermath
+
+Movies, Jumanji 4
+
+Tue, 24 Mar 2026 16:43:27 GMT
+
+https://screenrant.com/jumanji-4-release-date-change-dunesday/
+
+Jumanji 4 has changed its release window amid the battle between Dune: Part Three and Avengers: Doomsday.
+---------
+
+# Tom Hardy's Cut Peaky Blinders: The Immortal Man Return Came With A Massive New Divisive Twist
+
+Movies, Peaky Blinders: The Immortal Man, Peaky Blinders
+
+Tue, 24 Mar 2026 16:40:45 GMT
+
+https://screenrant.com/peaky-blinders-immortal-man-tom-hardy-alfie-death-reveal-cut/
+
+Netflix's Peaky Blinders: The Immortal Man movie nearly brought back Tom Hardy's iconic character Alfie Solomons, but with a huge twist reveal.
+---------
+
+# Mortal Kombat Star’s 100% RT Replacement For Liam Neeson’s $929M Franchise Revealed In R-Rated The Furious Trailer
+
+Movies, The Furious
+
+Tue, 24 Mar 2026 16:35:54 GMT
+
+https://screenrant.com/the-furious-trailer-release/
+
+Lionsgate has released a trailer for the perfectly rated martial arts action movie The Furious, which shows jaw-dropping stunts.
+---------
+
+# Varanasi Set Visit Report: SS Rajamouli Rebuilds India's Spiritual Capital
+
+Movies, Varanasi, Priyanka Chopra Jonas
+
+Tue, 24 Mar 2026 16:35:13 GMT
+
+https://screenrant.com/varanasi-ss-rajamouli-priyanka-chopra-set-visit-report/
+
+Discover how Varanasi, the film, plans to utilize the real-life city of Varanasi in this once in a lifetime production.
+---------
+
+# Amazon Officially Adapting Hit Epic Fantasy Comics Series Into TV Show For The First Time With One Piece Showrunner
+
+TV, Amazon
+
+Tue, 24 Mar 2026 16:31:23 GMT
+
+https://screenrant.com/monstress-show-amazon-prime-video-development-steven-maeda-report/
+
+Amazon is officially adapting a hit epic fantasy comics series into a television show for the first time with One Piece showrunner Steven Maeda.
+---------
+
+# HBO's Harry Potter Remake Has Officially Nailed 1 Of The Most Important Things About The Wizarding World
+
+TV, Harry Potter
+
+Tue, 24 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/hbo-harry-potter-series-first-look-costumes-visuals-perfect/
+
+Has HBO's upcoming Harry Potter reboot, one of the most expensive shows ever made, managed to fix the controversies surrounding the franchise?
+---------
+
+# Sword Art Online's Creator Returns With New Anime, and It Already Looks Glorious
+
+Anime, Sword Art Online
+
+Tue, 24 Mar 2026 16:25:50 GMT
+
+https://screenrant.com/sword-art-online-new-anime-demons-devils-crest/
+
+The creator of Sword Art Online is back with a brand-new anime drop, and the trailer for this new series looks spectacular for SAO fans.
+---------
+
+# How Every Moana Character Looks In Live-Action vs Animation So Far
+
+New Movies, Moana
+
+Tue, 24 Mar 2026 16:16:37 GMT
+
+https://screenrant.com/moana-character-live-action-animated-comparison/
+
+Disney's live-action Moana remake has brought all the original animated characters to life in a new way. Let's compare how they look in both.
+---------
+
+# Chainsaw Man's Final Chapter Resurrects the Series' Most Popular Hero, and the Fandom is Shook
+
+Anime, Chainsaw Man
+
+Tue, 24 Mar 2026 16:10:42 GMT
+
+https://screenrant.com/chainsaw-man-chapter-232-final-power-return-explained/
+
+Chainsaw Man's final chapter brings back the popular character Power, leaving fans to speculate about the possibility of a third part to the series.
+---------
+
+# Criminal Minds: Evolution Season 19 Release Date Revealed As Paramount+ Confirms Season 20's Fate
+
+TV, Criminal Minds (Franchise)
+
+Tue, 24 Mar 2026 16:07:23 GMT
+
+https://screenrant.com/criminal-minds-evolution-season-20-renewal/
+
+Paramount+ has officially set the release date for Criminal Minds: Evolution season 19 while also deciding on its fate beyond its upcoming run.
+---------
+
+# Alan Ritchson & Jason Statham Are Still the Best Parts of Fast X
+
+Movies, Fast X, Jason Statham, Fast Forever
+
+Tue, 24 Mar 2026 16:45:12 GMT
+
+https://www.cbr.com/fast-x-alan-ritchson-jason-statham-best-parts/
+
+Fast X was a wild Fast & Furious sequel, but this was only made possible thanks to action legends like Alan Ritchson and Jason Statham.
+---------
+
+# Criminal Minds Renewed for 20th Season on Paramount+
+
+TV, Criminal Minds, Crime, Paramount Plus
+
+Tue, 24 Mar 2026 16:15:33 GMT
+
+https://www.cbr.com/criminal-minds-evolution-season-20-renewed-paramount-plus/
+
+Paramount+ renews Criminal Minds: Evolution for Season 20.
+---------
+
+# This Dark Fantasy Series Officially Has a Worse Ending Than Game of Thrones
+
+Anime, Game Of Thrones, Chainsaw Man
+
+Tue, 24 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/game-of-thrones-chainsaw-man-worst-ending-dark-fantasy/
+
+One of the most popular fantasy series of the 2020s has ended in such an insulting way that it even makes the finale of Game of Thrones look better.
+---------
+
+# Pokémon Champions Officially Reveals New Abilities for April 2026 Release
+
+Games, Pokemon, Nintendo
+
+Tue, 24 Mar 2026 16:05:12 GMT
+
+https://www.cbr.com/pokemon-champions-new-abilities-mega-evolutions-trailer-april-2026/
+
+The latest trailer for Pokémon Champions has confirmed that some Pokémon will receive new Abilities that have yet to appear in the mainline games.
+---------
+
+# The Rookie Makes a Historic Change to Nathan Fillion's Show After 8 Years
+
+TV, The Rookie, ABC, Hulu
+
+Tue, 24 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/the-rookie-historic-change-to-serialized-storytelling/
+
+Originally a show about the oldest trainee officer in LAPD history, The Rookie has made a dramatic shift in its central storytelling premise.
+---------
+
+# Ryan Gosling’s Project Hail Mary Movie Fixes Modern Star Trek’s Biggest Mistake
+
+Movies, Star Trek, Project Hail Mary, ryan gosling
+
+Tue, 24 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/ryan-goslings-1010-sci-fi-masterpiece-fixes-modern-star-treks-biggest-mistake/
+
+Star Trek's current era has failed to find the secret sauce that made the franchise so popular in the past.
+---------
+
+# Charlie Day Confirms What Always Sunny Scene Is His Career Highlight
+
+TV, It's Always Sunny in Philadelphia, Kill Me, SXSW
+
+Tue, 24 Mar 2026 15:53:53 GMT
+
+https://www.cbr.com/charlie-day-favorite-danny-devito-scene-its-always-sunny-in-philadelphia/
+
+At SXSW, Charlie Day reflects on which It's Always Sunny in Philadelphia scene is the absolute highlight of his career.
+---------
+
+# These 8 Superhero Movies Are a Masterclass in Filmmaking
+
+Movie, Superhero, The Dark Knight, Spider-Man: Into The Spider-Verse, The Incredibles
+
+Tue, 24 Mar 2026 16:45:12 GMT
+
+https://collider.com/superhero-movies-masterclass-filmmaking/
+
+Although the superhero genre isn't known for pushing boundaries, movies like Avengers: Infinity War and The Dark Knight showcase brilliant filmmaking.
+---------
+
+# The Animated Series Netflix Has Been Hiding Just Unleashed Its First Season 2 Trailer
+
+TV News, Devil May Cry, Netflix, Adi Shankar, Johnny Yong Bosch
+
+Tue, 24 Mar 2026 16:34:44 GMT
+
+https://collider.com/netflix-devil-may-cry-season-2-trailer-video-game-series-castlevania-replacement/
+
+Netflix's Devil May Cry series is back with a stunning new trailer for Season 2, giving fans their best look yet at Dante's brother and rival, Vergil.
+---------
+
+# Paramount+'s Best Crime Thriller Series Officially Renewed for Season 20
+
+TV News, Criminal Minds, Paramount, CBS, Paramount Plus
+
+Tue, 24 Mar 2026 16:22:50 GMT
+
+https://collider.com/criminal-minds-evolution-season-20-renewed-paramount-plus-detective-procedural/
+
+The fate of Criminal Minds: Evolution has already been decided ahead of Season 19, along with the reveal of some exciting new guest stars.
+---------
+
+# Kit Harington Leads MGM+'s 4-Part 'A Tale of Two Cities' Miniseries in New First Look [Exclusive]
+
+TV News, Kit Harington, Charles Dickens, MGM, BBC
+
+Tue, 24 Mar 2026 16:17:21 GMT
+
+https://collider.com/a-tale-of-two-cities-kit-harington-first-look-images/
+
+Discover the first look at Kit Harington as Sydney Carton in MGM+'s adaptation of Charles Dickens' A Tale of Two Cities, premiering on MGM+ and BBC.
+---------
+
+# The Trailer for 2026’s Most Violent Revenge Thriller Is Here
+
+Movie News, The Furious, Martial Arts, Movie Trailers, Joe Taslim
+
+Tue, 24 Mar 2026 16:00:56 GMT
+
+https://collider.com/the-furious-trailer-martial-arts-revenge-thriller-movie-release-date/
+
+The Furious, starring Xie Miao and Joe Taslim, is set to be the summer blockbuster hit of 2026. Watch the trailer for the martial arts movie here!
+---------
+
+# He-Man Is Officially Returning in a Brand New Way Weeks Before His 2026 Movie Release
+
+Movie News, Masters of the Universe, Mattel, Nicholas Galitzine, Camila Mendes
+
+Tue, 24 Mar 2026 16:00:12 GMT
+
+https://collider.com/masters-of-the-universe-2026-movie-merchandise-collectibles-figures-images/
+
+Explore the wide range of Masters of the Universe collectibles from Mattel, including action figures, Barbie dolls, even cat treats, and more!
+---------
+
+# 'Stranger Things' Breakout Star Leads a Modern-Day Bonnie & Clyde Thriller in Epic New Look [Exclusive]
+
+Exclusives, Grace Van Dien, Stranger Things, Boots, Crime
+
+Tue, 24 Mar 2026 16:00:12 GMT
+
+https://collider.com/silver-star-sneak-peek-grace-van-dien-troy-leigh-anne-johnson-crime-drama/
+
+A new sneak peek at the crime drama Silver Star sees Grace Van Dien and Troy Leigh-Anne Johnson grabbing disguises for the road trip ahead.
+---------
+
+# 'NCIS' Showrunner Reveals Why Tony and Ziva's Relationship Was Worth “Rolling the Dice” On [Exclusive]
+
+Exclusives, Collider Rewind, NCIS, NCIS: Tony & Ziva, Crime
+
+Tue, 24 Mar 2026 16:00:12 GMT
+
+https://collider.com/ncis-tony-and-ziva-relationship-arc-explained-showrunner-steven-d-binder-tiva-shipping/
+
+NCIS screenwriter Steven D. Binder discusses how the unexpected chemistry between Ziva David and Anthony DiNozzo shaped their iconic relationship.
+---------
+
+# 'For All Mankind' Ending with Season 6 Simply Means the Show Has Reached Its Intended Endpoint Early
+
+Features, For All Mankind
+
+Tue, 24 Mar 2026 16:52:24 GMT
+
+https://movieweb.com/for-all-mankind-season-6-ending/
+
+Apple TV has announced that 'For All Mankind' will end a full season earlier than expected, but that's not actually the bad news it sounds like.
+---------
+
+# 'Daredevil: Born Again' Star Pushes for Kingpin vs. Spider-Man Showdown Despite Challenges
+
+Movie News, Vincent D'Onofrio, Daredevil: Born Again, Daredevil, Spider-Man: Brand New Day, Spider-Man, MCU
+
+Tue, 24 Mar 2026 16:20:09 GMT
+
+https://movieweb.com/daredevil-vincent-donofrio-kingpin-spider-man-showdown-issues/
+
+'Daredevil: Born Again's Vincent D'Onofrio has reignited his campaign for a big screen Kingpin vs. Spider-Man showdown despite crossover challenges.
+---------
+
+# 'Shōgun' Season 2 Takes Major Step Forward With New Casting Update
+
+TV News, Shogun
+
+Tue, 24 Mar 2026 16:14:55 GMT
+
+https://movieweb.com/shogun-season-2-casting-update/
+
+FX's critically acclaimed historical drama 'Shōgun' is expanding its impressive ensemble.
+---------
+
+# 'The Furious' Trailer Finally Unleashes the Best Action Thriller in Decades
+
+Movie News, The Furious, Martial Arts, Action, Thriller
+
+Tue, 24 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/the-furious-trailer/
+
+Starring Xie Miao and Joe Taslim, the first footage from 'The Furious' teases a visceral 'Taken' meets 'The Raid' martial arts thriller.
+---------
+
+# The Animated Classic 'Shrek,' 'Shrek 2,' and 'Shrek the Third,' Stream on Hulu in April 2026
+
+Movie News, Shrek, Hulu, Coming/Leaving Streaming
+
+Tue, 24 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/shrek-trilogy-streaming-hulu-april-2026/
+
+Hulu will soon host the iconic Shrek animated trilogy on streaming in April 2026, before the release of 'Shrek 5.'
+---------
+
+# 'Project Hail Mary' Finally Ends a 10-Year Ryan Gosling Box Office Streak
+
+Features, Project Hail Mary, Ryan Gosling, Box Office Milestones
+
+Tue, 24 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/project-hail-mary-ryan-gosling-box-office/
+
+After 10 years, Ryan Gosling is finally breaking an unfortunate record thanks to his latest sci-fi outing in 'Project Hail Mary'.
+---------
+
+# 10 Movies with the Highest Number of Extras
+
+Movie Lists, Ben-Hur
+
+Tue, 24 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/movies-highest-number-extras/
+
+Older movies relied on large casts to capture large crowds. Here are cases where an unusually high number of extras were used.
+---------
+
+# 'For All Mankind' Renewed for Season 6 by Apple TV
+
+TV News, For All Mankind, Apple TV, Sci-Fi
+
+Tue, 24 Mar 2026 15:59:50 GMT
+
+https://movieweb.com/for-all-mankind-season-6-renewal/
+
+We finally know how long 'For All Mankind' will last!
+---------
+
+# Ron Perlman Honors Late Chuck Norris's Life at MegaCon 2026 Panel
+
+Movie News, Chuck Norris
+
+Tue, 24 Mar 2026 15:45:18 GMT
+
+https://movieweb.com/ron-perlman-chuck-norris-death/
+
+After Chuck Norris's death, 'Hellboy' star Ron Perlman honored his colleague's memory in front of a live audience.
+---------
+
+# 'Redux Redux' Clip Teases Hit Sci-Fi Action Thriller Now Available On-Demand [Exclusive]
+
+Movie News, Redux Redux, Action, Sci-Fi, Thriller
+
+Tue, 24 Mar 2026 15:44:34 GMT
+
+https://movieweb.com/redux-redux-clip-on-demand-release/
+
+The twisted revenge action thriller follows a grieving mother traveling the multiverse looking for her daughter, but only finding her killer.
+---------
+
 # Kit Harington's 4-Part Adaptation Of 167-Year-Old Classic Is Officially Coming This Year
 
 TV, Kit Harington
