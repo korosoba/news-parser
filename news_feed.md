@@ -1,3 +1,190 @@
+# Frank Miller's TMNT Art Pays Off 42 Years of the Franchise
+
+Comics, Teenage Mutant Ninja Turtles
+
+Tue, 24 Mar 2026 00:30:20 GMT
+
+https://screenrant.com/tmnt-frank-miller-art-daredevil-inspiration/
+
+The Teenage Mutant Ninja Turtles franchise marks its 300th comic issue, featuring a special cover by Daredevil artist, Frank Miller.
+---------
+
+# Disney Pushing For Avengers: Doomsday Premium Viewing Substitute After Losing IMAX To Dune 3
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Disney, Dune: Part Three, Dune
+
+Tue, 24 Mar 2026 00:30:13 GMT
+
+https://screenrant.com/avengers-doomsday-disney-premium-theatrical-push/
+
+Dune: Part Three is playing in IMAX theaters for 3 weeks instead of Avengers: Doomsday, but Disney is now pushing for other premium viewing options.
+---------
+
+# Superman Gets His Most Badass Costume of All Time Ahead of New Batman Crossover
+
+Comics, Superman
+
+Tue, 24 Mar 2026 00:00:21 GMT
+
+https://screenrant.com/superman-new-costume-batman-next-appearance/
+
+We are not exaggerating when we say that Superman has just debuted his most badass costume of all time.
+---------
+
+# Succession: Satirizing and Sympathizing with the One Percent
+
+Classic TV, Succession
+
+Tue, 24 Mar 2026 00:00:21 GMT
+
+https://screenrant.com/succession-hbo-drama-aging-well/
+
+Succession is arguably HBO's best show of the past decade — it's both a razor-sharp comedy and a deeply moving drama — and it's aging like fine wine.
+---------
+
+# GTA 6 Price Update Unites Gamers: "Shut Up And Take My Money"
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Tue, 24 Mar 2026 00:00:21 GMT
+
+https://screenrant.com/gta-6-price-update-march-2026-gamers-react/
+
+After official news on an actual price point for Grand Theft Auto 6, it seems like most GTA fans are happy with the cost off the upcoming game.
+---------
+
+# 10 Ways Brand New Day’s Trailer Calls Back To Past Spider-Man Movies
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Tue, 24 Mar 2026 00:00:21 GMT
+
+https://screenrant.com/spiderman-brand-new-day-trailer-major-callbacks-movies/
+
+It may be a Brand New Day for the MCU's Spider-Man, but the new trailer features some pretty fun nods and callbacks (and not just to comic covers).
+---------
+
+# Did Loki Actually Reveal Doctor Doom's MCU Origin?
+
+Comics, Avengers: Doomsday, Loki, MCU
+
+Tue, 24 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/loki-scene-secretly-spoiled-doctor-doom-mcu-origin/
+
+One unexpected scene from Loki may have secretly hinted at the origin story for Robert Downey Jr.'s Doctor Doom in Avengers: Doomsday.
+---------
+
+# TVD: Damon and Elena's Most Important Moments Together
+
+TV, The Vampire Diaries, The CW
+
+Tue, 24 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/vampire-diaries-damon-elena-delena-important-episodes/
+
+From first kisses to first dances and so much more, the most memorable and important Delena moments follow the journey to their coming together.
+---------
+
+# 7 Classic Sega Genesis Games Everyone Forgot About
+
+Games, Sega Genesis, sega, retro games
+
+Tue, 24 Mar 2026 00:45:12 GMT
+
+https://www.cbr.com/underrated-sega-genesis-games-forgotten-list/
+
+Some of the best Sega Genesis games have faded from people's memories with time, even though they're classics.
+---------
+
+# Starfleet Academy Star Reacts to Paramount+ Axing the Star Trek Series
+
+TV, Star Trek: Starfleet Academy
+
+Tue, 24 Mar 2026 00:24:57 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-karim-diane-react-cancellation/
+
+One of the stars of Star Trek: Starfleet Academy gets emotional about the show's fate getting sealed at Paramount+.
+---------
+
+# Brendan Fraser's Inkheart Is the Perfect Tubi Alternative to the MCU
+
+Movies, Inkheart, Marvel Cinematic Universe
+
+Tue, 24 Mar 2026 00:00:13 GMT
+
+https://www.cbr.com/forgotten-brendan-fraser-inkheart-perfect-mcu-replacement/
+
+Brendan Fraser's Inkheart is a forgotten fantasy film, but one with a lore so vast it gives the MCU a run for its money.
+---------
+
+# One of the Best Superhero Shows of All Time Is Dominating on Prime Video
+
+TV, Prime Video, Deadloch, Invincible, Harlem
+
+Tue, 24 Mar 2026 01:11:14 GMT
+
+https://collider.com/best-prime-video-shows-watch-week-march-23/
+
+Deadloch, Invincible, and Harlem make up our list of the best Prime Video shows to watch the week of March 23, 2026.
+---------
+
+# HGTV’s Property Brothers Drew and Jonathan Scott on the Crushing Truth of $35K Home Renovations
+
+Exclusives, Property Brothers, Drew Scott, Jonathan Scott, HGTV
+
+Tue, 24 Mar 2026 01:01:12 GMT
+
+https://collider.com/property-brothers-under-pressure-drew-jonathan-scott-hgtv-interview-advice/
+
+HGTV’s Property Brothers: Under Pressure finds Drew and Jonathan Scott opening up about 14 episodes and the truth behind $35K renos.
+---------
+
+# 36 Years Later, No Sci-Fi Movie Has Topped This Near-Perfect 3-Part Time Travel Series
+
+Movie Features, Back to the Future, Back to the Future Part II, Back to the Future Part III, Michael J. Fox
+
+Tue, 24 Mar 2026 00:02:12 GMT
+
+https://collider.com/back-to-the-future-sci-fi-series-trilogy-time-travel/
+
+The Back to the Future trilogy still remains the best time travel movie series almost 40 years after it concluded.
+---------
+
+# 'Peaky Blinders' Sequel Series to Feature Barry Keoghan's Duke Shelby
+
+TV News, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Tue, 24 Mar 2026 01:00:19 GMT
+
+https://movieweb.com/peaky-blinders-sequel-immortal-man-return/
+
+Screenwriter on the film and 'Peaky Blinders' creator Steven Knight revealed some new information on the upcoming series.
+---------
+
+# 'Half Man' New Look and HBO Release Date Revealed
+
+TV News, Baby Reindeer, Richard Gadd, Half Man
+
+Tue, 24 Mar 2026 00:30:18 GMT
+
+https://movieweb.com/half-man-new-look-release-date-hbo/
+
+Richard Gadd goes from meek bartender to mystery man with a violent past in this upcoming show.
+---------
+
+# 'Superman' & 'Lenny' Star Valeria Perrine Dies at 82
+
+Movie News, Superman
+
+Mon, 23 Mar 2026 23:55:11 GMT
+
+https://movieweb.com/valeria-perrine-dead-superman-lenny-star/
+
+The Oscar-nominated actress had been battling Parkinson's disease since 2015.
+---------
+
 # Another Agent May Be Leaving NCIS In New Finale Preview
 
 TV, NCIS, NCIS: Origins, NCIS: Origins - Season 2
