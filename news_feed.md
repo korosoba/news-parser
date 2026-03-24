@@ -1,3 +1,245 @@
+# Prime Video’s 8-Part Thriller Has One Of Its Best Casts
+
+Streaming TV, Prime Video, Mr. & Mrs. Smith
+
+Tue, 24 Mar 2026 21:20:19 GMT
+
+https://screenrant.com/prime-video-mr-and-mrs-smith-thriller-series-cast/
+
+Discover the highly acclaimed Prime Video original series Mr. & Mrs. Smith, featuring a star-studded cast including Wagner Moura and Donald Glover.
+---------
+
+# Predicting The MCU's 2028 & 2029 Mystery Movies After New Release Dates (5 In Total)
+
+Superheroes, Marvel Cinematic Universe
+
+Tue, 24 Mar 2026 21:20:19 GMT
+
+https://screenrant.com/marvel-movies-2028-2029-release-dates-mcu-prediction/
+
+There are officially five mystery MCU movies on Disney's schedule for 2028 and 2029. Here's what films could hit those unclaimed release dates.
+---------
+
+# A 2004 PS2 Hidden Gem Has Been Remastered For Modern Consoles
+
+Gaming, PlayStation 2, Triple-A Games, PC
+
+Tue, 24 Mar 2026 21:18:43 GMT
+
+https://screenrant.com/playstation-ps2-hidden-gem-remaster-modern-consoles/
+
+In between all the big remakes and remasters, you probably missed this new release, but it's already picked up some rave reviews from fans.
+---------
+
+# HBO's Harry Potter Series Includes Movie Detail Not Found in Books
+
+Streaming TV, Harry Potter
+
+Tue, 24 Mar 2026 21:15:18 GMT
+
+https://screenrant.com/harry-potter-hbo-image-quidditch-number-7-movies-not-books/
+
+The latest update from HBO's new Harry Potter reboot has revealed that the TV show is drawing on the movies to rewrite a key piece of franchise canon.
+---------
+
+# Alan Ritchson Acted In Self Defense, Won't Face Criminal Charges After Fight With Neighbor
+
+TV, Alan Ritchson
+
+Tue, 24 Mar 2026 21:13:32 GMT
+
+https://screenrant.com/alan-ritchson-fight-no-criminal-charges-self-defense/
+
+After getting into an altercation with his neighbor, all is ending well for Reacher star Alan Ritchson, who will not be facing criminal charges.
+---------
+
+# HBO's 8-Part Psychological Thriller Series With Near-Perfect Rotten Tomatoes Score Is This Netflix Hit's Ideal Replacement
+
+TV, HBO Max, Sharp Objects, His & Hers
+
+Tue, 24 Mar 2026 21:06:32 GMT
+
+https://screenrant.com/hbo-sharp-objects-thriller-series-netflix-his-and-hers-replacement/
+
+One of the best HBO psychological thriller series of all time emerges as the perfect replacement for this recent Netflix hit show with major stars.
+---------
+
+# One Of HBO Max's Best Shows Is Weeks Away From Ending
+
+TV, Hacks
+
+Tue, 24 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/hacks-ending-season-5-hbo-best-show/
+
+A dark comedy drama that has been one of HBO's most acclaimed shows in decades is set to wrap up its fifth and final season in just a few weeks.
+---------
+
+# 8 Great TV Characters Ruined By A Single Episode
+
+Classic TV
+
+Tue, 24 Mar 2026 20:45:18 GMT
+
+https://screenrant.com/tv-characters-ruined-by-single-scene/
+
+Several television shows have featured great characters, but they sometimes make the unforgivable mistake of ruining them with just a single episode.
+---------
+
+# Moana Director & Dwayne Johnson Break Down Maui's Wig Dilemma And 40-Pound Transformation In Disney Live-Action Remake
+
+Movies, Moana, Dwayne Johnson
+
+Tue, 24 Mar 2026 20:44:24 GMT
+
+https://screenrant.com/moana-live-action-maui-wig-challenges-explained-dwayne-johnson-thomas-kail/
+
+Ahead of its July 2026 release date, Dwayne Johnson describes the grueling process it took to transform into Maui for the live-action remake.
+---------
+
+# Disney Pulls Out of $1 Billion Sora AI Deal After Just 3 Months
+
+Movies, Disney
+
+Tue, 24 Mar 2026 21:10:46 GMT
+
+https://www.cbr.com/disney-deal-ai-sora-shutting-down/
+
+The rise of AI has hit a major setback as Disney backs out of a $1 billion deal.
+---------
+
+# The Strain Was Network TV's Last Horror Masterpiece
+
+TV, the strain, Horror, sean astin
+
+Tue, 24 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/sean-astin-the-strain-network-tv-horror-masterpiece/
+
+The Strain, with its unique vampire virus and strong source material, stands as the last great horror masterpiece on network TV.
+---------
+
+# Spock's Greatest Line in Star Trek II Is the Most Powerful Quote in Sci-Fi History
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan
+
+Tue, 24 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/star-trek-spock-greatest-star-trek-line-most-powerful-quote-in-sci-fi-history/
+
+Star Trek II: The Wrath of Khan is one of the franchise's best movies and delivers a Spock quote that still impacts sci-fi as a whole.
+---------
+
+# 38 Years Later, Brent Spiner's Best Star Trek: TNG Episode Is Still a Sci-Fi Masterpiece
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi, brent spiner
+
+Tue, 24 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/best-data-star-trek-tng-episode-the-measure-of-a-man/
+
+Decades later, this Star Trek: The Next Generation episode is one of Brent Spiner's best performances and raises one of sci-fi's critical debates.
+---------
+
+# Spider-Man: Brand New Day Sets Up Damage Control's Mutant Sentinels
+
+Movies, Spider-Man: Brand New Day
+
+Tue, 24 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/mcu-spider-man-brand-new-day-set-up-hulk-inhibitor-mutant-killing/
+
+Spider-Man: Brand New Day is set to change the MCU, and it seems that it will introduce the first major threat to Mutants.
+---------
+
+# 10 Timeless Superhero Costumes That Fans Still Love
+
+Comics, DC Comics, Marvel, Spider-Man
+
+Tue, 24 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/best-timeless-superhero-costumes/
+
+When it comes to making a superhero a success, a great design and costume is an essential part of finding a lasting fan base.
+---------
+
+# Which Hashira Survive the Demon Slayer Ending?
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Tue, 24 Mar 2026 20:45:12 GMT
+
+https://www.cbr.com/demon-slayer-ending-explained-every-hashira-fate/
+
+The Hashira of Demon Slayer: Kimetsu no Yaiba have long and bloody journeys throughout the manga, and here is how each of their stories end.
+---------
+
+# Paramount+ Renews School Spirits for Season 4 After 100% RT Rating
+
+TV, School Spirits, Paramount Plus, Horror
+
+Tue, 24 Mar 2026 20:35:12 GMT
+
+https://www.cbr.com/school-spirits-season-4-paramount-plus/
+
+Paramount+ confirms the supernatural drama series School Spirits will return for a fourth season, just three weeks after concluding its third season.
+---------
+
+# Ryan Gosling’s Near-Perfect Sci-Fi Hit Is a Must-Watch Success That Hollywood and Amazon Needed
+
+Movie Features, Ryan Gosling, Project Hail Mary, Phil Lord, Christopher Miller
+
+Tue, 24 Mar 2026 21:23:12 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-amazon-studios-hit-meaning/
+
+Ryan Gosling's sci-fi film, Project Hail Mary, has climbed the box office in one of the biggest wins for Amazon Studios.
+---------
+
+# 'Monarch': 'Godzilla x Kong: Supernova' vs Monsterverse's Darkest Timeline
+
+Features, Monarch: Legacy of Monsters, Monsterverse, Godzilla x Kong: Supernova, Godzilla, King Kong
+
+Tue, 24 Mar 2026 21:30:17 GMT
+
+https://movieweb.com/monarch-darkest-timeline-godzilla-x-kong-supernova/
+
+The latest episode of 'Monarch: Legacy of Monsters' just established a bleak future for 'Godzilla x Kong: Supernova'.
+---------
+
+# Ron Perlman Still Open to 'Hellboy' Return With Guillermo del Toro
+
+Movie News, Hellboy, Ron Perlman
+
+Tue, 24 Mar 2026 21:09:10 GMT
+
+https://movieweb.com/ron-perlman-hellboy-return/
+
+Should Ron Perlman play Hellboy again, it would only be under director Guillermo Del Toro in a third movie.
+---------
+
+# Netflix Disaster Thriller 'Radioactive Emergency' Reaches Most Watched Shows in United States
+
+TV News, Netflix
+
+Tue, 24 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/radioactive-emergency-netflix-streaming-march-2026/
+
+Netflix's new Brazilian disaster drama 'Radioactive Emergency' has hit the streaming charts in America.
+---------
+
+# ‘SNL UK’s Isn’t the Flop You Think It Is, It’s Just Missing What Made ‘Saturday Night’ a Masterpiece
+
+Features, Saturday Night Live
+
+Tue, 24 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/saturday-night-live-uk-first-episode/
+
+While 'Saturday Night Live UK' definitely needs some time to grow, the first episode really isn't as big a flop as many are making it out to be.
+---------
+
 # Every Single Star Trek Show Is Officially Dead, Jim
 
 TV, Star Trek, Star Trek: Starfleet Academy
