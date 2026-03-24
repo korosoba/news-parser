@@ -1,3 +1,289 @@
+# New Back To The Future Project Officially Releasing This Year With Michael J. Fox Returning
+
+Movies, Back to the Future
+
+Tue, 24 Mar 2026 03:49:42 GMT
+
+https://screenrant.com/back-to-the-future-musical-documentary-michael-j-fox-2026-release/
+
+Back to the Future fans are getting a brand-new project released in 2026 that features the return of Marty McFly actor Michael J. Fox.
+---------
+
+# Prime Video’s 10-Part Sci-Fi Is The Perfect Watch While Waiting For Pluribus Season 2
+
+Streaming TV, Pluribus
+
+Tue, 24 Mar 2026 03:46:21 GMT
+
+https://screenrant.com/prime-the-feed-pluribus-hive-mind-similarities/
+
+While waiting for the next installment of Apple TV's Pluribus, fans can go over to Prime Video to watch another sci-fi hive mind story.
+---------
+
+# Marriagetoxin Anime Drops Brand-New Look Ahead of April 7 Release
+
+Anime, Marriagetoxin, Fullmetal Alchemist
+
+Tue, 24 Mar 2026 03:00:21 GMT
+
+https://screenrant.com/fullmetal-alchemist-studio-marriagetoxin-anime-ending-trailer/
+
+Bones Film's next wacky new assassin anime is one of their most exciting, colorful products yet, with their latest trailer ramping up excitement.
+---------
+
+# Dwayne Johnson’s Full Maui Look Divides Audiences After New Moana Live-Action Trailer Debut
+
+Movies, Dwayne Johnson, Moana
+
+Tue, 24 Mar 2026 02:45:48 GMT
+
+https://screenrant.com/moana-live-action-maui-reactions-divided/
+
+Fans are sharing their honest opinion on Dwayne Johnson's look as Maui for the upcoming live-action rendition of the beloved Disney movie.
+---------
+
+# Casting Doctor Who's Next Companion: 8 Actors Who'd Be Perfect
+
+Streaming TV, Doctor Who
+
+Tue, 24 Mar 2026 02:45:10 GMT
+
+https://screenrant.com/doctor-who-casting-next-companion-actors-season-16/
+
+After the departure of Belinda Chandra, Doctor Who needs to cast Sixteenth Doctor's companion, and these eight British actors would be perfect.
+---------
+
+# Marvel Now Has Even More Reason To Make The Black Panther Decision Everyone Wants
+
+Movies, Black Panther 3, Marvel Cinematic Universe
+
+Tue, 24 Mar 2026 02:30:21 GMT
+
+https://screenrant.com/marvel-should-make-popular-black-panther-3-decision-after-oscars/
+
+Although Black Panther 3 has been confirmed for a while, Marvel Studios now has even more reason to make a very popular Black Panther decision.
+---------
+
+# Netflix's New Fantasy Drama Is About to Break the Internet with Its Wild Twist
+
+Anime, Phantom Lawyer, Netflix
+
+Tue, 24 Mar 2026 02:04:25 GMT
+
+https://screenrant.com/netflix-fantasy-k-drama-phantom-lawyer-break-internet/
+
+One of Netflix's most refreshing and funny K-dramas in years brings a delightful twist on a classic supernatural fantasy formula.
+---------
+
+# Star Trek: Starfleet Academy Cancellation Leaves Fans Disappointed
+
+TV, Star Trek, Star Trek: Starfleet Academy, Op-Ed
+
+Tue, 24 Mar 2026 02:00:34 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-canceled-tragedy/
+
+Star Trek: Starfleet Academy will officially end with season 2, but Paramount+ not continuing the series past its second season has ramifications.
+---------
+
+# Walter White's Most Important Breaking Bad Decision Supported By New Scientific Study
+
+TV, Breaking Bad
+
+Tue, 24 Mar 2026 01:53:09 GMT
+
+https://screenrant.com/breaking-bad-walter-white-scientific-study-crime-cancer-link/
+
+A new scientific study published in the American Economic Journal suggests that patients diagnosed with cancer are linked to increased rates of crime.
+---------
+
+# Punisher's Absence In Daredevil: Born Again Season 2 Explained By Kingpin Star
+
+TV, Daredevil: Born Again, Daredevil: Born Again - Season 2, The Punisher Special Presentation, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 24 Mar 2026 01:33:59 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-punisher-absence-vincent-donofrio-response/
+
+The Punisher won't be in Daredevil: Born Again season 2, but Kingpin actor Vincent D'Onofrio explains there is a good reason for this.
+---------
+
+# Adrianne Palicki's Forgotten Wonder Woman Role
+
+TV, Wonder Woman, DCU, superheroes
+
+Tue, 24 Mar 2026 03:45:13 GMT
+
+https://www.cbr.com/adrianne-palicki-dc-wonder-woman-failed-pilot/
+
+This forgotten Wonder Woman TV series featured the future star of an iconic MCU television series, though it likely wouldn't have gotten as far today.
+---------
+
+# Before DC’s Supergirl, Jason Momoa Nearly Played the Villain in The Magnificent Seven
+
+Movies, Supergirl, The Magnificent Seven, Aquaman
+
+Tue, 24 Mar 2026 03:45:13 GMT
+
+https://www.cbr.com/before-dc-supergirl-jason-momoa-nearly-played-villain-in-the-magnificent-seven/
+
+Jason Momoa is a staple of the DC Universe nowadays, but if he had joined the cast of The Magnificent Seven remake everything could've changed.
+---------
+
+# Salma Hayek's Like Water for Chocolate Becomes a Global Streaming Hit
+
+TV, Like Water for Chocolate
+
+Tue, 24 Mar 2026 03:39:37 GMT
+
+https://www.cbr.com/like-water-for-chocolate-hbo-max-streaming-march-2026/
+
+The acclaimed remake has become a big streaming hit on HBO Max.
+---------
+
+# 5 Worst Dragon Ball Power Scaling Inconsistencies
+
+Anime, Dragon Ball
+
+Tue, 24 Mar 2026 03:30:12 GMT
+
+https://www.cbr.com/dragon-ball-power-scaling-inconsistencies-make-no-sense/
+
+Goku is constantly being hurt by attacks that should have no effect on him in Dragon Ball, like when he gets injured by a rock or wounded by a bullet.
+---------
+
+# Black Mirror Season 7, Episode 4, 'Plaything,' Ending Explained
+
+TV, Black Mirror
+
+Tue, 24 Mar 2026 03:15:13 GMT
+
+https://www.cbr.com/black-mirror-season-7-plaything-ending-explained/
+
+Black Mirror Season 7 uses the Thronglets and a diabolical video game to make a big statement about humanity and getting lost in digital worlds.
+---------
+
+# 14 Years Later, Ridley Scott’s Prometheus Is the Most Important Alien Movie in 2026
+
+Movies, Prometheus, Alien, Sci-Fi
+
+Tue, 24 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/ridley-scotts-prometheus-the-best-alien-movie-in-2026/
+
+2012's Prometheus is one of the most controversial sci-fi outings of the 21st century, but it is an essential piece of the Alien franchise today.
+---------
+
+# PlayStation's Pivot Back to Exclusives Is A Good Thing For Gaming
+
+Games, PlayStation (Original), PlayStation 5
+
+Tue, 24 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/playstation-exclusives-gaming-the-last-of-us-gran-turismo/
+
+With the dust settling on Sony's decision to keep PlayStation titles exclusive, it's hard to say it's a bad thing for gaming.
+---------
+
+# 10 Fantasy Anime Series That Are Bangers From Start to Finish
+
+Anime, Fantasy
+
+Tue, 24 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/fantasy-anime-perfect-start-to-finish-list/
+
+Some fantasy anime lose steam after the first season, but these series are flawless from beginning to end.
+---------
+
+# Transformers' Darkest Movie Villain Returns With New Cinematic Design After 15 Years
+
+Anime, Transformers, Bumblebee, Transformers: Dark of the Moon, toys
+
+Tue, 24 Mar 2026 02:50:13 GMT
+
+https://www.cbr.com/transformers-dark-of-the-moon-sentinel-prime-blokees-model-kit/
+
+Transformers fans can now order two new model kits based on an errant Autobot and a Decepticon Seeker jet from the live-action movies.
+---------
+
+# Timothy Olyphant & Walton Goggins' 6-Season Justified Perfected the Modern TV Western
+
+TV, Justified, Western, Crime, walton goggins
+
+Tue, 24 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/justified-modern-western-tv-masterpiece/
+
+From the dusty streets of Harlan County to the vast expanse of the galaxy, FX's Justified set the standard for modern TV Westerns.
+---------
+
+# Disney+’s 5-Part Superhero Series Is One of the Best on Any Platform
+
+TV Features, Spider-Man: The Animated Series, Disney+, Spider-Man: Brand New Day
+
+Tue, 24 Mar 2026 03:55:12 GMT
+
+https://collider.com/spider-man-the-animated-series-disney-plus-best-superhero-series/
+
+Spider-Man: The Animated Series might be the most iconic take on the web-slinger, especially given its influence on other media.
+---------
+
+# 'The Dark Knight's Most Famous Line Wasn’t Written by Christopher Nolan — and It Still Bothers Him
+
+Movie Features, The Dark Knight, Christopher Nolan, Jonathan Nolan, Aaron Eckhart
+
+Tue, 24 Mar 2026 03:07:12 GMT
+
+https://collider.com/the-dark-knight-greatest-line-christopher-nolan-harvey-dent/
+
+Christopher Nolan said he is "plagued" by the fact that he didn't write one of The Dark Knight's most famous lines.
+---------
+
+# 'The Rookie's 1 Consistent Flaw Turns a Heart-Pounding Mission Into a Weak Hour of TV | Review
+
+TV Reviews, The Rookie, ABC, Nathan Fillion, Shawn Ashmore
+
+Tue, 24 Mar 2026 03:00:13 GMT
+
+https://collider.com/the-rookie-season-8-episode-12-review-recap-spy-games-mission/
+
+The Rookie's latest episode relies too heavily on familiar faces, diminishing the impact of plotlines and leaving viewers wanting more.
+---------
+
+# 10 Sci-Fi Movies That Are Better Than 'Project Hail Mary'
+
+Movie, Project Hail Mary, Blade Runner, Star Wars, 2001: A Space Odyssey
+
+Tue, 24 Mar 2026 02:48:12 GMT
+
+https://collider.com/sci-fi-movies-better-than-project-hail-mary/
+
+Project Hail Mary is good, but some sci-fi movies are even better, including classics like Metropolis and underrated ones like On the Silver Globe.
+---------
+
+# Prime Video’s 8-Part Comedy Series Is Quietly Becoming Its Best Show Ever After Season 2's Release
+
+TV Features, Prime Video, Jury Duty Presents: Company Retreat, Jury Duty, Comedy
+
+Tue, 24 Mar 2026 01:47:12 GMT
+
+https://collider.com/prime-video-jury-duty-company-retreat-season-2/
+
+The second season of Prime Video’s Jury Duty, aka Jury Duty Presents: Company Retreat, takes viewers on another wild ride.
+---------
+
+# 8 Neo-Western TV Series That Will Make You Forget 'Yellowstone'
+
+TV Lists, Yellowstone
+
+Tue, 24 Mar 2026 02:00:31 GMT
+
+https://movieweb.com/neo-western-tv-shows-better-than-yellowstone/
+
+'Yellowstone' is a fantastic and popular Neo-Western TV series from Taylor Sheridan, but there are many other shows in this genre that fans will love.
+---------
+
 # Frank Miller's TMNT Art Pays Off 42 Years of the Franchise
 
 Comics, Teenage Mutant Ninja Turtles
