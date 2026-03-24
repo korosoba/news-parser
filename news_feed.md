@@ -1,3 +1,212 @@
+# New John Wick Spinoff To Begin Filming 1 Year After Being Announced
+
+Movies, Caine John Wick Spinoff, John Wick, Donnie Yen
+
+Tue, 24 Mar 2026 22:10:38 GMT
+
+https://screenrant.com/john-wick-caine-spinoff-donnie-yen-filming-start/
+
+The John Wick franchise continues to expand further, with a new spinoff slated to begin production one year after it was first announced.
+---------
+
+# SyFy’s 3-Season Horror Series With A Near-Perfect Rotten Tomatoes Score Saved An Iconic Franchise
+
+TV, Chucky, Child's Play
+
+Tue, 24 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/chucky-syfy-series-saved-childs-play-franchise/
+
+After decades of critical struggles, one SyFy horror series managed to give an iconic slasher franchise the critical acclaim it always deserved.
+---------
+
+# After 67 Years, Supergirl Ditches Her Classic Colors for a Bold New Costume
+
+DC Comics, Supergirl
+
+Tue, 24 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/supergirl-redesign-ditch-classic-colors-new-blue-costume/
+
+After 67 years, Supergirl is ditching her classic color scheme of red, blue, and yellow and debuting a new costume that is unlike anything before.
+---------
+
+# Epic Games Layoffs Are Even More Insulting After CEO’s Comments
+
+Gaming, Live Service Games, Epic Games
+
+Tue, 24 Mar 2026 21:49:36 GMT
+
+https://screenrant.com/epic-games-layoffs-tim-sweeney-announcement/
+
+Epic Games laid off more than a thousand workers today with an internal announcement from CEO Tim Sweeney that is distastefully defensive.
+---------
+
+# AMC's 4-Part Western Thriller Dark Winds Officially Has One Of The Best Casts On TV
+
+Streaming TV, Dark Winds, Dark Winds - Season 4
+
+Tue, 24 Mar 2026 21:45:19 GMT
+
+https://screenrant.com/dark-winds-amc-western-crime-thriller-best-cast-tv/
+
+Kiowa Gordon delivers a raw and emotive portrayal of Jim Chee's ghost sickness in Dark Winds season 4, highlighting the show's exceptional acting performances.
+---------
+
+# Fortnite Officially Shutting Down in 2026
+
+Games, Fortnite
+
+Tue, 24 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/fortnite-officially-shutting-down-2026/
+
+The downfall of Fortnite has arrived, and a dwindling playerbase is harming both the game itself, and the employees who work on it.
+---------
+
+# Spider-Man Movies Become Streaming Hits After Brand New Day Trailer
+
+Movies, Spider-Man, Spider-Man 2, MCU
+
+Tue, 24 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/marvel-spider-man-amazing-spider-man-hbo-max-succes-march-2026/
+
+Spider-Man: Brand New Day's trailer leads to a surge in popularity for Spider-Man movies, with Sam Raimi's and the MCU's Spider-Man dominating charts.
+---------
+
+# Deadpool's Lore Is Restarted By Marvel, Setting The Character Back Significantly
+
+Comics, Deadpool
+
+Tue, 24 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/wade-wilson-deadpool-2-lore-reboot/
+
+Is Deadpool's lore doomed forever?
+---------
+
+# Animation Will Fix the Problems With Prime Video's The Wheel of Time
+
+Movies, The Wheel of Time, Arcane, Prime Video
+
+Tue, 24 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/animated-wheel-of-time-solves-amazon-prime-video-series-problem/
+
+The upcoming reboot of The Wheel of Time will be animated rather than live-action, which may turn out to be exactly what the franchise needs.
+---------
+
+# 5 OG Digimon That Are Still Iconic in 2026
+
+Anime, Digimon
+
+Tue, 24 Mar 2026 21:50:12 GMT
+
+https://www.cbr.com/best-original-digimon-still-iconic-2026/
+
+Decades after their initial introduction, these original Digimon are still as iconic as ever.
+---------
+
+# Reacher's Alan Ritchson Gets Good News After Altercation With Neighbor
+
+TV
+
+Tue, 24 Mar 2026 21:42:51 GMT
+
+https://www.cbr.com/reacher-alan-ritchson-neighbor-fight-update/
+
+A major update is revealed about Alan Ritchson's legal trouble after the Reacher star was filmed in an altercation with a neighbor.
+---------
+
+# 8 Most Perfect Vietnam War Movies, Ranked
+
+Movie, War, Apocalypse Now, The Deer Hunter, Platoon
+
+Tue, 24 Mar 2026 22:21:12 GMT
+
+https://collider.com/most-perfect-vietnam-war-movies-ranked/
+
+From Full Metal Jacket to Platoon, these Vietnam War movies are simply perfect.
+---------
+
+# Paramount+'s Hit Crime Thriller Star Teases Return After Season 5 Cancellation
+
+TV News, Mayor of Kingstown, Jeremy Renner, Taylor Sheridan, Crime
+
+Tue, 24 Mar 2026 22:17:05 GMT
+
+https://collider.com/taylor-sheridan-mayor-of-kingstown-jeremy-renner-future-after-season-5/
+
+Mayor of Kingstown star, Jeremy Renner, has hinted that the Taylor Sheridan show could continue beyond the upcoming fifth and final season.
+---------
+
+# 8 Most Intense Movies About Nuclear War, Ranked
+
+Movie, The Day After, Threads, A House of Dynamite, When the Wind Blows
+
+Tue, 24 Mar 2026 21:55:13 GMT
+
+https://collider.com/most-intense-nuclear-war-movies-ranked/
+
+Every movie about nuclear war is intense in some way, but certain ones, like A House of Dynamite and When the Wind Blows, go the extra mile.
+---------
+
+# 10 Superheroes Who Could Actually Beat Daredevil in a Fight
+
+TV, Daredevil, Daredevil: Born Again, Spider-Man, Superhero
+
+Tue, 24 Mar 2026 21:44:12 GMT
+
+https://collider.com/superheroes-could-beat-daredevil/
+
+Matt Murdock might be The Devil of Hell's Kitchen, but Daredevil stands no chance against other superheroes, like Spider-Man, Hulk, and Batman.
+---------
+
+# 11 Greatest Satire Movies of the Last 75 Years, Ranked
+
+Movie, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, Parasite, This is Spinal Tap, Comedy
+
+Tue, 24 Mar 2026 21:42:12 GMT
+
+https://collider.com/best-satire-movies-last-75-years-ranked/
+
+Brazil, Network, and This Is Spinal Tap are all among the very best satire movies released over the last 75 years.
+---------
+
+# Cillian Murphy's TV Return Dethrones Alan Ritchson's World-Dominating Sci-Fi Thriller
+
+Movie News, Cillian Murphy, Peaky Blinders: The Immortal Man, Alan Ritchson, War Machine
+
+Tue, 24 Mar 2026 21:38:08 GMT
+
+https://collider.com/cillian-murphy-peaky-blinders-the-immortal-man-overtakes-alan-ritchson-sci-fi-thriller-war-machine-streaming-success-netflix-march-2026/
+
+Cillian Murphy's highly anticipated Peaky Blinders movie, The Immortal Man, has topped War Machine as the most-watched film on the platform.
+---------
+
+# Guy Ritchie's New Action-Packed Whodunit Kicked to the Curb by R-Rated Superhero Series on Streaming
+
+TV News, Young Sherlock, Invincible, Prime Video, Superhero, Guy Ritchie
+
+Tue, 24 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/young-sherlock-invincible-stream-charts-march-2026/
+
+The 'Snatch' director's new Prime Video series has now been overtaken by the return of an invincible comic book show.
+---------
+
+# Jennifer Garner Developing '13 Going on 13' Reboot as Executive Producer for Netflix
+
+Movie News, 13 Going on 30, Jennifer Garner
+
+Tue, 24 Mar 2026 21:47:10 GMT
+
+https://movieweb.com/13-going-on-30-reboot-jennifer-garner/
+
+Netflix is teaming up with Jennifer Garner for a new '13 Going on 30' reboot, with Garner acting as an executive producer.
+---------
+
 # Prime Video’s 8-Part Thriller Has One Of Its Best Casts
 
 Streaming TV, Prime Video, Mr. & Mrs. Smith
