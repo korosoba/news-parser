@@ -1,3 +1,69 @@
+# Netflix's 4-Part Black Mirror Replacement Series Will Never Run Out Of Stories
+
+Streaming TV, Love, Death & Robots, Black Mirror, Sci-Fi, Netflix
+
+Tue, 24 Mar 2026 23:32:19 GMT
+
+https://screenrant.com/netflix-love-death-and-robots-anthology-never-run-out-of-stories/
+
+Black Mirror may be the definitive anthology sci-fi on Netflix, but another original in its library will likely outlive it by many, many years.
+---------
+
+# After 27 Years, Pokémon's Worst Starter of All Time Gets the Absolutely Broken Upgrade It Always Deserved
+
+Anime, Pokémon, Pokemon
+
+Tue, 24 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/pokemon-meganium-redeemed-champions-new-ability/
+
+Starter Pokemon should always have a fair shot in competitive play, and now, this long-suffering icon will finally get its dues.
+---------
+
+# HBO's 7-Part Crime Thriller Proves There's Only One Actor You Call To Play A Cop
+
+TV, Task, Mark Ruffalo
+
+Tue, 24 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/hbo-task-crime-thriller-mark-ruffalo-cop-roles/
+
+One actor's gripping performance in HBO's crime thriller cements him as the go-to choice for portraying complex, flawed law enforcement characters.
+---------
+
+# Paramount+’s Sci-Fi Problem Just Got Worse After Canceling Its Most Important New Series
+
+TV Features, Star Trek, Star Trek: Starfleet Academy, Paramount Plus, Alex Kurtzman
+
+Tue, 24 Mar 2026 23:29:13 GMT
+
+https://collider.com/star-trek-starfleet-academy-paramount-plus-cancellation/
+
+Now that Star Trek: Starfleet Academy is nearing its end, Paramount+ has lost its edge in the streaming wars.
+---------
+
+# New Live-Action 'Cinderella' Spin-Off Film 'Stepsisters' Announced
+
+Movie News, Cinderella, Akiva Schaffer
+
+Tue, 24 Mar 2026 23:54:54 GMT
+
+https://movieweb.com/cinderella-stepsisters-live-action-film/
+
+A brand-new Cinderella movie from the team behind 2025's 'The Naked Gun' is in development
+---------
+
+# New Alan Ritchson Footage Vindicates 'Reacher' Star, Authorities Say Self-Defense
+
+TV News, Alan Ritchson, Reacher
+
+Tue, 24 Mar 2026 23:52:07 GMT
+
+https://movieweb.com/reacher-alan-ritchson-attack-footage-authorities/
+
+'Reacher' star Alan Ritchson was vindicated by authorities in a case that may have ended with him in serious trouble.
+---------
+
 # 12 Upcoming Netflix Shows You Cannot Miss
 
 Streaming TV, Netflix
