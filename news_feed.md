@@ -1,3 +1,234 @@
+# Kit Harington's 4-Part Adaptation Of 167-Year-Old Classic Is Officially Coming This Year
+
+TV, Kit Harington
+
+Tue, 24 Mar 2026 15:18:36 GMT
+
+https://screenrant.com/kit-harington-a-tale-of-two-cities-show-release-date-images/
+
+Kit Harington has booked his first leading TV role since Game of Thrones ended in 2019 with an adaptation of a classic novel.
+---------
+
+# 33 Years Later, Kurt Russell & Val Kilmer's Classic R-Rated Western Quietly Ropes American Streaming Resurgence At The Perfect Time
+
+Movies, Tombstone
+
+Tue, 24 Mar 2026 15:12:46 GMT
+
+https://screenrant.com/tombstone-amc-plus-streaming-success-march-2026/
+
+Kurt Russell and Val Kilmer's classic R-rated Western is surging on streaming just as Russell has begun headlining his biggest project in years.
+---------
+
+# Yellowstone Ranch's Return For Taylor Sheridan's Latest Spinoff Addressed By Franchise Star: "The Stories Will Never Run Short"
+
+TV, Marshals, Marshals - Season 1, Yellowstone, CBS
+
+Tue, 24 Mar 2026 15:12:22 GMT
+
+https://screenrant.com/marshals-yellowstone-ranch-return-mo-brings-plenty-response/
+
+Exclusive: Mo Brings Plenty addresses the chances of the Yellowstone ranch's return in Taylor Sheridan's latest spinoff after its ownership change.
+---------
+
+# Prime Video's New Jason Bourne-Like Spy Action Movie Skyrockets Up The Streaming Charts
+
+Movies
+
+Tue, 24 Mar 2026 15:12:22 GMT
+
+https://screenrant.com/prime-video-agent-zeta-spy-action-movie-streaming-success/
+
+As the future of the Jason Bourne franchise remains up in the air, a similar new Prime Video action flick is fighting its way up the streaming charts.
+---------
+
+# Wuthering Heights Digital Release Date Revealed After $234M Box Office Run
+
+Movies, Wuthering Heights
+
+Tue, 24 Mar 2026 15:01:19 GMT
+
+https://screenrant.com/wuthering-heights-digital-release-date-confirmed/
+
+Prepare to swoon as Wuthering Heights will be available to watch at home very soon, giving people a chance to watch one of the greatest love stories.
+---------
+
+# Katherine Heigl’s Trending Rom-Com 27 Dresses Has The Worst Tropes Of The 2000s
+
+Movies, 27 Dresses
+
+Tue, 24 Mar 2026 15:01:19 GMT
+
+https://screenrant.com/27-dresses-movie-not-aged-well/
+
+Katherine Heigl’s 18-year-old rom-com is currently trending on Netflix despite featuring dated tropes and messaging from the mid-2000s romance era.
+---------
+
+# 21 Years Ago, The Office's Debut Changed American Sitcoms Forever
+
+Classic TV, The Office
+
+Tue, 24 Mar 2026 14:50:20 GMT
+
+https://screenrant.com/the-office-nbc-mockumentary-sitcom-popularize-tv-industry/
+
+When Greg Daniels and NBC decided to adapt the BBC's The Office in 2005, they probably didn't know just how influential their series would become.
+---------
+
+# Top 10 Comedy Sequels That Surpass the Original
+
+Movies, Comedy, Op-Ed
+
+Tue, 24 Mar 2026 14:45:20 GMT
+
+https://screenrant.com/comedy-sequels-better-original-movie/
+
+Comedy movies don't always get sequels that surpass the original, yet these hilarious follow-ups are funnier than what came before.
+---------
+
+# 10 Scariest Scenes In The Jurassic Park Movies
+
+Movies, Jurassic Park, The Lost World: Jurassic Park, Jurassic Park 3, Jurassic World, Jurassic World Dominion, Jurassic World Fallen Kingdom
+
+Tue, 24 Mar 2026 14:45:20 GMT
+
+https://screenrant.com/jurassic-park-movies-scary-scenes-ranked/
+
+The Jurassic Park movies are not horror films, but they contain many scary scenes, including character deaths and terrifying situations.
+---------
+
+# Pokémon's New Free-To-Play Game Confirms Official Release Date
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 24 Mar 2026 14:35:53 GMT
+
+https://screenrant.com/pokemon-champions-release-date-revealed-april/
+
+Pokémon Champions is almost here, as confirmed in the new official announcement of of the battle game's release date for Nintendo Switch and Switch 2.
+---------
+
+# Chainsaw Man Is a Better Successor to Evangelion Than the Franchise’s New Anime
+
+Anime, Chainsaw Man, Neon Genesis Evangelion
+
+Tue, 24 Mar 2026 15:32:20 GMT
+
+https://www.cbr.com/chainsaw-man-neon-genesis-evangelion-new-anime-successor/
+
+Even with another Evangelion anime in production, Chainsaw Man holds up as a better modern successor to the franchise.
+---------
+
+# Studio Ghibli Brings Back Howl's Moving Castle With Striking New Stationery Design
+
+Anime, Howl's Moving Castle, Studio Ghibli, merchandise
+
+Tue, 24 Mar 2026 15:30:13 GMT
+
+https://www.cbr.com/studio-ghibli-howls-moving-castle-rollbahn-notebook-design/
+
+Howl's Moving Castle fans have another chance to pick up one of the hottest pieces of Studio Ghibli merchandise that just keeps selling out.
+---------
+
+# John Goodman Confirms The Masterpiece Movie Fans Bring Up to Him The Most
+
+Movies, john goodman, Monsters Inc., SXSW
+
+Tue, 24 Mar 2026 15:09:34 GMT
+
+https://www.cbr.com/john-goodman-fans-bring-up-monsters-inc-most/
+
+This fan-favorite John Goodman movie is a real monster.
+---------
+
+# Disney+ Record-Breaking MCU Special Finally Sets Release Date
+
+TV, The Punisher Special Presentation, Marvel Cinematic Universe, The Punisher
+
+Tue, 24 Mar 2026 15:04:21 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-mcu-special-disney-plus-release-date/
+
+Disney+ finally announces the release date for The Punisher's long-awaited MCU special, featuring Jon Bernthal.
+---------
+
+# 7 Sega Dreamcast Games Still Trapped On Original Hardware
+
+Games, sega, dreamcast
+
+Tue, 24 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/sega-dreamcast-games-trapped-on-original-hardware-list/
+
+Some of the best Dreamcast games are still trapped on the classic Sega console.
+---------
+
+# Tomodachi Life: Living the Dream Preview
+
+Games, Nintendo
+
+Tue, 24 Mar 2026 14:50:12 GMT
+
+https://www.cbr.com/tomodachi-life-living-the-dream-preview-march-2026/
+
+We got to attend a virtual preview of Tomodachi Life: Living the Dream as the sequel looks even more wacky than the original 3DS game.
+---------
+
+# HBO Finally Resurrects Harry Potter for the 2020s With First Look at Reboot
+
+TV, Harry Potter
+
+Tue, 24 Mar 2026 14:39:48 GMT
+
+https://www.cbr.com/hbo-resurrects-harry-potter-first-look/
+
+After 15 years, HBO is bringing back one of the most beloved franchises of all time.
+---------
+
+# HBO's 'Harry Potter' Series Officially Reveals First Look at Harry on the Quidditch Pitch
+
+TV News, Harry Potter, HBO, Fantasy
+
+Tue, 24 Mar 2026 15:15:54 GMT
+
+https://collider.com/hbo-harry-potter-series-new-image-quidditch-pitch/
+
+Harry Potter hits the Quidditch pitch in new look at HBO's Harry Potter series, as filming continues on the anticipated smash hit.
+---------
+
+# 'Daredevil: Born Again' Season 2 Gets Major Last-Minute Release Schedule Change
+
+TV News, Daredevil: Born Again, Charlie Cox, Vincent D'Onofrio, Disney+
+
+Tue, 24 Mar 2026 14:34:46 GMT
+
+https://collider.com/daredevil-born-again-season-2-release-schedule-change-explained-punisher-premiere/
+
+Daredevil: Born Again Season 2 has been dealt a massive release schedule change hours before the premiere on Disney+. Here's what you need to know.
+---------
+
+# HBO 'Harry Potter' Series Image Reveals Dominic McLaughlin in Title Role
+
+TV News, Harry Potter
+
+Tue, 24 Mar 2026 14:38:16 GMT
+
+https://movieweb.com/hbo-harry-potter-first-look-trailer-date/
+
+The first still from HBO's 'Harry Potter' reboot has been unveiled ahead of the potential teaser trailer debut.
+---------
+
+# 'The Punisher: One Last Kill' Special Gets New Poster and Release Date
+
+TV News, The Punisher Special Presentation, The Punisher, Jon Bernthal
+
+Tue, 24 Mar 2026 14:18:32 GMT
+
+https://movieweb.com/the-punisher-special-first-look-release-date/
+
+'The Punisher: One Last Kill' has unveiled an intense first look at Jon Bernthal's MCU return, while confirming the release date for his solo special.
+---------
+
 # Apple TV Sci-Fi Series For All Mankind Ending With Season 6
 
 TV, For All Mankind
