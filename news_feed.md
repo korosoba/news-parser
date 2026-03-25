@@ -1,3 +1,245 @@
+# Gravity Falls: A Disney Animated Show Worthy Of A Reboot
+
+Classic TV, Gravity Falls
+
+Wed, 25 Mar 2026 14:15:20 GMT
+
+https://screenrant.com/disney-gravity-falls-deserve-reboot/
+
+Disney has a variety of fantasy TV shows in its catalog, but only one of them deserves a reboot now more than ever after just two seasons.
+---------
+
+# Sigourney Weaver's New R-Rated Fantasy Movie Finally Releases On Streaming Next Month At The Perfect Time
+
+Movies, Dust Bunny
+
+Wed, 25 Mar 2026 14:13:45 GMT
+
+https://screenrant.com/sigourney-weaver-dust-bunny-hbo-max-streaming-release-date/
+
+Dust Bunny, starring Sigourney Weaver, is set to release on streaming platforms after its initial theatrical run.
+---------
+
+# After 64 Years, Thor Lore Introduces Mjolnir's Dark Opposite
+
+Comics, Thor
+
+Wed, 25 Mar 2026 14:09:10 GMT
+
+https://screenrant.com/thor-new-hammer-mjolnir-opposite/
+
+Thor's hammer now has an evil counterpart.
+---------
+
+# Pokémon Fans In Love With New Evolution For Classic 'Mon
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 25 Mar 2026 14:06:53 GMT
+
+https://screenrant.com/pokemon-new-evolution-classic-monster-gamer-reaction/
+
+Fans love it when classic Pokémon return in a big new way, and it seems like an older 'Mon is going to make some big moves soon.
+---------
+
+# Taylor Sheridan's Gritty New Western Series Sets All-Time Rotten Tomatoes TV Record For Yellowstone Creator
+
+TV, Marshals, Yellowstone
+
+Wed, 25 Mar 2026 14:05:00 GMT
+
+https://screenrant.com/taylor-sheridan-marshals-tv-audience-rotten-tomatoes-score-record/
+
+Taylor Sheridan's new Western series has shockingly broken an all-time Rotten Tomatoes record for the Yellowstone creator, but it's negative.
+---------
+
+# Xbox Game Pass Price Drop Rallied Behind By Gamers
+
+Gaming, Xbox Game Pass
+
+Wed, 25 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-price-drop-rumors/
+
+Amid speculation and rumors that Xbox Game Pass will be getting a price drop in the near future, subscribers are already celebrating this as a win.
+---------
+
+# Taron Egerton Hunts Charlize Theron In Netflix's Brutal Trailer For New Thriller Apex
+
+Movies, Apex, Charlize Theron, Taron Egerton
+
+Wed, 25 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/apex-movie-trailer-netflix-charlize-theron-taron-egerton/
+
+Netflix releases a new trailer for its upcoming cat-and-mouse thriller Apex with Taron Egerton and Charlize Theron, which will be released in April.
+---------
+
+# Michael B. Jordan And Ryan Coogler: Hollywood's Most Successful Actor-Director Duo
+
+Movies, Michael B. Jordan, Op-Ed, Ryan Coogler
+
+Wed, 25 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/michael-b-jordan-ryan-coogler-great-actor-director-duo/
+
+Michael B. Jordan and Ryan Coogler both took home Oscars this year and together, they are as good a duo in movies as you'll ever find.
+---------
+
+# Daredevil: Born Again Season 2's Thunderbolts Connection Breaks The Rules Of The MCU
+
+Streaming TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 25 Mar 2026 13:58:06 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-thunderbolts-connection-val-de-fontaine/
+
+A major rule of the Marvel Cinematic Universe has been subverted in Daredevil: Born Again season 2, thanks to a subtle Thunderbolts*reference.
+---------
+
+# The Lord Of The Rings' New Movies Prove We Were Too Harsh On The Rings Of Power
+
+Streaming TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power
+
+Wed, 25 Mar 2026 13:48:53 GMT
+
+https://screenrant.com/lord-of-the-rings-new-movies-too-harsh-rings-of-power/
+
+Rings of Power may be a problem, but with Stephen Colbert's new Lord of the Rings movie joining a concerningly extensive lineup, we may eat our words.
+---------
+
+# GTA 6 Gets Official Update in Rockstar Job Post
+
+Games, Grand Theft Auto, rockstar games
+
+Wed, 25 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/gta-6-rockstar-update-game-testers/
+
+A new Rockstar job posting has fans excited, as it hints that Grand Theft Auto 6 is hitting a major development milestone on the road to release.
+---------
+
+# Sean Kaufman Teases Huge Mystery in For All Mankind Season 5
+
+TV, Apple TV
+
+Wed, 25 Mar 2026 14:15:12 GMT
+
+https://www.cbr.com/video/sean-kaufman-teases-huge-mystery-in-for-all-mankind-season-5/
+
+Sean Kaufman reveals how the rising tension on Mars changes everything for Alex’s story.Kaufman breaks down stepping into the role of an older Alex, the pressure of joining such a legendary cast, and how he used that anxiety to shape the character. He also dives into Alex’s emotional struggle between Mars and Earth, teasing a deeper identity conflict and the growing political divide. Plus, he hints at one major question driving the season: the search for life.
+---------
+
+# Walt Disney's Miracle of the White Stallions is the Best WWII Movies Ever
+
+Movies, Disney, Miracle of the White Stallions
+
+Wed, 25 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/disney-forgotten-wwii-war-movie/
+
+Disney movies spanned many genres, but one unlikely entry became a great WWII film that audiences should still watch even today.
+---------
+
+# 10 Shonen Anime That Are Even Better Than Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, shonen anime
+
+Wed, 25 Mar 2026 13:43:27 GMT
+
+https://www.cbr.com/shonen-anime-better-than-jjk/
+
+Jujutsu Kaisen's popularity might be at an all-time high, but a handful of top-tier shonen anime have even better execution.
+---------
+
+# What's Coming to HBO Max in April 2026? Full List
+
+Movies, HBO Max
+
+Wed, 25 Mar 2026 13:26:29 GMT
+
+https://www.cbr.com/whats-coming-to-hbo-max-in-april-2026-full-list/
+
+April will feature several highly anticipated films, including Marty Supreme and Euphoria Season 3.
+---------
+
+# Hokum's Monster Is the Genre’s Most Terrifying Creation
+
+Movies, Hokum, The Ritual
+
+Wed, 25 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/hokum-horror-movie-bunny-man-scariest/
+
+Has one of 2026's most anticipated horror movies cracked a scarier creature than the one from The Ritual?
+---------
+
+# Secrets We Keep: Netflix's 100% Rotten Tomatoes Noir Thriller
+
+TV, Thriller, Mystery, Secrets We Keep, Netflix
+
+Wed, 25 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/secrets-we-keep-netflix-best-slow-burn-thriller-2020s/
+
+Netflix is home to some of the best slow-burn thrillers, and at the top of the watch stack is Nordic Noir mystery, Secrets We Keep.
+---------
+
+# Netflix's Next Big Action Thriller Pushes Charlize Theron to the Edge in Pulse-Pounding New Trailer
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Wed, 25 Mar 2026 14:04:11 GMT
+
+https://collider.com/netflix-action-thriller-apex-charlize-theron-taron-egerton-new-trailer/
+
+Taron Egerton and Charlize Theron star in the new trailer for Apex, the action thriller coming soon to Netflix.
+---------
+
+# 'War Machine' Dethroned by 'Peaky Blinders' as Netflix's #1 Movie in the World
+
+Movie News, War Machine, Peaky Blinders: The Immortal Man, Hot on Streaming
+
+Wed, 25 Mar 2026 14:04:32 GMT
+
+https://movieweb.com/alan-ritchson-war-machine-peaky-blinders-netflix-global-charts-march-2026/
+
+After spending two weeks in first place, Alan Ritchson's sci-fi action hit has finally met its match in Thomas Shelby.
+---------
+
+# 'Something Very Bad Is Going To Happen' Premieres on Netflix March 26 2026
+
+Features, Something Very Bad Is Going to Happen, Netflix, Upcoming Tease
+
+Wed, 25 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/something-very-bad-is-going-to-happen-netflix-premiere/
+
+'Something Very Bad Is Going to Happen' is a horror series executive produced by the Duffer Brothers and will premiere on Netflix on March 26, 2026.
+---------
+
+# Netflix Wins Streaming Debut of New Action Spy Thriller 'Humint'
+
+Movie News, Netflix, Action, Thriller
+
+Wed, 25 Mar 2026 13:16:06 GMT
+
+https://movieweb.com/netflix-stream-action-thriller-humint/
+
+The streamer has released a new trailer for the action outing, which will land on the platform next week.
+---------
+
+# 'A Knight of the Seven Kingdoms' Restored Faith in Doomed 'Game of Thrones' Franchise
+
+Features, A Knight Of The Seven Kingdoms, Game Of Thrones, HBO Max, House of the Dragon
+
+Wed, 25 Mar 2026 13:01:17 GMT
+
+https://movieweb.com/knight-of-the-seven-kingdoms-game-of-thrones-faith/
+
+HBO's 'A Knight of the Seven Kingdoms,' the 'Game of Thrones' prequel, stars Dexter Sol Ansell and Peter Claffey as Egg and Dunk.
+---------
+
 # There’s Officially 2 Weeks Left Until Prime Video Changes Forever
 
 Movies, Prime Video
