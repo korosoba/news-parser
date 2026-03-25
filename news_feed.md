@@ -1,3 +1,311 @@
+# Nintendo Officially Announces Major Switch 2 Pricing Change
+
+Gaming, Nintendo Switch 2, Triple-A Games
+
+Wed, 25 Mar 2026 17:53:52 GMT
+
+https://screenrant.com/nintendo-switch-2-price-change-digital/
+
+Nintendo is bringing a big change to the distribution of Switch 2 games, and certain Switch 2 users are going to like it a lot more than others.
+---------
+
+# Leighton Meester's Basic Focuses On The Emotional Reality Of Scrolling
+
+Movies, Basic, SXSW, Leighton Meester
+
+Wed, 25 Mar 2026 17:47:43 GMT
+
+https://screenrant.com/leighton-meester-basic-movie-no-screen-text-why-director-cast-sxsw/
+
+Basic director Chelsea Devantez and the cast discuss why their social media-driven comedy avoids on-screen posts, focusing instead on the emotional reality of scrolling and modern relationships.
+---------
+
+# Adam Sandler & Willem Dafoe Cast In Netflix's Edgy Remake Of 25-Year-Old Psychological Movie
+
+Movies, Adam Sandler, Willem Dafoe, Netflix
+
+Wed, 25 Mar 2026 17:47:10 GMT
+
+https://screenrant.com/time-out-netflix-remake-adam-sandler-willem-dafoe-casting/
+
+Adam Sandler, Willem Dafoe, and others have been cast in Netflix's edgy remake of a 25-year-old psychological movie.
+---------
+
+# 10 Movies That Peak With Their Opening Scene
+
+Movies, Op-Ed
+
+Wed, 25 Mar 2026 17:45:19 GMT
+
+https://screenrant.com/movies-where-opening-scene-is-best-part/
+
+A great opening scene is important for any film, yet some of the best actually are the peaks of their respective movies.
+---------
+
+# DC Unveils Epic Redesign, Officially Crowning a Classic Hero Its Sorcerer Supreme
+
+Comics, Zatanna, DC Comics, DC
+
+Wed, 25 Mar 2026 17:45:16 GMT
+
+https://screenrant.com/zatanna-redesign-prime-magus-dc-sorcerer-supreme/
+
+DC Next Level is debuting a brand-new costume for a beloved character, and it appropriately levels them up for a stunning new phase and role.
+---------
+
+# Paul Rudd & Nick Jonas' New 100% RT Comedy Will Continue A 19-Year Tradition, Says Power Ballad Director
+
+Movies, Power Ballad, SXSW, Paul Rudd, Nick Jonas
+
+Wed, 25 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/paul-rudd-nick-jonas-power-ballad-movie-album-release-john-carney-sxsw/
+
+Co-writer/director John Carney talks his new movie Power Ballad and confirms the Paul Rudd and Nick Jonas-led film will continue a 19-year tradition.
+---------
+
+# Daredevil: Born Again Season 2 Breaks All-Time Rotten Tomatoes Score, Even Surpassing Netflix Era
+
+TV, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 25 Mar 2026 17:20:24 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-rotten-tomatoes-disney-plus-audience-score/
+
+Marvel Studios' Daredevil: Born Again has officially made a new record for Charlie Cox's era as Matt Murdock, with its Rotten Tomatoes score now out.
+---------
+
+# Two Long-Time Grey's Anatomy Stars Exiting Series After Season 22 Finale
+
+TV, Grey's Anatomy
+
+Wed, 25 Mar 2026 17:06:34 GMT
+
+https://screenrant.com/greys-anatomy-season-22-kim-raver-kevin-mckidd-exit/
+
+Two stars of ABC's hit medical drama Grey's Anatomy will depart the series after the season 22 finale airs later this year on the network.
+---------
+
+# Punisher Ally Microchip Officially Returns
+
+Marvel Comics, The Punisher, Marvel
+
+Wed, 25 Mar 2026 17:01:20 GMT
+
+https://screenrant.com/punisher-microchip-return-change/
+
+The Punisher now battles the aftermath of his war against Kingpin and prepares to face his old archnemesis with the help of a familiar face.
+---------
+
+# The Fate Of The Stranger Things Franchise Hinges On A New Series Coming Next Month
+
+Streaming TV, Stranger Things, Netflix
+
+Wed, 25 Mar 2026 17:01:20 GMT
+
+https://screenrant.com/stranger-things-franchise-fate-netflix-tales-from-85-success/
+
+Tales from '85 could decide the franchise's future as the animated spinoff premieres next month amid backlash against season five's finale.
+---------
+
+# The Best Amazon Big Spring Sale Gaming Deals 2026
+
+Games, Video Games, amazon
+
+Wed, 25 Mar 2026 17:39:12 GMT
+
+https://www.cbr.com/amazon-spring-sale-gaming-deals-2026/
+
+The 2026 Amazon Spring Sale has some amazing deals gamers won't want to miss.
+---------
+
+# 20 Years Later, This 10/10 JRPG Series Keeps Getting Better
+
+Games, JRPG, The Legend of Heroes: Trails in the Sky
+
+Wed, 25 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/best-jrpg-series-most-underrated-trails/
+
+One of the greatest JRPG series of all time has only gotten better with age.
+---------
+
+# 20 Best R-Rated Teen Comedies of All Time
+
+Movies, Not Another Teen Movie, Superbad, Wet Hot American Summer, Fast Times At Ridgemont High
+
+Wed, 25 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/best-r-rated-teen-comedies-all-time/
+
+R-rated teen comedies like Superbad don't hold back when it comes to raunchy humor. Some are even bona fide classics that elevated the genre.
+---------
+
+# Grey's Anatomy Stars Kim Raver and Kevin McKidd Exit in Season 22 Finale
+
+TV, Grey's Anatomy, ABC, Drama
+
+Wed, 25 Mar 2026 17:22:11 GMT
+
+https://www.cbr.com/greys-anatomy-kevin-mckidd-kim-raver-owen-teddy-exit/
+
+Longtime Grey's Anatomy stars Kim Raver and Kevin McKidd, who play doctors Teddy Altman and Owen Hunt, are set to depart the series after Season 22.
+---------
+
+# Evangelion Gets the Ultimate '90s Spin-Off in New Limited-Edition Release
+
+Anime, Neon Genesis Evangelion, beyblade, merchandise, toys, Beyblade X
+
+Wed, 25 Mar 2026 17:20:22 GMT
+
+https://www.cbr.com/evangelion-beyblade-toy-international-release/
+
+Mecha fans can embrace the ultimate 1990s anime crossover with a trio of Evangelion Beyblade tops ready to let it rip and unleash Third Impact.
+---------
+
+# Daredevil Stars Talk Season 2 Surprises In CBR's Backstage Pass
+
+CBR Exclusives, CBR's Backstage Pass
+
+Wed, 25 Mar 2026 17:16:39 GMT
+
+https://www.cbr.com/daredevil-stars-talk-season-2-surprises-in-cbrs-backstage-pass/
+
+We also have details on Project Hail Mary, Invincible and more!
+---------
+
+# Crunchyroll Officially Wipes Out 900+ Anime Piracy Apps in 1 Move
+
+TV News, Crunchyroll, Anime, Attack on Titan, One Piece
+
+Wed, 25 Mar 2026 17:49:09 GMT
+
+https://collider.com/crunchyroll-anti-piracy-github-removes-900-third-party-apps/
+
+Crunchyroll's anti-piracy push continues to yield results, as the streamer's legal team has shut down over 900 third-party platforms overnight.
+---------
+
+# 'Grey's Anatomy' Is Officially Losing 2 of the Medical Drama's Best Characters Very Soon
+
+TV News, Grey's Anatomy, ABC, Kevin McKidd, Kim Raver
+
+Wed, 25 Mar 2026 17:44:21 GMT
+
+https://collider.com/greys-anatomy-season-22-kevin-mckidd-kim-raver-exit-leaving-abc-medical-drama/
+
+Grey's Anatomy fans are in for a shock, as Kevin McKidd and Kim Raver will be leaving the show at the end of Season 22.
+---------
+
+# The Best Sci-Fi Anime Franchise of All Time Officially Returns to Theaters in 2026
+
+Movie, Mobile Suit Gundam, Mobile Suit Gundam: Hathaway, Anime, Netflix
+
+Wed, 25 Mar 2026 17:42:40 GMT
+
+https://collider.com/mobile-suit-gundam-hathaway-the-sorcery-of-nymph-circe-anime-movie-american-release-date-may-15-2026/
+
+Ahead of Sydney Sweeney's live-action remake, Mobile Suit Gundam is returning to theaters with a stunning new movie, which just set a U.S. release.
+---------
+
+# Disney's Cinderella Is Officially Getting a New Live-Action Spin-Off Movie
+
+Movie News, Cinderella, Akiva Schaffer, Disney, Fantasy
+
+Wed, 25 Mar 2026 17:28:04 GMT
+
+https://collider.com/disney-live-action-cinderella-spin-off-stepsisters-akiva-schaffer-directing/
+
+Disney has announced plans for a live-action Cinderella spin-off titled Stepsisters, with The Naked Gun's Akiva Schaffer directing.
+---------
+
+# Disney+'s 'Daredevil' Finally Matches Netflix Era With All-Time Series High
+
+TV News, Daredevil: Born Again, Charlie Cox, Vincent D'Onofrio, Disney+
+
+Wed, 25 Mar 2026 17:16:40 GMT
+
+https://collider.com/daredevil-born-again-season-2-rotten-tomatoes-score-is-it-good/
+
+Daredevil: Born Again Season 2 impresses both critics and fans with stellar reviews on Rotten Tomatoes. Read on for more details.
+---------
+
+# The Beatles' 1968 Hit Dominated the Billboard Charts for 9 Weeks
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Billboard Hot 100, Rock, Music
+
+Wed, 25 Mar 2026 17:08:35 GMT
+
+https://collider.com/the-beatles-hit-song-hey-jude-no-1-spot-billboard-charts-9-weeks/
+
+The personal story behind Icon Paul McCartney’s Hey Jude, The Beatles' longest-running No. 1 hit and a global anthem of hope.
+---------
+
+# 8 Years Later, 'The Americans' Returns With an Unexpected Twist
+
+TV News, The Americans, Keri Russell, Lee Byung-hun, Disney+
+
+Wed, 25 Mar 2026 16:59:10 GMT
+
+https://collider.com/the-americans-korean-version-announced-disney-plus/
+
+Disney+ announces new The Americans series heading into production that reimagines the hit FX series that ended in 2018.
+---------
+
+# What Stephen Colbert's 'Lord of the Rings' Movie Is About & When It's Set on the Timeline
+
+Features, The Lord of the Rings, Stephen Colbert
+
+Wed, 25 Mar 2026 17:21:24 GMT
+
+https://movieweb.com/lord-of-the-rings-shadows-of-the-past-timeline/
+
+The late-night host is writing 'Lord of the Rings' now. Here's what we know about the plot and when it's set.
+---------
+
+# 'The Americans' Remake in the Works for Disney+ With 'Squid Game' Star
+
+TV News, The Americans, Disney+
+
+Wed, 25 Mar 2026 17:10:26 GMT
+
+https://movieweb.com/the-americans-korean-remake-disney/
+
+Disney+ has given the greenlight to a Korean remake of FX's spy thriller series 'The Americans,' with 'Squid Game's Lee Byung-hun leading the cast.
+---------
+
+# Jackie Chan's Best Comedy Movies, Ranked
+
+Movie Lists, Jackie Chan
+
+Wed, 25 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/jackie-chan-movies-comedy/
+
+The iconic Jackie Chan is as well known for his explosive action and stunt work as for his comedic chops; here are his funniest comedies.
+---------
+
+# 'Invincible' Season 4 Tells a Dark Story Robert Kirkman Cut From the Comics
+
+Features, Invincible, Prime Video, Robert Kirkman
+
+Wed, 25 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/invincible-delivered-storyline-cut-comics/
+
+'Invincible' creator Robert Kirkman finally found a home for a grim story he always wanted to tell in the comics.
+---------
+
+# Leonardo DiCaprio Crime Thriller 'The Departed' Climbs Streaming Charts
+
+Movie News, The Departed, Hot on Streaming, Leonardo DiCaprio
+
+Wed, 25 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/the-departed-streaming-march-2026/
+
+Martin Scorsese's classic crime thriller 'The Departed,' starring Leonardo DiCaprio and Matt Damon, has reentered the streaming race.
+---------
+
 # Paradise's Single Wildest Fan Theory Just Officially Became Reality
 
 Movies, Paradise
