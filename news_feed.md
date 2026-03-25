@@ -1,3 +1,14 @@
+# 'Invincible' Season 4 Episode 4 Recap: Mark Goes to Hell at the Worst Possible Time
+
+TV Reviews, Invincible, Prime Video, Steven Yeun, Robert Kirkman
+
+Wed, 25 Mar 2026 07:00:13 GMT
+
+https://collider.com/invincible-season-4-episode-4-recap-prime-video/
+
+Invincible Season 4 Episode 4 has a nice beginning and ending, but Mark's trip to Hell comes at the worst possible time.
+---------
+
 # Who Is Mr. Charles In Daredevil: Born Again? Matthew Lillard’s Marvel Character Explained
 
 Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
