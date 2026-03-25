@@ -1,3 +1,124 @@
+# Netflix’s 8-Part Psychological Thriller Is Its Best New Show To Binge This Weekend
+
+Streaming TV, Netflix, Something Very Bad Is Going to Happen
+
+Wed, 25 Mar 2026 23:52:19 GMT
+
+https://screenrant.com/netflix-something-very-bad-is-going-to-happen-series-watch/
+
+Discover Netflix's new 8-part psychological horror series, produced by Stranger Things creators, set to be the most popular binge-watch this weekend.
+---------
+
+# Agent Anti-Venom Joins Spider-Man Event Death Spiral
+
+Marvel Comics, Anti-Venom, Spider-Man, Venom, Marvel
+
+Wed, 25 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/spider-man-agent-anti-venom-flash-thompson/
+
+Agent Anti-Venom, Flash Thompson's symbiote alter ego, is set to join the battle against one of Spider-Man's deadliest villains to date.
+---------
+
+# A Knight Of The Seven Kingdoms Is Officially Keeping Its Biggest Promise After Season 2 Update
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Wed, 25 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-release-2027-promise/
+
+An update for A Knight of the Seven Kingdoms season 2 is a good sign that HBO will fulfill its ambitious promise for the Game of Thrones spinoff.
+---------
+
+# Mr. T Reunites With Former Make-A-Wish Kid in Moving Video
+
+TV, The A-Team
+
+Wed, 25 Mar 2026 23:39:31 GMT
+
+https://www.cbr.com/mr-t-resurfaces-new-video/
+
+The A-Team star Mr. T resurfaces in a new video showcasing his reunion with a former Make-A-Wish kid.
+---------
+
+# New Transformers Release Brings G1 Anime's Soundblaster Back From the Dead After 39 Years
+
+Anime, Transformers, merchandise, toys
+
+Wed, 25 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/transformers-super7-blind-box-soundblaster/
+
+Redecos of the previous Super7 ReAction Transformers figures give fans metallic versions of classic characters, along with an obscure G1 Decepticon.
+---------
+
+# 60 Years Later, This Iconic Sci-Fi Franchise Has Officially Found Footage That Was Part of a Crushing Loss
+
+TV Features, Doctor Who, BBC, Sci-Fi, Fantasy
+
+Wed, 25 Mar 2026 23:24:12 GMT
+
+https://collider.com/doctor-who-lost-episodes-found-the-daleks-masterplan/
+
+Two lost episodes of Doctor Who's "The Daleks' Masterplan," found in a private collection, have been restored for streaming on BBC iPlayer this Easter
+---------
+
+# 10 Forgotten Action Movies That Have Aged Like Fine Wine
+
+Movie, Executive Decision, Full Contact, Breakdown, Action
+
+Wed, 25 Mar 2026 23:21:12 GMT
+
+https://collider.com/forgotten-action-movies-aged-like-fine-wine/
+
+From Executive Decision to Breakdown, these action movies may be largely ignored by modern audiences, but they have still aged like the best of wines.
+---------
+
+# 8 Campiest Movies of the 2000s, Ranked
+
+Movie, Jennifer's Body, Charlie's Angels: Full Throttle, Scooby-Doo 2: Monsters Unleashed, Twilight
+
+Wed, 25 Mar 2026 23:11:34 GMT
+
+https://collider.com/campiest-movies-2000s-ranked/
+
+Jennifer's Body, Charlie's Angels, Twilight, Snakes on a Plane, Catwoman, and more make up our list of the campiest movies of the 2000s.
+---------
+
+# 'It' Director Confirms Epic Supercut of Stephen King Epic Still in the Works
+
+Movie News, It, It Chapter Two, Andres Muschietti, Stephen King
+
+Wed, 25 Mar 2026 23:53:18 GMT
+
+https://movieweb.com/stephen-king-it-supercut-pennywise/
+
+The extended version of the record-breaking horror movie hasn't been lost as Andy Muschietti has focused on 'It: Welcome to Derry.'
+---------
+
+# Josh Duhamel & Michael Socha on Why 'Preschool' Is Really About Parenting, Ego & Competition
+
+Interviews, Josh Duhamel
+
+Wed, 25 Mar 2026 23:18:51 GMT
+
+https://movieweb.com/video/josh-duhamel-michael-socha-on-why-preschool-is-really-about-parenting-ego-competition/
+
+Josh Duhamel and Michael Socha break down the real-life pressure behind 'Preschool,' the new comedy about two dads going to outrageous lengths to get their kids into an elite school. In this interview with MovieWeb, they discuss why the movie feels so relatable to parents, how rivalry and insecurity drive the story, and how their on-screen chemistry keeps the comedy rising. Josh also opens up about directing Michael and the moment he realized he had to bring his A-game.
+---------
+
+# Warner Bros. CEO Casey Bloys Details Extra Security Measures for 'Harry Potter' Set
+
+TV News, Harry Potter
+
+Wed, 25 Mar 2026 23:07:32 GMT
+
+https://movieweb.com/warner-bros-protection-harry-potter-death-threats/
+
+Warner Bros CEO Casey Bloys spoke about the measures he is taking to protect the 'Harry Potter' cast from racist and disrespectful commentary.
+---------
+
 # After 48 Years, DC Is Officially Rebooting Justice League Icon Firestorm
 
 Comics, Justice League
