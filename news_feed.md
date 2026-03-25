@@ -1,3 +1,267 @@
+# How Talk To Me Actor's New 95% RT Movie Is More Than Just Another Horror-Thriller Explained By Leviticus Director & Star
+
+Movies, Leviticus, Horror, SXSW
+
+Wed, 25 Mar 2026 19:30:20 GMT
+
+https://screenrant.com/joe-bird-leviticus-movie-horror-thriller-elevated-adrian-chiarella-sxsw/
+
+Talk to Me alum Joe Bird and writer/director Adrian Chiarella talk Leviticus and how the acclaimed new movie is more than a simple horror-thriller.
+---------
+
+# New The Mummy Movie Officially Breaks 27-Year Franchise Tradition With Its Rating
+
+Movies, Horror, Lee Cronin's The Mummy, The Mummy
+
+Wed, 25 Mar 2026 19:26:24 GMT
+
+https://screenrant.com/lee-cronins-the-mummy-mpa-rating-breaks-tradition/
+
+Lee Cronin's The Mummy is set to deliver more scares than previous franchise entries, as evidenced by its tradition-breaking MPAA rating.
+---------
+
+# Ella Purnell's 2-Part Sci-Fi Series On Netflix Proved The Doubters Wrong
+
+TV, Star Trek: Prodigy, Ella Purnell
+
+Wed, 25 Mar 2026 19:25:19 GMT
+
+https://screenrant.com/ella-purnell-star-trek-prodigy-proved-doubters-wrong/
+
+Ella Purnell's Netflix sci-fi series sounded risky but defied expectations, earning a 94% rating on Rotten Tomatoes despite initial skepticism.
+---------
+
+# Harry Potter Reboot’s Voldemort Casting Gets Update From HBO Boss Amid Rumors
+
+TV, Harry Potter
+
+Wed, 25 Mar 2026 19:12:13 GMT
+
+https://screenrant.com/harry-potter-show-voldemort-casting-rumors-casey-bloys/
+
+As filming continues for the upcoming Harry Potter TV show, the head of HBO responds to the rumors about who might play Voldemort on the small screen.
+---------
+
+# HBO's Harry Potter Series Lands 2026 Release Date
+
+TV, Harry Potter
+
+Wed, 25 Mar 2026 19:06:50 GMT
+
+https://screenrant.com/harry-potter-series-hbo-release-date-2026/
+
+HBO's highly-anticipated series adaptation of the Harry Potter novels lands a 2026 release date as the network debuts the first trailer.
+---------
+
+# Harry Potter Season 1 Trailer Reveals New Harry, Ron & Hermione At Hogwarts With Book Changes
+
+TV, Harry Potter
+
+Wed, 25 Mar 2026 19:01:35 GMT
+
+https://screenrant.com/harry-potter-season-1-hbo-teaser-trailer/
+
+HBO has now officially released the first teaser trailer for Harry Potter season 1 ahead of the long-awaited series' premiere on Christmas 2026.
+---------
+
+# Black Widow Unveils Her Official Evil Codename
+
+Marvel Comics, Black Widow, The Avengers, Marvel
+
+Wed, 25 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/avengers-black-widow-evil-codename/
+
+The Avengers' most loyal member betrays their allies and outsmarts their enemies, embracing a new, evil moniker that was forced upon them.
+---------
+
+# Netflix's 4-Part Romance Is So Good, It Reinvents Two Different Genres
+
+Streaming TV, Bridgerton
+
+Wed, 25 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/bridgerton-netflix-romance-historical-drama-reinvent-genres/
+
+Netflix's Bridgerton is presented similarly to a fantasy, but it is much more complex. The TV drama rewrites the rules of both romance and history.
+---------
+
+# Netflix's 3-Part Time Travel Series Makes Sci-Fi Look Easy
+
+TV, Dark
+
+Wed, 25 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/dark-time-travel-series-netflix-makes-sci-fi-look-easy/
+
+Netflix's masterpiece proves that a mystery box show can succeed in the sci-fi genre, offering a satisfyingly complex puzzle with a perfect ending.
+---------
+
+# Apple TV's 4-Part Sci-Fi Thriller Series Keeps Getting Better Ahead Of Return This Week
+
+Streaming TV, For All Mankind, Sci-Fi, Apple TV
+
+Wed, 25 Mar 2026 18:48:19 GMT
+
+https://screenrant.com/for-all-mankind-apple-tv-streaming-success-season-5-march-2026/
+
+Apple TV+ fans are counting down to the return of one of the platform's most ambitious sci-fi shows as it expands towards the climax of its story.
+---------
+
+# Spider-Man Fans Brace For Aunt May's Death Before Major Comic Event
+
+Comics, Spider-Man
+
+Wed, 25 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/amazing-spider-man-1000-aunt-may-death-tease/
+
+Could this be the end for Aunt May (again?)
+---------
+
+# McDonald's KPop Demon Hunters Meals Make Fans Pick a Side: HUNTR/X vs. Saja Boys
+
+Anime, mcdonald's, food, KPop Demon Hunters
+
+Wed, 25 Mar 2026 19:21:49 GMT
+
+https://www.cbr.com/kpop-demon-hunters-mcdonalds-meals-huntrx-vs-saja-boys/
+
+McDonald's becomes the epic battleground for KPop Demon Hunters' two feuding groups in a brand-new collaboration featuring limited-time menu items.
+---------
+
+# Murder, She Wrote Reboot Starring Jamie Lee Curtis Set for 2027 Release
+
+Movies, Murder, She Wrote, Mystery
+
+Wed, 25 Mar 2026 19:04:40 GMT
+
+https://www.cbr.com/murder-she-wrote-movie-release-date-jamie-lee-curtis/
+
+Universal Pictures announces the Murder, She Wrote reboot starring Academy Award-winner Jamie Lee Curtis, set to hit theaters on Dec. 22, 2027.
+---------
+
+# HBO Just Dropped the Trailer for the Harry Potter Reboot
+
+TV, Harry Potter
+
+Wed, 25 Mar 2026 19:00:44 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-teaser/
+
+Hogwarts will always be there to welcome you home.
+---------
+
+# The Best Amazon Big Spring Sale Deals For Movie Lovers 2026
+
+Movies, Amazon.com, The Housemaid
+
+Wed, 25 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/best-amazon-spring-sale-2026-deals-list/
+
+Amazon's Spring Sale is here, and now until March 31st, there are some great movie choices worth checking out at a great price.
+---------
+
+# 8 Netflix Thriller Series That Get More Intense as They Go
+
+TV, Netflix, Thriller
+
+Wed, 25 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/netflix-most-intense-thrillers-list/
+
+Some Netflix thrillers run out of steam as they go, but others like The Beast in Me and Dark become more intense with each episode.
+---------
+
+# Harry Potter Is Officially Returning This Year
+
+TV News, Harry Potter, HBO Max
+
+Wed, 25 Mar 2026 19:26:47 GMT
+
+https://collider.com/harry-potter-is-officially-returning-this-year/
+
+HBO's Harry Potter series has officially set a perfect release date for later this year. Here's when the series arrives.
+---------
+
+# 10 Best Crowd-Pleasing Adventure Movies, Ranked
+
+Movie, The Lord of the Rings: The Fellowship of the Ring, Star Wars, Raiders of the Lost Ark, Avatar
+
+Wed, 25 Mar 2026 19:19:12 GMT
+
+https://collider.com/best-crowd-pleasing-adventure-movies-ranked/
+
+Adventure movies are often broad and crowd-pleasing, with classics like The Princess Bride and Raiders of the Lost Ark being especially so.
+---------
+
+# New Harry Potter Series Trailer Officially Reveals HBO's Better Wizarding World Reboot
+
+TV News, Harry Potter, HBO Max
+
+Wed, 25 Mar 2026 19:01:35 GMT
+
+https://collider.com/harry-potter-hbo-series-first-trailer/
+
+HBO has released the first trailer for its upcoming Harry Potter TV series, offering the first real look at the 2027 reboot.
+---------
+
+# 'NCIS' 500th Episode Just Changed the Series Forever With This Unexpected Death
+
+TV Features, NCIS, CBS
+
+Wed, 25 Mar 2026 19:00:13 GMT
+
+https://collider.com/ncis-500th-episode-leon-vance-death/
+
+In NCIS' epic 500th episode, Rocky Carroll's Leon Vance pays the ultimate price to save the team in a major plot twist.
+---------
+
+# Nirvana's Biggest Song of All Time "Smells Like Teen Spirit" Was Inspired by This Alternative Rock Band
+
+Music Features, Nirvana, Kurt Cobain, Rock, Music
+
+Wed, 25 Mar 2026 18:48:50 GMT
+
+https://collider.com/nirvana-biggest-song-of-all-time-smells-like-teen-spirit-inspired-by-alternative-rock-band-pixies/
+
+Nirvana's iconic Smells Like Teen Spirit drew inspiration from alternative rock band the Pixies, shaping the grunge genre's sound and legacy.
+---------
+
+# Gillian Anderson’s “Uber Meta Slasher” Is Not What You're Expecting [Exclusive]
+
+Exclusives, Gillian Anderson, Hannah Einbinder, Jane Schoenbrun, Fan Expo
+
+Wed, 25 Mar 2026 18:48:46 GMT
+
+https://collider.com/gillian-anderson-horror-slasher-camp-miasma-what-to-expect-hannah-einbinder/
+
+Gillian Anderson teases an “uber meta slasher” storyline in her upcoming vehicle with filmmaker Jane Schoenbrun. Read on for more.
+---------
+
+# Robert Pattinson & Zendaya’s 'The Drama' Condemned by Columbine Parents Over Controversial Twist
+
+Movie News, The Drama
+
+Wed, 25 Mar 2026 19:29:52 GMT
+
+https://movieweb.com/robert-pattinson-zendaya-drama-twist/
+
+Parents of the Columbine shooting have major issues with Robert Pattinson and Zendaya's upcoming movie, 'The Drama.'
+---------
+
+# 'Harry Potter' Teaser Trailer Revealed by HBO
+
+TV News, Harry Potter
+
+Wed, 25 Mar 2026 19:07:37 GMT
+
+https://movieweb.com/harry-potter-hbo-teaser-trailer/
+
+Featuring an all-star cast, we finally have our first in-depth look at HBO and Warner Bros.' reboot.
+---------
+
 # Daredevil: Born Again Just Repeated A Netflix Season 1 Fight In The Best Way
 
 Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
