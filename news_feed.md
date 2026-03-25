@@ -1,3 +1,267 @@
+# Daredevil: Born Again Just Repeated A Netflix Season 1 Fight In The Best Way
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 25 Mar 2026 18:44:12 GMT
+
+https://screenrant.com/daredevil-born-again-netflix-season-1-fight-repeat/
+
+Marvel's Daredevil: Born Again season 1 repeats a major fight scene of the original show, and the MCU series does it in a fantastic way.
+---------
+
+# John Goodman's Chaotic New Comedy Chili Finger Was Also One Of His Most Relaxing Filming Experiences
+
+Movies, Chili Finger, SXSW, John Goodman
+
+Wed, 25 Mar 2026 18:31:18 GMT
+
+https://screenrant.com/john-goodman-chili-finger-movie-filming-relaxing-director-cast-sxsw/
+
+John Goodman and his Chili Finger directors and co-stars talk the wild new comedy and how it proved to be a surprisingly relaxing filming experience.
+---------
+
+# Disney+ Remakes FX's Espionage Thriller "The Americans" As "The Koreans"
+
+Streaming TV, The Americans
+
+Wed, 25 Mar 2026 18:31:18 GMT
+
+https://screenrant.com/the-americans-spy-thriller-series-disney-plus-remake/
+
+FX's spy thriller The Americans is one of the great 21st-century television shows, and now it's getting remade by Disney+ as The Koreans.
+---------
+
+# Jamie Lee Curtis To Star In Murder, She Wrote Reboot For Universal Pictures
+
+Movies, Jamie Lee Curtis, Murder, She Wrote
+
+Wed, 25 Mar 2026 18:25:26 GMT
+
+https://screenrant.com/murder-she-wrote-jamie-lee-curtis-reboot-release-date/
+
+Universal Pictures announces a theatrical reboot of the classic crime drama Murder, She Wrote, starring Jamie Lee Curtis as Jessica Fletcher. The film is set for a December 22, 2027 release, facing competition from major titles that weekend.
+---------
+
+# Taylor Sheridan's Underrated 3-Part Action Series Gets "Epic" Return Update From Stars After 2-Year Wait
+
+TV, Lioness
+
+Wed, 25 Mar 2026 18:08:35 GMT
+
+https://screenrant.com/lioness-season-3-filming-production-wrap/
+
+Taylor Sheridan's underrated three-part action series receives an "epic" update from its stars regarding its return after a two-year wait.
+---------
+
+# Dexter: Resurrection Season 2 Story Gets Exciting New Tease From Returning Star
+
+TV, Dexter: Resurrection, Dexter
+
+Wed, 25 Mar 2026 18:04:10 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-scripts-tease-dominic-fumusa/
+
+As Dexter: Resurrection season 2 prepares to head into production, returning star Dominic Fumusa has given an exciting tease about the scripts.
+---------
+
+# Jujutsu Kaisen Season 3's Next Episode is Its Riskiest of All Time
+
+Anime, Jujutsu Kaisen
+
+Wed, 25 Mar 2026 18:00:24 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-3-episode-12-risky/
+
+The finale of Jujutsu Kaisen's third season is about to be the riskiest episode the franchise has had yet, and it is all because of how much is in it.
+---------
+
+# Jon Pertwee Was The First To Get Doctor Who Right First Time
+
+Streaming TV, Doctor Who
+
+Wed, 25 Mar 2026 18:00:24 GMT
+
+https://screenrant.com/jon-pertwee-was-the-first-to-get-doctor-who-right-first-time/
+
+Jon Pertwee's time as the Third Doctor marked a period of major change for Doctor Who, which it navigated with exceptional elegance and charm.
+---------
+
+# Pokémon Champions Officially Cuts Most Pokémon from the Game
+
+Games, Pokemon, Nintendo
+
+Wed, 25 Mar 2026 18:25:12 GMT
+
+https://www.cbr.com/pokemon-champions-cut-pokemon-pikachu/
+
+Pokémon Champions is an upcoming battle simulator, but it won't feature any non-Final Evolution Pokémon, all save for one very famous face.
+---------
+
+# Reacher Season 4 Is Finally Done, Alan Ritchson Confirms
+
+TV, Reacher
+
+Wed, 25 Mar 2026 18:10:37 GMT
+
+https://www.cbr.com/reacher-season-4-wraps-alan-ritchson/
+
+After his "crazy week," Alan Ritchson shares a big update on Prime Video's Reacher Season 4.
+---------
+
+# Charlie Cox Wants To Play This Version of Daredevil, According To Vincent D'Onofrio
+
+CBR Exclusives, Daredevil: Born Again
+
+Wed, 25 Mar 2026 18:09:27 GMT
+
+https://www.cbr.com/vincent-donofrio-charlie-cox-marvel-rivals-daredevil/
+
+Coincidentally, the comment comes from Daredevil's rival.
+---------
+
+# Marvel's Star Wars Comic Changed Canon Forever
+
+Comics, Star Wars
+
+Wed, 25 Mar 2026 18:00:14 GMT
+
+https://www.cbr.com/the-comic-that-changed-star-wars-canon-forever/
+
+Star Wars comics have continued to push this incredible galaxy into new territory and this particular run changed everything fans know about Kylo Ren.
+---------
+
+# In Just 1 Day, Send Help Is the Most Popular Film on PVOD
+
+Movies, Send Help
+
+Wed, 25 Mar 2026 17:57:25 GMT
+
+https://www.cbr.com/send-help-rachel-mcadams-pvod-march-2026/
+
+The R-rated horror hit has quickly found success on PVOD.
+---------
+
+# More 'Murder, She Wrote' Is Officially Coming After 30-Year Wait
+
+Movie News, Murder, She Wrote, Jamie Lee Curtis, Universal
+
+Wed, 25 Mar 2026 18:31:55 GMT
+
+https://collider.com/murder-she-wrote-remake-movie-jamie-lee-curtis-release-date-december-22-2027/
+
+Jamie Lee Curtis' Murder, She Wrote remake is officially happening, with a release date set for December 2027.
+---------
+
+# 5 Years Later, ‘Yellowstone’ Star Saddles Up for First Western Movie [Exclusive]
+
+Exclusives, Josh Holloway, Flint, Western, Fan Expo
+
+Wed, 25 Mar 2026 18:24:17 GMT
+
+https://collider.com/josh-hollow-flint-first-western-film-update-release/
+
+Josh Hollow shared an update on his upcoming first Western film, Flint, based on the novel of the same name by Louis L'Amour.
+---------
+
+# ‘For All Mankind’ Creators Reveal Why Apple TV’s Sleeper Hit Series Is Ending with Season 6 [Exclusive]
+
+Exclusives, Star City, For All Mankind, Sci-Fi, Apple TV
+
+Wed, 25 Mar 2026 18:06:28 GMT
+
+https://collider.com/why-for-all-mankind-final-is-ending-with-season-6-not-season-7-apple-tv-creators-ben-nedivi-matt-wolpert/
+
+For All Mankind creators Ben Nedivi and Matt Wolpert have explained why Apple TV’s newly announced sixth and final season feels like the right place.
+---------
+
+# 68 Years Later, the Greatest Rock and Roll Riff Ever Written Still Hits Different
+
+Music Features, Music, Chuck Berry, The Beatles, Elvis Presley
+
+Wed, 25 Mar 2026 18:00:15 GMT
+
+https://collider.com/68-years-later-chuck-berry-johnny-b-goode-hits-different/
+
+Chuck Berry's Johnny B. Goode served as the blueprint for rock and roll, influencing legends like The Beatles and Elvis Presley.
+---------
+
+# Apple TV's Sci-Fi Masterpiece Officially Hits Rock Bottom
+
+TV News, For All Mankind, Apple TV, Joel Kinnaman, Sci-Fi
+
+Wed, 25 Mar 2026 17:58:58 GMT
+
+https://collider.com/apple-tv-sci-fi-series-for-all-mankind-season-5-rotten-tomatoes-score-is-it-good/
+
+Apple TV's five-part sci-fi series, For All Mankind, officially returns this week with its lowest ratings since Season 1. Read on for more details.
+---------
+
+# 'Avengers: Doomsday' Officially Fires Back Against 'Dune: Part 3' After Major IMAX Loss
+
+Movie News, Avengers: Doomsday, Dune: Part Three, Robert Downey Jr, IMAX
+
+Wed, 25 Mar 2026 17:56:22 GMT
+
+https://collider.com/avengers-doomsday-premium-theater-formats-dolby-4dx-after-losing-imax-to-dune-part-3/
+
+Disney aims to compensate for Avengers: Doomsday losing IMAX screens to Dune: Part 3 by pushing the upcoming movie on other premium formats.
+---------
+
+# Adam Sandler To Lead Netflix Thriller Remake 'Time Out' From Director Scott Cooper
+
+Movie News, Adam Sandler
+
+Wed, 25 Mar 2026 18:35:37 GMT
+
+https://movieweb.com/adam-sandler-time-out-netflix/
+
+Adam Sandler is set to star in a remake of an acclaimed 2001 pyschological thriller for Netflix alongside Willem Dafoe.
+---------
+
+# 'X-Files' Star Gillian Anderson Says Ryan Coogler's Reboot Script Is "Something Different"
+
+TV News, The X-Files, Ryan Coogler, Gillian Anderson
+
+Wed, 25 Mar 2026 18:18:21 GMT
+
+https://movieweb.com/gillian-anderson-x-files-reboot-script/
+
+Agent Scully star Gillian Anderson weighs in on Ryan Coogler's 'The X-Files' reboot pilot script, noting it as "something different."
+---------
+
+# Charlize Theron Is Deadly Prey in Trailer for Netflix's New Action Thriller 'Apex'
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Wed, 25 Mar 2026 18:07:39 GMT
+
+https://movieweb.com/apex-trailer-charlize-theron/
+
+The 'Mad Max: Fury Road' actor is hunted by Taron Egerton's nefarious figure in the April title.
+---------
+
+# 80 Years Later, This Iconic Gunslinger’s Western Reboot Return Quickly Shoots to Streaming Success
+
+TV News, Disney+, Western, Lucky Luke
+
+Wed, 25 Mar 2026 18:00:22 GMT
+
+https://movieweb.com/lucky-luke-western-stream-disney-march-2026/
+
+The new Western series 'Lucky Luke' is climbing the global Disney+ charts.
+---------
+
+# 'Scrubs' Season 9 Being Erased From the Sitcom's Canon Meant the Loss of a Very Funny Turk & JD Scene
+
+Features, Scrubs
+
+Wed, 25 Mar 2026 18:00:22 GMT
+
+https://movieweb.com/scrubs-season-9-retcon-lost-scene/
+
+Not all of 'Scrubs' Season 9 was awful, just most of it. There were, however, a few great moments. The revival means those no longer happened.
+---------
+
 # Nintendo Officially Announces Major Switch 2 Pricing Change
 
 Gaming, Nintendo Switch 2, Triple-A Games
