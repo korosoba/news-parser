@@ -1,3 +1,245 @@
+# Iliza Shlesinger's Chasing Summer Blends Comedy With Emotional Depth
+
+Movies, Iliza Shlesinger, Chasing Summer, SXSW
+
+Wed, 25 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/iliza-shlesinger-chasing-summer-comedy-heartbreaking-balance-cast-sxsw/
+
+Iliza Shlesinger's new film Chasing Summer combines sharp humor with heartfelt emotions, drawing on personal experiences to create a relatable and engaging story.
+---------
+
+# Prime Video's New Sci-Fi Series Borrows A Page From The Expanse's Missing Seasons
+
+TV, The Expanse
+
+Wed, 25 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/prime-video-captives-war-expanse-missing-seasons-villain/
+
+Prime Video's upcoming sequel to The Expanse promises to fill the void left by its cancellation and address the original show's missing villains.
+---------
+
+# DC Reveals Hal Jordan Redesign Ahead Of Green Lantern's New Appearance
+
+DC Comics, Green Lantern
+
+Wed, 25 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/green-lantern-hal-jordan-redesign-beard/
+
+DC officially unveils a new look for the Green Lantern Hal Jordan ahead of his co-starring role in the DCU's upcoming Lanterns TV series.
+---------
+
+# Frieren Season 2 Is Ending but the Anime Just Dropped a Limited-Time Exclusive Surprise
+
+Anime, Frieren: Beyond Journey's End, Frieren: Beyond Journey's End - Season 2, Universal Studios Hollywood
+
+Wed, 25 Mar 2026 20:29:42 GMT
+
+https://screenrant.com/frieren-season-2-anime-universal-studios-japan-exclusive/
+
+As Frieren: Beyond Journey's End approaches its bittersweet Season 2 end, fans are in for a magical surprise with a limited-time exclusive event.
+---------
+
+# Pokémon Z Could Be The Definitive Kalos Experience
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 25 Mar 2026 20:12:15 GMT
+
+https://screenrant.com/pokemon-z-x-y-kalos-free-download-fan-game/
+
+Kalos remains one of the most beloved regions in the entire Pokémon series, and you can revisit it again very soon with Pokémon Z.
+---------
+
+# Harry Potter Trailer Divides Fans As They Compare HBO Series To Movies
+
+TV, Harry Potter
+
+Wed, 25 Mar 2026 20:09:34 GMT
+
+https://screenrant.com/harry-potter-season-1-trailer-reactions-divided/
+
+Harry Potter fans are already comparing the HBO adaptations' first trailer to the movies, and it is already eliciting a divisive response.
+---------
+
+# Hogwarts Sure Does Look Familiar In The New Harry Potter Trailer (But Not From The Movies)
+
+Streaming TV, Harry Potter
+
+Wed, 25 Mar 2026 20:08:32 GMT
+
+https://screenrant.com/harry-potter-hbo-trailer-castle-look-like-hogwarts-legacy/
+
+We've officially had our first look at Hogwarts Castle in the upcoming Harry Potter TV show, and it really appears there's some outside inspiration.
+---------
+
+# Red Dead Redemption Meets Minecraft In This New Sandbox RPG
+
+Gaming, Red Dead Redemption, Minecraft, Indie Games, PC
+
+Wed, 25 Mar 2026 20:02:54 GMT
+
+https://screenrant.com/red-dead-redemption-meets-minecraft-sandbox-rpg/
+
+It's a good time to be a fan of Western games, and the upcoming The Legend of California isn't the only Western survival crafting on the horizon.
+---------
+
+# 6 Ways Invincible Season 4's Hell Episode Rewrites The Comics
+
+Streaming TV, Invincible
+
+Wed, 25 Mar 2026 20:00:23 GMT
+
+https://screenrant.com/invincible-hell-comic-changes-explained/
+
+Invincible's latest episode brought a brand-new storyline to the franchise, and the introduction of Hell adds some new lore that wasn't in the comics.
+---------
+
+# Project Hail Mary's Box Office Makes A Movie We've Waited 9 Years For Finally Possible
+
+Movies, Project Hail Mary
+
+Wed, 25 Mar 2026 19:55:20 GMT
+
+https://screenrant.com/project-hail-mary-box-office-artemis/
+
+Project Hail Mary had a strong box office performance in its opening weekend, and it's a promising sign for another Andy Weir novel adaptation.
+---------
+
+# Robert Downey Jr.'s $585M Action Film That Kicked Off a Franchise Becomes a Streaming Hit 18 Years Later
+
+Movies, Iron Man, Marvel Cinematic Universe
+
+Wed, 25 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/robert-downey-jr-iron-man-action-disney-plus-success-march-2026/
+
+Disney+ subscribers have propelled Robert Downey Jr.'s action film that launched a franchise still going strong today onto the streaming charts.
+---------
+
+# 10 Movie Masterpieces From the 1960s You Forgot Existed
+
+Movies, Drama, Crime, The Innocents
+
+Wed, 25 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/best-forgotten-underrated-1960s-movies-list/
+
+The 1960s featured some of the greatest films in cinematic history, and even decades later, some of the 60s' most underrated gems still feel modern.
+---------
+
+# NCIS Star Fought to Change Character's Shocking Fate in 500th Episode
+
+TV, NCIS
+
+Wed, 25 Mar 2026 20:18:23 GMT
+
+https://www.cbr.com/ncis-rocky-carroll-talks-vance-exit/
+
+That major moment in the special 500th episode of NCIS didn't come without some pushback from the actor.
+---------
+
+# Sony Shuts Down Game of Thrones VFX Studio After 25 Years in Major Shakeup
+
+TV, Game Of Thrones, House of the Dragon, Alien: Earth
+
+Wed, 25 Mar 2026 20:16:55 GMT
+
+https://www.cbr.com/sony-shuts-down-pixomondo-vfx-studio-game-of-thrones/
+
+The studio also works on House of the Dragon, Alien: Earth, and The Penguin.
+---------
+
+# 20 Years Later, Nana's Takumi Ichinose Is Still the Most Hated Shojo Villain of All Time
+
+Anime, Nana, anime villains, Shojo
+
+Wed, 25 Mar 2026 20:15:24 GMT
+
+https://www.cbr.com/nana-best-shojo-anime-villain-takumi-ichinose/
+
+Takumi from Nana is still one of the most hated anime villains of all time, even without magical powers or superhuman strength.
+---------
+
+# Ryan Gosling's The Nice Guys Resurfaces on Digital Charts 10 Years Later
+
+Movies, The Nice Guys, ryan gosling
+
+Wed, 25 Mar 2026 20:00:18 GMT
+
+https://www.cbr.com/ryan-gosling-the-nice-guys-action-pvod-success-march-2026/
+
+Fans have been asking for a sequel for years, and its recent return to the charts proves there is an audience for it.
+---------
+
+# Supergirl's Lobo Can Set Up a Brainiac in Man of Tomorrow
+
+Movies, Supergirl
+
+Wed, 25 Mar 2026 20:00:18 GMT
+
+https://www.cbr.com/supergirl-timeline-brainiac-man-of-tomorrow-connection/
+
+Supergirl is the next big movie for the DCU, and it sits perfectly in the DC timeline to set up Man of Tomorrow.
+---------
+
+# 8 Darkest Fairy Tale Movies of All Time, Ranked
+
+Movie, Pan's Labyrinth, Coraline, The Ugly Stepsister, Fantasy
+
+Wed, 25 Mar 2026 20:28:12 GMT
+
+https://collider.com/darkest-fairy-tale-movies-all-time-ranked/
+
+The Ugly Stepsister, Coraline, Black Swan, Pan's Labyrinth, and more make up our list of the darkest fairy tale movies of all time.
+---------
+
+# 'The Pitt's Best Season 2 Detail Is a Subtle Nod to 'ER' You May Have Missed
+
+TV Features, ER, The Pitt, Noah Wyle, HBO Max
+
+Wed, 25 Mar 2026 20:11:24 GMT
+
+https://collider.com/the-pitt-season-2-er-easter-egg-nurse-monica-costume/
+
+With The Pitt Season 2 going analog, the creative team has found a clever way to sneak in a subtle reference to ER and a bygone era of nursing.
+---------
+
+# 'NCIS' Had to “Go Big” for Episode 500 — and That Meant Raising the Stakes
+
+Collider Rewind, NCIS, CBS, Crime
+
+Wed, 25 Mar 2026 20:00:18 GMT
+
+https://collider.com/ncis-500-episode-milestone-director-vance-death-explained-steven-d-binder/
+
+NCIS boss Steven D. Binder discusses the secrets behind the series' longevity, including its balance of twists, humor, and character-driven stories.
+---------
+
+# Mark Wahlberg Action Thriller 'Max Payne' Lands New Streaming Home April 1
+
+Movie News, Max Payne, Coming/Leaving Streaming, Mark Wahlberg
+
+Wed, 25 Mar 2026 20:00:22 GMT
+
+https://movieweb.com/max-payne-mark-wahlberg-streaming-tubi-april-2026/
+
+The divisive video game adaptation that's high on violence will be free to stream next month.
+---------
+
+# Tom Bombadil's First Movie Appearance Officially Happening 25 Years After Being Cut From 'The Lord of the Rings'
+
+Features, Stephen Colbert, The Lord of the Rings
+
+Wed, 25 Mar 2026 20:00:22 GMT
+
+https://movieweb.com/lord-of-the-rings-sequel-tom-bombadil/
+
+25 years after 'The Fellowship of the Ring', we'll see Tom Bombadil officially appear in Stephen Colbert's new 'Lord of the Rings' sequel.
+---------
+
 # How Talk To Me Actor's New 95% RT Movie Is More Than Just Another Horror-Thriller Explained By Leviticus Director & Star
 
 Movies, Leviticus, Horror, SXSW
