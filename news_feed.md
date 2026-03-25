@@ -1,3 +1,91 @@
+# Hannah Montana 20th Anniversary & The MPC Sample: Pop's Evolution
+
+Music, Hannah Montana, Miley Cyrus, Disney+, Selena Gomez, Pop
+
+Wed, 25 Mar 2026 09:30:26 GMT
+
+https://screenrant.com/hannah-montana-mpc-sample-death-perfect-pop/
+
+Discover how the Hannah Montana 20th anniversary special and the new Akai MPC Sample reveal a massive shift in modern pop music production.
+---------
+
+# Netflix’s Amazing 3-Part Sci-Fi Series Is So Good You Can Start With Any Movie
+
+Movie, Cloverfield, 10 Cloverfield Lane, The Cloverfield Paradox, J.J. Abrams
+
+Wed, 25 Mar 2026 09:39:12 GMT
+
+https://collider.com/netflix-sci-fi-cloverfield-series-jj-abrams-franchise/
+
+J.J. Abrams' Cloverfield franchise is the iconic sci-fi series that can begin with any film.
+---------
+
+# 8 Netflix Miniseries That Are 10/10 but Nobody Remembers
+
+TV, TV Miniseries, Netflix, Dracula, Archive 81
+
+Wed, 25 Mar 2026 09:34:23 GMT
+
+https://collider.com/perfect-netflix-miniseries-nobody-remembers/
+
+Dracula, Katla, Bodies, Archive 81, Pluto, Cassandra, Giri/Haji, and more make up our list of perfect Netflix miniseries nobody remembers.
+---------
+
+# 3 Years Later, ‘Rogue One' Director's Forgotten Sci-Fi Epic Is Trending Worldwide Again
+
+Movie News, The Creator, Sci-Fi, Gareth Edwards, Netflix
+
+Wed, 25 Mar 2026 09:30:23 GMT
+
+https://collider.com/rogue-one-director-gareth-edwards-the-creator-streaming-success-netflix-march-2026/
+
+Gareth Edwards' The Creator is suddenly a streaming hit again 3 years later, following suit with the massive success of Alan Ritchson's War Machine.
+---------
+
+# 30 Highest-Rated TV Episodes on IMDb, Ranked
+
+TV, Chernobyl, Better Call Saul, IMDb TV, Heated Rivalry
+
+Wed, 25 Mar 2026 09:24:21 GMT
+
+https://collider.com/highest-rated-tv-episodes-on-imdb/
+
+IMDb users have rated some TV episodes higher than others, including chapters from Breaking Bad, Game of Thrones, and the latest hit, Heated Rivalry.
+---------
+
+# 44 Years Later, Ridley Scott's Near-Perfect Neo Noir Is More Relevant Now Than When It Came Out
+
+Movie, Blade Runner, Harrison Ford, Ridley Scott, Sci-Fi
+
+Wed, 25 Mar 2026 09:08:12 GMT
+
+https://collider.com/blade-runner-44-years-later-ridley-scott-near-perfect-neo-noir-more-relevant-now/
+
+Ridley Scott’s Blade Runner is an iconic sci-fi masterpiece about Harrison Ford in a darkly relevant world where technology and police run rampant.
+---------
+
+# Ryan Gosling's Sci-Fi Masterpiece Obliterates His 2018 Space Cult Classic in Just 4 Days
+
+Movie News, Project Hail Mary, Ryan Gosling, First Man, Box Office
+
+Wed, 25 Mar 2026 09:00:13 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-overtakes-sci-fi-epic-first-man-box-office-140-million/
+
+Ryan Gosling's sci-fi movie Project Hail Mary has officially overtaken his 2018 hit First Man at the box office.
+---------
+
+# 'John Wick' Spin-off With Donnie Yen Starts Filming Next Month as New Details Confirmed
+
+Movie News, John Wick, Donnie Yen, Action, Thriller
+
+Wed, 25 Mar 2026 09:12:53 GMT
+
+https://movieweb.com/john-wick-donnie-yen-spin-off-filming/
+
+Director and star Donnie Yen promises that the spin-off will be the "most definitive martial arts action film ever made."
+---------
+
 # Warner Bros. Confirms New The Lord of the Rings Movie After The Hunt for Gollum
 
 Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
