@@ -1,3 +1,245 @@
+# There’s Officially 2 Weeks Left Until Prime Video Changes Forever
+
+Movies, Prime Video
+
+Wed, 25 Mar 2026 12:47:20 GMT
+
+https://screenrant.com/prime-video-ultra-change-amazon/
+
+Prime Video's newest update has big implications for some users of the streaming platform and how they can use it in the future overall.
+---------
+
+# Jujutsu Kaisen Season 3, Episode #12 Release Date and Time
+
+Anime, Jujutsu Kaisen
+
+Wed, 25 Mar 2026 12:16:55 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-3-episode-12-release-date-time/
+
+Jujutsu Kaisen Season 3 Part 1 is ending soon, featuring what could be the best anime fight of 2026. Here's what you need to know about episode 12.
+---------
+
+# GTA 6 Gameplay Preview Shows Off Truly Next-Gen Feature
+
+Gaming, Grand Theft Auto 6
+
+Wed, 25 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/gta-6-gameplay-preview-feature-glass-leak/
+
+A recent discovery has given fans a glimpse into a groundbreaking procedural breakable glass system in Grand Theft Auto VI.
+---------
+
+# New Breaking Bad Project Officially Releasing This Year With Dean Norris Returning
+
+TV, Breaking Bad, Dean Norris
+
+Wed, 25 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/breaking-bad-oral-history-book-dean-norris-2026-release/
+
+Dean Norris, who portrayed Hank Schrader, is returning with a brand-new Breaking Bad project that is set to be released later this year.
+---------
+
+# Gil Birmingham Was In A Better Taylor Sheridan Western 2 Years Before Yellowstone
+
+Movies, Hell or High Water, Yellowstone, Taylor Sheridan
+
+Wed, 25 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/gil-birmingham-hell-high-water-taylor-sheridan-western-better-yellowstone/
+
+Gil Birmingham is well-known for his role in Yellowstone, but he was in a better Taylor Sheridan western 2 years before the TV series.
+---------
+
+# Xbox Game Pass Subscribers Surprised With $40 Of Bonus Freebies
+
+Gaming, Xbox Game Pass, Triple-A Games, PC
+
+Wed, 25 Mar 2026 11:56:43 GMT
+
+https://screenrant.com/xbox-game-pass-40-dollars-free-dlc/
+
+Xbox Game Pass is about to get a whole lot better with the arrival of a bundle of content worth $40, though members will be able to play it for free.
+---------
+
+# New R-Rated Revenge Thriller Breaks All-Time Box Office Record After Just Five Days
+
+Movies, Dhurandhar, Box Office
+
+Wed, 25 Mar 2026 11:49:22 GMT
+
+https://screenrant.com/dhurandhar-the-revenge-box-office-best-bollywood-global-opening-record/
+
+A new R-rated revenge thriller breaks an all-time box office record after just five days of being in theaters.
+---------
+
+# PlayStation Plus April Free Games Lineup Just Took A Massive Hit
+
+Gaming, PlayStation Plus, PlayStation 5
+
+Wed, 25 Mar 2026 11:45:18 GMT
+
+https://screenrant.com/playstation-plus-april-2026-free-games-lineup/
+
+The April 2026 free games lineup PlayStation Plus just took a pretty big hit, with players preparing to say their goodbyes to a great game.
+---------
+
+# Shrinking Season 3, Episode 9 Recap: Jeff Daniels' Return Ruins Everything
+
+Streaming TV, Shrinking
+
+Wed, 25 Mar 2026 11:45:18 GMT
+
+https://screenrant.com/shrinking-season-3-episode-9-recap/
+
+Things were going pretty well for Jimmy in Shrinking season 3, but in episode 9, his father (played by Jeff Daniels) returns to ruin everything.
+---------
+
+# Mighty Morphin Power Rangers May Confirm The Green Ranger's Fate Ahead of Major Comeback
+
+Comics, Power Rangers, Mighty Morphin Power Rangers
+
+Wed, 25 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/mighty-morphin-power-rangers-green-ranger-major-comeback/
+
+Mighty Morphin Power Rangers fans just got a key piece of information about Tommy Oliver's upcoming return in the franchise's next major series.
+---------
+
+# The New Host of the Venom Symbiote Confronts Spider-Man Ahead of a Shocking Death
+
+Comics, Spider-Man
+
+Wed, 25 Mar 2026 11:49:38 GMT
+
+https://www.cbr.com/amazing-spider-man-23-review-symbiote-host-venom-revealed/
+
+In a CBR review of Amazing Spider-Man #23, see how Spider-Man and Venom have a confrontation ahead of a shocking death
+---------
+
+# This 10/10 Sci-Fi Thriller Is One of the Best Hidden Gem Binges You Haven’t Seen
+
+TV Features, Humans, Gemma Chan, William Hurt, Colin Morgan
+
+Wed, 25 Mar 2026 12:24:12 GMT
+
+https://collider.com/humans-best-sci-fi-thriller-prime-video/
+
+Humans considers the ramifications of AI in a world where human-like synthetics gain consciousness.
+---------
+
+# Peter Jackson Confirms New Lord of the Rings Movie Set After 'The Hunt for Gollum'
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Peter Jackson, Stephen Colbert, The Lord of the Rings
+
+Wed, 25 Mar 2026 12:00:39 GMT
+
+https://collider.com/new-lord-of-the-rings-movie-stephen-colbert-writing-based-on-fog-on-the-barrow-downs/
+
+Peter Jackson confirms new Lord of the Rings movie set after The Hunt for Gollum with Stephen Colbert co-writing.
+---------
+
+# Bob Dylan's 10 Best Love Songs, Ranked
+
+Music Features, Bob Dylan, Rock, A Complete Unknown, Timothée Chalamet
+
+Wed, 25 Mar 2026 11:58:12 GMT
+
+https://collider.com/bob-dylan-love-songs-best-ranked/
+
+Anyone who loves Bob Dylan should love his greatest romantic songs, like "Tangled Up in Blue," "Simple Twist of Fate" and "Simple Twist of Fate."
+---------
+
+# 10 Most Obvious Box Office Bombs of All Time, Ranked
+
+Movie, The Flash, Cutthroat Island, The Lone Ranger, TRON: Ares
+
+Wed, 25 Mar 2026 11:52:12 GMT
+
+https://collider.com/box-office-bombs-obvious-ranked/
+
+Anyone with a pair of eyes and half a brain knew that movies like The Lone Ranger, Tron: Ares, and The Flash were destined to bomb at the box office.
+---------
+
+# What To Remember From 'For All Mankind' Season 4 Before Apple TV's Sci-Fi Epic Returns
+
+TV Features, For All Mankind, Apple TV, Joel Kinnaman, Sci-Fi
+
+Wed, 25 Mar 2026 11:49:13 GMT
+
+https://collider.com/for-all-mankind-season-4-recap-before-season-5/
+
+Refresh your memory on the major plot points of For All Mankind Season 4 before diving into the new season premiering this Friday.
+---------
+
+# 10 Greatest 'Game of Thrones' Romances, Ranked by Chemistry
+
+TV, Game Of Thrones, HBO, Romance, Fantasy
+
+Wed, 25 Mar 2026 11:41:13 GMT
+
+https://collider.com/game-of-thrones-couples-chemistry-ranked/
+
+From Samwell Tarly and Gilly to Brienne of Tarth and Jaime Lannister, which Game of Thrones couple has the best chemistry in the HBO fantasy show?
+---------
+
+# 10 Greatest Epic Movie Masterpieces of All Time, Ranked
+
+Movie, Once Upon a Time in America, Apocalypse Now, Lawrence of Arabia, Gone with the Wind
+
+Wed, 25 Mar 2026 11:37:12 GMT
+
+https://collider.com/best-epic-movie-masterpieces-of-all-time-ranked/
+
+Once Upon a Time in America, Ben-Hur, and Gone With the Wind are all among the absolute best epic movie masterpieces ever made.
+---------
+
+# Screenwriter Steven Knight Drops Tantalizing Hints Regarding Bond 26
+
+Movie News, James Bond 26, Steven Knight
+
+Wed, 25 Mar 2026 12:49:45 GMT
+
+https://movieweb.com/james-bond-update-writer-steven-knight/
+
+Knight's latest comments should excite longtime fans.
+---------
+
+# HBO's 'Task' Just Became the Perfect 'True Detective' Replacement
+
+Features, Task
+
+Wed, 25 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/task-hbo-season-2-mahershala-ali/
+
+'Task,' the HBO crime thriller starring Mark Ruffalo and Tom Pelphrey, has added a talented new star to its Season 2 cast.
+---------
+
+# The R-Rated Violent Pirate Action Series 'Black Sails' Stops Streaming on Netflix in April 2026
+
+TV News, Black Sails, Netflix, Coming/Leaving Streaming, Action
+
+Wed, 25 Mar 2026 12:00:18 GMT
+
+https://movieweb.com/black-sails-leaving-streaming-netflix-april-2026-action/
+
+'Jericho' creators' R-rated, brutal pirate action series 'Black Sails' will no longer stream on Netflix from April 2026.
+---------
+
+# 'Spider-Man: Brand New Day' Trailer Becomes First to Cross 1 Billion Views
+
+Movie News, Spider-Man: Brand New Day, MCU
+
+Wed, 25 Mar 2026 11:42:54 GMT
+
+https://movieweb.com/spider-man-brand-new-day-trailer-billion-views/
+
+The 'Spider-Man: Brand New Day' trailer has become the first movie trailer ever to surpass one billion views – a milestone it reached in four days.
+---------
+
 # Cyberpunk 2077 Multiplayer Experience Finally Officially Real
 
 Gaming, Cyberpunk 2077
