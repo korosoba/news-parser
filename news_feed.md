@@ -1,3 +1,300 @@
+# Forgotten Island Creatives & Stars Hype Up The Next Stunning-Looking Film From DreamWorks
+
+Movies, Dreamworks, Forgotten Island
+
+Wed, 25 Mar 2026 21:31:11 GMT
+
+https://screenrant.com/forgotten-island-dreamworks-liza-soberano-her-sneak-peek/
+
+During a sneak peek at Forgotten Island, directors Joel Crawford and Januel Mercado join stars HER and Liza Soberano to tease an emotional epic.
+---------
+
+# This 10-Episode Sitcom Was So Bad, The Star ASKED For It To Be Canceled
+
+TV, Cheers, Frasier
+
+Wed, 25 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/hank-tv-sitcom-kelsey-grammer-asked-cancel/
+
+One sitcom was so bad that its own iconic star called up the network president and asked for it to be cancelled after a particularly terrible episode.
+---------
+
+# Prime Video's New Spy Thriller Is A Weekend Must-Watch (Now Trending Worldwide)
+
+Movies, Prime Video, Agent Zeta
+
+Wed, 25 Mar 2026 21:22:08 GMT
+
+https://screenrant.com/prime-video-agent-zeta-spy-thriller-must-watch/
+
+Prime Video has a new spy thriller that has already become a worldwide streaming hit in no time, and it is the perfect watch for the weekend.
+---------
+
+# Daredevil: Born Again Season 2 Ignites Matt Murdock & Bullseye's "Complicated Relationship" After Episode 1 Cliffhanger
+
+TV, Daredevil: Born Again, Daredevil: Born Again - Season 2, Daredevil
+
+Wed, 25 Mar 2026 21:20:52 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-matt-murdock-bullseye-relationship-charlie-cox/
+
+One year after the first-season finale, Daredevil: Born Again, but Matt Murdock & Bullseye’s relationship going forward will drastically change.
+---------
+
+# Harry Potter's Confirmed 2026 Release Is Officially Keeping A Franchise Tradition Alive
+
+Streaming TV, Harry Potter
+
+Wed, 25 Mar 2026 21:11:47 GMT
+
+https://screenrant.com/harry-potter-hbo-2026-release-christmas-tradition/
+
+The first look at the Harry Potter TV series has arrived, and among many great things, it confirms it's keeping a franchise tradition alive.
+---------
+
+# Lost Star's Rare Transformation Into Villain Role Explained By He Bled Neon Director & Cast
+
+Movies, He Bled Neon, SXSW
+
+Wed, 25 Mar 2026 21:08:23 GMT
+
+https://screenrant.com/josh-holloway-he-bled-neon-villain-transformation-cast-director-composer-sxsw/
+
+Lost alum Josh Holloway talks his rare transformation into a full-on villain role for the new drama He Bled Neon, alongside his co-stars and director.
+---------
+
+# Resident Evil Leaker Reveals Another Remake On The Table
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Wed, 25 Mar 2026 21:00:39 GMT
+
+https://screenrant.com/resident-evil-revelations-remake-capcom/
+
+Resident Evil remake rumors just keep multiplying, and the latest brings a totally different but equally promising game into the conversation.
+---------
+
+# 10 Years Ago Today, Zack Snyder Released The Movie That Changed DC Forever
+
+Classic Movies, Batman v Superman: Dawn of Justice, Explainer
+
+Wed, 25 Mar 2026 21:00:18 GMT
+
+https://screenrant.com/batman-vs-superman-dawn-of-justice-zack-snyder-10-year-anniversary/
+
+It has been 10 years since Zack Snyder delivered someone that the DC movie world had been waiting on for decades, but it marked the start of his end.
+---------
+
+# From Humor to Heartbreak: How Orange Is The New Black Revolutionized Netflix Comedy
+
+Classic TV, Orange is The New Black
+
+Wed, 25 Mar 2026 21:00:18 GMT
+
+https://screenrant.com/orange-is-the-new-black-netflix-first-original-comedy-aged-best/
+
+There's now an abundance of great original comedy on Netflix, but the streaming platform's first foray into the genre is still its best.
+---------
+
+# Xbox Dropping Massive Free Open-World Survival RPG, No Game Pass Needed
+
+Gaming, Xbox Series X/S, PC, Triple-A Games, Live Service Games, Xbox Game Pass, Once Human
+
+Wed, 25 Mar 2026 21:00:18 GMT
+
+https://screenrant.com/xbox-free-open-world-rpg-no-game-pass/
+
+Most freebies on Xbox are locked behind Game Pass, but this new open-world survival RPG will be free for all players, starting pretty soon.
+---------
+
+# 10 Movies That Aren’t Worth Watching Again After You Know Their Twist
+
+Movies, The Village, Indiana Jones and the Kingdom of the Crystal Skull
+
+Wed, 25 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/movie-ruined-after-spoiling-twists/
+
+Once these films' twists are ruined, they're significantly less enjoyable to watch.
+---------
+
+# MGM+ Finally Sets Release Window for Kit Harington's A Tale of Two Cities
+
+TV, bbc
+
+Wed, 25 Mar 2026 21:18:31 GMT
+
+https://www.cbr.com/kit-harington-a-tale-of-two-cities-mgm-plus-release-date/
+
+MGM's hotly-anticipated adaptation of a beloved literary classic finally has a release window, and fans finally have their first look.
+---------
+
+# A Silent Hill Anime Is Something I Never Knew I Needed Until Today
+
+Anime, Silent Hill, Silent Hill f, Manga
+
+Wed, 25 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/silent-hill-f-manga-adaptation-announcement/
+
+Silent Hill f’s new manga series is a huge win for the horror genre that raises the question of why there hasn’t been a Silent Hill anime already.
+---------
+
+# NCIS’s 500th Episode Kills Its Biggest Character in 23 Years
+
+TV, NCIS, CBS
+
+Wed, 25 Mar 2026 21:00:29 GMT
+
+https://www.cbr.com/ncis-season-23-kills-director-leon-vance-rocky-carroll-exit/
+
+NCIS's 500th episode permanently alters CBS's Navy procedural franchise, ushering in the biggest change since Leroy Jethro Gibbs' departure.
+---------
+
+# The Office Resurfaces as Streaming Hit on Digital 25 Years Later
+
+TV, The Office
+
+Wed, 25 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/the-office-original-sitcom-pvod-success-march-2026/
+
+Rarely has there been anything as influential as this sitcom.
+---------
+
+# The Next Lord of the Rings Movie Fixes The Original Trilogy's Tom Bombadil Problem
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Fantasy
+
+Wed, 25 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-spinoff-movie-fixes-trilogy-problem-tom-bombadil/
+
+There's a new Lord of the Rings spin-off movie on the way, and it will solve the biggest issue with Peter Jackson's original trilogy.
+---------
+
+# Alan Ritchson's 107-Minute Netflix Thriller Is Officially Using the Aliens Blueprint for Its Sequel
+
+Movies, War Machine, Netflix
+
+Wed, 25 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/alan-ritchson-netflix-war-machine-aliens-blueprint-for-sequel/
+
+War Machine has been an enormous hit on Netflix, and a more expansive sequel inspired by James Cameron's 1986 masterpiece may soon be on the table.
+---------
+
+# Kevin Costner Lines Up First Movie Role Since Horizon
+
+Movies, kevin costner, Honeymoon with Harry
+
+Wed, 25 Mar 2026 20:49:58 GMT
+
+https://www.cbr.com/kevin-costner-honeymoon-with-harry-filming-start/
+
+Kevin Costner rides off into the sunset by taking on a new movie role, leaving the Horizon series in the dust.
+---------
+
+# Taika Waititi Talks Video Games and Brawl Stars in Exclusive Interview
+
+CBR Exclusives, taika waititi, Clash of Clans
+
+Wed, 25 Mar 2026 20:45:12 GMT
+
+https://www.cbr.com/taika-waititi-exclusive-interviewvideo-games-brawl-stars/
+
+Academy Award-winning director and writer of the latest Brawl Stars animated short Taika Waititi opens up about gaming, cinema, and irreverent humor
+---------
+
+# Dragon Ball Z Finally Revives 1 of Broly's Strongest Attacks
+
+Anime, Dragon Ball, merchandise, Dragon Ball Z: Broly - Second Coming
+
+Wed, 25 Mar 2026 20:33:13 GMT
+
+https://www.cbr.com/dbz-broly-omega-blaster-banpresto-release/
+
+The iconic attack is making a comeback after it was overlooked in the canon Dragon Ball Super: Broly movie.
+---------
+
+# All 4 Tom Hanks War Movies, Ranked
+
+Movie, Tom Hanks, Bridge of Spies, Saving Private Ryan, Forrest Gump
+
+Wed, 25 Mar 2026 21:29:12 GMT
+
+https://collider.com/tom-hanks-war-movies-ranked/
+
+Two-time Oscar winner Tom Hanks has a few war movies under his belt, including the classic Saving Private Ryan and Greyhound, but which is the best?
+---------
+
+# A Criminally Overlooked 4-Part ‘90s Sci-Fi Series Leaves Streaming Soon
+
+TV News, Tubi, Men in Black: The Series, Sci-Fi, Animation
+
+Wed, 25 Mar 2026 21:20:13 GMT
+
+https://collider.com/men-in-black-the-series-sci-fi-spin-off-leaving-streaming-tubi-april-2026/
+
+A cult ‘90s sci-fi favorite faces a quiet streaming exit, making its already rare availability even harder to access now.
+---------
+
+# The Greatest Sci-Fi Western Saga Ever Told Is Officially Dominating Streaming Again
+
+TV News, Westworld, HBO, Anthony Hopkins, Sci-Fi
+
+Wed, 25 Mar 2026 21:00:13 GMT
+
+https://collider.com/fallout-executive-producers-jonathan-nolan-lisa-joy-sci-fi-series-westworld-streaming-success-apple-tv-march-2026/
+
+After being cancelled far too soon, Westworld is once again finding an audience after the sci-fi Western was kicked to the curb by HBO.
+---------
+
+# Only 3 Horror Movies Are Scarier Than 'The Exorcist'
+
+Movie, The Exorcist, The Shining, Lake Mungo, Hereditary
+
+Wed, 25 Mar 2026 20:54:12 GMT
+
+https://collider.com/horror-movies-scarier-than-the-exorcist/
+
+There are only a few movies that might be scarier than The Exorcist: Lake Mungo, The Shining, and Hereditary, all being must-watches for horror fans.
+---------
+
+# HBO Exec Doubts 'Harry Potter' Reboot Series Will Release New Seasons Annually
+
+TV News, Harry Potter, HBO Max
+
+Wed, 25 Mar 2026 21:08:05 GMT
+
+https://movieweb.com/harry-potter-reboot-season-2-timeline/
+
+The sprawling nature of the series means the filmmakers will take their time bringing it to life.
+---------
+
+# 'Bait': Prime Video's New Action Thriller Takes a Unique Approach to James Bond
+
+Features, Bait, James Bond
+
+Wed, 25 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/prime-videos-bait-james-bond/
+
+He's not quite James Bond, but he certainly wants to be. Prime Video's new action thriller is the perfect, fun-loving replacement.
+---------
+
+# Before 'Project Hail Mary,' Ridley Scott Made the Unbeatable Hard Sci-Fi Classic 'The Martian'
+
+Features, The Martian, Project Hail Mary, Streaming Recommendations
+
+Wed, 25 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/project-hail-mary-ridley-scott-the-martian/
+
+Before Ryan Gosling went to deep space, Matt Damon tried to escape from it in Ridley Scott's classic 2015 movie.
+---------
+
 # Iliza Shlesinger's Chasing Summer Blends Comedy With Emotional Depth
 
 Movies, Iliza Shlesinger, Chasing Summer, SXSW
