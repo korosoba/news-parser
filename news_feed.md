@@ -1,3 +1,300 @@
+# Sarah Michelle Gellar Officially Joins First New Project After Buffy The Vampire Slayer Sequel's Abrupt Cancellation
+
+Movies, Sarah Michelle Gellar, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Wed, 25 Mar 2026 22:17:25 GMT
+
+https://screenrant.com/sarah-michelle-gellar-stop-that-train-movie-after-buffy-cancellation/
+
+After Hulu made the shocking decision to cancel the Buffy the Vampire Slayer sequel, Sarah Michelle Gellar has been cast in a new project.
+---------
+
+# Alan Ritchson Addresses "Crazy Week" After Fight With Neighbor As Reacher Season 4 Hits Final Stages
+
+TV, Reacher
+
+Wed, 25 Mar 2026 22:10:43 GMT
+
+https://screenrant.com/reacher-season-4-post-production-wrapped-alan-ritchson/
+
+Alan Ritchson addresses his "crazy week" following a physical altercation with a neighbor, as Reacher season 4 moves into its final stages.
+---------
+
+# 10 Best Home Entertainment Deals in Amazon's Big Spring Sale (Before They Sell Out)
+
+Streaming TV, Amazon
+
+Wed, 25 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/best-home-entertainment-deals-amazon-big-spring-sale-2026/
+
+Amazon is having a big sale from March 25 to March 31, and there are lots of awesome home entertainment products available at huge discounts.
+---------
+
+# X-Men's Gambit Officially Identifies As an Addict in Marvel Lore
+
+Comics, X-Men, Gambit
+
+Wed, 25 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/x-men-gambit-alcoholism-addiction/
+
+An X-Men icon just came clean about something big.
+---------
+
+# GTA 5 Trevor Actor Responds To His Unexpected GTA Online Appearance
+
+Gaming, Grand Theft Auto 5, Grand Theft Auto Online, Grand Theft Auto, Triple-A Games, PC
+
+Wed, 25 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/gta-online-trevor-return-steven-ogg-response/
+
+If you've played Grand Theft Auto Online, you might actually know more about Trevor's appearance than the man who performed the role himself.
+---------
+
+# 6 Brand New HBO Harry Potter Scenes That Were Not In The Sorcerer's Stone Movie
+
+Streaming TV, Harry Potter
+
+Wed, 25 Mar 2026 21:58:56 GMT
+
+https://screenrant.com/harry-potter-hbo-trailer-scenes-not-in-sorcerers-stone-movie/
+
+HBO is already proving that its Harry Potter TV show won't simply remake the movies. The 2-minute clip alone comes with several brand-new scenes.
+---------
+
+# Alan Ruck Details Dean Riggs' Near-Fatal Health Scare In Rooster Episode 3
+
+TV, Alan Ruck, Rooster, HBO
+
+Wed, 25 Mar 2026 21:51:44 GMT
+
+https://screenrant.com/rooster-episode-3-alan-ruck-interview-dean-riggs-health-scare/
+
+Alan Ruck opens up about the factors behind Dean Riggs' near-fatal heart attack in Rooster Episode 3, teasing his character's future on the HBO comedy series.
+---------
+
+# Netflix’s 8-Part Crime Thriller Series Is An Easy One-Night Weekend Binge
+
+Streaming TV, Netflix, The Woman in the House Across the Street from the Girl in the Window
+
+Wed, 25 Mar 2026 21:38:18 GMT
+
+https://screenrant.com/netflix-the-woman-in-the-house-across-the-street-series-watch/
+
+Discover the satirical & parodic elements in Netflix's 8-part crime thriller series starring Kristen Bell, perfect for a quick one-night binge-watch.
+---------
+
+# Stephen King's It Supercut Gets Update From Andy Muschietti
+
+Movies, It, It Chapter Two, Stephen King
+
+Wed, 25 Mar 2026 22:15:21 GMT
+
+https://www.cbr.com/stephen-king-it-supercut-update/
+
+The long-gestating supercut of Stephen King's highest-grossing adaptation finally gets an official update.
+---------
+
+# 5 Reasons Solo Leveling Is More Than Just Hype
+
+Anime, Solo Leveling
+
+Wed, 25 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/solo-leveling-reasons-worth-hype/
+
+While it may not be very obvious, Solo Leveling stands out for reasons that go beyond flashy action and viral buzz.
+---------
+
+# Nintendo Officially Reveals Switch 2 Pricing Change Starting May 2026
+
+Games, Nintendo, Nintendo Switch
+
+Wed, 25 Mar 2026 22:02:12 GMT
+
+https://www.cbr.com/nintendo-switch-2-price-change-may-2026/
+
+Nintendo has announced an upcoming Switch 2 pricing change that will officially start this May.
+---------
+
+# Peaky Blinders: The Immortal Man Has Netflix's Third-Best Release of 2026
+
+Movies, Peaky Blinders, Peaky Blinders: The Immortal Man, Netflix
+
+Wed, 25 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/cillian-murphy-peaky-blinders-the-immortal-man-netflix-success-march-2026/
+
+Cillian Murphy's Peaky Blinders: The Immortal Man becomes Netflix's third-best release of 2026, with 25.3 million views globally.
+---------
+
+# Project Hail Mary Fans Must Watch Ryan Gosling in an Underrated Francis Ford Coppola Doc
+
+Movies, ryan gosling, Megadoc, Project Hail Mary
+
+Wed, 25 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-ryan-gosling-megadoc-must-watch/
+
+Ryan Gosling has always been tied to great projects, but his connection ot a successful Francis Ford Coppola doc is an underseen must-watch.
+---------
+
+# 10 Unforgettable Fantasy Shows From TV’s Golden Age
+
+TV, Game Of Thrones, Fantasy, Avatar: The Last Airbender, Supernatural
+
+Wed, 25 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/best-fantasy-shows-tv-golden-age-list/
+
+The first two decades of this century have produced fantasy shows that will be difficult to top.
+---------
+
+# This 1 Beth Dutton Line Has Me Even More Excited About the Next Yellowstone Spinoff
+
+TV, Yellowstone, Dutton Ranch, Western
+
+Wed, 25 Mar 2026 21:56:13 GMT
+
+https://www.cbr.com/beth-dutton-quote-has-me-excited-yellowstone-spin-off-dutton-ranch/
+
+Beth Dutton and Rip Wheeler are set to return in their own spin-off series--and I'm excited to see how it expands on this line from Yellowstone.
+---------
+
+# Taylor Sheridan's Lioness Finally Gets a Season 3 Update
+
+TV, Lioness
+
+Wed, 25 Mar 2026 21:55:16 GMT
+
+https://www.cbr.com/lioness-season-3-filming-wrap/
+
+The underappreciated Taylor Sheridan series gets a long-awaited update on its return to Paramount+.
+---------
+
+# 10 Years Later, Zack Snyder's Ruthless Batman Film Has Only Made Superhero Movies Worse
+
+Movie Features, Batman v Superman: Dawn of Justice, Ben Affleck, Henry Cavill, Zack Snyder
+
+Wed, 25 Mar 2026 22:23:12 GMT
+
+https://collider.com/batman-v-superman-dawn-of-justice-superhero-movies-legacy/
+
+10 years after the release of Zack Snyder’s Batman v Superman: Dawn of Justice, superhero films have learned the wrong lessons from it.
+---------
+
+# Netflix's Hit 21-Book Series Made a Colossal Plot Change and Angered Its Star
+
+TV News, Virgin River, Martin Henderson, Netflix, Drama
+
+Wed, 25 Mar 2026 22:20:12 GMT
+
+https://collider.com/virgin-river-season-5-mel-miscarriage-storyline-response-martin-henderson/
+
+Virgin River star Martin Henderson reveals he did not support a heartbreaking storyline for Mel and Jack in Season 5. Read on for more details.
+---------
+
+# New 'Breaking Bad' Project Officially Confirmed for 2026 With Dean Norris Returning
+
+TV News, Breaking Bad, Dean Norris, Vince Gilligan, Bryan Cranston
+
+Wed, 25 Mar 2026 22:09:29 GMT
+
+https://collider.com/breaking-bad-new-project-dean-norris-returning-release-date-november-2026/
+
+Breaking Bad star Dean Norris is officially revisiting the franchise with a brand-new project due out in November 2026.
+---------
+
+# Crunchyroll's Surging 12-Part Sleeper Hit Anime Could Get Season 2 on This Condition
+
+Exclusives, Animation, Tamon's B-Side, Anime, Crunchyroll
+
+Wed, 25 Mar 2026 22:00:12 GMT
+
+https://collider.com/crunchyroll-tamons-b-side-season-2-creators-comment/
+
+The creators share their hopes for a Season 2, reveal the biggest changes from the manga to anime adaptation, and discuss character development.
+---------
+
+# Tom Hanks' WWII Masterpiece Is Officially Taking Over the World Again
+
+Movie News, Tom Hanks, Greyhound, Apple TV, Aaron Schneider
+
+Wed, 25 Mar 2026 22:00:12 GMT
+
+https://collider.com/tom-hanks-modern-cult-classic-ww2-thriller-greyhound-streaming-success-apple-tv-march-2026/
+
+With a sequel officially gaining momentum, Tom Hanks' WWII epic Greyhound is building a following once again on Apple TV 6 years later.
+---------
+
+# 10 Best World War II Books, Ranked
+
+Movie, World War II, Books, Catch-22, The Winds of War
+
+Wed, 25 Mar 2026 21:51:12 GMT
+
+https://collider.com/best-world-war-ii-books-ranked/
+
+The best books about World War II include works of non-fiction like Man's Search for Meaning alongside post-modern novels like Gravity's Rainbow.
+---------
+
+# 1 Year Later, Guy Ritchie's Most Divisive Adventure Movie Is Trending Worldwide Again
+
+Movie News, Guy Ritchie, Fountain of Youth, Adventure, Apple TV
+
+Wed, 25 Mar 2026 21:40:12 GMT
+
+https://collider.com/fountain-of-youth-guy-ritchie-adventure-movie-indiana-jones-replacement-global-streaming-success-apple-tv-march-2026/
+
+Fountain of Youth, Guy Ritchie’s big-budget Apple TV adventure movie, continues to perform strongly on the global streaming charts.
+---------
+
+# 'Masters of the Universe' Promo Art Reveals Morena Baccarin as Sorceress & More
+
+Movie News, Masters of the Universe
+
+Wed, 25 Mar 2026 22:04:40 GMT
+
+https://movieweb.com/masters-of-the-universe-promo-art/
+
+Thanks to new merchandise, we have our best look yet at some live-action 'Masters of the Universe' heroes and villains.
+---------
+
+# These 7 Rumored 'Star Trek' Shows Could Save the Franchise After 'Starfleet Academy's Cancelation
+
+Features, Star Trek, Star Trek: Starfleet Academy
+
+Wed, 25 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/rumored-star-trek-shows/
+
+'Starfleet Academy' will now end after Season 2, making it unclear what's in store for 'Star Trek's future. There are options, though.
+---------
+
+# 'Harry Potter' First Look Images Showcase Severus Snape, Dumbledore & More Characters
+
+TV News, Harry Potter, Fantasy, HBO Max
+
+Wed, 25 Mar 2026 21:44:14 GMT
+
+https://movieweb.com/harry-potter-images-first-look/
+
+First-look images of Harry, Ron, Hermione, Dumbledore, Hagrid, Snape, Draco, and more!
+---------
+
+# 'Unchosen' Trailer Teases Netflix Cult Thriller
+
+TV News, Netflix
+
+Wed, 25 Mar 2026 21:41:26 GMT
+
+https://movieweb.com/unchosen-trailer-netflix/
+
+The latest romance drama series from Netflix is based on the research of real life cults.
+---------
+
 # Forgotten Island Creatives & Stars Hype Up The Next Stunning-Looking Film From DreamWorks
 
 Movies, Dreamworks, Forgotten Island
