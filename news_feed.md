@@ -1,3 +1,256 @@
+# Is David The Killer In Imperfect Women? What We Know About The Murder Suspect So Far
+
+Streaming TV, Imperfect Women
+
+Wed, 25 Mar 2026 15:30:18 GMT
+
+https://screenrant.com/imperfect-women-who-is-killer-david-murder-suspect-explained/
+
+Imperfect Women has introduced a handful of suspects, but so far, the signs seem to point to David. Here is what the Apple TV show has revealed.
+---------
+
+# Marvel Finally Explains Daredevil: Born Again’s Title
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 25 Mar 2026 15:30:18 GMT
+
+https://screenrant.com/marvel-daredevil-born-again-title-explained/
+
+Daredevil: Born Again's title has been a point of confusion since it was announced, but Marvel has finally explained the meaning behind it.
+---------
+
+# Charlie Hunnam & Titus Welliver's Gritty Crime Series Quietly Returns As American Streaming Hit After 12 Years
+
+TV, Sons of Anarchy
+
+Wed, 25 Mar 2026 15:21:35 GMT
+
+https://screenrant.com/charlie-hunnam-sons-of-anarchy-apple-tv-vod-streaming-success-march-2026/
+
+A star-studded crime series featuring Titus Welliver has found new life on streaming, quietly resurging to become a hit in the United States again.
+---------
+
+# Disney's New Remake Of Iconic 43-Year-Old Western Series Is Now A Worldwide Streaming Smash (But There's A Catch)
+
+TV, Lucky Luke, Disney+, Disney, Western
+
+Wed, 25 Mar 2026 15:20:10 GMT
+
+https://screenrant.com/lucky-luke-western-remake-streaming-success-march-2026/
+
+Disney's new remake of an iconic 43-year-old Western series is now a worldwide streaming smash, but with one notable catch.
+---------
+
+# DreamWorks New Epic Fantasy Adventure Movie Revealed In Forgotten Island Trailer
+
+Movies, Dreamworks
+
+Wed, 25 Mar 2026 15:16:35 GMT
+
+https://screenrant.com/forgotten-island-movie-trailer-dreamworks/
+
+DreamWorks releases the first trailer for Forgotten Island.
+---------
+
+# St. Denis Medical: NBC's Underrated Medical Mockumentary Heads to Netflix
+
+Streaming TV, St. Denis Medical, Schitt's Creek
+
+Wed, 25 Mar 2026 15:01:20 GMT
+
+https://screenrant.com/st-denis-medical-netflix-streaming-next-schitts-creek/
+
+Discover NBC’s sharp medical mockumentary with two seasons and a third on the way, primed for a Netflix boost similar to Schitt's Creek's success.
+---------
+
+# Top 10 Universally Regarded Best TV Shows of All Time
+
+Classic TV
+
+Wed, 25 Mar 2026 14:57:19 GMT
+
+https://screenrant.com/tv-shows-best-all-time-everyone-agree/
+
+The debate around the best TV show of all time is ultimately subjective, but there's still an overwhelming consensus around these 10 shows.
+---------
+
+# Avengers and X-Men Combine into Most Powerful Comic Team of All Time
+
+Comics, The Avengers, X-Men
+
+Wed, 25 Mar 2026 14:48:13 GMT
+
+https://screenrant.com/avengers-x-men-marvel-strongest-team-odin/
+
+Marvel is officially introducing the most powerful Avengers roster of all time, including A-list X-Men characters like Cyclops, Wolverine and more.
+---------
+
+# Spider-Man: Brand New Day Paves The Way For A Dream Showdown The Comics Never Gave Us
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 25 Mar 2026 14:45:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-man-spider-vs-hulk-fight-possibility/
+
+Various plot details for Spider-Man: Brand New Day open the door for a dream showdown between two Marvel characters to happen on the big screen.
+---------
+
+# 10 Best Classic Rock Live Albums With No Bad Songs
+
+Music, Classic Rock, The Allman Brothers Band: Live at the Beacon Theatre, Nirvana, The Who, Rock
+
+Wed, 25 Mar 2026 14:30:18 GMT
+
+https://screenrant.com/best-classic-rock-live-albums-no-bad-songs/
+
+Stop skipping tracks. These 10 legendary live albums, from The Who to The Allman Brothers, are perfect from the first note to the last.
+---------
+
+# Hot Wheels Reveals First Look at New Naruto Nissan Silvia S15 Collector Car
+
+Anime, Naruto, Hot Wheels, collectibles, merchandise
+
+Wed, 25 Mar 2026 15:20:13 GMT
+
+https://www.cbr.com/hot-wheels-naruto-nissan-silvia-model/
+
+Hot Wheels has embraced the Itasha subculture with its new Naruto design model.
+---------
+
+# 10 Best Transformers Introduced After The G1 Era
+
+Anime, Transformers
+
+Wed, 25 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/best-transformers-since-g1-era/
+
+The Transformers G1 era is still a high point for longtime fans, yet the franchise managed to introduce even more legendary icons in the eras since.
+---------
+
+# The 5 Most Useless Zelda Characters, Officially Ranked
+
+Games, The Legend of Zelda, Nintendo
+
+Wed, 25 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/most-useless-zelda-characters-officially-ranked/
+
+Zelda characters like Navi give Tingle a good name.
+---------
+
+# Apple TV's 2-Part Sci-Fi Blockbuster Is Officially Taking Over the World
+
+TV News, Monarch: Legacy of Monsters, Apple TV, streaming, Sci-Fi
+
+Wed, 25 Mar 2026 15:04:30 GMT
+
+https://collider.com/monarch-season-2-global-streaming-success-apple-tv-march-2026/
+
+Apple TV’s 2-part sci-fi blockbuster is officially taking over the world on global streaming charts.
+---------
+
+# Tom Hardy's Planned ‘Peaky Blinders’ Return Confirmed by Creator
+
+Movie News, Peaky Blinders: The Immortal Man, Peaky Blinders, Tom Hardy, Cillian Murphy
+
+Wed, 25 Mar 2026 15:03:39 GMT
+
+https://collider.com/tom-hardy-peaky-blinders-the-immortal-man-scrapped-cameo-explained-steven-knight/
+
+Peaky Blinders’ creator Steven Knight details the scrapped Tom Hardy cameo in the new movie, The Immortal Man.
+---------
+
+# 40+ Years Later, The First Ever CGI Character in Film History Is Coming to Paramount+
+
+Movie News, Young Sherlock, Young Sherlock Holmes, Paramount Plus, Streaming
+
+Wed, 25 Mar 2026 15:00:29 GMT
+
+https://collider.com/first-computer-generated-character-history-young-sherlock-holmes-movie-streaming-paramount-plus-april-2026/
+
+Paramount+ has set an April streaming date for the Young Sherlock Holmes movie that changed movie history forever.
+---------
+
+# Netflix's New 'Peaky Blinders' Release Earns Staggering 25.3M Views in Just 3 Days
+
+Movie News, Peaky Blinders: The Immortal Man, Peaky Blinders, Netflix, War Machine
+
+Wed, 25 Mar 2026 14:56:27 GMT
+
+https://collider.com/peaky-blinders-the-immortal-man-streaming-success-25-3-million-views-3-days-netflix/
+
+Peaky Blinders: The Immortal Man debuted on Netflix to over 25 million views in just three days, following a select theatrical run.
+---------
+
+# Hulu's Near Perfect Sci-Fi Thriller Is Officially Starting Season 3 Production
+
+TV News, Paradise, Dan Fogelman, Sterling K. Brown, Hulu
+
+Wed, 25 Mar 2026 14:42:05 GMT
+
+https://collider.com/paradise-season-2-cliffhanger-season-3-update-dan-fogelman/
+
+Paradise’s creator, Dan Fogelman, confirms progress on Season 3 following Season 2’s shocking cliffhanger.
+---------
+
+# 'A Tale of Two Cities' First Look Reveals Kit Harington in MGM+ Series
+
+TV News, Kit Harington, History, Drama
+
+Wed, 25 Mar 2026 15:35:35 GMT
+
+https://movieweb.com/kit-harington-tale-two-cities-first-look/
+
+It was the best of times, etc.
+---------
+
+# Oliver Stone Returns To Direct Josh Hartnett in Intimate Epic 'White Lies'
+
+Movie News, Oliver Stone, JFK, Snowden, The Untold History Of The United States, Josh Hartnett
+
+Wed, 25 Mar 2026 15:27:48 GMT
+
+https://movieweb.com/oliver-stone-josh-hartnett-white-lies/
+
+A decade later, 'Snowden' director Oliver Stone has returned to direct a new film starring Josh Hartnett.
+---------
+
+# 'Three's Company' Cast: Where They Are Now and Who Passed Away
+
+TV Lists, Three's Company
+
+Wed, 25 Mar 2026 15:00:17 GMT
+
+https://movieweb.com/threes-company-cast-now-who-passed-away/
+
+Running for eight seasons, here's where the 'Three's Company' cast are today, and which of them sadly aren't with us anymore.
+---------
+
+# Prime Video Sets 'Monstress' Animated Series Adaptation From Former 'One Piece' Showrunner
+
+TV News, Prime Video
+
+Wed, 25 Mar 2026 14:21:18 GMT
+
+https://movieweb.com/prime-video-monstress-animated-series/
+
+Amazon MGM Studios is officially working on an adaptation of the 'Monstress' comic book series.
+---------
+
+# 'Daredevil: Born Again' Season 2 Rotten Tomatoes Score Revealed
+
+TV News, Daredevil: Born Again, Daredevil, Disney+
+
+Wed, 25 Mar 2026 14:15:49 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-rotten-tomatoes-score/
+
+'Daredevil: Born Again' Season 2 has debuted to strong acclaim, leading to a significantly higher Rotten Tomatoes audience score than the Netflix era.
+---------
+
 # Gravity Falls: A Disney Animated Show Worthy Of A Reboot
 
 Classic TV, Gravity Falls
