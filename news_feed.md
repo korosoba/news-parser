@@ -1,3 +1,168 @@
+# After 48 Years, DC Is Officially Rebooting Justice League Icon Firestorm
+
+Comics, Justice League
+
+Wed, 25 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/firestorm-origin-change-new-series/
+
+The fire still burns.
+---------
+
+# Lord Of The Rings: Age Of The Ring Is The Best RPG You've Never Played
+
+Gaming, The Lord of the Rings, PC
+
+Wed, 25 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/lord-of-the-rings-age-of-ring-rpg-unofficial/
+
+The Lord of the Rings: Age of the Ring is a complete hidden gem RPG that fans of the franchise have probably never heard of or played.
+---------
+
+# The Big Bang Theory Actor's New Role Is The Dark Version Of Howard
+
+Streaming TV, The Audacity, The Big Bang Theory
+
+Wed, 25 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/the-big-bang-theory-simon-helberg-audacity-character/
+
+The Big Bang Theory actor Simon Helberg has a new role in an upcoming TV show, where he plays the dark version of Howard.
+---------
+
+# 40 Years Later, This Friday The 13th Movie is Still The Franchise's Best
+
+Movies, Friday the 13th, Friday the 13th Part VI: Jason Lives
+
+Wed, 25 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/best-friday-the-13th-movie-jason-lives/
+
+The best film in the Friday the 13th franchise is hitting its 40th anniversary, and its unique voice makes it hold up today.
+---------
+
+# How Daniel Diemer's In My Blood Blends Sports And Psychological Horror
+
+Movies, Daniel Diemer, SXSW
+
+Wed, 25 Mar 2026 22:53:34 GMT
+
+https://screenrant.com/in-my-blood-movie-black-swan-follow-up-alex-bendo-daniel-diemer-sxsw/
+
+Percy Jackson star Daniel Diemer steps into a chilling new role in In My Blood, a short film that blends the worlds of sports and psychological horror, drawing inspiration from Natalie Portman's 2006 classic, Black Swan.
+---------
+
+# 10 Best PlayStation Spring Sale 2026 Deals
+
+Gaming, PlayStation 5, Triple-A Games
+
+Wed, 25 Mar 2026 22:51:58 GMT
+
+https://screenrant.com/playstation-spring-sale-2026-best-deals-discounts/
+
+Spring is finally here (in the Northern Hemisphere at least), and PlayStation is celebrating the seasonal change with its annual Spring Sale.
+---------
+
+# Apple TV's New Psychological Thriller Officially Flips Kerry Washington's Most Famous Role
+
+Streaming TV, Apple TV, Imperfect Women, Scandal
+
+Wed, 25 Mar 2026 22:45:20 GMT
+
+https://screenrant.com/apple-tv-imperfect-women-scandal-kerry-washington-flipped-role/
+
+Things get messy for Kerry Washington's Eleanor in Imperfect Women, leading to a moment that flips the actor's most famous role.
+---------
+
+# HBO Max’s 2-Season Crime Thriller Is Quietly One Of Its Best Shows To Binge
+
+Streaming TV, HBO Max, Tokyo Vice
+
+Wed, 25 Mar 2026 22:43:18 GMT
+
+https://screenrant.com/hbo-max-tokyo-vice-series-binge-watch/
+
+HBO Max's original Tokyo Vice, with a 91% audience score and intense storytelling, is a 2-season series that is a must-watch for crime drama fans.
+---------
+
+# Netflix's New 4-Part Dinosaur Series With Rare Perfect Rotten Tomatoes Score Is The Ideal One-Night Weekend Binge
+
+TV, Netflix, The Dinosaurs
+
+Wed, 25 Mar 2026 22:35:24 GMT
+
+https://screenrant.com/the-dinosaurs-netflix-series-must-watch/
+
+Netflix's new dinosaur series is one of the streaming service's best releases of 2026, with a perfect Rotten Tomatoes score, and it's the ideal binge.
+---------
+
+# Prime Video's 7-Part Crime Thriller Series Was Their Reacher Long Before Alan Ritchson Was Cast
+
+TV, Reacher, Bosch
+
+Wed, 25 Mar 2026 22:31:19 GMT
+
+https://screenrant.com/prime-video-bosch-crime-series-anthology-before-reacher/
+
+One iconic crime show was such a huge success for Prime Video that the streaming service reused its formula for Alan Ritchson's massive hit Reacher.
+---------
+
+# 10 1960s Crime Movies To Stream That Capture The Magic of Peaky Blinders: The Immortal Man
+
+Movies, Peaky Blinders: The Immortal Man, Crime
+
+Wed, 25 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/1960s-crime-movies-like-peaky-blinders-immortal-man-list/
+
+Peaky Blinders: The Immortal Man is a unique crime film that captures the tone of many amazing '60s crime classics.
+---------
+
+# Prime Video’s 100% RT Hit Just Beat a New Crime Series at Its Own Game
+
+TV Features, Young Sherlock, Invincible, Prime Video, Guy Ritchie
+
+Wed, 25 Mar 2026 22:57:13 GMT
+
+https://collider.com/prime-video-invincible-young-sherlock-top-10-charts/
+
+Though Young Sherlock has an interesting premise and Guy Ritchie behind it, it was quickly topped by Invincible on Prime Video's streaming charts.
+---------
+
+# HBO's New 7-Part Fantasy Series Will Be "Absolutely Extraordinary" Vows Top Exec
+
+TV News, Harry Potter, HBO, HBO Max
+
+Wed, 25 Mar 2026 22:40:12 GMT
+
+https://collider.com/harry-potter-series-absolutely-extraordinary-hbo-max-exec-sarah-aubrey/
+
+HBO Max exec Sarah Aubrey has promised an "absolutely extraordinary" adaptation of Harry Potter, teasing the colossal fantasy world.
+---------
+
+# 'Harry Potter' Teaser Reveals How HBO Show Will Be Closer to the Books
+
+TV Lists, Harry Potter, HBO Max
+
+Wed, 25 Mar 2026 22:58:16 GMT
+
+https://movieweb.com/harry-potter-hbo-faithful-to-books/
+
+HBO's 'Harry Potter' series is already proving how much closer it will be to the books than the movies.
+---------
+
+# Ron Perlman Explains Guillermo del Toro's Support for Him to Play Hellboy
+
+Movie News, Hellboy, Ron Perlman, Guillermo del Toro
+
+Wed, 25 Mar 2026 22:39:55 GMT
+
+https://movieweb.com/ron-perlman-guillermo-del-toro-hellboy/
+
+Decades after playing Hellboy, Ron Perlman detailed how influential Guillermo del Toro was in getting him  to play the iconic antihero.
+---------
+
 # Sarah Michelle Gellar Officially Joins First New Project After Buffy The Vampire Slayer Sequel's Abrupt Cancellation
 
 Movies, Sarah Michelle Gellar, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
