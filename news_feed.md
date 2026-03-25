@@ -1,3 +1,135 @@
+# Cyberpunk 2077 Multiplayer Experience Finally Officially Real
+
+Gaming, Cyberpunk 2077
+
+Wed, 25 Mar 2026 11:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-multiplayer-official-2026/
+
+Cyberpunk 2077 fans can now experience multiplayer action in the arcade game Chrome Rush.
+---------
+
+# Marvel's Spider-Man 3 Release Year Leaves Gamers Divided
+
+Gaming, Marvel's Spider-Man 3, Marvel's Spider-Man 2, Spider-Man
+
+Wed, 25 Mar 2026 11:26:19 GMT
+
+https://screenrant.com/marvels-spider-man-3-release-window-speculation/
+
+Fans are divided over the potential release year of Marvel's Spider-Man 3, with some believing it may come soon after Marvel's Wolverine.
+---------
+
+# Zelda Officially Returns This Year With Wind Waker-Inspired Release
+
+Gaming, The Legend of Zelda: The Wind Waker
+
+Wed, 25 Mar 2026 11:00:21 GMT
+
+https://screenrant.com/legend-of-zelda-2026-release-wind-waker-statue/
+
+Pre-order the highly detailed Zelda: Wind Waker 'Link on The King of Red Lions' statue from First 4 Figures.
+---------
+
+# Super Mario Bros. Wonder – Meetup in Bellabel Park Review - Frantic Fun
+
+Gaming, Super Mario Bros. Wonder, Triple-A Games
+
+Wed, 25 Mar 2026 11:00:21 GMT
+
+https://screenrant.com/mario-wonder-nintendo-switch-2-bellabel-park-review/
+
+Mario Wonder is back on Switch 2, and this time it comes with the multiplayer-focused Bellabel Park expansion for some zany party games.
+---------
+
+# Daredevil: Born Again Season 2 Must Include These 10 Comic Tropes
+
+Comics, Marvel Cinematic Universe, Daredevil: Born Again
+
+Wed, 25 Mar 2026 11:00:03 GMT
+
+https://www.cbr.com/daredevil-comic-tropes-born-again-season-2-must-get-right/
+
+Let me tell you something, Red...
+---------
+
+# The 50 Best Thriller Movies of All Time, According to IMDb
+
+Movie, Thriller, The Dark Knight, Inception, The Silence of the Lambs
+
+Wed, 25 Mar 2026 11:16:12 GMT
+
+https://collider.com/best-thriller-movies-all-time-ranked-imdb/
+
+IMDb users have made it easy for viewers looking for must-see thrillers, including classics like Psycho and international hits like Parasite.
+---------
+
+# From A Sci-fi Masterpiece To Tom Cruise's New Black Comedy: 2026 Is This Star's Breakout Year
+
+Exclusives, Project Hail Mary, Sandra Hüller, Ryan Gosling, Andy Weir
+
+Wed, 25 Mar 2026 11:15:12 GMT
+
+https://collider.com/project-hail-mary-sandra-huller-harry-styles-tom-cruise-digger-interview/
+
+Sandra Hüller discusses working with Ryan Gosling, how she chose her Harry Styles song for the movie, and teases Tom Cruise's mysterious Digger.
+---------
+
+# 'Dune: Part 3' Officially Drops First Trailer and It Promises a Colossal Finale
+
+Movie Features, Dune: Part Three, Denis Villeneuve, Timothée Chalamet, Zendaya
+
+Wed, 25 Mar 2026 11:08:12 GMT
+
+https://collider.com/dune-part-three-trailer-explained-messiah/
+
+With the release of the Dune: Part Three trailer, we look into Dune: Messiah to get into what’s coming in Denis Villeneuve’s epic trilogy.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — March 25, 2026
+
+TV, Sex and the City, And Just Like That..., Sex and the City 2
+
+Wed, 25 Mar 2026 11:01:12 GMT
+
+https://collider.com/tv-quiz-mar-25-2026-sex-and-the-city/
+
+And Just Like That... we're going back to where it all started for Carrie Bradshaw. On Sarah Jessica Parker's birthday, it's a Sex and the City check.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 25, 2026
+
+Movie, The Family Stone, Hocus Pocus, L.A. Story, First Wives Club
+
+Wed, 25 Mar 2026 11:00:03 GMT
+
+https://collider.com/movie-quiz-mar-25-2026-sarah-jessica-parker/
+
+Today, we're plunging into the deep ocean that is Sarah Jessica Parker's filmography. You'll need to be a shark to hunt down the correct answers.
+---------
+
+# 'Lethal Weapon's Shane Black & Joel Silver Reunite for 'The Executioner' Adaptation
+
+Movie News, Shane Black, The Executioner, Action, Reacher
+
+Wed, 25 Mar 2026 11:10:58 GMT
+
+https://movieweb.com/shane-black-joel-silver-the-executioner/
+
+Sony Pictures will finally adapt Don Pendelton’s "The Executioner" book series into a new action thriller franchise.
+---------
+
+# 'Firefly' Season 2 Can Thrive Where Hulu's Canceled 'Buffy' Revival Failed
+
+Features, Firefly, Hulu, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Wed, 25 Mar 2026 11:00:21 GMT
+
+https://movieweb.com/firefly-season-2-buffy-revival-failed/
+
+The 'Buffy the Vampire Slayer' reboot has been slayed, but the 'Firefly' revival can avoid the same fate by learning from its mistakes.
+---------
+
 # Stephen Colbert's New Lord Of The Rings Movie Officially In Development With Plot Details & Title Revealed
 
 Movies, Stephen Colbert, The Lord of the Rings
