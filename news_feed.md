@@ -1,3 +1,267 @@
+# 8 Ways Dragon Ball Z Has Aged Like Fine Wine
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Thu, 26 Mar 2026 21:10:14 GMT
+
+https://screenrant.com/why-dragon-ball-z-aged-like-fine-wine/
+
+Moments like Goku's first large-scale beam struggle against the furious Vegeta cut to the emotional core of what Dragon Ball is all about.
+---------
+
+# Mass Effect Fans Are Hyped After New Xbox Showcase
+
+Gaming
+
+Thu, 26 Mar 2026 21:07:09 GMT
+
+https://screenrant.com/mass-effect-xbox-partner-preview-expanse-osiris-reborn/
+
+The wait for a new Mass Effect experience has been a long one, but fans of the series all seem on board with an Xbox Partner Preview trailer.
+---------
+
+# HBO's Harry Potter Trailer Confirmed My 2 Biggest Concerns
+
+Streaming TV, Harry Potter
+
+Thu, 26 Mar 2026 21:01:19 GMT
+
+https://screenrant.com/harry-potter-tv-show-trailer-confirmed-concerns/
+
+The first footage for HBO's Harry Potter TV series is proving predictably divisive, but also confirmed two concerns we've had from the start.
+---------
+
+# Jim Carrey’s Sonic 4 Return Makes Perfect Sense Based On One 23-Year-Old Video Game
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Thu, 26 Mar 2026 21:01:19 GMT
+
+https://screenrant.com/sonic-4-jim-carrey-return-heroes/
+
+Jim Carrey's return in Sonic the Hedgehog 4 actually makes perfect sense based on this 23-year-old video game in the series.
+---------
+
+# HBO’s New Psychological Thriller & 3 More Shows Worth Watching This Weekend
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Thu, 26 Mar 2026 20:55:18 GMT
+
+https://screenrant.com/hbo-shows-to-watch-this-weekend/
+
+Discover HBO Max's latest thriller premiere & the top 3 trending series to watch this weekend, including a dark comedy, medical drama, and comedy hit.
+---------
+
+# Prime Video's 5-Part Thriller Series With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+TV, Prime Video, The Boys
+
+Thu, 26 Mar 2026 20:38:49 GMT
+
+https://screenrant.com/prime-video-the-boys-superhero-series-cast-best/
+
+One of Prime Video's most popular TV shows of the last decade would not have gotten to the shocking heights it did if not for its stellar cast.
+---------
+
+# The Lion King's Viral Circle Of Life Translation Officially Fuels A Lawsuit
+
+Movies, The Lion King
+
+Thu, 26 Mar 2026 20:36:49 GMT
+
+https://screenrant.com/the-lion-king-musician-sues-comedian-over-circle-of-life-mistranslation/
+
+A comedian's misrepresentation of The Lion King's opening song sparks a $27 million lawsuit, testing the boundaries of humor versus freedom of speech.
+---------
+
+# Hit 6-Season R-Rated Comedy Series Is Officially Moving To Paramount+ After Renewal
+
+TV
+
+Thu, 26 Mar 2026 20:34:24 GMT
+
+https://screenrant.com/ms-pat-show-season-6-renewal-paramount-plus-move/
+
+A six-season comedy is moving to Paramount+, giving the streamer a major boost in that department.
+---------
+
+# 10 Possibilities For Who Is Voicing Fox McCloud In The Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Thu, 26 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-fox-mccloud-voice-actor-possibilities/
+
+Nintendo didn't confirm who is voicing Fox McCloud in The Super Mario Galaxy Movie after announcing his role. Here are some possibilities.
+---------
+
+# Daredevil: Born Again Sets Up Kate Bishop's Long-Awaited MCU Return
+
+Streaming TV, Daredevil: Born Again
+
+Thu, 26 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-kate-bishop-setup/
+
+Daredevil: Born Again's ongoing story is a concern for all of New York's vigilantes, which perfectly sets up the return of one missing MCU hero.
+---------
+
+# Political Thriller 13 Days, 13 Nights Unveils Terrifying Clip Ahead of Release
+
+CBR Exclusives, Action
+
+Thu, 26 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/13-days-13-nights-terrifying-clip-ahead-of-release/
+
+The political thriller is based on true events.
+---------
+
+# Pretty Lethal Becomes a Global Streaming Hit on Prime Video
+
+Movies, Pretty Lethal
+
+Thu, 26 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/pretty-lethal-prime-video-streaming-march-2026/
+
+It only took one day for the ultra-violent film to make a huge splash on Prime Video.
+---------
+
+# Star Fox's Super Mario Galaxy Movie Reveal Sets Up Nintendo's Smash Bros. Movie
+
+Movies, The Super Mario Galaxy Movie, Nintendo, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-star-fox-reveal-sets-up-avengers-moment/
+
+The Super Mario Galaxy Movie is going to be big, and if the Star Fox reveal isn't enough, it hints at an MCU-level moment that could be coming.
+---------
+
+# 10 Harsh Realities of Being a Supernatural Fan 20 Years Later
+
+TV, Supernatural
+
+Thu, 26 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/supernatural-fans-harsh-realities-list/
+
+Supernatural ran for 15 seasons and garnered a massive fanbase that, two decades later, has to come with some hard truths.
+---------
+
+# Absolute Batman Writer Confirms New Villains Will Make Their Debut
+
+Comics, Absolute Batman
+
+Thu, 26 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/absolute-batman-writer-confirms-original-villains-will-debut/
+
+New foes are preparing to make The Batman's life even worse.
+---------
+
+# This Sci-Fi Indie Comic is a Must-Read For Fans Of This Iconic Director
+
+Comics, 2001: A Space Odyssey, Stanley Kubrick, image comics
+
+Thu, 26 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/sci-fi-indie-comic-must-read-for-stanley-kubrick-2001/
+
+Stanley Kubrick's 2001: A Space Odyssey continues to influence sci-fi media, and an overlooked 2022 Image miniseries is a must-read example.
+---------
+
+# Lena Headey Seeks Revenge in Ballistic Trailer
+
+Movies
+
+Thu, 26 Mar 2026 20:58:12 GMT
+
+https://www.cbr.com/ballistic-trailer-lena-headey/
+
+Lena Headey is out for bloody revenge in the new action thriller.
+---------
+
+# New Sci-Fi Masterpiece Officially Topples Denis Villeneuve's Cult Classic at the Box Office
+
+Movie News, Ryan Gosling, Project Hail Mary, Blade Runner 2049, Box Office
+
+Thu, 26 Mar 2026 21:20:12 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-overtakes-sci-fi-sequel-blade-runner-2049-box-office-96-million/
+
+Ryan Gosling's new sci-fi blockbuster, Project Hail Mary, has already surpassed the lifetime domestic box office haul of Blade Runner 2049.
+---------
+
+# 10 Movies With the Greatest Dialogue in the 21st Century
+
+Movie, Mean Girls, Inglourious Basterds, Ocean's Eleven, The Social Network
+
+Thu, 26 Mar 2026 21:09:13 GMT
+
+https://collider.com/movies-best-dialogue-21st-century/
+
+From teen comedies like Mean Girls to war dramedies like Inglourious Basterds, these films have the best, most memorable dialogue in the 21st century.
+---------
+
+# ‘Stranger Things’ Creators’ New Netflix Horror Series Is Becoming 2026's New Cult Classic
+
+TV News, Something Very Bad Is Going to Happen, Netflix, Horror, Duffer Brothers
+
+Thu, 26 Mar 2026 21:01:12 GMT
+
+https://collider.com/netflix-duffer-brothers-horror-series-something-very-bad-is-going-to-happen-rotten-tomatoes-score-is-it-good/
+
+Netflix and the Duffer Brothers’ new horror series, Something Very Bad Is Going to Happen, is off to a great start with critics on Rotten Tomatoes.
+---------
+
+# 10 Best International Movies of the 1960s
+
+Movie, Persona, Breathless, Andrei Rublev, 8½
+
+Thu, 26 Mar 2026 20:58:12 GMT
+
+https://collider.com/best-international-movies-1960s/
+
+From Italy's melancholic drama L'Avventura to France's effortlessly cool crime film Le Samouraï, these are the best international films of the 1960s.
+---------
+
+# Gillian Anderson Promises Ryan Coogler’s ‘X-Files’ Will “Do It Justice” [Exclusive]
+
+TV News, Gillian Anderson, The X-Files, Ryan Coogler, Fan Expo
+
+Thu, 26 Mar 2026 20:43:36 GMT
+
+https://collider.com/gillian-anderson-the-x-files-reboot-update-reaction-ryan-coogler/
+
+Gillian Anderson assures fans that the X-Files reboot script is really good and praises director Ryan Coogler's talent and dedication to the series.
+---------
+
+# Vanessa Kirby & Yahya Abdul-Mateen II To Lead New Apple Action Thriller 'Liminal'
+
+Movie News, Yahya Abdul-Mateen II, Vanessa Kirby
+
+Thu, 26 Mar 2026 21:20:34 GMT
+
+https://movieweb.com/liminal-action-thriller-apple-cast/
+
+The super-powered adaptation of 'Telepaths' from Apple Studios hails from 'Fast X' director Louis Leterrier.
+---------
+
+# 'Yellowstone' Is Rewriting Its Controversial Ending After 2 Years
+
+Features, Yellowstone
+
+Thu, 26 Mar 2026 21:00:17 GMT
+
+https://movieweb.com/yellowstone-controversial-ending-fixed/
+
+'Yellowstone' Season 6 ended in December 2024, and now, the Taylor Sheridan Western franchise is rewriting the ending that fans didn't love.
+---------
+
 # The Harry Potter TV Show Trailer Has A Hidden Ginny Weasley Cameo
 
 Streaming TV, Harry Potter
