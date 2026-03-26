@@ -1,3 +1,80 @@
+# Zazie Beetz Had "No Days Off" Filming Action-Horror Epic
+
+Movies, They Will Kill You, Zazie Beetz, SXSW
+
+Thu, 26 Mar 2026 22:52:30 GMT
+
+https://screenrant.com/they-will-kill-you-zazie-beetz-patricia-arquette-kirill-sokolov-interview/
+
+Zazie Beetz delivers a physically demanding performance in the new action-horror film They Will Kill You, directed by Kirill Sokolov. The film showcases Beetz's intense character in a relentless survival story.
+---------
+
+# Prime Video's Upcoming Detective Action Series Will Be So Good, You'll Have To Watch It Twice
+
+Streaming TV, Spider-Noir
+
+Thu, 26 Mar 2026 22:33:22 GMT
+
+https://screenrant.com/spider-noir-prime-video-detective-action-series-watch-twice/
+
+Netflix's upcoming Spider-Noir has an exciting cast and premise, and as it will be released in two different ways, you'll likely watch it twice.
+---------
+
+# Harry Potter’s Cursed Child Movie Gets Update From Tom Felton
+
+Movies, Harry Potter
+
+Thu, 26 Mar 2026 22:39:38 GMT
+
+https://www.cbr.com/harry-potter-cursed-child-movie-tom-felton/
+
+HBO is officially resurrecting Harry Potter, but the franchise has more potential to expand.
+---------
+
+# Lisa Kudrow's Comedy Series The Comeback Scores High on HBO Max
+
+TV, The Comeback, HBO Max, Comedy
+
+Thu, 26 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/lisa-kudrow-the-comeback-comedy-hbo-max-success-march-2026/
+
+Lisa Kudrow's The Comeback returns with a third and final season, with a near-perfect RT score and climbing streaming charts worldwide.
+---------
+
+# ABC’s New Crime Drama Proves It's the Perfect Weekend Binge for ‘High Potential’ Fans
+
+TV News, RJ Decker, High Potential, ABC, Crime
+
+Thu, 26 Mar 2026 22:41:12 GMT
+
+https://collider.com/abc-crime-series-rj-decker-high-potential-replacement-streaming-success-hulu-march-2026/
+
+ABC's latest crime drama is set to move to a new time slot amid its first season, with promising viewership numbers hinting at potential renewal.
+---------
+
+# Before Their Feud, Paul McCartney Wrote This Song for an Iconic Artist but Ultimately Released It for Himself
+
+Music Features, Paul McCartney, The Beatles, Music, Rock
+
+Thu, 26 Mar 2026 22:30:12 GMT
+
+https://collider.com/paul-mccartney-wrote-girlfriend-for-michael-jackson-before-feud/
+
+Paul McCartney wrote Girlfriend for Michael Jackson before releasing the song on his album London Town.
+---------
+
+# Taylor Sheridan's 'The Madison' Becomes His Biggest Series Launch Yet
+
+TV News, The Madison, Taylor Sheridan, Western
+
+Thu, 26 Mar 2026 22:36:25 GMT
+
+https://movieweb.com/the-madison-taylor-sheridan-ratings-paramount-plus-march-2026/
+
+It might not be a 'Yellowstone' spin-off, but Sheridan's emotional new Western is proving to be just as popular with viewers on Paramount+.
+---------
+
 # Steam Adds 8 New Free Games You Can Download And Keep Forever
 
 Gaming, Steam, PC
