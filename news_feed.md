@@ -1,3 +1,333 @@
+# Disney's First Live-Action Remake Is Nothing Like The Rest Of Them
+
+Movies, The Jungle Book
+
+Thu, 26 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/disney-first-live-action-remake-movie-jungle-book-different/
+
+Years before live-action remakes had become a trend for Disney, the studio tried this formula out on one of its most beloved animated classics.
+---------
+
+# John Carpenter Interview: Cathedral, Fallout 76 & Leaving Hollywood
+
+Gaming, John Carpenter, John Carpenter’s Toxic Commando, Fallout 76, Classic Rock
+
+Thu, 26 Mar 2026 19:46:35 GMT
+
+https://screenrant.com/john-carpenter-interview-cathedral-fallout-76/
+
+John Carpenter talks MegaCon 2026, his new album Cathedral, playing Fallout 76, and why he’s traded Hollywood anxiety for synths and Sonic.
+---------
+
+# What's Going On With Heather In Daredevil: Born Again Season 2
+
+Streaming TV, Daredevil: Born Again
+
+Thu, 26 Mar 2026 19:45:18 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-heather-glenn-muse-hallucinations-explained/
+
+Heather Glenn returns in Daredevil: Born Again season 2, but her story arc appears to be on a very different course now that she's separated from Matt
+---------
+
+# Tyler Perry's New Thriller Strung Set to Premiere on Streaming Next Month
+
+Movies, Tyler Perry
+
+Thu, 26 Mar 2026 19:40:31 GMT
+
+https://screenrant.com/strung-movie-peacock-streaming-release-date-blumhouse-tyler-perry/
+
+Discover the chilling new thriller from Tyler Perry, produced by Blumhouse, starring Chloe Bailey. 'Strung' premieres on streaming next month, promising a psychological battle for safety and sanity.
+---------
+
+# Why She-Hulk: Attorney At Law Is A Must-Watch Before Spider-Man: Brand New Day
+
+Streaming TV, Spider-Man: Brand New Day, She-Hulk: Attorney at Law
+
+Thu, 26 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/spiderman-brand-new-day-smart-hulk-bruce-banner-she-hulk-must-watch/
+
+Bruce Banner is no longer Smart Hulk in Spider-Man: Brand New Day, and Disney+'s divisive She-Hulk series dives deeper into why that is.
+---------
+
+# Netflix Raising Subscription Prices For The Second Time Just Four Months Into 2026
+
+TV, Netflix
+
+Thu, 26 Mar 2026 19:29:31 GMT
+
+https://screenrant.com/netflix-subscription-prices-raised-2026-second-time/
+
+Netflix is raising its subscription prices in the United States for the second time in 2026, just four months into the calendar year.
+---------
+
+# 10 Most Anticipated New TV Shows Of April 2026 (According To Real Data)
+
+TV
+
+Thu, 26 Mar 2026 19:22:54 GMT
+
+https://screenrant.com/most-anticipated-new-tv-shows-april-2026/
+
+Based on data from predictive media analytics company Diesel Labs, ScreenRant reveals April 2026's top 10 most anticipated new TV releases
+---------
+
+# Anne Hathaway & Dwayne Johnson Are Officially Disney Legends Ahead Of Major 2026 Movie Releases
+
+Movies, The Devil Wears Prada 2, Moana, Anne Hathaway, Dwayne Johnson
+
+Thu, 26 Mar 2026 19:22:39 GMT
+
+https://screenrant.com/anne-hathaway-dwayne-johnson-disney-legend-status-confirmed/
+
+The Devil Wears Prada’s Anne Hathaway and Moana’s Dwayne Johnson were just announced as recipients of a legendary award with the Walt Disney Company.
+---------
+
+# Halo Officially Returns With Legendary New Release, Available Now
+
+Gaming, Halo, PC
+
+Thu, 26 Mar 2026 19:19:30 GMT
+
+https://screenrant.com/halo-2026-return-legendary-icon-release-march-2026/
+
+Halo makes a legendary return with an official brand-new release that fans of the franchise will not want to miss out on.
+---------
+
+# How To Join The Expanse: Osiris Reborn Closed Beta
+
+Gaming, The Expanse, Triple-A Games, PC
+
+Thu, 26 Mar 2026 19:11:10 GMT
+
+https://screenrant.com/expanse-osiris-reborn-closed-beta-access-release-window/
+
+The Expanse: Osiris Reborn sees Owlcat Games taking its expertise throughout the Solar System, and you can try the game well ahead of launch.
+---------
+
+# Marvel Previews Fall Out Out Boy Singer's First Eternals Story (Exclusive)
+
+Comics, Eternals
+
+Thu, 26 Mar 2026 19:43:10 GMT
+
+https://www.cbr.com/marvel-previews-fall-out-boy-singer-first-eternals-story/
+
+In a CBR exclusive preview of next week's Eternals 50th Anniversary Special, see Patrick Stump of Fall Out Boy's first Marvel story
+---------
+
+# X-Force Writer Confirms Marvel 'Shot Down' His Pitch To Use Two Major Characters
+
+Comics, X-Men
+
+Thu, 26 Mar 2026 19:41:35 GMT
+
+https://www.cbr.com/inglorious-x-force-tim-seely-jamie-madrox-bishop-cut/
+
+Marvel, please reconsider letting Tim Seely feature these two mutants in the Inglorious X-Force comics, thank you.
+---------
+
+# Every Major Hunter x Hunter Fight That Happens After the Anime, Explained
+
+Anime, Hunter X Hunter
+
+Thu, 26 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/biggest-hunter-x-hunter-fights-after-anime-explained/
+
+Part of what fans love about Hunter x Hunter is the incredible action, yet some of the story's most important fights happen after the anime ends.
+---------
+
+# Netflix Confirms Price Hike After Losing Warner Bros
+
+TV, Netflix
+
+Thu, 26 Mar 2026 19:14:45 GMT
+
+https://www.cbr.com/netflix-price-hike-losing-warner-bros/
+
+This would be the second price increase in 2026.
+---------
+
+# How HBO's Harry Potter Doubles Down on Game of Thrones' Franchise Fatigue
+
+TV, Game Of Thrones, House of the Dragon, Harry Potter, HBO Max
+
+Thu, 26 Mar 2026 19:14:22 GMT
+
+https://www.cbr.com/harry-potter-vs-game-of-thrones-franchise-fatigue/
+
+As HBO's Harry Potter series drops, it seems to be falling into the same trap as Game of Thrones, raising concerns about franchise fatigue.
+---------
+
+# In Just 1 Day, The Immortal Man Is Officially Dethroned by Anaconda on Netflix U.S. Charts
+
+Movies, Anaconda, Peaky Blinders: The Immortal Man
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/peaky-blinders-the-immortal-man-dethroned-anaconda-march-2026/
+
+After a successful debut straight at the top of the charts, The Immortal Man lost its spot after less than a week.
+---------
+
+# 10 Mistakes in the Harry Potter Movies Only Diehard Fans Notice
+
+Movies, Harry Potter
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/harry-potter-movie-mistakes-only-diehard-fans-notice-list/
+
+The Harry Potter movies aren't perfect, but they are beloved. Even still, some details are too large for longtime fans not to notice.
+---------
+
+# Every John Wick Sequel and Spinoff Confirmed for 2026 and Beyond
+
+Movies, John Wick
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/every-john-wick-sequel-spinoff-list/
+
+The abundance of sequels and spinoffs that are on the table for the John Wick universe proves that not even death can keep the Baba Yaga down.
+---------
+
+# 8 Netflix Shows That Get Better With Every Episode
+
+TV, Netflix, Bridgerton, A Man on the Inside
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/netflix-shows-better-with-every-episode-list/
+
+Some Netflix TV series that start strong and only get better with every episode, like A Man on the Inside, Bridgerton, or The Lincoln Lawyer.
+---------
+
+# Cillian Murphy Officially Leaves 'Peaky Blinders' Behind in First Look at His Gritty New Prison Thriller
+
+Movie News, Cillian Murphy, Peaky Blinders: The Immortal Man, Peaky Blinders, Damien Chazelle
+
+Thu, 26 Mar 2026 19:49:24 GMT
+
+https://collider.com/cillian-murphy-untitled-damien-chazelle-movie-set-image-mia-threapleton/
+
+Cillian Murphy and Mia Threapleton have begun filming for Damien Chazelle’s first movie in 4 years, according to a new set photo.
+---------
+
+# Paul McCartney Is Back With a New Album Announcement and a Nostalgic Lead Single
+
+Music Features, Paul McCartney, The Beatles, Music, Rock
+
+Thu, 26 Mar 2026 19:49:00 GMT
+
+https://collider.com/paul-mccartney-announces-new-album-the-boys-of-dungeon-lane/
+
+Paul McCartney announces his new album The Boys of Dungeon Lane inspired by his childhood in Liverpool, with a nostalgic lead single Days We Left Behind referencing his early songwriting days with John Lennon.
+---------
+
+# 10 Movies That Did Fan Service the Worst, Ranked
+
+Movie, Solo: A Star Wars Story, The Amazing Spider-Man 2, Space Jam: A New Legacy, Star Wars: Episode IX - The Rise of Skywalker
+
+Thu, 26 Mar 2026 19:33:12 GMT
+
+https://collider.com/movies-worst-fan-service/
+
+Solo: The Rise of Skywalker, Alien: Covenant, and The Flash are major franchise movies that failed to deliver what fans wanted and hoped for.
+---------
+
+# 3 Classic Rock Masterpieces From the 1970s That Took Over the World
+
+Music Features, Queen, Led Zeppelin, The Eagles, Rock, Music
+
+Thu, 26 Mar 2026 19:31:09 GMT
+
+https://collider.com/3-classic-rock-masterpiece-1970s-led-zeppelin-queen-the-eagles/
+
+Few songs capture the spirit of the 1970s but Led Zeppelin, Queen, and the Eagles delivered classics that fans still come back to decades later.
+---------
+
+# Hulu's Most-Watched 9-Part Limited Series Ever Demands Your Attention Before It Ends Tonight
+
+TV Features, Love Story, Ryan Murphy, FX, Hulu
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://collider.com/hulu-love-story-ryan-murphy-52-million-hours-watched/
+
+Ahead of its finale, Hulu's Love Story has managed to pull in a staggering 52 million hours of viewtime.
+---------
+
+# 10 Highest-Rated 'NCIS' Episodes, Ranked According to IMDb
+
+TV, NCIS, CBS, Paramount Plus, Collider Rewind
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://collider.com/highest-rated-ncis-episodes-ranked-imdb/
+
+NCIS has been a fan favorite police procedural TV show for decades, and these are the best episodes, according to IMDb.
+---------
+
+# 10 Greatest Absurdist TV Shows, Ranked
+
+TV, BoJack Horseman, What We Do in the Shadows, Fleabag, Barry
+
+Thu, 26 Mar 2026 19:00:12 GMT
+
+https://collider.com/best-absurdist-tv-shows/
+
+From must-see mockumentaries like What We Do in the Shadows to acclaimed dramas such as Barry, these are some of the best absurdist TV shows.
+---------
+
+# 'Highlander' Images Reveal New Look at Henry Cavill's Immortal Hero
+
+Movie News, Henry Cavill, Highlander, Action, Fantasy
+
+Thu, 26 Mar 2026 19:51:51 GMT
+
+https://movieweb.com/henry-cavill-highlander-images-filming/
+
+The former Superman takes to the London streets dressed in black in new look at the action fantasy reboot from 'John Wick' director.
+---------
+
+# Every 'Harry Potter' Character in the HBO Trailer Compared Against Their Original Movie Descriptions & Movie Version
+
+TV Lists, Harry Potter, HBO Max
+
+Thu, 26 Mar 2026 19:30:17 GMT
+
+https://movieweb.com/every-harry-potter-character-hbo-trailer-compared-against-movie/
+
+There are more notable similarities and differences than you'd think between the new 'Harry Potter' series and the source material.
+---------
+
+# Prime Video's 'God of War' Casts 'Lost' Star Sonya Walger as Freya
+
+TV News, God of War
+
+Thu, 26 Mar 2026 19:20:35 GMT
+
+https://movieweb.com/god-of-war-sonya-walger-freya/
+
+A new cast addition adds to the Norse God Pantheon as 'Lost' alum Sonya Walger joins 'God of War' as Freya.
+---------
+
+# Every 'One Piece' Manga Arc Season 2 Adapts, Ranked
+
+TV Lists, One Piece, Netflix
+
+Thu, 26 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/one-piece-manga-arcs-season-2/
+
+The live-action Netflix adaptation covered a lot of arcs from the manga, some better than others. Here's how all of them compare to the original.
+---------
+
 # Jason Statham's Spy Movie With Near-Perfect Rotten Tomatoes Score Becomes Streaming Hit In The United States
 
 Movies, Spy, STARZ
