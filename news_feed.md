@@ -1,3 +1,256 @@
+# HBO's Harry Potter Series Trailer Confirms The Problem With One Character
+
+TV, Harry Potter, Quiz CV
+
+Thu, 26 Mar 2026 14:20:19 GMT
+
+https://screenrant.com/hbo-harry-potter-series-cast-problem-hagrid/
+
+The first trailer for HBO's Harry Potter series has been released, and while there is a lot to enjoy, the footage reveals one character's problem.
+---------
+
+# Netflix Releases Kate Hudson's Running Point Season 2 Trailer
+
+TV, Running Point
+
+Thu, 26 Mar 2026 14:06:54 GMT
+
+https://screenrant.com/running-point-season-2-trailer/
+
+Netflix has released the trailer for Running Point season 2, revealing the return of Kate Hudson's hit comedy series also starring Brenda Song.
+---------
+
+# Xbox Game Pass Stealth Drops 2025's Greatest Hidden Gem
+
+Gaming, Xbox Game Pass
+
+Thu, 26 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-april-2026-hidden-gem-easy-delivery-co/
+
+Xbox Game Pass just dropped one of the best games of 2025, and I am begging you to play it
+---------
+
+# 21 Years Ago Today, Doctor Who Was Forever Changed
+
+Classic TV, Doctor Who
+
+Thu, 26 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/doctor-who-march-2005-return-hiatus-franchise-new-era/
+
+Doctor Who has morphed and evolved - regenerated, you might say - throughout the years, but was truly changed forever 21 years ago today.
+---------
+
+# G.I. Joe's Failed Comeback: Analyzing Snake Eyes' Impact On The Franchise
+
+Movies, GI Joe, Snake Eyes, Op-Ed
+
+Thu, 26 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/gi-joe-franchise-comeback-mistake-snake-eyes/
+
+Snake Eyes was Paramount trying to make the G.I. Joe franchise into a big screen success yet it made key errors that held it back.
+---------
+
+# GTA 6 Map Comparison Makes GTA 5 Look Absolutely Tiny
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Thu, 26 Mar 2026 13:58:07 GMT
+
+https://screenrant.com/gta-6-map-comparison-grand-theft-auto-5/
+
+While we wait for GTA 6 to arrive, fans have been speculating just how big the game will be, and this map comparison is pretty telling.
+---------
+
+# Pokémon Legends Z-A Free Downloads For April Officially Confirmed
+
+Gaming, Pokemon Legends Z-A, Triple-A Games, Pokemon
+
+Thu, 26 Mar 2026 13:49:55 GMT
+
+https://screenrant.com/pokemon-legends-za-season-9-free-rewards-april-2026/
+
+Nintendo has officially confirmed the free downloads for Pokémon Legends: Z-A in April, and there are tons of rewards you won’t want to miss out on.
+---------
+
+# Duffer Bros. New 8-Part Netflix Horror Series Bests Stranger Things Season 5 In Rotten Tomatoes Score Debut
+
+TV, Something Very Bad Is Going to Happen
+
+Thu, 26 Mar 2026 13:46:25 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-rotten-tomatoes-score-debut-duffer-bros-netflix/
+
+The Duffer Brothers' new, eight-episode Netflix horror series overtakes Stranger Things season 5 in its Rotten Tomatoes score debut.
+---------
+
+# Netflix Revived Lucifer 7 Years Ago, Improving Its Final Seasons
+
+Classic TV, Lucifer
+
+Thu, 26 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/lucifer-netflix-saved-fantasy-show-made-it-better/
+
+Seven years ago, Netflix saved a popular fantasy show after its cancellation, and it not only gave it more seasons, but also made it better.
+---------
+
+# New PlayStation Pricing Officially Takes Effect
+
+Gaming, PlayStation 5, PlayStation Plus, PC
+
+Thu, 26 Mar 2026 13:25:44 GMT
+
+https://screenrant.com/playstation-price-change-dynamic-reactions/
+
+PlayStation's new pricing system has officially taken effect, and while some players can check out the new pricing options now, not everyone benefits.
+---------
+
+# Invincible Creator Insists That Image Comics Book Is  'The Comic You've Been Waiting For Your Whole Life'
+
+Comics, image comics
+
+Thu, 26 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/image-comics-red-roots-release-date-confirmed/
+
+This new Image Comics title is a must-read for anyone looking for the next can't-miss series.
+---------
+
+# Nintendo Confirms Fox McCloud In The Super Mario Galaxy Movie 1 Week Before Release
+
+Movies, The Super Mario Galaxy Movie
+
+Thu, 26 Mar 2026 13:42:50 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-smash-bros-crossover-fox-mccloud/
+
+A week before release, Nintendo confirmed a major character will pop up in the upcoming sequel.
+---------
+
+# The 28 Days Later Franchise Needs Its Own Version of Fear the Walking Dead
+
+Movies, 28 Days Later, Fear the Walking Dead, 28 Years Later
+
+Thu, 26 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/28-days-later-franchise-needs-version-of-fear-the-walking-dead/
+
+Fear the Walking Dead gave viewers a new perspective on the Walking Dead franchise, and the same could be done to the 28 Days Later film series.
+---------
+
+# Charlie Hunnam's Outlaw Drama Juggernaut Resurfaces on PVOD Charts 12 Years Later
+
+TV, Sons of Anarchy, charlie hunnam
+
+Thu, 26 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/charlie-hunnam-outlaw-sons-of-anarchy-itunes-pvod-success-march-2026/
+
+Hunnam's hit crime drama is rising up the charts more than a decade later - and there's a good reason fans are returning to the series.
+---------
+
+# WEBTOON Launches New Platform With AI Translation, Monetization & Creator Tools
+
+Anime, webtoon, Artificial Intelligence
+
+Thu, 26 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/webtoon-new-platform-ai-translation-creator-money-change/
+
+WEBTOON is about to roll out a host of changes that will reshape the way creators interact with and make money on the platform.
+---------
+
+# The Rookie Fans Are Discovering Melissa O’Neil’s Dark Matter Sci-Fi Streaming Show
+
+TV, Dark Matter, The Rookie, syfy
+
+Thu, 26 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/the-rookie-melissa-oneil-sci-fi-dark-matter-free-to-stream/
+
+Melissa O'Neil is a breakout star on The Rookie but a decade ago she was an outlaw space captain on a gone-too-soon sci-fi show like Nathan Fillion's.
+---------
+
+# Every U2 Studio Album Released in the 80s, Ranked
+
+Music News, U2: Rattle and Hum, Lists, Classic Albums: U2 - The Joshua Tree, Music
+
+Thu, 26 Mar 2026 14:15:12 GMT
+
+https://collider.com/u2-80s-albums-ranked/
+
+From War to The Unforgettable Fire to The Joshua Tree, this is the definitive ranking of U2's studio albums released in the 80s.
+---------
+
+# Marvel's Xochitl Gomez Takes on a Playground of Creepy Kids in Terrifying New Tubi Thriller Trailer [Exclusive]
+
+Movie News, Xochitl Gomez, Tubi, Horror, Thriller
+
+Thu, 26 Mar 2026 14:00:12 GMT
+
+https://collider.com/xochitl-gomez-new-thriller-hive-trailer/
+
+Watch the exclusive first trailer for Xochitl Gomez's new Tubi thriller, Hive, which sees her facing off a playground full of possessed children.
+---------
+
+# Comedy Legends Cheech & Chong Set the Date for Their Riotous "Last Movie" on Streaming [Exclusive]
+
+Exclusives, Cheech & Chong's Last Movie, Cheech Marin, Tommy Chong, Paramount Plus
+
+Thu, 26 Mar 2026 13:00:12 GMT
+
+https://collider.com/cheech-and-chongs-last-movie-streaming-release-date-paramount-plus-april/
+
+'Cheech & Chong's Last Movie,' the road trip documentary reflecting on the iconic comedy duo's lives, is finally coming to streaming next month.
+---------
+
+# Paramount+ Renews 'Criminal Minds: Evolution'
+
+TV News, Criminal Minds: Evolution
+
+Thu, 26 Mar 2026 13:32:38 GMT
+
+https://movieweb.com/paramount-confirms-fate-criminal-minds-evolution/
+
+The news extends the show's future beyond its next season, which is set to debut on May 28.
+---------
+
+# 'Lioness' Season 3 Wraps as Stars Tease Taylor Sheridan's Action Thriller Return
+
+TV News, Taylor Sheridan, Lioness, Action, Thriller
+
+Thu, 26 Mar 2026 13:05:42 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-wraps-epic-action/
+
+The long-awaited third season of 'Special Ops: Lioness' promises to be epic according to returning stars.
+---------
+
+# The 'Scrubs' Revival Isn't Hurrying Along Everyone's Love Stories Like the Original Era Did
+
+Features, Scrubs
+
+Thu, 26 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/scrubs-revival-new-doctors-problem-fixed/
+
+'Scrubs' started in 2001 with clear signs of who most of the main cast would end up with, and the revival isn't making the same mistake.
+---------
+
+# 'The Madison' Isn't a 'Yellowstone' Sequel, But a Proper Spinoff is on the Way
+
+Features, The Madison, Yellowstone, Dutton Ranch, Upcoming Tease
+
+Thu, 26 Mar 2026 13:00:17 GMT
+
+https://movieweb.com/taylor-sheridan-yellowstone-season-6-perfect-follow-up/
+
+'The Madison' was originally conceived as a 'Yellowstone' sequel, but it now stands alone. Luckily, a proper spin-off is on the way.
+---------
+
 # Steam Drops 9/10 Free Game You Can Keep Forever
 
 Gaming, Steam, Indie, PC
