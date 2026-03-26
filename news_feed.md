@@ -1,3 +1,47 @@
+# Liar Game Finally Has an Official Release Date, and the Hype is Absolutely Real
+
+Anime, Squid Game
+
+Thu, 26 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/liar-game-biggest-death-game-series-2026-release-date/
+
+The highly anticipated anime adaptation of the psychological thriller Liar Game is coming soon to Crunchyroll in April 2026.
+---------
+
+# For All Mankind Showrunners Finally Answers The Alien Question
+
+CBR Exclusives, For All Mankind, Sci-Fi, Apple TV
+
+Thu, 26 Mar 2026 23:50:51 GMT
+
+https://www.cbr.com/for-all-mankind-showrunners-address-aliens-in-season-5/
+
+Project Hail Mary may not be the only alien project to premiere this month.
+---------
+
+# Gundam Goes Green for Original Movie's New Gunpla Model Kit Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, bandai, toys
+
+Thu, 26 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/gundam-entry-grade-gunpla-neon-green-release/
+
+Amuro Ray's final Gundam mecha is getting an eco-friendly makeover in a new model kit that's green in ways beyond just its color.
+---------
+
+# 7 Fantasy Shows That Have Aged Like Milk
+
+TV, Fantasy, Once Upon A Time, Charmed, I Dream of Jeannie
+
+Thu, 26 Mar 2026 23:39:12 GMT
+
+https://collider.com/fantasy-tv-shows-aged-like-milk/
+
+Time hasn't been kind to once-beloved fantasy shows like Once Upon a Time, Charmed, and I Dream of Jeannie, with their reputation only getting worse.
+---------
+
 # How Finn Can Make His Star Wars Return After John Boyega's Recent Comments
 
 Movies, Star Wars
