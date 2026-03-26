@@ -1,3 +1,190 @@
+# Jason Statham's Spy Movie With Near-Perfect Rotten Tomatoes Score Becomes Streaming Hit In The United States
+
+Movies, Spy, STARZ
+
+Thu, 26 Mar 2026 18:54:38 GMT
+
+https://screenrant.com/jason-statham-spy-movie-starz-streaming-success-march-2026/
+
+Jason Statham is once again dominating streaming charts, as his spy movie that grossed $235.6 million has now found new life as a US sensation.
+---------
+
+# 7 Harsh Realities Of Rewatching Hannah Montana, 20 Years Later
+
+Classic TV, Hannah Montana
+
+Thu, 26 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/hannah-montana-disney-2006-rewatch-harsh-realities/
+
+Hannah Montana was one of the best shows on Disney, but there are some harsh realities that are hard to dismiss when rewatching the series.
+---------
+
+# ABC's New Detective Series Is Officially Changing Schedule As Season 2 Renewal Hopes Await
+
+TV, RJ Decker, RJ Decker - Season 1
+
+Thu, 26 Mar 2026 18:22:48 GMT
+
+https://screenrant.com/rj-decker-season-1-abc-schedule-change/
+
+ABC's new detective series is officially changing its release schedule as it awaits a possible season 2 renewal decision from the network.
+---------
+
+# Stranger Things Animated Series Makes Eleven's Death Even Worse
+
+Streaming TV, Stranger Things: Tales from '85
+
+Thu, 26 Mar 2026 18:15:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-eleven-death-worse/
+
+Stranger Things is expanding with the animated TV show Tales from '85, and the latest trailer makes Eleven's death in the series finale even worse.
+---------
+
+# Crimson Desert: How To Complete "Close Threat" (All Correct Answers)
+
+Gaming, Crimson Desert
+
+Thu, 26 Mar 2026 18:00:18 GMT
+
+https://screenrant.com/crimson-desert-close-threat-investigation-dialogue-choices/
+
+“Close Threat” isn’t Crimson Desert’s most exciting quest, but with this guide, you can answer Shakatu’s questions without too much consternation.
+---------
+
+# One Piece's Perfect Live-Action Sabo Actor
+
+Streaming TV, One Piece, Cobra Kai
+
+Thu, 26 Mar 2026 18:00:18 GMT
+
+https://screenrant.com/one-piece-live-action-sabo-actor-jacob-bertrand/
+
+Netflix has been defying expectations with its live-action One Piece cast, and the best choice for Sabo has already worked with the streamer.
+---------
+
+# Legend of Zelda: Breath of the Wild Vinyl Release Coming June 2026
+
+Games, The Legend of Zelda
+
+Thu, 26 Mar 2026 18:57:45 GMT
+
+https://www.cbr.com/the-legend-of-zelda-breath-of-the-wild-vinyl-june-2026/
+
+Nintendo's 40th anniversary celebration for The Legend of Zelda includes an exciting release coming this summer.
+---------
+
+# 5 Years Later, Andrew Garfield Reveals Secret to Spider-Man: No Way Home’s Most Iconic Scene
+
+Movies, Spider-Man: No Way Home, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 18:53:27 GMT
+
+https://www.cbr.com/spider-man-no-way-home-statue-of-liberty-improvised-scene-andrew-garfield/
+
+Spider-Man: No Way Home star Andrew Garfield reveals the secret beyond the MCU movie's most iconic scene featuring the three Spider-Mans.
+---------
+
+# Hasbro Turns Transformers' Optimus Prime Into the Most Autobot Toy of All Time
+
+Anime, Transformers, optimus prime, merchandise, toys, hasbro
+
+Thu, 26 Mar 2026 18:11:12 GMT
+
+https://www.cbr.com/transformers-icons-optimus-prime-hasbro-toy-release/
+
+the newest Optimus Prime toy lets the character transform into the symbol of the very faction that he heroically leads in the Transformers franchise.
+---------
+
+# Heather Graham Reveals the Brutal Reality of That Crawl Scene
+
+Movies, They Will Kill You
+
+Thu, 26 Mar 2026 18:01:12 GMT
+
+https://www.cbr.com/video/heather-graham-reveals-the-brutal-reality-of-that-crawl-scene/
+
+The horror film’s most talked-about scene wasn’t CGI—it was a fully built crawlspace designed for pain and realism.Heather Graham and Myha’La break down how the Virgil hotel set came together, from foam floors to hidden camera walls. They reveal the physical toll of filming, rehearsing for weeks, and what makes the space feel so unsettling on screen. Plus, the conversation turns into a fun debate about hotel habits, temperature wars, and what might be lurking on every floor of the Virgil.
+---------
+
+# April 9th's 'Elsbeth' Episode Gets a Fantastic First Look With a Killer Guest Star [Exclusive]
+
+Exclusives, Elsbeth, Beanie Feldstein, Carrie Preston, CBS
+
+Thu, 26 Mar 2026 18:30:12 GMT
+
+https://collider.com/elsbeth-season-3-episode-15-images-beanie-feldstein-guest-star/
+
+New Elsbeth Season 3, Episode 15 images reveal Booksmart star Beanie Feldstein as a bitter bridesmaid and April 9th's killer of the week.
+---------
+
+# ‘Grey’s Anatomy’ Looks Overrated Next to Netflix’s Stellar 2-Part Medical Drama
+
+TV Features, Grey's Anatomy, Shonda Rhimes, Hospital Playlist, Netflix
+
+Thu, 26 Mar 2026 18:09:12 GMT
+
+https://collider.com/greys-anatomy-replacement-netflix-series-hospital-playlist/
+
+If Grey’s Anatomy feels exhausting, Hospital Playlist is the heartfelt, funny medical drama that makes the genre feel comforting.
+---------
+
+# 8 Best Plot Twists of 'The Pitt' Season 2 (So Far)
+
+TV, The Pitt, Noah Wyle, HBO Max, Drama
+
+Thu, 26 Mar 2026 18:09:12 GMT
+
+https://collider.com/the-pitt-season-2-plot-twists/
+
+From a cyber attack that puts the hospital offline to Baby Jane Doe, The Pitt Season 2 has kept audiences on their toes with these plot twists.
+---------
+
+# 'Jennifer's Body' Sequel & Plot Details Confirmed by Writer Diablo Cody
+
+Movie News, Jennifer's Body, Diablo Cody, Megan Fox
+
+Thu, 26 Mar 2026 18:49:35 GMT
+
+https://movieweb.com/jennifers-body-sequel-confirmed-update/
+
+After falling flat when it was released, fan demand has brought the story back from the grave.
+---------
+
+# Netflix Announces Action Thriller Sequel 'City Hunter 2'
+
+Movie News, Netflix, Action, Thriller, City Hunter
+
+Thu, 26 Mar 2026 18:07:08 GMT
+
+https://movieweb.com/netflix-city-hunter-2-sequel-happening/
+
+The streamer confirms the director, returning stars, and release date for the action follow-up, which will once again be based on the beloved mamga.
+---------
+
+# Netflix's New Sci-Fi Epic 'The Great Flood' Breaks Major Streaming Record
+
+Movie News, The Great Flood, Netflix, Hot on Streaming, Sci-Fi
+
+Thu, 26 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/great-flood-streaming-record-breaking-netflix-sci-fi/
+
+Netflix's post-apocalyptic sci-fi thriller 'The Great Flood' breaks streaming record as a non-English movie, made in South Korea.
+---------
+
+# Best TV-MA Shows of All Time
+
+TV Lists, Drama, Comedy
+
+Thu, 26 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/best-tv-ma-shows-all-time/
+
+From dystopian sci-fi to crass comedies, these TV-MA shows are diverse in genre and bold in confronting the darkest aspects of society.
+---------
+
 # How Avengers: Doomsday Losing IMAX To Dune 3 Will Impact Its Box Office, Explained
 
 New Movies, Dune: Part Three, Avengers: Doomsday, Box Office, Explainer
