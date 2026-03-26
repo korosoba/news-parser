@@ -1,3 +1,146 @@
+# Netflix’s 6-Part Psychological Thriller Is Quietly One Of Its Best Shows To Binge
+
+Streaming TV
+
+Thu, 26 Mar 2026 21:38:19 GMT
+
+https://screenrant.com/netflix-behind-her-eyes-series-binge-watch/
+
+Netflix's 6-part hidden gem, Behind Her Eyes, is a must-watch psychological thriller series that combines supernatural drama and dark sc-fi twists.
+---------
+
+# The Madison: Taylor Sheridan's Record-Breaking Paramount+ Series Premiere
+
+TV, The Madison, Taylor Sheridan, Paramount Plus
+
+Thu, 26 Mar 2026 21:32:37 GMT
+
+https://screenrant.com/the-madison-show-ratings-taylor-sheridan-record/
+
+The Madison, a family drama from Yellowstone creator Taylor Sheridan, set a new benchmark for his TV empire by attracting 8 million global viewers within its first 10 days on Paramount+, making it the biggest original series launch for any Sheridan show on the platform.
+---------
+
+# 10 Best Anime to Binge After Watching Jujutsu Kaisen Season 3
+
+Anime, Jujutsu Kaisen
+
+Thu, 26 Mar 2026 21:31:07 GMT
+
+https://screenrant.com/best-anime-watch-after-jujutsu-kaisen-season-3/
+
+Whether it's because of their fights, themes, or impact, these anime are the best to help fill the void after the end of Jujutsu Kaisen Season 3.
+---------
+
+# Shrinking's Harrison Ford Twist Could Derail Season 4's Story
+
+Streaming TV, Shrinking
+
+Thu, 26 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/shrinking-harrison-ford-paul-retire-move-away-season-4-risk/
+
+Harrison Ford's Paul is headed in a different direction than the other Shrinking characters, casting some doubt on the story for season 4.
+---------
+
+# HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, HBO Max, Dune: Part Two, Dune
+
+Thu, 26 Mar 2026 21:27:59 GMT
+
+https://screenrant.com/hbo-max-dune-part-two-sci-fi-movie-best/
+
+One of the best movies on HBO Max for subscribers is a space opera that features major stars and tells an epic sci-fi story about getting back up.
+---------
+
+# 'Incredible Vintage Stuff': Cobra Kai & One Piece's Xolo Maridueña Talks Pokemon Ahead of 48-Hour Live Auction
+
+Anime, Interviews
+
+Thu, 26 Mar 2026 21:46:49 GMT
+
+https://www.cbr.com/xolo-mariduena-ebay-48-hours-of-drops-interview/
+
+Xolo Maridueña sits down to talk all things Pokémon ahead of his live auction as part of eBay's 48 Hours of Drops event.
+---------
+
+# Alien Movies Join HBO Max in April: Watch the Sci-Fi Franchise Streaming
+
+Movies, Alien, HBO Max, Sci-Fi
+
+Thu, 26 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/alien-movies-streaming-hbo-max-april-2026/
+
+Most of the Alien films, including the 1979 original directed by Ridley Scott, will be available to stream on HBO Max starting April 1.
+---------
+
+# Taylor Sheridan's The Madison Breaks Record with 8 Million Views in 10 Days
+
+TV, The Madison, Paramount Plus, Western
+
+Thu, 26 Mar 2026 21:27:41 GMT
+
+https://www.cbr.com/the-madison-ratings-paramount-plus-taylor-sheridan/
+
+Paramount+'s Yellowstone sequel, The Madison, created by Taylor Sheridan, achieved 8 million global views in its first 10 days.
+---------
+
+# Rebecca Ferguson's Best Performance in a Sci-Fi Movie Surges Back Onto Streaming
+
+Movie News, Dune, Denis Villeneuve, Timothée Chalamet, Sci-Fi
+
+Thu, 26 Mar 2026 21:40:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-franchise-starter-dune-part-one-streaming-success-hbo-max-march-2026/
+
+One of the greatest sci-fi franchise-starters ever made is witnessing a resurgence on streaming as a new installment nears. Find out more here.
+---------
+
+# Taylor Sheridan's New Western Series Pulls 8M Views in Just 12 Days
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus, Michelle Pfeiffer
+
+Thu, 26 Mar 2026 21:28:51 GMT
+
+https://collider.com/taylor-sheridan-the-madison-biggest-series-debut-of-all-time-madison-streaming-record-paramount-plus-march-2026/
+
+Taylor Sheridan's The Madison has officially become the Yellowstone creator's biggest series debut of all time on Paramount+.
+---------
+
+# 67 Years Later, This Free-To-Watch Sci-Fi Series Is So Good You Can Start With Any Episode
+
+TV Features, The Twilight Zone, Rod Serling, CBS, Sci-Fi
+
+Thu, 26 Mar 2026 21:27:12 GMT
+
+https://collider.com/twilight-zone-sci-fi-series-start-with-any-episode-free-to-watch/
+
+Discover the timeless sci-fi anthology series The Twilight Zone, created by Rod Serling in 1959, now available for free streaming on Tubi.
+---------
+
+# 'Harry Potter' HBO Teaser Trailer Details and Easter Eggs
+
+TV Lists, Harry Potter
+
+Thu, 26 Mar 2026 21:47:31 GMT
+
+https://movieweb.com/harry-potter-teaser-easter-eggs/
+
+HBO's new 'Harry Potter' trailer is rife with exciting Easter eggs that only a true Potterhead could spot.
+---------
+
+# Robert Englund Returns to 'Stranger Things' for Animated Spin-Off in New Rol
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Robert Englund
+
+Thu, 26 Mar 2026 21:33:47 GMT
+
+https://movieweb.com/stranger-things-spin-off-robert-englund/
+
+The Victor Creel actor is taking on the mysterious role of Cosmo for 'Tales from '85.'
+---------
+
 # 8 Ways Dragon Ball Z Has Aged Like Fine Wine
 
 Anime, Dragon Ball Z, Dragon Ball
