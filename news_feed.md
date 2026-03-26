@@ -1,3 +1,377 @@
+# Xbox Partner Preview March 2026 Live Updates: All Announcements & New Game Reveals
+
+Gaming, Xbox Series X/S, Triple-A Games, PC
+
+Thu, 26 Mar 2026 16:50:19 GMT
+
+https://screenrant.com/xbox-partner-preview-march-2026-live-blog/
+
+Xbox's March 2026 Partner Preview is here, and Screen Rant's live-blog of the showcase has all the big updates and reveals as they happen.
+---------
+
+# Taylor Sheridan's American Frontier Neo-Western Movie Trilogy, Ranked
+
+Movies, Taylor Sheridan, Quiz CV, Hell or High Water, Sicario, Wind River
+
+Thu, 26 Mar 2026 16:45:23 GMT
+
+https://screenrant.com/taylor-sheridan-american-frontier-sicario-hell-high-water-wind-river-ranked/
+
+Taylor Sheridan's unofficial American Frontier trilogy comprises the three gritty neo-Westerns that made his career, including 2015's Sicario.
+---------
+
+# Ryan Coogler's X-Files Officially Casts Mulder Replacement Opposite Danielle Deadwyler
+
+TV, The X-Files
+
+Thu, 26 Mar 2026 16:37:50 GMT
+
+https://screenrant.com/ryan-coogler-x-files-himesh-patel-mulder-replacement-confirmed/
+
+Ryan Coogler's X-Files reboot has found its Fox Mulder replacement, with a Christopher Nolan favorite joining Danielle Deadwyler as a co-lead.
+---------
+
+# 2 Of The Greatest Fantasy Franchises Of All Time Are Officially Back
+
+TV, The Lord of the Rings, Harry Potter
+
+Thu, 26 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/harry-potter-lord-of-the-rings-new-show-movies-franchise-back/
+
+Two of the fantasy genre's biggest and most iconic franchises are well and truly back in 2026 with long-awaited additions to their original stories.
+---------
+
+# Fan-Favorite James Bond Contender Cast In Netflix's New Spy Thriller With First Look
+
+TV, Netflix
+
+Thu, 26 Mar 2026 16:19:01 GMT
+
+https://screenrant.com/the-lords-day-netflix-series-damson-idris-casting-plot-details-confirmed/
+
+A fan-favorite James Bond contender has officially been cast in Netflix's new spy thriller, with the first look at the series being revealed.
+---------
+
+# Is Marvel’s Latest 2026 Release Setting Up The Avengers’ New Member?
+
+Superheroes, The Avengers, Marvel Cinematic Universe, Daredevil: Born Again
+
+Thu, 26 Mar 2026 16:15:18 GMT
+
+https://screenrant.com/marvel-2026-release-new-avengers-member-mcu-debut/
+
+The Marvel Cinematic Universe's latest 2026 release might be teasing that a major character could be joining the New Avengers, which would be fitting.
+---------
+
+# Everything We Know About Jujutsu Kaisen Season 4: The Culling Game Part 2
+
+Anime, Jujutsu Kaisen
+
+Thu, 26 Mar 2026 16:13:31 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-3-part-2-latest-news/
+
+Jujutsu Kaisen Season 3 just ended, but the anime is far from over. Here's everything that fans should know about Jujutsu Kaisen Season 4's release.
+---------
+
+# Prime Video's New TV Adaptation Of 44-Year-Old Bestseller Gets First Trailer For House Of Spirits
+
+TV
+
+Thu, 26 Mar 2026 16:11:21 GMT
+
+https://screenrant.com/house-of-spirits-show-trailer-prime-video/
+
+Prime Video's ight-episode Spanish-language drama gets a first trailer, previewing the first television adaptation of an enduring novel.
+---------
+
+# Stranger Things Spinoff 'Tales From '85' Recasts Original Villain Actor for New Role
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Thu, 26 Mar 2026 16:07:53 GMT
+
+https://screenrant.com/og-stranger-things-villain-actor-officially-recast-as-new-character-in-netflixs-first-spinoff-series/
+
+Robert Englund, who played Victor Creel in Stranger Things season 4, is set to voice a new character in the upcoming Netflix spinoff series, Tales From '85, after the show's creators recast his role.
+---------
+
+# PlayStation 5 Gamers Losing It Over Remake Of Definitive PS2 Classic
+
+Gaming, PlayStation 2, PlayStation 5, Jak and Daxter, Triple-A Games
+
+Thu, 26 Mar 2026 16:06:37 GMT
+
+https://screenrant.com/playstation-ps2-jak-daxter-ps5-remake-pitch/
+
+Some of PlayStatin's once iconic characters and franchises are stuck in the past, but an attempted remake is proving to be divisive among fans.
+---------
+
+# PlayStation Officially Unveils Pricing Changes Starting March 2026
+
+Games, PlayStation 5
+
+Thu, 26 Mar 2026 16:50:09 GMT
+
+https://www.cbr.com/playstation-dynamic-pricing-changes/
+
+PlayStation has rolled out a new pricing system that's sparked some criticism from gamers.
+---------
+
+# The Chronicles of Narnia’s Lion, Witch and Wardrobe Remains a Forgotten Fantasy Gem
+
+Movies, The Chronicles of Narnia, Fantasy
+
+Thu, 26 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/the-chronicles-of-narnia-fantasy-gem/
+
+The Chronicles of Narnia is a beloved fantasy series that, even with Liam Neeson, continues to be forgotten by the masses.
+---------
+
+# The End of Oak Street   Official Teaser Trailer
+
+Movies, anne hathaway, Jurassic Park
+
+Thu, 26 Mar 2026 16:26:10 GMT
+
+https://www.cbr.com/video/the-end-of-oak-street-teaser/
+
+Warner Bros. released the official teaser for The End of Oak Street
+---------
+
+# Prime Video's God of War Series Casts Sonya Walger as Freya
+
+TV, God of War, Prime Video
+
+Thu, 26 Mar 2026 16:20:49 GMT
+
+https://www.cbr.com/god-of-war-prime-video-series-cast-sonya-walger-freya/
+
+Lost actress Sonya Walger joins the cast of Prime Video's live-action God of War series as a recurring guest star playing Freya.
+---------
+
+# Jujutsu Kaisen Season 4 (Culling Game Part 2) Officially Confirmed
+
+Anime, Jujutsu Kaisen, Crunchyroll, Shonen Jump
+
+Thu, 26 Mar 2026 16:18:46 GMT
+
+https://www.cbr.com/jujutsu-kaisen-season-4-culling-game-part-2-confirm/
+
+Jujutsu Kaisen: The Culling Game: Part 2 officially confirmed following the explosive Season 3 anime finale.
+---------
+
+# Jujutsu Kaisen's Yuta Okkotsu Puts Special Grade Into Perspective
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime
+
+Thu, 26 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-special-grade-sorcerer-yuta-okkotsu/
+
+As Jujutsu Kaisen Season 3, Cour 1, draws to a close, fans will finally get a real look at why Yuta Okkotsu is ranked Special Grade.
+---------
+
+# Zazie Beetz & Patricia Arquette Get Real About On-Set Injuries
+
+Movies, They Will Kill You
+
+Thu, 26 Mar 2026 16:02:48 GMT
+
+https://www.cbr.com/video/zazie-beetz-patricia-arquette-get-real-about-on-set-injuries/
+
+Zazie Beetz and Patricia Arquette break down They Will Kill You and its brutally dark tone right from the start.From shocking moments to nonstop action, the cast gets candid about what makes this film hit so hard.Beetz dives into the realities of filming intense fight scenes, including how camera tricks sell the impact and what happens when things go wrong. Arquette highlights the physical grind behind the role, while both unpack the psychology driving Lily’s choices. Plus, the unexpected challenge of going barefoot through chaos.
+---------
+
+# Overhated & Underrated: Kingsman: The Golden Circle is an Overhated Comic Book Adaptation
+
+Movies, Overhated & Underrated, Kingsman: The Golden Circle
+
+Thu, 26 Mar 2026 16:01:12 GMT
+
+https://www.cbr.com/overhated-underrated-kingsman-2-golden-circle/
+
+Comic book movies often get the short end of the stick, and one fun adaptation was overhated and deserved better.
+---------
+
+# The Punisher: One Last Kill is Already Confirming the Character's Biggest Problem Hasn't Changed
+
+TV, Daredevil: Born Again, The Punisher Special Presentation, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 16:01:12 GMT
+
+https://www.cbr.com/marvel-confirm-jon-bernthal-punisher-problem-one-last-kill/
+
+Jon Bernthal's Punisher special presentation, One Last Kill, is already proving that the character's biggest shortcoming hasn't changed a bit.
+---------
+
+# Marvel’s Biggest Spider-Man Comic of 2026 Nearly Took Inspiration from Sam Raimi’s Timeless Classic
+
+Comics, Spider-Man 2
+
+Thu, 26 Mar 2026 16:01:12 GMT
+
+https://www.cbr.com/amazing-spider-man-1000-sam-raimi-spider-man-2-scrapped-homage/
+
+Sam Raimi, you are a genius.
+---------
+
+# Ewan McGregor Officially Returns to Sci-Fi With First Trailer for New Dinosaur Thriller
+
+Movie News, Ewan McGregor, Anne Hathaway, Sci-Fi, J.J. Abrams
+
+Thu, 26 Mar 2026 16:45:10 GMT
+
+https://collider.com/ewan-mcgregor-sci-fi-movie-the-end-of-oak-street-trailer/
+
+Star Wars icon Ewan McGregor returns to sci-fi in the first trailer for the J.J. Abrams-produced The End of Oak Street. See it here!
+---------
+
+# Only 3 Movie Trilogies Are Better Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Before Sunset, Star Wars: Episode IV - A New Hope, Toy Story
+
+Thu, 26 Mar 2026 16:21:12 GMT
+
+https://collider.com/movie-trilogies-better-than-the-lord-of-the-rings/
+
+Peter Jackson's The Lord of the Rings is generally considered the apex of film trilogies for good reason, but three trilogies are even better.
+---------
+
+# Prime Video's 'God of War' Officially Finds Perfect Freya in 'For All Mankind' Star
+
+TV News, God of War, Prime Video, Sonya Walger, Video Game
+
+Thu, 26 Mar 2026 16:19:41 GMT
+
+https://collider.com/god-of-war-cast-freya-sonya-walger-prime-video-series-adaptation/
+
+Prime Video's God of War series has officially found the perfect Freya in For All Mankind and Lost star Sonya Walger. Get all the details here.
+---------
+
+# ‘Pacific Rim’ Officially Returns With New Release on May 5 [Exclusive]
+
+Exclusives, Pacific Rim, Pacific Rim: Uprising, Guillermo del Toro, Comics
+
+Thu, 26 Mar 2026 16:09:59 GMT
+
+https://collider.com/new-pacific-rim-release-graphic-novel-final-breach-raleigh-becket/
+
+Discover the latest addition to the Pacific Rim universe with the new graphic novel, Pacific Rim: Final Breach, featuring a new wave of Kaiju attacks.
+---------
+
+# Netflix’s ‘Man on Fire’ Reboot Gets First Action-Packed Sneak Peek Ahead of April 30 Release [Exclusive]
+
+TV News, Man on Fire, Yahya Abdul-Mateen II, Scoot McNairy, Netflix
+
+Thu, 26 Mar 2026 16:00:12 GMT
+
+https://collider.com/netflix-man-on-fire-series-sneak-peek-yahya-adbul-mateen-ii/
+
+Watch an exclusive preview clip from Netflix's Man on Fire, showcasing Yahya Abdul-Mateen II's John Creasy in action, ahead of the April 30 release.
+---------
+
+# The Best Crime Thriller on TV Just Upped the Stakes as Season 4 Comes to an End [Exclusive]
+
+Exclusives, Dark Winds, AMC, Titus Welliver, Zahn McClarnon
+
+Thu, 26 Mar 2026 16:00:12 GMT
+
+https://collider.com/dark-winds-season-4-episode-7-sneak-peek/
+
+Dark Winds Season 4 is heading into its penultimate episode, and Collider has an exclusive first look at the high-stakes new chapter airing March 29.
+---------
+
+# Before 'Avatar: Fire and Ash’ Hits Digital on March 31 You Can Get a Stunning Look Behind the Scenes [Exclusive]
+
+Movie News, Avatar: Fire and Ash, James Cameron, Avatar: The Way of Water, Avatar
+
+Thu, 26 Mar 2026 16:00:12 GMT
+
+https://collider.com/avatar-fire-and-ash-behind-the-scenes-sneak-peek-visual-effects-digital-release-march-31/
+
+Disney has released a new behind-the-scenes sneak peek, showing how Avatar: Fire and Ash's VFX team brought the fire in the film to life.
+---------
+
+# MGM+ Has Quietly Become One of the Best Places for Prestige TV on Streaming
+
+Exclusives, MGM, From, SAS: Rogue Heroes, Robin Hood
+
+Thu, 26 Mar 2026 16:00:12 GMT
+
+https://collider.com/mgm-plus-has-become-one-of-the-best-places-for-prestige-tv-on-streaming/
+
+MGM+ president Michael Wright delves into how the streamer is living up to the legacy of the MGM brand by delivering quality storytelling.
+---------
+
+# ‘NCIS’ Star Sean Murray Reflects on McGee’s Evolution After 500 Episodes [Exclusive]
+
+Exclusives, NCIS, Sean Murray, Collider Rewind
+
+Thu, 26 Mar 2026 16:00:12 GMT
+
+https://collider.com/ncis-500-episodes-timothy-mcgee-sean-murray-hasnt-gotten-bored-in-20-years/
+
+NCIS star Sean Murray discusses the show's 500 episodes, his character Timothy McGee's growth, and the potential of McGee's tie-in novels.
+---------
+
+# Say Goodbye To This Fan-Favorite Character in New 'The Boys' Release [Exclusive]
+
+TV News, The Boys, Prime Video, Karl Urban, Antony Starr
+
+Thu, 26 Mar 2026 16:00:12 GMT
+
+https://collider.com/new-the-boys-vr-project-trigger-warning-details-frenchie-hughie-soldier-boy-not-included/
+
+The creators of the next project in The Boys universe reveal a fan-favorite character that didn't make the final cut.
+---------
+
+# Netflix Horror Thriller 'Something Very Bad Is Going to Happen' Lands Fresh Rotten Tomatoes Score
+
+TV News, Something Very Bad Is Going to Happen, Netflix
+
+Thu, 26 Mar 2026 16:40:35 GMT
+
+https://movieweb.com/something-very-bad-is-going-to-happen-rotten-tomatoes/
+
+The new series executive produced by the Duffer Brothers lands on Netflix today.
+---------
+
+# Bryan Singer's First Movie in Nearly a Decade Now in Theaters
+
+Movie News
+
+Thu, 26 Mar 2026 16:30:49 GMT
+
+https://movieweb.com/bryan-singer-historical-thriller-monument/
+
+The film promotes discussion about Israel, then and now.
+---------
+
+# 'The X-Files' Creator's Canceled 'Harsh Realm' Sci-Fi Series Hits Hard
+
+Features, The X-Files, harsh realm, Chris Carter, Sci-Fi
+
+Thu, 26 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/x-files-harsh-realm-sci-fi-series/
+
+Creator of 'The X-Files', Chris Carter, was also behind a short-lived series with bold sci-fi ideas that hit even harder now.
+---------
+
+# Best Romance Anime Where the Couple Gets Together Early
+
+TV Lists, Anime
+
+Thu, 26 Mar 2026 16:00:16 GMT
+
+https://movieweb.com/best-romance-anime-where-the-couple-gets-together-early/
+
+These romance anime series stand out because they explore everything that comes after the big moment.
+---------
+
 # Why Disney+'s #1 Action Show Is Taking Over The World (New Episode Out Now)
 
 Streaming TV, Daredevil: Born Again, Daredevil, Disney+
