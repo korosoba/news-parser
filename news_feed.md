@@ -1,3 +1,25 @@
+# The Greatest R-Rated Superhero Movie Ever Made Returns to Streaming Soon
+
+Movie News, Aaron Taylor-Johnson, Superhero, Plex, Kick-Ass
+
+Thu, 26 Mar 2026 08:30:12 GMT
+
+https://collider.com/aaron-taylor-johnson-violent-superhero-movie-kick-ass-streaming-plex-april-2026/
+
+Aaron Taylor-Johnson's violent R-rated superhero gem, Kick-Ass, is heading to a new streamer next month. Read on for more details.
+---------
+
+# 9 Years Later, Rebecca Ferguon's Most Divisive Sci-Fi Horror Movie Is Trending Worldwide Again
+
+Movie News, Rebecca Ferguson, Life, Peaky Blinders: The Immortal Man, Dune: Part Three
+
+Thu, 26 Mar 2026 08:00:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-disaster-life-free-streaming-success-tubi-march-2026/
+
+Nearly 10 years later, Rebecca Ferguson's sci-fi horror film Life is experiencing a surge in popularity on a free streaming platform in the U.S.
+---------
+
 # Star Trek: Starfleet Academy Cancellation Explained By Robert Picardo
 
 TV, Star Trek, Star Trek: Starfleet Academy
