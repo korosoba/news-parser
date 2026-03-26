@@ -1,3 +1,267 @@
+# The Harry Potter TV Show Trailer Has A Hidden Ginny Weasley Cameo
+
+Streaming TV, Harry Potter
+
+Thu, 26 Mar 2026 20:08:54 GMT
+
+https://screenrant.com/harry-potter-tv-show-trailer-ginny/
+
+The first trailer for HBO's Harry Potter series is out, and it's full of fan-favorite characters, including a blink-and-you'll-miss-her Ginny Weasley.
+---------
+
+# Apple TV's New Sci-Fi Thriller Based On Popular Comics Series Casts Two Major Marvel Stars In Leading Roles
+
+Movies, Apple TV
+
+Thu, 26 Mar 2026 20:08:09 GMT
+
+https://screenrant.com/liminal-apple-tv-show-vanessa-kirby-abdul-mateen-ii-casting-plot-details/
+
+Two recent cast members of the Marvel Cinematic Universe are teaming up for a new sci-fi thriller on Apple TV that’s adapting a graphic novel.
+---------
+
+# Netflix's New Crime Series Based On Best-Selling Novels Debuts To Rare Perfect Rotten Tomatoes Score
+
+TV, Joe Nesbø's Detective Hole
+
+Thu, 26 Mar 2026 20:03:43 GMT
+
+https://screenrant.com/detective-hole-show-netflix-rotten-tomatoes-score-debut/
+
+As it debuts with eight episodes on Netflix, a high-profile crime drama adaptation has debuted with a rare Rotten Tomatoes achievement.
+---------
+
+# Regular Show Revival: The Lost Tapes Spinoff Set to Rewrite Canon in 2026
+
+Streaming TV, Regular Show
+
+Thu, 26 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/regular-show-the-lost-tapes-prequel-rewriting-canon/
+
+Regular Show is coming back in 2026 with a spinoff series called The Lost Tapes, and it seems to be rewriting the classic cartoon's canon.
+---------
+
+# Tom Waaler's Fate In Detective Hole Season 1's Ending Explained By Joel Kinnaman
+
+TV, Joe Nesbø's Detective Hole, Jo Nesbo's Detective Hole - Season 1, Joel Kinnaman, Netflix
+
+Thu, 26 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/detective-hole-season-1-tom-waaler-fate-explained-joel-kinnaman/
+
+Exclusive: Joel Kinnaman explains Tom Waaler's fate in the Detective Hole season 1 ending and the shocking end to the character's story.
+---------
+
+# The Cartoon That Raised Generations Resurfaces on Digital Charts Ahead of Netflix Live-Action Reboot
+
+TV, Scooby-Doo
+
+Thu, 26 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/scooby-doo-cartoons-apple-store-success-march-2026/
+
+No matter the generation, there will always be an audience for Scooby-Doo.
+---------
+
+# Dragon Ball Officially Brings Back Its Original Ending 'Just as Akira Toriyama Had Imagined'
+
+Anime, Dragon Ball, weekly shonen jump
+
+Thu, 26 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/dragon-ball-original-ending-akira-toriyama-line-art/
+
+Fans get an official trip back in time to celebrate the end of the original Dragon Ball manga 'just as Akira Toriyama had imagined' over 30 years ago.
+---------
+
+# 30 Riskiest R-Rated Romance Movies of All Time
+
+Movies, Basic Instinct, The Shape of Water, Romance, Cruel Intentions, Interview with the Vampire
+
+Thu, 26 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/riskiest-r-rated-romance-movies-ever/
+
+Romance movies with a hard R rating sparked controversy for their content, from The Shape of Water to Basic Instinct.
+---------
+
+# Jennifer Garner Shines in The Last Thing He Told Me Episode 206 Clip
+
+TV, The Last Thing He Told Me
+
+Thu, 26 Mar 2026 20:30:09 GMT
+
+https://www.cbr.com/the-last-thing-he-told-me-clip-season-2-episode-6/
+
+Exclusive: A sneak peek at episode 206 reveals a tense clip of Jennifer Garner and Nikolaj Coster-Waldau going undercover.
+---------
+
+# 40 Best Cross-Platform Games To Play Right Now, Ranked
+
+Games, Multiplayer Games
+
+Thu, 26 Mar 2026 20:15:44 GMT
+
+https://www.cbr.com/best-crossplatform-video-games/
+
+Online multiplayer games like Marvel Rivals, Minecraft, Fortnite, and Final Fantasy XIV let players from different consoles and PC play together.
+---------
+
+# Chainsaw Man's Ending is a Lie
+
+Anime, Chainsaw Man
+
+Thu, 26 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/chainsaw-man-manga-ending-nightmare-theory/
+
+Tatsuki Fujimoto and Shonen Jump have successfully tricked every fan of the Chainsaw Man manga.
+---------
+
+# After 1 Day, Daredevil: Born Again Is the Most Popular TV Show in the World
+
+Superheroes, Daredevil: Born Again, MCU, Disney+
+
+Thu, 26 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-streaming-success-disney-march-2026-mcu/
+
+Just one day after its premiere, Daredevil: Born Again Season 2 is already dominating the streaming charts.
+---------
+
+# The Muschiettis Break Down Their Horror Formula in They Will Kill You
+
+Movies, They Will Kill You
+
+Thu, 26 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/video/the-muschiettis-break-down-their-horror-formula-in-they-will-kill-you/
+
+The Muschietti horror formula is more than just scares. Andy and Barbara Muschietti break down what defines They Will Kill You and why their films always hit emotionally.From blending horror with humor and heart to pushing boundaries that other filmmakers might avoid, the duo explains their creative instincts and how they choose projects worth protecting.
+---------
+
+# Paramount+'s The Naked Gun Still Needs a Sequel
+
+Movies, Paramount, The Naked Gun
+
+Thu, 26 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/paramount-the-naked-gun-needs-a-sequel/
+
+Liam Neeson's The Naked Gun was a massive hit when it was released, and yet it's still one movie that Paramount hasn't greenlit for a sequel.
+---------
+
+# Only 3 Sci-Fi Movies Are Better Than '2001: A Space Odyssey'
+
+Movie, Science Fiction, 2001: A Space Odyssey, Solaris, Arrival
+
+Thu, 26 Mar 2026 20:30:12 GMT
+
+https://collider.com/sci-fi-movies-better-than-2001-a-space-odyssey/
+
+Many see 2001: A Space Odyssey as the peak of sci-fi, but films like Arrival and Solaris are better analyses of humanity's role in the cosmic balance.
+---------
+
+# New 'Bosch' Spin-Off Officially Confirms 6 New Key Characters
+
+TV News, Bosch: Start of Watch, Bosch, Bosch: Legacy
+
+Thu, 26 Mar 2026 20:24:31 GMT
+
+https://collider.com/amazon-mgm-plus-bosch-prequel-start-of-watch-cast-saphael-sbarge-seamus-dever-kenneth-miller-marcho-rodriguez-rafi-gavron-ryan-mcpartlin/
+
+Amazon and MGM+'s Bosch prequel, Start of Watch, has rounded out its stellar ensemble cast with stars from Task, Castle, Presumed Innocent, and more.
+---------
+
+# HBO Quietly Confirms New Fantasy Series Will Replace 'The Last of Us'
+
+TV News, The Last of Us, HBO, Baldur's Gate, HBO Max
+
+Thu, 26 Mar 2026 20:12:44 GMT
+
+https://collider.com/hbo-the-last-of-us-season-3-sci-fi-video-game-adaptation-ending-casey-bloys/
+
+HBO boss Casey Bloys has indicated that The Last of Us will likely end with Season 3 as Craig Mazin starts preparing for the Baldur’s Gate series.
+---------
+
+# ‘Mike & Nick & Nick & Alice’ Review: Gangsters + Time Travel + Vince Vaughn x 2 = a Great Comedic Thriller
+
+Movie Reviews, Mike & Nick & Nick & Alice, Vince Vaughn, Eiza Gonzalez, James Marsden
+
+Thu, 26 Mar 2026 20:09:36 GMT
+
+https://collider.com/mike-nick-nick-alice-review-vince-vaughn/
+
+Mike & Nick & Nick & Alice, starring Vince Vaughn and James Marsden, is a ridiculously fun gangster-time-travel-comedy-thriller.
+---------
+
+# Netflix Quietly Confirms Ruthless New Price Hike for All U.S. Subscribers
+
+Movie News, Netflix, War Machine, Bridgerton, One Piece
+
+Thu, 26 Mar 2026 20:06:15 GMT
+
+https://collider.com/netflix-us-subscription-price-increase-2026/
+
+Netflix has officially confirmed yet another major price increase for all three of its subscription tiers in the U.S. Read on for more details.
+---------
+
+# 'NCIS' Star Reveals How Mark Harmon Helped Her Feel Like Part of the Cast
+
+Collider Rewind
+
+Thu, 26 Mar 2026 20:00:12 GMT
+
+https://collider.com/ncis-500-episode-milestone-diona-reasonover-remembering-david-mccalum-joining-cast/
+
+NCIS actress Diona Reasonover discusses the show's 500th episode, Kasie Hines' character development, and the passionate fanbase.
+---------
+
+# Meta Action Horror Remake 'Anaconda' Reaches Top of Netflix's Streaming Chart
+
+Movie News, Anaconda
+
+Thu, 26 Mar 2026 20:30:17 GMT
+
+https://movieweb.com/anaconda-netflix-streaming-march-2026/
+
+'Anaconda,' starring Jack Black and Paul Rudd, hit Netflix this month, and it is already dominating the streaming platform in the United States.
+---------
+
+# Chris Evans Seemingly Confirms MCU Future With ‘Avengers: Secret Wars’ Return
+
+Movie News, Avengers: Secret Wars, Chris Evans, MCU
+
+Thu, 26 Mar 2026 20:06:58 GMT
+
+https://movieweb.com/chris-evans-avengers-secret-wars-return/
+
+If an apparent message from Chris Evans is to be believed, he will play a role in 2027's 'Avengers: Secret Wars.'
+---------
+
+# After 'Project Hail Mary,' Danny Boyle's 'Sunshine' Is the Perfect Follow-up
+
+Movie News, Sunshine, Coming/Leaving Streaming, Project Hail Mary, Sci-Fi
+
+Thu, 26 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/project-hail-mary-sci-fi-thriller-sunshine-perfect-follow-up/
+
+Following the optimism of 'Project Hail Mary,' sci-fi lovers should check out Boyle's 'Sunshine' for a differing viewpoint on a similar subject.
+---------
+
+# 'Project Hail Mary's Soundtrack: Every Song & When It Plays
+
+Features, Project Hail Mary
+
+Thu, 26 Mar 2026 20:00:17 GMT
+
+https://movieweb.com/project-hail-mary-soundtrack-every-song/
+
+'Project Hail Mary,' the sci-fi movie directed by Phil Lord and Christopher Miller and starring Ryan Gosling, has an incredible score and soundtrack.
+---------
+
 # Disney's First Live-Action Remake Is Nothing Like The Rest Of Them
 
 Movies, The Jungle Book
