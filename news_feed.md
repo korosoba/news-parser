@@ -1,3 +1,256 @@
+# Why Disney+'s #1 Action Show Is Taking Over The World (New Episode Out Now)
+
+Streaming TV, Daredevil: Born Again, Daredevil, Disney+
+
+Thu, 26 Mar 2026 15:37:24 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-streaming-success-disney-plus-march-2026/
+
+The long-awaited return of one of the best action shows to grace Disney+ has proved in a single episode why it's the pinnacle of its genre.
+---------
+
+# Project Hail Mary Becomes Ryan Gosling's 4th Movie Ever To Hit Major Box Office Milestone
+
+Movies, Project Hail Mary, Ryan Gosling
+
+Thu, 26 Mar 2026 15:31:29 GMT
+
+https://screenrant.com/project-hail-mary-box-office-100-million-milestone-ryan-gosling/
+
+Ryan Gosling’s new film, Project Hail Mary, is a huge hit at the box office and has reached an impressive new milestone for the movie star.
+---------
+
+# Fox McCloud's Role In The Super Mario Galaxy Movie Brings Us 1 Step Closer To A Dream Nintendo Crossover
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Thu, 26 Mar 2026 15:31:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-fox-mccloud-smash-bros-closer/
+
+The Super Mario Galaxy Movie is officially bringing Fox McCloud into the franchise, making a dream Nintendo movie much closer to a reality.
+---------
+
+# Netflix's New Action Fantasy Series Looks Worth The Hype Ahead Of 6-Episode Premiere Next Week
+
+TV, Agent from Above, Netflix
+
+Thu, 26 Mar 2026 15:31:20 GMT
+
+https://screenrant.com/agent-from-above-action-fantasy-netflix-must-watch/
+
+With a conflicted antihero, a rich fantasy world, and a trailer full of action, Netflix's upcoming fantasy show is shaping up to be a must-watch.
+---------
+
+# Netflix Confirms City Hunter 2 Sequel Release in 2027
+
+Movies, City Hunter
+
+Thu, 26 Mar 2026 15:23:36 GMT
+
+https://screenrant.com/city-hunter-2-release-window-netflix-confirmed/
+
+Netflix announces a sequel to the hit live-action crime thriller City Hunter, starring Ryohei Suzuki, set to release in 2027, expanding the original manga's story with a new mission.
+---------
+
+# New Demon Slayer Streaming Update Finally Makes the Series’ Best Film Available For Free
+
+Anime, Demon Slayer, Demon Slayer the Movie: Mugen Train
+
+Thu, 26 Mar 2026 15:17:09 GMT
+
+https://screenrant.com/demon-slayer-mugen-train-streaming-free/
+
+Demon Slayer's biggest and best movie is now available to stream, and it is entirely free to watch ahead of the upcoming series finale flims.
+---------
+
+# Nathan Fillion's Hit 8-Part Crime Series Officially Dethrones Hulu's Popular New Sci-Fi Thriller
+
+TV, The Rookie, Paradise, Hulu
+
+Thu, 26 Mar 2026 15:13:23 GMT
+
+https://screenrant.com/the-rookie-streaming-success-paradise-comparison-march-2026/
+
+After the announcement of Firefly's return, Nathan Fillion keeps winning as his fan-favorite crime series dethrones Hulu's major sci-fi show.
+---------
+
+# Forbidden Fruits Review: Sisterhood Gets Sinister In Campy Mall Horror
+
+Movies, Forbidden Fruits
+
+Thu, 26 Mar 2026 15:12:45 GMT
+
+https://screenrant.com/forbidden-fruits-2026-movie-review/
+
+Forbidden Fruits brings horror back to the mall for a nihilistic spin on witchcraft, female friendship, and mean girls perfect for our bleak times.
+---------
+
+# Harry Hole's Book Return & New Plot Details Revealed By Author Ahead Of Netflix's 9-Part Adaptation
+
+TV, Joe Nesbø's Detective Hole
+
+Thu, 26 Mar 2026 15:09:48 GMT
+
+https://screenrant.com/harry-hole-book-14-return-plot-details-revealed-jo-nesbo/
+
+Exclusive: Author Jo Nesbø confirms fan-favorite detective Harry Hole is returning for a new book and shares new plot details for the next case.
+---------
+
+# Kevin Kline Begs Laura Linney To Save Theater In American Classic Clip
+
+Videos, American Classic, Kevin Kline, Laura Linney
+
+Thu, 26 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/video/american-classic-episode-6-kevin-kline-laura-linney-clip/
+
+Exclusive: ScreenRant presents a clip from American Classic, where Richard Bean (Kevin Kline) asks the mayor (Laura Linney) to join a local play.
+---------
+
+# Stranger Things Tales From ’85 Trailer: The Upside Down Threat Continues
+
+TV, Stranger Things: Tales from '85, Netflix, Sci-Fi
+
+Thu, 26 Mar 2026 15:44:00 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-trailer-netflix/
+
+Netflix releases trailer for Stranger Things animated spinoff Tales from '85, confirming the threat from the Upside Down isn't over.
+---------
+
+# Project Hail Mary Sequel Gets Encouraging Update
+
+Movies, Project Hail Mary
+
+Thu, 26 Mar 2026 15:42:29 GMT
+
+https://www.cbr.com/project-hail-mary-sequel-gets-encouraging-update-after-record-breaking-launch/
+
+Project Hail Mary Sequel Gets Encouraging Update After Record-Breaking Launch
+---------
+
+# Vote In Our First Very Nintendo Week Throwdown
+
+Movies, Nintendo, Video Games, Mario
+
+Thu, 26 Mar 2026 15:21:37 GMT
+
+https://www.cbr.com/nintendo-week-throwdown-vote-your-favorite-characters/
+
+It's Nintendo Week at CBR! Vote for your all-time favorites and celebrate some of the greatest video game characters of all time.
+---------
+
+# PlayStation's Most Underrated Game Remains an Untouchable Masterpiece
+
+Games, Uncharted, Uncharted The Lost Legacy, PlayStation 4
+
+Thu, 26 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/playstation-most-underrated-game-untouchable-masterpiece-uncharted/
+
+One of the greatest games of the PS4 era doesn't get the credit it deserves.
+---------
+
+# 10 Superhero Anime Better Than Anything DC Has Released in Years
+
+Anime, DCU
+
+Thu, 26 Mar 2026 14:25:46 GMT
+
+https://www.cbr.com/new-superhero-anime-better-than-dc/
+
+Over the past few years, these anime have beat DC at the iconic superhero franchise's own game.
+---------
+
+# James Cameron's Epic New Series Arrives on Disney+ With Stunning New Look [Exclusive]
+
+TV News, James Cameron, National Geographic, Documentary, Exclusive Media
+
+Thu, 26 Mar 2026 15:04:01 GMT
+
+https://collider.com/james-cameron-new-national-geographic-series-sneak-peek-secrets-of-the-bees/
+
+National Geographic's Secrets of the Bees documentary series, executive produced by James Cameron, explores the vital role of bees in the ecosystem.
+---------
+
+# New ‘Stranger Things’ Episodes Officially Hit Netflix Next Month
+
+TV News, Stranger Things: Tales from '85, Netflix, Stranger Things, Duffer Brothers
+
+Thu, 26 Mar 2026 15:00:12 GMT
+
+https://collider.com/netflix-stranger-things-tales-from-85-final-trailer-release-date-april-23/
+
+Netflix has released the final official trailer for Stranger Things: Tales From '85, which begins streaming next month.
+---------
+
+# 'Sully' Meets 'Deep Blue Sea' in Twisted New Shark-Infested Thriller Trailer [Exclusive]
+
+Movie News, Deep Water, Deep Blue Sea, Aaron Eckhart, Ben Kingsley
+
+Thu, 26 Mar 2026 15:00:12 GMT
+
+https://collider.com/shark-thriller-movie-trailer-deep-water-renny-harlin-aaron-eckhart/
+
+Renny Harlin's new film Deep Water, starring Aaron Eckhart & Sir Ben Kingsley, puts plane crash survivors in shark-infested waters. Watch the trailer!
+---------
+
+# Time to Officially Say Goodbye to Joel Kinnaman in Apple TV's Greatest Sci-Fi Series [Exclusive]
+
+TV News, Sci-Fi, For All Mankind, Apple TV, Joel Kinnaman
+
+Thu, 26 Mar 2026 15:00:12 GMT
+
+https://collider.com/for-all-mankind-season-5-epsiode-4-sneak-peek-joel-kinnaman-sean-kaufman/
+
+Watch an exclusive clip of For All Mankind Season 5, showing Joel Kinnaman's Ed Baldwin preparing his grandson for the future of Happy Valley on Mars.
+---------
+
+# 'Stranger Things: Tales From '85' Trailer Unveils Action-Packed Netflix Spin-Off Series
+
+TV News, Stranger Things: Tales from '85, Netflix, Stranger Things
+
+Thu, 26 Mar 2026 15:22:24 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-trailer/
+
+The beloved gang of heroes is back at it to battle more demogorons in the spin-off.
+---------
+
+# 'Super Mario Galaxy Movie' Confirms Star Fox Crossover in Video Game Movie Sequel
+
+Movie News, The Super Mario Galaxy Movie, star fox
+
+Thu, 26 Mar 2026 14:38:09 GMT
+
+https://movieweb.com/super-mario-galaxy-star-fox-first-look/
+
+In a surprising development, Nintendo's Star Fox is now confirmed for a role in the upcoming 'Super Mario Galaxy Movie' for Universal.
+---------
+
+# Prime Video Action Thriller 'Pretty Lethal' Soars to Success on Streaming
+
+Movie News, Pretty Lethal, Hot on Streaming, Prime Video
+
+Thu, 26 Mar 2026 14:33:22 GMT
+
+https://movieweb.com/pretty-lethal-streaming-success-prime-video-march-2026/
+
+Uma Thurman is back as a sadistic ballerina in Prime Video's newest action thriller that's already taking over streaming.
+---------
+
+# 'Buffy' Star Sarah Michelle Gellar Jumps Aboard Action Comedy 'Stop That Train'
+
+Movie News, Stop! That! Train!, Sarah Michelle Gellar, Buffy the Vampire Slayer Sequel Series, Buffy The Vampire Slayer
+
+Thu, 26 Mar 2026 14:25:07 GMT
+
+https://movieweb.com/stop-that-train-sarah-michelle-gellar-cast/
+
+Sarah Michelle Gellar has joined the cast of the action comedy 'Stop That Train' amid Hulu's cancellation of the 'Buffy the Vampire Slayer' reboot.
+---------
+
 # HBO's Harry Potter Series Trailer Confirms The Problem With One Character
 
 TV, Harry Potter, Quiz CV
