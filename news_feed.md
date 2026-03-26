@@ -1,3 +1,168 @@
+# Steam Adds 8 New Free Games You Can Download And Keep Forever
+
+Gaming, Steam, PC
+
+Thu, 26 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/steam-free-games-march-2026-8-new/
+
+Steam is constantly adding brand-new free games to download and keep for PC users across the platform, and there's eight new additions you can grab.
+---------
+
+# 7 Upcoming Horror Shows You Cannot Miss
+
+Streaming TV, Horror
+
+Thu, 26 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/upcoming-horror-shows-you-cannot-miss/
+
+2026 is gearing up to be a big year for horror television. Some shows are just around the corner, and you definitely won't want to miss them.
+---------
+
+# 10 Most Unique Heroes X-Men Has Introduced Since 2000
+
+Comics, X-Men
+
+Thu, 26 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/top-10-most-unique-heroes-x-men-has-introduced-since-2000-ranked/
+
+The 21st century has witnessed the birth of some of Marvel's wildest mutant characters; let's take a look at X-Men's greatest creations since 2000.
+---------
+
+# The Cast & Characters Of New Netflix Mystery, Jo Nesbø's Detective Hole
+
+Streaming TV, Joe Nesbø's Detective Hole
+
+Thu, 26 Mar 2026 22:00:05 GMT
+
+https://screenrant.com/detective-hole-cast-character-guide-who-stars-in-netflixs-jo-nesb-series/
+
+A guide to the cast of Netflix's Detective Hole, based on the Jo Nesbø novel series, including actors like Tobias Santelmann and Joel Kinnaman.
+---------
+
+# 10 One Piece Characters Who Should Have Defeated the Straw Hat Pirates
+
+Anime, One Piece
+
+Thu, 26 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/one-piece-characters-should-have-defeated-straw-hat-pirates/
+
+Without plot armor, the Straw Hat Pirates would have been destroyed by these One Piece villains.
+---------
+
+# HBO Teases Baldur's Gate 3 Adaptation After The Last of Us
+
+TV, Baldur's Gate 3, The Last of Us
+
+Thu, 26 Mar 2026 22:14:49 GMT
+
+https://www.cbr.com/hbo-baldurs-gate-3-series-update/
+
+The future of The Last of Us gets an update with its replacement teased by HBO.
+---------
+
+# Criminal Minds Climbs Streaming Charts on Paramount+ After Renewal
+
+TV, Criminal Minds, Crime, Paramount Plus
+
+Thu, 26 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/criminal-minds-evolution-renewal-crime-drama-paramount-success-march-2026/
+
+Criminal Minds reaches the No. 9 spot on Paramount+ in the U.S. and top 10 in several other countries following Season 20 renewal.
+---------
+
+# They Will Kill You Director Reveals Hidden Practical Effects
+
+Movies, They Will Kill You
+
+Thu, 26 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/video/they-will-kill-you-director-reveals-hidden-practical-effects/
+
+They Will Kill You director Kirill Sokolov reveals the practical effects you definitely missed. From hidden miniatures to a fully practical puppet villain, this horror film leans hard into old-school craft with modern tricks.Sokolov breaks down the symbolic layers behind the Virgil Hotel, inspired by Dante’s Inferno, and why the story is meant to be interpreted by the audience. He also dives into the blend of practical effects and VFX, including puppeteers, prosthetics, and seamless miniatures that even post-production didn’t catch.
+---------
+
+# Guillermo del Toro Is Already Netflix's Perfect Mike Flanagan Replacement
+
+TV, Guillermo del Toro's Cabinet of Curiosities, Horror, Netflix
+
+Thu, 26 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/netflix-cabinet-of-curiosities-perfect-mike-flanagan-replacement/
+
+With Mike Flanagan departing Netflix, there's a lack of great original horror on the streaming service. The answer may come from an Oscar winner.
+---------
+
+# Taylor Sheridan's 2-Part Neo-Western Officially Becomes His Lowest-Rated Series
+
+TV News, Marshals, Luke Grimes, Yellowstone, Taylor Sheridan
+
+Thu, 26 Mar 2026 22:20:12 GMT
+
+https://collider.com/marshals-taylor-sheridan-lowest-audience-score-rotten-tomatoes/
+
+Marshals has become the lowest audience-rated Taylor Sheridan series on Rotten Tomatoes, even as the Yellowstone spin-off continues to perform well.
+---------
+
+# ‘Reacher’ Meets ‘John Wick’ in Chris Pratt’s Bingeworthy Prime Video Thriller Returning This Year
+
+TV News, The Terminal List, Chris Pratt, Reacher, John Wick
+
+Thu, 26 Mar 2026 22:00:12 GMT
+
+https://collider.com/chris-pratt-reacher-meets-john-wick-war-thriller-terminal-list-streaming-success-prime-video-march-2026/
+
+Chris Pratt's bingeworthy Prime Video action series returning this year brings all the best parts of Reacher and John Wick. Read on for more.
+---------
+
+# 7 Sci-Fi Shows We Thought Would Be the Next 'X-Files'
+
+TV, The X-Files, Sci-Fi, Stranger Things, Fringe
+
+Thu, 26 Mar 2026 21:52:12 GMT
+
+https://collider.com/sci-fi-shows-tried-to-be-next-x-files/
+
+After The X-Files initially went off the air, many sci-fi shows tried to fill the void it left, including Netflix's Stranger Things and Fox's Fringe.
+---------
+
+# Netflix's Failed Action Series Is Still a Great Guilty-Pleasure Binge Watch
+
+Features, The Witcher, Netflix, Streaming Recommendations, Fantasy
+
+Thu, 26 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/netflix-the-witcher-failed-fantasy-binge-watch/
+
+Fans might hate it, but this action fantasy adaptation is still an easy binge-watch.
+---------
+
+# 'Scrubs' Just Made a Hilarious Dr. Cox Joke Without Him Even Being There
+
+Features, Scrubs
+
+Thu, 26 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/scrub-revival-funniest-dr-cox-joke/
+
+Dr. Cox hasn't been in the 'Scrubs' revival since the pilot, but the show has still found ways to involve him.
+---------
+
+# Netflix Raises Subscription Prices
+
+TV News, Netflix
+
+Thu, 26 Mar 2026 21:51:55 GMT
+
+https://movieweb.com/netflix-is-changing-its-prices-again-after-failed-warner-bros-deal/
+
+Netflix is raising the prices on all three tiers after previously raising them in 2025, with the highest ad-free tier costing $26.99 a month.
+---------
+
 # Netflix’s 6-Part Psychological Thriller Is Quietly One Of Its Best Shows To Binge
 
 Streaming TV
