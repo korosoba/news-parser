@@ -1,3 +1,190 @@
+# How Finn Can Make His Star Wars Return After John Boyega's Recent Comments
+
+Movies, Star Wars
+
+Thu, 26 Mar 2026 23:15:20 GMT
+
+https://screenrant.com/star-wars-finn-return-john-boyega-comments/
+
+The actor recently stated that he has held talks with Lucasfilm head Dave Filoni about returning to a galaxy far, far, away.
+---------
+
+# HBO's Harry Potter TV Show: Cast, Trailer, Updates & Everything We Know
+
+TV, Harry Potter, Upcoming Releases
+
+Thu, 26 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/harry-potter-hbo-max-show-story-details-updates/
+
+With Harry Potter being remade as a TV show by HBO, find out all the essential info about this new adaptation of the beloved boy wizard's story here.
+---------
+
+# The Vermilion Mask Anime Confirms 2-Part Release
+
+Anime
+
+Thu, 26 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/action-fantasy-shonen-anime-vermilion-mask-release/
+
+The Vermilion Mask is the latest exciting anime to directly follow the debut of One Double-O Studio's Black Torch!
+---------
+
+# Skyrim Meets Minecraft In This Gorgeous New Sandbox RPG
+
+Gaming, The Elder Scrolls V: Skyrim, Minecraft, Indie Games, PC
+
+Thu, 26 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/skyrim-minecraft-lay-of-the-land/
+
+This voxel-based fantasy world could have a lot of appeal for fans of Minecraft and Skyrim, especially if you wish both featured more destruction.
+---------
+
+# Prime Video’s New 6-Part Spy Thriller Is Worth An Easy One-Night Binge
+
+Streaming TV, Prime Video, Bait
+
+Thu, 26 Mar 2026 22:56:20 GMT
+
+https://screenrant.com/prime-video-bait-series-watch/
+
+Bait, the new inventive 6-part series starring Oscar winner Riz Ahmed, is a must-watch Prime Video release with a near-perfect Rotten Tomatoes score.
+---------
+
+# Witch Hat Atelier Official English Dub Cast & Crew
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Thu, 26 Mar 2026 23:16:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-anime-english-dub-cast-crew/
+
+Crunchyroll has just announced that the Witch Hat Atelier English dub is official.
+---------
+
+# 10 Best Anime You Can Watch Without Spending a Single Dime
+
+Anime, Naruto, Sailor Moon, Pokemon, Hunter X Hunter
+
+Thu, 26 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/best-anime-you-can-watch-for-free-online/
+
+Don't fork out for another expensive streaming service, these top-tier anime series are free to watch online.
+---------
+
+# Horror Movie Primate Becomes an Instant Streaming Success on Paramount+
+
+Movies, Primate, Paramount Plus
+
+Thu, 26 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/paramount-plus-primate-streaming-march-2026/
+
+The horror movie is topping the streaming charts upon its arrival on Paramount+.
+---------
+
+# "I'd Be Down": 10 Perfect Roles for Dakota Fanning in the MCU
+
+Movies, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/dakota-fanning-mcu-perfect-roles-list/
+
+Dakota Fanning has revealed she is open to a role in the MCU, and as talented as she is, the sky is the limit for potential roles.
+---------
+
+# HBO’s Harry Potter Reboot Casting Could Redefine Snape’s Origin Story
+
+TV, Harry Potter, Fantasy, HBO Max
+
+Thu, 26 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-snape-origin-story/
+
+With all the hate and severe harassment, stepping into the role of Severus Snape remains a massive challenge for Paapa Essiedu.
+---------
+
+# 'Project Hail Mary's Adaptation Makes Some Massive Changes From the Great Sci-Fi Book
+
+Movie Features, Project Hail Mary, Phil Lord, Christopher Miller, Andy Weir
+
+Thu, 26 Mar 2026 23:21:13 GMT
+
+https://collider.com/project-hail-mary-book-to-movie-adaptation-differences/
+
+Project Hail Mary makes major changes from Andy Weir’s novel to bring this sci-fi story to the big screen.
+---------
+
+# 2 Years Later, Taylor Sheridan’s Most Relentless Series Officially Gets an Amazing Season 3 Update
+
+TV News, Taylor Sheridan, Lioness, Nicole Kidman
+
+Thu, 26 Mar 2026 23:20:12 GMT
+
+https://collider.com/taylor-sheridan-violent-paramout-plus-series-lioness-season-3-update-wraps-filming/
+
+Taylor Sheridan’s Lioness has wrapped filming on Season 3, with cast posts confirming production is complete after a long wait for fans.
+---------
+
+# Netflix’s 8-Part Crime Thriller Is One of the Best Shows on Any Streaming Platform
+
+TV Features, Black Rabbit, Jason Bateman, Jude Law, Netflix
+
+Thu, 26 Mar 2026 23:05:12 GMT
+
+https://collider.com/netflix-black-rabbit-crime-thriller-worth-watching/
+
+Jude Law and Jason Bateman lead this intense Netflix crime drama about family, power, and everything falling apart.
+---------
+
+# 14 Years Later, Jason Statham's 95-Minute Crime Thriller Quietly Surges on Streaming
+
+Movie News, Jason Statham, Safe, Action, The Last of Us
+
+Thu, 26 Mar 2026 23:00:13 GMT
+
+https://collider.com/jason-statham-forgotten-crime-thriller-safe-streaming-success-tubi-march-2026/
+
+Jason Statham's forgotten 95-minute thriller Safe is seeing a surge in streaming viewership over 14 years later. Find out more here.
+---------
+
+# ‘House of David’ Season 1 Recap: What To Remember Before Prime Video’s Biblical Epic Returns
+
+TV Features, House of David, Prime Video, Stephen Lang, Ayelet Zurer
+
+Thu, 26 Mar 2026 22:58:12 GMT
+
+https://collider.com/house-of-david-season-1-recap-prime-video/
+
+We recap Season 1 of House of David,  including David's rise, Saul's fall, and the epic battle with Goliath, before Season 2 premieres on Prime Video.
+---------
+
+# 'Starfleet Academy's Graduation Tease Suggests Season 2 Will Provide a Satisfying Ending
+
+Features, Star Trek: Starfleet Academy, Star Trek
+
+Thu, 26 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/starfleet-academy-season-1-finale-tease/
+
+'Star Trek: Starfleet Academy' Season 1 ended in a way that could save Season 2 from a frustrating fate. Read on for more.
+---------
+
+# Matt Damon's Cyberpunk Sci-Fi Action Thriller 'Elysium' Removed From Streaming by Netflix in April
+
+Movie News, Elysium, Netflix, Coming/Leaving Streaming, Sci-Fi
+
+Thu, 26 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/elysium-leaving-streaming-netflix-april-2026-sci-fi/
+
+'District 9's cyberpunk sci-fi action thriller follow-up 'Elysium' starring Matt Damon will be removed from streaming by Netflix in April.
+---------
+
 # Zazie Beetz Had "No Days Off" Filming Action-Horror Epic
 
 Movies, They Will Kill You, Zazie Beetz, SXSW
