@@ -1,3 +1,322 @@
+# How Avengers: Doomsday Losing IMAX To Dune 3 Will Impact Its Box Office, Explained
+
+New Movies, Dune: Part Three, Avengers: Doomsday, Box Office, Explainer
+
+Thu, 26 Mar 2026 17:48:22 GMT
+
+https://screenrant.com/avengers-doomsday-dune-3-box-office-imax-dunesday-impact-explained/
+
+How much does IMAX really matter to the upcoming “Dunesday” box office battle? New tracking and projection data reveal its true impact.
+---------
+
+# 1 Year Later, Avengers: Doomsday's Chair Reveal Has Become Worse
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 17:45:20 GMT
+
+https://screenrant.com/avengers-doomsday-chair-reveal-worse-one-year-later/
+
+Avengers: Doomsday's chair video revealing the movie's ensemble cast happened one year ago today. The divisive move has become even worse by now.
+---------
+
+# Xbox Reveals 14 Day-One Game Pass Releases
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Thu, 26 Mar 2026 17:41:26 GMT
+
+https://screenrant.com/xbox-reveals-x-day-one-game-pass-releases/
+
+During the Xbox Partner Preview in March, we got a look at a bunch of new games coming to Xbox Game Pass in the near future and beyond.
+---------
+
+# Lord Of The Rings' New Sequel Must Finally Adapt The Trilogy's Biggest Missing Book Character
+
+Movies, The Lord of the Rings
+
+Thu, 26 Mar 2026 17:15:18 GMT
+
+https://screenrant.com/lord-of-the-rings-new-movie-adapt-tom-bombadil/
+
+A new movie is being added to Peter Jackson's The Lord of the Rings franchise, and it has little choice but to include a major missing book character.
+---------
+
+# Ryan Gosling To Star In Secret New Sci-Fi Movie From Everything Everywhere All At Once Directing Duo The Daniels
+
+Movies, Ryan Gosling
+
+Thu, 26 Mar 2026 17:15:10 GMT
+
+https://screenrant.com/the-daniels-next-movie-ryan-gosling-cast/
+
+Following the box office success of Project Hail Mary, Ryan Gosling has now lined up a new movie that will be directed by The Daniels.
+---------
+
+# HBO Proves It's Officially Throwing Petunia Dursley's Potential Harry Potter Redemption Out The Window
+
+Streaming TV, Harry Potter
+
+Thu, 26 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/harry-potter-tv-show-hbo-no-petunia-redemption/
+
+HBO's Harry Potter remake has already begun to give us the breadth of one of its characters, making any sort of redemption seem pretty impossible.
+---------
+
+# 10 Most Anticipated New Movies Of April 2026 (According To Real Data)
+
+Movies
+
+Thu, 26 Mar 2026 16:56:23 GMT
+
+https://screenrant.com/most-anticipated-movies-april-2026/
+
+Based on data from predictive media analytics company Diesel Labs, ScreenRant reveals April 2026's top 10 most-hyped new movie releases.
+---------
+
+# Ryan Coogler’s X-Files Reboot Expands Cast With Himesh Patel
+
+TV, The X-Files
+
+Thu, 26 Mar 2026 17:54:36 GMT
+
+https://www.cbr.com/x-files-reboot-himesh-patel-casting/
+
+The X-Files reboot from Ryan Coogler has officially locked down its two lead stars.
+---------
+
+# Jumanji 3 Just Gave Avengers: Doomsday a Release Date Escape Route
+
+Movies, Avengers: Doomsday, Dune: Part Three, Jumanji 4
+
+Thu, 26 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/jumanji-release-date-dunesday-avengers-doomsday-dune-clash/
+
+The biggest box office clash of 2026 might not happen after Sony's major new announcement. Is this the end of Avengers: Doomsday vs. Dune: Part Three?
+---------
+
+# Spider-Man Is Finally Killed Off By A Fearsome Foe
+
+Comics, Spider-Man, Ultimate Marvel
+
+Thu, 26 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/ultimate-spider-man-death-ultimate-carnage/
+
+Marvel's new Ultimate Spider-Man just lost his life to the latest version of an already terrifying villain, and there is no hope of coming back.
+---------
+
+# After Nintendo's Fox McCloud Reveal, Which Smash Bros. Character Joins the Mario Movie Next?
+
+Games, Nintendo, super mario galaxy, Super Smash Bros Ultimate
+
+Thu, 26 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/fox-mccloud-super-mario-galaxy-movie-smash-characters/
+
+A new poster for The Super Mario Galaxy Movie has confirmed that Fox McCloud will appear, meaning a Super Smash Bros. film is feeling inevitable.
+---------
+
+# Ryan Gosling Sets Next Movie Just 1 Week After Project Hail Mary’s Record-Breaking Opening
+
+Movies, ryan gosling
+
+Thu, 26 Mar 2026 17:14:16 GMT
+
+https://www.cbr.com/ryan-gosling-starring-secret-daniels-movie-universal/
+
+After Project Hail Mary opened with a record-breaking box office, lead star Ryan Gosling has found his next big feature.
+---------
+
+# Anne Hathaway's End of Oak Street Gets Official Trailer
+
+Movies, Flowervale Street
+
+Thu, 26 Mar 2026 17:04:37 GMT
+
+https://www.cbr.com/the-end-of-oak-street-teaser-trailer/
+
+The new film starring Anne Hathaway and Ewan McGregor may be giving Jurassic Park a run for its money.
+---------
+
+# Stranger Things Creators' Something Very Bad Is Going to Happen Rotten Tomatoes Score
+
+TV, Something Very Bad Is Going to Happen, Stranger Things
+
+Thu, 26 Mar 2026 17:01:33 GMT
+
+https://www.cbr.com/something-very-bad-is-going-to-happen-rotten-tomatoes-score/
+
+The controversial Season 5 wrapped the sci-fi hit series, and the Duffer Brothers' new project is already a hit with critics.
+---------
+
+# Ryan Gosling's Is Officially the King of Sci-Fi as He Joins Oscar-Winning Duo's First Movie in 4 Years
+
+Movie News, Daniels, Ryan Gosling, Daniel Kwan, Daniel Scheinert
+
+Thu, 26 Mar 2026 17:28:35 GMT
+
+https://collider.com/ryan-gosling-cast-everything-everywhere-all-at-once-directors-untitled-movie-the-daniels/
+
+Fresh off of Project Hail Mary's success, Ryan Gosling is officially starring in the next movie from the Oscar-winning directing duo, The Daniels.
+---------
+
+# 8 Greatest Prime Video Miniseries of All Time
+
+TV, Prime Video, Tales from the Loop, Dead Ringers, Swarm
+
+Thu, 26 Mar 2026 17:19:12 GMT
+
+https://collider.com/best-prime-video-miniseries-all-time/
+
+Tales From the Loop, Solos, Dead Ringers, I'm a Virgo, and more make up our list of the best Prime Video miniseries of all time.
+---------
+
+# ‘Drag’ Review: Uncle Jesse Goes Psycho in John Stamos' Weirdest Role Yet
+
+Movie Reviews, Drag, Lizzy Caplan, John Stamos, Thriller
+
+Thu, 26 Mar 2026 17:10:10 GMT
+
+https://collider.com/drag-movie-review-lizzy-caplan-john-stamos/
+
+Drag, starring Lizzy Caplan and John Stamos, is a clever thriller that stretches itself a bit too thin.
+---------
+
+# 10 Must-See Classics Under 90 Minutes Long
+
+Movie, City Lights, Bicycle Thieves, Breathless, Brief Encounter
+
+Thu, 26 Mar 2026 17:04:12 GMT
+
+https://collider.com/must-see-classics-under-90-minutes/
+
+90-minute (or shorter) gems like Laura and Rashomon prove that unforgettable classic stories can thrive in a compact runtime.
+---------
+
+# Prime Video's Wild Social Experiment Gets Amazing Sneak Peek Ahead of Tomorrow's New Episodes [Exclusive]
+
+TV News, Jury Duty Presents: Company Retreat, Jury Duty, Prime Video, Reacher
+
+Thu, 26 Mar 2026 17:00:38 GMT
+
+https://collider.com/prime-video-jury-duty-season-2-sneak-peek-company-retreat-episodes-4-5/
+
+Prime Video has released a new sneak peek from an upcoming episode of Jury Duty Season 2, Company Retreat.
+---------
+
+# Buck Goes Down a Dark Path in Heartbreaking New '9-1-1' Season 9 Sneak Peek [Exclusive]
+
+TV News, 9-1-1, Oliver Stark, ABC, Angela Bassett
+
+Thu, 26 Mar 2026 17:00:12 GMT
+
+https://collider.com/9-1-1-season-9-episode-15-sneak-peek-buck-addiction-oliver-stark/
+
+A new sneak peek at 9-1-1 Season 9, Episode 15, sends Buck down a very dark path at the doctor's office. Check it out here!
+---------
+
+# Ryan Coogler's 'X-Files' Reboot Officially Has Its New Mulder and Scully Duo
+
+TV News, Himesh Patel, Danielle Deadwyler, The X-Files, Ryan Coogler
+
+Thu, 26 Mar 2026 16:57:34 GMT
+
+https://collider.com/ryan-coogler-x-files-reboot-cast-himesh-patel-hulu-mulder-replacement/
+
+Ryan Coogler's reboot of The X-Files has officially found the perfect partner to play opposite Danielle Deadwyler in the new series.
+---------
+
+# Ryan Gosling To Lead New Sci-Fi Event Film From 'Everything Everywhere All at Once' Directors
+
+Movie News, Ryan Gosling, Everything Everywhere All at Once, Sci-Fi, Project Hail Mary
+
+Thu, 26 Mar 2026 17:45:59 GMT
+
+https://movieweb.com/ryan-gosling-the-daniels-event-film/
+
+After 'Project Hail Mary', Ryan Gosling is joining the next movie from the Oscar-winning directors of 'Everything Everywhere All at Once'.
+---------
+
+# 'X-Files' Reboot Adds 'The Odyssey' Star Himesh Patel Alongside Danielle Deadwyler
+
+TV News, The X-Files
+
+Thu, 26 Mar 2026 17:25:46 GMT
+
+https://movieweb.com/x-files-reboot-finds-mulder-replacement-in-the-odyssey-star/
+
+Ryan Coogler's reboot of 'The X-Files' will follow two new FBI agents picking up where Mulder and Scully left off.
+---------
+
+# Netflix's 'Stranger Things: Tales From '85' Retcons Season 5
+
+Features, Stranger Things, Netflix
+
+Thu, 26 Mar 2026 17:21:39 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-retcon-monsters/
+
+'Stranger Things: Tales from 85' is the upcoming animated spin-off series on Netflix, and it introduces a new element that changes the original show.
+---------
+
+# 'Forbidden Fruits' Cast and Crew on Conjuring a Coven for the Genre-Bender
+
+Movie News, Forbidden Fruits, Lili Reinhart
+
+Thu, 26 Mar 2026 17:21:32 GMT
+
+https://movieweb.com/forbidden-fruits-cast-crew-interview/
+
+The talent behind the new horror movie opens up about how the acclaimed new experience came together.
+---------
+
+# J.J. Abrams-Produced Sci-Fi Epic 'The End of Oak Street' Gets All-New Teaser
+
+Movie News, Flowervale Street, J.J. Abrams, Sci-Fi
+
+Thu, 26 Mar 2026 17:12:07 GMT
+
+https://movieweb.com/the-end-of-oak-street-teaser/
+
+The first teaser trailer for 'The End of Oak Street' (aka 'Flowervale Street') is here, offering a look at the J.J. Abrams-produced sci-fi epic.
+---------
+
+# Netflix Kate Hudson Comedy 'Running Point' Gets Season 2 Trailer
+
+TV News, Running Point, Kate Hudson, Netflix
+
+Thu, 26 Mar 2026 17:00:24 GMT
+
+https://movieweb.com/running-point-season-2-trailer/
+
+Netflix's hit basketball comedy 'Running Point,' starring Kate Hudson, returns to the spotlight with a new trailer for Season 2.
+---------
+
+# Amazon's Replacement For 'The Office' Keeps Getting Better And Better
+
+Features, Jury Duty, Prime Video, The Office
+
+Thu, 26 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/jury-duty-amazon-the-office-replacement/
+
+From the producers of 'The Office,' Prime Video's 'Jury Duty' lets audiences imagine what it'd be like to be a character in the workplace sitcom.
+---------
+
+# Genre-Defining Action Thriller Masterpiece ‘Face/Off’ Has New Streaming Home
+
+Movie News, Face/Off
+
+Thu, 26 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/face-off-streaming-peacock-april-2026/
+
+Although heavily criticized for some of its most controversial scenes, this '90s classic delivered thrills like no other action movie.
+---------
+
 # Xbox Partner Preview March 2026 Live Updates: All Announcements & New Game Reveals
 
 Gaming, Xbox Series X/S, Triple-A Games, PC
