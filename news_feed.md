@@ -1,3 +1,322 @@
+# 8 Movie Adaptations That Completely Missed The Point
+
+Movies, The Shining, Batman v Superman: Dawn of Justice, The Hitchhiker's Guide to the Galaxy, The Minority Report, Into the Woods, Troy, The Strangers: Chapter 2
+
+Thu, 26 Mar 2026 03:45:54 GMT
+
+https://screenrant.com/movie-adaptations-missed-point-book-play/
+
+Although movie adaptations can bring a lot of fun new things to the table, it should not come at the expense of the source material.
+---------
+
+# 10 Best Fighting Anime No Fan Should Skip
+
+Anime, Fighting Spirit
+
+Thu, 26 Mar 2026 03:30:19 GMT
+
+https://screenrant.com/best-fighting-anime-of-all-time/
+
+Whether they feature realistic duels, or magical ones with heightened stakes, these fighting anime offer some of the medium's most engaging battles.
+---------
+
+# Daredevil: Born Again Season 2 Just Connected To The New Avengers & You Probably Missed It
+
+Streaming TV, Daredevil: Born Again, Thunderbolts*, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 03:30:18 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-new-avengers-connection-val/
+
+Daredevil: Born Again season 2 is here with its first episode, connecting to the New Avengers with a subtle connection that few were likely expecting.
+---------
+
+# Xbox Drops 3 New Free Downloads, No Game Pass Needed
+
+Gaming, Xbox Series X/S, Xbox Game Pass, PC
+
+Thu, 26 Mar 2026 03:00:18 GMT
+
+https://screenrant.com/xbox-free-downloads-march-2026-no-game-pass/
+
+Xbox just dropped three brand-new free downloads that players can grab right now, and you don't even need Xbox Game Pass to get them.
+---------
+
+# After 11 Years, A Marvel Hero Finally Gets Their Most Comics-Accurate Costume
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 02:30:18 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-costume-dd-logo/
+
+The Marvel Cinematic Universe has officially brought a fan-favorite comics-accurate costume to the screen, 11 years after this actor's Marvel debut.
+---------
+
+# All of One Piece's Major Villains, Ranked
+
+Anime, One Piece
+
+Thu, 26 Mar 2026 02:30:18 GMT
+
+https://screenrant.com/every-one-piece-villain-ranked-weakest-strongest/
+
+One Piece has steadily built up a fearsome rogues' gallery. While other anime perhaps overshadow it in power, the scaling over time is truly felt.
+---------
+
+# Cyberpunk 2077: Should You Romance Judy Or Panam
+
+Game Features, Cyberpunk 2077, PC
+
+Thu, 26 Mar 2026 02:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-best-romance-choice-judy-panam/
+
+Cyberpunk 2077's Judy and Panam are rivals for best romance. There are many qualities that recommend them both, but which is ultimately the best?
+---------
+
+# It’s Official: Marvel Rivals Is Now Fully Canon In The Comics
+
+Comics, Marvel Rivals, Spider-Man
+
+Thu, 26 Mar 2026 02:12:33 GMT
+
+https://screenrant.com/marvel-rivals-becomes-fully-canon-in-marvel-comics-amazing-spiderman/
+
+It was bound to happen sooner or later: Marvel Rivals is now an in-universe videogame in the official Marvel Universe itself (here's how).
+---------
+
+# Is Keith David Playing A Mystery Villain In Brand New Day? 1 Spider-Man Character Could Explain His Role
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 02:00:30 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-keith-david-jackal-theory/
+
+Keith David's voice can be heard in the Spider-Man: Brand New Day trailer, but who is he playing? If it's this character, it'd be perfect casting.
+---------
+
+# No Crunchyroll Needed: Demon Slayer Mugen Train Is Now Streaming Free in North America
+
+Anime, Demon Slayer the Movie: Mugen Train
+
+Thu, 26 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/demon-slayer-mugen-train-free-streaming-amasian-tv/
+
+One of the newest official anime streaming platforms for fans in North America now offers free access to Demon Slayer: Mugen Train.
+---------
+
+# 10 Great Sam Kieth Covers For Marvel
+
+Lists, sam kieth, Marvel Comics
+
+Thu, 26 Mar 2026 03:56:34 GMT
+
+https://www.cbr.com/sam-kieth-marvel-best-covers/
+
+Sam Kieth is known for his eccentric interior comics art. However, his cover work for Marvel Comics includes some of his most iconic creations.
+---------
+
+# 5 Classic Pokémon Movies With 10/10 Battles
+
+Anime, Pokemon
+
+Thu, 26 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/best-old-pokemon-movies-perfect-fights/
+
+Pokémon is filled with unforgettable battles, yet some of its feature film adventures feature flawless fights from start to finish.
+---------
+
+# 7 Years Later, House of the Dragon Is Officially the Anti-Game of Thrones
+
+TV, House of the Dragon, Game Of Thrones, Fantasy, hbo
+
+Thu, 26 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/house-of-the-dragon-complete-opposite-game-of-thrones/
+
+House of the Dragon trades all of the political maneuvering of Game of Thrones for something far more personal.
+---------
+
+# 10 Classic SNES Games Everyone Forgot About
+
+Games, Nintendo, retro games
+
+Thu, 26 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/underrated-snes-games-forgotten-list/
+
+The biggest SNES games are still well-remembered, but classics like Shadowrun have been forgotten.
+---------
+
+# The Spider-Man: Brand New Day Trailer Officially Sets Up Shadowland
+
+Movies, Spider-Man: Brand New Day, Daredevil: Born Again, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-trailer-set-up-daredevil-shadowland/
+
+The Hand's return in Spider-Man: Brand New Day may have secretly set up Daredevil's Shadowland storyline.
+---------
+
+# Prime Video's The Expanse Is Required Viewing for Hard Sci-Fi Fans
+
+TV, The Expanse, syfy, Prime Video
+
+Thu, 26 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/prime-video-the-expanse-perfect-hard-sci-fi/
+
+The success of Project Hail Mary has made hard sci-fi more popular than ever.
+---------
+
+# 4 Perfect Crunchyroll Shows Where Every Episode Is a 10/10
+
+Anime, Crunchyroll
+
+Thu, 26 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/best-crunchyroll-anime-all-perfect-episodes-list/
+
+These must-watch Crunchyroll anime series don't have a single bad episode.
+---------
+
+# Gundam's Most Controversial Reboot Returns for New 30th Anniversary Anime
+
+Anime, Mobile Suit Gundam, Mobile Fighter G Gundam
+
+Thu, 26 Mar 2026 02:50:12 GMT
+
+https://www.cbr.com/g-gundam-anniversary-anime-release/
+
+An anniversary video featuring a breathtaking battle in 3DCG lets fans relive the unconventional mecha action of the controversial G Gundam.
+---------
+
+# 10 Old-School Fantasy TV Shows That Are Still Awesome Today
+
+TV, Fantasy, Highlander, Xena: Warrior Princess, The 10th Kingdom
+
+Thu, 26 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/old-school-fantasy-tv-shows-still-awesome-today-list/
+
+Although fantasy TV shows didn't get the same budget or effects as movies, some shows remain standouts to this day.
+---------
+
+# 28 Years Later, Paramount+’s Most Divisive Series Is Still the Most Controversial Show on TV
+
+TV Features, South Park, Trey Parker, Matt Stone, Paramount Plus
+
+Thu, 26 Mar 2026 04:06:12 GMT
+
+https://collider.com/south-park-paramount-divisive-most-controversial-show-on-tv/
+
+From its controversial debut in 1997 to the present day, South Park has remained a reliable source of chaos and comedy.
+---------
+
+# 'Reacher' Fans Need To Binge This 10/10 Relentless Action Crime Series on HBO Max
+
+TV Features, Banshee, Crime, Reacher, Action
+
+Thu, 26 Mar 2026 03:54:12 GMT
+
+https://collider.com/reacher-fans-binge-banshee-hbo-max-antony-starr-crime-series/
+
+Fans of the action scenes in Reacher will love Banshee, a gritty, action-packed crime series starring The Boys' Antony Starr.
+---------
+
+# After Just 4 Episodes, This HBO Dark Comedy’s Greatest Standout Performance Keeps Getting Better
+
+TV, David Harbour, HBO Max, DTF St. Louis, Mystery
+
+Thu, 26 Mar 2026 03:43:13 GMT
+
+https://collider.com/hbo-dark-comedy-dtf-st-louis-david-harbour-performance/
+
+David Harbour's role as Floyd in the HBO miniseries DTF St. Louis is the best performance in four episodes and it keeps getting better.
+---------
+
+# Thanks to ‘The Matrix,’ This Stellar 1999 Sci-Fi Movie Never Got the Attention It Deserved
+
+Movie Features, The Thirteenth Floor, The Matrix, Vincent D'Onofrio, Gretchen Mol
+
+Thu, 26 Mar 2026 03:40:08 GMT
+
+https://collider.com/the-thirteenth-floor-sci-fi-movie-the-matrix/
+
+The Thirteenth Floor was a poignant tale of morality and reality, but was overshadowed by the likes of The Matrix and Existenz.
+---------
+
+# Stephen King’s All-Time Favorite Series Is This 16-Episode Sci-Fi Thriller Masterpiece
+
+TV Features, Stephen King, Life on Mars, BBC, Sci-Fi
+
+Thu, 26 Mar 2026 03:09:12 GMT
+
+https://collider.com/stephen-king-all-time-favorite-series-life-on-mars-bbc/
+
+Stephen King said that Life on Mars is one of his favorite shows, and it's easy to see why. Here's why you need to add it to your watchlist.
+---------
+
+# 5 Forgotten '80s Thrillers That Have Aged Like Fine Wine
+
+Movie, 1980s, Manhunter, The Hit, To Live and Die in L.A.
+
+Thu, 26 Mar 2026 03:03:12 GMT
+
+https://collider.com/forgotten-80s-thrillers-aged-like-fine-wine/
+
+Manhunter, The Hit, and To Live and Die in L.A. are excellent, sadly forgotten thriller movies from the 1980s that have only improved with time.
+---------
+
+# 8 Stellar TV Dramas That Are 10/10 but Nobody Remembers Today
+
+TV, Drama, The Knick, Halt and Catch Fire, Gentleman Jack
+
+Thu, 26 Mar 2026 03:01:12 GMT
+
+https://collider.com/tv-dramas-nobody-remembers/
+
+AMC's Halt and Catch Fire, HBO's Carnivàle, and Sundance TV's Rectify are some of the perfect drama series that are completely forgotten by audiences.
+---------
+
+# One of HBO's All-Time Greatest Comedies Is Quietly Ending After 5 Years
+
+TV Features, Hacks, HBO, Jean Smart, Hannah Einbinder
+
+Thu, 26 Mar 2026 03:00:12 GMT
+
+https://collider.com/hacks-hbo-greatest-comedy-ending-season-5/
+
+HBO Max's dark comedy Hacks will conclude with its fifth and final season, and it's the best possible decision for the show.
+---------
+
+# 10 Most Perfect HBO Shows, Ranked
+
+TV, The Sopranos, The Wire, Game Of Thrones, Curb Your Enthusiasm
+
+Thu, 26 Mar 2026 02:09:12 GMT
+
+https://collider.com/most-perfect-hbo-shows-ranked/
+
+The Sopranos, Band of Brothers, and The Wire are all among the absolute best, most perfect TV shows in HBO history.
+---------
+
+# 9 10/10 Thriller Shows With Only 1 Season
+
+TV Lists, Thriller
+
+Thu, 26 Mar 2026 02:00:29 GMT
+
+https://movieweb.com/thriller-shows-only-1-season/
+
+Looking for some meaningful thrills but not willing to commit to a long-term series? These thriller shows are fast-paced and get the job done.
+---------
+
 # What Stephen Colbert's New Lord Of The Rings Movie Is Based On
 
 Movies, The Lord of the Rings
