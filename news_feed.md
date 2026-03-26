@@ -1,3 +1,234 @@
+# What Stephen Colbert's New Lord Of The Rings Movie Is Based On
+
+Movies, The Lord of the Rings
+
+Thu, 26 Mar 2026 01:31:20 GMT
+
+https://screenrant.com/lord-of-the-rings-new-movie-stephen-colbert-tolkien-explained/
+
+Stephen Colbert is co-writing a brand new Lord of the Rings, The Lord of the Rings: Shadow of the Past, and it's based on a surprising Tolkien story.
+---------
+
+# Boruto: Two Blue Vortex's Anime Will Introduce a Rasengan That Makes the Chidori Look Like an Absolute Joke
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 26 Mar 2026 01:00:18 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-strongest-rasengan-chidori-konohamaru/
+
+The eventual return of Pierrot's most iconic anime will see Naruto's next generation of ninjas innovate classic techniques in incredible ways.
+---------
+
+# 10 Sci-Fi Miniseries That Are Nearly Perfect From Start To Finish
+
+Classic TV, Sci-Fi
+
+Thu, 26 Mar 2026 01:00:18 GMT
+
+https://screenrant.com/sci-fi-miniseries-almost-perfect/
+
+Some sci-fi TV miniseries are nearly perfect except for a few small details, but their length makes them a perfect binge watch for sci-fi fans.
+---------
+
+# The Masked Singer Season 14: Who Made It To The Finale? (SPOILERS)
+
+Reality TV, The Masked Singer
+
+Thu, 26 Mar 2026 01:00:18 GMT
+
+https://screenrant.com/the-masked-singer-season-14-who-made-it-to-the-finale-spoilers/
+
+During the Masked Singer season 14 semi-finals, the show said goodbye to one extraordinary contestant, while the final four advanced to the finale.
+---------
+
+# Nathan Fillion Played A Forgotten Cop Hero 12 Years Before The Rookie
+
+Classic TV, Lost, Lost - Season 3, Nathan Fillion, The Rookie
+
+Thu, 26 Mar 2026 00:30:20 GMT
+
+https://screenrant.com/nathan-fillion-the-rookie-cop-hero-lost-kevin/
+
+Nathan Fillion plays John Nolan in The Rookie, but 12 years earlier, he played a forgotten cop hero in an all-time great television series.
+---------
+
+# Amy Rose Redesign Revealed Ahead of Sonic's Next Comic Appearance
+
+Comics, Sonic the Hedgehog
+
+Thu, 26 Mar 2026 00:30:20 GMT
+
+https://screenrant.com/sonic-hedgehog-amy-rose-redesign-wonder-woman-dc/
+
+A new illustration of Amy Rose as Wonder Woman has been released ahead of the upcoming DC x Sonic the Hedgehog: Metal Legion comic collaboration.
+---------
+
+# 10 Most Iconic Anime Villain Groups of All Time
+
+Anime, Naruto, Demon Slayer, Bleach
+
+Thu, 26 Mar 2026 00:00:18 GMT
+
+https://screenrant.com/most-iconic-anime-villain-groups-all-time/
+
+There are only a handful of villain groups in anime so iconic that they define the series they're in: here are the 10 greatest of all time.
+---------
+
+# This 2-Part Saga From The 1970s Is The Greatest Martial Arts Ensemble Of All Time
+
+Movies, Recommendation
+
+Thu, 26 Mar 2026 00:00:18 GMT
+
+https://screenrant.com/the-water-margin-greatest-martial-arts-ensemble/
+
+A 1970s historical epic, broken up into two parts, deserves to be recognized as the greatest martial arts ensemble ever made.
+---------
+
+# 10 Amazon Big Spring Sale 2026 Gaming Deals You Shouldn't Miss
+
+Gaming, Amazon, Elden Ring Nightreign, PlayStation 5, Nintendo Switch 2
+
+Thu, 26 Mar 2026 00:00:18 GMT
+
+https://screenrant.com/amazon-spring-deal-days-2026-gaming-discounts/
+
+Discover the best gaming deals during the Amazon Big Spring Sale 2026, featuring high-end laptops, noise-canceling headphones, and more. Save big on top-rated gaming accessories and consoles.
+---------
+
+# 10 Best Fighting Games of All Time, Ranked
+
+Games, Video Games, Street Fighter, Tekken
+
+Thu, 26 Mar 2026 01:45:12 GMT
+
+https://www.cbr.com/best-fighting-games-all-time-ranked/
+
+The fighting game genre owes everything to these untouchable games.
+---------
+
+# Chainsaw Man's Final Chapter Reveals Pochita's Devil Identity
+
+Anime, Chainsaw Man
+
+Thu, 26 Mar 2026 01:25:12 GMT
+
+https://www.cbr.com/chainsaw-man-manga-ending-pochita-devil-name/
+
+Chainsaw Man's final manga chapter revealed the secret of Pochita's true devil identity right under fans' noses. And no, he wasn't the Chainsaw Devil.
+---------
+
+# 30 Best Dark Romance Movies, Ranked
+
+Movies, Romance, Edward Scissorhands, Jane Eyre, Eternal Sunshine of the Spotless Mind, Cruel Intentions, Let the Right One In, Only Lovers Left Alive, Ghost, The Time Traveler's Wife, Wuthering Heights, The Lobster
+
+Thu, 26 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/best-dark-romance-movies-ranked/
+
+From sinister games of seduction to vampiric love stories, the dark romance genre has produced some of the most beloved films of all time.
+---------
+
+# 10 Hardest PS2 Games of All Time, Ranked by Difficulty
+
+Games, PlayStation 2, retro games
+
+Thu, 26 Mar 2026 00:45:12 GMT
+
+https://www.cbr.com/hardest-ps2-games-all-time-ranked-by-difficulty-list/
+
+Some of the best PS2 games, like Devil May Cry and Jak II, can be brutal.
+---------
+
+# 10 Worst-Written Sakura Scenes Naruto Fans Are Still Mad About
+
+Anime, Naruto
+
+Thu, 26 Mar 2026 00:15:12 GMT
+
+https://www.cbr.com/naruto-sakura-worst-written-scenes/
+
+Fans still question the writing choices behind these controversial moments involving Sakura in Naruto.
+---------
+
+# Jason Statham's The Meg 3 Gets Discouraging Status Update
+
+Movies, The Meg, The Meg 2: The Trench, Jason Statham
+
+Thu, 26 Mar 2026 00:02:08 GMT
+
+https://www.cbr.com/the-meg-3-jason-statham-disappointing-update/
+
+All hopes for a threequel to the Jason Statham-led movie series are seemingly starting to sink.
+---------
+
+# The Pitt Quietly Ended a 15-Year Grey's Anatomy Streak With a Perfect Storyline
+
+TV, The Pitt, Grey's Anatomy, Drama
+
+Thu, 26 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/the-pitt-vs-greys-anatomy-mass-shooter-storyline/
+
+Grey's Anatomy's disaster episodes have become a calling card for the series, but a new medical drama has taken the crown.
+---------
+
+# 7 Spy Movies That Are Better Than 'The Night Agent'
+
+Movie, The Night Agent, North By Northwest, The Bourne Identity, Casino Royale
+
+Thu, 26 Mar 2026 00:31:14 GMT
+
+https://collider.com/spy-movies-better-than-the-night-agent/
+
+The night agent is an excellent spy series, but movies like Casino Royale, Black Bag, and North by Northwest are even better examples of the genre.
+---------
+
+# The 10 Greatest Movies From Countries That No Longer Exist
+
+Movie, Come And See, Stalker, The Cranes are Flying, Andrei Rublev
+
+Thu, 26 Mar 2026 00:17:13 GMT
+
+https://collider.com/best-movies-from-countries-that-no-longer-exist/
+
+From the Soviet Union's Andrei Rublev to East Germany's I Was Nineteen, these are the best movies that originate from countries that no longer exist.
+---------
+
+# 8 Forgotten Cult Classic Shows That Have Aged Like Fine Wine
+
+TV, Television, Buffy The Vampire Slayer, Arrested Development, Firefly
+
+Thu, 26 Mar 2026 00:07:13 GMT
+
+https://collider.com/forgotten-cult-classic-tv-shows-aged-like-fine-wine/
+
+Time has been extremely kind to cult classic shows like Buffy the Vampire Slayer, Firefly, and Hannibal, with their reputation improving with age.
+---------
+
+# 'Family Guy's New Tom Brady Episode Refuses To Acknowledge 2006's "Patriot Games"
+
+Features, Family Guy
+
+Thu, 26 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/new-family-guy-episode-creates-obvious-continuity-error/
+
+Tom Brady has been used heavily in two episodes of 'Family Guy' now, but the two episodes barely have a connection. Read on for more.
+---------
+
+# Carla's Reduced Role in the 'Scrubs' Revival Allows Turk & Elliot's Friendship To Shine
+
+Features, Scrubs
+
+Thu, 26 Mar 2026 00:30:18 GMT
+
+https://movieweb.com/scrubs-revival-missing-character-episode-6/
+
+Judy Reyes has barely featured in the 'Scrubs' revival so far, but that's actually a good thing for a very specific reason.
+---------
+
 # Netflix’s 8-Part Psychological Thriller Is Its Best New Show To Binge This Weekend
 
 Streaming TV, Netflix, Something Very Bad Is Going to Happen
