@@ -1,3 +1,168 @@
+# Red Dead Redemption 2 Free DLC Leaves Gamers Pleasantly Surprised
+
+Gaming, Red Dead Redemption 2
+
+Thu, 26 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-free-dlc-march-2026/
+
+Rockstar Games releases a new Moonshiner event in Red Dead Online, offering triple rewards, new outfits, and limited-time clothing.
+---------
+
+# Something Very Bad Is Going To Happen Cast Guide: Who Stars In The Duffer Brothers' New Show
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Thu, 26 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-cast-characters/
+
+Meet the cast and characters of Netflix's Something Very Bad Is Going to Happen, created by Haley Z. Boston and Stranger Things' The Duffer Brothers.
+---------
+
+# Steam Machine Official Pricing Update Has Gamers Concerned, We Can See Why
+
+Gaming, Steam
+
+Thu, 26 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/steam-machine-official-price-update-gamer-reactions/
+
+Valve's Steam Machine, set to launch in 2026, faces uncertainty over its pricing due to hardware shortages.
+---------
+
+# Star Trek's New Magic Number: 26 Episodes Remain on Paramount+
+
+TV, Star Trek, Star Trek: Starfleet Academy, Star Trek: Strange New Worlds
+
+Thu, 26 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/star-trek-26-episodes-strange-new-worlds-starfleet-academy/
+
+47 has been a running joke since Star Trek: The Next Generation, but the number that matters most for Star Trek fans in the next two years is 26.
+---------
+
+# Daredevil: Born Again Season 2's Main Characters and Their Comic-Accurate Versions, Explained
+
+Comics, Daredevil: Born Again, Marvel Cinematic Universe
+
+Thu, 26 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-comic-accurate-version-explained/
+
+Hey, Marvel Studios, where is The Punisher in Daredevil: Born Again Season 2?
+---------
+
+# 10 Most Perfect Live-Action Disney Movies, Ranked
+
+Movie, Walt Disney Studios, Mary Poppins, Walt Disney, Pirates of the Caribbean: The Curse of the Black Pearl
+
+Thu, 26 Mar 2026 11:43:12 GMT
+
+https://collider.com/most-perfect-live-action-disney-movies-ranked/
+
+Pirates of the Caribbean: The Curse of the Black Pearl, Mary Poppins, and Enchanted are all among the best, most perfect live-action Disney movies.
+---------
+
+# Netflix’s 6-Part Sci-Fi Masterpiece Is the Best One-Night Binge
+
+TV Features, Netflix, Cassandra, Sci-Fi
+
+Thu, 26 Mar 2026 11:40:14 GMT
+
+https://collider.com/netflix-sci-fi-series-cassandra-best-one-night-binge/
+
+In the 6-part Netflix sci-fi series Cassandra, an AI robot takes control of a family’s life, for better and for worse.
+---------
+
+# 10 Forgotten War Movies That Are Still Masterpieces Today
+
+Movie, War, Cross of Iron, The Steel Helmet, The Hill
+
+Thu, 26 Mar 2026 11:04:12 GMT
+
+https://collider.com/forgotten-war-movies-still-masterpieces/
+
+Great movies like Cross of Iron and The Steel Helmet may be forgotten by modern audiences, but they remain undeniable masterpieces of the war genre.
+---------
+
+# Sci-Fi Fans Abandon Ship After Shock Cancellation of Star Trek's New 2-Part Series
+
+TV News, Star Trek: Starfleet Academy, Star Trek, Paramount Plus, Star Wars
+
+Thu, 26 Mar 2026 11:01:12 GMT
+
+https://collider.com/paramount-star-trek-series-starfleet-academy-further-setback-after-shock-cancellation/
+
+Star Trek: Starfleet Academy, Paramount+'s sci-fi series, is declining in popularity after its shocking cancellation. Find out more here.
+---------
+
+# Solve the Whodunnit in TV's Best Mystery Show Today With Collider's TV Quiz
+
+TV, Only Murders in the Building, SCTV, Steve! (Martin): A Documentary in 2 Pieces, Wizards of Waverly Place
+
+Thu, 26 Mar 2026 11:01:12 GMT
+
+https://collider.com/tv-quiz-mar-26-2026-only-murders-in-the-building/
+
+Do you know Only Murders in the Building like the back of your hand? We're about to find out, as you piece together the facts of this case.
+---------
+
+# Test Your Knowledge of These Cult Classics and Hidden Gems With Collider's Movie Quiz
+
+Movie, Frida, Hidden Figures, If Beale Street Could Talk, Marie Antoinette
+
+Thu, 26 Mar 2026 10:59:12 GMT
+
+https://collider.com/movie-quiz-mar-26-2026-historical-dramas/
+
+Period Pieces are such a staple of movies, they might as well be their own genre. Dust off your history books to pass this test on Historical Dramas
+---------
+
+# 10 Greatest Animated Movie Masterpieces of the 21st Century, Ranked
+
+Movie, Animation, Spirited Away, Toy Story 3, Kubo and the Two Strings
+
+Thu, 26 Mar 2026 10:53:12 GMT
+
+https://collider.com/greatest-animated-movies-21st-century-ranked/
+
+Inside Out, Toy Story 3, Flow, WALL-E, Spirited Away, and more make up our list of the best animated movies of the 21st century.
+---------
+
+# 'Project Hail Mary' Sequel Could Now Happen Following Box Office Success
+
+Movie News, Project Hail Mary, Ryan Gosling, Sci-Fi
+
+Thu, 26 Mar 2026 11:35:22 GMT
+
+https://movieweb.com/project-hail-mary-sequel-update/
+
+'Project Hail Mary' author Andy Weir is reportedly toying with sequel ideas following the massive box office success of the Ryan Gosling sci-fi epic.
+---------
+
+# Alan Ritchson Breaks Silence on Neighbor Fight While Hyping 'Reacher' Season 4
+
+TV News, Alan Ritchson, Reacher
+
+Thu, 26 Mar 2026 11:00:23 GMT
+
+https://movieweb.com/alan-ritchson-breaks-silence-neighbor-fight-reacher-season-4/
+
+The Jack Reacher actor has finally addressed what he calls a "crazy week," and confirms that he's now wrapped on Season 4.
+---------
+
+# The Hidden Story Behind 'Ready or Not 2's Disappointing Box Office Opening
+
+Features, Ready or Not 2: Here I Come
+
+Thu, 26 Mar 2026 11:00:18 GMT
+
+https://movieweb.com/ready-or-not-box-office-opening-story/
+
+'Ready or Not 2: Here I Come,' the horror comedy sequel starring Kathryn Newton and Samara Weaving, had a respectable opening weekend.
+---------
+
 # Something Very Bad Is Going To Happen Ending Explained: Does Rachel Survive?
 
 Streaming TV, Something Very Bad Is Going to Happen, Something Very Bad Is Going to Happen - Season 1
