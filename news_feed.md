@@ -1,3 +1,179 @@
+# After 59 Years, DC Debuts Deadman's New Design
+
+DC Comics, DC, Deadman
+
+Fri, 27 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/deadman-new-costume-redesign-series/
+
+Back from the dead.
+---------
+
+# Fallout 4 Graphical Overhaul Makes Game Look More Like Fallout 5
+
+Gaming, Fallout 4, Fallout, Triple-A Games, PC
+
+Fri, 27 Mar 2026 23:00:18 GMT
+
+https://screenrant.com/fallout-4-graphics-mods-fallout-5/
+
+Fallout 4 is far from the best-looking game, even for its time, but it's possible to bring it up to speed and then some without picking through mods.
+---------
+
+# Two Dick Wolf Series Are Crossing Over Next Month With CIA & FBI Characters Together In First Images
+
+TV, CIA, FBI, Dick Wolf
+
+Fri, 27 Mar 2026 22:56:28 GMT
+
+https://screenrant.com/dick-wolf-cia-fbi-crossover-images-tom-ellis-missy-peregrym-release-date-plot-details/
+
+A bomb threat and a deadly hunt force unlikely allies to put aside their differences and work together in a high-stakes crossover in Dick Wolf's show.
+---------
+
+# Charlie Day Addresses Luigi’s Mansion Adaptation After Super Mario Galaxy Movie
+
+Movies, The Super Mario Galaxy Movie
+
+Fri, 27 Mar 2026 22:40:15 GMT
+
+https://screenrant.com/super-mario-movies-luigis-mansion-adaptation-potential-charlie-day-response/
+
+Charlie Day talks about the possibility of a Luigi's Mansion movie adaptation.
+---------
+
+# This Infamous DBZ Mistranslation Completely Changed Goku’s Origin Story
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Fri, 27 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/dragon-ball-z-bardock-scientist-mistranslation/
+
+Dragon Ball Z's early English dub is infamous for some regrettable dialogue changes, but one bold boast invents new, erroneous backstory for Bardock.
+---------
+
+# CBS Seals DMV's Fate Ahead of Season 1 Finale
+
+TV, DMV
+
+Fri, 27 Mar 2026 23:00:29 GMT
+
+https://www.cbr.com/dmv-canceled-cbs/
+
+The workplace comedy's fate is officially sealed after one season.
+---------
+
+# 8 Fantasy TV Shows That Took Shockingly Dark Turns
+
+TV, Fantasy, Buffy The Vampire Slayer, Once Upon A Time, Grimm
+
+Fri, 27 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/fantasy-tv-shows-with-shockingly-dark-turns-list/
+
+These fantasy TV shows began with familiar setups before taking darker turns that shifted their tone and left a lasting impact on viewers.
+---------
+
+# Alien: Romulus Headed to HBO Max
+
+Movies, Alien: Romulus, Alien, HBO Max
+
+Fri, 27 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/alien-romulus-sci-fi-streaming-hbo-max-april-2026/
+
+Disney's Alien: Romulus, a $350M sci-fi hit reviving the franchise, is headed to HBO Max.
+---------
+
+# MLB The Show 26 Almost Hits a Home Run
+
+Games, PlayStation (Original)
+
+Fri, 27 Mar 2026 22:45:12 GMT
+
+https://www.cbr.com/mlb-the-show-26-review/
+
+MLB The Show 26 continues the yearly release by not focusing on huge changes, but little tweaks to the gameplay and modes that add up.
+---------
+
+# This Stellar 2-Part Horror Series Is the Perfect Weekend Binge
+
+Movie Features, Gremlins, Gremlins 2: The New Batch, Joe Dante, Steven Spielberg
+
+Fri, 27 Mar 2026 23:05:12 GMT
+
+https://collider.com/gremlins-horror-series-binge/
+
+Gremlins and Gremlins 2: The New Batch is the perfect 2-part horror movie series for a quick binge.
+---------
+
+# 10 Best Sitcom TV Finales of the Last 10 Years, Ranked
+
+TV, BoJack Horseman, One Day at a Time, Superstore, Sitcom
+
+Fri, 27 Mar 2026 22:44:12 GMT
+
+https://collider.com/best-sitcom-finales-ranked-last-10-years/
+
+Revisit the greatest sitcom endings from the past 10 years, featuring finales from BoJack Horseman, Modern Family, and The Good Place.
+---------
+
+# Netflix's Fan-Favorite Romance Series Is Officially Taking Over the World
+
+TV News, Netflix, Romance, Bridgerton, streaming
+
+Fri, 27 Mar 2026 22:41:12 GMT
+
+https://collider.com/bridgerton-season-4-romance-series-streaming-success-netflix-march-2026/
+
+Netflix's popular romance series has returned to the streaming chart following a major update about the show's future. Read on for more details.
+---------
+
+# HBO's 'Harry Potter' Series Has Already Broken a 'Game of Thrones' Record
+
+TV News, Harry Potter, HBO
+
+Fri, 27 Mar 2026 22:35:59 GMT
+
+https://collider.com/hbo-harry-potter-series-trailer-record-277-million-views/
+
+The trailer HBO's Harry Potter is the studio's biggest debut ever and it's not even close, with over 277 million views.
+---------
+
+# This 5-Part Crime Series Is One of Netflix’s Greatest Last-Chance Binges
+
+TV Features, Netflix, Queen of the South, Crime, Alice Braga
+
+Fri, 27 Mar 2026 22:34:12 GMT
+
+https://collider.com/netflix-crime-series-queen-of-the-south-leaving-april-7/
+
+The 5-part crime series The Queen of the South is leaving Netflix on April 7, binge now before it’s gone.
+---------
+
+# 'For All Mankind' Season 5 Premiere References a Wife We Never Knew Ed Had
+
+Features, For All Mankind
+
+Fri, 27 Mar 2026 23:00:17 GMT
+
+https://movieweb.com/for-all-mankind-season-5-ed-reveal/
+
+Joel Kinnaman's Ed Baldwin had been married twice before 'For All Mankind' Season 5, but the show's return begs to differ.
+---------
+
+# John Hannah Will Return in 'The Mummy 4' Alongside Brendan Fraser and Rachel Weisz
+
+Movie News, The Mummy 4
+
+Fri, 27 Mar 2026 21:13:40 GMT
+
+https://movieweb.com/the-mummy-4-john-hannah-casting/
+
+John Hannah will reprise his role as Jonathan Carnahan in 'The Mummy 4', set for release in May 2028.
+---------
+
 # One Quote Just Proved Jujutsu Kaisen's Gojo is New-Gen Anime's Most Important Hero
 
 Anime, Jujutsu Kaisen
