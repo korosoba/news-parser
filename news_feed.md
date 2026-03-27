@@ -1,3 +1,278 @@
+# One Quote Just Proved Jujutsu Kaisen's Gojo is New-Gen Anime's Most Important Hero
+
+Anime, Jujutsu Kaisen
+
+Fri, 27 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-gojo-new-gen-most-complex-anime-hero/
+
+Satoru Gojo has always been the strongest Sorcerer of the modern era, but his role in the series is so much more, according to Yuta's voice actor.
+---------
+
+# Red & Blue: DC & Marvel’s New Superman/Spider-Man Crossover Is A Must-Read For Fans Of Both Iconic Heroes
+
+DC Comics, Superman, Spider-Man, Marvel
+
+Fri, 27 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/dc-marvel-superman-spiderman-crossover-review/
+
+2026's first official Superman/Spider-Man crossover has arrived from DC Comics! Here's our review covering why it's a must-read for Marvel/DC fans.
+---------
+
+# Star Wars' New Revenge Of The Sith Sequel Rewrites The Rules Of The Galaxy
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Star Wars: Episode III - Revenge of the Sith
+
+Fri, 27 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-villain-main-character-breaks-rules/
+
+Discover how the upcoming animated series Maul - Shadow Lord is breaking new ground in the Star Wars franchise by following a villain who won't be redeemed, challenging the franchise's core principles of hope and redemption.
+---------
+
+# Baldur's Gate 3 Meets God Of War In Fantasy RPG You Can Play Free
+
+Gaming, Steam, PC, Baldur's Gate 3, God of War
+
+Fri, 27 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/steam-free-gods-death-reapers-access/
+
+This new fantasy RPG is completely free to try out now on Steam, and it's the perfect new game for fans of Baldur's Gate 3 and God of War.
+---------
+
+# CBS Cuts Short Watson, Sherlock Holmes Spin-Off After 2 Seasons
+
+TV, Watson, CBS
+
+Fri, 27 Mar 2026 22:22:55 GMT
+
+https://screenrant.com/cbs-cancels-divisive-sherlock-holmes-spinoff-after-2-seasons/
+
+CBS has canceled the Sherlock Holmes-inspired medical drama Watson after just two seasons, ending its unique twist on solving complex cases.
+---------
+
+# Prime Video’s New Crime Thriller & More Shows Worth Watching This Weekend
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 27 Mar 2026 22:18:19 GMT
+
+https://screenrant.com/prime-video-new-shows-this-weekend/
+
+Discover the hottest new releases on Prime Video this weekend, including a top-rated crime thriller, comedy series, and the world's #1 animated show.
+---------
+
+# Ghosts Season 5's Poker Game Sets Young Sheldon Star's Long-Awaited CBS Return In First Images & Release Date Revealed
+
+TV, Iain Armitage, Young Sheldon, Ghosts
+
+Fri, 27 Mar 2026 22:00:40 GMT
+
+https://screenrant.com/ghosts-season-5-iain-armitage-cbs-return-first-images/
+
+In a shocking turn of events, Iain Armitage's character on Ghosts could hold the key to a major plot twist that changes everything for Sam and Jay.
+---------
+
+# Zelda: Ocarina Of Time Players Blown Away By New Secret After 28 Years
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Fri, 27 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-new-secret-trick-uncovered/
+
+Discover a hidden trick in The Legend of Zelda: Ocarina of Time that allows players to avoid the franchise's scariest enemy using iron boots.
+---------
+
+# 10 Best New-Gen Anime, Ranked
+
+Anime
+
+Fri, 27 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/best-new-gen-anime-pure-art/
+
+The best new-gen anime a person can watch.
+---------
+
+# CBS Seals Watson's Fate Ahead of Season 2 Finale
+
+TV, Watson
+
+Fri, 27 Mar 2026 22:32:40 GMT
+
+https://www.cbr.com/watson-canceled-season-2-cbs/
+
+CBS has officially decided on the future of its newest Sherlock Holmes replacement series.
+---------
+
+# Best Pain Quotes In Naruto Shippuden
+
+Anime, Naruto: Shippuden, Naruto, Naruto Uzumaki
+
+Fri, 27 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/naruto-best-nagato-pain-quotes/
+
+Pain brought devastation to the Hidden Leaf in a skewed effort to achieve peace, and Nagato left fans with plenty to ponder in his words.
+---------
+
+# Frieren Season 2 Finale Review: "A Beautiful Sight"
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 27 Mar 2026 22:18:11 GMT
+
+https://www.cbr.com/frieren-season-2-episode-10-review/
+
+Frieren Season 2’s final episode caps things off with one last, nearly perfect pair of slow-burn side quests as set up for the hyped Golden Land arc.
+---------
+
+# 10 Near-Flawless Anime That Are Fantastic Until The Final Season
+
+Anime
+
+Fri, 27 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/best-anime-worst-final-seasons/
+
+From Attack on Titan to Aggretsuko, these titles prove how difficult it is to maintain quality all the way to the conclusion.
+---------
+
+# 'Mike & Nick & Nick & Alice' Is Exactly the Kind of Movie Everyone Says They Want to See
+
+Movies, Mike & Nick & Nick & Alice, Hulu
+
+Fri, 27 Mar 2026 22:10:35 GMT
+
+https://www.cbr.com/mike-and-nick-and-nick-and-alice-review/
+
+Vince Vaughn's new Hulu time-travel action comedy is the kind of genre-defying original movie people say Hollywood doesn't make anymore.
+---------
+
+# Warner Bros. 2027 Slate Reveals the Uncomfortable Truth About the SkyDance Merger
+
+Movies, warner bros, paramount pictures, box office
+
+Fri, 27 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/warner-bros-uncomfortable-truth-about-skydance-merger/
+
+CEO David Ellison promised 30 theatrical releases per year from a combined Paramount and Warner Bros., but the 2027 slate tells a different story.
+---------
+
+# Netflix's Agatha Christie Marple Reboot is a Must-Watch for Every Murder Mystery Fan
+
+TV, Marple, Netflix, Britbox UK
+
+Fri, 27 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-agatha-christie-marple-must-watch-murder-mystery/
+
+Before Kenneth Branagh's Poirot box-office hits and Netflix's Seven Dials, there was a 2000s adaptation starring a beloved Agatha Christie character.
+---------
+
+# Lights Out Is Finally Getting Its Sequel 10 Years After Announcement
+
+Movies, Lights Out
+
+Fri, 27 Mar 2026 22:00:08 GMT
+
+https://www.cbr.com/lights-out-2-sequel-moving-forward/
+
+The long-gestating horror sequel is finally making its way out of development hell.
+---------
+
+# 10 Years Later, Russell Crowe’s Cult Classic Crime Mystery Quietly Becomes a Streaming Favorite
+
+Movie News, Russell Crowe, Ryan Gosling, The Nice Guys, Shane Black
+
+Fri, 27 Mar 2026 22:21:12 GMT
+
+https://collider.com/ryan-gosling-russell-crowe-the-nice-guys-failed-franchise-starter-streaming-success-march-2026/
+
+Russell Crowe and Ryan Gosling's cult classic neo-noir comedy The Nice Guys is seeing a viewership spike as it celebrates its 10th anniversary.
+---------
+
+# Forget Man of Steel, Sand Castle Is Henry Cavill's Greatest Role
+
+Movie Features, Henry Cavill, Sand Castle, Man of Steel, Nicholas Hoult
+
+Fri, 27 Mar 2026 22:19:12 GMT
+
+https://collider.com/henry-cavill-man-of-steel-sandcastle-netflix-greatest-role/
+
+Henry Cavill showed that he can be a lot more than Superman in Netflix's Sand Castle.
+---------
+
+# Taylor Sheridan's 'Tulsa King' Officially Confirms Mitch Keller's Fate Ahead of Season 4
+
+TV News, Taylor Sheridan, Tulsa King, Garrett Hedlund, Sylvester Stallone
+
+Fri, 27 Mar 2026 22:05:57 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-season-4-wraps-filming-sylvester-stallone-garrett-hedlund/
+
+Tulsa King star Garrett Hedlund has confirmed the current status of Season 4 of the hit Taylor Sheridan series.
+---------
+
+# 'Fantasy Life' Review: Amanda Peet Delivers a Defining Performance in This Unconventional Age Gap Rom-Com
+
+Movie Reviews, Fantasy Life, Amanda Peet, Alessandro Nivola, Judd Hirsch
+
+Fri, 27 Mar 2026 22:05:10 GMT
+
+https://collider.com/fantasy-life-review-amanda-peet/
+
+Amanda Peet and Matthew Shear star in Fantasy Life, which breathes new life into the age gap rom-com.
+---------
+
+# One of the Best Historical Movies of All Time Is Arriving on Paramount+
+
+Movie News, The Banshees of Inisherin, Paramount Plus, Barry Keoghan, Colin Farrell
+
+Fri, 27 Mar 2026 22:00:12 GMT
+
+https://collider.com/colin-farrell-the-banshees-of-inisherin-streaming-paramount-plus-april-2026/
+
+A 114-minute R-rated masterpiece featuring Colin Farrell, Barry Keoghan, and Kerry Condon is about to hit a new streaming site.
+---------
+
+# Prime Video Drops 1st Episode of Guy Ritchie's New Mystery Series for Free, But There's a Catch
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Sherlock Holmes
+
+Fri, 27 Mar 2026 21:58:23 GMT
+
+https://collider.com/prime-video-guy-ritchie-mystery-series-young-sherlock-episode-1-free-streaming/
+
+Prime Video is releasing the first episode of Guy Ritchie's Young Sherlock for free for a limited time.
+---------
+
+# The Underrated Horror Anthology 'The Terror' Season 3 Premieres in May 2026
+
+Features, The Terror, Horror
+
+Fri, 27 Mar 2026 22:00:16 GMT
+
+https://movieweb.com/the-terror-season-3-returns/
+
+'The Terror' Season 3 premieres on AMC+ and Shudder in May 2026 and stars Dan Stevens and Judith Light.
+---------
+
+# 'Paw Patrol: The Dino Movie' Unveils Prehistoric First Look Images
+
+Movie News, PAW Patrol 3
+
+Fri, 27 Mar 2026 21:59:47 GMT
+
+https://movieweb.com/paw-patrol-dino-movie-first-look/
+
+Paramount Pictures and Nickelodeon Movies revealed the first full look at a new childrens' movie, 'PAW Patrol: The Dino Movie.'
+---------
+
 # Pitt Star Dishes On Potential Mateo-Javadi Romance
 
 TV, The Pitt, The Pitt - Season 2, Shabana Azeez
