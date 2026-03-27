@@ -1,3 +1,201 @@
+# Hogwarts Legacy 2 Official Release Date Update Has Fans Seriously Excited
+
+Gaming, Hogwarts Legacy
+
+Fri, 27 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-2-release-window-update-2028/
+
+WB Games CEO JB Perrette hints at a 2027-2028 release window for Hogwarts Legacy 2.
+---------
+
+# Star Trek's Most Divisive Era Has Less Than 30 Hours Left
+
+TV, Star Trek, Star Trek: Starfleet Academy, Star Trek: Strange New Worlds
+
+Fri, 27 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/star-trek-modern-era-hours-left/
+
+Star Trek's modern era has been the franchise's most controversial and divisive yet. With Starfleet Academy's cancellation, it is now officially over.
+---------
+
+# 59 Years Later, Classic Batgirl Officially Unveils Her Darkest Redesign of All Time
+
+Comics, Batgirl
+
+Fri, 27 Mar 2026 12:00:20 GMT
+
+https://screenrant.com/batgirl-new-costume-best-redesign-batman-barbara-gordon/
+
+Batgirl Barbara Gordon just debuted her darkest redesign of all time, as the character hits what's sure to be the lowest moment of her entire career.
+---------
+
+# Final Fantasy 9 Officially Returns With New Release From Square Enix
+
+Gaming, Final Fantasy 9, Final Fantasy, PC
+
+Fri, 27 Mar 2026 11:56:08 GMT
+
+https://screenrant.com/final-fantasy-9-official-march-2026-release-square-enix/
+
+Final Fantasy 9 fans are over the moon after the iconic entry in the franchise makes an epic return with an official release from Square Enix.
+---------
+
+# GTA 6 Step Aside, GTA 7's Setting Was Just Confirmed
+
+Gaming, Grand Theft Auto 6
+
+Fri, 27 Mar 2026 11:45:18 GMT
+
+https://screenrant.com/gta-7-setting-confirmed-america-gta-6/
+
+Former Rockstar employee Obbe Vermeij discusses the potential setting for Grand Theft Auto 7.
+---------
+
+# Rachel's Family Curse In Something Very Bad Is Going To Happen Explained (In Detail)
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Fri, 27 Mar 2026 11:45:18 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-rachel-family-curse-explained/
+
+The mysterious curse looming over Rachel's family becomes a driving force in Something Very Bad Is Going to Happen, and here are all the details.
+---------
+
+# God Of War Free Download Officially Available For PlayStation Gamers
+
+Gaming, God of War
+
+Fri, 27 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/god-of-war-free-download-march-2026-codes/
+
+Celebrate God of War's 20th anniversary with an exclusive free PlayStation avatar.
+---------
+
+# Young Sheldon’s Iain Armitage Addresses Future Spinoff Return After George & Mandy Season 3 Renewal
+
+Network TV, Georgie & Mandy's First Marriage, Young Sheldon, The Big Bang Theory
+
+Fri, 27 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/georgie-and-mandys-first-marriage-season-3-sheldon-cameo-hopes-iain-armitage/
+
+Going into Georgie & Mandy's First Marriage season 3, Young Sheldon star Iain Armitage comments on the possibility that Sheldon might finally show up.
+---------
+
+# Captain America and Doctor Doom Team Up Ahead Of A Major Marvel Event
+
+Comics, Captain America, Marvel, Doctor Doom
+
+Fri, 27 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/captain-america-and-doctor-doom-teamup-confirmed/
+
+Captain America is teaming up with the Marvel Cinematic Universe's next big bad to take on Marvel Comics' impending Armageddon.
+---------
+
+# The Best Cyberpunk Sci-Fi Series Ever Made Is Still a Streaming Titan 6 Years Later
+
+TV News, Mr. Robot, Sam Raimi, Tubi, Rami Malek
+
+Fri, 27 Mar 2026 12:01:12 GMT
+
+https://collider.com/rami-malek-cyberpunk-sci-fi-thriller-mr-robot-streaming-free-tubi-march-2026/
+
+Mr. Robot, the cyberpunk thriller series created by Sam Esmail and starring Rami Malek, has landed on a free streaming service.
+---------
+
+# Is It Too Late to Stop AI? New Doc Featuring 100+ AI Insiders Raises Chilling Questions
+
+Exclusives, The AI Doc: Or How I Became an Apocaloptimist, Daniel Kwan, Everything Everywhere All at Once, SXSW
+
+Fri, 27 Mar 2026 12:01:12 GMT
+
+https://collider.com/the-ai-doc-or-how-i-became-an-apocaloptimist-daniel-kwan-interview/
+
+Producers Daniel Kwan, Ted Tremper and Diane Becker share what they learned from the leading figures in AI advancement, for better or for worse.
+---------
+
+# As a Studio Ghibli Fan, These Are the 10 Greatest Movies, Ranked
+
+Movie, Studio Ghibli, Spirited Away, Howl's Moving Castle, Animation
+
+Fri, 27 Mar 2026 11:57:13 GMT
+
+https://collider.com/studio-ghibli-fan-ranks-best-movies/
+
+Studio Ghibli is one of the premier forces in animation, and as a fan, I think My Neighbor Totoro and Spirited Away are among its best movies.
+---------
+
+# 10 Movies To Watch if You Love Playing 'Until Dawn'
+
+Movie, Until Dawn, Saw, The Cabin in the Woods, I Know What You Did Last Summer
+
+Fri, 27 Mar 2026 11:45:12 GMT
+
+https://collider.com/movies-like-until-dawn-video-game/
+
+From The Blair Witch Project to The Descent, these are the best movies to watch for fans of the survival horror video game Until Dawn.
+---------
+
+# 10 Forgotten Fantasy Movies That Are Still Perfect Today
+
+Movie, Fantasy, Angel's Egg, The Fall, Legend
+
+Fri, 27 Mar 2026 11:36:13 GMT
+
+https://collider.com/forgotten-fantasy-movies-still-perfect-today/
+
+From The Fall to The Spiderwick Chronicles, these great films may be forgotten by audiences, but they are still perfect examples of the fantasy genre.
+---------
+
+# 8 Classic Crime TV Shows That Have Aged Like Fine Wine
+
+TV, Crime, Matlock, Hawaii Five-O, Poirot
+
+Fri, 27 Mar 2026 11:22:12 GMT
+
+https://collider.com/classic-crime-shows-aged-well/
+
+Uncover influential classic crime TV shows that continue to captivate audiences with their enduring quality, from Hill Street Blues to Columbo.
+---------
+
+# 10 Greatest First Chapters in Movie Trilogies, Ranked
+
+Movie, The Godfather, The Bourne Identity, A Fistful of Dollars, The Girl With the Dragon Tattoo
+
+Fri, 27 Mar 2026 11:22:12 GMT
+
+https://collider.com/movie-trilogies-best-first-chapters-ranked/
+
+Some trilogies start strong, but films like The Godfather and Star Wars didn’t just set up stories; they built complete worlds from frame one.
+---------
+
+# Chris Hemsworth's 'Crime 101' Gets Prime Video Release Date
+
+Movie News, Chris Hemsworth, Crime 101, Action, Thriller, Prime Video
+
+Fri, 27 Mar 2026 11:44:55 GMT
+
+https://movieweb.com/chris-hemsworth-crime-101-streaming-release-date/
+
+According to a new report, the 2026 action crime thriller will hit streaming in April.
+---------
+
+# 'The Mortuary Assistant' Review: Willa Holland Elevates Flawed Adaptation of Viral Video Game
+
+Movie Reviews, The Mortuary Assistant, Shudder, Horror
+
+Fri, 27 Mar 2026 11:25:14 GMT
+
+https://movieweb.com/the-mortuary-assistant-review/
+
+'The Mortuary Assistant,' based on the video game by DarkStone Digital and DreadXP, blends horror and drama but struggles with pacing and plot holes.
+---------
+
 # Cyberpunk 2077: Ronin Officially Announced, Coming April 18
 
 Gaming, Cyberpunk 2077
