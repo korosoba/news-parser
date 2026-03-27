@@ -1,3 +1,80 @@
+# Pitt Star Dishes On Potential Mateo-Javadi Romance
+
+TV, The Pitt, The Pitt - Season 2, Shabana Azeez
+
+Fri, 27 Mar 2026 21:34:11 GMT
+
+https://screenrant.com/the-pitt-mateo-javadi-fan-shipping-jalen-thomas-brooks-response/
+
+Exclusive: The Pitt star, Jalen Thomas Brooks (Mateo) discusses and provides clarity on Victoria Javadi and Mateo Diaz's on-screen relationship.
+---------
+
+# David Tennant’s MCU Return Just Got Even More Possible
+
+Superheroes, David Tennant, Daredevil: Born Again, Jessica Jones, Marvel Cinematic Universe
+
+Fri, 27 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/david-tennant-mcu-return-daredevil-born-again-season-2/
+
+David Tennant's chilling Kilgrave left a lasting impression, with Marvel reintroducing Netflix-era characters, his return is increasingly plausible.
+---------
+
+# Star Trek: Starfleet Academy Fan Petition Hits Milestone After Paramount+ Cancellation
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Fri, 27 Mar 2026 21:47:08 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-petition-cancellation/
+
+Star Trek: Starfleet Academy fans are rallying to save the show after its fate was sealed by Paramount+.
+---------
+
+# In April, Netflix Debuts Its Send Help Replacement Starring Charlize Theron
+
+Movies, Apex, Send Help, Netflix
+
+Fri, 27 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/netflix-apex-release-date-send-help-replacement-charlize-theron-thriller/
+
+Netflix officially unveils the perfect new survival thriller for fans of Sam Raimi's surprise hit, Send Help.
+---------
+
+# Peter Jackson Said the Dawn of the Dead is the Greatest Horror Movie Ever
+
+Movies, Dawn of the Dead
+
+Fri, 27 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/peter-jackson-dawn-of-the-dead-greatest-horror-movie/
+
+The Lord of the Rings director Peter Jackson credits this George A. Romero zombie movie as one of the films that influenced him the most.
+---------
+
+# The Perfect ‘Stranger Things’ Replacement Just Premiered on Netflix
+
+TV, Netflix, Something Very Bad Is Going to Happen, Alice in Borderland, Heartbreak High
+
+Fri, 27 Mar 2026 21:48:12 GMT
+
+https://collider.com/best-netflix-shows-watch-weekend-march-27/
+
+Something Very Bad Is Going to Happen, Heartbreak High, and Alice in Borderland make our list of best Netflix shows to watch the weekend of March 27.
+---------
+
+# HBO Max's 7-Part Addictive Crime Thriller Becomes a Late-Night Sleeper Hit
+
+TV News, DTF St. Louis, HBO Max, Drama, Mystery
+
+Fri, 27 Mar 2026 21:41:12 GMT
+
+https://collider.com/dtf-st-louis-crime-thriller-streaming-success-hbo-max-march-2026/
+
+HBO's unconventional murder mystery explores the impact of a love triangle on three middle-aged adults and has become a streaming hit.
+---------
+
 # Crunchyroll Makes Massive Deal With Streaming Giant: Details Here
 
 Anime, Crunchyroll, Apple TV, Crunchyroll Premium
