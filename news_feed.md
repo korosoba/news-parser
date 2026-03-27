@@ -1,3 +1,256 @@
+# After 79 Years, This DC Hero Just Got Their Most Hardcore Redesign of All Time
+
+DC Comics, DC, Black Canary, Green Arrow
+
+Fri, 27 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/absolute-black-canary-redesign-new-costume-green-arrow/
+
+A brand-new Absolute comic book series is releasing in a couple of months, and its redesign for one classic character is simple yet terrific.
+---------
+
+# With Baldur's Gate 3 In The Rear View, Wyldheart Has A Lot Of Potential For RPG Fans
+
+Gaming, Baldur's Gate, Indie Games
+
+Fri, 27 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/baldurs-gate-3-fans-wyldheart-rpg-preview/
+
+Wyldheart is a new co-op RPG from Wayfinder Studios, and it's very promising, especially for hardcore RPG fans who want to start a campaign.
+---------
+
+# Invincible Calls Out The MCU's "Super-Weird" Costume Trope (But Admits It Looks Cool)
+
+Streaming TV, Invincible
+
+Fri, 27 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/invincible-season-4-helmet-mcu-joke/
+
+An MCU costume trend that has been a point of discussion for a while was called out in Invincible season 4, episode 4, in more ways than one.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is A Sci-Fi Epic With Impressive Visuals)
+
+Movies, Netflix, Recommendation
+
+Fri, 27 Mar 2026 19:20:20 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-march-28/
+
+There are some great movie options to watch on Netflix this weekend, including a sci-fi epic, a comedy with major stars, and a mysterious film.
+---------
+
+# Mike & Nick & Nick & Alice Ending Explained: How Time-Travel Works In The Crime Thriller And How It Sets Up A Sequel
+
+Movies, Mike & Nick & Nick & Alice
+
+Fri, 27 Mar 2026 19:20:20 GMT
+
+https://screenrant.com/mike-nick-nick-alice-ending-explained/
+
+Mike & Nick & Nick & Alice's fusion of time-travel and crime thrillers leads to a surprisingly emotional story that also lays the seeds for a sequel.
+---------
+
+# Prime Video's New James Bond-esque Thriller Extends 18-Year Rotten Tomatoes Streak For Riz Ahmed
+
+TV, Bait
+
+Fri, 27 Mar 2026 19:01:50 GMT
+
+https://screenrant.com/prime-video-bait-show-rotten-tomatoes-audience-score-riz-ahmed-streak/
+
+Prime Video's new James Bond-esque thriller extends a Rotten Tomatoes streak for Riz Ahmed going back 18 years to one of his early TV shows.
+---------
+
+# Detective Hole's Major Season-Opening Death & How It Impacts The Characters Explained By Star
+
+TV, Joe Nesbø's Detective Hole, Jo Nesbo's Detective Hole - Season 1, Netflix, Joel Kinnaman
+
+Fri, 27 Mar 2026 19:00:22 GMT
+
+https://screenrant.com/detective-hole-season-1-ellen-death-impact-joel-kinnaman/
+
+Exclusive: Joel Kinnaman explains Detective Hole's major death at the end of the season 1 premiere and how it will impact the show's characters.
+---------
+
+# HBO's Harry Potter Is Already Breaking My Heart
+
+Streaming TV, Harry Potter
+
+Fri, 27 Mar 2026 19:00:22 GMT
+
+https://screenrant.com/harry-potter-tv-show-trailer-break-heart-dursleys-abuse/
+
+It only took a single two-minute trailer for HBO's Harry Potter TV show to break my heart. With this approach, there's sure to be more tears to come.
+---------
+
+# HBO Max's Hit 6-Part Space Opera Series Gets Exciting Return Update After Nearly 2-Year Wait
+
+TV, Dune: Prophecy, Dune: Prophecy - Season 2, Dune
+
+Fri, 27 Mar 2026 18:56:01 GMT
+
+https://screenrant.com/dune-prophecy-season-2-filming-production-wrap/
+
+A brand-new update has been revealed for HBO’s hit space opera prequel series, which will return sometime in 2026 after premiering in 2024.
+---------
+
+# Hudson Williams & Dylan O'Brien Starring In New Thriller Apparatus
+
+Movies, Dylan O'Brien
+
+Fri, 27 Mar 2026 18:51:48 GMT
+
+https://screenrant.com/hudson-williams-dylan-obrien-apparatus-movie-thriller/
+
+Dylan O'Brien is facing his own heated rivalry as he and Hudson Williams will come head-to-head in a new dark comedy thriller titled Apparatus.
+---------
+
+# Nintendo Switch 2 Leak Explains Mario Galaxy Movie Cameo
+
+Games, Nintendo, Nintendo Switch
+
+Fri, 27 Mar 2026 19:31:12 GMT
+
+https://www.cbr.com/starfox-nintendo-switch-2-leak-mario-galaxy-movie/
+
+A trusted leaker is claiming that a classic Nintendo franchise is returning on Switch 2, explaining a cameo in The Super Mario Galaxy Movie.
+---------
+
+# Antony Starr Talks Possibly Playing Albert Wesker in Resident Evil
+
+Movies, Resident Evil
+
+Fri, 27 Mar 2026 19:28:33 GMT
+
+https://www.cbr.com/antony-starr-albert-wesker-resident-evil/
+
+Fans have been demanding for years for Antony Starr to play Resident Evil's Albert Wesker.
+---------
+
+# Jujutsu Kaisen Officially Loses to One Piece Again in New Oricon Manga Sales Ranking
+
+Anime, Jujutsu Kaisen, One Piece, Jujutsu Kaisen Modulo
+
+Fri, 27 Mar 2026 19:21:34 GMT
+
+https://www.cbr.com/jujutsu-kaisen-vs-one-piece-new-oricon-manga-sales-ranking/
+
+Jujutsu Kaisen continues to lose out to the biggest returning series of the year, and it doesn't look like catching up is going to be possible.
+---------
+
+# For All Mankind Season 5: How the Butterfly Effect Redefined a Decade
+
+TV, For All Mankind, Apple TV, Sci-Fi
+
+Fri, 27 Mar 2026 19:17:26 GMT
+
+https://www.cbr.com/for-all-mankind-season-5-alternate-sci-fi-history-scene/
+
+For All Mankind's alternate history continues to stray away from real-life events in Season 5, redefining a decade through small, significant events.
+---------
+
+# Justified Sill Has 1 of the Greatest Final Lines in TV History
+
+TV, Justified, Western
+
+Fri, 27 Mar 2026 19:05:41 GMT
+
+https://www.cbr.com/timothy-olyphant-justified-greatest-western-final-line-tv-history/
+
+Timothy Olyphant has delivered some great roles, but alongside Walton Goggins, one neo-Western made TV history in an epic way.
+---------
+
+# Netflix’s Keira Knightley Spy Thriller Black Doves Makes Slow Horses Look Weak
+
+TV, Black Doves, Slow Horses, Thriller
+
+Fri, 27 Mar 2026 19:04:27 GMT
+
+https://www.cbr.com/netflix-keira-knightley-spy-thriller-vs-slow-horses/
+
+Knightley's pulpy, violent espionage caper is one of the more recent pretenders to Gary Oldman and Apple TV's dominance of the spy genre.
+---------
+
+# Netflix Is Officially Losing The Hurt Locker In Just 4 Days
+
+Movies, Netflix, The Hurt Locker
+
+Fri, 27 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/the-hurt-locker-leaving-netflix-march-2026/
+
+Time is running out to watch the Oscar-winning, history-making war movie on Netflix.
+---------
+
+# Only 3 Star Trek Movies Are Better Than the TV Show
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Star Trek: First Contact
+
+Fri, 27 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/3-star-trek-movies-better-than-tv-show/
+
+Star Trek became a sprawling film franchise thanks to its brilliant, powerful TV shows, but only three of the 14 movies told bigger, better stories.
+---------
+
+# 10 Classic 2000s Shows That Are Still Perfect
+
+TV, Lost, The Wire, Breaking Bad
+
+Fri, 27 Mar 2026 19:00:13 GMT
+
+https://www.cbr.com/best-classic-2000s-shows-list/
+
+These 2000s television shows revolutionized storytelling, including Breaking Bad, Firefly, Lost, and more.
+---------
+
+# In Just 7 Days, Ryan Gosling’s Sci-Fi Masterpiece Beats ‘Dune’ at the Box Office
+
+Movie News, Project Hail Mary, Dune, Sci-Fi, Denis Villeneuve
+
+Fri, 27 Mar 2026 19:30:13 GMT
+
+https://collider.com/project-hail-mary-box-office-overtakes-dune-one-of-the-greatest-sci-fi-epics-of-the-decade-160-million/
+
+Project Hail Mary has passed its first major box office milestone while also overtaking one of the greatest sci-fi epics of the decade. Find out more.
+---------
+
+# All 3 Lord of the Rings Movies Are Masterpieces, but One Is Untouchable
+
+Movie, Fantasy, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Fri, 27 Mar 2026 19:29:12 GMT
+
+https://collider.com/lord-of-the-rings-movies-masterpieces-ranked/
+
+The Lord of the Rings trilogy is truly the crowning gem of the fantasy genre, but which of the three movies is the most masterful in its execution?
+---------
+
+# 10 Greatest Superhero Shows You Can Binge in One Week, Ranked
+
+TV, Superhero, Batman: The Animated Series, Daredevil, X-Men '97
+
+Fri, 27 Mar 2026 19:08:12 GMT
+
+https://collider.com/best-superhero-shows-binge-one-week-ranked/
+
+Discover the top superhero TV shows perfect for binge-watching in just one weekend, from Daredevil to Batman: The Animated Series.
+---------
+
+# Tom Hardy's Action Crime Thriller 'Lawless' Streams for Free on Tubi in April 2026
+
+Movie News, Lawless, Tubi, Coming/Leaving Streaming, Tom Hardy
+
+Fri, 27 Mar 2026 19:00:20 GMT
+
+https://movieweb.com/lawless-streaming-free-tubi-april-2026/
+
+Tom Hardy, Gary Oldman, and Guy Pearce's throwback action crime thriller that's based on a true story, 'Lawless,' can be watched for free on Tubi.
+---------
+
 # Netflix's Magic: The Gathering Series Could Outshine The Witcher
 
 Streaming TV, The Witcher, Magic: The Gathering
