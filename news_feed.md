@@ -1,3 +1,234 @@
+# Why Bob Dylan's 17-Minute Song "Murder Most Foul" Changed Music History
+
+Music, Bob Dylan, Classic Rock, JFK Assassination: The Definitive Guide, Rock, YouTube
+
+Fri, 27 Mar 2026 16:43:19 GMT
+
+https://screenrant.com/bob-dylan-murder-most-foul-8-year-silence-explained/
+
+Bob Dylan broke an 8-year silence with "Murder Most Foul," a 17-minute odyssey. Here’s why his longest song changed everything in 2020.
+---------
+
+# Crunchyroll Just Lost the Greatest Shonen Jump Anime of All Time
+
+Anime, Hunter x Hunter, Hunter X Hunter, Crunchyroll, Hunter x Hunter: Phantom Rouge, Hunter x Hunter: The Last Mission
+
+Fri, 27 Mar 2026 16:42:43 GMT
+
+https://screenrant.com/crunchyroll-loses-hunter-x-hunter-greatest-shonen-jump-anime-ever/
+
+One of the most beloved Shonen Jump anime of all time just left Crunchyroll without much warning, so here is where you can still stream it.
+---------
+
+# The Super Mario Galaxy Movie Cast: Every Confirmed Actor & Character
+
+New Movies, The Super Mario Galaxy Movie
+
+Fri, 27 Mar 2026 16:35:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-cast-characters-confirmed/
+
+The Super Mario Galaxy Movie has an incredible voice cast featuring returning stars and major new characters from the Nintendo video game.
+---------
+
+# 12 Best TV Shows Saved By Netflix
+
+Classic TV, Netflix
+
+Fri, 27 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/best-tv-shows-saved-by-netflix/
+
+Discover the 12 TV shows saved by Netflix after being canceled by other networks, and how their revivals found new life on the streaming platform.
+---------
+
+# 10 Anime That Are 10/10 If You Ignore Their Horrible Endings
+
+Anime
+
+Fri, 27 Mar 2026 16:30:19 GMT
+
+https://screenrant.com/perfect-anime-ignore-endings/
+
+A great anime is typically great all around, from the opening to the ending. However, these shows defy that logic completely.
+---------
+
+# Star Wars Frontlines Is Basically Battlefront 3, Coming This May
+
+Gaming, Star Wars: Battlefront 3, Star Wars, Fortnite, Live Service Games, PC
+
+Fri, 27 Mar 2026 16:26:42 GMT
+
+https://screenrant.com/star-wars-battlefront-3-frontlines-may-2026/
+
+Star Wars' Battlefront series is incapable of reaching a third entry, but fans are making an impressive substitute, just in time for Star Wars Day.
+---------
+
+# Netflix's New 9-Part Crime Series With Perfect Rotten Tomatoes Score Is An Instant Global Streaming Smash
+
+TV, Joe Nesbø's Detective Hole, Netflix
+
+Fri, 27 Mar 2026 16:13:27 GMT
+
+https://screenrant.com/detective-hole-netflix-show-streaming-success/
+
+Netflix's new crime series is based on best-selling novels, and it has quickly dominated the streaming service worldwide with a perfect debut.
+---------
+
+# HBO's 2-Part Crime Thriller Will Officially Reclaim Its Status As One Of TV's Best Book Adaptations
+
+Streaming TV, Big Little Lies
+
+Fri, 27 Mar 2026 16:00:19 GMT
+
+https://screenrant.com/big-little-lies-season-3-big-little-truths-hbo-best-book-adaptation/
+
+Even though this HBO crime thriller was once a smash hit, its reputation diminished with season 2. Now the book adaptation will reclaim its crown.
+---------
+
+# Duffer Bros’ New 8-Part Netflix Thriller Series Is An Instant American Streaming Sensation
+
+TV, Something Very Bad Is Going to Happen
+
+Fri, 27 Mar 2026 15:57:57 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-netflix-streaming-success-march-2026/
+
+Stranger Things creators Matt and Ross Duffer's new horror series has become an instant streaming sensation after its release on Netflix.
+---------
+
+# Why Star Trek 4 Isn’t Happening
+
+Movies, Star Trek 4, Explainer, Quiz CV
+
+Fri, 27 Mar 2026 15:45:19 GMT
+
+https://screenrant.com/star-trek-4-not-happening-explainer/
+
+The fourth film in Star Trek's Kelvin timeline was in development for years, but why has it suddenly been cancelled after all this time?
+---------
+
+# Psych Star Corbin Bernsen Teases a Surprising Home for New Drama Series Woodstockers
+
+CBR Exclusives, Psych
+
+Fri, 27 Mar 2026 16:16:26 GMT
+
+https://www.cbr.com/psych-corbin-bernsen-woodstockers-streaming-home/
+
+Two of the biggest Psych stars open up about their latest indie series, and one of them even knows where it will land if it ends up without a network.
+---------
+
+# The 10 Strongest Sailor Moon Characters as of 2026, Ranked
+
+Anime, Sailor Moon
+
+Fri, 27 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/sailor-moon-strongest-characters-2026/
+
+Sailor Moon's strongest characters wield cosmic-level power that few characters in other anime universes ever come close to.
+---------
+
+# Supergirl, Clayface and James Gunn’s Complete DCU Timeline (So Far)
+
+Movies, James Gunn, DCU
+
+Fri, 27 Mar 2026 16:06:47 GMT
+
+https://www.cbr.com/james-gunn-complete-dcu-timeline/
+
+James Gunn and Peter Safran are completely revitalizing the DC Universe, and some details about the upcoming timeline have already been released.
+---------
+
+# Kingsman: The Secret Service Features Michael Caine’s Most Controversial Acting Choice
+
+Movies, michael caine, Kingsman: The Secret Service, Action
+
+Fri, 27 Mar 2026 16:01:12 GMT
+
+https://www.cbr.com/michael-caine-kingsman-secret-service-controversial-acting-choice/
+
+Michael Caine headlined a number of spy thrillers, but Kingsman: The Secret Service saw a new side to the prolific actor.
+---------
+
+# HBO's Harry Potter Series Drops Voldemort Casting Update
+
+TV News, Harry Potter, HBO Max
+
+Fri, 27 Mar 2026 16:25:57 GMT
+
+https://collider.com/hbo-harry-potter-series-voldemort-not-cast-yet-casey-bloys-explains/
+
+HBO’s Harry Potter series gets a serious update regarding whether they’ve officially cast Voldemort ahead of planned Christmas release date.
+---------
+
+# New Indie Film Blends Fantasy With a Powerful Reality [Exclusive]
+
+Movie News, Exclusive Media, Fantasy, Drama, Indie
+
+Fri, 27 Mar 2026 16:00:13 GMT
+
+https://collider.com/hair-or-no-hair-cast-reveal-janessa-st-pierre-cody-kearsley-rryla-mcintosh-karen-holness-tandia-mercedes/
+
+Meet the diverse cast of the indie fantasy-drama Hair or No Hair, including Janessa St. Pierre, Cody Kearsley, Rryla McIntosh, and more.
+---------
+
+# 'Something Very Bad Is Going to Happen' Creator Explains the Finale's Twist Ending and Rachel's Fate
+
+Exclusives, Something Very Bad Is Going to Happen, Netflix, Horror, Camila Morrone
+
+Fri, 27 Mar 2026 16:00:13 GMT
+
+https://collider.com/something-very-bad-is-going-to-happen-netflix-finale-meaning-explained-creator-haley-z-boston-interview/
+
+Something Very Bad Is Going to Happen creator Haley Z. Boston breaks down the finale's twist ending, Rachel's ultimate fate, and more.
+---------
+
+# Prime Video's 94% RT Sci-Fi Western Is Still a Colossal Hit on Streaming Charts
+
+TV Features, Fallout, Ella Purnell, Walton Goggins, Sci-Fi
+
+Fri, 27 Mar 2026 15:57:12 GMT
+
+https://collider.com/fallout-prime-video-sci-fi-western-streaming-charts/
+
+Prime Video's hit sci-fi show Fallout, starring Walton Goggins, Ella Purnell, and Kyle MacLachlan continues to dominate since its 2024 debut.
+---------
+
+# Sydney Sweeney's 'The Housemaid' Fends Off Jason Statham's Latest on Streaming
+
+Movie News, The Housemaid, Shelter, Hot on Streaming
+
+Fri, 27 Mar 2026 16:30:17 GMT
+
+https://movieweb.com/the-housemaid-sydney-sweeney-shelter-jason-statham-streaming-march-2026/
+
+Not even Jason Statham's new action thriller can compete with the seductive powers of Sweeney's biggest box office hit to date.
+---------
+
+# How Many Episodes Are Left in ‘The Pitt’ Season 2?
+
+Features, The Pitt
+
+Fri, 27 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/the-pitt-season-2-episodes-left-perfect/
+
+As 'The Pitt' Season 2 approaches its incredibly exciting climax, audiences can't help but wonder just how many episodes are left to air on HBO Max.
+---------
+
+# The Office: The Most Disliked Characters on the Show, Ranked
+
+TV Lists, The Office
+
+Fri, 27 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/the-office-the-most-disliked-characters-ranked/
+
+The Office is filled with lovable characters, yet some characters along the way are simply detestable. Here are some of the most disliked characters.
+---------
+
 # GTA 6 Fans Horrified By Official Price Update
 
 Gaming, Grand Theft Auto 6, Triple-A Games
