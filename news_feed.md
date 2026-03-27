@@ -1,3 +1,333 @@
+# 10 Most Exciting Fantasy Movies Ever Made, Ranked
+
+Movies, Fantasy
+
+Fri, 27 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/10-most-exciting-fantasy-movies-ever-made-ranked/
+
+These fantasy movies are exciting, immersive, and well worth the watch.
+---------
+
+# NBC Renews Chicago Fire, P.D., And Med
+
+TV, Chicago Fire, Chicago Med, Chicago PD: Breaking the Code of Silence, NBC
+
+Fri, 27 Mar 2026 20:23:47 GMT
+
+https://screenrant.com/chicago-fire-season-15-pd-season-14-med-season-12-renewed-nbc/
+
+NBC confirms the fate of its beloved 'One Chicago' franchise, renewing Chicago Fire for Season 15, Chicago P.D. for Season 14, and Chicago Med for Season 12, with all three series set to return in fall 2026.
+---------
+
+# Avengers: Doomsday, Dune 3 & Jumanji 4: The Epic Box Office Showdown Of 2026
+
+Movies, Jumanji 4
+
+Fri, 27 Mar 2026 20:20:18 GMT
+
+https://screenrant.com/jumanji-movie-box-office-avengers-doomsday-dune-3-competitor/
+
+Avengers: Doomsday and Dune: Part Three could face competiton at the box office from another notable sequel that's releasing around the same time.
+---------
+
+# 10 K-Dramas That Have The Best Soundtracks
+
+Classic TV, K-Drama
+
+Fri, 27 Mar 2026 20:15:20 GMT
+
+https://screenrant.com/k-dramas-with-the-best-soundtracks/
+
+Most Korean dramas come with their own original soundtrack, but the right music can turn a K-drama into an instant classic for years to come.
+---------
+
+# Thanksgiving 2 Gets Exciting New Script Details & Major Character Return Confirmed 3 Years Later
+
+Movies, Thanksgiving 2, Thanksgiving, Horror, Eli Roth
+
+Fri, 27 Mar 2026 20:12:38 GMT
+
+https://screenrant.com/thanksgiving-2-new-script-details-bobby-return-confirmed-jalen-thomas-brooks/
+
+Exclusive: Eli Roth's long-awaited Thanksgiving 2 gets exciting new script details from an original star, who also confirms a key character's return.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A New R-Rated Action Thriller)
+
+Movies, Prime Video, Recommendation
+
+Fri, 27 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-march-28/
+
+Looking for movies to watch on Prime Video this weekend? The streaming service has a bloody new R-rated thriller, a tense sci-fi, and a horror film.
+---------
+
+# Valheim Meets The Elder Scrolls In New Sandbox RPG You Can Try Free
+
+Gaming, The Elder Scrolls, Steam, PC, Valheim
+
+Fri, 27 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/steam-free-valheim-meets-elder-scrolls-survival-rpg/
+
+If you're growing increasingly impatient for the release of The Elder Scrolls 6, there's a new sandbox RPG you can check out free now.
+---------
+
+# Iron Man Introduces New AIM Civil War To Marvel Lore
+
+Marvel Comics, Iron Man, Marvel
+
+Fri, 27 Mar 2026 20:00:20 GMT
+
+https://screenrant.com/iron-man-civil-war-aim/
+
+Marvel's new Iron Man series presents a third Civil War that pits a group of unexpected characters against each other, with Tony Stark at the center.
+---------
+
+# Zander Hawley Discusses The Rookie Season 8 Return & New Single 'Caroline'
+
+Network TV, The Rookie
+
+Fri, 27 Mar 2026 19:54:53 GMT
+
+https://screenrant.com/the-rookie-season-8-hodge-return-zander-hawley-interview/
+
+The Rookie’s Zander Hawley opens up about returning to the ABC hit as Rodge, Celina’s musician boyfriend, and teases his latest single.
+---------
+
+# FX's New Horror Series Based On American Psycho Author Bret Easton Ellis' Bestseller Gets Release Window
+
+TV, American Psycho, FX
+
+Fri, 27 Mar 2026 19:46:09 GMT
+
+https://screenrant.com/fx-the-shards-show-release-window-revealed-bret-easton-ellis/
+
+Over 30 years after publishing American Psycho, Bret Easton Ellis wrote another horror novel, which is being adapted for FX and has a release window.
+---------
+
+# 10 Must-Have 2026 Movie Books To Buy During the Amazon Spring Sale
+
+Movies, Amazon.com
+
+Fri, 27 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/amazon-spring-sale-2026-books-movie-adaptations-deals-list/
+
+Movie and book fans alike need to take advantage of Amazon's Spring Sale to get these books, all with adaptations coming out this year.
+---------
+
+# Netflix's Jo Nesbo's Detective Hole Debuts to Rare Perfect Rotten Tomatoes Score
+
+TV, Joe Nesbø's Detective Hole
+
+Fri, 27 Mar 2026 20:27:41 GMT
+
+https://www.cbr.com/netflix-jo-nesbo-detective-hole-rotten-tomatoes-score/
+
+The new adaptation set a new record for the bestselling author.
+---------
+
+# 2026 Amazon Big Spring Sale Gaming Deals to Grab Before It's Too Late
+
+Games, amazon
+
+Fri, 27 Mar 2026 20:25:12 GMT
+
+https://www.cbr.com/best-amazon-spring-sale-gaming-deals-2026/
+
+The 2026 Amazon Big Spring Sale ends on March 31, so make sure you pick up these gaming deals while you still can.
+---------
+
+# NBC Renews Chicago Fire, Chicago PD, and Chicago Med
+
+TV, Chicago Med, Chicago P.D., Chicago Fire
+
+Fri, 27 Mar 2026 20:19:56 GMT
+
+https://www.cbr.com/nbc-renews-chicago-fire-chicago-pd-chicago-med-2026/
+
+NBC has renewed all three shows in the One Chicago franchise, including Chicago Fire, Chicago PD, and Chicago Med, through the 2026-2027 season.
+---------
+
+# Marvel Reveals Stunning What If...? Variant Covers Ahead Of Huge Anniversary Event
+
+Comics, What If...?
+
+Fri, 27 Mar 2026 20:09:42 GMT
+
+https://www.cbr.com/marvel-what-if-variant-covers-50th-anniversary/
+
+Marvel has exciting plans for a popular series' thrilling milestone.
+---------
+
+# Zelda Remake Officially Coming to Switch 2 in 2026, Says Trusted Leaker
+
+Games, The Legend of Zelda, Nintendo, Nintendo Switch
+
+Fri, 27 Mar 2026 20:02:12 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-switch-2-leak-2026/
+
+A trusted leaker claims that The Legend of Zelda: Ocarina of Time is receiving a full remake for the Nintendo Switch 2 and will launch in 2026.
+---------
+
+# Stephen King's Netflix Movie Mr. Harrigan's Phone is Getting a Resurgence
+
+Movies, Netflix, Stephen King, Mr. Harrigan's Phone
+
+Fri, 27 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/donald-sutherland-stephen-king-mr-harrigans-phone-netflix-new-life/
+
+Mr. Harrigan's Phone is a little-known Stephen King movie with an even more underseen Donald Sutherland adaptation that's finally getting some love.
+---------
+
+# One of the Best Sci-Fi Movies of All Time Hits a New Streamer in Just 5 Days
+
+Movie News, Arrival, Denis Villeneuve, Sci-Fi, Paramount Plus
+
+Fri, 27 Mar 2026 20:24:49 GMT
+
+https://collider.com/best-sci-fi-movie-arrival-denis-villeneuve-jeremy-renner-streaming-paramount-plus-april-2026/
+
+Denis Villeneuve’s mind-bending sci-fi masterpiece, Arrival, is set to hit a new streamer in just 5 days. Here’s where you can watch it.
+---------
+
+# NBC's 'The Pitt' Rival Officially Renewed for Season 12
+
+TV News, Chicago Med, NBC, One Chicago, Procedural
+
+Fri, 27 Mar 2026 20:24:16 GMT
+
+https://collider.com/chicago-med-season-12-renewed-nbc/
+
+Following suit with its two sibling shows, Chicago Med is officially returning for Season 12.
+---------
+
+# James Cameron’s Gold Standard Sci-Fi Action Sequel Returns on April 1
+
+Movie News, Terminator 2: Judgment Day, Arnold Schwarzenegger, Sci-Fi, James Cameron
+
+Fri, 27 Mar 2026 20:23:38 GMT
+
+https://collider.com/james-cameron-best-sci-fi-sequel-terminator-2-paramount-plus-streaming-april-2026/
+
+James Cameron’s best sci-fi sequel is still Terminator 2, and now you can watch it on a new streamer starting April 1.
+---------
+
+# NBC's Most Successful Spin-Off Has Been Renewed for Season 14
+
+TV News, Chicago Fire, Chicago P.D., Chicago Med, NBC
+
+Fri, 27 Mar 2026 20:22:52 GMT
+
+https://collider.com/chicago-pd-season-14-renewed-nbc/
+
+Chicago Fire's first spin-off, Chicago P.D., has officially had its future decided by NBC.
+---------
+
+# One of the Most Rewatchable Sci-Fi Movies of the ’90s Returns Next Month
+
+Movie News, Total Recall, Arnold Schwarzenegger, Sci-Fi, Paramount+ with Showtime
+
+Fri, 27 Mar 2026 20:21:44 GMT
+
+https://collider.com/arnold-schwarzenegger-sci-fi-cult-classic-total-recall-streaming-paramount-plus-april-2026/
+
+Over 30 years later, one of the most rewatchable sci-fi action movies of the ’90s is about to become a streaming hit when it arrives on Paramount+.
+---------
+
+# The Best “Star Trek” Movie Ever Made Is Finally Coming to Paramount+
+
+Movie News, Galaxy Quest, Sci-Fi, Tim Allen, Sigourney Weaver
+
+Fri, 27 Mar 2026 20:20:40 GMT
+
+https://collider.com/best-star-trek-movie-galaxy-quest-meta-sci-fi-streaming-paramount-plus-april-2026/
+
+Sigourney Weaver’s cult classic, sci-fi Star Trek-inspired movie arrives on a new streamer. Here’s where to watch Galaxy Quest in April.
+---------
+
+# The Fate of One of TV's Longest-Running Disaster Thrillers Has Been Decided
+
+TV News, Chicago Fire, Rob Morgan, NBC, Dermot Mulroney
+
+Fri, 27 Mar 2026 20:19:52 GMT
+
+https://collider.com/chicago-fire-season-15-renewed-nbc/
+
+If you hear sirens in the distance, that's because NBC's Chicago Fire has been officially renewed for Season 15.
+---------
+
+# Prime Video's James Bond Era Has Already Begun
+
+TV News, Riz Ahmed, Bait, James Bond, Prime Video
+
+Fri, 27 Mar 2026 20:15:13 GMT
+
+https://collider.com/riz-ahmed-bait-amazon-james-bond-era-begins-on-prime-video-streaming-success-march-2026/
+
+Riz Ahmed's new James Bond-adjacent Prime Video series Bait debuted with a bang. Find out more.
+---------
+
+# 10 Adventure Movies Since 'Raiders of the Lost Ark' That Are Amazing From Start to Finish
+
+Movie, Adventure, Raiders of the Lost Ark, Jurassic Park, Up
+
+Fri, 27 Mar 2026 20:15:13 GMT
+
+https://collider.com/adventure-movies-since-raiders-of-the-lost-ark-amazing-start-to-finish/
+
+From fellow Spielberg classics like Jurassic Park to animated sensations like Up, these adventure movies showcase the glory of the genre at its best.
+---------
+
+# Taylor Sheridan's 3-Part Western Suddenly Disappears From Streaming Charts
+
+TV News, Taylor Sheridan, Landman, Paramount Plus, Western
+
+Fri, 27 Mar 2026 20:07:17 GMT
+
+https://collider.com/landman-season-2-streaming-disappointment-drops-off-charts-march-2026/
+
+Taylor Sheridan’s gritty 2-part Western drama has suddenly vanished off of streaming charts 2 months after the Season 2 finale.
+---------
+
+# Season 2 of HBO's' Harry Potter' TV Series Continues Streaming's Long-Running Negative Trend
+
+Features, Harry Potter
+
+Fri, 27 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/harry-potter-season-2-release-date-delay-actors-aging/
+
+The recent news about 'Harry Potter' Season 2 on HBO continues the worst aspect of pricey streaming shows, especially when it comes to a YA series.
+---------
+
+# New $400 LEGO Marvel 'Avengers' Helicarrier Is the Perfect MCU Collectible
+
+Movie News, MCU, Avengers: Doomsday, The Avengers, LEGO
+
+Fri, 27 Mar 2026 19:44:34 GMT
+
+https://movieweb.com/lego-marvel-avengers-helicarrier-mcu/
+
+The newest LEGO Marvel set costs a staggering $400, giving 'Avengers' fans an epic MCU Helicarrier to construct.
+---------
+
+# ‘Faith: The Unholy Trinity’ Film in the Works Based on Viral Video Game Trilogy
+
+Movie News, video games
+
+Fri, 27 Mar 2026 19:37:58 GMT
+
+https://movieweb.com/faith-unholy-trinity-film-adaptation/
+
+A new production company from an acclaimed Content Creator seeks to provide more representation for video game developers.
+---------
+
 # After 79 Years, This DC Hero Just Got Their Most Hardcore Redesign of All Time
 
 DC Comics, DC, Black Canary, Green Arrow
