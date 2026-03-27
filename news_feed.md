@@ -1,3 +1,322 @@
+# Netflix's Magic: The Gathering Series Could Outshine The Witcher
+
+Streaming TV, The Witcher, Magic: The Gathering
+
+Fri, 27 Mar 2026 18:45:18 GMT
+
+https://screenrant.com/netflix-magic-the-gathering-fantasy-franchise-bigger-witcher/
+
+Netflix’s upcoming fantasy show has all the markings to not only be one of the streamer's biggest shows but also to surpass The Witcher.
+---------
+
+# Brandon Sanderson's Problem With The Rings Of Power Revealed The Harsh Reality Of Fantasy Adaptations
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Fri, 27 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/the-rings-of-power-brandon-sanderson-criticism-fantasy-adaptations/
+
+The problems that best-selling fantasy author Brandon Sanderson has with The Rings of Power exemplify broader issues in live-action fantasy TV.
+---------
+
+# 5 Mistakes The Mandalorian & Grogu Needs To Avoid
+
+Movies, The Mandalorian and Grogu
+
+Fri, 27 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/mandalorian-grogu-movie-mistakes-to-avoid/
+
+For The Mandalorian's shift to the big screen to be the resounding success it has the potential to be, certain mistakes will need to be avoided.
+---------
+
+# Marvel Is Officially Retconning Spider-Man's Biggest Civil War Moment
+
+Marvel Comics, Spider-Man, Marvel
+
+Fri, 27 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/spider-man-unmask-lore-change-civil-war/
+
+Marvel's new Spider-Man story delves into the agonizing lead-up to the most important decision in his superhero career, adding new tragic details.
+---------
+
+# How Daredevil Can Fit Into The Story Of Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day
+
+Fri, 27 Mar 2026 18:30:20 GMT
+
+https://screenrant.com/how-daredevil-can-fit-into-the-story-of-spider-man-brand-new-day/
+
+Daredevil appears to fit in nicely with the story of Brand New Day.
+---------
+
+# Why Prime Video's #1 Action Show Is Taking Over The U.S. (New Episodes Out Now)
+
+Streaming TV, Invincible
+
+Fri, 27 Mar 2026 18:26:45 GMT
+
+https://screenrant.com/invincible-season-4-prime-video-streaming-success-march-2026/
+
+The animated TV show Invincible has a 99% positive RT score. It is much more than just a superhero series, and it is currently releasing new episodes.
+---------
+
+# The Pitt Season 2's Most Important Character Is Nowhere To Be Found
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 27 Mar 2026 18:00:20 GMT
+
+https://screenrant.com/the-pitt-season-2-trauma-counselor-character-missing/
+
+The most crucial character in The Pitt season 2, the hospital's trauma counselor, is nowhere to be found as PTMC faces a mental health crisis among staff.
+---------
+
+# New Images Offer Fresh Look At Superman's New Costume And Superhero Identity
+
+DC Comics, Superman, Superboy
+
+Fri, 27 Mar 2026 17:54:42 GMT
+
+https://screenrant.com/superman-new-costume-codename-tomorrow-man-art/
+
+The new identity of DC's second Superman seems to be a permanent change, and his transformation may mark a historical change for the Super-Family.
+---------
+
+# How The Pitt's Night Shift Is Different From The Day Shift Chaos Explained By Season 2 Star
+
+TV, The Pitt
+
+Fri, 27 Mar 2026 17:47:45 GMT
+
+https://screenrant.com/the-pitt-night-shift-day-shift-different-comparison-jalen-thomas-brooks/
+
+EXCLUSIVE: The Pitt has shown the harsh realities of healthcare workers in America, and this star reveals the key differences between shifts.
+---------
+
+# Why Tom Hardy's Peaky Blinders Movie Twist Needed to Be Cut: The Immortal Man's Focus On Tommy Shelby
+
+Movies, Peaky Blinders: The Immortal Man
+
+Fri, 27 Mar 2026 17:46:19 GMT
+
+https://screenrant.com/tom-hardy-peaky-blinders-immortal-man-movie-twist-cut/
+
+A shocking twist would have redefined Tom Hardy's character, but was rightfully cut from the film.
+---------
+
+# 4 Years Later, Netflix’s 10-Episode Sci-Fi Masterpiece Is Still the Best Miniseries of the 2020s
+
+Anime, Cyberpunk: Edgerunners
+
+Fri, 27 Mar 2026 18:45:12 GMT
+
+https://www.cbr.com/netflix-cyberpunk-edgerunners-best-sci-fi-miniseries/
+
+Cyberpunk: Edgerunners is one of Netflix's best anime miniseries, reviving its video game franchise and the cyberpunk genre.
+---------
+
+# Win An Exclusive Super Mario Galaxy Movie Prize Pack
+
+CBR Exclusives, The Super Mario Galaxy Movie
+
+Fri, 27 Mar 2026 18:32:29 GMT
+
+https://www.cbr.com/win-an-exclusive-super-mario-galaxy-movie-prize-pack/
+
+As part of CBR's Nintendo Theme Week on the site, we have unique prize packs that you might be able to take home.
+---------
+
+# Spider-Man: No Way Home Joins Disney+ MCU Lineup on April 15
+
+Superheroes, Spider-Man: No Way Home, Disney+, Marvel Cinematic Universe
+
+Fri, 27 Mar 2026 18:30:23 GMT
+
+https://www.cbr.com/spider-man-no-way-home-streaming-disney-plus-april-mcu-complete/
+
+Disney+ completes its Marvel Cinematic Universe library with the addition of Spider-Man: No Way Home, available on the streaming service on April 15.
+---------
+
+# Andrew Garfield Defends Watching 'Controversial' Harry Potter Despite J.K. Rowling's Trans Views
+
+Movies, Harry Potter
+
+Fri, 27 Mar 2026 18:19:49 GMT
+
+https://www.cbr.com/andrew-garfield-defends-harry-potter-jk-rowlings-trans-views/
+
+The actor, who is a top choice for a popular character, watched the Harry Potter movies for the first time, even though they're "controversial."
+---------
+
+# Crunchyroll Just Unlocked 50,000 Episodes for Anime Fans
+
+Anime, Crunchyroll, Apple TV
+
+Fri, 27 Mar 2026 18:07:00 GMT
+
+https://www.cbr.com/crunchyroll-apple-tv-launch/
+
+Crunchyroll expands access to its prolific anime collection, offering more than 25,000 hours of incredible content to Apple TV users.
+---------
+
+# The Nightmare Before Christmas Comics Have Become Better Than Marvel and DC
+
+Comics, The Nightmare Before Christmas
+
+Fri, 27 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/the-nightmare-before-christmas-comics-success/
+
+The Nightmare Before Christmas has always been a Disney classic but this comic book series proves the story isn't finished yet.
+---------
+
+# 30 Years Later, Tom Cruise’s Jerry Maguire Returns to Theaters
+
+Movies, tom cruise, Jerry Maguire
+
+Fri, 27 Mar 2026 17:52:53 GMT
+
+https://www.cbr.com/tom-cruise-jerry-maguire-return-theaters/
+
+One of Tom Cruise's best movies is heading back to the big screen after three decades.
+---------
+
+# Michael Fassbender Leaves 'The Agency' Behind in First Look at Netflix's 8-Part Historical Epic
+
+TV News, Netflix, Kennedy, Michael Fassbender, Laura Donnelly
+
+Fri, 27 Mar 2026 18:14:30 GMT
+
+https://collider.com/netflix-michael-fassbender-us-president-biopic-series-kennedy-first-look-image/
+
+Michael Fassbender is Joe Kennedy Sr. in the first look at Netflix's new biopic series, Kennedy. See it here!
+---------
+
+# Prime Video’s #1 Movie Faces New Challenger as Action Thriller Surges
+
+Movie News, Prime Video, Pretty Lethal, John Wick, Mean Girls
+
+Fri, 27 Mar 2026 18:10:53 GMT
+
+https://collider.com/prime-video-pretty-lethal-action-thriller-uma-thurman-streaming-success-march-2026/
+
+Uma Thurman, Lana Condor, and more lead Pretty Lethal, a thrilling action film that's become a streaming sensation on Prime Video.
+---------
+
+# Remembering the Icons of Television — Collider TV Quiz
+
+TV, What If...?, The Studio, The Burning Season: The Chico Mendes Story, Bewitched
+
+Fri, 27 Mar 2026 18:03:47 GMT
+
+https://collider.com/tv-quiz-mar-27-2026-posthumous-award-winners/
+
+These television artists were posthumously recognized for their work, and the awards they won were testaments to their lasting legacies.
+---------
+
+# George Michael Made History as the First White Male Artist to Top the US R&B Chart With This Album
+
+Music Features, George Michael, Pop, Wham!, R&B, Music
+
+Fri, 27 Mar 2026 18:01:23 GMT
+
+https://collider.com/george-michael-debut-album-faith-top-us-rnb-chart/
+
+George Michael's debut solo album Faith made history as the first white male artist to top the US R&amp;B chart, breaking industry barriers and paving the way for cross-genre success.
+---------
+
+# Remember the Icons of Film — Collider Movie Quiz
+
+Movie, The Dark Knight, Ma Rainey's Black Bottom, Network, Beauty and the Beast
+
+Fri, 27 Mar 2026 18:00:16 GMT
+
+https://collider.com/movie-quiz-mar-27-2026-posthumous-award-winners/
+
+These posthumous award winners were not around to give acceptance speeches. But in each and every instance, their work spoke for itself.
+---------
+
+# Chris Evans Officially Reveals Captain America's Fate in 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Avengers: Doomsday (2026), Chris Evans, MCU
+
+Fri, 27 Mar 2026 17:54:09 GMT
+
+https://collider.com/chris-evans-captain-america-steve-rogers-returning-in-avengers-secret-wars-after-doomsday/
+
+Chris Evans has seemingly revealed if he'll return as Captain America after Avengers: Doomsday. Read on for more.
+---------
+
+# 'Stop! That! Train!' Trailer Reveals New RuPaul Action Comedy
+
+Movie Trailers, Stop! That! Train!, RuPaul Drag Race, Comedy
+
+Fri, 27 Mar 2026 18:34:43 GMT
+
+https://movieweb.com/stop-that-train-trailer/
+
+Like 'Airplane!' but make it fierce.
+---------
+
+# TV Shows That Are Full of Crazy Plot Twists
+
+Movie Lists
+
+Fri, 27 Mar 2026 18:00:20 GMT
+
+https://movieweb.com/tv-shows-with-lots-of-plot-twists/
+
+You know the kind - the ones that leave you guessing, the ones that keep you coming back for more.
+---------
+
+# Ava Bunn and Amanda Morrow From the 'Scrubs' Revival Want Season 9's Dave Franco Back
+
+Features, Scrubs
+
+Fri, 27 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/scrubs-revival-starts-season-9-character-return/
+
+Dave Franco played Cole in the divisive 'Scrubs: Med School,' but at least two members of the revival cast would like him to return.
+---------
+
+# A 'Lioness' Vs 'Reacher' Showdown Seems All But Guaranteed for Late 2026
+
+Features, Reacher
+
+Fri, 27 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/reacher-lioness-competition-releasing-2026/
+
+'Reacher' and 'Lioness' are arguably two of the best action thrillers right now, and new seasons of each show should premiere in late 2026.
+---------
+
+# 'Project Hail Mary's Ryan Gosling Box Office Redemption Can Persist in 2027
+
+Features, Ryan Gosling, Project Hail Mary, Everything Everywhere All at Once, Box Office Milestones, Star Wars: Starfighter
+
+Fri, 27 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/ryan-gosling-project-hail-mary-box-office-2027/
+
+After 'Project Hail Mary's box office success, Ryan Gosling looks to keep things rolling with several unique 2027 projects.
+---------
+
+# Michael Fassbender Turns Into Joe Kennedy Sr. in First Look at 'Kennedy'
+
+TV News, Michael Fassbender
+
+Fri, 27 Mar 2026 17:47:44 GMT
+
+https://movieweb.com/michael-fassbender-first-look-kennedy/
+
+Michael Fassbender transforms into Joe Kennedy in the first look at the highly anticipted Netflix series.
+---------
+
 # Tom Felton Confirms Reaching Out To HBO’s New Draco Malfoy Harry Potter Star
 
 TV, Harry Potter, Harry Potter - Season 1, Tom Felton
