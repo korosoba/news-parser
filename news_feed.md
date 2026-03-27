@@ -1,3 +1,14 @@
+# Stephen King's New R-Rated Dystopian Thriller Is Still No. 1 Everywhere
+
+Movie News, The Long Walk, Stephen King, STARZ, Cooper Hoffman
+
+Fri, 27 Mar 2026 08:00:12 GMT
+
+https://collider.com/stephen-king-dystopian-thriller-the-long-walk-streaming-success-starz-march-2026/
+
+The Long Walk, Stephen King's harrowing horror adaptation that tripled its budget at the box office, remains a #1 favorite on streaming.
+---------
+
 # 'For All Mankind' Season 5, Episode 1 Recap & Review: New Normal on the Red Planet
 
 TV Reviews, For All Mankind, Apple TV, Sci-Fi
