@@ -1,3 +1,157 @@
+# Cyberpunk 2077: Ronin Officially Announced, Coming April 18
+
+Gaming, Cyberpunk 2077
+
+Fri, 27 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-ronin-april-2026-confirmed/
+
+Cyberpunk 2077 fans can now pre-order the limited edition Ronin vinyl, featuring 12 tracks from Angel of Man.
+---------
+
+# 11 Fantasy Book Series Better Than Game Of Thrones
+
+Classic TV, Game of Thrones
+
+Fri, 27 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/fantasy-books-better-game-of-thrones/
+
+George R. R. Martin's A Song of Ice and Fire series has been around since the 1990s, but Game of Thrones isn't the true gold standard of fantasy.
+---------
+
+# It’s Time We Admit ATLA’s Controversial Sequel Is Better Than It Gets Credit For
+
+Classic TV, The Legend of Korra
+
+Fri, 27 Mar 2026 10:30:18 GMT
+
+https://screenrant.com/legend-of-korra-better-than-reviews-fans-claim/
+
+Avatar: The Last Airbender is often cited as one of the best children's shows ever made, but despite its legacy, the sequel series struggled.
+---------
+
+# Resident Evil Requiem Officially Adds New Mode In Surprise Update
+
+Gaming, Resident Evil 9
+
+Fri, 27 Mar 2026 10:20:29 GMT
+
+https://screenrant.com/resident-evil-requiem-update-march-2026-new-mode/
+
+Capcom releases a major update for Resident Evil Requiem, adding a highly anticipated Photo Mode, and more.
+---------
+
+# Marvel's 10 Most Overpowered Characters, Ranked
+
+Comics, Marvel
+
+Fri, 27 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/most-overpowered-marvel-comics-characters-ranked/
+
+Marvel Comics is no stranger to strong characters, but these are the most overpowered.
+---------
+
+# 10 Upcoming Superhero Movies That You Cannot Miss
+
+Movie, Superhero, Spider-Man: Brand New Day, Supergirl, Spider-Man: Beyond the Spider-Verse
+
+Fri, 27 Mar 2026 11:07:12 GMT
+
+https://collider.com/upcoming-superhero-movies-you-cannot-miss/
+
+From the very secretive Clayface to the massive event that will be Spider-Man: Brand New Day, these are the upcoming superhero movies you cannot skip.
+---------
+
+# One of the Best HBO Thrillers of All Time Is Now Surging on Netflix
+
+TV News, Netflix, Love & Death, Thriller, Elizabeth Olsen
+
+Fri, 27 Mar 2026 11:00:12 GMT
+
+https://collider.com/elizabeth-olsen-hbo-crime-thriller-love-and-death-streaming-success-netflix-march-2026/
+
+Love & Death, a gripping 7-part crime thriller surges worldwide, pulling viewers into a tense story built on secrets, pressure, and suspicion.
+---------
+
+# 7 Forgotten TV Shows That Have Aged Like Fine Wine
+
+TV, Television, She-Ra and the Princesses of Power, Zoey's Extraordinary Playlist, Red Band Society
+
+Fri, 27 Mar 2026 10:47:12 GMT
+
+https://collider.com/forgotten-tv-shows-aged-like-fine-wine/
+
+Time has been extremely kind to forgotten TV shows like Red Band Society and Zoey's Extraordinary Playlist, with their reputation improving with age.
+---------
+
+# With ‘Disclosure Day,’ Is Steven Spielberg Releasing a Sequel to This Sci-Fi Movie After 49 Years?
+
+Movie Features, Disclosure Day, Close Encounters of The Third Kind, Steven Spielberg, Taken
+
+Fri, 27 Mar 2026 10:39:13 GMT
+
+https://collider.com/disclosure-day-close-encounters-of-the-third-kind-sequel-steven-spielberg/
+
+We break down the rumors as to whether or not Steven Spielberg’s upcoming Disclosure Day is a sequel to Close Encounters of the Third Kind.
+---------
+
+# Prime Video's 8-Part Fantasy Series Is One of the Best on Any Streaming Platform
+
+TV Features, My Lady Jane, Emily Bader, Prime Video, Fantasy
+
+Fri, 27 Mar 2026 10:31:12 GMT
+
+https://collider.com/prime-video-my-lady-jane-best-fantasy-streaming/
+
+Prime Video's My Lady Jane is a charming blend of history, fantasy, and humor, with standout performances that make it a must-watch.
+---------
+
+# A ‘Project Hail Mary’ Star’s Oscar-Winning Crime Thriller Is a Must-Watch on Netflix This Weekend
+
+Movie, Netflix, Anatomy of a Fall, Anaconda, Sandra Hüller
+
+Fri, 27 Mar 2026 10:15:14 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-march-27/
+
+Anaconda, BTS: The Return, and Anatomy of a Fall make up our list of the best Netflix movies to watch the weekend of March 27, 2026.
+---------
+
+# Netflix’s Sci-Fi Sleeper Hit of 39M Hours Watched Is Still Perfect From Start to Finish
+
+TV Features, Lockwood & Co., Netflix, Streaming, Science Fiction
+
+Fri, 27 Mar 2026 10:12:12 GMT
+
+https://collider.com/lockwood-and-co-netflix-sci-fi-sleeper-hit/
+
+39M hours watched and still one of Netflix’s best—why Lockwood & Co. is worth watching, even years after its cancellation.
+---------
+
+# 9 Years Later, Intense 'Black Mirror' Episode Keeps Getting Better
+
+Features, Black Mirror, Holds Up
+
+Fri, 27 Mar 2026 11:00:17 GMT
+
+https://movieweb.com/black-mirror-uss-callister-holds-up/
+
+'Black Mirror,' the popular Netflix sci-fi series, has many fan-favorite episodes, and this one holds up, even several years later.
+---------
+
+# 'Man on Fire' Clip Teases Explosive Action to Come on Netflix
+
+TV News, Man on Fire, Action, Thriller, Netflix
+
+Fri, 27 Mar 2026 10:53:36 GMT
+
+https://movieweb.com/netflix-man-on-fire-clip/
+
+Starring Yahya Abdul-Mateen II, the action thriller series is all set to debut on streaming April 30.
+---------
+
 # For All Mankind Season 5 Premiere Recap: Is Ed Baldwin Dying?
 
 Streaming TV, For All Mankind
