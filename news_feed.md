@@ -1,3 +1,14 @@
+# 'For All Mankind' Season 5, Episode 1 Recap & Review: New Normal on the Red Planet
+
+TV Reviews, For All Mankind, Apple TV, Sci-Fi
+
+Fri, 27 Mar 2026 07:00:16 GMT
+
+https://movieweb.com/for-all-mankind-season-5-episode-1-recap-review/
+
+'For All Mankind' is still imaginative, still beautifully made, and still carefully written. The season 5 premiere is equal parts bold and restrained.
+---------
+
 # Xbox Reveals New Free Game, No Game Pass Required
 
 Gaming, Xbox Game Pass, Xbox Series X/S, Indie, PC
