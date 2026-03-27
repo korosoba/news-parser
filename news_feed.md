@@ -1,3 +1,201 @@
+# The Witcher: Nightmare Of The Wolf Deserves Its Perfect Rotten Tomatoes Score
+
+Streaming TV, The Witcher: Nightmare of the Wolf
+
+Fri, 27 Mar 2026 14:31:19 GMT
+
+https://screenrant.com/the-witcher-nightmare-of-the-wolf-netflix-best-fantasy-spinoff/
+
+One of Netflix's most popular fantasy shows has a couple of spinoffs, of which one has a perfect Rotten Tomatoes score and keeps getting better.
+---------
+
+# Zach Cregger's Original Resident Evil Movie: A Fresh Take On The Franchise
+
+Movies, Resident Evil
+
+Fri, 27 Mar 2026 14:31:19 GMT
+
+https://screenrant.com/resident-evil-2026-movie-best-franchise-reasons-prediction/
+
+Reception to news about Zach Cregger's adaptation of Resident Evil has been mixed, but there are great reasons why it could be the best movie.
+---------
+
+# World of Warcraft: Midnight Review - A Familiar Middle In A Trilogy
+
+Gaming, World of Warcraft, Triple-A Games
+
+Fri, 27 Mar 2026 14:28:25 GMT
+
+https://screenrant.com/world-of-warcraft-midnight-review/
+
+WoW Midnight is very ambitious, but it plays it safe for much of the time, resulting in a very fun but not all-timer expansion.
+---------
+
+# Ethan Hawke's New Feel-Good Comedy Settles With Stellar Rotten Tomatoes Score
+
+Movies, She Dances
+
+Fri, 27 Mar 2026 14:25:46 GMT
+
+https://screenrant.com/she-dances-movie-rotten-tomatoes-score-ethan-hawke/
+
+Five-time Oscar nominee Ethan Hawke's new comedy debuts in theaters with a solidly Fresh score on the review aggregator platform Rotten Tomatoes.
+---------
+
+# Imperfect Women Interview with Kerry Washington, Elisabeth Moss & Kate Mara
+
+Interviews, Imperfect Women, Elisabeth Moss, Kerry Washington, Kate Mara
+
+Fri, 27 Mar 2026 14:22:50 GMT
+
+https://screenrant.com/video/imperfect-women-kerry-washington-elisabeth-moss-kate-mara-perspective-shift-interview/
+
+Imperfect Women stars Kerry Washington, Elisabeth Moss, and Kate Mara discuss their characters' chemistry and how they each dig into the layers of their story, while showrunner Annie Weisman and director Lesli Linka Glatter share how they set the tone for the perspective-shifting mystery to unfold.
+---------
+
+# 10 Best Anime Originals Of The Decade, Ranked
+
+Anime
+
+Fri, 27 Mar 2026 14:01:20 GMT
+
+https://screenrant.com/best-original-anime-2020s-ranked/
+
+Some of the best anime with no source material.
+---------
+
+# Iconic Dragon Characters in Movies and TV Shows
+
+Movies
+
+Fri, 27 Mar 2026 14:01:20 GMT
+
+https://screenrant.com/best-dragons-in-movies-tv/
+
+There are plenty of iconic dragon characters from movies and TV shows, whether they're monsters like Smaug or adorable sidekicks like Toothless.
+---------
+
+# Red Dead Redemption 2 Sadie Adler DLC Rallied Behind By Fans
+
+Gaming, Rockstar Games, Red Dead Redemption, Red Dead Redemption 2
+
+Fri, 27 Mar 2026 13:50:34 GMT
+
+https://screenrant.com/red-dead-redemption-2-sadie-adler-mexico-dlc-hopes/
+
+Sadie Adler could be the perfect protagonist for Red Dead Redemption 2 DLC, with fans dreaming up new missions, weapons and a deeper look at her story
+---------
+
+# Frieren Season 3 Announcement Officially Confirms Anime’s Return for Fall 2027
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 27 Mar 2026 14:36:43 GMT
+
+https://www.cbr.com/frieren-season-3-confirmed-2027/
+
+Frieren: Beyond Journey's End Season 3 is officially confirmed following the Season 2 anime finale.
+---------
+
+# Yellowstone Officially Confirms Kevin Costner's John Dutton Replacement
+
+TV, Marshals, Yellowstone, CBS, kevin costner
+
+Fri, 27 Mar 2026 14:31:31 GMT
+
+https://www.cbr.com/yellowstone-marshals-replace-john-dutton-with-kayce/
+
+Kevin Costner's exit from Yellowstone ended Taylor Sheridan's neo-Western flagship, but CBS selects John Dutton's rightful successor in Marshals.
+---------
+
+# How to Train Your Dragon's Proves Disney Should Reboot Sinbad
+
+Movies, How to Train Your Dragon
+
+Fri, 27 Mar 2026 14:01:12 GMT
+
+https://www.cbr.com/how-to-train-your-dragon-proves-brad-pitt-sinbad-legend-of-the-seven-seas-remake/
+
+The live-action remake of How to Train Your Dragon is a massive hit--and this 2003 animated film is perfect for DreamWorks' next reboot.
+---------
+
+# Pokémon Legends: Z-A Officially Reveals Free Downloads for April 2026
+
+Games, Pokemon
+
+Fri, 27 Mar 2026 13:50:12 GMT
+
+https://www.cbr.com/pokemon-legends-z-a-free-downloads-april-2026/
+
+The Pokémon Company has revealed the next round of free items that Pokémon Legends: Z-A players can earn if they compete in Ranked Battles.
+---------
+
+# 'She Dances' Review: Steve Zahn Delivers a Near-Perfect Performance in This Powerful Drama
+
+Movie Reviews, She Dances, Steve Zahn, Ethan Hawke, Rosemarie DeWitt
+
+Fri, 27 Mar 2026 14:32:22 GMT
+
+https://collider.com/she-dances-movie-review-steve-zahn/
+
+She Dances, starring Steve Zahn, is a stellar dramatic turn for the actor in this tremendously powerful drama.
+---------
+
+# 'Reacher's Alan Ritchson Mocks 'War Machine' Haters' Biggest Criticism in New Clip
+
+Movie News, War Machine, Alan Ritchson, Netflix, Action
+
+Fri, 27 Mar 2026 14:35:51 GMT
+
+https://movieweb.com/alan-ritchson-mocks-war-machine-haters/
+
+Alan Ritchson has pushed back against criticism that he is "too old" to play his 'War Machine' character.
+---------
+
+# Prime Video's New "Statham Meets Bourne" Style Action Thriller Crashes Into Streaming Top 10
+
+Movie News, Agent Zeta, Action, Thriller, Prime Video
+
+Fri, 27 Mar 2026 14:05:08 GMT
+
+https://movieweb.com/prime-video-agent-zeta-action-stream-march-2026/
+
+Alongside global success, the action outing 'Agent Zeta' is now climbing the US charts.
+---------
+
+# 'Project Hail Mary' Author Andy Weir Reveals Sequel Idea
+
+Movie News, Project Hail Mary
+
+Fri, 27 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/project-hail-mary-sequel-idea/
+
+With reports that the film's success could inspire a movie sequel, 'Project Hail Mary' author Andy Weir already teased what it could be about.
+---------
+
+# Matthew Lillard's Mr. Charles Character Connects 'Daredevil: Born Again' To Wider MCU
+
+Features, Daredevil: Born Again, MCU
+
+Fri, 27 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/matthew-lillard-daredevil-valentina-mcu/
+
+'Daredevil: Born Again' Season 2 might have linked its street-level story to movies like 'Thunderbolts*' and 'Black Panther: Wakanda Forever.'
+---------
+
+# 'Super Mario Galaxy Movie' Casts Glen Powell as Star Fox Hero Fox McCloud
+
+Movie News, The Super Mario Galaxy Movie, Glen Powell
+
+Fri, 27 Mar 2026 13:49:40 GMT
+
+https://movieweb.com/super-mario-galaxy-glen-powell-fox-mccloud/
+
+Adding to an already extensive resume, Glen Powell will now voice the newly-confirmed Fox McCloud in 'The Super Mario Galaxy Movie.'
+---------
+
 # Outlander Season 8, Episode 4 Recap & Discussion: Battle Approaches As Secrets Are Revealed
 
 Streaming TV, The Lord of the Rings: The Rings of Power
