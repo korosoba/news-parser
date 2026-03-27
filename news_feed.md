@@ -1,3 +1,300 @@
+# PlayStation Drops Surprise Free Download You Don't Need PS Plus For
+
+Gaming, PlayStation 5, PlayStation Plus
+
+Fri, 27 Mar 2026 04:00:25 GMT
+
+https://screenrant.com/playstation-surprise-free-download-no-ps-plus-march-2026/
+
+PlayStation has dropped a special free download out of the blue, and you won't need PlayStation Plus to access it.
+---------
+
+# 15 Goriest Anime Series of All Time
+
+TV, Devilman Crybaby
+
+Fri, 27 Mar 2026 03:50:19 GMT
+
+https://screenrant.com/goriest-anime-series-all-time-ranked/
+
+Anime has gained a following in the West partly because of its more adult content, leading many fans to wonder what the goriest anime are.
+---------
+
+# Netflix's 10-Part Horror Series Made Pulling Off The Perfect Twist Look Easy
+
+Classic TV, The Haunting of Hill House, Netflix, Mike Flanagan
+
+Fri, 27 Mar 2026 03:46:19 GMT
+
+https://screenrant.com/netflix-haunting-of-hill-house-perfect-twist-look-easy/
+
+Netflix’s highly acclaimed 10-part horror miniseries pulled off its biggest and most terrifying twist so brilliantly that it almost made it look easy.
+---------
+
+# Daredevil: Born Again Season 2 Looks To Be Setting Up A Major Villain Redemption
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe, Bullseye
+
+Fri, 27 Mar 2026 03:34:39 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-bullseye-villain-redemption/
+
+Daredevil: Born Again season 2's premiere ends with a surprise from one of the show's most dangerous villains, suggesting some potential "redemption".
+---------
+
+# Pokémon Pisces Takes Gamers Back To Hoenn For A Very Different Adventure
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 27 Mar 2026 03:00:19 GMT
+
+https://screenrant.com/pokemon-pisces-emerald-sequel-unofficial/
+
+If you've been wanting to revisit the Hoenn region, you can do it right now in an adventure that isn't quite like other Pokémon games.
+---------
+
+# Netflix’s New 9-Part Crime Thriller Is Based On A Book Series Adapted By A Failed 7% RT Movie
+
+Streaming TV, Joe Nesbø's Detective Hole, Netflix
+
+Fri, 27 Mar 2026 02:45:19 GMT
+
+https://screenrant.com/netflix-detective-hole-2017-the-snowman/
+
+Netflix has added a new 9-part crime thriller to its streaming catalog, which is based on a book series that was also adapted by a failed 2017 movie.
+---------
+
+# 10 Strongest Hunter x Hunter Characters, Ranked
+
+Anime, Hunter X Hunter
+
+Fri, 27 Mar 2026 02:20:19 GMT
+
+https://screenrant.com/strongest-hunter-x-hunter-characters-ranking/
+
+Hunter x Hunter features many extraordinary characters who make the most of its complex power system.
+---------
+
+# J.K. Rowling Shares Support For HBO's Harry Potter Reboot
+
+TV, jk rowling, Harry Potter, HBO
+
+Fri, 27 Mar 2026 02:13:40 GMT
+
+https://screenrant.com/jk-rowling-responds-to-hbos-harry-potter-series-trailer/
+
+J.K. Rowling shares her enthusiasm for HBO's upcoming Harry Potter series, calling the adaptation 'incredible' despite mixed reactions and controversies surrounding the project.
+---------
+
+# 4 Years Later, Marvel Sets The Stage For The MCU's Most Wasted Hero To Return
+
+Comics, Moon Knight, Marvel Cinematic Universe
+
+Fri, 27 Mar 2026 02:09:23 GMT
+
+https://screenrant.com/marvel-sets-the-stage-for-mcu-hero-potential-moon-knight-comics/
+
+Although we're still waiting for a second season, Marvel continues to make the case for one of the MCU's most wasted heroes (and their epic potential)
+---------
+
+# Fallout 5 Controversial Feature Leaves Gamers Divided
+
+Gaming, Fallout 5, Triple-A Games
+
+Fri, 27 Mar 2026 02:00:30 GMT
+
+https://screenrant.com/fallout-5-base-building-fan-discussion/
+
+Fans are expecting a lot out of Fallout 5, but they're not sure that Bethesda will be able to deliver, particularly on one aspect.
+---------
+
+# Sailor Moon's Original 1992 Manga Cover Makes a Surprise Return in New Official Tribute
+
+Anime, Sailor Moon
+
+Fri, 27 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/sailor-moon-manga-original-cover-return-tribute/
+
+A major Japanese railway company turns back the clock over 30 years to spotlight classic Sailor Moon artwork from the franchise's golden age.
+---------
+
+# Hulu Says a Perfect Goodbye With its New Action-Comedy
+
+Anime, Rooster Fighter, Hulu
+
+Fri, 27 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/rooster-fighter-action-comedy-anime-hulu-shutting-down/
+
+Rooster Fighter is not just one of 2026's most exciting new series, but the ideal anime for Hulu to go out on as a symbol of its bold originality.
+---------
+
+# Fantasy TV Shows Keep Forgetting The 1 Thing That Made Supernatural Last 15 Years
+
+TV, Supernatural, Horror, The CW
+
+Fri, 27 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/tv-shows-forget-what-made-supernatural-last/
+
+Many factors fueled The CW's Supernatural 15-year run, but its focus on family, loyalty, and character-driven storytelling kept fans invested.
+---------
+
+# The Hardest N64 Games of All Time, Ranked by Difficulty
+
+Games, Nintendo 64, Nintendo, retro games
+
+Fri, 27 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/hardest-n64-games-all-time-ranked-by-difficulty-list/
+
+The Legend of Zelda: Majora's Mask and Conker's Bad Fur Day are some of the most difficult N64 games ever.
+---------
+
+# Shane Is the Secret Blueprint for Taylor Sheridan’s Universe
+
+Movies, Western, Shane, Prime Video
+
+Fri, 27 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/prime-video-shane-secret-blueprint-for-taylor-sheridans-universe/
+
+Released in 1953, Shane introduced the reluctant protector trope that Sheridan has made the backbone of his Western TV empire.
+---------
+
+# Xbox Officially Beats PlayStation and Nintendo in 2025 Rankings
+
+Games, Xbox Series X (1)
+
+Fri, 27 Mar 2026 03:16:30 GMT
+
+https://www.cbr.com/xbox-beats-playstation-nintendo-2025-rankings/
+
+Xbox picks up a major win in the console wars, outshining both PlayStation and Nintendo.
+---------
+
+# 7 PlayStation Games That Have Aged Like Milk
+
+Games, PlayStation (Original), Video Games
+
+Fri, 27 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/ps1-games-aged-the-worst-list/
+
+PS1 games like Resident Evil and South Park haven't held up over the years.
+---------
+
+# 2026 DC/Marvel TV Tournament - Sweet Sixteen, Day One!
+
+Comics, CSBG, DC/Marvel Character Tournament, dc vs marvel
+
+Fri, 27 Mar 2026 03:04:47 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-sweet-sixteen-day-one/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. We have hit the Sweet 16
+---------
+
+# Where to Watch Hunter x Hunter After It Left Crunchyroll
+
+Anime, Hunter x Hunter, Crunchyroll, Hunter X Hunter, Streaming
+
+Fri, 27 Mar 2026 02:50:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-crunchyroll-streaming-remove-where-watch/
+
+Crunchyroll has now removed one of the most iconic shonen anime of the past 20 years, but other major streaming services still carry the series.
+---------
+
+# 10 Best Action-Comedy Anime of All Time, Ranked
+
+Anime, Action, Comedy
+
+Fri, 27 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/best-action-comedy-anime-ever/
+
+From Gintama to Spy x Family, action-packed comedy masterpieces have been keeping fans laughing for decades on end.
+---------
+
+# Every Sherlock Holmes TV Show of the 21st Century, Ranked
+
+TV, Young Sherlock, Sherlock, Elementary, Watson
+
+Fri, 27 Mar 2026 04:08:13 GMT
+
+https://collider.com/sherlock-holmes-shows-21st-century-ranked/
+
+From the Benedict Cumberbatch BBC series to Prime Video's take on the character, which Sherlock Holmes TV series is the best of the modern era?
+---------
+
+# 10 Best Western Movie Showdowns, Ranked
+
+Movie, A Fistful of Dollars, Once Upon a Time in the West, Tombstone, The Good, the Bad and the Ugly
+
+Fri, 27 Mar 2026 04:05:12 GMT
+
+https://collider.com/best-western-movie-showdowns-ranked/
+
+Some of the best Western movie showdowns in cinema history can be found in classics like The Good, the Bad and the Ugly, Unforgiven, and High Noon.
+---------
+
+# Stephen King Released His Best Horror Story 48 Years Ago, and Hollywood Needs To Stop Trying To Adapt It
+
+Movie Features, The Stand, Doug Liman, Stephen King
+
+Fri, 27 Mar 2026 03:56:37 GMT
+
+https://collider.com/the-stand-stephen-king-adaptation/
+
+Last week, it was announced that Hollywood is once again taking a crack at adapting Stephen King's The Stand. But should they?
+---------
+
+# 10 Best Monsters in Sci-Fi Horror Movies, Ranked
+
+Movie, Shin Godzilla, Alien, The Thing, Frankenstein
+
+Fri, 27 Mar 2026 03:04:12 GMT
+
+https://collider.com/best-sci-fi-horror-movie-monsters-ranked/
+
+There are plenty of iconic monsters found throughout the history of sci-fi/horror cinema, including those found in classics like The Thing and Alien.
+---------
+
+# 25 Years Later, a ‘Firefly’ Revival Is a Worse Idea Than You Think
+
+TV Features, Firefly, Serenity, Adam Baldwin, Joss Whedon
+
+Fri, 27 Mar 2026 03:04:12 GMT
+
+https://collider.com/firefly-animated-revival-worse-idea-joss-whedon-adam-baldwin/
+
+The Firefly revival announcement has fans excited, but an animated format and the inclusion of problematic names raise concerns.
+---------
+
+# 'The Pitt' Just Revealed How Close to the Edge Dr. Robby Could Be After This 2-Minute Scene
+
+Exclusives, The Pitt, Fiona Dourif, HBO, HBO Max
+
+Fri, 27 Mar 2026 02:00:23 GMT
+
+https://collider.com/the-pitt-season-2-episode-12-cassie-robby-scene-fiona-dourif-interview/
+
+The Pitt's Fiona Dourif discusses her crucial Episode 12 scene with Noah Wyle and why the show's ICE storyline made the cast "uncomfortable."
+---------
+
+# 8 Rare Sci-Fi Movies That Surprisingly Got Space Right
+
+Movie Lists, Project Hail Mary
+
+Fri, 27 Mar 2026 02:00:28 GMT
+
+https://movieweb.com/sci-fi-movies-accurate-space/
+
+'Project Hail Mary,' based on Andy Weir's novel, is an accurate depiction of space, and these other movies have done an impressive job as well.
+---------
+
 # Poison Ivy’s Daring New Design is a Direct Challenge to DC Cosplayers
 
 DC Comics, Poison Ivy
