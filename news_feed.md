@@ -1,3 +1,36 @@
+# A Major Character Dies - Monarch: Legacy Of Monsters Season 2, Episode 5 Explained
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse
+
+Fri, 27 Mar 2026 09:01:18 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-season-2-episode-5-ending-explained/
+
+Monarch: Legacy of Monsters season 2, episode 5 ends with the shocking death of a major character, and it changes the Apple TV sci-fi series for good.
+---------
+
+# 4 Most Important Psychological Thrillers That Define the Genre
+
+Movie, Mulholland Drive, Psychological Thriller, M, Parasite
+
+Fri, 27 Mar 2026 09:12:13 GMT
+
+https://collider.com/psychological-thriller-movies-define-the-genre/
+
+Mulholland Drive, Parasite, and M are all among the best and most important psychological thrillers that define the subgenre.
+---------
+
+# Sony’s Most Divisive 'Spider-Man' Reboot Is Finally Turning Skeptics Into Fans
+
+Movie News, The Amazing Spider-Man, Andrew Garfield, HBO Max, Emma Stone
+
+Fri, 27 Mar 2026 09:00:12 GMT
+
+https://collider.com/the-amazing-spider-man-sony-divisive-reboot-streaming-success-hbo-max-march-2026/
+
+The Amazing Spider-Man is experiencing a streaming surge as fans eagerly anticipate the release of Spider-Man: Brand New Day.
+---------
+
 # Stephen King's New R-Rated Dystopian Thriller Is Still No. 1 Everywhere
 
 Movie News, The Long Walk, Stephen King, STARZ, Cooper Hoffman
