@@ -1,3 +1,278 @@
+# Outlander Season 8, Episode 4 Recap & Discussion: Battle Approaches As Secrets Are Revealed
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Fri, 27 Mar 2026 13:45:18 GMT
+
+https://screenrant.com/outlander-season-8-episode-4-recap-battle-arrives/
+
+Outlander season 8 kicks up the intensity with episode 4, "Muskets, Liberty, and Sauerkraut," introducing new secrets and an impending battle.
+---------
+
+# Xbox Dropping Major Free Open-World RPG, No Game Pass Needed
+
+Gaming, Xbox Series X/S, PC, Live Service Games, Wuthering Waves, RPG
+
+Fri, 27 Mar 2026 13:37:50 GMT
+
+https://screenrant.com/xbox-wuthering-waves-release-date-july-2026/
+
+Xbox platforms are getting a major open-world RPG added to their catalog for free pretty soon, and you won’t need a Game Pass membership.
+---------
+
+# Paramount+'s 2-Part Sci-Fi Space Opera Series Is Worth Binging This Weekend
+
+TV, Halo
+
+Fri, 27 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/halo-paramount-plus-sci-fi-action-series-worth-watching/
+
+Intense and immersive, Paramount's controversial sci-fi show transformed its story into an original sci-fi action series that stands on its own.
+---------
+
+# Steam 2025 Game Completely Free For 72 Hours
+
+Gaming, Steam, Triple-A Games
+
+Fri, 27 Mar 2026 13:26:46 GMT
+
+https://screenrant.com/steam-free-game-march-2026-72-hours/
+
+If you didn't get a chance to play this game that is currently sitting at mostly positive recent reviews, now is your chance, but you have a clock.
+---------
+
+# Taylor Swift’s iHeartRadio Wins & Viral Travis Kelce Speech Explained
+
+Music, iHeartRadio Music Awards, Taylor Swift, Pop
+
+Fri, 27 Mar 2026 13:24:26 GMT
+
+https://screenrant.com/taylor-swift-2026-iheartradio-music-awards/
+
+Taylor Swift wins Artist of the Year at the 2026 iHeartRadio Music Awards. We explain her "Happy & Free" speech about Travis Kelce.
+---------
+
+# Glen Powell To Play Super Smash Bros Character In Super Mario Galaxy Movie
+
+Movies, The Super Mario Galaxy Movie, Nintendo
+
+Fri, 27 Mar 2026 13:20:39 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-glen-powell-fox-mccloud/
+
+The Super Mario Galaxy Movie is reaching for the stars, especially action stars, as they have found the perfect choice for Fox McCloud.
+---------
+
+# New PlayStation 5 Prices Spark Mass Outrage:"Holy S***, Not Good"
+
+Gaming, PlayStation 5
+
+Fri, 27 Mar 2026 13:11:36 GMT
+
+https://screenrant.com/playstation-5-price-hikes-bad-reactions-outrage/
+
+Sony has unvield the new pricing for its PlayStation 5 consoles, and pretty much everyone is united in agreeing these hikes are terrible.
+---------
+
+# PlayStation 5 Multiple Price Increases Officially Confirmed
+
+Gaming, PlayStation 5
+
+Fri, 27 Mar 2026 13:03:22 GMT
+
+https://screenrant.com/playstation-5-price-increases-march-2026-explained/
+
+The price of the PlayStation 5 is going up alongside the PS5 Pro and PlayStation Portal, Sony has confirmed.
+---------
+
+# Monarch: Legacy Of Monsters' Randa Family Tree Explained
+
+TV, Monarch: Legacy of Monsters
+
+Fri, 27 Mar 2026 13:00:21 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-randa-family-tree-explained/
+
+The Randa family is at the center of the Monsterverse series Monarch: Legacy of Monsters, with multiple members across different time periods.
+---------
+
+# Margo Madison's Fate In For All Mankind Season 5 Is A Major Win (Despite Being In Prison)
+
+Streaming TV, For All Mankind
+
+Fri, 27 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/for-all-mankind-season-5-margo-prison-united-states-explained/
+
+Margo Madison has been a major figure in For All Mankind since the start, and her story has taken her to dark places, but she has now moved on.
+---------
+
+# 32 Years Before Inside The Manosphere, Michael Douglas’ $214M Thriller Predicted Modern Gender Discourse
+
+Movies, Louis Theroux: Inside the Manosphere, Disclosure (1994), Thriller
+
+Fri, 27 Mar 2026 13:30:12 GMT
+
+https://www.cbr.com/inside-manosphere-michael-douglas-discourse-predicted-gender-discourse/
+
+Louis Theroux's Inside the Manosphere has audiences questioning how far society has come in gender discourse, and 1994's Disclosure has the answer.
+---------
+
+# PS5 Price Increase Starting April 2026 Revealed By Sony
+
+Games, PlayStation 5
+
+Fri, 27 Mar 2026 13:27:12 GMT
+
+https://www.cbr.com/ps5-price-increases-april-2026/
+
+Sony has announced that the PlayStation 5, PlayStation 5 Pro, and PlayStation Portal are receiving significant price increases worldwide.
+---------
+
+# HBO's Peak Crime Sleeper True Detective Just Became Required Viewing Again
+
+TV, Task, True Detective, Crime
+
+Fri, 27 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/task-mahershala-ali-true-detective-required-viewing/
+
+Mahershala Ali has proven himself one of the best actors of his generation, and his latest role proves audiences need to rediscover a HBO gem.
+---------
+
+# Glen Powell Officially Joins Anya Taylor-Joy’s New Sci-Fi Movie Releasing Next Week
+
+Movie News, The Super Mario Galaxy Movie, Glen Powell, Anya Taylor-Joy, Chris Pratt
+
+Fri, 27 Mar 2026 13:24:33 GMT
+
+https://collider.com/super-mario-galaxy-movie-cast-glen-powell-fox-mccloud/
+
+Glen Powell officially joins Anya Taylor-Joy's new sci-fi movie as an iconic character from the beloved franchise.
+---------
+
+# 'The Pitt' Star Breaks Silence on The Show's Divisive ICE Storyline
+
+Exclusives, Fiona Dourif, The Pitt, Ladies Night, Chucky
+
+Fri, 27 Mar 2026 13:00:13 GMT
+
+https://collider.com/the-pitt-season-2-ice-storyline-fiona-dourif/
+
+On Collider Ladies Night, The Pitt's Fiona Dourif addresses the show's ICE storyline and discusses Dr. McKay's Episode 12 conversation with Dr. Robby.
+---------
+
+# 'Outlander’s Newest Star Explains Why She’s Rooting for Her Polarizing Character
+
+Exclusives, Outlander, Charles Vandervaart, Carla Woodcock, Sophie Skelton
+
+Fri, 27 Mar 2026 13:00:13 GMT
+
+https://collider.com/outlander-season-8-episode-4-william-amaranthus-romance-charles-vandervaart-carla-woodcock-interview/
+
+Charles Vandervaart and Carla Woodcock discuss Outlander Season 8, William and Amaranthus' love story, Brianna's visit, and the fantasy series' end.
+---------
+
+# 8 Movie Trilogies Perfect for a Weekend Binge
+
+Movie, Star Wars, Back to the Future, Fear Street, Spider-Man
+
+Fri, 27 Mar 2026 12:42:12 GMT
+
+https://collider.com/perfect-movie-trilogies-weekend-binge/
+
+Back to the Future, Fear Street, Sam Raimi’s Spider-Man Trilogy, and more make up our list of movie trilogies perfect for a weekend binge.
+---------
+
+# This 10-Part Gothic Horror Thriller Is the Perfect Weekend Binge
+
+TV Features, Dracula, Jonathan Rhys Meyers, Jessica De Gouw, Horror
+
+Fri, 27 Mar 2026 12:24:12 GMT
+
+https://collider.com/dracula-nbc-2013-horror-thriller-perfect-weekend-binge/
+
+NBC's short-lived gothic horror series Dracula deserved more than a handful of episodes, and is one of the best adaptations of the iconic vampire.
+---------
+
+# Jennifer Garner’s 2-Part Apple TV Thriller Delivers a Brutal Wake-Up Call Before the Finale
+
+TV, The Last Thing He Told Me, Jennifer Garner, Apple TV, Angourie Rice
+
+Fri, 27 Mar 2026 12:08:12 GMT
+
+https://collider.com/the-last-thing-he-told-me-season-2-episode-6-apple-tv-angourie-rice-bailey-interview/
+
+Angourie Rice explains Bailey’s emotional shift in Episode 6 as trust breaks down and the truth becomes impossible to ignore.
+---------
+
+# 'Grey's Anatomy' Stars Kim Raver & Kevin McKidd To Exit Series After Season 22
+
+TV News, Grey's Anatomy
+
+Fri, 27 Mar 2026 13:30:23 GMT
+
+https://movieweb.com/greys-anatomy-kim-raver-kevin-mckidd-exit-season-22/
+
+Kim Raver and Kevin McKidd, two long-time cast members of 'Grey's Anatomy,' will be saying goodbye to Grey Sloan Memorial.
+---------
+
+# Tom Hanks' New Baseball Movie Sparks Bidding War
+
+Movie News, Tom Hanks, Marielle Heller
+
+Fri, 27 Mar 2026 13:01:30 GMT
+
+https://movieweb.com/tom-hanks-baseball-movie-bidding-war/
+
+Hanks and director Marielle Heller are reuniting for an adaptation of Dave Eggers' 'The Comebacker.'
+---------
+
+# 'Airplane!' Turned Dramatic Actor Leslie Nielson Into a Comedic Legend
+
+Features, Airplane!, Leslie Nielsen, Naked Gun, Career Arc Reframe
+
+Fri, 27 Mar 2026 13:01:17 GMT
+
+https://movieweb.com/airplane-leslie-nielson-great-performance/
+
+'Airplane!' was released in 1980, and Leslie Nielson's performance as Dr. Rumack showed audiences that the dramatic actor could do comedy.
+---------
+
+# Netflix Casts 'F1' Breakout Damson Idris in Political Action Thriller Series 'The Lords' Day'
+
+TV News, Damson Idris, Netflix, Action, Thriller
+
+Fri, 27 Mar 2026 12:50:04 GMT
+
+https://movieweb.com/netflix-damson-idris-the-lords-day/
+
+The streamer revealed details of the series, which finds an ex-spy at the center of a hostage situation in the heart of British power.
+---------
+
+# Netflix's 'Jo Nesbo's Detective Hole' Debuts With Perfect Rotten Tomatoes Score
+
+TV News, Joe Nesbø's Detective Hole, Netflix, Crime
+
+Fri, 27 Mar 2026 12:15:28 GMT
+
+https://movieweb.com/netflix-detective-hole-100-rotten-score/
+
+Netflix's new crime thriller 'Jo Nesbo's Detective Hole' has debuted to widespread critical acclaim, leading to a perfect 100% Rotten Tomatoes score.
+---------
+
+# 'For All Mankind' Season 5 Intentionally Darkens What "Pulling a Gordo" Means
+
+Features, For All Mankind
+
+Fri, 27 Mar 2026 12:01:17 GMT
+
+https://movieweb.com/for-all-mankind-season-5-gordo-reveal/
+
+Gordo's death is still one of 'For All Mankind's moments, and Season 5 just made the pain even worse. Read on for more.
+---------
+
 # Hogwarts Legacy 2 Official Release Date Update Has Fans Seriously Excited
 
 Gaming, Hogwarts Legacy
