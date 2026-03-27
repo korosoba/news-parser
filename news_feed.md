@@ -1,3 +1,245 @@
+# GTA 6 Fans Horrified By Official Price Update
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Fri, 27 Mar 2026 15:42:38 GMT
+
+https://screenrant.com/gta-6-official-price-update-playstation-price-increase-reactions/
+
+Gaming isn't getting any cheaper, and a recent price update for the industry is not looking great for fans of major franchises.
+---------
+
+# New Revenge Thriller With Game Of Thrones Star Releases Trailer Ahead Of Hitting Theaters & Streaming Next Month
+
+Movies, Lena Headey, Game Of Thrones
+
+Fri, 27 Mar 2026 15:36:32 GMT
+
+https://screenrant.com/ballistic-movie-trailer-release-streaming-date-confirmed-lena-headey/
+
+One of the stars of Game of Thrones is about to appear in a new revenge thriller, and the studio has now released the trailer for the film.
+---------
+
+# Zelda: Ocarina Of Time Remake Leaked, Coming Sooner Than Expected
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Triple-A Games
+
+Fri, 27 Mar 2026 15:33:28 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-leaked-2026-release-window/
+
+The Legend of Zelda: Ocarina of Time is an all-time classic, and a remake is supposedly on the way, releasing much sooner than anticipated.
+---------
+
+# Frieren: Beyond Journey's End Officially Renewed For Season 3
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 27 Mar 2026 15:25:31 GMT
+
+https://screenrant.com/frieren-season-3-confirmed-everything-known/
+
+Frieren will return in 2027.
+---------
+
+# Jujutsu Kaisen Season 4 Officially Announced: Everything We Know So Far
+
+Anime, Jujutsu Kaisen
+
+Fri, 27 Mar 2026 15:25:26 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-confirmed-everything-known/
+
+Jujutsu Kaisen gets an official announcement and teaser for Season 4, so here is everything we know so far about JJK's Culling Game Part 2.
+---------
+
+# Lewis Pullman's New Epic Historical Movie Officially Releases On Streaming This Week After Quiet Theatrical Run
+
+Movies, The Testament of Ann Lee, Lewis Pullman
+
+Fri, 27 Mar 2026 15:23:09 GMT
+
+https://screenrant.com/testament-of-ann-lee-hulu-streaming-release-date/
+
+Top Gun: Maverick star Lewis Pullman’s most recent project, a historical drama with Amanda Seyfried, is about to be released on Hulu and Disney+.
+---------
+
+# Netflix's 8-Part Jurassic Park Series With Glen Powell Is The Perfect One-Night Weekend Binge
+
+TV, Netflix, Jurassic World: Camp Cretaceous, Jurassic Park
+
+Fri, 27 Mar 2026 15:21:34 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-netflix-series-weekend-binge/
+
+Netflix's Jurassic Park series has a strong start, with the show that features stars like Glen Powell and Jenna Ortega making for a weekend binge.
+---------
+
+# Netflix's 5-Part Sci-Fi Series With High Rotten Tomatoes Score Is Perfect From Start To Finish
+
+TV, Netflix, Stranger Things
+
+Fri, 27 Mar 2026 15:21:19 GMT
+
+https://screenrant.com/stranger-things-netflix-sci-fi-series-perfect-start-finishh/
+
+One of Netflix's best TV shows is a sci-fi series that continues to evolve through its five seasons, being perfect from start to finish.
+---------
+
+# Fallout 4 Just Got A Major Update You Can Download Now
+
+Gaming, Fallout 4, Fallout, Triple-A Games
+
+Fri, 27 Mar 2026 15:13:49 GMT
+
+https://screenrant.com/fallout-4-march-2026-update-switch-2/
+
+Fallout 4's new March update brings a major new feature and a lot of smaller fixes and tweaks, but it isn't for every version of the game.
+---------
+
+# The Sorry Man's Identity Reveal & Real Purpose Clarified By Something Very Bad Is Going To Happen Creator
+
+Exclusive, Something Very Bad Is Going to Happen
+
+Fri, 27 Mar 2026 15:03:23 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-sorry-man-identity-red-herring-creator/
+
+EXCLUSIVE: Something Very Bad Is Going To Happen series creator Haley Z. Boston reveals exactly how The Sorry Man was created in the horror series.
+---------
+
+# Cyclops' Shocking Love Interest Returns in His Next Appearance
+
+Comics, Marvel, Marvel Comics, X-Men, Avengers: Doomsday (2026), Avengers: Doomsday, Cyclops
+
+Fri, 27 Mar 2026 15:27:57 GMT
+
+https://www.cbr.com/cyclops-shocking-love-interest-madelyne-pryor-returns-in-his-next-marvel-appearance/
+
+Things are about to get absolutely wild the next time Marvel fans see Cyclops.
+---------
+
+# Every Major Naruto Uzumaki Power-Up From Naruto to Two Blue Vortex, Explained
+
+Anime, Naruto, Naruto Uzumaki
+
+Fri, 27 Mar 2026 15:25:23 GMT
+
+https://www.cbr.com/biggest-naruto-uzumaki-power-ups-explained/
+
+From the original Naruto to the ongoing Two Blue Vortex manga, Naruto Uzumaki has achieved several unforgettable power-ups fans still talk about.
+---------
+
+# J.K. Rowling Reacts to Harry Potter Trailer as Fans Are Divided
+
+TV, Harry Potter
+
+Fri, 27 Mar 2026 15:18:01 GMT
+
+https://www.cbr.com/jk-rowling-reacts-harry-potter-trailer-fans-divided/
+
+The new adaptation has officially unveiled the first look, which has fans divided.
+---------
+
+# Steve Zahn Has Moved From Daddy Day Care to Beloved On-Screen Dad
+
+CBR Exclusives
+
+Fri, 27 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/steve-zahn-has-moved-from-daddy-day-care-to-beloved-on-screen-dad/
+
+CBR’s Scene Stealers catches up with the beloved ‘Wimpy Kid’ comedian to talk his rich career and acting with his daughter in ‘She Dances.’
+---------
+
+# 25 Years Later, This PS2 Game Delivered Gaming's Most Untouchable Ending
+
+Games, Silent Hill, Silent Hill 2, PlayStation 2
+
+Fri, 27 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/essential-ps2-game-untouchable-ending-silent-hill-2/
+
+Decades later, no game has topped the ending of this PS2 classic.
+---------
+
+# 10 Best Sci-Fi Anime With Zero Bad Episodes
+
+Anime, Cyberpunk: Edgerunners, FLCL, Cowboy Bebop, Steins;Gate, Ghost in the Shell: Stand Alone Complex, Legend Of The Galactic Heroes, Neon Genesis Evangelion, Gurren Lagann, Space Dandy, Kaiba
+
+Fri, 27 Mar 2026 14:48:46 GMT
+
+https://www.cbr.com/best-sci-fi-anime-no-bad-episodes/
+
+Science fiction is one of the most challenging genres to pull off, and the best sci-fi anime do it in only a few perfect episodes.
+---------
+
+# 'Babylon 5' Creator's Epic New Sci-Fi Thriller Is Officially Happening
+
+Movie News, Vanessa Kirby, Yahya Abdul-Mateen II, Louis Leterrier, Apple TV
+
+Fri, 27 Mar 2026 15:18:14 GMT
+
+https://collider.com/new-apple-tv-sci-fi-movie-babylon-5-creator-vanessa-kirby-yahya-abdul-mateen-ii-louis-leterrier/
+
+Apple TV taps two Marvel stars to lead a new sci-fi movie from Fast X director Louis Leterrier, based on a graphic novel by J. Michael Straczynski.
+---------
+
+# Apple TV’s 6-Part Sci-Fi Series Gains New Life on Streaming Ahead of Return Tonight
+
+TV News, For All Mankind, Joel Kinnaman, Apple TV, Sci-Fi
+
+Fri, 27 Mar 2026 15:03:32 GMT
+
+https://collider.com/for-all-mankind-season-5-streaming-success-apple-tv-march-2026/
+
+Apple TV’s original alternate history sci-fi masterpiece, For All Mankind, is surging on streaming charts as Season 5 premieres on Friday.
+---------
+
+# Tom Hardy’s Near-Perfect Sci-Fi Masterpiece Quietly Becomes #1 Late-Night Favorite
+
+Movie News, Mad Max: Fury Road, Tom Hardy, Charlize Theron, George Miller
+
+Fri, 27 Mar 2026 14:54:33 GMT
+
+https://collider.com/mad-max-fury-road-tom-hardy-sci-fi-masterpiece-global-streaming-success-march-2026/
+
+Tom Hardy’s near-perfect sci-fi masterpiece, Mad Max: Fury Road, has quietly become a late-night streaming favorite 11 years after hitting theaters.
+---------
+
+# 'They Will Kill You' Review: Zazie Beetz Murders Her Way Through a Bloody, Demonic 'Kill Bill' Homage
+
+Movie Reviews, They Will Kill You, Zazie Beetz, Patricia Arquette, Tom Felton
+
+Fri, 27 Mar 2026 14:53:24 GMT
+
+https://collider.com/they-will-kill-you-review-zazie-beetz/
+
+They Will Kill You, starring Zazie Beetz, is a wild, bonkers action film that mostly skates by on its style.
+---------
+
+# 'The Lion King' Singer Sues Comedian Learnmore Jonasi Sued for $20 Million
+
+Movie News, The Lion King, Disney
+
+Fri, 27 Mar 2026 15:06:34 GMT
+
+https://movieweb.com/learnmore-comedian-sued-lion-king-joke/
+
+Comedian Learnmore Mwanyenyeka (aka Learnmore Jonasi) is being sued for a joke about 'The Lion King.'
+---------
+
+# Quentin Tarantino's Career-Defining Crime Thriller Lands New Streaming Home
+
+Movie News, Pulp Fiction, Coming/Leaving Streaming, Quentin Tarantino
+
+Fri, 27 Mar 2026 15:01:18 GMT
+
+https://movieweb.com/pulp-fiction-quentin-tarantino-streaming-peacock-april-2026/
+
+Ahead of his new stage play, Tarantino's most influential film, 'Pulp Fiction,' is headed to a new streaming home this April.
+---------
+
 # The Witcher: Nightmare Of The Wolf Deserves Its Perfect Rotten Tomatoes Score
 
 Streaming TV, The Witcher: Nightmare of the Wolf
