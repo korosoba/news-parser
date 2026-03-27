@@ -1,3 +1,278 @@
+# Crunchyroll Makes Massive Deal With Streaming Giant: Details Here
+
+Anime, Crunchyroll, Apple TV, Crunchyroll Premium
+
+Fri, 27 Mar 2026 21:28:10 GMT
+
+https://screenrant.com/crunchyroll-apple-tv-streaming-deal-details/
+
+Crunchyroll makes a massive deal with one of the biggest TV and film streaming giants, and here is everything you need to know about it.
+---------
+
+# DC’s Answer to Game of Thrones is Returning With a New Series, But It Deserves So Much More
+
+Comics, Dark Knights of Steel: Allwinter, DC Comics
+
+Fri, 27 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/dc-dark-knights-steel-new-series-game-thrones/
+
+DC's Elseworlds label features a marvelous limited series comic that is receiving a sequel soon, and its popularity will hopefully blossom further.
+---------
+
+# Is The End Of Oak Street A Secret Cloverfield Movie?
+
+New Movies, Flowervale Street, Cloverfield
+
+Fri, 27 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/end-of-oak-street-cloverfield-movie-connections-speculation/
+
+Anne Hathaway and Ewan McGregor's new sci-fi movie has become the subject of speculation, as The End of Oak Street could be a Cloverfield film.
+---------
+
+# Prime Video's 3-Part Fantasy Masterpiece Series Is Officially Fixing Amazon's Wheel Of Time Mistake
+
+Classic TV, The Wheel of Time, The Legend of Vox Machina
+
+Fri, 27 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/legend-of-vox-machina-renewed-final-season-fix-wheel-of-time-ending/
+
+Prime Video has an incredible 3-part fantasy television show, which is fixing everything that went wrong with the streamer’s The Wheel of Time.
+---------
+
+# Pokémon Ocean Blue Is Shaping Up To Be The Perfect Kanto Experience
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 27 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/pokemon-ocean-blue-kanto-update/
+
+Looking at Route 3 alone proves how much this new take on the Kanto region is bringing to the table, and character customization is the cherry on top.
+---------
+
+# Harry Potter's Tom Felton Announces New Update On Hogwarts Sorting House
+
+Movies, Harry Potter, Tom Felton
+
+Fri, 27 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/harry-potter-tom-felton-hogwarts-sorting-hat-house-update/
+
+In a recent interview, on the Happy Sad Confused podcast, Tom Felton revealed an update to his true real-life Hogwarts House allegiance.
+---------
+
+# Campeón Gabacho Explores Identity, Belonging Through Boxing Lens
+
+Movies, SXSW, Rubén Blades, Leslie Grace
+
+Fri, 27 Mar 2026 20:54:47 GMT
+
+https://screenrant.com/leslie-grace-campeon-gabacho-boxing-drama-more-director-cast-sxsw/
+
+Campeón Gabacho delves into the immigrant experience, exploring identity and belonging beyond the boxing ring, starring Leslie Grace and directed by Jonás Cuarón.
+---------
+
+# Netflix’s New Psychological Thriller & 3 Shows Worth a Weekend Binge
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 27 Mar 2026 20:52:19 GMT
+
+https://screenrant.com/netflix-new-shows-weekend-binge/
+
+Discover Netflix's hottest new series to binge this weekend, including a psychological thriller, teen drama, true crime, and a Nordic crime thriller.
+---------
+
+# Himesh Patel's Castin Just Made Ryan Coogler's X-Files Reboot Way More Exciting
+
+Streaming TV, The X-Files
+
+Fri, 27 Mar 2026 20:45:18 GMT
+
+https://screenrant.com/x-files-ryan-coogler-reboot-himesh-patel-exciting/
+
+Oscar winner Ryan Coogler will be helming the pilot of an X-Files reboot for Hulu, and a new casting announcement adds even more buzz to the project.
+---------
+
+# Ryan Gosling’s Next Movie Appearance After Project Hail Mary Is Already Out In Cinemas
+
+Movies, Ryan Gosling, Project Hail Mary, They Will Kill You
+
+Fri, 27 Mar 2026 20:45:18 GMT
+
+https://screenrant.com/ryan-gosling-movie-next-after-project-hail-mary-they-will-kill-you/
+
+Ryan Gosling's latest movie, Project Hail Mary, is taking the box office by storm, but did you know he's already in another film in theaters?
+---------
+
+# The Mummy 4: John Hannah Joins Brendan Fraser and Rachel Weisz in Cast
+
+Movies, The Mummy 4, The Mummy, Adventure
+
+Fri, 27 Mar 2026 21:24:43 GMT
+
+https://www.cbr.com/the-mummy-4-cast-john-hannah/
+
+Universal confirms John Hannah will return to complete the original cast reunion in The Mummy 4, reuniting with Brendan Fraser and Rachel Weisz.
+---------
+
+# This Criminally Underrated Crunchyroll Series Is Still the Most Slept-On Anime of the 2020s
+
+Anime, MF Ghost
+
+Fri, 27 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/crunchyroll-mf-ghost-most-underrated-2000s-anime/
+
+This overlooked series on Crunchyroll still stands out as one of the decade’s most ignored gems.
+---------
+
+# Hannah Montana 20th Anniversary Special Dominates Disney+ Streaming Charts
+
+Movies, Hannah Montana, Disney+
+
+Fri, 27 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/hannah-montana-20-anniversary-special-disney-success-march-2026/
+
+The Hannah Montana 20th Anniversary Special is currently the most-watched movie worldwide on Disney+, taking the No. 1 spot in nearly every country.
+---------
+
+# Netflix's Sisu: Road to Revenge Proves the ‘John Wick’ Clone Era Is Just Getting Started
+
+Movies, John Wick, Sisu: Road to Revenge
+
+Fri, 27 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/netflixs-no-1-action-movie-proves-the-john-wick-clone-era-is-just-getting-started/
+
+Sisu: Road to Revenge is an unexpected sequel that proves the John Wick clone trend is still hitting its stride.
+---------
+
+# The Expanse Is a Masterpiece of Realistic Sci-Fi
+
+TV, The Expanse, Sci-Fi, Prime Video
+
+Fri, 27 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/the-expanse-most-realistic-sci-fi-show-ever-made/
+
+The Expanse received praise for its compelling stories and complex characters, but it also nailed scientific and social realism.
+---------
+
+# 10 Best Batman Copycats in Comic Book History
+
+Comics, Batman
+
+Fri, 27 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/greatest-batman-clones-in-comic-book-history/
+
+Not everyone can be The Dark Knight.
+---------
+
+# Keanu Reeves' New Sci-Fi Action Movie Recruits Another Deadpool Favorite
+
+Movie News, Deadpool, Keanu Reeves, Stefan Kapicic, Tim Miller
+
+Fri, 27 Mar 2026 21:24:12 GMT
+
+https://collider.com/keanu-reeves-sci-fi-action-movie-cast-deadpool-star-stefan-kapicic-tim-miller-reunion/
+
+Keanu Reeves' ambitious sci-fi action movie has recruited a Deadpool favorite, marking a reunion for director Tim Miller.
+---------
+
+# Say Goodbye to the Worst Best Picture Winner of All Time
+
+Movie News, Crash, Plex, Streaming, Sandra Bullock
+
+Fri, 27 Mar 2026 21:20:13 GMT
+
+https://collider.com/brendan-fraser-best-picture-crime-thriller-crash-leaving-streaming-plex-april-2026/
+
+The worst Best Picture winner of all time, starring Brendan Fraser and Sandra Bullock, is about to lose its spot on a free streaming site.
+---------
+
+# 6 Most Shocking Moments in ‘House of David’ Season 2, Ranked
+
+TV, House of David, Prime Video, TV Series, Ayelet Zurer
+
+Fri, 27 Mar 2026 21:11:12 GMT
+
+https://collider.com/house-of-david-season-2-shocking-moments-ranked/
+
+The most shocking moments from season 2 of House of David include the death of Samuel and Eshbaal killing Dina.
+---------
+
+# Netflix's 2-Part Sci-Fi Mystery Is Perfect From Start to Finish
+
+TV Features, Russian Doll, Netflix, Natasha Lyonne, Sci-Fi
+
+Fri, 27 Mar 2026 21:09:12 GMT
+
+https://collider.com/russian-doll-netflix-sci-fi-perfect-start-to-finish/
+
+Natasha Lyonne's twisty time-travel series Russian Doll is an addicting 2-season binge on Netflix perfect for sci-fi fans.
+---------
+
+# Netflix Officially Announces Sequel to the 2024's Divisive Action Thriller
+
+Movie News, Netflix, Action, Thriller, City Hunter
+
+Fri, 27 Mar 2026 21:00:12 GMT
+
+https://collider.com/netflix-live-action-anime-adaptation-city-hunter-2-sequel/
+
+After the colossal success of Netflix's One Piece, the streamer is doubling down on another live-action anime adaptation with a brand-new sequel.
+---------
+
+# 10 Movies That Are Masterclasses in Style Over Substance
+
+Movie, Kill Bill: Vol. 1, Drive, Days of Heaven, Le Samouraï
+
+Fri, 27 Mar 2026 20:51:12 GMT
+
+https://collider.com/movies-masterclasses-style-over-substance/
+
+Whether it's horrors like Suspiria or thrillers like Drive, these movies are triumphs of blocking that prioritize mood, vibes, and looks over story.
+---------
+
+# 'The Mummy 4' Officially Confirms Return of Another Original Cast Member
+
+Movie News, John Hannah, The Mummy 4, Radio Silence, Rachel Weisz
+
+Fri, 27 Mar 2026 20:42:23 GMT
+
+https://collider.com/the-mummy-4-john-hannah-returning-as-jonathan-carnahan-brendan-fraser-rachel-weisz/
+
+John Hannah will officially reprise his role as Jonathan Carnahan in Brendan Fraser and Rachel Weisz's The Mummy 4.
+---------
+
+# John Hannah Will Return in 'The Mummy 4' Alongside Brendan Fraser and Rachel Weisz
+
+Movie News, The Mummy 4
+
+Fri, 27 Mar 2026 21:13:40 GMT
+
+https://movieweb.com/the-mummy-4-finally-adds-major-returning-cast-member-from-original-movie/
+
+John Hannah will reprise his role as Jonathan Carnahan in 'The Mummy 4', set for release in May 2028.
+---------
+
+# 'The Drama' Director Kristoffer Borgli Under Fire After Essay About Dating Teen Surfaces Online
+
+Movie News, The Drama, A24
+
+Fri, 27 Mar 2026 20:39:08 GMT
+
+https://movieweb.com/the-drama-kristogger-borgli-essay/
+
+The filmmaker behind Nicolas Cage's 'Dream Scenario' is facing backlash for an essay written in 2012.
+---------
+
 # 10 Most Exciting Fantasy Movies Ever Made, Ranked
 
 Movies, Fantasy
