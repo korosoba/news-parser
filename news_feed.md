@@ -1,3 +1,256 @@
+# Tom Felton Confirms Reaching Out To HBO’s New Draco Malfoy Harry Potter Star
+
+TV, Harry Potter, Harry Potter - Season 1, Tom Felton
+
+Fri, 27 Mar 2026 17:38:22 GMT
+
+https://screenrant.com/harry-potter-tom-felton-lox-pratt-support/
+
+Following in Daniel Radcliffe and Rupert Grint’s footsteps, Tom Felton has now contacted the young actor playing Malfoy in the Harry Potter remake.
+---------
+
+# Turn of the Tide: The Best Netflix Series You Haven't Watched
+
+TV, Turn of the Tide
+
+Fri, 27 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/netflixs-2-part-narco-thriller-is-the-best-series-to-binge-this-weekend/
+
+This Netflix hidden gem's incredible true-story premise makes for a scintillating tale of drug-fueled drama against a spectacular backdrop.
+---------
+
+# Tom Cruise’s $273M Cult Classic Officially Returning To Theaters Next Month After 30 Years
+
+Movies, Tom Cruise, Jerry Maguire
+
+Fri, 27 Mar 2026 17:26:44 GMT
+
+https://screenrant.com/tom-cruise-jerry-maguire-theatrical-rerelease-30th-anniversary-details/
+
+One of Tom Cruise's best-reviewed movies is coming back to theaters next month, having spent the last 30 years becoming a quotable cult classic.
+---------
+
+# Disney's Iconic 4-Season TV Show Hits 1000% Viewership Spike 15 Years After Series End
+
+TV, Hannah Montana
+
+Fri, 27 Mar 2026 17:20:56 GMT
+
+https://screenrant.com/hannah-montana-disney-plus-streaming-viewership-spike-after-anniversary-special/
+
+Getting the best of both worlds is easy for this iconic Disney series as the show skyrocketed in viewership over a decade after its final episode.
+---------
+
+# Michael Fassbender's Role In Netflix's The Crown Replacement Series Revealed In First Look Image
+
+TV, Michael Fassbender
+
+Fri, 27 Mar 2026 17:08:46 GMT
+
+https://screenrant.com/kennedy-michael-fassbender-netflix-first-look-cast/
+
+Netflix has revealed a first-look image of Fassbender as Joe Kennedy Sr., as well as some additional cast members being added to the historical drama.
+---------
+
+# HBO's 8-Part Crime Thriller Masterpiece Series Rewrote The Rules Of Detective Shows
+
+TV, True Detective
+
+Fri, 27 Mar 2026 17:00:21 GMT
+
+https://screenrant.com/true-detective-season-1-rewrote-rules-detective-series/
+
+One iconic crime thriller from HBO rewrote the rules of cop shows, creating a uniquely dark and intense mystery that proved endlessly influential.
+---------
+
+# Top 10 Greatest X-Force Members X-Men Has Introduced Since 2000
+
+Comics, X-Force
+
+Fri, 27 Mar 2026 17:00:21 GMT
+
+https://screenrant.com/xmen-best-x-force-heroes-introduced-since-2000/
+
+There are many parts to the X-Men universe, and the X-Force is the craziest of them all.
+---------
+
+# Pokemon TCG Pocket: 10 Best Cards In Mega Shine
+
+Gaming, Pokemon Trading Card Game Pocket, Triple-A Games
+
+Fri, 27 Mar 2026 16:58:52 GMT
+
+https://screenrant.com/pokemon-tcg-pocket-best-cards-mega-shine/
+
+Mega Shine is a smaller set, but that doesn't mean it lacks a lot of cards that could shake up the meta, especially when it comes to EXs.
+---------
+
+# Jury Duty: Company Retreat - A Guide To Season 2's Cast Of Characters
+
+Streaming TV, Jury Duty Presents: Company Retreat
+
+Fri, 27 Mar 2026 16:50:10 GMT
+
+https://screenrant.com/jury-duty-company-retreat-characters-cast-guide/
+
+Prime Video’s reality hoax show, Jury Duty Presents: Company Retreat, featured an array of both seasoned and new actors in its impressive cast.
+---------
+
+# Daniel Radcliffe’s Epic New Movie With Near-Perfect RT Score Finally Releases On Netflix Next Week
+
+Movies, Merrily We Roll Along, Daniel Radcliffe
+
+Fri, 27 Mar 2026 16:46:56 GMT
+
+https://screenrant.com/daniel-radcliffe-merrily-we-roll-along-netflix-streaming-release-date/
+
+Daniel Radcliffe's 2025 movie is coming to Netflix on April 4, and if this actor isn't enough to convince you, the Rotten Tomatoes score should be.
+---------
+
+# CBS Announces New Casting Change for Tracker Season 3
+
+TV, Tracker
+
+Fri, 27 Mar 2026 17:28:32 GMT
+
+https://www.cbr.com/tracker-season-3-chris-lee/
+
+Tracker Season 3 is given a notable casting change amid the ongoing season.
+---------
+
+# What's Coming to Netflix in February 2026? Full List
+
+TV, Netflix
+
+Fri, 27 Mar 2026 17:25:00 GMT
+
+https://www.cbr.com/whats-coming-to-netflix-in-april-2026-full-list/
+
+The streaming services has many exciting originals coming back, plus many licensed titles.
+---------
+
+# Stranger Things Spinoff Tales From ’85 Premieres on Netflix in April
+
+TV, Stranger Things: Tales from '85, Netflix, Sci-Fi
+
+Fri, 27 Mar 2026 17:18:13 GMT
+
+https://www.cbr.com/netflix-fixing-stranger-things-tales-from-85/
+
+Netflix's animated Stranger Things spinoff, Tales from '85, set between Season 2 and 3, premieres on the streaming platform in April.
+---------
+
+# New D&D Heroes' Feast Exclusive Cookbook Recipe Preview
+
+CBR Exclusives, Tabletop, Dungeons and Dragons
+
+Fri, 27 Mar 2026 17:15:13 GMT
+
+https://www.cbr.com/dnd-heroes-feast-legends-of-the-table-cookbook-preview/
+
+The brilliant minds behind D&amp;D's official Heroes' Feast cookbook are back with 80 brand new recipes fit for sorcerers, rogues, bards and more!
+---------
+
+# The Super Mario Galaxy Movie Officially Casts Top Gun: Maverick Star Glen Powell for Super Smash Crossover
+
+Movies, The Super Mario Bros. Movie, The Super Mario Galaxy Movie
+
+Fri, 27 Mar 2026 16:54:09 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-officially-casts-top-gun-glen-powell-as-star-fox/
+
+One of the biggest stars in Hollywood is officially becoming one of the biggest stars in the Super Mario Bros. franchise.
+---------
+
+# Josh Duhamel Sparks Debate Over Celebrities Speaking Out on Politics
+
+Movies
+
+Fri, 27 Mar 2026 16:46:42 GMT
+
+https://www.cbr.com/josh-duhamel-celebrity-politics/
+
+Celebrities speaking out on politics remains a divisive issue in Hollywood.
+---------
+
+# This Timeless 6-Part HBO Crime Series Is Your Next Late-Night Binge
+
+TV Features, Oz, HBO, Christopher Meloni, J.K. Simmons
+
+Fri, 27 Mar 2026 17:29:13 GMT
+
+https://collider.com/oz-best-hbo-crime-series/
+
+Oz was the start of the golden age of television, a gritty drama taking place in one of the worst prisons in fiction.
+---------
+
+# ‘Avengers: Doomsday’ Reveals Robert Downey Jr.’s Doctor Doom
+
+Movie News, Avengers: Doomsday, Robert Downey Jr, MCU, Avengers: Secret Wars
+
+Fri, 27 Mar 2026 16:58:11 GMT
+
+https://collider.com/avengers-doomsday-robert-downey-jr-doctor-doom-first-look-promotional-art-comic-style/
+
+Avengers: Doomsday has released new promotional posters teasing the look and costume of Robert Downey Jr.’s Doctor Doom in a stunning comic book style
+---------
+
+# The Greatest Sci-Fi Franchise of All Time Just Found a New Streaming Home
+
+Movie News, Alien, Alien: Romulus, Ridley Scott, Sci-Fi
+
+Fri, 27 Mar 2026 16:45:15 GMT
+
+https://collider.com/disney-best-sci-fi-franchise-ever-alien-movies-moving-to-hbo-max-streaming-april-1-2026/
+
+Disney’s most action-packed sci-fi franchise of all time is officially arriving on a new streamer on April 1. Here’s where you can watch them.
+---------
+
+# 'End of Oak Street' Markets Its Dino-Disaster Epic With Fake Furniture Ads
+
+Movie News, Flowervale Street, J.J. Abrams, Sci-Fi
+
+Fri, 27 Mar 2026 17:38:45 GMT
+
+https://movieweb.com/end-of-oak-street-furniture-ads-viral-marketing/
+
+'The End of Oak Street' marketing has ramped up, with mock marketplace ads appearing on social media to promote J.J. Abrams' new sci-fi epic.
+---------
+
+# Andrew Garfield Defends the Artists Behind 'Harry Potter' Films, Shades Author J.K. Rowling
+
+Movie News, Harry Potter, Andrew Garfield
+
+Fri, 27 Mar 2026 17:36:22 GMT
+
+https://movieweb.com/andrew-garfield-harry-potter-jk-rowling/
+
+Avoiding any support for J.K. Rowling, Andrew Garfield shared his defense of the people who made the 'Harry Potter' movies come to life.
+---------
+
+# Marvel Confirms 'Daredevil: Born Again' Takes Place After 'Thunderbolts*'
+
+TV News, Daredevil: Born Again
+
+Fri, 27 Mar 2026 17:12:56 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-mcu-timeline/
+
+The official MCU timeline on Disney+ places 'Daredevil: Born Again' after 'Thunderbolts*' but before 'Wonder Man.'
+---------
+
+# Steven Spielberg’s Epic 'Band of Brothers' Trilogy Is the Perfect 'Saving Private Ryan' Follow-up
+
+Features, Steven Spielberg, Saving Private Ryan, Band of Brothers, Comparison Recommendation
+
+Fri, 27 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/steven-spielberg-saving-private-ryan-band-of-brothers-trilogy/
+
+Steven Spielberg’s war TV trilogy, featuring 'Band of Brothers', 'The Pacific', and 'Masters of the Air', is all you need.
+---------
+
 # Why Bob Dylan's 17-Minute Song "Murder Most Foul" Changed Music History
 
 Music, Bob Dylan, Classic Rock, JFK Assassination: The Definitive Guide, Rock, YouTube
