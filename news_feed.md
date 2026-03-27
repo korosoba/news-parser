@@ -1,3 +1,91 @@
+# Netflix’s 6-Part Legal Thriller Is Still Worth An Easy One-Night Binge – Thanks To Sienna Miller’s Standout Performance
+
+Streaming TV, Netflix, Anatomy of a Scandal
+
+Fri, 27 Mar 2026 23:47:19 GMT
+
+https://screenrant.com/netflix-anatomy-of-a-scandal-sienna-miller-series-binge/
+
+Discover the 6-part hidden gem legal thriller series on Netflix, Anatomy of a Scandal, featuring a standout performance by Sienna Miller.
+---------
+
+# DC’s New Justice League Lineup Is Unlike Anything We’ve Seen Before
+
+DC Comics, Justice League
+
+Fri, 27 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/dc-new-justice-league-roster-adding-villains/
+
+In the fallout of DC's King Omega tournament and new threats on the horizon, the Justice League's roster is receiving a major shift in the status quo.
+---------
+
+# Harry Potter & The Philosopher's Stone Trailer Shatters Records As Most-Watched In HBO & HBO Max History
+
+TV, Harry Potter
+
+Fri, 27 Mar 2026 23:28:18 GMT
+
+https://screenrant.com/harry-potter-philosophers-stone-trailer-most-watched-hbo-history-records/
+
+HBO's Harry Potter and the Philosopher's Stone trailer sets a new record for the platform, attracting over 277 million views in the first 48 hours.
+---------
+
+# James Tolkan, Back to the Future Actor, Dies at 94
+
+Movies, Back to the Future
+
+Fri, 27 Mar 2026 23:50:06 GMT
+
+https://www.cbr.com/james-tolkan-dead/
+
+James Tolkan, known in part for appearing in the Back to the Future trilogy, has passed away.
+---------
+
+# Transformers Sister Series Gets New Limited Edition Seiko Watch for 10th Anniversary
+
+Anime, Shinkalion: Change the World, merchandise, Hatsune Miku
+
+Fri, 27 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/shinkalion-hatsune-miku-anniversary-seiko-watch-international-release/
+
+A sister series to Transformers is being commemorated with an 10th anniversary Seiko watch, and Hatsune Miku is coming along for the (train) ride.
+---------
+
+# One of Stephen King’s Best Movies Is a Must-Watch on Prime Video This Weekend
+
+Movie, Carrie, Super 8, Late Night, Prime Video
+
+Fri, 27 Mar 2026 23:43:13 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-march-27/
+
+Carrie, Super 8, and Late Night make up our list of the best movies to watch on Prime Video the weekend of March 27, 2026.
+---------
+
+# Pete Davidson Set to Join 'Tommy Karate' in Dream Role as Mafia Killer Tommy Pitera
+
+Movie News, Pete Davidson
+
+Fri, 27 Mar 2026 23:31:36 GMT
+
+https://movieweb.com/pete-davidson-tommy-karate-crime-thriller/
+
+Justin Chon's new movie, 'Tommy Karate' will feature Pete Davidson in a dream role as famous mafia killer Tommy Pitera
+---------
+
+# Alfred Hitchcock’s Spy Thriller Classic 'North by Northwest' Is Streaming for Free on Tubi
+
+Movie News, North By Northwest, Tubi, Coming/Leaving Streaming, Action
+
+Fri, 27 Mar 2026 23:27:17 GMT
+
+https://movieweb.com/north-by-northwest-hitchcock-action-spy-thriller-stream-free-tubi-april-2026/
+
+Watch Alfred Hitchcock and Cary Grant's iconic action thriller 'North by Northwest' for free on Tubi in April 2026.
+---------
+
 # After 59 Years, DC Debuts Deadman's New Design
 
 DC Comics, DC, Deadman
