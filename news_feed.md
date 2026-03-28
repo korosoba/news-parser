@@ -1,3 +1,91 @@
+# Jenna Ortega Is Being Endorsed For Lead Role In Andy Weir's New Sci-Fi Movie After Project Hail Mary's Box Office Success
+
+Movies, Artemis
+
+Sat, 28 Mar 2026 16:56:10 GMT
+
+https://screenrant.com/artemis-movie-jenna-ortega-jazz-casting-hopes-andy-weir/
+
+Jenna Ortega could be the lead in Andy Weir's next sci-fi blockbuster, Artemis, following the massive success of Project Hail Mary.
+---------
+
+# 8 Years Later, Taylor Sheridan's 2-Part Crime Thriller Still Needs A Proper Ending
+
+Classic Movies, Taylor Sheridan, Sicario, Sicario: Capos
+
+Sat, 28 Mar 2026 16:55:18 GMT
+
+https://screenrant.com/taylor-sheridan-sicario-franchise-ending-needed/
+
+Taylor Sheridan created an excellent crime thriller saga, but after eight years, it is still waiting for him to deliver a proper ending.
+---------
+
+# 12 Coolest Swords In Movies & TV Shows
+
+Movies
+
+Sat, 28 Mar 2026 16:45:19 GMT
+
+https://screenrant.com/coolest-swords-movies-tv-shows/
+
+Discover the stories and significance of the legendary swords that have captivated audiences, from Excalibur to Andúril and the Hattori Hanzo katana.
+---------
+
+# This Star Wars Master & Apprentice Duo Has The Best Intro (& It's Not In The Skywalker Saga)
+
+Movies, Star Wars
+
+Sat, 28 Mar 2026 16:40:19 GMT
+
+https://screenrant.com/star-wars-master-apprentice-duo-intro-best/
+
+There have been many epic entrances in Star Wars movies and TV shows, but this duo has the best master and apprentice introduction of all.
+---------
+
+# Ready Or Not 2 Box Office Slammed With Week 2 Drop That's Twice As Large As The OG Movie's
+
+Movies, Horror, Box Office, Ready or Not, Ready or Not 2: Here I Come
+
+Sat, 28 Mar 2026 16:31:58 GMT
+
+https://screenrant.com/ready-or-not-2-here-i-come-movie-box-office-week-2-domestic-drop/
+
+The horror-comedy sequel Ready or Not 2: Here I Come is slammed with a harsh week 2 drop after previously earning the best debut of the franchise.
+---------
+
+# 10 Worst White Lotus Characters, Ranked
+
+TV, The White Lotus, hbo, Mystery
+
+Sat, 28 Mar 2026 16:30:12 GMT
+
+https://www.cbr.com/worst-white-lotus-characters-ranked-list/
+
+The White Lotus is heading into its fourth season, which promises to introduce even more abhorrent characters we can't help but love to watch.
+---------
+
+# From 'Avengers: Doomsday' to 'Severance' Season 3, Here's Everything We Learned from SXSW 2026
+
+Exclusives, Avengers: Doomsday, SXSW
+
+Sat, 28 Mar 2026 16:41:39 GMT
+
+https://collider.com/sxsw-2026-adam-scott-severance-avengers-doomsday-lewis-pullman-sarah-michelle-gellar-interviews/
+
+Check out the lineup from Collider’s SXSW 2026 interview studio at the Cinema Center for the latest on the festival's biggest names and titles.
+---------
+
+# This Hulu Movie Quietly Tried To Hide It Was a Sci-Fi Alien Film
+
+Movie Features, No One Will Save You, Kaitlyn Dever, Hulu, Horror
+
+Sat, 28 Mar 2026 16:36:13 GMT
+
+https://collider.com/no-one-will-save-you-kaitlyn-dever-sci-fi/
+
+No One Will Save You, starring Kaitlyn Dever, tried to hide that it was actually an alien invasion movie.
+---------
+
 # Prime Video's New The Boys Series Is Intended For Multiple Seasons After Season 5 Ends, Says Jensen Ackles
 
 TV, The Boys, Vought Rising
