@@ -1,3 +1,14 @@
+# Xbox Game Pass Offering Bonus Free Game For Only 24 More Hours
+
+Gaming, Xbox Game Pass
+
+Sat, 28 Mar 2026 06:00:18 GMT
+
+https://screenrant.com/xbox-game-pass-free-game-leaving-march-29/
+
+Xbox Game Pass members only have around 24 hours remaining to play the latest free game that's part of Xbox's Free Play Days this weekend.
+---------
+
 # Demon Slayer Hypes the Surprise 2026 Release That No Fan Expected
 
 Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
