@@ -1,3 +1,179 @@
+# 10 TV Shows We Thought Would Be The Next Sopranos
+
+Classic TV, The Sopranos
+
+Sat, 28 Mar 2026 21:45:18 GMT
+
+https://screenrant.com/tv-shows-almost-next-sopranos/
+
+The Sopranos is one of the most influential television shows ever made, but many have tried— and failed— to become its spiritual successor.
+---------
+
+# Netflix's Yu Yu Hakusho: A Compact Martial Arts Series for a Weekend Binge
+
+Classic TV, Yu Yu Hakusho
+
+Sat, 28 Mar 2026 21:36:58 GMT
+
+https://screenrant.com/yu-yu-hakusho-netflix-series-action-one-night-weekend-binge/
+
+Netflix’s 5-part action-packed martial arts television show is an underrated gem that you can binge in under five hours or watch over a weekend.
+---------
+
+# How To Make Every Effect In Schedule 1
+
+Gaming, Schedule I
+
+Sat, 28 Mar 2026 21:30:20 GMT
+
+https://screenrant.com/schedule-1-every-effect-recipes-ingredients-guide/
+
+Finding new strains takes trial and error in Schedule 1, however, it helps knowing what each ingredient will add to the current effects of a strain.
+---------
+
+# 10 Best Batman Copycats and Knockoffs Introduced Since 2000
+
+Comics, Batman
+
+Sat, 28 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/best-batman-copycat-comics-since-2000/
+
+The Batman is such an icon of heroism, that some characters are created solely off of the Caped Crusader's character.
+---------
+
+# New Movie With Two Stranger Things Stars Finally Passes Major Domestic Box Office Milestone Despite Digital Release
+
+Movies, GOAT, Caleb McLaughlin, David Harbour, Box Office, Box Office Milestone, Stranger Things
+
+Sat, 28 Mar 2026 21:29:34 GMT
+
+https://screenrant.com/goat-movie-100-million-domestic-box-office-milestone/
+
+A significant domestic box office milestone has been achieved by a movie starring two Stranger Things actors, despite the recent digital release.
+---------
+
+# Bruce Willis' Noir Masterpiece Based on Popular Comic Book, Sin City, Is Heading to Free Streaming on Pluto In Just 4 Days
+
+Movies, Crime, Drama, Sin City, Sin City: A Dame to Kill For
+
+Sat, 28 Mar 2026 21:38:10 GMT
+
+https://www.cbr.com/bruce-willis-noir-masterpiece-free-streaming-pluto-tv-march-2026/
+
+It's one of the best movies in Bruce Willis' catalog, and it'll finally be free in April.
+---------
+
+# Black Lightning Resurfaces on PVOD 5 Years After Last Episode
+
+TV, Black Lightning
+
+Sat, 28 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/black-lightning-streaming-march-2026/
+
+The superhero series makes a sudden surge on the PVOD charts after five years.
+---------
+
+# Power Rangers' Official Red Ranger Gets an Unexpected Sailor Moon Transformation
+
+Anime, Sailor Moon, Power Rangers, Power Rangers Dino Fury
+
+Sat, 28 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/power-rangers-red-ranger-russell-curry-sailor-moon-transformation/
+
+A new Power Rangers video from the Red Ranger himself sees him morph alongside the iconic theme song from popular '90s anime Sailor Moon.
+---------
+
+# Spider-Man: Brand New Day Trailer Secretly Reveals Jean Grey's MCU Debut
+
+Movies, Spider-Man: Brand New Day, MCU, X-Men
+
+Sat, 28 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-trailer-sadie-sink-jean-grey-mcu-mutant-saga/
+
+Sadie Sink's mystery MCU character can only be one person after the Spider-Man: Brand New Day trailer--and she's the key to the Mutant Saga.
+---------
+
+# 4 Perfect Sci-Fi Shows You Can Binge in 1 Day
+
+TV, Oats Studios, Love, Death & Robots, Firefly, Sci-Fi
+
+Sat, 28 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/perfect-sci-fi-one-day-binge-shows-list/
+
+Some of the best sci-fi TV shows make for efficient binging
+---------
+
+# This Stephen King-Approved 2-Part Sci-Fi That Gets “Even Better” Is the Perfect Weekend Binge
+
+TV Features, Paradise, Hulu, Stephen King, Sterling K. Brown
+
+Sat, 28 Mar 2026 21:47:12 GMT
+
+https://collider.com/paradise-tv-series-stephen-king-approved-sci-fi-perfect-weekend-binge/
+
+Paradise impresses Stephen King with its rare Season 2 improvement, offering compelling characters and a satisfying sci-fi twist.
+---------
+
+# 10 Most Exciting Sci-Fi Shows to Binge-Watch, Ranked
+
+TV, Sci-Fi, Arcane, Andor, Stranger Things
+
+Sat, 28 Mar 2026 21:41:12 GMT
+
+https://collider.com/exciting-sci-fi-shows-binge-watch-ranked/
+
+Discover the most thrilling and binge-worthy sci-fi shows perfect for marathon viewing sessions, from Severance to Black Mirror.
+---------
+
+# Paramount+’s Gripping Thriller Is One of the Best on Any Streaming Platform, but Not for Long
+
+Movie News, Witness, Harrison Ford, Peter Weir, Kelly McGillis
+
+Sat, 28 Mar 2026 21:30:12 GMT
+
+https://collider.com/harrison-ford-gripping-thriller-witness-leaving-paramount-plus-april-2026/
+
+Harrison Ford's neo-noir murder mystery Witness, for which he received an Oscar nomination, is leaving its streaming home soon. Find out more.
+---------
+
+# Only 3 Christopher Nolan Movies Are Better Than 'The Dark Knight'
+
+Movie, Christopher Nolan, Memento, The Dark Knight, Oppenheimer
+
+Sat, 28 Mar 2026 21:30:12 GMT
+
+https://collider.com/christopher-nolan-movies-better-than-the-dark-knight/
+
+The Dark Knight might be the most popular Christopher Nolan effort, but other movies in his resume surpass it, including Memento and Oppenheimer.
+---------
+
+# The Elvis Presley Classic Song That Sparked Controversy and Still Reached No. 1
+
+Music Features, Elvis Presley, Rock, Music, Billboard Hot 100
+
+Sat, 28 Mar 2026 21:27:13 GMT
+
+https://collider.com/elvis-presley-classic-song-hound-dog-sparked-controversy-became-no-1-hit/
+
+In 1956, Elvis Presley's provocative live performances of Hound Dog drew criticism from The New York Times, the FBI, and more, yet the song became his biggest hit, reaching No. 1 and selling over four million copies.
+---------
+
+# Jason Statham’s 'Spy' One-Liner Proves He’s More Than an Action Star
+
+Features, Spy, Jason Statham, Great Line
+
+Sat, 28 Mar 2026 21:30:18 GMT
+
+https://movieweb.com/jason-statham-spy-quote-comedy/
+
+Jason Statham may be an action movie star, but he has a great quote in the movie 'Spy' that proves he is also a comedic actor.
+---------
+
 # The Complete Evolution Of Jason Voorhees's Live-Action Appearances
 
 Horror, Friday the 13th, Jason Voorhees, Friday the 13th Part 2, Friday the 13th Part III, Friday the 13th: The Final Chapter, Friday the 13th: A New Beginning, Friday the 13th Part VI: Jason Lives, Friday the 13th Part VII: The New Blood, Friday the 13th Part VIII: Jason Takes Manhattan, Jason Goes To Hell: The Final Friday, Jason X, Freddy vs. Jason
