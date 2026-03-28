@@ -1,3 +1,91 @@
+# One-Punch Man Season 3 Ruined the Reputation of This Romance Classic
+
+Anime, Honey and Clover, One-Punch Man
+
+Sat, 28 Mar 2026 23:45:13 GMT
+
+https://www.cbr.com/one-punch-man-season-3-jcstaff-underrated-2000s-anime/
+
+J.C. Staff might have ruined One-Punch Man season 3, but it delivered a high-quality anime in the early 2000s that no one was ready for.
+---------
+
+# Netflix's The Watcher Season 2 Is Still in Limbo
+
+TV, The Watcher, Horror, Thriller, Netflix
+
+Sat, 28 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/netflix-the-watcher-season-2-status/
+
+One of Netflix's top-streaming series from 2022 has been sitting in limbo, and not even the actors know when it's returning.
+---------
+
+# Guy Ritchie’s Fountain of Youth: The Real Egyptian Mystery the Movie Should Have Used Instead
+
+Movies, Fountain of Youth, guy ritchie
+
+Sat, 28 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/guy-ritchie-fountain-of-youth-real-egyptian-mystery/
+
+Fountain of Youth is a unique adventure film that focuses on a real historical location, but overlooks and even better one for the story.
+---------
+
+# Anime's Isekai Problem Is Only Getting Bigger in 2026, Official Sales Report Finds
+
+Anime, Isekai
+
+Sat, 28 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/anime-isekai-problem-worse-2026-sales-report/
+
+Newly released sales data spells bad news for those who already think isekai anime oversaturation has reached crisis levels.
+---------
+
+# Hulu’s 8-Part American Crime Drama Is the Perfect Weekend Binge Before Its Return
+
+TV Features, The Lowdown, Ethan Hawke, Sterlin Harjo, Kyle MacLachlan
+
+Sat, 28 Mar 2026 23:52:12 GMT
+
+https://collider.com/the-lowdown-hulu-american-crime-drama-perfect-weekend-binge-before-season-2/
+
+The Lowdown, starring Ethan Hawke, blends classic crime drama storytelling with contemporary themes and exceptional performances.
+---------
+
+# The Greatest Sci-Fi Epic of the 21st Century Lands on a New Streamer Next Month
+
+Movie News, Interstellar, Christopher Nolan, Matt Damon, Sci-Fi
+
+Sat, 28 Mar 2026 23:45:13 GMT
+
+https://collider.com/christopher-nolan-interstellar-one-of-the-greatest-sci-fi-epics-of-the-21st-century-streaming-peacock-april-2026/
+
+One of the greatest sci-fi epics of the century, Christopher Nolan's Interstellar, is coming to a new streamer in April. Find out more.
+---------
+
+# '9-1-1' Did Bobby Nash Dirty With Its Latest Buck Storyline
+
+TV Features, 9-1-1, Oliver Stark, Peter Krause, ABC
+
+Sat, 28 Mar 2026 23:36:12 GMT
+
+https://collider.com/9-1-1-season-9-buck-addiction-storyline-rushed/
+
+9-1-1's handling of Buck's addiction storyline in Season 9 falls short, failing to match the depth and nuance of Bobby's arc.
+---------
+
+# 14 Years Later, Tom Hardy's Forgotten Western Gets a Colossal Streaming Update
+
+Movie News, Lawless, Tom Hardy, Western, Tubi
+
+Sat, 28 Mar 2026 23:30:12 GMT
+
+https://collider.com/tom-hardy-forgotten-western-lawless-streaming-free-tubi-april-1-2026/
+
+Lawless, the 2012 Prohibition-era crime drama starring Tom Hardy, Shia LaBeouf, and Jessica Chastain, is heading to Tubi at the end of March.
+---------
+
 # James Marsden Addresses If Hugh Jackman's Wolverine Is In Avengers: Doomsday
 
 Movies, Avengers: Doomsday, Marvel Cinematic Universe, James Marsden, Hugh Jackman, Wolverine, X-Men
