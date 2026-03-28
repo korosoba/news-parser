@@ -1,3 +1,234 @@
+# Prime Video Is Set To Become The Leader Of Video Game Adaptations
+
+Streaming TV, Prime Video
+
+Sat, 28 Mar 2026 14:25:18 GMT
+
+https://screenrant.com/prime-video-upcoming-game-adaptations-streaming-leader/
+
+Prime Video is poised to become the leader in video game adaptations with a slate of high-profile projects including Life Is Strange, Warhammer 40,000, Mass Effect, Wolfenstein, God of War, and Tomb Raider.
+---------
+
+# Daredevil: Born Again Season 2 Dethroned On Disney+ By Controversial Series With Divisive Finale
+
+TV, Streaming Charts, Daredevil: Born Again, Daredevil: Born Again - Season 2, Love Story
+
+Sat, 28 Mar 2026 14:22:59 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-disney-plus-chart-love-story/
+
+Just days after its premiere, Daredevil: Born Again season 2 is toppled on the Disney+ streaming chart by the finale of a controversial series.
+---------
+
+# 10 Obscure Star Wars Movie Cameos Revealed
+
+Movies, Star Wars
+
+Sat, 28 Mar 2026 14:15:18 GMT
+
+https://screenrant.com/star-movies-movie-cameos-most-obscure/
+
+These are some of the wildest, most unexpected appearances in the Star Wars franchise.
+---------
+
+# Love Story's Finale Plane Scene With JFK Jr. & Carolyn Bessette Addressed By Producer
+
+TV, Love Story
+
+Sat, 28 Mar 2026 14:04:53 GMT
+
+https://screenrant.com/love-story-season-1-ending-jfk-jr-carolyn-bessette-deaths-explained-brad-simpson/
+
+The tragic end of JFK Jr. and Carolyn Bessette's love story comes to life with producers carefully crafting the plane crash scene to be respectful.
+---------
+
+# Apple TV's Biggest Sci-Fi Series Sets Up Mechagodzilla's Arrival & Godzilla x Kong: Supernova's Possible New Threat
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse, Godzilla x Kong: Supernova
+
+Sat, 28 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/apple-tv-sci-fi-series-mechagodzilla-godzilla-kong-supernova-setup/
+
+Apple TV's biggest sci-fi series just had one of its biggest episodes, and it might be setting up two Godzilla x Kong movies at the same time.
+---------
+
+# It Will Take DC Years to Recreate the Magic of Their Controversial 71% RT Hit
+
+Movies, DC, DC Universe, Justice League, Zack Snyder's Justice League
+
+Sat, 28 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/justice-league-snyder-cut-dc-last-time-trinity/
+
+The DCEU, faults and all, delivered on a character ensemble that we aren't likely to see come to fruition in the DCU for many years to come.
+---------
+
+# Batman Writer Names 2 DC Heroes Who Are Officially Better Fighters Than Batman
+
+Comics, Batman
+
+Sat, 28 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/batman-not-best-fighter-batgirl-black-canary/
+
+DC writer Tom Taylor asserts that Batman is outmatched by Dinah Lance and Cassandra Cain in terms of hand-to-hand combat skills, highlighting the power dynamics within the DC Universe.
+---------
+
+# Invincible Low-Key Debuts A Villain Stronger Than Any Viltrumite
+
+Streaming TV, Invincible
+
+Sat, 28 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/invincible-low-key-debuts-a-villain-stronger-than-any-viltrumite/
+
+Invincible season 4, episode 4 sees Mark go to Hell, where he must face off against a threat more powerful than anything that has been shown yet.
+---------
+
+# Xbox Game Pass Gets Massive RPG For Free On March 30
+
+Gaming, Xbox Game Pass, PC, Indie, RPG
+
+Sat, 28 Mar 2026 14:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-free-survival-rpg-no-zombies/
+
+Xbox Game Pass members should mark their calendars for March 30, which will see the arrival of a massive new RPG that will be available for free.
+---------
+
+# Re/Member: Netflix's Chilling Japanese Horror Series You Can't Miss
+
+Movies, Netflix
+
+Sat, 28 Mar 2026 13:45:19 GMT
+
+https://screenrant.com/remember-movie-series-netflix-recommendation/
+
+Netflix has been home to countless horror classics over the years, and this two-part J-Horror series is something you should add to your list now.
+---------
+
+# Evangelion's 'A Cruel Angel's Thesis' Surpasses 100 Million Streams
+
+Anime, Neon Genesis Evangelion
+
+Sat, 28 Mar 2026 14:11:18 GMT
+
+https://www.cbr.com/evangelion-cruel-angels-thesis-streaming-milestone/
+
+Neon Genesis Evangelion's most iconic anime moment surpasses 100 million streams following its debut 30 years ago.
+---------
+
+# Superman/Spider-Man Drops a Huge Twist for Peter Parker & Mary Jane
+
+Comics, Spider-Man, Superman
+
+Sat, 28 Mar 2026 14:01:12 GMT
+
+https://www.cbr.com/supermanspider-man-drops-a-huge-twist-for-peter-parker-mary-jane/
+
+DC and Marvel Comics' latest crossover anthology just gave Peter Parker and Mary Jane Watson the romantic reunion fans have been begging to see.
+---------
+
+# Dakota Johnson’s Role in Daddio Is Still Her Best One to Date
+
+Movies, Daddio, Splitsville
+
+Sat, 28 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/dakota-johnson-lowest-budget-movie-daddio-still-her-best/
+
+Dakota Johnson's role in Daddio isn't talked about enough, but for such a small budget, it helped her deliver her best role.
+---------
+
+# Paramount+ Just Officially Broke Taylor Sheridan's Yellowstone Rules
+
+TV, Dutton Ranch, Yellowstone, Paramount+ with Showtime
+
+Sat, 28 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-beth-rip-move-to-texas/
+
+Taylor Sheridan's upcoming Paramount+ drama, Dutton Ranch, changes the rules of his Yellowstone franchise by rewriting Beth and Rip's ending.
+---------
+
+# The Rocketeer's Crossover With King Kong and Popeye, Explained
+
+CBR Exclusives, The Rocketeer
+
+Sat, 28 Mar 2026 13:59:54 GMT
+
+https://www.cbr.com/rocketeer-crossover-king-kong-popeye-explained-interview-layman/
+
+In a CBR exclusive interview with John Layman, learn how the Rocketeer came to team-up with Popeye to face off with King Kong
+---------
+
+# Who Is That ‘Severance’ Star Playing in ‘Spider-Man: Brand New Day’?
+
+Movie Features, Spider-Man: Brand New Day, Severance, MCU, Marvel
+
+Sat, 28 Mar 2026 14:04:12 GMT
+
+https://collider.com/spider-man-brand-new-day-tramell-tillman-severance-marvel/
+
+With the first appearance of Tramell Tillman in the trailer for Spider-Man: Brand New Day, we try to guess who the Severance star is playing.
+---------
+
+# Channing Tatum’s Forgotten ‘Gladiator’ Replacement Is Entertaining Dads All Across the Globe
+
+Movie News, Channing Tatum, The Eagle, Jamie Bell, Gladiator
+
+Sat, 28 Mar 2026 14:00:13 GMT
+
+https://collider.com/channing-tatum-gladiator-style-epic-the-eagle-global-streaming-success-15-years-later/
+
+Channing Tatum’s forgotten 114-minute Gladiator-style historical epic is entertaining dads around the world 15 years later.
+---------
+
+# Jude Law's True-Crime Thriller 'The Order' Climbs Streaming Charts
+
+Movie News, The Order, Hot on Streaming
+
+Sat, 28 Mar 2026 14:08:21 GMT
+
+https://movieweb.com/the-order-streaming-hit-march-2026/
+
+The film also features Lex Luthor himself, Nicholas Hoult, in a staggering villain role.
+---------
+
+# Sci-Fi Hit 'For All Mankind' Soars on Apple Following Season 5 Premiere
+
+TV News, For All Mankind, Hot on Streaming, Sci-Fi
+
+Sat, 28 Mar 2026 14:00:18 GMT
+
+https://movieweb.com/for-all-mankind-season-5-streaming-success-apple-tv-march-2026/
+
+'For all Mankind's return proves once and for all that nobody does sci-fi better than Apple TV.
+---------
+
+# Iconic Spider-Man Villain Tombstone Will Dominate 2026 with Three Different Appearances
+
+Features, Spider-Man, Spider-Noir, Spider-Man: Brand New Day, Your Friendly Neighborhood Spider-Man
+
+Sat, 28 Mar 2026 14:00:18 GMT
+
+https://movieweb.com/spider-man-villain-tombstone-three-2026-appearances/
+
+The Spider-Man villain Tombstone will appear in 'Spider-Noir,' 'Spider-Man: Brand New Day,' and 'Your Friendly Neighborhood Spider-Man' Season 2.
+---------
+
+# Ryan Reynolds & Hugh Jackman Rumored for Roles in 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Hugh Jackman, Ryan Reynolds
+
+Sat, 28 Mar 2026 13:46:26 GMT
+
+https://movieweb.com/ryan-reynolds-hugh-jackman-avengers-doomsday/
+
+According to a new rumor, 'Avengers: Doomsday' will include Deadpool and Wolverine.
+---------
+
 # Jason Statham's $927.5M Action-Packed Shark Franchise Gets Disappointing Sequel Update 3 Years Later
 
 Movies, The Meg
