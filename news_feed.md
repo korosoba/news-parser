@@ -1,3 +1,234 @@
+# Jason Statham's $927.5M Action-Packed Shark Franchise Gets Disappointing Sequel Update 3 Years Later
+
+Movies, The Meg
+
+Sat, 28 Mar 2026 13:39:43 GMT
+
+https://screenrant.com/jason-statham-the-meg-3-movie-status-update-ben-wheatley/
+
+Jason Statham's shark franchise has grossed nearly $1 billion worldwide, but the latest update on a potential new sequel is pessimistic.
+---------
+
+# The Best Dinosaur Movie Since Steven Spielberg's Jurassic Park Officially Releases On Streaming In 1 Week & It's A Must-Watch
+
+Movies, Primitive War, Jurassic Park
+
+Sat, 28 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/primitive-war-dinosaur-movie-hulu-march-2026-release-must-watch/
+
+The best dinosaur movie since Steven Spielberg's first Jurassic Park is headed to streaming in just one week, and you should not miss it.
+---------
+
+# Moon Knight: The Spiritual Successor To The Mummy You Didn't Know You Needed
+
+Classic TV, Moon Knight
+
+Sat, 28 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/disneys-6-part-psychological-thriller-was-the-mummy-sequel-we-deserved/
+
+A six-part Disney miniseries as part of the MCU's Phase Four is the best sequel to The Mummy to date, even though they are completely unrelated.
+---------
+
+# X-Men's Science Team Officially Returns
+
+Marvel Comics, X-Men, Marvel
+
+Sat, 28 Mar 2026 13:30:19 GMT
+
+https://screenrant.com/x-men-science-team-beast-return/
+
+Marvel's X-Men franchise introduces a new team of mutant heroes that honors the untapped intellectual potential of mutantkind's most underrated squad.
+---------
+
+# How Much Brad Pitt & Quentin Tarantino Are Getting Paid For Once Upon A Time In Hollywood’s Netflix Sequel Revealed In Report
+
+Movies, The Adventures of Cliff Booth
+
+Sat, 28 Mar 2026 13:20:26 GMT
+
+https://screenrant.com/the-adventures-of-cliff-booth-netflix-budget-report-once-upon-a-time-in-hollywood-comparison/
+
+The Brad Pitt-led sequel The Adventures of Cliff Booth reportedly has a massive budget, with a new breakdown revealing how much the star was paid.
+---------
+
+# Ryan Gosling Playing His Dream Marvel Role In The MCU Just Got An Exciting Boost
+
+Movies, Ryan Gosling
+
+Sat, 28 Mar 2026 13:15:18 GMT
+
+https://screenrant.com/ryan-gosling-ghost-rider-mcu-marvel-role-chances-boost/
+
+Ryan Gosling is one of the biggest Hollywood stars who still hasn't joined the MCU, but he does have a dream superhero role in mind.
+---------
+
+# Netflix's 5-Part Crime Thriller Series Is One Of Its Best
+
+TV, Money Heist
+
+Sat, 28 Mar 2026 13:02:19 GMT
+
+https://screenrant.com/netflix-money-heist-crime-thriller-series-recommendation/
+
+This iconic crime thriller had a twisty story that constantly wrong-footed its audience, proving non-English language shows could succeed on Netflix.
+---------
+
+# One Piece's Infamous English Dub Is Finally Redeemed
+
+Anime, One Piece
+
+Sat, 28 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/20-years-later-one-pieces-infamous-4kids-dub-finally-gets-some-hard-earned-redemption/
+
+The best part of 4Kids' One Piece is redeemed.
+---------
+
+# The Star Trek Series Decades In The Making Lasted Just Over 2 Months
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Sat, 28 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-premise-end/
+
+The Star Trek franchise spent over a decade setting up one major series that could have reshaped its future, but the show ended after only two months.
+---------
+
+# The Last Of Us Part 3 Story Divides Gamers
+
+Gaming, The Last of Us
+
+Sat, 28 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/last-of-us-part-3-story-gamer-speculation/
+
+Fans speculate on the storyline of a potential The Last of Us Part III, debating whether it should focus on Ellie, Abby, or introduce new characters.
+---------
+
+# AMC Seals the Fate of Talamasca: The Secret Order After 1 Season
+
+TV, Interview with the Vampire, Talamasca: The Secret Order
+
+Sat, 28 Mar 2026 13:35:57 GMT
+
+https://www.cbr.com/amc-talamasca-the-secret-order-fate/
+
+The series was the latest addition to AMC's Anne Rice's Immortal Universe.
+---------
+
+# Superman/Spider-Man Isn't Just a Celebration of DC and Marvel, But Comics In General
+
+Comics, Superman, Spider-Man
+
+Sat, 28 Mar 2026 13:06:24 GMT
+
+https://www.cbr.com/superman-spider-man-1-review-celebration-comics-dc-marvel/
+
+Superman/Spider-Man Isn't Just a Celebration of DC and Marvel, But Comics In General
+---------
+
+# Rebecca Ferguson’s Highest-Grossing Sci-Fi Movie Surges on Streaming Ahead of Next Chapter
+
+Movie News, Dune: Part Two, Rebecca Ferguson, Dune, Dune: Part Three
+
+Sat, 28 Mar 2026 13:30:13 GMT
+
+https://collider.com/rebecca-ferguson-highest-grossing-sci-fi-dune-part-2-streaming-success-hbo-max-march-2026/
+
+Rebecca Ferguson’s 166-minute, highest-grossing sci-fi masterpiece, Dune: Part 2, is officially surging on streaming after Part 3 trailer.
+---------
+
+# 10 Most Perfect Biopic Movies, Ranked
+
+Movie, Gandhi, Goodfellas, Schindler's List, Lawrence of Arabia
+
+Sat, 28 Mar 2026 13:10:13 GMT
+
+https://collider.com/most-perfect-movie-biopics-ranked/
+
+From The Aviator to Goodfellas, these biopics turn real lives into gripping, flawed, unforgettable cinematic journeys.
+---------
+
+# ‘Stranger Things’ Creators’ New 8-Part Netflix Series Is Already Dominating Streaming
+
+TV News, Camila Morrone, Netflix, Stranger Things, Something Very Bad Is Going to Happen
+
+Sat, 28 Mar 2026 13:00:13 GMT
+
+https://collider.com/stranger-things-creators-new-netflix-show-something-very-bad-is-going-to-happen-streaming-hit-march-2026/
+
+Stranger Things creators’ new 8-part Netflix series, Something Very Bad Is Going to Happen, is already a streaming hit.
+---------
+
+# 7 Greatest Movies Leaving Netflix in April 2026
+
+Movie, Netflix, Ford v Ferrari, Pitch Perfect, Crazy, Stupid, Love.
+
+Sat, 28 Mar 2026 12:46:12 GMT
+
+https://collider.com/movies-leaving-netflix-april-2026/
+
+Say goodbye to the beloved musical Pitch Perfect and the Ryan Gosling rom-com Crazy, Stupid, Love, as these movies are set to leave Netflix in April.
+---------
+
+# Tom Cruise’s Ambitious Action Epic That Cost More Than ‘Avengers: Endgame’ Is Suddenly a Fan Favorite
+
+Movie News, Mission: Impossible - The Final Reckoning, Tom Cruise, Paramount Plus, Avengers: Endgame
+
+Sat, 28 Mar 2026 12:45:12 GMT
+
+https://collider.com/tom-cruise-ambitious-epic-mission-impossible-the-final-reckoning-paramount-plus-streaming-success-march-2026/
+
+Tom Cruise's ridiculously ambitious action epic that cost over $400 million to make it still a favorite on Paramount+.
+---------
+
+# Prime Video’s 6-Part Dark Comedy Thriller Has a Relentless Message About Modern Life
+
+Exclusives, Bait, Riz Ahmed, Prime Video, Thriller
+
+Sat, 28 Mar 2026 12:38:12 GMT
+
+https://collider.com/bait-series-prime-video-riz-ahmed-guz-khan-episode-6-finale-meaning/
+
+A nightmare audition sends Bait spiraling, as Riz Ahmed and Guz Khan explore fame, family, and identity in the show’s darker Episode 6 turn.
+---------
+
+# 'Top Gun' & 'Back to the Future' Star James Tolkan Dies at 94 Years Old
+
+Movie News, Back to the Future, top gun
+
+Sat, 28 Mar 2026 13:31:51 GMT
+
+https://movieweb.com/james-tolkan-dead-top-gun-back-to-the-future/
+
+The prolific actor had a 60-year career in movies and TV.
+---------
+
+# Mark Wahlberg and Jason Statham's 'Italian Job' Lands New Streaming Home
+
+Movie News, The Italian Job, Coming/Leaving Streaming
+
+Sat, 28 Mar 2026 13:15:57 GMT
+
+https://movieweb.com/the-italian-job-streaming-peacock-april-2026/
+
+It's one of the few remakes in cinema history that easily tops the original.
+---------
+
+# Ron Perlman Explains How His Role as Super Mutant in 'Fallout' Came to Be
+
+Exclusives, Ron Perlman, Fallout
+
+Sat, 28 Mar 2026 13:00:48 GMT
+
+https://movieweb.com/ron-perlman-fallouts-creators-role-exclusive/
+
+After years of voicing roles in the 'Fallout' video games, Ron Perlman detailed to a crowd of fans how he finally made it into the Prime Video series.
+---------
+
 # Young Sherlock: The New Victorian-Era Adaptation That Replaces The BBC's Sherlock
 
 Streaming TV, Young Sherlock, Sherlock
