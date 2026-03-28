@@ -1,3 +1,256 @@
+# Marvel Just Gave Spider-Man His Most Brutal Death Yet
+
+Comics, Spider-Man
+
+Sat, 28 Mar 2026 03:46:42 GMT
+
+https://screenrant.com/marvel-spider-man-brutal-death-ultimate-endgame-letter/
+
+We've seen many versions of Spider-Man experience death before, though the way one of Marvel's newest Webslingers was just murdered is far too brutal.
+---------
+
+# 15 Great Anime That Set the Bar for Strong Female Protagonists
+
+Anime, Fruits Basket, JoJo's Bizarre Adventure
+
+Sat, 28 Mar 2026 03:46:21 GMT
+
+https://screenrant.com/great-anime-female-protagonists-woman-led/
+
+From classics like Ghost In The Shell to the more recent Fate or Violet Evergarden, these anime are all about the strong female leads.
+---------
+
+# Jo Nesbø's Detective Hole: Netflix’s Perfect True Detective Replacement?
+
+Streaming TV, True Detective, Netflix, Joe Nesbø's Detective Hole
+
+Sat, 28 Mar 2026 03:46:20 GMT
+
+https://screenrant.com/true-detective-season-5-netflix-detective-hole/
+
+As exciting as True Detective S5 may seem, Netflix’s new addition to the crime thriller genre is exactly what fans of the HBO show want from the genre
+---------
+
+# Netflix Officially Has 2 Worthy Reacher Replacements
+
+Streaming TV, The Night Agent, Joe Nesbø's Detective Hole, Reacher, Prime Video, Netflix
+
+Sat, 28 Mar 2026 02:46:51 GMT
+
+https://screenrant.com/netflix-reacher-detective-hole-the-night-agent/
+
+Prime Video’s Reacher remains one of the best modern crime thriller adaptations on TV, but Netflix now seems to have two worthy replacements for it.
+---------
+
+# Crunchyroll Just Crowned the New Queen of Dark Fantasy Anime With One Quote (Exclusive)
+
+Anime, Sentenced to Be a Hero, Crunchyroll
+
+Sat, 28 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/sentenced-to-be-hero-kivia-new-queen-dark-fantasy-anime/
+
+Dawn M. Bennett spoke with Screen Rant about Patausche Kivia from Sentenced to Be a Hero and her unique position in the series.
+---------
+
+# Plantman & Blondie: The Dress Up Gang's Surreal Comedy Meets Heat
+
+Movies, SXSW
+
+Sat, 28 Mar 2026 01:38:16 GMT
+
+https://screenrant.com/dressup-gang-plantman-blondie-movie-robert-de-niro-heat-comparison-sxsw/
+
+Learn how Plantman & Blondie, The Dress Up Gang's offbeat comedy, drew inspiration from the intense atmosphere of Heat while filming.
+---------
+
+# 18 Best Seeds For Islands In Minecraft
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Sat, 28 Mar 2026 01:30:20 GMT
+
+https://screenrant.com/minecraft-best-island-seeds/
+
+From jungle and desert temples to towering cliffs and lush caves, these are the best island seeds in Minecraft to start your next playthrough with.
+---------
+
+# The Greatest Opening Line In Cyberpunk Sci-Fi TV History Will Soon Be Dethroned
+
+Streaming TV, Altered Carbon, Netflix, Sci-Fi
+
+Sat, 28 Mar 2026 01:30:19 GMT
+
+https://screenrant.com/altered-carbon-opening-line-apple-tv-neuromancer-comparison/
+
+After almost a decade, the greatest opening lines in the history of cyberpunk TV will seemingly be dethroned by another sci-fi show’s opening quote.
+---------
+
+# The 10 Strongest Frieren Characters as of 2026, Ranked
+
+Anime, Frieren: Beyond Journey's End
+
+Sat, 28 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/frieren-strongest-characters-2026/
+
+Frieren: Beyond Journey's End is full of powerful characters, whether they're ancient elves, vicious demons, cunning mages, or heroic swordsmen.
+---------
+
+# 10 Game Consoles You've Literally Never Heard Of
+
+Games, Video Games, atari
+
+Sat, 28 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/forgotten-game-consoles-c64-atari-magnavox-odyssey/
+
+Good luck finding anyone who has even heard of an Apple Pippin or Atari XEGS.
+---------
+
+# Netflix's Best Sci-fi Anime Still Hasn't Been Topped
+
+Anime, Netflix, Cyberpunk: Edgerunners
+
+Sat, 28 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/netflix-cyberpunk-edgerunners-best-sci-fi-anime-to-watch/
+
+Four years later, the best Netflix sci-fi anime is still untouchable.
+---------
+
+# 2026 DC/Marvel TV Tournament - Sweet Sixteen, Day Two!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Sat, 28 Mar 2026 02:52:13 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-sweet-sixteen-day-two/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. We have hit the Sweet 16
+---------
+
+# 1 of Gundam's Sharpest Mecha of All Time Gets a Major Gunpla Model Kit Update
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Unicorn, merchandise, toys, bandai
+
+Sat, 28 Mar 2026 02:50:12 GMT
+
+https://www.cbr.com/gundam-unicorn-efreet-schneid-gunpla-update/
+
+A Gundam Unicorn model kit is being re-released after 10 years, letting fans once again collect one of the sharpest Gunpla from the Universal Century.
+---------
+
+# 31 Years Ago, The Simpsons Broke Animated Sitcom Rules With 21 Perfect Minutes of TV
+
+TV, The Simpsons, animated, Sitcoms
+
+Sat, 28 Mar 2026 02:45:14 GMT
+
+https://www.cbr.com/the-simpsons-maggie-birth-episode-broke-animated-sitcoms/
+
+The Simpsons has had many groundbreaking rules over the decades, and one episode not only stood out but broke a major sitcom rule.
+---------
+
+# 10 Perfect Anime That Deserve 5 Star Ratings on Crunchyroll
+
+Anime, Crunchyroll, The Apothecary Diaries, Fullmetal Alchemist: Brotherhood, Gachiakuta, Chainsaw Man
+
+Sat, 28 Mar 2026 02:39:57 GMT
+
+https://www.cbr.com/crunchyroll-best-anime-desrve-perfect-ratings/
+
+Crunchyroll showcases as many flawless hidden gems as acclaimed masterpieces, and the best anime are still 5-star hits regardless of the real rating.
+---------
+
+# Mob Psycho 100's 3-Season Masterpiece Is the Perfect Weekend Binge Watch
+
+Anime, Mob Psycho 100, Mob Psycho 100 (Live Action), Netflix
+
+Sat, 28 Mar 2026 02:20:08 GMT
+
+https://www.cbr.com/netflix-perfect-weekend-binge-watch-mob-psycho-100/
+
+Sitting at an impressive 92% rating on Rotten Tomatoes, this Netflix series is only three seasons long, and the perfect story to binge in one weekend.
+---------
+
+# In 9 Days, One Piece's Anime Officially Returns to Streaming With the Elbaf Arc
+
+Anime, One Piece
+
+Sat, 28 Mar 2026 02:06:27 GMT
+
+https://www.cbr.com/one-piece-elbaf-arc-official-anime-release/
+
+The One Piece anime has been on a 3-month hiatus, but its return to streaming will mark the comeback of the decade.
+---------
+
+# It's the End of an Era for Kingdom Hearts and Square Enix
+
+Games, Kingdom Hearts, kingdom hearts iii, Square Enix
+
+Sat, 28 Mar 2026 02:00:24 GMT
+
+https://www.cbr.com/end-of-era-kingdom-hearts-square-enix-2026/
+
+Kingdom Hearts IV was announced 4 years ago, and after years of minimal updates, it's time for Square Enix to enter a new era.
+---------
+
+# Disney's 3-Part Superhero Show Is One of the Best You Can Pick Up Anytime
+
+TV Features, What If...?, MCU, Disney+, Marvel
+
+Sat, 28 Mar 2026 03:41:12 GMT
+
+https://collider.com/marvel-what-if-disney-start-with-any-episode/
+
+What If...? is an animated Marvel series that explores alternate realities and character possibilities, offering unique insights into the MCU.
+---------
+
+# It’s a Damn Shame the Directors of ‘Project Hail Mary’ Never Got To Make This Ridiculous Crossover Movie
+
+Movie Features, Phil Lord, Chris Miller, 21 Jump Street, Men in Black
+
+Sat, 28 Mar 2026 03:09:12 GMT
+
+https://collider.com/men-in-black-21-jump-street-crossover-phil-lord-chris-miller/
+
+Phil Lord and Chris Miller’s mashup of Men in Black and 21 Jump Street never happened, and it’s an absolute shame.
+---------
+
+# 10 Heaviest War Shows, Ranked
+
+TV, War, Band of Brothers, Generation Kill, Shogun
+
+Sat, 28 Mar 2026 02:59:12 GMT
+
+https://collider.com/heaviest-war-shows-ranked/
+
+From Band of Brothers to The Pacific, these war series strip combat to its raw human cost and stay with you long after.
+---------
+
+# Guy Ritchie's 8-Part Action Series Is Quietly Becoming Netflix's Perfect Weekend Binge
+
+TV Features, The Gentlemen, Guy Ritchie, Theo James, Kaya Scodelario
+
+Sat, 28 Mar 2026 01:55:12 GMT
+
+https://collider.com/the-gentlemen-guy-ritchie-netflix-action-series-weekend-binge/
+
+The gritty world of crime and dark comedy is on full display in Guy Ritchie's The Gentlemen, starring Theo James and Kaya Scodelario.
+---------
+
+# Only 3 Movies Are More Suspenseful Than 'Jaws'
+
+Movie, Jaws, Uncut Gems, Whiplash, The Wages of Fear
+
+Sat, 28 Mar 2026 01:41:12 GMT
+
+https://collider.com/movies-more-suspenseful-than-jaws/
+
+If you're after movies that are somehow even more suspenseful than Jaws, it's well worth seeking out The Wages of Fear, Whiplash, and Uncut Gems.
+---------
+
 # Star Fox’s Official Return Is The Perfect Time To Reinvent The Series
 
 Gaming, Star Fox, Triple-A Games
