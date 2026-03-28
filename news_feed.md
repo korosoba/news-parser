@@ -1,3 +1,80 @@
+# Red Dead Redemption 2 60fps Update Unites Gamers
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 28 Mar 2026 10:31:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-60fps-update-gamer-reaction/
+
+Red Dead Redemption 2 remains one of the most wonderful games of the last decade, but it needs an update for modern consoles.
+---------
+
+# 15 Sam Kieth Comics Every Sandman Fan Should Read
+
+Lists, The Sandman, sam kieth
+
+Sat, 28 Mar 2026 10:45:37 GMT
+
+https://www.cbr.com/sam-keith-comics-sandman-fan-should-read/
+
+Sam Kieth added his unique flair to early issues of Gaiman's Sandman but he's a writer and creator in his own right. These stories prove it.
+---------
+
+# 7 War Shows We Thought Would Be the Next 'Band of Brothers'
+
+TV, Band of Brothers, War, Masters of the Air, Generation Kill
+
+Sat, 28 Mar 2026 10:52:12 GMT
+
+https://collider.com/war-shows-tried-to-be-next-band-of-brothers/
+
+After Band of Brothers was released, many war shows tried to fill the void it left, including HBO's Generation Kill and Apple TV's Masters of the Air.
+---------
+
+# 3 Weeks Later, HBO's Bonkers 4-Part 'Succession' Successor Is Still a Perfect Late-Night Binge
+
+TV News, Industry, HBO Max, Succession, Euphoria
+
+Sat, 28 Mar 2026 10:30:12 GMT
+
+https://collider.com/succession-meets-euphoria-industry-streaming-success-hbo-max-march-2026/
+
+Fans can't stop binging HBO's four-part drama, which has been described as Succession meets Euphoria. Find out more about Industry here.
+---------
+
+# 7 Best Thriller Shows Packed With Plot Twists
+
+TV, Thriller, 24, Behind Her Eyes, Mr. Robot
+
+Sat, 28 Mar 2026 10:05:12 GMT
+
+https://collider.com/best-thriller-shows-packed-plot-twists/
+
+From Dark to Mr. Robot to Yellowjackets, these thriller shows are filled with twists, betrayals, and mind games that constantly outsmart you.
+---------
+
+# 10 Most Perfect Movies of the Last 7 Years, Ranked
+
+Movie, Parasite, Godzilla Minus One, The Worst Person in the World, The Irishman
+
+Sat, 28 Mar 2026 10:04:13 GMT
+
+https://collider.com/most-perfect-movies-last-7-years-ranked/
+
+There have been a few perfect movies released in the past seven years, including modern classics like Parasite, Godzilla Minus One, and Aftersun.
+---------
+
+# 10 Upcoming Anime Shows You Cannot Miss
+
+TV, Anime, Ghost in the Shell, Grand Blue Dreaming, Bleach
+
+Sat, 28 Mar 2026 10:02:26 GMT
+
+https://collider.com/new-anime-shows-upcoming-2026/
+
+Discover the most anticipated new anime series of 2026, including The Ghost in the Shell, Black Torch, and Jaadugar: A Witch in Mongolia.
+---------
+
 # PlayStation Drops 4 New Free Downloads You Can Check Out Without PS Plus
 
 Gaming, PlayStation (Original)
