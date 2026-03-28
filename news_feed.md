@@ -1,3 +1,102 @@
+# Guy Ritchie’s 8-Part Netflix Series Is A Must-Watch For Crime Drama Fans
+
+Streaming TV, The Gentlemen
+
+Sat, 28 Mar 2026 22:34:23 GMT
+
+https://screenrant.com/guy-ritchie-the-gentleman-netflix-crime-drama-recommendation/
+
+Guy Ritchie has become a directing icon for his crime dramas, and The Gentlemen is no exception, as the TV series is a must-watch for crime show fans.
+---------
+
+# Peaky Blinders Season 4 Predicted The Entire Shelby Family's Demise In The Immortal Man
+
+TV, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Sat, 28 Mar 2026 22:30:19 GMT
+
+https://screenrant.com/peakyblinders-predicted-ending-immortal-man/
+
+After 13 years, an epic Netflix crime saga has come to an end. But this ending was actually predicted by the series itself several years ago.
+---------
+
+# Ultimate Universe Introduces Its Terrifying Take on Carnage
+
+Comics, Spider-Man, Carnage
+
+Sat, 28 Mar 2026 22:25:19 GMT
+
+https://screenrant.com/spider-man-new-carnage-redesign-ultimate-endgame/
+
+Carnage is receiving the most radical reimagining of its existence, as Spider-Man goes up against a wild new version of his deadliest foe.
+---------
+
+# Ana de Armas' Ballerina Dominates the Charts on HBO Max 1 Year After Flopping in Theaters
+
+Movies, From the World of John Wick: Ballerina, John Wick
+
+Sat, 28 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/ana-de-armas-ballerina-action-hbo-max-success-march-2026/
+
+The best John Wick spinoff yet has officially taken over the streaming charts less than a full year after failing to blow up the box office.
+---------
+
+# 5 Netflix K-Dramas More Disturbing Than Squid Game
+
+TV, Netflix, Thriller, Squid Game, Korea
+
+Sat, 28 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/netflix-disturbing-k-dramas-like-squid-game-list/
+
+Netflix is home to a vast collection of South Korean dramas, passing Squid Game's depravity and descending into the beautiful and twisted darkness.
+---------
+
+# Top 20 Sci-Fi Movie Masterpieces of All Time, Ranked
+
+Movie, The Empire Strikes Back, Sci-Fi, Dune: Part Two, 2001: A Space Odyssey
+
+Sat, 28 Mar 2026 22:51:12 GMT
+
+https://collider.com/best-sci-fi-movies-of-all-time/
+
+There have been many masterful sci-fi movies released over the years, with some of the top picks including Star Wars, Blade Runner, and Metropolis.
+---------
+
+# Even a $176 Million Budget Couldn’t Save This Franchise-Ending Sci-Fi Bomb Heading to Hulu
+
+Movie News, Pacific Rim: Uprising, Cailee Spaeny, John Boyega, Pacific Rim
+
+Sat, 28 Mar 2026 22:45:12 GMT
+
+https://collider.com/pacific-rim-uprising-franchise-ending-sci-fi-bomb-streaming-hulu-april-2026/
+
+Pacific Rim Uprising put all its eggs in the China basket, and the gamble didn't pay off. The movie is coming to Hulu next month. Find out more.
+---------
+
+# Forget ‘Pulp Fiction,’ Your Next Favorite Quentin Tarantino Movie Hits Streaming on a New Platform
+
+Movie News, Quentin Tarantino, Jackie Brown, Pam Grier, Plex
+
+Sat, 28 Mar 2026 22:31:12 GMT
+
+https://collider.com/quentin-tarantino-forgotten-masterpiece-jackie-brown-streaming-plex-april-2026/
+
+Quentin Tarantino's most underrated masterpiece is about to join a new streaming site. Here's everything you should know about Jackie Brown.
+---------
+
+# 10 Most Perfect Sci-Fi Action Movies of the 21st Century, Ranked
+
+Movie, Action, Sci-Fi, Mad Max: Fury Road, District 9
+
+Sat, 28 Mar 2026 22:28:13 GMT
+
+https://collider.com/most-perfect-sci-fi-action-movies-21st-century-ranked/
+
+Sci-fi action peaks with films like Mad Max: Fury Road and Inception, blending spectacle, bold ideas, and unforgettable cinematic energy.
+---------
+
 # Star Trek Should Boldly Go Back To Network TV
 
 TV, Star Trek, Op-Ed, Quiz CV
