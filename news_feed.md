@@ -1,3 +1,179 @@
+# New GTA Leak Reveals Early Development Version
+
+Gaming, Grand Theft Auto 4, Grand Theft Auto, Triple-A Games, PC
+
+Sat, 28 Mar 2026 20:19:39 GMT
+
+https://screenrant.com/gta-leak-development-kit-grand-theft-auto-4/
+
+The Grand Theft Auto community has never been more attuned to leaks and rumors, and a giant treasure trove just landed on fans' doorstep.
+---------
+
+# Sanji Dominates One Piece Popularity Poll Amid Toei Animation Criticism
+
+Anime, One Piece (1997), One Piece
+
+Sat, 28 Mar 2026 20:01:32 GMT
+
+https://screenrant.com/one-piece-sanji-most-popular-character-anime-flaw/
+
+Sanji's top spot in the latest One Piece World Top 100 popularity poll showcases his global fan adoration, despite the inconsistent treatment.
+---------
+
+# Normal People: Hulu's Best Romantic Drama Series Saved BBC Three
+
+Classic TV, Normal People, Romance
+
+Sat, 28 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/normal-people-hulu-saved-bbc-three-tv-channel/
+
+This Hulu original series also launched on other TV platforms abroad, including one channel that it revived almost singlehandedly back in 2020.
+---------
+
+# James Gunn's Forgotten Suicide Squad Spinoff Show Finally Gets New DCU Update From HBO Boss After 7 Months
+
+TV, Waller (DCU), Amanda Waller, DC Universe, The Suicide Squad
+
+Sat, 28 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/amanda-waller-viola-davis-dcu-tv-show-casey-bloys-hbo-response/
+
+More than half a year after its last status, James Gunn's other Suicide Squad spinoff TV show gets an exciting update from HBO boss Casey Bloys.
+---------
+
+# Skyrim Meets Valheim And The Sims In This Upcoming Fantasy RPG Sim
+
+Gaming
+
+Sat, 28 Mar 2026 20:00:18 GMT
+
+https://screenrant.com/legacy-of-valor-skyrim-sims-rpg/
+
+Discover a blend of fantasy, survival, and life simulation in Legacy of Valor, an action RPG that merges elements from Skyrim, Valheim, and The Sims.
+---------
+
+# Denzel Washington's Upcoming MCU Role Is Even More Perfect After The 2026 Oscars
+
+Movies, Black Panther 3, Marvel Cinematic Universe, Denzel Washington
+
+Sat, 28 Mar 2026 19:55:19 GMT
+
+https://screenrant.com/denzel-washington-mcu-movie-role-oscars/
+
+Denzel Washington reportedly is joining the Marvel Cinematic Universe, and the film he'll be in is an even more perfect fit after the 2026 Oscars.
+---------
+
+# Fullmetal Alchemist’s Official Successor Makes Its Debut in 7 Days
+
+Anime, Daemons of the Shadow Realm, Fullmetal Alchemist, Crunchyroll
+
+Sat, 28 Mar 2026 20:15:12 GMT
+
+https://www.cbr.com/fullmetal-alchemists-official-successor-spring-2026/
+
+The Spring 2026 lineup has many excellent series making their way to streaming services, but this Fullmetal Alchemist successor may be a dark horse.
+---------
+
+# Sydney Sweeney's New Biopic Casting Rejected by Kim Novak
+
+Movies
+
+Sat, 28 Mar 2026 20:11:38 GMT
+
+https://www.cbr.com/kim-novak-sydney-sweeney-scandalous-casting/
+
+Sydney Sweeney's casting in a new biopic doesn't come with the approval of the Hollywood icon she's playing.
+---------
+
+# Bohemian Rhapsody Is Leaving Prime Video in March
+
+Movies, Bohemian Rhapsody, Prime Video, Netflix
+
+Sat, 28 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/bohemian-rhapsody-leaving-prime-video-march-2026/
+
+The record-breaking musical biopic Bohemian Rhapsody leaves Prime Video in March, but fans will get a second chance to stream it on Netflix soon.
+---------
+
+# HBO’s 91% Rotten Tomatoes 8-Part Masterpiece Started One of TV’s Best Franchises
+
+TV Features, True Detective, Matthew McConaughey, Woody Harrelson, HBO
+
+Sat, 28 Mar 2026 20:06:13 GMT
+
+https://collider.com/true-detective-hbo-best-crime-franchise/
+
+Season 1 of True Detective redefined the detective genre with characters Rust Cohle and Marty Hart and their determination to find The Yellow King.
+---------
+
+# 10 Most Thrilling Movie Masterpieces of All Time
+
+Movie, Children of Men, Misery, Die Hard, Mulholland Drive
+
+Sat, 28 Mar 2026 20:04:12 GMT
+
+https://collider.com/most-thrilling-movie-masterpieces-all-time/
+
+From dystopian sci-fi masterworks like Children of Men to chilling psychological studies like Misery, these are the most thrilling movies ever made.
+---------
+
+# 10 Greatest Movie Parody Movies of the Last 100 Years, Ranked
+
+Movie, Galaxy Quest, Austin Powers: International Man of Mystery, Young Frankenstein, Monty Python and the Holy Grail
+
+Sat, 28 Mar 2026 20:04:12 GMT
+
+https://collider.com/best-movie-parody-movies-last-100-years-ranked/
+
+Parody cinema doesn't have a pristine record, but movies like Young Frankenstein and Galaxy Quest rank among the genre's best over the last century.
+---------
+
+# 15 Years Later, Tom Hardy’s Brutal 140-Minute Epic Is on Borrowed Time on Paramount+
+
+Movie News, Warrior, Tom Hardy, Joel Edgerton, Gavin O'Connor
+
+Sat, 28 Mar 2026 20:00:12 GMT
+
+https://collider.com/tom-hardy-must-watch-drama-warrior-leaving-streaming-paramount-plus-may-2026/
+
+Tom Hardy delivered a knockout performance in the sports drama Warrior, which is leaving streaming soon. Find out more.
+---------
+
+# One of the Best Sci-Fi Series Ever Is Finally Free To Stream 28 Years After It Ended
+
+TV Features, Babylon 5, Sci-Fi, Drama, Roku
+
+Sat, 28 Mar 2026 19:56:12 GMT
+
+https://collider.com/best-sci-fi-series-babylon-5-free-to-stream-the-roku-channel/
+
+Babylon 5, one of the best sci-fi series ever made, is free to watch on The Roku Channel, making for a thrilling binge.
+---------
+
+# Scarlett Johansson's R-Rated Sci-Fi Thriller 'Under the Skin' Streams for Free on Tubi in April 2026
+
+Movie News, Under the Skin
+
+Sat, 28 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/under-the-skin-streaming-free-tubi-april-2026/
+
+Scarlett Johansson's bizarre R-Rated cult classic sci-fi thriller 'Under the Skin,' is heading to free streaming on Tubi in April 2026.
+---------
+
+# 'Spider-Man: Brand New Day' Upgrades Peter Parker With Organic Web-Shooters
+
+Features, Spider-Man: Brand New Day, Spider-Man, MCU, Canon Shift
+
+Sat, 28 Mar 2026 20:01:17 GMT
+
+https://movieweb.com/tobey-maguire-spider-man-web-change/
+
+Tom Holland's version of Spider-Man will get organic webshooters, a controversial addition to Tobey Maguire's Spider-Man.
+---------
+
 # Jack Black Wants To Star In New Adaptation Of 21-Year-Old Crime Video Game Series
 
 Movies, Yakuza, The Super Mario Galaxy Movie, Jack Black, Donald Glover
