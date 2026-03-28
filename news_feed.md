@@ -1,3 +1,102 @@
+# Monica Dutton's Continued Yellowstone Spinoff Role After Early Death Twist Teased By Marshals Star
+
+TV, Marshals, Yellowstone
+
+Sat, 28 Mar 2026 14:50:11 GMT
+
+https://screenrant.com/yellowstone-marshals-monica-dutton-role-after-death-tease-mo-brings-plenty/
+
+EXCLUSIVE: Marshals has made sure to honor the characters who have faced tragedy, and this star hopes that legacy will continue for a long time.
+---------
+
+# Prime Video's Bond Parody Currently Has A Better Rotten Tomatoes Score Than 23/25 Bond Movies
+
+Streaming TV, Bait
+
+Sat, 28 Mar 2026 14:40:22 GMT
+
+https://screenrant.com/prime-video-bait-bond-parody-better-rotten-tomatoes-score/
+
+A six-part parody of the James Bond franchise has been released on Prime Video, outranking all but two of the Bond movies on Rotten Tomatoes.
+---------
+
+# 10 Greatest Sci-Fi Movies Based On Books, Ranked
+
+Movies, Sci-Fi, Ranking
+
+Sat, 28 Mar 2026 14:40:19 GMT
+
+https://screenrant.com/best-sci-fi-book-movies-ranked/
+
+Project Hail Mary is all the talk in Hollywood right now but it's far from the only great sci-fi film based on a novel.
+---------
+
+# One Piece: Egghead Arc Ending Explained
+
+Anime, Explainer, One Piece
+
+Sat, 28 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/one-piece-egghead-island-arc-ending-explained/
+
+How One Piece ended its biggest arc yet.
+---------
+
+# Firefly Reboot to Resolve Fate of Creepy Hands of Blue Villains
+
+TV, Firefly
+
+Sat, 28 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/firefly-reboot-hands-of-blue-death-solve/
+
+Firefly's upcoming TV revival can show us exactly what happened to these terrifying villains before they mysteriously disappeared from the franchise.
+---------
+
+# Ryan Reynolds R-Rated Comedy Animal Friends Delayed Again in 6th Release Shakeup
+
+Movies, ryan reynolds, Animal Friends
+
+Sat, 28 Mar 2026 14:48:34 GMT
+
+https://www.cbr.com/ryan-reynolds-animal-friends-delayed-release-date/
+
+The R-rated comedy will feature a star-studded cast, but it has gone through multiple changes.
+---------
+
+# 25 Years Later, Mobile Suit Gundam: The 08th MS Team's Finale Still Hasn’t Aired
+
+Anime, toonami, Gundam, Mobile Suit Gundam: The 08th MS Team
+
+Sat, 28 Mar 2026 14:34:50 GMT
+
+https://www.cbr.com/toonami-anime-gundam-08th-ms-team-ending-lost-episode/
+
+One of the most underrated Gundam anime to air on Toonami still hasn't released the final episode over 25 years later.
+---------
+
+# AMC Ends 'Interview with the Vampire' Spinoff 'Talamasca: The Secret Order'
+
+TV News, Talamasca: The Secret Order
+
+Sat, 28 Mar 2026 14:51:33 GMT
+
+https://movieweb.com/interview-with-vampire-spin-off-canceled/
+
+The Immortal Universe sees its first cancellation ahead of the debut of 'The Vampire Lestat' in June 2026.
+---------
+
+# 'Star Wars: Rebels' Producer "Amazed by How Good The Series Turned Out"
+
+TV News, Star Wars: Rebels, Star Wars: The Clone Wars, Star Wars
+
+Sat, 28 Mar 2026 14:31:31 GMT
+
+https://movieweb.com/star-wars-rebels-producer-amazed/
+
+While George Lucas was the only boss on 'The Clone Wars,' 'Rebels' had to satisfy many different Disney stakeholders.
+---------
+
 # Prime Video Is Set To Become The Leader Of Video Game Adaptations
 
 Streaming TV, Prime Video
