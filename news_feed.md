@@ -1,3 +1,190 @@
+# Attack on Titan's Studio is Back With a Gorgeous New Fantasy Anime
+
+Anime, Crunchyroll
+
+Sat, 28 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/attack-on-titan-anime-studio-agents-of-the-four-seasons/
+
+A contemplative modern fantasy gem brought by the creator of Violet Evergarden!
+---------
+
+# Forget The Lasso of Truth, DC’s New Wonder Woman Reveals A Brutal New Weapon
+
+DC Comics, Wonder Woman
+
+Sat, 28 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/absolute-wonder-woman-new-lasso-of-truth-troika/
+
+Although DC's classic Wonder Woman has her signature Lasso of Truth, Absolute Wonder Woman has just unleashed a WAY more intense version.
+---------
+
+# Dark Souls Returns For A New Adventure This May
+
+Gaming, Dark Souls
+
+Sat, 28 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/dark-souls-mother-mourning-4-release-date/
+
+The Dark Souls franchise continues with the final installment of the Mother of Mourning graphic novel series, set to release in May.
+---------
+
+# Superman's New Appearance Will Officially Introduce His Own Batmobile, DC Confirms
+
+Comics, Superman
+
+Sat, 28 Mar 2026 18:27:09 GMT
+
+https://screenrant.com/superman-new-car-like-batmobile-worlds-finest-batman/
+
+Superman is about to get his own Batmobile-style superhero car, finally equaling - and potentially surpassing - the Dark Knight's iconic ride.
+---------
+
+# Tom Hardy & Guy Ritchie's Gritty 10-Part Crime Series Gets Major Return Update With "Ambitious" Story Tease From Star
+
+TV, MobLand
+
+Sat, 28 Mar 2026 18:26:08 GMT
+
+https://screenrant.com/mobland-season-2-filming-wrap-story-tease-emmett-j-scanlan/
+
+Tom Hardy and Guy Ritchie's hit crime thriller series gets an exciting new filming and story update ahead of the drama's anticipated 2026 release.
+---------
+
+# An Overlooked Historical Epic War Movie Just Jumped To The Top Of HBO Max's Streaming Chart
+
+Movies, The Eagle
+
+Sat, 28 Mar 2026 18:01:43 GMT
+
+https://screenrant.com/the-eagle-hbo-max-streaming-success-historical-epic-war-movie/
+
+Channing Tatum plays a jacked Roman centurion in a forgotten 2011 historical war epic that just became a global streaming hit on HBO Max.
+---------
+
+# The Duffer Brothers’ New Series Is The Perfect Follow-Up To Netflix’s Best Horror Show
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Sat, 28 Mar 2026 18:01:19 GMT
+
+https://screenrant.com/something-very-bad-going-happen-haunting-of-hill-house-recommendation/
+
+Netflix's Something Very Bad Is Going to Happen follows in the footsteps of a critically acclaimed horror show with many similarities.
+---------
+
+# Post-Apocalyptic Sci-Fi Movie Is A Global Netflix Hit After Star's X-Files Reboot Casting
+
+Movies, 40 Acres, The X-Files
+
+Sat, 28 Mar 2026 17:59:29 GMT
+
+https://screenrant.com/40-acres-movie-netflix-streaming-success-danielle-deadwyler/
+
+Danielle Deadwyler's 40 Acres becomes a global Netflix hit as she prepares to lead the X-Files reboot.
+---------
+
+# Lilo & Stitch's Success Proves It's Time to Remake Treasure Planet
+
+Movies, Treasure Planet
+
+Sat, 28 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/lilo-stitch-proves-treasure-planet-live-action-remake/
+
+Lilo & Stitch is single-handedly reviving Disney's live-action reboots and this underrated 2002 film is in desperate need of a remake.
+---------
+
+# The Hole in the Ground Is Heading to HBO Max at the Right Time
+
+Movies, The Hole In The Ground
+
+Sat, 28 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/the-hole-in-the-ground-hbo-max-april-2026/
+
+Lee Cronin's forgotten horror movie resurfaces at just the right time on HBO Max.
+---------
+
+# 10 Horror Comics That Must Be Read In Summer 2026
+
+Comics, Horror
+
+Sat, 28 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/horror-comics-we-cant-wait-for-summer-2026/
+
+Summer 2026 is going to be a hot one for horror comics!
+---------
+
+# Daniel Day-Lewis’ First Movie in 8 Years Is Now Available To Watch on Netflix — and It’s a Weird One
+
+Movie Features, Daniel Day-Lewis, Anemone, Sean Bean, Netflix
+
+Sat, 28 Mar 2026 18:28:12 GMT
+
+https://collider.com/daniel-day-lewis-anemone-netflix/
+
+Daniel Day-Lewis acted in his first film since 2017 in Anemone, a tense, emotional drama directed by his son that’s now on Netflix.
+---------
+
+# Paramount+ Is Officially Leaving Sci-Fi Behind for a New Genre Franchise After Latest Cancellation
+
+TV Features, Dexter, Dexter: Resurrection, Michael C. Hall, Paramount
+
+Sat, 28 Mar 2026 18:27:12 GMT
+
+https://collider.com/dexter-paramount-plus-franchise-starfleet-academy-cancellation/
+
+Starfleet Academy's cancellation signals a shift away from sci-fi as Paramount continues to invest in dark thrillers like Dexter: Resurrection.
+---------
+
+# 12 Years Later, 'Gladiator' Star's $350M Historical Epic Is Returning to Streaming
+
+Movie News, Noah, Darren Aronofsky, Russell Crowe, Emma Watson
+
+Sat, 28 Mar 2026 18:01:12 GMT
+
+https://collider.com/russell-crowe-biblical-epic-noah-streaming-free-kanopy-april-2026/
+
+Noah, Darren Aronofsky’s big-budget biblical epic starring Russell Crowe, will be free to stream on Kanopy from April 17.
+---------
+
+# 10 Perfect Horror Movies That Nobody Remembers
+
+Movie, Horror, Citizen Toxie: The Toxic Avenger IV, May, Queens of the Dead
+
+Sat, 28 Mar 2026 17:57:12 GMT
+
+https://collider.com/perfect-horror-movies-nobody-remembers/
+
+There have been many exceptional horror films that have sadly been forgotten to time, such as White Dog, May, and Tales from the Hood.
+---------
+
+# Best Anime Series Like 'Solo Leveling'
+
+TV Lists, Anime, Solo Leveling
+
+Sat, 28 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/solo-leveling-similar-anime/
+
+The appeal of 'Solo Leveling' is insane, and these dungeon crawl anime scratch the same itch.
+---------
+
+# 'Paper Girls' Is an Underrated Prime Sci-Fi Comic Adaptation
+
+Features
+
+Sat, 28 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/paper-girls-prime-canceled-2022/
+
+'Paper Girls,' the Amazon Prime Video adaptation of the comic book series by Brian K. Vaughan and Cliff Chiang, was canceled after only one season.
+---------
+
 # Prime Video’s Answer To Neuromancer Looks Like Cyberpunk Perfection In New Trailer
 
 Anime, Ghost in the Shell
