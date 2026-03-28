@@ -1,3 +1,179 @@
+# Project Hail Mary Box Office Extends Amazon's Record-Breaking Run With Minuscule Week 2 Drop
+
+Movies, Box Office, Project Hail Mary
+
+Sat, 28 Mar 2026 15:20:09 GMT
+
+https://screenrant.com/project-hail-mary-box-office-week-2-domestic-chart-report/
+
+The new Ryan Gosling sci-fi movie Project Hail Mary extends its record-breaking run with a tiny week 2 drop and a record-setting domestic haul.
+---------
+
+# 30 Years Later, it's Obvious That Dragon Ball's Best Duo Was Never Goku and Vegeta
+
+Anime, Dragon Ball
+
+Sat, 28 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/dragon-ball-best-duo-gokten-trunks-not-goku-vegeta/
+
+Dragon Ball Super's Trunks and Goten have been sidelined, but their potential as the franchise's greatest duo is untapped.
+---------
+
+# How Netflix's New Bosch Replacement Adapts Its 13-Book Franchise Explained By Creator
+
+TV, Joe Nesbø's Detective Hole, Netflix, Jo Nesbo's Detective Hole - Season 1
+
+Sat, 28 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/netflix-detective-hole-book-adapt-explanation-jo-nesbo/
+
+Exclusive: Author Joe Nesbø breaks down how Netflix's Bosch-like series Detective Hole adapts hits 13-book franchise and choosing which books.
+---------
+
+# 10 Vampire Movies That Changed The Genre Forever
+
+Movies, Nosferatu, Queen of the Damned, Blade, The Lost Boys, Twilight (2008), Interview with the Vampire, What We Do in the Shadows, Buffy the Vampire Slayer, Let the Right One In, Fright Night
+
+Sat, 28 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/vampire-movies-change-genre/
+
+Most vampire movies follow established lore, but some inject new ideas into the genre, changing how future films approach the source material.
+---------
+
+# Elden Ring Returns With Official New Release This Tuesday, March 31
+
+Gaming, PC, Elden Ring, Elden Ring Nightreign
+
+Sat, 28 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/elden-ring-exclusive-new-release-tuesday-march-31/
+
+Elden Ring is back with a brand-new official release from Bandai Namco, and players can get their hands on it on Tuesday, March 31.
+---------
+
+# Galavant Is The Perfect Fantasy Comedy Binge For Disney Fans
+
+Classic TV, Galavant
+
+Sat, 28 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/galavant-underrated-fantasy-comedy-disney-fans/
+
+Discover the hidden gem of ABC's fantasy comedy lineup created by Dan Fogelman of This Is Us, perfect for fans of Disney fairy tale-inspired shows.
+---------
+
+# Bryan Cranston’s Most Influential Show Is Officially Returning Next Month
+
+Streaming TV, Malcolm in the Middle
+
+Sat, 28 Mar 2026 14:58:15 GMT
+
+https://screenrant.com/bryan-cranston-malcolm-in-the-middle-sitcom-influence-revival-return/
+
+Bryan Cranston became a household name through Breaking Bad, but Malcolm in the Middle is his most influential show, and it is returning to the screen
+---------
+
+# Something Very Bad Is Going to Happen Is an Instant Netflix Hit
+
+TV, Something Very Bad Is Going to Happen
+
+Sat, 28 Mar 2026 15:25:32 GMT
+
+https://www.cbr.com/netflix-something-very-bad-is-going-to-happen-march-2026/
+
+Netflix's new horror series is an instant hit for the streaming platform.
+---------
+
+# 10 Classic Mecha Anime That Have Aged Well in 2026
+
+Anime, Mobile Suit Gundam, mecha, Neon Genesis Evangelion
+
+Sat, 28 Mar 2026 15:15:12 GMT
+
+https://www.cbr.com/best-classic-mecha-anime-aged-well-in-2026/
+
+These mecha anime are just as incredible in 2026 as they were when they first premiered.
+---------
+
+# 10 Classic Fantasy Films From the 1990s That Have Aged Poorly
+
+Movies, Fantasy
+
+Sat, 28 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/classic-fantasy-90s-movie-aged-poorly/
+
+The 1990s produced some memorable fantasy movies, however, through a modern perspective, these films haven’t stood the test of time.
+---------
+
+# 5 Ways Majora's Mask is Better Than Ocarina of Time
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, The Legend of Zelda: Majora's Mask
+
+Sat, 28 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/legend-of-zelda-majoras-mask-better-than-ocarina-of-time/
+
+While Ocarina of Time may have set the standard for all 3D Zelda games, Majora's Mask is an experience like no other.
+---------
+
+# Prime Video's 2-Part Sci-Fi Western Series Is One of the Best on Any Streaming Platform
+
+TV Features, Josh Brolin, Lili Taylor, Imogen Poots, Outer Range
+
+Sat, 28 Mar 2026 15:23:12 GMT
+
+https://collider.com/outer-range-prime-video-sci-fi-western-best-streaming/
+
+Prime Video's sci-fi neo-Western series Outer Range is a must-watch for fans of complex genre storytelling.
+---------
+
+# Patricia Arquette Revisits 'A Nightmare on Elm Street' and the Horror Movies That Shaped Her
+
+Exclusives, They Will Kill You, Zazie Beetz, Patricia Arquette, Warner Bros.
+
+Sat, 28 Mar 2026 15:07:16 GMT
+
+https://collider.com/they-will-kill-you-patricia-arquette-a-nightmare-on-elm-street-dream-warriors-zazie-beetz-interview/
+
+Patricia Arquette and Zazie Beetz discuss their preparation methods for playing intense characters in horror and action films from dialect to stunts.
+---------
+
+# New Sci-Fi Masterpiece Triples the Box Office Gross of 141-Minute Astronaut Movie
+
+Movie News, Ryan Gosling, Project Hail Mary, First Man, Box Office
+
+Sat, 28 Mar 2026 15:00:13 GMT
+
+https://collider.com/ryan-gosling-sci-fi-movie-project-hail-mary-box-office-triples-first-man-gross-120-million/
+
+Ryan Gosling’s new sci-fi masterpiece, Project Hail Mary, has officially tripled the gross of his astronaut biopic First Man. See how much it’s made.
+---------
+
+# Edric's 'Dune 3' Absence Means Denis Villeneuve Still Won't Fix the Worst Book Change
+
+Features, Sci-Fi, Dune: Part Three, Denis Villeneuve
+
+Sat, 28 Mar 2026 15:00:19 GMT
+
+https://movieweb.com/edric-dune-3-character-missing/
+
+We demand giant space-faring fish freaks, and Edric would have been the first opportunity to introduce the Spacing Guild in the 'Dune' films.
+---------
+
+# Weirdest Reality Dating Shows
+
+TV Lists, Reality TV
+
+Sat, 28 Mar 2026 15:00:19 GMT
+
+https://movieweb.com/weirdest-reality-dating-shows/
+
+In the never-ending quest to draw in audiences, these reality TV dating shows got downright weird and, often, very uncomfortable.
+---------
+
 # Monica Dutton's Continued Yellowstone Spinoff Role After Early Death Twist Teased By Marshals Star
 
 TV, Marshals, Yellowstone
