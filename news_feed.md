@@ -1,3 +1,311 @@
+# Star Fox’s Official Return Is The Perfect Time To Reinvent The Series
+
+Gaming, Star Fox, Triple-A Games
+
+Sat, 28 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/star-fox-return-mario-galaxy-movie-roguelike-game/
+
+Fox McCloud is set to appear in The Super Mario Galaxy Movie, so it's time Nintendo reinvent the series and give Star Fox the game it deserves.
+---------
+
+# Veteran Actor James Tolkan Passes Away At 94
+
+Movies, Back to the Future, Top Gun
+
+Sat, 28 Mar 2026 00:33:48 GMT
+
+https://screenrant.com/james-tolkan-top-gun-back-to-the-future-actor-dies-at-94/
+
+James Tolkan, known for his roles in Top Gun and the Back to the Future franchise, has died at the age of 94. The veteran character actor passed away in Saranac Lake, New York.
+---------
+
+# Naruto's Next Anime Will Make Itachi And Madara Look Like Genin
+
+Streaming TV, Naruto, Boruto: Two Blue Vortex
+
+Sat, 28 Mar 2026 00:31:19 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-omnipotence-stronger-uchiha-genjutsu/
+
+Naruto’s next anime will seemingly raise the overarching stakes with its new villains to the point where even Itachi and Madara will look like Genin.
+---------
+
+# Punisher vs Batman Was Just Permanently Settled by 1 Horrifying Fact
+
+DC Comics, Marvel, DC, The Punisher, Batman
+
+Sat, 28 Mar 2026 00:01:19 GMT
+
+https://screenrant.com/punisher-better-than-batman-proof/
+
+Punisher versus Batman would be a biblical scrap, but a recently discerned fact about one of these characters proves they may come out the victor.
+---------
+
+# Netflix's 5-Part Sci-Fi Fantasy Series Changed The Rules Of Streaming
+
+Streaming TV, Stranger Things
+
+Sat, 28 Mar 2026 00:01:19 GMT
+
+https://screenrant.com/stranger-things-netflix-success-changed-streaming-rules/
+
+A five-part fantasy series released by Netflix changed the rules of streaming TV forever, setting dangerous precedents that persist to this day.
+---------
+
+# Dark Souls, Skyrim Collide In New Fantasy RPG You Can Play Free Now
+
+Gaming, RPG, PC, Indie
+
+Sat, 28 Mar 2026 00:01:19 GMT
+
+https://screenrant.com/steam-free-dark-fantasy-rpg-demo-like-dark-souls/
+
+A new dark fantasy RPG that seems to blend elements of Skyrim and Dark Souls can be played for free right now, ahead of its final release.
+---------
+
+# "I Just Want People To Be Horny": The Cast Of New Horror Movie Touch Me Explain Their Surprisingly Emotional Film About A Sexy Alien
+
+Movies, Touch Me, Sundance Film Festival
+
+Fri, 27 Mar 2026 23:52:33 GMT
+
+https://screenrant.com/touch-me-movie-2025-olivia-taylor-dudley-cast-director-sundance-2025-interview/
+
+The cast and writer/director of Touch Me break down their wild Sundance sci-fi movie and the emotional layers behind its sex-fueled premise.
+---------
+
+# AMC Cancels Talamasca: The Secret Order After One Season
+
+TV, Talamasca: The Secret Order, AMC, Interview with the Vampire
+
+Fri, 27 Mar 2026 23:51:19 GMT
+
+https://screenrant.com/amc-cancels-talamasca-the-secret-order-after-one-season/
+
+AMC's Anne Rice Immortal Universe series Talamasca: The Secret Order has been canceled after just one season, but the secretive organization may resurface in future franchise installments.
+---------
+
+# 10 Cringy 2000s Anime That Were Only Good Because You Were a Kid
+
+Anime, 2000s, K-On!, Dragon Ball Z Kai, Inuyasha
+
+Sat, 28 Mar 2026 01:15:12 GMT
+
+https://www.cbr.com/outdated-2000s-anime-aged-poorly/
+
+The 2000s were an important decade for anime that were full of hits, but also titles that don't hold up very well when they're revisited as an adult.
+---------
+
+# 25 Best PG-13 Comedy Movies, Ranked
+
+Movies, Comedy, Anchorman: The Legend of Ron Burgundy, Zoolander
+
+Sat, 28 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/best-pg-13-comedy-movies/
+
+PG-13 movies offer everything from slapstick humor to witty one-liners. The best ones, often starring Will Ferrel or Jim Carrey, have a mix of both.
+---------
+
+# Crunchyroll Finally Revives The Cult Classic Liar Game Manga With a New Anime Adaptation
+
+Anime, Liar Game, Crunchyroll
+
+Sat, 28 Mar 2026 00:42:30 GMT
+
+https://www.cbr.com/crunchyroll-best-new-thriller-liar-game-anime/
+
+Liar Game is a pivotal entry in the death game genre that is getting an overdue anime adaptation at the perfect time for the franchise to pop.
+---------
+
+# 10 Open-World Games Better Than Elden Ring in 2026
+
+Games, open world, Elden Ring
+
+Sat, 28 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/open-world-games-like-elden-ring-2026/
+
+Elden Ring has become the measuring stick for open-world gaming, but there are plenty of titles that highlight what the complete package looks like.
+---------
+
+# Chainsaw Man & 5 Other Manga Endings Everyone Misunderstands
+
+Anime, Manga, Chainsaw Man
+
+Sat, 28 Mar 2026 00:13:12 GMT
+
+https://www.cbr.com/manga-like-chainsaw-man-ending-confusing/
+
+Chainsaw Man's controversial ending is far from the first major manga conclusion to spark debate in the community.
+---------
+
+# Prime Video's Bait Becomes a Streaming Hit After Near-Perfect Score
+
+TV, Bait
+
+Sat, 28 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/riz-ahmed-bait-comedy-prime-video-success-march-2026/
+
+Prime Video is officially kicking off its James Bond era.
+---------
+
+# The Bad Guys 2 Is the Perfect Weekend Watch on Netflix
+
+Movies, The Bad Guys 2, Netflix
+
+Sat, 28 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/netflix-the-bad-guys-2-perfect-weekend-watch/
+
+The Bad Guys 2 is a huge hit on Netflix, and it's easily the perfect weekend watch for viewers looking for something fun and simple to enjoy.
+---------
+
+# WW1 Game Gallipoli Outshines WWII Titles at PAX East
+
+Games, Video Games, Steam
+
+Sat, 28 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/ww1-gallipoli-ottoman-pax-east-2026-fps/
+
+BlackMill Games' new WW1 game could give WW2 games a run for their money.
+---------
+
+# 16 Years Later, Eric Kripke Revealed His Original Ending for Supernatural (& It’s Much Darker Than Fans Realize)
+
+TV, Supernatural, The CW, Horror
+
+Sat, 28 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/eric-kripke-revealed-original-dark-supernatural-ending/
+
+Supernatural's "Swan Song" is hailed as Eric Kripke's perfect finale to the series, but his ending is actually much darker and unsatisfying.
+---------
+
+# 3 No. 1 Hits Critics Called Both the Greatest Songs of All Time and the Worst
+
+Music Features, Taylor Swift, Ed Sheeran, Robin Thicke, Music, Pop
+
+Sat, 28 Mar 2026 01:23:44 GMT
+
+https://collider.com/taylor-swift-ed-sheeran-robin-thicke-no-1-hits-greatest-and-worst-songs/
+
+Taylor Swift, Ed Sheeran, and Robin Thicke have No. 1 hits praised among the greatest songs of all time and criticized among the worst ever made.
+---------
+
+# 3 Years Later, Jason Statham’s Thrilling 4-Part Action Series Is the Perfect Replacement for Fast & Furious Fans
+
+Movie Features, The Expendables, Fast and Furious, Jason Statham, Sylvester Stallone
+
+Sat, 28 Mar 2026 01:14:12 GMT
+
+https://collider.com/jason-statham-expendables-series-action-fast-and-furious/
+
+For fans of Jason Statham and Fast & Furious, the ridiculous action of The Expendables franchise might be right up your alley.
+---------
+
+# 'Daredevil: Born Again's Best New Character Is a Complete Game-Changer After Just 1 Episode
+
+TV Features, Daredevil: Born Again, MCU, Matthew Lillard, Disney+
+
+Sat, 28 Mar 2026 01:14:12 GMT
+
+https://collider.com/daredevil-born-again-season-2-best-new-character-mr-charles-matthew-lillard/
+
+Daredevil: Born Again Season 2's best new character is Matthew Lillard's Mr. Charles, who's already proving to be a total game-changer for the series.
+---------
+
+# What's in the Five Lord of the Rings Chapters That Stephen Colbert’s Movie Will Cover?
+
+Movie Features, The Lord of the Rings, Stephen Colbert, J.R.R. Tolkien, Peter Jackson
+
+Sat, 28 Mar 2026 00:45:12 GMT
+
+https://collider.com/lord-of-the-rings-shadows-of-the-past-movie-stephen-colbert-tom-bombadil/
+
+Stephen Colbert is co-writing a new Lord of the Rings movie adaptation and we break down what this film will be covering in Tolkien’s world.
+---------
+
+# Prime Video's 2-Part Fantasy Sleeper Hit Is the Perfect Weekend Binge
+
+TV Features, Carnival Row, Prime Video, Orlando Bloom, Cara Delevingne
+
+Sat, 28 Mar 2026 00:39:12 GMT
+
+https://collider.com/carnival-row-prime-video-fantasy-series-perfect-weekend-binge/
+
+Prime Video's underrated fantasy series, Carnival Row, explores modern social issues in a magical world, starring Orlando Bloom and Cara Delevingne.
+---------
+
+# One of '9-1-1's Most Devastating Episodes to Date Is Already a Series-Best With Audiences
+
+TV News, 9-1-1, Oliver Stark, ABC, Peter Krause
+
+Sat, 28 Mar 2026 00:27:10 GMT
+
+https://collider.com/9-1-1-season-9-episode-15-pick-your-poison-audience-rating-imdb-series-best/
+
+One of 9-1-1’s most devastating episodes to date, Season 9’s “Pick Your Poison,” is already among the highest-rated episodes of the series.
+---------
+
+# 8 Western Shows That Are 10/10 but Nobody Remembers Today
+
+TV, Westerns, Death Valley Days, The Young Riders, The Adventures of Brisco County, Jr.
+
+Sat, 28 Mar 2026 00:02:12 GMT
+
+https://collider.com/western-tv-shows-nobody-remembers/
+
+Death Valley Days, The Young Riders, and The Magnificent Seven are some of the perfect Western shows that are completely forgotten by audiences.
+---------
+
+# Jensen Ackles Officially Confirms Plans For The Next 'The Boys' Series [Exclusive]
+
+Exclusives, The Boys, Vought Rising, Prime Video, Jensen Ackles
+
+Sat, 28 Mar 2026 00:00:12 GMT
+
+https://collider.com/the-boys-spinoff-vought-rising-multiple-seasons-plans-jensen-ackles-interview/
+
+Jensen Ackles and Laz Alonso share insights on The Boys' final season, the show's satisfying finale, and Soldier Boy's origin story in Vought Rising.
+---------
+
+# Steven Spielberg’s All-Time Favorite Series Is This 7-Part Drama Masterpiece
+
+TV Features, Steven Spielberg, AMC, Mad Men, Drama
+
+Fri, 27 Mar 2026 23:53:13 GMT
+
+https://collider.com/steven-spielberg-all-time-favorite-series-mad-men-amc/
+
+Steven Spielberg once said he “always” watched Mad Men, and the 7-season AMC drama still feels like a perfect match for his storytelling taste.
+---------
+
+# 8 Most Unpredictable Netflix Sci-Fi TV Shows
+
+TV Lists, Netflix, Sci-Fi
+
+Sat, 28 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/most-unpredictable-netflix-sci-fi-tv-shows/
+
+Netflix's sci-fi catalog is stellar, and it features loads of titles that are so unpredictable that audiences became obsessed with getting to the end.
+---------
+
+# 8 Neo-Noir Thriller Series That Are Totally Unpredictable
+
+TV Lists, The Sinner
+
+Sat, 28 Mar 2026 00:00:17 GMT
+
+https://movieweb.com/neo-noir-thriller-tv-series-unpredictable/
+
+From 'The Sinner' to 'Oz,' these neo-noir thriller TV series have wild plot twists, and many are underrated picks.
+---------
+
 # Netflix’s 6-Part Legal Thriller Is Still Worth An Easy One-Night Binge – Thanks To Sienna Miller’s Standout Performance
 
 Streaming TV, Netflix, Anatomy of a Scandal
