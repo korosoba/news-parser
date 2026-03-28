@@ -1,3 +1,69 @@
+# Assassin's Creed Origins Gets Jaw-Dropping Next-Gen "Remaster"
+
+Gaming, Assassin's Creed, Assassin's Creed Origins, Ubisoft
+
+Sat, 28 Mar 2026 11:25:18 GMT
+
+https://screenrant.com/assassins-creed-origins-gets-next-gen-remaster-unofficial/
+
+Assassin's Creed Origins remains one of the best games in the series, and this is the remaster it deserves.
+---------
+
+# You Can Stream Johnny Depp’s 105-Minute Western for Free Next Month
+
+Movie News, Gore Verbinski, Johnny Depp, Rango, Animation
+
+Sat, 28 Mar 2026 11:45:12 GMT
+
+https://collider.com/johnny-depp-rango-most-surprising-movie-streaming-free-kanopy-april-2026/
+
+Rango, the Western starring Johnny Depp, will be free to stream for free next month. Here's what you should know about the Oscar-winner.
+---------
+
+# Netflix’s 2-Part Fantasy Adventure Series Is So Good, It Could Last Forever
+
+TV Features, One Piece, Netflix, Fantasy, Adventure
+
+Sat, 28 Mar 2026 11:41:12 GMT
+
+https://collider.com/one-piece-netflix-fantasy-adventure-good-last-forever/
+
+With over 1,100 chapters and no end in sight for the manga, Netflix's One Piece adaptation could continue for years.
+---------
+
+# 10 Nearly Perfect Detective Shows, Ranked
+
+TV, Twin Peaks, Sherlock, The Wire, True Detective
+
+Sat, 28 Mar 2026 11:38:12 GMT
+
+https://collider.com/nearly-perfect-detective-shows-ranked/
+
+Near-perfect detective shows like True Detective and Sherlock prove TV mysteries thrive on brilliant investigators and slow-burning cases.
+---------
+
+# Walton Goggins and Timothy Olyphant “Weren’t Talking” by the End of ‘Justified’
+
+TV Features, Justified, Timothy Olyphant, Walton Goggins, FX
+
+Sat, 28 Mar 2026 11:31:12 GMT
+
+https://collider.com/justified-series-walton-goggins-timothy-olyphant-feud-explained/
+
+Timothy Olyphant and Walton Goggins once clashed behind the scenes on Justified, and their off-screen tension may have fueled Raylan and Boyd’s rivalr
+---------
+
+# Anya Taylor-Joy’s Sci-Fi Secret Weapon Is a 400+ Day Success Story
+
+Movie News, The Gorge, Anya Taylor-Joy, Miles Teller, Apple TV
+
+Sat, 28 Mar 2026 11:30:12 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-movie-the-gorge-streaming-success-apple-tv-march-2026/
+
+Anya Taylor-Joy's sci-fi secret weapon has been a streaming success for over 400 days now, as it continues to dominate watchlists.
+---------
+
 # HBO's Harry Potter Show Rewrites Crucial Meeting Scene Between Harry, Ron and Hermione
 
 Streaming TV, Harry Potter
