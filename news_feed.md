@@ -1,3 +1,223 @@
+# Young Sherlock: The New Victorian-Era Adaptation That Replaces The BBC's Sherlock
+
+Streaming TV, Young Sherlock, Sherlock
+
+Sat, 28 Mar 2026 12:31:19 GMT
+
+https://screenrant.com/young-sherlock-benedict-cumberbatch-bbc-series-replacement/
+
+The BBC's Sherlock is one of the best detective TV shows of all time, and almost a decade after it ended, it finally has a worthy replacement.
+---------
+
+# Nintendo's Spider-Verse Movie Rival Is Just 1 Move Away From Becoming Reality
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Sat, 28 Mar 2026 12:31:19 GMT
+
+https://screenrant.com/nintendo-smash-bros-universe-movie-link/
+
+The Super Mario Galaxy Movie looks to be building a shared universe, and it can solve its biggest problem with the Spider-Verse approach.
+---------
+
+# Netflix's Most Untouchable Hit is Still This Near-Perfect 2021 K-Drama Fans Are Still Obsessed With
+
+Anime, Netflix, Hometown Cha-Cha-Cha
+
+Sat, 28 Mar 2026 12:31:19 GMT
+
+https://screenrant.com/hometown-cha-cha-cha-netflix-near-perfect-k-drama/
+
+Netflix is on a roll lately on the K-drama side of things but nothing comes close to dethroning this 2021 series.
+---------
+
+# PlayStation Plus Subscribers In Love With Free Xbox Game
+
+Gaming, PlayStation Plus
+
+Sat, 28 Mar 2026 12:31:19 GMT
+
+https://screenrant.com/playstation-plus-free-xbox-game-march-2026/
+
+Discover why PlayStation Plus subscribers are loving the free Xbox game Psychonauts 2, praised for its platforming, humor, and more.
+---------
+
+# Miles Morales' Spin Codename Becomes Canon In Marvel Comics
+
+Comics, Spider-Man, Miles Morales
+
+Sat, 28 Mar 2026 12:00:22 GMT
+
+https://screenrant.com/spider-man-miles-morales-hero-name-spin-canon/
+
+Miles Morales is going by a new codename in Marvel Comics, and it ranks among the worst superhero names of all time.
+---------
+
+# As Spider-Man Dies, His Last Words Reveal How Marvel Has Broken the Franchise
+
+Comics, Spider-Man
+
+Sat, 28 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/spider-man-death-mj-romance-ultimate-universe/
+
+Ultimate Endgame's unceremonious Spider-Man death is tragic, but it is ironically holding a mirror up to the Spider-Man who's alive in Earth-616.
+---------
+
+# Buffy The Vampire Slayer's Revival Fate Confirms A Key Truth About The Franchise
+
+Classic TV, Buffy The Vampire Slayer
+
+Sat, 28 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-revival-cancellation-franchise-sarah-michelle-gellar/
+
+Hulu's cancellation of the Buffy sequel has highlighted a major detail that could be the key to the franchise's future.
+---------
+
+# After 3 Years, James Gunn's DCU is Already Facing a Major Crisis, and 6 Movies Prove it
+
+Movies, DC Universe, James Gunn
+
+Sat, 28 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/dcu-missing-movies-crisis-explained/
+
+Is it time to panic about the new DCU?
+---------
+
+# Red Dead Redemption Meets Bloodborne In New Game You Can Try Free
+
+Gaming, Red Dead Redemption, Bloodborne, Red Dead Redemption 2
+
+Sat, 28 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-bloodborne-steam-free-demo/
+
+The Dark Cowboy is a harrowing first-person horror adventure that does plenty of things differently from other genre entries.
+---------
+
+# The 90's Spider-Man Show Spelled Out How The MCU's X-Men Can Debut In Brand New Day
+
+Superheroes, Marvel Cinematic Universe, Spider-Man: The Animated Series, Spider-Man: Brand New Day
+
+Sat, 28 Mar 2026 12:00:19 GMT
+
+https://screenrant.com/spiderman-brand-new-day-mutants-animated-series/
+
+Spider-Man: Brand New Day may introduce the MCU’s X-Men, echoing the 90s animated series where Peter Parker’s mutation led him to mutants.
+---------
+
+# CBS's Tracker Addresses Reenie Green's Vulnerability in Season 3
+
+TV, Tracker, CBS
+
+Sat, 28 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/justin-hartley-tracker-season-3-episode-13-reenie-green/
+
+Justin Hartley's attention-catching CBS drama about Colter Shaw is making a major character change that the series has needed since Tracker Season 1.
+---------
+
+# The Best Sci-Fi Movie From Every Year of The 2010s
+
+Movies, Sci-Fi, Christopher Nolan, Spider-Man
+
+Sat, 28 Mar 2026 12:00:12 GMT
+
+https://www.cbr.com/best-sci-fi-movie-every-year-2010s-list/
+
+The 2010s were an incredible era for science fiction, and these ten movies are the best entries in the genre for each year of the decade.
+---------
+
+# 4 Most Important Neo-Noir Movies Ever Made
+
+Movie, David Lynch, Chinatown, Film Noir, Thriller
+
+Sat, 28 Mar 2026 12:37:12 GMT
+
+https://collider.com/neo-noir-movies-important/
+
+Body Heat, Chinatown, and Blue Velvet are all among the very best and most important neo-noir movies of all time.
+---------
+
+# One of the Most Talked-About Oscar Winners Is Free to Stream in 1 Month
+
+Movie News, Paul Haggis, Sandra Bullock, Don Cheadle, Crash
+
+Sat, 28 Mar 2026 12:30:13 GMT
+
+https://collider.com/crash-worst-best-picture-winner-of-all-time-streaming-free-kanopy-april-2026/
+
+Crash, the controversial Best Picture winner from 2005, will be free to stream next month. Here's what you should know about the Brendan Fraser film.
+---------
+
+# 13 Years Later, Brad Pitt's Forgotten Horror Thriller Quietly Becomes a Late-Night Favorite
+
+Movie Features, Brad Pitt, World War Z, James Badge Dale, Damon Lindelof
+
+Sat, 28 Mar 2026 12:20:12 GMT
+
+https://collider.com/13-years-later-brad-pitts-forgotten-horror-thriller-quietly-becomes-a-late-night-favorite/
+
+World War Z chronicled the rise of a zombie apocalypse as the UN desperately tries to keep things under wraps.
+---------
+
+# Netflix's Best 10-Part Sci-Fi Series Deserved More Than One Season
+
+TV Features, The Dark Crystal: Age of Resistance, Netflix, Streaming, Science Fiction
+
+Sat, 28 Mar 2026 12:17:12 GMT
+
+https://collider.com/netflix-dark-crystal-age-of-resistance-sci-fi-series/
+
+A visually stunning fantasy prequel with rich lore, practical effects, and bold storytelling that makes it one of Netflix’s most overlooked series.
+---------
+
+# Prime Video's 8-Part Crime Series Is So Good, You'll Finish It in One Sitting
+
+TV Features, Prime Video, Deadloch, Crime, Comedy
+
+Sat, 28 Mar 2026 12:03:12 GMT
+
+https://collider.com/deadloch-prime-video-crime-tv-show-binge-watch/
+
+Deadloch, a Prime Video original series, is a smart and hilarious crime thriller that delivers a compelling murder mystery.
+---------
+
+# This Ruthless Survival Horror With a Deranged Villain Is a 2025 Sleeper Hit
+
+Movie Features, Dangerous Animals, Jai Courtney, Hassie Harrison, Horror
+
+Sat, 28 Mar 2026 12:02:13 GMT
+
+https://collider.com/dangerous-animals-hulu-jai-courtney/
+
+In 2025’s Dangerous Animals, now available on Hulu, Jai Courtney plays a great modern horror villain.
+---------
+
+# Apple TV’s Ambitious 3-Part Sci-Fi Series Proves It's One of the Best on Any Streaming Platform
+
+TV News, Foundation, Apple TV, Lee Pace, Jared Harris
+
+Sat, 28 Mar 2026 12:00:13 GMT
+
+https://collider.com/sci-fi-series-lee-pace-foundation-streaming-success-apple-tv-march-2026/
+
+Fans are binging Apple TV's three-part sci-fi series, Foundation, in dozens of countries around the world. Here's what you should know.
+---------
+
+# Prime Video's 'The Legend of Vox Machina' Saved the Fantasy Genre After 'Game of Thrones' Flopped
+
+Features, The Legend of Vox Machina, The Mighty Nein, Prime Video, Streaming Recommendations, Game of Thrones
+
+Sat, 28 Mar 2026 12:00:17 GMT
+
+https://movieweb.com/vox-machina-saved-fantasy-genre-game-of-thrones/
+
+Following 'Game of Thrones' terrible final season, Prime Video's Critical Role series, 'The Legend of Vox Machina,' has saved the fantasy genre on TV.
+---------
+
 # Assassin's Creed Origins Gets Jaw-Dropping Next-Gen "Remaster"
 
 Gaming, Assassin's Creed, Assassin's Creed Origins, Ubisoft
