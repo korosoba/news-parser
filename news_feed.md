@@ -1,3 +1,80 @@
+# HBO's Harry Potter Show Rewrites Crucial Meeting Scene Between Harry, Ron and Hermione
+
+Streaming TV, Harry Potter
+
+Sat, 28 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/harry-potter-series-changes-ron-hermione-first-meeting-scene/
+
+HBO's new Harry Potter series is supposed to be delivering a more faithful adaptation of the books, yet it's completely rewritten this key scene.
+---------
+
+# Elden Ring: Dark Moon Is A Game-Changing Experience
+
+Gaming, Elden Ring
+
+Sat, 28 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/elden-ring-dark-moon-fan-expansion/
+
+Discover Elden Ring: Dark Moon, a free mod offering a complete overhaul with new armor, weapons, items, spells, and more.
+---------
+
+# AnimeJapan 2026: One Piece Meets the Prince of Elbaph Ahead of New Netflix Release
+
+Anime, One Piece
+
+Sat, 28 Mar 2026 11:09:56 GMT
+
+https://www.cbr.com/one-piece-loki-elbaph-preview-anime-japan-2026/
+
+The future King of the Pirates meets the Prince of Elbaph in a brand-new One Piece preview ahead of its new Netflix release.
+---------
+
+# Magic The Gathering Expands Its Universe With Brand New Story
+
+Comics, Magic: The Gathering, Dark Horse Comics
+
+Sat, 28 Mar 2026 11:01:11 GMT
+
+https://www.cbr.com/magic-the-gathering-expands-its-universe-with-brand-new-story/
+
+Magic: The Gathering is cracking open the mind of the Multiverse's most iconic mage for a brand-new comic book limited series
+---------
+
+# 10 Best X-Men Stories Since 2000, Ranked
+
+Comics, X-Men, Marvel
+
+Sat, 28 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/best-x-men-comic-stories-since-2000-ranked-list/
+
+The X-Men have had countless incredible stories over the years, and these ten stories are the best the team has been in the 21st century.
+---------
+
+# Prime Video's Relentless, Addicting 8-Episode Thriller Is a 10/10 Weekend Binge
+
+TV Features, We Were Liars, Prime Video, Emily Alyn Lind, Drama
+
+Sat, 28 Mar 2026 11:18:12 GMT
+
+https://collider.com/we-were-liars-prime-video-best-weekend-binge/
+
+Prime Video's We Were Liars, starring Emily Alyn Lind, Mamie Gummer, and Caitlin FitzGerald, will keep you hooked until the very end.
+---------
+
+# 28 Years Later, Tom Hanks’ 169-Minute World War II Epic Deploys to Free Streaming
+
+Movie News, Saving Private Ryan, Tubi, World War II, Tom Hanks
+
+Sat, 28 Mar 2026 11:00:13 GMT
+
+https://collider.com/tom-hanks-saving-private-ryan-colossal-ww2-epic-streaming-free-tubi-april-2026/
+
+Saving Private Ryan, starring Tom Hanks and directed by Steven Spielberg, begins streaming free on Tubi on April 1.
+---------
+
 # Red Dead Redemption 2 60fps Update Unites Gamers
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2
