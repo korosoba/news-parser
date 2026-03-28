@@ -1,3 +1,113 @@
+# PlayStation Drops 4 New Free Downloads You Can Check Out Without PS Plus
+
+Gaming, PlayStation (Original)
+
+Sat, 28 Mar 2026 10:00:28 GMT
+
+https://screenrant.com/playstation-4-free-downloads-march-2026-no-ps-plus/
+
+Discover the latest free game demos available on PlayStation Store, including Damon and Baby, FATAL FRAME II: Crimson Butterfly REMAKE, and more.
+---------
+
+# Star Trek: Starfleet Academy Cadet Job Prospects Revealed
+
+Streaming TV, Star Trek, Star Trek: Starfleet Academy
+
+Sat, 28 Mar 2026 10:00:28 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-cadets-best-jobs/
+
+Star Trek: Starfleet Academy season 1 set the cadets on paths to these future careers serving on a starship's bridge crew.
+---------
+
+# Halo: Reach Remake Might Not Be A Slam-Dunk, Fans Agree
+
+Gaming, Halo: Reach
+
+Sat, 28 Mar 2026 09:30:19 GMT
+
+https://screenrant.com/halo-reach-remake-fan-reaction-speculation/
+
+Fans have been debating a potential remake of Halo: Reach which is widely regarded as one of the best entries in the beloved franchise.
+---------
+
+# Cyberpunk 2077: Ronin Officially Launching April 2026
+
+Games, Cyberpunk 2077
+
+Sat, 28 Mar 2026 10:00:24 GMT
+
+https://www.cbr.com/cyberpunk-2077-ronin-officially-releasing-april-2026/
+
+Cyberpunk 2077: Ronin will officially be hitting stores on April 18, 2026.
+---------
+
+# Why Stephen King's The Dead Zone TV Show Holds Up Better Than the Movie
+
+TV, The Dead Zone, Stephen King, Sci-Fi
+
+Sat, 28 Mar 2026 10:00:24 GMT
+
+https://www.cbr.com/stephen-king-the-dead-zone-tv-show-vs-movie/
+
+The 6-season series adaptation of Stephen King's The Dead Zone expanded on the sci-fi novel in a way the film version couldn't match.
+---------
+
+# The Secret Meaning of Saruman's Darkest LOTR Line Is Finally Clear
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Sat, 28 Mar 2026 10:00:24 GMT
+
+https://www.cbr.com/lord-of-the-rings-return-of-the-king-saruman-darkest-quote-meaning/
+
+A quote from the extended edition of The Lord of the Rings: The Return of the King still confuses fans, but the explanation makes perfect sense.
+---------
+
+# 'For All Mankind' Season 5 Finale Will Leave Fans Screaming — or Silent [Exclusive]
+
+Exclusives, For All Mankind, Apple TV, Star City, Sci-Fi
+
+Sat, 28 Mar 2026 10:00:26 GMT
+
+https://collider.com/for-all-mankind-season-5-finale-how-fans-will-react-creators-ben-nedivi-matt-wolpert-interview/
+
+Ben Nedivi and Matt Wolpert reveal their plans for the final Season 6, discuss the show's evolution, and what to expect from their spinoff, Star City.
+---------
+
+# The Most Iconic Western Movie of All Time Is Streaming for Free Beginning April 1
+
+Movie News, Western, Sergio Leone, The Good, the Bad, & the Ugly, Clint Eastwood
+
+Sat, 28 Mar 2026 10:00:26 GMT
+
+https://collider.com/clint-eastwood-the-good-the-bad-and-the-ugly-most-iconic-western-movie-of-all-time-streaming-free-tubi-april-2026/
+
+The Good, the Bad and the Ugly, starring Clint Eastwood, Lee Van Cleef, and Eli Wallach, begins streaming free on April 1.
+---------
+
+# Hulu’s 5-Part Thriller Series Is the Perfect One-Night Weekend Binge
+
+TV, Only Murders in the Building, Selena Gomez, Martin Short, Steve Martin
+
+Sat, 28 Mar 2026 09:57:23 GMT
+
+https://collider.com/hulus-5-part-thriller-series-is-the-perfect-one-night-weekend-binge/
+
+Selena Gomez, Martin Short and Steve Martin in Only Murders in the Building is ideal for a cozy night in this weekend.
+---------
+
+# Netflix’s 7-Part Sci-Fi Series Is So Good, People Are Rewatching It Multiple Times
+
+TV News, Black Mirror, Netflix, Sci-Fi, Charlie Brooker
+
+Sat, 28 Mar 2026 09:40:14 GMT
+
+https://collider.com/black-mirror-sci-fi-anthology-series-streaming-success-netflix-march-2026/
+
+Netflix's seven-part sci-fi explosion is lurking as the next perfect weekend binge for sci-fi fans. Here's what you should know about Black Mirror.
+---------
+
 # Hogwarts Legacy: After Dark Is The Kind Of Expansion We Always Wanted
 
 Gaming, Hogwarts Legacy
