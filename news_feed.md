@@ -1,3 +1,91 @@
+# Jack Black Wants To Star In New Adaptation Of 21-Year-Old Crime Video Game Series
+
+Movies, Yakuza, The Super Mario Galaxy Movie, Jack Black, Donald Glover
+
+Sat, 28 Mar 2026 19:37:27 GMT
+
+https://screenrant.com/jack-black-yakuza-adaptation-casting-pitch/
+
+Exclusive: In an interview with ScreenRant's Ash Crossan, Jack Black discussed his interest in getting to be involved in a video game adaptation.
+---------
+
+# Zelda: The Wind Waker Returns In Impressive Free Tech Demo
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker
+
+Sat, 28 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/zelda-wind-waker-free-tech-demo-2026/
+
+Zelda: The Wind Waker has been resurrected once again thanks to an impressive tech demo that can be played entirely in the browser.
+---------
+
+# After Raising Prices, Netflix Loses Major Court Case That Changes How It Operates
+
+TV, Netflix
+
+Sat, 28 Mar 2026 19:48:41 GMT
+
+https://www.cbr.com/netflix-loses-court-case-belgium/
+
+The streaming service faced a major setback in the EU.
+---------
+
+# Zelda's Worst Game Becomes Its Best With a Switch 2 Remake
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sat, 28 Mar 2026 19:36:13 GMT
+
+https://www.cbr.com/zelda-2-modern-switch-2-remake-better-than-ocarina-of-time/
+
+Ocarina of Time's Switch 2 remake is now Nintendo's most anticipated 2026 release, but Zelda 2 would've benefitted far more from a next-gen overhaul.
+---------
+
+# Bosch Prequel Reveals First Look at New Harry Bosch Actor
+
+TV, Bosch, Bosch: Start of Watch
+
+Sat, 28 Mar 2026 19:30:20 GMT
+
+https://www.cbr.com/bosch-prequel-cameron-monaghan-first-look/
+
+Titus Welliver's Bosch role has been recast, as seen in a first look at the upcoming spinoff series.
+---------
+
+# Lost Gundam Mecha Returns With Master Grade Model Kit Re-Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, toys, bandai
+
+Sat, 28 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/gundam-chars-counterattack-re-gz-master-grade-gunpla-release/
+
+After finally debuting on the big screen recently, a conceptual Mobile Suit Gundam model kit returns nearly 10 years after its original release.
+---------
+
+# Vanessa Kirby Was the Best Part of Netflix's The Crown With 81% on Rotten Tomatoes
+
+TV, The Crown, Netflix, History
+
+Sat, 28 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/vanessa-kirby-best-role-the-crown/
+
+Vanessa Kirby is a highly talented actress who delivered an amazing performance on an iconic Netflix show.
+---------
+
+# 10 Biggest DC Comics Superheroes With No Live-Action Adaptation, Ranked
+
+Movie Lists, DCU
+
+Sat, 28 Mar 2026 19:30:18 GMT
+
+https://movieweb.com/biggest-dc-comics-superheroes-with-no-live-action-adaptation-ranked/
+
+Although longtime DC readers are familiar with them, general audiences have yet to be introduced to Plastic Man or Power Girl among others.
+---------
+
 # Apple TV's Most Ambitious Sci-Fi Just Transformed Into An Epic Murder Mystery Series
 
 Streaming TV, For All Mankind
