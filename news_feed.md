@@ -1,3 +1,135 @@
+# 2 Upcoming Book Adaptations Will Compete For The Title Of 2026's Best Fantasy Show
+
+Streaming TV, House of the Dragon, Harry Potter, Game of Thrones, Fantasy
+
+Sat, 28 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/upcoming-fantasy-series-harry-potter-house-of-the-dragon-best-2026/
+
+HBO is competing with itself to dominate fantasy TV in 2026, bringing two of the most recognizable literary worlds in the genre to the small screen.
+---------
+
+# 2026's Newest Horror Movie Is Secretly A Culture-Defining 2004 Comedy In Disguise
+
+Movies, Mean Girls
+
+Sat, 28 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/forbidden-fruits-movie-mean-girls/
+
+Forbidden Fruits, released in 2026, is a horror comedy that pays homage to the iconic 2004 movie Mean Girls, exploring similar themes of toxic femininity and high school drama with a supernatural twist.
+---------
+
+# Prime Video's 4-Part Action Thriller Series Is So Good, It's Coming Back As A Movie
+
+Streaming TV, Tom Clancy's Jack Ryan, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, Thriller
+
+Sat, 28 Mar 2026 20:32:19 GMT
+
+https://screenrant.com/prime-video-tom-clancy-jack-ryan-series-coming-back-movie/
+
+Amazon has many strong original shows, but none so far have reached such heights that fan demand secured a return as a full-on feature-length outing.
+---------
+
+# Good Omens' New Adaptation Includes A Hidden Joke Terry Pratchett Would Have Loved
+
+Comics, Good Omens
+
+Sat, 28 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/good-omens-adaptation-new-joke-easter-egg/
+
+The latest Good Omens installment features a surprise appearance by an unexpected internet celebrity who makes a cameo only a few will understand.
+---------
+
+# Captain America Officially Outmatched By Green Goblin's Strength In Marvel Comics
+
+Marvel Comics, Captain America, Green Goblin, Marvel
+
+Sat, 28 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/green-goblin-16-times-stronger-captain-america/
+
+Captain America may be one of the strongest humans on Earth in the Marvel Universe, but this Spider-Man villain completely overshadows him.
+---------
+
+# Gamers Losing It Over Existence Of A Mario Shared Movie Universe
+
+Gaming, The Super Mario Galaxy Movie, Triple-A Games, Nintendo
+
+Sat, 28 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/mario-movie-universe-star-fox-fan-reaction/
+
+Mario's latest cinematic outing has already revealed several jaw-dropping announcements, but this latest reveal is its most exciting prospect yet.
+---------
+
+# If You Loved I Saw The TV Glow, You Can't Miss The Director's Next Movie
+
+Movies, I Saw the TV Glow
+
+Sat, 28 Mar 2026 20:30:19 GMT
+
+https://screenrant.com/i-saw-the-tv-glow-teenage-sex-at-camp-miasma-next-movie/
+
+I Saw the TV Glow has become a classic in the horror community, and director Jane Schoenbrun's next can't-miss film has potential to be even better.
+---------
+
+# All 4 Shrek Movies Are Coming to Hulu Starting April 1
+
+Movies, Shrek, Hulu, Animation
+
+Sat, 28 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/shrek-movies-streaming-hulu-april-2026/
+
+April brings exciting news for Shrek fans.
+---------
+
+# 10 Greatest Action Movie Masterpieces of the Last 100 Years, Ranked
+
+Movie, Action, Terminator 2: Judgment Day, Die Hard, Enter the Dragon
+
+Sat, 28 Mar 2026 20:45:13 GMT
+
+https://collider.com/best-action-movie-masterpieces-last-100-years-ranked/
+
+Modern hits like Mad Max: Fury Road and classics like Die Hard are among the action movies that are the best and most thrilling examples of the genre.
+---------
+
+# 45+ Years Later, One of the Greatest War Movies Ever Is Being Rewritten as a Streaming Hit on April 1
+
+Movie News, Apocalypse Now, War, Plex, streaming
+
+Sat, 28 Mar 2026 20:30:12 GMT
+
+https://collider.com/apocalypse-now-streaming-plex-april-2026/
+
+The greatest war film ever made, Apocalypse Now, is coming to a surprise streaming platform next month. Here's what you should know.
+---------
+
+# 7 Jason Statham Movies That Are Near-Perfect
+
+Movie, Jason Statham, Action, Spy, The Beekeeper
+
+Sat, 28 Mar 2026 20:29:12 GMT
+
+https://collider.com/jason-statham-movies-near-perfect/
+
+Jason Statham is the best modern action superstar, and movies like Spy and The Beekeeper are near-perfect examples of everything that makes him great.
+---------
+
+# The 11 Most Iconic TV Duos of All Time, Ranked
+
+TV Lists, Scrubs
+
+Sat, 28 Mar 2026 20:45:18 GMT
+
+https://movieweb.com/the-11-most-iconic-tv-duos-of-all-time-ranked/
+
+When it comes to duos on television, these iconic ones take the cake, delivering magic every time they're on screen together.
+---------
+
 # New GTA Leak Reveals Early Development Version
 
 Gaming, Grand Theft Auto 4, Grand Theft Auto, Triple-A Games, PC
