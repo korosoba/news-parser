@@ -1,3 +1,135 @@
+# The 7 Smartest Characters In The Alien Franchise, Ranked By Survival Strategy
+
+Movies, Alien, Alien 3, Alien Resurrection, Prometheus, Alien: Covenant
+
+Sat, 28 Mar 2026 17:15:18 GMT
+
+https://screenrant.com/alien-movie-series-smartest-characters-ranked-survival/
+
+You need to be much more than just lucky or smart to survive an Alien film, and these characters use everything they have to prevail.
+---------
+
+# Prime Video's 11-Part Thriller Series Is Quietly One Of Its Best Shows
+
+Streaming TV, The Devil's Hour, Thriller, Recommendation, Amazon Prime Video
+
+Sat, 28 Mar 2026 17:12:20 GMT
+
+https://screenrant.com/prime-video-the-devils-hour-best-shows-thriller/
+
+Despite its addictive story and incredible cast performances, this 100% RT Amazon Prime Original thriller has remained somewhat under the radar.
+---------
+
+# Taylor Sheridan’s Easy-To-Binge Western & More Paramount+ Shows Worth Watching This Weekend
+
+Streaming TV, Taylor Sheridan, Paramount Plus, What to Watch on Paramount+
+
+Sat, 28 Mar 2026 17:03:18 GMT
+
+https://screenrant.com/paramount-plus-new-shows-watch-this-weekend/
+
+Discover Taylor Sheridan's new neo-Western drama series The Madison and other underrated Paramount+ shows worth binge-watching this weekend.
+---------
+
+# Timothy Olyphant's Star Wars Character Is His Third Best Western Role
+
+Streaming TV, The Mandalorian, Timothy Olyphant, Star Wars, Deadwood, Justified
+
+Sat, 28 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/timothy-olyphant-star-wars-cobb-vanth-western-tv-roles/
+
+Explore Timothy Olyphant's impressive acting career, from his iconic Western roles in Deadwood and Justified to his standout performance as Cobb Vanth in The Mandalorian and Star Wars.
+---------
+
+# Steam's New Free Story-Driven Game Has 100 Percent Positive Reviews
+
+Gaming, Steam, PC, Indie
+
+Sat, 28 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/steam-free-story-driven-100-percent-reviews/
+
+A remarkable story-driven game with 100% positive reviews has just been released for free on Steam, and you shouldn't miss out on this freebie.
+---------
+
+# 39 Years Later, It's Time to Say Goodbye to Final Fantasy
+
+Games, Final Fantasy, Square Enix, JRPG
+
+Sat, 28 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/final-fantasy-franchise-reboot-square-enix/
+
+Final Fantasy might be at the end of its lifespan if it doesn't find a way to reinvent itself.
+---------
+
+# Ghostbusters Cartoon Now Streaming for Free on YouTube
+
+TV, The Real Ghostbusters, Ghostbusters
+
+Sat, 28 Mar 2026 17:00:12 GMT
+
+https://www.cbr.com/the-real-ghostbusters-youtube-free-streaming/
+
+Classic episodes of The Real Ghostbusters cartoon show are popping up on YouTube.
+---------
+
+# 10 Superheroes Who Could Actually Beat Homelander in a Fight
+
+TV, The Boys, Superhero, Invincible, WandaVision
+
+Sat, 28 Mar 2026 17:19:12 GMT
+
+https://collider.com/superheroes-could-beat-homelander-the-boys/
+
+Homelander might seem like an unstoppable force, but The Boys antagonist stands no chance against other superheroes, like Scarlet Witch and Omni-Man.
+---------
+
+# 2023's Forgotten Sci-Fi Adventure About an A.I. Future Is Now Streaming on Netflix
+
+Movie Features, The Creator, Gareth Edwards, John David Washington, Netflix
+
+Sat, 28 Mar 2026 17:09:13 GMT
+
+https://collider.com/the-creator-sci-fi-netflix-streaming-success-march-2026/
+
+Gareth Edwards’ sci-fi epic The Creator, starring John David Washington, is now available to stream on Netflix.
+---------
+
+# 10 Greatest War TV Shows You Can Binge in One Week, Ranked
+
+TV, Band of Brothers, Shogun, Barbarians, War
+
+Sat, 28 Mar 2026 17:04:12 GMT
+
+https://collider.com/best-war-shows-binge-one-week-ranked/
+
+Dive into the top war-themed TV shows that can be completed in just one week, including Band of Brothers, Shōgun, and Barbarians.
+---------
+
+# Ryan Gosling's $130M Action Flop Is Becoming 2026's New Cult Classic
+
+Movie News, The Fall Guy, Ryan Gosling, Emily Blunt, Prime Video
+
+Sat, 28 Mar 2026 17:00:13 GMT
+
+https://collider.com/ryan-gosling-failed-action-movie-the-fall-guy-streaming-success-prime-video-apple-tv-march-2026/
+
+While Project Hail Mary dominates the box office, Ryan Gosling's $130 million failed action epic is finally getting the attention it deserves.
+---------
+
+# Netflix's 'Assassin's Creed' Series: Release Window, Cast, Plot, & Everything We Know
+
+Features, Assassin's Creed, Everything We Know
+
+Sat, 28 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/netflix-assassins-creed-everything-we-know/
+
+Ten years after the movie adaptation, 'Assassin's Creed' is headed to the small screen via Netflix. Here's what we know.
+---------
+
 # Jenna Ortega Is Being Endorsed For Lead Role In Andy Weir's New Sci-Fi Movie After Project Hail Mary's Box Office Success
 
 Movies, Artemis
