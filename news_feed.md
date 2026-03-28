@@ -1,3 +1,47 @@
+# Steam Drops 4 Free Games To End March, No Catch
+
+Gaming, Steam
+
+Sat, 28 Mar 2026 07:53:31 GMT
+
+https://screenrant.com/steam-4-free-games-march-2026-deals/
+
+Steam gamers can download and keep these four games forever, no subscription, no catch whatsoever.
+---------
+
+# GTA 6 Release Date Update Leaks, Mark Your Calendars
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6, Rockstar Games
+
+Sat, 28 Mar 2026 07:52:59 GMT
+
+https://screenrant.com/gta-6-release-date-update-leaks-march-2026/
+
+Has GTA 6's release date changed again? A new leak confirms the latest with Rockstar's launch plans for the game.
+---------
+
+# Tom Hardy's $292M Sci-Fi Mind-Bender Surges to the Top of Global Streaming Charts
+
+Movie News, Inception, Tom Hardy, Christopher Nolan, Leonardo DiCaprio
+
+Sat, 28 Mar 2026 08:21:12 GMT
+
+https://collider.com/tom-hardy-bonkers-sci-fi-movie-inception-streaming-success-hbo-max-march-2026/
+
+Over 10 years later, Inception, Tom Hardy's bonkers sci-fi movie that warped the entire genre, is still a streaming favorite.
+---------
+
+# Cillian Murphy's Forgotten $40M Sci-Fi Film Is Coming to Free Streaming This April
+
+Movie News, Sunshine, Sci-Fi, Danny Boyle, Cillian Murphy
+
+Sat, 28 Mar 2026 08:00:12 GMT
+
+https://collider.com/cillian-murphy-sunshine-underrated-sci-fi-thriller-of-the-2000s-free-streaming-tubi-april-2026/
+
+Sunshine, 2007's sci-fi thriller from Danny Boyle & Alex Garland, begins streaming free next month. Find out where to watch the Cillian Murphy film.
+---------
+
 # Xbox Game Pass Offering Bonus Free Game For Only 24 More Hours
 
 Gaming, Xbox Game Pass
