@@ -1,3 +1,157 @@
+# Apple TV's Most Ambitious Sci-Fi Just Transformed Into An Epic Murder Mystery Series
+
+Streaming TV, For All Mankind
+
+Sat, 28 Mar 2026 19:16:20 GMT
+
+https://screenrant.com/apple-tv-for-all-mankind-sci-fi-season-5-murder-mystery/
+
+Apple TV is getting creative with the way they approach sci-fi storytelling, and it's the perfect way to grow the audience as the show expands.
+---------
+
+# Sydney Sweeney Is “Totally Wrong” For Upcoming Role Says Subject Of New Movie
+
+Movies, Sydney Sweeney
+
+Sat, 28 Mar 2026 19:07:41 GMT
+
+https://screenrant.com/scandalous-sydney-sweeney-kim-novak-role-dispute/
+
+Sydney Sweeney has become truly Scandalous, and Kim Novak doesn't approve of the actress in her upcoming role as Novak in a movie about her life.
+---------
+
+# Taylor Sheridan & Sylvester Stallone’s Gritty Crime Series Gets Exciting Season 4 Return Update Ahead Of New Spinoff
+
+TV, Tulsa King
+
+Sat, 28 Mar 2026 19:02:42 GMT
+
+https://screenrant.com/tulsa-king-season-4-filming-production-wrap/
+
+Taylor Sheridan's collaboration with Sylvester Stallone gets a new season 4 update, hinting at when the hit crime thriller series may return.
+---------
+
+# 10 Things We Want From Mike Flanagan's Carrie Reboot
+
+Streaming TV, Carrie
+
+Sat, 28 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/carrie-mike-flanagan-reboot-things-we-want/
+
+Mike Flanagan's highly-anticipated Carrie show must include some of the best features from Stephen King's iconic horror book and the movie remakes.
+---------
+
+# Diablo 2 Just Got A First-Person Remake I Didn't Know I Needed
+
+Gaming, Diablo 2, Diablo
+
+Sat, 28 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/diablo-2-first-person-remake-unofficial/
+
+A Diablo 2 fan is remaking the game in first-person, and it looks kind of brilliant – even though we’ll probably never be able to play it ourselves.
+---------
+
+# Apple TV’s Sci-Fi Drama With Near-Perfect Rotten Tomatoes Score Is Worth Watching – Plus 3 More Shows This Weekend
+
+Streaming TV, Apple TV, What to Watch on Apple TV+
+
+Sat, 28 Mar 2026 18:43:19 GMT
+
+https://screenrant.com/apple-tv-new-shows-watch-weekend/
+
+Discover the highly anticipated season 5 premiere of Apple TV's acclaimed sci-fi drama For All Mankind and explore new must-watch series this weekend.
+---------
+
+# 7 Magical Anime Witch Hat Atelier Needs to Beat to Win as Best New Fantasy of 2026
+
+Anime
+
+Sat, 28 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-best-new-fantasy-anime-competition/
+
+With competition like Sentenced to Be a Hero and Monster Eater, the road to becoming 2026’s top fantasy anime will not be easy for Witch Hat Atelier.
+---------
+
+# 6 Words From James Cameron's Aliens are Still the in Action Movie History
+
+Movies, aliens, Action, Sci-Fi
+
+Sat, 28 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/aliens-ripley-greatest-quote-in-action-movie-history/
+
+James Cameron's Aliens is a near-perfect action sequel, but the one thing that no one can argue is that it has one of Ellen Ripley's best quotes.
+---------
+
+# This Dark Fantasy Anime Is the Only Hope of Redeeming Chainsaw Man & JJK’s Endings
+
+Anime, Hell's Paradise: Jigokuraku, Jujutsu Kaisen, Chainsaw Man
+
+Sat, 28 Mar 2026 18:41:15 GMT
+
+https://www.cbr.com/jjk-season-3-finale-chainsaw-man-ending-hells-paradise-future/
+
+After unsatisfying conclusions to both Chainsaw Man and Jujutsu Kaisen, the final member of the Dark Trio is the only hope for its redemption.
+---------
+
+# The Greatest Western Movie Ever Made Is Free To Stream on April 3
+
+Movie News, A Fistful of Dollars, Clint Eastwood, Western, Sergio Leone
+
+Sat, 28 Mar 2026 19:00:13 GMT
+
+https://collider.com/clint-eastwood-a-fistful-of-dollars-greatest-western-movie-free-streaming-kanopy-april-2026/
+
+A Fistful of Dollars, Sergio Leone’s landmark 1964 Western starring Clint Eastwood, will be free to stream on Kanopy starting April 3.
+---------
+
+# 40 Years Later, It’s Time the Best Sci-Fi Classic Ever Gets the Reboot It Needs
+
+TV Features, NBC, V: The Final Battle, Warner Bros., Sci-Fi
+
+Sat, 28 Mar 2026 18:45:12 GMT
+
+https://collider.com/v-sci-fi-tv-show-reboot-series/
+
+Despite previous attempts, V is still one of those classic sci-fi shows that hasn't been properly reimagined, and it's time we fix that with a reboot.
+---------
+
+# Prime Video's Forgotten 8-Episode Sci-Fi Series Is the Perfect One-Night Weekend Binge
+
+TV Features, Paper Girls, Sci-Fi, Ali Wong, Prime Video
+
+Sat, 28 Mar 2026 18:38:12 GMT
+
+https://collider.com/paper-girls-prime-video-sci-fi-perfect-weekend-binge/
+
+Prime Video's Paper Girls is an 8-episode sci-fi series that weaves a compelling coming-of-age story through time travel and friendship.
+---------
+
+# How 'The Sopranos' Season 6 Ruined Dr. Melfi & Loraine Bracco's Take On It
+
+Features, The Sopranos, Quote
+
+Sat, 28 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/the-sopranos-season-6-ruined-dr-melfi/
+
+Dr. Melfi's abrupt exit in Season 6 of 'The Sopranos' made little sense, something actress Loraine Bracco agrees.
+---------
+
+# 'Freaky' Is an Underrated Horror Comedy For 'Ready Or Not' Fans
+
+Features, Freaky, Kathryn Newton
+
+Sat, 28 Mar 2026 18:31:17 GMT
+
+https://movieweb.com/freaky-kathryn-newton-underrated-horror/
+
+'Freaky,' Kathryn Newton and Vince Vaughn's body-swap slasher horror movie, was directed by Christopher Landon and released in 2020.
+---------
+
 # Attack on Titan's Studio is Back With a Gorgeous New Fantasy Anime
 
 Anime, Crunchyroll
