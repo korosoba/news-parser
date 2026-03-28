@@ -1,3 +1,124 @@
+# Prime Video’s Answer To Neuromancer Looks Like Cyberpunk Perfection In New Trailer
+
+Anime, Ghost in the Shell
+
+Sat, 28 Mar 2026 17:52:55 GMT
+
+https://screenrant.com/ghost-in-the-shell-trailer-prime-video-cyberpunk/
+
+The Ghost in the Shell, set to premiere on Prime Video in July 2026, showcases a retro '80s cyberpunk aesthetic in its latest explosive trailer.
+---------
+
+# 10 Best Non-James Bond Spy Movies, Ranked
+
+Movies
+
+Sat, 28 Mar 2026 17:45:19 GMT
+
+https://screenrant.com/best-spy-movies-not-james-bond-ranked/
+
+These spy movies tell exciting stories of intrigue in all kinds of different styles, with many being held among the best films ever made.
+---------
+
+# Donald Glover Reveals The True Story Behind His Yoshi Casting In The Super Mario Galaxy Movie
+
+Exclusive, The Super Mario Galaxy Movie, Super Mario Bros.
+
+Sat, 28 Mar 2026 17:37:52 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-donald-glover-yoshi-casting-story-explanation/
+
+EXCLUSIVE: The Super Mario Galaxy Movie is already filled with stars, and Donald Glover reveals the true story behind his casting for Yoshi.
+---------
+
+# One Piece Officially Returns With A New Trailer, And The Animation Upgrade Is Stunning
+
+Anime, One Piece
+
+Sat, 28 Mar 2026 17:37:45 GMT
+
+https://screenrant.com/one-piece-elbaph-arc-trailer-opening/
+
+Discover the exciting changes in store for the One Piece anime as it officially returns with a new trailer for the Elbaph Arc.
+---------
+
+# Prime Video's New Comedy Series Kevin: The Perfect BoJack Horseman Replacement
+
+Streaming TV, Kevin, BoJack Horseman
+
+Sat, 28 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/kevin-prime-video-comedy-bojack-horseman-replacement/
+
+Six years after BoJack Horseman ended on Netflix, Prime Video has finally found the perfect replacement for this landmark adult animated comedy.
+---------
+
+# 10 Near-Perfect Anime That Don’t Just Live Up to the Hype, They Exceed It
+
+Anime
+
+Sat, 28 Mar 2026 17:30:19 GMT
+
+https://screenrant.com/perfect-anime-deserve-hype/
+
+Perfection in anime is a rarity. These anime, however, achieve it with relative ease.
+---------
+
+# What's Coming to Pluto TV in April 2026? Full List of Free Titles
+
+TV, Pluto
+
+Sat, 28 Mar 2026 17:54:29 GMT
+
+https://www.cbr.com/whats-coming-to-pluto-tv-in-april-2026-full-list/
+
+Streaming services usually reshuffle their slates every month, and this is true for free streaming platforms, too.
+---------
+
+# New Harry Potter Series Breaks HBO's Trailer Record
+
+TV, Harry Potter
+
+Sat, 28 Mar 2026 17:36:36 GMT
+
+https://www.cbr.com/harry-potter-series-hbo-trailer-record/
+
+Nine months ahead of its release, Harry Potter is already breaking records.
+---------
+
+# Yu-Gi-Oh! Turns the Millennium Puzzle Into an Official Pocket Watch for Duel Time
+
+Anime, Yu-Gi-Oh!, merchandise, Yu-Gi-Oh! Duel Monsters
+
+Sat, 28 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/yu-gi-oh-millennium-puzzle-pocket-watch-release/
+
+Anime and card game fans who always wanted to unlock the Millennium Puzzle can do so with an upcoming new Yu-Gi-Oh! pocket watch from SuperGroupies.
+---------
+
+# 10 Most Chaotic Movies of All Time, Ranked
+
+Movie, Everything Everywhere All at Once, Godzilla: Final Wars, Southland Tales, Swiss Army Man
+
+Sat, 28 Mar 2026 17:52:13 GMT
+
+https://collider.com/most-chaotic-movies-all-time-ranked/
+
+The most chaotic movies of all time include action flicks like Kung Fu Hustle and sci-fi films like Southland Tales and Tetsuo: The Iron Man.
+---------
+
+# Stephen Colbert Has the Perfect Follow-up After 'Late Show' Cancellation
+
+Features, The Lord of the Rings, The Lord of the Rings: Shadow of the Past
+
+Sat, 28 Mar 2026 17:31:17 GMT
+
+https://movieweb.com/stephen-colbert-lord-of-the-rings-movie/
+
+Stephen Colbert's next project after 'The Late Show' is completely in his wheelhouse.
+---------
+
 # The 7 Smartest Characters In The Alien Franchise, Ranked By Survival Strategy
 
 Movies, Alien, Alien 3, Alien Resurrection, Prometheus, Alien: Covenant
