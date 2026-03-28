@@ -1,3 +1,157 @@
+# The Complete Evolution Of Jason Voorhees's Live-Action Appearances
+
+Horror, Friday the 13th, Jason Voorhees, Friday the 13th Part 2, Friday the 13th Part III, Friday the 13th: The Final Chapter, Friday the 13th: A New Beginning, Friday the 13th Part VI: Jason Lives, Friday the 13th Part VII: The New Blood, Friday the 13th Part VIII: Jason Takes Manhattan, Jason Goes To Hell: The Final Friday, Jason X, Freddy vs. Jason
+
+Sat, 28 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/jason-voorhees-live-action-appearances-evolution/
+
+From a shocking twist to a supernatural force, Jason Voorhees transformed significantly throughout the iconic Friday the 13th franchise.
+---------
+
+# Boruto's New Anime Will Prove the Haters Wrong & This New Teaser Proves It
+
+Anime, Boruto: Two Blue Vortex, Boruto: Naruto Next Generations
+
+Sat, 28 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-teaser-prove-haters-wrong/
+
+Boruto: Two Blue Vortex just dropped a stunning new teaser and it proves the anime will be much better than fans hoped.
+---------
+
+# Xbox Drops Free Crimson Desert Download You Won't Need Game Pass For
+
+Gaming, Crimson Desert, Xbox Game Pass, Xbox Series X/S
+
+Sat, 28 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/xbox-free-download-crimson-desert-no-game-pass/
+
+Xbox has dropped a surprise Crimson Desert freebie that you can claim now, with or without Xbox Game Pass.
+---------
+
+# Jack Black’s 10 Highest-Grossing Movies
+
+Classic Movies, Jack Black
+
+Sat, 28 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/jack-black-movies-highest-grossing/
+
+Jack Black has established himself as one of the highest-grossing actors in Hollywood today, but which of his blockbusters made the most money?
+---------
+
+# Jensen Ackles Officially Confirms Vought Rising's Future Ahead of Season 1 Debut
+
+TV, The Boys, Vought Rising
+
+Sat, 28 Mar 2026 21:16:31 GMT
+
+https://www.cbr.com/jensen-ackles-vought-rising-multiple-seasons-plan/
+
+The prequel series is set to premiere after the flagship series' finale.
+---------
+
+# The Godzilla Franchise Just Paid Homage to DBZ’s Most Infamous Death
+
+Anime, Dragon Ball, Dragon Ball Z, Godzilla
+
+Sat, 28 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/dragon-ball-yamcha-death-pose-godzilla/
+
+One of Dragon Ball Z's most infamous deaths has been recreated time and time again, but the latest homage comes from major, billion-dollar franchise.
+---------
+
+# Spider-Man: Brand New Day Trailer's Comic Book Counterparts Explained
+
+Comics, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sat, 28 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-trailer-comic-comparison/
+
+It's a brand new day for Spider-Man.
+---------
+
+# Netflix's The Diplomat Is an Addictive Weekend Binge
+
+TV, The Diplomat, Netflix, Keri Russell
+
+Sat, 28 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/netflix-the-diplomat-perfect-weekend-binge/
+
+This political thriller on Netflix stars Keri Russell as a high-profile figure during a crisis.
+---------
+
+# Scott Snyder Teases The Absolute Batman Villain, Poison Ivy, Levels Up And 'Comes Back In A Big Way"
+
+Comics, Absolute Batman, DCU, DC Comics
+
+Sat, 28 Mar 2026 20:56:37 GMT
+
+https://www.cbr.com/scott-snyder-teases-absolute-batman-villain-poison-ivy-level-up-return-soon/
+
+An already seriously powered enemy of Absolute Batman is about to level-up with powers that no one ever saw coming.
+---------
+
+# One of the Best Racing Movies of All Time Is Officially on Apple TV
+
+Movie News, Apple TV, F1, streaming, Brad Pitt
+
+Sat, 28 Mar 2026 21:15:12 GMT
+
+https://collider.com/apple-tv-oscar-winner-f1-streaming-milestone-march-2026/
+
+Apple TV's Oscar-winning sports flick starring Brad Pitt has just achieved an enormous streaming milestone. Read on for more details about F1.
+---------
+
+# Jimi Hendrix's Music Career Changed After Meeting a Future Bandmate in the Army
+
+Music Features, Jimi Hendrix, Music, Rock, Jimi Hendrix: Voodoo Child
+
+Sat, 28 Mar 2026 21:10:25 GMT
+
+https://collider.com/jimi-hendrix-music-career-changed-after-meeting-future-bandmate-in-army/
+
+Jimi Hendrix's friendship with fellow soldier Billy Cox in the Army laid the foundation for his music career, leading to the formation of The King Kasuals and eventual stardom.
+---------
+
+# NBC’s Cult-Classic Sci-Fi Series Is Perfect From Start to Finish 10 Years Later
+
+TV Features, Timeless, Matt Lanter, Abigail Spencer, Malcolm Barrett
+
+Sat, 28 Mar 2026 21:10:13 GMT
+
+https://collider.com/timeless-nbc-cult-classic-sci-fi-series-perfect/
+
+Timeless follows the time-traveling trio as they navigate historical missions and personal drama, all while trying to save the timeline.
+---------
+
+# Paramount+ Is Officially Removing Oscar Isaac's Mind-Bending Sci-Fi Classic
+
+Movie News, Oscar Isaac, Natalie Portman, Annihilation, Alex Garland
+
+Sat, 28 Mar 2026 21:00:12 GMT
+
+https://collider.com/oscar-isaac-mindbending-sci-fi-gem-annihilation-leaving-paramount-plus-may-2026/
+
+Aside from Ex Machina, Oscar Isaac appeared in another underrated sci-fi gem that same decade and you're running out of time to watch it.
+---------
+
+# 10 Most Divisive Star Wars Decisions George Lucas Ever Made
+
+Movie Lists, Star Wars, George Lucas
+
+Sat, 28 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/divisive-george-lucas-star-wars-decisions/
+
+Since the era of the Star Wars prequels, fans have had their issues with George Lucas’ creative decisions.
+---------
+
 # 2 Upcoming Book Adaptations Will Compete For The Title Of 2026's Best Fantasy Show
 
 Streaming TV, House of the Dragon, Harry Potter, Game of Thrones, Fantasy
