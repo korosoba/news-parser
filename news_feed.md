@@ -1,3 +1,135 @@
+# James Marsden Addresses If Hugh Jackman's Wolverine Is In Avengers: Doomsday
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, James Marsden, Hugh Jackman, Wolverine, X-Men
+
+Sat, 28 Mar 2026 23:20:28 GMT
+
+https://screenrant.com/avengers-doomsday-hugh-jackman-wolverine-missed-james-marsden/
+
+James Marsden discusses whether his character, Cyclops, is reuniting with Hugh Jackman's Wolverine amid other X-Men returning in Avengers: Doomsday.
+---------
+
+# Rebecca Ferguson & Andrew Garfield's New Fantasy Epic Based On 87-Year-Old Classic Series Debuts To Perfect Rotten Tomatoes Score
+
+Movies, The Magic Faraway Tree, The Magic Faraway Tree (2025)
+
+Sat, 28 Mar 2026 23:00:22 GMT
+
+https://screenrant.com/the-magic-faraway-tree-movie-rotten-tomatoes-score-rebecca-ferguson-andrew-garfield/
+
+Rebecca Ferguson and Andrew Garfield star in a new fantasy adaptation of a classic story, which has debuted with a perfect Rotten Tomatoes score.
+---------
+
+# So What's The Deal With Coldies Frozen Custard In Something Very Bad Is Going To Happen?
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Sat, 28 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-coldies-ice-cream-explained/
+
+The creepy story of Jerry Poole and Coldies Frozen Custard plays a more important role in Something Very Bad Is Going to Happen than you may think.
+---------
+
+# Grand Theft Auto 6 Won't Be Able To Make Up For The Franchise's Biggest Mistake
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Sat, 28 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/gta-6-launch-gta-5-dlc-mistake/
+
+Grand Theft Auto 6 has plenty of potential to fix it's predecessors mistakes, but even with all the hype, this one decision isn't likely to change.
+---------
+
+# Spider-Man Brand New Day Is Adapting Something Darker Than the Man-Spider
+
+Comics, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 28 Mar 2026 23:00:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-adapt-other/
+
+Spider-Man fans may think that Brand New Day is adapting Man-Spider into the MCU, but there is a darker comic storyline that makes more sense.
+---------
+
+# Red Dead Redemption 2 DLC Officially 100% Free for March 2026
+
+Games, Red Dead Redemption 2
+
+Sat, 28 Mar 2026 23:20:51 GMT
+
+https://www.cbr.com/red-dead-redemption-2-dlc-free-march-2026/
+
+Red Dead Redemption 2 players get some freebies before the month is over.
+---------
+
+# 2026 DC/Marvel TV Tournament - Elite Eight, Day One!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Sat, 28 Mar 2026 23:15:25 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-elite-eight-day-one/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. We have hit the Elite 8!
+---------
+
+# 10 Hardest '80s Retro Games of All Time, Ranked by Difficulty
+
+Games, retro games
+
+Sat, 28 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/hardest-80s-retro-games-all-time-ranked-by-difficulty-list/
+
+Even the hardest modern games can't hold a candle to the brutally difficult games of the '80s.
+---------
+
+# Prime Video's Tales from the Loop Is the Best Slow-Burn Sci-Fi Show
+
+TV, Sci-Fi, Tales from the Loop, Prime Video
+
+Sat, 28 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/prime-video-tales-from-the-loop-best-slow-burn-sci-fi-show/
+
+Based on Simon Stålenhag’s artwork, Prime Video's Tales from the Loop swaps sci-fi action for emotional and atmospheric nostalgia.
+---------
+
+# ‘John Wick’ Meets ‘Home Alone’ in Joel Kinnaman’s 104-Minute Action Film Coming to Hulu
+
+Movie News, Silent Night, Joel Kinnaman, John Woo, Action
+
+Sat, 28 Mar 2026 23:15:12 GMT
+
+https://collider.com/john-wick-meets-home-alone-joel-kinnaman-action-flop-silent-night-streaming-hulu-april-2026/
+
+Joel Kinnaman's ambitious action film Silent Night, which marked the Hollywood comeback of John Woo, is coming to Hulu. Find out when.
+---------
+
+# 13 Years Later, Dwayne Johnson’s Forgotten Crime Thriller Hits a New Streaming Platform
+
+Movie News, Dwayne Johnson, Empire State, Plex, Liam Hemsworth
+
+Sat, 28 Mar 2026 23:00:13 GMT
+
+https://collider.com/dwayne-johnson-forgotten-crime-thriller-empire-state-streaming-on-plex-april-2026/
+
+Dwayne Johnson's forgotten true crime movie, Empire State, is coming to a new streamer next month. Here's what you should know.
+---------
+
+# Forget 'Scarpetta,' 'Cruel Summer' Is Actually a Superior Thriller
+
+Features, Comparison Recommendation, Cruel Summer, Scarpetta
+
+Sat, 28 Mar 2026 23:01:17 GMT
+
+https://movieweb.com/cruel-summer-better-thriller-than-scarpetta/
+
+While 'Scarpetta' is a big hit on Amazon Prime Video, the thriller 'Cruel Summer,' which aired on Freeform for two seasons, is much better.
+---------
+
 # Guy Ritchie’s 8-Part Netflix Series Is A Must-Watch For Crime Drama Fans
 
 Streaming TV, The Gentlemen
