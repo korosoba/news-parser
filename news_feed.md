@@ -1,3 +1,157 @@
+# Prime Video's New The Boys Series Is Intended For Multiple Seasons After Season 5 Ends, Says Jensen Ackles
+
+TV, The Boys, Vought Rising
+
+Sat, 28 Mar 2026 16:23:23 GMT
+
+https://screenrant.com/the-boys-spinoff-vought-rising-multiple-seasons-plan-jensen-ackles/
+
+Jensen Ackles shares a new update on Vought Rising, teasing an exciting future for the spinoff series as The Boys season fast approaches.
+---------
+
+# The Character Who Inspired The Punisher Is Finally Getting A Movie, Which Rules Out One Perfect Casting Choice
+
+Movies, The Punisher, Jon Bernthal
+
+Sat, 28 Mar 2026 16:20:18 GMT
+
+https://screenrant.com/punisher-executioner-inspiration-movie-shane-black-jon-bernthal/
+
+The character who inspired The Punisher is finally getting a movie adaptation of his own, but the perfect actor isn't available to star.
+---------
+
+# Ryan Reynolds & Jason Momoa's R-Rated Comedy Gets Delayed By 8 Months
+
+Movies, Animal Friends
+
+Sat, 28 Mar 2026 16:02:31 GMT
+
+https://screenrant.com/animal-friends-ryan-reynolds-jason-momoa-release-delay/
+
+Warner Bros. pushes 'Animal Friends,' starring Ryan Reynolds and Jason Momoa, to 2027 in a strategic move for the R-rated comedy.
+---------
+
+# Prime Video's The Boys Just Got Better & Better Before Its Final Season
+
+Streaming TV, The Boys
+
+Sat, 28 Mar 2026 16:02:18 GMT
+
+https://screenrant.com/the-boys-prime-video-gets-better-before-season-5/
+
+The Boys is one of the best modern TV shows, and the series got even better before its final season, which looks set to be shocking and explosive.
+---------
+
+# Netflix Is Already Ruining Its Biggest Anime Hit
+
+Anime, Netflix, JoJo's Bizarre Adventure, Jojo's Bizarre Adventure
+
+Sat, 28 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-steel-ball-run-netflix-generational-fumble/
+
+How Netflix is ruining its next big anime.
+---------
+
+# 6 Spider-Man: The Animated Series Episodes To Watch Before Brand New Day
+
+Classic TV, Spider-Man: The Animated Series, Spider-Man: Brand New Day
+
+Sat, 28 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/spider-man-animated-series-episodes-watch-before-brand-new-day/
+
+Spider-Man: Brand New Day can't come soon enough, and these 6 episodes from the animated 90s hit are sure to get you in the mood ahead of its release.
+---------
+
+# GTA 6 Fans Hyped For New Mechanic With Real-Life Inspiration
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games
+
+Sat, 28 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/gta-6-drawbridge-mechanic-vice-city-map/
+
+If Grand Theft Auto 6 is a realistic and immersive as it is poised to be, it is possible that the open world will have a unique inspiration in it.
+---------
+
+# Netflix's Take On Reacher Accidentally Adapts One Of The Books Better Than The Official Series
+
+Movies, Jack Reacher: Never Go Back, Jack Reacher, Rebel Ridge
+
+Sat, 28 Mar 2026 15:55:18 GMT
+
+https://screenrant.com/reacher-rebel-ridge-adaptation-accidental-better-no-kill/
+
+The most disappointing Jack Reacher adaptation removed a key part of the book, but a Netflix rival accidentally did a better job with it.
+---------
+
+# Witch Hat Atelier Anime Release Date & Time
+
+Anime, Witch Hat Atelier, Fantasy
+
+Sat, 28 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-anime-premiere-crunchyroll-release-date-time/
+
+The world has been holding its breath for the Witch Hat Atelier anime to begin, and now its finally here.
+---------
+
+# Tom Felton's Period Comedy Fackham Hall Is Climbing Up the Charts on HBO Max
+
+Movies, Fackham Hall, They Will Kill You
+
+Sat, 28 Mar 2026 16:01:12 GMT
+
+https://www.cbr.com/tom-felton-fackham-hall-continues-hbo-max-success-march-2026/
+
+Tom Felton has been extremely busy these last few years.
+---------
+
+# This Brutal ’90s Sci-Fi Horror Cult Favorite Will Be Unlocked on Streaming April 17
+
+Movie News, Sci-Fi, Event Horizon, Laurence Fishburne, Sam Neill
+
+Sat, 28 Mar 2026 16:00:13 GMT
+
+https://collider.com/event-horizon-underrated-sci-fi-of-the-1990s-free-streaming-kanopy-april-2026/
+
+Event Horizon, the 1997 sci-fi horror cult classic starring Laurence Fishburne and Sam Neill, will be free to stream on Kanopy on April 17.
+---------
+
+# Ryan Reynolds & Jason Momoa's 'Animal Friends' Sets January 2027 Release Date
+
+Movie News, Animal Friends, Jason Momoa, Ryan Reynolds
+
+Sat, 28 Mar 2026 16:25:05 GMT
+
+https://movieweb.com/ryan-reynolds-jason-momoa-release-date-animal-friends/
+
+Delayed for years, Ryan Reynolds and Jason Momoa's new comedy 'Animal Friends' is now set to hit theaters in January 2027.
+---------
+
+# Netflix To Remove Its Entire 'James Bond' Catalog Ahead
+
+Movie News, James Bond, Coming/Leaving Streaming, Netflix
+
+Sat, 28 Mar 2026 16:00:19 GMT
+
+https://movieweb.com/netflix-removing-all-james-bond-movies-from-streaming-april-2026/
+
+The most iconic action franchise ever made is leaving Netflix next month ahead of Amazon's long-awaited reboot of the legendary series.
+---------
+
+# Ryan Gosling's 'First Man' Is a Great Double Feature With 'Project Hail Mary'
+
+Features, Project Hail Mary, First Man, Ryan Gosling, Holds Up
+
+Sat, 28 Mar 2026 16:00:19 GMT
+
+https://movieweb.com/ryan-gosling-project-hail-mary-first-man/
+
+Eight years before 'Project Hail Mary', Ryan Gosling played real-life astronaut Neil Armstrong in 'First Man', a forgotten sci-fi movie worth seeing.
+---------
+
 # Elizabeth Taylor's Most Infamous Marriage Teased For Season 2 Of Hulu's Controversial TV Series
 
 TV, Love Story
