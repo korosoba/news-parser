@@ -1,3 +1,69 @@
+# Elizabeth Taylor's Most Infamous Marriage Teased For Season 2 Of Hulu's Controversial TV Series
+
+TV, Love Story
+
+Sat, 28 Mar 2026 15:54:08 GMT
+
+https://screenrant.com/love-story-season-2-elizabeth-taylor-richard-burton-story-teased/
+
+Ryan Murphy's controversial series Love Story has reached its tragic end, and Elizabeth Taylor's relationship could be the next focus for season 2.
+---------
+
+# Homelander's Antony Starr Candidly Addresses Fan-Favorite Casting For Live-Action Resident Evil Role
+
+Movies, Resident Evil
+
+Sat, 28 Mar 2026 15:35:47 GMT
+
+https://screenrant.com/anthony-starr-resident-evil-albert-wesker-live-action-fan-casting-response/
+
+The Boys actor Anthony Starr shares his thoughts on being fan-cast for the role of Albert Wesker in the upcoming Resident Evil live-action film, expressing uncertainty but openness to the opportunity.
+---------
+
+# Upcoming Sci-Fi Series Based On A Post-Apocalyptic Novel Rewrites The Rules Of Dystopian Shows
+
+Streaming TV, Sci-Fi
+
+Sat, 28 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/seveneves-tv-show-time-jump-rewrites-rules/
+
+One bold move in adapting Seveneves for television could make it the most exciting upcoming dystopian sci-fi show, rewriting genre conventions.
+---------
+
+# Sonic 4’s Secret Villain Is Hidden In Plain Sight According To Convincing Movie Theory
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Sat, 28 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/sonic-4-secret-villain-chaos-trailer-theory/
+
+A convincing theory about Sonic the Hedgehog 4 indicates a secret villain from the games is actually hiding in plain sight.
+---------
+
+# "This Feels Illegal": Pokopia Fan Breaks A Longstanding Series' Tradition
+
+Gaming, Pokemon Pokopia, Pokemon, Triple-A Games
+
+Sat, 28 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/pokemon-pokopia-poke-center-bikes-player-freedom/
+
+Pokémon Pokopia has no shortage of Easter eggs and references, but one fan has already found a way to defy one of the series' most memorable phrases.
+---------
+
+# 30 Best Slice-of-Life Anime
+
+Anime, Romance, Action, Comedy
+
+Sat, 28 Mar 2026 15:45:12 GMT
+
+https://www.cbr.com/best-slice-life-anime-ranked/
+
+Slice-of-life anime takes viewers on a quiet journey, sometimes through a romance, explorations of life's meanings, or hilarious hijinks.
+---------
+
 # Project Hail Mary Box Office Extends Amazon's Record-Breaking Run With Minuscule Week 2 Drop
 
 Movies, Box Office, Project Hail Mary
