@@ -1,3 +1,146 @@
+# Star Trek Should Boldly Go Back To Network TV
+
+TV, Star Trek, Op-Ed, Quiz CV
+
+Sat, 28 Mar 2026 22:05:18 GMT
+
+https://screenrant.com/star-trek-return-to-network-tv-op-ed/
+
+The streaming era of Star Trek has been inconsistent, and the legendary sci-fi franchise should boldly go back to its roots on network TV.
+---------
+
+# Netflix's 2-Part True Crime Thriller Is The Closest We Have Come To A Film Noir Revival
+
+Classic TV, Mindhunter
+
+Sat, 28 Mar 2026 22:02:19 GMT
+
+https://screenrant.com/netflix-mindhunter-film-noir-crime-thriller/
+
+Netflix's true crime masterpiece, Mindhunter was a triumph that was cancelled too soon, and it is the closest that TV has brought us to film noir.
+---------
+
+# This Overlooked Political Drama Had A Stacked Cast, And It's Finally Coming To Streaming
+
+TV, Jack & Bobby
+
+Sat, 28 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/jack-bobby-political-drama-hulu-streaming/
+
+A future president will be streaming soon.
+---------
+
+# Zelda's Worst-Ever Dungeon Isn't The Water Temple, It's This Nightmare
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Sat, 28 Mar 2026 22:00:19 GMT
+
+https://screenrant.com/zelda-worst-ever-dungeon-ocarina-of-time/
+
+The worst dungeon in The Legend Of Zelda: Ocarina of Time is not the Water Temple, and it never was.
+---------
+
+# 10 Forgotten 2010s Movies That Have Aged Like Fine Wine
+
+Movies, Recommendation, Forgotten
+
+Sat, 28 Mar 2026 21:55:19 GMT
+
+https://screenrant.com/forgotten-2010s-movies-aged-fine-wine/
+
+The 2010s were a great decade for movies, but there are plenty of gems that have slipped through the cracks or been neglected by film fans.
+---------
+
+# 13 Years Later, Andy Bernard's Greatest Office Line Is Still One Of The Best Quotes In Sitcom History
+
+Classic TV, The Office
+
+Sat, 28 Mar 2026 21:55:09 GMT
+
+https://screenrant.com/the-office-andy-bernard-finale-quote-best-sitcom-history/
+
+Andy Bernard's poignant line from The Office finale captures a universal truth about life, making it one of the most best sitcom quotes of all time.
+---------
+
+# 6 Classic Manga Masterpieces Long Overdue For an Official Anime Adaptation
+
+Anime, Manga
+
+Sat, 28 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/classic-manga-masterpieces-need-anime-adaptations/
+
+Beloved manga like REAL and 20th Century Boys have all the ingredients for incredible anime series, but that is yet to happen.
+---------
+
+# CBS Finally Breaks NCIS' Disappointing Gibbs And Lala Romance Trend
+
+TV, NCIS, NCIS: Origins, CBS
+
+Sat, 28 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/ncis-origins-season-2-episode-12-mary-jo-hayes-romance/
+
+It's been a heartbreaking run for Gibbs and his team in NCIS: Origins, but CBS finally breaks the trend with a shocking story in Season 2.
+---------
+
+# 24 Years Later, Tom Hanks’ Forgotten Crime Thriller Surges on a New Streaming Platform
+
+Movie News, Road to Perdition, Tom Hanks, Sam Mendes, Daniel Craig
+
+Sat, 28 Mar 2026 22:15:12 GMT
+
+https://collider.com/tom-hanks-forgotten-crime-thriller-road-to-perdition-streaming-peacock-april-2026/
+
+One of Tom Hanks' most underrated movies, the crime-drama Road to Perdition, is coming to a new streamer in April. Find out more.
+---------
+
+# 10 Upcoming Action Shows You Cannot Miss
+
+TV, Action, Reacher, Tracker, The Boys
+
+Sat, 28 Mar 2026 22:08:12 GMT
+
+https://collider.com/upcoming-action-shows-2026/
+
+From Reacher's Season 4 return to the highly-anticipated final season of The Boys, these upcoming action shows are ones you can't afford to miss.
+---------
+
+# 11 Scariest Movie Villains of All Time, Ranked
+
+Movie, Villains, Inglourious Basterds, Misery, The Shining
+
+Sat, 28 Mar 2026 22:05:12 GMT
+
+https://collider.com/scariest-movie-villains-of-all-time-ranked/
+
+Annie Wilkes from Misery and HAL-9000 from 2001: A Space Odyssey are among the absolute most terrifying movie villains ever.
+---------
+
+# 18 Years Later, Jason Statham’s 105-Minute Action Thriller Quietly Becomes a Free Streaming Favorite
+
+Movie News, Jason Statham, Transporter 3, streaming, Plex
+
+Sat, 28 Mar 2026 22:00:12 GMT
+
+https://collider.com/jason-statham-franchise-ending-action-thriller-transporter-3-streaming-free-plex-april-2026/
+
+Jason Statham's 105-minute franchise-ender, Transporter 3, is streaming for free this April. Find out where below.
+---------
+
+# Zendaya's 4 Big 2026 Movies Could Beat Brie Larson's Box 2019 Office Record
+
+Features, Zendaya Coleman, Dune: Part Three, Spider-Man: Brand New Day, The Odyssey, The Drama
+
+Sat, 28 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/zendaya-2026-four-movies-box-office-record/
+
+Zendaya is one of the most prolific actresses in Hollywood, but her work in 2026 could crack a box office record many thought was unbreakable.
+---------
+
 # 10 TV Shows We Thought Would Be The Next Sopranos
 
 Classic TV, The Sopranos
