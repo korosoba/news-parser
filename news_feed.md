@@ -1,3 +1,58 @@
+# Hogwarts Legacy: After Dark Is The Kind Of Expansion We Always Wanted
+
+Gaming, Hogwarts Legacy
+
+Sat, 28 Mar 2026 09:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-after-dark-fan-expansion-download/
+
+Hogwarts Legacy: After Dark makes big changes to the game world during night cycles, so you'll no longer be playing in a proverbial ghost town.
+---------
+
+# 29 Years Later, Nicolas Cage’s Most Unhinged Action Thriller Is Free To Stream
+
+Movie News, Face/Off, Nicolas Cage, John Travolta, Kanopy
+
+Sat, 28 Mar 2026 09:20:12 GMT
+
+https://collider.com/nicolas-cage-john-travolta-face-off-bonkers-action-movie-free-streaming-kanopy-april-2026/
+
+Face/Off, the 1997 action thriller starring Nicolas Cage and John Travolta, will be free to stream on Kanopy from April 24.
+---------
+
+# 6 Classic Fantasy TV Shows That Have Aged Like Fine Wine
+
+TV, Fantasy, Buffy The Vampire Slayer, Avatar: The Last Airbender, The Twilight Zone
+
+Sat, 28 Mar 2026 09:18:12 GMT
+
+https://collider.com/classic-fantasy-shows-aged-well/
+
+These classic fantasy shows have gracefully aged, remaining as captivating and relevant as ever, from The Addams Family to The Twilight Zone.
+---------
+
+# 8 Years Later, Netflix's 2-Part Sci-Fi Series Quietly Becomes a Late-Night Favorite
+
+TV News, Altered Carbon, Anthony Mackie, Joel Kinnaman, Netflix
+
+Sat, 28 Mar 2026 09:00:12 GMT
+
+https://collider.com/anthony-mackie-joel-kinnaman-hard-sci-fi-series-altered-carbon-streaming-success-netflix-march-2026/
+
+Netflix's two-part, hard sci-fi series starring Anthony Mackie that you completely forgot about is rewriting history on streaming charts.
+---------
+
+# Tom Cruise’s Amazing 1992 Legal Thriller Is Returning to Streaming Next Week
+
+Movie News, A Few Good Men, Jack Nicholson, Tom Cruise, The Lincoln Lawyer
+
+Sat, 28 Mar 2026 08:40:12 GMT
+
+https://collider.com/tom-cruise-a-few-good-men-epic-legal-thriller-streaming-free-tubi-april-2026/
+
+Rob Reiner's courtroom drama, A Few Good Men, starring Tom Cruise, Jack Nicholson, and Demi Moore, begins streaming free next month.
+---------
+
 # Steam Drops 4 Free Games To End March, No Catch
 
 Gaming, Steam
