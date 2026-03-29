@@ -1,3 +1,25 @@
+# Tom Holland’s Breakout Disaster Thriller Arrives on a New Streamer Next Month
+
+Movie News, Tom Holland, The Impossible, Plex, Streaming
+
+Sun, 29 Mar 2026 08:20:12 GMT
+
+https://collider.com/tom-holland-breakout-role-the-impossible-streaming-on-plex-april-2026/
+
+Before Spider-Man Brand New Day, Tom Holland's breakout performance is heading to a new streaming site. Here's what you should know.
+---------
+
+# One of the Best Harrison Ford Thrillers of All Time Arrives on Free Streaming This April
+
+Movie News, The Fugitive, Harrison Ford, Thriller, Tubi
+
+Sun, 29 Mar 2026 08:00:12 GMT
+
+https://collider.com/the-fugitive-best-harrison-ford-movie-free-streaming-tubi-april-1-2026/
+
+The Fugitive, starring Harrison Ford and Tommy Lee Jones, will begin streaming free next month. Here's what you should know.
+---------
+
 # Pokémon Champions Release Date, Platforms, Pricing, and Gameplay Details
 
 Gaming, Pokemon
