@@ -1,3 +1,113 @@
+# The Last of Us' Uncertain Future on HBO: Creator Exits and Production Concerns
+
+Streaming TV, The Last of Us
+
+Sun, 29 Mar 2026 21:45:18 GMT
+
+https://screenrant.com/the-last-of-us-hbo-future-series-fate-concern/
+
+With one of the creators leaving and the other looking for the exit, The Last of Us' future on HBO beyond season 3 seems worryingly uncertain.
+---------
+
+# 10 TV Shows That Changed Fandom Culture
+
+Classic TV
+
+Sun, 29 Mar 2026 21:39:55 GMT
+
+https://screenrant.com/tv-shows-changed-fandom-culture/
+
+These groundbreaking TV shows transformed fandom culture through interactive storytelling, online engagement, & participatory fan communities.
+---------
+
+# When Will Gojo Return in Jujutsu Kaisen?
+
+Anime, Jujutsu Kaisen
+
+Sun, 29 Mar 2026 21:31:20 GMT
+
+https://screenrant.com/when-will-gojo-return-jujutsu-kaisen-explained/
+
+Jujutsu Kaisen is filled with strong characters who can defeat anyone, with the sole exception of Satoru Gojo, of course: so when is he coming back?
+---------
+
+# Bill Paxton's Twister Is Heading to HBO Max 30 Years After Debut
+
+Movies, Twister
+
+Sun, 29 Mar 2026 21:30:14 GMT
+
+https://www.cbr.com/bill-paxton-twister-disaster-hbo-max-release-date-april-2026/
+
+The 30-year-old disaster movie that helped to reinvigorate an entire genre is now heading to a new streaming home on one of the biggest platforms.
+---------
+
+# Stephen Colbert's LOTR Movie Is Perfect for Viggo Mortensen's Return
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring
+
+Sun, 29 Mar 2026 21:30:14 GMT
+
+https://www.cbr.com/viggo-mortensen-return-stephen-colbert-lord-of-the-rings-shadows-of-the-past/
+
+Aragorn actor Viggo Mortensen will reportedly be absent from The Hunt for Gollum, but The Lord of the Rings' next film has a chance to bring him back.
+---------
+
+# Disney+ Resurrects Netflix's Most Frustrating Marvel Cancellation
+
+TV, Marvel Cinematic Universe, Disney+, Daredevil: Born Again
+
+Sun, 29 Mar 2026 21:30:14 GMT
+
+https://www.cbr.com/disney-plus-reversing-netflix-defenders-saga-cancellation/
+
+Fans were devastated by this 2019 Netflix cancellation, but the series is back on Disney+ and arguably better than ever.
+---------
+
+# 17 Years Ago, Val Kilmer and Nicolas Cage Embraced Chaos in Werner Herzog's Ruthless Crime Thriller
+
+Movie Features, Bad Lieutenant: Port of Call New Orleans, Val Kilmer, Nicolas Cage, Werner Herzog
+
+Sun, 29 Mar 2026 21:42:12 GMT
+
+https://collider.com/bad-lieutenant-port-of-call-new-orleans-val-kilmer-nicolas-cage-werner-herzog/
+
+Val Kilmer and Nicolas Cage let loose in Bad Lieutenant: Port of Call New Orleans, directed by Werner Herzog.
+---------
+
+# New Fantasy Horror Series Dealt Fatal Franchise Blow
+
+TV News, Talamasca: The Secret Order, Anne Rice, Interview with the Vampire, Mayfair Witches
+
+Sun, 29 Mar 2026 21:30:14 GMT
+
+https://collider.com/anne-rice-talamasca-the-secret-order-series-cancelled-amc/
+
+While the vampires are safe, AMC has taken a stake to the Anne Rice universe's Talamasca: The Secret Order. Here's what you should know.
+---------
+
+# Antony Starr Shoots Down Hopes of Playing Iconic Video Game Character
+
+Movie News, Antony Starr, The Boys, Resident Evil
+
+Sun, 29 Mar 2026 21:32:31 GMT
+
+https://movieweb.com/antony-starr-not-playing-resident-evil/
+
+Because two murderous blonde psychopaths may be too many.
+---------
+
+# 32 Years Ago, 'ER' Solved 'The Pitt' Season 2's Biggest Problem
+
+Features, The Pitt, ER
+
+Sun, 29 Mar 2026 21:30:20 GMT
+
+https://movieweb.com/er-solved-the-pitt-season-2-problem/
+
+'ER' premiered in 1994, and HBO Max's 'The Pitt' starring Noah Wyle has often been compared to the popular medical TV drama.
+---------
+
 # Invincible Season 4 Episode Officially Sets Record Low IMDb Rating For Prime Video's Superhero Series
 
 TV, Invincible, Invincible - Season 4
