@@ -1,3 +1,146 @@
+# Mo & Rainwater's Secret Agenda For Kayce's Marshals Job Explained By Returning Yellowstone Star
+
+TV, Marshals, Marshals - Season 1, Yellowstone
+
+Sun, 29 Mar 2026 22:40:27 GMT
+
+https://screenrant.com/marshals-mo-rainwater-kayce-secret-agenda-mo-brings-plenty/
+
+EXCLUSIVE: Returning Yellowstone star Mo Brings Plenty breaks down the secret agenda Mo and Rainwater have for Kayce Dutton in Marshals.
+---------
+
+# The Bear's Ensemble is a Masterclass in Authenticity and Emotional Depth
+
+Streaming TV, The Bear
+
+Sun, 29 Mar 2026 22:40:19 GMT
+
+https://screenrant.com/the-bear-hulu-best-cast-on-streaming/
+
+The Bear's ensemble cast, led by Jeremy Allen White, brings raw and realistic performances to the acclaimed Hulu series, creating a realized world.
+---------
+
+# HBO's 6-Part Sci-Fi Series Is The Weak Link In A Near-Perfect Franchise
+
+Streaming TV, Dune: Prophecy, Dune
+
+Sun, 29 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/dune-prophecy-weak-link-sci-fi-franchise/
+
+A six-part sci-fi series was released on HBO in 2024 and, despite many promising elements, proved to be the weak link of a near-10/10 franchise.
+---------
+
+# GTA 6 Fans Spot Clue For Classic Character's Return
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Sun, 29 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/gta-6-returning-character-vice-city/
+
+Grand Theft Auto 6 could make some major Vice City callbacks, and it might be bringing things full circle with its Miami Vice inspiration.
+---------
+
+# 8 Superheroes With Shocking Weaknesses
+
+DC Comics, Marvel, Spider-Man, Hulk, Shazam
+
+Sun, 29 Mar 2026 22:30:20 GMT
+
+https://screenrant.com/superheroes-shocking-weaknesses/
+
+Puppies, chickens, and names are all dangerous to these heroes.
+---------
+
+# 2026 DC/Marvel TV Tournament - Elite Eight, Day Two!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Sun, 29 Mar 2026 22:32:45 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-elite-eight-day-two/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. We have hit the Elite 8!
+---------
+
+# Netflix, Not Crunchyroll, Is Being Credited With Taking Anime Global – Now Manga Wants In
+
+Anime, Netflix, Crunchyroll, Manga
+
+Sun, 29 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/netflix-anime-success-comici-manga-follow/
+
+The CEO of manga platform comici wants to follow Netflix's guide to making anime popular and apply it to readers worldwide.
+---------
+
+# 8 Perfect HBO Shows Buried by Game of Thrones
+
+TV, Game Of Thrones, HBO Max
+
+Sun, 29 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/perfect-hbo-shows-vs-game-of-thrones-list/
+
+During the reign of Game of Thrones, HBO released several standout series that were overshadowed despite strong writing and critical praise.
+---------
+
+# Season 2 of HBO's ‘Harry Potter’ Will Follow in ‘The Pitt’s Footsteps in One Key Way
+
+TV News, Harry Potter, HBO
+
+Sun, 29 Mar 2026 22:50:54 GMT
+
+https://collider.com/hbo-harry-potter-season-2-script-update-casey-bloys/
+
+HBO boss Casey Bloys confirms Harry Potter Season 2 is already being written, adding the goal is to avoid a long gap between seasons.
+---------
+
+# Prime Video’s 100% Sleeper Hit Proves It Has the Best Fantasy Franchise
+
+TV Features, The Legend of Vox Machina, Laura Bailey, Prime Video, The Mighty Nein
+
+Sun, 29 Mar 2026 22:50:13 GMT
+
+https://collider.com/prime-video-legend-of-vox-machina-best-fantasy-franchise/
+
+Critical Role's The Legend of Vox Machina has all the hallmarks of a good fantasy series, made even more engaging with its animation style.
+---------
+
+# Marvel's Best TV Show Proves Why This Hero Was Worth Saving
+
+TV News, Charlie Cox, Daredevil: Born Again, Disney+, Vincent D'Onofrio
+
+Sun, 29 Mar 2026 22:45:12 GMT
+
+https://collider.com/marvel-daredevil-born-again-gritty-superhero-series-streaming-success-disney-plus-march-2026/
+
+Daredevil: Born Again Season 2 brings back Charlie Cox and Vincent D'Onofrio, delivering gripping action and compelling performances.
+---------
+
+# Colleen Hoover's Controversial $90M Hit Is Blowing Up Streaming in America
+
+Movie News, Colleen Hoover, Regretting You, Paramount Plus, streaming
+
+Sun, 29 Mar 2026 22:30:13 GMT
+
+https://collider.com/controversial-colleen-hoover-adaptation-regretting-you-streaming-success-paramount-plus-march-2026/
+
+Colleen Hoover's controversial $90 million adaptation is a surprise hit on the U.S. streaming charts. Here's everything to know about Regretting You.
+---------
+
+# 'Dutton Ranch' Can Give 'Yellowstone' the Sixth Season It Deserved
+
+Features, Dutton Ranch, Yellowstone
+
+Sun, 29 Mar 2026 22:30:18 GMT
+
+https://movieweb.com/dutton-ranch-fix-taylor-sheridan-yellowstone-franchise-ending/
+
+The spin-off focused on Beth and Rip can act as the de facto sixth season for the show that Taylor Sheridan described as "'The Godfather' in Montana".
+---------
+
 # Silent Hill Meets Fishing Village In Wild New Game You Can Try For Free
 
 Gaming, Steam
