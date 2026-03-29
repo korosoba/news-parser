@@ -1,3 +1,168 @@
+# How Marshals Continues An Important 8-Year Taylor Sheridan Tradition That Began With Yellowstone
+
+Exclusive, Marshals, Yellowstone
+
+Sun, 29 Mar 2026 15:36:33 GMT
+
+https://screenrant.com/marshals-yellowstone-taylor-sheridan-tradition-cultural-authenticity-mo-brings-plenty/
+
+EXCLUSIVE: The Yellowstone universe is expanding, and Marshals is ensuring an important tradition is upheld with the help of this important star.
+---------
+
+# Baldur’s Gate 3: Act 3 Checklist (Everything You Don’t Want To Miss)
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 29 Mar 2026 15:30:20 GMT
+
+https://screenrant.com/baldurs-gate-3-act-3-checklist-quests-companions/
+
+In Act 3 of Baldur's Gate 3, players finally arrive in the big city. With dozens of quests and encounters, keeping track of everything can be tricky.
+---------
+
+# Good Omens: Prime Video's Underrated Fantasy Show
+
+Streaming TV, Good Omens
+
+Sun, 29 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/good-omens-prime-video-best-fantasy-show-202/
+
+Prime Video is home to great fantasy shows, among them one that has become unfairly underrated and is unlike any other fantasy show you'll find.
+---------
+
+# Batman DCU Casting Race: 2026 Favorites Shift as Actors' Careers Change
+
+Movies
+
+Sun, 29 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/batman-dc-universe-casting-race-2026-update/
+
+As the DCU gears up for Batman's debut, the casting race looks different in 2026. With actors' careers shifting, Brendan Sklenar emerges as the top fan-cast pick for Bruce Wayne.
+---------
+
+# One Of 2026's Most Exciting Anime Just Dropped A New Trailer: Watch
+
+Anime
+
+Sun, 29 Mar 2026 15:03:28 GMT
+
+https://screenrant.com/jaadugar-witch-mongolia-trailer-anime-year-contender-2026/
+
+Science Saru's next big hit is here.
+---------
+
+# Netflix Debuts Show Similar To Zendaya & Robert Pattinson's 'The Drama'
+
+Movies, The Drama
+
+Sun, 29 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/netflix-something-very-bad-is-going-to-happen-the-drama-release/
+
+The new show from the creators of Stranger Things has a very similar premise as The Drama.
+---------
+
+# 10 Saddest Game Of Thrones Episodes, Ranked
+
+Classic TV, Game of Thrones, Game Of Thrones
+
+Sun, 29 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/game-of-thrones-saddest-episodes/
+
+Westeros rarely guarantees happy endings but some episodes tugged more at the heartstrings than others.
+---------
+
+# Zelda Fans United Over Our Next LEGO Set
+
+Gaming, The Legend of Zelda: The Wind Waker
+
+Sun, 29 Mar 2026 15:00:20 GMT
+
+https://screenrant.com/zelda-wind-waker-lego-fan-sets-future-hopes/
+
+Zelda enthusiasts rally for a LEGO Wind Waker set, inspired by the beloved 2003 game that marked a turning point in the Nintendo franchise.
+---------
+
+# What's Coming to Peacock in April 2026? Full List
+
+TV, Peacock
+
+Sun, 29 Mar 2026 15:16:39 GMT
+
+https://www.cbr.com/whats-coming-to-peacock-in-april-2026-full-list/
+
+Five Nights at Freddy's and the Blade franchise are among the original and licensed Peacock titles in April 2026.
+---------
+
+# Chris Claremont to Explore An Important Chunk of Gambit's Lore in New Book
+
+Comics, Uncanny X-Men (2024), Gambit, Marvel Comics
+
+Sun, 29 Mar 2026 15:07:43 GMT
+
+https://www.cbr.com/chris-claremont-to-explore-this-important-chunk-of-gambits-lore-in-new-book/
+
+Marvel fans will finally get to learn more about one of the X-Men's most iconic members.
+---------
+
+# Nintendo Switch 2 Price Increase Would Seal the Fate of Nintendo
+
+Games, Nintendo, Nintendo Switch
+
+Sun, 29 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/nintendo-switch-2-price-increase-controversy/
+
+Manufacturers are jacking up prices worldwide, while Nintendo remains steady on the Switch 2's cost, but if it does go up, will the system survive?
+---------
+
+# 6 Cult Classic Horror Movies Better Than House
+
+Movies, Horror, Evil Dead II, Fright Night
+
+Sun, 29 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/cult-classic-horror-movies-better-than-house-list/
+
+House was a fun and unique horror film of the '80s, but it pales in comparison to other cult classics.
+---------
+
+# This 12-Part 10/10 Police Procedural on Hulu Is So Good, You Can Start With Any Episode
+
+TV Features, Bones, David Boreanaz, Hulu, Crime
+
+Sun, 29 Mar 2026 15:32:13 GMT
+
+https://collider.com/bones-tv-show-hulu-start-any-episode/
+
+The long-running procedural Bones, starring David Boreanaz and Emily Deschanel, is a perfect blend of science, romance, and humor.
+---------
+
+# New Sci-Fi Masterpiece Destroys M. Night Shyamalan’s Rare Genre Experiment at the Box Office
+
+Movie News, Project Hail Mary, M. Night Shyamalan, After Earth, Ryan Gosling
+
+Sun, 29 Mar 2026 14:58:24 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-overtakes-will-smith-m-night-shyamalan-after-earth-box-office-280-million/
+
+Project Hail Mary, already touted as one of the best sci-fi movies ever, has destroyed M. Night Shyamalan’s forgotten apocalypse experiment.
+---------
+
+# Why 'X-Men' Should Be the MCU's May 2028 20th Anniversary Release
+
+Features, MCU, X-Men, Avengers: Secret Wars, Iron Man
+
+Sun, 29 Mar 2026 15:00:18 GMT
+
+https://movieweb.com/mcu-iron-man-20th-anniversary-x-men/
+
+One film is perfectly set up to kick off Phase 7 and to celebrate the 20th-anniversary release of 'Iron Man' and the entire Marvel Cinematic Universe.
+---------
+
 # Project Hail Mary's Early Release May Not Hinder Oscars Chances Amid Recent Trend
 
 Movies, Project Hail Mary
