@@ -1,3 +1,135 @@
+# Invincible Season 4 Episode Officially Sets Record Low IMDb Rating For Prime Video's Superhero Series
+
+TV, Invincible, Invincible - Season 4
+
+Sun, 29 Mar 2026 21:18:12 GMT
+
+https://screenrant.com/invincible-season-4-episode-4-lowest-rated-imdb-record/
+
+Invincible season 4, episode 4 sets the lowest score yet for an episode on IMDb, with viewers having mixed reactions to the Hell storyline.
+---------
+
+# Prime Video's Exciting Upcoming Original Series Slate Revealed
+
+Streaming TV, Off Campus, Vought Rising, Spider-Noir
+
+Sun, 29 Mar 2026 21:11:19 GMT
+
+https://screenrant.com/upcoming-prime-video-shows-cannot-miss/
+
+Prime Video's upcoming original series set to release in 2026 and beyond, featuring diverse genres and captivating storylines for all audiences.
+---------
+
+# Elder Scrolls 6 Setting Teased By Bethesda
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, Triple-A Games, PC
+
+Sun, 29 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/elder-scrolls-6-setting-tease-fans/
+
+Bethesda's long-announced The Elder Scrolls 6 remains almost completely mysterious, but fans think they've found clues to the game's setting.
+---------
+
+# 10 Funniest Lines In The Big Bang Theory
+
+Classic TV, The Big Bang Theory
+
+Sun, 29 Mar 2026 21:00:20 GMT
+
+https://screenrant.com/the-big-bang-theory-funniest-lines/
+
+The Big Bang Theory's jokes might not all have aged well, but there are still some hilarious exchanges and one-liners that have stood the test of time
+---------
+
+# The 10 Best New-Gen Shonen Anime That Still Use Classic '90s Tropes Perfectly
+
+Anime, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba, Black Clover
+
+Sun, 29 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/best-new-gen-shonen-anime-with-classic-90s-tropes/
+
+New-gen shonen anime such as My Hero Academia and Jujutsu Kaisen have 90s DNA, while also tightening pacing and sharpening character focus.
+---------
+
+# The Good, the Bad and the Ugly Will Stream for Free in April
+
+Movies, The Good, the Bad and the Ugly, Tubi
+
+Sun, 29 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/quentin-tarantino-the-good-the-bad-the-ugly-tubi-streaming-april-2026/
+
+The flawless Western that was given high praise by Quentin Tarantino will be streaming for free.
+---------
+
+# A Forgotten Gobots Movie Beat Transformers to the Big-Screen
+
+Movies, Transformers, The Transformers: The Movie, GoBots: Battle of the Rock Lords
+
+Sun, 29 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/sci-fi-cult-classic-beat-transformers-gobots/
+
+Gobots is synonymous with being a second-rate Transformers, and this is best seen in how its 40-year-old movie still lacks the touch and the power.
+---------
+
+# All 12 Movies That Won the Most Oscars but Lost Best Picture
+
+Movie, Cabaret, Mad Max: Fury Road, Academy Awards, Hugo
+
+Sun, 29 Mar 2026 21:21:13 GMT
+
+https://collider.com/movies-won-most-oscars-lost-best-picture/
+
+Movies like Hugo, Mad: Max Fury Road, and Cabaret won the most Oscars of their year without winning the top honor of Best Picture.
+---------
+
+# This 80% RT World War II Masterpiece Returns to Streaming 29 Years Later
+
+Movie News, Life Is Beautiful, Roberto Benigni, World War II, Drama
+
+Sun, 29 Mar 2026 21:15:12 GMT
+
+https://collider.com/life-is-beautiful-ww2-masterpiece-streaming-paramount-plus-april-2026/
+
+Life Is Beautiful, one of the most emotional and beloved WW2 films ever made, starts streaming next month. Find out more here.
+---------
+
+# 14 Years Later, Ridley Scott's Colossal Sci-Fi Epic Officially Becomes Late-Night Streaming Sensation
+
+Movie News, Prometheus, Ridley Scott, Sci-Fi, Alien
+
+Sun, 29 Mar 2026 21:00:13 GMT
+
+https://collider.com/ridley-scott-sci-fi-epic-alien-prequel-prometheus-streaming-success-netflix-march-2026/
+
+Fourteen years after its release, Ridley Scott’s Prometheus has become a major Netflix hit, proving the divisive sci-fi epic still has plenty of pull.
+---------
+
+# Quentin Tarantino Hated the Most Defining Part of 'Scream'
+
+Movie Features, Scream, Quentin Tarantino, Wes Craven, Horror
+
+Sun, 29 Mar 2026 20:57:12 GMT
+
+https://collider.com/scream-quentin-tarantino-wes-craven-criticism/
+
+Quentin Tarantino once said he thought Wes Craven’s direction of Scream held the horror classic back.
+---------
+
+# 'Lord of the Rings': Every Character To Expect in Stephen Colbert's Movie
+
+Movie Lists, The Lord of the Rings, The Lord of the Rings: Shadow of the Past
+
+Sun, 29 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/lord-of-the-rings-characters-stephen-colbert-movie/
+
+The cast roster includes one pleasant surprise. Read on for which characters to expect in the newest 'Lord of the Rings' film.
+---------
+
 # 10 Disney Animated Movies Impossible To Adapt In Live-Action
 
 Classic Movies, Disney
