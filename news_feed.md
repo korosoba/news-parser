@@ -1,3 +1,124 @@
+# Silent Hill Meets Fishing Village In Wild New Game You Can Try For Free
+
+Gaming, Steam
+
+Sun, 29 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/steam-indie-about-fishing-game/
+
+Steam is full of unsettling fishing games, but one may now take the cake with the launch of its unusual, serene, and free-to-play playtest.
+---------
+
+# A Complete Guide to Attack on Titan’s Watch Order and Filler
+
+Anime, Attack on Titan
+
+Sun, 29 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/attack-titan-guide-watch-order-filler/
+
+Dive into the intense world of the Attack on Titan franchise with this comprehensive guide to the series' watch order and filler content.
+---------
+
+# Netflix’s 6-Part Spy Thriller With Near-Perfect Rotten Tomatoes Score Is Worth An Easy One-Night Binge – Thanks To Keira Knightley– Led By Keira Knightley’s Best TV Performance Yet
+
+Streaming TV, Black Doves, Netflix, Keira Knightley
+
+Sun, 29 Mar 2026 21:55:19 GMT
+
+https://screenrant.com/netflix-black-doves-keira-knightley-series-binge-watch/
+
+Keira Knightley stars in the critically acclaimed Netflix spy thriller series 'Black Doves,' which earned a near-perfect 92% Rotten Tomatoes score.
+---------
+
+# NBC's St. Denis Medical Is Finally Heading to Netflix
+
+TV, St. Denis Medical
+
+Sun, 29 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/st-denis-medical-season-1-netflix-april-2026/
+
+Netflix is giving potential new fans a chance to check out the comedy series following its renewal for a third season.
+---------
+
+# Bridgerton Season 5 Lady Whistledown Twist Could Set Up Eloise's Story
+
+TV, Bridgerton, Romance, Netflix
+
+Sun, 29 Mar 2026 22:01:12 GMT
+
+https://www.cbr.com/netflix-bridgerton-season-5-twist-eloise-phillip-romance/
+
+Bridgerton Season 4's Lady Whistledown twist sets the stage for Eloise's story during Francesca's season with a storyline from a previous book.
+---------
+
+# 10 Stellar Netflix Comedies That Are 10/10 but Nobody Remembers Today
+
+TV, Netflix, Dead to Me, Unbreakable Kimmy Schmidt, Comedy
+
+Sun, 29 Mar 2026 22:21:12 GMT
+
+https://collider.com/netflix-comedy-shows-nobody-remembers/
+
+Dead to Me, Grace and Frankie, and Unbreakable Kimmy Schmidt are some of the perfect Netflix comedy shows that are completely forgotten by audiences.
+---------
+
+# Rebecca Ferguson's Sci-Fi Masterpiece Stages a  Comeback
+
+TV News, Rebecca Ferguson, Silo, Apple TV, Sci-Fi
+
+Sun, 29 Mar 2026 22:15:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-masterpiece-silo-streaming-success-march-2026-apple-tv-comeback/
+
+As three of her projects are available to the public, Rebecca Ferguson's most popular sci-fi show is seeing renewed interest. Get all the details.
+---------
+
+# 8 Musicals That Are as Good as ‘KPop Demon Hunters'
+
+Movie, Musical, KPop Demon Hunters, The Wizard of Oz, Kubo and the Two Strings
+
+Sun, 29 Mar 2026 22:03:12 GMT
+
+https://collider.com/musicals-as-good-as-kpop-demon-hunters/
+
+Encanto, Hamilton, The Wizard of Oz, Over the Moon, and more make up our list of musicals that are as good as KPop Demon Hunters.
+---------
+
+# HBO Max Turns John Wick’s Box Office Flop Into a Streaming Success
+
+Movie News, John Wick, From the World of John Wick: Ballerina, Ana De Armas, HBO Max
+
+Sun, 29 Mar 2026 22:01:12 GMT
+
+https://collider.com/john-wick-spin-off-ballerina-streaming-hit-hbo-max-march-2026/
+
+The John Wick spin-off Ballerina has bounced back from a poor box office run to top the streaming charts. Here's what you should know.
+---------
+
+# 10 Underrated Movies Turning 20 in 2026
+
+Movie, Marie Antoinette, Half Nelson, A Scanner Darkly, Rocky Balboa
+
+Sun, 29 Mar 2026 21:55:12 GMT
+
+https://collider.com/underrated-movies-turning-20-in-2026/
+
+There are a good number of underrated movies turning 20 in 2026, including the likes of A Scanner Darkly, Reprise, and The Science of Sleep.
+---------
+
+# Sydney Sweeney's 'Gundam': Everything We Know About the Sci-Fi Action Reboot
+
+Features, Gundam, Sydney Sweeney, Everything We Know
+
+Sun, 29 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/sydney-sweeney-gundam-everything-we-know/
+
+Production details are beginning to emerge about 'Gundam', a live-action sci-fi movie reboot starring Sydney Sweeney
+---------
+
 # The Last of Us' Uncertain Future on HBO: Creator Exits and Production Concerns
 
 Streaming TV, The Last of Us
