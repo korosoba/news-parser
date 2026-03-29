@@ -1,3 +1,135 @@
+# Cyberpunk 2077: Dark Future Feels Like A Completely Different Game
+
+Gaming, Cyberpunk 2077
+
+Sun, 29 Mar 2026 19:01:19 GMT
+
+https://screenrant.com/cyberpunk-2077-dark-future-fan-expansion/
+
+Transform your Cyberpunk 2077 experience with the Dark Future mod, which introduces survival mechanics like anxiety, addiction, and basic needs.
+---------
+
+# Marvel Introduces Avengers Villain the Super-Adaptoid to MCU Continuity
+
+Comics, The Fantastic Four: First Steps, The Avengers
+
+Sun, 29 Mar 2026 18:32:31 GMT
+
+https://screenrant.com/avengers-super-adaptoid-introduce-mcu-fantastic-four/
+
+Marvel has officially made one of the strongest Avengers villains of all time MCU canon, introducing the powerful foe after eighteen years.
+---------
+
+# What's Coming to Prime Video in April 2026? Full List
+
+TV, Prime Video
+
+Sun, 29 Mar 2026 19:19:25 GMT
+
+https://www.cbr.com/whats-coming-to-prime-video-in-april-2026-everything-arriving-next-month/
+
+Mission: Impossible – The Final Reckoning and The Boys Season 5 are among Prime Video's additions this upcoming April.
+---------
+
+# Neon Genesis Evangelion’s Rebuilds Are Almost Better Than the Original
+
+Anime, Neon Genesis Evangelion, Rebuild of Evangelion
+
+Sun, 29 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/neon-genesis-evangelion-rebuild-better-than-90s-anime-mistake/
+
+Evangelion's Rebuild movies do a lot right, but they lack what made the original '90s anime so haunting.
+---------
+
+# Ice Cube's Friday Is Dominating Free Streaming Ahead of New Sequel
+
+Movies, Friday, Next Friday
+
+Sun, 29 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/ice-cube-friday-streaming-tubi-march-2026/
+
+Fans are revisiting the iconic comedy ahead of the new sequel that's now in the works.
+---------
+
+# Canon Events: Professor X Nearly Destroyed the X-Men's Dream as Onslaught
+
+Comics, Canon Events, X-Men, professor x, onslaught
+
+Sun, 29 Mar 2026 19:00:12 GMT
+
+https://www.cbr.com/canon-events-professor-x-xmen-vs-onslaught/
+
+A dark decision by Professor X led to the birth of one of the ultimate villains of the '90s who threatened to dismantle the X-Men's dream.
+---------
+
+# 10 Forgotten Sci-Fi Movies That Are Even Better Today
+
+Movie, Science Fiction, Seconds, The Face of Another, Brand Upon the Brain!
+
+Sun, 29 Mar 2026 19:19:13 GMT
+
+https://collider.com/forgotten-sci-fi-movies-still-masterpieces/
+
+While largely forgotten by modern audiences, movies like The Fabulous Baron Munchausen and Seconds remain brilliant gems of the science fiction genre.
+---------
+
+# 'The Rookie's Jenna Dewan Confirms More "Spy-ish" Storylines for the ABC Procedural
+
+TV, Jenna Dewan-Tatum, The Rookie, ABC, Procedural
+
+Sun, 29 Mar 2026 19:14:13 GMT
+
+https://collider.com/the-rookie-season-8-jenna-dewan-pentagon-spy-story/
+
+Jenna Dewan breaks down her character Bailey Nune's Pentagon arc and her long-distance relationship, while also discussing The Rookie's growth.
+---------
+
+# Brad Pitt’s Stylish WWII Spy Thriller Hits Streaming on April 1
+
+Movie News, Allied, Robert Zemeckis, Brad Pitt, Marion Cotillard
+
+Sun, 29 Mar 2026 19:00:12 GMT
+
+https://collider.com/brad-pitt-stylish-ww2-spy-thriller-allied-streaming-paramount-plus-april-2026/
+
+Brad Pitt and Marion Cotillard lead Allied, the stylish WW2 spy thriller arriving on streaming next month. Read on for more details.
+---------
+
+# 7 Best Thriller Movies Packed With Plot Twists
+
+Movie, Thriller, The Prestige, Gone Girl, The Handmaiden
+
+Sun, 29 Mar 2026 18:49:12 GMT
+
+https://collider.com/thriller-movies-packed-plot-twists/
+
+Twist-heavy thrillers like Fight Club and The Prestige shift reality and pull the story in new directions, making for engaging masterpieces.
+---------
+
+# Andrew Lloyd Weber Celebrates 'Phantom of the Opera' Anniversary With New Content
+
+Movie News, The Phantom of the Opera, Andrew Lloyd Webber, Musical, Andrew Lloyd Webber's the Phantom of the Opera
+
+Sun, 29 Mar 2026 19:19:40 GMT
+
+https://movieweb.com/andrew-lloyd-weber-phantom-opera-new/
+
+Forty years after the release of the iconic musical, 'Phantom of the Opera' is being repackaged for new audiences.
+---------
+
+# 29 Years Ago, 'The Simpsons' and 'The X-Files' Created the Best Sci-Fi Comedy Crossover Ever
+
+Features, The X-Files, The Simpsons
+
+Sun, 29 Mar 2026 19:00:17 GMT
+
+https://movieweb.com/the-x-files-the-simpsons-near-perfect-crossover/
+
+While there have been others, no other show has produced a better crossover with 'The X-Files' than 'The Simpsons' did with "The Springfield Files."
+---------
+
 # Tom Hardy's Masterful Performance in HBO's Stuart: A Life Backwards
 
 Classic TV, Stuart: A Life Backwards
