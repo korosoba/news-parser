@@ -1,3 +1,267 @@
+# Tom Hardy's Masterful Performance in HBO's Stuart: A Life Backwards
+
+Classic TV, Stuart: A Life Backwards
+
+Sun, 29 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/stuart-life-backwards-hbo-tom-hardy-best-roles/
+
+Tom Hardy has a variety of celebrated movie and TV roles, but his early-career performance in this forgotten HBO biopic remains a key highlight.
+---------
+
+# Elden Ring's Official Follow-Up Gets Unexpected Release Window
+
+Gaming, The Duskbloods, FromSoftware, Nintendo Switch 2
+
+Sun, 29 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/elden-ring-duskbloods-switch-2-release-window/
+
+FromSoftware's newest highly anticipated game is on its way, but unfortunately, fans may have to keep anticipating it for quite a while yet.
+---------
+
+# Harry Potter Season 2 Gets Hopeful Update After Disappointing Comments From HBO Boss
+
+TV, Harry Potter
+
+Sun, 29 Mar 2026 18:16:11 GMT
+
+https://screenrant.com/harry-potter-hbo-season-2-update-casey-bloys/
+
+The wizarding world of Harry Potter just got bigger thanks to HBO, and season 2 could arrive sooner than people think.
+---------
+
+# 10 Near-Perfect Adventure Movies That Nobody Remembers Today
+
+Movies, The Road to El Dorado, Willow, Hidalgo, The Ghost and the Darkness, Stardust, The Lost City of Z, The Golden Child, Love and Monsters, Big Trouble in Little China, Army of Darkness
+
+Sun, 29 Mar 2026 18:05:18 GMT
+
+https://screenrant.com/great-adventure-movies-nobody-remembers/
+
+Great adventure movies that fell into obscurity or failed to garner a fanbase until later, including fantasy epics and cult classics.
+---------
+
+# Apple TV’s Finished 8-Part Thriller Could Be The Next Reacher, So Why Hasn’t It Come Out?
+
+Streaming TV, Apple TV, Reacher, The Savant
+
+Sun, 29 Mar 2026 18:01:19 GMT
+
+https://screenrant.com/apple-tv-the-savant-exciting-on-hold/
+
+Apple TV's most anticipated thriller, starring Jessica Chastain, has been shelved indefinitely, leaving fans confused and frustrated.
+---------
+
+# Why This Anime Is The Only One With A Perfect Ending
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood, Op-Ed
+
+Sun, 29 Mar 2026 18:01:19 GMT
+
+https://screenrant.com/fullmetal-alchemist-best-anime-manga-ending-ever/
+
+The absolute best ending in anime and manga revealed.
+---------
+
+# Lord of the Flies still hits because its warning about human nature never changed
+
+TV, Lord of the Flies
+
+Sun, 29 Mar 2026 18:01:19 GMT
+
+https://screenrant.com/video/lord-of-the-flies-still-hits-because-its-warning-about-human-nature-never-changed/
+
+Why Lord of the Flies still feels so relevant today, breaking down its themes of human nature, survival, order, chaos, and why the story still resonates in modern film and literature conversations.
+---------
+
+# Steam 10/10 Hidden Gem Coming To PS5 On April 10
+
+Gaming, Steam, PC, PlayStation 5
+
+Sun, 29 Mar 2026 18:01:19 GMT
+
+https://screenrant.com/steam-10-10-hidden-gem-ps5-release-april-10/
+
+This Steam game with a 10/10 rating and 95% positive reviews is officially slated for a PlayStation 5 release on April 10 - mark your calendars.
+---------
+
+# The Sopranos Got 1 Major Detail About the Mafia Wrong on Purpose (& It Made the Show Even Better)
+
+TV, The Sopranos, hbo, Crime
+
+Sun, 29 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/the-sopranos-got-this-mafia-detail-about-mob-hits-wrong/
+
+While "mob hits" are a necessity in a story about the mafia, the series did what it does best, even in this regard: it dramatized things a bit.
+---------
+
+# Netflix's One Piece Season 2 Is Already 35% Behind Season 1, New Data Shows
+
+Anime, One Piece, Netflix
+
+Sun, 29 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/netflix-one-piece-season-2-streaming-decrease/
+
+One Piece's highly anticipated Season 2 is thriving among critics, but tanking in viewership according to a recent Netflix report.
+---------
+
+# Sorry, But Golden Isn't Even the Most Important Song in KPop Demon Hunters
+
+Movies, KPop Demon Hunters, Netflix, Animation
+
+Sun, 29 Mar 2026 18:30:12 GMT
+
+https://www.cbr.com/kpop-demon-hunters-best-song-not-golden/
+
+KPop Demon Hunters' song "Golden" is an Oscar-winner, but it's far from the most important song in the movie.
+---------
+
+# Harry Potter Season 2 Finally Gets Some Good News From HBO Boss
+
+TV, Harry Potter
+
+Sun, 29 Mar 2026 18:17:53 GMT
+
+https://www.cbr.com/harry-potter-season-2-script-in-the-works-casey-bloys/
+
+After revealing that Harry Potter won't have a yearly release, the HBO boss confirmed an exciting update for Season 2.
+---------
+
+# 10 Coolest New-Gen Mecha Designs Better Than Any Gundam
+
+Anime, Gundam
+
+Sun, 29 Mar 2026 18:15:12 GMT
+
+https://www.cbr.com/coolest-new-gen-mecha-designs-better-than-gundam/
+
+These new-gen anime mecha designs increasingly treat transformations and movement styles as an extension of the characters and their story's themes.
+---------
+
+# Jason David Frank's Legend of the White Dragon Sets New Release Date on the Perfect Date
+
+Movies, Power Rangers, Legend of the White Dragon
+
+Sun, 29 Mar 2026 18:05:39 GMT
+
+https://www.cbr.com/power-rangers-star-jason-david-frank-legend-of-the-white-dragon-release-date/
+
+Jason David Frank's final film is now heading to theaters, and fans couldn't be happier with Legend of the White Dragon's very specific release date
+---------
+
+# Paramount+'s Record-Breaking New Western Dominates the Charts Again 1 Week After Finale
+
+TV, Drama, The Madison
+
+Sun, 29 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/paramounts-record-breaking-new-western-dominates-the-charts-again-1-week-after-finale/
+
+Taylor Sheridan has another massive streaming hit on his hands with The Madison.
+---------
+
+# 10 Must-Read Superman Stories Since 2000, Ranked
+
+Comics, Superman, DC Comics
+
+Sun, 29 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/must-read-best-modern-superman-comic-stories-since-ranked-list/
+
+Superman has had countless iconic modern comic stories, but these ten stand out as the very best of the 21st century, so far.
+---------
+
+# PlayStation Officially Releasing Brand-New Hardware On April 9
+
+Games, PlayStation 5
+
+Sun, 29 Mar 2026 17:57:49 GMT
+
+https://www.cbr.com/playstation-street-fighter-2-fight-stick-controller/
+
+A new release for gamers on PlayStation is coming soon in the month of April.
+---------
+
+# Project Hail Mary Blasts Past Major Milestone With Updated Box Office Final Projections
+
+Movies, Project Hail Mary
+
+Sun, 29 Mar 2026 17:54:36 GMT
+
+https://www.cbr.com/project-hail-mary-box-office-milestone-300-million/
+
+Ryan Gosling has experience with blockbusters, and the sci-fi film proves to be a huge hit.
+---------
+
+# Edward Norton's 30-Year-Old Prison Thriller Finds the Perfect New Streaming Home
+
+Movie News, Primal Fear, Edward Norton, Richard Gere, Thriller
+
+Sun, 29 Mar 2026 18:01:12 GMT
+
+https://collider.com/edward-norton-best-prison-thriller-primal-fear-streaming-paramount-plus-april-2026/
+
+Richard Gere and Edward Norton's Primal Fear, one of the sharpest legal thrillers of the 1990s, starts streaming next month. Read on for more details.
+---------
+
+# This 10-Episode Series Crushing on Prime Video Proves Detective TV Is Still King
+
+TV Features, Ballard, Bosch, Prime Video, Maggie Q
+
+Sun, 29 Mar 2026 17:58:13 GMT
+
+https://collider.com/ballard-prime-video-detective-tv-show-streaming/
+
+Bosch's equally fantastic spin-off, Ballard, proves once again that gritty detective shows are still the best in prime television drama.
+---------
+
+# What Happened After 'Return of the King' in Tolkien's Unfinished Fourth LOTR Book
+
+Features, The Lord of the Rings, The Lord of the Rings: Shadow of the Past, Fantasy
+
+Sun, 29 Mar 2026 18:30:17 GMT
+
+https://movieweb.com/what-happens-after-return-of-the-king/
+
+With Stephen Colbert's new 'Lord of the Rings' movie in development, Tolkien's vision for Middle-earth after ROTK is more important than ever.
+---------
+
+# Apple TV+'s 'Shrinking' Beats the Best Sci-Fi Shows 'Severance' and 'Silo' on Streaming
+
+TV News, Shrinking, Apple TV, Hot on Streaming, Severance, Silo
+
+Sun, 29 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/shrinking-beats-silo-severence-streaming-apple-april-2026/
+
+Harrison Ford's Apple TV+ show 'Shrinking' Season 3 is a major streaming success on Apple TV, beating 'Severance' and 'Silo.'
+---------
+
+# 10 Classic Disney Shows That Can't Be Watched Anywhere (Not Even Disney+)
+
+TV Lists, Disney+, Disney
+
+Sun, 29 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/classic-disney-shows-cant-be-watched-anywhere/
+
+Disney+ still doesn't have 'House of Mouse,' 'Buzz Lightyear of Star Command,' 'The Weekenders,' 'The Famous Jett Jackson,' or several other shows.
+---------
+
+# Best Documentaries on Crave to Watch Right Now
+
+TV Lists, Documentary
+
+Sun, 29 Mar 2026 18:00:18 GMT
+
+https://movieweb.com/best-documentaries-crave-streaming/
+
+The best documentaries on Crave right now run the gamut, from true crime to sports to pop culture to America's dark underbelly.
+---------
+
 # 7 Commonly Misunderstood Movies People Are Still Getting Wrong Today
 
 Movies
