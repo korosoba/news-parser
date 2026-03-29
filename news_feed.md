@@ -1,3 +1,267 @@
+# Pokémon Fans Strangely Furious Over New Type Introduction
+
+Gaming, Pokemon
+
+Sun, 29 Mar 2026 04:30:18 GMT
+
+https://screenrant.com/pokemon-eternal-emerald-fan-game-sound-type/
+
+Pokémon Eternal Emerald is a brand new fan game that makes a ton of great changes, but one in particular is drawing a ton of ire from fans.
+---------
+
+# Fallout Meets The Last Of Us In New Survival RPG
+
+Gaming, Fallout
+
+Sun, 29 Mar 2026 04:30:18 GMT
+
+https://screenrant.com/fallout-last-of-us-domyno-survival-rpg/
+
+Discover Domynyo, an upcoming online multiplayer game that combines the apocalyptic wasteland of Fallout with the atmosphere of The Last of Us, set to release in 2026.
+---------
+
+# PlayStation Gets Official New Hardware Release On April 9
+
+Gaming, PlayStation 5, Sony, PC
+
+Sun, 29 Mar 2026 04:00:28 GMT
+
+https://screenrant.com/playstation-hardware-street-fighter-2-fight-stick-april-9/
+
+PlayStation gamers are getting an official new hardware release this spring, and it will be available starting on April 9, 2026.
+---------
+
+# Netflix’s New Action Sci-Fi Hit Proves Alan Ritchson’s Perfect Reacher Follow-Up Is A $5.4 Billion Franchise
+
+Movies, Netflix, Reacher, GI Joe, Transformers, War Machine, Alan Ritchson
+
+Sun, 29 Mar 2026 03:45:19 GMT
+
+https://screenrant.com/netflix-war-machine-alan-ritchson-gi-joe-transformers/
+
+After seeing Alan Ritchson in Netflix’s new movie, it’s hard not to believe that he would be the perfect casting choice for a $5.4 billion franchise.
+---------
+
+# Ash's 10 Strongest Pokémon
+
+Anime, Pokemon
+
+Sun, 29 Mar 2026 03:40:20 GMT
+
+https://screenrant.com/ash-strongest-pokemon-not-pikachu/
+
+Ash has more than a few Pokémon which are truly forces to be reckoned with, but which of his rank as the strongest?
+---------
+
+# DC & Marvel’s Superman/Spider-Man Crossover Gets Upstaged By Batman & X-Men Characters
+
+Comics, Superman, Spider-Man, Batman Beyond, Gambit, DC Comics, Marvel
+
+Sun, 29 Mar 2026 03:35:10 GMT
+
+https://screenrant.com/dc-marvel-superman-spiderman-crossover-batman-beyond-gambit/
+
+Some of the best moments from DC & Marvel's brand-new Superman/Spider-Man crossover surprisingly come from epic Batman and X-Men cameos.
+---------
+
+# Apple TV's 2-Part Retrofuturistic Sci-Fi Masterpiece Is The Best Thing Since Netflix’s Dark
+
+Streaming TV, Apple TV, Dark, Netflix, Severance
+
+Sun, 29 Mar 2026 03:00:20 GMT
+
+https://screenrant.com/severance-apple-tv-netflix-dark-sci-fi/
+
+Ever since Netflix’s Dark has ended its run, only one show in the sci-fi genre has seemingly come close to being equally brilliant and compelling.
+---------
+
+# 10 Biggest Nintendo Leaks From This Week
+
+Gaming, Nintendo, Triple-A Games, Nintendo Switch 2
+
+Sun, 29 Mar 2026 03:00:20 GMT
+
+https://screenrant.com/nintendo-leaks-march-2026/
+
+This week has been full of news for Nintendo fans, and some of the most fascinating leaks and rumors have largely been lost in the shuffle.
+---------
+
+# Prime Video’s Fallout Is The Greatest Game Adaptation Of The Century
+
+Streaming TV, Prime Video, Fallout
+
+Sun, 29 Mar 2026 02:30:34 GMT
+
+https://screenrant.com/fallout-greatest-post-apocalyptic-game-adaptation-prime-video/
+
+Prime Video is the streaming home of an incredible two-season sci-fi TV series that is easily one of the greatest game adaptations of the century.
+---------
+
+# Dragon Ball's Next Anime Proves the Best Version of Z Isn't the One Fans Grew Up With
+
+Anime, Dragon Ball
+
+Sun, 29 Mar 2026 02:30:19 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-proves-kai-superior-to-z/
+
+Dragon Ball is coming out with a pair of anime series, and one of them is a not-so-gentle reminder that Dragon Ball Z might not be the best.
+---------
+
+# This 2026 Anime Shows Why Fantasy is the Greatest Genre
+
+Anime, Sentenced to Be a Hero
+
+Sun, 29 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/sentenced-to-be-a-hero-best-new-fantasy-anime-2026/
+
+Sentenced to Be a Hero highlights the limitless creativity fantasy has to offer, reminding audiences of the genre's greatness.
+---------
+
+# Netflix's Dark Is a Mind-Bending Time Travel Sci-Fi Series
+
+TV, Dark, Netflix, Sci-Fi
+
+Sun, 29 Mar 2026 03:40:12 GMT
+
+https://www.cbr.com/netflix-dark-sci-fi-masterpiece-broke-peoples-brains/
+
+Although the time travel in this Netflix sci-fi miniseries is complex, it's one of the best on the streaming service.
+---------
+
+# 10 Classic Sega Genesis Games That Are Over Too Soon
+
+Games, Sega Genesis, sega, retro games
+
+Sun, 29 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/classic-sega-genesis-games-that-are-short-list/
+
+Some of the best classic Sega Genesis games take just a few hours to beat.
+---------
+
+# Vegeta’s Best DBZ Line Is the Greatest Speech in Anime History
+
+Anime, Dragon Ball Z, Dragon Ball, Vegeta
+
+Sun, 29 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/dbz-vegeta-death-namek-best-anime-speech-all-time/
+
+Decades later, Vegeta's best DBZ quote is even more powerful.
+---------
+
+# 10 Supernatural Action Anime Perfect For Fans Who Miss JJK Already
+
+Anime, Jujutsu Kaisen
+
+Sun, 29 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/supernatural-action-anime-better-than-jjk/
+
+A number of anime replicate the flashy action of Jujutsu Kaisen, while also exploring deeper ideas.
+---------
+
+# Re:Zero Season 4, Episode 1 Preview & Full OP Released Ahead of Crunchyroll April 8 Premiere
+
+Anime, Re:Zero -Starting Life in Another World-
+
+Sun, 29 Mar 2026 02:40:51 GMT
+
+https://www.cbr.com/rezero-season-4-episode-1-preview-opening-release/
+
+Isekai fan-favorite Re:Zero is finally returning in less than 2 weeks, with the Episode 1 preview dropping for Season 4 ahead of its debut in April.
+---------
+
+# Himesh Patel & Danielle Deadwyler Shine in HBO's Station Eleven
+
+TV, Station Eleven, Sci-Fi, Hulu
+
+Sun, 29 Mar 2026 02:40:12 GMT
+
+https://www.cbr.com/station-eleven-himesh-patel-danielle-deadwyler-steal-the-show/
+
+The new leads, Deadwyler and Patel, have strong résumés, with the crown jewel being the 2021 HBO Max miniseries Station Eleven.
+---------
+
+# The Best Action Movie From Every Year of The 1980s
+
+Movies, Action, Die Hard, Star Wars
+
+Sun, 29 Mar 2026 02:20:12 GMT
+
+https://www.cbr.com/best-action-movie-every-year-1980s-list/
+
+The 1980s was a bumper era for the action genre, and these ten films are the best entries in the genre from every year of the legendary decade.
+---------
+
+# Prime's Most Underrated Comedy Series Is Still the Best Anime of the 1990s
+
+Anime, Great Teacher Onizuka, GTO: Great Teacher Onizuka
+
+Sun, 29 Mar 2026 02:15:12 GMT
+
+https://www.cbr.com/gto-great-teacher-onizuka-best-comedy-anime-1990s/
+
+GTO: Great Teacher Onizuka is a fiercely funny anime that mixes comedy with school slice-of-life silliness to create a surprisingly deep social satire
+---------
+
+# Andor Has Taught Star Wars Fans the Wrong Lesson (& It's Extremely Concerning)
+
+TV, Andor, Star Wars, Sci-Fi
+
+Sun, 29 Mar 2026 02:00:23 GMT
+
+https://www.cbr.com/andor-tony-gilroy-star-wars-take-over-fans-wrong-lesson/
+
+Andor may be the best Star Wars addition in recent memory, but fans are letting it get to their heads.
+---------
+
+# Banned in Its Own Country and Filmed in Secret, the Best Thriller of 2024 Is Finally on Streaming
+
+Movie Features, The Seed of the Sacred Fig, Thriller, International, Drama
+
+Sun, 29 Mar 2026 03:53:08 GMT
+
+https://collider.com/banned-movie-the-seed-of-the-sacred-fig-thriller-streaming/
+
+Iranian filmmaker Mohammad Rasoulof was targeted by the government prior to the premiere of his film The Seed of the Sacred Fig.
+---------
+
+# 13 Movie Masterpieces Where Every Shot Belongs in a Museum
+
+Movie, The Grand Budapest Hotel, Speed Racer, The Wizard of Oz, Amélie
+
+Sun, 29 Mar 2026 03:40:12 GMT
+
+https://collider.com/movie-masterpieces-every-shot-belongs-in-museum/
+
+The Grand Budapest Hotel, 2001: A Space Odyssey, The Wizard of Oz, Speed Racer, and more make our list of movie masterpieces that belong in a museum.
+---------
+
+# Disney's Forgotten 1960s Adventure Film Is Still One of the Best — and Most Surprising — World War II Movies
+
+Movie Features, Miracle of the White Stallions, World War II, Best Movies Of The 1960s, Disney
+
+Sun, 29 Mar 2026 03:23:07 GMT
+
+https://collider.com/forgotten-disney-war-movie-miracle-of-the-white-stallions/
+
+Miracle of the White Stallions proves to be a very different kind of war film, one that focuses on preservation over destruction.
+---------
+
+# HBO’s 10-Part Sci-Fi Proved Post-Apocalyptic TV Could Be More Than Bleak
+
+TV Features, Station Eleven, Mackenzie Davis, Himesh Patel, HBO Max
+
+Sun, 29 Mar 2026 03:07:12 GMT
+
+https://collider.com/hbo-station-eleven-post-apocalyptic-series/
+
+HBO’s Station Eleven redefines post-apocalyptic TV with a moving story about art, survival, and human connection.
+---------
+
 # Apple TV’s Underrated 8-Part Sci-Fi Anthology Is Aging As Well As Black Mirror
 
 Classic TV, Apple TV, Black Mirror, Extrapolations
