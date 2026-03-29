@@ -1,3 +1,80 @@
+# Chrono Trigger 31st Anniversary Release Officially Unveiled By Square Enix
+
+Gaming, Chrono Trigger
+
+Sun, 29 Mar 2026 10:30:19 GMT
+
+https://screenrant.com/chrono-trigger-new-2026-release-official-square-enix/
+
+Square Enix has confirmed an anniversary release for Chrono Trigger and, while it's not the remake you've been hoping for, it still looks pretty cool.
+---------
+
+# Marvel Revealed Riri "Ironheart" William for the First Time Ten Year Ago
+
+Comics, Ironheart, CSBG, look back
+
+Sun, 29 Mar 2026 03:50:17 GMT
+
+https://www.cbr.com/marvel-iron-man-riri-williams-debut-tenth-anniversary/
+
+A look back to March 2016, when Riri "Ironheart" Williams made her Marvel Comics debut
+---------
+
+# 5 Near-Perfect Thriller Shows Packed With Celebrity Appearances
+
+TV, Law & Order: Special Victims Unit, Only Murders in the Building, Poker Face, Barry
+
+Sun, 29 Mar 2026 10:51:15 GMT
+
+https://collider.com/near-perfect-thriller-shows-with-celebrity-cameos/
+
+From Law & Order: SVU to Poker Face, thriller shows love a celebrity cameo.
+---------
+
+# AMC's 4-Part Crime Thriller Is Still One of the Best on Any Streaming Platform
+
+TV Features, Dark Winds, AMC, Zahn McClarnon, Thriller
+
+Sun, 29 Mar 2026 10:45:12 GMT
+
+https://collider.com/dark-winds-amc-crime-thriller-best-streaming/
+
+AMC's Dark Winds combines suspenseful plotlines with fascinating character studies, setting it apart from other crime thrillers.
+---------
+
+# Jason Momoa's Forgotten Western Will Be a Must-Watch for Taylor Sheridan Fans Next Month
+
+Movie News, Jason Momoa, Yellowstone, Braven, Plex
+
+Sun, 29 Mar 2026 10:30:12 GMT
+
+https://collider.com/jason-momoa-forgotten-western-braven-streaming-plex-april-2026-taylor-sheridan-fans/
+
+Jason Momoa's forgotten neo-Western from 2018, Braven, is about to head to a new streamer. Here's what you should know.
+---------
+
+# 10 Most Perfect Crime Movies Ever Made
+
+Movie, Crime, The Godfather, Heat, The Departed
+
+Sun, 29 Mar 2026 10:22:12 GMT
+
+https://collider.com/most-perfect-crime-movies-ranked/
+
+From Goodfellas to The Departed, these are perfect crime films where power, loyalty, and pressure collide with unmatched precision.
+---------
+
+# The 10 Best Directed Horror Movies of All Time, Ranked
+
+Movie, Horror, Silence of the Lambs, Jaws, Sinners
+
+Sun, 29 Mar 2026 10:02:12 GMT
+
+https://collider.com/best-directed-horror-movies-all-time-ranked/
+
+Films like Halloween, Scream, and The Sixth Sense are among the most well-crafted and perfectly directed horror movies in history.
+---------
+
 # Red Dead Redemption 2 Gets 4 New Missions, All Thanks To Fans
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2
