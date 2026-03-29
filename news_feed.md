@@ -1,3 +1,80 @@
+# 10 Detective Shows Known For Intricate Mysteries
+
+Classic TV, Bosch, Sherlock, Slow Horses
+
+Sun, 29 Mar 2026 19:35:19 GMT
+
+https://screenrant.com/detective-tv-shows-with-the-best-mysteries/
+
+The best detective shows that prioritize complex, engaging mysteries and character-driven storytelling, from The Sinner to True Detective and beyond.
+---------
+
+# A Battlestar Galactica Reboot Would Need To Cut 3 Major Parts Of The 2000s Series
+
+Classic TV, Battlestar Galactica, Sci-Fi
+
+Sun, 29 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/battlestar-galactica-reboot-cut-2000s-series-stories/
+
+Few shows are as in demand to return as Battlestar Galactica, but big changes would need to be made for a new reboot to work like the 2000s run.
+---------
+
+# Bob Odenkirk's Normal Outshines His Nobody Films on Rotten Tomatoes
+
+Movies, Normal, Rotten Tomatoes
+
+Sun, 29 Mar 2026 19:30:17 GMT
+
+https://www.cbr.com/normal-rotten-tomatoes-score/
+
+Bob Odenkirk is a bona fide action star as his new movie is getting higher marks than both of the Nobody films.
+---------
+
+# Time Is Running Out to Watch JJ Abrams' $280M Creature Franchise
+
+Movies, Horror, Cloverfield, 10 Cloverfield Lane
+
+Sun, 29 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/jj-abram-creature-feature-cloverfield-leaving-paramount-streaming-april-2026/
+
+Hurry and catch these classic J.J. Abrams creature features before they leave a major streaming platform in April.
+---------
+
+# 8 Reasons It's Tough to Watch the Original Star Wars Trilogy Today
+
+Movies, Star Wars: Episode IV - A New Hope, Return of the Jedi, The Empire Strikes Back, george lucas
+
+Sun, 29 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/original-star-wars-trilogy-tough-to-watch-today/
+
+The '70s were groovy, but even in the Star Wars universe, not everything aged perfectly.
+---------
+
+# Apple TV's Stellar 9-Part Sci-Fi Series Has No Bad Episodes
+
+TV Features, Pluribus, Apple TV, Rhea Seehorn, Vince Gilligan
+
+Sun, 29 Mar 2026 19:42:12 GMT
+
+https://collider.com/pluribus-apple-tv-sci-fi-no-bad-episodes/
+
+Apple TV's Pluribus has exceptional storytelling and stellar performances across all 9 episodes, with a second season on the horizon.
+---------
+
+# 10 Near-Perfect 2D Animated Movies That No One Remembers Today
+
+Movie, Animation, Anastasia, Waking Life, Fantastic Planet
+
+Sun, 29 Mar 2026 19:38:13 GMT
+
+https://collider.com/near-perfect-2d-animated-movies-no-one-remembers/
+
+From Cats Don't Dance to The Last Unicorn, these near-perfect movies prove that there is a singular magic to 2D that no other technique can replicate.
+---------
+
 # Cyberpunk 2077: Dark Future Feels Like A Completely Different Game
 
 Gaming, Cyberpunk 2077
