@@ -1,3 +1,69 @@
+# Project Hail Mary's Early Release May Not Hinder Oscars Chances Amid Recent Trend
+
+Movies, Project Hail Mary
+
+Sun, 29 Mar 2026 14:40:19 GMT
+
+https://screenrant.com/project-hail-mary-oscars-chances-movie-trend-good/
+
+Project Hail Mary is generating early Oscars buzz, and it's chances are promising, especially if the Academy Awards continue a recent trend.
+---------
+
+# Netflix To Retcon Stranger Things With Animated Prequel Tales From '85
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Sun, 29 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/stranger-things-new-spinoff-tales-of-85-rewrite-timeline/
+
+The world of Stranger Things isn't over yet, and Netflix is about to rewrite parts of the show with an animated spinoff TV show coming in April.
+---------
+
+# Cyberpunk 2077 Fans, Play These 10 Games While You Wait For The Sequel
+
+Gaming, Cyberpunk 2077
+
+Sun, 29 Mar 2026 14:30:19 GMT
+
+https://screenrant.com/cyberpunk-2077-recommended-10-games/
+
+Discover 10 captivating cyberpunk games similar to Cyberpunk 2077, perfect for fans awaiting the sequel.
+---------
+
+# Vince Vaughn's New R-Rated Sci-Fi Crime Thriller Gets Sequel Update From Director
+
+Movies, Mike & Nick & Nick & Alice
+
+Sun, 29 Mar 2026 14:30:12 GMT
+
+https://screenrant.com/mike-nick-nick-alice-sequel-potential-explained-bendavid-grabinski/
+
+Vince Vaughn's latest film takes a thrilling turn with a time machine, but the director insists this standalone story doesn't need a sequel.
+---------
+
+# Gore Verbinski’s R-Rated Sci-Fi Thriller Is Officially 2026’s New Cult Classic
+
+Movie News, Gore Verbinski, Good Luck, Have Fun, Don't Die, Sam Rockwell, Sci-Fi
+
+Sun, 29 Mar 2026 14:30:12 GMT
+
+https://collider.com/gore-verbinski-r-rated-sci-fi-thriller-cult-classic-good-luck-have-fun-dont-die-streaming-success-march-2026/
+
+Gore Verbinski’s R-rated sci-fi flop Good Luck, Have Fun, Don’t Die, is officially a 2026 cult classic as it finally finds an audience on streaming.
+---------
+
+# 'Star Wars: Starfighter' Writer Wants to Thrill the Next Generation of Fans
+
+Exclusives, Star Wars, Star Wars: Starfighter
+
+Sun, 29 Mar 2026 14:42:23 GMT
+
+https://movieweb.com/jonathan-tropper-star-wars-starfighter-exclusive/
+
+Jonathan Tropper hopes his movie wows kids the same way the original blew him away.
+---------
+
 # Anaconda Reboot Tops Netflix Charts: A Meta Take On The 1997 Cult Classic
 
 Movies, Anaconda, Recommendation
