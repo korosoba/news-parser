@@ -1,3 +1,69 @@
+# Red Dead Redemption 2 Gets 4 New Missions, All Thanks To Fans
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sun, 29 Mar 2026 10:00:18 GMT
+
+https://screenrant.com/red-dead-redemption-2-new-missions-fan-made/
+
+Mods have given Red Dead Redemption 2 new life over the years, and one new one adds a little more playability and depth to Saint Denis.
+---------
+
+# Paramount Canceled Starfleet Academy & Prodigy: The Best Hopes For Star Trek's Future
+
+TV, Star Trek, Star Trek: Starfleet Academy, Star Trek: Prodigy, Op-Ed
+
+Sun, 29 Mar 2026 10:00:18 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-prodigy-young-audience-paramount-fail/
+
+Star Trek: Starfleet Academy was a noble attempt to bring a younger audience into Star Trek, just like another show canceled after just 2 seasons.
+---------
+
+# Star Wars: Galaxy's Edge Changes Forever in 1 Month
+
+Movies, Star Wars, Star Wars: Galaxy's Edge
+
+Sun, 29 Mar 2026 10:00:12 GMT
+
+https://www.cbr.com/star-wars-galaxys-edge-changes-forever/
+
+Star Wars is a franchise that is always evolving, and the latest changes to Galaxy's Edge prove how the franchise will be moving going forward.
+---------
+
+# Marvel's Wonder Man Season 2 Renewal Changes Disney's Streaming Strategy
+
+TV, MCU, Wonder Man, Disney+
+
+Sun, 29 Mar 2026 10:00:12 GMT
+
+https://www.cbr.com/wonder-man-season-2-mcu-renweal-timing-trend/
+
+Disney's Wonder Man becomes the first MCU series renewed after its full release, marking a shift in the franchise's approach to streaming.
+---------
+
+# Russell Crowe’s Biblical Fantasy Epic Rewrites History on Streaming This April
+
+Movie News, Russell Crowe, Noah, Darren Aronofsky, Jennifer Connelly
+
+Sun, 29 Mar 2026 10:00:12 GMT
+
+https://collider.com/russell-crowe-biblical-fantasy-epic-noah-streaming-peacock-april-2026/
+
+Russell Crowe's controversial biblical epic, Noah, is coming to a new streamer this April. Find out more about the survival movie here.
+---------
+
+# Gerard Butler's 95-Minute Sci-Fi Disaster Hits a New Streamer
+
+Movie News, Gerard Butler, Sci-Fi, Gamer, Plex
+
+Sun, 29 Mar 2026 09:40:12 GMT
+
+https://collider.com/gerard-butler-sci-fi-disaster-gamer-free-streaming-plex-april-2026/
+
+Gerard Butler's 95-minute sci-fi disaster alongside Michael C. Hall, Gamer, is about to become available to stream on a new platform.
+---------
+
 # Crimson Desert Drops Massive Update With Highly Requested Changes
 
 Gaming, Crimson Desert
