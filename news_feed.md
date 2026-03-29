@@ -1,3 +1,179 @@
+# Shonen's Best Tournament Arc in 20 Years is Finally Here, and It's Revolutionary
+
+Anime, Jujutsu Kaisen
+
+Sun, 29 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-culling-game-best-tournament-arc-decades/
+
+Forget the Chunin Exams and the World Martial Arts Tournament, shonen's best new tournament arc is here and it's Jujutsu Kaisen's Culling Game.
+---------
+
+# The Duffer Brothers Have A New Netflix Show, But The True Stranger Things Follow-Up Is Coming In May
+
+Streaming TV, Something Very Bad Is Going to Happen, Stranger Things, Quiz CV
+
+Sun, 29 Mar 2026 23:27:59 GMT
+
+https://screenrant.com/duffer-brothers-something-very-bad-the-boroughs-real-stranger-things-replacement/
+
+The Duffer brothers are the duo behind Stranger Things, and now that the global sensation is over, Hollywood is watching what they'll do next.
+---------
+
+# New Images From DC Showcase Superman And Batman's New Matching Costumes
+
+DC Comics, Superman, Batman
+
+Sun, 29 Mar 2026 23:20:20 GMT
+
+https://screenrant.com/batman-superman-redesign-matching-costumes-beard/
+
+Batman and Superman's new costumes transform as they journey deeper into a far-away world in DC Comics' new World's Finest team-up story.
+---------
+
+# Before Taylor Dearden’s Breakout In The Pitt, She Starred In Netflix’s 98% Crime Series – Still Worth A Weekend Binge
+
+Streaming TV, The Pitt, American Vandal, Netflix
+
+Sun, 29 Mar 2026 23:18:21 GMT
+
+https://screenrant.com/netflix-american-vandal-series-taylor-dearden-watch/
+
+Discover the hidden gem Netflix series American Vandal, starring breakout star Taylor Dearden, of The Pitt acclaim, with a 98% Rotten Tomatoes score.
+---------
+
+# April 2026 Video Game Releases: Full List and Highlights
+
+Gaming, Pragmata
+
+Sun, 29 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/april-2026-video-games-releases-schedule-line-up/
+
+Discover the top video games releasing in April 2026, including Pragmata, Pokémon Champions, and more. Find the full list of titles and their genres.
+---------
+
+# Marvel and DC Make Huge Investment in Female Superheroes
+
+Comics, DC Comics, Marvel, DC
+
+Sun, 29 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/marvel-dc-new-comic-era-female-heroes/
+
+Marvel and DC comics have started a revolutionary new superhero era that was completely unexpected, but a change that definitely needed to happen.
+---------
+
+# From Dusk Till Dawn Starts Streaming for Free in April 2026
+
+Movies, From Dusk Till Dawn
+
+Sun, 29 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/from-dusk-till-dawn-pluto-streaming-april-2026/
+
+Pluto TV's line-up for April 2026 includes one of the greatest horror Western movies to ever hit the screen.
+---------
+
+# Prime Video's The Captive's War Aims to Overtake Dune: Prophecy
+
+TV, Prime Video, hbo, Dune: Prophecy, Sci-Fi
+
+Sun, 29 Mar 2026 23:30:12 GMT
+
+https://www.cbr.com/prime-video-captives-war-dune-prophecy-comparison/
+
+Prime Video's upcoming sci-fi series is set to cement the streamer as the king of space opera TV, taking on competition like HBO.
+---------
+
+# 10 Most OP Isekai MCs Who Are Still Surprisingly Relatable
+
+Anime, Sword Art Online, Isekai
+
+Sun, 29 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/most-relatable-overpowered-isekai-protagonists/
+
+Some Isekai protagonists stand out among audiences because deep down they are human, and can feel insecurity, fear, and regret.
+---------
+
+# Jack Black Wants to Star in Adaptation of Video Game Yakuza
+
+Movies, jack black, Yakuza
+
+Sun, 29 Mar 2026 23:08:46 GMT
+
+https://www.cbr.com/jack-black-wants-yakuza-adaptation/
+
+Jack Black reveals the video game adaptation he really wants to star in next following the Minecraft and Mario movies.
+---------
+
+# Sisu: Road to Revenge Becomes an Instant Streaming Hit on Netflix
+
+Movies, Sisu: Road to Revenge
+
+Sun, 29 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/the-wwii-movie-that-can-rival-john-wick-becomes-an-instant-streaming-hit-on-netflix/
+
+In 2014, Keanu Reeves revolutionized the revenge thriller genre with John Wick, and several films have tried to replicate its success.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Thriller Takes No. 1 From Karl Urban's Adventure Film on Prime Video
+
+Movie News, Mercy, Chris Pratt, The Bluff, Prime Video
+
+Sun, 29 Mar 2026 23:31:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-film-mercy-overtakes-karl-urban-pirate-thriller-the-bluff-prime-video-march-2026/
+
+Rebecca Ferguson and Chris Pratt's sci-fi thriller Mercy has become a streaming hit, dethroning The Bluff as the top movie on Amazon Prime.
+---------
+
+# Apple TV's 5-Part Spy Thriller Is Perfect From Start to Finish
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Jack Lowden
+
+Sun, 29 Mar 2026 23:27:14 GMT
+
+https://collider.com/slow-horses-apple-tv-spy-thriller-perfect/
+
+Apple TV's spy thriller Slow Horses combines action, humor, and smart writing for an addictive binge-watch.
+---------
+
+# Prime Video’s Top Spot Flips as Guy Ritchie’s New Hit Series Overtakes Kidman’s ‘Reacher’ Replacement
+
+TV News, Guy Ritchie, Young Sherlock, Scarpetta, Nicole Kidman
+
+Sun, 29 Mar 2026 23:15:12 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-overtakes-nicole-kidman-reacher-replacement-scarpetta-prime-video-charts-march-2026/
+
+Guy Ritchie's Young Sherlock has reclaimed its spot on Prime Video's viewership rankings from Nicole Kidman's Scarpetta. Find out more.
+---------
+
+# In Just 3 Days, Netflix's 10/10 Mystery Thriller from 'Stranger Things' Creators Is Officially a Global Hit
+
+TV News, Something Very Bad Is Going to Happen, Netflix, Stranger Things, Horror
+
+Sun, 29 Mar 2026 23:00:13 GMT
+
+https://collider.com/stranger-things-creators-duffer-brothers-new-series-something-very-bad-is-going-to-happen-streaming-success-netflix-march-2026/
+
+The Duffer Brothers' horror series Something Very Bad Is Going to Happen premieres on Netflix, quickly becoming a global hit.
+---------
+
+# 'Buffy's 24-Year-Old Spin-off Is the Revival We Needed From the Start
+
+Features, Buffy The Vampire Slayer, Buffy the Vampire Slayer: The Animated Series, Buffy the Vampire Slayer Sequel Series, Buffy the Vampire Slayer
+
+Sun, 29 Mar 2026 23:00:18 GMT
+
+https://movieweb.com/buffy-spin-off-revival-needed-from-start/
+
+The 'Buffy the Vampire Slayer' reboot may be canceled, but there is a clear path forward in a long-dead series pitch.
+---------
+
 # Mo & Rainwater's Secret Agenda For Kayce's Marshals Job Explained By Returning Yellowstone Star
 
 TV, Marshals, Marshals - Season 1, Yellowstone
