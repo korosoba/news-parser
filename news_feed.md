@@ -1,3 +1,113 @@
+# 10 Disney Animated Movies Impossible To Adapt In Live-Action
+
+Classic Movies, Disney
+
+Sun, 29 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/disney-animated-movies-live-action-adaptation-impossible/
+
+With Disney continuing to make live-action versions of their beloved animated films, these 10 movies will probably never be adapted.
+---------
+
+# 10 Near-Perfect Movie Musicals That Nobody Remembers Today
+
+Movies, Music, Phantom Of The Paradise, Pennies From Heaven, Popeye, Ladies and Gentlemen, the Fabulous Stains, Rock & Rule, Forbidden Zone, Shock Treatment, Earth Girls Are Easy, Pete's Dragon, The Apple, Disney, Forbidden
+
+Sun, 29 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/great-movie-musicals-nobody-remembers/
+
+From unhinged disco dystopias to gritty folk-horror, these are the 10 most stylistically bizarre musical masterpieces the world completely forgot.
+---------
+
+# House Of The Dragon Star's 8-Part Netflix Action Series Is The Perfect Watch For Sci-Fi Fans
+
+Streaming TV, Terminator Zero
+
+Sun, 29 Mar 2026 20:30:09 GMT
+
+https://screenrant.com/terminator-zero-sonoya-mizuno-netflix-watch-sci-fi-series/
+
+Sonoya Mizuno has been involved in some excellent and critically-acclaimed sci-fi projects, and she voices Eiko in Netflix's Terminator Zero.
+---------
+
+# Jon Hamm’s Your Friends & Neighbors Is Climbing Apple TV's Charts Ahead of Season 2 Premiere
+
+TV, Your Friends and Neighbors
+
+Sun, 29 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/jon-hamm-your-friends-and-neighbors-crime-apple-tv-success-march-2026/
+
+One of the best crime dramas of the past year is making a run for the top of the streaming charts ahead of its hotly-anticipated second season.
+---------
+
+# Ridley Scott Quietly Replaced American Horror Story 8 Years Ago With a 2-Part Hidden Gem
+
+TV, The Terror, American Horror Story, AMC
+
+Sun, 29 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-hidden-gem-american-horror-story-replacement/
+
+American Horror Story has declined in popularity over the last ten years, but Ridley Scott already produced the anthology series' best replacement.
+---------
+
+# 10 Greatest Black-and-White Action Movies, Ranked
+
+Movie, Action, Seven Samurai, The General, Sanjuro
+
+Sun, 29 Mar 2026 20:33:12 GMT
+
+https://collider.com/best-black-and-white-action-movies-ranked/
+
+From the original Scarface to legendary classics like Seven Samurai, these black-and-white movies are truly riveting masterpieces of the action genre.
+---------
+
+# Netflix’s Alan Ritchson Sci-Fi Epic Is Still One of 2026's Biggest Breakout Hits
+
+Movie News, War Machine, Netflix, Alan Ritchson, Reacher
+
+Sun, 29 Mar 2026 20:31:12 GMT
+
+https://collider.com/alan-ritchson-war-machine-sci-fi-epic-streaming-success-netflix-march-2026/
+
+War Machine is still one of Netflix’s biggest movies of 2026, with Alan Ritchson’s sci-fi action hit pulling in huge global numbers.
+---------
+
+# 10 Most Perfect A24 Horror Movies, Ranked
+
+Movie, Horror, Green Room, Hereditary, A24
+
+Sun, 29 Mar 2026 20:27:12 GMT
+
+https://collider.com/perfect-a24-horror-movies/
+
+A24 has released a multitude of exceptional, well-crafted horror films, including the likes of I Saw the TV Glow, Talk to Me, and Hereditary.
+---------
+
+# 'Project Hail Mary' Soars at the Box Office as 'They Will Kill You' free falls
+
+Movie News, Project Hail Mary, They Will Kill You, Hoppers
+
+Sun, 29 Mar 2026 20:37:21 GMT
+
+https://movieweb.com/project-hail-mary-soars-free-falls/
+
+'Project Hail Mary' is living up to the promise that it'll be the first big blockbuster of 2026.
+---------
+
+# 'Man on Fire': The Perfect 'Reacher' Action Thriller Follow-up Arrives Next Month
+
+Features, Reacher, Man on Fire, Upcoming Tease
+
+Sun, 29 Mar 2026 20:30:17 GMT
+
+https://movieweb.com/man-on-fire-netflix-reacher-follow-up/
+
+This series, which was previously a blockbuster movie starring Denzel Washington, is coming to Netflix soon, and action thriller fans can't wait.
+---------
+
 # 10 Best Superman Copycats and Knockoffs Introduced Since 2000
 
 Comics, Superman
