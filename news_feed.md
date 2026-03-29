@@ -1,3 +1,366 @@
+# Apple TV’s Underrated 8-Part Sci-Fi Anthology Is Aging As Well As Black Mirror
+
+Classic TV, Apple TV, Black Mirror, Extrapolations
+
+Sun, 29 Mar 2026 01:45:18 GMT
+
+https://screenrant.com/apple-tv-extrapolations-sci-fi-black-mirror/
+
+Apple TV is the streaming home of an underrated 8-episode anthology series, which, like Black Mirror, seems to be aging incredibly well with time.
+---------
+
+# Andy Weir Says Star Trek's New Shows Are "Sh*t" As Project Hail Mary Author Reveals Paramount Rejected His Franchise Pitch
+
+TV, Star Trek, Paramount, Project Hail Mary, Star Trek: Starfleet Academy, Star Trek: Starfleet Academy - Season 1, Star Trek: Strange New Worlds
+
+Sun, 29 Mar 2026 01:36:24 GMT
+
+https://screenrant.com/andy-weir-star-trek-rejected-pitch-new-shows-criticism/
+
+Andy Weir's Project Hail Mary is a box office smash hit, but Paramount rejected his Star Trek pitch, and he is not a fan of the modern shows.
+---------
+
+# Joel Kinnaman's Netflix Crime Thriller: Perfect Evolution Of Cyberpunk Role
+
+Streaming TV, Altered Carbon, Joe Nesbø's Detective Hole, Joel Kinnaman
+
+Sun, 29 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/joel-kinnaman-netflix-detective-hole-cyberpunk-altered-carbon/
+
+Joel Kinnaman is the lead in Netflix’s new thriller, and a closer look at his role reveals how it is an evolution of his previous cyberpunk character.
+---------
+
+# Pokémon Pokopia: 10 Coolest Things To Build
+
+Gaming, Pokemon Pokopia
+
+Sun, 29 Mar 2026 01:00:19 GMT
+
+https://screenrant.com/pokemon-pokopia-coolest-things-to-build/
+
+Discover endless creative possibilities in Pokémon Pokopia by building unique homes, parks, and more for your Pokémon friends.
+---------
+
+# Netflix’s New 9-Part Crime Thriller Is A Perfect 100% RT Redemption After A 7% Flop
+
+Streaming TV, Joe Nesbø's Detective Hole, Netflix
+
+Sun, 29 Mar 2026 00:45:18 GMT
+
+https://screenrant.com/detective-hole-redemption-the-snowman/
+
+Netflix’s new 9-part crime thriller has achieved a rare 100% Rotten Tomatoes score allowing to perfectly redeem a 9-year-old movie’s 7% RT failure.
+---------
+
+# The Smartest Character in Anime History is Officially Returning to Crunchyroll On April 1st
+
+Anime, Crunchyroll, Classroom of the Elite
+
+Sun, 29 Mar 2026 00:30:18 GMT
+
+https://screenrant.com/classroom-of-the-elite-season-4-return-smartest-anime-character/
+
+The smartest character in anime is finally returning to Crunchyroll on April 1st, and it's no joke: one of the best franchises around is finally back.
+---------
+
+# God of War TV Show: Key Game Scenes to Include
+
+Streaming TV, God of War
+
+Sun, 29 Mar 2026 00:30:18 GMT
+
+https://screenrant.com/god-of-war-scenes-included-amazon-live-action-series/
+
+Amazon's live-action God of War series will need to include a few key moments from the video games in order to do Kratos' story justice.
+---------
+
+# From Season 4’s Return In April Makes It The Perfect Time To Binge It
+
+Streaming TV, From, Horror
+
+Sun, 29 Mar 2026 00:28:34 GMT
+
+https://screenrant.com/from-horror-show-binge-before-season-4-return-recommendation/
+
+Fans of horror have enough time to binge one of the best ongoing shows of the genre, which has a near-perfect RT score and it set to return next month
+---------
+
+# Netflix's 3-Part Survival Thriller Was The Streaming Sensation Nobody Saw Coming
+
+Classic TV, Squid Game
+
+Sun, 29 Mar 2026 00:02:20 GMT
+
+https://screenrant.com/netflix-squid-game-streaming-hit-not-see-coming/
+
+Netflix’s three-season survival thriller is one of its best TV shows, but nobody had the foresight to predict just how successful it would become.
+---------
+
+# Timothée Chalamet's 3-Part Space Opera Has Almost Set The Bar Too High
+
+Movies, Dune, Sci-Fi
+
+Sun, 29 Mar 2026 00:00:19 GMT
+
+https://screenrant.com/dune-timothee-chalamet-space-opera-bar-too-high/
+
+While it may be epic, one Chalamet-led franchise may have set the bar for cinematic sci-fi adaptations so high that it's becoming unreachable.
+---------
+
+# 10 Best Fantasy Anime Streaming on Crunchyroll in April 2026
+
+Anime, Frieren: Beyond Journey's End, Attack on Titan, Jujutsu Kaisen, One Piece
+
+Sun, 29 Mar 2026 01:45:12 GMT
+
+https://www.cbr.com/best-fantasy-anime-streaming-on-crunchyroll-april-2026/
+
+A breakdown of the best fantasy anime streaming on Crunchyroll, from genre classics to modern favorites.
+---------
+
+# 8 Fantasy Shows That Defined the Last Decade
+
+TV, Fantasy, Stranger Things, Game Of Thrones, The Witcher
+
+Sun, 29 Mar 2026 01:30:12 GMT
+
+https://www.cbr.com/fantasy-shows-defined-prior-decade-list/
+
+Fantasy has been a genre on the rise, and the last decade has been full of incredible shows that shaped mythological storytelling moving forward.
+---------
+
+# A Silent Voice Producer Explains Anime's Big Movie Problem: 'Female Fans Won't Come to Theaters'
+
+Anime, A Silent Voice
+
+Sun, 29 Mar 2026 01:30:12 GMT
+
+https://www.cbr.com/anime-movie-problem-female-fans-theater-attend/
+
+A Silent Voice producer Toshio Iizuka explains how moviegoing culture in relation to anime has changed dramatically for girls and young women.
+---------
+
+# Agatha Christie's Miss Marple Adaptations Stream for Free on March 29th
+
+TV, Marple, Crime
+
+Sun, 29 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/pbs-agatha-christie-marathon-march-prime-video-channels-2026/
+
+Agatha Christie fans can end the weekend with a Christie marathon starring the beloved Miss Jane Marple.
+---------
+
+# The Godfather Is Heading to a Free Streaming Home
+
+Movies, The Godfather
+
+Sun, 29 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/the-godfather-free-streaming-pluto-tv-april-2026/
+
+Fans can revisit the movie that Steven Spielberg called the "greatest American film" ever made.
+---------
+
+# The 2 Best Gaming Hardware We Tried at PAX East
+
+Games, Video Games, Minecraft
+
+Sun, 29 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/pax-east-2026-gametank-omara-ovr-scent-display-minecraft-console/
+
+From new consoles like the GameTank to new accessories like the Omara, PAX East exhibted some of the most fascinating hardware.
+---------
+
+# 10 Strongest Female Anime Characters More OP Than Sung Jinwoo
+
+Anime, Solo Leveling, Puella Magi Madoka Magica, Dragon Ball, Naruto
+
+Sun, 29 Mar 2026 00:45:12 GMT
+
+https://www.cbr.com/female-anime-characters-stronger-than-sung-jinwoo/
+
+These female anime characters reach multiversal, conceptual, or reality-warping levels that trivialize Sung Jinwoo’s otherwise significant victories.
+---------
+
+# Alan Ritchson’s Favorite Movie Is Flight of the Navigator
+
+Movies, Flight of the Navigator
+
+Sun, 29 Mar 2026 00:45:12 GMT
+
+https://www.cbr.com/alan-ritchson-favorite-movie-flight-of-the-navigator-explained/
+
+Alan Ritchson plays one of TV's toughest heroes, but he has a soft spot for an 80s sci-fi classic from Disney that deserves more love thrown its way.
+---------
+
+# Bambi: The Reckoning Horror Reimagining Becomes an Instant Streaming Hit on Peacock
+
+Movies, Bambi: The Reckoning
+
+Sun, 29 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/bambi-the-reckoning-horror-peacock-success-march-2026/
+
+The latest addition to the most controversial cinematic universe of all time is officially a streaming hit after a single day of streaming.
+---------
+
+# 7 Near-Perfect PS3 Action RPGs That Nobody Remembers
+
+Games, PlayStation (Original), Role Playing Game
+
+Sun, 29 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/best-forgotten-ps3-rpgs-list/
+
+Some of the best action RPGs on the PS3 are severely underrated today.
+---------
+
+# 7 'House of David' Season 2 Moments That Pay Off from Season 1
+
+TV, House of David, Prime Video, Drama, TV Series
+
+Sun, 29 Mar 2026 01:43:12 GMT
+
+https://collider.com/house-of-david-season-2-moments-pay-off/
+
+The second season of House of David features full-circle moments that pay off from season 1, from Doeg's punishment to Queen Ahinoam's exile.
+---------
+
+# Taylor Sheridan's 2-Part Neo-Western Series Is So Good, It Could Last Forever
+
+TV Features, Taylor Sheridan, Landman, Western, Billy Bob Thornton
+
+Sun, 29 Mar 2026 01:36:12 GMT
+
+https://collider.com/landman-taylor-sheridan-western-could-last-forever/
+
+Taylor Sheridan's hit neo-Western series Landman, starring Billy Bob Thornton, Sam Elliott, Ali Larter, and Demi Moore, is full of so much potential.
+---------
+
+# 13 Most Perfectly Directed Thriller Movies of All Time, Ranked
+
+Movie, Thriller, Alfred Hitchcock, Christopher Nolan, Stanley Kubrick
+
+Sun, 29 Mar 2026 01:33:12 GMT
+
+https://collider.com/most-perfectly-directed-thriller-movies-all-time-ranked/
+
+Taxi Driver, Get Out, Uncut Gems, Parasite, American Psycho, Eyes Wide Shut, and more make up our list of the most perfectly directed thriller movies.
+---------
+
+# Netflix's 2-Part Sci-Fi Series Remains One of the Best on Any Streaming Platform 8 Years Later
+
+TV Features, Sense8, Sci-Fi, Netflix, The Wachowskis
+
+Sun, 29 Mar 2026 01:01:12 GMT
+
+https://collider.com/sense8-netflix-best-sci-fi-series/
+
+Sense8 revolutionized sci-fi with its bold themes, diverse cast, and groundbreaking storytelling, becoming a beloved cult classic.
+---------
+
+# John Cena’s Wild Satire Returns to Streaming as a Perfect Late-Night Watch
+
+TV News, Blockers, John Cena, Comedy, Tubi
+
+Sun, 29 Mar 2026 01:00:12 GMT
+
+https://collider.com/john-cena-edgy-teen-comedy-blockers-free-streaming-tubi-april-1-2026/
+
+John Cena proves that he is way funnier on screen than people first gave him credit for in Blockers, which is coming to free streaming.
+---------
+
+# 19 Years Later, Denzel Washington’s 157-Minute Crime Epic Returns to Netflix
+
+Movie News, American Gangster, Russell Crowe, Denzel Washington, Netflix
+
+Sun, 29 Mar 2026 00:45:12 GMT
+
+https://collider.com/denzel-washington-russell-crowe-biographical-crime-thriller-american-gangster-streaming-netflix-april-2026/
+
+Denzel Washington and Russell Crowe's biographical crime epic American Gangster is heading back to Netflix soon. Here's what we know.
+---------
+
+# 7 Crime Shows Where Every Episode Is a Masterpiece
+
+TV, Crime, The Sopranos, The Wire, Mr Inbetween
+
+Sun, 29 Mar 2026 00:34:12 GMT
+
+https://collider.com/crime-shows-every-episode-masterpiece/
+
+HBO's The Sopranos, ITV's Broadchurch, and FX's Mr Inbetween are among the rare class of crime TV shows where every episode is a masterpiece.
+---------
+
+# 10 Years Later, Daniel Radcliffe’s Chilling Post-Harry Potter Crime Thriller Returns to Streaming
+
+Movie News, Daniel Radcliffe, Imperium, Harry Potter
+
+Sun, 29 Mar 2026 00:30:12 GMT
+
+https://collider.com/daniel-radcliffe-post-harry-potter-crime-thriller-imperium-free-streaming-tubi-april-1-2026/
+
+Imperium, starring Daniel Radcliffe as an FBI agent infiltrating a white supremacist group, will stream free on Tubi from April 1.
+---------
+
+# Ben Stiller’s Beloved $1.9B Adventure Trilogy Arrives on Netflix Next Week
+
+Movie News, Madagascar, Ben Stiller, Chris Rock, Netflix
+
+Sun, 29 Mar 2026 00:15:12 GMT
+
+https://collider.com/ben-stiller-madagascar-adventure-trilogy-streaming-netflix-april-2026/
+
+Over 20 years after the first film, Ben Stiller's Madagascar trilogy has found a new home on streaming. Here's where to catch it next month.
+---------
+
+# Brutal 10-Year-Old Western Thriller Rides Onto Free Streaming in 4 Days
+
+Movie News, Brimstone, Guy Pearce, Western
+
+Sun, 29 Mar 2026 00:00:12 GMT
+
+https://collider.com/guy-pearce-forgotten-western-thriller-brimstone-streaming-free-tubi-april-1-2026/
+
+Brimstone, the 2016 Western mystery thriller starring Dakota Fanning and Guy Pearce, will stream free on Tubi from April 1.
+---------
+
+# Jensen Ackles Confirms Plans for Future Seasons of 'The Boys' Spin-off Series
+
+TV News, The Boys, Vought Rising, Jensen Ackles
+
+Sun, 29 Mar 2026 01:07:49 GMT
+
+https://movieweb.com/the-boys-jensen-ackles-confirms-future-seasons/
+
+The future of 'The Boy' just got more exciting with the tease of plans for future seasons of the forthcoming spin-off.
+---------
+
+# Stephen King's Underrated Netflix Thriller Is the Perfect 'It' Follow-up
+
+Features, Stephen King, Netflix, Thriller, Mr. Harrigan's Phone, It, It: Welcome to Derry
+
+Sun, 29 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/stephen-king-mr-harrigans-phone-netflix-thriller/
+
+Stephen King adaptations have found plenty of success, with 'It' fans having the perfect follow-up movie in an overlooked horror gem.
+---------
+
+# Robert Pattinson & Zendaya Movie Controversy Mirrors Past Problematic Twist
+
+Features, The Drama, Robert Pattinson, Zendaya Coleman, Remember Me, Romance
+
+Sun, 29 Mar 2026 00:00:18 GMT
+
+https://movieweb.com/robert-pattinson-zendaya-controversy-problematic-twist/
+
+Robert Pattinson and Zendaya's 'The Drama' is stirring controversy that feels bizarrely ironic given the actor's past resume.
+---------
+
 # One-Punch Man Season 3 Ruined the Reputation of This Romance Classic
 
 Anime, Honey and Clover, One-Punch Man
