@@ -1,3 +1,201 @@
+# 6 Sci-Fi Movies That Have Aged Like Milk
+
+Movies, Sci-Fi
+
+Sun, 29 Mar 2026 16:20:19 GMT
+
+https://screenrant.com/scifi-movies-aged-like-milk/
+
+As the real world rapidly evolves and advances, future-focused Science Fiction films often reach an expiration date and lose their impact.
+---------
+
+# A Shonen Jump Legend Is Back With A New Manga
+
+Anime, Gintama, Shonen Jump
+
+Sun, 29 Mar 2026 16:19:08 GMT
+
+https://screenrant.com/gintama-creator-return-new-shonen-jump-manga-2b-hero-destroyers/
+
+Everything we know about Shonen Jump's next big hit.
+---------
+
+# Fantastic Four's New Appearance Introduces Permanent New Superpower for A-List Hero
+
+Comics, Fantastic Four
+
+Sun, 29 Mar 2026 16:15:06 GMT
+
+https://screenrant.com/fantastic-four-invisible-woman-new-powers-avengers/
+
+In an intense new development, Marvel has confirmed a new power for Fantastic Four's Invisible Woman, right as she joins the Avengers.
+---------
+
+# Casting Voldemort For HBO's Harry Potter: 10 Actors Who Haven't Been Mentioned Yet
+
+Streaming TV, Harry Potter
+
+Sun, 29 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/harry-potter-hbo-series-voldemort-actors-not-mentioned-yet/
+
+These 10 talented British actors could bring a fresh, compelling take to the iconic villain role of Lord Voldemort in HBO's Harry Potter series.
+---------
+
+# Free Steam RPG Has Cozy Gamers Obsessed
+
+Gaming, Steam, PC, Live Service Games, RPG
+
+Sun, 29 Mar 2026 16:00:20 GMT
+
+https://screenrant.com/steam-free-cozy-game-rpg-multiplayer/
+
+Fans of cozy RPGs will not want to miss out on a new free game that has been added to Steam and has already hooked hundreds of players.
+---------
+
+# The Best Thriller Movie From Every Decade Over The Last 100 Years
+
+Movies, Thriller, Recommendation
+
+Sun, 29 Mar 2026 15:55:18 GMT
+
+https://screenrant.com/best-thriller-movies-every-decade-100-years/
+
+Picking the best thriller from each decade of the past century is as nerve-racking as watching them, and they've all had big impacts on the genre.
+---------
+
+# Project Hail Mary Is The First Movie To Outgross Avatar: Fire And Ash On A Major Box Office Chart
+
+Movies, Project Hail Mary, Box Office
+
+Sun, 29 Mar 2026 15:39:48 GMT
+
+https://screenrant.com/project-hail-mary-box-office-2026-highest-grossing-chart-domestic/
+
+Project Hail Mary soars up a major box office chart, becoming the first movie to usurp James Cameron's blockbuster sequel Avatar: Fire and Ash.
+---------
+
+# 10 Easy-to-Binge Isekai Anime That Have Zero Bad Episodes
+
+Anime, Isekai, No Game No Life
+
+Sun, 29 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/best-isekai-anime-to-binge-zero-bad-episodes/
+
+It can be tough to keep up with every new Isekai anime, but the best among them are easy to binge over a weekend.
+---------
+
+# Monica Dutton's Yellowstone Spinoff Role Marshals Officially Confirmed
+
+TV, Marshals
+
+Sun, 29 Mar 2026 16:08:17 GMT
+
+https://www.cbr.com/monica-dutton-marshals-role-mo-brings-plenty-tease/
+
+The Yellowstone spinoff sequel featured a major twist.
+---------
+
+# New G1 Transformers Storyboard Reveal Jetfire's Lost Original Design
+
+Anime, Transformers, The Transformers, Macross: Do You Remember Love?
+
+Sun, 29 Mar 2026 16:00:13 GMT
+
+https://www.cbr.com/transformers-g1-jetfire-original-design-reveal/
+
+An early look at the G1 Transformers cartoon sees the introduction of a color-based controversy and an equally contentious alternate design.
+---------
+
+# McCoy’s Greatest Star Trek Line Is Still the Scariest Sci-Fi Quote
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Sun, 29 Mar 2026 16:00:13 GMT
+
+https://www.cbr.com/mccoy-star-trek-tos-line-scariest-ai-sci-fi-quote/
+
+One of Leonard McCoy's lines in "The Ultimate Computer" is among the most terrifyingly relevant quotes in Star Trek history.
+---------
+
+# 10 Greatest Musicals of the Last 75 Years, Ranked
+
+Movie, Musical, Singin' in the Rain, The Sound of Music, Beauty and the Beast
+
+Sun, 29 Mar 2026 16:06:13 GMT
+
+https://collider.com/best-movie-musicals-last-75-years-ranked/
+
+The Sound of Music, Singin' in the Rain, and The Lion King are all among the absolute best musical movies of the last 75 years.
+---------
+
+# This Ruthless 6-Part Sleeper Hit Is a Weekend Binge Worth Every Minute
+
+TV Features, Sweetpea, Ella Purnell, STARZ, Thriller
+
+Sun, 29 Mar 2026 15:54:13 GMT
+
+https://collider.com/sweetpea-ella-purnell-sleeper-hit-weekend-binge/
+
+The twisted tale of Sweetpea is a dark thriller starring Ella Purnell as a shy girl named Rhiannon turned murderer.
+---------
+
+# New Sci-Fi Masterpiece Destroys M. Night Shyamalan’s Rare Genre Experiment at the Box Office
+
+Movie News, Project Hail Mary, M. Night Shyamalan, After Earth, Ryan Gosling
+
+Sun, 29 Mar 2026 14:58:24 GMT
+
+https://collider.com/ryan-gosling-project-hail-mary-overtakes-will-smith-m-night-shyamalan-after-earth-box-office-300-million/
+
+Project Hail Mary, already touted as one of the best sci-fi movies ever, has destroyed M. Night Shyamalan’s forgotten apocalypse experiment.
+---------
+
+# Best Animated Movies Over 2 Hours Long
+
+Movie Lists, Animation
+
+Sun, 29 Mar 2026 16:01:18 GMT
+
+https://movieweb.com/best-animated-movies-over-2-hours/
+
+With their sweeping cinematic scopes, these movies push the boundaries of animated storytelling.
+---------
+
+# The Best Guilty Pleasure Sci-Fi Thriller of the 2000s Arrives on Streaming
+
+Movie News, The Core, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 29 Mar 2026 16:01:17 GMT
+
+https://movieweb.com/the-core-sci-fi-disaster-streaming-paramount-plus-april-2026/
+
+Released in 2003, 'The Core' is one of those sci-fi disaster thrillers that's wildly inaccurate, but still fun to watch.
+---------
+
+# How Chuck Norris Inspired Taylor Sheridan's Prolific 21st Century Westerns
+
+Features, Taylor Sheridan, Career Arc Reframe
+
+Sun, 29 Mar 2026 16:01:17 GMT
+
+https://movieweb.com/chuck-norris-taylor-sheridan-walker-texas-ranger/
+
+Taylor Sheridan worked with Chuck Norris on an episode of 'Walker, Texas Ranger', an experience that inspired him to write an Oscar-nominated movie.
+---------
+
+# 'Project Hail Mary' Author Explains Why Modern 'Star Trek' Shows "Are S***"
+
+TV News, Andy Weiss, Star Trek, Star Trek: Starfleet Academy, Project Hail Mary
+
+Sun, 29 Mar 2026 15:47:07 GMT
+
+https://movieweb.com/project-hail-mary-author-star-trek/
+
+The author once pitched his own idea for a 'Star Trek' show to Paramount. "But they didn’t accept my pitch so, you know, f*** ’em.”
+---------
+
 # How Marshals Continues An Important 8-Year Taylor Sheridan Tradition That Began With Yellowstone
 
 Exclusive, Marshals, Yellowstone
