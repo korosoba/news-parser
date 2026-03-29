@@ -1,3 +1,102 @@
+# Zelda Meets No Man's Sky In New RPG You Can Play Free Now
+
+Gaming
+
+Sun, 29 Mar 2026 11:30:19 GMT
+
+https://screenrant.com/steam-free-rpg-zelda-meets-no-mans-sky/
+
+Explore a dynamically generated world in Highreach, where survival meets strategy, combat, and crafting.
+---------
+
+# Fallout 5 Official Setting Confirmation Divides Gamers
+
+Gaming, Fallout, Fallout 5
+
+Sun, 29 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/fallout-5-official-setting-update-gamer-reaction/
+
+Todd Howard has given is a sliver of information about Fallout 5, confirming the story will be closely tied to the events of the show.
+---------
+
+# All Of Us Are Dead: Netflix's Zombie Series That's Worth The Wait
+
+Streaming TV, All Of Us Are Dead
+
+Sun, 29 Mar 2026 11:00:19 GMT
+
+https://screenrant.com/all-of-us-are-dead-season-2-fans-waiting-5-years/
+
+Netflix series often take years to develop new seasons, but the streaming service's best zombie thriller has been gone for nearly half a decade.
+---------
+
+# 22 Years Ago, DC's Identity Crisis Event Had One of The Most Shocking Deaths In Batman History
+
+Comics, Batman, DC Comics
+
+Sun, 29 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/dc-controversial-identity-crisis-event-changed-batman-and-robin-forever/
+
+This 2004 DC Comics event still remains controversial today, but it did give fans one of the most shocking moments in modern Batman history.
+---------
+
+# 79 Years Later, One of the Best Noir Thrillers Ever Debuts on a New Streamer
+
+Movie News, Out Of The Past, Robert Mitchum, Kirk Douglas, Film Noir
+
+Sun, 29 Mar 2026 11:30:12 GMT
+
+https://collider.com/robert-mitchum-best-noir-thriller-out-of-the-past-streaming-hbo-max-april-2026/
+
+Robert Mitchum's Out of the Past, one of the best noir films ever, will take the twisting mystery to a new streaming home next month.
+---------
+
+# As a Stephen King Fan, These Are the 10 Greatest TV Adaptations, Ranked
+
+TV, Stephen King, It: Welcome to Derry, Castle Rock, The Outsider
+
+Sun, 29 Mar 2026 11:09:12 GMT
+
+https://collider.com/stephen-king-fan-ranks-best-tv-shows/
+
+TV is an excellent medium for Stephen King stories, and as a fan, I think HBO's The Outsider and Hulu's 11.22.63 are some of the best shows.
+---------
+
+# This 11-Part Sci-Fi Is So Brilliant, You Can Start From Any Episode
+
+TV Features, The X-Files, David Duchovny, Gillian Anderson, Sci-Fi
+
+Sun, 29 Mar 2026 11:01:12 GMT
+
+https://collider.com/the-x-files-sci-fi-start-from-any-episode/
+
+David Duchovny and Gillian Anderson's epic sci-fi series The X-Files is an excellent binge from start to finish.
+---------
+
+# NBC's 3-Part 'The Office' Successor Clocks Into a New Streamer
+
+TV News, St. Denis Medical, The Office, NBC, Netflix
+
+Sun, 29 Mar 2026 11:00:13 GMT
+
+https://collider.com/st-denis-medical-the-office-replacement-streaming-netflix-april-2026/
+
+St. Denis Medical is heading to a new streaming platform to kick off April. Here's where to catch the underrated NBC mockumentary.
+---------
+
+# 6 Classic K-Dramas That Have Aged Like Fine Wine
+
+TV, South Korea, Full House, Reply 1988, Winter Sonata
+
+Sun, 29 Mar 2026 10:59:12 GMT
+
+https://collider.com/classic-k-drama-shows-aged-well/
+
+Dive into the enduring classic K-dramas that continue to captivate audiences and shape the genre, from Reply 1988 to Winter Sonata.
+---------
+
 # Chrono Trigger 31st Anniversary Release Officially Unveiled By Square Enix
 
 Gaming, Chrono Trigger
