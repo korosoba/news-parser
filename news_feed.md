@@ -1,3 +1,223 @@
+# GTA 6 Trailer 3 Graphics Split Gamers
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games
+
+Mon, 30 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/gta-6-trailer-3-graphics-jump-gamer-reactions/
+
+Grand Theft Auto 6 Trailer 3 is highly anticipated, but there is debate about whether it will amount to the same standard as Trailer 2 last year.
+---------
+
+# 10 Years Later, Dragon Ball Super Still Has the Greatest Filler Episode in Anime History, and It's Not Close
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Mon, 30 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/dragon-ball-super-greatest-filler-episode/
+
+Discover how Dragon Ball Super's iconic baseball episode sets a new standard for anime filler, blending humor and character development.
+---------
+
+# Prime Video's Upcoming Space Opera Reboot Will Rewrite The Rules Of Science Fiction
+
+Streaming TV, Stargate, Stargate SG-1, Sci-Fi, Amazon Prime Video
+
+Mon, 30 Mar 2026 23:01:19 GMT
+
+https://screenrant.com/prime-video-stargate-reboot-rewrite-rules-sci-fi-television/
+
+The kind of sweeping, accessible space opera that once defined sci-fi TV has become increasingly rare, but that could all be about to change.
+---------
+
+# Streaming Profits Hit Record High Globally As 2030 Projections Reach New Heights
+
+Movies, Streaming Charts, Netflix, HBO Max, Apple TV, Hulu, Prime Video, Paramount Plus, STARZ, Disney+, Peacock, Tubi TV
+
+Mon, 30 Mar 2026 22:53:55 GMT
+
+https://screenrant.com/streaming-profits-global-projections-report/
+
+Streaming services are successfully driving revenue through methods such as bundling, ad supported tiers, and higher pricing for their subscribers.
+---------
+
+# Sinatra’s Paradise Season 2 Finale Fate Explained By Creator & Star After Massive Twists
+
+TV, Paradise, Paradise - Season 2
+
+Mon, 30 Mar 2026 22:47:09 GMT
+
+https://screenrant.com/paradise-season-2-finale-sinatra-fate-dan-fogelman-julianne-nicholson-explained/
+
+What actually happened to Sinatra and whether she will be back is explained by Paradise creator Dan Fogelman and actress Julianne Nicholson.
+---------
+
+# Spider-Man's Sinister Six Just Became His Personal Avengers
+
+Comics, Spider-Man
+
+Mon, 30 Mar 2026 22:41:18 GMT
+
+https://screenrant.com/spider-man-sinister-six-heroes-new-team/
+
+Spider-Man has battled the Sinister Six countless times, but one variant cover asks: what if these villains became his allies as a new squad?
+---------
+
+# New ARC Raiders Update Is A Game-Changer Worth Coming Back For
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Mon, 30 Mar 2026 22:39:17 GMT
+
+https://screenrant.com/arc-raiders-flashpoint-update-changes-crafting-weapons-enemies/
+
+Five months from launch, ARC Raiders is set to release its Flashpoint update, which is a great excuse to hop back into the extraction shooter.
+---------
+
+# 10 Western TV Shows Everyone Should Watch At Least Once
+
+Classic TV, Western, Deadwood, Lawmen: Bass Reeves, Longmire, Dark Winds, Godless, Hell on Wheels, Justified, Gunsmoke, Rawhide, Yellowstone
+
+Mon, 30 Mar 2026 22:30:21 GMT
+
+https://screenrant.com/western-tv-shows-everyone-watch-once/
+
+Discover the top 10 Western TV shows that offer a perfect blend of classic storytelling and modern twists, perfect for longtime fans and newcomers alike.
+---------
+
+# 10 Hardest Game Boy Games of All Time, Ranked By Difficulty
+
+Games, Nintendo, retro games
+
+Mon, 30 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/hardest-game-boy-games-ever-made-ranked-by-difficulty-list/
+
+The most difficult Game Boy games proved they were just as tough as anything on the NES or SNES.
+---------
+
+# 10 Reasons The Super Mario Bros. Movie Is Still the Best Video Game Movie Ever
+
+Movies, The Super Mario Bros. Movie, super mario bros, Nintendo
+
+Mon, 30 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/the-super-mario-bros-movie-still-best-video-game-movie-ever/
+
+The Super Mario Bros. Movie is a rare example of a successful video game movie, but it's also proven why it's the best video game movie of all time.
+---------
+
+# Bag of Bones: Stephen King's Forgotten Horror Miniseries
+
+TV, Bag of Bones, Pierce Brosnan, Stephen King, Horror
+
+Mon, 30 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/stephen-king-bag-of-bones-perfect-horror-binge/
+
+This classic miniseries is perfect for horror fans who want a short binge.
+---------
+
+# 25 Best Overpowered Main Characters In Anime
+
+Anime, characters, Mob Psycho 100, Goku, One-Punch Man, The Disastrous Life of Saiki K., Trigun, god of high school, Black Clover, My Hero Academia, Dragon Ball, Overlord, That Time I Got Reincarnated as a Slime
+
+Mon, 30 Mar 2026 22:45:15 GMT
+
+https://www.cbr.com/best-anime-with-op-protagonist/
+
+OP main characters in anime make for some of the most outrageous and exciting battles, but only when they're done just right.
+---------
+
+# Pacific Rim: Uprising Resurfaces on Hulu in April
+
+Movies, Pacific Rim: Uprising
+
+Mon, 30 Mar 2026 22:30:12 GMT
+
+https://www.cbr.com/pacific-rim-uprising-hulu-april-2026/
+
+The big-budget sci-fi action sequel starring John Boyega gets a new streaming home.
+---------
+
+# Netflix’s New Crime Thriller Just Beat One of 2026's Biggest Hits on the Global Charts
+
+TV News, Netflix, One Piece, Jo Nesbø's Detective Hole, Mystery
+
+Mon, 30 Mar 2026 23:00:13 GMT
+
+https://collider.com/netflix-one-piece-overtaken-by-detective-hole-adaptation-streaming-success-march-2026/
+
+A new detective adaptation surges past a massive 2026 Netflix hit, climbing global charts fast and reshaping top rankings worldwide.
+---------
+
+# 10 Years Later, Glen Powell's Cult Classic Hangout Movie Has Aged Like Fine Wine
+
+Movie Features, Everybody Wants Some!!, Glen Powell, Richard Linklater, Zoey Deutch
+
+Mon, 30 Mar 2026 22:42:12 GMT
+
+https://collider.com/glen-powell-best-movie-everybody-wants-some-cult-classic-anniversary/
+
+Richard Linklater's 2016 masterpiece still deserves way more attention than it gets.
+---------
+
+# Prime Video’s Colossal 4-Part Superhero Series Keeps Getting Better
+
+TV Features, Steven Yeun, J.K. Simmons, Robert Kirkman, Invincible
+
+Mon, 30 Mar 2026 22:42:12 GMT
+
+https://collider.com/invincible-prime-video-superhero-series-keeps-getting-better/
+
+Prime Video's Invincible sets itself apart from other superhero shows with its unique artwork and emotional depth.
+---------
+
+# Before ‘Mission: Impossible,' Tom Cruise and McQ Collaborated on This War Movie on Prime Video
+
+Movie, Prime Video, Pretty Lethal, valkyrie, Hitch
+
+Mon, 30 Mar 2026 22:35:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-march-30/
+
+Pretty Lethal, Hitch, and Valkyrie make up our list of the best movies to watch on Prime Video the week of March 30th, 2026.
+---------
+
+# 'Scrubs: Med School' Was a Bigger Original Cast Reunion Than the Revival Is
+
+Features, Scrubs
+
+Mon, 30 Mar 2026 23:00:18 GMT
+
+https://movieweb.com/scrubs-revival-success-season-9-failure/
+
+'Scrubs' Season 9 failed when it was released, but the show's revival has learned a key lesson from the not-quite-spin-off.
+---------
+
+# Andy Weir Apologizes to Alex Kurtzman Following Controversial Comments About Modern 'Star Trek' Series
+
+TV News, Star Trek, Project Hail Mary
+
+Mon, 30 Mar 2026 22:58:41 GMT
+
+https://movieweb.com/project-hail-mary-andy-weir-star-trek-backlash/
+
+The 'Project Hail Mary' author says his comments were taken out of context.
+---------
+
+# 'The Last of Us' Season 3 Set Video Features Abby & Lev in Action
+
+TV News, The Last of Us, Kaitlyn Dever
+
+Mon, 30 Mar 2026 22:37:43 GMT
+
+https://movieweb.com/the-last-of-us-season-3-set-video/
+
+The two main characters of the new season of HBO's video game adaptation have been revealed in set photos.
+---------
+
 # Netflix’s New 3-Part Crime Series Leads This Week’s Must-Watch Shows – Including An Action Thriller Leaving Soon
 
 Streaming TV, Netflix, What to Watch on Netflix
