@@ -1,3 +1,377 @@
+# The CW's 5-Part Horror Crime Series Is So Good, You Can Rewatch It Over And Over
+
+TV, iZombie
+
+Mon, 30 Mar 2026 16:00:19 GMT
+
+https://screenrant.com/izombie-cw-horror-crime-series-rewatchable/
+
+Despite its gruesome premise, this addictive CW horror is a surprisingly light-hearted procedural that proves more re-watchable than retch-inducing.
+---------
+
+# Star Trek Legacy Mentors For Starfleet Academy Cadets
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Mon, 30 Mar 2026 16:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-best-cadet-mentors/
+
+Star Trek: Starfleet Academy's cadets would benefit from being paired up with these legendary Star Trek characters as mentors.
+---------
+
+# Next Supergirl Trailer Release Date Confirmed As New Footage Reveals Superman's Return?
+
+Movies, Supergirl, DC Universe
+
+Mon, 30 Mar 2026 15:59:25 GMT
+
+https://screenrant.com/supergirl-trailer-2-release-date-confirmed/
+
+DC Studios has finally announced when the full official Supergirl trailer will be released, as the world will soon get another look at the DCU film.
+---------
+
+# Nintendo Switch 2 Leak Teases The SNES Remake Of Our Dreams
+
+Gaming, Nintendo Switch 2, Super Metroid, Metroid, Triple-A Games
+
+Mon, 30 Mar 2026 15:44:07 GMT
+
+https://screenrant.com/nintendo-switch-2-snes-remake-super-metroid/
+
+There has been a deluge of Switch 2 leaks over the last week, and the return of a Super Nintendo masterpiece was drowned out by other news.
+---------
+
+# The Official One Piece Anime Spin-Off Fans Have Waited 27 Years For is Finally Here
+
+Anime, One Piece
+
+Mon, 30 Mar 2026 15:37:07 GMT
+
+https://screenrant.com/one-piece-heroines-nami-spinoff-trailer/
+
+After 27 years, One Piece is finally giving its supporting heroines the focused stories fans have long hoped for, in a surprising new spin-off.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Week (March 30-April 3)
+
+Classic Movies, Prime Video, Recommendation
+
+Mon, 30 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-week-march-30/
+
+Amazon Prime Video carries nearly every movie under the sun, but these three films should go straight to the top of your must-watch list.
+---------
+
+# Michael B Jordan's Childhood Dream Marvel Role Just Became Even More Possible
+
+Superheroes, Marvel Cinematic Universe
+
+Mon, 30 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/michael-b-jordan-dream-marvel-role-black-panther-possible/
+
+Michael B. Jordan has already revealed his Marvel dream role, which is not his MCU character, and that has just become more possible in 2026.
+---------
+
+# Disney's Excellent 8-Part Sci-Fi Series Was So Daring, It Split An Entire Fandom
+
+Streaming TV, Alien: Earth
+
+Mon, 30 Mar 2026 15:30:19 GMT
+
+https://screenrant.com/disney-alien-earth-daring-divide-fandom/
+
+Alien: Earth impressed critics with bold ideas, but its radical changes left long-time fans of the franchise deeply divided over its future.
+---------
+
+# Scream 7 Digital Release Date Confirmed
+
+Horror, Scream 7, Scream
+
+Mon, 30 Mar 2026 15:07:11 GMT
+
+https://screenrant.com/scream-7-digital-release-date/
+
+Scream 7 is breaking franchise records and will now be available to get scared at home.
+---------
+
+# Netflix's 6-Part Action Series Was So Good, It Made A Cinematic Universe Look Bad
+
+TV, Cobra Kai, The Karate Kid
+
+Mon, 30 Mar 2026 15:05:19 GMT
+
+https://screenrant.com/cobra-kai-netflix-series-made-karate-kid-movies-look-bad/
+
+One of Netflix's best action thriller shows was such a huge hit with both critics and viewers that, ironically, the spinoff ruined its own franchise.
+---------
+
+# A Dark MCU Theory Suggests This Controversial Avengers Moment Created Fantastic Four: First Steps' Alternate Timeline
+
+Movies, Marvel Cinematic Universe, The Fantastic Four: First Steps, Avengers: Doomsday
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/dark-mcu-avengers-moment-created-fantastic-four-first-steps-timeline/
+
+The Fantastic Four: First Steps' world isn't like the MCU, and one key Steve Rogers moment may have caused that.
+---------
+
+# 'It Wasn’t a Fun Assignment': The Rocky Road to Donkey Kong and Mario's Comic Book Debut
+
+CBR Exclusives, Mario, Nintendo, Marvel Comics
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/mario-donkey-kong-nintendo-first-comic-book-steven-grant-interview/
+
+In a CBR exclusive interview with the writer of Mario and Donkey Kong's first ever comic book story, learn the background behind the historic tale
+---------
+
+# Only 3 Crime Movies Are Better Than ‘The Godfather’
+
+Movies, The Godfather, Crime, Goodfellas
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://www.cbr.com/crime-movies-better-than-the-godfather-list/
+
+Surpassing the quality of The Godfather is an almost impossible task in cinema, but three films can claim to be even better crime stories.
+---------
+
+# 14 Crunchyroll Anime Movies Just Got a Major Streaming Update
+
+Anime, Dragon Ball Super: Super Hero, That Time I Got Reincarnated as a Slime, Dragon Ball Super: Broly, Dragon Ball
+
+Mon, 30 Mar 2026 15:30:12 GMT
+
+https://www.cbr.com/crunchyroll-anime-movie-crave-streaming-update-march/
+
+An underrated streaming service just added more than a dozen fan-favorite anime films to its catalog for an oft-forgotten audience.
+---------
+
+# Chris Hemsworth's Crime 101 Sets Early Prime Video Release in April 2026
+
+Movies, Crime 101
+
+Mon, 30 Mar 2026 15:24:39 GMT
+
+https://www.cbr.com/chris-hemsworth-crime-101-action-prime-video-release-april-1-2026/
+
+The film received stellar reviews, but it didn't attract people to the theaters.
+---------
+
+# 10 Pokemon Trainers Still Stronger Than Ash Ketchum in 2026
+
+Anime, Pokemon, Nintendo
+
+Mon, 30 Mar 2026 15:15:14 GMT
+
+https://www.cbr.com/strongest-pokemon-trainers-ash-ketchum-2026/
+
+Ash Ketchum may be a Pokemon Master, but these trainers are far more powerful than he'll ever be.
+---------
+
+# 10 Untouchable PS1 Games That Are Amazing From Start to Finish
+
+Games, PlayStation (Original), retro games
+
+Mon, 30 Mar 2026 15:00:12 GMT
+
+https://www.cbr.com/best-ps1-games-amazing-list/
+
+The greatest PS1 games start with a bang, and they only get better from there.
+---------
+
+# Batman Changed History Forever Exactly 87 Years Ago Today
+
+Comics, Batman
+
+Mon, 30 Mar 2026 14:15:16 GMT
+
+https://www.cbr.com/batman-87th-anniversary-first-appearance/
+
+Bill Finger and Bob Kane's creation has become a timeless pop culture icon.
+---------
+
+# 'Paradise' Season 2 Finale Recap: All Bets Are Off After This World-Saving Sci-Fi Twist
+
+TV Reviews, Paradise, Sterling K. Brown, Dan Fogelman, Hulu
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://collider.com/paradise-season-2-finale-recap/
+
+In the explosive Paradise Season 2 finale, twists and sacrifices lead to a new world-saving mission for Xavier. Read our recap.
+---------
+
+# Margot Robbie’s Divisive $236 Million Book Adaptation Is Officially Coming to Digital This Week [Exclusive]
+
+Movie News, Wuthering Heights, Margot Robbie, Jacob Elordi, Warner Bros.
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://collider.com/margot-robbie-wuthering-heights-digital-relase-date-march-31/
+
+Margot Robbie and Jacob Elordi's spicy thriller, Wuthering Heights, is coming to digital after grossing over $230 million at the box office.
+---------
+
+# Lionsgate Officially Unveils Gritty British Prison Thriller First Trailer [Exclusive]
+
+Movie News, Wasteman, David Jonsson, Tom Blyth, Movie Trailers
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://collider.com/prison-thriller-wasteman-trailer-release-date/
+
+The first trailer and poster for the prison drama Wasteman, starring rising stars David Jonsson and Tom Blyth. Watch it now.
+---------
+
+# 'Paradise’s Thomas Doherty Explains Season 2’s Shocking Finale and What He Already Knows About the Show’s Ending
+
+Exclusives, Paradise, Thomas Doherty, Sterling K. Brown, Shailene Woodley
+
+Mon, 30 Mar 2026 16:00:12 GMT
+
+https://collider.com/paradise-season-2-finale-twists-explained-thomas-doherty-link-annie-baby-interview/
+
+Thomas Doherty discusses Paradise Season 2, Annie's impact, how the finale twists could affect Season 3, and whether Link and Xavier could team up.
+---------
+
+# Jason Momoa and Ryan Reynolds' New R-Rated Crime Movie Hit With Major Setback
+
+Movie News, Animal Friends, Jason Momoa, Ryan Reynolds, Comedy
+
+Mon, 30 Mar 2026 15:45:24 GMT
+
+https://collider.com/jason-momoa-ryan-reynolds-animal-friends-movie-release-date-delay-2027/
+
+Jason Momoa and Ryan Reynolds new movie has been hit with a major release delay as the film moves back over 6 months from planned date.
+---------
+
+# This 14-Part 10/10 American Police Procedural Is Officially Free To Watch
+
+TV Features, Blue Bloods, Tom Selleck, Donnie Wahlberg, Crime
+
+Mon, 30 Mar 2026 15:42:12 GMT
+
+https://collider.com/blue-bloods-police-procedural-free-streaming-pluto-tv/
+
+CBS' long-running police procedural Blue Bloods, starring Tom Selleck and Donnie Wahlberg, is an excellent binge on Pluto TV.
+---------
+
+# HBO Responds to Rumors of Acquiring 60+ Year Old Sci-Fi Franchise
+
+TV News, Doctor Who, HBO, Sci-Fi, HBO Max
+
+Mon, 30 Mar 2026 15:40:13 GMT
+
+https://collider.com/doctor-who-series-update-hbo-unaware-of-us-partnership-offer-not-made/
+
+HBO CEO Casey Bloys discusses the potential of becoming the new US home for one of the greatest sci-fi franchises of all time.
+---------
+
+# Chris Hemsworth’s $90M Crime Thriller Is Officially Coming to Prime Video This Week
+
+Movie News, Crime 101, Chris Hemsworth, Mark Ruffalo, Prime Video
+
+Mon, 30 Mar 2026 15:39:29 GMT
+
+https://collider.com/chris-hemsworth-crime-101-prime-video-release-date-april-2026/
+
+Chris Hemsworth’s $90M crime thriller, Crime 101, has officially set a release date on streaming. Here’s when you can watch it on Prime Video.
+---------
+
+# HBO Is Ending Its Best Thriller Series After Season 5 — Here's Why
+
+TV News, Industry, HBO, HBO Max, Drama
+
+Mon, 30 Mar 2026 15:38:32 GMT
+
+https://collider.com/industry-season-5-ending-cancelled-explained-new-series-in-development/
+
+HBO has decided to end its best Succession replacement, Industry, after 5 seasons. Studio boss Casey Bloys explains why.
+---------
+
+# Dune Spin-Off Plans Get New Update From Studio Ahead of ‘Part 3’
+
+TV News, Dune, Dune: Prophecy, HBO, Sci-Fi
+
+Mon, 30 Mar 2026 15:36:46 GMT
+
+https://collider.com/dune-franchise-spin-off-update-more-tv-shows-potential-explained-hbo-ceo-casey-bloys/
+
+The Dune franchise just received a tantalizing update from HBO CEO Casey Bloys ahead of Part 3 of the sci-fi masterpiece’s theatrical debut.
+---------
+
+# The Best Female Robots in Sci-Fi Movies
+
+Movie Lists, Sci-Fi
+
+Mon, 30 Mar 2026 16:00:18 GMT
+
+https://movieweb.com/best-female-robots-in-sci-fi-movies/
+
+Explore the best women robots in movies, from iconic androids to powerful AI.
+---------
+
+# The Masterpiece World War II Movie 'Saving Private Ryan' is Streaming on Paramount+ in April 2026
+
+Movie News, Saving Private Ryan, Paramount Plus, Coming/Leaving Streaming, Action
+
+Mon, 30 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/saving-private-ryan-best-war-movie-streaming-paramount-april-2026/
+
+One of the greatest war movies ever made, Steven Spielberg's 'Saving Private Ryan,' will stream on Paramount+ in April 2026.
+---------
+
+# 'The Legend of Zelda' Live-Action Movie: Release Date & Everything We Know
+
+Features, The Legend of Zelda, Everything We Know
+
+Mon, 30 Mar 2026 16:00:17 GMT
+
+https://movieweb.com/the-legend-of-zelda-movie-everything-we-know/
+
+'The Legend of Zelda' is an upcoming live-action movie adaptation of the beloved Nintendo game and stars Bo Bragason and Benjamin Evan Ainsworth.
+---------
+
+# 'Daredevil: Born Again Season 2 Is the Second Highest-Rated MCU Disney+ Series
+
+TV News, Daredevil: Born Again
+
+Mon, 30 Mar 2026 15:25:16 GMT
+
+https://movieweb.com/daredevil-born-again-is-now-a-certified-marvel-classic/
+
+'Daredevil: Born Again Season 2' not only improves on the previous seasons, but also is higher on Rotten Tomatoes than 'Wonder Man' and 'Loki'
+---------
+
+# The Best Movies About Finding Love in Old Age
+
+Movie Lists
+
+Mon, 30 Mar 2026 15:00:18 GMT
+
+https://movieweb.com/old-age-love-movies/
+
+These movies show that it’s never too late for romance and that love can come from the most unsuspected places.
+---------
+
+# 'Watson' and 'DMV' Canceled at CBS
+
+TV News, Watson, DMV
+
+Mon, 30 Mar 2026 14:55:18 GMT
+
+https://movieweb.com/watson-dmv-canceled-cbs/
+
+CBS has canceled its Sherlock Holmes spin-off 'Watson' and workplace comedy 'DMV,' while confirming the release dates for both season finales.
+---------
+
 # Halloween Ends: A Missed Opportunity To Perfect The Franchise's Finale
 
 Movies, Halloween, Halloween Ends
