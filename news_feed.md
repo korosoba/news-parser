@@ -1,3 +1,223 @@
+# Netflix's New #1 Show Switches Genre After One Episode, And Fans Are Divided
+
+TV, Something Very Bad Is Going to Happen
+
+Mon, 30 Mar 2026 20:31:19 GMT
+
+https://screenrant.com/netflix-something-very-bad-is-going-to-happen-change-genre-fan-reaction/
+
+While every episode of Netflix's new thriller is worth watching, the show’s approach to its genre has fans online debating about its tonal switch-up.
+---------
+
+# DC Officially Confirms David Corenswet's Superman Will Appear 4 Years In A Row
+
+Superheroes, Superman, Supergirl, DC Universe
+
+Mon, 30 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/david-corenswet-superman-supergirl-movie-dc-universe-appearance-streak/
+
+David Corenswet's Superman has been officially confirmed to return in 2026 after his first DC Universe movie, and it cements a 4-year streak for him.
+---------
+
+# Beef Season 2: Netflix's Dark Comedy Anthology Series Promises Fresh Twists
+
+Streaming TV, Beef
+
+Mon, 30 Mar 2026 20:00:19 GMT
+
+https://screenrant.com/netflixs-1010-psychological-thriller-is-about-to-get-even-better/
+
+Fans of dark comedy thrillers will be delighted this inimitable Netflix series is back 3 years later, albeit in a very different guise.
+---------
+
+# Zach Braff's Directing Journey: From Scrubs To HBO's Rooster
+
+TV, Zach Braff, Rooster, Scrubs, HBO
+
+Mon, 30 Mar 2026 19:57:08 GMT
+
+https://screenrant.com/zach-braff-how-scrubbs-led-to-creative-freedom-directing-rooster/
+
+Zach Braff discusses his directing career, starting with Scrubs and leading to creative freedom on HBO's new comedy Rooster, and working with Steve Carell.
+---------
+
+# Dune 3 May Be Hiding Its Strangest Character In Plain Sight
+
+New Movies, Dune: Part Three, Dune
+
+Mon, 30 Mar 2026 19:55:18 GMT
+
+https://screenrant.com/dune-3-edric-role-hidden-trailer/
+
+Dune: Part Three showed all its biggest characters in the first trailer, but it may have directly hidden a strange new one in plain sight.
+---------
+
+# Who Is The Comte St. Germain In Outlander? Season 8's Fergus Connection Explained
+
+Streaming TV, Outlander
+
+Mon, 30 Mar 2026 19:45:19 GMT
+
+https://screenrant.com/outlander-season-8-comte-st-germain-character-fergus-connection-explained/
+
+Outlander S8 dropped a bombshell about a character we haven't seen in years, so here's a refresher on The Comte St. Germain and his role in season 2
+---------
+
+# 31 Years Later, Sailor Moon's One True Heir Is Finally Returning With Gorgeous New Anime
+
+Anime, Sailor Moon, Magic Knight Rayearth
+
+Mon, 30 Mar 2026 19:33:59 GMT
+
+https://screenrant.com/magical-knight-rayearth-reboot-new-anime-sailor-moon/
+
+After three decades, one of anime's most influential fantasy adventures is making a long-awaited comeback, and it is perfect for Sailor Moon fans.
+---------
+
+# Dragon Ball Launches a New Official Series With 4 Different Goku Forms
+
+Anime, Dragon Ball, merchandise, Goku
+
+Mon, 30 Mar 2026 20:33:12 GMT
+
+https://www.cbr.com/dragon-ball-goku-spiritflicks-figure-release/
+
+Goku gets ready to fire off his iconic Kamehameha in the latest official Dragon Ball release.
+---------
+
+# CBS Quietly Confirms NCIS Is Replacing Timothy McGee in Season 23
+
+TV, NCIS, CBS
+
+Mon, 30 Mar 2026 20:33:09 GMT
+
+https://www.cbr.com/cbs-replace-timothy-mcgee-ncis-season-23/
+
+CBS has teased that NCIS will replace one of its most beloved characters in Season 23, ushering in indelible changes for Sean Murray's Timothy McGee.
+---------
+
+# Dangerous Animals Makes a Splash on Hulu Streaming Charts
+
+Movies
+
+Mon, 30 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/hulu-dangerous-animals-streaming-march-2026/
+
+The shark thriller makes a big splash on Hulu's streaming charts.
+---------
+
+# Only 3 Movies Have More Epic Battles Than The Lord of The Rings
+
+Movies, The Lord of the Rings, War
+
+Mon, 30 Mar 2026 20:30:12 GMT
+
+https://www.cbr.com/movies-battles-better-than-the-lord-of-the-rings-trilogy/
+
+The Lord of the Rings Trilogy has some of the greatest battles ever put to screen. Only these films deliver even better battle sequences.
+---------
+
+# Sam Rockwell's 17-Year-Old Sci-Fi Is Required Viewing Ahead of His Anti-AI Satire (& It's Coming to Hulu)
+
+Movies, Moon, Good Luck, Have Fun, Don't Die
+
+Mon, 30 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/sam-rockwell-sci-fi-moon-hulu-release-date-april-2026/
+
+One of the best hard science fiction films of the century is heading to Hulu as its new streaming home.
+---------
+
+# Absolute Batman's Coldest Villain Almost Had A Completely Different Story
+
+Superheroes, Absolute Batman
+
+Mon, 30 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/absolute-batman-absolute-mr-freeze-different-plans/
+
+Absolute Batman almost had a much different relationship with this classic foe.
+---------
+
+# Metroid Should Be Nintendo's First R-Rated Movie
+
+Movies, Metroid, Nintendo, Sci-Fi
+
+Mon, 30 Mar 2026 20:00:12 GMT
+
+https://www.cbr.com/nintendo-metroid-movie-r-rating-obvious/
+
+After The Super Mario Galaxy Movie and The Legend of Zelda, this beloved Nintendo property would be the perfect choice for a darker film adaptation.
+---------
+
+# 10 Greatest Anime Movie Masterpieces of the Last 50 Years, Ranked
+
+Movie, Anime, Akira, Chainsaw Man - The Movie: Reze Arc, Ghost in the Shell
+
+Mon, 30 Mar 2026 20:10:13 GMT
+
+https://collider.com/best-anime-movie-masterpieces-last-50-years-ranked/
+
+From foundational masterworks like Akira to recent hits like Chainsaw Man – The Movie: Reze Arc, these are the best anime movies of the last 50 years.
+---------
+
+# 5 Film Production Companies That No Longer Exist
+
+Movie, Warner Bros., Paramount, The Weinstein Company
+
+Mon, 30 Mar 2026 19:41:12 GMT
+
+https://collider.com/film-production-companies-disappeared/
+
+Throughout Hollywood's long history, many major film production companies like Carcolco Pictures, RKO, and Cannon Films have vanished from existence.
+---------
+
+# One of TV's Best Spy Dramas Is Officially on Hulu 13 Years Later
+
+TV Features, Burn Notice, Jeffrey Donovan, Bruce Campbell, Action
+
+Mon, 30 Mar 2026 19:36:13 GMT
+
+https://collider.com/burn-notice-hulu-streaming-best-spy-drama/
+
+Bruce Campbell and Jeffrey Donovan's sharp spy drama Burn Notice is a gripping series from start to finish.
+---------
+
+# Chris Pratt Explains Why There's a Big Change With Mario's "Mamma Mia" Catchphrase
+
+Movie News, The Super Mario Galaxy Movie, Chris Pratt, Super Mario Bros.
+
+Mon, 30 Mar 2026 20:10:18 GMT
+
+https://movieweb.com/super-mario-best-catchphrase-chris-pratt-change/
+
+The 'Guardians of the Galaxy' actor has had a rough time bringing Mario to life in one interesting way.
+---------
+
+# Donald Glover Pitched Himself as Yoshi to 'The Super Mario Galaxy Movie' Filmmakers
+
+Movie News, The Super Mario Galaxy Movie, Donald Glover
+
+Mon, 30 Mar 2026 20:04:08 GMT
+
+https://movieweb.com/donald-glover-yoshi-super-mario-galaxy-movie/
+
+The 'Community' star reveals he was not offered the role of Yoshi. Instead, he pitched himself for the part.
+---------
+
+# Laura Dern and Adam McKay Developing TV Series About Jeffrey Epstein Scandal
+
+TV News, Laura Dern, Adam McKay
+
+Mon, 30 Mar 2026 19:51:30 GMT
+
+https://movieweb.com/laura-dern-jeffrey-epstein-series/
+
+The aeries is also produced by filmmaker Adam McKay.
+---------
+
 # 12 Dark Shocking Sitcom Episodes
 
 Classic TV
