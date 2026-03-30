@@ -1,3 +1,234 @@
+# The Founding X-Men Unveil Redesign as Galactus' New Heralds
+
+Comics, X-Men, Galactus
+
+Mon, 30 Mar 2026 13:00:27 GMT
+
+https://screenrant.com/x-men-redesign-cyclops-what-if-heralds-galactus/
+
+The five founding X-Men just unveiled a radical new redesign, as the iconic heroes embrace a cosmic power upgrade as Galactus' latest heralds.
+---------
+
+# Final Fantasy 9 Remake Leak Is Bad News For Fans
+
+Gaming, Final Fantasy 9, Final Fantasy
+
+Mon, 30 Mar 2026 12:36:31 GMT
+
+https://screenrant.com/ff9-remake-leak-update-march-2026/
+
+Depite a number of leaks and rumors for Final Fantasy 9 Remake, a new update is pretty bad news for fans who are eagerly awaiting the game.
+---------
+
+# Xbox Officially Confirms The End Of An Era
+
+Gaming, Xbox Series X/S, Xbox Game Pass, PC
+
+Mon, 30 Mar 2026 12:33:37 GMT
+
+https://screenrant.com/xbox-campaign-discontinued-end-era/
+
+Xbox has officially marked the end of an era after confirmation that a highly controversial campaign suffers a somewhat predictable fate.
+---------
+
+# Courtney Love Antiheroine Doc Recut: Why the Sundance Hit Isn't Final
+
+Music, Courtney Love, Sundance Film Festival, Rock
+
+Mon, 30 Mar 2026 12:32:23 GMT
+
+https://screenrant.com/courtney-love-antiheroine-sundance-recut-2026/
+
+Courtney Love is back in the editing room. Discover why the rock icon is recutting her Sundance hit 'Antiheroine' to ensure a truly unfiltered story.
+---------
+
+# Marvel Officially Unveils Punisher's Most Radical Redesign of All Time, Bar None
+
+Comics, punisher
+
+Mon, 30 Mar 2026 12:30:19 GMT
+
+https://screenrant.com/punisher-redesign-armor-magik-x-men/
+
+Believe in Magick.
+---------
+
+# Doctor Who’s Christopher Eccleston Sets New Franchise-Changing Condition For His Return
+
+TV, Doctor Who
+
+Mon, 30 Mar 2026 12:05:22 GMT
+
+https://screenrant.com/doctor-who-christopher-eccleston-return-condition-female-showrunner/
+
+Former Doctor Who star Christopher Eccleston sets a new, franchise-changing condition for his possible return as the Ninth Doctor.
+---------
+
+# Daredevil Just Officially Became Marvel's New Hulk
+
+Comics, Hulk, Daredevil
+
+Mon, 30 Mar 2026 12:01:18 GMT
+
+https://screenrant.com/marvel-new-hulk-redesign-daredevil-powers-what-if/
+
+After 62 years, Marvel has announced a classic superhero is about to become its new Hulk, complete with a gamma-powered redesign.
+---------
+
+# Project Hail Mary’s New Record Sets Up 2026’s Fiercest Competition For The Rest Of The Year
+
+Movies, Project Hail Mary
+
+Mon, 30 Mar 2026 12:00:56 GMT
+
+https://screenrant.com/project-hail-mary-box-office-record-sci-fi-movie-competition/
+
+Project Hail Mary's box office success has set the stage for a major competition between the sci-fi movie titans that are impending for 2026.
+---------
+
+# 10 Greatest NES Games of All Time, Ranked
+
+Games, Nintendo
+
+Mon, 30 Mar 2026 13:00:15 GMT
+
+https://www.cbr.com/greatest-nes-games-of-all-time-ranked/
+
+The NES might be old enough to be thinking about retirement, but it has a killers row of amazing games that still hold up in the modern era.
+---------
+
+# Nintendo's The Legend of Zelda Animated Fantasy Series Is Now Required Viewing
+
+TV, Nintendo, Fantasy, The Legend of Zelda
+
+Mon, 30 Mar 2026 13:00:15 GMT
+
+https://www.cbr.com/nintendo-legend-of-zelda-animated-series-must-watch-before-movie/
+
+Before the upcoming The Legend of Zelda show, fans may want to revisit the forgotten TV series that marked one of the franchise’s strangest chapters.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — March 30, 2026
+
+TV, Shogun, Outlander, The Gilded Age, Chernobyl
+
+Mon, 30 Mar 2026 13:01:14 GMT
+
+https://collider.com/tv-quiz-mar-30-2026-historical-dramas/
+
+Television has long been a modern touchstone for events of the past. Let's look at eight shows that look at eight moments in history.
+---------
+
+# Netflix's New 8-Part Psychological Horror Is Streaming's Next 'The Haunting of Hill House'
+
+Exclusives, Camila Morrone, Something Very Bad Is Going to Happen, Ladies Night, Netflix
+
+Mon, 30 Mar 2026 13:00:15 GMT
+
+https://collider.com/something-very-bad-is-going-to-happen-netflix-shows-like-the-haunting-of-hill-house/
+
+Something Very Bad Is Going to Happen star Camila Morrone takes us behind the scenes of Netflix's latest horror hit.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 30, 2026
+
+Movie, E.T. the Extra-Terrestrial, Psycho, The Shining, Crimson Tide
+
+Mon, 30 Mar 2026 12:59:12 GMT
+
+https://collider.com/movie-quiz-mar-30-2026-iconic-soundtracks/
+
+A good score elevates a film's emotional impact. A great score affects you long after the movie's over. Here are a few examples of that excellence.
+---------
+
+# Knock-Off 'Armageddon' Sci-Fi Classic Moves Streamers Next Month
+
+Movie News, Deep Impact, Elijah Wood, Sci-Fi, Morgan Freeman
+
+Mon, 30 Mar 2026 12:21:12 GMT
+
+https://collider.com/knock-off-armageddon-sci-fi-hit-deep-impact-streaming-paramount-plus-april-2026/
+
+Deep Impact, the comet disaster hit that arrived in the same year as Armageddon, starts streaming on Paramount+ on April 1.
+---------
+
+# One of the Most Bonkers Studio Sci-Fi Movies of the 2000s Hits Streaming Next Month
+
+Movie News, The Core, Sci-Fi, Delroy Lindo, Stanley Tucci
+
+Mon, 30 Mar 2026 12:10:12 GMT
+
+https://collider.com/most-bonkers-studio-sci-fi-movies-2000s-the-core-streaming-paramount-plus-april-2026/
+
+The Core, one of the most outrageously entertaining studio sci-fi movies of the 2000s, begins streaming on Paramount+ on April 1.
+---------
+
+# Ben Affleck’s Forgotten Adaptation of an Iconic Sci-Fi Thriller Returns to Streaming in April
+
+Movie News, Paycheck, Ben Affleck, Sci-Fi, John Woo
+
+Mon, 30 Mar 2026 12:06:12 GMT
+
+https://collider.com/forgotten-philip-k-dick-sci-fi-thriller-adaptation-ben-affleck-paycheck-streaming-paramount-plus-april-2026/
+
+Experience the gripping sci-fi thriller Paycheck, starring Ben Affleck, as it makes its return to streaming on Paramount+ in April.
+---------
+
+# Channing Tatum and Dwayne Johnson’s Epic Sci-Fi Action Franchise Hits Streaming Next Month
+
+Movie News, G.I. Joe: Retaliation, Dwayne Johnson, Channing Tatum, Sci-Fi
+
+Mon, 30 Mar 2026 11:55:12 GMT
+
+https://collider.com/sci-fi-action-franchise-channing-tatum-dwayne-johnson-gi-joe-retaliation-streaming-paramount-plus-april-2026/
+
+Dwayne Johnson and Channing Tatum star in G.I. Joe: Retaliation, an action-packed sequel that arrives on Paramount+ in April.
+---------
+
+# 'For All Mankind' Season 5 Provides Unexpected John Lennon Update
+
+Features, For All Mankind
+
+Mon, 30 Mar 2026 13:00:20 GMT
+
+https://movieweb.com/for-all-mankind-season-5-subplot/
+
+John Lennon has already been established as still alive in 'For All Mankind's timeline, but Season 5 provides a cool update.
+---------
+
+# 'Lights Out 2' Is Finally, Officially in the Works
+
+Movie News, Lights Out
+
+Mon, 30 Mar 2026 12:54:07 GMT
+
+https://movieweb.com/lights-out-sequel-update/
+
+It took ten years, but the horror it is finally getting a sequel.
+---------
+
+# 'Harry Potter' Season 2: HBO Boss Confirms Scripts Are Being Written
+
+TV News, Harry Potter, HBO Max
+
+Mon, 30 Mar 2026 12:20:53 GMT
+
+https://movieweb.com/harry-potter-season-2-release-update/
+
+HBO has confirmed that 'Harry Potter' Season 2 is currently being written to avoid a long gap between seasons and support the show's young cast.
+---------
+
+# 'Harry Potter' Problems HBO Is Already Facing
+
+TV Lists, Harry Potter
+
+Mon, 30 Mar 2026 12:00:20 GMT
+
+https://movieweb.com/harry-potter-hbo-problems/
+
+HBO's 'Harry Potter' series may be a highly-anticipated 2026 release, but it's also facing a number of glaring problems.
+---------
+
 # Clair Obscur New Gustave DLC Has Fans Torn
 
 Gaming, Clair Obscur: Expedition 33, PC
