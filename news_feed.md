@@ -1,3 +1,102 @@
+# Clair Obscur New Gustave DLC Has Fans Torn
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Mon, 30 Mar 2026 11:48:16 GMT
+
+https://screenrant.com/clair-obscur-gustave-dlc-fan-reaction/
+
+Clair Obscur: Expedition 33's most beloved character's fate is among the most heartbreaking moments in modern gaming, and a new DLC has fans torn.
+---------
+
+# Final Fantasy Remake Part 3 Release Date Update Leaves Gamers Hyped
+
+Gaming, Final Fantasy 7 Remake
+
+Mon, 30 Mar 2026 11:17:09 GMT
+
+https://screenrant.com/final-fantasy-7-remake-part-3-release-date-update/
+
+Final Fantasy 7 Remake Part 3, the highly anticipated conclusion to the trilogy, may be released earlier than expected.
+---------
+
+# Crimson Desert Studio's Next Game Is GTA 6 Meets Pokémon
+
+Gaming, Pokemon, Crimson Desert, Grand Theft Auto 6
+
+Mon, 30 Mar 2026 11:01:28 GMT
+
+https://screenrant.com/crimson-desert-new-game-pokemon-meets-gta-6/
+
+Discover Pearl Abyss' latest project, DokeV, a game that combines the best of GTA 6 and Pokémon, with creature-capture battles and stunning visuals.
+---------
+
+# 10 Nintendo Characters Who Should Join The Avengers
+
+Comics, Marvel, Nintendo
+
+Mon, 30 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/nintendo-characters-who-should-join-the-avengers/
+
+Nintendo's games offer the perfect candidates to join Marvel's league of heroes.
+---------
+
+# Ridley Scott’s Polarizing War Epic Is Rewriting History as New Late-Night Sleeper Hit
+
+Movie News, Napoleon, Ridley Scott, Vanessa Kirby, Apple TV
+
+Mon, 30 Mar 2026 11:46:13 GMT
+
+https://collider.com/ridley-scott-polarizing-war-epic-napoleon-streaming-success-apple-tv-march-2026/
+
+RIdley Scott's polarizing war epic is rewriting history on streaming by becoming a massive hit on Apple TV.
+---------
+
+# The 65 Best 'South Park' Episodes of All Time, According to IMDb
+
+TV, South Park, Animation, Comedy, Comedy Central
+
+Mon, 30 Mar 2026 11:38:13 GMT
+
+https://collider.com/south-park-best-episodes-of-all-time-ranked-imdb/
+
+South Park’s best episodes have received near-perfect scores on IMDb, including comedic classics like "Casa Bonita" and "Scott Tenorman Must Die."
+---------
+
+# ’The Pitt’s Noah Wyle Shuts Down Romance Rumors in Official Season 3 Update
+
+TV News, The Pitt, Noah Wyle, Shawn Hatosy, HBO Max
+
+Mon, 30 Mar 2026 11:35:12 GMT
+
+https://collider.com/the-pitt-season-3-update-less-romance-noah-wyle/
+
+The Pitt star Noah Wyle provides a disappointing update for fans hoping to see more romance in Season 3 of HBO's hit medical drama.
+---------
+
+# Taylor Sheridan's Defining Western Is Becoming 2016's New Cult Classic
+
+Movie Features, Hell or High Water, Chris Pine, Taylor Sheridan, Jeff Bridges
+
+Mon, 30 Mar 2026 11:20:12 GMT
+
+https://collider.com/taylor-sheridan-western-hell-or-high-water-cult-class/
+
+Chris Pine and Ben Foster star in the neo-Western, Hell or High Water, where two brothers fight against capitalism to save their land.
+---------
+
+# ‘Jumanji 3’s New Release Date Could Have a Huge Impact on ‘Avengers: Doomsday’s Box Office Total
+
+Features, Avengers: Doomsday, Avengers: Endgame, Jumanji 4
+
+Mon, 30 Mar 2026 11:00:18 GMT
+
+https://movieweb.com/avengers-doomsday-jumanji-competition/
+
+'Jumanji 3' moved its release date deeper into December, which could significantly cut into 'Avengers: Doomsday's younger audience.
+---------
+
 # New Nintendo Hardware Leaks, Will Coincide With Ocarina Of Time Remake
 
 Gaming, The Legend of Zelda: Ocarina of Time
