@@ -1,3 +1,146 @@
+# 8 TV Shows That Trolled Fans
+
+Classic TV
+
+Mon, 30 Mar 2026 23:46:19 GMT
+
+https://screenrant.com/tv-shows-that-trolled-viewers/
+
+Sometimes, TV shows and the creatives behind them decide to sew discontent in the fanbase by trolling the audience, and honestly, it still stings.
+---------
+
+# Netflix's Something Very Bad Is Going To Happen Is The Perfect American Horror Story Replacement
+
+Streaming TV, Something Very Bad Is Going to Happen, American Horror Story
+
+Mon, 30 Mar 2026 23:30:19 GMT
+
+https://screenrant.com/netflix-something-very-bad-going-happen-american-horror-story-replacement/
+
+American Horror Story is about to come to an end, but Netflix's new limited series could easily be extended into a spectacular anthology TV show.
+---------
+
+# Why Netflix's New #1 Show Is Taking Over The World (From The Creators Of Stranger Things)
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Mon, 30 Mar 2026 23:15:18 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-netflix-success-streaming-march-2026/
+
+Netflix has done it again with another spectacular and addictive series that is sure to delight and entice fans, especially those of Stranger Things.
+---------
+
+# Zelda: Ocarina of Time’s Switch 2 Remake Can Finally Fix the Timeline
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Mon, 30 Mar 2026 23:50:12 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-fix-timeline-inconsistencies/
+
+Yes, the Zelda Timeline absolutely does matter. Ocarina of Time’s upcoming Switch 2 remake is the one game that can prove it once and for all.
+---------
+
+# Netflix, Disney & More Just Shut Down a Major Anime Streaming App
+
+Anime, piracy
+
+Mon, 30 Mar 2026 23:15:12 GMT
+
+https://www.cbr.com/anime-play-app-ace-shutdown/
+
+The takedown has resulted in one of the largest piracy networks in the Asia-Pacific region going dark.
+---------
+
+# Chris O'Donnell Talks What Went Wrong With Batman & Robin
+
+Movies, Batman & Robin
+
+Mon, 30 Mar 2026 23:06:48 GMT
+
+https://www.cbr.com/batman-and-robin-chris-o-donnell-what-went-wrong/
+
+Robin actor Chris O'Donnell reflects on the infamous superhero sequel Batman & Robin.
+---------
+
+# This Classic ’80s War Movie and Its Chris Hemsworth Remake Return in 2 Days
+
+Movie News, Chris Hemsworth, Red Dawn (2012), Red Dawn, Josh Peck
+
+Mon, 30 Mar 2026 23:45:12 GMT
+
+https://collider.com/red-dawn-chris-hemsworth-forgotten-remake-classic-ww2-movie-prime-video-streaming-april-2026/
+
+The 2012 Red Dawn remake starring Chris Hemsworth is set to arrive on Prime Video alongside the 1984 original in just 2 days. Get the details here.
+---------
+
+# One of the Best Crime Thrillers Shows of All Time Is Officially Free To Watch 10 Years Later
+
+TV Features, The Fall, Gillian Anderson, Jamie Dornan, Crime
+
+Mon, 30 Mar 2026 23:33:15 GMT
+
+https://collider.com/the-fall-crime-thriller-streaming-free-gillian-anderson-jamie-dornan/
+
+Gillian Anderson and Jamie Dornan's crime thriller The Fall is an addicting, unpredictable series about a detective and a serial killer.
+---------
+
+# In Just 2 Days, the Greatest Cult Classic Western Horror Will Be Free to Stream
+
+Movie News, Horror, From Dusk Till Dawn, From Dusk Till Dawn 2: Texas Blood Money, Quentin Tarantino
+
+Mon, 30 Mar 2026 23:30:13 GMT
+
+https://collider.com/greatest-western-horror-franchise-free-to-stream-pluto-tv-april-2026/
+
+A legendary Western horror franchise arrives free to stream this week, bringing its full trilogy lineup to an ad-supported platform.
+---------
+
+# 4-Hour Gangster Epic Triples the Gross of Chris Pratt’s Sci-Fi Bomb at the Box Office
+
+Movie News, Dhurandhar, Bollywood, Box Office, Chris Pratt
+
+Mon, 30 Mar 2026 23:15:12 GMT
+
+https://collider.com/indian-gangster-epic-dhurandhar-the-revenge-passes-150-million-mark-at-worldwide-box-office/
+
+The controversial Indian gangster epic Dhurandhar: The Revenge has passed the $150 million mark at the global box office. Find out more.
+---------
+
+# These 7 Single-Season Sci-Fi Shows Are Masterpieces
+
+TV, Science Fiction, Firefly, WandaVision, Station Eleven
+
+Mon, 30 Mar 2026 23:14:12 GMT
+
+https://collider.com/sci-fi-tv-shows-single-season-masterpieces/
+
+HBO Max's Station Eleven, Disney+'s WandaVision, and Fox's Firefly are among the greatest sci-fi TV shows, proof that one season is all you need.
+---------
+
+# Drew Goddard Reveals Original Two-Film Pitch for MCU 'Daredevil' Films
+
+TV News, Daredevil, MCU, Drew Goddard, Project Hail Mary
+
+Mon, 30 Mar 2026 23:55:47 GMT
+
+https://movieweb.com/daredevil-original-plans-drew-goddard/
+
+The 'Project Hail Mary' screenwriter pitched a pair of 'Daredevil' films after the release of 'The Avengers'
+---------
+
+# Jack Black Pleads for Part in Video Game Adaptation 'Like a Dragon: Yakuza'
+
+TV News, Jack Black, Like a Dragon: Yakuza
+
+Mon, 30 Mar 2026 23:35:58 GMT
+
+https://movieweb.com/jack-black-like-a-dragon-yakuza-casting/
+
+The 'Super Mario Galaxy Movie' and 'Minecraft Movie' actor wants to expand his catalog of roles in video game movies.
+---------
+
 # GTA 6 Trailer 3 Graphics Split Gamers
 
 Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games
