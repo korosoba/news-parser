@@ -1,3 +1,355 @@
+# Detective Hole’s 100% RT Debut Is Another Big Win For Netflix
+
+Streaming TV, Joe Nesbø's Detective Hole, Netflix
+
+Mon, 30 Mar 2026 01:45:18 GMT
+
+https://screenrant.com/jo-nesbo-detective-hole-netflix-crime-drama-success/
+
+A new crime drama has landed on Netflix, and its impressive 100% Rotten Tomatoes score proves that the streamer has another big win under its belt.
+---------
+
+# 5 Lord Of The Rings Characters Powerful Enough To Rival Sauron, Ranked
+
+Movies, The Lord of the Rings
+
+Mon, 30 Mar 2026 01:45:18 GMT
+
+https://screenrant.com/5-lord-of-the-rings-characters-powerful-enough-to-rival-sauron-ranked/
+
+Sauron is perhaps the single most formidable foe in The Lord of the Rings franchise, but these 5 characters had the power to defeat him.
+---------
+
+# Elder Scrolls Fans Say Goodbye To Delisted Game
+
+Gaming, The Elder Scrolls: Blades, The Elder Scrolls, Triple-A Games
+
+Mon, 30 Mar 2026 01:38:19 GMT
+
+https://screenrant.com/elder-scrolls-blades-shutdown-fan-reaction/
+
+A controversial free-to-play RPG is shutting down in 2026, offering all items for 1 currency as fans push for an offline version to preserve it.
+---------
+
+# Disney's 2-Season Sci-Fi Series Showed The Mandalorian How It's Done
+
+Star Wars, Andor
+
+Mon, 30 Mar 2026 01:30:19 GMT
+
+https://screenrant.com/disney-andor-sci-fi-show-the-mandalorian-how-its-done/
+
+The Mandalorian is a good sci-fi show with many strengths, but a two-season Disney+ competitor showed the Star Wars series exactly how it is done.
+---------
+
+# Spider-Man: Brand New Day Looks Incredible, But One Detail Could Ruin the Whole Film
+
+Comics, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Mon, 30 Mar 2026 01:21:45 GMT
+
+https://screenrant.com/spider-man-brand-new-day-needs-abandon-mj/
+
+Spider-Man: Brand New Day could be the breath of fresh air that the MCU needs, but one character's role has a chance to derail how magical it can be.
+---------
+
+# Star Trek Actors Defend Canceled Starfleet Academy: 'Our Show Is Phenomenal'
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Mon, 30 Mar 2026 01:17:04 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-actors-defend-perfect-canceled-show/
+
+Star Trek: Starfleet Academy actors Kerrice Brooks and Karim Diané stand by the quality of their show despite Paramount+ ending it after season 2.
+---------
+
+# GTA 6 Has Red Dead Online Players Concerned For Game’s Future
+
+Gaming, Grand Theft Auto 6, Red Dead Online, Rockstar Games, Triple-A Games
+
+Mon, 30 Mar 2026 01:11:22 GMT
+
+https://screenrant.com/gta-6-red-dead-online-future-plans/
+
+Grand Theft Auto 6 is about to be the biggest game in the entire world, without hyperbole, and even Rockstar may suffer from how big its success is.
+---------
+
+# One Spider-Man Villain Peaked 23 Years Ago With the One Design Marvel Will Never Top
+
+Comics, Spider-Man
+
+Mon, 30 Mar 2026 01:09:32 GMT
+
+https://screenrant.com/sandman-deisgn-peaked-spider-man-villain/
+
+Spider-Man villains have all been made iconic at least partly via phenomenal artwork, and few artists could match this artist's zany take on Sandman.
+---------
+
+# Marshals' Tragic Reservation Trafficking Story Explained By Yellowstone Spinoff Star
+
+TV, Marshals, Yellowstone
+
+Mon, 30 Mar 2026 01:01:20 GMT
+
+https://screenrant.com/yellowstone-marshals-reservation-trafficking-story-real-mo-brings-plenty/
+
+Exclusive: A Yellowstone spinoff star, Mo Brings Plenty, opens up about Marshals' reservation trafficking episode and his own real-life experience.
+---------
+
+# Solo Leveling Best Episode Proves Sung Jinwoo is a Much Deeper Character Than Critics Think
+
+Anime, Solo Leveling
+
+Mon, 30 Mar 2026 01:01:20 GMT
+
+https://screenrant.com/solo-leveling-jinwoo-deeper-mom-bring-back/
+
+Solo Leveling's Sung Jinwoo has been called a "one-dimensional character" at times, at this episode in season two proves he's anything but.
+---------
+
+# Criminal Minds Pulled Off 1 of the Biggest Bait-&-Switches in TV History (in the Absolute Best Way Possible)
+
+TV, Criminal Minds, Crime, CBS
+
+Mon, 30 Mar 2026 01:30:12 GMT
+
+https://www.cbr.com/criminal-minds-biggest-bait-switches-best-way-possible/
+
+Criminal Minds: Evolution is an amazing sequel to the original series, but its success came thanks to a simple trick fans never expected.
+---------
+
+# Netflix’s Steel Ball Run Adaptation Is Already Going Off the Rails After Only 1 Episode
+
+Anime, JoJo's Bizarre Adventure, Jojo's Bizarre Adventure, Netflix
+
+Mon, 30 Mar 2026 01:03:56 GMT
+
+https://www.cbr.com/netflix-jojos-bizarre-adventure-steel-ball-run-release-schedule/
+
+Netflix's biggest exclusive of the Spring season has already lost its footing after 1 episode.
+---------
+
+# HBO's The Last of Us Needs to End in Season 3
+
+TV, The Last of Us, HBO Max
+
+Mon, 30 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/hbo-the-last-of-us-needs-to-end-in-season3/
+
+Recent news in The Last of Us universe prove that the HBO adaptation is ready to wrap up its story in Season 3.
+---------
+
+# The Best Horror Movie From Every Year of The 1980s
+
+Movies, Horror, The Thing, The Shining
+
+Mon, 30 Mar 2026 01:00:12 GMT
+
+https://www.cbr.com/best-horror-movie-every-year-1980s-list/
+
+The '80s were a legendary era for horror movies, and these are the best horror films from each year of the decade.
+---------
+
+# Tiny Bookshop Finally Hits PlayStation 5 on April 10
+
+Games, PlayStation 5
+
+Mon, 30 Mar 2026 00:48:32 GMT
+
+https://www.cbr.com/tiny-bookshop-playstation-5-april-10/
+
+After earning universal praise on both Steam and Nintendo Switch, an overlooked gem is finally coming to PlayStation 5 in April.
+---------
+
+# Dick Wolf's True Crime Docuseries Homicide: New York Tops Netflix Charts
+
+TV, Homicide, Crime, Netflix
+
+Mon, 30 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/dick-wolf-homicide-true-crime-netflix-success-march-2026/
+
+Dick Wolf's true-crime docuseries Homicide tops Netflix charts, exploring real-life cases from New York and Los Angeles.
+---------
+
+# Resident Evil Requiem's Surprise Cameo Paved the Way for a Major Comeback
+
+Games, Resident Evil, horror games, capcom
+
+Mon, 30 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/resident-evil-requiem-cameo-wesker-return/
+
+Leon Kennedy and Chris Redfield have returned to Resident Evil, and now another major character is set to follow in their footsteps.
+---------
+
+# Why Downton Abbey Killed Dan Stevens' Matthew Crawley
+
+TV, Downton Abbey
+
+Mon, 30 Mar 2026 00:30:12 GMT
+
+https://www.cbr.com/downton-abbey-matthew-crawley-death-explained/
+
+The death of Matthew Crawley on Downton Abbey shocked viewers. But why did Dan Stevens choose to depart the award-winning period drama?
+---------
+
+# Prime Video's Steamy Psychological Thriller 56 Days Remains a Streaming Hit
+
+TV, 56 Days, Thriller, Prime Video
+
+Mon, 30 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/56-days-steamy-thriller-prime-video-success-march-2026/
+
+56 Days, a steamy psychological thriller starring Avan Jogia and Dove Cameron, is the No. 5 most-watched show on Prime Video globally.
+---------
+
+# Studio Ghibli Releases New My Neighbor Totoro Tea Canister Inspired by 150-Year-Old Tradition
+
+Anime, Studio Ghibli, My Neighbor Totoro, merchandise
+
+Mon, 30 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-new-tea-canister-release/
+
+One of the most iconic (and expensive) names in handmade Japanese tea canisters has just rolled out a stunning new Studio Ghibli inspired piece.
+---------
+
+# 8 Perfect Miniseries Where Every Episode Is 10/10, No Notes
+
+TV, TV Miniseries, WandaVision, Adolescence, Ripley
+
+Mon, 30 Mar 2026 01:32:12 GMT
+
+https://collider.com/miniseries-every-episode-perfect/
+
+WandaVision, Adolescence, Ripley, The Fall of the House of Usher, and more make up our list of miniseries where every episode is perfect.
+---------
+
+# 10 Forgotten '80s Cartoons That Deserve Another Look
+
+TV, 1980s, Cartoons, The Raccoons, Ulysses 31
+
+Mon, 30 Mar 2026 01:22:13 GMT
+
+https://collider.com/forgotten-80s-cartoons/
+
+Explore overlooked 1980s cartoons that deserve a second chance for their imaginative stories, memorable characters, and nostalgic value.
+---------
+
+# 7 Upcoming Romance Shows That You Cannot Miss
+
+TV, Romance, XO, Kitty, The Hunting Wives, Pride and Prejudice
+
+Mon, 30 Mar 2026 01:21:13 GMT
+
+https://collider.com/upcoming-romance-shows-2026-cannot-miss/
+
+From the Netflix adaptation of Pride and Prejudice to Prime Video's Every Year After, these upcoming romance shows are ones you can't afford to miss.
+---------
+
+# ‘Marshals’ Luke Grimes Thought He Was Done With ‘Yellowstone’ — He Was Wrong
+
+Interviews, Luke Grimes, Marshals, Yellowstone, Taylor Sheridan
+
+Mon, 30 Mar 2026 01:05:12 GMT
+
+https://collider.com/luke-grimes-marshals-yellowstone-kayce-dutton-american-sniper/
+
+Yellowstone star Luke Grimes discusses his nearly decade-long portrayal of Kayce Dutton, and his transition to the spin-off series, Marshals.
+---------
+
+# 10 Greatest Fantasy Shows of the Peak TV Era, Ranked
+
+TV, Fantasy, Game Of Thrones, Stranger Things, House of the Dragon
+
+Mon, 30 Mar 2026 01:01:12 GMT
+
+https://collider.com/best-fantasy-shows-peak-tv-era-ranked/
+
+Peak-era fantasy shows like Game of Thrones and The Witcher prove modern TV builds vast worlds of magic, power, and unforgettable characters.
+---------
+
+# ‘Marshals’ Takes on Taylor Sheridan’s Sleeper Hit Neo-Western for a Harrowing Episode | Review
+
+TV Features, Marshals, Luke Grimes, Logan Marshall-Green, Gil Birmingham
+
+Mon, 30 Mar 2026 01:00:12 GMT
+
+https://collider.com/marshals-episode-5-recap-review-yellowstone-taylor-sheridan-wind-river/
+
+Kayce Dutton searches for a missing Native American girl, delving into the issue of human trafficking, and faces a harrowing cliffhanger.
+---------
+
+# ces on DigitalM. Night Shyamalan’s Career-Saving 94-Minute Thriller That Grossed 20x Its Budget Resurfaces on Digital
+
+Movie News, M. Night Shyamalan, The Visit, Kathryn Hahn, Thriller
+
+Mon, 30 Mar 2026 00:45:13 GMT
+
+https://collider.com/m-night-shyamalan-career-saving-thriller-the-visit-digital-vod-success-march-2026/
+
+The $5 million thriller that saved M. Night Shyamalan's career, The Visit, is having a resurgence on home video. Find out more.
+---------
+
+# 7 Greatest ‘70s Shows That No One Remembers Today
+
+TV, 1970s, Mrs. Columbo, Space Academy, Here's Lucy
+
+Mon, 30 Mar 2026 00:41:13 GMT
+
+https://collider.com/greatest-forgotten-1970s-shows/
+
+Barnaby Jones, The Flip Wilson Show, The Streets of San Francisco, Mrs. Columbo, and more make up our list of 1970s shows no one remembers today.
+---------
+
+# The Best Vampire Horror of the Decade Is Dominating 2 Streamers at Once
+
+Movie News, Michael B. Jordan, Ryan Coogler, Sinners, HBO Max
+
+Mon, 30 Mar 2026 00:30:12 GMT
+
+https://collider.com/michael-b-jordan-sinners-oscar-winning-horror-passes-impressive-streaming-milestone-hbo-max-prime-video-march-2026/
+
+Michael B. Jordan's supernatural horror film has topped streaming charts on HBO Max and Amazon Prime for over 55 and 60 days, respectively.
+---------
+
+# Hulu’s No. 1 Sci-Fi Comedy Is Blowing Up Watchlists Fast
+
+Movie News, Mike & Nick & Nick & Alice, Vince Vaughn, Eiza Gonzalez, James Marsden
+
+Mon, 30 Mar 2026 00:15:12 GMT
+
+https://collider.com/mike-nick-nick-alice-sci-fi-time-travel-comedy-number-one-movie-streaming-success-hulu-march-2026/
+
+The new time travel comedy film starring Vince Vaughn, Mike & Nick & Nick & Alice, emerged as an instant hit on Hulu. Find out more.
+---------
+
+# 'Star Trek: Starfleet Academy' Actor Promises Season 2 Is "Gay AF," Vows to Go "Out IN FLAMES"
+
+TV News, Star Trek: Starfleet Academy, Star Trek, Paramount Plus
+
+Mon, 30 Mar 2026 01:31:09 GMT
+
+https://movieweb.com/star-trek-starfleet-academy-in-flames/
+
+'Starfleet Academy' is ending prematurely, but star Karim Diané promises a big finish.
+---------
+
+# ‘Spider-Man: Brand New Day’s Trailer Record May Hint at Its Box Office Potential
+
+Features, Spider-Man: Brand New Day, Spider-Man, MCU
+
+Mon, 30 Mar 2026 00:15:18 GMT
+
+https://movieweb.com/spider-man-brand-new-day-box-office-projection/
+
+The record-breaking number of views of the 'Spider-Man: Brand New Day' trailer could actually reveal a realistic projection of its box office haul.
+---------
+
 # Shonen's Best Tournament Arc in 20 Years is Finally Here, and It's Revolutionary
 
 Anime, Jujutsu Kaisen
