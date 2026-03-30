@@ -1,3 +1,333 @@
+# Dakota Fanning's 8-Part Thriller Series Based On Bestselling Novel Is Perfect From Start To Finish
+
+TV, All Her Fault, Peacock
+
+Mon, 30 Mar 2026 17:20:18 GMT
+
+https://screenrant.com/all-her-fault-peacock-thriller-series-perfect-start-finish/
+
+Dakota Fanning's 8-part thriller series is based on a bestselling novel, and it is one of the best for genre fans, being perfect from start to finish.
+---------
+
+# Zendaya's Rue Is Arrested In Latest Euphoria Season 3 Trailer
+
+TV, Euphoria
+
+Mon, 30 Mar 2026 17:02:22 GMT
+
+https://screenrant.com/euphoria-hbo-zendaya-season-3-final-trailer/
+
+Euphoria's season 3 trailer has been released, showing Zendaya's Rue getting into hot water as her past mistakes come back to haunt her.
+---------
+
+# Harry Bosch's 2026 Return Rewrites The Rules Of Amazon's Crime Thriller Franchise
+
+Streaming TV, Bosch, Bosch: Start of Watch
+
+Mon, 30 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/bosch-start-of-watch-new-actor-titus-welliver-franchise-recast/
+
+Bosch is getting its third spinoff after Legacy and Ballard, but Titus Welliver's iconic detective will be all but unrecognizable to fans.
+---------
+
+# Wuthering Heights Clip Sees Heathcliff & Cathy Bond Over Torturing Isabella
+
+Exclusive, Wuthering Heights, Jacob Elordi, Margot Robbie
+
+Mon, 30 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/video/wuthering-heights-movie-heathcliff-cathy-isabella-clip/
+
+Exclusive: ScreenRant presents a clip from Wuthering Heights, featuring the twisted love triangle between Jacob Elordi, Margot Robbie & Alison Oliver.
+---------
+
+# The Blue Trail Review: Brazil's Light Sci-Fi Comedy Coasts On Beautiful Vistas & Its Star's Brilliance
+
+Movies, The Blue Trail
+
+Mon, 30 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/the-blue-trail-movie-review/
+
+Gabriel Mascaro's Silver Bear winner is a light dystopian sci-fi imagining a world where the elderly are ostracized for their inability to make money.
+---------
+
+# Keke Palmer Seeks Revenge Against Demi Moore In Trailer For Wild New Sci-Fi Crime Movie
+
+Movies, I Love Boosters, Keke Palmer, Demi Moore
+
+Mon, 30 Mar 2026 16:53:17 GMT
+
+https://screenrant.com/keke-palmer-demi-moore-i-love-boosters-movie-trailer/
+
+Keke Palmer is out for revenge against Demi Moore's cutthroat fashion maven in the new trailer for their wild sci-fi crime movie, I Love Boosters.
+---------
+
+# The Witcher 3 Surprise Free DLC Quest "One Of The Best In The Game"
+
+Gaming, The Witcher 3: Wild Hunt, Triple-A Games, PC
+
+Mon, 30 Mar 2026 16:50:45 GMT
+
+https://screenrant.com/the-witcher-3-official-dlc-quest/
+
+Fans are raving about a Witcher 3 quest that's incredibly easy to miss, given that it was added for free years after the game's release.
+---------
+
+# Spider-Man: Beyond The Spider-Verse’s Recent Tease Makes A Perfect Trailer Date Seriously Possible
+
+Superheroes, Spider-Man, Spider-Man: Beyond the Spider-Verse, Marvel Cinematic Universe, Spider-Verse
+
+Mon, 30 Mar 2026 16:46:19 GMT
+
+https://screenrant.com/spiderman-beyond-spider-verse-trailer-release-timing/
+
+The timing of Beyond the Spider-Verse's first trailer could be just as important as the footage itself, with recent comments hinting at a strategic.
+---------
+
+# Netflix's Best Sports Romance Series is Officially Returning For Season 2, And The First Trailer Looks Glorious
+
+Anime, Blue Box, Netflix, Romance, Sports
+
+Mon, 30 Mar 2026 16:35:09 GMT
+
+https://screenrant.com/blue-box-netflix-season-2-trailer-best-sports-romance/
+
+The best sports romance series ever from Netflix is finally back for a second season and the first trailer looks absolutely worth the wait.
+---------
+
+# Why Dark Winds Season 4, Episode 7 Is Dedicated To Udo Kier
+
+Streaming TV, Dark Winds, Dark Winds - Season 4
+
+Mon, 30 Mar 2026 16:31:20 GMT
+
+https://screenrant.com/dark-winds-season-4-episode-7-udo-kier-tribute-explained/
+
+Dark Winds season 4, episode 7 dedicates its memorial to actor Udo Kier, who played Gunthar Vaggan, highlighting Kier's career and untimely passing.
+---------
+
+# Project Hail Mary Author Andy Weir Apologizes for Star Trek Comments
+
+TV, Star Trek, Project Hail Mary, Sci-Fi
+
+Mon, 30 Mar 2026 17:16:36 GMT
+
+https://www.cbr.com/andy-weir-star-trek-apology-project-hail-mary/
+
+Andy Weir, author of Project Hail Mary, apologizes for his comments about Star Trek's modern shows, clarifying that they were meant to be funny.
+---------
+
+# Zelda's Most Underrated Entry Is More Powerful Than Ever After 25 Years
+
+Games, The Legend of Zelda, Nintendo
+
+Mon, 30 Mar 2026 17:15:12 GMT
+
+https://www.cbr.com/most-underrated-zelda-game-oracle-seasons-ages/
+
+Some of the best Zelda games of all time are forgotten and underrated, including this classic from 25 years ago.
+---------
+
+# Square Enix Surprises Fans With Chrono Trigger 31st Anniversary Release
+
+Games, Chrono Trigger
+
+Mon, 30 Mar 2026 17:08:12 GMT
+
+https://www.cbr.com/chrono-trigger-31st-anniversary-release-one-mark-collection/
+
+Square Enix has announced a new merchandise release for Chrono Trigger's anniversary, and it's available to fans in specific regions right now.
+---------
+
+# The White Lotus Season 4 Cast: Heather Graham, Rosie Perez, and 4 More
+
+TV, The White Lotus
+
+Mon, 30 Mar 2026 16:54:25 GMT
+
+https://www.cbr.com/the-white-lotus-season-4-cast-heather-graham-rosie-perez/
+
+Heather Graham, Rosie Perez, and four additional stars complete the cast of The White Lotus Season 4, expanding the ensemble of Mike White's hit show.
+---------
+
+# The Martian Author Andy Weir's Star Trek Comments Spark Backlash From Don Winslow
+
+TV, Project Hail Mary, Sci-Fi, Star Trek
+
+Mon, 30 Mar 2026 16:47:45 GMT
+
+https://www.cbr.com/the-martian-author-andy-weir-star-trek-comments-spark-backlash-don-winslow-crime-101/
+
+The backlash is real following his comments about Star Trek, and another acclaimed writer just made a public demand of Andy Weir.
+---------
+
+# New Teen Titans Debut As The Team Makes A Comeback With Twist
+
+Comics, Titans, Teen Titans
+
+Mon, 30 Mar 2026 16:45:13 GMT
+
+https://www.cbr.com/new-titans-33-teen-titans-lineup-twist/
+
+DC Comics' New Titans have officially made their comic book debut, and they don't even know how much of a problem they really are.
+---------
+
+# Michael Cera's Paws of Fury: The Legend of Hank Arrives on Hulu
+
+Movies, Paws of Fury: The Legend of Hank
+
+Mon, 30 Mar 2026 16:30:48 GMT
+
+https://www.cbr.com/paws-of-fury-the-legend-of-hank-hulu-march-2026/
+
+The loose remake of Blazing Saddles featuring Michael Cera has arrived on Hulu's streaming library.
+---------
+
+# The Lost Character With the Show's Darkest Special Powers Left a 20-Year-Old Unsolved Mystery
+
+TV, Lost, Mystery, ABC
+
+Mon, 30 Mar 2026 16:20:16 GMT
+
+https://www.cbr.com/lost-hurley-dave-20-year-unsolved-mystery/
+
+The best kind of mysteries on Lost are those that seem to have been solved, yet in the larger context of the show, need a better answer.
+---------
+
+# The New Witch Hat Atelier Anime Is Already a Must-Watch For Harry Potter Fans
+
+Anime, Witch Hat Atelier, Harry Potter
+
+Mon, 30 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/harry-potter-recommendation-fantasy-anime-witch-hat-atelier/
+
+The biggest magical fantasy of the Spring 2026 anime lineup is an absolute must-watch for Harry Potter fans.
+---------
+
+# GTA 6's Cost Officially Confirmed in New Documents From Rockstar
+
+Games, Grand Theft Auto
+
+Mon, 30 Mar 2026 16:12:12 GMT
+
+https://www.cbr.com/gta-6-cost-confirmed-official-rockstar/
+
+The total cost of Grand Theft Auto 6 has finally been unveiled in new internal documents from Rockstar North, and the price tag is staggering.
+---------
+
+# HBO's Polarizing 3-Part Thriller Drops New Trailer Ahead of April 12 Release Date
+
+TV News, Euphoria, Zendaya, Sydney Sweeney, HBO
+
+Mon, 30 Mar 2026 17:20:27 GMT
+
+https://collider.com/euphoria-season-3-trailer-zendaya-sydney-sweeney-hbo-series/
+
+Watch the new trailer for Euphoria Season 3 as HBO's most controversial series returns in just two weeks.
+---------
+
+# 20 Movies With the Worst CGI, Ranked
+
+Movie, CGI, Cats, Sharknado, The Mummy Returns
+
+Mon, 30 Mar 2026 17:12:12 GMT
+
+https://collider.com/movies-worst-cgi/
+
+The Lawnmower Man, Sharknado, and Cats are all among the worst movies with shockingly, hauntingly awful computer generated imagery and effects.
+---------
+
+# 'Paradise's Season 2 Finale Just Set Up Season 3 With a Massive Hard Sci-Fi Twist
+
+TV, Paradise, Hulu, Sci-Fi, Sterling K. Brown
+
+Mon, 30 Mar 2026 17:00:13 GMT
+
+https://collider.com/paradise-season-2-finale-deaths-explained-writer-john-hoberg-interview/
+
+Paradise writer John Hoberg discusses Season 2's explosive finale and how the third and final season will answer all of the fans' lingering questions.
+---------
+
+# 'Twister' Star Has the Perfect Pitch for a Star Wars Role [Exclusive]
+
+Movie News, Helen Hunt, Star Wars, Fan Expo, Twister
+
+Mon, 30 Mar 2026 16:13:28 GMT
+
+https://collider.com/helen-hunt-star-wars-dream-role-megacon-orlando-collider-interview/
+
+Helen Hunt opened up about her love of Star Wars at MegaCon Orlando, revealing that she would happily join the galaxy far, far away in the right role.
+---------
+
+# 'The Super Mario Galaxy Movie's Confirmed Reveal Needs to Have a Donkey Kong-Sized Impact
+
+Movie Features, The Super Mario Galaxy Movie, Nintendo, Star Fox, Glen Powell
+
+Mon, 30 Mar 2026 16:11:12 GMT
+
+https://collider.com/super-mario-galaxy-movie-fox-mccloud-glen-powell/
+
+With the reveal that Fox McCloud will appear in The Super Mario Galaxy Movie, it’s time for the pilot to get his time in the spotlight.
+---------
+
+# 'Paradise' Season 2, Episode 8 Review & Recap: Please, Go Save the World
+
+TV Reviews, Paradise
+
+Mon, 30 Mar 2026 17:23:41 GMT
+
+https://movieweb.com/paradise-season-2-episode-8-review-recap/
+
+We finally know the identity of Alex, and that's just the tip of the iceberg for this strong season finale.
+---------
+
+# Vince Vaughn's R-Rated Sci-Fi Gangster Thriller Quickly Reaches #1 on Hulu
+
+Movie News, Mike & Nick & Nick & Alice, Hot on Streaming, Sci-Fi
+
+Mon, 30 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/mike-and-nick-and-nick-and-alice-streaming-hit-hulu-march-2026/
+
+'Mike & Nick & Nick & Alice' is a genre-bending sci-fi gangster thriller that's proving to be a big hit with viewers on streaming.
+---------
+
+# Taylor Sheridan's 'Marshals' Is Even Better Than 'Lioness'
+
+Features, Lioness, Marshals
+
+Mon, 30 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/marshals-better-than-lioness/
+
+'Marshals,' the Taylor Sheridan action thriller series starring Luke Grimes, is the perfect show for fans of 'Lioness.'
+---------
+
+# DC Studios Shares New Look at Jason Momoa's Lobo in 'Supergirl'
+
+Movie News, Supergirl, Jason Momoa
+
+Mon, 30 Mar 2026 16:53:32 GMT
+
+https://movieweb.com/supergirl-new-images-jason-momoa-lobo/
+
+Jason Momoa took center stage in a thrilling new image as the bounty hunter Lobo in the upcoming 2026 'Supergirl' movie from DC Studios.
+---------
+
+# 'Supergirl' Teaser Reveals Superman's Role Before Official Trailer Release
+
+Movie News, Supergirl, Superman, DCU
+
+Mon, 30 Mar 2026 16:10:11 GMT
+
+https://movieweb.com/supergirl-teaser-superman-cameo/
+
+David Corenswent's Superman returns in the latest teaser for this year's 'Supergirl.'
+---------
+
 # The CW's 5-Part Horror Crime Series Is So Good, You Can Rewatch It Over And Over
 
 TV, iZombie
