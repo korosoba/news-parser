@@ -1,3 +1,322 @@
+# 12 Dark Shocking Sitcom Episodes
+
+Classic TV
+
+Mon, 30 Mar 2026 19:30:19 GMT
+
+https://screenrant.com/dark-sitcom-episodes-shocking/
+
+Explore the darker side of sitcoms with these 12 episodes that tackle serious topics and deliver shocking twists, making them unforgettable.
+---------
+
+# When Does The Super Mario Galaxy Movie Release On Streaming?
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Mon, 30 Mar 2026 19:20:18 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-streaming-release-date-when-peacock/
+
+The Super Mario Galaxy Movie is poised to dominate the box office while in theaters, but here's what we know about its streaming future on Peacock.
+---------
+
+# 10 Emotionally Devastating Anime That Left a Hole in Every Fan’s Heart
+
+Anime
+
+Mon, 30 Mar 2026 19:14:25 GMT
+
+https://screenrant.com/anime-emotionally-devastating-hole-fan-chest/
+
+These anime do not just make you teary-eyed, they stare deep into your soul and take a part of you with them
+---------
+
+# Grey’s Anatomy Renewed For Season 23
+
+TV, Grey's Anatomy
+
+Mon, 30 Mar 2026 19:13:32 GMT
+
+https://screenrant.com/greys-anatomy-season-23-renewal/
+
+ABC has announced Grey's Anatomy has been renewed for season 23 after debuting in 2005 and is now the longest-running primetime medical drama on TV.
+---------
+
+# The Witcher 3: The Best Quest Order (& Why)
+
+Gaming, The Witcher 3: Wild Hunt, PC
+
+Mon, 30 Mar 2026 19:09:51 GMT
+
+https://screenrant.com/witcher-3-best-quest-order-main-story-side-guide/
+
+Players should complete Witcher 3 main story and side quests in a specific order that is best for enjoying the full narrative.
+---------
+
+# Stardew Valley: Gem Sea Shores Is A Tropical Adventure
+
+Gaming, Stardew Valley, PC, Indie
+
+Mon, 30 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/stardew-valley-gem-sea-shores-tropical-mod-download/
+
+A new Stardew Valley mod adds expanded beaches, new areas, and future content, turning the cozy sim into a relaxing seaside getaway.
+---------
+
+# Netflix's 3-Part Action Thriller Series Is Coming For Reacher's Title Of #1 Dad Show
+
+TV, The Night Agent, Reacher
+
+Mon, 30 Mar 2026 19:00:19 GMT
+
+https://screenrant.com/the-night-agent-netflix-action-series-reacher-replacement/
+
+Netflix's popular show is giving Prime Video's Reacher a run for its money as the best action thriller of the 2020s as each season outdoes the last.
+---------
+
+# Netflix's Sci-Fi Smash Hit With High Audience Score On Rotten Tomatoes Has One Of Its Best Casts
+
+Movies, Netflix, Don't Look Up
+
+Mon, 30 Mar 2026 18:42:07 GMT
+
+https://screenrant.com/netflix-dont-look-up-sci-fi-movie-cast-best/
+
+Few movies have as perfect a cast as this star-studded Netflix sci-fi hit, and that is why the project remains exciting five years later.
+---------
+
+# Xbox Quietly Makes Wheelox: Carvival Free To Download, No Subscription Needed
+
+Gaming, Xbox Series X/S, Indie
+
+Mon, 30 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/xbox-free-game-march-2026-no-game-pass/
+
+This multiplayer, minigame-based Xbox racing game is now free to claim, but its history suggests it could return to a paid title soon.
+---------
+
+# 8 Best Netflix Shows You've Never Heard Of
+
+Classic TV, Netflix
+
+Mon, 30 Mar 2026 18:30:19 GMT
+
+https://screenrant.com/best-netflix-shows-you-never-heard-of/
+
+Although Netflix’s viral hits currently dominate the streaming landscape, there are several great TV shows on the platform that you’ve never heard of.
+---------
+
+# Grey's Anatomy Season 23 Confirmed for 2026-2027 Broadcast Season
+
+TV, Drama, Grey's Anatomy, ABC
+
+Mon, 30 Mar 2026 19:28:56 GMT
+
+https://www.cbr.com/greys-anatomy-season-23-renewed-abc/
+
+ABC confirms Grey's Anatomy will return for Season 23 in the 2026-2027 broadcast season, following major cast exits.
+---------
+
+# New GTA 6 Leaks Officially Reveal Major Changes from GTA 5
+
+Games, Grand Theft Auto
+
+Mon, 30 Mar 2026 19:22:59 GMT
+
+https://www.cbr.com/grand-theft-auto-6-leaks-npc-changes/
+
+The latest Grand Theft Auto 6 leaks may be shedding new light on how characters interact.
+---------
+
+# Hello Kitty's Iconic Bullet Train Is Shutting Down Soon
+
+Anime, Hello Kitty, sanrio
+
+Mon, 30 Mar 2026 19:17:08 GMT
+
+https://www.cbr.com/hello-kitty-shinkansen-end-may-17/
+
+In less than 2 months, one of the most kawaii official Hello Kitty attractions is shutting down for good.
+---------
+
+# 10 Dark Manga Masterpieces Perfect to Read If You Miss Chainsaw Man Already
+
+Anime, Manga, Chainsaw Man, Choujin X, Berserk, Fire Punch, Goodnight Punpun
+
+Mon, 30 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/best-dark-manga-to-read-after-chainsaw-man-ending/
+
+The worst part about Chainsaw Man's ending is having to decide what to read next.
+---------
+
+# Xbox Officially Says Goodbye to a Major Era in 2026
+
+Games, Xbox (Original), Microsoft
+
+Mon, 30 Mar 2026 19:10:16 GMT
+
+https://www.cbr.com/xbox-discontinued-campaign-2026-series-x-s/
+
+Xbox has abandoned a major part of the Xbox Series X/S era, and the new CEO has their reasons for the change..
+---------
+
+# Sydney Sweeney's The Housemaid 2 Sets Streaming Release Date
+
+Movies, The Housemaid, The Housemaid's Secret
+
+Mon, 30 Mar 2026 19:06:44 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaids-secret-release-date-december-2027/
+
+Sydney Sweeney finally found her successful franchise.
+---------
+
+# Nicole Kidman's Scarpetta Series Dominates Prime Video Charts
+
+TV, Scarpetta, Crime, Prime Video
+
+Mon, 30 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/nicole-kidman-scarpetta-crime-drama-prime-video-success-march-2026/
+
+Scarpetta, starring Nicole Kidman, has become one of the most-watched shows on Prime Video worldwide, hitting No. 1 in the US weeks after debut.
+---------
+
+# Shows That Tried to Replace Batman: The Animated Series (& Failed)
+
+TV, Batman: The Animated Series, DC Animated Universe, Animation, Cybersix
+
+Mon, 30 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/failed-batman-tas-replacements-list/
+
+Batman: The Animated Series inspired several imitators, but some of these completely failed to measure up to the path laid by the first DCAU cartoon.
+---------
+
+# 10 Fantasy Book Adaptations That Are 10/10 But No One Remembers Them
+
+Movies, Fantasy
+
+Mon, 30 Mar 2026 19:01:12 GMT
+
+https://www.cbr.com/fantasy-book-adaptations-no-one-remembers-list/
+
+Book adaptations in the fantasy genre aren't always smash hits, but some great examples have been forgotten over time.
+---------
+
+# Scream 7 Officially Sets Digital, 4K UHD & Blu-ray Release Dates
+
+Movies, Scream 7
+
+Mon, 30 Mar 2026 18:26:59 GMT
+
+https://www.cbr.com/scream-7-digital-bluray-release-date/
+
+The record-breaking slasher sequel is officially coming home.
+---------
+
+# Netflix’s Newly Added 6-Part Sitcom Is Officially Crushing Streaming 10 Years Later
+
+TV Features, Mike & Molly, Chuck Lorre, Melissa McCarthy, Netflix
+
+Mon, 30 Mar 2026 19:19:12 GMT
+
+https://collider.com/netflix-mike-and-molly-streaming-hit/
+
+A decade after its cancellation, Mike and Molly is finding a second life thanks to Netflix.
+---------
+
+# This Sci-Fi Movie on Netflix Is the Perfect ‘Andor’ Replacement
+
+Movie, Netflix, McQueen, The Creator, You've Got Mail
+
+Mon, 30 Mar 2026 19:19:12 GMT
+
+https://collider.com/best-netflix-movies-watch-week-march-30/
+
+McQueen, The Creator, and You've Got Mail make up our list of Netflix movies to watch the week of March 30th, 2026.
+---------
+
+# 7 Best Anime Series Coming to Netflix and Crunchyroll in April 2026
+
+Movie, Anime, Crunchyroll, Netflix, Witch Hat Atelier
+
+Mon, 30 Mar 2026 19:01:12 GMT
+
+https://collider.com/best-anime-series-netflix-crunchyroll-april-2026/
+
+From the exciting return of Dorohedoro to the long-awaited premiere of Witch Hat Atelier, these are the anime series that you cannot miss this Spring.
+---------
+
+# 'Project Hail Mary's Sci-Fi Author Addresses His ‘Star Trek’ Comments After Backlash
+
+Movie News, Project Hail Mary, Star Trek, Andy Weir, Alex Kurtzman
+
+Mon, 30 Mar 2026 18:29:23 GMT
+
+https://collider.com/project-hail-mary-author-andy-weir-apologizes-for-star-trek-podcast-comments-alex-kurtzman/
+
+Sci-fi writer Andy Weir issues an apology to Star Trek’s Alex Kurtzman after making several harsh remarks on the Critical Drinker podcast.
+---------
+
+# Is 'The Pitt's Dr. Robby Going To Die in Season 2? These 9 Clues Are Hard To Ignore
+
+TV, The Pitt, HBO Max, Noah Wyle, Drama
+
+Mon, 30 Mar 2026 18:23:12 GMT
+
+https://collider.com/the-pitt-season-2-dr-robby-death-clues-hard-to-ignore/
+
+The Pitt Season 2 is hinting at a dark ending for Noah Wyle's Dr. Robby, and these clues are getting harder to ignore on the HBO Max series.
+---------
+
+# 'Margo's Got Money Troubles' Review: A Raw Family Drama That Defies Expectations
+
+TV Reviews, Margo's Got Money Troubles
+
+Mon, 30 Mar 2026 19:00:18 GMT
+
+https://movieweb.com/margos-got-money-troubles-review/
+
+If you go into 'Margo's Got Money Troubles' thinking you know what it will be about, the tone is probably far more dramatic than what you'll expect.
+---------
+
+# Keke Palmer Stars in Boots Riley's 'I Love Boosters' Crime Comedy Trailer
+
+Movie News, I Love Boosters, Keke Palmer, Boots Riley
+
+Mon, 30 Mar 2026 18:52:34 GMT
+
+https://movieweb.com/i-love-boosters-trailer/
+
+Keke Palmer and an all-star cast headline director Boots Riley's directorial feature follow-up to 'Sorry to Bother You'.
+---------
+
+# 'The Housemaid's Secret' Gets a 2027 Release Date
+
+Movie News, The Housemaid
+
+Mon, 30 Mar 2026 18:43:27 GMT
+
+https://movieweb.com/the-housemaid-2-release-date/
+
+The next chapter of Sydney Sweeney's hit 'The Housemaid' franchise has a release date.
+---------
+
+# Rob Schneider Calls To Reinstate Military Draft Amid Iran War
+
+Movie News, Gary Sinise, Rob Schneider, Adam Sandler
+
+Mon, 30 Mar 2026 18:29:59 GMT
+
+https://movieweb.com/rob-schneider-military-draft/
+
+Comedian and actor Rob Schneider put out a statement in support of a military draft amid the ongoing war with Iran.
+---------
+
 # 9 Years Later, 2017's Greatest Isekai Anime Gets a Surprise Second Season
 
 Anime, Isekai, Saga of Tanya the Evil
