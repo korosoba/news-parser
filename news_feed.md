@@ -1,3 +1,223 @@
+# Messy Psychological Thriller Imperfect Women Gives Apple TV What It's Been Missing
+
+Streaming TV, Imperfect Women
+
+Mon, 30 Mar 2026 21:30:19 GMT
+
+https://screenrant.com/apple-tv-messy-psychological-thriller-streaming-must-watch/
+
+Apple TV's messy psychological thriller may be divisive, but with a great cast and a wine-mom aesthetic, it's just the thing the platform was missing.
+---------
+
+# The New Lord Of The Rings Movie Is About To Make The Original Trilogy's Ending Even More Brutal
+
+Movies, The Lord of the Rings: Shadow of the Past, The Lord of the Rings
+
+Mon, 30 Mar 2026 21:20:19 GMT
+
+https://screenrant.com/lord-of-the-rings-shadow-of-the-past-frodo-ending-more-brutal/
+
+A brand-new Lord of the Rings movie will see the return of some of the franchise's most beloved characters, but it will also be devastating.
+---------
+
+# Prime Video's Sci-Fi Thriller With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, Prime Video, The Vast of Night
+
+Mon, 30 Mar 2026 21:17:47 GMT
+
+https://screenrant.com/prime-video-the-vast-of-night-sci-fi-movie-best/
+
+One of Prime Video's best releases is a Sci-Fi thriller that focuses on a UFO incident, making it the perfect watch for fans of the genre.
+---------
+
+# The True Legacy Of V For Vendetta Reflected On By Director 20 Years Later: "Those Themes Were Circular & Cyclical"
+
+Movies, V For Vendetta, James McTeigue, DC
+
+Mon, 30 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/v-for-vendetta-movie-true-legacy-james-mcteigue/
+
+Director James McTeigue reflects on the real legacy of V for Vendetta and why the graphic novel adaptation is still relevant 20 years later.
+---------
+
+# Ted Lasso Season 4 Surprise: Apple TV Revives Beloved Comedy Series
+
+Streaming TV, Ted Lasso
+
+Mon, 30 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/ted-lasso-apple-tv-series-coming-back-surprise-season-4/
+
+Ted Lasso ostensibly ended with season 3, but its popularity on Apple TV has proven to be so enduring that it's coming back for a surprise season 4.
+---------
+
+# Prime Video Record Shattered By Fallout Season 2
+
+TV, Fallout, Fallout - Season 2
+
+Mon, 30 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/fallout-season-2-prime-video-returning-show-record-shatter/
+
+After switching to a weekly episode release format for season 2, Fallout has officially shattered a major Prime Video viewership record.
+---------
+
+# Apple TV's Monarch: Legacy of Monsters Celebrates Major Streaming Milestone
+
+TV, Apple TV, Monarch: Legacy of Monsters, Sci-Fi
+
+Mon, 30 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-sci-fi-streaming-success-apple-tv/
+
+Apple TV+'s best sci-fi series just reached a stealthy streaming milestone. What does it mean for the future of the franchise?
+---------
+
+# Something Very Bad Is Going to Happen Is the Most-Watched TV Show in the U.S.
+
+TV, Something Very Bad Is Going to Happen, Stranger Things
+
+Mon, 30 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/something-very-bad-is-going-to-happen-horror-netflix-success-march-2026/
+
+The series, which is perfect for Carrie and Get Out fans, has turned into a true streaming phenomenon.
+---------
+
+# The 10 Best Nintendo LEGO Sets Available Now on Amazon
+
+Games, LEGO, Nintendo
+
+Mon, 30 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/best-nintendo-lego-sets-on-amazon/
+
+The LEGO/Nintendo partnership continues to be the stuff of fans' dreams.
+---------
+
+# Fallout Season 2 Hits 83 Million Viewers on Prime Video
+
+TV, Fallout
+
+Mon, 30 Mar 2026 21:15:58 GMT
+
+https://www.cbr.com/prime-video-fallout-season-2-viewership/
+
+Fallout Season 2 crushes the streaming viewership numbers on Prime Video, but falls short of setting a new record.
+---------
+
+# 10 Greatest JRPGs of the '90s, Ranked
+
+Games, JRPG, retro games
+
+Mon, 30 Mar 2026 21:15:12 GMT
+
+https://www.cbr.com/best-90s-jrpgs-ranked-list/
+
+The best '90s JRPGs, like Chrono Trigger and Final Fantasy 6, made the genre what it is today.
+---------
+
+# Mike Flanagan's Upcoming Stephen King Reboot Is the Perfect Yellowjackets Replacement
+
+TV, Yellowjackets, Carrie, Horror, Mike Flanagan
+
+Mon, 30 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/mike-flanagan-carrie-reboot-perfect-yellowjackets-replacement/
+
+The crimes of teenagers have been well documented and now Mike Flanagan is going to make them more terrifying.
+---------
+
+# 10 Forgettable Anime Characters With Iconic Weapons
+
+Anime
+
+Mon, 30 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/anime-characters-fans-forget-iconic-weapons/
+
+In the case of characters like Tenten and Lubbock, the weapon left a bigger impression than the person using it.
+---------
+
+# The End of Oak Street Is What Jurassic Park Fans Have Been Waiting For
+
+Movies, anne hathaway, Jurassic Park, Sci-Fi
+
+Mon, 30 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/the-end-of-oak-street-jurassic-park-replacement/
+
+It’s about time that fans get to see an original dinosaur thriller that isn’t Jurassic Park, and The End of Oak Street might be exactly that.
+---------
+
+# HBO's Casey Bloys Denies Talks for Doctor Who Streaming Deal
+
+TV, Doctor Who, Sci-Fi, HBO Max
+
+Mon, 30 Mar 2026 20:47:27 GMT
+
+https://www.cbr.com/doctor-who-hbo-max-streaming-future-disney-plus-exit/
+
+HBO executive Casey Bloys confirms no discussions have taken place for a Doctor Who streaming partnership, despite rumors of a potential deal.
+---------
+
+# 10 Best Science Fiction Movie Debuts, Ranked
+
+Movie, Science Fiction, Primer, Ex Machina, Mad Max
+
+Mon, 30 Mar 2026 21:32:13 GMT
+
+https://collider.com/best-science-fiction-movie-debuts-ranked/
+
+From time-travelling stories such as Primer to post-apocalyptic tales like Mad Max, these must-see debut sci-fi movies have left a lasting impression.
+---------
+
+# 20 Most Influential Movies of the Last 100 Years, Ranked
+
+Movie, Star Wars: Episode IV - A New Hope, The Wizard of Oz, The Godfather, Gone with the Wind
+
+Mon, 30 Mar 2026 21:08:12 GMT
+
+https://collider.com/most-influential-movies-last-100-years-ranked/
+
+Whether they're anime masterworks like Akira or science fiction triumphs like Star Wars, these are the most influential movies of the last 100 years.
+---------
+
+# 10 Forgotten Kids Movies That Have Aged Like Fine Wine
+
+Movie, The Adventures of Rocky & Bullwinkle, Fly Away Home, Teacher's Pet, MouseHunt
+
+Mon, 30 Mar 2026 20:48:12 GMT
+
+https://collider.com/forgotten-kids-movies-aged-like-fine-wine/
+
+Throughout film history, many wonderful movies aimed at children have endured and aged beautifully, including unsung gems like MouseHunt and The Bear.
+---------
+
+# This Brand-New 100% Rotten Tomatoes Netflix Crime Show Is the Perfect ‘Reacher’ Replacement
+
+TV, Netflix, Lucifer, The Four Seasons, Jo Nesbø's Detective Hole
+
+Mon, 30 Mar 2026 20:47:12 GMT
+
+https://collider.com/best-netflix-shows-watch-week-march-30/
+
+Detective Hole, The Four Seasons, and Lucifer make up our list of the best Netflix shows to watch the week of March 20th, 2026.
+---------
+
+# Prime Video’s Best Sci-Fi Series Officially Hits 100M Viewers Ahead of Season 3 Return
+
+TV News, Fallout, Prime Video, Walton Goggins, Ella Purnell
+
+Mon, 30 Mar 2026 20:46:12 GMT
+
+https://collider.com/prime-video-best-sci-fi-series-fallout-100-million-viewers/
+
+Prime Video's best sci-fi series has officially reached 100 million viewers through its first two seasons before season 3 returns.
+---------
+
 # Netflix's New #1 Show Switches Genre After One Episode, And Fans Are Divided
 
 TV, Something Very Bad Is Going to Happen
