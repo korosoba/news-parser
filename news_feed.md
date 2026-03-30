@@ -1,3 +1,223 @@
+# Netflix’s New 3-Part Crime Series Leads This Week’s Must-Watch Shows – Including An Action Thriller Leaving Soon
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 30 Mar 2026 22:12:20 GMT
+
+https://screenrant.com/netflix-new-shows-this-week-leaving-soon/
+
+The top Netflix shows to watch this week include a new 3-part crime series, a romantic teen dramedy, and a thrilling action series leaving soon.
+---------
+
+# The Greatest Threat To One Piece's Final Villain Isn't Luffy, It's Chopper (No Seriously)
+
+Anime, One Piece, One Piece (1997)
+
+Mon, 30 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/one-piece-imu-greatest-threat-chopper-not-luffy/
+
+The weakest Straw Hat has emerged as the most effective weapon against Imu's demonic forces, setting the stage for One Piece's final arc.
+---------
+
+# The Relic: First Guardian Combines Elden Ring Combat With The Witcher Lore
+
+Gaming, Elden Ring, PC, Indie Games
+
+Mon, 30 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/elden-ring-first-guardian-dark-rpg-may-2026/
+
+A new indie RPG blends Soulslike combat with story-driven fantasy, featuring 70+ bosses, customizable relic builds, and a vast world ahead of launch.
+---------
+
+# 30 Years Ago, Friends Had A Guest Cameo So Bad That Even The Actor Was "Ashamed"
+
+Classic TV, Friends, Jean Claude Van Damme
+
+Mon, 30 Mar 2026 22:00:18 GMT
+
+https://screenrant.com/friends-jean-claude-van-damme-cameo-ashamed/
+
+Jean-Claude Van Damme has spoken about his Friends cameo with discomfort - and behind-the-scenes stories reveal why it never quite worked.
+---------
+
+# Invincible's Most Divisive Episode Ever Raises Questions About The Show's Future
+
+TV, Invincible
+
+Mon, 30 Mar 2026 21:50:19 GMT
+
+https://screenrant.com/invincible-season-4-episode-4-divisive-reaction-future/
+
+Invincible season 4, episode 4 has brought divisive reactions from a typically thrilled fandom, leaving uncertainty about what is to come.
+---------
+
+# The Little Mermaid Reboot Fans Deserve Finally Drops its First Official Look
+
+Anime
+
+Mon, 30 Mar 2026 21:49:01 GMT
+
+https://screenrant.com/little-mermaid-reboot-new-trailer-goodbye-lara/
+
+The Little Mermaid is one of the most beloved fairy tales of all time, and it's finally getting the big reboot it always deserved.
+---------
+
+# 18 Years Later, Speed Racer Finally Returns in 4K
+
+Movies, Speed Racer
+
+Mon, 30 Mar 2026 22:24:58 GMT
+
+https://www.cbr.com/speed-racer-returns-4k-theaters/
+
+The cult classic film will soon be speeding its way back into theaters with an all-new 4K remaster.
+---------
+
+# Erin Moriarty Explains How Gen V Affected Her Performance on The Boys
+
+TV, Drama, The Boys, Gen V
+
+Mon, 30 Mar 2026 22:19:25 GMT
+
+https://www.cbr.com/erin-moriarty-starlight-explains-how-gen-v-affected-the-boys/
+
+One of the biggest stars in The Boys universe says it was the show's spin-off that helped her understand what Season 5 needs to be.
+---------
+
+# The Seven Sages of Destruction in Frieren: Beyond Journey's End, Explained
+
+Anime, Frieren: Beyond Journey's End
+
+Mon, 30 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/frieren-demons-seven-sages-of-destruction-guide/
+
+The Seven Sages of Destruction are the most feared demons in Frieren: Beyond Journey's End, scattered throughout the anime's storyline.
+---------
+
+# Harry Potter and the Philosopher's Stone Is Dominating the Charts on HBO Max
+
+Movies, Harry Potter, Harry Potter and the Sorcerer's Stone
+
+Mon, 30 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/harry-potter-and-the-philosophers-stone-fantasy-hbo-max-success-march-2026/
+
+The excitement over the hit fantasy movie isn't by chance.
+---------
+
+# Every Jurassic Park Fan Must Watch This Forgotten T-Rex Dinosaur Movie Made For IMAX
+
+Movies, Jurassic Park
+
+Mon, 30 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/jurassic-park-fan-must-watch-t-rex-movie/
+
+Jurassic Park fans love dinosaur movies, and T-Rex: Back to the Cretaceous is a forgotten dinosaur movie that needs more love.
+---------
+
+# The Original Harry Potter Is Officially Taking Over HBO Max
+
+Movies, Harry Potter and the Sorcerer's Stone, Harry Potter, HBO Max
+
+Mon, 30 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/original-harry-potter-movie-officially-taking-over-hbo-max/
+
+Harry Potter and the Sorcerer's Stone is making waves in streaming ahead of the reboot and marks the perfect time to discover the series.
+---------
+
+# Netflix’s 7-Part Black Mirror Replacement Is a Mind-Bending Weekend Binge
+
+TV, Joko Anwar's Nightmares and Daydreams, Netflix, Black Mirror
+
+Mon, 30 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-joko-anwar-nightmares-and-daydreams-binge-black-mirror-replacement-weekend-binge/
+
+For those looking for a replacement for Black Mirror, Netflix has a similar sci-fi horror anthology series that will satisfy dark mystery fans.
+---------
+
+# The Last of Us Part 3 Officially Teased in Brand-New 2026 Update
+
+Games, The Last of Us
+
+Mon, 30 Mar 2026 21:44:09 GMT
+
+https://www.cbr.com/the-last-of-us-part-3-teased-2026-update/
+
+The Last of Us Part 3 finally gets a brand-new tease straight from Naughty Dog's Neil Druckmann.
+---------
+
+# Only 3 Pixar Movies Are Better Than 'Toy Story'
+
+Movie, Toy Story, WALL·E, Ratatouille, Pixar
+
+Mon, 30 Mar 2026 22:15:12 GMT
+
+https://collider.com/pixar-movies-better-than-toy-story/
+
+There aren't many movies released by Pixar that are better than the original Toy Story, though one of its sequels, plus two 2000s releases, might be.
+---------
+
+# 25 Years Later, Harry Potter Fans Still Want 1 Thing HBO’s Reboot Won’t Give Them
+
+TV Features, Harry Potter, Daniel Radcliffe, HBO Max
+
+Mon, 30 Mar 2026 21:43:12 GMT
+
+https://collider.com/harry-potter-reboot-missing-childhood-whimsy/
+
+The HBO television reboot of Harry Potter seems to lack the visual style and optimism of the feature film franchise.
+---------
+
+# 7 Netflix Shows Everyone Will Be Talking About in April 2026
+
+TV, Netflix, Beef, Stranger Things: Tales from '85, XO, Kitty
+
+Mon, 30 Mar 2026 21:37:12 GMT
+
+https://collider.com/tv-shows-netflix-april-2026/
+
+From the animated spin-off series Stranger Things: Tales From '85 to XO, Kitty Season 3, these are the best shows coming to Netflix this April.
+---------
+
+# Color Complains About HBO's 'Harry Potter Trailer' Don't Make Sense After the Movies Became Progressively More Muted
+
+Features, Harry Potter
+
+Mon, 30 Mar 2026 22:00:17 GMT
+
+https://movieweb.com/hbo-harry-potter-trailer-complaint/
+
+Many 'Harry Potter' fans seem unhappy with how dull the HBO trailer looks. Didn't they see the final five movies?
+---------
+
+# 'PAW Patrol: The Dino Movie' First Trailer Unleashes Prehistoric Dinosaur Sequel
+
+Movie News, PAW Patrol: The Dino Movie
+
+Mon, 30 Mar 2026 21:55:38 GMT
+
+https://movieweb.com/paw-patrol-dino-movie-trailer/
+
+The latest addition to the 'PAW Patrol' movie franchise, 'PAW Patrol: The Dino Movie,' now has its first official trailer released.
+---------
+
+# 'Euphoria' Season 3 Trailer Brings Zendaya & Sydney Sweeney Back One Last Time
+
+TV News, Euphoria, Zendaya Coleman, Sydney Sweeney, Jacob Elordi
+
+Mon, 30 Mar 2026 21:54:34 GMT
+
+https://movieweb.com/euphoria-season-3-trailer-hbo/
+
+The upcoming third chapter is set to be the send-off to the popular and divisive TV series.
+---------
+
 # Messy Psychological Thriller Imperfect Women Gives Apple TV What It's Been Missing
 
 Streaming TV, Imperfect Women
