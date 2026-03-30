@@ -1,3 +1,289 @@
+# Batman Director Andy Muschetti Addresses Fan-Casting For The Dark Knight In James Gunn's Live-Action DC Universe
+
+Movies, The Brave and the Bold, DC Universe
+
+Mon, 30 Mar 2026 03:58:59 GMT
+
+https://screenrant.com/batman-andy-muschetti-dc-universe-fan-casting/
+
+The Brave and the Bold director Andy Muschietti discusses the role of fan-casting in picking the DC Universe's Batman amid intense speculation.
+---------
+
+# It’s Time To Admit It: Dragon Ball Super Nerfed the Entire Franchise
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Mon, 30 Mar 2026 03:54:42 GMT
+
+https://screenrant.com/dragon-ball-super-nerfed-franchise/
+
+Despite its ambitious introduction of new universes and characters, Dragon Ball Super fails to live up to the legacy of its predecessors
+---------
+
+# 15 Strongest Dragon Ball Characters of All Time, Ranked
+
+Comics, Dragon Ball
+
+Mon, 30 Mar 2026 03:45:19 GMT
+
+https://screenrant.com/strongest-dragon-ball-characters-ranked/
+
+Dragon Ball is famous for its wild power levels, and that leads to the series' strongest characters being absolute nightmares on the battlefield.
+---------
+
+# Netflix's Philip K. Dick Adaptation: Perfect Followup To 12 Monkeys
+
+Streaming TV, Netflix, 12 Monkeys, Sci-Fi
+
+Mon, 30 Mar 2026 03:45:08 GMT
+
+https://screenrant.com/netflix-philip-k-dick-12-monkeys-followup/
+
+Netflix is adapting a Philip K. Dick story, and it is hard not to see how it could serve as the perfect follow-up to one of the best time loop shows.
+---------
+
+# J. Jonah Jameson Confirms The DC Hero He’d Hate Just As Much As Spider-Man
+
+Comics, Superman, Spider-Man, Batman, Marvel, DC Comics
+
+Mon, 30 Mar 2026 03:36:49 GMT
+
+https://screenrant.com/j-jonah-jameson-confirms-he-hates-batman-superman-spiderman-crossover/
+
+DC and Marvel's new Superman/Spider-Man crossover reveals the one DC hero J. Jonah Jameson hates just as much as the iconic Webslinger.
+---------
+
+# 15 Most Powerful Anime Mages
+
+Anime
+
+Mon, 30 Mar 2026 03:26:20 GMT
+
+https://screenrant.com/most-powerful-anime-mages/
+
+Fantasy settings may be a dime a dozen, but not all mages are equal. These sorcerers and spellcasters stand at the apex of the anime magic world.
+---------
+
+# Prime Video’s Tomb Raider Halts Filming After Sophie Turner's Injury
+
+TV, Tomb Raider, Sophie Turner
+
+Mon, 30 Mar 2026 03:13:46 GMT
+
+https://screenrant.com/tomb-raider-sophie-turner-prime-video-filming-pause/
+
+Anticipation is high for Prime Video's Tomb Raider starring Sophie Turner as Lara Croft, but production has paused after the star's recent injury.
+---------
+
+# The Comeback Season 3 Turns Valerie Cherish Into A Villain
+
+Streaming TV, The Comeback
+
+Mon, 30 Mar 2026 03:10:19 GMT
+
+https://screenrant.com/the-comeback-season-3-valerie-cherish-villain-transformation-explained/
+
+In The Comeback season 3, Valerie Cherish takes on a secret that transforms her into a villain as she navigates the complexities of her new AI-sitcom.
+---------
+
+# If You Thought Dragonball Evolution Was Bad, Wait Until You Hear About This Other Live-Action Anime Adaptation
+
+Movies, Dragonball Evolution, Knights of the Zodiac, Anime
+
+Mon, 30 Mar 2026 03:06:09 GMT
+
+https://screenrant.com/knights-of-the-zodiac-live-action-movie-worse-than-dragonball/
+
+As bad as Dragonball Evolution might have seemed, it does not even come close to being as horrendous as a 3-year-old anime live-action adaptation.
+---------
+
+# Itachi Was Never Naruto's Most Tortured or Darkest Hero, Another Uchiha is
+
+Anime, Naruto
+
+Mon, 30 Mar 2026 03:00:19 GMT
+
+https://screenrant.com/naruto-itachi-not-most-tortured-hero-sasuke/
+
+While Itachi Uchiha is seen as a tragic Naruto character, Sasuke faced an even darker, more traumatic journey of manipulation, loss, and regret.
+---------
+
+# Sons of Anarchy: The Dark Fan Theory That Changes Everything
+
+TV, Sons of Anarchy
+
+Mon, 30 Mar 2026 03:40:12 GMT
+
+https://www.cbr.com/sons-of-anarchy-dark-theory/
+
+An interesting Sons of Anarchy fan theory connects a central plot device to a much more existential and spiritual effect.
+---------
+
+# 10 Hidden Gem JRPGs You Should Be Playing Right Now
+
+Games, JRPG
+
+Mon, 30 Mar 2026 03:30:13 GMT
+
+https://www.cbr.com/hidden-gem-jrpgs-must-play-list/
+
+Every JRPG fan needs to track down these underrated and obscure JRPGs.
+---------
+
+# Demon Slayer Gets Exclusive Capsule Collection Ahead of Final Infinity Castle Release
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Mon, 30 Mar 2026 03:30:13 GMT
+
+https://www.cbr.com/demon-slayer-anime-capsule-collection-2026-release/
+
+A new and exclusive Demon Slayer collection is now available in the U.S. ahead of Infinity Castle's final theatrical release.
+---------
+
+# IDW's New Crime Imprint is a Group "That’s as Twisted as They are Unique"
+
+CBR Exclusives, idw publishing
+
+Mon, 30 Mar 2026 03:28:50 GMT
+
+https://www.cbr.com/idw-crime-riley-farmer-zoe-tunnell-interview/
+
+In a CBR exclusive interview with the editor of IDW's new IDW Crime line, and the writer of its first series, learn more about the new comic imprint
+---------
+
+# The 8 Best Games We Played at PAX East 2026
+
+Games, Video Games, Pokemon, Nintendo
+
+Mon, 30 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/pax-east-2026-pokemon-champions-bubsy-4d-nintendo-atari/
+
+Developers shined at PAX East 2026 with games like Pokémon Champions and Bubsy 4D.
+---------
+
+# Crunchyroll’s New Liar Game Anime Officially Beats Squid Game at Its Own Game
+
+Anime, Liar Game, Squid Game, Crunchyroll
+
+Mon, 30 Mar 2026 03:00:59 GMT
+
+https://www.cbr.com/crunchyroll-new-thriller-death-game-anime-liar-game/
+
+Squid Game became an instant hit on Netflix, but this thriller anime series does a better job at capturing desperation and high stakes in one story.
+---------
+
+# 10 Most Iconic Anime Characters Since 2000, Ranked
+
+Anime, One Punch Man, One Piece
+
+Mon, 30 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/anime-most-popular-characters-since-2000-ranked-list/
+
+Characters like Monkey D. Luffy have become anime icons.
+---------
+
+# Kerry Washington's Scandal's Forbidden Love Story Beats Bridgerton
+
+TV, Scandal, Thriller, Bridgerton
+
+Mon, 30 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/kerry-washington-scandal-romance-better-than-bridgerton/
+
+Kerry Washington's 7-season political thriller Scandal features a love story that beats Bridgerton's, redefining yearning and forbidden love on TV.
+---------
+
+# Marriagetoxin Puts a Toxic Spin on Shonen Anime This Spring
+
+Anime, Marriagetoxin, Crunchyroll
+
+Mon, 30 Mar 2026 02:20:38 GMT
+
+https://www.cbr.com/crunchyroll-new-action-shonen-anime-marriage-toxin/
+
+One of many April 2026 releases aims to tie love and war into one toxic tale, aiming to bring an end to the clash between organizations forever.
+---------
+
+# Classic Mecha Anime Patlabor Gets New PS5 & Steam Action Game
+
+Anime, Patlabor: The TV Series, Patlabor: The Movie, Steam, PlayStation 5, Good Smile Company
+
+Mon, 30 Mar 2026 02:00:23 GMT
+
+https://www.cbr.com/patlabor-steam-playstation-5-game-confirm/
+
+Patlabor is back in 2026, with the upcoming new anime now bolstered by the official announcement of an exciting new 3D action video game.
+---------
+
+# Prime Video’s 3-Part Fantasy Series Is One of the Best on Any Streaming Platform
+
+TV Features, The Wheel of Time, Prime Video, Fantasy
+
+Mon, 30 Mar 2026 03:59:12 GMT
+
+https://collider.com/wheel-of-time-prime-video-fantasy-best-any-streaming-platform/
+
+With a sprawling world, unique story, and lovable characters, Prime Video's The Wheel of Time ranks among the best fantasy series.
+---------
+
+# This Ridiculous 6-Part Miniseries Needs To Be Seen To Be Believed
+
+TV Features, Tobey Maguire, The Spoils of Babylon, Kristen Wiig, Will Ferrell
+
+Mon, 30 Mar 2026 03:31:12 GMT
+
+https://collider.com/spoils-of-babylon-ifc-comedy-miniseries-6-episodes/
+
+The Spoils of Babylon blends melodrama and comedy with a star-studded cast, delivering a sharp, absurd spoof of prestige television storytelling.
+---------
+
+# 7 Netflix Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, The Haunting of Hill House, Arcane, The Queen's Gambit
+
+Mon, 30 Mar 2026 03:23:13 GMT
+
+https://collider.com/netflix-shows-every-episode-masterpiece/
+
+The Haunting of Hill House, Maid, The Queen's Gambit, and Beef are among the rare class of Netflix shows where every episode is a masterpiece.
+---------
+
+# 8 Times the Women of 'House of David' Season 2 Completely Stole the Show
+
+TV, House of David, Ayelet Zurer, Prime Video, Drama
+
+Mon, 30 Mar 2026 02:16:12 GMT
+
+https://collider.com/house-of-david-season-2-female-led-moments/
+
+The female characters of House of David Season 2 provide many of the show's best moments, from Kazia's social climbing to Queen Ahinoam's exile.
+---------
+
+# 'Tracker' Pushes Colter Shaw to the Very Brink With a Dangerous New Job | Review
+
+TV Features, Tracker, Justin Hartley, CBS, Procedural
+
+Mon, 30 Mar 2026 02:00:23 GMT
+
+https://collider.com/tracker-season-3-episode-14-recap-review-missing-boy/
+
+Tracker's latest episode sees Colter Shaw face off against a kidnapper to save a young boy, showcasing his moral dilemmas in a thrilling case.
+---------
+
+# 10 Masterpiece Sci-Fi Series That Only Get Better With Every Rewatch
+
+TV Lists, Sci-Fi
+
+Mon, 30 Mar 2026 02:01:17 GMT
+
+https://movieweb.com/masterpiece-sci-fi-series-better-rewatch/
+
+The first watch is simply a path to the second, especially when it comes to these addictive sci-fi shows you'll want to revisit.
+---------
+
 # Detective Hole’s 100% RT Debut Is Another Big Win For Netflix
 
 Streaming TV, Joe Nesbø's Detective Hole, Netflix
