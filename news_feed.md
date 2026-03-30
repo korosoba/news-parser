@@ -1,3 +1,300 @@
+# Halloween Ends: A Missed Opportunity To Perfect The Franchise's Finale
+
+Movies, Halloween, Halloween Ends
+
+Mon, 30 Mar 2026 14:45:19 GMT
+
+https://screenrant.com/halloween-ends-movie-corey-story-change/
+
+Halloween Ends has become one of the most controversial films in the Halloween franchise, but one small change would have made it perfect.
+---------
+
+# Celine Dion’s 10 Best Movie Songs & TV Moments, Ranked
+
+Music
+
+Mon, 30 Mar 2026 14:34:19 GMT
+
+https://screenrant.com/celine-dion-best-movie-songs-tv-moments-ranked/
+
+Celebrate Celine Dion’s birthday with a look back at her greatest cinematic hits, from the tragedy of Titanic to the hilarity of Deadpool 2.
+---------
+
+# A Thousand Blows: Hulu's Gripping Historical Crime Drama
+
+Streaming TV, A Thousand Blows
+
+Mon, 30 Mar 2026 14:31:18 GMT
+
+https://screenrant.com/a-thousand-blows-hulu-stephen-graham-keeps-getting-better/
+
+There are plenty of great crime shows on Hulu, but few of them are a match for this brilliant two-season historical thriller starring Stephen Graham.
+---------
+
+# This Would Be Lord Of The Rings: The Hunt For Gollum's Perfect Ending
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 30 Mar 2026 14:20:19 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-perfect-ending-eagles/
+
+Cinema's next trip to Middle-earth will be Andy Serkis' The Lord of the Rings: The Hunt for Gollum, and the story's perfect ending involves eagles.
+---------
+
+# Paramount’s $351M Adventure Franchise Returns With A Jurassic Park Twist In New Trailer
+
+Movies, PAW Patrol: The Dino Movie, PAW Patrol, Jurassic Park
+
+Mon, 30 Mar 2026 14:16:40 GMT
+
+https://screenrant.com/paramount-paw-patrol-the-dino-movie-trailer-jurassic-park-comparison/
+
+A Jurassic Park-inspired version of a very popular franchise is coming to theaters this summer, and Paramount has now released the trailer.
+---------
+
+# Steam Drops 4 Brand-New Free Games To Kick Off Your Week
+
+Gaming, Steam
+
+Mon, 30 Mar 2026 14:10:23 GMT
+
+https://screenrant.com/steam-march-2026-free-games-deals/
+
+New games drop on Steam every day; here are some of the best freebies from the past couple of weeks, in case you’re looking for something to play.
+---------
+
+# Guy Ritchie's 8-Part Crime Series Is Back On Top The Streaming Charts After Divisive Episode Of Former Champion
+
+TV, Young Sherlock, Invincible, Sherlock Holmes, Prime Video
+
+Mon, 30 Mar 2026 14:05:24 GMT
+
+https://screenrant.com/guy-ritchie-young-sherlock-streaming-success-invincible-dethroned/
+
+Guy Ritchie's eight-episode crime series is back on top of streaming charts following a new, divisive episode from the former Number 1 holder.
+---------
+
+# Next Xbox Games Showcase Confirmed With Date & Times
+
+Gaming, Xbox Series X/S, Triple-A Games
+
+Mon, 30 Mar 2026 14:00:24 GMT
+
+https://screenrant.com/xbox-games-showcase-june-7-date-times/
+
+Microsoft just told us when the next Xbox Games Showcase was going to be, and even confirmed a few games that will be featured early.
+---------
+
+# HBO's 10/10 Crime Thriller Series Has The Best Detective Duo In TV History
+
+TV, True Detective
+
+Mon, 30 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/true-detective-best-buddy-cop-duo-tv-history/
+
+HBO's iconic 10/10 classic crime thriller showcases the perfect balance of opposites in its detective duo, making them TV's most memorable pairing.
+---------
+
+# The Mandalorian & Grogu: Lessons From The Book Of Boba Fett's Return Of The Mandalorian
+
+Movies, The Mandalorian and Grogu
+
+Mon, 30 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/mandalorian-and-grogu-movie-perfect-prequel-return-of-episode/
+
+This episode is a perfect prelude to the upcoming movie.
+---------
+
+# The Real Reason for Paramount Dismantling Star Trek's 9-Year Streaming Run Isn't What You Think
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Starfleet Academy
+
+Mon, 30 Mar 2026 14:31:11 GMT
+
+https://www.cbr.com/paramount-dismantling-star-trek-9-year-streaming-run-real-reason/
+
+From political pressure from the White House to simple disdain from Paramount's new owners, the reason Star Trek production is stalled is more simple.
+---------
+
+# Batman Changed History Forever Exactly 89 Years Ago Today
+
+Comics, Batman
+
+Mon, 30 Mar 2026 14:15:16 GMT
+
+https://www.cbr.com/batman-89th-anniversary-first-appearance/
+
+Bill Finger and Bob Kane's creation has become a timeless pop culture icon.
+---------
+
+# Mortal Kombat Legends Films Are Heading to HBO Max in April 2026
+
+Movies, Mortal Kombat
+
+Mon, 30 Mar 2026 14:00:12 GMT
+
+https://www.cbr.com/mortal-kombat-legends-hbo-max-april-2026/
+
+The wildly underrated Mortal Kombat animated feature film series is about to have a new streaming home ahead of the next live-action sequel.
+---------
+
+# Amazon's Tomb Raider Series Halts Production After Sophie Turner Is Injured
+
+TV, Tomb Raider
+
+Mon, 30 Mar 2026 13:20:53 GMT
+
+https://www.cbr.com/tomb-raider-series-pause-production-sophie-turner-injured/
+
+The series kicked off production early this year.
+---------
+
+# Reba McEntire's Happy's Place Season 1 Is Finally Heading to Netflix
+
+TV, Happy's Place
+
+Mon, 30 Mar 2026 13:04:41 GMT
+
+https://www.cbr.com/reba-mcentire-sitcom-happy-place-netflix-streaming-april-2026/
+
+Reba's hit sitcom is making its way to Netflix soon, but there's one big twist fans need to know about ahead of time.
+---------
+
+# Godzilla Defeats Marvel's Biggest Villain Ahead Of Major Crossover Event
+
+Comics, Godzilla, Marvel Comics
+
+Mon, 30 Mar 2026 13:04:34 GMT
+
+https://www.cbr.com/godzilla-infinity-roar-marvel-galactus-crossover/
+
+Godzilla just took down the Marvel Universe's biggest iconic villain in a moment ripped straight out of the most beloved sci-fi horror of a generation
+---------
+
+# BritBox Officially Renews Their Hit Reboot of a Classic Detective Series
+
+TV News, Lynley, BBC, Britbox, Mystery
+
+Mon, 30 Mar 2026 14:15:29 GMT
+
+https://collider.com/britbox-lynley-season-2-renewed/
+
+BritBox's hit reboot of the classic British detective series Inspector Lynley has been officially renewed for a Season 2.
+---------
+
+# Gloria Estefan's Timely New Documentary Is Officially on Digital [Exclusive]
+
+Exclusives, Gloria Estefan, Documentary, Amazon, Trailer Tease
+
+Mon, 30 Mar 2026 14:00:12 GMT
+
+https://collider.com/gloria-estefan-brisa-documentary-trailer-digital-release-date/
+
+Discover the powerful story of Brisa de Angulo Losada, a sexual assault survivor who fought for justice and inspired change in Latin America.
+---------
+
+# Missing 'The Office'? Steve Carell Says His New HBO Comedy Has the Same "All for One" Vibe
+
+Exclusives, Rooster, Steve Carell, HBO Max, The Office
+
+Mon, 30 Mar 2026 13:30:13 GMT
+
+https://collider.com/steve-carell-rooster-hbo-the-office-comedy-comments/
+
+Steve Carell and Charly Clive discuss the similarities of Rooster and The Office, their standout ensemble, and Bill Lawrence's secret to TV success.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Will Use Draw From George Lucas’ Original Plans for the Character
+
+TV News, Star Wars: Maul - Shadow Lord
+
+Mon, 30 Mar 2026 14:39:12 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-will-use-some-of-george-lucas-original-plans/
+
+Dave Filoni suggests that 'Maul - Shadow Lord' will draw inspiration from George Lucas original plans for the sequel trilogy.
+---------
+
+# 'Paradise' Season 2 Ending, Explained
+
+Features, Paradise
+
+Mon, 30 Mar 2026 14:36:24 GMT
+
+https://movieweb.com/paradise-season-2-ending-explained/
+
+'Paradise' Season 2, Episode 8, "Exodus," is a satisfying finale to the season of the Hulu post-apocalyptic thriller, which stars Sterling K. Brown
+---------
+
+# 'Legend of the White Dragon': 'Power Rangers' Icon's Last Action Sci-Fi Role Gets Release Date
+
+Movie News, Legend of the White Dragon, Jason David Frank, Action, Sci-Fi, Superhero
+
+Mon, 30 Mar 2026 14:07:08 GMT
+
+https://movieweb.com/legend-white-dragon-release-date/
+
+Four years after his death, Jason David Frank returns in 'Legend of the White Dragon.'
+---------
+
+# 'Deadpool' Star Stefan Kapičić Joins Keanu Reeves in Tim Miller's New Sci-Fi Action Thriller
+
+Movie News, Deadpool, Tim Miller, Keanu Reeves
+
+Mon, 30 Mar 2026 14:06:23 GMT
+
+https://movieweb.com/keanu-reeves-sci-fi-action-deadpool-star/
+
+One of the stars of the 'Deadpool' franchise is headed to uncharted waters in the new action sci-fi thriller film from director Tim Miller.
+---------
+
+# Steamy Series 'Outlander' Dominates Its Raunchy Competition on Streaming
+
+TV News, Outlander, Hot on Streaming, Spartacus: House of Ashur
+
+Mon, 30 Mar 2026 14:03:44 GMT
+
+https://movieweb.com/outlander-beating-spartacus-streaming-starz-march-2026/
+
+After 12 years, 'Outlander' is going out on a high note as it continues to dominate on streaming ahead of the series finale.
+---------
+
+# The 'Scrubs' Revival's Reworked Timeline Boils Down to One Vital Event
+
+Features, Scrubs
+
+Mon, 30 Mar 2026 14:00:18 GMT
+
+https://movieweb.com/scrubs-revival-med-school-timeline-reveal/
+
+'Scrubs' Season 9 saw the original Sacred Heart torn down, so why didn't it happen in the revival? Read on to find out.
+---------
+
+# 'Harry Potter’ Reboot Trailer Becomes Biggest Ever in HBO History
+
+TV News, Harry Potter, HBO Max
+
+Mon, 30 Mar 2026 13:51:28 GMT
+
+https://movieweb.com/harry-potter-trailer-most-watched-hbo-record/
+
+The first trailer for HBO's 'Harry Potter' reboot is now the most successful trailer for any release in the network's long history.
+---------
+
+# 'Game of Thrones' Lena Headey Takes Aim in Trailer for Action Thriller 'Ballistic'
+
+Movie News, Action, Thriller, Lena Headey
+
+Mon, 30 Mar 2026 13:19:08 GMT
+
+https://movieweb.com/ballistic-trailer-action-thriller/
+
+The 'Game of Thrones' alum has nothing left to lose in this revenge action thriller, which is due to be released in April.
+---------
+
 # The Founding X-Men Unveil Redesign as Galactus' New Heralds
 
 Comics, X-Men, Galactus
