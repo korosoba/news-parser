@@ -1,3 +1,91 @@
+# New Nintendo Hardware Leaks, Will Coincide With Ocarina Of Time Remake
+
+Gaming, The Legend of Zelda: Ocarina of Time
+
+Mon, 30 Mar 2026 10:39:19 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-leak-new-nintendo-hardware/
+
+Rumors suggest an official The Legend of Zelda: Ocarina of Time remake is in development for Nintendo Switch 2.
+---------
+
+# GTA 6 Is More Expensive Than Expected, Official Documents Confirm
+
+Gaming, Grand Theft Auto 6
+
+Mon, 30 Mar 2026 10:09:03 GMT
+
+https://screenrant.com/gta-6-cost-officially-confirmed-expensive/
+
+Discover how Grand Theft Auto VI's development costs have skyrocketed to over $3 billion, making it the most expensive game ever.
+---------
+
+# Super Mario Galaxy Movie Cast List Secretly Confirmed a Donkey Kong Spinoff
+
+Movies, The Super Mario Galaxy Movie, Nintendo, Donkey Kong
+
+Mon, 30 Mar 2026 10:00:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-cast-donkey-kong-spin-off/
+
+One major character won't return for The Super Mario Galaxy Movie, but this could be good news for the franchise as it continues to expand.
+---------
+
+# Marvel Finally Reunited Spider-Man and Mary Jane 25 Years Ago
+
+Comics, Spider-Man, CSBG, look back
+
+Mon, 30 Mar 2026 03:58:50 GMT
+
+https://www.cbr.com/spider-man-mary-jane-reunion-marvel-25-years-ago/
+
+In a look back to March 2001, see how Marvel finally reunited Spider-Man and Mary Jane after she was believed to have been killed
+---------
+
+# 10 Most Undeniable Sci-Fi Movie Classics, Ranked
+
+Movie, Sci-Fi, Back to the Future, 2001: A Space Odyssey, Jurassic Park
+
+Mon, 30 Mar 2026 10:33:12 GMT
+
+https://collider.com/sci-fi-movie-classics-undeniable-ranked/
+
+From The Matrix to Jurassic Park, these sci-fi classics still dominate with ideas, spectacle, and storytelling that never fades.
+---------
+
+# 20 Greatest TV Drama Show Masterpieces of All Time, Ranked
+
+TV, Drama, Breaking Bad, The Sopranos, Game Of Thrones
+
+Mon, 30 Mar 2026 10:21:12 GMT
+
+https://collider.com/best-tv-drama-show-masterpieces-of-all-time/
+
+From Breaking Bad to The Sopranos, these television dramas are masterpieces that pushed the medium forward.
+---------
+
+# Only 5 Fantasy Movies Are Exactly As Good as The Lord of the Rings
+
+Movie, The Lord of the Rings, Snow White and the Seven Dwarfs, Fantasy, Willy Wonka and the Chocolate Factory
+
+Mon, 30 Mar 2026 10:12:12 GMT
+
+https://collider.com/fantasy-movies-as-good-as-the-lord-of-the-rings/
+
+The Lord of the Rings is a high-water mark for fantasy cinema, but classics like The Wizard of Oz and The Empire Strikes Back match its quality.
+---------
+
+# 'Tomb Raider' Star Sophie Turner Injured, Halting Production
+
+TV News, Tomb Raider, Sophie Turner
+
+Mon, 30 Mar 2026 10:18:40 GMT
+
+https://movieweb.com/tomb-raider-sophie-turner-injury/
+
+Amazon's new 'Tomb Raider' series has halted production after Lara Croft star Sophie Turner sustained a minor injury.
+---------
+
 # PlayStation 6 Price Tag Has Gamers Saying PS5 Could Be Their Last Console
 
 Gaming, PlayStation (Original)
