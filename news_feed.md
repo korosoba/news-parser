@@ -1,3 +1,366 @@
+# The Golden Girls: Ranking All 7 Seasons from Worst To Best
+
+Classic TV, The Golden Girls, Ranking
+
+Tue, 31 Mar 2026 19:31:20 GMT
+
+https://screenrant.com/the-golden-girls-seasons-ranked/
+
+The Golden Girls is one of the most consistently brilliant sitcoms ever made, but some of the show's seasons are still better than others.
+---------
+
+# The Pitt Season 3's Release Timeline On HBO Max Gets Encouraging Update From Star
+
+TV, The Pitt
+
+Tue, 31 Mar 2026 19:23:25 GMT
+
+https://screenrant.com/the-pitt-season-3-hbo-max-release-timeline-update-taylor-dearden/
+
+The Pitt star Taylor Dearden discusses season 3's release timeline on HBO Max.
+---------
+
+# Superman's Role In The Next DC Movie Is A Promising Sign For James Gunn's Universe
+
+Superheroes, DC Universe, Supergirl
+
+Tue, 31 Mar 2026 19:20:18 GMT
+
+https://screenrant.com/supergirl-movie-superman-role-promising-dcu/
+
+The official trailer for Supergirl has offered a look at Superman's next role in James Gunn's DC Universe, and the glimpse is promising.
+---------
+
+# BBC Is Officially Releasing Two Missing Doctor Who Episodes This Week
+
+TV, Doctor Who
+
+Tue, 31 Mar 2026 19:16:21 GMT
+
+https://screenrant.com/doctor-who-the-daleks-master-plan-episodes-bbc-release-date/
+
+A Doctor Who Christmas special is in the works for December 2026, but until then, fans can watch two missing episodes that have been restored.
+---------
+
+# Paradise Season 3's "Multiverse" Story Explained By Sterling K. Brown
+
+TV, Paradise, Sterling K. Brown
+
+Tue, 31 Mar 2026 19:15:17 GMT
+
+https://screenrant.com/paradise-season-3-multiverse-confirmed-story-sterling-k-brown/
+
+Sterling K. Brown, the star of Hulu's Paradise, explains how the future for Collins could turn out, as well as where the show is headed in season 3.
+---------
+
+# Netflix's Global Hit 8-Part Thriller Series Officially Dethroned By New Crime Drama With Near-Perfect Rotten Tomatoes Score
+
+TV, Netflix, Jo Nesbø's Detective Hole, Something Very Bad Is Going to Happen
+
+Tue, 31 Mar 2026 19:06:09 GMT
+
+https://screenrant.com/detective-hole-netflix-show-streaming-success-march/
+
+Netflix recently saw the debut of two successful shows, and its global hit thriller series has been dethroned by a crime drama adapting a bestseller.
+---------
+
+# 8 Original Anime That Deserved to Be Massive Franchises But Never Were
+
+Anime
+
+Tue, 31 Mar 2026 19:00:21 GMT
+
+https://screenrant.com/original-anime-need-franchises-never-were/
+
+Though these esteemed originals stand strong as they are, they deserved to be so much more.
+---------
+
+# The Super Mario Galaxy Movie Review: Chaotic Fun, Gorgeous Animation & All The First Movie’s Problems
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Tue, 31 Mar 2026 19:00:21 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-2026-review/
+
+The Super Mario Galaxy Movie's fast-paced journey is filled with jokes and references for franchise fans as plot and character take a backseat.
+---------
+
+# Star Trek: Major Change Looms For The Federation In Starfleet Academy Season 2
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 31 Mar 2026 19:00:21 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-season-2-federation-president-change/
+
+Star Trek: Starfleet Academy season 2 could bring another major upheaval to the 32nd century's tumultuous United Federation of Planets.
+---------
+
+# HBO Max's New 6-Part Crime Thriller Series Becomes Global Streaming Hit
+
+TV, HBO Max
+
+Tue, 31 Mar 2026 18:55:23 GMT
+
+https://screenrant.com/hbo-max-privileges-crime-thriller-streaming-success-march-2026/
+
+HBO Max's new six-part crime thriller series becomes a global streaming hit shortly after its premiere on the streaming service on March 27.
+---------
+
+# Dragon Ball Officially Reveals World's First Fully-Functional Saiyan Scouter Release
+
+Anime, Dragon Ball, merchandise
+
+Tue, 31 Mar 2026 19:30:12 GMT
+
+https://www.cbr.com/dragon-ball-saiyan-scouter-official-account-april-1-reveal/
+
+Dragon Ball just announced a real-life Scouter device available for pre-order. Users should be weary of aiming it at anyone named after a vegetable.
+---------
+
+# Karl Urban & Jack Quaid Break Down The Boys’ Most Shocking Scene
+
+TV, The Boys
+
+Tue, 31 Mar 2026 19:15:12 GMT
+
+https://www.cbr.com/video/karl-urban-jack-quaid-break-down-the-boys-most-shocking-scene/
+
+Karl Urban & Jack Quaid break down The Boys’ most shocking moments and what’s coming in the final season.From that unforgettable first episode to a “moist” and emotional finale, they tease what fans should expect.In this interview, The Boys stars reflect on the scene that defined the show’s brutal tone, how the series reshaped superhero storytelling, and why Season 5 hits harder than ever. Karl Urban dives into the show’s satire and impact, while Jack Quaid highlights character growth and redemption arcs. If you’re looking for The Boys Season 5 details, shocking moments explained, and cast insights, this is one fans can’t miss.
+---------
+
+# Anya Taylor-Joy's The Super Mario Galaxy Movie Debuts Rotten Tomatoes Score Unveiled
+
+Movies, Nintendo, The Super Mario Galaxy Movie, Rotten Tomatoes
+
+Tue, 31 Mar 2026 19:14:38 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-movie-rotten-tomatoes-score/
+
+After exceeding expectations the first time around, the hit video game movie returns with another installment.
+---------
+
+# Jo Nesbø's Detective Hole Is the Most-Watched Show Worldwide on Netflix
+
+TV, Jo Nesbø's Detective Hole, Crime, Netflix
+
+Tue, 31 Mar 2026 19:00:14 GMT
+
+https://www.cbr.com/detective-hole-crime-thriller-success-netflix-march-2026/
+
+Jo Nesbø's Detective Hole, a Netflix crime series based on bestselling books, becomes the most-watched show globally in just 4 days.
+---------
+
+# 10 Sci-Fi Heroes Even Smarter Than Ryan Gosling’s Project Hail Mary Lead
+
+Movies, Project Hail Mary, Sci-Fi
+
+Tue, 31 Mar 2026 19:00:14 GMT
+
+https://www.cbr.com/sci-fi-heroes-smarter-than-project-hail-mary-ryan-gosling/
+
+Project Hail Mary has a genius protagonist in Ryan Gosling's Ryland Grace, but he's far from the smartest in the realm of sci-fi cinema.
+---------
+
+# Forgotten Horror Shows That Are Actually 10/10
+
+TV, The Outer Limits, Channel Zero, Scream, Horror
+
+Tue, 31 Mar 2026 19:00:14 GMT
+
+https://www.cbr.com/forgotten-horror-shows-actually-masterpieces/
+
+From supernatural series to slasher adaptations, these hidden gems slipped through the cracks and deserve a second chance from fans.
+---------
+
+# The Super Mario Galaxy Movie Review: The Mario Bros. Sequel Gives Fans Everything They Want (But With a Catch)
+
+Movies, The Super Mario Galaxy Movie
+
+Tue, 31 Mar 2026 19:00:05 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-review/
+
+The Super Mario Galaxy Movie is high flying fun from the start but bites off a little more than it can chew.
+---------
+
+# April 24 Will Be a Great Day for One Piece Fans
+
+Anime, One Piece
+
+Tue, 31 Mar 2026 18:31:13 GMT
+
+https://www.cbr.com/one-piece-ccxpmx26-reveal/
+
+One Piece fans will have the chance to step into the world of their favorite anime in April, thanks to one of the franchise's biggest events for 2026.
+---------
+
+# Jensen Ackles Makes The Supernatural Reunion On The Boys Sound Terrifying
+
+CBR Exclusives, The Boys, Vought Rising
+
+Tue, 31 Mar 2026 18:30:40 GMT
+
+https://www.cbr.com/jensen-ackles-supernatural-reunion-the-boys-terrifying/
+
+Exclusive: Almost six years after the Supernatural finale, the beloved trio is together again in a new form.
+---------
+
+# Super Mario Bros. Super Show! Returns on MEtv, With AI Downgrade
+
+TV, super mario bros, Mario, Nintendo, The Super Mario Bros. Super Show!
+
+Tue, 31 Mar 2026 18:20:23 GMT
+
+https://www.cbr.com/super-mario-super-show-metv-ai-upscale/
+
+The Super Mario Bros. Super Show! makes a comeback on MEtv, but fans are disappointed by the AI-upscaled animation that distorts the 1989 show.
+---------
+
+# 5 Upcoming Epic Movies You Cannot Miss
+
+Movie, Dune: Part Three, Masters of the Universe, The Odyssey, Narnia: The Magician's Nephew
+
+Tue, 31 Mar 2026 19:23:13 GMT
+
+https://collider.com/upcoming-epic-movies-you-cannot-miss/
+
+From foolproof hits like The Odyssey to would-be franchises like Masters of the Universe, these are the epics you cannot miss in the upcoming months.
+---------
+
+# This 5-Part Sci-Fi Cult Classic Was Officially the Inspiration for Netflix's ‘Black Mirror’
+
+TV Features, The Twilight Zone, Black Mirror, Charlie Brooker, Rod Serling
+
+Tue, 31 Mar 2026 19:22:12 GMT
+
+https://collider.com/twilight-zone-sci-fi-cult-classic-inspiration-black-mirror/
+
+The Twilight Zone directly inspired the creation of Black Mirror, paving the way for a genre of shows that explore humanity through technology.
+---------
+
+# Ryan Gosling’s New Sci-Fi Movie Officially Obliterates Tom Cruise's Cult Classic 13 Years Later
+
+Movie News, Ryan Gosling, Oblivion, Tom Cruise, Project Hail Mary
+
+Tue, 31 Mar 2026 19:01:12 GMT
+
+https://collider.com/ryan-gosling-sci-fi-epic-project-hail-mary-overtakes-tom-cruise-oblivion-box-office-300-million/
+
+Project Hail Mary continues to exceed expectations at the box office and has now overtaken the entire lifetime gross of Tom Cruise's 2013 sci-fi epic.
+---------
+
+# 'The Super Mario Galaxy Movie' Review: Nintendo’s Overstuffed Sequel Delivers a Playful, Expanded Adventure
+
+Movie Reviews, The Super Mario Galaxy Movie, Nintendo, Chris Pratt, Anya Taylor-Joy
+
+Tue, 31 Mar 2026 19:00:15 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-review-nintendo/
+
+The Super Mario Galaxy Movie expands this Nintendo universe with new characters and worlds, but it tries to do too much.
+---------
+
+# 'The Boys' Season 5 Has 1 Episode the Entire Cast Can't Stop Warning Fans About [Exclusive]
+
+Exclusives, The Boys, Erin Moriarty, Karen Fukuhara, The Rookie
+
+Tue, 31 Mar 2026 19:00:15 GMT
+
+https://collider.com/the-boys-season-5-episode-8-series-finale-erin-moriarty-karen-fukuhara-comments/
+
+Ahead of Season 5, Erin Moriarty and Karen Fukuhara discuss the most jaw-dropping episodes and what fans can expect from the epic conclusion.
+---------
+
+# Crunchyroll Just Made Watching Anime Easier Than Ever
+
+TV News, Crunchyroll, Anime, Apple, Apple TV
+
+Tue, 31 Mar 2026 18:40:09 GMT
+
+https://collider.com/crunchyroll-apple-tv-deal-app-anime-streaming-how-to-watch/
+
+Crunchyroll has made it easier for new fans to access its extensive library of over 2000 titles through a new Apple TV partnership.
+---------
+
+# Alec Baldwin Joins MCU Star's Mysterious New Crime Movie
+
+Movie News, Alec Baldwin, Rust, Chris Hemsworth, Taron Egerton
+
+Tue, 31 Mar 2026 18:30:13 GMT
+
+https://collider.com/alec-baldwin-new-crime-movie-chris-hemsworth-kockroach/
+
+Alec Baldwin joins Marvel star Chris Hemsworth, Taron Egerton, and Zazie Beetz in the crime movie Kockroach, directed by Matt Ross. Learn more.
+---------
+
+# 8 Series Finales That Are Masterpieces
+
+TV, Succession, Fleabag, Veep, Better Call Saul
+
+Tue, 31 Mar 2026 18:19:13 GMT
+
+https://collider.com/greatest-series-finales-masterpieces/
+
+The Leftovers, Better Call Saul, Fleabag, Succession, The Sopranos, Veep, and more make up our list of series finales that can be called masterpieces.
+---------
+
+# Netflix's 'Apple Cider Vinegar' Is So Good, You Can Rewatch It Multiple Times
+
+Features, Apple Cider Vinegar
+
+Tue, 31 Mar 2026 19:00:19 GMT
+
+https://movieweb.com/netflix-apple-cider-vinegar-rewatchable/
+
+Netflix's story about Belle Gibson, a wellness scam artist, is toxically great, delivering an equally entertaining and intelligent binge.
+---------
+
+# 'The Super Mario Galaxy Movie' Review: Stunning CGI Action Outshines Flimsy Plot
+
+Movie Reviews, The Super Mario Galaxy Movie
+
+Tue, 31 Mar 2026 19:00:19 GMT
+
+https://movieweb.com/the-super-mario-galaxy-movie-review/
+
+With vibrant visuals and amazing VFX, The Super Mario Galaxy Movie is a must-see for fans of the classic video game franchise.
+---------
+
+# 'Grey's Anatomy' Smashes Record With Season 23 Renewal
+
+TV News, Grey's Anatomy
+
+Tue, 31 Mar 2026 18:42:40 GMT
+
+https://movieweb.com/greys-anatomy-season-23-renewal/
+
+The hit medical drama is not getting discharged any time soon.
+---------
+
+# Eli Roth's 'Ice Cream Man' Horror Film Lands Release Date
+
+Movie News, Eli Roth
+
+Tue, 31 Mar 2026 18:32:40 GMT
+
+https://movieweb.com/ice-cream-man-release-date/
+
+The new slasher is set to hit theaters on Aug. 7.
+---------
+
+# ‘The White Lotus’ Season 4 Adds Heather Graham & More
+
+TV News, Heather Graham, Rosie Perez
+
+Tue, 31 Mar 2026 18:16:52 GMT
+
+https://movieweb.com/the-white-lotus-season-4-heather-graham-cast/
+
+The critically acclaimed HBO series 'The White Lotus' begins production with a stacked cast next month.
+---------
+
 # New Heated Rivalry Adaptation Officially Premiering This Spring
 
 TV, Heated Rivalry
