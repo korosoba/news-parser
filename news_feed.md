@@ -1,3 +1,179 @@
+# PlayStation Plus Essential Free Games For April Slammed By Subscribers
+
+Gaming, PlayStation Plus
+
+Tue, 31 Mar 2026 10:45:19 GMT
+
+https://screenrant.com/playstation-plus-essential-free-games-april-2026-reactions/
+
+PlayStation Plus subscribers are not happy with the leaked April games, with Sword Art Online: Fractured Daydream being particularly unpopular.
+---------
+
+# Hogwarts Legacy Free Multiplayer Add-On Lets You Cause Chaos With Friends
+
+Gaming, Hogwarts Legacy
+
+Tue, 31 Mar 2026 10:31:21 GMT
+
+https://screenrant.com/hogwarts-legacy-multiplayer-free-add-on-unofficial/
+
+Experience the magical world of Hogwarts Legacy with friends using the HogWarp multiplayer mod.
+---------
+
+# Star Wars Jedi 3 Leaked Teaser Has Gamers Marking Their Calendars
+
+Gaming, Star Wars, Star Wars Jedi: Survivor, Star Wars Jedi: Fallen Order
+
+Tue, 31 Mar 2026 10:00:18 GMT
+
+https://screenrant.com/star-wars-jedi-3-leaked-teaser-may-2026/
+
+The third Star Wars Jedi game is on the way, with many expecting more of an announcement around the Star Wars Day celebrations.
+---------
+
+# The Drama Review: Zendaya & Robert Pattinson’s A24 Shocker Is Much More Than Its Twist
+
+New Movies, The Drama
+
+Tue, 31 Mar 2026 10:00:18 GMT
+
+https://screenrant.com/the-drama-movie-2026-review/
+
+The controversial “twist” in Zendaya and Robert Pattinson’s romantic dramedy will start conversations, but the movie is bigger than the discourse.
+---------
+
+# The Drama Review: Zendaya & Robert Pattinson Are Electric in This Deranged Rom-Com
+
+Movies, The Drama
+
+Tue, 31 Mar 2026 10:00:11 GMT
+
+https://www.cbr.com/the-drama-review/
+
+The Drama pairs Zendaya and Robert Pattinson in a dark A24 romance that turns pre-wedding panic into something wild, funny, and deeply unsettling.
+---------
+
+# Jack Black's Anaconda Is the Best Franchise Reboot of the Decade
+
+Movies, Anaconda, Netflix, jack black
+
+Tue, 31 Mar 2026 10:00:11 GMT
+
+https://www.cbr.com/anaconda-best-franchise-reboot-of-the-decade/
+
+Swapping creature action for meta-horror nostalgia, Anaconda avoids the genericity and redundancy of most modern attempts to revive legacy IPs.
+---------
+
+# Channel Zero Is a Horrifying Anthology for Fans of From
+
+TV, From, Channel Zero, Horror
+
+Tue, 31 Mar 2026 10:00:11 GMT
+
+https://www.cbr.com/channel-zero-perfect-for-from-fans/
+
+With each season based on a creepypasta, this show fills the void that comes with waiting for From Season 4.
+---------
+
+# 8 Upcoming Prime Video Shows You Cannot Miss
+
+TV, Prime Video, The Boys, The Lord of the Rings: The Rings of Power, Spider-Noir
+
+Tue, 31 Mar 2026 10:52:12 GMT
+
+https://collider.com/upcoming-prime-video-shows-2026/
+
+From The Boys' Season 5 return to the Legally Blonde prequel series Elle, these upcoming Prime Video shows are the ones you can't afford to miss.
+---------
+
+# 10 Most Perfect HBO Miniseries, Ranked
+
+TV, HBO, TV Miniseries, Angels in America, Band of Brothers
+
+Tue, 31 Mar 2026 10:32:13 GMT
+
+https://collider.com/most-perfect-hbo-miniseries-ranked/
+
+From Band of Brothers to Chernobyl, these HBO miniseries are the best and most perfect of them all.
+---------
+
+# Alan Ritchson and Jason Statham's $700M Action Movie Returns Ahead of Final Film
+
+Movie News, Fast X, Vin Diesel, Jason Statham, Jason Momoa
+
+Tue, 31 Mar 2026 10:30:12 GMT
+
+https://collider.com/fast-x-alan-ritchson-jason-statham-378-million-budget-streaming-success-march-2026/
+
+One of the most expensive movies ever made, Fast X, races back into the home-video charts three years after its theatrical release. Find out more.
+---------
+
+# 30 Best Movies That Follow the Hero's Journey
+
+Movie, Top 10, Star Wars: Episode IV - A New Hope, Citizen Kane, The Lord of the Rings
+
+Tue, 31 Mar 2026 10:27:13 GMT
+
+https://collider.com/best-heros-journey-movies/
+
+From Star Wars to The Matrix to The Wizard of Oz, these great movies follow the hero's journey to a "tee."
+---------
+
+# 'The Drama' Review: Zendaya and Robert Pattinson Cordially Invite You to the Cringiest Wedding of the Year
+
+Movie Reviews, The Drama, Alana Haim, Robert Pattinson, Zendaya
+
+Tue, 31 Mar 2026 10:00:12 GMT
+
+https://collider.com/the-drama-review-zendaya-robert-pattinson-a24/
+
+The Drama, starring Zendaya and Robert Pattinson, is a cringey, honest look at love and second chances.
+---------
+
+# Glen Powell’s ‘Succession’ Meets ‘Ready or Not’ Box-Office Bomb Redeems Itself on Digital
+
+Movie News, How to Make a Killing, Glen Powell, Succession, Ready or Not
+
+Tue, 31 Mar 2026 10:00:12 GMT
+
+https://collider.com/how-to-make-a-killing-glen-powell-succession-meets-ready-or-not-box-office-bomb-digital-vod-success/
+
+Glen Powell's darkly comic thriller How to Make a Killing is redeeming itself on home video following a so-so theatrical run. Find out more.
+---------
+
+# 'The Ghost in the Shell' Trailer Teases Faithful Adaptation of Iconic Sci-Fi Action Franchise
+
+TV News, Ghost in the Shell, Action, Sci-Fi, Prime Video
+
+Tue, 31 Mar 2026 10:21:23 GMT
+
+https://movieweb.com/the-ghost-in-the-shell-trailer/
+
+The original manga has been brought to accurate life and is headed to Prime Video later this year.
+---------
+
+# Alec Baldwin Joins Chris Hemsworth Crime Epic 'Kockroach'
+
+Movie News, Alec Baldwin, Chris Hemsworth, Crime, Thriller
+
+Tue, 31 Mar 2026 10:20:36 GMT
+
+https://movieweb.com/kockroach-alec-baldwin-cast/
+
+Alec Baldwin has joined the cast of the high-profile crime thriller 'Kockroach,' starring opposite Chris Hemsworth, Taron Egerton, and Zazie Beetz.
+---------
+
+# 'The Drama' Review: Robert Pattinson & Zendaya Deliver a Fantastically Twisted Romcom
+
+Movie Reviews, The Drama, Robert Pattinson, Zendaya Coleman
+
+Tue, 31 Mar 2026 10:00:16 GMT
+
+https://movieweb.com/the-drama-review/
+
+The A-list duo are brilliant in this tale of a couple who have doubts about their upcoming wedding after a dark secret is revealed.
+---------
+
 # Red Dead Redemption 3 Controversial Change Has Gamers Concerned
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2
