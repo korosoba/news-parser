@@ -1,3 +1,223 @@
+# Paradise Season 3 Explained: Confirmation, Story & Everything We Know
+
+Streaming TV, Paradise
+
+Tue, 31 Mar 2026 22:05:22 GMT
+
+https://screenrant.com/paradise-season-3-explained/
+
+Hulu renewed its hit Paradise for a third and likely final season. Learn about the show's renewal, storyline, and what to expect in the final chapter.
+---------
+
+# Elle Fanning's 3-Part Dark Comedy Series Is So Good, You Can Rewatch It Multiple Times
+
+TV, Elle Fanning, The Great
+
+Tue, 31 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/elle-fanning-the-great-hulu-comedy-series-rewatchable/
+
+Despite its 3-season run, this Hulu hit remains a hidden gem in Elle Fanning's filmography that offers a darkly comedic take on one historical figure.
+---------
+
+# One Piece's Creator Is Making One Big Mistake With The Ending, and Elbaph Is Proof
+
+Anime, One Piece, One Piece (1997)
+
+Tue, 31 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/one-piece-creator-oda-mistake-rushed-manga-ending-elbaph-proof/
+
+Recent arcs have included stunning One Piece revelations that fans have waited decades to see, but the manga's presentation of the story has changed.
+---------
+
+# GTA 6 Step Aside, GTA 4's Unexpected Return Has Gamers Hyped
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto 4, Grand Theft Auto
+
+Tue, 31 Mar 2026 22:00:20 GMT
+
+https://screenrant.com/gta-4-march-2026-return-beta/
+
+While anxiously awaiting the release of GTA 6, many fans have taken the time to revisit GTA 4, and one has discovered a test build with cut content.
+---------
+
+# New Images Released For Quentin Tarantino's Upcoming Film The Adventures of Cliff Booth
+
+Movies, Quentin Tarantino, Dupes
+
+Tue, 31 Mar 2026 21:37:30 GMT
+
+https://screenrant.com/quentin-tarantino-the-adventures-of-cliff-booth-images-netflix/
+
+The Adventures of Cliff Booth, the upcoming sequel to Once Upon a Time in Hollywood, gets newly released images, following months of no updates.
+---------
+
+# Best New Character Designs of JJK Season 3 Part 1
+
+Anime, Jujutsu Kaisen
+
+Tue, 31 Mar 2026 22:15:12 GMT
+
+https://www.cbr.com/best-character-designs-jjk-anime-season-3/
+
+Jujutsu Kaisen Season 3 introduced a plethora of colorful characters, each with a more creative design than the last.
+---------
+
+# Charlie Cox, Jon Bernthal And Frank Miller Partner For Marvel's Next Daredevil Story
+
+Comics, Daredevil
+
+Tue, 31 Mar 2026 22:07:53 GMT
+
+https://www.cbr.com/daredevil-1-blind-bag-charlie-cox-jon-bernthal-release-date-confirmed/
+
+Marvel has big things planned for Daredevil's return.
+---------
+
+# Bosch: Legacy Season 4 Update Shared by Titus Welliver
+
+TV, Bosch: Legacy
+
+Tue, 31 Mar 2026 22:05:24 GMT
+
+https://www.cbr.com/bosch-legacy-season-4-update-titus-welliver/
+
+Titus Welliver comments on the return of Bosch: Legacy amid the continued fan calls for the series to come back.
+---------
+
+# Ridley Scott’s American Gangster Sets Netflix Release Date
+
+Movies, American Gangster
+
+Tue, 31 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/american-gangster-netflix-april-2026/
+
+Ridley Scott's iconic gangster movie is resurfacing on Netflix.
+---------
+
+# Smokey and the Bandit Is Heading to Netflix in April
+
+Movies, Smokey and the Bandit
+
+Tue, 31 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-smokey-and-the-bandit-april-2026/
+
+The movie that entertains Quentin Tarantino more than any other is heading to Netflix.
+---------
+
+# Ewan McGregor's The End of Oak Street Secretly Connects to Cloverfield (And We Have Proof)
+
+Movies, The End of Oak Street, Cloverfield
+
+Tue, 31 Mar 2026 22:00:12 GMT
+
+https://www.cbr.com/ewan-mcgregor-the-end-of-oak-street-cloverfield-connection/
+
+Ewan McGregor's The End of Oak Street is a mysterious sci-fi film that could finally tie into the Cloverfield franchise.
+---------
+
+# Cyberpunk 2077 VR Game Officially Coming in 2026
+
+Games, Cyberpunk 2077
+
+Tue, 31 Mar 2026 21:45:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-vr-game-officially-releasing-2026/
+
+In collaboration with Zero Latency VR, CD PROJEKT RED is about to release the first ever Cyberpunk 2077 VR game.
+---------
+
+# 6 Greatest Alfred Hitchcock Spy Movies, Ranked
+
+Movie, Alfred Hitchcock, North By Northwest, Classics, Notorious
+
+Tue, 31 Mar 2026 22:21:13 GMT
+
+https://collider.com/best-alfred-hitchcock-spy-movies-ranked/
+
+Alfred Hitchcock made some of the best spy movies of all time, including Notorious, North by Northwest, and The 39 Steps.
+---------
+
+# The Beatles 1960s Album George Harrison Called Their Greatest of All Time
+
+Music Features, The Beatles, George Harrison, Music, Rock
+
+Tue, 31 Mar 2026 22:10:11 GMT
+
+https://collider.com/the-beatles-rubber-soul-1965-george-harrison-best-album/
+
+George Harrison believed The Beatles' 1965 album, was their greatest work, showcasing their growing songwriting abilities and a shift towards a more mature, cohesive sound.
+---------
+
+# 'XO, Kitty' Season 2 Recap: What To Remember Before Netflix's Unpredictable Romance Returns
+
+TV Features, XO, Kitty, Romance, Netflix, Drama
+
+Tue, 31 Mar 2026 21:59:13 GMT
+
+https://collider.com/xo-kitty-season-2-recap-netflix/
+
+Before Kitty enters senior year at K.I.S.S. in Season 3, catch up on everything you need to know about the Netflix romance, XO, Kitty.
+---------
+
+# 'Scream 8' Is Officially Moving in the Right Direction
+
+Movie News, Scream 7, Scream, Poker Face, Horror
+
+Tue, 31 Mar 2026 21:43:30 GMT
+
+https://collider.com/scream-8-writers-lilla-nora-zuckerman-horror-sequel/
+
+Scream 8 is officially moving forward, with Poker Face's Zuckerman Sisters tapped to write the next chapter of the horror saga.
+---------
+
+# Only 3 Gangster Movies Are Better Than 'The Godfather'
+
+Movie, The Godfather, The Godfather Part II, Goodfellas, Once Upon a Time in America
+
+Tue, 31 Mar 2026 21:42:12 GMT
+
+https://collider.com/gangster-movies-better-than-the-godfather/
+
+The only gangster movies that might well be better than The Godfather are its first sequel, Once Upon a Time in America, and Goodfellas.
+---------
+
+# Martin Scorsese & Steven Spielberg's 'Cape Fear' Reboot Is Almost Here
+
+Features, Cape Fear
+
+Tue, 31 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/cape-fear-apple-tv-reboot-2026/
+
+'Cape Fear,' the Apple TV series reboot of the popular crime thriller movies, stars Javier Bardem, Amy Adams, and Patrick Wilson.
+---------
+
+# Roger Ebert Approved Sci-Fi Thriller Cult Classic 'Moon' Streaming on Hulu in April 2026
+
+Movie News, Moon, Hulu, Coming/Leaving Streaming, Sci-Fi
+
+Tue, 31 Mar 2026 22:00:18 GMT
+
+https://movieweb.com/moon-roger-ebert-sci-fi-streaming-hulu-april-2026/
+
+The hidden gem sci-fi thriller 'Moon,' which Roger Ebert loved, is streaming on Hulu in April.
+---------
+
+# Survival Thriller 'Fall 2' Gets August Release Date
+
+Movie News, Fall 2, Fall
+
+Tue, 31 Mar 2026 21:46:50 GMT
+
+https://movieweb.com/fall-2-movie-release-date/
+
+The sequel to 2022's 'Fall' is arriving this summer, and a third film is already on the way.
+---------
+
 # Guy Ritchie's 8-Part Netflix Show Is The Perfect Antidote To Super-Gritty Crime Dramas
 
 Streaming TV, The Gentlemen
