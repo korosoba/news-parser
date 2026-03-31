@@ -1,3 +1,223 @@
+# Cyberpunk 2077 Second DLC Pack Leaves Gamers Baffled
+
+Gaming, Cyberpunk 2077, Fortnite
+
+Tue, 31 Mar 2026 04:00:27 GMT
+
+https://screenrant.com/cyberpunk-2077-dlc-wave-2-fortnite/
+
+The rumored release date for the second wave of Cyberpunk 2077’s Fortnite collab has come and gone, leaving some fans wondering what happened.
+---------
+
+# 6 Years After Its Ending, Dark Fantasy Show Still Has The Most Unique Dragon Story
+
+Classic TV, Fantasy
+
+Tue, 31 Mar 2026 03:46:23 GMT
+
+https://screenrant.com/the-magicians-dragons-unique-story/
+
+Though many dragon shows exist, a dark fantasy show that ended five years ago remains unforgettable for its one-of-a-kind and wild dragon lore.
+---------
+
+# Jujutsu Kaisen: Who Lives and Who Dies After the Fight With Sukuna Explained
+
+Anime, Jujutsu Kaisen
+
+Tue, 31 Mar 2026 03:45:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-who-lives-dies-after-ending-sukuna-explained/
+
+The Shinjuku Showdown Arc is the final climactic portion of Jujutsu Kaisen, with many key casualties after the fight with Sukuna.
+---------
+
+# Thanos vs Knull? Marvel Finally Reveals The Stronger Supervillain
+
+Comics, Thanos, King in Black, Marvel
+
+Tue, 31 Mar 2026 03:37:09 GMT
+
+https://screenrant.com/thanos-vs-knull-marvel-reveals-the-stronger-supervillain/
+
+Marvel Comics has finally provided a definitive answer about which cosmic supervillain is more powerful, Thanos or Knull's King in Black.
+---------
+
+# DC's Most Iconic Hero Romance Is Officially Over. The Essential Details Explained
+
+Comics, DC Comics, Poison Ivy
+
+Tue, 31 Mar 2026 03:30:19 GMT
+
+https://screenrant.com/poison-ivy-harley-quinn-break-up-romance-over/
+
+Discover the end of DC's iconic romance between Poison Ivy and Harley Quinn, as Ivy's new role and priorities lead to a breakup.
+---------
+
+# Stunning Mod Makes Dark Souls 2 Look Remastered
+
+Gaming, Dark Souls, PC, Triple-A Games
+
+Tue, 31 Mar 2026 03:00:20 GMT
+
+https://screenrant.com/dark-souls-2-rtx-remaster/
+
+Fans are rediscovering the beloved RPG thanks to a stunning lighting mod that makes the decade-old game look like a modern remaster.
+---------
+
+# Nintendo Reveals Avatar: The Last Airbender Fighting Game Release Date on Switch 1 & 2
+
+Anime, Avatar: The Last Airbender, Nintendo, Nintendo Switch
+
+Tue, 31 Mar 2026 03:59:12 GMT
+
+https://www.cbr.com/avatar-legends-the-fighting-game-new-trailer-release-date/
+
+Avatar: The Last Airbender fans have just 3 months left to wait before one of the most highly anticipated titles of the year arrives on the Switch.
+---------
+
+# The Best Winter 2026 Anime Say That Witch Hat Atelier Needs Only 13 Episodes
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End, Jujutsu Kaisen, Sentenced to Be a Hero, Crunchyroll
+
+Tue, 31 Mar 2026 03:46:12 GMT
+
+https://www.cbr.com/best-winter-2026-anime-proves-13-episode-witch-hat-atelier-is-great/
+
+The best series of Winter 2026 have proven that anime could use shorter seasons, especially Kamome Shirahama's Witch Hat Atelier.
+---------
+
+# The Best Portrayal of Gangster Al Capone Came in Boardwalk Empire
+
+TV, Boardwalk Empire, HBO Max, Crime
+
+Tue, 31 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/hbo-boardwalk-empire-best-portrayal-al-capone/
+
+Al Capone's portrayal in this critically acclaimed HBO crime drama is indeed the best version of the gangster ever to appear on-screen.
+---------
+
+# Zack Snyder’s Batman v Superman Proves Why James Gunn Is Right to Delay the DCU Batman
+
+Movies, Batman v Superman: Dawn of Justice, DCU, DC Extended Universe
+
+Tue, 31 Mar 2026 03:45:12 GMT
+
+https://www.cbr.com/zack-snyder-batman-v-superman-james-gunn-right-to-delay-dcu-batman/
+
+Batman v Superman was meant to usher in the larger DCEU, but its struggles show why James Gunn is right to delay DCU's Batman.
+---------
+
+# Amanda Seyfried The Testament of Ann Lee is Streaming On Hulu March 31
+
+Movies, The Housemaid, The Testament of Ann Lee, Hulu
+
+Tue, 31 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/amanda-seyfried-the-housemaid-testament-of-ann-lee/
+
+The Housemaid's Amanda Seyfried also appeared in a period film called The Testament of Ann Lee that deserves even more attention on Hulu.
+---------
+
+# This Beloved Nintendo Franchise Is Making a Comeback After 12 Years
+
+Games, Nintendo, Nintendo Switch, Tomodachi Life
+
+Tue, 31 Mar 2026 03:15:12 GMT
+
+https://www.cbr.com/beloved-nintendo-franchise-comeback-tomodachi-life-living-the-dream-switch/
+
+One of Nintendo's most cherished video game franchises is set to recieve a new installment on April 16.
+---------
+
+# Gundam: Iron-Blooded Oprhans Gets Major Mecha Revival With Barbatos Design Update
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Iron Blooded Orphans, merchandise, toys, bandai
+
+Tue, 31 Mar 2026 03:01:12 GMT
+
+https://www.cbr.com/gundam-iron-blooded-orphans-barbatos-metal-build-option-set/
+
+The Barbatos Gundam is set to look more impressive than ever thanks to an upcoming METAL BUILD expansion that gives it some major firepower.
+---------
+
+# 10 Anime Series So Good, You'd Be a Fool to Skip Even 1 Episode
+
+Anime, Mob Psycho 100, Spy X Family
+
+Tue, 31 Mar 2026 03:00:12 GMT
+
+https://www.cbr.com/best-anime-series-so-good-cant-skip-any-episodes-list/
+
+Anime like Mob Psycho 100 are so good that every episode is a must-watch.
+---------
+
+# Sharon Carter's Tragic Turn in The Falcon and the Winter Soldier
+
+TV, The Falcon and the Winter Soldier, Marvel, superheroes
+
+Tue, 31 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/the-falcon-and-the-winter-soldier-sharon-carter-villain-change/
+
+I love The Falcon and the Winter Soldier, but one of its biggest character shifts remains one of the strangest and poorest choices in the MCU.
+---------
+
+# 29 Years Later, Pokémon's Banned Electric Soldier Porygon Episode Is Still the Franchise’s Biggest Controversy
+
+Anime, Pokemon, Pokémon
+
+Tue, 31 Mar 2026 02:45:12 GMT
+
+https://www.cbr.com/pokemon-banned-episode-electric-soldier-porygon/
+
+Almost 3 decades later, this episode of the Pokémon anime series remains banned and is the show's biggest controversy during its iconic 29-year run.
+---------
+
+# 10 Scariest Zombie Movies Since '28 Days Later'
+
+Movie, 28 Days Later, [REC], Train to Busan, Dawn of the Dead
+
+Tue, 31 Mar 2026 04:05:12 GMT
+
+https://collider.com/scariest-zombie-movies-since-28-days-later/
+
+REC, Train to Busan, and Zack Snyder's Dawn of the Dead are all among the scariest zombie movies released since Danny Boyle's 28 Days Later.
+---------
+
+# Netflix’s Brilliant 10-Part Sleeper Hit Is a Perfect Rewatch Before the Series Returns Next Month
+
+TV Features, Beef, Ali Wong, Steven Yeun, Netflix
+
+Tue, 31 Mar 2026 03:16:12 GMT
+
+https://collider.com/netflix-beef-rewatch-before-season-2/
+
+Netflix's Beef sees Ali Wong and Steven Yeun face off in a high-stress drama that explores mental health and everyday life.
+---------
+
+# 10 Zombie Movies That Are Better Than '28 Years Later: The Bone Temple'
+
+Movie, Dawn of the Dead, Night of the Living Dead, 28 Years Later: The Bone Temple, Nia DaCosta
+
+Tue, 31 Mar 2026 03:11:13 GMT
+
+https://collider.com/zombie-movies-better-than-28-years-later-the-bone-temple/
+
+Not many zombie films can say that they're better than what Nia DaCosta created with 28 Years Later: The Bone Temple, but these movies exceed it.
+---------
+
+# 'The Rookie' Is Getting Stale as the Procedural Abandons Its Most Interesting Stories | Review
+
+TV Reviews, The Rookie, ABC, Nathan Fillion, Jenna Dewan
+
+Tue, 31 Mar 2026 03:00:13 GMT
+
+https://collider.com/the-rookie-season-8-episode-13-wesley-da-race-bailey-return/
+
+The Rookie's latest episode disappoints fans with its reliance on stale storylines and unfulfilling character developments.
+---------
+
 # Paradise Writer Teases Potential Spinoffs After Season 3 Ending
 
 TV, Paradise, Paradise - Season 2
