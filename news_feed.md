@@ -1,3 +1,278 @@
+# Guy Ritchie's 8-Part Netflix Show Is The Perfect Antidote To Super-Gritty Crime Dramas
+
+Streaming TV, The Gentlemen
+
+Tue, 31 Mar 2026 21:30:20 GMT
+
+https://screenrant.com/guy-ritchie-the-gentleman-netflix-antidote-gritty-crime-shows/
+
+Guy Ritchie's The Gentlemen is a spin-off based on the film of the same name, and while the two stories are unrelated, the show has Ritchie's humor.
+---------
+
+# GTA 6 Fans Hyped After New Details Show How Massive It Really Is
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games
+
+Tue, 31 Mar 2026 21:30:10 GMT
+
+https://screenrant.com/gta-6-dialogue-large-scope-details/
+
+Grand Theft Auto 6 has big shoes to fill if it'll turn out to be as massive as Red Dead Redemption 2, but one leak suggests it will achieve that.
+---------
+
+# Sons of Anarchy Prequel: Creator Kurt Sutter Hints At Possible Return
+
+TV, Sons of Anarchy, Sons Of Anarchy, Kurt Sutter
+
+Tue, 31 Mar 2026 21:24:58 GMT
+
+https://screenrant.com/sons-of-anarchy-prequel-series-update-kurt-sutter/
+
+Kurt Sutter, creator of Sons of Anarchy, reveals the scrapped prequel series is not completely off the table, as he rebuilds his relationship with FX Networks chairman John Landgraf.
+---------
+
+# Jon Hamm’s 9-Part Crime Series Is Worth An Easy Mid-Week Binge Before Season 2 Premieres
+
+Streaming TV, Apple TV, Jon Hamm, Your Friends and Neighbors
+
+Tue, 31 Mar 2026 21:24:19 GMT
+
+https://screenrant.com/jon-hamm-series-your-friends-and-neighbors-season-2-watch/
+
+Discover Jon Hamm's critically acclaimed 9-part crime series on Apple TV, now a must-watch mid-week binge before its season 2 premiere this week.
+---------
+
+# Brandon Sanderson’s New Mistborn Movie Hits Major New Milestone As Apple TV’s Fantasy Gets Exciting Update
+
+Movies, Mistborn, Brandon Sanderson
+
+Tue, 31 Mar 2026 21:10:44 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-script-halfway-done-apple-tv-movie/
+
+After partnering with Apple TV to turn Mistborn into a movie, author Brandon Sanderson reveals a huge new update about the development process.
+---------
+
+# Game Of Thrones Star's New Sci-Fi Movie Changes The Rules Of A Popular Genre
+
+Superheroes, Supergirl, DC Universe
+
+Tue, 31 Mar 2026 21:09:32 GMT
+
+https://screenrant.com/milly-alcock-supergirl-movie-dc-sci-fi-rules-change/
+
+This fan-favorite Game of Thrones star leads an exciting Sci-Fi movie that traverses multiple worlds with gorgeous visuals and changes genre rules.
+---------
+
+# Arrested Development's Pilot Episode: A Masterclass in Sitcom Writing
+
+Classic TV, Arrested Development
+
+Tue, 31 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/arrested-development-best-comedy-pilot-episode/
+
+Two decades later, the pilot episode of Arrested Development is still one of the finest, funniest half-hours of TV comedy ever produced.
+---------
+
+# Xbox Game Pass Unleashes 200-Hour Monster Of A Free Game
+
+Gaming, Xbox Game Pass, the long dark, PC, Indie
+
+Tue, 31 Mar 2026 21:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-200-hour-free-game-march-2026/
+
+A 200-hour monster of a free game has just been added to the Xbox Game Pass catalog, and fans of survival games won’t want to miss out on it.
+---------
+
+# The Dark Knight Writer's 2-Part Sci-Fi Comic Book Series Keeps Getting Better
+
+Classic TV, Krypton, DC
+
+Tue, 31 Mar 2026 20:45:19 GMT
+
+https://screenrant.com/david-goyer-krypton-syfy-show-aged-well/
+
+Krypton, a sci-fi series written by David S. Goyer, has aged surprisingly well since its 2018 premiere. With impressive visuals, a blend of cyberpunk and space opera genres, and connections to classic DC Comics characters, Krypton deserves more recognition than it received during its run.
+---------
+
+# The Elder Scrolls 6 Fans Losing Their Minds Over Official Xbox Announcement
+
+Gaming, The Elder Scrolls 6, Bethesda, Triple-A Games
+
+Tue, 31 Mar 2026 20:43:09 GMT
+
+https://screenrant.com/elder-scrolls-6-official-xbox-announcement-gamers-react-tes6/
+
+Thanks to the latest Xbox announcement, fans have a renewed hope of actually seeing more from The Elder Scrolls 6 as soon as this summer.
+---------
+
+# Disney Ends 1 of Its Longest-Running TV Eras in Studio History
+
+TV, Disney
+
+Tue, 31 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/disney-television-animation-voice-talent/
+
+It's the end of an era for Disney, but many may see this as good news.
+---------
+
+# Kingdom of Earth's Non-Binary Character Frankie, Explained
+
+CBR Exclusives, Dark Horse Comics
+
+Tue, 31 Mar 2026 21:30:12 GMT
+
+https://www.cbr.com/kingdom-of-earth-david-dastmalchian-leah-kilpatrick-nonbinary-protagonist/
+
+Kingdom of Earth's non-binary character is more than exciting for comic books: they're a necessary creative decision.
+---------
+
+# Snowball Earth Is the Perfect Kaiju No. 8 Replacement Anime
+
+Anime, kaiju, Kaiju No. 8, mecha, Sci-Fi
+
+Tue, 31 Mar 2026 21:15:13 GMT
+
+https://www.cbr.com/kaiju-no-8-replacement-anime-snowball-earth/
+
+Mecha meet Kaiju in the Spring 2026 Anime Season's Snowball Earth, streaming on Crunchyroll April 3, 2026.
+---------
+
+# The Godfather’s Most Misquoted Line Completely Changes Its Meaning
+
+Movies, The Godfather, Crime
+
+Tue, 31 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/the-godfathers-misquoted-changes-meaning/
+
+The Godfather has many amazing quotes, but Vito Corleone's most important one also has a different meaning for modern viewers.
+---------
+
+# Netflix Officially Fixes Its Biggest Mission: Impossible Problem This Week
+
+Movies, Mission: Impossible, Netflix, Thriller
+
+Tue, 31 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/netflix-getting-mission-impossible-movies-april-2026-spy-thriller/
+
+Netflix is finally capitalizing on Mission: Impossible's massive success this week.
+---------
+
+# Charlie Hunnam Starred in This Forgotten Comedy Series Before Sons of Anarchy
+
+TV, Sons of Anarchy, charlie hunnam, Undeclared, Comedy
+
+Tue, 31 Mar 2026 21:00:12 GMT
+
+https://www.cbr.com/charlie-hunnam-undeclared-forgotten-comedy-series/
+
+24 years ago, Charlie Hunnam starred in Judd Apatow's coming-of-age, cringe-inducing comedy series alongside Seth Rogen, Jay Baruchel and Jason Segel.
+---------
+
+# Paramount's $1.1B Slasher Franchise Scream Officially Confirms New Sequel
+
+Movies, Scream, Scream 7
+
+Tue, 31 Mar 2026 20:56:24 GMT
+
+https://www.cbr.com/paramount-scream-8-confirmed/
+
+The seventh entry broke records, so a new sequel is in the works.
+---------
+
+# Jack Quaid Names The Most Unbelievable Scene In The Boys
+
+Superheroes, The Boys
+
+Tue, 31 Mar 2026 20:45:51 GMT
+
+https://www.cbr.com/jack-quaid-picks-important-the-boys-scene/
+
+This scene from The Boys lives rent-free in Jack Quaid's head.
+---------
+
+# The Super Mario Galaxy Movie Post-Credit Scenes Officially Set Up New Spinoff
+
+Movies, The Super Mario Galaxy Movie, Nintendo
+
+Tue, 31 Mar 2026 20:41:08 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-post-credit-scenes/
+
+Don't rush out of the theater when watching the new Super Mario movie, as it holds several surprises.
+---------
+
+# 10 Best Sci-Fi Thrillers of the Last 10 Years, Ranked
+
+Movie, Science Fiction, Arrival, Prey, Tenet
+
+Tue, 31 Mar 2026 21:23:13 GMT
+
+https://collider.com/best-sci-fi-thrillers-last-10-years-ranked/
+
+From Alien Romulus' visceral horror to Arrival's philosophical approach, these sci-fi thrillers are among the best of the last 10 years.
+---------
+
+# Prime Video’s #1 Dad Show Is Facing Real Competition From This Surging Netflix Thriller
+
+TV Features, Prime Video, Reacher, Netflix, The Night Agent
+
+Tue, 31 Mar 2026 21:18:12 GMT
+
+https://collider.com/prime-video-reacher-competition-the-night-agent-netflix/
+
+Prime Video’s hit action series Reacher has some tough competition on Netflix with The Night Agent.
+---------
+
+# George Harrison's 10 Greatest Songs After The Beatles
+
+Music Features, George Harrison, Rock, The Beatles, Ringo Starr
+
+Tue, 31 Mar 2026 20:56:12 GMT
+
+https://collider.com/george-harrison-best-songs-after-the-beatles/
+
+George Harrison is best known for his work with The Beatles, but later songs like "Wah-Wah" and "Out of the Blue" are also truly great.
+---------
+
+# 'The Pitt' Season 2 Finale Sets Theatrical Release
+
+TV News, The Pitt, HBO Max, Movie Theaters
+
+Tue, 31 Mar 2026 21:17:18 GMT
+
+https://movieweb.com/the-pitt-season-2-theatrical-release/
+
+The screenings are "free."
+---------
+
+# 'Scream 8' Being Written by 'Poker Face' Showrunners
+
+Movie News, Scream
+
+Tue, 31 Mar 2026 21:16:59 GMT
+
+https://movieweb.com/poker-face-showrunners-hired-to-write-scream-8/
+
+'Poker Face' showrunners Lilla and Nora Zuckerman have been brought on to write 'Scream 8.'
+---------
+
+# Carl Is Deceptively Important in the 'Project Hail Mary' Movie
+
+Features, Project Hail Mary
+
+Tue, 31 Mar 2026 21:00:18 GMT
+
+https://movieweb.com/project-hail-mary-most-important-character/
+
+The live-action adaptation of Andy Weir's sci-fi novel features a character who doesn't get nearly enough praise. Read on for more.
+---------
+
 # Scream 8 Officially Moving Forward With Buffy The Vampire Slayer Revival Writers
 
 Movies, Scream
