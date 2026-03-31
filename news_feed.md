@@ -1,3 +1,80 @@
+# Taika Waititi Wants To Develop Adaptation Of Major Game Studio's Library
+
+Movies, Taika Waititi
+
+Tue, 31 Mar 2026 22:57:13 GMT
+
+https://screenrant.com/taika-waititi-supercell-game-library-adaptation-hopes/
+
+Exclusive: Taika Waititi wants to develop an adaptation of a major game studio's library after writing the story for an introduction short.
+---------
+
+# Netflix’s 4-Part Thriller Is So Wild, It’s Worth An Easy One-Night Binge
+
+Streaming TV, Netflix, Obsession
+
+Tue, 31 Mar 2026 22:48:19 GMT
+
+https://screenrant.com/netflix-obsession-series-thriller-easy-binge-watch/
+
+Netflix's 4-part thriller Obsession, despite critical disapproval and 25% Rotten Tomatoes score, offers an unexpectedly entertaining one-night binge.
+---------
+
+# Dylan's Parentage Gets Definitive Paradise Season 3 Answer From Star Thomas Doherty
+
+TV, Paradise, Paradise - Season 2
+
+Tue, 31 Mar 2026 22:42:50 GMT
+
+https://screenrant.com/paradise-season-2-finale-link-dylan-mother-sinatra-thomas-doherty/
+
+Whether Dylan is actually the son of Samantha "Sinatra" Redmond in Hulu's Paradise gets a definitive answer from actor Thomas Doherty.
+---------
+
+# What Song Is In The New Supergirl Trailer (& What It Means For The DC Movie)
+
+Movies, Supergirl, Explainer
+
+Tue, 31 Mar 2026 22:30:21 GMT
+
+https://screenrant.com/supergirl-movie-official-trailer-song-meaning/
+
+The new Supergirl trailer has the perfect song playing over the  soundtrack, and here is what it means for the upcoming DCU movie's story.
+---------
+
+# 11 TV Shows People Always Misunderstand
+
+Classic TV
+
+Tue, 31 Mar 2026 22:30:21 GMT
+
+https://screenrant.com/tv-shows-people-misunderstand/
+
+From Lost to The Boys, some of TV's biggest hits are still widely misunderstood, with some viewers confusing aspects of various series.
+---------
+
+# Netflix's Crime Thriller With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, Netflix, The Irishman
+
+Tue, 31 Mar 2026 22:27:29 GMT
+
+https://screenrant.com/netflix-the-irishman-crime-thriller-movie-best/
+
+Netflix has some of the best crime thrillers in the streaming business, and this masterpiece continues to be one of the most impactful years later.
+---------
+
+# Absolute Batman Game Officially Coming Soon
+
+Games, Batman, DC Comics, Absolute Batman
+
+Tue, 31 Mar 2026 22:30:13 GMT
+
+https://www.cbr.com/absolute-batman-game-officially-releasing-2026/
+
+Gamers and DC Comics fans will soon have the opportunity to experience Absolute Batman like never before.
+---------
+
 # Paradise Season 3 Explained: Confirmation, Story & Everything We Know
 
 Streaming TV, Paradise
