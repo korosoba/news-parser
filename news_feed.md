@@ -1,3 +1,245 @@
+# New Heated Rivalry Adaptation Officially Premiering This Spring
+
+TV, Heated Rivalry
+
+Tue, 31 Mar 2026 18:08:06 GMT
+
+https://screenrant.com/heated-rivalry-musical-parody-off-broadway-spring-2026/
+
+Heated Rivalry has become a pop culture phenomenon after debuting back in December, and now a new adaptation is about to premiere this year.
+---------
+
+# Disney's $2.8 Billion Franchise Begging For A Sequel Is Lighting Up Streaming Charts
+
+Movies, Zootopia, Zootopia 2, Disney+
+
+Tue, 31 Mar 2026 18:06:56 GMT
+
+https://screenrant.com/zootopia-movies-streaming-success-sequel-franchise-future/
+
+Disney's new movie is lighting up the streaming charts as its $2.8 billion franchise has yet to declare any updates on a potential sequel.
+---------
+
+# Apple TV's Upcoming Sci-Fi Series Based On A Seminal Cyberpunk Novel Will Prove That No Book Is Unadaptable
+
+Streaming TV, Neuromancer, Apple TV, Sci-Fi
+
+Tue, 31 Mar 2026 18:03:09 GMT
+
+https://screenrant.com/apple-tv-neuromancer-book-unadaptable-sci-fi-show/
+
+Apple TV+ has quietly become a powerhouse for ambitious sci-fi storytelling, but one upcoming adaptation will be its most daring challenge yet.
+---------
+
+# Hogwarts Legacy Free DLC Quest Praised By Gamers
+
+Gaming, Hogwarts Legacy, PC
+
+Tue, 31 Mar 2026 18:00:18 GMT
+
+https://screenrant.com/hogwarts-legacy-free-dlc-quest-haunted-gamer-reaction/
+
+Fans of Hogwarts Legacy are losing it over a free DLC quest that many argue is one of the best in the game, even if it is also "cursed" to the core.
+---------
+
+# Controversial Horror Director Officially Returning With New Movie This Summer
+
+Movies, Eli Roth, Horror
+
+Tue, 31 Mar 2026 17:58:11 GMT
+
+https://screenrant.com/eli-roth-ice-cream-man-movie-release-date-summer-2026/
+
+A horror director with multiple controversial titles to his name is officially returning this summer with a new movie that's sure to provoke debate.
+---------
+
+# Ryan Gosling's Space Odyssey: First Man Prequel To Project Hail Mary
+
+Movies, Project Hail Mary
+
+Tue, 31 Mar 2026 17:46:20 GMT
+
+https://screenrant.com/project-hail-mary-first-man-ryan-gosling-movie/
+
+First Man is one of Gosling's most underrated films.
+---------
+
+# The Madison's Strangest Casting Was Its Secret Weapon All Along
+
+Streaming TV, The Madison
+
+Tue, 31 Mar 2026 17:30:18 GMT
+
+https://screenrant.com/the-madison-will-arnett-casting-secret-weapon/
+
+The Madison introduced a new character in season 1's penultimate episode, a casting choice that brought the show even closer to its emotional core.
+---------
+
+# Boy Meets World Cast Pays Tribute to William Daniels on His 99th Birthday
+
+TV, Boy Meets World
+
+Tue, 31 Mar 2026 18:08:53 GMT
+
+https://www.cbr.com/boy-meets-world-william-daniels-99-birthday/
+
+Television legend William Daniels gets honored by his Boy Meets World co-stars for his special day.
+---------
+
+# Marvel Confirms Which X-Men Hero Will Become The Sorcerer Supreme
+
+Comics, X-Men, Marvel Comics
+
+Tue, 31 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/uncanny-x-men-marvel-what-if-rogue-sorcerer-supreme/
+
+Marvel Comics is about to pass the mantle of Sorcerer Supreme to another fan-favorite hero, and this time it's a character who no one saw coming
+---------
+
+# Saving Private Ryan Is About to Stream for Free on Tubi
+
+Movies, Saving Private Ryan, Tubi
+
+Tue, 31 Mar 2026 18:00:12 GMT
+
+https://www.cbr.com/wwii-saving-private-ryan-tubi-streaming-april-2026/
+
+One of the most critically acclaimed World War II movies is now available for free streaming on a platform.
+---------
+
+# Magic: The Gathering's New Set Is Ideal For People Done With Harry Potter
+
+Games, Magic: The Gathering, Harry Potter
+
+Tue, 31 Mar 2026 17:45:13 GMT
+
+https://www.cbr.com/magic-the-gathering-strixhaven-set-like-harry-potter/
+
+A lot of former Harry Potter fans are looking for a franchise to fill the hole, and Strixhaven school from Magic: The Gathering could be it.
+---------
+
+# What's Coming to Tubi in April 2026? Full List
+
+TV, Tubi, Tubi TV
+
+Tue, 31 Mar 2026 17:33:09 GMT
+
+https://www.cbr.com/whats-coming-to-tubi-in-april-2026-full-list/
+
+The streaming platform will include many exciting licensed films, but also a few originals.
+---------
+
+# Steven Spielberg's Catch Me if You Can Is Still His Most Underrated Masterpiece
+
+Movies, steven spielberg, Catch Me If You Can, Leonardo DiCaprio
+
+Tue, 31 Mar 2026 17:30:12 GMT
+
+https://www.cbr.com/steven-spielberg-catch-me-if-you-can-most-underrated-masterpiece/
+
+Steven Spielberg's Catch Me if You Can is an unforgettable thriller that more people should check out on Paramount+ soon.
+---------
+
+# This Fan-Favorite Sci-Fi Hit Is Still One of the Best Time Travel Shows 33 Years Later
+
+TV Features, Quantum Leap, Sci-Fi, Scott Bakula, Adventure
+
+Tue, 31 Mar 2026 18:06:13 GMT
+
+https://collider.com/quantum-leap-sci-fi-time-travel-shows-still-best/
+
+Scott Bakula's time-travel series Quantum Leap remains one of the greatest sci-fi shows decades after it ended.
+---------
+
+# New Sci-Fi Masterpiece Has Already Beat 'The Super Mario Galaxy Movie' in a Major Way
+
+Movie News, The Super Mario Galaxy Movie, Project Hail Mary, IMAX, Ryan Gosling
+
+Tue, 31 Mar 2026 18:00:12 GMT
+
+https://collider.com/project-hail-mary-imax-return-expected-the-super-mario-galaxy-movie-competition/
+
+Project Hail Mary's massive global success has IMAX already planning an extended run despite competition from The Super Mario Galaxy movie.
+---------
+
+# 10 Must-See Hidden Gems of French Cinema
+
+Movie, Foreign Films, La Belle Noiseuse, Jean-Luc Godard, Jacquot
+
+Tue, 31 Mar 2026 17:53:13 GMT
+
+https://collider.com/hidden-gem-movies-french-cinema/
+
+From overlooked coming-of-ages like Peppermind Soda to unique biopics such as Jacqot de Nantes, these hidden gem French movies deserve your attention.
+---------
+
+# Prime Video’s Biggest Sci-fi Hit Gets a Rare Physical Release Ahead of Season 3
+
+TV News, Fallout, Prime Video, Blu-ray, Amazon
+
+Tue, 31 Mar 2026 17:37:25 GMT
+
+https://collider.com/fallout-prime-video-sci-fi-hit-season-2-4k-blu-ray-release/
+
+Amazon and Prime Video have announced an early 4K Blu-ray release for Season 2 of its smash-hit sci-fi series, Fallout.
+---------
+
+# 'Paradise' Season 3: Confirmation, Cast, Plot & Everything We Know
+
+Features, Paradise
+
+Tue, 31 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/paradise-season-3-everything-we-know/
+
+'Paradise' Season 2 just ended on Hulu, and fans want to know if the post-apocalyptic thriller series starring Sterling K. Brown is coming back.
+---------
+
+# Creature Feature Cult Classic 'Tremors' Slithers To Streaming Success
+
+Movie News, Tremors, Hot on Streaming
+
+Tue, 31 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/tremors-streaming-success-amc-plus-march-2026/
+
+Starring Kevin Bacon, 'Tremors' is back in the streaming charts on AMC+.
+---------
+
+# Andrew Garfield's 'Spider-Verse' Movie Idea Would Be a Perfect Spin-Off
+
+Features, Spider-Man
+
+Tue, 31 Mar 2026 18:00:17 GMT
+
+https://movieweb.com/andrew-garfield-spider-verse-spin-off-movie-idea/
+
+Instead of giving Spidey’s villains their own films, Sony might find more success in live-action 'Spider-Verse' spin-offs.
+---------
+
+# James Marsden Shares Excitement to Reunite with OG X-Men Cast in 'Avengers: Doomsday' [Exclusive]
+
+Exclusives, James Marsden, Avengers: Doomsday
+
+Tue, 31 Mar 2026 17:46:40 GMT
+
+https://movieweb.com/james-marsden-x-men-return-avengers-doomsday/
+
+Of all the heroes showing up in 'Avengers: Doomsday,' star James Marsden is most excited to reunite with his original X-Men movie costars.
+---------
+
+# Trey Parker & Matt Stone’s Could Use AI To 'Make South Park' After New Deepfake Project
+
+TV News, South Park, Matt Stone, Trey Parker
+
+Tue, 31 Mar 2026 17:39:55 GMT
+
+https://movieweb.com/trey-parker-matt-stone-ai-south-park/
+
+Trey Parker and Matt Stone’s new AI project could affect their long-running comedy series 'South Park.'
+---------
+
 # The Pitt Season 2 Finale Officially Releasing Two Days Early (With A Catch)
 
 TV, The Pitt
