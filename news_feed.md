@@ -1,3 +1,344 @@
+# Paradise Writer Teases Potential Spinoffs After Season 3 Ending
+
+TV, Paradise, Paradise - Season 2
+
+Tue, 31 Mar 2026 02:20:40 GMT
+
+https://screenrant.com/paradise-spinoffs-after-season-3-john-hoberg-response/
+
+Even though Paradise has a three-season plan, writer and executive producer John Hoberg thinks there is potential to expand the story with spinoffs.
+---------
+
+# Move Over Frieren, Anime's Greatest Fantasy Is Dropping On April 6th
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End
+
+Tue, 31 Mar 2026 02:00:30 GMT
+
+https://screenrant.com/witch-hat-atelier-greatest-fantasy-anime-not-frieren/
+
+After the success of Frieren, fans eagerly await the premiere of Witch Hat Atelier, a captivating dark fantasy anime set to debut on April 6.
+---------
+
+# Newly Finished Anime Will Leave You Sobbing
+
+Anime
+
+Tue, 31 Mar 2026 02:00:08 GMT
+
+https://screenrant.com/journal-with-witch-emotional-best-anime-2026/
+
+Crunchyroll's newly finished slice-of-life anime has captured the hearts of viewers, offering a series filled with tears, laughter, and realness.
+---------
+
+# 10 TV Shows We Thought Would Be The Next Stranger Things
+
+Classic TV, Stranger Things
+
+Tue, 31 Mar 2026 01:45:19 GMT
+
+https://screenrant.com/tv-shows-thought-would-be-next-stranger-things/
+
+Stranger Things rewrote the rules of sci-fi horror, but the cultural impact of the 2016 Netflix original hit spans far wider than its five seasons.
+---------
+
+# Avengers: Doomsday Opens With A Whole Team’s Death According To Harrowing MCU Movie Theory
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 31 Mar 2026 01:01:20 GMT
+
+https://screenrant.com/avengers-doomsday-thunderbolts-group-death-fan-theory/
+
+Fans are eager to learn what Avengers: Doomsday has in store, and a brand-new fan theory has suggested that it could be the mass-death of one team.
+---------
+
+# Doctor Who Star's 7-Part Sci-Fi Series Is One Of The Best Space Operas Of The Century
+
+Classic TV, Legends of Tomorrow
+
+Tue, 31 Mar 2026 01:01:20 GMT
+
+https://screenrant.com/arthur-darvill-legends-of-tomorrow-sci-fi-series-best-space-opera-century/
+
+Doctor Who isn’t the only modern TV space opera that a specific actor has starred in, with another becoming one of the best in the genre.
+---------
+
+# 44 Years Later, A Classic Magical Girl Series Finally Gets A New Anime
+
+Anime, Magical Princess Minky Momo
+
+Tue, 31 Mar 2026 00:46:45 GMT
+
+https://screenrant.com/minky-momo-new-anime-magical-girl/
+
+Magical girl anime are huge, and one of the genre's foundational series is poised to make a huge comeback.
+---------
+
+# Toy Story 5's Ernie Hudson Didn't Know He Was Replacing Carl Weathers
+
+Movies, Toy Story 5, Toy Story, Ernie Hudson, Carl Weathers
+
+Tue, 31 Mar 2026 00:43:10 GMT
+
+https://screenrant.com/toy-story-5-ernie-hudson-carl-weathers-replace-not-know/
+
+EXCLUSIVE: Combat Carl was recast with Ernie Hudson for Toy Story 5, but he didn't know that the role originally belonged to the late Carl Weathers.
+---------
+
+# Robinson’s Paradise Season 3 Story Will Be Her Trickiest Yet After Harrowing Season 2 Ending, Says Hulu Star
+
+TV, Krys Marshall, Paradise
+
+Tue, 31 Mar 2026 00:30:19 GMT
+
+https://screenrant.com/paradise-season-3-robinson-story-tease-krys-marshall/
+
+Krys Marshall discusses Agent Robinson's next steps, how she is changing, and how difficult the road ahead will be in Paradise season 3.
+---------
+
+# Robert Picardo Reveals Pitch For Star Trek: Voyager EMH Sequel In Canceled Star Trek: Starfleet Academy
+
+TV, Star Trek, Star Trek: Voyager, Star Trek: Starfleet Academy
+
+Tue, 31 Mar 2026 00:20:59 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-unmade-voyager-doctor-sequel-pitch/
+
+Robert Picardo reveals his unmade pitch for a Star Trek: Voyager sequel episode that could have been in Star Trek: Starfleet Academy season 3.
+---------
+
+# 10 Illumination Films That Defined the Studio Before Super Mario Galaxy
+
+Movies
+
+Tue, 31 Mar 2026 02:00:23 GMT
+
+https://www.cbr.com/illumination-films-defined-the-studio-before-super-mario-galaxy-list/
+
+The Super Mario Galaxy Movie is coming and further sets up just how Illumination's films set them on a path to such an epic sequel.
+---------
+
+# Star Trek: Discovery's Legacy & the Future of Roddenberry's Universe
+
+TV, Star Trek: Discovery, Star Trek
+
+Tue, 31 Mar 2026 02:00:23 GMT
+
+https://www.cbr.com/star-trek-discovery-anthony-rapp-paul-stamets-future/
+
+Anthony Rapp's biggest regret about the end of Star Trek: Discovery ties into a trend Gene Roddenberry started six decades ago and continues today.
+---------
+
+# 10 Dragon Ball Characters With the Best Original Transformations
+
+Anime, Dragon Ball, Akira Toriyama
+
+Tue, 31 Mar 2026 01:30:32 GMT
+
+https://www.cbr.com/best-original-dragon-ball-transformations/
+
+Dragon Ball is perhaps best known for its totemic transformations, but some characters feature uniquely original forms that aren't the norm.
+---------
+
+# Return to Silent Hill Ending Explained: SH2 James Theory Is Confirmed
+
+Movies, Return to Silent Hill, Silent Hill 2
+
+Tue, 31 Mar 2026 01:00:13 GMT
+
+https://www.cbr.com/return-to-silent-hill-ending-explained/
+
+Return to Silent Hill has hit theaters, and it finally confirms one of the biggest theories from Silent Hill 2.
+---------
+
+# Game of Thrones' 10 Most Hated Characters, Ranked
+
+TV, Game Of Thrones
+
+Tue, 31 Mar 2026 01:00:13 GMT
+
+https://www.cbr.com/hated-game-of-thrones-characters/
+
+The world of Game of Thrones is cruel and has produced some truly despicable characters, including the likes of Cersei Lannister.
+---------
+
+# Fallout's Most Underrated Entry Remains an Untouchable Open-World Gem
+
+Games, Fallout, Fallout New Vegas, Bethesda Softworks
+
+Tue, 31 Mar 2026 00:45:12 GMT
+
+https://www.cbr.com/best-fallout-game-most-underrated-open-world-new-vegas/
+
+The best game in the Fallout series is one of the greatest open-world games ever made.
+---------
+
+# Gachiakuta Season 2 Expands on Crunchyroll's Newest Post-Apocalyptic Action Hit With Near-Perfect Ratings
+
+Anime, Gachiakuta, Crunchyroll
+
+Tue, 31 Mar 2026 00:42:22 GMT
+
+https://www.cbr.com/crunchyroll-best-post-apocalyptic-anime-gachiakuta-season-2/
+
+Gachiakuta, Crunchyroll's perfect dystopian anime with unbelievably high ratings, is set to return with a second season.
+---------
+
+# Every Spider-Man TV Show's Series Premiere, Ranked
+
+TV, Your Friendly Neighborhood Spider-Man, Spider-Man, Spider-Man: The Animated Series, The Spectacular Spider-Man
+
+Tue, 31 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/spiderman-tv-shows-series-premiere-ranked-list/
+
+Your Friendly Neighborhood Spider-Man started its first season well, but how does its premiere stack up against the other Spider-Man series?
+---------
+
+# Mark Hamill Is Officially Stephen King's New Secret Weapon
+
+Movies, Stephen King, mark hamill, The Long Walk
+
+Tue, 31 Mar 2026 00:00:12 GMT
+
+https://www.cbr.com/mark-hamill-stephen-king-secret-weapon/
+
+Stephen King adaptations are only getting better, and Mark Hamill continues to be a face that proves this in his adaptations time and again.
+---------
+
+# ‘Yellowstone’ Meets ‘True Detective’ in This Western Crime Series Taking Over the World
+
+TV News, Longmire, Paramount, Yellowstone, Taylor Sheridan
+
+Tue, 31 Mar 2026 02:00:23 GMT
+
+https://collider.com/yellowstone-western-predecessor-longmire-streaming-success-paramount-plus-march-2026/
+
+The six-part Western series that paved the way for Taylor Sheridan's Yellowstone is still a perfect weekend binge for Paramount.
+---------
+
+# This Near-Perfect 8-Part Revenge Thriller Is an Unexpected Streaming Sleeper Hit
+
+TV Features, The Count of Monte Cristo, Sam Claflin, Jeremy Irons, Series
+
+Tue, 31 Mar 2026 01:47:13 GMT
+
+https://collider.com/count-of-monte-cristo-apple-tv-sleeper-hit-revenge-series/
+
+The Count of Monte Cristo tops Apple TV charts—why this slow-burn revenge thriller is the sleeper hit you shouldn’t miss.
+---------
+
+# 10 Most Perfectly Directed Sci-Fi Epics, Ranked
+
+Movie, 2001: A Space Odyssey, Interstellar, Metropolis, Avatar
+
+Tue, 31 Mar 2026 01:38:12 GMT
+
+https://collider.com/sci-fi-epics-perfectly-directed-ranked/
+
+The best directed sci-fi movies made on an epic scale include classics like 2001: A Space Odyssey, Metropolis, and Until the End of the World.
+---------
+
+# 30 Years Later, HBO Has Made the Best Disaster Classic Easier To Watch
+
+Movie News, Twister, Twisters, HBO, HBO Max
+
+Tue, 31 Mar 2026 01:30:12 GMT
+
+https://collider.com/best-disaster-classic-twister-streaming-release-date-hbo-max-april-2026/
+
+After 30 years, Twister, the groundbreaking disaster film starring Bill Paxton and Helen Hunt, is returning to HBO Max.
+---------
+
+# 10 Nearly Perfect Thriller Shows, Ranked
+
+TV, Thriller, Breaking Bad, Twin Peaks, The Night Of
+
+Tue, 31 Mar 2026 01:18:12 GMT
+
+https://collider.com/nearly-perfect-thriller-shows-ranked/
+
+From 'Breaking Bad' to 'True Detective', these thriller shows build slow-burning tension that pulls you deeper every episode.
+---------
+
+# Rebecca Ferguson’s 87-Year-Old Fantasy Remake Is Officially Her First Perfect Movie of 2026
+
+Movie News, The Magic Faraway Tree, Rebecca Ferguson, Andrew Garfield, Rotten Tomatoes
+
+Tue, 31 Mar 2026 01:15:13 GMT
+
+https://collider.com/rebecca-ferguson-the-magic-faraway-tree-rotten-tomatoes-score-is-it-good-how-to-watch/
+
+Rebecca Ferguson's new fantasy remake of an 87-year-old novel is officially her first perfect movie on Rotten Tomatoes of 2026.
+---------
+
+# This Forgotten Emily Blunt Prime Video Western Show Deserves Another Look
+
+TV, Prime Video, Unforgettable, Drop Dead Diva, The English
+
+Tue, 31 Mar 2026 01:11:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-week-march-30/
+
+Drop Dead Diva, The English, and Unforgettable make up our list of the best Prime Video shows to watch the week of March 30th, 2026.
+---------
+
+# 10 Most Suspenseful Action Thrillers of All Time, Ranked
+
+Movie, Mission: Impossible - Ghost Protocol, The Dark Knight, Die Hard, To Live and Die in L.A.
+
+Tue, 31 Mar 2026 01:11:12 GMT
+
+https://collider.com/action-thrillers-most-suspenseful-ranked/
+
+The most suspenseful action thrillers of all time include undeniable classics like To Live and Die in L.A., The Dark Knight, and The Fugitive.
+---------
+
+# Hit 3-Part Fantasy Anime Just Locked in Its Next Season
+
+TV News, Frieren: Beyond Journey's End, Crunchyroll, Anime, Fantasy
+
+Tue, 31 Mar 2026 01:00:13 GMT
+
+https://collider.com/fantasy-anime-series-frieren-beyond-journeys-end-season-3-release-window-2027/
+
+Discover the exciting details about Frieren: Beyond Journey's End Season 3's release window and plot, as the anime sets a 2027 return.
+---------
+
+# Netflix’s New 5-Part Thriller Miniseries Is Officially Taking Over the World
+
+TV Features, Netflix, Thriller, Chernobyl, Radioactive Emergency
+
+Tue, 31 Mar 2026 00:52:13 GMT
+
+https://collider.com/netflix-thriller-miniseries-radioactive-emergency/
+
+Netflix’s new 5-part thriller series Radioactive Emergency is already #5 on Netflix worldwide.
+---------
+
+# 10 Perfect Sci-Fi TV Shows That Desperately Need Reboots
+
+TV Lists, Sci-Fi
+
+Tue, 31 Mar 2026 02:00:29 GMT
+
+https://movieweb.com/sci-fi-tv-shows-need-reboots/
+
+These impressive and beloved sci-fi TV shows need reboots, from a six-season series about an island mystery to a brief series about the Serenity crew.
+---------
+
+# 8 Most Divisive TV Shows of the Last 10 Years
+
+TV Lists, Euphoria
+
+Tue, 31 Mar 2026 01:00:18 GMT
+
+https://movieweb.com/divisive-tv-shows-last-decade/
+
+From a Marvel series to a revival of a '90s comedy, these TV shows are some of the most divisive from the past decade.
+---------
+
 # 8 TV Shows That Trolled Fans
 
 Classic TV
