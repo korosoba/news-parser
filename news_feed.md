@@ -1,3 +1,223 @@
+# Scream 8 Officially Moving Forward With Buffy The Vampire Slayer Revival Writers
+
+Movies, Scream
+
+Tue, 31 Mar 2026 20:33:12 GMT
+
+https://screenrant.com/scream-8-official-development-lilla-nora-zuckerman-script/
+
+The Scream franchise is not dying anytime soon, as an eight movie is now officially moving forward with Buffy the Vampire Slayer's revival writers.
+---------
+
+# We Need To Talk About Dandadan's Most Controversial Arc
+
+Anime, Dandadan
+
+Tue, 31 Mar 2026 20:30:23 GMT
+
+https://screenrant.com/dandadan-amnesia-arc-destroying-series/
+
+How Dandadan is killing its own story.
+---------
+
+# 5 New Spider-Man: Brand New Day Theories Spawned From The First Trailer
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Tue, 31 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-trailer-theories/
+
+Spider-Man: Brand New Day's trailer provided the first look at the movie and new details to dissect. Here are some new theories the footage created.
+---------
+
+# 10 Underrated Monster Horror Movies That Deserve A Second Look
+
+Movies, Life, Dog Soldiers, The Descent, Slither, Howl, Troll Hunter, Splinter, Deep Rising, The Ritual, Rogue
+
+Tue, 31 Mar 2026 20:30:20 GMT
+
+https://screenrant.com/monster-horror-movies-underrated-recommend/
+
+Monsters in movies range from hilarious to downright terrifying. Here are some of the best underrated creatures that slipped under the radar.
+---------
+
+# Tom Hardy & Guy Ritchie Crime Hit Reaches Major Season 2 Milestone
+
+TV, Tom Hardy, Guy Ritchie, MobLand, Paramount Plus
+
+Tue, 31 Mar 2026 20:28:56 GMT
+
+https://screenrant.com/mobland-season-2-filming-wrap-confirmed/
+
+After wrapping filming on MobLand season 2, the second season of the Guy Ritchie-directed crime series may be coming sooner than fans think.
+---------
+
+# March 31 Is A Big Day For Avatar Fans
+
+Movies, Avatar: Fire and Ash
+
+Tue, 31 Mar 2026 19:55:18 GMT
+
+https://screenrant.com/avatar-3-fire-ash-digital-release-day-big/
+
+The Avatar franchise has a significant day coming up on March 31 after the latest film, Fire and Ash, grossed over $1.4 billion worldwide.
+---------
+
+# Titus Welliver's Bosch: Legacy Season 4 Return Gets Encouraging Update Ahead Of Prequel Series
+
+TV, Bosch: Legacy, Bosch
+
+Tue, 31 Mar 2026 19:41:28 GMT
+
+https://screenrant.com/bosch-legacy-season-4-update-promising-titus-welliver/
+
+EXCLUSIVE: With a high-profile prequel series moving forward, Titus Welliver revisits past comments on the possibility of Bosch: Legacy season 4.
+---------
+
+# Beauty In Black Season 3's Release Window Confirmed By Tyler Perry
+
+TV, Tyler Perry’s Beauty in Black, Netflix
+
+Tue, 31 Mar 2026 19:38:31 GMT
+
+https://screenrant.com/beauty-in-black-season-3-2027-netflix-release-window-tyler-perry/
+
+Part Two of Season 2 of Beauty In Black was released on March 19. Tyler Perry revealed the release window for Season 3 of the Netflix family drama.
+---------
+
+# Jujutsu Kaisen's Satoru Gojo Loses No. 1 Spot as Top-Ranked Anime Teacher of 2026
+
+Anime, Jujutsu Kaisen, Assassination Classroom
+
+Tue, 31 Mar 2026 20:31:12 GMT
+
+https://www.cbr.com/best-anime-teacher-ranking-2026/
+
+According to Japan, Jujutsu Kaisen fan-favorite Satoru Gojo is a great mentor figure, but not as good as a certain extraterrestrial anime icon.
+---------
+
+# 10 Best Sci-Fi Movies That Would Make Perfect Black Mirror Episodes
+
+Movies, Black Mirror, Netflix, Sci-Fi
+
+Tue, 31 Mar 2026 20:31:12 GMT
+
+https://www.cbr.com/best-sci-fi-movies-make-perfect-black-mirror-episodes/
+
+Black Mirror set a standard for modern sci-fi, and some movies in the genre would make for great episodes.
+---------
+
+# It's Officially a New Era For Avatar: The Last Airbender
+
+Anime, Avatar: The Last Airbender
+
+Tue, 31 Mar 2026 20:15:13 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-official-new-era-fighting-game/
+
+Avatar Legends is bringing together the worlds of The Last Airbender and The Legend of Korra, allowing their iconic characters to interact.
+---------
+
+# HBO's A Knight of the Seven Kingdoms Is Taking Over PVOD Charts
+
+TV, A Knight Of The Seven Kingdoms
+
+Tue, 31 Mar 2026 20:05:45 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-pvod-march-2026/
+
+HBO's new fantasy spinoff is seeing a rise on the PVOD charts after its successful debut.
+---------
+
+# Absolute Batman's Disturbing Joker and Robin Theory Is Confirmed
+
+Comics, Batman
+
+Tue, 31 Mar 2026 20:01:13 GMT
+
+https://www.cbr.com/absolute-batman-absolute-robins-absolute-joker-theory/
+
+Absolute Batman writer Scott Snyder seemingly confirms the disturbing fan theory about Robin's place in DC Comics' Absolute Universe.
+---------
+
+# Ready of Not 2 Has Sarah Michelle Gellar Making a Comeback
+
+Movies, Ready or Not, Ready or Not 2: Here I Come, sarah michelle gellar, Samara Weaving
+
+Tue, 31 Mar 2026 20:01:13 GMT
+
+https://www.cbr.com/ready-or-not-2-sarah-michelle-gellar-after-buffy-reboot-cancellation/
+
+Buffy fans are in mourning, but the vampire slayer isn't completely dead in the best horror movie sequel of the year.
+---------
+
+# 10 Most Powerful Characters in 'One Piece' Season 2, Ranked
+
+TV, One Piece, Netflix, Anime, Fantasy
+
+Tue, 31 Mar 2026 20:30:14 GMT
+
+https://collider.com/one-piece-season-2-most-powerful-characters-ranked/
+
+Is Monkey D. Luffy the most powerful in Netflix's hit fantasy, One Piece: Into the Grand Line? Well, turns out the answer isn't as straightforward.
+---------
+
+# 'The Super Mario Galaxy Movie' Hit by a Blue Shell in Franchise-Low Rotten Tomatoes Debut
+
+Movie News, The Super Mario Galaxy Movie, Rotten Tomatoes, The Super Mario Bros. Movie, Anya Taylor-Joy
+
+Tue, 31 Mar 2026 20:08:14 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-sci-fi-sequel-rotten-tomatoes-score-is-it-good/
+
+The Super Mario Galaxy Movie has debuted on Rotten Tomatoes, but it's already proving to be a divisive sequel.
+---------
+
+# 10 Forgotten Animated Movies That Are Still Perfect Today
+
+Movie, Animation, Waking Life, Angel's Egg, Fantastic Planet
+
+Tue, 31 Mar 2026 20:00:13 GMT
+
+https://collider.com/forgotten-animated-movies-still-perfect/
+
+Movies like Angel's Egg and Night Is Short, Walk On Girl might lack mainstream recognition, but they endure as perfect examples of animation's power.
+---------
+
+# 7 Epic War Miniseries Better Than Any Classic Movie
+
+TV, War, TV Miniseries, Band of Brothers, Masters of the Air
+
+Tue, 31 Mar 2026 19:44:12 GMT
+
+https://collider.com/epic-war-miniseries-better-than-movies/
+
+Band of Brothers, Masters of the Air, We Were the Lucky Ones, and more make up our list of epic war miniseries better than any classic movie.
+---------
+
+# Brad Pitt's 'John Wick'-esque Action Movie 'Bullet Train' Is Streaming for Free on Tubi in April 2026
+
+Movie News, Bullet Train
+
+Tue, 31 Mar 2026 20:00:18 GMT
+
+https://movieweb.com/bullet-train-john-wick-action-streaming-free-tubi-april-2026/
+
+Brad Pitt starred in 'John Wick' director David Leitch's 2022 action blockbuster 'Bullet Train,' which streams for free in April on Tubi.
+---------
+
+# Super Mario Galaxy Movie' Rotten Tomatoes Score Revealed
+
+Movie News, The Super Mario Galaxy Movie
+
+Tue, 31 Mar 2026 19:53:12 GMT
+
+https://movieweb.com/super-mario-galaxy-rotten-tomatoes-score/
+
+'The Super Mario Galaxy Movie' has scored a lower rating on Rotten Tomatoes than 'The Super Mario Bros. Movie' from 2023.
+---------
+
 # The Golden Girls: Ranking All 7 Seasons from Worst To Best
 
 Classic TV, The Golden Girls, Ranking
