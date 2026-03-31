@@ -1,3 +1,322 @@
+# 20 Years Ago Today Was A Monumental Day For James Gunn & His Hollywood Career
+
+Classic Movies, Slither, Explainer
+
+Tue, 31 Mar 2026 13:00:19 GMT
+
+https://screenrant.com/james-gunn-slither-20-year-anniversary/
+
+It has been 20 years since James Gunn enjoyed his breakout and made his name as one of Hollywood's newest, best up-and-coming movie directors.
+---------
+
+# Iconic Power Rangers Star's Final Role Gets Official First Look & The Perfect Release Date
+
+Movies, Legend of the White Dragon, Power Rangers
+
+Tue, 31 Mar 2026 12:40:32 GMT
+
+https://screenrant.com/legend-of-the-white-dragon-first-look-image-release-date/
+
+The final role for an iconic Power Rangers star gets its first official look, as well as the perfect release date for its theatrical debut.
+---------
+
+# The Last Of Us Part 3 Divides Gamers Who Say Story Is Already Finished
+
+Gaming, The Last of Us 3, The Last of Us, PC
+
+Tue, 31 Mar 2026 12:33:32 GMT
+
+https://screenrant.com/last-of-us-part-3-tease-gamer-reaction/
+
+The Last of Us creator Neil Druckmann has more or less confirmed the future of the franchise, but gamers who think the story is already done are torn.
+---------
+
+# Captain Marvel Is A Skrull In Shock Lore Reboot
+
+Marvel Comics, Captain Marvel, Marvel
+
+Tue, 31 Mar 2026 12:30:18 GMT
+
+https://screenrant.com/captain-marvel-lore-reboot-skrull/
+
+Marvel announces a Captain Marvel reboot that rewrites Carol Danvers' early years with a major twist, exploring alternate origins in a new storyline.
+---------
+
+# Netflix’s Ad Complaints Raise A Major Streaming Question
+
+Movies, Netflix
+
+Tue, 31 Mar 2026 12:30:18 GMT
+
+https://screenrant.com/netflix-ad-streaming-complaint-question/
+
+The latest reactions to Netflix feature raise some interesting questions for the future of streaming services and how they operate more broadly.
+---------
+
+# GTA 5 Free Download Available For 24 More Hours
+
+Gaming, Grand Theft Auto 5
+
+Tue, 31 Mar 2026 12:00:25 GMT
+
+https://screenrant.com/gta-5-free-download-online-24-hours/
+
+With just eight months until the release of GTA 6, Rockstar is offering a final (free) hurrah for GTA 5 players.
+---------
+
+# Solo Leveling’s Biggest Rival Is Officially Back With The One Anime Hero Stronger Than Jinwoo
+
+Anime, Solo Leveling, The Eminence in Shadow
+
+Tue, 31 Mar 2026 12:00:25 GMT
+
+https://screenrant.com/solo-leveling-isekai-rival-anime-eminence-in-shadow-movie/
+
+The debate over anime's strongest hero is about to heat up with the announcement of a new movie for Solo Leveling's biggest rival anime.
+---------
+
+# Game Of Thrones' 15 Best Targaryens, Ranked
+
+Classic TV, Game Of Thrones, Game of Thrones
+
+Tue, 31 Mar 2026 12:00:25 GMT
+
+https://screenrant.com/game-of-thrones-tv-best-targaryens-ranked/
+
+The Targaryens shaped Westeros’ history in the Game of Thrones universe, and their impact as the leaders of the Seven Kingdoms cannot be understated.
+---------
+
+# Carter Wong's 10 Best Martial Arts Movies, Ranked
+
+Movies
+
+Tue, 31 Mar 2026 12:00:25 GMT
+
+https://screenrant.com/carter-wong-best-martial-arts-movies/
+
+From Shaolin epics to cult classics like Big Trouble in Little China, Carter Wong’s best martial arts movies showcase his power and presence.
+---------
+
+# Steam Drops 24+ Free Downloads In Massive Limited-Time Event
+
+Gaming, Steam, PC
+
+Tue, 31 Mar 2026 11:56:31 GMT
+
+https://screenrant.com/steam-april-2026-deal-free-games-giveaway/
+
+Steam's new limited-time event is an incredible opportunity for gamers to claim over 24 free games, available to download now if you're fast.
+---------
+
+# Martin Scorsese & Steven Spielberg's Cape Fear Unveils Tense Trailer
+
+TV, Cape Fear
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/martin-scorsese-steven-spielberg-cape-fear-remake-teaser/
+
+Almost two years after it was announced, the reboot is close to debut.
+---------
+
+# 10 Greatest SNES Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/greatest-snes-games-of-all-time-ranked-list/
+
+Classic games like The Legend of Zelda: A Link to the Past helped make the SNES great.
+---------
+
+# 10 Mario Characters Who Need to Appear in the Illumination Movies
+
+Movies, Nintendo, The Super Mario Bros. Movie, The Super Mario Galaxy Movie
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/mario-characters-who-should-be-in-illumination-movies-list/
+
+The Super Mario Bros. Movie and The Super Mario Galaxy Move have introduced many iconic characters from the games, but fans want to see more.
+---------
+
+# 6 Most Bingeable Netflix Miniseries You Can’t Stop Watching
+
+TV, The Haunting of Hill House, The Queen's Gambit, When They See Us, Netflix
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://www.cbr.com/most-bingeable-netflix-miniseries-list/
+
+There are countless streaming options on Netflix, but series like The Queen's Gambit and The Haunting of Hill House stand out as some of the best.
+---------
+
+# Carnage's Twisted Symbiote Relationship Stars in The New Spider-Man Event
+
+Comics, Spider-Man
+
+Tue, 31 Mar 2026 12:03:28 GMT
+
+https://www.cbr.com/amazing-spider-man-25-review-carnage-symbiote-relationship/
+
+In a CBR review of Amazing Spider-Man #24, see how the relationship between Carnage and its new host takes center stage in the new Spider-Man event
+---------
+
+# Spider-Man's Most Hated Character Might Be Dead - And Fans Are Celebrating
+
+Comics, Spider-Man, Venom
+
+Tue, 31 Mar 2026 12:00:20 GMT
+
+https://www.cbr.com/spider-man-paul-rabin-death-rumor/
+
+The most widely hated Spider-Man character of the past decade may have just met his end as Death Spiral's latest victim, and fans couldn't be happier.
+---------
+
+# Apple TV's New Psychological Thriller Adaptation Unleashes Chilling First Trailer
+
+TV News, Cape Fear, Javier Bardem, Patrick Wilson, Amy Adams
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://collider.com/apple-tv-psychological-thriller-cape-fear-trailer-javier-bardem-amy-adams-patrick-wilson/
+
+Apple TV unveils a chilling teaser for its new Cape Fear miniseries, starring Javier Bardem as a vengeful ex-convict.
+---------
+
+# Netflix's ‘Avatar: The Last Airbender’ Officially Returns in 3 Months
+
+TV News, Avatar: The Last Airbender, Netflix, The Legend of Aang: The Last Airbender
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://collider.com/avatar-the-last-airbender-season-2-netflix-release-date/
+
+Netflix has announced the official release date for Avatar: The Last Airbender Season 2, confirming that the show will return this summer.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — March 31, 2026
+
+Movie, Coach Carter, Teen Wolf, He Got Game, White Men Can't Jump
+
+Tue, 31 Mar 2026 13:00:12 GMT
+
+https://collider.com/movie-quiz-mar-31-2026-hoop-dreams-basketball/
+
+Before March ends, we have to address the Madness. Time to run up and down the blacktop with some slick flicks that depict the game of basketball.
+---------
+
+# This 4-Part Cult Classic Anthology Fixes What ‘American Horror Story’ Gets Wrong
+
+TV Features, SyFy, American Horror Story, Channel Zero, Horror
+
+Tue, 31 Mar 2026 12:31:12 GMT
+
+https://collider.com/channel-zero-cult-classic-anthology-fixes-american-horror-story/
+
+Channel Zero is the cult horror anthology that fixes what American Horror Story gets wrong, telling tighter, disturbing stories across four parts.
+---------
+
+# HBO Max's 4-Part Sci-Fi Epic Is One of the Best on Any Streaming Platform
+
+Movie Features, Dawn of the Planet of the Apes, Rise of the Planet of the Apes, War for the Planet of the Apes, HBO Max
+
+Tue, 31 Mar 2026 12:31:12 GMT
+
+https://collider.com/hbo-max-planet-of-the-apes-reboot-best-science-fiction-epic/
+
+Sci-fi fans looking for a film series worth thier time should check out the Planet of the Apes reboot on HBO Max.
+---------
+
+# The 20 Greatest Monica Bellucci Movies, Ranked
+
+Movie, Monica Bellucci, Malena, The Passion of the Christ, Bram Stoker's Dracula
+
+Tue, 31 Mar 2026 12:14:12 GMT
+
+https://collider.com/best-monica-bellucci-movies-ranked/
+
+From gut-wrenching stories like Irreversible to sci-fi epics such as The Matrix franchise, these are the best Monica Bellucci movies to date.
+---------
+
+# Netflix’s 5-Part True Crime Series Proves It’s the Best New Show to Binge This Weekend
+
+TV News, Netflix, Crime, FBI, The Perfect Neighbor
+
+Tue, 31 Mar 2026 12:00:20 GMT
+
+https://collider.com/netflix-dick-wolf-true-crime-series-homicide-new-york-streaming-success-march-2026/
+
+Dick Wolf's new true-crime docuseries surges to No. 1 on Netflix after its latest season, dominating global charts and gaining traction worldwide.
+---------
+
+# 6 Most Quietly Brilliant Sci-Fi Movies Ever
+
+Movie, Sci-Fi, The Man from Earth, Sunshine, Colossus: The Forbin Project
+
+Tue, 31 Mar 2026 11:53:12 GMT
+
+https://collider.com/most-quietly-brilliant-sci-fi-movies-ever/
+
+From They Live and The Man from Earth to Sunshine and District 9, these sci-fi films have quiet ideas that echo louder than explosions or spectacle.
+---------
+
+# Apple TV Releases Teaser for Remake of Martin Scorsese's Thriller 'Cape Fear'
+
+TV News, Cape Fear, Apple TV
+
+Tue, 31 Mar 2026 13:00:16 GMT
+
+https://movieweb.com/cape-fear-remake-trailer/
+
+Apple TV has released a trailer for its 'Cape Fear' series, offering a first look at the psychological thriller inspired by Martin Scorsese's remake.
+---------
+
+# 'Harry Potter' Sets Up a Darker Hogwarts at HBO
+
+Features, Harry Potter
+
+Tue, 31 Mar 2026 13:00:16 GMT
+
+https://movieweb.com/hbo-harry-potter-darker-hogwarts/
+
+HBO's 'Harry Potter' series is already promising a darker Hogwarts than J.K. Rowling's first book described.
+---------
+
+# 'Paradise' Star Krys Marshall Teases Season 3 Following Shocking Finale
+
+TV News, Paradise
+
+Tue, 31 Mar 2026 12:54:51 GMT
+
+https://movieweb.com/paradise-star-teases-season-3/
+
+Marshall's always been afraid of her character, but now she's terrified.
+---------
+
+# New 'Harry Potter' Reboot Trailer Brings Back 'The Sorcerer's Stone' On HBO's Streaming Charts
+
+Movie News, Harry Potter and the Sorcerer's Stone, HBO Max, Hot on Streaming, Harry Potter
+
+Tue, 31 Mar 2026 12:00:26 GMT
+
+https://movieweb.com/harry-potter-reboot-brings-back-sorcerers-stone-streaming-success-hbo-max-april-2026/
+
+The first trailer for HBO's 'Harry Potter' reboot has fans of J.K. Rowling's fantasy franchise rushing to HBO Max to stream the original movies.
+---------
+
+# 'The Furious' Is the Perfect Action Thriller for 'John Wick' Fans
+
+Features, The Furious, John Wick
+
+Tue, 31 Mar 2026 12:00:26 GMT
+
+https://movieweb.com/the-furious-perfect-john-wick-fans/
+
+After impressing the industry across film festivals, Kenji Tanigaki's 'The Furious' is a perfect action thriller movie for 'John Wick' fans.
+---------
+
 # Lord Of The Rings Open-World RPG Leak Teases The Perfect Developer
 
 Gaming, The Lord of the Rings, Kingdom Come: Deliverance
