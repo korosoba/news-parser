@@ -1,3 +1,333 @@
+# The Pitt Season 2 Finale Officially Releasing Two Days Early (With A Catch)
+
+TV, The Pitt
+
+Tue, 31 Mar 2026 17:23:20 GMT
+
+https://screenrant.com/the-pitt-season-2-finale-theater-release-date-confirmed/
+
+The Pitt will debut the season 2 finale two days early, but there's a catch.
+---------
+
+# Project Hail Mary Officially Breaks All-Time Box Office Record For Amazon In Just Two Weeks
+
+Movies, Project Hail Mary, Box Office
+
+Tue, 31 Mar 2026 17:11:09 GMT
+
+https://screenrant.com/project-hail-mary-amazon-box-office-global-record/
+
+Project Hail Mary officially breaks an all-time box office record for Amazon in just two weeks since its theatrical release on March 20.
+---------
+
+# Netflix's 7-Part Dystopian Series Rewrote The Rules Of Science Fiction
+
+Streaming TV, Black Mirror, Sci-Fi, Netflix
+
+Tue, 31 Mar 2026 17:02:20 GMT
+
+https://screenrant.com/black-mirror-success-changed-sci-fi-television/
+
+Dystopian futures have become a cornerstone of modern sci-fi TV, but few shows have captured that yearning for unease as effectively as this.
+---------
+
+# Highly-Anticipated RPG Faces Controversy Ahead Of May Release Date
+
+Gaming, Disco Elysium, RPG, Indie Games, PC
+
+Tue, 31 Mar 2026 17:00:31 GMT
+
+https://screenrant.com/zero-parades-for-dead-spies-release-date-controversy/
+
+ZA/UM made one of the most beloved modern CRPGs with Disco Elysium, but its next game is getting an intense amount of scrutiny before release.
+---------
+
+# Netflix & HBO’s Upcoming Streaming War Is Perfect For High Fantasy Fans
+
+Streaming TV, Dungeons & Dragons
+
+Tue, 31 Mar 2026 17:00:20 GMT
+
+https://screenrant.com/netflix-hbo-dungeons-dragons-shows-high-fantasy/
+
+An upcoming streaming war between Netflix and HBO will center around a specific franchise, one that will make high fantasy fans the true winners.
+---------
+
+# One Of Tom Hanks' Best Movies Leaves Netflix In 1 Week (Last Chance To Watch The 25-Year-Old Classic)
+
+Classic Movies, Tom Hanks, Cast Away, Netflix
+
+Tue, 31 Mar 2026 16:45:19 GMT
+
+https://screenrant.com/tom-hanks-cast-away-leaves-netflix-soon/
+
+A classic movie from Tom Hanks' filmography that came out 25 years ago is set to leave Netflix in one week, giving you a limited window to watch it.
+---------
+
+# HBO Max Shows With 100% Rotten Tomatoes Score: Top Ranked List
+
+Classic TV, HBO, HBO Max, Get Millie Black
+
+Tue, 31 Mar 2026 16:30:18 GMT
+
+https://screenrant.com/hbo-shows-with-perfect-rottent-tomatoes-scores-ranked/
+
+HBO is behind many of the most acclaimed TV series of all time, but just a few of them have a perfect score on critical aggregator Rotten Tomatoes.
+---------
+
+# CBS's Underrated 6-Season Sitcom Is A Netflix Hit 10 Years After Cancellation
+
+TV, Mike & Molly, Netflix
+
+Tue, 31 Mar 2026 16:25:37 GMT
+
+https://screenrant.com/cbs-sitcom-mike-and-molly-netflix-streaming-success/
+
+After running for six seasons on CBS and winning an Emmy for its lead star, an underrated sitcom is finding new life with subscribers on Netflix.
+---------
+
+# Pokémon Pokopia Free Item Available Now For A Limited Time
+
+Gaming, Pokemon Pokopia, Triple-A Games
+
+Tue, 31 Mar 2026 16:24:16 GMT
+
+https://screenrant.com/pokemon-pokopia-free-items-april-2026/
+
+Wildly, Mystery Gifts and limited-run bonuses have returned for Pokémon Pokopia, bringing back a mechanic from the mainline series.
+---------
+
+# Netflix's Spring 2026 Anime Lineup Is Absolutely Stacked
+
+Anime, Netflix, JoJo's Bizarre Adventure
+
+Tue, 31 Mar 2026 16:18:39 GMT
+
+https://screenrant.com/netflix-spring-2026-anime-lineup/
+
+Barring one glaring absence, Spring 2026 has a little bit of almost everything for anime fans.
+---------
+
+# Eli Roth's Ice Cream Man Sets Summer Release Date
+
+Movies, Eli Roth, Horror
+
+Tue, 31 Mar 2026 17:09:42 GMT
+
+https://www.cbr.com/eli-roth-ice-cream-man-release-date/
+
+Eli Roth's wild new slasher movie finally gets an official release date.
+---------
+
+# Star Trek Shows Surge on iTunes Amid Franchise Uncertainty
+
+TV, Star Trek, itunes, Sci-Fi
+
+Tue, 31 Mar 2026 17:08:09 GMT
+
+https://www.cbr.com/star-trek-streaming-success-pvod-apple-itunes-march-2026/
+
+Seven Star Trek series suddenly climb the iTunes charts in the US, as the beloved sci-fi franchise faces cancellations, criticism, and an uncertainty.
+---------
+
+# Laz Alonso & Jensen Ackles Tease The Boys’ Most Unhinged Season Yet
+
+TV, The Boys
+
+Tue, 31 Mar 2026 17:01:13 GMT
+
+https://www.cbr.com/video/laz-alonso-jensen-ackles-tease-the-boys-most-unhinged-season-yet/
+
+The Boys Season 5 is “far from flaccid” and Jensen Ackles is breaking it all down. Laz Alonso and Ackles tease what might be the wildest, most unhinged final season yet.From Soldier Boy’s complicated suit-up process to the show’s impact on superhero storytelling, this interview dives into why The Boys changed the genre. They also touch on the returning Supernatural cast and what fans can expect from Eric Kripke’s brutal endgame.Expect bold humor, bigger stakes, and a finale that lives up to the hype. This is The Boys Season 5 interview fans need before the final chapter drops.
+---------
+
+# How the Hobbit Trilogy Retconned Legolas' History With Death
+
+Movies, The Lord of the Rings, The Hobbit
+
+Tue, 31 Mar 2026 17:01:13 GMT
+
+https://www.cbr.com/the-hobbit-lord-of-the-rings-legolas-retcon/
+
+The Lord of the Rings has many changes from the books, but nothing beats how The Hobbit movies changed a huge Legolas detail.
+---------
+
+# Pokémon Fans Get First-Look Reveal at New 30th Anniversary Puma Release
+
+Anime, Pokemon, merchandise, Clothing, Nintendo
+
+Tue, 31 Mar 2026 17:01:13 GMT
+
+https://www.cbr.com/pokemon-puma-anniversary-first-look/
+
+In honor of the brand catching 'em all for three decades straight, PUMA is releasing several Pokémon items, including a stylish sneaker collection.
+---------
+
+# Mike Mignola Reveals His New Lead Character Who's 'Really Taking Off'
+
+CBR Exclusives, mike mignola
+
+Tue, 31 Mar 2026 16:23:01 GMT
+
+https://www.cbr.com/mike-mignola-uri-tupka-lands-unknown-interview/
+
+In a CBR exclusive interview with comic book superstar, Mike Mignola, we talk his new Lands Unknown graphic novel starring his new creation, Uri Tupka
+---------
+
+# Crunchyroll's You and I Are Polar Opposites Was So Good It's Already Returning for Season 2
+
+Anime, You and I Are Polar Opposites, Crunchyroll
+
+Tue, 31 Mar 2026 16:15:12 GMT
+
+https://www.cbr.com/best-new-anime-2026-you-and-i-are-polar-opposites-season-2/
+
+This new hit anime's surprise Season 2 announcement proves that fans respond incredibly well to excellent English dubbing and localization.
+---------
+
+# Netflix's Avatar: The Last Airbender Season 2 Gets Release Date
+
+TV, Avatar: The Last Airbender
+
+Tue, 31 Mar 2026 16:06:56 GMT
+
+https://www.cbr.com/netflix-avatar-the-last-airbender-season-2-release-date/
+
+Netflix finally sets a release date for the second season of Avatar: The Last Airbender.
+---------
+
+# The Supergirl Trailer Suggests Terrible Things for Poor Krypto
+
+Movies, Supergirl, Krypto
+
+Tue, 31 Mar 2026 16:01:47 GMT
+
+https://www.cbr.com/supergirl-trailer-what-have-you-done-to-krypto-you-monsters/
+
+We also learn more about Superman, Lobo, and the movie's main villain.
+---------
+
+# 'The Pitt' Season 2 Finale Officially Gets a Rare Theatrical Release 3 Days Early
+
+TV News, The Pitt, Noah Wyle, HBO Max, Shawn Hatosy
+
+Tue, 31 Mar 2026 17:28:33 GMT
+
+https://collider.com/the-pitt-season-2-finale-theater-release-alamo-drafthouse-3-days-early/
+
+HBO Max is bringing The Pitt Season 2's finale to theaters 3 days before it debuts on the streamer.
+---------
+
+# 28 Years Later, 'Landman' Star's Thrilling Sci-Fi Disaster Epic Surges on Streaming
+
+Movie News, Armageddon, Ben Affleck, Science Fiction, Billy Bob Thornton
+
+Tue, 31 Mar 2026 16:57:56 GMT
+
+https://collider.com/billy-bob-thornton-sci-fi-movie-armageddon-free-streaming-success-tubi-march-2026/
+
+Billy Bob Thornton's 1998 sci-fi disaster film Armageddon, which grossed $553 million worldwide, has returned to the streaming charts.
+---------
+
+# 10 Best Crowd-Pleasing Epic Movies, Ranked
+
+Movie, The Lord of the Rings: The Fellowship of the Ring, Seven Samurai, Titanic, Avengers: Endgame
+
+Tue, 31 Mar 2026 16:45:12 GMT
+
+https://collider.com/best-crowd-pleasing-epic-movies-ranked/
+
+If you're after crowd-pleasing epic movies, classics like The Great Escape, Seven Samurai, and The Lord of the Rings are all essential watches.
+---------
+
+# Quentin Tarantino’s First Movie in 7 Years Gets Official Images Before Netflix Release
+
+Movie News, The Adventures of Cliff Booth, Quentin Tarantino, Brad Pitt, David Fincher
+
+Tue, 31 Mar 2026 16:19:44 GMT
+
+https://collider.com/quentin-tarantino-next-movie-the-adventures-of-cliff-booth-first-official-images-netflix-release/
+
+Quentin Tarantino's first movie since Once Upon a Time... in Hollywood gets first official images before its Netflix release.
+---------
+
+# 'Avatar: The Last Airbender' Season 2 Release Date Announced by Netflix
+
+TV News, Avatar: The Last Airbender, Netflix
+
+Tue, 31 Mar 2026 17:16:30 GMT
+
+https://movieweb.com/netflixs-avatar-the-last-airbender-finally-sets-season-2-return-date/
+
+After a long wait, Netflix officially confirmed when new episodes of 'Avatar: The Last Airbender' will arrive on Netflix.
+---------
+
+# The 20 Greatest TV Shows of the 1970s
+
+TV Lists, 1970s
+
+Tue, 31 Mar 2026 17:00:19 GMT
+
+https://movieweb.com/20-greatest-tv-shows-1970s/
+
+Between bell-bottoms, disco, and the rise of video games, TV shows were also thriving in the '70s. These are the best shows of that decade.
+---------
+
+# Miss ‘Reacher’? Catch up on Prime’s 'The Boys' Before Season 5
+
+Features, The Boys, Reacher
+
+Tue, 31 Mar 2026 17:00:18 GMT
+
+https://movieweb.com/the-boys-prime-binge-watch/
+
+'The Boys' Season 5 premieres on Amazon Prime Video in April 2026, and fans of 'Reacher' should binge-watch the action superhero series before then.
+---------
+
+# A24's 'The Drama' Lands Impressive Rotten Tomatoes Score
+
+Movie News, The Drama, Zendaya Coleman, Robert Pattinson, A24
+
+Tue, 31 Mar 2026 16:55:09 GMT
+
+https://movieweb.com/the-drama-rotten-tomatoes-score/
+
+A24's 'The Drama' has landed an impressive Rotten Tomatoes score, as critics heap on the praise for Zendaya and Robert Pattinson's R-rated comedy.
+---------
+
+# Pedro Pascal, Mark Ruffalo, and More Hollywood Stars Sign Open Anti-ICE Letter
+
+Movie News, Pedro Pascal, Mark Ruffalo, Riley Keough
+
+Tue, 31 Mar 2026 16:42:54 GMT
+
+https://movieweb.com/pedro-pascal-mark-ruffalo-anti-ice-letter/
+
+Star-studded signatories like Madonna, Jane Fonda, and Javier Bardem protest new details about detainee treatment.
+---------
+
+# The Official 'Scrubs' Rewatch Podcast Just Turned 6 Years Old
+
+Features, Scrubs
+
+Tue, 31 Mar 2026 16:15:21 GMT
+
+https://movieweb.com/scrubs-revival-rewatch-podcast/
+
+'Fake Doctors, Real Friends' ended up being pivotal to the 'Scrubs' revival, even if it didn't mean to be. Read on for more.
+---------
+
+# A24's 'Backrooms' Official Trailer Revealed
+
+Movie News, Backrooms, A24
+
+Tue, 31 Mar 2026 16:04:35 GMT
+
+https://movieweb.com/a24-backrooms-official-trailer/
+
+'Backrooms,' starring Renate Reinsve and Chiwetel Ejiofor, has gotten a full-fledged trailer from A24.
+---------
+
 # 10 Rock Bands Who Were More Successful After Abandoning Their Original Sound
 
 Music, Rock
