@@ -1,3 +1,179 @@
+# Apple TV's 3-Part Space Opera Masterpiece Series Would've Probably Been Canceled On Netflix
+
+Streaming TV, Foundation, Sci-Fi, Apple TV
+
+Tue, 31 Mar 2026 23:32:20 GMT
+
+https://screenrant.com/apple-tv-foundation-sci-fi-show-canceled-netflix/
+
+One of the best sci-fi shows of the decade would never have made it past season 1 if it arrived on Netflix, making it a clear victory for Apple.
+---------
+
+# Netflix's 8-Part Sci-Fi Thriller Series Is One Of Its Best
+
+TV, 3 Body Problem, Netflix
+
+Tue, 31 Mar 2026 23:30:20 GMT
+
+https://screenrant.com/3-body-problem-netflix-sci-fi-thriller-series-best/
+
+In a world where sci-fi TV is thriving, this underrated 2024 Netflix hit still stands out as one of the genre's most daring and ambitious shows.
+---------
+
+# Jujutsu Kaisen Season 4 is Going to Bring Back the Series' Most Iconic Hero, and the Fandom is Not Prepared
+
+Anime, Jujutsu Kaisen
+
+Tue, 31 Mar 2026 23:30:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-4-gojo-return/
+
+Season 4 of Jujutsu Kaisen will finally give fans what they want with Gojo's return, and it's all but confirmed.
+---------
+
+# Titus Welliver Talks Dark Winds: A New Role After Bosch
+
+TV, Titus Welliver, Dark Winds
+
+Tue, 31 Mar 2026 23:13:48 GMT
+
+https://screenrant.com/titus-welliver-dark-winds-missed-opportunity-bosch-zahn-mcclarnon/
+
+Titus Welliver discusses his new role as crime boss Dominic McNair in Dark Winds, a departure from Bosch, and working with Zahn McClarnon.
+---------
+
+# Why Digimon's Darkest Anime Is Also Its Best
+
+Anime, Digimon, Digimon Beatbreak, Op-Ed
+
+Tue, 31 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/digimon-beatbreak-darkest-best-digimon-anime/
+
+This is Digimon's best anime, and it's not even close.
+---------
+
+# Netflix’s 93% RT Fantasy Show Bodes Well For Its Upcoming Dungeons & Dragons Series
+
+Streaming TV, One Piece, Dungeons & Dragons
+
+Tue, 31 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/netflix-one-piece-great-upcoming-dungeons-dragons-show/
+
+The upcoming Dungeons and Dragons show in development at Netflix could learn a lot from the streamer’s fantasy series, with 93% on Rotten Tomatoes.
+---------
+
+# Massive Resident Evil Leak Outlines Multiple Long-Awaited Remakes
+
+Gaming, Resident Evil, Triple-A Games, Capcom
+
+Tue, 31 Mar 2026 23:00:20 GMT
+
+https://screenrant.com/resident-evil-remakes-new-games-2026/
+
+As Resident Evil rumors and leaks stir, the franchise could have a wonderfully bright future with a ton of games, ports, and remakes on the way.
+---------
+
+# Netflix Reveals First Look at The Adventures of Cliff Booth
+
+Movies, The Adventures of Cliff Booth, Once Upon a Time in Hollywood
+
+Tue, 31 Mar 2026 23:19:35 GMT
+
+https://www.cbr.com/the-adventures-of-cliff-booth-first-look/
+
+It's been seven years since a Quentin Tarantino movie was released.
+---------
+
+# 10 Game Movies That Paved the Way for The Super Mario Galaxy Movie
+
+Games, The Super Mario Galaxy Movie, Video Games
+
+Tue, 31 Mar 2026 23:00:12 GMT
+
+https://www.cbr.com/video-game-movies-paved-way-for-super-mario-galaxy-movie-list/
+
+With The Super Mario Galaxy Movie coming up, take a look back at these great video game movies that paved the way for Illumination's hit franchise.
+---------
+
+# HBO's Most Divisive Sci-Fi Saga Officially Begins Filming Final Season
+
+TV News, The Last of Us, HBO Max, HBO
+
+Tue, 31 Mar 2026 23:33:27 GMT
+
+https://collider.com/the-last-of-us-season-3-set-images-filming-start/
+
+The Last of Us Season 3 is prepping for filming as new set photos from the supposed series finale of have surfaced online.
+---------
+
+# Mike Flanagan’s Next Horror Series Could Finally Fix ‘Yellowjackets’ Biggest Problem
+
+TV Features, Yellowjackets, Carrie, Mike Flanagan, Stephen King
+
+Tue, 31 Mar 2026 23:30:14 GMT
+
+https://collider.com/mike-flanagan-carrie-series-yellowjackets-replacement/
+
+Mike Flanagan is adapting Carrie, Stephen King's debut novel about the insurmountable power of a teenage girl.
+---------
+
+# The Terminator Franchise Returns This Week
+
+Movie News, Terminator 2: Judgment Day, James Cameron, Linda Hamilton, Paramount Plus
+
+Tue, 31 Mar 2026 23:30:14 GMT
+
+https://collider.com/terminator-franchise-streaming-paramount-plus-april-2026-james-cameron/
+
+Explore James Cameron's groundbreaking sci-fi action Terminator franchise as the films arrive on a new streaming home this week. Get the details here.
+---------
+
+# Paramount's $1 Billion Horror Franchise Sequel Sent To Digital After Bleak 1-Month Theatrical Run
+
+Movie News, Scream, Scream 7, Paramount Plus
+
+Tue, 31 Mar 2026 23:16:13 GMT
+
+https://collider.com/scream-7-digital-release-date-paramount-only-1-month-in-theaters/
+
+Scream 7's short 31-day theatrical run to premium video on demand raises questions about Paramount's strategy, despite strong box office results.
+---------
+
+# One of the Biggest Anime Movies Ever Is Now Available to Stream for Free
+
+Movie News, Demon Slayer, Demon Slayer the Movie: Mugen Train, Anime, Fantasy
+
+Tue, 31 Mar 2026 23:00:13 GMT
+
+https://collider.com/demon-slayer-mugen-train-streaming-free-amasian-tv-crunchyroll-highest-grossing-anime/
+
+Demon Slayer: Kimetsu No Yaiba - The Movie: Mugen Train has a new free streaming home, 6 years after its theatrical release. Here's where to watch it.
+---------
+
+# 'Chicago Fire,' 'Chicago PD,' & More Renewed at NBC
+
+TV News, Chicago Fire, Chicago Med, Chicago P.D.
+
+Tue, 31 Mar 2026 23:31:56 GMT
+
+https://movieweb.com/chicago-fire-chicago-pd-renewed/
+
+The interconnected series' on NBC and Peacock will continue to thrive despite last-minute discussions during last years' renewal.
+---------
+
+# Stephen Colbert's 'Lord of the Rings' Sequel Can Finally End Frodo Vs Sam "Hero" Debate
+
+Features, The Lord of the Rings
+
+Tue, 31 Mar 2026 23:01:20 GMT
+
+https://movieweb.com/lord-of-the-rings-frodo-barrow-wights/
+
+Stephen Colbert's movie will unveil a dark secret from 'The Fellowship of the Ring', but this isn't about retconning; it's about recontextualizing.
+---------
+
 # Taika Waititi Wants To Develop Adaptation Of Major Game Studio's Library
 
 Movies, Taika Waititi
