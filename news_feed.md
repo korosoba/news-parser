@@ -1,3 +1,146 @@
+# Lord Of The Rings Open-World RPG Leak Teases The Perfect Developer
+
+Gaming, The Lord of the Rings, Kingdom Come: Deliverance
+
+Tue, 31 Mar 2026 11:33:37 GMT
+
+https://screenrant.com/lord-of-the-rings-open-world-rpg-developer-leak/
+
+New rumors suggest that the developer behind the upcoming Lord of the Rings RPG could be Kingdom Come developer Warhorse Studios.
+---------
+
+# Terry Crews Starred In Groundbreaking Sci-Fi Satire Sorry to Bother You
+
+Movies, Sorry to Bother You
+
+Tue, 31 Mar 2026 11:00:18 GMT
+
+https://screenrant.com/terry-crews-sorry-to-bother-you-sci-fi-comedy-movie/
+
+Terry Crews has had an incredibly varied career as an actor, but the most extraordinary movie he's ever acted in is surely this 2018 masterpiece.
+---------
+
+# Steam Drops 3 Free Downloads You've Until April 6 To Claim
+
+Gaming, Steam, Valve
+
+Tue, 31 Mar 2026 11:00:18 GMT
+
+https://screenrant.com/steam-free-downloads-april-2026/
+
+Steam has three time-limited ways to customize your profile, as part of their ongoing House and Home Fest.
+---------
+
+# Darwin's Paradox! Is a Pixar-Style Platformer Konami Fans Shouldn't Miss
+
+Games, konami
+
+Tue, 31 Mar 2026 11:30:12 GMT
+
+https://www.cbr.com/darwins-paradox-review/
+
+Darwin's Paradox is a charming cinematic platformer from Konami that feels like a playable Pixar short.
+---------
+
+# 10 Nintendo Characters That Deserve Comic Book Series
+
+Comics, Nintendo
+
+Tue, 31 Mar 2026 11:00:12 GMT
+
+https://www.cbr.com/nintendo-characters-that-need-their-own-comics/
+
+The Nintendo company is full of so many rich characters that it seems strange no one has fought to create a new comic universe featuring them all.
+---------
+
+# 10 Must-Watch '80s Shows, Ranked
+
+TV, 1980s, The Simpsons, Quantum Leap, Star Trek: The Next Generation
+
+Tue, 31 Mar 2026 11:34:12 GMT
+
+https://collider.com/best-80s-shows-must-watch-ranked/
+
+Star Trek: The Next Generation, Legend of the Galactic Heroes, and Quantum Leap are must-watch, nostalgic '80s shows.
+---------
+
+# One of the Best Crime Shows of All Time Is Even Better 5 Years Later
+
+TV Features, Mr Inbetween, Hulu, Crime, FX
+
+Tue, 31 Mar 2026 11:33:12 GMT
+
+https://collider.com/mr-inbetween-best-crime-show-streaming-hulu/
+
+Scott Ryan's gritty FX series Mr. Inbetween is an impressive crime comedy about a hitman balancing his job and his connection with his daughter.
+---------
+
+# Prime Video’s Biggest Sci-Fi Hit Has Quietly Achieved a Huge Milestone
+
+TV News, Prime Video, Fallout, Sci-Fi, Ella Purnell
+
+Tue, 31 Mar 2026 11:30:12 GMT
+
+https://collider.com/prime-video-biggest-sci-fi-hit-fallout-huge-milestone-102-days-streaming-success/
+
+Prime Video's biggest sci-fi hit, Fallout, has quietly reached a major milestone, ranking among the most-watched shows in America for over 100 days.
+---------
+
+# Peacock’s Forgotten 8-Part Sci-Fi Thriller Is Based on an Equally Terrifying Novel
+
+Horror, Peacock, Teacup, Yvonne Strahovski, Scott Speedman
+
+Tue, 31 Mar 2026 11:18:12 GMT
+
+https://collider.com/peacock-teacup-cancelled-sci-fi-horror-thriller-book-stinger/
+
+Teacup, James Wan’s short-lived Peacock horror series, is based on Robert McCammon’s terrifying Stinger.
+---------
+
+# 4 Years Later, Sylvester Stallone's Crushing Superhero Movie Still Delivers
+
+Movie Features, Sylvester Stallone, Samaritan, MGM, Prime Video
+
+Tue, 31 Mar 2026 11:18:12 GMT
+
+https://collider.com/sylvester-stallone-samaritan-prime-video-second-chance/
+
+Sylvester Stallone delivered his own unique take on the superhero genre with Samaritan, which features a few twists that make it worth watching.
+---------
+
+# 10 Sci-Fi Movies That Are Near-Perfect Masterpieces
+
+Movie, Science Fiction, Galaxy Quest, Predator, RoboCop
+
+Tue, 31 Mar 2026 11:04:13 GMT
+
+https://collider.com/sci-fi-movies-near-perfect-masterpieces/
+
+Classic sci-fi films like RoboCop and The Terminator are just shy of perfection, but that doesn't make them any less important to the genre's history.
+---------
+
+# Prime Video's Perfect Dad Movie Becomes a Late-Night Favorite
+
+Movie News, Prime Video, Jason Momoa, Action, streaming
+
+Tue, 31 Mar 2026 11:00:12 GMT
+
+https://collider.com/prime-video-the-wrecking-crew-streaming-hit-march-2026/
+
+Discover why The Wrecking Crew, starring Jason Momoa and Dave Bautista, has become Prime Video's most-watched Dad movie of 2026.
+---------
+
+# 5 Years Later, Marvel Has Finally Cracked the Code With Disney+ Shows
+
+Features, MCU
+
+Tue, 31 Mar 2026 11:00:16 GMT
+
+https://movieweb.com/marvel-disney-plus-shows-impressive/
+
+Marvel is hitting their stride with Disney+ content as new TV shows continue to focus on street-level superheroes.
+---------
+
 # PlayStation Plus Essential Free Games For April Slammed By Subscribers
 
 Gaming, PlayStation Plus
