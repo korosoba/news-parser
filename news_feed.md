@@ -1,3 +1,278 @@
+# Avatar 4 Gets Encouraging Production Update From Producer As Fire & Ash Hits Digital
+
+Movies, Avatar, Avatar 4
+
+Tue, 31 Mar 2026 14:39:44 GMT
+
+https://screenrant.com/avatar-4-filming-production-update-producer/
+
+EXCLUSIVE: Executive Producer Rae Sanchini shares a positive update on Avatar 4 as Fire and Ash becomes available on digital platforms.
+---------
+
+# HBO Max’s #2 Worldwide Movie Is A Blessing And A Curse For Its Upcoming Fantasy Series
+
+Streaming TV, Harry Potter, Harry Potter and the Sorcerer's Stone
+
+Tue, 31 Mar 2026 14:19:02 GMT
+
+https://screenrant.com/harry-potter-hbo-number-two-movie-blessing-curse-tv-adaptation/
+
+A movie from two decades ago has jumped to the top of HBO’s streaming charts, spelling both positives and negatives for an upcoming fantasy show.
+---------
+
+# Zelda: Ocarina Of Time Multiplayer Is Real, And It's Utter Chaos
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Tue, 31 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-multiplayer-unofficial-gameplay/
+
+Ocarina of Time is already an all-time great game in its own right, but adding multiplayer adds a whole new layer of chaotic fun.
+---------
+
+# Eraserhead: David Lynch's Distinctive Debut That's Still Creepy After 49 Years
+
+Movies, Eraserhead
+
+Tue, 31 Mar 2026 14:00:19 GMT
+
+https://screenrant.com/david-lynch-eraserhead-creepy-movie/
+
+Almost 50 years after it arrived on the midnight movie circuit, David Lynch's debut feature Eraserhead is still one of the creepiest films ever made.
+---------
+
+# The Greatest War Movie Ever Made Is Getting A New Streaming Home In April
+
+Movies, Saving Private Ryan, Paramount Plus
+
+Tue, 31 Mar 2026 13:55:24 GMT
+
+https://screenrant.com/saving-private-ryan-movie-paramount-plus-streaming-home/
+
+If you are a fan of war movies, then you can't miss what is the biggest of them now that it is set to arrive at a new streaming home in April.
+---------
+
+# GTA 6 Gamers In Love With Official Update From PlayStation
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Tue, 31 Mar 2026 13:40:01 GMT
+
+https://screenrant.com/gta-6-playstation-official-update-march-2026/
+
+Although November is still far away, GTA 6 fans are getting ready early thanks to a new update for the PlayStation 5 from Sony.
+---------
+
+# Every Track On Led Zeppelin's 'Presence' Ranked (50th Anniversary)
+
+Music, Led Zeppelin, Classic Rock, Rock
+
+Tue, 31 Mar 2026 13:38:29 GMT
+
+https://screenrant.com/led-zeppelin-presence-tracks-ranked/
+
+50 years ago, Led Zeppelin released 'Presence.' We rank every track on the iconic 1975 album.
+---------
+
+# PlayStation Plus Gamers Warned They've Last Chance To Grab Six Free Games
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Tue, 31 Mar 2026 13:19:24 GMT
+
+https://screenrant.com/playstation-plus-free-games-april-leaving-confirmed/
+
+You have a limited time to play these six games on PlayStation Plus before they're gone, and there's a chance a few won't come back.
+---------
+
+# Absolute Superman Reveals New Origin For Shazam
+
+DC Comics, Shazam, Black Adam, Superman
+
+Tue, 31 Mar 2026 13:11:24 GMT
+
+https://screenrant.com/new-shazam-origin-absolute-superman/
+
+DC's new Superman installment introduces a reimagined version of a hero and villain with a fresh origin and potential to reclaim his iconic status.
+---------
+
+# New Yellowstone Report Reveals The Real Reason Why Monica Dutton Was Killed In Marshals
+
+TV, Marshals, Yellowstone
+
+Tue, 31 Mar 2026 13:10:50 GMT
+
+https://screenrant.com/yellowstone-marshals-report-monica-dutton-death-explained/
+
+A new report sheds light on why Monica Dutton was killed off in Marshals, revealing that the shocking death was motivated by a surprising reason.
+---------
+
+# The Punisher Gets An Unbelievable New Look Ahead Of Spider-Man: Brand New Day
+
+Comics, Marvel, Marvel Comics, What If...?, The Punisher
+
+Tue, 31 Mar 2026 14:17:56 GMT
+
+https://www.cbr.com/the-punisher-gets-unbelievable-new-look-ahead-of-spider-man-brand-new-day/
+
+No one has ever seen The Punisher look like this before — not ever — his upcoming installment in What If ... ? blowing the doors off of imagination.
+---------
+
+# 50 Years Ago, DC Took Superman to The Distant Future of...2001?!
+
+Comics, Superman
+
+Tue, 31 Mar 2026 13:56:32 GMT
+
+https://www.cbr.com/superman-2001-comic-book-50th-anniversary/
+
+A look back to March 1976, when DC brought Superman into the distant future of...2001!
+---------
+
+# Choose The Greatest Nintendo Character Of All Time In CBR's Backstage Pass
+
+CBR Exclusives, Daredevil, Daredevil: Born Again, CBR's Backstage Pass, Nintendo
+
+Tue, 31 Mar 2026 13:34:59 GMT
+
+https://www.cbr.com/choose-the-greatest-nintendo-character-of-all-time-in-cbrs-backstage-pass/
+
+Nintendo Week kicks off on CBR this week, and you have a chance to win cool prizes!
+---------
+
+# 7 Hidden Leaf Ninja Who Are Completely Useless in Naruto: Shippuden
+
+Anime, Naruto: Shippuden, Naruto
+
+Tue, 31 Mar 2026 13:31:03 GMT
+
+https://www.cbr.com/naruto-shippuden-hidden-leaf-useless-characters/
+
+Once Naruto's story graduates to Naruto: Shippuden, many of the beloved Hidden Leaf shinobi who made fans fall in love with the story stop mattering.
+---------
+
+# Masters of the Universe Releases a New Trailer Bringing Eternia to Life
+
+Movies, Masters of the Universe
+
+Tue, 31 Mar 2026 13:16:47 GMT
+
+https://www.cbr.com/masters-of-the-universe-second-trailer/
+
+Only months ahead of its widespread theatrical release, Masters of the Universe gives fans one more chance to glimpse Eternia ahead of time.
+---------
+
+# Robert Pattinson & Zendaya's The Drama Rotten Tomatoes Score Unveiled
+
+Movies, Rotten Tomatoes, The Drama
+
+Tue, 31 Mar 2026 13:13:14 GMT
+
+https://www.cbr.com/robert-pattinson-zendaya-the-drama-rotten-tomatoes-score/
+
+This is despite the plot being spoiled by several outlets.
+---------
+
+# 'Go for It, Nakamura-Kun!!' Review: Crunchyroll's Anime Adaptation Takes a Good Manga and Makes It Great
+
+TV Reviews, Go for It, Nakamura-Kun!!, Crunchyroll, Anime, Romance
+
+Tue, 31 Mar 2026 14:00:13 GMT
+
+https://collider.com/go-for-it-nakamura-kun-anime-crunchyroll-review/
+
+Crunchyroll's Go for It, Nakamura-Kun!! anime adaptation brings a niche BL manga to life with expressive animation and heightened comedy.
+---------
+
+# He-Man and Skeletor Clash in Epic New 'Masters of the Universe' Trailer
+
+Movie News, Masters of the Universe, Travis Knight, Nicholas Galitzine, Camila Mendes
+
+Tue, 31 Mar 2026 13:03:27 GMT
+
+https://collider.com/he-man-masters-of-the-universe-trailer/
+
+Get a first look at the epic battle between He-Man and Skeletor in the new trailer for Masters of the Universe, hitting theaters June 5.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — March 31, 2026
+
+TV, The Office, Parks and Recreation, Winning Time: The Rise of the Lakers Dynasty, Running Point
+
+Tue, 31 Mar 2026 13:01:13 GMT
+
+https://collider.com/tv-quiz-mar-31-2026-basketball-bonanza/
+
+It's the last day of March, and the Madness is almost behind us. Huddle up and see what you know about these depictions of basketball on television.
+---------
+
+# 'Sniper: No Nation' Locks & Loads New Images From Next Month's Action Thriller Sequel
+
+Movie News, Sniper, Sniper: The Last Stand, Action, Thriller
+
+Tue, 31 Mar 2026 14:15:39 GMT
+
+https://movieweb.com/sniper-no-nation-new-images-action/
+
+The long-running action movie throwback franchise returns with another explosive mission in April.
+---------
+
+# Masterpiece Western 'Once Upon a Time in the West' is Streaming on Paramount+ in April 2026
+
+Movie News, Western, Once Upon a Time in the West, Paramount Plus
+
+Tue, 31 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/once-upon-time-west-best-western-stream-april-2026/
+
+One of the greatest westerns ever made, Sergio Leone's 'Once Upon a Time in the West,' will stream on Paramount+ from tomorrow.
+---------
+
+# 'Tales From the Loop' is the Perfect Sci-Fi Show for 'Stranger Things' Fans
+
+Features, Stranger Things, Tales from the Loop
+
+Tue, 31 Mar 2026 14:00:17 GMT
+
+https://movieweb.com/tales-from-the-loop-stranger-things-replacement/
+
+'Stranger Things' fans will love 'Tales from the Loop,' the overlooked sci-fi TV series on Prime Video with only eight episodes.
+---------
+
+# 'Agent From Above' Images Tease This Week's Release of Netflix Action Fantasy Series
+
+TV News, Agent from Above, Netflix, Action, Fantasy
+
+Tue, 31 Mar 2026 13:47:53 GMT
+
+https://movieweb.com/netflix-agent-from-above-images-action/
+
+The series has been seven years in the making, and is finally set to debut on streaming in April.
+---------
+
+# Annette Bening Joins Andy Samberg's Sci-Fi Rom-Com '42.6 Years'
+
+Movie News, Annette Bening, Andy Samberg, Comedy
+
+Tue, 31 Mar 2026 13:18:25 GMT
+
+https://movieweb.com/42-6-years-annette-bening-cast-romantic-lead/
+
+Annette Bening has replaced Jean Smart in the romantic lead role opposite Andy Samberg in Michael Schwartz's sci-fi comedy '42.6 Years.'
+---------
+
+# 'Masters of the Universe' Official Trailer Revealed by Amazon MGM Studios
+
+Movie News, Masters of the Universe
+
+Tue, 31 Mar 2026 13:02:09 GMT
+
+https://movieweb.com/new-masters-of-the-universe-trailer/
+
+The 'Masters of the Universe' film looks like a vibrant, action-packed time at the theaters.
+---------
+
 # 20 Years Ago Today Was A Monumental Day For James Gunn & His Hollywood Career
 
 Classic Movies, Slither, Explainer
