@@ -1,3 +1,344 @@
+# Prime Video Lands 2026’s Most Brutal Anime, And It Could Become A Masterpiece
+
+Anime, NIPPON SANGOKU: The Three Nations of the Crimson Sun, Prime Video
+
+Wed, 01 Apr 2026 01:45:54 GMT
+
+https://screenrant.com/nippon-sangoku-most-brutal-anime-2026/
+
+Prime Video secured what could be the best anime of spring 2026, a new dystopian seinen that's already surprising with its brutality and animation.
+---------
+
+# 5 Reasons Super Mario Galaxy Movie's Rotten Tomatoes Score Is Worse Than The First Movie's
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Wed, 01 Apr 2026 01:38:24 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-rotten-tomatoes-score-worse-reasons/
+
+The Super Mario Galaxy Movie has a significantly worse Rotten Tomatoes score than the first movie. Here's why reviews are harsher for the sequel.
+---------
+
+# Where Is The Punisher During Daredevil: Born Again Season 2? Frank Castle's MCU Status Explained
+
+Superheroes, Daredevil: Born Again
+
+Wed, 01 Apr 2026 01:31:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-frank-castle-status-explained/
+
+Daredevil: Born Again season 2 does not feature The Punisher, leading many to wonder where Frank Castle currently is in the Marvel Universe.
+---------
+
+# HBO's New Superhero Show Set In James Gunn's DCU Is Not What Fans Were Expecting
+
+Streaming TV, DC Universe, Lanterns
+
+Wed, 01 Apr 2026 01:15:20 GMT
+
+https://screenrant.com/lanterns-dcu-not-typical-superhero-show/
+
+A new superhero show set firmly in James Gunn’s DC Universe does not seem all that superhero-ish, proving to be different from what fans expected.
+---------
+
+# The MCU Reveals The Fate Of Another Netflix Marvel Character
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 01 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-netflix-character-reveal/
+
+After the fans asked for it, Marvel finally confirms the status of a character from the Netflix The Defenders franchise, and it makes perfect sense.
+---------
+
+# HBO's Most Controversial Show Of All Time Will Take Over The World In 2 Weeks
+
+Streaming TV, Euphoria
+
+Wed, 01 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/hbo-euphoria-season-3-success-take-over-world/
+
+Euphoria was already one of TV's most controversial shows, but the recent trailer for season 3 is upping the stakes, with Euphoria set to shock.
+---------
+
+# How To Beat Giovanni In Pokémon GO (April 2026)
+
+Gaming, Pokemon GO, Pokemon, Mobile, Live Service Games
+
+Wed, 01 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/pokemon-go-how-to-beat-giovanni-counters-april-2026/
+
+Team Rocket mastermind Giovanni returns in Pokemon GO for April 2026, bringing back a familiar team that may change as the month goes on.
+---------
+
+# Who Plays Martin Best's Ex Dr. Montgomery On Best Medicine? Where You've Seen The Actress Before
+
+Network TV, Best Medicine
+
+Wed, 01 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/best-medicine-martin-ex-doctor-montgomery-eliza-coupe-explained/
+
+Best Medicine has introduced Dr. Eden Montgomery, Dr. Martin Best's ex and Louisa's fertility specialist. Here's where you've seen the actress before.
+---------
+
+# Star Wars' New Series Pays Off The Franchise's Best Retcon
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Wed, 01 Apr 2026 00:45:19 GMT
+
+https://screenrant.com/star-wars-maul-retcon-shadow-lord-pay-off/
+
+Star Wars is a franchise filled with retcons due to its vast timeline, and the wisest one ever will finally be paid off in the best way.
+---------
+
+# 9 Dark Fantasy Berserk Replacements That Are All Near-Perfect
+
+Anime, Berserk
+
+Wed, 01 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/best-dark-fantasy-anime-berserk-replacements/
+
+Berserk has cemented itself as the pinnacle of the dark fantasy subgenre, and there are a couple of series good enough to be considered replacements.
+---------
+
+# Manga Creators Unite to Celebrate Witch Hat Atelier's Anime Release
+
+Anime, Witch Hat Atelier, Medalist
+
+Wed, 01 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/manga-creators-support-witch-hat-atelier-anime-crunchyroll-release/
+
+A wave of support illustrations from various manga artist and online artists are hyping Witch Hat Atelier's anime release.
+---------
+
+# 10 Near-Perfect Anime Ruined By 1 Bad Plot Twist
+
+Anime
+
+Wed, 01 Apr 2026 01:25:13 GMT
+
+https://www.cbr.com/best-anime-bad-plot-twist/
+
+Incredible anime like Wonder Egg Priority and Aldnoah.Zero were derailed by a single misstep in their story.
+---------
+
+# 10 Years Later, 'Super Mario Run' Is Worth Revisiting
+
+Games, Nintendo, Mario, Mobile
+
+Wed, 01 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/most-underrated-nintendo-game-super-mario-run-10th-anniversary/
+
+This forgotten Mario game doesn't have the strongest legacy, but it still deserves to be remembered and enjoyed.
+---------
+
+# Love Story Is Officially the Most Watched Show in the World on Disney+
+
+TV, Love Story
+
+Wed, 01 Apr 2026 00:19:24 GMT
+
+https://www.cbr.com/love-story-disney-plus-streaming/
+
+Ryan Murphy's controversy-laced drama is a major streaming sensation.
+---------
+
+# The Legend of Zelda Anime Can Finally Dethrone Solo Leveling on Crunchyroll
+
+Anime, The Legend of Zelda, Solo Leveling, Nintendo
+
+Wed, 01 Apr 2026 00:15:13 GMT
+
+https://www.cbr.com/zelda-twilight-priness-manga-anime-adaptation-beat-solo-leveling/
+
+Zelda fans have been begging Nintendo for an anime for years, and an adaptation of its best manga could even rival Solo Leveling’s success.
+---------
+
+# Overlord Returns to Netflix After Removal From Streaming
+
+Anime, Overlord, Netflix
+
+Wed, 01 Apr 2026 00:02:27 GMT
+
+https://www.cbr.com/netflix-overlord-streaming-release-return/
+
+Netflix revives a beloved isekai anime after pulling the series from streaming last year.
+---------
+
+# Daniel Radcliffe's Swiss Army Man Saved the Actor From Only Being Harry Potter
+
+Movies, Harry Potter, Daniel Radcliffe, Swiss Army Man
+
+Wed, 01 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/swiss-army-man-saved-daniel-radcliffe/
+
+Daniel Radcliffe will always be Harry Potter, but Swiss Army Man elevated his career into something else.
+---------
+
+# The Stargate SG-1 Episode With 1 of the Darkest Endings in Sci-Fi
+
+TV, Stargate, Stargate SG-1, Sci-Fi
+
+Wed, 01 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/stargate-sg-1-the-other-side-dark-sci-fi-ending/
+
+Stargate SG-1 is usually a lighter sci-fi show, but one episode pushed the envelope into the morally gray with an incredibly dark ending.
+---------
+
+# Netflix’s Masterful 6-Part Comedy Is the Perfect Weekend Binge 4 Years Later
+
+TV Features, Murderville, Will Arnett, Comedy, Netflix
+
+Wed, 01 Apr 2026 01:47:13 GMT
+
+https://collider.com/murderville-netflix-masterful-comedy-weekend-binge/
+
+Murderville remains a wildly funny Netflix binge, blending improv chaos with murder mystery in six quick, unpredictable episodes.
+---------
+
+# 1 Year Later, The Horror Movie With the "Greatest Line in R-Rated History" Is a Streaming Juggernaut
+
+Movie News, Weapons, Se7en, Zach Cregger, Horror
+
+Wed, 01 Apr 2026 01:45:13 GMT
+
+https://collider.com/weapons-zach-cregger-horror-hit-streaming-success-prime-video-march-2026/
+
+The Oscar-winning horror film Weapons is slaying competition on streaming after delivering an exceptional box-office performance in 2025.
+---------
+
+# 10 Zombie Movies That Are Scarier Than '28 Years Later: The Bone Temple'
+
+Movie, Dawn of the Dead, 28 Days Later, Night of the Living Dead, 28 Years Later: The Bone Temple
+
+Wed, 01 Apr 2026 01:44:12 GMT
+
+https://collider.com/zombie-movies-scarier-than-28-years-later-the-bone-temple/
+
+REC, The Sadness, and both versions of Dawn of the Dead are great zombie movies that are even scarier than 28 Days Later: The Bone Temple.
+---------
+
+# 'The Last of Us' Meets 'Terminator' in This Sci-Fi Bomb Redeeming Itself on Streaming
+
+Movie News, The Creator, Gareth Edwards, John David Washington, Sci-Fi
+
+Wed, 01 Apr 2026 01:31:12 GMT
+
+https://collider.com/the-creator-gareth-edwards-sci-fi-movie-streaming-success-netflix-march-2026/
+
+Gareth Edwards' divisive sci-fi film The Creator, starring John David Washington, is having a resurgence on Netflix. Find out more here.
+---------
+
+# 7 Years Later, Apple TV’s Oldest Sci-Fi Series Is Still One of Its Biggest Hits
+
+TV News, For All Mankind, Apple TV, Sci-Fi, Drama
+
+Wed, 01 Apr 2026 01:15:13 GMT
+
+https://collider.com/for-all-mankind-season-5-sci-fi-franchise-apple-tv-streaming-success-march-2026/
+
+After a two-year hiatus, Apple TV's original flagship sci-fi series has returned to dominate the streaming charts. Get all the details.
+---------
+
+# 10 Thriller Movies That Will Keep You Hooked From Start to Finish
+
+Movie, Thriller, Wind River, The Silence of the Lambs, Se7en
+
+Wed, 01 Apr 2026 01:12:12 GMT
+
+https://collider.com/thriller-movies-that-will-keep-you-hooked-from-start-to-finish/
+
+Gripping thrillers like Se7en and Gone Girl lock you in early and never let the tension slip for a second.
+---------
+
+# Guy Ritchie's 8-Part Prime Video Thriller Rules Streaming Charts 3 Weeks Later
+
+TV News, Guy Ritchie, Young Sherlock, Prime Video, Thriller
+
+Wed, 01 Apr 2026 01:00:13 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-prime-video-streaming-success-march-2026/
+
+Guy Ritchie's new series dominates Prime Video, becoming the most popular show three weeks after all episodes were released. Get all the details here.
+---------
+
+# ‘70s Westerns That Are 10/10 But Nobody Remembers
+
+Movie, Western, 1970s, Duck, You Sucker, Little Big Man
+
+Wed, 01 Apr 2026 00:55:13 GMT
+
+https://collider.com/1970s-westerns-nobody-remembers/
+
+Two Mules for Sister Sara, Pat Garrett and Billy the Kid, Little Big Man, and more make up our list of '70s Western masterpieces nobody remembers.
+---------
+
+# 10 Most Perfectly Directed Action Epics, Ranked
+
+Movie, Action, Mad Max: Fury Road, The Matrix, Gladiator
+
+Wed, 01 Apr 2026 00:51:13 GMT
+
+https://collider.com/action-epics-perfectly-directed-ranked/
+
+The Lord of the Rings: The Return of the King, Dune: Part Two, and Mad: Max Fury Road are perfectly directed action epic movie masterpieces.
+---------
+
+# Hulu’s Most Brilliant Sci-Fi Series Breaks Streaming Charts After Season 2 Finale
+
+TV News, Hulu, Sci-Fi, Thriller, Paradise
+
+Wed, 01 Apr 2026 00:45:12 GMT
+
+https://collider.com/paradise-season-2-finale-sci-fi-thriller-hulu-streaming-success-march-2026/
+
+Following an explosive series finale, Hulu's 3-part sci-fi thriller dominates on Hulu and Disney+'s streaming charts. Get all the details here.
+---------
+
+# Maggie Gyllenhaal's Horror Revival 'The Bride!' Already Hitting Digital Next Week
+
+Movie News, The Bride!, Jessie Buckley, Maggie Gyllenhaal, Christian Bale
+
+Wed, 01 Apr 2026 00:45:21 GMT
+
+https://movieweb.com/the-bride-digital-release-date/
+
+Despite its all-star cast, the reboot fell far short of financial and critical expectations.
+---------
+
+# 'Project Hail Mary's $300 Million Box Office Run Can Still Result in a Flop
+
+Features, Project Hail Mary
+
+Wed, 01 Apr 2026 00:00:18 GMT
+
+https://movieweb.com/project-hail-mary-potential-amazon-flop/
+
+Can 'Project Hail Mary' starring Ryan Gosling continue its massive box office success and become profitable for Amazon MGM?
+---------
+
+# 'Paradise' Stars Address Season 2's Shocking Twist and What's Ahead for Season 3
+
+TV News, Paradise, Sterling K. Brown
+
+Tue, 31 Mar 2026 23:51:49 GMT
+
+https://movieweb.com/paradise-stars-address-season-2s-shocking-twist/
+
+The post-apocalyptic thriller sets Sterling K. Brown up for a brand new hero's journey.
+---------
+
 # Apple TV's 3-Part Space Opera Masterpiece Series Would've Probably Been Canceled On Netflix
 
 Streaming TV, Foundation, Sci-Fi, Apple TV
