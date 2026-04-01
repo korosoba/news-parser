@@ -1,3 +1,201 @@
+# It's Not Just Cope, Chainsaw Man's True Final Chapter Has An Official Release Date
+
+Anime, Chainsaw Man
+
+Wed, 01 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/chainsaw-man-chapter-233-last-chapter-release/
+
+Chainsaw Man is getting another chapter after the series' sudden and controversial ending, and its official release date has been revealed.
+---------
+
+# Steam Drops Free Fantasy RPG That'll Gobble Up Your Free Time
+
+Gaming, Steam, PC, RPG, Indie
+
+Wed, 01 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/steam-free-fantasy-rpg-april-2026/
+
+A new fantasy RPG has just arrived entirely for free on Steam, and the game will certainly have you hooked during your free and idle time.
+---------
+
+# Zachary Levi's New Historical Movie With 98% Audience RT Score Is Releasing On Prime Video This Month
+
+Movies, Sarah's Oil
+
+Wed, 01 Apr 2026 22:54:46 GMT
+
+https://screenrant.com/sarahs-oil-prime-video-streaming-release-date-zachary-levi/
+
+Zachary Levi's new historical movie, with a 98% audience score on Rotten Tomatoes, is officially releasing on Prime Video later this month.
+---------
+
+# Prime Video’s 7-Part Crime Thriller With Billie Eilish Is One Of Its Best For An Easy One-Night Binge
+
+Streaming TV, Prime Video, Swarm
+
+Wed, 01 Apr 2026 22:47:19 GMT
+
+https://screenrant.com/prime-video-swarm-series-binge-watch/
+
+Swarm, a 7-part crime thriller featuring Billie Eilish's first scripted acting performance, offers a gripping one-night binge on Prime Video tonight.
+---------
+
+# How The Super Mario Galaxy Movie Changes Bowser Teased By Jack Black
+
+Movies, Jack Black, The Super Mario Galaxy Movie, Super Mario Bros.
+
+Wed, 01 Apr 2026 22:30:55 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-bowser-change-personality-jack-black/
+
+Exclusive: Jack Black teases how Bowser has changed in The Super Mario Galaxy Movie after his brutal defeat against Mario and Luigi in the 2023 film.
+---------
+
+# Netflix Has a New #1 Anime, and It's Making Them Lose Fans at a Rapid Rate
+
+Anime, Jojo's Bizarre Adventure, JoJo's Bizarre Adventure - Season 6, Netflix
+
+Wed, 01 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/netflix-jojos-bizarre-adventure-steel-ball-run-lose-anime-fans/
+
+Some truly cursed memes have emerged from backlash against Netflix's JoJo's Bizarre Adventure rollout, but their demands aren't wholly unreasonable.
+---------
+
+# 11 Years Later, Dragon Ball Finally Brings Back Farmer Goku
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus, Dragon Ball Super
+
+Wed, 01 Apr 2026 23:03:08 GMT
+
+https://www.cbr.com/dragon-ball-legends-farmer-goku-trailer/
+
+Goku has once again retired from fighting to live the peaceful life of a farmer in a brand-new Dragon Ball release.
+---------
+
+# 80s Movie Soundtracks That Had the Decade's Best Music
+
+Movies, Batman
+
+Wed, 01 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/forgotten-80s-movie-soundtracks-best-music-list/
+
+The 1980s was the golden age of movie soundtracks, and these overlooked albums still hold some of the decade’s best music.
+---------
+
+# 8 Rare R-Rated Animated Series That Can Be Called Masterpieces
+
+TV, Spawn, South Park, Animation
+
+Wed, 01 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/rare-adult-animated-masterpieces-list/
+
+These R-rated animated masterpieces prove that the medium isn't just for kids, offering gritty stories and characters that rival live-action.
+---------
+
+# Daredevil: Born Again Star's Perfect Sitcom Is Now Available to Stream for Free on Tubi
+
+TV, Don't Trust The B---- in Apartment 23, Tubi
+
+Wed, 01 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/krysten-ritter-sitcom-dont-trust-the-b-streaming-tubi-april-2026/
+
+The hilarious and criminally underrated sitcom is now available to stream for free.
+---------
+
+# New Sci-Fi Masterpiece Quickly Defeats Dwayne Johnson’s Franchise-Ending Superhero Bomb
+
+Movie News, Dwayne Johnson, Project Hail Mary, Ryan Gosling, Black Adam
+
+Wed, 01 Apr 2026 23:30:12 GMT
+
+https://collider.com/ryan-gosling-sci-fi-epic-project-hail-mary-overtakes-dwayne-johnson-superhero-bomb-black-adam-box-office-300-million/
+
+Ryan Gosling's Project Hail Mary has surpassed the lifetime box-office haul of Dwayne Johnson's ill-fated Black Adam in under two weeks.
+---------
+
+# 20 Years Later, This Remains the Greatest Sci-Fi Adventure Series for 'Doctor Who' Fans
+
+TV Features, Torchwood, Doctor Who, Buffy The Vampire Slayer, John Barrowman
+
+Wed, 01 Apr 2026 23:25:11 GMT
+
+https://collider.com/torchwood-doctor-who-sci-fi-adventure-series/
+
+Russell T Davies' Torchwood is perfect for Doctor Who fans looking for more complex, diverse, and adult stories set in the same universe.
+---------
+
+# 10 Most Intense Vampire Movies, Ranked
+
+Movie, Sinners, Vampire, Horror, Let the Right One In
+
+Wed, 01 Apr 2026 23:21:12 GMT
+
+https://collider.com/most-intense-vampire-movies-ranked/
+
+Sinners, Let the Right One In, and The Lost Boys are all among the best and most intense vampire movies ever made.
+---------
+
+# 10 Most Intense Thriller Shows of All Time
+
+TV, Thriller, Severance, Squid Game, Yellowjackets
+
+Wed, 01 Apr 2026 23:12:13 GMT
+
+https://collider.com/most-intense-thriller-shows-all-time/
+
+Severance, Yellowjackets, Squid Game, Breaking Bad, The Night Agent, and more make up our list of the most intense thriller shows of all time.
+---------
+
+# 'Reacher' Star's Gritty Netflix Sci-Fi Thriller Finally Slows Down After 200M Hours Watched
+
+TV News, War Machine, Netflix, Sci-Fi, Thriller
+
+Wed, 01 Apr 2026 23:00:13 GMT
+
+https://collider.com/reacher-star-alan-ritchson-war-machine-netflix-sci-fi-thriller-streaming-drop-april-2026/
+
+Netflix landed its biggest movie of 2026 with over 100 million views, but the film is now losing steam on streaming. Get all the details.
+---------
+
+# This Sleeper-Hit 5-Part Fantasy Sitcom Officially Needs To End With Season 6
+
+TV Features, Ghosts, Rose McIver, CBS, Utkarsh Ambudkar
+
+Wed, 01 Apr 2026 22:57:12 GMT
+
+https://collider.com/fantasy-sitcom-ghosts-needs-to-end-season-6/
+
+CBS’ hit fantasy sitcom Ghosts has been renewed for Season 6, but it should also be its last.
+---------
+
+# Netflix's 'Something Very Bad Is Going to Happen' Is a Wild One-Night Binge
+
+Features, Something Very Bad Is Going to Happen, Netflix
+
+Wed, 01 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/something-very-bad-is-going-to-happen-netflix-binge/
+
+'Something Very Bad Is Going to Happen' is a new Netflix thriller series produced by the Duffer Brothers about a couple who are getting married.
+---------
+
+# 'Bosch' Star Titus Welliver Says There Have Been Talks for More 'Legacy'
+
+TV News, Bosch, Bosch: Legacy, Titus Welliver
+
+Wed, 01 Apr 2026 22:38:09 GMT
+
+https://movieweb.com/bosch-legacy-future-update-titus-welliver/
+
+The 'Bosch' spin-off came to an end after three seasons.
+---------
+
 # Homelander's Biggest Adversary Isn't The Boys In Season 5
 
 TV, The Boys, The Boys - Season 5
