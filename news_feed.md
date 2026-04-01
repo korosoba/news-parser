@@ -1,3 +1,168 @@
+# God Of War Has Found The Perfect Kratos Replacement For Upcoming Game
+
+Gaming, God of War
+
+Wed, 01 Apr 2026 11:30:21 GMT
+
+https://screenrant.com/god-of-war-kratos-replaced-new-playstation-game/
+
+The God of War franchise is set to introduce a new protagonist, Faye, as the lead character in the upcoming installment.
+---------
+
+# Lord Of The Rings Open-World RPG Gameplay Unites Gamers
+
+Gaming, The Lord of the Rings, Middle-Earth: Shadow of War, The Witcher 3: Wild Hunt, The Legend of Zelda: Breath of the Wild, Kingdom Come: Deliverance
+
+Wed, 01 Apr 2026 11:25:23 GMT
+
+https://screenrant.com/lord-of-the-rings-rpg-gameplay-speculation/
+
+Lord of the Rings fans eagerly anticipate a new RPG, debating whether it should be inspired by Zelda, Kingdom Come, or something entirely different.
+---------
+
+# Halo's Master Chief Replacement Is Dividing Gamers
+
+Gaming, Halo, Master Chief
+
+Wed, 01 Apr 2026 11:17:20 GMT
+
+https://screenrant.com/halo-master-chief-replacement-fan-reaction/
+
+If Master Chief is ever replaced as the face of the Halo franchise, opinion is heavily divided on who exactly should replace him.
+---------
+
+# Hogwarts Legacy Just Got A Major Update
+
+Gaming, Hogwarts Legacy, Harry Potter, Nvidia
+
+Wed, 01 Apr 2026 10:48:44 GMT
+
+https://screenrant.com/hogwarts-legacy-official-nvidia-update-april-2026/
+
+Hogwarts Legacy can now take advantage of DLSS 4.5 Dynamic Multi Frame Generation and Multi Frame Generation 6X after Nvidia released the new tech.
+---------
+
+# 10 Marvel and Nintendo Crossover Fans Have Been Dreaming Of
+
+Comics, Nintendo, Marvel
+
+Wed, 01 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/most-wanted-nintendo-marvel-crossovers/
+
+Nintendo's character roster is truly iconic and could contribute to a few dream crossovers with the heroes and villains of the Marvel Universe.
+---------
+
+# Hulu's 'Paradise' Just Set Up 10 Unexpected Season 3 Mysteries
+
+TV, Paradise, Sterling K. Brown, Hulu, Sci-Fi
+
+Wed, 01 Apr 2026 11:41:12 GMT
+
+https://collider.com/hulu-paradise-season-3-mysteries/
+
+Paradise Season 2 has concluded, and with Season 3 confirmed to be its last, there are some enticing mysteries still left to solve in the Hulu show.
+---------
+
+# 10 Forgotten Sci-Fi Movies That Are Still Perfect Masterpieces Today
+
+Movie, Science Fiction, Moon, Threads, Brazil
+
+Wed, 01 Apr 2026 11:36:13 GMT
+
+https://collider.com/forgotten-sci-fi-movies-perfect-masterpieces/
+
+From '70s gems like Silent Running to modern-day marvels like Moon, these forgotten sci-fi movies stand out as overlooked masterpieces in the genre.
+---------
+
+# HBO Max's Colossal Record-Breaking 'Ted Lasso' Rival Sneaks Up on 'The Pitt'
+
+TV News, Rooster, The Pitt, HBO Max, Steve Carell
+
+Wed, 01 Apr 2026 11:31:12 GMT
+
+https://collider.com/hbo-max-steve-carell-series-rooster-streaming-success-march-2026/
+
+HBO Max's new hit series starring Steve Carell is coming for The Pitt's top spot on streaming charts.
+---------
+
+# The 10 Heaviest Movies Ever Made, Ranked
+
+Movie, Come And See, Twin Peaks: Fire Walk With Me, Manchester By the Sea, Blonde
+
+Wed, 01 Apr 2026 11:17:12 GMT
+
+https://collider.com/heaviest-movies-of-all-time-ranked-emotional/
+
+Certain dramas go above and beyond in being heavy and depressing, including movies like Manchester by the Sea, Harakiri, and Dancer in the Dark.
+---------
+
+# One of the Best Action Franchises of All Time Has Arrived on Netflix & It Keeps Getting Better
+
+Movie, Mission: Impossible, Tom Cruise, Netflix
+
+Wed, 01 Apr 2026 11:09:12 GMT
+
+https://collider.com/mission-impossible-best-action-franchises-of-all-time-netflix-it-keeps-getting-better/
+
+Mission: Impossible is one of the greatest franchises ever and made Tom Cruise an iconic movie star, and 5 of them are coming to Netflix in April.
+---------
+
+# 11 Biggest Historical Changes ‘Billy the Kid’ Made to the True Story
+
+TV, Billy the Kid, Michael Hirst, Tom Blyth, Western
+
+Wed, 01 Apr 2026 11:09:12 GMT
+
+https://collider.com/billy-the-kid-mgm-plus-true-story-changes/
+
+The MGM+ series Billy the Kid makes considerable changes to the real history, from the origin of Billy’s moniker to his friendship with Jesse Evans.
+---------
+
+# In Just 2 Weeks, the Return of 'Peaky Blinders' Has Been Dethroned
+
+TV News, Peaky Blinders, WWE Raw, Peaky Blinders: The Immortal Man, Netflix
+
+Wed, 01 Apr 2026 11:00:12 GMT
+
+https://collider.com/cillian-murphy-peaky-blinders-the-immortal-man-overtaken-by-wwe-raw-streaming-success-netflix-march-2026/
+
+Peaky Blinders: The Immortal Man has a surprising competitor in the form of a 33-year-old sports classic. Read on for more.
+---------
+
+# Stephen Colbert's New Lord of the Rings Movie Could Be Middle-earth's Greatest Second Chance
+
+Movie Features, Stephen Colbert, Peter Jackson, The Lord of the Rings: Shadow of the Past, New Line Cinema
+
+Wed, 01 Apr 2026 10:39:12 GMT
+
+https://collider.com/stephen-colbert-lord-of-the-rings-missing-chapters-explained/
+
+Stephen Colbert is turning heads with news that he's writing a Lord of the Rings movie that draws on a major part of the books.
+---------
+
+# 'Timur' Trailer Sees Martial Arts Action Collide With a Real-Life War Rescue
+
+Movie News, War, Action, Thriller, Iko Uwais
+
+Wed, 01 Apr 2026 11:33:32 GMT
+
+https://movieweb.com/timur-trailer-martial-arts-action-war/
+
+'The Raid's Iko Uwais directs and stars in the action war thriller, which has seemingly now been given a US streaming release date.
+---------
+
+# Quentin Tarantino & Brad Pitt Reunite in New 'The Adventures of Cliff Booth' Images
+
+Movie News, The Adventures of Cliff Booth, Netflix, Brad Pitt, Quentin Tarantino, Once Upon a Time in Hollywood
+
+Wed, 01 Apr 2026 10:41:09 GMT
+
+https://movieweb.com/the-adventures-of-cliff-booth-first-look-images/
+
+New images of Quentin Tarantino's 'The Adventures of Cliff Booth' have surfaced, offering a look at the Brad Pitt sequel ahead of its Netflix release.
+---------
+
 # GTA 6 Official Release Date Update Is Sending Gamers Wild
 
 Gaming, Grand Theft Auto 6
