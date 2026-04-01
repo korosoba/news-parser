@@ -1,3 +1,311 @@
+# Pokemon Pokopia: How To Get The Limited-Time Real April Fool's Item
+
+Gaming, Pokemon Pokopia, Triple-A Games
+
+Wed, 01 Apr 2026 19:33:30 GMT
+
+https://screenrant.com/pokemon-pokopia-april-fools-event-inflatable-sudowoodo-guide/
+
+Pokopia is holding an April Fool's Day event, and unlike many other games, this one is real, and you can get a bonus item right now.
+---------
+
+# Cyberpunk 2077’s New 4-Part Series Is the Perfect Follow-Up to the Hit RPG
+
+Comics, Cyberpunk 2077
+
+Wed, 01 Apr 2026 19:29:17 GMT
+
+https://screenrant.com/cyberpunk-2077-chrome-plus-new-series/
+
+Cyberpunk 2077 has officially returned with a new four-part series that is proving to be the perfect follow-up to the hit RPG.
+---------
+
+# 3 Best Space TV Shows To Watch While Artemis II Flies To The Moon, Ranked
+
+Streaming TV
+
+Wed, 01 Apr 2026 19:27:44 GMT
+
+https://screenrant.com/space-shows-to-watch-during-artemis-ii-launch-day/
+
+The launch of Artemis II is a perfect excuse to watch (or rewatch) some of the best space TV shows of all time, as some are fitting with the occasion.
+---------
+
+# The Super Mario Galaxy Movie Ending Explained: Bowser's Fate & Two Major Cameos Set Up Nintendo's Animated Future
+
+Movies, The Super Mario Galaxy Movie
+
+Wed, 01 Apr 2026 19:20:19 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-ending-explained/
+
+The Super Mario Galaxy Movie lays the groundwork for future Nintendo films in the explosive ending and intriguing post-credits scenes.
+---------
+
+# Invincible Showrunners Explain Omni-Man's Return To Earth After 5 Years & Season 4's Key Comic Book Change
+
+TV, Invincible
+
+Wed, 01 Apr 2026 19:19:37 GMT
+
+https://screenrant.com/invincible-season-4-episode-5-omniman-return-comic-change-explained-kirkman-yeun-racioppa/
+
+Invincible showrunners Robert Kirkman and Simon Racioppa explain Omni-Man's return to Earth after 5 years, as well as season 4's big comic change.
+---------
+
+# The MCU Officially Confirms A Major Marvel Legacy Character Is Joining The Multiverse Saga
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 01 Apr 2026 19:15:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-white-tiger-angela-mcu-debut/
+
+The MCU is still building out its roster ahead of the tentpole finale of the Multiverse Saga, with iconic heroes from the comics finally appearing.
+---------
+
+# Guy Ritchie's 8-Part Prime Video Series Is A Must-Watch For Mystery Fans
+
+TV, Young Sherlock, Guy Ritchie
+
+Wed, 01 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/young-sherlock-guy-ritchie-prime-video-series-must-watch/
+
+Prime Video's hit mystery sees the veteran British director turn an iconic sleuth into a typical Ritchie antihero, with a superb supporting cast.
+---------
+
+# Fallout 5 Release Window Update Is Music To Our Ears
+
+Gaming, Fallout, Fallout 5
+
+Wed, 01 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/fallout-5-release-date-update-bethesda/
+
+Fallout 5 is still going to be a very long time coming, but there is a world in which Bethesda is already working on it in earnest.
+---------
+
+# Star Trek: Starfleet Academy: War College Chancellor's Cadet Choices & Season 2 Hints
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Wed, 01 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-raoul-bhaneja-season-2-tease-dream-cadet-pick/
+
+Star Trek: Starfleet Academy's Raoul Bhaneja chooses someone from Starfleet Academy to replace Tarima and hints at what's next for Kelrec in season 2.
+---------
+
+# Stephen King Backs Up Praise For Hulu's Hit New Sci-Fi Series As "Closest Thing On TV To Lost"
+
+TV, Paradise, Lost, Stephen King
+
+Wed, 01 Apr 2026 18:52:30 GMT
+
+https://screenrant.com/stephen-king-paradise-hulu-season-2-finale-praise-lost-comparison/
+
+Stephen King backs up his praise for Hulu's new hit sci-fi series, endorsing it as the "closest thing on television right now to Lost."
+---------
+
+# Amid 4-Year Wait, Spider-Man: Beyond the Spider-Verse Finally Gets Positive Update
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man Into the Spider-Verse, Spider-Man: Into The Spider-Verse, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse
+
+Wed, 01 Apr 2026 19:20:12 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-finally-gets-another-positive-update/
+
+Finally — another major piece of great news for Spider-Man: Beyond the Spider-Verse.
+---------
+
+# Robert Pattinson Starts Work on the Batman: Part II Next Week
+
+Movies, The Batman Part II, Batman, superheroes
+
+Wed, 01 Apr 2026 19:15:31 GMT
+
+https://www.cbr.com/robert-pattinson-the-batman-2-start-april-2026/
+
+Actor Robert Pattinson is set to begin work on The Batman: Part II next week, reprising his role as the Caped Crusader for the sequel.
+---------
+
+# Prime Video's The Summer I Turned Pretty Movie Gets Major Return Update
+
+Movies, The Summer I Turned Pretty
+
+Wed, 01 Apr 2026 19:03:08 GMT
+
+https://www.cbr.com/prime-video-the-summer-i-turned-pretty-movie-filming-update/
+
+After becoming one of the most talked-about shows in pop culture in 2025, the hit series officially gets a return update.
+---------
+
+# Hit Jumanji Sequel Is Officially Coming to Netflix Ahead of New Installment
+
+Movies, Jumanji, Adventure, Netflix
+
+Wed, 01 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/dwayne-johnson-jumanji-sequel-coming-to-netflix-april-2026/
+
+A fan-favorite Dwayne Johnson movie is officially coming to Netflix this month, preparing audiences for the highly anticipated final installment.
+---------
+
+# 70s Sci-Fi Masterpieces That Define ‘Hard’ Science Fiction
+
+Movies, Alien, Science Fiction
+
+Wed, 01 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/70s-hard-sci-fi-masterpieces-list/
+
+These movies are the pinnacle of 70s sci-fi and the hard science fiction subgenre - priortizing scientific accuracy over blockbuster action sequences
+---------
+
+# 8 Upcoming Thriller Shows That Should Be on Your Radar
+
+TV, Thriller, Unchosen, Man on Fire
+
+Wed, 01 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/upcoming-thriller-shows-must-watch-list/
+
+The thriller genre has a lot of upcoming exciting TV shows to keep fans entertained in 2026.
+---------
+
+# The Nintendo Virtual Boy Brings Back the Console Everyone Forgot About
+
+Games, Nintendo
+
+Wed, 01 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/nintendo-switch-virtual-boy-review/
+
+The Nintendo Virtual Boy review is back as Nintendo's most infamous product is available, but should you buy it?
+---------
+
+# 9 Greatest Historical Epic Movies of the Last 50 Years, Ranked
+
+Movie, History, Gladiator, The Last Emperor
+
+Wed, 01 Apr 2026 19:19:13 GMT
+
+https://collider.com/best-historical-epic-movies-last-50-years-ranked/
+
+Epics like The Last Emperor and Gladiator showcase the genre's full might, presenting absorbing depictions of the past on an impossible grand scale.
+---------
+
+# The Red Hot Chili Peppers Song From 1989 That Remains One of Their Most Iconic Hits
+
+Music Features, Red Hot Chili Peppers Live: I'm with You, Rock, Music, Magic Johnson
+
+Wed, 01 Apr 2026 19:12:25 GMT
+
+https://collider.com/red-hot-chili-peppers-song-magic-johnson-1989-iconic-hit/
+
+A standout track from Red Hot Chili Peppers’ 1989 album Mother’s Milk became a classic, with a surprising real-life inspiration tied to a legend.
+---------
+
+# 14 Seasons Later, 'Chicago P.D.’ Star Reveals What Still “Hits the Most” About Working on the Series
+
+TV News, One Chicago, LaRoyce Hawkins, NBC, Chicago P.D.
+
+Wed, 01 Apr 2026 19:01:12 GMT
+
+https://collider.com/chicago-pd-laroyce-hawkins-season-14-renewal-hits-most-teach-fans/
+
+Chicago P.D. star LaRoyce Hawkins shared the part of his job that still hits the hardest for him as the procedural heads for Season 14.
+---------
+
+# Star Wars' Unannounced Projects Could Delay 'Shadow Lord' Season 2 [Exclusive]
+
+TV News, Star Wars: Maul - Shadow Lord, Disney+, Lucasfilm, Dave Filoni
+
+Wed, 01 Apr 2026 18:40:07 GMT
+
+https://collider.com/maul-shadow-lord-season-2-update-unannounced-projects/
+
+Unannounced Star Wars projects in the works at Lucasfilm will slow down progress on the second season of Maul: Shadow Lord.
+---------
+
+# NBC’s 3-Part Thriller Franchise Is So Good, It’s Practically the Last of Its Kind
+
+TV News, One Chicago, Chicago Med, Chicago Fire, NBC
+
+Wed, 01 Apr 2026 18:22:31 GMT
+
+https://collider.com/one-chicago-jessy-schram-hanako-greensmith-nbc-100-years-later-unicorn-job/
+
+One Chicago stars Jessy Schram and Hanako Greensmith opened up about why their job feels so unique at NBC during the network's 100th anniversary.
+---------
+
+# Netflix's 3-Part Heist Thriller Is the Perfect Weekend Binge Before Its 2026 Return
+
+TV Features, Lupin, Omar Sy, Netflix, Crime
+
+Wed, 01 Apr 2026 18:11:12 GMT
+
+https://collider.com/lupin-netflix-heist-thriller-series-perfect-weekend-binge-season-4-2026-return/
+
+Netflix's Lupin showcases a universal story of justice and balance through masterful heists and a charismatic lead, making it a must-watch series.
+---------
+
+# The "Second Greatest Movie of All Time," 'The Godfather,' Lands New Streaming Home
+
+Movie News, The Godfather, Coming/Leaving Streaming
+
+Wed, 01 Apr 2026 19:00:17 GMT
+
+https://movieweb.com/the-godfather-streaming-pluto-tv-april-2026/
+
+According to users on IMDb, Francis Ford Coppola's 'The Godfather' is the second-best movie ever made behind a Stephen King classic.
+---------
+
+# Every New Movie and TV Show Coming to HBO Max in April 2026
+
+Features, HBO Max
+
+Wed, 01 Apr 2026 19:00:17 GMT
+
+https://movieweb.com/hbo-max-movies-tv-shows-streaming-april-2026/
+
+TV leads HBO Max with the final season of 'Hacks' and the return of 'Euphoria,' while new to streaming movies offer up fantasy, horror, and comedy
+---------
+
+# 'Lee Cronin's The Mummy' Trailer Revealed, Tickets Now on Sale
+
+Movie News, The Mummy, Lee Cronin's The Mummy
+
+Wed, 01 Apr 2026 18:39:59 GMT
+
+https://movieweb.com/lee-cronin-the-mummy-trailer-tickets/
+
+'Lee Cronin's The Mummy' reimaginaes the classic monster horror franchise with a young girl who is resurrected and terrorizes her family.
+---------
+
+# Unauthorized 'Heated Rivalry' Musical Running Off Broadway This May
+
+TV Shows, Heated Rivalry, HBO Max, Musical
+
+Wed, 01 Apr 2026 18:29:52 GMT
+
+https://movieweb.com/unauthorized-musical-heated-rivalry-off-broadway/
+
+With tongue very firmly in cheek.
+---------
+
+# 'Back to the Future' Writer Offers Vision of Futuristic Franchise Reboot [Exclusive]
+
+Movie News, Back to the Future, Bob Gale
+
+Wed, 01 Apr 2026 18:18:04 GMT
+
+https://movieweb.com/back-to-the-future-reboot-future-writer-reaction/
+
+If Bob Gale has his own time machine, he won't be surprised if the story is adapted into an all-new medium.
+---------
+
 # HBO's Harry Potter Is Already Blowing Game Of Thrones Out Of The Water
 
 Streaming TV, Harry Potter, Game Of Thrones
