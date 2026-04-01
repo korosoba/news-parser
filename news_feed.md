@@ -1,3 +1,300 @@
+# Project Hail Mary Could Be The Start Of An Impressive Box Office Streak For Ryan Gosling
+
+Movies, Project Hail Mary
+
+Wed, 01 Apr 2026 17:20:20 GMT
+
+https://screenrant.com/project-hail-mary-ryan-gosling-upcoming-movies-box-office/
+
+Project Hail Mary is continuing to perform well at the box office, and it may be the first film in a remarkable streak for Ryan Gosling.
+---------
+
+# 10 Pokémon TCG: Perfect Order Cards Worth The Most Money
+
+Gaming, Pokemon
+
+Wed, 01 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/pokemon-tcg-perfect-order-cards-worth-most-money/
+
+Discover the 10 most expensive cards from the Pokémon TCG: Perfect Order set, featuring rare promo cards, special illustrations, and powerful moves. Find out which cards are selling for hundreds to thousands of dollars.
+---------
+
+# Cult Classic Sci-Fi Series That Completely Changed TV 67 Years Ago Officially Returns With Quiet Streaming Takeover
+
+TV, The Twilight Zone
+
+Wed, 01 Apr 2026 17:01:10 GMT
+
+https://screenrant.com/the-twilight-zone-vod-streaming-success-april-2026/
+
+A cult-classic sci-fi series that completely changed television 67 years ago officially returns with a quiet streaming takeover in the U.S.
+---------
+
+# We're Sorry, But These New-Gen Anime Are Not Worth Your Time
+
+Anime
+
+Wed, 01 Apr 2026 17:00:21 GMT
+
+https://screenrant.com/most-disappointing-new-gen-anime-ranked/
+
+The worst new-gen anime around.
+---------
+
+# Prime Video's 2 New Sci-Fi Shows Are Coming For The Expanse's Title
+
+TV, The Expanse, Stargate, Prime Video
+
+Wed, 01 Apr 2026 17:00:21 GMT
+
+https://screenrant.com/prime-video-sci-fi-shows-coming-for-the-expanse/
+
+The Expanse might be the best sci-fi series of the last decade for now, but two upcoming Prime Video shows are ready to seize that title soon.
+---------
+
+# Steven Spielberg’s Hit Space Opera Sci-Fi Series Cancelled After Just 2 Seasons Returns With Quiet Streaming Resurgence
+
+TV, Halo, Halo - Season 1, Steven Spielberg, Streaming Charts
+
+Wed, 01 Apr 2026 16:47:40 GMT
+
+https://screenrant.com/halo-series-apple-tv-store-vod-streaming-success-april-2026/
+
+Following its cancellation after only two seasons, the sci-fi space opera from Steven Spielberg is now finding new success in the world of streaming.
+---------
+
+# Masters Of The Universe Just Fixed The New Film's Biggest Problem
+
+Movies, Masters of the Universe
+
+Wed, 01 Apr 2026 16:46:19 GMT
+
+https://screenrant.com/masters-of-the-universe-biggest-problem-fixed/
+
+There has been some concern about the setting for Amazon MGM Studios’ Masters of the Universe, and the new trailer addresses these worries directly.
+---------
+
+# Henry Cavill’s New Highlander Reboot Teases Big Changes To Major OG Character After 40 Years
+
+Movies, Highlander
+
+Wed, 01 Apr 2026 16:44:56 GMT
+
+https://screenrant.com/highlander-reboot-brenda-original-movies-differences-siobhan-cullen/
+
+It’s been 40 years since Highlander was released in theaters, but one of the original characters will be portrayed very differently in the reboot.
+---------
+
+# Supernatural's Castiel Officially Returns With New Spinoff
+
+Comics, Supernatural
+
+Wed, 01 Apr 2026 16:42:45 GMT
+
+https://screenrant.com/supernatural-castiel-returns-new-series/
+
+After six long years, Supernatural's fan-favorite fallen angel is officially returning this summer in a brand-new spinoff.
+---------
+
+# Band Of Brothers Predicted Streaming Over 10 Years Before Netflix Domination
+
+Streaming TV, Band of Brothers, HBO
+
+Wed, 01 Apr 2026 16:30:20 GMT
+
+https://screenrant.com/band-of-brothers-hbo-war-series-predict-streaming-before-netflix/
+
+HBO's epic, 10-episode war drama series predicted streaming over a decade before Netflix dominated TV, all thanks to its high production value.
+---------
+
+# Highlander Reboot Star Confirms Major Changes to Brenda
+
+Movies, Highlander
+
+Wed, 01 Apr 2026 17:20:41 GMT
+
+https://www.cbr.com/highlander-reboot-siobhan-cullen-brenda-changes/
+
+Henry Cavill plays the immortal Scottish warrior in the new Highlander reboot.
+---------
+
+# Netflix's A Good Girls' Guide for Murder Sets Season 2 Release Date
+
+TV, A Good Girl's Guide to Murder
+
+Wed, 01 Apr 2026 17:07:24 GMT
+
+https://www.cbr.com/netflix-a-good-girls-guide-to-murder-season-2-release-date/
+
+One of the most hotly-anticipated Netflix thrillers of the decade is finally returning with a brand-new season, and the first looks are perfect.
+---------
+
+# Anne Hathaway's The Devil Wears Prada Is Now Available to Stream on Hulu
+
+Movies, The Devil Wears Prada, The Devil Wears Prada 2
+
+Wed, 01 Apr 2026 17:00:13 GMT
+
+https://www.cbr.com/anne-hathaway-the-devil-wears-prada-hulu-hbo-max-release-april-2026/
+
+Anne Hathaway's 2026 is filled with new releases, but one stands out, and Hulu is getting ready for it.
+---------
+
+# Brendan Fraser's The Mummy Trilogy Moves to HBO Max Amid Franchise Revival
+
+Movies, The Mummy, HBO Max, Adventure
+
+Wed, 01 Apr 2026 16:53:11 GMT
+
+https://www.cbr.com/brendan-fraser-mummy-movies-streaming-hbo-max-april-2026/
+
+The Mummy trilogy starring Brendan Fraser is now streaming on HBO Max, just ahead of production on The Mummy 4, which reunites the original cast.
+---------
+
+# Valorie Curry and Nathan Mitchell Break Down The Boys’ Wild Ending
+
+TV, The Boys
+
+Wed, 01 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/video/valorie-curry-and-nathan-mitchell-break-down-the-boys-wild-ending/
+
+The Boys Season 5 finale is “moist”? The cast goes all in on what to expect.Valorie Curry and Nathan Mitchell break down why The Boys pushes boundaries like no other superhero series.They dive into the show’s fearless satire, how it explores power and corruption, and why it thrives in the gray areas mainstream franchises avoid. Plus, Valorie reveals which character has changed the most since season one, and Nathan explains the show’s biggest contribution to the superhero genre.If you’re searching for The Boys season 5 finale details, cast interview insights, or how The Boys changed superhero storytelling, this one delivers.
+---------
+
+# 10 Shonen Anime Heroes With the Most Forgettable Love Interests
+
+Anime, Naruto, Bleach, My Hero Academia
+
+Wed, 01 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/shonen-anime-heroes-most-forgettable-love-interests/
+
+Not every romantic subplot receives the attention it deserves. These relationships struggled to stand out in otherwise memorable stories.
+---------
+
+# Henry Cavill's 'Highlander' Remake Is Officially Making a Major Change to a Key Character
+
+Movie News, Highlander, Henry Cavill, Chad Stahelski, Dave Bautista
+
+Wed, 01 Apr 2026 17:21:32 GMT
+
+https://collider.com/henry-cavill-highlander-reboot-siobhan-cullen-role-explained-brenda/
+
+Highlander star Siobhán Cullen promises a "totally different" version of Brenda in Henry Cavill's fantasy reboot.
+---------
+
+# David Leitch's Take on John Wick Is Officially Streaming for Free
+
+Movie News, Bullet Train, David Leitch, Guy Ritchie, John Wick
+
+Wed, 01 Apr 2026 17:18:51 GMT
+
+https://collider.com/john-wick-meets-guy-ritchie-action-movie-bullet-train-free-streaming-tubi-march-2026/
+
+Bullet Train, the 2022 cult classic starring Brad Pitt and directed by David Leitch, is now streaming completely for free.
+---------
+
+# 49 Years Later, One of Quentin Tarantino's Favorite Movies Is Officially Streaming on Netflix
+
+Movie News, Smokey and the Bandit, Smokey and the Bandit II, Quentin Tarantino, Netflix
+
+Wed, 01 Apr 2026 17:10:09 GMT
+
+https://collider.com/quentin-tarantino-favorite-movie-smokey-and-the-bandit-streaming-netflix-march-2026/
+
+One of Quentin Tarantino's favorite movies, Smokey and the Bandit, has officially found a new streaming home at Netflix. Read on for more.
+---------
+
+# 'Smiling Friends’ Just Pulled Off the Perfect April Fools Comeback
+
+TV News, Smiling Friends, Adult Swim, Horror, Animation
+
+Wed, 01 Apr 2026 17:04:25 GMT
+
+https://collider.com/smiling-friends-april-fools-prank-surprise-horror-claymation-spin-off/
+
+After its abrupt ending, Smiling Friends has returned to Adult Swim with a perfect April Fools Day surprise. See it here.
+---------
+
+# 'The Pitt's Season 3 Release Schedule Will Break Tradition
+
+TV News, The Pitt, HBO, HBO Max, Noah Wyle
+
+Wed, 01 Apr 2026 16:40:37 GMT
+
+https://collider.com/the-pitt-season-3-release-schedule-update-break-tradition-hbo-max/
+
+The Pitt cast member Taylor Dearden discusses the writing, filming, and release timelines for Season 3 of HBO's hit medical drama. Get the details.
+---------
+
+# 'Fall 2' Sets Summer Release Date After 4 Year Delay
+
+Movie News, Fall 2, Fall, Netflix, Thriller
+
+Wed, 01 Apr 2026 16:28:23 GMT
+
+https://collider.com/fall-2-sets-summer-release-date-after-4-year-delay/
+
+Fall 2, the sequel to the 2022 survival thriller about a dangerous tower climb, is set to release in summer 2026 after a four-year delay.
+---------
+
+# HBO's Announcement That 'Harry Potter' Won't Release Yearly Isn't the Problem It Seems
+
+Features, Harry Potter
+
+Wed, 01 Apr 2026 17:00:19 GMT
+
+https://movieweb.com/harry-potter-hbo-series-release-plan/
+
+HBO's CEO has said the 'Harry Potter' series won't arrive annually. That may sound disappointing, but it's nothing new. Read on for more.
+---------
+
+# Feel-Good Bollywood Movies for When You’re Having a Bad Day
+
+Movie Lists
+
+Wed, 01 Apr 2026 17:00:19 GMT
+
+https://movieweb.com/feel-good-bollywood-movies-for-when-youre-having-a-bad-day/
+
+Bollywood movies have a way of lifting your spirits and making you smile; these ones are the perfect remedy for a bad day.
+---------
+
+# Bob Odenkirk Denies 'Wonder Man' Casting Rumors, Open to MCU Appearance
+
+TV News, Wonder Man, Bob Odenkirk, MCU
+
+Wed, 01 Apr 2026 16:20:50 GMT
+
+https://movieweb.com/bob-odenkirk-wonder-man-mcu/
+
+Bob Odenkirk has explicitly denied rumors about him being cast in 'Wonder Man,' but he is not ruling out the possibility of a future MCU appearance.
+---------
+
+# 'Supergirl' Star Addresses Backlash Over Role in DCU's Next Movie
+
+Movie News, Supergirl, Milly Alcock, DCU
+
+Wed, 01 Apr 2026 16:08:53 GMT
+
+https://movieweb.com/supergirl-star-addresses-dcu-backlash-directors/
+
+She also addresses the rash of big-name directors who don't see superhero movies as "cinema."
+---------
+
+# 'Spider-Noir' Reportedly Entering Comedy Categories for Emmy Awards
+
+Movie News, Spider-Noir
+
+Wed, 01 Apr 2026 16:05:44 GMT
+
+https://movieweb.com/spider-noir-comedy-category-emmys/
+
+'Spider-Noir,' starring Nicolas Cage, is reportedly categorizing itself as a comedy series well ahead of the awards season.
+---------
+
 # Taika Waititi's Introduction Of New Brawl Stars Brawler Originally Had More Backstory
 
 Gaming, Taika Waititi, Brawl Stars
