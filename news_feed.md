@@ -1,3 +1,278 @@
+# Batman Officially Debuts His Ultimate Anti-Superman Weapon, Transforming Kryptonite
+
+Comics, Superman, Batman
+
+Wed, 01 Apr 2026 21:24:41 GMT
+
+https://screenrant.com/batman-new-weapon-against-superman-kryptonite/
+
+This latest face-off between Batman and Superman comes with a major twist and debuts the Dark Knight's wildest use of Kryptonite to date.
+---------
+
+# Jack Black & Donald Glover Want To Star In First-Ever Adaptation Of Nintendo’s Classic 42-Year-Old Video Game
+
+Movies, Nintendo, The Super Mario Galaxy Movie, Jack Black, Donald Glover
+
+Wed, 01 Apr 2026 21:17:43 GMT
+
+https://screenrant.com/jack-black-donald-glover-duck-hunt-movie-casting-pitch/
+
+EXCLUSIVE: The Super Mario Galaxy Movie's Jack Black and Donald Glover, reveal another Nintendo video game adaptation they want to star in.
+---------
+
+# Apple TV+'s 5-Part Sci-Fi Masterpiece Rewrites The Rules Of Space Dramas
+
+TV, For All Mankind
+
+Wed, 01 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/apple-tv-for-all-mankind-rewrites-rules-space-dramas/
+
+One unexpected choice in Apple TV's underrated space-set sci-fi show redefines the rules of the space opera sub genre, offering a must-watch series.
+---------
+
+# Scarlett Johansson's $469M Sci-Fi Hit Officially Releases On Netflix After Making 11x Its Budget
+
+Movies, Lucy
+
+Wed, 01 Apr 2026 20:54:22 GMT
+
+https://screenrant.com/scarlett-johannsson-lucy-netflix-streaming-april-2026/
+
+Scarlett Johansson's $469 million sci-fi hit officially releases on Netflix after making over 11 times its $40 million budget at the box office.
+---------
+
+# Eric Kripke Reveals The One Rule For Marvel & DC In The Boys Ahead Of Season 5
+
+TV, The Boys
+
+Wed, 01 Apr 2026 20:50:20 GMT
+
+https://screenrant.com/the-boys-season-5-marvel-dc-rule-eric-kripke/
+
+EXCLUSIVE: Showrunner and creator Eric Kripke elaborates on what the rule is for DC Comics and Marvel references in The Boys season 5.
+---------
+
+# Dennis Quaid To Star In AMC's New Racing Series From Young Guns Writer
+
+TV, Dennis Quaid
+
+Wed, 01 Apr 2026 20:38:52 GMT
+
+https://screenrant.com/dennis-quaid-thunder-road-nascar-show-amc-cast/
+
+A new series at AMC about NASCAR racing is underway, with Dennis Quaid cast and Young Guns' John Fusco writing the script.
+---------
+
+# Waking Up in Reno Was a Billy Bob Thornton and Patrick Swayze Failure
+
+Movies, Waking Up in Reno
+
+Wed, 01 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/waking-up-in-reno-billy-bob-thornton-patrick-swayze-flop/
+
+Despite its star-studded cast, Waking Up in Reno was a major box office flop with stiff comedy and one of the worst film endings of all time.
+---------
+
+# Aubrey Plaza's Kevin Series Gets Prime Video Trailer
+
+Movies, Kevin
+
+Wed, 01 Apr 2026 21:29:39 GMT
+
+https://www.cbr.com/prime-video-kevin-trailer/
+
+The adult animated series from Aubrey Plaza will drop all eight episodes at once this month.
+---------
+
+# A Complete Timeline Of Every Naruto Episode, Arc, and Season
+
+Anime, Naruto, Naruto: Shippuden
+
+Wed, 01 Apr 2026 21:20:13 GMT
+
+https://www.cbr.com/every-naruto-story-arc-chronological-order/
+
+Your complete guide to every Naruto and Naruto Shippuden arc and the complete Naruto timeline.
+---------
+
+# DC’s Best Hero Just Referenced Death Note With Its Latest Release
+
+Anime, Death Note, Absolute Batman
+
+Wed, 01 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/absolute-batman-new-issue-death-note-reference/
+
+Death Note is an iconic anime that's made a major impact on other franchises, including a recent shout-out from DC's Absolute Batman.
+---------
+
+# Your Friendly Neighborhood Spider-Man Fixes an MCU Problem But Creates a Larger One
+
+TV, Your Friendly Neighborhood Spider-Man, Marvel Cinematic Universe, superheroes, Animation
+
+Wed, 01 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/your-friendly-neighborhood-spider-man-fixes-an-mcu-problem-but-creates-a-larger-one/
+
+Your Friendly Neighborhood Spider-Man has reimagined the Web-Head's origin story, potentially altering Peter Parker's reasons for becoming Spider-Man.
+---------
+
+# The Super Mario Galaxy Movie's Best Easter Egg Confirms No Smash Bros. Film is Happening Soon
+
+Movies, The Super Mario Galaxy Movie, Nintendo, Super Smash Bros
+
+Wed, 01 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-easter-egg-smash-bros-movie-bad-news/
+
+The Super Mario Galaxy Movie has an amazing Super Smash Bros. Easter egg, but it also confirms a sad truth about the highly anticipated movie.
+---------
+
+# Jensen Ackles Explains The Extreme Process Of Wearing Soldier Boy's Costume
+
+Superheroes, The Boys, superheroes, Prime Video
+
+Wed, 01 Apr 2026 20:46:56 GMT
+
+https://www.cbr.com/jensen-ackles-soldier-boy-superhero-suit-the-boys-interview/
+
+Soldier Boy may be a man's man, but it takes five men to get the actor into character. Learn more about the process in CBR's exclusive interview.
+---------
+
+# Bloodborne Officially Returns June 2026 With New Release
+
+Games, Bloodborne
+
+Wed, 01 Apr 2026 20:45:12 GMT
+
+https://www.cbr.com/bloodborne-10th-anniversary-release-june-2026/
+
+One of the best FromSoftware titles of all time is coming back this Summer with a brand-new release that die hard fans will love.
+---------
+
+# Disney+’s 8-Part Western Remake of a 43-Year-Old Cult Classic Is Taking Over Streaming With a Catch
+
+TV Features, Disney+, Western, Series, Streaming
+
+Wed, 01 Apr 2026 21:34:12 GMT
+
+https://collider.com/disney-plus-lucky-luke-western-remake-streaming-catch/
+
+Disney+’s Lucky Luke reboot is a global Western hit—but it’s not available in the U.S. yet. Here’s why it’s worth watching.
+---------
+
+# Titus Welliver Officially Confirms If He's in the New 'Bosch' Prequel
+
+TV News, Bosch, Bosch: Legacy, Bosch: Start of Watch, Titus Welliver
+
+Wed, 01 Apr 2026 21:08:55 GMT
+
+https://collider.com/bosch-prequel-start-of-watch-titus-welliver-endorsement/
+
+Bosch star Titus Welliver has finally broken his silence on the upcoming prequel series starring Cameron Monaghan.
+---------
+
+# Twilight Star's New Vampire Thriller Recruits the Shrek Franchise's Scariest Villain
+
+Movie News, Kristen Stewart, Wagner Moura, Oscar Isaac, Horror
+
+Wed, 01 Apr 2026 21:03:50 GMT
+
+https://collider.com/kristen-stewart-vampire-movie-flesh-of-the-gods-cast-wagner-moura/
+
+Kristen Stewart's return to the vampire genre has added an Academy Award nominee to the cast with Wagner Moura.
+---------
+
+# Dennis Quaid Suits Up for AMC's 'Yellowstone' Rival
+
+TV News, Dennis Quaid
+
+Wed, 01 Apr 2026 21:00:25 GMT
+
+https://collider.com/dennis-quaid-cast-amc-yellowstone-replacement-sports-series-thunder-road/
+
+Dennis Quaid is set to lead the AMC's new Yellowstone rival with the NASCAR series Thunder Road.
+---------
+
+# Only 3 Martin Scorsese Movies Are Better Than 'Raging Bull'
+
+Movie, Martin Scorsese, Raging Bull, Taxi Driver, Silence
+
+Wed, 01 Apr 2026 20:54:12 GMT
+
+https://collider.com/martin-scorsese-movies-better-than-raging-bull/
+
+While Raging Bull is among Martin Scorsese's masterpieces, it's not his magnum opus, as movies like Goodfellas and Taxi Driver are arguably superior.
+---------
+
+# Hulu's Best Sci-Fi Series Promises To Answer Every Question in Third and Final Season
+
+TV News, Paradise, Hulu, Sterling K. Brown, Dan Fogelman
+
+Wed, 01 Apr 2026 20:53:46 GMT
+
+https://collider.com/hulu-best-sci-fi-series-paradise-final-season-3-update-sterling-k-brown/
+
+Sterling K. Brown has broken his silence on Paradise Season 3, teasing a satisfying finale for the Hulu sci-fi series.
+---------
+
+# New Spider-Man Movie Is Officially Bringing Back a Fan-Favorite Peter Parker Actor
+
+Movie News, Spider-Man, Spider-Verse, Marvel, Jake Johnson
+
+Wed, 01 Apr 2026 20:46:54 GMT
+
+https://collider.com/spider-man-beyond-the-spider-verse-peter-b-parker-return-jake-johnson/
+
+Spider-Man: Beyond the Spider-Verse is finally moving forward, with Jake Johnson revealing a major update.
+---------
+
+# Regé-Jean Page Talks "Intense" James Bond Rumors
+
+Movie News, James Bond, james bond, Regé Jean Page
+
+Wed, 01 Apr 2026 21:34:17 GMT
+
+https://movieweb.com/rege-jean-page-james-bond-rumor/
+
+'Bridgerton' star Regé-Jean Page admitted that the rumors surrounding him potentially playing James Bond are getting "intense."
+---------
+
+# Every New Movie and TV Show Coming to Paramount+ in April 2026
+
+Features, Paramount Plus
+
+Wed, 01 Apr 2026 21:30:18 GMT
+
+https://movieweb.com/paramount-plus-movies-tv-shows-streaming-april-2026/
+
+April 2026 sees new TV series being added to Pramount+ alongside some must-watch classic movies.
+---------
+
+# 'Invincible' Proves How Powerful Mark Is in Superhero Show's Goriest Scene
+
+Features, Invincible, Prime Video, Sci-Fi, Superhero
+
+Wed, 01 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/invincible-goriest-moment-proves/
+
+Season 4 of 'Invincible' continues to deliver violent content, proving how powerful Mark is in the goriest way possible.
+---------
+
+# Classic Gangster Remake 'Scarface' Lands New Streaming Home
+
+Movie News, Scarface, Coming/Leaving Streaming
+
+Wed, 01 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/scarface-streaming-peacock-april-2026/
+
+The gritty crime epic starring Al Pacino is easily one of the best in the genre.
+---------
+
 # Netflix's New 8-Part Psychological Thriller Series With Stellar Rotten Tomatoes Score Is Perfect From Start To Finish
 
 TV, Netflix, Something Very Bad Is Going to Happen
