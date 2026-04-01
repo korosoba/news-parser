@@ -1,3 +1,278 @@
+# Poison Ivy's New Era Just Turned Her into DC's Most Interesting Character, Bar None
+
+Comics, DC Comics, Poison Ivy
+
+Wed, 01 Apr 2026 13:01:23 GMT
+
+https://screenrant.com/poison-ivy-best-dc-antihero-new-era/
+
+Poison Ivy is DC's best character right now, for real.
+---------
+
+# Every AC/DC Album Ranked: Celebrating Angus Young’s 71st Birthday
+
+Music, AC/DC, Rock
+
+Wed, 01 Apr 2026 12:57:24 GMT
+
+https://screenrant.com/every-acdc-album-ranked-angus-young-birthday/
+
+Celebrating Angus Young's 71st birthday! We rank all 17 AC/DC studio albums from 'High Voltage' to 'Power Up.'
+---------
+
+# Mel & Langdon's The Pitt Romance Potential Gets Honest Response From Taylor Dearden
+
+TV, The Pitt
+
+Wed, 01 Apr 2026 12:48:24 GMT
+
+https://screenrant.com/the-pitt-langdon-mel-fan-shipping-taylor-dearden-response-disappointed/
+
+EXCLUSIVE: The Pitt star Taylor Dearden offers an honest response to a potential romance between Mel and Langdon in the acclaimed medical drama.
+---------
+
+# Pokémon Legends: Z-A Finally Adds Feature Gamers Have Begged For Since Launch
+
+Gaming, Pokemon Legends Z-A, Pokemon
+
+Wed, 01 Apr 2026 12:31:30 GMT
+
+https://screenrant.com/pokemon-legends-za-official-update-april-1/
+
+Pokémon Legends: Z-A is getting a new update, and it finally adds one key feature many fans have been asking for since the game launched in 2025.
+---------
+
+# Virgin River’s Star Agrees With Fans About 1 Mel Trend
+
+Streaming TV, Virgin River
+
+Wed, 01 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/virgin-river-alexandra-breckenridge-mel-trend-trauma-baby-twist/
+
+Virgin River's concerns have grown every season when it comes to a concerning Melinda "Mel" Monroe trend, it looks like we aren't alone.
+---------
+
+# Bloodborne Officially Returns June 2026 With Exclusive New Release
+
+Gaming, Bloodborne, PC
+
+Wed, 01 Apr 2026 12:17:54 GMT
+
+https://screenrant.com/bloodborne-official-new-release-june-2026/
+
+Bloodborne is among the most iconic soulsborne video games of all time, and it's back this summer with an exclusive new release.
+---------
+
+# Shrinking Season 3, Episode 10 Recap: Jimmy Finally Hits His Breaking Point
+
+Streaming TV, Shrinking
+
+Wed, 01 Apr 2026 12:15:05 GMT
+
+https://screenrant.com/shrinking-season-3-episode-10-recap/
+
+Shrinking season 3's penultimate episode sees Jimmy arrive at that big transitional period as Alice graduates high school and Paul moves away.
+---------
+
+# Red Dead Redemption 2 Unleashes New Official Content For April
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption, Red Dead Online
+
+Wed, 01 Apr 2026 12:10:22 GMT
+
+https://screenrant.com/red-dead-redemption-2-official-new-content-april-2026/
+
+Red Dead Online is still rolling out new content all the time, and the latest of those is all focused on Trader Sales.
+---------
+
+# Reacher Season 4's Perfect 2026 Release Plan Gets Derailed
+
+Streaming TV, Reacher
+
+Wed, 01 Apr 2026 12:06:19 GMT
+
+https://screenrant.com/reacher-season-4-perfect-2026-release-date-derail/
+
+A major TV development effectively derails the perfect 2026 release plan for Alan Ritchson's highly-anticipated Reacher season 4 on Prime Video.
+---------
+
+# 10 TV Shows That Were Unrecognizable By The Final Season
+
+Classic TV
+
+Wed, 01 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/tv-shows-unrecognizable-by-the-final-season/
+
+These TV shows evolved over time, transforming from fan favorites into parodies of themselves through changes in tone, focus, and storytelling.
+---------
+
+# 10 Greatest GameCube Games of All Time, Ranked
+
+Games, Nintendo, Video Games
+
+Wed, 01 Apr 2026 13:01:14 GMT
+
+https://www.cbr.com/greatest-gamecube-games-all-time-ranked/
+
+Super Mario Sunshine and Resident Evil 4 are among the greatest GameCUbe games of all time.
+---------
+
+# How to Read the Bosch Novels, In Order
+
+TV, Bosch
+
+Wed, 01 Apr 2026 13:01:14 GMT
+
+https://www.cbr.com/bosch-novels-reading-order/
+
+The Bosch series is a hit procedural inspired by a long-running book series that's worth reading in order.
+---------
+
+# The Supergirl Trailer Set Up Lobo as the DCU's "Phil Coulson"
+
+Movies, Supergirl, DCU
+
+Wed, 01 Apr 2026 13:01:13 GMT
+
+https://www.cbr.com/supergirl-trailer-lobo-dcu-violent-phil-coulson/
+
+Supergirl is coming soon, but one intergalactic character may be the DCU's Phil Coulson, but in a much darker way.
+---------
+
+# DC Just Brought Shazam Back, But There's A Catch
+
+Comics, Shazam, Superman, Black Adam
+
+Wed, 01 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/absolute-superman-absolute-shazam-teth-adam/
+
+The Absolute Shazam has finally made his way into the world of DC Comics, and he is nothing like what fans are used to seeing.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 2, 2026
+
+TV, The Office, Arrested Development, The Sopranos, Game Of Thrones
+
+Wed, 01 Apr 2026 13:01:14 GMT
+
+https://collider.com/tv-quiz-apr-1-2026-television-grab-bag/
+
+Let's test your breadth of knowledge, not depth, with this sampling of your favorite shows. True fans will have no problem answering these questions.
+---------
+
+# ‘Shrinking’ Season 2 Just Dropped a Bombshell Twist That Changes Everything for Liz and Derek
+
+Exclusives, Shrinking, Christa Miller, Ted McGinley, Jason Segel
+
+Wed, 01 Apr 2026 13:01:14 GMT
+
+https://collider.com/shrinking-season-3-episode-10-liz-derek-christa-miller-ted-mcginley-interview/
+
+Christa Miller and Ted McGinley discuss Shrinking Season 2, Liz and Derek becoming grandparents, and working with TV royalty Candice Bergen.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 1, 2026
+
+Movie, Face/Off, Vice Versa, Freaky Friday, Dream a Little Dream
+
+Wed, 01 Apr 2026 12:59:14 GMT
+
+https://collider.com/movie-quiz-apr-1-2026-piece-of-cake/
+
+Everyone deserves an ego boost now and then, so today's challenge is designed to be easy-peasy. You'll get a perfect score and feel great about it!
+---------
+
+# Apple TV's 2-Part Comedy Series Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Platonic, Seth Rogen, Rose Byrne, Apple TV
+
+Wed, 01 Apr 2026 12:47:12 GMT
+
+https://collider.com/platonic-apple-tv-streaming-seth-rogen-rose-byrne/
+
+Seth Rogen and Rose Byrne's Apple TV comedy series Platonic is a hilarious, comforting watch about two best friends and their many misadventures.
+---------
+
+# Apple’s Stellar 2-Part Thriller’s Ending Makes It the Perfect Weekend Binge
+
+TV Features, Hijack, Idris Elba, Apple TV, Christine Adams
+
+Wed, 01 Apr 2026 12:25:12 GMT
+
+https://collider.com/hijack-apple-tv-idris-elba-perfect-weekend-binge/
+
+Hijack features plenty of binge-worthy elements, including an action-packed setting and a perfect leading role for Idris Elba.
+---------
+
+# HBO Max's Amazing 3-Part Action Movies Are Perfect From Start to Finish
+
+Movie, Spider-Man, Sam Raimi, Tobey Maguire, HBO Max
+
+Wed, 01 Apr 2026 12:20:13 GMT
+
+https://collider.com/spider-man-sam-raimi-hbo-max-amazing-3-part-action-movies-perfect-from-start-to-finish/
+
+All of Sam Raimi’s Spider-Man movies with Tobey Maguire and Kirsten Dunst are streaming on HBO Max, and all of them are great — even the third one.
+---------
+
+# HBO's 25-Year-Old Fantasy Series Is Officially Taking Over the World
+
+Movie News, Harry Potter, Harry Potter and the Philosopher's Stone, Fantasy, HBO Max
+
+Wed, 01 Apr 2026 12:00:13 GMT
+
+https://collider.com/harry-potter-fantasy-movie-franchise-streaming-success-hbo-max-march-2026/
+
+In clear anticipation for HBO's new remake series, the Harry Potter franchise is now surging on streaming.
+---------
+
+# Prime Video's Number 1 in the World Superhero Series Rivals Marvel
+
+Features, Invincible, Prime Video, MCU, Superhero, Comparison Recommendation
+
+Wed, 01 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/prime-video-invincible-superhero-marvel/
+
+Prime Video has been impressing audiences and critics with its slate of superhero shows, including a worldwide #1 series that rivals Marvel.
+---------
+
+# 'John Wick's Action Thriller Spin-off 'Ballerina' Soars to #1 on HBO Max
+
+Movie News, From the World of John Wick: Ballerina, Hot on Streaming, John Wick
+
+Wed, 01 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/ballerina-john-wick-streaming-hit-hbo-max-march-2026/
+
+After failing to make back its budget at the box office, 'Ballerina' has found new life on HBO Max ahead of a planned 'John Wick 5.'
+---------
+
+# Critics & Tom Holland Fans Can't Agree on Apple TV's 'The Crowded Room'
+
+Features, Tom Holland, Apple TV, The Crowded Room
+
+Wed, 01 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/tom-holland-the-crowded-room-critics-fans-divided/
+
+3 years ago, Tom Holland provided a fascinating performance in the Apple TV thriller 'The Crowded Room,' leaving critics and fans divided to this day.
+---------
+
+# New James Bond Novel "King Zero" Gets Plot & Release Ahead of Amazon Reboot
+
+Movie News, james bond, James Bond, Action
+
+Wed, 01 Apr 2026 11:45:36 GMT
+
+https://movieweb.com/james-bond-sequel-novel-king-zero/
+
+While we await 'James Bond 26,' a new 007 story has now been announced.
+---------
+
 # God Of War Has Found The Perfect Kratos Replacement For Upcoming Game
 
 Gaming, God of War
