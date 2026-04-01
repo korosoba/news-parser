@@ -1,3 +1,344 @@
+# Taika Waititi's Introduction Of New Brawl Stars Brawler Originally Had More Backstory
+
+Gaming, Taika Waititi, Brawl Stars
+
+Wed, 01 Apr 2026 16:00:21 GMT
+
+https://screenrant.com/taika-waititi-brawl-stars-najia-backstory-cut/
+
+Taika Waititi talks his Brawl Stars short introducing new brawler Najia and how he nearly had a lot more backstory included in the announcement.
+---------
+
+# Zelda: Ocarina Of Time Remake Graphical Redesign Brings Gamers Together
+
+Gaming, The Legend of Zelda: Ocarina of Time
+
+Wed, 01 Apr 2026 16:00:21 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-graphics-redesign/
+
+Could a Legend of Zelda: Ocarina of Time remake finally bring the classic 1998 N64 game into the modern era?
+---------
+
+# Star Trek: The War College's Tragic Toll In Starfleet Academy Season 1
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Wed, 01 Apr 2026 16:00:21 GMT
+
+https://screenrant.com/star-treks-other-starfleet-academy-suffered-more-than-holly-hunters-school/
+
+Captain Nahla Ake's cadets took some lumps in Star Trek: Starfleet Academy season 1, but their rival school endured far more losses and tragedies.
+---------
+
+# Lee Cronin’s The Mummy Dares You To Make It Scarier With 4DX & ScreenX Posters
+
+New Movies
+
+Wed, 01 Apr 2026 15:59:39 GMT
+
+https://screenrant.com/the-mummy-2026-movie-posters-4dx-screenx/
+
+Exclusive: ScreenRant presents a first look at the frightening new posters for Lee Cronin’s The Mummy in two premium formats: 4DX and ScreenX.
+---------
+
+# Jordan Peele’s New Supernatural Horror Officially Releases On Netflix This Month After Box Office Fumble
+
+Movies, Him
+
+Wed, 01 Apr 2026 15:51:56 GMT
+
+https://screenrant.com/him-jordan-peele-netflix-streaming-release-date/
+
+After flopping at the box office in 2025, Jordan Peele's supernatural horror movie starring Marlon Wayans is getting a second chance on Netflix.
+---------
+
+# Super Mario Galaxy Movie Spoiler Guide: Cameos, Game References & Spinoff Setups
+
+Movies, The Super Mario Galaxy Movie
+
+Wed, 01 Apr 2026 15:51:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-spoilers-reveals-cameos/
+
+Here's everything you need to know from the new Mario film.
+---------
+
+# HBO Boss Addresses Rumored Doctor Who Partnership Deal With BBC
+
+TV, Doctor Who
+
+Wed, 01 Apr 2026 15:36:41 GMT
+
+https://screenrant.com/doctor-who-bbc-hbo-max-partnership-rumors-casey-bloys/
+
+HBO Max boss Casey Bloys discusses the possibility of a Doctor Who partnership with the BBC, following Disney+'s decision to end its deal with the show. No formal plans have been presented yet, but Bloys remains open to the idea.
+---------
+
+# PlayStation Plus April Free Games Line-Up Officially Revealed
+
+Gaming, PlayStation Plus
+
+Wed, 01 Apr 2026 15:32:38 GMT
+
+https://screenrant.com/playstation-plus-april-2026-games-revealed/
+
+PlayStation Plus has officially revealed the new Essential games coming to PS Plus in April 2026, and subscribers will want to give these a try.
+---------
+
+# All 9 Coalition Heroes In Invincible Season 4 & Their Powers
+
+Streaming TV, Invincible
+
+Wed, 01 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/invincible-coalition-members-and-powers/
+
+The main superhero team currently in Invincible is the Coalition of Planets, raising questions about its members and their various powers.
+---------
+
+# Pokémon Fans Up In Arms Due To Last-Minute Pokémon Champions Info
+
+Gaming, Pokemon Champions, Triple-A Games
+
+Wed, 01 Apr 2026 15:12:33 GMT
+
+https://screenrant.com/pokemon-champions-pokemon-home-controversy/
+
+Pokémon Champions is set to debut soon, but fans are wondering if the app will succeed at launch given some new info coming to light.
+---------
+
+# Marvel’s Best Show in Years Surges to No. 4 Worldwide on Disney+ Ahead of New Episodes
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 01 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/daredevil-born-again-mcu-disney-plus-success-april-2026/
+
+Sorry, Wonder Man, but there's a new critically acclaimed MCU series taking over on Disney+.
+---------
+
+# HBO Is Officially Giving Harry Potter a Completely New Origin Story Too Dark for the Movies
+
+TV, Harry Potter, hbo, Fantasy
+
+Wed, 01 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/hbo-harry-potter-new-origin-story-too-dark-for-movies/
+
+HBO's Harry Potter reboot is leaning into the dark reality of his upbringing, casting it in a more sinister light than the usually more comedic films.
+---------
+
+# Channing Tatum's G.I. Joe Film is His Most Important Career Move
+
+Movies, G.I. Joe, G.I. Joe: The Rise of Cobra
+
+Wed, 01 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/gi-joe-rise-of-cobra-channing-tatum-important-career-movie/
+
+Channing Tatum has had an interesting career, jumping from genre to genre, yet one sci-fi action movie remains his most crucial film.
+---------
+
+# Superman/Spider-Man Almost Had Unbelievable Crossovers That Marvel Turned Down
+
+Comics, Spider-Man, Superman, Marvel, DC Comics
+
+Wed, 01 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/dan-slott-superman-spider-man-crossovers-that-never-happened/
+
+One of the most critically acclaimed Spider-Man scribes opens up about the comic book crossovers concepts that all got shot down by Marvel.
+---------
+
+# Pokémon Pokopia Adds New IKEA Island on Nintendo Switch 2
+
+Anime, Pokemon, Nintendo
+
+Wed, 01 Apr 2026 15:16:13 GMT
+
+https://www.cbr.com/pokemon-pokopia-ikea-island/
+
+IKEA unveils its official Pokopia collaboration with a new virtual island getaway, featuring exclusive Pikachu and Snorlax-themed room designs.
+---------
+
+# One Piece's Latest Release Just Changed a Major God Valley Detail
+
+Anime, One Piece
+
+Wed, 01 Apr 2026 15:15:13 GMT
+
+https://www.cbr.com/one-piece-shocking-twist-god-valley-details/
+
+One Piece has completely changed the backstory of one of its most popular and iconic villains.
+---------
+
+# A Super Mario Galaxy Movie Star Thinks Their Performance Is Oscar-Worthy
+
+Movies, Nintendo, The Super Mario Bros. Movie, The Super Mario Galaxy Movie
+
+Wed, 01 Apr 2026 15:10:14 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-star-says-performance-oscar-worthy/
+
+There is a lot of star power in the Super Mario Galaxy Movie, and one actor in particular says an Oscar might be on its way to him.
+---------
+
+# Most Iconic Spider-Man Quotes, Ranked
+
+Comics, Spider-Man
+
+Wed, 01 Apr 2026 15:01:39 GMT
+
+https://www.cbr.com/most-iconic-spider-man-quotes-ranked/
+
+Showcasing his unique sense of humor and relatable personality, Spider-Man's memorable quotes perfectly describe who he is as a hero.
+---------
+
+# The 10/10 Cult Classic Game Every JRPG Fan Needs to Play
+
+Games, JRPG, PlayStation (Original)
+
+Wed, 01 Apr 2026 15:01:12 GMT
+
+https://www.cbr.com/best-cult-classic-jrpg-vagrant-story-ps1/
+
+One of the best PS1 games is a title every JRPG lover should play once, even though it's hard to find.
+---------
+
+# Before 'Romy and Michelle' Reunite This Summer, This Indie Trailer Is Giving All the '90s Nostalgia We Need [Exclusive]
+
+Movie News, Ryan Hansen, Comedy, Movie Trailers, Indie
+
+Wed, 01 Apr 2026 16:00:13 GMT
+
+https://collider.com/reunion-movie-trailer-2026-indie-comedy-festival-winner-90s-nostalgia/
+
+Discover the hilarious story of mistaken identity at a 20-year high school reunion in the new comedy Reunion. Watch the exclusive trailer now.
+---------
+
+# New 'Scrubs' Revival Officially Breaks With Tradition in Early Preview [Exclusive]
+
+TV News, Scrubs, Zach Braff, Donald Faison, ABC
+
+Wed, 01 Apr 2026 16:00:13 GMT
+
+https://collider.com/scrubs-season-10-episode-7-sneak-peek-zach-braff-donald-faison/
+
+A new sneak peek at Episode 7 of the Scrubs revival finds J.D. and Turk breaking with a core tradition of their friendship. Watch it here!
+---------
+
+# Netflix Officially Launches First ‘Stranger Things’ Spin-Off This Month
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix, Millie Bobby Brown
+
+Wed, 01 Apr 2026 15:23:59 GMT
+
+https://collider.com/stranger-things-new-episodes-tales-from-85-release-date-april-23/
+
+New episodes of Stranger Things will officially arrive on Netflix this month with the first spin-off, Tales From '85. Here's the release schedule.
+---------
+
+# ‘Bosch’ Meets ‘Dexter’ in Prime Video’s New Crime Thriller Moving Forward Fast
+
+TV News, Bishop, Bosch, Titus Welliver, Joel Kinnaman
+
+Wed, 01 Apr 2026 15:09:41 GMT
+
+https://collider.com/prime-video-bosch-dexter-replacement-bishop-cast-xavier-samuel/
+
+Prime Video's new crime thriller, angling to replace Bosch and Dexter, continues to fill out its ensemble cast with stars.
+---------
+
+# George R.R. Martin’s Mysterious 5-Part Western Just Got a Major New Addition
+
+TV News, Dark Winds, George R.R. Martin, Shameless, Game Of Thrones
+
+Wed, 01 Apr 2026 15:07:37 GMT
+
+https://collider.com/george-r-r-martin-western-dark-winds-season-5-cast-noel-fisher-devin-sampson-craig/
+
+George R.R. Martin's perfect 5-part noir western, Dark Winds, has added a Shameless star and a Rez Ball alum to Season 5.
+---------
+
+# New ‘Broadchurch’-Style Mystery Series Is Quietly Dominating Netflix
+
+TV News, Jo Nesbø's Detective Hole, Joel Kinnaman, The Snowman, Broadchurch
+
+Wed, 01 Apr 2026 15:03:25 GMT
+
+https://collider.com/jo-nesbo-detective-hole-netflix-broadchurch-mystery-series-streaming-success-april-2026/
+
+Netflix's latest crime thriller adaptation, Jø Nesbo's Detective Hole, has beaten competition to claim the streaming crown. Find out more.
+---------
+
+# The Original ‘Jack Reacher’ Is Still Winning While Fans Wait Over a Year For Season 4
+
+Movie News, Reacher, Jack Reacher, Jack Reacher: Never Go Back, Tom Cruise
+
+Wed, 01 Apr 2026 15:00:17 GMT
+
+https://collider.com/tom-cruise-jack-reacher-christopher-mcquarrie-streaming-success-april-2026/
+
+Tom Cruise's first Jack Reacher movie sees a resurgence on streaming while Reacher fans wait over a year for Season 4. Find out more.
+---------
+
+# ‘Ghosts’ Officially Marks the End of an Era With New Season 5 Sneak Peek [Exclusive]
+
+Exclusives, Ghosts, CBS, Sitcom, Rose McIver
+
+Wed, 01 Apr 2026 15:00:12 GMT
+
+https://collider.com/ghosts-season-5-episode-14-sneak-peek-rose-mciver-brandon-scott-jones-cbs-sitcom/
+
+Ghosts is back with a new episode tomorrow that marks the end of an era on the supernatural series, but you can watch a sneak peek right now!
+---------
+
+# The 10 Game of Thrones Characters Who Suffered the Most
+
+TV Lists, Game Of Thrones
+
+Wed, 01 Apr 2026 16:00:20 GMT
+
+https://movieweb.com/game-of-thrones-characters-suffered-most/
+
+Game of Thrones is one long and sad story, replete with characters' anguish. Here are 10 who suffered the most in the series.
+---------
+
+# Netflix's New Bond Meets Wick Action Thriller 'Humint' Shoots to Success
+
+Movie News, Action, Thriller, Netflix
+
+Wed, 01 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/netflix-humint-stream-april-2026-action/
+
+After winning global streaming rights, the action spy thriller has shot to success just one day since making its debut.
+---------
+
+# 'The Super Mario Galaxy Movie' Voice Cast: Every Nintendo Character
+
+Features, The Super Mario Galaxy Movie
+
+Wed, 01 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/the-super-mario-galaxy-movie-every-nintendo-character/
+
+From Mario and Luigi to Yoshi, Star Fox and the Pikmin, here are all the Nintendo characters in 'The Super Mario Galaxy Movie.'
+---------
+
+# 'Super Mario Galaxy': Details of Post-Credits Scenes Confirmed
+
+Movie News, The Super Mario Galaxy Movie, Nintendo, Sci-Fi, Super Mario Bros.
+
+Wed, 01 Apr 2026 15:18:34 GMT
+
+https://movieweb.com/super-mario-galaxy-post-credits-scenes/
+
+'The Super Mario Galaxy Movie' is setting up for the future in the exciting credits sequences.
+---------
+
 # Where Kate Bishop Is During Daredevil: Born Again Season 2 & Why She Doesn't Rescue Swordsman
 
 Streaming TV, Daredevil: Born Again
