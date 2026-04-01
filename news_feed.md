@@ -1,3 +1,300 @@
+# Netflix's New 8-Part Psychological Thriller Series With Stellar Rotten Tomatoes Score Is Perfect From Start To Finish
+
+TV, Netflix, Something Very Bad Is Going to Happen
+
+Wed, 01 Apr 2026 20:32:19 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-netflix-series-perfect-start-finish/
+
+Netflix's new psychological thriller series has quickly become a global hit, and it is easy to see why, as it is perfect from start to finish.
+---------
+
+# Altered Carbon: Netflix's Canceled Cyberpunk Series That Deserved More
+
+Classic TV, Altered Carbon
+
+Wed, 01 Apr 2026 20:31:19 GMT
+
+https://screenrant.com/altered-carbon-netflix-cyberpunk-anime-prequel/
+
+Netflix canceled Altered Carbon after just two seasons, but it was such a distinctive cyberpunk vision that it spawned an anime spinoff movie.
+---------
+
+# Nintendo Officially Rewrites Princess Peach After 41 Years
+
+New Movies, The Super Mario Galaxy Movie, Super Mario
+
+Wed, 01 Apr 2026 20:31:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-princess-peach-rosalina-sisters-powers/
+
+Nintendo has used The Super Mario Galaxy Movie to officially rewrite Princess Peach, as the film includes major new reveals for the video game icon.
+---------
+
+# How Super Mario Galaxy Sets The Stage For Nintendo's Avengers: Endgame Moment
+
+Movies, The Super Mario Galaxy Movie
+
+Wed, 01 Apr 2026 20:20:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-nintendo-multiverse/
+
+The Super Mario Galaxy Movie's explanation for a wild Nintendo cameo sets the stage for massive crossovers in future Illumination movies.
+---------
+
+# Netflix's Underrated 8-Part Sci-Fi Series Shows Firefly How It's Done
+
+Classic TV, Terminator Zero
+
+Wed, 01 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/netflix-terminator-zero-show-firefly-sci-fi-series/
+
+The news that the Firefly reboot will be animated has surprised some fans, but the success of Terminator Zero should prove that it can be done well.
+---------
+
+# Xbox Game Pass New Free Game Hailed As "Best Gaming Experience To Date"
+
+Gaming, Xbox Game Pass
+
+Wed, 01 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-april-2026-resident-evil/
+
+One of Xbox Game Pass' newest free games is already getting a lot of praise and recommendations from people, and it's one you'll want to check out.
+---------
+
+# New Weapons Movie Officially Moving Forward As Monsterverse Writer Joins Zach Cregger
+
+Movies, Weapons, Horror, Zach Cregger
+
+Wed, 01 Apr 2026 19:57:31 GMT
+
+https://screenrant.com/new-weapons-movie-gladys-prequel-update-zach-cregger-zach-shields/
+
+Zach Cregger's Weapons prequel movie is officially moving forward at Warner Bros. as a Monsterverse writer is joining the horror project.
+---------
+
+# Jeff Bridges' 16-Year-Old Sci-Fi Quietly Changed Movies For The Better
+
+Movies, TRON: Legacy, Tron
+
+Wed, 01 Apr 2026 19:55:20 GMT
+
+https://screenrant.com/tron-legacy-cgi-deaging-technology-changed-movies/
+
+Jeff Bridges has no shortage of classics under his belt, but one of his most underrated films not only changed movies for the better, but forever.
+---------
+
+# The Fall Crime Drama Returns: Stream All 3 Seasons Free On Tubi
+
+TV, The Fall, Tubi TV, Gillian Anderson, Jamie Dornan
+
+Wed, 01 Apr 2026 19:51:31 GMT
+
+https://screenrant.com/the-fall-show-streaming-free-tubi-april-2026/
+
+Experience the gripping crime thriller The Fall, starring Gillian Anderson and Jamie Dornan, now streaming all 3 seasons for free on Tubi. Dive into the psychological cat-and-mouse game between hunter and hunted in this acclaimed BBC Two series.
+---------
+
+# Oscar Isaac’s Replacement In New Vampire Thriller Confirmed After Actor’s Exit
+
+Movies, Kristen Stewart, Wagner Moura, Oscar Isaac
+
+Wed, 01 Apr 2026 19:49:52 GMT
+
+https://screenrant.com/flesh-of-the-gods-movie-wagner-moura-replaces-oscar-isaac-role-details/
+
+A new vampire thriller is in the works with Kristen Stewart, and Oscar Isaac’s replacement following a scheduling issue has now been revealed.
+---------
+
+# 10 Nintendo Franchises Begging For the Mario Movie Treatment After Super Mario Galaxy
+
+Movies, Nintendo, The Super Mario Galaxy Movie
+
+Wed, 01 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/nintendo-franchises-begging-for-mario-movie-treatment-list/
+
+Mario is only scratching the surface of Nintendo's movie potential, and there are more than a few great options out there that deserve love, too.
+---------
+
+# Hulu’s New Action Series Is the Spring Streaming Hit No One Saw Coming
+
+Anime, Rooster Fighter, Hulu
+
+Wed, 01 Apr 2026 20:16:12 GMT
+
+https://www.cbr.com/rooster-fighter-action-anime-hulu-new-series-streaming-hit/
+
+Rooster Fighter, Hulu's latest action-anime offering for the Spring 2026 anime season, has quietly become an underrated hit.
+---------
+
+# James Bond Sequel Gets Title and Release Date Ahead of Reboot
+
+Movies, James Bond
+
+Wed, 01 Apr 2026 20:11:39 GMT
+
+https://www.cbr.com/james-bond-sequel-king-zero/
+
+The next chapter of James Bond's story has been revealed.
+---------
+
+# Japan's Biggest Anime Outlet Apologizes After April Fools' Joke Backfires
+
+Anime
+
+Wed, 01 Apr 2026 20:02:12 GMT
+
+https://www.cbr.com/animate-anime-april-fools-apology-2026/
+
+An official anime outlet provokes outrage after seemingly disrespecting a major content genre with a particularly distasteful April Fools' post.
+---------
+
+# HBO Max’s Memory of a Killer Is a Global Streaming Hit
+
+TV, Memory of a Killer, Crime, HBO Max
+
+Wed, 01 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/hbo-max-memory-of-a-killer-crime-streaming-success-april-2026/
+
+HBO Max's surprisingly perfect crime series is a perfect replacement for Dexter--and it's a streaming hit around the globe.
+---------
+
+# HBO Max's Dune is the Best Sci-Fi Franchise on Streaming
+
+Movies, Dune, Dune: Part Two, Dune: Part Three, Dune: Prophecy
+
+Wed, 01 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/hbo-max-dune-best-sci-fi-masterpiece-streaming/
+
+Ahead of the third movie, Dune is perhaps the most acclaimed sci-fi movie brand of the 2020s, and it's ironically perfect for the streaming landscape.
+---------
+
+# A Fan-Favorite Marvel Hero Is About To Get Hulk Powers
+
+Comics, Hulk, Daredevil
+
+Wed, 01 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/daredevil-3-daredevil-hulk-powers/
+
+The Hulk's irradiated powers are about to end up in the hands of the one street-level hero who knows exactly how to use them.
+---------
+
+# Warner Bros.’ $270M Surprise Horror Hit Weapons Is Officially Becoming a Franchise
+
+Movies, Weapons
+
+Wed, 01 Apr 2026 19:50:23 GMT
+
+https://www.cbr.com/weapons-prequel-gladys-writers-zach-cregger-zach-shields/
+
+After talks of a continuation, the Oscar-winning horror is officially becoming a franchise.
+---------
+
+# Deadpool Makes A Comeback With Must-Have Collector's Items
+
+Movies, Deadpool
+
+Wed, 01 Apr 2026 19:47:29 GMT
+
+https://www.cbr.com/deadpool-topps-trading-cards-april-fools-day/
+
+Deadpool's latest venture beyond Marvel Comics is no joke.
+---------
+
+# 8 HBO Shows That Are Better Than ‘Reacher'
+
+TV, HBO, Reacher, Banshee, The Last of Us
+
+Wed, 01 Apr 2026 20:29:12 GMT
+
+https://collider.com/hbo-shows-better-than-reacher/
+
+Banshee, The Wire, Mare of Easttown, The Last of Us, and more make up our list of HBO shows that are better than Reacher.
+---------
+
+# The Best Horror Villain of the 21st Century Is Officially Getting an Origin Story
+
+Movie News, Weapons
+
+Wed, 01 Apr 2026 20:17:17 GMT
+
+https://collider.com/weapons-prequel-aunt-gladys-zach-cregger-zach-shields-writing-amy-madigan/
+
+Zach Cregger's long-rumored Weapons prequel is officially moving forward, solidifying a new major horror franchise.
+---------
+
+# Netflix's 'Peaky Blinders' Sequel Officially Recruits a James Bond Star
+
+TV News, Peaky Blinders, Lashana Lynch, Peaky Blinders: The Immortal Man, Netflix
+
+Wed, 01 Apr 2026 19:46:16 GMT
+
+https://collider.com/peaky-blinders-sequel-series-cast-lashana-lynch-set-images/
+
+Filming is now underway for Netflix's Peaky Blinders sequel series, with a James Bond star joining the cast.
+---------
+
+# Every 'Jujutsu Kaisen' Story Arc, Ranked
+
+TV, Jujutsu Kaisen, Anime, Jujutsu Kaisen 0
+
+Wed, 01 Apr 2026 19:40:12 GMT
+
+https://collider.com/jujutsu-kaisen-every-arc-ranked/
+
+Jujutsu Kaisen is among the best anime in modern television, largely thanks to its celebrated story arcs, including the notorious Shibuya Incident.
+---------
+
+# 'Weapons' Director Zach Cregger Officially Writing Script for Prequel 'Gladys'
+
+Movie News, Weapons, Zach Cregger, Horror
+
+Wed, 01 Apr 2026 20:28:26 GMT
+
+https://movieweb.com/weapons-preqeul-gladys-script-zach-cregger/
+
+Director Zach Cregger is officially returning for a horror prequel to his hit Academy Award-winning film 'Weapons'.
+---------
+
+# 'Blair Witch Project' Revival Finds a Director With Newcomer Dylan Clark
+
+Movie News, Blair Witch, Blair Witch Project, Dylan Clark
+
+Wed, 01 Apr 2026 20:06:59 GMT
+
+https://movieweb.com/blair-witch-project-reboot-director/
+
+The short film director will put his own spin on the found-footage franchise.
+---------
+
+# Why Audiences Are So Excited About A24's 'Backrooms'
+
+Features, Backrooms, A24
+
+Wed, 01 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/why-audiences-excited-a24-backrooms/
+
+A24's buzzy new horror movie 'Backrooms' has lit up the internet thanks in large part to the loyal community behind its creepypasta origins.
+---------
+
+# 'Avengers: Doomsday' Rumor Suggests Release Date Change for IMAX Screens
+
+Movie News, Avengers: Doomsday
+
+Wed, 01 Apr 2026 20:00:08 GMT
+
+https://movieweb.com/avengers-doomsday-rumor-release-date/
+
+Marvel Studios may look to get some time on IMAX screens by moving the release date for 'Avengers: Doomsday.'
+---------
+
 # Pokemon Pokopia: How To Get The Limited-Time Real April Fool's Item
 
 Gaming, Pokemon Pokopia, Triple-A Games
