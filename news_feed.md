@@ -1,3 +1,212 @@
+# HBO's Harry Potter Is Already Blowing Game Of Thrones Out Of The Water
+
+Streaming TV, Harry Potter, Game Of Thrones
+
+Wed, 01 Apr 2026 18:06:12 GMT
+
+https://screenrant.com/harry-potter-tv-show-trailer-record-better-than-game-of-thrones/
+
+Game of Thrones set some impressive records in its day, but HBO history is already being made by the next big fantasy franchise on its roster.
+---------
+
+# 3 Years Later, A Wildly Popular Isekai Is Finally Returning
+
+Anime, Isekai, No Game, No Life
+
+Wed, 01 Apr 2026 18:02:51 GMT
+
+https://screenrant.com/no-game-no-life-isekai-returns/
+
+After a three-year hiatus, one of the isekai genres most popular series is finally returning with a new chapter that fans will not want to miss.
+---------
+
+# Ridley Scott's Raised by Wolves: The Spiritual Successor to Prometheus & Alien: Covenant
+
+Classic TV, Raised by Wolves, Ridley Scott
+
+Wed, 01 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/raised-by-wolves-ridley-scott-prometheus-sequel-next-best-thing/
+
+Renowned science fiction creator Ridley Scott helmed an 18-episode series that served as the perfect sequel to his cult-favorite film, Prometheus.
+---------
+
+# After 27 Years, Naruto’s Next Anime Will Finally Reveal The Title Hero’s Official Replacement
+
+Anime, Naruto, Boruto: Naruto Next Generations, Boruto: Two Blue Vortex
+
+Wed, 01 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/naruto-replacement-himawari-boruto-next-anime/
+
+The upcoming anime adaptation of Boruto: Two Blue Vortex will showcase the surprising character who inherits Naruto's greatest powers.
+---------
+
+# Titus Welliver Had "A Lot Of Fun" Shedding Bosch For New Villain Role In AMC's 100% RT Crime Masterpiece
+
+TV, Dark Winds, Dark Winds - Season 4, Titus Welliver, AMC
+
+Wed, 01 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/titus-welliver-dark-winds-season-4-villain-bosch-different/
+
+Titus Welliver talks his new villain role in season 4 of AMC's 100% RT crime masterpiece, loving its source material, and shedding Bosch.
+---------
+
+# Mortal Kombat II Breaks All-Time Runtime Record For $204M Movie Franchise
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Wed, 01 Apr 2026 17:50:17 GMT
+
+https://screenrant.com/mortal-kombat-2-runtime-movie-franchise-record/
+
+Mortal Kombat II officially breaks an all-time runtime record for the movie franchise, confirmed just one month ahead of its release.
+---------
+
+# James Cameron Will Let Fans Influence Avatar 4, Says Stephen Lang
+
+Movies, Avatar, Stephen Lang, James Cameron
+
+Wed, 01 Apr 2026 17:31:41 GMT
+
+https://screenrant.com/avatar-4-fan-input-james-cameron-stephen-lang/
+
+Director James Cameron is taking fan input into account for Avatar 4, according to actor Stephen Lang. The filmmaker is gauging what fans have to say about the next installment in the franchise.
+---------
+
+# Netflix's Live-Action One Piece Sent A Big Middle Finger To Garp
+
+Streaming TV, One Piece
+
+Wed, 01 Apr 2026 17:30:20 GMT
+
+https://screenrant.com/netflixs-live-action-one-piece-sent-a-big-middle-finger-to-garp/
+
+Garp gets a small but vital role in One Piece season 2, but Netflix's live-action series still finds time to send him a big middle finger.
+---------
+
+# Dragon Ball's Kamehameha Becomes Real in Surprise Government Stunt
+
+Anime, Dragon Ball
+
+Wed, 01 Apr 2026 18:05:25 GMT
+
+https://www.cbr.com/dragon-ball-france-japan-government-kamehameha/
+
+DBZ has taken over the world in a very real way as two prominent government leaders seal their political "fusion" with an impromptu Kamehameha.
+---------
+
+# CBS’s Yellowstone Replacement Becomes a Global Streaming Sensation As Fans Await New Episodes
+
+TV, Marshals
+
+Wed, 01 Apr 2026 18:01:12 GMT
+
+https://www.cbr.com/yellowstone-spinoff-marshals-paramount-plus-success-april-2026/
+
+Yellowstone fans cannot get enough of the franchise's latest spinoff, Marshals, on Paramount+.
+---------
+
+# One of Marvel’s Biggest Characters Started as a Joke 35 Years Ago
+
+Superheroes, Deadpool
+
+Wed, 01 Apr 2026 18:01:12 GMT
+
+https://www.cbr.com/marvel-deadpool-deathstroke-parody-history-explained/
+
+It doesn't take maximum effort to distinguish this beloved Marvel character from its inspiration.
+---------
+
+# 20 Years Later, James Gunn’s 87% RT Horror Debut Returns With Official 4K Upgrade
+
+Movies, Slither
+
+Wed, 01 Apr 2026 17:50:57 GMT
+
+https://www.cbr.com/james-gunn-horror-debut-slither-4k-steelbook-release/
+
+Before James Gunn was head of DC Studios, he was directing small-budget films, and now his very first is heading to 4K UHD.
+---------
+
+# Resident Evil Reboot Director Addresses Lore Changes
+
+Movies, Resident Evil
+
+Wed, 01 Apr 2026 17:49:38 GMT
+
+https://www.cbr.com/resident-evil-zach-cregger-lore-changes/
+
+Resident Evil reboot helmer Zach Cregger speaks about fan reactions to deviating from franchise lore.
+---------
+
+# 10 Essential Nintendo Switch Games That Can Be Called Masterpieces
+
+Games, Nintendo Switch, Video Games
+
+Wed, 01 Apr 2026 17:31:12 GMT
+
+https://www.cbr.com/must-play-nintendo-switch-games-masterpieces/
+
+Super Mario Bros. Wonder and The Legend of Zelda: Tears of the Kingdom are masterful Switch games.
+---------
+
+# 10 Strongest Super Mario Galaxy Movie Characters, Ranked By Power
+
+Movies, The Super Mario Galaxy Movie, Nintendo
+
+Wed, 01 Apr 2026 17:31:12 GMT
+
+https://www.cbr.com/strongest-super-mario-galaxy-movie-characters-ranked/
+
+The Super Mario Galaxy Movie includes some of Nintendo's strongest characters--but who is secretly the strongest of them all?
+---------
+
+# New Batman Project Officially Starts Filming This Month
+
+Movie News, The Batman Part II, Robert Pattinson, Sebastian Stan, Scarlett Johansson
+
+Wed, 01 Apr 2026 17:34:47 GMT
+
+https://collider.com/the-batman-part-2-robert-pattinson-filming-start-april-2026/
+
+Robert Pattinson confirms that The Batman Part II will officially begin production sooner than expected. Find out more details here.
+---------
+
+# ‘Heated Rivalry’ Is Officially Returning in Summer 2026 With Surprising New Project
+
+TV News, Heated Rivalry, Hudson Williams, Connor Storrie, HBO Max
+
+Wed, 01 Apr 2026 17:26:24 GMT
+
+https://collider.com/heated-rivalry-unauthorized-musical-parody-release-date-may-12-2026/
+
+Heated Rivalry is officially returning this summer with a very surprising new project, which is set to debut in May. Read on for more details.
+---------
+
+# 'Crime 101' Is a Must-Watch Crime Thriller Arriving on Streaming Today
+
+Features, Crime 101
+
+Wed, 01 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/crime-101-streaming-prime-april-2026/
+
+'Crime 101,' the crime thriller movie starring Chris Hemsworth and Mark Ruffalo, arrives on Amazon Prime Video on April 1, 2026.
+---------
+
+# Crunchyroll's New Fantasy Action Anime 'Witch Hat Atelier' Might Be the Best New Fantasy Series
+
+Features, Witch Hat Atelier, Crunchyroll, Fantasy, Anime
+
+Wed, 01 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/witch-hat-atelier-crunchyroll-rewriting-fantasy-genre-magic-system/
+
+'Witch Hat Atelier' premieres on Crunchyroll on April 6, and the high fantasy anime could be even better than 'Frieren: Beyond Journey's End.'
+---------
+
 # Project Hail Mary Could Be The Start Of An Impressive Box Office Streak For Ryan Gosling
 
 Movies, Project Hail Mary
