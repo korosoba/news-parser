@@ -1,3 +1,256 @@
+# Prime Video's New Spider-Man Series Is Officially A Comedy Despite Neo-Noir Crime Elements
+
+TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Thu, 02 Apr 2026 18:43:21 GMT
+
+https://screenrant.com/spiderman-tv-show-spider-noir-prime-video-comedy-category-awards/
+
+Despite its crime mystery and noir themes in the series, the upcoming live-action Spider-Man TV show for 2026 is officially set to be a comedy.
+---------
+
+# Hulu's New Handmaid's Tale Spinoff Debuts To Stellar Rotten Tomatoes Score
+
+TV, The Testaments, The Handmaid's Tale
+
+Thu, 02 Apr 2026 18:40:11 GMT
+
+https://screenrant.com/the-testaments-rotten-tomatoes-score-hulu-handmaids-tale/
+
+Hulu's new spinoff of The Handmaid's Tale debuts with a stellar score on Rotten Tomatoes ahead of the upcoming series premiere on April 8.
+---------
+
+# Nathan Fillion's Hit Crime Series Officially Sets Season 8 Finale Release As Renewal Status Awaits
+
+TV, The Rookie
+
+Thu, 02 Apr 2026 18:36:40 GMT
+
+https://screenrant.com/the-rookie-season-8-finale-release-date-abc-confirmed/
+
+ABC has officially confirmed the season 8 finale release date for Nathan Fillion's long-running hit crime series, as its renewal is uncertain.
+---------
+
+# Forget Breaking Bad's Jesse Pinkman, Aaron Paul Needs To Reprise Another Great TV Character
+
+Classic TV, Westworld
+
+Thu, 02 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/aaron-paul-breaking-bad-jesse-pinkman-reprise-role-westworld/
+
+While Jesse Pinkman is Aaron Paul's best role, I would rather see him reprise Caleb Nichols in Westworld than I would see him do Breaking Bad again.
+---------
+
+# Severance-Inspired Movie Backrooms Promises Terrifying Twist on TV Series
+
+Movies, Severance, Backrooms
+
+Thu, 02 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/a24-backrooms-movie-severance-comparison/
+
+Severance season 3 is still a long way away, but a new feature film from A24 releasing in theaters this summer looks to scratch the same itch.
+---------
+
+# New Michael Jackson Movie Projected To Set Major Box Office Record, Beating 8-Year-Old Oscar-Winning Hit
+
+Movies, Michael, Box Office
+
+Thu, 02 Apr 2026 18:17:50 GMT
+
+https://screenrant.com/michael-2026-movie-box-office-projections-musical-biopic-record/
+
+The upcoming Michael Jackson biopic is already projected to set a major box office record, surpassing an Oscar-winning hit after eight years.
+---------
+
+# All Active Arknights: Endfield Codes (April 2026)
+
+Gaming, arknights, Triple-A Games, PC
+
+Thu, 02 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/arknights-endfield-all-active-codes/
+
+The long-awaited release of Arknights Endfield is here, with more than a few codes to give you a head start for its brand-new sci-fi adventure.
+---------
+
+# Prime Video's 8-Part Cyberpunk Thriller Series Is One Of Its Best
+
+TV, The Peripheral
+
+Thu, 02 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/the-peripheral-prime-video-best-cyberpunk-thriller-series/
+
+Prime Video's cyberpunk show The Peripheral was cancelled far too soon, but the show remains a starry, thrilling sci-fi hit that viewers still love.
+---------
+
+# The Masked Singer Season 14 Runner-Up Phillip Phillips Reveals How Performing As Pugcasso Compared To American Idol & Discusses His New Single
+
+Reality TV, The Masked Singer
+
+Thu, 02 Apr 2026 17:44:27 GMT
+
+https://screenrant.com/the-masked-singer-season-14-phillip-phillips-pugcasso-interview/
+
+In an interview with ScreenRant, Masked Singer S14 runner-up Phillip Phillips discusses his journey as Pugcasso and how it compared to American Idol.
+---------
+
+# Crunchyroll's Anime of the Year Nominees Revealed, And The Competition Is Closer Than Ever
+
+Anime, Crunchyroll
+
+Thu, 02 Apr 2026 17:43:51 GMT
+
+https://screenrant.com/crunchyroll-anime-year-award-nominee-list-revealed/
+
+In a year marked by intense competition, the 2026 Crunchyroll Anime Awards nominees have finally been revealed, and fans can start voting now.
+---------
+
+# GTA 6's Map Is Officially 2.5 Times Bigger Than GTA 5
+
+Games, Grand Theft Auto, Grand Theft Auto 5
+
+Thu, 02 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/gta-6-map-size-official-confirmation/
+
+Grand Theft Auto VI is set for a November 2026 release, and fans are getting their best looks at the biggest open-world game ever yet.
+---------
+
+# Frieren Officially Strikes Down the Strongest Curse of All Time
+
+Anime, Frieren: Beyond Journey's End
+
+Thu, 02 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/frieren-season-2-better-than-season-1/
+
+Frieren's flawless Season 2 run has effectively defeated one of the strongest curses in the industry.
+---------
+
+# HBO's The Pitt Loses Major Star for Season 3 After Casting Shakeup
+
+TV, The Pitt
+
+Thu, 02 Apr 2026 18:12:44 GMT
+
+https://www.cbr.com/the-pitt-season-3-supiya-ganesh-exit/
+
+The Pitt gets a big casting shakeup ahead of Season 3.
+---------
+
+# Apple TV's 92% RT Sci-Fi Epic Series Is Climbing Up the Charts Again After Explosive Return
+
+TV, For All Mankind, Apple TV
+
+Thu, 02 Apr 2026 18:01:12 GMT
+
+https://www.cbr.com/for-all-mankind-sci-fi-apple-tv-success-april-2026/
+
+Following its return at the end of March, Apple TV's alt-history sci-fi series is back on the streaming charts.
+---------
+
+# Quentin Tarantino Said 'the Greatest Film About the Vietnam War' Is Casualties of War
+
+Movies, Casualties of War
+
+Thu, 02 Apr 2026 18:01:12 GMT
+
+https://www.cbr.com/quentin-tarantino-casualties-of-war-greatest-vietnam-war-movie/
+
+Casualties of War tells an intensely haunting true story of the Vietnam War, and with Quentin Tarantino's acclaim, it deserves much wider recognition.
+---------
+
+# Alex Turner Dismisses Arctic Monkeys Song With Over 500 Million Spotify Streams as "Rubbish"
+
+Music Features, Arctic Monkeys - At The Apollo, Music, Rock, Spotify
+
+Thu, 02 Apr 2026 18:38:33 GMT
+
+https://collider.com/arctic-monkeys-i-bet-you-look-good-on-the-dancefloor-500-million-spotify-streams/
+
+Arctic Monkeys' debut single became an anthem, propelling the band to fame and remaining a beloved classic despite frontman Alex Turner's initial dismissal.
+---------
+
+# Guillermo del Toro's 4-Part Horror Series Is Even More Relevant in 2026
+
+TV Features, the strain, FX, Guillermo del Toro, Horror
+
+Thu, 02 Apr 2026 18:25:12 GMT
+
+https://collider.com/the-strain-guillermo-del-toro-fx-horror-series-more-relevant-2026/
+
+Guillermo del Toro and Chuck Hogan's FX series The Strain, starring Corey Stoll, is a terrifying horror thriller that feels eerily relevant now.
+---------
+
+# 7 Prime Video Shows That Have Aged Like Milk
+
+TV, Prime Video, The Lord of the Rings: The Rings of Power, Beast Games, The Summer I Turned Pretty
+
+Thu, 02 Apr 2026 18:10:12 GMT
+
+https://collider.com/prime-video-shows-aged-like-milk/
+
+Time hasn't been kind to once-beloved Prime Video shows like The Summer I Turned Pretty and Beast Games, with their reputation only getting worse.
+---------
+
+# 'Mortal Kombat 2' Shatters Franchise Record 1 Month Ahead of Release
+
+Movie News, Mortal Kombat II, Karl Urban, Mortal Kombat, Lewis Tan
+
+Thu, 02 Apr 2026 18:02:43 GMT
+
+https://collider.com/mortal-kombat-2-breaks-franchise-runtime-record-1-hour-56-minutes/
+
+Mortal Kombat II, starring Karl Urban and Hiroyuki Sanada, has already broken a franchise record 1 month before release.
+---------
+
+# Aaron Taylor-Johnson Action Thriller 'Fuze' Lands Fresh Rotten Tomatoes Score
+
+Movie News, Fuze, Aaron Taylor-Johnson
+
+Thu, 02 Apr 2026 18:26:28 GMT
+
+https://movieweb.com/fuze-rotten-tomatoes-score/
+
+'Fuze,' starring Aaron Taylor-Johhson and Theo James, has landed a fresh score on Rotten Tomatoes.
+---------
+
+# 'The Pitt' Season 3 Will Not Feature Supriya Ganesh as Dr. Samira Mohan
+
+TV News, The Pitt, HBO Max
+
+Thu, 02 Apr 2026 18:18:00 GMT
+
+https://movieweb.com/the-pitt-season-3-mohan-exit/
+
+The actor's exit is reportedly due to a narrative decision about the show's trajectory.
+---------
+
+# Taylor Sheridan's 2026 Neo-Western Action Thriller 'Marshals' Is a Streaming Success on Paramount+ Despite Bad Reviews
+
+TV News, Marshals, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Thu, 02 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/taylor-sheridan-marshals-new-yellowstone-streaming-success-paramount-april-2026/
+
+Taylor Sheridan's hated new 'Yellowstone' series, 'Marshals,' is a big success on Paramount+, even with a terrible Rotten Tomatoes score.
+---------
+
+# 'The Boys' Is the Perfect 'Supernatural' Season 16 Replacement
+
+Features, The Boys, Supernatural
+
+Thu, 02 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/the-boys-season-5-supernatural-replacement/
+
+'The Boys' Season 5 premieres on Prime on April 8, 2026, and will feature 'Supernatural' stars Mischa Collins, Jensen Ackles, and Jared Padalecki.
+---------
+
 # DC's Next Batman Movie Officially Sets 2026 Release With Bane & More Villains
 
 Movies, Batman, DC Universe
