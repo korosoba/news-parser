@@ -1,3 +1,91 @@
+# Netflix’s 10-Part Political Thriller Is Quietly One Of Its Best For A Weekend Binge
+
+Streaming TV, Netflix, Messiah
+
+Thu, 02 Apr 2026 23:54:20 GMT
+
+https://screenrant.com/netflix-messiah-series-binge-watch/
+
+Netflix's overlooked 10-part political thriller, Messiah, features a star-studded cast and a compelling story perfect for a weekend binge-watch.
+---------
+
+# Alfred’s “Emotional” Batman 2 Story Return & Filming Timeline Teased By Andy Serkis
+
+Movies, The Batman Part II, Batman, DC Universe, Andy Serkis
+
+Thu, 02 Apr 2026 23:35:42 GMT
+
+https://screenrant.com/the-batman-2-alfred-story-emotional-filming-timeline-andy-serkis/
+
+Exclusive: Andy Serkis teases Alfred's "emotional" story to come in The Batman 2, as well as an update on the filming timeline for the sequel.
+---------
+
+# The 10 Strongest First-Class Mages in Frieren, Ranked
+
+Anime, Frieren: Beyond Journey's End
+
+Thu, 02 Apr 2026 23:30:31 GMT
+
+https://www.cbr.com/frieren-strongest-first-class-mages-power-rank/
+
+Serie's cutthroat First-Class Mages are among the strongest characters in Frieren: Beyond Journey's End, other than Frieren herself.
+---------
+
+# 'The Super Mario Galaxy Movie' Officially Teases 2 Potential Projects in Nintendo's New Universe
+
+Movie Features, The Super Mario Galaxy Movie, Nintendo, Illumination, Adventure
+
+Thu, 02 Apr 2026 23:49:13 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-star-fox-donkey-kong-nintendo-universe/
+
+The Super Mario Galaxy Movie, starring Chris Pratt, Charlie Day, and Jack Black, hints at several possible ways Nintendo can expand its universe.
+---------
+
+# 10 Greatest Movie Twist Endings of All Time, Ranked
+
+Movie, The Empire Strikes Back, The Sixth Sense, The Usual Suspects, Psycho
+
+Thu, 02 Apr 2026 23:48:14 GMT
+
+https://collider.com/best-movie-twist-endings-ranked/
+
+If you're after iconic twist endings, some of the best in cinema history can be found in classics like Psycho, Oldboy, and The Usual Suspects.
+---------
+
+# 10 TV Shows That Were Perfect Until They Made a Second Season
+
+TV, Stranger Things, Yellowstone, The Mandalorian, True Detective
+
+Thu, 02 Apr 2026 23:40:13 GMT
+
+https://collider.com/tv-shows-should-have-been-single-season/
+
+In hindsight, we think it would've been better if shows like Stranger Things, Yellowstone, and The Mandalorian, had only lasted a single season.
+---------
+
+# Avatar’s Final Sequels Get Big Update as Disney Reworks Release Schedule
+
+Movie News, Avatar 4, Avatar 5, Avatar: Fire and Ash, Avatar
+
+Thu, 02 Apr 2026 23:30:12 GMT
+
+https://collider.com/avatar-4-5-release-dates-changing-update-disney-rae-sanchini/
+
+Avatar producer Rae Sanchini confirms that the release dates for the next two sequels are moving, months after Avatar 3 hit theaters.
+---------
+
+# Every New Movie and TV Show Coming to Disney+ and Hulu in April 2026
+
+Features, Hulu, Disney+
+
+Thu, 02 Apr 2026 23:30:18 GMT
+
+https://movieweb.com/disney-hulu-movies-tv-shows-streaming-april-2026/
+
+Find out when the newest TV shows and movies are coming to streaming on Hulu and Disney+ in April 2026.
+---------
+
 # This 54-Year-Old Marvel Character Could Explain What's Really Going On In Spider-Man: Brand New Day
 
 Movies, Spider-Man: Brand New Day
