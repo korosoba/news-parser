@@ -1,3 +1,300 @@
+# DC's Next Batman Movie Officially Sets 2026 Release With Bane & More Villains
+
+Movies, Batman, DC Universe
+
+Thu, 02 Apr 2026 17:41:11 GMT
+
+https://screenrant.com/dc-batman-movie-knightfall-2026-release-reveal/
+
+DC's next Batman movie is going to arrive quite soon, as the Dark Knight's battle with Bane and other villains sets an exciting 2026 release.
+---------
+
+# The Pitt Season 3 Loses Main Cast Member
+
+TV, The Pitt, The Pitt - Season 2
+
+Thu, 02 Apr 2026 17:40:43 GMT
+
+https://screenrant.com/the-pitt-season-3-cast-supriya-ganesh-mohan-exit/
+
+The Pitt season 3 is making some changes to its cast as a main member is set to leave the HBO Max medical drama after starring in two seasons.
+---------
+
+# Bestselling Science Fiction Series Is Officially Becoming A Live-Action TV Show From Seth MacFarlane
+
+TV, Seth MacFarlane
+
+Thu, 02 Apr 2026 17:40:22 GMT
+
+https://screenrant.com/dungeon-crawler-carl-tv-series-peacock-seth-macfarlane-development/
+
+A bestselling science fiction series is officially becoming a live-action TV show from Seth MacFarlane, now in development for a streaming service.
+---------
+
+# George Costanza's Iconic Seinfeld Quote: A Prophetic Commentary On The Times We Live In
+
+Classic TV, Seinfeld
+
+Thu, 02 Apr 2026 17:33:19 GMT
+
+https://screenrant.com/seinfeld-george-best-line-better-than-ever/
+
+As great as Seinfeld is, much of the landmark sitcom hasn't aged all that well. But three decades later, George Costanza's best line hits ever harder.
+---------
+
+# Timothy Olyphant's Dark New R-Rated Villain Unveiled In Over Your Dead Body’s Bloody Teaser
+
+Movies, Over Your Dead Body
+
+Thu, 02 Apr 2026 17:25:31 GMT
+
+https://screenrant.com/over-your-dead-body-red-band-trailer/
+
+Timothy Olyphant and Samara Weaving are caught up in very bloody doings in the new red band teaser trailer for the R-rated Over Your Dead Body.
+---------
+
+# 9 Best Space Movies To Watch While Artemis II Flies To The Moon, Ranked
+
+Movies, Space, Recommendation
+
+Thu, 02 Apr 2026 17:20:19 GMT
+
+https://screenrant.com/best-space-movies-watch-artemis-ii-launch-ranked/
+
+Artemis II just launched and will see astronauts orbit the moon. These space movies will help you go on an incredible journey alongside them.
+---------
+
+# Dungeons & Dragons' New 4-Part Series Is The Complete Franchise Reinvention Fans Have Been Begging For
+
+Comics, Dungeons and Dragons, Dungeons & Dragons
+
+Thu, 02 Apr 2026 17:14:53 GMT
+
+https://screenrant.com/dungeons-dragons-total-party-killers-reboot-monsters-explained/
+
+Dungeons & Dragons is getting a new series, and based on the teasers, it looks poised to revolutionize the typical dungeon-crawling experience.
+---------
+
+# Naruto Creator Officially Returns With Glorious New Art
+
+Anime, Naruto, Naruto (1999)
+
+Thu, 02 Apr 2026 17:10:50 GMT
+
+https://screenrant.com/naruto-creator-returns-with-glorious-new-art/
+
+Long-time Naruto fans hungry for more of its iconic style are in for a treat as the original creator releases stunning new artwork.
+---------
+
+# Star Trek: Alex Kurtzman Era's Missed Opportunities
+
+TV, Star Trek, Alex Kurtzman
+
+Thu, 02 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/star-trek-missed-opportunities-alex-kurtzman-era/
+
+Even after 6 new Star Trek series and a streaming movie, some amazing ideas never came to fruition during the decade Alex Kurtzman ran Star Trek.
+---------
+
+# Naruto Creator Masashi Kishimoto Reveals New Naruto & Kurama Art
+
+Anime, Naruto, masashi kishimoto
+
+Thu, 02 Apr 2026 17:42:50 GMT
+
+https://www.cbr.com/naruto-masashi-kishimotonew-art-april-2026/
+
+Naruto creator Masashi Kishimoto unveils brand-new artwork featuring the series' most beloved characters for a major celebration.
+---------
+
+# The Super Mario Galaxy Movie Has a Metroid Easter Egg You Definitely Missed
+
+Movies, The Super Mario Galaxy Movie, Nintendo, Metroid
+
+Thu, 02 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-secret-metroid-easter-egg/
+
+The Super Mario Galaxy Movie features many Nintendo franchises, and one of the biggest surprises was a very quick Metroid Easter egg.
+---------
+
+# 7 Amazing New Switch Games You Can Play This April
+
+Games, Nintendo Switch
+
+Thu, 02 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/best-new-nintendo-switch-games-april-2026/
+
+The Nintendo Switch continues to provide an exciting gaming platform and these titles highlight its sheer variety.
+---------
+
+# Once Upon a Time in the West Now Streaming on Paramount+
+
+Movies, Once Upon a Time in the West
+
+Thu, 02 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/once-upon-a-time-in-the-west-paramount-plus-april-2026/
+
+The legendary Western movie Once Upon a Time in the West has arrived on Paramount+.
+---------
+
+# Super Mario Movie Stars Pitch Duck Hunt Adaptation
+
+Movies, Nintendo, The Super Mario Galaxy Movie
+
+Thu, 02 Apr 2026 16:53:26 GMT
+
+https://www.cbr.com/nintendo-duck-hunt-movie-jack-black-donald-glover/
+
+After more than four decades, it's time for the legendary Nintendo game to get its first adaptation.
+---------
+
+# ‘The Pitt’ Loses One of Its Best Characters Ahead of Season 3
+
+TV News, The Pitt
+
+Thu, 02 Apr 2026 17:43:09 GMT
+
+https://collider.com/the-pitt-season-3-supriya-ganesh-exit-dr-mohan-dr-ellis-ayesha-harris-series-regular/
+
+The Pitt is making a major casting change for Season 3 as Supriya Ganesh exits while one of the best night shift doctors moves to series regular.
+---------
+
+# Meryl Streep's First Netflix Series Officially Gives Taylor Sheridan Competition
+
+TV News, Meryl Streep, Jonathan Franzen, Netflix, Cord Jefferson
+
+Thu, 02 Apr 2026 17:41:05 GMT
+
+https://collider.com/netflix-taylor-sheridan-the-madison-replacement-the-connections-adaptation-cast-meryl-streep/
+
+Meryl Streep is set to lead an adaptation of The Connections for Netflix, which sounds perfect for The Madison fans.
+---------
+
+# ‘Firefly’ Meets ‘Westworld’ in Apple TV’s George R.R. Martin-Approved Sleeper Hit Sci fi Series
+
+TV News, Murderbot, George R.R. Martin, Apple TV, Alexander Skarsgard
+
+Thu, 02 Apr 2026 17:31:51 GMT
+
+https://collider.com/firefly-meets-westworld-george-rr-martin-approved-sci-fi-series-murderbot-streaming-success-apple-tv-april-2026/
+
+The thrilling sci-fi series, Murderbot, praised by George R.R. Martin, is performing impressively on AppleTV globally.
+---------
+
+# This 1968 No. 1 Hit Is Now Considered the 'Most Perfect' Song by The Beatles
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Music, Rock
+
+Thu, 02 Apr 2026 17:31:29 GMT
+
+https://collider.com/the-beatles-1968-hey-jude-most-perfect-song/
+
+The Beatles topped the charts in 1968 with their most perfect song, thanks to its structure, emotion, and lasting cultural impact.
+---------
+
+# 6 Upcoming Thriller Shows You Cannot Miss
+
+TV, Thriller, The Boroughs, The Testaments, M.I.A.
+
+Thu, 02 Apr 2026 17:18:12 GMT
+
+https://collider.com/new-thriller-shows-2026-must-watch/
+
+The Testaments, Man on Fire, The Boroughs, Unconditional, M.I.A, and more make up our list of upcoming 2026 thriller shows you cannot miss.
+---------
+
+# Anya Taylor-Joy's Performance in This 11-Year-Old Cult Classic Still Gives Us Chills
+
+Movie Features, The Witch, Anya Taylor-Joy, Robert Eggers, Horror
+
+Thu, 02 Apr 2026 17:08:12 GMT
+
+https://collider.com/the-witch-anya-taylor-joy-performance/
+
+Robert Eggers’ The Witch remains a modern horror favorite, thanks in part to Anya Taylor-Joy’s unforgettable debut performance.
+---------
+
+# Star Wars Secretly Cast an Oscar Nominee in 'Maul — Shadow Lord' Years Before His Breakout [Exclusive]
+
+Exclusives, Star Wars, Wagner Moura, Star Wars: Maul - Shadow Lord, Disney+
+
+Thu, 02 Apr 2026 17:01:12 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-wagner-moura-role-kept-secret-athena-yvette-portillo-brad-rau/
+
+The producers of Star Wars: Maul - Shadow Lord shared how they kept Wagner Moura's role in the series secret for two years.
+---------
+
+# New ‘Happy’s Place’ Sneak Peek Shows Why It’s One of Network TV’s Best Comedies [Exclusive]
+
+Exclusives, Happy's Place, Reba McEntire, Cheri Oteri, NBC
+
+Thu, 02 Apr 2026 17:01:12 GMT
+
+https://collider.com/happys-place-season-2-episode-14-sneak-peek-reba-mcentire-cheri-oteri/
+
+NBC's hit sitcom Happy's Place, starring Reba McEntire, gets a new sneak peek as Cheri Oteri guest stars in the latest episode. Watch it here!
+---------
+
+# New Teaser for Apple TV's 'Widow's Bay' Gives 'Twin Peaks' Vibes
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys
+
+Thu, 02 Apr 2026 17:25:10 GMT
+
+https://movieweb.com/widows-bay-trailer-apple-tv/
+
+The all-new genre-bending series is set to premiere on Apr. 29.
+---------
+
+# How Leonard Nimoy's Unexpected Cameo in 'The Simpsons' Launched the Perfect 'Star Trek' Crossover
+
+Features, Star Trek, The Simpsons, Futurama, Leonard Nimoy, Matt Groening
+
+Thu, 02 Apr 2026 17:01:17 GMT
+
+https://movieweb.com/leonard-nimoy-the-simpsons-futurama-star-trek-crossover/
+
+One simple cameo for Leonard Nimoy resulted in one of the biggest 'Star Trek' crossovers, and now he's a staple of 'The Simpsons' and 'Futurama.'
+---------
+
+# Sad Anime Series About Unrequited Love
+
+TV Lists, Anime, Romance
+
+Thu, 02 Apr 2026 17:01:17 GMT
+
+https://movieweb.com/sad-anime-series-unrequited-love/
+
+Within the broad genre of romantic anime, some of the most moving narratives focus on the universal feeling of one-sided love.
+---------
+
+# 'Super Mario Galaxy Movie' Wins 2026's Biggest Opening Day at the Box Office
+
+Movie News, The Super Mario Galaxy Movie, box office
+
+Thu, 02 Apr 2026 17:00:39 GMT
+
+https://movieweb.com/super-mario-galaxy-box-office-opening/
+
+Universal's 'The Super Mario Galaxy Movie' now holds the top spot for the biggest opening weekend at the 2026 box office.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Quickly Renewed for Season 2 on Disney+
+
+TV News, Star Wars: Maul - Shadow Lord
+
+Thu, 02 Apr 2026 16:51:10 GMT
+
+https://movieweb.com/the-fate-of-new-star-wars-maul-series-decided-ahead-of-season-1-premiere/
+
+Dave Filoni has confirmed that 'Maul – Shadow Lord' Season 2 is in development at Lucasfilm.
+---------
+
 # Black Clover's Return Lands Official Release Date, And It's Sooner Than Fans Thought
 
 Anime, Black Clover
