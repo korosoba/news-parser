@@ -1,3 +1,124 @@
+# PlayStation Drops Free 138-Hour RPG You Don't Need PS Plus For
+
+Gaming, PlayStation 5, PlayStation Plus
+
+Thu, 02 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/playstation-free-138-hour-rpg-no-ps-plus-april-2026/
+
+PlayStation gamers can get their hands on a huge 138-hour RPG right now, and the best part is, you don't need PS Plus to access it.
+---------
+
+# God Of War Official Kratos Recast Is A Hit With Gamers
+
+Gaming, God of War, God of War Trilogy Remake
+
+Thu, 02 Apr 2026 11:06:16 GMT
+
+https://screenrant.com/god-of-war-official-kratos-recast-is-a-hit-with-gamers/
+
+TC Carson is returning to his role as Kratos in the upcoming God of War remakes, and fans are happy to see him return to the role.
+---------
+
+# XO, Kitty Season 3 Finale: Kitty & Min Ho's Relationship Status
+
+Streaming TV, XO, Kitty
+
+Thu, 02 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/xo-kitty-season-3-ending-explained/
+
+Discover how Kitty & Min Ho's relationship unfolds in the emotional XO, Kitty Season 3 finale, as well as what happens with the rest of the KISS gang.
+---------
+
+# 10 Most Shocking DC Deaths That Fans Can't Move On From
+
+Comics, DC Comics, Batman, Superman
+
+Thu, 02 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/most-shocking-dc-comics-deaths-superman-batman-list/
+
+DC Comics has featured countless character deaths over the years, but these ten are the ones that fans just can't seem to get over.
+---------
+
+# 10 Nintendo Characters Who Are Worthy To Lift Thor's Hammer
+
+Comics, Nintendo, Marvel
+
+Thu, 02 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/nintendo-characters-who-can-wield-mjolnir/
+
+By Odin's goodwill, these Nintendo characters can lift Mjolnir.
+---------
+
+# New Star Wars Crime Series Officially Arrives Next Week
+
+TV News, Star Wars: Maul - Shadow Lord, Sam Witwer, Star Wars, Disney+
+
+Thu, 02 Apr 2026 11:30:12 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-streaming-disney-plus-release-date-april-6-2026/
+
+A legendary Sith Lord lives in Star Wars: Maul - Shadow Lord, debuting on Disney+ next week. Read on for more.
+---------
+
+# 7 Near-Perfect Action Thrillers That No One Remembers Today
+
+Movie, Thriller, Extreme Prejudice, Love Exposure, Patlabor: The Movie
+
+Thu, 02 Apr 2026 11:22:13 GMT
+
+https://collider.com/near-perfect-action-thrillers-no-one-remembers/
+
+From On Probation to Extreme Prejudice, these action thrillers remain forgotten despite representing their genre at its most riveting and flawless.
+---------
+
+# 10 Nearly Perfect Action Shows, Ranked
+
+TV, Action, Shogun, Gangs of London, Spartacus
+
+Thu, 02 Apr 2026 11:08:12 GMT
+
+https://collider.com/nearly-perfect-action-shows-ranked/
+
+From Gangs of London to Shōgun, these action shows deliver relentless tension, brutal fights, and storytelling that hits hard.
+---------
+
+# 2025’s Best Horror Remake Officially Finds a Streaming Home
+
+Movie News, Silent Night, Deadly Night, Rohan Campbell, Halloween Ends, Horror
+
+Thu, 02 Apr 2026 11:00:13 GMT
+
+https://collider.com/holiday-horror-movie-silent-night-deadly-night-remake-streaming-screambox-april-28-2026/
+
+2025’s Silent Night, Deadly Night remake is finally bringing its holiday chaos to streaming this month. Read on for more details.
+---------
+
+# 9 Greatest '80s Thriller Movies Ever Made
+
+Movie, Thriller, 1980s, The Shining, The Long Good Friday
+
+Thu, 02 Apr 2026 10:53:12 GMT
+
+https://collider.com/best-1980s-thriller-movies-ever/
+
+The Long Good Friday, Thief, The Vanishing, After Hours, The Killer, and more make up our list of the greatest 1980s thriller movies ever made.
+---------
+
+# The 'Scrubs' Revival Episode 7 Answers How Turk & JD Stayed in Touch (& More)
+
+Features, Scrubs
+
+Thu, 02 Apr 2026 11:00:18 GMT
+
+https://movieweb.com/scrubs-revival-turk-jd-question/
+
+Turk & JD were the central friendship in 'Scrubs,' but the revival revealed they'd drifted. Still, they had a fun way of catching up with each other.
+---------
+
 # Halo's Official Master Chief Redesign Isn't What We Expected
 
 Gaming, Halo, Halo: Campaign Evolved
