@@ -1,3 +1,410 @@
+# Black Clover's Return Lands Official Release Date, And It's Sooner Than Fans Thought
+
+Anime, Black Clover
+
+Thu, 02 Apr 2026 16:46:11 GMT
+
+https://screenrant.com/black-clover-chapter-390-release-date/
+
+Black Clover is officially returning and its release date is a lot sooner than anyone expected, so do not miss its upcoming chapter or release.
+---------
+
+# Netflix's New Series Based On 25-Year-Old Bestseller Officially Casts Meryl Streep In Lead Role
+
+TV, the corrections, Meryl Streep, Netflix
+
+Thu, 02 Apr 2026 16:45:39 GMT
+
+https://screenrant.com/the-corrections-tv-show-meryl-streep-cast-confirmed-netflix/
+
+Netflix has officially cast Meryl Streep in a major role for a TV adaptation based on a 25-year-old bestselling novel.
+---------
+
+# Netflix's Masterpiece Thriller Series With Near-Perfect Rotten Tomatoes Score Returns In Two Weeks & The Time to Binge It Is Now
+
+TV, Netflix, Beef
+
+Thu, 02 Apr 2026 16:45:22 GMT
+
+https://screenrant.com/beef-season-2-netflix-thriller-series-2026-return-binge/
+
+One of Netflix's best thriller series is set to return in two weeks after a 3-year wait, and the time to binge it and get ready for the show is now.
+---------
+
+# Charlie Day Confirms It's Always Sunny In Philadelphia Episode Count
+
+TV, Charlie Day, It's Always Sunny in Philadelphia
+
+Thu, 02 Apr 2026 16:33:40 GMT
+
+https://screenrant.com/its-always-sunny-in-philadelphia-season-18-2026-release-episode-count/
+
+Charlie Day reveals It's Always Sunny In Philadelphia has released 187 episodes so far, with 10 more planned for this year in Season 18.
+---------
+
+# How Schitt's Creek Star's New Indie Short Could Become The Next Big Vampire Show Explained By Director
+
+TV, Dustin Milligan, SXSW
+
+Thu, 02 Apr 2026 16:32:42 GMT
+
+https://screenrant.com/are-we-still-married-short-film-vampire-drama-kit-steinkellner-sxsw-interview/
+
+Are We Still Married? director Kitt Steinkellner shares the origin of her SXSW pilot, how she cast Dustin Milligan, and where the story can go next.
+---------
+
+# Walton Goggins' Prime Video Action Series Is One Of His Best
+
+Streaming TV, Invincible, Prime Video
+
+Thu, 02 Apr 2026 16:31:19 GMT
+
+https://screenrant.com/walton-goggins-prime-video-invincible-best-roles/
+
+Walton Goggins' Prime Video action series sporting a nearly-perfect score on Rotten Tomatoes is secretly one of the actors' best roles.
+---------
+
+# Pokémon Officially Confirms The End Of An Era
+
+Gaming, Pokemon Scarlet and Violet, Pokemon, Triple-A Games, Pokemon Champions
+
+Thu, 02 Apr 2026 16:31:04 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-end-of-an-era/
+
+Pokémon Scarlet and Violet have just kicked off their 41st season, but competitive battling scene may be changing forever in just a few days.
+---------
+
+# Project Hail Mary Inspires More Confidence In Amazon's Next Risky Blockbuster
+
+New Movies, Project Hail Mary, Masters of the Universe
+
+Thu, 02 Apr 2026 16:16:18 GMT
+
+https://screenrant.com/masters-of-the-universe-confidence-amazon-after-project-hail-mary/
+
+Amazon MGM is riding high with Project Hail Mary, and the success of Ryan Gosling's sci-fi movie makes the studio's next blockbuster look safer.
+---------
+
+# Nova Officially Debuts God-Tier New Power in Newest Appearance
+
+Comics, Nova, Marvel
+
+Thu, 02 Apr 2026 16:01:46 GMT
+
+https://screenrant.com/nova-new-power-richard-rider-prime/
+
+In a shocking turn of events, Nova's survival story takes a dark and dangerous turn, as he gains a new god-tier power in Nova: Centurion #6.
+---------
+
+# Fleetwood Mac Rumours: Why Silver Springs Was Cut From the Album
+
+Music, Fleetwood Mac, Classic Rock, Stevie Nicks
+
+Thu, 02 Apr 2026 16:01:18 GMT
+
+https://screenrant.com/fleetwood-mac-silver-springs-rumours-cut/
+
+Stevie Nicks called it "devastating." Discover why "Silver Springs" was cut from Rumours and how a 2026 Apple documentary is bringing the drama back.
+---------
+
+# Dexter: Resurrection's New York Ripper Promises to Top Trinity as Show's Most Twisted Villain
+
+TV, Dexter, Dexter: New Blood, Dexter: Resurrection
+
+Thu, 02 Apr 2026 16:44:38 GMT
+
+https://www.cbr.com/dexter-resurrection-brian-cox-new-york-ripper-better-than-trinity-killer/
+
+Dexter: Resurrection's New York Ripper has risen to greater heights than the original series' notorious Trinity Killer, and Brian Cox guarantees it.
+---------
+
+# Meryl Streep Joins Netflix's Jonathan Franzen’s The Corrections Adaptation
+
+TV, Meryl Streep, Netflix
+
+Thu, 02 Apr 2026 16:40:51 GMT
+
+https://www.cbr.com/meryl-streep-netflix-the-corrections-adaptation/
+
+Meryl Streep is making her way back to TV.
+---------
+
+# Star Wars: Maul - Shadow Lord Renewed for Season 2 by Disney+
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars, Disney+
+
+Thu, 02 Apr 2026 16:27:30 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-season-2-renewed-disney-plus/
+
+Disney+ renews Star Wars: Maul - Shadow Lord series for a second season just four days before its premiere.
+---------
+
+# The Bizarre Popeye Problem That Led To Donkey Kong's Creation
+
+Comics, Nintendo, Popeye, Mario
+
+Thu, 02 Apr 2026 16:21:57 GMT
+
+https://www.cbr.com/popeye-nintendo-mario-donkey-kong-origins/
+
+Nintendo's iconic Mario and Donkey Kong characters were nearly Popeye and Bluto instead
+---------
+
+# Crunchyroll Anime Awards 2026 Nominees Revealed in Full
+
+Anime, Crunchyroll
+
+Thu, 02 Apr 2026 16:20:37 GMT
+
+https://www.cbr.com/crunchyroll-2026-anime-awards-nominees/
+
+Solo Leveling, Demon Slayer: Infinity Castle and Chainsaw Man lead the pack in the official nominees for the 2026 Crunchyroll Anime Awards.
+---------
+
+# Peacock Lands Dungeon Crawler Carl Adaptation
+
+TV, Peacock, Fantasy, seth macfarlane
+
+Thu, 02 Apr 2026 16:18:28 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-tv-series-peacock-seth-macfarlane-chris-yost/
+
+The Dungeon Crawler Carl book series is being adapted into a live-action series for Peacock, bringing the popular fantasy story to the streamer.
+---------
+
+# 10 Isekai Anime Thrillers Perfect For Horror Fans
+
+Anime, Isekai, Horror
+
+Thu, 02 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/isekai-anime-thrillers/
+
+From Overlord to Re:Zero, isekai anime is full of terrifying adventures that are perfect for horror fans looking for a new spin on scary.
+---------
+
+# Marvel's 2-Part Series, Daredevil, With 91% RT Is Officially the No. 1 Show in the World
+
+TV, Marvel, Marvel Comics, Daredevil, Daredevil: Born Again
+
+Thu, 02 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/marvel-daredevil-born-again-action-streaming-success-disney-april-2026/
+
+Anyone who believed the latest installment in Marvel's dark series would disappoint is officially eating crow.
+---------
+
+# Directors Who Should Lead Marvel’s Phase 7 Mutant Saga
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Thu, 02 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/directors-lead-marvel-phase-7-mutant-saga/
+
+Thunderbolts* director Jake Schreier is directing the MCU's first X-Men movie, but we want to see many directors bring mutants into the MCU after him.
+---------
+
+# Marvel's Avengers: Armageddon Will Include An Extra Surprise For Magic: The Gathering Fans
+
+Comics, Marvel, Magic: The Gathering
+
+Thu, 02 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/marvel-avengers-armageddon-magic-the-gathering-collaboration-confirmed/
+
+The next major Marvel crossover event is about to give Magic: The Gathering fans the surprise they didn't know they needed this Summer.
+---------
+
+# ‘The Boys’ Returns in Less Than a Week With Explosive New Episodes
+
+TV News, The Boys, Gen V, Prime Video, Thriller
+
+Thu, 02 Apr 2026 16:21:42 GMT
+
+https://collider.com/prime-video-the-boys-season-5-release-date-most-violent-series-final-episodes/
+
+Prime Video’s explosive 5-part violent thriller series, The Boys, returns in less than one week as final season begins. Here’s what you need to know.
+---------
+
+# Vince Vaughn's Ambitious Performance in This 90% RT Prison Thriller Made Him an Unlikely Action Star
+
+Movie Features, Brawl in Cell Block 99, Vince Vaughn, S. Craig Zahler, Mike & Nick & Nick & Alice
+
+Thu, 02 Apr 2026 16:21:12 GMT
+
+https://collider.com/vince-vaughn-great-performance-brawl-in-cell-block-99-free-streaming-tubi/
+
+Vince Vaughn played against type in Brawl in Cell Block 99, an action film that gave the actor a chance to show off a much different side of himself.
+---------
+
+# ‘Supergirl’ Star Opens Up About Martin Scorsese’s Divisive Superhero Movie Hate
+
+Movie News, Supergirl, Superman, James Gunn, Milly Alcock
+
+Thu, 02 Apr 2026 16:20:47 GMT
+
+https://collider.com/supergirl-milly-alcock-superhero-movie-fatigue-martin-scorsese-ridley-scott-criticism/
+
+Supergirl star Milly Alcock weighs in on superhero fatigue and criticism from Martin Scorsese and Ridley Scott ahead of summer premiere.
+---------
+
+# ‘Boston Blue’ Sets Up Shocking Tragedy in Explosive New Episode Sneak Peek [Exclusive]
+
+Exclusives, Boston Blue, Blue Bloods, CBS
+
+Thu, 02 Apr 2026 16:00:13 GMT
+
+https://collider.com/boston-blue-season-1-episode-13-sneak-peek-beautiful-broken-things-sonequa-martin-green/
+
+In our exclusive first look at the new Boston Blue episode, Lena Silver and Danny Reagan are pulled into chaos after a church event turns violent.
+---------
+
+# 'The Testaments' Review: Chase Infiniti's Stellar 'Handmaid's Tale' Sequel Is More Relevant Than Ever
+
+TV Reviews, The Testaments, The Handmaid's Tale, Hulu, Drama
+
+Thu, 02 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-testaments-hulu-review-chase-infiniti-handmaids-tale/
+
+The Testaments, a compelling sequel to The Handmaid's Tale starring Chase Infiniti and Lucy Halliday, is a fresh take on the dystopian genre.
+---------
+
+# Steven Spielberg’s 2-Part Sci-Fi Series Comeback Blocked by Taylor Sheridan's Western Empire
+
+Movie News, Halo, Steven Spielberg, Taylor Sheridan, Sci-Fi
+
+Thu, 02 Apr 2026 15:56:35 GMT
+
+https://collider.com/taylor-sheridan-shows-battle-steven-spielberg-2-part-series-halo-streaming-dominance-april-2026/
+
+Taylor Sheridan has totally steamrolled Steven Spielberg’s 2-part sci-fi series that’s currently staging a comeback on streaming.
+---------
+
+# New $200 Million Epic Promises To Be One of the Biggest Movies of 2026
+
+Movie News, Ramayana, Ranbir Kapoor, Bollywood, Fantasy
+
+Thu, 02 Apr 2026 15:54:28 GMT
+
+https://collider.com/ramayana-trailer-teaser-indian-action-epic/
+
+Ramayana teaser delivers a first look at one of the biggest action epics of 2026. Watch it here!
+---------
+
+# ‘Dune’ Meets ‘Lord of the Rings’ in Apple TV’s New Fantasy Adaptation Gaining Steam
+
+Movie News, Mistborn, Brandon Sanderson, Apple TV, The Lord of the Rings
+
+Thu, 02 Apr 2026 15:42:40 GMT
+
+https://collider.com/apple-tv-fantasy-franchise-brandon-sanderson-mistborn-movie-update-script-half-done/
+
+Dune meets Lord of the Rings in Apple TV’s new fantasy adaptation, Mistborn, which is gaining steam fast with an update from Brandon Sanderson.
+---------
+
+# George R.R. Martin’s New ‘Game of Thrones’ Project Debuts in 3 Months
+
+TV News, Game Of Thrones, George R.R. Martin, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Thu, 02 Apr 2026 15:40:34 GMT
+
+https://collider.com/game-of-thrones-mad-king-premiere-date-july-2026-stage-play-royal-shakespeare-company/
+
+Game of Thrones officially returns in July with a new project from George R.R. Martin. Here’s what you need to know about The Mad King.
+---------
+
+# 'Harry Potter': Second Teaser Shuts Down Show's Biggest Complaint
+
+Features, Harry Potter
+
+Thu, 02 Apr 2026 16:30:18 GMT
+
+https://movieweb.com/second-harry-potter-teaser-biggest-complaint/
+
+A new 'Harry Potter' special has confirmed that HBO's new show will be just as magical as fans want.
+---------
+
+# Most Harrowing Movies About Missing Children
+
+Movie Lists
+
+Thu, 02 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/movies-missing-children/
+
+The danger of losing your child is inherently one of humankind’s biggest fears, and these are ten of the most harrowing movies about that very topic.
+---------
+
+# Sydney Sweeney's R-Rated Thriller 'The Housemaid' Is Now Streaming on Starz and It's #1
+
+Movie News, The Housemaid, STARZ, Hot on Streaming, Sydney Sweeney
+
+Thu, 02 Apr 2026 16:00:16 GMT
+
+https://movieweb.com/the-housemaid-sydney-sweeney-r-rated-streaming-starz-april-2026/
+
+Sydney Sweeney's 'The Housemaid' is streaming on Starz after a successful box office run, and it's the most popular movie on streaming.
+---------
+
+# 'The Super Mario Galaxy Movie' Could Kill a Nintendo Shared Universe
+
+Features, The Super Mario Galaxy Movie
+
+Thu, 02 Apr 2026 16:00:16 GMT
+
+https://movieweb.com/nintendo-cinematic-universe-dead-super-mario-galaxy/
+
+'The Super Mario Galaxy Movie' negative critical reaction shows Nintendo is making the same mistake as 'Iron Man 2' and 'Batman v. Superman.'
+---------
+
+# 'The Testaments' Season 1 Review: A Tee-Up Season for More to Come
+
+TV Reviews, The Testaments
+
+Thu, 02 Apr 2026 16:00:16 GMT
+
+https://movieweb.com/the-testaments-season-1-review/
+
+'The Testaments' is just as disturbing in its source material as 'The Handmaid's Tale,' but not quite as impactful just yet.
+---------
+
+# 'Dexter: Resurrection' Casts ‘Succession' Icon Brian Cox as New York Ripper
+
+TV News, Dexter: Resurrection, Succession, Brian Cox
+
+Thu, 02 Apr 2026 15:54:13 GMT
+
+https://movieweb.com/dexter-resurrection-2-casts-succession-icon/
+
+When you're casting a New York City serial killer, why not book a Roy? 'Dexter: Resurrection' Season 2 has cast Brian Cox in the role.
+---------
+
+# Olivia Wilde's New Erotic Thriller 'I Want Your Sex' Finally Sets Release Date
+
+Movie News, Olivia Wilde, Johnny Knoxville, Margaret Cho, I Want Your Sex
+
+Thu, 02 Apr 2026 15:49:58 GMT
+
+https://movieweb.com/olivia-wilde-want-your-sex-release/
+
+'90s indie darling director Gregg Araki is back with 'I Want Your Sex,' which now has a release date.
+---------
+
+# John Travolta to Premiere 'Propeller One-Way Night Coach' at Cannes
+
+Movie News, John Travolta, Cannes Film Festival, Apple TV
+
+Thu, 02 Apr 2026 15:40:09 GMT
+
+https://movieweb.com/john-travolta-propeller-one-way-night-coach-cannes/
+
+John Travolta will premiere his directorial debut 'Propeller One-Way Night Coach' at the Cannes Film Festival ahead of the movie's Apple TV launch.
+---------
+
 # Peacock's 2-Part '90s Throwback Series Deserved At Least One More Season
 
 Classic TV, Saved by the Bell
