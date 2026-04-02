@@ -1,3 +1,300 @@
+# Game Of Thrones' Biggest Missing OG Stark Will Finally Be Introduced This July In New GRRM Release
+
+TV, Game Of Thrones, Game of Thrones
+
+Thu, 02 Apr 2026 14:18:08 GMT
+
+https://screenrant.com/game-of-thrones-the-mad-king-play-july-2026-premiere-date/
+
+With A Knight of the Seven Kingdoms now over, GRRM fans have their sights set on a new Game of Thrones production, which premieres this summer.
+---------
+
+# Carnage Chooses New Host in Venom Lore
+
+Comics, Venom
+
+Thu, 02 Apr 2026 14:09:30 GMT
+
+https://screenrant.com/venom-new-carnage-torment-spider-man/
+
+Marvel's Venom #256 reveals the ultimate red symbiote, Torment, who bonds with Carnage, making him more powerful and dangerous than ever before. Torment's introduction adds a new level of threat to the Marvel Universe.
+---------
+
+# A Classic Zelda Game Just Got A Surprise HD Remaster
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Thu, 02 Apr 2026 14:07:12 GMT
+
+https://screenrant.com/zelda-links-awakening-dx-hd-remaster/
+
+If you're a fan of classic Zelda games, you may want to check out this incredible remaster of one of the most iconic games in the series.
+---------
+
+# PUBG Ushers In A New Era With A Sci-Fi Twist
+
+Gaming, PUBG: Battlegrounds
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://screenrant.com/pubg-new-era-sci-fi-xeno-point/
+
+Xeno Point is a brand new PUBG mode built as a sci-fi roguelite that serves as the first step in a bold new era for the franchise.
+---------
+
+# The Witcher Officially Returns This August With A Brand-New Prequel
+
+Gaming, The Witcher, Triple-A Games, PC
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://screenrant.com/witcher-last-wish-prequel-august-2026/
+
+Witcher fans have plenty to look forward to this year, with the announcement of another project being the cherry on top of its upcoming DLC.
+---------
+
+# The Boys Season 5 Predicted Several Real-Life US Events That Terrify Creator Eric Kripke
+
+TV, The Boys
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://screenrant.com/the-boys-season-5-real-life-events-comparison-eric-kripke/
+
+EXCLUSIVE: Creator Eric Kripke reveals that The Boys season 5 predicted some troubling real-life political trends in the U.S. that unnerved him.
+---------
+
+# X-Men's Storm Reveals New Superhero Identity as the Queen
+
+Comics, X-Men
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://screenrant.com/x-men-storm-redesign-new-costume/
+
+An X-Men icon gets a glorious upgrade.
+---------
+
+# Top 10 Highest Grossing Disney Animated Musicals Worldwide
+
+Movies, Disney, Coco, Frozen, Aladdin, Beauty and the Beast, The Lion King, Moana, Tangled, Tarzan
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://screenrant.com/disney-animated-musical-movies-box-office-ranked/
+
+Since launching in the 1930s, Disney animated musicals have largely dominated box offices worldwide, with relatively few slumps or misses.
+---------
+
+# Dexter: Resurrection Season 2 Officially Casts Major New Villain With HBO Icon
+
+TV, Dexter: Resurrection, Dexter, Showtime
+
+Thu, 02 Apr 2026 13:59:20 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-cast-new-villain-brian-cox/
+
+Dexter: Resurrection season 2 is expanding its cast with the addition of an HBO icon to play the major new villain known as The New York City Ripper.
+---------
+
+# Lin-Manuel Miranda Lands Perfect Movie Follow-Up To Andrew Garfield’s 88% RT Hit
+
+Movies, Lin-Manuel Miranda
+
+Thu, 02 Apr 2026 13:47:24 GMT
+
+https://screenrant.com/octet-movie-adaptation-lin-manuel-miranda/
+
+Broadway icon Lin-Manuel Miranda (Hamilton, In the Heights) is set to helm a new movie that is the perfect follow-up to his Andrew Garfield hit.
+---------
+
+# HBO Max Surprises With New Harry Potter Documentary 8 Months Ahead of Debut
+
+TV, Harry Potter
+
+Thu, 02 Apr 2026 14:02:59 GMT
+
+https://www.cbr.com/hbo-max-finding-harry-the-craft-behind-magic-documentary/
+
+After the first teaser, HBO Max has a new surprise for Potterheads.
+---------
+
+# Tim Allen's Redbelt Remains an Underrated Gem
+
+Movies, Redbelt
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://www.cbr.com/tim-allen-redbelt-underrated-martial-arts-movie-explained/
+
+Tim Allen is most well-known for his comedic roles, yet his underrated martial arts movie is a forgotten gem that film fans should all see.
+---------
+
+# Marvel Considering Last Minute Avengers: Doomsday Move To Avoid Dunesday
+
+Movies, Avengers: Doomsday, Dune: Part Three
+
+Thu, 02 Apr 2026 13:25:48 GMT
+
+https://www.cbr.com/marvel-avengers-doomsday-move-dunesday/
+
+Marvel Studios is reportedly considering a major last minute change to its release schedule in order to avoid being the next Barbenheimer.
+---------
+
+# 10 Dragon Ball Characters Who Need New Transformations
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Thu, 02 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-characters-need-new-transformations/
+
+While Goku and Gohan may have the perfect transformations for them right now, other Dragon Ball Super characters are in desperate need of new forms.
+---------
+
+# Why Prime Video's The Peripheral Is a Must-Watch Before Neuromancer
+
+TV, Sci-Fi, Neuromancer, The Peripheral
+
+Thu, 02 Apr 2026 13:13:09 GMT
+
+https://www.cbr.com/prime-video-the-peripheral-neuromancer-comparsion/
+
+Prime Video's The Peripheral laid the groundwork for Apple TV's upcoming Neuromancer adaptation, a sci-fi series poised to redefine the genre.
+---------
+
+# The 10 Greatest N64 Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Thu, 02 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/greatest-n64-games-all-time-ranked-list/
+
+The best N64 games, like Super Mario 64, show how good early 3D games can be.
+---------
+
+# Supergirl's Latest Trailer Ends the DCU's James Gunn Era
+
+Movies, Supergirl
+
+Thu, 02 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/supergirl-end-of-james-gunn-era-dcu/
+
+Supergirl is almost here, and the movie's trailers solve the problem that some fans have with the DCU's beginning.
+---------
+
+# John Woo's Silent Night Is Heading to Hulu This Month
+
+Movies, Silent Night
+
+Thu, 02 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/silent-night-hulu-april-2026/
+
+The action thriller was John Woo's first American movie in two decades.
+---------
+
+# HBO's Harry Potter Reboot Is Rewriting Voldemort's Character Arc
+
+TV, Harry Potter, HBO Max
+
+Thu, 02 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-voldemort-casting-delay-reason/
+
+The first trailer for HBO's Harry Potter has landed, but one character's casting remains in the shadows: Lord Voldemort.
+---------
+
+# HBO's Harry Potter Series Officially Debuts Special Episode Next Week
+
+TV News, Harry Potter
+
+Thu, 02 Apr 2026 13:48:39 GMT
+
+https://collider.com/harry-potter-series-special-episode-release-date-april-5-2026/
+
+HBO's Harry Potter series set to debut magical early episode next week to delve into the craftmanship of the series.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 2, 2026
+
+TV, Seinfeld, Arrested Development, Freaks and Geeks, Studio 60 on the Sunset Strip
+
+Thu, 02 Apr 2026 13:01:12 GMT
+
+https://collider.com/tv-quiz-apr-2-2026-rocky-roads/
+
+Some of the most beloved shows got off to a rough start. Here are eight that either had trouble finding an audience or were axed before they could.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 2, 2026
+
+Movie, RoboCop, The Taking of Pelham 123, Father of the Bride, Karate Kid
+
+Thu, 02 Apr 2026 12:59:14 GMT
+
+https://collider.com/movie-quiz-apr-2-2026-remakes-reboots/
+
+Sometimes Hollywood knows exactly what old flick needs an update. Sometimes, they get it oh so wrong. Thumbs up or down on these remakes and reboots?
+---------
+
+# 'Harry Potter' Behind-the-Scenes Special Trailer Released by HBO
+
+Movie News, Harry Potter
+
+Thu, 02 Apr 2026 14:18:50 GMT
+
+https://movieweb.com/hbo-harry-potter-special-teaser/
+
+HBO brings the Wizarding World of 'Harry Potter' to life in the exciting new teaser for the behind-the-scenes special 'Finding Harry.'
+---------
+
+# 'Highlander' Star Teases "John Wick With Swords" Action in Henry Cavill Reboot
+
+Movie News, Henry Cavill, Highlander, Action, Fantasy
+
+Thu, 02 Apr 2026 14:04:11 GMT
+
+https://movieweb.com/highlander-henry-cavill-insane-action/
+
+Co-star Siobhán Cullen also revealed that her character will be "totally different" to the 80s original.
+---------
+
+# The Greatest 'Lost' Quote Told Us What the Ending Would Be, 6 Years Earlier
+
+Features, Lost
+
+Thu, 02 Apr 2026 14:00:35 GMT
+
+https://movieweb.com/lost-jack-fear-quote-explains-ending/
+
+'Lost,' the popular sci-fi TV series, aired from 2004 to 2010 on ABC and starred Matthew Fox as Jack Shephard.
+---------
+
+# Martial Arts Epic 'Blades of the Guardians' Smashes All-Time Box Office Record
+
+Movie News, Blades of the Guardians, Martial Arts, Action, box office
+
+Thu, 02 Apr 2026 13:40:49 GMT
+
+https://movieweb.com/blades-guardians-highest-wuxia-box-office/
+
+The action epic, which brings back martial arts legend Jet Li, is now the highest-grossing wuxia film of all time.
+---------
+
+# ‘Reacher’ Should Take Notes From the Upcoming 'Bosch' Spin-Off
+
+Features, Reacher
+
+Thu, 02 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/reacher-prequel-spinoff-bosch/
+
+'Reacher,' the Amazon Prime Video action thriller series starring Alan Ritchson, could learn from the upcoming 'Bosch' spin-off series.
+---------
+
 # Elden Ring Officially Getting New DLC On All Platforms
 
 Gaming, Elden Ring, PC
