@@ -1,3 +1,179 @@
+# Blake Lively’s Sexual Harassment Lawsuit Against Justin Baldoni Thrown Out by Judge
+
+Movies, It Ends With Us, Blake Lively, Justin Baldoni
+
+Thu, 02 Apr 2026 21:51:01 GMT
+
+https://screenrant.com/blake-lively-justin-baldoni-lawsuit-thrown-out/
+
+Most of Blake Lively's lawsuit against her It Ends With Us co-star Justin Baldoni has been dismissed, including sexual harassment claims.
+---------
+
+# Sydney Sweeney's Gritty Psychological Drama Series Sets New HBO Record Ahead Of Long-Awaited Return This Month
+
+TV, Euphoria, Euphoria - Season 3, Sydney Sweeney
+
+Thu, 02 Apr 2026 21:43:18 GMT
+
+https://screenrant.com/euphoria-season-3-trailer-viewership-record-hbo/
+
+HBO is days away from airing the return of Sydney Sweeney and Zendaya’s hit psychological drama, but a new record has already been shattered.
+---------
+
+# Supergirl Villain Krem Of The Yellow Hills' Powers & Role Explained
+
+Movies, Supergirl, Explainer
+
+Thu, 02 Apr 2026 21:20:21 GMT
+
+https://screenrant.com/supergirl-movie-villain-krem-yellow-hills-explained/
+
+Supergirl is bound to be a huge hit this Summer, fans are eager to know why she's taking on a Z-Tier villain like Krem of the Yellow Hills.
+---------
+
+# 11 TV Shows We Thought Would Be The Next Star Trek
+
+Classic TV, Star Trek, Star Trek: The Original Series, Quiz CV
+
+Thu, 02 Apr 2026 21:18:59 GMT
+
+https://screenrant.com/tv-shows-thought-would-be-the-next-star-trek/
+
+Few franchises have such long-lasting popularity like Star Trek, but the sci-fi classic is simply the face of a vast sub-genre of space opera shows.
+---------
+
+# Grey's Anatomy Continues to Dominate Disney+ Global Charts
+
+TV, Grey's Anatomy, Drama, Disney+
+
+Thu, 02 Apr 2026 21:35:56 GMT
+
+https://www.cbr.com/greys-anatomy-medical-drama-success-disney-plus-april-2026/
+
+ABC's long-running medical drama Grey's Anatomy remains a global streaming hit on Disney+.
+---------
+
+# In Just 2 Days, Ralph Fiennes' 92% RT R-Rated Horror Finds a Second Life on Netflix After Bombing in Theaters
+
+Movies, 28 Years Later: The Bone Temple, Netflix
+
+Thu, 02 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/28-years-later-the-bone-temple-r-rated-horror-netflix-success-april-2026/
+
+Leave it to Netflix to finally be the one to give Ralph Fiennes' acclaimed horror sequel an audience.
+---------
+
+# Wolverine's Will Be Given A New Superpower, Marvel Confirms
+
+Comics, Wolverine, X-Men, Marvel
+
+Thu, 02 Apr 2026 21:29:40 GMT
+
+https://www.cbr.com/wolverine-20-adamantium-powers-release-date-confirmed/
+
+Wolverine is about to borrow the superpower of one of his most iconic X-Men teammates, and it means a whole new breed of fastball special.
+---------
+
+# Super Mario Galaxy Movie Shocks Filmgoers With Alleged F-Bomb
+
+Movies, Nintendo, The Super Mario Galaxy Movie
+
+Thu, 02 Apr 2026 21:20:48 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-f-bomb/
+
+Filmgoers are convinced that The Super Mario Galaxy Movie snuck an F-bomb past its PG rating.
+---------
+
+# Naruto: Best Madara Uchiha Quotes and Speeches
+
+Anime, Naruto: Shippuden, Naruto
+
+Thu, 02 Apr 2026 21:20:13 GMT
+
+https://www.cbr.com/naruto-madara-best-quotes/
+
+Madara Uchiha was one of Naruto's strongest antagonists, but he also gave the fandom some of its most introspective quotes.
+---------
+
+# Solo Leveling Deserved to Be Nominated for Crunchyroll Anime of the Year
+
+Anime, Solo Leveling, Crunchyroll
+
+Thu, 02 Apr 2026 21:15:13 GMT
+
+https://www.cbr.com/solo-leveling-crunchyroll-anime-of-the-year-nomination-snub/
+
+Solo Leveling Season 2 got snubbed for a Crunchyroll Anime of the Year nomination. No matter what the awards say, Sung Jinwoo still wins in the end.
+---------
+
+# 4 Greatest Movies Based on Bible Stories
+
+Movie, The Nativity Story, The Prince of Egypt, The Passion of the Christ, Oscar Isaac
+
+Thu, 02 Apr 2026 21:45:12 GMT
+
+https://collider.com/best-movies-based-on-bible-stories/
+
+The Nativity Story, The Ten Commandments, and The Passion of the Christ are all among the greatest movies based on stories from the Bible.
+---------
+
+# Netflix’s 2-Part Fantasy Series Is Officially the Best Adaptation Ever
+
+TV Features, One Piece, Netflix, Manga
+
+Thu, 02 Apr 2026 21:28:13 GMT
+
+https://collider.com/netflix-one-piece-fantasy-series-best-adaptation-ever/
+
+Netflix's One Piece adaptation perfectly captures the essence of Eiichiro Oda's manga, with a stellar cast, immersive sets, and faithful storytelling.
+---------
+
+# One of the Best Horror Series of All Time Has Arrived on Netflix & It Keeps Getting Better
+
+Movie Features, Saw, Netflix, Horror, Tobin Bell
+
+Thu, 02 Apr 2026 21:19:11 GMT
+
+https://collider.com/saw-franchise-netflix-streaming-horror-evolution/
+
+As Saw hits Netflix, the horror franchise proves why it still defines the genre.
+---------
+
+# 74 Years Later, John Wayne's Forgotten Sleeper Hit Surges on Streaming
+
+Movie, John Wayne, John Ford, The Quiet Man, Pluto TV
+
+Thu, 02 Apr 2026 21:09:12 GMT
+
+https://collider.com/the-quiet-one-74-years-later-john-wayne-forgotten-sleeper-hit-surges-pluto/
+
+Forget their many Westerns, John Ford and John Wayne’s greatest collaboration might be The Quiet Man, a romantic comedy about a boxer in Ireland.
+---------
+
+# Every New Movie and TV Show Coming to Peacock in April 2026
+
+Features, Peacock
+
+Thu, 02 Apr 2026 21:30:19 GMT
+
+https://movieweb.com/peacock-movies-tv-shows-streaming-april-2026/
+
+Comedy, horror, drama, here is everything coming to Peacock in April 2026.
+---------
+
+# 'Beef' Season 2 Trailer Stars Oscar Isaac, Carey Mulligan, Charles Melton & Cailee Spainey
+
+TV News, Beef, Oscar Isaac, Carey Mulligan, Netflix
+
+Thu, 02 Apr 2026 21:30:01 GMT
+
+https://movieweb.com/beef-season-2-trailer-netflix/
+
+Season 2 of the critically acclaimed series premieres on Apr. 16.
+---------
+
 # Star Trek's Best Series Is Returning With New Official Sequel
 
 Comics, Star Trek
