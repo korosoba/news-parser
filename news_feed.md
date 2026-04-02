@@ -1,3 +1,366 @@
+# Invincible Season 4, Episode 5’s Massive Character Change From The Comics Explained By Robert Kirkman
+
+TV, Invincible, Invincible - Season 4
+
+Thu, 02 Apr 2026 01:43:57 GMT
+
+https://screenrant.com/invincible-season-4-episode-5-tech-jacket-gender-change-robert-kirkman-explained/
+
+After a major change to a character from the Invincible comics is made in season 4, episode 5, Robert Kirkman explains the creative decision.
+---------
+
+# Super Smash Bros. Long-Awaited Return Leaves Gamers Torn
+
+Gaming, Super Smash Bros.
+
+Thu, 02 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/super-smash-bros-movie-gamer-reaction/
+
+Some Super Smash Bros. fans are clamoring for a proper movie adaptation after a major cinematic crossover, but others think it’s a bad idea.
+---------
+
+# 6 Spider-Man Characters Who Could Secretly Be Brand New Day's Villain
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 02 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-secret-villain-candidates-characters/
+
+From the looks of things, Spider-Man: Brand New Day may still be hiding its main villain. Which Marvel Comics character could it possibly be?
+---------
+
+# Squid Game: Netflix's Game-Changing Dystopian Thriller
+
+Classic TV, Squid Game
+
+Thu, 02 Apr 2026 00:45:19 GMT
+
+https://screenrant.com/netflix-squid-game-rewrite-rules-of-streaming/
+
+Netflix has always been the leader of the pack when it comes to TV in the streaming era, but its iconic drama Squid Game changed the game for good.
+---------
+
+# The Super Mario Galaxy Movie: 50 Easter Eggs, References & Major Cameos Explained
+
+New Movies, The Super Mario Galaxy Movie
+
+Thu, 02 Apr 2026 00:40:19 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-50-easter-eggs-references-explained/
+
+The Super Mario Galaxy Movie is absolute packed with fun Easter eggs, references, and surprise cameos. Here's all the coolest ones we found.
+---------
+
+# Prime Video's Fallout Crowned The Queen Of Streaming TV
+
+Streaming TV, Fallout, Prime Video, Ella Purnell
+
+Thu, 02 Apr 2026 00:15:19 GMT
+
+https://screenrant.com/prime-video-fallout-ella-purnell-streaming-queen/
+
+After breaking numerous viewership records for Prime Video, this dystopian series has officially crowned the queen of streaming television.
+---------
+
+# Skyrim 2026 Graphics Overhaul Leaves Gamers Floored
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games, PC
+
+Thu, 02 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/skyrim-2026-graphics-overhaul/
+
+15 years later many folks can't stop playing Skyrim, as the legend of The Elder Scrolls lives on, and fans wait for the eventual Elder Scrolls 6.
+---------
+
+# Netflix’s 10-Part Sci-Fi Thriller Is Quietly One Of Its Best Shows To Binge
+
+Streaming TV, The Society, Netflix
+
+Wed, 01 Apr 2026 23:48:19 GMT
+
+https://screenrant.com/netflix-the-society-series-binge-watch/
+
+Discover Netflix's overlooked sci-fi thriller, The Society, a 10-part series that offers dystopian sci-fi, teen drama, and psychological thriller.
+---------
+
+# Upcoming Time Travel Show Based On Bestselling Book Will Be Perfect For Outlander Fans
+
+Streaming TV, Outlander
+
+Wed, 01 Apr 2026 23:45:18 GMT
+
+https://screenrant.com/the-ministry-of-time-tv-show-outlander-similarities/
+
+Outlander fans can sink their teeth into the BBC's upcoming time travel romance adaptation of a bestselling book from 2024.
+---------
+
+# Taboo: Tom Hardy's Best Historical TV Crime Thriller As A Lead Actor
+
+Classic TV, Taboo
+
+Wed, 01 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/tom-hardy-taboo-crime-thriller-series-best-roles/
+
+Tom Hardy might not have made it into the Peaky Blinders movie, but there's another historical crime thriller in which his performance is even better.
+---------
+
+# Netflix’s One Piece Is Already the Best Fantasy Adaptation of 2026
+
+Anime, One Piece, Netflix
+
+Thu, 02 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/one-piece-netflix-best-fantasy-anime-adaptation-2026/
+
+Netflix's One Piece live-action has left its mark in 2026 with its near-perfect casting decisions.
+---------
+
+# Genshin Impact Officially Shutting Down On PS4 April 2026
+
+Games, Genshin Impact
+
+Thu, 02 Apr 2026 01:23:56 GMT
+
+https://www.cbr.com/genshin-impact-shutting-down/
+
+It's the end of an era for Genshin Impact.
+---------
+
+# 8 Best Game of Thrones Fighters
+
+TV, Game Of Thrones, HBO Max
+
+Thu, 02 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/game-of-thrones-most-powerful-fighters/
+
+Game of Thrones introduced viewers to a lot of powerful warriors across its eight seasons, from Brienne of Tarth to Ser Barristan Selmy.
+---------
+
+# 30 Longest Disney Movies, Ranked
+
+Movies, Disney, Atlantis: The Lost Empire, Tangled, Wreck-It Ralph, Frozen, Encanto, Big Hero 6, Moana, Raya and the Last Dragon, Zootopia
+
+Thu, 02 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/longest-disney-movies/
+
+From Atlantis to fan-favorite Moana, some Disney films run a little longer than what is standard for the studio's animated features.
+---------
+
+# 7 Most Perfect SNES Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Thu, 02 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/most-perfect-snes-games-all-time-ranked-list/
+
+Plenty of SNES games are great, but only a rare few titles can be described as perfect
+---------
+
+# Hogwarts Legacy Officially Gets New Update for 2026
+
+Games, Harry Potter, Hogwarts Legacy
+
+Thu, 02 Apr 2026 00:25:12 GMT
+
+https://www.cbr.com/harry-potter-hogwarts-legacy-official-new-update-2026/
+
+The newest update to Hogwarts Legacy will make the premier Harry Potter gaming experience better than ever.
+---------
+
+# Transformers Unleashes the Power of the Beast With New Reveals for Grimlock, Nemesis Prime & More
+
+Anime, Transformers, Beast Wars, Beast Wars: Transformers, merchandise, toys
+
+Thu, 02 Apr 2026 00:17:12 GMT
+
+https://www.cbr.com/transformers-blokees-power-of-the-beast-reveal/
+
+Renders for the newest wave of Blokees Transformers kit showcases several obscure Maximals and Predacons derived from the Beast Wars anime duology.
+---------
+
+# 10 Mecha Masterpieces That Still Feel More Realistic Than Modern Sci-Fi
+
+Anime, mecha, Mobile Suit Gundam, Neon Genesis Evangelion, Sci-Fi
+
+Thu, 02 Apr 2026 00:15:12 GMT
+
+https://www.cbr.com/mecha-masterpieces-more-realistic-than-modern-sci-fi/
+
+Modern sci-fi anime aren't nearly as realistic as these classic mecha series.
+---------
+
+# Bob's Burgers Star Eugene Mirman Hospitalized With 'Serious Injuries' After Horrific Crash
+
+TV, Bob's Burgers
+
+Thu, 02 Apr 2026 00:00:33 GMT
+
+https://www.cbr.com/bobs-burgers-eugene-mirman-hospitalized/
+
+Bob's Burgers voice actor Eugene Mirman was rushed to the hospital after a devastating automobile accident.
+---------
+
+# Prime Video's Sleeper Hit Historical Drama Is Back to Dominating the Charts at the Right Time
+
+TV, House of David, Prime Video
+
+Thu, 02 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/prime-video-historical-drama-house-of-david-streaming-success-april-2026/
+
+This underrated historical drama is dominating on Prime Video worldwide, just as an exciting new spinoff was announced.
+---------
+
+# Russell Crowe’s WWII Thriller Is Still One of the Most Addictive War Dramas on Netflix
+
+Movie News, Nuremberg, Russell Crowe, Beast, Netflix
+
+Thu, 02 Apr 2026 01:30:12 GMT
+
+https://collider.com/russell-crowe-rewatchable-ww2-movie-nuremberg-streaming-success-netflix-april-2026/
+
+Russell Crowe's WWII legal thriller has become an infinitely rewatchable late-night favorite on streaming. Find out how to watch here.
+---------
+
+# Hulu’s Near-Perfect Sci-Fi Hit Teases "Multiverse" Twist Ahead of Final Season
+
+TV News, Paradise, Hulu, Sterling K. Brown, Sci-Fi
+
+Thu, 02 Apr 2026 01:00:13 GMT
+
+https://collider.com/hulu-best-sci-fi-series-paradise-season-3-multiverse-plans-sterling-k-borwn-john-hoberg/
+
+Paradise star Sterling K. Brown has teased some exciting developments coming up in Season 3, with hints of a multiverse storyline.
+---------
+
+# 10 Most Perfect A24 Movies, Ranked
+
+Movie, A24, The Brutalist, Moonlight, Past Lives
+
+Thu, 02 Apr 2026 00:31:13 GMT
+
+https://collider.com/most-perfect-a24-movies-ranked/
+
+Past Lives, The Zone of Interest, and Aftersun are all among the best, most perfect A24 movies ever made.
+---------
+
+# Taylor Sheridan's New Yellowstone Spin-Off Is Dominating Streaming Charts Despite Fan Backlash
+
+TV News, Taylor Sheridan, Marshals, Yellowstone, Paramount Plus
+
+Thu, 02 Apr 2026 00:30:16 GMT
+
+https://collider.com/taylor-sheridan-lowest-rated-western-marshals-streaming-success-paramount-plus-april-2026/
+
+Despite holding one of Taylor Sheridan's lowest critic scores, the neo-Western series Marshals has spent 30 days on global streaming charts.
+---------
+
+# Only 7 Single-Season Thriller Shows Have Ever Been True Masterpieces
+
+TV, Thriller, TV Miniseries, Chernobyl, Sharp Objects
+
+Thu, 02 Apr 2026 00:07:12 GMT
+
+https://collider.com/thriller-tv-shows-single-season-masterpieces/
+
+Chernobyl, Sharp Objects, Escape at Dannemora, and Death Note are among the greatest thriller TV series, evidence that one season is all you need.
+---------
+
+# Taylor Sheridan Is Officially Taking Over the World Again
+
+TV News, Taylor Sheridan, Yellowstone, Tulsa King, Landman
+
+Thu, 02 Apr 2026 00:00:12 GMT
+
+https://collider.com/taylor-sheridan-marshals-yellowstone-the-madison-tulsa-king-landman-streaming-success-paramount-plus-april-2026/
+
+Taylor Sheridan continues to dominate the Paramount+ rankings with as many as five shows charting simultaneously this week. Find out more.
+---------
+
+# Weezer's Rivers Cuomo Graduated From This Ivy League School at the Height of Their Fame
+
+Music Features, Weezer, Rock, Pop, Music
+
+Wed, 01 Apr 2026 23:50:22 GMT
+
+https://collider.com/weezer-rivers-cuomo-graduated-from-harvard-university-2006/
+
+Weezer's Rivers Cuomo balanced fame with a Harvard education, shaping the band's sound and personal growth.
+---------
+
+# Every New Movie and TV Show Coming to Apple TV+ in April 2026
+
+Features, Apple TV
+
+Thu, 02 Apr 2026 01:30:18 GMT
+
+https://movieweb.com/apple-tv-movies-tv-shows-streaming-april-2026/
+
+New Apple TV+ titles for April 2026 include the return of Jon Hamm in Your Friends & Neighbors, and a new Keaune Reeves movie.
+---------
+
+# 'Avatar 4 & 5' Producer Says Planned Sequels Are Still "Full Speed Ahead"
+
+Movie News, Avatar: Fire and Ash, Avatar 4, Avatar 5
+
+Thu, 02 Apr 2026 00:57:42 GMT
+
+https://movieweb.com/avatar-4-5-release-dates/
+
+Rae Sanchini admits the current release dates are "tentative" but that they hope to solidify plans imminently.
+---------
+
+# The 'Scrubs' Revival Episode 7 Makes It Seem Less Likely Than Ever That Elliot & JD Will Get Back Together
+
+Features, Scrubs
+
+Thu, 02 Apr 2026 00:31:19 GMT
+
+https://movieweb.com/scrubs-revival-biggest-storyline-doubt/
+
+Elliot & JD came into the 'Scrubs' revival separated, but it still felt like they'd reunite at some point. Episode 7 casts more doubt than ever.
+---------
+
+# 8 Unanswered 'Project Hail Mary' Questions Andy Weir's Novel Explains
+
+Movie Lists, Project Hail Mary
+
+Thu, 02 Apr 2026 00:00:17 GMT
+
+https://movieweb.com/project-hail-mary-questions-book-answers/
+
+'Project Hail Mary,' the sci-fi movie starring Ryan Gosling, is based on the novel by Andy Weir, and the book includes some key details.
+---------
+
+# Former 'Spider-Man' Andrew Garfield Calls 'Brand New Day' Trailer Theory "Ludicrous"
+
+Movie News, Spider-Man: Brand New Day, Andrew Garfield, MCU
+
+Wed, 01 Apr 2026 23:51:32 GMT
+
+https://movieweb.com/spider-man-brand-new-day-trailer-andrew-garfield/
+
+The Peter Parker actor is either debunking the theory or trying to overcompensate for the truth.
+---------
+
+# Every New Movie and TV Show Coming to Prime Video in April 2026
+
+Features, Prime Video
+
+Wed, 01 Apr 2026 23:30:18 GMT
+
+https://movieweb.com/prime-video-movies-tv-shows-streaming-april-2026/
+
+Prime Video April 2026 delivers the final season of 'The Boys' alongside a new raunchy buddy comedy.
+---------
+
 # It's Not Just Cope, Chainsaw Man's True Final Chapter Has An Official Release Date
 
 Anime, Chainsaw Man
