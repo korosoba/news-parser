@@ -1,3 +1,80 @@
+# Star Wars' New Revenge Of The Sith Sequel Maul - Shadow Lord Proves Prequel Fans Keep Winning
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Thu, 02 Apr 2026 22:31:20 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-season-2-renewal-prequel-win/
+
+Disney and Lucasfilm continue to treat Star Wars prequel fans right with the early renewal of the animated series Maul - Shadow Lord, set in the Clone Wars era.
+---------
+
+# The Super Mario Galaxy Movie Is Brutally Dividing Critics & Audiences On Rotten Tomatoes
+
+Movies, The Super Mario Galaxy Movie, Super Mario, Nintendo
+
+Thu, 02 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-rotten-tomatoes-audience-score-critics-comparison/
+
+The Super Mario Galaxy Movie has critics and audiences very divided on Rotten Tomatoes, as moviegoers react to the film's biggest moments.
+---------
+
+# Bloodborne Returns In Limited-Time Event, Officially Ending April 7
+
+Gaming, Bloodborne, Triple-A Games
+
+Thu, 02 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/bloodborne-april-2026-event-limited-time/
+
+If you're a huge Bloodborne fan you'll want to join in on this incredible annual event, which unites the entire community on a regular basis.
+---------
+
+# 3 Years Later, Alan Ritchson's 4-Season Action Series Still Doesn't Get The Respect It Deserved
+
+TV, Titans, Reacher, Alan Ritchson
+
+Thu, 02 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/titans-alan-ritchson-action-tv-show-not-enough-respect/
+
+Before Alan Ritchson played Reacher, the action star headlined a four-season DC superhero series that never got the mainstream acclaim it deserved.
+---------
+
+# 10 Must-Watch Spring 2026 Anime to Add to Your Watchlist List
+
+Anime, Crunchyroll, That Time I Got Reincarnated as a Slime
+
+Thu, 02 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/best-spring-2026-anime/
+
+The Spring 2026 anime lineup is officially here! Here are the biggest new releases and returning sequels fans need to add to their watchlist.
+---------
+
+# ABC's Record-Breaking Series High Potential Dominates Streaming Charts
+
+TV, High Potential, Disney+, Crime
+
+Thu, 02 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/high-potential-crime-procedural-abc-disney-success-april-2026/
+
+Kaitlin Olson's High Potential is breaking records on ABC and climbing global streaming charts on Disney+ and Hulu ahead of its Season 2 finale.
+---------
+
+# Armageddon is the Best 'Worst' Science Movie Ever
+
+Movies, Sci-Fi, Armageddon, Landman
+
+Thu, 02 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/billy-bob-thorton-sci-fi-flop-armageddon/
+
+Taylor Sheridan's Landman has assembled an impressive cast of stars, but one gave audiences the greatest B-movie of the 1990s.
+---------
+
 # Blake Lively’s Sexual Harassment Lawsuit Against Justin Baldoni Thrown Out by Judge
 
 Movies, It Ends With Us, Blake Lively, Justin Baldoni
