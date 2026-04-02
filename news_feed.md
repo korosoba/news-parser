@@ -1,3 +1,168 @@
+# Star Trek's Best Series Is Returning With New Official Sequel
+
+Comics, Star Trek
+
+Thu, 02 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/star-trek-red-shirts-return-new-series/
+
+Bloody good time.
+---------
+
+# Tom Cruise's $398M Spy Thriller Hit Officially Releases On Netflix After Making 2.6x Its Budget & It's A Must-Watch
+
+Movies, Netflix, Mission: Impossible III, Mission: Impossible
+
+Thu, 02 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/tom-cruise-mission-impossible-3-netflix-streaming-april-2026/
+
+Tom Cruise's spy thriller that made $398 million at the box office is one of his most important movies, and it has just arrived on Netflix.
+---------
+
+# Invincible Had Its Best Fight, And Not A Single Punch Was Thrown
+
+Streaming TV, Invincible
+
+Thu, 02 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/invincible-omni-man-debbie-best-fight/
+
+Invincible is a series known for its hard-hitting, superhero smackdowns, but the best fight in the series just happened without a single punch.
+---------
+
+# Daniel Craig’s 3-Part Crime Thriller Is Quietly Perfect For A One-Night Binge
+
+Streaming TV, Prime Video, Daniel Craig
+
+Thu, 02 Apr 2026 20:53:19 GMT
+
+https://screenrant.com/daniel-craig-archangel-thriller-series-watch/
+
+Daniel Craig's forgotten 3-part crime thriller Archangel is quietly perfect for a one-night binge this weekend, streaming exclusively on Prime Video.
+---------
+
+# The Masked Singer Season 14's Kylie Cantrall Discusses How She Became America's Insider, Her Favorite Cat Witch Performances, & Her New Single
+
+Reality TV, The Masked Singer
+
+Thu, 02 Apr 2026 20:50:50 GMT
+
+https://screenrant.com/the-masked-singer-season-14-kylie-cantrall-cat-witch-interview/
+
+In an interview with ScreenRant, The Masked Singer season 14's Kylie Cantrall discusses her journey as Cat Witch and America's Insider.
+---------
+
+# Jessica Chastain's 5-Part Thriller Series Based On A Swedish Classic Is Perfect From Start To Finish
+
+Classic TV, Scenes From a Marriage
+
+Thu, 02 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/jessica-chastain-scenes-from-a-marriage-hbo-miniseries-perfect/
+
+Scenes From a Marriage is an intense thriller series, and one of Jessica Chastain's best projects. The meta show breaks the rules for storytelling.
+---------
+
+# Gilmore Girls Fans Still Can't Rewatch the Episode That Fumbled Luke
+
+TV, Gilmore Girls
+
+Thu, 02 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/gilmore-girls-episode-fumbled-luke-best-character/
+
+Gilmore Girls has many controversial character choices, but only one character was fundamentally tarnished in a single episode.
+---------
+
+# Seth Rogen's $227M Forgotten Superhero Movie The Green Hornet Is Now Available for Free on Pluto TV
+
+Movies, The Green Hornet
+
+Thu, 02 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/seth-rogen-green-hornet-free-streaming-pluto-tv-april-2026/
+
+Rogen's underrated superhero movie also starred Christoph Waltz and Cameron Diaz, and it's now streaming for free.
+---------
+
+# Brad Pitt’s World War Z Is Streaming Now For Free
+
+Movies, Horror, World War Z, Brad Pitt
+
+Thu, 02 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/brad-pitt-world-war-z-horror-streaming-free/
+
+Brad Pitt is unquestionably one of the most successful stars of modern Hollywood, and his 2013 zombie epic stands out as a genre-defining masterpiece.
+---------
+
+# Blake Lively Loses Most Claims Against It Ends With Us Co-Star Justin Baldoni Ahead of Trial
+
+Movies, It Ends With Us
+
+Thu, 02 Apr 2026 20:49:59 GMT
+
+https://www.cbr.com/blake-lively-lawsuit-justin-baldoni-judge-dismiss/
+
+Ahead of the May 18 trial date, the judge finally ruled on Blake Lively's claims against Justin Baldoni.
+---------
+
+# 10 Underrated Anime Masterpieces With 10/10 Endings
+
+Anime, Dragon Ball GT, Gintama, My Hero Academia
+
+Thu, 02 Apr 2026 20:32:43 GMT
+
+https://www.cbr.com/overlooked-anime-masterpieces-with-perfect-endings/
+
+An anime's ending can either make or break the entire series, but these overlooked finales end on the best notes possible.
+---------
+
+# Donald Glover Gives Encouraging Update on Community Movie
+
+Movies, Community
+
+Thu, 02 Apr 2026 20:28:55 GMT
+
+https://www.cbr.com/donald-glover-update-community-delayed-movie/
+
+One of the original stars of Community gives fans an unexpected and optimistic update on the fate of the franchise's long-awaited feature film.
+---------
+
+# Only 3 Steven Spielberg Movies Are Better Than 'Jaws'
+
+Movie, Steven Spielberg, Jaws, Schindler's List, E.T. the Extra-Terrestrial
+
+Thu, 02 Apr 2026 20:58:13 GMT
+
+https://collider.com/steven-spielberg-movies-better-than-jaws/
+
+Jaws is Steven Spielberg's masterpiece, but movies like Close Encounters of the Third Kind do a much better job showcasing the director's strengths.
+---------
+
+# Can 'Project Hail Mary' Compete with 'Super Mario Galaxy's Massive Box Office Success?
+
+Features, The Super Mario Galaxy Movie, Project Hail Mary
+
+Thu, 02 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/super-mario-galaxy-box-office-project-hail-mary-competition/
+
+After two weeks of dominating the box office, 'Project Hail Mary' is in jeopardy of sustaining success in the wake of 'The Super Mario Galaxy Movie'.
+---------
+
+# 'Back to the Future' Writer Explains the Lorraine and Marty Love Story [Exclusive]
+
+Movie News, Back to the Future, Bob Gale
+
+Thu, 02 Apr 2026 20:47:24 GMT
+
+https://movieweb.com/back-to-the-future-lorraine-marty-explained/
+
+Bob Gale explains the lengths the creative team went to in order to prevent pushing boundaries too far with the sci-fi film.
+---------
+
 # Steam Deck 2 Release Window Leak Has Fans Concerned
 
 Gaming, Steam Deck, Triple-A Games, PC
