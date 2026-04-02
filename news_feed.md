@@ -1,3 +1,234 @@
+# Steam Deck 2 Release Window Leak Has Fans Concerned
+
+Gaming, Steam Deck, Triple-A Games, PC
+
+Thu, 02 Apr 2026 20:20:48 GMT
+
+https://screenrant.com/steam-deck-2-release-window-leak/
+
+The Steam Deck 2 could have some challenges ahead, and the latest release window rumor isn't generating optimistic reactions from fans.
+---------
+
+# The Drama Ending Explained: What Is Emma's Big Secret And What That Final Scene Means
+
+Movies, The Drama
+
+Thu, 02 Apr 2026 20:20:20 GMT
+
+https://screenrant.com/the-drama-ending-explained/
+
+The Drama's big plot twist gives this film some big thematic weight, using a major secret about Zendaya's Emma to talk about the human experience.
+---------
+
+# Apple TV Adapting New Remake Of 36-Year-Old Tom Hanks & Bruce Willis Satire With Matt Reeves
+
+TV, Apple TV, The Bonfire of the Vanities
+
+Thu, 02 Apr 2026 20:19:47 GMT
+
+https://screenrant.com/apple-tv-bonfire-of-the-vanities-series-matt-reeves/
+
+Critically acclaimed producer, David E. Kelley, is developing a TV adaptation of Tom Hanks and Bruce Willis' satire film for Apple TV.
+---------
+
+# The Pitt Season 3's Character Exit Confirms A Harsh Reality About The Series
+
+Streaming TV, The Pitt, The Pitt - Season 2, Supriya Ganesh
+
+Thu, 02 Apr 2026 20:16:20 GMT
+
+https://screenrant.com/the-pitt-season-3-dr-mohan-exit-teaching-hospital-reminder/
+
+The Pitt's focus on realism extends to its cast, as Supriya Ganesh's departure reflects the high turnover of teaching hospitals. Will other characters follow?
+---------
+
+# The Drama's Mamoudou Athie & Alana Haim React To First-Time Reading Harrowing Script
+
+Movies, The Drama, Alana Haim, Mamoudou Athie
+
+Thu, 02 Apr 2026 20:03:09 GMT
+
+https://screenrant.com/the-drama-movie-mamoudou-athie-alana-haim-script-reaction-interview/
+
+The Drama's Mamoudou Athie and Alana Haim reflect on their first reaction to the emotionally harrowing script and finding their relationship dynamic.
+---------
+
+# The 2000s' Best Space Opera Series Broke The Rules Of Sci-Fi
+
+Classic TV, Battlestar Galactica
+
+Thu, 02 Apr 2026 20:01:21 GMT
+
+https://screenrant.com/battlestar-galactica-break-sci-fi-tv-show-rules/
+
+By eschewing the usual space opera formula, Battlestar Galactica's acclaimed reboot managed to stand out in a crowded field of sci-fi shows.
+---------
+
+# HBO's Harry Potter TV Show Officially Confirms Fantastic Beasts' Failure
+
+Streaming TV, Harry Potter, Fantastic Beasts
+
+Thu, 02 Apr 2026 20:00:23 GMT
+
+https://screenrant.com/harry-potter-series-confirms-fantastic-beasts-failure/
+
+Warner Bros is moving on to something new with HBO, proving that it has all but forgotten about it's $1.8 billion film franchise that left us hanging.
+---------
+
+# Donald Glover & Jack Black Tease Special Collaboration After Super Mario Galaxy Movie
+
+TV, The Super Mario Galaxy Movie, Super Mario, Donald Glover, Jack Black
+
+Thu, 02 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/donald-glover-jack-black-music-collaboration-super-mario-galaxy-movie/
+
+Donald Glover and Jack Black talk The Super Mario Galaxy Movie, keeping Yoshi's casting a secret, and a special collaboration to come between them.
+---------
+
+# Zelda: Ocarina Of Time Remake Hyrule Field Redesign Splits Gamers
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games, Nintendo
+
+Thu, 02 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-hyrule-field-redesign/
+
+With an Ocarina of Time Remake becoming more believable by the day, fans have started to pose some hard questions about the series' future.
+---------
+
+# 10 Adventure Films To Watch If You Cannot Wait For Masters Of The Universe
+
+Movies, Masters of the Universe, Conan the Barbarian, Krull, Kull The Conqueror, Red Sonja, Flash Gordon, Stardust, The Scorpion King, Willow, Highlander
+
+Thu, 02 Apr 2026 19:55:19 GMT
+
+https://screenrant.com/adventure-movies-like-masters-of-the-universe/
+
+If the latest Masters of the Universe has you excited about revisiting Eternia, here's a selection of great Adventure movies to tide you over.
+---------
+
+# DC's Next Batman Movie Gets Official Release Update
+
+Movies, DCU, DC Comics, Batman, The Batman, The Batman Part II, Clayface
+
+Thu, 02 Apr 2026 20:17:15 GMT
+
+https://www.cbr.com/dcs-next-batman-movie-gets-official-release-update/
+
+Finally, amazing news has arrived for Batman fans around the world, by way of Batman: Knightfall.
+---------
+
+# Wizards Beyond Waverly Place's Future Sealed by Disney 6 Months After Season 2 Finale
+
+TV, Wizards Beyond Waverly Place
+
+Thu, 02 Apr 2026 20:15:20 GMT
+
+https://www.cbr.com/wizards-beyond-waverly-place-canceled-season-3/
+
+Disney officially seals the fate of the Wizards of Waverly Place sequel series.
+---------
+
+# 3 Best Netflix Shows to Binge This Weekend: April 3-5, 2026
+
+TV, Netflix, Something Very Bad Is Going to Happen, Jo Nesbø's Detective Hole
+
+Thu, 02 Apr 2026 20:13:17 GMT
+
+https://www.cbr.com/what-shows-to-watch-on-netflix-april-3-5-2026/
+
+With Easter weekend offering the ideal excuse for a proper couch session, these are some of the best Netflix offerings perfect for a two-night binge.
+---------
+
+# Himmel Officially Loses No. 1 Spot as Highest-Ranked Frieren Character of 2026
+
+Anime, Frieren: Beyond Journey's End
+
+Thu, 02 Apr 2026 20:06:25 GMT
+
+https://www.cbr.com/frieren-official-character-ranking-2026-himmel-lose/
+
+Himmel's long-running reign as Frieren's most popular character has ended after another character took first place in the newest official rankings.
+---------
+
+# Sauron's 5 Strongest Allies in The Lord of the Rings Trilogy, Ranked
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Thu, 02 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-sauron-strongest-allies-ranked-list/
+
+The Dark Lord Sauron commanded Middle-earth's mightiest army in The Lord of the Rings, but some of his minions were more powerful than others.
+---------
+
+# LEGO Batman Video Games Make An Unexpected Return, But With A Twist
+
+Games, Batman
+
+Thu, 02 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/lego-batman-video-game-comic-book-tie-in/
+
+DC builds more than LEGO Batman fans could expect.
+---------
+
+# Sandra Hüller Starred In Underseen Dramedy Toni Erdmann
+
+Movies, Project Hail Mary, Toni Erdmann
+
+Thu, 02 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-sandra-huller-toni-erdmann-underrated/
+
+Ten years before she wowed audiences with her performance in Project Hail Mary, Sandra Hüller did outstanding work in this German dramedy.
+---------
+
+# This 20-Episode Stephen King Adaptation Is Quietly One of the Best Horror Shows To Binge
+
+TV Features, Castle Rock, Stephen King, Hulu, Bill Skarsgård
+
+Thu, 02 Apr 2026 20:07:13 GMT
+
+https://collider.com/stephen-king-best-horror-series-adaptation-castle-rock/
+
+Hulu’s Castle Rock is one of the best Stephen King shows and a perfect binge for horror fans.
+---------
+
+# 7 Reasons Why It's Hard to Rewatch 'Buffy the Vampire Slayer's First Episode Today
+
+TV, Buffy The Vampire Slayer, Sarah Michelle Gellar, Alyson Hannigan, David Boreanaz
+
+Thu, 02 Apr 2026 19:52:14 GMT
+
+https://collider.com/buffy-the-vampire-slayer-pilot-1997-rewatch-harsh-realities/
+
+Dated effects, unpolished action, two-dimensional writing, and more make our list of why it's hard to rewatch the Buffy the Vampire Slayer pilot.
+---------
+
+# 'Dexter: Resurrection's Brian Cox Casting Will Make the Series a Masterpiece
+
+Features, Dexter: Resurrection
+
+Thu, 02 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/dexter-resurrection-brian-cox-john-lithgow-replacement/
+
+Trinity is 'Dexter's greatest antagonist, but casting for the New York Ripper in 'Dexter: Resurrection' could change that.
+---------
+
+# Patrick Dempsey's 'Memory of a Killer' Soars on Streaming Ahead of Season 1 Finale
+
+TV News, Memory of a Killer, Hot on Streaming, Patrick Dempsey, Action
+
+Thu, 02 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/memory-of-a-killer-action-thriller-streaming-hit-hulu-april-2026/
+
+Dempsey's small screen remake of Liam Neeson's intense 2022 action thriller has finally found its audience on streaming.
+---------
+
 # Invincible Season 4 Calls Back To A Brutal Death From Episode 1
 
 Streaming TV, Invincible
