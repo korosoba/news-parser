@@ -1,3 +1,157 @@
+# This 54-Year-Old Marvel Character Could Explain What's Really Going On In Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 02 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-jonas-harrow-secret-character-theory/
+
+Based on what we know about Spider-Man: Brand New Day's plot, a lesser-known Marvel Comics villain from the 1970s may have a secret role in the story.
+---------
+
+# Aragorn’s Recast In New Lord Of The Rings Movie Officially Confirmed By Andy Serkis
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 02 Apr 2026 22:56:43 GMT
+
+https://screenrant.com/aragorn-recast-lord-of-the-rings-the-hunt-for-gollum-confirmed-andy-serkis/
+
+EXCLUSIVE: Andy Serkis who is directing The Lord of the Rings: The Hunt for Gollum confirmed that the film is recasting Aragorn.
+---------
+
+# HBO’s 8-Part Crime Thriller Is One Of Its Best For An Easy Weekend Binge
+
+Streaming TV, HBO, The Penguin
+
+Thu, 02 Apr 2026 22:38:19 GMT
+
+https://screenrant.com/hbo-the-penguin-series-binge-watch/
+
+Discover why HBO's The Penguin, a 9-time Emmy-winning 8-part crime thriller show, remains a must-watch on HBO Max, perfect for an easy weekend binge.
+---------
+
+# Bandai Promises Restock After Exclusive Sailor Moon Release Sells Out
+
+Anime, Sailor Moon, bandai, merchandise
+
+Thu, 02 Apr 2026 23:05:12 GMT
+
+https://www.cbr.com/sailor-moon-bandai-release-sell-out-restock/
+
+A hugely popular Sailor Moon release from Bandai's S.H. Figuarts is now out of stock, leaving fans unable to order the majestic 'heavenly body.'
+---------
+
+# 10 Movies To Watch if You Love the Chaos of the 1993 Super Mario Bros.
+
+Movies, Super Mario Bros., Sci-Fi
+
+Thu, 02 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/movies-if-you-love-super-mario-bros-1993-list/
+
+1993's Super Mario Bros. isn't a massive success, but it has a charm that can be followed with many other video game and sci-fi movies.
+---------
+
+# Arnold Schwarzenegger's $2.1B Sci-Fi Franchise Takes Over Paramount+ Charts in the U.S.
+
+Movies, Terminator, Paramount Plus
+
+Thu, 02 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-terminator-franchise-paramount-plus-success-april-2026/
+
+Arnold Schwarzenegger's fan-favorite sci-fi franchise has come from the future to take over the Paramount+ charts.
+---------
+
+# Prime Video's Countdown: Jensen Ackles' Post-Supernatural Genre Shift
+
+TV, Jensen Ackles, Countdown, Supernatural
+
+Thu, 02 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/prime-video-countdown-jensen-ackles-genre-shift/
+
+After Supernatural, Ackles starred in a Prime Video show, and its cancellation highlights the challenges of changing genres.
+---------
+
+# HBO’s ‘The Pitt’ Season 2 Put on Life Support by a Surprising Crime Thriller
+
+TV News, DTF St. Louis, Stranger Things, Thriller, The Pitt
+
+Thu, 02 Apr 2026 23:15:12 GMT
+
+https://collider.com/stranger-things-star-david-harbour-dtf-st-louis-overtakes-the-pitt-season-2-streaming-success-hbo-max-april-2026/
+
+A star-studded adult crime thriller overtakes a critically acclaimed medical drama on HBO Max, dominating April 2026 charts.
+---------
+
+# The 20 Strongest Dragons in 'How to Train Your Dragon,' Ranked by Power
+
+Movie, How to Train Your Dragon, How to Train Your Dragon 2, How To Train Your Dragon: Homecoming
+
+Thu, 02 Apr 2026 23:12:12 GMT
+
+https://collider.com/how-to-train-your-dragon-strongest-dragons-best/
+
+The most powerful dragons in How to Train Your Dragon have proven they shouldn't be messed with, from Bewilderbeast to Night Fury.
+---------
+
+# Apple TV’s 2-Part ‘True Detective’-Style British Crime Series Returns This Month
+
+TV News, Criminal Record, Apple TV, Mindhunter, True Detective
+
+Thu, 02 Apr 2026 23:00:13 GMT
+
+https://collider.com/mindhunter-meets-true-detective-apple-tv-criminal-record-season-2-release-date-april-22-how-to-watch/
+
+It's Mindhunter meets True Detective in Apple TV's near-perfect crime thriller, Criminal Record, which returns with Season 2 this month.
+---------
+
+# 8 Near-Perfect 20th Century War Movies That No One Remembers Today
+
+Movie, War, The Message, Lion of the Desert, To Live
+
+Thu, 02 Apr 2026 22:54:13 GMT
+
+https://collider.com/near-perfect-war-movies-20th-century-no-one-remembers/
+
+From Lion of the Desert to The Message, many great war movies of the 20th century have largely been forgotten but are worth rediscovering today.
+---------
+
+# Elijah Wood Seemingly Confirms Leo Woodall as Aragorn in 'Lord of the Rings' Spin-Off
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Elijah Wood, Leo Woodall
+
+Thu, 02 Apr 2026 23:11:05 GMT
+
+https://movieweb.com/lord-of-the-rings-gollum-movie-aragorn-recasting/
+
+Woodall was the rumored choice to take over the role from Viggo Mortensen.
+---------
+
+# The 'Scrubs' Revival Casts Doubt on Asher & Amara's Rapid Happy Ending [Exclusive]
+
+Features, Scrubs
+
+Thu, 02 Apr 2026 23:01:17 GMT
+
+https://movieweb.com/scrubs-revival-abandons-rapid-love-story-conclusion/
+
+'Scrubs' has a new will-they/won't-they since the revival, but it looks like it's not going to end as quickly as expected. Read on for more.
+---------
+
+# Jon Hamm Discusses James Marsden's Debut in 'Your Friends & Neighbors' Season 2
+
+TV News, Your Friends and Neighbors, Jon Hamm, James Marsden
+
+Thu, 02 Apr 2026 22:39:58 GMT
+
+https://movieweb.com/your-friends-and-neighbors-jon-hamm-james-marsden/
+
+As James Marsden takes his place in 'Your Friends & Neighbors,' Jon Hamm addresses how he fits into the grand scheme of the show.
+---------
+
 # Star Wars' New Revenge Of The Sith Sequel Maul - Shadow Lord Proves Prequel Fans Keep Winning
 
 Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
