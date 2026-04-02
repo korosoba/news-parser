@@ -1,3 +1,278 @@
+# Baldur's Gate 3 Developer Teases New Game, And We Can't Wait
+
+Gaming, Baldur's Gate 3, Divinity, RPG, PC
+
+Thu, 02 Apr 2026 04:00:27 GMT
+
+https://screenrant.com/baldurs-gate-3-developer-new-game-teased/
+
+The devs behind Baldur’s Gate 3, Larian Studios, are teasing details about their new game, and their positivity is pushing excitement for the release.
+---------
+
+# It's Official: Netflix's Best K-Drama Bromance Is Returning with Season 2
+
+Anime, Bloodhounds, Bloodhounds - Season 2, Netflix
+
+Thu, 02 Apr 2026 03:45:19 GMT
+
+https://screenrant.com/bloodhounds-season-2-returning-netflix-best-bromance-kdrama/
+
+Netflix unleashed a gem in 2023 with Bloodhounds, and while it features a thrilling narrative, the bromance at its core is world-class.
+---------
+
+# April 21 Is A Very Important Day For PlayStation Plus Subscribers
+
+Gaming, PlayStation Plus
+
+Thu, 02 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/playstation-plus-april-21-importance/
+
+PlayStation Plus subscribers will want to keep an eye out for April 21, especially if you're an Extra or Premimum member who's playing games.
+---------
+
+# 10 Horror TV Shows & Movies To Watch After Something Very Bad Is Going To Happen
+
+Streaming TV, Something Very Bad Is Going to Happen
+
+Thu, 02 Apr 2026 02:20:23 GMT
+
+https://screenrant.com/shows-movies-like-something-very-bad-is-going-to-happen/
+
+Netflix's Something Very Bad Is Going to Happen has become an absolute hit, and these ten TV shows and movies are the perfect follow-up.
+---------
+
+# Dark Souls Player Beats Game Without Levelling Up, Dodging, Or Getting Hit
+
+Gaming, Dark Souls, Triple-A Games, PC
+
+Thu, 02 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/dark-souls-level-1-no-damage-beat-game/
+
+Even after all these years of players one-upping each other, a Dark Souls player has managed to set a new standard for challenging runs.
+---------
+
+# Resident Evil Movie Director Zach Cregger Expects Gamers To "Crucify" Him
+
+Movies, Resident Evil
+
+Thu, 02 Apr 2026 01:57:16 GMT
+
+https://screenrant.com/resident-evil-zach-cregger-gamers-crucify-adaptation/
+
+Zach Cregger, director of the upcoming Resident Evil reboot film, revealed that he expects to be crucified by the franchise's fans.
+---------
+
+# Netflix Officially Confirms Spy x Family Release Date
+
+Anime, Spy X Family, Netflix, Spy x Family
+
+Thu, 02 Apr 2026 03:59:12 GMT
+
+https://www.cbr.com/spy-x-family-netflix-release-date-america/
+
+For the first time, Spy x Family fans in the U.S. will finally be able to watch the hit Shonen Jump series on the world's biggest streaming service.
+---------
+
+# Stephen King Praised The Man in the High Castle as 'Jaw-Dropping' Dystopian TV
+
+TV, The Man in the High Castle, Sci-Fi
+
+Thu, 02 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/the-man-in-the-high-castle-favorite-stephen-king-sci-fi-series/
+
+The Man in the High Castle comes highly recommended by Stephen King and is still one of the best dystopian shows to stream.
+---------
+
+# 2026’s Biggest Sleeper Hit Mecha Surprise Is the Next Gurren Lagann
+
+Anime, Snowball Earth, Gurren Lagann
+
+Thu, 02 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/snowball-earth-mecha-anime-2026-sleeper-hit/
+
+Snowball Earth runs on the same engine as Gurren Lagann: the bond between a boy and his mech becomes world-changing physical power.
+---------
+
+# Inside the Manosphere Proves Magnolia Was Tom Cruise’s Darkest Role
+
+Movies, Louis Theroux: Inside the Manosphere, Magnolia, tom cruise
+
+Thu, 02 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/netflix-inside-manosphere-tom-cruise-magnolia/
+
+Louis Theroux’s latest documentary delves into the world of internet-driven misogyny, but Tom Cruise’s darkest role got there twenty-seven years ago.
+---------
+
+# Prime Video's Monstress Adaptation Is a New Era for Fantasy TV
+
+TV, monstress, Prime Video, Fantasy
+
+Thu, 02 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/prime-video-monstress-wheel-of-time-replacement/
+
+The Wheel of Time was dropped from Prime Video's lineup, and now the studio is getting ready to launch a new epic adventure.
+---------
+
+# 25 Years Ago, Nintendo Released the Greatest Remake of All Time
+
+Games, Nintendo, Mario, Video Games
+
+Thu, 02 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/super-mario-advance-gba-best-remake-nintendo/
+
+Nintendo's video game remake from 2001 is better than any remake today.
+---------
+
+# 10 Pokémon Characters Who Actually Died in the Manga
+
+Anime, Pokemon, Nintendo
+
+Thu, 02 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/pokemon-characters-who-died-manga-silver-yellow/
+
+The Pokémon manga is surprisingly dark, and some characters have even died.
+---------
+
+# Bandai Returns to Gundam 00 With Master Grade Gunpla Model Kit Release After 7 Years
+
+Anime, Mobile Suit Gundam 00, Mobile Suit Gundam, merchandise, toys, bandai
+
+Thu, 02 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/gundam-00-master-grade-gunpla-dynames-bandai-release/
+
+Almost two decades after the anime debuted, a re-released Master Grade Gundam model kit recreates the shiny Trans-Am mode for a Gundam 00 mecha.
+---------
+
+# Star Trek: Strange New Worlds Season 3 Quietly Broke Gene Roddenberry’s Most Sacred Rule
+
+TV, Star Trek: Strange New Worlds, Star Trek, Sci-Fi
+
+Thu, 02 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-pike-praying-broke-gene-roddenberry-rule/
+
+In the Season 3 premiere episode of Star Trek: Strange New Worlds, Captain Christopher Pike does something surprising Gene Roddenberry would dislike.
+---------
+
+# Creepypasta Movies That Need To Follow Backrooms
+
+Movies, Backrooms
+
+Thu, 02 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/creepypasta-movie-follow-up-backrooms/
+
+The first trailer for Backrooms has made us want even more creepypasta movie adaptations to hit the big screen this year and beyond.
+---------
+
+# 10 Most Perfect Sci-Fi Movies of the 21st Century, Ranked
+
+Movie, Sci-Fi, 21st Century, Everything Everywhere All at Once, Arrival
+
+Thu, 02 Apr 2026 04:07:13 GMT
+
+https://collider.com/most-perfect-sci-fi-movies-21st-century-ranked/
+
+Arrival, Mad Max: Fury Road, and Everything Everywhere All at Once are all among the best, most perfect science fiction movies of the 21st century.
+---------
+
+# 'The Rookie's Most Divisive Character Needs a Full Redemption Arc in Season 8
+
+TV Features, The Rookie, Procedural, ABC, Nathan Fillion
+
+Thu, 02 Apr 2026 04:06:12 GMT
+
+https://collider.com/the-rookie-season-8-seth-ridley-divisive-character-redemption-arc/
+
+The Rookie's Seth Ridley has proven he's earned a chance at redemption in Season 8, and it's time to give him the opportunity.
+---------
+
+# HBO Max's Forgotten 6-Part Psychological Thriller Demands a Rewatch
+
+TV Features, The Undoing, Nicole Kidman, HBO, Thriller
+
+Thu, 02 Apr 2026 03:54:12 GMT
+
+https://collider.com/the-undoing-hbo-series-nicole-kidman-demands-rewatch/
+
+David E. Kelley's gripping HBO miniseries The Undoing, starring Nicole Kidman and Hugh Grant, is even a more chilling thriller on a rewatch.
+---------
+
+# FX’s 7-Part Crime Drama Quietly Becomes a Late-Night Favorite 12 Years Later
+
+TV Features, Apple TV, Sons of Anarchy, FX, Drama
+
+Thu, 02 Apr 2026 03:15:13 GMT
+
+https://collider.com/sons-of-anarchy-fx-crime-drama-late-night-favorite-apple-streaming/
+
+FX's Sons of Anarchy has quietly become a late-night favorite on Apple TV, captivating audiences 12 years after its debut.
+---------
+
+# The 10 Heaviest Movies of the Last 10 Years, Ranked
+
+Movie, The Zone of Interest, Killers of the Flower Moon, Marriage Story, Drama
+
+Thu, 02 Apr 2026 03:03:13 GMT
+
+https://collider.com/heaviest-movies-last-10-years-ranked/
+
+There have been some especially heavy and depressing films released in the last 10 years, including The Zone of Interest, Marriage Story, and Mass.
+---------
+
+# 'Daredevil: Born Again' Season 2 Is Great, but This Core Storyline Is Dragging It Down
+
+TV Features, Daredevil: Born Again, Charlie Cox, Deborah Ann Woll, Disney+
+
+Thu, 02 Apr 2026 03:00:13 GMT
+
+https://collider.com/daredevil-born-again-season-2-karen-matt-relationship-problems/
+
+In Daredevil: Born Again Season 2, Matt and Karen find themselves on opposite sides of a moral debate as they face Wilson Fisk's reign of terror.
+---------
+
+# Prime Video’s 87% RT Sci-Fi Gem Is the Perfect Show for ‘Stranger Things’ Fans
+
+TV Features, Stranger Things, Tales from the Loop, Prime Video, Rebecca Hall
+
+Thu, 02 Apr 2026 02:54:12 GMT
+
+https://collider.com/prime-video-tales-from-the-loop-stranger-things-replacement/
+
+Tales from the Loop is a unique anthology that gives Stranger Things a run for its money, especially with its sci-fi elements.
+---------
+
+# 56 Years Later, Jack Nicholson’s 89% Rotten Tomatoes Thriller Is a Near-Perfect American Films
+
+Movie Features, Jack Nicholson, Five Easy Pieces, Karen Black, Drama
+
+Thu, 02 Apr 2026 02:44:12 GMT
+
+https://collider.com/jack-nicholson-cult-classic-movie-five-easy-pieces/
+
+1970’s Five Easy Pieces, which starred Jack Nicholson as an unpredictable dropout, is an American classic that deserves more attention.
+---------
+
+# 10 Most Intense Action Thriller Movies That Are Perfect if You Love 'Taken'
+
+Movie Lists, Action, Taken
+
+Thu, 02 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/action-thriller-movies-taken-fans/
+
+Fans of 'Taken,' the action movie starring Liam Neeson and released in 2008, will love these other films in the same genre.
+---------
+
 # Invincible Season 4, Episode 5’s Massive Character Change From The Comics Explained By Robert Kirkman
 
 TV, Invincible, Invincible - Season 4
