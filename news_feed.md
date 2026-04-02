@@ -1,3 +1,278 @@
+# Peacock's 2-Part '90s Throwback Series Deserved At Least One More Season
+
+Classic TV, Saved by the Bell
+
+Thu, 02 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/saved-by-the-bell-reboot-deserve-third-season/
+
+Peacock rebooted Saved by the Bell in 2020 for a modern audience and gave viewers two excellent seasons that warranted at least one more.
+---------
+
+# This Taylor Sheridan Neo-Western Sequel Was Filmed 3 Years Ago, So Why Hasn't It Been Released?
+
+Movies, Wind River, Wind River: Rising, Western
+
+Thu, 02 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/wind-river-next-chapter-filmed-2023-unreleased-reasons/
+
+A sequel to Taylor Sheridan's best Neo-Western was filmed way back in 2023, so why is there no sign of it being released almost 3 years later?
+---------
+
+# Xbox Makes 6 Assassin's Creed Games Free, No Game Pass Required
+
+Gaming, Xbox Game Pass, Assassin's Creed
+
+Thu, 02 Apr 2026 15:14:25 GMT
+
+https://screenrant.com/xbox-6-assassins-creed-games-free-without-game-pass/
+
+Xbox is making six Assassin's Creed games free to play, no Game Pass needed, but the deal is only available for a limited time so act fast.
+---------
+
+# Eternals' New Hero TELEGON Is One of the Franchise's Strongest Heroes
+
+Comics, Eternals, Marvel, Marvel Cinematic Universe
+
+Thu, 02 Apr 2026 15:07:43 GMT
+
+https://screenrant.com/eternals-new-character-telegon-strongest/
+
+Despite the failure of Marvel Cinematic Universe's 2021 Eternals film, the team is still going strong in the comics with this new character.
+---------
+
+# Art Edmonds Makes Dreams Come True In ABC's New Renovation Series Home For Good
+
+Exclusive, ABC
+
+Thu, 02 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/video/home-for-good-abc-art-edmonds-renovation-clip/
+
+Exclusive: ScreenRant presents a clip from Home For Good, a renovation series honoring first responders and heroes who give back to the community.
+---------
+
+# Beef Season 2 Trailer: Mulligan, Isaac Clash With Melton & Spaeny
+
+TV, Netflix, Beef, Carey Mulligan, Oscar Isaac, Charles Melton, Cailee Spaeny
+
+Thu, 02 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/beef-season-2-official-trailer-netflix/
+
+Netflix's Beef is back for season 2, and this time, the chaos trades road rage for country club warfare in a cold-blooded feud between two couples.
+---------
+
+# X-Mens' Angel Is The Devil In Major Character Redesign
+
+Marvel Comics, X-Men, Marvel
+
+Thu, 02 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/x-men-angel-new-costume-codename-hellfire/
+
+Marvel completely changes one founding X-Men member's whole identity with the official introduction of a new costume and name for the mutant's return.
+---------
+
+# Netflix's Assassin's Creed Could Give Fallout Some Competition
+
+Streaming TV, Fallout, Assassin's Creed
+
+Thu, 02 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/assassins-creed-netflix-video-game-series-answer-fallout/
+
+Fallout has been one of the best video game adaptations in recent memory, but an upcoming Netflix series has the potential to rival this great show.
+---------
+
+# New Star Wars Series Officially Returning For Season 2 Ahead Of Disney+ Premiere
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Thu, 02 Apr 2026 14:55:57 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-season-2-confirmed-disney/
+
+Star Wars has just announced an upcoming second season of Maul: Shadow Lord, a brand-new animated series centered on former Sith Darth Maul.
+---------
+
+# Captain Marvel's New Appearance Officially Brings Back Her Forgotten Superpower
+
+Comics, Captain Marvel
+
+Thu, 02 Apr 2026 14:46:23 GMT
+
+https://screenrant.com/captain-marvel-new-power-seventh-sense/
+
+Captain Marvel's new series explores her forgotten history and the return of her 'Seventh Sense' precognitive abilities, uncovering obscured pieces of her past and future visions.
+---------
+
+# Nic Cage's The Sorcerer's Apprentice Remains Disney's Weirdest Live-Action Remake
+
+Movies, The Sorcerer's Apprentice
+
+Thu, 02 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/nic-cages-sorcerers-apprentice-weirdest-disney-live-action-remake/
+
+Disney attempted to create a new franchise from a strange idea, but despite its potential, it didn't quite live up to expectations.
+---------
+
+# 10 Best 2000s Anime That Quietly Fizzled Out Until No One Remembered Them
+
+Anime
+
+Thu, 02 Apr 2026 15:25:08 GMT
+
+https://www.cbr.com/best-2000s-anime-no-one-remembers-anymore/
+
+Anime like Zatch Bell! and Lucky Star stood out in the 2000s, but have slowly faded from memory over time.
+---------
+
+# Chris Pratt's The Super Mario Galaxy Movie Is Already 1 of the Most Divisive Films of 2026
+
+Movies, The Super Mario Galaxy Movie, Nintendo, Rotten Tomatoes
+
+Thu, 02 Apr 2026 15:12:25 GMT
+
+https://www.cbr.com/chris-pratt-the-super-mario-galaxy-movie-critics-audience-rotten-tomatoes/
+
+It hasn't surpassed Prime Video's Melania, though.
+---------
+
+# Manga Planet Officially Shuts Down Digital Service After 7 Years
+
+Anime, Manga
+
+Thu, 02 Apr 2026 15:01:12 GMT
+
+https://www.cbr.com/manga-planet-shut-down/
+
+One of the most beloved online manga services for underserved and indie titles is officially shutting down after nearly a decade.
+---------
+
+# 10 Years Later, We're Still Waiting On a Sequel to Persona 5
+
+Games, Persona, Persona 5 Royal, JRPG
+
+Thu, 02 Apr 2026 15:01:12 GMT
+
+https://www.cbr.com/best-jrpg-last-decade-persona-5-royal/
+
+This near-perfect JRPG is a masterpiece that's impossible to top.
+---------
+
+# Dexter: Resurrection Season 2 Casts Brian Cox as New York Ripper
+
+Movies, Dexter: Resurrection
+
+Thu, 02 Apr 2026 14:47:51 GMT
+
+https://www.cbr.com/dexter-resurrection-brian-cox-new-york-ripper/
+
+Major casting news has been revealed for the second season of Dexter: Resurrection.
+---------
+
+# Morena Baccarin's 2-Part Sci-Fi Remake V Is an Undisputed Masterpiece
+
+TV, Firefly, V, morena baccarin, Sci-Fi
+
+Thu, 02 Apr 2026 14:42:34 GMT
+
+https://www.cbr.com/firefly-morena-baccarin-v-sci-fi-remake-undisputed-masterpiece/
+
+Morena Baccarin's 2009 remake offers a clever twist on the alien invasion trope and deserves more recognition than her previous cult classic, Firefly.
+---------
+
+# Netflix’s 98% Rotten Tomatoes Thriller Officially Returns This Month With Near-Perfect Trailer
+
+TV News, Beef, Netflix, Oscar Isaac, Cailee Spaeny
+
+Thu, 02 Apr 2026 15:00:12 GMT
+
+https://collider.com/netflix-beef-season-2-trailer-relase-date-april-26/
+
+Netflix has released the first official trailer for its intensely bingeable anthology series, Beef, which returns on April 16.
+---------
+
+# 'Parks and Rec' Meets 'Midnight Mass' in Trailer for Apple TV's Bonkers New Horror Series
+
+TV News, Widow's Bay, Matthew Rhys, Apple TV, Stephen Root
+
+Thu, 02 Apr 2026 15:00:12 GMT
+
+https://collider.com/apple-tv-new-horror-series-widows-bay-trailer-matthew-rhys/
+
+The first trailer for Widow's Bay puts Matthew Rhys at the head of a cursed town in Apple TV's new horror comedy.
+---------
+
+# Yellowstone Spin-Off 'Marshals' is Going "Full Dutton" This Week [Exclusive]
+
+Exclusives, Marshals, Yellowstone, CBS, Luke Grimes
+
+Thu, 02 Apr 2026 15:00:12 GMT
+
+https://collider.com/marshals-episode-6-sneak-peek-kayce-dutton-biker-gang-clubhouse/
+
+In our exclusive first look at the new Marshals episode, Kayce Dutton and his team target a biker gang in a dangerous mission to rescue missing girls
+---------
+
+# Disney's New Star Wars Series Officially Confirms Season 2 Renewal Before Season 1 Even Premieres
+
+TV News, Star Wars: Maul - Shadow Lord, Darth Maul, Disney+, Sam Witwer
+
+Thu, 02 Apr 2026 14:32:40 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-season-2-renewed-disney-plus/
+
+Star Wars: Maul — Shadow Lord officially gets a major Season 2 update ahead of the series premiere on Disney+ on April 6.
+---------
+
+# A 'Boots' Star Leads One of 2026's Most Controversial Upcoming Films in Chilling First Trailer
+
+Movie News, Boots, Kieron Moore, Thriller
+
+Thu, 02 Apr 2026 14:31:13 GMT
+
+https://collider.com/blue-film-trailer-kieron-moore-controversial-thriller/
+
+Kieron Moore's controversial queer thriller Blue Film received its first trailer showing the complex meeting between a camboy and his curious client.
+---------
+
+# John Travolta Officially Set to Make Directorial Debut for Apple TV
+
+Movie News, John Travolta, Apple TV
+
+Thu, 02 Apr 2026 14:26:58 GMT
+
+https://collider.com/john-travolta-directorial-debut-apple-tv-cannes-premiere/
+
+John Travolta has officially directed his first movie and you can watch it next month on Apple TV. Here's what you need to know.
+---------
+
+# Michael B. Jordan Takes the Lead in First Trailer for Netflix’s ‘Swapped’
+
+Movie News, Swapped, Michael B. Jordan
+
+Thu, 02 Apr 2026 14:28:06 GMT
+
+https://movieweb.com/michael-b-jordan-netflix-swapped-trailer/
+
+Netflix released the first trailer for 'Swapped,' starring Oscar-winner Michael B. Jordan in the leading role.
+---------
+
+# Apple TV's 'Imperfect Women' Is Silently Taking Over Streaming
+
+TV News, Imperfect Women, Hot on Streaming, Thriller, Apple TV
+
+Thu, 02 Apr 2026 14:23:46 GMT
+
+https://movieweb.com/imperfect-women-streaming-hit-apple-tv-april-2026/
+
+The new star-studded psychological thriller baed on the novel by Araminta Hall has been captivating viewers since its premiere.
+---------
+
 # Game Of Thrones' Biggest Missing OG Stark Will Finally Be Introduced This July In New GRRM Release
 
 TV, Game Of Thrones, Game of Thrones
