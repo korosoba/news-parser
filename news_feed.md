@@ -1,3 +1,25 @@
+# The PlayStation 5 Officially Reaches The End Of An Era Today
+
+Gaming, PlayStation 5, PC
+
+Thu, 02 Apr 2026 08:00:18 GMT
+
+https://screenrant.com/ps5-price-increase-april-2026/
+
+PlayStation 5 has officially reached the end of an era today, and it's bad news for anyone who's been waiting to pull the trigger on a new console.
+---------
+
+# 'Bob's Burgers' Eugene Mirman Suffers Significant Injuries in Dangerous Car Crash
+
+TV News, Bob's Burgers
+
+Thu, 02 Apr 2026 07:54:05 GMT
+
+https://movieweb.com/bobs-burgers-eugene-mirman-car-crash/
+
+Eugene Mirman, the voice behind Gene Belcher from 'Bob's Burgers,' sustained serious injuries in a scary car crash.
+---------
+
 # 'XO, Kitty' Season 3 Review: Netflix's Romance Spin-off Is Still Making the Same Mistakes
 
 TV Reviews, XO, Kitty, Anna Cathcart, Netflix, To All the Boys I've Loved Before
