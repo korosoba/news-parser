@@ -1,3 +1,267 @@
+# Invincible Season 4 Calls Back To A Brutal Death From Episode 1
+
+Streaming TV, Invincible
+
+Thu, 02 Apr 2026 19:30:20 GMT
+
+https://screenrant.com/invincible-season-4-conquest-head-crush-omni-man-callback/
+
+Invincible season 4's action is really starting to heat up, and one recent fight provided the perfect callback to a brutal season 1 death.
+---------
+
+# Prime Video's 5-Part Period Drama Series With Near-Perfect Rotten Tomatoes Score Is Aging Like Fine Wine
+
+TV, Prime Video, The Marvelous Mrs. Maisel
+
+Thu, 02 Apr 2026 19:21:58 GMT
+
+https://screenrant.com/the-marvelous-mrs-maisel-prime-video-series-aging-well/
+
+One of Prime Video's best TV shows is aging incredibly well, with this 5-part period series remaining a compelling watch years after it ended.
+---------
+
+# The Super Mario Galaxy Movie Confirms A Long-Standing Fan Theory (And Shoots Down Another)
+
+Movies, Super Mario Galaxy 2
+
+Thu, 02 Apr 2026 19:20:19 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-peach-rosalina-bowser-jr/
+
+The Super Mario Galaxy Movie tweaks the canon from the original Nintendo gaming series, tackling two enduring fan theories from the games.
+---------
+
+# Wizards Beyond Waverly Place Season 3 Release Window Officially Confirmed With Major Change
+
+TV, Wizards Beyond Waverly Place, Wizards of Waverly Place
+
+Thu, 02 Apr 2026 19:17:28 GMT
+
+https://screenrant.com/wizards-beyond-waverly-place-season-3-release-window-episode-count/
+
+Disney has now confirmed the release date and surprising episode count of Wizards Beyond Waverly Place season 3, which will bring back Selena Gomez.
+---------
+
+# D&D Drops 4 New Subclasses For Free
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Thu, 02 Apr 2026 19:04:09 GMT
+
+https://screenrant.com/dungeons-dragons-new-subclasses-villain-unearthed-arcana/
+
+You can try out the newest batch of Dungeons & Dragons subclasses for free, and they could be the perfect way for a party to embrace their dark side.
+---------
+
+# Peaky Blinders Recasts Duke Shelby Role For Second Time In Four Years
+
+TV, Peaky Blinders, Netflix
+
+Thu, 02 Apr 2026 19:03:31 GMT
+
+https://screenrant.com/peaky-blinders-sequel-series-duke-recasting-jamie-bell-image/
+
+Jamie Bell takes on the role of Duke Shelby in the Peaky Blinders sequel series, marking the second recasting of the character in just four years.
+---------
+
+# Ready Player One Officially Returns With New 2-Part Series, Details Here
+
+Comics, Ready Player One
+
+Thu, 02 Apr 2026 18:55:48 GMT
+
+https://screenrant.com/ready-player-one-return-new-2-part-series-graphic-novels/
+
+Cline’s Ready Player One franchise is expanding its legacy with two highly anticipated new releases, giving fans more ways to dive into the OASIS.
+---------
+
+# Se7en Writer’s New Serial Killer Movie Sets Digital Release Date After Infamous 0% RT Debut
+
+Movies, Psycho Killer
+
+Thu, 02 Apr 2026 18:54:51 GMT
+
+https://screenrant.com/psycho-killer-movie-2026-digital-release-date/
+
+The screenwriter of the crime thriller Se7en has a new horror film that’s about to be released on digital platforms, despite shockingly low reviews.
+---------
+
+# Anya Taylor-Joy's 7-Part Netflix Masterpiece Series Is Aging Like Fine Wine
+
+Classic TV, The Queen's Gambit
+
+Thu, 02 Apr 2026 18:51:09 GMT
+
+https://screenrant.com/the-queens-gambit-anya-taylor-joy-miniseries-aging-well/
+
+Netflix's miniseries, The Queen's Gambit introduced Anya Taylor-Joy to a wider audience, and the show is aging so well that it does not need a sequel.
+---------
+
+# Game of Thrones: The Mad King Sets Premiere Date
+
+TV, Game Of Thrones
+
+Thu, 02 Apr 2026 19:34:21 GMT
+
+https://www.cbr.com/george-r-r-martin-game-of-thrones-the-mad-king-premiere/
+
+Following the 15th anniversary of the TV series, a new Game of Thrones project debuts this summer.
+---------
+
+# Lee Pace Reveals How He Found Thragg's Voice For Invincible Season 4
+
+CBR Exclusives, Invincible
+
+Thu, 02 Apr 2026 19:13:13 GMT
+
+https://www.cbr.com/lee-pace-thragg-voice-invincible-season-4/
+
+All hail Thragg.
+---------
+
+# Peaky Blinders Series Officially Casts Its Thomas Shelby Replacement With Jamie Bell
+
+TV, Peaky Blinders
+
+Thu, 02 Apr 2026 19:09:44 GMT
+
+https://www.cbr.com/peaky-blinders-series-jamie-bell-duke-shelby/
+
+A new era is coming to Peaky Blinders, with a brand-new cast.
+---------
+
+# The Handmaid's Tale's Spinoff The Testaments Rotten Tomatoes Score Unveiled
+
+TV, The Handmaid's Tale, The Testaments
+
+Thu, 02 Apr 2026 19:03:13 GMT
+
+https://www.cbr.com/the-testaments-rotten-tomatoes-score/
+
+Blessed be the fruit, as audiences has been sent a good spinoff.
+---------
+
+# Scarlett Johansson's $469M Sci-fi Film Lucy Is Now Streaming on Netflix
+
+Movies, scarlett johansson, Lucy
+
+Thu, 02 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/scarlett-johansson-lucy-sci-fi-netflix-release-date-april-2026/
+
+The sci-fi film was a commercial success with underwhelming reaction.
+---------
+
+# The Best Crime Movies From Every Year of The 1990s
+
+Movies, Heat, The Silence of the Lambs, Pulp Fiction
+
+Thu, 02 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/best-crime-movie-every-year-1990s-list/
+
+If there was something the '90s had in spades, it was the catalogue of premium crime films.
+---------
+
+# Apple TV Is Remaking The Bonfire of the Vanities
+
+TV, The Bonfire of the Vanities
+
+Thu, 02 Apr 2026 18:54:14 GMT
+
+https://www.cbr.com/apple-tv-the-bonfire-of-the-vanities/
+
+A new take on the 36-year-old story is now in the works at Apple TV.
+---------
+
+# Only 3 Quentin Tarantino Movies Are Better Than 'Pulp Fiction'
+
+Movie, Quentin Tarantino, Inglourious Basterds, Pulp Fiction, Jackie Brown
+
+Thu, 02 Apr 2026 19:34:13 GMT
+
+https://collider.com/quentin-tarantino-movies-better-than-pulp-fiction/
+
+Pulp Fiction might be his signature movie, but it's not Quentin Tarantino's best, as others, like Once Upon a Time in Hollywood, are arguably better.
+---------
+
+# 'Peaky Blinders' Recasts a Key Shelby in New 2-Part Series
+
+TV News, Peaky Blinders, Charlie Heaton, Jamie Bell, Netflix
+
+Thu, 02 Apr 2026 19:27:12 GMT
+
+https://collider.com/peaky-blinders-sequel-series-2-seasons-netflix-first-look-jamie-bell-charlie-heaton/
+
+Netflix's Peaky Blinders sequel series officially greenlit for two seasons as Jamie Bell replaces Barry Keoghan in first look.
+---------
+
+# Tom Hanks’ Biggest Flop Is Officially Getting a Second Chance With ‘The Batman’ Director
+
+TV News, The Bonfire of the Vanities, David E. Kelley, Matt Reeves, AppleTV
+
+Thu, 02 Apr 2026 19:09:28 GMT
+
+https://collider.com/the-batman-director-matt-reeves-new-series-apple-tv-bonfire-of-the-vanities-david-e-kelley/
+
+Tom Hanks’ biggest flop is officially getting a second life as David E. Kelley teams with The Batman director Matt Reeves for a new series adaptation.
+---------
+
+# 'Sons of Anarchy's Cancelled Vietnam War Prequel May Not Be Dead After All
+
+TV News, Sons of Anarchy, Mayans M.C., Kurt Sutter, Charlie Hunnam
+
+Thu, 02 Apr 2026 19:01:27 GMT
+
+https://collider.com/fx-crime-series-sons-of-anarchy-prequel-update-kurt-sutter/
+
+Sons of Anarchy creator Kurt Sutter discusses the possibility of a post-Vietnam War era prequel for the beloved crime franchise.
+---------
+
+# 58 Years Ago, ‘Star Trek’s Most Unsettling Episode Took the Sci-Fi Series Somewhere Darker
+
+TV Features, Star Trek, William Shatner, Leonard Nimoy, Sci-Fi
+
+Thu, 02 Apr 2026 18:58:12 GMT
+
+https://collider.com/star-trek-season-3-the-empath-sci-fi-series/
+
+"The Empath" is a unique and emotionally charged Star Trek episode that showcases a different side to Captain Kirk and the crew.
+---------
+
+# ABC's '9-1-1' Just Had Its Biggest Week Ever
+
+TV News, 9-1-1, 9-1-1: Nashville, Procedural, ABC
+
+Thu, 02 Apr 2026 18:54:24 GMT
+
+https://collider.com/abc-9-1-1-season-9-nashville-spin-off-record-viewership-4-million/
+
+Somebody call 9-1-1, cause the hit ABC series and its Nashville spin-off are burning up the network's viewership records.
+---------
+
+# Guy Ritchie and Tom Hardy’s Hit Crime Thriller Officially Gets Its Biggest Season 2 Update Yet
+
+TV News, MobLand, Tom Hardy, Guy Ritchie, Crime
+
+Thu, 02 Apr 2026 18:50:32 GMT
+
+https://collider.com/guy-ritchie-crime-thriller-tom-hardy-mobland-season-2-update-wraps-filming-emmett-j-scanlan/
+
+Paramount+'s hit crime thriller series, MobLand, starring Tom Hardy and Pierce Brosnan, has officially wrapped filming for Season 2.
+---------
+
+# Every New Movie and TV Show Coming to Netflix in April 2026
+
+Features, Netflix
+
+Thu, 02 Apr 2026 19:00:17 GMT
+
+https://movieweb.com/netflix-movies-tv-shows-streaming-april-2026/
+
+New movies and TV shows coming to Netflix in April 2026 include 'Stranger Things,' 'Beef' Season 2, and a new action movie starring Charlize Theron.
+---------
+
 # Prime Video's New Spider-Man Series Is Officially A Comedy Despite Neo-Noir Crime Elements
 
 TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
