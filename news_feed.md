@@ -1,3 +1,69 @@
+# Steam Makes 2021 Game 100% Free To Keep Forever Before April 6
+
+Gaming, Steam
+
+Thu, 02 Apr 2026 09:47:39 GMT
+
+https://screenrant.com/steam-free-download-april-2026-no-catch/
+
+Steam drops the occasional 100% reduction on players, and there's one available right now for first-person horror fans.
+---------
+
+# XO, Kitty Season 3 Review: Kitty's Senior Year Struggles Amidst Dramatic Plot
+
+Streaming TV, XO, Kitty - Season 3, XO, Kitty
+
+Thu, 02 Apr 2026 09:01:19 GMT
+
+https://screenrant.com/xo-kitty-season-3-review/
+
+XO, Kitty season 3 dives into Kitty's senior year, but the show's dramatic plot & unresolved romances leave fans underwhelmed, despite strong moments.
+---------
+
+# Cyberpunk 2077 Adam Smasher DLC Leaks Ahead Of Official Reveal
+
+Gaming, Cyberpunk 2077, Fortnite
+
+Thu, 02 Apr 2026 08:59:32 GMT
+
+https://screenrant.com/cyberpunk-2077-adam-smasher-dlc-fortnite/
+
+Adam Smasher? I barely know her! Cyberpunk 2077 fans can expect a brand-new DLC crossover in the coming weeks. Mark your calendars.
+---------
+
+# Rebecca Ferguson Officially Becomes First Star of 2026 With Two #1 Streaming Hits
+
+Movie News, Rebecca Ferguson, Mercy, Peaky Blinders: The Immortal Man, Netflix
+
+Thu, 02 Apr 2026 09:30:22 GMT
+
+https://collider.com/rebecca-ferguson-peaky-blinders-the-immortal-man-mercy-streaming-success-netflix-prime-video-april-2026/
+
+With Peaky Blinders: The Immortal Man and Mercy, Rebecca Ferguson has officially become the first star of 2026 with 2 #1 hits on streaming.
+---------
+
+# 10 Movie Adaptations the Author Hated
+
+Movie, Mary Poppins, Books, I Know What You Did Last Summer, Willy Wonka and the Chocolate Factory
+
+Thu, 02 Apr 2026 09:04:12 GMT
+
+https://collider.com/movie-adaptations-the-author-hated/
+
+Sometimes, an author hates the movie based on their book. That's what happened with Stephen King and the Shining, and P.L. Travers and Mary Poppins.
+---------
+
+# New Animated Star Wars Series Could Break a Disney+ Tradition [Exclusive]
+
+TV News, Star Wars: Maul - Shadow Lord, Animation, Star Wars, Disney+
+
+Thu, 02 Apr 2026 09:00:13 GMT
+
+https://collider.com/darth-maul-shadow-lord-more-seasons-break-disney-plus-tradition/
+
+Discover how Maul — Shadow Lord, the first animated Star Wars series with a villain protagonist, aims to break Disney+ traditions.
+---------
+
 # The PlayStation 5 Officially Reaches The End Of An Era Today
 
 Gaming, PlayStation 5, PC
