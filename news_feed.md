@@ -1,3 +1,14 @@
+# 'XO, Kitty' Season 3 Review: Netflix's Romance Spin-off Is Still Making the Same Mistakes
+
+TV Reviews, XO, Kitty, Anna Cathcart, Netflix, To All the Boys I've Loved Before
+
+Thu, 02 Apr 2026 07:01:14 GMT
+
+https://collider.com/xo-kitty-season-3-review-netflix/
+
+XO, Kitty Season 3 boasts a strong coming-of-age storyline and character development, but ultimately fails to maintain last season's momentum.
+---------
+
 # PlayStation Plus Makes Iconic Trilogy Free For Subscribers
 
 Gaming, PlayStation Plus, Tomb Raider 1-3 Remastered Starring Lara Croft, Triple-A Games
