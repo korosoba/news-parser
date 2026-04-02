@@ -1,3 +1,234 @@
+# Elden Ring Officially Getting New DLC On All Platforms
+
+Gaming, Elden Ring, PC
+
+Thu, 02 Apr 2026 12:50:23 GMT
+
+https://screenrant.com/elden-ring-2026-dlc-official-new-content/
+
+Elden Ring players may have thought new content was out of the question after the massive Shadow of the Erdtree expansion, but DLC's still on the way.
+---------
+
+# Assassin's Creed Officially Returns April 7 With Major Release
+
+Gaming, Assassin's Creed
+
+Thu, 02 Apr 2026 12:44:23 GMT
+
+https://screenrant.com/assassins-creed-shadows-ps5-pro-update-april-2026/
+
+If you've been waiting for something new in the world of Assassin's Creed, then you'll want to mark your calendar for a major release on April 7.
+---------
+
+# Superman's First Villain Ultra-Humanite Returns to DC Lore
+
+Comics, Superman, Green Lantern
+
+Thu, 02 Apr 2026 12:30:20 GMT
+
+https://screenrant.com/jsa-ultra-humanite-superman-first-villain-green-lantern/
+
+The OG Superman antagonist is back, but who's he fighting this time?
+---------
+
+# Vance’s NCIS Replacement Forces Timothy McGee To Leave MCRT
+
+Network TV, NCIS
+
+Thu, 02 Apr 2026 12:27:18 GMT
+
+https://screenrant.com/ncis-vance-replacement-mcgee-leave-force/
+
+Timothy McGee will have to eventually leave MCRT after more than 2 decades once NCIS officially confirms its undisputed Leon Vance replacement.
+---------
+
+# Nintendo Switch 2 Price Increase Has Gamers Holding Onto Their Wallets
+
+Gaming, Nintendo Switch 2
+
+Thu, 02 Apr 2026 12:19:12 GMT
+
+https://screenrant.com/nintendo-switch-2-price-increase-predictions/
+
+After the PlayStation 5's price increase, it looks like the Nintendo Switch 2 is getting a price hike too, and people are split over when to buy one.
+---------
+
+# The Witcher 3 2026 DLC Release Date Leak Points To Stealth Drop
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher
+
+Thu, 02 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/witcher-3-2026-dlc-may-release-date-stealth-drop-leak/
+
+The Witcher 3's rumoured DLC is far closer than we imagined. Does that mean a stealth drop is on the cards?
+---------
+
+# XO, Kitty Season 4 Explained: Confirmation, Cast, & Everything We Know
+
+Streaming TV, XO, Kitty
+
+Thu, 02 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/xo-kitty-season-4-explained/
+
+News on the potential renewal, cast, and story details for XO, Kitty season 4, including filming updates and potential stories, based on season 3.
+---------
+
+# The Fantastic Four's First Costume Change Is Still a Hit 43 Years Later
+
+Comics, Fantastic Four
+
+Thu, 02 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/fantastic-four-best-costumes-1980s-john-byrne/
+
+The Fantastic Four's iconic MCU look would never have happened if it weren't for Marvel sticking with the team's early '80s costume upgrade.
+---------
+
+# High Potential’s Karadec Chooses Between Morgan & Lucia In Season 2 Finale Trailer
+
+Network TV, High Potential
+
+Thu, 02 Apr 2026 11:45:18 GMT
+
+https://screenrant.com/high-potential-season-2-episode-18-trailer/
+
+ABC has released the official trailer for High Potential season 2 finale, which sees Karadec being forced to choose between Morgan and Lucia.
+---------
+
+# The Legend of Zelda's Sequel Gets A Closer Look At The Game's History and Lore
+
+Comics, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
+
+Thu, 02 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/dark-horse-legend-of-zelda-tears-of-the-kingdom-secrets-of-the-zonai-release-date-confirmed/
+
+Dark Horse Comics is giving The Legend of Zelda fans the chance to take a deep-dive into one of the most beloved games in the entire franchise.
+---------
+
+# 21 Years Later, This Near-Perfect Medical Drama Still Feels Like a Late-Night Favorite
+
+TV Features, Grey's Anatomy, Ellen Pompeo, Hulu, ABC
+
+Thu, 02 Apr 2026 12:39:13 GMT
+
+https://collider.com/abc-medical-drama-greys-anatomy-late-night-favorite/
+
+22 seasons in, ABC’s Grey’s Anatomy continues to be one of the most beloved medical dramas on TV.
+---------
+
+# 15 Animated Movies as Good as 'KPop Demon Hunters'
+
+Movie, Animation, KPop Demon Hunters, Spider-Man: Into The Spider-Verse, The Wild Robot
+
+Thu, 02 Apr 2026 12:32:12 GMT
+
+https://collider.com/animated-movies-as-good-as-kpop-demon-hunters/
+
+The Wild Robot, Spider-Man: Into the Spider-Verse, The Incredibles, and more make up our list of animated movies as good as KPop Demon Hunters.
+---------
+
+# 30 Years Later, the Greatest Horror Saga Ever Told Is Officially Dominating Streaming Again
+
+Movie Features, Scream, Wes Craven, Neve Campbell, Kevin Williamson
+
+Thu, 02 Apr 2026 12:17:12 GMT
+
+https://collider.com/scream-best-horror-franchise-streaming-on-tubi/
+
+After the release of Scream 7, the franchise has reached great heights on streaming.
+---------
+
+# 10 Most Perfect Fleetwood Mac Songs, Ranked
+
+Music Features, Music, Fleetwood Mac, Stevie Nicks, Fleetwood Mac: Don't Stop
+
+Thu, 02 Apr 2026 12:08:12 GMT
+
+https://collider.com/perfect-fleetwood-mac-songs-ranked/
+
+Fleetwood Mac wrote many iconic songs together, with some of the legendary band's most perfect ones being "Gypsy," "Tusk," and "Go Your Own Way."
+---------
+
+# 11 Years Later, the ‘Community’ Movie Finally Gets an Encouraging Update
+
+Movie News, Donald Glover, Community, The Super Mario Galaxy Movie
+
+Thu, 02 Apr 2026 12:00:13 GMT
+
+https://collider.com/community-movie-sitcom-revival-update-donald-glover/
+
+Fans have waited a decade for the Community movie, but Donald Glover says the project is still happening in an encouraging update.
+---------
+
+# Steven Spielberg's 13-Part Sci-Fi Horror Series Is So Good, You'll Finish It in One Weekend
+
+TV Features, The Whispers, Steven Spielberg, Sci-Fi, Horror
+
+Thu, 02 Apr 2026 11:58:13 GMT
+
+https://collider.com/the-whispers-steven-spielberg-sci-fi-horror-weekend-binge/
+
+Steven Spielberg's haunting sci-fi series The Whispers might've been overlooked, but it's sure to be your next weekend obsession.
+---------
+
+# Netflix’s $60M 7-Part Sleeper Hit Quietly Proves You Don’t Need a Massive Budget To Win TV
+
+TV Features, Virgin River, Netflix, Streaming, Drama
+
+Thu, 02 Apr 2026 11:46:12 GMT
+
+https://collider.com/netflix-virgin-river-sleeper-hit-low-budget-success/
+
+Why Virgin River became Netflix’s longest-running drama—and how its low-key approach beats big-budget streaming hits.
+---------
+
+# 6 Near-Perfect Drama Movies That No One Remembers Today
+
+Movie, The Ascent, Get on the Bus, Leave No Trace, Drama
+
+Thu, 02 Apr 2026 11:43:12 GMT
+
+https://collider.com/near-perfect-drama-movies-no-one-remembers/
+
+From Margaret to Leave No Trace, these outstanding drama films are almost flawless in execution but sadly remain ignored by most mainstream audiences.
+---------
+
+# 'The Mummy's Lee Cronin Reveals Movie's Surprising 'Fast & Furious' Link
+
+Movie News, Lee Cronin's The Mummy, Fast and Furious, Horror, Lee Cronin
+
+Thu, 02 Apr 2026 12:45:07 GMT
+
+https://movieweb.com/lee-cronin-the-mummy-fast-and-furious-comparison/
+
+'The Mummy' director Lee Cronin has drawn a surprising comparison between his horror reimagining and the 'Fast & Furious' franchise.
+---------
+
+# Sean Connery's Unofficial James Bond Sequel 'The Rock' is Streaming for Free on Tubi
+
+Movie News, The Rock, Tubi, Coming/Leaving Streaming, Action, James Bond
+
+Thu, 02 Apr 2026 12:00:19 GMT
+
+https://movieweb.com/the-rock-james-bond-sequel-streaming-free-tubi-april-2026/
+
+Before the new James Bond is announced, stream the best (unofficial) James Bond sequel, 'The Rock,' for free on Tubi.
+---------
+
+# HBO’s 'Dark Materials' Is a Perfect Book Adaptation for 'Harry Potter' Fans
+
+TV Shows, Harry Potter, His Dark Materials, HBO Max
+
+Thu, 02 Apr 2026 12:00:19 GMT
+
+https://movieweb.com/his-dark-materials-better-than-harry-potter/
+
+'His Dark Materials' is a three-season fantasy epic series on HBO adapted from the novel series by Philip Pullman and starring Dafne Keen.
+---------
+
 # PlayStation Drops Free 138-Hour RPG You Don't Need PS Plus For
 
 Gaming, PlayStation 5, PlayStation Plus
