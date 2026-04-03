@@ -1,3 +1,201 @@
+# Akane-Banashi Series Premiere Review
+
+Anime, Akane-banashi, Shonen Jump
+
+Fri, 03 Apr 2026 15:32:23 GMT
+
+https://screenrant.com/akane-banashi-best-shonen-jump-anime-2026/
+
+One of the best anime of 2026 is finally here.
+---------
+
+# Atom Eve's Power Level Confirmed By Invincible Season 4
+
+Streaming TV, Invincible
+
+Fri, 03 Apr 2026 15:31:20 GMT
+
+https://screenrant.com/nvincible-season-4-atom-eve-power-level/
+
+Atom Eve has quietly been one of Invincible's strongest characters throughout the seasons, but the show just confirmed how powerful she truly is.
+---------
+
+# Maul Is "A Devil" On New Star Wars Character's Shoulder, Tease 2026 Show Creators
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Fri, 03 Apr 2026 15:21:18 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-new-villain/
+
+EXCLUSIVE: The producers of the upcoming Star Wars series Maul – Shadow Lord open up about a brand-new character who’s been lured in by Darth Maul.
+---------
+
+# Upcoming Dungeon Crawler Carl Adaptation Sets Up The Next Fantasy Streaming War
+
+Streaming TV, Peacock
+
+Fri, 03 Apr 2026 15:15:19 GMT
+
+https://screenrant.com/sci-fi-fantasy-dungeon-crawler-carl-show-streaming-war/
+
+An exciting adaptation of a popular sci-fi book series is adding a new player to the fantasy streaming war, and it has big chances of succeeding.
+---------
+
+# This Free Harry Potter RPG Will Keep You Busy Till Hogwarts Legacy 2
+
+Gaming, Hogwarts Legacy
+
+Fri, 03 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/harry-potter-free-rpg-hogwarts-legacy-2/
+
+Harry Potter: Hogwarts Mystery is a free-to-play mobile game that's surprisingly deep, bear in mind the platform its on.
+---------
+
+# The Chosen Season 6 Officially Sets Release Date On Prime Video
+
+TV, The Chosen, Prime Video
+
+Fri, 03 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/the-chosen-season-6-release-date-prime-video/
+
+The Chosen season 6 has a confirmed release date on Prime Video, while also offering an intense teaser image for the religious drama's return.
+---------
+
+# Euphoria Season 3 Trailer Confirms The Show's Identity Has Been Lost
+
+Streaming TV, Euphoria
+
+Fri, 03 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/euphoria-season-3-identity-lost/
+
+Euphoria's season 3 trailer teases a five-year time jump, darker tone, major cast changes, and a clear shift from its original identity.
+---------
+
+# John Wick: Ballerina's Streaming Success Despite Box Office Flop
+
+Movies, From the World of John Wick: Ballerina, Streaming Charts
+
+Fri, 03 Apr 2026 14:55:19 GMT
+
+https://screenrant.com/ballerina-john-wick-underrated-streaming-success/
+
+From the World of John Wick: Ballerina is a fantastic action movie that flopped at the box office but is finding new life as a hit on HBO Max.
+---------
+
+# Reacher's Days Of Being A "Dad Show" Are Numbered
+
+Streaming TV, Reacher
+
+Fri, 03 Apr 2026 14:45:18 GMT
+
+https://screenrant.com/reacher-dad-show-no-longer-neagley/
+
+Reacher could be described as a "dad show" with its gruff, male protagonist, but the series' spinoff, Neagley, might change that designation.
+---------
+
+# Japan Reveals the Top 5 Anime of 2026 in Official Streaming Rankings
+
+Anime, Jujutsu Kaisen, Frieren: Beyond Journey's End, The Apothecary Diaries, Oshi No Ko
+
+Fri, 03 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/top-anime-teenagers-2026-streaming-ranking-abema/
+
+The most popular anime in Japan among teenagers for 2026 are a mix of modern hits and old, unexpected classics.
+---------
+
+# Crunchyroll’s Next Psychological Hit Series Is The Perfect Escape for Chronically Online Fans
+
+Anime, Crunchyroll, Video Games
+
+Fri, 03 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/needy-girl-overdose-new-crunchyroll-psychological-anime/
+
+Needy Girl Overdose's anime adaptation is airing on Crunchyroll on April 5, promising psychological horror and a twisted look at internet culture.
+---------
+
+# Avatar 3 Becomes an Instant PVOD Hit on Amazon's Global Charts
+
+Movies, Avatar: Fire and Ash, Amazon.com, Sci-Fi
+
+Fri, 03 Apr 2026 15:13:12 GMT
+
+https://www.cbr.com/avatar-fire-and-ash-sci-fi-pvod-streaming-success-amazon-april-2026/
+
+The latest entry in Disney's multi-billion-dollar franchise is officially one of the biggest movies on PVOD after just two days.
+---------
+
+# The 7 Best Pokémon Spin-Off Games Of The 2000s
+
+Games, Pokemon, Pokemon TCG, Nintendo
+
+Fri, 03 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/best-pokemon-spin-off-games-2000s/
+
+Pokémon was born in the 1990s, but the franchise expanded in fun and important ways during the following decade.
+---------
+
+# 'The Pitt's Best Guest Star Hunts 'The Yeti' in 2026's Abominable Creature Feature
+
+Movie Reviews, William Sadler, Corbin Bernsen, The Yeti, Horror
+
+Fri, 03 Apr 2026 15:23:09 GMT
+
+https://collider.com/the-yeti-horror-movie-review-brittany-allen/
+
+Maybe think twice before you try to hunt The Yeti.
+---------
+
+# ‘Magic: The Gathering’ Builds Buzz for New Release With First ‘Strixhaven’ Card Reveals [Exclusive]
+
+Gaming News, Magic: The Gathering, Games, Gaming, Exclusive Media
+
+Fri, 03 Apr 2026 15:02:09 GMT
+
+https://collider.com/magic-the-gathering-secrets-of-strixhaven-card-preview-first-look-images/
+
+Discover the spellcasting at the heart of Strixhaven in new Magic: The Gathering cards, showcasing strategy, mastery, and the power of knowledge.
+---------
+
+# ‘The Chosen’ Season 6 Officially Gets Theatrical Finale Release Plan
+
+TV News, The Chosen, Dallas Jenkins, Prime Video, The Chosen: Season 4
+
+Fri, 03 Apr 2026 15:00:12 GMT
+
+https://collider.com/the-chosen-season-6-prime-video-release-date-november-2026/
+
+The Chosen Season 6 premieres on Prime Video on November 15, with the finale heading to theaters in spring 2027.
+---------
+
+# HBO's 'Shrinking' Replacement Brings Back Steve Carell’s Classic ‘Office’ Energy in New Sneak Peek [Exclusive]
+
+Exclusives, Rooster, Steve Carell, HBO
+
+Fri, 03 Apr 2026 15:00:12 GMT
+
+https://collider.com/rooster-episode-5-sneak-peek-steve-carell-hbo/
+
+A new sneak peek at HBO's new hit comedy, Rooster, shows Steve Carell hearkening back to his days as Michael Scott in an awkward, hilarious exchange.
+---------
+
+# 'Dexter: Resurrection' Season 2's New York Ripper Casting Announcement Is Quietly a Huge Spoiler
+
+Features, Dexter: Resurrection, Dexter
+
+Fri, 03 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-new-york-ripper-spoiler/
+
+It's already been announced who's going to be playing the New York Ripper in 'Dexter: Resurrection' Season 2. Spoilers, much?
+---------
+
 # 9 Most Expensive Classic Rock Albums Ever Recorded
 
 Music, Classic Rock, Rock, The Beatles, Fleetwood Mac, Pink Floyd
