@@ -1,3 +1,245 @@
+# Netflix's 4-Part Jurassic Park Series With Steven Spielberg Is The Perfect Weekend Binge
+
+TV, Netflix, Jurassic World: Chaos Theory, Jurassic Park
+
+Fri, 03 Apr 2026 17:21:19 GMT
+
+https://screenrant.com/jurassic-world-chaos-theory-netflix-series-weekend-binge/
+
+Steven Spielberg's latest Jurassic Park series on Netflix is one of the franchise's best releases to date, and it makes for an intense weekend binge.
+---------
+
+# The Boys Presents: Diabolical: Binge-Worthy Animated Anthology On Prime Video
+
+Streaming TV, The Boys Presents: Diabolical
+
+Fri, 03 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/prime-video-the-boys-diabolical-spinoff-series-weekend-binge/
+
+The Boys spinoff on Prime Video, The Boys Presents: Diabolical, is an eight-episode animated anthology that you can watch in one night.
+---------
+
+# Mel & Becca's Family Breakdown In The Pitt Season 2 Explained By Taylor Dearden
+
+TV, The Pitt, The Pitt - Season 2, Taylor Dearden
+
+Fri, 03 Apr 2026 17:09:27 GMT
+
+https://screenrant.com/the-pitt-season-2-mel-becca-family-breakdown-taylor-dearden/
+
+Exclusive: Taylor Dearden explains Mel and Becca's family breakdown in The Pitt season 2 and what it means for both characters' futures.
+---------
+
+# Jujutsu Kaisen's Gojo and Nobara Return In First Official Art After Season 3's End
+
+Anime, Jujutsu Kaisen
+
+Fri, 03 Apr 2026 17:00:25 GMT
+
+https://screenrant.com/jujutsu-kaisen-gojo-nobara-return-new-poster-season-3-end/
+
+As anticipation builds for Jujutsu Kaisen Season 4, a new release offers the first official artwork since Season 3, featuring Gojo and Nobara.
+---------
+
+# Asa Butterfield Makes A Bizarre Sales Pitch In Our Hero, Balthazar Clip
+
+Exclusive, Our Hero, Balthazar, Jaeden Martell, Asa Butterfield
+
+Fri, 03 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/video/our-hero-balthazar-asa-butterfield-jaeden-martell-clip/
+
+Exclusive: ScreenRant presents an clip from Our Hero, Balthazar, a dark comedy about Jaeden Martell & Asa Butterfield forming an odd friendship.
+---------
+
+# Bob Odenkirk's Dramatic Breakout Post-Breaking Bad: Better Call Saul's Jimmy McGill
+
+Classic TV, Breaking Bad, Better Call Saul
+
+Fri, 03 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/bob-odenkirk-better-call-saul-jimmy-mcgill-better-character/
+
+Bob Odenkirk introduced us to his dramatic skills as Saul Goodman in Breaking Bad, but his subsequent role as Jimmy McGill went a lot deeper.
+---------
+
+# Prime's New Action Movie About Ballerinas Is Wild In The Best Possible Way
+
+Movies, Pretty Lethal, Prime Video, Recommendation
+
+Fri, 03 Apr 2026 16:57:19 GMT
+
+https://screenrant.com/pretty-lethal-prime-video-good-wild-action-movie/
+
+Amazon Prime Video just released a unique action movie that focuses on ballerinas banding together to kick butt and it's over-the-top in the best way.
+---------
+
+# Viggo Mortensen's Aragorn Replacement In LOTR: The Hunt for Gollum Seemingly Confirmed By Elijah Wood
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Fri, 03 Apr 2026 16:47:23 GMT
+
+https://screenrant.com/lotr-hunt-for-gollum-leo-woodall-aragorn-replacement-elijah-wood/
+
+Lord of the Rings: Hunt for Gollum is already causing a stir amongst fans, including the potential recasting for Aragorn, after Elijah Wood's tease.
+---------
+
+# NCIS Star Teases Future Return After Their Shocking 500th Episode Death
+
+TV, NCIS
+
+Fri, 03 Apr 2026 16:42:33 GMT
+
+https://screenrant.com/ncis-vance-future-return-rocky-carroll-response/
+
+NCIS could be reuniting with one of its stars after a shocking death in the series' 500th episode, and how the character could return is debatable.
+---------
+
+# Sam Witwer Says Darth Maul's "Best Line Ever" Is Coming In New Star Wars Series
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars, Sam Witwer
+
+Fri, 03 Apr 2026 16:41:54 GMT
+
+https://screenrant.com/sam-witwer-star-wars-maul-shadow-lord-best-line/
+
+EXCLUSIVE: Star Wars’ Darth Maul has delivered some very memorable lines over the years, and Sam Witwer teases that the best is yet to come.
+---------
+
+# Nobody Remembers These SNES Games But They Were Near Perfect
+
+Games, Nintendo
+
+Fri, 03 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/near-perfect-snes-games-you-dont-remember/
+
+Only the biggest SNES fans know exactly how incredible games like Metal Warriors and Lufia II are.
+---------
+
+# Disney’s $177M Sci-Fi Crossover Breaks Into HBO Max’s Top 10 22 Years Later
+
+Movies, Alien vs. Predator, HBO Max
+
+Fri, 03 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/alien-vs-predator-sci-fi-crossover-hbo-max-success-april-2026/
+
+HBO Max subscribers cannot stop watching an epic sci-fi crossover from Disney's 20th Century Studios.
+---------
+
+# Fire Force's 10/10 Ending Is the New Blueprint For Shonen Anime Finales
+
+Anime, Fire Force
+
+Fri, 03 Apr 2026 16:45:12 GMT
+
+https://www.cbr.com/fire-force-season-3-finale-best-shonen-anime-ending/
+
+The final moments of this 3-season masterpiece show exactly how to end a long-running shonen narrative the right way.
+---------
+
+# Amanda Peet Breaks Down Mal’s Chaos in Your Friends and Neighbors Season 2
+
+TV, Your Friends and Neighbors
+
+Fri, 03 Apr 2026 16:37:31 GMT
+
+https://www.cbr.com/video/amanda-peet-breaks-down-mal-s-chaos-in-your-friends-and-neighbors-season-2/
+
+Amanda Peet reveals Mal’s wild Season 2 arc in Your Friends and Neighbors.This time, the calm, collected therapist is anything but stable.Amanda Peet talks about pushing Mal into darker, messier territory in Season 2 of Your Friends and Neighbors. From losing her job to unleashing long-buried frustration, Mal’s journey takes a sharp turn. Peet shares how she connects personally to the character, why the breakdown feels earned, and how subtle details—from drinks to creative ambitions—help define her. If you're following Mal’s evolution or love deep TV character arcs, this interview delivers key insights and future teases.
+---------
+
+# Elden Ring Officially Confirms New DLC in 2026
+
+Games, Elden Ring
+
+Fri, 03 Apr 2026 16:33:48 GMT
+
+https://www.cbr.com/elden-ring-new-dlc-2026/
+
+New DLC is coming this year for Elden Ring amid the continued wait for a sequel announcement.
+---------
+
+# Prime Video's New Spider-Man Show Quietly Confirms Its Genre
+
+TV News, Nicolas Cage, Spider-Noir, Spider-Man Into the Spider-Verse, Prime Video
+
+Fri, 03 Apr 2026 17:17:45 GMT
+
+https://collider.com/prime-video-nicolas-cage-spider-noir-series-comedy-genre/
+
+Prime Video's Spider-Noir, starring Nicolas Cage, has seemingly had its surprising genre revealed by the streaming giant.
+---------
+
+# Netflix’s ‘Peaky Blinders’ Sequel Series Gets a Stunning New Look
+
+TV News, Peaky Blinders, Peaky Blinders: The Immortal Man, Cillian Murphy, Lashana Lynch
+
+Fri, 03 Apr 2026 17:07:32 GMT
+
+https://collider.com/peaky-blinders-sequel-series-set-images-lashana-lynch/
+
+Netflix's Peaky Blinders sequel series begins production in new set photos featuring James Bond star Lashana Lynch.
+---------
+
+# New Sci-Fi Sneak Peek Reveals Peacock’s Most Unique Series Yet [Exclusive]
+
+Exclusives, The Miniature Wife, Matthew Macfadyen, Peacock, Elizabeth Banks
+
+Fri, 03 Apr 2026 17:00:13 GMT
+
+https://collider.com/the-miniature-wife-sneak-peek-matthew-macfadyen-ronny-chieng/
+
+Matthew Macfadyen shows off his mind-blowing scientific invention in a new The Miniature Wife sneak peek. Watch it here before it arrives on Peacock.
+---------
+
+# Dave Filoni Wanted Star Wars' New Series to Be a "Pulpy Noir" [Exclusive]
+
+TV News, Star Wars: Maul - Shadow Lord, Dave Filoni, Star Wars, Animation
+
+Fri, 03 Apr 2026 17:00:13 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-pulpy-noir-serialized-tv-show-dave-filoni/
+
+Discover the pulpy noir-inspired world of Maul: Shadow Lord, the latest Star Wars animated series, premiering on Disney+ this month.
+---------
+
+# Donald Glover Confirms 'Community' Movie Is Still in the Works
+
+Movie News, Community, Donald Glover
+
+Fri, 03 Apr 2026 17:19:59 GMT
+
+https://movieweb.com/donald-glover-update-community-movie/
+
+Production delays aren't his fault, he promises.
+---------
+
+# Alan Ritchson 'Smallville' Spin-off Fell Apart, But Ultimately Saved His Career
+
+Features, Alan Ritchson, Smallville, Reacher, Career Arc Reframe
+
+Fri, 03 Apr 2026 17:01:17 GMT
+
+https://movieweb.com/alan-ritchson-smallville-spin-off-saved-career/
+
+Alan Ritchson almost reprised his role as Aquaman in a Smallville spin-off. But missing out was the best thing for him.
+---------
+
+# The Best Korean Legal Dramas, Ranked
+
+TV Lists, K-Drama
+
+Fri, 03 Apr 2026 17:01:17 GMT
+
+https://movieweb.com/best-korean-legal-dramas-ranked/
+
+These legal dramas combine with different genres to bring out thrilling stories. Some can be dark, while some can be comical.
+---------
+
 # How Bad Sisters Season 2 Transformed The Apple TV Comedy Series
 
 Classic TV, Bad Sisters
