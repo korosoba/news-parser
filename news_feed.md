@@ -1,3 +1,113 @@
+# Cillian Murphy's 6-Part Crime Thriller Series Rewrote The Rules Of Historical Dramas
+
+TV, Peaky Blinders
+
+Fri, 03 Apr 2026 22:10:19 GMT
+
+https://screenrant.com/cillian-murphy-peaky-blinders-rewrote-rules-historical-dramas/
+
+Cillian Murphy's iconic Netflix hit took an innovative approach to historical dramas, and this daring move set a new standard for the genre.
+---------
+
+# Baldur's Gate 3: 12 Best Armor Pieces For Sorcerers
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Fri, 03 Apr 2026 22:00:21 GMT
+
+https://screenrant.com/baldurs-gate-3-best-armor-pieces-sorcerers/
+
+Sorcerers in Baldur's Gate 3 should be on the lookout for gear that helps them stay in the battle, as they can be quite squishy.
+---------
+
+# Marvel Finally Has A Project To Rival Star Wars' Most Political And Best Series
+
+TV, Andor, Daredevil: Born Again, Marvel Cinematic Universe, Star Wars
+
+Fri, 03 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-andor-political-commentary-parallels/
+
+Daredevil: Born Again season 2 makes it clear that the new MCU show is Marvel's answer to one of Star Wars' best and most political shows.
+---------
+
+# Captain America's New Appearance Reveals Hidden History with the Eternals
+
+Comics, Captain America, Eternals, Marvel
+
+Fri, 03 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/captain-america-eternals-ikaris-backstory/
+
+In a surprising twist, Captain America's newest appearance reveals that his past is connected with Marvel's Eternals in a way no one saw coming.
+---------
+
+# How Darth Maul Is Different In Star Wars’ New Series Compared To Past Appearances Explained By Returning Star
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars, Sam Witwer
+
+Fri, 03 Apr 2026 21:55:46 GMT
+
+https://screenrant.com/darth-maul-shadow-lord-star-wars-appearances-comparison-sam-witwer/
+
+EXCLUSIVE: A new Star Wars series will show Darth Maul at a different point in his life, according to the actor who has voiced the villain for years.
+---------
+
+# Crunchyroll’s Best Drama Series Prove That The Fantasy Genre Is Overrated in 2026
+
+Anime, Crunchyroll, Blue Box
+
+Fri, 03 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/crunchyroll-awards-best-drama-series-overrated-fantasy-genre/
+
+The 10th Crunchyroll Anime Awards feature many nominations for grounded drama, which seems at odds with 2026's current fascination with high fantasy.
+---------
+
+# Every Super Mario Animated Series, Ranked
+
+TV, Nintendo, super mario bros, The Super Mario Bros. Super Show!, Super Mario World
+
+Fri, 03 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/every-super-mario-cartoon-ranked-list/
+
+From live-action segments to bizarre adaptations, explore the forgotten history of the beloved plumber brothers' few animated adventures.
+---------
+
+# Ridley Scott Names His Own Sci-Fi Masterpiece As His Favorite Film of All Time, and I Can't Disagree
+
+Movie Features, Blade Runner, Ridley Scott, Harrison Ford, Sci-Fi
+
+Fri, 03 Apr 2026 22:01:56 GMT
+
+https://collider.com/ridley-scott-blade-runner-personal-favorite-movie/
+
+Ridley Scott has chosen his cut of Blade Runner starring Harrison Ford as one of his four favorite films ever, and honestly, can anyone blame him?
+---------
+
+# 85 Years Later, This American Classic Is Even More Relevant in 2026
+
+Movie Features, Citizen Kane, Orson Welles, Classics, Drama
+
+Fri, 03 Apr 2026 22:00:12 GMT
+
+https://collider.com/citizen-kane-american-classic-even-more-relevant-2026/
+
+Orson Welles' 1941 masterpiece Citizen Kane is even more powerful when you watch now given the way it predicted the future.
+---------
+
+# Steven Spielberg's 'War of the Worlds': A Rare Great Sci-Fi Action Remake
+
+Features, Steven Spielberg, Sci-Fi, War of The Worlds
+
+Fri, 03 Apr 2026 22:01:17 GMT
+
+https://movieweb.com/steven-spielberg-sci-fi-action-war-of-the-worlds/
+
+Steven Spielberg's 2005 remake of 'War of the Worlds' still hasn't been topped, despite it often being called divisive.
+---------
+
 # Cyberpunk: Edgerunners Revives Video Game Franchise with Perfect Anime Adaptation
 
 Streaming TV, Cyberpunk: Edgerunners
