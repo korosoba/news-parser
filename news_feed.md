@@ -1,3 +1,245 @@
+# The Last Of Us Fans Heartbroken Over Canceled Game
+
+Gaming, The Last of Us, The Last of Us: Part 1, PC
+
+Fri, 03 Apr 2026 12:44:08 GMT
+
+https://screenrant.com/last-of-us-cancelled-game-fan-reaction/
+
+The Last of Us fans got some heartbreaking and surprising news recently about a nearly complete game that was canceled in the 11th hour.
+---------
+
+# Pokémon's First New Type Since 2013 Has Gamers Concerned
+
+Gaming, Pokemon Pokopia, Pokemon Winds and Waves, Pokemon
+
+Fri, 03 Apr 2026 12:30:17 GMT
+
+https://screenrant.com/pokemon-new-sound-type-gen-10-speculation/
+
+Pokopia could have given us our first hint at a new type, but fans aren't convinced it's a good idea for Pokémon.
+---------
+
+# Charlie Cox's Daredevil: Born Again Season 3 Look Teases A Major Storyline
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Fri, 03 Apr 2026 12:30:17 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-charlie-cox-devil-in-cell-block-d-evidence/
+
+One of Daredevil: Born Again season 3's major storylines appears to be coming into focus, and Charlie Cox's look during filming is a big reason why.
+---------
+
+# How Kimiko Speaking In The Boys Season 5 Changed Karen Fukuhara's Character
+
+TV, The Boys, The Boys - Season 5
+
+Fri, 03 Apr 2026 12:30:17 GMT
+
+https://screenrant.com/the-boys-season-5-kimiko-speaking-changes-karen-fukuhara/
+
+EXCLUSIVE: With Kimiko now speaking in The Boys season 5, Karen Fukuhara explains what it means for her fan-favorite character moving forward.
+---------
+
+# Scarlett Johansson’s $469M Sci-Fi Thriller Is Officially A Netflix Streaming Sensation After Becoming Massive Sleeper Hit
+
+Movies, Netflix, Lucy
+
+Fri, 03 Apr 2026 12:09:59 GMT
+
+https://screenrant.com/scarlett-johansson-lucy-netflix-streaming-success-april-2026/
+
+Scarlett Johansson's hit Sci-Fi thriller just released on Netflix after making 11x its budget, and the movie is already a massive streaming success.
+---------
+
+# Hogwarts Legacy 2 Online Mode Isn't Going Down Well With Everyone
+
+Gaming, Hogwarts Legacy, Warner Bros., Harry Potter
+
+Fri, 03 Apr 2026 12:07:33 GMT
+
+https://screenrant.com/hogwarts-legacy-2-online-mode-leaks/
+
+Avalanche Studios executive producer Travis Day confirms a new project within the Hogwarts Legacy franchise, hinting at an online RPG mode.
+---------
+
+# Zelda Unveils Official New 40th Anniversary Release Arriving This Month
+
+Gaming, The Legend of Zelda, PC
+
+Fri, 03 Apr 2026 12:07:10 GMT
+
+https://screenrant.com/legend-of-zelda-april-2026-40th-anniversary-release/
+
+The Legend of Zelda officially turned 40 years old this year, and to celebrate, fans can claim a brand-new anniversary release later this month.
+---------
+
+# The Last Of Us Studio Has A Lot More In The Works Than Intergalactic, Report Suggests
+
+Gaming, Naughty Dog, The Last of Us, Intergalactic: The Heretic Prophet, Triple-A Games, PC
+
+Fri, 03 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/naughty-dog-last-of-us-leaks-releases/
+
+It has been almost six years since Naughty Dog released The Last of Us Part 2, but Intergalactic is on the way... and maybe another game or two.
+---------
+
+# X-Men's Rogue Is Officially Marvel's New Sorcerer Supreme
+
+Comics, X-Men
+
+Fri, 03 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/x-men-rogue-sorcerer-supreme-redesign-new-costume/
+
+A major X-Men hero is Marvel's newest Sorcerer Supreme, showcasing just how extreme their powers actually are. But is this mutant the right choice?
+---------
+
+# This 1-Season Fantasy Based On A Bestselling Book Series Is The Perfect Weekend Binge
+
+Streaming TV, The Dresden Files
+
+Fri, 03 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/the-dresden-files-jim-butcher-fantasy-show-watch-free-tubi/
+
+This 12-episode fantasy TV show, which premiered in 2007 and was adapted from a bestselling book series, is the perfect show to binge this weekend.
+---------
+
+# Marvel's Ultimate Impact Replaces Doctor Strange, Wonder Man, and More
+
+Comics, Marvel, Marvel Comics, Ultimate Marvel
+
+Fri, 03 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/marvel-ultimate-impact-reborn-origin-boxes/
+
+Ahead of Armageddon, Marvel Comics' unveils the twisted new versions of four fan-favorite powerhouses who will be making their Ultimate Impact soon.
+---------
+
+# Energon Universe Shows Off M.A.S.K's Return Huge Crossover Event
+
+Comics, M.A.S.K., Skybound Entertainment, Transformers, G.I. Joe
+
+Fri, 03 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/energon-universe-special-2026-mask-reveal/
+
+Skybound Entertainment's Energon Universe 2026 Special is giving fans their best look yet at the cast of M.A.S.K. before their comic book debut.
+---------
+
+# MHA Celebrates 10th Anniversary With Free Streaming Ahead of Final Anime Release
+
+Anime, My Hero Academia, Crunchyroll, Shonen Jump
+
+Fri, 03 Apr 2026 11:59:23 GMT
+
+https://www.cbr.com/mha-free-streaming-final-anime-release/
+
+My Hero Academia is celebrating its 10th anniversary by making its early seasons available to stream for free ahead of its final anime release.
+---------
+
+# 5 Perfect Double Features To Watch With ‘Project Hail Mary'
+
+Movie, Project Hail Mary, The Martian, Interstellar, Arrival
+
+Fri, 03 Apr 2026 12:41:12 GMT
+
+https://collider.com/project-hail-mary-double-features/
+
+From epics like Interstellar to mind-benders such as Arrival, these films make for the best double features with Project Hail Mary.
+---------
+
+# This Fan-Favorite Sci-Fi Is Still a 10/10 Series 17 Years Later
+
+TV Features, Battlestar Galactica, Sci-Fi, Adventure, Katee Sackhoff
+
+Fri, 03 Apr 2026 12:24:12 GMT
+
+https://collider.com/battlestar-galactica-sci-fi-series-still-perfect/
+
+The 4-season sci-fi Battlestar Galactica is one of the best of the genre, and has unfortunately become difficult to find on streaming.
+---------
+
+# This Forgotten 6-Part Sci-Fi Thriller Is the Perfect Free To Stream Fix After ‘Paradise’
+
+TV Features, SyFy, Ascension, Tricia Helfer, Sci-Fi
+
+Fri, 03 Apr 2026 12:08:12 GMT
+
+https://collider.com/ascension-sci-fi-series-replacement-paradise/
+
+Ascension, a SyFy sci-fi miniseries, is a twisty 6-part mystery now free to stream, perfect for fans of Paradise and Severance.
+---------
+
+# HBO Max's Iconic 5-Part Sitcom Returns in Exactly 7 Days
+
+TV News, Hacks, Jean Smart, HBO, HBO Max
+
+Fri, 03 Apr 2026 12:00:12 GMT
+
+https://collider.com/hacks-final-season-5-streaming-release-date-hbo-max-april-9-2026/
+
+After conquering the Emmys over and over again, HBO Max's Hacks is about to return for a fifth and final season.
+---------
+
+# 5 Years Later, Dune Is Officially the Anti-Star Wars
+
+Movie, Dune, Star Wars, Dune: Part Three, Return of the Jedi
+
+Fri, 03 Apr 2026 11:57:12 GMT
+
+https://collider.com/5-years-later-dune-is-officially-the-anti-star-wars/
+
+Dune and Star Wars have always been connected, but Denis Villeneuve’s movies have made it clear just how different these two great sci-fi sagas are.
+---------
+
+# 10 Faith-Based Movies That Are Worth Watching This Easter
+
+Movie, The Passion of the Christ, The Prince of Egypt, Wake Up Dead Man: A Knives Out Mystery, The Ten Commandments
+
+Fri, 03 Apr 2026 11:46:12 GMT
+
+https://collider.com/faith-based-movies-perfect-for-easter/
+
+From the animated masterpiece The Prince of Egypt to the brutal drama The Passion of the Christ, these faith-based movies are perfect for Easter.
+---------
+
+# 7 Great Noir Movies That Marked the End of an Era
+
+Movie, Film Noir, No Country for Old Men, Chinatown, The Long Goodbye
+
+Fri, 03 Apr 2026 11:36:12 GMT
+
+https://collider.com/great-noir-movies-end-of-an-era/
+
+Great film noirs like Kiss Me Deadly and Chinatown put an end to distinct periods in filmmaking history, further cementing their cinematic legacies.
+---------
+
+# Netflix Finds New Action Sci-Fi Hit With Scarlett Johansson R-Rated Thriller
+
+Movie News, Lucy, Coming/Leaving Streaming, Scarlett Johansson, Sci-Fi
+
+Fri, 03 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/lucy-scarlett-johansson-streaming-netflix-april-2026/
+
+Scarlett Johansson's $469 million sci-fi smash that made over 11x its budget has officially hit Netflix, and it's already a streaming success.
+---------
+
+# 'Lioness' Season 3 Cast & Characters - Every New and Returning Actor in Taylor Sheridan's Action Thriller
+
+Features, Lioness
+
+Fri, 03 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/lioness-season-3-cast-characters/
+
+Find out which recurring characters are set to join the new cast members in Season 3 of Taylor Sheridan's Lioness: Special Ops
+---------
+
 # Hogwarts Legacy Getting Controversial Remaster, Gamers Aren't Completely Sold
 
 Gaming, Hogwarts Legacy, Nvidia
