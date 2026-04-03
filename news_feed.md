@@ -1,3 +1,190 @@
+# Cyclops' New Codename Will Outrage His Fans. What Is X-Men Thinking?
+
+Comics, X-Men
+
+Fri, 03 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/x-men-cyclops-redesign-new-costume-hellfire/
+
+Cyclops' new codename in X-Men: The Hellfire Murder stirs controversy, as it carries heavy emotional weight linked to his daughter's darkest trauma.
+---------
+
+# New D&D Subclass Is A Major Free Upgrade
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Fri, 03 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/dnd-new-subclass-titan-druid-free-upgrade/
+
+Dungeons and Dragons just got a brand-new subclass for free that you can use right now, and it’s a major upgrade for a certain type of player.
+---------
+
+# 7 Upcoming HBO Max Shows You Cannot Miss
+
+Streaming TV, HBO Max
+
+Fri, 03 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/upcoming-hbo-max-shows-cannot-miss/
+
+HBO Max is one of the best streaming platforms, with critically acclaimed dramas and comedies with twists, and there are some great upcoming shows.
+---------
+
+# 3 Prime Video Shows With A Perfect Rotten Tomatoes Score You Should Watch This Weekend (#1 Is A 10/10 Hidden Gem)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 03 Apr 2026 22:47:19 GMT
+
+https://screenrant.com/prime-video-shows-perfect-rotten-tomatoes-weekend-watch/
+
+Discover three must-watch Prime Video series with perfect 100% Rotten Tomatoes scores, including a hidden gem crime comedy & a beloved crime thriller.
+---------
+
+# For All Mankind Season 5 "The Hard Six" Recap: A Traitor Is Exposed In Happy Valley
+
+Streaming TV, For All Mankind
+
+Fri, 03 Apr 2026 22:46:19 GMT
+
+https://screenrant.com/for-all-mankind-season-5-episode-2-recap-discussion/
+
+For All Mankind season 5 is heating up, and it's only on the second episode of the season, with shocking reveals, twists, and daring missions.
+---------
+
+# Elden Ring Movie Set Footage Leaks Online
+
+Gaming, Elden Ring, PC
+
+Fri, 03 Apr 2026 22:44:17 GMT
+
+https://screenrant.com/elden-ring-movie-set-leak-2026/
+
+Elden Ring fans can get their first look at the official movie set thanks to recently leaked footage that surfaced online, and it's stunning.
+---------
+
+# The Pitt's Night Shift Spinoff Prospects Teased By Star Shawn Hatosy
+
+TV, The Pitt
+
+Fri, 03 Apr 2026 22:33:41 GMT
+
+https://screenrant.com/the-pitt-night-shift-spinoff-potential-shawn-hatosy/
+
+The Pitt star Shawn Hatosy discusses a potential spinoff of the hit medical drama that follows Pittsburgh Trauma Medical Center's night crew.
+---------
+
+# Netflix's 10-Part Sci-Fi Thriller Series Has One Of Its Best Casts
+
+Classic TV, Maniac, Recommendation, Sci-Fi, Netflix
+
+Fri, 03 Apr 2026 22:32:19 GMT
+
+https://screenrant.com/maniac-netflix-sci-fi-thriller-series-best-cast/
+
+One of the most underrated gems on Netflix isn't just a unique story, it's filled with recognizable faces, including two Hollywood A-Listers.
+---------
+
+# Prime Video's 4-Season Fantasy Franchise Is So Good, You Won't Find A Single Bad Episode
+
+Streaming TV, The Mighty Nein, The Legend of Vox Machina, Fantasy, Amazon Prime Video
+
+Fri, 03 Apr 2026 22:31:19 GMT
+
+https://screenrant.com/legend-of-vox-machina-prime-video-no-bad-episodes/
+
+Amazon's slick and stylish animated masterpiece isn't just a one-off success; it's the start of a fantasy universe where excellence is the standard.
+---------
+
+# 6 Disturbing Miniseries That Push TV to Its Limits
+
+TV, Adolescence, TV Miniseries, When They See Us, Baby Reindeer
+
+Fri, 03 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/disturbing-miniseries-push-tv-further/
+
+These gruesome and disturbing miniseries delve into the darkest corners of human nature, pushing the boundaries of what's acceptable on TV.
+---------
+
+# Nicole Kidman's The Golden Compass Is Streaming for Free
+
+Movies, The Golden Compass
+
+Fri, 03 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/nicole-kidman-golden-compass-free-streaming-tubi-april-2026/
+
+The studio had big plans for the His Dark Materials adaptation - but it ultimately led to its downfall.
+---------
+
+# 7 Best Movies To Watch On Netflix This Weekend (Including Ralph Fiennes' 2026 92% RT Blockbuster)
+
+Movies, 28 Years Later: The Bone Temple, Anaconda, Bohemian Rhapsody
+
+Fri, 03 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/best-netflix-movies-watch-this-weekend-28-years-later/
+
+Netflix offers a wide selection of choices for weekend binges, including 28 Years Later: The Bone Temple
+---------
+
+# Netlix’s Best ‘Ozark’ Alternative Escapes Streaming in 4 Days
+
+TV News, Ozark, The Queen of the South, Netflix, Crime
+
+Fri, 03 Apr 2026 23:00:13 GMT
+
+https://collider.com/netflix-crime-thriller-ozark-replacement-queen-of-the-south-leaving-netflix-april-2026/
+
+Queen of the South leaves Netflix on April 7, giving Ozark fans just a few days left to catch one of the streamer’s best crime thrillers.
+---------
+
+# Netflix's Last DVD It Ever Shipped Out Was This 10/10 Remake of a Western Classic
+
+Movie Features, True Grit, Netflix, The Coen Brothers, Western
+
+Fri, 03 Apr 2026 22:48:12 GMT
+
+https://collider.com/true-grit-2010-coen-brothers-western-remake-netflix-last-dvd/
+
+The last DVD Netflix ever mailed out before Netflix shut down the service was the Coen Brothers' near-perfect Western, True Grit.
+---------
+
+# 10 Crime TV Shows With More Twists Than Most Crime Movies
+
+TV, Crime, The Sopranos, Mr. Robot, Breaking Bad
+
+Fri, 03 Apr 2026 22:45:12 GMT
+
+https://collider.com/crime-shows-more-twists-than-movies/
+
+Explore crime television shows full of plot twists that keep viewers wondering what comes next, including Breaking Bad, The Sopranos, and Mr. Robot.
+---------
+
+# 'Avatar: Fire and Ash' Stars Stephen Lang & Oona Chaplin Talk Bonding Over Volcanoes
+
+Exclusives, Avatar: Fire and Ash, Stephen Lang
+
+Fri, 03 Apr 2026 22:59:30 GMT
+
+https://movieweb.com/avatar-3-stephen-lang-oona-chaplin-connection/
+
+The volcanoes of Hawaii deeply impacted the filming experience for Stephen Lang and Oona Chaplin on James Cameron's 'Avatar: Fire and Ash.'
+---------
+
+# 'Back to the Future' Writer on the Musical, the Documentary, and the Legacy [Exclusive]
+
+Interviews
+
+Fri, 03 Apr 2026 22:44:35 GMT
+
+https://movieweb.com/back-to-the-future-musical-documentary-bob-gale/
+
+Bob Gale dives deep into bringing the sci-fi spectacle to life for the screen and for the stage.
+---------
+
 # Cillian Murphy's 6-Part Crime Thriller Series Rewrote The Rules Of Historical Dramas
 
 TV, Peaky Blinders
