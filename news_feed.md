@@ -1,3 +1,366 @@
+# The Super Mario Galaxy Movie And Artemis II Launched On The Same Day & That's Perfect
+
+Movies, The Super Mario Galaxy Movie
+
+Fri, 03 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-artemis-ii-launch-april-1/
+
+The same-day launch of The Super Mario Galaxy Movie and NASA’s Artemis II created an unexpected but stellar double feature for space enthusiasts.
+---------
+
+# Why Mateo's Change To Night Shift Is Important For The Pitt Season 2 Explained By Jalen Thomas Brooks
+
+TV, The Pitt, The Pitt - Season 2, HBO Max
+
+Fri, 03 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/the-pitt-season-2-mateo-night-shift-change-important-jalen-thomas-brooks/
+
+Jalen Thomas Brooks talks Mateo's long-awaited The Pitt season 2 return and how his change to the night shift is important for the show.
+---------
+
+# A Comic Giant Is Resurrecting One Of The Medium's Oldest Genres, And It Already Looks Incredible
+
+Comics, IDW Publishing
+
+Fri, 03 Apr 2026 01:30:21 GMT
+
+https://screenrant.com/idw-crime-comics-resurrection-genre/
+
+A big return.
+---------
+
+# This 4-Part Sci-Fi Show Changed The Game For Dystopian Dramas
+
+Streaming TV, Snowpiercer
+
+Fri, 03 Apr 2026 01:30:21 GMT
+
+https://screenrant.com/snowpiercer-sci-fi-dystopian-show-watch-free-tubi/
+
+Snowpiercer's ambitious plot and relatively claustrophobic location made the show stand out against other dystopian TV shows and dramas in general.
+---------
+
+# Wonder Man Brings Ziggy Pig Back Into Marvel Lore After 84 Years
+
+Marvel Comics, Wonder Man, Marvel
+
+Fri, 03 Apr 2026 01:18:38 GMT
+
+https://screenrant.com/wonder-man-hero-return-ziggy-pig/
+
+Marvel brings back an unexpected comic book duo from the Golden Age 84 years after their introduction, and only die-hard fans will notice.
+---------
+
+# The Pitt Season 2 Confirms Robby's Successor
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 03 Apr 2026 01:15:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-13-whitaker-robby-successor/
+
+Discover how Whitaker takes on Robby's role as the emotional and spiritual leader at Pittsburgh Trauma Medical Center in The Pitt Season 2, proving PTMC's resilience without Robby.
+---------
+
+# The Pitt Season 2, Episode 13 Recap: Robby & Dana's Fight Escalates
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 03 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-13-ending-explained/
+
+In the latest episode of The Pitt, Robby and Dana's argument intensifies, raising concerns about Robby's mental health and the future of PTMC. Don't miss the key moments and storylines heading into the final episodes of season 2.
+---------
+
+# Supergirl’s New Trailer Teases A Major Krypto Change From The Comics
+
+Superheroes, Supergirl, DC Universe
+
+Fri, 03 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/supergirl-trailer-teasing-krypto-change-from-comics-woman-of-tomorrow/
+
+The new Supergirl trailer looks to be teasing a pretty big change for Krypto the Super Dog compared to the original Woman of Tomorrow source material.
+---------
+
+# Steam's New Free RPG Is Like Hogwarts Legacy Meets Stardew Valley
+
+Gaming, Steam, Indie Games
+
+Fri, 03 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/steam-free-rpg-hogwarts-legacy-meets-stardew-valley/
+
+Both games have sold millions, so it stands to reason that there would be a lot of people out there looking for a mix of the two.
+---------
+
+# Your Friends & Neighbors Season 2 Review: Jon Hamm’s Apple TV Crime Drama Is Flashy, Hollow, And Mostly Meaningless
+
+Streaming TV, Your Friends & Neighbors - Season 2, Apple TV
+
+Fri, 03 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/apple-tv-your-friends-and-neighbors-season-2-review/
+
+Apple TV's Your Friends & Neighbors season 2 is very much like its main characters and subject matter – flashy, hollow, full of itself & meaningless.
+---------
+
+# Marvel Officially Reveals a Brand-New Era for Spider-Man and Venom
+
+Comics, Venom, Spider-Man
+
+Fri, 03 Apr 2026 02:15:47 GMT
+
+https://www.cbr.com/marvel-officially-reveals-brand-new-spider-man-venom/
+
+In a CBR exclusive preview of next week's Web of Venom #1, discover the bold new era for Venom that Marvel is launching
+---------
+
+# HIDIVE's New Dark Anime Petals of Reincarnation Is Exactly What Isekai Needs in 2026
+
+Anime, Isekai, HIDIVE
+
+Fri, 03 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/new-isekai-anime-petals-of-reincarnation-2026/
+
+The Spring 2026 lineup is full of wonderful isekai debuts and returns, but there is one that is darker and grittier, and could steal the show.
+---------
+
+# The Next Series By Inuyasha Creator Rumiko Takahashi Has 1 Major Hurdle Left to Clear
+
+Anime, Inuyasha, Ranma 1/2
+
+Fri, 03 Apr 2026 01:46:10 GMT
+
+https://www.cbr.com/rumiko-takahashi-inuyasha-ranma-new-shonen-anime-mao/
+
+A major shonen anime series is hitting the Spring 2026 lineup, but many North American fans are wondering where they will be able to stream Season 1.
+---------
+
+# 10 Greatest Anime Masterpieces of All Time, Ranked
+
+Anime, Paranoia Agent, Cowboy Bebop
+
+Fri, 03 Apr 2026 01:15:12 GMT
+
+https://www.cbr.com/best-anime-masterpieces-all-time/
+
+Anime is a medium that's constantly pushing boundaries, and these masterpieces showcase the medium at its very best.
+---------
+
+# Your Friends & Neighbors Season 2 Review: Jon Hamm’s Apple TV Drama Gets Darker
+
+TV, Your Friends and Neighbors
+
+Fri, 03 Apr 2026 01:00:28 GMT
+
+https://www.cbr.com/your-friends-and-neighbors-season-2-review/
+
+Your Friends & Neighbors returns for its second season, and this time, Coop has a formidable adversary in James Marsden's scene-stealing Owen Ashe.
+---------
+
+# Who is Spider-Man's Most Powerful Villain?
+
+Lists, Spider-Man, Amazing Spider-Man, Green Goblin, Doctor Octopus, Carnage, kraven the hunter, Venom
+
+Fri, 03 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/spider-man-strongest-villains/
+
+Marvel's Spider-Man is an incredibly powerful character, so it makes sense that his villains are also strong so they can provide a worthy challenge.
+---------
+
+# I'm Your Huckleberry': What Tombstone's Most Quotable Line Actually Means
+
+Movies, Tombstone, Western
+
+Fri, 03 Apr 2026 00:30:13 GMT
+
+https://www.cbr.com/im-your-huckleberry-tombstone-quotable-line-meaning-explained/
+
+Val Kilmer delivered one of the most iconic lines in Tombstone, but for over three decades, there's been a false myth regarding its true meaning.
+---------
+
+# Dandadan Season 3 Is Officially Canceled, But There's a Catch
+
+Anime, Dandadan
+
+Fri, 03 Apr 2026 00:15:12 GMT
+
+https://www.cbr.com/dandadan-chapter-230-amnesia-arc-fan-outrage/
+
+What was once a beloved new-gen manga heralded for subverting genre expectations has become the shonen slop it swore to destroy.
+---------
+
+# Steve Carell's Minions: Rise of Gru is Still the Best in the Franchise
+
+Movies, Minions: The Rise of Gru
+
+Fri, 03 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/steve-carell-rise-of-gru-netflix-streaming-april-2026/
+
+The Despicable Me franchise has so often been overlooked, but one of its spinoffs is still highlights an astonishing achievement for Illumination.
+---------
+
+# Forgotten Cartoon Network Shows With Zero Weak Seasons
+
+TV, Cartoon Network, Animation, Teen Titans, Courage the Cowardly Dog, Foster's Home for Imaginary Friends
+
+Fri, 03 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/forgotten-cartoon-network-series-no-weak-seasons/
+
+The Cartoon Network has made countless great shows, but some are perfect from start to finish.
+---------
+
+# Netflix’s Near-Perfect 8-Part Horror Thriller Hits 28M Hours Watched in Just 1 Week
+
+TV Features, Something Very Bad Is Going to Happen, Netflix, Duffer Brothers, Stranger Things
+
+Fri, 03 Apr 2026 02:12:13 GMT
+
+https://collider.com/netflix-something-very-bad-is-going-to-happen-28m-hours-watched/
+
+Netflix has another horror hit on its hands, as Something Very Bad is Going to Happen hit a record viewership in 1 week.
+---------
+
+# ‘Matlock’ Star Promises Answers “We’ve All Been Waiting For” in Explosive Season 2 Finale
+
+Exclusives, Matlock, Skye P. Marshall, Kathy Bates, Jason Ritter
+
+Fri, 03 Apr 2026 02:00:23 GMT
+
+https://collider.com/matlock-season-2-finale-answers-skye-p-marshall-interview/
+
+Skye P. Marshall discusses Matlock Season 2, the team of Matty, Olympia and Julian, sharing scenes with husband Edwin Hodge, and the finale reveals.
+---------
+
+# 'The Pitt' Just Changed My Mind About the Show's Most Hated Character in 5 Minutes
+
+TV Features, The Pitt, Noah Wyle, HBO Max, HBO
+
+Fri, 03 Apr 2026 01:36:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-13-ogilvie-whitaker-scene/
+
+The most hated character of The Pitt finally gets some much-needed dimension in Season 2's newest episode.
+---------
+
+# Netflix’s New Crime Thriller Becomes a Late-Night Sleeper Hit for Taylor Sheridan Fans
+
+Movie News, Bollywood, Thriller, Sicario, Taylor Sheridan
+
+Fri, 03 Apr 2026 01:30:13 GMT
+
+https://collider.com/mardaani-3-netflix-taylor-sheridan-sicario-replacement-crime-thriller-streaming-success-netflix-april-2026/
+
+A new cop thriller that combines the grittiness of End of Watch and the grim tone of Sicario is taking over the global Netflix viewership charts.
+---------
+
+# 'The Pitt's Latest Break Room Scene Between Mel and Langdon Means More Than You Think
+
+Exclusives, The Pitt, Taylor Dearden, HBO Max, HBO
+
+Fri, 03 Apr 2026 01:00:12 GMT
+
+https://collider.com/the-pitt-season-2-episode-13-taylor-dearden-interview/
+
+The Pitt star Taylor Dearden discusses Episode 13's break room conversation between Mel and Langdon and which scene was completely unscripted.
+---------
+
+# Netflix’s New 119-Minute Spy Thriller Is a Must-Watch for James Bond Fans
+
+Movie News, Thriller, South Korea, Netflix, Killing Eve
+
+Fri, 03 Apr 2026 01:00:12 GMT
+
+https://collider.com/humint-netflix-spy-movie-james-bond-replacement-streaming-success-april-2026/
+
+A new South Korean spy thriller is taking over the global Netflix viewership charts as a #1 streaming hit. Find out more here.
+---------
+
+# 'Your Friends & Neighbors' Season 2 Review: Apple TV's Crime Drama Still Has All the Messiness You Could Want
+
+TV Reviews, Your Friends and Neighbors, Apple TV, Jon Hamm, Jonathan Tropper
+
+Fri, 03 Apr 2026 01:00:12 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-review-apple-tv/
+
+Despite a slow start, Your Friends & Neighbors Season 2 has all the twists, turns, and messiness you could want.
+---------
+
+# New Sci-Fi Masterpiece Overtakes the Most Influential Genre Blockbuster of the 21st Century
+
+Movie News, The Matrix, Project Hail Mary, Ryan Gosling, Keanu Reeves
+
+Fri, 03 Apr 2026 00:31:14 GMT
+
+https://collider.com/project-hail-mary-box-office-overtakes-the-matrix-most-influential-sci-fi-blockbuster-of-the-21st-century/
+
+Project Hail Mary has overtaken the most influential sci-fi movie of the 21st century at the domestic box office in under two weeks. Find out more.
+---------
+
+# The Greatest Sci-Fi Sitcom Ever Made Needs a Reboot 40 Years Later
+
+TV Features, ALF, NBC, Ted, Sitcom
+
+Fri, 03 Apr 2026 00:14:12 GMT
+
+https://collider.com/alf-sci-fi-sitcom-deserves-reboot/
+
+It's been 40 years since Alf first captivated audiences with its quirky alien character and timeless humor. It's time for a reboot.
+---------
+
+# Ryan Gosling Officially Makes Shock Exit From New Sci-Fi Movie
+
+Movie News, Ryan Gosling, Daniel Kwan, Daniel Scheinert, Sci-Fi
+
+Fri, 03 Apr 2026 00:13:52 GMT
+
+https://collider.com/ryan-gosling-exits-sci-fi-movie-the-daniels/
+
+1 week after being cast, Ryan Gosling is now no longer starring in The Daniels' ambitious new sci-fi movie.
+---------
+
+# 10 Heartpounding Netflix Action Thrillers With No Bad Seasons
+
+TV Lists, The Night Agent, Lupin
+
+Fri, 03 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/netflix-action-thriller-shows/
+
+Maybe keep a blood pressure monitor on hand when watching these. Check out our list of heartpounding Netflix action thrillers with no bad seasons.
+---------
+
+# 9 Live-Action Remake Movies That Actually Worked
+
+Movie Lists, Disney, Scooby-Doo, The Grinch
+
+Fri, 03 Apr 2026 01:00:18 GMT
+
+https://movieweb.com/live-action-remake-movies-actually-worked/
+
+In an era where everything is either a remake or a sequel, there’s a few live-action remakes of classic animated movies that actually worked.
+---------
+
+# Henry Cavill Volunteers Himself for Villain Role in a 'James Bond' Reboot
+
+Movie News, Henry Cavill, James Bond, James Bond 26
+
+Fri, 03 Apr 2026 00:52:36 GMT
+
+https://movieweb.com/james-bond-reboot-henry-cavill-villain/
+
+Now that the actor is 42, he admits he's less interested in carrying the mantle, but is happy to be an antagonist.
+---------
+
 # Netflix’s 10-Part Political Thriller Is Quietly One Of Its Best For A Weekend Binge
 
 Streaming TV, Netflix, Messiah
