@@ -1,3 +1,289 @@
+# How Bad Sisters Season 2 Transformed The Apple TV Comedy Series
+
+Classic TV, Bad Sisters
+
+Fri, 03 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/bad-sisters-season-2-limited-series-truly-great/
+
+It's not uncommon for a popular limited series to break its own format with a second season. But unlike most, this Apple TV series does it well.
+---------
+
+# My Hero Academia Unveils Perfect Streaming Update For 10th Anniversary
+
+Anime, My Hero Academia, My Hero Academia - Season 1, My Hero Academia - Season 2, My Hero Academia - Season 3, My Hero Academia - Season 8
+
+Fri, 03 Apr 2026 16:24:10 GMT
+
+https://screenrant.com/my-hero-academia-streaming-free-10th-anniversary/
+
+As My Hero Academia's 10th anniversary approaches, the franchise makes a bold move to celebrate its legacy with this new streaming update.
+---------
+
+# Cillian Murphy's New Horror Movie That Ignited His 24 Year Return Is Creeping Up Netflix's Streaming Charts
+
+Movies, 28 Years Later: The Bone Temple, 28 Days Later
+
+Fri, 03 Apr 2026 16:23:33 GMT
+
+https://screenrant.com/28-years-later-bone-temple-netflix-streaming-hit-april-charts/
+
+Cillian Murphy's new horror movie, which ignited his 24-year return, is slowly creeping up Netflix's streaming charts in the United States.
+---------
+
+# Jon Hamm's Emmy-Nominated Apple TV Crime Show Returns With Solid Rotten Tomatoes Score
+
+TV, Your Friends and Neighbors - Season 2, Your Friends and Neighbors
+
+Fri, 03 Apr 2026 16:16:38 GMT
+
+https://screenrant.com/your-friends-and-neighbors-season-2-rotten-tomatoes-score/
+
+Season 2 of Jon Hamm's new crime series debuts on Rotten Tomatoes with a solidly Fresh score that compares favorably to the score for season 1.
+---------
+
+# The 3 Best Horror Anime To Binge On Netflix This Weekend
+
+TV, Anime, Horror, Netflix
+
+Fri, 03 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/best-horror-anime-netflix-shows-weekend-binge/
+
+Netflix has many hidden horror anime gems within its vast library, including a few series that can easily be consumed in a weekend binge.
+---------
+
+# The Witcher 4 Teaser Showcases Truly Mind-Blowing Graphical Leap
+
+Gaming, The Witcher 4, The Witcher, Triple-A Games, PC
+
+Fri, 03 Apr 2026 16:11:47 GMT
+
+https://screenrant.com/witcher-4-graphics-showcase-teaser-april-2026/
+
+CD Projekt Red games are known to push the medium to its technical limits, and a new The Witcher 4 tech demo shows an astounding level of detail.
+---------
+
+# Kathryn Hahn's 9-Part Fantasy Thriller Series Is Aging Like Fine Wine
+
+Streaming TV, Agatha All Along, Marvel Cinematic Universe
+
+Fri, 03 Apr 2026 16:09:19 GMT
+
+https://screenrant.com/kathryn-hahn-agatha-all-along-fantasy-series-aging-well/
+
+Kathryn Hahn starred in a nine-part fantasy thriller that, against all odds stacked against it pre-release, is aging like the finest of wines.
+---------
+
+# Ryan Coogler Sets Second ’90s Sci-Fi Series Reboot After The X-Files
+
+TV
+
+Fri, 03 Apr 2026 16:07:11 GMT
+
+https://screenrant.com/animorphs-series-disney-plus-reboot-ryan-coogler/
+
+Ryan Coogler is set to reboot another sci-fi series from the 1990s, following his high-profile pilot of The X-Files that's moving fast at Hulu.
+---------
+
+# Pizza Movie Review: Hulu’s Innovative Stoner Comedy Is A New All-Time Great For The Genre
+
+Movies, Pizza Movie, Hulu, Gaten Matarazzo, Sean Giambrone
+
+Fri, 03 Apr 2026 16:01:57 GMT
+
+https://screenrant.com/pizza-movie-2026-review/
+
+Hulu's Pizza Movie is way more than its simple title suggests as Gaten Matarazzo and Sean Giambrone lead an innovative and inspired stoner comedy.
+---------
+
+# Peach's Journey Of Self-Discovery & Luigi's Growth In Super Mario Galaxy Movie Broken Down By Stars
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Fri, 03 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-peach-self-discovery-luigi-growth/
+
+Anya Taylor-Joy, Charlie Day and the rest of the Super Mario Galaxy Movie cast talk the animated sequel, Peach's journey of self-discovery and more.
+---------
+
+# Ryan Coogler Joins Animorphs Reboot at Disney+
+
+TV, ryan coogler, Disney+, Animorphs
+
+Fri, 03 Apr 2026 16:21:02 GMT
+
+https://www.cbr.com/ryan-coogler-animorphs-disney-plus-series-reboot/
+
+The Oscar-winning filmmaker has just joined another reboot.
+---------
+
+# Viggo Mortensen Replaced as Aragorn in The Lord of the Rings
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Fri, 03 Apr 2026 16:00:54 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-recasts-aragorn-viggo-mortensen/
+
+The Lord of the Rings: The Hunt for Gollum director Andy Serkis confirms that Viggo Mortensen has been replaced as Aragorn.
+---------
+
+# 4 Best HBO Max Shows to Binge This Weekend
+
+TV, HBO Max, The White Lotus, Dune: Prophecy, A Knight Of The Seven Kingdoms
+
+Fri, 03 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/best-hbo-max-shows-to-binge-this-weekend-list/
+
+Viewers searching for their next binge-watching obsession shouldn't miss these excellent HBO shows.
+---------
+
+# Blackberry Is the Perfect Social Network Replacement
+
+Movies, The Social Network, BlackBerry
+
+Fri, 03 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/netflix-blackberry-social-network-replacement/
+
+The Social Network was a decade-defining movie, but a new tech biopic has finally replaced it as the new masterpiece.
+---------
+
+# Legendary Star Ranbir Kapoor Says His Latest Film Is “Nothing Less Than 'Lord of the Rings'” [Exclusive]
+
+Exclusives, Ramayana, Ranbir Kapoor, IMAX, Action
+
+Fri, 03 Apr 2026 16:20:20 GMT
+
+https://collider.com/ranbir-kapoor-ramayana-lord-rama-parshuram-lord-of-the-rings-comparison-interview/
+
+Ranbir Kapoor discusses the responsibility of his leading role, why he initially said no, and filming six hours of epic action and visuals for IMAX.
+---------
+
+# Disney Is Officially Rebooting the Best Sci-Fi Franchise of the '90s
+
+TV News, Animorphs, Ryan Coogler, Disney+, Science Fiction
+
+Fri, 03 Apr 2026 16:15:36 GMT
+
+https://collider.com/disney-sci-fi-franchise-animorphs-reboot-series-ryan-coogler-producing/
+
+The beloved sci-fi book franchise Animorphs is getting the reboot treatment from Disney and Ryan Coogler.
+---------
+
+# ‘Sicario’ Meets ‘Mad Max’ in This New High-Octane Action Thriller Arriving This Month
+
+Movie News, Desert Warrior, Anthony Mackie, Sicario, Mad Max: Fury Road
+
+Fri, 03 Apr 2026 16:13:40 GMT
+
+https://collider.com/desert-warrior-theatrical-release-date-anthony-mackie-historical-epic-thriller/
+
+Sicario meets Mad Max in a new high-octane action thriller hitting theaters this month. Here's when you can watch the long-delayed epic.
+---------
+
+# Win Tickets to Our 'Original Sound' Early Screening With Q&A
+
+Exclusives, Screening, Original Sound, Bridget Moynahan, Drama
+
+Fri, 03 Apr 2026 16:04:15 GMT
+
+https://collider.com/original-sound-screening-david-lambert-gregory-j-bara-david-youse-q-and-a/
+
+Get the details on how you can enter for your chance to win free tickets to our early screening of Original Sound and Q&amp;A with the creative team.
+---------
+
+# PBS' New Documentary Shows What Childhood Looks Like in a War Zone [Exclusive]
+
+Exclusives, Documentary, PBS, War, Exclusive Media
+
+Fri, 03 Apr 2026 16:00:12 GMT
+
+https://collider.com/my-sweet-land-war-documentary-pbs-release-date-sneak-peek/
+
+Discover the poignant story of Vrej, an 11-year-old boy growing up in Artsakh, in the exclusive clip from the new war documentary My Sweet Land.
+---------
+
+# This New Sci-Fi Movie Sneak Peek Is So Weird, You Won’t Believe the Premise [Exclusive]
+
+Movie News, Touch Me, Olivia Taylor Dudley, Paget Brewster, Lou Taylor Pucci
+
+Fri, 03 Apr 2026 16:00:12 GMT
+
+https://collider.com/touch-me-sneak-peek-new-indie-sci-fi-movie-mind-bender/
+
+Watch an exclusive sneak peek of the bizarre sci-fi comedy Touch Me, where two friends encounter an alien with mind-blowing abilities.
+---------
+
+# CBS’ Best Crime Series Debuts Electric Sneak Peek Before New Episode [Exclusive]
+
+TV News, Tracker, Justin Hartley, CBS, Paramount Plus
+
+Fri, 03 Apr 2026 16:00:12 GMT
+
+https://collider.com/cbs-best-crime-series-tracker-season-3-episode-15-sneak-peek/
+
+CBS has released a new sneak peek from the upcoming episode of Tracker, which will be released this Sunday.
+---------
+
+# The Greatest Opening Sequence in Western TV History Came From This 6-Part Series
+
+TV Features, Western, Have Gun - Will Travel, CBS, Drama
+
+Fri, 03 Apr 2026 15:58:12 GMT
+
+https://collider.com/greatest-western-tv-opening-have-gun-will-travel/
+
+Richard Boone's series Have Gun — Will Travel has the best opening sequence in Western TV history.
+---------
+
+# Apple TV's 'Mistborn' Adaptation Gains Traction in Major Script Update
+
+Movie News, Mistborn
+
+Fri, 03 Apr 2026 16:21:40 GMT
+
+https://movieweb.com/apple-mistborn-script-update/
+
+Apple's upcoming epic fantasy adaptation of the Brandon Sanderson novels just got a very promising update.
+---------
+
+# Netflix's Hitman Action Series 'Sakamoto Days' Is an Unofficial 'John Wick' TV Series
+
+Features, Sakamoto Days, Netflix, Streaming Recommendations, John Wick, Action
+
+Fri, 03 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/sakamoto-days-john-wick-netflix-action-replacement-beter/
+
+'John Wick' fans need to watch Netflix's underrated assassin action series, 'Sakamoto Days,' with a second season on the way.
+---------
+
+# Best LGBTQ+ Korean Movies
+
+Movie Lists, LGBTQ+
+
+Fri, 03 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/lgbtq-movies-korean/
+
+LBTQ+ movies from Korea continue to push boundaries and deliver unforgettable stories; these are the best.
+---------
+
+# Netflix Lands 'The Corrections' Adaptation Starring Meryl Streep
+
+TV News, The Corrections, Meryl Streep, Netflix
+
+Fri, 03 Apr 2026 15:48:41 GMT
+
+https://movieweb.com/netflix-meryl-streep-bestselling-novel-corrections/
+
+Netflix is making a series adaptation of 'The Corrections' starring Meryl Streep.
+---------
+
 # Akane-Banashi Series Premiere Review
 
 Anime, Akane-banashi, Shonen Jump
