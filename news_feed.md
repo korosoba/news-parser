@@ -1,3 +1,234 @@
+# How Marshals Evolves Kayce Dutton's Relationship To Key Yellowstone Characters Explained By Franchise Vet
+
+TV, Marshals, Marshals - Season 1, Yellowstone, Mo Brings Plenty
+
+Fri, 03 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/yellowstone-marshals-kayce-dutton-mo-rainwater-relationship-evolved/
+
+Yellowstone franchise vet Mo Brings Plenty talks his Marshals return and how the show evolves Kayce Dutton's relationship with him and Rainwater.
+---------
+
+# Game Of Thrones: Jaime Lannister Originally Planned To Rule From The Iron Throne
+
+Classic TV, Game Of Thrones
+
+Fri, 03 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/game-of-thrones-original-plan-grrm-jaime-lannister-king/
+
+In George R.R. Martin's original outline of Game of Thrones, he had an evil Jaime Lannister taking the Iron Throne, a decision he corrected.
+---------
+
+# Warner Bros.' New Sci-Fi Thriller Is Trying To Recapture Weapons' Best Strategy
+
+Movies, The End of Oak Street, Weapons
+
+Fri, 03 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/end-of-oak-street-movie-weapons-strategy/
+
+Warner Bros.' newest sci-fi thriller, The End of Oak Street, shares things with Weapons' marketing, but it has some worrying signs for the future.
+---------
+
+# GTA 6 Fans Now Realizing How Much They'll Need To Save Up To Play
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Fri, 03 Apr 2026 20:21:23 GMT
+
+https://screenrant.com/gta-6-ps5-pro-cost-fan-reaction/
+
+Grand Theft Auto 6 might not end up costing $100, but the actual price of playing the game in its best form is looking even more concerning.
+---------
+
+# The Super Mario Galaxy Movie's Peach Reveal May Have Teased The Next Villain
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Fri, 03 Apr 2026 20:20:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-peach-rosalina-evil-forces-villain-tease/
+
+The Super Mario Galaxy Movie's Princess Peach included an ominous tease that may set up a future villain for Mario to fight - but which one?
+---------
+
+# Netflix’s 8-Part Psychological Thriller Is A Perfect Binge Thanks To One Big Twist
+
+TV, Something Very Bad Is Going to Happen
+
+Fri, 03 Apr 2026 20:08:20 GMT
+
+https://screenrant.com/netflix-something-very-bad-is-going-to-happen-psychological-thriller-series-rewatchable/
+
+Netflix's latest great psychological thriller is one of the streaming service's best additions to the genre thanks to an ingenious twist ending.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A Guy Ritchie Action Thriller)
+
+Movies, Prime Video, Recommendation
+
+Fri, 03 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-april-4/
+
+Prime Video subscribers can have an action-packed weekend with movies from Guy Ritchie, Tom Cruise, and Chris Hemsworth that are wild thrill rides.
+---------
+
+# Star Trek: The Original Series Tops Streaming Charts After 60 Years
+
+TV, Star Trek, Star trek, Sci-Fi
+
+Fri, 03 Apr 2026 20:32:09 GMT
+
+https://www.cbr.com/star-trek-streaming-success-pvod-april-2026/
+
+Star Trek: The Original Series, the iconic sci-fi show from the 1960s, has surged to the top of streaming charts in the US.
+---------
+
+# Your Friends and Neighbors Creator Teases Season 2 Power Shift
+
+TV, Your Friends and Neighbors
+
+Fri, 03 Apr 2026 20:30:14 GMT
+
+https://www.cbr.com/video/your-friends-and-neighbors-creator-teases-season-2-power-shift/
+
+Jonathan Tropper explains Coop’s dark turn in Your Friends and Neighbors Season 2.The creator breaks down the new mystery, shifting power dynamics, and character fallout.From Jon Hamm’s unexpected meme moment to the introduction of a new disruptive force, Tropper reveals how Season 2 expands the world while keeping fans hooked. He unpacks Coop’s evolving mindset, Mal’s emotional unraveling, and the deeper themes driving the story forward.
+---------
+
+# Most Cinematic Historical Movie Epics of the Last 50 Years, Ranked
+
+Movies, War, Gladiator, Saving Private Ryan
+
+Fri, 03 Apr 2026 20:30:14 GMT
+
+https://www.cbr.com/most-cinematic-historical-movie-epics-last-50-years-list/
+
+From Ancient Rome to the horrors of the 20th century, history continues to inspire some of cinema's best films, especially over the last fifty years.
+---------
+
+# Dragon Ball Super Manga Mistake Reveals New Toyotarou Art Before Japan
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Fri, 03 Apr 2026 20:20:12 GMT
+
+https://www.cbr.com/dragon-ball-super-volume-24-spanish-spine-art-mistake/
+
+Dragon Ball Super manga fans have uncovered an early sneak peek at the next volume's art ahead of Toyotarou's promised return to serialization.
+---------
+
+# Fallout Officially Confirms New Release Coming April 10
+
+Games, Fallout
+
+Fri, 03 Apr 2026 20:18:29 GMT
+
+https://www.cbr.com/fallout-dogmeat-april-2026-release/
+
+Fallout fans can cozy up with Dogmeat this month.
+---------
+
+# 10 Anime Characters Perfectly Designed To Fail
+
+Anime, Naruto
+
+Fri, 03 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/anime-characters-designed-to-lose/
+
+From Meliodas to Kirito, these anime characters were never going to be fully embraced by fans despite how much their writers wanted fans to love them.
+---------
+
+# MGM+'s 3-Part Sci-Fi Horror From Officially Returns in 3 Weeks
+
+TV, From
+
+Fri, 03 Apr 2026 20:10:10 GMT
+
+https://www.cbr.com/from-season-4-april-release-date-pvod-success/
+
+After a long wait, the sci-fi horror is climbing up the charts again ahead of the new entry.
+---------
+
+# Prime Video's New Murder Mystery With 678M Debut Keeps Climbing the Charts Amid Uncertain Future
+
+TV, Young Sherlock, Prime Video
+
+Fri, 03 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/young-sherlock-murder-mystery-prime-video-success-april-2026/
+
+Prime Video subscribers are patiently waiting to learn the future of the streamer's latest popular murder mystery series.
+---------
+
+# ‘The Boys’ Season 5 To Skip “Super-Sized” Series Finale [Exclusive]
+
+TV News, The Boys, Prime Video, Eric Kripke, Antony Starr
+
+Fri, 03 Apr 2026 20:16:42 GMT
+
+https://collider.com/the-boys-season-5-finale-episode-8-length-1-hour-5-minutes/
+
+The Boys creator Eric Kripke confirms the runtime for the series finale, and it won't be the longest episode of the series.
+---------
+
+# Bob Dylan Regretted Writing This Forgotten 1964 Breakup Song
+
+Music Features, Bob Dylan, Music, Rock, Billboard Hot 100
+
+Fri, 03 Apr 2026 20:15:12 GMT
+
+https://collider.com/bob-dylan-1964-breakup-song-ballad-in-plain-d/
+
+Bob Dylan's brutally honest breakup song that stands out in his discography for its lack of metaphor and directness.
+---------
+
+# Hulu's Near-Perfect 6-Part Sci-Fi Series Is One of the Best Anthology Shows on Any Streaming Platform
+
+TV Features, Dimension 404, Hulu, Series, Robert Buckley
+
+Fri, 03 Apr 2026 20:08:15 GMT
+
+https://collider.com/dimension-404-hulu-sci-fi-anthology-series/
+
+Dimension 404 is Hulu’s underrated sci-fi anthology blending comedy, chaos, and tech-driven twists into a bingeable 6-episode series.
+---------
+
+# New 'Supergirl' Footage Reveals a Force to Be Reckoned With
+
+Movie News, Supergirl, Milly Alcock, James Gunn, Craig Gillespie, Jason Momoa
+
+Fri, 03 Apr 2026 20:06:09 GMT
+
+https://movieweb.com/james-gunn-supergirl-video-milly-alcock/
+
+New footage from DC Studios's 'Supergirl' movie teases one of the franchise's most powerful heroes joining the fight.
+---------
+
+# Tom Hardy's Breakout Crime Cult Classic 'Layer Cake' Is Streaming Free Ahead of Sequel
+
+Movie News, Tom Hardy, Layer Cake, Thriller, Crime
+
+Fri, 03 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/layer-cake-stream-free-april-2026/
+
+The follow-up is now in the works, and sees Jason Statham take over the role of a mysterious drug dealer.
+---------
+
+# 'Animorphs' TV Series in Development at Disney+ With Ryan Coogler Producing
+
+TV News, Animorphs, Ryan Coogler, Disney+
+
+Fri, 03 Apr 2026 19:59:48 GMT
+
+https://movieweb.com/animorphs-tv-series-disney-ryan-coogler/
+
+'Sinners' director Ryan Coogler is becoming the king of sci-fi TV, following his plans for 'The X-Files' with another franchise adaptation.
+---------
+
 # 22 Years Ago, Rachel McAdams Made An Astounding Hollywood Breakthrough With Two Surprisingly Different Roles
 
 Movies, Rachel McAdams, Mean Girls, The Notebook, Explainer
