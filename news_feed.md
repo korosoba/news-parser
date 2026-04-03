@@ -1,3 +1,135 @@
+# Miranda Bailey's Future In Grey's Anatomy In Jeopardy Amid Season 22 Cliffhanger
+
+TV, Grey's Anatomy
+
+Fri, 03 Apr 2026 17:33:06 GMT
+
+https://screenrant.com/greys-anatomy-chandra-wilson-season-22-cliffhanger-exit-jeopardy/
+
+Grey's Anatomy icon Chandra Wilson faces an uncertain future for her character, Miranda Bailey, after a casting shakeup for season 23.
+---------
+
+# An Unexpected Goku Form Debuts In Dragon Ball Legends
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Fri, 03 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/farmer-goku-worst-dragon-ball-form-returns-trailer/
+
+The Goku form no one asked for is here.
+---------
+
+# 8 Seriously Dark Moments In Fantasy TV Shows
+
+Classic TV, Fantasy
+
+Fri, 03 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/fantasy-tv-shows-dark-moments/
+
+The darkest moments in Fantasy TV still haunt fans to this day as shows like Supernatural, Attack on Titan, and Game of Thrones crossed the line.
+---------
+
+# X-Men's Most Stunning Redesign Yet Has Been Confirmed
+
+Comics, X-Men
+
+Fri, 03 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/x-men-the-hellfire-murder-release-date-character-redesigns/
+
+Marvel Comics officially unveils one iconic mutant hero's startling new look ahead of the most twisted Hellfire Gala of all time.
+---------
+
+# The Controversial X-Men Costumes Saved the Marvel Cinematic Universe
+
+Movies, X-Men, Avengers: Doomsday, Marvel Cinematic Universe
+
+Fri, 03 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/controversial-x-men-costumes-saved-mcu/
+
+One choice from 2000's X-Men movie was more controversial than most, but it actually laid the foundation for the MCU as we know it.
+---------
+
+# Daft Punk's 2001 Hit Track Ranked the No. 1 Best Party Song of All Time
+
+Music Features, Daft Punk, Music, Pop, Billboard Hot 100
+
+Fri, 03 Apr 2026 17:58:24 GMT
+
+https://collider.com/daft-punk-2001-hit-song-one-more-time-best-party-song-of-all-time/
+
+Daft Punk's 2001 hit has been ranked the No. 1 best party song of all time, and explore its unique blend of electronic beats, disco, funk, and pop sensibilities.
+---------
+
+# New Sci-Fi Masterpiece Is About To Be Obliterated by ‘The Super Mario Galaxy Movie’
+
+Movie News, Project Hail Mary, The Super Mario Bros. Movie, The Super Mario Galaxy Movie, Chris Pratt
+
+Fri, 03 Apr 2026 17:37:10 GMT
+
+https://collider.com/super-mario-galaxy-movie-2026-biggest-blockbuster-overtakes-sci-fi-epic-project-hail-mary-box-office-350-million/
+
+The Super Mario Galaxy Movie is poised to deliver a massive box-office haul in its opening weekend, beating Project Hail Mary's record.
+---------
+
+# Prime Video’s 8-Part Fan-Favorite Spin-Off Is Officially a Must-Watch
+
+TV Features, Jury Duty, Jury Duty Presents: Company Retreat, Prime Video, Amazon Freevee
+
+Fri, 03 Apr 2026 17:29:12 GMT
+
+https://collider.com/prime-video-must-watch-spinoff-jury-duty-presents-company-retreat/
+
+After an incredible first season in 2023, the spinoff series Jury Duty Presents: Company Retreat hits the same spot.
+---------
+
+# Marvel Officially Reveals First Look at Newest X-Men Project
+
+TV News, X-Men, X-Men '97, Marvel, Disney+
+
+Fri, 03 Apr 2026 17:28:16 GMT
+
+https://collider.com/disney-plus-marvel-x-men-97-season-2-first-look-poster-polaris-character-reveal/
+
+X-Men '97 Season 2 has had its first look revealed in a new poster, which confirms the arrival of a fan-favorite comic character.
+---------
+
+# Milly Alcock Did Not Reach Out to Past Supergirl Stars for Advice
+
+Movie News, Supergirl, DCU, Milly Alcock
+
+Fri, 03 Apr 2026 17:54:22 GMT
+
+https://movieweb.com/supergirl-milly-alcock-advice/
+
+The DCU star did not reach out to past Supergirl's like Melissa Benoist, Sasha Calle, or Helen Slater for advice.
+---------
+
+# 'Ready Player One' Gets New Sci-Fi Adaptation After Steven Spielberg Film
+
+Movie News, Ready Player One, Steven Spielberg, Sci-Fi
+
+Fri, 03 Apr 2026 17:46:40 GMT
+
+https://movieweb.com/ready-player-one-gets-new-adaptation-after-spielbergs-600m-blockbuster/
+
+After Steven Spielberg's hit 2018 film 'Ready Player One', the novel is getting a new adaptation. However, it may not be the way fans expect.
+---------
+
+# 'Wizards Beyond Waverly Place' Renewed for Third and Final Season
+
+TV News, Wizards Beyond Waverly Place, Selena Gomez
+
+Fri, 03 Apr 2026 17:41:51 GMT
+
+https://movieweb.com/wizards-beyond-waverly-place-renewed-season-3-ending/
+
+The legacy sequel to the hit Disney Channel hit 'Wizards of Waverly Place' will debut in summer 2026 for a four-episode final season.
+---------
+
 # Netflix's 4-Part Jurassic Park Series With Steven Spielberg Is The Perfect Weekend Binge
 
 TV, Netflix, Jurassic World: Chaos Theory, Jurassic Park
