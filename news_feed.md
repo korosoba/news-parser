@@ -1,3 +1,190 @@
+# 10 Fantasy Shows That Are Even Better The Second Time Around
+
+Classic TV, Fantasy
+
+Fri, 03 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/fantasy-shows-better-the-second-time-around/
+
+The right fantasy show can transport you to another world, but the best of the best keep the viewer coming back for more even after the credits roll.
+---------
+
+# ABC's Emmy-Winning Fantasy Sitcom Has One Star Hopeful For 16-Year Return In Light Of Season 3 Revival Update
+
+TV, Pushing Daisies
+
+Fri, 03 Apr 2026 21:14:07 GMT
+
+https://screenrant.com/pushing-daisies-season-3-return-update-lee-pace/
+
+Star of ABC's hit fantasy sitcom says he’s eager to return for a potential season 3 if the opportunity arises nearly two decades later.
+---------
+
+# Legend Of Zelda: Minish Cap Remake Has Gamers Saying The Same Thing
+
+Gaming, The Legend of Zelda: The Minish Cap, The Legend of Zelda, Triple-A Games
+
+Fri, 03 Apr 2026 21:01:21 GMT
+
+https://screenrant.com/legend-of-zelda-minish-cap-remake-fan-speculation/
+
+The Legend of Zelda: The Minish Cap is a cult classic, but that doesn't mean that its fans are thrilled about the prospect of a remake.
+---------
+
+# Tony Stark Creates Mysterio-Inspired Iron Man Armor In New Marvel Appearance
+
+Marvel Comics, Iron Man, Marvel
+
+Fri, 03 Apr 2026 20:57:29 GMT
+
+https://screenrant.com/iron-man-new-armor-mysterio/
+
+This year, Marvel's Tony Stark officially debuts a brand-new suit of Iron Man armor inspired by one of Spider-Man's most famous villains.
+---------
+
+# 3 Netflix Shows Trending Right Now That Are Perfect For A One-Night Weekend Binge (#1 Is A 93% RT Thriller)
+
+Streaming TV, Netflix, What to Watch on Netflix, XO, Kitty, Something Very Bad Is Going to Happen, Jo Nesbø's Detective Hole
+
+Fri, 03 Apr 2026 20:48:20 GMT
+
+https://screenrant.com/netflix-shows-to-binge-watch-this-weekend-trending-now/
+
+Discover Netflix's hottest trending shows perfect for a weekend binge including a near-perfect 93% Rotten Tomatoes crime thriller that's #1 worldwide.
+---------
+
+# Why Prime Video's New #1 Movie Is A Worldwide Sensation (Crime Thriller Is Like An All-Time Classic)
+
+New Movies, Prime Video, Crime 101
+
+Fri, 03 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/crime-101-movie-prime-video-trending-worldwide/
+
+A crime thriller that's drawn comparisons to an all-time classic is taking over the world on Prime Video, dominating streaming charts to find success.
+---------
+
+# HBO Max's "Years And Years": A Sci-Fi Series That Grips You In 15 Minutes
+
+Classic TV, Years and Years
+
+Fri, 03 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/years-and-years-hbo-dystopian-series-hook-first-15-minutes/
+
+HBO Max's Years and Years is a dystopian sci-fi thriller with six episodes that will have you glued to the screen within the first 15 minutes.
+---------
+
+# 10 Best Shonen Friendships Better Than Any Anime Romance
+
+Anime
+
+Fri, 03 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/shonen-anime-friendships-better-than-romance/
+
+Many relationships in shonen anime prove that some of the strongest bonds in anime have nothing to do with romance.
+---------
+
+# Margot Robbie's R-Rated "Wuthering Heights" Takes Over Apple TV Digital Charts
+
+Movies, margot robbie, Margot Robbie, Wuthering Heights
+
+Fri, 03 Apr 2026 21:00:16 GMT
+
+https://www.cbr.com/margot-robbie-wuthering-heights-pvod-apple-success-april-2026/
+
+The controversial movie was a box office success, and that translates to digital charts, too.
+---------
+
+# Star Trek Introduced Its Seven of Nine Replacement 2 Years Ago (& Most Fans Missed It)
+
+TV, Star Trek, Star Trek Lower Decks, Star Trek: Voyager, Sci-Fi
+
+Fri, 03 Apr 2026 21:00:16 GMT
+
+https://www.cbr.com/star-trek-lower-decks-badgey-seven-of-nine-replacement/
+
+Seven of Nine is one of Star Trek's most beloved characters, in part because of her unique journey, and Lower Decks delivered a very similar figure.
+---------
+
+# James Marsden's Jury Duty Return Confirmed Ahead of Season 2 Finale
+
+TV, Jury Duty Presents: Company Retreat, Prime Video, Sitcoms
+
+Fri, 03 Apr 2026 20:48:11 GMT
+
+https://www.cbr.com/james-marsden-jury-duty-company-retreat-return-confirmed-season-2-finale/
+
+Jury Duty's celebrity star will officially return to the series after sitting out much of Season 2.
+---------
+
+# Mistborn Movie Update: Brandon Sanderson Reveals Script Progress
+
+Movies, Mistborn, The Cosmere, Apple TV
+
+Fri, 03 Apr 2026 20:45:43 GMT
+
+https://www.cbr.com/apple-tv-mistborn-movie-script-update-brandon-sanderson-half-done/
+
+Brandon Sanderson provides an update on the progress of the Mistborn movie adaptation, revealing that the script is halfway done.
+---------
+
+# 10 Funniest Gangster Movies of All Time, Ranked
+
+Movie, Goodfellas, Pulp Fiction, Lock, Stock and Two Smoking Barrels, In Bruges
+
+Fri, 03 Apr 2026 21:05:12 GMT
+
+https://collider.com/funniest-gangster-movies-all-time-ranked/
+
+Some gangster movies are surprisingly funny, including classics like Lock, Stock and Two Smoking Barrels, Pulp Fiction, and Goodfellas.
+---------
+
+# David Bowie’s 1971 Classic Hit Is the Most Important Song He Ever Recorded
+
+Music Features, David Bowie, Music, Rock
+
+Fri, 03 Apr 2026 21:00:16 GMT
+
+https://collider.com/david-bowie-1971-classic-hit-changes/
+
+David Bowie's iconic Changes encapsulates his career-long exploration of artistic reinvention and personal evolution through various alter egos.
+---------
+
+# 10 Greatest Action Movies of the Last 80 Years, Ranked
+
+Movie, Mad Max: Fury Road, Action, Enter the Dragon, The Matrix
+
+Fri, 03 Apr 2026 20:50:13 GMT
+
+https://collider.com/best-action-movies-last-80-years-ranked/
+
+The action genre has greatly evolved throughout the last eighty years, producing genuinely groundbreaking masterpieces like The Matrix and John Wick.
+---------
+
+# Record-Breaking Action Fantasy Anime 'Solo Leveling' Season 2 is Back on Crynchyroll's Streaming Charts
+
+TV News, Solo Leveling, Crunchyroll, Hot on Streaming, Action
+
+Fri, 03 Apr 2026 21:01:19 GMT
+
+https://movieweb.com/solo-leveling-return-streaming-success-crunchyroll-april-2026/
+
+The 'Solo Leveling' hype train still isn't slowing down as the popular action fantasy anime is back on Crunchyroll's Top 10.
+---------
+
+# 'Electric Dreams': Amazon's Philip K. Dick Anthology Series Deserves Another Look
+
+Features, Electric Dreams, Cultural Reassessment, Philip K. Dick
+
+Fri, 03 Apr 2026 21:01:19 GMT
+
+https://movieweb.com/philip-k-dick-electric-dreams-recommendation/
+
+Almost 10 years after its release, Electric Dreams remains among the best Philip K. Dick sci-fi TV adaptations
+---------
+
 # How Marshals Evolves Kayce Dutton's Relationship To Key Yellowstone Characters Explained By Franchise Vet
 
 TV, Marshals, Marshals - Season 1, Yellowstone, Mo Brings Plenty
