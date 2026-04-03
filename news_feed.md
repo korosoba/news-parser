@@ -1,3 +1,179 @@
+# PlayStation Plus Drops New Free RPG You Can Clear In A Weekend
+
+Gaming, PlayStation Plus
+
+Fri, 03 Apr 2026 04:30:19 GMT
+
+https://screenrant.com/playstation-plus-free-rpg-weekend-binge/
+
+PlayStation Plus is getting several new games for all members, and one RPG can be beaten in a single weekend if you put your mind to it.
+---------
+
+# Fallout Gets Official New Release On April 10
+
+Gaming, Fallout, PC, Fallout 4
+
+Fri, 03 Apr 2026 04:00:28 GMT
+
+https://screenrant.com/fallout-april-10-dogmeat-release-official/
+
+Fallout returns with an official new release on Friday, April 10 featuring one of the most iconic companions in the entire series.
+---------
+
+# Skyrim Fans Losing It Over Official New Expansion
+
+Gaming, The Elder Scrolls, PC, Triple-A Games, Live Service Games, The Elder Scrolls 6, The Elder Scrolls V: Skyrim
+
+Fri, 03 Apr 2026 03:00:20 GMT
+
+https://screenrant.com/skyrim-official-new-expansion-gamers-react/
+
+Bethesda has officially confirmed a new expansion for The Elder Scrolls franchise, and it has left Skyrim fans losing it over the huge possibilities.
+---------
+
+# Dragon Ball Finally Gives Vegeta an Official Win Over Goku
+
+Anime, Dragon Ball, weekly shonen jump
+
+Fri, 03 Apr 2026 03:59:12 GMT
+
+https://www.cbr.com/dragon-ball-vegeta-vs-goku-win-jump-multi-world/
+
+A beloved Dragon Ball feature brings fans back to one of the rare moments when Vegeta officially beat Goku entirely fair and square.
+---------
+
+# Old-School Sci-Fi Miniseries Better Than Anything on Streaming
+
+TV, Sci-Fi, Battlestar Galactica, The Hitchhiker's Guide to the Galaxy, The Triangle
+
+Fri, 03 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/sci-fi-tv-miniseries-better-than-streaming-list/
+
+Short-and-sweet shows like V and The Triangle are a million times better than most of the content released on Netflix, Prime Video, or Apple TV today.
+---------
+
+# Sisu Learned the Wrong Lesson From the John Wick Sequels
+
+Movies, Sisu: Road to Revenge
+
+Fri, 03 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/sisu-wwii-movie-learned-wrong-lesson-john-wick-sequels/
+
+Sisu is a massive action movie that is often compared to John Wick, but its sequel failed to learn the right lesson from the bigger franchise.
+---------
+
+# Transformers Rolls Out Stylish New G1 Suits for Optimus Prime, Bumblebee & More
+
+Anime, Transformers, merchandise, Beast Wars: Transformers, Clothing
+
+Fri, 03 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/transformers-g1-beast-wars-opposuits-release/
+
+A trio of new products from Opposuits gives Transformers fans fashionable items straight from Cybertron, featuring both G1 and Beast Wars characters.
+---------
+
+# I'm So Glad I've Finally Rediscovered These Flawless (But Forgotten) Fantasy Series
+
+TV, Fantasy, Merlin, Legend of the Seeker, Highlander
+
+Fri, 03 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/best-forgotten-fantasy-series-list/
+
+Fantasy has made way for some amazing TV shows, but there are some forgotten entries that deserve love as well.
+---------
+
+# 10 Strongest Fantasy Anime Protagonists of All Time, Ranked
+
+Anime, That Time I Got Reincarnated as a Slime, Bleach, Overlord, One Piece, Sailor Moon, Solo Leveling, Black Clover, Gurren Lagann, Puella Magi Madoka Magica, The Misfit of Demon King Academy
+
+Fri, 03 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/fantasy-anime-strongest-protagonists-all-time-rank/
+
+Not all fantasy heroes are cut from the same cloth, and these protagonists are indisputably a cut above the rest.
+---------
+
+# The Greatest Action Franchise of All Time Is a Must-Watch on Netflix This Weekend
+
+Movie, Netflix, Atonement, American Gangster, Mission: Impossible
+
+Fri, 03 Apr 2026 04:52:12 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-april-3/
+
+Atonement, Mission: Impossible, and American Gangster make our list of the best Netflix movies to watch the weekend of April 3, 2026.
+---------
+
+# 8 Action TV Heroes That Are Stronger Than Alan Ritchson's Reacher
+
+TV, Reacher, The Boys, Stranger Things, Daredevil
+
+Fri, 03 Apr 2026 04:07:12 GMT
+
+https://collider.com/action-tv-heroes-stronger-than-reacher-alan-ritchson/
+
+Alan Ritchson's version of Reacher is a tough, but The Boys' Billy Butcher, Stranger Things' Eleven, and Daredevil's Matt Murdock are easily stronger.
+---------
+
+# This 21-Episode Thriller Holds a Rare Distinction of 100% on Rotten Tomatoes Across 4 Seasons
+
+TV Features, Dark Winds, Western, Series, AMC
+
+Fri, 03 Apr 2026 03:21:12 GMT
+
+https://collider.com/dark-winds-series-perfect-score-rotten-tomatoes/
+
+Dark Winds holds a rare 100% Rotten Tomatoes score across 4 seasons. Here’s why AMC’s thriller is worth your next binge.
+---------
+
+# 7 Greatest Martial Arts Trilogies, Ranked
+
+Movie, The 36th Chamber of Shaolin, The Twilight Samurai, Samurai I: Musashi Miyamoto, Dragon Inn
+
+Fri, 03 Apr 2026 03:03:12 GMT
+
+https://collider.com/best-martial-arts-trilogies-ranked/
+
+Some of the best martial arts trilogies of all time include The 36th Chamber of Shaolin, the Samurai Trilogy, and the three Dragon Inn films.
+---------
+
+# 10 Scariest Underrated Horror Movies of the Last 10 Years, Ranked
+
+Movie, Horror, Oddity, Best of the 2010s, The Autopsy of Jane Doe
+
+Fri, 03 Apr 2026 03:03:12 GMT
+
+https://collider.com/scariest-underrated-horror-movies-last-10-years-ranked/
+
+Oddity, The Autopsy of Jane Doe, and Hatching are all among the scariest overlooked horror movies of the last 10 years.
+---------
+
+# 'Elsbeth' Delivers a Perfect Episode Featuring 'Succession's J. Smith-Cameron as the Hell of the Ball | Review
+
+TV Features, Elsbeth, Carrie Preston, J. Smith-Cameron, CBS
+
+Fri, 03 Apr 2026 03:00:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-14-review-j-smith-cameron-deadutante/
+
+J. Smith-Cameron delivers a captivating performance as the demanding director of the Empire City Debutante Ball in the latest Elsbeth.
+---------
+
+# How ‘The Hunting Party’ Finally Turned ’Once Upon a Time’s Josh Dallas Into a Proper Villain
+
+Exclusives, The Hunting Party, Melissa Roxburgh, Josh Dallas, Manifest
+
+Fri, 03 Apr 2026 03:00:13 GMT
+
+https://collider.com/the-hunting-party-season-2-episode-8-melissa-roxburgh-josh-dallas-interview/
+
+Melissa Roxburgh and guest star Josh Dallas discuss The Hunting Party Season 2, new Pit secrets, Bex and Shane, and whether they'd return to Manifest.
+---------
+
 # The Super Mario Galaxy Movie And Artemis II Launched On The Same Day & That's Perfect
 
 Movies, The Super Mario Galaxy Movie
