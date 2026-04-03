@@ -1,3 +1,311 @@
+# Entourage's 10 Best Fake Movies
+
+Classic TV, Entourage
+
+Fri, 03 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/entourage-fake-movies-we-want-to-see/
+
+From James Cameron's Aquaman to Martin Scorsese's Gatsby, the world of Entourage has plenty of fake movies that I wish were real movies.
+---------
+
+# All Active Codes In Pokémon Pokopia
+
+Gaming, Pokemon Pokopia, Pokemon, Triple-A Games
+
+Fri, 03 Apr 2026 18:32:10 GMT
+
+https://screenrant.com/pokemon-pokopia-all-active-codes-free-items/
+
+Don't miss out on any free items to decorate your Pokémon Pokopia habitats and homes with – here's every Mystery Gift code you can currently use.
+---------
+
+# Invincible Waited 4 Seasons For Its Best The Walking Dead Easter Egg
+
+Streaming TV, Invincible
+
+Fri, 03 Apr 2026 18:31:19 GMT
+
+https://screenrant.com/invincible-the-walking-dead-dread-villain-easter-egg/
+
+Invincible has had a long-running, close association with The Walking Dead, but season 4 officially contains the show's best TWD Easter Egg yet.
+---------
+
+# Steven Spielberg’s Disclosure Day Will Answer Questions From His 49-Year-Old Sci-Fi Classic
+
+Movies, Disclosure Day, Close Encounters of The Third Kind, Steven Spielberg
+
+Fri, 03 Apr 2026 18:27:45 GMT
+
+https://screenrant.com/steven-spielberg-disclosure-day-answers-close-encounters-of-the-third-questions/
+
+In two months, Universal will release Steven Spielberg’s Disclosure Day, which will provide closure to one of his most iconic alien movies ever.
+---------
+
+# Stranger Things Star's New Sci-Fi Comedy Nets Solid Rotten Tomatoes Score Upon Hulu Debut
+
+Movies, Pizza Movie
+
+Fri, 03 Apr 2026 18:03:30 GMT
+
+https://screenrant.com/pizza-movie-rotten-tomatoes-score-hulu/
+
+A Stranger Things star's new sci-fi comedy debuts with a solid score on Rotten Tomatoes shortly after releasing on Hulu today, April 3.
+---------
+
+# Randy Asks Colter To Help A Close Friend In New Tracker Clip
+
+Exclusive, Tracker, Justin Hartley, Tracker - Season 3
+
+Fri, 03 Apr 2026 18:01:19 GMT
+
+https://screenrant.com/video/tracker-season-3-episode-15-justin-hartley-chris-lee-clip/
+
+Exclusive: ScreenRant presents a clip from Tracker, where Colter (Justin Hartley) searches for a friend of Randy's (Chris Lee, now a series regular).
+---------
+
+# After 11 Years, Naruto's True Canon Ending Has Aged Like Fine-Wine
+
+Anime, Naruto, Naruto (1999)
+
+Fri, 03 Apr 2026 18:01:19 GMT
+
+https://screenrant.com/naruto-ending-aging-fine-wine-perfect/
+
+Naruto has multiple endings, and each delivers a level of satisfaction that few other manga and anime series have been able to match.
+---------
+
+# The Walking Dead Almost Cast A Scream Legend As Negan
+
+Classic TV, The Walking Dead
+
+Fri, 03 Apr 2026 18:01:19 GMT
+
+https://screenrant.com/the-walking-dead-matthew-lillard-negan-casting-change-show/
+
+Scream's Matthew Lillard was the backup choice to play Negan in The Walking Dead, and his casting would've completely changed the show.
+---------
+
+# Chris Hemsworth’s Crime 101 Ends Chris Pratt’s Mercy's No. 1 Run on Prime Video
+
+Movies, Crime 101, Chris Pratt, chris hemsworth, Avengers: Doomsday
+
+Fri, 03 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/chris-hemsworth-crime-101-overtakes-chris-pratt-mercy-prime-video-april-2026/
+
+Is Thor's defeat of Star-Lord what leads to Avengers: Doomsday?
+---------
+
+# 10 Near-Perfect Netflix Movies The Algorithm Buried
+
+Movies, Netflix, Hold the Dark, His House
+
+Fri, 03 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/near-perfect-netflix-movies-algorithm-buried-list/
+
+From modern horror classics to slow-burn dramas, these are some of the most underrated and best offerings available on Netflix.
+---------
+
+# Upcoming Book Adaptations That Could Be Your Next TV Obsession
+
+TV
+
+Fri, 03 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/best-upcoming-book-adaptation-tv-shows-list/
+
+From fantasy epics to gritty crime thrillers, these upcoming book adaptations have the potential to captivate TV audiences like never before.
+---------
+
+# 10 Years Before The Super Mario Galaxy Movie, This Forgotten Nintendo OVA Perfectly Introduced The Franchise’s Next Big Star
+
+Anime, The Super Mario Galaxy Movie, Star Fox
+
+Fri, 03 Apr 2026 18:45:13 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-star-fox-anime-ova-wit-studio/
+
+Fox McCloud's appearance in The Super Mario Galaxy Movie features an anime-inspired flashback that actually calls back to a forgotten 2010s OVA.
+---------
+
+# Jon Hamm Explains Coop’s Unreliable Narrator in Your Friends and Neighbors
+
+TV, Your Friends and Neighbors
+
+Fri, 03 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/video/jon-hamm-explains-coop-s-unreliable-narrator-in-your-friends-and-neighbors/
+
+Jon Hamm explains Coop’s unreliable narrator in Your Friends and Neighbors.The voiceover isn’t just style, it changes how you watch the entire show.In this interview, Hamm unpacks how Coop’s inner monologue adds depth and ambiguity, making viewers question what’s real. He compares the storytelling device to iconic narration styles and shares why it’s so fun to perform. Hamm also opens up about unexpectedly becoming a meme and why he leans into it. Plus, he teases how Coop’s role shifts in season 2, especially in his relationship with Mel. If you’re into layered storytelling, character evolution, and smart TV writing, this one hits.
+---------
+
+# 6 Short TV Series You Can Finish in One Night
+
+TV, Adolescence, When They See Us, Pluribus, Blue Eye Samurai
+
+Fri, 03 Apr 2026 19:08:12 GMT
+
+https://collider.com/short-tv-shows-finish-one-night/
+
+Dive into captivating short TV series that deliver high stakes and sharp storytelling, from Adolescence to Pluribus.
+---------
+
+# The Dark Knight Returns as DC’s New Batman Movie Sets 2026 Release
+
+Movie News, The Batman, DC, James Gunn, DCU
+
+Fri, 03 Apr 2026 18:42:22 GMT
+
+https://collider.com/new-batman-movie-knightfall-part-1-release-window-june-2026/
+
+Batman officially returns this summer thanks to a surprise new movie announcement from DC. Find out more information here.
+---------
+
+# Steven Spielberg’s Sci-Fi Epic Gets an Official New Spin-Off
+
+Movie News, Ready Player One, Steven Spielberg, Disclosure Day, Ready Player Two
+
+Fri, 03 Apr 2026 18:30:32 GMT
+
+https://collider.com/steven-spielberg-divisive-sci-fi-movie-ready-player-one-graphic-novels-release-date-march-2027/
+
+Steven Spielberg's most divisive sci-fi project is getting an official expansion eight years after it hit theaters.
+---------
+
+# Andy Serkis Addresses Returning as Alfred in 'The Batman Part 2’ [Exclusive]
+
+Movie News, The Batman, The Batman Part II, Andy Serkis, Matt Reeves
+
+Fri, 03 Apr 2026 18:26:22 GMT
+
+https://collider.com/the-batman-part-2-script-reaction-andy-serkis-alfred-returning-for-sequel/
+
+Andy Serkis praises The Batman Part II script, calling Matt Reeves’ long-awaited sequel emotional and powerful.
+---------
+
+# Andy Serkis Gives Major Filming Update for New ‘Lord of the Rings’ Movie [Exclusive]
+
+Exclusives, The Lord of the Rings: The Hunt for Gollum, Andy Serkis, The Lord of the Rings, Fantasy
+
+Fri, 03 Apr 2026 18:25:16 GMT
+
+https://collider.com/lord-of-the-rings-the-hunt-for-gollum-elijah-wood-ian-mckellen-andy-serkis-update/
+
+The Hunt for Gollum is getting closer, as Andy Serkis teases the return of two more original Lord of the Rings characters.
+---------
+
+# ‘Lord of the Rings’ Is Officially Recasting Its Greatest Character
+
+Exclusives, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Viggo Mortensen, Andy Serkis
+
+Fri, 03 Apr 2026 18:24:57 GMT
+
+https://collider.com/lord-of-the-rings-hunt-for-gollum-viggo-mortensen-not-returning-aragorn-recast-andy-serkis-explains/
+
+Andy Serkis confirms one fan-favorite Lord of the Rings character is being recast in The Hunt for Gollum. Here's what we know.
+---------
+
+# ABC’s 3-Part Crime Masterpiece Is Taking Over the World on Streaming
+
+TV News, ABC, High Potential, Crime, Hulu
+
+Fri, 03 Apr 2026 18:24:43 GMT
+
+https://collider.com/abc-record-breaking-crime-series-high-potential-streaming-success-hulu-april-2026/
+
+An ABC crime drama surges to #1 on Hulu, overtaking major shows and proving broadcast hits can still dominate streaming rankings.
+---------
+
+# New Action Thriller Trailer Reveals 2026’s Wildest Movie Yet
+
+Movie News, Jason Segel, Samara Weaving, Timothy Olyphant, Over Your Dead Body
+
+Fri, 03 Apr 2026 18:23:31 GMT
+
+https://collider.com/over-your-dead-body-trailer-jason-segel-samara-weaving-action-thriller/
+
+Jason Segel and Samara Weaving are trying to kill each other in the wild new Red Band trailer for their twisty new action comedy thriller.
+---------
+
+# Paramount’s 2-Part Crime Thriller Casts Its First Major Star for New Season
+
+TV News, Dexter: Resurrection, Dexter, Brian Cox, Crime
+
+Fri, 03 Apr 2026 18:17:22 GMT
+
+https://collider.com/dexter-resurrection-season-2-paramount-crime-thriller-cast-succession-star-brian-cox/
+
+Dexter: Resurrection is prepping for another star-studded season, as Succession icon Brian Cox joins the cast as a new serial killer.
+---------
+
+# 'Bob's Burgers' Star Eugene Mirman Gives Health Update After Fiery Car Crash
+
+TV News, Bob's Burgers
+
+Fri, 03 Apr 2026 19:04:32 GMT
+
+https://movieweb.com/bobs-burgers-eugene-mirman-crash-update/
+
+The actor and comedian was pulled from an accident earlier this week.
+---------
+
+# Jacob Dudman's Dr. Asher Green Was Supposed To Be American in the 'Scrubs' Revival
+
+Features, Scrubs
+
+Fri, 03 Apr 2026 19:01:17 GMT
+
+https://movieweb.com/new-scrubs-revival-character-was-almost-very-different-exclusive/
+
+British actors playing American characters is commonplace in the entertainment industry, and it almost happened in the 'Scrubs' revival.
+---------
+
+# Oscar Isaac Addresses 'Very Challenging' Experience Playing Apocalypse in 2016's 'X-Men: Apocalypse'
+
+Movie News, Oscar Isaac, MCU, X-Men: Apocalypse
+
+Fri, 03 Apr 2026 18:39:54 GMT
+
+https://movieweb.com/oscar-isaac-challenging-x-men-apocalypse/
+
+Before joining the MCU, Oscar Isaac had a difficult experience with his first Marvel role, playing the villain in Fox's 'X-Men: Apocalypse.'
+---------
+
+# Netflix's Greatest Original Series Is a Masterpiece Thriller That Returns in Two Weeks & It's Time To Catch Up
+
+Features, Beef
+
+Fri, 03 Apr 2026 18:30:17 GMT
+
+https://movieweb.com/netflix-beef-returns-watch-season-two/
+
+Another iconic beef is set to make TV history. Cancel your weekend plans and beef up for a Season 1 rewatch.
+---------
+
+# Prime Video Finds New #1 Crime Thriller With $72M R-Rated Box Office Bomb
+
+Movie News, Crime 101, Hot on Streaming, Prime Video, Thriller
+
+Fri, 03 Apr 2026 18:01:17 GMT
+
+https://movieweb.com/crime-101-prime-video-streaming-hit-april-2026/
+
+'Crime 101' may have flopped in theaters, but the star-studded old-school crime thriller has found a second life on streaming.
+---------
+
+# 49 Years Later, This Iconic Quote From Classic Era 'Doctor Who' Hits Harder Than Ever
+
+Features, Doctor Who, Sci-Fi, Great Line
+
+Fri, 03 Apr 2026 18:01:17 GMT
+
+https://movieweb.com/doctor-who-greatest-sci-fi-quote/
+
+While 'Doctor Who's titular character often has words of wisdom to share, this Fourth Doctor quote is more relevant today than ever before.
+---------
+
 # Miranda Bailey's Future In Grey's Anatomy In Jeopardy Amid Season 22 Cliffhanger
 
 TV, Grey's Anatomy
