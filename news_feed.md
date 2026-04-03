@@ -1,3 +1,135 @@
+# The MCU Officially Retcons The New Avengers Just 9 Months Before Doomsday
+
+Streaming TV, Daredevil: Born Again
+
+Fri, 03 Apr 2026 23:46:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-new-avengers-mcu-retcon/
+
+The New Avengers don't appear to be all that powerful or resourceful considering how other parts of the MCU are shaping up ahead of Avengers: Doomsday
+---------
+
+# The Devil All The Time: A Crime Thriller With Tom Holland's Best Performance On Netflix
+
+Streaming TV, The Devil All The Time
+
+Fri, 03 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/tom-holland-the-devil-all-the-time-best-performances/
+
+Tom Holland might be best-known for his portrayal of Spider-Man in Marvel movies, but his performance in this Netflix gem is far better.
+---------
+
+# Crunchyroll's Best Anime Of 2026 Just Premiered With The Perfect 4 Part Weekend Binge
+
+Anime, Crunchyroll, Classroom of the Elite
+
+Fri, 03 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/classroom-elite-crunchyroll-best-anime-2026-binge/
+
+One of the best psychological anime series is back on Crunchyroll, and the new season dropped with not one, not two, but four amazing episodes.
+---------
+
+# The CW's 7-Part Sci-Fi Series Broke The Fourth Wall So Often, Fans Appeared On The Show
+
+Classic TV, Legends of Tomorrow
+
+Fri, 03 Apr 2026 23:16:19 GMT
+
+https://screenrant.com/legends-of-tomorrow-broke-fourth-wall-fan-cameos-youtube-reaction/
+
+The Arrowverse featured several shows that broke tradition and ended up all the better for it, but one show in particular broke all the rules.
+---------
+
+# Prime Video Officially Seals the Fate of The Runarounds
+
+TV, The Runarounds
+
+Fri, 03 Apr 2026 23:36:27 GMT
+
+https://www.cbr.com/the-runarounds-prime-video-canceled/
+
+Seven months after the eight-episode first season, Prime Video seals the series' future.
+---------
+
+# Resident Evil Reboot Reactions Revealed After Test Screening
+
+Movies, Resident Evil
+
+Fri, 03 Apr 2026 23:23:36 GMT
+
+https://www.cbr.com/resident-evil-2026-test-screening/
+
+Early reactions are revealed following a test screening for Zach Cregger's Resident Evil reboot.
+---------
+
+# Crunchyroll Releases 8 New Anime for Spring 2026 in Major Streaming Update
+
+Anime, Crunchyroll
+
+Fri, 03 Apr 2026 23:20:12 GMT
+
+https://www.cbr.com/crunchyroll-anime-spring-2026-streaming-release-date-update/
+
+Crunchyroll expands its massive Spring 2026 lineup with several new titles, including My Ribdiculous Reincarnation, Ace of the Diamond S2 and more.
+---------
+
+# Best Prime Video Shows to Binge This Weekend (April 3-5)
+
+TV, Prime Video, In Plain Sight, Grimm, Batman: Caped Crusader
+
+Fri, 03 Apr 2026 23:43:12 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-april-3/
+
+Grimm, Batman: Caped Crusader, and In Plain Sight make up our list of the best shows to watch on Prime Video the weekend of April 3, 2026.
+---------
+
+# Prime Video's 10/10 'Bosch' Spin-Off Takes a Colossal Step Forward
+
+TV News, Bosch, Ballard, Bosch: Legacy, Prime Video
+
+Fri, 03 Apr 2026 23:31:13 GMT
+
+https://collider.com/prime-video-bosch-spin-off-ballard-season-2-filming-start-update-april-2026/
+
+Bosch's newest spin-off has begun production on Season 2, with a premiere date expected soon.
+---------
+
+# George R.R. Martin’s Western Crime Thriller Sets Up a Truly Disturbing Showdown in Finale Sneak Peek [Exclusive]
+
+Exclusives, Dark Winds, Zahn McClarnon, AMC
+
+Fri, 03 Apr 2026 23:15:12 GMT
+
+https://collider.com/dark-winds-season-4-finale-sneak-peek-zahn-mcclarnon-crime-thriller/
+
+A new sneak peek at the Season 4 finale of Dark Winds serves up a deadly predicament for Zahn McClarnon. Watch it here!
+---------
+
+# 10 Sci-Fi Movies That Are Perfectly Written
+
+Movie, Sci-Fi, Eternal Sunshine of the Spotless Mind, Alien, The Matrix
+
+Fri, 03 Apr 2026 23:05:12 GMT
+
+https://collider.com/sci-fi-movies-perfectly-written/
+
+From The Matrix to Eternal Sunshine of the Spotless Mind, these sci-fi films blend sharp writing, emotion, and perfect structure.
+---------
+
+# Charlie Day Wants 'Always Sunny' Icon Danny Devito to Play Wario in 'Super Mario' Sequel
+
+Movie News, The Super Mario Galaxy Movie, It's Always Sunny in Philadelphia, Danny DeVito, Charlie Day
+
+Fri, 03 Apr 2026 23:16:31 GMT
+
+https://movieweb.com/super-mario-bros-wario-casting-danny-devito/
+
+Luigi voice actor Charlie Day thinks Danny DeVito would be the pefect pick to play Wario in a third 'Super Mario' movie.
+---------
+
 # Cyclops' New Codename Will Outrage His Fans. What Is X-Men Thinking?
 
 Comics, X-Men
