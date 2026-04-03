@@ -1,3 +1,168 @@
+# 9 Most Expensive Classic Rock Albums Ever Recorded
+
+Music, Classic Rock, Rock, The Beatles, Fleetwood Mac, Pink Floyd
+
+Fri, 03 Apr 2026 14:42:07 GMT
+
+https://screenrant.com/most-expensive-classic-rock-albums-ever/
+
+From Sgt. Pepper to Chinese Democracy, see which classic rock masterpieces turned into blank checks and cost millions to produce.
+---------
+
+# Bully Fans Unite Around Official 20th Anniversary Remake
+
+Gaming, Bully, PC
+
+Fri, 03 Apr 2026 14:30:56 GMT
+
+https://screenrant.com/bully-official-anniversary-remake-2026-fan-reaction/
+
+Bully may be controversial for some, but fans have come to an agreement around an official remake of the beloved Rockstar classic for modern consoles.
+---------
+
+# 10 Best Reference-Heavy Movies Of All Time, Ranked
+
+Movies, The Super Mario Galaxy Movie, Super Mario Bros.
+
+Fri, 03 Apr 2026 14:30:22 GMT
+
+https://screenrant.com/best-reference-heavy-movies-all-time-ranked/
+
+Now that The Super Mario Galaxy Movie is in theaters, it is the perfect time to revisit some of the greatest reference-filled movies ever made.
+---------
+
+# 2026 Spy Movie That Flopped In Theaters Becomes Instant Global Netflix Hit
+
+Movies, Streaming Charts
+
+Fri, 03 Apr 2026 14:23:34 GMT
+
+https://screenrant.com/humint-movie-netflix-streaming-success-april/
+
+A new spy movie that failed to make its budget back at the box office becomes a global streaming hit days after it premieres on Netflix.
+---------
+
+# Ridley Scott's $351M Sci-Fi Officially Releases On HBO Max After Becoming Franchise's "Best Installment" In Nearly 40 Years
+
+Movies, Alien: Romulus, Alien, HBO Max, Ridley Scott
+
+Fri, 03 Apr 2026 14:20:57 GMT
+
+https://screenrant.com/ridley-scott-alien-romulus-hbo-max-streaming-release-april-2026/
+
+The latest installment in Ridley Scott's beloved Sci-Fi franchise is getting released on HBO Max following the film's $351 million box office success.
+---------
+
+# The Super Mario Galaxy Movie Makes 1 Character One Of Nintendo's Most Powerful Heroes
+
+Movies, The Super Mario Galaxy Movie
+
+Fri, 03 Apr 2026 14:20:18 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-peach-power-boost/
+
+The Super Mario Galaxy Movie includes a pretty big power boost for one of Nintendo's oldest characters, making them a potentially galactic-level hero.
+---------
+
+# The Witcher Season 5: Rewriting Rules To Save Netflix Fantasy Show's Legacy
+
+Streaming TV, The Witcher
+
+Fri, 03 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/netflix-the-witcher-season-5-episode-count-save-franchise/
+
+One of Netflix's most popular fantasy shows is nearing its end, and to save its legacy and franchise, it must rewrite one of its own rules.
+---------
+
+# James Marsden's Jury Duty Return Confirmed In Time For Season 2 Finale
+
+TV, Jury Duty, Jury Duty Presents: Company Retreat
+
+Fri, 03 Apr 2026 14:11:36 GMT
+
+https://screenrant.com/james-marsden-jury-duty-season-2-return-confirmed/
+
+James Marsden is making a return to Jury Duty, and at the perfect time, as Prime Video has revealed the actor will be returning for season 2.
+---------
+
+# Superman's Biggest Monster Returns After 88 Years
+
+DC Comics, Superman
+
+Fri, 03 Apr 2026 14:01:18 GMT
+
+https://screenrant.com/superman-kryptonian-lore-drang-monster/
+
+Superman faces a classic Action Comics enemy for the first time in 88 years, rekindling his ties to DC Comics' Kryptonian history and lore.
+---------
+
+# For Pokémon Scarlet & Violet Fans, It's The End Of An Era
+
+Gaming, Pokemon Scarlet and Violet, Pokemon, Triple-A Games
+
+Fri, 03 Apr 2026 14:01:18 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-no-ranked-fan-reaction/
+
+With the arrival of another Pokémon game that prioritizes the turn-based battles of the series, Pokémon Scarlet & Violet's now faces a big change.
+---------
+
+# Crunchyroll’s Witch Hat Atelier Rewrites the Fantasy Blueprint From Scratch
+
+Anime, Witch Hat Atelier, Fantasy
+
+Fri, 03 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-magic-system-crunchyroll-new-fantasy-anime/
+
+A new fantasy anime with a delightfully dangerous power system is already taking over the Spring 2026 lineup.
+---------
+
+# Disney+'s Western Remake of a Cult Classic Is Taking Over Streaming
+
+TV, Lucky Luke, Western, Disney+
+
+Fri, 03 Apr 2026 14:02:11 GMT
+
+https://www.cbr.com/western-lucky-luke-disney-plus-streaming-success-april-2026/
+
+A surprising Western remake is dominating the charts, but this isn't good news for everyone.
+---------
+
+# 10 Weak Disney Movies That Left Fans Disappointed
+
+Movies, Disney
+
+Fri, 03 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/weak-disney-movies-list/
+
+Disney is known for their masterful works in animation and storytelling. However, there are plenty of Disney films that are far from fantastic.
+---------
+
+# Ryan Gosling Exits New Sci-Fi Action Film From ‘Everything Everywhere’ Duo
+
+Movie News, Ryan Gosling, Everything Everywhere All at Once
+
+Fri, 03 Apr 2026 14:37:45 GMT
+
+https://movieweb.com/ryan-gosling-exit-everything-everywhere-movie/
+
+Ryan Gosling will no longer play a role in the newest movie from 'Everything Everywhere All at Once' directors Daniel Kwan and Daniel Scheinert.
+---------
+
+# 'The Pitt' Season 3's Dr. Mohan Exit Could Make or Break the HBO Max Series
+
+Features, The Pitt
+
+Fri, 03 Apr 2026 14:01:16 GMT
+
+https://movieweb.com/the-pitt-season-3-creative-risk-mohan-leaving/
+
+'The Pitt' stars Noah Wyle as Dr. Robby, and Season 3 of the HBO Max medical drama won't include Dr. Samira Mohan (Supriya Ganesh).
+---------
+
 # PlayStation Plus Subscribers Urged To Play Unmissable Free Story-Driven Game Before It's Gone
 
 Gaming, PlayStation Plus, Lost Records: Bloom & Rage, Indie
