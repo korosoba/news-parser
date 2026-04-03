@@ -1,3 +1,124 @@
+# The Complete Star Trek Timeline Explained
+
+TV, Star Trek, Star Trek: The Motion Picture, Star Trek II: The Wrath of Khan, Star Trek III: The Search for Spock, Star Trek IV: The Voyage Home, Star Trek VI: The Undiscovered Country, Star Trek: Generations, Star Trek: First Contact, Star Trek: Nemesis, Star Trek: Insurrection, Star Trek Into Darkness, Star Trek Beyond, Star Trek 4, Star Trek: Section 31, Star Trek: Strange New Worlds, Star Trek: Prodigy, Star Trek Lower Decks, Star Trek: Discovery, Star Trek: Picard
+
+Fri, 03 Apr 2026 10:00:19 GMT
+
+https://screenrant.com/star-trek-complete-explained-tv-movies/
+
+Star Trek's timeline spans a thousand years of Starfleet and the United Federation of Planets, with alternate realities and time travel galore.
+---------
+
+# Uncharted 5 Leak Teases Nathan Drake's Long-Awaited Return
+
+Gaming, Uncharted, Uncharted: Drake's Fortune
+
+Fri, 03 Apr 2026 09:57:39 GMT
+
+https://screenrant.com/uncharted-5-leak-nathan-drake-return/
+
+Uncharted 5 could well be the other Naughty Dog game that's coming down the pipeline, but who's going to head it up?
+---------
+
+# Taylor Sheridan Changes Yellowstone History by Rewriting Colby's Death
+
+TV, Yellowstone, CBS, Marshals
+
+Fri, 03 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-rewrite-colby-yellowstone-death-in-marshals/
+
+CBS's Marshals revisits a disappointing moment from Yellowstone Season 5, as Kayce Dutton's CBS procedural reimagines Kevin Costner's legacy.
+---------
+
+# Terminator 2: Judgement Day Still Hasn't Been Topped By Hollywood
+
+Movies, Terminator 2: Judgment Day
+
+Fri, 03 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/terminator-2-judgment-day-unbeatable-action-masterpiece/
+
+Sequels don't often beat the original movie, but one action masterpiece has yet to be topped by any other movie.
+---------
+
+# The Legend of Zelda Film Steals a Key Strategy From The Lord of the Rings
+
+Movies, The Legend of Zelda, The Lord of the Rings, Nintendo
+
+Fri, 03 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/nintendo-legend-of-zelda-movie-filming-lord-of-the-rings-strategy/
+
+Nintendo's upcoming fantasy film is following in the footsteps of Peter Jackson's The Lord of the Rings film trilogy.
+---------
+
+# 'House of David' Just Set Up an Even Darker Twist on the Original Bible Story in Season 3
+
+TV Features, House of David, Prime Video, Michael Iskander, Drama
+
+Fri, 03 Apr 2026 10:31:12 GMT
+
+https://collider.com/house-of-david-season-3-setup-david-uriah-darker-turn-prime-video/
+
+House of David sets up an even darker take on the classic Bible story, hinting at a tragic betrayal in Season 3.
+---------
+
+# Disney's Stephen King-Approved Sci-Fi Thriller Is Officially Taking Over the World
+
+TV News, Paradise, Hulu, Sci-Fi, Thriller
+
+Fri, 03 Apr 2026 10:30:12 GMT
+
+https://collider.com/disney-paradise-season-2-sci-fi-thriller-streaming-success-hulu-april-2026/
+
+A Stephen King-approved dystopian sci-fi thriller tops Hulu charts worldwide, with Season 3 already confirmed.
+---------
+
+# Prime Video’s $72M Alt-History Thriller Is One of Its Best Original Shows on Any Streaming Platform
+
+TV Features, The Man in the High Castle, Philip K. Dick, Alexa Davalos, Netflix
+
+Fri, 03 Apr 2026 10:12:12 GMT
+
+https://collider.com/the-man-in-the-high-castle-best-prime-video-thriller/
+
+The Man in the High Castle expanded on Philip K. Dick's book, envisioning what would happen if the Nazis won World War II.
+---------
+
+# 10 Greatest Crime TV Shows You Can Binge in One Week, Ranked
+
+TV, Crime, Mindhunter, Sherlock, The Penguin
+
+Fri, 03 Apr 2026 10:09:12 GMT
+
+https://collider.com/best-crime-shows-binge-one-week-ranked/
+
+Discover the top crime TV shows perfect for binge-watching in a week, thanks to gripping stories and intense suspense, from Mindhunter to Sherlock.
+---------
+
+# One of the Biggest Box Office Bombs of 2026 Hits Streaming on April 7
+
+Movie News, The Bride!, Christian Bale, Jessie Buckley, Horror
+
+Fri, 03 Apr 2026 10:00:12 GMT
+
+https://collider.com/the-bride-divisive-horror-movie-streaming-pvod-april-7-2026/
+
+Here comes The Bride! Jessie Buckley and Christian Bale's divisive 2026 horror movie is coming home after bombing at the box office.
+---------
+
+# Apple TV's Forgotten 10-Part War Drama Is the Perfect Weekend Binge
+
+TV Features, The New Look, Apple TV, Ben Mendelsohn, Juliette Binoche
+
+Fri, 03 Apr 2026 09:58:12 GMT
+
+https://collider.com/the-new-look-apple-tv-best-weekend-binge/
+
+The New Look is a forgotten 10-episode historical drama on Apple TV starring Ben Mendelsohn and Juliette Binoche that's your next weekend binge.
+---------
+
 # Steam Makes Iconic Survival Game 100% Free Until April 6
 
 Gaming, Steam, Subnautica
