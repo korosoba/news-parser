@@ -1,3 +1,80 @@
+# Cyberpunk: Edgerunners Revives Video Game Franchise with Perfect Anime Adaptation
+
+Streaming TV, Cyberpunk: Edgerunners
+
+Fri, 03 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/netflix-cyberpunk-edgerunners-animated-series-improved-franchise/
+
+Cyberpunk: Edgerunners, Netflix's anime adaptation of the notorious video game franchise, is one of the best sci-fi shows of the past decade.
+---------
+
+# Who Is The Main Character In The Drama, Anyway? Your Answer Might Change How You See The Film
+
+Movies, The Drama
+
+Fri, 03 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/the-drama-charlie-emma-main-character-op-ed/
+
+The Drama's split between Charlie and Emma highlights two very different character arcs that come together to make the ending all the more powerful.
+---------
+
+# John Wayne Western Big Jake Is a Paramount+ Streaming Hit 55 Years Later
+
+Movies, Big Jake
+
+Fri, 03 Apr 2026 21:55:10 GMT
+
+https://www.cbr.com/big-jake-paramount-plus-april-2026/
+
+Over five decades later, Western fans are revisiting the final film to co-star John Wayne and Maureen O'Hara.
+---------
+
+# The Princess Bride Has the Greatest Twist in Fantasy Movie History
+
+Movies, The Princess Bride
+
+Fri, 03 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/the-princess-bride-not-left-handed-greatest-twist-fantasy-movies/
+
+The fantasy genre has countless great twists and turns, yet one iconic fantasy twist is clearly the best and still untouchable.
+---------
+
+# 3 Best Movies To Watch on Prime Video This Weekend (April 3-5)
+
+Movie, Prime Video, top gun, American Fiction, Titanic
+
+Fri, 03 Apr 2026 21:49:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-april-3/
+
+American Fiction, Top Gun, and Titanic make up our list of the best movies to watch on Prime Video the weekend of April 3rd, 2026.
+---------
+
+# 10 Greatest Crime Movies Hollywood's Golden Age Ever Produced
+
+Movie, Crime, Double Indemnity, 12 Angry Men, On The Waterfront
+
+Fri, 03 Apr 2026 21:35:13 GMT
+
+https://collider.com/best-crime-movies-hollywood-golden-age/
+
+From mysteries like Dial M for Murder to film noirs like Double Indemnity, these are the best crime movies produced during Hollywood's Golden Age.
+---------
+
+# Every Must-See Movie Streaming in April 2026
+
+Features
+
+Fri, 03 Apr 2026 21:30:18 GMT
+
+https://movieweb.com/movies-streaming-april-2026/
+
+Here are all the movies coming to streaming in April 2026, including new titles to Netflix, Paramount+, Prime Video, and HBO Max.
+---------
+
 # 10 Fantasy Shows That Are Even Better The Second Time Around
 
 Classic TV, Fantasy
