@@ -1,3 +1,179 @@
+# Hogwarts Legacy Getting Controversial Remaster, Gamers Aren't Completely Sold
+
+Gaming, Hogwarts Legacy, Nvidia
+
+Fri, 03 Apr 2026 11:30:25 GMT
+
+https://screenrant.com/hogwarts-legacy-remaster-2026-dlss5-gamer-reactions/
+
+Hogwarts Legacy is getting the DLSS 5 treatment, and it's safe to say nobody is happy with what it does to the visuals.
+---------
+
+# GTA 5 Free To Play For Millions Until April 15
+
+Gaming, Grand Theft Auto, Grand Theft Auto 5, Grand Theft Auto 6
+
+Fri, 03 Apr 2026 11:01:18 GMT
+
+https://screenrant.com/gta-5-free-april-2026-game-pass/
+
+GTA V is seemingly being removed from Game Pass once again, with a little over six months to the release of the sequel.
+---------
+
+# The 8 Darkest Words in Zelda History Still Haven't Been Topped in 25 Years
+
+Games, The Legend of Zelda, The Legend of Zelda: Majora's Mask, Nintendo
+
+Fri, 03 Apr 2026 11:20:12 GMT
+
+https://www.cbr.com/best-zelda-quotes-majoras-mask-terrible-fate/
+
+These words don't offer Link any comfort or encouragement.
+---------
+
+# Magic: The Gathering Secrets Of Strixhaven Mechanics
+
+Games, Magic: The Gathering, Magic: the Gathering (animated)
+
+Fri, 03 Apr 2026 11:15:12 GMT
+
+https://www.cbr.com/magic-the-gathering-strixhaven-new-mechanics-returning/
+
+Magic: The Gathering's upcoming Secrets of Strixhaven set is introducing brand-new mechanics that tie into the setting's focus on scholarly pursuits.
+---------
+
+# 10 Reasons Why The Legend of Zelda Needs A Comic Book Series
+
+Comics, The Legend of Zelda
+
+Fri, 03 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/why-the-legend-of-zelda-needs-a-comic-book-universe/
+
+The Legend of Zelda is perfect for a comic adaptation.
+---------
+
+# Hololive Officially Seals the Fate of Its New Global Release Holostars
+
+Anime, YouTube
+
+Fri, 03 Apr 2026 10:43:44 GMT
+
+https://www.cbr.com/hololive-ends-holostars-support-global-release/
+
+Hololive is ceasing significant support for its underperforming worldwide branch, which will likely result in more graduations in the future.
+---------
+
+# Prime Video's Best 3-Part Romantic Series Is Finally Returning
+
+Movie News, Prime Video, The Summer I Turned Pretty, Romance, Jenny Han
+
+Fri, 03 Apr 2026 11:30:14 GMT
+
+https://collider.com/prime-video-ya-series-the-summer-i-turned-pretty-movie-filming-date-april-27-2026/
+
+Prime Video's most popular YA series has released an exciting update on its upcoming movie, suggesting a filming start date.
+---------
+
+# 10 Longest-Running TV Spin-Offs, Ranked
+
+TV, Young Sheldon, CSI: Miami, NCIS, Better Call Saul
+
+Fri, 03 Apr 2026 11:23:13 GMT
+
+https://collider.com/longest-spin-off-shows-ranked/
+
+Dive into the longest-running TV spin-offs that have built their own legacies and attracted new fans, from Better Call Saul to NCIS.
+---------
+
+# How Quentin Tarantino's Unexpected 'Once Upon a Time...' Spinoff Set the Stage for David Fincher's Netflix Sequel
+
+Movie Features, The Adventures of Cliff Booth, Quentin Tarantino, Brad Pitt, Once Upon a Time in Hollywood
+
+Fri, 03 Apr 2026 11:21:12 GMT
+
+https://collider.com/once-upon-a-time-in-hollywood-novel-sets-up-sequel-adventures-of-cliff-booth-quentin-tarantino/
+
+Quentin Tarantino expanded the story of Once Upon a Time... in Hollywood in a novelization that might offer hints about The Adventures of Cliff Booth.
+---------
+
+# 8 Forgotten Epic Movies That Have Aged Like Fine Wine
+
+Movie, Reds, The Thin Red Line, The New World, The Last of the Mohicans
+
+Fri, 03 Apr 2026 11:07:12 GMT
+
+https://collider.com/forgotten-epic-movies-aged-like-fine-wine/
+
+Brilliant epics like Terrence Malick's The New World and Warren Beatty's Reds have aged gracefully despite being outright forgotten by most audiences.
+---------
+
+# The Greatest Kids TV Series Ever Made Is Now Streaming for Free
+
+TV News, Sesame Street, Jim Henson, The Jim Henson Company, Tubi
+
+Fri, 03 Apr 2026 11:01:12 GMT
+
+https://collider.com/seasme-street-250-episodes-free-streaming-tubi-april-2026/
+
+Sesame Street is officially on free streaming, with 250 classic episodes of the long-running classic now available to watch right now.
+---------
+
+# 7 Most Perfect TV Dramas of the Last 10 Years, Ranked
+
+TV, Drama, The Pitt, Paradise, Succession
+
+Fri, 03 Apr 2026 10:47:12 GMT
+
+https://collider.com/most-perfect-tv-dramas-last-10-years-ranked/
+
+HBO Max's The Pitt, Hulu's Paradise, and Apple TV's Severance are among the best TV dramas of the last decade, but which show is the greatest?
+---------
+
+# 8 Worst Musicals of All Time, Ranked by a Fan of the Genre
+
+Movie, Cats, Musical, Emilia Perez, Dear Evan Hansen
+
+Fri, 03 Apr 2026 10:39:12 GMT
+
+https://collider.com/worst-movie-musicals/
+
+A lifelong fan musicals ranks some of the worst, most embarrassing movies in the genre, including Cats, Dear Evan Hansen, and The Apple.
+---------
+
+# 26 Years Ago, Scream's Quietly Forgotten Entry Was Truly Ahead of Its Time
+
+Movie Features, Scream, Wes Craven, Scream 3, Neve Campbell
+
+Fri, 03 Apr 2026 10:38:14 GMT
+
+https://collider.com/scream-3-underrated-ahead-of-its-time/
+
+Wes Craven's Scream 3 is often overlooked in the slasher franchise, but its pre-#MeToo movement coverage of Hollywood abuse deserves some respect.
+---------
+
+# 'Avatar: Fire & Ash's Oona Chaplin Reveals Best Part of Streaming Blockbuster at Home [Exclusive]
+
+Exclusives, Avatar: Fire and Ash, Action, Sci-Fi
+
+Fri, 03 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/avatar-fire-ash-chaplin-digital-best/
+
+Ahead of 'Avatar: Fire and Ash' coming to digital, Oona Chaplin shared exclusively with MovieWeb what she is excited to see in its home release.
+---------
+
+# Masterpiece Crime Thriller Celebrates 30th Anniversary on Free Streaming
+
+Features, Primal Fear, Thriller, Edward Norton, Crime
+
+Fri, 03 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/primal-fear-thriller-30th-anniversary/
+
+Even 30 years after its release, Richard Gere and Edward Norton's twisty thriller continues to shock audiences.
+---------
+
 # The Complete Star Trek Timeline Explained
 
 TV, Star Trek, Star Trek: The Motion Picture, Star Trek II: The Wrath of Khan, Star Trek III: The Search for Spock, Star Trek IV: The Voyage Home, Star Trek VI: The Undiscovered Country, Star Trek: Generations, Star Trek: First Contact, Star Trek: Nemesis, Star Trek: Insurrection, Star Trek Into Darkness, Star Trek Beyond, Star Trek 4, Star Trek: Section 31, Star Trek: Strange New Worlds, Star Trek: Prodigy, Star Trek Lower Decks, Star Trek: Discovery, Star Trek: Picard
