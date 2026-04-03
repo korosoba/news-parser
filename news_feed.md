@@ -1,3 +1,223 @@
+# PlayStation Plus Subscribers Urged To Play Unmissable Free Story-Driven Game Before It's Gone
+
+Gaming, PlayStation Plus, Lost Records: Bloom & Rage, Indie
+
+Fri, 03 Apr 2026 13:54:21 GMT
+
+https://screenrant.com/playstation-plus-free-last-chance-lost-records/
+
+An unmissable story-driven game available for free on PlayStation Plus will soon leave the catalog, so you’d better move fast if you want to play it.
+---------
+
+# Joel Kinnaman's Crime Thriller 'Bishop' Joins Amazon's Library of Crime Series
+
+Streaming TV, Bishop
+
+Fri, 03 Apr 2026 13:45:19 GMT
+
+https://screenrant.com/joel-kinnaman-crime-thriller-prime-video-bishop-bosch-replacement/
+
+Amazon Prime Video is becoming the home of great crime drama TV shows, and Joel Kinnaman's upcoming Bishop is the next series to be added.
+---------
+
+# Outlander Season 8, Episode 5 Recap & Discussion: Jamie Makes A Deal With The Devil
+
+Streaming TV, Outlander
+
+Fri, 03 Apr 2026 13:38:16 GMT
+
+https://screenrant.com/outlander-season-8-episode-5-ending-explained/
+
+Things are really heating up in Outlander season 8, as episode 5, "Send for the Devil," follows conflicts on both Fraser's Ridge and Savannah.
+---------
+
+# All 4 Invincible Seasons, Ranked Worst To Best
+
+TV, Invincible
+
+Fri, 03 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/invincible-tv-show-seasons-ranked/
+
+Invincible season 4 is telling the next story in the saga, but how does it rank when compared to seasons 1, 2, and 3 of the beloved Prime Video show?
+---------
+
+# Magic: The Gathering Fans Should Pay Attention To April 7
+
+Gaming, Magic: The Gathering, tabletop games
+
+Fri, 03 Apr 2026 13:30:18 GMT
+
+https://screenrant.com/magic-gathering-documentary-kickstarter-launch/
+
+A big celebration of the Magic: The Gathering community is on its way, and Screen Rant can exclusively reveal the Kickstarter launch of the project.
+---------
+
+# Prime's Neagley Spinoff Can Restore 1 Key Part Of Reacher The Series Has Avoided
+
+TV, Reacher, Neagley
+
+Fri, 03 Apr 2026 13:30:18 GMT
+
+https://screenrant.com/neagley-spinoff-reacher-said-nothing-rule-show-avoid/
+
+Reacher will be making a guest appearance on the forthcoming spinoff Neagley, which can restore a key rule for the character from the books.
+---------
+
+# Blumhouse Vehemently Reveals Whether Brendan Fraser Is In New R-Rated Mummy Movie
+
+Movies, Lee Cronin's The Mummy
+
+Fri, 03 Apr 2026 13:23:22 GMT
+
+https://screenrant.com/the-mummy-lee-cronin-no-brendan-fraser-blumhouse/
+
+Blumhouse confirms whether Brendan Fraser is in the R-rated Mummy movie, setting the stage for a separate franchise from the 90s/00s films.
+---------
+
+# One Piece Episode #1156 Release Date And Time
+
+Anime, One Piece
+
+Fri, 03 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/one-piece-episode-1156-release-date-time/
+
+When does One Piece episode #1156 come out?
+---------
+
+# Kit Harington's TV Drama Role Is What Everyone Wanted Jon Snow To Be
+
+Streaming TV, Game Of Thrones
+
+Fri, 03 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/kit-harington-tale-of-two-cities-jon-snow-role/
+
+Jon Snow didn't get the ending that most people were hoping for at the end of Game of Thrones, but Kit Harington's next role should satisfy.
+---------
+
+# New Super Mario Galaxy Movie Tie-In Game Officially Releases Today
+
+Gaming, The Super Mario Galaxy Movie, Monopoly, tabletop games
+
+Fri, 03 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-game-monopoly/
+
+The Super Mario Galaxy Movie is getting a game, although it's nothing like the Super Mario Galaxy video games that defined the concept.
+---------
+
+# Sylvester Stallone's Escape Plan Trilogy Is Now Available on Pluto TV
+
+Movies, sylvester stallone, Escape Plan
+
+Fri, 03 Apr 2026 13:12:35 GMT
+
+https://www.cbr.com/sylvester-stallone-escape-plan-trilogy-pluto-tv-streaming-april-2026/
+
+Three of Sylvester Stallone's most divisive films are now available to stream for free, making for the perfect weekend-long binge.
+---------
+
+# Marvel Officially Releases Spider-Man/Superman Preview (Exclusive)
+
+Comics, Spider-Man, Superman
+
+Fri, 03 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/marvel-officially-releases-superman-spider-man-preview-exclusive/
+
+CBR exclusively reveals a first look page at one of the backup stories from the upcoming Spider-Man/Superman crossover event
+---------
+
+# Netflix's New Scooby-Doo Reboot Still Needs to Break a Historic 24-Year-Old Series Curse
+
+TV, Scooby-Doo, Netflix, Scooby-Doo (Live Action)
+
+Fri, 03 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/netflix-scooby-doo-reboot-needs-to-break-historic-curse/
+
+As fans await the Netflix reboot of Scooby-Doo, the last two decades of the franchise serve as a warning against trying too much all at once.
+---------
+
+# 3 Best Free Movies To Stream This Weekend: April 3-5, 2026
+
+Movies
+
+Fri, 03 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/best-free-streaming-movies-april-3-5-2026/
+
+Looking for something exciting for your next movie night? These terrific films are all available to stream for free.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 3, 2026
+
+TV, Parks and Recreation, Party Down, Severance, The State
+
+Fri, 03 Apr 2026 13:01:12 GMT
+
+https://collider.com/tv-quiz-apr-3-2026-parks-and-recreation-party-down/
+
+Whether you're an innie or an outie, you've undoubtedly enjoyed the workplace comedies of Adam Scott. Let's Party Down with Parks and Recreation.
+---------
+
+# 'The Pitt' Star Opens Up About Santos and Garcia's Complicated Relationship
+
+Exclusives, Isa Briones, The Pitt, Ladies Night, Noah Wyle
+
+Fri, 03 Apr 2026 13:00:12 GMT
+
+https://collider.com/the-pitt-season-2-isa-briones-santos-garcia-relationship/
+
+The Pitt's Isa Briones addresses how Santos feels about Robby leaving, her failing relationship with Garcia, and more.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 3, 2026
+
+Movie, The Wizard of Oz, Wicked, Wicked: For Good, Return to Oz
+
+Fri, 03 Apr 2026 12:59:12 GMT
+
+https://collider.com/movie-quiz-apr-3-2026-wizard-of-oz/
+
+The Wizard of Oz used to be televised around Easter every year. So in that tradition, we're taking this opportunity to test your Emerald City acumen.
+---------
+
+# Action Spy Thriller 'Humint' Quickly Becomes Netflix's New #1 Movie
+
+Movie News, Netflix, Action, Thriller
+
+Fri, 03 Apr 2026 13:01:16 GMT
+
+https://movieweb.com/netflix-top-humint-stream-april-2026-action/
+
+After debuting the action thriller earlier this week, 'Humint' has quickly climbed to the global top spot on the streamer.
+---------
+
+# 'The Mummy 4' Premieres the Same Year as the Original 1932 Movie Enters the Public Domain
+
+Features, The Mummy 4, The Mummy
+
+Fri, 03 Apr 2026 13:01:16 GMT
+
+https://movieweb.com/the-mummy-4-release-year-important/
+
+Copyright protection doesn't last forever, and 2028 is a harsh reminder of that for the 'Mummy' franchise. Read on for more.
+---------
+
+# 'Bonfire of the Vanities' Series Adaptation in the Works at Apple TV
+
+TV News, Matt Reeves, Bonfire of the Vanities
+
+Fri, 03 Apr 2026 12:45:35 GMT
+
+https://movieweb.com/apple-tv-bonfire-vanities-series/
+
+David E. Kelley has been hired as showrunner, with Matt Reeves reportedly ready to direct.
+---------
+
 # The Last Of Us Fans Heartbroken Over Canceled Game
 
 Gaming, The Last of Us, The Last of Us: Part 1, PC
