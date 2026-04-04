@@ -1,3 +1,69 @@
+# Stephen Amell's Baywatch Reboot Will Avoid The Mistake That Killed Suits LA
+
+Network TV, Suits LA
+
+Sat, 04 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/stephen-amell-baywatch-reboot-avoids-suits-la-mistake/
+
+Suits LA failed to live up to its high expectations, but Stephen Amell's Baywatch reboot is already learning from the spinoff's biggest mistake.
+---------
+
+# You Are a Genius if You Understood These 8 Movies the First Time
+
+Movie, Mulholland Drive, Donnie Darko, Mirror, Inland Empire
+
+Sat, 04 Apr 2026 11:47:12 GMT
+
+https://collider.com/genius-understood-these-movies-the-first-time/
+
+Movies like Mulholland Drive and Primer delight in being challenging, and if you understood them the first time, then you are a true cinematic genius.
+---------
+
+# 20 Years Later, Paramount+’s Thriller Series Is So Good It Could Go On Forever
+
+TV Features, Criminal Minds, Zach Gilford, A.J. Cook, Paget Brewster
+
+Sat, 04 Apr 2026 11:47:12 GMT
+
+https://collider.com/criminal-minds-paramount-thriller-series-streaming/
+
+Criminal Minds has thrived on television for over 20 years, and the show's ability to adapt and evolve keeps it relevant and terrifying.
+---------
+
+# Even a $196M Budget Couldn’t Save This Franchise-Destroying Sci-Fi Reboot Now Streaming on Paramount+
+
+Movie News, Terminator: Dark Fate, Arnold Schwarzenegger, Linda Hamilton, James Cameron
+
+Sat, 04 Apr 2026 11:46:12 GMT
+
+https://collider.com/terminator-dark-fate-sci-fi-reboot-streaming-paramount-plus-april-2026/
+
+Despite the direct involvement of James Cameron, Terminator: Dark Fate derailed the franchise entirely. Here's where you can watch it this month.
+---------
+
+# Horror Movie With the Greatest 3rd-Act Twist of all Time Is So Good, People Are Rewatching It Multiple Times
+
+Movie News, Weapons, Horror, Prime Video, Streaming
+
+Sat, 04 Apr 2026 11:31:12 GMT
+
+https://collider.com/weapons-streaming-success-prime-video-april-2026/
+
+The 2025 horror movie that won a surprise Academy Award is proving popular on streaming again. Here's what you should know about Weapons.
+---------
+
+# Bong Joon Ho's Animated Feature Debut 'Ally' Gets First Look Image
+
+Movie News, Bong Joon  Ho, Parasite, Animation
+
+Sat, 04 Apr 2026 11:35:49 GMT
+
+https://movieweb.com/bong-joon-ho-ally-first-look/
+
+'Parasite' director Bong Joon-ho has unveiled a first look at his debut animated feature film, 'Ally,' about a curious piglet squid.
+---------
+
 # Superman's New Spinoff Set In James Gunn's DCU Is Splitting The Fanbase
 
 Movies, Supergirl, DC
