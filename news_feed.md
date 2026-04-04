@@ -1,3 +1,135 @@
+# Prime Video's New The Boys Series With Jensen Ackles Gets Official Release Window
+
+TV, Vought Rising, The Boys, Prime Video
+
+Sat, 04 Apr 2026 19:24:44 GMT
+
+https://screenrant.com/the-boys-series-vought-rising-prime-video-release-window-eric-kripke/
+
+The Boys creator Eric Kripke shares the release window for the upcoming prequel series Vought Rising, starring Jensen Ackles as Soldier Boy.
+---------
+
+# Prime Video's Upcoming Sci-Fi Miniseries Will Show Dune How It's Done
+
+Streaming TV, Blade Runner 2099, Dune: Prophecy
+
+Sat, 04 Apr 2026 19:15:20 GMT
+
+https://screenrant.com/prime-video-blade-runner-2099-series-show-dune-prophecy/
+
+Prime Video's Blade Runner 2099 is coming to show the disappointing Dune: Prophecy how to successfully turn a sci-fi movie franchise into a TV series.
+---------
+
+# Apple TV's Excellent 9-Part Sci-Fi Is The X-Files' Best Spiritual Successor
+
+Streaming TV, Pluribus
+
+Sat, 04 Apr 2026 19:00:18 GMT
+
+https://screenrant.com/apple-tv-pluribus-x-files-spiritual-successor/
+
+Pluribus feels like a full-length episode of The X-Files, with its plot, and Vince Gilligan's directing style, which made an impact on the 1990s show.
+---------
+
+# Love On The Spectrum Season 5 Confirmed By Netflix With One Fan Favorite Star Exiting
+
+Reality TV, Love on the Spectrum
+
+Sat, 04 Apr 2026 18:57:42 GMT
+
+https://screenrant.com/love-on-the-spectrum-season-5-renewal-connor-tomlinson-exit/
+
+Love on the Spectrum has captivated audiences for four seasons, but this shock exit could ruin what made the reality series great.
+---------
+
+# All Active Codes In Pokémon Legends: Z-A
+
+Gaming, Pokemon Legends Z-A, Pokemon, Triple-A Games
+
+Sat, 04 Apr 2026 18:44:50 GMT
+
+https://screenrant.com/pokemon-legends-za-all-mystery-gifts-codes/
+
+Mystery Gifts provide a continual stream of rewards for Pokémon Legends: Z-A players, but you'll need to have codes on-hand to access some.
+---------
+
+# Deadly Class Lands on Tubi 7 Years After Cancellation
+
+TV, Deadly Class
+
+Sat, 04 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/deadly-class-tubi-streaming-april-2026/
+
+The short-lived, underrated series resurfaces on a free streaming home seven years after its run.
+---------
+
+# Netflix's Train Dreams Is One of the Most Heartbreaking Westerns of the 21st Century
+
+Movies, Train Dreams, Netflix, Western
+
+Sat, 04 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/train-dreams-best-modern-western-movies-on-netflix/
+
+Joel Edgerton delivers a career-best performance in Netflix’s most underrated modern Western.
+---------
+
+# 6 Most Important Guy Ritchie Movies That Define His Filmography
+
+Movie, Guy Ritchie, Guy Ritchie's The Covenant, Snatch, Sherlock Holmes
+
+Sat, 04 Apr 2026 19:13:13 GMT
+
+https://collider.com/most-important-guy-ritchie-movies-define-filmography/
+
+Snatch, Sherlock Holmes, and The Covenant are among the most important movies of Guy Ritchie's filmography, defining his specific directing style.
+---------
+
+# Disney’s Riskiest Original Sci-Fi Movie Is Officially Taking Over Netflix
+
+Movie News, The Creator, Gareth Edwards, Sci-Fi, Netflix
+
+Sat, 04 Apr 2026 19:01:13 GMT
+
+https://collider.com/gareth-edwards-risky-sci-fi-epic-the-creator-streaming-success-netflix-april-2026/
+
+The Creator is finding a new audience on Netflix in the U.S., years after becoming one of 2023’s most debated sci-fi movies.
+---------
+
+# ‘Reacher’ Needs To Fix Its Most Predictable Pattern Ahead of Season 4
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Lee Child
+
+Sat, 04 Apr 2026 18:44:12 GMT
+
+https://collider.com/reacher-love-interest-predictable-patterns-explained/
+
+Reacher keeps falling back on the same romantic formula, but Season 4 has the perfect chance to shake up the show’s most familiar pattern.
+---------
+
+# Netflix’s 10-Part Cowboy Western Series Is Perfect for a Weekend Binge
+
+TV Features, Ransom Canyon, Josh Duhamel, Eoin Macken, Minka Kelly
+
+Sat, 04 Apr 2026 18:38:12 GMT
+
+https://collider.com/netflix-ransom-canyon-western-series-weekend-binge/
+
+Ransom Canyon follows a tight-knit Texas community full of complicated relationships where ranch families clash over land and resources.
+---------
+
+# 'Ben-Hur': The Greatest Biblical Epic Ever Made Still Can't Be Beat After 67 Years
+
+Features, Ben-Hur, Holds Up
+
+Sat, 04 Apr 2026 19:00:17 GMT
+
+https://movieweb.com/ben-hur-greatest-biblical-epic-recommendation/
+
+'Ben-Hur' remains a masterpiece after nearly seven decades as a testament to the scale and ambition of old Hollywood.
+---------
+
 # 10 Funniest Far Side Comics That Make Numbers Hilarious
 
 Comics, The Far Side
