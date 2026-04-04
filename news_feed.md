@@ -1,3 +1,91 @@
+# Superman's New Spinoff Set In James Gunn's DCU Is Splitting The Fanbase
+
+Movies, Supergirl, DC
+
+Sat, 04 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/supergirl-dcu-movie-visuals-different-fans-expectations/
+
+James Gunn's DCU Supergirl movie trailer is sparking mixed reactions from fans, with some praising the visuals and others comparing it to Guardians of the Galaxy.
+---------
+
+# Zelda's Switch 2 Debut Setting And Era Leaves Gamers Split
+
+Gaming, The Legend of Zelda, Nintendo Switch 2
+
+Sat, 04 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/zelda-switch-2-debut-setting-era-fan-reaction/
+
+The potential setting and direction for the first Zelda game on the Switch 2 has a lot of players asking for a fresh start.
+---------
+
+# Taylor Sheridan's Marshals Delivers Yellowstone's First Cliffhanger on CBS
+
+TV, CBS, Marshals, Yellowstone, Western
+
+Sat, 04 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/taylor-sheridan-first-yellowstone-cliffhanger-in-marshals/
+
+Taylor Sheridan delivers a historic first for the Yellowstone franchise in Marshals, as Kayce Dutton and the US Marshals hunt human traffickers.
+---------
+
+# Robert Mitchum Has a Secret Role in Tombstone
+
+Movies, Tombstone
+
+Sat, 04 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/robert-mitchum-secret-role-tombstone-explained/
+
+The legendary actor Robert Mitchum had a secret role in one of the best Western movies that was ever made, and it was completely perfect for him.
+---------
+
+# 10 Nintendo Games That Need Comic Book Series
+
+Comics, Nintendo
+
+Sat, 04 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/nintendo-games-that-would-be-amazing-comics/
+
+Nintendo needs to start printing comics right now.
+---------
+
+# This 5-Part Crime Thriller on Hulu Is One of the Best on Any Streaming Platform
+
+TV Features, Damages, Rose Byrne, Glenn Close, Thriller
+
+Sat, 04 Apr 2026 11:18:12 GMT
+
+https://collider.com/damages-crime-thriller-hulu-best-on-streaming/
+
+For 5 seasons, Rose Byrne and Glenn Close led Damages, a razor-sharp crime thriller available to binge on Hulu.
+---------
+
+# 10 'Breaking Bad' Episodes That Are Bangers From Start to Finish
+
+TV, Breaking Bad, Aaron Paul, Bryan Cranston, Vince Gilligan
+
+Sat, 04 Apr 2026 11:14:12 GMT
+
+https://collider.com/best-breaking-bad-episodes-bangers/
+
+Breaking Bad has many flawless episodes, with "One Minute" and "Crawl Space" standing out as among the real bangers.
+---------
+
+# Disappointing Fantasy Sequel Takes Over Streaming 5 Months Later
+
+Movie News, Wicked: For Good, Peacock, streaming, Ariana Grande
+
+Sat, 04 Apr 2026 11:00:13 GMT
+
+https://collider.com/wicked-for-good-streaming-success-peacock-april-2026/
+
+After a box office run that couldn't top the original, Wicked: For Good is making up for lost time on streaming, becoming a hit at home.
+---------
+
 # PlayStation Plus Users Vowing To Cancel Subscription Over Price Increase
 
 Gaming, PlayStation 5, PlayStation Plus
