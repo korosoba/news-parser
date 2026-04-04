@@ -1,3 +1,80 @@
+# Dark Souls: The Beast Presence Will Scratch Your Bloodborne 2 Itch
+
+Gaming, Bloodborne, PC, Dark Souls, Dark Souls 3
+
+Sat, 04 Apr 2026 09:30:19 GMT
+
+https://screenrant.com/dark-souls-beast-presence-unofficial-expansion/
+
+If you're looking for something to fill that Bloodborne 2-shaped hole in your heart, Dark Souls: The Beast Presence is an absolute must-play.
+---------
+
+# Daredevil’s Most Influential Writer Has Officially Been Crowned, And It’s Not The One Fans Think
+
+Comics, Daredevil, Daredevil: Born Again, Marvel
+
+Sat, 04 Apr 2026 09:01:17 GMT
+
+https://screenrant.com/daredevil-most-important-writer-bendis-not-miller/
+
+Daredevil has some of the most consistently great storytelling in Marvel comics, but one writer has been significantly influential for modern stories.
+---------
+
+# Pokémon Kanto Eternal Takes Players Back To The Series' Roots
+
+Gaming, Pokemon
+
+Sat, 04 Apr 2026 09:01:17 GMT
+
+https://screenrant.com/pokemon-kanto-eternal-free-download-rom-hack/
+
+Pokémon Kanto Eternal puts a spin on the Gen 1 region by introducing Megas, Z Moves, and a whole lot more. You'll want to check it out.
+---------
+
+# Ben Affleck's 'Bosch' Team-Up Spy Thriller Is Officially Leaving Streaming
+
+Movie News, Ben Affleck, Argo, John Goodman, Alan Arkin
+
+Sat, 04 Apr 2026 09:21:14 GMT
+
+https://collider.com/ben-affleck-oscar-snub-thriller-argo-leaving-peacock-april-2026/
+
+Ben Affleck's crowd-pleasing thriller Argo couldn't score him a Best Director nod at the Oscars; it recently vacated its streaming home. Find out more
+---------
+
+# 10 Greatest HBO Shows You Can Binge in One Week, Ranked
+
+TV, HBO, Succession, The Last of Us, Chernobyl
+
+Sat, 04 Apr 2026 09:18:12 GMT
+
+https://collider.com/best-hbo-shows-binge-one-week-ranked/
+
+Discover the HBO series perfect for a week-long binge, thanks to gripping stories and unforgettable characters, from Succession to The Last of Us.
+---------
+
+# Showtime Removes the “Sickening” Crime-Thriller Marilyn Monroe Almost Starred In
+
+Movie News, The Killer Inside Me, Casey Affleck, Kate Hudson, Jessica Alba
+
+Sat, 04 Apr 2026 09:00:13 GMT
+
+https://collider.com/killer-inside-me-sickening-crime-thriller-leaving-paramount-plus-showtime-april-2026/
+
+A controversial crime thriller criticized for featuring graphic violence has lost one of its streaming homes. Find out more.
+---------
+
+# Paramount+ Removes 87% RT Neo-Noir Thriller From ‘The Queen's Gambit’ Creator
+
+Movie News, The Lookout, Joseph Gordon-Levitt, Jeff Daniels, Scott Frank
+
+Sat, 04 Apr 2026 08:40:12 GMT
+
+https://collider.com/joseph-gordon-levitt-the-lookout-neo-noir-thriller-leaving-streaming-paramount-plus-april-2026/
+
+Scott Frank's neo-noir gem The Lookout is leaving is streaming home this April. Find out more.
+---------
+
 # The Batman: Part II Makes The Hard Choice That Spider-Man: Brand New Day Refuses To
 
 Superheroes, The Batman Part II, Spider-Man: Brand New Day, DC, Marvel
