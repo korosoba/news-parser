@@ -1,3 +1,267 @@
+# GTA 6 Local Co-Op Multiplayer Leaves Gamers Torn
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 04 Apr 2026 04:02:20 GMT
+
+https://screenrant.com/gta-6-local-multiplayer-gamer-reactions/
+
+Fans aren't in agreement when it comes to local co-op multiplayer in GTA 6, as the series continues to push forward into newer generations.
+---------
+
+# Prime Video's Upcoming Space Opera Based On Iconic Book Series Can Replace Star Trek
+
+Star Trek
+
+Sat, 04 Apr 2026 03:46:15 GMT
+
+https://screenrant.com/prime-video-consider-phlebas-space-opera-star-trek-replace/
+
+Star Trek may go through a rough patch, but Prime Video's upcoming space opera based on an award-winning book series can help make it easier on fans.
+---------
+
+# Uncharted Fans Split Over Nathan Drake’s Replacement For Uncharted 5
+
+Gaming, Uncharted, Naughty Dog, Triple-A Games
+
+Sat, 04 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/uncharted-5-nathan-drake-replacement-gamers-react/
+
+Uncharted 5 rumors are in the wind, and they have once again stirred discourse about whether or not Nathan Drake should return to the franchise.
+---------
+
+# Did You Catch The Super Mario Galaxy Movie's Kirby Reference?
+
+Movies, The Super Mario Galaxy Movie
+
+Sat, 04 Apr 2026 02:31:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-kirby-reference/
+
+One beloved Nintendo character was notably absent from The Super Mario Galaxy Movie, but eagle-eyed fans have caught a sneaky reference to him.
+---------
+
+# Netflix's 4-Part Crime Thriller Beats Out Matthew McConaughey's The Lincoln Lawyer Movie With 1 Key Change
+
+Streaming TV, The Lincoln Lawyer
+
+Sat, 04 Apr 2026 02:21:52 GMT
+
+https://screenrant.com/the-lincoln-lawyer-movie-show-hayley-haller/
+
+Matthew McConaughey's The Lincoln Lawyer is a popular legal thriller movie, but Netflix's crime-thriller TV show beat it thanks to a character change.
+---------
+
+# Pokémon Fans Torn Over Bizarre Transfer Issues In Gen 10
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sat, 04 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/pokemon-winds-waves-transfer-spanish-language-info/
+
+Pokémon transfers will have one big limitation in Winds and Waves, and it could be a serious blow to compatibility for a certain set of fans.
+---------
+
+# Transformers Brings Lost G1 Arcee Design to Life With New 40th Anniversary Action Figure
+
+Anime, Transformers, merchandise, The Transformers: The Movie, toys, action figures
+
+Sat, 04 Apr 2026 03:59:12 GMT
+
+https://www.cbr.com/transformers-secret-agent-arcee-takara-tomy-action-figure/
+
+The first G1 Arcee never was never produced, but it lives on 40 years later in an upcoming high-end release from the Transformers MPG series.
+---------
+
+# The Darkest Anime Masterpieces That Only Get More Tragic
+
+Anime, Neon Genesis Evangelion, Death Note
+
+Sat, 04 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/darkest-anime-masterpieces-most-tragic-moments/
+
+Not every anime is sunshine and rainbows, but titles like Death Note and Higurashi: When They Cry show just how dark and depressing anime can get.
+---------
+
+# 6 War Shows Better Than Band of Brothers
+
+TV, War, Band of Brothers, Generation Kill, The Liberator
+
+Sat, 04 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/war-tv-shows-better-than-band-of-brothers-list/
+
+War shows tackle various conflicts throughout history, and while Band of Brothers is the standard, other shows have surpassed it.
+---------
+
+# Magic: The Gathering Secrets Of Strixhaven Set Preview
+
+Games, Magic: The Gathering, Magic: the Gathering (animated)
+
+Sat, 04 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/magic-the-gathering-secrets-of-strixhaven-preview/
+
+Magic: The Gathering Secrets of Strixhaven is returning to the school, giving players the chance to experience a new side of the popular academy.
+---------
+
+# Detective Pikachu 2 Is the Perfect Place for Team Rocket’s Live-Action Debut
+
+Movies, Detective Pikachu, Pokemon
+
+Sat, 04 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/detective-pikachu-2-perfect-for-team-rocket-live-action-debut/
+
+Detective Pikachu is a sequel Pokémon fans are still clamoring for, and it can't be done without Team Rocket appearing.
+---------
+
+# 45 Years Ago, Donkey Kong Saved Nintendo Forever
+
+Games, Donkey Kong, Nintendo
+
+Sat, 04 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/45-years-ago-donkey-kong-saved-nintendo-forever/
+
+A legal battle between Nintendo and Universal over Donkey Kong would change gaming forever.
+---------
+
+# Solo Leveling Reclaims No. 1 in New Oricon Manga Sales Ranking
+
+Anime, Solo Leveling
+
+Sat, 04 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/solo-leveling-volume-24-oricon-sales-ranking-win/
+
+Following its Crunchyroll award snub, Solo Leveling's latest manhwa volume hits the top of Japan's manga sales charts, winning over JJK and One Piece.
+---------
+
+# Digimon’s New 3-Part Cyberpunk Series Is Launching a New Era
+
+Anime, Digimon, Digimon Beatbreak
+
+Sat, 04 Apr 2026 02:46:12 GMT
+
+https://www.cbr.com/digimon-beatbreak-gift-arc-cyberpunk-series-new-era/
+
+The announcement of Digimon Beatbreak's newest saga -- the Gift Arc -- teases the anime's bigger plans and a path forward for the franchise's future.
+---------
+
+# Jensen Ackles' Forgotten Sci-Fi Show Dark Angel Deserves a Reboot More that Supernatural
+
+TV, Jensen Ackles, Supernatural, Dark Angel, Sci-Fi
+
+Sat, 04 Apr 2026 02:46:12 GMT
+
+https://www.cbr.com/jensen-ackles-dark-angel-deserves-sci-fi-reboot/
+
+Jensen Ackles is famous for his role in Supernatural. But while one show deserves a return, another series of his should come back even more.
+---------
+
+# Best Boys' Love Anime For New Fans
+
+Anime, Boys' Love, yaoi, LGBTQ, Banana Fish, Yuri on Ice
+
+Sat, 04 Apr 2026 02:30:12 GMT
+
+https://www.cbr.com/best-bl-anime-recommendation-yaoi/
+
+Boys' love, also known as Yaoi, has found a wide audience both within and beyond the LGBTQ+ viewership, exploring romance from a new point of view.
+---------
+
+# 8 Most Perfect Movies of the Last 11 Years, Ranked
+
+Movie, Parasite, Mad Max: Fury Road, Arrival, Sinners
+
+Sat, 04 Apr 2026 04:08:13 GMT
+
+https://collider.com/most-perfect-movies-last-11-years-ranked/
+
+Modern classics like Arrival, The Batman, and Mad Max: Fury Road are among the most perfect movies released over the last 11 years.
+---------
+
+# One of James Cameron’s Favorite Series Is This 2-Part Prime Video Fantasy Masterpiece
+
+TV Features, James Cameron, The Lord of the Rings: The Rings of Power, Avatar, Prime Video
+
+Sat, 04 Apr 2026 04:02:14 GMT
+
+https://collider.com/james-cameron-favorite-series-rings-of-power-prime-video-fantasy-masterpiece/
+
+Director James Cameron has drawn inspiration from Prime Video's The Lord of the Rings: The Rings of Power, praising its intricate worldbuilding.
+---------
+
+# NBC's Best New Mockumentary Sitcom Has Officially Arrived on Netflix
+
+TV Features, St. Denis Medical, Netflix, David Alan Grier, Wendi McLendon-Covey
+
+Sat, 04 Apr 2026 03:41:13 GMT
+
+https://collider.com/netflix-nbc-st-denis-medical-now-streaming/
+
+St. Denis Medical follows the dysfunctional staff at a second-rate ER in Oregon as they navigate hilarious scenarios and relatable experiences.
+---------
+
+# 10 Most Perfect Movie Endings of All Time, Ranked
+
+Movie, The Empire Strikes Back, Chinatown, Casablanca, Ending
+
+Sat, 04 Apr 2026 03:09:18 GMT
+
+https://collider.com/most-perfect-movie-endings-ranked/
+
+Classic movies like Chinatown, Casblanca, and The Empire Strikes Back stand out for having truly perfect endings.
+---------
+
+# Netflix’s 6-Part Dark Masterpiece Makes Its Strangest Clue the Scariest Detail
+
+TV Features, Netflix, The Chestnut Man, Thriller, Noir
+
+Sat, 04 Apr 2026 03:03:12 GMT
+
+https://collider.com/netflix-masterpiece-thriller-series-the-chestnut-man/
+
+Netflix’s six-part series, The Chestnut Man, turns a tiny doll into a terrifying clue in a dark thriller about murder and buried trauma.
+---------
+
+# Netflix Confirms New Price Hike, and Its 2026 Plans May Explain Why
+
+TV Features, Netflix, Stranger Things, The Adventures of Cliff Booth, Monster: The Ed Gein Story
+
+Sat, 04 Apr 2026 01:55:13 GMT
+
+https://collider.com/netflix-subscription-price-raise-2026-explained/
+
+Netflix's expansive 2026 plans, with interactive content, blockbuster films, and live programming, might justify the price hike for subscribers.
+---------
+
+# 'Breaking Bad’s 10 Greatest Monologues, Ranked
+
+TV, Breaking Bad, Vince Gilligan, Bryan Cranston, Aaron Paul
+
+Sat, 04 Apr 2026 01:43:13 GMT
+
+https://collider.com/breaking-bad-best-monologues-ranked/
+
+Breaking Bad is one of the most perfectly written dramas in TV history, with great monologues from characters like Walter White and Jesse Pinkman.
+---------
+
+# Forget 'Reacher': These 8 2020s Thriller Series Have Much Better Action
+
+TV Lists, Reacher
+
+Sat, 04 Apr 2026 02:01:17 GMT
+
+https://movieweb.com/thriller-shows-better-action-than-reacher/
+
+Who's the final boss of thriller TV? Jack Reacher is the most popular action hero, but that doesn't mean he's the best.
+---------
+
 # Season 2 of Netflix's Best Action Thriller Is Officially Out, and It's the Perfect Weekend Binge
 
 Anime, Netflix, Bloodhounds - Season 2, Bloodhounds
