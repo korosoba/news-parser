@@ -1,3 +1,157 @@
+# Best Class Respec Options For The Baldur's Gate 3 Companions
+
+Gaming, PC, Baldur's Gate 3, Triple-A Games
+
+Sat, 04 Apr 2026 20:05:43 GMT
+
+https://screenrant.com/baldurs-gate-3-respec-classes-companions/
+
+Overhaul your campaign with the best class respec options for each companion in Baldur's Gate 3, aligning their canonical abilities and backstories.
+---------
+
+# D&D's New Free Feats Will Make You The Ultimate Edgelord At Every Table
+
+Tabletop, Dungeons and Dragons, tabletop games, Dungeons & Dragons
+
+Sat, 04 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/dnd-free-new-feats-update-villainous-ua/
+
+Four new subclasses have just been dropped for free for Dungeons and Dragons, but they aren’t the only exciting new additions to the TTRPG.
+---------
+
+# Prime Video's Sherlock Show Officially Brings Back A Controversial Part Of Benedict Cumberbatch's Series
+
+Streaming TV, Young Sherlock, Sherlock
+
+Sat, 04 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/young-sherlock-prime-video-james-moriarty-problem/
+
+Prime Video's Young Sherlock series revives a controversial issue from the BBC's Sherlock — but this time around, it poses an even bigger problem.
+---------
+
+# MCU Stars Dominate Prime Video's U.S. Charts Ahead of Avengers: Doomsday
+
+Movies, Sinners, Avengers: Doomsday, Weapons
+
+Sat, 04 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/mcu-stars-dominate-prime-video-charts-before-avengers-doomsday-april-2026/
+
+Multiple movies starring MCU stars are currently dominating the Prime Video charts in the US, ahead of the highly anticipated Avengers: Doomsday.
+---------
+
+# 10 Perfect Double Features To Watch With 'Predator: Badlands'
+
+Movies, aliens, Predator, Predator: Badlands, Prey
+
+Sat, 04 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/predator-badlands-perfect-double-feature/
+
+Dan Trachtenberg brought the Predator franchise back to life but there are more than enough films to pair with Predator: Badlands.
+---------
+
+# Chainsaw Man Fans Hold Funeral for Series Creator
+
+Anime, Chainsaw Man
+
+Sat, 04 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/chainsaw-man-tatsuki-fujimoto-fan-funeral/
+
+Chainsaw Man fans hold a real-life funeral for the series' creator after being left unsatisfied by the manga's recent conclusion.
+---------
+
+# 10 Forgotten '80s Fantasy Shows That Nobody Remembers Today
+
+TV, Amazing Stories, She-Ra: Princess of Power, Dungeons & Dragons, Fantasy
+
+Sat, 04 Apr 2026 20:11:12 GMT
+
+https://collider.com/forgotten-80s-fantasy-tv-shows/
+
+Explore the most overlooked fantasy TV shows from the 1980s, featuring unique premises and memorable characters, from Amazing Stories to She-Ra.
+---------
+
+# Netflix’s Cancelled 10-Part Sci-Fi Thriller Is So Good, It Needs To Come Back 7 Years Later
+
+TV Features, The Society, Netflix, Kathryn Newton, Science Fiction
+
+Sat, 04 Apr 2026 20:06:12 GMT
+
+https://collider.com/the-society-netflix-cancelled-sci-fi-thriller-worth-watching/
+
+Netflix’s The Society remains a gripping sci-fi thriller worth watching—and still deserves a long-overdue Season 2.
+---------
+
+# Netflix’s Most Addictive 2-Part Sci-Fi Series Got an Incredible Cyberpunk Anime Prequel
+
+TV Features, Altered Carbon, Altered Carbon: Resleeved, Netflix, Cyberpunk: Edgerunners
+
+Sat, 04 Apr 2026 20:06:12 GMT
+
+https://collider.com/netflix-altered-carbon-resleeved-cyberpunk-anime-prequel/
+
+Altered Carbon captured sci-fi fans' imagination when it first premiered, and Netflix capitalized on this with the Altered Carbon: Resleeved movie.
+---------
+
+# 10 Animated Fantasies With the Most Beautiful Visuals
+
+Movie, Animation, Fantasy, Puss in Boots: The Last Wish, Fantasia
+
+Sat, 04 Apr 2026 20:04:12 GMT
+
+https://collider.com/animated-fantasy-movies-most-beautiful-visuals/
+
+From Ghibli classics like Princess Mononoke to modern gems like Puss in Boots: The Last Wish, these animated fantasy films have the prettiest visuals.
+---------
+
+# One of 'Breaking Bad's Biggest Inspirations Is Back on Streaming After Nearly 60 Years
+
+Movie News, Once Upon a Time in the West, Sergio Leone, Western, Henry Fonda
+
+Sat, 04 Apr 2026 20:00:12 GMT
+
+https://collider.com/breaking-bad-inspiration-once-upon-a-time-in-the-west-iconic-western-epic-streaming-paramount-plus-april-2026/
+
+Sergio Leone's iconic Western, Once Upon a Time in the West, is now streaming on a new platform. Find out more.
+---------
+
+# Hope Is an Illusion: The Darkest TV Shows of All Time
+
+TV Lists
+
+Sat, 04 Apr 2026 20:00:19 GMT
+
+https://movieweb.com/darkest-tv-shows-of-all-time/
+
+The TV shows on this list strip away any semblance of hope and drag us through the mud of despair.
+---------
+
+# The Best Western Ever Made, 'The Good, the Bad and the Ugly,' is Streaming for Free on Pluto TV
+
+Movie News, The Good, the Bad and the Ugly, Pluto TV, Coming/Leaving Streaming, Western
+
+Sat, 04 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/good-the-bad-and-the-ugly-western-streaming-free-pluto-april-2026/
+
+The greatest western of all time, Clint Eastwood's 'The Good, the Bad and the Ugly,' is streaming for free on Apple TV+.
+---------
+
+# This Prophetic Quote From Cyberpunk Creator Must Be Repeated in Apple's New Sci-fi Series
+
+Features, Neuromancer, Great Line
+
+Sat, 04 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/neuromancer-cyberspace-prophetic-quote/
+
+Four decades after William Gibson's novel, 'Neuromancer', this prophetic quote will hit harder than ever on TV.
+---------
+
 # Star Wars Completely Upgrades An Iconic Aspect Of Disney+'s TV Shows For New Prequel Series
 
 TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars, Darth Maul
