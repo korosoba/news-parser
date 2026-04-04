@@ -1,3 +1,212 @@
+# The Last Of Us Part 3 Existence Has Fans Hyped: "I Cannot Express My Joy"
+
+Gaming, The Last of Us Part 2
+
+Sat, 04 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/last-of-us-part-3-gamers-react/
+
+Naughty Dog's Neil Druckmann hints at the potential for a third installment in The Last of Us franchise.
+---------
+
+# The Mummy 4 Has A Canon Way To Wipe The Worst Sequel From The Timeline
+
+Movies, The Mummy 4, The Mummy
+
+Sat, 04 Apr 2026 16:55:19 GMT
+
+https://screenrant.com/mummy-4-tomb-dragon-emperor-sequel-wipe-paperback/
+
+The upcoming legacy sequel The Mummy 4 is set to ignore the worst sequel in the franchise, but there's actually a fun, canonical way to do this.
+---------
+
+# New Elden Ring Leak Reveals Important Lore Moment
+
+Gaming, Elden Ring, Triple-A Games, PC
+
+Sat, 04 Apr 2026 16:48:44 GMT
+
+https://screenrant.com/elden-ring-cut-content-miquella-haligtree-cutscene/
+
+FromSoftware games are notorious for shifting drastically mid-development, but an important Elden Ring scene was left on the cutting room floor.
+---------
+
+# Apple TV's 2-Part Sci-Fi Thriller Series Just Rewrote A $2 Billion Cinematic Universe
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse, Apple TV
+
+Sat, 04 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-season-2-time-travel-twist-rewrites-monsterverse/
+
+Apple TV's most ambitious Sci-Fi series includes a major twist that rewrites the rules of a $2 billion cinematic universe in a huge way.
+---------
+
+# For All Mankind Officially Gives Ed Baldwin One Final Heroic Moment
+
+Streaming TV, For All Mankind
+
+Sat, 04 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/for-all-mankind-season-5-ed-baldwin-hero-moment-save-lee/
+
+Ed Baldwin has been the heart and soul of For All Mankind for five seasons, but it's now time for the series to look ahead at who will take the lead.
+---------
+
+# HBO Max's John Wick Franchise: A 5-Part Action Thriller Epic
+
+Movies, John Wick
+
+Sat, 04 Apr 2026 16:40:19 GMT
+
+https://screenrant.com/hbo-max-john-wick-best-action-thriller-epic/
+
+HBO Max has an incredible five-part action-thriller franchise that features a skilled assassin who returns to a dangerous world to seek revenge.
+---------
+
+# 10 Elden Ring Quests You Won't Believe Got Cut
+
+Gaming, Elden Ring, Elden Ring: Shadow of the Erdtree, PC
+
+Sat, 04 Apr 2026 16:31:20 GMT
+
+https://screenrant.com/10-best-cut-elden-ring-quests/
+
+Fans of Elden Ring might be surprised to learn just how much content didn't make it in the final cut, and these quests could've been game-changers.
+---------
+
+# 8 Shows That Came Out Of Nowhere And Took The World By Storm
+
+Streaming TV, Netflix
+
+Sat, 04 Apr 2026 16:31:20 GMT
+
+https://screenrant.com/hows-became-surprising-hits/
+
+Not every TV series is a hit from the start, and some of the greatest shows of all time were total slow burns as they climbed the ranks.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Available Until April 6
+
+Games, Red Dead Redemption 2, Red Dead Redemption
+
+Sat, 04 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-download-officially-available-2026/
+
+Exclusively until April 6, Red Dead Redemption fans can download what may be some of the game's last DLC for absolutely free.
+---------
+
+# Ronin Featured Robert De Niro at His Best
+
+Movies, Ronin
+
+Sat, 04 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/robert-de-niro-ronin-underrated-action-movie-thriller/
+
+Ronin is often overlooked today, but it features great performances from Robert De Niro and the rest of the cast and amazing shootouts and car chases.
+---------
+
+# Jensen Ackles' Vought Rising Confirms Release Window 4 Days Ahead of The Boys Season 5 Debut
+
+TV, The Boys, Vought Rising
+
+Sat, 04 Apr 2026 16:50:32 GMT
+
+https://www.cbr.com/jensen-ackles-vought-rising-release-window/
+
+Although the flagship series is ending, the franchise continues.
+---------
+
+# 8 Crime Shows That Only Get Better After Season 2
+
+TV, Crime
+
+Sat, 04 Apr 2026 16:30:15 GMT
+
+https://www.cbr.com/crime-shows-that-improve-after-season-2/
+
+Many great crime shows take time to hit their stride. The following standout series became more focused and unforgettable after Season 2.
+---------
+
+# The Best Animated Movies From Every Year of The 1990s
+
+Movies, Animation, Toy Story, Disney
+
+Sat, 04 Apr 2026 16:30:15 GMT
+
+https://www.cbr.com/best-animated-movie-every-year-1990s/
+
+The 1990s experienced a renaissance of great animated movies, with each year producing a slew of classics that have aged like fine wine.
+---------
+
+# Bungo Stray Dogs' Main Characters, Explained
+
+Anime, BUNGOU STRAY DOGS
+
+Sat, 04 Apr 2026 16:30:15 GMT
+
+https://www.cbr.com/bungo-stray-dogs-characters-explained/
+
+Bungo Stray Dogs has given a lot of detail to its main characters, many of whom have been given official heights, ages, and birthdays.
+---------
+
+# 13 Years Later, Denzel Washington and Mark Wahlberg’s Gritty Action Thriller Is a Streaming Hit
+
+Movie News, 2 Guns, Mark Wahlberg, Denzel Whitaker, Action
+
+Sat, 04 Apr 2026 17:00:12 GMT
+
+https://collider.com/denzel-washington-mark-wahlberg-gritty-action-thriller-2-guns-streaming-success-starz-april-2026/
+
+2 Guns is getting renewed attention on Starz, reminding viewers how much fun Denzel Washington and Mark Wahlberg were together.
+---------
+
+# The Secret Behind 'Ramayana's Epic Scale Goes Beyond the Groundbreaking Visuals
+
+Exclusives, Ramayana, Ranbir Kapoor, Nitesh Tiwari, Namit Malhotra
+
+Sat, 04 Apr 2026 16:56:57 GMT
+
+https://collider.com/ramayana-director-nitesh-tiwari-part-1-2-ranbir-kapoor-yash-vfx-imax-interview/
+
+Director Nitesh Tiwari discusses balancing massive VFX with the emotional core of this timeless epic, emphasizing the characters and emotional heart.
+---------
+
+# 'The Boys' Creator Confirms Release Window for Jensen Ackles' Prequel Spin-Off [Exclusive]
+
+Exclusives, The Boys, Vought Rising, Jensen Ackles, Eric Kripke
+
+Sat, 04 Apr 2026 16:40:02 GMT
+
+https://collider.com/vought-rising-the-boys-prequel-spin-off-release-date-2027-jensen-ackles/
+
+Eric Kripke confirmed a loose release window for The Boys' spin-off, Vought Rising, and whether or not plans are in place for Season 2 and beyond.
+---------
+
+# 10 Box Office Smashes That Surprised No One
+
+Movie, Avengers: Endgame, Star Wars: The Force Awakens, Deadpool & Wolverine, The Super Mario Bros. Movie
+
+Sat, 04 Apr 2026 16:36:12 GMT
+
+https://collider.com/box-office-smashes-that-surprised-no-one/
+
+From 'Avengers: Endgame' to 'The Force Awakens', these massive hits felt inevitable long before release and still shattered records.
+---------
+
+# The First DC/Marvel Crossover Movie Seems More Likely Than Ever
+
+Features, DCU, MCU
+
+Sat, 04 Apr 2026 17:00:16 GMT
+
+https://movieweb.com/dc-marvel-crossover-movie-possible/
+
+Many fans are wondering if the superhero synergy might carry over to the DC and Marvel Cinematic Universes sooner than later.
+---------
+
 # Mark Harmon's Candid Reaction To NCIS' Latest Major Death Revealed By Exiting Star
 
 Network TV, NCIS
