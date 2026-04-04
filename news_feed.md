@@ -1,3 +1,14 @@
+# Cyberpunk 2077 Getting Official Late April Release
+
+Gaming, Cyberpunk 2077, PC
+
+Sat, 04 Apr 2026 06:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-night-city-samurai-release-april-2026/
+
+Fans are excited to return to Night City in epic fashion with an official and brand-new Cyberpunk 2077 release scheduled for late April 2026.
+---------
+
 # Fallout Legends Is Massive, Will Keep You Busy Till Fallout 5
 
 Gaming, Fallout
