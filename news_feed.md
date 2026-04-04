@@ -1,3 +1,47 @@
+# 10 Highest Grossing Non-Disney Animated Movies Of All Time At The U.S. Box Office
+
+Movies, Box Office
+
+Sat, 04 Apr 2026 14:41:19 GMT
+
+https://screenrant.com/non-disney-animated-movies-highest-grossing-domestic-box-office/
+
+While Disney dominates lists of the highest-grossing animated movies, other studios produce quality animation that performs well at the box office.
+---------
+
+# Crunchyroll Is Finally Fixing Its Biggest Anime Awards Controversy
+
+Anime, Crunchyroll, Solo Leveling
+
+Sat, 04 Apr 2026 14:31:20 GMT
+
+https://screenrant.com/crunchyroll-anime-year-award-solo-leveling-season-2-not-nominated/
+
+The Anime Awards are worth watching again.
+---------
+
+# Why The Nanny Is Considered The Modern I Love Lucy
+
+Classic TV, The Nanny, I Love Lucy
+
+Sat, 04 Apr 2026 14:31:20 GMT
+
+https://screenrant.com/the-nanny-tv-show-modern-i-love-lucy/
+
+I Love Lucy is one of the most influential TV shows of all time, and 36 years after its ending, a perfect sitcom became its modern version.
+---------
+
+# Zelda: Ocarina Of Time Remake Comparison Footage Has Gamers Stunned
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sat, 04 Apr 2026 14:31:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-unofficial-remake-comparison/
+
+Ocarina of Time is one of the greatest games of all time for many, but with a visual update things are looking a whole lot better.
+---------
+
 # Glen Powell's Role In Super Mario Galaxy Continues Actor's Casting Trend
 
 Movies, The Super Mario Galaxy Movie
