@@ -1,3 +1,212 @@
+# The Super Mario Galaxy Movie & Project Hail Mary Rocket Easter Weekend Past Huge Box Office Record
+
+Movies, Box Office, The Super Mario Galaxy Movie, Super Mario Bros., Project Hail Mary
+
+Sat, 04 Apr 2026 15:35:42 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-box-office-opening-weekend-domestic-chart-report/
+
+The Super Mario Galaxy Movie and Project Hail Mary push the domestic box office past a major record in their respective first and third weekends.
+---------
+
+# 17 Best Seeds For Minecraft 1.21 Java Edition
+
+Gaming, Minecraft, PC
+
+Sat, 04 Apr 2026 15:31:21 GMT
+
+https://screenrant.com/minecraft-best-seeds-java-edition/
+
+The Java Edition in Minecraft has a variety of discovered seeds that can create beautiful or challenging worlds best suited for a new adventure.
+---------
+
+# Why Bosch Prequel Start Of Watch Doesn't Need Titus Welliver
+
+Streaming TV, Bosch, Bosch: Start of Watch
+
+Sat, 04 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/bosch-prequel-show-no-titus-welliver-makes-sense/
+
+It's the right decision for Prime Video's new prequel series Bosch: Start of Watch not to involve Harry Bosch actor Titus Welliver in any way.
+---------
+
+# The Best Dinosaur Movie In Years Is Now Officially On Streaming & Its Major Jurassic Park Difference Is Exciting
+
+Movies, Primitive War, Jurassic Park
+
+Sat, 04 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/primitive-war-dinosaur-movie-hulu-release-jurassic-park-difference/
+
+The most exciting dinosaur movie in years has been released on streaming, and its CGI and differences to the Jurassic Park franchise make it worth it.
+---------
+
+# Rachel McAdams' New Movie Brilliantly Combines Two Of The Most Underrated Horror Subgenres
+
+Movies, Send Help, Rachel McAdams, Explainer, Horror
+
+Sat, 04 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/send-help-movie-rachel-mcadams-eat-the-rich-good-for-her-tropes/
+
+Two storytelling tropes have been gaining popularity in horror movies over the past few years, and Rachel McAdams' new film brilliantly combines them.
+---------
+
+# Netflix's Returning 3-Season Comedy Series Is No. 1 Worldwide Streaming Hit
+
+TV, XO, Kitty, XO, Kitty - Season 3
+
+Sat, 04 Apr 2026 15:13:59 GMT
+
+https://screenrant.com/xo-kitty-season-3-netflix-streaming-hit-april/
+
+The third season of the series XO, Kitty dropped on April 2, and the teenage romantic comedy already reached the number one spot on Netflix.
+---------
+
+# Persona 4 Revival Release Window Leak Has Fans Conflicted
+
+Gaming, Persona 4 Golden, Persona, Triple-A Games, PC
+
+Sat, 04 Apr 2026 15:06:25 GMT
+
+https://screenrant.com/persona-4-revival-release-window-leak-funko/
+
+The latest update suggests Persona 4 Revival could be coming later than hoped, but there's still reason to believe it might not be that dire.
+---------
+
+# Chainsaw Man Gets The Crossover Of Our Dreams, Post-Finale
+
+Anime, Chainsaw Man, Dandadan
+
+Sat, 04 Apr 2026 15:01:19 GMT
+
+https://screenrant.com/chainsaw-man-dandadan-crossover-official/
+
+The best Chainsaw Man crossover is finally here.
+---------
+
+# How Star Wars’ New Darth Maul TV Show Fits Into The Star Wars Timeline
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Sat, 04 Apr 2026 15:01:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-timeline/
+
+Darth Maul's brand-new TV series, Star Wars: Maul - Shadow Lord, will explore a pivotal period in the Star Wars Timeline—especially for Maul.
+---------
+
+# Netflix’s 5-Part Psychological Thriller Series Is So Good, You Need To Watch It More Than Once
+
+TV, You
+
+Sat, 04 Apr 2026 15:01:19 GMT
+
+https://screenrant.com/netflix-you-psychological-thriller-better-on-rewatch/
+
+Netflix's iconic psychological thriller is even better on a second watch, as the mounting tension and clever plotting become easier to appreciate.
+---------
+
+# 30 Years Later, Gundam's Most Controversial Reboot Is Still Perfect For Shonen Anime Fans
+
+Anime, Mobile Suit Gundam, Mobile Fighter G Gundam, mecha, Shonen
+
+Sat, 04 Apr 2026 15:35:41 GMT
+
+https://www.cbr.com/g-gundam-most-controversial-reboot/
+
+G Gundam has never received a true sequel or similar counterpart, but a new Super Robot Gundam anime could easily bring in fans of battle shonen.
+---------
+
+# Anthony Mackie's Desert Warrior Promises Sicario Meets Mad Max Debuts April 2026
+
+Movies, Action, Desert Warrior, Avengers, Marvel
+
+Sat, 04 Apr 2026 15:31:12 GMT
+
+https://www.cbr.com/anthony-mackie-sicario-meets-mad-max-action-packed-thriller-releases-april/
+
+Anthony Mackie isn't waiting until Avengers: Doomsday — his upcoming action film, Desert Warrior, promising a high-octane ride that thrills.
+---------
+
+# Former MCU Star Jonathan Majors Falls Through A Window on Movie Set, Crew Is Now on Strike
+
+Movies, Jonathan Majors
+
+Sat, 04 Apr 2026 15:15:15 GMT
+
+https://www.cbr.com/jonathan-majors-falls-through-window-movie-set-crew-strike/
+
+As Majors is getting his career back on track, his film is plagued with a major controversy.
+---------
+
+# 10 Hardest Game Boy Advance Games of All Time, Ranked By Difficulty
+
+Games, Nintendo, retro games
+
+Sat, 04 Apr 2026 15:00:15 GMT
+
+https://www.cbr.com/hardest-gba-games-all-time-ranked-by-difficulty/
+
+Some GBA games, like Mario Kart: Super Circuit and Metroid Fusion, are much harder than players remember.
+---------
+
+# HBO's 3-Part Period Drama Is One of the Best on Any Streaming Platform
+
+TV Features, The Gilded Age, HBO, Julian Fellowes, Drama
+
+Sat, 04 Apr 2026 15:08:12 GMT
+
+https://collider.com/gilded-age-hbo-period-drama-best-streaming/
+
+HBO's The Gilded Age explores the clash between old and new money in 19th-century New York, with complex characters and stunning costumes.
+---------
+
+# One of the Biggest Action Franchises Ever Is Dominating HBO Max
+
+Movie News, Vin Diesel, Dwayne Johnson, The Fate of the Furious, HBO Max
+
+Sat, 04 Apr 2026 15:01:37 GMT
+
+https://collider.com/vin-diesel-dwayne-johnson-f8-fate-of-the-furious-streaming-success-hbo-max-april-2026/
+
+Audiences can’t stop re-watching the Fast and Furious movie where Vin Diesel and Dwayne Johnson’s ongoing feud began.
+---------
+
+# Books With the Most Movie Adaptations
+
+Movie Lists, Drama
+
+Sat, 04 Apr 2026 15:00:24 GMT
+
+https://movieweb.com/books-most-adapted/
+
+Literature is the perfect mining ground for movie plots. Throughout the years, the following books have been adapted way more times than the rest.
+---------
+
+# Margot Robbie's Wild R-Rated Masterpiece 'The Wolf of Wall Street' Has a New Streaming Home
+
+Movie News, The Wolf of Wall Street, Coming/Leaving Streaming, Margot Robbie
+
+Sat, 04 Apr 2026 15:00:23 GMT
+
+https://movieweb.com/the-wolf-of-wall-street-streaming-free-pluto-tv-april-2026/
+
+Robbie called her breakout role in Martin Scorsese's modern masterpiece "terrifying," and it's now yours to watch absolutely free.
+---------
+
+# 'Peaky Blinders' Now Features the Most Annoying Crime Drama Trope, Thanks to 'The Immortal Man'
+
+Features, Peaky Blinders
+
+Sat, 04 Apr 2026 15:00:23 GMT
+
+https://movieweb.com/peaky-blinders-worst-crime-drama-trend/
+
+'Peaky Blinders' ruined its powerful, unique television ending with a stereotypical antihero twist in its sequel movie.
+---------
+
 # 10 Highest Grossing Non-Disney Animated Movies Of All Time At The U.S. Box Office
 
 Movies, Box Office
