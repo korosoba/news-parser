@@ -1,3 +1,113 @@
+# Modern Love: Prime Video's Underrated Rom-Com Anthology Series
+
+Streaming TV, Modern Love
+
+Sat, 04 Apr 2026 21:16:10 GMT
+
+https://screenrant.com/modern-love-prime-video-anthology-series-franchise/
+
+Prime Video is home to an underrated rom-com TV show that was so good that it spawned an international franchise, and it deserves more attention.
+---------
+
+# Disney+'s Upcoming Sci-Fi Fantasy Series Will Rewrite A 33-Year-Old Franchise
+
+Streaming TV, Power Rangers, Sci-Fi, Fantasy, Disney+
+
+Sat, 04 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/disney-plus-power-rangers-reboot-rewrite-franchise/
+
+After decades of reinvention, an iconic TV show is finally breaking free from its traditional formula for a complete overhaul on Disney+.
+---------
+
+# Arnold Schwarzenegger’s 10 Highest-Grossing Movies
+
+Classic Movies, Arnold Schwarzenegger, Ranking
+
+Sat, 04 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/arnold-schwarzenegger-highest-grossing-movies-ranked/
+
+Arnold Schwarzenegger is one of the highest-grossing movie stars in Hollywood history, but which of his flicks earned the most money?
+---------
+
+# Jon Hamm's Apple TV Show Your Friends & Neighbors Dominates Streaming
+
+TV, Your Friends and Neighbors, Apple TV, Crime
+
+Sat, 04 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/your-friends-and-neighbors-crime-comedy-apple-tv-success-april-2026/
+
+Jon Hamm's dark comedy series Your Friends & Neighbors is the No. 1 most-watched show worldwide on Apple TV, after viral meme and positive reviews.
+---------
+
+# John Cena’s Sci-Fi Thriller Explodes on Free Streaming 8 Years After Release
+
+Movie News, John Cena, Sci-Fi, Transformers, Bumblebee
+
+Sat, 04 Apr 2026 21:15:12 GMT
+
+https://collider.com/john-cena-sci-fi-thriller-bumblebee-streaming-sleeper-success-free-pluto-tv-april-2026/
+
+Bumblebee is pulling in fresh viewers on Pluto TV, proving the beloved Transformers prequel still has serious streaming power.
+---------
+
+# Only 3 Horror Movies Are Better Than 'The Exorcist'
+
+Movie, The Exorcist, The Thing, Psycho, The Silence of the Lambs
+
+Sat, 04 Apr 2026 21:14:12 GMT
+
+https://collider.com/horror-movies-better-than-the-exorcist/
+
+The Exorcist is one of the best horror movies in history, but masterpieces like The Silence of the Lambs are arguably better examples of the genre.
+---------
+
+# '9-1-1' Newest Villain Is Quietly Becoming the Perfect Addition to the ABC Procedural
+
+TV Features, 9-1-1, Procedural, ABC, Angela Bassett
+
+Sat, 04 Apr 2026 21:10:12 GMT
+
+https://collider.com/9-1-1-season-9-detective-hooks-villain-explained/
+
+A corrupt officer becomes the latest villain for the 9-1-1 team to face in Season 9, adding a powerful adversary for Athena and the 118 to confront.
+---------
+
+# 30 Years Later, This Shameless Tarantino-Style Crime Thriller Is Officially on Streaming
+
+Movie News, Quentin Tarantino, 2 Days In The Valley, Pulp Fiction, Charlize Theron
+
+Sat, 04 Apr 2026 21:01:12 GMT
+
+https://collider.com/quentin-tarantino-knockoff-2-days-in-the-valley-charlize-theron-streaming-paramount-plus-april-2026/
+
+2 Days in the Valley, arguably the most brazen Quentin Tarantino knockoff ever made, is now streaming on a new platform. Find out more.
+---------
+
+# Apple TV+'s Best Sci-Fi Series 'Pluribus Knocked Off Streaming Charts on Apple TV+ Before Season 2
+
+TV News, Pluribus, Apple TV, Sci-Fi
+
+Sat, 04 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/pluribus-best-sci-fi-streaming-failure-apple-april-2026/
+
+Apple TV+'s sci-fi series 'Pluribus' has been knocked off the streaming Top 10 charts, as Season 2 faces a major delay.
+---------
+
+# 'Chucky' Is a Thriller Reboot That Outshines the 'Child's Play' Franchise
+
+Features, Chucky
+
+Sat, 04 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/chucky-tv-reboot-better-than-childs-play/
+
+'Chucky,' the three-season TV reboot of the popular 'Child's Play' horror franchise, is even better than the original.
+---------
+
 # Netflix Series Something Very Bad Is Going To Happen Inspired by Rosemary's Baby
 
 Streaming TV, Something Very Bad Is Going to Happen, Rosemary's Baby
