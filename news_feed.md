@@ -1,3 +1,223 @@
+# Glen Powell's Role In Super Mario Galaxy Continues Actor's Casting Trend
+
+Movies, The Super Mario Galaxy Movie
+
+Sat, 04 Apr 2026 14:16:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-glen-powell-role-trend/
+
+Glen Powell is playing Fox McCloud in The Super Mario Galaxy Movie, and it's a great casting choice as it continues a trend in his career.
+---------
+
+# 3 HBO Max Shows Everyone’s Watching Right Now That Are Built For A Weekend Binge (#1 Is A Must-See Thriller)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Sat, 04 Apr 2026 14:12:20 GMT
+
+https://screenrant.com/hbo-max-shows-to-binge-watch-weekend/
+
+Discover the three hottest HBO Max shows everyone's buzzing about this weekend featuring top comedy hits and a thrilling hidden gem that's a must-see.
+---------
+
+# Robert Pattinson Reveals His Favorite Twilight Movie
+
+Movies, Robert Pattinson, The Twilight Saga
+
+Sat, 04 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/robert-pattinson-favorite-twilight-movie/
+
+Robert Pattinson reveals his favorite Twilight movie while promoting The Drama, his new dark comedy romance with Zendaya.
+---------
+
+# A Major Manga Site Officially Closes, Here's Why That's A Big Deal
+
+Anime, Webtoon, Crunchyroll
+
+Sat, 04 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/manga-planet-closure-big-deal-bl/
+
+The disappointing unexpected closure of this manga site marks the end of a seven-year run that helped get diverse manga to readers in the West.
+---------
+
+# 10 TV Shows We Thought Would Be The Next Grey's Anatomy
+
+Classic TV, Grey's Anatomy
+
+Sat, 04 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/tv-shows-we-thought-would-be-next-greys-anatomy/
+
+Explore the TV shows that attempted to replicate the success of Grey's Anatomy, each offering a unique take on the medical drama formula.
+---------
+
+# Pokémon Crossroads' Three Regions Already Put Winds & Waves To Shame
+
+Gaming, Pokemon, Pokemon Winds and Waves
+
+Sat, 04 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/pokemon-crossroads-three-regions-playable-hoenn-kanto/
+
+Pokémon Crossroads will feature three regions in one, which might just put Winds and Waves' new region to shame in terms of scale and scope.
+---------
+
+# Luke Cage's MCU Return Set Photos Reveal New Iconic Comic Costume For Daredevil: Born Again Season 3
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Sat, 04 Apr 2026 13:59:55 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-luke-cage-mike-colter-mayor-set-photos/
+
+Daredevil: Born Again season 3 has officially revealed the first set of casting news, as other players from the Marvel-Netflix shows are coming back.
+---------
+
+# The Drama Character Is Declared The Biggest Hypocrite In Robert Pattinson & Zendaya's New A24 Movie
+
+Movies, The Drama
+
+Sat, 04 Apr 2026 13:51:44 GMT
+
+https://screenrant.com/the-drama-movie-rachel-hypocrisy-audience-reaction/
+
+The main characters in The Drama all have their trouble aspects, but audiences are having a particularly strong reaction to one hypocritical role.
+---------
+
+# The Pitt Season 2 Subtly Confirms A Spinoff Will Happen
+
+Streaming TV, The Pitt
+
+Sat, 04 Apr 2026 13:49:19 GMT
+
+https://screenrant.com/the-pitt-season-2-night-shift-staff-setting-up-spinoff/
+
+The potential for a spinoff has been baked into The Pitt's premise from the start, but the arrival of new characters makes it even more likely.
+---------
+
+# Ryan Gosling Suddenly Drops Out of Universal Sci-Fi Event Movie 1 Week After Casting
+
+Movies, ryan gosling
+
+Sat, 04 Apr 2026 14:21:35 GMT
+
+https://www.cbr.com/ryan-gosling-exits-sci-fi-event-exits-daniels-universal/
+
+Amid Project Hail Mary's success, Ryan Gosling had found his latest project, but suddenly dropped out.
+---------
+
+# 6 Upcoming Fantasy Shows That Should Be on Your Radar
+
+TV, Fantasy, Harry Potter, House of the Dragon, God of War
+
+Sat, 04 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/most-anticipated-upcoming-fantasy-shows-list/
+
+Fantasy fans have a lot to look forward to, as upcoming shows return with new seasons and fresh series get set to make their debut.
+---------
+
+# The Hobbit Explained One of Gimli’s Most Controversial LOTR Lines
+
+Movies, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Two Towers
+
+Sat, 04 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/hobbit-explains-gimli-controversial-lord-of-the-rings-line-helms-deep/
+
+Peter Jackson's The Hobbit: The Battle of the Five Armies added another layer to one of Gimli's complaints in The Lord of the Rings: The Two Towers.
+---------
+
+# April 14 Will Be a Great Day for Hunger Games Fans
+
+Movies, The Hunger Games, The Hunger Games: The Ballad of Songbirds and Snakes
+
+Sat, 04 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/hunger-games-film-series-streaming-hulu-april-14/
+
+There's good news for Hunger Games fans as Sunrise on the Reaping draws nearer...
+---------
+
+# Jason Momoa's Lobo: How Krypton Season 2 Set the Stage for DC's Future
+
+TV, DCU, Supergirl, Krypton
+
+Sat, 04 Apr 2026 13:57:58 GMT
+
+https://www.cbr.com/jason-momoa-lobo-krypton-tv-series-blueprint/
+
+Krypton's second season, boasting a perfect 100% on Rotten Tomatoes, set the groundwork for Jason Momoa's portrayal of Lobo in the DC Universe.
+---------
+
+# Jo Nesbø's Detective Hole Marks a Shift for Netflix Crime Thrillers
+
+TV, Jo Nesbø's Detective Hole, Netflix, Crime
+
+Sat, 04 Apr 2026 13:52:53 GMT
+
+https://www.cbr.com/detective-hole-crime-thriller-modern-classic-netflix/
+
+Jo Nesbø's Detective Hole is a gritty crime thriller series that is already a modern classic, and marks a new era for Netflix prestige crime dramas.
+---------
+
+# CBS Quietly Paves The Way For Reenie Green's Tracker Spinoff In Season 3
+
+TV, Tracker, CBS
+
+Sat, 04 Apr 2026 13:52:09 GMT
+
+https://www.cbr.com/tracker-season-3-set-up-reenie-green-spinoff-op-ed/
+
+A historic shift in Tracker Season 3 quietly announces that the CBS series is no longer just about Justin Hartley's leading survivalist, Colter Shaw.
+---------
+
+# 17 Years Later, 'Coraline' Is Officially the Anti-Disney Movie
+
+Movie Features, Coraline, Laika Studios, Neil Gaiman, Horror
+
+Sat, 04 Apr 2026 14:03:13 GMT
+
+https://collider.com/coraline-anti-disney-movie-horror-analysis/
+
+17 years later, Coraline remains the ultimate anti-Disney animated movie, embracing horror where most family films play safe.
+---------
+
+# 'Heat' Meets 'The Town' in Prime Video’s New Late-Night Streaming Obsession
+
+Movie News, Chris Hemsworth, Crime 101, Prime Video, Mark Ruffalo
+
+Sat, 04 Apr 2026 14:00:48 GMT
+
+https://collider.com/crime-101-chris-hemsworth-thriller-streaming-success-prime-video-april-2026/
+
+New Heat meets The Town-style thriller, starring Chris Hemsworth and Mark Ruffalo, is Prime Video’s newest late-night streaming obsession.
+---------
+
+# 53 Years After Its Release, Pink Floyd’s ‘The Dark Side of the Moon’ Is Still A Best-Selling Album
+
+Music Features, Pink Floyd, Music, Rock, Classic Albums: Pink Floyd - The Making of The Dark Side of the Moon
+
+Sat, 04 Apr 2026 14:00:12 GMT
+
+https://collider.com/pink-floyd-1973-dark-side-of-the-moon-best-selling-album/
+
+Pink Floyd's The Dark Side of the Moon still resonates with listeners through its exploration of universal themes like mental health, time, and money.
+---------
+
+# Tom Hanks Gave His Most Underrated Performance in Steven Spielberg's 'Catch Me If You Can'
+
+Features, Tom Hanks, Catch Me If You Can, Steven Spielberg, Cultural Reassessment
+
+Sat, 04 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/tom-hanks-catch-me-if-you-can-performance/
+
+Tom Hanks' most unheralded performance comes opposite Leonardo DiCaprio in Steven Spielberg's 2002 thriller 'Catch Me If You Can'.
+---------
+
 # Pedro Pascal's Underrated Horror Comedy: Bloodsucking Bastards
 
 Movies, Pedro Pascal
