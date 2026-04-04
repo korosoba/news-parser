@@ -1,3 +1,234 @@
+# Pedro Pascal's Underrated Horror Comedy: Bloodsucking Bastards
+
+Movies, Pedro Pascal
+
+Sat, 04 Apr 2026 13:45:19 GMT
+
+https://screenrant.com/this-forgotten-pedro-pascal-horror-movie-is-a-perfect-weekend-watch/
+
+The horror comedy is one of the most underrated films in Pedro Pascal's career.
+---------
+
+# Star Wars: Maul - Shadow Lord First Reactions Are In
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars, Darth Maul
+
+Sat, 04 Apr 2026 13:45:15 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-first-reactions/
+
+Early reactions are here for Star Wars: Maul – Shadow Lord, the new animated series following the former Sith Lord on a quest for revenge.
+---------
+
+# Nathan Fillion's Hit Crime Series Officially Ends Season 8 Soon & Now Is The Time To Binge It
+
+TV, The Rookie
+
+Sat, 04 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/the-rookie-season-8-finale-release-date-crime-series-binge/
+
+Nathan Fillion's global hit crime series has officially set its season 8 finale release, and that gives fans and new viewers time to binge it.
+---------
+
+# Sons Of Anarchy Potential Prequel: Exploring The Early Days Of SAMCRO
+
+Classic TV, Sons of Anarchy
+
+Sat, 04 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/sons-of-anarchy-want-spinoff-prequel-fx-crime-drama/
+
+FX is home to a seven-part crime drama that's one of the best TV shows of all time, and its audience is still waiting for a prequel series.
+---------
+
+# XO, Kitty Season 3 Ignores Potential Romance Between Kitty & Yuri
+
+Streaming TV, XO, Kitty
+
+Sat, 04 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/xo-kitty-season-3-yuri-romance-story-ignore-disappointing/
+
+XO, Kitty season 3 disappoints fans by completely ignoring the show's most promising romantic storyline between Kitty and Yuri, despite setting it up.
+---------
+
+# X-Men Officially Unveils Emma Frost Jaw-Dropping New Codename And Costume
+
+Marvel Comics, X-Men, Marvel
+
+Sat, 04 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/x-men-emma-frost-redesign-new-costume/
+
+Marvel's Emma Frost reinvents her look with an all-black ensemble during the X-Men's biggest 2026 event, joining other mutants in their redesigns.
+---------
+
+# What Happens To Mike & Rachel After The Drama's Explosive Ending Predicted By Stars
+
+Movies, The Drama
+
+Sat, 04 Apr 2026 13:22:52 GMT
+
+https://screenrant.com/the-drama-ending-mike-rachel-future-prediction-alana-haim-mamoudou-athie/
+
+EXCLUSIVE: The Drama was filled with drama, but the real discussion is on what happens during the explosive final moments with Mike and Rachel.
+---------
+
+# 6 Hit Movies From The '90s That Have Aged Like Milk
+
+Movies, The Green Mile, Deep Blue Sea, American Beauty, American Pie, Ace Ventura: Pet Detective, She's All That
+
+Sat, 04 Apr 2026 13:15:18 GMT
+
+https://screenrant.com/hit-90s-movies-aged-like-milk/
+
+These hit ’90s movies were once beloved, but outdated themes, troubling storylines, and dated effects make them far harder to watch today.
+---------
+
+# Moon Knight And Blade Team Up In July 2026
+
+Marvel Comics, Moon Knight, Blade, Marvel
+
+Sat, 04 Apr 2026 13:10:17 GMT
+
+https://screenrant.com/moon-knight-blade-team-up-marvel-comics-2026/
+
+Marvel officially confirms Moon Knight and Blade's team-up will officially release in July 2026, hinting at a potential Midnight Sons crossover.
+---------
+
+# Invincible's Smartest Character Isn't Cecil
+
+Streaming TV, Invincible
+
+Sat, 04 Apr 2026 13:10:17 GMT
+
+https://screenrant.com/invincible-smartest-character-not-cecil-conquest-season-4/
+
+Cecil has long been presented as one of Invincible's smartest characters, but after his recent costly mistake, the GDA Director has lost this status.
+---------
+
+# Tracker's Darkest Case Ever Officially Changes Justin Hartley's Character
+
+TV, Tracker, CBS
+
+Sat, 04 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/justin-hartley-tracker-season-3-dark-colter-shaw-case/
+
+Tracker Season 3 deals out Colter Shaw's darkest case yet, forcing Justin Hartley's lead to navigate a personal challenge that could reshape Season 4.
+---------
+
+# 10 Greatest Wii U Games of All Time, Ranked
+
+Games, Nintendo, Nintendo Wii, Nintendo Switch
+
+Sat, 04 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/best-wii-u-games-all-time-ranked/
+
+The Wii U wasn't Nintendo's most successful console, but games like Breath of the Wild are still classics.
+---------
+
+# Mark Russell on The Forgotten Divine: “Why Would I Ever Go Back to Earth?”
+
+Comics, mark russell
+
+Sat, 04 Apr 2026 12:50:41 GMT
+
+https://www.cbr.com/mark-russell-forgotten-divine-interview/
+
+In a CBR exclusive interview with Mark Russell, we discuss his fascinating new crowdfunded graphic novel from Ahoy Comics
+---------
+
+# Why 'The Lord of the Rings' Trilogy Is Still Perfect for Today
+
+Movie, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, J.R.R. Tolkien
+
+Sat, 04 Apr 2026 13:41:12 GMT
+
+https://collider.com/why-the-lord-of-the-rings-trilogy-is-still-perfect-today/
+
+Peter Jackson's Lord of the Rings Trilogy is as great as ever today, thanks largely to the movies' refreshing love of the source material.
+---------
+
+# In Just Over 1 Week, Netflix’s New 8-Part Thriller Is One of the Most-Watched Shows on the Streamer
+
+TV News, Something Very Bad Is Going to Happen, Netflix, Camila Morrone, Horror
+
+Sat, 04 Apr 2026 13:28:49 GMT
+
+https://collider.com/netflix-8-part-horror-series-something-very-bad-is-going-to-happen-streaming-success-april-2026/
+
+The Shining meets Pride & Prejudice in Netflix’s new 8-part thriller series from the creators of Stranger Things. Now it’s climbing the charts.
+---------
+
+# HBO Max's 2-Part Apocalyptic Sci-Fi Movies Are Still Worth an Easy One-Night Binge
+
+Movie Features, Mad Max: Fury Road, Furiosa: A Mad Max Saga, Anya Taylor-Joy, Tom Hardy
+
+Sat, 04 Apr 2026 13:27:12 GMT
+
+https://collider.com/mad-max-fury-road-furiosa-perfect-sci-fi-binge/
+
+George Miller's recent Mad Max sequels, Fury Road and Furiosa, reintroduced fans to the high-octane world of post-apocalyptic Australia.
+---------
+
+# In Just 4 Days, Margot Robbie’s Gothic Romance Becomes a Streaming Success
+
+Movie News, Margot Robbie, Jacob Elordi, Wuthering Heights, Emerald Fennell
+
+Sat, 04 Apr 2026 13:03:56 GMT
+
+https://collider.com/margot-robbie-jacob-elordi-wuthering-heights-pvod-success-april-2026/
+
+2026’s most controversial hit is like if Bridgerton were directed by Tim Burton; now it’s blowing up on PVOD after just 4 days.
+---------
+
+# 2 Months In, Jason Statham’s Newest Dad Thriller Can't Hang On to Late-Night Audiences
+
+Movie News, Jason Statham, Shelter, Thriller, Streaming
+
+Sat, 04 Apr 2026 12:46:13 GMT
+
+https://collider.com/shelter-jason-statham-prime-video-streaming-drop-april-2026/
+
+Shelter had a quick burst of streaming interest after its weak box office run, but it’s already sliding on digital charts.
+---------
+
+# Antony Starr Shares Support for Jensen Ackles Joining James Gunn’s DCU
+
+Exclusives, Batman, DCU, James Gunn, Antony Starr, Jensen Ackles
+
+Sat, 04 Apr 2026 13:40:31 GMT
+
+https://movieweb.com/antony-starr-jensen-ackles-batman-dcu/
+
+The potential casting of Jensen Ackles as Batman has support from his 'The Boys' co-star, Antony Starr.
+---------
+
+# Karl Urban Teases a Desperate Version of Butcher in 'The Boys' Final Season
+
+Exclusives, The Boys, Karl Urban
+
+Sat, 04 Apr 2026 13:17:06 GMT
+
+https://movieweb.com/karl-urban-butcher-boys-season-5/
+
+"He's turned himself into the monster in order to defeat the monster."
+---------
+
+# Prime Video's New Action Thriller 'Agent Zeta' Continues to Defy the Odds on Streaming
+
+Movie News, Agent Zeta, Hot on Streaming, Action, Prime Video
+
+Sat, 04 Apr 2026 13:00:22 GMT
+
+https://movieweb.com/agent-zeta-prime-video-action-streaming-hit-april-2026/
+
+Prime Video's latest action thriller has come out of nowhere to make a big splash on streaming both internationally, and in the United States.
+---------
+
 # The Objective Greatest Anime of All Time Has Been Officially Crowned, And It Breaks Every Rule
 
 Anime, Frieren: Beyond Journey's End
