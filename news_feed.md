@@ -1,3 +1,322 @@
+# Season 2 of Netflix's Best Action Thriller Is Officially Out, and It's the Perfect Weekend Binge
+
+Anime, Netflix, Bloodhounds - Season 2, Bloodhounds
+
+Sat, 04 Apr 2026 01:30:18 GMT
+
+https://screenrant.com/bloodhounds-season-2-out-netflix-action-thriller/
+
+This Netflix series only raises the stakes higher and higher with each new season, and it's become a must-see thriller for any action fan.
+---------
+
+# HBO's Upcoming Video Game Adaptation Concerns Addressed By Original Star
+
+TV, Baldur's Gate, Baldur's Gate 3
+
+Sat, 04 Apr 2026 01:25:49 GMT
+
+https://screenrant.com/hbo-baldurs-gate-season-3-sequel-tv-neil-newbon/
+
+HBO's new game adaptation has received widespread criticism despite still being in early pre-production, but its original star rushes to its defense.
+---------
+
+# Netflix's Castlevania Animated Series Launched A Separate Universe
+
+Classic TV, Castlevania
+
+Sat, 04 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/castlevania-netflix-fantasy-series-game-universe-different/
+
+Netflix's adaptation of Castlevania takes some wild liberties, but it was still great enough in its own right to launch its own franchise.
+---------
+
+# Highly-Anticipated Soulslike Gameplay Reveal Unites Gamers
+
+Gaming, Mortal Shell, Indie
+
+Sat, 04 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/soulslike-gameplay-reveal-mortal-shell-2/
+
+A new Soulslike game is nigh, and its gameplay reveal trailer demonstrates how much of an immediate upgrade it is over its dark fantasy predecessor.
+---------
+
+# 7 Jujutsu Kaisen Season 3 Fights That Are the Dictionary Definition of Peak
+
+Anime, Jujutsu Kaisen, JUJUTSU KAISEN: Execution
+
+Sat, 04 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/best-jujutsu-kaisen-season-3-fights/
+
+Season 3 of Jujutsu Kaisen was especially packed with action thanks to the Culling Game, but these fights were in a league of their own.
+---------
+
+# After Gwen Stacy, Disney+’s Spider-Man Show Needs To Introduce These 10 Characters
+
+Streaming TV, Spider-Man, Your Friendly Neighborhood Spider-Man, Marvel
+
+Sat, 04 Apr 2026 00:45:19 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-season-2-character-wishlist/
+
+Disney+'s animated Spider-Man show returns for season 2 in 2026 & season 3 in 2027, and these are 10 characters who would fit perfectly into the show.
+---------
+
+# First Look At Iron Fist & Luke Cage’s MCU Return Revealed In Daredevil: Born Again Season 3 Set Photos
+
+TV, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Sat, 04 Apr 2026 00:40:29 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-iron-fist-luke-cage-reveal/
+
+Finn Jones and Mike Colter are officially back as Iron Fist and Luke Cage, as the actors appear in new Daredevil: Born Again season 3 set photos.
+---------
+
+# This 1 Season Psychological Thriller Is the Perfect Weekend Binge (And It’s Free to Watch)
+
+Anime, Strangers From Hell, Webtoon
+
+Sat, 04 Apr 2026 00:30:20 GMT
+
+https://screenrant.com/strangers-from-hell-psychological-drama-weekend-binge-free/
+
+One of the best psychological thriller series of the last decade is ideal to watch over the weekend and can be found for free on streaming.
+---------
+
+# Mel Brooks & Rick Moranis Return as Spaceballs 2 with Josh Gad Gets Official Release Date
+
+Movies, Spaceballs 2
+
+Sat, 04 Apr 2026 00:18:08 GMT
+
+https://screenrant.com/spaceballs-release-date-amazon-mgm/
+
+Amazon MGM has officially announced the official release date for its upcoming science fiction comedy film, Spaceballs 2.
+---------
+
+# Disney+'s #1 Action Thriller Series Keeps Getting Better
+
+Streaming TV, Daredevil: Born Again
+
+Sat, 04 Apr 2026 00:15:18 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-improvement-getting-better/
+
+Disney+ has been struggling to keep pace with more widely adopted streaming platforms, but one action thriller appears to be changing the tide.
+---------
+
+# The Boys Is Breaking a Major TV Trend With Series Finale
+
+TV, The Boys
+
+Sat, 04 Apr 2026 01:24:43 GMT
+
+https://www.cbr.com/the-boys-series-finale-length/
+
+The Boys showrunner Eric Kripke confirms that the series finale is breaking a popular TV tradition.
+---------
+
+# Spider-Man: All Of Peter Parker's Canon Girlfriends (In Chronological Order)
+
+Comics, Spider-Man, peter parker, Amazing Spider-Man, Mary Jane, gwen stacy
+
+Sat, 04 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/spider-man-peter-parker-girlfriends/
+
+Where do the women in Peter Parker/Spider-Man's life fit into his comic timeline, and what impact have they had on his life over the last 60 years?
+---------
+
+# Spaceballs 2 Officially Sets Release Date
+
+Movies, Spaceballs 2, Spaceballs
+
+Sat, 04 Apr 2026 00:39:24 GMT
+
+https://www.cbr.com/spaceballs-2-release-date/
+
+The long-awaited Spaceballs sequel has gotten its official release date with several returning stars confirmed.
+---------
+
+# Star Trek's William Shatner Shares Health Update After 'Insane' Rumors
+
+TV, Star Trek
+
+Sat, 04 Apr 2026 00:33:14 GMT
+
+https://www.cbr.com/william-shatner-health-update-april-2026/
+
+William Shatner, 95, is clearing the air about his health following the spread of "ridiculous stories" online.
+---------
+
+# 10 Best Open-World RPGs of All Time, Ranked
+
+Games
+
+Sat, 04 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/best-open-world-rpgs-of-all-time-ranked/
+
+Open-world gaming fits perfectly with the RPG model and these titles have managed to perfect that balance between the two gameplay styles.
+---------
+
+# 10 Most Toxic Anime Duos of All Time That Are 100% Not Romances
+
+Anime
+
+Sat, 04 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/anime-most-toxic-duos-platonic/
+
+Anime is full of toxic duos that aren't just romances, whether they're unhealthy friendships or dysfunctional families.
+---------
+
+# True Detective's Groundbreaking Pilot Changed TV
+
+TV, True Detective, HBO Max
+
+Sat, 04 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/hbo-true-detective-pilot-better-than-the-sopranos-pilot/
+
+The Sopranos is, without a doubt, the most famous show HBO has ever had, but another series offered fans a far better pilot episode.
+---------
+
+# Gerard Butler Shows a Completely Different Side of Himself in This Free-to-Watch War Thriller
+
+Movie Features, Gerard Butler, Kandahar, Action, Ric Roman Waugh
+
+Sat, 04 Apr 2026 01:41:16 GMT
+
+https://collider.com/gerard-butler-kandahar-tubi-pluto-roku-flex-free-movie/
+
+Gerard Butler played a different type of action hero than he’s used to in the 2023 war thriller Kandahar.
+---------
+
+# Scarlett Johansson’s Bonkers Sci-Fi Hit That Grossed 10x Its Budget Levels Up on Streaming
+
+Movie News, Scarlett Johansson, Luc Besson, Sci-Fi, Lucy
+
+Sat, 04 Apr 2026 01:30:12 GMT
+
+https://collider.com/scarlett-johansson-bonkers-sci-fi-hit-lucy-streaming-success-netflix-april-2026/
+
+Scarlett Johansson's flash-in-the-pan sci-fi blockbuster Lucy is seeing a surge of interest on streaming. Find out more.
+---------
+
+# ‘Invincible’ Season 4 Officially Recreated ’The Walking Dead’s Most Disturbing Memory
+
+TV Features, Invincible, The Walking Dead, Prime Video, Robert Kirkman
+
+Sat, 04 Apr 2026 01:23:12 GMT
+
+https://collider.com/invincible-season-4-episode-5-mark-conquest-rematch-walking-dead-glenn/
+
+The latest episode of Invincible Season 4 features a long-awaited rematch and a gruesome callback to 'The Walking Dead'.
+---------
+
+# 'The Boys’ Creator Finally Gives an Exciting Update on the New Spin-Off [Exclusive]
+
+Exclusives, The Boys, Prime Video, Eric Kripke
+
+Sat, 04 Apr 2026 01:00:13 GMT
+
+https://collider.com/the-boys-mexico-spin-off-pilot-script-update-eric-kripke/
+
+The Boys creator Eric Kripke gave a massive update on the status of the long-gestating Mexico-based spin-off three years after its announcement.
+---------
+
+# Disney+’s 8-Part Western Series Is Quietly Becoming a Global Hit
+
+TV News, Lucky Luke, Western, Disney+, Comic Book
+
+Sat, 04 Apr 2026 01:00:13 GMT
+
+https://collider.com/lucky-luke-greatest-western-icon-makes-stunning-streaming-debut-disney-plus-april-2026/
+
+Celebrating his 80th anniversary this year, Western icon Lucky Luke made his streaming debut with a hit Disney+ series. Find out more.
+---------
+
+# Apple TV Officially Ends Its Best Sci-Fi Series After 6 Seasons, but There's a Catch
+
+TV Features, For All Mankind, Ronald D. Moore, Apple TV, Joel Kinnaman
+
+Sat, 04 Apr 2026 00:39:12 GMT
+
+https://collider.com/apple-tv-for-all-mankind-ending-season-6-explained/
+
+For All Mankind's creators are sticking to their original plan, ending the Apple TV series in Season 6, despite initial speculation about a seventh season.
+---------
+
+# 10 Heaviest Movies of the 20th Century, Ranked
+
+Movie, Salò, Or The 120 Days Of Sodom, The Deer Hunter, Come And See, Se7en
+
+Sat, 04 Apr 2026 00:11:12 GMT
+
+https://collider.com/heaviest-movies-20th-century-ranked/
+
+The Deer Hunter, Come and See, and Salò, or the 120 Days of Sodom are among the most infamous, brutally heavy movies released in the 20th century.
+---------
+
+# 7 Most Important Crime Shows That Defined the Genre
+
+TV, Crime, Law & Order: Special Victims Unit, The Sopranos, Hannibal
+
+Sat, 04 Apr 2026 00:03:12 GMT
+
+https://collider.com/most-important-crime-shows-defined-genre/
+
+From NBC's long-running procedural Law & Order: SVU to the gamechanging HBO series The Sopranos, these shows represent the entire crime genre.
+---------
+
+# The First Great Horror Movie of 2026 Is an Instant Smash-Hit on Netflix
+
+Movie News, 28 Years Later: The Bone Temple, Netflix, Cillian Murphy, Ralph Fiennes
+
+Sat, 04 Apr 2026 00:00:13 GMT
+
+https://collider.com/cillian-murphy-28-years-later-the-bone-temple-sci-fi-sequel-streaming-success-netflix-april-2026/
+
+The most bizarre sci-fi movie of 2026 is quietly becoming one of the most popular watches around the world on Netflix.
+---------
+
+# Chuck Norris' Family Calls Out AI Videos Spreading "Misinformation" About His Death
+
+Movie News, Chuck Norris
+
+Sat, 04 Apr 2026 00:34:23 GMT
+
+https://movieweb.com/chuck-norris-family-ai-video-response/
+
+Only weeks after his passing, the actor's family tried to intervene in a disturbing trend.
+---------
+
+# 'Avatar: Fire and Ash' Producer Rae Sanchini Pays Tribute to Late Partner Jon Landau
+
+Movie News, Avatar: Fire and Ash, Jon Landau
+
+Sat, 04 Apr 2026 00:01:09 GMT
+
+https://movieweb.com/avatar-fire-and-ash-jon-landau-tribute/
+
+Following executive producer Jon Landau's passing, 'Avatar 3' producer Raw Sanchini spoke about his impact on the trilogy.
+---------
+
+# 10 Nostalgic Movies and TV Shows Begging For the 'Cobra Kai' Treatment
+
+Movie Lists, Cobra Kai
+
+Sat, 04 Apr 2026 00:00:17 GMT
+
+https://movieweb.com/nostalgic-movies-tv-shows-need-revivals/
+
+'Cobra Kai' is a popular Netflix TV series that is part of the 'Karate Kid' franchise, and other beloved movies and series should be revived, too.
+---------
+
 # The MCU Officially Retcons The New Avengers Just 9 Months Before Doomsday
 
 Streaming TV, Daredevil: Born Again
