@@ -1,3 +1,135 @@
+# Homelander's Weakness In The Boys Season 5 Slyly Revealed By Firecracker Star
+
+TV, The Boys
+
+Sat, 04 Apr 2026 21:45:39 GMT
+
+https://screenrant.com/the-boys-season-5-homelander-weakness-valorie-curry/
+
+EXCLUSIVE: As The Boys season 5 will bring the war against Homelander, Antony Starr's character may have more than one weakness in the final season.
+---------
+
+# A Manga Legend Finally Returns With The Epic Dark Fantasy Anime Fans Have Waited 16 Years For
+
+Anime, Inuyasha
+
+Sat, 04 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/mao-dark-fantasy-anime-inuyasha-successor/
+
+A manga legend is more active than ever thanks to a new anime that's the perfect successor to one of the best isekai of the 2000s.
+---------
+
+# The 4-Word Rule That Made Seinfeld The Darkest Sitcom Of The 1990s
+
+Classic TV, Seinfeld
+
+Sat, 04 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/seinfeld-no-hugging-learning-rule-darkest-sitcom-1990s/
+
+Larry David instituted a "no hugging, no learning" policy that kept Seinfeld focused on the funny (and made it the darkest sitcom of the 1990s).
+---------
+
+# The Drama’s True Meaning Is Hiding Underneath Emma’s Controversial Secret
+
+New Movies, The Drama, Explainer
+
+Sat, 04 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/the-drama-movie-meaning-themes-explained/
+
+It’s natural that Emma’s bombshell is all anyone wants to talk about, but understanding The Drama requires looking past it to how we respond to it.
+---------
+
+# Netflix Is Losing Black Sails This Month
+
+TV, Black Sails
+
+Sat, 04 Apr 2026 21:30:42 GMT
+
+https://www.cbr.com/black-sails-leaving-netflix-april-2026/
+
+The pirate epic series, which reached 100% on Rotten Tomatoes, is leaving Netflix this month.
+---------
+
+# Star Wars' Heir to the Empire Story Proves Why the Sequel Trilogy Failed
+
+Movies, Star Wars
+
+Sat, 04 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/star-wars-heir-to-the-empire-proves-sequel-trilogy-failed/
+
+Star Wars' Sequel Trilogy isn't a great era of Star Wars, but this is proven not by the films but by how well Heir to the Empire told the same story.
+---------
+
+# Nintendo's First Super Mario Bos. Movie Is a Cyberpunk Masterpiece
+
+TV, Super Mario Bros., Nintendo
+
+Sat, 04 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/nintendo-super-mario-bros-1993-cyberpunk-masterpiece/
+
+1993's Super Mario Bros. is far from a great movie, but it's easy to overlook the monumental advancements it made in the sci-fi genre.
+---------
+
+# CBR's Official Spring 2026 Anime Series Power Ranking (Week 1)
+
+Anime, Anime Power Rankings
+
+Sat, 04 Apr 2026 21:25:12 GMT
+
+https://www.cbr.com/spring-2026-anime-most-popular-best-series-ranking-1/
+
+From Daemons of the Shadow Realm to Witch Hat Atelier, CBR’s official spring anime series power ranking keeps fans up to date on all the biggest hits.
+---------
+
+# Paramount’s 95% RT Crime Thriller Just Made a Stellar Addition to Its Season 2 Cast
+
+TV Features, Dexter: Resurrection, Dexter, Brian Cox, Showtime
+
+Sat, 04 Apr 2026 21:47:12 GMT
+
+https://collider.com/dexter-resurrection-season-2-cast-brian-cox-new-york-ripper/
+
+Brian Cox has joined Dexter: Resurrection Season 2 as the mysterious New York Ripper, promising a thrilling new chapter in the revived crime thriller.
+---------
+
+# 10 Heaviest Movies of the Last 50 Years, Ranked
+
+Movie, The Irishman, Threads, Grave of the Fireflies, Dancer in the Dark
+
+Sat, 04 Apr 2026 21:31:12 GMT
+
+https://collider.com/heaviest-movies-last-50-years-ranked/
+
+There have been some tremendously heavy-going movies released in the past 50 years, including Dancer in the Dark, Ran, and The Deer Hunter.
+---------
+
+# Pedro Pascal’s $334 Million Sci-Fi Hit Officially Debuts on Streaming After Making 4x Its Budget
+
+Movie News, Sci-Fi, The Wild Robot, Pedro Pascal, DreamWorks
+
+Sat, 04 Apr 2026 21:31:12 GMT
+
+https://collider.com/pedro-pascal-sci-fi-adventure-the-wild-robot-peacock-streaming-success-april-2026/
+
+The Wild Robot continues to perform strongly on Peacock, proving the acclaimed animated hit still has huge streaming appeal.
+---------
+
+# 'Into the West': Steven Spielberg's Forgotten Western Series Is the Perfect One-Night Weekend Binge
+
+Features, Into the West, Western, Steven Spielberg
+
+Sat, 04 Apr 2026 21:30:18 GMT
+
+https://movieweb.com/steven-spielberg-western-miniseries-into-the-west/
+
+Steven Spielberg has always wanted to make a Western, and the closest he's come is a six episode miniseries everyone's forgotten about.
+---------
+
 # Modern Love: Prime Video's Underrated Rom-Com Anthology Series
 
 Streaming TV, Modern Love
