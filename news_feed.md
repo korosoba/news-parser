@@ -1,3 +1,47 @@
+# The Batman: Part II Makes The Hard Choice That Spider-Man: Brand New Day Refuses To
+
+Superheroes, The Batman Part II, Spider-Man: Brand New Day, DC, Marvel
+
+Sat, 04 Apr 2026 08:01:18 GMT
+
+https://screenrant.com/batman-part-ii-no-catwoman-spider-man-brand-new-day-mj/
+
+Spider-Man: Brand New Day and The Batman: Part II deviate from one another as sequels in terms of how they are each dealing with love interests.
+---------
+
+# The Last Of Us Gets Official New April Release
+
+Gaming, The Last of Us, The Last of Us: Part 1, The Last of Us Part 2, The Last of Us 3, PC
+
+Sat, 04 Apr 2026 08:01:18 GMT
+
+https://screenrant.com/last-of-us-ellie-april-2026-official-release/
+
+The Last of Us fans are getting an official new release featuring the game's iconic main character, Ellie, available to claim this April.
+---------
+
+# Say Goodbye Brad Pitt's Cult Classic Crime Thriller
+
+Movie News, Burn After Reading, Brad Pitt, George Clooney, Frances McDormand
+
+Sat, 04 Apr 2026 08:20:12 GMT
+
+https://collider.com/brad-pitt-cult-classic-crime-thriller-burn-after-reading-leaving-peacock-april-2026/
+
+One of the most underrated Coen Brothers movies of the last two decades, Burn After Reading, just vacated its streaming home. Find out more.
+---------
+
+# Tom Hanks' Colossal WWII Epic Has Become a Streaming Smash Ahead of Sequel Release
+
+Movie News, Tom Hanks, Greyhound, World War II, Apple TV
+
+Sat, 04 Apr 2026 08:01:12 GMT
+
+https://collider.com/tom-hanks-ww2-epic-greyhound-streaming-success-apple-tv-april-2026-sequel/
+
+Tom Hanks' WW2 movie Greyhound is building serious momentum on Apple TV again as the long-awaited sequel moves forward.
+---------
+
 # Cyberpunk 2077 Getting Official Late April Release
 
 Gaming, Cyberpunk 2077, PC
