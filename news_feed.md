@@ -1,3 +1,146 @@
+# PlayStation Plus Users Vowing To Cancel Subscription Over Price Increase
+
+Gaming, PlayStation 5, PlayStation Plus
+
+Sat, 04 Apr 2026 10:30:20 GMT
+
+https://screenrant.com/playstation-plus-price-increase-cancel-subscription/
+
+The gaming industry is in a pretty tough spot right now, with price increases across the board, and fans are really starting to turn.
+---------
+
+# How To Watch All Star Trek TV Shows In Timeline Order
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: Voyager, Star Trek: Discovery, Star Trek: Strange New Worlds, Star Trek: Prodigy, Star Trek: Picard, Star Trek Lower Decks, Star Trek: Deep Space Nine, Star Trek: The Next Generation, Star Trek: Enterprise, Star Trek: Starfleet Academy
+
+Sat, 04 Apr 2026 10:00:29 GMT
+
+https://screenrant.com/star-trek-tv-shows-watch-timeline-order/
+
+The Star Trek TV franchise has existed for 60 years and consists of 12 shows (and counting). Here's how to watch them all in timeline order.
+---------
+
+# Star Wars Genesis Is The Open World Star Wars RPG We've Always Dreamed Of
+
+Gaming, Star Wars, Starfield
+
+Sat, 04 Apr 2026 10:00:27 GMT
+
+https://screenrant.com/star-wars-genesis-open-world-rpg-free-download/
+
+Star Wars Genesis is one of the most highly ambitious mod collections in history and it's the Star Wars RPG we've always dreamed about.
+---------
+
+# Lex Luthor's Iconic Smallville Quote Is the Greatest in Superhero History
+
+TV, Smallville, Superman
+
+Sat, 04 Apr 2026 10:00:27 GMT
+
+https://www.cbr.com/best-lex-luthor-smallville-line/
+
+In a single line, Smallville conveys the nuances of a character-driven villain and the tragic inevitability of Lex Luthor's destiny.
+---------
+
+# The Best Sci-Fi Movie From Every Year of the 2020s, So Far
+
+Movies, Sci-Fi, Dune, Spider-Man
+
+Sat, 04 Apr 2026 10:00:27 GMT
+
+https://www.cbr.com/best-sci-fi-movie-every-year-2020s-so-far-list/
+
+The 2020s have been an incredible era for sci-fi thus far, and these masterpieces of the genre stand as the best of each year in the current decade.
+---------
+
+# Apple TV’s Cancelled Sci-Fi Show Stephen King Called “Just About Perfect” Needs Season 2
+
+TV Features, Constellation, Apple TV, Stephen King, Sci-Fi
+
+Sat, 04 Apr 2026 10:31:12 GMT
+
+https://collider.com/stephen-king-favorite-sci-fi-constellation-apple-tv-season-2/
+
+Constellation earned rave reviews and Stephen King’s praise, but Apple TV still cancelled the sci-fi series before it could continue.
+---------
+
+# Prime Video’s Sci-Fi Legal Thriller Dominates Global Streaming 3 Months After Box Office Failure
+
+Movie News, Mercy, Sci-Fi, Rebecca Ferguson, Chris Pratt
+
+Sat, 04 Apr 2026 10:30:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-thriller-mercy-streaming-success-prime-video-april-2026/
+
+Mercy is dominating Prime Video’s movie chart, giving the Chris Pratt/Rebecca Ferguson sci-fi thriller a major streaming comeback.
+---------
+
+# '80s Thriller Movies That Have Aged Like Milk
+
+Movie, 1980s, Thriller, Body Double, Cruising
+
+Sat, 04 Apr 2026 10:05:26 GMT
+
+https://collider.com/1980s-thriller-movies-aged-like-milk/
+
+Blue Velvet, Cruising, Jagged Edge, Black Rain, and more make up our list of '80s thriller movies that have aged like milk.
+---------
+
+# Hulu's New Crime Film Is Officially the Best Reminder To Watch This 84% RT Sleeper Hit Horror Movie
+
+Movie Features, Vince Vaughn, Freaky, Christopher Landon, Horror
+
+Sat, 04 Apr 2026 10:03:29 GMT
+
+https://collider.com/freaky-2020-horror-movie-vince-vaughn-kathryn-newton/
+
+Vince Vaughn plays two roles in Mike & Nick & Nick & Alice, a reminder to watch his hilarious horror movie Freaky, where he plays dual characters.
+---------
+
+# 10 Classic Thriller Shows That Have Aged Like Fine Wine
+
+TV, Thriller, Twin Peaks, Lost, Hannibal
+
+Sat, 04 Apr 2026 10:02:27 GMT
+
+https://collider.com/classic-thriller-shows-aged-well/
+
+Revisit classic thriller TV shows that have aged remarkably well, remaining relevant and enthralling to modern audiences, from Lost to Twin Peaks.
+---------
+
+# 30+ Years Later, the Most Iconic Western Thriller Ever Is a Streaming Hit Again
+
+Movie News, Tombstone, Wyatt Earp, Kurt Russell, Western
+
+Sat, 04 Apr 2026 10:00:26 GMT
+
+https://collider.com/kurt-russell-iconic-western-tombstone-streaming-success-amc-plus-april-2026/
+
+Tombstone is a major streaming hit on AMC+, proving one of the most beloved Westerns ever made still has plenty of firepower.
+---------
+
+# One of the Greatest ‘Indiana Jones’ Replacements Ever Made Is Waiting To Be Discovered on a New Streamer
+
+Movie News, Indiana Jones, The Adventures of Tintin, Steven Spielberg, Edgar Wright
+
+Sat, 04 Apr 2026 09:40:17 GMT
+
+https://collider.com/greatest-indiana-jones-replacement-ever-made-adventures-of-tintin-streaming-paramount-plus-april-2026/
+
+Steven Spielberg has directed four Indiana Jones movies and one that can easily qualify as the fifth – The Adventures of Tintin. Find out more.
+---------
+
+# 'Paradise' Season 2 Finale Scores 4.3 Million Viewers in 3 Days
+
+TV News, Paradise, Hulu, hulu, Disney+, Lost
+
+Sat, 04 Apr 2026 09:40:10 GMT
+
+https://movieweb.com/paradise-season-2-finale-viewership-record/
+
+The Season 2 finale of 'Paradise' delivered a season-high record of 4.3 million views in its first three days of streaming on Disney+ and Hulu.
+---------
+
 # Dark Souls: The Beast Presence Will Scratch Your Bloodborne 2 Itch
 
 Gaming, Bloodborne, PC, Dark Souls, Dark Souls 3
