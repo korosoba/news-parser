@@ -1,3 +1,267 @@
+# 10 Funniest Far Side Comics That Make Numbers Hilarious
+
+Comics, The Far Side
+
+Sat, 04 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/funniest-far-side-comics-gary-larson-numbers/
+
+In these ten comics from The Far Side's original syndicated run, Larson tackles square roots, calculus and math puzzles in his inimitable style.
+---------
+
+# Fans Hyped For Halo: Campaign Evolved Xbox Games Showcase Shadowdrop
+
+Gaming, Halo: Campaign Evolved, Halo, Triple-A Games, PC
+
+Sat, 04 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/halo-campaign-evolved-xbox-showcase-shadowdrop/
+
+A new marketing promotion has fans suspicious that Halo: Campaign Evolved is secretly launching soon, with a potential shadowdrop in June.
+---------
+
+# Jack Ryan: Ghost War Movie Can't Make Up for Disappointing TV Finale
+
+Classic TV, Tom Clancy's Jack Ryan, Jack Ryan
+
+Sat, 04 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/prime-video-jack-ryan-one-more-season/
+
+As impressive as it is for an action thriller series to run for four seasons during the streaming age, this one needed season 5 for a fitting finale.
+---------
+
+# 10 Replacement Metal Vocalists Who Were More Successful Than The Original
+
+Music, Metal
+
+Sat, 04 Apr 2026 18:27:15 GMT
+
+https://screenrant.com/metal-singers-replacement-more-success-list/
+
+Metal band replacement singers can usher in new levels of success. These 10 vocalists elevated the bands they joined and achieved notable triumphs.
+---------
+
+# This New Crunchyroll Breach Detail Changes Everything for Users
+
+Anime, Crunchyroll
+
+Sat, 04 Apr 2026 18:26:29 GMT
+
+https://screenrant.com/crunchyroll-data-breach-worse-update/
+
+The streaming platform's security issue worsens after the recent data breach, as a post alleges user data has been sold.
+---------
+
+# 3 Paramount+ Shows Trending Right Now You Should Watch This Weekend (#1 Is A Hidden Gem Thriller)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Sat, 04 Apr 2026 18:17:20 GMT
+
+https://screenrant.com/paramount-plus-shows-trending-now-watch-weekend-binge/
+
+The 3 hottest shows trending on Paramount+ this weekend are a neo-Western drama, a classic crime series, and a hidden gem thriller by Taylor Sheridan.
+---------
+
+# Project Hail Mary Is Closing In On Ridley Scott's Box Office Record After Passing Huge Domestic Milestone
+
+Movies, Box Office Milestone, Project Hail Mary
+
+Sat, 04 Apr 2026 18:16:54 GMT
+
+https://screenrant.com/project-hail-mary-box-office-200-million-domestic-milestone/
+
+The new Ryan Gosling sci-fi epic Project Hail Mary hits a major milestone at the domestic box office, drawing close to a Ridley Scott record.
+---------
+
+# Fire Force Ending Explained
+
+Anime, Fire Force, Explainer
+
+Sat, 04 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/fire-force-ending-explained/
+
+One of the best anime of the decade is over.
+---------
+
+# 12 Post-Apocalyptic TV Shows, Ranked By How Much You’d Want To Live In What’s Left Of The World
+
+Classic TV
+
+Sat, 04 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/post-apocalyptic-show-settings-want-to-live-ranked/
+
+Explore these post-apocalyptic TV shows ranked in terms of how much you’d want to live in them, from constant danger to psychological struggles.
+---------
+
+# PlayStation Plus Free Open World Game Is Zelda Meets Assassin's Creed
+
+Gaming, Immortals Fenyx Rising, PlayStation 5, PlayStation Plus
+
+Sat, 04 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/playstation-plus-zelda-open-world-style-rpg/
+
+Immortals Fenyx Rising is an open world adventure game from Ubisoft that's well worth playing if you have PlayStation Plus.
+---------
+
+# Shrinking Creator Teases a Major Story Shakeup in Season 4 Ahead of Finale
+
+TV, Shrinking
+
+Sat, 04 Apr 2026 18:28:27 GMT
+
+https://www.cbr.com/shrinking-bill-lawrence-new-story-same-cast-season-4/
+
+The hit Apple TV series is set to air the Season 3 finale soon, and the new entry will feature a major shakeup.
+---------
+
+# This Criminally Underrated Trilogy's Final Film Is Set to Be the Sleeper Hit of 2026
+
+Anime, Mononoke Movie, Mononoke
+
+Sat, 04 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/mononoke-movie-3-hebigami-most-underrated-anime-2026/
+
+After the positive reception of the first two Mononoke films, the trilogy's finale is set to be one of the biggest sleeper anime hits of 2026.
+---------
+
+# Back to the Future 4 Gets Honest Answer From Co-Creator
+
+Movies, Back to the Future
+
+Sat, 04 Apr 2026 18:10:58 GMT
+
+https://www.cbr.com/back-to-the-future-4-update-bob-gale/
+
+Back to the Future co-creator Bob Gale sets the record straight on another sequel happening.
+---------
+
+# This 2018 Steam Hit is Officially Free, But There's a Catch
+
+Games, Steam
+
+Sat, 04 Apr 2026 18:05:12 GMT
+
+https://www.cbr.com/steam-new-free-game-april-2026-positive-reviews/
+
+For only 24 hours, Steam users can claim one of the most and creative independent games ever released on the platform.
+---------
+
+# Matthew Lillard's $240M Horror Sequel Five Nights at Freddy's 2 Is Dominating Peacock's Charts
+
+Movies, Five Nights at Freddy's, Five Nights at Freddy's 2
+
+Sat, 04 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/matthew-lillard-five-nights-at-freddys-2-horror-peacock-success-april-2026/
+
+The franchise keeps proving its popularity despite the critical reception.
+---------
+
+# 10 Most Shocking Marvel Deaths That Fans Can't Move On From
+
+Comics, Marvel, Spider-Man, Avengers
+
+Sat, 04 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/10-most-shocking-marvel-comics-deaths-avengers-x-men-list/
+
+There have been some truly shocking character deaths in Marvel Comics over the years, but these ten stand out as the ones that fans can't move past.
+---------
+
+# A Forgotten Gundam Prequel Makes a Surprise Comeback Release With Master Grade Gunpla Model Kit
+
+Anime, Mobile Suit Gundam, merchandise, Mobile Suit Gundam F91, toys, bandai
+
+Sat, 04 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/gundam-f90-master-grade-gunpla-bandai-re-release/
+
+An upcoming set of Gundam Master Grade model kit re-releases brings back the Gundam F90 mech and equips it with several modular armor upgrades.
+---------
+
+# A24's Elden Ring Film Officially Addresses a Fan Concern
+
+Movies, Elden Ring
+
+Sat, 04 Apr 2026 17:55:10 GMT
+
+https://www.cbr.com/elden-ring-movie-fan-concerns/
+
+Fans are voicing concerns about A24's feature film adaptation of the iconic video game.
+---------
+
+# Apple TV’s 2-Part Drama Is Perfect for ‘Bridgerton’ Fans Waiting for Season 5
+
+TV Features, The Buccaneers, Apple TV, Kristine Froseth, Drama
+
+Sat, 04 Apr 2026 18:27:13 GMT
+
+https://collider.com/the-buccaneers-apple-tv-drama-perfect-for-bridgerton-fans/
+
+With the wait for Bridgerton Season 5 underway, fans should turn to Apple TV's The Buccaneers, packed with pop songs and shocking romances.
+---------
+
+# 28 Years Later, Steven Spielberg's WWII Masterpiece Returns to Streaming
+
+Movie News, Saving Private Ryan, Steven Spielberg, Tom Hanks, Matt Damon
+
+Sat, 04 Apr 2026 18:00:12 GMT
+
+https://collider.com/steven-spielberg-ww2-materpiece-streaming-paramount-plus-april-2026/
+
+The greatest World War II movie ever made, Steven Spielberg's Saving Private Ryan, is now streaming on a new platform. Find out more.
+---------
+
+# 7 Upcoming 2026 Fantasy Shows That Already Look Better Than ‘Game of Thrones’
+
+TV, Game Of Thrones, House of the Dragon, Interview with the Vampire, Fantasy
+
+Sat, 04 Apr 2026 17:57:12 GMT
+
+https://collider.com/new-fantasy-shows-2026-better-than-game-of-thrones/
+
+Star Wars: Maul – Shadow Lord, The Vampire Lestat, and more make up our list of 2026 fantasy shows that look better than Game of Thrones.
+---------
+
+# Apple TV+'s Crime Thriller 'Your Friends & Neighbors' Season 2 Is Out Now and Trending on Streaming
+
+TV News, Your Friends and Neighbors, Apple TV, Hot on Streaming
+
+Sat, 04 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/your-friends-and-neighbors-season-2-streaming-success-apple-april-2026/
+
+Season 2 of 'Your Friends & Neighbors' Has Been Released on Apple TV+ and the new season is trending on the streaming charts.
+---------
+
+# 'Dope Thief': Ridley Scott's Crime Series Is So Good You'll Binge It All in a Weekend
+
+Features, Dope Thief
+
+Sat, 04 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/ridley-scott-dope-thief-crime-thriller-binge-watch/
+
+The best way to spend your weekend is on a crime thriller you can't stop watching, and Ridley Scott's latest prestige drama has you covered.
+---------
+
+# Roger Ebert Called the 2011 Thriller 'Take Shelter' "Masterful Filmmaking"
+
+Features, Take Shelter
+
+Sat, 04 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/take-shelter-roger-ebert-praise/
+
+Roger Ebert praised the 2011 thriller movie 'Take Shelter,' which stars Jessica Chastain and Michael Shannon.
+---------
+
 # Why Most People Haven't Seen The Best Version Of Final Destination 3
 
 Movies, Final Destination 3, Final Destination
