@@ -1,3 +1,289 @@
+# Mark Harmon's Candid Reaction To NCIS' Latest Major Death Revealed By Exiting Star
+
+Network TV, NCIS
+
+Sat, 04 Apr 2026 16:23:22 GMT
+
+https://screenrant.com/mark-harmon-ncis-vance-death-reaction-rocky-carroll/
+
+After learning about NCIS's latest big death, long-time cast member reveals that Mark Harmon vehemently opposed the twist that he tried stopping it.
+---------
+
+# 10 1990s Sci-Fi Shows With At Least 5 Seasons
+
+Classic TV, Sci-Fi
+
+Sat, 04 Apr 2026 16:20:20 GMT
+
+https://screenrant.com/1990s-scifi-shows-five-seasons/
+
+If you're looking for classic sci-fi shows with lots of episodes to binge, check out these series from the 1990s with at least five seasons.
+---------
+
+# Jonathan Majors Falls Through A Window On New Movie Set, Crew Members Now On Strike
+
+Movies, Jonathan Majors
+
+Sat, 04 Apr 2026 16:16:47 GMT
+
+https://screenrant.com/jonathan-majors-window-fall-daily-wire-movie-crew-strike/
+
+Jonathan Majors' upcoming action film faces uncertainty after the actor fell through a window, with crew members now on strike over safety concerns.
+---------
+
+# The Real Reason Back To The Future 4 Will Never Happen Candidly Explained By Co-Creator Ahead Of New Project
+
+Movies, Back to the Future
+
+Sat, 04 Apr 2026 16:15:44 GMT
+
+https://screenrant.com/back-to-the-future-4-not-happening-why-bob-gale/
+
+EXCLUSIVE: Back to the Future is a favorite trilogy for each generation, but fans really want a fourth installment. Co-creator explains why not.
+---------
+
+# Oona Chaplin Reveals Avatar 4 Questions She Wants Answered For Varang & Pandora
+
+Movies, Avatar: Fire and Ash, Avatar, Oona Chaplin, Avatar 4
+
+Sat, 04 Apr 2026 16:13:13 GMT
+
+https://screenrant.com/avatar-4-story-unanswered-questions-varang-pandora-oona-chaplin/
+
+EXCLUSIVE: Varang became a fan-favorite character in Avatar: Fire and Ash, and now actor Oona Chaplin shares what she hopes to see next in Avatar 4.
+---------
+
+# Blake Lively Speaks Out After Sexual Harassment Claim Against It Ends With Us Star Justin Baldoni Is Dismissed
+
+Movies, It Ends With Us, Blake Lively, Justin Baldoni
+
+Sat, 04 Apr 2026 16:04:46 GMT
+
+https://screenrant.com/it-ends-with-us-blake-lively-justin-baldoni-response-case-dismissed/
+
+Despite a judge dismissing 10 of Blake Lively's 13 claims against It Ends With Us co-star Justin Baldoni, the actress remains resolute in her claims.
+---------
+
+# 10 Women Who Changed TV Forever
+
+Classic TV
+
+Sat, 04 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/women-who-changed-tv/
+
+These trailblazing women transformed television with their groundbreaking roles, shows, and BTS work on series from the 1950s through today.
+---------
+
+# Steam Drops Dozens Of Free Downloads You've 48 Hours To Grab
+
+Gaming, Steam, Valve
+
+Sat, 04 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/steam-free-games-48-hours-april-2026/
+
+Steam's House and Home Fest is underway right now, and there are a ton of demos to try out before committing to a reduced purchase.
+---------
+
+# The Drama's Opening Weekend Breaks Zendaya's 8-Year Box Office Hot Streak
+
+Movies, Box Office, The Drama, A24
+
+Sat, 04 Apr 2026 15:58:21 GMT
+
+https://screenrant.com/the-drama-movie-domestic-box-office-debut/
+
+A24's new Zendaya movie The Drama breaks a longtime hot streak for the Dune star with its lukewarm opening weekend at the domestic box office.
+---------
+
+# 5 Mistakes Ryan Gosling's Star Wars Movie Needs To Avoid
+
+Movies, Star Wars: Starfighter
+
+Sat, 04 Apr 2026 15:55:19 GMT
+
+https://screenrant.com/star-wars-starfighter-mistakes-to-avoid/
+
+Star Wars: Starfighter opens in theaters next year and needs to avoid some crucial mistakes in order to be as successful as it can be.
+---------
+
+# The Last of Us Officially Gets New Release for April 2026
+
+Games, The Last of Us
+
+Sat, 04 Apr 2026 16:20:12 GMT
+
+https://www.cbr.com/the-last-of-us-official-new-release-april-2026/
+
+Later this April, the next addition to the Last of Us franchise will finally be released.
+---------
+
+# The Biggest Sci-Fi Flop of the Year Fizzles Out With the Franchise’s Most Disappointing Ending of All Time
+
+Anime, Trigun Stampede
+
+Sat, 04 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/trigun-stargaze-most-disappointing-anime-ending-2026/
+
+Now that its story has concluded, it's clear that Trigun Stargaze suffered from some major narrative issues.
+---------
+
+# Iron Man Will Become The Next Host of Venom's Alien Symbiote
+
+Comics, Marvel, Marvel Comics, Avengers, Iron Man
+
+Sat, 04 Apr 2026 16:11:36 GMT
+
+https://www.cbr.com/classic-marvel-avenger-becomes-next-host-of-venom-alien-symbiote/
+
+What if ... Iron Man was possessed by the infamous Venom symbiote?
+---------
+
+# 20 Years Ago, Anime’s Most Timeless Comedy Started Its Reign Over the Genre
+
+Anime, Gintama
+
+Sat, 04 Apr 2026 16:01:50 GMT
+
+https://www.cbr.com/gintama-timeless-comedy-anime/
+
+After two full decades, this iconic anime series is a bigger part of comedy history than ever before.
+---------
+
+# Superman and Miles Morales Finally Team Up For Major Comic Book Event
+
+Comics, Superman, Spider-Man
+
+Sat, 04 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/superman-miles-morales-spider-man-crossover-team-up-marvel-comics/
+
+Fans will finally get to see Superman team up with Spider-Man Miles Morales in an epic new crossover story.
+---------
+
+# JJK Gets 18-Piece Capsule Collection Ahead of Season 4 Release
+
+Anime, Jujutsu Kaisen
+
+Sat, 04 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/jjk-anime-capsule-collection-2026-release/
+
+The JJK anime gets a new 18-piece capsule collection following the Season 4 announcement of The Culling Game: Part 2.
+---------
+
+# Hulu Is Adding the Shelby Oaks In 2 Weeks
+
+Movies, Shelby Oaks, The Blair Witch Project
+
+Sat, 04 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/hulu-blair-witch-shelby-oaks-streaming-april-2026/
+
+Fans of The Blair Witch Project are in for a treat as the perfect new replacement film makes its way to Hulu.
+---------
+
+# Harry Potter's New Dean Thomas Elijah Oshin Officially Meets the Alfie Enoch: 'In So Much Awe'
+
+TV, Harry Potter
+
+Sat, 04 Apr 2026 15:42:54 GMT
+
+https://www.cbr.com/harry-potter-dean-thomas-elijah-oshin-alfred-enoch/
+
+The new actor playing Dean Thomas in the Harry Potter reboot has officially met the original actor, Alfred Enoch.
+---------
+
+# Stephen King's 10 Best Fantasy Books, Ranked
+
+Movie, The Dark Tower, The Stand, It, Stephen King
+
+Sat, 04 Apr 2026 16:18:12 GMT
+
+https://collider.com/stephen-king-best-fantasy-books-ranked/
+
+While he's best known for his works of horror, Stephen King has also written some great fantasy books, including The Eyes of the Dragon and The Stand.
+---------
+
+# Netflix's Best Superhero Team Will Officially Reunite After 10 Years
+
+TV News, Daredevil: Born Again, MCU, Luke Cage, Iron Fist
+
+Sat, 04 Apr 2026 16:14:22 GMT
+
+https://collider.com/daredevil-born-again-season-3-luke-cage-iron-fist-return-mike-colter-finn-jones-set-image/
+
+It's official! Two of the Netflix era's most beloved characters will return in Daredevil: Born Again Season 3.
+---------
+
+# 'Game of Thrones' Star's Failed Sci-Fi Reboot Is Back on Streaming
+
+Movie News, Terminator Genisys, Arnold Schwarzenegger, Emilia Clarke, Jason Clarke
+
+Sat, 04 Apr 2026 16:00:13 GMT
+
+https://collider.com/emilia-clarke-terminator-genisys-sci-fi-reboot-streaming-paramount-plus-april-2026/
+
+The crew of Terminator Genisys, which is now streaming on a new platform, trauma-bonded over the unpleasant experience of making the movie.
+---------
+
+# 'The Simpsons' Changed Its History in Just 3 Minutes With This Massive Homer Twist
+
+TV Features, The Simpsons, Dan Castellaneta, Fox, Sitcom
+
+Sat, 04 Apr 2026 15:57:12 GMT
+
+https://collider.com/the-simpsons-season-35-premiere-homer-job-twist/
+
+In the Season 35 premiere of The Simpsons, the classic sitcom makes a major reveal about Homer's job.
+---------
+
+# 'Spaceballs 2' Officially Continues the Search for More Money Next Year
+
+Movie News, Spaceballs 2, Lewis Pullman, Bill Pullman, Josh Greenbaum
+
+Sat, 04 Apr 2026 15:37:33 GMT
+
+https://collider.com/spaceballs-2-sci-fi-sequel-release-date-april-23-2027/
+
+The search for more money will continue, as Spaceballs 2 now has an official 2027 release date.
+---------
+
+# 'SNL's Colin Jost Shifts to Drama to Play a Drug Lord on Peacock
+
+TV News, Colin Jost, Saturday Night Live, Peacock
+
+Sat, 04 Apr 2026 16:10:40 GMT
+
+https://movieweb.com/snl-colin-jost-plays-drug-lord/
+
+Colin Cost is working on a Peacock seres about Larry Lavin, the head of the so-called "Yuppie Conspiracy."
+---------
+
+# Ridley Scott's 'Exodus: Gods and Kings' Action Epic Hits Free Streaming
+
+Movie News, Exodus: Gods and Kings, Ridley Scott
+
+Sat, 04 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/exodus-gods-and-kings-streaming-april-tubi/
+
+The divisive biblical epic 'Exodus: Gods and Kings,' starring Christian Bale and Joel Edgerton, has arrived on Tubi.
+---------
+
+# 'Barry' Is the Most Underrated HBO Crime Thriller No One Talks About
+
+Features, Barry
+
+Sat, 04 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/barry-hbo-underrated-crime-thriller/
+
+'Barry,' the four-season crime thriller starring Bill Hader and Henry Winkler, is an underrated series on HBO.
+---------
+
 # The Super Mario Galaxy Movie & Project Hail Mary Rocket Easter Weekend Past Huge Box Office Record
 
 Movies, Box Office, The Super Mario Galaxy Movie, Super Mario Bros., Project Hail Mary
