@@ -1,3 +1,201 @@
+# The Objective Greatest Anime of All Time Has Been Officially Crowned, And It Breaks Every Rule
+
+Anime, Frieren: Beyond Journey's End
+
+Sat, 04 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/frieren-beyond-journeys-end-greatest-anime-break-rule/
+
+There are plenty of great anime series out there, but only one series is amazing because it breaks the biggest rule in the art form consistently.
+---------
+
+# I'm Convinced The Spider-Man: Brand New Day Trailer Is Misleading, But Not How Everyone Thinks
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Sat, 04 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-trailer-misleading-theory/
+
+The Spider-Man: Brand New Day trailer may be misleading – but not by hiding characters. Instead, it may have hidden its entire plot from view.
+---------
+
+# PlayStation Gamers Can Grab A 300+ Hour Free RPG, No PS Plus Needed
+
+Gaming, PlayStation Plus, PlanetSide 3
+
+Sat, 04 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/playstation-300-hour-free-rpg-no-ps-plus/
+
+Throne and Liberty is a huge MMORPG experience that's entirely free-to-play and offers more than 300 hours of content to enjoy.
+---------
+
+# John Wayne’s Classic 55-Year-Old Western That Ended A 21-Year Career Trend Is Now An American Streaming Hit
+
+Movies, Big Jake
+
+Sat, 04 Apr 2026 12:22:14 GMT
+
+https://screenrant.com/john-wayne-big-jake-paramount-plus-streaming-success-april-2026/
+
+One of John Wayne's late-career classics is now finding success on streaming over half a century after it was originally released.
+---------
+
+# He-Man’s New 4-Part Series Officially Arrives This Summer Alongside the Live-Action Movie
+
+Comics, Masters of the Universe
+
+Sat, 04 Apr 2026 12:01:19 GMT
+
+https://screenrant.com/he-man-wings-of-fate-new-series-masters-of-the-universe-tie-in/
+
+It’s official, 2026’s Masters of the Universe movie is getting a four-part tie-in series this summer, kicking off an incredible era for fans.
+---------
+
+# Netflix's Best Sex Education Replacement Is This Wild 3-Part Australian Reboot
+
+Streaming TV, Sex Education, Heartbreak High
+
+Sat, 04 Apr 2026 12:01:19 GMT
+
+https://screenrant.com/heartbreak-high-netflix-sex-education-replacement/
+
+Netflix's three-part reboot of an iconic '90s Australian teen drama series struck the same balance of humor, heart, and depth as Sex Education.
+---------
+
+# Supergirl’s New Superman Scene Totally Changes The Movie’s Ending Already
+
+Movies, Supergirl, DC Universe
+
+Sat, 04 Apr 2026 12:01:19 GMT
+
+https://screenrant.com/supergirl-superman-scene-movie-ending-change/
+
+The DCU Supergirl movie's Superman scene changes the original story in a way that looks set to pay off for the 2026 film and its ending.
+---------
+
+# GTA Fans Outraged Over Iconic Art Removal
+
+Gaming
+
+Sat, 04 Apr 2026 12:01:19 GMT
+
+https://screenrant.com/gta-san-andreas-mural-removed-2026/
+
+An iconic GTA San Andreas mural in Australia appears to have been painted over, and fans are once again getting nostalgic for an old favorite.
+---------
+
+# This Iconic Terminator 2 Quote Still Defines the Most Important Lesson in Sci-Fi History
+
+Movies, Terminator, Terminator 2: Judgment Day, Sci-Fi
+
+Sat, 04 Apr 2026 12:00:15 GMT
+
+https://www.cbr.com/terminator-2-quote-defines-most-important-sci-fi-lesson/
+
+Terminator 2: Judgment Day is a great sci-fi movie and sequel, but its greatest claim to fame is a quote that still resonates with viewers today.
+---------
+
+# Star Trek Confirms The Truth About Red Shirts Before 60th Anniversary
+
+Comics, Star Trek
+
+Sat, 04 Apr 2026 12:00:15 GMT
+
+https://www.cbr.com/star-trek-red-shirts-ghost-of-the-21st-century-release-date-confirmed/
+
+Star Trek is about to dive deep into the dark truth at the heart of all Red Shirts and turn the franchise's open secret into its own horror story.
+---------
+
+# A Taylor Sheridan Rip-Off With No Rotten Tomatoes Score Invades His Home Turf
+
+Movie News, Taylor Sheridan, Night of the Sicario, Sicario, Paramount Plus
+
+Sat, 04 Apr 2026 12:31:12 GMT
+
+https://collider.com/taylor-sheridan-rip-off-night-of-the-sicario-streaming-paramount-plus-april-2026/
+
+Taylor Sheridan's home turf, Paramount+, is now hosting a rip-off titled Night of the Sicario. Find out more here.
+---------
+
+# Only 3 Family Movies Are Better Than 'The Wizard of Oz'
+
+Movie, The Wizard of Oz, Disney's Pinocchio, Spirited Away, E.T. the Extra-Terrestrial
+
+Sat, 04 Apr 2026 12:20:12 GMT
+
+https://collider.com/family-movies-better-than-the-wizard-of-oz/
+
+A rare trio of family films surpass The Wizard of Oz, blending deeper emotion, richer worlds, and even more powerful coming-of-age journeys.
+---------
+
+# HBO’s 4-Part Crime Series Gets Even Better on a Rewatch
+
+TV Features, Barry, Bill Hader, HBO, Series
+
+Sat, 04 Apr 2026 12:17:12 GMT
+
+https://collider.com/hbo-best-rewatch-crime-series-barry/
+
+Barry blends crime, comedy, and psychological drama—here’s why HBO’s hit series gets even better on a rewatch.
+---------
+
+# 10 Sci-Fi Books That Are As Good as 'Dune'
+
+Movie, Sci-Fi, Dune, A Clockwork Orange, Frankenstein
+
+Sat, 04 Apr 2026 12:14:12 GMT
+
+https://collider.com/sci-fi-books-as-good-as-dune/
+
+Dune is one of the best and most acclaimed sci-fi books of all time, but a few others are similarly great, including Hyperion and Slaughterhouse-Five.
+---------
+
+# 10 Years Later, Austin Butler Is Officially the Only Good Part of This Painful Kevin Smith Horror Movie
+
+Movie Features, Austin Butler, Yoga Hosers, Kevin Smith, Harley Quinn Smith
+
+Sat, 04 Apr 2026 12:14:12 GMT
+
+https://collider.com/kevin-smith-movies-yoga-hosers-austin-butler/
+
+In Yoga Hosers, Kevin Smith goes full absurd, but a young Austin Butler cuts through the chaos, delivering the film’s most charming performances.
+---------
+
+# ‘Invincible’ Just Put All Other Superhero Shows to Shame in 5 Painful Minutes
+
+TV Features, Invincible, Prime Video, J.K. Simmons, Sandra Oh
+
+Sat, 04 Apr 2026 12:04:13 GMT
+
+https://collider.com/invincible-season-4-episode-5-debbie-nolan-argument/
+
+Invincible masterfully portrays the emotional turmoil of its characters, making personal struggles more gripping than epic battles.
+---------
+
+# This 10/10 Apocalyptic Sci-Fi Thriller Is So Good, Fans Are Rewatching It 13 Years Later
+
+Movie News, Snowpiercer, Sci-Fi, Bong Joon Ho
+
+Sat, 04 Apr 2026 12:00:15 GMT
+
+https://collider.com/snowpiercer-apocalyptic-sci-fi-thriller-streaming-success-free-pluto-tv-april-2026/
+
+Snowpiercer is having a major free-streaming resurgence on Pluto TV, bringing Bong Joon Ho’s sci-fi favorite back into the spotlight.
+---------
+
+# 10 Forgotten Slasher Movies That Are Actually Amazing
+
+Movie, Slasher, Horror, Cherry Falls, Valentine
+
+Sat, 04 Apr 2026 11:53:12 GMT
+
+https://collider.com/forgotten-slasher-movies-amazing/
+
+Stage Fright, Bloody Birthday, and The Burning are overlooked slasher movies that deserve to be rediscovered.
+---------
+
 # Stephen Amell's Baywatch Reboot Will Avoid The Mistake That Killed Suits LA
 
 Network TV, Suits LA
