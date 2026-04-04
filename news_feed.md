@@ -1,3 +1,113 @@
+# TV Shows That Struggled After Losing Main Cast Members
+
+Classic TV, The Office, The Walking Dead, Suits
+
+Sat, 04 Apr 2026 23:15:19 GMT
+
+https://screenrant.com/tv-shows-never-recovered-after-losing-main-character/
+
+10 classic and current TV shows that failed to regain their footing after losing a main character, impacting storylines and overall show quality.
+---------
+
+# The Terminator: How a $6.4M Indie Film Launched a Sci-Fi Franchise
+
+Movies, The Terminator
+
+Sat, 04 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/the-terminator-low-budget-sci-fi-launch-franchise/
+
+In 1984, an unknown director made a tiny indie sci-fi movie for $6.4 million called The Terminator. It promptly launched a blockbuster franchise.
+---------
+
+# The Original 5 Power Rangers. Where They Are Now, And How 1 Redefined the Franchise
+
+Comics, Power Rangers, Mighty Morphin Power Rangers
+
+Sat, 04 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/original-power-rangers-actors-amy-jo-johnson/
+
+A complete guide to the original five Power Rangers about the characters, their actors, and how the Power Ranger's franchise is continuing.
+---------
+
+# Undertale Returns With Official New Release In Spring 2026
+
+Gaming, Undertale, PC
+
+Sat, 04 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/undertale-chitei-de-chill-2026-official-release/
+
+Undertale is officially back with a brand-new release in Q2 this year, and fans of the iconic indie hit will want to mark their calendars.
+---------
+
+# Crunchyroll is Repeating Their Biggest Mistake
+
+Anime, Crunchyroll, Solo Leveling, My Hero Academia, The Apothecary Diaries
+
+Sat, 04 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/crunchyroll-anime-awards-solo-leveling-my-hero-academia/
+
+My Hero Academia Final Season is almost guaranteed to win "Anime of the Year" and create a brand-new controversy in the process.
+---------
+
+# XO, Kitty Dominates Netflix Worldwide After Season 3 Debut
+
+TV, XO, Kitty, Netflix, Romance
+
+Sat, 04 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/xo-kitty-teen-rom-com-netflix-success-april-2026/
+
+Netflix's To All the Boys spin-off, XO, Kitty, tops global streaming charts after Season 3 release.
+---------
+
+# Hulu's 8-Part Dystopian Show With 91% RT Shows Lost How It's Done
+
+TV, Paradise, Lost
+
+Sat, 04 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/hulu-dystopian-show-paradise-shows-improves-on-lost/
+
+Lost remains one of the best sci-fi adventure series on television, but when it comes to a new generation and streaming, this Hulu show is a good fit.
+---------
+
+# Harry Potter Icon Officially Takes Over HBO Max With New Movie
+
+Movie News, Fackham Hall, Downton Abbey, Streaming
+
+Sat, 04 Apr 2026 23:15:13 GMT
+
+https://collider.com/harry-potter-star-tom-felton-fackham-hall-streaming-success-hbo-max-april-2026/
+
+Fackham Hall has become a surprise HBO Max streaming hit, proving there’s a big audience for a ridiculous period-drama send-up.
+---------
+
+# 'Predator' Meets 'Tropic Thunder' in 2025's Creature Thriller That's Taking Over the World
+
+Movie News, Tropic Thunder, HBO Max, Predator, Anaconda
+
+Sat, 04 Apr 2026 23:00:13 GMT
+
+https://collider.com/paul-rudd-jack-black-anaconda-2025-tropic-thunder-meets-predator-thriller-streaming-success-hbo-max-april-2026/
+
+Anaconda is becoming a major streaming hit on HBO Max after its theatrical run, giving the Jack Black and Paul Rudd thriller a big second life.
+---------
+
+# 'Project Hail Mary' Didn't Need the Scene With Grace Teaching the Eridians
+
+Features, Project Hail Mary
+
+Sat, 04 Apr 2026 23:00:18 GMT
+
+https://movieweb.com/project-hail-mary-worst-scene/
+
+Ryan Gosling's Dr. Ryland Grace ends 'Project Hail Mary' in a familiar position, but was this full-circle moment really necessary?
+---------
+
 # 10 Greatest Justice League Heroes Who Joined Since 2000
 
 Comics, Justice League
