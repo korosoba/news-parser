@@ -1,3 +1,91 @@
+# Netflix Series Something Very Bad Is Going To Happen Inspired by Rosemary's Baby
+
+Streaming TV, Something Very Bad Is Going to Happen, Rosemary's Baby
+
+Sat, 04 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-rosemarys-baby-inspiration/
+
+The Duffer Brothers are back with a new show alongside creator Haley Z. Boston, with horror credentials even stronger than those of Stranger Things.
+---------
+
+# 10 Most Shocking Deaths In All 7 Jurassic Park Movies, Ranked
+
+Movies, Jurassic Park, The Lost World: Jurassic Park, Jurassic Park 3, Jurassic World, Jurassic World Fallen Kingdom, Jurassic World Dominion, Jurassic World Rebirth
+
+Sat, 04 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/jurassic-park-movies-most-shocking-deaths-ranked/
+
+The Jurassic Park movies may be suitable for kids, but that doesn't mean they can't shock audiences with unforgettable death scenes.
+---------
+
+# Hulu's The X-Files Reboot Will Rewrite Sci-Fi Forever
+
+Streaming TV, The X-Files, Sci-Fi, Ryan Coogler
+
+Sat, 04 Apr 2026 20:28:18 GMT
+
+https://screenrant.com/hulu-the-x-files-reboot-change-sci-fi/
+
+With an Oscar-winning writer-director developing the revival, one of the most recognizable IP's of the 1990s could dominate sci-fi TV once again.
+---------
+
+# Star Trek: Starfleet Academy's Cancellation Squashed a Voyager Reunion
+
+TV, Star Trek: Starfleet Academy, Star Trek: Voyager, Star Trek
+
+Sat, 04 Apr 2026 20:43:16 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-voyager-reunion/
+
+Fans are missing out on a Star Trek: Voyager reunion thanks to Starfleet Academy getting axed by Paramount+.
+---------
+
+# 10 Most Perfect Movie Adaptations of All Time, Ranked
+
+Movie, The Godfather, Goodfellas, The Shawshank Redemption, The Lord of the Rings: The Fellowship of the Ring
+
+Sat, 04 Apr 2026 20:53:12 GMT
+
+https://collider.com/most-perfect-movie-adaptations-all-time-ranked/
+
+The most perfect book-to-movie adaptations of all time include classics like The Godfather, A Clockwork Orange, and The Lord of the Rings trilogy.
+---------
+
+# Every Major Villain Confirmed in 'Spider-Man: Brand New Day'
+
+Movie, Spider-Man: Brand New Day, Superhero, Spider-Man, MCU
+
+Sat, 04 Apr 2026 20:38:12 GMT
+
+https://collider.com/spider-man-brand-new-day-villains-confirmed/
+
+So far, we have seen seven confirmed antagonists for Tom Holland's Spider-Man: Brand New Day, including the hyped return of Michael Mando's Scorpion.
+---------
+
+# 35+ Years Later, Kurt Russell and Goldie Hawn's Genre-Defining Classic Is Dominating Streaming
+
+Movie News, romantic comedies, Goldie Hawn, Kurt Russell, Overboard
+
+Sat, 04 Apr 2026 20:30:12 GMT
+
+https://collider.com/kurt-russell-goldie-hawn-rom-com-overboard-streaming-success-prime-video-april-2026/
+
+Overboard is back in Prime Video’s movie chart, giving the Kurt Russell and Goldie Hawn favorite a fresh streaming revival.
+---------
+
+# 7 Greatest American Remakes of Foreign Movies Since 2020
+
+Movie, Wrath of Man, Ambulance, CODA, Remake
+
+Sat, 04 Apr 2026 20:29:12 GMT
+
+https://collider.com/best-american-remakes-of-foreign-movies-since-2020/
+
+Wrath of Man, Ambulance, and Speak No Evil are all among the very best American remakes of international movies released since 2020.
+---------
+
 # Best Class Respec Options For The Baldur's Gate 3 Companions
 
 Gaming, PC, Baldur's Gate 3, Triple-A Games
