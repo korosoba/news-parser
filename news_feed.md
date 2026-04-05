@@ -1,3 +1,14 @@
+# SNL Recap: Jack Black Hosts And Professor Snape Calls Harry Potter Franchise Racist
+
+TV, Saturday Night Live
+
+Sun, 05 Apr 2026 06:14:39 GMT
+
+https://screenrant.com/saturday-night-live-recap-jack-black-harry-potter/
+
+Jack Black returns to host Saturday Night Live for the fifth time and he is joined by a star-studded line up of guest stars throughout the night.
+---------
+
 # Play 6 Assassin's Creed Games For Free For 24 More Hours
 
 Gaming, Assassin's Creed
