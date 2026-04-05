@@ -1,3 +1,91 @@
+# 10 Near-Perfect Dystopian Sci-Fi Movies That Nobody Remembers Today
+
+Classic Movies, Sci-Fi
+
+Sun, 05 Apr 2026 20:46:20 GMT
+
+https://screenrant.com/great-dystopian-sci-fi-movies-nobody-remembers/
+
+From feminist post-apocalyptic tales to forgotten cult classics, these dystopian stories deserve far more attention from mainstream audiences
+---------
+
+# Robert Pattinson & Zendaya's New A24 Movie Elicits Strong Rotten Tomatoes Score As Audiences Give Their Verdict
+
+Movies, The Drama, Zendaya, Robert Pattinson, A24
+
+Sun, 05 Apr 2026 20:43:59 GMT
+
+https://screenrant.com/robert-pattinson-zendaya-the-drama-movie-rotten-tomatoes-audience-score/
+
+Robert Pattinson and Zendaya's new chaotic A24 movie evokes a strong audience reception on Rotten Tomatoes, as the big twist sparks a debate.
+---------
+
+# Netflix Has a New Queen of Action Thrillers With Their Best Femme Fatale in Years
+
+Anime, Netflix, Bloodhounds, Bloodhounds - Season 2
+
+Sun, 05 Apr 2026 20:31:18 GMT
+
+https://screenrant.com/bloodhounds-season-2-gi-na-queen-action-thriller-netflix-femme-fatale/
+
+One of Netflix's biggest K-dramas to kick off Spring 2026's season just dropped a killer new character worth greater appreciation.
+---------
+
+# Prime Video's 10/10 Sci-Fi Series Keeps Breaking Its Own Rules
+
+Streaming TV, The Boys, Amazon Prime Video, Sci-Fi
+
+Sun, 05 Apr 2026 20:31:18 GMT
+
+https://screenrant.com/prime-video-the-boys-franchise-break-rules-spinoffs/
+
+One show's journey from biting satire to cinematic universe reveals a deeper truth about the nature of storytelling and audience engagement.
+---------
+
+# Stranger Things Star Debuts Pizza Movie, a New Sci-Fi Comedy Dominating Hulu
+
+Movies, Stranger Things, Pizza Movie, Comedy
+
+Sun, 05 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/pizza-movie-sci-fi-comedy-streaming-success-hulu-disney-plus-april-2026/
+
+One of Stranger Things' biggest stars has a trippy new sci-fi comedy that is taking over one of the streaming giants.
+---------
+
+# Netflix's Unfamiliar Is Already the Best Espionage Series of 2026
+
+TV, Unfamiliar, Netflix, Thriller
+
+Sun, 05 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/netflix-unfamiliar-best-espionage-show-2026/
+
+This Netflix spy thriller proves they don't need to be explosive to be among the best in the genre.
+---------
+
+# Say Goodbye to Brad Pitt's Relentless WWII Thriller
+
+Movie News, Fury, Brad Pitt, David Ayer, Jon Bernthal
+
+Sun, 05 Apr 2026 20:30:12 GMT
+
+https://collider.com/brad-pitt-netflix-removing-fury-relentless-ww2-thriller-may-2026/
+
+Time is running out to watch David Ayer's fan-favorite WW2 drama Fury, which is set to leave Netflix soon. Find out when.
+---------
+
+# Christopher Nolan's Thriller 'Memento' Established His Trademark Style
+
+Features, Memento, Christopher Nolan, Career Arc Reframe
+
+Sun, 05 Apr 2026 20:30:17 GMT
+
+https://movieweb.com/christopher-nolan-memento-revenge-thriller-greatest-filmmaker/
+
+Christopher Nolan is regarded as one of the greatest modern filmmakers, and his 2000 thriller 'Memento' introduced many of the themes he still uses.
+---------
+
 # Every Potential Smash Bros. Movie Character Revealed So Far (After The Super Mario Galaxy Movie)
 
 Movies, The Super Mario Galaxy Movie, Super Smash Bros.
