@@ -1,3 +1,113 @@
+# 62 Years Of Daredevil History Comes To Life With One Glorious Piece Of Official Art
+
+Comics, Marvel, Daredevil
+
+Sun, 05 Apr 2026 22:44:09 GMT
+
+https://screenrant.com/daredevil-history-new-art-marvel/
+
+Daredevil has had plenty of colorful costumes in Marvel comics lore, and the character's brand-new run has paid loving tribute to that history.
+---------
+
+# 10 Best Batman Comics That Don't Star His Main Villains
+
+DC Comics, Batman
+
+Sun, 05 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/best-batman-comics-unusual-villains/
+
+Batman's rogues' gallery may be the most iconic group of villains in the superhero genre, but there are several great comics that don't need them.
+---------
+
+# The Edge Of Seventeen: A Hidden Gem Of Modern Coming-Of-Age Comedy
+
+Movies, The Edge of Seventeen, Recommendation
+
+Sun, 05 Apr 2026 22:26:19 GMT
+
+https://screenrant.com/edge-of-seventeen-best-modern-teen-comedy/
+
+The Edge of Seventeen is just about a decade old now and it deserves to be mentioned more among the best coming-of-age movies ever made.
+---------
+
+# Quentin Tarantino Said Rio Bravo the Greatest Movies Ever Made
+
+Movies, Rio Bravo
+
+Sun, 05 Apr 2026 22:45:12 GMT
+
+https://www.cbr.com/quentin-tarantino-rio-bravo-western-greatest-movie-ever-made/
+
+Tarantino's love of Westerns is no secret, so it makes sense that he called one of John Wayne's films one of the greatest ever made.
+---------
+
+# 10 Amazing Short Anime With Episodes You Can Watch in Less Than 10 Minutes
+
+Anime, Aggretsuko
+
+Sun, 05 Apr 2026 22:30:35 GMT
+
+https://www.cbr.com/good-short-anime-episodes-under-10-minutes/
+
+Hard-hitting anime like Aggretsuko and Encouragement of Climb prove that short episodes can have an even bigger impact when executed perfectly.
+---------
+
+# Netflix's Gritty Sci-Fi Thriller Is Finally Slowing Down on the Global Charts After 112M Views
+
+Movies, War Machine, Netflix
+
+Sun, 05 Apr 2026 22:30:13 GMT
+
+https://www.cbr.com/netflix-sci-fi-war-machine-losing-steam-april-2026/
+
+One of today's most in-demand action stars takes the lead in Netflix's latest sci-fi thriller, but it's quickly run out of steam on the global charts.
+---------
+
+# The Super Mario Galaxy Movie Confimrs Peach & Rosalina are Sisters
+
+Movies, The Super Mario Galaxy Movie, Nintendo
+
+Sun, 05 Apr 2026 22:30:13 GMT
+
+https://www.cbr.com/the-super-mario-galaxy-movie-answers-peach-rosalina-sister-theory/
+
+The Super Mario Galaxy Movie finally confirms Peach and Rosalina are sisters, but does so by honoring a scrapped idea from the games.
+---------
+
+# HBO's 97% RT Drama Masterpiece The Pitt Deserves to Be Called a Modern Classic
+
+TV, The Pitt, hbo, Drama
+
+Sun, 05 Apr 2026 22:30:13 GMT
+
+https://www.cbr.com/hbo-the-pitt-earned-modern-classic-masterpiece-status/
+
+The Pitt is a drama masterpiece, and I don't hesitate to call it a modern classic show that will go down in history as being one of the best.
+---------
+
+# Forget 'Scarpetta,' Prime Video's 110-Minute Crime Thriller Is a Sudden Streaming Hit
+
+Movie News, Nicole Kidman, Holland, HBO Max, Scarpetta
+
+Sun, 05 Apr 2026 22:45:13 GMT
+
+https://collider.com/prime-video-crime-thriller-nicole-kidman-scarpetta-replacement-holland-streaming-success-hbo-max-april-2026/
+
+Nicole Kidman's Scarpetta predecessor is a hit on the global streaming charts. Here's what you should know about Holland.
+---------
+
+# Disney's Sci-Fi Franchise-Saving Hit Is Taking Over the World
+
+Movie News, Disney+, Predator: Badlands, Streaming, Elle Fanning
+
+Sun, 05 Apr 2026 22:30:13 GMT
+
+https://collider.com/elle-fanning-disney-sci-fi-thriller-reboot-predator-badlands-streaming-success-hulu-april-2026/
+
+Disney's $184 million franchise reboot, Predator: Badlands starring Elle Fanning, is finding success on the global streaming charts.
+---------
+
 # Upcoming Detective Shows: True Detective Season 5, Line of Duty Season 7, and More
 
 Classic TV
