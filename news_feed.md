@@ -1,3 +1,179 @@
+# Nintendo Already Has A Near-Perfect Super Smash Bros. Movie Story
+
+Movies, Super Smash Bros.
+
+Sun, 05 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/super-smash-bros-movie-story-nintendo-subspace-emissary/
+
+The Super Mario Galaxy Movie sets up a possible Super Smash Bros. movie, and Nintendo already has a great story it could adapt for the film.
+---------
+
+# 10 Best Fallout Series Companions, Ranked
+
+Gaming, Fallout
+
+Sun, 05 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/best-fallout-companions-ranked-all-games/
+
+Discover the best Fallout companions, ranked by their impact on the story, combat abilities, and character depth. From Dogmeat to Nick Valentine, these allies make the wasteland journey unforgettable.
+---------
+
+# Spyro The Dragon Official New Release Coming This June
+
+Gaming, Spyro the Dragon
+
+Sun, 05 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/spyro-official-return-june-2026/
+
+First 4 Figures unveils the Peace Keepers Red Crystal Dragon mini metal statue for the Spyro the Dragon franchise.
+---------
+
+# Midsommar: Misunderstood as Horror, Florence Pugh's Emotional Journey
+
+Movies, Florence Pugh, Midsommar
+
+Sun, 05 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/florence-pugh-disturbing-movie-misunderstood/
+
+Florence Pugh has starred in many great movies, but one of her most famous is often mistaken as a horror — and that's exactly why it's so disturbing.
+---------
+
+# Hayden Christensen's Underrated Thriller 'Awake': A Terrifying Medical Drama
+
+Movies, Hayden Christensen
+
+Sun, 05 Apr 2026 14:40:18 GMT
+
+https://screenrant.com/awake-hayden-christensen-thriller-recommendation/
+
+Hayden Christensen is most known for playing Anakin Skywalker, yet he shines in this often-overlooked thriller in one of his best performances.
+---------
+
+# Titus Welliver's Dark Winds Season 5 Return Chances Addressed After "Open-Ended" Season 4 Finale
+
+TV, Dark Winds
+
+Sun, 05 Apr 2026 14:39:33 GMT
+
+https://screenrant.com/dark-winds-season-5-titus-welliver-return-response/
+
+EXCLUSIVE: Titus Welliver discusses the possibility of reprising his role as McNair in Dark Winds season 5, following an open-ended season 4 finale.
+---------
+
+# Iconic Disney Villains Evil Queen, Jafar, Captain Hook, & Ursula Get Official Diagnosis From Psychologist
+
+Movies, Peter Pan, Disney, Aladdin, The Little Mermaid, Snow White
+
+Sun, 05 Apr 2026 14:34:51 GMT
+
+https://screenrant.com/disney-villain-evil-queen-jafar-captain-hook-ursual-psychology-diagnosis-jonathan-decker/
+
+The most iconic Disney villains get an official mental health diagnosis from a licensed psychologist, and some of their diagnoses could surprise you.
+---------
+
+# 10 Near-Perfect Sci-Fi Shows That Nobody Remembers Today
+
+Classic TV, Sci-Fi
+
+Sun, 05 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/near-perfect-sci-fi-shows-nobody-remembers/
+
+Sci-fi shows currently dominate modern TV, but there are others in the genre that carved out a name for themselves, yet nobody remembers them.
+---------
+
+# 10 Darkest New Gen Anime, Ranked
+
+Anime
+
+Sun, 05 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/darkest-anime-new-gen-ranked/
+
+The newest generation of anime is noticeably darker than the last, and these 10 series show just how brutal and bleak this generation can be.
+---------
+
+# Disney's Underrated Fantasy Show: Star Vs The Forces Of Evil
+
+Classic TV, Star vs. The Forces of Evil
+
+Sun, 05 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/disney-star-vs-forces-of-evil-best-fantasy-show/
+
+Disney is home to an animated fantasy show that is now one of its best, but, despite making Disney history, it isn't as popular as it should be.
+---------
+
+# 7 Best GameCube Games Stuck On Older Systems
+
+Games, Nintendo, retro games
+
+Sun, 05 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/best-gamecube-games-stuck-on-older-systems/
+
+There are a lot of GameCube games that are stuck on modern consoles and these 7 need to be playable once again.
+---------
+
+# Zachary Levi's Harold and the Purple Crayon Finally Sets Hulu Release
+
+Movies, Harold and the Purple Crayon
+
+Sun, 05 Apr 2026 14:32:56 GMT
+
+https://www.cbr.com/zachary-levi-harold-purple-crayon-hulu-release-april-2026/
+
+Critics panned Zachary Levi's fantasy film, but audiences dubbed it a smash hit. It's finally making its way to Hulu.
+---------
+
+# Epic New Video Game Movie Is Already Beating the Competition at the Box Office
+
+Movie News, Hoppers, The Super Mario Galaxy Movie, Chris Pratt, Anya Taylor-Joy
+
+Sun, 05 Apr 2026 14:29:48 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-overtakes-hoppers-box-office-370-million/
+
+Nintendo and Universal officially level up again at the box office as The Super Mario Galaxy Movie passes Pixar’s Hoppers in 1 weekend.
+---------
+
+# Movies to Watch If You Love Indiana Jones
+
+Movie Lists, Indiana Jones
+
+Sun, 05 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/movies-like-indiana-jones/
+
+From hidden treasures to daring heroes, these movies deliver the same classic adventure spirit that made Indiana Jones a timeless favorite.
+---------
+
+# 'The Sympathizer': Robert Downey Jr.'s Forgotten 7-Part HBO Thriller Miniseries Is a Must-Watch
+
+Features, Robert Downey Jr., The Sympathizer, Park Chan-wook, Cultural Reassessment
+
+Sun, 05 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/robert-downey-jr-the-sympathizer-miniseries-hbo/
+
+Despite acclaim in the West, controversy in Vietnam, and award-winning direction, it struggled to generate the kind of buzz that was expected.
+---------
+
+# Antony Starr Explains Homelander's Quest for Power in 'The Boys' Season 5
+
+Exclusives, Antony Starr, The Boys
+
+Sun, 05 Apr 2026 14:37:12 GMT
+
+https://movieweb.com/the-boys-quest-power-season-5-exclusive/
+
+For Starr's villainous Homelander, enough is never enough.
+---------
+
 # New Prime Video Movies April 2026: Best Additions & Highlights
 
 Movies, Prime Video, Ranking
