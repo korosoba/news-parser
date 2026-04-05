@@ -1,3 +1,234 @@
+# 10 Early Metal Albums Every Metal Fan Needs To Hear Start To Finish
+
+Music, Metal
+
+Sun, 05 Apr 2026 16:27:11 GMT
+
+https://screenrant.com/10-early-metal-albums-fan-needs-to-hear/
+
+The metal scene is wildly fragmented, but fans can and should get back to their roots by listening to these albums from start to finish.
+---------
+
+# Val Kilmer Has Countless Iconic Roles, But His Greatest Is The 1993 Western Experiencing A New Wave Of Appreciation
+
+Movies, Tombstone, Val Kilmer, Western
+
+Sun, 05 Apr 2026 16:20:18 GMT
+
+https://screenrant.com/val-kilmer-has-countless-iconic-roles-but-his-greatest-is-the-1993-western-experiencing-a-new-wave-of-appreciation/
+
+Val Kilmer gave many great performances throughout his career, but an endlessly rewatchable 1990s Western gifted him with his best role.
+---------
+
+# 9-1-1 Season 9’s Unexpected Bobby Update Has Diabolical Timing
+
+Network TV, 9-1-1
+
+Sun, 05 Apr 2026 16:15:18 GMT
+
+https://screenrant.com/911-bobby-death-anniversary-hooks-introduction-timing-diabolical/
+
+As the 118 continues to move forward after their tragedy, an unexpeted update about Bobby Nash in 9-1-1 season 9 has diabolical timing.
+---------
+
+# $239M Crime Comedy Sequel Dominates HBO Max Streaming In America Amid DreamWorks Lawsuit
+
+Movies, The Bad Guys 2, Dreamworks
+
+Sun, 05 Apr 2026 16:14:55 GMT
+
+https://screenrant.com/the-bad-guys-2-netflix-streaming-success-april-2026/
+
+The Bad Guys 2 was a hit in the animated comedy genre, and audiences are still watching despite the looming lawsuit involving production.
+---------
+
+# 10 Modern Star Trek Episodes As Good As Anything From The Kirk & Picard Eras
+
+Classic TV, Star Trek
+
+Sun, 05 Apr 2026 16:03:18 GMT
+
+https://screenrant.com/star-trek-modern-episodes-as-good-classics/
+
+From Picard to Discovery, plenty of modern Star Trek episodes rival the Kirk and Picard eras with new ideas, complex emotions, and bold storytelling.
+---------
+
+# 10 Worst Manga Endings Of All Time
+
+Anime, Ranking
+
+Sun, 05 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/worst-manga-endings-all-time-ranked/
+
+What were these writers thinking?
+---------
+
+# Euphoria Season 3 Trailer Teases Escalation of Nate-Cassie-Maddy Love Triangle
+
+Streaming TV, Euphoria
+
+Sun, 05 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/euphoria-season-3-nate-cassie-maddy-toxic-love-triangle/
+
+Just when we thought this toxic love triangle was over, the new Euphoria season 3 trailer shows that it hasn't gone away, even with the time jump.
+---------
+
+# Fallout 3 Remake Teaser Leaves Fans With One Big Concern
+
+Gaming, Fallout
+
+Sun, 05 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/fallout-3-remake-tease-gamer-reaction/
+
+Bethesda's Fallout 3 Remaster, developed with Virtuous Studios, aims for high polish like Oblivion Remastered.
+---------
+
+# Prime Is Taking A Big Risk With Their Reacher Rival Thanks To The Wait Between Seasons
+
+TV, The Terminal List
+
+Sun, 05 Apr 2026 15:55:17 GMT
+
+https://screenrant.com/terminal-list-season-2-4-year-wait-risk-reacher-rival/
+
+Prime's rival series to Reacher aired its first season back in 2022, but will audiences still be waiting for season 2 when it lands four years later?
+---------
+
+# Dave Filoni Reveals Why Major Star Wars Villain Wasn’t In More Of The Clone Wars
+
+TV, Star Wars: The Clone Wars, Star Wars, Emperor Palpatine / Darth Sidious
+
+Sun, 05 Apr 2026 15:54:48 GMT
+
+https://screenrant.com/star-wars-the-clone-wars-less-darth-sidious-dave-filoni-explained/
+
+Despite being a major Star Wars villain, this character had minimal appearances in The Clone Wars, with Dave Filoni explaining why this was the case.
+---------
+
+# Netflix's Near-Perfect 2026 Sports Anime is Already Better Than Haikyu!!
+
+Anime, Crunchyroll, Haikyu!!, Akane-banashi
+
+Sun, 05 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/netflix-akane-banashi-2026-sports-anime-better-than-haikyu/
+
+Akane-banashi is far from a traditional sports anime, but its first episode has already established it as a must-watch series.
+---------
+
+# Prime Video's Agent Zeta Aims High on Streaming
+
+Movies, Agent Zeta
+
+Sun, 05 Apr 2026 16:05:50 GMT
+
+https://www.cbr.com/prime-video-agent-zeta-streaming-april-2026/
+
+Amazon's newest action thriller is an international streaming sensation.
+---------
+
+# Zelda Producer Teases Ocarina of Time Switch 2 Remake
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Sun, 05 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/zelda-producer-eiji-aonuma-interview-hint-ocarina-of-time-switch-2-remake/
+
+An interview with Zelda producer Eiji Aonuma has resurfaced that retroactively corroborates the fact an Ocarina of Time remake for Switch 2 is coming.
+---------
+
+# Transformers Finally Revives Unreleased G2 Combiner Team With Bold '90s Neon Design
+
+Anime, Transformers, merchandise, toys, action figures
+
+Sun, 05 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/transformers-g1-combiner-menasor-takara-tomy-release/
+
+40 years later, one of the most colorful Transformers Combiner teams from Generation 2 rolls out a new trick in a set of official re-releases.
+---------
+
+# Star Trek: Starfleet Academy Underutilizes Tatiana Maslany's Talents
+
+TV, Star Trek, Star Trek: Starfleet Academy, Sci-Fi
+
+Sun, 05 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-tatiana-maslany-underused/
+
+Star Trek: Starfleet Academy had its fair share of ups and downs, but one mistake it made was underusing a fascinating new character.
+---------
+
+# Harry Potter Fans Believe HBO Cast Adolescence Star Owen Cooper as Tom Riddle
+
+TV, Harry Potter
+
+Sun, 05 Apr 2026 15:59:29 GMT
+
+https://www.cbr.com/harry-potter-fan-speculation-owen-cooper-tom-riddle/
+
+HBO's Harry Potter almost cast all the characters, but one of the most important characters has yet to be confirmed.
+---------
+
+# 10 Fantasy Movie Masterpieces That Are Definitely Not for Kids
+
+Movie, Fantasy, The Northman, Pan's Labyrinth, Excalibur
+
+Sun, 05 Apr 2026 16:06:12 GMT
+
+https://collider.com/fantasy-masterpieces-not-for-kids/
+
+While films in the fantasy genre are often inviting family experiences, films like Evil Dead 2, The Witch, and Excalibur are definitely not for kids.
+---------
+
+# 'Star Trek's Forgotten Original Nickname for Dr. "Bones" McCoy Is Genuinely Ridiculous
+
+TV Features, Star Trek, Sci-Fi, Star Trek: The Original Series, NBC
+
+Sun, 05 Apr 2026 15:54:13 GMT
+
+https://collider.com/star-trek-tos-leonard-mccoy-bones-original-nickname/
+
+Before being nicknamed Bones, Star Trek: The Original Series had a completely different nickname for Leonard McCoy that feels is hard not to laugh at.
+---------
+
+# Ryan Coogler's 'The X-Files' Reboot Can Fix a 10-Year-Old Alien Problem
+
+Features, The X-Files, Ryan Coogler, Sci-Fi
+
+Sun, 05 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/the-x-files-reboot-fix-alien-problem/
+
+Ryan Coogler's highly anticipated reboot of 'The X-Files' can fix a problem with the show's alien lore created by the 2016 revival.
+---------
+
+# Military Sci-Fi Action Thriller 'Starship Troopers' Now Free to Stream
+
+Movie News, Starship Troopers, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 05 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/starship-troopers-military-sci-fi-action-streaming-pluto-tv-april-2026/
+
+Bursting with blood, this cult classic was accused of being made by Nazis when it was released.
+---------
+
+# Daredevil: Born Again Images Reveal Netflix Heroes Will Finally Join the MCU
+
+TV News, Daredevil: Born Again, Disney+, Netflix, The Defenders, Luke Cage, Iron Fist
+
+Sun, 05 Apr 2026 15:57:08 GMT
+
+https://movieweb.com/netflix-marvel-universe-daredevil-born-again/
+
+Disney+ is getting the band back together again.
+---------
+
 # 10 Seinfeld Lines That Are Even Funnier 30 Years Later
 
 Classic TV, Seinfeld
