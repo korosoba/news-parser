@@ -1,3 +1,223 @@
+# Skyrim: A Dark Warrior's Tale Proves This Game Will Never Die
+
+Gaming, The Elder Scrolls V: Skyrim
+
+Sun, 05 Apr 2026 04:30:18 GMT
+
+https://screenrant.com/skyrim-dark-warrior-story-quest-2026/
+
+Explore a brand-new quest and unlock powerful combat abilities with the A Dark Warrior's Tale mod for Skyrim.
+---------
+
+# Outer Wilds Is Officially Back With A New 2026 Release
+
+Gaming, Outer Wilds, PC
+
+Sun, 05 Apr 2026 04:00:26 GMT
+
+https://screenrant.com/outer-wilds-campfire-release-2026/
+
+If you're a fan of the incredible indie sci-fi adventure game Outer Wilds, there's a brand-new release that you can check out and claim now.
+---------
+
+# Only One Of Miyazaki's Movies Is Tragically Incomplete, And Ghibli Needs To Fix That
+
+Anime, Howl's Moving Castle, Studio Ghibli
+
+Sun, 05 Apr 2026 03:58:50 GMT
+
+https://screenrant.com/miyazaki-howls-moving-castle-two-sequels-ghibli/
+
+Discover the untapped potential of Howl's Moving Castle, a beloved Studio Ghibli film adapted from Diana Wynne Jones' novel.
+---------
+
+# Aaron Taylor-Johnson's New Crime Thriller Earns Stellar Rotten Tomatoes Score Ahead Of Release
+
+Movies, Fuze
+
+Sun, 05 Apr 2026 03:57:08 GMT
+
+https://screenrant.com/fuze-movie-rotten-tomatoes-score-aaron-taylor-johnson/
+
+Aaron Taylor-Johnson's new crime thriller may just be the perfect adrenaline rush, as it has a stellar Rotten Tomatoes score ahead of its release.
+---------
+
+# After Seeing The Super Mario Galaxy Movie, I Understand Why Nintendo Spoiled The Star Fox Surprise
+
+Movies, The Super Mario Galaxy Movie, Star Fox
+
+Sun, 05 Apr 2026 03:42:10 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-why-nintendo-spoiled-star-fox-surprise/
+
+Many were surprised by Nintendo spoiling Fox McCloud's involvement in the Super Mario Galaxy Movie, but I totally get it after watching the new sequel
+---------
+
+# The Arrowverse Beat Out DC’s Animated Movie Universe In 1 Big Way
+
+Classic TV, DC, Arrowverse, Crisis On Infinite Earths, Justice League: Crisis on Infinite Earths Part One
+
+Sun, 05 Apr 2026 03:31:57 GMT
+
+https://screenrant.com/arrowverse-dc-tomorrowverse-movies-crisis-on-infinite-earths/
+
+The CW's Arrowverse really made an impact, beating out DC's animated movie universe, with one key comic book story adaptation.
+---------
+
+# A Complete Guide to Every Isekai Anime Releasing This Spring 2026
+
+Anime, Isekai, Re:Zero -Starting Life in Another World-, That Time I Got Reincarnated as a Slime
+
+Sun, 05 Apr 2026 03:30:34 GMT
+
+https://screenrant.com/every-isekai-anime-releasing-spring-2026/
+
+Fans will have several good isekai to follow in the coming months. Here's a complete guide to every isekai anime premiering in Spring 2026.
+---------
+
+# 10 Hidden Pixar Gems That Deserve More Love
+
+Movies, Pixar
+
+Sun, 05 Apr 2026 03:00:20 GMT
+
+https://screenrant.com/best-pixar-movies-nobody-remembers-list/
+
+Discover 10 Pixar movies that are often overlooked but offer heartfelt stories and innovative storytelling, making them hidden gems worth exploring.
+---------
+
+# Disney's New Sci-Fi TV Reboot Of Popular '90s Book Series Gets Honest Response From Author
+
+TV, Animorphs, Disney+
+
+Sun, 05 Apr 2026 02:19:24 GMT
+
+https://screenrant.com/animorphs-show-disney-plus-remake-author-katherine-applegate-response/
+
+Disney will do a TV remake of a popular '90s science fiction book series, but the author has now shared their reaction to the news, given its history.
+---------
+
+# Netflix’s 8-Part Thriller Series Is One Of The Weirdest Shows You'll Ever Watch
+
+Classic TV, Wayward
+
+Sun, 05 Apr 2026 02:18:15 GMT
+
+https://screenrant.com/wayward-netflix-thriller-series-weirdest-shows/
+
+Netflix offers an array of intriguing titles, including this 8-part thriller, which is one of the weirdest shows on the streaming platform.
+---------
+
+# Ian Flynn on Dream Marvel/Nintendo Comic, How Mario Comic Never Came About
+
+Comics, Nintendo, Mario
+
+Sun, 05 Apr 2026 03:42:25 GMT
+
+https://www.cbr.com/ian-flynn-dream-marvel-nintendo-comic-mario-interview/
+
+In a CBR exclusive interview with star writer Ian Flynn, learn about why his proposed Mario comic never came out, and his dream Nintendo/Marvel comic
+---------
+
+# 10 Perfect Sitcom Episodes That Are Flawless From Beginning to End
+
+TV, Sitcoms, Brooklyn Nine-Nine, The Office, Friends
+
+Sun, 05 Apr 2026 03:40:12 GMT
+
+https://www.cbr.com/perfect-sitcom-episodes-flawless-beginning-to-end-list/
+
+There are many beloved sitcoms out there, but some sitcom episodes in particular stand out for their special hilarity and cleverness.
+---------
+
+# Netflix Officially Confirms My Dress-Up Darling Release Date
+
+Anime, My Dress-Up Darling, Netflix
+
+Sun, 05 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/netflix-my-dress-up-darling-debut-release-date/
+
+Later this month, one of modern anime's most popular romantic comedies will soon arrive on Netflix for viewers in the U.S., Spain and the UK.
+---------
+
+# 10 Best PS2 Masterpieces of All Time, Ranked
+
+Games, PlayStation 2
+
+Sun, 05 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/greatest-ps2-masterpieces-all-time-ranked-list/
+
+These PS2 masterpieces are some of the best games ever made.
+---------
+
+# 2026 DC/Marvel TV Tournament - Final Four!
+
+Comics, dc vs marvel, CSBG, DC/Marvel Character Tournament
+
+Sun, 05 Apr 2026 02:31:42 GMT
+
+https://www.cbr.com/2026-dc-marvel-tv-tournament-final-four/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. We have hit the Final 4!
+---------
+
+# Sailor Moon Plush Gets Exclusive First-Time U.S. Release
+
+Anime, Sailor Moon, merchandise, toys
+
+Sun, 05 Apr 2026 02:30:12 GMT
+
+https://www.cbr.com/sailor-moon-round-1-plush-april-release/
+
+Sailor Moon fans in the United States can nab one of the most exclusive plushies -- if they have the gaming skills to win it.
+---------
+
+# Ash Ketchum's 10 Best Pokémon, Ranked by Likability
+
+Anime, Pokemon, Nintendo
+
+Sun, 05 Apr 2026 02:00:24 GMT
+
+https://www.cbr.com/ash-ketchum-fan-favorite-pokemon-list/
+
+Ash Ketchum has many Pokémon, but some of them are more likable than others.
+---------
+
+# 10 Short-Lived Fantasy Shows That Have Zero Bad Episodes
+
+TV, Fantasy, Kaos, The Dark Crystal: Age of Resistance, Over the Garden Wall
+
+Sun, 05 Apr 2026 02:00:24 GMT
+
+https://www.cbr.com/short-fantasy-shows-zero-bad-episodes-list/
+
+These underrated fantasy series may be brief, but they’re rich in world-building, drama, and payoff from start to finish.
+---------
+
+# Invincible’s Latest Episode Just Made A Major Change to the Comics
+
+TV Features, Invincible, Robert Kirkman, Zoey Deutch, Prime Video
+
+Sun, 05 Apr 2026 03:07:14 GMT
+
+https://collider.com/invincible-season-4-episode-5-tech-jacket-gender-swap-explained/
+
+Invincible shocked fans when it revealed a major change to fan-favorite hero Tech Jacket, and it works in the show's favor.
+---------
+
+# 10 Movie & TV Shared Universes That Haven't Worked Out
+
+Movie Lists, Dark Universe, Spider-Man, DCU, LEGO, Supernatural
+
+Sun, 05 Apr 2026 02:00:30 GMT
+
+https://movieweb.com/movie-tv-universes-that-havent-worked/
+
+Numerous franchises have attempted to capture the magic and success of a shared universe like the MCU, with many failed attempts.
+---------
+
 # Nintendo Is Already Setting Up Their Next Big Movie Franchise After Super Mario
 
 Movies, The Super Mario Galaxy Movie
