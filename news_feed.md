@@ -1,3 +1,179 @@
+# Upcoming Detective Shows: True Detective Season 5, Line of Duty Season 7, and More
+
+Classic TV
+
+Sun, 05 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/upcoming-detective-shows-you-cannot-miss/
+
+From Spider-Noir to Cape Fear to a new season of Line of Duty, these upcoming detective shows will dominate the airwaves in 2026 and beyond.
+---------
+
+# Every Free Final Fantasy Game On Xbox Game Pass, Ranked
+
+Gaming, Final Fantasy, Triple-A Games
+
+Sun, 05 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/final-fantasy-xbox-game-pass-ranked/
+
+Xbox Game Pass has provided access to numerous Final Fantasy games in the past, here are all of the ones currently available
+---------
+
+# 10 Best X-Force Heroes in All of X-Men Lore
+
+Comics, X-Men, X-Force, Marvel
+
+Sun, 05 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/xmen-x-force-best-heroes-members-cable/
+
+Here are the top 10 members of the Marvel Comic's X-Force team who redefined what it means to be a mutant superhero, ranked from worst to best.
+---------
+
+# 10 Greatest Horror Movies That Started A Franchise
+
+Classic Movies, Horror, Ranking, Quiz CV
+
+Sun, 05 Apr 2026 21:55:19 GMT
+
+https://screenrant.com/best-horror-movies-started-franchise/
+
+There have been some great horror movies released over the years, but some have been so incredible that they launched an entire franchise.
+---------
+
+# Saturday Night Live Sparks Outrage After Controversial Donald Trump Joke
+
+TV, Saturday Night Live
+
+Sun, 05 Apr 2026 21:37:36 GMT
+
+https://screenrant.com/saturday-night-live-outrage-controversial-donald-trump-joke/
+
+Saturday Night Live receives backlash for its jokes about President Donald Trump and even fans think the show went too far this time.
+---------
+
+# Ridley Scott's $268M Action Epic Exodus: Gods and Kings Hits Tubi
+
+Movies, ridley scott, Exodus: Gods and Kings
+
+Sun, 05 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/ridley-scott-biblical-epic-exodus-gods-and-kings-tubi-april-2026/
+
+The film underperformed in theaters but it just became a hit on free streaming.
+---------
+
+# Prime Video Action Thriller Series That Are Better Than Jack Ryan
+
+TV, Tom Clancy's Jack Ryan, Prime Video, Reacher, The Boys
+
+Sun, 05 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/prime-video-action-thriller-series-better-than-jack-ryan/
+
+These Amazon Prime Video action thriller series surpass Tom Clancy's Jack Ryan in thrilling plots and pulse-pounding action.
+---------
+
+# Jujutsu Kaisen Chief Animation Director Questions Anime AI Promise: 'Can They Really Stop Using It?'
+
+Anime, Jujutsu Kaisen, Artificial Intelligence
+
+Sun, 05 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/jjk-animation-director-ai-claim-question/
+
+The veteran animator pointed out that studios are already integrating AI into their workflows, despite the bold claims.
+---------
+
+# 10 Best Isekai Anime With No Fan Service
+
+Anime, Isekai
+
+Sun, 05 Apr 2026 21:55:12 GMT
+
+https://www.cbr.com/best-isekai-anime-no-fan-service/
+
+From Miyazaki's classic Spirited Away to 2019's Ascendance of a Bookworm, the best isekai anime are always better without so-called fan service.
+---------
+
+# Only 6 Sci-Fi Shows Are Better Than 'Star Trek'
+
+TV, Star Trek, Black Mirror, The X-Files, Sci-Fi
+
+Sun, 05 Apr 2026 22:21:12 GMT
+
+https://collider.com/sci-fi-shows-better-than-star-trek/
+
+Star Trek might be the definitive face of science fiction, but sci-fi shows like Fox's The X-Files and Netflix's Black Mirror are arguably better.
+---------
+
+# 8 Years Later, This Divisive 143-Minute Sci-Fi Finale Is Being Reclaimed by Viewers
+
+Movie News, Maze Runner: The Scorch Trials, Maze Runner: The Death Cure, The Maze Runner, HBO Max
+
+Sun, 05 Apr 2026 22:15:12 GMT
+
+https://collider.com/divisive-sci-fi-adaptation-maze-runner-the-death-cure-streaming-success-hbo-max-april-2026/
+
+The final film in the acclaimed Maze Runner franchise has found a new streaming home months after it was removed from Netflix.
+---------
+
+# 8 Forgotten Fantasy Shows That Have Aged Like Fine Wine
+
+TV, Fantasy, Pushing Daisies, Lost Girl, The Magicians
+
+Sun, 05 Apr 2026 22:03:12 GMT
+
+https://collider.com/forgotten-fantasy-shows-aged-like-fine-wine/
+
+Pushing Daisies, Lost Girl, The Magicians, Merlin, Samurai Jack, and more make up our list of forgotten fantasy shows that have aged like fine wine.
+---------
+
+# Prime Video’s Sci-Fi Masterpiece Returns to #1 Spot After Its Best Episode Yet
+
+TV News, Invincible, Prime Video, Steven Yeun, J.K. Simmons
+
+Sun, 05 Apr 2026 22:00:12 GMT
+
+https://collider.com/sci-fi-masterpiece-invincible-season-4-best-episode-streaming-success-prime-video-april-2026/
+
+Invincible Season 4 has returned to the top of Prime Video's television chart following its second-highest rated episode ever. Read on for details.
+---------
+
+# 10 Most Perfect Movies of the Last 9 Years, Ranked
+
+Movie, Sinners, Oppenheimer, The Zone of Interest, Paddington 2
+
+Sun, 05 Apr 2026 21:55:12 GMT
+
+https://collider.com/most-perfect-movies-last-9-years/
+
+The last 9 years have seen the release of some truly exceptional films, including the likes of Oppenheimer, The Zone of Interest, and Sinners.
+---------
+
+# 6 Forgotten Jason Statham Movies That Are Almost Perfect
+
+Movie, Jason Statham, The Bank Job, Revolver, Crank
+
+Sun, 05 Apr 2026 21:42:12 GMT
+
+https://collider.com/forgotten-jason-statham-movies-almost-perfect/
+
+From Crank to The Bank Job, these forgotten Jason Statham films showcase his range with smart, intense stories that deserve more attention.
+---------
+
+# Barry Keoghan's 'Peaky Blinders' Recasting Ruins Franchise
+
+Features, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Sun, 05 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/barry-keoghan-peaky-blinders-recasting-immortal-man/
+
+Barry Keoghan will not be playing Duke Shelby in the upcoming 'Peaky Blinders' sequel series, marking it as a disappointing stint in the franchise.
+---------
+
 # Stephen King Is Right: Hulu’s Sci-Fi Thriller Is The Perfect Lost Replacement
 
 Streaming TV, Paradise
