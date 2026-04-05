@@ -1,3 +1,179 @@
+# Ridley Scott & Christian Bale's Controversial Action Movie Is Free To Stream At The Perfect Time
+
+Movies, Exodus: Gods and Kings
+
+Sun, 05 Apr 2026 19:15:51 GMT
+
+https://screenrant.com/exodus-gods-and-kings-tubi-free-streaming-april-2026/
+
+12 years after coming to theaters, Ridley Scott and Christian Bale's controversial action movie is free to stream at the perfect time.
+---------
+
+# Butcher's Transformation Into A "Ruthless Killer" In The Boys Season 5 Explained By Karl Urban
+
+TV, The Boys
+
+Sun, 05 Apr 2026 19:15:02 GMT
+
+https://screenrant.com/the-boys-season-5-butcher-changes-powers-karl-urban/
+
+EXCLUSIVE: Billy Butcher actor Karl Urban previews how his character's transformation into a vicious killer will take place in The Boys season 5.
+---------
+
+# GTA 6 Be Damned, Manhunt Remixed Brings Back The Cult Classic
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Sun, 05 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/manhunt-fan-remaster-april-2026/
+
+Manhunt still serves as arguably one of the most controversial video games of all time, and it's now back with a whole new look thanks to modders.
+---------
+
+# 8 Obscure Sci-Fi Shows All Fans Should Watch
+
+Classic TV, Sci-Fi
+
+Sun, 05 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/obscure-sci-fi-tv-shows-should-watch/
+
+Even hardcore sci-fi fans may have missed out on these obscure, lesser-known shows, and it's about time they got the attention they deserve.
+---------
+
+# Netflix's 8-Year-Old Franchise Has Reached A Record-Low Rotten Tomatoes Score With Returning Series
+
+TV, XO, Kitty, XO, Kitty - Season 3, To All the Boys, Netflix
+
+Sun, 05 Apr 2026 18:39:44 GMT
+
+https://screenrant.com/xo-kitty-season-3-rotten-tomatoes-audience-score-record-to-all-the-boys-franchise/
+
+Netflix's major franchise has reached a record-low Rotten Tomatoes score, after its returning series has elicited strong reactions from audiences.
+---------
+
+# Super Mario Galaxy Movie Dominates Zendaya’s The Drama at the Box Office
+
+Movies, The Super Mario Galaxy Movie, The Drama, box office report
+
+Sun, 05 Apr 2026 19:25:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-beats-zendaya-the-drama-box-office-report/
+
+The sequel to a hit animated film tops the box office this weekend, with Zendaya's new A24 black comedy taking second place.
+---------
+
+# Prime Video's Acclaimed Religious Series Finally Returns in 7 Months
+
+TV, The Chosen, Prime Video, Religion
+
+Sun, 05 Apr 2026 19:00:13 GMT
+
+https://www.cbr.com/prime-video-the-chosen-season-six-release-date-announcement/
+
+One of the most acclaimed Bible stories returns to Prime Video in 2026 for its most anticipated season yet.
+---------
+
+# Outlander Smashes a Colossal Streaming Milestone Ahead of Series Finale
+
+TV, Outlander
+
+Sun, 05 Apr 2026 19:00:13 GMT
+
+https://www.cbr.com/outlander-fantasy-starz-streaming-milestone-april-2026/
+
+This comes after it hit its best ratings in four years.
+---------
+
+# Superman: Speeding Bullets is a Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, Superman, Batman, DC Elseworlds
+
+Sun, 05 Apr 2026 19:00:13 GMT
+
+https://www.cbr.com/superman-speeding-bullets-comic-you-should-be-reading/
+
+A chilling twist of fate sets the stage for a dark alternate reality where the Man of Steel instead becomes the Dark Knight due to a familiar tragedy.
+---------
+
+# Malcolm in the Middle's Erik Per Sullivan Rejected Disney+ Revival
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle
+
+Sun, 05 Apr 2026 18:40:30 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-lifes-still-unfair-dewey-absence/
+
+No amount of money could convince the OG Malcolm in the Middle star to return in the Disney+ revival.
+---------
+
+# Netflix's Quietly Brilliant 6-Part Psychological Thriller Is One of Its Best Series
+
+TV Features, Eric, Netflix, Benedict Cumberbatch, Gaby Hoffman
+
+Sun, 05 Apr 2026 19:14:13 GMT
+
+https://collider.com/netflix-eric-benedict-cumberbatch-psychological-thriller-weekend-binge/
+
+Eric features Benedict Cumberbatch in an unconventional crime series that explores deep societal issues and character development.
+---------
+
+# Netflix Is Saving Kids From One of the Worst Kids Movies Ever Made
+
+Movie News, The Emoji Movie, James Corden, Patrick Stewart, Mike White
+
+Sun, 05 Apr 2026 19:00:12 GMT
+
+https://collider.com/netflix-removing-emoji-movie-one-of-the-worst-kids-movies-ever-made-may-2026/
+
+Children don't need to know that one of the worst animated films, The Emoji Movie, is leaving Netflix soon. Here's when.
+---------
+
+# 7 '80s Movies That Have Aged Like Milk
+
+Movie, Sixteen Candles, The Breakfast Club, Dirty Dancing, 1980s
+
+Sun, 05 Apr 2026 18:49:12 GMT
+
+https://collider.com/1980s-movies-aged-like-milk/
+
+Sixteen Candles, The Breakfast Club, Dirty Dancing, Porky's, Police Academy, and more make up our list of '80s movies that have aged like milk.
+---------
+
+# Only 3 Animated Movies Are Better Than 'Snow White and the Seven Dwarfs'
+
+Movie, Animation, Spirited Away, Disney's Pinocchio, Spider-Man: Into The Spider-Verse
+
+Sun, 05 Apr 2026 18:41:12 GMT
+
+https://collider.com/animated-movies-better-than-snow-white-and-the-seven-dwarfs/
+
+Only three animated films truly outshine Snow White and the Seven Dwarfs, elevating animation with deeper emotion, bold visuals, and lasting impact.
+---------
+
+# The Classic 1980s Comedy 'Airplane!' Is Now Streaming on Peacock
+
+Movie News, Airplane!, Peacock, Coming/Leaving Streaming
+
+Sun, 05 Apr 2026 19:01:17 GMT
+
+https://movieweb.com/airplane-streaming-peacock-april-2026/
+
+'Airplane,' one of the best 1980s comedies which couldn't be made today, is now streaming on Peacock.
+---------
+
+# 'Euphoria' Is HBO's Thriller Masterpiece Returning for Season 3 This Month
+
+Features, Euphoria
+
+Sun, 05 Apr 2026 19:01:17 GMT
+
+https://movieweb.com/euphoria-season-3-returns-hbo-april-2026/
+
+'Euphoria' Season 3 will premiere on HBO on Sunday, April 12, and stars Zendaya, Sydney Sweeney, and Jacob Elordi.
+---------
+
 # 7 TV Shows We Thought Would Be The New X-Files
 
 Classic TV, The X-Files
