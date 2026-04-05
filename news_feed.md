@@ -1,3 +1,124 @@
+# Every Potential Smash Bros. Movie Character Revealed So Far (After The Super Mario Galaxy Movie)
+
+Movies, The Super Mario Galaxy Movie, Super Smash Bros.
+
+Sun, 05 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/every-potential-smash-bros-movie-character-revealed-so-far-mario-galaxy-movie/
+
+Following the new Super Mario Galaxy Movie, let's do a head count of all the characters revealed so far for a potential Super Smash Bros crossover.
+---------
+
+# DC Officially Releases Sinestro Design for Green Lantern’s New Appearance
+
+Comics, Green Lantern, Lanterns
+
+Sun, 05 Apr 2026 20:02:31 GMT
+
+https://screenrant.com/dc-official-sinestro-design-green-lantern/
+
+2026 is set to be the year of Green Lantern, and now DC has officially released Sinestro’s design for their latest Green Lantern project.
+---------
+
+# The Scariest Movie of the Past Year: An In-Depth Look at Óliver Laxe's Sirāt
+
+Movies, Sirat
+
+Sun, 05 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/scariest-movie-past-year-2026-sirat/
+
+Sirāt has more effective jump scares, a more intense atmosphere, and a more palpable sense of dread than any horror film of the past 12 months.
+---------
+
+# These 2 Free PlayStation Plus JRPGs Have Over 200 Hours Of Gameplay
+
+Gaming, PlayStation Plus
+
+Sun, 05 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/playstation-plus-2-free-jrpgs-200-hours/
+
+PlayStation Plus isn't lacking when it comes to excellent JRPGs, but there are two new ones that you should definitely check out and play through.
+---------
+
+# Disclosure Day to Answer Close Encounters of the Third Kind Questions
+
+Movies, Disclosure Day, steven spielberg, Close Encounters of The Third Kind
+
+Sun, 05 Apr 2026 20:06:10 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-close-encounters-questions/
+
+Steven Spielberg is finally providing answers to questions fans have had for almost 50 years.
+---------
+
+# The Wild Robot Officially Debuts on Peacock
+
+Movies, The Wild Robot
+
+Sun, 05 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/pedro-pascal-the-wild-robot-peacock-debut-april-2026/
+
+The Pedro Pascal film maintains its success on Peacock after becoming a major hit in movie theaters.
+---------
+
+# Hello Kitty, Cinnamoroll & More Get Adorable New Series of Official Playset Collectibles
+
+Anime, Hello Kitty, sanrio, merchandise, toys
+
+Sun, 05 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-supercute-adventures-playset-collection/
+
+Sanrio U.S. releases several new kawaii playsets for the new season of Hello Kitty and Friends Supercute Adventures.
+---------
+
+# 10 Greatest Character-Driven Sci-Fi Movies, Ranked
+
+Movie, Science Fiction, Alien, Children of Men, Arrival
+
+Sun, 05 Apr 2026 20:03:12 GMT
+
+https://collider.com/best-sci-fi-movies-character-driven-ranked/
+
+Sci-fi movies like Under the Skin and Children of Men find strength in their main characters, crafting profound narratives that leave you wondering.
+---------
+
+# The Beatles' 1969 No. 1 Hit Is Now the Greatest Love Song Ever Written
+
+Music Features, The Beatles, Music, Rock, Billboard Hot 100
+
+Sun, 05 Apr 2026 20:00:12 GMT
+
+https://collider.com/the-beatles-hit-something-1969-greatest-love-song-ever-written/
+
+George Harrison’s 1969 No. 1 hit with The Beatles became their greatest love song, showcasing his songwriting brilliance and redefining romance.
+---------
+
+# John Wayne's Forgotten Western Sequel Is on Borrowed Time on Netflix
+
+Movie News, John Wayne, Western, True Grit, Rooster Cogburn
+
+Sun, 05 Apr 2026 20:00:12 GMT
+
+https://collider.com/john-wayne-forgotten-western-sequel-rooster-cogburn-leaving-netflix-may-2026/
+
+One of John Wayne's least-remembered Westerns, Rooster Cogburn, is currently streaming on Netflix. But not for long.
+---------
+
+# 'Harry Potter' Trailer: HBO Show Confirms 'Hogwarts Legacy' Crossover
+
+Features, Harry Potter
+
+Sun, 05 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/harry-potter-confirms-it-builds-off-prequel/
+
+HBO's first 'Harry Potter' trailer contains hints that 'Hogwarts Legacy' serves as its direct prequel.
+---------
+
 # 8 Best Fantasy Shows You've Never Heard Of
 
 Classic TV
