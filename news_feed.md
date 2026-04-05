@@ -1,3 +1,124 @@
+# Hogwarts Legacy 2 Major Change Set Up In Official New Trailer
+
+Gaming, Harry Potter, Hogwarts Legacy, Triple-A Games
+
+Sun, 05 Apr 2026 11:45:19 GMT
+
+https://screenrant.com/hogwarts-legacy-2-setting-muggles-harry-potter-trailer/
+
+Hogwarts Legacy looked to a completely new era of Harry Potter's Wizarding World, but its sequel shouldn't avoid an element that is sorely missed.
+---------
+
+# "My Name Is Bruce Wayne": What The Arrowverse's Batman Show Would've Been Like
+
+Classic TV, Arrowverse
+
+Sun, 05 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/arrowverse-batman-show-what-if-cast-story/
+
+The Arrowverse delivered one of the greatest comic book shared universes on TV, but it also failed to incorporate some of DC's most iconic characters.
+---------
+
+# 10 Legend Of Zelda Remakes We Need After Ocarina Of Time On Switch 2
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sun, 05 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/legend-zelda-remakes-after-ocarina-of-time/
+
+With an Ocarina of Time remake allegedly coming to Switch 2 later this year, there are some other Legend of Zelda games that need remakes next.
+---------
+
+# Xbox Game Pass Just Lost Its Best Game at the Worst Time
+
+Games, Xbox Series X (1), Microsoft, Grand Theft Auto, Grand Theft Auto 5
+
+Sun, 05 Apr 2026 11:35:12 GMT
+
+https://www.cbr.com/xbox-game-pass-gamepass-grand-theft-auto-v/
+
+Xbox Game Pass is about to lose a lot of its luster, as one of its most beloved titles is about to be removed from the platform.
+---------
+
+# HBO’s Addictive 7-Part Mystery Is Perfect for True Detective Fans
+
+TV, True Detective, Mare of Easttown, HBO Max
+
+Sun, 05 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/mare-of-easttown-perfect-for-true-detective-fans/
+
+True Detective may have perfected the grizzled detective dealing with trauma, but it isn't the only game in town.
+---------
+
+# Weapons Is So Good, You Can Rewatch It Multiple Times
+
+Movies, Weapons, Horror, Prime Video
+
+Sun, 05 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/prime-video-weapons-horror-masterpiece-rewatch/
+
+Weapons is Prime Video's most-watched movie, and it's no secret, as it's a movie designed to watch repeatedly with an amazing payoff.
+---------
+
+# 'John Wick' Meets 'The Bear' in Nicolas Cage's 97% RT Crime Thriller
+
+Movie News, Nicolas Cage, Pig, John Wick, The Bear
+
+Sun, 05 Apr 2026 11:45:12 GMT
+
+https://collider.com/nicolas-cage-crime-thriller-pig-john-wick-meets-the-bear-leaving-streaming-netflix-may-2026/
+
+The critically acclaimed thriller Pig, starring Nicolas Cage, is leaving Netflix soon. Find out how much time you have left to watch it.
+---------
+
+# 10 Horror Movies That Come the Closest to Perfection
+
+Movie, Horror, Final Destination, Session 9, Boned
+
+Sun, 05 Apr 2026 11:44:13 GMT
+
+https://collider.com/horror-movies-close-to-perfect/
+
+Brilliant horror movies like Pontypool and Carnival of Souls come extremely close to perfection but can still be considered classics of the genre.
+---------
+
+# Paramount+’s 10-Part Spy Thriller Is the Perfect One-Night Weekend Binge Before Season 2 Returns
+
+TV Features, The Agency, Paramount Plus, Michael Fassbender, Richard Gere
+
+Sun, 05 Apr 2026 11:43:12 GMT
+
+https://collider.com/paramount-spy-thriller-the-agency-season-2-return/
+
+Ahead of Season 2, viewers should watch Paramount+’s impressive spy thriller, The Agency.
+---------
+
+# Chris Pratt's Epic Fantasy Movie Dominates Streaming as Sci-Fi Sequel Shatters Records in Theaters
+
+Movie News, Chris Pratt, The Super Mario Bros. Movie, Peacock, streaming
+
+Sun, 05 Apr 2026 11:30:12 GMT
+
+https://collider.com/chris-pratt-epic-fantasy-movie-super-mario-bros-movie-streaming-success-peacock-april-2026/
+
+Ahead of the sequel, The Super Mario Bros. Movie is one of the ten most-streamed movies on Peacock in the U.S. Read on for details.
+---------
+
+# Henry Cavill's 98-Minute Action Thriller Flop 'Night Hunter' Is a Streaming Smash Hit
+
+Movie News, Henry Cavill, Night Hunter, Action, Thriller
+
+Sun, 05 Apr 2026 11:30:18 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-stream-april-2026/
+
+The action thriller, which only made $1 million at the box office, has been charting for months.
+---------
+
 # Forget Fourth Wing, Prime Video Already Produced The Perfect 8-Part Fantasy Romance Adaptation
 
 Streaming TV, My Lady Jane, Fourth Wing
