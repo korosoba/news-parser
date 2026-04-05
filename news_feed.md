@@ -1,3 +1,223 @@
+# 10 K-Dramas That Are Considered Masterpieces
+
+Classic TV, K-Drama
+
+Sun, 05 Apr 2026 13:45:19 GMT
+
+https://screenrant.com/k-dramas-that-are-considered-masterpieces/
+
+K-dramas are more popular than ever before, but the best of the best continue to reign supreme for new viewers and Korean drama super-fans alike.
+---------
+
+# Al Pacino's Underrated Performance In William Friedkin's Controversial Film 'Cruising'
+
+Movies, Cruising, Al Pacino, Recommendation
+
+Sun, 05 Apr 2026 13:45:19 GMT
+
+https://screenrant.com/cruising-movie-william-friedkin-director-forgotten/
+
+In 1980, The Exorcist director William Friedkin made one of the most controversial and best movies of Al Pacino's career, which deserves more love.
+---------
+
+# Prime Video’s Gen V Season 3 Status Gets Disappointing Update From Star Ahead Of The Boys’ Final Season
+
+TV, Gen V, The Boys, The Boys - Season 5
+
+Sun, 05 Apr 2026 13:36:32 GMT
+
+https://screenrant.com/gen-v-season-3-renewal-status-jaz-sinclair-response/
+
+The Boys is about to debut its final season, but the status of the franchise's Gen V spinoff gets a disappointing update from its leading star.
+---------
+
+# 10 Best Webcomics of All Time, Ranked
+
+Comics, Webtoon
+
+Sun, 05 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/best-webcomics-ever-ranked-homestuck-xkcd-achewood-webtoon/
+
+Here are our picks for the 10 best webcomics of all time, ranked from the fantastic to the unmissable. #1 is something everyone should read.
+---------
+
+# Game Of Thrones Still Has 2 Chances To Fix Jon Snow's Ending
+
+Streaming TV, Game Of Thrones, Game of Thrones
+
+Sun, 05 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/game-of-thrones-fix-jon-snow-ending-book-spinoff/
+
+HBO's Game of Thrones can't take back its unfortunate Jon Snow ending, but there are still two ways that this character can finally get justice.
+---------
+
+# The Witcher: The Last Wish Is The Prequel You've Been Waiting For
+
+Gaming, The Witcher 3: Wild Hunt
+
+Sun, 05 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/witcher-3-last-wish-fan-expansion-prequel/
+
+Discover the fan-made project, The Witcher: The Last Wish, which brings the original Sapkowski novels to life.
+---------
+
+# Spider-Man: No Way Home’s Disney+ Release Is Officially Only Weeks Away
+
+Superheroes, Spider-Man: No Way Home, Marvel Cinematic Universe
+
+Sun, 05 Apr 2026 13:15:19 GMT
+
+https://screenrant.com/spiderman-no-way-home-disney-plus-release/
+
+Spider-Man: No Way Home is finally set to arrive on Disney+ after a several year wait for the beloved MCU movie to be available on the platform.
+---------
+
+# New Marvel Symbiote Is Born From Carnage And Torment Merge's Fusion In Spider-Man Comic
+
+Marvel Comics, Carnage, Venom, Spider-Man, Marvel
+
+Sun, 05 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/spider-man-new-symbiote-villain-torment-carnage/
+
+Marvel officially confirms the introduction of a brand-new symbiote villain formed by the fusion of two extremely dangerous Spider-Man enemies.
+---------
+
+# The 10 Best Performances In Game Of Thrones, Ranked
+
+Classic TV, Game Of Thrones
+
+Sun, 05 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/game-of-thrones-best-performances-ranked/
+
+Game of Thrones has a long list of impressive actors who have appeared in the series, but these 10 give the best performances of anyone.
+---------
+
+# Red Dead Redemption Gets 100+ New Missions, All Thanks To Fans
+
+Gaming, Red Dead Redemption 2
+
+Sun, 05 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-100-bandit-hideouts-fan-expansion/
+
+Fans have created a free mod for Red Dead Redemption 2 that adds 143 new bandit hideouts, 50 ambush points, and more.
+---------
+
+# The Two Towers' Secret Detail Proves Why Peter Jackson Had to Change LOTR
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Two Towers
+
+Sun, 05 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/peter-jackson-removed-minas-tirith-from-lord-of-the-rings-two-towers/
+
+The subtlest change in the extended edition of The Lord of the Rings: The Two Towers showcases just how difficult the fantasy trilogy was to create.
+---------
+
+# 5 Netflix Shows That Completely Change After Episode 1
+
+TV, 1899, Russian Doll, Travelers, Netflix
+
+Sun, 05 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/netflix-shows-changed-after-episode-1-list/
+
+Some of the best Netflix shows don't really start until after the pilot episode
+---------
+
+# The 10 Best Nintendo Switch Games of All Time, Ranked
+
+Games, Nintendo Switch, Nintendo
+
+Sun, 05 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/best-nintendo-switch-games-all-time-ranked-list/
+
+The Nintendo Switch is Nintendo's most successful console ever, and its games are untouchable.
+---------
+
+# The Best Horror Movie From Every Year of The 1990s
+
+Movies, Horror, Scream, Stephen King
+
+Sun, 05 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/best-horror-movie-every-year-1990s-scream-sixth-sense-list/
+
+The 1990s were a legendary era for the horror genre, and these ten iconic masterpieces are the best horror films from each year of the decade.
+---------
+
+# 22 Years Later, Sam Raimi’s Superhero Sequel Still Has One of the Most Terrifying Scenes in Cinema
+
+Movie Features, Spider-Man 2, Sam Raimi, Alfred Molina, Marvel
+
+Sun, 05 Apr 2026 13:31:12 GMT
+
+https://collider.com/spiderman-2-sam-raimi-hospital-scene-horror-analysis/
+
+Sam Raimi brought his horror roots into Spider-Man 2, creating one of the most terrifying scenes ever put in a superhero movie.
+---------
+
+# Will Smith's Biggest Sci-Fi Flop Stages a Comeback After Falling Short of $138M Budget
+
+Movie News, Will Smith, Gemini Man, Ang Lee, Sci-Fi
+
+Sun, 05 Apr 2026 13:28:52 GMT
+
+https://collider.com/will-smith-sci-fi-movie-gemini-man-streaming-success-starz-april-2026/
+
+Even a $138M budget couldn’t save Will Smith’s 2019 sci-fi flop, but now the movie is quietly redeeming itself with a streaming comeback.
+---------
+
+# Tom Hanks’ Near-Perfect Space Thriller Rockets Up the Streaming Charts After NASA Launch
+
+Movie News, Apollo 13, Tom Hanks, Ron Howard, Ed Harris
+
+Sun, 05 Apr 2026 13:03:08 GMT
+
+https://collider.com/tom-hanks-sci-fi-movie-apollo-13-streaming-success-after-artemis-2-launch-april-2026/
+
+Tom Hanks’ beloved ‘90s sci-fi movie, Apollo 13, is rocketing up the streaming charts following NASA’s historic Artemis 2 launch.
+---------
+
+# Only 5 Slasher Movies Are Considered Among the Greatest Films Ever Made
+
+Movie, Slasher, Peeping Tom, Psycho, Horror
+
+Sun, 05 Apr 2026 12:56:12 GMT
+
+https://collider.com/best-slasher-movies-ever-made/
+
+Slasher movies aren't often embraced by critics, but films like Psycho, Halloween, and Peeping Tom are universally considered masterpieces today.
+---------
+
+# Hulu's 10-Part Historical Drama Series Is One of the Best on Any Streaming Platform
+
+TV Features, Shogun, FX, Hulu, Hiroyuki Sanada
+
+Sun, 05 Apr 2026 12:52:12 GMT
+
+https://collider.com/shogun-hulu-best-on-streaming/
+
+The FX on Hulu historical drama series Shōgun, starring Anna Sawai and Hiroyuki Sanada, is one of the greatest in the genre.
+---------
+
+# ABC’s Long-Running Medical Drama Phenomenon Is Dominating Hulu Again
+
+TV News, ABC, Grey's Anatomy, General Hospital, The Bold and the Beautiful
+
+Sun, 05 Apr 2026 12:45:12 GMT
+
+https://collider.com/abc-long-running-medical-drama-greys-anatomy-streaming-success-hulu-april-2026/
+
+A long-running medical drama sees a surprise streaming surge, proving legacy TV hits can still build strong modern cult audiences.
+---------
+
 # Alice In Borderland: Netflix's Best Sci-Fi Binge
 
 Classic TV, Alice in Borderland
