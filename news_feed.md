@@ -1,3 +1,124 @@
+# Forget Fourth Wing, Prime Video Already Produced The Perfect 8-Part Fantasy Romance Adaptation
+
+Streaming TV, My Lady Jane, Fourth Wing
+
+Sun, 05 Apr 2026 11:00:20 GMT
+
+https://screenrant.com/prime-video-my-lady-jane-perfect-fantasy-romance-adaptation/
+
+As Prime Video gets in on the romantasy boom with a Fourth Wing adaptation, there's no better time to remember its other fantasy romance series.
+---------
+
+# Stardew Valley Official Prequel Available To Claim Now
+
+Gaming, Stardew Valley, PC
+
+Sun, 05 Apr 2026 11:00:20 GMT
+
+https://screenrant.com/stardew-valley-before-the-farmer-official-prequel/
+
+Stardew Valley fans can now claim this official prequel to the beloved indie farming sim from ConcernedApe, and it's one you won't want to miss.
+---------
+
+# The MCU Series So Offbeat It Split An Entire Fandom
+
+Classic TV, She-Hulk: Attorney at Law
+
+Sun, 05 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/she-hulk-disney-split-fandom/
+
+Disney has been known to make mistakes, but few come close to the level of division and frustration that was caused by its 2022 legal comedy series.
+---------
+
+# The Last Of Us Is Hiding A Horrifying Prologue Secret That Took Years To Find
+
+Gaming, The Last of Us, Triple-A Games
+
+Sun, 05 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/last-of-us-prologue-cordyceps-secret/
+
+This The Last Of Us Easter egg took a while to find, and a lot of players haven't even seen it yet, so it's worth checking out.
+---------
+
+# Spider-Man Revealed His Biggest Secret 24 Years Ago
+
+Comics, Spider-Man
+
+Sun, 05 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/spider-man-peter-parker-aunt-may-confession-24-years-ago/
+
+The most important relationship in Peter Parker's life was changed forever due to this shock revelation. It's a theme that has been played with since.
+---------
+
+# Apple TV's 2-Part Sci-Fi Masterpiece Shatters Another Milestone
+
+TV News, Apple TV, Monarch: Legacy of Monsters, Kurt Russell, Streaming
+
+Sun, 05 Apr 2026 11:00:13 GMT
+
+https://collider.com/monarch-legacy-of-monsters-sci-fi-masterpiece-apple-tv-250-days-streaming-success-april-2026/
+
+Apple TV's MonsterVerse series has just hit a huge streaming milestone. Here's what you should know about Monarch: Legacy of Monsters.
+---------
+
+# 10 Greatest K-Dramas You Can Binge in One Week, Ranked
+
+TV, South Korea, Flower of Evil, Crash Landing On You, Mr. Queen
+
+Sun, 05 Apr 2026 10:59:12 GMT
+
+https://collider.com/best-k-drama-shows-binge-one-week-ranked/
+
+Discover the most addictive Korean dramas perfect for a one-week binge, including Crash Landing on You, Flower of Evil, and Reply 1988.
+---------
+
+# One of TV’s Most Addictive 8-Part Crime Dramas Is Finally Free to Stream This Weekend
+
+TV Features, Wentworth, Series, Streaming, Roku
+
+Sun, 05 Apr 2026 10:51:12 GMT
+
+https://collider.com/wentworth-series-free-streaming-weekend-crime-drama/
+
+Wentworth is finally free to stream this weekend—here’s why the gritty, addictive prison drama is worth your next binge.
+---------
+
+# ‘The Pitt’ Has Nothing on This 7-Part Medical Drama Everyone Forgot Was One of the Best Ever
+
+TV Features, Marcus Welby, M.D., Drama, ABC, William Shatner
+
+Sun, 05 Apr 2026 10:47:12 GMT
+
+https://collider.com/best-medical-drama-marcus-welby-md-everyone-forgot/
+
+Marcus Welby, M.D., starring Robert Young is one of the best medical dramas ever, even if it's been lost to time.
+---------
+
+# Netflix's 8-Part Murder Mystery Series Is Perfect From Start to Finish
+
+TV Features, The Residence, Netflix, Mystery, Uzo Aduba
+
+Sun, 05 Apr 2026 10:45:12 GMT
+
+https://collider.com/the-residence-netflix-murder-mystery-perfect/
+
+A state dinner turns deadly in The Residence, a Shondaland murder-mystery comedy that keeps viewers guessing until the final surprise.
+---------
+
+# Henry Cavill's Forgotten Fantasy Epic Takes Over Free Streaming 16 Years Later
+
+Movie News, Stardust, Henry Cavill, The Lord of the Rings, Harry Potter
+
+Sun, 05 Apr 2026 10:30:12 GMT
+
+https://collider.com/henry-cavill-forgotten-fantasy-epic-stardust-streaming-success-pluto-tv-april-2026/
+
+It's Harry Potter meets The Lord of the Rings in Henry Cavill's 16-year-old fantasy adventure still awaiting a sequel. Read on for more details.
+---------
+
 # New Sci-Fi Fantasy Adaptation Gives Streaming A Worthy Successor To Stranger Things
 
 Streaming TV, Stranger Things
