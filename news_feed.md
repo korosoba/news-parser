@@ -1,3 +1,102 @@
+# 8 Best Fantasy Shows You've Never Heard Of
+
+Classic TV
+
+Sun, 05 Apr 2026 19:54:19 GMT
+
+https://screenrant.com/best-fantasy-shows-you-never-heard-of/
+
+The rise of global streaming platforms has made it easier to watch our favorite fantasy TV shows, yet some series in the genre remain largely unknown.
+---------
+
+# Brand New Day Sets Up A Major Spider-Villain’s Introduction, And Nobody Noticed
+
+Comics, Spider-Man: Brand New Day, Spider-Man, Marvel
+
+Sun, 05 Apr 2026 19:51:00 GMT
+
+https://screenrant.com/spider-man-brand-new-day-mister-negative-introduction/
+
+Spider-Man: Brand New Day's first trailer has a lot to unpack, but there may be a secret villain hidden in its midst that we couldn't spot.
+---------
+
+# Daredevil’s Big MCU Redesign Is A Major Disappointment For One Big Reason
+
+Comics, Daredevil: Born Again, Daredevil, Marvel
+
+Sun, 05 Apr 2026 19:42:29 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-suit-dissapointing-bulky/
+
+Daredevil: Born Again's new black-painted costume is a winner, but it will always pale in comparison to what the MCU's Daredevil suit could have been.
+---------
+
+# Kingdom Come: Deliverance Returns This September With Official New Release
+
+Gaming, Kingdom Come: Deliverance II, Triple-A Games, PC
+
+Sun, 05 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/kingdom-come-deliverance-september-2026-release/
+
+Warhorse Studios has accumulated a truly massive amount of KCD2 artwork, compiled into an illuminated manuscript of sorts for its biggest fans.
+---------
+
+# Invincible Is Finally Doing Justice To An Underused OG Character Played By A Sci-Fi Legend
+
+Streaming TV, Invincible
+
+Sun, 05 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/invincible-season-4-art-mark-hamill-do-justice/
+
+Invincible features countless incredible characters with varying degrees of importance, but one OG fan favorite is finally getting a bigger role.
+---------
+
+# Taylor Sheridan's 2-Part Yellowstone Replacement Is Climbing Paramount+ Charts 3 Months After Last Episode
+
+TV, Landman
+
+Sun, 05 Apr 2026 19:45:10 GMT
+
+https://www.cbr.com/taylor-sheridan-landman-paramount-plus-streaming-success-april-2026/
+
+As Sheridan's media empire continues to grow, fans keep coming back to one of his greatest shows since Yellowstone.
+---------
+
+# Hulu's 7-Part Sci-Fi Series Is Quietly One of Its Best Franchise's To Binge
+
+Movie Features, Predator, Hulu, Prey, Predator: Badlands
+
+Sun, 05 Apr 2026 19:55:12 GMT
+
+https://collider.com/hulu-predator-franchise-best-sci-fi-binge/
+
+The Predator franchise has evolved over the years to become a must-watch sci-fi/horror staple, and now you can binge it on Hulu.
+---------
+
+# Prime Video’s 6-Part Western Is Perfect for Taylor Sheridan Fans
+
+TV Features, The English, Emily Blunt, Rafe Spall, Prime Video
+
+Sun, 05 Apr 2026 19:41:12 GMT
+
+https://collider.com/the-english-prime-video-western-perfect-for-taylor-sheridan-fans/
+
+Prime Video's The English, starring Emily Blunt and Chaske Spencer, is perfect for fans of the Western genre and Taylor Sheridan.
+---------
+
+# HBO Shows That Are Instant Masterpieces
+
+TV Lists, Girls, The Sex Lives of College Girls, true blood, Peacemaker, The Last of Us, Mare of Easttown, The White Lotus, I May Destroy You, HBO Max
+
+Sun, 05 Apr 2026 19:30:17 GMT
+
+https://movieweb.com/hbo-shows-instant-masterpieces/
+
+These HBO Originals all prove within the first episode why they're instant masterpieces.
+---------
+
 # Ridley Scott & Christian Bale's Controversial Action Movie Is Free To Stream At The Perfect Time
 
 Movies, Exodus: Gods and Kings
