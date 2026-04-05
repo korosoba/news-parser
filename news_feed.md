@@ -1,3 +1,322 @@
+# Nintendo Is Already Setting Up Their Next Big Movie Franchise After Super Mario
+
+Movies, The Super Mario Galaxy Movie
+
+Sun, 05 Apr 2026 01:45:20 GMT
+
+https://screenrant.com/nintendo-movie-franchise-starfox-super-mario/
+
+What happens in The Super Mario Galaxy Movie goes to show that Nintendo already has the framework for what could become its next major franchise.
+---------
+
+# 10 Tolkien Characters Who Could Debut In The Rings Of Power Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 05 Apr 2026 01:30:19 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-new-tolkien-characters/
+
+Get ready - this next step in Rings of Power's story should bring a new wave of characters from J.R.R. Tolkien's Second Age of Middle-earth.
+---------
+
+# Josh Hutcherson's Unique Sci-Fi Series, Future Man, Tackles Time Travel
+
+Streaming TV, Future Man
+
+Sun, 05 Apr 2026 01:15:19 GMT
+
+https://screenrant.com/josh-hutcherson-future-man-sci-fi-time-travel-done-right/
+
+Josh Hutcherson's Hulu show, Future Man, approached time travel with a fresh perspective & chaotic humor, making it one of the most underrated series.
+---------
+
+# The MCU's Shortest TV Show Is A Must-Watch Before Avengers: Doomsday
+
+Classic TV, Eyes of Wakanda, Avengers: Doomsday, Marvel Cinematic Universe, Black Panther, Marvel
+
+Sun, 05 Apr 2026 01:15:19 GMT
+
+https://screenrant.com/marvel-eyes-of-wakanda-must-watch/
+
+The MCU's shortest TV show has largely been overlooked because it's animated, but the series is a must-watch before Avengers: Doomsday.
+---------
+
+# Netflix's KPop Demon Hunters 2: Theatrical Release Could Dominate Box Office
+
+Movies, KPop Demon Hunters
+
+Sun, 05 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/kpop-demon-hunters-2-netflix-box-office-beat-disney/
+
+Netflix is now officially working on KPop Demon Hunters 2, and it has the chance to dominate the box office with a true theatrical phenomenon.
+---------
+
+# Everyone’s Rewatching This Near Perfect 2014 Anime on Crunchyroll Again and Here’s Why
+
+Anime, Crunchyroll
+
+Sun, 05 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/your-lie-april-rewatch-crunchyroll-aged-well/
+
+Relive the tragic journey of Kousei and Kaori in Your Lie in April, a timeless anime that still breaks hearts decades after its release.
+---------
+
+# An Official Zelda: Ocarina Of Time Remake Exists, And It's Glorious
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Sun, 05 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/an-official-zelda-ocarina-of-time-remake-exists-and-its-glorious/
+
+Although Nintendo might be planning an Ocarina Of Time remake for Switch 2, all we can think about is the one that already exists.
+---------
+
+# Prime Video's 2-Part Sci-Fi Action Series Is Officially Replacing The Boys
+
+Streaming TV, The Boys, Fallout, Sci-Fi, Amazon Prime Video
+
+Sun, 05 Apr 2026 00:42:19 GMT
+
+https://screenrant.com/fallout-prime-video-sci-fi-action-series-replacing-the-boys/
+
+As The Boys concludes its epic run, one hit video game adaptation is emerging as the unexpected choice to become Prime Video's next defining series.
+---------
+
+# Robert Pattinson & Zendaya's The Drama Sparks Controversy As Marketing For Plot Twist Is "Deeply Misaligned With The Reality"
+
+Movies, The Drama, Zendaya, Robert Pattinson
+
+Sun, 05 Apr 2026 00:37:29 GMT
+
+https://screenrant.com/the-drama-plot-twist-controversy-march-for-our-lives/
+
+The Drama starring Robert Pattinson and Zendaya is already facing major backlash for its unexpected plot twist in light of recent events.
+---------
+
+# Super Rant Rewatch: 2013's Iron Man 3 Is A Better Avengers Epilogue Than A Trilogy Ender
+
+Superheroes, Iron Man 3, Marvel Cinematic Universe
+
+Sun, 05 Apr 2026 00:31:18 GMT
+
+https://screenrant.com/super-rant-iron-man-3-better-avengers-epilogue-than-trilogy-ender-mcu/
+
+Following my recent Super Rant Rewatch of Iron Man 3 ahead of Avengers: Doomsday, the 2013 movie takes on a different light 13 years later.
+---------
+
+# Action Shows With the Most Intense Fight Scenes on TV
+
+TV, Action, Reacher
+
+Sun, 05 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/action-shows-most-intense-fight-scenes-list/
+
+Action fans have more to choose from than ever, but these shows stand out for delivering some of the most intense fight scenes on TV.
+---------
+
+# Top 10 Shojo Manga Adaptations to Watch on Crunchyroll Right Now
+
+Anime, Crunchyroll, Shojo, Snow White With The Red Hair, Fruits Basket, Fruits Basket (2001), In the Clear Moonlit Dusk
+
+Sun, 05 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/crunchyroll-best-shojo-anime-watch/
+
+Crunchyroll unveils the ultimate shojo anime bucket list -- a lineup that includes timeless 2000s-era classics and modern masterpieces alike.
+---------
+
+# Netflix Loses Queen of the South This Month
+
+TV, The Queen of the South
+
+Sun, 05 Apr 2026 01:22:37 GMT
+
+https://www.cbr.com/queen-of-the-south-leaving-netflix-april-2026/
+
+The easy-to-binge gritty drama is almost gone at Netflix with time to watch the series quickly running out.
+---------
+
+# Taylor Sheridan's Yellowstone Character Is Back, & Marshals Confirmed It
+
+TV, Marshals, Yellowstone, CBS
+
+Sun, 05 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/cbs-marshals-taylor-sheridan-travis-wheatley-character-reference/
+
+Yellowstone has revived its most controversial character in Kayce Dutton's CBS spinoff, ushering in new possibilities for Marshals and Dutton Ranch.
+---------
+
+# Forget Harry Potter, The Bone Temple Is Ralph Fiennes’ True Masterpiece
+
+Movies, 28 Years Later: The Bone Temple, Horror, Harry Potter
+
+Sun, 05 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/ralph-fiennes-28-years-later-bone-temple-masterpiece/
+
+The Bone Temple forces audiences to completely rethink everything they know about Fiennes' abilities as an actor.
+---------
+
+# Top Gun Has a Secret Meaning Most Fans Still Don't
+
+Movies, top gun
+
+Sun, 05 Apr 2026 00:45:13 GMT
+
+https://www.cbr.com/top-gun-quote-secret-meaning-fan-still-dont-get-explained/
+
+39 years after Top Gun's initial release, many viewers still do not understand the true meaning behind a single throwaway line in the movie.
+---------
+
+# Prime Video's RoboCop TV Series Gets Official Update
+
+TV, Robocop
+
+Sun, 05 Apr 2026 00:31:25 GMT
+
+https://www.cbr.com/prime-video-robocop-series-greenlit/
+
+A big update has been revealed for the long-gestating RoboCop reboot at Prime Video.
+---------
+
+# This SNES Game Delivered a Near-Perfect Ending Nobody Talks About
+
+Games, Nintendo, Superman, retro games
+
+Sun, 05 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/underrated-snes-game-best-ending-death-return-superman/
+
+One forgotten SNES game has one of the best endings in video game history.
+---------
+
+# Every Scooby-Doo Movie, In Chronological Order
+
+Movies, Scooby-Doo
+
+Sun, 05 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/scooby-doo-movies-chronological-order/
+
+Though Scooby-Doo is best known for his appearences on TV, there have been a ton of feature films made featuring Scoob and the rest of Mystery Inc.
+---------
+
+# Why The Rookie Killed Off Jackson West
+
+TV, The Rookie
+
+Sun, 05 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/why-rookie-killed-off-jackson-west/
+
+Titus Makin Jr., who played Officer Jackson West in The Rookie, left the show after Season 3, and fans of the show want to know why.
+---------
+
+# 8 Prime Video Shows That Are Amazing From Start to Finish
+
+TV, Prime Video, Invincible, The Boys, Reacher
+
+Sun, 05 Apr 2026 01:36:12 GMT
+
+https://collider.com/prime-video-shows-amazing-start-to-finish/
+
+Prime Video has a library of shows that are genuinely amazing from start to finish, including Invincible, The Boys, Reacher, and The Runarounds.
+---------
+
+# 10 Greatest '80s Sci-Fi Movies Ever Made
+
+Movie, Sci-Fi, 1980s, The Empire Strikes Back, Back to the Future
+
+Sun, 05 Apr 2026 01:33:12 GMT
+
+https://collider.com/best-1980s-sci-fi-movies/
+
+E.T. the Extra-Terrestrial, Brazil, Akira, The Fly, Aliens, Blade Runner, and more make up our list of the best '80s sci-fi movies ever made.
+---------
+
+# HBO's Harry Potter Series Is Already Making 1 Mistake That 'Stranger Things' Was Smart Enough To Avoid
+
+TV Features, Harry Potter, HBO, Netflix, Stranger Things
+
+Sun, 05 Apr 2026 01:14:12 GMT
+
+https://collider.com/harry-potter-hbo-mistake-stranger-things-animated-sequel-franchise/
+
+HBO's Harry Potter series is facing the same challenge Stranger Things once did in terms of how to continue a successful franchise.
+---------
+
+# PBS's 6-Part 'Gilded Age' Replacement Is So Good, It's Already Been Renewed for Two More Seasons
+
+TV Features, The Forsytes, Eleanor Tomlinson, Tuppence Middleton, PBS
+
+Sun, 05 Apr 2026 01:01:13 GMT
+
+https://collider.com/the-forsytes-gilded-age-replacement-period-drama/
+
+With strong performances and a compelling storyline, The Forsytes is a must-watch adaptation of John Galsworthy's classic novel.
+---------
+
+# 7 Sci-Fi TV Shows That Are 10/10 but Nobody Remembers Today
+
+TV, Sci-Fi, Science Fiction, The Outer Limits, Farscape
+
+Sun, 05 Apr 2026 00:35:13 GMT
+
+https://collider.com/sci-fi-tv-shows-nobody-remembers/
+
+The Outer Limits, Farscape, Voyagers!, and Thunderbirds are some of the perfect sci-fi TV series that are completely forgotten by audiences.
+---------
+
+# 2006's Stunning Sleeper Hit Takes Over the World Ahead of Long-Awaited Sequel
+
+Movie News, The Devil Wears Prada, The Devil Wears Prada 2, Disney, Streaming
+
+Sun, 05 Apr 2026 00:30:12 GMT
+
+https://collider.com/the-devil-wears-prada-streaming-success-disney-plus-april-2026-sequel-buzz/
+
+Anne Hathaway's hit comedy, The Devil Wears Prada, is dominating streaming again as excitement builds for the long-awaited sequel.
+---------
+
+# Gerard Butler’s 117-Minute Adventure Is Scratching the ‘Indiana Jones’ Itch on Free Streaming
+
+Movie News, Gerard Butler, Tomb Raider: The Cradle of Life, Angelina Jolie, Tubi
+
+Sun, 05 Apr 2026 00:15:13 GMT
+
+https://collider.com/gerard-butler-indiana-jones-action-adventure-tomb-raider-2-cradle-of-life-streaming-success-free-tubi-april-2026/
+
+Gerard Butler's Tomb Raider: Cradle of Life has found a surprise place on the U.S. streaming charts. Here's what you should know.
+---------
+
+# 'Peaky Blinders' New Hero Shines in the 15-Year-Old War Epic Dominating Streaming
+
+Movie News, Channing Tatum, War, The Eagle, Jamie Bell
+
+Sun, 05 Apr 2026 00:00:13 GMT
+
+https://collider.com/channing-tatum-forgotten-war-movie-the-eagle-streaming-success-hbo-max-april-2026/
+
+The Eagle has become a surprise streaming hit on HBO Max, giving Channing Tatum Jamie Bell’s overlooked historical war movie a fresh shot.
+---------
+
+# Henry Cavill Finds Perfect 'James Bond' Role After a Decade of Fan-Casting
+
+Features, Henry Cavill, James Bond, james bond
+
+Sun, 05 Apr 2026 00:00:19 GMT
+
+https://movieweb.com/henry-cavill-perfect-james-bond-role/
+
+After a decade of fans wanting to see Henry Cavill as the famous super spy, he finally has a clear James Bond future.
+---------
+
 # How Apple TV's Emmy-Winning Comedy Series Will Handle Catherine O'Hara's Death Revealed By Seth Rogen
 
 TV, The Studio, Catherine O'Hara
