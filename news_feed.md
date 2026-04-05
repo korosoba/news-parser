@@ -1,3 +1,113 @@
+# 10 Seinfeld Lines That Are Even Funnier 30 Years Later
+
+Classic TV, Seinfeld
+
+Sun, 05 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/seinfeld-lines-funny-30-years-later/
+
+Unlike most sitcoms of its era, Seinfeld is aging like a fine wine — and some of its most iconic lines are even funnier three decades later.
+---------
+
+# The Harry Potter TV Series Release Schedule Is Already Worrying Me
+
+TV, Harry Potter
+
+Sun, 05 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/harry-potter-series-release-schedule-problems/
+
+Though the upcoming first season of the Harry Potter TV series is exciting, a piece of news from HBO's chairman has me worried about the its future.
+---------
+
+# 10 Deadly Monsters That The Witcher 4 Desperately Needs To Bring Back
+
+Gaming, The Witcher 4, Triple-A Games, PC
+
+Sun, 05 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/best-monsters-the-witcher-4-enemy-wishlist/
+
+The Witcher series is well known for its creative questlines, but they wouldn't be nearly as memorable without some frightening monsters to face.
+---------
+
+# The MCU's Biggest Box Office Bomb Is Way Better Than It Gets Credit For
+
+Movies, The Marvels, Marvel Cinematic Universe, Op-Ed
+
+Sun, 05 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/mcu-least-watched-movie-the-marvels-actually-great/
+
+The Marvels grossed the least amount of money of any MCU film, yet there are plenty of things about the sequel that make it a very good movie.
+---------
+
+# The Super Mario Galaxy Movie Blasts Onto 2026's Global Box Office Top 5 In Just 5 Days
+
+Movies, Box Office, Super Mario Bros., The Super Mario Galaxy Movie
+
+Sun, 05 Apr 2026 15:29:33 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-global-box-office-debut/
+
+The record-setting global box office debut of The Super Mario Galaxy Movie sees the new animated movie already landing on a major Top 5 chart.
+---------
+
+# All 8 Bunny Pokémon, Ranked
+
+Games, Pokemon, Video Games
+
+Sun, 05 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/bunny-pokemon-ranked/
+
+Pokémon species are determined as bunnies or not by a mixture of stats, lore, and design, and there are surprisingly very few of them.
+---------
+
+# 6 Strongest Swordsmen in Berserk
+
+Anime, Berserk
+
+Sun, 05 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/berserk-strongest-swordsmen/
+
+Not every warrior in Berserk can match the precision and strength of elite swordsmen like Serpico and Nosferatu Zodd.
+---------
+
+# J.J. Abrams Could Be Quietly Reviving His Fan-Favorite Sci-Fi Franchise 8 Years Later
+
+Movie Features, The End of Oak Street, Cloverfield, Anne Hathaway, Sci-Fi
+
+Sun, 05 Apr 2026 15:31:13 GMT
+
+https://collider.com/the-end-oak-street-movie-jj-abrams-cloverfield/
+
+J.J. Abrams' The End of Oak Street, starring Anne Hathaway and Ewan McGregor, feels like a secret installment in the Cloverfield franchise.
+---------
+
+# New Sci-Fi Masterpiece Overtakes J.J. Abrams’ Bold Franchise-Starter at the Box Office
+
+Movie News, Ryan Gosling, Project Hail Mary, Star Trek, J.J. Abrams
+
+Sun, 05 Apr 2026 15:12:15 GMT
+
+https://collider.com/sci-fi-movie-project-hail-mary-overtakes-star-trek-2009-box-office-390-million/
+
+A new sci-fi masterpiece has overtaken J.J. Abrams’ bold franchise starter reboot at the box office. See how much both films made.
+---------
+
+# 10 Most Anxiety-Inducing Romance Movies, Ranked
+
+Movie, The Drama, Punch-Drunk Love, Scenes From a Marriage, Badlands
+
+Sun, 05 Apr 2026 15:04:13 GMT
+
+https://collider.com/most-anxiety-inducing-romance-movies-ranked/
+
+Certain romance movies highlight anxiety over anything sentimental, including classics like Scenes from a Marriage, Badlands, and Happy Together.
+---------
+
 # Nintendo Already Has A Near-Perfect Super Smash Bros. Movie Story
 
 Movies, Super Smash Bros.
