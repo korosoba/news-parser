@@ -1,3 +1,212 @@
+# Alice In Borderland: Netflix's Best Sci-Fi Binge
+
+Classic TV, Alice in Borderland
+
+Sun, 05 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/alice-in-borderland-netflix-sci-fi-thriller-series-binge/
+
+Netflix has countless exciting options for sci-fi fans, but its best binge-watch is Alice in Borderland, a wildly underrated survival horror series.
+---------
+
+# Magic: The Gathering: Secrets Of Strixhaven - Release Date, Pricing, Sets, & Cards Info
+
+Gaming, Magic: The Gathering, tabletop games, PC
+
+Sun, 05 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/mtg-secrets-strixhaven-release-date-price-cards/
+
+Secrets of Strixhaven is already shaping up to be an excellent in-universe release, adding new life to some classic color combinations.
+---------
+
+# Daredevil's Original Costume Upgrade Saved the Character From Obscurity
+
+Comics, Daredevil, Marvel
+
+Sun, 05 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/daredevil-red-suit-debut-saved-matt-murdoch-marvel-comics/
+
+Daredevil's OG costume had to go to make him an icon.
+---------
+
+# 10 Original Scrubs Episodes That Have Aged Poorly
+
+TV, Scrubs
+
+Sun, 05 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/scrubs-show-episodes-aged-poorly/
+
+The original Scrubs may be widely beloved, but looking back at it today reveals some incredibly uncomfortable episodes that aged like milk.
+---------
+
+# I Love The Office Now, But Felt Differently When I Saw The First Episode In 2005
+
+Classic TV, The Office
+
+Sun, 05 Apr 2026 12:17:18 GMT
+
+https://screenrant.com/the-office-2005-first-reaction-different/
+
+NBC's The Office faced challenges in its pilot & first season, closely mirroring the UK version and struggling to connect with American audiences.
+---------
+
+# 60 Years Later, DC Turns an Iconic Superman Villain Into His Sidekick With a Bold Redesign
+
+DC Comics, Superman
+
+Sun, 05 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/superman-parasite-sidekick-redesign-lore-change/
+
+DC Comics has just executed a major lore overhaul that has officially turned one of Superman’s most iconic villains into his newest sidekick.
+---------
+
+# Robert Pattinson’s New The Batman 2 Update Is Exactly What We All Wanted To Hear
+
+Superheroes, The Batman Part II, DC Universe
+
+Sun, 05 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/the-batman-2-filming-story-update-robert-pattinson/
+
+Lead actor Robert Pattinson's comments about The Batman 2 paint a promising picture of what's to come for the upcoming DC movie and its story.
+---------
+
+# Dark Souls: The Fading Flame Will Keep You Busy Till DS4
+
+Gaming, Dark Souls
+
+Sun, 05 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/dark-souls-fading-flame-unofficial-overhaul/
+
+Explore the expanded world of Dark Souls with the Fading Flame mod, adding new bosses, enemies, weapons, and restored cut content.
+---------
+
+# 13 Female Characters Who Redefined Strength On TV
+
+Classic TV
+
+Sun, 05 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/tv-female-characters-redefined-strength/
+
+From Buffy to Yennefer, these women take control, break rules and dominate their stories by redefining power on screen in bold and unforgettable ways.
+---------
+
+# Daredevil Could Get A New Love Interest Following His Most Recent Return
+
+Comics, Daredevil
+
+Sun, 05 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/daredevil-1-new-love-interest-theory/
+
+Daredevil seems to be headed for a brand-new romance, all while his new worst enemy stalks the streets in search of Matt Murdock.
+---------
+
+# The Stand Is Stephen King's Best Miniseries Adaptation
+
+TV, The Stand, Stephen King, Horror
+
+Sun, 05 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/best-stephen-king-miniseries-the-stand/
+
+King's stories have always been told brilliantly through miniseries, and this 1994 massive TV event is one that still holds up today.
+---------
+
+# One of the Best Survival Thrillers of All Time Hits a New Streamer in Just 2 Days
+
+Movie, Beast, Idris Elba, Netflix, Sharlto Copley
+
+Sun, 05 Apr 2026 12:34:12 GMT
+
+https://collider.com/beast-netflix-one-of-the-best-survival-thrillers-of-all-time-2-days/
+
+Baltasar Kormákur’s Beast is one of the greatest survival thrillers of the decade, and it stars Idris Elba as he tries to save his family from a lion.
+---------
+
+# Jesse Pinkman's 10 Best Quotes in 'Breaking Bad,' Ranked
+
+TV, Vince Gilligan, Breaking Bad, Aaron Paul, Bryan Cranston
+
+Sun, 05 Apr 2026 12:31:12 GMT
+
+https://collider.com/breaking-bad-jesse-pinkman-quotes-best-ranked/
+
+Jesse Pinkman is arguably the most quotable Breaking Bad character, with his best lines highlighting the desperation and tragic humor of crime.
+---------
+
+# This 8-Part Fantasy Hit Smashes a Colossal Streaming Milestone Ahead of Series Finale
+
+TV News, Outlander, STARZ, Fantasy, streaming
+
+Sun, 05 Apr 2026 12:30:12 GMT
+
+https://collider.com/outlander-fantasy-historical-romance-streaming-success-starz-april-2026/
+
+This near-perfect 8-part fantasy series that rivals the very best just passed an astonishing streaming milestone as the finale nears.
+---------
+
+# 10 Most Perfect Action Movies of All Time, Ranked
+
+Movie, Action, Terminator 2: Judgment Day, aliens, Die Hard
+
+Sun, 05 Apr 2026 12:27:12 GMT
+
+https://collider.com/most-perfect-action-movies-of-all-time-ranked/
+
+From Die Hard to Seven Samurai, these are the best, most perfect action movies of all time.
+---------
+
+# 10 Darkest HBO Shows Ever Made, Ranked
+
+TV, HBO, Chernobyl, The Leftovers, The Wire
+
+Sun, 05 Apr 2026 12:21:12 GMT
+
+https://collider.com/dark-hbo-shows-ranked/
+
+Explore the darkest corners of HBO's catalog with the network's most grim and thought-provoking series, from The Leftovers to Chernobyl.
+---------
+
+# HBO Max Officially Has This 10/10 Film Noir Starring an American Movie Icon
+
+Movie Features, Out Of The Past, Robert Mitchum, Film Noir, HBO Max
+
+Sun, 05 Apr 2026 12:18:12 GMT
+
+https://collider.com/hbo-max-out-of-the-past-streaming-robert-mitchum/
+
+The 1947 film noir Out of the Past, starring Robert Mitchum, is finally available to stream on HBO Max.
+---------
+
+# Jason Statham’s 2-Year-Old Action Thriller Is Taking Over the World
+
+Movie News, Jason Statham, The Beekeeper, Action, Peacock
+
+Sun, 05 Apr 2026 12:00:13 GMT
+
+https://collider.com/jason-statham-action-thriller-the-beekeeper-streaming-success-peacock-april-2026/
+
+Fans are buzzing as Jason Statham's best movie in years, The Beekeeper, is a streaming hit in the U.S. Find out where below.
+---------
+
+# This 6-Part Crime Masterpiece Gets Westerns Right in a Way Taylor Sheridan’s Shows Don’t
+
+TV Features, Longmire, Yellowstone, Taylor Sheridan, Netflix
+
+Sun, 05 Apr 2026 11:57:12 GMT
+
+https://collider.com/longmire-6-season-neo-western-crime-series-masterpiece/
+
+Longmire beat Yellowstone to the punch with smart mysteries, strong Western storytelling, and a more thoughtful view of the modern West.
+---------
+
 # Hogwarts Legacy 2 Major Change Set Up In Official New Trailer
 
 Gaming, Harry Potter, Hogwarts Legacy, Triple-A Games
