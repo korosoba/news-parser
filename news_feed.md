@@ -1,3 +1,146 @@
+# New Prime Video Movies April 2026: Best Additions & Highlights
+
+Movies, Prime Video, Ranking
+
+Sun, 05 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/prime-video-movies-new-best-april-2026/
+
+Prime Video added some incredible movies over the past couple of weeks, from a Best Picture winner to a new heist flick to some great horror films.
+---------
+
+# Parker Declares He’s Retiring In NCIS Season 23, Episode 15 Trailer
+
+Network TV, NCIS
+
+Sun, 05 Apr 2026 14:12:39 GMT
+
+https://screenrant.com/ncis-season-23-episode-15-trailer/
+
+Not long after Director Vance's unexpected death, Alden Parker floats the idea of retirement in CBS's official NCIS season 23, episode 15 trailer.
+---------
+
+# How Searching Reinvigorated The Modern Mystery
+
+Classic Movies, Searching
+
+Sun, 05 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/searching-thriller-rewrote-rules-aged-well/
+
+Released in 2018, the John Cho-starring thriller Searching remains an engaging watch that explores the genre in a way that's still relevant today
+---------
+
+# The Legend Of Zelda Official New Release Drops On April 17
+
+Gaming, The Legend of Zelda, PC
+
+Sun, 05 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/zelda-april-17-official-release/
+
+The Legend of Zelda is officially back to celebrate the 40th Anniversary with a brand-new release you can claim on April 17, 2026.
+---------
+
+# Only One MCU Series Needs A Season 2 More Than Moon Knight
+
+Streaming TV, Agatha All Along, Marvel Cinematic Universe
+
+Sun, 05 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/agatha-all-along-mcu-series-need-season-2/
+
+Moon Knight isn't the only live-action MCU show that needs a second season. Agatha All Along's coven of witches deserves more time on screen, too.
+---------
+
+# 5 Single-Season Shonen Anime Masterpieces
+
+Anime, Shonen, Dororo, Death Note, Nichijou - My Ordinary Life, Fullmetal Alchemist: Brotherhood, Takopi's Original Sin
+
+Sun, 05 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/best-shonen-anime-only-1-season/
+
+Depite being known for decades-long sagas like Dragon Ball and One Piece, shonen anime has just as many 1-season masterpieces.
+---------
+
+# Henry Cavill & Alan Ritchson’s The Ministry of Ungentlemanly Warfare is a Required War Movie
+
+Movies, The Ministry of Ungentlemanly Warfare
+
+Sun, 05 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/ministry-of-ungentlemanly-warfare-underrated-guy-ritchie-movie/
+
+Despite its inaccuracies, this 2024 Guy Ritchie war film showcases the director's signature style, a star-studded cast, and lots of action.
+---------
+
+# Zendaya’s Controversial New A24 Movie Takes No Prisoners at the Box Office
+
+Movie News, Zendaya, Robert Pattinson, The Drama, A24
+
+Sun, 05 Apr 2026 13:58:12 GMT
+
+https://collider.com/zendaya-robert-pattinson-new-a24-movie-the-drama-box-office-14-million/
+
+Zendaya and Robert Pattinson’s controversial new A24 movie is taking no prisoners at the box office. See how much it’s made so far.
+---------
+
+# 10 Best Crowd-Pleasing Fantasy Movies, Ranked
+
+Movie, Spirited Away, It's a Wonderful Life, The Lord of the Rings: The Return of the King, Harry Potter and the Deathly Hallows - Part 2
+
+Sun, 05 Apr 2026 13:55:12 GMT
+
+https://collider.com/best-crowd-pleasing-fantasy-movies-ranked/
+
+From classics like The Wizard of Oz to 21st-century ones like The Return of the King, these fantasy movies are all massively crowd-pleasing.
+---------
+
+# 'Resident Evil' Test Screenings Compare the Action to 'Mad Max: Fury Road'
+
+Movie News, Zach Cregger, Resident Evil
+
+Sun, 05 Apr 2026 14:22:23 GMT
+
+https://movieweb.com/resident-evil-reboot-test-screening-fury-road/
+
+'Weapons' director Zach Cregger's next movie is already earning high praise.
+---------
+
+# 'The Boys' Creator Eric Kripke Talks Heroes' Fight for Survival in Season 5
+
+Exclusives, The Boys, Eric Kripke
+
+Sun, 05 Apr 2026 14:01:52 GMT
+
+https://movieweb.com/the-boys-eric-kripke-stakes-season-5/
+
+'The Boys' Season 5 will set Butcher, Hughie, and the rest of the team up for the scariest and highest stakes they've ever seen.
+---------
+
+# 'Cross' Star Aldis Hodge Starred in the Jack Reacher Franchise Before Alan Ritchson
+
+Features, Reacher
+
+Sun, 05 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/jack-reacher-cross-alan-ritchson-aldis-hodge/
+
+'Cross' is one of 'Reacher's strongest competitors. Interestingly, the lead actor starred in the Jack Reacher franchise before Alan Ritchson.
+---------
+
+# Pierce Brosnan's '90s Disaster Action Gem 'Dante's Peak' Lands New Streaming Home
+
+Movie News, Dante's Peak, Coming/Leaving Streaming, Action
+
+Sun, 05 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/dantes-peak-streaming-peacock-april-2026/
+
+The diaster movie stars the former James Bond alongside Linda Hamilton, with VFX from James Cameron's Digital Domain.
+---------
+
 # 10 K-Dramas That Are Considered Masterpieces
 
 Classic TV, K-Drama
