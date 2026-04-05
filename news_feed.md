@@ -1,3 +1,168 @@
+# 7 TV Shows We Thought Would Be The New X-Files
+
+Classic TV, The X-Files
+
+Sun, 05 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/tv-shows-new-x-files/
+
+The X-Files' cult status was no fluke, as its sci-fi cases captivated audiences worldwide, and a lot of shows tried to achieve something similar.
+---------
+
+# One Piece Just Revealed Imu’s True Face After 8 Years and Fans Are Stunned
+
+Anime, One Piece (1997), One Piece
+
+Sun, 05 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/one-piece-imu-true-face-revealed/
+
+Eiichiro Oda finally unveils Imu's face in the latest One Piece chapter, revealing a shocking transformation.
+---------
+
+# No Man's Sky Gets Official New April 2026 Release
+
+Gaming, No Man's Sky, PC
+
+Sun, 05 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/no-mans-sky-the-traveller-release-april-2026/
+
+No Man's Sky has come a long way since its launch back in 2013, and fans are still getting brand-new content after over a decade.
+---------
+
+# Netflix’s 6-Part Comedy With Near-Perfect RT Score Changed Streaming Forever
+
+TV, BoJack Horseman
+
+Sun, 05 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/netflix-bojack-horseman-comedy-reception-changed-streaming/
+
+Netflix's critically acclaimed masterpiece had a shaky start, and the iconic dramedy accidentally shaped streaming history with its rocky beginning.
+---------
+
+# This 10/10 Comedy Classic Just Dethroned KPop Demon Hunters on Netflix
+
+Movies, Madagascar, KPop Demon Hunters, Netflix
+
+Sun, 05 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/madagascar-dethrones-kpop-demon-hunters-netflix-family-classic/
+
+A surprising family-friendly comedy movie from 20 years ago just defeated KPop Demon Hunters on Netflix.
+---------
+
+# Buffy & Angel's Missing Scene That Fans Desperately Want
+
+TV, Buffy The Vampire Slayer
+
+Sun, 05 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/buffy-angel-relationship-moment-cut-scene/
+
+Buffy's relationship with Angel was a high point of the Buffy the Vampire Slayer series, but there's one scene that fans never saw.
+---------
+
+# 10 Iconic Anime You Have To Watch Before Calling Yourself an Expert
+
+Anime, Mushi-Shi, Revolutionary Girl Utena, Neon Genesis Evangelion, Legend Of The Galactic Heroes, Mobile Suit Gundam, Akira, Cowboy Bebop, Space Battleship Yamato, Urusei Yatsura
+
+Sun, 05 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/best-anime-to-watch-to-be-expert-fan/
+
+Cowboy Bebop & Neon Genesis Evangelion are two of the most important series to watch before calling yourself an anime expert, but it's not just them.
+---------
+
+# Star Trek: Starfleet Academy Star Isn't Bummed by Cancelation
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Sun, 05 Apr 2026 18:06:45 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-kerrice-brooks-cancellation/
+
+Star Trek: Starfleet Academy's Kerrice Brooks breaks her silence on Paramount+ canceling the series.
+---------
+
+# 10 X-Men Characters Who Completely Disappeared
+
+Superheroes, Marvel, X-Men
+
+Sun, 05 Apr 2026 18:00:11 GMT
+
+https://www.cbr.com/x-men-characters-who-completely-vanished/
+
+Where did they go, Marvel?
+---------
+
+# Hatsune Miku Makes History With All-New Mecha Makeover
+
+Anime, Hatsune Miku, merchandise, bandai
+
+Sun, 05 Apr 2026 18:00:11 GMT
+
+https://www.cbr.com/hatsune-miku-mecha-design-first-female-metal-build/
+
+The new Hatsune Miku collectible is the first female figure in Bandai's METAL BUILD series, and it gives the Vocaloid a radically futuristic design.
+---------
+
+# All 6 Martin Scorsese Gangster Movies, Ranked
+
+Movie, Goodfellas, Martin Scorsese, The Irishman, Casino
+
+Sun, 05 Apr 2026 18:11:12 GMT
+
+https://collider.com/every-martin-scorsese-gangster-movie-ranked/
+
+Martin Scorsese has directed half a dozen gangster movies, including classics like Mean Streets and Goodfellas, but which of them is the best overall?
+---------
+
+# Apple TV’s 3-Part Sci-Fi Phenomenon Is Tearing Through Global Streaming Charts
+
+TV News, Apple TV, Severance, Sci-Fi, Streaming
+
+Sun, 05 Apr 2026 18:00:12 GMT
+
+https://collider.com/adam-scott-office-sci-fi-series-severance-streaming-success-apple-tv-april-2026/
+
+Apple TV's mind-bending sci-fi series, Severance, has found itself back on the global streaming charts. Read on for more details.
+---------
+
+# 10 Years Later, Prime Video’s 2-Part Spy Thriller Is One of Its Greatest
+
+TV Features, The Night Manager, Tom Hiddleston, Prime Video, Hugh Laurie
+
+Sun, 05 Apr 2026 17:58:12 GMT
+
+https://collider.com/the-night-manager-prime-video-spy-thriller-greatest/
+
+Prime Video is filled with must-watch titles, and one of its best is a tense spy thriller with career-best roles from Tom Hiddleston and Hugh Laurie.
+---------
+
+# Val Kilmer's Iconic 'Tombstone' Line Is Still the Greatest Western Quote Ever
+
+Features, Tombstone, Western
+
+Sun, 05 Apr 2026 18:30:17 GMT
+
+https://movieweb.com/tombstone-doc-holliday-huckleberry-western-quote/
+
+The 1993 classic 'Tombstone' is loaded with memorable scenes and iconic quotes, but one line stands above all others in Western cinema.
+---------
+
+# 'Nightcrawler': Jake Gyllenhaal's Psychological Thriller Hits Harder Than Ever After 12 Years
+
+Features, Nightcrawler, Jake Gyllenhaal, Holds Up
+
+Sun, 05 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/nightcrawler-streaming-free-recommendation/
+
+"If it bleeds, it leads." Jake Gyllenhaal's psychological thriller masterpiece is one of the most important movies of the century.
+---------
+
 # Spider-Man's Cancelled Movie Based On Popular Comic Series Was "Swinging For The Fences" As Marvel Film Nearly Started Filming
 
 Movies, Spider-Man, Sinister Six, Marvel Cinematic Universe
