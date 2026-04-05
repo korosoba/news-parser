@@ -1,3 +1,212 @@
+# Stephen King Is Right: Hulu’s Sci-Fi Thriller Is The Perfect Lost Replacement
+
+Streaming TV, Paradise
+
+Sun, 05 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/stephen-king-paradise-sci-fi-thriller-lost-replacement/
+
+Hulu's post-apocalyptic thriller Paradise was highly praised by Stephen King, and he is right in comparing the show to the mind-bending sci-fi Lost.
+---------
+
+# 10 Near-Perfect Anime Thrillers That Will Keep Fans Hooked From Start To Finish
+
+Anime
+
+Sun, 05 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/anime-thrillers-near-perfect/
+
+Though not quite perfect, these thrilling spectacles all have the quality to get you out of your seat
+---------
+
+# Every Upcoming Zendaya Movie & TV Show After The Drama, Ranked By Hype
+
+Movies, Zendaya, The Drama, Shrek 5, Spider-Man: Brand New Day, Euphoria - Season 3, The Odyssey, Dune: Part Three
+
+Sun, 05 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/upcoming-zendaya-movies-tv-shows-ranked/
+
+The Drama has been a major hit for A24, and Zendaya's next two years are getting even better with plenty of hyped up new movies and shows.
+---------
+
+# 10 Anime So Dark That They’re Actually Disturbing
+
+Anime
+
+Sun, 05 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/anime-dark-disturbing-ranked/
+
+The concept of darkness for most anime is typically to highlight morally grey zones, but these titles take it more than a step further.
+---------
+
+# DC Officially Reveals New Supergirl Costume, And Fans Are Either Going to Love It or Hate It
+
+DC Comics, Supergirl
+
+Sun, 05 Apr 2026 21:27:08 GMT
+
+https://screenrant.com/official-new-supergirl-costume-look-dc/
+
+Supergirl fans may be shocked by her latest redesign, a complete overhaul giving Kara Zor-El a darker, far more hardcore look than ever.
+---------
+
+# 10 Sci-Fi TV Shows That Maintain High Quality Throughout Their Runs
+
+Classic TV, Fringe, Orphan Black, Stargate SG-1
+
+Sun, 05 Apr 2026 21:20:19 GMT
+
+https://screenrant.com/sci-fi-shows-keep-you-hooked-from-start-to-finish/
+
+10 sci-fi TV series that consistently deliver high-quality storytelling and engaging characters from beginning to end, including Firefly & Babylon 5.
+---------
+
+# Sadie Sink Suits Up As Jean Grey In New Spider-Man 4 Art After Major MCU X-Men Rumors
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Marvel's X-Men, X-Men, Sadie Sink
+
+Sun, 05 Apr 2026 21:08:36 GMT
+
+https://screenrant.com/spiderman-brand-new-day-sadie-sink-jean-grey-xmen-costume-mcu-art/
+
+Sadie Sink's reported Jean Grey gets her MCU super-suit in Spider-Man: Brand New Day art following massive new X-Men rumors for the reboot movie.
+---------
+
+# Netflix's 4-Hour Crime Thriller Series Is One Of Its Best
+
+Streaming TV, Adolescence, Netflix, Crime, Recommendation
+
+Sun, 05 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/netflix-adolescence-crime-thriller-series-binge-best/
+
+It may be one of the most uncomfortable viewing experiences on the platform, but this UK crime show on Netflix should be considered unmissable.
+---------
+
+# The Best Action Sequence From Every Decade Over The Last 100 Years
+
+Movies, Action, Recommendation
+
+Sun, 05 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/best-action-movie-sequence-each-decade-100-years/
+
+From the thrilling stunts of Buster Keaton all the way to the John Wick franchise, here are the greatest action sequences of the past century.
+---------
+
+# Pokémon Is Finally Returning To Johto For An Expanded New Adventure
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 05 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/pokemon-johto-expanded-new-fan-game-2026/
+
+There are many Pokémon games to choose from, both from the official and unofficial realms, but there's one you should keep your eye on.
+---------
+
+# Crunchyroll's The Warrior Princess and the Barbaric King Anime Is Already the Sleeper Hit of 2026
+
+Anime, Comedy, Romance, Fantasy
+
+Sun, 05 Apr 2026 21:30:23 GMT
+
+https://www.cbr.com/crunchyroll-dark-fantasy-sleeper-hit-warrior-princess-barbaric-king/
+
+When this series turns an "opposites attract" tale into the brutal tale of unity through a common goal, it quickly becomes a sleeper hit of 2026.
+---------
+
+# Euphoria Climbs HBO Streaming Charts Ahead of Season 3 Premiere
+
+TV, Euphoria, HBO Max, Drama
+
+Sun, 05 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/zendaya-euphoria-teen-drama-hbo-max-success-april-2026/
+
+The critically acclaimed HBO teen drama Euphoria is climbing streaming charts in anticipation of its long-awaited Season 3 premiere.
+---------
+
+# Dakota Johnson's Best Performance of All Time Is a Late-Night Sleeper Hit
+
+Movie News, Dakota Johnson, Daddio, Hulu, Sean Penn
+
+Sun, 05 Apr 2026 21:30:12 GMT
+
+https://collider.com/dakota-johnson-forgotten-best-performance-daddio-streaming-hulu-april-2026/
+
+Dakota Johnson's standout performance in the lesser-known drama, perfect for fans of Before Sunrise, will begin streaming on Hulu soon.
+---------
+
+# 10 Heaviest Albums of All Time, Ranked
+
+Music Features, Music, Lou Reed's Berlin, Bruce Springsteen, Nick Cave
+
+Sun, 05 Apr 2026 21:23:12 GMT
+
+https://collider.com/heaviest-albums-all-time-ranked/
+
+The heaviest albums of all time include classics like Joy Division's Closer alongside newer releases like Mount Eerie's A Crow Looked at Me.
+---------
+
+# 10 Greatest K-Dramas With the Most Plot Twists, Ranked
+
+TV, South Korea, The Penthouse: War In Life, Mouse, Signal
+
+Sun, 05 Apr 2026 21:22:12 GMT
+
+https://collider.com/best-k-dramas-most-plot-twists-ranked/
+
+Discover the most gripping K-dramas, packed with unexpected plot twists that keep viewers on the edge of their seats, from Signal to Flower of Evil.
+---------
+
+# Nicolas Cage’s Forgotten 5% RT Western Is on Borrowed Time on Netflix
+
+Movie News, Gunslingers, Nicolas Cage, Heather Graham, Stephen Dorff
+
+Sun, 05 Apr 2026 21:15:12 GMT
+
+https://collider.com/nicolas-cage-forgotten-western-gunslingers-leaving-streaming-netflix-may-2026/
+
+An already forgotten Western that Nicolas Cage starred in a year ago is about to leave Netflix. Find out how long you have left to watch it.
+---------
+
+# Netflix Is Removing Taylor Sheridan’s Oscar-Nominated Neo-Western This Summer
+
+Movie News, Hell or High Water, Taylor Sheridan, Chris Pine, Jeff Bridges
+
+Sun, 05 Apr 2026 21:00:13 GMT
+
+https://collider.com/netflix-removing-hell-or-high-water-taylor-sheridan-oscar-nominated-neo-western-may-2026/
+
+Time is running out to watch Taylor Sheridan's neo-Western Hell or High Water on Netflix. Find out how long you have left below.
+---------
+
+# The DCU Looks to Have David Corenswet's Superman Follow a Similar Pattern to Chris Evan's Captain America
+
+Features, DCU, James Gunn, Chris Evans
+
+Sun, 05 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/james-gunns-dcu-david-corenswet-chris-evans-replacement/
+
+Chris Evans appeared as Captain America over a consecutive nine-year period. Can James Gunn's DCU do the same with Superman?
+---------
+
+# Korean Action-Comedy Movies That Are to Die For
+
+Movie Lists, Action, Comedy
+
+Sun, 05 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/korean-best-action-comedy/
+
+South Korean action-comedy movies are an absolute gold mine of entertainment, with seemingly no end in sight. Here are the best of the best.
+---------
+
 # 10 Near-Perfect Dystopian Sci-Fi Movies That Nobody Remembers Today
 
 Classic Movies, Sci-Fi
