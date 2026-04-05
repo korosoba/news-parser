@@ -1,3 +1,190 @@
+# Spider-Man's Cancelled Movie Based On Popular Comic Series Was "Swinging For The Fences" As Marvel Film Nearly Started Filming
+
+Movies, Spider-Man, Sinister Six, Marvel Cinematic Universe
+
+Sun, 05 Apr 2026 17:46:33 GMT
+
+https://screenrant.com/spiderman-sinister-six-movie-filming-cancelled-drew-goddard/
+
+Drew Goddard's Spider-Man spinoff movie Sinister Six would have been one of the craziest Marvel movies of all time, as it was close to filming.
+---------
+
+# Joel Kinnaman’s 10 Best Movies & TV Shows, Ranked
+
+Streaming TV, Joel Kinnaman
+
+Sun, 05 Apr 2026 17:39:19 GMT
+
+https://screenrant.com/joel-kinnaman-best-movies-shows-ranked/
+
+Explore Joel Kinnaman's diverse acting career through his 10 best movie and TV performances, ranked by complexity and impact on his career.
+---------
+
+# Daredevil: Born Again Star Endorsed As Next James Bond By Kingpin Actor
+
+Movies, James Bond, Arty Froushan, Vincent D'Onofrio
+
+Sun, 05 Apr 2026 17:32:42 GMT
+
+https://screenrant.com/next-james-bond-arty-froushan-vincent-donofrio-support/
+
+As the search for the next James Bond continues, Kingpin actor Vincent D'Onofrio endorses a Daredevil: Born Again co-star for the coveted role.
+---------
+
+# Agents of S.H.I.E.L.D.: A Perfect Sci-Fi Thriller From Start to Finish
+
+Classic TV, Agents of S.H.I.E.L.D.
+
+Sun, 05 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/agents-of-shield-abc-sci-fi-series-perfect-start-to-finish/
+
+This sci-fi series deserves to be remembered as it was the first of its kind, and no show that has followed in its footsteps has had as long a run.
+---------
+
+# 10 GTA 6 Leaks Most Likely To Be True
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC
+
+Sun, 05 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/gta-6-leaks-most-likely-true-accurate-real/
+
+So many leaks and rumors continue to swirl around GTA 6, but it's possible to cut through the noise and figure out which ones have substance.
+---------
+
+# Horror Video-Game Adaptation Sequel Becomes Streaming Success In America After Divisive Reviews
+
+Movies, Five Nights at Freddy's, Five Nights at Freddy's 2
+
+Sun, 05 Apr 2026 17:20:45 GMT
+
+https://screenrant.com/five-nights-at-freddys-2-streaming-success-april-2026/
+
+You'd better stay awake to watch this horror video-game sequel as it arrives on Peacock and dominates the streaming platform despite poor reviews.
+---------
+
+# Star Wars’ Next Release Is Exactly What It Needs Before The Mandalorian & Grogu
+
+Movies, Star Wars: Maul - Shadow Lord, The Mandalorian and Grogu
+
+Sun, 05 Apr 2026 17:15:18 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-mandalorian-and-grogu-needs/
+
+Star Wars' upcoming streaming series doesn't overlap with The Mandalorian and Grogu, yet it's exactly what that movie (and Star Wars) really needs.
+---------
+
+# 10 Thriller Movies That Are Amazing From Start to Finish
+
+Movies, The Prestige, Rear Window, birth, celeb, health, parenting, hospital, childhood, new mom, ultrasound, Thriller
+
+Sun, 05 Apr 2026 17:15:18 GMT
+
+https://screenrant.com/thriller-movies-amazing-start-to-finish/
+
+These thrillers never lose momentum, delivering gripping tension, unforgettable twists, and masterful storytelling until the final frame.
+---------
+
+# Project Hail Mary Becomes Ryan Gosling's Third Movie Ever To Pass Huge Global Box Office Milestone
+
+Movies, Box Office Milestone, Project Hail Mary
+
+Sun, 05 Apr 2026 17:05:11 GMT
+
+https://screenrant.com/project-hail-mary-box-office-400-million-global-milestone/
+
+During its third weekend in theaters, Project Hail Mary hits a big global box office milestone, becoming the third Ryan Gosling movie to ever so so.
+---------
+
+# F1 Loses the No. 1 on Apple TV to a It's the Easter Beagle, Charlie Brown
+
+Movies, F1, The Muppet Show, Charlie Brown, It's the Easter Beagle, Charlie Brown, It's the Great Pumpkin, Charlie Brown, A Charlie Brown Christmas
+
+Sun, 05 Apr 2026 17:51:55 GMT
+
+https://www.cbr.com/f1-loses-top-apple-tv-spot-to-charlie-brown-easter-special/
+
+The top speed of Brad Pitt's F1 blockbuster isn't enough to win a race against this beloved Easter classic, as Charlie Brown can attest.
+---------
+
+# Steven Spielberg Says His Favorite Sci-Fi Movie Franchise of All Time Is Denis Villeneuve's Dune
+
+Movies, steven spielberg, Dune: Part Two, Dune: Part Three
+
+Sun, 05 Apr 2026 17:35:17 GMT
+
+https://www.cbr.com/steven-spielberg-favorite-sci-fi-movie-franchise-dune/
+
+Ahead of his own sci-fi film, Spielberg has nothing but praise for this iconic franchise.
+---------
+
+# The Last of Us Part 3 Has Fans Divided
+
+Games, The Last of Us, The Last of Us Part II
+
+Sun, 05 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/last-of-us-part-3-story-teaser-speculation/
+
+If The Last of Us Part III is on the way, what story is left to tell?
+---------
+
+# The 1977 No. 1 Hit Crowned the Most Iconic Disco Song of All Time
+
+Music Features, Music, Disco, Love to Love You, Donna Summer, Pop
+
+Sun, 05 Apr 2026 17:43:42 GMT
+
+https://collider.com/donna-summers-i-feel-love-1977-most-iconic-disco-song-of-all-time/
+
+Donna Summer’s 1977 No. 1 hit revolutionized disco, pioneered electronic dance music, and is widely considered the most iconic disco song of all time.
+---------
+
+# 10 Thriller Shows Where Every Episode Is a Masterpiece
+
+TV, Thriller, Breaking Bad, Dexter: Resurrection, Mindhunter
+
+Sun, 05 Apr 2026 17:33:12 GMT
+
+https://collider.com/thriller-shows-every-episode-masterpiece/
+
+AMC's Breaking Bad, HBO's The Night Of, and Netflix's Mindhunter are among the rare class of thriller shows where every episode is a masterpiece.
+---------
+
+# Only 3 Action Movies Are Better Than 'Die Hard'
+
+Movie, Action, Mad Max: Fury Road, Die Hard, Seven Samurai
+
+Sun, 05 Apr 2026 17:04:13 GMT
+
+https://collider.com/action-movies-better-than-die-hard/
+
+Die Hard is often considered both the originator and pinnacle of the modern action genre, but masterworks like Mad Max: Fury Road arguably surpass it.
+---------
+
+# 'Euphoria' Season 3: Sydney Sweeney's R-Rated Thriller Series Releases on April 12, and It's Already a Streaming Success
+
+TV News, Euphoria, HBO Max, Hot on Streaming, Sydney Sweeney
+
+Sun, 05 Apr 2026 17:31:18 GMT
+
+https://movieweb.com/sydney-sweeney-euphoria-streaming-success-hbo-april-2026/
+
+Before 'Euphoria' Season 3, fans are catching up on Sydney Sweeney and Zendaya's crazy R-rated thriller series.
+---------
+
+# 10 Great Fantasy Series With Deeper World-Building Than Any Movie
+
+TV Lists, Fantasy
+
+Sun, 05 Apr 2026 17:31:18 GMT
+
+https://movieweb.com/fantasy-series-deep-world-building/
+
+Forget 'Harry Potter'. These are worlds you can truly get lost in through many hours of viewing and detailed world-building.
+---------
+
 # 5 Most Broken D&D 5.5 Subclasses You Need To Play
 
 Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
