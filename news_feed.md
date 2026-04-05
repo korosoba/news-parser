@@ -1,3 +1,124 @@
+# 5 Most Broken D&D 5.5 Subclasses You Need To Play
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 05 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/dnd-strongest-subclasses-most-broken-must-play/
+
+There are some pretty neat subclass options in Dungeons and Dragons 5.5e, and even more to come, but these 5 options stand out among the rest.
+---------
+
+# Reacher's Official 2026 Return Is A Risk Prime Video Doesn't Need To Take
+
+Streaming TV, Reacher
+
+Sun, 05 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/reacher-2026-return-neagley-spinoff-risk-prime-video/
+
+Reacher is confirmed to return in 2026, but the show's season 4 release window represents a risky move that Prime Video doesn't need to take.
+---------
+
+# 6 Good Disney Animated Movies That Aren't Classics
+
+Classic Movies, Disney
+
+Sun, 05 Apr 2026 16:55:18 GMT
+
+https://screenrant.com/disney-movies-good-not-great/
+
+Disney has produced plenty of classic animated films over the years. However, these six movies might be good, but they aren't quite great.
+---------
+
+# 10 Best Episodes From The X-Files Season 1, Ranked
+
+Classic TV, The X-Files, Ranking
+
+Sun, 05 Apr 2026 16:41:18 GMT
+
+https://screenrant.com/xfiles-season-one-best-episodes-ranked/
+
+The debut season of The X-Files is stuffed with classic episodes, but these 10 gems are the best that season 1 has to offer.
+---------
+
+# The Handmaid's Tale Star "Wasn't Ready To Give Up" Divisive Character As They Return For Sequel
+
+TV, The Testaments, The Handmaid's Tale
+
+Sun, 05 Apr 2026 16:35:35 GMT
+
+https://screenrant.com/the-handmaids-tale-the-testaments-ann-dowd-aunt-lydia-return/
+
+The Testaments will be continuing the story that The Handmaid's Tale started, and this star is ready to return to an extremely divisve role.
+---------
+
+# Star Trek: First Contact - The Inspiring TNG Movie That Gives Hope For The Future
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: First Contact, Op-Ed
+
+Sun, 05 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/star-trek-first-contact-inspiring/
+
+Look beyond Picard vs. the Borg, and the true heart of Star Trek: First Contact is how the origin of Star Trek itself gives us hope for our future.
+---------
+
+# Mel Gibson’s $610M Epic Becomes Global Streaming Hit As 2027 Sequel Draws Closer
+
+Movies, The Passion of the Christ
+
+Sun, 05 Apr 2026 16:28:49 GMT
+
+https://screenrant.com/the-passion-of-the-christ-netflix-streaming-success-april-2026/
+
+After grossing $610 million worldwide, Mel Gibson's emotional epic becomes a global streaming smash, and a sequel is now fast approaching.
+---------
+
+# Prime Video Subscribers Are Complaining About User Experience Ahead of Major Plan Phaseout
+
+TV, Prime Video
+
+Sun, 05 Apr 2026 16:47:23 GMT
+
+https://www.cbr.com/prime-video-subscribers-user-experience-issue/
+
+Amazon's streaming platform is also undergoing changes and fans aren't on board
+---------
+
+# A Guy Ritchie Star's Forgotten Creature Feature Surges on Paramount+
+
+Movie News, Crawl, Guy Ritchie, Thriller, Paramount Plus
+
+Sun, 05 Apr 2026 17:00:12 GMT
+
+https://collider.com/kaya-scodelario-creature-feature-movie-crawl-streaming-success-paramount-plus-april-2026/
+
+A criminally underrated survival thriller starring Kayla Scoledario is a surprise hit on streaming. Find out how to watch Crawl here.
+---------
+
+# 2026's Two 'Reacher' Seasons Will Make or Break Prime's Action Franchise
+
+Features, Reacher
+
+Sun, 05 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/reacher-season-4-neagley-2026/
+
+'Reacher' Season 4, starring Alan Ritchson, and the spin-off 'Neagley' starring Maria Sten will likely both premiere in 2026.
+---------
+
+# 'SNL' Addresses Snape Casting in HBO's 'Harry Potter' Show
+
+TV News, Harry Potter, Saturday Night Live
+
+Sun, 05 Apr 2026 16:58:16 GMT
+
+https://movieweb.com/snl-snape-casting-hbo-harry-potter/
+
+Featured player Kam Patterson takes on the role of Severus Snape.
+---------
+
 # 10 Early Metal Albums Every Metal Fan Needs To Hear Start To Finish
 
 Music, Metal
