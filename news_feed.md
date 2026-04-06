@@ -1,3 +1,278 @@
+# Marvel Announces the Origin Of 4 New Heroes and Villains
+
+Comics, Marvel
+
+Mon, 06 Apr 2026 15:03:50 GMT
+
+https://screenrant.com/marvel-ultimate-impact-new-heroes-villains-origin-boxes/
+
+What we know about Marvel's 4 brand-new characters.
+---------
+
+# Square Enix Officially Confirms New Octopath Traveler RPG Arrives This Year
+
+Tabletop, Octopath Traveler, RPG, tabletop games
+
+Mon, 06 Apr 2026 15:03:05 GMT
+
+https://screenrant.com/octopath-traveler-2026-trpg-square-enix/
+
+Developer and publisher Square Enix has confirmed that a new Octopath Traveler RPG will be officially released later this year, and you can’t miss it.
+---------
+
+# Elden Ring Leak Reveals The Film’s Timeline & Setting
+
+Gaming, Elden Ring, PC
+
+Mon, 06 Apr 2026 15:01:51 GMT
+
+https://screenrant.com/elden-ring-movie-leak-timeline-setting-details/
+
+Recently leaked footage from the Elden Ring film set reveals some fascinating new details about the story's timeline and setting.
+---------
+
+# The Alien Movie Its Director Didn't Want You To See Is Now Officially Streaming On HBO Max
+
+Movies, Alien 3, Alien, HBO Max
+
+Mon, 06 Apr 2026 14:51:25 GMT
+
+https://screenrant.com/alien-3-assembly-cut-streaming-hbo-max-david-fincher/
+
+The Alien movie its director didn't want you to see is now officially streaming on HBO Max, marking an important milestone for the movie.
+---------
+
+# HBO's New Harry Potter Episode Is Officially A Top Streaming Hit 8 Months Before TV Series' Release
+
+Movies, Harry Potter
+
+Mon, 06 Apr 2026 14:51:17 GMT
+
+https://screenrant.com/harry-potter-hbo-max-finding-harry-special-episode-streaming-success-april-2026/
+
+A special episode of HBO's Harry Potter has been released months before the show, and it is already dominating streaming with many surprises.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Week (April 6-10)
+
+Classic Movies, Prime Video, Recommendation
+
+Mon, 06 Apr 2026 14:45:05 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-week-april-6/
+
+This week's Prime Video movie picks are some of the best on the platform, and are ideal for the thinking movie fan looking to expand their mind.
+---------
+
+# This Week Is Going To Be Great For Superhero Fans
+
+Streaming TV, The Boys, Invincible, Daredevil: Born Again, Superhero
+
+Mon, 06 Apr 2026 14:45:05 GMT
+
+https://screenrant.com/superhero-shows-april-2026-invincible-the-boys-daredevil/
+
+Superhero fans are in for a huge treat this week as several major properties collide, making for one of the most action-packed weeks for the genre.
+---------
+
+# Why Apple TV's #1 Show Is Taking Over The U.S. (Even Beating Shrinking)
+
+TV, Your Friends and Neighbors
+
+Mon, 06 Apr 2026 14:31:01 GMT
+
+https://screenrant.com/your-friends-and-neighbors-apple-tv-success-april-2026/
+
+Apple TV's latest hit series, a dark suburban dramedy starring Jon Hamm, has become its #1 show, surprising viewers with a blend of crime and satire.
+---------
+
+# 2026's Biggest New Anime Is Even Crazier Than We Thought
+
+Anime, Daemons of the Shadow Realm
+
+Mon, 06 Apr 2026 14:30:20 GMT
+
+https://screenrant.com/daemons-of-the-shadow-realm-series-premiere-twist/
+
+Daemons of the Shadow Realm already has a massive twist.
+---------
+
+# GTA 6 PC Release Date Leaves Gamers Increasingly Frustrated
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Mon, 06 Apr 2026 14:30:20 GMT
+
+https://screenrant.com/gta-6-pc-release-date-fan-reactions-speculation/
+
+Grand Theft Auto 6's delayed PC release isn't news at this point, but the lack of an official update doesn't sting any less closer to release.
+---------
+
+# Dark Winds Season 4's Prank Ending Was Almost Devestating
+
+TV, Dark Winds, AMC, Western
+
+Mon, 06 Apr 2026 15:09:29 GMT
+
+https://www.cbr.com/dark-winds-kiowa-gordon-season-4-prank-ending-jim-chee-death/
+
+Please, don't let Jim Chee go out like this.
+---------
+
+# Movies With Better Battles Than The Lord Of The Rings
+
+Movies, The Lord of the Rings
+
+Mon, 06 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/movies-better-battles-lord-of-the-rings/
+
+The Lord of the Rings films are known for their epic battle sequences, but fans can find more in movies like Avatar and Planet of the Apes.
+---------
+
+# 10 Classic Turn-Based RPGs Everyone Forgot About
+
+Games, RPG, JRPG
+
+Mon, 06 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/best-classic-turn-based-rpgs-forgotten-list/
+
+With hits like Clair Obscur: Expedition 33, these RPGs seem to have been forgotten.
+---------
+
+# Star Trek: TNG's Official Finale Is Picard Season 3
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: Picard
+
+Mon, 06 Apr 2026 14:50:15 GMT
+
+https://www.cbr.com/star-trek-tng-real-finale-picard-season-3/
+
+TNG's real finale gives the original crew the closure they deserve while setting up new characters to carry on the legacy.
+---------
+
+# Star Wars Maul - Shadow Lord Debuts with Perfect 100% Rotten Tomatoes Score
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Disney+
+
+Mon, 06 Apr 2026 14:30:05 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-rotten-tomatoes-score-reviews-disney/
+
+The highly anticipated Star Wars: Maul - Shadow Lord series premieres on Disney+ with a flawless 100% rating on Rotten Tomatoes.
+---------
+
+# New Sci-Fi Masterpiece Officially Overtakes Christopher Nolan's 'Interstellar' at the Box Office in Just 2 Weeks
+
+Movie News, Ryan Gosling, Project Hail Mary, Christopher Nolan, Interstellar
+
+Mon, 06 Apr 2026 14:27:45 GMT
+
+https://collider.com/project-hail-mary-overtakes-christopher-nolan-interstellar-global-box-office-217-million-2-weeks/
+
+Ryan Gosling's new sci-fi masterpiece has officially overtaken Christopher Nolan's Interstellar in just 2 weeks at the box office.
+---------
+
+# HBO's Harry Potter Series Drops Devastating News For Diehard Fans
+
+TV News, Harry Potter, HBO Max
+
+Mon, 06 Apr 2026 14:22:31 GMT
+
+https://collider.com/harry-potter-series-season-length-episode-count-confirmed-8-episodes/
+
+HBO's new Harry Potter series officially confirms Season 1's episode count in the new behind-the-scenes documentary series.
+---------
+
+# George R.R. Martin’s Western Crime Thriller Officially Begins Filming New Season
+
+TV News, Dark Winds, George R.R. Martin, Zahn McClarnon, Graham Roland
+
+Mon, 06 Apr 2026 14:22:17 GMT
+
+https://collider.com/dark-winds-season-5-first-images-filming-update/
+
+George R.R. Martin's western crime thriller, Dark Winds, officially begins filming Season 5 with a new first look.
+---------
+
+# New Dystopian Thriller Series Officially Proves Its Better Than 'The Handmaid's Tale' on Rotten Tomatoes
+
+TV News, The Testaments, Hulu, The Handmaid's Tale, Rotten Tomatoes
+
+Mon, 06 Apr 2026 14:20:51 GMT
+
+https://collider.com/the-testaments-higher-rotten-tomatoes-score-original-the-handmaids-tale/
+
+Hulu's new The Handmaid's Tale sequel series officially earns a Rotten Tomatoes score that's higher than the original.
+---------
+
+# Guy Ritchie’s Bingeworthy 2-Part Netflix Crime Thriller Gets Official Return Update
+
+TV News, The Gentlemen, Guy Ritchie, Theo James, Netflix
+
+Mon, 06 Apr 2026 14:18:17 GMT
+
+https://collider.com/guy-ritchie-2-part-the-gentlemen-series-update/
+
+Netflix's hit 2-part crime thriller, The Gentlemen, gets an official Season 2 update, as filming begins with Theo James.
+---------
+
+# How to Find a Movie You Can’t Remember the Name of
+
+Features, Netflix, Hulu, Prime Video
+
+Mon, 06 Apr 2026 15:01:16 GMT
+
+https://movieweb.com/how-to-find-a-movie-you-cant-remember-the-name-of-new/
+
+Rounding up tips and tricks on how to find a movie or television show when you just can't seem to remember the title.
+---------
+
+# A24's 'Elden Ring' Set Video Revealed Ahead of Production Start
+
+Movie News, Elden Ring
+
+Mon, 06 Apr 2026 14:46:30 GMT
+
+https://movieweb.com/a24-elden-ring-set-video/
+
+A24's blockbuster action fantasy adaptation 'Elden Ring' has recreated the Church of Marika as a practical set in a new video taken from the set.
+---------
+
+# Hulu's Perfect 'Jurassic Park' Replacement Is the Best Dinosaur Movie in Years
+
+Movie News, Primitive War, Hot on Streaming, Jurassic Park, Action
+
+Mon, 06 Apr 2026 14:25:48 GMT
+
+https://movieweb.com/primitive-war-action-thriller-streaming-success-hulu-april-2026/
+
+After just two days, 'Primitive War' is already a streaming sensation on Hulu, and a sequel is on the way.
+---------
+
+# 'The Legend of Zelda' Movie Begins Filming in Iconic 'Lord of the Rings' Location
+
+Movie News, The Legend of Zelda, The Lord of the Rings
+
+Mon, 06 Apr 2026 14:18:20 GMT
+
+https://movieweb.com/legend-of-zelda-movie-filming-lord-of-the-rings-location/
+
+The live-action 'Legend of Zelda' movie is currently filming in the Glenorchy region, which is a key location from 'The Lord of the Rings' trilogy.
+---------
+
+# Netflix Loses Italian Court Battle Over Price Hikes, Refunds Ordered
+
+TV News, Netflix
+
+Mon, 06 Apr 2026 14:07:56 GMT
+
+https://movieweb.com/netflix-italy-court-battle-price-hike/
+
+The decision lands as Netflix continues to push higher prices and stricter account-sharing rules across major markets.
+---------
+
 # PlayStation Drops 6 New Free Downloads, No PS Plus Needed
 
 Gaming, PlayStation (Original)
