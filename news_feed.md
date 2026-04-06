@@ -1,3 +1,256 @@
+# Severance Season 2 Review: Apple's Sci-Fi Thriller Excels Where Westworld Failed
+
+Streaming TV, Severance, Westworld
+
+Mon, 06 Apr 2026 21:31:20 GMT
+
+https://screenrant.com/apple-tv-severance-avoids-hbo-westworld-problem/
+
+Severance is a chilling, twisty sci-fi mystery just like Westworld, but unlike Westworld, it didn't fall off after its brilliant first season.
+---------
+
+# Did Robert Downey Jr. Just Confirm Doctor Strange & Spider-Man For Avengers: Doomsday?
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 06 Apr 2026 21:00:18 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-strange-spider-man-roles-rdj-tease/
+
+Robert Downey Jr. has seemingly confirmed two more Marvel heroes for Avengers: Doomsday through a playful social media post and literal Easter eggs.
+---------
+
+# Resident Evil Fans Debunk New RE9 DLC Tease
+
+Gaming, Resident Evil, Triple-A Games, Resident Evil 9
+
+Mon, 06 Apr 2026 21:00:18 GMT
+
+https://screenrant.com/resident-evil-requiem-ada-wong-dlc-tease/
+
+A hot-off-the-presses Resident Evil 'tease' seems to be nothing more than playful banter, putting this legacy character's reprisal in jeopardy.
+---------
+
+# The Diamond Heist: Guy Ritchie's True-Crime Docuseries On Netflix
+
+Classic TV, The Diamond Heist
+
+Mon, 06 Apr 2026 21:00:18 GMT
+
+https://screenrant.com/guy-richie-the-diamond-heist-netflix-true-crime-doc-best/
+
+Guy Ritchie is best-known for telling some of Britain's best heist stories onscreen, and this 3-part Netflix thriller is another to add to the list.
+---------
+
+# Steven Spielberg Reveals 2020s Sci-Fi Franchise That Is One Of His All Time Favorites
+
+Movies, Steven Spielberg, Dune
+
+Mon, 06 Apr 2026 20:56:52 GMT
+
+https://screenrant.com/steven-spielberg-favorite-sci-fi-movies-dune/
+
+Steven Spielberg, the acclaimed director of films like Close Encounters of the Third Kind, E.T., and Jurassic Park, praises a major sci-fi franchise.
+---------
+
+# Netflix's Stranger Things Officially Returns In Two Weeks & There Are 17 Episodes To Catch Up
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Mon, 06 Apr 2026 20:54:33 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-netflix-series-seasons-must-watch/
+
+Stranger Things is coming back with a new chapter on Netflix, and fans of the sci-fi series have a short time to catch up on 17 crucial episodes.
+---------
+
+# How Bobby Flay & Brooke Williamson's Relationship Will Change Food Network's BBQ Brawl (SPOILERS)
+
+Reality TV, BBQ Brawl: Flay V. Symon
+
+Mon, 06 Apr 2026 20:35:33 GMT
+
+https://screenrant.com/food-network-bbq-brawl-bobby-flay-brooke-williamson-relationship-change-show-spoilers/
+
+Beloved Food Network chefs Bobby Flay and Brooke Williamson are dating, and their relationship is causing a big change for BBQ Brawl season 7.
+---------
+
+# Ridley Scott's Black Rain Is the Grittiest '80s Thriller of All Time
+
+Movies, Black Rain
+
+Mon, 06 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/ridley-scott-black-rain-grittiest-80s-thriller/
+
+Ridley Scott is most known for films like Alien and Gladiator, but he has a knack for directing crime thriller masterpieces as well.
+---------
+
+# Amazon Offers 12 Free Games to Prime Members for April 2026
+
+Games, Amazon Games, amazon
+
+Mon, 06 Apr 2026 21:28:11 GMT
+
+https://www.cbr.com/amazon-12-free-games-prime-members-april-2026/
+
+April brings a dozen new games for Prime members to claim free of charge.
+---------
+
+# In 1996, Nintendo Had One of the Biggest Years in Gaming History
+
+Games, Nintendo, Nintendo 64
+
+Mon, 06 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/biggest-year-gaming-history-nintendo-1996/
+
+Between Pokémon, the N64, and a surprisingly influential year for the Super Nintendo, 1996 was massive for Nintendo.
+---------
+
+# NBC's Hit Police Procedural Celebrates Major Peacock Streaming Record
+
+TV, Law & Order: Special Victims Unit, Peacock
+
+Mon, 06 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/nbc-police-procedural-law-order-svu-peacock-streaming-record-april-2026/
+
+With 27 seasons and counting, this NBC police procedural just broke an impressive record on Peacock.
+---------
+
+# Stephen Colbert Spoiled The Lord of the Rings' New Movie 2 Years Ago
+
+Movies, The Lord of the Rings, The Lord of the Rings: Shadow of the Past, The Lord of the Rings: The Fellowship of the Ring
+
+Mon, 06 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/stephen-colbert-spoiled-lord-of-the-rings-shadows-of-the-past/
+
+A clip of The Late Show from 2024 secretly revealed much about Stephen Colbert's upcoming film The Lord of the Rings: Shadows of the Past.
+---------
+
+# Prime Video's The Boys Debuts With Near-Perfect Rotten Tomatoes Score
+
+TV, The Boys, Rotten Tomatoes
+
+Mon, 06 Apr 2026 20:38:44 GMT
+
+https://www.cbr.com/prime-video-the-boys-season-5-rotten-tomatoes-score/
+
+The hit Prime Video series will return for its final season and it's shaping up to be an extremely good one.
+---------
+
+# 10 Forgotten Movie Masterpieces That Are Still Perfect Today
+
+Movie, A Simple Plan, Master and Commander: The Far Side of the World, 20th Century Women, Pauline at the Beach
+
+Mon, 06 Apr 2026 21:31:13 GMT
+
+https://collider.com/forgotten-movie-masterpieces-still-perfect/
+
+Movies like A Simple Plan, Flesh and Blood, and 20th Century Women are genuine masterpieces, but have become unfairly forgotten by modern audiences.
+---------
+
+# All 3 Remakes That Won the Best Picture Oscar, Ranked
+
+Movie, The Departed, CODA, Ben-Hur, Academy Awards
+
+Mon, 06 Apr 2026 21:08:13 GMT
+
+https://collider.com/remakes-best-picture-winners-oscars-ranked/
+
+Three remakes have won the Academy Award for Best Picture: Ben-Hur, The Departed, and CODA... but which of them stands as the greatest overall?
+---------
+
+# Joe Pesci Refused To Be in This 10/10 Crime Thriller Masterpiece Until Martin Scorsese Added in Its Best Scene
+
+Movie Features, Goodfellas, Joe Pesci, Martin Scorsese, Ray Liotta
+
+Mon, 06 Apr 2026 21:06:12 GMT
+
+https://collider.com/goodfellas-funny-how-scene-joe-pesci-explained/
+
+Joe Pesci nearly skipped Goodfellas until Martin Scorsese added in the crime thriller's most iconic and quotable scene.
+---------
+
+# The GOAT of Westerns Is Now Available to Stream for Free
+
+Movie News, The Good, the Bad and the Ugly, Clint Eastwood, Sergio Leone, Western
+
+Mon, 06 Apr 2026 21:02:31 GMT
+
+https://collider.com/clint-eastwood-best-western-good-the-bad-and-the-ugly-streaming-free-pluto-april-2026/
+
+Clint Eastwood's Western classic, The Good, The Bad, and The Ugly, is now available to watch for free. Here's where you can stream it.
+---------
+
+# 10 Fantasy Movies That Are Perfectly Written
+
+Movie, Fantasy, The Lord of the Rings: The Fellowship of the Ring, Spirited Away, The Wizard of Oz
+
+Mon, 06 Apr 2026 20:49:12 GMT
+
+https://collider.com/fantasy-movies-perfectly-written/
+
+Perfectly written fantasy movies like Stardust and The Fellowship of the Ring master story, structure, and emotion.
+---------
+
+# This Emmy-Nominated Stephen King-Inspired Series Is Now on Netflix
+
+TV, Netflix, Castle Rock, His & Hers, Happy's Place
+
+Mon, 06 Apr 2026 20:47:13 GMT
+
+https://collider.com/best-netflix-shows-watch-week-april-6/
+
+Castle Rock, His & Hers, and Happy's Place make up our list of the best Netflix shows to watch the week of April 6, 2026.
+---------
+
+# Netflix Ordered to Refund Subscribers After Price Hike Ruling
+
+TV News, Netflix, Streaming
+
+Mon, 06 Apr 2026 20:43:35 GMT
+
+https://collider.com/netflix-italy-court-battle-price-hike-refunds/
+
+Netflix officially loses court battle in a key market as the streamer is ordered to refund customers for unjust price hikes.
+---------
+
+# Madonna's Best Pop Song of All Time Was Also 1984's Most Controversial Hit
+
+Music Features, Madonna, Music, Pop, Billboard Hot 100
+
+Mon, 06 Apr 2026 20:39:57 GMT
+
+https://collider.com/madonna-1984-like-a-virgin-best-pop-song-of-all-time/
+
+Madonna turned a provocative pop hit into something deeper, exploring vulnerability, emotional healing, and the feeling of starting over again.
+---------
+
+# 'Harry Potter': New Character Teases Gross HBO Debut
+
+Features, Harry Potter
+
+Mon, 06 Apr 2026 21:01:17 GMT
+
+https://movieweb.com/harry-potter-disgusting-character-hbo/
+
+HBO's 'Harry Potter' is set to introduce fans to Dugbogs, Flobberworms, and more unsavory creatures.
+---------
+
+# Tatiana Maslany Stars in Teaser for Apple TV Thriller 'Maximum Pleasure Guaranteed'
+
+TV News, Maximum Pleasure Guaranteed, Tatiana Maslany, Jake Johnson, Apple TV
+
+Mon, 06 Apr 2026 20:57:33 GMT
+
+https://movieweb.com/maximum-pleasure-guaranteed-thriller-teaser/
+
+Jake Johnson joins the 'She-Hulk' star in the streamer's new dark comedy.
+---------
+
 # HBO's The Penguin: A Stellar Cast Powers This Gotham Crime Drama
 
 Streaming TV, The Penguin
