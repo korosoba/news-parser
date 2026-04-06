@@ -1,3 +1,223 @@
+# Adventure Time’s Princess Bubblegum Officially Returns With New Spinoff
+
+Comics, Adventure Time
+
+Mon, 06 Apr 2026 18:04:49 GMT
+
+https://screenrant.com/adventure-time-princess-bubblegum-marceline-new-pride-month-spinoff/
+
+Adventure Time’s Princess Bubblegum and Marceline are officially returning this summer in a brand-new spinoff.
+---------
+
+# Red Dead Redemption 2 Next-Gen Graphics Overhaul "Looks Like GTA 6"
+
+Gaming, Red Dead Redemption 2, Triple-A Games
+
+Mon, 06 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-next-gen-graphics-mod-gta-6/
+
+Red Dead Redemption 2 already looked fantastic, but now with next-gen graphics in tow, it looks like an absolute monster of a game.
+---------
+
+# Dune 3's Record-Setting Runtime Officially Revealed
+
+Movies, Dune: Part Three, Dune
+
+Mon, 06 Apr 2026 17:44:27 GMT
+
+https://screenrant.com/dune-3-runtime-confirmed/
+
+The runtime for Dune: Part Three has finally been revealed as IMAX tickets go on sale, and its length sets a record for Denis Villeneuve's trilogy.
+---------
+
+# Netflix's 5-Part Jurassic Park Series With Glen Powell Is One Of Its Best
+
+TV, Netflix, Jurassic World: Camp Cretaceous, Jurassic Park
+
+Mon, 06 Apr 2026 17:20:19 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-netflix-series-best/
+
+Glen Powell's Jurassic Park series on Netflix is so good that it easily emerges as one of the best TV shows the streaming service has to offer.
+---------
+
+# Margot Robbie's Romantic Drama Becomes a Global Hit After Flopping
+
+Movies, A Big Bold Beautiful Journey, Romance, Margot Robbie
+
+Mon, 06 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/margot-robbie-big-bold-beautiful-journey-streaming-success-april-2026/
+
+Margot Robbie's strange romantic drama may not have succeeded in theaters, but it's finally finding its audience on streaming.
+---------
+
+# Ready Player One Returns With An Unexpected Twist That Fans Didn't See Coming
+
+Comics, Ready Player One
+
+Mon, 06 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/ready-player-one-graphic-novel-confirmed/
+
+Ready Player One is gearing up for an epic comeback - and original author Ernest Cline already has high praise for the project.
+---------
+
+# The New Seven Deadly Sins: Origin Game Is Already #1 on the Charts
+
+Anime, The Seven Deadly Sins, Netflix, open world
+
+Mon, 06 Apr 2026 17:45:43 GMT
+
+https://www.cbr.com/seven-deadly-sins-origin-open-world-game-review/
+
+A brand-new free-to-play open world anime action game is on track to topple Genshin Impact with its #1 debut on the charts.
+---------
+
+# Every Episode of Your Friendly Neighborhood Spider-Man Season 1, Ranked
+
+TV, Your Friendly Neighborhood Spider-Man, Marvel Cinematic Universe, Animation
+
+Mon, 06 Apr 2026 17:45:12 GMT
+
+https://www.cbr.com/your-friendly-neighborhood-spiderman-season-1-episodes-ranked-list/
+
+The first season of Your Friendly Neighborhood Spider-Man was a tremendous success and featured some truly stellar episodes
+---------
+
+# Netflix's Beef Season 1 Is a Perfect Binge Before Season 2
+
+TV, Beef, Netflix
+
+Mon, 06 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/netflix-beef-season-1perfect-binge-before-season-2/
+
+Lee Sung Jin's Beef returns to Netflix with its second season very soon, so now is the perfect time to rewatch its critically acclaimed first outing.
+---------
+
+# Colleen Clinkenbeard Reveals How Luffy's Voice Was Perfected
+
+CBR Exclusives, One Piece
+
+Mon, 06 Apr 2026 17:27:14 GMT
+
+https://www.cbr.com/colleen-clinkenbeard-luffy-voice-explained/
+
+The defining element that cemented this anime’s iconic status was the unforgettable signature sound of its central protagonist.
+---------
+
+# Legendary Shonen Jump Series Ends After 27 Years
+
+Anime, The Prince of Tennis, weekly shonen jump, Prince of Tennis
+
+Mon, 06 Apr 2026 17:19:12 GMT
+
+https://www.cbr.com/weekly-shonen-jump-prince-of-tennis-end/
+
+After 27 years and 850 chapters, a legendary Weekly Shonen Jump series is finally set to end this July.
+---------
+
+# 10 Near-Perfect PS1 Games That Dropped the Ball With Their Endings
+
+Games, PlayStation (Original), retro games
+
+Mon, 06 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/greatest-ps1-games-with-bad-endings-list/
+
+Some PS1 games, like Final Fantasy 7, are almost perfect until their endings arrive.
+---------
+
+# This Criminally Forgotten 3-Part Dark Comedy Is Finally Getting a Second Life on Netflix
+
+TV Features, Black Monday, Don Cheadle, Netflix, Regina Hall
+
+Mon, 06 Apr 2026 17:48:12 GMT
+
+https://collider.com/dark-comedy-series-black-monday-on-netflix-april-13/
+
+The 3-part dark comedy series Black Monday, starring Don Cheadle and Regina Hall, is coming to Netflix on April 13.
+---------
+
+# Why ‘Malcolm in the Middle’ Is Only Four Episodes (And Why It Almost Stayed Dead) [Exclusive]
+
+Exclusives, Hulu, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle, Bryan Cranston
+
+Mon, 06 Apr 2026 17:30:10 GMT
+
+https://collider.com/new-malcolm-in-the-middle-hulu-lifes-still-unfair-will-season-2-happen-creator-linwood-boomer/
+
+Creator Linwood Boomer and Tracy Katsky discuss bringing back one of the 2000s' most iconic series, if we'll get more and Bryan Cranston's major role.
+---------
+
+# This 2026 Horror Fantasy Is a Cult Classic Movie in the Making
+
+Movie Features, Forbidden Fruits, Lili Reinhart, Lola Tung, Victoria Pedretti
+
+Mon, 06 Apr 2026 17:14:12 GMT
+
+https://collider.com/forbidden-fruits-instant-cult-classic/
+
+Meredith Alloway's Forbidden Fruits joins the horror genre as an instant cult classic through its unique aesthetic.
+---------
+
+# Every 'Toy Story' Movie, Ranked From Worst to Best
+
+Movie, Toy Story, Toy Story 2, Toy Story 3, Toy Story 5
+
+Mon, 06 Apr 2026 17:13:12 GMT
+
+https://collider.com/toy-story-movies-ranked-best/
+
+The Toy Story series is among the most acclaimed in Disney, with each movie pretty much revolutionizing the way we look at computer animation.
+---------
+
+# Tom Hanks' Iconic 'Saving Private Ryan' Quote Is Even Better Today
+
+Features, War
+
+Mon, 06 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/saving-private-ryan-epic-quote/
+
+In Steven Spielberg's 'Saving Private Ryan,' Tom Hanks' character. Captain Miller gives one of the most thought-provoking quotes.
+---------
+
+# Gun Violence Organizations Criticize 'The Drama's "Misaligned" Marketing Campaign
+
+Movie News, The Drama, A24, Robert Pattinson, Zendaya Coleman
+
+Mon, 06 Apr 2026 17:45:33 GMT
+
+https://movieweb.com/the-drama-gun-violence-backlash-statement/
+
+March for Our Lives released a statement about the film seemingly making light of real-world tragedies.
+---------
+
+# 'Marvel Zombies' Season 2 in the Works, Confirms Marvel TV Head
+
+TV News, Marvel Zombies
+
+Mon, 06 Apr 2026 17:29:15 GMT
+
+https://movieweb.com/marvel-zombies-season-2-confirmed/
+
+Animation on 'Marvel Zombies' Season 2 has already begun, hinting at a possible Halloween 2027 release window.
+---------
+
+# Andy Serkis Offers Promising Update on 'The Adventures of Tintin' Sequel
+
+Movie News, The Adventures of Tintin, Andy Serkis, Steven Spielberg
+
+Mon, 06 Apr 2026 17:15:08 GMT
+
+https://movieweb.com/the-adventures-of-tintin-2-sequel-update/
+
+Andy Serkis has confirmed Peter Jackson still wants to make 'The Adventures of Tintin 2,' reigniting hope for the long-awaited sequel.
+---------
+
 # GTA 6’s Latest Trailer Officially Confirms Major Visual Upgrade
 
 Gaming, Grand Theft Auto 6, Rockstar Games
