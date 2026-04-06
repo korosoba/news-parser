@@ -1,3 +1,355 @@
+# Nintendo's Super Mario Galaxy Sets Up Something Much Bigger Than A Smash Bros. Movie
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Mon, 06 Apr 2026 01:46:19 GMT
+
+https://screenrant.com/nintendo-super-mario-galaxy-movie-plans-future/
+
+Nintendo surprised the world with a larger universe of Nintendo characters in the Super Mario Galaxy Movie, and their plans are finally coming clear.
+---------
+
+# Invincible's Highest-Rated Episodes Prove The Show Just Lost Its Best Cheat Code
+
+Streaming TV, Invincible
+
+Mon, 06 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/invincible-highest-rated-episodes-conquest-lost-cheat-code/
+
+Invincible has a key cheat code to high episode ratings, but after some big twists and battles, Prime Video’s superhero show may just have lost it.
+---------
+
+# Chainsaw Man's Creator Revealed His Next Manga, And It's Even Darker Than Anyone Expected
+
+Anime, Chainsaw Man
+
+Mon, 06 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/chainsaw-man-tatsuki-fujimoto-next-manga-dark/
+
+Tatsuki Fujimoto, known for Chainsaw Man, hinted at a dark romantic comedy as his highly-anticipated next manga. Fans await his next twisted story.
+---------
+
+# Pierce Brosnan's The Son: An Ambitious Western Drama With Taylor Sheridan's TV DNA
+
+Classic TV, The Son
+
+Mon, 06 Apr 2026 01:26:18 GMT
+
+https://screenrant.com/the-son-pierce-brosnan-taylor-sheridan-western-shows/
+
+Pierce Brosnan's underrated 20-episode Western drama, The Son, shares thematic parallels with Taylor Sheridan's popular Western TV shows.
+---------
+
+# HBO’s 7-Part Crime Thriller With A Near-Perfect RT Score Is Built For A Weekend Binge
+
+Streaming TV, HBO, Task
+
+Mon, 06 Apr 2026 01:08:19 GMT
+
+https://screenrant.com/hbo-task-series-weekend-binge-watch/
+
+HBO's critically acclaimed 7-part crime thriller Task boasts a near-perfect 96% Rotten Tomatoes score and is built for an immersive weekend binge.
+---------
+
+# Kagurabachi Reveals Its Biggest Villains, And They're Truly S-Tier
+
+Anime, Kagurabachi, Shonen Jump
+
+Mon, 06 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/kagurabachi-action-fantasy-chapter-117-shohoku-reveal/
+
+The Shokoku are finally here.
+---------
+
+# The Best Original Series On Each Major Streaming Service
+
+Streaming TV
+
+Mon, 06 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/best-original-series-every-major-streaming-service/
+
+From exciting neo-Westerns to historical romances that rewrote the rules of the genre, every major streaming service is home to an excellent TV show
+---------
+
+# Elden Ring Deleted Scene Is The Perfect Sequel Setup
+
+Gaming, Elden Ring, Triple-A Games, PC
+
+Mon, 06 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/elden-ring-2-miquella-cutscene-holy-trees/
+
+Prototypical vistas of Elden Ring include a massive, looming tree, and a deleted cutscene shows how this iconography can create a compelling sequel.
+---------
+
+# 6 Great '70s & '80s Kung Fu Comedies That Don't Star Jackie Chan
+
+Movies, Recommendation
+
+Mon, 06 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/old-school-kung-fu-comedy-movies-without-jackie-chan/
+
+Jackie Chan may have been the best at mixing kung fu and comedy in the 1970s and 1980s, but he wasn't the only one who could make this formula work.
+---------
+
+# Top 10 Crime Dramas Of The 2010s
+
+Classic TV, Breaking Bad, The Americans, Bosch
+
+Mon, 06 Apr 2026 00:45:18 GMT
+
+https://screenrant.com/best-crime-tv-shows-2010s/
+
+The ten absolute best crime dramas from the 2010s, featuring top shows like Broadchurch, Fargo, & Breaking Bad that defined the decade in television.
+---------
+
+# Mike Flanagan's Carrie Will Be Prime Video's Next Horror Masterpiece
+
+TV, Carrie, Mike Flanagan, Horror, Stephen King
+
+Mon, 06 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/mike-flanagan-stephen-king-carrie-show-masterpiece/
+
+Mike Flanagan is working on another Stephen King project, and it already looks like another horror success.
+---------
+
+# Schitt's Creek Star Addresses Making a Sequel Without Catherine O'Hara
+
+TV, Schitt's Creek
+
+Mon, 06 Apr 2026 01:17:24 GMT
+
+https://www.cbr.com/schitts-creek-no-sequel-catherine-o-hara/
+
+Catherine O'Hara, who died in January at the age of 71, was a major part of what made Schitt's Creek a success.
+---------
+
+# Star Wars Is Officially Getting an Open World RPG
+
+Games, Star Wars, Starfield
+
+Mon, 06 Apr 2026 01:10:12 GMT
+
+https://www.cbr.com/star-wars-official-new-open-world-rpg/
+
+An open world Star Wars game comparable to Grand Theft Auto V and Red Dead Redemption 2 is officially on the way.
+---------
+
+# After 29 Years, One Piece Reveals Its Final Villain’s True Form (& Fatal Flaw)
+
+Anime, One Piece
+
+Mon, 06 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/one-piece-chapter-1179-review/
+
+Nerona Imu has finally made their debut, and it's even more dramatic than One Piece fans expected.
+---------
+
+# 10 Anime Series That Are Much Better On a Rewatch
+
+Anime
+
+Mon, 06 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/best-anime-shows-better-after-first-watch-list/
+
+Anime like Attack on Titan is even better the second time around.
+---------
+
+# 10 Classic Sci-Fi Shows That Are Problematic in 2026
+
+TV, Science Fiction, Star Trek: The Original Series, Doctor Who
+
+Mon, 06 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/classic-sci-fi-shows-didnt-age-well/
+
+Some classic sci-fi TV shows are timeless but others have begun showing their age with outdated views and controversial depictions.
+---------
+
+# 10 Worst Writing Decisions in Naruto, Ranked
+
+Anime, Naruto
+
+Mon, 06 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/worst-naruto-story-mistakes-ranked/
+
+Naruto might be a legendary shonen anime, but it has its fair share of disastrous writing mistakes.
+---------
+
+# Prime Video's Gen V Season 3 Gets Disheartening Update
+
+TV, Gen V, The Boys
+
+Mon, 06 Apr 2026 00:41:15 GMT
+
+https://www.cbr.com/gen-v-season-3-update-jaz-sinclair/
+
+The future of Gen V gets a disappointing update just ahead of The Boys' final season.
+---------
+
+# Star Trek's Best Spock Episode Created a 60-Year-Old Gene Roddenberry Sci-Fi Rule
+
+TV, Star Trek, Star Trek: The Original Series, Spock, Sci-Fi
+
+Mon, 06 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/star-trek-best-spock-episode-the-menagerie-inspired-courtroom-scenes/
+
+Star Trek: The Original Series laid the foundation for every Star Trek that came after it, but this Spock episode was more influential than most.
+---------
+
+# 50 Years Later, One Scene Makes Assault on Precinct 13 John Carpenter's Most Controversial Movie Ever
+
+Movies, Assault on Precinct 13, John Carpenter, Action
+
+Mon, 06 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/john-carpenters-assault-on-precinct-13-most-controversial-movie-ever/
+
+This 1976 action thriller masterpiece features one of the most shocking scenes in Hollywood history, and it's still controversial today.
+---------
+
+# 7 Forgotten Mystery Shows That Have Aged Like Fine Wine
+
+TV, Mystery, Monk, The Killing, Pushing Daisies
+
+Mon, 06 Apr 2026 01:21:12 GMT
+
+https://collider.com/forgotten-mystery-shows-aged-like-fine-wine/
+
+Time has been extremely kind to forgotten mystery shows like AMC's The Killing and USA Network's Monk, with their reputation improving with age.
+---------
+
+# 2 Years Later, ‘Tulsa King’ Star’s Action Thriller Is a Sleeper Streaming Hit
+
+Movie News, Tulsa King, Long Gone Heroes, Paramount Plus, Frank Grillo
+
+Mon, 06 Apr 2026 01:00:13 GMT
+
+https://collider.com/tulsa-king-frank-grillo-action-thriller-long-gone-heroes-streaming-success-april-2026-paramount-plus/
+
+Tulsa King and Peacemaker star Frank Grillo's Commando-like replacement, Long Gone Heroes, is an unlikely streaming success.
+---------
+
+# 'Marshals' Digs Deeper Into Taylor Sheridan's Past by Channelling 'Sons of Anarchy' in the Latest Episode | Review
+
+TV Reviews, Marshals, Luke Grimes, Sons of Anarchy, Taylor Sheridan
+
+Mon, 06 Apr 2026 01:00:13 GMT
+
+https://collider.com/marshals-episode-6-recap-review-sons-of-anarchy-taylor-sheridan/
+
+The Marshals team continues their search for missing Native girls in the latest episode, drawing parallels to Sons of Anarchy.
+---------
+
+# HBO Max Can’t Contain Dwayne Johnson’s $962 Million Fantasy Action Juggernaut
+
+Movie News, Dwayne Johnson, Jumanji: Welcome to the Jungle, HBO Max, streaming
+
+Mon, 06 Apr 2026 00:45:12 GMT
+
+https://collider.com/dwayne-johnson-fantasy-adventure-jumanji-welcome-to-the-jungle-streaming-success-hbo-max-april-2026/
+
+Dwayne Johnson's blockbuster action sequel, Jumanji: Welcome to the Jungle, is a global streaming smash on HBO Max. Find out more here.
+---------
+
+# 10 Ruthless Thriller Movies That No One Remembers Today
+
+Movie, The Chaser, Wind River, Zodiac, Thriller
+
+Mon, 06 Apr 2026 00:41:13 GMT
+
+https://collider.com/forgotten-thriller-movies/
+
+Prisoners, Michael Clayton, A Simple Plan, Wind River, Zodiac, and more make up our list of thriller movies that no one remembers today.
+---------
+
+# 'Harry Potter’s New Dumbledore Defends J.K. Rowling From Critics
+
+TV News, John Lithgow, Harry Potter, J.K. Rowling, HBO Max
+
+Mon, 06 Apr 2026 00:30:13 GMT
+
+https://collider.com/harry-potter-new-dumbledore-john-lithgow-defends-jk-rowling-critics-comments/
+
+John Lithgow is opening up again about J.K. Rowling as HBO’s new Harry Potter series heads toward its Christmas debut. Read on for details.
+---------
+
+# One of the Best Free Streamers Just Added Almost 200 Horror Movies and Shows
+
+Movie News, Pluto TV, Friday the 13th, Paranormal Activity, Scream
+
+Mon, 06 Apr 2026 00:16:12 GMT
+
+https://collider.com/april-ghouls-day-horror-movie-collection-streaming-free-pluto-tv-april-2026/
+
+Pluto TV is celebrating halfway to Halloween with a massive new free slate of horror movies and series with its April Ghouls collection.
+---------
+
+# 7 Upcoming Horror Shows You Cannot Miss
+
+TV, Horror, The Texas Chainsaw Massacre, The Conjuring, Hostel
+
+Mon, 06 Apr 2026 00:02:13 GMT
+
+https://collider.com/upcoming-horror-shows-2026/
+
+Discover the most anticipated horror shows of 2026, featuring unique stories and fresh takes on classic franchises, from Carrie to Crystal Lake.
+---------
+
+# Tom Hardy’s $856 Million Sci-Fi Juggernaut Is Taking Over Streaming Again
+
+Movie News, Venom, Tom Hardy, HBO Max, Ruben Fleischer
+
+Mon, 06 Apr 2026 00:00:13 GMT
+
+https://collider.com/tom-hardy-sci-fi-blockbuster-venom-streaming-success-hbo-max-april-2026/
+
+Tom Hardy's first turn as the blockbuster Spider-Man anti-hero Venom has soared back up the streaming charts. Here's what we know.
+---------
+
+# Apple TV's 'Saving Private Ryan' Replacement Is Taking Over U.S. Streaming Charts
+
+Movie News, Apple TV, Greyhound, Tom Hanks, World War II
+
+Sun, 05 Apr 2026 23:46:12 GMT
+
+https://collider.com/tom-hanks-ww2-movie-apple-tv-greyhound-saving-private-ryan-replacement-streaming-success-april-2026/
+
+Saving Private Ryan fans have been flocking to watch Apple TV's perfect replacement, Tom Hanks' Greyhound, which is getting a sequel soon.
+---------
+
+# DCU Justice Society Team-up Theory Avoids the Justice League 5 Years After Zack Snyder's Take
+
+Features, DCU, Lanterns, Superman, Zack Snyder
+
+Mon, 06 Apr 2026 01:30:18 GMT
+
+https://movieweb.com/dcu-justice-society-theory-james-gunn-zack-snyder/
+
+Although Zack Snyder previously sped towards the formation of the Justice League in the DCEU, the DCU seems to be taking a different approach.
+---------
+
+# 'Reacher' Fans Will Love These '90s Action Shows
+
+TV Lists, Action, Reacher
+
+Mon, 06 Apr 2026 00:30:17 GMT
+
+https://movieweb.com/1990s-action-tv-shows-better-than-reacher/
+
+Plenty of great action shows aired in the 1990s, many of which match or beat Prime Video's 'Reacher'.
+---------
+
 # One Of The Best Anime In History Is Officially 15 Years Old
 
 Anime, Puella Magi Madoka Magica, Op-Ed
