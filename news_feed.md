@@ -1,3 +1,278 @@
+# Every Star Wars Character In Maul - Shadow Lord Explained
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Mon, 06 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-characters-explained/
+
+Explore the diverse cast of Star Wars' Maul - Shadow Lord, including Maul, Devon Izara, Rook Kast, and more. Learn about their roles, motivations, and connections in this crime-filled series.
+---------
+
+# X-Men's New Hero Has The Best Introduction In Franchise History, Bar None
+
+Marvel Comics, X-Men, Marvel
+
+Mon, 06 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/x-men-new-hero-slaughter-freedman/
+
+Marvel officially introduces a brand-new X-Men hero, who makes a breathtaking debut using his mutant powers in a suspenseful Western showdown.
+---------
+
+# 10 Underrated Movies From 2011 Worth Revisiting
+
+Movies, Recommendation
+
+Mon, 06 Apr 2026 19:20:20 GMT
+
+https://screenrant.com/hidden-gem-movies-2011-15-year-anniversary/
+
+2011 was a great year for movies and some of the best releases got overlooked by far too many people. They deserve to get another look.
+---------
+
+# The Lord Of The Rings' Next Movie Is Officially The End Of An Era For The Franchise
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 06 Apr 2026 19:16:18 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-aragorn-recast-end-of-era/
+
+New Line's upcoming Lord of the Rings movie isn't just a return to Peter Jackson's version of Middle-earth. It's also the first step in the new age.
+---------
+
+# Jon Bernthal’s Punisher Return & Jessica Jones’ New Life Revealed In New Daredevil: Born Again Season 2 Trailer
+
+TV, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Mon, 06 Apr 2026 19:12:50 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-midseason-trailer/
+
+Marvel has just released a shocking Daredevil: Born Again season 2 trailer that confirms a major Jessica Jones theory and shows the Punisher's return.
+---------
+
+# What Is Maul's Grand Plan In Shadow Lord (And How It Compares To Darth Sidious)
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Mon, 06 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/maul-shadow-lord-star-wars-grand-plan-explained-darth-sidious/
+
+The premiere episodes for Maul - Shadow Lord have been released, confirming Maul's ambitions and vision for the future of the Star Wars galaxy.
+---------
+
+# Valheim Meets Skyrim In This 139-Hour PlayStation Plus Free Game
+
+Gaming, PlayStation Plus, Conan Exiles
+
+Mon, 06 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/playstation-plus-free-139-hour-survival-rpg/
+
+Discover the brutal world of Conan Exiles, a 139+ hour open-world survival RPG available for free with your PlayStation Plus Extra or Premium sub.
+---------
+
+# When Is American Idol Season 24's Disney Night? (SPOILERS)
+
+Reality TV, American Idol
+
+Mon, 06 Apr 2026 18:53:12 GMT
+
+https://screenrant.com/american-idol-season-24-disney-night-air-date-spoilers/
+
+American Idol's Disney Night has become a beloved annual tradition. Find out when the celebration of Disney classics will air in season 24.
+---------
+
+# Honkai Star Rail 4.2 Livestream: Date & Time, New Characters & Banners, Updates & More
+
+Gaming, Honkai: Star Rail, Live Service Games, PC
+
+Mon, 06 Apr 2026 18:50:18 GMT
+
+https://screenrant.com/honkai-star-rail-42-livestream-date-time-characters/
+
+Developer HoYoverse has officially revealed the date and time for the Honkai: Star Rail 4.2 livestream, which will present the content for the patch.
+---------
+
+# Guy Ritchie & Netflix's 2-Part Crime Thriller Gets Official 2026 Release Update
+
+TV, The Gentlemen
+
+Mon, 06 Apr 2026 18:47:40 GMT
+
+https://screenrant.com/the-gentleman-season-2-netflix-release-date-guy-ritchie-theo-james/
+
+Guy Ritchie and Netflix are getting ready to bring back their 2-part crime thriller, and there's now an official update on a release window.
+---------
+
+# Steven Spielberg Skipped Making His Own Horror After Watching Weapons
+
+Movies, Horror, Sci-Fi, Disclosure Day, Weapons
+
+Mon, 06 Apr 2026 19:31:34 GMT
+
+https://www.cbr.com/steven-spielberg-skipped-horror-film-weapons/
+
+One look at the instant horror classic Weapons made Steven Spielberg say 'never mind' to trying to make his own.
+---------
+
+# Forgotten Western Movies That Are Still Perfect Masterpieces
+
+Movies, Western, Ravenous
+
+Mon, 06 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/forgotten-western-movies-still-perfect-masterpieces/
+
+Westerns have given Hollywood some of its greatest stories, but some of the best movies in the genre continue to languish in obscurity.
+---------
+
+# 6 Months Later, Marvel Zombies Finally Gets Update Teasing New MCU First
+
+TV, Marvel, Marvel Comics, Marvel Zombies, MCU
+
+Mon, 06 Apr 2026 18:17:22 GMT
+
+https://www.cbr.com/marvel-bloodiest-series-zombies-gets-update-teasing-mcu-first/
+
+WOW — Marvel is actually going to do it, and they're using Marvel Zombies as the bloody vehicle.
+---------
+
+# CBS Officially Confirms Its Late Show Replacement With Byron Allen’s Comics Unleashed
+
+TV, CBS, The Late Show with Stephen Colbert
+
+Mon, 06 Apr 2026 18:16:34 GMT
+
+https://www.cbr.com/cbs-confirms-late-show-byron-allen-comics-unleashed/
+
+Stephen Colbert's final Late Show already has a release date.
+---------
+
+# 5 Bite-Sized Crunchyroll Anime Perfect for Your Next Weekend Binge
+
+Anime, Crunchyroll, FLCL
+
+Mon, 06 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/crunchyroll-short-anime-perfect-weekend-binge/
+
+There are endless iconic anime with intimidating episode totals, but these Crunchyroll classics are easily to binge in a weekend or less!
+---------
+
+# Glen Powell's Next Major Movie Officially Gets a First Look and Release Date
+
+Movie News, Judd Apatow, Glen Powell, Cristin Milioti, Madelyn Cline
+
+Mon, 06 Apr 2026 19:22:40 GMT
+
+https://collider.com/glen-powell-next-movie-judd-apatow-the-comeback-king-first-look-release-date/
+
+Glen Powell teams with Judd Apatow for his next big movie about a fallen country star as The Comeback King officially enters production.
+---------
+
+# The First Great Horror Movie of 2026 Is Now on Netflix
+
+Movie, Netflix, 28 Years Later: The Bone Temple, Peter Rabbit, Lucy
+
+Mon, 06 Apr 2026 19:19:12 GMT
+
+https://collider.com/best-netflix-movies-watch-week-april-6/
+
+28 Years Later: The Bone Temple, Lucy, and Peter Rabbit make up our list of the best movies to watch on Netflix the week of April 6, 2026.
+---------
+
+# Ridley Scott’s Action Epic That Earned 2x Its $140M Budget Hits Free Streaming
+
+Movie News, Exodus: Gods and Kings, Ridley Scott, Tubi, Christian Bale
+
+Mon, 06 Apr 2026 19:02:29 GMT
+
+https://collider.com/ridley-scott-action-epic-exodus-gods-and-kings-streaming-free-tubi-april-2026/
+
+Ridley Scott's action epic, starring Christian Bale and Sigourney Weaver, is officially available to watch on free streaming.
+---------
+
+# Every Anime Series Coming to Crunchyroll This Spring
+
+TV, Anime, Crunchyroll, Witch Hat Atelier, One Piece
+
+Mon, 06 Apr 2026 19:00:13 GMT
+
+https://collider.com/crunchyroll-anime-lineup-spring-2026/
+
+Crunchyroll has many exciting anime shows coming this spring, including the new arc of One Piece and the highly awaited debut of Witch Hat Atelier.
+---------
+
+# Netflix’s Creepy New 3-Part Miniseries Is the Best Weekend Binge
+
+TV Features, Netflix, True Crime, Netflix Original Series, Crime
+
+Mon, 06 Apr 2026 18:46:13 GMT
+
+https://collider.com/the-predator-of-seville-creepy-true-crime-miniseries-on-netflix/
+
+Netflix recently released The Predator of Seville, a new true crime series about a tour guide in Spain who takes advantage of his position.
+---------
+
+# 10 Classic Disney Shows That Have Aged Like Fine Wine
+
+TV, Disney, Disney Channel, Lizzie McGuire, That's So Raven
+
+Mon, 06 Apr 2026 18:22:12 GMT
+
+https://collider.com/classic-disney-shows-aged-like-fine-wine/
+
+Time has been extremely kind to beloved Disney shows like Lizzie McGuire, That's So Raven, and TaleSpin, with their reputation improving with age.
+---------
+
+# Marvin Gaye's 1971 Masterpiece Is Now Called the Greatest Song Ever — but It Wasn't His Biggest Hit
+
+Music Features, Marvin Gaye, Motown Magic, R&B, Music
+
+Mon, 06 Apr 2026 18:12:40 GMT
+
+https://collider.com/marvin-gaye-1971-whats-going-on-classic-hit/
+
+Marvin Gaye's 1971 masterpiece is now considered the greatest song ever, despite not being his biggest commercial hit.
+---------
+
+# 'The Devil Wears Prada 2' Final Trailer Reveals New Song by Lady Gaga and Doechii
+
+Movie News, The Devil Wears Prada 2
+
+Mon, 06 Apr 2026 19:03:31 GMT
+
+https://movieweb.com/devil-wears-prada-2-final-trailer-lady-gaga/
+
+The final trailer for 'The Devil Wears Prada 2' hits with early projections saying the movie could open above $80 million.
+---------
+
+# Where To Start Reading Brandon Sanderson's Cosmere & Full Reading Order
+
+Features, Brandon Sanderson, The Stormlight Archive, Mistborn
+
+Mon, 06 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/brandon-sanderson-cosmere-reading-order-where-to-start/
+
+A complete, comprehensive guide to the Cosmere, from starting points to a full reading order to a list of the upcoming books.
+---------
+
+# 'Dune: Part Three' Teaser Unveiled as 70MM IMAX Tickets Go on Sale
+
+Movie News, Dune: Part Three, Denis Villeneuve, Timothée Chalamet
+
+Mon, 06 Apr 2026 18:56:30 GMT
+
+https://movieweb.com/dune-3-teaser-imax-70mm/
+
+A new look at the upcoming movie gives a better taste of the explosive action.
+---------
+
 # Adventure Time’s Princess Bubblegum Officially Returns With New Spinoff
 
 Comics, Adventure Time
