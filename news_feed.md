@@ -1,3 +1,124 @@
+# Elden Ring's Official Return Has Gamers Seriously Hyped
+
+Gaming, Elden Ring, PC
+
+Mon, 06 Apr 2026 12:47:26 GMT
+
+https://screenrant.com/elden-ring-official-return-leaks-gamer-reactions/
+
+Elden Ring fans are absolutely hyped over leaks reveal the FromSoft franchise's official return, expected much sooner than we thought.
+---------
+
+# 10 Most Unique Iron Man Armors Introduced Since 2000, Ranked
+
+Comics, Iron Man
+
+Mon, 06 Apr 2026 12:31:18 GMT
+
+https://screenrant.com/iron-man-best-armor-since-2000-unique/
+
+Since 2000, Tony Stark has created a variety of unique and creative Iron Man suits that drastically diverge from his traditional design.
+---------
+
+# Thankfully, CBS Starts Tracker's Course Correction Before It's Too Late
+
+Network TV, Tracker
+
+Mon, 06 Apr 2026 12:20:20 GMT
+
+https://screenrant.com/tracker-season-3-cbs-course-correct/
+
+Subtle as it may seem, but CBS has started the much-needed course correction for Justin Hartley's Tracker before the show further suffers.
+---------
+
+# GTA 6's First Official Gameplay Trailer Already Has Fans Hyped
+
+Gaming, Grand Theft Auto 6
+
+Mon, 06 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/gta-6-gameplay-trailer-debut-date-speculation/
+
+GTA 6 fans are speculating about the release date of the game's third official trailer, which is expected to showcase gameplay.
+---------
+
+# For All Mankind's Mars Colony Echoes Deep Space Nine In Apple TV's Sci-Fi Series
+
+TV, For All Mankind, Star Trek, Star Trek: Deep Space Nine
+
+Mon, 06 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/apple-tvs-94-rt-sci-fi-hit-has-its-own-version-of-star-treks-deep-space-nine/
+
+Business is good in Happy Valley as For All Mankind expands its Mars base with a busy mall that evokes Star Trek: Deep Space Nine's promenade.
+---------
+
+# 10 Common Phrases That Mean the Exact Opposite of What You Think
+
+Books
+
+Mon, 06 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/common-sayings-misunderstood-idioms-meaning-explained/
+
+Some of our favorite phrases started out meaning the exact opposite - here are the most common sayings that everyone gets 100% wrong.
+---------
+
+# Supergirl Could Meet Blade in A Rumored Crossover Event
+
+Comics, Supergirl, Blade
+
+Mon, 06 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/dc-comics-supergirl-blade-crossover-rumor/
+
+Just in time for the new Supergirl movie, DC is teasing an upcoming crossover with none other than Blade...Just in time for the new Supergirl movie, D
+---------
+
+# 47 Years Later, This Remains The Most Addictive Sci-Fi Franchise of All Time
+
+Movie Features, Alien, Sigourney Weaver, Sci-Fi
+
+Mon, 06 Apr 2026 12:19:12 GMT
+
+https://collider.com/alien-franchise-most-addictive-sci-fi-series/
+
+Alien became one of the most iconic horror franchises with the creation of the terrifying apex predator, the xenomorph.
+---------
+
+# Keanu Reeves’ Forgotten Fantasy Movie Surges on Streaming 1 Year Later
+
+Movie News, Dogma, Keanu Reeves, Good Fortune, Prime Video
+
+Mon, 06 Apr 2026 12:00:12 GMT
+
+https://collider.com/keanu-reeves-fantasy-movie-good-fortune-streaming-success-prime-video-april-2026/
+
+Good Fortune is reaching more viewers on Prime Video, giving Keanu Reeves’ overlooked fantasy comedy a welcome second chance.
+---------
+
+# Robert Pattinson Says 'The Batman Part II' Is a "Really Different Type" of Batman Movie
+
+Movie News, The Batman, The Batman Part II, Robert Pattinson
+
+Mon, 06 Apr 2026 12:31:38 GMT
+
+https://movieweb.com/robert-pattinson-batman-2-really-different/
+
+The actor praised the sequel’s script as "so good" and suggested Matt Reeves' follow-up will take Batman in a new direction.
+---------
+
+# 'The Boys' Jessie T. Usher Confirms "Liberating" Change of Heart in Season 5 [Exclusive]
+
+Exclusives, The Boys, Prime Video
+
+Mon, 06 Apr 2026 12:15:17 GMT
+
+https://movieweb.com/the-boys-a-train-change-heart-season-5/
+
+Speaking exclusively with MovieWeb, Jessie T. Usher teases a new side to the former villain A-Train in 'The Boys' final season.
+---------
+
 # Shudder's New Horror Remake Of Controversial '70s Cult Classic Debuts To Solid Rotten Tomatoes Score Ahead Of Release
 
 Movies, Faces of Death
