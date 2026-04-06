@@ -1,3 +1,91 @@
+# 15 Biggest Easter Eggs & Star Wars References In Maul - Shadow Lord Episodes 1-2
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Mon, 06 Apr 2026 09:30:19 GMT
+
+https://screenrant.com/maul-shadow-lord-episode-1-2-easter-eggs-star-wars-references/
+
+The first two episodes of Maul - Shadow Lord are now streaming, featuring an exciting collection of Easter eggs and Star Wars references.
+---------
+
+# Star Wars: Maul - Shadow Lord Episodes 1-2 Ending Explained: Maul's Plan To Rebuild His Criminal Empire
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Mon, 06 Apr 2026 09:01:18 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-episodes-1-2-ending-explained/
+
+The ending of Star Wars: Maul - Shadow Lord episodes 1 and 2 sets up the season to come, from Maul’s plan with the syndicates to a new apprentice.
+---------
+
+# Marina Sirtis Reveals Heartbreak With Star Trek: The Next Generation Cast During Picard Season 3 Filming
+
+TV, Star Trek, Star Trek: Picard
+
+Mon, 06 Apr 2026 09:00:19 GMT
+
+https://screenrant.com/star-trek-tng-marina-sirtis-calls-out-cast/
+
+Marina Sirtis shares her disappointment at her Star Trek: The Next Generation cast during production of Star Trek: Picard season 3.
+---------
+
+# Netflix Finally Has Good News for JoJo Fans After Botched Steel Ball Run Release
+
+Anime, Jojo's Bizarre Adventure, Netflix, JoJo's Bizarre Adventures
+
+Mon, 06 Apr 2026 08:51:50 GMT
+
+https://www.cbr.com/netflix-jojo-anime-steel-ball-run-fall-2026-release/
+
+Netflix finally issued an official release update for JoJo fans regarding its 'bizarre" rollout of Steel Ball Run.
+---------
+
+# 5+ Years Later, Kevin Costner's Western Crime Thriller Finally Redeems Itself on Streaming
+
+Movie News, Kevin Costner, Diane Lane, Yellowstone, Let Him Go
+
+Mon, 06 Apr 2026 09:30:14 GMT
+
+https://collider.com/kevin-costner-forgotten-yellowstone-replacement-let-him-go-streaming-success-netflix-april-2026/
+
+Kevin Costner and Diane Lane's forgotten Yellowstone replacement, Let Him Go, is staging a resurgence on streaming. Find out more.
+---------
+
+# The 35 Best Demonic Possession Horror Movies, Ranked
+
+Movie, Horror, The Exorcist, Possession, Hereditary
+
+Mon, 06 Apr 2026 09:11:12 GMT
+
+https://collider.com/best-demonic-possession-horror-movies-ranked/
+
+The Exorcist, Hereditary, and The Evil Dead are among the best, scariest horror movies featuring demonic possession.
+---------
+
+# Hulu’s Wildest Sci-Fi Series Blows Up With Over 4M Views in 3 Days
+
+TV News, Paradise, Hulu, Sterling K. Brown, Dan Fogelman
+
+Mon, 06 Apr 2026 09:00:12 GMT
+
+https://collider.com/hulu-sci-fi-series-paradise-season-2-finale-viewership/
+
+Hulu's mind-blowing sci-fi series starring Sterling K. Brown just hit 4.3 million views on its Season 2 finale. Find out more information here.
+---------
+
+# 'The Super Mario Galaxy Movie' Powers Up Box Office With Highest Opening Weekend of 2026
+
+Movie News, The Super Mario Galaxy Movie, box office
+
+Mon, 06 Apr 2026 08:50:16 GMT
+
+https://movieweb.com/super-mario-galaxy-opening-box-office-2026/
+
+2026 has a new top earner at the box office after 'The Super Mario Galaxy Movie' totaled the biggest opening weekend of the year to date.
+---------
+
 # Star Wars: Maul - Shadow Lord Review: Star Wars' Crime-Thriller Gives Iconic Prequel Villain A Worthy, Albeit Flawed, Story
 
 Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
