@@ -1,3 +1,311 @@
+# HBO's The Penguin: A Stellar Cast Powers This Gotham Crime Drama
+
+Streaming TV, The Penguin
+
+Mon, 06 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/the-penguin-hbo-best-casts/
+
+Led by Colin Farrell and Cristin Milioti, The Penguin has one of the most stacked casts of any HBO drama — including Clancy Brown's umpteenth DC role.
+---------
+
+# One Piece's Imu Reveal Kicks Off the Beginning of the End
+
+Anime, One Piece, One Piece (1997)
+
+Mon, 06 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/one-piece-elbaph-imu-reveal-beginning-end/
+
+Several prominent factions may intersect with Luffy's battle against the World Government on Elbaph, adding more layers to One Piece's final arcs.
+---------
+
+# 6 Best New Movies On HBO Max In April 2026
+
+Movies, HBO Max
+
+Mon, 06 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/6-best-new-movies-on-hbo-max-in-april-2026/
+
+There are multiple must-see new movies of 2025 and 2026 streaming on HBO Max this April—including an Academy Award Best-Picture nominee.
+---------
+
+# Hacks Spinoff Potential After Season 5 Ending Addressed By Stars
+
+TV, Hacks
+
+Mon, 06 Apr 2026 20:20:42 GMT
+
+https://screenrant.com/hacks-spinoff-shows-potential-kayla-jimmy-randy/
+
+Hacks may be about to go forward with its final season, but its stars suggest that there is ample material for potential spinoff series.
+---------
+
+# Tomb Raider Fans May Be Waiting A Lot Longer For Its Newest Games
+
+Gaming, Tomb Raider: Legacy of Atlantis, Tomb Raider, Triple-A Games
+
+Mon, 06 Apr 2026 20:15:34 GMT
+
+https://screenrant.com/tomb-raider-2026-delay-leak-rumor/
+
+Tomb Raider: Legacy of Atlantis has been slated for a release sometime in 2026, but a brand-new rumor claims that this may no longer be the case.
+---------
+
+# Netflix's Masterpiece Thriller Series With Near-Perfect Rotten Tomatoes Score That Returns In Two Weeks Has One Of Its Best Casts
+
+TV, Netflix, Beef
+
+Mon, 06 Apr 2026 20:10:45 GMT
+
+https://screenrant.com/netflix-beef-season-2-thriller-series-cast-best/
+
+After waiting three years, one of Netflix's best thriller series is returning with a new season, and the show boasts a tremendous cast.
+---------
+
+# Clair Obscur Officially Returns This Summer With All-New Release
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Mon, 06 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/clair-obscur-esquie-release-summer-2026/
+
+Clair Obscur: Expedition 33 is getting an official new release this summer featuring one of the game's most beloved and iconic characters.
+---------
+
+# Pokémon Fans Can Return To Hoenn For A New Open-World Adventure
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 06 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/pokemon-hoenn-open-world-fan-game/
+
+Hoenn is a beloved region for a reason, and it's about to come back in a big way thanks to a new project that's in the works.
+---------
+
+# Glen Powell's $69M Sci-Fi Movie Flop Finds Redemption On Streaming
+
+TV, The Running Man
+
+Mon, 06 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/the-running-man-paramount-plus-streaming-success-april-2026/
+
+Glen Powell, Stephen King, and Edgar Wright couldn't save this sci-fi dystopia from box office disappointment, despite its later streaming success.
+---------
+
+# House of the Dragon Can't Remain Accurate to the Books Until It Undoes S2's Biggest Plot Point
+
+TV, House of the Dragon, george rr martin, Game Of Thrones, hbo
+
+Mon, 06 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-2-book-adaptation-changes/
+
+Rhaenyra Targaryen's historical title is something that House of the Dragon will need to settle before its conclusion.
+---------
+
+# 'Demon Slayer Changed My Life': Zach Aguilar Talks Tanjiro, OPM Season 3, & His Role in Dragon Ball Super
+
+Anime, Interviews, interview
+
+Mon, 06 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/zach-aguilar-interview/
+
+In an exclusive CBR interview, Zach Aguilar sits down to discuss his journey as an anime voice actor.
+---------
+
+# Sci-Fi Movies That Are Better Than Dune
+
+Movies, Sci-Fi, Dune, 2001: A Space Odyssey
+
+Mon, 06 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/sci-fi-movies-better-than-dune/
+
+Denis Villeneuve’s Dune stands out as the ultimate science fiction experience of the 21st century, but some movies edge it out.
+---------
+
+# Eureka Seven Nirvash Type Zero RS Metal Build Figure Announced for 20th Anniversary
+
+Anime, Eureka Seven, merchandise, toys, bandai, action figures
+
+Mon, 06 Apr 2026 20:20:12 GMT
+
+https://www.cbr.com/eureka-seven-bandai-nirvash-metal-build-anniversary-release/
+
+20 years after the original anime ended, a new anniversary action figure for Eureka Seven recreates the iconic mecha and an equally classic scene.
+---------
+
+# One Piece's Endgame Has Officially Begun
+
+Anime, One Piece
+
+Mon, 06 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/one-piece-imu-elbaf-ending/
+
+One Piece's endgame keeps getting more intense, and a sudden arrival on Elbaf Island just took the story to an all-time peak.
+---------
+
+# Jessica Jones Returns with Daughter in Daredevil: Born Again Trailer
+
+TV, Daredevil: Born Again, Disney+, Marvel Cinematic Universe
+
+Mon, 06 Apr 2026 20:09:16 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-trailer-jessica-jones-daughter/
+
+Marvel fans learn Jessica Jones has a daughter in the latest trailer for Daredevil: Born Again.
+---------
+
+# Godzilla x Kong: The New Empire Resurfaces on Hulu 2 Years Later
+
+Movies, Godzilla x Kong: The New Empire, Monsters, Hulu
+
+Mon, 06 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/godzilla-x-kong-new-empire-streaming-success-hulu-april-2026/
+
+A fan-favorite kaiju film is resurging on streaming two years after its release, just in time for the upcoming sequel next year.
+---------
+
+# Optimus Prime's Death Nearly Ended the Transformers Franchise
+
+Movies, Transformers, The Transformers: The Movie
+
+Mon, 06 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/transformers-optimus-prime-death-nearly-ended-franchise/
+
+The Transformers: The Movie is an iconic sci-fi and animated film, but the death of Optimus Prime is still one that nearly killed the franchise.
+---------
+
+# Swamp Thing Officially Revealed For Horror Series Crossover Event
+
+Comics, Swamp Thing, Something is Killing the Children
+
+Mon, 06 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/swamp-thing-something-is-killing-the-children-crossover-confirmed/
+
+One of DC's most iconic horror characters enters the world of Boom! Studios' terrifying comic book series hit.
+---------
+
+# Netflix Loses New Court Case in Italy That Voids Years of Price Hikes
+
+TV, Netflix
+
+Mon, 06 Apr 2026 19:43:25 GMT
+
+https://www.cbr.com/netflix-loses-court-case-italy/
+
+After its recent loss in Belgium, Netflix has lost another case.
+---------
+
+# 10 Greatest Heroic Bloodshed Masterpieces, Ranked
+
+Movie, Action, A Better Tomorrow, Hard Boiled, Infernal Affairs
+
+Mon, 06 Apr 2026 20:30:12 GMT
+
+https://collider.com/best-heroic-bloodshed-movie-masterpieces-ranked/
+
+From Hard Boiled to A Better Tomorrow, these are the brilliant movie masterpieces that turned the heroic bloodshed subgenre into one of cinema's best.
+---------
+
+# Move Over 'Lord of the Rings': This 2026 Blockbuster Aims to Be the Biggest Cinematic Event Ever [Exclusive]
+
+Exclusives, Ranbir Kapoor, Ramayana, Namit Malhotra, Nitesh Tiwari
+
+Mon, 06 Apr 2026 20:19:02 GMT
+
+https://collider.com/ramayana-hans-zimmer-ar-rahman-soundtrack-producer-namit-malhotra-interview/
+
+Ramayana producer Namit Malhotra discusses filming the epic for IMAX, working with Academy Award-winning artists, and why this is a global experience.
+---------
+
+# Every James Bond Movie Where He Falls in Love, Ranked
+
+Movie, James Bond, Casino Royale, Spectre, On Her Majesty's Secret Service
+
+Mon, 06 Apr 2026 19:41:12 GMT
+
+https://collider.com/james-bond-movies-romantic-ranked/
+
+From Casino Royale to On Her Majesty's Secret Service, this is the definitive ranking of every romantic James Bond film where 007 truly falls in love.
+---------
+
+# Fans Can't Get Enough of Sydney Sweeney's R-Rated Thriller Ahead of April 12 Return
+
+TV News, Euphoria, HBO Max, Sydney Sweeney, Jacob Elordi
+
+Mon, 06 Apr 2026 19:40:14 GMT
+
+https://collider.com/sydney-sweeney-euphoria-streaming-success-season-3-release-date-hbo-april-2026/
+
+Sydney Sweeney's extremely R-rated thriller series returns in just 6 days and fans are already binge-watching in preparation.
+---------
+
+# This 10/10 Disney+ Marvel Series Is So Good, It's Even Better on a Rewatch
+
+TV Features, X-Men '97, X-Men, Marvel, Disney+
+
+Mon, 06 Apr 2026 19:36:13 GMT
+
+https://collider.com/x-men-97-disney-plus-marvel-series-better-on-rewatch/
+
+Disney+ has a number of impressive Marvel series, such as WandaVision and Wonder Man, though X-Men '97 is hard to beat.
+---------
+
+# 'The Punisher: One Last Kill' First Look Revealed in New 'Daredevil: Born Again' Trailer
+
+TV News, The Punisher: One Last Kill, MCU
+
+Mon, 06 Apr 2026 20:12:04 GMT
+
+https://movieweb.com/the-punisher-one-last-kill-first-look/
+
+Jon Bernthal's 'The Punisher: One Last Kill' gets a brief tease one month before its Disney+ debut.
+---------
+
+# 'The Whispers' Is Steven Spielberg's Epic Forgotten Alien TV Thriller
+
+Features, The Whispers, Steven Spielberg, Cultural Reassessment
+
+Mon, 06 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/the-whispers-steven-spielberg-tv-thriller-aliens/
+
+'The Whispers' is an underrated TV thriller series produced by Steven Spielberg that premiered in June 2015 on ABC and stars Lily Rabe.
+---------
+
+# Tom Cruise's Jack Reacher Movie Is Streaming for Free on Pluto TV
+
+Movie News, Jack Reacher, Pluto TV, Coming/Leaving Streaming, Reacher, Action
+
+Mon, 06 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/jack-reacher-action-movie-streaming-free-pluto-april-2026/
+
+Before Alan Ritchson's 'Reacher' Season 4, Tom Cruise's failed 'Jack Reacher' movie is streaming for free on Pluto TV.
+---------
+
+# Brian Cox Slams Tarantino, Jeremy Strong, and More in Harsh New Interview
+
+Movie News, Brian Cox, Quentin Tarantino, Jeremy Strong
+
+Mon, 06 Apr 2026 19:42:36 GMT
+
+https://movieweb.com/brian-cox-slams-quentin-tarantino-jeremy-strong/
+
+The Emmy winner is making the rounds for his feature directorial debut 'Glenrothan.'
+---------
+
 # Every Star Wars Character In Maul - Shadow Lord Explained
 
 Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
