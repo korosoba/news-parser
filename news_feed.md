@@ -1,3 +1,168 @@
+# Shudder's New Horror Remake Of Controversial '70s Cult Classic Debuts To Solid Rotten Tomatoes Score Ahead Of Release
+
+Movies, Faces of Death
+
+Mon, 06 Apr 2026 11:32:24 GMT
+
+https://screenrant.com/faces-of-death-2026-movie-rotten-tomatoes-score/
+
+The first reviews are in for Shudder's Faces of Death, a remake of a 1970s horror classic, and the hyper-violent film is faring decently so far.
+---------
+
+# Grey’s Anatomy Teases Three Major Deaths In Season 22, Episode 17 Trailer
+
+Network TV, Grey's Anatomy
+
+Mon, 06 Apr 2026 11:15:18 GMT
+
+https://screenrant.com/greys-anatomy-season-22-episode-17-trailer/
+
+ABC has released the trailer for Grey's Anatomy season 22, episode 17 trailer teasing three major deaths for the people at Seattle's Grey Sloan.
+---------
+
+# Disney+'s Star Wars Officially Unveils 2 New Order 66 Survivors
+
+Streaming TV, Star Wars, Star Wars: Maul - Shadow Lord
+
+Mon, 06 Apr 2026 11:04:48 GMT
+
+https://screenrant.com/maul-shadow-lord-devon-daki-order-66-survivors/
+
+Order 66’s Jedi Purge was a dark turning point for the galaxy in Star Wars, but Disney has just unveiled two more survivors of Palpatine’s plan.
+---------
+
+# Hogwarts Legacy 2 Official Announcement Met With Mixed Response By Gamers
+
+Gaming, Hogwarts Legacy
+
+Mon, 06 Apr 2026 11:01:18 GMT
+
+https://screenrant.com/hogwarts-legacy-2-official-announcement-gamer-reactions/
+
+Hogwarts Legacy 2's potential storyline coordination with HBO's Harry Potter series has fans divided, with some worried about the game's direction.
+---------
+
+# Daredevil Fans Need to Read This Perfect Storyline Ahead Of Born Again Season 2's Ending
+
+Comics, Daredevil: Born Again
+
+Mon, 06 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/daredevil-the-devil-in-cell-block-d-must-read-storyline/
+
+Daredevil: Born Again is racing towards its third season and it seems that this classic arc may be more relevant than ever.
+---------
+
+# All 3 Godfather Movies Are Masterpieces, but One Is Untouchable
+
+Movie, The Godfather, The Godfather Part II, The Godfather Part III
+
+Mon, 06 Apr 2026 11:40:12 GMT
+
+https://collider.com/godfather-movies-masterpieces-ranked/
+
+The Godfather movie trilogy has some of the most undeniable masterpieces in American cinema, but we can all agree that one towers over the others.
+---------
+
+# 45 Strongest 'One Piece' Characters, Ranked
+
+TV, One Piece, Adventure, Anime, Manga
+
+Mon, 06 Apr 2026 11:38:12 GMT
+
+https://collider.com/strongest-one-piece-characters-ranked/
+
+From Monkey D. Luffy to Imu, these are the strongest characters from One Piece.
+---------
+
+# Rebecca Ferguson's Genius 92% RT Sci-Fi Sequel Is a Streaming Sensation
+
+Movie News, Rebecca Ferguson, Sci-Fi, Dune: Part Two, HBO Max
+
+Mon, 06 Apr 2026 11:30:12 GMT
+
+https://collider.com/rebecca-ferguson-genius-sci-fi-sequel-dune-part-two-streaming-success-hbo-max-april-2026/
+
+Before the franchise comes to a close, Rebecca Ferguson's genius sci-fi sequel, Dune: Part Two, is a streaming hit once again.
+---------
+
+# Netflix’s 98% Rotten Tomatoes Zombie Thriller Is Still One of the Best Shows Ever Made
+
+TV Features, Kingdom, Netflix, Thriller, Zombie
+
+Mon, 06 Apr 2026 11:08:12 GMT
+
+https://collider.com/netflix-best-zombie-thriller-kingdom-korean-series/
+
+Netflix’s Kingdom is a 98% RT Korean zombie thriller set in medieval Korea, blending political drama, K-drama stars, and intense horror across 2 seaso
+---------
+
+# Only 3 MCU Movies Are Better Than 'Avengers: Endgame'
+
+Movie, Avengers: Endgame, MCU, Avengers: Infinity War, Black Panther
+
+Mon, 06 Apr 2026 11:05:12 GMT
+
+https://collider.com/mcu-movies-better-than-avengers-endgame/
+
+Avengers: Endgame might be the crowning jewel of the MCU, but movies like Black Panther and Avengers: Infinity War are arguably superior in every way.
+---------
+
+# Netflix's Remake of a Classic Western Series Is "Much Closer to the Books" [Exclusive]
+
+Exclusives, Little House on the Prairie, Netflix, Malcolm in the Middle: Life's Still Unfair, Western
+
+Mon, 06 Apr 2026 11:00:13 GMT
+
+https://collider.com/netflix-little-house-on-the-prairie-reboot-original-star-reaction-linwood-boomer/
+
+Linwood Boomer, who played Adam Kendall on the original Little House on the Prairie, reveals what he really thinks of Netflix's new adaptation.
+---------
+
+# Netflix Action Thriller Series 'Bloodhounds' Season 2 Proves to Be Perfect Binge-Watch
+
+TV News, Netflix, Bloodhounds, Action, Thriller
+
+Mon, 06 Apr 2026 11:35:35 GMT
+
+https://movieweb.com/netflix-bloodhounds-season-2-reviews-action/
+
+Reviews hail the series for hitting "like a clean, decisive knockout” as it quickly fights its way up the streaming charts.
+---------
+
+# 'Agent From Above' Reviews: Was Netflix Action Fantasy Series Was Worth the 7 Year Wait?
+
+TV News, Agent from Above, Netflix, Action, Fantasy
+
+Mon, 06 Apr 2026 11:13:10 GMT
+
+https://movieweb.com/agent-from-above-reviews-netflix/
+
+The reviews are now in for Netflix's most ambitious action fantasy adaptation ever.
+---------
+
+# Jason Statham's 'Taken' Meets 'John Wick' Action Thriller 'A Working Man' Is Streaming Smash Hit
+
+Movie News, Jason Statham, Action, Thriller, A Working Man
+
+Mon, 06 Apr 2026 11:01:17 GMT
+
+https://movieweb.com/jason-statham-working-man-stream-april-2026/
+
+From 'The Beekeeper's David Ayer, 'A Working Man' continues to find popularity after spending 7 months in the charts.
+---------
+
+# Quentin Tarantino's Next Movie Returns to a 30-Year Old Trend of Writing But Not Directing
+
+Features, The Adventures of Cliff Booth, Quentin Tarantino
+
+Mon, 06 Apr 2026 11:01:17 GMT
+
+https://movieweb.com/quentin-tarantino-2026-writing-trend/
+
+For the first time since 1996, Quentin Tarantino's screenplay for 'The Adventures of Cliff Booth' will be directed by someone else.
+---------
+
 # Cyberpunk 2077: Edgerunners Game Officially Announced
 
 Gaming, Cyberpunk: Edgerunners, Cyberpunk 2077
