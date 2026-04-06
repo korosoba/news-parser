@@ -1,3 +1,179 @@
+# HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+Movies, HBO Max, Dune: Part Two, Dune
+
+Mon, 06 Apr 2026 22:24:38 GMT
+
+https://screenrant.com/hbo-max-dune-part-two-sci-fi-movie-cast-best/
+
+HBO Max's unmissable Sci-Fi movie happens to have one of the best casts for a genre release, and the franchise's new movie builds on it.
+---------
+
+# 10 Near-Perfect Forgotten Horror TV Shows That Deserve A Second Chance
+
+Classic TV
+
+Mon, 06 Apr 2026 22:15:19 GMT
+
+https://screenrant.com/near-perfect-horror-shows-nobody-remembers/
+
+The horror genre has brought some of the best TV shows of all time, but other great shows have faded into obscurity for different reasons.
+---------
+
+# Game Of Thrones Star’s Cut Thor: Love & Thunder Cameo Detailed 4 Years Later
+
+Movies, Thor: Love and Thunder, Game Of Thrones, Marvel Cinematic Universe, Lena Hall
+
+Mon, 06 Apr 2026 22:12:22 GMT
+
+https://screenrant.com/thor-love-and-thunder-lena-headey-davine-joy-randolph-cut-roles/
+
+EXCLUSIVE: A Game of Thrones star opens up about her scrapped appearance in Thor: Love and Thunder, including the Oscar winner she shared scenes with.
+---------
+
+# James Gunn's 3-Part HBO Max Superman Series Officially Returns Next Week After Months-Long Wait
+
+TV, Superman
+
+Mon, 06 Apr 2026 22:09:22 GMT
+
+https://screenrant.com/krypto-saves-the-day-episode-4-hbo-max-release-date/
+
+James Gunn's three-part Superman series on HBO Max is officially returning next week with an all-new episode after a four-month-long wait.
+---------
+
+# Cartoon Network’s 92% RT Masterpiece Officially Returns in One Month With New Series
+
+Comics, Ben 10
+
+Mon, 06 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/cartoon-network-ben-10-series-new-details/
+
+Cartoon Network produced some of the most iconic cartoons of all time, and now one of these franchises is just one month away from returning.
+---------
+
+# Netflix's 8-Part Thriller Based On A Bestselling Novel Is One Of Its Best Shows To Binge
+
+TV, The Hunting Wives
+
+Mon, 06 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/the-hunting-wives-netflix-thriller-show-binge/
+
+Netflix's hit thriller adapted from a bestselling book cemented Brittany Snow's status as the queen of twisty mysteries with unpredictable endings.
+---------
+
+# New Cyberpunk 2077 Edgerunners Game Coming This Year
+
+Games, Cyberpunk 2077
+
+Mon, 06 Apr 2026 22:24:21 GMT
+
+https://www.cbr.com/cyberpunk-2077-edgerunners-board-game/
+
+An exciting new release arrives this year for Cyberpunk: Edgerunners fans.
+---------
+
+# 10 Easy-to-Miss Details That Went Over Most Anime Fans’ Heads
+
+Anime, Attack on Titan, Death Note, Code Geass: Lelouch of the Rebellion
+
+Mon, 06 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/anime-easter-eggs-no-one-noticed/
+
+Even the most eagle-eyed anime fans missed most of these easter eggs, hints, and pieces of foreshadowing the first time around.
+---------
+
+# Will Smith's Divisive Sci-Fi Action Movie Becomes a Major Streaming Hit
+
+Movies, Gemini Man, Action, will smith
+
+Mon, 06 Apr 2026 22:00:13 GMT
+
+https://www.cbr.com/will-smith-gemini-man-action-thriller-streaming-success-tubi-april-2026/
+
+Seven years after its release, a surprising Will Smith action-thriller is finding new life on streaming.
+---------
+
+# Night of the Creeps Is A Genre-Changing R-Rated Horror-Comedy
+
+Movies, Night Of The Creeps, Horror
+
+Mon, 06 Apr 2026 22:00:13 GMT
+
+https://www.cbr.com/night-of-the-creeps-cult-classic-horror-comedy/
+
+Even four decades later, this zombie sci-fi alien horror-comedy remains in a genre all its own, and it's better off for it.
+---------
+
+# Tracker Just Made the Change It Needs to Stay TV’s Biggest Crime Show
+
+TV, Tracker, CBS
+
+Mon, 06 Apr 2026 22:00:08 GMT
+
+https://www.cbr.com/tracker-season-3-episode-15-changes-colter-shaw-team-op-ed/
+
+Massive changes to Justin Hartley's CBS show in Tracker Season 3 come at the perfect time, as Colter Shaw's drama begins slipping from its throne.
+---------
+
+# 10 Forgotten '70s Horror Movies That Are Still Perfect Today
+
+Movie, The Brood, Let Sleeping Corpses Lie, Squirm, The Severed Arm
+
+Mon, 06 Apr 2026 22:15:13 GMT
+
+https://collider.com/forgotten-70s-horror-movies-perfect/
+
+The Brood, Let's Scare Jessica to Death, and Tourist Trap are all forgotten horror movies from the '70s that deserve to be rediscovered today.
+---------
+
+# 7 Most Important Jason Statham Movies That Define His Filmography
+
+Movie, Jason Statham, The Beekeeper, The Expendables, Snatch
+
+Mon, 06 Apr 2026 21:53:12 GMT
+
+https://collider.com/jason-statham-movies-most-important/
+
+The Beekeeper, Snatch, Spy, and Lock, Stock, and Two Smoking Barrels are among the most important movies of Jason Statham's vast filmography.
+---------
+
+# New Star Wars Series Is Officially the Highest-Rated Franchise Project Ever
+
+TV News, Star Wars: Maul - Shadow Lord, Sam Witwer, Disney+, Lucasfilm
+
+Mon, 06 Apr 2026 21:40:54 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-highest-rated-entry-in-entire-franchise-rotten-tomatoes-perfect-score/
+
+Star Wars' new animated series Maul - Shadow Lord is officially the highest rated entry in the entire franchise. See its RT score here.
+---------
+
+# 'Jaws' Director Steven Spielberg Claims He's Never Made a Horror Movie "Yet"
+
+Movie News, Steven Spielberg, Jaws
+
+Mon, 06 Apr 2026 22:18:58 GMT
+
+https://movieweb.com/jaws-steve-spielberg-horror-movie-debate/
+
+Either the director forgot that he made 'Jaws' or doesn't think it meets the expectations of a horror movie.
+---------
+
+# Netflix's ‘Stranger Things: Tales From '85' Faces an Uphill Battle
+
+Features, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Mon, 06 Apr 2026 22:01:17 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-spinoff-debate/
+
+'Stranger Things: Tales From '85' is the upcoming spin-off series of 'Stranger Things' and will premiere in April 2026 on Netflix.
+---------
+
 # Severance Season 2 Review: Apple's Sci-Fi Thriller Excels Where Westworld Failed
 
 Streaming TV, Severance, Westworld
