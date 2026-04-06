@@ -1,3 +1,300 @@
+# GTA 6’s Latest Trailer Officially Confirms Major Visual Upgrade
+
+Gaming, Grand Theft Auto 6, Rockstar Games
+
+Mon, 06 Apr 2026 17:08:51 GMT
+
+https://screenrant.com/gta-6-trailer-2-graphics-upgrade-comparison/
+
+Grand Theft Auto 6 is proving that it is visually superior to Red Dead Redemption 2 with every new piece of footage that we've been receiving so far.
+---------
+
+# Prime Video’s The Boys Season 5 Sets All-Time Rotten Tomatoes Record As Show Prepares For Final Episodes
+
+TV, The Boys
+
+Mon, 06 Apr 2026 17:00:22 GMT
+
+https://screenrant.com/the-boys-season-5-rotten-tomatoes-score-prime-video/
+
+The Rotten Tomatoes score for The Boys season 5 has officially been revealed, as the superhero Prime Video TV show begins its final season this week.
+---------
+
+# Alan Ritchson's Reacher Future Looks Hopeful Thanks To Amazon's 10/10 Action Thriller Series
+
+TV, Reacher, Tom Clancy's Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Mon, 06 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/alan-ritchson-reacher-future-jack-ryan-movie-blueprint/
+
+Now that Jack Ryan: Ghost War has paved the way, a Reacher movie spinoff could let Prime Video's 10/10 action thriller series expand on its story.
+---------
+
+# Zelda: Ocarina Of Time Switch 2 Remake Officially Teased Under Our Noses
+
+Gaming, The Legend of Zelda: Ocarina of Time, Nintendo Switch 2, The Legend of Zelda
+
+Mon, 06 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-switch-2-teaser/
+
+Nintendo fans anticipate a remake of the classic The Legend of Zelda: Ocarina of Time, as credible sources hint at its development for the Switch 2.
+---------
+
+# The Apothecary Diaries is Getting the Ultimate English Release Ahead of Season 3
+
+Anime, The Apothecary Diaries
+
+Mon, 06 Apr 2026 16:48:59 GMT
+
+https://screenrant.com/the-apothecary-diaries-audiobook-english-release/
+
+With Season 3 approaching, a brand-new anime film on the horizon, and this English news, 2026 may be the biggest year yet for The Apothecary Diaries.
+---------
+
+# Star Trek Enters A Dark Age: Paramount+ Cancellations Leave Fans In The Cold
+
+Streaming TV, Star Trek, Star Trek: Starfleet Academy, Star Trek: Strange New Worlds
+
+Mon, 06 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/star-trek-dark-age-history-repeat/
+
+History is repeating itself as Star Trek is poised to go dark without new TV shows or movies, just like what happened 21 years ago.
+---------
+
+# It’s Official, My Dress-Up Darling Will Be Easier to Stream Than Ever
+
+Anime, My Dress-Up Darling, My Dress-Up Darling - Season 1, Netflix, Romance
+
+Mon, 06 Apr 2026 16:18:53 GMT
+
+https://screenrant.com/my-dress-up-darling-netflix-streaming-release/
+
+After years of being closely associated with Crunchyroll, My Dress-Up Darling is set to stream on one of the biggest streaming platforms worldwide.
+---------
+
+# A New Planet Is Under Attack By Paul Atreides In Dune 3's Latest Trailer
+
+Movies, Dune: Part Three, Dune
+
+Mon, 06 Apr 2026 16:10:12 GMT
+
+https://screenrant.com/dune-3-teaser-trailer-planet-attack/
+
+A new teaser trailer for Dune: Part Three reveals a new planet under attack by Timothée Chalamet's Paul Atreides as the intergalactic war unfolds.
+---------
+
+# Devil Wears Prada 2's New Trailer Reveals Miranda & Andy Dealing With Scandals & Exposés
+
+Movies, The Devil Wears Prada 2
+
+Mon, 06 Apr 2026 16:09:29 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-final-trailer/
+
+The final trailer for The Devil Wears Prada 2 has been released, and Anne Hathaway's character, Andy, could be ready to expose her old boss, Miranda.
+---------
+
+# American Horror Story's Jessica Lange Officially Returns for Season 13
+
+TV, American Horror Story
+
+Mon, 06 Apr 2026 17:01:06 GMT
+
+https://www.cbr.com/american-horror-story-season-13-jessica-lange/
+
+Several AHS fan-favorites are coming back, including one that has been thoroughly missed.
+---------
+
+# Sniper Proves It Still Has Fire in Action-Packed Clip From Sniper: No Nation Ahead of Digital Release
+
+Movies, Sniper
+
+Mon, 06 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/sniper-no-nation-clip-digital-release/
+
+Exclusive: The action franchise is also bringing back a legendary character.
+---------
+
+# Fallout: New Vegas Officially Returns With 15th-Anniversary Release
+
+Games, Fallout
+
+Mon, 06 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/fallout-new-vegas-new-release-june-2026-anniversary-bundle/
+
+The Fallout: New Vegas 15th Anniversary Bundle is coming in June 2026, offering fans a very expensive way to own the game and some associated merch.
+---------
+
+# Dune: Part Three IMAX 70mm Tickets Now Available 8 Months Early
+
+Movies, Dune: Part Three, Sci-Fi
+
+Mon, 06 Apr 2026 16:59:24 GMT
+
+https://www.cbr.com/dune-part-3-imax-tickets-on-sale/
+
+Dune: Part Three, starring Timothée Chalamet, Zendaya, and Anya Taylor-Joy, opens IMAX 70mm ticket sales 8 months ahead of its Dec. 17 release.
+---------
+
+# The Boys Cast Knows Which Character Has Changed The Most Before The Show's End
+
+Comics, The Boys
+
+Mon, 06 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/the-boys-jack-quaid-erin-moriarty-a-train-character-development/
+
+Both Erin Moriarty and Jack Quaid agreed that this one character from The Boys has changed more than any other.
+---------
+
+# Who Is Isabel Simmons? Godzilla & Kong's New Human Villain Explained
+
+TV, Monsterverse, Monarch: Legacy of Monsters, Apple TV
+
+Mon, 06 Apr 2026 16:25:09 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-isabel-simmons-godzilla-kong-villain/
+
+Amber Midthunder's Isabel Simmons emerges as Godzilla and Kong's potential new human villain in Monarch: Legacy of Monsters.
+---------
+
+# Foundation Outpaces Star Wars in Sci-Fi Television Success
+
+TV, Foundation, Star Wars, Sci-Fi
+
+Mon, 06 Apr 2026 16:20:48 GMT
+
+https://www.cbr.com/apple-tv-foundation-sci-fi-series-beats-star-wars/
+
+Apple TV's Foundation surpasses Star Wars in captivating audiences with its complex storytelling and characters, setting a high bar for sci-fi TV.
+---------
+
+# Satoru Gojo Has Been Holding Jujutsu Kaisen Back
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime, Crunchyroll
+
+Mon, 06 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/satoru-gojo-held-jujutsu-kaisen-back/
+
+Jujutsu Kaisen Season 3 is proof that Gojo has been holding the anime back since day one.
+---------
+
+# The Boys Confirms Ashley As Unexpected Character To Take Superpowered Stand Against Homelander In Season 5
+
+TV, The Boys, Action
+
+Mon, 06 Apr 2026 16:14:17 GMT
+
+https://www.cbr.com/the-boys-unexpected-character-will-take-superpowered-stand-against-homelander-season-5/
+
+Homelander has no clue what's headed his way when The Boys pits him against someone he never saw coming.
+---------
+
+# Dr. Dennis Whitaker Takes Lead as The Pitt's Emotional Support
+
+TV, The Pitt
+
+Mon, 06 Apr 2026 16:13:42 GMT
+
+https://www.cbr.com/the-pitt-whitaker-dr-robby-replacement/
+
+As Dr. Robby spirals, Dennis Whitaker emerges as the emotional linchpin in The Pitt, supporting med students and filling the void left by the struggling ED head.
+---------
+
+# David Fincher's Controversial Sci-Fi Epic Drops 30-Minute-Longer Extended Cut on HBO Max
+
+Movie News, Alien 3, David Fincher, Sigourney Weaver, Ridley Scott
+
+Mon, 06 Apr 2026 16:56:15 GMT
+
+https://collider.com/alien-3-assembly-cut-release-hbo-max-april-2026-david-fincher/
+
+Controversial sci-fi sequel, David Fincher’s Alien 3: The Assembly Cut, is officially available to watch on a new streamer. Here’s where to find it.
+---------
+
+# 'Sicario' Meets 'Rush Hour' in Arnold Schwarzenegger’s Slept-On Action-Thriller Staging Streaming Comeback
+
+Movie News, Arnold Schwarzenegger, The Last Stand, Johnny Knoxville, Kim Jee-woon
+
+Mon, 06 Apr 2026 16:39:45 GMT
+
+https://collider.com/arnold-schwarzenegger-the-last-stand-streaming-success-tubi-april-2026/
+
+Sicario meets Rush Hour in Arnold Schwarzenegger’s underrated action thriller, The Last Stand, currently staging a streaming comeback.
+---------
+
+# 10 TV Shows Where Only One Character Was in Every Episode
+
+TV, The Sopranos, Seinfeld, Mad Men, Angel
+
+Mon, 06 Apr 2026 16:11:12 GMT
+
+https://collider.com/tv-shows-only-one-character-in-every-episode/
+
+Some TV shows only have one character appear in every single episode, like Tony in The Sopranos and Larry David as himself in Curb Your Enthusiasm.
+---------
+
+# Hulu’s 8-Part ‘Narcos’ Meets ‘Sicario’ Crime Thriller Is Taking Over the World
+
+TV News, Dear Killer Nannies, John Leguizamo, Pablo Escobar, Narcos
+
+Mon, 06 Apr 2026 16:10:25 GMT
+
+https://collider.com/narcos-meets-sicario-dear-killer-nannies-streaming-success-hulu-april-2026/
+
+Hulu’s new 8-part crime thriller series starring John Leguizamo as Pablo Escobar has taken over streaming in just 5 days.
+---------
+
+# New Record-Breaking Sci-Fi Blockbuster Is a Digital Hit Already
+
+Movie News, Avatar: Fire and Ash, Avatar, Avatar 4, Avatar 5
+
+Mon, 06 Apr 2026 16:08:14 GMT
+
+https://collider.com/avatar-3-fire-and-ash-digital-success-disney-april-2026/
+
+2025’s highest-grossing sci-fi masterpiece, starring Sigourney Weaver and Kate Winslet, is officially an instant hit on digital after 1 week.
+---------
+
+# When 'The Testaments' Releases on Hulu & Full Schedule
+
+Features, The Testaments
+
+Mon, 06 Apr 2026 17:01:18 GMT
+
+https://movieweb.com/the-testaments-hulu-release-schedule/
+
+'The Testaments,' the spin-off series of the popular sci-fi dystopian TV series 'The Handmaid's Tale,' will be released on Hulu on April 8, 2026.
+---------
+
+# 'Malcolm in the Middle' Star Erik Sullivan Rejected Huge Sum of Money to Return in Hulu Revival
+
+TV News, Malcolm in the Middle: Life's Still Unfair, Hulu
+
+Mon, 06 Apr 2026 16:59:22 GMT
+
+https://movieweb.com/malcolm-in-the-middle-erik-sullivan-return/
+
+Erik Sullivan will not be back for new 'Malcolm in the Middle' episodes, having rejected a major payday and staying retired from acting.
+---------
+
+# 'The Boys' Season 5 Lands Perfect Rotten Tomatoes Score
+
+TV News, The Boys
+
+Mon, 06 Apr 2026 16:47:19 GMT
+
+https://movieweb.com/the-boys-season-5-rotten-tomatoes/
+
+The final season of 'The Boys' does not hold back, according to early critic reviews.
+---------
+
 # Criminal Minds: Evolution Effectively Loses A BAU Member Ahead Of Season 4
 
 Network TV, Criminal Minds
