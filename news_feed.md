@@ -1,3 +1,212 @@
+# PlayStation Drops 6 New Free Downloads, No PS Plus Needed
+
+Gaming, PlayStation (Original)
+
+Mon, 06 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/playstation-6-free-downloads-april-2026-no-ps-plus/
+
+Discover 6 new free game demos available on PlayStation, no PS Plus required.
+---------
+
+# Firestorm Just Permanently Proved He's More Powerful Than Superman
+
+Comics, Justice League, Superman
+
+Mon, 06 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/firestorm-dc-most-powerful-hero/
+
+Scary powerful
+---------
+
+# Disney+ & Hulu April 2026: 6 Must-Watch New Movies
+
+Movies, Disney+, Hulu
+
+Mon, 06 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/disney-plus-movies-new-best-april-2026/
+
+Disney+ and Hulu offer a variety of new must-see movies this month, including an Oscar-winning feature and an original nature documentary.
+---------
+
+# Marvel Zombies Officially Returning For Season 2
+
+Marvel Comics, Marvel Zombies
+
+Mon, 06 Apr 2026 13:46:37 GMT
+
+https://screenrant.com/marvel-zombies-season-2-confirmation-brad-winderbaum/
+
+Marvel Zombies is officially returning for chaos and mayhem, as Brad Winderbaum confirms development has been underway with a tease of its future.
+---------
+
+# Best Dinosaur Movie Of The 2020s Is Now A Huge US Streaming Success
+
+Movies, Primitive War, Hulu
+
+Mon, 06 Apr 2026 13:37:02 GMT
+
+https://screenrant.com/primitive-war-hulu-streaming-success-april-2026/
+
+The best dinosaur movie of the 2020s is now a huge streaming success in the United States, just days after its debut at home.
+---------
+
+# Missing Young Sheldon Fan-Fave Finally Returns In Georgie & Mandy’s Season 2, Episode 15 Trailer
+
+Network TV, Georgie & Mandy's First Marriage, Young Sheldon, The Big Bang Theory
+
+Mon, 06 Apr 2026 13:36:23 GMT
+
+https://screenrant.com/georgie-and-mandys-first-marriage-season-2-episode-15-trailer-meemaw-return/
+
+Georgie & Mandy's First Marriage season 2, episode 15 trailer confirms the return of a fan-favorite Young Sheldon character after a long absence.
+---------
+
+# PlayStation Gamers Have 24 Hours To Grab 4 Free Games
+
+Gaming, PlayStation 5, Triple-A Games
+
+Mon, 06 Apr 2026 13:31:09 GMT
+
+https://screenrant.com/playstation-plus-24-hours-4-free-games/
+
+Act fast, as these games are set to expire very soon, and there are hidden gems in there that anyone should play, regardless of genre preference.
+---------
+
+# 3 Best Movies To Watch On Netflix This Week (April 6-10)
+
+Classic Movies, Netflix, Recommendation
+
+Mon, 06 Apr 2026 13:30:20 GMT
+
+https://screenrant.com/best-netflix-movies-watch-week-april-6/
+
+Want something good to watch on Netflix this week? Why not check out these three films that are sure to please even the pickiest streamer.
+---------
+
+# Venom's New Redesign Officially Includes Wolverine Claws
+
+Marvel Comics, Venom, Spider-Man, Marvel
+
+Mon, 06 Apr 2026 13:30:20 GMT
+
+https://screenrant.com/venom-redesign-new-costume-wolverine-claws/
+
+The latest addition to Marvel's symbiote family features a unique twist on Wolverine's iconic claws, which hints at this new character's identity.
+---------
+
+# JoJo's Bizarre Adventure Confirms Official Return Window And Weekly Release Schedule
+
+Anime, Netflix, JoJo's Bizarre Adventure
+
+Mon, 06 Apr 2026 13:25:25 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-steel-ball-run-return-schedule/
+
+Steel Ball Run is finally back.
+---------
+
+# Witch Hat Atelier Episodes 1 & 2 Review Crunchyroll Premiere
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Mon, 06 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-1-2-review-anime-crunchyroll-premiere/
+
+Witch Hat Atelier has finally debuted on Crunchyroll, and everyone was right. The premiere has more than lived up to all the hype.
+---------
+
+# Tom Cruise's Jack Reacher is The Perfect American James Bond
+
+Movies, James Bond, Jack Reacher
+
+Mon, 06 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/tom-cruise-james-bond-replacement-jack-reacher-trending-tubi/
+
+As easy as it might be to compare James Bond to Ethan Hunt, a Tom Cruise movie proves America has a much clearer counterpart to Ian Fleming's 007.
+---------
+
+# 'Witch Hat Atelier' Review: Crunchyroll's New Fantasy Anime Series Is Already One of Its Best
+
+TV Reviews, Witch Hat Atelier, Anime, Fantasy, Crunchyroll
+
+Mon, 06 Apr 2026 14:00:12 GMT
+
+https://collider.com/witch-hat-atelier-review-anime-crunchyroll/
+
+Witch Hat Atelier, based on the beloved manga, is a must-watch fantasy anime series on Crunchyroll.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 6, 2026
+
+TV, Breaking Bad, Better Call Saul, El Camino: A Breaking Bad Movie, Pluribus
+
+Mon, 06 Apr 2026 13:01:12 GMT
+
+https://collider.com/tv-quiz-apr-6-2026-breaking-bad/
+
+There's no wrong time to break bad with Walter White, Jesse Pinkman, Hank Schrader, and the rest of that Vince Gilligan universe. Let's start cookin'.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 6, 2026
+
+Movie, Major League, The Natural, 42, The Rookie
+
+Mon, 06 Apr 2026 13:00:12 GMT
+
+https://collider.com/movie-quiz-apr-6-2026-baseball-movies/
+
+It's springtime, and that can only mean one thing: it's time to step into the batter's box with these beloved baseball films. Don't strike out.
+---------
+
+# Cormac McCarthy Loved The Shows Taylor Sheridan "Tried to Make Good"
+
+Features, Taylor Sheridan, Quote
+
+Mon, 06 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/1883-1929-taylor-sheridan-cormac-mccarthy/
+
+Famous author Cormac McCarthy, who wrote 'The Road,' loved two of Taylor Sheridan's Western series.
+---------
+
+# Chris Hemsworth's Record-Breaking Action Thriller 'Extraction' Suddenly Explodes on Netflix
+
+Movie News, Chris Hemsworth, Extraction, Action, Netflix
+
+Mon, 06 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/chris-hemsworth-extraction-stream-april-2026/
+
+Six years later, one of the most-watched original films ever on Netflix has returned to the charts while audiences await sequel and spin-offs.
+---------
+
+# Marvel’s Weakest Link Is One of the Avengers, & Phase Six Needs To Fix It
+
+Features, MCU, Thor
+
+Mon, 06 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/thor-mcu-phase-six-fix/
+
+While 'Thor: Ragnarok' is one of the best Marvel Cinematic Universe, two of Thor's movies are considered the franchise's weakest entries.
+---------
+
+# Amazon's 'RoboCop' Reboot Reportedly Officially Moving Forward
+
+TV News, Robocop
+
+Mon, 06 Apr 2026 12:55:20 GMT
+
+https://movieweb.com/amazon-robocop-reboot-moving-foward/
+
+It's on the short list of projects that have been confirmed by new TV chief Peter Friedlander.
+---------
+
 # Elden Ring's Official Return Has Gamers Seriously Hyped
 
 Gaming, Elden Ring, PC
