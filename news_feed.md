@@ -1,3 +1,201 @@
+# Dune 3 Tickets Being Resold For As Much As $1000 As Moviegoers Complain About Worldwide IMAX Shortage
+
+Movies, Dune: Part Three, Dune, Warner Bros.
+
+Mon, 06 Apr 2026 23:02:26 GMT
+
+https://screenrant.com/dune-part-three-resold-ticket-prices-ebay-imax-shortage-complaint/
+
+Dune: Part Three tickets are being resold for as much as $1000, as moviegoers expressed their frustrations with the limited IMAX availability.
+---------
+
+# The New Power Rangers Series Arrives in Two Months, But Fans Are Already Worried
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Mon, 06 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/new-mighty-morphin-power-rangers-series-fans-not-happy-explainer/
+
+The Mighty Morphin Power Rangers are officially returning this summer with a brand-new series, but is it what fans truly want?
+---------
+
+# Shonen Jump's The Prince of Tennis Marks the End of an Era
+
+Anime, Shonen Jump, The Prince of Tennis
+
+Mon, 06 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/shonen-jump-the-new-prince-of-tennis-end-of-an-era/
+
+As the final match approaches this summer, fans needs to get ready to say goodbye to one of Shonen Jump's most classic and influential sports series.
+---------
+
+# It's Never Been A Better Time To Rewatch Prime Video's 4-Part Action Thriller Series
+
+Streaming TV, Tom Clancy's Jack Ryan
+
+Mon, 06 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/tom-clancy-jack-ryan-series-rewatch-2026/
+
+With the upcoming Jack Ryan: Ghost War movie coming to screens next month, now is the perfect time to watch Tom Clancy's Jack Ryan TV series.
+---------
+
+# An Iconic PlayStation 2 Trilogy Just Returned
+
+Gaming, Jak and Daxter, PlayStation 2
+
+Mon, 06 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/playstation-2-jak-trilogy-pc/
+
+A classic PlayStation trilogy is now playable on PCs for the first time ever, thanks to a modding team reviving its unique programming language.
+---------
+
+# New Star Wars Show’s Rotten Tomatoes Audience Score Breaks An All-Time Disney+ Record
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Mon, 06 Apr 2026 22:51:28 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-rotten-tomatoes-audience-score-disney-plus-record/
+
+In less than a day, the newest Star Wars show has broken an all-time Disney+ record following its audience debut score on Rotten Tomatoes.
+---------
+
+# After 20 Years, V for Vendetta Director Wants a Swamp Thing Adaptation
+
+DC Comics, V for Vendetta
+
+Mon, 06 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/v-for-vendetta-director-swamp-thing-adaptation/
+
+Off to the swamp.
+---------
+
+# Star Wars Has Found Its New Andor
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Andor, Star Wars
+
+Mon, 06 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-new-andor-thriller-series/
+
+Maul - Shadow Lord, the newest Star Wars show, follows in the footsteps of Andor by delivering a dark, mature, and complex story that appeals to adult viewers.
+---------
+
+# A League Of Their Own: The Ultimate Baseball Movie Before The New Women's League Starts
+
+Movies, A League of Their Own, Recommendation
+
+Mon, 06 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/a-league-of-their-own-good-womens-baseball-movie/
+
+The Women's Pro Baseball League begins this summer and before it launches, this baseball film is the ideal thing to watch in preparation.
+---------
+
+# The Rare 3-Season Sci-Fi Series Dark Matter Gave Stargate a Run for Its Money
+
+TV, Dark Matter, Stargate, syfy
+
+Mon, 06 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/sci-fi-dark-matter-gives-stargate-a-run-for-its-money/
+
+The Stargate universe is a massive, unique sci-fi setting, but two longtime producers created Dark Matter, a three-season show that is just as epic.
+---------
+
+# Perfect Double Features To Watch With 'The Good, the Bad, and the Ugly'
+
+Movies, Western, Clint Eastwood, The Good, the Bad and the Ugly
+
+Mon, 06 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/perfect-western-double-features-good-the-bad-and-the-ugly/
+
+The Good, the Bad and the Ugly has endured as the pinnacle of the Western for six decades, and has a treasure trove of choices for a double feature.
+---------
+
+# Prime Video Seals the Fate of The Office Remake, La Oficina
+
+TV, Prime Video, The Office
+
+Mon, 06 Apr 2026 22:40:21 GMT
+
+https://www.cbr.com/prime-video-renews-la-oficina/
+
+The future is sealed for the newest remake of The Office just one month after its premiere on Prime Video.
+---------
+
+# 20 Years Later, One of the Best Sitcoms Ever Returns this Week
+
+TV News, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Disney+, Bryan Cranston
+
+Mon, 06 Apr 2026 23:00:13 GMT
+
+https://collider.com/malcolm-in-the-middle-4-part-reunion-release-date-disney-hulu-april-2026/
+
+After 20 years away, the beloved sitcom Malcolm in the Middle is set to make a comeback this week with a 4-part revival titled Life's Still Unfair.
+---------
+
+# Zendaya's Controversial 57% RT Netflix Movie Is Officially Better 5 Years Later
+
+Movie Features, Zendaya, Sam Levinson, Malcolm & Marie, Netflix
+
+Mon, 06 Apr 2026 22:42:12 GMT
+
+https://collider.com/zendaya-malcolm-and-marie-netflix-movie-better-now/
+
+Zendaya's Netflix romance Malcolm & Marie from writer/director Sam Levinson is actually better now, five years later.
+---------
+
+# 3 Best Movies To Watch on Prime Video This Week (April 6-10)
+
+Movie, Prime Video, Crime 101, Being John Malkovich, The Terminator
+
+Mon, 06 Apr 2026 22:34:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-april-6/
+
+Being John Malkovich, The Terminator, and Crime 101 make our list of the best movies to watch on Prime Video the week of April 6, 2026.
+---------
+
+# 'Bridgerton's Breakout Star Reveals New Details About Emily Henry's Next Rom-Com Adaptation [Exclusive]
+
+Movie News, Phoebe Dynevor, Thrash, Bridgerton, People We Meet on Vacation
+
+Mon, 06 Apr 2026 22:30:12 GMT
+
+https://collider.com/phoebe-dynevor-bridgerton-new-rom-com-emily-henry-adaptation-beach-read-january-andrews/
+
+Phoebe Dynevor discusses her excitement about returning to the world of romance in the upcoming adaptation of Emily Henry's novel, Beach Read.
+---------
+
+# 'The Lord of the Rings: The War of the Rohirrim' is the Weakest Movie
+
+Features, The Lord of the Rings
+
+Mon, 06 Apr 2026 23:00:18 GMT
+
+https://movieweb.com/lord-of-rings-war-of-rohirrim-weak/
+
+After grossing over $5 billion, 'The Lord of the Rings: The War of the Rohirrim' set the epic fantasy action franchise way back
+---------
+
+# Robert Downey Jr. 'Avengers: Doomsday' Easter Post Hints at a Spider-Man Appearance
+
+Movie News, Avengers: Doomsday, MCU, Spider-Man, Robert Downey Jr.
+
+Mon, 06 Apr 2026 22:47:49 GMT
+
+https://movieweb.com/avengers-doomsday-robert-downey-jr-spider-man/
+
+The Doctor Doom actors Easter post featured a Spider-Man logo, hinting at one or more versions of the web-head appearing in the MCU team-up film.
+---------
+
 # HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
 
 Movies, HBO Max, Dune: Part Two, Dune
