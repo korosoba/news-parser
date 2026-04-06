@@ -1,3 +1,69 @@
+# Cyberpunk 2077: Edgerunners Game Officially Announced
+
+Gaming, Cyberpunk: Edgerunners, Cyberpunk 2077
+
+Mon, 06 Apr 2026 10:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-edgerunners-hunted-official-new-game/
+
+Cyberpunk: Edgerunners Hunted is a timer-based board game where players collaborate as Edgerunners to escape Night City before time runs out.
+---------
+
+# The Legend Of Zelda's Next Game Just Got Its First Official Teaser
+
+Gaming, The Legend of Zelda
+
+Mon, 06 Apr 2026 10:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-monolith-soft-teaser/
+
+Monolith Soft, the developer assisting Nintendo with The Legend of Zelda, confirms it will continue working on future Zelda games.
+---------
+
+# Nintendo Comic Book Team-Ups
+
+Comics, Nintendo, CSBG, The Line It Is Drawn
+
+Mon, 06 Apr 2026 03:59:44 GMT
+
+https://www.cbr.com/nintendo-comic-book-team-ups/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for comic book characters mashed up with famous Nintendo video games
+---------
+
+# The MCU’s Most Popular Series Makes Shock Debut on Hulu
+
+TV News, Charlie Cox, Vincent D'Onofrio, Daredevil: Born Again, Hulu
+
+Mon, 06 Apr 2026 10:31:12 GMT
+
+https://collider.com/daredevil-born-again-disney-marvel-reboot-streaming-hulu-april-2026/
+
+Shortly following Season 2's debut on Disney+, Daredevil: Born Again Season 1 is available for a limited time on Hulu.
+---------
+
+# 10 DC Comics Crossovers We Want To See in Movies
+
+Movie, DC Comics, Superhero, Sonic, Animation
+
+Mon, 06 Apr 2026 10:11:12 GMT
+
+https://collider.com/dc-comics-crossovers-movies/
+
+DC Comics on the page have presented crossovers that would be great on film, from The Terminator to Sonic the Hedgehog.
+---------
+
+# 1 Year Later, the 'Solo Leveling' Movie Finally Gets an Official Update
+
+Movie News, Solo Leveling, Anime, Action, Fantasy
+
+Mon, 06 Apr 2026 10:01:12 GMT
+
+https://collider.com/solo-leveling-anime-movie-update-animec-film-distributor/
+
+The potential Solo Leveling film receives a boost with the formation of ANIMEC, which plans to distribute a wealth of new anime movies.
+---------
+
 # 15 Biggest Easter Eggs & Star Wars References In Maul - Shadow Lord Episodes 1-2
 
 TV, Star Wars: Maul - Shadow Lord, Star Wars
