@@ -1,3 +1,300 @@
+# Criminal Minds: Evolution Effectively Loses A BAU Member Ahead Of Season 4
+
+Network TV, Criminal Minds
+
+Mon, 06 Apr 2026 16:02:20 GMT
+
+https://screenrant.com/criminal-minds-evolution-officially-loses-a-bau-member-ahead-of-season-4/
+
+Ahead of the BAU's return for Criminal Minds: Evolution season 4, the Emily Prentiss-led team has officially lost an important member to the squad.
+---------
+
+# Dune 3 Sets Major Leg Up In Avengers: Doomsday Box Office Battle
+
+Movies, Dune: Part Three, Dune, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 06 Apr 2026 16:01:52 GMT
+
+https://screenrant.com/dune-part-three-avengers-doomsday-imax-ticket-sale/
+
+Dune 3 and Avengers: Doomsday will be released on the same day, and Warner Bros. is ensuring the former has an advantage going into opening weekend.
+---------
+
+# Ready Or Not, Abigail, & Ready Or Not 2: Exploring Class Struggles In A Secret Horror Trilogy
+
+Movies, Ready or Not, Abigail, Ready or Not 2: Here I Come
+
+Mon, 06 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/ready-or-not-2-horror-trilogy-radio-silence/
+
+Ready or Not 2 has been a modest hit for many horror fans, but very few may know that it's secretly the end to a loose trilogy by Radio Silence.
+---------
+
+# Amazon's Upcoming Sci-Fi Thriller Series Will Save A Dying Franchise
+
+TV, Robocop, RoboCop
+
+Mon, 06 Apr 2026 15:29:05 GMT
+
+https://screenrant.com/prime-video-robocop-sci-fi-series-reboot-franchise/
+
+The timing of Prime's reboot of an iconic sci-fi series couldn't be more perfect, as dystopian elements from the original are increasingly realistic.
+---------
+
+# Jessica Lange’s American Horror Story Return Confirmed In First Season 13 Image From Ryan Murphy
+
+TV, American Horror Story
+
+Mon, 06 Apr 2026 15:28:11 GMT
+
+https://screenrant.com/american-horror-story-season-13-jessica-lange-return-first-image/
+
+The queen of scream is making a return to Ryan Murphy's American Horror Story after 11 years for the upcoming release of season 13.
+---------
+
+# Tom Hanks' 12-Part HBO Space Series From 26 Years Ago Quietly Returns As Streaming Success At The Perfect Time
+
+TV, From The Earth To The Moon
+
+Mon, 06 Apr 2026 15:24:52 GMT
+
+https://screenrant.com/tom-hanks-from-the-earth-to-the-moon-vod-streaming-success-april-2026/
+
+Tom Hanks' HBO space series is enjoying a resurgence in popularity on streaming against the backdrop of NASA's Artemis II missions.
+---------
+
+# "Explains Everything": Meryl Streep's Genetic Relation To Devil Wears Prada-Inspired Figure Revealed
+
+Movies, The Devil Wears Prada, Meryl Streep
+
+Mon, 06 Apr 2026 15:21:45 GMT
+
+https://screenrant.com/meryl-streep-anna-wintour-related-devil-wears-prada-connection/
+
+Meryl Streep’s character in The Devil Wears Prada is based on a real-life fashion editor, and she just found out that the two of them are related.
+---------
+
+# Massively Popular Isekai Anime Hit With Huge AI Art Allegations
+
+Anime, Ascendance of a Bookworm, Crunchyroll
+
+Mon, 06 Apr 2026 15:11:53 GMT
+
+https://screenrant.com/ascendance-bookworm-ai-art-allegations-explained/
+
+One of Crunchyroll's most anticipated isekai returns is undermined by AI art allegations based on its new OP.
+---------
+
+# Cyberpunk 2077 Returns With A Long-Awaited Sequel
+
+Comics, Cyberpunk 2077
+
+Mon, 06 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-chrome-dark-horse-comics-sequel/
+
+Cyberpunk 2077 fans finally get the follow up to the hit series that they've been waiting for.
+---------
+
+# Jessica Rabbit is an Asexual Icon in Who Framed Roger Rabbit
+
+Movies, Who Framed Roger Rabbit, LGBTQ, Comedy
+
+Mon, 06 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/jessica-rabbit-who-framed-roger-rabbit-asexual-icon/
+
+Jessica Rabbit is the one of the most famous sex symbols in movie history, but she is also an empowering female character and a diverse asexual icon.
+---------
+
+# The Boys Season 5 Review: The Anti-Superhero Series Comes to a Bombastic End
+
+TV, The Boys
+
+Mon, 06 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/the-boys-season-5-review/
+
+The Boys turns up the hilarity, drama and violence as it draws to an explosive close in Season 5.
+---------
+
+# New Zelda Game Officially Arrives April 17 (But There's a Catch)
+
+Games, The Legend of Zelda
+
+Mon, 06 Apr 2026 15:45:12 GMT
+
+https://www.cbr.com/new-legend-of-zelda-game-2026-uno/
+
+A new Legend of Zelda game is coming this month, but fans will have to wait longer for the Ocarina of Time remake.
+---------
+
+# Marvel Officially Reveals This Despised Spider-Man Character Is Dead
+
+Comics, Spider-Man
+
+Mon, 06 Apr 2026 15:22:56 GMT
+
+https://www.cbr.com/marvel-officially-reveals-paul-rabin-is-dead/
+
+You won't be missed.
+---------
+
+# 10 Dragon Ball Villains Who Can Follow Black Frieza
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Mon, 06 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-villains-stronger-than-black-frieza/
+
+There are many Dragon Ball villains who either are already stronger than Black Frieza, or have the potential to surpass him.
+---------
+
+# Judy Greer’s New Coming-of-Age Indie Movie Sets Release Date With First Trailer [Exclusive]
+
+Movie News, Mabel, Judy Greer, Movie Trailers, New York
+
+Mon, 06 Apr 2026 16:00:13 GMT
+
+https://collider.com/judy-greer-next-movie-mabel-trailer-release-date/
+
+Check out the first official trailer for Mabel, Judy Greer's new drama that was an Official Selection at the San Francisco Film Festival in 2024.
+---------
+
+# 'The Boys' Season 5 Review: Prime Video's Superhero Show Is Set to End on a Diabolical High Note
+
+TV Reviews, The Boys, Prime Video, Eric Kripke, Karl Urban
+
+Mon, 06 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-boys-season-5-review-prime-video/
+
+Once it's all over, The Boys Season 5 has the potential to be one of the series' best chapters — vulgar, violent, and satisfyingly intense.
+---------
+
+# 'Stranger Things' Creators' New 8-Part Netflix Series is Taking Over the World
+
+TV News, Something Very Bad Is Going to Happen, Stranger Things, Netflix, Streaming
+
+Mon, 06 Apr 2026 15:57:16 GMT
+
+https://collider.com/netflix-8-part-horror-series-stranger-things-creators-something-very-bad-is-going-to-happen-streaming-success-april/
+
+Netflix’s new 8-part horror thriller series from the creators of Stranger Things is quietly taking over the world on streaming.
+---------
+
+# Prime Video’s 116-Minute Jude Law-Led Crime Thriller Takes Over the World
+
+Movie News, Prime Video, The Order, Jude Law, Heat
+
+Mon, 06 Apr 2026 15:56:33 GMT
+
+https://collider.com/the-order-prime-video-crime-thriller-streaming-success-april-2026/
+
+Prime Video’s Jude Law-led terrorist thriller, The Order, is officially making a streaming comeback 2 years later.
+---------
+
+# 'The Boys' Best Spin-Off Gets Major Season 3 Update Amid Renewal Uncertainty [Exclusive]
+
+TV News, The Boys, Gen V, Eric Kripke, Prime Video
+
+Mon, 06 Apr 2026 15:55:43 GMT
+
+https://collider.com/gen-v-season-3-status-update-prime-video-the-boys-spin-off-eric-kripke/
+
+Eric Kripke discusses Gen V Season 3 and if The Boys spinoff series will get another season at Prime Video.
+---------
+
+# Biblical Epic That Made 4x Its Budget Back at the Box Office Blows Up on Streaming
+
+Movie News, Son of God, Religious, Jesus, History
+
+Mon, 06 Apr 2026 15:46:56 GMT
+
+https://collider.com/son-of-god-streaming-success-prime-video-april-2026-easter-weekend/
+
+12 years later, one of the highest-grossing religious films of all time has seen a spike in streaming success over Easter weekend.
+---------
+
+# Cillian Murphy’s $80M Sci-Fi Horror Hit Officially Takes Over Streaming After Making 10x Its Budget
+
+Movie News, 28 Days Later, Cillian Murphy, 28 Years Later, 28 Years Later: The Bone Temple
+
+Mon, 06 Apr 2026 15:43:38 GMT
+
+https://collider.com/28-days-later-cillian-murphy-cult-classic-streaming-success-hbo-max-april-2026/
+
+Nearly 25 years later, Cillian Murphy’s low-budget cult classic breakout horror hit is officially a streaming smash hit again.
+---------
+
+# Prime Video’s 5-Part Faith-Based Series Dominates Streaming Over Easter Weekend
+
+TV News, The Chosen, Jonathan Roumie, Dallas Jenkins
+
+Mon, 06 Apr 2026 15:39:32 GMT
+
+https://collider.com/the-chosen-5-part-series-streaming-success-prime-video-netflix-april-2026/
+
+The Chosen, a 5-part religious epic following the life of Jesus, has taken over streaming around the world during Easter weekend.
+---------
+
+# Movies with the Most Star-Studded Casts
+
+Movie Lists, Drama
+
+Mon, 06 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/movies-with-star-studded-casts/
+
+Many fans will watch a movie because of a certain actor in it, but what about those with a huge A-lister cast?
+---------
+
+# Netflix's 'Detective Hole' Is Now a Global Streaming Sensation
+
+TV News, Jo Nesbø's Detective Hole, Hot on Streaming, Thriller, Netflix
+
+Mon, 06 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/detective-hole-crime-thriller-netflix-success-april-2026/
+
+Netflix's adaptation of author Jo Nesbø's phenomenal book series has quickly become an international hit on streaming, but will there be a Season 2?
+---------
+
+# Funko Unveils 'Stranger Things: Tales From '85' Pop! Animation Collection [Exclusive]
+
+TV News, Stranger Things: Tales from '85, Stranger Things, funko, Netflix
+
+Mon, 06 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-funko-pop-collection/
+
+Funko has unveiled a new 'Stranger Things: Tales From '85' Pop! Vinyl Animation collection, offering a closer look at Hawkins’ newest character.
+---------
+
+# 'Yellowstone': New 2026 Sequel Can Fix Worst Character Arc
+
+Features, Yellowstone, Dutton Ranch
+
+Mon, 06 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/yellowstone-beth-dutton-ranch-show/
+
+It's never too late for redemption (yee-haw).
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Debuts With 100% on Rotten Tomatoes
+
+TV News, Star Wars: Maul - Shadow Lord, Star Wars
+
+Mon, 06 Apr 2026 15:46:22 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-rotten-tomatoes/
+
+Premiering on Disney+ on April 6, 'Star Wars: Maul – Shadow Lord' explores Maul’s missing years after 'The Clone Wars.'
+---------
+
 # Marvel Announces the Origin Of 4 New Heroes and Villains
 
 Comics, Marvel
