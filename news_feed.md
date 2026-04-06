@@ -1,3 +1,135 @@
+# Wagner Moura Stars in Disney+ Spy Thriller Maul - Shadow Lord, Perfect Narcos Replacement
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Wagner Moura, Narcos
+
+Mon, 06 Apr 2026 23:46:19 GMT
+
+https://screenrant.com/wagner-moura-star-wars-maul-shadow-lord-narcos-replacement/
+
+Brazilian actor Wagner Moura finds the perfect follow-up to his Narcos role in a new Disney+ spy thriller series, showcasing his range as both hero and villain.
+---------
+
+# Glen Powell’s New Western Star Comedy Film Officially Reveals Title & Release Date
+
+Movies, Glen Powell, Judd Apatow
+
+Mon, 06 Apr 2026 23:35:07 GMT
+
+https://screenrant.com/glen-powell-judd-apatow-the-comeback-king-comedy-release-date/
+
+Glen Powell and Judd Apatow's new comedy movie now has its official title and release date revealed as the actor and director team up.
+---------
+
+# Stephen King's Holly Gibney Character Gets TV Show Adaptation
+
+Streaming TV, Stephen King
+
+Mon, 06 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/stephen-king-holly-gibney-tv-show-development-status/
+
+Amid all the news about ongoing Stephen King adaptations, it's easy to forget that his best new character of recent years is also getting a TV show.
+---------
+
+# 15 Best Minecraft Seeds For Villages
+
+Gaming, Minecraft, PC, Triple-A Games
+
+Mon, 06 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/minecraft-best-villages-seeds/
+
+Minecraft players can use seeds to create worlds with unique villages, which offer trade and shelter for anyone preparing for future adventures.
+---------
+
+# The Boys, Star Wars & More: This Week’s 5 Biggest Shows Are on Every Streaming Platform – And They're Worth Starting Now
+
+Streaming TV
+
+Mon, 06 Apr 2026 23:18:19 GMT
+
+https://screenrant.com/the-boys-star-wars-biggest-shows-this-week-streaming/
+
+The Boys, Star Wars & more: the 5 biggest shows this week across major streaming platforms include the best new series worth starting right now.
+---------
+
+# Netflix Officially Confirms New Jujutsu Kaisen Release Date
+
+Anime, Jujutsu Kaisen, Netflix
+
+Mon, 06 Apr 2026 23:32:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-netflix-release-date-america/
+
+While it will still be quite some time before JJK Season 3 is added to Netflix, Season 2 is about to hit the streaming service.
+---------
+
+# Netflix Unveils Lord of the Flies Trailer
+
+TV, Lord of the Flies
+
+Mon, 06 Apr 2026 23:25:13 GMT
+
+https://www.cbr.com/lord-of-the-flies-netflix-trailer/
+
+Netflix's newest adaptation of a 72-year-old story could be the most brutal one yet.
+---------
+
+# Harry Potter Star’s Forgotten Historical Mystery Is Suddenly a Streaming Hit Again
+
+Movie News, Risen, Tom Felton, Joseph Fiennes, Religious
+
+Mon, 06 Apr 2026 23:45:12 GMT
+
+https://collider.com/risen-harry-potter-star-tom-felton-faith-based-mystery-movie-streaming-success-easter/
+
+Harry Potter star Tom Felton was featured alongside Joseph Fiennes in the biblical mystery film Risen, which saw a viewership spike on Easter.
+---------
+
+# Netflix's 6-Part Courtroom Thriller Is So Good, You'll Finish It in One Sitting
+
+TV Features, Anatomy of a Scandal, Sienna Miller, Netflix, Thriller
+
+Mon, 06 Apr 2026 23:33:13 GMT
+
+https://collider.com/anatomy-of-a-scandal-netflix-binge-one-sitting/
+
+Netflix's Anatomy of a Scandal, starring Sienna Miller, Rupert Friend, and Michelle Dockery, is a binge-worthy thriller from David E. Kelley.
+---------
+
+# 20+ Years Later, This Biblical Epic Is Still One of the Most Talked-About Films Ever
+
+Movie News, Mel Gibson, The Passion of the Christ, The Resurrection of the Christ Part 1, The Resurrection of the Christ Part 2
+
+Mon, 06 Apr 2026 23:30:13 GMT
+
+https://collider.com/the-passion-of-the-christ-mel-gibson-biblical-epic-streaming-success-april-2026/
+
+Mel Gibson's controversial 2004 film The Passion of the Christ is experiencing a resurgence on Netflix as fans eagerly await the long-awaited sequel.
+---------
+
+# James Gunn's DCU Wonder Woman Movie Needs This 1 Detail for It To Be a Masterpiece
+
+Movie Features, Wonder Woman (DCU), DCU, James Gunn, Patty Jenkins
+
+Mon, 06 Apr 2026 23:08:13 GMT
+
+https://collider.com/james-gunn-wonder-woman-movie-female-director/
+
+In order for James Gunn's Wonder Woman movie to be a huge success, it needs to have a female director.
+---------
+
+# Amazon's 'Mass Effect' Delays Reportedly Due to Script Approvals
+
+TV News, Mass Effect
+
+Mon, 06 Apr 2026 23:39:18 GMT
+
+https://movieweb.com/amazon-mass-effect-tv-show-delay-update/
+
+New rules from Amazon MGM's head of global TV may delay the release of this TV adaptation.
+---------
+
 # Dune 3 Tickets Being Resold For As Much As $1000 As Moviegoers Complain About Worldwide IMAX Shortage
 
 Movies, Dune: Part Three, Dune, Warner Bros.
