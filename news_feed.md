@@ -1,3 +1,157 @@
+# CBS's Marshals Officially Leaves Yellowstone In The Past
+
+Network TV, Marshals, Yellowstone
+
+Tue, 07 Apr 2026 12:02:19 GMT
+
+https://screenrant.com/marshals-episode-6-leaves-yellowstone-past/
+
+A little more than a month since it premiered on CBS, Luke Grimes' Marshals officially leaves Yellowstone in the past and moves forward.
+---------
+
+# Uncharted 5 Leak Confirms Why Series Has Been Gone So Long
+
+Gaming, Uncharted
+
+Tue, 07 Apr 2026 12:01:18 GMT
+
+https://screenrant.com/uncharted-5-delay-covid-leaks/
+
+Insider Gaming shares details on the potential cancellation of Uncharted 5 during the COVID-19 pandemic.
+---------
+
+# There's Officially A New Contender For Superman's Strongest Villain
+
+DC Comics, Superman
+
+Tue, 07 Apr 2026 12:01:18 GMT
+
+https://screenrant.com/superman-strongest-villain-epoch/
+
+DC officially brings back an underrated Superman villain who contends for the title of the Man of Steel's strongest enemy with a single punch.
+---------
+
+# Top 10 Kids Movies From The 2010s
+
+Movies, Moana, Toy Story 3, Inside Out, Frozen, Despicable Me, The Jungle Book, The Lego Movie, Wreck-It Ralph, How to Train Your Dragon, Megamind
+
+Tue, 07 Apr 2026 12:01:18 GMT
+
+https://screenrant.com/best-2010s-kids-movies-ever/
+
+The 2010s were a phenomenal time for kids' movies, with iconic animated releases and films so good they launched entire franchises.
+---------
+
+# What Time The Boys Season 5, Episodes 1 & 2 Release On Prime Video
+
+Streaming TV, The Boys
+
+Tue, 07 Apr 2026 11:58:09 GMT
+
+https://screenrant.com/what-time-the-boys-season-5-premiere-prime-video/
+
+The Boys season 5 is on its way to wrap up Prime Video's superhero action series after seven years, and here's when you can find new episodes.
+---------
+
+# GTA 6 Release Date Update Addresses Third Delay
+
+Gaming, Grand Theft Auto 6, PC
+
+Tue, 07 Apr 2026 11:40:39 GMT
+
+https://screenrant.com/gta-6-release-date-update-april-2026-delay-three-fears/
+
+As Grand Theft Auto 6 gears up for its official launch in November 2026, fans fear a potential third delay due to unforeseen setbacks.
+---------
+
+# Hogwarts Legacy Fans Campaign To "Save" Sequel Following Official Announcement
+
+Gaming, Hogwarts Legacy
+
+Tue, 07 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/hogwarts-legacy-sequel-campaign-save-game/
+
+Fans of the critically acclaimed Hogwarts Legacy game are campaigning to prevent the upcoming sequel from becoming a live-service title.
+---------
+
+# M.A.S.K Finally Makes Its Long-Awaited Return With
+
+Comics, M.A.S.K., Skybound Entertainment
+
+Tue, 07 Apr 2026 12:01:12 GMT
+
+https://www.cbr.com/skybound-mask-first-look-energon-special-blind-bags/
+
+Skybound and Hasbro reveal a first look at M.A.S.K's arrival to the Energon Universe alongside G.I. Joe and Transformers.
+---------
+
+# 6 Addictive Courtroom Dramas to Watch If You Love The Lincoln Lawyer
+
+TV, The Lincoln Lawyer, Suits, The Good Wife
+
+Tue, 07 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/best-courtroom-dramas-like-the-lincoln-lawyer-list/
+
+There are many addictive courtroom dramas like The Lincoln Lawyer to watch after the beloved Netflix series.
+---------
+
+# Arnold Schwarzenegger's $261M Franchise Failure That Only Made 1.5x Its Budget Redeems Itself on Streaming
+
+Movie News, Arnold Schwarzenegger, Terminator, Terminator: Dark Fate, Linda Hamilton
+
+Tue, 07 Apr 2026 12:01:12 GMT
+
+https://collider.com/arnold-schwarzenegger-terminator-dark-fate-streaming-success-paramount-plus-april-2026/
+
+Terminator: Dark Fate, the 2019 Arnold Schwarzenegger-led film that underperformed at the box office, is now finding success on Paramount+.
+---------
+
+# 10 Greatest Revenge Westerns of All Time, Ranked
+
+Movie, Western, Django Unchained, High Plains Drifter, Once Upon a Time in the West
+
+Tue, 07 Apr 2026 11:52:12 GMT
+
+https://collider.com/best-revenge-westerns-all-time-ranked/
+
+From Tombstone to Once Upon a Time in the West, True Grit to Unforgiven, these are the best revenge Westerns of all time.
+---------
+
+# Alan Ritchson’s Addictive Action Epic Surges on Streaming Ahead of Next Sequel
+
+Movie News, Fast Forever, Fast & Furious, Vin Diesel, Alan Ritchson
+
+Tue, 07 Apr 2026 11:30:12 GMT
+
+https://collider.com/alan-ritchson-action-movie-fast-x-streaming-success-vudu-april-2026/
+
+Discover Alan Ritchson's latest Fast & Furious movie, which is topping the streaming charts ahead of the final film Fast Forever.
+---------
+
+# Taylor Sheridan Action Thriller 'Sicario' Set to Depart Netflix
+
+Movie News, Sicario, Coming/Leaving Streaming, Taylor Sheridan, Action
+
+Tue, 07 Apr 2026 12:01:17 GMT
+
+https://movieweb.com/sicario-taylor-sheridan-leaving-netflix-streaming-april-2026/
+
+The 91% rated action thriller some have called Sheridan's best movie is set to leave Netflix at the end of April.
+---------
+
+# 'The X-Files' Had an Amazing Season 10 Before 2016's Revival Series Premiered
+
+Features, The X-Files, Sci-Fi
+
+Tue, 07 Apr 2026 12:01:17 GMT
+
+https://movieweb.com/the-x-files-season-10-before-revival/
+
+The 2016 'X-Files' revival brought Mulder and Scully back, but the duo was already thriving in a compelling Season 10 before it premiered.
+---------
+
 # Fallout 5 Teaser Confirms We'll Be Playing This Game For A Very Long Time
 
 Gaming, Fallout, Fallout 5
