@@ -1,3 +1,311 @@
+# Marvel's First Avengers: Doomsday Trailer Was Exactly What The MCU Movie Needed
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 07 Apr 2026 15:50:20 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-captain-america-reveal-mcu-boost/
+
+Marvel's first Avengers: Doomsday trailer is perfect, serving as exactly the kind of boost the franchise needed, and there is a very clear reason why.
+---------
+
+# ABC Refuses To Give Up On The Rookie’s Most Hated Gimmick
+
+Network TV, The Rookie
+
+Tue, 07 Apr 2026 15:50:20 GMT
+
+https://screenrant.com/the-rookie-documentary-hated-abc-give-up-refuse/
+
+Despite strong opposition from fans, ABC just doesn't want to give up on The Rookie's most hated storytelling gimmick, as it retuns in season 8.
+---------
+
+# Xbox Game Pass Unleashes Almost 20 Free Games This Month
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Tue, 07 Apr 2026 15:47:28 GMT
+
+https://screenrant.com/xbox-game-pass-april-2026-wave-1/
+
+April is shaping up to be a huge month for Xbox Game Pass subscribers, with nearly 20 games coming to the service and more on the way later.
+---------
+
+# Taylor Sheridan's New 13-Part Western Series Finally Dethrones Biggest Paramount Competition To Capture #1 Streaming Spot
+
+TV, Marshals, Yellowstone, Taylor Sheridan
+
+Tue, 07 Apr 2026 15:33:23 GMT
+
+https://screenrant.com/marshals-number-one-south-park-dethroned-paramount-plus-streaming-success/
+
+Taylor Sheridan's new, 13-part Western TV series finally dethrones its biggest Paramount competition, capturing the Number 1 streaming spot worldwide.
+---------
+
+# Daredevil: Born Again Just Teased The MCU's Future Captain America
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Tue, 07 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/daredevil-born-again-captain-america-danielle-cage-tease/
+
+A future Captain America has been teased through Daredevil: Born Again. There's a new character who could replace Steve Rogers and Sam Wilson.
+---------
+
+# 10 Classic Rock Masterpieces That Were Designed To Be Played At Max Volume
+
+Music, Classic Rock, Rock, Aerosmith, AC/DC, The Who, The Beatles
+
+Tue, 07 Apr 2026 15:27:55 GMT
+
+https://screenrant.com/loudest-classic-rock-songs-ranked/
+
+Classic rock wasn't just about the hooks—it was about the power. Discover the 10 loudest songs ever recorded from the genre.
+---------
+
+# HBO’s Gritty New Time-Jumping Thriller Series From Baby Reindeer Creator Unveiled In New Half Man Trailer
+
+TV, Half Man
+
+Tue, 07 Apr 2026 15:16:35 GMT
+
+https://screenrant.com/half-man-hbo-max-trailer/
+
+The trailer for Richard Gadd's Half Man has been released, previewing the gritty crime thriller follow-up to Baby Reindeer.
+---------
+
+# Netflix's Best Action Thriller Becomes Global Smash Hit After Season 2 Release
+
+TV, Netflix, Bloodhounds
+
+Tue, 07 Apr 2026 14:46:25 GMT
+
+https://screenrant.com/bloodhounds-season-2-netflix-streaming-success-april-2026/
+
+Netflix's impressive action thriller series has finally returned after a long 3-year wait, and it is already dominating streaming charts worldwide.
+---------
+
+# Rick & Morty Face Intense New Villain As Space Beth Rejoins The Family In Season 9 Trailer
+
+TV, Rick and Morty
+
+Tue, 07 Apr 2026 14:44:36 GMT
+
+https://screenrant.com/rick-and-morty-season-9-trailer/
+
+Adult Swim has officially released the trailer for Rick and Morty season 9, featuring even more mayhem, as Space Beth rejoins the family.
+---------
+
+# Harry Potter's Tom Felton Officially Extends Draco Malfoy Run For Another Six Months
+
+Movies, Harry Potter and the Cursed Child, Harry Potter, Tom Felton
+
+Tue, 07 Apr 2026 14:30:40 GMT
+
+https://screenrant.com/harry-potter-and-the-cursed-child-tom-felton-draco-malfoy-run-extended/
+
+Tom Felton recently stepped back into Draco Malfoy’s shoes after starring in the eight Harry Potter films, and now his run has been extended.
+---------
+
+# The One Daredevil Storyline Born Again's Showrunner Doesn't Want To Tell
+
+TV, Marvel, MCU, Daredevil: Born Again, Daredevil
+
+Tue, 07 Apr 2026 15:38:57 GMT
+
+https://www.cbr.com/daredevil-born-again-storyline-marvel-does-not-want-to-tell-disney-plus/
+
+The world might never see this Daredevil story told, no matter how much Marvel might disagree.
+---------
+
+# Ducky Returns to NCIS and NCIS: Origins for a Historic Franchise Milestone
+
+TV, NCIS, NCIS: Origins, CBS
+
+Tue, 07 Apr 2026 15:28:10 GMT
+
+https://www.cbr.com/ncis-origins-dr-donald-ducky-mallard-makes-history/
+
+David McCallum's Dr. Donald 'Ducky' Mallard makes a return to NCIS and NCIS: Origins, with Adam Campbell playing the younger version in back-to-back episodes.
+---------
+
+# NCIS: Origins Outperforms Yellowstone Spinoff in Native American Storytelling
+
+TV, Yellowstone, Marshals, CBS, NCIS: Origins
+
+Tue, 07 Apr 2026 15:25:55 GMT
+
+https://www.cbr.com/ncis-origins-vs-marshals-native-american-representation/
+
+NCIS: Origins delivers a superior Native American narrative compared to Yellowstone's Marshals, positioning Dr. Téngalkat as the hero of his own story and addressing real-world policy.
+---------
+
+# Witch Hat Atelier Episode 3 Release Date & Time
+
+Anime, Witch Hat Atelier
+
+Tue, 07 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-3-release-date/
+
+Witch Hat Atelier's double-episode premiere covered a lot, perfectly setting up Coco's journey to officially begin in Episode 3.
+---------
+
+# Sam Witwer Hints at Maul’s Hidden Story in Star Wars
+
+TV, Star Wars: Maul - Shadow Lord
+
+Tue, 07 Apr 2026 15:10:44 GMT
+
+https://www.cbr.com/video/sam-witwer-hints-at-maul-s-hidden-story-in-star-wars/
+
+Sam Witwer reveals a deeper, more human side to the iconic Sith.From hidden relationships to a life Sidious may not have fully controlled, Shadow Lord opens the door to new interpretations of Maul. He also breaks down how the music shapes the emotional core of the series and why it feels like another character entirely. This is a must-watch for Star Wars fans looking for fresh Maul lore.
+---------
+
+# Cillian Murphy's Panned Action Thriller Is Available on Free Streaming 7 Years After Flopping in Theaters
+
+Movies
+
+Tue, 07 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/cillian-murphy-action-thriller-anna-pluto-tv-april-2026/
+
+Despite a disastrous box-office run, Murphy's spy thriller flick directed by The Fifth Element's Luc Besson is now available on free streaming.
+---------
+
+# House Still Defines ’80s Practical Effects
+
+Movies, House
+
+Tue, 07 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/house-1985-define-80s-practical-effects/
+
+The '80s had amazing horror movies, but one of the most underrated also defined the importance of practical effects during that time.
+---------
+
+# Nintendo Delivered a Near-Perfect Game Boy Game That Everyone Forgot About
+
+Games, Nintendo, Mario
+
+Tue, 07 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/best-forgotten-game-boy-game-super-mario-land/
+
+Not all Game Boy games have been well-remembered, including one launch title.
+---------
+
+# Pacific Rim's Sequel Officially Gets A First Look
+
+Comics, Pacific Rim
+
+Tue, 07 Apr 2026 14:52:32 GMT
+
+https://www.cbr.com/pacific-rim-final-breach-first-look-revealed/
+
+Go big or go extinct (again).
+---------
+
+# Marvel's Thunderbolts Director Teases Multiple X-Men Movies in MCU Expansion
+
+Movies, Marvel Cinematic Universe, X-Men (Film), superheroes
+
+Tue, 07 Apr 2026 14:38:43 GMT
+
+https://www.cbr.com/x-men-reboot-marvel-mcu-multiple-movies-jake-schreier-confirms/
+
+Thunderbolts director Jake Schreier confirms Marvel is already considering additional X-Men movies in the MCU.
+---------
+
+# ‘Invincible’ Drops Surprise New Project This Week
+
+TV News, Invincible, Prime Video, Steven Yeun, J.K. Simmons
+
+Tue, 07 Apr 2026 15:49:38 GMT
+
+https://collider.com/invincible-vs-video-game-beta-open-to-play-april-9-11-playstation-x-box/
+
+Invincible is officially launching a new expansion this week as new video game Invincible VS officially opens a playable beta version.
+---------
+
+# ‘Bob’s Burgers’ Celebrates 300 Episodes With Must-See New Loungefly Collection [Exclusive]
+
+Exclusives, Bob's Burgers, Disney, Fox, Hulu
+
+Tue, 07 Apr 2026 15:00:13 GMT
+
+https://collider.com/bobs-burgers-loungefly-collection-first-look-images/
+
+Discover Loungefly's new Bob's Burgers collection, featuring must-have items and easter eggs for fans, celebrating over 300 episodes of the hit sitcom
+---------
+
+# The Who's 1965 Classic Hit Turns 60 and Is Still One of the Greatest Rock Songs Ever
+
+Music Features, Music, Rock, The Who: Live in Boston, Billboard Hot 100
+
+Tue, 07 Apr 2026 14:10:49 GMT
+
+https://collider.com/the-who-1965-classic-hit-my-generation-turns-60/
+
+The Who captured youth rebellion in 1965 with a raw, defiant anthem that gave a frustrated generation a powerful and unforgettable voice.
+---------
+
+# Angel Studios Releases New Trailer for Andy Serkis's Animated 'Animal Farm'
+
+Movie News, Animal Farm, Andy Serkis
+
+Tue, 07 Apr 2026 15:36:46 GMT
+
+https://movieweb.com/animal-farm-andy-serkis-new-trailer/
+
+Andy Serkis's new animated movie, 'Animal Farm,' had its first official trailer released, teasing a new take on the classic Orwell novella.
+---------
+
+# 'Wuthering Heights' Director Emerald Fennell in Talks for 'Basic Instinct' Reboot
+
+Movie News, Emerald Fennell, Basic Instinct, Wuthering Heights
+
+Tue, 07 Apr 2026 15:07:17 GMT
+
+https://movieweb.com/emerald-fennell-basic-instinct-reboot/
+
+The Saltburn filmmaker is reportedly circling a new take on the 1992 erotic thriller, a move that would give the remake a strong creative identity.
+---------
+
+# HBO's New 'Harry Potter' Reboot Series Is Already Dominating Streaming
+
+TV News, Harry Potter, Hot on Streaming
+
+Tue, 07 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/hbo-harry-potter-finding-harry-streaming-success-april-2026/
+
+It seems the cries to boycott HBO's 'Harry Potter' reboot have fallen on deaf ears thanks to the popularity of a new streaming special.
+---------
+
+# 'Good Omens’ Finale Teases Reveals First Look at Jesus
+
+TV News, Good Omens, Prime Video, Fantasy
+
+Tue, 07 Apr 2026 14:58:32 GMT
+
+https://movieweb.com/good-omens-season-3-teaser-jesus/
+
+The teaser for the 'Good Omens’ finale reveals the first look at Jesus Christ.
+---------
+
+# 'Star Wars: Maul - Shadow Lord' Is the Perfect Jumping-on Point for  Newcomers [Exclusive]
+
+TV News, Star Wars: Maul - Shadow Lord, Disney+, Star Wars
+
+Tue, 07 Apr 2026 14:15:16 GMT
+
+https://movieweb.com/maul-shadow-lord-star-wars-standalone/
+
+Speaking exclusively with MovieWeb, producer Athena Yvette Portillo revealed the new 'Star Wars' spin-off is a standalone series.
+---------
+
 # PlayStation 5 April System Update Introduces Major Redesign
 
 Gaming, PlayStation 5
