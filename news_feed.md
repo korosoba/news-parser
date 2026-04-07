@@ -1,3 +1,366 @@
+# Star Wars Outlaws 2 Met With Huge Support From Gamers
+
+Gaming, Star Wars Outlaws, Triple-A Games, Star Wars, Ubisoft
+
+Tue, 07 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/star-wars-outlaws-sequel-fan-petition/
+
+Star Wars Outlaws seems to have met an early grave just as gamers begin to realize how great it is as a Star Wars game, and it may be too late.
+---------
+
+# The Drama Soundtrack Guide: Every Song & When They Play
+
+Movies, The Drama
+
+Tue, 07 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/the-drama-movie-soundtrack-song-guide/
+
+The new romantic film starring Robert Pattinson and Zendaya features a number of songs, from well known artists to indie hits.
+---------
+
+# Pluribus Season 2 Gets Encouraging Filming Update From Apple TV Sci-Fi Series Star
+
+TV, Pluribus, Pluribus - Season 2
+
+Tue, 07 Apr 2026 01:59:23 GMT
+
+https://screenrant.com/pluribus-season-2-filming-window-update-karolina-wydra/
+
+EXCLUSIVE: Following season 1's critical acclaim and record-breaking viewership on Apple TV, Pluribus season 2 gets an encouraging filming update.
+---------
+
+# Black Sails Is The Best Historical Drama On Netflix
+
+Streaming TV, Black Sails
+
+Tue, 07 Apr 2026 01:31:19 GMT
+
+https://screenrant.com/black-sails-netflix-best-historical-drama-series/
+
+Black Sails is an excellent pirate themed historical drama on Netflix, with an 84% positive audience rating on Rotten Tomatoes and perfect acting.
+---------
+
+# Dark Winds Season 4's Finale Quietly Revealed Next Season's Mystery
+
+Streaming TV, Dark Winds, Dark Winds - Season 4
+
+Tue, 07 Apr 2026 01:16:20 GMT
+
+https://screenrant.com/dark-winds-season-5-gordo-murder-mystery-setup/
+
+Discover how Dark Winds season 4's shocking finale sets up an intriguing mystery for season 5, promising a new case for Leaphorn, Chee, and Manuelito to solve.
+---------
+
+# One Piece Elbaph Arc’s New Pacing Is Raising Serious Concerns
+
+Anime, One Piece
+
+Tue, 07 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/one-piece-anime-elbaph-pacing-not-helping/
+
+Despite the improved pacing and high production value in the One Piece Elbaph arc, the anime is facing a major hurdle.
+---------
+
+# Shrinking: Apple TV's 3-Part Psychological Drama Series That Keeps Getting Better
+
+Streaming TV, Shrinking
+
+Tue, 07 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/shrinking-season-3-apple-tv-keeps-getting-better/
+
+It's not easy to keep a TV show going multiple seasons. It's even harder to make one that knows only upward trajectory. Apple TV has it figured out.
+---------
+
+# PlayStation 6 Release Year Has Gamers Lamenting The PS5 Era
+
+Gaming, PlayStation 6, Triple-A Games
+
+Tue, 07 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/playstation-6-release-year-leak-gamer-reactions/
+
+Not everyone is happy with the PlayStation 5, and as Sony preps to launch the PlayStation 6 in the future, fans want more info.
+---------
+
+# Patrick Dempsey's Crime Thriller Series' Fate Is Sealed
+
+TV, Memory of a Killer, Patrick Dempsey
+
+Tue, 07 Apr 2026 00:43:16 GMT
+
+https://screenrant.com/memory-of-a-killer-patrick-dempsey-season-2-renewed/
+
+As the first season comes to a close, the season 2 fate for Patrick Dempsey's dark new crime thriller series on Fox has officially been sealed.
+---------
+
+# HBO’s Hacks Is Ending At Just The Right Time
+
+Streaming TV, Hacks, Hacks - Season 5
+
+Tue, 07 Apr 2026 00:35:19 GMT
+
+https://screenrant.com/hbo-hacks-season-5-ending-right-time/
+
+HBO's critically acclaimed comedy series (and toxic love story) gets to end on its own terms in its fifth and final season premiere this week.
+---------
+
+# Disney+ Reveals First Look at The Punisher: One Last Kill
+
+TV, The Punisher, The Punisher: One Last Kill
+
+Tue, 07 Apr 2026 02:09:10 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-first-look-disney-plus/
+
+Disney+ unveils the first footage from the upcoming MCU special presentation.
+---------
+
+# 10 Indiana Jones Clone Movies That Will Keep You Hooked From Start to Finish
+
+Movies, Indiana Jones, Adventure
+
+Tue, 07 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/indiana-jones-clone-movies-that-hooked-from-start-to-finish-list/
+
+Indiana Jones set a standard for adventure movies, but there are similar films that capture the same tone and can keep viewers invested.
+---------
+
+# 7 Near-Perfect Shonen Anime No One Remembers Anymore
+
+Anime, shonen anime, Beelzebub
+
+Tue, 07 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/almost-perfect-shonen-anime-no-one-remembers/
+
+Everyone knows standout series like One Piece and Naruto, but some of the greatest shonen anime of all time have already been forgotten in their wake.
+---------
+
+# The Batman 2 Gets Major Filming Update, Andy Serkis Returning
+
+Movies, The Batman Part II
+
+Tue, 07 Apr 2026 01:11:57 GMT
+
+https://www.cbr.com/the-batman-2-filming-update-andy-serkis/
+
+An exciting update has been revealed for the long-gestating sequel to The Batman.
+---------
+
+# The 15 Strongest Avengers of All Time, Ranked
+
+Comics, Marvel Comics, Avengers
+
+Tue, 07 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/most-powerful-avengers-ever/
+
+Some of Earth's Mightiest Heroes stand out among their peers for their sheer power.
+---------
+
+# 10 Near-Perfect SNES Games That Were Way Ahead of Their Time
+
+Games, Nintendo, retro games
+
+Tue, 07 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/near-perfect-snes-games-ahead-of-their-time/
+
+SNES games like Donkey Kong Country and Star Fox were perhaps a little too ahead of their time.
+---------
+
+# Fox Officially Seals the Fate of Memory of a Killer
+
+TV, Memory of a Killer
+
+Tue, 07 Apr 2026 00:40:46 GMT
+
+https://www.cbr.com/fox-memory-of-a-killer-renewed-season-2/
+
+The future of Patrick Dempsey's new crime series is sealed hot off the heels of the freshman season finale.
+---------
+
+# Black Clover Manga Confirms New Chapter Release Date for May 1, 2026
+
+Anime, Black Clover, Shonen Jump
+
+Tue, 07 Apr 2026 00:31:12 GMT
+
+https://www.cbr.com/black-clover-new-chapter-release-date-may-2026/
+
+Following Asta and Yuno's climactic final battle, the final chapters of Black Clover are all that remain of the long-running shonen manga.
+---------
+
+# HBO's Band of Brothers Outshines Saving Private Ryan
+
+TV, Band of Brothers, HBO Max, War
+
+Tue, 07 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/band-of-brothers-best-war-wwii-d-day-depiction/
+
+This HBO series managed to set up a historic WWII invasion in a way that Saving Private Ryan never could.
+---------
+
+# Alien Movies Dominate HBO Max Streaming Charts
+
+Movies, Alien, HBO Max, Sci-Fi
+
+Tue, 07 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/alien-movies-romulus-covenant-success-hbo-max-april-2026/
+
+The Alien franchise, owned by Disney, has taken over HBO Max's top 10 most-streamed movies list, with three films occupying spots today.
+---------
+
+# Elijah Wood's Cult Classic Sci-Fi Disaster Movie Resurfaces on Streaming After 28 Years
+
+Movie News, Deep Impact, Paramount+ with Showtime, Science Fiction, Elijah Wood
+
+Tue, 07 Apr 2026 02:00:24 GMT
+
+https://collider.com/elijah-wood-sci-fi-disaster-movie-deep-impact-streaming-success-april-2026/
+
+Deep Impact has found a new streaming home on Paramount+, rising in rankings and sparking interest in this 1998 apocalyptic sci-fi film.
+---------
+
+# Netflix’s Addictive 8-Part Hit Surging on the Charts Is the Perfect Season 4 Setup
+
+TV Features, XO, Kitty, To All the Boys I've Loved Before, Netflix, Series
+
+Tue, 07 Apr 2026 01:47:13 GMT
+
+https://collider.com/xo-kitty-netflix-series-addictive-charts-season-3/
+
+XO, Kitty is dominating Netflix charts. Here’s why the To All the Boys spinoff is a must-watch teen drama.
+---------
+
+# All 5 Stephen King Novella Collections, Ranked
+
+Movie, Stephen King, The Shawshank Redemption, Stand by Me, The Langoliers
+
+Tue, 07 Apr 2026 01:39:12 GMT
+
+https://collider.com/every-stephen-king-novella-collection-ranked/
+
+There are five Stephen King books that compile various novellas he's written, like Four Past Midnight and Different Seasons, but which is the best?
+---------
+
+# In Just 5 Days, New Sci-Fi Adventure Earns 10x the Gross of One of the Worst Video Game Movies Ever
+
+Movie News, The Super Mario Galaxy Movie, Borderlands, Box Office, Chris Pratt
+
+Tue, 07 Apr 2026 01:30:13 GMT
+
+https://collider.com/super-mario-galaxy-movie-earns-ten-times-box-office-borderlands-372-million/
+
+In just its first weekend, The Super Mario Galaxy Movie has earned ten times the lifetime gross of one of the decade's worst video game adaptations.
+---------
+
+# This Cruelly Canceled Prime Video Fantasy Show Deserves Another Look
+
+TV, Prime Video, One Mississippi, The Wheel of Time, Upload
+
+Tue, 07 Apr 2026 01:11:13 GMT
+
+https://collider.com/best-prime-video-shows-watch-week-april-6/
+
+The Wheel of Time, One Mississippi, and Upload make up our list of Prime Video shows to watch the week of April 6, 2026.
+---------
+
+# Ridley Scott’s Controversial Sci-Fi Sequel Is Bigger Than Ever on Streaming
+
+Movie News, Alien: Covenant, Ridley Scott, alien, HBO Max
+
+Tue, 07 Apr 2026 01:00:13 GMT
+
+https://collider.com/ridley-scott-most-divisive-sci-fi-movie-alien-covenant-hbo-max-streaming-success-april-2026/
+
+Alien: Covenant, Ridley Scott's divisive sequel to Prometheus, has quietly reached a significant streaming milestone in the U.S.
+---------
+
+# ‘Daredevil: Born Again’ Is Finally Setting Up the Return of a Fan Favorite MCU Character
+
+TV Features, Daredevil: Born Again, Hawkeye, Hailee Steinfeld, Disney+
+
+Tue, 07 Apr 2026 00:52:12 GMT
+
+https://collider.com/daredevil-born-again-hawkeye-kate-bishop-return/
+
+Daredevil: Born Again has set the stage for Kate Bishop to return to the MCU, especially with the events of last episode.
+---------
+
+# Keanu Reeves’ Heavenly New Fantasy Movie Takes Over the World
+
+Movie News, Good Fortune, Keanu Reeves, Aziz Ansari, Seth Rogen
+
+Tue, 07 Apr 2026 00:45:12 GMT
+
+https://collider.com/good-fortune-keanu-reeves-faith-based-fantasy-comedy-streaming-success-easter/
+
+Keanu Reeves' well-received fantasy comedy film Good Fortune saw a viewership spike on Easter. Find out more.
+---------
+
+# George R.R. Martin's Next Fantasy Adaptation Gets First Set Footage
+
+Movie News, Elden Ring, A24, Fantasy
+
+Tue, 07 Apr 2026 00:30:12 GMT
+
+https://collider.com/a24-elden-ring-movie-set-footage-pre-production/
+
+New footage appears online of sets for A24's live-action Elden Ring movie, signaling pre-production has begun for the highly anticipated adaptation.
+---------
+
+# Netflix's Dark 10-Part Fantasy Adaptation Is Still Worth a Binge This Weekend
+
+TV Features, Cursed, Netflix, Fantasy, Katherine Langford
+
+Tue, 07 Apr 2026 00:14:13 GMT
+
+https://collider.com/netflix-cursed-fantasy-worth-weekend-binge/
+
+Cursed is a unique retelling of the King Arthur mythos about the lady of the lake. The Netflix series offers a compelling binge for fantasy fans.
+---------
+
+# 8 Thriller Shows That Will Get You Hooked in the First 10 Minutes
+
+TV Lists, Thriller
+
+Tue, 07 Apr 2026 02:01:17 GMT
+
+https://movieweb.com/thriller-tv-shows-hooked-10-minutes/
+
+From 'Black Rabbit' to 'Wayward,' these thriller TV shows have entertaining and shocking opening scenes that will make you want to keep watching.
+---------
+
+# 'Dune: Part Three' Runtime Confirms It's the Shortest in the Trilogy
+
+Movie News, Dune: Part Three
+
+Tue, 07 Apr 2026 01:45:31 GMT
+
+https://movieweb.com/dune-3-runtime-shortest/
+
+Known for their long runtimes, the latest entry in the 'Dune' saga will set a record for the shortest movie to date in this series
+---------
+
+# Valorie Curry Addresses Firecracker Weaponizing Media in 'The Boys' Season 5
+
+Exclusives, The Boys, Valorie Curry
+
+Tue, 07 Apr 2026 00:43:22 GMT
+
+https://movieweb.com/the-boys-villain-star-dangerous-season-5/
+
+The media will continue to be a powerful weapon in 'The Boys' Season 5, according to Firecracker actress Valorie Curry.
+---------
+
 # Wagner Moura Stars in Disney+ Spy Thriller Maul - Shadow Lord, Perfect Narcos Replacement
 
 Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Wagner Moura, Narcos
