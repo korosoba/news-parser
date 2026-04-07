@@ -1,3 +1,322 @@
+# James Wan's Long-Awaited H.P. Lovecraft Adaptation Is Currently Facing 1 Hurdle
+
+Movies, The Call of Cthulhu, Horror, James Wan
+
+Tue, 07 Apr 2026 16:39:42 GMT
+
+https://screenrant.com/james-wan-hp-lovecraft-call-cthulhu-movie-budget-hurdle/
+
+Exclusive: James Wan offers a brief update on his long-awaited H.P. Lovecraft adaptation as he reveals it's currently facing one big hurdle.
+---------
+
+# HBO’s Harry Potter Will Include A Non-Canon Hagrid Scene Cut From The First Movie
+
+TV, Harry Potter
+
+Tue, 07 Apr 2026 16:38:20 GMT
+
+https://screenrant.com/hbo-harry-potter-show-hagrid-london-scene-cut-movie/
+
+Harry Potter is certainly going to be different this time around, as one key scene involving Hogwarts groundskeeper Rubeus Hagrid demonstrates.
+---------
+
+# Abbott Elementary’s Surprise Romance Returning In Season 6 Teased By Mr. Johnson Actor
+
+TV, Abbott Elementary, William Stanford Davis
+
+Tue, 07 Apr 2026 16:35:26 GMT
+
+https://screenrant.com/abbott-elementary-season-6-miss-carroll-return-william-stanford-davis-response/
+
+EXCLUSIVE: William Stanford Davis, who plays Mr. Johnson on the hit comedy Abbott Elementary, reveals if his love interest will return in season 6.
+---------
+
+# Marvel's Polarizing TV Show Was Really A Best-Performing Disney+ Series
+
+TV, She-Hulk: Attorney at Law, Marvel Cinematic Universe, Hulk
+
+Tue, 07 Apr 2026 16:31:22 GMT
+
+https://screenrant.com/she-hulk-disney-plus-success-brad-winderbaum-marvel-response/
+
+Despite the heavily mixed critical reception for its run, Marvel Studios' most polarizing TV show was officially a massive success for Disney+.
+---------
+
+# Emilia Clarke's New Horror Movie Based On '80s Classic Novella Gets Release Window
+
+Movies, Emilia Clarke
+
+Tue, 07 Apr 2026 16:22:31 GMT
+
+https://screenrant.com/when-darkness-loves-us-movie-release-window-emilia-clarke/
+
+A release window is revealed for Game of Thrones star Emilia Clarke's new horror movie based on a terrifying classic novella from the 1980s.
+---------
+
+# Netflix Loses Court Case, Eliminating Years Of Price Hikes, With Refunds Ordered For Some Subscribers
+
+Movies, Netflix
+
+Tue, 07 Apr 2026 16:08:26 GMT
+
+https://screenrant.com/netflix-price-hikes-court-case-italy-loss-refunds-subscribers/
+
+Netflix officially loses a court case, eliminating years of price hikes, which have been ruled illegal, with refunds ordered for some subscribers.
+---------
+
+# J.J. Abrams' Star Trek Prequel Is Also Set Farthest In Prime Timeline
+
+TV, Star Trek
+
+Tue, 07 Apr 2026 16:01:18 GMT
+
+https://screenrant.com/star-trek-2009-prequel-farthest-prime-timeline/
+
+J.J. Abrams' Star Trek movies are prequels set in an alternate reality, but Star Trek (2009) was also the last movie that moved the timeline forward.
+---------
+
+# Star Wars: Maul - Shadow Lord Debuts as Disney+’s No. 1 Show Globally
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars, Disney+
+
+Tue, 07 Apr 2026 16:43:29 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-sci-fi-success-april-2026/
+
+The new Star Wars series Maul - Shadow Lord, featuring one of Star Wars' greatest villains, has become the most-watched show worldwide on Disney+.
+---------
+
+# After 4-Year Wait, Zendaya’s 87% RT HBO Drama May End With Season 3: “Closure Is Coming”
+
+TV, Euphoria, hbo
+
+Tue, 07 Apr 2026 16:40:31 GMT
+
+https://www.cbr.com/euphoria-hbo-drama-season-3-ending-closure-zendaya/
+
+It could be the end of an era for HBO if what Zendaya is saying about her acclaimed drama series is true.
+---------
+
+# Glen Powell's Underrated Role in Jurassic World: Camp Cretaceous
+
+TV, Jurassic World: Camp Cretaceous, Glen Powell, Jurassic Park
+
+Tue, 07 Apr 2026 16:36:22 GMT
+
+https://www.cbr.com/glen-powell-jurassic-world-camp-cretaceous-performance/
+
+Glen Powell's character Dave in Netflix's Jurassic World: Camp Cretaceous showcased his acting skills, often overlooked in the franchise.
+---------
+
+# Steam Users Can Officially Claim Heavy Rain for Free
+
+Games, Steam
+
+Tue, 07 Apr 2026 16:35:15 GMT
+
+https://www.cbr.com/steam-heavy-rain-free-april-2026/
+
+A 10/10 masterpiece can be claimed for free this month on Steam.
+---------
+
+# 10 Perfect Action Anime to Watch After Jujutsu Kaisen Season 3
+
+Anime, Jujutsu Kaisen, Fate/strange Fake, The Elusive Samurai, Demon Slayer: Kimetsu no Yaiba, Kill la Kill, Chainsaw Man, Mob Psycho 100, To Be Hero X, Fullmetal Alchemist: Brotherhood, Wind Breaker, Hunter X Hunter
+
+Tue, 07 Apr 2026 16:16:12 GMT
+
+https://www.cbr.com/best-action-anime-jjk-season-3/
+
+Jujutsu Kaisen's Season 3 Culling Game extravaganza instantly created an insatiable itch for more incredible action anime as soon as it ended.
+---------
+
+# George R.R. Martin's 100% RT Western Reaches Major Streaming Milestone
+
+TV, Dark Winds, Western, george rr martin
+
+Tue, 07 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/george-rr-martin-dark-winds-western-streaming-milestone-april-2026/
+
+An underrated Western from the mind of George R.R. Martin officially celebrates a massive streaming milestone just in time for its finale.
+---------
+
+# Before Disclosure Day, Steven Spielberg Crowns Dune As One of the Best Sci-Fi Movies Ever
+
+Movies, steven spielberg, Disclosure Day, Dune, Dune: Part Two, Dune: Part Three
+
+Tue, 07 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/disclosure-day-steven-spielberg-dune-best-sci-fi-movies/
+
+Steven Spielberg has cornered the market on aliens, but another sci-fi film takes the sci-fi cake.
+---------
+
+# Tom Felton’s Harry Potter Return Just Got Even Bigger
+
+Movie News, Tom Felton, Harry Potter, Harry Potter and the Cursed Child
+
+Tue, 07 Apr 2026 16:48:05 GMT
+
+https://collider.com/harry-potter-tom-felton-draco-malfoy-extended-broadway-run-the-cursed-child/
+
+Tom Felton is officially returning for more Harry Potter as fans demand he return in the hit theatrical sequel.
+---------
+
+# James Gunn's 4-Part Superman Series Officially Returns to HBO Max Next Week
+
+TV News, James Gunn, Superman, Krypto the Superdog
+
+Tue, 07 Apr 2026 16:38:48 GMT
+
+https://collider.com/james-gunn-superman-series-krypto-saves-the-day-episode-4-hbo-max-release-date/
+
+HBO Max has officially set a release date next week for the final episode of James Gunn's 4-part Superman series, Krypto Saves the Day.
+---------
+
+# 'Dune 3' Is Already Sold Out 9 Months Before Release
+
+Movie News, Dune: Part Two, Dune: Part Three, Dune, Avengers: Doomsday
+
+Tue, 07 Apr 2026 16:18:32 GMT
+
+https://collider.com/dune-3-imax-showings-sold-out-9-months-early/
+
+Dune: Part 3 is officially breaking records as a box office giant 9 months before it even hits theatres, as IMAX showings sell out.
+---------
+
+# Hulu's Hitman Crime Thriller Is Officially Returning For Another Season
+
+TV News, Memory of a Killer, Patrick Dempsey, Hulu, Fox
+
+Tue, 07 Apr 2026 16:14:41 GMT
+
+https://collider.com/hulu-hitman-crime-thriller-series-memory-of-a-killer-renewed-season-2/
+
+Hulu’s hitman crime thriller, starring Patrick Dempsey, Richard Harmon, and Gina Torres, is officially returning for Season 2.
+---------
+
+# New 100% RT Cyber Thriller Unleashes 10-Minute Sneak Peek [Exclusive]
+
+Movie News, Wardriver, Dane DeHaan, Sasha Calle, Jeffrey Donovan
+
+Tue, 07 Apr 2026 16:01:12 GMT
+
+https://collider.com/cyber-thriller-action-movie-wardriver-sneak-peek/
+
+Experience the high-stakes world of cybercrime in this exclusive 10-minute clip from the gripping new thriller Wardriver, starring Dane DeHaan.
+---------
+
+# 'Hacks' Season 5 Review: HBO's Best Comedy of the Last 5 Years Checks All the Right Boxes With Its Ending
+
+TV Reviews, Hacks, HBO Max, Hannah Einbinder, Jean Smart
+
+Tue, 07 Apr 2026 16:01:12 GMT
+
+https://collider.com/hacks-season-5-review-hbo-jean-smart-hannah-einbinder/
+
+Hacks' fifth and final season delivers laughter, heartfelt moments, and satisfying closure for fans of the beloved HBO comedy.
+---------
+
+# HBO Is Officially Expanding ‘House of the Dragon’ With New Summer Release
+
+TV News, House of the Dragon, George R.R. Martin, Game Of Thrones, A Knight Of The Seven Kingdoms
+
+Tue, 07 Apr 2026 15:56:56 GMT
+
+https://collider.com/house-of-the-dragon-season-3-companion-mobile-game-of-thrones-dragonfire-free-to-play-summer-release/
+
+HBO sets new release alongside Season 3 of House of the Dragon this summer as Game of Thrones: Dragonfire gets official launch.
+---------
+
+# HBO’s ‘Harry Potter’ Series Has Already Dropped a Major ‘Deathly Hallows’ Reveal
+
+TV News, Harry Potter, John Lithgow, Albus Dumbledore
+
+Tue, 07 Apr 2026 15:54:10 GMT
+
+https://collider.com/hbo-harry-potter-series-first-look-dumbledore-elder-wand/
+
+Harry Potter has already revealed a major Easter egg for The Deathly Hallows in sneak peek behind the scenes of the new HBO series.
+---------
+
+# Fans Are Losing HBO’s Biggest Thriller After Season 3
+
+TV News, Euphoria, Zendaya, Sydney Sweeney, Jacob Elordi
+
+Tue, 07 Apr 2026 15:53:31 GMT
+
+https://collider.com/euphoria-ending-after-season-3-zendaya-update-closure/
+
+Zendaya reveals she believes her controversial HBO drama series, Euphoria, is ending after Season 3. Here’s why.
+---------
+
+# 'The Gentlemen' Season 2 Gets Fall Release Date on Netflix
+
+TV News, The Gentlemen, Guy Ritchie, Theo James, Netflix
+
+Tue, 07 Apr 2026 16:15:28 GMT
+
+https://movieweb.com/the-gentlemen-season-2-release-date/
+
+Netflix's hit Guy Ritchie crime series 'The Gentlemen' is set to return in late 2026.
+---------
+
+# 'The Batman Part II' Confirms Return of Andy Serkis as Alfred
+
+Movie News, Andy Serkis, The Batman Part II, DCU
+
+Tue, 07 Apr 2026 16:00:59 GMT
+
+https://movieweb.com/batman-2-andy-serkis-alfred-return/
+
+Andy Serkis is confirmed for 'The Batman Part II,' restoring a key Bruce Wayne relationship as Matt Reeves' sequel nears production.
+---------
+
+# Matthew McConaughey’s ‘Yellowstone’ Spin-Off Was a Missed Opportunity
+
+Features, Yellowstone, Matthew McConaughey
+
+Tue, 07 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/matthew-mcconaughey-yellowstone-spin-off-idea/
+
+Matthew McConaughey was originally going to star in a 'Yellowstone' sequel that was later reworked into the Taylor Sheridan series 'The Madison.'
+---------
+
+# Sci-Fi Horror Cult Classic 'Event Horizon' Is Now Streaming Free
+
+Movie News, Event Horizon, Coming/Leaving Streaming, Horror, Sci-Fi
+
+Tue, 07 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/event-horizon-streaming-tubi-april-2026/
+
+The underrated '90s film has one of the most disturbing depictions of Hell ever put on screen.
+---------
+
+# Sitcoms From the 2000s Nobody Remembers
+
+TV Lists, Comedy
+
+Tue, 07 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/lesser-known-sitcoms-2000s/
+
+The 2000s delivered instant favorites like 'The Big Bang Theory' and 'The Office,' but not every sitcom from the decade became part of pop culture.
+---------
+
+# 'American Horror Story' Season 13 First Look Brings Back Series Icon Jessica Lange
+
+TV News, American Horror Story, Jessica Lange, Ryan Murphy
+
+Tue, 07 Apr 2026 15:52:56 GMT
+
+https://movieweb.com/american-horror-story-first-look-jessica-lange/
+
+Jessica Lange is back for 'American Horror Story' Season 13, as Ryan Murphy shared a first look from "Day One" of production, confirming her return.
+---------
+
 # Marvel's First Avengers: Doomsday Trailer Was Exactly What The MCU Movie Needed
 
 Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
