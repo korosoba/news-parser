@@ -1,3 +1,256 @@
+# The Super Mario Galaxy Movie’s Princess Peach Twist Is Older Than You Think
+
+Movies, The Super Mario Galaxy Movie, Nintendo
+
+Tue, 07 Apr 2026 22:30:50 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-princess-peach-twist-backstory/
+
+Princess Peach gets a major twist to her backstory in the new Super Mario Galaxy Movie, though it's actually based on a 19-year-old idea.
+---------
+
+# Prime Video's 10-Part Action Thriller Series Is Perfect From Start To Finish
+
+TV, Ballard, Bosch
+
+Tue, 07 Apr 2026 22:26:19 GMT
+
+https://screenrant.com/prime-video-ballard-action-series-perfect-start-to-finish/
+
+One Prime Video crime thriller has no bad episodes in its first season's ten outings, instantly marking this cop show out as a classic spinoff.
+---------
+
+# Absolute Batman Debuts New Robin, Like No Version We've Ever Seen Before
+
+Comics, DC Comics, DC, Batman, Robin
+
+Tue, 07 Apr 2026 22:15:50 GMT
+
+https://screenrant.com/absolute-batman-new-robin-mech/
+
+In a shocking reveal DC Comics is shaking up the Batman franchise with an unexpected twist on the iconic Robin character in Absolute Batman.
+---------
+
+# Elden Ring Film’s Main Character Is Already A Controversial Choice
+
+Gaming, PC, Elden Ring
+
+Tue, 07 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/elden-ring-main-character-leak-tarnished-or-vyke/
+
+The Elden Ring film leak has sparked a wave of debate over the choice for main character, and fans are feeling uncertain about the adaptation.
+---------
+
+# The Fantastic Four’s Most Unforgettable Costumes, Ranked
+
+Comics, Fantastic Four
+
+Tue, 07 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/best-fantastic-four-costumes-all-time-ranked/
+
+Ranking Marvel's First Family's most memorable looks.
+---------
+
+# Hulu’s Stephen King-Approved Hit Sci-Fi Thriller Begins Season 3 Filming One Week After Season 2 Finale
+
+TV, Paradise, Paradise - Season 3
+
+Tue, 07 Apr 2026 21:53:11 GMT
+
+https://screenrant.com/paradise-season-3-filming-official-start/
+
+Only a week after the game-changing season 2 finale was released on Hulu, the streamer's hit sci-fi thriller has begun filming for season 3.
+---------
+
+# Jon Hamm Addresses Potential Season 3 Return For Prime Video's Hit Fantasy Show Despite Controversy
+
+TV, Good Omens, Jon Hamm
+
+Tue, 07 Apr 2026 21:46:01 GMT
+
+https://screenrant.com/good-omens-sesason-3-jon-hamm-gabriel-return-response/
+
+Jon Hamm, while promoting Your Friends & Neighbors, discusses his possible return to one of Prime Video's hit fantasy series.
+---------
+
+# Starfield Character Names: Every Name Vasco Can Say
+
+Gaming, Starfield, PC
+
+Tue, 07 Apr 2026 21:45:19 GMT
+
+https://screenrant.com/starfield-names-vasco-says-list/
+
+Starfield’s robotic companion Vasco can call the player character by their name, as long as it’s selected from the over 1,000 preprogrammed options.
+---------
+
+# How The Witcher Spinoff Nightmare Of The Wolf Outshines The Main Show
+
+Streaming TV, The Witcher
+
+Tue, 07 Apr 2026 21:45:18 GMT
+
+https://screenrant.com/nightmare-of-the-wolf-netflix-witcher-spinoff-better/
+
+One of Netflix's best animated fantasy movies is the best example for The Witcher on how to do its type of fantasy, but there's a twist in this.
+---------
+
+# 35 Years Ago, Vegeta's Death Speech in DBZ Became Best Qutoe in Shonen Anime History
+
+Anime, Dragon Ball Z, Vegeta, Dragon Ball, shonen anime, quotes
+
+Tue, 07 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/best-shonen-anime-quote-dragon-ball-z-vegeta-death-speech/
+
+Vegeta has always been one of Dragon Ball Z's most important characters, and his emotional final words on Namek still hit hard 35 years later.
+---------
+
+# Finding Harry: The Craft Behind the Magic Teases Harry Potter Avoids Professor Quirrell Book Change in Season 1
+
+TV, Harry Potter
+
+Tue, 07 Apr 2026 22:06:17 GMT
+
+https://www.cbr.com/harry-potter-avoids-professor-quirrell-change-season-1/
+
+This is one of the instances that hint that the new version will be a more accurate adaptation.
+---------
+
+# James Bond King Zero Officially Solves the Reboot's Timeline Problem
+
+Movies, James Bond
+
+Tue, 07 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/james-bond-sequel-king-zero-solves-reboot-timeline-problem/
+
+With so much speculation about what course the new James Bond series will take, it's evident that Amazon is already telegraphing its plans.
+---------
+
+# X-Men Director Confirms Hard Reboot for Marvel’s X-Men in the MCU
+
+Movies, Marvel, MCU, X-Men, X-Men '97, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Tue, 07 Apr 2026 21:58:23 GMT
+
+https://www.cbr.com/x-men-director-confirms-hard-reboot-by-marvel-in-mcu-avengers/
+
+This is exactly what Marvel fans desperately needed to hear about the X-Men.
+---------
+
+# Fairy Tail Confirms Official Return With New Release After 9 Years
+
+Anime, Fairy Tail, Fairy Tail: 100 Years Quest
+
+Tue, 07 Apr 2026 21:45:49 GMT
+
+https://www.cbr.com/fairy-tail-official-2026-release/
+
+The original Fairy Tail officially returns for a new 2026 release nearly 10 years later.
+---------
+
+# Mike Flanagan's First Movie, Absentia,  Is The Scariest Creature Feature
+
+Movies, Horror
+
+Tue, 07 Apr 2026 21:45:12 GMT
+
+https://www.cbr.com/mike-flanagan-absentia-scariest-horror-creature-feature/
+
+Mike Flanagan has delivered great horror stories, but his first film established his skills and delivered a truly terrifying film.
+---------
+
+# Only 3 Epic Movies Are Better Than 'Lawrence of Arabia'
+
+Movie, Lawrence of Arabia, The Godfather, Seven Samurai, War and Peace
+
+Tue, 07 Apr 2026 22:21:12 GMT
+
+https://collider.com/epic-movies-better-than-lawrence-of-arabia/
+
+Epic movies even better than Lawrence of Arabia are rare, but not unheard of, as the likes of The Godfather, War and Peace, and Seven Samurai show.
+---------
+
+# Prime Video's 4-Part Action Thriller Is One of the Best on Any Streaming Platform
+
+TV Features, Tom Clancy's Jack Ryan, John Krasinski, Thriller, Prime Video
+
+Tue, 07 Apr 2026 21:59:13 GMT
+
+https://collider.com/jack-ryan-prime-video-series-john-krasinski-best-streaming/
+
+Tom Clancy's Jack Ryan, starring John Krasinski in the titular role, is a sharp action thriller from start to finish.
+---------
+
+# Prime Video Just Quietly Added This 2026 Sleeper Hit Crime Thriller Perfect for Michael Mann Fans
+
+Movie Features, Crime 101, Chris Hemsworth, Thriller, Prime Video
+
+Tue, 07 Apr 2026 21:56:12 GMT
+
+https://collider.com/crime-101-amazon-prime-video-streaming/
+
+Amazon's recent crime thriller Crime 101, starring Halle Berry, Chris Hemsworth, and Mark Ruffalo, is the perfect weekend watch on Prime Video.
+---------
+
+# 9 Animated Shows That Are Amazing From Start to Finish
+
+TV, Animation, Invincible, Avatar: The Last Airbender, The Boondocks
+
+Tue, 07 Apr 2026 21:45:12 GMT
+
+https://collider.com/animated-shows-amazing-start-to-finish/
+
+Prime Video's Invincible and Nickelodeon's Avatar: The Last Airbender are among the animated TV shows that are amazing from start to finish.
+---------
+
+# Keanu Reeves Says That No Movie Made Him Laugh Harder Than This 86% RT American Classic
+
+Movie Features, Keanu Reeves, Harold and Maude, Hal Ashby, Comedy
+
+Tue, 07 Apr 2026 21:42:12 GMT
+
+https://collider.com/keanu-reeves-favorite-movie-harold-and-maude/
+
+In an interview, Keanu Reeves was asked about his top movies, and he explained why Harold & Maude is among his favorites.
+---------
+
+# 'The Day After Tomorrow:' Jake Gyllenhaal's Disaster Action Blockbuster is Streaming on Hulu
+
+Movie News, The Day After Tomorrow, Hulu, Coming/Leaving Streaming, Action
+
+Tue, 07 Apr 2026 22:30:17 GMT
+
+https://movieweb.com/day-after-tomorrow-action-disaster-streaming-hulu-april-2026/
+
+Jake Gyllenhaal and Roland Emmerich's disaster action movie 'The Day After Tomorrow' is now streaming on Hulu in the US.
+---------
+
+# Netflix's 'Lego One Piece' Series Will Hit Streaming Before Season 3
+
+TV Shows, One Piece, LEGO, Netflix
+
+Tue, 07 Apr 2026 22:00:18 GMT
+
+https://movieweb.com/lego-one-piece-netflix/
+
+Netflix's 'Lego One Piece' will arrive on the streaming service before Season 3 of the hit live-action TV series.
+---------
+
+# Sold-Out 'Dune 3' IMAX 70mm Tickets Being Offered for Thousands on eBay
+
+Movie News, Dune: Part Three, IMAX, Dune
+
+Tue, 07 Apr 2026 21:58:55 GMT
+
+https://movieweb.com/dune-3-imax-tickets-ebay-sold-out/
+
+If you want to pay 100 times face value, then the auction site has got you covered.
+---------
+
 # Netflix's One Piece Gets First Update Of 2026, And It's The One Every Fan Dreaded
 
 Anime, One Piece, Netflix
