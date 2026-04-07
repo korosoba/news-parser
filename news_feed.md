@@ -1,3 +1,245 @@
+# Marvel's New Official MCU X-Men Movie Update Is Perfect For The Mutants
+
+Superheroes, X-Men, Marvel Cinematic Universe
+
+Tue, 07 Apr 2026 19:39:53 GMT
+
+https://screenrant.com/marvel-xmen-movie-mcu-update-writers-thunderbolts-perfect/
+
+Marvel's new official MCU X-Men movie update is quite exciting, as it sets up the film to follow one of the franchise's best recent releases.
+---------
+
+# Prime Video's 8-Part Crime Thriller Series Has One Of Its Best Casts
+
+TV, Scarpetta
+
+Tue, 07 Apr 2026 19:35:20 GMT
+
+https://screenrant.com/scarpetta-prime-video-crime-thriller-best-cast/
+
+Prime Video's psychological thriller has one of the starriest A-list casts ever assembled for a TV show, but is this enough to make the series great?
+---------
+
+# Bob Dylan's "Lay, Lady, Lay" & Midnight Cowboy: The True Story
+
+Music, Bob Dylan, Classic Rock, Midnight Cowboy
+
+Tue, 07 Apr 2026 19:31:15 GMT
+
+https://screenrant.com/bob-dylan-lay-lady-lay-midnight-cowboy-soundtrack-history/
+
+Bob Dylan wrote "Lay, Lady, Lay" for Midnight Cowboy but missed the deadline. Here is the true story behind the ultimate Dylan move.
+---------
+
+# Five Nights At Freddy's 2 Missed A Golden Opportunity For An Epic Finale
+
+Movies, Five Nights at Freddy's 2
+
+Tue, 07 Apr 2026 19:20:18 GMT
+
+https://screenrant.com/five-nights-at-freddy-2-ending-missed-opportunity/
+
+The ending of Five Nights at Freddy's 2 feels the same as the last film, but a simple change in location could have made the finale more exciting.
+---------
+
+# Guillermo Del Toro Is Being Replaced For New American Remake Of Acclaimed Horror Movie After 8 Years In Limbo
+
+Movies, Guillermo del Toro
+
+Tue, 07 Apr 2026 19:13:29 GMT
+
+https://screenrant.com/terrified-movie-american-remake-noah-hawley-warner-bros/
+
+Warner Bros. finds a new director to helm and pen the American remake of the horror film Terrified, as Guillermo del Toro departs the project.
+---------
+
+# Star Wars' Mark Hamill Gives Official Verdict On New Lucasfilm President Amid Leadership Shakeup
+
+Movies, Star Wars, Mark Hamill, Dave Filoni, Lucasfilm
+
+Tue, 07 Apr 2026 19:08:47 GMT
+
+https://screenrant.com/lucasfilm-president-dave-filoni-mark-hamill-response-star-wars/
+
+Iconic Star Wars actor Mark Hamill breaks his silence on the new Lucasfilm president following Kathleen Kennedy’s departure earlier this year.
+---------
+
+# How Jo Nesbø Changed His Own Detective Hole Story For Netflix's New Crime Thriller
+
+TV, Jo Nesbø's Detective Hole, Jo Nesbø's Detective Hole - Season 1, Netflix
+
+Tue, 07 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/jo-nesbo-detective-hole-netflix-story-changes-tobias-santelmann-joel-kinnaman/
+
+Jo Nesbø and his Detective Hole stars talk Netflix's new crime thriller, and how the series changes certain elements of the author's works.
+---------
+
+# Star Trek Officially Announces A Huge Starfleet Academy Hero Is Already Returning With The New Release Fans Deserve
+
+Comics, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 07 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-jay-den-return/
+
+He's back!
+---------
+
+# Dark Souls Is Getting The Next-Gen Remaster We've Dreamed Of
+
+Gaming, Dark Souls, Triple-A Games
+
+Tue, 07 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/dark-souls-rtx-remaster-path-tracing/
+
+The original Dark Souls was released all the way back in 2011, but fans have been wanting to revisit it constantly, including more remasters.
+---------
+
+# Gen V Recap: 5 Things To Know Before The Boys Season 5
+
+Streaming TV, Gen V, The Boys
+
+Tue, 07 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/the-boys-season-5-gen-v-recap/
+
+Before The Boys season 5 releases on Prime Video, here's a recap of all the main plot points from Gen V that might affect how the story turns out.
+---------
+
+# Red Dead Redemption 2 Officially Gets New Port Available Now
+
+Games, Red Dead Redemption 2, Red Dead Redemption
+
+Tue, 07 Apr 2026 19:40:12 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-new-mobile-port-officially-available-2026/
+
+A faithful mobile port of Red Dead Redemption 2 is officially available now.
+---------
+
+# Absolute Batman Reveals When Robin Will Finally Appear
+
+Comics, Absolute Batman, Robin
+
+Tue, 07 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/absolute-batman-robin-reveal-date-confirmed/
+
+Absolute Batman are getting a first look at Absolute Robin sooner than they think.
+---------
+
+# DC Officially Reveals Absolute Robin (With A Hardcore Redesign)
+
+Superheroes, Absolute Batman, Robin
+
+Tue, 07 Apr 2026 19:19:51 GMT
+
+https://www.cbr.com/absolute-batman-20-absolute-robin-reveal/
+
+Witness Absolute Batman's biggest character reveal yet.
+---------
+
+# Noah Hawley & Warner Bros. to Remake Horror Movie Terrified
+
+Movies, Terrified, Horror
+
+Tue, 07 Apr 2026 19:07:27 GMT
+
+https://www.cbr.com/noah-hawley-terrified-remake/
+
+After taking a crack at Alien, Noah Hawley is now set to remake an acclaimed horror movie for Warner Bros.
+---------
+
+# The Must-Watch Horror Movies From Every Year of The 2000s
+
+Movies, Horror, 28 Days Later, Saw
+
+Tue, 07 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/best-horror-movies-every-year-2000s-list/
+
+The 2000s ushered in a new era of horror filmmaking, and these ten genre masterpieces are the best horror films from each year of the decade.
+---------
+
+# Seven of Nine's Iconic Star Trek: Voyager Line Still Resonates
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Tue, 07 Apr 2026 18:57:12 GMT
+
+https://www.cbr.com/star-trek-voyager-seven-of-nine-most-important-line/
+
+Seven of Nine's iconic line exposes the complex struggle between personal freedom and societal expectations, resonating stronger than ever.
+---------
+
+# 10 Shows We Thought Would Be the Next ‘Breaking Bad'
+
+TV, Breaking Bad, Barry, Fargo, Ozark
+
+Tue, 07 Apr 2026 19:45:12 GMT
+
+https://collider.com/crime-tv-shows-almost-next-breaking-bad/
+
+Better Call Saul, Ozark, Animal Kingdom, Fargo, Barry, Bloodline, and more make our list of shows we thought would be the next Breaking Bad.
+---------
+
+# Good News 'X-Men' Fans: The Movie Reboot's Writer Is a Huge Gambit Fan [Exclusive]
+
+Movie News, X-Men, MCU, Jake Schreier, Channing Tatum
+
+Tue, 07 Apr 2026 19:39:10 GMT
+
+https://collider.com/x-men-reboot-movie-writer-lee-sung-jin-favorite-mutant-gambit/
+
+Beef creator Lee Sung Jin, who is also writing a new draft of Marvel's X-Men reboot, officially reveals his favorite member of the mutant team.
+---------
+
+# This Forgotten Western Remains the Best TV Series of All Time 71 Years Later
+
+TV Features, Gunsmoke, Western, CBS, John Wayne
+
+Tue, 07 Apr 2026 19:21:12 GMT
+
+https://collider.com/gunsmoke-best-classic-western-tv-series-of-all-time/
+
+Gunsmoke is the longest-running Western TV series and remains a timeless classic 70 years after its debut, setting the benchmark for the genre.
+---------
+
+# Edgar Wright's 'Running Man' Originally Had Faithful, "Brutal" Stephen King Ending
+
+Movie News, The Running Man, Stephen King, Edgar Wright, Glen Powell
+
+Tue, 07 Apr 2026 19:40:23 GMT
+
+https://movieweb.com/running-man-reboot-stephen-king-original-ending/
+
+The filmmaker confirms that, after finding his cast, the devastating ending was too much of a downer.
+---------
+
+# Dacre Montgomery: 2017’s 'Power Rangers' Was Planned as a Four-Film Franchise
+
+Interviews, Power Rangers, Dacre Montgomery, Action
+
+Tue, 07 Apr 2026 19:35:39 GMT
+
+https://movieweb.com/dacre-montgomery-power-rangers-planned-franchise/
+
+The franchise is between reboots at the moment.
+---------
+
+# 'Something Very Bad Is Going to Happen' Season 2: Everything We Know
+
+Features, Something Very Bad Is Going to Happen, Netflix, Everything We Know
+
+Tue, 07 Apr 2026 19:01:17 GMT
+
+https://movieweb.com/something-very-bad-is-going-to-happen-season-2-everything-we-know/
+
+'Something Very Bad is Going to Happen' stars Camila Morrone and Adam DiMarco and is executive produced by the Duffer Brothers.
+---------
+
 # Dakota Fanning's 8-Part Thriller Series Based On Bestselling Novel Has One Of The Genre's Best Casts
 
 TV, All Her Fault, Peacock
