@@ -1,3 +1,234 @@
+# Dakota Fanning's 8-Part Thriller Series Based On Bestselling Novel Has One Of The Genre's Best Casts
+
+TV, All Her Fault, Peacock
+
+Tue, 07 Apr 2026 18:51:31 GMT
+
+https://screenrant.com/all-her-fault-peacock-thriller-series-cast-best/
+
+Dakota Fanning's latest thriller series quickly became a major streaming hit, and it would not have been possible without its perfect cast.
+---------
+
+# New Under-The-Radar Historical Movie Earns Near-Perfect Rotten Tomatoes Audience Score
+
+Movies, A Great Awakening
+
+Tue, 07 Apr 2026 18:46:30 GMT
+
+https://screenrant.com/a-great-awakening-rotten-tomatoes-audience-score/
+
+A new under-the-radar historical movie earns a near-perfect Rotten Tomatoes audience score shortly after its release earlier this month.
+---------
+
+# Abbott Elementary Must Finally Introduce 1 Important Unseen Character After 5 Seasons, Says OG Star
+
+TV, Abbott Elementary
+
+Tue, 07 Apr 2026 18:25:23 GMT
+
+https://screenrant.com/abbott-elementary-mr-johnson-mother-must-introduce-william-stanford-davis/
+
+EXCLUSIVE: Abbott Elementary has to introduce a crucial character, according to star William Stanford Davis, revealing that he's made suggestions.
+---------
+
+# Cyberpunk 2077 Getting "Serious" Update On April 8
+
+Gaming, Cyberpunk 2077, Triple-A Games, PC
+
+Tue, 07 Apr 2026 18:07:08 GMT
+
+https://screenrant.com/cyberpunk-2077-april-2026-update-ps5-pro/
+
+Years after its rocky launch, Cyberpunk 2077 is the gift that keeps on giving, and the next upgrade is quite a bit more than just a minor patch.
+---------
+
+# Taylor Sheridan Officially Directing New War Movie Based On Pivotal 190-Year-Old Battle (But There’s A Catch)
+
+Movies, Taylor Sheridan
+
+Tue, 07 Apr 2026 18:00:43 GMT
+
+https://screenrant.com/taylor-sheridan-battle-of-the-alamo-movie-director-producer/
+
+A new Taylor Sheridan project is coming, with the popular writer and director now tackling a war movie based on a crucial American battle.
+---------
+
+# Zelda's First Official 40th Anniversary Game Isn't What We Expected
+
+Gaming, The Legend of Zelda
+
+Tue, 07 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/legend-of-zelda-40th-anniversary-official-game-announcement/
+
+As The Legend Of Zelda rings in its 40th anniversary, a newly announced game isn't the kind of official release we were really expecting to see.
+---------
+
+# How A Knight Of The Seven Kingdoms Season 2 Is Tonally Different From Season 1 Addressed By Ser Duncan Star
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones, Peter Claffey
+
+Tue, 07 Apr 2026 17:54:57 GMT
+
+https://screenrant.com/a-knight-seven-kingdoms-season-2-tone-different-explained-peter-claffey/
+
+Ser Duncan star Peter Claffey teases how A Knight of the Seven Kingdoms season 2 will feature a “totally different tone” from season 1.
+---------
+
+# Sylvester Stallone's Rambo Returns Ahead of Prequel
+
+Movies, Rambo
+
+Tue, 07 Apr 2026 18:43:49 GMT
+
+https://www.cbr.com/sylvester-stallone-rambo-complete-collection-4k/
+
+The beloved action franchise makes a return ahead of the upcoming prequel movie in the works.
+---------
+
+# Supergirl and Blade Officially Cross Over, But With A Twist
+
+Comics, Marvel, DC Comics
+
+Tue, 07 Apr 2026 18:33:41 GMT
+
+https://www.cbr.com/supergirl-blade-1-marvel-dc-crossover-release-date-confirmed/
+
+The Daywalker and the Girl of Steel are finally joining forces.
+---------
+
+# HBO's Hacks Sets Unfortunate Rotten Tomatoes Score for Its Final Bow
+
+TV, Hacks, Rotten Tomatoes
+
+Tue, 07 Apr 2026 18:23:21 GMT
+
+https://www.cbr.com/hbo-hacks-season-5-rotten-tomatoes-score/
+
+After a long string of perfect scores, the HBO series is ending on a sour note.
+---------
+
+# CBS' 5-Part Near-Perfect Comedy Remake Is a Streaming Sensation on Paramount+
+
+TV, Ghosts
+
+Tue, 07 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/ghosts-comedy-remake-paramount-plus-success-april-2026/
+
+A fan-favorite CBS comedy series, which originated in the UK, is growing in popularity on Paramount+.
+---------
+
+# 10 Amazing Action Movies to Watch If You Love Reacher
+
+Movies
+
+Tue, 07 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/best-action-movie-like-reacher/
+
+Jack Reacher grew a significant following in 2012. Fans of the Prime Video hit series about the former MP would love these 10 amazing action movies.
+---------
+
+# 10 Suicide Squad Characters Who Matured Past Their Original Storylines
+
+Comics, DC Comics
+
+Tue, 07 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/suicide-squad-characters-who-outgrew-their-storyline/
+
+Is DC Comics falling out of touch with the Suicide Squad?
+---------
+
+# Marvel Officially Reveals Its Most Powerful Symbiote Yet — Even Deadlier Than Carnage
+
+Comics, Marvel, Marvel Comics, Venom, Spider-Man, Spider-Man: Brand New Day
+
+Tue, 07 Apr 2026 17:58:09 GMT
+
+https://www.cbr.com/marvel-officially-reveals-most-powerful-symbiote-yet-deadlier-than-carnage/
+
+Marvel just created an unreal symbiote pairing that makes the original Carnage look like a walk in the park.
+---------
+
+# Emilia Clarke Returns to Horror for Most Terrifying Role
+
+Movies, Horror
+
+Tue, 07 Apr 2026 17:55:23 GMT
+
+https://www.cbr.com/emilia-clarke-horror-when-darkness-loves-us/
+
+Emilia Clarke is returning to the horror genre for what will be her most terrifying role yet.
+---------
+
+# 'X-Men' Reboot Director Officially Reveals Which Comics the New MCU Reboot Is Inspired By [Exclusive]
+
+Exclusives, Jake Schreier, X-Men, Marvel, MCU
+
+Tue, 07 Apr 2026 18:30:12 GMT
+
+https://collider.com/x-men-reboot-mcu-movie-comic-book-inspiration-revealed-jake-schreier/
+
+Marvel's X-Men reboot director Jake Schreier reveals the classic comics serving as the inspiration for the new MCU film.
+---------
+
+# Prime Video’s Gritty Sci-Fi Epic Recruits a ‘For All Mankind’ Star for Final Season
+
+TV News, The Boys, Prime Video, Karl Urban, Antony Starr
+
+Tue, 07 Apr 2026 18:00:12 GMT
+
+https://collider.com/prime-video-the-boys-season-5-cast-ely-henry-dylan-colton-emma-elle-paterson-maitreyi-ramakrishnan/
+
+Prime Video’s The Boys Season 5 has added 4 new cast members to the superhero satire’s final season, including a star of Apple TV’s For All Mankind.
+---------
+
+# Dan Levy Was Considering 'Schitt's Creek' Sequel Before Catherine O'Hara's Death
+
+TV News, Schitt's Creek, Dan Levy, Catherine O'Hara
+
+Tue, 07 Apr 2026 18:52:55 GMT
+
+https://movieweb.com/schitts-creek-sequel-plan-catherine-o-hara/
+
+According to 'Schitt's Creek' creator Dan Levy, another chapter of the story had been on the table prior to star Catherine O'Hara's death.
+---------
+
+# 'Michael' Original Ending Reshot After Jackson Estate Error Surfaced
+
+Movie News, michael jackson
+
+Tue, 07 Apr 2026 18:42:14 GMT
+
+https://movieweb.com/michael-original-ending-reshoots/
+
+Production on the $155 million Lionsgate biopic was beset with delays ranging from legal issues to wildfires.
+---------
+
+# CBS Confirms Two Comedy Series Will Take Over 'Late Show' Timeslot After Cancellation
+
+TV News, The Late Show with Stephen Colbert, Stephen Colbert
+
+Tue, 07 Apr 2026 18:10:46 GMT
+
+https://movieweb.com/cbs-late-show-stephen-colbert-replacement/
+
+The new offering will be decidedly less political and way cheaper for CBS.
+---------
+
+# 'Jujutsu Kaisen' Season 3 The Culling Game Is a Major Streaming Success on Crunchyroll
+
+TV News, Jujutsu Kaisen, Crunchyroll, Hot on Streaming, Action
+
+Tue, 07 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/jujutsu-kaisen-season-3-success-crunchyroll-april-2026/
+
+Before The Culling Game Part 2, 'Jujutsu Kaisen' Season 3 is a dark fantasy action success on Crunchyroll's streaming charts.
+---------
+
 # Sydney Sweeney’s Gritty HBO Psychological Drama Series Returns Early As Worldwide Streaming Hit
 
 TV, Euphoria, HBO Max
