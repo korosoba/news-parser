@@ -1,3 +1,179 @@
+# Fallout 5 Teaser Confirms We'll Be Playing This Game For A Very Long Time
+
+Gaming, Fallout, Fallout 5
+
+Tue, 07 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/fallout-5-teaser-confirms-well-be-playing-this-game-for-a-very-long-time/
+
+Fallout 5 could have enough content to support more than 600 hours of good fun, and that's a future we can all enjoy.
+---------
+
+# Pokémon Winds & Waves "Peak" Starter Final Evolutions Praised By Gamers
+
+Gaming, Pokemon, Pokemon Winds and Waves
+
+Tue, 07 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-starter-final-evolution-concepts/
+
+Pokémon Winds & Waves has already revealed its starter 'mons and fans have started submitting their own designs for potential final forms.
+---------
+
+# 10 Best Marvel Team Leaders, Ranked
+
+Comics, Marvel, Avengers, X-Men
+
+Tue, 07 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/10-best-marvel-team-leaders-avengers-x-men-ranked-list/
+
+The Marvel Universe is full of legendary teams led by equally iconic heroes, and these ten Marvel team leaders stand out as the very best of the best.
+---------
+
+# Disney+ Quietly Adds the Perfect 26-Episode Anime for ‘Inuyasha’ Fans
+
+TV Features, Yashahime: Princess Half-Demon, Inuyasha, Anime, Disney+
+
+Tue, 07 Apr 2026 11:18:12 GMT
+
+https://collider.com/disney-plus-anime-yashahime-princess-half-demon/
+
+Yashahime continues Inuyasha’s legacy with a new generation, blending action, humor, and mystery across a 26-episode anime run.
+---------
+
+# Only 3 Superhero Movies Are Better Than 'The Dark Knight'
+
+Movie, The Dark Knight, Spider-Man 2, The Incredibles, Black Panther
+
+Tue, 07 Apr 2026 11:03:12 GMT
+
+https://collider.com/superhero-movies-better-than-the-dark-knight/
+
+The Dark Knight is widely considered the pinnacle of superhero filmmaking, but movies like Black Panther are arguably superior entries into the genre.
+---------
+
+# One of the Most Iconic Fantasy Franchise Starters Ever Dominates Global Streaming 25 Years Later
+
+Movie News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max, streaming
+
+Tue, 07 Apr 2026 11:00:12 GMT
+
+https://collider.com/harry-potter-and-the-sorcerers-stone-streaming-hit-hbo-max-april-2026/
+
+The most important Harry Potter movie has become a global hit on the streaming charts following the new reboot's trailer.
+---------
+
+# Only 5 Fantasy Shows Are Better Than 'Game of Thrones'
+
+TV, Game Of Thrones, Fantasy, Arcane, Avatar: The Last Airbender
+
+Tue, 07 Apr 2026 10:52:13 GMT
+
+https://collider.com/fantasy-tv-shows-better-than-game-of-thrones/
+
+As great as HBO's Game of Thrones is, but fantasy shows like Nickelodeon's Avatar: The Last Airbender and Netflix's Arcane are arguably better.
+---------
+
+# 5 Worst Fantasy Movies That Tried to Be ‘The Lord of the Rings’
+
+Movie, Fantasy, The Lord of the Rings, Eragon, Warcraft
+
+Tue, 07 Apr 2026 10:41:12 GMT
+
+https://collider.com/worst-fantasy-movies-tried-to-be-the-lord-of-the-rings/
+
+From Eragon to Warcraft, these fantasy films aimed for epic greatness but fell short despite big ideas and massive ambition.
+---------
+
+# Chris Hemsworth’s Biggest Thriller Is Still One of the Most Addictive Action Movies on Netflix
+
+Movie News, Chris Hemsworth, Extraction, Russo Brothers, Netflix
+
+Tue, 07 Apr 2026 10:30:13 GMT
+
+https://collider.com/chris-hemsworth-mission-impossible-replacement-extraction-streaming-success-netflix-april-2026/
+
+Chris Hemsworth saves the day as Tyler Rake in Extraction, a high-octane action movie from the Russo Brothers, currently surging on streaming.
+---------
+
+# George R.R. Martin Is Right About This 2-Part Sci-Fi Masterpiece Streaming Now
+
+TV Features, Disney+, Andor, Tony Gilroy, George R.R. Martin
+
+Tue, 07 Apr 2026 10:28:12 GMT
+
+https://collider.com/george-rr-martin-sci-fi-masterpiece-andor-star-wars-disney-plus/
+
+George R.R. Martin praised Andor, the 2-season Disney+ sci-fi thriller, calling the acclaimed Star Wars series a standout of the year.
+---------
+
+# 20 Most Powerful MCU Characters Introduced After 'Avengers: Endgame,' Ranked
+
+Movie, MCU, Agatha All Along, Eternals, Thor: Love and Thunder
+
+Tue, 07 Apr 2026 10:28:12 GMT
+
+https://collider.com/mcu-powerful-characters-after-avengers-endgame-ranked/
+
+From America Chavez to Death herself, these are the most powerful characters who made their MCU debut after the game-changing Avengers: Endgame.
+---------
+
+# 10 Most Perfect Classic Rock Albums of the '60s, Ranked
+
+Movie, Rock, Music, The Beatles, Paul McCartney
+
+Tue, 07 Apr 2026 10:26:12 GMT
+
+https://collider.com/most-perfect-rock-classic-albums-60s-ranked/
+
+From The Velvet Underground and Nico to Revolver by the Beatles, these are the best and most perfect classic rock albums of the 1960s.
+---------
+
+# Everything To Remember From 'The Handmaid's Tale' Before Its New 10-Part Sequel Premieres
+
+TV Features, The Testaments, The Handmaid's Tale, Hulu, Ann Dowd
+
+Tue, 07 Apr 2026 10:08:12 GMT
+
+https://collider.com/the-handmaids-tale-recap-before-the-testaments-spinoff/
+
+Before watching Hulu's The Testaments, refresh your memory on the crucial events, characters, and storylines from The Handmaid's Tale.
+---------
+
+# 'The Boys' Season 5 Prime Video Release Schedule
+
+Features, The Boys, Prime Video, Superhero
+
+Tue, 07 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/the-boys-season-5-releases-schedule/
+
+The complete release schedule for every episode in the final season of Prime Video's subversive superhero series 'The Boys'.
+---------
+
+# 'The Boys' Star Laz Alonso Teases Major Internal Struggle for M.M. in Season 5 [Exclusive]
+
+Exclusives, The Boys, Prime Video
+
+Tue, 07 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/the-boys-laz-alonso-different-lost-hope/
+
+Speaking exclusively to MovieWeb, Laz Alonso reveals M.M. will have some big things to think about in the fight against Vought in 'The Boys' Season 5.
+---------
+
+# Brie Larson Plays Coy When Asked About Captain Marvel's Role in 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Brie Larson, MCU
+
+Tue, 07 Apr 2026 10:32:35 GMT
+
+https://movieweb.com/brie-larson-captain-marvel-return-doomsday/
+
+Brie Larson responds to Captain Marvel return rumors in ‘Avengers: Doomsday,’ and her Marvel answer leaves the door open.
+---------
+
 # Red Dead Redemption 2 Just Got An Unexpected New Release
 
 Gaming, Red Dead Redemption 2
