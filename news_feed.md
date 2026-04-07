@@ -1,3 +1,234 @@
+# Netflix's One Piece Gets First Update Of 2026, And It's The One Every Fan Dreaded
+
+Anime, One Piece, Netflix
+
+Tue, 07 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/one-piece-netflix-remake-update-2026/
+
+After nearly a whole year of silence, Netflix and Wit Studio have shared a new teaser for their One Piece remake, but it's incredibly disappointing.
+---------
+
+# Gritty New Star Wars Show Slashes Its Disney+ Competition To Become #1 Worldwide
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Tue, 07 Apr 2026 21:28:34 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-disney-plus-streaming-success-april-2026/
+
+After the success of Andor, another gritty Star Wars show has arrived on Disney+, and it has quickly cut through the competition on streaming.
+---------
+
+# Dexter: Resurrection Star Joins ABC's Hit Detective Series Based On 39-Year Old Crime Novel
+
+TV, RJ Decker, RJ Decker - Season 1, David Zayas, Dexter: Resurrection
+
+Tue, 07 Apr 2026 21:16:43 GMT
+
+https://screenrant.com/rj-decker-david-zayas-casting/
+
+A long-running actor in the Dexter franchise has lined up his next role after joining the cast of an ABC detective series that premiered in March.
+---------
+
+# High Potential Season 3: Release Date, Story, & Everything We Know
+
+Network TV, High Potential
+
+Tue, 07 Apr 2026 21:02:19 GMT
+
+https://screenrant.com/high-potential-season-3-status-release-date-cast-story-explained/
+
+ABC's top-rated show continued Morgan Gillory's story in High Potential season 2, with the procedural setting up a possibly more intriguing season 3.
+---------
+
+# How The Epic Conclusion To An 8-Part Action Franchise Is Taking Over The World (Trending Worldwide)
+
+New Movies, Mission: Impossible - The Final Reckoning, Mission: Impossible
+
+Tue, 07 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/mission-impossible-the-final-reckoning-trending-streaming-success-april-2026/
+
+Audiences have turned the epic conclusion to a long-running action franchise into a worldwide sensation, with it dominating multiple streamers.
+---------
+
+# God Of War 6 Mayan Setting Backed By Gamers
+
+Gaming, God of War, Triple-A Games
+
+Tue, 07 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/god-of-war-6-mayan-setting-gamer-hopes/
+
+Although many fans are convinced that God of War is going to Egypt next, others are campaigning for different settings and locations.
+---------
+
+# Netflix’s Official Stranger Things Follow-Up Solves A 7-Year Franchise Mystery
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Tue, 07 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-solves-franchise-mystery/
+
+Netflix’s upcoming spinoff Stranger Things spinoff Tales from '85 can't change the finale, but it can fix one infamous problem fans hated for years.
+---------
+
+# Fallout 5 Official Release Date Update Leaves Gamers Heartbroken
+
+Gaming, Fallout, Fallout 5
+
+Tue, 07 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/fallout-5-release-date-update-bethesda-elder-scrolls-6/
+
+Fallout 5's production status is quite up in the air right now, and it seems like we're going to be waiting a long time to play it.
+---------
+
+# Kaitlin Olson's Hit 5-Part HBO Max Series Returns To Record-Setting Rotten Tomatoes Score
+
+TV, Hacks, Hacks - Season 5
+
+Tue, 07 Apr 2026 20:44:40 GMT
+
+https://screenrant.com/hacks-season-5-rotten-tomatoes-score-debut/
+
+Kaitlin Olson's hit five-part HBO Max series returns to a record-setting Rotten Tomatoes score ahead of its premiere this Thursday, April 9.
+---------
+
+# Taylor Sheridan Officially Set to Direct New Movie After 5 Years
+
+Movies
+
+Tue, 07 Apr 2026 21:29:52 GMT
+
+https://www.cbr.com/taylor-sheridan-battle-of-the-alamo-movie/
+
+Taylor Sheridan is officially set to direct a new movie, breaking a 5-year trend, but with a big catch.
+---------
+
+# 10 Forgotten Anime Films That Have Aged Like Fine Wine
+
+Anime, In This Corner of the World, The Night Is Short, Walk On Girl
+
+Tue, 07 Apr 2026 21:15:11 GMT
+
+https://www.cbr.com/best-forgotten-anime-movies-still-good/
+
+There are some true anime hidden gems like Belladonna of Sadness and A Wind Named Amnesia that hold up well, despite their obscure cult status.
+---------
+
+# Marvel Adds 2 More Mutant Teams to Streaming Before X-Men Reboot
+
+TV, Marvel, Marvel Comics, X-Men, X-Men '97, MCU
+
+Tue, 07 Apr 2026 21:06:52 GMT
+
+https://www.cbr.com/marvel-adds-2-more-mutant-teams-to-streaming-before-x-men-97-reboot-disney-plus/
+
+Two legendary mutant teams are ready to make their explosive debut in Season 2 of X-Men '97.
+---------
+
+# Jumanji: Welcome to the Jungle Tops Netflix U.S. Charts Ahead of Jumanji 4
+
+Movies, Jumanji, Jumanji: Welcome to the Jungle, Netflix
+
+Tue, 07 Apr 2026 21:00:14 GMT
+
+https://www.cbr.com/jumanji-welcome-to-the-jungle-adventure-comedy-netflix-success-april-2026/
+
+Jumanji: Welcome to the Jungle, starring Dwayne "The Rock" Johnson, leads Netflix U.S. charts ahead of highly anticipated Jumanji sequel debut.
+---------
+
+# Ann Dowd Explains How Aunt Lydia Has Changed Between The Handmaid’s Tale and The Testaments
+
+CBR Exclusives, The Testaments
+
+Tue, 07 Apr 2026 21:00:14 GMT
+
+https://www.cbr.com/the-testaments-ann-dowd-explains-aunt-lydia-change-from-handmaids-tale/
+
+What's Aunt Lydia been up to since the series finale of The Handmaid's Tale?
+---------
+
+# The Wizard Invented the Modern 'Hype Cycle' for Video Game
+
+Movies, The Wizard, Nintendo, Super Mario Bros. 3
+
+Tue, 07 Apr 2026 21:00:14 GMT
+
+https://www.cbr.com/the-wizard-invented-modern-hype-cycle-video-game/
+
+Modern gamers endure a constant cycle of hype and disappointment, and the origin of the video game "drop" can be traced back to a forgotten 1989 movie
+---------
+
+# Paramount Skydance Secures $24B of Foreign Funding for Warner Bros. Merger
+
+Movies, Paramount, warner bros
+
+Tue, 07 Apr 2026 20:59:51 GMT
+
+https://www.cbr.com/paramount-skydance-secures-24b-foreign-funding-for-warner-bros-takeover/
+
+Paramount Skydance, led by David Ellison, secures $24 billion in funding from Saudi Arabia, Qatar, and Abu Dhabi to acquire Warner Bros.
+---------
+
+# Stephen King's $68.5M Sci-Fi Movie The Running Man Changes Book Ending
+
+Movies, Stephen King, The Running Man
+
+Tue, 07 Apr 2026 20:57:05 GMT
+
+https://www.cbr.com/stephen-king-the-running-man-changes-too-brutal-original-ending/
+
+The original ending couldn't have happened after one of the biggest real-life tragedies.
+---------
+
+# Marvel Eyes More She-Hulk: Attorney at Law After Disney+ Success
+
+TV
+
+Tue, 07 Apr 2026 20:56:38 GMT
+
+https://www.cbr.com/marvel-confirms-she-hulk-disney-plus-success/
+
+One of the most polarizing MCU shows on Disney+ was a much bigger success than fans have realized.
+---------
+
+# 10 Marvel Characters That Could Show Up in 'Spider-Man: Brand New Day'
+
+Movie, Spider-Man: Brand New Day, MCU, Spider-Man, Daredevil: Born Again
+
+Tue, 07 Apr 2026 21:23:12 GMT
+
+https://collider.com/spider-man-brand-new-day-characters-could-appear/
+
+Spider-Man: Brand New Day's trailer reveals many characters, but a few others could still appear in the movie, including both Osborns and Daredevil.
+---------
+
+# The Fan-Favorite Assembly Cut of David Fincher's 'Alien 3' Just Hit HBO Max
+
+Movie News, Alien, Alien 3, David Fincher
+
+Tue, 07 Apr 2026 21:16:53 GMT
+
+https://movieweb.com/alien-3-assembly-cut-hbo-max/
+
+What was once confined to an 'Alien' Blu-ray Boxset is now widely available.
+---------
+
+# Macon Blair's New Comedy Now Titled 'Idiots' Gets Summer Release Date
+
+Movie News, The Toxic Avenger, Macon Blair, Idiots
+
+Tue, 07 Apr 2026 20:43:41 GMT
+
+https://movieweb.com/idiots-macon-blair-comedy-release-date/
+
+Macon Blair's new comedy movie, which is now officially titled 'Idiots,' will make its theatrical debut later this summer.
+---------
+
 # Supernatural’s New Series Will Finally Deliver the Missing Episode Fans Always Wanted
 
 Comics, Supernatural
