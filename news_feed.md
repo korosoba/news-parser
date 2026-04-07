@@ -1,3 +1,355 @@
+# PlayStation 5 April System Update Introduces Major Redesign
+
+Gaming, PlayStation 5
+
+Tue, 07 Apr 2026 14:02:31 GMT
+
+https://screenrant.com/playstation-5-system-update-april-2026-redesign/
+
+A handful of PlayStation 5 users are starting to see major changes to the console’s home screen UI in an update that’s currently in beta.
+---------
+
+# If You Miss The Owl House, You Have To Watch Crunchyroll's New 10/10 Fantasy Epic
+
+Anime, The Owl House, Witch Hat Atelier
+
+Tue, 07 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/owl-house-witch-hat-atelier-crunchyroll-anime-streaming/
+
+The best new anime for Owl House fans.
+---------
+
+# CBS's 7-Part Crime Thiller Series Keeps Getting Better
+
+TV, Elementary
+
+Tue, 07 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/elementary-cbs-crime-series-aged-well/
+
+CBS's iconic crime thriller was almost overshadowed by a flashier competitor, but the cult classic has aged well in the years since its finale.
+---------
+
+# Olivia Taylor Dudley Is Stuck With A Hot Alien In Touch Me Clip
+
+Exclusive, Touch Me, Olivia Taylor Dudley
+
+Tue, 07 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/video/touch-me-movie-olivia-taylor-dudley-clip/
+
+Exclusive: ScreenRant presents a clip from horror-comedy Touch Me, starring Olivia Taylor Dudley, Lou Taylor Pucci, and Jordan Gavaris.
+---------
+
+# Apple TV's Returning Sci-Fi Masterpiece Is Getting A "Whole New Dimension" As Star Offers Season 4 Filming Update
+
+TV, Foundation, Apple TV
+
+Tue, 07 Apr 2026 13:59:28 GMT
+
+https://screenrant.com/apple-tv-foundation-season-4-new-dimension-filming-update-lee-pace/
+
+Apple TV's returning sci-fi masterpiece gets a major filming update, as the star teases a whole new dimension for the long-awaited season 4.
+---------
+
+# Why Hacks Is Ending After Season 5 & How It Fulfills OG Plan Revealed By Creators
+
+TV, Hacks
+
+Tue, 07 Apr 2026 13:51:32 GMT
+
+https://screenrant.com/hacks-season-5-ending-last-one-reason-creators/
+
+EXCLUSIVE: The creators of Hacks reveal why the show is ending after five seasons, sharing insight on the conclusion of the HBO Max comedy.
+---------
+
+# PUBG's Bold New Future Has To Have Esports At Its Core
+
+Gaming, PUBG: Battlegrounds, PUBG Mobile
+
+Tue, 07 Apr 2026 13:49:18 GMT
+
+https://screenrant.com/pubg-future-esports-identity-opinion/
+
+PUBG is entering a bold new era after celebrating its 9th birthday, and it needs to focus on having Esports at the center of it all.
+---------
+
+# Spot Debuts New Redesign as Miles Morales Changes Marvel Lore Forever
+
+Comics, Miles Morales, Spider-Man
+
+Tue, 07 Apr 2026 13:35:23 GMT
+
+https://screenrant.com/miles-morales-spider-man-spot-redesign-lore-change/
+
+Miles Morales' Spider-Man is about to change Marvel lore forever, and Marvel is kicking things off with a new design for an iconic villain.
+---------
+
+# MCU's X-Men Movie Gets New Script From Creator Of 98% RT Score Emmy-Winning TV Show
+
+Movies, Marvel's X-Men, Marvel Cinematic Universe, X-Men
+
+Tue, 07 Apr 2026 13:32:39 GMT
+
+https://screenrant.com/xmen-marvel-movie-sonny-lee-sung-jin-joanna-calo-script/
+
+Marvel Studios' X-Men reboot is moving forward with a new writing team, as Thunderbolts* director Jake Schreier shares a big update on the reboot.
+---------
+
+# Hamilton’s Perfect Replacement Will Hit Movie Theaters In July
+
+Movies, Hamilton
+
+Tue, 07 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/hamilton-hadestown-proshot-replacement-exciting/
+
+Hamilton became an absolute global sensation when it hit Disney+, and another Tony-winning Broadway musical is going to be the next big thing.
+---------
+
+# Rick and Morty Officially Releases Preview of Its End
+
+Comics, Rick and Morty
+
+Tue, 07 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/rick-and-morty-officially-releases-preview-end/
+
+Rick and Morty's finale is only one issue away, and CBR has an exclusive preview of this week's penultimate issue, Rick and Morty: The End #5
+---------
+
+# Apple TV's Sci-Fi Dark Matter Officially Confirms Return Date
+
+TV, Dark Matter
+
+Tue, 07 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/apple-tv-dark-matter-season-2-release-date/
+
+Apple TV doesn't have a shortage of hit sci-fi shows, but it'll bring back a forgotten gem.
+---------
+
+# Dark Winds’ Kiowa Gordon Reveals Why Jim Chee Might Join the FBI in Season 5
+
+CBR Exclusives, Dark Winds, AMC, Western
+
+Tue, 07 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/dark-winds-kiowa-gordon-jim-chee-fbi-choice/
+
+The Dark Winds star reveals why Chee is contemplating on leaving the reservation after Season 4.
+---------
+
+# 10 Epic Anime That Would Be Perfect Except for the Ending
+
+Anime, The Promised Neverland
+
+Tue, 07 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/perfect-anime-bad-endings/
+
+Endings are notoriously difficult to get right in all forms of storytelling, and anime fans know that curse better than anyone.
+---------
+
+# Which Daredevil TV Show Do You Like the Best?
+
+Comics
+
+Tue, 07 Apr 2026 13:00:59 GMT
+
+https://www.cbr.com/which-daredevil-tv-show-best/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you will be voting on your favorite DC and Marvel TV shows. We have hit the Finals!
+---------
+
+# HBO's Harry Potter Documentary Finding Harry Becomes an Instant Global Hit
+
+TV, Harry Potter
+
+Tue, 07 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/harry-potter-documentary-finding-harry-the-craft-behind-the-magic-hbo-success-april-2026/
+
+The new project proves there is interest in the long-running fantasy franchise.
+---------
+
+# Netflix's Vikings: Valhalla Is the Bloodiest Binge of the Decade
+
+TV, Netflix, Vikings: Valhalla, Vikings
+
+Tue, 07 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/netflix-vikings-valhalla-brutal-viking-drama/
+
+Netflix shows that historical fiction can be brutal, not just dramatic, in this Viking drama.
+---------
+
+# Perfect Double Features To Watch With Netflix's 'War Machine'
+
+Movies, War Machine, Sci-Fi, Netflix
+
+Tue, 07 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/perfect-double-features-netflix-war-machine-sci-fi/
+
+In March 2026, Netflix found success with the release of Alan Ritchson's War Machine, and some films are essential viewing alongside it.
+---------
+
+# Apple TV’s Secret Sci-Fi Masterpiece Officially Sets Season 2 Release Date With First Images
+
+TV News, Dark Matter, Apple TV, Joel Edgerton, Jennifer Connelly
+
+Tue, 07 Apr 2026 14:01:12 GMT
+
+https://collider.com/apple-tv-dark-matter-season-2-release-date-august-28/
+
+Apple TV has officially announced the Season 2 return of Dark Matter, its multiversal sci-fi series starring Joel Edgerton and Jennifer Connelly.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 7, 2026
+
+TV, Maude, CSI: Crime Scene Investigation, The Golden Palace, Joey
+
+Tue, 07 Apr 2026 13:01:12 GMT
+
+https://collider.com/tv-quiz-apr-7-2026-spin-offs/
+
+Sometimes, spin-offs successfully fleshed out smaller characters. Other times, they proved why the smaller characters should have remained small.
+---------
+
+# Netflix's 'One Piece' Is Getting a Massive Expansion Starting This Fall
+
+TV News, One Piece, Lego, Netflix, Anime
+
+Tue, 07 Apr 2026 13:00:13 GMT
+
+https://collider.com/one-piece-netflix-live-action-season-3-lego-special-release-date-new-anime/
+
+Netflix revealed first looks at three new One Piece projects, including a new LEGO special this fall, an anime remake, and the live-action Season 3.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 7, 2026
+
+Movie, Romancing the Stone, Mission: Impossible 2, Fast X, John Wick: Chapter 4
+
+Tue, 07 Apr 2026 12:59:12 GMT
+
+https://collider.com/movie-quiz-apr-7-2026-movie-sequels/
+
+Sometimes they use Roman numerals. Sometimes they contain the word "Part." And sometimes they're technically squeakquels. Today, movie sequels abound.
+---------
+
+# This Gritty 86% RT Spy Series Has 'Slow Horses' Energy in a Tight 4 Episodes
+
+TV Features, Betrayal, Slow Horses, Hulu, Thriller
+
+Tue, 07 Apr 2026 12:31:12 GMT
+
+https://collider.com/spy-series-betrayal-slow-horses-replacement/
+
+The gritty spy series Betrayal, available to stream on Hulu, packs a punch with four mind-bending episodes.
+---------
+
+# New X-Men Director Officially Confirms Marvel’s Plan For Multiple X-Men Movies [Exclusive]
+
+Exclusives, X-Men, Beef, Jake Schreier
+
+Tue, 07 Apr 2026 12:30:12 GMT
+
+https://collider.com/x-men-reboot-movie-director-officially-confirms-marvels-plans-multiple-x-men-movies/
+
+X-Men reboot director Jake Schreier reveals Marvel is already planning beyond a single film, hinting at a multi-film franchise with fresh takes.
+---------
+
+# 61 Years Ago, Horror's Most Iconic Monster Was Godzilla-Sized in This Insane Cult Classic
+
+Movie Features, Frankenstein Conquers the World, Frankenstein, Toho, Horror
+
+Tue, 07 Apr 2026 12:30:12 GMT
+
+https://collider.com/frankenstein-conquers-the-world-kaiju-monster-1965-japanese-cult-classic/
+
+A mutated Frankenstein’s monster grows to kaiju size in this wild 1965 Japanese cult film, blending sci-fi horror, atomic fears, and monster mayhem.
+---------
+
+# The 10 Best Movie Masterpieces of the Last 20 Years, Ranked
+
+Movie, Children of Men, The Social Network, The Zone of Interest, There Will Be Blood
+
+Tue, 07 Apr 2026 12:14:13 GMT
+
+https://collider.com/best-movie-masterpieces-last-20-years/
+
+The last 20 years have produced some of cinema's most timeless masterworks, from genre fare like Children of Men to horror phenomenons like Get Out.
+---------
+
+# Netflix's 'One Piece' Season 3 Gets Title & Release Date
+
+TV News, One Piece
+
+Tue, 07 Apr 2026 14:03:23 GMT
+
+https://movieweb.com/one-piece-season-3-title-release-window/
+
+The Straw Hats are headed to an all-out war in 'One Piece' Season 3, now titled 'The Battle of Alabasta.'
+---------
+
+# 'The Boys' Season 5's Impressive Record Sets up the Ending We've Wanted
+
+Features, The Boys, Prime Video
+
+Tue, 07 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/the-boys-season-5-record-ending/
+
+Prime Video's Superhero Satire's impressive critical reception points toward a well-earned conclusion that's been a long time coming.
+---------
+
+# Rob Reiner & Tom Cruise's Flawless Legal Thriller 'A Few Good Men' Is Now Streaming Free
+
+Movie News, A Few Good Men, Coming/Leaving Streaming, Tubi, Thriller
+
+Tue, 07 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/a-few-good-men-streaming-tubi-april-2026/
+
+It's hard to find a line more iconic than "You can't handle the truth."
+---------
+
+# How 'For All Mankind's John Lennon Timeline Differs From Reality
+
+Features, For All Mankind, John Lennon
+
+Tue, 07 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/for-all-mankind-john-lennon-alternate-timeline/
+
+The Beatles and John Lennon have very different lives in 'For All Mankind.' Read on to find out how the Apple TV changes things
+---------
+
+# 'Memory of a Killer' Starring Patrick Dempsey Renewed for Season 2 by Fox
+
+TV News, Memory of a Killer
+
+Tue, 07 Apr 2026 12:53:08 GMT
+
+https://movieweb.com/memory-killer-renewed-season-2/
+
+The decision comes after the show enjoyed steadily improving ratings throughout Season 1.
+---------
+
+# 'Contagion' Sequel Not Happening, Says Director Steven Soderbergh
+
+Movie News, Contagion, Steven Soderbergh
+
+Tue, 07 Apr 2026 12:25:33 GMT
+
+https://movieweb.com/contagion-2-sequel-update/
+
+Director Steven Soderbergh has confirmed that 'Contagion 2' is officially not happening after years of sequel discussions.
+---------
+
 # CBS's Marshals Officially Leaves Yellowstone In The Past
 
 Network TV, Marshals, Yellowstone
