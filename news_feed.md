@@ -1,3 +1,267 @@
+# Sydney Sweeney’s Gritty HBO Psychological Drama Series Returns Early As Worldwide Streaming Hit
+
+TV, Euphoria, HBO Max
+
+Tue, 07 Apr 2026 17:39:40 GMT
+
+https://screenrant.com/euphoria-hbo-max-streaming-success-april-2026/
+
+Sydney Sweeney's psychological thriller series with a high RT score rises to become a global smash hit right before it returns with a new season.
+---------
+
+# Super Mario Galaxy Movie Sets New 2026 Box Office Record As Hit Sequel Passes Another Big Milestone
+
+Movies, The Super Mario Galaxy Movie, Box Office
+
+Tue, 07 Apr 2026 17:30:09 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-monday-box-office-2026-record/
+
+The Super Mario Galaxy Movie is already reaching for the stars, as it dominates the 2026 box office and passes another major milestone.
+---------
+
+# The Super Mario Galaxy Movie Failed Bowser In A Disappointing Way
+
+New Movies, The Super Mario Galaxy Movie
+
+Tue, 07 Apr 2026 17:21:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-no-bowser-song-disappointment/
+
+The Super Mario Galaxy Movie made Bowser a disappointment, as the sequel kept Jack Black from continuing one of the villain's best traits.
+---------
+
+# Netflix's 6-Part Action Series Is One Of Its Best Shows To Binge
+
+TV, Cobra Kai, The Karate Kid
+
+Tue, 07 Apr 2026 17:04:19 GMT
+
+https://screenrant.com/cobra-kai-netflix-best-action-show-binge/
+
+Netflix's spinoff from a cult classic franchise is a binge-worthy action show that delivers killer fights alongside thought-provoking character arcs.
+---------
+
+# Forza Horizon 6: Cross-Play and Cross-Progression Explained
+
+Gaming, Forza Horizon 6
+
+Tue, 07 Apr 2026 16:58:08 GMT
+
+https://screenrant.com/forza-horizon-6-crossplay-and-cross-progression/
+
+If you're looking to play with friends across different platforms in Forza Horizon 6, we've got some great news for you.
+---------
+
+# Award-Winning Horror Series Returns in 2026 With New 4-Part Spinoff
+
+Comics, Something is Killing the Children
+
+Tue, 07 Apr 2026 16:53:00 GMT
+
+https://screenrant.com/fall-of-the-house-of-slaughter-new-series/
+
+An award-winning horror franchise that has earned a TV adaptation and already produced a prequel series is now getting a brand-new four-part spinoff.
+---------
+
+# Jujutsu Kaisen Season 2 Finally Gets An Official Netflix Release Date
+
+Anime, Jujutsu Kaisen, Netflix
+
+Tue, 07 Apr 2026 16:51:10 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-2-netflix-release-date/
+
+It is official, Jujutsu Kaisen's second season is finally coming to Netflix after years of fans patiently waiting for the anime to stream there.
+---------
+
+# The MCU Is Making the Same Mistake As the X-Men Comics
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Tue, 07 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/mcu-x-men-movie-making-same-mistake-as-comics/
+
+The X-Men are coming to the MCU, and a recent announcement confirms a major comics mistake could already be happening.
+---------
+
+# Star Wars Maul: Shadow Lord Creators Break Down the Big Twist
+
+TV, Star Wars: Maul - Shadow Lord
+
+Tue, 07 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/video/star-wars-maul-shadow-lord-creators-break-down-the-big-twist/
+
+Athena Yvette Portillo, Matt Michnovetz, and Brad Rau break down the biggest ideas behind the series, from Maul’s new Sith relationship to the noir-inspired tone shaping the show. They also tease potential plans for Season 2 and how fan reactions could influence what comes next.Plus, the team dives into the experimental score, blending classic Star Wars music with darker, synth-heavy elements. If you’re into Star Wars Maul theories, Shadow Lord breakdowns, and Sith lore deep dives, this is one you don’t want to miss.
+---------
+
+# Netflix's The Fall of the House of Usher Still Keeps Horror Fans Up at Night
+
+TV, The Fall of the House of Usher, Mike Flanagan, Netflix, Horror
+
+Tue, 07 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/netflix-the-fall-of-the-house-of-usher-scary-gothic-masterpiece/
+
+Mike Flanagan's final Netflix masterpiece is a chilling tale of tragedy, corruption, and the consequences of wealth.
+---------
+
+# Dune: Part Three Officially Sets Unexpected Franchise Record
+
+Movies, Dune: Part Three
+
+Tue, 07 Apr 2026 17:23:10 GMT
+
+https://www.cbr.com/dune-part-three-franchise-record-runtime/
+
+Before it has even hit theaters, Dune: Part Three is already breaking records in the sci-fi franchise.
+---------
+
+# GTA 6 Delay Rumors Officially Addressed By Rockstar
+
+Games, Grand Theft Auto
+
+Tue, 07 Apr 2026 17:20:12 GMT
+
+https://www.cbr.com/gta-6-delay-rumors-rockstar-confirms/
+
+Rumors about one ridiculous reason why Grand Theft Auto VI might get pushed back yet again are officially disspelled by Rock Star insiders.
+---------
+
+# Star Wars Just Officially Rewrote Order 66
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi
+
+Tue, 07 Apr 2026 17:20:12 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-rewrites-order-66/
+
+A new Star Wars story is officially rewriting Order 66. But will fans accept it?
+---------
+
+# Dragon Ball Super's Toyotarou Revives 1 of DBZ's Most Forgotten Android Saga Villains
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Tue, 07 Apr 2026 17:16:12 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-doctor-gero-release/
+
+One of the most forgotten villains in the DBZ Androids Saga finally gets his due in the latest release by Dragon Ball Super's Toyotarou.
+---------
+
+# 10 Perfect PlayStation JRPGs Nobody Remembers
+
+Games, JRPG, PlayStation (Original)
+
+Tue, 07 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/best-forgotten-playstation-jrpgs-list/
+
+PlayStation consoles are famous for their JRPGs, but while the Final Fantasy games are well remembered, other titles have been forgotten.
+---------
+
+# 7 Possible Replacements for Leon Vance on NCIS
+
+TV, NCIS, NCIS: Hawaii, NCIS: Los Angeles, NCIS: New Orleans
+
+Tue, 07 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/ncis-season-23-replacements-for-rocky-carroll-director-leon-vance/
+
+After Director Leon Vance dies in the 500th episode of NCIS, fans are buzzing about which actors from the Navy franchise could succeed Rocky Carroll.
+---------
+
+# Brie Larson Addresses Avengers: Doomsday Return
+
+Movies, Avengers: Doomsday
+
+Tue, 07 Apr 2026 16:54:09 GMT
+
+https://www.cbr.com/brie-larson-avengers-doomsday-return/
+
+Brie Larson might have a new franchise, but everyone wants to know what's next for her in the MCU.
+---------
+
+# The 7-Part Sci-Fi Hit That Reshaped the Star Trek Franchise Is the Perfect Weekend Binge
+
+TV News, Star Trek: Voyager, Star Trek, Star Trek: The Original Series, Kate Mulgrew
+
+Tue, 07 Apr 2026 17:17:16 GMT
+
+https://collider.com/7-part-sci-fi-series-star-trek-voyager-streaming-success-paramount-plus-april-2026/
+
+Over 30 years later, this 7-part sci-fi series that reshaped the Star Trek franchise proves it’s the perfect weekend binge on streaming.
+---------
+
+# 'Elsbeth' Crashes an 'Only Murders in the Building' Star's Killer Party in New Sneak Peek [Exclusive]
+
+Exclusives, Elsbeth, Carrie Preston, Beanie Feldstein, CBS
+
+Tue, 07 Apr 2026 17:01:12 GMT
+
+https://collider.com/elsbeth-season-3-episode-15-sneak-peek-beanie-feldstein/
+
+A new Elsbeth Season 3, Episode 15 sneak peek finds Carrie Preston at the invite-only party of Beanie Feldstein with some sneaking suspicions.
+---------
+
+# The First Trailer For Olivia Wilde's 'The Invite' Released
+
+Movie News, The Invite
+
+Tue, 07 Apr 2026 17:46:24 GMT
+
+https://movieweb.com/olivia-wilde-the-invite-first-trailer/
+
+Seth Rogen, Penélope Cruz, and Edward Norton star in A24's latest comedy set for limited release on June 26, 2026.
+---------
+
+# 'X-Men' Reboot Director Jake Schreier Explains "Fresh Start" for the MCU [Exclusive]
+
+Movie News, X-Men, MCU, Jake Schreier
+
+Tue, 07 Apr 2026 17:40:52 GMT
+
+https://movieweb.com/x-men-reboot-cast-roster-jake-schreier/
+
+The filmmaker wants to bring in plenty of new faces for the upcoming team-up.
+---------
+
+# Lena Headey Reveals Cut 'Thor: Love and Thunder' Role Details
+
+Movie News, Thor: Love and Thunder, Lena Headey
+
+Tue, 07 Apr 2026 17:03:39 GMT
+
+https://movieweb.com/lena-headey-thor-love-and-thunder-mcu/
+
+The 'Game of Thrones' star was set to play a witch alongside Angus Sampson and Academy Award winner Da'Vine Joy Randolph.
+---------
+
+# 'Ozark' Is the Only True 'Breaking Bad' Successor
+
+Features, Breaking Bad, Ozark, Comparison Recommendation
+
+Tue, 07 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/ozark-breaking-bad-recommendation/
+
+Many shows have attempted to replicate 'Breaking Bad's magic, but only the Netflix crime thriller 'Ozark' starring Jason Bateman comes close.
+---------
+
+# The Best Anime Series About Demons
+
+TV Lists, Anime
+
+Tue, 07 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/best-anime-series-about-demons/
+
+Anime is no stranger to the dark and demonic. Here are the best anime series about demons and those who battle them.
+---------
+
 # James Wan's Long-Awaited H.P. Lovecraft Adaptation Is Currently Facing 1 Hurdle
 
 Movies, The Call of Cthulhu, Horror, James Wan
