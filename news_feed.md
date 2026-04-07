@@ -1,3 +1,234 @@
+# How Game Of Thrones Became A Victim Of Its Own Popularity
+
+Classic TV, Game Of Thrones
+
+Tue, 07 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/game-of-thrones-hbo-fantasy-victim-popularity/
+
+HBO created an eight-part fantasy television series that, thanks to its own overwhelming popularity, fell prey to its own immense success.
+---------
+
+# Netflix’s 6-Part Crime Thriller With Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Streaming TV, Netflix, Dear Child
+
+Tue, 07 Apr 2026 23:18:20 GMT
+
+https://screenrant.com/netflix-dear-child-thriller-series-watch/
+
+The critically acclaimed 6-part series that earned a perfect 100% Rotten Tomatoes score, 2023's Dear Child, is one of the best Netflix shows ever.
+---------
+
+# Super Mario Galaxy Movie's Surprise Character Reveal Could Be A Huge Clue About The Sequel
+
+Movies, The Super Mario Galaxy Movie
+
+Tue, 07 Apr 2026 23:15:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-princess-daisy-land-sequel-setup/
+
+The Super Mario Galaxy Movie's post-credits scene brought a new character into the fold, and it could lay the foundation for the next movie.
+---------
+
+# Baz Luhrmann's New Elvis Presley Movie Is Officially Available To Watch At Home After $23M Box Office Run
+
+Movies, EPiC: Elvis Presley in Concert
+
+Tue, 07 Apr 2026 23:09:16 GMT
+
+https://screenrant.com/baz-luhrmanns-epic-elvis-presley-in-concert-available-digital-release/
+
+Baz Luhrmann's new Elvis Presley movie is now officially available to watch at home after a $23 million box office run earlier this year.
+---------
+
+# Alice in Wonderland’s Adults-Only Sequel Series Keeps Getting Better
+
+Comics, Alice in Wonderland
+
+Tue, 07 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/alice-ever-after-new-series-alice-forever-after/
+
+For many fans, Alice in Wonderland was a childhood staple, but a new series now allows readers to return to Wonderland through a much more adult lens.
+---------
+
+# Netflix's Once Piece Season 3 Release Window Proves It's Listening To Fans
+
+Streaming TV, One Piece
+
+Tue, 07 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/one-piece-season-3-netflix-listened-fans-2027-release/
+
+It's not very often that a streaming platform buckles in and listens to a fandom, but Netflix just proved that it's doing just that with One Piece.
+---------
+
+# Cyberpunk 2077, Far Cry Collide In Explosive New Open-World FPS
+
+Gaming, Cyberpunk 2077, Indie Games
+
+Tue, 07 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-meets-far-cry-open-world-fps/
+
+With a bit of Far Cry, some Cyberpunk 2077, and a pinch of Fallout mixed in, this open-world FPS could end up garnering an audience.
+---------
+
+# Godzilla's Show Just Introduced A Surprise Monsterverse Legacy Character That Could Revive A Major Villain Group
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 07 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-isabel-simmons-apex-future/
+
+Monarch: Legacy of Monsters season 2 just introduced a new legacy character, who could shape the future of a major villain group in the franchise.
+---------
+
+# Outlaw Posse is Hidden Western Gem
+
+Movies, Western
+
+Tue, 07 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/outlaw-posse-underrated-indie-western/
+
+In 2024, Mario Van Peebles gifted Western fans with an exciting story of outlaws hunting for gold while on the run from a bloodthirsty villain.
+---------
+
+# Netflix Says Goodbye to Taylor Sheridan’s Epic Crime Thriller This Month
+
+Movies, Sicario, Crime, Netflix
+
+Tue, 07 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-crime-thriller-sicario-leaving-netflix-april-2026/
+
+After this month, one of Taylor Sheridan's most underrated projects officially loses its streaming home.
+---------
+
+# Star Trek: DS9's Masterpiece is the Scariest War Story in Sci-Fi History
+
+TV, Star Trek, Star Trek: Deep Space Nine, Sci-Fi
+
+Tue, 07 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/star-trek-ds9-scariest-sci-fi-war-story/
+
+This gritty 6-season-long conflict pushed Star Trek characters to their limits and offered a brutally honest depiction of war's psychological impact.
+---------
+
+# Every Cancelled Spider-Man Film, Ranked
+
+Movies, Spider-Man, Marvel, superheroes
+
+Tue, 07 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/every-cancelled-spider-man-film-ranked-list-marvel/
+
+Spider-Man has had a few cancelled films over the years. Some deserve a second chance... others, not so much.
+---------
+
+# People of Note Review
+
+Games, video game
+
+Tue, 07 Apr 2026 22:50:12 GMT
+
+https://www.cbr.com/people-of-note-review-best-music-rpg/
+
+People of Note is the rare mix of a video game being a musical that uses turn-based combat and catchy songs to deliver a fun tune.
+---------
+
+# 'Justified' Quietly Confirms It Shares a Universe With This George Clooney Classic
+
+TV Features, Justified, Justified: City Primeval, Out of Sight, George Clooney
+
+Tue, 07 Apr 2026 23:30:12 GMT
+
+https://collider.com/justfied-city-primeval-out-of-sight-elmore-leonard-connection/
+
+Justified made a unique connection to Steven Soderbergh's Out of Sight via an unexpected cameo.
+---------
+
+# Prime Video's Most Brutal Sci-Fi Series Is Dominating the Top 10 Before Its Final Season
+
+TV News, The Boys, Prime Video, Sci-Fi, Superhero
+
+Tue, 07 Apr 2026 23:30:12 GMT
+
+https://collider.com/prime-video-the-boys-dark-sci-fi-series-streaming-success-april-2026/
+
+Prime Video fans are revisiting The Boys as the superhero show's fifth and final season earns stellar reviews from critics.
+---------
+
+# 'The Boys' Season 4 Recap: What To Remember Before Prime Video’s Wild Superhero Series Ends
+
+TV Features, The Boys, Prime Video, Anthony Starr, Jack Quaid
+
+Tue, 07 Apr 2026 23:18:15 GMT
+
+https://collider.com/the-boys-season-4-recap-prime-video/
+
+We recap The Boys Season 4's most shocking twists and character developments before Prime Video's superhero series returns for its final season.
+---------
+
+# Russell Crowe's 157-Minute American Crime Movie Unleashes Beast Mode on Streaming
+
+Movie, American Gangster, Russell Crowe, Denzel Washington, Ridley Scott
+
+Tue, 07 Apr 2026 23:15:12 GMT
+
+https://collider.com/russell-crowe-american-gangster-denzel-washington-netflix-157-minute-crime-movie/
+
+Ridley Scott’s American Gangster features crime lord Denzel Washington and cop Russell Crowe facing off, and it’s officially available on Netflix.
+---------
+
+# Tom Hanks' Thrilling WWII Blockbuster Wasn't Released in Theaters, But Is Now One of the Biggest Streaming Hits of All Time
+
+Movie News, Tom Hanks, Greyhound, World War II, Action
+
+Tue, 07 Apr 2026 23:15:12 GMT
+
+https://collider.com/greyhound-tom-hanks-thrilling-ww2-blockbuster-streaming-milestone-650-days-apple-tv-april-2026/
+
+Tom Hanks' thrilling Apple TV World War 2 blockbuster, Greyhound, is set to pass a major milestone. Find out more here.
+---------
+
+# 3 Months Later, Rebecca Ferguson's Divisive Sci-Fi Gem Surges on Streaming
+
+Movie News, Mercy, From, MGM, Sci-Fi
+
+Tue, 07 Apr 2026 23:01:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-movie-mercy-overtakes-from-streaming-success-mgm-plus-april-2026/
+
+Rebecca Ferguson's sci-fi thriller Mercy claims the top streaming spot, surpassing Amazon's sci-fi horror hit that returns soon.
+---------
+
+# Noah Hawley Set to Reimagine the 2017 Horror Movie 'Terrified'
+
+Movie News, Noah Hawley, Terrified, Horror
+
+Tue, 07 Apr 2026 23:28:27 GMT
+
+https://movieweb.com/terrified-reboot-remake-noah-hawley/
+
+The 'Alien: Earth' creator will be collaborating with original filmmaker Demián Rugna on the project.
+---------
+
+# Reading 'Game of Thrones' Made Brandon Sanderson "Cringe" - But There's One Thing He Got Wrong
+
+Features, Brandon Sanderson, Game Of Thrones, George R.R. Martin, Quote
+
+Tue, 07 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/brandon-sanderson-game-of-thrones-pessimistic/
+
+Brandon Sanderson's comments about 'Game of Thrones' are mostly accurate, but there's one crucial detail the 'Mistborn' author got wrong.
+---------
+
 # The Super Mario Galaxy Movie’s Princess Peach Twist Is Older Than You Think
 
 Movies, The Super Mario Galaxy Movie, Nintendo
