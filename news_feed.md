@@ -1,3 +1,278 @@
+# Supernatural’s New Series Will Finally Deliver the Missing Episode Fans Always Wanted
+
+Comics, Supernatural
+
+Tue, 07 Apr 2026 20:38:41 GMT
+
+https://screenrant.com/supernaturals-new-series-sci-fi-robots/
+
+Now, Supernatural’s new series is breaking the supernatural genre mold entirely and is going full sci-fi.
+---------
+
+# Netflix's New 8-Part Psychological Thriller Series With High Rotten Tomatoes Score Is One Of Its Best
+
+TV, Netflix, Something Very Bad Is Going to Happen
+
+Tue, 07 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-netflix-thriller-series-best/
+
+Netflix's new hit psychological thriller series is already one of the best shows on the streaming service, and it is worth watching in full.
+---------
+
+# Edwin’s Boston Blue Future After Episode 13’s Russian Roulette Twist Teased By Ernie Hudson
+
+TV, Boston Blue, Boston Blue - Season 1, Ernie Hudson, Blue Bloods, CBS
+
+Tue, 07 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/boston-blue-episode-13-edwin-russian-roulette-fate-future-ernie-hudson/
+
+Ernie Hudson talks Boston Blue episode 13, Edwin's harrowing injury and Russian roulette twist and his future on the hit CBS spinoff series.
+---------
+
+# This New Netflix K-Drama Lineup for April 2026 Looks Too Good to Miss
+
+Anime, Netflix, K-Drama
+
+Tue, 07 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/netflix-k-drama-lineup-april-2026/
+
+Netflix's April 2026 K-drama lineup is packed with action-heavy sequels, psychological thrillers, and romantic comedies.
+---------
+
+# Disney+'s Maul - Shadow Lord: The New Sci-Fi Hit Taking Over Streaming Globally
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Disney+
+
+Tue, 07 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-disney-plus-success-april-2026/
+
+Disney+'s newest sci-fi series, Maul - Shadow Lord, is dominating streaming charts worldwide, surpassing Apple TV+ in original sci-fi shows, thanks to its compelling storyline, recognizable Star Wars character, and strong international appeal.
+---------
+
+# 10 Great Movies That Were Box Office Flops (#1 Is Still A Tragedy)
+
+Movies, Videodrome, Scott Pilgrim vs. the World, Willy Wonka and the Chocolate Factory, Brazil, The Iron Giant, Popstar: Never Stop Never Stopping, Furiosa: A Mad Max Saga, The Shawshank Redemption, The Thing, It's a Wonderful Life
+
+Tue, 07 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/great-movies-box-office-flops/
+
+Not every movie that flops at the box office is terrible, and these great films prove that a movie's quality doesn't depend on money earned.
+---------
+
+# Hacks Season 5 Review: Deborah & Ava Get The Last Laugh In The Comedy's Bold & Note-Perfect Final Season
+
+Streaming TV, Hacks - Season 5, Hacks
+
+Tue, 07 Apr 2026 20:25:09 GMT
+
+https://screenrant.com/hacks-season-5-review/
+
+Hacks' sublime fifth and final season ends on a triumphant note that ensures the HBO Max comedy's legacy will shine just as bright as Deborah Vance's.
+---------
+
+# Star Wars Eclipse May Be In Trouble
+
+Gaming, Star Wars Eclipse, Star Wars, Triple-A Games, PC
+
+Tue, 07 Apr 2026 20:16:23 GMT
+
+https://screenrant.com/star-wars-eclipse-development-trouble-funding/
+
+It has over four years since Star Wars Eclipse was first announced, but reported issues at Quantic Dream aren't looking good for its future.
+---------
+
+# American Horror Story Season 13: Jessica Lange's Return Rewrites Coven
+
+Streaming TV, American Horror Story
+
+Tue, 07 Apr 2026 20:16:20 GMT
+
+https://screenrant.com/american-horror-story-season-13-coven-sequel-rewriting/
+
+American Horror Story season 13 has Jessica Lange back, and this, along with a surprise confirmation, rewrites one of the show's best seasons.
+---------
+
+# Black Cat's New Costume Is a Hilarious Throwback to 2000s Fashion
+
+Marvel Comics, Black Cat, Spider-Man, Marvel
+
+Tue, 07 Apr 2026 20:01:41 GMT
+
+https://screenrant.com/black-cat-new-costume-redesign-goth/
+
+Black Cat has had few costumes in the last several decades that are truly wild or distinct, and this new one easily takes the cake in that regard.
+---------
+
+# Hulu's Castle Rock Is the Best Horror Binge of the 21st Century
+
+TV, Castle Rock, Stephen King, Horror, Hulu
+
+Tue, 07 Apr 2026 20:37:54 GMT
+
+https://www.cbr.com/hulu-castle-rock-stephen-king-jj-abrams-best-horror-team-up/
+
+No Stephen King adaptation sets up a connected universe like this underrated Hulu original horror TV series.
+---------
+
+# 10 Annoying Big Bang Theory Characters Fans Still Can't Stand 6 Years Later
+
+TV, The Big Bang Theory, Comedy, CBS
+
+Tue, 07 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/annoying-big-bang-theory-characters-list/
+
+While The Big Bang Theory continues to be as iconic as ever, fans still can't tolerate some of its characters, way beyond Sheldon Cooper.
+---------
+
+# 10 War Movies That Will Break Your Heart Without Spilling a Drop of Blood
+
+Movies, Casablanca, Life Is Beautiful, Grave of the Fireflies
+
+Tue, 07 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/heartbreaking-war-movies-list/
+
+War has always been an agonizing ordeal, but these movies are proof that spilled blood isn't the only path to sorrow
+---------
+
+# Alien 3: The Assembly Cut Is Streaming on HBO Max
+
+Movies, Alien 3, Alien, HBO Max
+
+Tue, 07 Apr 2026 20:22:57 GMT
+
+https://www.cbr.com/alien-3-assembly-cut-streaming-hbo-max-april-2026/
+
+Alien 3: The Assembly Cut, considered the best version of the controversial third installment in the Alien franchise, is now streaming on HBO Max.
+---------
+
+# New Transformers Prototype Action Figure Reveal Brings Back a Forgotten G1 Technobot
+
+Anime, Transformers, merchandise, The Transformers, toys, action figures
+
+Tue, 07 Apr 2026 20:17:13 GMT
+
+https://www.cbr.com/transformers-lightspeed-magic-square-toys-color-prototype-reveal/
+
+One of the most overlooked Generation 1 Transformers Autobot Combiner groups gets a 'leg up' in a new upcoming Magic Square Toys action figure.
+---------
+
+# Prime’s Ghost Stories English Dub Could Never Have Been Made Today
+
+Anime, Ghost Stories, Prime Video, Comedy
+
+Tue, 07 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/prime-video-comedy-anime-ghost-stories-english-dub/
+
+The Ghost Stories English dub is an anime steeped in fandom history, but even through a nostalgic lens, fans know it could never be recreated today.
+---------
+
+# Ryan Reynolds' Deadpool’s Viral Dance Scene Sparks IP Lawsuit with Sony Over *NSYNC Dance
+
+Movies, Deadpool & Wolverine, ryan reynolds
+
+Tue, 07 Apr 2026 20:07:02 GMT
+
+https://www.cbr.com/ryan-reynolds-deadpool-dance-choreography-lawsuit/
+
+Sony is now under fire for a key scene from Ryan Reynolds' billion-dollar superhero movie.
+---------
+
+# Hulu's Love Story Sees 90% Increase for Highly-Anticipated Finale
+
+TV, Love Story
+
+Tue, 07 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/hulu-love-story-season-1-finale-viewership-rating/
+
+The series continues to hold onto the charts worldwide.
+---------
+
+# Scarlett Johansson's Under the Skin Is Now on Tubi
+
+Movies, Under the Skin, scarlett johansson
+
+Tue, 07 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/scarlett-johanssons-r-rated-sci-fi-thriller-under-the-skin-tubi/
+
+Scarlett Johansson has had an impressive acting career, but this 2013 sci-fi thriller includes one of her strongest performances to date.
+---------
+
+# House of the Dragon Game Officially Coming Summer 2026
+
+Games, House of the Dragon, Game Of Thrones
+
+Tue, 07 Apr 2026 19:55:14 GMT
+
+https://www.cbr.com/house-of-the-dragon-game-of-thrones-dragonfire-announced/
+
+The next official Game of Thrones game has just been announced, and it's going to be playable this summer.
+---------
+
+# Only 5 Sci-Fi Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Science Fiction, Project Hail Mary, Mickey 17, Dune
+
+Tue, 07 Apr 2026 20:25:12 GMT
+
+https://collider.com/sci-fi-movies-2020s-true-masterpieces/
+
+Although we're not done with the 2020s, the decade has produced at least five genuine sci-fi masterpieces, including Mickey 17 and Project Hail Mary.
+---------
+
+# Netflix’s Unsettling Crime Thriller Quietly Hit 36.5M Hours in Just 1 Week
+
+TV Features, Netflix, Thriller, Jo Nesbø's Detective Hole, Joel Kinnaman
+
+Tue, 07 Apr 2026 20:22:12 GMT
+
+https://collider.com/netflix-jo-nesbo-detective-hole-36-million-hours-first-week/
+
+After its release on March 26, Jo Nesbø's Detective Hole has been climbing the charts on Netflix, becoming the #2 non-English show worldwide.
+---------
+
+# 10 Upcoming Anime Adaptations That You Cannot Miss
+
+TV, Anime, Ghost in the Shell, Animation, One Piece
+
+Tue, 07 Apr 2026 20:01:12 GMT
+
+https://collider.com/upcoming-anime-adaptations-cannot-miss/
+
+From cult classics like Psyren to the highly anticipated remake of Ghost in the Shell, these are the upcoming anime adaptations that fans must watch.
+---------
+
+# Marvel TV Producer 'She-Hulk: Attorney at Law' Was "A Hit" Despite Toxic Fandom
+
+TV News, She-Hulk: Attorney at Law
+
+Tue, 07 Apr 2026 20:30:26 GMT
+
+https://movieweb.com/marvel-best-show-numbers-she-hulk/
+
+Marvel's Brad Winderbaum wants to do more with She-Hulk, acknowledging her solo series performed better with general audiences than Marvel fans.
+---------
+
+# Forget 'Euphoria,' 'The White Lotus' Made Sydney Sweeney a Star
+
+Features
+
+Tue, 07 Apr 2026 20:01:16 GMT
+
+https://movieweb.com/the-white-lotus-sydney-sweeney-best-performance/
+
+Along with playing Cassie Howard on 'Euphoria,' Sydney Sweeney starred in 'The White Lotus' Season 1 as Olivia Mossbacher.
+---------
+
 # Marvel's New Official MCU X-Men Movie Update Is Perfect For The Mutants
 
 Superheroes, X-Men, Marvel Cinematic Universe
