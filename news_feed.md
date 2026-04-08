@@ -1,3 +1,344 @@
+# Bullseye Changes The MCU Forever - Daredevil: Born Again Season 2, Episode 4 Ending Explained
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 08 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-4-ending-explained/
+
+Bullseye has stolen the show in the latest Daredevil: Born Again installment, and this time, his actions could shake up the entire MCU.
+---------
+
+# Netflix’s 7-Part K-Drama’s Action Outshines Hollywood
+
+Streaming TV, Bloodhounds, Bloodhounds - Season 2
+
+Wed, 08 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/bloodhounds-season-2-netflix-hollywood-comparison/
+
+The 7 latest episodes of Netflix hit action K-drama deliver such incredible action scenes that they even put some of Hollywood’s best films to shame.
+---------
+
+# 8 Mystery Box Shows So Good, You'll Have To Watch Them Twice
+
+Classic TV, Mystery
+
+Wed, 08 Apr 2026 01:15:20 GMT
+
+https://screenrant.com/mystery-box-shows-so-good-you-have-to-watch-twice/
+
+The mystery box format has produced some of the most interesting television of all time, but some titles require extra viewing to fully comprehend.
+---------
+
+# PlayStation Is Hiding A Free RPG With Hogwarts Legacy Vibes, No PS Plus Required
+
+Gaming, PlayStation 5, Indie Games
+
+Wed, 08 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/playstation-free-download-hogwarts-legacy-style-wizard-101/
+
+There's something you can pick up now on the PSN for free if you're itching to play something like Hogwarts Legacy after you're done with it.
+---------
+
+# 10 Most Exciting Shows Still Expected To Return In 2026
+
+Streaming TV
+
+Wed, 08 Apr 2026 00:31:20 GMT
+
+https://screenrant.com/shows-expected-return-2026/
+
+2026 looks to be an exciting year for TV, with major flagship series like House of the Dragon expected to return, as well as some underrated gems.
+---------
+
+# Prime Video's Long-Delayed The Boys Spinoff Is Officially "Making All The Right Noises," After 3 Years In Development
+
+TV, The Boys: Mexico, The Boys
+
+Wed, 08 Apr 2026 00:06:31 GMT
+
+https://screenrant.com/prime-video-the-boys-mexico-pilot-update-eric-kripke/
+
+After being first announced in 2023, Prime Video's long-delayed The Boys spinoff is "making all the right noises" according to Eric Kripke.
+---------
+
+# Star Wars Is Giving Us A Brand-New Duel Of The Fates, 27 Years After The Phantom Menace
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Episode I - The Phantom Menace, Star Wars
+
+Wed, 08 Apr 2026 00:01:18 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-new-duel-of-the-fates-devon-izara/
+
+Nearly three decades after The Phantom Menace, Star Wars is giving us a brand-new Duel of the Fates with a Force-sensitive's destiny in the balance.
+---------
+
+# Goodreads Confirms The Best Book Of The Century Is This Near-Perfect Sci-Fi Classic
+
+Books, Cloud Atlas
+
+Wed, 08 Apr 2026 00:01:18 GMT
+
+https://screenrant.com/cloud-atlas-best-book-century-sci-fi-classic/
+
+Goodreads is shaped by the readers who actually read the books, and now those readers have voted to crown the best book of the century.
+---------
+
+# 10 Best Adventure Anime That Get Darker Every Episode
+
+Anime, Attack on Titan, Puella Magi Madoka Magica, Made in Abyss, The Promised Neverland, Devilman Crybaby, Samurai Champloo, Fullmetal Alchemist, Hunter X Hunter, Dororo, Gurren Lagann
+
+Wed, 08 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/best-adventure-anime-darker-every-episode/
+
+An exploration of adventure-themed anime that get darker and more mature as the series progresses.
+---------
+
+# 30 Animated Films '90s Kids Loved (But Totally Forgot About)
+
+Lists, Scooby-Doo, Mickey Mouse, animated, Movies, Animation, cartoons
+
+Wed, 08 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/90s-animated-films-loved-forgotten/
+
+Believe it or not, the '90s were three decades ago now, so it's not surprising many of its animated classics are a little fuzzy now in fans' memories.
+---------
+
+# Zelda's Switch 2 Lineup Just Got Bigger With Monolith Soft Involvement
+
+Games, The Legend of Zelda
+
+Wed, 08 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/zelda-monolith-soft-interview-ocarina-of-time-switch-2-remake-role/
+
+The Legend of Zelda is about to enter a new era on the Switch 2 as four major game studios work simultaneously on multiple titles for the IP at once.
+---------
+
+# The Testaments Creator Reveals The 'Eye-Opening' Truth About Gilead
+
+CBR Exclusives, The Testaments, The Handmaid's Tale, Hulu
+
+Wed, 08 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/the-testaments-bruce-miller-gilead-reveal/
+
+The nightmarish world of The Handmaid's Tale just got a whole lot bigger.
+---------
+
+# Lost Fumbled Kate Austen With a Frustrating S1 Plotline
+
+TV, Lost
+
+Wed, 08 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/lost-kate-austen-refugee-status-fumbled/
+
+During its run, Lost promised answers to a mystery but instead left viewers with a frustrating plotline that never got resolved.
+---------
+
+# Itachi Uchiha's Best Quotes and Dialogues in Naruto
+
+Anime, Naruto: Shippuden, Sasuke, Naruto
+
+Wed, 08 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/naruto-itachi-uchiha-best-quotes/
+
+Itachi Uchiha is one of Naruto's most complex characters, and across his devastating rivalry with his brother, Sasuke, he spoke a lot of wise words.
+---------
+
+# Roku's House of Oddities Is the Perfect JJK Manga Replacement
+
+Anime, Manga, Shonen Jump, Shonen, viz media, Jujutsu Kaisen, Dandadan
+
+Wed, 08 Apr 2026 00:15:11 GMT
+
+https://www.cbr.com/rokus-house-of-oddities-jjk-manga/
+
+Roku's House of Oddities takes a refreshing new look at life with cursed spirits with a comedic twist that takes the dark out of shonen.
+---------
+
+# The Raid: Redemption is a Perfect R-Rated Action Movie
+
+Movies, The Raid: Redemption
+
+Wed, 08 Apr 2026 00:01:12 GMT
+
+https://www.cbr.com/the-raid-redemption-perfect-r-rated-action-movie/
+
+While movies like John Wick have become popular R-rated action flicks, only one movie is absolutely perfect.
+---------
+
+# Naruto Just Lost the Top Spot in New Sakura Character Ranking
+
+Anime, Naruto
+
+Wed, 08 Apr 2026 00:01:08 GMT
+
+https://www.cbr.com/naruto-best-anime-sakura-character-2026/
+
+One of the most well-known Naruto characters just got knocked down from the top of one of the most surprising character ranking charts of the year.
+---------
+
+# HBO Max’s Colossal 3-Part Procedural Officially Goes on Hiatus on April 16
+
+TV News, The Pitt, Noah Wyle, Shawn Hatosy, HBO Max
+
+Wed, 08 Apr 2026 01:45:13 GMT
+
+https://collider.com/the-pitt-season-2-finale-release-date-hbo-max-april-16-2026/
+
+Fans must prepare to say goodbye to The Pitt in less than a week, as the show is set to go on hiatus following its Season 2 finale.
+---------
+
+# This New Crime Movie Might Be the Most Intense Serial Killer Thriller of the Year [Exclusive]
+
+Movie News, Josh Duhamel, Dylan Sprouse, Til Schweiger, Thriller
+
+Wed, 08 Apr 2026 01:30:13 GMT
+
+https://collider.com/serial-killer-thriller-neglected-trailer-josh-duhamel-dylan-sprouse/
+
+Watch the first trailer for the upcoming serial killer thriller Neglected, where a retiring cop, Josh Duhamel, must solve 3 murders to save his son.
+---------
+
+# 'Project Hail Mary' Meets 'Cast Away' in Ridley Scott's 10/10 Sci-Fi Gem
+
+Movie News, Matt Damon, The Martian, The Odyssey, Ridley Scott
+
+Wed, 08 Apr 2026 01:15:13 GMT
+
+https://collider.com/matt-damon-ridley-scott-sci-fi-epic-the-martian-streaming-success-apple-tv-april-2026/
+
+Matt Damon's 2015 sci-fi masterpiece, directed by Ridley Scott, is experiencing a surge in popularity across streaming platforms worldwide.
+---------
+
+# 5 Movie Trilogies Where Only One Film Is a Masterpiece
+
+Movie, Spider-Man 2, The Matrix, Superman II, Pirates of the Caribbean: The Curse of the Black Pearl
+
+Wed, 08 Apr 2026 01:12:12 GMT
+
+https://collider.com/movie-trilogies-only-one-film-is-a-masterpiece/
+
+From Jurassic Park to Spider-Man, these movie trilogies have one flawless masterpiece that eclipses all companion films.
+---------
+
+# HBO's 'Harry Potter' Officially Reveals 7 Can't-Miss Easter Eggs in Behind the Scenes Look
+
+TV News, Harry Potter, HBO, Fantasy
+
+Wed, 08 Apr 2026 01:00:12 GMT
+
+https://collider.com/hbo-harry-potter-finding-harry-the-craft-behind-the-magic-first-look-chocolate-frogs-butterbeer-flubberworms-scabbers/
+
+HBO's new #1 Harry Potter documentary has unveiled fans' first look at some of the fantasy franchise's most iconic foods.
+---------
+
+# 7 Crime Shows That Are Perfect From Start To Finish
+
+TV, Crime, Breaking Bad, Better Call Saul, Fargo
+
+Wed, 08 Apr 2026 00:56:12 GMT
+
+https://collider.com/crime-shows-perfect-start-to-finish/
+
+Breaking Bad, Peaky Blinders, Ozark, Better Call Saul, Fargo, Money Heist, and more make up our list of crime shows that are perfect start to finish.
+---------
+
+# 9 Years Later, Ridley Scott's Forgotten Sci-Fi Horror Gem Is a Late Night Sleeper Hit
+
+Movie News, Ridley Scott, Alien: Covenant, Prometheus, Sci-Fi
+
+Wed, 08 Apr 2026 00:45:13 GMT
+
+https://collider.com/ridley-scott-divisive-sci-fi-horror-movie-alien-covenant-streaming-success-hbo-max-april-2026/
+
+Ridley Scott's divisive Prometheus sequel, Alien: Covenant, is a sudden sci-fi streaming hit 9 years after it underperformed in theaters.
+---------
+
+# 8 Forgotten Movies Turning 40 in 2026
+
+Movie, Parting Glances, Dead End Drive-In, Wise Guys, Doraemon: Nobita and the Steel Troops
+
+Wed, 08 Apr 2026 00:32:13 GMT
+
+https://collider.com/forgotten-movies-turning-40-in-2026/
+
+There are plenty of movies that turn 40 in 2026 that aren't particularly well-remembered, including Parting Glances, Wise Guys, and Sweet Liberty.
+---------
+
+# HBO’s ‘Harry Potter’ Is Already a Streaming Sensation 8 Months Before Debut
+
+TV News, Harry Potter, HBO Max, Harry Potter and the Sorcerer's Stone, Fantasy
+
+Wed, 08 Apr 2026 00:30:12 GMT
+
+https://collider.com/harry-potter-finding-harry-the-craft-behind-the-magic-streaming-success-hbo-max-april-2026/
+
+HBO built buzz for the hugely anticipated Harry Potter series with a 30-minute behind-the-scenes special, Finding Harry: The Craft Behind the Magic.
+---------
+
+# Prime Video’s Sci-Fi Superhero Saga Ends With a Bang on Rotten Tomatoes
+
+TV News, The Boys, Gen V, Prime Video, Sci-Fi
+
+Wed, 08 Apr 2026 00:15:12 GMT
+
+https://collider.com/prime-video-the-boys-final-season-5-rotten-tomatoes-score-is-it-good/
+
+The highly anticipated final season of Prime Video's The Boys is already a certified hit with critics on Rotten Tomatoes.
+---------
+
+# Former Jubilee Actor Lana Condor Still Wants to Reprise X-Men Role for the MCU
+
+Movie News, X-Men, Lana Condor
+
+Wed, 08 Apr 2026 01:47:52 GMT
+
+https://movieweb.com/x-men-lana-condor-mcu/
+
+Years after playing Jubilee, Lana Condor wants another shot to play the popular X-Man when the team is rebooted in the MCU.
+---------
+
+# 'Faces of Death' Star Says It Reflects Everything Wrong With the Internet [Exclusive]
+
+Movie News, Barbie Ferreira, Faces of Death
+
+Wed, 08 Apr 2026 00:47:04 GMT
+
+https://movieweb.com/faces-of-death-reboot-barbie-ferreira-internet/
+
+The newly minted scream queen related to her character as someone thrust into the limelight.
+---------
+
+# Steven Soderbergh Says Ben Solo Movie Still Isn't Happening After 'Star Wars' Shakeup
+
+Movie News, Steven Soderbergh, Star Wars, Adam Driver, Kathleen Kennedy
+
+Wed, 08 Apr 2026 00:34:33 GMT
+
+https://movieweb.com/star-wars-ben-solo-update-lucasfilm/
+
+The change of Lucasfilm leadership won't impact the reported spin-off and the filmmaker has moved on.
+---------
+
+# When 'Maul - Shadow Lord' Takes Place on the 'Star Wars' Timeline
+
+Features, Star Wars: Maul - Shadow Lord
+
+Wed, 08 Apr 2026 00:00:19 GMT
+
+https://movieweb.com/maul-shadow-lord-star-wars-timeline/
+
+'Maul - Shadow Lord' is the latest 'Star Wars' TV series that premiered on Disney+ on April 6, 2026.
+---------
+
 # How Game Of Thrones Became A Victim Of Its Own Popularity
 
 Classic TV, Game Of Thrones
