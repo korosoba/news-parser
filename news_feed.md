@@ -1,3 +1,311 @@
+# Xbox Game Pass Makes Incredible 93-Hour RPG Free For More Members
+
+Gaming, Xbox Game Pass
+
+Wed, 08 Apr 2026 04:05:19 GMT
+
+https://screenrant.com/xbox-game-pass-oblivion-remastered-april-16/
+
+Xbox Game Pass has a jam-packed April, and one of its best RPGs is becoming free for even more members on April 16. You don't want to miss it!
+---------
+
+# 1 Sentence Just Permanently Settled X-Men's Best Hero Romance
+
+Comics, X-Men
+
+Wed, 08 Apr 2026 03:48:44 GMT
+
+https://screenrant.com/x-men-best-romance-rogue-gambit-proof/
+
+In Uncanny X-Men, Rogue and Gambit solidify their position as the franchise's most exceptional romantic couple, grounded in trust and mutual support.
+---------
+
+# 12 Biggest Easter Eggs And MCU References in Daredevil: Born Again Season 2, Episode 4
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 08 Apr 2026 03:46:46 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-4-easter-eggs-and-references/
+
+Daredevil: Born Again season 2, episode 4 features an exciting collection of Easter eggs, comic connections, Netflix nods, and ties to the greater MCU
+---------
+
+# Netflix’s New 7-Part Martial Arts Drama Is Even Better Than Cobra Kai In 1 Brutal Way
+
+Streaming TV, Cobra Kai, Bloodhounds, Bloodhounds - Season 2
+
+Wed, 08 Apr 2026 03:43:24 GMT
+
+https://screenrant.com/cobra-kai-bloodhounds-season-2-netflix/
+
+Netflix has released seven new episodes of its gritty martial arts drama, and they are arguably far better than Cobra Kai in one significant way.
+---------
+
+# Forget Rocky & Creed, Netflix’s 2-Season Action Thriller Is Your Next Boxing Drama Fix
+
+Streaming TV, Rocky, Creed, Bloodhounds, Bloodhounds - Season 2
+
+Wed, 08 Apr 2026 03:01:33 GMT
+
+https://screenrant.com/rocky-creed-bloodhounds-season-2-netflix-recommendation/
+
+The future of the Rocky and Creed franchises remains uncertain, but audiences can get their next boxing drama fix with Netflix’s new hit k-drama.
+---------
+
+# Zelda: Ocarina Of Time's New Look Is Starting A Fan Debate
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Wed, 08 Apr 2026 03:00:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-new-look-gamer-reactions/
+
+With an Ocarina Of Time remake allegedly on the way in 2026, fans of The Legend of Zelda are already debating over the game's new look.
+---------
+
+# High Potential Main Cast Member Officially Leaving After Deadly Season 2 Cliffhanger
+
+Network TV, High Potential
+
+Wed, 08 Apr 2026 02:25:13 GMT
+
+https://screenrant.com/high-potential-season-2-steve-howey-nick-wagner-leaving/
+
+After High Potential season 2's deadly cliffhanger finale that left Morgan in shambles, ABC confirms the departure of a main cast member.
+---------
+
+# 20 Years Before The Expanse, A 5-Season Sci-Fi Showed How Space Operas Should Be Done
+
+Classic TV, The Expanse, Babylon 5
+
+Wed, 08 Apr 2026 02:16:08 GMT
+
+https://screenrant.com/babylon-5-expanse-space-opera-recommendation/
+
+The Expanse still stands as one of the greatest space operas ever made, but the subgenre wouldn’t be the same without a brilliant 30-year-old series.
+---------
+
+# Is That Marvel Character REALLY Dead After Daredevil: Born Again Season 2's New Episode?
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 08 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-4-vanessa-death-explained/
+
+The latest episode of Daredevil: Born Again season 2 end with a shocking cliffhanger, leaving viewers wondering about a key character's MCU fate.
+---------
+
+# Halo's Newest Game Sounds Seriously Dark, And We're Here For It
+
+Gaming, Halo, Triple-A Games
+
+Wed, 08 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/halo-campaign-evolved-age-rating-dark/
+
+If Microsoft is willing to go in this direction for the series, a lot of fans might be interested in coming back in after being dragged out.
+---------
+
+# Gundam: The Witch From Mercury Closes X Replies After Fan Controversy
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: The Witch from Mercury
+
+Wed, 08 Apr 2026 03:59:12 GMT
+
+https://www.cbr.com/gundam-x-reply-shutdown-hostility/
+
+Years after the anime came out, heated fan engagement has seen the official X account for a 2022 Gundam anime get its reply section shut down.
+---------
+
+# 10 Greatest Anime Characters of the Last 50 Years, Ranked
+
+Anime, One Piece
+
+Wed, 08 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/most-iconic-anime-characters-last-50-years-ranked/
+
+Today's anime industry is unrecognizable compared to 50 years ago, yet some characters are still as popular as they were when they originally debuted.
+---------
+
+# 6 Spinoff Movies We Want After The Super Mario Galaxy Movie
+
+Movies, The Super Mario Galaxy Movie, Nintendo
+
+Wed, 08 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-spinoff-movies-nintendo-universe-list/
+
+The Super Mario Galaxy Movie sets up several exciting spinoff opportunities for the growing Nintendo Cinematic Universe.
+---------
+
+# Quentin Tarantino's Favorite Netflix Show That Every Horror Fan Must Watch is Also Praised by Stephen King
+
+TV, The Haunting of Hill House, Quentin Tarantino, Netflix, Horror
+
+Wed, 08 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/quentin-tarantino-favorite-netflix-show-the-haunting-of-hill-house/
+
+In 2018, Mike Flanagan launched a chilling horror anthology that filmmaker Quentin Tarantino has declared his "favorite series."
+---------
+
+# 10 Most Powerful Pokémon Cards of All Time
+
+Games, Pokemon TCG, Pokemon
+
+Wed, 08 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/most-powerful-pokemon-cards-all-time-list/
+
+The strongest Pokémon cards were so powerful that players still talk about them today.
+---------
+
+# Super Mario Galaxy Movie Failed to Replicate 1 Fan-Favorite Bowser Moment
+
+Movies, The Super Mario Galaxy Movie, The Super Mario Bros. Movie, Nintendo
+
+Wed, 08 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/super-mario-galaxy-movie-fails-bowser-jack-black-iconic-moment-nintendo/
+
+The Super Mario Galaxy Movie is a resounding success, but fans will leave disappointed by one major exception from the movie.
+---------
+
+# 10 Best Anime Series For People Who Think They Hate Anime
+
+Anime
+
+Wed, 08 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/best-anime-series-perfect-non-anime-fans-list/
+
+Even anime haters can appreciate series like Death Note and Solo Leveling.
+---------
+
+# Crunchyroll Officially Brings Back Attack on Titan
+
+Anime, Crunchyroll, Attack on Titan, Attack on Titan: The Last Attack
+
+Wed, 08 Apr 2026 02:50:12 GMT
+
+https://www.cbr.com/crunchyroll-attack-on-titan-new-theatrical-release-date-may-2026/
+
+Crunchyroll announces a surprise comeback for MAPPA and Wit Studio's iconic dark fantasy anime, Attack on Titan, which is scheduled for May 2026.
+---------
+
+# The Dragon Ball Super Manga Under Toyotarou Makes SSJ5 Canon
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Wed, 08 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-toyotarou-super-saiyan-5-canon/
+
+Dragon Ball Super's Toyotarou has already designed his own Super Saiyan 5, making the form canon to his new DBS universe upon the manga's return.
+---------
+
+# 4 Years Later, Tom Cruise Top Gun: Maverick Is Aging Like a Fine Wine
+
+Movies, Top Gun: Maverick
+
+Wed, 08 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/tom-cruise-top-gun-maverick-action-epic-aging-perfectly/
+
+Tom Cruise is one of the biggest action stars in Hollywood, and his 4-year-old adrenaline-filled movie is aging perfectly.
+---------
+
+# Sylvester Stallone's 3-Part Action Series Is One of Pluto's Best Trilogies
+
+Movie, Sylvester Stallone, First Blood, Rambo: First Blood Part II, Rambo III
+
+Wed, 08 Apr 2026 04:14:12 GMT
+
+https://collider.com/sylvester-stallone-rambo-3-part-action-series-pluto-best-trilogies/
+
+Sylvester Stallone played John Rambo in a trilogy of action movies from the 1980s, with all of them currently available to stream on Pluto.
+---------
+
+# 'Project Hail Mary' Fans Need To Watch Ryan Gosling's 10/10 Action Crime Movie Next
+
+Movie Features, Project Hail Mary, The Nice Guys, Ryan Gosling, Comedy
+
+Wed, 08 Apr 2026 03:26:13 GMT
+
+https://collider.com/project-hail-mary-fans-watch-the-nice-guys-ryan-gosling/
+
+Fans of Ryan Gosling's charming performance in Project Hail Mary need to watch his work with Russell Crowe in the buddy comedy, The Nice Guys.
+---------
+
+# ‘Daredevil: Born Again’s Wilson Bethel Breaks Down Bullseye’s Most Unhinged Episode Yet
+
+TV, Daredevil: Born Again, Wilson Bethel, Charlie Cox, Disney+
+
+Wed, 08 Apr 2026 02:31:41 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-4-bullseye-meaning-wilson-bethel-interview/
+
+Wilson Bethel says Bullseye thinks he’s doing “God’s work” in Daredevil: Born Again, Season 2, Episode 4, which turns Dex into a chilling villain.
+---------
+
+# 'X-Men' Reboot Director Officially Confirms Marvel's Plan to Reinvent the Franchise [Exclusive]
+
+Exclusives, X-Men, Jake Schreier, Marvel, MCU
+
+Wed, 08 Apr 2026 02:00:23 GMT
+
+https://collider.com/x-men-reboot-mcu-not-repeating-previous-mutant-movies-comic-adaptations-jake-schreier/
+
+Director Jake Schreier discusses plans for a new take on X-Men, focusing on personal dynamics and less trodden paths, while praising the writers.
+---------
+
+# The Greatest Action Sequel Ever Made Just Got Dethroned by a New Sci-Fi Blockbuster
+
+Movie News, Project Hail Mary, Terminator 2: Judgment Day, Ryan Gosling, James Cameron
+
+Wed, 08 Apr 2026 02:00:23 GMT
+
+https://collider.com/project-hail-mary-overtakes-terminator-2-judgment-day-greatest-sci-fi-sequel-domestic-box-office-220-million/
+
+Ryan Gosling-led Project Hail Mary has overtaken the greatest sci-fi sequel of all time, James Cameron's Terminator 2: Judgment Day. Find out more.
+---------
+
+# 'High Potential's Twisty Season 2 Finale Fails To Give a True Conclusion to the Roman Case | Review
+
+TV Reviews, High Potential, Kaitlin Olson, Procedural, ABC
+
+Wed, 08 Apr 2026 02:00:23 GMT
+
+https://collider.com/high-potential-season-2-finale-recap-review-roman-wagner-lucia/
+
+With a huge plot twist and a shocking cliffhanger, the Season 2 finale of High Potential ad us on the edge of our seats.
+---------
+
+# 'Daredevil: Born Again' Season 2 Episode 4 Recap: Bullseye Steals the Show in the MCU Series' Best Hour Yet
+
+TV Reviews, Daredevil: Born Again, Disney+, Wilson Bethel, Charlie Cox
+
+Wed, 08 Apr 2026 02:00:23 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-4-recap-disney-plus/
+
+Wilson Bethel's Bullseye is back with a vengeance in what is undoubtedly Daredevil: Born Again's best episode yet.
+---------
+
+# ‘Daredevil: Born Again’ Stars Tease How [SPOILER]’s Fate Will Impact Season 3
+
+Disney+, Daredevil: Born Again, Charlie Cox, Vincent D'Onofrio
+
+Wed, 08 Apr 2026 02:00:23 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-4-explained-charlie-cox-vincent-donofrio-interview/
+
+Charlie Cox and Vincent D’Onofrio tease a shocking character twist in Daredevil: Born Again and what it means for the Season 2 finale.
+---------
+
 # Bullseye Changes The MCU Forever - Daredevil: Born Again Season 2, Episode 4 Ending Explained
 
 Streaming TV, Daredevil: Born Again
