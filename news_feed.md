@@ -1,3 +1,289 @@
+# Coop's Allegiances & Relationship Changes In Your Friends & Neighbors Season 2 Broken Down By Jon Hamm And Apple TV Co-Stars
+
+TV, Your Friends and Neighbors, Your Friends & Neighbors - Season 2, Apple TV, Jon Hamm
+
+Wed, 08 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/your-friends-neighbors-season-2-coopalliances-relationships-jon-hamm-cast-creator/
+
+Jon Hamm and his Your Friends & Neighbors co-stars and creator talk season 2 of the Apple TV crime series and the changes in Coop's life.
+---------
+
+# Garfield’s New 4-Part Prequel Series Is Officially Here, And Fans Are Already Obsessed
+
+Comics, Garfield
+
+Wed, 08 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/baby-garfield-new-prequel-series-release/
+
+Garfield's new prequel series is finally here, and the reviews are in... Fans are OBSESSED!
+---------
+
+# After 7 Years, The Boys Finally Adapted The Comic Books' First Major Fight
+
+Streaming TV, The Boys
+
+Wed, 08 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/the-boys-comic-books-teenage-kix-adapt-season-5/
+
+The Boys' TV adaptation has made many changes to the source material, but after 7 years, it has finally included the comic books' first big fight.
+---------
+
+# 10 Movies To Watch If You Love Pretty Lethal
+
+Movies, Pretty Lethal, 300, Birds of Prey, Charlie's Angels, The Matrix Reloaded, Ready or Not, John Wick, Black Swan, Kill Bill: Vol. 1, Sucker Punch, From the World of John Wick: Ballerina
+
+Wed, 08 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/pretty-lethal-movies-similar/
+
+Ballet-fu may be a unique concept to Pretty Lethal, but other films offer their own take on stylish combat that fans are sure to enjoy.
+---------
+
+# After The Marionette, I'm Worried About This Character's Role In Five Nights At Freddy's 3
+
+Movies, Five Nights at Freddy's 2
+
+Wed, 08 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/five-nights-at-freddys-3-springtrap-marionette-concern/
+
+The way Five Nights at Freddy's 2 portrayed one of its scariest characters, the Marionette, is a worrying sign for the next villain in the series.
+---------
+
+# Prime Video Canceling The Rings Of Power After Season 3 Would Be Terrible Timing
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Wed, 08 Apr 2026 20:15:21 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-cancel-prime-video-worst-place/
+
+Canceling The Lord of the Rings: The Rings of Power at season 3 would be an incredibly damaging time to pull the plug on the Prime Video show.
+---------
+
+# Alien: Earth Season 2 Adds First New Star With Game Of Thrones Alum
+
+TV, Alien: Earth
+
+Wed, 08 Apr 2026 20:13:37 GMT
+
+https://screenrant.com/alien-earth-season-2-peter-dinklage-cast/
+
+The highly anticipated second season of Alien: Earth will feature a brand-new character as FX reveals the addition of an iconic Game of Thrones star.
+---------
+
+# 37-Year-Old Cult Classic Officially Lands Sequel With Cameron Diaz
+
+Movies, Cameron Diaz, Troop Beverly Hills
+
+Wed, 08 Apr 2026 20:11:26 GMT
+
+https://screenrant.com/troop-beverly-hills-sequel-cameron-diaz-story-casting-confirmed/
+
+Cameron Diaz's triumphant return to acting after a hiatus continues, with her now set to lead the sequel to a 37-year-old cult classic movie.
+---------
+
+# Warner Bros. Finally Adapting Epic Sci-Fi Novel That Took 27 Years To Become Bestselling Hit
+
+Movies, Warner Bros.
+
+Wed, 08 Apr 2026 20:07:59 GMT
+
+https://screenrant.com/parable-of-the-sower-movie-warner-bros-melina-matsoukas/
+
+Warner Bros. is moving forward with the long-awaited adaptation of a sci-fi novel that took 27 years to become a hit, directed by Melina Matsoukas.
+---------
+
+# Apple TV's 9-Part Sci-Fi Thriller Series Has One Of TV's Best Plot Twists
+
+TV, Dark Matter
+
+Wed, 08 Apr 2026 19:58:19 GMT
+
+https://screenrant.com/dark-matter-apple-tv-sci-fi-show-best-plot-twist/
+
+This unexpected choice in Apple TV's most underrated sci-fi show left viewers stunned, making it one of the best plot twists in recent TV history.
+---------
+
+# Frasier Revival Finds New Success on Streaming After Sequel Cancellation
+
+TV, Frasier, Sitcoms
+
+Wed, 08 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/frasier-sitcom-paramount-success-april-2026/
+
+Frasier finds new success on streaming despite the revival being canceled after 2 seasons, proving its enduring popularity.
+---------
+
+# 6 Rare TV Detectives Better Than Sherlock Holmes
+
+TV, Detective, Sherlock, Veronica Mars, Murder, She Wrote
+
+Wed, 08 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/tv-detectives-better-than-sherlock-holmes-list/
+
+Some TV detectives surpass Sherlock Holmes by using intuition, observation, and unique methods to solve crimes in exciting and surprising ways.
+---------
+
+# The Best Family Movies From Every Year of the 1980s
+
+Movies, The Empire Strikes Back, E.T. the Extra-Terrestrial
+
+Wed, 08 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/best-family-movies-every-year-of-1980s-list/
+
+The 1980s were a hugely significant decade for the evolution of cinema, and the most significant family movies in each year showcase one reasons why.
+---------
+
+# Michael J. Fox's Rep Shares Health Update After Misleading Headlines
+
+Movies, Back to the Future
+
+Wed, 08 Apr 2026 20:28:17 GMT
+
+https://www.cbr.com/michael-j-fox-health-update/
+
+The Back to the Future star worried fans after a recent headline.
+---------
+
+# Cameron Diaz to Star in Troop Beverly Hills Sequel
+
+Movies, Troop Beverly Hills
+
+Wed, 08 Apr 2026 20:24:20 GMT
+
+https://www.cbr.com/cameron-diaz-troop-beverly-hills-sequel/
+
+Cameron Diaz is back in action as the star of a new sequel to an 80s classic.
+---------
+
+# Alien: Earth Adds Peter Dinklage to Season 2 Cast in Major Role
+
+TV, Alien: Earth
+
+Wed, 08 Apr 2026 20:18:24 GMT
+
+https://www.cbr.com/alien-earth-peter-dinklage-season-2-cast/
+
+Season 2 of Alien: Earth just announced its first major casting.
+---------
+
+# Studio Ghibli Returns Howl's Moving Castle Tote Bag to Official Store After 2 Years
+
+Anime, Howl's Moving Castle, Studio Ghibli, merchandise
+
+Wed, 08 Apr 2026 20:17:44 GMT
+
+https://www.cbr.com/studio-ghibli-howls-moving-castle-heen-tote-bag/
+
+Studio Ghibli's official store pays tribute to an underrated canine mascot from Hayao Miyazaki's Howl's Moving Castle.
+---------
+
+# Snowball Earth's Debut Rewrites Frieren: Beyond Journey’s End in the Most Tragic Way Possible
+
+Anime, Snowball Earth, Frieren: Beyond Journey's End
+
+Wed, 08 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/crunchyroll-snowball-earth-frieren-tragic-twist/
+
+Snowball Earth, Crunchyroll's Spring 2026 offering, provides a dark twist on Frieren's narrative.
+---------
+
+# Dick Wolf's Homicide Blows Up on Netflix in America
+
+TV, Netflix, Homicide
+
+Wed, 08 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/netflix-homicide-streaming-april-2026/
+
+Dick Wolf's acclaimed show is a major streaming hit on Netflix.
+---------
+
+# Marvel Official Reveals One Classic Thor Character's New Look
+
+Comics, Thor
+
+Wed, 08 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/mortal-thor-radioactive-man-redesign-confirmed/
+
+Even Thor would have to admit this foe of his has never looked better.
+---------
+
+# 7 Upcoming Miniseries You Cannot Miss
+
+TV, TV Miniseries, Cape Fear, The Five-Star Weekend, Malcolm in the Middle: Life's Still Unfair
+
+Wed, 08 Apr 2026 20:28:13 GMT
+
+https://collider.com/new-miniseries-2026-must-watch/
+
+Malcolm in the Middle: Life's Still Unfair, Cape Fear, The Five-Star Weekend, and more make up our list of 2026 miniseries you cannot miss.
+---------
+
+# Peter Dinklage Officially Joins One of Sci-Fi’s Biggest Franchises of All Time
+
+TV News, Alien: Earth, Peter Dinklage, Ridley Scott, Noah Hawley
+
+Wed, 08 Apr 2026 20:26:24 GMT
+
+https://collider.com/alien-earth-season-2-cast-peter-dinklage/
+
+Ridley Scott-produced sci-fi series Alien: Earth has added a Game of Thrones legend to the cast for Season 2.
+---------
+
+# The 10 Best Dragon Ball Arcs, Ranked
+
+TV, Dragon Ball, Dragon Ball Z, Dragon Ball Super, Anime
+
+Wed, 08 Apr 2026 20:26:13 GMT
+
+https://collider.com/best-dragon-ball-arcs-ranked/
+
+Dragon Ball is the crowning jewel of the anime medium, and it's all thanks to iconic and acclaimed storylines like the Piccolo Saga and the Cell Saga.
+---------
+
+# One of the '80s' Biggest Sleeper Hits Is Officially Getting a Sequel
+
+Movie News, Troop Beverly Hills, Cameron Diaz, Clea DuVall, Comedy
+
+Wed, 08 Apr 2026 20:19:31 GMT
+
+https://collider.com/troop-beverly-hills-sequel-movie-cameron-diaz-clea-duvall/
+
+Cameron Diaz and Clea DuVall are set to make a sequel to one of the most underrated cult classics of the 1980s. Here's what we know.
+---------
+
+# Jason Statham Action Thriller 'Mutiny' Gets New Look Ahead of Trailer
+
+Movie News, Mutiny, Jason Statham
+
+Wed, 08 Apr 2026 20:18:54 GMT
+
+https://movieweb.com/mutiny-movie-jason-statham-poster/
+
+The action star is prepped to dive into another intense adventure.
+---------
+
+# 'Euphoria' Season 3 Lands Mixed Rotten Tomatoes Score
+
+TV News, Euphoria
+
+Wed, 08 Apr 2026 19:47:50 GMT
+
+https://movieweb.com/euphoria-season-3-rotten-tomates-score/
+
+Critics agree that Zendaya still lights up the screen as Rue in 'Euphoria' Season 3, but the rest is up for discussion.
+---------
+
 # Anthony Mackie Unites With Marvel's X-Men Star In New Action Thriller
 
 Movies, Anthony Mackie
