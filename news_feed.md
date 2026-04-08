@@ -1,3 +1,212 @@
+# Scarlett Johansson Makes TV Debut In Prime Video's Just Cause Remake
+
+TV, Just Cause
+
+Wed, 08 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/scarlett-johansson-just-cause-prime-video-show-remake/
+
+Scarlett Johansson's TV drama debut as a lead actor will be a remarkable full-circle moment in her career, given where it all began in 1995.
+---------
+
+# One Piece Solves a Creepy Mystery By Unveiling The Staggering Power Of an Underrated Devil Fruit
+
+Anime, One Piece, One Piece (1997)
+
+Wed, 08 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/one-piece-punk-hazard-giants-frozen-mystery-devil-fruit/
+
+One Piece's latest chapter has finally solved a 14-year-old mystery, revealing a devil fruit power that could change the Final Saga.
+---------
+
+# Netflix's Star-Studded Hit Sci-Fi Movie Has One Of Its Best Casts
+
+Movies, Netflix, The Adam Project
+
+Wed, 08 Apr 2026 21:22:40 GMT
+
+https://screenrant.com/netflix-the-adam-project-sci-fi-movie-cast-best/
+
+One of Netflix's best Sci-Fi movies of all time boasts a shocking cast filled with major stars that came together to tell a perfect time travel story.
+---------
+
+# Daredevil: Born Again Brings Back 2 More OG Netflix Actors (With A Catch)
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 08 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/daredevil-born-again-original-series-flashbacks/
+
+Daredevil: Born Again season 2, episode 4 includes a major connection to the original Netflix show, as two more familiar actors are utilized.
+---------
+
+# Supergirl Is Adapting The Same Story As John Wayne's True Grit
+
+Movies, Supergirl, True Grit, John Wayne
+
+Wed, 08 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/john-wayne-true-grift-supergirl-woman-of-tomorrow-inspiration/
+
+John Wayne's classic Western True Grit is being remade as a superhero movie, with the upcoming Supergirl film adapting the story's themes and plot.
+---------
+
+# GTA 6 Online Will Launch Sooner Than Expected, Leaker Claims
+
+Gaming
+
+Wed, 08 Apr 2026 20:55:56 GMT
+
+https://screenrant.com/gta-6-online-release-window-leak/
+
+Grand Theft Auto 6 is just around the corner, and if this leak is right, the online component might be also be almost at the threshold.
+---------
+
+# Chris Hemsworth’s R-Rated Netflix Action Thriller Returns As Global Smash Hit Amid Major Franchise Update
+
+Movies, Extraction, Netflix
+
+Wed, 08 Apr 2026 20:40:25 GMT
+
+https://screenrant.com/chris-hemsworth-extraction-netflix-streaming-success-april-2026/
+
+Chris Hemsworth's R-rated action thriller is now one of Netflix's most-watched movies worldwide, and it comes just in time for the franchise's return.
+---------
+
+# Marvel's Avengers: Armageddon #1 May Face A Huge Problem
+
+Comics, Marvel
+
+Wed, 08 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/marvel-avengers-armageddon-high-demand/
+
+Marvel's Avengers: Armageddon is set to release with a special Magic: The Gathering card, but the latest update from the publisher should worry fans.
+---------
+
+# Avantris Entertainment's Mikey Gilder Neon Odyssey TTRPG Interview
+
+Games, Tabletop, Science Fiction, Sci-Fi, Dungeons and Dragons
+
+Wed, 08 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/neon-odyssey-5e-ttrpg-avantris-entertainment-interview/
+
+Mikey Gilder from Legends of Avantris sits down with CBR to talk about Avantris Entertainment's upcoming Neon Odyssey Kickstarter for D&amp;D 5e.
+---------
+
+# Jurassic World Rebirth Continues the Franchise's Most Frustrating Trends
+
+Movies, Jurassic World Rebirth
+
+Wed, 08 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/jurassic-world-rebirth-continue-frustrating-trends/
+
+The Jurassic World Rebirth trailer came with revelations about Jurassic Park’s past but leaves audiences frustrated as it confirms a classic trope.
+---------
+
+# Jason Statham Action Thriller Mutiny Gets First Poster
+
+Movies, Mutiny, Jason Statham
+
+Wed, 08 Apr 2026 21:22:28 GMT
+
+https://www.cbr.com/jason-statham-mutiny-poster/
+
+An official new look at Jason Statham's next action thriller has been unveiled.
+---------
+
+# Sony Pictures Restructuring: Hundreds Laid Off Amid Strategic Shift
+
+Movies, sony pictures
+
+Wed, 08 Apr 2026 21:17:50 GMT
+
+https://www.cbr.com/sony-entertainment-layoffs-tv-film-video-game-adaptations-anime/
+
+Sony Pictures Entertainment is undergoing restructuring, resulting in hundreds of layoffs across film, television, and corporate divisions.
+---------
+
+# Rob Reiner Is the Only Director to Perfect the Stephen King Formula
+
+Movies, Misery, Stand by Me, Stephen King
+
+Wed, 08 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/rob-reiner-masterpiece-stephen-king-movies/
+
+Following the death of the iconic filmmaker, his body of work shows he brought the best-selling author's voice to the screen better than anyone.
+---------
+
+# 10 Nearly Perfect Fantasy Movies, Ranked
+
+Movie, The Lord of the Rings: The Two Towers, Hellboy II: The Golden Army, Holy Motors, Ghidorah, the Three-Headed Monster
+
+Wed, 08 Apr 2026 21:30:14 GMT
+
+https://collider.com/nearly-perfect-fantasy-movies-ranked/
+
+There are lots of near-perfect fantasy movies worthy of your attention, including Hellboy II: The Golden Army, Lost Horizon, and Castle in the Sky.
+---------
+
+# Only 3 Vampire Movies Are Better Than 'Nosferatu'
+
+Movie, Nosferatu, Vampyr, Let the Right One In, Sinners
+
+Wed, 08 Apr 2026 21:19:13 GMT
+
+https://collider.com/vampire-movies-better-than-nosferatu-1922/
+
+Nosferatu is the father of all vampire movies, and its significance has only ever been surpassed by movies like Vampyr and, most recently, Sinners.
+---------
+
+# 10 Dramedy Movie Masterpieces With Great Acting, Ranked
+
+Movie, The Apartment, The Graduate, Lost in Translation, Broadcast News
+
+Wed, 08 Apr 2026 20:54:13 GMT
+
+https://collider.com/dramedy-movie-masterpieces-great-acting-ranked/
+
+From The Apartment to Lady Bird, these dramedy masterpieces blend heartbreak and humor with unforgettable acting.
+---------
+
+# Sam Witwer Explains Darth Maul's Search for Identity Arc in 'Maul — Shadow Lord' Disney+ Show
+
+TV News, Star Wars: Maul - Shadow Lord, Sam Witwer, Disney+
+
+Wed, 08 Apr 2026 21:17:58 GMT
+
+https://movieweb.com/star-wars-shadow-lord-maul-sam-witwer-identity/
+
+Sam Witwer, the star of the 'Maul — Shadow Lord' series, discussed the question of "Who Am I?" for his Darth Maul on Disney+.
+---------
+
+# Denis Villeneuve's Sci-Fi Masterpiece 'Arrival' Is Streaming Free on Pluto TV Ahead of 'Dune: Part Three's Release
+
+Movie News, Arrival, Pluto TV, Hot on Streaming, Sci-Fi
+
+Wed, 08 Apr 2026 21:01:17 GMT
+
+https://movieweb.com/arrival-sci-fi-streaming-free-success-pluto-april-2026-sci-fi/
+
+Denis Villeneuve's 'Arrival' is streaming for free on Pluto TV, and it's a streaming success.
+---------
+
+# 'The Boys' Set Up Homelander's Greatest Weakness Only To Ignore It
+
+Features, The Boys
+
+Wed, 08 Apr 2026 21:01:17 GMT
+
+https://movieweb.com/the-boys-season-5-homelander-weakness/
+
+'The Boys' Season 5 premiered on Amazon Prime Video on April 8, 2026, and stars Antony Starr as Homelander along with Erin Moriarty and Jack Quaid.
+---------
+
 # Coop's Allegiances & Relationship Changes In Your Friends & Neighbors Season 2 Broken Down By Jon Hamm And Apple TV Co-Stars
 
 TV, Your Friends and Neighbors, Your Friends & Neighbors - Season 2, Apple TV, Jon Hamm
