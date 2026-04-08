@@ -1,3 +1,212 @@
+# 9 Broadway Musicals You Can Stream At Home After Merrily We Roll Along
+
+Movies, Merrily We Roll Along
+
+Wed, 08 Apr 2026 23:30:35 GMT
+
+https://screenrant.com/merrily-we-roll-along-roadway-musical-proshot-recommendation/
+
+After Netflix's proshot of Merrily We Roll Along, continue your Broadway musical journey with these 9 shows, which are available to stream now.
+---------
+
+# Netflix’s 6-Part Crime Thriller Based On A Bestselling Novel Is One Of Its Best Shows
+
+Streaming TV, Netflix, Dear Child
+
+Wed, 08 Apr 2026 23:19:30 GMT
+
+https://screenrant.com/netflix-dear-child-crime-thriller-series-watch/
+
+Netflix's 6-part crime thriller 'Dear Child,' based on a bestselling novel, is one of the streamer's top-rated shows with a perfect 100% RT score.
+---------
+
+# Nathan Fillion's Cult Classic Sci-Fi Series Quietly Returns To Streaming Domination After Major Franchise Update
+
+TV, Firefly
+
+Wed, 08 Apr 2026 23:15:50 GMT
+
+https://screenrant.com/nathan-fillion-firefly-vod-apple-tv-streaming-success-april-2026/
+
+Nathan Fillion's cult classic sci-fi series quietly returns to dominate streaming shortly after a major franchise update from the star.
+---------
+
+# X-Men Debuts New Matching Costumes, As a Classic Team Is Officially Reborn
+
+Marvel Comics, X-Men
+
+Wed, 08 Apr 2026 23:01:29 GMT
+
+https://screenrant.com/x-men-outliers-new-costumes-redesign/
+
+The X-Men gather a new version of the New Mutants, but this time, the team includes a former villain.
+---------
+
+# Pokémon Fans Say Farewell To An Era: "It Was Fun While It Lasted"
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 08 Apr 2026 23:01:29 GMT
+
+https://screenrant.com/pokemon-champions-winds-waves-30-fps/
+
+Although there are a lot of celebrations going on for Pokémon's 30th anniversary, some fans aren't liking the direction the games are going.
+---------
+
+# Prime Video's Upcoming Sci-Fi Show Will Be The Ultimate Cyberpunk Series
+
+TV, Blade Runner, Blade Runner 2099
+
+Wed, 08 Apr 2026 22:53:29 GMT
+
+https://screenrant.com/blade-runner-2099-prime-video-ultimate-cyberpunk-series/
+
+An unexpected choice from Prime Video's upcoming spinoff could be the key to unlocking the full potential of the cyberpunk genre on the small screen.
+---------
+
+# Demon Slayer Record Broken by New Anime Movie With 59 Screenings in 1 Day
+
+Anime, Demon Slayer the Movie: Mugen Train, case closed
+
+Wed, 08 Apr 2026 23:03:26 GMT
+
+https://www.cbr.com/demon-slayer-screening-record-break-detective-conan/
+
+Against all odds, the Demon Slayer Kimetsu no Yaiba franchise loses a major screening record to a major shounen anime icon from the 1990s.
+---------
+
+# Action Movies Now on Prime Video That Keep You Hooked
+
+Movies, Action, Prime Video, Die Hard
+
+Wed, 08 Apr 2026 23:00:19 GMT
+
+https://www.cbr.com/action-movies-prime-video-hooked-start-to-finish/
+
+Action cinema has long defined success for Hollywood, and Prime Video has a diverse range of some of the best films in the genre.
+---------
+
+# Krypto Saves the Day! Final Episode Releasing Next Week
+
+TV, Superman, Supergirl
+
+Wed, 08 Apr 2026 22:54:27 GMT
+
+https://www.cbr.com/krypto-saves-the-day-episode-4-hbo-max-youtube-release-date/
+
+The final installment of the Krypto Saves the Day! animated shorts, 'Coastal Catastrophe,' is set to release next week.
+---------
+
+# ‘Stranger Things’ Icon’s 92-Minute Hulu Original Becomes a Late-Night Sleeper Hit
+
+TV News, Pizza Movie, Gaten Matarazzo, Hulu, Comedy
+
+Wed, 08 Apr 2026 23:30:25 GMT
+
+https://collider.com/stranger-things-star-gaten-matarazzo-pizza-movie-streaming-success-hulu-april-2026/
+
+Stranger Things icon Gaten Matarazzo stars in Hulu's new stoner comedy that has become a streaming sensation. Get all the details here.
+---------
+
+# Hulu’s 6-Part Sci-Fi Drama Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Lost, ABC, Hulu, Matthew Fox
+
+Wed, 08 Apr 2026 23:24:19 GMT
+
+https://collider.com/lost-hulu-sci-fi-drama-rewatch-multiple-times/
+
+Lost endures as one of the most influential sci-fi series, with its character-driven drama and complex storytelling that resonate deeply on a rewatch.
+---------
+
+# 10 Greatest Sci-Fi Movies Released Since 'The Matrix,' Ranked
+
+Movie, Star Wars: Episode VIII - The Last Jedi, Children of Men, Everything Everywhere All at Once, Godzilla Minus One
+
+Wed, 08 Apr 2026 23:21:23 GMT
+
+https://collider.com/best-sci-fi-movies-since-the-matrix-ranked/
+
+Since The Matrix (1999), there have been a number of instant classic sci-fi movies, including Mad Max: Fury Road, Paprika, and Godzilla Minus One.
+---------
+
+# 8 Best New Streaming Movies Released in 2026 So Far
+
+Movie, Streaming, The Wrecking Crew, War Machine, The Rip
+
+Wed, 08 Apr 2026 23:11:22 GMT
+
+https://collider.com/movies-best-streaming-2026/
+
+People We Meet On Vacation, The Rip, War Machine, Pretty Lethal, and more make up our list of the best streaming movies released in 2026 so far.
+---------
+
+# Adult Swim’s 9-Part Sci-Fi Masterpiece Officially Debuts Its Best Trailer Yet
+
+TV News, Rick and Morty, Adult Swim, Animation, Science Fiction
+
+Wed, 08 Apr 2026 23:00:20 GMT
+
+https://collider.com/rick-and-morty-season-9-trailer-adult-swim-sci-fi-series/
+
+Adult Swim has dropped the official trailer for Rick and Morty Season 9, showcasing the Smith family's next wild sci-fi adventures.
+---------
+
+# 'Daredevil: Born Again' Season 2 Quietly Breaks 'Thunderbolts' Ending
+
+Movie Features, Daredevil: Born Again, Thunderbolts*, Disney+, Julia Louis-Dreyfus
+
+Wed, 08 Apr 2026 22:57:22 GMT
+
+https://collider.com/daredevil-born-again-season-2-marvel-thunderbolts-ending-allegra-de-fontaine/
+
+Marvel's Thunderbolts and Daredevil: Born Again appear to have more in common than we initially thought.
+---------
+
+# 'Faces of Death' Review: Dacre Montgomery Is Insidiously Magnetic in an Otherwise Derivative Horror Remake
+
+Movie Reviews, Faces of Death, Dacre Montgomery, Barbie Ferreira, Horror
+
+Wed, 08 Apr 2026 22:48:22 GMT
+
+https://collider.com/faces-of-death-2026-review-dacre-montgomery/
+
+Daniel Goldhaber's Faces of Death remake examines modern society's desensitization to violence but falls short of delivering a fresh take.
+---------
+
+# Alien: Earth' Season 2 Casts Peter Dinklage as Series Regular
+
+TV News, Alien: Earth, Alien, Peter Dinklage
+
+Wed, 08 Apr 2026 23:05:19 GMT
+
+https://movieweb.com/alien-earth-season-2-peter-dinklage/
+
+The actor will soon be joining the corporate-dominated Earth in Season 2 of Noah Hawley's sci-fi series.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Adds Yet More Jedi to the List of Order 66 Survivors
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Wed, 08 Apr 2026 23:01:27 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-jedi-retcon/
+
+There was a time when Obi-Wan and Yoda were the only Order 66 survivors. 'Shadow Lord' doubles down on that no longer being the case.
+---------
+
+# 'American Horror Story' Creator Shares Sarah Paulson Pic to Confirm 'Coven' Sequel
+
+TV News, American Horror Story, Sarah Paulson
+
+Wed, 08 Apr 2026 22:37:46 GMT
+
+https://movieweb.com/american-horror-story-sarah-paulson-return-coven/
+
+Paulson is a regular star of the series, but creator Ryan Murphy revealed she's reprising her Season 3 role.
+---------
+
 # Is Conquest Really Dead? Invincible Season 4, Episode 6 Final Scene Explained
 
 TV, Invincible
