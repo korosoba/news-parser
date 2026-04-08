@@ -1,3 +1,333 @@
+# Robert Pattinson & Zendaya's The Drama Ending: What It Means For Charlie & Emma's Marriage Addressed By Director
+
+Movies, The Drama
+
+Wed, 08 Apr 2026 13:59:14 GMT
+
+https://screenrant.com/the-drama-movie-ending-emma-charlie-fate-explained-kristoffer-borgli/
+
+The Drama director Kristoffer Borgli shares his thoughts on the movie's ambiguous ending and the future for Charlie and Emma's marriage.
+---------
+
+# Pokémon Champions: All Active Mystery Gift Codes
+
+Gaming, Pokemon Champions, Triple-A Games
+
+Wed, 08 Apr 2026 13:57:33 GMT
+
+https://screenrant.com/pokemon-champions-all-active-mystery-gift-codes/
+
+Just like classic games in the series, Pokémon Champions has Mystery Gift codes you can exchange for free rewards, and we've compiled them all.
+---------
+
+# House Of The Dragon Release Revealed Ahead Of GOT Prequel’s 2026 Return
+
+Gaming, PC, House of the Dragon - Season 3, House of the Dragon, Game of Thrones
+
+Wed, 08 Apr 2026 13:57:24 GMT
+
+https://screenrant.com/game-thrones-dragonfire-release-summer-2026/
+
+House of the Dragon has officially revealed a new spinoff release ahead of the Game of Thrones prequel's season 3 return in 2026.
+---------
+
+# OG Dexter: Resurrection Villain Confirms Season 2 Return After Ambiguous Ending
+
+TV, Dexter: Resurrection
+
+Wed, 08 Apr 2026 13:39:25 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-uma-thurman-charley-return-confirmed/
+
+OG Dexter: Resurrection Villain Confirms Season 2 Return After Ambiguous Ending
+---------
+
+# Galactus' Death Just Crowned Marvel's New Biggest Villain... DRACULA?!
+
+Comics, Galactus, Marvel
+
+Wed, 08 Apr 2026 13:38:27 GMT
+
+https://screenrant.com/galactus-death-heart-dracula-ultimate-nullifier/
+
+Galactus had to die for this villain to join the A-list.
+---------
+
+# GTA 6 Gamers Hopeful Following Official 60fps Update
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Wed, 08 Apr 2026 13:33:14 GMT
+
+https://screenrant.com/gta-6-60-fps-update-cyberpunk-2077/
+
+Grand Theft Auto 6 fans are hopeful that Rockstar will deliver on 60 FPS, based on a new update that has things looking promising.
+---------
+
+# HBO's Massive 8-Part Fantasy Series Made Almost Every Cast Member A Star
+
+Classic TV, Game Of Thrones
+
+Wed, 08 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/game-of-thrones-fantasy-hbo-series-cast-member-stars/
+
+Game of Thrones had a large ensemble cast, and unusually for a long-running fantasy production, most of the cast have remained stars afterward.
+---------
+
+# New Deleted Scenes Reveal The Tragic Backstory Of One Of 2026’s Silliest Kids Movie Characters
+
+Movies, GOAT
+
+Wed, 08 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/goat-modo-movie-backstory-deleted-scene/
+
+Even comic relief characters can have hidden depths, as is confirmed by one new deleted scene and what it reveals about a key 2026 movie character.
+---------
+
+# 50 Cent’s Hulu Docuseries: A Strategic Masterstroke Against Diddy
+
+Music, 50 Cent, Hulu, Hip-Hop, Netflix, Sean Combs: The Reckoning
+
+Wed, 08 Apr 2026 13:30:40 GMT
+
+https://screenrant.com/50-cent-hulu-docuseries-diddy-netflix-feud-explained/
+
+Hulu lands 50 Cent’s new 3-part docuseries following a viral $75M prank. Explore how this deal cements his dominance over the Diddy/Netflix narrative.
+---------
+
+# Tom Holland Confirms New Reshoots & Changes To Spider-Man: Brand New Day Villain Story Just 3 Months Before Release
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Wed, 08 Apr 2026 13:29:40 GMT
+
+https://screenrant.com/spider-man-brand-new-day-reshoots-villain-story-changes-tom-holland/
+
+Tom Holland confirms that Spider-Man: Brand New Day reshoots have made villain changes and more three months before the MCU movie's release.
+---------
+
+# Prime Video’s US Top 10 Gets Hijacked by From Ahead of Season 4 Release
+
+TV, From
+
+Wed, 08 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/from-sci-fi-horror-prime-video-success-april-2026/
+
+Ahead of its highly anticipated return, the series is making its way up the charts again.
+---------
+
+# 10 Crunchyroll Anime That Get Better With Every Episode
+
+Anime, Crunchyroll, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 08 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/crunchyroll-best-anime-better-every-episode/
+
+Crunchyroll's best anime are a gift that keeps getting better with every episode.
+---------
+
+# A Fistful of Dollars is a Secret Sequel to The Good, The Bad and the Ugly
+
+Movies, Western, A Fistful of Dollars, The Good, the Bad and the Ugly
+
+Wed, 08 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/fistful-of-dollars-actual-sequel-the-good-the-bad-the-ugly/
+
+Despite marking the first entry in Sergio Leone's Dollars Trilogy, there's strong evidence that A Fistful of Dollars isn't the actual start of it.
+---------
+
+# Supernatural's Failed Spin-off Wayward Sisters Still Hurts
+
+TV, Supernatural, The Winchesters
+
+Wed, 08 Apr 2026 12:42:26 GMT
+
+https://www.cbr.com/supernatural-wayward-sisters-failed-spinoff/
+
+This Supernatural spin-off could have been a huge hit, but it was too far ahead of its time.
+---------
+
+# Hulu’s Best Sci-Fi Series Officially Begins Production on Final Season With First Image
+
+TV News, Paradise, Dan Fogelman, Sterling K. Brown, Hulu
+
+Wed, 08 Apr 2026 13:40:43 GMT
+
+https://collider.com/hulu-sci-fi-series-paradise-season-3-filming-start-first-image/
+
+Hulu's best sci-fi series officially begins production on final season with first image, following an epic Season 2 finale.
+---------
+
+# From Westerns to Crime Thrillers, Bob Odenkirk and Ben Wheatley Reveal Their 'Normal' Inspirations in New Alamo Drafthouse Guest Selects [Exclusive]
+
+Exclusives, Alamo Drafthouse, Bob Odenkirk, Normal, Ben Wheatley
+
+Wed, 08 Apr 2026 13:01:13 GMT
+
+https://collider.com/westerns-crime-thrillers-inspiration-normal-bob-odenkirk-ben-wheatley-alamo-drafthouse-guest-selects/
+
+Bob Odenkirk and Ben Wheatley appeared in the latest episode of Alamo Drafthouse's Guest Selects series to share the films that relate to Normal.
+---------
+
+# Apple TV’s Sleeper Hit British Crime Thriller Is Officially Back With First Season 2 Trailer
+
+TV News, Criminal Record, Apple TV, Peter Capaldi, Cush Jumbo
+
+Wed, 08 Apr 2026 13:01:13 GMT
+
+https://collider.com/apple-tv-criminal-record-season-2-trailer-peter-capaldi-cush-jumbo/
+
+The official trailer for Season 2 of Apple TV's hit crime thriller Criminal Record has arrived, with a pulse-pounding preview of a London bomb plot.
+---------
+
+# 'Blade Runner' Officially Returns Next Month — But There's a Twist [Exclusive]
+
+Movie News, Blade Runner, Comic Book, Blade Runner 2049, Science Fiction
+
+Wed, 08 Apr 2026 13:01:13 GMT
+
+https://collider.com/blade-runner-tokyo-nexus-to-lose-is-to-win-comic-book-preview/
+
+Discover the next chapter of Blade Runner in the comic series Blade Runner: Tokyo Nexus: To Lose Is to Win. Pre-order now for May release.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 8, 2026
+
+TV, Community, Supergirl, Magnum P.I., Leave It to Beaver
+
+Wed, 08 Apr 2026 13:01:13 GMT
+
+https://collider.com/tv-quiz-apr-8-2026-community-yahoo-switch-networks/
+
+Yahoo Screen hosted Community for its sixth and final season, after NBC jettisoned the fan fave. Here are more instances of that strange occurrence.
+---------
+
+# ‘Shrinking’ Star Explains Why the Season 3 Finale’s Surprising Gaby and Derrick Moment Had To Happen That Way
+
+Exclusives, Shrinking, Jessica Williams, Damon Wayans Jr., Harrison Ford
+
+Wed, 08 Apr 2026 13:01:13 GMT
+
+https://collider.com/shrinking-season-3-finale-gaby-derrick-engagement-jessica-williams-interview/
+
+Jessica Williams discusses Shrinking Season 3, Gaby and Derrick's finale proposal, how the heartbreak of losing Maya changed things, and more.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 8, 2026
+
+Movie, When Harry Met Sally, Sleepless In Seattle, Roxanne, The Wedding Singer
+
+Wed, 08 Apr 2026 12:59:13 GMT
+
+https://collider.com/movie-quiz-apr-8-2026-romantic-comedies/
+
+Sometimes they're hilarious. Other times, they tug at the heartstrings. Here's a handful of rom-coms that may or may not have nailed the formula.
+---------
+
+# 17 Years Ago, This Surprising 3-Part Sci-Fi Sleeper Hit Forever Left Fans With a Devastating Cliffhanger
+
+TV Features, Kyle XY, Matt Dallas, ABC Family, Hulu
+
+Wed, 08 Apr 2026 12:24:12 GMT
+
+https://collider.com/kyle-xy-abc-family-sci-fi-sleeper-hit-cliffhangers-explained/
+
+Kyle XY was arguably one of the most underrated sci-fi shows of the early 2000s, which makes its cancellation hurt all the more.
+---------
+
+# 10 Greatest Crime Thrillers of the Last 10 Years, Ranked
+
+Movie, Crime, Thriller, One Battle After Another, Wind River (2017)
+
+Wed, 08 Apr 2026 12:20:12 GMT
+
+https://collider.com/best-crime-thrillers-last-10-years-ranked/
+
+One Battle After Another, Wind River, and The Batman are all among the very best crime thrillers of the last 10 years.
+---------
+
+# Netflix's 'XO, Kitty' Quickly Dominates Streaming After Season 3 Return
+
+TV News, XO, Kitty, Hot on Streaming, Netflix
+
+Wed, 08 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/xo-kitty-netflix-streaming-success-april-2026/
+
+Netflix's hottest series is the returning 'XO, Kitty,' which has quickly become a global smash just days after the Season 3 premiere.
+---------
+
+# 'Harry Potter': HBO Responds To Fan Concern About Season One
+
+Features, Harry Potter
+
+Wed, 08 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/harry-potter-fans-season-one-worries/
+
+HBO's 'Harry Potter' special 'Finding Harry' reveals how worried fans should be about the show's first season.
+---------
+
+# Mindy Kaling's 'Not Suitable for Work' Gets First Look & Release Date
+
+TV News, Mindy Kaling, The Office, Comedy
+
+Wed, 08 Apr 2026 13:33:28 GMT
+
+https://movieweb.com/mindy-kaling-not-suitable-work-first-look-release-date/
+
+Mindy Kaling’s new office-based sitcom 'Not Suitable for Work' gets a first look and a June premiere date on Hulu.
+---------
+
+# 'Star Wars' Icon Mark Hamill Endorses Dave Filoni in Lucasfilm Leadership Role
+
+Movie News, Mark Hamill, Star Wars, Dave Filoni, Kathleen Kennedy
+
+Wed, 08 Apr 2026 13:31:08 GMT
+
+https://movieweb.com/mark-hamill-reacts-lucasfilm-president-dave-filoni-star-wars/
+
+'Star Wars' icon Mark Hamill has expressed his support for the leadership shakeup at Lucasfilm, endorsing Dave Filoni as Kathleen Kennedy's successor.
+---------
+
+# A24 Can Fix Jean-Claude Van Damme's Action Classic With 'Bloodsport' Remake
+
+Features, Bloodsport, A24, Action, Jean-Claude Van Damme
+
+Wed, 08 Apr 2026 13:01:17 GMT
+
+https://movieweb.com/bloodsport-action-classic-a24/
+
+A24 is developing a remake of Jean-Claude Van Damme's action classic 'Bloodsport', which presents the chance to fix the original's mistake.
+---------
+
+# Elisabeth Moss Returns in 'Handmaid's Tale' Sequel Series 'The Testaments'
+
+TV News, The Handmaid's Tale, The Testaments
+
+Wed, 08 Apr 2026 12:48:00 GMT
+
+https://movieweb.com/handmaids-tale-character-returns-testaments/
+
+Here's how the show brought June Osbourne back for its premiere episode.
+---------
+
+# 'Foundation's Lee Pace Teases Even "Bigger" Story in Season 4
+
+TV News, Foundation, Apple TV, Sci-Fi
+
+Wed, 08 Apr 2026 12:26:36 GMT
+
+https://movieweb.com/foundation-apple-bigger-story-sci-fi/
+
+The actor also confirms that the latest season of Apple TV's acclaimed sci-fi adaptation is now filming.
+---------
+
 # ABC Officially Spoils Wagner’s High Potential Season 3 Fate After Fatal Cliffhanger
 
 Network TV, High Potential
