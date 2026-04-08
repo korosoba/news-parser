@@ -1,3 +1,377 @@
+# Nick Offerman’s Sonic 4 Role Can Finally Bring A Beloved Game Character To The Big Screen
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog, Nick Offerman
+
+Wed, 08 Apr 2026 15:50:19 GMT
+
+https://screenrant.com/sonic-4-movie-nick-offerman-role-big-the-cat/
+
+Nick Offerman's role in Sonic the Hedgehog 4 is the perfect way for a beloved game character to make their debut on the big screen.
+---------
+
+# 7 Classic Rock Songs That Are Actually Stadium Infrastructure
+
+Music, Classic Rock, Rock, Queen, The White Stripes, The Rolling Stones
+
+Wed, 08 Apr 2026 15:49:07 GMT
+
+https://screenrant.com/classic-rock-songs-stadium-infrastructure/
+
+Why do songs like “We Will Rock You” never leave the rotation? Discover the engineering behind the world’s greatest stadium rock infrastructure.
+---------
+
+# James Gunn Tests Ella Purnell, Adria Arjona & More For Key Superman Sequel Role
+
+Movies, Man of Tomorrow
+
+Wed, 08 Apr 2026 15:47:13 GMT
+
+https://screenrant.com/superman-2-man-of-tomorrow-maxima-ella-purnell-adria-arjona-test/
+
+The DC Universe is close to starting filming on Man of Tomorrow, as three major actresses are currently testing out for a major DC role in the film.
+---------
+
+# Superman And Batman Just Became Boyfriends In DC Comics
+
+DC Comics, Batman, Superman
+
+Wed, 08 Apr 2026 15:46:11 GMT
+
+https://screenrant.com/superman-batman-romance-couple/
+
+DC Comics introduces the first romantic relationship between Batman and Superman in an in-universe comic that adds a new twist to the World's Finest.
+---------
+
+# Marvel Debuts Shock New Hyperion as Permanent Addition to Marvel Lore
+
+Comics, The Avengers
+
+Wed, 08 Apr 2026 15:37:50 GMT
+
+https://screenrant.com/avengers-new-member-hyperion-hyperia-join/
+
+One of Marvel's strongest heroes of all time just joined the Avengers for the first time, and changed the legacy of another godlike hero forever.
+---------
+
+# Cyberpunk 2077 Officially Returning With New Physical Release
+
+Gaming, Cyberpunk 2077, CD Projekt Red
+
+Wed, 08 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/cyberpunk-2077-returns-new-physical-release/
+
+CD Projekt Red are officially back with a physical release collaboration for its Cyberpunk 2077 IP.
+---------
+
+# The Miniature Wife Review: Elizabeth Banks & Matthew Macfadyen's Charming Sci-Fi Comedy Feels Familiar
+
+Streaming TV, The Miniature Wife
+
+Wed, 08 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/the-miniature-wife-tv-review/
+
+The Miniature Wife is a charming sci-fi comedy series starring incredible talent like Matthew Macfadyen and Elizabeth Banks with one small problem.
+---------
+
+# Cillian Murphy's Sci-Fi Movie Similar To Project Hail Mary
+
+Movies, Cillian Murphy, Sunshine, Recommendation
+
+Wed, 08 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/sunshine-cillian-murphy-like-project-hail-mary/
+
+With a surprisingly similar premise, this 2007 sci-fi movie starring Cillian Murphy is a must-watch for viewers who enjoyed Project Hail Mary.
+---------
+
+# Val Kilmer's 2-Part Spy Thriller Was One Of His Biggest Mistakes
+
+TV, Val Kilmer, XIII: The Conspiracy
+
+Wed, 08 Apr 2026 15:29:19 GMT
+
+https://screenrant.com/val-kilmer-xiii-the-conspiracy-spy-thriller-series-misfire/
+
+Val Kilmer's 2008 adaptation of a great graphic novel series had the potential to be a gripping spy thriller but fell flat, leaving fans disappointed.
+---------
+
+# Daredevil: Born Again Season 2 Rewrites An MCU Mistake
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 08 Apr 2026 15:25:55 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-rewrites-an-mcu-mistake/
+
+After fans criticized a Daredevil: Born Again season 1 choice, the Marvel series' second season fixes it with a poignant moment in its new episode.
+---------
+
+# Hulu's Paradise Season 3 Is in Production 1 Week After Season 2 Finale
+
+TV, Paradise
+
+Wed, 08 Apr 2026 15:46:19 GMT
+
+https://www.cbr.com/hulu-paradise-season-3-filming/
+
+The streaming environment is constantly changing and a return to older ways seems more and more possible.
+---------
+
+# Daredevil Showrunner Officially Reveals Kingpin's Dark Political Goals
+
+TV, Marvel, MCU, Daredevil, Daredevil: Born Again
+
+Wed, 08 Apr 2026 15:32:52 GMT
+
+https://www.cbr.com/marvel-daredevil-showrunner-officially-reveals-kingpin-dark-political-goals/
+
+You might think you know what Kingpin's long game is in Daredevil, but it turns out you have no idea.
+---------
+
+# Hatsune Miku & Cinnamoroll Unite for First-Look Reveal of New Sakura Spring 2026 Collection
+
+Anime, sanrio, Hatsune Miku
+
+Wed, 08 Apr 2026 15:32:13 GMT
+
+https://www.cbr.com/sanrio-cinnamoroll-spring-2026-cherry-blossom-release/
+
+The latest collab between Sanrio's Cinnamoroll and the Vocaloid Hatsune Miku celebrates cherry blossom season with several new collectibles.
+---------
+
+# 7 Years Later, Steven Soderbergh Seals the Fate of His Ben Solo Star Wars Sequel
+
+Movies, Star Wars
+
+Wed, 08 Apr 2026 15:26:20 GMT
+
+https://www.cbr.com/star-wars-the-hunt-for-ben-solo-fate-sealed-steven-soderbergh/
+
+Steven Soderbergh reveals whether he has any interest in reviving his Ben Solo Star Wars film now that leadership has changed at Disney and Lucasfilm.
+---------
+
+# Paranois Agent Is Officially the Most Underrated Miniseries of the 2000s
+
+Anime, Paranoia Agent, Thriller
+
+Wed, 08 Apr 2026 15:21:08 GMT
+
+https://www.cbr.com/underrated-crime-thriller-paranoia-agent-perfect-rt-score/
+
+Satoshi Kon's Paranoia Agent is a masterpiece that pushes the psychological thriller genre to challenging places that highlight Kon's signature skills
+---------
+
+# Maul: Shadow Lord Star Reveals The Secrets He Wants To Explore The Most
+
+CBR Exclusives, Star Wars: Maul - Shadow Lord
+
+Wed, 08 Apr 2026 15:10:23 GMT
+
+https://www.cbr.com/maul-shadow-lord-sam-witwer-full-life/
+
+Maybe Darth Maul was right. Maybe the Sith did take everything from him.
+---------
+
+# Sean Connery's Greatest Performance is Not James Bond, But Finding Forrester
+
+Movies, Finding Forrester
+
+Wed, 08 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/sean-connery-always-james-bond-greatest-performance-finding-forrester/
+
+Sean Connery will forever be synonymous with his take on James Bond, but Finding Forrester showed what his true strengths as an actor really where.
+---------
+
+# 10 Near-Perfect SNES RPGs No One Remembers
+
+Games, Nintendo, Role Playing Game, retro games, JRPG
+
+Wed, 08 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/almost-perfect-snes-rpgs-no-one-remembers/
+
+Good luck finding someone who remembers SNES RPGs like Soul Blazer and Chaos Seed.
+---------
+
+# Daredevil Star Charlie Cox Teases The 'Chilling' Comic Arc They Want For Born Again Season 3
+
+Comics, Marvel, MCU, Daredevil, Daredevil: Born Again
+
+Wed, 08 Apr 2026 14:59:08 GMT
+
+https://www.cbr.com/daredevil-charlie-cox-teases-chilling-comic-arc-for-born-again-season-3/
+
+One of the best Daredevil arcs is likely coming to Marvel's streaming series — along with two huge surprises.
+---------
+
+# Toy Story 5 Director Reveals Why Pixar Returned to the Franchise 7 Years Later
+
+Movies, Toy Story 5, pixar
+
+Wed, 08 Apr 2026 14:42:10 GMT
+
+https://www.cbr.com/toy-story-5-pixar-franchise-return-explained-andrew-stanton/
+
+Toy Story 5 director Andrew Stanton reveals why now was the perfect time to revisit the beloved Pixar franchise.
+---------
+
+# ’Breaking Bad’s Most Overlooked Sequel Is Still One of the Franchise’s Best Stories
+
+TV Features, Breaking Bad, Vince Gilligan, El Camino: A Breaking Bad Movie, Better Call Saul
+
+Wed, 08 Apr 2026 15:52:13 GMT
+
+https://collider.com/breaking-bad-best-sequel-el-camino-movie/
+
+El Camino: A Breaking Bad Story doesn't get Better Call Saul's praise, but it is a well-crafted film that fittingly concludes Jesse Pinkman's story.
+---------
+
+# New Sci-Fi Masterpiece Officially Wins Big Against ‘Lord of the Rings’ Director’s Massive Remake
+
+Movie News, Project Hail Mary, King Kong, Peter Jackson, Ryan Gosling
+
+Wed, 08 Apr 2026 15:49:17 GMT
+
+https://collider.com/project-hail-mary-overtakes-king-kong-box-office-221-million/
+
+Lord and Miller’s new sci-fi adaptation has officially overtaken Peter Jackson’s massive monster movie remake at the global box office.
+---------
+
+# ‘Scream’ Officially Returns to Netflix This Week
+
+Movie News, Scream, Scream 7, Netflix, Neve Campbell
+
+Wed, 08 Apr 2026 15:47:30 GMT
+
+https://collider.com/scream-5-2022-netflix-release-date-april-2026-horror-movie-rewatch/
+
+One of the best movies in the Scream franchise is officially coming to Netflix this week. Here’s what you need to know.
+---------
+
+# ‘The Lincoln Lawyer’ Filming Update Hints at Perfect Release Window for Season 5
+
+TV News, The Lincoln Lawyer, Netflix, Michael Connelly
+
+Wed, 08 Apr 2026 15:47:27 GMT
+
+https://collider.com/the-lincoln-lawyer-season-5-filming-dates-release-window-netflix/
+
+Netflix’s beloved legal thriller series, The Lincoln Lawyer, gets a major filming update suggesting Season 5 may arrive on the streamer soon.
+---------
+
+# NBC's 3-Part Sci-Fi Series Perfect for ‘Lost’ Fans Stages Netflix Debut
+
+TV News, La Brea, NBC, Netflix, Lost
+
+Wed, 08 Apr 2026 15:47:15 GMT
+
+https://collider.com/sci-fi-series-netflix-debut-la-brea-streaming-may-2026/
+
+NBC’s 3-part sci-fi series that makes the perfect weekend binge for Lost fans is officially coming to Netflix in America next month.
+---------
+
+# Taylor Sheridan Officially Returns to Directing With New Texas War Epic
+
+Movie News, Taylor Sheridan, Landman, The Madison, Marshals
+
+Wed, 08 Apr 2026 15:45:23 GMT
+
+https://collider.com/taylor-sheridan-directing-new-war-epic-texas-alamo-film/
+
+Taylor Sheridan is officially back in the director’s chair for the first time in 2 years for a new Texas Alamo war epic. Get the details.
+---------
+
+# Netflix's 2-Part John Wick Meets 'Creed' Action Thriller Is Officially Taking Over the World
+
+Movie News, Bloodhounds, Netflix, John Wick, Creed
+
+Wed, 08 Apr 2026 15:42:51 GMT
+
+https://collider.com/netflix-action-thriller-series-bloodhounds-streaming-success-april-2026/
+
+Netflix’s 2-part action thriller with John Wick meets Creed vibes is officially taking over the world after dropping new episodes.
+---------
+
+# Funko Pops? For ‘The Devil Wears Prada’? Groundbreaking [Exclusive]
+
+Exclusives, The Devil Wears Prada, Funko, Meryl Streep, Anne Hathaway
+
+Wed, 08 Apr 2026 15:30:13 GMT
+
+https://collider.com/the-devil-wears-prada-funko-pop-images/
+
+Funko is releasing three new The Devil Wears Prada Pop! figures that memorialize the iconic looks of Andy Sachs, Miranda Priesly, and Emily Charlton.
+---------
+
+# 'The Miniature Wife' Review: Elizabeth Banks and Matthew Macfadyen's Wild 10-Part Series Overcomes Its Biggest Flaws
+
+TV Reviews, The Miniature Wife, Elizabeth Banks, Matthew Macfadyen, Peacock
+
+Wed, 08 Apr 2026 15:30:13 GMT
+
+https://collider.com/the-miniature-wife-review-peacock-elizabeth-banks-matthew-macfadyen/
+
+Peacock's The Miniature Wife, starring Elizabeth Banks and Matthew Macfadyen, ultimately finds a way past its biggest flaws.
+---------
+
+# Netflix's 5-Part Romantic Fantasy Series Fills Out Francesca and Michaela's Love Story With Perfect Update
+
+TV News, Bridgerton, Netflix, MobLand, Carnival Row
+
+Wed, 08 Apr 2026 15:28:30 GMT
+
+https://collider.com/bridgerton-season-5-cast-update-tega-alexander-jacqueline-boatswain-gemma-knight-jones/
+
+Bridgerton Season 5 is officially filling out the cast for Francesca & Michaela's love story. See who the Mobland and Carnival Row stars are playing.
+---------
+
+# Steven Soderbergh Teases Use of AI in Upcoming Movies
+
+Movie News, Steven Soderbergh, Documentary, War
+
+Wed, 08 Apr 2026 15:19:34 GMT
+
+https://movieweb.com/steven-soderbergh-disappoints-ai-upcoming-movies/
+
+Soderbergh plans to use "a lot of AI" in a war movie he wants to make.
+---------
+
+# Anne Hathaway Thriller 'Mother Mary' Lands Rave Early Reactions
+
+Movie News, Mother Mary
+
+Wed, 08 Apr 2026 15:10:39 GMT
+
+https://movieweb.com/mother-mary-first-reactions-critics/
+
+The A24 psychological thriller 'Mother Mary' is getting rave reactions from critics, with praise thrown at Anne Hathaway and director David Lowery.
+---------
+
+# 'Dark Matter' Season 2: Confirmation, Release Date, & Everything We Know
+
+Features, Dark Matter
+
+Wed, 08 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/dark-matter-season-2-everything-we-know/
+
+Apple TV's 'Dark Matter' is finally gearing up for a comeback. Read on to find out when, what'll happen, and more.
+---------
+
+# 'Buffy' Star James Marsters Confirms Spike Was Set To Return for Hulu Reboot
+
+TV News, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series, Sarah Michelle Gellar
+
+Wed, 08 Apr 2026 14:20:26 GMT
+
+https://movieweb.com/buffy-reboot-spike-return-james-marsters/
+
+James Marsters reveals he was set to return as Spike in Hulu’s canceled 'Buffy' revival, making the loss of New Sunnydale hurt even more.
+---------
+
 # Robert Pattinson & Zendaya's The Drama Ending: What It Means For Charlie & Emma's Marriage Addressed By Director
 
 Movies, The Drama
