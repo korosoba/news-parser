@@ -1,3 +1,14 @@
+# Hades 2’s Xbox Game Pass Debut Has Serious Competition
+
+Gaming, Hades 2, Xbox Game Pass, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors, Triple-A Games, PC
+
+Wed, 08 Apr 2026 08:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-hades-2-april-2026-vampire-crawlers/
+
+April's newcomers to Game Pass include the lauded Hades 2, but another, brand-new roguelike has a good chance of stealing the attention.
+---------
+
 # 'Invincible' Season 4 Episode 6 Recap: Prime Video's Superhero Series Gives Fans a Breather as the War Heats Up
 
 TV Reviews, Invincible, Prime Video, Robert Kirkman, Steven Yeun
