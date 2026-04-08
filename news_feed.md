@@ -1,3 +1,190 @@
+# Is Conquest Really Dead? Invincible Season 4, Episode 6 Final Scene Explained
+
+TV, Invincible
+
+Wed, 08 Apr 2026 22:30:21 GMT
+
+https://screenrant.com/invincible-is-conquest-dead-season-4/
+
+Invincible season 4, episode 6 has a curious post-credits scene, one that toys with the idea of what Conquest's true fate really is.
+---------
+
+# 10 Thrilling New-Gen Anime Arcs That Are Already New Classics
+
+Anime
+
+Wed, 08 Apr 2026 22:30:21 GMT
+
+https://screenrant.com/best-new-gen-anime-arcs-classic/
+
+These modern anime arcs have become just as iconic as their long-standing counterparts.
+---------
+
+# Netflix’s 8-Part Psychological Thriller Is One Of Its Best & A Perfect Weekend Binge
+
+Streaming TV, Netflix, The Stranger
+
+Wed, 08 Apr 2026 22:18:20 GMT
+
+https://screenrant.com/netflix-the-stranger-thriller-series-binge-watch/
+
+Netflix's 8-part psychological thriller series, based on Harlan Coben's novel The Stranger, is one of its best shows and is a perfect weekend binge.
+---------
+
+# Harrison Ford's Future In Shrinking Season 4 Officially Revealed After Exit Rumors
+
+TV, Shrinking, Harrison Ford
+
+Wed, 08 Apr 2026 22:06:31 GMT
+
+https://screenrant.com/shrinking-season-4-harrison-ford-exit-rumor-bill-lawrence/
+
+As Shrinking evolves beyond its original three-season plan and heads into season 4, co-creator Bill Lawrence shares whether Harrison Ford will return.
+---------
+
+# Netflix's 10/10 Crime Thriller Masterpiece Series Is Aging Like Fine Wine
+
+TV, Mindhunter
+
+Wed, 08 Apr 2026 22:04:19 GMT
+
+https://screenrant.com/mindhunter-netflix-crime-thriller-aging-well/
+
+Although a lot of crime thriller shows can feel corny and cliche before long, Netflix's 10/10 psychological thriller masterpiece keeps getting better.
+---------
+
+# Atomfall Sequel Comic Drops April 15. What You Need to Know
+
+Comics, Atomfall
+
+Wed, 08 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/atomfall-sequel-comic-wicked-isle/
+
+A new entry in the Atomfall franchise has been announced for later this month, giving fans a chance to return to Wyndham Village.
+---------
+
+# Cyberpunk 2077 Gamers Losing It Over Surprise April Update
+
+Gaming, Cyberpunk 2077, Triple-A Games
+
+Wed, 08 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-april-2026-update-gamer-reaction/
+
+Although CD Projekt Red said that they were mostly done with Cyberpunk 2077, official updates keep coming like it's still a priority.
+---------
+
+# X-Men Officially Debuts New Team, The Regulators. All Members And Powers Explained
+
+Marvel Comics, X-Men, Marvel
+
+Wed, 08 Apr 2026 21:53:33 GMT
+
+https://screenrant.com/x-men-new-team-regulators-wolverine/
+
+Marvel officially introduces a new X-Men team composed of secret mutant heroes and Wolverine, who joins them long before he meets Charles Xavier.
+---------
+
+# ABC'S 9-1-1 Celebrates Major Streaming Milestone on Hulu
+
+TV, 9-1-1
+
+Wed, 08 Apr 2026 22:30:13 GMT
+
+https://www.cbr.com/9-1-1-procedural-hulu-streaming-milestone-april-2026/
+
+One of the hottest procedurals of an entire generation is celebrating a massive streaming milestone before its latest season comes to a close.
+---------
+
+# 10 Action-Packed Netflix Anime That Get Better With Every Episode
+
+Anime, Netflix
+
+Wed, 08 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/netflix-anime-action-better-every-episode/
+
+With each passing episode, these Netflix anime dial up the action.
+---------
+
+# 1989's The Punisher is a Forgotten 80s Cult Classic Everyone Should See
+
+Movies, The Punisher
+
+Wed, 08 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/the-punisher-1989-forgotten-cult-classic/
+
+Frank Castle is coming back to the MCU with a special feature, but it only makes his 1989 movie even more of a must-watch.
+---------
+
+# The Nathan Fillion Show That Makes Firefly Look Tame Is the Most-Streamed Series in America
+
+TV, The Rookie
+
+Wed, 08 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/nathan-fillion-the-rookie-most-streamed-series-in-america/
+
+Move aside, Firefly, there's a different Nathan Fillion-led series that has taken over the streaming charts in America.
+---------
+
+# Prime Video Officially Has the Fan-Favorite Horror Movie With Dennis Hopper's 10/10 Performance
+
+Horror, Texas Chainsaw Massacre 2, Friday the 13th Part 2, Evil Dead II, A Nightmare on Elm Street 2: Freddy's Revenge
+
+Wed, 08 Apr 2026 22:25:13 GMT
+
+https://collider.com/dennis-hopper-texas-chain-saw-massacre-2-performance/
+
+Dennis Hopper’s intense performance reshapes Texas Chain Saw Massacre 2, turning its chaos into something raw, unsettling, and deeply human.
+---------
+
+# Sean Connery Was a Western James Bond in This Forgotten '60s Action Movie
+
+Movie, Shalako, Sean Connery, James Bond, The Saint
+
+Wed, 08 Apr 2026 22:25:13 GMT
+
+https://collider.com/sean-connery-james-bond-western-shalako/
+
+Sean Connery’s Shalako quietly reshapes his Bond image, revealing a restrained Western role built on caution, survival, and stripped-down authority.
+---------
+
+# 'The Boys' Season 5 Needs To Address These 10 Things (or Else)
+
+TV, The Boys, Prime Video, Superhero, Gen V
+
+Wed, 08 Apr 2026 22:03:12 GMT
+
+https://collider.com/the-boys-season-5-things-to-address/
+
+The Boys is back for its fifth and final season, and there are too many questions that need to be answered in the Prime Video superhero series.
+---------
+
+# 6 Movie Action Stunts That Pushed Human Limits to the Absolute Edge
+
+Movie, Action, Mission: Impossible - Rogue Nation, Jackass Forever, Death Proof
+
+Wed, 08 Apr 2026 21:51:14 GMT
+
+https://collider.com/movie-action-stunts-fearless-dangerous/
+
+From Tom Cruise hanging from a moving plane to a house falling on Buster Keaton, these are the most impressive and courageous stunts in movie history.
+---------
+
+# 'Shrinking's Season 3 Anti-Climactic Finale Sets up the Show's Perfect Ending
+
+Features, Shrinking
+
+Wed, 08 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/shrinking-season-3-anti-climactic-finale-perfect-ending/
+
+While a little lackluster, 'Shrinking's Season 3 finale has made it apparent which direction the last installment of the show will be taking.
+---------
+
 # Scarlett Johansson Makes TV Debut In Prime Video's Just Cause Remake
 
 TV, Just Cause
