@@ -1,3 +1,289 @@
+# Anthony Mackie Unites With Marvel's X-Men Star In New Action Thriller
+
+Movies, Anthony Mackie
+
+Wed, 08 Apr 2026 19:39:23 GMT
+
+https://screenrant.com/barracuda-movie-anthony-mackie-dafne-keen-casting-details/
+
+It's a meeting of Marvel superheroes as Captain America's Anthony Mackie unites with a star of the X-Men movies for a new action thriller.
+---------
+
+# Rick Flag Jr’s DCU Return Potential After Peacemaker Season 2 Addressed By Joel Kinnaman
+
+TV, Peacemaker, Peacemaker - Season 2, DC Universe, Joel Kinnaman
+
+Wed, 08 Apr 2026 19:37:59 GMT
+
+https://screenrant.com/rick-flag-jr-dcu-return-potential-future-joel-kinnaman-response/
+
+EXCLUSIVE: Joel Kinnaman played Rick Flag Jr. in both Suicide Squad films and Peacemaker, and now he’s revealing if he’s returning to the DCU.
+---------
+
+# The Comeback Season 3: Hollywood Satire in the Age of AI
+
+Streaming TV, The Comeback
+
+Wed, 08 Apr 2026 19:30:20 GMT
+
+https://screenrant.com/hbo-the-comeback-season-3-film-tv-industry-parody/
+
+HBO's showbiz satire The Comeback has returned for its long-awaited third season, and it's the ribbing that Hollywood deserves right now.
+---------
+
+# Doctor Responsible For Supplying Matthew Perry With Ketamine Sentenced
+
+TV, Matthew Perry, Friends
+
+Wed, 08 Apr 2026 19:12:10 GMT
+
+https://screenrant.com/matthew-perry-friends-death-doctor-salvador-plasencia-sentenced/
+
+One of the doctors responsible for Matthew Perry's tragic death gets sentenced to prison for the Friends star's fatal overdose.
+---------
+
+# Apple TV's 10/10 Sci-Fi Series Is A Dystopian Masterpiece That Keeps Getting Better
+
+TV, Severance
+
+Wed, 08 Apr 2026 19:05:19 GMT
+
+https://screenrant.com/severance-apple-tv-dystopian-masterpiece-series/
+
+Apple TV's 10/10 sci-fi series has no bad episodes, but the dark show's approach to dystopia is very different from earlier explorations of the genre.
+---------
+
+# GTA 6 Online Gameplay Leak Has Fans More Hyped Than Ever
+
+Gaming, Grand Theft Auto 6, PC
+
+Wed, 08 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/gta-6-online-gameplay-leak-court-documents/
+
+Grand Theft Auto 6 fans are finally getting hyped for the game's November 2026 release, and a new gameplay leak has taken things up a notch.
+---------
+
+# One Piece Has a Darker Reason for Its Villains Not Wanting Their Leader in Elbaph
+
+Anime, One Piece
+
+Wed, 08 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/one-piece-five-elders-imu-secret-elbaph/
+
+Imu's arrival on Elbaph spells catastrophe for more reasons than fans realize, including the Supreme Ruler's deadly desire to maintain their secret.
+---------
+
+# Rebecca Ferguson & Andrew Garfield's New Fantasy Epic Based On Popular 87-Year-Old Classic Series Finally Lands U.S. Release Date
+
+Movies, The Magic Faraway Tree
+
+Wed, 08 Apr 2026 18:55:33 GMT
+
+https://screenrant.com/the-magic-faraway-tree-movie-release-date-united-states-andrew-garfield-rebecca-ferguson/
+
+Andrew Garfield and Rebecca Ferguson's new fantasy film, based on a beloved book series, finally secures a release date in the United States.
+---------
+
+# The Most Demanded Star Wars Movie Is Officially Dead Despite Campaign Attempts To Save The Film
+
+Movies, Star Wars, Steven Soderbergh
+
+Wed, 08 Apr 2026 18:44:47 GMT
+
+https://screenrant.com/star-wars-movie-hunt-for-kylo-ren-dead-steven-soderbergh/
+
+Fan campaigns were put together to try to save a Star Wars movie, but the filmmaker who worked on the project has now put an end to the speculation.
+---------
+
+# Steven Soderbergh Using AI for John Lennon & Yoko Ono Film
+
+Movies, Steven Soderbergh
+
+Wed, 08 Apr 2026 19:36:13 GMT
+
+https://www.cbr.com/steven-soderbergh-ai-john-lennon-yoko-ono-documentary/
+
+Amid the controversial use of AI in Hollywood, Steven Soderbergh explains using the technology for his John Lennon and Yoko Ono documentary.
+---------
+
+# Mark Hamill Supports Dave Filoni's Leadership of Star Wars
+
+Movies, Star Wars, Star Wars: The Last Jedi, Sci-Fi
+
+Wed, 08 Apr 2026 19:23:27 GMT
+
+https://www.cbr.com/star-wars-mark-hamill-reacts-dave-filoni-lucasfilm-president/
+
+Mark Hamill expresses optimism about Dave Filoni's promotion to co-head of Lucasfilm, praising Filoni's knowledge of the Star Wars franchise.
+---------
+
+# Rebecca Ferguson & Andrew Garfield's New Fantasy The Magic Faraway Tree Finally Sets U.S. Release Date
+
+Movies, The Magic Faraway Tree
+
+Wed, 08 Apr 2026 19:22:33 GMT
+
+https://www.cbr.com/rebecca-ferguson-andrew-garfield-the-magic-faraway-tree-vertical-release-date/
+
+The announcement comes after a near-perfect score.
+---------
+
+# 007 First Light Switch 2 Port Officially Delayed to Summer 2026
+
+Games, James Bond, Nintendo Switch
+
+Wed, 08 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/007-first-light-delay-switch-2-summer-2026/
+
+IO Interactive has confirmed that 007 First Light has been delayed on the Nintendo Switch 2, but will hit its May 27 release date on other platforms.
+---------
+
+# Peacock's Sci-Fi Comedy The Miniature Wife Rotten Tomatoes Score Unveiled
+
+TV, The Miniature Wife
+
+Wed, 08 Apr 2026 19:01:55 GMT
+
+https://www.cbr.com/peacock-the-miniature-rotten-tomatoes-score/
+
+The upcoming sci-fi series stars Succession and The Hunger Games stars.
+---------
+
+# Tom Holland Confirms Spider-Man: Brand New Day Is Still Shooting 3 Months Away From Release
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 08 Apr 2026 19:01:44 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-reshoots-new-scenes-tom-holland/
+
+Here's why Marvel fans shouldn't be worried that Spider-Man: Brand New Day is still shooting new scenes.
+---------
+
+# 5 Unlikely Actors With Action Star Careers
+
+Movies, Action
+
+Wed, 08 Apr 2026 19:01:12 GMT
+
+https://www.cbr.com/unlikely-actors-action-star-careers-list/
+
+While there is a stereotype associated with Hollywood action stars, there are a few actors who have become unlikely hits in the genre.
+---------
+
+# HBO's Euphoria Season 3 Sets New Record With Rotten Tomatoes Score
+
+TV, Euphoria, Rotten Tomatoes
+
+Wed, 08 Apr 2026 18:20:17 GMT
+
+https://www.cbr.com/euphoria-season-3-rotten-tomatoes-score/
+
+The debut score for Euphoria's third season on HBO has been revealed.
+---------
+
+# Anne Hathaway's Mother Mary Has a Surprising Taylor Swift Connection
+
+Movies, Mother Mary
+
+Wed, 08 Apr 2026 18:08:22 GMT
+
+https://www.cbr.com/anne-hathaway-mother-mary-taylor-swift-connection/
+
+The upcoming psychological drama found an unexpected inspiration.
+---------
+
+# April 2026 Will Officially Go Down As the Greatest Month in TV History for Pop Culture Fans
+
+TV Features, Star Wars: Maul - Shadow Lord, Invincible, The Boys, Daredevil: Born Again
+
+Wed, 08 Apr 2026 18:58:12 GMT
+
+https://collider.com/april-2026-greatest-month-for-tv-maul-shadow-lord-invincible-the-boys-daredevil-born-again/
+
+This April is full of back-to-back pop culture shows, ranging from established franchises to long-awaited anime adaptations.
+---------
+
+# Katy Perry Regretted Writing This Forgotten 2017 Diss Song
+
+Music Features, Katy Perry, Music, Taylor Swift, Pop, Billboard Hot 100
+
+Wed, 08 Apr 2026 18:38:27 GMT
+
+https://collider.com/katy-perry-regret-writing-swish-swish-2017-diss-song/
+
+Katy Perry’s 2017 pop diss track drew major attention but mixed reactions and the polarizing response led her to later distance herself from the song.
+---------
+
+# Peacock’s 10-Part Sci-Fi Dark Comedy ‘The Miniature Wife’ Makes Its Tiny Twist Hit Harder Than You'd Think
+
+Collider Signature, The Miniature Wife, Elizabeth Banks, Matthew Macfadyen, Peacock
+
+Wed, 08 Apr 2026 18:03:12 GMT
+
+https://collider.com/miniature-wife-peacock-series-sci-fi-set-visit/
+
+Elizabeth Banks and Matthew Macfadyen lead The Miniature Wife — here are 5 things we learned about Peacock’s sci-fi dark comedy on set.
+---------
+
+# 'Hamlet' Star Riz Ahmed: "Shakespeare's Not Dead, He's Been Kidnapped"
+
+Movie News, Hamlet, Riz Ahmed
+
+Wed, 08 Apr 2026 19:29:51 GMT
+
+https://movieweb.com/hamlet-riz-ahmed-interview/
+
+Star of the new adaptation opens up about how he hopes to revive interest in Shakespeare for a new generation.
+---------
+
+# Anthony Mackie & Dafne Keen Cast in New Action Thriller 'Barracuda'
+
+Movie News, MCU, Anthony Mackie, Dafne Keen
+
+Wed, 08 Apr 2026 19:18:23 GMT
+
+https://movieweb.com/anthony-mackie-dafne-keen-barracuda/
+
+MCU stars Anthony Mackie and Dafne Keen will join forces for a new action thriller movie titled 'Barracuda.'
+---------
+
+# Forget 'Reacher' and Watch Amazon's 'Jack Ryan' Franchise
+
+Features, Action
+
+Wed, 08 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/jack-ryan-best-prime-franchise/
+
+'Jack Ryan,' starring John Krasinski, is one of the best action thriller franchises on Amazon Prime Video and perfect for fans of 'Reacher.'
+---------
+
+# 'The Audacity' Season 1 Review: Uneven Yet Entertaining
+
+TV Reviews, Lucy Punch, Billy Magnussen, Zach Galifianakis, The Audacity
+
+Wed, 08 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/the-audacity-review/
+
+The new series attempts to be a blend of 'Silicon Valley' and 'Succession,' but only somewhat succeeds.
+---------
+
+# Chris Hemsworth's 'Extraction 3' Officially Moving Forward
+
+Movie News, Extraction 3, Chris Hemsworth, Netflix, Extraction
+
+Wed, 08 Apr 2026 18:13:24 GMT
+
+https://movieweb.com/chris-hemsworth-extraction-3-production/
+
+'Extraction 3,' starring MCU veteran Chris Hemsworth, will finally begin production later this year ahead of its Netflix debut.
+---------
+
 # Halo: CE Remake Release Date Leak Roasted By Gamers
 
 Gaming, Halo, Halo: Campaign Evolved, PC
