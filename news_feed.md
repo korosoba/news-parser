@@ -1,3 +1,355 @@
+# Halo: CE Remake Release Date Leak Roasted By Gamers
+
+Gaming, Halo, Halo: Campaign Evolved, PC
+
+Wed, 08 Apr 2026 18:01:20 GMT
+
+https://screenrant.com/halo-ce-remake-leak-early-access-fan-reaction/
+
+The Halo: Campaign Evolved remake's release date has apparently leaked online, and fans of the franchise aren't exactly happy about the news.
+---------
+
+# Project Hail Mary's Subtle Mistake Bothers The Entire Science & Research Community
+
+Movies, Project Hail Mary
+
+Wed, 08 Apr 2026 17:58:51 GMT
+
+https://screenrant.com/project-hail-mary-centrifuge-mistake-scientists-researchers-reactions/
+
+Project Hail Mary's subtle mistake bothers the entire science and research community, who are quick to break down the scene's glaring inaccuracy.
+---------
+
+# The Alien Franchise Can Officially Fix Its $100 Million Disaster After New Prequel's Success
+
+TV, Alien: Earth, Alien, Predator, Alien vs. Predator
+
+Wed, 08 Apr 2026 17:54:19 GMT
+
+https://screenrant.com/alien-vs-predator-reboot-tv-show-not-movie/
+
+The success of Alien: Earth has proven that one iconic sci-fi premise can work, meaning a new streaming series could finally fix a costly disaster.
+---------
+
+# Euphoria Season 3 Rotten Tomatoes Score Breaks All-Time Record For HBO Max Series
+
+TV, Euphoria
+
+Wed, 08 Apr 2026 17:46:10 GMT
+
+https://screenrant.com/euphoria-season-3-rotten-tomatoes-score-record/
+
+The Rotten Tomatoes score has arrived for Euphoria season 3, and the HBO's series' final season has just broken the show's record with critics.
+---------
+
+# Why Harry Potter's First Episode Is Taking Over The World (Now Streaming On HBO Max)
+
+Streaming TV, Harry Potter
+
+Wed, 08 Apr 2026 17:30:20 GMT
+
+https://screenrant.com/harry-potter-hbo-special-look-streaming-success-april-2026/
+
+HBO surprised us with an early-look special that dives into the making of its Harry Potter TV show, and it's miraculously taking over HBO Max.
+---------
+
+# Absolute Green Lantern Officially Reboots Shade The Changing Man
+
+DC Comics, Green Lantern
+
+Wed, 08 Apr 2026 17:23:34 GMT
+
+https://screenrant.com/absolute-green-lantern-shade-changing-man-reboot/
+
+DC finally redesigns a classic hero as a terrifying supervillain whose nightmare-inducing powers rivals those of iconic Batman villain Scarecrow.
+---------
+
+# Jujutsu Kaisen Creator Officially Returns With Official New Gojo Art, And It Is Glorious
+
+Anime, Jujutsu Kaisen
+
+Wed, 08 Apr 2026 17:18:38 GMT
+
+https://screenrant.com/jujutsu-kaisen-creator-new-gojo-art/
+
+As the Jujutsu Kaisen anime gears up for Season 4, a new art release from series creator Gege Akutami features Satoru Gojo and other characters.
+---------
+
+# Coffee Chats Episode 10: Joel Kinnaman Talks For All Mankind & Reflects On DCU
+
+Interviews, Coffee Chats, For All Mankind, Jo Nesbø's Detective Hole, Suicide Squad, Peacemaker
+
+Wed, 08 Apr 2026 17:11:54 GMT
+
+https://screenrant.com/for-all-mankind-joel-kinnaman-coffee-chats-episode-10/
+
+Joel Kinnaman sits down with Liam Crowley to reflect on For All Mankind, the DCU, and share stories from his career.
+---------
+
+# Why Homelander Actually Lost The Boys Season 5 Premiere Despite Killing Original Character Explained By Antony Starr
+
+Exclusive, The Boys
+
+Wed, 08 Apr 2026 17:00:21 GMT
+
+https://screenrant.com/the-boys-season-5-a-train-death-homelander-loss-antony-starr/
+
+EXCLUSIVE: The Boys’ Antony Starr, known as Homelander, explains that twist in The Boys season 5 premiere and the fallout expected to come.
+---------
+
+# The True Meaning Behind The Boys Season 5, Episode 1's Big Death
+
+Streaming TV, The Boys
+
+Wed, 08 Apr 2026 17:00:21 GMT
+
+https://screenrant.com/the-boys-a-train-death-meaning-season-5/
+
+The Boys season 5 wasted no time providing its first big death, and the deeper meaning behind this loss is massive for the rest of the season.
+---------
+
+# '90s Sitcom Everybody Loves Raymond Makes a Comeback on Streaming
+
+TV, Everybody Loves Raymond, Friends, Sitcoms
+
+Wed, 08 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/everybody-loves-raymond-sitcom-paramount-success-april-2026/
+
+The '90s sitcom Everybody Loves Raymond is a hit on Paramount+ in the US, proving the show's long-lasting popularity.
+---------
+
+# 22 Years Ago, The Perfect Wolverine Replacement Was Revealed
+
+Comics, Wolverine
+
+Wed, 08 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/x-23-perfect-wolverine-replacement/
+
+The Marvel Universe is full of passing of the torch moments, but this standout character shift has changed the comic book landscape.
+---------
+
+# Dragon Ball Finally Gives Goku the School Life He Never Had
+
+Anime, Dragon Ball, weekly shonen jump
+
+Wed, 08 Apr 2026 17:31:13 GMT
+
+https://www.cbr.com/dragon-ball-goku-school-art-reveal/
+
+Dragon Ball takes readers back to one of the rarest moments in Goku's life.
+---------
+
+# 10 Most Perfect Video Game Endings of All Time
+
+Games, Video Games, Mass Effect, Final Fantasy
+
+Wed, 08 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/most-perfect-video-game-endings-list/
+
+Games like Mass Effect 2 are beloved because they stuck the landing.
+---------
+
+# The Must-Watch Sci-Fi Movies From Every Year of The 2000s
+
+Movies, Sci-Fi, The Matrix, Christopher Nolan
+
+Wed, 08 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/best-sci-fi-movies-every-year-2000s-matrix-avatar-list/
+
+The 2000s were an incredible era for the sci-fi genre, and these ten masterpieces are the best sci-fi movies from every year of the decade.
+---------
+
+# Elder Scrolls 4: Oblivion Remastered Comes to Xbox Game Pass
+
+Games, Xbox Series X (1), The Elder Scrolls
+
+Wed, 08 Apr 2026 17:25:50 GMT
+
+https://www.cbr.com/xbox-game-pass-april-2026-elder-scrolls-oblivion-remastered/
+
+New games coming to Xbox Game Pass for April 2026 have been revealed, including a major RPG.
+---------
+
+# Maul - Shadow Lord Highlights Star Wars' Unfortunate Acolyte Cancellation
+
+TV, Star Wars: Maul - Shadow Lord, The Acolyte, Star Wars
+
+Wed, 08 Apr 2026 17:23:16 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-acolyte-cancellation/
+
+The Acolyte's cancellation in favor of Maul - Shadow Lord highlights a missed opportunity for Star Wars to delve into the Sith's origin.
+---------
+
+# PlayStation Plus Users Can Officially Claim Free Credit Until April 30
+
+Games, PlayStation (Original)
+
+Wed, 08 Apr 2026 17:15:15 GMT
+
+https://www.cbr.com/playstation-plus-free-credit-re-village-april-30/
+
+PlayStation Plus subscribers can claim free credit to use on other software, but they have to experience a scary video game to unlock it first.
+---------
+
+# Pokémon Champions Officially Confirms Full 186 'Mon Pokédex
+
+Games, Pokemon, Nintendo Switch, Nintendo
+
+Wed, 08 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/pokemon-champions-pokedex-controversy-missing-pokemon/
+
+Pokémon Champions is finally available on Nintendo Switch, and the full 186 Pokémon Pokedex has been revealed, including the Mega Evolutions.
+---------
+
+# Paradise Hulu Show Celebrates 100+ Days on Top Streaming Chart
+
+TV, Paradise, Hulu, Sci-Fi
+
+Wed, 08 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/paradise-dystopain-sci-fi-streaming-success-hulu-april-2026/
+
+Paradise, Hulu's dystopian thriller, has been on the streaming charts for over 100 days.
+---------
+
+# Uma Thurman Sets Television Return for Part 2 of Beloved Serial Killer Series
+
+TV News, Dexter: Resurrection, Uma Thurman, Michael C. Hall, Dexter
+
+Wed, 08 Apr 2026 17:47:49 GMT
+
+https://collider.com/dexter-resurrection-season-2-cast-uma-thurman-charley-brown/
+
+Dexter: Resurrection, one of the best crime thriller reboots on television, is officially bringing this action star back for more in Season 2.
+---------
+
+# Netflix's Newest Hit Just Created the Blueprint for Movie Remakes Moving Forward
+
+Movie Features, Anaconda, Jack Black, Paul Rudd, Netflix
+
+Wed, 08 Apr 2026 17:41:13 GMT
+
+https://collider.com/netflix-hit-movie-charts-anaconda-remake-jack-black-paul-rudd/
+
+Jack Black and Paul Rudd combine for one of the funniest reboots in years.
+---------
+
+# ‘Shrinking’ Isn’t Ending With Season 4 — It's Starting Something New [Exclusive]
+
+TV News, Shrinking, Harrison Ford, Bill Lawrence, Apple TV
+
+Wed, 08 Apr 2026 17:40:26 GMT
+
+https://collider.com/shrinking-bill-lawrence-season-4-not-designed-end-apple-tv/
+
+Bill Lawrence shared that Shrinking Season 4 wasn't pitched as a final season for the dramedy, but a flexible beginning for a new story.
+---------
+
+# Prime Video's Cult Classic Fantasy Series Confirms Official Release Date With Stunning New Poster
+
+TV News, Good Omens, David Tennant, Michael Sheen, Prime Video
+
+Wed, 08 Apr 2026 17:32:10 GMT
+
+https://collider.com/prime-video-good-omens-season-3-fantasy-series-first-poster-david-tennant-michael-sheen-release-date-may-13-2026/
+
+It's the end of the world as we know it.
+---------
+
+# Netflix Finally Confirms 'Extraction 3' Is Coming Sooner Than You Think
+
+Movie News, Chris Hemsworth, Extraction 3, Idris Elba, Netflix
+
+Wed, 08 Apr 2026 17:23:54 GMT
+
+https://collider.com/netflix-extraction-3-action-sequel-filming-summer-2026-chris-hemsworth-idris-elba-returning/
+
+Netflix officially begins work on Extraction 3 this Summer, with Chris Hemsworth and Idris Elba returning.
+---------
+
+# 'Daredevil: Born Again' Showrunner Says Episode 5 Will Be One of Season 2's “Shining Moments” After [SPOILER]'s Uncertain Fate
+
+TV, Daredevil: Born Again
+
+Wed, 08 Apr 2026 16:58:34 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-5-matt-murdoch-kingpin-wilson-fisk-dynamic/
+
+Daredevil: Born Again showrunners reveal Daredevil and Kingpin's future after a tipping point
+---------
+
+# 'Escape Plan': Arnold Schwarzenegger and Sylvester Stallone's First Action Movie Together is Streaming for Free on Pluto TV
+
+Movie News, Escape Plan, Pluto TV, Coming/Leaving Streaming, Action
+
+Wed, 08 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/escape-plan-stallone-schwarzenegger-action-streaming-pluto-april-2026/
+
+1980s action icons collide in the underrated action thriller 'Escape Plan,' which is now streaming for free on Pluto TV.
+---------
+
+# 'Man of Tomorrow': James Gunn Denies Ella Purnell, Adria Arjona & Marisa Abela Testing Report
+
+Movie News, Man of Tomorrow, Superman, DCU, James Gunn
+
+Wed, 08 Apr 2026 17:33:37 GMT
+
+https://movieweb.com/james-gunn-man-of-tomorrow-casting-debuked/
+
+Despite reports that stars from 'Fallout,' 'Andor,' and 'Industry' are screentesting for the role of Maxima, James Gunn denies it.
+---------
+
+# 'The Boys' Season 5, Episodes 1 and 2 Review & Recap: Diabolical Deeds
+
+TV Reviews, The Boys
+
+Wed, 08 Apr 2026 17:19:17 GMT
+
+https://movieweb.com/the-boys-season-5-episode-1-2-review-recap/
+
+'The Boys' Season 5 premiere catapults the narrative stakes to dizzying new heights. Read on for our review.
+---------
+
+# Christopher Nolan's Action Epic 'The Odyssey' Described as "Absolute Masterpiece" by Tom Holland
+
+Movie News, Tom Holland, The Odyssey
+
+Wed, 08 Apr 2026 17:06:48 GMT
+
+https://movieweb.com/the-odyssey-reaction-tom-holland/
+
+The highly anticipated action epic  'The Odyssey' has been described as a "masterpiece" well ahead of its release this summer.
+---------
+
+# Saddest Movies on Tubi to Watch Right Now
+
+Movie Lists, Tubi
+
+Wed, 08 Apr 2026 17:00:19 GMT
+
+https://movieweb.com/saddest-movies-on-tubi-to-watch-right-now/
+
+Tubi's massive free streaming catalog has many films that will tug at your heartstrings.
+---------
+
+# 'The Boys' Season 5 Theory Confirms It’s Doing Soldier Boy's Season 3 Arc
+
+Features, The Boys
+
+Wed, 08 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/the-boys-season-5-theory-soldier-boy-arc/
+
+'The Boys' Season 5 premiered on Amazon Prime Video on April 8, 2026, and stars Jensen Ackles, Antony Starr, and Karl Urban.
+---------
+
 # Euphoria Season 3 Review: HBO's Teen Drama Outgrows Itself In New Episodes
 
 TV, Euphoria
