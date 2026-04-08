@@ -1,3 +1,377 @@
+# Euphoria Season 3 Review: HBO's Teen Drama Outgrows Itself In New Episodes
+
+TV, Euphoria
+
+Wed, 08 Apr 2026 16:52:47 GMT
+
+https://screenrant.com/euphoria-season-3-review/
+
+In trying to mature, Euphoria ends up becoming unrecognizable in a third season that feels totally disjointed from its origin as a shock teen drama.
+---------
+
+# 10 Greatest Sc-Fi Movies That Started A Franchise
+
+Classic Movies, Sci-Fi, Ranking
+
+Wed, 08 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/best-sci-fi-movies-started-franchise/
+
+There have been some incredible sci-fi movies released over the years, but the best of the best were good enough to start a new franchise.
+---------
+
+# Prime Video's The Boys Season 5 Sets Best Rotten Tomatoes Score In 6 Years
+
+TV, The Boys
+
+Wed, 08 Apr 2026 16:41:57 GMT
+
+https://screenrant.com/the-boys-season-5-rotten-tomatoes-prime-video-audience-score/
+
+Prime Video's The Boys season 5 is underway, as the final season has officially landed its Rotten Tomatoes score after the first two episodes.
+---------
+
+# Pacific Rim Finally Returns With The Official Sequel Fans Have Waited Years For
+
+Comics, Pacific Rim
+
+Wed, 08 Apr 2026 16:34:42 GMT
+
+https://screenrant.com/pacific-rim-final-breach-sequel-return/
+
+The Pacific Rim franchise is finally getting the official sequel that fans have been begging for, and it looks like it will be worth the wait.
+---------
+
+# Apple TV's 4-Part Masterpiece Crowned A New King Of Sci-Fi Shows
+
+Streaming TV, Foundation
+
+Wed, 08 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/apple-tv-foundation-jared-harris-sci-fi/
+
+Apple TV's Foundation stars Jared Harris as Hari Seldon, and it signals that the acclaimed actor can finally be considered one of the sci-fi greats.
+---------
+
+# Jason Statham Seeks Vengeance At Sea In First Movie Poster For Mutiny
+
+Movies, Mutiny, Jason Statham
+
+Wed, 08 Apr 2026 16:29:50 GMT
+
+https://screenrant.com/jason-statham-mutiny-movie-poster/
+
+Jason Statham has a new movie called Mutiny coming to theaters this summer, and the poster for the action thriller has just been revealed.
+---------
+
+# DC Announces Permanent Superpower Change For Martian Manhunter
+
+DC Comics, Superman, Martian Manhunter
+
+Wed, 08 Apr 2026 16:23:35 GMT
+
+https://screenrant.com/superman-martian-manhunter-powers-changed/
+
+One of DC Comics' most powerful Justice League heroes of all time just revealed that he isn't as strong as Superman despite surpassing his strength.
+---------
+
+# The Super Mario Galaxy Movie Officially Breaks An 11-Year Animation Trend
+
+New Movies, The Super Mario Galaxy Movie
+
+Wed, 08 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-illumination-2d-animation-scene/
+
+The Super Mario Galaxy Movie has shocked audiences by breaking an animation trend for Illumination movies that's lasted for more than a decade.
+---------
+
+# Crunchyroll Officially Resurrects Attack on Titan For One Last Epic Release
+
+Anime, Attack on Titan, Attack on Titan: The Last Attack
+
+Wed, 08 Apr 2026 16:00:47 GMT
+
+https://screenrant.com/attack-titan-last-attack-return-theaters-crunchyroll/
+
+Crunchyroll is officially bringing Attack on Titan back to theaters this Spring for one last epic release that fans don't want to miss.
+---------
+
+# Fear Street 5 Return Chances & Franchise's Biggest Unanswered Question Addressed By OG Netflix Star
+
+Movies, Fear Street, Horror, Netflix, Kiana Madeira
+
+Wed, 08 Apr 2026 16:00:21 GMT
+
+https://screenrant.com/fear-street-5-return-widows-book-mystery-kiana-madeira-response/
+
+Exclusive: Kiana Madeira addresses the chances of returning for Fear Street 5 and shares her thoughts on the franchise's biggest unanswered question.
+---------
+
+# Say Hello to the Next 8 Big Open-World Games
+
+Games, open world
+
+Wed, 08 Apr 2026 16:45:12 GMT
+
+https://www.cbr.com/new-upcoming-next-2026-big-open-world-rpg-games-list/
+
+Games like GTA 6 and The Witcher 4 will dominate in 2026.
+---------
+
+# Amanda Seyfried to Play Disney Princess in Netflix's Steps Animated Film
+
+Movies, Netflix, Steps
+
+Wed, 08 Apr 2026 16:20:23 GMT
+
+https://www.cbr.com/amanda-seyfried-cinderella-netflix-steps/
+
+The new version comes with an unexpected twist on the story.
+---------
+
+# James Gunn Debunks Ella Purnell, Adria Arjona as Superman-Level Villain in Sequel
+
+Movies, Man of Tomorrow, DCU, Superman
+
+Wed, 08 Apr 2026 16:18:30 GMT
+
+https://www.cbr.com/superman-2-cast-maxima-ella-purnell-adria-arjona-marisa-abela/
+
+James Gunn denies reports he's eying three stars to possibly play Maxima in Man of Tomorrow.
+---------
+
+# Daemons of the Shadow Realm & 7 Other Anime With Big Shoes to Fill in 2026
+
+Anime, Daemons of the Shadow Realm
+
+Wed, 08 Apr 2026 16:15:13 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-most-anticipated-anime-2026/
+
+Daemons of the Shadow Realm marks the return of Fullmetal Alchemist: Brotherhood's creator, & it's not the only anime with big shoes to fill this year
+---------
+
+# Bruce Miller Breaks Down The Testaments vs Handmaid’s Tale
+
+TV, The Testaments
+
+Wed, 08 Apr 2026 16:15:13 GMT
+
+https://www.cbr.com/video/bruce-miller-breaks-down-the-testaments-vs-handmaid-s-tale/
+
+The Testaments showrunner reveals Gilead’s biggest flaw from the start.Bruce Miller breaks down how the sequel series builds on The Handmaid’s Tale while carving its own identity.Miller dives into preserving the fear and beauty of Gilead, why shifting perspectives to Lydia, Agnes, and Daisy changes everything, and how the show adapts Margaret Atwood’s novel for TV. He also explains why Gilead ultimately fails the very women it tries to control—and how the cast’s chemistry elevated the story.A must-watch for fans of The Testaments, The Handmaid’s Tale, and Margaret Atwood adaptations.
+---------
+
+# Dexter: Resurrection Season 2 Confirms Uma Thurman Return
+
+TV, Dexter: Resurrection
+
+Wed, 08 Apr 2026 16:10:49 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-uma-thurman/
+
+A major return has officially been announced for the second season of Dexter: Resurrection.
+---------
+
+# Flash Gordon's Return Officially Revealed But With A Twist
+
+Comics, Flash Gordon
+
+Wed, 08 Apr 2026 16:00:10 GMT
+
+https://www.cbr.com/flash-gordon-0-release-date-confirmed/
+
+The next Flash Gordon series is already shaping up to be one of the most exciting yet, and it may even be the last for a new generation of adventurers
+---------
+
+# Owen Wilson's Controversial Movie Behind Enemy Lines is Essential Viewing
+
+Movies, War, Behind Enemy Lines, Owen Wilson
+
+Wed, 08 Apr 2026 16:00:10 GMT
+
+https://www.cbr.com/owen-wilson-controversial-war-movie-behind-enemy-lines/
+
+Recent events of the 2026 Iran War have reminded audiences of Owen Wilson's role in one of the best military survival movies of the 21st century.
+---------
+
+# The Boys' Longest-Running Trend Hits 5x Harder in 2026
+
+TV, The Boys, Sci-Fi, Prime Video
+
+Wed, 08 Apr 2026 16:00:10 GMT
+
+https://www.cbr.com/the-boys-politically-fueled-satire-hits-harder-now/
+
+The Boys has never shied away from stories that fit with a specific personal slant, but in the final Season 5, this is more intense than ever.
+---------
+
+# The Boys Return, And The Voice of Thragg Speaks in The Backstage Pass
+
+CBR Exclusives, CBR's Backstage Pass
+
+Wed, 08 Apr 2026 15:56:29 GMT
+
+https://www.cbr.com/the-boys-return-and-the-voice-of-thragg-speaks-in-the-backstage-pass/
+
+It's a tremendous time to be a fan of superhero content, and The Backstage Pass gives you the finest access.
+---------
+
+# Star Trek Actor Promises ‘Starfleet Academy’ Season 2 Is “Gay AF” After Cancellation and Backlash
+
+TV News, Star Trek, Star Trek: Starfleet Academy, Sci-Fi, Paramount Plus
+
+Wed, 08 Apr 2026 16:40:22 GMT
+
+https://collider.com/star-trek-starfleet-academy-season-2-update-backlash-response-karim-diane/
+
+Starfleet Academy star Karim Diané responds to series backlash after cancellation, promising Season 2 of the Star Trek series is even bigger.
+---------
+
+# The Best Dinosaur Movie Since ‘Jurassic Park’ Is Officially Taking Over in the U.S.
+
+Movie News, Jurassic Park, Apocalypse Now, Jeremy Piven, Sci-Fi
+
+Wed, 08 Apr 2026 16:39:55 GMT
+
+https://collider.com/best-dinosaur-movie-since-jurassic-park-primative-war-hulu-streaming-success-april-2026/
+
+The best dinosaur movie since Jurassic Park, a bonkers sci-fi horror thriller on Hulu, is officially taking over the world.
+---------
+
+# 10 Psychological Thriller Movies That Are Perfectly Written
+
+Movie, Psychological Thriller, Se7en, The Silence of the Lambs, Vertigo
+
+Wed, 08 Apr 2026 16:35:12 GMT
+
+https://collider.com/psychological-thriller-movies-perfectly-written/
+
+Psychological thrillers like Gone Girl and Se7en have flawless screenplays that master tension, obsession, and mind-bending storytelling.
+---------
+
+# Marvel Officially Confirms One of Disney+’s Best-Performing Series Is Also Its Most Divisive
+
+TV News, She-Hulk: Attorney at Law, Disney+, MCU, Superhero
+
+Wed, 08 Apr 2026 16:26:51 GMT
+
+https://collider.com/marvel-she-hulk-attorney-at-law-best-performing-disney-plus-series-brad-winderbaum/
+
+Despite being heavily criticized, She-Hulk: Attorney at Law has become one of the best-performing shows on Disney+, according to Marvel Studios.
+---------
+
+# Netflix Is Officially Reinventing Cinderella With ‘The Housemaid’s Biggest Star
+
+Movie News, Amanda Seyfried, Netflix, Amy Poehler, Ali Wong
+
+Wed, 08 Apr 2026 16:26:36 GMT
+
+https://collider.com/netflix-animated-movie-steps-casts-amanda-seyfried-as-cinderella/
+
+Netflix has announced that Amanda Seyfried, star of The Housemaid, has joined the cast of a surprising new animated Cinderella movie, Steps.
+---------
+
+# James Gunn Denies Fan-Favorite Wonder Woman Casting Is Eyeing DCU Debut in 'Superman' Sequel
+
+Movie News, Man of Tomorrow, Adria Arjona, Ella Purnell, Marisa Abela
+
+Wed, 08 Apr 2026 16:25:32 GMT
+
+https://collider.com/superman-2-man-of-tomorrow-ella-purnell-adria-arjona-marisa-abela-circling-maxima-wonder-woman-role/
+
+Has James Gunn found the perfect Wonder Woman for his new DCU? Fallout and Andor stars circle a key role in his Superman follow-up.
+---------
+
+# Jack Quaid Proves Why He'd Be Perfect for Netflix’s New Steampunk Horror Adaptation [Exclusive]
+
+Movie News, BioShock, Jack Quaid, The Boys, Francis Lawrence
+
+Wed, 08 Apr 2026 16:20:12 GMT
+
+https://collider.com/bioshock-film-adaptation-jack-quaid-dream-role-atlas-netflix/
+
+The Boys star emphatically reaffirmed his desire to star in an adaptation of BioShock, regardless of role or installment in the game franchise.
+---------
+
+# Jack Quaid Confirms Part 3 of His Smash Hit Superhero Series Is Still Coming [Exclusive]
+
+Exclusives, My Adventures With Superman, Jack Quaid, James Gunn, Animation
+
+Wed, 08 Apr 2026 16:10:15 GMT
+
+https://collider.com/my-adventures-with-superman-season-3-update-release-window-jack-quaid/
+
+Jack Quaid confirms My Adventures with Superman Season 3 is still coming this year, and says it may be the funniest season yet.
+---------
+
+# ‘The Boys’ Is Ending Next Month, but Jack Quaid Is Ready for What’s Next
+
+Collider Signature, profile, Jack Quaid, The Boys, Prime Video
+
+Wed, 08 Apr 2026 16:00:11 GMT
+
+https://collider.com/jack-quaid-the-boys-season-5-interview/
+
+The Boys Season 5 star Jack Quaid talks the final season, Hughie’s journey, his breakout year, and the future of the Prime Video series.
+---------
+
+# 'The Boys' Season 5 Premiere Recap: Prime Video's Superhero Satire Says Goodbye to a Major Character
+
+TV Reviews, The Boys, Prime Video, Eric Kripke, Karl Urban
+
+Wed, 08 Apr 2026 16:00:11 GMT
+
+https://collider.com/the-boys-season-5-premiere-recap/
+
+The first two episodes of The Boys Season 5 effectively set the stage for a grim and unpredictable final chapter. Read our recap.
+---------
+
+# 'Euphoria' Creator Confirms If Season 4 Is Being Planned
+
+TV News, Euphoria, Sam Levinson, HBO Max
+
+Wed, 08 Apr 2026 16:36:42 GMT
+
+https://movieweb.com/euphoria-creator-is-season-4-planned/
+
+It sounds like this may well be the end.
+---------
+
+# 'Michael' Trailer Offers Final Look at Jaafar Jackson in Michael Jackson Biopic
+
+Movie News, Michael, michael jackson
+
+Wed, 08 Apr 2026 16:00:21 GMT
+
+https://movieweb.com/michael-jackson-biopic-final-trailer/
+
+Lionsgate has released a final trailer for Antoine Fuqua's Michael Jackson biopic 'Michael,' further teasing Jaafar Jackson's stunning transformation.
+---------
+
+# Henry Cavill's $200M Action Movie Box Office Bomb 'Argylle' Is a Streaming Hit
+
+Movie News, Henry Cavill, Action
+
+Wed, 08 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/henry-cavill-argylle-stream-april-2026/
+
+Despite flopping financially and being mauled by critics, the spy action outing is a hit with audiences at home.
+---------
+
+# The Downfall of Richard Dreyfuss, Explained
+
+Features, Richard Dreyfuss
+
+Wed, 08 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/richard-dreyfuss-cancelation/
+
+Discover the timelines of events that led to Richard Dreyfuss' public fall from grace.
+---------
+
 # Nick Offerman’s Sonic 4 Role Can Finally Bring A Beloved Game Character To The Big Screen
 
 Movies, Sonic the Hedgehog 4, Sonic the Hedgehog, Nick Offerman
