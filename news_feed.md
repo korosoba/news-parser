@@ -1,3 +1,146 @@
+# HBO's 18-Part Fantasy Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+TV, HBO Max, House of the Dragon, Game of Thrones
+
+Thu, 09 Apr 2026 21:30:37 GMT
+
+https://screenrant.com/hbo-house-of-the-dragon-fantasy-series-best/
+
+One of HBO's best shows is this 18-episode fantasy series that features complex characters, high stakes, plenty of intrigue, and gruesome deaths.
+---------
+
+# Netflix's 4-Part Dystopian Sci-Fi Series Goes Darker Than Black Mirror
+
+Streaming TV, Love, Death & Robots
+
+Thu, 09 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/love-death-and-robots-dystopian-sci-fi-darker-than-black-mirror/
+
+Charlie Brooker's dystopian Black Mirror is one of the darkest shows on TV, but Netflix's animated cyberpunk Love, Death & Robots is even darker.
+---------
+
+# Cyberpunk 2077 Officially Adds 3 Brand-New Modes
+
+Gaming, Cyberpunk 2077, Triple-A Games
+
+Thu, 09 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-3-new-modes-free-download/
+
+Fans have been anticipating this major update for months, and now that it's finally here, they can try out three brand-new modes.
+---------
+
+# You, Me & Tuscany Has A Credits Surprise That Bridgerton Fans Won’t Want To Miss
+
+Movies, You, Me & Tuscany, Bridgerton
+
+Thu, 09 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/you-me-and-tuscany-movie-post-credits-scene/
+
+Season 1 Bridgerton star Regé-Jean Page stars in a brand-new romcom, You, Me & Tuscany, and the movie's credits had plenty to say about his past role.
+---------
+
+# Jason Bateman's Action-Comedy Game Night Is a Hit On HBO 8 Years Later
+
+Movies, Game Night, Comedy, HBO Max
+
+Thu, 09 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/jason-bateman-game-night-action-comedy-hbo-success-april-2026/
+
+Jason Bateman and Rachel McAdams' action-comedy Game Night becomes a streaming hit on HBO Max in the US 8 years after its release.
+---------
+
+# Steven Spielberg's Creepy 13-Part Sci-Fi Series Is the Last Cult Classic of Its Kind
+
+TV, The Whispers, steven spielberg, Sci-Fi
+
+Thu, 09 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/steven-spielberg-the-whispers-last-cult-classic-of-its-kind/
+
+Steven Spielberg's The Whispers feels like a lost era of sci-fi, when networks took risks on original ideas before streaming officially took over.
+---------
+
+# Game of Thrones Actor Michael Patrick Passes Away at 35 Due to MND
+
+TV, Game Of Thrones
+
+Thu, 09 Apr 2026 21:17:18 GMT
+
+https://www.cbr.com/michael-patrick-dead-35-game-of-thrones/
+
+Irish actor Michael Patrick, known for his role in Game of Thrones Season 6, has died at 35 from motor neuron disease.
+---------
+
+# Ana de Armas' John Wick Replacement Is Dominating the Streaming Charts
+
+Movies, From the World of John Wick: Ballerina, John Wick, Action
+
+Thu, 09 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/ana-de-armas-ballerina-john-wick-replacement-streaming-success-april-2026/
+
+Ana de Armas' underrated action movie is soaring on streaming despite a disappointing box office run. What does this mean for a potential sequel?
+---------
+
+# Aliens Dream Theory Explains Why the Sequels Felt Like Nightmares
+
+Movies, Alien, aliens
+
+Thu, 09 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/alien-sequels-ripley-dream-theory-explained/
+
+This shocking Alien franchise theory will forever change how you watch every Alien movie since James Cameron's 1986 sequel.
+---------
+
+# 10 Batman '90s Crossovers That Changed Comics Forever
+
+Comics, Batman, DC Comics, Judge Dredd
+
+Thu, 09 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/batman-crossovers-that-defined-90s-comics/
+
+The 1990s were something of a golden age of Batman crossovers, and some stand out as decade-defining chapters in The Dark Knight's epic history.
+---------
+
+# ‘Young Sheldon’ Star Returns to CBS in 1 Week With a Big Surprise [Exclusive]
+
+Exclusives, Young Sheldon, Ghosts, CBS, Sitcom
+
+Thu, 09 Apr 2026 21:30:12 GMT
+
+https://collider.com/young-sheldon-ghosts-episode-iain-armitage-what-to-expect-cbs/
+
+Young Sheldon star Iain Armitage discusses his guest appearance on Ghosts, revealing what fans can expect from the CBS series' April 16th episode!
+---------
+
+# 10 Near-Perfect Adventure Movies That Nobody Remembers Today
+
+Movie, Adventure, The Rescuers, The Adventures of Tintin, The Man Who Would Be King
+
+Thu, 09 Apr 2026 20:57:13 GMT
+
+https://collider.com/near-perfect-adventure-movies-nobody-remembers/
+
+Sadly, adventure movies like The Rescuers and The Man Who Would Be King have been forgotten despite being near-perfect examples of the esteemed genre.
+---------
+
+# Steven Spielberg's Sci-Fi Action Masterpiece - Funniest Quote of All Time
+
+Features, Steven Spielberg, Sci-Fi, Jurassic Park, Great Line
+
+Thu, 09 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/steven-spielberg-jurassic-park-funniest-quote/
+
+Steven Spielberg's 'Jurassic Park' thrives on action, but also cuts the tension with great humor and memorable quotes.
+---------
+
 # Daredevil's New MCU Suit Marks The Start Of An Era
 
 Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
