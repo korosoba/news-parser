@@ -1,3 +1,179 @@
+# The Elder Scrolls 6 Official Trailer Roasted By GTA 6 Fans
+
+Gaming, The Elder Scrolls 6
+
+Thu, 09 Apr 2026 11:30:47 GMT
+
+https://screenrant.com/elder-scrolls-6-official-trailer-gamer-reactions/
+
+GTA 6 fans find solace in the long wait for The Elder Scrolls 6, as Bethesda's reluctance to discuss the game highlights their own situation.
+---------
+
+# GTA 6 Gameplay Leak Confirms We'll Be Playing This Game For Years
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Thu, 09 Apr 2026 11:30:17 GMT
+
+https://screenrant.com/gta-6-gameplay-leak-april-2026-length/
+
+GTA VI is set to become a breeding ground for user-generated content, potentially securing the game's future for years to come.
+---------
+
+# PlayStation Officially Unveils Stunning New Hardware
+
+Gaming, PlayStation (Original)
+
+Thu, 09 Apr 2026 11:15:43 GMT
+
+https://screenrant.com/playstation-new-hardware-confirmed-april-2026/
+
+PlayStation has announced a limited-edition 007 First Light DualSense Wireless Controller.
+---------
+
+# Zelda Fans In Love With Unexpected Sequel To Classic Game
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Majora's Mask
+
+Thu, 09 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-majoras-mask-unofficial-sequel/
+
+A new Zelda ROM hack picks up after the events of Majora's Mask, and it's safe to say that franchise fans are loving it.
+---------
+
+# Star Trek Fans Have Gotten Sci-Fi's Most Important Canon Timeline Wrong for 60 Years
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: Strange New Worlds
+
+Thu, 09 Apr 2026 11:30:11 GMT
+
+https://www.cbr.com/star-trek-timeline-release-order-time-travel-continuity/
+
+Every single canon quibble or continuity inconsistency in Star Trek goes away if they see the true timeline as release order not years or centuries.
+---------
+
+# Invincible Universe: Battle Beast Is Required Reading For Invincible Fans
+
+Comics, Invincible, image comics
+
+Thu, 09 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/battle-beast-new-comic-required-reading-for-invincible-fans/
+
+The latest comic series from Invincible's creators is just as good as the legendary superhero series, and it's a must-read for Invincible fans.
+---------
+
+# Even 20 Years Later, This Nickelodeon Superhero Series Is Perfect From Start to Finish
+
+TV Features, Danny Phantom, Nickelodeon, Cartoons, Animation
+
+Thu, 09 Apr 2026 11:47:12 GMT
+
+https://collider.com/danny-phantom-nickelodeon-superhero-series-perfection/
+
+Danny Phantom remains one of the best superhero cartoons ever made 22 years after its Nickelodeon debut.
+---------
+
+# Only 3 Trilogies Are Better Than The Godfather
+
+Movie, The Godfather, Before Sunset, The Lord of the Rings: The Fellowship of the Ring, Three Colors: Blue
+
+Thu, 09 Apr 2026 11:43:12 GMT
+
+https://collider.com/trilogies-better-than-the-godfather/
+
+The Godfather might be considered the gold standard of cinematic trilogies, but others like The Lord of the Rings are arguably superior in every way.
+---------
+
+# Disney's Highest-Rated Star Wars Project of All Time Is Taking Over the World
+
+TV News, Star Wars: Maul - Shadow Lord, Star Wars, Disney+, Dave Filoni
+
+Thu, 09 Apr 2026 11:31:12 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-sci-fi-series-streaming-success-disney-plus-april-2026/
+
+Disney's new critically adored Star Wars series is a #1 streaming hit following positive word of mouth. Read on for more details.
+---------
+
+# Only 3 Movies Are Better Than 'The Godfather'
+
+Movie, The Godfather, Vertigo, Citizen Kane, Casablanca
+
+Thu, 09 Apr 2026 11:22:12 GMT
+
+https://collider.com/movies-better-than-the-godfather/
+
+Francis Ford Coppola's The Godfather is generally considered an untouchable masterpiece, but classics like Vertigo and Citizen Kane are even better.
+---------
+
+# 10 Amazing Movie Trilogies That Are the Perfect Weekend Binge
+
+Movie, The Lord of the Rings, Back to the Future, Star Wars, Harold and Kumar Go to White Castle
+
+Thu, 09 Apr 2026 11:04:12 GMT
+
+https://collider.com/amazing-movie-trilogies-perfect-weekend-binges/
+
+The Dollars Trilogy and the original Star Wars trilogy are just some of the greatest movie trifectas that make for perfect binges over the weekend.
+---------
+
+# Henry Cavill’s Co-Star Breaks His Silence on Their Upcoming Epic Fantasy Remake [Exclusive]
+
+Exclusives, Djimon Hounsou, Chad Stahelski, Highlander Reboot, Fantasy
+
+Thu, 09 Apr 2026 11:00:12 GMT
+
+https://collider.com/highlander-reboot-action-fantasy-movie-henry-cavill-djimon-hounsou-chad-stahelski/
+
+Highlander reboot star Djimon Hounsou has broken his silence on what to expect from Chad Stahelski's epic fantasy remake.
+---------
+
+# 8 Netflix Miniseries That Are Perfect From Start To Finish
+
+TV, Netflix, TV Miniseries, Adolescence, The Fall of the House of Usher
+
+Thu, 09 Apr 2026 10:53:13 GMT
+
+https://collider.com/netflix-miniseries-perfect-start-to-finish/
+
+The Fall of the House of Usher, Adolescence, Cunk on Earth, Bodies, Ripley, and more make up our list of perfect Netflix miniseries.
+---------
+
+# 10 Most Perfect Opening Action Scenes of All Time, Ranked
+
+Movie, The Matrix, Raiders of the Lost Ark, The Dark Knight, Action
+
+Thu, 09 Apr 2026 10:42:12 GMT
+
+https://collider.com/most-perfect-action-movie-opening-scenes-ranked/
+
+Action movies like Raiders of the Lost Ark, GoldenEye, and The Matrix have some of the best, most perfect opening scenes in the genre's history.
+---------
+
+# Ian McKellen Praises 'Ebenezer: A Christmas Carol' Costar Johnny Depp
+
+Movie News, Ebenezer: A Christmas Carol, Johnny Depp, Ian McKellen
+
+Thu, 09 Apr 2026 11:25:43 GMT
+
+https://movieweb.com/ebenezer-a-christmas-carol-johnny-depp-praise/
+
+Ian McKellen has praised his 'Ebenezer: A Christmas Carol' costar Johnny Depp, saying he is back on "spankingly good form" after his Hollywood hiatus.
+---------
+
+# 'Euphoria' on HBO Has One of the Greatest TV Casts Ever Assembled
+
+Features, Euphoria
+
+Thu, 09 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/euphoria-hbo-great-tv-cast/
+
+'Euphoria' Season 3 premieres on HBO on Sunday, April 12, 2026, and stars Zendaya, Sydney Sweeney, Jacob Elordi,
+---------
+
 # Zelda: Ocarina Of Time 4K Is An "Entirely New Game", Fans Enthuse
 
 Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
