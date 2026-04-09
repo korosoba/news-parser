@@ -1,3 +1,91 @@
+# Supergirl and Blade Crossover Announced by Marvel and DC
+
+Marvel Comics
+
+Thu, 09 Apr 2026 22:30:21 GMT
+
+https://screenrant.com/blade-supergirl-marvel-dc-crossover/
+
+In an unexpected twist, Blade is set to team up with none other than Supergirl in a new comic appearance.
+---------
+
+# Marvel's Next Street-Level Show Subtly Confirms The Death Of A 9-Year MCU Character
+
+Streaming TV, The Punisher: One Last Kill, The Punisher, Marvel
+
+Thu, 09 Apr 2026 22:01:20 GMT
+
+https://screenrant.com/punisher-one-last-kill-curtis-hoyle-dead-hint/
+
+The Punisher: One Last Kill teaser hints at the death of a long-time MCU character, Curtis Hoyle, more than nine years after his first appearance in The Punisher season 1.
+---------
+
+# GTA 6 Devs' Next Game Isn't What We Expected
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Thu, 09 Apr 2026 22:01:20 GMT
+
+https://screenrant.com/gta-6-rockstar-next-game-red-dead-3-rumours/
+
+All of the attention is going to be on GTA VI for a while now, but Rockstar's next project could be a whole new IP.
+---------
+
+# Crunchyroll Just Dropped Its Official Top 10 Shojo Anime to Watch
+
+Anime, Crunchyroll
+
+Thu, 09 Apr 2026 22:01:20 GMT
+
+https://screenrant.com/crunchyroll-official-best-shojo-anime/
+
+Dive into the world of shojo anime with Crunchyroll's curated list of must-watch titles, featuring both timeless classics and modern standouts.
+---------
+
+# Idris Elba's Beast Gets Second Life on Netflix 4 Years Later
+
+Movies, Beast, Netflix
+
+Thu, 09 Apr 2026 22:00:13 GMT
+
+https://www.cbr.com/beast-netflix-april-2026/
+
+Idris Elba's underrated horror movie gets a new life on Netflix after it was overlooked in theaters.
+---------
+
+# As a Scream Fan, Here's How I'd Rank All 7 Movies
+
+Movie, Scream, Wes Craven, Kevin Williamson, Neve Campbell
+
+Thu, 09 Apr 2026 22:09:12 GMT
+
+https://collider.com/as-a-scream-fan-heres-how-id-rank-all-7-movies/
+
+From the classic 1996 original to the disappointing Scream 7, this is a lifelong Scream fan's ranking of the entire historic horror franchise.
+---------
+
+# Only 3 Movie Trilogies Are More Entertaining Than The Lord of the Rings
+
+Movie, The Lord of the Rings, The Evil Dead, Star Wars, Shaun of the Dead
+
+Thu, 09 Apr 2026 21:45:13 GMT
+
+https://collider.com/movie-trilogies-more-entertaining-than-the-lord-of-the-rings/
+
+Movie trilogies more entertaining than The Lord of the Rings include the first three Star Wars movies, the Cornetto trilogy, and Evil Dead 1 to 3.
+---------
+
+# 'Maul – Shadow Lord's Janix Explained: Is It a New 'Star Wars' Planet?
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Thu, 09 Apr 2026 22:00:19 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-janix-explained/
+
+'Shadow Lord' is set on a planet called Janix, a world unfamiliar to the 'Star Wars' fandom. Read on for more.
+---------
+
 # HBO's 18-Part Fantasy Series With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
 
 TV, HBO Max, House of the Dragon, Game of Thrones
