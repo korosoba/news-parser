@@ -1,3 +1,201 @@
+# Forget Rogue One's Darth Vader, Maul Is Getting The Most Insane Star Wars Hallway Scenes
+
+Star Wars, Anakin Skywalker/Darth Vader, Rogue One: A Star Wars Story, Darth Maul, Star Wars: Maul - Shadow Lord
+
+Thu, 09 Apr 2026 23:31:19 GMT
+
+https://screenrant.com/rogue-one-darth-vader-maul-shadow-lord-new-star-wars-hallway-scenes/
+
+As amazing as Darth Vader's Rogue One hallway scene was, Star Wars is ready to up the ante 10 years later with Shadow Lord and Darth Maul.
+---------
+
+# Dragon Ball's Most Underrated Villain Returns In Badass New Official Artwork
+
+Anime, Dragon Ball
+
+Thu, 09 Apr 2026 23:31:19 GMT
+
+https://screenrant.com/dragon-ball-gero-return-new-artwork-toyotaro/
+
+Dragon Ball artist Toyotaro unveils a menacing new illustration of Dr. Gero, the wicked scientist and most underrated villain in the series.
+---------
+
+# One Of Netflix’s Best Shows To Binge Is A 6-Part Crime Thriller Based On A Bestselling Novel
+
+Streaming TV, Masked Recs
+
+Thu, 09 Apr 2026 23:21:19 GMT
+
+https://screenrant.com/netflix-the-woods-thriller-series-watch/
+
+Discover Netflix's hidden gem, 'The Woods,' a 6-part crime thriller based on Harlan Coben's bestselling novel. Perfect for a quick weekend binge.
+---------
+
+# Kayce Protects Rainwater in Marshals Season 1 Finale Amid Assassination Attempt
+
+Network TV, Marshals, Yellowstone
+
+Thu, 09 Apr 2026 23:12:11 GMT
+
+https://screenrant.com/marshals-season-1-finale-plot-details-confirm-1-yellowstone-character-is-in-danger/
+
+In the Marshals season 1 finale, Kayce Dutton races to uncover who's targeting Broken Rock chairman Thomas Rainwater after an assassination attempt.
+---------
+
+# Apple TV's Shrinking Gives Harrison Ford One Of The Most Beautiful Moments Of His Career
+
+Streaming TV, Shrinking
+
+Thu, 09 Apr 2026 23:00:42 GMT
+
+https://screenrant.com/shrinking-season-3-harrison-ford-beautiful-performance/
+
+Harrison Ford has been on our screens for six decades, but his recent performance in Apple TV's hit dark comedy series brings something unique.
+---------
+
+# Pokémon TCG's Pikachu Getting Dethroned As Most-Graded Character By Another Kanto 'Mon
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Thu, 09 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/pokemon-tcg-most-graded-kanto-pokemon-card/
+
+A new report says that Pikachu cards may be dethroned as the most-graded character in the Pokémon Trading Card Game by another Kanto favorite.
+---------
+
+# After 48 Years, DC Just Pulled Off Its Best Hero Relaunch of All Time
+
+DC Comics, Justice League
+
+Thu, 09 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/fury-firestorm-1-review-best-comic-2026/
+
+After 48 years since one iconic hero’s debut, fans may have just witnessed the greatest relaunch of all time in DC Comics history.
+---------
+
+# Bryan Cranston's Hulu Revival Of Hit 7-Season Comedy Returns With Solid Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Thu, 09 Apr 2026 22:49:40 GMT
+
+https://screenrant.com/malcolm-in-the-middle-lifes-still-unfair-rotten-tomatoes-score-bryan-cranston/
+
+Bryan Cranston's new Hulu revival of a hit seven-season comedy series returns with a solid score on Rotten Tomatoes ahead of its release.
+---------
+
+# Netflix’s 8-Part Crime Thriller Is One Of Its Best Shows With A Perfect Rotten Tomatoes Score
+
+Streaming TV, Masked Recs
+
+Thu, 09 Apr 2026 22:34:21 GMT
+
+https://screenrant.com/netflix-the-innocent-thriller-series-watch/
+
+Netflix's 8-part crime thriller series 'The Innocent' remains one of its best shows to binge, boasting a perfect 100% Rotten Tomatoes score.
+---------
+
+# The 10 Most Evil Anime Protagonists of All Time
+
+Anime, Death Note, School Days, Attack on Titan, Saga of Tanya the Evil, Elfen Lied, Hellsing Ultimate, FLCL, Future Diary, Code Geass: Lelouch of the Rebellion, Overlord
+
+Thu, 09 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/most-evil-anime-protagonists-eren-yeager-aot/
+
+Some anime anti-heroes were born bad, others had badness thrust upon them.
+---------
+
+# Bandai Reveals Gundam's First Transforming RE/100 Gunpla Model Kit
+
+Anime, Mobile Suit Gundam, merchandise, Mobile Suit Gundam Unicorn, toys, bandai
+
+Thu, 09 Apr 2026 23:01:14 GMT
+
+https://www.cbr.com/bandai-gundam-transforming-re100-bawoo-gunpla-model-kit/
+
+One of the mecha from the Mobile Suit Gundam Unicorn anime transforms and flies high into the RE/100 series with an upcoming Bandai model kit.
+---------
+
+# 10 Hard Sci-Fi Books That Are As Good As Project Hail Mary
+
+Movies, Science Fiction, Project Hail Mary
+
+Thu, 09 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/hard-sci-fi-books-good-as-project-hail-mary/
+
+If you loved the acclaimed adaptation of Andy Weir's Project Hail Mary, reading these hard science fiction books will fill the black hole in your life
+---------
+
+# 44 Years Later, Ridley Scott’s Landmark Sci-Fi Classic Is Unstoppable on Streaming
+
+Movie News, Ridley Scott, Blade Runner, Sci-Fi, Harrison Ford
+
+Thu, 09 Apr 2026 23:30:17 GMT
+
+https://collider.com/harrison-ford-blade-runner-ridley-scott-sci-fi-classic-streaming-success-itunes-april-2026/
+
+Ridley Scott's landmark sci-fi gem Blade Runner is proving why it's an all-time classic, 44 years after its divisive theatrical run.
+---------
+
+# 8 Most Important Action Movies That Define the Genre
+
+Movie, Action, Die Hard, The Matrix, John Wick
+
+Thu, 09 Apr 2026 23:21:14 GMT
+
+https://collider.com/most-important-action-movies-define-genre/
+
+From the iconic Akira Kurosawa film Seven Samurai to the modern-day classic The Matrix, these action movies are among the most important of the genre.
+---------
+
+# 20 Longest Film Series of All Time, Ranked
+
+Movie, Godzilla, MCU, Star Wars, Top 10
+
+Thu, 09 Apr 2026 23:12:12 GMT
+
+https://collider.com/longest-movie-series-of-all-time/
+
+Movies are usually pretty short but franchises like the MCU, James Bond, and Godzilla are officially full-out epics.
+---------
+
+# Netflix’s Divisive 2-Part Steamy Drama Becomes a 163M-Hour Sleeper Hit in 1 Month
+
+TV Features, Netflix, Tyler Perry’s Beauty in Black, Tyler Perry, Drama
+
+Thu, 09 Apr 2026 23:04:13 GMT
+
+https://collider.com/netflix-drama-beauty-in-black-163-million-hours-first-month/
+
+Tyler Perry’s first show for Netflix, the steamy drama Beauty in Black, earned over 163 million hours viewed since the Season 2 Part 2 premiere.
+---------
+
+# HBO’s Polarizing 3-Part Crime Thriller Is Already Proving Why It Should End
+
+TV News, Euphoria, Zendaya, Sydney Sweeney, HBO Max
+
+Thu, 09 Apr 2026 23:00:14 GMT
+
+https://collider.com/hbo-crime-thriller-euphoria-season-3-rotten-tomatoes-score-is-it-good/
+
+HBO's polarizing three-part thriller series, Euphoria, is already proving why it should end with a disastrous debut on Rotten Tomatoes.
+---------
+
+# 10 Comedy Movies You Absolutely Should Not Watch With Your Kids
+
+Movie, Sausage Party, Ted, Zack and Miri Make a Porno, Orgazmo
+
+Thu, 09 Apr 2026 22:55:13 GMT
+
+https://collider.com/comedy-movies-not-for-kids/
+
+Comedy movies like Sausage Party, Superbad, and American Pie are hilarious and great, but you definitely shouldn't show them to your kids.
+---------
+
 # Supergirl and Blade Crossover Announced by Marvel and DC
 
 Marvel Comics
