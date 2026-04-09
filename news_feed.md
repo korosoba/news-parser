@@ -1,3 +1,355 @@
+# Netflix Has Officially Found Its Next Stranger Things, And It's Their Best Original TV Series In Years
+
+Anime, One Piece, Stranger Things
+
+Thu, 09 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/one-piece-next-stranger-things-netflix/
+
+In the wake of Stranger Things' finale, Netflix has officially crowned One Piece as the next big thing. Here's the story on how.
+---------
+
+# Xbox Finally Adds Fan-Requested Feature "After 20 Years"
+
+Gaming, Xbox Series X/S, Triple-A Games
+
+Thu, 09 Apr 2026 14:51:50 GMT
+
+https://screenrant.com/xbox-update-achievements-insiders-program/
+
+After two decades, fans are hyped for the addition of a new feature for the Xbox platform, and they're loving where this could be going.
+---------
+
+# Breaking Bad’s Most-Hated Character Gets Candid Defense From Bryan Cranston 13 Years Later
+
+TV, Breaking Bad, Bryan Cranston
+
+Thu, 09 Apr 2026 14:50:43 GMT
+
+https://screenrant.com/breaking-bad-skyler-hated-bryan-cranston-defense-candid/
+
+In a surprising twist, Bryan Cranston defends a Breaking Bad character that many viewers despised, including Malcolm in the Middle's Frankie Muniz.
+---------
+
+# 4 Years Later, Star Wars Fans Are Still Missing Out On Some Of Obi-Wan Kenobi's Best Scenes
+
+Star Wars, Obi-Wan Kenobi
+
+Thu, 09 Apr 2026 14:45:19 GMT
+
+https://screenrant.com/star-wars-obi-wan-kenobi-show-best-scenes/
+
+The Obi-Wan Kenobi series isn’t held in the best of lights by a lot of fans, but it still has some of the very best scenes in all of Star Wars.
+---------
+
+# Prime Video's Upcoming Detective Show Will Break All The Rules Of The Genre
+
+Streaming TV, Spider-Noir, Prime Video
+
+Thu, 09 Apr 2026 14:43:20 GMT
+
+https://screenrant.com/spider-noir-prime-video-detective-show-break-rules-genre/
+
+A new Prime Original series is gaining interest thanks to its A-lister lead and unique premise, but its impact on the industry could last years.
+---------
+
+# Wednesday Season 3 Adds 3 New Cast Members, Including GOT & Ted Lasso Vets
+
+TV, Wednesday, Addams Family, Netflix
+
+Thu, 09 Apr 2026 14:42:23 GMT
+
+https://screenrant.com/wednesday-season-3-cast-lena-headey-andrew-mccarthy-james-lance/
+
+Wednesday season 3 is expanding its cast as the Netflix series adds three new stars, including beloved Game of Thrones and Ted Lasso veterans.
+---------
+
+# Dungeons & Dragons Star’s New Romantic Comedy Debuts To Solid Rotten Tomatoes Score
+
+Movies, Regé-Jean Page, You, Me & Tuscany
+
+Thu, 09 Apr 2026 14:38:25 GMT
+
+https://screenrant.com/rege-jean-page-you-me-tuscany-rotten-tomatoes-debut/
+
+The new romantic comedy movie starring an alum from Dungeons & Dragons: Honor Among Thieves debuts on Rotten Tomatoes with a strongly positive score.
+---------
+
+# The Umbrella Academy Almost Made Time Travel Shows Look Easy
+
+Classic TV, The Umbrella Academy
+
+Thu, 09 Apr 2026 14:31:19 GMT
+
+https://screenrant.com/the-umbrella-academy-netflix-time-travel-easy/
+
+One of Netflix's most popular fantasy TV shows made time travel easy to follow and made it look easy, even if its final season had some flaws.
+---------
+
+# Taylor Sheridan's Crime Masterpiece Is Saying Goodbye To Streaming This April
+
+Movies, Masked Recs
+
+Thu, 09 Apr 2026 14:22:28 GMT
+
+https://screenrant.com/taylor-sheridan-sicario-movie-leaving-netflix-april-2026/
+
+Taylor Sheridan's acclaimed Academy Award-nominated crime thriller will depart Netflix this April, but could end up on another streaming platform.
+---------
+
+# Final Fantasy 7 Officially Returns In New DLC
+
+Gaming, Final Fantasy 7, Final Fantasy
+
+Thu, 09 Apr 2026 14:11:23 GMT
+
+https://screenrant.com/final-fantasy-7-dlc-ff-14-event/
+
+Final Fantasy 7 fans can pick up a handful of brand-new cosmetics, including Cloud’s motorcycle, in a newly released DLC that’s on sale now.
+---------
+
+# Ridley Scott's The Duellists is the Most Underrated Historical Drama of All Time
+
+Movies, The Duellists
+
+Thu, 09 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/ridley-scott-the-duellists-underrated-historical-drama/
+
+Ridley Scott is best known for movies like The Martian and Alien, but his first feature film, The Duellists, still has much to offer fans.
+---------
+
+# Forget Ocarina of Time — This N64 Game Needs a Remake First
+
+Games, The Legend of Zelda: Ocarina of Time, Nintendo, The Legend of Zelda
+
+Thu, 09 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/ocarina-of-time-remake-n64-goldeneye/
+
+There are rumors circulating about a remake of The Legend of Zelda: Ocarina of Time for Nintendo Switch 2, but another N64 title needs one first.
+---------
+
+# 5 Hulu Crime Shows That Give HBO a Run for Its Money
+
+TV, Under the Bridge, Only Murders in the Building, Crime, Hulu
+
+Thu, 09 Apr 2026 14:31:12 GMT
+
+https://www.cbr.com/best-hulu-crime-shows-list/
+
+While HBO boasts grittier crime shows, it isn't the only streaming service to do so. Hulu has plenty of lawbreakers that are waiting to be caught.
+---------
+
+# Robert Pattinson Sparks New Batman vs Superman Debate With Divisive Claim
+
+Movies, DCU, DC Comics, Batman, The Batman, The Batman Part II, Superman, Supergirl
+
+Thu, 09 Apr 2026 14:28:19 GMT
+
+https://www.cbr.com/the-batman-robert-pattinson-batman-superman-relevant/
+
+Robert Pattinson just created a firestorm with his recent Batman vs. Superman comment.
+---------
+
+# Netflix's Jurassic World: Camp Cretaceous Still Outshines the Movies
+
+TV, Jurassic World: Camp Cretaceous, Jurassic Park, Netflix, Animation
+
+Thu, 09 Apr 2026 14:17:32 GMT
+
+https://www.cbr.com/jurassic-world-camp-cretaceous-better-than-the-movies/
+
+Netflix's animated series Jurassic World: Camp Cretaceous surpasses the films in numerous ways, making it a must-watch for dinosaur fans.
+---------
+
+# One Piece's Lead Voice Actress Insists That Luffy Is Anime's Most Interesting Protagonist
+
+CBR Exclusives, One Piece
+
+Thu, 09 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/colleen-clinkenbeard-luffy-most-interesting-anime-protagonist/
+
+There's one piece of Luffy's character that allows him to outshine other shonen heroes.
+---------
+
+# New Elden Ring Release Coming in 2026 (But There's a Catch)
+
+Games, Elden Ring
+
+Thu, 09 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/new-elden-ring-release-2026-price-controversy/
+
+Pre-orders have opened for a new Elden Ring release coming in 2026, but there's a major catch for those looking to purchase it ahead of time.
+---------
+
+# 10 Best Gohan Quotes in DBZ, Ranked
+
+Anime, Dragon Ball Z, Dragon Ball, gohan
+
+Thu, 09 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-z-best-gohan-quotes-ranked/
+
+Gohan stands out as one of Dragon Ball's strongest fighters, but he's also responsible for equally powerful words that echo the anime's themes!
+---------
+
+# 'Elsbeth' Enters the High Class World of a 'Crazy Rich Asians' Star in New First Look [Exclusive]
+
+Exclusives, Elsbeth, Constance Wu, Crazy Rich Asians, Carrie Preston
+
+Thu, 09 Apr 2026 15:00:12 GMT
+
+https://collider.com/elsbeth-season-3-episdoe-17-first-images-constance-wu/
+
+New images from Elsbeth Season 3, Episode 17, put Carrie Preston into the orbit of a wealth therapist played by Crazy Rich Asians star Constance Wu.
+---------
+
+# The Biggest Sci-Fi Hit of the Century Is Officially Getting a Spin-Off — But There's a Catch
+
+Movie News, Project Hail Mary, Ryan Gosling, Amazon, Sci-Fi
+
+Thu, 09 Apr 2026 14:55:14 GMT
+
+https://collider.com/project-hail-mary-ar-vr-game-journey-among-the-stars-andy-weir-sci-fi/
+
+The biggest sci-fi movie of 2026 is about to get a major expansion as Andy Weir and Maze Theory announce a new Project Hail Mary release.
+---------
+
+# New Historical Epic Already Hailed as a "Masterpiece" 3 Months Before Release
+
+Movie News, Christopher Nolan, The Odyssey, Tom Holland, Matt Damon
+
+Thu, 09 Apr 2026 14:54:21 GMT
+
+https://collider.com/christopher-nolan-historical-epic-the-odyssey-tom-holland-reaction/
+
+Christopher Nolan’s new historical epic, The Odyssey, is already being hailed as an “absolute masterpiece,” 3 months before it arrives in theaters.
+---------
+
+# HBO Max’s Biggest Sleeper Hit in Years Lands a Perfect Final Score from Critics
+
+TV News, Hacks, HBO Max, Comedy, Rotten Tomatoes
+
+Thu, 09 Apr 2026 14:53:30 GMT
+
+https://collider.com/hacks-season-5-rotten-tomatoes-score-perfect-100-percent/
+
+HBO Max’s best sleeper hit awards darling is officially going out on a high note as Rotten Tomatoes score arrives hours before the Season 5 premiere.
+---------
+
+# 8 Years Later, One of the Greatest Animated Movie Directors of All-Time Is Back
+
+Movie News, Brad Bird, Sam Rockwell, Scarlett Johansson, Animation
+
+Thu, 09 Apr 2026 14:00:12 GMT
+
+https://collider.com/netflix-new-sci-fi-noir-animated-movie-ray-gunn-first-images-brad-bird/
+
+After decades in development, Brad Bird's unrealized science fiction noir 'Ray Gunn' is finally coming to Netflix. Get a first look at the movie now.
+---------
+
+# 'Star Wars: Maul - Shadow Lord' Producer Reveals Inspirations For Wagner Moura's Character
+
+TV News, Star Wars: Maul - Shadow Lord
+
+Thu, 09 Apr 2026 15:01:18 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-wagner-moura/
+
+The executive producer behind the new 'Star Wars' show spoke about how 'The Secret Agent' and 'Narcos' actor was the perfect choice for the role.
+---------
+
+# Netflix's 'Legends' Thriller Series Gets Trailer & Release Date
+
+TV News, Netflix, Steve Coogan
+
+Thu, 09 Apr 2026 14:58:34 GMT
+
+https://movieweb.com/netflix-legends-trailer-release-date/
+
+Netflix has unveiled the first trailer for 'Legends,' a new British crime thriller series based on a true story from the 1990s.
+---------
+
+# Avatar 4’ Will Need to Be “Cheaper and Shorter,” New Report Reveals
+
+Movie News, Avatar
+
+Thu, 09 Apr 2026 14:35:07 GMT
+
+https://movieweb.com/avatar-4-doubt-cheaper-shorter/
+
+A new report indicated that Disney may find it necessary to cut down on runtime and cost for James Cameron's fourth 'Avatar' movie.
+---------
+
+# Brendan Fraser Rides 'Revenge of the Mummy' Ahead of New Sequel
+
+Movie News, The Mummy 4, The Mummy, Brendan Fraser
+
+Thu, 09 Apr 2026 14:28:50 GMT
+
+https://movieweb.com/the-mummy-4-brendan-fraser-universal-ride-prep/
+
+Brendan Fraser was photographed on 'Revenge of the Mummy: The Ride' at Universal Studios Hollywood in preparation for 'The Mummy 4' return.
+---------
+
+# Scarlett Johansson Hypes New Netflix Action Sci-Fi Movie 'Ray Gunn' as "Uniquely Special"
+
+Movie News, Netflix, Scarlett Johansson, Action, Sci-Fi
+
+Thu, 09 Apr 2026 14:05:18 GMT
+
+https://movieweb.com/netflix-ray-gunn-sam-rockwell-scarlett-johansson/
+
+'Incredibles' Brad Bird will direct a new animated Netflix movie titled 'Ray Gunn,' featuring Sam Rockwell and Scarlett Johansson.
+---------
+
+# Netflix Announces Sci-Fi Action Movie 'Ray Gunn' Movie From 'The Incredibles' Director
+
+Movie News, Netflix, Brad Bird, Action, Sci-Fi
+
+Thu, 09 Apr 2026 14:01:18 GMT
+
+https://movieweb.com/netflix-ray-gunn-first-look/
+
+Netflix confirms development for a new movie titled 'Ray Gunn,' which will be directed by Brad Bird.
+---------
+
+# Netflix's 'Thrash' Is a Must-Watch This Weekend Starring Phoebe Dynevor
+
+Features, Thrash, Netflix
+
+Thu, 09 Apr 2026 14:01:18 GMT
+
+https://movieweb.com/thrash-netflix-thriller-phoebe-dynevor/
+
+'Thrash' is a thriller movie premiering on Netflix on April 10, 2026 starring 'Bridgerton' actor Phoebe Dynevor as Lisa.
+---------
+
+# Martin Scorsese's Masterpiece Crime Thriller 'Goodfellas' Is Streaming for Free on Tubi
+
+Movie News, Goodfellas, Tubi, Hot on Streaming
+
+Thu, 09 Apr 2026 14:01:18 GMT
+
+https://movieweb.com/goodfellas-streaming-success-tubi-april-2026/
+
+Rivaling 'The Godfather,' Martin Scorsese's best gangster movie, 'Goodfellas,' is a free streaming success on Tubi.
+---------
+
+# Cameron Diaz Working on Sequel to '80s Cult Classic Comedy 'Troop Beverly Hills'
+
+Movie News, Cameron Diaz, Troop Beverly Hills
+
+Thu, 09 Apr 2026 13:59:16 GMT
+
+https://movieweb.com/80s-comedy-sequel-cameron-diaz/
+
+The box office flop turned cult classic comedy is finally getting a follow-up.
+---------
+
 # The Housemaid Author Frieda McFadden Reveals True Identity & Day Job As Brain Doctor
 
 Movies, The Housemaid
