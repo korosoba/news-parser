@@ -1,3 +1,344 @@
+# Taylor Sheridan's Hit 5-Part Crime Series Gets Exciting New Villain Update As Production On Final Episodes Ramps Up
+
+TV, Mayor of Kingstown
+
+Thu, 09 Apr 2026 17:41:28 GMT
+
+https://screenrant.com/mayor-of-kingstown-season-5-nestor-carbonell-casting/
+
+The upcoming final season of a hit crime series from Yellowstone and Landman creator Taylor Sheridan casts a key new villain character.
+---------
+
+# Steve Carell’s 10-Part HBO Series Officially Returning For More Episodes After Becoming Streaming Success
+
+TV, Rooster, Steve Carell
+
+Thu, 09 Apr 2026 17:38:09 GMT
+
+https://screenrant.com/steve-carell-hbo-rooster-season-2-renewed-details/
+
+Over a decade after leaving the hit series The Office, Steve Carell is back on TV with a new comedy that has just been renewed for a second season.
+---------
+
+# Half-Life Just Made Its Unexpected Return With A New Game
+
+Gaming, Half-Life, Triple-A Games
+
+Thu, 09 Apr 2026 17:36:54 GMT
+
+https://screenrant.com/half-life-new-game-april-2026-fan-made/
+
+Fans are still waiting for concrete news on Half-Life 3, but until that day comes, there's something new to play that's available now.
+---------
+
+# Xbox Makes Addictive RPG Free To Keep, No Game Pass Needed
+
+Gaming, Xbox Series X/S, Indie Games, PC
+
+Thu, 09 Apr 2026 17:33:28 GMT
+
+https://screenrant.com/xbox-free-game-graveyard-keeper/
+
+Xbox free games usually have certain restrictions, but as long as you redeem the latest offer soon, this one comes with no strings attached.
+---------
+
+# Netflix's 7-Part Western Miniseries Is The Anti-Yellowstone Everyone Should Watch
+
+Classic TV, Godless
+
+Thu, 09 Apr 2026 17:31:18 GMT
+
+https://screenrant.com/netflix-godless-western-anti-yellowstone/
+
+Yellowstone arguably kick-started the current Western TV boom we're currently in but it's shows like Netflix's Godless that have explored the genre.
+---------
+
+# The One MCU Movie That Can Show You Every Version Of The Hulk At Once Is Almost Here
+
+Movies, Marvel Cinematic Universe, Hulk, Avengers: Secret Wars
+
+Thu, 09 Apr 2026 17:20:19 GMT
+
+https://screenrant.com/mcu-hulk-every-version-movie-avengers-secret-wars/
+
+The MCU has barely scratched the surface with Hulk, so what is Avengers: Secret Wars give us a Hulk Corps rather than the Thor Corps?
+---------
+
+# New Borderlands Game Surprise Releases For Free
+
+Gaming, Borderlands, mobile gaming
+
+Thu, 09 Apr 2026 17:14:27 GMT
+
+https://screenrant.com/borderlands-mobile-free-download-surprise-release/
+
+With absolutely no fanfare, a new Borderlands game has just become available, and it is entirely free-to-play – if you have the right platform.
+---------
+
+# Dragon Ball's Newest Release Is Officially A Major Hit, And It Needs To Come To America ASAP
+
+Anime, Dragon Ball
+
+Thu, 09 Apr 2026 17:04:21 GMT
+
+https://screenrant.com/dragon-ball-complete-series-hit-america/
+
+Dragon Ball's 40th anniversary manga box set sold over 800,000 copies in its first week, despite no official word regarding an English release.
+---------
+
+# Chris Hemsworth's New Goodfellas-Like Crime Thriller Gets Major Casting Boost & Production Timeline Update
+
+Movies, Chris Hemsworth
+
+Thu, 09 Apr 2026 17:03:44 GMT
+
+https://screenrant.com/chris-hemsworth-kockroach-filming-start-casting-update/
+
+Chris Hemsworth's new Goodfellas-like crime thriller gets a major casting boost and production update after it was first announced in August 2025.
+---------
+
+# Prime Video Lassos New Taylor Sheridan Western Replacement Series With Glen Powell's Texas-Set Crime Thriller
+
+TV, Glen Powell
+
+Thu, 09 Apr 2026 17:01:18 GMT
+
+https://screenrant.com/calamities-show-prime-video-western-series-glen-powell-taylor-sheridan-replacement/
+
+Prime Video is lassoing a new Western series with Glen Powell, with character and plot details revealed for the upcoming high-profile project.
+---------
+
+# Hulu’s Southern Bastards Casts Kevin Bacon in Key Role
+
+TV, southern bastards, Kevin Bacon
+
+Thu, 09 Apr 2026 17:51:59 GMT
+
+https://www.cbr.com/hulu-southern-bastards-kevin-bacon/
+
+Kevin Bacon's next major TV role has just been revealed.
+---------
+
+# Netflix's The Eternaut Is Now the Sci-Fi TV Event of the Decade
+
+TV, The Eternaut, Netflix, Sci-Fi
+
+Thu, 09 Apr 2026 17:40:40 GMT
+
+https://www.cbr.com/netflix-the-eternaut-sci-fi-event/
+
+The acclaimed Netflix series is shaping up to be a very dominant force in modern sci-fi television.
+---------
+
+# Mortal Kombat II Trailer Released: Tickets Now Available for Upcoming Movie
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Thu, 09 Apr 2026 17:33:52 GMT
+
+https://www.cbr.com/mortal-kombat-2-gets-final-trailer-as-tickets-go-on-sale-ahead-of-next-months-release/
+
+The final trailer for Mortal Kombat II has been released, and tickets are now on sale ahead of the film's May 8th release date.
+---------
+
+# Ridley Scott's Exodus: Gods and Kings Is Finding an Audience in 2026
+
+Movies, Exodus: Gods and Kings, Action
+
+Thu, 09 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/ridley-scott-exodus-gods-and-kings-finding-audience-tubi-april-2026/
+
+Ridley Scott is a legendary filmmaker, but one of his biggest flops may finally be getting the chance it deserved.
+---------
+
+# Netflix's XO, Kitty Season 3 Is the Perfect Romcom Weekend Binge
+
+TV, XO, Kitty, Romance, Netflix
+
+Thu, 09 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/xo-kitty-season-3-perfect-weekend-binge/
+
+This Netflix romcom spinoff just released its third season, and binge-watching it is the perfect way to pass an afternoon.
+---------
+
+# 10 Perfect Open-World Games Nobody Remembers
+
+Games, open world
+
+Thu, 09 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/almost-perfect-open-world-games-no-one-remembers/
+
+Open-world games have defined the modern era and yet there are plenty that have been completely forgotten despite their appeal.
+---------
+
+# 'Ozark' Creator Officially Returns to Crime Thrillers on May 1
+
+TV News, Ozark, M.I.A., Peacock, Crime
+
+Thu, 09 Apr 2026 17:29:19 GMT
+
+https://collider.com/ozark-creator-crime-thriller-mia-trailer-release-date-may-1-2026/
+
+Discover the gripping new crime thriller M.I.A. from Ozark co-creator Bill Dubuque, following a deadly revenge mission in Miami's underworld.
+---------
+
+# The Final Season of Taylor Sheridan's Grittiest Crime Series Adds Its First Major New Cast Member
+
+TV News, Mayor of Kingstown, Taylor Sheridan, Jeremy Renner, Nestor Carbonell
+
+Thu, 09 Apr 2026 17:25:09 GMT
+
+https://collider.com/mayor-of-kingstown-final-season-5-taylor-sheridan-crime-thriller-cast-nestor-carbonell/
+
+The final season of Taylor Sheridan's Mayor of Kingstown has added a Lost and Shōgun star to the cast.
+---------
+
+# Netflix Officially Confirms the Return of Philomena Cunk in Hilarious New Series
+
+TV News, Cunk on Life, Netflix, BBC, Cunk on Earth
+
+Thu, 09 Apr 2026 17:21:07 GMT
+
+https://collider.com/netflix-cunk-on-cinema-series-philomena-cunk-return-charlie-booker/
+
+Charlie Booker's Philomena Cunk will officially return with a hysterical new Netflix series skewering your favorite movies.
+---------
+
+# 8 Single-Season Mystery TV Masterpieces
+
+TV, Mystery, The Undoing, The Outsider, The Residence
+
+Thu, 09 Apr 2026 17:19:13 GMT
+
+https://collider.com/best-mystery-tv-shows-one-season-list/
+
+The Innocent, The Night Of, The Outsider, Bodies, Inside Man, and more make up our list of single-season mystery TV masterpieces.
+---------
+
+# Prime Video Officially Orders New Must-Watch Crime Series From Glen Powell
+
+TV News, Glen Powell, Prime Video, Sicario, Task
+
+Thu, 09 Apr 2026 17:00:16 GMT
+
+https://collider.com/glen-powell-new-prime-video-series-calamities-details/
+
+Glen Powell is set to produce a new series, Calamities, which has been given a straight-to-streaming order at Prime Video.
+---------
+
+# CBS' Perfect Crime Thriller for ‘Blue Bloods’ Fans Gets Official Sneak Peek [Exclusive]
+
+TV News, Boston Blue, Donnie Wahlberg, Blue Bloods, CBS
+
+Thu, 09 Apr 2026 17:00:16 GMT
+
+https://collider.com/blue-bloods-spin-off-boston-blue-episode-14-sneak-peek-donnie-wahlberg/
+
+CBS has released a new sneak peek of a Marvel star's return in the next episode of Boston Blue, the Blue Bloods spin-off starring Donnie Wahlberg.
+---------
+
+# Award Winning Broadway Show Officially Drops First Trailer Ahead of Streaming Release [Exclusive]
+
+Movie News, Movie Trailers, The Secret, Broadway, Tamron Hall
+
+Thu, 09 Apr 2026 17:00:16 GMT
+
+https://collider.com/when-my-soul-speaks-lisa-nichols-live-on-broadway-trailer-release-date/
+
+Experience Lisa Nichols' powerful one-woman show When My Soul Speaks on Amazon Prime and AppleTV, as she shares her inspiring journey from poverty.
+---------
+
+# Apple TV's Hit 2-Part Thriller Teases a Brutal Endgame in Finale Sneak Peek [Exclusive]
+
+Exclusives, The Last Thing He Told Me, Jennifer Garner, AppleTV+, Judy Greer
+
+Thu, 09 Apr 2026 17:00:16 GMT
+
+https://collider.com/the-last-thing-he-told-me-season-2-episode-8-sneak-peek-judy-greer-jennifer-garner/
+
+A new sneak peek from the Season 2 finale of The Last Thing He Told Me sees Jennifer Garner's plans crumbling and her family's fate in the balance.
+---------
+
+# 'Mortal Kombat II' Trailer Released as Tickets Go on Sale
+
+Movie News, Mortal Kombat II
+
+Thu, 09 Apr 2026 17:39:52 GMT
+
+https://movieweb.com/mortal-komba-ii-new-trailer-tickets/
+
+Warner Bros. and New Line Cinema have released the final trailer for 'Mortal Kombat II, and tickets are now on sale.
+---------
+
+# Michael J. Fox Criticizes CNN Over 'Remembering Life' Video: "Wtf?"
+
+Movie News, Michael J. Fox
+
+Thu, 09 Apr 2026 17:08:47 GMT
+
+https://movieweb.com/michael-j-fox-cnn-video/
+
+Michael J. Fox called out the network over an inappropriate video about his "remembering" his life.
+---------
+
+# 'The Housemaid' Author Freida McFadden Reveals True Identity
+
+Movie News, The Housemaid, The Housemaid's Secret
+
+Thu, 09 Apr 2026 17:01:03 GMT
+
+https://movieweb.com/the-housemaid-author-freida-mcfadden-true-identity/
+
+'The Housemaid' author Frieda McFadden has revealed her true identity following the recent box office success of the Sydney Sweeney film adaptation.
+---------
+
+# That Jamiroquai-Inspired 'Scrubs' Fantasy Sequence Breaks One of the Revival's Biggest Rules
+
+Features, Scrubs
+
+Thu, 09 Apr 2026 17:00:22 GMT
+
+https://movieweb.com/scrubs-revival-fantasy-rule-broken/
+
+Zach Braff has spoken about how the 'Scrubs' revival has approached its fantasy sequence, and Episode 8 goes against that plan.
+---------
+
+# 'The Silence of the Lambs': Most Disturbing Moments, Ranked
+
+Movie Lists, Silence of the Lambs
+
+Thu, 09 Apr 2026 17:00:22 GMT
+
+https://movieweb.com/silence-of-the-lambs-most-disturbing-moments-ranked/
+
+Decades after its release, 'The Silence of the Lambs' still shocks audiences, thanks to these disturbing scenes.
+---------
+
+# 'The Pitt' Star Noah Wyle Teases Season 3 Time Jump & Winter Setting
+
+TV News, The Pitt
+
+Thu, 09 Apr 2026 16:51:53 GMT
+
+https://movieweb.com/the-pitt-season-3-time-jump/
+
+'The Pitt' is going to get a lot colder next season, according to star and producer Noah Wyle.
+---------
+
+# First ‘The Punisher: One Last Kill’ Reveals MCU Special Presentation
+
+TV News, The Punisher: One Last Kill, MCU
+
+Thu, 09 Apr 2026 16:49:22 GMT
+
+https://movieweb.com/punisher-one-last-kill-trailer/
+
+Jon Bernthal's Punisher Marvel Special Presentation gets a first full trailer ahead of its May 12, 2026 release date.
+---------
+
 # The Boys' Latest Episode Just Saved The Prime Video Series' Final Season
 
 TV, The Boys, Quiz CV
