@@ -1,3 +1,212 @@
+# Daredevil's New MCU Suit Marks The Start Of An Era
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Thu, 09 Apr 2026 20:45:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-new-suit-mcu-era/
+
+In Daredevil: Born Again season 2, Charlie Cox's Marvel hero gets a new suit, and the show's new episode reveals how it marks the start of a new era.
+---------
+
+# Why Just Beyond Was Removed From Disney+ & Where To Watch
+
+Streaming TV, Just Beyond
+
+Thu, 09 Apr 2026 20:31:21 GMT
+
+https://screenrant.com/just-beyond-where-to-watch-why-disney-plus-removed-explained/
+
+The answer to where fans can watch Just Beyond is a complicated one, as the show has seemingly disappeared from Disney+.
+---------
+
+# Super Mario Galaxy Leads Family Films' Box Office Success In 2026
+
+Movies, The Super Mario Galaxy Movie
+
+Thu, 09 Apr 2026 20:31:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-box-office-hit-family-films-2026/
+
+The Super Mario Galaxy Movie had a stellar opening weekend at the worldwide box office, and it continues a strong start for one genre in 2026.
+---------
+
+# The Super Mario Movies Have Barely Touched This 3-Part Series: Why It May Be Next
+
+Movies, The Super Mario Galaxy Movie
+
+Thu, 09 Apr 2026 20:31:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-land-series-next-story/
+
+A three-part Super Mario series has been largely avoided by the Mario movies, but could become the focus of the next big-screen story.
+---------
+
+# Why Shudder's New Faces Of Death Isn't A Straightforward Remake Explained By Director & Writer
+
+Movies, Faces of Death, Horror, Shudder
+
+Thu, 09 Apr 2026 20:25:45 GMT
+
+https://screenrant.com/faces-of-death-2026-not-remake-explained-director-writer/
+
+Exclusive: Director Daniel Goldhaber and writer Isa Mazzei explain why Shudder's new Faces of Death movie isn't a straightforward remake.
+---------
+
+# Michael J. Fox Is Alive After CNN Incorrectly Reported His Death On TV: "I Thought The World Was Ending"
+
+Movies, Michael J. Fox
+
+Thu, 09 Apr 2026 20:19:59 GMT
+
+https://screenrant.com/michael-j-fox-cnn-death-report-response/
+
+CNN has falsely reported that the beloved actor, Michael J. Fox had passed away, thankfully the actor confirmed to his fans that he is still alive.
+---------
+
+# Apple TV's New Adaptation Of Bestseller Assembles Game Of Thrones, Marvel, & DC Stars In Star-Studded Cast
+
+TV, Apple TV, Game of Thrones, Marvel Cinematic Universe, DC Universe
+
+Thu, 09 Apr 2026 20:18:30 GMT
+
+https://screenrant.com/apple-tv-the-husbands-cast-joel-kinnaman-daniel-ings-kingsley-ben-adir/
+
+The worlds of Game of Thrones, Marvel and DC are colliding as several franchise cast members are teaming up for a new series on Apple TV.
+---------
+
+# Reacher Got Brutally Mocked By Another Prime Video Series
+
+Streaming TV, The Boys, Reacher
+
+Thu, 09 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/reacher-gets-brutally-mocked-by-another-hit-prime-video-series/
+
+Reacher, one of Prime Video’s most popular series, has just been mocked by a different, equally important show from the same streaming service.
+---------
+
+# 10 Nintendo Switch 2 Sequels We Need ASAP
+
+Gaming, Nintendo Switch 2
+
+Thu, 09 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/nintendo-switch-2-games-sequels-needed/
+
+Nintendo's Switch 2 is a powerhouse, but some of its best IPs are stuck in limbo that need a sequel ASAP.
+---------
+
+# Bryan Cranston Defends Breaking Bad's Most-Hated Character
+
+TV, Breaking Bad
+
+Thu, 09 Apr 2026 20:49:50 GMT
+
+https://www.cbr.com/bryan-cranston-defends-breaking-bad-skyler-white/
+
+Bryan Cranston comes to the defense of the often-criticized Breaking Bad character.
+---------
+
+# Dragon Ball Brings Back Super Saiyan 4 Goku With a New DAIMA Design
+
+Anime, Dragon Ball, Dragon Ball DAIMA, merchandise
+
+Thu, 09 Apr 2026 20:35:13 GMT
+
+https://www.cbr.com/dragon-ball-daima-goku-ssj4-figure-international-release/
+
+Goku’s Super Saiyan 4 transformation has been brought to life in Dragon Ball’s latest international release.
+---------
+
+# The Rookie Fumbled 1 of Its Best Characters (& the Show Is Still Suffering Because of It)
+
+TV, The Rookie
+
+Thu, 09 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/the-rookie-ruined-wesley-evers-advocate-to-prosecutor/
+
+When The Rookie introduced defense attorney Wesley Evers he was an advocate for the accused and becoming a prosecutor hurt the show and the character.
+---------
+
+# Disney+ Buddy Cop Movies like Zootopia
+
+Movies, Zootopia, Zootopia 2
+
+Thu, 09 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/buddy-cop-movies-like-zootopia-nick-and-judy/
+
+The Zootopia movies are, technically, not the only classic buddy cop flicks on Disney+.
+---------
+
+# Kiowa Gordon Teases Dark Winds Season 5 After One Major Death
+
+TV, Dark Winds, AMC, Western
+
+Thu, 09 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/dark-winds-kiowa-gordon-interview-gordo-sena-death/
+
+Will Dark Winds ever be the same?
+---------
+
+# 10 Beloved Anime That No One Wants to End
+
+Anime, JoJo's Bizarre Adventure, Demon Slayer: Kimetsu no Yaiba
+
+Thu, 09 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/best-anime-no-one-wants-to-end-list/
+
+From JJK and other new-gen anime hits to One Piece's legendary long-running series, nobody wants to see their favorite anime finally come to an end.
+---------
+
+# The Handmaid's Tale Sequel, The Testaments, Is a Streaming Hit on Hulu
+
+TV, The Handmaid's Tale, The Testaments, Hulu
+
+Thu, 09 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/the-handmaids-tale-the-testaments-dystopian-drama-hulu-success-april-2026/
+
+The Handmaid's Tale's sequel, The Testaments, is Hulu's No. 5 most-watched show in the US and topped charts internationally on Disney+ after 1 day.
+---------
+
+# Wes Craven's The Hills Have Eyes is the Greatest Secret Western
+
+Movies, The Hills Have Eyes
+
+Thu, 09 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/wes-craven-the-hills-have-eyes-greatest-secret-western/
+
+One of Wes Craven's earliest films is a cult classic, and most fans haven't realized it's actually a Western.
+---------
+
+# Major Fantasy Franchise Officially Gets Theatrical Release Date
+
+Movie News, Children of Blood and Bone, Idris Elba, Chiwetel Ejiofor, Fantasy
+
+Thu, 09 Apr 2026 20:45:20 GMT
+
+https://collider.com/children-of-blood-and-bone-fantasy-movie-adaptation-release-date-2027/
+
+A major fantasy franchise has officially set a theatrical release date for 2027 as the first book in the best-selling trilogy comes to life.
+---------
+
+# 15 Years Later, Pedro Pascal’s "Very, Very Risky" Reboot Series Still Feels Too Big for TV
+
+TV Features, Wonder Woman (DCU), Pedro Pascal, NBC, Series
+
+Thu, 09 Apr 2026 20:08:13 GMT
+
+https://collider.com/pedro-pascal-unaired-wonder-woman-pilot-nbc-2011/
+
+Why the 2011 Wonder Woman pilot failed — and why Pedro Pascal still calls it a bold, risky take ahead of its time.
+---------
+
 # 8 Relationship Movies to Watch After The Drama
 
 Movies, The Drama
