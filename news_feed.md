@@ -1,3 +1,201 @@
+# The Testaments Officially Confirms June's Fate After The Handmaid's Tale's Ending
+
+TV, The Testaments, The Handmaid's Tale
+
+Thu, 09 Apr 2026 18:31:19 GMT
+
+https://screenrant.com/the-testaments-june-return-fate-after-handmaids-tale-ending/
+
+The Testaments officially confirms June's fate following the end of The Handmaid's Tale, revealing what happened after the end of her story.
+---------
+
+# Wednesday Season 3's Addams "Family Reunion" Teased By Gomez Actor
+
+TV, Wednesday, Addams Family
+
+Thu, 09 Apr 2026 18:26:25 GMT
+
+https://screenrant.com/wednesday-season-3-addams-family-reunion-tease-luis-guzman/
+
+EXCLUSIVE: Gomez Addams actor Luis Guzmán teases the "family reunion" for the Addamses to come in Wednesday season 3's story as production continues.
+---------
+
+# Crunchyroll Taps The Weeknd For Anime's Biggest Night
+
+Anime, Crunchyroll
+
+Thu, 09 Apr 2026 18:10:10 GMT
+
+https://screenrant.com/crunchyroll-anime-awards-2026-the-weeknd/
+
+The leading dedicated anime streaming service has big plans for its momentous 10th Anime Awards.
+---------
+
+# Netflix's 2-Part Masterpiece Series Has One Of Its Best Casts
+
+TV, Beef, Netflix
+
+Thu, 09 Apr 2026 18:09:20 GMT
+
+https://screenrant.com/beef-netflix-drama-series-best-cast/
+
+With its unique mix of dark humor and poignant storytelling, Netflix's anthology masterpiece has new star-studded casts that keep getting better.
+---------
+
+# After 11 Years, Black Clover All But Confirms Its Ending's Release Date
+
+Anime, Black Clover
+
+Thu, 09 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/black-clover-ending-release-date/
+
+Black Clover confirmed its upcoming release but also subtly hinted at when fans can expect the manga to finally end.
+---------
+
+# Why There's No New 9-1-1 Tonight (April 9) & When New Episodes Of Flagship & Nashville Release
+
+Network TV, 9-1-1, 9-1-1: Nashville
+
+Thu, 09 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/911-nashville-no-new-episode-april-9-2026-release-date/
+
+Ryan Murphy's network franchise isn't airing new episodes tonight, but luckily, ABC has already confirmed when 9-1-1 and 9-1-1: Nashville return.
+---------
+
+# Tracker Season 3 Confirms Major Character Return For Finale
+
+TV, Tracker
+
+Thu, 09 Apr 2026 17:57:33 GMT
+
+https://screenrant.com/tracker-season-3-jensen-ackles-return-confirmed-finale-details/
+
+Tracker season 3 is now officially confirmed to bring back one of the show's biggest characters, and Justin Hartley teams up with a fan-favorite star.
+---------
+
+# Glen Powell’s Texas-Set Crime Thriller Secures Streaming Home
+
+TV, Glen Powell, Prime Video
+
+Thu, 09 Apr 2026 18:41:18 GMT
+
+https://www.cbr.com/glen-powell-calamities-texas-set-crime-thriller-amazon-prime-video/
+
+Texas native Glen Powell's upcoming crime thriller series has just found its streaming home.
+---------
+
+# Jessica Chastain Emerges As Maxima Pick Amid Superman Casting Rumors in DCU Fan Art
+
+Movies, DCU, Man of Tomorrow
+
+Thu, 09 Apr 2026 18:28:39 GMT
+
+https://www.cbr.com/man-of-tomorrow-jessica-chastain-maxima-dcu-fan-art/
+
+Amid conflicting casting reports, one DCU fan imagines Oscar winner Jessica Chastain in the role of the morally ambiguous Superman character, Maxima.
+---------
+
+# Chucky's Fiona Dourif Returns to Horror With Latest Casting
+
+Movies, Horror
+
+Thu, 09 Apr 2026 18:20:55 GMT
+
+https://www.cbr.com/fiona-dourif-a-head-full-of-ghosts/
+
+The Pitt and Chucky franchise star Fiona Dourif is returning to the horror genre.
+---------
+
+# Pan's Labyrinth 20th Anniversary Re-release in Theaters Oct. 9
+
+Movies, Pan's Labyrinth, Fantasy, guillermo del toro
+
+Thu, 09 Apr 2026 18:12:37 GMT
+
+https://www.cbr.com/pans-labyrinth-release-date-2026-20th-anniverary-theaters/
+
+Guillermo del Toro's Oscar-winning fantasy film Pan's Labyrinth celebrates its 20th anniversary with a theatrical re-release starting Oct. 9.
+---------
+
+# The 10 Greatest Anime Series From 2011 to 2020
+
+Anime
+
+Thu, 09 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/best-anime-between-2011-2020-list/
+
+The span from 2011 to 2020 was an incredible era for anime that saw the debut of classic series like Attack on Titan.
+---------
+
+# 10 Marvel Friendships That Were Essential To The Plot
+
+Superheroes, Marvel
+
+Thu, 09 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/marvel-friendships-that-carried-story-plots/
+
+These friendships are essential for Marvel Comics' storytelling to thrive.
+---------
+
+# 'The Rookie' Spin-Off Gets a Major Update as Pilot Order News Looms [Exclusive]
+
+TV News, The Rookie, Karen Fukuhara, Jay Ellis, Alexi Hawley
+
+Thu, 09 Apr 2026 18:31:12 GMT
+
+https://collider.com/the-rookie-north-pilot-series-update-abc-karen-fukuhara/
+
+The Boys star Karen Fukuhara provides an update on The Rookie: North, the spin-off from Nathan Fillion's hit ABC crime series.
+---------
+
+# 'High Potential' Just Set Up 6 Unexpected Season 3 Mysteries
+
+TV, High Potential, Kaitlin Olson, ABC, Drama
+
+Thu, 09 Apr 2026 18:09:14 GMT
+
+https://collider.com/high-potential-season-3-mysteries/
+
+High Potential went from humorous to heartbreaking in its Season 2 finale, setting up the continuation of old and new mysteries to solve in Season 3.
+---------
+
+# ‘Silo’ Ending With Season 4 Will Finally Fix Apple TV’s Biggest Sci-Fi Series Mistake
+
+TV Features, Silo, Rebecca Ferguson, Apple TV, Tim Robbins
+
+Thu, 09 Apr 2026 17:58:12 GMT
+
+https://collider.com/silo-season-3-and-4-apple-tv-sci-fi-mistake-pacing-issues/
+
+Silo ending with Season 4 will finally fix the Rebecca Ferguson sci-fi series’ biggest mistake after filming wrapped on its final chapter
+---------
+
+# Joel Kinnaman Claims 'Peacemaker' Was His Last Time as Rick Flag Jr. in the DCU
+
+Movie News, Joel Kinnaman, The Suicide Squad, Peacemaker, DCU
+
+Thu, 09 Apr 2026 18:02:46 GMT
+
+https://movieweb.com/dcu-joel-kinnaman-future-done/
+
+'Peacemaker' Season 2 featured Joel Kinnaman's final performance in the DC Universe as Rick Flag Jr., closing that chapter of his career.
+---------
+
+# 'The Super Mario Galaxy Movie's Box Office Milestone Reveals a Dark Fate
+
+Features, The Super Mario Galaxy Movie
+
+Thu, 09 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-bad-sign-blockbusters/
+
+'The Super Mario Galaxy Movie' has done well at the box office and could be one of 2026's biggest movies, despite a poor critical reception.
+---------
+
 # Taylor Sheridan's Hit 5-Part Crime Series Gets Exciting New Villain Update As Production On Final Episodes Ramps Up
 
 TV, Mayor of Kingstown
