@@ -1,3 +1,344 @@
+# The Housemaid Author Frieda McFadden Reveals True Identity & Day Job As Brain Doctor
+
+Movies, The Housemaid
+
+Thu, 09 Apr 2026 13:04:08 GMT
+
+https://screenrant.com/frieda-mcfadden-identity-revealed-job-brain-doctor/
+
+The Housemaid author Frieda McFadden has revealed her true identity and has confirmed her day job as a brain doctor.
+---------
+
+# GTA 6 Official Price Update Has Left Gamers Pretty Happy
+
+Gaming, Grand Theft Auto 6
+
+Thu, 09 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/gta-6-price-update-take-two-gamers-react/
+
+Grand Theft Auto VI will launch at a standard price of $70-80, according to Take-Two Interactive's CEO Strauss Zelnick.
+---------
+
+# Jensen Ackles' Second-Biggest TV Role Is The Exact Opposite Of Dean Winchester
+
+TV, The Boys, Supernatural
+
+Thu, 09 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/supernatural-jensen-ackles-soldier-boy-opposite-dean/
+
+In The Boys, Jensen Ackles' Soldier Boy is a cold-blooded assassin with no boundaries, a contrast to the role he brought to life in Supernatural.
+---------
+
+# 10 Greatest Marvel Heroes Who Were Introduced as Villains
+
+Comics, Marvel, X-Men, The Avengers
+
+Thu, 09 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/best-marvel-heroes-introduced-villains-reformed/
+
+Marvel has some of the coolest villains in comics, but the most complex are those who sought redemption and became beloved heroes.
+---------
+
+# Why Bryan Cranston’s New Revival Of Iconic Series Took 20 Years To Happen Explained By Creator
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle
+
+Thu, 09 Apr 2026 12:44:21 GMT
+
+https://screenrant.com/bryan-cranston-malcolm-in-the-middle-revival-20-years-development-explained-creator/
+
+EXCLUSIVE: Creator Linwood Boomer and executive producer Tracy Katsky explain why Bryan Cranston's revival of an iconic show took 20 years to happen.
+---------
+
+# Big Mistakes Season 1 Twist Ending Explained: What's Next For Nicky & Morgan
+
+Streaming TV, Big Mistakes
+
+Thu, 09 Apr 2026 12:31:20 GMT
+
+https://screenrant.com/big-mistakes-season-1-twist-ending-explained/
+
+Dan Levy's Netflix comedy, Big Mistakes, finishes off its wild ride in season 1 with a big twist ending, setting up more chaos to come.
+---------
+
+# One Piece's Return Proves Its Remake Is Needed More Than Ever
+
+Anime, One Piece
+
+Thu, 09 Apr 2026 12:31:20 GMT
+
+https://screenrant.com/one-piece-toei-anime-return-wit-studio-remake/
+
+The anime's big return shocked viewers with a tease of what a modern One Piece could look like, teasing great potential for Netflix's upcoming remake.
+---------
+
+# Henry Cavill's Forgotten James Bond-esque Comedy Returns To Top Streaming Charts Ahead Of New Action Movie's Release
+
+Movies, Masked Recs, Apple TV, Streaming Charts, Henry Cavill
+
+Thu, 09 Apr 2026 12:28:24 GMT
+
+https://screenrant.com/argylle-apple-tv-henry-cavill-streaming-success-april-2026/
+
+As Henry Cavill gets ready for his next action film to release, his James Bond-inspired comedy finds new streaming success in 2026 as a worldwide hit.
+---------
+
+# The Rookie Is Reclaiming Its Lost Glory By Going Back To Basics
+
+Network TV, The Rookie
+
+Thu, 09 Apr 2026 12:27:18 GMT
+
+https://screenrant.com/the-rookie-season-8-episode-14-celina-missing-persons-back-to-basic/
+
+As the ABC show has become more ambitious, it has lost sight of the basics of a police procedural. Thankfully, The Rookie is doing something about it.
+---------
+
+# Cyberpunk 2077 Gets A Huge New Expansion Thanks To The Fans
+
+Gaming, Cyberpunk 2077
+
+Thu, 09 Apr 2026 12:17:09 GMT
+
+https://screenrant.com/cyberpunk-2077-dlc-2-fan-expansion/
+
+Nexus Mods user Jon Cross has created a massive unofficial DLC for Cyberpunk 2077, adding over 45 new locations to Night City.
+---------
+
+# Darren Aronofsky’s $359M Biblical Gamble With 75% RT Is Now Available to Stream on Peacock
+
+Movies, Noah
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/darren-aronofsky-religious-film-noah-free-streaming-peacock-april-2026/
+
+Despite being banned in several countries, the film still managed to impress critics - and it can now be streamed for free.
+---------
+
+# DC's Official Superman Experience Is A Must For Super-Fans
+
+Comics, Superman
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/dc-officially-confirms-superman-experience-that-cant-be-missed/
+
+It's a bird, it's a plane, it's... an interactive experience!
+---------
+
+# Supergirl Can Finally Answer This 5-Year-Old DCU Canon Mystery
+
+Movies, DCU, Supergirl, Superman
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/supergirl-can-answer-dcu-mystery-bloodsport-superman-kryptonite-bullet/
+
+The transition from the DCEU to the DCU left fans with a burning question about Superman that his cousin's upcoming film can answer.
+---------
+
+# Star Wars: Maul - Shadow Lord Pays Tribute to Jurassic Park
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Jurassic Park
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-jurassic-park-reference-trend/
+
+In the new Star Wars series Maul - Shadow Lord, a clever Easter egg pays homage to Jurassic Park, continuing a long-standing tradition.
+---------
+
+# Red Dead Redemption 2 Officially Gets Official Update Available Now
+
+Games, Red Dead Redemption, Red Dead Redemption 2
+
+Thu, 09 Apr 2026 12:50:13 GMT
+
+https://www.cbr.com/red-dead-redemption-2-official-update-available-now/
+
+Red Dead Redemption fans don't need to wait for the next game in the series to see its world with graphics on par with those of Grand Theft Auto VI's.
+---------
+
+# Star Wars Writers Want To Bring Back This Beloved Era
+
+Comics, Star Wars
+
+Thu, 09 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/star-wars-writers-knights-of-the-old-republic-era-comic-pitch/
+
+Two Star Wars writers open up about exploring one of the franchise's most mysterious eras - and the only thing stopping them is Lucasfilm.
+---------
+
+# Ann Dowd Can't Wait for The Handmaid's Tale Fans to Watch This Episode of The Testaments
+
+CBR Exclusives, The Testaments, Hulu, The Handmaid's Tale
+
+Thu, 09 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/the-testaments-ann-dowd-reveals-aunt-lydia-backstory-episode/
+
+Finally, fans of The Handmaid's Tale will get to see more of Aunt Lydia at the start of Gilead.
+---------
+
+# Test Your Knowledge With the Collider TV Quiz — April 9, 2026
+
+TV, The Simpsons, The Bad News Bears, Seinfeld, Curb Your Enthusiasm
+
+Thu, 09 Apr 2026 13:01:14 GMT
+
+https://collider.com/tv-quiz-apr-9-2026-baseball-on-television/
+
+We're well into baseball season, so why not flip through a host of television shows that showcased the game in unique and memorable ways?
+---------
+
+# 'Deadpool & Wolverine's Ryan Reynolds and Hugh Jackman Are Officially Reuniting
+
+Movie News, Hugh Jackman, Ryan Reynolds, Deadpool & Wolverine, Avengers: Secret Wars
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://collider.com/hugh-jackman-ryan-reynolds-teamp-up-bonds-flying-roos-sailgp-video/
+
+Hugh Jackman and Ryan Reynolds are starring in a new Bonds Flying Roos spot ahead of SailGP’s first-ever event in South America. See it here.
+---------
+
+# James Gunn's 'Superman' Returns This Month With an Exciting New Experience
+
+Movie News, Superman, DCU, Warner Bros., James Gunn
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://collider.com/superman-experience-defenders-unite-warner-bros-studios-attraction-open-april/
+
+Warner Bros. and DC Studios have created an interactive Superman Experience, based on James Gunn's DCU film, to celebrate Superman Day this month.
+---------
+
+# ‘Tulsa King’ Icon’s Most Legendary Action Hero Makes a Comeback With Brand-New Project
+
+Movie News, First Blood, Sylvester Stallone, John Rambo, Tulsa King
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://collider.com/sylvester-stallone-action-franchise-rambo-collection-4k-blu-ray/
+
+With a prequel officially on the way, Sylvester Stallone's John Rambo is back in action with a must-have collection. Read on for more details.
+---------
+
+# ‘Shrinking’ Star Explains How Brian’s Shock Season 3 Move Signals a New Era for the Character
+
+Exclusives, Shrinking, Michael Urie, Jason Segel, Harrison Ford
+
+Thu, 09 Apr 2026 13:00:12 GMT
+
+https://collider.com/shrinking-season-3-finale-brian-charlie-michael-urie-interview/
+
+Michael Urie discusses Shrinking Season 3, Brian's life-changing decision, his favorite Harrison Ford movies, and his time on Ugly Betty.
+---------
+
+# Test Your Knowledge With the Collider Movie Quiz — April 9, 2026
+
+Movie, Twilight, The Twilight Saga: New Moon, The Twilight Saga: Eclipse, The Twilight Saga: Breaking Dawn - Part 1
+
+Thu, 09 Apr 2026 12:59:12 GMT
+
+https://collider.com/movie-quiz-apr-9-2026-twilight-saga/
+
+You don't need to pledge allegiance to Edward or Jacob. All you need is a little knowledge of the Twilight movies in order to survive this quiz.
+---------
+
+# 10 Shows To Watch if You Love 'The Pitt'
+
+TV, The Pitt, House, ER, The Good Doctor
+
+Thu, 09 Apr 2026 12:33:12 GMT
+
+https://collider.com/shows-like-the-pitt/
+
+Fans of HBO Max's medical drama hit The Pitt will likely appreciate great TV shows like Scrubs, The Resident, and The Good Doctor.
+---------
+
+# Apple TV's Best Sci-Fi Love Story Means More Than You Think It Does [Exclusive]
+
+TV News, Pluribus, Apple TV, Rhea Seehorn, Vince Gilligan
+
+Thu, 09 Apr 2026 12:30:12 GMT
+
+https://collider.com/apple-tv-best-sci-fi-series-pluribus-carol-helen-relationship-explained-rhea-seehorn-miriam-shor/
+
+Rhea Seehorn discusses the importance of creating a realistic and meaningful relationship between Carol and Helen in the Apple TV series Pluribus.
+---------
+
+# 7 HBO Shows That Are Amazing From Start to Finish
+
+TV, HBO, The Wire, The Sopranos, Succession
+
+Thu, 09 Apr 2026 12:08:12 GMT
+
+https://collider.com/hbo-shows-amazing-start-to-finish/
+
+HBO has a library of shows that are genuinely amazing from start to finish, including The Sopranos, Succession, The Wire, and Six Feet Under.
+---------
+
+# The Creator of HBO’s Most Divisive Show Has “No Plans” for Season 4
+
+TV News, Euphoria, HBO, Zendaya, HBO Max
+
+Thu, 09 Apr 2026 12:00:13 GMT
+
+https://collider.com/hbo-divisive-series-euphoria-final-season-3-confirmed-sam-levinson/
+
+After Zendaya's suggestion that Season 3 will be the show's last, Euphoria creator Sam Levinson has had his say.
+---------
+
+# James Gunn's HBO Max 'Superman' Follow-up Is a Must-See Before 'Supergirl'
+
+Features, James Gunn, DCU, Supergirl, Superman
+
+Thu, 09 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/krypto-saves-the-day-must-watch-supergirl/
+
+James Gunn brought attention to several smaller characters over the years, and his latest is a must before 'Supergirl' hits theaters.
+---------
+
+# Netflix's 'The Eternaut' Season 2 Finally Gets Release Update
+
+TV News, The Eternaut, Sci-Fi, Thriller, Netflix
+
+Thu, 09 Apr 2026 12:37:41 GMT
+
+https://movieweb.com/netflix-eternaut-season-2-release/
+
+The hit sci-fi thriller show will take things to "a new level" as it strives to be even more epic than Season 1.
+---------
+
+# Netflix Finds New #1 Streaming Hit With Bruce Willis' 'Striking Distance'
+
+Movie News, Striking Distance, Hot on Streaming, Bruce Willis, Action
+
+Thu, 09 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/striking-distance-netflix-action-thriller-global-streaming-hit-april-2026/
+
+33 years after it dethroned 'The Fugitive' at the box office, 'Striking Distance' has come out of nowhere to become Netflix's newest streaming hit.
+---------
+
+# 'Dune 3's Ticket Scalping Controversy Sets up a Dark Film Industry Fate
+
+Features, Dune
+
+Thu, 09 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/dune-3-ticket-scalping-controversy/
+
+The trend of 'Dune: Part Three' and 'The Odyssey' putting exclusive tickets on sale half a year in advance is a troubling sign for the future.
+---------
+
 # The Elder Scrolls 6 Official Trailer Roasted By GTA 6 Fans
 
 Gaming, The Elder Scrolls 6
