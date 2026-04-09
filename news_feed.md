@@ -1,3 +1,421 @@
+# The Boys' Latest Episode Just Saved The Prime Video Series' Final Season
+
+TV, The Boys, Quiz CV
+
+Thu, 09 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/the-boys-season-5-jensen-ackles-soldier-boy-death-fake/
+
+The Boys season 5 has already released two episodes filled with shocking events, and a key moment in its latest entry is what saves the final season.
+---------
+
+# The Boys Season 5 Drops The Ultimate X-Men: Days of Future Past Reference
+
+Streaming TV, The Boys
+
+Thu, 09 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/the-boys-season-5-a-train-x-men-days-of-future-past-references/
+
+The Boys has referenced various superhero franchises throughout its run, and season 5's premiere just paid homage to X-Men's last great movie.
+---------
+
+# Big Mistakes Cast Guide: Who Stars In Dan Levy's New Netflix Comedy
+
+Streaming TV, Big Mistakes
+
+Thu, 09 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/big-mistakes-cast-character-guide/
+
+Dan Levy brought on an excellent cast of exceptional actors to work alongside him in his new 8-part Netflix comedy series, Big Mistakes.
+---------
+
+# Jon Bernthal's R-Rated Punisher Return Revealed In Brutal One Last Kill Trailer
+
+TV, The Punisher: One Last Kill, The Punisher, Marvel Cinematic Universe
+
+Thu, 09 Apr 2026 16:14:26 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-marvel-trailer/
+
+Marvel Studios has officially released the first trailer for the upcoming MCU Special Presentation, The Punisher: One Last Kill, with Jon Bernthal.
+---------
+
+# Demon Slayer's Box Office Record Was Just Beaten By The One Massive Shonen Franchise America Keeps Ignoring
+
+Anime, Demon Slayer, Demon Slayer the Movie: Mugen Train, Detective Conan (1994), Case Closed
+
+Thu, 09 Apr 2026 16:04:54 GMT
+
+https://screenrant.com/demon-slayer-box-office-beaten-detective-conan-america-ignore/
+
+A decades-old anime series has just made a bold move, surpassing one of Demon Slayer's most iconic box office achievements in the process.
+---------
+
+# New Mortal Kombat 2 Trailer Released
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Thu, 09 Apr 2026 16:04:46 GMT
+
+https://screenrant.com/mortal-kombat-2-trailer-2/
+
+A new trailer for Mortal Kombat 2 has been released ahead of Warner Bros.'s debut of the film in May.
+---------
+
+# Hogwarts Legacy 2 Big Reveal Has Fans Thrilled For Direct Sequel
+
+Gaming, Hogwarts Legacy, Triple-A Games
+
+Thu, 09 Apr 2026 16:04:09 GMT
+
+https://screenrant.com/hogwarts-legacy-2-direct-sequel-same-characters/
+
+Given a recent reveal, it looks like Hogwarts Legacy could get an announcement soon, or at the very least, before the HBO show arrives.
+---------
+
+# Xbox Game Pass Members Getting Bonus Free Game Right Now
+
+Gaming, Xbox Game Pass, Subnautica, Triple-A Games, PC
+
+Thu, 09 Apr 2026 16:01:20 GMT
+
+https://screenrant.com/xbox-game-pass-subnautica-free-play-days/
+
+Xbox Game Pass subscribers are in for a real treat this weekend, as long as they feel brave enough to venture into some uncharted waters.
+---------
+
+# D&D's New Subclass Release Has Fans Overjoyed
+
+Gaming
+
+Thu, 09 Apr 2026 16:01:20 GMT
+
+https://screenrant.com/dungeons-dragons-villainous-unearthed-arcana-reactions/
+
+Dungeons & Dragons doesn't always hit the mark, but the latest batch of character options seems to be exactly what many fans are looking for.
+---------
+
+# Outcome Review: Jonah Hill’s Hollywood Satire Misuses Keanu Reeves
+
+New Movies, Outcome
+
+Thu, 09 Apr 2026 16:01:20 GMT
+
+https://screenrant.com/outcome-movie-2026-review/
+
+Though it connects in moments, writer-director Jonah Hill’s new movie doesn’t push its premise far enough to deliver as either comedy or drama.
+---------
+
+# HBO Officially Renews Rooster for Season 2
+
+TV, Rooster
+
+Thu, 09 Apr 2026 16:38:24 GMT
+
+https://www.cbr.com/rooster-renewed-season-2-hbo/
+
+The fate of Steve Carell's newest comedy series is revealed ahead of the finale on HBO.
+---------
+
+# Jason Statham’s New Summer Action Thriller Finally Gets First Trailer
+
+Movies, Mutiny, Jason Statham
+
+Thu, 09 Apr 2026 16:32:33 GMT
+
+https://www.cbr.com/jason-statham-mutiny-action-thriller-first-trailer/
+
+Jason Statham returns to the big screen later this summer with a brand-new action thriller, and the first trailer for it can be seen right now.
+---------
+
+# The Best Kakashi Hatake Quotes
+
+Anime, Naruto: Shippuden, Naruto, shonen anime, Shonen, Manga, Boruto: Naruto Next Generations
+
+Thu, 09 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/naruto-kakashi-best-lines-quotes/
+
+From life lessons to his own personal philosophy, Naruto's Kakashi-sensei is one of the most quotable characters in Naruto.
+---------
+
+# Malcolm in the Middle Reboot Gets Rotten Tomatoes Score
+
+TV, Malcolm in the Middle: Life's Still Unfair, Rotten Tomatoes
+
+Thu, 09 Apr 2026 16:17:36 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-lifes-still-unfair-rotten-tomatoes-score/
+
+Malcolm in the Middle: Life's Still Unfair gets its debut score on Rotten Tomatoes ahead of its Hulu debut.
+---------
+
+# The Punisher: One Last Kill Trailer Released for Marvel Disney+ Special
+
+TV, The Punisher: One Last Kill, Marvel Cinematic Universe, Disney+
+
+Thu, 09 Apr 2026 16:15:30 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-trailer/
+
+Marvel Studios unveils the trailer for The Punisher: One Last Kill, a Disney+ special featuring Jon Bernthal as Frank Castle.
+---------
+
+# Daemons of the Shadow Realm & Witch Hat Atelier Officially Debut as Fullmetal Alchemist’s Newest Successors
+
+Anime, Fullmetal Alchemist, Daemons of the Shadow Realm, Witch Hat Atelier
+
+Thu, 09 Apr 2026 16:15:11 GMT
+
+https://www.cbr.com/fullmetal-alchemist-successor-daemons-shadow-realm-witch-hat-atelier/
+
+Fullmetal Alchemist has two new successors in the making this year, and both are off to a perfect start already.
+---------
+
+# Disney Layoffs: 1,000 Employees at Risk
+
+Movies, Disney
+
+Thu, 09 Apr 2026 16:02:16 GMT
+
+https://www.cbr.com/disney-layoffs-josh-damaro-new-ceo/
+
+Disney faces its first round of layoffs, potentially of up to 1,000 employees under new CEO Josh D'Amaro, following the exit of Bob Iger.
+---------
+
+# Malcolm in the Middle: Life's Still Unfair Review: A Close to Perfect Revival
+
+TV, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Thu, 09 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-revival-lifes-still-unfair-review/
+
+Malcolm in the Middle: Life's Still Unfair brings beloved characters back for a unique return that gives fans almost everything they want.
+---------
+
+# After 60 Years, Star Trek Releases Its Biggest Collector's Item Yet
+
+Comics, Star Trek
+
+Thu, 09 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/star-trek-defiant-art-book-release-date-confirmed/
+
+Star Trek fans are in for a treat with a special new collection arriving this summer.
+---------
+
+# This Episode of Supernatural Broke a 13-Season Dean Winchester Trend
+
+TV, Supernatural
+
+Thu, 09 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/supernatural-episode-without-dean-stranger-in-a-strange-land/
+
+For 13 seasons, Supernatural always saw Sam and Dean in every episode. The season 14 premiere broke from this tradition.
+---------
+
+# 'Outcome' Review: Keanu Reeves Battles Cancel Culture in Jonah Hill's Strange, Messy Dramedy
+
+Movie Reviews, Outcome, Keanu Reeves, Jonah Hill, Apple TV
+
+Thu, 09 Apr 2026 16:41:33 GMT
+
+https://collider.com/outcome-review-keanu-reeves-jonah-hill-apple-tv-movie/
+
+Despite an interesting setup, Outcome is a jumbled and rushed sophomore feature from director/co-writer Jonah Hill.
+---------
+
+# 50 Years Later, Robert Redford's Near-Perfect Thriller Is More Important Than Ever
+
+Movie Features, All the President's Men, Robert Redford, Dustin Hoffman, Thriller
+
+Thu, 09 Apr 2026 16:21:12 GMT
+
+https://collider.com/all-the-presidents-men-robert-redford-50-years-later-more-important/
+
+The brilliant political thriller All the President's Men, starring Robert Redford and Dustin Hoffman, is even more important 50 years later.
+---------
+
+# The Punisher Officially Returns in First Trailer for Disney+ Special
+
+TV News, Marvel's The Punisher, The Punisher: One Last Kill, Jon Bernthal, Disney+
+
+Thu, 09 Apr 2026 16:18:47 GMT
+
+https://collider.com/jon-bernthal-the-punisher-one-last-kill-trailer-mcu-disney-plus/
+
+Jon Bernthal's Frank Castle officially returns in a brutal first trailer for The Punisher: One Last Kill. See it here!
+---------
+
+# Taylor Sheridan’s New 13-Part Western Series Officially Becomes a Late-Night Sleeper Hit for Fans
+
+TV News, Taylor Sheridan, Marshals, Yellowstone, Paramount Plus
+
+Thu, 09 Apr 2026 16:15:32 GMT
+
+https://collider.com/taylor-sheridan-13-part-western-marshals-paramount-plus-top-spot-streaming-success-april-2026/
+
+Taylor Sheridan’s new 13-part Western series has officially taken out its biggest competition — a 28-season fan favorite — on Paramount+.
+---------
+
+# HBO's New 10-Part Weekend Binge Is Officially Coming Back for More
+
+TV News, Bill Lawrence, HBO Max, Steve Carell, Rooster
+
+Thu, 09 Apr 2026 16:01:13 GMT
+
+https://collider.com/hbo-rooster-season-2-renewal-steve-carell/
+
+HBO renews Steve Carell’s Rooster for Season 2 after the freshman sitcom becomes its most-watched new comedy in over a decade.
+---------
+
+# A 'Young Sheldon' Star Hatches Her Worst Scheme Yet in New 'Georgie & Mandy's First Marriage' Sneak Peek [Exclusive]
+
+Exclusives, Georgie & Mandy's First Marriage, Emily Osment, CBS, Annie Potts
+
+Thu, 09 Apr 2026 16:01:13 GMT
+
+https://collider.com/georgie-and-mandys-first-marriage-season-2-episode-15-sneak-peek-annie-potts/
+
+A new sneak peek at Georgie & Mandy's First Marriage, Season 2, Episode 15, welcomes back Annie Potts for some monkey business with Emily Osment.
+---------
+
+# 'Malcolm in the Middle: Life's Still Unfair' Review: The Best Sitcom of the 2000s Gets an Impressive but All-Too-Short Revival
+
+TV Reviews, Malcolm in the Middle: Life's Still Unfair, Bryan Cranston, Frankie Muniz, Sitcom
+
+Thu, 09 Apr 2026 16:01:13 GMT
+
+https://collider.com/malcolm-in-the-middle-lifes-still-unfair-review-bryan-cranston/
+
+Malcolm in the Middle returns with the revival Life's Still Unfair, featuring a stellar cast and heartfelt moments that make the new series shine.
+---------
+
+# Kevin Smith Pitches ‘Clerks 4’ to a Room Full of Dogs [Exclusive]
+
+Exclusives, Kevin Smith, Dogma, Clerks, Comedy
+
+Thu, 09 Apr 2026 16:01:13 GMT
+
+https://collider.com/kevin-smith-national-pet-day-video-hera-the-dog-vodka-much-love-animal-rescue/
+
+Kevin Smith chats with dogs about making movies in a new collaboration between Much Love Animal Shelter and Hera the Dog Vodka for National Pet Day.
+---------
+
+# 'Hacks' Season 4 Recap: What To Remember Before the Final Season of HBO's Stellar Comedy
+
+TV Features, Hacks, HBO Max, Best TV Shows
+
+Thu, 09 Apr 2026 15:50:12 GMT
+
+https://collider.com/hacks-season-4-recap-hbo/
+
+Revisit Hacks Season 4, including shifting power dynamics, a late-night implosion, and a fake death, before the HBO comedy's final season.
+---------
+
+# Breaking Bad Fans Have Only 1 Month to Stream Netflix’s Best 2-Part Crime Thriller
+
+TV News, Your Honor, Bryan Cranston, Netflix, Crime
+
+Thu, 09 Apr 2026 15:47:08 GMT
+
+https://collider.com/bryan-cranston-best-crime-thriller-your-honor-leaving-netflix/
+
+Bryan Cranston’s best post-breaking bad crime thriller is officially set to leave Netflix next month. Here’s how long you have to watch Your Honor.
+---------
+
+# The Most Realistic Movie Psychopaths
+
+Movie Lists
+
+Thu, 09 Apr 2026 16:01:18 GMT
+
+https://movieweb.com/movie-psychopaths-realistic/
+
+Cinema has no shortage of dark and disturbing charchters, but these performances portray realistic psychopaths.
+---------
+
+# Sydney Sweeney Box Office Bomb 'Christy' Hits HBO Max This Weekend
+
+Movie News, Sydney Sweeney, Christy, Coming/Leaving Streaming
+
+Thu, 09 Apr 2026 16:01:17 GMT
+
+https://movieweb.com/sydney-sweeney-christy-streaming-hbo-max-april-2026/
+
+Sweeney gives an outstanding performance in 'Christy,' which set an unfortunate record for the 'Euphoria' star at the box office.
+---------
+
+# 'The Tudors' Starring Henry Cavill Is an Underrated Binge-Watch
+
+Features, Henry Cavill
+
+Thu, 09 Apr 2026 16:01:17 GMT
+
+https://movieweb.com/the-tudors-henry-cavill-binge-watch/
+
+Before he played Geralt of Rivia in 'The Witcher,' Henry Cavill starred in the underrated Showtime historical drama series 'The Tudors.'
+---------
+
+# ‘Outcome’ Review: Keanu Reeves Seeks Redemption While Redeeming This Dramedy
+
+Movie Reviews, Outcome, Keanu Reeves, Jonah Hill
+
+Thu, 09 Apr 2026 16:01:17 GMT
+
+https://movieweb.com/outcome-review/
+
+Reeves' talents are really what make director Jonah Hill's project work.
+---------
+
+# 'Malcolm in the Middle: Life's Still Unfair' Review: A Near-Perfect Revival
+
+TV Reviews, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Thu, 09 Apr 2026 16:01:17 GMT
+
+https://movieweb.com/malcolm-in-the-middle-lifes-still-unfair-review/
+
+20 years later, 'Malcolm in the Middle' is finally back on our screens, and this incredible revival reminds us just why we love the OG show so much.
+---------
+
+# 'Casa Grande' Trailer Stars Lou Diamond Phillips in 'Yellowstone'-Esque Neo-Western
+
+Movie News, Western, Lou Diamond Phillips, Yellowstone
+
+Thu, 09 Apr 2026 15:29:56 GMT
+
+https://movieweb.com/casa-grande-trailer-western-yellowstone/
+
+The 'Young Guns' actor plays the villain in this tale of a family fighting for their land.
+---------
+
+# ‘The Boys’ Creator on Why Jessie T. Usher's A-Train Was Killed Off in Season 5 Premiere
+
+TV News, The Boys, Prime Video, Superhero
+
+Thu, 09 Apr 2026 15:17:21 GMT
+
+https://movieweb.com/the-boys-season5-why-supe-killed/
+
+'The Boys' killed off A-Train in the final moments of the Season 5 premiere in a full-circle moment.
+---------
+
+# 'Mutiny' Trailer Finds Jason Statham on the Run in New Action Thriller
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Thu, 09 Apr 2026 15:16:34 GMT
+
+https://movieweb.com/jason-statham-mutiny-trailer/
+
+Due to hit theaters this summer, the action icon must use his particular set of skills after being accused of murder.
+---------
+
 # Netflix Has Officially Found Its Next Stranger Things, And It's Their Best Original TV Series In Years
 
 Anime, One Piece, Stranger Things
