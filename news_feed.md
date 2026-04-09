@@ -1,3 +1,300 @@
+# 8 Relationship Movies to Watch After The Drama
+
+Movies, The Drama
+
+Thu, 09 Apr 2026 19:55:20 GMT
+
+https://screenrant.com/relationship-movies-like-the-drama/
+
+These romance films move beyond a simplistic Happily Ever After arc to examine the complex, often messy realities of ever-evolving love.
+---------
+
+# Kevin Bacon Joins Hulu's New Series Based On Award-Winning Comic Series
+
+TV, Kevin Bacon
+
+Thu, 09 Apr 2026 19:49:59 GMT
+
+https://screenrant.com/southern-basterds-hulu-series-kevin-bacon-casting/
+
+Kevin Bacon joins Hulu's new series based on an award-winning graphic novel series, with the adaptation produced by Ryan Coogler and others.
+---------
+
+# Every Rolling Stones Album Ranked From Worst To Best
+
+Music, The Rolling Stones, Rock, Classic Rock
+
+Thu, 09 Apr 2026 19:49:09 GMT
+
+https://screenrant.com/rolling-stones-albums-ranked-worst-to-best/
+
+Forget the U.S. marketing hacks. We go back to the original U.K. recordings to rank every Rolling Stones album from the source. No caveats, just rock.
+---------
+
+# James Gunn's HBO Max Superman Series Officially Returns Next Week & The Time To Binge It Is Now
+
+Superheroes, Superman, HBO Max
+
+Thu, 09 Apr 2026 19:45:21 GMT
+
+https://screenrant.com/superman-krypto-saves-the-day-hbo-max-series-2026-return-binge/
+
+James Gunn's Superman series will return soon, and the time to catch up on the HBO Max Man of Steel show is now, with multiple episodes already out.
+---------
+
+# Sebastian Stan Goes Completely Bald In First Look At New Movie Fjord
+
+Movies, Sebastian Stan
+
+Thu, 09 Apr 2026 19:37:34 GMT
+
+https://screenrant.com/sebastian-stan-goes-completely-bald-in-first-look-at-new-movie-fjord/
+
+Sebastian Stan is starring in a new drama movie, Fjord, with a first-look image showcasing his shocking transformation as he goes completely bald.
+---------
+
+# Dexter: Resurrection Finally Has A Worthy Successor To John Lithgow's Trinity Killer
+
+Streaming TV, Dexter: Resurrection, Dexter, Brian Cox
+
+Thu, 09 Apr 2026 19:30:20 GMT
+
+https://screenrant.com/dexter-resurrection-brian-cox-new-york-ripper-trinity-killer-successor/
+
+Brian Cox, known for Succession and Troy, joins Dexter: Resurrection as the New York Ripper, a villain potentially rivaling John Lithgow's Trinity Killer.
+---------
+
+# Everything To Know About American Idol Season 24 Rock & Roll Hall Of Fame Night, Including The Mentors (SPOILERS)
+
+Reality TV, American Idol
+
+Thu, 09 Apr 2026 19:18:57 GMT
+
+https://screenrant.com/american-idol-season-24-rock-and-roll-hall-of-fame-night-top-9-pat-benatar-neil-giraldo-spoilers/
+
+American Idol will celebrate its annual Rock & Roll Hall of Fame Night on April 13, and we have the scoop about what will happen in this epic episode.
+---------
+
+# Guillermo Del Toro's 20-Year-Old Fantasy War Hit Officially Returning To Theaters This October
+
+Movies, Pan's Labyrinth, Guillermo del Toro
+
+Thu, 09 Apr 2026 19:09:08 GMT
+
+https://screenrant.com/guillermo-del-toro-pans-labyrinth-rerelease-october-2026/
+
+Acclaimed filmmaker and producer Guillermo del Toro will see his 20-year-old fantasy film be re-released in theaters this year in 4K resolution.
+---------
+
+# Kevin Costner's Modern Western Masterpiece Is Quietly Climbing Netflix Global Streaming Charts
+
+Movies, Let Him Go
+
+Thu, 09 Apr 2026 19:01:32 GMT
+
+https://screenrant.com/kevin-costner-western-let-him-go-netflix-global-streaming-success-april-2026/
+
+Kevin Costner's modern Western masterpiece is quietly climbing Netflix's global streaming charts several years after its initial release.
+---------
+
+# It Took Prime Video's Invincible 4 Seasons To Switch Genres
+
+Streaming TV, Invincible
+
+Thu, 09 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/invincible-season-4-change-genre-war-superhero/
+
+Prime Video's Invincible is now much more than a superhero TV show. The groundbreaking animated series has now become a sci-fi and war show too.
+---------
+
+# Project Hail Mary Surpasses The Martian at Domestic Box Office
+
+Movies, Project Hail Mary, The Martian, Sci-Fi
+
+Thu, 09 Apr 2026 19:45:59 GMT
+
+https://www.cbr.com/project-hail-mary-box-office-beats-the-martian/
+
+Project Hail Mary, starring Ryan Gosling, has surpassed its predecessor, The Martian, directed by Ridley Scott, at the domestic box office.
+---------
+
+# Greatest Gunslingers in Western Movie History
+
+Movies, Western
+
+Thu, 09 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/greatest-gunslingers-western-movies-list/
+
+Since the earliest days of Hollywood, the Western gunslinger has been revered as one of the greatest hero archetypes on film.
+---------
+
+# Dexter: Resurrection Season 2 Is Finally Breaking the Show's Oldest Tradition
+
+TV, Dexter: Resurrection, Dexter, Crime
+
+Thu, 09 Apr 2026 19:25:12 GMT
+
+https://www.cbr.com/dexter-resurrection-s2-breaks-tradition-uma-thurman-charley-returns/
+
+Dexter: Resurrection Season 2 adds a new layer to the show's storytelling and character dynamics with something the franchise has never done before.
+---------
+
+# Starfleet Academy Star Celebrates Star Trek Show's LGBTQ+ Award
+
+TV, Star Trek: Starfleet Academy
+
+Thu, 09 Apr 2026 19:18:01 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-karim-diane-lgbtq-award/
+
+Karim Diané celebrates the LGBTQ+ honor bestowed to Star Trek: Starfleet Academy after teasing the show's "gay AF" final season.
+---------
+
+# New Final Fantasy 7 DLC Officially Available Now
+
+Games, Final Fantasy, Final Fantasy VII, final fantasy xiv
+
+Thu, 09 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/final-fantasy-7-new-dlc-officially-available-now-ff14/
+
+Before the last entry in the Final Fantasy VII Remake trilogy is released, Square Enix is offering fans new DLC they won't be able to resist.
+---------
+
+# Solo Leveling's New Manhwa Chapter Revives a Forgotten LGBTQ Story After 2 Years
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Thu, 09 Apr 2026 19:10:36 GMT
+
+https://www.cbr.com/solo-leveling-arise-elena-renault-hunter-origin-manhwa-release/
+
+Solo Leveling isn't particularly known for its romance, but the series' biggest LGBTQ storyline just came full circle thanks to Sung Jinwoo.
+---------
+
+# Tom Holland's Spider-Man Franchise Is Dominating Global Streaming Charts
+
+Movies, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 09 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/tom-holland-spider-man-franchise-streaming-success-before-brand-new-day/
+
+Before the new installment this July, Tom Holland's fan-favorite action franchise is at the top of the charts.
+---------
+
+# Perfect Roles For Bob Odenkirk in the MCU
+
+Movies, Marvel Cinematic Universe
+
+Thu, 09 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/perfect-mcu-roles-for-bob-odenkirk-list/
+
+Bob Odenkirk, star of Better Call Saul, Fargo, and Nobody, has revealed he is finally open to taking on a role in the Marvel Cinematic Universe.
+---------
+
+# Metal Gear Solid Movie Officially in the Works at Sony
+
+Movies, metal gear solid, Metal Gear Solid, Action
+
+Thu, 09 Apr 2026 18:54:39 GMT
+
+https://www.cbr.com/metal-gear-solid-movie-sony-directors/
+
+Sony Pictures announces a Metal Gear Solid movie is in development, with Final Destination: Bloodlines directors Zach Lipovsky and Adam B. Stein.
+---------
+
+# 10 TV Shows We Thought Would Be the Next ‘Lost'
+
+TV, Lost, La Brea, The Leftovers, Westworld
+
+Thu, 09 Apr 2026 19:53:12 GMT
+
+https://collider.com/mystery-tv-shows-almost-next-lost/
+
+Paradise, Fringe, From, FlashForward, Manifest, Silo, Yellowjackets, and more make up our list of shows we thought would be the next Lost.
+---------
+
+# Every Mainline Pokémon Game for the Nintendo Switch, Ranked
+
+TV, Pokémon, Anime, Nintendo Switch, Video Game
+
+Thu, 09 Apr 2026 19:33:13 GMT
+
+https://collider.com/pokemon-games-nintendo-switch-ranked/
+
+Pokémon is currently thriving in the Nintendo Switch with games like Legends: Arceus and Scarlet and Violet, but which of the six titles is the best?
+---------
+
+# 'Mermaid' Review: This Fishy, Florida-Set Horror-Comedy Flounders Early and Often
+
+Movie Reviews, Mermaid, Johnny Pemberton, Horror
+
+Thu, 09 Apr 2026 19:18:09 GMT
+
+https://collider.com/mermaid-movie-review-johnny-pemberton/
+
+Superstore and Fallout star Johnny Pemberton leads an underwhelming horror-comedy that feels lost at sea.
+---------
+
+# Alan Ritchson's Dream Video Game Movie Is Officially Happening
+
+Movie News, Metal Gear, Metal Gear Solid, Alan Ritchson, Sony
+
+Thu, 09 Apr 2026 19:10:07 GMT
+
+https://collider.com/metal-gear-solid-movie-sony-sci-fi-video-game-adaptation-alan-ritchson-fan-casting/
+
+1 month after Alan Ritchson expressed desire to play the title character, a Metal Gear Solid movie is officially happening.
+---------
+
+# 'Final Destination: Bloodlines' Directors Tapped To Direct 'Metal Gear Solid' Film
+
+Movie News, metal gear solid
+
+Thu, 09 Apr 2026 19:51:39 GMT
+
+https://movieweb.com/metal-gear-solid-movie-final-destination/
+
+Directors Zach Lipovsky and Adam B. Stein have signed an exclusive first-look deal with Sony, with their first film being 'Metal Gear Solid.'
+---------
+
+# Netflix's 'Wednesday' Season 3 Casts Lena Headey & James Lance in Undisclosed Roles
+
+TV News, Wednesday, Netflix, Andrew McCarthy, Lena Headey
+
+Thu, 09 Apr 2026 19:03:34 GMT
+
+https://movieweb.com/wednesday-season-3-james-lance-lena-headey/
+
+'Ted Lasso' star James Lance and 'Game of Thrones' veteran Lena Headey will take on new roles for Netflix in 'Wednesday' Season 3.
+---------
+
+# 'Masters of the Universe' Rumor Sets Up the Return of Orko
+
+Features, Masters of the Universe
+
+Thu, 09 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/masters-of-the-universe-rumor-orko-griffin-newman/
+
+The 1987 'Masters of the Universe' left out Orko, but will he appear in the 2026 reboot, or is he being saved for a sequel?
+---------
+
+# Stephen King's Cult Classic Monster Thriller 'Cujo' Terrifies New Streaming Home
+
+Movie News, Cujo, Coming/Leaving Streaming
+
+Thu, 09 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/cujo-streaming-paramount-april-2026/
+
+The cult classic monster thriller 'Cujo' has arrived on its new streaming home, Paramount+.
+---------
+
 # The Testaments Officially Confirms June's Fate After The Handmaid's Tale's Ending
 
 TV, The Testaments, The Handmaid's Tale
