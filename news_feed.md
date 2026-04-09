@@ -1,3 +1,267 @@
+# Xbox Game Pass Is Getting A Surprise Sequel In May
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Thu, 09 Apr 2026 01:00:28 GMT
+
+https://screenrant.com/xbox-game-pass-may-2026-sequel/
+
+Fans are hyped for a surprise sequel coming in the near future, and the best part is that it'll be part of the Xbox Game Pass program.
+---------
+
+# Doctor Who Hasn't Had A Truly Great Season Finale Since Capaldi's Era
+
+Streaming TV, Doctor Who
+
+Thu, 09 Apr 2026 00:45:32 GMT
+
+https://screenrant.com/doctor-who-last-great-season-finale/
+
+Doctor Who has been fighting an uphill battle for several years now, with many of the recent season finales failing to capture the Doctor Who spark.
+---------
+
+# Streamer's New 10-Part Sci-Fi Comedy Series Debuts To Perfect Rotten Tomatoes Score Ahead Of Release
+
+TV, The Miniature Wife, The Miniature Wife - Season 1
+
+Thu, 09 Apr 2026 00:39:43 GMT
+
+https://screenrant.com/the-miniature-wife-season-1-rotten-tomatoes-score-peacock/
+
+A streaming service's new 10-episode sci-fi comedy series debuts to a perfect score on Rotten Tomatoes ahead of its release on April 9.
+---------
+
+# Colin Farrell's Neo-Noir Mystery Series Sugar Expands In Season 2
+
+TV, Sugar
+
+Thu, 09 Apr 2026 00:30:32 GMT
+
+https://screenrant.com/colin-farrell-sugar-season-2-even-better/
+
+Colin Farrell has always had a penchant for crime thrillers, but this TV series could become his best work in the genre during its second season.
+---------
+
+# The MCU Is Finally Set To Answer A Question Marvel Has Been Avoiding For 8 Years
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Thu, 09 Apr 2026 00:00:36 GMT
+
+https://screenrant.com/daredevil-born-again-iron-fist-mcu-question-powers-answer/
+
+The MCU is bringing back several characters in Daredevil: Born Again, and it can finally address an 8-year-old question from a Netflix series.
+---------
+
+# When Abbott Elementary Will Finally Reveal Mr. Johnson’s Mysterious First Name Teased By Star
+
+TV, Abbott Elementary
+
+Wed, 08 Apr 2026 23:43:35 GMT
+
+https://screenrant.com/abbott-elementary-mr-johnson-first-name-mystery-reveal-william-stanford-davis-response/
+
+EXCLUSIVE: Mr. Johnson's first name is a mystery five seasons in, but actor William Stanford Davis has an idea of when it will finally be revealed.
+---------
+
+# 8 Iconic Anime That Are Turning 25 Years Old in 2026
+
+Anime
+
+Thu, 09 Apr 2026 01:25:24 GMT
+
+https://www.cbr.com/best-anime-turning-25-in-2026/
+
+A quarter-century later, these beloved anime are still as incredible as they were when they debuted in 2001.
+---------
+
+# 15 Best Wayans Brothers' Films, Ranked
+
+Movies, Scary Movie
+
+Thu, 09 Apr 2026 01:00:20 GMT
+
+https://www.cbr.com/best-wayans-brothers-movies-ranked/
+
+The Wayans Brothers produced some of the most irreverent comedy films of the 1990s and 2000s.
+---------
+
+# 10 Sega Genesis Games That Are 10/10, No Notes
+
+Games, Sonic the Hedgehog, Yu Yu Hakusho, X-Men, Sega Genesis
+
+Thu, 09 Apr 2026 00:45:25 GMT
+
+https://www.cbr.com/perfect-sega-genesis-games-flawless-start-to-finish/
+
+Many Sega Genesis games are still flawless, must-play titles in 2026.
+---------
+
+# Vagabond Is Still Begging for an Anime Adaptation in 2026
+
+Anime, Manga, Vagabond
+
+Thu, 09 Apr 2026 00:30:21 GMT
+
+https://www.cbr.com/vagabond-manga-deserves-anime-series-2026/
+
+The greatest manga ever written is still waiting for an anime adaptation decades later.
+---------
+
+# 10 Years Later, This American Horror Story Season Isn't as Bad as You Remember
+
+TV, American Horror Story, Horror
+
+Thu, 09 Apr 2026 00:30:21 GMT
+
+https://www.cbr.com/american-horror-story-roanoke-better-than-you-remember/
+
+It’s been nearly a decade since a controversial American Horror Story season premiered, and it doesn’t deserve all the hate it got upon release.
+---------
+
+# James Gunn Targets Alien: Earth, Andor Stars for Superman 2 Villain After Denying Rumors
+
+Movies, DCU, DC Comics, Superman
+
+Thu, 09 Apr 2026 00:22:53 GMT
+
+https://www.cbr.com/james-gunn-targets-alien-earth-andor-stars-for-superman-2-villain-after-denying-rumors/
+
+Two of the biggest streaming stars on the planet are being targeted by James Gunn to take on Superman.
+---------
+
+# NCIS Season 23 Quietly Confirms Timothy McGee's Replacement
+
+TV, NCIS, CBS
+
+Thu, 09 Apr 2026 00:18:21 GMT
+
+https://www.cbr.com/ncis-season-23-confirm-timothy-mcgee-replacement-curtis-hubley/
+
+CBS silently indicates its chosen successor for Sean Murray's character as the 500th episode of NCIS ushers in massive potential for Timothy McGee.
+---------
+
+# Solo Leveling Season 3 Will Be the Anime's Final Season
+
+Anime, Solo Leveling
+
+Thu, 09 Apr 2026 00:15:21 GMT
+
+https://www.cbr.com/solo-leveling-season-3-anime-movie-manhwa-chapter-analysis/
+
+If and when the rumored Solo Leveling movie comes out, there will only be enough canonical material in Jinwoo’s story for one last anime season.
+---------
+
+# Sailor Moon's Naoko Takeuchi Appears in New Artwork for Surprise Update
+
+Anime, Sailor Moon, Hunter X Hunter
+
+Thu, 09 Apr 2026 00:06:23 GMT
+
+https://www.cbr.com/sailor-moon-naoko-takeuchi-crossover-art-hunter-x-hunter/
+
+A new crossover illustration has been revealed featuring characters from the Sailor Moon franchise.
+---------
+
+# Avengers: Doomsday Finally Has An Out To Its Dune 3 Showdown
+
+Movies, Avengers: Doomsday, Jumanji 4, Dune: Part Three
+
+Thu, 09 Apr 2026 00:00:29 GMT
+
+https://www.cbr.com/avengers-doomsday-dune-3-release-date-change/
+
+Avengers: Doomsday is set to face off against Dune: Part Three this Christmas, but there may be a chance for Avengers to thrive on its own.
+---------
+
+# 10 Most Original Movies Released Since Christopher Nolan's 'Memento'
+
+Movie, Memento, Christopher Nolan, Mulholland Drive, Everything Everywhere All at Once
+
+Thu, 09 Apr 2026 01:03:24 GMT
+
+https://collider.com/most-original-movies-since-memento/
+
+Mulholland Drive, Spirited Away, and Everything Everywhere All at Once are among the most original movies since Christopher Nolan's landmark Memento.
+---------
+
+# Say Goodbye to Taylor Sheridan’s 10/10 Crime Masterpiece on Netflix
+
+Movie News, Taylor Sheridan, Sicario, Denis Villeneuve, Netflix
+
+Thu, 09 Apr 2026 01:00:19 GMT
+
+https://collider.com/taylor-sheridan-crime-thriller-sicario-leaving-netflix-april-30-2026/
+
+Discover the story behind Taylor Sheridan's acclaimed crime thriller Sicario, starring Emily Blunt, as it prepares to leave Netflix. Read on for more.
+---------
+
+# 25 Years Later, These Remain the Most Addictive Historical Action Movies of All Time
+
+Movie Features, The Mummy, Rachel Weisz, Brendan Fraser, John Hannah
+
+Thu, 09 Apr 2026 00:31:29 GMT
+
+https://collider.com/the-mummy-rachel-weisz-cult-classic-streaming-on-hbo-max/
+
+The Mummy is an action-adventure film with heart about a ragtag crew who accidentally raise an ancient evil in 1920s Egypt.
+---------
+
+# Apple TV Officially Confirms a Fan-Favorite Character's Fate for Hit 'Ted Lasso' Replacement's Fourth Season
+
+TV News, Apple TV, Comedy, Shrinking, Harrison Ford
+
+Thu, 09 Apr 2026 00:30:23 GMT
+
+https://collider.com/apple-tv-shrinking-season-4-harrison-ford-return-confirmed-bill-lawrence/
+
+Shrinking creator Bill Lawrence has officially confirmed the return of your favorite character for the fourth season. Read on for more.
+---------
+
+# Alfred Hitchcock's 10 Most Suspenseful Masterpieces, Ranked
+
+Movie, Alfred Hitchcock, Psycho, Classics, Thriller
+
+Thu, 09 Apr 2026 00:17:23 GMT
+
+https://collider.com/alfred-hitchcock-suspenseful-movies-ranked/
+
+Classics like Psycho, Rear Window, and Vertigo all rank among the best, most suspenseful movie masterpieces directed by Alfred Hitchcock.
+---------
+
+# The Duffer Brothers' Sci-Fi 'Stranger Things' Follow-Up Premieres Next Month
+
+TV News, The Boroughs, Duffer Brothers, Netflix, Sci-Fi
+
+Thu, 09 Apr 2026 00:00:30 GMT
+
+https://collider.com/duffer-brothers-sci-fi-stranger-things-follow-up-the-boroughs-netflix-release-date-may-21-2026/
+
+The Duffer Brothers are returning to sci-fi following the conclusion of their hit Netflix series, Stranger Things. Get all the details.
+---------
+
+# The Scrubs 'Revival's Dr. Cox Twist Sets Up Expanded John C. McGinley Role in Season 2
+
+Features, Scrubs
+
+Thu, 09 Apr 2026 00:30:31 GMT
+
+https://movieweb.com/scrubs-revival-season-2-dr-cox-tease/
+
+"My Odds" brings John C. McGinley back as Dr. Cox for the first time in weeks, setting up an emotional 'Scrubs' future.
+---------
+
+# 'Superman' Sequel Reportedly Testing Adria Arjona and Sydney Chandler as Maxima
+
+Movie News, Man of Tomorrow, Superman, Adria Arjona, Sydney Chandler
+
+Wed, 08 Apr 2026 23:31:37 GMT
+
+https://movieweb.com/superman-maxima-adria-arjona-sydney-chandler/
+
+This new shortlist of names comes only hours after James Gunn debunked other actors in the running.
+---------
+
 # 9 Broadway Musicals You Can Stream At Home After Merrily We Roll Along
 
 Movies, Merrily We Roll Along
