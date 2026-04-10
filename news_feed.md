@@ -1,3 +1,234 @@
+# Malcolm In The Middle's Disney+ Revival Gave One Of Its Stars The Ultimate Career Opportunity
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle: Life's Still Unfair - Season 1, Malcolm in the Middle, Kiana Madeira, Disney+
+
+Fri, 10 Apr 2026 18:00:18 GMT
+
+https://screenrant.com/malcolm-in-the-middle-revival-kiana-madeira-ultimate-career-opportunity/
+
+Kiana Madeira talks Malcolm in the Middle: Life's Still Unfair, being a fan of the original and how the revival gave her an ultimate career chance.
+---------
+
+# 8 Long-Running British Murder Mystery Shows That Define The Genre
+
+Classic TV
+
+Fri, 10 Apr 2026 17:46:19 GMT
+
+https://screenrant.com/long-running-british-murder-mysteries-define-genre/
+
+While the British have produced a huge range of cozy and gritty murder mystery shows, only a handful have ever made it past the 10-season mark.
+---------
+
+# 6 Best Adaptations Of Hamlet, Ranked By Lead Performance
+
+Movies, Hamlet
+
+Fri, 10 Apr 2026 17:46:19 GMT
+
+https://screenrant.com/hamlet-adaptations-ranked-best-lead-performance/
+
+Several of the best actors in history have immersed themselves in Shakespeare’s most popular character, including in these stunning adaptations.
+---------
+
+# Confirmed New James Bond Contender Would Be The Youngest 007 Ever
+
+Movies, Bond 26, James Bond
+
+Fri, 10 Apr 2026 17:38:45 GMT
+
+https://screenrant.com/james-bond-actor-louis-partridge-young-report-rumors/
+
+A new James Bond contender has officially been confirmed by a report, and he would be the youngest 007 to ever take on the role of the superspy.
+---------
+
+# Stephen King-Approved Horror Series Passes Massive Streaming Milestone Ahead Of Long-Awaited Return
+
+TV, From
+
+Fri, 10 Apr 2026 17:36:57 GMT
+
+https://screenrant.com/from-mgm-plus-streaming-charts-milestone/
+
+Ahead of the release of its long-awaited new season, a horror show with Stephen King's stamp of approval has just passed a major streaming milestone.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (#1 Is Sci-Fi Epic With Futuristic Visuals)
+
+Movies, Disney+, Recommendation
+
+Fri, 10 Apr 2026 17:36:54 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-april-11/
+
+Subscribers looking for a movie on Disney+ this weekend will find great options in the form of an action thriller, a classic, and a Sci-Fi epic.
+---------
+
+# Apple TV Just Delivered The Most Impactful Death Sequence I’ve Seen In A Sci-Fi Show Ever
+
+Streaming TV, For All Mankind
+
+Fri, 10 Apr 2026 17:30:20 GMT
+
+https://screenrant.com/for-all-mankind-apple-tv-sci-fi-ed-baldwin-death/
+
+Sci-fi shows are grounded in fantasy, which can lead to moments when characters expire feeling slightly disconnected, but Apple TV nailed it.
+---------
+
+# Netflix's New 8-Part Crime Comedy Steals A Top Spot On Streaming Charts
+
+TV, Masked Recs
+
+Fri, 10 Apr 2026 17:23:54 GMT
+
+https://screenrant.com/big-mistakes-netflix-show-streaming-success-april-2026/
+
+Netflix's new eight-episode crime comedy steals a top spot on the streaming service's charts in the United States shortly after its release.
+---------
+
+# Why Person Of Interest Killed Off Detective Carter In Season 3
+
+Streaming TV, Person of Interest
+
+Fri, 10 Apr 2026 17:15:22 GMT
+
+https://screenrant.com/person-interest-carter-death-taraji-henson-explained/
+
+One of the biggest moments in CBS' Person of Interest was when it killed off Carter (Taraji P. Henson) in season 3. Here's why it happened.
+---------
+
+# Pokémon Champions Review: Not Quite Champion Material
+
+Gaming, Pokemon Champions, Triple-A Games
+
+Fri, 10 Apr 2026 17:13:35 GMT
+
+https://screenrant.com/pokemon-champions-review/
+
+Billed as a battle-first game, Pokémon Champions has a lot of potential, but it's not being utilized to the fullest during the game's launch.
+---------
+
+# DC Comics Created Its Most Underrated Universe That Everyone Forgot About
+
+Comics, DC Comics, Batman, Doc Savage
+
+Fri, 10 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/dc-comic-first-wave-underrated-universe/
+
+Just as DC Comics was gearing up to reboot its entire continuity, the company created a universe that honored the days of pulp magazine heroes.
+---------
+
+# Nicolas Cage’s Lord of War Sequel Finally Gets Release Date
+
+Movies, Lord of War, Nicolas Cage
+
+Fri, 10 Apr 2026 17:35:26 GMT
+
+https://www.cbr.com/nicolas-cage-lord-of-war-sequel-release-update/
+
+Nicolas Cage's sequel to Lord of War finally gets its official release update.
+---------
+
+# Paramount Dismantling Star Trek After a Historic Streaming Run Makes Even Less Sense Now
+
+TV, Star Trek, Star Trek: Picard, 12 Monkeys, Paramount
+
+Fri, 10 Apr 2026 17:30:11 GMT
+
+https://www.cbr.com/paramount-terry-matalas-star-trek-decision-makes-even-less-sense-now/
+
+Amid debt woes and the Warner Bros. deal, Paramount dismantling Star Trek makes less sense because they let a producer who knew how to save money go.
+---------
+
+# X-Men Reboot Eyes Marty Supreme & Game of Thrones Stars as Key Characters
+
+Movies, MCU, Marvel, X-Men, X-Men '97, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Fri, 10 Apr 2026 17:24:44 GMT
+
+https://www.cbr.com/x-men-reboot-rogue-beast-report/
+
+The X-Men are eyeing Odessa A’zion and Peter Claffey to become two of the most important characters in their MCU reboot.
+---------
+
+# It's Officially a New Era for Zelda and Nintendo in 2026
+
+Games, The Legend of Zelda
+
+Fri, 10 Apr 2026 17:16:12 GMT
+
+https://www.cbr.com/zelda-new-era-nintendo-2026-ocarina-remake/
+
+The Zelda franchise has gone through many eras over the years, but everything is about to change for the Nintendo hit.
+---------
+
+# Keanu Reeves' Box Office Flop Good Fortune Surges on Prime Video
+
+Movies, Good Fortune, Comedy, Fantasy
+
+Fri, 10 Apr 2026 17:12:40 GMT
+
+https://www.cbr.com/keanu-reeves-good-fortune-fantasy-comedy-prime-video-success-april-2026/
+
+Keanu Reeves' fantasy-comedy Good Fortune is a global streaming hit on Prime Video after underperforming at the box office.
+---------
+
+# 43 Years Later, No TV Finale Has Matched This Show’s Colossal 106M Viewers
+
+TV Features
+
+Fri, 10 Apr 2026 17:28:12 GMT
+
+https://collider.com/mash-finale-goodbye-farewell-amen-viewership-record-106m/
+
+Why M*A*S*H’s 106M-viewer finale remains unmatched—and why modern TV will likely never recreate that moment.
+---------
+
+# Apple TV's New Sci-Fi Thriller Just Levelled-Up With a Massive New Star
+
+TV News, Apple TV, Task, Tom Pelphrey, Sci-Fi
+
+Fri, 10 Apr 2026 17:14:12 GMT
+
+https://collider.com/apple-tv-sci-fi-thriller-liminal-cast-task-star-tom-pelphrey/
+
+Apple TV's upcoming sci-fi thriller based on J. Michael Straczynski's graphic novel adds a Task star to its cast. Get all the details.
+---------
+
+# Guy Ritchie's 'The Gentlemen' Has One of the Best Casts on TV & No One Is Talking About It
+
+Features, Guy Ritchie, The Gentlemen
+
+Fri, 10 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/guy-ritchie-the-gentlemen-great-cast/
+
+Combining dark humor with a sharply written, layered crime narrative, it was praised for its sleek, stylish visuals and unexpected twists.
+---------
+
+# Christian Bale & Mark Wahlberg's Boxing Movie 'The Fighter' Is Now Streaming on Peacock
+
+Movie News, The Fighter, Peacock, Coming/Leaving Streaming
+
+Fri, 10 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/the-fighter-best-boxing-movie-streaming-peacock-april-2026/
+
+Christian Bale's masterpiece boxing movie 'The Fighter' which is as good as 'Rocky' is now streaming on Peacock.
+---------
+
+# Marvel Movies That Flopped at the Box Office
+
+Movie Lists, MCU
+
+Fri, 10 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/marvel-movies-biggest-flops/
+
+Marvel may be a behemoth on the screen, but that does not mean all its movies are guaranteed successes.
+---------
+
 # Why For All Mankind Season 5 Kills Off THAT Major OG Character In Episode 3 Detailed By Star
 
 TV, For All Mankind, For All Mankind - Season 5, Apple TV
