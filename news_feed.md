@@ -1,3 +1,278 @@
+# Why For All Mankind Season 5 Kills Off THAT Major OG Character In Episode 3 Detailed By Star
+
+TV, For All Mankind, For All Mankind - Season 5, Apple TV
+
+Fri, 10 Apr 2026 17:07:32 GMT
+
+https://screenrant.com/for-all-mankind-season-5-ed-death-joel-kinnaman-explanation/
+
+For All Mankind season 5, episode 3 delivers the shocking death of an original fan-favourite character, as the series original star weighs in.
+---------
+
+# Surprise Sequel Leaked Ahead Of Next State Of Play
+
+Gaming, State of Play, Metro Exodus, Triple-A Games
+
+Fri, 10 Apr 2026 17:07:25 GMT
+
+https://screenrant.com/metro-exodus-sequel-reveal-leak-state-of-play/
+
+Rumors are swirling about an imminent PlayStation State of Play, and now one of its major reveals may have been leaked, a highly anticipated sequel.
+---------
+
+# Amazon Officially Phases Out Popular Ad-Free Streaming Service Plan
+
+Movies, Prime Video
+
+Fri, 10 Apr 2026 17:00:31 GMT
+
+https://screenrant.com/amazon-prime-video-ad-free-service-ends/
+
+Prime Video is changing its ad-free tier, but not everyone is happy, as the phase-out of a popular streaming service plan could lead to fallout.
+---------
+
+# Dewey’s Malcolm In The Middle Revival Story Was Written Specifically To Get OG Actor Out Of Retirement
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle: Life's Still Unfair - Season 1, Malcolm in the Middle
+
+Fri, 10 Apr 2026 16:48:55 GMT
+
+https://screenrant.com/malcolm-in-the-middle-revival-dewey-story-erik-per-sullivan-retirement-return-hopes/
+
+EXCLUSIVE: The Malcolm in the Middle: Life’s Still Unfair producers reveal the efforts they took to try to get Erik Per Sullivan back for the revival.
+---------
+
+# The MCU Is Telling The Same Punisher Story For The Third Time
+
+Streaming TV, The Punisher: One Last Kill
+
+Fri, 10 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/punisher-one-last-kill-mcu-same-story-netflix-show/
+
+The Punisher has been stomping around New York City since 2016, but over the course of a decade, the character appears to be stuck in a loop.
+---------
+
+# Jane Foster Thor and Wonder Woman Meet for the First Time
+
+Comics, DC Comics, Wonder Woman, Jane Foster, Marvel
+
+Fri, 10 Apr 2026 16:42:31 GMT
+
+https://screenrant.com/wonder-woman-meet-mighty-thor-first-time/
+
+Some of the best female superheroes from both Marvel Comics and DC Comics officially meet in a crossover for the first time in history.
+---------
+
+# Thrash Ending Explained: Who Survives & Sequel Set Up
+
+New Movies, Thrash
+
+Fri, 10 Apr 2026 16:40:33 GMT
+
+https://screenrant.com/thrash-movie-ending-explained-sequel-setup/
+
+Thrash brings sharks into a stormy survival thriller on Netflix, with the ending setting up a sequel with the survivors. Here's what it all means.
+---------
+
+# Sydney Sweeney Suits Up As The MCU's Black Cat In New Spider-Man: Brand New Day Art
+
+Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Fri, 10 Apr 2026 16:35:19 GMT
+
+https://screenrant.com/sydney-sweeney-black-cat-mcu-spider-man-brand-new-day-art/
+
+After Madame Web, Sydney Sweeney suits up as Black Cat ahead of Spider-Man: Brand New Day, with the new MCU art allowing Felicia Hardy to shine.
+---------
+
+# Sydney Sweeney's New R-Rated Thriller Sets All-Time Streaming Record Amid Major Franchise Update
+
+Movies, The Housemaid, Sydney Sweeney
+
+Fri, 10 Apr 2026 16:33:04 GMT
+
+https://screenrant.com/the-housemaid-starz-streaming-record/
+
+Sydney Sweeney's hit new thriller adaptation has finally landed on streaming and is smashing more records ahead of its upcoming sequel.
+---------
+
+# The Yeti Review: Defanged Creature Feature Offers Very Little Tension Or Fun
+
+New Movies, The Yeti, Horror
+
+Fri, 10 Apr 2026 16:33:00 GMT
+
+https://screenrant.com/the-yeti-2026-movie-review/
+
+Gene Gallerano and William Pisciotta's The Yeti starts off on such a promising and energetic hook before devolving into a tonal misfire.
+---------
+
+# Netflix Cancels New Millie Bobby Brown Movie Perfect
+
+Movies, Netflix
+
+Fri, 10 Apr 2026 17:00:24 GMT
+
+https://www.cbr.com/netflix-cancels-millie-bobby-brown-perfect/
+
+Millie Bobby Brown gets some bad news following the end of her run as Eleven on Stranger Things.
+---------
+
+# Sydney Sweeney's R-Rated Thriller The Housemaid Sets Starz All-Time Streaming Record
+
+Movies, The Housemaid
+
+Fri, 10 Apr 2026 16:58:09 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-starz-streaming-record/
+
+After stellar box office run, the R-rated film continued to dominate digital and streaming platforms.
+---------
+
+# Taylor Sheridan's Gritty 5-Part Crime Show Reveals New Final Season Villain
+
+TV, Mayor of Kingstown
+
+Fri, 10 Apr 2026 16:42:58 GMT
+
+https://www.cbr.com/mayor-of-kingstown-nestor-carbonell-cast-final-season-villain/
+
+A veteran actor, whose credits include Lost and Pulse, joins the cast of Taylor Sheridan's long-running Paramount+ crime show in a key recurring role.
+---------
+
+# Steam Users Can Claim Graveyard Keeper for Free
+
+Games, Steam
+
+Fri, 10 Apr 2026 16:40:18 GMT
+
+https://www.cbr.com/graveyard-keeper-free-steam-april-2026/
+
+An overlooked gem is free to claim on Steam for just a few more days.
+---------
+
+# Animal Crossing Officially Reveals New Surprise Release Coming This April
+
+Games, Animal Crossing, Nintendo
+
+Fri, 10 Apr 2026 16:35:12 GMT
+
+https://www.cbr.com/animal-crossing-new-release-april-2026-makeup-collection/
+
+Animal Crossing fans might be eagerly awaiting a new game on Nintendo Switch 2, but some brand-new items are being released based on the franchise.
+---------
+
+# One Piece: Imu’s Devil Fruit Powers, Explained
+
+Anime, One Piece
+
+Fri, 10 Apr 2026 16:35:12 GMT
+
+https://www.cbr.com/one-piece-imu-devil-fruit-powers-explained/
+
+The Devil Fruit to end all Devil Fruits has officially been revealed as of One Piece's latest chapter.
+---------
+
+# Most Powerful Yu Yu Hakusho Characters, Ranked
+
+Anime, Yu Yu Hakusho, shonen anime, Shonen
+
+Fri, 10 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/yu-yu-hakusho-most-powerful-characters-ranked/
+
+From humans and demons to spirit guides and even gods, YYH was host to some of the most powerful characters in anime.
+---------
+
+# Is The Watcher in Daredevil: Born Again?
+
+TV, MCU, Marvel, Daredevil, Daredevil: Born Again, What If...?
+
+Fri, 10 Apr 2026 16:28:59 GMT
+
+https://www.cbr.com/the-watcher-marvel-daredevil-born-again/
+
+This would be historic and epic for Marvel and Daredevil — if it's true The Watcher was spotted in an episode of Daredevil: Born Again.
+---------
+
+# This Hunger Games Star Reveals the On-Set Ritual That Helped Shape 'Sunrise on the Reaping'
+
+Exclusives, Thrash, The Hunger Games: Sunrise on the Reaping, Highlander, Netflix
+
+Fri, 10 Apr 2026 17:10:12 GMT
+
+https://collider.com/the-hunger-games-sunrise-on-the-reaping-update-whitney-peak-thrash/
+
+Phoebe Dynevor, Whitney Peak and Djimon Hounsou talk fighting sharks in Thrash, Hunger Games: Sunrise on the Reaping and Highlander's stunning action.
+---------
+
+# 10 Best Albums of the 1970s, Ranked
+
+Music Features, Pink Floyd, Bruce Springsteen, David Bowie, Led Zeppelin
+
+Fri, 10 Apr 2026 17:05:13 GMT
+
+https://collider.com/best-1970s-albums-ranked/
+
+There were so many incredible albums released in the 1970s, with classics like Blondie's Parallel Lines and King Crimson's Red being some of the best.
+---------
+
+# ‘Gladiator’ Meets ‘Conan the Barbarian’ in 110-Minute Fantasy Revival Perfect for a Late-Night Binge
+
+Movie News, Red Sonja, HBO Max, Fantasy
+
+Fri, 10 Apr 2026 16:30:48 GMT
+
+https://collider.com/red-sonja-reboot-movie-streaming-success-april-2026/
+
+Gladiator meets Solomon Kane in the 110-minute fantasy cult classic revival that’s proving to be the perfect late-night watch.
+---------
+
+# New Sci-Fi Hit Officially Overtakes M. Night Shyamalan’s Alien Thriller at the Box Office With Major Milestone
+
+Movie News, Project Hail Mary, Ryan Gosling, Signs, M. Night Shyamalan
+
+Fri, 10 Apr 2026 16:21:13 GMT
+
+https://collider.com/project-hail-mary-box-office-overtakes-signs-m-night-shyamalan-highest-grossing-sci-fi-hit/
+
+Project Hail Mary has officially overtaken M. Night Shyamalan's most successful sci-fi movie, Signs, at the box office.
+---------
+
+# Netflix’s 'One Piece' Live-Action Series Dominates Nielsen's Streaming Charts
+
+TV News, One Piece
+
+Fri, 10 Apr 2026 16:43:15 GMT
+
+https://movieweb.com/netflix-one-piece-streaming-nielsen/
+
+Netflix's 'One Piece' series dominated the Nielsen streaming charts after the debut of the highly anticipated second season.
+---------
+
+# Amanda Seyfried Cast as Cinderella in Netflix's 'Steps'
+
+Movie News, Steps, Netflix, Amanda Seyfried, Cinderella
+
+Fri, 10 Apr 2026 16:20:50 GMT
+
+https://movieweb.com/amanda-seyfried-cinderella-netflix-steps-cast/
+
+Amanda Seyfried has been cast as the voice of Cinderella in the Netflix animated film 'Steps,' joining "evil" stepsisters Ali Wong and Stephanie Hsu.
+---------
+
+# 'Mayor of Kingstown' Season 5 Casts Emmy-Winner Nestor Carbonell
+
+TV News, Mayor of Kingstown, Nestor Carbonell
+
+Fri, 10 Apr 2026 16:16:58 GMT
+
+https://movieweb.com/mayor-of-kingstown-season-5-nestor-carbonell/
+
+Emmy-winning actor Nestor Carbonell will take on an exciting role in 'Mayor of Kingstown' Season 5 on Paramount+.
+---------
+
 # Millie Bobby Brown’s Netflix Sports Movie Officially Canceled After Star’s Surprise Exit
 
 Movies, Perfect
