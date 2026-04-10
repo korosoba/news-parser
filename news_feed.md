@@ -1,3 +1,245 @@
+# Resident Alien Officially Returns for Official "Grand Finale" Ending
+
+Comics, Resident Alien
+
+Fri, 10 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/resident-alien-return-ending/
+
+Resident Alien is getting a second shot at its series finale with an upcoming new comic by Dark Horse.
+---------
+
+# Final Fantasy 7 Officially Returns With New Release For OG Fans
+
+Gaming, Final Fantasy 7, Triple-A Games
+
+Fri, 10 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/final-fantasy-7-april-2026-new-release/
+
+The original Final Fantasy 7 is still a stone-cold classic, even if the Remake trilogy is currently taking the spotlight in the modern era.
+---------
+
+# Daredevil: Born Again Season 2 Finally Removes The Biggest Netflix Plot Hole
+
+Streaming TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Fri, 10 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-vanessa-death-fisk-matt-deal/
+
+A big plot hole from Netflix’s Daredevil was ignored in Born Again season 1, but the second season addresses this by removing it entirely.
+---------
+
+# Mark Walhberg’s Biographical Crime Thriller Lands 2026 Release Date
+
+Movies, By Any Means, Mark Wahlberg
+
+Fri, 10 Apr 2026 22:58:08 GMT
+
+https://screenrant.com/mark-wahlberg-by-any-means-movie-2026-release-date-revealed/
+
+Paramount Pictures has acquired the upcoming Mark Wahlberg-led crime thriller and the company just revealed the film's release date..
+---------
+
+# Netflix’s New 8-Part Crime Series With Near-Perfect Rotten Tomatoes Score Is Already One Of Its Best
+
+Streaming TV, Masked Recs
+
+Fri, 10 Apr 2026 22:47:20 GMT
+
+https://screenrant.com/netflix-big-mistakes-crime-series-watch/
+
+Netflix's new 8-part crime series 'Big Mistakes' has earned a near-perfect 95% Rotten Tomatoes score and is already a top trending streaming hit.
+---------
+
+# Star Trek Finally Solves A Big Worf Mystery That's Been Plaguing Fans For 3 Years
+
+Comics, Star Trek
+
+Fri, 10 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/str-trek-missing-enterprise-mystery-solved/
+
+At last!
+---------
+
+# Orphan Black: The Perfect Sci-Fi Starter Show
+
+Classic TV, Orphan Black, Sci-Fi
+
+Fri, 10 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/masterpiece-cloning-show-is-the-best-introduction-to-the-sci-fi-genre/
+
+A sci-fi masterpiece that ran from 2013 to 2017 blends together mystery and science in an accessible way, making it the perfect genre introduction.v
+---------
+
+# Netflix’s 40-Year-Old Fantasy Series Adaptation Plans Reportedly Cancelled
+
+Movies, Redwall, Netflix
+
+Fri, 10 Apr 2026 22:23:01 GMT
+
+https://screenrant.com/redwall-movie-show-netflix-franchise-plan-scrapped-report/
+
+Netflix's plans to adapt a beloved 40-year-old children's fantasy series have reportedly fallen through to the dismay of its fans.
+---------
+
+# Keanu Reeves' New Apple TV Comedy Outcome Debuts at No. 1 Despite Mixed Rotten Tomatoes Score
+
+Movies, Keanu Reeves, Outcome
+
+Fri, 10 Apr 2026 23:01:12 GMT
+
+https://www.cbr.com/keanu-reeves-outcome-comedy-apple-tv-success-april-2026/
+
+The star-studded film, which also features Cameron Diaz, is already a streaming hit.
+---------
+
+# Apple TV's Cape Fear Is the Streaming Event of the Century
+
+TV, Cape Fear, Apple TV
+
+Fri, 10 Apr 2026 23:01:12 GMT
+
+https://www.cbr.com/apple-tv-cape-fear-thriller-tv-event/
+
+In June, fans will witness the pure panic of a familiar story being adapted into a massive ten-episode television event by Apple TV.
+---------
+
+# The 10 Best Disney Movies That Walt Disney Made
+
+Movies, Disney
+
+Fri, 10 Apr 2026 23:01:12 GMT
+
+https://www.cbr.com/best-disney-movies-made-by-walt-disney/
+
+Walt Disney wasn't behind all Disney movies, but he was behind some of the best.
+---------
+
+# Assassin's Creed DLC Officially Free in April 2026
+
+Games, Assassin's Creed, Assassin's Creed Shadows
+
+Fri, 10 Apr 2026 22:59:50 GMT
+
+https://www.cbr.com/assassins-creed-dlc-free-april-2026/
+
+Now's the time for Assassin's Creed players to pick up a new freebie with no strings attached.
+---------
+
+# Blue Lock's Strongest Characters
+
+Anime, Blue Lock, shonen anime
+
+Fri, 10 Apr 2026 22:45:57 GMT
+
+https://www.cbr.com/strongest-blue-lock-characters/
+
+Blue Lock's most powerful soccer players are as ruthless as they are brilliant on the field.
+---------
+
+# Best Medicine Among Hulu's Top Watched Series
+
+TV, Best Medicine, Drama, fox
+
+Fri, 10 Apr 2026 22:09:09 GMT
+
+https://www.cbr.com/best-medicine-comedy-drama-success-hulu-april-2026/
+
+Fox's medical comedy-drama Best Medicine is a hit on Hulu after the first season finale.
+---------
+
+# 10 Years Later, Denis Villeneuve's 116-Minute Sci-Fi Gem Quietly Becomes a Late-Night Favorite
+
+Movie News, Arrival, Denis Villeneuve, Sci-Fi, Pluto TV
+
+Fri, 10 Apr 2026 23:00:13 GMT
+
+https://collider.com/denis-villeneuve-sci-fi-thriller-arrival-streaming-success-pluto-tv-april-2026/
+
+Denis Villeneuve's 116-minute sci-fi masterpiece Arrival is a streaming hit in the U.S. Read on for more details.
+---------
+
+# 12 Years Later, Russell Crowe's Forgotten Historical Thriller Sails Toward a New Streamer
+
+Movie News, Noah, Russell Crowe, Peacock, Emma Watson
+
+Fri, 10 Apr 2026 22:45:12 GMT
+
+https://collider.com/russell-crowe-historical-epic-noah-streaming-peacock-april-2026/
+
+12 years after a successful theatrical run, Russell Crowe's polarizing historical epic has made an unexpected streaming move. Find out how to watch.
+---------
+
+# 10 Forgotten '90s Anime Series That Nobody Remembers Today
+
+TV, Anime, Record Of Lodoss War, Animation, 1990s
+
+Fri, 10 Apr 2026 22:44:15 GMT
+
+https://collider.com/forgotten-90s-anime-shows/
+
+Discover forgotten '90s anime series that deserve a second chance for their compelling stories and unique styles, from Slayers to Gunsmith Cats.
+---------
+
+# The BBC Officially Confirms the New Season of Its 10/10 Crime Saga Is on the Way
+
+TV News, Shetland, BBC, Crime, Mystery
+
+Fri, 10 Apr 2026 22:30:12 GMT
+
+https://collider.com/bbc-british-crime-masterpiece-shetland-season-11-filming-start-april-2026/
+
+The BBC has officially confirmed production on Shetland Season 11 has begun. Read on for more details about the hit crime series.
+---------
+
+# All 12 Christopher Nolan Movies, Ranked by Entertainment Value
+
+Movie, The Dark Knight, Christopher Nolan, Interstellar, Inception
+
+Fri, 10 Apr 2026 22:19:12 GMT
+
+https://collider.com/christopher-nolan-movies-ranked-entertainment-value/
+
+Christopher Nolan has made a fair few entertaining movies, including Inception and The Dark Knight, but which film of his is the most fun to watch?
+---------
+
+# Paramount Officially Confirms Mark Wahlberg's Return to Crime Thrillers
+
+Movie News, Mark Wahlberg, Yahya Abdul-Mateen II, Giancarlo Esposito, By Any Means
+
+Fri, 10 Apr 2026 22:15:12 GMT
+
+https://collider.com/mark-wahlberg-yahya-abdul-mateen-ii-paramount-crime-thriller-by-any-means-release-date-september-4-2026/
+
+Mark Wahlberg and Yahya Abdul-Mateen II are officially teaming up for Paramount's new crime thriller, releasing this Fall.
+---------
+
+# Disney’s ‘Daredevil: Born Again’ Officially Hits a Bullseye With Colossal MCU Record
+
+TV News, Daredevil: Born Again, Charlie Cox, Vincent D'Onofrio, Disney+
+
+Fri, 10 Apr 2026 22:15:12 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-4-overtakes-loki-mcu-record-imdb-rating/
+
+Daredevil: Born Again, Season 2's best episode yet, has broken an all-time MCU rating record, becoming one of the franchise's highest-rated chapters.
+---------
+
+# 'Euphoria' Starring Sydney Sweeney Officially Returns in Two Days
+
+Features, Euphoria
+
+Fri, 10 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/euphoria-season-3-hbo-divisive/
+
+'Euphoria' Season 3, which stars Sydney Sweeney as Cassie Howard, returns to HBO on Sunday, April 12, 2026.
+---------
+
 # How Shudder's New Horror Reboot Brought New Life To An Infamous 48-Year Franchise
 
 Movies, Faces of Death, Horror, Shudder
