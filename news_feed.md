@@ -1,3 +1,278 @@
+# 12 Best Ships To Unlock In Starfield
+
+Gaming, Starfield, PC
+
+Fri, 10 Apr 2026 01:30:21 GMT
+
+https://screenrant.com/starfield-best-ships-unlock-locations/
+
+The best ships in Starfield combine large cargo capacities with strong weapon systems, shields, and more that you can unlock to best travel the stars.
+---------
+
+# Disney+’s 2-Part Fantasy Based On Iconic Book Series Will Introduce The Perfect Spin-Off In Season 3
+
+Streaming TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Fantasy, Disney+
+
+Fri, 10 Apr 2026 01:16:19 GMT
+
+https://screenrant.com/disney-percy-jackson-and-the-olympians-hunters-of-artemis-spinoff/
+
+Disney+'s two-part fantasy TV show will return for season 3, bringing with it a perfect spin-off idea that could create an epic TV universe.
+---------
+
+# The Pitt Season 2, Episode 14 Recap: Robby Finally Admits What We've Known All Season
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 10 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-14-ending-explained/
+
+Explore the mental health struggles of The Pitt's Dr. Robby and Dr. Al-Hashimi, including Robby's suicidal thoughts and Al-Hashimi's seizure disorder, in this revealing episode recap.
+---------
+
+# The Legend Of Zelda Meets Studio Ghibli In Jaw-Dropping New Open-World RPG
+
+Gaming, Steam, The Legend of Zelda: Breath of the Wild, Studio Ghibli
+
+Fri, 10 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/zelda-of-peaks-and-tides-open-world-rpg/
+
+Discover a magical world where Studio Ghibli visuals meet Zelda-style gameplay in Of Peaks and Tides, an upcoming open-world RPG for fans of both.
+---------
+
+# Wart's Future After Super Mario Bros Galaxy Movie Addressed By Luis Guzmán
+
+Movies, The Super Mario Galaxy Movie, Super Mario, Luis Guzman
+
+Fri, 10 Apr 2026 00:34:30 GMT
+
+https://screenrant.com/warts-future-after-super-mario-bros-galaxy-movie-addressed-by-luis-guzmn/
+
+Exclusive: Luis Guzmán discussed his character Wart's potential future in the Super Mario Galaxy universe, highlighting fans' excitement.
+---------
+
+# Star Trek Drops Massive Spock Lore Tease That Rewrites 44 Years Of Sci-Fi History
+
+Comics, Star Trek
+
+Fri, 10 Apr 2026 00:31:19 GMT
+
+https://screenrant.com/star-trek-spock-child-wife-rewrite-lore/
+
+He's a what?
+---------
+
+# Bruce Willis Action Thriller That Faced Major Production Troubles Is A Netflix Streaming Hit 33 Years Later
+
+Movies, Masked Recs
+
+Fri, 10 Apr 2026 00:30:44 GMT
+
+https://screenrant.com/bruce-willis-striking-distance-movie-streaming-success-netflix-april-2026/
+
+A Bruce Willis action thriller that faced major production troubles has become a big streaming hit on Netflix 33 years after its original release.
+---------
+
+# The Walking Dead's Successor: How The Last Of Us Surpassed Its Predecessor
+
+Classic TV, The Walking Dead, The Last of Us
+
+Fri, 10 Apr 2026 00:15:19 GMT
+
+https://screenrant.com/the-walking-dead-copy-last-of-us-successor/
+
+How The Last Of Us surpassed The Walking Dead as the gold standard of zombie-related TV, taking cues from its predecessor and reshaping the genre.
+---------
+
+# Marvel's Phase 6 Officially Crowns The Multiverse Saga's Best Villain
+
+Streaming TV, Daredevil: Born Again
+
+Fri, 10 Apr 2026 00:15:19 GMT
+
+https://screenrant.com/daredevil-born-again-bullseye-best-multiverse-saga-villain/
+
+The Multiverse Saga has been a rocky road, but the best villain of this era appears to be making waves in the MCU in a surprisingly big way.
+---------
+
+# The End Of Star Trek Series Confirmed: Strange New Worlds & Starfleet Academy Sets Torn Down
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Starfleet Academy
+
+Fri, 10 Apr 2026 00:14:09 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-starfleet-academy-sets-destroyed/
+
+Chances of saving Star Trek: Starfleet Academy or a Strange New Worlds spinoff are dashed as the sets for the USS Athena and Enterprise are torn down.
+---------
+
+# Readers Official Reveal Their Favorite Daredevil Series
+
+Comics, Daredevil, CSBG, DC/Marvel Character Tournament
+
+Fri, 10 Apr 2026 01:45:28 GMT
+
+https://www.cbr.com/daredevil-favorite-series-dc-marvel/
+
+It's the 17th annual CSBG DC/Marvel Tournament! This time around, you voted on your favorite DC and Marvel TV shows. See who won the tournament!
+---------
+
+# 7 Near-Perfect Sci-Fi Anime No One Remembers
+
+Anime, Sci-Fi
+
+Fri, 10 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/best-forgotten-sci-fi-anime/
+
+Despite their quality, outstanding sci-fi anime like Last Exile and Dennou Coil have mostly faded from memory.
+---------
+
+# 8 Most Underrated Square Enix Games, Ranked
+
+Games, Square Enix, JRPG
+
+Fri, 10 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/square-enix-most-overlooked-games-list/
+
+Square Enix is famous for Final Fantasy and Dragon Quest, but some of its games are surprisingly underrated.
+---------
+
+# 10 Greatest Nintendo Switch Games That Are Over Too Soon
+
+Games, Nintendo, Nintendo Switch
+
+Fri, 10 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/best-nintendo-switch-games-that-are-short/
+
+Some Nintendo Switch games have endless replayability, but titles like Princess Peach Showtime! are over too soon.
+---------
+
+# No Time to Die Set Up Daniel Craig’s James Bond Return
+
+Movies, James Bond
+
+Fri, 10 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/no-time-to-die-secretly-set-up-bond-007-return/
+
+The final Craig Bond film, No Time to Die, quietly set up the possibility of Daniel Craig's return as well as a fresh iteration of 007.
+---------
+
+# Star Trek's Smartest TNG Episode Is the Best Time-Travel Story in Sci-Fi TV History
+
+TV, Star Trek: The Next Generation, Star Trek, Sci-Fi
+
+Fri, 10 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/star-trek-tng-cause-and-effect-greatest-time-travel-episode/
+
+One Star Trek: TNG episode proved how clever time travel can be by building suspense and presenting a puzzle that sci-fi fans still talk about today.
+---------
+
+# Hololive’s Sakura Miko Officially Returns With New Limited Edition U.S. Release
+
+Anime, YouTube
+
+Fri, 10 Apr 2026 00:00:42 GMT
+
+https://www.cbr.com/hololive-sakura-miko-limited-edition-2026-release/
+
+Hololive’s beautiful shrine maiden, Sakura Miko, is finally back with a brand-new limited edition release for the U.S.
+---------
+
+# Jumanji 3 May Put Avengers: Doomsday's Box Office in Danger
+
+Movies, Jumanji: Welcome to the Jungle, Avengers: Doomsday, Jumanji
+
+Fri, 10 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/netflix-jumanji-avengers-doomsday-box-office-competition/
+
+Avengers: Doomsday will undoubtedly dominate at the box office, but if Netflix trends are any indication, it may have some new competition.
+---------
+
+# 10 Near-Perfect Medical Shows That Are (Almost) as Good as ‘The Pitt'
+
+TV, The Pitt, This Is Going To Hurt, ER, House
+
+Fri, 10 Apr 2026 01:24:13 GMT
+
+https://collider.com/medical-shows-almost-as-good-as-the-pitt/
+
+Code Black, House, Scrubs, Nurse Jackie, ER, and more make up our list of near-perfect medical shows that are almost as good as The Pitt.
+---------
+
+# With 1 Episode Left, 'The Pitt's Most Shocking Twist Yet Could End This Doctor's Career
+
+TV Features, The Pitt, Noah Wyle, Sepideh Moafi, HBO Max
+
+Fri, 10 Apr 2026 01:00:13 GMT
+
+https://collider.com/the-pitt-season-2-episode-14-al-hashimi-seizures-ending/
+
+Could the truth behind Dr. Al-Hashimi's mysterious moments on The Pitt Season 2 cost the senior attending her career?
+---------
+
+# Apple TV's 3-Part Comedy That Defined the Streamer Only Gets Better With Age
+
+TV Features, Ted Lasso, Apple TV, Jason Sudeikis, Comedy
+
+Fri, 10 Apr 2026 00:13:12 GMT
+
+https://collider.com/ted-lasso-apple-tv-best-comedy-defined-streamer/
+
+Ted Lasso has redefined Apple TV streaming with its heartfelt humor and emotional depth, exploring mental health and life's challenges.
+---------
+
+# 10 Diane Keaton Movies That Are True Masterpieces
+
+Movie, Something's Gotta Give, Annie Hall, Diane Keaton, The Godfather
+
+Fri, 10 Apr 2026 00:11:14 GMT
+
+https://collider.com/best-diane-keaton-movies/
+
+Annie Hall, The Godfather, and Something's Gotta Give are among the best, most essential movies starring the late, great Oscar winner Diane Keaton.
+---------
+
+# Hulu’s 6-Part Sci-Fi Masterpiece Is Officially Debuting on Netflix — But There’s a Catch
+
+TV News, The Handmaid's Tale, Elisabeth Moss, Hulu, Netflix
+
+Fri, 10 Apr 2026 00:00:12 GMT
+
+https://collider.com/the-handmaids-tale-dystopian-sci-fi-series-netflix-streaming-release-date-may-2026/
+
+One of the most addictive dystopian sci-fi thriller shows ever made, The Handmaid's Tale, is finally coming to Netfix in select regions.
+---------
+
+# 50 Years Later, Fleetwood Mac's Forgotten 1975 Love Song Hits 10x Harder
+
+Music Features, Fleetwood Mac, Stevie Nicks, Music, Rock
+
+Fri, 10 Apr 2026 00:00:12 GMT
+
+https://collider.com/fleetwood-mac-forgotten-1975-song-warm-ways/
+
+From Fleetwood Mac's 1975 breakout album, this overlooked deep cut reveals a softer side of the band that resonates more powerfully 50 years later.
+---------
+
+# 'Dexter: Resurrection' Season 2 Sets Up Charley As Its Lady Vengeance Replacement
+
+Features, Dexter: Resurrection
+
+Fri, 10 Apr 2026 00:00:18 GMT
+
+https://movieweb.com/dexter-resurrection-uma-thurman-lady-vengeance/
+
+Lady Vengeance was killed earlier than expected in 'Dexter: Resurrection', but one returning character could be a worthy replacement.
+---------
+
 # Forget Rogue One's Darth Vader, Maul Is Getting The Most Insane Star Wars Hallway Scenes
 
 Star Wars, Anakin Skywalker/Darth Vader, Rogue One: A Star Wars Story, Darth Maul, Star Wars: Maul - Shadow Lord
