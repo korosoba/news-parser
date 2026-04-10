@@ -1,3 +1,278 @@
+# How Shudder's New Horror Reboot Brought New Life To An Infamous 48-Year Franchise
+
+Movies, Faces of Death, Horror, Shudder
+
+Fri, 10 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/shudder-faces-of-death-reboot-franchise-new-life-goldhaber-mazzei-ferreira-montgomery/
+
+Daniel Goldhaber, Isa Mazzei, Barbie Ferreira and Dacre Mongtomery talk Shudder's Faces of Death and how it brings new life to the infamous franchise.
+---------
+
+# 10 Best New Released Comics This Week
+
+Comics, Marvel, DC Comics
+
+Fri, 10 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/10-best-new-released-comics-this-week/
+
+The week's best comics, ranked.
+---------
+
+# Forget Harry Potter, The Best Fantasy Show Of 2026 Is Already Streaming On Netflix
+
+Streaming TV, Harry Potter, One Piece
+
+Fri, 10 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/one-piece-season-2-best-fantasy-show-2026/
+
+Harry Potter and the Philosopher's Stone may be the most anticipated TV show of the year, but the best 2026 fantasy series is already streaming.
+---------
+
+# 8 GTA 6 Leaks That'd Ruin The Game If They Were True
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Fri, 10 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/grand-theft-auto-6-worst-leaks-ruin-game/
+
+Ahead of its release, several leaks surrounding Grand Theft Auto 6 are threatening to ruin the game outright if they're actually true.
+---------
+
+# The Original Taylor Sheridan Western Re-Surges Past All His New Shows On Streaming Charts
+
+TV, Masked Recs
+
+Fri, 10 Apr 2026 21:49:33 GMT
+
+https://screenrant.com/taylor-sheridan-western-show-yellowstone-streaming-success-charts/
+
+Taylor Sheridan's masterpiece Western series has now found new life on streaming as a global smash hit, surpassing his recent popular shows.
+---------
+
+# The One Piece Anime Studio Apologizes For AI Usage: Details Here
+
+Anime, One Piece
+
+Fri, 10 Apr 2026 21:40:42 GMT
+
+https://screenrant.com/wit-studio-ai-apology-one-piece-remake/
+
+The One Piece anime remake's studio, WIT Studio, faces a major AI scandal, sparking concerns about the future of anime production.
+---------
+
+# You, Me & Tuscany's Ending Has A Clear Winner In The Film's Love Triangle (& It's The Right Choice)
+
+Movies, You, Me & Tuscany
+
+Fri, 10 Apr 2026 21:31:20 GMT
+
+https://screenrant.com/you-me-and-tuscany-movie-ending-explained/
+
+Halle Bailey and Regé-Jean Page's new romantic comedy, You, Me & Tuscany, (kind of) features a love triangle—so who ultimately ends up together?
+---------
+
+# 2 Episodes In, The Boys Season 5 Completes Butcher's Transformation Into Homelander
+
+Streaming TV, The Boys
+
+Fri, 10 Apr 2026 21:31:20 GMT
+
+https://screenrant.com/the-boys-butcher-homelander-season-5-comparison/
+
+As The Boys progresses, Billy Butcher's journey keeps on getting darker, and he couldn't be any more like Homelander in season 5's opening episodes.
+---------
+
+# Dreams Ending Explained: Why Jessica Chastain's Dark Romance Ends With THAT Twist
+
+Movies, Dreams
+
+Fri, 10 Apr 2026 21:20:19 GMT
+
+https://screenrant.com/dreams-ending-explained/
+
+Dreams starts out as a desperate romance but gradually becomes a harrowing tragedy with a cutting thematic throughline about power and privilege.
+---------
+
+# Jessica Jones Becomes Spider-Man In Alternate Marvel Universe
+
+Marvel Comics, Spider-Man, Jessica Jones, Marvel
+
+Fri, 10 Apr 2026 21:16:51 GMT
+
+https://screenrant.com/jessica-jones-becomes-spider-man-marvel/
+
+Marvel presents a new version of Spider-Man that replaces Peter Parker with a fellow street-level hero and MCU star who just returned to live-action.
+---------
+
+# Freaky Is the Perfect Double Feature for Hulu's Mike & Nick & Nick & Alice
+
+Movies, Mike & Nick & Nick & Alice, Freaky
+
+Fri, 10 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/mike-nick-nick-alice-double-feature-freaky/
+
+If you loved Vince Vaughn's duplicated performance in Hulu's hit sci-fi action-comedy, check out this overlooked 2020 body-swapping slasher comedy.
+---------
+
+# 10 Best Male Leads in Anime That Are 100% Husband Material
+
+Anime
+
+Fri, 10 Apr 2026 22:00:09 GMT
+
+https://www.cbr.com/best-anime-male-leads-perfect-husband/
+
+The perfect husband may not exist, but there are plenty of male characters that are absolute husband material in anime.
+---------
+
+# Tom Cruise's $1.49B Sequel Top Gun: Maverick Smashes Massive Streaming Milestone on Paramount+
+
+Movies, Top Gun: Maverick
+
+Fri, 10 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/tom-cruise-top-gun-maverick-action-paramount-plus-milestone-april-2026/
+
+One of the hottest action films of the decade just reached a major streaming milestone as fans continue to wait for a follow-up feature.
+---------
+
+# 10 Things About the Godfather Trilogy That Make No Sense
+
+Movies, The Godfather
+
+Fri, 10 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/godfather-trilogy-things-that-dont-make-any-sense/
+
+There’s no denying the influence of The Godfather trilogy. However, being an adaptation, there are understandably several moments that don’t add up.
+---------
+
+# Tom Holland Calls Spider-Man: Brand New Day His 'Favorite' Movie Yet
+
+Movies, Marvel, MCU, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Homecoming, Spider-Man: Far from Home, Spider-Man: No Way Home
+
+Fri, 10 Apr 2026 21:11:24 GMT
+
+https://www.cbr.com/tom-holland-spider-man-brand-new-day-favorite-movie/
+
+Tom Holland says his fourth Spider-Man film in the MCU is the one that takes the cake.
+---------
+
+# Netflix's New 4-Part Crime Series Is Perfect From Start to Finish
+
+TV News, Netflix, True Crime, Documentary, Trust Me: The False Prophet
+
+Fri, 10 Apr 2026 22:00:12 GMT
+
+https://collider.com/trust-me-false-prophet-netflix-true-crime-thriller-streaming-success-april-2026/
+
+Netflix's heart-stopping new true-crime documentary series, Trust Me: The False Prophet, is an instant hit. Find out more here.
+---------
+
+# 10 Forgotten American Thriller Movies That Are Still Perfect Today
+
+Movie, The Stunt Man, Black Sunday, X: The Man with the X-Ray Eyes, The Desperate Hours
+
+Fri, 10 Apr 2026 21:59:12 GMT
+
+https://collider.com/forgotten-american-thriller-movies-perfect-today/
+
+American thrillers that aren't nearly as well-remembered as they deserve to be include The Stunt Man, The Narrow Margin, and Black Sunday.
+---------
+
+# 8 Single-Season Drama TV Masterpieces
+
+TV, Drama, TV Miniseries, Mare of Easttown, The Haunting of Hill House
+
+Fri, 10 Apr 2026 21:48:12 GMT
+
+https://collider.com/best-drama-tv-shows-one-season-list/
+
+The Haunting of Hill House, Mare of Easttown, Chernobyl, The Night Of, and more make up our list of the best single-season TV dramas.
+---------
+
+# '80s Horror Movies Were Near-Perfect in One Big Way
+
+Horror, Evil Dead II, Re-Animator, The Stuff, Chopping Mall
+
+Fri, 10 Apr 2026 21:48:12 GMT
+
+https://collider.com/80s-camp-horror-movies/
+
+The 1980s turned horror into camp perfection, where gore, comedy, and chaos collided to create a golden age of unforgettable genre films.
+---------
+
+# Forget Scream: These 7 Horror Movies Have Much Better Scares
+
+Movie, Scream, Horror, Final Destination, A Nightmare on Elm Street
+
+Fri, 10 Apr 2026 21:35:12 GMT
+
+https://collider.com/horror-movies-better-scares-than-scream/
+
+Scream might be a popular horror franchise of the genre, but movies like Final Destination and A Nightmare on Elm Street are arguably scarier.
+---------
+
+# The Best Dystopian Sci-Fi Franchise Drops Perfect First Look at 'Stranger Things' and 'Succession' Stars in New Prequel
+
+Movie News, The Hunger Games: Sunrise on the Reaping, Francis Lawrence
+
+Fri, 10 Apr 2026 21:28:36 GMT
+
+https://collider.com/hunger-games-prequel-movie-teaser-sunrise-on-the-reaping-legacy-characters-maya-hawke-elle-fanning/
+
+Watch a new teaser for The Hunger Games: Sunrise on the Reaping featuring a stunning first look at the return of several legacy characters.
+---------
+
+# 19 Years After 'Tombstone,' Val Kilmer Took on Another Western Legend With a 'Daredevil' Star
+
+Movie Features, Val Kilmer, Wyatt Earp's Revenge, Tombstone, Western
+
+Fri, 10 Apr 2026 21:05:12 GMT
+
+https://collider.com/val-kilmer-westerns-wyatt-earps-revenge-wilson-bethel/
+
+Roughly 20 years after the iconic Kurt Russell Western Tombstone, Val Kilmer played the titular role in the forgotten film Wyatt Earp's Revenge.
+---------
+
+# 'Scrubs' Revival Episode 9 Pays Tribute to the "My Lunch" & "My Fallen Idol" 2006 Two-Parter
+
+Features, Scrubs
+
+Fri, 10 Apr 2026 22:00:18 GMT
+
+https://movieweb.com/scrubs-revival-two-parter-homage/
+
+'Scrubs' just managed to reference two of the best classic-erc episodes at once, forming one of the revival's best installments to date.
+---------
+
+# First Reactions to 'Michael' Praise the Music Biopic
+
+Movie News, Michael
+
+Fri, 10 Apr 2026 21:58:47 GMT
+
+https://movieweb.com/michael-jackson-movie-first-reactions/
+
+Critics have shared their first reactions to 'Michael,' the new 2026 biopic telling the story of legendary musician Michael Jackson.
+---------
+
+# 'The Pitt' Season 3 Is Repeating Season 2’s Biggest Time Jump Mistake
+
+Features, The Pitt
+
+Fri, 10 Apr 2026 21:01:17 GMT
+
+https://movieweb.com/the-pitt-season-3-time-jump-mistake/
+
+'The Pitt' Season 3 will feature another time jump, according to Noah Wyle, who stars on the HBO Max medical drama as Dr. Robby.
+---------
+
 # Starfield Guides (Tips, Ships, Weapons, & More)
 
 Gaming, Starfield, PC
