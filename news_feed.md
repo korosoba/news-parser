@@ -1,3 +1,102 @@
+# Halo: Master Chief Collection Just Got A Major Update
+
+Gaming, Halo
+
+Fri, 10 Apr 2026 09:30:20 GMT
+
+https://screenrant.com/halo-master-chief-collection-april-2026-update/
+
+Halo: Master Chief Collection just rolled out a big update, and a lot of players are getting the ban hammer as a result.
+---------
+
+# GTA 6 PC Release Date Leak Confirms We're In For A Wait
+
+Gaming, Grand Theft Auto 6
+
+Fri, 10 Apr 2026 09:20:28 GMT
+
+https://screenrant.com/gta-6-pc-release-date-2027-leak/
+
+A recent report suggests that Grand Theft Auto VI will launch on PC in February 2027, just three months after its console release.
+---------
+
+# The Monsterverse Changes The Past - Monarch: Legacy Of Monsters Season 2, Episode 7 Ending Explained
+
+Streaming TV, Monarch: Legacy of Monsters, Monsterverse
+
+Fri, 10 Apr 2026 09:00:19 GMT
+
+https://screenrant.com/monarch-legacy-of-monsters-season-2-episode-7-ending-explained/
+
+Monarch: Legacy of Monsters season 2 just shook up the Godzilla and Kong franchise with its major time travel twist, while teasing a big death.
+---------
+
+# Hercules' Golden Mace Is Stronger Than Wolverine's Adamantium Claws
+
+CBR Exclusives, CSBG, Comic Book Questions Answered, Wolverine
+
+Fri, 10 Apr 2026 09:34:26 GMT
+
+https://www.cbr.com/wolverine-adamantium-claws-hercules-golen-mace-comparison/
+
+In their latest reader-submitted question, CSBG reveals whether Wolverine's adamantium claws are stronger than Hercules' adamantine mace.
+---------
+
+# John Wayne's Greatest Performance Was in a Movie Completely Unlike His Westerns
+
+Movie Features, John Wayne, John Ford, The Quiet Man, Drama
+
+Fri, 10 Apr 2026 09:41:18 GMT
+
+https://collider.com/john-wayne-greatest-performance-the-quiet-man/
+
+Though he might be known for his Western heroics, John Wayne's best performance is actually in The Quiet Man, a movie outside his comfort zone.
+---------
+
+# Prime Video's 5-Part Sci-Fi Superhero Series Officially Beats ‘Invincible’ at Its Own Game
+
+TV News, The Boys, Prime Video, Superhero, Sci-Fi
+
+Fri, 10 Apr 2026 09:30:12 GMT
+
+https://collider.com/prime-video-the-boys-final-season-5-sci-fi-superhero-series-streaming-success-april-2026/
+
+The final season of Prime Video's The Boys is finally here, and the smash-hit superhero show is already a resounding streaming success.
+---------
+
+# 3 Binge-Worthy Netflix Shows To Watch This Weekend
+
+TV, Netflix, Nobody Wants This, Interview with the Vampire, Resident Alien
+
+Fri, 10 Apr 2026 09:22:12 GMT
+
+https://collider.com/netflix-shows-binge-april-10/
+
+Nobody Wants This, Resident Alien, and Interview With the Vampire make up our list of the best Netflix shows to watch the weekend of April 10, 2026.
+---------
+
+# The Lord of the Rings Movies Made a Small Story Change That Still Annoys Me 23 Years Later
+
+Movie Features, The Lord of the Rings: The Return of the King, Peter Jackson, J.R.R. Tolkien, Fantasy
+
+Fri, 10 Apr 2026 09:13:13 GMT
+
+https://collider.com/lord-of-the-rings-return-of-the-king-sam-frodo-relationship/
+
+Peter Jackson's Lord of the Rings movie The Return of the King puts Sam and Frodo at odds, which doesn't improve upon Tolkien's material.
+---------
+
+# Sci-Fi Actress Confirms Devastating Twist in Apple TV's Best Series [Exclusive]
+
+TV News, Pluribus, Apple TV, Rhea Seehorn, Vince Gilligan
+
+Fri, 10 Apr 2026 09:01:12 GMT
+
+https://collider.com/pluribus-how-the-hive-mind-works-zosia-individuality-explained-karolina-wydra/
+
+Pluribus star Karolina Wydra discusses the complexities of the hive mind and the intricate relationship between Carol and Zosia.
+---------
+
 # Thrash Review: Netflix Shark Thriller Delivers B-Movie Fun
 
 New Movies, Thrash
