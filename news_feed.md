@@ -1,3 +1,300 @@
+# Why Exit 8 Is Such A Great Game Adaptation
+
+Movies, Exit 8
+
+Fri, 10 Apr 2026 19:21:18 GMT
+
+https://screenrant.com/exit-8-great-game-adaptation/
+
+Exit 8 doesn't just adapt the central concept of the video game that inspired it, but reimagines common video game mechanics as cinematic tools.
+---------
+
+# The Haunting Of Hill House: Netflix's Best Horror Show To Binge
+
+Classic TV, Masked Recs
+
+Fri, 10 Apr 2026 19:15:19 GMT
+
+https://screenrant.com/netflix-the-haunting-of-hill-house-best-horror-show-binge/
+
+Netflix is home to one of the best horror TV shows of all time, and it's so good that it's not only one of the best to binge but also to rewatch.
+---------
+
+# X-Men's Colossus Unleashes His Darkest Power Upgrade of All Time
+
+Comics, X-Men, Colossus, The Wolverine, Wolverine, Magik, Marvel
+
+Fri, 10 Apr 2026 19:03:44 GMT
+
+https://screenrant.com/x-men-colossus-new-powers-ultimate-universe/
+
+The Ultimate Wolverine series descends into horror with its finale comic as Colossus gets the darkest power updgrade that he has ever gotten.
+---------
+
+# Scarlett Johansson's Next Non-MCU Movie Shows Exactly How Black Widow Can Return
+
+Superheroes, Black Widow, Marvel Cinematic Universe, Scarlett Johansson
+
+Fri, 10 Apr 2026 19:00:21 GMT
+
+https://screenrant.com/scarlett-johansson-mcu-black-widow-return-ray-gunn/
+
+Hopes of Scarlett Johansson returning as Black Widow in the MCU remain, and the star's next non-Marvel movie could be the roadmap for how it happens.
+---------
+
+# Marvel's "Mysterious" New Superhero Is Officially Stronger Than the Red Hulk & the Avengers
+
+Marvel Comics, The Avengers, Red Hulk
+
+Fri, 10 Apr 2026 19:00:21 GMT
+
+https://screenrant.com/marvel-new-hero-stronger-red-hulk-avengers/
+
+Red Hulk's reign of terror across the globe must be stopped, but a mysterious new hero with unrivaled power emerges to level the playing field.
+---------
+
+# Netflix's 96% RT Fantasy Series Returns Next Month, And The Time To Binge Season 1 Is Now
+
+Streaming TV, Devil May Cry
+
+Fri, 10 Apr 2026 19:00:21 GMT
+
+https://screenrant.com/devil-may-cry-netflix-season-2-return-binge/
+
+Netflix's impressive library isn't short of some big fantasy shows, and this returning series is the violent hit everyone should be binging.
+---------
+
+# Prime Video's New Crime Thriller With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+Movies, Masked Recs
+
+Fri, 10 Apr 2026 18:47:11 GMT
+
+https://screenrant.com/prime-video-crime-101-thriller-movie-cast-best/
+
+Prime Video has a new crime thriller that is leading its global charts, and the movie boasts a star-studded cast that makes it a must-watch.
+---------
+
+# The Pitt Season 2, Episode 14 Is Noah Wyle At His Finest
+
+Streaming TV, The Pitt, The Pitt - Season 2, Noah Wyle
+
+Fri, 10 Apr 2026 18:45:24 GMT
+
+https://screenrant.com/the-pitt-season-2-noah-wyle-robby-emmy-performance/
+
+Actor Noah Wyle gives an emotionally raw and nuanced portrayal of a character struggling with depression and suicidal thoughts in the latest episode of The Pitt, delivering a standout performance in the series.
+---------
+
+# Finn Wolfhard’s First Official New TV Series Appearance After Stranger Things Explained By Malcolm In The Middle Creator
+
+TV, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Fri, 10 Apr 2026 18:33:35 GMT
+
+https://screenrant.com/finn-wolfhard-malcolm-in-the-middle-lifes-still-unfair-cameo-explained-creator-ep/
+
+EXCLUSIVE: Finn Wolfhard has officially left Hawkins behind for Malcolm in the Middle: Life's Still Unfair revival series as creators reveal how.
+---------
+
+# A Knight of the Seven Kingdoms: Rewriting Fantasy Show Rules
+
+Streaming TV, A Knight Of The Seven Kingdoms, Fantasy, Game of Thrones
+
+Fri, 10 Apr 2026 18:30:20 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-hbo-different-fantasy-show/
+
+This unexpected choice in HBO's medieval action series breaks the mold of modern fantasy shows, setting the stage for a new wave of TV.
+---------
+
+# Apple TV Event: Experience Your Favorite Shows Up Close at ‘Think Apple TV’
+
+TV, For All Mankind, Apple TV, Sci-Fi
+
+Fri, 10 Apr 2026 19:23:23 GMT
+
+https://www.cbr.com/apple-tv-fan-experience-for-all-mankind/
+
+Attend the free 'Think Apple TV' event at Westfield Century Mall to experience exhibits and displays based on popular Apple TV shows.
+---------
+
+# 10 Sega Genesis Games That Aren't As Good As You Remember
+
+Games, Sega Genesis, sega, retro games
+
+Fri, 10 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/throwback-sega-genesis-games-aged-badly-list/
+
+The Sega Genesis was home to many classic games, but titles like the original Sonic the Hedgehog haven't stood the test of time.
+---------
+
+# 18 Years Later, Robert Downey Jr.’s 94% RT Hit That Launched $32B Franchise Surges on Disney+
+
+Movies, Iron Man, Marvel Cinematic Universe, Disney+
+
+Fri, 10 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/robert-downey-jr-iron-man-superhero-disney-plus-success-april-2026/
+
+Audiences are revisiting an acclaimed Robert Downey Jr. movie on Disney+ ahead of the next installment in the $32 billion franchise.
+---------
+
+# Action-Packed Double Features That Pair With Netflix's KPop Demon Hunters
+
+Movies, KPop Demon Hunters, Animation, Netflix
+
+Fri, 10 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/double-features-pair-perfectly-kpop-demon-hunters/
+
+For an unbeatable movie night, no one can resist a double feature of KPop Demon Hunters followed by any of these 10 action-packed animated films
+---------
+
+# Netflix's Marianne Is a Horror Hidden Gem That Terrified Stephen King
+
+TV, Marianne, Netflix, Horror
+
+Fri, 10 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/netflix-marianne-scariest-horror-series/
+
+Horror shows get a masterclass with this terrifying supernatural Netflix series.
+---------
+
+# The Boys Season 5 Becomes Prime Video’s Most-Watched Show Worldwide
+
+TV, The Boys, Prime Video
+
+Fri, 10 Apr 2026 18:52:31 GMT
+
+https://www.cbr.com/the-boys-superhero-success-prime-video-april-2026/
+
+The Boys Season 5, Prime Video's biting superhero satire, quickly becomes the most-watched show globally after its premiere.
+---------
+
+# It's Officially the End of an Era for Star Trek
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Fri, 10 Apr 2026 18:41:39 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-sets-destroyed/
+
+The latest news on the state of Star Trek proves it's now unequivocal that an era of the franchise is officially over.
+---------
+
+# Japan Reveals the First No. 1 Anime of Spring 2026 in Official Streaming Rankings
+
+Anime, Classroom of the Elite
+
+Fri, 10 Apr 2026 18:35:54 GMT
+
+https://www.cbr.com/japan-first-top-anime-spring-2026-streaming-ranking-classroom-of-the-elite/
+
+Japan's latest official streaming rankings confirm which five anime shows have acquired the highest view counts for Spring 2026's debut week.
+---------
+
+# Star Wars Starkiller Actor Officially Teases Return in 2026
+
+Games, Star Wars, Star Wars: The Force Unleashed
+
+Fri, 10 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/star-wars-starkiller-return-comments-sam-witwer/
+
+One of Star Wars' biggest returning actors opens up about reprising one of his most beloved roles that is long overdue for a comeback.
+---------
+
+# The 15 Greatest Anime Series Ever Made, Ranked
+
+Anime, Cowboy Bebop, Demon Slayer
+
+Fri, 10 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/best-anime-series-ever-made-ranked-list/
+
+Dozens of anime are worth waching, but only a few classics can be described as the best anime ever made.
+---------
+
+# Netflix Finally Has This Fan-Favorite Horror Movie With the Scariest Villain of the Last 5 Years
+
+Movie Features, 28 Years Later: The Bone Temple, Ralph Fiennes, Jack O'Connell, Netflix
+
+Fri, 10 Apr 2026 19:12:12 GMT
+
+https://collider.com/28-years-later-the-bone-temple-netflix-streaming-jimmy-crystal/
+
+Sir Lord Jimmy Crystal emerges as a chilling new villain in 28 Years Later: The Bone Temple, eclipsing the infected with human horror and control.
+---------
+
+# 10 Classic Sci-Fi TV Shows That Have Aged Like Fine Wine
+
+TV, Sci-Fi, The Twilight Zone, The X-Files, Star Trek: The Next Generation
+
+Fri, 10 Apr 2026 19:08:12 GMT
+
+https://collider.com/classic-sci-fi-shows-aged-well/
+
+Discover classic sci-fi TV shows that have gracefully aged, remaining relevant and enjoyable for modern audiences, from V to The Twilight Zone.
+---------
+
+# Bryan Cranston Finally Addresses More 'Malcolm in the Middle' After Hulu's Revival
+
+Exclusives, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Bryan Cranston, Hulu
+
+Fri, 10 Apr 2026 19:00:13 GMT
+
+https://collider.com/bryan-cranston-malcolm-in-the-middle-lifes-still-unfair-hulu-season-2/
+
+Bryan Cranston and Jane Kaczmarek reflect on Hulu's revival series, discussing their first reactions to the script, the future of the show, and more.
+---------
+
+# Netflix’s 8-Part Overlooked Drama Becomes a Late-Night Sleeper Hit Months After Its Release
+
+TV Features, Netflix, Ian Harding, Hallmark, Ripple
+
+Fri, 10 Apr 2026 18:23:12 GMT
+
+https://collider.com/netflix-drama-series-ripple-sleeper-hit/
+
+Months into its December premiere, the drama series Ripple is back on Netflix’s global Top 10.
+---------
+
+# A Mobile Game May Show the First Look at Godzilla and Kong's Next Monsterverse Upgrades
+
+Features, Godzilla x Kong: Supernova, Monsterverse
+
+Fri, 10 Apr 2026 19:00:24 GMT
+
+https://movieweb.com/godzilla-kong-new-look-supernova-exosuit-purple-spines-monsterverse/
+
+A tease in a mobile game social media post may have revealed major upgrades for both Godzilla and Kong in 'Godzilla X Kong: Supernova'.
+---------
+
+# Netflix Thriller 'Thrash' Lands Mixed Rotten Tomatoes Score
+
+Movie News, Thrash
+
+Fri, 10 Apr 2026 18:26:43 GMT
+
+https://movieweb.com/netflix-thrash-rotten-tomatoes/
+
+The new Netflix disaster thriller 'Thrash,' starring Phoebe Dynevor, is struggling to impress critics on Rotten Tomatoes.
+---------
+
+# Kevin Bacon Joins Punisher-Style 'Southern Bastards' Comic Book Adaptation
+
+TV News, Kevin Bacon, Hulu, Crime, Thriller
+
+Fri, 10 Apr 2026 18:08:10 GMT
+
+https://movieweb.com/hulu-casts-kevin-bacon-southern-bastards/
+
+Kevin Bacon is joining a gritty new comic book TV series on Hulu, sure to impress fans of 'Justified' and 'Ozark.'
+---------
+
 # Malcolm In The Middle's Disney+ Revival Gave One Of Its Stars The Ultimate Career Opportunity
 
 TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle: Life's Still Unfair - Season 1, Malcolm in the Middle, Kiana Madeira, Disney+
