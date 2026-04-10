@@ -1,3 +1,135 @@
+# Pokémon Scarlet & Violet Free Download Available Until April 16
+
+Gaming, Pokemon
+
+Fri, 10 Apr 2026 10:45:20 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-free-april-2026-mystery-gift/
+
+Join the Pokémon Scarlet & Violet 7-star Tera Raid Battle featuring Emboar from April 9-16.
+---------
+
+# Pokémon Mythic Silver Is A Stunning Return To Johto
+
+Gaming, Pokemon
+
+Fri, 10 Apr 2026 10:30:20 GMT
+
+https://screenrant.com/pokemon-mythic-silver-fan-game-johto/
+
+Discover the enhanced world of Johto in Pokémon Mythic Silver, a fan-made ROMhack featuring graphics from Gen 3 to Gen 5.
+---------
+
+# Zelda: The Sealed Palace Will Keep You Busy Until The Ocarina Remake
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Fri, 10 Apr 2026 10:12:54 GMT
+
+https://screenrant.com/legend-of-zelda-sealed-palace-fan-game/
+
+Zelda: The Sealed Palace is a complete sequel to Ocarina of Time from dedicated fans who really new what they were doing in its creation.
+---------
+
+# PlayStation Makes Hit RPG 100% Free Until April 13, No PS Plus Needed
+
+Gaming, PlayStation 4, PlayStation Plus
+
+Fri, 10 Apr 2026 09:46:35 GMT
+
+https://screenrant.com/playstation-free-rpg-april-2026-no-ps-plus/
+
+We all love free games, and there's one available to keep and download right now that you don't even need PS Plus for.
+---------
+
+# Taylor Sheridan's Ani-Yellowstone Series Is the Perfect Weekend Binge
+
+TV, The Madison, Yellowstone, Paramount+ with Showtime
+
+Fri, 10 Apr 2026 10:26:50 GMT
+
+https://www.cbr.com/paramount-the-madison-season-1-weekend-watch-streaming-recommendation/
+
+Paramount+ has the perfect weekend watch for Yellowstone fans, but don't expect the range war conflicts of Kevin Costner's John Dutton.
+---------
+
+# Yellowstone's Replacement for Kevin Costner Is Even Better Than John Dutton
+
+TV, Yellowstone, Marshals, CBS
+
+Fri, 10 Apr 2026 10:26:28 GMT
+
+https://www.cbr.com/yellowstone-marshals-john-dutton-replacement-kayce-better-father/
+
+Yellowstone proves its successor for Kevin Costner's John Dutton is actually the suprerior choice to lead Taylor Sheridan's Western franchise.
+---------
+
+# Marvel Officially Reveals the Carnage Symbiote's New Target in an Exclusive Preview
+
+Comics, Venom
+
+Fri, 10 Apr 2026 10:00:35 GMT
+
+https://www.cbr.com/marvel-officiallly-reveals-carnage-next-victim/
+
+In a CBR exclusive preview of next week's penultimate chapter of the Spider-Man/Venom/Carnage crossover, see who Carnage's next target is
+---------
+
+# Paul McCartney Regretted Writing This Forgotten 1971 Song He Called Too Simple
+
+Music Features, Paul McCartney, Music, Rock, The Beatles
+
+Fri, 10 Apr 2026 10:30:12 GMT
+
+https://collider.com/paul-mccartney-regretted-writing-1971-soft-rock-song-bip-bop/
+
+A 1971 Paul McCartney song he later called too simple became one he regretted writing, even as some fans found charm in its stripped-down sound.
+---------
+
+# Prime Video's 4-Part Sci-Fi Thriller Surges on Streaming Ahead of New Episodes This Month
+
+TV News, From, Prime Video, MGM, Sci-Fi
+
+Fri, 10 Apr 2026 10:30:12 GMT
+
+https://collider.com/from-prime-video-sci-fi-thriller-streaming-success-april-2026/
+
+MGM+'s mysterious and terrifying sci-fi horror series is gaining popularity on Prime Video as fans eagerly anticipate the Season 4 premiere.
+---------
+
+# Netflix’s 10-Part Anime Masterpiece Gives ‘Altered Carbon’ Fans a Darker Sci-Fi Fix
+
+TV Features, Altered Carbon, Cyberpunk 2077, Cyberpunk: Edgerunners, Netflix
+
+Fri, 10 Apr 2026 10:12:12 GMT
+
+https://collider.com/cyberpunk-edgerunners-altered-carbon-replacement-netflix-dark-sci-fi/
+
+Cyberpunk: Edgerunners explores the lore of the CD Projekt Red video game about a dystopian future where corporations run the world.
+---------
+
+# 10 Forgotten '90s Fantasy TV Shows That Nobody Remembers Today
+
+TV, Gargoyles, The Pirates Of Dark Water, Roar, Fantasy
+
+Fri, 10 Apr 2026 10:09:13 GMT
+
+https://collider.com/forgotten-90s-fantasy-tv-shows/
+
+Dive into the forgotten world of '90s fantasy TV shows and discover hidden gems that deserve a second chance, from Roar to The Pirates of Dark Water.
+---------
+
+# Taylor Sheridan Officially Reunites With Country Music Star for Surprise ‘Yellowstone’ Spin-Off Role
+
+TV News, Taylor Sheridan, Marshals, Yellowstone, Dutton Ranch
+
+Fri, 10 Apr 2026 10:01:13 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-cast-adam-sanders-the-road-singing-competition/
+
+Taylor Sheridan has added the winner of his singing competition, The Road, to the next episode of Yellowstone's spin-off, Marshals.
+---------
+
 # Halo: Master Chief Collection Just Got A Major Update
 
 Gaming, Halo
