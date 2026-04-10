@@ -1,3 +1,267 @@
+# Train To Busan Director Steps Back Into The Zombie Genre With First Look At New Thriller Movie Revealed
+
+Movies, Yeon Sang-ho, Train to Busan
+
+Fri, 10 Apr 2026 04:03:53 GMT
+
+https://screenrant.com/colony-movie-first-image-train-to-busan-director-zombie-return/
+
+New images and a release date have been revealed for Train To Busan director Yeon Sang-ho's upcoming zombie film, marking his return to the genre.
+---------
+
+# Nintendo Switch 2 Hits Impressive Milestone Ahead Of Price Increase
+
+Gaming, Nintendo Switch 2, Gaming Hardware
+
+Fri, 10 Apr 2026 04:00:27 GMT
+
+https://screenrant.com/nintendo-switch-2-sales-milestone-price-increase/
+
+Nintendo's new console has been a hit since its release nearly a year ago, but a major milestone for the Switch 2 might be followed by a new price.
+---------
+
+# Apple TV’s 10/10 Sci-Fi Masterpiece Risks Collapsing Under Its Own Genius Rules
+
+Streaming TV, Severance, Apple TV
+
+Fri, 10 Apr 2026 03:46:19 GMT
+
+https://screenrant.com/severance-reintegration-rules-sci-fi-problem/
+
+Apple TV’s sci-fi masterpiece has introduced some genius rules in its story, so far, but it potentially risks collapsing under its own genius ideas.
+---------
+
+# All of Jujutsu Kaisen's Culling Game Rules, Explained
+
+Anime, Jujutsu Kaisen
+
+Fri, 10 Apr 2026 03:31:19 GMT
+
+https://screenrant.com/jujutsu-kaisen-season-3-culling-game-rules-explained/
+
+The Culling Game has many conditions that could make it confusing for viewers. Here's everything fans should know about Jujutsu Kaisen's biggest arc.
+---------
+
+# Mike Flanagan’s New Lovecraft Movie Is The Perfect Step Forward After His 8-Part Netflix Masterpiece
+
+Classic TV, The Fall of the House of Usher, Mike Flanagan, Stephen King, The Mist
+
+Fri, 10 Apr 2026 02:45:30 GMT
+
+https://screenrant.com/mike-flanagan-fall-of-usher-the-mist-lovecraft/
+
+Mike Flanagan is all set to helm his most Lovecraftian movie, and it is hard not to see it as his perfect step forward after his 8-part Netflix show.
+---------
+
+# The MCU Rewrites Bullseye (But It Has Comics Precedent)
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe, Bullseye
+
+Fri, 10 Apr 2026 02:40:20 GMT
+
+https://screenrant.com/mcu-rewrites-bullseye-daredevil-born-again-season-2-comics-ties/
+
+While Bullseye's new arc in Daredevil: Born Again season 2 is surprising, it actually has some strong parallels with the original Marvel comics.
+---------
+
+# Nathan Fillion's 8-Season Crime Thriller Gets Major Spinoff Update As Pilot Order Confirmation Nears
+
+Network TV, The Rookie
+
+Fri, 10 Apr 2026 02:08:09 GMT
+
+https://screenrant.com/the-rookie-north-spinoff-pilot-order-update-karen-fukuhara/
+
+As the 2025-2026 TV cycle slowly inches towards its end, Nathan Fillion's hit 8-season crime series is officially expanding with a new spinoff update.
+---------
+
+# A-Train's Final Redemption Arc In The Boys Season 5 Mirrors An Iconic Tony Stark Quote
+
+Streaming TV, The Boys
+
+Fri, 10 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/a-train-the-boys-season-5-tony-stark-quote/
+
+After seeing A-Train’s final redemption arc in The Boys season 5, it is hard not to think about an iconic Tony Stark quote from Spider-Man: Homecoming
+---------
+
+# Christopher Lloyd's 2% RT Score Movie Is The Most Underrated 90s Film
+
+Movies, Baby Geniuses
+
+Fri, 10 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/baby-geniuses-underrated-90s-movie/
+
+This cult classic 90s movie starring Christopher Lloyd has an abysmal 2% Rotten Tomatoes score, making it one of the most overhated movies of the 90s.
+---------
+
+# Mario PC Port Has Fans "Living In The Future"
+
+Gaming, Mario Party, Mario, Triple-A Games, PC
+
+Fri, 10 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/mario-party-4-pc-decomp-reaction/
+
+Mario may always be mostly locked to Nintendo consoles, but this new PC experience brings one of the plumber's classics to a totally new audience.
+---------
+
+# Netflix Fixes Missing Feature That Made Watching Anime Nearly Impossible
+
+Anime, Netflix, Gintama
+
+Fri, 10 Apr 2026 03:59:12 GMT
+
+https://www.cbr.com/netflix-gintama-release-subtitle-fix/
+
+Netflix resolves a major issue that left fans in the English-speaking world unable to enjoy the original Japanese version of a hit anime series.
+---------
+
+# 3 Years Later, Netflix’s Most Underrated Sci-Fi Miniseries Is Better Than Ever
+
+Anime, Pluto, Astro Boy
+
+Fri, 10 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/netflix-pluto-underrated-sci-fi-anime/
+
+Pluto is a groundbreaking reimagining of Astro Boy and a modern sci-fi masterpiece that's still ahead of the genre's curve.
+---------
+
+# Sci-Fi Miniseries That Are Amazing From Start to Finish
+
+TV, Sci-Fi
+
+Fri, 10 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/best-complete-sci-fi-miniseries-list/
+
+Sci-fi miniseries have often been overshadowed, but shows like Archive 81 and Bodies can hold up against even the best long-running series.
+---------
+
+# 7 Action Games With Surprisingly Strong RPG Elements
+
+Games, RPG, God of War
+
+Fri, 10 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/best-action-games-with-rpg-elements/
+
+These games straddle the line between action game and RPG
+---------
+
+# One Piece Fans Get Official First-Look Reveal at 6 New LEGO Sets
+
+Anime, One Piece, LEGO, toys, merchandise
+
+Fri, 10 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/one-piece-netflix-new-lego-set-release-date-august/
+
+One Piece fans are getting a half-dozen new LEGO sets this year, and each and every one of them looks to be absolutely perfect.
+---------
+
+# 5 Surprisingly Weak Anime Characters Who Can Defeat Satoru Gojo
+
+Anime, Jujutsu Kaisen
+
+Fri, 10 Apr 2026 02:53:09 GMT
+
+https://www.cbr.com/weak-anime-characters-could-defeat-satoru-gojo/
+
+5 anime characters who might look weak, but they might be able to take out Satoru Gojo from Jujutsu Kaisen.
+---------
+
+# Tales From the Crypt Finally Set to Stream for First Time Ever
+
+TV, Tales From the Crypt, Shudder
+
+Fri, 10 Apr 2026 02:09:42 GMT
+
+https://www.cbr.com/tales-from-the-crypt-streaming-shudder/
+
+HBO's iconic horror series Tales From the Crypt is finally set to hit streaming for the first time ever, but not on HBO Max.
+---------
+
+# The Earthsea Miniseries Is Still One of Fantasy TV's Biggest Fumbles
+
+TV, Fantasy, Tales from Earthsea
+
+Fri, 10 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/legend-of-earthsea-fantasy-tv-biggest-fumble/
+
+This classic fantasy novel series still has no good adaptations, and the disappointing trend began with a 2004 live-action miniseries.
+---------
+
+# 10 Perfect Double Features To Watch With Jerry Maguire
+
+Movies, Jerry Maguire, Remember the Titans, Eddie The Eagle
+
+Fri, 10 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/best-movies-to-watch-with-jerry-maguire-list/
+
+In honor of the 30th Anniversary of Tom Cruise's Jerry Maguire, get inspired with these 10 films with the same determination and heart.
+---------
+
+# 7 Prime Video Shows Where Every Episode Is a Masterpiece
+
+TV, Prime Video, Amazon, Invincible, The Boys
+
+Fri, 10 Apr 2026 04:07:12 GMT
+
+https://collider.com/prime-video-shows-every-episode-masterpiece/
+
+From detective drama Bosch to the superhero series The Boys, these Prime Video shows are among the rare class where every episode is a masterpiece.
+---------
+
+# This 4-Part Dark Crime Series Just Quietly Became Netflix’s Most Addictive Weekend Binge
+
+TV Features, Keep Sweet: Pray And Obey, Trust Me: The False Prophet, Netflix, True Crime
+
+Fri, 10 Apr 2026 03:12:12 GMT
+
+https://collider.com/netflix-trust-me-the-false-prophet-addictive-crime-series/
+
+Netflix's true crime series is Trust Me: The False Prophet, which follows the fallout after the FLDS church leader Warren Jeffs is sent to prison.
+---------
+
+# ‘Elsbeth’ Season 3 Episode 15 Review: Beanie Feldstein Dons Her Bridesmaid Dress in the CBS Procedural
+
+TV Reviews, Elsbeth, Carrie Preston, Beanie Feldstein, CBS
+
+Fri, 10 Apr 2026 03:00:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-15-recap-review-beanie-feldstein/
+
+Elsbeth Season 3 Episode 15 sees Beanie Feldstein deliver a standout performance as Rachel, a bridesmaid with a dark secret.
+---------
+
+# Star Wars and 'The Princess Bride' Nearly Snuck Into Apple TV's Best Sci-Fi Series [Exclusive]
+
+TV News, Pluribus, Apple TV, Rhea Seehorn, Sci-Fi
+
+Fri, 10 Apr 2026 02:00:23 GMT
+
+https://collider.com/pluribus-season-1-mystery-manousos-iconic-line-mother-relationship-explained-carlos-manuel-vesga/
+
+Pluribus star Carlos Manuel Vesga discusses mixing his iconic line with The Princess Bride & Star Wars, and the complex relationship with his mother.
+---------
+
+# The Main Characters in Every Taylor Sheridan TV Series, Ranked
+
+TV Lists, Taylor Sheridan
+
+Fri, 10 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/taylor-sheridan-main-characters-ranked/
+
+Taylor Sheridan's popular TV shows have some great characters, whether on 'Yellowstone,' 'Marshals,' 'Lioness,' or 'The Madison.'
+---------
+
 # 12 Best Ships To Unlock In Starfield
 
 Gaming, Starfield, PC
