@@ -1,3 +1,311 @@
+# Millie Bobby Brown’s Netflix Sports Movie Officially Canceled After Star’s Surprise Exit
+
+Movies, Perfect
+
+Fri, 10 Apr 2026 16:11:09 GMT
+
+https://screenrant.com/millie-bobby-brown-netflix-perfect-olympic-movie-canceled/
+
+Millie Bobby Brown certainly didn't find the production Perfect in this movie.
+---------
+
+# Long-Time Nintendo Exclusive Is Finally Coming To PS5 & Steam
+
+Gaming, Nintendo, PlayStation 5, Steam, PC, Triple-A Games
+
+Fri, 10 Apr 2026 16:07:53 GMT
+
+https://screenrant.com/nintendo-exclusive-professor-layton-ps5-steam/
+
+Ahead of the release of its seventh mainline game, this Nintendo franchise has suddenly announced a surprising leap to other platforms.
+---------
+
+# Power Rangers' Scrapped 4-Movie Plan Revealed By Star After 2017 Movie's Disappointing Box Office
+
+Movies, Power Rangers
+
+Fri, 10 Apr 2026 16:01:36 GMT
+
+https://screenrant.com/power-rangers-reboot-movie-sequel-plans-cancelled-dacre-montgomery/
+
+Power Rangers star Dacre Montgomery reveals the series' scrapped, four-movie plan following the 2017 film's box office disappointment.
+---------
+
+# The Witcher 3: Eternal Hunt Is A Huge Overhaul
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher
+
+Fri, 10 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/witcher-3-eternal-hunt-april-2026-mod-update/
+
+Eternal Hunt is a massive content pack for The Witcher 3 that overhauls everything from the animations to the armor and weapons.
+---------
+
+# John Dutton's Yellowstone Story Still Could Have Continued After Kevin Costner Quit
+
+Classic TV, Yellowstone
+
+Fri, 10 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/yellowstone-josh-lucas-john-dutton-after-kevin-costner-exit/
+
+Yellowstone season 5, part 2 went on without John Dutton after Kevin Costner quit the show, but there was already a way John could've still appeared.
+---------
+
+# The End of Rick and Morty Is Here, and Rick's Fate Comes Down to an Unbelievable Character
+
+Comics, Rick and Morty
+
+Fri, 10 Apr 2026 15:55:18 GMT
+
+https://screenrant.com/rick-morty-end-final-comic-issue/
+
+Rick and Morty will be ending a lot sooner than fans thought and, according to this preview, Rick's fate is up to this shocking character.
+---------
+
+# Parasyte: The Grey, Netflix's Perfect Horror K-Drama To Binge
+
+Classic TV, Masked Recs
+
+Fri, 10 Apr 2026 15:45:19 GMT
+
+https://screenrant.com/parasyte-the-grey-netflix-horror-sci-fi-k-drama-binge/
+
+Netflix is the biggest streaming service in the world, and its genre-bending titles are phenomenal— including Parasyte: The Grey's sci-fi/horror.
+---------
+
+# CBS Kills An Original Ghosts Character For The Very First Time
+
+Network TV, Ghosts
+
+Fri, 10 Apr 2026 15:45:19 GMT
+
+https://screenrant.com/ghosts-original-character-kill-first-time/
+
+Five years since it premiered, CBS finally says goodbye to an original character from the Woodstone Mansion in Ghosts season 5, episode 14.
+---------
+
+# YouTube Premium Subscription Prices Increasing In The U.S. For The First Time In 3 Years
+
+TV, YouTube
+
+Fri, 10 Apr 2026 15:32:41 GMT
+
+https://screenrant.com/youtube-premium-music-subscription-prices-united-states-increase/
+
+For the first time in three years, subscribers to YouTube Premium are set to experience a price hike as the streaming landscape continues to evolve.
+---------
+
+# Disney+'s 2-Part Action Series With Near-Perfect Rotten Tomatoes Score Is The Ideal Weekend Binge
+
+Superheroes, Masked Recs
+
+Fri, 10 Apr 2026 15:30:01 GMT
+
+https://screenrant.com/luke-cage-disney-plus-action-series-must-watch/
+
+One of Disney+'s best action series has just become more important than ever after an update, and it makes for an absolutely thrilling weekend binge.
+---------
+
+# Malcolm in the Middle Spinoff Creator Addresses Potential Season 2 Return
+
+TV, Malcolm in the Middle: Life's Still Unfair
+
+Fri, 10 Apr 2026 16:01:56 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-lifes-still-unfair-season-2-chances-linwood-boomer/
+
+Malcolm in the Middle creator Linwood Boomer reveals whether another season of the revival comedy series is in the cards for Hulu and Disney+.
+---------
+
+# The Transformers Franchise Confirms the DCU is in Danger at Paramount
+
+Movies, Transformers, DCU, Bumblebee, Transformers: Rise of the Beasts
+
+Fri, 10 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/transformers-franchise-proves-paramount-bad-for-dcu/
+
+The Transformers franchise has seemingly been proven to be mishandled by Paramount, and it doesn't bode well for the Paramount/Warner Bros. merger.
+---------
+
+# Tommy Lee Jones' Western Lonesome Dove With 98% on Rotten Tomatoes Is Still Completely Flawless
+
+TV, Lonesome Dove, tommy lee jones, Western
+
+Fri, 10 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/tommy-lee-jones-western-show-lonesome-dove-completely-flawless/
+
+This forgotten Western show is the epitome of what the genre is all about, but the Tommy Lee Jones vehicle deserves a return among audiences.
+---------
+
+# YouTube Is About to Get More Expensive
+
+TV, YouTube Premium
+
+Fri, 10 Apr 2026 15:57:00 GMT
+
+https://www.cbr.com/youtube-premium-price-hike/
+
+Months after a record-breaking stalemate with Disney, YouTube is making an unpopular move.
+---------
+
+# Hatsune Miku's New 50th Anniversary Seiko Watch Gets International Release
+
+Anime, Hatsune Miku, merchandise
+
+Fri, 10 Apr 2026 15:30:19 GMT
+
+https://www.cbr.com/hatsune-miku-seiko-watch-anniversary-special-live-internatational-release/
+
+The latest Hatsune Miku collab item is a watch that also celebrates the 50th anniversary of one of the most popular Japanese convenience stores.
+---------
+
+# 10 Strongest Legendary Pokémon Trainers, Ranked
+
+Games, Pokemon, Anime, Nintendo
+
+Fri, 10 Apr 2026 15:21:14 GMT
+
+https://www.cbr.com/pokemon-strongest-legendary-trainers-ranked-list/
+
+The most powerful legendary Pokémon trainers are so strong they're nearly unstoppable.
+---------
+
+# HBO Max's 5-Part Assassin Thriller Is Quietly Becoming Its Perfect Weekend Binge
+
+Movie Features, John Wick, HBO Max, Thriller
+
+Fri, 10 Apr 2026 16:06:12 GMT
+
+https://collider.com/john-wick-movies-hbo-max-perfect-weekend-binge/
+
+Keanu Reeves' action-packed John Wick franchise is an excellent weekend watch on HBO Max.
+---------
+
+# ‘Murdoch Mysteries’ Lets ‘Property Brothers’ Star Drew Scott Loose on Edwardian Decor [Exclusive]
+
+TV News, Murdoch Mysteries, Drew Scott, Property Brothers, CBC Gem
+
+Fri, 10 Apr 2026 16:00:13 GMT
+
+https://collider.com/murdoch-mysteries-season-19-sneak-peek-bts-vide-jonathan-drew-property-brothers/
+
+Property Brothers star Drew Scott guest stars on the Murdoch Mysteries season finale, playing an antique appraiser who helps solve a murder mystery.
+---------
+
+# 'The Audacity' Review: AMC's Gritty Silicon Valley Drama Isn't Perfect, but It'll Grow on You
+
+TV Reviews, The Audacity, Billy Magnussen, Sarah Goldberg, Rob Corddry
+
+Fri, 10 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-audacity-tv-show-review-billy-magnussen/
+
+Despite a slow start, The Audacity, starring Billy Magnussen and Sarah Goldberg, picks up steam thanks to strong performances and an intriguing plot.
+---------
+
+# Apple TV’s ‘The Last Thing He Told Me’ Just Turned Quinn’s Twist Into Its Darkest Reveal
+
+Exclusives, The Last Thing He Told Me, Apple TV, Jennifer Garner, Judy Greer
+
+Fri, 10 Apr 2026 15:57:09 GMT
+
+https://collider.com/the-last-thing-he-told-me-season-2-episode-8-death-twist-judy-greer-quinn-kate/
+
+Judy Greer breaks down The Last Thing He Told Me Season 2 finale twist, Quinn’s secret, her bond with Bailey, and Season 3 hopes.
+---------
+
+# Netflix Scraps Expansive Fantasy Franchise Plans
+
+TV News, Redwall, Netflix, Redwall: The Movie, Fantasy
+
+Fri, 10 Apr 2026 15:47:28 GMT
+
+https://collider.com/netflix-fantasy-redwall-tv-movie-adaptations-cancelled-scrapped/
+
+Netflix has quietly scrapped a fantasy television series and movie based on the beloved Redwall book series. Here’s what happened.
+---------
+
+# 20 Years Later, Nicolas Cage’s Most Misunderstood Crime Thriller Is Finally Getting a Sequel Release
+
+Movie News, Lords of War, Lord of War, Nicolas Cage, Bill Skarsgård
+
+Fri, 10 Apr 2026 15:45:37 GMT
+
+https://collider.com/nicolas-cage-lord-of-war-sequel-bill-skarsgard-distributor-release-details/
+
+Over 20 years after Lord of War, Nicolas Cage is officially back for a sequel to the epic crime thriller with Bill Skarsgård. Get the details.
+---------
+
+# Keanu Reeves’ New 83-Minute Movie Lands Among His Worst-Rated Projects Ever
+
+Movie News, Outcome, Keanu Reeves, Apple TV, Rotten Tomatoes
+
+Fri, 10 Apr 2026 15:44:58 GMT
+
+https://collider.com/keanu-reeves-new-movie-outcome-rotten-tomatoes-score-is-it-good/
+
+Keanu Reeves’ new team up with Jonah Hill, Cameron Diaz, and Matt Bomer, is getting ripped to shreds in first reviews with devastating Rotten Tomatoes
+---------
+
+# Dark Fantasy Masterpiece Sets Theatrical Re-Release for 20th Anniversary
+
+Movie News, Pan's Labyrinth, Guillermo del Toro, Horror, Fantasy
+
+Fri, 10 Apr 2026 15:41:55 GMT
+
+https://collider.com/pans-labyrinth-20th-anniversary-theatrical-rerelease-4k-3d/
+
+Pan’s Labyrinth returns to theaters on October 9, 2026 in 4K, 3D, and HDR for its 20th anniversary rerelease.
+---------
+
+# Netflix's Sci-Fi Action Series 'Cyberpunk: Edgerunners' Saved the Dead Genre and Franchise
+
+Movie News, Cyberpunk: Edgerunners, Netflix, Streaming Recommendations, Sci-Fi
+
+Fri, 10 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/cyberpunk-edgerunners-saved-sci-fi-genre-netflix/
+
+Netflix's 'Cyberpunk: Edgerunners' video game adaptatation saved the dead sci-fi action genre. Season 2 has been confirmed.
+---------
+
+# Every 'Malcolm in the Middle' Character Who Returns in the Revival
+
+TV Lists, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Fri, 10 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/malcolm-in-the-middle-revival-returning-characters/
+
+Other than the Wilkersons themselves, the 'Malcolm in the Middle' revival sees the return of several fan-favorite characters from the OG run.
+---------
+
+# Best Free Action Movies on YouTube
+
+Movie Lists, YouTube, Action
+
+Fri, 10 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/free-action-movies-on-youtube/
+
+YouTube is home to plenty of classics and cult hits that guarantee explosive action.
+---------
+
+# Nicolas Cage Sequel 'Lords of War' Gets First Look & Release Date
+
+Movie News, Nicolas Cage, Lord of War, Crime, Thriller
+
+Fri, 10 Apr 2026 15:17:45 GMT
+
+https://movieweb.com/nicolas-cage-lords-of-war-first-look-release-date/
+
+The long-awaited crime thriller sequel has now been picked up by Vertical for theatrical release.
+---------
+
 # Denzel Washington's $269M Crime Thriller From Ridley Scott Is A Must-Watch On Netflix
 
 Movies, American Gangster, Denzel Washington, Ridley Scott
