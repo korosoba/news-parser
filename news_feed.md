@@ -1,3 +1,168 @@
+# Netflix’s 4-Part True Crime Series Is One Of Its Best & An Easy One-Night Binge
+
+Streaming TV, Masked Recs
+
+Fri, 10 Apr 2026 23:56:18 GMT
+
+https://screenrant.com/netflix-trust-me-the-false-prophet-series-watch/
+
+Netflix's #1 trending true crime series, Trust Me: The False Prophet, is a gripping 4-part docuseries that is a must-binge weekend watch right now.
+---------
+
+# Scrubs Season 10 Just Became A Regular Medical Drama For The First Time In 25 Years
+
+Streaming TV, Scrubs
+
+Fri, 10 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/scrubs-season-10-doctor-cox-disease-death-medical-drama-trope/
+
+Scrubs avoided many of the dramatic tropes of other medical series, but season 10's recent twist proves there are ways to do these things right.
+---------
+
+# Dandadan's Chainsaw Man Crossover Rescues Both Manga From Controversy
+
+Anime, Dandadan, Chainsaw Man
+
+Fri, 10 Apr 2026 23:45:13 GMT
+
+https://www.cbr.com/dandadan-volume-23-chainsaw-man-crossover-sales-data/
+
+Chainsaw Man's new chapter by Dandadan artist Yukinobu Tatsu has inadvertantly rescued both manga from falling into obscurity amid fan controversies.
+---------
+
+# One Piece Officially Loses to Spy x Family in New Oricon Manga Sales Ranking
+
+Anime, One Piece, Spy X Family
+
+Fri, 10 Apr 2026 23:29:29 GMT
+
+https://www.cbr.com/one-piece-vs-spy-x-family-oricon-manga-ranking/
+
+One Piece just lost the number one spot on a major industry ranking to the other hottest returning series of the year (so far).
+---------
+
+# 10 Best One Piece Characters We Haven’t Seen in Years
+
+Anime, One Piece
+
+Fri, 10 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/best-one-piece-characters-havent-seen-in-years/
+
+A few of One Piece's characters have gone missing from the story, and it's still up for debate whether they'll ever be back.
+---------
+
+# ‘Arcane’ Has Nothing on Netflix’s Near-Perfect 4-Part Fantasy Adaptation
+
+TV Features, Castlevania, Horror, Netflix, Arcane
+
+Fri, 10 Apr 2026 23:52:12 GMT
+
+https://collider.com/netflix-best-video-game-adaptation-castlevania-series/
+
+Netflix’s Castlevania has a 94% Rotten Tomatoes score and still beats Arcane as the streamer’s best fantasy and video game adaptation.
+---------
+
+# Before 'The Boys,' These Are the 5 Best Jensen Ackles and Misha Collins 'Supernatural' Scenes
+
+TV, Supernatural, The Boys, Misha Collins, Jensen Ackles
+
+Fri, 10 Apr 2026 23:49:13 GMT
+
+https://collider.com/supernatural-jensen-ackles-misha-collins-best-scenes/
+
+Jensen Ackles and Misha Collins in The Boys' trailer went viral with Supernatural fans, so let's take a look at Dean and Castiel’s best scenes.
+---------
+
+# Gerard Butler's ‘Reacher’ Meets ‘Black Hawk Down’ Action Gem Quietly Becomes a Late-Night Favorite
+
+Movie News, Olympus Has Fallen, Gerard Butler, Black Hawk Down, Reacher
+
+Fri, 10 Apr 2026 23:45:12 GMT
+
+https://collider.com/reacher-meets-black-hawk-down-gerard-butler-olympus-has-fallen-streaming-success-apple-tv-april-2026/
+
+Reacher meets Black Hawk Down in Gerard Butler's late-night sleeper hit taking over the world on streaming. Find out how to watch here.
+---------
+
+# 3 Best Prime Video Shows to Binge This Weekend (April 10-12)
+
+TV, Prime Video, The Boys, Red Oaks, Citadel
+
+Fri, 10 Apr 2026 23:43:13 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-april-10/
+
+The Boys, Red Oaks, and Citadel make up our list of the best Prime Video shows to binge the weekend of April 10, 2026.
+---------
+
+# The Brilliant and All-But-Forgotten Sci-Fi Movie That Nailed The “Last Person Alive” Trope 41 Years Ago
+
+Movie Features, The Quiet Earth, New Zealand, Sci-Fi, The Delinquents
+
+Fri, 10 Apr 2026 23:37:56 GMT
+
+https://collider.com/the-quiet-earth-last-person-alive-sci-fi-movie/
+
+New Zealand apocalypse movie The Quiet Earth is an often overlooked addition to the subgenre that has a quiet poignance to its premise.
+---------
+
+# Netflix’s Most Brutal WWII Thriller Officially Leaves Streaming Next Month
+
+Movie News, Fury, Brad Pitt, War, Thriller
+
+Fri, 10 Apr 2026 23:30:13 GMT
+
+https://collider.com/brad-pitt-ww2-action-thriller-fury-leaving-netflix-may-1-2026/
+
+A gritty WW2 action thriller starring Brad Pitt is leaving Netflix soon, making this your last chance to catch a raw war story before it’s gone.
+---------
+
+# Keanu Reeves Shares Surreal Experience Acting With Martin Scorsese in Apple TV's New Crime Film
+
+Exclusives, Outcome, Keanu Reeves, Cameron Diaz, Laverne Cox
+
+Fri, 10 Apr 2026 23:30:13 GMT
+
+https://collider.com/keanu-reeves-martin-scorsese-outcome-cameron-diaz-matt-bomer-jonah-hill-apple-tv-interview/
+
+The stars of Apple TV's Outcome discuss the message behind Jonah Hill's dark comedy, Keanu Reeves' and Martin Scorsese's scenes, and Hill's improv.
+---------
+
+# 33 Years Later, Bruce Willis' Forgotten Action Thriller Gem Surges on Netflix
+
+Movie News, Striking Distance, Bruce Willis, Die Hard, Se7en
+
+Fri, 10 Apr 2026 23:15:13 GMT
+
+https://collider.com/die-hard-meets-se7en-bruce-willis-striking-distance-streaming-success-netflix-april-2026/
+
+It's Die Hard meets Se7en in the 20% Rotten Tomatoes action bomb starring Bruce Willis, which is taking the Netflix streaming charts by storm.
+---------
+
+# Ice Cube and Kevin Hart's 3-Part Action Franchise Finally Moves Forward After 10 Year Delay
+
+Movie News, Ride Along 3, Kevin Hart, Ice Cube
+
+Fri, 10 Apr 2026 23:11:24 GMT
+
+https://collider.com/ride-along-3-officially-moving-forward-new-writer-daniel-gold/
+
+After 10 years in development, part 3 of Kevin Hart and Ice Cube's Ride Along action franchise finally takes a major step forward.
+---------
+
+# Everyone Knows Christopher Nolan Is a Genius, but No One Ever Talks About His Greatest Skill
+
+Movie Features, Christopher Nolan, The Odyssey, Oppenheimer, Interstellar
+
+Fri, 10 Apr 2026 23:05:25 GMT
+
+https://collider.com/christopher-nolan-movies-screenwriter/
+
+Christopher Nolan is routinely praised for his brilliant direction, though his screenwriting abilities are just as important and rarely discussed.
+---------
+
 # Resident Alien Officially Returns for Official "Grand Finale" Ending
 
 Comics, Resident Alien
