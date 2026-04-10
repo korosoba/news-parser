@@ -1,3 +1,267 @@
+# Denzel Washington's $269M Crime Thriller From Ridley Scott Is A Must-Watch On Netflix
+
+Movies, American Gangster, Denzel Washington, Ridley Scott
+
+Fri, 10 Apr 2026 15:06:19 GMT
+
+https://screenrant.com/denzel-washington-american-gangster-success-movie-netflix-recommendation/
+
+Denzel Washington's most financially successful movie earned a staggering $269 million upon release, and the Ridley Scott hit is now on Netflix.
+---------
+
+# Netflix Just Confirmed 2 Glamorous New Settings For Emily In Paris Season 6
+
+TV, Emily in Paris
+
+Fri, 10 Apr 2026 15:04:54 GMT
+
+https://screenrant.com/emily-in-paris-season-6-new-set-locations-revealed/
+
+Emily In Paris is anywhere but Paris for season 6 as Netflix has revealed two new glamorous locations for its new season of fashion and drama.
+---------
+
+# Elden Ring: The Convergence Feels Like A Completely New Game
+
+Gaming, Elden Ring
+
+Fri, 10 Apr 2026 15:01:19 GMT
+
+https://screenrant.com/elden-ring-convergence-unofficial-overhaul/
+
+Elden Ring: The Convergence is a massive free mod that overhauls the game with new weapons, spells, bosses, and more.
+---------
+
+# Avengers: Endgame's Hulk Twist Has Likely Robbed Us Of A Perfect Spider-Man: Brand New Day Moment
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 10 Apr 2026 14:55:19 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-know-identity-line-ruin-endgame/
+
+Avengers: Endgame's Smart Hulk twist has most likely robbed us of what could have been a perfect moment for Spider-Man: Brand New Day.
+---------
+
+# Iconic Horror Game Suddenly Banned From Google Play Store
+
+Gaming, Android, Google Play, Doki Doki Literature Club!
+
+Fri, 10 Apr 2026 14:46:19 GMT
+
+https://screenrant.com/doki-doki-literature-club-play-store-removal/
+
+An iconic horror game has been abruptly removed from Android’s Google Play storefront, leaving fans up in arms at what they call unfair censorship.
+---------
+
+# Malcolm In The Middle Revival: Every New & Returning Character In Life’s Still Unfair
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle
+
+Fri, 10 Apr 2026 14:45:19 GMT
+
+https://screenrant.com/malcolm-in-the-middle-lifes-still-unfair-cast-returning-characters/
+
+Malcolm in the Middle is back with the 4-part Hulu special Life's Still Unfair, 20 years after it ended. Here are the revival's stars, old and new.
+---------
+
+# CBS Orders Ghosts Companion Series Eternally Yours
+
+TV, Ghosts
+
+Fri, 10 Apr 2026 14:32:56 GMT
+
+https://screenrant.com/eternally-yours-ghosts-series-cbs-pilot-order/
+
+CBS is moving forward with the a new Ghosts companion show, and it's  confirmed that episodes will officially be debuting later this year.
+---------
+
+# Netflix's New 8-Part Comedy Gives Laurie Metcalf Her Official The Conners Replacement
+
+Streaming TV, The Conners, Laurie Metcalf, Big Mistakes
+
+Fri, 10 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/big-mistakes-laurie-metcalf-the-conners-comedy-replacement/
+
+A year after The Conners' series finale, actor Laurie Metcalf takes on a role in a Netflix comedy series that replaces her most famous role.
+---------
+
+# One Piece Episode #1157 Release Date And Time
+
+Anime, One Piece
+
+Fri, 10 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/one-piece-episode-1157-release-date-time/
+
+When to watch One Piece episode 1157.
+---------
+
+# Olivia Wilde's New Movie Quietly Breaks A Surprising 10 Year Streak For Its Star
+
+Movies, The Invite, Penélope Cruz
+
+Fri, 10 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/the-invite-olivia-wilde-movie-penelope-cruz-return-english-acting/
+
+The Invite boasts a strong cast including Seth Rogen, Edward Norton, and an exceptional talent who hasn’t done a movie like this in years.
+---------
+
+# Clint Eastwood's The Beguiled is the Most Gripping Psychological Thrillers
+
+Movies, Clint Eastwood
+
+Fri, 10 Apr 2026 15:00:14 GMT
+
+https://www.cbr.com/the-beguiled-clint-eastwood-civil-war-psychological-thriller/
+
+In The Beguiled, Clint Eastwood trades his tough-guy persona for vulnerability, exploring power dynamics and survival in a tense, feminist psychologic
+---------
+
+# Alamo Drafthouse Gives Fans An Unmissable Spider-Noir Fan Even
+
+Superheroes, Spider-Noir
+
+Fri, 10 Apr 2026 15:00:14 GMT
+
+https://www.cbr.com/alamo-drafthouse-spider-noir-fan-event-announced/
+
+Alamo Drafthouse unveils a Spider-Noir experience worth the hype.
+---------
+
+# 10 Hardest SNES Bosses of All Time
+
+Games, Nintendo, retro games
+
+Fri, 10 Apr 2026 15:00:14 GMT
+
+https://www.cbr.com/hardest-snes-bosses-all-time/
+
+The Super Nintendo had some of the hardest bosses of the 16-bit era, with foes that transcended genre lines to inflict as much pain as possible.
+---------
+
+# CBS Confirms Ghosts Companion Series Ahead of Series Finale
+
+TV, CBS, Ghosts
+
+Fri, 10 Apr 2026 14:59:28 GMT
+
+https://www.cbr.com/cbs-eternally-yours-comedy-series-picked-up/
+
+A family of vampires is set to join CBS' comedy schedule next fall alongside the fan-favorite Ghosts.
+---------
+
+# FX & Disney Renews Ryan Reynolds' Docuseries Welcome to Wrexham for 3 More Seasons
+
+TV, Welcome to Wrexham, ryan reynolds
+
+Fri, 10 Apr 2026 14:33:10 GMT
+
+https://www.cbr.com/fx-disney-renews-ryan-reynolds-docuseries-welcome-to-wrexkham/
+
+FX has just decided whether Ryan Reynolds' sports documentary will return.
+---------
+
+# 5 '80s Sci-Fi Shows That Haven't Aged a Single Day
+
+TV, Sci-Fi
+
+Fri, 10 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/80s-sci-fi-shows-havent-aged-list/
+
+Some '80s sci-fi TV shows still feel surprisingly modern, featuring ideas and stories that hold up just as well today as they did decades ago.
+---------
+
+# 10 Forgotten Characters Who Need to Return With the Dragon Ball Super Manga
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Fri, 10 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-return-forgotten-characters/
+
+With over 40 years of history, Dragon Ball has a lot of forgotten characters, and many of them would fit perfectly into the Black Frieza Saga.
+---------
+
+# ‘Sheriff Country’ Sneak Peek Reveals Mickey’s Next Case — and It’s Her Most Dangerous Yet [Exclusive]
+
+Exclusives, Sheriff Country, Morena Baccarin, Fire Country, CBS
+
+Fri, 10 Apr 2026 15:00:15 GMT
+
+https://collider.com/sheriff-country-episode-14-sneak-peek-morena-baccarin-matt-lauria-cbs/
+
+Matt Lauria takes a tumble from Morena Baccarin’s good graces in a new look at Sheriff Country. Watch it here.
+---------
+
+# ‘Fire Country’ Sets Up Bode and Chloe’s Biggest Moment Yet in New Sneak Peek [Exclusive]
+
+Exclusives, Fire Country, Max Thieriot, Alona Tal, CBS
+
+Fri, 10 Apr 2026 15:00:15 GMT
+
+https://collider.com/fire-country-season-4-episode-14-sneak-peek-max-thieriot-alona-tal-cbs/
+
+Bode (Max Thieriot) and Chloe's (Alona Tal) relationship heats up in a new sneak peek of tonight’s Fire Country. See it here.
+---------
+
+# 56 Years Ago, Paul McCartney Did What No One Else Would and Ended The Beatles for Good
+
+Music Features, Music, Rock, The Beatles, Paul McCartney
+
+Fri, 10 Apr 2026 14:30:12 GMT
+
+https://collider.com/56-years-ago-paul-mccartney-broke-up-the-beatles/
+
+Each member of The Beatles quit the band at some point before returning, but Paul McCartney's 1970 announcement signalled the end of the band.
+---------
+
+# Bob Dylan Set the Bar for Anti-War Music — Which Modern Artist Can Carry His Legacy?
+
+Music Features, Bob Dylan, Kendrick Lamar, Rock, Pop
+
+Fri, 10 Apr 2026 14:26:14 GMT
+
+https://collider.com/bob-dylan-set-the-bar-for-anti-war-music-who-can-carry-his-legacy-today/
+
+Bob Dylan’s protest anthems shaped how music confronts political turmoil, and today’s artists are still carrying that powerful legacy forward.
+---------
+
+# Ryan Reynolds' Best TV Series Locks in Rare Triple Renewal
+
+TV News, Ryan Reynolds, Rob McElhenney, Welcome to Wrexham, FX
+
+Fri, 10 Apr 2026 14:22:34 GMT
+
+https://collider.com/ryan-reynolds-rob-mac-welcome-to-wrexham-renewed-three-seasons-6-8-fx/
+
+Ryan Reynolds and Rob Mac's award-winning docuseries, Welcome to Wrexham, has been given a rare triple renewal at FX ahead of Season 5.
+---------
+
+# 'Mortal Kombat II's Trailers Suggest Johnny Cage Won't Be the Franchise's New Main Character for Long
+
+Features
+
+Fri, 10 Apr 2026 15:00:19 GMT
+
+https://movieweb.com/mortal-kombat-2-trailer-sequel-formula/
+
+Lewis Tan's Cole Young has been replaced as the main character in 'Mortal Kombat II,' but will Johnny Cage last long as the new protagonist?
+---------
+
+# 'Lee Cronin's The Mummy': First Reactions Praise "F***ed Up" Horror Reboot
+
+Movie News, Lee Cronin's The Mummy
+
+Fri, 10 Apr 2026 14:31:42 GMT
+
+https://movieweb.com/lee-cronin-the-mummy-reactions/
+
+'Lee Cronin's The Mummy' reactions praise the upcoming horror reboot as a "squirm-inducing" thrill ride.
+---------
+
 # Will There Be More Malcolm In The Middle Revival Episodes? Here's What We Know
 
 Streaming TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle
