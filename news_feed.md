@@ -1,3 +1,234 @@
+# Starfield Guides (Tips, Ships, Weapons, & More)
+
+Gaming, Starfield, PC
+
+Fri, 10 Apr 2026 21:00:21 GMT
+
+https://screenrant.com/starfield-weapons-ships-suits-companions-outposts-missions/
+
+Our collection of guides for Starfield; ships, weapons, mission walkthroughs, tips, tricks, & more!
+---------
+
+# Tomb Raider And Zelda Collide In New Adventure You Can Try Free Now
+
+Gaming, Steam, Triple-A Games, PC
+
+Fri, 10 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/tomb-raider-meets-zelda-free-steam-demo/
+
+If you're a fan of either Tomb Raider or Zelda, this new adventure is worth checking out, especially since you can try it for free.
+---------
+
+# The Best Sci-Fi Show On Prime Video Is A 10/10 Space Opera
+
+Classic TV, Masked Recs, Sci-Fi, Amazon Prime Video
+
+Fri, 10 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/the-expanse-prime-video-best-sci-fi-show-getting-better/
+
+Amazon has a lot of great sci-fi shows for Prime Video subscribers to discover, but none can match this beloved yet underrated space opera saga.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A Guy Ritchie & Jason Statham Action Smash Hit)
+
+Movies, Prime Video, Recommendation
+
+Fri, 10 Apr 2026 20:46:36 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-april-11/
+
+Prime Video's best movies to watch this weekend include a Jason Statham action-packed story, a hit horror film, and an intense psychological thriller.
+---------
+
+# Does Vampire Crawlers Have Cross-Saves?
+
+Gaming, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Fri, 10 Apr 2026 20:46:21 GMT
+
+https://screenrant.com/does-vampire-crawlers-have-cross-save/
+
+Vampire Survivors added this feature later, but does its successor have it right out of the gate? Let's find out.
+---------
+
+# Mortal Kombat 2 Character Rankings: Threat Levels Revealed
+
+Movies, Mortal Kombat II, Mortal Kombat, Mortal Kombat: Annihilation
+
+Fri, 10 Apr 2026 20:45:20 GMT
+
+https://screenrant.com/mortal-kombat-2-movie-characters-ranked-threat-level/
+
+The Mortal Kombat universe is full of wild and mighty fighters, but they aren't created equally, ranging from human to god-like power.
+---------
+
+# New Hunger Games Trailer Reveals 3 Returning Victors & Katniss’ Parents In Sunrise On The Reaping
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Fri, 10 Apr 2026 20:34:39 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-trailer-character-first-look/
+
+The Hunger Games: Sunrise on the Reaping is teasing even more cast members in a new trailer featuring some never-before-seen franchise characters.
+---------
+
+# Netflix's New R-Rated Shark Thriller Debuts To Underwhelming Rotten Tomatoes Score
+
+Movies, Masked Recs, Netflix
+
+Fri, 10 Apr 2026 20:24:42 GMT
+
+https://screenrant.com/netflix-thrash-movie-rotten-tomatoes-score/
+
+Netflix just released its new R-rated shark thriller, which has left critics split and debuted to an underwhelming Rotten Tomatoes score.
+---------
+
+# Exit 8 Ending Explained: What's Going On In This Wild Video Game Adaptation And What Is It All About?
+
+Movies, Exit 8
+
+Fri, 10 Apr 2026 20:20:19 GMT
+
+https://screenrant.com/exit-8-ending-explained/
+
+Exit 8 uses the surreal horror video game as great inspiration for a deeply unsettling story about being trapped in life and needing to find a change.
+---------
+
+# Scott Pilgrim Takes Off: How Netflix's 10/10 Spinoff Saved The Franchise
+
+Classic TV, Masked Recs
+
+Fri, 10 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/scott-pilgrim-takes-off-netflix-series-franchise-better/
+
+From spinoffs to reboots to sequels, Netflix is no stranger to expanding beloved franchises— but it doesn't get better than this 2023 action fantasy.
+---------
+
+# Memory of a Killer Is Dominating Streaming Days After Season 2 Renewal
+
+TV, Memory of a Killer, Dexter, Crime
+
+Fri, 10 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/memory-of-a-killer-streaming-success-season-renewal-crime-hulu-april-2026/
+
+Fox's perfect replacement for Dexter fans just got renewed for a second season--and it's already dominating the streaming charts.
+---------
+
+# Henry Cavill's Argylle Becomes a Surprise Apple TV Global Hit
+
+Movies, Henry Cavill, Argylle
+
+Fri, 10 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/henry-cavill-argylle-spy-action-apple-tv-success-april-2026/
+
+The extremely divisive spy action film featured a star-studded cast that couldn't save it from flopping.
+---------
+
+# Jensen Ackles Reprises Role as Russell Shaw in Tracker Season 3 Finale
+
+TV, Tracker, CBS, Action
+
+Fri, 10 Apr 2026 20:59:33 GMT
+
+https://www.cbr.com/jensen-ackles-tracker-season-3-finale-return/
+
+Actor Jensen Ackles will return to television as Russell Shaw in the Tracker Season 3 finale on CBS.
+---------
+
+# 10 Anime Adaptations That Somehow Made Verified Manga Masterpieces Even Better
+
+Anime, Manga
+
+Fri, 10 Apr 2026 20:45:12 GMT
+
+https://www.cbr.com/great-manga-with-even-better-anime-adaptation/
+
+Manga masterpieces are hard to come by, and it's even more rare than an anime adaptation comes along to make them even better.
+---------
+
+# Elizabeth Banks' The Miniature Wife Becomes No. 1 Show on Peacock in US
+
+TV, The Miniature Wife, Peacock, Sci-Fi
+
+Fri, 10 Apr 2026 20:35:45 GMT
+
+https://www.cbr.com/elizabeth-banks-the-miniature-wife-sci-fi-success-peacock-april-2026/
+
+Elizabeth Banks' sci-fi series The Miniature Wife tops Peacock's rankings in the US.
+---------
+
+# Adult Swim Just Gave Dragon Ball Z More Episodes After 2 Years
+
+Anime, Dragon Ball, Dragon Ball Z Kai, Cartoon Network
+
+Fri, 10 Apr 2026 20:32:14 GMT
+
+https://www.cbr.com/dbz-kai-adult-swim-new-episodes-april-2026/
+
+Cartoon Network's Adult Swim officially seals the fate of Dragon Ball Z in its latest release update.
+---------
+
+# 10 Greatest Fantasy Movies of the Past 50 Years
+
+Movies, Fantasy
+
+Fri, 10 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/greatest-fantasy-movies-past-50-years/
+
+Fantasy films are a high-risk and high-reward venture for film studios, but over the past 50 years, there have been some stunning fantasy films.
+---------
+
+# Seinfeld's Most Puzzling Breakup Still Makes Fans Furious
+
+TV, Seinfeld, Sitcoms
+
+Fri, 10 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/seinfeld-ellen-jerry-relationship-mystery-makes-no-sense/
+
+In Seinfeld, Jerry has a history of quirky and odd breakups with various romantic partners. His brief relationship with Ellen still has fans puzzled.
+---------
+
+# Only 7 Fantasy Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Fantasy, The Green Knight, The Boy and the Heron, All of Us Strangers
+
+Fri, 10 Apr 2026 20:50:12 GMT
+
+https://collider.com/fantasy-movies-2020s-masterpieces/
+
+From animated gems like The Boy and the Heron to dark dramas like The Northman, these fantasy films are the genre's defining hits of the 2020s so far.
+---------
+
+# Only 3 HBO Shows Are Better Than 'The Sopranos'
+
+TV, HBO, The Sopranos, Succession, The Leftovers
+
+Fri, 10 Apr 2026 20:15:12 GMT
+
+https://collider.com/hbo-shows-better-than-the-sopranos/
+
+The Sopranos is widely considered the crowning jewel of HBO, but masterful shows like Succession and The Leftovers are arguably superior in every way.
+---------
+
+# New 'CIA' x 'FBI' Crossover Episode Goes Next-Level in Early Look at April 13 Release [Exclusive]
+
+Exclusives, Missy Peregrym, Tom Ellis, FBI, CIA
+
+Fri, 10 Apr 2026 20:00:33 GMT
+
+https://collider.com/cia-episode-7-sneak-peek-missy-peregrym-tom-ellis-fbi-crossover/
+
+A new sneak peek at CIA Episode 7 teases the spin-off's crossover with FBI as Tom Ellis butts heads with Missy Peregrym. Watch it here.
+---------
+
 # The Eternaut: Top-Rated Post-Apocalyptic Show Outshines The Last Of Us
 
 Streaming TV, Masked Recs
