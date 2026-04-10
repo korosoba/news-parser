@@ -1,3 +1,278 @@
+# Ozark Creator's New Crime Series Is Officially Releasing On Streaming Next Month
+
+TV, M.I.A., Ozark
+
+Fri, 10 Apr 2026 12:49:23 GMT
+
+https://screenrant.com/mia-peacock-trailer-release-date-ozark-creator/
+
+The creator of Ozark has a new crime series that's officially releasing on streaming next month as a trailer unveils new details about the show.
+---------
+
+# Clint Eastwood's Unforgiven: The Perfect Swansong for the Western Genre
+
+Movies, Unforgiven
+
+Fri, 10 Apr 2026 12:45:20 GMT
+
+https://screenrant.com/unforgiven-clint-eastwood-changed-western-genre/
+
+Clint Eastwood's revisionist western masterpiece Unforgiven was so powerful and thought-provoking that it made the entire western genre obsolete.
+---------
+
+# Starfield's Free Lanes Update Has Fans Split Over Game-Changing New Feature
+
+Gaming, Starfield
+
+Fri, 10 Apr 2026 12:35:58 GMT
+
+https://screenrant.com/starfield-free-lanes-update-more-pois/
+
+Starfield's new Free Lanes update comes with a host of improvements and changes, but one key feature has fans excited, but also a little skeptical.
+---------
+
+# Prime Video's Hidden Gem: Why Pretty Lethal Fans Should Watch Birds Of Paradise
+
+Movies, Birds of Paradise, Recommendation
+
+Fri, 10 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/birds-of-paradise-ballerina-movie-like-pretty-lethal-prime-video/
+
+Pretty Lethal has steadily been in Prime Video's top 10 for about two weeks and fans of it should check out the platform's other ballerina film.
+---------
+
+# Twilight Named Worst Book Of All Time On Goodreads
+
+Books, Twilight
+
+Fri, 10 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/twilight-worst-novel-century-movie-franchise/
+
+One of the most popular novels of the 2000s is officially named the worst book ever despite its massive popularity and successful movie adaptation.
+---------
+
+# Georgie & Mandy's First Marriage's Original Character Removal Allows It To Run Forever
+
+Network TV, Georgie & Mandy's First Marriage, The Big Bang Theory
+
+Fri, 10 Apr 2026 12:15:19 GMT
+
+https://screenrant.com/georgie-mandys-first-marriage-ceecee-erasure-run-forever-allow/
+
+An original character is noticeably absent in Georgie & Mandy's First Marriage season 2, episode 15, but that paves the way for the show to not end.
+---------
+
+# Animal Crossing Officially Returns With Unexpected New Release
+
+Gaming, Animal Crossing
+
+Fri, 10 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/animal-crossing-april-2026-official-makeup/
+
+Discover the adorable Animal Crossing-themed skincare and makeup collection from Mitea.
+---------
+
+# 10 Underrated Movies From 2006: Hidden Gems You Might Have Missed
+
+Movies, Recommendation
+
+Fri, 10 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/hidden-gem-movies-2006-20-year-anniversary/
+
+2006 was a great year for films and while blockbusters dominated the landscape, these underrated movies deserve more appreciation from fans.
+---------
+
+# Meet Spybot and Two-Boots: Star Wars' New Favorite Droids
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Fri, 10 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/maul-shadow-lord-best-droids-spybot-two-boots/
+
+Maul - Shadow Lord introduces Spybot and Two-Boots, two new droid characters that may be the franchise's best since K-2SO. Learn more about these unique Star Wars droids.
+---------
+
+# 10 Most Powerful X-Men Characters Introduced Since 2000, Ranked
+
+Comics, X-Men
+
+Fri, 10 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/most-powerful-x-men-characters-since-2000/
+
+Over the last few decades, the X-Men franchise has debuted some of its most powerful characters of all time. Here are the ten strongest.
+---------
+
+# Amazon Just Won the Streaming Wars as Apple TV Will Be Available on Prime Video in the U.S.
+
+TV, Prime Video, AppleTV+
+
+Fri, 10 Apr 2026 12:45:08 GMT
+
+https://www.cbr.com/prime-video-apple-tv-content-partnership-us/
+
+Prime Video is set to become the biggest streaming platform and its latest move might make it that.
+---------
+
+# Netflix’s One Piece Anime Remake Studio Officially Confirms AI Use in Latest Release
+
+Anime, One Piece, Ascendance of a Bookworm, Netflix
+
+Fri, 10 Apr 2026 12:41:29 GMT
+
+https://www.cbr.com/ascendance-of-a-bookworm-ai-confirmed-one-piece-remake/
+
+Netflix's The One Piece anime remake studio officially confirmed the use of AI in the controversial Season 4 opening of Ascendance of a Bookworm.
+---------
+
+# Prime Video Officially Replaces Ad Free Service With Ultra
+
+TV, Prime Video
+
+Fri, 10 Apr 2026 12:30:12 GMT
+
+https://www.cbr.com/prime-video-replaces-ad-free-service/
+
+It's officially the end of an era for Prime Video.
+---------
+
+# Camila Morrone & Adam DiMarco play We're Not Really Strangers
+
+TV, Something Very Bad Is Going to Happen
+
+Fri, 10 Apr 2026 12:01:12 GMT
+
+https://www.cbr.com/video/camila-morrone-adam-dimarco-play-we-re-not-really-strangers/
+
+Camila Morrone (The Night Manager) and Adam DiMarco (The White Lotus) showed off their insane chemistry in this very intimate game of We're Not Really Strangers. In Something Very Bad Is Going to Happen, Camila and Adam star as an engaged couple; it's this year's answer to Rosemary's Baby on the horrors of marriage.In this hilarious, giggly and chaotic interview, Camila and Adam go deep, talking first impressions, improv-ing lines, who they'd want to get to know on a deeper level and dare each other to go out of their comfort zone. Between inside jokes and endless bits, we definitely don't feel like strangers anymore.Plus: Camila Morrone for the next Bond girl??? Unless...
+---------
+
+# DC Writer Confirms Absolute Wonder Woman's Sexuality, To A Certain Degree
+
+Comics, DC Comics
+
+Fri, 10 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/dc-writer-confirms-absolute-wonder-woman-queer/
+
+DC Comics, if you're listening....
+---------
+
+# Anya Taylor-Joy’s Most Universally Loved Movie Is Now on Prime Video
+
+Movie, Prime Video, The Menu, The Sandlot, F9: The Fast Saga
+
+Fri, 10 Apr 2026 12:41:13 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-april-10/
+
+The Menu, The Sandlot, and F9: The Fast Saga make up our list of the best movies to watch on Prime Video the weekend of April 10, 2026.
+---------
+
+# Disney+'s New Sci-Fi Crime Series Dominates Global Streaming Charts in Just 1 Week
+
+TV News, Star Wars: Maul - Shadow Lord, Star Wars, Disney+, Sci-Fi
+
+Fri, 10 Apr 2026 12:30:12 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-sci-fi-crime-series-streaming-success-disney-plus-april-2026/
+
+The latest Star Wars series has become an instant global streaming hit on Disney+ after debuting to a perfect 100% critics' rating on Rotten Tomatoes.
+---------
+
+# 10 Crime Movies That Are Perfectly Written
+
+Movie, Pulp Fiction, Goodfellas, The Godfather Part II, Heat
+
+Fri, 10 Apr 2026 12:23:13 GMT
+
+https://collider.com/crime-movies-perfectly-written/
+
+The best-written crime movies of all time include classics like Goodfellas and The Godfather Part II alongside newer films like Uncut Gems.
+---------
+
+# 24 Years Later, the Best Sci-Fi Western of All Time Is Taking Over the World
+
+TV News, Firefly, Joss Whedon, Serenity, Sci-Fi
+
+Fri, 10 Apr 2026 12:00:12 GMT
+
+https://collider.com/firefly-greatest-sci-fi-western-streaming-success-itunes-april-2026/
+
+The greatest sci-fi Western series of all time, Firefly, cemented its cult status by taking over streaming. Read on for more details.
+---------
+
+# Netflix Is About to Lose the Greatest Spy Thriller Series of All Time
+
+Movie Features, No Time to Die, Netflix, James Bond, Daniel Craig
+
+Fri, 10 Apr 2026 11:57:12 GMT
+
+https://collider.com/netflix-losing-james-bond-movies-april-007-streaming/
+
+There is about to be a massive action exodus on Netflix, with 26 movies from the same franchise leaving the service.
+---------
+
+# 10 Classic Movies That Are Still Masterpieces Today
+
+Movie, The Godfather, Vertigo, Citizen Kane, The Third Man
+
+Fri, 10 Apr 2026 11:45:12 GMT
+
+https://collider.com/classic-movies-still-masterpieces-today/
+
+Masterful movies like The Third Man and Vertigo came out during Hollywood's Golden Age, but remain as impactful and acclaimed as they were back then.
+---------
+
+# Steve Carell's 'Rooster' Renewed for Season 2 at HBO
+
+TV News, Rooster, Steve Carell, Bill Lawrence
+
+Fri, 10 Apr 2026 12:39:42 GMT
+
+https://movieweb.com/rooster-renewed-season-2-hbo/
+
+The premiere episode was the network's biggest comedy debut in over a decade.
+---------
+
+# Steven Spielberg Opens Up About Almost Directing 'Interstellar' Before Christopher Nolan
+
+Movie News, Interstellar, Christopher Nolan, Steven Spielberg
+
+Fri, 10 Apr 2026 12:10:50 GMT
+
+https://movieweb.com/spielberg-almost-made-christopher-nolan-interstellar/
+
+Spielberg spent a year developing 'Interstellar' before Christopher Nolan took over, and later said that was for the best.
+---------
+
+# 'Harry Potter' and 'The Chronicles of Narnia' Just Became 2026's 'Barbenheimer'
+
+Features, Harry Potter, The Chronicles of Narnia, Narnia: The Magician's Nephew, Netflix, HBO Max
+
+Fri, 10 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/harry-potter-narnia-barbenheimer/
+
+With HBO's 'Harry Potter' and Netflix's 'The Chronicles of Narnia' both releasing on Christmas Day, 2026 just found its next 'Barbenheimer.'
+---------
+
+# 2-Part Action Thriller Masterpiece 'The Raid' Lands on Free Streaming
+
+Movie News, The Raid: Redemption, Coming/Leaving Streaming, The Raid, Action
+
+Fri, 10 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/the-raid-action-thriller-streaming-free-pluto-tv-april-2026/
+
+Directed by Gareth Evans, 'The Raid' and 'The Raid 2' are some of the most influential action movies ever made, and they're now free to stream.
+---------
+
 # Hogwarts Legacy 2 Release Window Quietly Confirmed
 
 Gaming, Hogwarts Legacy
