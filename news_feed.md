@@ -1,3 +1,201 @@
+# Hogwarts Legacy 2 Release Window Quietly Confirmed
+
+Gaming, Hogwarts Legacy
+
+Fri, 10 Apr 2026 11:30:17 GMT
+
+https://screenrant.com/hogwarts-legacy-2-release-window-update-2027/
+
+Fans speculate that Hogwarts Legacy 2 may be closer to release than expected.
+---------
+
+# Star Trek Movie Cast Was Wasted For A Decade
+
+TV, Star Trek, Op-Ed
+
+Fri, 10 Apr 2026 11:30:17 GMT
+
+https://screenrant.com/star-trek-4-10-years-wasted/
+
+Ten years without a new Star Trek movie, and the cancellation of Star Trek 4, was a complete waste of Chris Pine and his amazing Enterprise cast.
+---------
+
+# The Elder Scrolls 6 "Wild" Release Date Revelation Floors Gamers
+
+Gaming, The Elder Scrolls 6
+
+Fri, 10 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/elder-scrolls-6-release-date-revelation/
+
+Discover how long fans have been waiting for The Elder Scrolls VI.
+---------
+
+# Every New Guest Star & Cameo In Hacks Season 5 (So Far)
+
+Streaming TV, Hacks, Hacks - Season 5
+
+Fri, 10 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/hacks-season-5-cameos-guest-stars/
+
+A diva like Deborah Vance has plenty of famous friends, and Hacks season 5, the comedy show's last, is packed with celebrity guest stars and cameos.
+---------
+
+# Extraction is Still Chris Hemsworth's Best Action Movie
+
+Movies, Extraction, Netflix, John Wick
+
+Fri, 10 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/netflix-extraction-best-action-movie/
+
+John Wick left a huge mark on the action genre, but Chris Hemsworth's Extraction took it in a totally different direction that audiences still love.
+---------
+
+# Marvel Heroes' 10 Darkest Decisions In Comics History
+
+Comics, Marvel
+
+Fri, 10 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/darkest-decisions-marvel-heroes-ever-made/
+
+Marvel Comics has invited intense storytelling, but nothing compares to the decisions these heroes made.
+---------
+
+# 10 Most Underrated Action Movies of the Last 100 Years, Ranked
+
+Movie, Action, Sorcerer, Thief, To Live and Die in L.A.
+
+Fri, 10 Apr 2026 11:36:13 GMT
+
+https://collider.com/most-underrated-action-movies-last-100-years-ranked/
+
+Sorcerer, To Live and Die in L.A., and Thief are all among the most underrated action movies released over the last 100 years.
+---------
+
+# Epic 13-Part Horror Series Drops First Look at New Fantasy Sequel
+
+TV News, American Horror Story, Ryan Murphy, Sarah Paulson
+
+Fri, 10 Apr 2026 11:30:12 GMT
+
+https://collider.com/ryan-murphy-fantasy-series-american-horror-story-season-13-sarah-paulson-jessica-lange-first-images-release-window-september-2026/
+
+Ryan Murphy’s biggest fantasy series is set to return earlier than expected, with fan-favorites Sarah Paulson and Jessica Lange confirmed to return.
+---------
+
+# 10 Classic Animated TV Shows Still Worth Binge-Watching
+
+TV, Animation, Batman: The Animated Series, Gargoyles, Avatar: The Last Airbender
+
+Fri, 10 Apr 2026 11:22:12 GMT
+
+https://collider.com/classic-animated-shows-worth-binge-watching-today/
+
+Discover timeless animated TV series that are worth revisiting and binge-watching today, from DuckTales to Batman: The Animated Series.
+---------
+
+# 10 Relentless Action Movie Series That Are the Perfect Weekend Binge
+
+Movie, Action, Die Hard, James Bond, Fast and Furious
+
+Fri, 10 Apr 2026 11:22:12 GMT
+
+https://collider.com/action-movie-series-perfect-weekend-binge/
+
+If your weekend is missing some excitement, look no further than action film franchises like John Wick and James Bond, which pack one hell of a punch.
+---------
+
+# 10 Perfect Family Movies With Complex Storytelling, Ranked
+
+Movie, Family, The Wizard of Oz, It's a Wonderful Life, Puss in Boots: The Last Wish
+
+Fri, 10 Apr 2026 11:07:12 GMT
+
+https://collider.com/perfect-family-movies-complex-storytelling-ranked/
+
+A lot of kids and family movies are dumb, but classics like The Wizard of Oz, The Sound of Music, and It's a Wonderful Life dared to be complex.
+---------
+
+# Netflix Loses One of Its Best WWII Thrillers This Month
+
+Movie News, Darkest Hour, Harry Potter, War, Netflix
+
+Fri, 10 Apr 2026 11:00:12 GMT
+
+https://collider.com/gary-oldman-ww2-thriller-darkest-hour-leaving-netflix-may-2026/
+
+A Harry Potter icon's Oscar-winning WW2 movie is about to leave the Netflix catalog this May. Read on for more details.
+---------
+
+# Only 4 Superhero Shows Are Better Than HBO's 'Watchmen'
+
+TV, Watchmen, Superhero, The Boys, WandaVision
+
+Fri, 10 Apr 2026 10:47:12 GMT
+
+https://collider.com/superhero-shows-better-than-watchmen-hbo/
+
+HBO's Watchmen is a genuine masterpiece, but other superhero shows like Prime Video's The Boys and Disney+'s WandaVision are arguably better.
+---------
+
+# 'Star Wars: Maul - Shadow Lord' Star Reveals How Spin-off Will Honor George Lucas' Ideas [Exclusive]
+
+TV News, Star Wars, Star Wars: Maul - Shadow Lord, Disney+
+
+Fri, 10 Apr 2026 11:30:54 GMT
+
+https://movieweb.com/sam-witwer-maul-apprentice-star-wars/
+
+Speaking exclusively with MovieWeb, Sam Witwer offers insight into Maul's new apprentice, newcomer Devon Izara.
+---------
+
+# MCU 'X-Men' Writer Reveals Favorite Characters & "Breathing New Life" Into the Franchise
+
+Movie News, X-Men, MCU
+
+Fri, 10 Apr 2026 11:20:49 GMT
+
+https://movieweb.com/x-men-writer-favorite-characters-mcu-reboot/
+
+Sonny Lee Sung Jin talks about his love for the side characters, particularly Gambit and Jubilee.
+---------
+
+# Taylor Sheridan’s TV Empire Wouldn't Have Happened Without One Failure
+
+Features, Taylor Sheridan
+
+Fri, 10 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/taylor-sheridan-tv-career-change/
+
+Taylor Sheridan is beloved for creating Western TV shows like the 'Yellowstone' franchise, but he once had a different role in Hollywood.
+---------
+
+# Prime Video Orders Crime Thriller 'Calamities' From Glen Powell
+
+TV News, Glen Powell, Taylor Sheridan, Prime Video
+
+Fri, 10 Apr 2026 10:58:36 GMT
+
+https://movieweb.com/prime-video-orders-calamities-david-weil-glen-powell/
+
+Amazon Prime Video has given a straight-to-series order to crime thriller series 'Calamities' from David Weil, with Glen Powell executive producing.
+---------
+
+# 'Train to Busan' Director's New Zombie Movie 'Colony' Scores Cannes Debut
+
+Movie News, Train to Busan, Horror, Cannes Film Festival
+
+Fri, 10 Apr 2026 10:56:17 GMT
+
+https://movieweb.com/train-to-busan-director-colony-cannes/
+
+The South Korean filmmaker is back with another inventive and likely bloody film about the undead.
+---------
+
 # Pokémon Scarlet & Violet Free Download Available Until April 16
 
 Gaming, Pokemon
