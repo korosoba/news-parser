@@ -1,3 +1,157 @@
+# The Eternaut: Top-Rated Post-Apocalyptic Show Outshines The Last Of Us
+
+Streaming TV, Masked Recs
+
+Fri, 10 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/the-eternaut-netflix-best-post-apocalyptic-show/
+
+The Last of Us is a high watermark for post-apocalyptic television shows, but Netflix's The Eternaut gives it a run for its dystopian money.
+---------
+
+# There's No Better Time To Watch Rivals, David Tennant's 95% RT Adults-Only Hulu Drama
+
+Streaming TV, Masked Recs
+
+Fri, 10 Apr 2026 19:45:19 GMT
+
+https://screenrant.com/david-tennant-rivals-hulu-watch-season-2/
+
+New episodes of David Tennant's and Hulu's hit 1980s period drama are coming out next month, so there's no better time to catch up on the series.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is A Bloody Shark Thriller That Just Debuted)
+
+Movies, Netflix, Recommendation
+
+Fri, 10 Apr 2026 19:40:16 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-april-11/
+
+The best movies to watch on Netflix this weekend are led by a new shark thriller, with other options including an iconic slasher and survival tale.
+---------
+
+# Ridley Scott's Sci-Fi Masterpiece Officially Surpassed By Project Hail Mary To Set New Box Office Record
+
+Movies, Project Hail Mary, The Martian
+
+Fri, 10 Apr 2026 19:39:51 GMT
+
+https://screenrant.com/project-hail-mary-highest-grossing-andy-weir-movie-domestic-box-office/
+
+Project Hail Mary has only been in theaters for a few weeks, but it’s already setting new box office records for Andy Weir’s big screen adaptations.
+---------
+
+# Was That The Watcher In Daredevil: Born Again Season 2? Marvel's Multiverse Cameo Explained
+
+Streaming TV, Daredevil: Born Again
+
+Fri, 10 Apr 2026 19:30:47 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-4-watcher-cameo-explained/
+
+Some Marvel fans think they've spotted the Watcher hiding in the background of Daredevil: Born Again. Is it intentional, or just a coincidence?
+---------
+
+# New Horror Film Is Officially The Highest Rated Video Game Movie Ever On Rotten Tomatoes
+
+Movies, Exit 8, Horror
+
+Fri, 10 Apr 2026 19:25:41 GMT
+
+https://screenrant.com/exit-8-movie-rotten-tomatoes-score-video-game-adaptations/
+
+There's a new all-time best video game movie according to the ratings compiled by RT, as a just-released horror movie becomes a critical hit.
+---------
+
+# DC’s Batman: The Killing Joke Returns With Must-Buy Collector's Item
+
+Superheroes, Batman: The Killing Joke
+
+Fri, 10 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/batman-the-killing-joke-rare-collectors-edition-confirmed/
+
+Only so many Batman: The Killing Joke fans will be able to own its latest, wholly unique edition.
+---------
+
+# Midnight Cowboy's 3-Word Quote Defines New York City
+
+Movies, Midnight Cowboy, Drama, Dustin Hoffman
+
+Fri, 10 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/midnight-cowboy-quote-defines-new-york-city/
+
+Hollywood has contributed to how audiences around the world perceive the Big Apple, and one classic sums up the city’s character perfectly.
+---------
+
+# Video Game Movie Exit 8 Debuts Strong on Rotten Tomatoes
+
+Movies, Rotten Tomatoes, Exit 8
+
+Fri, 10 Apr 2026 19:38:18 GMT
+
+https://www.cbr.com/exit-8-rotten-tomatoes-debut/
+
+The latest video game adaptation for the big screen is getting some very high marks from critics on Rotten Tomatoes.
+---------
+
+# Emily Blunt's The Girl on the Train Becomes a Streaming Hit 10 Years Later
+
+Movies, The Girl on the Train, STARZ, Thriller
+
+Fri, 10 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/emily-blunt-the-girl-on-the-train-thriller-starz-success-april-2026/
+
+Emily Blunt's The Girl on the Train is one of the most-watched movies on Starz 10 years after its release.
+---------
+
+# 10 Near-Perfect Horror Movies That No One Remembers Today
+
+Movie, Horror, The Cremator, Kwaidan, Faust
+
+Fri, 10 Apr 2026 19:30:12 GMT
+
+https://collider.com/near-perfect-horror-movies-no-one-remembers/
+
+From Mexican classics like The Scapular to Japanese gems like Kwaidan, these movies are genuine masterpieces of horror that have been sadly forgotten.
+---------
+
+# Underrated Action Thriller Series 'Tracker' Rivals 'Reacher' With Streaming Success
+
+TV News, Reacher, Tracker, Action, Thriller
+
+Fri, 10 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/tracker-rival-reacher-stream-april-2026/
+
+The action thriller series starring Justin Hartley as survivalist avenger Colter Shaw is now streaming its latest season.
+---------
+
+# 'Malcolm in the Middle's Dewey Recasting Drama Was Totally Anticlimactic
+
+Features, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Fri, 10 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/malcolm-in-the-middle-recasting-drama-anticlimactic/
+
+In the long run, 'Malcolm in the Middle's revival recasting drama wasn't worth the time and energy we all spent talking about it.
+---------
+
+# Millie Bobby Brown Exits 'Perfect' Netflix Sports Biopic About Kerri Strug
+
+Movie News, Millie Bobby Brown, Netflix
+
+Fri, 10 Apr 2026 19:28:23 GMT
+
+https://movieweb.com/netflix-millie-bobby-brown-exits-perfect/
+
+After initially being pegged to play Olympic gold medalist Kerri Strug in 'Perfect,' Millie Bobby Brown parted ways with Netflix on the project.
+---------
+
 # Why Exit 8 Is Such A Great Game Adaptation
 
 Movies, Exit 8
