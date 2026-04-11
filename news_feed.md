@@ -1,3 +1,157 @@
+# Super Mario Galaxy Hits Box Office Milestone That Multiple Harry Potter Movies Couldn't, In Under 2 Weeks
+
+Movies, Box Office Milestone, The Super Mario Galaxy Movie, Super Mario Bros.
+
+Sat, 11 Apr 2026 15:14:33 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-box-office-300-million-domestic-milestone/
+
+During its sophomore weekend, The Super Mario Galaxy Movie rockets past a major box office milestone, outgrossing multiple Harry Potter movies.
+---------
+
+# Glen Powell's Anyone But You Has Its Box Office Debut Outgrossed By Rival Rom-Com You, Me & Tuscany
+
+Movies, Box Office, You, Me & Tuscany
+
+Sat, 11 Apr 2026 15:12:28 GMT
+
+https://screenrant.com/you-me-and-tuscany-box-office-opening-weekend-domestic-chart-report/
+
+The domestic opening weekend of the new romantic comedy movie You, Me & Tuscany is projected to outdo the debut of the 2023 smash hit Anyone But You.
+---------
+
+# New Pokémon TCG Set Revealed For July Has Fans Predicting Massive Change
+
+Gaming, Pokemon Trading Card Game, tabletop games
+
+Sat, 11 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/pokemon-tcg-pitch-black-july-set-lost-zone/
+
+Once July rolls around for The Pokémon TCG, there might be a huge shakeup, as a new reveal has fans predicting the return of an old chestnut.
+---------
+
+# Netflix's One Piece Will Get Even Better In 2 Months Time
+
+Streaming TV, One Piece, Avatar: The Last Airbender
+
+Sat, 11 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/netflix-one-piece-avatar-last-airbender-comparison/
+
+In two months, a Netflix live-action adaptation will be premiering on the streaming platform, and it will make its 2-part fantasy show even better.
+---------
+
+# We All Missed The Real Reason Anakin Skywalker's Story Is A True Tragedy
+
+Movies, Anakin Skywalker/Darth Vader, Star Wars
+
+Sat, 11 Apr 2026 14:40:19 GMT
+
+https://screenrant.com/star-wars-anakin-skywalker-master-tragedy/
+
+Anakin Skywalker's fall to the dark side and transformation into Darth Vader is tragic, but one aspect of his Star Wars story often gets overlooked.
+---------
+
+# 10 Best Shonen Manga If You're Craving Another Solo Leveling
+
+Anime, Manga, Solo Leveling
+
+Sat, 11 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/best-manga-like-solo-leveling/
+
+Anyone looking for more shonen manga like Solo Leveling has been great options to choose from.
+---------
+
+# Steven Spielberg's Young Sherlock Holmes Is the Most Important Sci-Fi Film
+
+Movies, Young Sherlock
+
+Sat, 11 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/steven-spielberg-sherlock-holmes-most-important-sci-fi-film/
+
+An original 1980s take on Sherlock Holmes from two eventual cinema legends is one of the most important sci-fi films of all time for a subtle reason.
+---------
+
+# 7 Near-Perfect Sci-Fi Games That No One Remembers Today
+
+Games, Science Fiction, retro games
+
+Sat, 11 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/best-forgotten-sci-fi-games/
+
+If anyone remembers obscure sci-fi titles like System Shock 2 and BioForge, then congratulations!
+---------
+
+# The Furious, The Action Movie Event of the Year, Just Got Some Bad News
+
+Movies, Action, The Furious, Crouching Tiger, Hidden Dragon, Blade II
+
+Sat, 11 Apr 2026 14:48:09 GMT
+
+https://www.cbr.com/the-furious-action-movie-event-of-the-year-bad-news-update/
+
+The world will have to wait a little longer to get its hands on the 'instant masterpiece'.
+---------
+
+# Harry Potter's Ralph Fiennes Confirms He Was Asked to Reprise His Role as Lord Voldemort
+
+TV, Harry Potter
+
+Sat, 11 Apr 2026 14:38:32 GMT
+
+https://www.cbr.com/harry-potter-ralph-fiennes-asked-reprise-voldemort-role/
+
+The HBO series has yet to officially confirm who plays the character in the reboot.
+---------
+
+# Prime Video’s $715M Fantasy Gamble Is Still TV’s Most Expensive Show Even After the Backlash
+
+TV Features, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Prime Video, Fantasy
+
+Sat, 11 Apr 2026 15:23:13 GMT
+
+https://collider.com/rings-of-power-prime-video-fantasy-most-expensive-show-backlash/
+
+Despite mixed reviews and a divided audience, Prime Video's The Rings of Power remains the most expensive TV show ever made.
+---------
+
+# 10+ Years Later, This Controversial Western Is One of Streaming’s Biggest Surprises
+
+Movie News, Natalie Portman, Ewan McGregor, Joel Edgerton, Jane Got A Gun
+
+Sat, 11 Apr 2026 15:00:13 GMT
+
+https://collider.com/ewan-mcgregor-forgotten-western-jane-got-a-gun-streaming-success-april-2026/
+
+This forgotten Western with 2 Star Wars prequel legends is officially a streaming success over 10 years after its controversial release.
+---------
+
+# 'Paradise' Season 3: Confirmation, Cast, Plot & Everything We Know
+
+Features, The Pitt
+
+Sat, 11 Apr 2026 15:01:17 GMT
+
+https://movieweb.com/the-pitt-season-3-everything-we-know/
+
+From casting news to release dates, find out all there is to know about Season 3 of HBO's masterful medical drama 'The Pitt.'
+---------
+
+# Riveting Chinese Dramas to Stream on Prime Video
+
+TV Lists, Prime Video, International
+
+Sat, 11 Apr 2026 15:01:17 GMT
+
+https://movieweb.com/chinese-dramas-prime-video/
+
+Prime Video has a great selection of Chinese dramas, including classics and hidden gems.
+---------
+
 # Cyberpunk 2077: All Free Car and Vehicle Locations
 
 Gaming, Cyberpunk 2077, PC
