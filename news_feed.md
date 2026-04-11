@@ -1,3 +1,168 @@
+# Skyrim Meets Diablo In New Pixel-Art RPG You Can Play Free Now
+
+Gaming, Steam, Diablo, The Elder Scrolls V: Skyrim
+
+Sat, 11 Apr 2026 04:01:21 GMT
+
+https://screenrant.com/steam-free-rpg-skyrim-meets-diablo/
+
+Immerse yourself in a pixel-art world where Skyrim's exploration meets Diablo's action in the Dimraeth demo, now available on Steam.
+---------
+
+# Blumhouse's R-Rated The Mummy Breaks Brendan Fraser's Movie Runtime Record After 25 Years
+
+Movies, Lee Cronin's The Mummy, The Mummy, Blumhouse, Warner Bros.
+
+Sat, 11 Apr 2026 03:57:07 GMT
+
+https://screenrant.com/blumhouse-lee-cronins-the-mummy-runtime-record-brendan-fraser-comparison/
+
+Blumhouse's The Mummy continues to break grounds in the monster franchise, now setting a runtime record once set by Brendan Fraser's movie.
+---------
+
+# 4 Years Later, Hulu's 1 Season Horror Masterpiece Is Still The Perfect Weekend Binge-Watch
+
+Anime, Connect, Hulu, Disney+
+
+Sat, 11 Apr 2026 03:55:20 GMT
+
+https://screenrant.com/connect-horror-disney-hulu-binge/
+
+Featuring the direction of a legendary action horror director, this body horror hit has a surprising home with Disney's streaming platforms.
+---------
+
+# Netflix's Best Teen Drama Is Still This 2 Part Masterpiece That's the Perfect Weekend Binge
+
+TV, Netflix, The End of the F***ing World
+
+Sat, 11 Apr 2026 02:55:20 GMT
+
+https://screenrant.com/the-end-of-the-fing-world-netflix-best-teen-drama/
+
+A transgressive teen drama that puts its viewers on a darkly comedic journey alongside its stars to their eventual, messy redemption.
+---------
+
+# Sailor Moon Crystal Season 1-3 Blu-Ray Collection Gets First North American Box Set Release
+
+Anime, Sailor Moon Crystal, Sailor Moon, viz media
+
+Sat, 11 Apr 2026 03:59:12 GMT
+
+https://www.cbr.com/sailor-moon-crystal-season-1-3-collection-blu-ray-release-date/
+
+Sailor Moon fans in North America can finally get their own copy of one of the best Sailor Moon Crystal collections of all time.
+---------
+
+# 10 Classic Mecha Anime That Are 100% Unwatchable Today
+
+Anime, mecha
+
+Sat, 11 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/classic-mecha-anime-unwatchable-today/
+
+Mecha anime like Patlabor and Neon Genesis Evangelion are timeless classics, while other celebrated mecha series haven't aged quite as gracefully.
+---------
+
+# Why Penny Was Recast in The Big Bang Theory
+
+TV, The Big Bang Theory
+
+Sat, 11 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/the-big-bang-theory-why-penny-was-recast/
+
+The original version of Big Bang Theory's Penny looked much different from the one played by Kaley Cuoco.
+---------
+
+# Every 2010s Video Game Console, Ranked
+
+Games, Video Games, Nintendo Switch, PlayStation 4
+
+Sat, 11 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/2010s-game-console-ps4-xbox-nintendo-switch/
+
+The PS4 and Xbox One represent the best game consoles of the 2010s.
+---------
+
+# Transformers: Forged to Fight Leaving Netflix on May 8
+
+Anime, Transformers, Netflix
+
+Sat, 11 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/transformers-forged-to-fight-netflix-shutdown/
+
+Nearly 10 years after it originally debuted, the second life of a Transformers video game is coming to an end in less than a month.
+---------
+
+# The 10 Most Successful Original Anime Series of the Last Decade
+
+Anime
+
+Sat, 11 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/most-successful-original-anime-series-last-10-years/
+
+Many popular anime started out as a beloved manga, but that's not true for every anime success story.
+---------
+
+# Apple TV’s Epic 2-Part Sci-Fi Is Climbing the Charts on Another Streamer
+
+TV Features, Monarch: Legacy of Monsters, Apple TV, Prime Video, Sci-Fi
+
+Sat, 11 Apr 2026 04:02:14 GMT
+
+https://collider.com/monarch-legacy-of-monsters-apple-tv-sci-fi-prime-video-streaming/
+
+Monarch: Legacy of Monsters is gaining traction on Prime Video through Apple TV's channel subscription.
+---------
+
+# 8 Worst Stephen King Book Endings, Ranked
+
+Movie, Stephen King, Desperation, Lisey's Story, The Tommyknockers
+
+Sat, 11 Apr 2026 03:09:14 GMT
+
+https://collider.com/worst-stephen-king-book-endings-ranked/
+
+Stephen King is sometimes infamous for his endings, with books like Cell, The Colorado Kid, and The Tommyknockers having questionable conclusions.
+---------
+
+# ‘Boston Blue’ Star Promises That Fans Will Be “Knocked Back” by the Season 1 Finale
+
+Exclusives, Boston Blue, Sonequa Martin-Green, The Walking Dead, Star Trek: Discovery
+
+Sat, 11 Apr 2026 03:00:13 GMT
+
+https://collider.com/boston-blue-episode-14-finale-cliffhanger-sonequa-martin-green-interview/
+
+Sonequa Martin-Green discusses Boston Blue. uncovering Silver family secrets, finale cliffhangers, and what she'd like to see in Season 2.
+---------
+
+# Apple TV’s ‘The Last Thing He Told Me’ Finale Turns Its Last 2 Minutes Into an Even Bigger Season 3 Problem
+
+TV, The Last Thing He Told Me, Apple TV, Jennifer Garner, Judy Greer
+
+Sat, 11 Apr 2026 03:00:13 GMT
+
+https://collider.com/the-last-thing-he-told-me-season-2-finale-meaning-season-3-story-showrunners-interview/
+
+The Last Thing He Told Me showrunners break down Season 2’s Quinn twist, Kate’s death, and the biggest Season 3 teases.
+---------
+
+# Prime Video Raises Ad-Free Tier With New Ultra Subscription
+
+TV News, Prime Video
+
+Sat, 11 Apr 2026 03:16:00 GMT
+
+https://movieweb.com/prime-video-ultra-subscription/
+
+Prime Video now has a thrilling new ad-free tier of subscription available for purchase called Prime Video Ultra.
+---------
+
 # HBO’s 3-Part Fantasy Beats Out The 2007 Golden Compass Movie By Embracing 1 Book Element
 
 Classic TV, The Golden Compass, His Dark Materials
