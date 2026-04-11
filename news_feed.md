@@ -1,3 +1,25 @@
+# ‘James Bond’ Meets ‘Slow Horses’ in Tom Hardy’s $80 Million Spy Thriller Taking Over the World
+
+Movie News, Tinker Tailor Soldier Spy, Tom Hardy, Prime Video, Gary Oldman
+
+Sat, 11 Apr 2026 08:20:12 GMT
+
+https://collider.com/tom-hardy-james-bond-slow-horses-spy-thriller-tinker-tailor-soldier-spy-streaming-success-prime-video-april-2026/
+
+James Bond meets Slow Horses in Tom Hardy's $80 million British thriller, Tinker Tailor Soldier Spy, that's taking the world by storm on streaming.
+---------
+
+# Netflix Is Restricting Access to Russell Crowe’s WWII Sleeper Hit
+
+Movie News, Nuremberg, Russell Crowe, Netflix, World War II
+
+Sat, 11 Apr 2026 08:00:12 GMT
+
+https://collider.com/netflix-blocks-russell-crowe-ww2-sleeper-hit-nuremberg-april-2026/
+
+Netflix is restricting access to Russell Crowe's sleeper hit World War II drama with Rami Malek, Nuremberg. Find out why below.
+---------
+
 # Xbox Game Pass Adds One Of The Best Final Fantasy Games Ever For Free
 
 Gaming, Xbox Game Pass, Final Fantasy
