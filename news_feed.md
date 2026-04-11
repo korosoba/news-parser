@@ -1,3 +1,223 @@
+# Cyberpunk 2077: All Free Car and Vehicle Locations
+
+Gaming, Cyberpunk 2077, PC
+
+Sat, 11 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/cyberpunk-2077-free-car-motorcycle-vehicle-bike-locations/
+
+Cyberpunk 2077 lets you drive through Night City in tons of different vehicles. A lot of them are pricey, but there are plenty of free cars to find.
+---------
+
+# Marvel Teases Again That Not Everyone Will Make It Out Of Spider-Man & Venom's Latest Crossover Alie
+
+Comics, Spider-Man, Venom, Marvel
+
+Sat, 11 Apr 2026 14:30:18 GMT
+
+https://screenrant.com/spider-man-venom-death-spiral-character-death-odds/
+
+Is Marvel about to kill this Spider-Man supporting character?
+---------
+
+# Harry Potter TV Show: A Decisive Test For The Wizarding World Empire
+
+Streaming TV, Harry Potter
+
+Sat, 11 Apr 2026 14:30:18 GMT
+
+https://screenrant.com/harry-potter-hbo-most-ambitious-tv-show-2020s/
+
+2026 is bringing the most ambitious TV show of the decade, which will be key to deciding the fate of a popular billion-dollar franchise.
+---------
+
+# You, Me & Tuscany Makes Regé-Jean Page Such A Hunk, It's Hilarious
+
+Movies, You, Me & Tuscany
+
+Sat, 11 Apr 2026 14:20:19 GMT
+
+https://screenrant.com/you-me-tuscany-rege-jean-page-hilarious-hunk/
+
+The romcom You, Me & Tuscany knows exactly what it's doing, and that's what makes the movie so much fun to see in a fully packed theater.
+---------
+
+# DC Officially Confirms Superman's Design For The Man Of Steel's Next Appearance
+
+Superheroes, Superman, DC Universe
+
+Sat, 11 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/krypto-saves-the-day-hbo-max-superman-dc-series-reveal/
+
+Superman will return in James Gunn's next Man of Steel release soon, and DC has already revealed the hero's official new look for the project.
+---------
+
+# Daniel Radcliffe's 4-Part Anthology Series Is What You've Been Missing
+
+TV, Miracle Workers, Daniel Radcliffe
+
+Sat, 11 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/dadaniel-radcliffe-miracle-workers-prime-video-series-missing/
+
+Discover Daniel Radcliffe’s ambitious four-season anthology series that shows his incredible range but remains a hidden gem to most TV lovers.
+---------
+
+# Karl Urban Wants To Star In Iconic Western Game Adaptation After Mortal Kombat II
+
+Movies, Red Dead Redemption
+
+Sat, 11 Apr 2026 14:14:10 GMT
+
+https://screenrant.com/karl-urban-red-dead-redemption-john-marston-adaptation/
+
+Karl Urban is no stranger to adaptations, and there's one in particular that he's ready to star in, as he awaits the release of Mortal Kombat II.
+---------
+
+# He-Man Fans Get The Perfect Game Ahead Of New Masters Of The Universe Movie
+
+Gaming, Masters of the Universe, Triple-A Games, PC
+
+Sat, 11 Apr 2026 14:00:18 GMT
+
+https://screenrant.com/he-man-masters-universe-video-game-release-before-movie/
+
+2026 is shaping up to be a big year for Masters of the Universe, and the upcoming He-Man game might be an even better treat than the movie.
+---------
+
+# Solo Leveling’s 3rd Season Will Be Its Last
+
+Anime, Solo Leveling
+
+Sat, 11 Apr 2026 14:00:18 GMT
+
+https://screenrant.com/solo-leveling-third-season-last/
+
+Solo Leveling will only be getting adapted into one more season, and that will be Season 3, and the first two seasons of the anime prove it.
+---------
+
+# After Watching The Boys Season 5's First Episodes, I'm Worried About An OG Character
+
+Streaming TV, The Boys
+
+Sat, 11 Apr 2026 14:00:18 GMT
+
+https://screenrant.com/the-boys-season-5-mm-concern-death/
+
+The Boys season 5's first two episodes confirmed there will be plenty of deaths this season, but one OG character in particular has me concerned.
+---------
+
+# Star Trek's Cancellation Makes Stargate SG-1 Mandatory Viewing
+
+TV, Stargate SG-1, Stargate, Star Trek, Sci-Fi
+
+Sat, 11 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/star-trek-replacement-sci-fi-masterpiece-stargate-sg1/
+
+Military action, politics, and complex characters make this sci-fi series a must-watch, especially for Star Trek fans looking for something different.
+---------
+
+# Bob Odenkirk & Lena Headey Break Down Normal’s Dark Small Town Secrets
+
+Movies, Normal
+
+Sat, 11 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/video/bob-odenkirk-lena-headey-break-down-normal-s-dark-small-town-secrets/
+
+In this interview, Bob Odenkirk and Lena Headey dive into what makes Normal tick, from subtle storytelling tricks to the eerie charm of small-town life. Odenkirk connects the film’s clues to Breaking Bad and Better Call Saul-style setups, while Headey talks about how her tattoos shape her character. Plus, they unpack the quiet romantic tension between their characters and why it keeps audiences hooked.
+---------
+
+# Honkai: Star Rail Confirms New Anime With JJK Studio Ahead of 3rd Anniversary Release
+
+Anime, Jujutsu Kaisen, Genshin Impact
+
+Sat, 11 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/honkai-star-rail-anime-2026-anniversary-release/
+
+The best sci-fi RPG with over 30 million players is celebrating its 3rd anniversary with free 5-star characters and an official anime by studio MAPPA.
+---------
+
+# Doctor Doom's Victory Depends On Loki
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 11 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/mcu-doctor-doom-loki-victory/
+
+Avengers: Doomsday is setting up Doctor Doom's huge plan, and it can't work without Loki at the center of everything.
+---------
+
+# 10 Box Office Bombs That Surprised No One
+
+Movie, Joker: Folie a Deux, Madame Web, Battlefield Earth, Gigli
+
+Sat, 11 Apr 2026 14:28:12 GMT
+
+https://collider.com/box-office-bombs-surprised-no-one/
+
+Madame Web, Terminator: Dark Fate, and Joker: Folie à Deux bombed at the box office, and we all saw these failures coming from a mile away.
+---------
+
+# Christopher Nolan's Near-Perfect 'Dark Knight' Opening Heist Is Pulled From This 10/10 Thriller
+
+Movie Features, Christopher Nolan, Heat, The Dark Knight, Thriller
+
+Sat, 11 Apr 2026 14:04:12 GMT
+
+https://collider.com/christopher-nolan-dark-knight-opening-heist-heat-comparison/
+
+Christopher Nolan's opening heist scene in The Dark Knight is directly inspired by Michael Mann's classic thriller masterpiece Heat.
+---------
+
+# Netflix’s New Shark Thriller Is Already Chomping Up the Charts in Less Than 48 Hours
+
+Movie News, Thrash, Netflix, Phoebe Dynevor, Tommy Wirkola
+
+Sat, 11 Apr 2026 14:03:29 GMT
+
+https://collider.com/netflix-new-shark-thriller-horror-movie-thrash-streaming-success-april-2026/
+
+Netflix’s new shark thriller movie, starring Bridgerton’s Phoebe Dynevor, is an instant streaming success.
+---------
+
+# 'Bridgerton' Alum Phoebe Dynevor Almost Quit Acting Before Getting Cast
+
+Exclusives, Thrash, Bridgerton, Phoebe Dynevor, Ladies Night
+
+Sat, 11 Apr 2026 14:00:13 GMT
+
+https://collider.com/bridgerton-phoebe-dynevor-netflix-shark-movie/
+
+On Collider Ladies Night, Phoebe Dynevor looks back on her Bridgerton exit and how she's been choosing new projects ever since.
+---------
+
+# 'The Miniature Wife' Becomes Peacock's Latest #1 Hit on Streaming
+
+TV News, The Miniature Wife, Hot on Streaming, Sci-Fi
+
+Sat, 11 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/the-miniature-wife-streaming-hit-peacock-april-2026/
+
+People can't stop raving about Peacock's newest #1 hit, 'The Miniature Wife," which is part 'Honey, I Shrunk the Kids' and part 'War of the Roses.'
+---------
+
+# Every DC Comics Shared Universe in Movies & TV Shows, Ranked
+
+TV Lists, DCU, Justice League, Batman, Superman
+
+Sat, 11 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/every-dc-comics-shared-universe-ranked/
+
+Although it might seem like DC was late to the game of cinematic universes with the DCEU, there have been several DC shared universes.
+---------
+
 # The Mandalorian & Grogu Is Star Wars’ Shortest Movie In 18 Years
 
 Movies, The Mandalorian and Grogu, Star Wars
