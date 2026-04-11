@@ -1,3 +1,212 @@
+# Apple TV's 'Your Friends and Neighbors': Jon Hamm's Dark Comedy Masterpiece
+
+Streaming TV, Your Friends and Neighbors
+
+Sat, 11 Apr 2026 17:02:19 GMT
+
+https://screenrant.com/your-friends-and-neighbors-apple-tv-dark-comedy-getting-better/
+
+Jon Hamm's dark comedy series on Apple TV, Your Friends and Neighbors, is one of the funniest (and most twisted) shows on the air right now.
+---------
+
+# Faces Of Death Killer's Motives & Backstory Are Hidden Throughout The Horror Reboot, Hints Director & Writer
+
+Movies, Faces of Death, Horror
+
+Sat, 11 Apr 2026 17:01:19 GMT
+
+https://screenrant.com/faces-of-death-2026-killer-motives-backstory-hidden-director-writer-explained/
+
+Exclusive: The new Faces of Death features a killer inspired by the original movie's murders, and the team purposely hid his motives and backstory.
+---------
+
+# The Original 1990 Teenage Mutant Ninja Turtles Film Was Seriously Dark For One Reason Fans Miss
+
+Movies, Teenage Mutant Ninja Turtles
+
+Sat, 11 Apr 2026 17:01:19 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-nightmare-dark-suits/
+
+The 1990s Teenage Mutant Ninja Turtle movies may have been a big hit with fans, but it was torture behind the scenes for the actors.
+---------
+
+# The Bear: A Consistently Great Series with No Bad Episodes
+
+Streaming TV, The Bear
+
+Sat, 11 Apr 2026 17:01:19 GMT
+
+https://screenrant.com/the-bear-perfect-show-worst-episodes-are-good/
+
+Hulu's The Bear hasn't always been perfect, but it's such a great show that even its absolute worst episodes aren't really bad episodes.
+---------
+
+# Netflix’s New R-Rated Thriller Movie Instantly Takes The World By Storm
+
+Movies, Masked Recs
+
+Sat, 11 Apr 2026 16:57:08 GMT
+
+https://screenrant.com/thrash-netflix-movie-streaming-success-april-2026/
+
+A new R-rated Netflix thriller has arrived, and the intense film is already swimming its way to the top of the streamer's top 10 charts.
+---------
+
+# 10 Family-Friendly Fantasy Movies That Are Amazing From Start to Finish
+
+Movies, Fantasy
+
+Sat, 11 Apr 2026 16:55:19 GMT
+
+https://screenrant.com/family-friendly-fantasy-movies-amazing-start-to-finish/
+
+From coming-of-age classics to franchise films, these beloved fantasy stories stand out as genuinely perfect from start to finish.
+---------
+
+# All 9 Lord Of The Rings Movie Characters That Have Now Been Recast
+
+Movies, The Lord of the Rings
+
+Sat, 11 Apr 2026 16:46:19 GMT
+
+https://screenrant.com/lord-of-the-rings-movie-characters-recast/
+
+As the Lord of the Rings franchise keeps expanding in film and TV, more characters are being brought back, but some of them have required a recast.
+---------
+
+# Jason Statham's Next Movie Is An Action First For The Actor After 25 Years
+
+Movies, Mutiny, Op-Ed
+
+Sat, 11 Apr 2026 16:40:19 GMT
+
+https://screenrant.com/mutiny-movie-jason-statham-die-hard-blank-first-action-movie/
+
+Despite having starred in action movies for 25 years and counting, Jason Statham's next film Mutiny will mark a surprising first in his career.
+---------
+
+# Bridgerton's New Cast Member Officially Solves A Season 5 Problem
+
+Streaming TV, Bridgerton
+
+Sat, 11 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/bridgerton-season-5-new-cast-member-tega-anderson-christopher-anderson/
+
+The exciting announcement of new cast members for Bridgerton season 5 solves a major problem for the Netflix Regency-era romance series.
+---------
+
+# 10 Most Underrated Final Fantasy Party Members Of All Time
+
+Gaming, Final Fantasy
+
+Sat, 11 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/final-fantasy-underrated-party-members/
+
+Even when they're benched, Final Fantasy's most underrated party members are still incredibly powerful if you know how to use them in combat.
+---------
+
+# Netflix's New Comedy Big Mistakes Becomes an Instant Streaming Hit in the U.S.
+
+TV, Big Mistakes
+
+Sat, 11 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/dan-levy-big-mistakes-comedy-netflix-success-april-2026/
+
+Netflix's latest series teams up Schitt's Creek and The Conners alums.
+---------
+
+# Jenna Ortega Was Almost Cast in Hereditary
+
+Movies, Hereditary, Horror
+
+Sat, 11 Apr 2026 16:42:41 GMT
+
+https://www.cbr.com/jenna-ortega-hereditary-casting/
+
+Scream queen Jenna Ortega missed out on appearing in one of the most revered modern horror movies.
+---------
+
+# 7 Fantasy Books Better Than Game of Thrones (That Need Adaptations)
+
+TV, Game Of Thrones, Fantasy, books
+
+Sat, 11 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/fantasy-books-deserve-tv-adaptations-list/
+
+Game of Thrones set the new standard for fantasy novel adaptations in television, but these books could blow the HBO series out of the water.
+---------
+
+# 10 Greatest Sci-Fi Movies of the Past 50 Years
+
+Movies, Sci-Fi
+
+Sat, 11 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/greatest-sci-fi-movies-of-past-50-years-list/
+
+Sci-fi is a powerful and thought-provoking genre, and movies like Alien and Jurassic Park have delivered some of the best examples of that.
+---------
+
+# 20 Best Female My Hero Academia Characters
+
+Anime, My Hero Academia, Shonen, shonen anime, superheroes
+
+Sat, 11 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/mha-best-female-characters/
+
+My Hero Academia's female characters never back down from a challenge or a fight for justice, and some face their fears head-on full of courage.
+---------
+
+# 7 Years Later, James Cameron's Sci-Fi Sequel Is Being Rewritten as a Streaming Hit
+
+Movie News, Arnold Schwarzenegger, Terminator: Dark Fate, Sci-Fi, Linda Hamilton
+
+Sat, 11 Apr 2026 17:00:12 GMT
+
+https://collider.com/terminator-dark-fate-sci-fi-sequel-streaming-success-paramount-plus-april-2026/
+
+Terminator: Dark Fate has become a surprise Paramount+ streaming winner years after its troubled box office run. Find out more here.
+---------
+
+# Marvel Officially Confirms Fan-Favorite Cameo in 'Daredevil: Born Again' Season 2
+
+TV News, Daredevil: Born Again, MCU, What If...?, Jeffery Wright
+
+Sat, 11 Apr 2026 16:47:59 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-4-mcu-the-watcher-cameo-confirmed-brad-winderbaum/
+
+Marvel TV boss Brad Winderbaum has officially confirmed a fan theory about a certain cameo appearance in Daredevil: Born Again Season 2.
+---------
+
+# Brad Pitt's 'F1' Beaten on Apple TV+ Streaming Chart by Keanu Reeves' New Movie 'Outcome'
+
+Movie News, Outcome, F1, Apple TV, Hot on Streaming
+
+Sat, 11 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/outcome-beats-f1-brad-pitt-keanu-reeves-streaming-apple-april-2026/
+
+Despite flopping with critics and audiences, Jonah Hill and Keanu Reeves' 'Outcome' has become a major streaming success on Apple TV+, beating 'F1.'
+---------
+
+# Roger Ebert Saw Great Potential in a Future MCU Star in This Underrated Thriller
+
+Features, Martha Marcy May Marlene, Elizabeth Olsen, Roger Ebert, Quote
+
+Sat, 11 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/roger-ebert-elizabeth-olsen-martha-marcy-may-marlene/
+
+Before joining the MCU, Elizabeth Olsen was singled out by Roger Ebert for her stunning debut performance in 'Martha Marcy May Marlene'.
+---------
+
 # 10 Moments We Absolutely Loved In The Super Mario Galaxy Movie (We Can't Stop Talking About #1)
 
 Movies, The Super Mario Galaxy Movie
