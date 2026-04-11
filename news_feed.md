@@ -1,3 +1,124 @@
+# 10 Best K-Drama Couples Of The 2020s, Ranked
+
+Classic TV, K-Drama
+
+Sat, 11 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/best-k-drama-couples-2020s-ranked/
+
+Romance is the foundation of almost every iconic Korean drama, but some recent love stories have been so iconic, they will define the entire decade.
+---------
+
+# 10 N64 Games That Are A Perfect 10/10
+
+Gaming, Nintendo
+
+Sat, 11 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/best-n64-games-perfect-scores/
+
+From groundbreaking platformers to action-adventure masterpieces, the N64's 10/10 games pushed boundaries and set new standards for the industry.
+---------
+
+# Mark Hamill's 3 Kids Have Split Reactions To His Star Wars Movies
+
+Movies, Star Wars, Mark Hamill
+
+Sat, 11 Apr 2026 11:21:25 GMT
+
+https://screenrant.com/star-wars-movies-mark-hamill-kids-reactions/
+
+The Star Wars franchise has become increasingly divisive in the last decade, but even Mark Hamill's children have split opinions on the OT.
+---------
+
+# Marvel Officially Confirms a Huge Punisher Rewrite After 10 Years
+
+Superheroes, The Punisher: One Last Kill, MCU, superheroes
+
+Sat, 11 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/marvel-officially-confirms-huge-punisher-rewrite-mcu/
+
+The Punisher's new Disney+ Special Presentation officially makes a major change to Frank Castle after ten years in the MCU.
+---------
+
+# FX’s Best Dark Comedy Series Quietly Becomes a Late-Night Favorite 4 Years Later
+
+TV Features, Atlanta, Donald Glover, Brian Tyree Henry, Zazie Beetz
+
+Sat, 11 Apr 2026 11:47:35 GMT
+
+https://collider.com/atlanta-fx-comedy-apple-tv-store-streaming/
+
+FX's Atlanta blends relatable characters, surreal storytelling, and cultural satire to create a truly original TV experience.
+---------
+
+# 10 Movies That Audiences Hate but Cinephiles Absolutely Love
+
+Movie, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles, Sátántangó, Andrei Rublev, A Ghost Story
+
+Sat, 11 Apr 2026 11:47:35 GMT
+
+https://collider.com/movies-audiences-hate-cinephiles-love/
+
+You need to be a natural-born cinephile to appreciate the demanding nature of movies like Titane and Jeanne Dielman, 23 Commerce Quay, 1080 Brussels.
+---------
+
+# Say Goodbye to the Greatest Sci-Fi Movie of 2010
+
+Movie News, Inception, Christopher Nolan, Sci-Fi, Leonardo DiCaprio
+
+Sat, 11 Apr 2026 11:45:12 GMT
+
+https://collider.com/christopher-nolan-inception-sci-fi-movie-leaving-hbo-max-may-2026/
+
+HBO Max is removing the most mind-bending sci-fi blockbuster of all time, Christopher Nolan's Inception. Find out when.
+---------
+
+# 8 Years After ‘Star Trek,’ Gene Roddenberry’s Forgotten Sci-Fi Pilot Could’ve Been His Next Hit
+
+TV Features, Star Trek, The Questor Tapes, Gene Roddenberry, Sci-Fi
+
+Sat, 11 Apr 2026 11:31:12 GMT
+
+https://collider.com/star-trek-gene-roddenberry-forgotten-sci-fi-pilot-questor-tapes/
+
+After Star Trek, one of Gene Roddenberry's sci-fi projects included The Questor Tapes, but creative differences prevented the series from happening.
+---------
+
+# Bob Dylan Regretted Writing This Forgotten 1975 Heartbreaking Song
+
+Music Features, Bob Dylan, Music, Rock, Billboard Hot 100
+
+Sat, 11 Apr 2026 11:30:12 GMT
+
+https://collider.com/bob-dylan-regretted-writing-forgotten-1975-heartbreaking-song-idiot-wind/
+
+Bob Dylan turned his crumbling marriage to Sara Lownds into a classic song called Idiot Wind, one of his most brutally honest tracks from the 1970s.
+---------
+
+# ‘The Chosen’ Meets ‘Game of Thrones’ in Prime Video’s 2-Part Historical Epic Returning This Year
+
+TV News, House of David, Prime Video, The Chosen, Game Of Thrones
+
+Sat, 11 Apr 2026 11:30:12 GMT
+
+https://collider.com/the-chosen-meets-game-of-thrones-house-of-david-historical-epic-prime-video-season-2-release-date-how-to-watch/
+
+The Chosen meets Game of Thrones in Prime Video's two-part historical epic, The House of David, returning to streaming later this year.
+---------
+
+# Hulu's 2-Part Action Thriller Is the Best Series You're Not Watching This Weekend
+
+TV Features, The Old Man, Jeff Bridges, John Lithgow, Thriller
+
+Sat, 11 Apr 2026 11:18:12 GMT
+
+https://collider.com/the-old-man-fx-hulu-jeff-bridges-best-weekend-binge/
+
+Jeff Bridges and John Lithgow teamed up for The Old Man, a 2-season spy thriller that's gripping from start to finish.
+---------
+
 # 8 Netflix Shows You Can Binge In One Weekend
 
 Streaming TV, Netflix
