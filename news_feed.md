@@ -1,3 +1,14 @@
+# Xbox Game Pass Adds One Of The Best Final Fantasy Games Ever For Free
+
+Gaming, Xbox Game Pass, Final Fantasy
+
+Sat, 11 Apr 2026 07:00:18 GMT
+
+https://screenrant.com/xbox-game-pass-final-fantasy-4/
+
+Xbox Game Pass has just added one of the best Final Fantasy games ever, and if you've never played it, then now is the perfect time to do so.
+---------
+
 # Starfield On PS5 - Is The Game Worth Playing On A New Console After New Updates?
 
 Gaming, Starfield, PlayStation 5
