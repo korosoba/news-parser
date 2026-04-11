@@ -1,3 +1,168 @@
+# My New Favorite Star Wars Character Is A Massive Force Unleashed Easter Egg
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: The Force Unleashed II, Star Wars
+
+Sat, 11 Apr 2026 19:26:50 GMT
+
+https://screenrant.com/maul-shadow-lord-force-unleashed-easter-egg-spybot-explained-star-wars/
+
+Thanks to Lucasfilm's latest series, I have a favorite new Star Wars character who has a really cool connection to iconic Force Unleashed games.
+---------
+
+# Amazon's Action Thriller Franchise "The Terminal List" Dominates Prime Video
+
+Streaming TV, Masked Recs
+
+Sat, 11 Apr 2026 19:23:20 GMT
+
+https://screenrant.com/the-terminal-list-amazon-action-thriller-franchise/
+
+Amazon Prime Video has become the home of great action TV shows, and it's continuing its winning streak with the ongoing The Terminal List franchise.
+---------
+
+# Robert Downey Jr. & Amy Adams' Scrapped Netflix Movie Is "Still On The Table," After Adam McKay Moved Forward With New Project
+
+Movies, Adam McKay
+
+Sat, 11 Apr 2026 19:20:08 GMT
+
+https://screenrant.com/average-height-average-build-movie-hopes-adam-mckay/
+
+Adam McKay offers a two-pronged update on his future projects, explaining why climate change moved his RDJ and Amy Adams Netflix movie to the shelf.
+---------
+
+# Commander Jett Reno's Quirky Warp Command Steals The Show In Star Trek: Starfleet Academy
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Sat, 11 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-captain-command-holly-hunter/
+
+Warp commands are a staple of Star Trek Captains, but the best new one introduced by Star Trek: Starfleet Academy wasn't said by Holly Hunter.
+---------
+
+# 30 Years Later, Mario's Official Zelda Crossover Is Still The Wildest Piece Of Deep Nintendo Lore
+
+Comics, Mario, Link
+
+Sat, 11 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/mario-zelda-crossover-wild/
+
+An early crossover between two of Nintendo's most iconic characters sees the mustachioed plumber accidentally destroy New York.
+---------
+
+# Star Wars Fans Massively Disappointed Over New Game Development Update
+
+Gaming, Star Wars
+
+Sat, 11 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/star-wars-eclipse-development-update-rumor/
+
+As Star Wars Eclipse languishes in development hell, fans are admittedly disappointed in the direction Star Wars' games are faring.
+---------
+
+# 10 Biggest New Movies Coming To Streaming In April 2026
+
+Movies, Spider-Man: No Way Home, No Other Choice, Christy, Marty Supreme, Apex, Thrash, The Housemaid, Dust Bunny, Outcome
+
+Sat, 11 Apr 2026 18:55:20 GMT
+
+https://screenrant.com/streaming-movies-april-2026-biggest/
+
+April sees some of the most highly anticipated movie streaming releases of 2026, including one release that is five years in the making.
+---------
+
+# Lee Cronin's The Mummy First Reactions Are In
+
+Movies, Lee Cronin's The Mummy
+
+Sat, 11 Apr 2026 18:44:23 GMT
+
+https://screenrant.com/lee-cronin-the-mummy-first-reactions/
+
+Lee Cronin's The Mummy is gearing up to be the scariest movie of 2026, but some early reactions could contradict what the audience may expect.
+---------
+
+# 5 Most Important Neo-Western Movies That Define the Genre
+
+Movie, Western, No Country for Old Men, Hell or High Water, Logan
+
+Sat, 11 Apr 2026 19:17:12 GMT
+
+https://collider.com/most-important-neo-western-movies-define-genre/
+
+From the masterpiece No Country for Old Men to the gritty superhero film Logan, these neo-Western movies are among the most important of the genre.
+---------
+
+# Kevin Costner's Space-Age Biopic Dominates Global Charts 10 Years After Release
+
+Movie News, Hidden Figures, Disney, Fox, Streaming
+
+Sat, 11 Apr 2026 19:00:12 GMT
+
+https://collider.com/kevin-costner-space-age-biopic-hidden-figures-streaming-success-disney-plus-april-2026/
+
+Kevin Costner's Hidden Figures is a streaming hit again following NASA's recent historic mission. Find out more here.
+---------
+
+# After ‘Bosch’ and ‘The Lincoln Lawyer,’ Michael Connelly’s Next Crime Show Is Obvious
+
+TV Features, Michael Connelly, Bosch, The Lincoln Lawyer, Prime Video
+
+Sat, 11 Apr 2026 18:45:12 GMT
+
+https://collider.com/after-bosch-lincoln-lawyer-michael-connelly-jack-mcevoy-tv-series/
+
+With Bosch and Lincoln Lawyer proving the interest in Michael Connelly's characters, the next one that deserves their own show is Jack McEvoy.
+---------
+
+# Netflix's Best 2-Part Fantasy Epic Is the Binge You've Been Sleeping On
+
+TV Features, Warrior Nun, Netflix, Fantasy, Superhero
+
+Sat, 11 Apr 2026 18:38:12 GMT
+
+https://collider.com/netflix-warrior-nun-fantasy-epic-binge/
+
+Netflix's Warrior Nun follows a secret Catholic order of demon-hunting nuns and tells the story of a captivating, action-packed adventure.
+---------
+
+# Why Was the Real Captain Phillips Sued?
+
+Features, Captain Phillips
+
+Sat, 11 Apr 2026 19:01:19 GMT
+
+https://movieweb.com/captain-phillips-sued-why/
+
+Tom Hanks gave a career-defining performance as Captain Phillips, but the real captain found himself on the receiving end of lawsuits.
+---------
+
+# Idris Elba's Underrated $59 Million Action Thriller 'Beast' Is a Streaming Success on Netflix
+
+Movie News, Beast, Netflix, Hot on Streaming, Action
+
+Sat, 11 Apr 2026 19:01:18 GMT
+
+https://movieweb.com/beast-idris-elba-action-netflix-april-2026/
+
+After flopping in theaters, Idris Elba's action thriller 'Beast' is a streaming success since being added to Netflix.
+---------
+
+# Peter Dinklage's Casting in 'Alien: Earth' Deepens the Controversial 'Ice Age' Reference
+
+Features, Alien: Earth, Ice Age: Continental Drift, Peter Dinklage
+
+Sat, 11 Apr 2026 19:01:18 GMT
+
+https://movieweb.com/alien-earth-ice-age-controversy-peter-dinklage/
+
+'Alien: Earth' built a key character relationship on a connection to 'Ice Age: Continental Drift', and now the newest season has cast Peter Dinklage.
+---------
+
 # The Super Mario Galaxy Movie Teased The Missing Ingredient For A Luigi's Mansion Spinoff
 
 Movies, The Super Mario Galaxy Movie, Super Mario
