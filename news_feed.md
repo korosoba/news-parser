@@ -1,3 +1,168 @@
+# Doctor Who’s Newest Found Episodes & Where To Watch Them, Explained
+
+Classic TV, Doctor Who, Explainer
+
+Sat, 11 Apr 2026 22:21:20 GMT
+
+https://screenrant.com/doctor-who-found-episodes-explained/
+
+Two long-lost episodes of Classic Doctor Who have just been rediscovered, here's what that means and how you can watch the new episodes.
+---------
+
+# Henry Cavill's Highlander Reboot Promises "A Lot" Of Violence In One Key Way, Teases Co-Star
+
+Movies, Highlander
+
+Sat, 11 Apr 2026 22:17:34 GMT
+
+https://screenrant.com/henry-cavill-highlander-violence-decapitations-djimon-hounsou/
+
+Djimon Hounsou discusses the violent elements of the upcoming Highlander reboot starring Henry Cavill, directed by Chad Stahelski.
+---------
+
+# 38 Years Ago, One Song Almost Ended Will Smith's Career Before It Even Began
+
+Movies, A Nightmare on Elm Street, Will Smith
+
+Sat, 11 Apr 2026 22:00:21 GMT
+
+https://screenrant.com/will-smith-nightmare-elm-street-ended-career/
+
+It was a real nightmare for DJ Jazzy Jeff & the Fresh Prince.
+---------
+
+# Supergirl Unlocks Villain-Level Power Upgrade for Her New Appearance
+
+DC Comics, Supergirl
+
+Sat, 11 Apr 2026 22:00:21 GMT
+
+https://screenrant.com/dc-official-supergirl-new-power-and-design/
+
+If you thought Kara blasting a baddie through a spaceship’s hull in the new Supergirl trailer was cool, wait to hear about her newest power upgrade.
+---------
+
+# HBO's Harry Potter Documentary: Why The Franchise Is Being Rebooted As A TV Series
+
+TV, Harry Potter
+
+Sat, 11 Apr 2026 22:00:21 GMT
+
+https://screenrant.com/harry-potter-hbo-behind-the-scenes-document-love-letter-fans/
+
+Harry Potter's return as a TV show has divided fans of the franchise, but the first HBO release of this new production explains why it's coming back.
+---------
+
+# Fallout: New Vegas Is Coming Back With An Entirely New Way To Play
+
+Gaming, Fallout, Fallout: New Vegas
+
+Sat, 11 Apr 2026 22:00:21 GMT
+
+https://screenrant.com/fallout-new-vegas-vr-mod/
+
+After more than a decade and a half, Fallout: New Vegas is back and in VR form, making the Mojave a whole lot more frightening.
+---------
+
+# Super Rant Rewatch: Thor: The Dark World Deserves Way Less Hate 13 Years Later
+
+Movies, Thor: The Dark World, Marvel Cinematic Universe
+
+Sat, 11 Apr 2026 21:55:20 GMT
+
+https://screenrant.com/super-rant-rewatch-thor-the-dark-world-op-ed/
+
+It's been a while since I've rewatched Thor: The Dark World, and I honestly believe the entire MCU fandom needs to re-evaluate this one 13 years later
+---------
+
+# Daemons of the Shadow Realm Surpasses Fullmetal Alchemist With 2 Episodes
+
+Anime, Daemons of the Shadow Realm, Fullmetal Alchemist Brotherhood, Fullmetal Alchemist
+
+Sat, 11 Apr 2026 22:15:11 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-beat-fullmetal-alchemist-imdb-ratings/
+
+Daemons of the Shadow Realm’s critical reception is already on track to beat that of Fullmetal Alchemist: Brotherhood, marking a historic anime upset.
+---------
+
+# Bruce Willis' Cult Classic The Fifth Element Is a Streaming Hit On Netflix
+
+Movies, The Fifth Element, Sci-Fi, Netflix
+
+Sat, 11 Apr 2026 22:01:13 GMT
+
+https://www.cbr.com/bruce-willis-the-fifth-element-sci-fi-action-netflix-success-april-2026/
+
+Bruce Willis' cult classic sci-fi action film The Fifth Element is a streaming hit on Netflix in the US, 29 years after its release.
+---------
+
+# Jujutsu Kaisen Gets a Sweet Makeover in Surprising Chupa Chups Collab
+
+Anime, Jujutsu Kaisen, merchandise, food
+
+Sat, 11 Apr 2026 22:01:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-chupa-chups-official-crossover/
+
+A cute new Jujutsu Kaisen collaboration sees the cast of the anime and manga series given chibi redesigns alongside sweet Chupa Chups lollipops.
+---------
+
+# Netflix's 2-Part Crime Thriller Officially Returns Next Week
+
+TV News, Beef, Jake Schreier, Carey Mulligan, Oscar Isaac
+
+Sat, 11 Apr 2026 22:15:11 GMT
+
+https://collider.com/beef-crime-thriller-anthology-season-2-netflix-april-16-2026-return/
+
+Beef Season 2 premieres on Netflix on April 16, with Oscar Isaac, Carey Mulligan, Charles Melton, and Cailee Spaeny leading the new cast.
+---------
+
+# 10 Greatest Series Premiere Episodes of All Time, Ranked
+
+TV, Game Of Thrones, Lost, Breaking Bad, The Walking Dead
+
+Sat, 11 Apr 2026 22:08:13 GMT
+
+https://collider.com/best-tv-series-premiere-episodes-all-time-ranked/
+
+From HBO's Game of Thrones to AMC's The Walking Dead, these TV shows set the bar so high thanks to the exceptional quality of their series premieres.
+---------
+
+# The 20 Best American Movies Ever Made, Ranked
+
+Movie, Hollywood, Pulp Fiction, Citizen Kane, The Empire Strikes Back
+
+Sat, 11 Apr 2026 22:05:13 GMT
+
+https://collider.com/best-american-movies-ever-made-ranked/
+
+Timeless classics like The Godfather, Pulp Fiction, The Empire Strikes Back, and 12 Angry Men all rank among the very best American movies ever made.
+---------
+
+# Tom Hardy and Chris Pine Fans Have Less Than 1 Month to Watch Their 97-Minute Spy Movie
+
+Movie News, Reese Witherspoon, Tom Hardy, Chris Pine, This Means War
+
+Sat, 11 Apr 2026 22:00:13 GMT
+
+https://collider.com/tom-hardy-chris-pine-forgotten-spy-comedy-leaving-hbo-max-may-2026/
+
+Tom Hardy and Chris Pine's forgotten spy comedy, This Means War, is leaving its streaming home shortly. Find out more here.
+---------
+
+# The 10 Best Erotic Movies That No One Ever Talks About
+
+Movie Lists
+
+Sat, 11 Apr 2026 22:00:19 GMT
+
+https://movieweb.com/best-unknown-erotic-movies/
+
+Erotica has long been a staple of cinema, but some of the best and most deeply dramatic movies have been overlooked.
+---------
+
 # All 6 Viltrumite Villains In Invincible Season 4
 
 Streaming TV, Invincible
