@@ -1,3 +1,179 @@
+# Netflix's The Crown Has One Of The Century's Best Casts
+
+Classic TV, Masked Recs, Netflix
+
+Sat, 11 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/the-crown-netflix-historical-drama-best-casts/
+
+Netflix's lavish six-season royal drama boasts one of the most impressive casts of all time, with each actor contributing to its lasting success.
+---------
+
+# 10 Best Justice League Members Who Joined in the 1990s, Ranked
+
+Comics, Justice League
+
+Sat, 11 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/best-justice-league-members-joined-1990s/
+
+Extreme Justice
+---------
+
+# How Disney Secretly Helped Create The Greatest Dark Fantasy Manga Of All Time
+
+Anime, Disney, Berserk
+
+Sat, 11 Apr 2026 23:24:28 GMT
+
+https://screenrant.com/berserk-best-dark-fantasy-manga-disney-surprise/
+
+Discover how Disney's storytelling influenced Berserk, the iconic dark fantasy manga. Creator Kentaro Miura revealed his influences in one interview.
+---------
+
+# 10 Underrated 90s Action Movies Nobody Remembers Today
+
+Movies, Broken Arrow, Assassins, The Jackal, The Long Kiss Goodnight, Last Action Hero, Timecop, The Quest, Boiling Point, Live Wire, Payback
+
+Sat, 11 Apr 2026 23:15:20 GMT
+
+https://screenrant.com/underrated-action-movies-1990s/
+
+The 90s were incredible for the action movie genre, but many great films slipped into obscurity that are still worth a watch today.
+---------
+
+# HBO's Barry: A Dark Comedy Thriller That Works Even Better As A Binge-Watch
+
+Classic TV, Barry
+
+Sat, 11 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/hbo-barry-crime-thriller-show-binge/
+
+Bill Hader's twisted comedy thriller Barry actually plays better on a binge-watch than it did when HBO was airing new episodes week to week.
+---------
+
+# Move Over Nick Fury, Another Underrated Hero Is Secretly The Glue Holding The MCU Together
+
+Movies, Marvel Cinematic Universe, Jon Favreau
+
+Sat, 11 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/happy-hogan-holding-mcu-together-not-nick-fury/
+
+One figure connects all the corners of the Marvel Cinematic Universe.
+---------
+
+# Hogwarts Legacy Meets The Sims In This Free Steam RPG
+
+Gaming, Hogwarts Legacy, The Sims
+
+Sat, 11 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/steam-free-hogwarts-legacy-sims-wizard-101/
+
+Wizard101 is a nostalgic wizard-focused MMORPG that allows players to live out all of their arcane dreams along the way.
+---------
+
+# Frankie Muniz Crashes Malcolm in the Middle Themed Truck
+
+TV, Malcolm in the Middle: Life's Still Unfair
+
+Sat, 11 Apr 2026 23:30:27 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-frankie-muniz-nascar-accident/
+
+Malcolm in the Middle star Frankie Muniz wrecked his truck decorated with imagery from the Hulu revival.
+---------
+
+# Stephen King's 11.22.63 is a Sci-Fi Hidden Gem You Can Binge in 8 Hours
+
+TV, Stephen King, 11.22.63, Sci-Fi, Thriller
+
+Sat, 11 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/stephen-king-best-miniseries-112263-sci-fi-hidden-gem/
+
+Stephen King's works have managed to change movies and TV forever, and one such show is wildly underrated and an easy watch.
+---------
+
+# The 10 Greatest Legend of Zelda Songs of All Time
+
+Games, The Legend of Zelda, Nintendo
+
+Sat, 11 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/best-legend-of-zelda-music-list/
+
+The Zelda franchise is famous for its music, and the best Zelda songs stand as some of the best video game music ever.
+---------
+
+# Star Wars'  Perfect Sequel Trilogy Spinoff Is Still Possible 7 Years Later
+
+Movies, Star Wars, Sci-Fi, Star Wars: Episode IX - The Rise of Skywalker
+
+Sat, 11 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/star-wars-hunt-for-ben-solo-finn-sequel-trilogy-spinoff-sci-fi/
+
+Seven years after The Rise of Skywalker, Star Wars still needs to make the perfect spinoff (and it isn't about Ben Solo).
+---------
+
+# Prime Video's 8-Part Crime Thriller Is Everything 'Cross' Fans Have Been Looking For
+
+TV Features, Scarpetta, Prime Video, Cross, Thriller
+
+Sat, 11 Apr 2026 23:37:12 GMT
+
+https://collider.com/prime-video-scarpetta-crime-thriller-cross-fans/
+
+Prime Video's Scarpetta delves into the complex world of a brilliant medical examiner solving intricate murders, starring Nicole Kidman.
+---------
+
+# This 93% RT Family Sci-Fi Classic Is a Streaming Smash Hit
+
+Movie News, Back to the Future, Michael J. Fox, Sci-Fi, AMC+
+
+Sat, 11 Apr 2026 23:30:12 GMT
+
+https://collider.com/back-to-the-future-streaming-success-amc-plus-april-2026/
+
+One of the best family-friendly sci-fi movies of all time, Back to the Future, starring Michael J. Fox, is a streaming hit in the U.S.
+---------
+
+# 12 Years Later, Ridley Scott's Impressive Historical Epic Is Being Rewritten as a Streaming Sleeper Hit
+
+Movie News, Ridley Scott, Exodus: Gods and Kings, Christian Bale, Streaming
+
+Sat, 11 Apr 2026 23:15:13 GMT
+
+https://collider.com/exodus-gods-and-kings-free-streaming-tubi-april-2026/
+
+Exodus: Gods and Kings, starring Christian Bale, has found new life on Tubi, where the Ridley Scott epic is back in the top 10.
+---------
+
+# Apple TV's 128-Minute Sci-Fi Thriller Is One of the Best on Any Streaming Platform
+
+Movie News, Apple TV, The Gorge, Sci-Fi, Horror
+
+Sat, 11 Apr 2026 23:00:12 GMT
+
+https://collider.com/apple-tv-sci-fi-thriller-the-gorge-streaming-success-april-2026/
+
+The most underrated sci-fi horror movie on Apple TV is a streaming hit in the U.S. once again. Find out more about The Gorge below.
+---------
+
+# 'Daredevil: Born Again' Season 2 Repeats an Exciting 2026 Trend for Matthew Lillard
+
+Features, Daredevil: Born Again, Matthew Lillard
+
+Sat, 11 Apr 2026 23:00:18 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-continued-trend-matthew-lillard-villain/
+
+Matthew Lillard's mysterious character Mr. Charles marks the continuation of Matthew Lillard's recent streak playing villains.
+---------
+
 # Jared Padalecki's Role In Prime Video's The Boys Season 5 Finally Revealed
 
 TV, The Boys, The Boys - Season 5
