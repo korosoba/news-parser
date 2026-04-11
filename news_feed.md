@@ -1,3 +1,124 @@
+# Steven Spielberg's Long-Delayed Sci-Fi Movie Based On Bestselling Novel Is Officially Cancelled: "It Was A Company-Ender"
+
+Movies, Robopocalypse, Steven Spielberg
+
+Sat, 11 Apr 2026 19:34:55 GMT
+
+https://screenrant.com/robopocalypse-movie-cancelled-explained-steven-spielberg/
+
+After long delays to develop a sci-fi movie, Steven Spielberg has confirmed that the adaptation won't be happening because it was a "company-ender."
+---------
+
+# Crunchyroll's New Hit Anime Is An LGBTQ+ Masterpiece
+
+Anime, Crunchyroll, Marriagetoxin, Fullmetal Alchemist: Brotherhood
+
+Sat, 11 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/marriagetoxin-studio-bones-lgbtq-crunchyroll-anime/
+
+Why you need to watch Marriagetoxin.
+---------
+
+# The Sinner: Netflix's Innovative Crime Thriller That Gets Better With Every Watch
+
+Classic TV, Masked Recs
+
+Sat, 11 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/the-sinner-netflix-crime-thriller-anthology-near-perfect/
+
+Among Netflix's vast collection of crime thriller series, this four-season masterpiece is one of the very few that stand up to repeat viewings.
+---------
+
+# Steam Fans In Love With Game-Changing New Feature
+
+Gaming, Steam, PC
+
+Sat, 11 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/steam-fps-feature-fan-reaction/
+
+As if Steam couldn't get any better, a leaked upcoming feature is adding a whole new level of convenience for your hardware needs.
+---------
+
+# Star Trek: Starfleet Academy Season 3 Fan Petition Fizzles Out
+
+TV, Star Trek: Starfleet Academy
+
+Sat, 11 Apr 2026 19:46:12 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-petition-fizzles-out/
+
+The dismantling of sets for Star Trek: Starfleet Academy has dampened support for a fan campaign to save the show.
+---------
+
+# ABC's Abbott Elementary Is a Hit On Streaming, Reaching New Milestone
+
+TV, Abbott Elementary, Sitcoms, Hulu
+
+Sat, 11 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/abbott-elementary-mockumentary-sitcom-abc-hulu-success-april-2026/
+
+ABC's critically acclaimed sitcom, Abbott Elementary, continues to find new success on streaming ahead of season finale.
+---------
+
+# 10 Forgotten Fantasy Movies of the 2000s That Are Better Than You Remember
+
+Movies, Fantasy, Peter Pan, Stardust
+
+Sat, 11 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/forgotten-fantasy-movies-2000s/
+
+From Inkheart to Peter Pan, these 2000s fantasy movies weren't too popular with critics but have aged surprisingly well.
+---------
+
+# The 6 Smartest TV Characters of All Time
+
+TV, Doctor Who, Star Trek, Rick and Morty
+
+Sat, 11 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/smartest-tv-characters-ranked/
+
+Sherlock Holmes, Spock, Doctor Who - these are just a few of the smartest characters on television, with intelligence that goes practically unrivaled.
+---------
+
+# Taylor Sheridan's 4-Part Crime Thriller Is Still One of the Best on Any Streaming Platform
+
+TV Features, Mayor of Kingstown, Crime, Taylor Sheridan, Paramount Plus
+
+Sat, 11 Apr 2026 19:57:13 GMT
+
+https://collider.com/mayor-of-kingstown-paramount-plus-taylor-sheridan-crime-thriller/
+
+Jeremy Renner's crime thriller masterpiece Mayor of Kingstown, from co-creator Taylor Sheridan, is one of the best Paramount+ shows.
+---------
+
+# 10 Forgotten Classics That Have Aged Like Fine Wine
+
+Movie, Thief, 3 Women, The Long Good Friday, Seconds
+
+Sat, 11 Apr 2026 19:36:13 GMT
+
+https://collider.com/forgotten-classic-movies-aged-like-fine-wine/
+
+From Michael Mann's Thief to Robert Altman's 3 Women, these classic movies have aged beautifully despite remaining forgotten by mainstream audiences.
+---------
+
+# 'Hook': The Steven Spielberg Film Has His Greatest Quote of All Time
+
+Features, Great Line, Hook
+
+Sat, 11 Apr 2026 19:31:17 GMT
+
+https://movieweb.com/hook-robin-williams-peter-pan-quote/
+
+A line that stands the test of time, and 'Hook' is chock-full of them. Read on for Steven Spielberg's greatest quote.
+---------
+
 # My New Favorite Star Wars Character Is A Massive Force Unleashed Easter Egg
 
 TV, Star Wars: Maul - Shadow Lord, Star Wars: The Force Unleashed II, Star Wars
