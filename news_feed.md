@@ -1,3 +1,69 @@
+# Pokémon Sunset Is A Brand-New Game For Old-School Fans
+
+Gaming, Pokemon, Triple-A Games
+
+Sat, 11 Apr 2026 09:00:18 GMT
+
+https://screenrant.com/pokemon-sunset-unofficial-game-old-school-rpg/
+
+If you're itching for a Pokémon experience that's a little more nostalgic, you can grab this brand-new game now and go on an adventure.
+---------
+
+# Frankie Muniz Breaks Down How the 'Malcolm in the Middle' Revival Destroys His "Perfect" New Life
+
+Exclusives, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Frankie Muniz, Hulu
+
+Sat, 11 Apr 2026 09:30:12 GMT
+
+https://collider.com/malcolm-in-the-middle-lifes-still-unfair-frankie-muniz-secret-daughter-explained/
+
+Frankie Muniz discusses the twist that upends Malcolm's perfect new life and the potential of more episodes after the Life's Still Unfair revival.
+---------
+
+# Netflix Blocks Divisive $351 Million Blockbuster Amid Ongoing Legal Battle
+
+Movie News, It Ends With Us, Netflix, Blake Lively, Justin Baldoni
+
+Sat, 11 Apr 2026 09:20:12 GMT
+
+https://collider.com/netflix-blocks-it-ends-with-us-divisive-350-million-blockbuster-april-2026/
+
+Netflix is restricting access to the divisive blockbuster It Ends with Us, as stars Blake Lively and Justin Baldoni head to trial. Find out more.
+---------
+
+# 10 Greatest Sci-Fi TV Shows With the Most Plot Twists, Ranked
+
+TV, Sci-Fi, Black Mirror, Lost, Severance
+
+Sat, 11 Apr 2026 09:18:12 GMT
+
+https://collider.com/best-sci-fi-shows-most-plot-twists-ranked/
+
+Discover the best sci-fi TV series known for their abundance of mind-bending plot twists, including Black Mirror, Lost, and Severance.
+---------
+
+# Ridley Scott’s Best Sci-Fi Movie Is Officially Taking Over the World
+
+Movie News, Alien, Ridley Scott, Sigourney Weaver, HBO Max
+
+Sat, 11 Apr 2026 09:00:12 GMT
+
+https://collider.com/ridley-scott-best-sci-fi-movie-alien-streaming-success-hbo-max-april-2026-how-to-watch/
+
+Ridley Scott's best sci-fi movie is officially taking over the world on HBO Max after grossing ten times its budget at the box office.
+---------
+
+# ‘Bosch’ Meets ‘Yellowstone’ in Taylor Sheridan’s Polarizing Detective Thriller Dominating Paramount+
+
+TV News, Marshals, Taylor Sheridan, Bosch, Yellowstone
+
+Sat, 11 Apr 2026 08:40:12 GMT
+
+https://collider.com/taylor-sheridan-polarizing-detective-thriller-marshals-bosch-meets-yellowstone-streaming-success-paramount-plus-april-2026/
+
+Bosch meets Yellowstone in Taylor Sheridan's polarizing procedural, Marshals, that continues to dominate Paramount+ streaming charts.
+---------
+
 # ‘James Bond’ Meets ‘Slow Horses’ in Tom Hardy’s $80 Million Spy Thriller Taking Over the World
 
 Movie News, Tinker Tailor Soldier Spy, Tom Hardy, Prime Video, Gary Oldman
