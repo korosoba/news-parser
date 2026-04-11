@@ -1,3 +1,91 @@
+# GTA 6 Fans Astounded By New Graphics Comparison
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 11 Apr 2026 10:00:21 GMT
+
+https://screenrant.com/gta-6-comparison-gta-5-fan-reaction/
+
+Although it's clear that Grand Theft Auto 6 is going to be a big step up from its predecessor, new details are really hitting it home.
+---------
+
+# After 5 Years, James Bond Is Finally Ready to Revive the Spy Genre
+
+Movies, James Bond, No Time to Die, Thriller
+
+Sat, 11 Apr 2026 10:00:16 GMT
+
+https://www.cbr.com/james-bond-reboot-denis-villeneuve-revive-spy-genre/
+
+It's been a long time coming, but the world's best secret agent is finally back, and he will revolutionize the entire spy genre in his next movie.
+---------
+
+# Netflix's XO, Kitty Does 1 Thing Better Than Bridgerton
+
+TV, XO, Kitty, Netflix, Bridgerton
+
+Sat, 11 Apr 2026 10:00:16 GMT
+
+https://www.cbr.com/netflix-xo-kitty-sibling-connection-better-than-bridgerton/
+
+Netflix's easy-to-binge XO, Kitty outshines Bridgerton by doing one thing better than the Shondaland Regency romance series.
+---------
+
+# 8 Fantasy Miniseries That Can Be Called Masterpieces, Ranked
+
+TV, Fantasy, TV Miniseries, Agatha All Along, The Dark Crystal: Age of Resistance
+
+Sat, 11 Apr 2026 10:05:19 GMT
+
+https://collider.com/fantasy-miniseries-masterpieces-ranked/
+
+American Born Chinese, Merlin, WandaVision, Agatha All Along, and more make up our list of fantasy TV miniseries that can be called masterpieces.
+---------
+
+# Guillermo del Toro "Hated" His Painful Experience Directing This Forgotten 1997 Sci-Fi Horror
+
+Movie Features, Guillermo del Toro, Mimic, Horror, Miramax
+
+Sat, 11 Apr 2026 10:04:18 GMT
+
+https://collider.com/guillermo-del-toro-mimic-1997-sci-fi-horror-movie/
+
+Guillermo del Toro explains why making the sci-fi film Mimic was a bad experience, and how it shaped his career and creative control in Hollywood.
+---------
+
+# 10 Forgotten '90s Cartoons That Nobody Remembers Today
+
+TV, 1990s, Animation, The Tick, Earthworm Jim
+
+Sat, 11 Apr 2026 10:02:21 GMT
+
+https://collider.com/forgotten-90s-cartoons/
+
+Discover forgotten cartoons from the 1990s that deserve a second chance from modern viewers, from The Tick to Earthworm Jim.
+---------
+
+# Tom Hanks’ Forgotten 2024 Flop Just Got Much Harder To Watch
+
+Movie News, Netflix, Here, Tom Hanks, Robin Wright
+
+Sat, 11 Apr 2026 10:00:16 GMT
+
+https://collider.com/netflix-blocks-tom-hanks-forgotten-2024-drama-here-robert-zemeckis-april-2026/
+
+Netflix is restricting access to Tom Hanks and Robert Zemeckis' Forrest Gump reunion film, Here. Find out why below.
+---------
+
+# 2 Years Later, Netflix Just Blocked Russell Crowe’s Franchise-Killing Superhero Disaster
+
+Movie News, Kraven the Hunter, Aaron Taylor-Johnson, Russell Crowe, Netflix
+
+Sat, 11 Apr 2026 09:40:12 GMT
+
+https://collider.com/netflix-blocks-kraven-the-hunter-russell-crowe-franchise-killing-superhero-disaster-april-2026/
+
+Netflix is restricting access to the infamous superhero bomb with Russell Crowe and Aaron Taylor-Johnson, Kraven the Hunter. Find out why.
+---------
+
 # Pokémon Sunset Is A Brand-New Game For Old-School Fans
 
 Gaming, Pokemon, Triple-A Games
