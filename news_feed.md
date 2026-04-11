@@ -1,3 +1,311 @@
+# HBO’s 3-Part Fantasy Beats Out The 2007 Golden Compass Movie By Embracing 1 Book Element
+
+Classic TV, The Golden Compass, His Dark Materials
+
+Sat, 11 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/his-dark-materials-golden-compass-atheism-anti-religous-messages/
+
+The 2007 movie The Golden Compass completely failed because it rejected a core book element, but HBO's three season fantasy show fixes this.
+---------
+
+# Star Trek: Robin Curtis Reflects On Emotional Return As Saavik After 40 Years
+
+TV, Star Trek
+
+Sat, 11 Apr 2026 01:54:16 GMT
+
+https://screenrant.com/star-trek-unification-robin-curtis-saavik-comeback/
+
+4 decades after Star Trek IV: The Voyage Home, Robin Curtis describes what it was like to reprise Saavik in the short film 765875 - Unification.
+---------
+
+# I Hope Hollywood Learns The Right Lessons From Ready Or Not 2: Here I Come
+
+Movies, Ready or Not 2: Here I Come, Op-Ed
+
+Sat, 11 Apr 2026 01:45:20 GMT
+
+https://screenrant.com/ready-or-not-2-hollywood-lessons-to-learn/
+
+Despite being a completely unnecessary sequel, Ready or Not 2: Here I Come is an entertaining ride, and I hope Hollywood learns something from it.
+---------
+
+# Dan Levy's Big Mistakes Redefines Netflix Crime Comedies
+
+Streaming TV, Big Mistakes
+
+Sat, 11 Apr 2026 01:15:18 GMT
+
+https://screenrant.com/big-mistakes-dan-levy-redefine-netflix-crime-comedy/
+
+Dan Levy's new crime comedy is different from Schitt's Creek, but it borrows from the family-centered hit in ways that are sure to shake the genre.
+---------
+
+# Universal’s $300M Buddy Cop Franchise Gets Surprise Sequel Update After 10 Years Of Silence
+
+Movies, Ride Along
+
+Sat, 11 Apr 2026 01:09:09 GMT
+
+https://screenrant.com/universal-ride-along-3-ice-cube-kevin-hart-development-confirmed/
+
+Universal is moving forward with another installment of a hit crime comedy franchise after 10 years and its original stars may return.
+---------
+
+# GTA 6 PC Release Date Leaves Gamers Split
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Sat, 11 Apr 2026 01:00:18 GMT
+
+https://screenrant.com/gta-6-pc-release-date-gamer-reaction-rumour/
+
+Rockstar is taking its sweet time telling us when the PC version of GTA 6 is coming, but fans are torn after new info has come to light.
+---------
+
+# The Boys Dropped The Perfect One Piece Easter Egg
+
+Streaming TV, The Boys, One Piece
+
+Sat, 11 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/the-boys-season-5-one-piece-flag-easter-egg/
+
+One Piece season 2 took over the world in March, with a Prime Video series proving that a month later via a sneaky, thematic reference to the show.
+---------
+
+# The Pitt Season 2, Episode 14's EKG Issue Explained
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Sat, 11 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/the-pitt-ekg-women-underdiagnosed-real-problem/
+
+In The Pitt season 2, episode 14, a misdiagnosed woman sparks a heated discussion on sexism in medical inequality, highlighting real-world issues women face in healthcare.
+---------
+
+# PPlayStation's Next State Of Play Gets Most Promising Update Yet
+
+Gaming, State of Play
+
+Sat, 11 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/playstation-state-of-play-april-16-update/
+
+PlayStation's next State of Play is allegedly coming in April, possibly as early as next week. A new update breathes more life into those rumors.
+---------
+
+# Hard Fantasy Movies to Watch Before Apple's Cosmere Universe
+
+Movies, Mistborn, Fantasy
+
+Sat, 11 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/hard-fantasy-movies-watch-before-apple-cosmere-universe/
+
+Hard fantasy is making a comeback with an adaptation of Cosmere. These quality films are sure to set the tone for what's to come.
+---------
+
+# HBO's The Penguin Is a Flawless Crime Thriller
+
+TV, The Penguin, HBO Max, Batman, Crime
+
+Sat, 11 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/hbo-the-penguin-perfect-crime-thriller/
+
+2 years later, HBO's The Penguin miniseries is still the gold standard for prestige crime television.
+---------
+
+# CBS Kills Off an Original Ghosts Character in a Historic Franchise First
+
+TV, Ghosts, CBS, Sitcoms
+
+Sat, 11 Apr 2026 01:34:20 GMT
+
+https://www.cbr.com/cbs-ghosts-kills-off-basement-ghost-water-heater/
+
+Ghosts kills a major mainstay in Season 5, shifting the emotional stakes of the CBS sitcom as the series faces a major challenge with its premise.
+---------
+
+# 10 Must-Watch Crunchyroll Anime With Zero Bad Arcs
+
+Anime, Crunchyroll, Kaguya-Sama: Love Is War, Vinland Saga, Code Geass: Lelouch of the Rebellion, Frieren: Beyond Journey's End, Fullmetal Alchemist: Brotherhood, The Apothecary Diaries, Attack On Titan, Demon Slayer: Kimetsu no Yaiba, Jujutsu Kaisen, Chainsaw Man
+
+Sat, 11 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/best-crunchyroll-anime-no-bad-arcs/
+
+It's daunting to jump into an anime without knowing if it's good or not, but these Crunchyroll series are all gold, no disappointments.
+---------
+
+# 7 Near-Perfect 1990s Anime No One Remembers
+
+Anime, Martian Successor Nadesico, Key the Metal Idol
+
+Sat, 11 Apr 2026 00:50:15 GMT
+
+https://www.cbr.com/perfect-90s-anime-no-one-remembers/
+
+Everyone misses the '90s, but somehow no one remembers these near-flawless 1990s anime masterpieces.
+---------
+
+# 7 Most Perfect PS1 Games of All Time
+
+Games, PlayStation (Original), Final Fantasy, Metal Gear Solid
+
+Sat, 11 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/most-perfect-ps1-games-of-all-time/
+
+There are dozens of 10/10 PlayStation games, but these seven titles are truly flawless.
+---------
+
+# The Forgotten Sci-Fi Dinosaur Series Primeval Is Still Perfect for Jurassic Park Fans
+
+TV, Jurassic Park, Sci-Fi, Primeval
+
+Sat, 11 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/forgotten-sci-fi-dinosaur-show-perfect-for-jurassic-park-fans/
+
+Jurassic World: Rebirth may not have impressed viewers, but fans of the franchise have another underrated dinosaur show worth checking out.
+---------
+
+# Crime 101 is The Perfect Successor to Michael Mann's Heat
+
+Movies, Crime 101, Heat
+
+Sat, 11 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/prime-videos-crime-101-successor-to-heat/
+
+Heat is one of the most beloved crime thrillers of all time, but Prime Video may finally have created a perfect successor.
+---------
+
+# Forget ‘Marshals,’ Taylor Sheridan's 102-Minute Western Is a Must-Watch Before It Leaves Netflix
+
+Movie News, Taylor Sheridan, Hell or High Water, Netflix, Chris Pine
+
+Sat, 11 Apr 2026 02:00:23 GMT
+
+https://collider.com/taylor-sheridan-western-thriller-hell-or-high-water-leaving-netflix-may-2026/
+
+Hell or High Water leaves Netflix on May 1, giving viewers one last chance to catch Taylor Sheridan’s Oscar-nominated neo-Western.
+---------
+
+# Paramount+’s 10-Part Psychological Thriller Is the Perfect Weekend Binge
+
+TV Features, Dexter: Original Sin, Patrick Gibson, Christian Slater, Michael C. Hall
+
+Sat, 11 Apr 2026 01:55:12 GMT
+
+https://collider.com/dexter-original-sin-paramount-plus-perfect-weekend-binge/
+
+Dexter: Original Sin is a gripping prequel that focuses on character development and a captivating mystery set in the early days of the serial killer.
+---------
+
+# ABC's 10/10 Crime Series Continues To Dominate the Global Charts 8 Years Later
+
+TV News, ABC, 9-1-1, Drama, Crime
+
+Sat, 11 Apr 2026 01:45:13 GMT
+
+https://collider.com/9-1-1-abc-crime-series-streaming-success-hulu-april-2026/
+
+A long-running ABC procedural is surging again just before its finale, showing surprising momentum years into its run.
+---------
+
+# Gerard Butler's Weird-Ass, Critically-Despised Sci-Fi Action Movie Is a Hit on YouTube — and Honestly, You Should Watch It
+
+Movie Features, Geostorm, Gerard Butler, Sci-Fi, Thriller
+
+Sat, 11 Apr 2026 01:41:12 GMT
+
+https://collider.com/gerard-butler-geostorm-stream-youtube-sci-fi-action/
+
+Geostorm made a splash on YouTube, and it's worth revisiting both for its ludicrously entertaining premise and a solid turn from Gerard Butler.
+---------
+
+# Netflix Says Lisan al-Goodbye to the Weakest Dune Movie This May
+
+Movie News, Dune, Fallout, Kyle MacLachlan, Netflix
+
+Sat, 11 Apr 2026 01:30:13 GMT
+
+https://collider.com/fallout-star-kyle-maclachlan-sci-fi-adaptation-dune-1984-leaving-netflix-may-2026/
+
+A Fallout star's failed Dune adaptation is losing its place on one of the world's biggest streamers. Read on for more details.
+---------
+
+# Nathan Fillion's 8-Part Crime Thriller Is So Good, Fans Are Watching It on a Loop
+
+TV News, Nathan Fillion, Crime, The Rookie, Netflix
+
+Sat, 11 Apr 2026 01:15:13 GMT
+
+https://collider.com/nathon-fillion-abc-crime-series-the-rookie-streaming-success-netflix-april-2026/
+
+A long-running crime series is exploding on streaming charts worldwide, proving its binge-worthy formula still hooks audiences years later.
+---------
+
+# 'For All Mankind's Most Devastating Loss After 5 Seasons Has Only Made the Apple TV Sci-Fi Show Better
+
+TV Features, For All Mankind, Joel Kinnaman, Apple TV, Ronald D. Moore
+
+Sat, 11 Apr 2026 01:14:12 GMT
+
+https://collider.com/for-all-mankind-season-5-episode-3-ed-baldwin-death/
+
+In For All Mankind Season 5's latest episode, one beloved character's arc comes full circle, and it's the best move for the Apple TV show's future.
+---------
+
+# 10 Trilogy Starters That Have Aged Like Fine Wine
+
+Movie, The Godfather, The Lord of the Rings: The Fellowship of the Ring, Star Wars, Back to the Future
+
+Sat, 11 Apr 2026 01:14:12 GMT
+
+https://collider.com/trilogy-starters-aged-like-fine-wine/
+
+From The Godfather to Back to the Future, these trilogy starters have only improved with time, added depth, and legacy.
+---------
+
+# Netflix's New ‘Queen’s Gambit’ Replacement Is the Late-Night Streaming Fix You’ve Been Looking For
+
+Movie News, The Queen's Gambit, Netflix, Documentary, Untold
+
+Sat, 11 Apr 2026 01:01:13 GMT
+
+https://collider.com/netflix-queens-gambit-replacement-untold-chess-mates-streaming-success-april-2026/
+
+A bizarre new Netflix documentary about a scandal that rocked the chess world is gaining steam despite competition. Find out more here.
+---------
+
+# 8 Worst Horror Movies of All Time, Ranked by a Fan of the Genre
+
+Movie, The Human Centipede 3 (Final Sequence), Verotika, The Haunting of Sharon Tate, The Exorcist: Believer
+
+Sat, 11 Apr 2026 00:45:12 GMT
+
+https://collider.com/worst-horror-movies-of-all-time/
+
+Take it from a lifelong horror fan, movies like The Exorcist: Believer, Skinamarink, and Verotika are all among the worst movies in the genre.
+---------
+
+# 8 Mind-Boggling Sci-Fi Movies That Will Keep You Hooked
+
+Movie Lists, Sci-Fi
+
+Sat, 11 Apr 2026 02:00:28 GMT
+
+https://movieweb.com/sci-fi-movies-hooked-start-finish/
+
+Join us on a trip through time and space featuring nonlinear narratives, dreams within dreams, distorted realities and psychedelic visual imagery.
+---------
+
 # Netflix’s 4-Part True Crime Series Is One Of Its Best & An Easy One-Night Binge
 
 Streaming TV, Masked Recs
