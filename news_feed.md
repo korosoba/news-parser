@@ -1,3 +1,168 @@
+# The 2020s' Answer To Lost Is So Good, It's Impossible To Just Watch One Episode
+
+Streaming TV, Masked Recs
+
+Sat, 11 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/from-2020s-lost-impossible-watch-one-episode/
+
+There have been plenty of would-be successors to Lost, but the show's best replacement in the 2020s is too good to put down after a single episode.
+---------
+
+# Uncharted’s Rumored New Game Can Soar On The Last Of Us’ Broken Wings
+
+Gaming, Uncharted, The Last of Us, Naughty Dog, Triple-A Games
+
+Sat, 11 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/uncharted-new-last-of-us-style-game-rumor/
+
+If Uncharted truly is receiving the revival that it is rumored to, there is a sliver of a chance that it can redeem The Last of Us' greatest tragedy.
+---------
+
+# Stephen Amell's New Fox Reboot Of Iconic '90s Series Finally Resumes Filming After Production Was Halted
+
+TV, Baywatch
+
+Sat, 11 Apr 2026 19:59:28 GMT
+
+https://screenrant.com/stephen-amell-baywatch-filming-setback-update/
+
+After facing some production challenges, filming has officially resumed for Stephen Amell's new Fox reboot of an iconic series from the 1990s.
+---------
+
+# Saving Private Ryan Becomes a Free Streaming Hit on Tubi 28 Years Later
+
+Movies, Saving Private Ryan, War, Tubi
+
+Sat, 11 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/saving-private-ryan-war-drama-tubi-success-april-2026/
+
+Steven Spielberg's critically acclaimed war epic, Saving Private Ryan, is dominating the Tubi streaming charts 28 years later.
+---------
+
+# Guy Ritchie's MobLand Is a Modern Classic Crime Series
+
+TV, MobLand, Crime, guy ritchie
+
+Sat, 11 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/guy-ritchie-mobland-modern-classic-crime-series/
+
+The crime genre has many prestigious series that will go down as classics, and Guy Ritchie's newest Paramount show may just be the most recent.
+---------
+
+# Nippon Sangoku Is The Best New Post-Apocalyptic Anime of Spring 2026
+
+Anime, Gachiakuta, NIPPON SANGOKU: The Three Nations of the Crimson Sun
+
+Sat, 11 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/best-new-post-apocalyptic-anime-nippon-sangoku/
+
+Gachiakuta crashed onto the anime scene with an unforgettable post-apocalyptic adventure last year, yet it's already being replaced this Spring.
+---------
+
+# Nic Cage's Gunslingers Is Leaving Netflix in May
+
+Movies, Gunslingers, Netflix
+
+Sat, 11 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/nicolas-cage-gunslingers-exit-netflix-may-2026/
+
+The Western movie that saw Nicolas Cage nominated for a Razzie is losing its streaming home.
+---------
+
+# Only 3 Superhero Trilogies Are Better Than Sam Raimi's Spider-Man
+
+Movies, Spider-Man, Batman, Marvel Cinematic Universe
+
+Sat, 11 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/3-superhero-trilogies-better-than-sam-raimis-spider-man-list/
+
+Sam Raimi's Spider-Man trilogy is iconic, but there are other trilogies that can be considered even better.
+---------
+
+# New Transformers Prototype Reveals an Anime-Exclusive Optimus Prime Look-a-Like
+
+Anime, Transformers, merchandise, toys, action figures
+
+Sat, 11 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/transformers-super-god-masterforce-ginrai-mini-superman-color-prototype/
+
+An upcoming new toy for Super Ginrai expertly recreates the Transformers anime character who happens to look almost exactly like Optimus Prime.
+---------
+
+# Jack Black’s $120M Monster Thriller That Earned 3x Its Budget Is Officially a Streaming Hit
+
+Movie News, Anaconda, Jack Black, Comedy, Netflix
+
+Sat, 11 Apr 2026 20:30:12 GMT
+
+https://collider.com/jack-black-anaconda-streaming-success-netflix-hbo-max-april-2026/
+
+Jack Black's 2025 ridiculous comedy becomes a streaming hit despite negative critic reviews. Get all the details here.
+---------
+
+# 10 Greatest Heist Thrillers of All Time, Ranked
+
+Movie, Thriller, Dog Day Afternoon, Reservoir Dogs, Heat
+
+Sat, 11 Apr 2026 20:30:12 GMT
+
+https://collider.com/best-heist-thriller-movies-all-time-ranked/
+
+From Reservoir Dogs to Le Samuraï and Rafifi, these are the all-time best heist thrillers that have elevated the genre throughout cinematic history.
+---------
+
+# Apple TV’s $68M Sci-Fi Mystery Is Quietly One of the Streamer’s Most Surprising Shows
+
+TV Features, Before, Apple TV, Billy Crystal, Sci-Fi
+
+Sat, 11 Apr 2026 20:06:12 GMT
+
+https://collider.com/apple-tv-sci-fi-mystery-before-68million-budget-series/
+
+Before has quietly become one of Apple TV’s most surprising shows, blending psychological tension with a slow-burn story that deserves more attention.
+---------
+
+# 10 Greatest Video Game Masterpieces of All Time, Ranked
+
+Movie, Video Game, The Legend of Zelda, Elden Ring, BioShock
+
+Sat, 11 Apr 2026 20:04:13 GMT
+
+https://collider.com/best-video-game-masterpieces-all-time-ranked/
+
+Titles like BioShock and Portal 2 are among the all-time greatest video games ever made, building legacies that certify them as genuine masterpieces.
+---------
+
+# Prime Video’s 10-Part Guy Ritchie Crime Thriller Is the Perfect Weekend Binge
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Thriller
+
+Sat, 11 Apr 2026 20:00:12 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-prime-video-april-2026-weekend-binge/
+
+Guy Ritchie's Prime Video crime thriller continues its streaming success, improving its chances of a Season 2 renewal. Get all the details here.
+---------
+
+# Jonathan Nolan's 'Person of Interest' Is So Good, You'll Want To Rewatch It Multiple Times
+
+Features, Person of Interest, Jonathan Nolan, Holds Up
+
+Sat, 11 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/jonathan-nolan-sci-fi-masterpiece-person-of-interest/
+
+From the creator of 'Fallout' and 'Westworld': one of the greatest sci-fi shows of the century that no one talks about.
+---------
+
 # Steven Spielberg's Long-Delayed Sci-Fi Movie Based On Bestselling Novel Is Officially Cancelled: "It Was A Company-Ender"
 
 Movies, Robopocalypse, Steven Spielberg
