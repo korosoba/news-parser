@@ -1,3 +1,212 @@
+# Prime Video's The Ghost in the Shell Anime: A Risky Directorial Debut
+
+Anime, Prime Video, Ghost in the Shell
+
+Sat, 11 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/ghost-in-the-shell-anime-debut-director-risk/
+
+Prime Video has a massive cyberpunk sci-fi show coming out in 2026, and it will take a big risk that could make or break the TV show.
+---------
+
+# 10 Most Underrated Sci-Fi Movie Quotes
+
+Classic Movies, Ranking, Sci-Fi
+
+Sat, 11 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/underrated-sci-fi-movie-quotes/
+
+Sci-fi movies are often intellectual or exciting, and there are several big quotes from these films that are brilliant, yet they remain underrated.
+---------
+
+# Tomb Raider’s New Era Can’t Make The Same Mistake As The Survivor Prequel Trilogy
+
+Gaming, Tomb Raider, Triple-A Games
+
+Sat, 11 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/tomb-raider-catalyst-new-game-plus-mechanic/
+
+The Tomb Raider 1 remake and Catalyst have big shoes to fill, but one feature is a must if the franchise wishes to guarantee replayability.
+---------
+
+# Catwoman Villain Katarina Belov Becomes DC's New Two-Face
+
+DC Comics, Two-Face, Batman
+
+Sat, 11 Apr 2026 21:00:09 GMT
+
+https://screenrant.com/new-two-face-redesign-dc-batman-catwoman/
+
+DC reveals the first glimpse at a character's injured face, presenting the official design of a new version of Harvey Dent a.k.a. Two-Face.
+---------
+
+# The Perfect Bones Replacement Is An Iconic 29-Part British Crime Drama
+
+Classic TV, Masked Recs
+
+Sat, 11 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/silent-witness-bones-replacement-british-crime-drama/
+
+The perfect Bones replacement isn't another American procedural series; it's one of the longest-running British crime dramas of all time.
+---------
+
+# 10 Horror Movies That Don't Have A Single Bad Scene
+
+Movies, The Bride of Frankenstein, The Exorcist, Alien, Jaws, Scream, Get Out, Rosemary's Baby, Psycho, Sinners, The Shining, Horror
+
+Sat, 11 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/horror-movies-no-bad-scenes/
+
+From Bride of Frankenstein to Sinners, these horror classics deliver nonstop tension, proving great scares don’t need a single wasted scene.
+---------
+
+# 10 Historical Adventure Anime Where Magic Doesn't Exist
+
+Anime, The Apothecary Diaries
+
+Sat, 11 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/best-historical-anime-non-magical-fantasy/
+
+A grounded historical drama beats magical high fantasy any day, and these anime prove as much.
+---------
+
+# Marvel Boss Confirms The Watcher Cameo In Daredevil: Born Again
+
+TV, Marvel, Marvel Comics, MCU, Daredevil, Daredevil: Born Again
+
+Sat, 11 Apr 2026 21:02:35 GMT
+
+https://www.cbr.com/marvel-boss-confirms-the-watcher-cameo-in-daredevil-born-again/
+
+Marvel just confirmed our suspicions about The Watcher showing up in Daredevil: Born Again.
+---------
+
+# Housemaid 2 Book Spoilers: The 5 Biggest Twists Set For Sydney Sweeney's R-Rated Thriller Sequel
+
+Movies, The Housemaid, The Housemaid's Secret
+
+Sat, 11 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/biggest-twists-set-for-sydney-sweeneys-the-housemaids-secret/
+
+Set to be released late 2027 with the return of Sydney Sweeney, here are the biggest twists fans can expect from the upcoming The Housemaid's Secret.
+---------
+
+# Star Wars: The Mandalorian and Grogu Runtime Revealed
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Sat, 11 Apr 2026 20:48:25 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-grogu-runtime/
+
+The runtime for The Mandalorian and Grogu has officially been revealed.
+---------
+
+# The Madison Season 2 Can Correct An Overlooked Yellowstone Story
+
+TV, The Madison, Yellowstone, 1923
+
+Sat, 11 Apr 2026 20:40:16 GMT
+
+https://www.cbr.com/taylor-sheridan-the-madison-season-2-winter/
+
+Taylor Sheridan has the opportunity to correct a weird oversight in Yellowstone in the second season of his Paramount+ series, The Madison.
+---------
+
+# Netflix’s New 4-Part Survival Thriller Series Will Be the Perfect Weekend Binge Next Month
+
+TV News, Lord of the Flies, Netflix, Drama, Harry Potter
+
+Sat, 11 Apr 2026 21:16:12 GMT
+
+https://collider.com/netflix-lord-of-the-flies-4-part-survival-thriller-series-release-date-may-4/
+
+Lord of the Flies lands on Netflix on May 4, led by Lox Pratt, who’s also set to play Draco Malfoy in HBO’s Harry Potter series.
+---------
+
+# 8 Movie Trilogies That Are Definitely Not for Kids
+
+Movie, Deadpool, Terrifier, Clerks, The Evil Dead
+
+Sat, 11 Apr 2026 21:14:13 GMT
+
+https://collider.com/movie-trilogies-not-for-kids/
+
+Trilogies probably not suitable for family movie night include Clerks, the first three entries in the Evil Dead series, and the Terrifier films.
+---------
+
+# 30 Years Later, This Sitcom on Paramount+ Remains One of the Greatest of All Time
+
+TV Features, Everybody Loves Raymond, Ray Romano, Patricia Heaton, Brad Garrett
+
+Sat, 11 Apr 2026 21:10:12 GMT
+
+https://collider.com/everybody-loves-raymond-best-sitcom-paramount-plus/
+
+Everybody Loves Raymond remains a timeless classic with its relatable characters and hilarious dysfunctional family dynamics.
+---------
+
+# 'Back to the Future' Meets 'Source Code' in the 99-Minute Sci-Fi Thriller Taking Over the World
+
+Movie News, Josh Hutcherson, Sci-Fi, Source Code, 57 Seconds
+
+Sat, 11 Apr 2026 21:01:12 GMT
+
+https://collider.com/josh-hutcherson-sci-fi-time-travel-movie-57-seconds-streaming-success-free-tubi-april-2026/
+
+Josh Hutcherson and Morgan Freeman team up for a sci-fi time-travel thriller now available on free streaming. Find out more about 57 Seconds here.
+---------
+
+# 10 Best Science Fantasy Movie Masterpieces of All Time, Ranked
+
+Movie, Dune, Star Wars, Avatar: The Way of Water, Godzilla
+
+Sat, 11 Apr 2026 20:53:13 GMT
+
+https://collider.com/science-fantasy-movie-masterpieces-ranked/
+
+Sometimes, the science fiction and fantasy genres combine well, as classics like Star Wars, Time Bandits, and Nausicaä of the Valley of the Wind show.
+---------
+
+# Only 3 Denis Villeneuve Movies Are Better Than 'Dune'
+
+Movie, Denis Villeneuve, Dune, Arrival, Prisoners
+
+Sat, 11 Apr 2026 20:39:12 GMT
+
+https://collider.com/denis-villeneuve-movies-better-than-dune/
+
+Dune is an undisputed Denis Villeneuve sci-fi masterpiece, but movies like Arrival and Prisoners arguably showcase the director's skills better.
+---------
+
+# Netflix's Fantasy Action Series 'Delicious in Dungeon' Changed the Fantasy Genre Forever Following 'Game of Thrones'
+
+Features, Delicious in Dungeon, Netflix, Fantasy
+
+Sat, 11 Apr 2026 21:01:18 GMT
+
+https://movieweb.com/delicious-in-dungeon-netflix-changed-fantasy-genre/
+
+Netflix's single-season high fantasy epic action series, 'Delicious in Dungeon,' changed the fantasy genre with its unique worldbuilding and premise.
+---------
+
+# HBO's 'DTF St. Louis' Is a Perfectly Unpredictable One-Night Binge
+
+Features, Thriller
+
+Sat, 11 Apr 2026 21:01:18 GMT
+
+https://movieweb.com/dtf-st-louis-hbo-binge-watch/
+
+'DTF St. Louis' is a TV series starring Jason Bateman, Linda Cardellini, and David Harbour that airs on HBO on Sunday nights.
+---------
+
 # The 2020s' Answer To Lost Is So Good, It's Impossible To Just Watch One Episode
 
 Streaming TV, Masked Recs
