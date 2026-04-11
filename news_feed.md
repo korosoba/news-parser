@@ -1,3 +1,91 @@
+# 8 Netflix Shows You Can Binge In One Weekend
+
+Streaming TV, Netflix
+
+Sat, 11 Apr 2026 11:00:18 GMT
+
+https://screenrant.com/netflix-shows-you-can-binge-in-one-weekend/
+
+You won't be able to stop watching these Netflix gems, but they go down easily, and each one is well worth rearranging your weekend plans for.
+---------
+
+# 10 Hogwarts Legacy 2 Features We Can't Live Without
+
+Gaming, Hogwarts Legacy
+
+Sat, 11 Apr 2026 11:00:18 GMT
+
+https://screenrant.com/hogwarts-legacy-2-wishlist-features/
+
+Discover the top 10 features fans are eagerly anticipating in Hogwarts Legacy 2, from expanded gameplay mechanics to immersive storylines.
+---------
+
+# Zelda Fans Losing It Over New Game Teaser
+
+Gaming, The Legend of Zelda
+
+Sat, 11 Apr 2026 10:30:18 GMT
+
+https://screenrant.com/zelda-fans-losing-it-over-new-game-teaser/
+
+A frequent co-collaborator is planning to work more closely with Nintendo on The Legend of Zelda, and fans are freaking out about their next project.
+---------
+
+# 50 Years Ago, Marvel Adapted This Genre-Defying Sci-Fi Movie
+
+Comics, Sci-Fi, 2001: A Space Odyssey, Marvel
+
+Sat, 11 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/marvel-jack-kirby-2001-space-odyssey-anniversary/
+
+In 1976, Jack Kirby made his return to the world of Marvel Comics when he adapted one of the most important sci-fi movies ever made through art.
+---------
+
+# Reacher Can Avoid Franchise Fatigue with Its Release Strategy
+
+TV, Reacher, Prime Video
+
+Sat, 11 Apr 2026 10:30:12 GMT
+
+https://www.cbr.com/prime-video-reacher-oversaturation-problem/
+
+Prime Video bears the risk of oversaturating the Reacher franchise
+---------
+
+# Say Goodbye to Guillermo del Toro’s $100M Sci-Fi Fantasy Franchise-Starter
+
+Movie News, Guillermo del Toro, Hellboy, Ron Perlman, Netflix
+
+Sat, 11 Apr 2026 11:00:13 GMT
+
+https://collider.com/netflix-blocks-guillermo-del-toro-superhero-franchise-starter-hellboy-april-2026/
+
+Netflix is restricting access to Guillermo del Toro's superhero franchise-starter, Hellboy. Find out more information below.
+---------
+
+# These 10 Single-Season Shows Are Masterpieces
+
+TV, Television, Band of Brothers, The Haunting of Hill House, The Queen's Gambit
+
+Sat, 11 Apr 2026 10:52:12 GMT
+
+https://collider.com/tv-shows-one-season-masterpieces/
+
+HBO's Band of Brothers, Netflix's The Haunting of Hill House, and NBC's Freaks and Geeks are among the best single-season shows that are masterpieces.
+---------
+
+# Rebecca Ferguson’s 112-Minute Thriller Is Taking Over the World
+
+Movie News, Rebecca Ferguson, The Girl on the Train, Thriller, STARZ
+
+Sat, 11 Apr 2026 10:30:12 GMT
+
+https://collider.com/rebecca-ferguson-thriller-the-girl-on-the-train-streaming-success-starz-april-2026/
+
+Rebecca Ferguson's critically panned thriller adaptation with Emily Blunt, The Girl on the Train, is a streaming hit on Starz in the U.S.
+---------
+
 # GTA 6 Fans Astounded By New Graphics Comparison
 
 Gaming, Grand Theft Auto 6, Triple-A Games
