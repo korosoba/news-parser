@@ -1,3 +1,124 @@
+# 10 Moments We Absolutely Loved In The Super Mario Galaxy Movie (We Can't Stop Talking About #1)
+
+Movies, The Super Mario Galaxy Movie
+
+Sat, 11 Apr 2026 16:20:18 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-best-moments/
+
+From Easter eggs to incredible character moments, The Super Mario Galaxy Movie is loaded with great scenes.
+---------
+
+# Big Bang Theory Star’s New Dark Comedy Debuts With Solid Rotten Tomatoes Score
+
+TV, The Audacity, The Audacity - Season 1
+
+Sat, 11 Apr 2026 16:16:09 GMT
+
+https://screenrant.com/the-audacity-rotten-tomatoes-score-debut/
+
+Seven years after The Big Bang Theory ended, one of its main stars is in a new dark comedy that has debuted to a solid score on Rotten Tomatoes.
+---------
+
+# Keanu Reeves’ New Dark Comedy Dominates Apple TV Streaming Despite Abysmal 25% RT Score
+
+Movies, Streaming Charts, Masked Recs, Keanu Reeves
+
+Sat, 11 Apr 2026 16:07:32 GMT
+
+https://screenrant.com/outcome-keanu-reeves-apple-tv-movie-streaming-success-april-2026/
+
+Keanu Reeves' new movie becomes a streaming sensation on Apple TV in spite of earning one of the worst Rotten Tomatoes scores of his career.
+---------
+
+# Black Mirror Episodes That Have Aged Remarkably Well
+
+Streaming TV, Black Mirror
+
+Sat, 11 Apr 2026 16:00:18 GMT
+
+https://screenrant.com/black-mirror-episodes-that-aged-well/
+
+Black Mirror has been around for so long that its dystopian near-future has become the present, but these classic episodes have aged well.
+---------
+
+# 10 Biggest Smash Bros. Characters Still Missing From Nintendo's Cinematic Universe After Super Mario Galaxy Movie
+
+New Movies, The Super Mario Galaxy Movie, Super Smash Bros.
+
+Sat, 11 Apr 2026 15:56:19 GMT
+
+https://screenrant.com/smash-bros-characters-missing-nintendo-cinematic-universe/
+
+The Super Mario Galaxy Movie brought more Smash Bros. characters into the fold, but these are the 10 biggest fighters still yet to debut.
+---------
+
+# 7 Best Dragon Ball Villains That Are 100% Never Coming Back
+
+Anime, Dragon Ball, anime villains
+
+Sat, 11 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/best-dragon-ball-villains-gone-forever/
+
+Akira Toriyama is notorious for repeatedly writing antagonists back into the story, but some of Dragon Ball's villains are definitely gone for good.
+---------
+
+# Henry Winkler & Jess McLeod Talk Normal’s Wild Action Twist
+
+Movies, Normal
+
+Sat, 11 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/video/henry-winkler-jess-mcleod-talk-normal-s-wild-action-twist/
+
+Henry Winkler and Jess McLeod break down Normal and why this action movie hits differently. From Bob Odenkirk’s shocking evolution into a believable action hero to the film’s small-town heart, this interview dives into what makes Normal stand out.The two stars open up about playing against expectations, Winkler embracing a darker edge, and McLeod stepping into action for the first time.
+---------
+
+# Evangelion Gets New Limited-Edition Collector's Release This November
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Sat, 11 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/evangelion-artbook-yoshiyuki-sadamoto-kadokawa-release/
+
+A commemorative Neon Genesis Evangelion artbook takes a look back at the classic anime's visual designer, complete with all new illustrations.
+---------
+
+# New Sci-Fi Masterpiece Officially Overtakes a Major Franchise Hit at the Box Office
+
+Movie News, Bumblebee, Project Hail Mary, Ryan Gosling, Transformers
+
+Sat, 11 Apr 2026 16:00:12 GMT
+
+https://collider.com/project-hail-mary-doubles-box-office-gross-transformers-bumblebee-239-million/
+
+2026’s best sci-fi movie so far, Project Hail Mary, has officially doubled the domestic gross of one of the best franchise hits of all time.
+---------
+
+# Why Roger Ebert Praised Ryan Gosling's 'Lars and the Real Girl' Performance
+
+Features, Roger Ebert, Ryan Gosling, Quote
+
+Sat, 11 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/lars-and-the-real-girl-roger-ebert-praised/
+
+Two decades before 'Project Hail Mary,' Roger Ebert praised Ryan Gosling's performance in the drama movie 'Lars and the Real Girl.'
+---------
+
+# Both Adaptations of Stephen King's Teen Horror Debut 'Carrie' Now Streaming Free
+
+Movie News, Carrie, Coming/Leaving Streaming, Stephen King
+
+Sat, 11 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/carrie-streaming-tubi-april-2026/
+
+Stephen King's highest rated horror movie (and its unnecessary remake) are both now streaming for free.
+---------
+
 # Rockstar Hackers Threaten GTA 6 Studio With Major Leak
 
 Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games, PC
