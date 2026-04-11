@@ -1,3 +1,113 @@
+# Jared Padalecki's Role In Prime Video's The Boys Season 5 Finally Revealed
+
+TV, The Boys, The Boys - Season 5
+
+Sat, 11 Apr 2026 22:57:32 GMT
+
+https://screenrant.com/the-boys-season-5-jared-padalecki-role-mr-marathon/
+
+Jared Padalecki's Supernatural reunion with Jensen Ackles and Misha Collins in The Boys is almost here, and now he's revealed who he is playing.
+---------
+
+# Disney+'s 3-Part Action Thriller Series Jessica Jones Is One Of Its Best
+
+Classic TV, Masked Recs
+
+Sat, 11 Apr 2026 22:45:20 GMT
+
+https://screenrant.com/jessica-jones-disney-plus-marvel-action-show-best/
+
+Discover why Jessica Jones, a crime thriller originally on Netflix, is one of Disney+'s best shows with its complex characters, surprising plots, and darker MCU tone.
+---------
+
+# One Piece and Naruto's Saddest Episodes Share One Heartbreaking Similarity That's Aged Like Fine Wine
+
+Anime, One Piece, Naruto: Shippuden
+
+Sat, 11 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/one-piece-naruto-saddest-episodes-happy-birthday-aged-well/
+
+One Piece and Naruto, two of the most influential shonen franchises, have both delivered heart-wrenching episodes that are surprisingly similar.
+---------
+
+# 20 Years Later, Twilight's Robert Pattinson Just Noticed A "Strange" Acting Choice For One Edward Cullen's "Vampiric Thing"
+
+Movies, Twilight, Robert Pattinson
+
+Sat, 11 Apr 2026 22:23:29 GMT
+
+https://screenrant.com/twilight-edward-cullen-cateferia-finger-movement-robert-pattinson/
+
+Robert Pattinson discusses something "strange" that he noticed himself doing after he rewatched the Twilight films 20 years later.
+---------
+
+# Zack Snyder's Dawn of the Dead Is Leaving Netflix
+
+Movies, Dawn of the Dead
+
+Sat, 11 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/dawn-of-the-dead-leaving-netflix-may-2026/
+
+Time is running out for Netflix subscribers to revisit Zack Snyder's directorial debut film.
+---------
+
+# 8 Forgotten Fantasy Shows That Aged Perfectly
+
+TV, Merlin, The Shannara Chronicles, Legend of the Seeker, Fantasy
+
+Sat, 11 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/forgotten-fantasy-shows-aged-perfectly-list/
+
+These fantasy series have been overlooked but haven't lost their luster, offering timeless tales of magic, adventure, and unforgettable characters.
+---------
+
+# 5 Kaiju Movies That Are 10/10, No Notes
+
+Movie, Godzilla Minus One, Gamera 3: Revenge of Iris, Pacific Rim, Godzilla
+
+Sat, 11 Apr 2026 22:52:12 GMT
+
+https://collider.com/kaiju-movies-perfect-no-notes/
+
+Not many kaiju movies are truly 10/10, but a few are, including a handful of highlights from the Godzilla series, a Gamera film, and Pacific Rim.
+---------
+
+# 13 Years Later, J.J. Abrams' Adaptation of a Video Game Masterpiece Needs an Update
+
+Movie Features, J.J. Abrams, Bad Robot, Valve, Dan Trachtenberg
+
+Sat, 11 Apr 2026 22:50:12 GMT
+
+https://collider.com/jj-abrams-portal-movie/
+
+Over a decade ago, J.J. Abrams announced interest in an adaptation of the Portal video game, but what's the latest with the project?
+---------
+
+# The Biggest Sci-Fi Action Star’s Thriller Comeback Is a Streaming Favorite 13 Years Later
+
+Movie News, Arnold Schwarzenegger, The Last Stand, Western, Streaming
+
+Sat, 11 Apr 2026 22:45:12 GMT
+
+https://collider.com/arnold-schwarzenegger-sci-fi-action-comeback-the-last-stand-streaming-success-free-tubi-april-2026/
+
+The Last Stand has become a Tubi streaming hit, giving Arnold Schwarzenegger’s 2013 comeback thriller another moment.
+---------
+
+# Forget 'Dune: Part 3,' Rebecca Ferguson's Sci-Fi Gem Hits Free Streaming This May
+
+Movie News, Life, Rebecca Ferguson, Jake Gyllenhaal, Ryan Reynolds
+
+Sat, 11 Apr 2026 22:30:13 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-horror-life-streaming-success-free-tubi-may-2026/
+
+Nearly a decade since its release, Rebecca Ferguson’s sci-fi horror flop finds a heartbeat on a free streamer. Find out more here.
+---------
+
 # Doctor Who’s Newest Found Episodes & Where To Watch Them, Explained
 
 Classic TV, Doctor Who, Explainer
