@@ -1,3 +1,157 @@
+# Why Oliver's Skin Has Turned Pink In Invincible Season 4
+
+Streaming TV, Invincible
+
+Sat, 11 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/invincible-oliver-skin-not-purple-pink/
+
+Invincible season 4 featured new villains for Mark and The Guardians to battle, but it also included a noticeable change in Oliver’s skin color.
+---------
+
+# 10 Underrated 2000s Action Movies Nobody Remembers Today
+
+Movies, 3000 Miles to Graceland, Wanted, Doom, Equilibrium, Kiss of the Dragon, The Punisher, Smokin' Aces, Bulletproof Monk, Domino, Shoot 'Em Up
+
+Sat, 11 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/action-movies-2000s-underrated-nobody-remembers/
+
+The 2000s were great for action movies, but several titles failed to impress at the time or only gained recognition years after release.
+---------
+
+# Austin Butler's 20-Part Fantasy Series Is Aging Like Fine Wine
+
+TV, Masked Recs
+
+Sat, 11 Apr 2026 17:31:19 GMT
+
+https://screenrant.com/the-shannara-chronicles-austin-butler-aging-well/
+
+Austin Butler's underseen, 20-part fantasy TV show is aging like fine wine, making now the perfect time to start watching it again.
+---------
+
+# Pokémon Fans Shocked At The Amount Of Bugs In New Game Release
+
+Gaming, Pokemon Champions, Pokemon
+
+Sat, 11 Apr 2026 17:31:19 GMT
+
+https://screenrant.com/pokemon-champions-release-launch-bugs/
+
+The latest Pokémon release is full of bugs and gameplay issues that have players upset, but The Pokémon Company says fixes are already on the way.
+---------
+
+# Euphoria Season 4's Fate Addressed By Show Creator After Zendaya's Recent Comments
+
+TV, Euphoria
+
+Sat, 11 Apr 2026 17:17:30 GMT
+
+https://screenrant.com/euphoria-season-3-end-rumors-sam-lenvinson/
+
+Euphoria's days are numbered as the show's creator, Sam Levinson, and its star Zendaya reveal its fate ahead of the anticipated season 3 release.
+---------
+
+# The Gentlemen Is One Of Its Best Shows To Binge In 2026
+
+Streaming TV, Masked Recs
+
+Sat, 11 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/guy-ritchie-the-gentlemen-netflix-series-binge-2026/
+
+Netflix has some excellent and bingeable TV shows, but Guy Ritchie's crime show is the opposite of many gritty series airing today, and it is funny.
+---------
+
+# Star Wars Disney+ Series Ranked: Mandalorian, Andor, Obi-Wan & More
+
+Star Wars
+
+Sat, 11 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/star-wars-best-shows-2020s-disney-plus/
+
+Star Wars has had a jam-packed decade thus far, but some projects rank above the rest in terms of overall quality.
+---------
+
+# 10 Best Video Games for People Who Think They Hate Gaming
+
+Games, Video Games
+
+Sat, 11 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/best-vjdeo-games-perfect-for-gaming-haters/
+
+These classics are for potential players who just haven't found the right game for them.
+---------
+
+# GTA 5 Officially Offering Free Download Until May 2
+
+Games, Grand Theft Auto 5, Grand Theft Auto
+
+Sat, 11 Apr 2026 17:14:35 GMT
+
+https://www.cbr.com/grand-theft-auto-gta-5-free-dlc-april-2026/
+
+A new freebie for GTA Online players has arrived, but only for a limited time.
+---------
+
+# Dark Knight Trilogy Star John Nolan Dead at 87
+
+TV News, The Dark Knight Trilogy, Person of Interest, Jonathan Nolan, Christopher Nolan
+
+Sat, 11 Apr 2026 17:47:22 GMT
+
+https://collider.com/person-of-interest-dark-knight-trilogy-star-john-nolan-dead-at-87/
+
+John Nolan, the star of Person of Interest and uncle to Jonathan and Christopher Nolan, had died at 87.
+---------
+
+# 5 Greatest Jessie Buckley Performances, Ranked
+
+Movie, Jessie Buckley, Hamnet, I'm Thinking of Ending Things, Wild Rose
+
+Sat, 11 Apr 2026 17:28:12 GMT
+
+https://collider.com/best-jessie-buckley-performances-ranked/
+
+Oscar winner Jessie Buckley's greatest movie performances include her lauded turns in Hamnet, Wild Rose, and I'm Thinking of Ending Things.
+---------
+
+# 'Daredevil's Love Interests, Ranked by Chemistry With Matt Murdock
+
+TV, Daredevil, Daredevil: Born Again, Superhero
+
+Sat, 11 Apr 2026 17:19:12 GMT
+
+https://collider.com/daredevil-matt-murdock-love-interests-chemistry-ranked/
+
+From Karen Page to Elektra to Jennifer Walters, Daredevil's Matt Murdock has a string of romantic partners who have helped shape the hero he is.
+---------
+
+# 10 TV Dramas That Could Last Forever (and Probably Will)
+
+TV, NCIS, Grey's Anatomy, The Pitt, Drama
+
+Sat, 11 Apr 2026 17:04:12 GMT
+
+https://collider.com/drama-tv-shows-could-last-forever/
+
+Explore the longevity of TV dramas that seem to have no end in sight, thanks to their enduring appeal, from Law & Order to Grey's Anatomy.
+---------
+
+# 'Doctor Who's Potential HBO Deal Would Allow for Far Darker Episodes Than Disney Made
+
+Features, Doctor Who
+
+Sat, 11 Apr 2026 17:30:17 GMT
+
+https://movieweb.com/doctor-who-potential-hbo-deal/
+
+With the possibility of a new collaboration on the horizon with the BBC, an incoming studio could return 'Doctor Who' to form. Read on for more.
+---------
+
 # Apple TV's 'Your Friends and Neighbors': Jon Hamm's Dark Comedy Masterpiece
 
 Streaming TV, Your Friends and Neighbors
