@@ -1,3 +1,234 @@
+# The Super Mario Galaxy Movie Teased The Missing Ingredient For A Luigi's Mansion Spinoff
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Sat, 11 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-professor-e-gadd-luigis-mansion-missing-setup/
+
+The Super Mario Galaxy Movie has numerous connections to the missing ingredient needed for a proper adaptation of the Luigi's Mansion series.
+---------
+
+# 10/10 Finales Are Rare, But HBO's 5-Part Masterpiece Series Has A Perfect Ending
+
+Classic TV, Six Feet Under
+
+Sat, 11 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/six-feet-under-hbo-best-series-finale/
+
+It can be tough for a TV show to stick the landing, especially after a substantial run, but an early 2000s HBO drama showed the world how it's done.
+---------
+
+# Zelda: Twilight Princess' Unexpected Return Has Gamers Seriously Excited
+
+Gaming, The Legend of Zelda: Twilight Princess
+
+Sat, 11 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/zelda-twilight-princess-2026-return-gamer-reactions/
+
+Fans of The Legend of Zelda are buzzing with excitement as Twilight Princess: Courage Reborn brings the beloved game to PC for the first time.
+---------
+
+# Disney's Power Rangers Reboot Can't Make Up For A Scrapped 4-Movie Plan
+
+Streaming TV, Power Rangers
+
+Sat, 11 Apr 2026 18:22:22 GMT
+
+https://screenrant.com/power-rangers-disney-reboot-movie-plan-make-up-for/
+
+Disney and Hasbro's reboot of a classic action sci-fi show offers a fresh start, but it also highlights the missed chance of a cinematic franchise.
+---------
+
+# Succession's Stellar Cast: HBO's Ensemble Masterpiece
+
+Classic TV, Succession
+
+Sat, 11 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/succession-hbo-masterpiece-best-casts/
+
+Succession has one of HBO's all-time greatest casts. The actors pulled off the magic trick of making us care about a bunch of terrible people.
+---------
+
+# GTA 6 Fans Are Hyped Over Celebrity Collab
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games
+
+Sat, 11 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/gta-6-fans-are-hyped-over-celebrity-collab/
+
+Grand Theft Auto 6 could be tremendously anti-streamer with DMCAs via radio stations, but it will probably feature many iconic artists nonetheless.
+---------
+
+# Netflix's Thrash Becomes the Most-Watched Movie in the World
+
+Movies, Thrash
+
+Sat, 11 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/thrash-creature-feature-netflix-global-success-april-2026/
+
+The survival film became an instant streaming sensation.
+---------
+
+# Star Trek: Prodigy Confirms Franchise's Perfect Next Era
+
+TV, Star Trek, Star Trek: Prodigy
+
+Sat, 11 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/star-trek-prodigy-confirms-star-trek-episodic-era/
+
+Star Trek: Prodigy's success proves that the franchise's future lies in the episodic storytelling that the animated series successfully reintroduced.
+---------
+
+# Spring 2006 Had Anime's Best Seasonal Lineup of All Time
+
+Anime, Gintama, The Melancholy Of Haruhi Suzumiya
+
+Sat, 11 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/best-anime-season-spring-2006/
+
+20 years before the era of Witch Hat Atelier & Daemons of the Shadow Realm, Gintama and several other iconic shows made 2006 a great year for anime.
+---------
+
+# Karl Urban Really Wants to Star in a Red Dead Redemption Movie
+
+Movies, Red Dead Redemption, karl urban
+
+Sat, 11 Apr 2026 18:09:50 GMT
+
+https://www.cbr.com/karl-urban-red-dead-redemption-movie/
+
+Mortal Kombat II star Karl Urban has another major video game role in mind.
+---------
+
+# Ryan Reynolds' Fantasy Film IF With 51% Becomes a Netflix Streaming Hit 2 Years Later
+
+Movies, ryan reynolds, IF
+
+Sat, 11 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/ryan-reynolds-if-fantasy-film-netflix-success-april-2026/
+
+The fantasy film had a star-studded cast, but that couldn't save it.
+---------
+
+# James Bond's From Russia With Love Remains the Greatest Spy Sequel Ever Made
+
+Movies, From Russia With Love, James Bond
+
+Sat, 11 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/james-bond-from-russia-with-love-greatest-spy-sequel-movie-ever/
+
+While there have been a number of James Bond films over the years, only one has reached sequel greatness, and it remains a classic of the franchise.
+---------
+
+# 10 Marvel Characters Who Would Be Banned From The Internet
+
+Superheroes, Marvel
+
+Sat, 11 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/marvel-characters-who-would-definitely-get-banned-online/
+
+Even superheroes need to ragebait.
+---------
+
+# One-Punch Man Creator Recommends the Next Hit Superhero Action Series
+
+Anime, One-Punch Man, Manga, Shonen Jump
+
+Sat, 11 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/one-punch-man-creator-life-man-recommend/
+
+One of the most beloved superhero manga creators of a generation just gave fans his personal recommendation for the next breakout hit action series.
+---------
+
+# Kagurabachi Is Getting a Big Announcement on April 27
+
+Anime, Kagurabachi
+
+Sat, 11 Apr 2026 17:59:12 GMT
+
+https://www.cbr.com/kagurabachi-anime-april-27-jump-press-announcement/
+
+A Kagurabachi anime announcement looks imminent as Shonen Jump prepares for a major reveal related to the dark shonen manga series on April 27.
+---------
+
+# 10 Most Perfect Marvel Opening Scenes, Ranked
+
+Movie, Spider-Man 2, Marvel, MCU, X2: X-Men United
+
+Sat, 11 Apr 2026 18:28:12 GMT
+
+https://collider.com/most-perfect-marvel-opening-scenes-ranked/
+
+Spider-Man 2, Guardians of the Galaxy, and X2: X-Men United are Marvel movies with standout opening scenes that are close to perfect.
+---------
+
+# Apple TV’s 2-Part Drama Is Quietly One of Its Best Shows
+
+TV Features, Pachinko, Apple TV, Drama, Lee Min-ho
+
+Sat, 11 Apr 2026 18:27:12 GMT
+
+https://collider.com/pachinko-apple-tv-drama-best-streaming/
+
+Apple TV's historical epic Pachinko is one of the streamer's best series, exploring themes of resistance and perseverance across two timelines.
+---------
+
+# Gerard Butler's Disastrous Sci-Fi Sequel Finally Wins on Streaming After Flopping at the Box Office
+
+Movie News, Greenland, Greenland 2: Migration, Sci-Fi, Gerard Butler
+
+Sat, 11 Apr 2026 18:00:12 GMT
+
+https://collider.com/gerard-butler-sci-fi-sequel-greenland-2-migration-global-streaming-success-pvod-april-2026/
+
+Greenland 2: Migration is charting strongly on PVOD around the world, giving Gerard Butler’s sequel a much-needed second life.
+---------
+
+# As a Horror Fan, I Think I Could Survive These 10 Movies
+
+Movie, The Birds, Friday the 13th, Halloween, Horror
+
+Sat, 11 Apr 2026 17:57:12 GMT
+
+https://collider.com/most-survivable-horror-movies/
+
+Barbarian, It Follows, Halloween, Friday the 13th, The Birds, Jaws, and more make up our list of most survivable horror movies.
+---------
+
+# That 'A-Train' Twist in 'The Boys' Season 5 Premiere Proves How Much He's Changed Since the Show's First Episode
+
+Features, The Boys
+
+Sat, 11 Apr 2026 18:31:17 GMT
+
+https://movieweb.com/the-boys-season-5-a-train-redemption/
+
+Jessie T. Usher's A-Train has had a great redemption arc throughout 'The Boys,' but Season 5 just topped it all off brilliantly.
+---------
+
+# Netflix's 'The Residence' Is So Good You'll Spend the Whole Weekend Watching It
+
+Features, The Residence
+
+Sat, 11 Apr 2026 18:00:16 GMT
+
+https://movieweb.com/netflix-the-residence-binge-watch/
+
+This Netflix murder mystery was cancelled way too soon, but it's still worth spending a weekend watching.
+---------
+
 # Why Oliver's Skin Has Turned Pink In Invincible Season 4
 
 Streaming TV, Invincible
