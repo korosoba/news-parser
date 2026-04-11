@@ -1,3 +1,25 @@
+# Starfield On PS5 - Is The Game Worth Playing On A New Console After New Updates?
+
+Gaming, Starfield, PlayStation 5
+
+Sat, 11 Apr 2026 06:00:17 GMT
+
+https://screenrant.com/starfield-playstation-5-comparison-review-updates/
+
+Starfield has finally arrived on PS5, so how well does Bethesda's RPG hold up after years of updates? And is the PS5 the ideal console for it?
+---------
+
+# 'Rich Characters With Amazing Journeys': Johnny Yong Bosch & Sarah Roach React to Trigun Stargaze Finale
+
+Anime, Trigun Stampede
+
+Sat, 11 Apr 2026 06:46:12 GMT
+
+https://www.cbr.com/trigun-stargaze-johnny-yong-bosch-sarah-roach-interview/
+
+In an exclusive interview with CBR, Johnny Yong Bosch and Sarah Roach sit down to discuss Trigun Stargaze's exciting finale.
+---------
+
 # Fallout: The New West Is Here To Tide You Over Until Fallout 5
 
 Gaming, Fallout: New Vegas
