@@ -1,3 +1,201 @@
+# The Mandalorian & Grogu Is Star Wars’ Shortest Movie In 18 Years
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Sat, 11 Apr 2026 13:46:50 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-runtime-shortest-18-years/
+
+The Mandalorian and Grogu's runtime has been revealed, and it is officially the Star Wars franchise's shortest movie runtime in 18 years.
+---------
+
+# You, Me, & Tuscany Rotten Tomatoes Score Breaks All-Time Record For Regé-Jean Page
+
+Movies, You, Me & Tuscany
+
+Sat, 11 Apr 2026 13:46:26 GMT
+
+https://screenrant.com/you-me-and-tuscany-rotten-tomatoes-audience-score-rege-jean-page-record/
+
+Despite mixed critic reviews, You, Me & Tuscany's standout cast and stunning scenery have audiences calling it 'charming and funny.'
+---------
+
+# 10 Iconic Movies On Tubi: Free Streaming Gems
+
+Movies, Tubi TV, Recommendation
+
+Sat, 11 Apr 2026 13:45:20 GMT
+
+https://screenrant.com/tubi-iconic-best-free-movies/
+
+Tubi is a completely free streaming service, which is just what a lot of people want these days, and it's home to these incredible movies.
+---------
+
+# DC Just Turned an Iconic Justice League Villain Into a Hero After 32 Years
+
+Comics, Aquaman
+
+Sat, 11 Apr 2026 13:32:20 GMT
+
+https://screenrant.com/dc-king-shark-officially-becomes-hero-redeemed-after-31-years/
+
+After 32 years, an iconic Justice League villain has officially redeemed himself and chosen the path of hero over villain.
+---------
+
+# Better Call Saul: How Vince Gilligan Rewrote Spinoff Rules
+
+Classic TV, Masked Recs
+
+Sat, 11 Apr 2026 13:30:20 GMT
+
+https://screenrant.com/better-call-saul-crime-thriller-rewrote-rules-spinoffs/
+
+Vince Gilligan's Better Call Saul is a spinoff of Breaking Bad, and yet it breaks a lot of the classic spinoff rules you expect from a TV show.
+---------
+
+# 10 Most Iconic Pokémon From Gen 1
+
+Gaming, Pokemon Red and Blue, Pokemon
+
+Sat, 11 Apr 2026 13:30:20 GMT
+
+https://screenrant.com/most-iconic-pokemon-gen-1-games-kanto/
+
+At well over 1000 Pokémon now, these iconic Pokémon from Gen 1's Kanto region have withstood the test of time beyond their debuts in Red & Blue.
+---------
+
+# Firefly Was So Good, It Proudly Refused To Die
+
+Classic TV, Firefly
+
+Sat, 11 Apr 2026 13:15:19 GMT
+
+https://screenrant.com/firefly-nathan-fillion-sci-fi-series-refuse-to-die/
+
+Nathan Fillion starred in a now-classic 2000s sci-fi show that, even though it was short-lived, has refused to die after all these years.
+---------
+
+# All 3 Times Jason Voorhees Speaks In The Friday The 13th Franchise
+
+Movies, Friday the 13th, Horror
+
+Sat, 11 Apr 2026 13:15:19 GMT
+
+https://screenrant.com/friday-13th-movies-jason-speaking-every-time/
+
+The Friday the 13th movies have always depicted Jason Voorhees as a silent slasher, but there are a handful of times he's spoken in the series.
+---------
+
+# The Boys: 10 Things That Happened In The 1-Year Gap Before Season 5
+
+Streaming TV, The Boys
+
+Sat, 11 Apr 2026 13:08:28 GMT
+
+https://screenrant.com/the-boys-season-5-time-skip-explained/
+
+The Boys season 5 begins a year after the conclusion of season 4, raising questions about exactly what happened to each character in the interim.
+---------
+
+# Elden Ring Officially Returns With Huge New Release On April 30
+
+Gaming, Elden Ring, Elden Ring Nightreign, PC
+
+Sat, 11 Apr 2026 13:00:18 GMT
+
+https://screenrant.com/elden-ring-strategy-guide-april-30-delayed-release/
+
+Elden Ring is getting an absolutely massive official release this month after a long wait from fans, available finally on April 30.
+---------
+
+# Most Powerful Villains from Spider-Man: The Animated Series, Ranked
+
+TV, Spider-Man: The Animated Series, Animation, Marvel
+
+Sat, 11 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/spiderman-tas-strongest-villains-ranked-list/
+
+Spider-Man: The Animated Series adapted quite a few comic villains like Venom and Doctor Octopus, though some were much stronger than others.
+---------
+
+# These Pokémon Still Need Official Mega Evolutions
+
+Anime, Pokemon
+
+Sat, 11 Apr 2026 13:15:11 GMT
+
+https://www.cbr.com/pokmon-need-mega-evolutions-2026-winds-waves/
+
+Despite so many amazing Pokémon having already gotten Mega Evolutions, others who deserve one have remained ignored.
+---------
+
+# 10 Relentless Action Masterpieces You Forgot Existed
+
+Movies, Action, Christopher Nolan, Punisher: War Zone
+
+Sat, 11 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/10-best-underrated-action-masterpieces-list/
+
+The action genre is filled with iconic, unforgettable epics, but there are just as many action masterpieces that have been unfortunately forgotten.
+---------
+
+# Apple TV’s New Keanu Reeves Movie Beats Bad Reviews With Strong Streaming Debut
+
+Movie News, Outcome, Jonah Hill, Keanu Reeves, Apple TV
+
+Sat, 11 Apr 2026 13:29:36 GMT
+
+https://collider.com/apple-tvs-new-keanu-reeves-movie-beats-bad-reviews-with-strong-streaming-debut/
+
+Apple TV’s new Jonah Hill movie, featuring Keanu Reeves and Cameron Diaz, is officially a streaming success despite terrible reviews.
+---------
+
+# The Impressive $80M Sci-Fi Horror That Made 4x Its Budget Is Now Dominating HBO Max’s Top 10
+
+Movie Features, Alien: Romulus, Fede Alvarez, Alien, Sci-Fi
+
+Sat, 11 Apr 2026 13:23:12 GMT
+
+https://collider.com/alien-romulus-hbo-max-top-10-streaming-success/
+
+Alien: Romulus is dominating HBO Max’s Top 10 after making over 4x its budget, proving its staying power beyond theaters.
+---------
+
+# Prime Video’s Flagship 5-Part Superhero Spectacle Hasn’t Aged a Day in Blockbuster Return
+
+TV News, Prime Video, The Boys, Karl Urban, Superhero
+
+Sat, 11 Apr 2026 13:08:34 GMT
+
+https://collider.com/the-boys-season-5-premiere-streaming-success-prime-video-april-2026/
+
+Prime Video’s most explosive sci-fi superhero series just made a huge streaming comeback following the premiere of the fifth and final season.
+---------
+
+# ‘John Wick’ Meets ‘The Last of Us’ in Anya Taylor-Joy’s 10/10 Sci-Fi Thriller Taking Over the World
+
+Movie News, The Gorge, Anya Taylor-Joy, John Wick, The Last of Us
+
+Sat, 11 Apr 2026 12:45:12 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-thriller-the-gorge-apple-tv-streaming-success-april-2026-how-to-watch/
+
+John Wick meets The Last of Us in Anya Taylor-Joy's 10/10 sci-fi thriller taking over the world on Apple TV. Find out more information here.
+---------
+
+# Gideon Adlon Explains Why Devon Connects With Maul in 'Shadow Lord'
+
+TV News
+
+Sat, 11 Apr 2026 13:19:24 GMT
+
+https://movieweb.com/gideon-adlon-devon-maul-shadow-lord-exclusive/
+
+Speaking with MovieWeb, 'Maul — Shadow Lord' actor Gideon Adlon sheds new light on Devon Izara's connection to the show's titular Sith warrior.
+---------
+
 # Parks & Recreation's Time-Jump Finale Is Still A Perfect Conclusion
 
 Classic TV, Parks and Recreation
