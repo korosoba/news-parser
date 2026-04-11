@@ -1,3 +1,234 @@
+# Parks & Recreation's Time-Jump Finale Is Still A Perfect Conclusion
+
+Classic TV, Parks and Recreation
+
+Sat, 11 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/parks-and-recreation-finale-legacy-best-of-2010s/
+
+11 years after it aired, the final episode of Parks and Recreation stands as one of the best of the 2010s, and it only keeps getting better.
+---------
+
+# 6 Must-Watch Movies Leaving HBO Max After April 2026
+
+Movies, HBO Max
+
+Sat, 11 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/best-movies-leaving-hbo-max-april-2026/
+
+Multiple modern classics are leaving the virtual shelves of HBO Max on April 30, giving subscribers mere weeks to enjoy these must-see movies.
+---------
+
+# We Did The Math And Know When Jujutsu Kaisen's Anime Will End
+
+Anime
+
+Sat, 11 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/when-jujutsu-kaisen-anime-end/
+
+With Jujutsu Kaisen's fourth season on the way, it looks like the finale of the hit franchise might not be as soon as we may want it to be.
+---------
+
+# This Dark Souls Next-Gen Remaster Is Dividing Gamers
+
+Gaming, Dark Souls
+
+Sat, 11 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/dark-souls-2026-remaster-gamer-reaction/
+
+This Dark Souls next-gen remaster, utilizing RTX technology, has left fans divided over its graphical enhancements.
+---------
+
+# Shadow And Bone: Netflix's Must-Watch Fantasy Based On A Best-Seller
+
+Classic TV, Masked Recs
+
+Sat, 11 Apr 2026 12:00:18 GMT
+
+https://screenrant.com/shadow-and-bone-netflix-fantasy-series-to-binge/
+
+Netflix has bingeworthy titles in every genre, but this underrated book-to-screen adaptation is one of the best fantasy series of the century.
+---------
+
+# DC's Mary Marvel Is Superman's Shocking New Love Interest
+
+Comics, Superman, mary marvel
+
+Sat, 11 Apr 2026 12:00:18 GMT
+
+https://screenrant.com/superman-new-love-interest-mary-marvel-romance/
+
+DC's Superman has a shocking new love interest, as a surprising twist leads him to connect with Captain Marvel hero Mary Marvel.
+---------
+
+# Netflix’s New Number 1 Movie Is Jack Black & Paul Rudd's Divisive 2025 Comedy
+
+Movies, Netflix, Anaconda
+
+Sat, 11 Apr 2026 12:00:18 GMT
+
+https://screenrant.com/netflix-anaconda-new-number-1-movie-weekly/
+
+Jack Black and Paul Rudd's 2025 action comedy has flown to the top of Netflix's charts, despite the divided reception its initial release received.
+---------
+
+# GTA 5 Source Code Unearths Long-Lost Rockstar Protagonist
+
+Gaming, Grand Theft Auto 5, Grand Theft Auto, Triple-A Games, PC
+
+Sat, 11 Apr 2026 12:00:18 GMT
+
+https://screenrant.com/agent-protagonist-model-textures-gta-5-source-code/
+
+The leaked source code for Grand Theft Auto 5 has led to an unexpected discovery, our first ever look at the main character of Rockstar's Agent.
+---------
+
+# 10 Saddest Black Mirror Episodes
+
+TV, Black Mirror, Netflix, Sci-Fi
+
+Sat, 11 Apr 2026 12:30:12 GMT
+
+https://www.cbr.com/saddest-black-mirror-episodes-list/
+
+While Black Mirror delivers its fair share of frights, thrills, and technological horror, some episodes also manage to move us to tears.
+---------
+
+# Watchmen Creator Breaks Silence On Modern Comics Industry
+
+Comics, Watchmen
+
+Sat, 11 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/watchmen-v-for-vendetta-alan-moore-modern-comics-comments/
+
+How much nostalgia is too much nostalgia?
+---------
+
+# Taylor Sheridan’s Vicious Neo-Western Crime Thriller Gets Blocked by Netflix
+
+Movie News, Wind River, Taylor Sheridan, Elizabeth Olsen, Jeremy Renner
+
+Sat, 11 Apr 2026 12:30:12 GMT
+
+https://collider.com/netflix-blocks-wind-river-taylor-sheridan-nasty-neo-western-april-2026/
+
+Netflix is restricting access to Taylor Sheridan's nasty neo-Western starring two Marvel alums, Wind River. Find out more here.
+---------
+
+# 8 Years Later, This Is Still the Most Perfect Sleeper Hit Sci-Fi Movie of All Time
+
+Movie Features, Annihilation, Alex Garland, Natalie Portman, Oscar Isaac
+
+Sat, 11 Apr 2026 12:29:12 GMT
+
+https://collider.com/annihilation-best-cult-classic-sci-fi-movie/
+
+Annihilation, a highly misunderstood sci-fi film, follows a team of female scientists who explore a mysterious alien area.
+---------
+
+# Netflix's 6-Part Thriller Is Not An Easy Binge, but It's Worth Every Minute
+
+TV Features, Unbelievable, Kaitlyn Dever, Merritt Wever, Toni Collette
+
+Sat, 11 Apr 2026 12:17:12 GMT
+
+https://collider.com/unbelievable-kaitlyn-dever-thriller-on-netflix/
+
+Kaitlyn Dever stars in Unbelievable, a brutal miniseries that is an unflinching look at the difficulties of reporting sexual assault.
+---------
+
+# 10 Greatest Movies of the Last 90 Years, Ranked
+
+Movie, The Godfather, The Lord of the Rings, Mulholland Drive, 12 Angry Men
+
+Sat, 11 Apr 2026 12:14:12 GMT
+
+https://collider.com/best-movies-last-90-years-ranked/
+
+Undisputed masterpieces like The Godfather, 12 Angry Men, and Citizen Kane are all among the very best movies released over the last 90 years.
+---------
+
+# Hulu Officially Has This 86% RT Superhero Horror Movie With a 'Game of Thrones' Star
+
+Movie Features, Peter Dinklage, The Toxic Avenger, Troma Entertainment, Superheroes
+
+Sat, 11 Apr 2026 12:14:12 GMT
+
+https://collider.com/the-toxic-avenger-hulu-peter-dinklage/
+
+Peter Dinklage transforms into a grotesque antihero in The Toxic Avenger, a gory 2025 reboot that flips superhero tropes with dark humor and chaos.
+---------
+
+# After 4 Seasons, This CBS Series' Crossover Event Is Its Greatest Achievement Yet
+
+TV Features, Fire Country, Sheriff Country, Max Thieriot, CBS
+
+Sat, 11 Apr 2026 12:03:12 GMT
+
+https://collider.com/fire-country-sheriff-crossover-bode-boone-partnership/
+
+Fire Country reached its gold standard in the two-part crossover event with Sheriff Country, showing the hit series' true potential.
+---------
+
+# 10 Worst Monsters in Movies, Ranked
+
+Movie, The Blob, Sharktopus, A*P*E, Troll 2
+
+Sat, 11 Apr 2026 12:02:12 GMT
+
+https://collider.com/worst-movie-monsters-ranked/
+
+Unintentionally hilarious abominations like the Goblins from Troll 2 and Sharktopus from Sharktopus are among the worst movie monsters ever conceived.
+---------
+
+# Kurt Russell & Wyatt Russell Tease How 'Monarch’s Massive Twist Changes Everything
+
+Exclusives, Monarch: Legacy of Monsters, Kurt Russell, Wyatt Russell, Apple TV
+
+Sat, 11 Apr 2026 12:02:12 GMT
+
+https://collider.com/kurt-russell-wyatt-monarch-legacy-of-monsters-season-2-episode-7-time-travel-meaning/
+
+Kurt and Wyatt Russell discuss their pivotal moment in Season 2, Episode 7, and how this development becomes a key factor to the future of the series.
+---------
+
+# Forget 'Saving Private Ryan,' Tom Hanks' 10/10 WWII Thriller Is a Late-Night Streaming Favorite
+
+Movie News, Greyhound, Tom Hanks, Saving Private Ryan, Das Boot
+
+Sat, 11 Apr 2026 12:00:13 GMT
+
+https://collider.com/tom-hanks-ww2-naval-movie-greyhound-apple-tv-streaming-success-april-2026-how-to-watch/
+
+The best parts of Saving Private Ryan merge with Das Boot in Tom Hanks' near-perfect WW2 submarine thriller taking over the world on Apple TV.
+---------
+
+# 10 Action Movies That Are Flawless From Start to Finish
+
+Movie, Action, Speed, Raiders of the Lost Ark, Hard Boiled
+
+Sat, 11 Apr 2026 11:53:12 GMT
+
+https://collider.com/best-action-movies-flawless/
+
+Great action movies like Speed, Raiders of the Lost Ark, and Hard Boiled are pretty much perfect, and represent the genre at its finest.
+---------
+
+# 'Terminator' Franchise Killer 'Genisys' Rises From the Grave on Streaming
+
+Movie News, Terminator Genisys, Hot on Streaming, Terminator, Sci-Fi
+
+Sat, 11 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/terminator-genisys-sci-fi-action-streaming-mgm-plus-april-2026/
+
+What was once an epic sci-fi cyberpunk action franchise was essentially put to rest in 2015 thanks to 'Terminator Genisys.'
+---------
+
 # 10 Best K-Drama Couples Of The 2020s, Ranked
 
 Classic TV, K-Drama
