@@ -1,3 +1,47 @@
+# Rockstar Hackers Threaten GTA 6 Studio With Major Leak
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Triple-A Games, PC
+
+Sat, 11 Apr 2026 15:38:24 GMT
+
+https://screenrant.com/rockstar-leak-gta-6-security-breach/
+
+Rockstar's troubles with leaks apparently aren't over, as the GTA 6 studio has just received a ransom demand and deadline from a hacker group.
+---------
+
+# Guy Ritchie Is A Month Away From Completing His Unofficial James Bond Trilogy
+
+Movies, In the Grey, James Bond, Guy Ritchie
+
+Sat, 11 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/james-bond-guy-ritchie-unofficial-trilogy-henry-cavill/
+
+Guy Ritchie's next spy movie with Henry Cavill will see the duo complete the unofficial James Bond trilogy they began way back in 2015.
+---------
+
+# Kathryn Newton Stole the Show in Netflix's The Society
+
+TV, The Society, Netflix
+
+Sat, 11 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/netflix-the-society-kathryn-newton-mystery-drama/
+
+Showing an impressive range through her character's arc, Kathryn Newton's performance in The Society paved the way for her future career trajectory.
+---------
+
+# The X-Files Reboot Gets Update as David Duchovny Addresses Return Talks
+
+TV, The X-Files
+
+Sat, 11 Apr 2026 15:29:10 GMT
+
+https://www.cbr.com/the-x-files-reboot-david-duchovny-return-talks/
+
+After the new reboot found his new Fox Mulder, David Duchovny addressed his potential return.
+---------
+
 # Super Mario Galaxy Hits Box Office Milestone That Multiple Harry Potter Movies Couldn't, In Under 2 Weeks
 
 Movies, Box Office Milestone, The Super Mario Galaxy Movie, Super Mario Bros.
