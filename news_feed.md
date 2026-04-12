@@ -1,3 +1,190 @@
+# Netflix’s Philip K. Dick Adaptation: Perfect Followup To Denis Villeneuve’s Arrival
+
+Streaming TV, Denis Villeneuve, Arrival, Netflix, Sci-Fi
+
+Sun, 12 Apr 2026 23:16:19 GMT
+
+https://screenrant.com/philip-k-dick-netflix-denis-villeneuve-arrival/
+
+Netflix is adapting a Philip K. Dick book, and a closer look at makes it hard not to believe that it’ll be the perfect followup to an epic sci-fi film
+---------
+
+# 2026's Biggest Actor Box Office Competition Is Officially Now Underway
+
+Movies, The Drama
+
+Sun, 12 Apr 2026 23:16:19 GMT
+
+https://screenrant.com/2026-box-office-actor-competition-zendaya-the-drama/
+
+A few actors could take the 2026 box office crown, and one contender is off to a great start with an A24 film that had a strong opening weekend.
+---------
+
+# Netflix’s 7-Part Crime Thriller Is One Of Its Best For An Easy One-Night Binge
+
+Streaming TV, Masked Recs
+
+Sun, 12 Apr 2026 23:12:19 GMT
+
+https://screenrant.com/netflix-bodkin-thriller-series-watch/
+
+Netflix's hidden gem, Bodkin, is a 7-part crime thriller that seamlessly blends comedy and suspense – one of its best for a quick one-night binge.
+---------
+
+# From: The Best Horror Series  Of The Decade Returns For Season 4 On MGM+
+
+TV, From
+
+Sun, 12 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/from-best-horror-show-decade-season-4-april-19/
+
+The 2020s have been a great decade for horror TV shows so far, and the very best of them is returning a few days from now with a new season.
+---------
+
+# 6 Ways Spider-Man: Brand New Day Can Redeem The MCU's Hulk Story
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 12 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/hulk-mcu-spiderman-brand-new-day-movie-story-redeem/
+
+If the Hulk does indeed return in Spider-Man: Brand New Day, there are multiple ways the MCU can finally do him justice again.
+---------
+
+# 20 Years Later, Batman Is Reviving an Era Fans Thought Was Gone for Good
+
+Comics, Batman, DC, DC Comics
+
+Sun, 12 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/absolute-batman-return-superstar-artist-era/
+
+In a surprising twist, the Batman franchise is bringing back a beloved comics era, and it is all thanks to the Absolute Batman comic series.
+---------
+
+# 10 Smartest Female Leads Who Don't Need a Man
+
+Anime, The Apothecary Diaries, Frieren: Beyond Journey's End
+
+Sun, 12 Apr 2026 23:15:13 GMT
+
+https://www.cbr.com/smartest-female-anime-characters-dont-need-a-man/
+
+These brilliant women have the specific qualities needed to survive and succeed in dangerous anime worlds without the help of any man.
+---------
+
+# The Neighborhood Is a Hit Paramount+ 1 Month Before Series Finale
+
+TV, The Neighborhood, Sitcoms, Paramount
+
+Sun, 12 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/the-neighborhood-sitcom-streaming-success-finale-paramount-april-2026/
+
+A New Girl star's fan-favorite sitcom is about to come to an end after eight seasons, but not before dominating the streaming charts.
+---------
+
+# 10 80's Masterpieces That Are Still Underrated Today
+
+Movies, Drama, Casualties of War, Action
+
+Sun, 12 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/10-best-80s-movie-masterpieces-underrated-today-list/
+
+The 1980s were packed with iconic blockbusters and beloved indie flicks, but these ten '80s masterpieces still feel underrated by audiences today.
+---------
+
+# Dark Superhero TV Shows That Aren’t for Kids
+
+TV, superheroes, The Boys, Invincible, Daredevil
+
+Sun, 12 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/superhero-tv-shows-too-dark-for-kids-list/
+
+These dark superhero TV shows push the genre to its most twisted limits, with graphic violence and adult themes that make them unsuitable for kids.
+---------
+
+# The Neverending Story Trilogy Is Better Than The Lord of the Rings
+
+Movies, The Neverending Story
+
+Sun, 12 Apr 2026 22:45:12 GMT
+
+https://www.cbr.com/the-neverending-story-is-better-than-lotr/
+
+Fantasy movies of the 1980s are far superior to anything today, even The Lord of the Rings.
+---------
+
+# Apple TV’s Stellar 8-Part Drama Series Is Quietly Becoming Streaming’s Perfect Weekend Binge
+
+TV Features, Lessons In Chemistry, Brie Larson, Lewis Pullman, Apple TV
+
+Sun, 12 Apr 2026 23:27:13 GMT
+
+https://collider.com/lessons-in-chemistry-brie-larson-apple-tv-drama-weekend-binge/
+
+Brie Larson delivers a captivating performance opposite Lewis Pullman in Apple TV's character-driven drama Lessons in Chemistry.
+---------
+
+# Christopher Nolan's $750M Sci-Fi Hit Officially Surges on Streaming After Making 4x Its Budget
+
+Movie News, Interstellar, Christopher Nolan, Project Hail Mary, Matthew McConaughey
+
+Sun, 12 Apr 2026 23:15:13 GMT
+
+https://collider.com/christopher-nolan-sci-fi-epic-interstellar-streaming-success-paramount-plus-peacock-april-2026/
+
+The $750 million epic that changed the way the world views sci-fi movies is still a late-night streaming favorite 12 years later.
+---------
+
+# 5 Years Later, This 90-Minute Forgotten Horror Reboot Surges on Streaming
+
+Movie News, Wrong Turn, Prime Video, Horror, Drama
+
+Sun, 12 Apr 2026 23:00:13 GMT
+
+https://collider.com/survival-horror-movie-wrong-turn-reboot-2021-prime-video-streaming-success-april-2026/
+
+Wrong Turn 7, the latest and highest-rated installment in the horror franchise, has become a sleeper hit on Prime Video, attracting a global audience.
+---------
+
+# This Forgotten 12-Part Sci-Fi Show Was ABC’s Wildest ‘Tron’ Knockoff
+
+TV Features, Tron, ABC, Automan, Knight Rider
+
+Sun, 12 Apr 2026 22:49:12 GMT
+
+https://collider.com/this-forgotten-12-part-sci-fi-show-was-abcs-wildest-tron-knockoff/
+
+Following the debut of Tron, ABC attempted to emulate the cult sci-fi film's visuals with the short-lived Automan.
+---------
+
+# 1 Year Later, Ana de Armas’ 125-Minute Action Thriller Is Dominating Streaming
+
+Movie News, From the World of John Wick: Ballerina, John Wick, Action, Ana De Armas
+
+Sun, 12 Apr 2026 22:45:13 GMT
+
+https://collider.com/ana-de-armas-from-the-world-of-john-wick-ballerina-streaming-success-hbo-max-april-2026/
+
+A big-budget action spin-off stumbled in theaters but explodes on streaming, proving audiences are finally showing up where it counts.
+---------
+
+# 10 Hard Sci-Fi Movies Better Than 'Project Hail Mary'
+
+Movie Lists, Project Hail Mary
+
+Sun, 12 Apr 2026 23:01:18 GMT
+
+https://movieweb.com/hard-sci-fi-movies-better-project-hail-mary/
+
+Think 'Project Hail Mary' is peak sci-fi? Hollywood has been making masterpieces for decades, and these are still the best of the best.
+---------
+
 # Netflix's The Body: A Queer-Inspired Spiritual Successor to Jennifer's Body
 
 Streaming TV, Netflix, Jennifer's Body
