@@ -1,3 +1,190 @@
+# 10 Sci-Fi Movies That Are Amazing From Start to Finish
+
+Movies, Sci-Fi, Recommendation
+
+Sun, 12 Apr 2026 21:15:20 GMT
+
+https://screenrant.com/sci-fi-movies-amazing-start-to-finish/
+
+These classic sci-fi movies had a profound impact on the genre, and it's tough to think of a single way any one of them could be improved.
+---------
+
+# Hogwarts Legacy 2 - Everything We Know So Far
+
+Gaming, Hogwarts Legacy
+
+Sun, 12 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-2-setting-details-gameplay/
+
+Discover the latest updates on Hogwarts Legacy 2, including potential release dates, gameplay features, and its connection to the upcoming HBO series.
+---------
+
+# Disney's 9-Part Fantasy Sitcom Has One Of TV's Best-Ever Lines
+
+Classic TV, WandaVision
+
+Sun, 12 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/wandavision-disney-best-quote-grief-love/
+
+WandaVision's beautiful line about grief being "love persevering" is bound to go down in TV history as one of television's most iconic quotes.
+---------
+
+# 9 Documentaries That Aged Poorly
+
+Movies, Documentary, Super Size Me, Nanook Of The North, White Wilderness, What the Health, Ancient Apocalypse, Man vs. Wild, Mermaids: The Body Found, bowling for columbine
+
+Sun, 12 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/documentaries-aged-poorly/
+
+These documentaries once felt groundbreaking, but later revelations exposed misleading claims, staged moments, or outright inaccuracies behind them.
+---------
+
+# Ancillary Justice: The Unfilmable Sci-Fi Novel Still Not Adapted, Despite A 2010s Attempt
+
+Classic TV
+
+Sun, 12 Apr 2026 20:45:20 GMT
+
+https://screenrant.com/ancillary-justice-sci-fi-novel-no-adaptation/
+
+Ancillary Justice is one of the best and most ambitious sci-fi novels. However, like many sci-fi stories, it will be difficult to adapt for the screen
+---------
+
+# 10 Best Documentaries On HBO Max, Ranked (#1 Is Life-Changing)
+
+Movies, Documentary, HBO Max
+
+Sun, 12 Apr 2026 20:45:20 GMT
+
+https://screenrant.com/hbo-max-documentaries-best-ranked/
+
+HBO Max's greatest documentaries prove the streaming service is becoming the go-to home for movie fanatics.
+---------
+
+# The Super Mario Galaxy Movie Is Already the No. 1 of 2026 at the Box Office
+
+Movies, The Super Mario Galaxy Movie
+
+Sun, 12 Apr 2026 21:19:37 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-movie-box-office-highest-grossing-2026/
+
+The A Minecraft Movie phenomenon is happening again.
+---------
+
+# Crunchyroll’s New Fantasy Anime Is the Seinen Genre’s Answer to Frieren
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End, Crunchyroll Premium
+
+Sun, 12 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-crunchyroll-new-fantasy-seinen-anime-frieren/
+
+Witch Hat Atelier, Crunchyroll's spring 2026 magical fantasy anime, is the seinen series that can give Frieren a run for its money.
+---------
+
+# Charlie's Angels Becomes an Instant PVOD Hit After Surprise Reunion
+
+TV, Charlie's Angels
+
+Sun, 12 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/charlies-angels-pvod-success-april-2026-50th-anniversary-reunion/
+
+One of the most beloved action series of an entire generation is taking over the premium video-on-demand charts following a surprise reunion.
+---------
+
+# After 23 Years, Apple May Finally Be Ready to Revive the Fantasy Genre
+
+Movies, Fantasy, Apple TV, Mistborn
+
+Sun, 12 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/apple-tv-cosmere-mistborn-adaptation-revive-riskiest-genre-fantasy/
+
+Apple TV's upcoming Mistborn adaptation can breathe new life into a genre that has struggled on the big screen for the past two decades.
+---------
+
+# Ryan Gosling's Sci-Fi Project Hail Mary Crosses Major Box Office Milestone
+
+Movies, Project Hail Mary
+
+Sun, 12 Apr 2026 20:35:09 GMT
+
+https://www.cbr.com/ryan-gosling-project-hail-mary-box-office-milestone-500-million/
+
+The sci-fi film has been a tremendous success since its release.
+---------
+
+# 8 Best Zombie Movies of the 1980s, Ranked
+
+Movie, Day of the Dead, Re-Animator, Return of the Living Dead, Night of the Comet
+
+Sun, 12 Apr 2026 21:23:14 GMT
+
+https://collider.com/best-zombie-movies-1980s-ranked/
+
+The 1980s was a solid decade for the zombie genre, thanks to classics like Day of the Dead, Re-Animator, and The Return of the Living Dead.
+---------
+
+# Maggie Gyllenhaal’s Sci-Fi Horror Film Is One of Streaming’s Biggest Hits
+
+Movie News, The Bride!, Christian Bale, Jessie Buckley, Maggie Gyllenhaal
+
+Sun, 12 Apr 2026 21:15:12 GMT
+
+https://collider.com/the-bride-christian-bale-sci-fi-thriller-streaming-debut-april-2026/
+
+Maggie Gyllenhaal's box-office bomb The Bride! has embarked on a redemption quest on the PVOD market. Find out more below.
+---------
+
+# 18 Years Later, Billy Bob Thornton’s 118-Minute Sci-Fi Thriller Hits Free Streaming
+
+Movie News, Eagle Eye, Shia LaBeouf, Billy Bob Thornton, Landman
+
+Sun, 12 Apr 2026 21:00:13 GMT
+
+https://collider.com/billy-bob-thornton-sci-fi-thriller-eagle-eye-streaming-free-tubi-may-2026/
+
+Billy Bob Thornton stars alongside a packed ensemble in this twisted technological thriller headed to a free streamer. Read on for more.
+---------
+
+# 10 Heaviest Movies of the Last 5 Years, Ranked
+
+Movie, All Quiet on the Western Front, The Zone of Interest, Blonde, Oppenheimer
+
+Sun, 12 Apr 2026 20:56:13 GMT
+
+https://collider.com/heaviest-movies-last-5-years-ranked/
+
+In the last five years, there have been some incredibly heavy-going movies released, including Vortex, Oppenheimer, and Killers of the Flower Moon.
+---------
+
+# 10 Greatest Thrillers Released Since 'Memento'
+
+Movie, Memento, Thriller, Christopher Nolan, Mulholland Drive
+
+Sun, 12 Apr 2026 20:47:13 GMT
+
+https://collider.com/best-thrillers-released-since-memento/
+
+Christopher Nolan's Memento is regarded as a landmark thriller, and subsequent films like Parasite, Mulholland Dr., and Oldboy match its greatness.
+---------
+
+# Christopher Nolan Owes His Career-Defining Time Aesthetic To His Brother
+
+Features, Christopher Nolan, Memento, Jonathan Nolan, Career Arc Reframe
+
+Sun, 12 Apr 2026 21:00:19 GMT
+
+https://movieweb.com/christopher-jonathan-nolan-career-trend-time-memento/
+
+Nolan's foundational movie 'Memento' was based on a short story written by his brother, and it established a thematic trend for Nolan's career.
+---------
+
 # Bosch: Prime Video's Detective Series Blending Sherlock And Reacher Elements
 
 Classic TV, Bosch
