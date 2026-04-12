@@ -1,3 +1,256 @@
+# Bosch: Prime Video's Detective Series Blending Sherlock And Reacher Elements
+
+Classic TV, Bosch
+
+Sun, 12 Apr 2026 20:32:19 GMT
+
+https://screenrant.com/bosch-prime-video-sherlock-meets-reacher/
+
+There aren't many TV shows that can claim to have almost single-handedly redefined streaming, but this 7-season masterpiece is certainly one of them.
+---------
+
+# 15 Most Powerful Dragons In D&D, Ranked
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons
+
+Sun, 12 Apr 2026 20:31:20 GMT
+
+https://screenrant.com/dungeons-dragons-most-powerful-ranked/
+
+Dragons reign supreme in the world of Dungeons & Dragons. However, only a select few can claim to be the strongest.
+---------
+
+# GTA 6 Fans Fiercely Debate Protagonist Details Given New Info
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Sun, 12 Apr 2026 20:31:18 GMT
+
+https://screenrant.com/gta-6-protagonist-details-clothing-fan-theory/
+
+Ever Since Grand Theft Auto 6 was announced, fans have been speculating over just about ever detail you can imagine, especially over its protagonists.
+---------
+
+# The Two Biggest Sci-Fi Franchises On TV Face The Same Existential Crisis
+
+Classic TV, Sci-Fi
+
+Sun, 12 Apr 2026 20:31:18 GMT
+
+https://screenrant.com/star-trek-doctor-who-sci-fi-franchise-same-crisis/
+
+They're the two biggest science fiction franchises in TV history, but both are currently faced with exactly the same existential crisis.
+---------
+
+# Before The White Lotus, HBO's Controversial Thriller Series Was Its Best Anthology
+
+Streaming TV, True Detective
+
+Sun, 12 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/true-detective-hbo-best-anthology-before-white-lotus/
+
+Anthology shows have gained a lot of traction in recent years with compelling dramas and thrillers, but some anthology shows have struggled.
+---------
+
+# Prime Video's The Boys Officially Ignores Queen Maeve's Son
+
+Streaming TV, The Boys
+
+Sun, 12 Apr 2026 20:00:20 GMT
+
+https://screenrant.com/the-boys-tv-show-queen-maeve-son-avoid/
+
+The Boys season 5 has a lot of storylines to cover for the show’s conclusion, but one that has been left absent involves the son of Queen Maeve.
+---------
+
+# The 10 Best Marvel Comics To Read Right Now, Ranked
+
+Comics, Marvel
+
+Sun, 12 Apr 2026 20:00:20 GMT
+
+https://screenrant.com/best-marvel-comics-april-2026-ranked/
+
+Ranking the best Marvel books right now.
+---------
+
+# Heated Rivalry Star Robbie G.K. Opens Up About Scott and Kip's Future in Season 2
+
+TV, Heated Rivalry
+
+Sun, 12 Apr 2026 19:58:43 GMT
+
+https://screenrant.com/heated-rivalry-season-2-robbie-gk-scott-and-kips-future/
+
+One of Heated Rivalry's favorite ships could be getting more of the spotlight, as star Robbie G.K. reveals his hopes for season 2 for his character.
+---------
+
+# Bryan Cranston's Highly-Anticipated Comedy Revival Becomes American Streaming Sensation 20 Years After Original Series Ended
+
+TV, Masked Recs
+
+Sun, 12 Apr 2026 19:58:07 GMT
+
+https://screenrant.com/malcolm-in-the-middle-life-still-unfair-disney-plus-hulu-streaming-success-april-2026/
+
+Bryan Cranston is back in a role for a show that ended 20 years ago, and now the revival is proving to be an American streaming sensation.
+---------
+
+# Bill Skarsgard's Nosferatu Finally Debuts on Peacock This Month
+
+Movies, Nosferatu
+
+Sun, 12 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/nosferatu-peacock-streaming-premiere-date/
+
+The acclaimed horror remake has officially gotten a new streaming home.
+---------
+
+# The MCU Changes Spider-Man's Origin With an Old Sci-Fi Trope, But Is It For the Best?
+
+TV, MCU, Your Friendly Neighborhood Spider-Man, Spider-Man, Animation
+
+Sun, 12 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/your-friendly-neighborhood-spiderman-mcu-origin-bootstrap-paradox-trope/
+
+The first season of Your Friendly Neighborhood Spider-Man concluded with a story that gave Spidey's origin an unexpected sci-fi spin.
+---------
+
+# Shonen Anime Is Doomed Unless It Can Fix This Fatal Flaw
+
+Anime, Chainsaw Man, Jujutsu Kaisen, My Hero Academia, Shonen Jump
+
+Sun, 12 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/shonen-anime-bad-endings-chainsaw-man-jjk/
+
+Shonen anime is one of the most exciting genres thanks to its high-paced action and endless drama, yet one fatal flaw continues to plague it.
+---------
+
+# Steam Machine Price Officially Sparks Backlash After 2026 Launch Delays
+
+Games, Steam
+
+Sun, 12 Apr 2026 20:10:12 GMT
+
+https://www.cbr.com/steam-machine-price-officially-sparks-backlash-2026-launch-delay/
+
+While gamers are currently excited about the Steam Machine, they may be less hyped once they learn about its price.
+---------
+
+# Ben Affleck’s Pearl Harbor Hits Free Streaming on Tubi Next Month
+
+Movies, Pearl Harbor, Ben Affleck, Tubi
+
+Sun, 12 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/ben-affleck-pearl-harbor-world-war-ii-epic-streaming-tubi-may-2026/
+
+One of the most infamous and controversial World War II movies is streaming for free, beginning in May.
+---------
+
+# 10 Greatest Action Movies of the Past 50 Years
+
+Movies, Action, Kill Bill, The Matrix
+
+Sun, 12 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/10-greatest-action-movies-past-50-years-list/
+
+The action genre has given the film world some truly unforgettable masterpieces, and these ten movies stand as the best of the last five decades.
+---------
+
+# Dragon Ball Z Brings Back Goku, Gohan and Goten for a Family Kamehameha
+
+Anime, Dragon Ball, merchandise, Dragon Ball Z
+
+Sun, 12 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/dbz-goku-gohan-goten-kamehamehabanpresto-blood-of-saiyans/
+
+Dragon Ball Z fans get the chance to take home one of the biggest Kamehamehas of all time with a brand-new trio.
+---------
+
+# ‘Goodfellas’ Meets ‘The Departed’ in the Kevin Costner Crime Classic Coming to Free Streaming
+
+Movie News, Kevin Costner, The Untouchables, Brian De Palma, Yellowstone
+
+Sun, 12 Apr 2026 20:30:12 GMT
+
+https://collider.com/kevin-costner-crime-thriller-the-untouchables-streaming-free-tubi-may-2026-goodfellas-the-departed/
+
+Kevin Costner's period gangster drama The Untouchables, costarring Robert De Niro, will soon land on a free streamer. Find out more here.
+---------
+
+# 10 Great Thrillers That Marked the End of an Era
+
+Movie, Thriller, Touch of Evil, Chinatown, Basic Insect
+
+Sun, 12 Apr 2026 20:11:12 GMT
+
+https://collider.com/great-thriller-movies-end-of-an-era/
+
+From '80s classics like Body Heat to modern blockbusters like No Time to Die, these thrillers represent a clear ending to a distinct cinematic period.
+---------
+
+# This Sci-Fi Horror Masterpiece's 10/10 Ending Is Still Perfection 51 Years Later
+
+Horror, The Stepford Wives, Invasion of the Body Snatchers, Rosemary's Baby, Don't Look Now
+
+Sun, 12 Apr 2026 20:11:12 GMT
+
+https://collider.com/the-stepford-wives-ending-sci-fi-horror-masterpiece/
+
+In The Stepford Wives, a woman in an idyllic suburb uncovers a chilling conspiracy that leads to one of horror’s most disturbing, quiet endings.
+---------
+
+# 10 Greatest Vietnam War Movie Masterpieces, Ranked
+
+Movie, War, Apocalypse Now, Platoon, Full Metal Jacket
+
+Sun, 12 Apr 2026 20:03:12 GMT
+
+https://collider.com/best-vietnam-war-movie-masterpieces-ranked/
+
+The Vietnam War led to many of cinema's all-time greatest war masterpiece movies, including the harrowing The Deer Hunter and the epic Apocalypse Now.
+---------
+
+# Ridley Scott's 122-Minute Sci-Fi Horror Sequel Is a Streaming Smash Hit
+
+Movie News, Alien, Alien: Covenant, HBO Max, Sci-Fi
+
+Sun, 12 Apr 2026 20:00:13 GMT
+
+https://collider.com/ridley-scott-sci-fi-horror-alien-covenant-streaming-success-hbo-max-april-2026/
+
+Right now on HBO Max, the most underrated movie in the Alien franchise, Covenant, is a streaming success. Find out more here.
+---------
+
+# 'Mario Galaxy' and 'Project Hail Mary' Continue Box Office Dominance
+
+Movie News, The Super Mario Galaxy Movie, Project Hail Mary, You, Me & Tuscany
+
+Sun, 12 Apr 2026 20:04:07 GMT
+
+https://movieweb.com/mario-galaxy-project-hail-mary-boxoffice-dominance/
+
+Meanwhile, the new romcom 'You, Me & Tuscany' made a mild splash.
+---------
+
+# Upcoming Spinoff 'Dutton Ranch' Is Essentially a Sixth Season of 'Yellowstone'
+
+Features, Dutton Ranch, Yellowstone
+
+Sun, 12 Apr 2026 20:01:17 GMT
+
+https://movieweb.com/yellowstone-season-six-return-spinoff-dutton-ranch-taylor-sheridan/
+
+'Dutton Ranch' focuses on Beth Dutton and Rip Wheeler's life in Texas after the events of 'Yellowstone', and feels like a true continuation.
+---------
+
 # HBO's Binge-Worthy Series: The Last of Us
 
 Streaming TV, Masked Recs
