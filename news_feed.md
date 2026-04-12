@@ -1,3 +1,256 @@
+# The Last Of Us Part 2 Free Download Hailed By Fans As Welcome Surprise
+
+Gaming, The Last of Us Part 2
+
+Sun, 12 Apr 2026 04:30:19 GMT
+
+https://screenrant.com/last-of-us-part-2-free-download-april-2026/
+
+The Last of Us Part II Remastered's arrival on PlayStation Plus has fans raving about the opportunity to experience the beloved post-apocalyptic saga.
+---------
+
+# HBO Max's Hit Superman Series Is "Coming Out" For Season 3 Ahead Of James Gunn's Own Man Of Steel Sequel
+
+Superheroes, My Adventures With Superman, DC Universe
+
+Sun, 12 Apr 2026 04:10:32 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-release-window-jack-quaid/
+
+My Adventures with Superman star Jack Quaid confirms season 3 is in post-production, hinting at a release date sometime in late 2026 or early 2027.
+---------
+
+# Red Dead Redemption 2 Free Download Yours To Claim For 24 Hours
+
+Gaming, Red Dead Redemption 2
+
+Sun, 12 Apr 2026 04:00:26 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-yours-to-claim-for-24-hours/
+
+Red Dead Online is back with a new event offering 3x RDO$, Gold, and XP. Plus, limited-time clothing and free downloads available for players.
+---------
+
+# One-Punch Man's Third Strongest Hero Just Committed An Unforgiveable Sin
+
+Anime, One-Punch Man
+
+Sun, 12 Apr 2026 03:58:24 GMT
+
+https://screenrant.com/one-punch-man-tatsumaki-level-city-sin/
+
+A key S-Class hero just crossed a particularly destructive line in the latest chapter of One-Punch Man.
+---------
+
+# 10 Best Anime To Watch If You Still Miss Solo Leveling
+
+Anime
+
+Sun, 12 Apr 2026 03:50:31 GMT
+
+https://screenrant.com/best-anime-like-solo-leveling-watch/
+
+Many fans are still looking for another series to fill the void left by Solo Leveling. Luckily, these anime with similar concepts can delight fans.
+---------
+
+# Ridley Scott's Raised By Wolves Marked The End Of An Era
+
+Classic TV, Ridley Scott, Raised by Wolves
+
+Sun, 12 Apr 2026 03:49:09 GMT
+
+https://screenrant.com/ridley-scott-raised-by-wolves-directing-tv-episodes/
+
+Ridley Scott’s acclaimed 18-episode series, which unfortunately was cancelled after two seasons, seemingly marked the end of an era for television.
+---------
+
+# Crunchyroll Just Aired 2026's Best Anime Episode, No Question
+
+Anime, Witch Hat Atelier
+
+Sun, 12 Apr 2026 03:37:21 GMT
+
+https://screenrant.com/witch-hat-atelier-best-anime-episode-2026-crunchyroll/
+
+Witch Hat Atelier's debut showcases stunning animation, characters, and a strong storyline, positioning it as one of 2026's best new anime.
+---------
+
+# The Boys Season 5 Is Already Better Than Season 4 After 2 Episodes
+
+Streaming TV, The Boys
+
+Sun, 12 Apr 2026 03:30:20 GMT
+
+https://screenrant.com/the-boys-season-5-better-season-4/
+
+Only two episodes of The Boys season 5 have premiered so far, but from the looks of it, the final instalment already seems better than its predecessor
+---------
+
+# Assassin's Creed Black Flag Official Sequel Is "Peak", Gamers Agree
+
+Gaming, Assassin's Creed 4: Black Flag, Triple-A Games, PC
+
+Sun, 12 Apr 2026 03:01:19 GMT
+
+https://screenrant.com/assassins-creed-black-flag-sequel-forgotten-temple/
+
+While we're still waiting for the release of Black Flag's remaster, fans are just discovering Black Flag's acclaimed sequel they never knew existed.
+---------
+
+# 3 Years Later, Netflix's Addictive 2-Season Action Fantasy Thriller Is Still a 10/10 Rewatch
+
+Anime, Netflix, The Uncanny Counter, K-Drama
+
+Sun, 12 Apr 2026 02:50:18 GMT
+
+https://screenrant.com/uncanny-counter-netflix-action-fantasy-addictive/
+
+Adapting a killer manhwa with a strong blend of found-family warmth and thrilling action, this Netflix series is still a strong recommendation.
+---------
+
+# 'We're in a High-Stakes World': Alexis Tipton & David Matranga Reflect on Trigun Stargaze's Finale
+
+Anime, Trigun Stampede, Trigun, interview
+
+Sun, 12 Apr 2026 04:13:47 GMT
+
+https://www.cbr.com/trigun-stargaze-alex-tipton-david-matranga-interview/
+
+In an exclusive CBR interview, David Matranga and Alexis Tipton reflect on their role in Trigun Stargaze.
+---------
+
+# Berserk’s Hiatus Is The Dark Fantasy Genre’s Biggest Tragedy
+
+Anime, Berserk
+
+Sun, 12 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/berserk-hiatus-irreplaceable-dark-fantasy-manga/
+
+After the devastating loss of its creator and several long hiatuses, this epic dark fantasy serves as the biggest tragedy in manga and anime.
+---------
+
+# 9 Classic Sci-Fi TV Shows That Are Unwatchable Today
+
+TV, Sci-Fi, Stargate SG-1, Doctor Who, Lost in Space
+
+Sun, 12 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/sci-fi-classic-tv-shows-unwatchable-today-list/
+
+Classic sci-fi shows define the genre today, but that doesn't mean all of them hold up in a modern setting.
+---------
+
+# The 14 Best New Romance Anime
+
+Anime, Shojo, Romance
+
+Sun, 12 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/new-romance-anime/
+
+Each new anime season brings fresh new offerings to romance anime fans, and many of the most recent debuts are already unforgettable.
+---------
+
+# Dungeons & Dragons: Best Lich Builds
+
+Games, Dungeons and Dragons
+
+Sun, 12 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/dnd-best-lich-builds/
+
+Dungeons & Dragons 5e has introduced rules for playing a lich, and there are a few key builds that can make them extremely powerful in battle.
+---------
+
+# Dr. Stone Artist Boichi Warns Too Much Shonen Jump Would Be a 'Disaster' for Manga
+
+Anime, weekly shonen jump, Shonen Jump, Dr. Stone
+
+Sun, 12 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/dr-stone-boichi-too-much-shonen-jump-disaster/
+
+An official Shonen Jump artist warns that the desire for other creators artists to 'make it' to the publication will harm the medium in the long run.
+---------
+
+# 10 Work Anime Perfect For People Who Hate Their 9-to-5 Jobs
+
+Anime
+
+Sun, 12 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/best-slice-of-life-work-anime/
+
+While some anime propose that passion alone can make work enjoyable, others show how a person should find fulfillment outside of work.
+---------
+
+# The Hobbit's Most Divisive Storyline Was Almost Totally Different
+
+Movies, The Hobbit, The Lord of the Rings
+
+Sun, 12 Apr 2026 02:40:12 GMT
+
+https://www.cbr.com/hobbit-divisive-tauriel-kili-romance-storyline-almost-very-different/
+
+The controversial romance between Kíli and Tauriel was missing from early drafts of The Hobbit films, but the director was wise to change it.
+---------
+
+# Crunchyroll’s New Dark Fantasy Series Just Delivered The Best Action Shonen Debut of All Time
+
+Anime, Daemons of the Shadow Realm, Fullmetal Alchemist, Fullmetal Alchemist Brotherhood
+
+Sun, 12 Apr 2026 02:25:29 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-episode-1-perfect-premiere/
+
+2026 has some of the best returning shonen series, but the debut of another action shonen is turning heads and quickly becoming a fan favorite.
+---------
+
+# 10 Starter Pokémon That Were Picked Last
+
+Games, Pokemon, Nintendo
+
+Sun, 12 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/pokemon-starters-picked-last-list/
+
+The best starter Pokémon have tons of fans, but others, like Chikorita, wound up getting picked last.
+---------
+
+# 10 Most Essential 'Breaking Bad' Episodes, Ranked
+
+Movie, Breaking Bad, AMC, Aaron Paul, Bryan Cranston
+
+Sun, 12 Apr 2026 03:49:13 GMT
+
+https://collider.com/breaking-bad-episodes-essential-ranked/
+
+"Pilot," "Phoenix," and "Felina" all rank among the most important and essential episodes of Breaking Bad.
+---------
+
+# 'Daredevil: Born Again' Quietly Hints Matt Murdock Will Never Join The Avengers
+
+TV Features, Daredevil: Born Again, Avengers: Doomsday, Charlie Cox, Disney+
+
+Sun, 12 Apr 2026 03:07:13 GMT
+
+https://collider.com/daredevil-born-again-matt-murdock-avengers-tony-stark-replacement/
+
+While Charlie Cox has hinted that he'd like to see Daredevil team up with the Avengers, Daredevil: Born Again may have shut that door.
+---------
+
+# 'Stranger Things' Star Dacre Montgomery Just Gave Us a New Elite Horror Villain
+
+Features, Faces of Death, Dacre Montgomery
+
+Sun, 12 Apr 2026 02:46:17 GMT
+
+https://movieweb.com/dacre-montgomery-stranger-things-performance-faces-of-death-2026-horror/
+
+Former 'Stranger Things' star Dacre Montgomery's serial killer from 'Faces of Death' may very well be the scariest element of the entire movie.
+---------
+
 # Netflix's Upcoming Crime Thriller Legends Is The Streamer's Answer To Slow Horses
 
 Streaming TV, Slow Horses, Legends, Netflix, Apple TV
