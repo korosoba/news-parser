@@ -1,3 +1,289 @@
+# After 76 Years, One Lost Piece of Batman Lore Finally Returns
+
+DC Comics, Batman
+
+Sun, 12 Apr 2026 13:01:18 GMT
+
+https://screenrant.com/batman-bat-face-batmobile-officially-returns-harley-quinn-new/
+
+After 80 years, a previously retired piece of Batman lore is officially returning to canon, and surprisingly enough, it is all thanks to...
+---------
+
+# 20 Years Later, The Horror Franchise That Inspired Scream Is Overdue For A Reboot
+
+Movies, When a Stranger Calls, Scream
+
+Sun, 12 Apr 2026 13:01:18 GMT
+
+https://screenrant.com/when-a-stranger-calls-slasher-reboot-scream-inspiration/
+
+Despite its iconic opening scene and influential premise, the franchise that inspired the Scream series has not yet produced a great horror movie.
+---------
+
+# Fallout Getting Official New Release On April 24
+
+Gaming, Fallout, Fallout 5, Fallout 4, PC
+
+Sun, 12 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/fallout-vault-loot-collection-april-24/
+
+Fallout fans have an exciting upcoming release slated to drop this month on April 24 with "hidden secrets" from across the Fallout universe.
+---------
+
+# Upcoming Horror Movies 2026: Must-Watch Releases
+
+Movies, Lee Cronin's The Mummy, Evil Dead Burn, Return of the Living Dead, Ice Cream Man, Backrooms, Terrifier 4, Hokum, Faces of Death
+
+Sun, 12 Apr 2026 12:55:18 GMT
+
+https://screenrant.com/horror-movies-upcoming-you-cannot-miss/
+
+2026 is shaping up to be a remarkable year for horror fans with a great selection of new and returning IPs still to look forward to.
+---------
+
+# Why The Internet Wants A Lou Reed "Perfect Day" Explanation
+
+Music, Classic Rock, Rock
+
+Sun, 12 Apr 2026 12:42:59 GMT
+
+https://screenrant.com/lou-reed-perfect-day-meaning-explanation-internet-debate/
+
+Why is Lou Reed’s “Perfect Day” trending? We deconstruct the dark truth, the Trainspotting legacy, and why the internet is demanding an explanation.
+---------
+
+# For All Mankind: Explaining Karen & Gordo's Surprise Cameos In Ed's Death Scene
+
+TV, For All Mankind
+
+Sun, 12 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/for-all-mankind-karen-gordo-ed-death-cameos/
+
+Time's up for one of For All Mankind's greatest O.G. characters, and their exit is joined by two beloved familiar faces from past seasons.
+---------
+
+# Why Disney Is So Hesitant To Follow Up The Highest-Grossing Trilogy Of All Time
+
+Movies, Avatar 4, Avatar
+
+Sun, 12 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/avatar-highest-grossing-trilogy-disney-hesitant-new-sequels/
+
+James Cameron’s Avatar movies are among the highest-grossing films of all time, but development on the next chapter has been surprisingly quiet.
+---------
+
+# 10 Most Important PS1 Games Of All Time
+
+Gaming, PlayStation (Original), Triple-A Games
+
+Sun, 12 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/most-important-playstation-games-all-time/
+
+The original PlayStation played a pivotal role in gaming history, and some of its best games helped redefine the landscape for decades to come.
+---------
+
+# 52 Years Later, the Key To Understanding Marvel Is Still Captain America's Worst Costume Ever
+
+Comics, Marvel, Captain America
+
+Sun, 12 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/captain-america-nomad-70s-failed-character-change-marvel-comics/
+
+Captain America's "worst" costume, explained.
+---------
+
+# CBS Future-Proofs NCIS For Timothy McGee's MCRT Exit
+
+Network TV, NCIS
+
+Sun, 12 Apr 2026 12:05:17 GMT
+
+https://screenrant.com/ncis-timothy-mcgee-exit-curtis-replacement-future-proof/
+
+Timothy McGee's departure from MCRT is inevitable at this point, and CBS is making sure that NCIS is all ready when that finally happens.
+---------
+
+# 1 Month Later, Tom Cruise's $4.7B Action Franchise Is Already Leaving Netflix
+
+Movies, Mission: Impossible, Netflix
+
+Sun, 12 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/tom-cruise-mission-impossible-leaving-netflix-may-2026/
+
+The franchise's films were just added to Netflix in April, and fans don't have much time left to watch them before they leave.
+---------
+
+# 10 Perfect Double Features To Watch With Sydney Sweeney's 'The Housemaid'
+
+Movies, The Housemaid, A Simple Favor, The Hand that Rocks the Cradle
+
+Sun, 12 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/perfect-double-features-to-watch-with-the-housemaid-list/
+
+For those who enjoyed every aspect of The Housemaid, there’s no shortage of similarly dark and twist-heavy thrillers available to watch.
+---------
+
+# Marvel Officially Confirms New MCU TV Strategy
+
+TV, Daredevil: Born Again, MCU, The Defenders, Sci-Fi
+
+Sun, 12 Apr 2026 12:30:12 GMT
+
+https://www.cbr.com/marvel-officially-confirms-new-mcu-tv-strategy/
+
+New Daredevil: Born Again set photos reveal the strategy for MCU television is one that's worked for the post-Endgame films.
+---------
+
+# Lilo & Stitch Sequel Officially Confirmed For 2026
+
+Comics, Lilo & Stitch
+
+Sun, 12 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/dynamite-entertainment-disney-lilo-stitch-sequel-626/
+
+An exciting new Lilo & Stitch story is on the way, and it's coming sooner than expected.
+---------
+
+# HBO Max Officially Has This Ambitious 2024 Western That Had a Painful Reception
+
+Movie Features, Kevin Costner, Horizon: An American Saga - Chapter 1, HBO Max, Western
+
+Sun, 12 Apr 2026 12:56:12 GMT
+
+https://collider.com/horizon-western-kevin-costner-hbo-max-streaming/
+
+Kevin Costner's Horizon: An American Saga – Chapter 1 had a shockingly poor reception at the box office, but is now available on HBO Max.
+---------
+
+# 33 Years Later, the Greatest ‘Simpsons’ Episode Is Still a Masterpiece From Start to Finish
+
+TV Features, The Simpsons, Fox, Disney+, Sitcom
+
+Sun, 12 Apr 2026 12:49:12 GMT
+
+https://collider.com/the-simpsons-best-episode-ever-season-4-last-exit-to-springfield/
+
+"Last Exit to Springfield" is the best episode of The Simpsons, as it's packed with humor, satire, and cultural references, making it a masterclass.
+---------
+
+# Forget 'Gone Girl,' This 91% RT Thriller Is Taking Over the World
+
+Movie News, The Gift, Joel Edgerton, Stephen King, Paramount Plus
+
+Sun, 12 Apr 2026 12:45:12 GMT
+
+https://collider.com/joel-edgerton-gone-girl-replacement-thriller-the-gift-streaming-hit-paramount-plus-april-2026/
+
+Joel Edgerton's forgotten Gone Girl replacement, The Gift, has stormed past a popular Stephen King remake in the streaming charts.
+---------
+
+# 9 Fantasy Shows That Are Perfect for the Whole Family
+
+TV, Avatar: The Last Airbender, Star Wars: The Clone Wars, The Librarians, Scooby-Doo! Mystery Incorporated
+
+Sun, 12 Apr 2026 12:41:13 GMT
+
+https://collider.com/family-fantasy-shows-perfect/
+
+Audiences of all ages are sure to enjoy great fantasy TV shows like Avatar: The Last Airbender, The Mandalorian, and Merlin.
+---------
+
+# AMC's 'Succession'-Like Thriller Will Stream for Free, but There's a Catch
+
+TV News, The Audacity, Billy Magnussen, Zach Galifianakis, AMC
+
+Sun, 12 Apr 2026 12:30:12 GMT
+
+https://collider.com/succession-replacement-thriller-the-audacity-amc-streaming-free-tiktok-billy-magnussen/
+
+AMC is planning to release the first episode of its buzzy new Silicon Valley series, The Audacity, for free on TikTok. Here's what we know.
+---------
+
+# Pink Floyd's 1973 Song Isn't Actually About 'The Dark Side of the Moon'
+
+Music Features, Pink Floyd, Music, Rock, Billboard Hot 100
+
+Sun, 12 Apr 2026 12:30:12 GMT
+
+https://collider.com/pink-floyd-1973-song-brain-damage/
+
+Pink Floyd’s 1973 track from The Dark Side of the Moon is widely misunderstood. Its meaning is darker and more personal than most fans realize.
+---------
+
+# 10 Greatest Gangster Movies Released Since 'Goodfellas'
+
+Movie, Goodfellas, The Irishman, A History of Violence, The Departed
+
+Sun, 12 Apr 2026 12:27:12 GMT
+
+https://collider.com/best-gangster-movies-since-goodfellas/
+
+Goodfellas redefined the gangster genre, but many great movies have come out since its 1990 premiere, including Eastern Promises and The Irishman.
+---------
+
+# 10 '80s Shows That Were Ahead of Their Time
+
+TV, 1980s, Miami Vice, St. Elsewhere, Family Ties
+
+Sun, 12 Apr 2026 12:21:12 GMT
+
+https://collider.com/80s-shows-ahead-of-their-time/
+
+Discover the innovative 1980s TV shows that pushed boundaries and set the stage for today's popular series, from Miami Vice to Family Ties.
+---------
+
+# 85 Years Later, Disney's Only Perfect Animated Film Is Still Its Greatest Masterpiece
+
+Movie Features, Disney, Disney's Pinocchio, Walt Disney, Animation
+
+Sun, 12 Apr 2026 12:18:12 GMT
+
+https://collider.com/pinocchio-disney-movie-masterpiece/
+
+The iconic 1940 Disney fantasy Pinocchio is an untouchable gem that set the bar for animated movies for decades to come.
+---------
+
+# Forget Taylor Sheridan, the Best Western Crime Thriller Ever Made Hits Streaming This May
+
+Movie News, No Country for Old Men, Coen Brothers, Josh Brolin, Javier Bardem
+
+Sun, 12 Apr 2026 12:00:12 GMT
+
+https://collider.com/western-crime-drama-coen-brothers-no-country-for-old-men-streaming-free-tubi-may-2026/
+
+The greatest crime drama from the Coen brothers’ extensive catalog finds a free streaming home next month. Read on for more.
+---------
+
+# 'God of War' Star's 2-Part Crime Thriller 'Outsiders' Now Free to Stream
+
+TV News, Outsiders, Streaming Recommendations, God of War
+
+Sun, 12 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/ryan-hurst-outsiders-crime-thriller-streaming-free-tubi-april-2026/
+
+Flying under the radar a decade ago, Ryan Hurst's 'Outsiders' is a terrific crime thriller that's now available to stream absolutely free.
+---------
+
+# Unpredictable Psychological Thriller 'Identity' Lands on Free Streaming
+
+Movie News, Identity
+
+Sun, 12 Apr 2026 12:38:44 GMT
+
+https://movieweb.com/identity-streaming-tubi-april-2026/
+
+The film features one of the most outrageous twists of all time.
+---------
+
 # Upcoming 10-Part Adaptation Of The Other Bennet Sister Will Show Bridgerton How It's Done
 
 Streaming TV, Bridgerton, The Other Bennet Sister
