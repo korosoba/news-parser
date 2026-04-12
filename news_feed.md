@@ -1,3 +1,333 @@
+# Netflix's Upcoming Crime Thriller Legends Is The Streamer's Answer To Slow Horses
+
+Streaming TV, Slow Horses, Legends, Netflix, Apple TV
+
+Sun, 12 Apr 2026 01:45:20 GMT
+
+https://screenrant.com/netflix-legends-crime-thriller-slow-horses-replacement/
+
+Slow Horses is one of the most unique shows on TV and has been a huge hit for Apple, which makes it unsurprising Netflix wants to replicate its magic.
+---------
+
+# Solo Leveling's Studio Teams Up With Webtoon's Biggest Author For A Must-Read Manhwa
+
+Anime, Solo Leveling, Webtoon, Manhwa
+
+Sun, 12 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/husband-thief-solo-leveling-new-manhwa-webtoon/
+
+An unexpected collaboration between Redice Studio and the author of Webtoon's biggest fantasy series promises a new must-read manhwa.
+---------
+
+# Ted Lasso's Iconic Characters Ranked: Who's the Best?
+
+Streaming TV, Ted Lasso
+
+Sun, 12 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/ted-lasso-best-characters-ranked/
+
+Iconic, lovable, unforgettable characters like Rebecca and Roy Kent and Coach Beard have kept Ted Lasso fans coming back to the show for years now.
+---------
+
+# One Piece Chapter 1180 Release Date & Time
+
+Anime, One Piece, One Piece (1997), Shonen Jump
+
+Sun, 12 Apr 2026 01:15:21 GMT
+
+https://screenrant.com/one-piece-chapter-1180-release-date-time/
+
+Discover when and where One Piece Chapter 1180 will be released, as Imu's arrival on Elbaph intensifies the battle.
+---------
+
+# 10 Best Non-American Sitcoms Of All Time
+
+Streaming TV, Sitcoms
+
+Sun, 12 Apr 2026 01:15:21 GMT
+
+https://screenrant.com/best-non-american-sitcoms/
+
+Sitcoms are a wonderfully varied style of comedy show, but while there are many iconic American sitcoms, other countries have some excellent ones too.
+---------
+
+# 30 Years Ago, Dragon Ball’s Most Controversial Anime Aired, and It’s Still Worth the Watch
+
+Anime, Dragon Ball, Dragon Ball GT
+
+Sun, 12 Apr 2026 01:05:02 GMT
+
+https://screenrant.com/dragon-ball-gt-most-controversial-series/
+
+Dragon Ball GT, the franchise's most controversial anime series, turns 30. Despite its flaws, its best moments are still worth watching today.
+---------
+
+# Switch 2's Most Annoying Feature Has A Simple Fix
+
+Gaming, Nintendo Switch 2, Gaming Hardware
+
+Sun, 12 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/nintendo-switch-2-screen-scratch-fix/
+
+I unfortunately found out first-hand about what maybe the Switch 2's most frustrating design flaw, but it luckily has a pretty simple fix.
+---------
+
+# The Beginning After the End Just Lost Its Crown As Worst Webtoon Anime
+
+Anime, Webtoon, The Beginning After the End
+
+Sun, 12 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/the-beginning-after-the-end-not-worst-webtoon-anime-monster-eater/
+
+The anime adaptation of the webtoon The Beginning After the End was the most controversial so far. However, a new anime looks even worse.
+---------
+
+# Dutton Ranch Spinoff: Yellowstone's Best Cast Brings New Life To Beloved Characters
+
+Streaming TV, Dutton Ranch, Yellowstone
+
+Sun, 12 Apr 2026 00:30:20 GMT
+
+https://screenrant.com/yellowstone-dutton-ranch-spinoff-best-taylor-sheridan-cast/
+
+Taylor Sheridan's Yellowstone franchise is branching out in different directions, but one new show in particular stands out for its exceptional cast.
+---------
+
+# 10 Most Overrated Anime Heroes of All Time
+
+Anime
+
+Sun, 12 Apr 2026 00:30:20 GMT
+
+https://screenrant.com/most-overrated-anime-heroes-ever/
+
+These anime characters are not as great as their fame suggests, and should definitely be categorized as overrated.
+---------
+
+# 10 Amazing Modern Anime That Look Like They Were Made in 1995
+
+Anime, Sailor Moon, Jojo's Bizarre Adventure
+
+Sun, 12 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/best-modern-anime-1990s-art-style-animation/
+
+Plenty of brilliant modern anime utilize the art style and animation techniques of series from the 1990s.
+---------
+
+# 10 Strongest Sci-Fi Anime Characters of All Time
+
+Anime, Ghost in the Shell, Trigun, Steins;Gate, Gurren Lagann, Puella Magi Madoka Magica, Neon Genesis Evangelion, Akira, Dragon Ball Super, Sci-Fi
+
+Sun, 12 Apr 2026 01:25:13 GMT
+
+https://www.cbr.com/sci-fi-anime-strongest-characters/
+
+For the most powerful heroes and villains of sci-fi anime, the laws of physics are merely suggestions.
+---------
+
+# DC's All-New Bleeding Hearts Is The Best Horror Comic Since The Walking Dead
+
+Comics, DC Comics, The Walking Dead, Horror
+
+Sun, 12 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/dc-vertigo-bleeding-hearts-best-new-horror-comic-since-the-walking-dead/
+
+Writer Deniz Camp's brand-new DC Vertigo horror comic is the best the genre has been since the legendary The Walking Dead.
+---------
+
+# 1967's Casino Royale is Still The Most Bizarre Spy Thriller Of All Time
+
+Movies, James Bond, Casino Royale
+
+Sun, 12 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/forgotten-james-bond-casino-royale-bizarre-spy-thriller/
+
+James Bond is an icon of the spy genre, but his role in Casino Royale makes for an incredibly odd but fun spy thriller that everyone should watch.
+---------
+
+# 7 Best Heroes That Dragon Ball Doesn't Have The Guts To Kill Off For Good
+
+Anime, Dragon Ball, heroes, Dragon Ball Z
+
+Sun, 12 Apr 2026 00:45:19 GMT
+
+https://www.cbr.com/dragon-ball-dbz-best-heroes-never-stay-dead/
+
+Dragon Ball is no stranger to death, but there are certain individuals who feel off base when it comes to permanent fatalities.
+---------
+
+# Chris Pine & Florence Pugh's The Outlaw King is an Underrated Action Film
+
+Movies, Outlaw King
+
+Sun, 12 Apr 2026 00:45:19 GMT
+
+https://www.cbr.com/netflix-the-outlaw-king-sleeper-hit/
+
+A thrilling tale of rebellion and freedom, this epic historical drama delivers jaw-dropping action sequences and captivating performances.
+---------
+
+# It's Time the Best PS1 RPG Ever Gets the Reboot That It Needs
+
+Games, Parasite Eve
+
+Sun, 12 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/best-ps1-rpg-parasite-eve-reboot/
+
+Square Enix loves remastering and remaking its old RPGs for modern platforms, but there's one classic PS1 game that needs the treatment most.
+---------
+
+# MF Ghost’s Final Season Fails Initial D's Legacy
+
+Anime, Initial D, MF Ghost
+
+Sun, 12 Apr 2026 00:25:06 GMT
+
+https://www.cbr.com/mf-ghost-final-season-initial-d-legacy/
+
+The final season of the MF Ghost anime has been announced, but the adaptation and its source material both failed to measure up to Initial D.
+---------
+
+# Behind the Mask: The Rise of Leslie Vernon Sequel Moves Forward
+
+Movies, Behind the Mask: The Rise of Leslie Vernon
+
+Sun, 12 Apr 2026 00:08:28 GMT
+
+https://www.cbr.com/behind-the-mask-the-rise-of-leslie-vernon-sequel-announced/
+
+It's taken two decades, but the sequel to a beloved horror film is finally moving forward.
+---------
+
+# Spirited Away, Totoro & More Unite in New Official Studio Ghibli Design
+
+Anime, Studio Ghibli, toho
+
+Sun, 12 Apr 2026 00:00:13 GMT
+
+https://www.cbr.com/studio-ghibli-new-design-toho-movie-theater-campaign/
+
+A new Studio Ghibli collaboration brings together Totoro, Chihiro, Porco Rosso and other beloved anime icons in never-before-seen artwork.
+---------
+
+# 8 Action Movies That Are Amazing From Start To Finish
+
+Movie, Action, Raiders of the Lost Ark, aliens, The Dark Knight
+
+Sun, 12 Apr 2026 01:33:13 GMT
+
+https://collider.com/action-movies-amazing-start-to-finish/
+
+Speed, Mad Max: Fury Road, Die Hard, Aliens, The Dark Knight, and more are sharp, intense, and gripping action movies from first scene to last.
+---------
+
+# Hulu's 5-Part Superhero Sci-Fi Series Is Perfect From Start to Finish
+
+TV Features, Misfits, Hulu, Sci-Fi, Channel 4
+
+Sun, 12 Apr 2026 01:01:12 GMT
+
+https://collider.com/misfits-hulu-superhero-sci-fi-series-perfect-from-start-to-finish/
+
+With a talented cast and unconventional powers, Misfits was a superhero series ahead of its time and remains engaging from start to finish.
+---------
+
+# Forget 'The Boys,' Watch HBO Max's Twisted Sci-Fi Superhero Satire Before It Leaves This May
+
+Movie News, Chronicle, Michael B. Jordan, Dane DeHaan, Sci-Fi
+
+Sun, 12 Apr 2026 00:30:12 GMT
+
+https://collider.com/hbo-max-removing-chronicle-stunning-superman-meets-cloverfield-sci-fi-hit-may-2026/
+
+HBO Max is removing the stunning Superman meets Cloverfield sci-fi hit, Chronicle. Find out how long you have left to watch.
+---------
+
+# 'Die Hard' Meets 'Air Force One' in the 1997 Action Thriller Dominating Streaming
+
+Movie News, Ray Liotta, Turbulence, Action, streaming
+
+Sun, 12 Apr 2026 00:15:13 GMT
+
+https://collider.com/die-hard-air-force-one-turbulence-ray-liotta-action-thriller-streaming-success-starz-april-2026/
+
+Turbulence has become a surprise streaming hit, giving Ray Liotta’s 1997 thriller a very unexpected comeback. Find out more here.
+---------
+
+# 18 Years Ago, NASA Beamed a Beatles Song Into Deep Space
+
+Music Features, The Beatles, Music, Rock, Billboard Hot 100
+
+Sun, 12 Apr 2026 00:00:12 GMT
+
+https://collider.com/18-years-ago-nasa-sent-this-beatles-song-across-the-universe-into-deep-space/
+
+In 2008, NASA marked the 40th anniversary of The Beatles' Across the Universe by transmitting the iconic song directly into deep space, making it the first song deliberately beamed beyond Earth's atmosphere.
+---------
+
+# Say Goodbye to 2025’s Strangest Sci-Fi Movie on April 26
+
+Movie News, Bugonia, Emma Stone, Yorgos Lanthimos, Sci-Fi
+
+Sun, 12 Apr 2026 00:00:12 GMT
+
+https://collider.com/bugonia-strangest-sci-fi-movie-of-2025-leaving-peacock-april-2026/
+
+The strangest sci-fi movie of 2025, Yorgos Lanthimos' Bugonia, is leaving its streaming home shortly. Find out more details.
+---------
+
+# Apple TV’s 10-Part Crime Drama Is Quietly One of Its Best Shows
+
+TV Features, Bad Monkey, Vince Vaughn, Apple TV, Crime
+
+Sat, 11 Apr 2026 23:52:12 GMT
+
+https://collider.com/bad-monkey-apple-tv-crime-drama-best/
+
+Apple TV's hidden gem crime drama, Bad Monkey, starring Vince Vaughn, has quietly become one of the streamer's best shows.
+---------
+
+# Forget 'Jaws,' 2025's Brutal Shark Thriller Is Officially a Late Night Sleeper Hit
+
+Movie News, Jai Courtney, Horror, Dangerous Animals, Hulu
+
+Sat, 11 Apr 2026 23:45:13 GMT
+
+https://collider.com/jaws-replacement-dangerous-animals-shark-movie-streaming-success-hulu-america-april-2026/
+
+Recent shark thriller Dangerous Animals climbed to No. 4 on Hulu’s U.S. movie list shortly after landing on the service. Read on for details.
+---------
+
+# Guy Ritchie & Tom Hardy's Epic Crime Series 'Mobland' Is the Perfect Weekend Binge
+
+Features, MobLand, Guy Ritchie, Tom Hardy
+
+Sun, 12 Apr 2026 01:30:18 GMT
+
+https://movieweb.com/guy-ritchie-tom-hardy-crime-series-mobland-weekend-binge-watch/
+
+Guy Ritchie brought his A-game with the British crime series 'MobLand', which capitalized on the charisma of Tom Hardy and its star-studded cast.
+---------
+
+# 'Malcolm X': Denzel Washington Became a Generational Star in This Timeless Classic Movie
+
+Features, Malcolm X, Spike Lee, Denzel Washington, Career Arc Reframe
+
+Sun, 12 Apr 2026 00:00:17 GMT
+
+https://movieweb.com/denzel-washington-malcolm-x-generational-star/
+
+Denzel Washington proved he was a one-of-a-kind talent with 'Malcolm X', one of the most important movies ever made.
+---------
+
 # Netflix's The Crown Has One Of The Century's Best Casts
 
 Classic TV, Masked Recs, Netflix
