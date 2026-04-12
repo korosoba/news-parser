@@ -1,3 +1,124 @@
+# Upcoming 10-Part Adaptation Of The Other Bennet Sister Will Show Bridgerton How It's Done
+
+Streaming TV, Bridgerton, The Other Bennet Sister
+
+Sun, 12 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/the-other-bennet-sister-adaptation-bridgerton-eloise-story/
+
+This upcoming 10-part Regency romance dramedy is the perfect substitute for anyone anxiously awaiting Eloise's story in Bridgerton season 6.
+---------
+
+# Pokémon Rose Gold Is The Johto Prequel We've Waited Years For
+
+Gaming, Pokemon
+
+Sun, 12 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/pokemon-rose-gold-kanto-sequel-rom-hack/
+
+Discover the untold story of the Johto region with Pokémon Rose Gold, an unofficial sequel to Pokémon FireRed/LeafGreen.
+---------
+
+# Mortal Kombat II's Latest Trailer Sealed a Controversial Character's Fate
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Sun, 12 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/mortal-kombat-ii-sealed-controversial-character-fate-cole-young/
+
+An easily missable moment in Mortal Kombat II's latest trailer pointed towards the death of a major character in the upcoming sequel.
+---------
+
+# 6 Near-Perfect Dark Fantasy Shows Nobody Remembers
+
+TV, Fantasy, American Gothic, Kindred: The Embraced
+
+Sun, 12 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/near-perfect-but-forgotten-dark-fantasy-shows-list/
+
+These dark fantasy shows blended genres, featuring strong stories, characters and bold ideas, but never got the attention or long runs they deserved.
+---------
+
+# Star Trek's Best Live-Action Series Becomes a Late-Night Sleeper Hit 31 Years Later
+
+TV Features, Star Trek: Voyager, Star Trek, Sci-Fi, Paramount Plus
+
+Sun, 12 Apr 2026 11:57:12 GMT
+
+https://collider.com/star-trek-voyager-best-live-action-seres-sleeper-hit/
+
+Star Trek: Voyager has found a late-night streaming resurgence, prompting a reassessment of its place within the Star Trek franchise.
+---------
+
+# Only 3 War Movies Are Better Than 'Saving Private Ryan'
+
+Movie, Saving Private Ryan, Schindler's List, Apocalypse Now, Lawrence of Arabia
+
+Sun, 12 Apr 2026 11:57:12 GMT
+
+https://collider.com/war-masterpieces-better-than-saving-private-ryan/
+
+Saving Private Ryan is a masterpiece of the war genre, but great movies like Lawrence of Arabia and Apocalypse Now are arguably superior in every way.
+---------
+
+# The Latest Entry in the World's Best Sci-Fi Horror Franchise Is a Streaming Giant
+
+Movie News, Alien, Alien: Romulus, Horror, HBO Max
+
+Sun, 12 Apr 2026 11:45:12 GMT
+
+https://collider.com/alien-romulus-streaming-hit-hbo-max-april-2026/
+
+The latest entry in the world's best horror sci-fi franchise, Alien: Romulus, is a hit on HBO Max. Here's what you should know.
+---------
+
+# 58 Years Later, '2001: A Space Odyssey's Greatest Line Is Still the Most Perfect in Sci-Fi History
+
+Movie Features, 2001: A Space Odyssey, Sci-Fi, Stanley Kubrick, Adventure
+
+Sun, 12 Apr 2026 11:44:13 GMT
+
+https://collider.com/best-sci-fi-movie-quote-2001-a-space-odyssey-hal/
+
+Sci-Fi history is filled with incredible movie and TV quotes, but this frightening line from HAL in 2001: A Space Odyssey is the greatest.
+---------
+
+# 40 Years Later, David Bowie's Forgotten 1983 Funk Track Hits Harder Than Ever
+
+Music Features, David Bowie, Rock, Music, Billboard Hot 100
+
+Sun, 12 Apr 2026 11:30:12 GMT
+
+https://collider.com/40-years-later-david-bowie-forgotten-1983-funk-driven-track-criminal-world-hits-harder/
+
+David Bowie's cover in 1983 not only made the song his own but also showcased his profound impact on music, blending genres and pushing boundaries.
+---------
+
+# CBS' 3-Part Thriller Series Is the Perfect Weekend Binge
+
+TV News, Tracker, CBS, Action, Paramount Plus
+
+Sun, 12 Apr 2026 11:30:12 GMT
+
+https://collider.com/cbs-tracker-streaming-milestone-100-days-paramount-plus-april-2026/
+
+The CBS series Tracker, starring Jensen Ackles, just nailed a hugely impressive streaming milestone in the U.S. Read on for more details.
+---------
+
+# Alfred Hitchcock's Psychological Thriller 'Strangers on a Train' Is Free Streaming
+
+Movie News, Strangers on a Train, Coming/Leaving Streaming, Alfred Hitchcock, Thriller
+
+Sun, 12 Apr 2026 11:31:16 GMT
+
+https://movieweb.com/strangers-on-a-train-streaming-tubi-april-2026/
+
+In 1951, Guy Haines was given an offer he decided to ignore — until it became terrifyingly real.
+---------
+
 # Xbox Game Pass Loses 5 Free Games On April 15
 
 Gaming, Xbox Game Pass, Live Service Games, PC, Triple-A Games
