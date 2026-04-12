@@ -1,3 +1,234 @@
+# Netflix's The Body: A Queer-Inspired Spiritual Successor to Jennifer's Body
+
+Streaming TV, Netflix, Jennifer's Body
+
+Sun, 12 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/the-body-jennifers-body-homoerotic-teen-thriller-similarities/
+
+A Megan Fox movie from a 17-year-old became a beloved cult classic, and Netflix's upcoming campy teen thriller show will be the perfect follow-up.
+---------
+
+# DC Officially Debunks the 'Hypnotic Glasses' Explanation for Superman's Secret Identity
+
+Comics, Superman, DC Comics
+
+Sun, 12 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/superman-secret-identity-clark-kent-hypnotic-glasses/
+
+DC confirms the truth of Clark Kent's identity.
+---------
+
+# 10 Best ‘90s Monster Movies, Ranked
+
+Classic Movies, Horror, Ranking
+
+Sun, 12 Apr 2026 22:25:19 GMT
+
+https://screenrant.com/1990s-monster-movies-horror-ranked/
+
+The 1990s spawned a ton of terrifying monster movies, but which of these 10 nostalgic creature features is the best of the decade?
+---------
+
+# Dan Levy's New Comedy Has A Lot In Common With Schitt's Creek (But Is That A Good Thing?)
+
+Streaming TV, Dan Levy, Schitt's Creek, Big Mistakes
+
+Sun, 12 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/dan-levy-big-mistake-shitts-creek-nostalgia/
+
+Netflix's new comedy from Dan Levy has borrowed many elements from his most popular show, Schitt's Creek, which might not be the best thing.
+---------
+
+# Stylish New RPG On Steam Can Be Played For Free Right Now
+
+Gaming, Steam, RPG, Indie, PC
+
+Sun, 12 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/steam-free-download-town-zoz-demo-play-now/
+
+Steam is offering its players the opportunity to play a portion of a new RPG that has just been released on the platform, no strings attached.
+---------
+
+# 12 Years Later, AMC's Best Series Is Still Their Most Underrated
+
+TV, Halt and Catch Fire, AMC, Drama
+
+Sun, 12 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/halt-catch-fire-best-amc-series/
+
+The best AMC series is not Breaking Bad or Mad Men, but this underrated and nearly perfect drama show that is still worth watching today.
+---------
+
+# Why Mercedes Mason's Zoe Andersen Was Killed Off In The Rookie
+
+TV, The Rookie
+
+Sun, 12 Apr 2026 22:30:13 GMT
+
+https://www.cbr.com/why-mercedes-mason-left-the-rookie/
+
+The Rookie shocked fans by killing off Captain Zoe Andersen short of its Season 1 finale. Here's what happened and why Mercedes Mason left the series.
+---------
+
+# Arnold Schwarzenegger’s Conan the Destroyer Is Leaving Netflix Ahead of New Sequel
+
+Movies, Action, Conan, conan the barbarian, Conan the Barbarian, Commando, Predator, Conan the Destroyer
+
+Sun, 12 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-fantasy-masterpiece-leaving-netflix-ahead-of-new-sequel/
+
+Depending on who you ask, it's either one of the best or worst in Arnold Schwarzenegger's filmography, and it's leaving Netflix.
+---------
+
+# Alien vs. Predator Is a Streaming Hit (Will There Be a Reboot?)
+
+Movies, Alien vs. Predator, Sci-Fi, Predator: Badlands
+
+Sun, 12 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/alien-vs-predator-streaming-success-indicates-reboot-sequel-sci-fi/
+
+One of the most impactful sci-fi crossover franchises is surging on streaming, indicating it might be time for another entry.
+---------
+
+# 5 Unwatchable Anime Based on Incredible Manga
+
+Anime, Berserk, The Promised Neverland, Uzumaki
+
+Sun, 12 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/unwatchable-anime-ruined-best-manga/
+
+Even the best manga series can turn into a massive disappointment if the anime adaptation doesn't do it justice.
+---------
+
+# Cheech & Chong Finally Meet Jay & Silent Bob in New Photo
+
+Movies, Cheech and Chong
+
+Sun, 12 Apr 2026 22:06:44 GMT
+
+https://www.cbr.com/cheech-chong-jay-silent-bob-meet/
+
+Cheech, Chong, Jay, and Silent Bob are all finally together in one photo with fans calling for a crossover movie to be made.
+---------
+
+# Tom Hanks' Apollo 13 Becomes a PVOD Hit After Artemis II Safe Return Home
+
+Movies, Apollo 13, Sci-Fi, Streaming
+
+Sun, 12 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/tom-hanks-apollo-13-sci-fi-pvod-hit-after-artemis-ii-return-april-2026/
+
+Shuttle has landed! After the Artemis II mission, audiences are flocking to this iconic historical movie about a much less successful flight.
+---------
+
+# LEGO, Meet Your Match: Pokémon's Gen 1 Starters Just Got a Blocky New Makeover That's Super Effective
+
+Anime, Pokemon, merchandise, toys
+
+Sun, 12 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/pokemon-kanto-starter-nanoblock-keychain-release/
+
+The 30th anniversary of Pokemon is building upon everything that's come before, including new Nanoblock keychains of the Kanto starters.
+---------
+
+# 28 Years Later, Matt Damon’s 169-Minute WWII Epic Hits Free Streaming
+
+Movie News, Saving Private Ryan, Steven Spielberg, Tom Hanks, Matt Damon
+
+Sun, 12 Apr 2026 22:30:13 GMT
+
+https://collider.com/matt-damon-ww2-epic-blockbuster-saving-private-ryan-free-streaming-success-tubi-april-2026/
+
+Nearly three decades after its release, Matt Damon and Tom Hanks' landmark WW2 blockbuster Saving Private Ryan is still a fan favorite.
+---------
+
+# 9 Most Perfect HBO Shows of the Last 10 Years, Ranked
+
+TV, HBO, A Knight Of The Seven Kingdoms, The Penguin, Succession
+
+Sun, 12 Apr 2026 22:21:12 GMT
+
+https://collider.com/most-perfect-hbo-shows-last-10-years-ranked/
+
+The White Lotus, Succession, and A Knight of the Seven Kingdoms are among the best HBO shows of the last decade, but which show is the greatest?
+---------
+
+# Sydney Sweeney’s Sleeper Hit Thriller Officially Breaks Streaming Record
+
+Movie News, Sydney Sweeney, Amanda Seyfried, STARZ, The Housemaid
+
+Sun, 12 Apr 2026 22:15:13 GMT
+
+https://collider.com/sydney-sweeney-sleeper-hit-thriller-the-housemaid-streaming-success-starz-april-2026/
+
+Sydney Sweeney's thriller The Housemaid breaks streaming records, ahead of a sequel titled The Housemaid's Secret.
+---------
+
+# 7 Upcoming Sci-Fi Movies You Cannot Miss
+
+Movie, Sci-Fi, Dune: Part Three, Avengers: Doomsday, The Dog Stars
+
+Sun, 12 Apr 2026 22:03:12 GMT
+
+https://collider.com/sci-fi-movies-2026-you-cannot-miss/
+
+From Dune: Part Three to Avengers: Doomsday to Supergirl, these upcoming sci-fi movies promise massive spectacle and bold storytelling.
+---------
+
+# One of the Greatest Sci-Fi Books Ever Written Is Finally Getting a Movie After 33 Years
+
+Movie News, Sci-Fi, Melina Matsoukas, Queen & Slim, Insecure
+
+Sun, 12 Apr 2026 22:00:13 GMT
+
+https://collider.com/greatest-sci-fi-book-parable-of-the-sower-octavia-e-butler-movie-adaptation/
+
+A sci-fi masterpiece is officially getting its long-awaited movie moment, with a bold director stepping in to shape the powerful story.
+---------
+
+# The Property Brothers Just Called Out the “Worst” Kitchen Appliance After Hundreds of Renovations
+
+TV Features, Property Brothers, Drew Scott, Jonathan Scott, HGTV
+
+Sun, 12 Apr 2026 21:58:13 GMT
+
+https://collider.com/property-brothers-drew-jonathan-scott-pick-worst-appliance-gas-stove/
+
+Property Brothers Drew and Jonathan Scott urge homeowners to ditch gas stoves, citing safer, cleaner, and more efficient kitchens.
+---------
+
+# 'Reacher' Just Crossed Over Into Another Amazon Action Franchise
+
+Features, Reacher, The Boys
+
+Sun, 12 Apr 2026 22:31:17 GMT
+
+https://movieweb.com/reacher-the-boys-season-5-crossover/
+
+And no, he doesn't duke it out with anyone.
+---------
+
+# 'The X-Files' Has a Crossover With a Forgotten Sci-Fi Crime Thriller Series
+
+Features, The X-Files, Millennium, Sci-Fi, Chris Carter
+
+Sun, 12 Apr 2026 22:01:17 GMT
+
+https://movieweb.com/the-x-files-crossover-millennium/
+
+'The X-Files' has had plenty of unique crossovers, including one with a long-forgotten sci-fi series that didn't get the respect it deserved.
+---------
+
 # Nosferatu Director's Forgotten Movie Masterpiece Turns 100 This Year
 
 Movies, Faust, Horror
