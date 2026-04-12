@@ -1,3 +1,168 @@
+# ABC Stil Hasn’t Renewed Two Fan-Favorite Hit Shows & That’s Mind-Boggling
+
+Network TV, The Rookie, Will Trent, ABC
+
+Sun, 12 Apr 2026 17:18:20 GMT
+
+https://screenrant.com/the-rookie-season-9-will-trent-season-5-not-renewed-abc/
+
+The 2025-2026 network TV cycle is now in its final few weeks, and yet, ABC still hasn't confirmed the returns of its two major shows for next season.
+---------
+
+# 6 Major Superhero Stars Who Appeared In Batman: The Animated Series
+
+Superheroes, DC Universe, Batman, Batman: The Animated Series
+
+Sun, 12 Apr 2026 17:15:22 GMT
+
+https://screenrant.com/batman-the-animated-series-superhero-movie-show-stars/
+
+Batman: The Animated Series featured several actors who became major superhero stars in movies and TV, from Mark Hamill to Helen Slater and beyond.
+---------
+
+# 10 Best Harem Anime Of All Time, Ranked
+
+Anime, Ranking
+
+Sun, 12 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/best-harem-anime-all-time-ranked/
+
+The best harem anime you need to watch.
+---------
+
+# Netflix's Wednesday Is Finally The Spiritual Successor To Tim Burton's Beetlejuice
+
+Streaming TV, Wednesday
+
+Sun, 12 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/netflix-wednesday-tim-burton-beetlejuice-spiritual-successor/
+
+Tim Burton's second feature film, Beetlejuice, is still one of the director's most beloved movies, and his Netflix show borrows its best elements.
+---------
+
+# 8 House Episodes That Have Aged Poorly
+
+Classic TV, House
+
+Sun, 12 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/house-episodes-aged-poorly/
+
+These problematic episodes of House have aged poorly, featuring questionable medical practices and troubling storylines that don't hold up today.
+---------
+
+# A24's The Invite: New Comedy Trailer Teases Tense Dinner Scene
+
+Movies, The Drama, The Invite
+
+Sun, 12 Apr 2026 16:56:19 GMT
+
+https://screenrant.com/the-drama-invite-trailer-new-marketing/
+
+A24 released the first trailer for its upcoming comedy film directed by Olivia Wilde, and it looks like the perfect companion to The Drama.
+---------
+
+# Forget Tombstone, This Underrated Tom Selleck Western Has The Best Showdown Of The 1990s
+
+Movies, Quigley Down Under, Western
+
+Sun, 12 Apr 2026 16:41:18 GMT
+
+https://screenrant.com/quigley-down-under-tom-selleck-best-western-showdown-tombstone/
+
+Tombstone's O.K. Corral shootout is considered the best Western showdown of the 1990s, but that honor should go to a certain Tom Selleck adventure.
+---------
+
+# My Adventures With Superman Returns For Season 3 Amid James Gunn's Man of Tomorrow
+
+TV, My Adventures With Superman
+
+Sun, 12 Apr 2026 17:19:55 GMT
+
+https://www.cbr.com/before-man-tomorrow-adult-swim-hit-superman-series-season-3/
+
+Adult Swim is officially bringing back its fan-favorite Superman series ahead of the Man of Steel's next big-budget DCU feature film outing.
+---------
+
+# 10 Great Open-World Games You Probably Haven't Played
+
+Games, Sleeping Dogs, Kingdom Come: Deliverance, Rise of the Ronin, open world
+
+Sun, 12 Apr 2026 17:15:13 GMT
+
+https://www.cbr.com/best-open-world-games-forgotten-hidden-gems/
+
+With so many open-world games available, there's no shortage of hidden gems.
+---------
+
+# Red Dead Redemption 2 Officially Offers Free Download Expiring April 13
+
+Games, Red Dead Redemption, Red Dead Redemption 2
+
+Sun, 12 Apr 2026 17:10:12 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-download-officially-available-april-2026/
+
+Red Dead Redemption fans only have until April 15 to claim the newest free download from its iconic sequel.
+---------
+
+# Apple TV's Ted Lasso Hits Major Streaming Milestone Ahead of Season 4
+
+TV, Ted Lasso, Apple TV, Drama
+
+Sun, 12 Apr 2026 17:00:13 GMT
+
+https://www.cbr.com/apple-tv-ted-lasso-drama-streaming-milestone-before-season-4-return/
+
+Apple TV's beloved comedy-drama is celebrating an impressive milestone ahead of its exciting return later this year.
+---------
+
+# The Madison Becomes Major Streaming Hit on Paramount+
+
+TV, The Madison
+
+Sun, 12 Apr 2026 16:42:07 GMT
+
+https://www.cbr.com/the-madison-streaming-paramount-plus-april-2026/
+
+The Paramount+ streaming success of Taylor Sheridan's newest series continues.
+---------
+
+# Arnold Schwarzenegger's Extremely Divisive Sci-Fi Reboot Is a Surprise Streaming Sleeper Hit
+
+Movie News, Arnold Schwarzenegger, Sci-Fi, Terminator Genisys, Paramount Plus
+
+Sun, 12 Apr 2026 17:00:14 GMT
+
+https://collider.com/arnold-schwarzenegger-divisive-sci-fi-reboot-terminator-genisys-streaming-hit-paramount-plus-april-2026/
+
+Arnold Schwarzenegger's Terminator Genisys, with Emilia Clarke and Matt Smith, is proving popular on American streaming.
+---------
+
+# Ridley Scott's Cyberpunk Action Movie 'Blade Runner' is a Digital Streaming Success on Apple
+
+Movie News, Blade Runner, Apple TV, Hot on Streaming, Sci-Fi
+
+Sun, 12 Apr 2026 17:15:22 GMT
+
+https://movieweb.com/blade-runner-best-cyberpunk-streaming-success-apple-april-2026/
+
+'Blade Runner' is streaming digitally on Apple, and Ridley Scott's essential cyberpunk sci-fi action movie is a major success in 2026.
+---------
+
+# 'Warrior': Tom Hardy's MMA Action Thriller Remains a 10/10 Masterpiece
+
+Features, Warrior, Tom Hardy, Holds Up
+
+Sun, 12 Apr 2026 17:01:16 GMT
+
+https://movieweb.com/tom-hardy-mixed-martial-arts-warrior/
+
+In 2011, Tom Hardy starred in Warrior, a mixed martial arts movie that hits all the right buttons.
+---------
+
 # The Best Sci-Fi Show On Netflix Is A 10/10 Series That Gets Better Upon A Rewatch
 
 Classic TV, Masked Recs, Netflix, Sci-Fi, Recommendation
