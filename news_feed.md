@@ -1,3 +1,201 @@
+# Chainsaw Man's Ending Isn't Just A Disaster, It's An Industry-Wide Wakeup Call For How Shonen Needs To Change
+
+Anime, Chainsaw Man, Shonen Jump, Jujutsu Kaisen, Demon Slayer
+
+Sun, 12 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/chainsaw-man-ending-shonen-need-change/
+
+Chainsaw Man's abrupt and underdeveloped ending has become a lightning rod for criticism, raising concerns about pacing in new gen shonen manga.
+---------
+
+# 10 The Simpsons Episodes That Have Aged Like Milk
+
+Network TV, The Simpsons
+
+Sun, 12 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/the-simpsons-episodes-aged-badly/
+
+Whether they're pandering to a controversial celebrity or playing something horrific for laughs, these Simpsons episodes have aged like milk.
+---------
+
+# Kiln Release Date, Price, Edition Differences, Pre-Order Bonuses, & Gameplay Details
+
+Gaming, Live Service Games, PC
+
+Sun, 12 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/kiln-release-date-price-editions-preorder-gameplay/
+
+Double Fine's next game is a PvP brawler with charming, handmade characters – here's everything you need to prepare for its release this month.
+---------
+
+# Dexter: Resurrection Season 2 Gets Filming Update From Director
+
+TV, Dexter: Resurrection
+
+Sun, 12 Apr 2026 13:49:15 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-marcos-siega-filming-update/
+
+Dexter: Resurrection season 2 could be arriving sooner than people thought, as the director Marcos Siega has revealed an exciting production update.
+---------
+
+# House Of The Dragon Season 3: Explosive Battles And Intense Scenes Ahead
+
+Streaming TV, Masked Recs
+
+Sun, 12 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-game-of-thrones-successor-improvement/
+
+House of the Dragon seasons 1 and 2 have been slow burns, but House of the Dragon season 3 could be the most intense season of the GOT franchise yet.
+---------
+
+# Final Fantasy 9 Finally Officially Returns This Month
+
+Gaming, Final Fantasy 9, Final Fantasy
+
+Sun, 12 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/final-fantasy-9-april-2026-official-return/
+
+Final Fantasy IX is widely considered one of the best games in the series to date, and it's back in an entirely new format that fans should love.
+---------
+
+# Every Major Slasher's Best Sequel, Ranked
+
+Movies, A Nightmare on Elm Street 3: Dream Warriors, Saw X, Friday the 13th Part VI: Jason Lives, The Texas Chainsaw Massacre 2, Evil Dead II, Curse of Chucky, Final Destination Bloodlines, Scream VI, Halloween
+
+Sun, 12 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/best-slasher-movie-franchise-sequels/
+
+Everyone has a favorite slasher franchise sequel, and these are the best sequel in every major slasher series, ranked to decide which had the best!
+---------
+
+# Hunter x Hunter's Best Moment Completely Broke Every Shonen Rule, and It Somehow Hits Even Harder Now
+
+Anime, Hunter X Hunter
+
+Sun, 12 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/hunter-x-hunter-best-moment-gon-pitou-rewrote-shonen-rules/
+
+Most shōnen series peak during their final battle, but Hunter x Hunter breaks the mold through one of the coldest moments in anime.
+---------
+
+# One Of 2025's Biggest Movie Letdowns Is Getting A Second Chance In 1 Week
+
+Movies, Him
+
+Sun, 12 Apr 2026 13:15:19 GMT
+
+https://screenrant.com/him-netflix-movie-release-second-chance/
+
+A 2025 film that faced a less than stellar response to its theatrical release is set to get a second chance in this regard in a matter of days.
+---------
+
+# Borderlands Officially Shadow-Drops New Limited-Time Game April 2026
+
+Games, Borderlands
+
+Sun, 12 Apr 2026 13:55:12 GMT
+
+https://www.cbr.com/borderlands-new-mobile-game-limited-time-april-2026/
+
+Borderlands fans get the surprise new game they didn't know they were missing out on, although it may not be around for all that much longer.
+---------
+
+# 35 Years Later, Star Trek’s Most Haunting Picard Moment Hits Twice as Hard
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sun, 12 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/star-trek-the-drumhead-haunting-picard-moment/
+
+In 1991, Star Trek: The Next Generation gave science fiction fans one of its most thought-provoking episodes, and it remains a haunting story still.
+---------
+
+# The Lord of the Rings' Most Important Friendship Had a Surprising Origin
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring
+
+Sun, 12 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-frodo-samwise-friendship-inspired-by-world-war-i/
+
+J. R. R. Tolkien's wartime experience served as the basis for the bond between The Lord of the Rings' Frodo Baggins and Samwise Gamgee.
+---------
+
+# 7 Best Dragon Ball Heroes That Are 100% Never Coming Back
+
+Anime, Dragon Ball, heroes, Dragon Ball Z
+
+Sun, 12 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/best-dragon-ball-heroes-never-returning/
+
+Dragon Ball loves to bring back familiar faces for dramatic effect, but there are some heroes who are unlikely to ever return.
+---------
+
+# 17 Years Later, This Superhero Masterpiece Is Still One of the Best Movies Ever
+
+Movie News, The Dark Knight, Christian Bale, Heath Ledger, Christopher Nolan
+
+Sun, 12 Apr 2026 14:02:26 GMT
+
+https://collider.com/batman-the-dark-knight-best-comic-book-movie-ever-streaming-success-apple-tv-april-2026/
+
+17 years later, the greatest comic book superhero movie ever made is still a resounding streaming success.
+---------
+
+# This Tom Hanks WWII Thriller Just Became One of Streaming’s All-Time Hits
+
+Movie News, Tom Hanks, Greyhound, Apple TV, World War II
+
+Sun, 12 Apr 2026 13:31:22 GMT
+
+https://collider.com/tom-hanks-ww2-thriller-greyhound-streaming-milestone-apple-tv-650-days/
+
+Tom Hanks’ WW2 film with Adolescence star Stephen Graham is officially one of streaming's all-time hits as it passes a massive milestone on Apple TV.
+---------
+
+# 7 Years Later, Michael Bay's Divisive Action Thriller on Netflix Has Gotten Better With Time
+
+Movie, Michael Bay, 6 Underground, Ryan Reynolds, Netflix
+
+Sun, 12 Apr 2026 13:31:13 GMT
+
+https://collider.com/6-underground-7-years-later-michael-bay-divisive-action-thriller-netflix-gotten-better-with-time/
+
+In 2019, Michael Bay teamed up with Ryan Reynolds and the writers behind Deadpool for 6 Underground, a quietly forgotten Netflix action epic.
+---------
+
+# Anya Taylor-Joy’s Jaw-Dropping Sci-Fi Blockbuster Passes Major Streaming Milestone
+
+Movie News, The Gorge, Anya Taylor-Joy, Miles Teller, Apple TV
+
+Sun, 12 Apr 2026 13:02:42 GMT
+
+https://collider.com/anya-taylor-joy-the-gorge-sci-fi-thriller-streaming-milestone-400-days-apple-tv/
+
+Anya Taylor-Joy and Miles Teller’s bonkers sci-fi hit, The Gorge, has passed an enormous streaming milestone on Apple TV.
+---------
+
+# 9 Greatest 1990s TV Thrillers Nobody Remembers
+
+TV Lists, Thriller, 1990s
+
+Sun, 12 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/greatest-1990s-tv-thrillers-nobody-remembers/
+
+There are plenty of great thrillers from the '90s that no one remembers, like 'Touching Evil' and 'Profit.'
+---------
+
 # After 76 Years, One Lost Piece of Batman Lore Finally Returns
 
 DC Comics, Batman
