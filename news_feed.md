@@ -1,3 +1,36 @@
+# New Pokémon DLC Leak Hints At Content To Come
+
+Gaming, Pokemon Champions, Pokemon, Live Service Games
+
+Sun, 12 Apr 2026 07:00:20 GMT
+
+https://screenrant.com/pokemon-champions-battlepass-season-2-leak-info/
+
+Nintendo closely guards its first-party properties, but Nintendo info always seems to be leaking, and now unannounced content has been found.
+---------
+
+# Venom Game Leak Unites Spider-Man Gamers
+
+Gaming, Venom, Marvel, Marvel's Spider-Man 2, Marvel's Wolverine, Triple-A Games
+
+Sun, 12 Apr 2026 07:00:20 GMT
+
+https://screenrant.com/venom-game-leak-spider-man-reactions/
+
+A Venom game spinning out of Insomniac's Marvel's Spider-Man franchise remains high on a lot of gamers' most anticipated wish lists.
+---------
+
+# Free YouTube Hit The Amazing Digital Circus Reveals Why Final Episode Is Paywalled to a Limited Theatrical Release
+
+Anime, The Amazing Digital Circus, YouTube
+
+Sun, 12 Apr 2026 06:24:08 GMT
+
+https://www.cbr.com/the-amazing-digital-circus-final-episode-limited-2026-release/
+
+Indie darling The Amazing Digital Circus is under fire for paywalling the finale of its free YouTube hit, limiting theatrical screenings worldwide.
+---------
+
 # Xbox Game Pass Losing 3 Free Games In Less Than 24 Hours
 
 Gaming, Xbox Game Pass
