@@ -1,3 +1,179 @@
+# You Won't Believe How Dark This One Piece Reference Is
+
+Anime, One Piece, The Boys
+
+Sun, 12 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/the-boys-one-piece-shoutout-jolly-roger/
+
+One of the darkest One Piece references in ages.
+---------
+
+# John Wayne's Breakout Role: How Stagecoach Launched a Hollywood Icon
+
+Movies, Stagecoach
+
+Sun, 12 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/stagecoach-john-wayne-classic-western-still-holds-up/
+
+John Wayne made the transition from B-movie bit player to A-list leading man with his turn as the Ringo Kid in John Ford's seminal western Stagecoach.
+---------
+
+# FX’s 7-Part Crime Series Changed TV More Than The Sopranos, Says Stephen King
+
+TV, Masked Recs
+
+Sun, 12 Apr 2026 14:53:10 GMT
+
+https://screenrant.com/the-shield-sopranos-change-tv-stephen-king/
+
+The Sopranos changed TV forever. But now, author and cinephile Stephen King is saying that a different series changed TV even more than it.
+---------
+
+# Noah Kahan: Out Of Body Review - Kahan's Documentary Is A Raw Look at Fame
+
+Streaming TV, Noah Kahan: Out of Body, Noah Kahan
+
+Sun, 12 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/noah-kahan-out-of-body-review/
+
+A raw, intimate look at the artist's life and creative process, Netflix's Noah Kahan: Out Of Body delves into fame, mental health struggles, and more.
+---------
+
+# Netflix's Best Crime Drama Is Ozark, A 4-Season Thriller That Stands Out
+
+Classic TV, Masked Recs
+
+Sun, 12 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/ozark-netflix-best-crime-series/
+
+Netflix's best original crime drama is Ozark, a four-season thriller starring Jason Bateman, and nothing Netflix has made since can top it.
+---------
+
+# Dragon Ball's Next Anime Isn't Just A Mistake, It's A Complete Waste Of Toei's Talent
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 12 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/dragon-ball-beerus-waste-talent/
+
+Fans are hungry for the Dragon Ball Super anime to return, but those in charge of it have something else in mind that no one is asking for.
+---------
+
+# We Could Get The Assassin’s Creed: Black Flag Remake Sooner Than Expected
+
+Gaming, Assassin's Creed 4: Black Flag, Triple-A Games, Assassin's Creed
+
+Sun, 12 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/assassins-creed-black-flag-remake-release-leak/
+
+The Assassin's Creed 4: Black Flag remake is closer to a proper reveal than ever before, and its release date may not be too far behind.
+---------
+
+# How Dr. Cox's Diagnosis In ABC's Scrubs Revival Sets Up Season 2 Addressed By Star John C. McGinley
+
+TV, Scrubs
+
+Sun, 12 Apr 2026 14:29:11 GMT
+
+https://screenrant.com/abc-scrubs-revival-season-2-cox-diagnosis-arc-explained-john-c-mcginley/
+
+John C. McGinley speaks out about a possible season 2 of the Scrubs reboot, and his thoughts on Dr. Cox's potentially terminal diagnosis.
+---------
+
+# Homelander Actor’s Wild Action Thriller Soars On Streaming After The Boys Season 5 Premiere
+
+Movies, Masked Recs
+
+Sun, 12 Apr 2026 14:28:07 GMT
+
+https://screenrant.com/g20-movie-hbo-max-streaming-success-april-2026/
+
+The Boys has a star-studded cast of characters, and now that it's had its season 5 premiere, one cast member's movies is succeeding on streaming.
+---------
+
+# Lord Of The Rings Fans Need To Learn From Star Wars Before It's Too Late
+
+Movies, The Lord of the Rings, Star Wars
+
+Sun, 12 Apr 2026 14:16:19 GMT
+
+https://screenrant.com/lord-of-the-rings-star-wars-learn-nostalgia-lesson/
+
+The Lord of the Rings franchise is more active than it's been in years, but there are signs it could be suffering from Star Wars' biggest problem.
+---------
+
+# Event Horizon Has the Smartest Twist in Sci-Fi Movie History
+
+Movies, Event Horizon
+
+Sun, 12 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/event-horizon-ship-villain-reveal-smartest-sci-fi-twist/
+
+The big reveal in this terrifying cult classic sci-fi horror was ingenious at the time, and has only gotten better with age.
+---------
+
+# 10 Classic JRPGs That Are Even Better the Second Time Around
+
+Games, JRPG, Final Fantasy
+
+Sun, 12 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/best-classic-jrpgs-better-on-replay/
+
+JRPGs ara often a massive time investment, but a handful of them are work doing a second runthrough, as the gameplay and story hit different.
+---------
+
+# 5 Stephen King Shows That Are Better Than His Movies
+
+TV, Stephen King, The Outsider, It: Welcome to Derry
+
+Sun, 12 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/stephen-king-shows-better-than-movies-list/
+
+Stephen King is the master of horror for a reason, but some television series elevate his work beyond the source material.
+---------
+
+# 10 Most Perfect Horror Endings of All Time, Ranked
+
+Movie, Saw, The Shining, The Thing, Horror
+
+Sun, 12 Apr 2026 14:33:12 GMT
+
+https://collider.com/most-perfect-horror-movie-endings-ranked/
+
+Saw, Halloween III: Season of the Witch, and The Shining all have some of the best, most perfect endings in horror movie history.
+---------
+
+# Guy Ritchie "Indiana Jones Wannabe" 'Fountain of Youth' Defies Critics to Become Streaming Treasure
+
+Movie News, Guy Ritchie, Fountain of Youth, Action, Adventure
+
+Sun, 12 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/fountain-youth-guy-ritchie-stream-april-2026/
+
+Starring  John Krasinski, Natalie Portman, and Eiza González, the action-adventure has proven to be a real crowd-pleaser.
+---------
+
+# Taylor Sheridan's 'Marshals': The 13-Part Action Thriller Series Is Officially Beating the Backlash
+
+Features, Marshals
+
+Sun, 12 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/marshals-streaming-success-paramount-plus-2026/
+
+Reviews obviously don't matter for 'Marshals', as the new 'Yellowstone' spin-off continues to soar on streaming.
+---------
+
 # Chainsaw Man's Ending Isn't Just A Disaster, It's An Industry-Wide Wakeup Call For How Shonen Needs To Change
 
 Anime, Chainsaw Man, Shonen Jump, Jujutsu Kaisen, Demon Slayer
