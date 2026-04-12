@@ -1,3 +1,113 @@
+# HBO's Binge-Worthy Series: The Last of Us
+
+Streaming TV, Masked Recs
+
+Sun, 12 Apr 2026 19:45:19 GMT
+
+https://screenrant.com/the-last-of-us-hbo-post-apocalyptic-show-best-binge/
+
+HBO's two-season adaptation of The Last of Us is one of its most binge-worthy shows. It's fast-paced, action-packed, and deeply emotional.
+---------
+
+# Justified: FX's Best Cast and Stellar Guest Stars
+
+Classic TV, Masked Recs
+
+Sun, 12 Apr 2026 19:31:18 GMT
+
+https://screenrant.com/justified-fx-western-tv-show-best-cast/
+
+Discover why Justified boasts one of FX's finest casts, featuring standout performances and a who's who of guest stars, making it a neo-Western gem with a near-perfect Rotten Tomatoes score.
+---------
+
+# Pokémon Champions Fixes Incoming, But There's More Work To Be Done
+
+Gaming, Pokemon Champions
+
+Sun, 12 Apr 2026 19:31:18 GMT
+
+https://screenrant.com/pokemon-champions-fixes-first-patch-details/
+
+Pokémon Champions is ready to fix some of the worst bugs plaguing its launch, but there is still a lot of work to be done on the game afterwards.
+---------
+
+# 10 Best Space Games To Keep Fueling Your Artemis II Obsession
+
+Gaming, Triple-A Games, PC, Sci-Fi
+
+Sun, 12 Apr 2026 19:31:18 GMT
+
+https://screenrant.com/space-games-flight-exploration-colonization-artemis-ii/
+
+It feels like a new era for space flight after the successful return of the Artemis II crew, and plenty of games can continue that renewed excitement.
+---------
+
+# These 5 Free Xbox Game Pass Games Are Only Available Until April 15
+
+Games, Xbox Series X (1), Microsoft, Grand Theft Auto
+
+Sun, 12 Apr 2026 19:35:12 GMT
+
+https://www.cbr.com/xbox-game-pass-games-free-games-officially-leaving-april-15/
+
+Games being dropped from Xbox Game Pass is normal, but Microsoft is now facing some hefty losses.
+---------
+
+# Near-Perfect Hard Sci-Fi Shows Nobody Remembers
+
+TV, Sci-Fi, Defying Gravity, Space: Above and Beyond, Odyssey 5
+
+Sun, 12 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/near-perfect-forgotten-hard-sci-fi-shows-list/
+
+Some of the best hard sci-fi TV shows ever made slipped through the cracks, and these near-perfect series deserve another look from modern fans.
+---------
+
+# This 4-Part Sci-Fi Series Surging Past 208M Hours on Streaming Needs Another Season
+
+TV Features, Resident Alien, Netflix, Alan Tudyk, SyFy
+
+Sun, 12 Apr 2026 19:55:13 GMT
+
+https://collider.com/resident-alien-netflix-208-million-hours-on-streaming-why-it-needs-a-renewal/
+
+SyFy's Resident Alien is smashing the streaming charts, which shows that the offbeat series needs another season.
+---------
+
+# Netflix’s 8-Part Fantasy Series Is So Good, You’ll Finish It in One Sitting
+
+TV Features, Kaos, Netflix, Jeff Goldblum, Fantasy
+
+Sun, 12 Apr 2026 19:41:12 GMT
+
+https://collider.com/kaos-netflix-fantasy-series-streaming/
+
+Netflix's Kaos, which weaves Greek mythology into an addictive dark comedy, crafts an engaging tale that will keep you hooked from start to finish.
+---------
+
+# Hulu’s 3-Part True-Crime Series Is So Good, You’ll Finish It in One Sitting
+
+TV Features, Documentary, Hulu, True Crime, Crime
+
+Sun, 12 Apr 2026 19:14:12 GMT
+
+https://collider.com/friends-like-these-the-murder-of-skylarneese-hulu-true-crime/
+
+Hulu's compelling 3-part documentary series tells the chilling story of Skylar Neese's murder.
+---------
+
+# 'Maul - Shadow Lord' Is a Hit on Disney+ and Proves the Franchise is Still Invaluable
+
+Features, Star Wars: Maul - Shadow Lord
+
+Sun, 12 Apr 2026 19:30:18 GMT
+
+https://movieweb.com/star-war-maul-shadowlord-top-streaming/
+
+In just three days, 'Maul - Shadow Lord' climbed to the number one spot on Disney+ global Top 10 watch list.
+---------
+
 # Henry Cavill’s Superman Quietly Restored One Iconic ’90s Design Detail
 
 Comics, Superman, Henry Cavill
