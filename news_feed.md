@@ -1,3 +1,278 @@
+# Henry Cavill’s Superman Quietly Restored One Iconic ’90s Design Detail
+
+Comics, Superman, Henry Cavill
+
+Sun, 12 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/henry-cavill-superman-quiet-return-90s-design/
+
+Over the last three decades, DC Comics has quietly phased out what was once an iconic Superman design element that Henry Cavill brought back.
+---------
+
+# 8 Best Final Fantasy Sequels Of All Time
+
+Gaming, Final Fantasy
+
+Sun, 12 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/final-fantasy-best-sequels-all-time/
+
+In almost 40 years, a number or Final Fantasy games have gotten actual sequels, but these are the best Final Fantasy sequels of all time.
+---------
+
+# HBO's The Righteous Gemstones Broke The Rule Other Shows Refuse To
+
+Classic TV, The Righteous Gemstones
+
+Sun, 12 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/the-righteous-gemstones-action-series-hbo-break-rule/
+
+Comedies often stop short of putting their characters' lives in danger, yet this HBO show thrived when crossing the line into full-fledged suspense.
+---------
+
+# Man Of Tomorrow Casting Update Revealed After James Gunn Denies Previous Report
+
+DC Comics, Man of Tomorrow
+
+Sun, 12 Apr 2026 18:56:36 GMT
+
+https://screenrant.com/man-of-tomorrow-maxima-casting-update-report/
+
+Man of Tomorrow drama is brewing after James Gunn denied previous casting reports; new information has been revealed, and new actresses are named.
+---------
+
+# Nicholas Hoult Transforms Into Lex Luthor Ahead Of Superman 2 Production
+
+DC Comics, Man of Tomorrow
+
+Sun, 12 Apr 2026 18:43:11 GMT
+
+https://screenrant.com/man-of-tomorrow-nicholas-hoult-lex-luthor-production/
+
+The Superman sequel Man of Tomorrow could begin production sooner than people think, as Nicholas Hoult begins his Lex Luthor transformation.
+---------
+
+# Star Wars Reportedly Won’t Let Writers Make Fan-Favorite Legends Character Canon
+
+TV, Star Wars, Mara Jade
+
+Sun, 12 Apr 2026 18:37:23 GMT
+
+https://screenrant.com/star-wars-writers-mara-jade-canon-not-allowed/
+
+An increasing number of Star Wars Legends characters have become canon, but writers are reportedly not allowed to include one Legends individual.
+---------
+
+# The Americans: A Masterful Spy Thriller & Family Drama That's Still Amazing
+
+Classic TV, Masked Recs
+
+Sun, 12 Apr 2026 18:30:09 GMT
+
+https://screenrant.com/the-americans-fx-cold-war-spy-show-perfect/
+
+FX's The Americans is a six-season Cold War spy thriller masterpiece that holds up through the entire run and is getting a remake on Disney+.
+---------
+
+# PlayStation Is Planning Multiple Big Announcements, Leak Suggests
+
+Gaming, PlayStation Plus, State of Play, PlayStation 5
+
+Sun, 12 Apr 2026 18:30:09 GMT
+
+https://screenrant.com/playstation-state-of-play-rumor-leak-dates/
+
+PlayStation is sitting on a ton of game announcements and updates, according to leaks and rumors, and it could be an exciting few months ahead.
+---------
+
+# Jerry Maguire Review: 30 Years Later, This Tom Cruise Classic Feels Like It’s From A Bygone Era
+
+Movies, Jerry Maguire
+
+Sun, 12 Apr 2026 18:06:22 GMT
+
+https://screenrant.com/jerry-maguire-movie-review-anniversary-re-release/
+
+Back in theaters for its 30th anniversary, Cameron Crowe’s Jerry Maguire feels more like a time capsule than I expected, but it all still hits.
+---------
+
+# Euphoria Creator Reveals Why Angus Cloud's Fez Is Alive In Season 3
+
+TV, Euphoria
+
+Sun, 12 Apr 2026 18:05:34 GMT
+
+https://screenrant.com/euphoria-season-3-angus-cloud-fez-alive-sam-levinson-explained/
+
+Sam Levinson explains why Angus Cloud's Fez remains alive in Euphoria season 3 as the hit HBO drama series returns after a lengthy hiatus.
+---------
+
+# Guy Ritchie's Young Sherlock Rises on Streaming Amid Season 2 Speculation
+
+TV, Young Sherlock, Prime Video, Crime
+
+Sun, 12 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/guy-ritchie-young-sherlock-crime-mystery-prime-video-success-april-2026/
+
+Guy Ritchie's Young Sherlock is climbing the streaming charts on Prime Video as fans speculate about a potential second season.
+---------
+
+# Szymon Kudrański Confirms the Return of Something Epic
+
+CBR Exclusives, image comics, szymon kudranski
+
+Sun, 12 Apr 2026 18:47:14 GMT
+
+https://www.cbr.com/szymon-kudraski-interview-something-epic-return-no-mans-land-movie/
+
+In a CBR exclusive interview with Szymon Kudrański, we share Todd McFarlane's cover for the return of Something Epic, and talk No Man's Land as a film
+---------
+
+# Avatar: The Last Airbender Movie Footage Revealed Online 6 Months Ahead of Release
+
+Anime, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender
+
+Sun, 12 Apr 2026 18:35:40 GMT
+
+https://www.cbr.com/avatar-last-airbender-aang-movie-footage-reveal/
+
+Clips from the upcoming Avatar: Aang, the Last Airbender animated feature film, are revealed online, giving fans a glimpse of things to come.
+---------
+
+# Marvel Officially Reveals All New X-Men Comic Coming This Fall
+
+Comics, Marvel, Marvel Comics, MCU, X-Men, X-Men '97
+
+Sun, 12 Apr 2026 18:32:23 GMT
+
+https://www.cbr.com/marvel-officially-reveals-new-x-men-this-fall/
+
+The X-Men are getting a brand-new storyline that no one could've ever expected.
+---------
+
+# Avengers Doomsday Could Officially End the MCU's Box Office Monopoly
+
+Movies, MCU, Avengers, Marvel
+
+Sun, 12 Apr 2026 18:30:17 GMT
+
+https://www.cbr.com/avengers-doomsday-ends-mcu-box-office-monopoly/
+
+The future of the MCU is in doubt, and with the risky Avengers: Doomsday coming soon, it could be the end of an era for the superhero universe.
+---------
+
+# HBO Fantasy Shows Every Fan Should Have on Their Watchlist
+
+TV, HBO Max, Fantasy, Dune: Prophecy, Game Of Thrones
+
+Sun, 12 Apr 2026 18:30:17 GMT
+
+https://www.cbr.com/hbo-fantasy-shows-must-watch-list/
+
+From Dune prequels to Game of Thrones spin-offs, these series will transport viewers to fantastical realms that they won't want to leave.
+---------
+
+# Chucky's Future Revealed 2 Years After Cancellation
+
+TV, Chucky, Child's Play
+
+Sun, 12 Apr 2026 18:24:29 GMT
+
+https://www.cbr.com/chucky-future-update-don-mancini/
+
+Chucky creator Don Mancini has revealed what's next for every horror fan's favorite killer doll.
+---------
+
+# 10 Strongest Anime Characters Who Could Solo Sung Jin-woo’s Shadow Army
+
+Anime, Solo Leveling, Jujutsu Kaisen, Dragon Ball
+
+Sun, 12 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/solo-leveling-strongest-anime-characters-beat-sung-jin-woo/
+
+Jinwoo from Solo Leveling is one of the strongest anime characters ever, but there are still heroes and villains who can defeat his Shadow Army.
+---------
+
+# Dexter: Resurrection Season 2 Gets Exciting Filming Update
+
+TV, Dexter: Resurrection
+
+Sun, 12 Apr 2026 18:05:27 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-filming-update/
+
+Dexter: Resurrection will be returning sooner than fans have been expecting.
+---------
+
+# 9 Years Later, John Cena’s 108-Minute Fantasy Movie Is One of the Best on Streaming
+
+Movie News, John Cena, The Wild Robot, Ferdinand, HBO Max
+
+Sun, 12 Apr 2026 19:00:13 GMT
+
+https://collider.com/john-cena-forgotten-fantasy-movie-ferdinand-streaming-success-hbo-max-april-2026/
+
+John Cena's forgotten 2017 animated movie, Ferdinand, is a streaming hit in the U.S. Here's where you can watch the charming family film.
+---------
+
+# 7 Fan-Favorite Netflix Shows Nobody Remembers
+
+TV, Netflix, GLOW, Bloodline, Santa Clarita Diet
+
+Sun, 12 Apr 2026 18:50:02 GMT
+
+https://collider.com/fan-favorite-netflix-shows-nobody-remembers/
+
+Sense8, She's Gotta Have It, Santa Clarita Diet, GLOW, Bloodline, and more make up our list of fan-favorite Netflix shows nobody remembers.
+---------
+
+# 7 Action Movies That Blow John Wick Out of the Water
+
+Movie, John Wick, Action, Gladiator, Kill Bill: Vol. 1
+
+Sun, 12 Apr 2026 18:40:12 GMT
+
+https://collider.com/movies-better-action-than-john-wick/
+
+John Wick might be the beloved franchise of the genre, but movies like Gladiator, Kung Fu Hustle, and Kill Bill Vol. 1 arguably have better action.
+---------
+
+# Henry Cavill's Forgotten Romantic-Comedy Adaptation "Amused" Roger Ebert
+
+Features, Henry Cavill, I Capture the Castle, Romance, Drama, Roger Ebert
+
+Sun, 12 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/henry-cavill-i-capture-the-castle-roger-ebert/
+
+One of Henry Cavill's earliest roles is in a forgotten rom-com where the unrecognizable 'Man of Steel' star "amused" Roger Ebert.
+---------
+
+# 'Daemons of the Shadow Realm' is Crunchyroll's New 'Jujutsu Kaisen' Replacement on Streaming
+
+TV News, Daemons of the Shadow Realm, Crunchyroll, Hot on Streaming, Jujutsu Kaisen
+
+Sun, 12 Apr 2026 18:31:18 GMT
+
+https://movieweb.com/daemons-of-the-shadow-realm-jujutsu-kaisen-streaming-success-crunchyroll-april-2026/
+
+'Jujutsu Kaisen' fans need to watch 'Daemons of the Shadow Realm,' which is now streaming on Crunchyroll.
+---------
+
+# Bryan Cranston Defends Divisive 'Breaking Bad' Character From Frankie Muniz
+
+TV News, Breaking Bad, Bryan Cranston, Frankie Muniz
+
+Sun, 12 Apr 2026 18:26:59 GMT
+
+https://movieweb.com/bryan-cranston-defends-breaking-bad-frankie-muniz/
+
+Frankie Muniz resurrects an old 'Breaking Bad' talking point for his 'Malcolm in the Middle' costar.
+---------
+
 # The Boys Parodies Fantastic Four's Thing With Disturbing Rock Monster
 
 Streaming TV, The Boys
