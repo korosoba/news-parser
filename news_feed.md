@@ -1,3 +1,124 @@
+# Nosferatu Director's Forgotten Movie Masterpiece Turns 100 This Year
+
+Movies, Faust, Horror
+
+Sun, 12 Apr 2026 21:55:18 GMT
+
+https://screenrant.com/faust-movie-fw-murnau-100-2026/
+
+One of F.W. Murnau’s most underrated achievements turns 100 this year, reminding audiences that Nosferatu wasn’t his only horror masterpiece.
+---------
+
+# The Last of Us’ Underrated Prequel Makes HBO’s Divisive Series Completely Unnecessary
+
+Comics, The Last of Us
+
+Sun, 12 Apr 2026 21:34:28 GMT
+
+https://screenrant.com/the-last-of-us-american-dreams-series-season-3-unnecessary/
+
+The Last of Us has gone down a dark road, and one it previously walked may be its best path to redemption following its HBO TV show's third season.
+---------
+
+# Best Baldur's Gate 3 Subclass For Every Companion In Patch 8
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 12 Apr 2026 21:30:21 GMT
+
+https://screenrant.com/baldurs-gate-3-best-companion-subclasses-patch-8/
+
+With the final update for Baldur's Gate 3 introducing 12 new subclasses, it's time to see which subclass is the best choice for each companion.
+---------
+
+# FX's Fargo Series Successfully Adapted The Coen Brothers For Television
+
+Streaming TV, Masked Recs
+
+Sun, 12 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/fargo-hulu-crime-thriller-deserves-masterpiece-status/
+
+Adapting a Coen brothers masterpiece into an anthology series might've seemed like a fool's errand, but Hulu's Fargo show is a masterpiece.
+---------
+
+# 10 Forgotten Animated Blockbusters, Ranked By Box Office
+
+Classic Movies, Ranking
+
+Sun, 12 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/animated-blockbusters-forgotten-ranked/
+
+These 10 animated movies made a ton of money at the box office, so why is it that these blockbusters are almost completely forgotten today?
+---------
+
+# Malcolm in the Middle Revival Becomes an Instant Disney+ Hit
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle
+
+Sun, 12 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-lifes-still-unfair-revival-disney-global-hit-april-2026/
+
+One of the most beloved sitcoms of the century is taking over the streaming charts thanks to the recently released revival series.
+---------
+
+# Dark Teen Shows to Watch Ahead of Mike Flanagan’s Carrie
+
+TV, Carrie, Wednesday, Horror, I Am Not Okay with This
+
+Sun, 12 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/dark-teen-shows-must-watch-before-mike-flanagan-carrie/
+
+These grim teen shows capture the thrill and destruction of sudden supernatural powers, perfect precursors to Mike Flanagan's upcoming Carrie reboot.
+---------
+
+# Stephen King Says The Shield Changed TV More Than The Sopranos
+
+TV, Stephen King, The Shield
+
+Sun, 12 Apr 2026 21:26:24 GMT
+
+https://www.cbr.com/stephen-king-praises-the-shield/
+
+The Sopranos gets too much credit for its role in changing TV according to Stephen King.
+---------
+
+# 8 Action Movies That Are Most Perfectly Written
+
+Movie, Action, The Dark Knight, Mad Max: Fury Road, The Matrix
+
+Sun, 12 Apr 2026 21:55:12 GMT
+
+https://collider.com/action-movies-perfectly-written/
+
+From Die Hard to The Dark Knight, these action movies prove great writing drives every explosion, chase, and unforgettable moment.
+---------
+
+# 10 Movies That Steven Spielberg Wants You To See
+
+Movie, Steven Spielberg, Citizen Kane, Dune: Part Two, The Greatest Show on Earth
+
+Sun, 12 Apr 2026 21:42:13 GMT
+
+https://collider.com/movies-steven-spielberg-wants-you-to-see/
+
+From modern masterpieces like Dune: Part Two to classics like Citizen Kane, Steven Spielberg's appraisal of these movies makes them must-see pictures.
+---------
+
+# HBO's 'Harry Potter' Reboot Series Is Officially Including a Character Cut From the Movies
+
+TV News, Harry Potter, HBO Max, John Lithgow, Janet McTeer
+
+Sun, 12 Apr 2026 21:30:13 GMT
+
+https://collider.com/hbo-harry-potter-reboot-series-including-cut-character-peeves-poltergeist/
+
+HBO's new Harry Potter series is bringing a character "back from the dead" in a new look at Peeves. Check it out here.
+---------
+
 # 10 Sci-Fi Movies That Are Amazing From Start to Finish
 
 Movies, Sci-Fi, Recommendation
