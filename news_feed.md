@@ -1,3 +1,168 @@
+# Marvel May Have Finally Set Up Daredevil's Avengers Movie Debut
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Sun, 12 Apr 2026 15:51:19 GMT
+
+https://screenrant.com/daredevil-avengers-movie-appearance-setup/
+
+A surprise Marvel connection to Daredevil's story in Born Again season 2 might be the first step in setting up Charlie Cox being in an Avengers movie.
+---------
+
+# Why Season 5 Of Prime Video's The Boys Is Taking Over The U.S. (Even Beating Invincible)
+
+Streaming TV, The Boys
+
+Sun, 12 Apr 2026 15:45:19 GMT
+
+https://screenrant.com/the-boys-season-5-prime-video-top-1-show-april-2026/
+
+While Invincible season 4 has made a real impact, Prime's other flagship superhero show has taken over the streaming charts, and with good reason.
+---------
+
+# Netflix's Man On Fire Adaptation Is Its Best Chance Of Topping Reacher
+
+Streaming TV, Reacher
+
+Sun, 12 Apr 2026 15:32:19 GMT
+
+https://screenrant.com/netflix-man-on-fire-beat-reacher-action-thriller-series/
+
+Amazon's Reacher series has become a streaming sensation, but Netflix is gearing up to challenge its throne with Man on Fire.
+---------
+
+# New Hitman Game Reveal Divides Fans
+
+Gaming, Hitman, Triple-A Games, PC
+
+Sun, 12 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/hitman-board-game-reveal-fan-reaction/
+
+The Hitman series has never shied away from creative projects, but its upcoming game has more than a few fans conflicted over its release.
+---------
+
+# The Pitt Could Run Forever Under One Condition
+
+Streaming TV, The Pitt
+
+Sun, 12 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/the-pitt-last-forever-condition/
+
+The groundbreaking medical drama has set itself up for a near-infinite lifespan, so long as it learns from its predecessor's fatal flaw.
+---------
+
+# The 9-Part Thriller That Invented Binge-Watching Is Still Unbeatable 25 Years Later, And It's Streaming Now On Hulu
+
+TV, 24, Hulu
+
+Sun, 12 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/24-show-thriller-hulu-streaming-binge-watch-invention/
+
+2001 saw the arrival of a groundbreaking thriller series that would practically invent binge-watching, and the whole show is now streaming on Hulu.
+---------
+
+# Project Hail Mary Hits Huge Box Office Milestone That Cements It As One Of Sci-Fi's Biggest Hits
+
+Movies, Project Hail Mary, Box Office Milestone
+
+Sun, 12 Apr 2026 15:27:51 GMT
+
+https://screenrant.com/project-hail-mary-box-office-500-million-global-milestone/
+
+The Ryan Gosling sci-fi movie Project Hail Mary rockets past a major box office milestone that secures its position as an all-time theatrical hit.
+---------
+
+# Sydney Sweeney’s R-Rated Euphoria Season 3 Scenes Are Already Sparking Controversy
+
+TV, Euphoria
+
+Sun, 12 Apr 2026 15:27:08 GMT
+
+https://screenrant.com/euphoria-season-3-sydney-sweeney-controversial-scene-reaction/
+
+Euphoria is returning after a four-year hiatus, and Sydney Sweeney's R-rated, controversial scenes are already causing chaos amongst fans.
+---------
+
+# You, Me & Tuscany Has Critics & Audiences Very Divided On Rotten Tomatoes
+
+Movies, You, Me & Tuscany
+
+Sun, 12 Apr 2026 15:20:24 GMT
+
+https://screenrant.com/you-me-tuscany-rotten-tomatoes-critics-audience-divide/
+
+Audiences can't agree if You, Me & Tuscany is a successful and charming romantic comedy, or if it's too predictable to actually be enjoyed.
+---------
+
+# The Super Mario Galaxy Movie Hits Unprecedented Box Office Milestone
+
+Movies, The Super Mario Galaxy Movie, Super Mario Bros., Box Office Milestone
+
+Sun, 12 Apr 2026 15:13:45 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-box-office-600-million-global-milestone/
+
+During its sophomore weekend, The Super Mario Galaxy Movie cements its status as an animated hit by zooming past a major box office milestone.
+---------
+
+# 6 Sci-Fi Shows With Rare Near-Perfect Rotten Tomatoes Scores
+
+TV, Sci-Fi, The Expanse, Battlestar Galactica
+
+Sun, 12 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/sci-fi-shows-near-perfect-rt-scores-list/
+
+Science fiction has been a dominant force on television since the 1960s, and some series have earned a reputation as near-perfect stories.
+---------
+
+# To Be Hero X Is the Perfect Blend of The Boys Season 5 & American Idol
+
+Anime, To Be Hero X
+
+Sun, 12 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/best-chinese-anime-2025-to-be-hero-x/
+
+To Be Hero X's dark superhero society is far from perfect, taking the darkest elements of both The Boys and American Idol and putting them together.
+---------
+
+# This Quietly Ruthless 4-Part Sitcom Left Every Other Political Satire in the Dust
+
+TV Features, The Thick Of It, Veep, Armando Iannucci, Peter Capaldi
+
+Sun, 12 Apr 2026 15:54:12 GMT
+
+https://collider.com/the-thick-of-it-political-satire-sitcom/
+
+Armando Iannucci goes behind the scenes of Westminster in The Thick of It, the brutal satire with Peter Capaldi that influenced real British politics.
+---------
+
+# The Superhero Movie That Started a Billion-Dollar Franchise Proves It's Still One of the Best
+
+Movie News, Robert Downey Jr, Iron Man, Jon Favreau, Superhero
+
+Sun, 12 Apr 2026 15:04:25 GMT
+
+https://collider.com/best-superhero-franchise-starter-iron-man-mcu-streaming-comeback-april-2026/
+
+The greatest superhero franchise-starter of the century is making a streaming comeback months before Robert Downey Jr. returns to the MCU.
+---------
+
+# First 5 Minutes of 'Euphoria' Season 3 Released Online
+
+TV Trailers, Euphoria, Zendaya Coleman, HBO Max
+
+Sun, 12 Apr 2026 15:20:08 GMT
+
+https://movieweb.com/first-5-minutes-euphoria-season3-released/
+
+Rue (Zendaya) is in a tough spot in the opening moments of 'Euphoria' Season 3.
+---------
+
 # You Won't Believe How Dark This One Piece Reference Is
 
 Anime, One Piece, The Boys
