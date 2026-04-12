@@ -1,3 +1,201 @@
+# The Boys Parodies Fantastic Four's Thing With Disturbing Rock Monster
+
+Streaming TV, The Boys
+
+Sun, 12 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/the-boys-rock-hard-thing-fantastic-four/
+
+The Boys just introduced its own version of the Thing, the lava-spewing Rock Hard, and it's more body horror than Fantastic Four.
+---------
+
+# Baldur's Gate 3 Returns With Official New Release April 24
+
+Gaming, Baldur's Gate 3, PC
+
+Sun, 12 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/baldurs-gate-3-nolzurs-marvelous-minis-april-24/
+
+Baldur's Gate 3 fans will want to mark their calendars for a highly requested new release on April 24, with the most iconic characters set to return.
+---------
+
+# Disney+' 10/10 Sci-Fi Series Is So Good, Fans Don't Want It To Continue
+
+Classic TV, Loki, Marvel
+
+Sun, 12 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/loki-disney-plus-fans-dont-want-season-3/
+
+Loki fans are content with the show's perfect ending and don't want a third season, as the character's story will continue in the broader MCU.
+---------
+
+# Chucky’s Theatrical Movie Return & First Plot Details Reportedly Revealed After SyFy Cancellation
+
+Movies, Chucky
+
+Sun, 12 Apr 2026 17:45:09 GMT
+
+https://screenrant.com/chucky-movie-don-mancini-theatrical-release-plans/
+
+Franchise creator Don Mancini reveals plans for a brand-new Chucky movie designed for a theatrical release.
+---------
+
+# Fans Torn Over Whether GTA 6 Will Look Better Than The Trailer
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Sun, 12 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/gta-6-trailer-comparison-graphics-reaction/
+
+GTA 6 is already shaping up to be one of the most visually impressive games yet, but some fans think we've only seen a glimpse of its full potential.
+---------
+
+# 8 Animated Shows With The Best Villains, Ranked
+
+Classic TV
+
+Sun, 12 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/animated-shows-with-the-best-villains/
+
+The sky is the limit when it comes to animation, and these compelling, chilling, and unique antagonists showcase the medium's potential.
+---------
+
+# Sydney Sweeney's R-Rated Drama Christy Becomes an Instant Streaming Hit on HBO Max
+
+Movies, Christy
+
+Sun, 12 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/sydney-sweeney-christy-drama-hbo-max-april-2026/
+
+The drama was among Sweeney's box office disappointments in 2025.
+---------
+
+# The 10 Worst Spider-Man Stories Ever Written
+
+Comics, Spider-Man, Marvel Comics, superheroes
+
+Sun, 12 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/worst-spider-man-stories-ever-ranked-list/
+
+Spider-Man may be the greatest superhero of all time, but even he isn't immune to an atrocious story every once in a while.
+---------
+
+# Demon Slayer Lead Says Series Has Set 'Completely Unrealistic Standard' for Anime
+
+Anime, Demon Slayer: Kimetsu no Yaiba, voice actors, One-Punch Man
+
+Sun, 12 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/demon-slayer-zach-aguilar-anime-unrealistic-standard/
+
+The voice of Demon Slayer's Tanjiro reveals how the series has changed the anime landscape.
+---------
+
+# This Brand-New Pokémon Game is Perfect For Old-School Fans
+
+Games, Pokemon
+
+Sun, 12 Apr 2026 17:45:12 GMT
+
+https://www.cbr.com/pokemon-new-game-perfect-rpg-for-old-fans/
+
+Pokémon Sunset is the perfect game to make older fans fall in love with the series all over again.
+---------
+
+# HBO Max's Dark Comedy Hacks Becomes Streaming Hit with 100% RT Score
+
+TV, Hacks, Comedy, HBO Max
+
+Sun, 12 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/hacks-comedy-drama-hbo-success-april-2026/
+
+Jean Smart and Hannah Einbinder's dark comedy series Hacks debuts on HBO Max with a perfect 100% RT score, and becomes a streaming hit in the US.
+---------
+
+# Prime Video's 2-Part Crime Series Officially Beats 'Reacher' at Its Own Game
+
+TV News, Prime Video, Thriller, Cross, Streaming
+
+Sun, 12 Apr 2026 18:00:12 GMT
+
+https://collider.com/prime-video-crime-thriller-cross-aldis-hodge-streaming-milestone-100-days-april-2026/
+
+Prime Video's near-perfect crime thriller, Cross, starring Aldis Hodge just hit a huge streaming milestone in the U.S. Find out more below.
+---------
+
+# HBO’s Crushing 7-Part War Series Hits Even Harder in 2026
+
+TV Features, Generation Kill, David Simon, Alexander Skarsgard, Wilson Bethel
+
+Sun, 12 Apr 2026 17:58:12 GMT
+
+https://collider.com/generation-kill-hbo-war-series-streaming/
+
+HBO's gripping miniseries Generation Kill, based on Evan Wright's non-fiction novel, explores the aimlessness and consequences of the Iraq War.
+---------
+
+# Only 5 Fantasy Shows Are Better Than 'Supernatural'
+
+TV, Supernatural, Fantasy, Game Of Thrones, Avatar: The Last Airbender
+
+Sun, 12 Apr 2026 17:33:12 GMT
+
+https://collider.com/fantasy-shows-better-than-supernatural/
+
+Supernatural was a long-running favorite of the genre, but fantasy shows like Netflix's Arcane and HBO's Game of Thrones are arguably better.
+---------
+
+# 'The Pitt' Is a Masterpiece Drama That Is Changing How We Watch TV
+
+Features, The Pitt
+
+Sun, 12 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/the-pitt-hbo-max-changing-tv-habits/
+
+'The Pitt,' which stars Noah Wyle and Katherine LaNasa, airs on HBO Max, and the Season 2 finale arrives on April 16, 2026.
+---------
+
+# Korean Dramas Like Business Proposal to Watch Next
+
+TV Lists, K-Drama
+
+Sun, 12 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/korean-dramas-like-business-proposal/
+
+From in and out of the workplace, these Korean dramas will make fans of 'Business Proposal' swoon.
+---------
+
+# Tilda Swinton’s Voldemort Casting Gets Endorsement From Original ‘Harry Potter’ Star
+
+TV News, Harry Potter, Ralph Fiennes, Tilda Swinton
+
+Sun, 12 Apr 2026 17:45:54 GMT
+
+https://movieweb.com/tilda-swinton-voldemort-harry-potter-endorsement/
+
+Ralph Fiennes would have reprised the role himself had HBO asked, but "I think that ship has sailed."
+---------
+
+# 'Harry Potter' Season 2 Release Plan Spells Good News For Fans
+
+Features, Harry Potter, HBO Max
+
+Sun, 12 Apr 2026 17:30:17 GMT
+
+https://movieweb.com/harry-potter-season-2-release-concern/
+
+Filming for 'Harry Potter' Season 2 is set to take place much sooner than originally expected.
+---------
+
 # ABC Stil Hasn’t Renewed Two Fan-Favorite Hit Shows & That’s Mind-Boggling
 
 Network TV, The Rookie, Will Trent, ABC
