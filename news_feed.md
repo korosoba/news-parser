@@ -1,3 +1,124 @@
+# Steam Machine Pricing Leaves Gamers In Agreement
+
+Gaming, Steam
+
+Sun, 12 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/steam-machine-price-april-2026-leaks-gamer-reactions/
+
+As the Steam Machine's release date looms, potential customers weigh in on the console's price point.
+---------
+
+# GTA Online's Future Confirmed Ahead Of GTA 6 Launch
+
+Gaming, Grand Theft Auto, Grand Theft Auto Online, Grand Theft Auto 5
+
+Sun, 12 Apr 2026 10:00:18 GMT
+
+https://screenrant.com/gta-6-gta-online-fututure-confirmed/
+
+One of GTA Online's removed features could be on the way back, if recent leaks from dataminers are to be believed.
+---------
+
+# HBO's Barry Is Even Better Than The Wire
+
+TV, Barry, Crime, HBO Max, Thriller
+
+Sun, 12 Apr 2026 10:30:12 GMT
+
+https://www.cbr.com/hbo-barry-better-than-the-wire/
+
+HBO has an incredible catalog of great crime shows, including The Wire and The Sopranos, but this 2018 dark comedy may be the best.
+---------
+
+# Ahead of the Reboot, Martin Scorsese’s Cape Fear Still Sets the Gold Standard
+
+Movies, Cape Fear
+
+Sun, 12 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/cape-fear-1991-martin-scorsese-reboot/
+
+Scorsese’s 1991 adaptation of Cape Fear is still the undisputed champion of the psychological thriller genre.
+---------
+
+# Netflix's Something Very Bad Is Going to Happen Replaces Mike Flanagan
+
+TV, Mike Flanagan, Netflix, Something Very Bad Is Going to Happen, Horror
+
+Sun, 12 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/netflix-something-very-bad-is-going-to-happen-mike-flanagan-replacement/
+
+Mike Flanagan may be gone from Netflix, but there is a new horror miniseries ready to take up his mantle.
+---------
+
+# Val Kilmer Might Not Have Starred in This 10/10 Western If It Wasn't for Marlon Brando
+
+Movie Features, Tombstone, Val Kilmer, Marlon Brando, Western
+
+Sun, 12 Apr 2026 10:22:12 GMT
+
+https://collider.com/val-kilmer-tombstone-western-marlon-brando/
+
+Marlon Brando told Val Kilmer that he thinks every actor should star in at least one Western in their career.
+---------
+
+# The 'Malcolm in the Middle' Revival Gives Reese His Most Sympathetic Story Ever — Then Pulls the Rug Out
+
+Exclusives, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Hulu, Bryan Cranston
+
+Sun, 12 Apr 2026 10:15:33 GMT
+
+https://collider.com/malcolm-in-the-middle-lifes-still-unfair-daughter-twist-extreme-diarrhea-linwood-boomer-interview/
+
+Discover the secrets behind the Malcolm in the Middle revival's cruelest and sweetest jokes and twists from original series creator Linwood Boomer.
+---------
+
+# Only 3 Drama Shows Are Better Than ‘The Pitt’
+
+TV, The Pitt, Breaking Bad, The Wire, The Sopranos
+
+Sun, 12 Apr 2026 10:01:12 GMT
+
+https://collider.com/drama-shows-better-than-the-pitt/
+
+The Sopranos, Breaking Bad, and The Wire make up our list of drama shows that are better than The Pitt.
+---------
+
+# 1 Year Later, Stephen King’s Newest Thriller Is One of the Best on Prime Video
+
+Movie News, Stephen King, The Long Walk, Prime Video, Horror
+
+Sun, 12 Apr 2026 10:00:12 GMT
+
+https://collider.com/stephen-king-the-long-walk-prime-video-april-2026-streaming-success/
+
+Lionsgate's dystopian thriller, based on Stephen King's novel, has become a sleeper hit on Prime Video. Get all the details here.
+---------
+
+# Paramount's Best Serial Killer Series Quietly Returns as a Streaming Hit
+
+TV News, Dexter, Michael C. Hall, Paramount Plus, Dexter: Resurrection
+
+Sun, 12 Apr 2026 10:00:12 GMT
+
+https://collider.com/michael-c-hall-best-dexter-series-streaming-success-paramount-plus-april-2026/
+
+Twenty years on, Michael C. Hall's best Dexter series remains a fan favorite even as the sequel gears up for Season 2. Get all the details here.
+---------
+
+# Ben Affleck’s 183-Minute World War II Epic Hits Free Streaming on May 1
+
+Movie News, Pearl Harbor, Michael Bay, Ben Affleck, Josh Hartnett
+
+Sun, 12 Apr 2026 09:40:19 GMT
+
+https://collider.com/ben-affleck-ww2-epic-pearl-harbor-streaming-free-tubi-may-2026/
+
+25 years later, Michael Bay’s epic WW2 misfire with Ben Affleck is about to touch down on a free streamer. Read on for more.
+---------
+
 # Cyberpunk 2077 Is Getting A Brand-New Ending
 
 Gaming, Cyberpunk 2077
