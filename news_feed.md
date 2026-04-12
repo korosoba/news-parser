@@ -1,3 +1,58 @@
+# Xbox Game Pass Loses 5 Free Games On April 15
+
+Gaming, Xbox Game Pass, Live Service Games, PC, Triple-A Games
+
+Sun, 12 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-games-leaving-april-15/
+
+There are nearly 20 new free games arriving for Xbox Game Pass in April’s Wave 1 additions, but five free titles are leaving on April 15.
+---------
+
+# Sorry, But The X-Men’s Greatest Enemy Is Predictability,
+
+Comics, X-Men
+
+Sun, 12 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/x-men-greatest-enemy-predictability/
+
+Marvel's mutants have remained rather predictable for years, but the comic company must push past the status quo.
+---------
+
+# Netflix's First Original Hit Just Got Much Harder To Watch 13 Years Later
+
+TV News, House of Cards, Netflix, Kevin Spacey, Robin Wright
+
+Sun, 12 Apr 2026 11:00:13 GMT
+
+https://collider.com/house-of-cards-netflix-first-original-series-restricted-access-april-2026/
+
+Netflix is restricting access to its first-ever original series, House of Cards, starring Robin Wright. Read on for more information.
+---------
+
+# 10 Classic War TV Shows Still Worth Binge-Watching
+
+TV, The Pacific, Band of Brothers, M*A*S*H, War
+
+Sun, 12 Apr 2026 10:59:12 GMT
+
+https://collider.com/classic-war-shows-worth-binge-watching/
+
+Discover timeless war shows that hold up decades later, offering gripping stories and messages that remain relevant, from Band of Brothers to M*A*S*H.
+---------
+
+# Prime Video's 2-Part Sitcom Keeps Getting Better on Streaming
+
+TV Features, Jury Duty, Jury Duty Presents: Company Retreat, Prime Video, Comedy
+
+Sun, 12 Apr 2026 10:44:12 GMT
+
+https://collider.com/jury-duty-season-2-prime-video-sitcom-keeps-getting-better-streaming/
+
+Prime Video's Jury Duty combines reality TV with sitcoms, offering even more side-splitting laughs and heartwarming moments.
+---------
+
 # Steam Machine Pricing Leaves Gamers In Agreement
 
 Gaming, Steam
