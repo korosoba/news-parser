@@ -1,3 +1,58 @@
+# SNL Recap: Colman Domingo Hosts And Melania Trump Plans Her Speech
+
+TV, Saturday Night Live
+
+Sun, 12 Apr 2026 08:33:40 GMT
+
+https://screenrant.com/snl-recap-colman-domingo-hosts-melania-trump-speech/
+
+Colman Domingo hosts Saturday Night Live this week as the sketch comedy show parodies Melania Trump's press conference addressing Epstein.
+---------
+
+# Resident Evil Requiem Theory Further Supports Ada Wong DLC
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Sun, 12 Apr 2026 08:00:18 GMT
+
+https://screenrant.com/resident-evil-requiem-ada-wong-dlc-fan-theory/
+
+Resident Evil Requiem DLC is on the way, and one fan just found some evidence to support the idea that Ada Wong will have a starring role.
+---------
+
+# Dark Souls Returns With Official Release On May 15
+
+Gaming, PC, Dark Souls
+
+Sun, 12 Apr 2026 08:00:18 GMT
+
+https://screenrant.com/dark-souls-bonfire-release-may-15/
+
+Dark Souls is among the most beloved FromSoftware IPs of all time, and fans will want to mark their calendars for a new release dropping on May 15.
+---------
+
+# Apple TV’s 6-Part Sci-Fi Series Falls Short of Streaming Competition Despite Strong Reviews
+
+TV News, For All Mankind, Apple TV, Sci-Fi, Joel Kinnaman
+
+Sun, 12 Apr 2026 08:21:14 GMT
+
+https://collider.com/apple-tv-sci-fi-series-for-all-mankind-streaming-success-april-2026/
+
+For All Mankind remains one of Apple TV’s best sci-fi dramas, but it’s currently sitting below several other series on the global chart.
+---------
+
+# 6 Years Later, Kevin Costner’s Most Brutal Western Crime Thriller Is a Global Streaming Smash Hit
+
+Movie News, Kevin Costner, Let Him Go, Western, Streaming
+
+Sun, 12 Apr 2026 08:01:12 GMT
+
+https://collider.com/kevin-costner-western-crime-thriller-global-streaming-success-netflix-april-2026/
+
+Let Him Go has become a major Netflix streaming success years after release, giving Kevin Costner another late-career win.
+---------
+
 # New Pokémon DLC Leak Hints At Content To Come
 
 Gaming, Pokemon Champions, Pokemon, Live Service Games
