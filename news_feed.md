@@ -1,3 +1,377 @@
+# 3 Years Before One Piece, Netflix's 10/10 Action Fantasy Series Was The Best Live-Action Manga Adaptation
+
+Classic TV, Masked Recs, One Piece, Alice in Borderland, Netflix
+
+Mon, 13 Apr 2026 19:00:21 GMT
+
+https://screenrant.com/alice-in-borderland-netflix-best-live-action-manga-series/
+
+Before One Piece raised the bar, another Netflix show laid the foundations for successfully bringing beloved manga stories into live-action.
+---------
+
+# 10 '90s Sci-Fi TV Shows That Revolutionized The Genre
+
+Classic TV, The X-Files, Stargate SG-1, Star Trek: Deep Space Nine
+
+Mon, 13 Apr 2026 19:00:21 GMT
+
+https://screenrant.com/sci-fi-tv-shows-1990s-define-era/
+
+There are 10 groundbreaking sci-fi TV shows from the 1990s that pushed boundaries, expanded storytelling, and made the genre more mainstream.
+---------
+
+# Bleach's Final Season Announces Official Release Date, And It's Coming Sooner Than Fans Thought
+
+Anime, Bleach
+
+Mon, 13 Apr 2026 18:59:56 GMT
+
+https://screenrant.com/bleach-final-season-early-release-date/
+
+Bleach fans, prepare for a thrilling experience as the hit anime series returns to theaters with a peek at its final season.
+---------
+
+# The Wire: HBO's Groundbreaking Series with an Unmatched Ensemble Cast
+
+Classic TV, Masked Recs
+
+Mon, 13 Apr 2026 18:31:19 GMT
+
+https://screenrant.com/the-wire-hbo-best-ensemble-cast/
+
+The Wire's ensemble cast is a nice mix of established stars, rising stars, and breakout stars, and there isn't a false note in the whole lot.
+---------
+
+# It’s A Tragedy This Mandalorian Character Will Never Be On The Big Screen
+
+Movies, The Mandalorian and Grogu, The Mandalorian
+
+Mon, 13 Apr 2026 18:31:19 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-and-grogu-greef-karga-tragedy/
+
+The Mandalorian and Grogu, Star Wars' next theatrical release, is so exciting, but this one character from The Mandalorian will be missed.
+---------
+
+# Alan Ritchson Officially Leading New Netflix Survival Series
+
+TV, Alan Ritchson, Netflix
+
+Mon, 13 Apr 2026 18:17:10 GMT
+
+https://screenrant.com/alan-ritchson-netflix-survival-competition-series/
+
+Reacher star Alan Ritchson is officially leading Netflix's new survival series after starring in the streamer's movie War Machine earlier this year.
+---------
+
+# Dragon Ball Super Announces Its Next Big Anime Update: Details Here
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball Super, Dragon Ball
+
+Mon, 13 Apr 2026 18:13:56 GMT
+
+https://screenrant.com/dragon-ball-super-anime-update-announcement/
+
+It's official, Dragon Ball Super just got its next big anime update that fans will not want to miss, so here is everything you need to know.
+---------
+
+# Jack Black's 2-Hour Action Fantasy Movie Is Even Better Than Minecraft (#2 Trending In The U.S.)
+
+Movies, A Minecraft Movie, Jack Black, Jumanji, Jumanji: Welcome to the Jungle, Masked Recs
+
+Mon, 13 Apr 2026 18:02:19 GMT
+
+https://screenrant.com/jumanji-welcome-to-the-jungle-jack-black-best-action-fantasy-movie/
+
+In a career full of genre-hopping hits, one of Jack Black's funniest performances comes from an unexpected place in this action fantasy movie.
+---------
+
+# Brandon Sanderson Officially Reveals His Favorite Book of All-Time Is This Sci-Fi Masterpiece
+
+Books, Brandon Sanderson, Sci-Fi, Dune
+
+Mon, 13 Apr 2026 17:42:22 GMT
+
+https://screenrant.com/brandon-sanderson-favorite-book-dune-sci-fi-masterpiece/
+
+Brandon Sanderson is responsible for some of the most celebrated sci-fi and fantasy stories ever written, but even legendary authors are fans at heart
+---------
+
+# Stephen King Praises Netflix's Hit New R-Rated Horror Movie With "Best Line Of 2026 So Far"
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 17:36:27 GMT
+
+https://screenrant.com/stephen-king-netflix-thrash-horror-movie-praise/
+
+Stephen King praises Netflix's new hit R-rated horror movie, cheekily claiming that it contains this year's best line of dialogue, so far.
+---------
+
+# HBO's The Comeback Is an Underrated Mockumentary Series
+
+TV, The Comeback, HBO Max, Comedy
+
+Mon, 13 Apr 2026 19:01:12 GMT
+
+https://www.cbr.com/hbo-the-comeback-underrated-mockumentary-series/
+
+Lisa Kudrow's critically acclaimed HBO sitcom, The Comeback, is a unique mockumentary sitcom that's turning into a modern classic.
+---------
+
+# 10 of the Greatest Thrillers Ever That Are Based on a True Story
+
+Movies, Thriller, Dirty Harry, The Untouchables
+
+Mon, 13 Apr 2026 19:01:12 GMT
+
+https://www.cbr.com/greatest-thrillers-ever-based-on-true-story/
+
+Hollywood directors often look to true stories to inform their movies, and some of the greatest thrillers were ripped from the history books.
+---------
+
+# Project Hail Mary Tops Controversial Star Wars Movie at the Box Office
+
+Movies, Project Hail Mary, Sci-Fi, Solo: A Star Wars Story
+
+Mon, 13 Apr 2026 18:45:13 GMT
+
+https://www.cbr.com/project-hail-mary-beats-star-wars-solo-box-office-sci-fi-lord-miller/
+
+Phil Lord and Chris Miller just got revenge on the Star Wars franchise years after they were replaced on a controversial spinoff project.
+---------
+
+# Flashpoint Justifies That Barry Allen Was a Mistake
+
+Comics, DC Comics, Flash, Flashpoint
+
+Mon, 13 Apr 2026 18:45:13 GMT
+
+https://www.cbr.com/flashpoint-proved-that-barry-allen-was-a-mistake/
+
+In 2011, DC Comics used Barry Allen to create an unprecedented shake-up of continuity, but it called into question the speedster's place in the DCU.
+---------
+
+# Star Wars: Maul - Shadow Lord Beats Book of Boba Fett at Villain Stories
+
+TV, Star Wars: Maul - Shadow Lord, The Book of Boba Fett, Sci-Fi
+
+Mon, 13 Apr 2026 18:42:01 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-beats-book-of-boba-fett/
+
+The Book of Boba Fett failed to tell a proper villain story, but Star Wars: Maul - Shadow Lord is fixing that mistake on Disney+.
+---------
+
+# Game of Thrones Publisher Responds to Winds of Winter Release Date Leak
+
+TV, Game Of Thrones, George R.R. Martin
+
+Mon, 13 Apr 2026 18:17:09 GMT
+
+https://www.cbr.com/game-of-thrones-winds-of-winter-release-date-leak-response/
+
+George R. R. Martin's Game of Thrones book series publisher sets the record straight on The Winds of Winter's release.
+---------
+
+# 2000s Anime That Are the Good Kind of Cringe
+
+Anime, Lucky Star, Death Note, Ghost Stories, Fairy Tail
+
+Mon, 13 Apr 2026 18:15:13 GMT
+
+https://www.cbr.com/2000s-anime-cringe-but-good/
+
+Even guilty pleasure anime, like Vampire Knight and Love Hina, can be uniquely charming.
+---------
+
+# Sydney Sweeney's Steamy Scene in Euphoria Season 3 Premiere Just Pushed Fans Too Far
+
+TV, Euphoria
+
+Mon, 13 Apr 2026 17:43:00 GMT
+
+https://www.cbr.com/sydney-sweeney-steamy-scene-euphoria-season-3-premiere/
+
+Euphoria Season 3 couldn't come sooner, but now fans are shocked by the new episodes.
+---------
+
+# 403M Hours Later, One of Netflix’s Longest-Running Shows Says Everything About the Streamer Now
+
+TV Features, Virgin River, Netflix, Alexandra Breckenridge, Martin Henderson
+
+Mon, 13 Apr 2026 18:56:13 GMT
+
+https://collider.com/virgin-river-longest-running-netflix-show/
+
+Virgin River is a comforting Netflix series about a nurse practitioner who finds romance in a small, cozy town.
+---------
+
+# Alan Ritchson Heads to Netflix With a Brutal New Survival Series
+
+TV News, Alan Ritchson, Reacher, Netflix, Reality
+
+Mon, 13 Apr 2026 18:34:28 GMT
+
+https://collider.com/netflix-alan-ritchson-new-survival-competition-series-details/
+
+Alan Ritchson has officially doubled down with Netflix as he is set to host and executive produce a new survival competition series.
+---------
+
+# The Most Bonkers WWII Movie of the Decade Becomes a Netflix Sleeper Hit
+
+Movie News, Sisu, Thriller, Netflix, War
+
+Mon, 13 Apr 2026 18:23:46 GMT
+
+https://collider.com/sisu-ww2-thriller-netflix-streaming-success-april-2026/
+
+Three years later, one of the wildest WW2 movies of the decade is officially dominating streaming on Netflix. Get all the details here.
+---------
+
+# All 7 Ships in '9-1-1,' Ranked by Chemistry
+
+TV, 9-1-1, Romance, Drama, ABC
+
+Mon, 13 Apr 2026 18:22:13 GMT
+
+https://collider.com/9-1-1-couples-chemistry-ranked/
+
+From Buck and Eddie to Bobby and Athena to Maddie and Chimney, which couple has the best chemistry on the hit ABC procedural drama series 9-1-1?
+---------
+
+# After 9 Years, ‘The Mummy’ Officially Returns This Week With “Scariest Movie Ever”
+
+Movie News, Lee Cronin's The Mummy, Lee Cronin, Jack Reynor, The Mummy
+
+Mon, 13 Apr 2026 18:16:30 GMT
+
+https://collider.com/the-mummy-release-date-april-17-2026-scariest-adaptation-yet/
+
+After 9 years, a new adaptation of The Mummy brings the classic universal monster back to theaters this week with its scariest movie yet.
+---------
+
+# ‘John Wick’ Meets ‘James Bond’ in Netflix’s Binge-Worthy Spy Thriller Returning For Season 2
+
+TV News, Black Doves, James Bond, John Wick, Netflix
+
+Mon, 13 Apr 2026 18:13:56 GMT
+
+https://collider.com/black-doves-season-2-release-window-2026/
+
+John Wick meets James Bond in Netflix’s binge-worthy spy thriller returning for Season 2 later this year. Get the details here.
+---------
+
+# ‘Dune: Part 3’ Is Already Destroying ‘Avengers: Doomsday’ Ahead of Theatrical Release
+
+Movie News, Dune: Part Three, Avengers: Doomsday, Warner Bros., Marvel Studios
+
+Mon, 13 Apr 2026 18:11:11 GMT
+
+https://collider.com/dune-3-overtakes-avengers-doomsday-trailer-views-36-million/
+
+Dune: Part 3 has officially already destroyed Avengers: Doomsday in one key way, months ahead of both films’ arrival in theaters.
+---------
+
+# One of the Most Talked-About War Films of the Decade Is Dominating Prime Video
+
+Movie News, War, Civil War, Prime Video, Streaming
+
+Mon, 13 Apr 2026 18:04:46 GMT
+
+https://collider.com/civil-war-streaming-success-prime-video-april-2026/
+
+One of the most talked-about war movies of the 2020s is dominating Prime Video in America right now. See what the hype is about.
+---------
+
+# One of The Greatest Fantasy Series of the 21st Century Is Officially Streaming For Free
+
+TV News, Merlin, Game Of Thrones, Tubi
+
+Mon, 13 Apr 2026 17:59:21 GMT
+
+https://collider.com/bbc-fantasy-series-merlin-tv-show-streaming-free-tubi-april-2026/
+
+Over 15 years later, one of the greatest fantasy television shows of all time is officially available to stream for free. Here’s where you can watch.
+---------
+
+# 'Daredevil: Born Again' Season 2 Just Confirmed a Huge Jessica Jones Twist
+
+Features, Daredevil: Born Again, MCU, Jessica Jones
+
+Mon, 13 Apr 2026 19:00:19 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-jessica-jones-twist/
+
+Before Jessica Jones makes her MCU return in 'Daredevil: Born Again' Season 2, here is everything to know about the big reveal Marvel let slip.
+---------
+
+# Edward Norton's Unsettling Crime Thriller 'Primal Fear' Arrives on Streaming
+
+Movie News, Primal Fear, Coming/Leaving Streaming
+
+Mon, 13 Apr 2026 19:00:19 GMT
+
+https://movieweb.com/primal-fear-streaming-paramount-plus-april-2026/
+
+'Primal Fear,' starring Edward Norton, Richard Gere and Laura Linney, is now on Paramount's streaming service.
+---------
+
+# 'Little House on the Prairie' Trailer Reveals Netflix's Remake of Iconic Western Series
+
+TV News, Little House on the Prairie
+
+Mon, 13 Apr 2026 18:21:52 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-trailer/
+
+Netflix has unveiled the first teaser trailer for 'Little House on the Prairie,' based on the Laura Ingalls Wilder book series.
+---------
+
+# 'Welcome to Wrexham' Renewed Through Season 8 at FX Ahead of Season 5
+
+TV News, Welcome to Wrexham, Ryan Reynolds, Rob McElhenney
+
+Mon, 13 Apr 2026 18:10:47 GMT
+
+https://movieweb.com/welcome-to-wrexham-ryan-reynolds-renewed/
+
+Ryan Reynolds and Rob Mac's hit sports docuseries will continue for three more seasons, extending the series through 2029.
+---------
+
+# 'Ice Cream Man' Trailer: First Look at Eli Roth's "Insane" Horror Film
+
+Movie News, Ice Cream Man, Eli Roth, Horror
+
+Mon, 13 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/ice-cream-man-trailer/
+
+The first trailer for Eli Roth's 'Ice Cream Man' is here, giving audiences an inside scoop on what to expect from the "insane" horror film.
+---------
+
+# 10 Greatest War Movies No One Ever Talks About
+
+Movie Lists, War
+
+Mon, 13 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/best-war-movies-underrated/
+
+While movies like 'Apocalypse Now' are beloved, there are other impressive and important movies about war that deserve to be watched and talked about.
+---------
+
+# Phoebe Dynevor Says She Hasn't Been Asked Back for 'Bridgerton' Season 5
+
+TV News, Bridgerton, Phoebe Dynevor, Netflix
+
+Mon, 13 Apr 2026 17:49:12 GMT
+
+https://movieweb.com/bridgerton-phoebe-dynevor-return-daphne/
+
+Phoebe Dynevor says she'd return as Daphne in Bridgerton if asked, but after missing Seasons 3 and 4, that call still hasn't come.
+---------
+
 # 2026's Best Isekai Anime Has Finally Corrected Its One Major Error, And Now It’s Near-Perfect
 
 Anime, Isekai, Ascendance of a Bookworm, Crunchyroll
