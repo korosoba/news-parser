@@ -1,3 +1,366 @@
+# 2026's Best Isekai Anime Has Finally Corrected Its One Major Error, And Now It’s Near-Perfect
+
+Anime, Isekai, Ascendance of a Bookworm, Crunchyroll
+
+Mon, 13 Apr 2026 17:28:58 GMT
+
+https://screenrant.com/best-isekai-ascendance-of-a-bookworm-ai-anime-fixed/
+
+After a shocking and upsetting AI controversy, 2026's best isekai is back on its feet with a major correction that will make fans a lot happier.
+---------
+
+# Silo’s Perfect 7-Part Replacement Series Before Season 3 Returns Officially Releases For Free Next Month
+
+TV, Silo, The 100
+
+Mon, 13 Apr 2026 17:27:30 GMT
+
+https://screenrant.com/the-100-pluto-tv-free-streaming-release-date/
+
+Before Silo season 3 arrives, viewers have another hit Sci-Fi series to watch, as the Apple TV show's perfect replacement will soon stream for free.
+---------
+
+# What To Expect From CinemaCon 2026: Panels, Announcements, & Trailers
+
+New Movies, CinemaCon
+
+Mon, 13 Apr 2026 17:20:20 GMT
+
+https://screenrant.com/cinemacon-2026-panels-announcements-trailers-what-to-expect/
+
+CinemaCon 2026 is bringing Hollywood's biggest studios together in Las Vegas to tease the next year in theaters. Here's what to expect.
+---------
+
+# Steam Drops 24 Limited-Time Free Downloads In Major April Event
+
+Gaming, Steam, Triple-A Games
+
+Mon, 13 Apr 2026 17:20:16 GMT
+
+https://screenrant.com/steam-drops-24-limited-time-free-downloads-in-major-april-event/
+
+Thanks to a new massive event that just hit Steam, a ton of games are available to try for free, but it's only for a limited time.
+---------
+
+# 10 Biggest Reveals In Malcolm In The Middle: Life's Still Unfair
+
+Streaming TV, Malcolm in the Middle: Life's Still Unfair
+
+Mon, 13 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/malcolm-in-the-middle-lifes-still-unfair-biggest-reveals/
+
+Malcolm in the Middle: Life's Still Unfair is a satisfying revival, and it's full of surprising reveals about the characters all these years later.
+---------
+
+# John Cusack Makes His Graphic Novel Debut With the Genre-Bending MOMO
+
+Comics
+
+Mon, 13 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/momo-john-cusack-new-graphic-novel/
+
+A head trip.
+---------
+
+# The Devil Wears Prada 2 Officially Sets New Release On Hulu Next Week
+
+Movies, The Devil Wears Prada 2
+
+Mon, 13 Apr 2026 16:59:34 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-world-premiere-streaming-hulu/
+
+Days before The Devil Wars Prada 2 arrives in theaters, Disney is giving fans the opportunity to watch a special new release on Disney+ and Hulu.
+---------
+
+# Studio Ghibli Announces a New Project With Major Collaboration
+
+Anime, Studio Ghibli
+
+Mon, 13 Apr 2026 16:51:45 GMT
+
+https://screenrant.com/studio-ghibli-new-project-toho-collaboration/
+
+The legendary Studio Ghibli is teaming up for a major new project, rekindling the magic of its classic films in a bold way that fans will love.
+---------
+
+# Natalie Portman’s “Hard-Hitting” R-Rated Gritty Western Flop Is Now A Global Streaming Smash
+
+Movies, Natalie Portman
+
+Mon, 13 Apr 2026 16:51:23 GMT
+
+https://screenrant.com/jane-got-a-gun-hbo-max-streaming-success-april-2026/
+
+Star Wars star Natalie Portman's R-rated flop Western of the last decade is getting a second look as it makes its way up the global streaming charts.
+---------
+
+# 007 First Light Ending Leak Leaves Gamers Devastated
+
+Gaming, 007 First Light
+
+Mon, 13 Apr 2026 16:50:29 GMT
+
+https://screenrant.com/007-first-light-ending-leak-fan-reactions/
+
+It seems that 007 First Light's ending has leaked, and pretty much everyone is angry about it and warning people to avoid the spoilers.
+---------
+
+# Anime Streaming Site Dramacool Faces Complete Shutdown in New U.S. Court Win
+
+Anime, piracy
+
+Mon, 13 Apr 2026 17:35:12 GMT
+
+https://www.cbr.com/kocowa-dramacool-streaming-takedown/
+
+A U.S. court has ordered the seizure of 16 active domains and dismantled the piracy network that hosted anime and other Asian content.
+---------
+
+# ABC Seals Fate of Its 89% RT Crime Procedural After Record-Breaking Season 4
+
+TV, Will Trent, ABC
+
+Mon, 13 Apr 2026 17:34:09 GMT
+
+https://www.cbr.com/abc-will-trent-renewed-season-5/
+
+After ordering another season of The Rookie earlier today, ABC renews its record-breaking crime procedural for a fifth season.
+---------
+
+# Mr. & Mrs. Smith Confirms Maya Erskine & Donald Glover Season 2 Roles
+
+TV, Mr. & Mrs. Smith
+
+Mon, 13 Apr 2026 17:30:37 GMT
+
+https://www.cbr.com/prime-video-mr-mrs-smith-season-2-recast/
+
+The second season of the hit spy series is finally moving forward, but with some big changes.
+---------
+
+# Ending The Boys at Season 5 Confirms a Eric Kripke Trend
+
+TV, The Boys, eric kripke, Jensen Ackles, Jared Padalecki
+
+Mon, 13 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/the-boys-ending-season-5-eric-kripke-trend/
+
+The final season of The Boys is concluding in what may prove to be peak television.
+---------
+
+# The Treasure of Sierra Madre's Best Quote Defines the Western Outlaw
+
+Movies, Western, The Treasure of the Sierra Madre, Adventure
+
+Mon, 13 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/treasure-of-sierra-madra-quote-defines-western-outlaw/
+
+The golden age of Hollywood crafted the Western genre as it’s known today, and one classic represented the outlaw spirit perfectly.
+---------
+
+# 3 Years Later, Chris Pratt’s Marvel Return Teased in Avengers: Secret Wars Star-Lord Rumor
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Mon, 13 Apr 2026 17:21:51 GMT
+
+https://www.cbr.com/chris-pratt-mcu-star-lord-return-avengers-secret-wars-rumor/
+
+It's time to welcome Chris Pratt back to the Marvel Cinematic Universe as Star-Lord.
+---------
+
+# The Official 10 Best Final Fantasy Games of All Time
+
+Games, Final Fantasy, Final Fantasy VII
+
+Mon, 13 Apr 2026 17:15:13 GMT
+
+https://www.cbr.com/official-best-final-fantasy-games-of-all-time/
+
+The greatest Final Fantasy games are masterpieces that stand above all other RPGs, with devoted fandoms always ready to speak out in their favor.
+---------
+
+# 50 Years Later, Marvel's What If...? Reinvents Spider-Man And Other Iconic Heroes
+
+Comics, What If...?
+
+Mon, 13 Apr 2026 17:07:32 GMT
+
+https://www.cbr.com/marvels-what-if-50-years-spider-man-jessica-jones/
+
+Marvel offers even more alternate realities for What If...?'s 50th anniversary.
+---------
+
+# Eli Roth's Ice Cream Man Gets Bonkers First Trailer
+
+Movies, Ice Cream Man
+
+Mon, 13 Apr 2026 17:02:32 GMT
+
+https://www.cbr.com/eli-roth-ice-cream-man-teaser-trailer/
+
+The first footage has been revealed from the anticipated slasher movie.
+---------
+
+# Ocarina of Time Remake Quietly Confirmed By Nintendo in New Update
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Mon, 13 Apr 2026 16:45:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-confirmed-by-nintendo-new-update/
+
+Ocarina of Time is a game with an unmatched legacy, and Nintendo remaking it is the perfect way to celebrate Zelda's 40th anniversary.
+---------
+
+# 10 Most Perfect Movies of the Last 12 Years, Ranked
+
+Movie, Moonlight, Whiplash, Dune: Part Two, Mad Max: Fury Road
+
+Mon, 13 Apr 2026 17:14:14 GMT
+
+https://collider.com/most-perfect-movies-last-12-years-ranked/
+
+Mad Max: Fury Road, Whiplash, and Dune: Part Two are all among the greatest, most perfect movies released over the last 12 years.
+---------
+
+# ABC Just Renewed One of Its Fastest-Rising Crime Dramas for Season 5
+
+TV News, Will Trent, Ramon Rodriguez, ABC, Procedural
+
+Mon, 13 Apr 2026 17:13:34 GMT
+
+https://collider.com/will-trent-season-5-renewed-abc/
+
+ABC has officially locked in another season of one of its fan-favorite crime thrillers. Here's what we know about the return of Will Trent.
+---------
+
+# The 21 Best Indian Action Movies on Netflix
+
+Movie, Netflix, Action, RRR, Maharaja
+
+Mon, 13 Apr 2026 17:12:12 GMT
+
+https://collider.com/best-indian-action-movies-on-netflix/
+
+Discover the best Indian action movies on Netflix, featuring thrilling stories, stunning choreography, and powerful performances, from RRR to Jawan.
+---------
+
+# ‘The Rookie’ Becomes One of ABC’s Longest-Running Hits With Major Renewal News
+
+TV News, The Rookie, Nathan Fillion, ABC, Hulu
+
+Mon, 13 Apr 2026 17:06:50 GMT
+
+https://collider.com/the-rookie-season-9-renewed-abc/
+
+The Rookie is officially one of ABC's longest-running hits of all time as the network makes a major renewal decision regarding Season 9.
+---------
+
+# The Worst-Rated Season of HBO’s Most Controversial Series Tops Streaming Charts in Epic Debut
+
+TV News, Euphoria, Zendaya, Jacob Elordi, Sydney Sweeney
+
+Mon, 13 Apr 2026 16:31:24 GMT
+
+https://collider.com/euphoria-streaming-success-hbo-max-controversial-thriller-april-2026/
+
+HBO's controversial series Euphoria returned with a bang, despite poor reviews calling for its cancelation. Find out more.
+---------
+
+# ‘Project Hail Mary’ Officially Returns to IMAX After Record-Breaking Box Office Run
+
+Movie News, Project Hail Mary, Ryan Gosling, Lord and Miller, IMAX
+
+Mon, 13 Apr 2026 16:29:06 GMT
+
+https://collider.com/project-hail-mary-imax-70-mm-re-release-one-week-only-tickets-details/
+
+New sci-fi masterpiece, Project Hail Mary, is officially returning to IMAX and IMAX 70mm for a limited one-week re-release. Get your tickets now.
+---------
+
+# Season 3 of HBO's Most Dazzling Murder Mystery Thriller Is Finally Moving Forward 7 Years Later
+
+TV News, Big Little Lies, HBO, David E. Kelley, Nicole Kidman
+
+Mon, 13 Apr 2026 16:23:16 GMT
+
+https://collider.com/big-little-lies-season-3-update-david-e-kelley-hbo/
+
+After nearly 7 years since Season 2 of Big Little Lies premiered on HBO, the series is inching forward with a major Season 3 update.
+---------
+
+# Original Voldemort Actor Backs Surprising Replacement for HBO’s New ‘Harry Potter’ Series
+
+TV News, Harry Potter, HBO Max, Ralph Fiennes, Tilda Swinton
+
+Mon, 13 Apr 2026 16:21:35 GMT
+
+https://collider.com/harry-potter-series-ralph-finnes-not-returning-voldemort-replacement-tilda-swinton/
+
+Ralph Finnes rules out a return to the Harry Potter universe as the story’s greatest villain, Voldemort, but names a surprising pick to replace him.
+---------
+
+# New ‘Harry Potter’ Release Just Proved the Reboot Is Unstoppable
+
+TV News, Harry Potter, HBO, HBO Max
+
+Mon, 13 Apr 2026 16:19:34 GMT
+
+https://collider.com/finding-harry-the-craft-behind-the-magic-behind-the-scenes-series-streaming-success-april-2026/
+
+After just 1 week, the first release from HBO’s new Harry Potter series is officially a global streaming success.
+---------
+
+# 'The Hunger Games' Prequel Fixes a 14-Year-Old Haymitch Problem
+
+Features, The Hunger Games
+
+Mon, 13 Apr 2026 17:01:18 GMT
+
+https://movieweb.com/the-hunger-games-prequel-fixes-haymitch/
+
+'The Hunger Games: Sunrise on the Reaping' is a prequel starring Joseph Zada in the role of Haymitch Abernathy.
+---------
+
+# Survival Shark Thriller 'Trash' Becomes Netflix's Newest No. 1 Streaming Hit
+
+Movie News, Thrash, Hot on Streaming, Netflix, Thriller
+
+Mon, 13 Apr 2026 17:01:18 GMT
+
+https://movieweb.com/thrash-shark-survival-thriller-netflix-streaming-success-april-2026/
+
+Tommy Wirkola's latest survival thriller took a massive bite out of the competition this weekend on its way to becoming Netflix's newest hit.
+---------
+
+# Epic Movies Like Troy to Watch Next
+
+Movie Lists, Troy
+
+Mon, 13 Apr 2026 17:01:18 GMT
+
+https://movieweb.com/movies-like-troy/
+
+If you're captivated by the grandeur of Troy, there is a treasure trove of epic movies waiting for you.
+---------
+
+# 'M.I.A.' Trailer: First Look at Peacock Crime Thriller From 'Ozark' Creator
+
+TV News, M.I.A., Peacock, Ozark
+
+Mon, 13 Apr 2026 16:52:40 GMT
+
+https://movieweb.com/mia-trailer-peacock-streaming-series/
+
+Peacock has released a trailer for 'M.I.A.,' offering a first look at the new crime thriller series from 'Ozark' co-creator Bill Dubuque.
+---------
+
 # 3 Best Movies To Watch On Prime Video This Week (April 13-17)
 
 Movies, Prime Video, Recommendation
