@@ -1,3 +1,256 @@
+# This Season 6 Simpsons Joke Has Gotten Funnier With Inflation, Seriously
+
+DC Comics, The Simpsons
+
+Mon, 13 Apr 2026 14:46:43 GMT
+
+https://screenrant.com/simpsons-best-joke-action-comics-krusty-inflation/
+
+Think inflation isn't funny? This Simpsons joke says otherwise.
+---------
+
+# 10 Great Sci-Fi Books That Are As Good As Project Hail Mary
+
+Movies, Project Hail Mary
+
+Mon, 13 Apr 2026 14:45:20 GMT
+
+https://screenrant.com/sci-fi-books-as-good-as-project-hail-mary/
+
+Andy Weir’s novel is one of the most popular science fiction books in recent years, and there are many other great works that tackle similar ideas.
+---------
+
+# This Shonen Jump Anime Is So Much Better Than We Thought It'd Be
+
+Anime, Fist of the North Star, Fist Of The North Star, Shonen Jump, Op-Ed
+
+Mon, 13 Apr 2026 14:39:53 GMT
+
+https://screenrant.com/fist-north-star-shonen-jump-most-controvesial-anime/
+
+We were wrong about Fist of the North Star.
+---------
+
+# The Night Agent: Netflix Series Exceeds Source Material, Grows In Seasons 2 & 3
+
+Streaming TV, The Night Agent
+
+Mon, 13 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/netflix-the-night-agent-season-3-success-no-source-material/
+
+The Night Agent season 1 adapted all of Matthew Quirk's 2019 novel, so seasons 2 and 3 are an original story, but the show has only gotten better.
+---------
+
+# 10 Best '80s Rap Albums That Still Hold Up Today
+
+Music, Hip-Hop
+
+Mon, 13 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/best-80s-rap-albums/
+
+The '80s was hip-hop's Wild West. These 10 essential Golden Era albums defined the genre and still hit like a brick today.
+---------
+
+# Xbox Confirms One Of Its Biggest Leaks Is Actually True
+
+Gaming, Xbox Series X/S, Triple-A Games
+
+Mon, 13 Apr 2026 14:28:45 GMT
+
+https://screenrant.com/xbox-confirms-one-of-its-biggest-leaks-is-actually-true/
+
+Microsoft has fully confirmed a recent huge leak, which is great news for fans who were hoping that it would pan out sooner than later.
+---------
+
+# The Legend Of Zelda Just Returned On The Last Console You'd Imagine
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Mon, 13 Apr 2026 14:04:11 GMT
+
+https://screenrant.com/legend-of-zelda-playstation-vita-unofficial-port/
+
+After decades of The Legend of Zelda series there are so many classics, and now one is back on a console you'd never really guess.
+---------
+
+# Before The Pitt, Sepideh Moafi Starred In Apple TV's Near-Perfect Crime Drama
+
+TV, Masked Recs
+
+Mon, 13 Apr 2026 14:02:20 GMT
+
+https://screenrant.com/apple-tv-crime-drama-black-bird-sepideh-moafi-recommendation/
+
+Sepideh Moafi's standout performance in a superb, acclaimed true crime drama from Apple TV marked her as an emerging star before her role in The Pitt.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Week (#1 Has A Sequel Premiering On April 30)
+
+Movies, HBO Max, Recommendation
+
+Mon, 13 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-week-april-13/
+
+HBO Max has one of the most well-tailored selections of movies on streaming today, and these three flicks are your can't-miss picks for mid-April.
+---------
+
+# Dexter: Resurrection Season 2 Gets Massive Production Update & Confirms Major OG Actor Return
+
+TV, Dexter: Resurrection
+
+Mon, 13 Apr 2026 13:35:52 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-james-remar-production-update/
+
+Dexter: Resurrection is finally getting resurrected for season 2, as writer Scott Reynolds confirms a major production update and a returning star.
+---------
+
+# 5 Shows So Scary Even Horror Fans Might Not Finish Them
+
+TV, Horror, The Haunting of Hill House, Marianne, Supernatural
+
+Mon, 13 Apr 2026 14:30:11 GMT
+
+https://www.cbr.com/shows-too-scary-for-horror-fans-list/
+
+From supernatural scares to psychological terror, these shows are not for the faint of heart and will keep Horror fans on the edge of their seat.
+---------
+
+# The Duffer Bros.' New Netflix Show The Boroughs Is Officially the Stranger Things Replacement
+
+TV, The Boroughs
+
+Mon, 13 Apr 2026 14:11:33 GMT
+
+https://www.cbr.com/the-duffer-bros-netflix-show-the-boroughs-teaser/
+
+The new sci-fi series introduces the audience to a different Upside Down.
+---------
+
+# Witch Hat Atelier Episode 3 Review: It Breaks Anime's 'First Episode Curse'
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Mon, 13 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-3-review/
+
+The anime adapation of Witch Hat Atelier has put fears to rest by staying consistent with quality animation and storytelling.
+---------
+
+# DC’s Superman Day Goes Global With Pop-Up Events and Exclusive Comics
+
+Comics, Superman
+
+Mon, 13 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/warner-bros-dc-comics-superman-day-celebrations-announcements/
+
+The Man of Steel's big day is filled with fan-first moments and must-have collectibles.
+---------
+
+# The Hunger Games Sunrise on the Reaping (2026) Official Trailer – Joseph Zada
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Mon, 13 Apr 2026 13:55:22 GMT
+
+https://www.cbr.com/video/the-hunger-games-sunrise-on-the-reaping-official-trailer/
+
+Lionsgate unveils the official trailer for The Hunger Games: Sunrise on the Reaping
+---------
+
+# How Daredevil: Born Again Season 2 Sets Up Marvel New Captain America
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Captain America
+
+Mon, 13 Apr 2026 13:36:51 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-danielle-cage-captain-america/
+
+Daredevil: Born Again may be setting up Danielle Cage, the daughter of Jessica Jones and Luke Cage, as the next Captain America in the MCU.
+---------
+
+# The Hunger Games: Sunrise on the Reaping Trailer Is Twice as Brutal as Haymitch Fights for His Life
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Mon, 13 Apr 2026 13:22:07 GMT
+
+https://www.cbr.com/the-hunger-games-sunrise-on-the-reaping-trailer/
+
+November will invite everyone back into the arena.
+---------
+
+# Star Trek: Year One Spinoff Unlikely as Sets Torn Down
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Starfleet Academy
+
+Mon, 13 Apr 2026 13:21:38 GMT
+
+https://www.cbr.com/star-trek-destroyed-sets-hurt-year-one-kirk-prequel/
+
+Star Trek's proposed Year One prequel focusing on Captain Kirk seems less likely, as the sets for Strange New Worlds and Starfleet Academy disappear.
+---------
+
+# Netflix 'Extraction' Spin-off Details Promise "Large-Scale" Action Set Pieces
+
+Movie News, Extraction, Action, Thriller, Netflix
+
+Mon, 13 Apr 2026 14:42:35 GMT
+
+https://movieweb.com/netflix-extraction-tygo-filming-wrapped/
+
+'Extraction: Tygo' has now wrapped filming, with behind the scenes details teasing the scale of explosions to come.
+---------
+
+# 'The Pitt' Star Noah Wyle Discuss Dr. Samira Mohan’s Major Exit After Season 2
+
+TV News, The Pitt, Noah Wyle, HBO Max
+
+Mon, 13 Apr 2026 14:03:39 GMT
+
+https://movieweb.com/the-pitt-mohan-exit-season-2/
+
+Supriya Ganesh will not return as a series regular in Season 3, and 'The Pitt' says Dr. Samira Mohan’s departure was always part of the story.
+---------
+
+# 'The Super Mario Galaxy Movie' Quickly Beats DCU's 'Superman's Box Office Worldwide
+
+Movie News, Superman, The Super Mario Galaxy Movie, Box Office Milestones, DCU
+
+Mon, 13 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/super-mario-galaxy-beats-superman-dcu-box-office/
+
+James Gunn's DCU reboot might be in trouble as 'Superman's box office has been smashed by 'The Super Mario Galaxy Movie.'
+---------
+
+# Zach Braff's 'Scrubs' Revival Performance Should Finally Earn Him an Emmy
+
+Features, Scrubs
+
+Mon, 13 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/scrubs-revival-zach-braff-emmy-scene/
+
+'Scrubs' was nominated for many awards during its original run, and for the few that it won, none of them were for Braff specifically. Read for more.
+---------
+
+# 'DTF St. Louis' Creator Talks Heartbreaking Series Finale
+
+TV News, DTF St. Louis
+
+Mon, 13 Apr 2026 13:31:18 GMT
+
+https://movieweb.com/dtf-st-louis-creator-series-finale/
+
+Steven Conrad unpacks the climactic events of the limited series starring Jason Bateman, Linda Cardellini, and David Harbour.
+---------
+
 # Xbox Game Pass Price Drop Divides Gamers
 
 Gaming, Xbox Game Pass
