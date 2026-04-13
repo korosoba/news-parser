@@ -1,3 +1,179 @@
+# Netflix's 6-Part Mystery Thriller Series Is One Of Its Best Book Adaptations
+
+TV, Masked Recs
+
+Mon, 13 Apr 2026 23:03:18 GMT
+
+https://screenrant.com/his-and-hers-alice-feeney-netflix-best-book-adaptations/
+
+Netflix's chilling adaptation of a bestselling novel is a dark, 10/10 murder mystery that keeps viewers guessing until its brutal twist ending.
+---------
+
+# Cyberpunk 2077 Officially Returns With A Slick New Release
+
+Gaming, Cyberpunk 2077, PC
+
+Mon, 13 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-april-2026-wave-2-release/
+
+While Cyberpunk 2077 fans are more excited than ever for the franchise's future, chooms can grab an awesome new release right now.
+---------
+
+# YouTube's Internet Sensation Is Coming To Theaters, And It's A Perfect End To An Era
+
+Movies, The Amazing Digital Circus
+
+Mon, 13 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/amazing-digital-circus-last-act-movie-release/
+
+YouTube's greatest independent animated success is rewarding longtime fans with a theatrical release, and it's a great way to end a huge era.
+---------
+
+# Tom Holland's Spider-Man Meets David Corenswet's Superman In New Marvel/DC Crossover Art
+
+Superheroes, Spider-Man, Superman, Marvel Cinematic Universe, DC Universe
+
+Mon, 13 Apr 2026 22:33:52 GMT
+
+https://screenrant.com/tom-holland-spiderman-david-corenswet-superman-marvel-dc-art/
+
+Tom Holland's Spider-Man and David Corenswet's Superman show the potential in live-action Marvel and DC crossovers in new art that puts them together.
+---------
+
+# Fool Me Once: Netflix's Top Streaming Series of 2024 Is The Perfect Binge
+
+Classic TV, Masked Recs
+
+Mon, 13 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/fool-me-once-netflix-streaming-success-thriller-series-binge/
+
+Netflix has plenty of great thrillers, but one TV show in the genre did something truly extraordinary back in 2024, making history for the streamer.
+---------
+
+# 10 Scariest Movies Of All Time, Ranked (#1 Is Genuine Nightmare Fuel)
+
+Movies, Horror
+
+Mon, 13 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/scariest-movies-of-all-time-ranked/
+
+Prepare to be haunted by the 10 scariest movies of all time, ranked from bone-chilling to downright
+---------
+
+# Keke Palmer's Remake Of Tom Hanks Cult Classic Officially Returning For Season 2
+
+TV, The 'Burbs, The 'Burbs - Season 1
+
+Mon, 13 Apr 2026 22:07:51 GMT
+
+https://screenrant.com/the-burbs-peacock-season-2-renewed/
+
+More episodes are officially on the way for Keke Palmer's remake of a Tom Hanks cult classic film following a season 2 renewal by Peacock.
+---------
+
+# Peacock Officially Seals the Fate of The 'Burbs Reboot
+
+TV
+
+Mon, 13 Apr 2026 23:01:49 GMT
+
+https://www.cbr.com/peacock-the-burbs-season-2-renewed/
+
+The future of The 'Burbs is revealed two months after the show debuted on Peacock.
+---------
+
+# HBO's New Fantasy Series Is a Better Game of Thrones Replacement Than House of the Dragon
+
+TV, HBO Max, Harry Potter, Game Of Thrones, Fantasy
+
+Mon, 13 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-fantasy-game-of-thrones-house-of-the-dragon-replacement/
+
+HBO's next era-defining fantasy hit promises to magically captivate an all-new generation of fans, even more than the House of the Dragon franchise.
+---------
+
+# The Best Western Movies From Every Year of the 1990s
+
+Movies, Western, Tombstone, Unforgiven
+
+Mon, 13 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/best-western-movies-every-year-1990s/
+
+The 1990s saw a shocking revival of the Western that produced some of the most experimental, memorable and influential films the genre has ever seen.
+---------
+
+# Best MAPPA Anime of the 2020s, Ranked
+
+Anime, mappa, Chainsaw Man
+
+Mon, 13 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/best-2020s-anime-by-mappa-ranked/
+
+MAPPA is one of the biggest studios in the anime industry and some of their greatest work has been released in the past decade.
+---------
+
+# 'Yellowstone' Deserves Better Than the Procedural CBS Gave Its Fans Instead
+
+TV Features, Marshals, Yellowstone, Luke Grimes, Taylor Sheridan
+
+Mon, 13 Apr 2026 22:52:13 GMT
+
+https://collider.com/marshals-cbs-yellowstone-replacement-procedural/
+
+Marshals falls short compared to Yellowstone thanks to the limitations of network TV and a lack of character development in this spin-off series.
+---------
+
+# This 3-Part Horror Series With No Bad Episodes Is Perfect Weekend Binge Material Before It Returns
+
+TV Features, From, Harold Perrineau, MGM, Catalina Sandino Moreno
+
+Mon, 13 Apr 2026 22:41:13 GMT
+
+https://collider.com/from-horror-series-no-bad-episode-weekend-binge-before-season-4/
+
+With no filler episodes and mind-bending sequences, From is the perfect weekend binge before the next season premieres on MGM+.
+---------
+
+# The Greatest Oscar-Winning Western of All Time Is Now on Prime Video
+
+Movie, Prime Video, Dances With Wolves, The Zone of Interest, Emma.
+
+Mon, 13 Apr 2026 22:34:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-week-april-13/
+
+Dances with Wolves, The Zone of Interest, and Emma make up our list of the best movies to watch on Prime Video the week of April 13, 2026.
+---------
+
+# Only 3 Movies Have Better Screenplays Than 'The Godfather'
+
+Movie, The Godfather, Casablanca, The Princess Bride, Seven Samurai
+
+Mon, 13 Apr 2026 22:15:12 GMT
+
+https://collider.com/movies-with-better-screenplays-than-the-godfather/
+
+There aren't many movies with better screenplays than The Godfather, except for arguably Casablanca, The Princess Bride, and Seven Samurai.
+---------
+
+# John Carpenter's 'Escape From New York' Remake in the Works After Failed Attempts
+
+Movie News, Escape from New York, Escape From New York, John Carpenter, Kurt Russell
+
+Mon, 13 Apr 2026 22:45:30 GMT
+
+https://movieweb.com/escape-from-new-york-remake-reboot/
+
+Filmmakers like Robert Rodriguez and Leigh Whannell have already attempted to bring such a remake to life.
+---------
+
 # Marry My Husband: Prime Video's Perfect 16-Part Time Travel Series
 
 Classic TV, Masked Recs
