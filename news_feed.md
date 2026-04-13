@@ -1,3 +1,245 @@
+# 8 Fantasy Shows That Improve With Rewatches
+
+Classic TV
+
+Mon, 13 Apr 2026 21:15:24 GMT
+
+https://screenrant.com/fantasy-shows-get-better-with-every-watch/
+
+Some fantasy TV shows are so good that they not only invite multiple rewatches, but they also get better and better with every watch.
+---------
+
+# Why Netflix's New #1 Movie Is Taking Over The World (It's Stephen King-Approved)
+
+New Movies, Thrash
+
+Mon, 13 Apr 2026 21:01:42 GMT
+
+https://screenrant.com/thrash-movie-netflix-streaming-success-april-2026/
+
+There's a new survival thriller dominating Netflix's streaming charts, as audiences - including Stephen King - have turned it into their #1 movie.
+---------
+
+# Ana De Armas Leads "Ballerina" Action Thriller, #2 Trending in U.S. On HBO Max
+
+Movies, Ballerina
+
+Mon, 13 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/ana-de-armas-ballerina-action-thriller-hbo-max-success-april-2026/
+
+Ana de Armas' latest film is an R-Rated action thriller, Ballerina, a spin-off of the highly successful John Wick franchise, and it's trending on HBO.
+---------
+
+# Scarecrow Reboot Unleashes His Darkest Moment Since Batman Begins
+
+Comics, Batman
+
+Mon, 13 Apr 2026 20:48:43 GMT
+
+https://screenrant.com/absolute-batman-scarecrow-new-design-debut-scene/
+
+Sorry, Cillian Murphy, but DC’s reboot of Scarecrow has now introduced what may be the darkest iteration of the character yet.
+---------
+
+# Metro 2033 Fans Are Losing Their Minds Over This Cancelled Exodus Sequel
+
+Gaming, Metro 2033
+
+Mon, 13 Apr 2026 20:37:49 GMT
+
+https://screenrant.com/metro-2033-exodus-fans-dissapointed-cancelled-sequel/
+
+Nearly a decade after the release of Exodus, a recent leak reveals that we could have gotten a completely different sequel to Exodus.
+---------
+
+# Alan Ritchson Channels Jack Reacher In New Action Thriller Runner's Intense First Trailer
+
+Movies, Runner, Alan Ritchson, CinemaCon
+
+Mon, 13 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/runner-movie-trailer-alan-ritchson-owen-wilson/
+
+Before Reacher returns to Prime Video, Alan Ritchson is starring in a new thriller called Runner, and the action-packed trailer has now been released.
+---------
+
+# Andy Serkis' Gritty 2026 War Movie Unveils Young George Washington In New Trailer
+
+Movies, Young Washington
+
+Mon, 13 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/young-washington-2026-trailer/
+
+Andy Serkis is going back in time with a new trailer showcasing his upcoming gritty war movie, Young Washington, taking on battles and politics.
+---------
+
+# Alien: Romulus Blends Sci-Fi and Horror for Top Spot on HBO Max (#7 Trending)
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 20:30:21 GMT
+
+https://screenrant.com/alien-romulus-space-horror-hbo-max-streaming-april-2026/
+
+Alien: Romulus, starring Cailee Spaeny and David Jonsson, is a perfect blend of sci-fi and horror, currently #7 trending on HBO Max in the US.
+---------
+
+# 10 PS2 Games That Are 10/10, No Notes
+
+Games, PlayStation 2, retro games
+
+Mon, 13 Apr 2026 21:15:19 GMT
+
+https://www.cbr.com/perfect-ps2-games-flawless-start-to-finish/
+
+Classic PS2 games like Silent Hill and God of War are still masterpieces today.
+---------
+
+# Microsoft Officially Agrees Xbox Game Pass Has 'Become Too Expensive'
+
+Games, Xbox Series X (1)
+
+Mon, 13 Apr 2026 21:05:44 GMT
+
+https://www.cbr.com/microsoft-xbox-game-pass-too-expensive/
+
+Microsoft has admitted that the pricing for Xbox Game Pass has gone too far.
+---------
+
+# 10 Godlike Marvel Characters Who Wanted To Live With Humans
+
+Comics, Marvel
+
+Mon, 13 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/godlike-marvel-characters-who-live-among-humans/
+
+They're God-ish, but still long for a sense of humanity that isn't alien.
+---------
+
+# Hulu’s Pizza Movie Is Gen Z’s Bill & Ted's Excellent Adventure Replacement
+
+Movies, Pizza Movie, Bill and Ted
+
+Mon, 13 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/hulu-pizza-movie-gen-z-bill-and-ted-replacement/
+
+Hulu's latest hit unexpectedly delivers a slice of bizarre '80s nostalgia.
+---------
+
+# Roku Adds 6 New Free Streaming Channels to Roku Channel Service
+
+TV, Roku, Rawhide, Ink Master
+
+Mon, 13 Apr 2026 20:43:10 GMT
+
+https://www.cbr.com/rokue-new-free-channels-rawhide-westerns-mtv-espanol-ink-master/
+
+Roku expands its free streaming hub with six new ad-supported channels.
+---------
+
+# Sopranos Man on Stairs Mystery: Exploring the Hidden Symbolism
+
+TV, The Sopranos, HBO Max
+
+Mon, 13 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/the-sopranos-mysterious-figure-stairs-debate-explained/
+
+A mysterious figure, or possibly two, appears in multiple episodes of The Sopranos, exuding an ominous aura and sparking debate among fans.
+---------
+
+# The 10 Most Essential Zombie Movies Every Horror Fan Needs to Watch
+
+Movies, Horror
+
+Mon, 13 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/essential-zombie-movies-horror-fan-must-watch/
+
+There are so many zombie movies out there - but only ten of them have truly defined the genre.
+---------
+
+# 26 Years Later, This Forgotten Sci-Fi Thriller Demands Your Attention
+
+Movie Features, Dennis Quaid, Frequency, Sci-Fi, Thriller
+
+Mon, 13 Apr 2026 21:08:13 GMT
+
+https://collider.com/forgotten-sci-fi-movies-frequency-dennis-quaid/
+
+The 2000 movie Frequency starring Dennis Quaid is a hidden gem all sci-fi fans need to discover.
+---------
+
+# 'Reacher's Alan Ritchson Is About to Deliver One of 2026's Most Relentless Action Movies
+
+Movie News, Alan Ritchson, Reacher, Runner, Action
+
+Mon, 13 Apr 2026 20:49:58 GMT
+
+https://collider.com/alan-ritchson-movie-trailer-runner-angel-studios-action-movie/
+
+Before Alan Ritchson returns for Reacher Season 4, you can watch the trailer for his relentless new action movie, Runner.
+---------
+
+# This Binge-Worthy Emma Stone Sci-Fi Series Is One of the Best Shows on Netflix
+
+TV, Netflix, The Perfect Couple, Sex Education, Maniac
+
+Mon, 13 Apr 2026 20:48:13 GMT
+
+https://collider.com/best-netflix-shows-watch-week-april-13/
+
+The Perfect Couple, Sex Education, and Maniac make up our list of the best Netflix shows to binge the week of April 13, 2026.
+---------
+
+# 10 Sci-Fi Movies From the 2000s That Have Aged Like Fine Wine
+
+Movie, Science Fiction, Signs, Moon, The Prestige
+
+Mon, 13 Apr 2026 20:48:13 GMT
+
+https://collider.com/sci-fi-movies-2000s-aged-like-fine-wine/
+
+Underrated efforts like Moon and straight-up masterpieces like Children of Men are among the sci-fi movies from the 2000s that have aged the best.
+---------
+
+# Jeff Daniels and J.K. Simmon's New Cold War Epic Sets Release Date With Thrilling First Trailer
+
+Movie News, The Brink of War, Jeff Daniels, Jared Harris, J.K. Simmons
+
+Mon, 13 Apr 2026 20:47:41 GMT
+
+https://collider.com/new-cold-war-epic-movie-trailer-the-brink-of-war-jeff-daniels-jk-simmons/
+
+Jeff Daniels stars in first trailer for Angel Studio's gripping new Cold War epic The Brink of War.
+---------
+
+# Bryan Cranston Just Topped His Greatest 'Breaking Bad' Scene in 'Malcolm in the Middle'
+
+Features, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Breaking Bad, Bryan Cranston
+
+Mon, 13 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/bryan-cranston-malcolm-in-the-middle-breaking-bad-best-scene/
+
+Bryan Cranston is incredible in the 'Malcolm in the Middle' revival, but one scene stands out as his best, overtaking his performance as Walter White.
+---------
+
+# 'Exit 8' Rotten Tomatoes Score Is the Highest for a Video Game Movie
+
+Movie News, Exit 8
+
+Mon, 13 Apr 2026 20:44:54 GMT
+
+https://movieweb.com/exit-8-rotten-tomatoes/
+
+The latest film from NEON, an adaptation of the horror game 'Exit 8,' has received rave reviews.
+---------
+
 # Tim McGraw Sets New Yellowstone Replacement Series With FX's Adaptation Of Award-Winning Graphic Novels
 
 TV, Tim McGraw, Yellowstone
