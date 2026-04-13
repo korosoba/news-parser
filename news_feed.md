@@ -1,3 +1,300 @@
+# Xbox Game Pass Price Drop Divides Gamers
+
+Gaming, Xbox Game Pass
+
+Mon, 13 Apr 2026 13:05:20 GMT
+
+https://screenrant.com/xbox-game-pass-losing-call-of-duty-leaks/
+
+A price decrease for Xbox Game Pass has been widely speculated in recent weeks, but a new rumor fuels that speculation further, and fans are split.
+---------
+
+# New Hunger Games: Sunrise On The Reaping Trailer Unveils Better Look At Haymitch's Games
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games, Lionsgate
+
+Mon, 13 Apr 2026 13:01:47 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-trailer-2/
+
+Lionsgate drops a new trailer for the Hunger Games: Sunrise on the Reaping, showcasing a better look at Haymitch Abernathy's origin story.
+---------
+
+# The Duffer Brothers’ New Netflix Monsters Are Revealed In The Boroughs Trailer
+
+TV, The Boroughs, The Boroughs - Season 1
+
+Mon, 13 Apr 2026 13:00:21 GMT
+
+https://screenrant.com/the-boroughs-netflix-trailer/
+
+Stranger Things' Ross and Matt Duffer are back with a new Netflix show, and this one also features monsters, which are shown in the first trailer.
+---------
+
+# The Witcher: Path of Destiny Officially Announced
+
+Gaming, PC, The Witcher, The Witcher 3: Wild Hunt
+
+Mon, 13 Apr 2026 12:42:46 GMT
+
+https://screenrant.com/witcher-path-of-destiny-ronin-rpg/
+
+The Witcher fans rejoice after the official announcement of the new Path of Destiny RPG featuring Geralt as you've never seen him before.
+---------
+
+# Sydney Sweeney’s New R-Rated Drama Dominates American Streaming After Setting Box Office Bomb Record
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 12:34:51 GMT
+
+https://screenrant.com/christy-sydney-sweeney-streaming-success-april-2026/
+
+Sydney Sweeney's box office bomb with a budget of $15 million scores big just days after the movie's US streaming debut.
+---------
+
+# Marvel Officially Unveils Captain America's Armored Redesign for New Appearance
+
+Gaming, Captain America
+
+Mon, 13 Apr 2026 12:30:20 GMT
+
+https://screenrant.com/captain-america-redesign-new-costume-steve-rogers-future-fight/
+
+Marvel has revealed an unbelievable new costume for Captain America, as Steve Rogers throws on an imposing suit of enhanced armor.
+---------
+
+# PlayStation Plus Drops 2 Bonus Free Downloads For April
+
+Gaming, PlayStation Plus
+
+Mon, 13 Apr 2026 12:29:40 GMT
+
+https://screenrant.com/playstation-plus-april-2026-bonus-free-downloads/
+
+PlayStation Plus members get two bonus free games this month outside of the usual Essential drops, but not all subscribers get access to them.
+---------
+
+# The Pitt Season 3's Timeline & Filming Start Window Confirmed By Creator
+
+TV, The Pitt
+
+Mon, 13 Apr 2026 12:13:22 GMT
+
+https://screenrant.com/the-pitt-season-3-timeline-filming-r-scott-gemmill/
+
+The Pitt creator R. Scott Gemmill confirms the that season 3 is set to begin filming this summer, but that the season will take place in the Fall.
+---------
+
+# Marshals Officially Replaces Monica & She Couldn’t Be More Different From Kayce’s Late Wife
+
+Network TV, Yellowstone, Marshals
+
+Mon, 13 Apr 2026 12:12:18 GMT
+
+https://screenrant.com/marshals-episode-7-monica-replacement-dolly/
+
+A year after Monica's death, CBS officially finds her replacement in Marshals, as Kayce Dutton moves on by starting a brand new romance.
+---------
+
+# Uncharted 5 Setting And Lead Character Splits Gamers
+
+Gaming, Naughty Dog, Uncharted, Uncharted 5
+
+Mon, 13 Apr 2026 12:04:29 GMT
+
+https://screenrant.com/uncharted-5-setting-lead-character-speculation/
+
+Fans speculate on the lead character for Uncharted 5, with ideas ranging from a father-daughter duo of Nathan & Cassie to an entirely new protagonist.
+---------
+
+# Netflix Is Losing Taylor Sheridan's Hell or High Water
+
+Movies, Hell or High Water, Netflix
+
+Mon, 13 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-hell-or-high-water-exit-netflix/
+
+The Taylor Sheridan movie with a near-perfect Rotten Tomatoes score is losing its streaming home.
+---------
+
+# Sergio Leone's Once Upon a Time Trilogy Is His Best Western Trilogy
+
+Movies, Western, Once Upon a Time in America, Once Upon a Time in the West
+
+Mon, 13 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/once-upon-a-time-western-trilogy-better-than-dollars-trilogy/
+
+After bringing the Man With No Name's story to a close, Sergio Leone turned in an even more ambitious trilogy that reinvented America.
+---------
+
+# Netflix's Thriller The Hunting Wives Is Poised to Become a Modern Classic
+
+TV, The Hunting Wives, Thriller, Netflix
+
+Mon, 13 Apr 2026 12:52:44 GMT
+
+https://www.cbr.com/the-hunting-wives-thriller-drama-modern-classic-netflix/
+
+The Hunting Wives' highly anticipated Season 2 could turn the Netflix thriller series into a modern classic.
+---------
+
+# The Most Popular Dystopian Sci-Fi Saga of All Time Drops Explosive New Trailer
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Sci-Fi
+
+Mon, 13 Apr 2026 13:01:33 GMT
+
+https://collider.com/the-hunger-games-sunrise-on-the-reaping-new-trailer/
+
+Lionsgate has dropped a new trailer for The Hunger Games: Sunrise on the Reaping, the next big-screen return to Panem ahead of its November 20, 2026 r
+---------
+
+# 'Stranger Things' Creators' New 8-Part Sci-Fi Mystery Series Checks Into Netflix in First Trailer
+
+TV News, The Boroughs, Netflix, Alfred Molina, Duffer Brothers
+
+Mon, 13 Apr 2026 13:00:13 GMT
+
+https://collider.com/the-boroughs-trailer-alfred-molina-duffer-brothers-netflix/
+
+The first trailer for The Duffer Brothers' new series, The Boroughs, checks Alfred Molina into a retirement home of horror and mystery.
+---------
+
+# Netflix's New Shark Thriller Is Officially Taking Over the World
+
+Movie News, Thrash, Phoebe Dynevor, Horror, Netflix
+
+Mon, 13 Apr 2026 12:30:12 GMT
+
+https://collider.com/netflix-shark-thriller-thrash-streaming-success-april-2026/
+
+Netflix’s new shark thriller Thrash, starring Bridgerton’s Phoebe Dynevor, is devouring the competition in a huge streaming debut.
+---------
+
+# Billy Bob Thornton Was Near-Perfect in This Retro Neo-Noir Gem From the Coen Brothers
+
+Movie Features, The Man Who Wasn't There, Coen Brothers, Billy Bob Thornton, Frances McDormand
+
+Mon, 13 Apr 2026 12:19:12 GMT
+
+https://collider.com/billy-bob-thornton-near-perfect-neo-noir-the-man-who-wasnt-there-coen-brothers/
+
+The Man Who Wasn’t There ranks among the Coens’ best thanks to the amazing performance by Billy Bob Thornton.
+---------
+
+# Netflix Is Removing Zack Snyder’s Best Sci-Fi Movie
+
+Movie News, Dawn of the Dead, Zack Snyder, Horror, Netflix
+
+Mon, 13 Apr 2026 12:00:13 GMT
+
+https://collider.com/zack-snyder-sci-fi-horror-remake-dawn-of-the-dead-leaving-netflix-may-2026/
+
+Zack Snyder’s Dawn of the Dead is leaving Netflix on May 1, giving fans one last chance to revisit his blistering 2004 zombie classic.
+---------
+
+# This Near-Perfect 5-Part Sci-Fi Favorite Once Opened to 5.9M Viewers on Cable
+
+TV Features, Falling Skies, Noah Wyle, Science Fiction, Netflix
+
+Mon, 13 Apr 2026 11:55:12 GMT
+
+https://collider.com/falling-skies-6-million-viewers-cable-sci-fi-worth-watching/
+
+Falling Skies drew 5.9M viewers at launch and delivered a full sci-fi story. Here’s why the overlooked series is worth watching now.
+---------
+
+# 10 Blockbuster Movies You Absolutely Should Not Watch With Your Kids
+
+Movie, Blockbuster, Jurassic Park, Gladiator, Deadpool & Wolverine
+
+Mon, 13 Apr 2026 11:52:12 GMT
+
+https://collider.com/blockbuster-movies-not-for-kids/
+
+Blockbuster movies like Jurassic Park, Poltergeist, and Gladiator may seem kid-friendly, but they are absolutely inappropriate for them.
+---------
+
+# 'The Hunger Games: Sunrise on the Reaping' Trailer Offers Extended Look at Prequel
+
+Movie News, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Mon, 13 Apr 2026 13:04:36 GMT
+
+https://movieweb.com/hunger-games-sunrise-on-the-reaping-trailer/
+
+Lionsgate has released a new trailer for 'The Hunger Games: Sunrise on the Reaping,' offering an extended look at the prequel ahead of its release.
+---------
+
+# 'Shrinking' Season 3 Finale Theory Suggests Paul Wasn't Really There
+
+Features, Shrinking
+
+Mon, 13 Apr 2026 13:00:19 GMT
+
+https://movieweb.com/shrinking-season-3-finale-paul-theory/
+
+Apple TV's 'Shrinking' ended its current storyline with the Season 3 finale, but something seemed off about that last Paul and Jimmy scene.
+---------
+
+# New Russell Crowe MMA Action Movie 'Beast' Scores Big on Rotten Tomatoes
+
+Movie News, Russell Crowe, Beast, Martial Arts, Action
+
+Mon, 13 Apr 2026 12:49:33 GMT
+
+https://movieweb.com/russell-crowe-beast-rotten-tomatoes-score/
+
+The 'Rocky' meets MMA sports drama is now playing in theaters.
+---------
+
+# 'The Furious' Release Date Delayed, Action Thriller Will Now Face Steven Spielberg
+
+Movie News, The Furious, Action, Thriller
+
+Mon, 13 Apr 2026 12:10:53 GMT
+
+https://movieweb.com/the-furious-release-date-delay/
+
+The 100% rated martial arts epic has been delayed and will now go up against 'Disclosure Day.'
+---------
+
+# Lee Pace Is the First 'Invincible' Voice Actor Not To Fit Their Character
+
+Features, Invincible
+
+Mon, 13 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/invincible-voice-cast-streak-over/
+
+The 'Invincible' voice cast is absolutely stacked, but the show has finally made a mistake when finding someone to play a pivotal character.
+---------
+
+# Keanu Reeves' 'John Wick' is the Greatest Action Movie of the 21st Century that Changed the Genre Forever
+
+Features, John Wick, Action
+
+Mon, 13 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/john-wick-changed-action-genre-keanu-reeves/
+
+Keanu Reeves' 'John Wick,' released in 2014, changed action movies forever, with films like 'Atomic Blonde' and 'Extraction' copying its fight scenes.
+---------
+
+# Netflix Is Developing 'The Inbetweeners 3', Sources Claim
+
+TV News, The Inbetweeners, Netflix, The Inbetweeners Movie
+
+Mon, 13 Apr 2026 11:58:24 GMT
+
+https://movieweb.com/the-inbetweeners-3-netflix/
+
+A new report says 'The Inbetweeners' is returning as a Netflix film with Simon Bird, Joe Thomas, James Buckley, and Blake Harrison.
+---------
+
 # Red Dead Redemption 2 60fps PS5 Gameplay Stuns Gamers
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2
