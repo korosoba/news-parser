@@ -1,3 +1,421 @@
+# 3 Best Movies To Watch On Prime Video This Week (April 13-17)
+
+Movies, Prime Video, Recommendation
+
+Mon, 13 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-week-april-13/
+
+Don't be overwhelmed by Prime Video's huge selection of movies, watch these three gems that are guaranteed to please even the pickiest streamer.
+---------
+
+# How Euphoria's Season 3 Premiere Pays Tribute To Angus Cloud & What Happened To Fezco
+
+Streaming TV, Euphoria
+
+Mon, 13 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/euphoria-season-3-angus-cloud-what-happened-to-frezco/
+
+After Angus Cloud's tragic passing in 2023, it wasn't clear what would happen to Fezco in Euphoria season 3, but the premiere answered the question.
+---------
+
+# The Boys Season 5 Episode Episode 3 Trailer Released
+
+TV, The Boys
+
+Mon, 13 Apr 2026 16:08:17 GMT
+
+https://screenrant.com/the-boys-season-5-episode-3-trailer/
+
+Prime Video released the new trailer for The Boys season 5 episode 3 after the show's explosive two-part premiere featuring a major character's death.
+---------
+
+# Nathan Fillion’s Hit 8-Part Crime Series Officially Returning For More Episodes To Set ABC Record
+
+TV
+
+Mon, 13 Apr 2026 16:06:44 GMT
+
+https://screenrant.com/the-rookie-season-9-renewal-confirmed-abc/
+
+The fate of The Rookie season 9 has been confirmed at ABC, as the Nathan Fillion-led police procedural makes some impressive history for ABC.
+---------
+
+# Netflix’s New Remake Of Classic 43-Year-Old Western Series Officially Unveiled
+
+TV, Little House on the Prairie
+
+Mon, 13 Apr 2026 16:02:48 GMT
+
+https://screenrant.com/little-house-on-the-prairie-trailer-netflix-adaptation/
+
+Streaming giant Netflix has officially adapted a 43-year-old Western series, Little House on the Prairie, and has unveiled a new teaser.
+---------
+
+# Paul Rudd & Jack Black's Hilarious Anaconda Remake: A Rare Theatrical Comedy Gem
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/anaconda-paul-rudd-best-comedy-netflix-april-2026/
+
+Paul Rudd and Jack Black's Anaconda reboot is the funniest movie either of them has made in years, and now you can watch it on Netflix.
+---------
+
+# Official New He-Man Prequel Is Finally Exploring An Underrated Masters of the Universe Hero
+
+Comics, Masters of the Universe
+
+Mon, 13 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/he-man-teela-prequel-novel-masters-universe/
+
+Her time to shine.
+---------
+
+# Train to Busan Returns in 4K As Director Unveils New Zombie Thriller Colony
+
+TV, Train to Busan
+
+Mon, 13 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/new-colony-trailer-train-to-busan-returns/
+
+Train to Busan is returning to theaters in 4K shortly after Yeon Sang-ho's new zombie thriller Colony debuts at Cannes Film Festival.
+---------
+
+# 10 Biggest Retcons Made By Star Wars TV Shows
+
+Classic TV, Star Wars
+
+Mon, 13 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/star-wars-tv-shows-biggest-retcons/
+
+Star Wars isn't afraid to approve a major retcon, and its TV projects are responsible for 10 of the franchise's biggest changes of all time.
+---------
+
+# All 3 Marvel Movies & TV Shows Releasing On Disney+ In April 2026
+
+Superheroes, Marvel Cinematic Universe, Disney+
+
+Mon, 13 Apr 2026 15:52:24 GMT
+
+https://screenrant.com/marvel-movies-shows-release-disney-plus-april-2026/
+
+Marvel movies and TV shows are arriving on Disney+ in April 2026, and they feature major heroes like Spider-Man and more, so fans shouldn't miss them.
+---------
+
+# Final Fantasy 7 DLC Officially Getting Delisted On May 19
+
+Games, Final Fantasy
+
+Mon, 13 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/final-fantasy-7-free-dlc-delisted-may-2026-powerwash-simulator/
+
+Those who love the city of Midgar will have to hurry, as a piece of Final Fantasy 7 Remake DLC is officially being delisted on May 19, 2026.
+---------
+
+# 10 Single-Season Anime Masterpieces You Can Stream on Crunchyroll
+
+Anime, Crunchyroll, Cowboy Bebop
+
+Mon, 13 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/crunchyroll-best-anime-only-1-season/
+
+The best anime streaming on Crunchyroll only need one season to tell unforgettable stories.
+---------
+
+# Batwoman Star Ruby Rose Accuses Katy Perry of Sexual Assault
+
+TV, Batwoman
+
+Mon, 13 Apr 2026 16:09:11 GMT
+
+https://www.cbr.com/batwoman-ruby-rose-accusses-katy-perry-sexual-assault/
+
+This isn't the first time Ruby Rose called out Perry.
+---------
+
+# Community Had a Secret Second Series Most Fans Completely Missed (& It Made the Original Show Even Better)
+
+TV, Community, NBC, Comedy
+
+Mon, 13 Apr 2026 16:05:13 GMT
+
+https://www.cbr.com/community-secret-second-webseries-fans-missed/
+
+One of the most hilarious sitcoms of the 21st century is also the foundation for an equally hilarious and secretive series.
+---------
+
+# Mercy is the Perfect Minority Report Replacement Movie
+
+Movies, Mercy, Minority Report, Prime Video
+
+Mon, 13 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/prime-video-mercy-minority-report-replacement/
+
+Minority Report may be considered one of the best tech noir thrillers in movie history, but a 2026 Prime Video flick pulls off its themes even better.
+---------
+
+# 30 Years Later, This Unforgettable Joker Moment Divides DC Fans
+
+Comics, Joker, Marvel, DC Comics
+
+Mon, 13 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/iconic-batman-captain-america-joker-moment-controversy/
+
+In 1996, John Byrne gave Joker a moment that earned him new respect among fans, but it sparked a major super villain debate.
+---------
+
+# MGM+'s The Night Manager Replacement Officially Completes Cast With Godzilla Star
+
+TV, MGM+
+
+Mon, 13 Apr 2026 15:45:31 GMT
+
+https://www.cbr.com/mgm-plus-legacy-of-spies-cast-update-dan-stevens/
+
+The full cast for MGM+'s The Night Manager replacement show has been officially announced, just in time for production to begin.
+---------
+
+# Baldur's Gate 3 Officially Gets New Release In April 2026
+
+Games, Baldur's Gate 3
+
+Mon, 13 Apr 2026 15:45:12 GMT
+
+https://www.cbr.com/baldurs-gate-3-dnd-minis-april-24/
+
+Baldur's Gate 3 players who want to continue adventures with Tav's friends will be able to do so on April 24, thanks to a brand-new official release.
+---------
+
+# 5 Best Spring 2026 Anime Premieres
+
+Anime, Witch Hat Atelier, Daemons of the Shadow Realm
+
+Mon, 13 Apr 2026 15:35:12 GMT
+
+https://www.cbr.com/best-spring-2026-anime-premieres/
+
+A handful of Spring 2026 debuts are already making a lasting impression and anime fans couldn't be more excited.
+---------
+
+# Joaquin Phoenix, David Fincher & Other Hollywood Stars Oppose Paramount's Warner Bros Merger
+
+Movies, Warner Bros. Interactive Entertainment, Paramount, Netflix, Dune, Gladiator, Avengers, Star Trek
+
+Mon, 13 Apr 2026 15:15:14 GMT
+
+https://www.cbr.com/joaquin-phoenix-david-fincher-other-hollywood-stars-oppose-paramounts-warner-bros-merger/
+
+The most powerful Hollywood creators just released a fiery petition to kill the Warner Bros. and Paramount merger.
+---------
+
+# Tom Hardy's Forgotten 15% RT Horror Fantasy Teased His 'Dark Knight Rises' Star Power
+
+Movie Features, Minotaur, Tom Hardy, Horror, Fantasy
+
+Mon, 13 Apr 2026 16:11:12 GMT
+
+https://collider.com/tom-hardy-movies-minotaur-horror-fantasy-forgotten/
+
+Tom Hardy starred in the critically panned 2006 horror fantasy Minotaur, which teased the leading man potential he would later bring to blockbusters.
+---------
+
+# Daniel Radcliffe's New 100% RT Series Returns With Epic 2-Part Season Finale in Early First Look [Exclusive]
+
+Exclusives, The Fall and Rise of Reggie Dinkins, Tracy Morgan, Daniel Radcliffe, NBC
+
+Mon, 13 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-fall-and-rise-of-reggie-dinkins-season-1-finale-sneak-peek-tracy-morgan-daniel-radcliffe/
+
+Craig Robinson and Heidi Gardner refuse to kiss the ring of Tracy Morgan in The Fall and Rise of Reggie Dinkins sneak peek. Watch it here.
+---------
+
+# Netflix Is Officially Expanding ‘Money Heist’ With New Thriller Series in 1 Month
+
+TV News, Money Heist, Berlin, Netflix, Thriller
+
+Mon, 13 Apr 2026 15:55:00 GMT
+
+https://collider.com/money-heist-spin-off-berlin-and-the-lady-with-an-ermine-netflix-release-date-may-2026/
+
+Five years later, Money Heist is officially returning to Netflix with a new sequel to the hit spin-off series Berlin. Here's when it premieres.
+---------
+
+# 'John Wick' Meets 'The Machine Girl' In Peacock's 9-Part Thriller Premiering Next Month
+
+TV News, M.I.A., Peacock, Thriller, John Wick
+
+Mon, 13 Apr 2026 15:51:59 GMT
+
+https://collider.com/mia-peacock-thriller-series-release-date-may-2026/
+
+When family meets tragedy, revenge becomes the only mission in Peacock's new neon-lit, action-packed thriller arriving next month.
+---------
+
+# One of the Greatest Spy Stories Ever Told Is Finally Coming to TV
+
+TV News, Charlie Hunnam, Matthew Macfadyen, Dan Stevens, Daniel Brühl
+
+Mon, 13 Apr 2026 15:48:59 GMT
+
+https://collider.com/legacy-of-spies-tv-series-adaptation-filming-update-cast-dan-stevens/
+
+One of the most iconic spy thriller stories ever told is finally coming to television as filming begins on Legacy of Spies, with a massive cast update
+---------
+
+# Netflix's ‘Little House on the Prairie’ Remake Is Finally Here — Watch the First Trailer
+
+TV News, Little House on the Prairie, Netflix
+
+Mon, 13 Apr 2026 15:43:51 GMT
+
+https://collider.com/netflix-little-house-on-the-prairie-remake-trailer-release-date/
+
+Netflix has officially released the first trailer for its hotly anticipated Little House on the Prairie remake series. Watch it now!
+---------
+
+# Jude Law’s Political Thriller May Be His Most Impressive Role Yet in New Trailer
+
+Movie News, The Wizard of the Kremlin, Jude Law, Paul Dano, Vertical Entertainment
+
+Mon, 13 Apr 2026 15:39:46 GMT
+
+https://collider.com/jude-law-vladimir-putin-trailer-the-wizard-of-the-kremlin/
+
+Watch the first trailer for The Wizard of the Kremlin, showing Jude Law as Vladimir Putin. Paul Dano, Alicia Vikander, and Jeffrey Wright also star.
+---------
+
+# Netflix's New 8-Part Series Becomes a Late-Night Sleeper Hit for Horror Fans
+
+TV Features, Something Very Bad Is Going to Happen, Camila Morrone, Netflix, Horror
+
+Mon, 13 Apr 2026 15:28:12 GMT
+
+https://collider.com/something-very-bad-is-going-to-happen-netflix-horror-streaming-sleeper-hit/
+
+Netflix's new horror series Something Very Bad Is Going to Happen has surged in popularity, with over 28 million hours viewed.
+---------
+
+# Netflix’s Lazy ‘Jaws’ Ripoff Fails To Hook Critics Despite Streaming Success
+
+Movie News, Netflix, Thrash, Jaws, Rotten Tomatoes
+
+Mon, 13 Apr 2026 15:08:33 GMT
+
+https://collider.com/netflix-new-shark-movie-thrash-streaming-success-rotten-tomatoes-score/
+
+Netflix’s lazy Jaws rip-off from Violent Night director Tommy Wirkola is being ripped to shreds by critics and audiences alike on Rotten Tomatoes.
+---------
+
+# New Sci-Fi Masterpiece Officially Overtakes the Weakest Live Action Star Wars Movie at the Box Office
+
+Movie News, Project Hail Mary, Solo: A Star Wars Story, Phil Lord, Christopher Miller
+
+Mon, 13 Apr 2026 15:03:59 GMT
+
+https://collider.com/phil-lord-christopher-miller-sci-fi-masterpiece-project-hail-mary-overtakes-solo-star-wars-story-box-office/
+
+Phil Lord and Christopher Miller's Project Hail Mary has overtaken Solo: A Star Wars Story, the movie they were fired from, at the box office.
+---------
+
+# Mike Colter Confirms MCU Return in BTS Photo from Daredevil: Born Again Season 3
+
+TV News, Daredevil: Born Again, Mike Colter, Luke Cage, Krysten Ritter, Jessica Jones, Finn Jones, Iron Fist
+
+Mon, 13 Apr 2026 16:12:33 GMT
+
+https://movieweb.com/colter-luke-cage-return-daredevil-born-again/
+
+A new behind-the-scenes photo confirmed that Mike Colter is back with Marvel Studios for a role as Luke Cage in 'Daredevil: Born Again' Season 3.
+---------
+
+# J.J. Abrams, Joaquin Phoenix, Ben Stiller & Over 1000 Hollywood Stars Sign Letter Against Paramount/Warner Bros. Deal
+
+Movie News, J.J. Abrams, Ben Stiller, Joaquin Phoenix
+
+Mon, 13 Apr 2026 16:09:20 GMT
+
+https://movieweb.com/hollywood-letter-paramount-warner-bros-deal/
+
+Over 1000 Hollywood stars sign letter against Paramount/Warner Bros. deal.
+---------
+
+# This Promising Young Actor-Director Disappeared Without a Trace
+
+Features, Pleasantville, John Waters, Giuseppe Makes a Movie
+
+Mon, 13 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/giuseppe-andrews-actor-director-disappeared/
+
+From Hollywood to obscurity: The baffling choice of a promising young talent to abandon his thriving career and vanish into thin air.
+---------
+
+# Don't Fall For 'The Pitt's Clues: Langdon Isn't Repeating His Season 1 Arc
+
+Features, The Pitt
+
+Mon, 13 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/the-pitt-season-2-langdon-relapse-clues/
+
+'The Pitt' Season 2 has a storyline featuring Dr. Frank Langdon (Patrick Ball) that feels reminiscent of his Season 1 storyline.
+---------
+
+# Kevin Hart and Ice Cube Returning for Action Comedy Sequel 'Ride Along 3'
+
+Movie News, Kevin Hart, Ride Along, Ride Along 2, Ride Along 3, Ice Cube
+
+Mon, 13 Apr 2026 15:53:40 GMT
+
+https://movieweb.com/kevin-hart-ride-along-action-sequel/
+
+Kevin Hart and Ice Cube are circling a third 'Ride Along' action comedy film that will reunite them with franchise director Tim Story.
+---------
+
+# Netflix's 'The Boroughs' Teaser Trailer Reveals New Sci-Fi Series From 'Stranger Things' Creators
+
+TV News, The Boroughs, Stranger Things
+
+Mon, 13 Apr 2026 15:19:31 GMT
+
+https://movieweb.com/netflix-the-boroughs-trailer/
+
+The Duffer brothers are helping to shepherd in a new sci-fi series for the streamer.
+---------
+
+# 'Star Wars: Maul — Shadow Lord' Breaks Another Rotten Tomatoes Record After 100% Critics Score
+
+TV News, Star Wars: Maul - Shadow Lord, Disney+, Rotten Tomatoes
+
+Mon, 13 Apr 2026 15:02:11 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-rotten-tomatoes-record/
+
+'Star Wars: Maul — Shadow Lord' is no longer just a critics' favorite, with audiences now pushing the Disney+ series to another franchise milestone.
+---------
+
+# 'Euphoria' Claims Top Spot on HBO Max Following Season 3 Premiere
+
+TV News, Euphoria, Hot on Streaming, Sydney Sweeney
+
+Mon, 13 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/euphoria-number-one-streaming-hit-hbo-max-april-2026/
+
+Less than 24 hours after its return, 'Euphoria' has claimed its rightful place at the top of the streaming charts on HBO Max.
+---------
+
 # This Season 6 Simpsons Joke Has Gotten Funnier With Inflation, Seriously
 
 DC Comics, The Simpsons
