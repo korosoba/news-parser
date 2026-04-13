@@ -1,3 +1,146 @@
+# 10 Heavily Hyped DC Characters Who Never Took Off
+
+Comics, DC Comics, Wonder Woman, Batman, Young Justice
+
+Mon, 13 Apr 2026 00:00:21 GMT
+
+https://screenrant.com/dc-hyped-characters-never-took-off/
+
+DC had high hopes for these characters, but readers just didn't see it.
+---------
+
+# Top 10 Strongest Characters From Eleceed, Ranked
+
+Anime, Eleceed (2019), Eleceed
+
+Sun, 12 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/strongest-eleceed-characters-ranked/
+
+Discover the power rankings of the World's Top 10 Awakeners, from Gestella's ancient mist to Kayden's electric dominance.
+---------
+
+# 10 Series Finales That Are Hard To Watch Today
+
+TV
+
+Sun, 12 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/tv-series-finales-hard-to-watch/
+
+Series finales can be difficult to watch for many reasons, including ending badly, heartbreaking twists, or we just don't want to see the show go.
+---------
+
+# Top 10 Greatest Spider-Man And Daredevil Team-Up Stories Of All Time
+
+Marvel Comics, Spider-Man, Daredevil, Marvel
+
+Sun, 12 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/best-spider-man-daredevil-team-up-stories/
+
+Spider-Man and Daredevil have teamed up multiple times, often joining forces to fight shared villains like Kingpin and other street-level antagonists.
+---------
+
+# Anya Taylor-Joy's Sci-Fi Thriller The Gorge Is a Hit on the Apple TV Charts
+
+Movies, The Gorge, Sci-Fi, Thriller
+
+Mon, 13 Apr 2026 00:00:14 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-sci-fi-apple-tv-success-april-2026/
+
+Anya Taylor-Joy and Miles Teller's The Gorge is a streaming sensation, reaching No. 3 worldwide on Apple TV one year after release.
+---------
+
+# Luffy Reclaims No. 1 Spot in New One Piece Top 5 Character Ranking After Fraudulent Votes Removed
+
+Anime, One Piece
+
+Mon, 13 Apr 2026 00:00:14 GMT
+
+https://www.cbr.com/luffy-reclaims-no-1-spot-one-piece-character-ranking/
+
+The leader of the Straw Hat Pirates reclaims his spot as the number one character in the One Piece franchise following a major upset.
+---------
+
+# 6 Overlooked Star Trek Episodes That Are Better Than You Remember
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation
+
+Mon, 13 Apr 2026 00:00:14 GMT
+
+https://www.cbr.com/best-underrated-star-trek-episodes-list/
+
+Some Star Trek episodes are obvious masterpieces, but these surprisingly great episodes flew under the radar.
+---------
+
+# Spider-Man, Venom and Carnage Form a Shocking Team Against a New Villain
+
+Comics, Spider-Man
+
+Sun, 12 Apr 2026 23:40:15 GMT
+
+https://www.cbr.com/amazing-spider-man-25-review-venom-carnage-team-against-torment/
+
+In a CBR review of Amazing Spider-Man #25, see how Spider-Man, Venom, and Carnage form a shocking team against the mysterious new villain, Torment
+---------
+
+# The Most Loved Characters In Game of Thrones, Ranked
+
+TV, Game Of Thrones, hbo, HBO Max, Fantasy
+
+Sun, 12 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/game-of-thrones-best-favorite-characters-hbo/
+
+From Jon Snow to Daenerys Targaryen, many GoT characters are beloved by fans, but which one leads the charge for best of the best?
+---------
+
+# 16 Years Later, This 95% RT Western  Classic Lands on Free Streaming in May
+
+Movie News, True Grit, Joel Coen, Ethan Coen, Tubi
+
+Mon, 13 Apr 2026 00:00:14 GMT
+
+https://collider.com/coen-brothers-hailee-steinfeld-western-classic-true-grit-remake-streaming-free-tubi-may-2026/
+
+Joel and Ethan Coen’s groundbreaking Oscar-winning Western remake is coming to a free streamer in May. Find out more here.
+---------
+
+# Time Is Running Out To Watch the Best Hard Sci-Fi Movie of the 2010s
+
+Movie News, Ex Machina, Sci-Fi, Alex Garland, HBO Max
+
+Sun, 12 Apr 2026 23:45:12 GMT
+
+https://collider.com/sci-fi-thriller-alex-garland-ex-machina-leaving-hbo-max-may-2026/
+
+Ex Machina is reportedly leaving HBO Max on May 1, giving viewers a short window to revisit Alex Garland’s modern sci-fi classic.
+---------
+
+# Brad Pitt's Weirdest Fantasy Epic Is Officially a Sleeper Hit on HBO Max
+
+Movie News, David Fincher, The Curious Case of Benjamin Button, Brad Pitt, Cate Blanchett
+
+Sun, 12 Apr 2026 23:30:12 GMT
+
+https://collider.com/brad-pitt-fantasy-epic-the-curious-case-of-benjamin-button-streaming-success-hbo-max-april-2026/
+
+David Fincher's soaring fantasy epic, The Curious Case of Benjamin Button, recently made a return to the streaming charts. Find out more.
+---------
+
+# 'Black Dahlia': Scarlett Johansson's Underrated Psychological Thriller No One Remembers
+
+Features, Black Dahlia, Scarlett Johansson, Brian De Palma, Cultural Reassessment
+
+Sun, 12 Apr 2026 23:30:17 GMT
+
+https://movieweb.com/scarlett-johansson-black-dahlia-movie/
+
+The most notorious crime in Los Angeles history still haunts today
+---------
+
 # Netflix’s Philip K. Dick Adaptation: Perfect Followup To Denis Villeneuve’s Arrival
 
 Streaming TV, Denis Villeneuve, Arrival, Netflix, Sci-Fi
