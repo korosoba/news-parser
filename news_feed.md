@@ -1,3 +1,168 @@
+# Red Dead Redemption 2 60fps PS5 Gameplay Stuns Gamers
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Mon, 13 Apr 2026 11:00:27 GMT
+
+https://screenrant.com/red-dead-redemption-2-ps5-60fps/
+
+Fans have been calling for a 60FPS Red Dead Redemption 2 update, and modders have made it a reality.
+---------
+
+# 10 Best Nintendo Switch 2 Mouse Mode Games
+
+Gaming, Nintendo Switch 2, Gaming Hardware
+
+Mon, 13 Apr 2026 11:00:20 GMT
+
+https://screenrant.com/nintendo-switch-2-best-mouse-control-games/
+
+Mouse Mode is one of the few true innovations the Switch 2 makes over its predecessor, and a handful of games put the new control scheme to good use.
+---------
+
+# Hogwarts Legacy Bonus Quest Finally Lets You Fight Dementors
+
+Gaming, Hogwarts Legacy
+
+Mon, 13 Apr 2026 10:31:19 GMT
+
+https://screenrant.com/hogwarts-legacy-dementors-quest-fan-creation/
+
+Expecto Patronum is an incredible Hogwarts Legacy mod that adds one of the most iconic spells to the game, and the enemies to take on with it.
+---------
+
+# 5 Daredevil Characters Who Could Be Omen
+
+Comics, Daredevil
+
+Mon, 13 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/daredevil-characters-who-could-be-omen/
+
+Daredevil's new enemy seems to know every move he will make, and that narrows down the list of who they could be to a slim margin.
+---------
+
+# Popeyes Drops Exclusive One Piece Collectibles in First-Ever Anime Collab
+
+Anime, One Piece, food, Toei Animation, merchandise, collectibles
+
+Mon, 13 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/popeyes-one-piece-anime-collaboration-america-reveal/
+
+Popeyes' official One Piece team-up launches today with a limited-time menu, with bento boxes and merchandise rolling out at select U.S. locations.
+---------
+
+# 6 Movie Trilogies Where Only The Middle Chapter Is a Masterpiece
+
+Movie, The Good, the Bad and the Ugly, The Dark Knight, The Empire Strikes Back, Before Sunset
+
+Mon, 13 Apr 2026 11:41:12 GMT
+
+https://collider.com/movie-trilogies-middle-chapter-is-a-masterpiece/
+
+From The Empire Strikes Back to The Dark Knight, these trilogies reach their peak in the middle, delivering unforgettable storytelling.
+---------
+
+# 35 Best Japanese Movies of All Time, Ranked According to IMDb
+
+Movie, Top 10, Spirited Away, Seven Samurai, Harakiri
+
+Mon, 13 Apr 2026 11:38:12 GMT
+
+https://collider.com/best-japanese-movies-ranked-imdb/
+
+While there are more fantastic Japanese films than one list can cover, here are the highest-rated on IMDb.
+---------
+
+# 10 Greatest War Movies Released Since 'Saving Private Ryan,' Ranked
+
+Movie, War, Saving Private Ryan, The Pianist, Hotel Rwanda
+
+Mon, 13 Apr 2026 11:31:12 GMT
+
+https://collider.com/best-war-movies-since-saving-private-ryan-ranked/
+
+Inglourious Basterds, The Zone of Interest, and 1917 are all among the very best war movies released since Steven Spielberg's Saving Private Ryan.
+---------
+
+# Jason Statham's Gritty 2013 Crime Thriller Is Officially Leaving Netflix This May
+
+Movie News, Jason Statham, James Franco, Netflix, Homefront
+
+Mon, 13 Apr 2026 11:30:12 GMT
+
+https://collider.com/jason-statham-crime-thriller-homefront-leaving-netflix-may-2026/
+
+Jason Statham’s gritty action crime thriller, Homefront, is getting run off of Netflix at the end of the month. Read on for more.
+---------
+
+# Only 5 Animated Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Animation, The Boy and the Heron, Flow, Robot Dreams
+
+Mon, 13 Apr 2026 11:04:13 GMT
+
+https://collider.com/animated-movies-2020s-true-masterpieces/
+
+Although we're only halfway through the 2020s, animation has already produced a few true movie masterpieces, including Flow and The Boy and the Heron.
+---------
+
+# The 3-Part Series That Launched Alan Ritchson's Career Is About to Vanish From Streaming
+
+TV News, Blue Mountain State, Blue Mountain State: The Rise of Thadland, Alan Ritchson, Reacher
+
+Mon, 13 Apr 2026 11:00:13 GMT
+
+https://collider.com/alan-ritchson-sports-series-blue-mountain-state-leaving-netflix-may-2026/
+
+Before Alan Ritchson became Jack Reacher, he was a cocky football player in the cult classic series that is about to leave Netflix.
+---------
+
+# Only 3 Sci-Fi Horror Movies Are Better Than 'Alien'
+
+Movie, Sci-Fi, Horror, Alien, The Thing
+
+Mon, 13 Apr 2026 10:32:12 GMT
+
+https://collider.com/sci-fi-horror-movies-better-than-alien/
+
+Ridley Scott's Alien is widely considered the ultimate sci-fi horror movie, but a few genre films, like The Fly and The Thing, are even better.
+---------
+
+# ‘Breaking Bad’ Icon’s Unforgettable 2-Part Thriller Leaves Netflix Soon
+
+TV News, Bryan Cranston, Your Honor, Streaming, Netflix
+
+Mon, 13 Apr 2026 10:30:12 GMT
+
+https://collider.com/bryan-cranston-crime-thriller-your-honor-leaving-netflix-may-2026/
+
+Bryan Cranston’s post-Breaking Bad crime thriller is about to face a grim judgment on Netflix. Read on for more details.
+---------
+
+# 'By Any Means' With Mark Wahlberg & Yahya Abdul-Mateen II Lands Fall Release Date
+
+Movie News, Mark Wahlberg, Yahya Abdul-Mateen II, Crime, Thriller, By Any Means
+
+Mon, 13 Apr 2026 11:26:41 GMT
+
+https://movieweb.com/mark-wahlberg-by-any-means-release-date/
+
+Loosely based on true events, the crime thriller follows a mafia hitman and an FBI agent as they hunt for a killer targeting civil rights leaders.
+---------
+
+# Henry Cavill Proved He Could Be a Great Bond Villain in 'Mission: Impossible - Fallout'
+
+Features, Henry Cavill, James Bond, Mission: Impossible - Fallout
+
+Mon, 13 Apr 2026 11:00:19 GMT
+
+https://movieweb.com/henry-cavill-mission-impossible-bond-villain-audition-tape/
+
+Years after the 'Casino Royale' audition tape, Henry Cavill showed he could excel as a Bond villain in 'Mission: Impossible - Fallout'.
+---------
+
 # Star Trek: Strange New Worlds Spinoff Unlikely Means Thomas Jane Only Appears Once As Bones
 
 TV, Star Trek, Star Trek: Strange New Worlds
