@@ -1,3 +1,289 @@
+# Marry My Husband: Prime Video's Perfect 16-Part Time Travel Series
+
+Classic TV, Masked Recs
+
+Mon, 13 Apr 2026 22:01:19 GMT
+
+https://screenrant.com/marry-my-husband-prime-video-time-travel-show-plot-twist/
+
+Plot twists have ruined many promising series, but Prime Video's best time travel story proves they can just as easily take a show to the next level.
+---------
+
+# Animal Crossing Just Landed On PlayStation
+
+Gaming, Animal Crossing
+
+Mon, 13 Apr 2026 22:01:19 GMT
+
+https://screenrant.com/animal-crossing-playstation-vita-fan-port/
+
+Animal Crossing fans have achieved the impossible, bringing the beloved GameCube game to PlayStation through a decompilation.
+---------
+
+# 10 Masterpiece Anime Movies That Are Perfect For A Yearly Rewatch
+
+Anime
+
+Mon, 13 Apr 2026 22:01:19 GMT
+
+https://screenrant.com/anime-movies-masterpieces-yearly-rewatch/
+
+For reasons unique to each of them, every movie on this list has endless rewatch potential
+---------
+
+# 1981 Horror Classic The Howling Finally Getting Remake After Being Stuck In Development Hell
+
+Movies, The Howling, CinemaCon
+
+Mon, 13 Apr 2026 21:45:20 GMT
+
+https://screenrant.com/the-howling-remake-development-update/
+
+A much-loved 1981 horror classic could be returning, as The Howling is finally getting a remake after much debate and disappointing developments.
+---------
+
+# Paddington 4 Officially In Development
+
+Movies, CinemaCon, Paddington
+
+Mon, 13 Apr 2026 21:45:20 GMT
+
+https://screenrant.com/paddington-4-development-confirmed/
+
+A fourth Paddington is officially in development after Paddington in Peru saw the beloved bear travel to his homeland & dig up secrets from his past.
+---------
+
+# New Remake Of Kurt Russell's Cult Classic 45-Year-Old Sci-Fi Thriller Officially Confirmed
+
+Movies, Escape From New York, CinemaCon
+
+Mon, 13 Apr 2026 21:45:20 GMT
+
+https://screenrant.com/escape-from-new-york-remake-confirmed-studiocanal/
+
+StudioCanal officially confirmed at CinemaCon that a new "reimagining" of Kurt Russell's cult classic '80s sci-fi thriller is now in the works.
+---------
+
+# Game Of Thrones' Long-Awaited Winds Of Winter Release Leak Gets Immediate Response From George R.R. Martin's Publisher
+
+TV, The Winds of Winter, Game of Thrones, George R.R. Martin
+
+Mon, 13 Apr 2026 21:42:24 GMT
+
+https://screenrant.com/game-of-thrones-winds-of-winter-book-release-leak-false-george-rr-martin/
+
+Game of Thrones' long-awaited Winds of Winter release leak receives an immediate response from George R.R. Martin's publisher, Bantam Books.
+---------
+
+# 5 New Netflix Shows To Binge This Week – #1 Is One Of Its Best With A Near-Perfect Rotten Tomatoes Score
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 13 Apr 2026 21:36:10 GMT
+
+https://screenrant.com/new-netflix-shows-to-binge-this-week/
+
+Discover the best new Netflix shows premiering this week, including critically acclaimed returns and exciting new series across genres, like Beef.
+---------
+
+# Prime Video's Crime Thriller With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 21:33:21 GMT
+
+https://screenrant.com/prime-video-the-town-thriller-movie-best/
+
+One of Prime Video's most exciting movies is a thriller that features a star-studded cast and is focused on an intense story from start to finish.
+---------
+
+# Jennifer Lopez & Ted Lasso Star's Netflix Rom-Com Gets First Look & Release Date
+
+Movies, Office Romance
+
+Mon, 13 Apr 2026 21:32:59 GMT
+
+https://screenrant.com/office-romance-netflix-movie-jennifer-lopez-brett-goldstein-first-look-release-date/
+
+After starring in action thrillers, science fiction, and musical dramas, Jennifer Lopez returns to romantic comedies opposite a Ted Lasso star.
+---------
+
+# Who are the Hutts In The Mandalorian & Grogu? Jabba's Family, Explained
+
+Movies, Star Wars, The Mandalorian and Grogu, Sci-Fi
+
+Mon, 13 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/star-wars-guide-to-hutts-mandalorian-grogu-jabba-family-sci-fi/
+
+The Hutts are officially returning to Star Wars in its next movie. Who are the new villains in The Mandalorian and Grogu?
+---------
+
+# Pragmata Is One of the Best Capcom Games of All Time
+
+Games, capcom
+
+Mon, 13 Apr 2026 21:45:14 GMT
+
+https://www.cbr.com/pragmata-review-2026-game-of-the-year/
+
+Pragmata is the newest IP from Capcom, and it's an instant masterpiece thanks to its superb story, characters, and gameplay.
+---------
+
+# 7 Most Shocking Scenes in The Boys, Ranked
+
+TV, The Boys, television, amazon
+
+Mon, 13 Apr 2026 21:30:14 GMT
+
+https://www.cbr.com/the-boys-most-outrageous-scenes-ranked/
+
+The Boys features tons of shocking moments, but some of them are too much, even for this show's standards.
+---------
+
+# Resident Alien Officially Returns Series Finale, But Not How Fans Expect
+
+Comics, Resident Alien
+
+Mon, 13 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/resident-alien-one-more-for-the-road-release-date-confirmed/
+
+Resident Alien fans are about to get the grand finale that the hit sci-fi dramedy series is so deserving of, and it sounds like a perfect send-off.
+---------
+
+# 10 Most Historically Accurate WWII Movies, Ranked
+
+Movies, War
+
+Mon, 13 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/most-historically-accurate-wwii-movies-list/
+
+World War 2 movies are exciting, but the realistic ones dive into more emotions than just thrills.
+---------
+
+# The Pitt Season 3 Reveals Major Timeline Update Days Before Season 2 Finale
+
+TV, The Pitt
+
+Mon, 13 Apr 2026 21:29:15 GMT
+
+https://www.cbr.com/the-pitt-season-3-timeline-setting/
+
+The Pitt Season 3's timeline has been confirmed ahead of the Season 2 finale on HBO.
+---------
+
+# 10 Greatest Thrillers of the Last 6 Years, Ranked
+
+Movie, Thriller, One Battle After Another, Anatomy of a Fall, Juror #2
+
+Mon, 13 Apr 2026 21:53:13 GMT
+
+https://collider.com/best-thriller-movies-last-6-years/
+
+The past six years have been truly incredible for the thriller genre in cinema, thanks to movie masterpieces like Oppenheimer and Nightmare Alley.
+---------
+
+# One of John Carpenter's Best Sci-Fi Movies Is Officially Getting a Remake
+
+Movie News, Kurt Russell, Escape From New York, John Carpenter, Sci-Fi
+
+Mon, 13 Apr 2026 21:45:14 GMT
+
+https://collider.com/escape-from-new-york-remake-announcement/
+
+StudioCanal has confirmed at CinemaCon that it is developing a new reimagining of John Carpenter’s Escape From New York.
+---------
+
+# Cult Classic Werewolf Horror Movie Is Officially Getting a Remake
+
+Movie News, The Howling, Horror, studiocanal
+
+Mon, 13 Apr 2026 21:45:14 GMT
+
+https://collider.com/the-howling-horror-movie-remake-details-45-years-later/
+
+British studio Studiocanal announces a reimagining of the 1981 horror classic The Howling, a commercial and critical success with groundbreaking FX.
+---------
+
+# One of the World’s Most Popular Fantasy Novels Is Officially Getting a Movie
+
+Movie News, studiocanal, Fantasy, CinemaCon, Drama
+
+Mon, 13 Apr 2026 21:45:14 GMT
+
+https://collider.com/the-midnight-library-blueprint-pictures-fantasy-novel-adaptation/
+
+Blueprint Pictures and StudioCanal have joined forces to adapt the global bestselling fantasy novel, The Midnight Library. Here's what we know.
+---------
+
+# 'Paddington' Is Officially Coming Back for Another Wholesome Adventure
+
+Movie News, Paddington, Paddington in Peru, CinemaCon, Ben Whishaw
+
+Mon, 13 Apr 2026 21:38:26 GMT
+
+https://collider.com/paddington-4-officially-in-development/
+
+StudioCanal officially confirmed at CinemaCon that a fourth Paddington movie is now in development. Here's everything we know.
+---------
+
+# 8 Gripping Medical Dramas That Are Perfect From Start to Finish
+
+TV, ER, The Pitt, House, Drama
+
+Mon, 13 Apr 2026 21:36:16 GMT
+
+https://collider.com/medical-drama-shows-perfect-start-to-finish/
+
+NBC's ER, Fox's House, and HBO Max's The Pitt are some of the best medical dramas on television, gripping their audiences from start to finish.
+---------
+
+# William Shatner's 93% RT WWII Crime Thriller Is Still a Masterpiece 65 Years Later
+
+Movie Features, Judgment at Nuremberg, William Shatner, Crime, Thriller
+
+Mon, 13 Apr 2026 21:31:47 GMT
+
+https://collider.com/william-shatner-movies-judgment-at-nuremberg-crime-thriller-masterpiece/
+
+Judgment at Nuremberg, starring William Shatner, Judy Garland, and Spencer Tracy, is a gripping crime thriller examining the aftermath of WWII.
+---------
+
+# Ridley Scott's 'Kaleidoscope' Is the Most Rewatchable TV Series Ever Made
+
+Features, Kaleidoscope, Ridley Scott
+
+Mon, 13 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/kaleidoscope-rewatchable-netflix-thriller/
+
+'Kaleidoscope' is an eight-episode crime thriller miniseries on Netflix from executive producer Ridley Scott.
+---------
+
+# 'The X-Files' Star David Duchovny Confirms There Have Been "Talks" of Reboot Return
+
+TV News, David Duchovny, The X-Files
+
+Mon, 13 Apr 2026 21:42:54 GMT
+
+https://movieweb.com/the-x-files-reboot-david-duchovny-return/
+
+The actor admits he hasn't seen as much of the Ryan Coogler reboot as his costar Gillian Anderson.
+---------
+
+# Alan Ritchson's New Netflix Action Series Is the Perfect 'Reacher' Replacement
+
+Features, Alan Ritchson, Netflix, Reacher
+
+Mon, 13 Apr 2026 21:39:53 GMT
+
+https://movieweb.com/alan-ritchson-netflix-action-reacher-replacement/
+
+Alan Ritchson is back with another action-fueled series heading to Netflix, marking a career first that is a perfect 'Reacher' replacement.
+---------
+
 # 8 Fantasy Shows That Improve With Rewatches
 
 Classic TV
