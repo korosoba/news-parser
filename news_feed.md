@@ -1,3 +1,289 @@
+# Tim McGraw Sets New Yellowstone Replacement Series With FX's Adaptation Of Award-Winning Graphic Novels
+
+TV, Tim McGraw, Yellowstone
+
+Mon, 13 Apr 2026 20:05:37 GMT
+
+https://screenrant.com/southern-bastards-tim-mcgraw-erin-kellyman-casting/
+
+After starring on the Yellowstone spinoff 1883, singer Tim McGraw has found his next acting role with none other than Footloose’s Kevin Bacon.
+---------
+
+# Netflix's 2-Part Action Thriller Series Keeps Getting Better & It's One Of Its Best To Binge
+
+TV, Bloodhounds, Masked Recs
+
+Mon, 13 Apr 2026 20:01:20 GMT
+
+https://screenrant.com/bloodhounds-netflix-action-k-drama-getting-better-binge/
+
+In a world of shattered dreams, one bold move sets the stage for an epic battle against the city's underworld in Netflix's brutal action thriller.
+---------
+
+# Steam Drops Outstanding 9/10 Freebie That You Can Keep Forever
+
+Gaming, Indie, Steam, PC
+
+Mon, 13 Apr 2026 20:00:21 GMT
+
+https://screenrant.com/steam-free-game-9-10-adventure-download-now/
+
+A new game was released entirely for free on Steam, and it has been met with 9/10 positive reviews on the platform; download and keep it forever.
+---------
+
+# Why Apple TV's New Star-Studded Movie Is A Global Smash Hit Despite Abysmal RT Score (Now #1 Worldwide)
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 19:55:19 GMT
+
+https://screenrant.com/apple-tv-outcome-movie-cast-streaming-success-2026-explained/
+
+Apple TV's new global smash hit is dominating streaming charts even though it has a negative Rotten Tomatoes score, and there is a good reason why.
+---------
+
+# Crunchyroll Just Ended The Best Action Fantasy Anime Debate With One Preview
+
+Anime, Wistoria: Wand and Sword, Crunchyroll, Fantasy
+
+Mon, 13 Apr 2026 19:33:32 GMT
+
+https://screenrant.com/wistoria-best-action-fantasy-anime-season-2-crunchyroll/
+
+This new preview proves which series is the best action fantasy anime of 2026 that is streaming on Crunchyroll, and fans won't want to miss it.
+---------
+
+# Ted Lasso Season 4: Why Now's the Best Time to Binge Apple TV's Hit Series
+
+Streaming TV, Masked Recs
+
+Mon, 13 Apr 2026 19:30:21 GMT
+
+https://screenrant.com/apple-tv-ted-lasso-rewatch-before-season-4/
+
+Ted Lasso is coming back to Apple TV for a surprise fourth season this summer, so it's the perfect time to rewatch the heartwarming sports comedy.
+---------
+
+# Anne Hathaway's Biggest Year Ever Begins This Week
+
+New Movies, Anne Hathaway, Mother Mary
+
+Mon, 13 Apr 2026 19:20:20 GMT
+
+https://screenrant.com/anne-hathaway-2026-biggest-year-ever-begins/
+
+Anne Hathaway has been a major star for decades, and the biggest year of her career finally begins this week with a highly anticipated release.
+---------
+
+# DC Officially Reveals Lobo's Most Radical Redesign Ever Ahead Of Jason Momoa's Supergirl Appearance
+
+DC Comics, Lobo, Jason Momoa, Supergirl
+
+Mon, 13 Apr 2026 19:16:39 GMT
+
+https://screenrant.com/dc-new-lobo-costume-compared-jason-momoa-design/
+
+Jason Momoa's Lobo is perfection; that's why it is so surprising that DC Comics has decided to give the Main Man a complete redesign.
+---------
+
+# Chris Pratt’s Canceled 4-Part Series Sets Official Free Streaming Release Date
+
+TV, Masked Recs
+
+Mon, 13 Apr 2026 19:09:32 GMT
+
+https://screenrant.com/everwood-series-pluto-tv-streaming-release-date/
+
+Chris Pratt's underrated four-season show will be available to watch for free very soon, highlighting one of the actor's first major roles.
+---------
+
+# 10 Dark Fantasy Anime Scarier Than Most Horror Shows
+
+Anime, Attack On Titan, Berserk
+
+Mon, 13 Apr 2026 20:16:13 GMT
+
+https://www.cbr.com/best-dark-fantasy-anime-scarier-than-horror-shows/
+
+Dark fantasy anime like Dorohedoro and Attack on Titan push boundaries far beyond typical horror storytelling.
+---------
+
+# Marvel Officially Reveals Captain America's Shocking New Redesign
+
+Comics, Marvel, Marvel Comics, MCU, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Captain America, Captain America: Brave New World
+
+Mon, 13 Apr 2026 20:09:46 GMT
+
+https://www.cbr.com/marvel-officially-reveals-captain-america-shocking-redesign/
+
+The world has never seen Captain America like this before.
+---------
+
+# Dutton Ranch Is Yellowstone's New Era Without Kevin Costner's John Dutton
+
+TV, Dutton Ranch, Yellowstone
+
+Mon, 13 Apr 2026 20:06:20 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-ensemble-cast-replaces-kevin-costner/
+
+Taylor Sheridan's Dutton Ranch spinoff replaces Kevin Costner's iconic John Dutton with an ensemble cast led by Beth Dutton and Rip Wheeler.
+---------
+
+# Dark Souls Officially Returns On May 15 Through New Release
+
+Games, Dark Souls
+
+Mon, 13 Apr 2026 20:05:13 GMT
+
+https://www.cbr.com/dark-souls-new-release-may-2026-bonfire-statue/
+
+The Dark Souls series will never die, as a brand-new release is coming on May 15, available for purchase on the official Bandai Namco store.
+---------
+
+# Disney+ Gets 3 New Marvel Movies & TV Shows In April
+
+TV, Disney+
+
+Mon, 13 Apr 2026 20:01:16 GMT
+
+https://www.cbr.com/disney-plus-marvel-content-april-2026/
+
+Disney+ has Marvel fans covered with streaming content this month.
+---------
+
+# Christoph Waltz's Record-Breaking Dracula Movie With 52% RT Is Taking Over PVOD
+
+Movies, Dracula
+
+Mon, 13 Apr 2026 20:00:13 GMT
+
+https://www.cbr.com/christoph-waltz-dracula-pvod-success-april-2026/
+
+The Fifth Element's Luc Besson wrote and directed the impressive new Dracula interpretation, and now it's dominating on the digital charts.
+---------
+
+# The Beekeeper Is the Blueprint for Jason Statham’s Action Future
+
+Movies, Shelter, The Beekeeper
+
+Mon, 13 Apr 2026 20:00:13 GMT
+
+https://www.cbr.com/the-beekeeper-perfect-blueprint-jason-statham-action-movies/
+
+Here's why this ultra-silly, immensely fun 2024 action-thriller hit should "bee" the blueprint for Jason Statham's action career moving forward.
+---------
+
+# Brandon Sanderson Gives Ryan Gosling's Project Hail Mary an Honest 10/10 Review
+
+Movies, Project Hail Mary
+
+Mon, 13 Apr 2026 19:55:55 GMT
+
+https://www.cbr.com/brandon-sanderson-project-hail-mary-review/
+
+Ahead of his upcoming Apple TV movie, Brandon Sanderson admitted he appreciates adaptations even more.
+---------
+
+# Bleach: TYBW Part 4 Will Be Available Without a Hulu Subscription
+
+Anime, Bleach, Bleach: Thousand Year Blood War, viz media
+
+Mon, 13 Apr 2026 19:44:24 GMT
+
+https://www.cbr.com/bleach-tybw-part-4-the-calamity-america-theater-release-date/
+
+Bleach anime fans just got some exciting news about the franchise's upcoming TYBW finale, and they won't need a subscription to watch the premiere.
+---------
+
+# What Was The First Lego Set Ever Made?
+
+Lists, toys, LEGO, collectibles
+
+Mon, 13 Apr 2026 19:30:13 GMT
+
+https://www.cbr.com/first-lego-sets-ever-made-with-years/
+
+The first-ever LEGO sets offer a fun trip back in time for fans of the world's most popular brick building toy company.
+---------
+
+# Netflix Is Sabotaging Its Best Sci-Fi Sleeper Hit by Cutting Its Final 2 Seasons Short
+
+TV Features, 3 Body Problem, Eiza Gonzalez, Jovan Adepo, John Bradley
+
+Mon, 13 Apr 2026 20:24:15 GMT
+
+https://collider.com/three-body-problem-biggest-mistake-short-season/
+
+Netflix's choice to cut 3 Body Problem seasons short undermines the show's quality and impact on its sci-fi slate.
+---------
+
+# The 10 Best Anime on Prime Video and Hulu
+
+TV, Hulu, Prime Video, Anime, Bleach: Thousand Year Blood War
+
+Mon, 13 Apr 2026 20:05:13 GMT
+
+https://collider.com/best-anime-shows-prime-video-hulu/
+
+From Undead Unlock to Dororo, these are the best anime streaming exclusively on Hulu and Prime Video, proving the medium thrives outside Crunchyroll.
+---------
+
+# George R.R. Martin Officially Responds to ‘The Winds of Winter’ Release Rumors
+
+TV News, George R.R. Martin, Game Of Thrones, The Winds of Winter, House of the Dragon
+
+Mon, 13 Apr 2026 19:46:21 GMT
+
+https://collider.com/game-of-thrones-george-rr-martin-winds-of-winter-release-update-not-coming-in-2026/
+
+George R.R. Martin officially responds to those Winds of Winter release rumors with yet another disappointing update for Game of Thrones fans.
+---------
+
+# 3 Upcoming Movies That You Cannot Miss in the Next Month
+
+Movie, The Devil Wears Prada 2, Mortal Kombat II, Michael
+
+Mon, 13 Apr 2026 19:41:13 GMT
+
+https://collider.com/upcoming-movies-cannot-miss-next-month/
+
+From musical biopics like Michael to the long-awaited return of Miranda Priestley, these movies premiering in the next month are simply unmissable.
+---------
+
+# Two of the Best Sequels of All Time Are Now on Netflix
+
+Movie, Netflix, A Quiet Place Part II, The Bad Guys 2, Noah Kahan: Out of Body
+
+Mon, 13 Apr 2026 19:20:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-april-13/
+
+Noah Kahan: Out of Body, A Quiet Place Part II, and The Bad Guys 2 make up our list of the best movies to watch on Netflix the week of April 13, 2026.
+---------
+
+# 'Malcolm in the Middle' Creator Confirms if Revival Will Continue After 2026 Season
+
+TV News, Malcolm in the Middle: Life's Still Unfair
+
+Mon, 13 Apr 2026 20:10:44 GMT
+
+https://movieweb.com/malcolm-in-the-middle-end-season-1/
+
+Those looking for more 'Malcolm in the Middle' episodes after the revival now have an answer about the chance of more material coming.
+---------
+
+# 'Child's Play' Creator Don Mancini Developing New Theatrical Chucky Movie
+
+Movie News, Child's Play, Don Mancini, Chucky
+
+Mon, 13 Apr 2026 20:00:49 GMT
+
+https://movieweb.com/childs-play-chucky-reboot-theaters/
+
+The upcoming installment will reportedly attempt to reset the series and embrace a scarier vibe than recent entries.
+---------
+
 # 3 Years Before One Piece, Netflix's 10/10 Action Fantasy Series Was The Best Live-Action Manga Adaptation
 
 Classic TV, Masked Recs, One Piece, Alice in Borderland, Netflix
