@@ -1,3 +1,355 @@
+# One-Punch Man's Heroes Just Suffered a Major Failure, and It's Empowering the Series' Strongest Villains
+
+Anime, One-Punch Man
+
+Mon, 13 Apr 2026 03:47:22 GMT
+
+https://screenrant.com/one-punch-man-heroes-massive-failure/
+
+Saitama's absence has hardly meant a lack of exciting and disturbing developments in One-Punch Man.
+---------
+
+# The Best TV Vampire Since Spike In Buffy
+
+Classic TV, Buffy The Vampire Slayer, Preacher
+
+Mon, 13 Apr 2026 03:46:48 GMT
+
+https://screenrant.com/preacher-best-tv-vampire-cassidy/
+
+Spike from Buffy the Vampire Slayer arguably remains the best portrayal of a vampire on TV, but another show comes close with its vampire character.
+---------
+
+# 10 Naruto Characters With Tragic Stories So Brutal Fans Still Aren’t Over Them
+
+Anime, Naruto
+
+Mon, 13 Apr 2026 03:30:20 GMT
+
+https://screenrant.com/naruto-saddest-characters-backstories/
+
+Explore the heartbreaking origins of Naruto's most tragic characters, from Naruto to Itachi and Sasuke, and how their pasts shaped their futures
+---------
+
+# Road House Meets Never Back Down In Netflix’s Bloodhounds Season 2
+
+Streaming TV, Road House, Never Back Down, Bloodhounds, Bloodhounds - Season 2, Netflix
+
+Mon, 13 Apr 2026 03:15:23 GMT
+
+https://screenrant.com/road-house-never-back-down-bloodhounds-season-2-netflix/
+
+Netflix is the home of an epic action thriller series that comes off as the perfect combination of the best aspects of Road House and Never Back Down.
+---------
+
+# Daredevil’s New MCU Sidekick Proves A Spider-Man Team-Up Is WAY Overdue
+
+Superheroes, Daredevil: Born Again, Spider-Man, Marvel Cinematic Universe
+
+Mon, 13 Apr 2026 03:12:15 GMT
+
+https://screenrant.com/daredevil-new-mcu-sidekick-white-tiger-spider-man-comparison/
+
+Following the debut of Daredevil's new "sidekick" in Born Again season 2, we really need to see Matt Murdock team-up with Spider-Man in the MCU.
+---------
+
+# Crunchyroll's Biggest Anime of the Year Snub Isn't Solo Leveling
+
+Anime, To Be Hero X
+
+Mon, 13 Apr 2026 03:03:16 GMT
+
+https://screenrant.com/crunchyroll-biggest-anime-year-snub-to-be-hero-x-not-solo-leveling/
+
+Discover why To Be Hero X deserves a Crunchyroll Award nomination for its innovative storytelling, unique visual style, and interactive fan engagement
+---------
+
+# All Fantasy Action Fans Simply Must Binge This New Series Endorsed by One Piece Creator
+
+Anime, Shonen Jump, One Piece
+
+Mon, 13 Apr 2026 02:49:26 GMT
+
+https://screenrant.com/ultimate-exorcist-kiyoshi-one-piece-creator-reccomendation/
+
+This exciting and endearing supernatural fantasy romp is perfect for those craving more of that One Piece aesthetic.
+---------
+
+# HBO's Half-Man Is Officially The Next Baby Reindeer
+
+Streaming TV, Half Man, Baby Reindeer, HBO
+
+Mon, 13 Apr 2026 02:32:28 GMT
+
+https://screenrant.com/half-man-hbo-drama-next-baby-reindeer/
+
+Netflix’s Baby Reindeer remains one of the most unique and hard-hitting TV dramas from recent years, but HBO’s new show can be its perfect replacement
+---------
+
+# Crunchyroll's Strangest Isekai Anime Of 2026 It's Already A Must-Watch
+
+Anime, Isekai, Crunchyroll
+
+Mon, 13 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/my-ribdiculous-reincarnation-strangest-isekai-2026-crunchyroll/
+
+For fans who thought they'd seen it all, Crunchyroll's new isekai anime might be one of the best and most original takes on the genre to date.
+---------
+
+# Dark Matter Season 2’s 2026 Return Sets A Major Turning Point
+
+Streaming TV, Apple TV, Dark Matter
+
+Mon, 13 Apr 2026 02:15:26 GMT
+
+https://screenrant.com/apple-tv-dark-matter-season-2-return-2026-story/
+
+Apple TV is the streaming home of a twisty sci-fi series that will return in 2026, marking the inception of a major turning point in its storyline.
+---------
+
+# Netflix's Bloodhounds Dominates Streaming After Explosive Return
+
+TV, Bloodhounds
+
+Mon, 13 Apr 2026 03:55:13 GMT
+
+https://www.cbr.com/bloodhounds-streaming-netflix-april-2026/
+
+Netflix's Cobra Kai replacement series earns streaming success after its return for Season 2.
+---------
+
+# The X-Files Season 11 Episode 4 Is a Must-Watch for Fans
+
+TV, The X-Files
+
+Mon, 13 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/x-files-perfect-episode-the-lost-art-of-forehead-sweat/
+
+There are many great episodes of The X-Files, but one of the most popular is worth watching for good reasons.
+---------
+
+# 25 Best Anime to Stream On Crunchyroll
+
+Anime, Crunchyroll
+
+Mon, 13 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/crunchyroll-best-streaming-anime-recommendations/
+
+From breakout hits to classic fan favorites, Crunchyroll has the most comprehensive collection of anime for fans to stream right now.
+---------
+
+# Prime Video Officially Adds ASL & BSL Versions to 18 Movies
+
+Movies, Prime Video
+
+Mon, 13 Apr 2026 03:26:23 GMT
+
+https://www.cbr.com/prime-video-asl-bsl-18-movies/
+
+Prime Video expands accessibility on streaming with the new viewing option available for 18 more Prime Original movies.
+---------
+
+# 7 Near-Perfect Sega Dreamcast Games No One Remembers
+
+Games, dreamcast, sega, Video Games
+
+Mon, 13 Apr 2026 03:15:19 GMT
+
+https://www.cbr.com/almost-perfect-sega-dreamcast-games-no-one-remembers/
+
+Dreamcast games like Cannon Spike and Illbleed are not the most remembered titles on that console.
+---------
+
+# Hunter x Hunter Gets New Phone Case Collection Ahead of 2026 Comeback
+
+Anime, Hunter X Hunter, Shonen Jump
+
+Mon, 13 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-anime-phone-case-2026-release/
+
+Hunter x Hunter is getting a new phone case and tech accessory collection in the U.S. ahead of its 2026 comeback.
+---------
+
+# These 10/10 Anime Series All Have Perfect Scores on Rotten Tomatoes
+
+Anime, Rotten Tomatoes
+
+Mon, 13 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/anime-series-perfect-rotten-tomatoes-scores-list/
+
+Anime like One Punch Man are so good they've earned 100% Fresh ratings on Rotten Tomatoes.
+---------
+
+# Toei Animation Whitewashes Yet Another Straw Hat Pirate
+
+Anime, One Piece
+
+Mon, 13 Apr 2026 02:20:12 GMT
+
+https://www.cbr.com/one-piece-usopp-whitewashing-toei-animation/
+
+One Piece's cast has suffered yet another blow thanks to Toei Animation's inconsistent approach to character design.
+---------
+
+# Don't Breathe Is Streaming for Free on YouTube
+
+Movies, Don't Breathe
+
+Mon, 13 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/dont-breathe-youtube-april-2026/
+
+The smash hit horror movie is easier to stream than ever.
+---------
+
+# Fate/strange Fake Anime's New Limited-Edition Watch Collection Gets International Release
+
+Anime, Fate/strange Fake, merchandise
+
+Mon, 13 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/fate-strange-fake-watches-release/
+
+The watch designs are inspired by the characters from the series, and they are available for a limited-time pre-order.
+---------
+
+# Steven Spielberg Put His Foot Down and Refused to Make a Sequel to This Beloved Classic
+
+Movie Features, E.T. the Extra-Terrestrial, Steven Spielberg, Universal, Drew Barrymore
+
+Mon, 13 Apr 2026 03:56:12 GMT
+
+https://collider.com/steven-spielberg-et-sequel-the-extra-terrestrial/
+
+Although ideas for an E.T. sequel have been thrown around over the years, Steven Spielberg has done everything he can to prevent it from happening.
+---------
+
+# 14 Years Later, Disney's Cult Sci-Fi Movie Tom Cruise Wanted to Star in Is Way Better Than Its Baffling Box Office Would Suggest
+
+Movie Features, John Carter, Taylor Kitsch, Tom Cruise, Fantasy
+
+Mon, 13 Apr 2026 03:26:30 GMT
+
+https://collider.com/john-carter-tom-cruise-box-office-disney/
+
+Taylor Kitsch starred in John Carter, the 2012 sci-fi movie from Disney that shouldn't have bombed at the box office.
+---------
+
+# 'Tracker' Finally Moves the Needle on the Mystery of Colter Shaw's Father | Review
+
+TV Reviews, Tracker, Justin Hartley, Procedural, CBS
+
+Mon, 13 Apr 2026 02:00:23 GMT
+
+https://collider.com/tracker-season-3-episode-16-recap-review-colter-ashton-shaw/
+
+Colter Shaw tackles a case involving a missing husband while uncovering clues about his father's mysterious past in the latest Tracker.
+---------
+
+# 10 Most Influential TV Shows of the Last 10 Years, Ranked
+
+TV, Stranger Things, Squid Game, Chernobyl, Succession
+
+Mon, 13 Apr 2026 01:22:13 GMT
+
+https://collider.com/most-influential-tv-shows-last-10-years-ranked/
+
+Explore the most influential TV shows of the past 10 years that have impacted culture and storytelling, from Stranger Things to Chernobyl.
+---------
+
+# 7 Horror Shows Where Every Episode Is a Masterpiece
+
+TV, Horror, Twin Peaks, Servant, The Haunting of Hill House
+
+Mon, 13 Apr 2026 01:21:13 GMT
+
+https://collider.com/horror-shows-every-episode-masterpiece/
+
+Twin Peaks, The Haunting of Hill House, and Servant are among the rare class of horror TV shows where every episode is genuinely a masterpiece.
+---------
+
+# 'Marshals' Pushes 'Yellowstone's Kayce Dutton Into New Soapy Territory, for Better and Worse | Review
+
+TV Reviews, Marshals, Luke Grimes, Logan Marshall-Green, Gil Birmingham
+
+Mon, 13 Apr 2026 01:00:13 GMT
+
+https://collider.com/marshals-episode-7-recap-review-yellowstone-kayce-romance/
+
+Kayce Dutton and his team investigate an assassination attempt on a federal judge, uncovering secrets and conspiracies along the way.
+---------
+
+# Taylor Sheridan’s Neo Western Crime Thriller Is Taking Over the World
+
+Movie News, Sicario, Taylor Sheridan, Sicario: Day Of The Soldado, Josh Brolin
+
+Mon, 13 Apr 2026 01:00:13 GMT
+
+https://collider.com/taylor-sheridan-neo-western-classic-sicario-streaming-success-netflix-april-2026/
+
+Taylor Sheridan's undisputed neo-Western classic starring Josh Brolin is officially staging a worldwide streaming takeover. Find out more here.
+---------
+
+# ‘DTF St. Louis’ Creator Explains Floyd’s Shocking Finale Fate and Why He Couldn’t Look at Fan Theories
+
+Exclusives, DTF St. Louis, David Harbour, Jason Bateman, Linda Cardellini
+
+Mon, 13 Apr 2026 01:00:08 GMT
+
+https://collider.com/dtf-st-louis-finale-meaning-floyd-fate-creator-steven-conrad-interview/
+
+'DTF St. Louis' creator Steven Conrad discusses Floyd's tragic fate, why he couldn't look at fan theories, and the possibility of another season.
+---------
+
+# The Most Brutal WWII Thriller Ever Made Is About To Vanish From Netflix
+
+Movie News, Fury, Brad Pitt, David Ayer, World War II
+
+Mon, 13 Apr 2026 00:45:12 GMT
+
+https://collider.com/brad-pitt-brutal-ww2-thriller-fury-leaving-netflix-may-2026/
+
+David Ayer’s WW2 thriller Fury with Brad Pitt is leaving Netflix on May 1, taking one of the streamer’s most brutal war movies with it.
+---------
+
+# The Best Horror Series of the '90s Is Officially Coming to Streaming for the First Time Ever
+
+TV News, Tales From the Crypt, Shudder, Horror, HBO
+
+Mon, 13 Apr 2026 00:30:13 GMT
+
+https://collider.com/hbo-sci-fi-horror-series-tales-from-the-crypt-streaming-shudder-release-date-june-12-2026/
+
+The best horror anthology of the '90s, Tales From the Crypt, will be available to stream for the first time ever this spring. Find out more here.
+---------
+
+# How 'Euphoria' Season 3 Handles Fezco's Absence & Angus Cloud Dedication, Explained
+
+Features, Euphoria
+
+Mon, 13 Apr 2026 02:15:20 GMT
+
+https://movieweb.com/how-euphoria-handles-fezco-absence-angus-cloud/
+
+The 2023 death of Fezco actor Angus Cloud unfortunately meant that season 3 of 'Euphoria' was forced to carry on without the fan-favorite character.
+---------
+
+# 'The Winds of Winter' Leaks Say George R.R. Martin Has Finished the Book
+
+TV News, George R.R. Martin, Fantasy, Game of Thrones
+
+Mon, 13 Apr 2026 02:06:51 GMT
+
+https://movieweb.com/winds-of-winter-leak-grrm-finished/
+
+Another day, another rumor about George R.R. Martin finally finishing 'The Winds of Winter.'
+---------
+
 # 10 Heavily Hyped DC Characters Who Never Took Off
 
 Comics, DC Comics, Wonder Woman, Batman, Young Justice
