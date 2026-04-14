@@ -1,3 +1,322 @@
+# Nintendo Fans, Prepare For A Wave Of Fake News Straight From The Company Itself
+
+Gaming, Nintendo
+
+Tue, 14 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/nintendo-fans-fake-news-announcement/
+
+Despite more than a few promising leaks over the past few months about Nintendo, fans have some unfortunate news if this latest announcement is true.
+---------
+
+# John Krasinski's Career Pivot: From Office Comedy To Horror And Spy Thrillers
+
+Classic TV, Tom Clancy's Jack Ryan
+
+Tue, 14 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/jack-ryan-prime-video-spy-series-change-john-krasinski-career/
+
+For years, John Krasinski was only known as Jim Halpert from The Office, but he's managed to pivot his career thanks to directing and Jack Ryan.
+---------
+
+# Mother Mary Review: Anne Hathaway's Pop Star Drama Is All Style No Substance
+
+New Movies, Mother Mary
+
+Tue, 14 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/mother-mary-movie-2026-review/
+
+For David Lowery's Mother Mary, Anne Hathaway and Michaela Coel deliver powerhouse performances in a film that gets too bogged down in its metaphors.
+---------
+
+# Michael B. Jordan's Next Movie After Sinners Is Netflix's New KPop Demon Hunters
+
+Movies, Netflix, Michael B. Jordan, Swapped
+
+Tue, 14 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/michae-b-jordan-swapped-movie-kpop-demon-hunters/
+
+2026 is about to release Michael B. Jordan's next movie, which holds some real potential given its similarities to Netflix hit KPop Demon Hunters.
+---------
+
+# DC's 8-Part Superhero Crime Series That Launched Hit Franchise Is Officially Streaming Free Next Month
+
+TV, Arrow, DC Universe, Arrowverse, Green Arrow, The CW
+
+Tue, 14 Apr 2026 13:00:15 GMT
+
+https://screenrant.com/arrow-pluto-tv-free-streaming-release-date/
+
+A major 8-part DC TV superhero crime show, which set up one of the most successful live-action franchises, is getting a new free streaming home.
+---------
+
+# 2026 AMA Nominations: Taylor Swift Leads Pack as New Wave Dominates
+
+Music, Taylor Swift, Olivia Dean, Sabrina Carpenter, CBS, Paramount+ with Showtime, American Music Awards
+
+Tue, 14 Apr 2026 12:50:34 GMT
+
+https://screenrant.com/ama-nominations-2026-nominees-list-taylor-swift/
+
+See the full list of 52nd AMA nominees. Taylor Swift leads with 8 nods as breakout stars Olivia Dean and SOMBR shake up the 2026 nominations.
+---------
+
+# New Pokémon TCG Promo Cards Appear Online, But Act Fast If You Want Them
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Tue, 14 Apr 2026 12:40:40 GMT
+
+https://screenrant.com/pokemon-tcg-chaos-rising-promo-cards/
+
+A new batch of promo cards for the Pokémon Trading Card Game have been revealed online, but they may be difficult to obtain when they release.
+---------
+
+# Assassin's Creed Officially Returns With New Release On May 19
+
+Gaming, Assassin's Creed, PC
+
+Tue, 14 Apr 2026 12:31:57 GMT
+
+https://screenrant.com/assassins-creed-forgotten-temple-may-19/
+
+Assassin's Creed fans have been standing by for a major and highly anticipated announcement, with a brand-new release slated for May 19.
+---------
+
+# PlayStation Plus Free Games Lineup For May 2026 Looking Bleak
+
+Gaming, PlayStation Plus
+
+Tue, 14 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/playstation-plus-may-2026-free-games-lineup-speculation/
+
+Discover which popular games may be leaving the PlayStation Plus library in May 2026.
+---------
+
+# This Far Side Rip-Off Tried To Fill the Void When Gary Larson Retired
+
+Comics, The Far Side
+
+Tue, 14 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/close-to-home-far-side-1990s-successor-explained/
+
+The Far Side's biggest imitator, explained.
+---------
+
+# John C. Reilly Brings Iconic Buffalo Bill to Life in New Spaghetti Western Heads or Tails
+
+Movies, Western
+
+Tue, 14 Apr 2026 13:08:43 GMT
+
+https://www.cbr.com/john-c-reilly-buffallo-bill-heads-or-tails-clip/
+
+The new release already boasts a fantastic score.
+---------
+
+# Every LOTR Character Other Than Frodo Who Resisted the One Ring
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring
+
+Tue, 14 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-characters-who-resisted-one-ring-ranked-list/
+
+The One Ring was among the most powerful objects in Middle-earth, but a few The Lord of the Rings characters were able to resist its temptation.
+---------
+
+# Mother Mary Review: Pop Drama Delivers Anne Hathaway's Boldest Role Yet
+
+Movies, Mother Mary
+
+Tue, 14 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/mother-mary-review/
+
+Anne Hathaway and Michaela Coel shine in Mother Mary, David Lowery's haunting A24 drama about fame, art, and creative connection.
+---------
+
+# 3 Years Later, Netflix's 100% RT Thriller Is Still TV's Best 6-Hour Binge
+
+TV, Netflix, Dear Child, Thriller
+
+Tue, 14 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/netflix-thriller-dear-child-best-6-hour-binge/
+
+Dive into the psychological thriller that leaves fans unsettled and craving answers thanks to a gripping miniseries format that keeps viewers on edge.
+---------
+
+# Matlock Brings Ellie Kingston Back to Life in Season 2
+
+TV, Matlock, CBS
+
+Tue, 14 Apr 2026 12:45:26 GMT
+
+https://www.cbr.com/cbs-matlock-ellie-kingston-returns/
+
+Matlock explores the potential of AI to bring Ellie Kingston back from the dead, adding a new twist to the CBS courtroom drama.
+---------
+
+# Absolute Batman's Batmobile Has A New Name
+
+Comics, Absolute Batman
+
+Tue, 14 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/absolute-batman-batmobile-new-name/
+
+No doubt that Absolute Batman's new ride has a unique moniker.
+---------
+
+# 3 Near-Perfect Classic Rock Songs That Were Massive Hits But Are Forgotten Today
+
+Music Features, The Rolling Stones, Paul McCartney, Elton John, Music, Rock
+
+Tue, 14 Apr 2026 13:00:13 GMT
+
+https://collider.com/paul-mccartney-rolling-stones-elton-john-massive-hits-forgotten-today/
+
+For many reasons, these three songs by Paul McCartney, Elton John and The Rolling Stones had huge success when they first came out, then forgotten.
+---------
+
+# CBS Needs To Make a Bold Call With 'NCIS' Starting With Timothy McGee
+
+TV Features, NCIS, Sean Murray, CBS
+
+Tue, 14 Apr 2026 12:36:12 GMT
+
+https://collider.com/ncis-timothy-mcgee-director-promotion-500th-episode/
+
+After 23 seasons, NCIS is setting up a major character moment by hinting at Timothy McGee's promotion to Director. Will McGee finally get the recognition he deserves?
+---------
+
+# 14 Years Later, This Remains the Most Addictive Dystopian Franchise of All Time
+
+Movie Features, The Hunger Games, The Hunger Games: The Ballad of Songbirds and Snakes, The Hunger Games: Sunrise on the Reaping, Suzanne Collins
+
+Tue, 14 Apr 2026 12:27:12 GMT
+
+https://collider.com/the-hunger-games-best-dystopian-franchise/
+
+The Hunger Games continues to be shockingly relevant in a series about a country that sacrifices children for entertainment value.
+---------
+
+# Every 'The Walking Dead' Season, Ranked
+
+TV, The Walking Dead, Horror, AMC, Drama
+
+Tue, 14 Apr 2026 12:14:12 GMT
+
+https://collider.com/walking-dead-seasons-best-ranked/
+
+We rank every season of AMC's iconic apocalyptic series The Walking Dead, from worst to best.
+---------
+
+# Michelle Pfeiffer’s New Taylor Sheridan Show Is Sending Fans Back to This Crime Thriller
+
+Movie News, Michelle Pfeiffer, Taylor Sheridan, The Madison, The Family
+
+Tue, 14 Apr 2026 12:00:12 GMT
+
+https://collider.com/michelle-pfeiffer-the-family-streaming-hit-hbo-max-april-2026/
+
+Taylor Sheridan fans can't stop watching The Madison star Michelle Pfeiffer's 2013 crime movie. Here's where you can stream The Family.
+---------
+
+# Only 10 Sci-Fi Shows Are Better Than ‘Stranger Things’
+
+TV, Fallout, Severance, Sci-Fi, Stranger Things
+
+Tue, 14 Apr 2026 11:53:15 GMT
+
+https://collider.com/only-sci-fi-shows-better-than-stranger-things/
+
+For All Mankind, Arcane, Severance, Fallout, Firefly, Gen V, and more make up our list of sci-fi shows that are better than Stranger Things.
+---------
+
+# Only 'Interstellar' Stands Between 'Project Hail Mary' and Box Office Immortality
+
+Features, Project Hail Mary, Interstellar
+
+Tue, 14 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/project-hail-mary-box-office-chasing-interstellar/
+
+'Project Hail Mary' continues to blast off, and only Christopher Nolan's sci-fi hit 'Interstellar' stands in the way of a major box office record.
+---------
+
+# 'Malcolm in the Middle' Revival Breaks 2026 Streaming Record
+
+TV News, Malcolm in the Middle: Life's Still Unfair
+
+Tue, 14 Apr 2026 12:49:41 GMT
+
+https://movieweb.com/malcolm-middle-revival-2026-streaming-record/
+
+'Life's Still Unfair' is Hulu's top-rated debut of the year.
+---------
+
+# 'The 'Burbs' Renewed for Season 2 on Peacock After Strong Streaming Debut
+
+TV News, The 'Burbs, Keke Palmer, Peacock
+
+Tue, 14 Apr 2026 12:42:44 GMT
+
+https://movieweb.com/the-burbs-renewed-season-2-peacock/
+
+Keke Palmer and Jack Whitehall are set to return after the Peacock series spent four weeks in the platform’s Top 10.
+---------
+
+# Sydney Sweeney's 'Christy' Becomes Streaming Hit on HBO Max After Flopping in Theaters
+
+Movie News, Christy, Hot on Streaming, Sydney Sweeney
+
+Tue, 14 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/christy-sydney-sweeney-streaming-hit-hbo-max-april-2026/
+
+After taking in just $2 million at the box office, 'Christy' has found tremendous success on streaming just days after its HBO Max premiere.
+---------
+
+# 'Hunger Games: Sunrise on the Reaping' Trailer Theory Seemingly Shuts Down Merrilee Donner Cast Member Rumors
+
+Features, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Tue, 14 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/hunger-games-prequel-trailer-shuts-down-sunrise-on-the-reaping-cast-member-rumors/
+
+The new trailer for 'The Hunger Games: Sunrise on the Reaping' seemingly confirms who plays Maysilee Donner's twin, Merrilee.
+---------
+
+# Taika Waititi's 'Klara and the Sun' Adaptation Gets First Trailer & Release Date at CinemaCon
+
+Movie News, Klara and the Sun, Taika Waititi, Jenna Ortega, Sci-Fi, CinemaCon
+
+Tue, 14 Apr 2026 11:56:21 GMT
+
+https://movieweb.com/klara-and-the-sun-trailer-release-date/
+
+The first trailer for Taika Waititi's 'Klara and the Sun' adaptation with Jenna Ortega debuted at CinemaCon, where Sony confirmed its release date.
+---------
+
+# 'Ikatan Darah' Final Trailer Teases This Month's "Unforgettable" Action Revenge Thriller
+
+Movie News, Action, Thriller
+
+Tue, 14 Apr 2026 11:48:56 GMT
+
+https://movieweb.com/ikatan-darah-final-trailer-action-thriller/
+
+The final trailer teases brutal vengeance as a martial arts athlete takes her skills into the criminal underworld to save her brother.
+---------
+
 # GTA 6 File Size Is Splitting Gamers, And We Can See Why
 
 Gaming, Grand Theft Auto, Grand Theft Auto 6
