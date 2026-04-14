@@ -1,3 +1,300 @@
+# Top 10 Fantasy TV Shows With Memorable Villains
+
+Classic TV
+
+Tue, 14 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/fantasy-shows-with-the-best-villains/
+
+Some fantasy TV shows have excellent villains who stand out for their motivations, backstory, complexity, and more, making their shows even better.
+---------
+
+# Netflix's 6-Hour Post-Apocalyptic Action Series Brings Mad Max To Television
+
+TV, Mad Max, Masked Recs, Black Knight
+
+Tue, 14 Apr 2026 21:13:21 GMT
+
+https://screenrant.com/black-knight-dystopian-k-drama-netflix-mad-max/
+
+Netflix's Mad Max inspired action thriller takes viewers on a thrilling journey through a polluted wasteland, where survival comes at a cost.
+---------
+
+# Nicolas Cage Officially Returning For New Longlegs Movie After Record-Breaking Success
+
+Movies, Longlegs
+
+Tue, 14 Apr 2026 21:11:14 GMT
+
+https://screenrant.com/longlegs-2-nicolas-cage-osgood-perkins-confirmed/
+
+Nicolas Cage's record-breaking 2024 horror is officially getting a follow-up, with the actor and Osgood Perkins returning for a new Longlegs movie.
+---------
+
+# Guillermo del Toro's $701 Million Sci-Fi Franchise Will Be Replaced In 2 Years
+
+New Movies, Pacific Rim, Grandgear
+
+Tue, 14 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/grandgear-movie-pacific-rim-replacement/
+
+Director Guillermo del Toro was responsible for launching a popular sci-fi franchise over a decade ago, and its replacement is on the horizon.
+---------
+
+# Amazon Prime's New Action Fantasy Series Tomb Raider: The Next Fallout?
+
+Streaming TV, Masked Recs
+
+Tue, 14 Apr 2026 21:01:19 GMT
+
+https://screenrant.com/amazon-tomb-raider-video-game-show-next-fallout/
+
+Amazon Prime has another video game adaptation on the horizon with Tomb Raider, expected to release in 2027; could it be the next Fallout?
+---------
+
+# Disney's New 4-Part Sitcom Revival Sets First Streaming Record In Just 3 Days
+
+TV, Masked Recs
+
+Tue, 14 Apr 2026 20:48:12 GMT
+
+https://screenrant.com/malcolm-in-the-middle-lifes-still-unfair-disney-2026-viewership-record/
+
+Disney's new four-part sitcom revival sets its first streaming record in just three days since it was released in its entirety on April 10.
+---------
+
+# Star Wars Meets Game Of Thrones In Apple TV's Ambitious 3-Part Sci-Fi Masterpiece
+
+TV, Star Wars, Game of Thrones, Foundation, Masked Recs
+
+Tue, 14 Apr 2026 20:46:19 GMT
+
+https://screenrant.com/foundation-star-wars-meets-game-of-thrones-apple-tv/
+
+Apple TV's 10/10 sci-fi show blends elements of Star Wars and Game of Thrones in a story that feels even more rewarding than both earlier sagas.
+---------
+
+# Star Wars Maul - Shadow Lord Changes Iconic Lightsaber Design
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Darth Maul
+
+Tue, 14 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-double-bladed-lightsaber-split/
+
+Maul - Shadow Lord season 1, episode 4 reveals a significant modification to one of the most iconic lightsabers in Star Wars, changing the design of Darth Maul's double-bladed weapon.
+---------
+
+# Dragon Ball Has 5 Ways To Continue, But Fans Will Hate The Most Likely Option
+
+Anime, Dragon Ball
+
+Tue, 14 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/dragon-ball-super-z-daima-ways-continue-most-likely-option/
+
+The Dragon Ball franchise is in a unique position that could see multiple ways for the beloved anime to return.
+---------
+
+# The Best New Fantasy Anime of 2026 So Far
+
+Anime, Witch Hat Atelier, Daemons of the Shadow Realm
+
+Tue, 14 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/best-new-fantasy-anime-2026-so-far/
+
+Not every new anime makes an immediate impact, but these fantasy titles clearly have.
+---------
+
+# 10 Crime Books That Are As Good as The Godfather
+
+Movies, Crime, The Godfather, books
+
+Tue, 14 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/crime-books-as-good-as-the-godfather/
+
+Mario Puzo's best-selling book series and its iconic film adaptation was the catalyst for these crime novels that The Godfather fans will obsess over
+---------
+
+# The Howling to Be Rebooted 45 Years After Launching a Franchise
+
+Movies, The Howling
+
+Tue, 14 Apr 2026 20:58:54 GMT
+
+https://www.cbr.com/the-howling-reboot-studiocanal/
+
+The beloved cult classic is officially set to be rebooted after spawning a horror franchise 45 years ago.
+---------
+
+# Netflix Condensing 3 Body Problem Season 2 Repeats a Game of Thrones Error
+
+TV, Game Of Thrones, 3 Body Problem, Netflix
+
+Tue, 14 Apr 2026 20:57:22 GMT
+
+https://www.cbr.com/netflix-3-body-problem-condensed-seasons-repeats-game-of-thrones-mistake/
+
+3 Body Problem Season 2 will have only 6 episodes, raising concerns about the quality of the Netflix series following the footsteps of Game of Thrones.
+---------
+
+# Phoebe Dynevor’s Thrash Becomes Netflix’s Top English-Language Film
+
+Movies, Thrash, Netflix, Thriller
+
+Tue, 14 Apr 2026 20:46:20 GMT
+
+https://www.cbr.com/phoebe-dynevor-thrash-streaming-success-netflix-april-2026/
+
+Thrash, the new disaster thriller starring Bridgerton's Phoebe Dynevor, has become Netflix's most-watched English-language film.
+---------
+
+# Superman/Spider-Man #1 Officially Sells Out, Reveals New Covers
+
+Comics, DCU, DC Comics, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse, Superman, Man of Tomorrow
+
+Tue, 14 Apr 2026 20:33:45 GMT
+
+https://www.cbr.com/superma-nspider-man-sells-out-reveals-new-covers/
+
+DC and Marvel have a legendary treat for fans due to the sky-high demand for the iconic comic crossover.
+---------
+
+# Dragon Ball Reveals the 1 Time Gohan Refused to Lose to Goku
+
+Anime, Dragon Ball, weekly shonen jump
+
+Tue, 14 Apr 2026 20:32:12 GMT
+
+https://www.cbr.com/dragon-ball-adult-gohan-vs-goku-original-draft-shonen-jump-reveal/
+
+A classic piece of Dragon Ball artwork reveals the one moment when Gohan simply wasn't willing to step aside and make way for his legendary father.
+---------
+
+# Pokémon TCG Cards Officially Revealed Before May 9 Release
+
+Games, Pokemon
+
+Tue, 14 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/pokemon-tcg-promo-revealed-mega-evolution-chaos-rising-may-release/
+
+The Pokémon Company has revealed some brand-new promo cards from the upcoming Mega Evolution - Chaos Rising set, ahead of its May 9 release.
+---------
+
+# 7 Years Later, I Still Can't Forgive Game of Thrones for This Frustrating Change From the Books
+
+TV, Game Of Thrones, hbo, Fantasy
+
+Tue, 14 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/game-of-thrones-frustrating-book-change/
+
+HBO's Game of Thrones ventured away from the source material on many occasions, but one departure is the most egregious.
+---------
+
+# 10 Monster Movies to Watch Before Lee Cronin's The Mummy
+
+Movies, Lee Cronin's The Mummy, Horror
+
+Tue, 14 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/monster-movies-to-watch-before-lee-cronins-the-mummy-list/
+
+Lee Cronin's The Mummy is bringing classic monster terror back with a new face but there are other movies worth watching before that.
+---------
+
+# Only 3 Sci-Fi Movies of the 21st Century Are Better Than 'Interstellar'
+
+Movie, Interstellar, WALL·E, District 9, Children of Men
+
+Tue, 14 Apr 2026 21:23:13 GMT
+
+https://collider.com/21st-century-sci-fi-movies-better-than-interstellar/
+
+The 21st century has seen the release of some great sci-fi movies, like Interstellar, though District 9, WALL-E, and Children of Men are even better.
+---------
+
+# 'Avatar: The Last Airbender' Animator Slams Paramount's "Awful" Decision To Pull Theatrical Release After Entire Movie Leaks Online
+
+Movie News, The Legend of Aang: The Last Airbender, Avatar: The Last Airbender, Paramount
+
+Tue, 14 Apr 2026 21:19:20 GMT
+
+https://collider.com/the-legend-of-aang-the-last-airbender-online-leak-animator-response/
+
+An animator for The Legend of Aang: The Last Airbender has responded to the movie's massive online leak while condemning Paramount.
+---------
+
+# Netflix’s 8-Part Crime Comedy Surges Into the Streamer’s Most Talked-About Titles
+
+TV Features, Netflix, Big Mistakes, Dan Levy, Laurie Metcalf
+
+Tue, 14 Apr 2026 20:43:13 GMT
+
+https://collider.com/netflix-crime-comedy-series-big-mistakes-streaming-hit/
+
+After its release on April 9, Netflix’s new crime comedy series Big Mistakes is already a popular streaming hit.
+---------
+
+# Win Tickets to Our Early 'Deep Water' Screening With Director Renny Harlin Q&A
+
+Exclusives, Screening, Deep Water, Aaron Eckhart, Ben Kingsley
+
+Tue, 14 Apr 2026 20:36:44 GMT
+
+https://collider.com/deep-water-screening-renny-harlin-q-and-a/
+
+Details on how to enter for your chance to win free tickets to our early screening of Deep Water and an exclusive Q&amp;A with director Renny Harlin.
+---------
+
+# Only 3 TV Masterpieces Are Better Than 'Breaking Bad'
+
+TV, Breaking Bad, Fargo, Mad Men, The Wire
+
+Tue, 14 Apr 2026 20:30:13 GMT
+
+https://collider.com/tv-masterpieces-better-than-breaking-bad/
+
+Many consider Breaking Bad the peak of prestige television, but brilliant shows like Mad Men and The Wire are arguably superior in almost every way.
+---------
+
+# 10 Most Intense Sci-Fi Thriller Series With Great Action
+
+TV Lists, Sci-Fi
+
+Tue, 14 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/sci-fi-thriller-series-great-action/
+
+These science fiction thriller TV series have exciting action scenes and interesting characters.
+---------
+
+# CBS’s 'Tracker' Just Got Dethroned By ABC's 'Will Trent'
+
+Features, Tracker, Will Trent, Comparison Recommendation
+
+Tue, 14 Apr 2026 20:30:19 GMT
+
+https://movieweb.com/will-trent-perfect-fight-scene/
+
+'Will Trent' Season 4 has a great scene that proves it's a more impressive and entertaining series than 'Tracker,' the CBS action show.
+---------
+
+# Taylor Sheridan's 'The Madison' Officially Renewed for Season 3 by Paramount+
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus
+
+Tue, 14 Apr 2026 20:29:40 GMT
+
+https://movieweb.com/the-madison-renewed-season-3/
+
+Season 2 of the show has already wrapped production but doesn't yet have a release date.
+---------
+
 # Adria Arjona Suits Up As Wonder Woman In New DC Art Following Man Of Tomorrow Casting
 
 Superheroes, Wonder Woman, Man of Tomorrow, DC Universe
