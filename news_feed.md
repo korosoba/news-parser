@@ -1,3 +1,179 @@
+# GTA 6 File Size Is Splitting Gamers, And We Can See Why
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Tue, 14 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/gta-6-file-size-gamers-react/
+
+Grand Theft Auto VI is going to be a pretty big game, but fans are split on exactly how it's all going to work.
+---------
+
+# The Last Of Us Part 3 Release Year Roasted By Gamers
+
+Gaming, The Last of Us
+
+Tue, 14 Apr 2026 11:00:18 GMT
+
+https://screenrant.com/last-of-us-part-3-release-window-rumour/
+
+Fans on r/thelastofus discuss the potential release timeline for The Last of Us Part III, with some suggesting it could be years away.
+---------
+
+# God Of War 6 Announcement Leak Splits Gamers Over New Lead Character
+
+Gaming, God of War
+
+Tue, 14 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/god-of-war-6-leaked-announcement-rumours/
+
+The next God of War release hasn't technically been confirmed, but new leaks may have told us exactly who is set to play the lead.
+---------
+
+# All the PAW Patrol Characters & Their Dog Breeds
+
+TV, PAW Patrol, Nickelodeon, Animation
+
+Tue, 14 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/every-paw-patrol-character-dog-breeds-list/
+
+PAW Patrol features an even more diverse canine lineup than you might expect. Discover which breeds make up these heroic rescue dogs.
+---------
+
+# 10 Best Transformers Events That Must Be Read
+
+Comics, Transformers
+
+Tue, 14 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/best-transformers-events-that-lived-up-to-the-hype/
+
+These Transformers events are must-reads for any fan.
+---------
+
+# Kurt Russell's 85% RT Sci-Fi Horror Classic Came Close to Being a Disaster
+
+Movie Features, The Thing, Tobe Hooper, John Carpenter, The Texas Chain Saw Massacre
+
+Tue, 14 Apr 2026 11:31:12 GMT
+
+https://collider.com/the-thing-almost-directed-by-tobe-hooper/
+
+Tobe Hooper — and not John Carpenter — almost directed The Thing. And what Hooper had planned does not sound great.
+---------
+
+# Netflix Is Bringing Back This 17-Year-Old Modern British Classic
+
+TV News, Netflix, Comedy, The Inbetweeners, Streaming
+
+Tue, 14 Apr 2026 11:30:12 GMT
+
+https://collider.com/the-inbetweeners-classic-british-comedy-revived-on-netflix/
+
+Netflix is bringing back a beloved modern British classic after 17 years, according to a new report. Here's what we know!
+---------
+
+# 10 Greatest Video Game Masterpieces of the Last 25 Years, Ranked
+
+Movie, Video Game, Legend of Zelda: Breath of the Wild, The Last of Us, Elden Ring
+
+Tue, 14 Apr 2026 11:03:13 GMT
+
+https://collider.com/best-video-game-masterpieces-last-25-years-ranked/
+
+From Super Mario Galaxy to Red Dead Redemption 2, these are the greatest video games of the last 25 years that pushed the medium to new heights.
+---------
+
+# NEON’s First Video Game Horror Adaptation Is Quietly Winning at the Box Office
+
+Movie News, Exit 8, Horror, Video Game, Box Office
+
+Tue, 14 Apr 2026 11:00:13 GMT
+
+https://collider.com/exit-8-japanese-psychological-horror-box-office-top-10/
+
+Hailed as one of the best video game adaptations of all time, the Japanese horror movie Exit 8 broke into the domestic box office top 10 in its debut.
+---------
+
+# Ringo Starr Shuts Down Claims His 1972 Song Was a Diss Track Aimed at Paul McCartney
+
+Music Features, The Beatles, Ringo Starr, Music, Rock
+
+Tue, 14 Apr 2026 11:00:13 GMT
+
+https://collider.com/ringo-starr-denies-diss-track-towards-beatles-member-paul-mccartney/
+
+Ringo Starr clarifies the meaning behind his 1972 song, denying claims that it was a diss track aimed at Paul McCartney, and reveals the real inspiration behind the glam rock hit.
+---------
+
+# 10 Apple TV Shows Where Every Episode Is a Masterpiece
+
+TV, Apple TV, Severance, Shrinking, Ted Lasso
+
+Tue, 14 Apr 2026 10:52:12 GMT
+
+https://collider.com/apple-tv-shows-every-episode-masterpiece/
+
+Shrinking, Ted Lasso, Severance, Pluribus, and Black Bird are among the rare class of Apple TV series where every episode is a masterpiece.
+---------
+
+# 10 Most Perfect Opening Sci-Fi Scenes of All Time, Ranked
+
+Movie, Blade Runner, Sci-Fi, Children of Men, Akira
+
+Tue, 14 Apr 2026 10:41:12 GMT
+
+https://collider.com/most-perfect-sci-fi-movie-opening-scenes-ranked/
+
+Sci-fi movies like Blade Runner, 2001: A Space Odyssey, and Children of Men have some of the best opening scenes in the history of the genre.
+---------
+
+# Sydney Sweeney's Failed Movie Is Suddenly One of the Most-Watched on Streaming
+
+Movie News, Christy, Sydney Sweeney, HBO Max, Streaming
+
+Tue, 14 Apr 2026 10:30:13 GMT
+
+https://collider.com/sydney-sweeney-christy-hbo-max-streaming-hit-april-2026/
+
+Sydney Sweeney's boxing biopic Christy initially failed to captivate audiences in theaters, but the film has found unexpected success on streaming.
+---------
+
+# 20 Best Kids' Movies That Are More for Adults
+
+Movie, Spider-Man: Into The Spider-Verse, Up, The Iron Giant, Shrek
+
+Tue, 14 Apr 2026 10:28:12 GMT
+
+https://collider.com/best-kids-movies-for-adults/
+
+From Shrek to Princess Bride, these classic children's movies were truly made for adults! Which are the best kids' movies for adults?
+---------
+
+# 10 Box Office Bombs That Surprised Everyone
+
+Movie, Babylon, Heaven's Gate, Cutthroat Island, Box Office
+
+Tue, 14 Apr 2026 10:24:12 GMT
+
+https://collider.com/box-office-bombs-surprising/
+
+From Tomorrowland to John Carter, these massive films had everything except box office success, proving hype guarantees nothing.
+---------
+
+# 'Maul - Shadow Lord' Producer's Take Reveals What’s Wrong With Star Wars
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 14 Apr 2026 11:00:16 GMT
+
+https://movieweb.com/maul-shadow-lord-brad-rau-maul-fate/
+
+'Maul - Shadow Lord' producer Brau Rau gave an interview and talked about Maul's survival chances, which suggests a problem with 'Star Wars.'
+---------
+
 # Animal Crossing: New Horizons Surprise Update Released For Series' 25th Anniversary
 
 Gaming, Animal Crossing New Horizons
