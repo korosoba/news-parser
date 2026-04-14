@@ -1,3 +1,47 @@
+# The 35 Best Horror Movies That Explore Sexuality, Ranked
+
+Movie, Horror, The Handmaiden, Black Swan, Possession
+
+Tue, 14 Apr 2026 08:58:12 GMT
+
+https://collider.com/best-horror-movies-sexuality/
+
+From Hellraiser to It Follows, these horror films have provided audiences with intriguing stories surrounding sexuality.
+---------
+
+# Next 'Jumanji' Sequel Finally Confirms Title, Plot & Release Date at CinemaCon
+
+Movie News, Jumanji
+
+Tue, 14 Apr 2026 08:35:24 GMT
+
+https://movieweb.com/jumanji-open-world-title-plot-release-date/
+
+Returning trio Dwayne Johnson, Kevin Hart, and Jack Black took to the stage to confirm details and unveil the first footage.
+---------
+
+# New 'Spider-Man: Brand New Day' Clip Revealed at CinemaCon
+
+Movie News, Spider-Man: Brand New Day, MCU, Tom Holland
+
+Tue, 14 Apr 2026 08:25:45 GMT
+
+https://movieweb.com/spider-man-brand-new-day-cinemacon-clip/
+
+The first clip of 'Spider-Man: Brand New Day' was released at CinemaCon and it teases some big changes in Peter Parker's life.
+---------
+
+# 'Spider-Man: Beyond the Spider-Verse' Images Revealed at CinemaCon
+
+Movie News, Spider-Man, Spider-Man: Beyond the Spider-Verse
+
+Tue, 14 Apr 2026 08:18:23 GMT
+
+https://movieweb.com/spider-man-beyond-spider-verse-images-cinemacon/
+
+A breakdown of the first footage for 'Spider-Man: Beyond the Spider-Verse' was revealed, as well as an IMAX-sized aspect ratio.
+---------
+
 # Sony Announces R-Rated Bloodborne Animated Movie
 
 Movies, CinemaCon, Sony Studios, Bloodborne
