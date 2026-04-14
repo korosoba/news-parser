@@ -1,3 +1,234 @@
+# Spider-Man Officially Marries One Of His Long-Time Love Interests, And It’s Not MJ
+
+Comics, Black Cat, Spider-Man, Marvel
+
+Tue, 14 Apr 2026 22:04:10 GMT
+
+https://screenrant.com/spider-man-black-cat-marriage-not-mj/
+
+Spider-Man is not only officially married once more in the comics, but he has a brand-new family and a wife who comes from a distant land.
+---------
+
+# Taylor Sheridan’s Dutton Ranch Features A Crossover From Landman Season 1
+
+Streaming TV, Dutton Ranch, Landman
+
+Tue, 14 Apr 2026 22:02:20 GMT
+
+https://screenrant.com/dutton-ranch-landman-taylor-sheridan-crossover-j-r-villarreal/
+
+Taylor Sheridan's TV universe may be expanding, but his shows are getting closer together, and these two even involve an unexpected crossover.
+---------
+
+# Disney Lays Off Entire Marvel Studios Visual Team
+
+Movies, Marvel
+
+Tue, 14 Apr 2026 22:00:49 GMT
+
+https://screenrant.com/disney-marvel-visual-development-team-layoffs-impact/
+
+2026 is a massive year for Marvel Studios in film and television, but they have still been hit hard by Disney's latest round of mass layoffs.
+---------
+
+# Supergirl Just Unlocked the Opposite of Superman's Most Obscure Superpower
+
+Comics, Supergirl, Superman
+
+Tue, 14 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/supergirl-new-power-vampire-bite-superman/
+
+DC Comics just subverted one of Superman's most obscure powers with help from Supergirl, Blade, and a cursed vampire bite.
+---------
+
+# Pokémon Just Got A Stunning New Prequel Set In Hoenn
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 14 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/pokemon-hoenn-last-wish-prequel-rom-hack/
+
+The Hoenn region could always use more love, and this prequel brings us back to the beloved Third Generation, with some new surprises.
+---------
+
+# An MCU Actor Already Spoiled Daredevil’s Final Fate In Born Again Season 2, And It’s Grim
+
+Comics, Daredevil: Born Again, Marvel, Daredevil
+
+Tue, 14 Apr 2026 21:53:52 GMT
+
+https://screenrant.com/daredevil-fate-born-again-season-2-prison-mike-colter/
+
+Daredevil: Born Again Season 2 is only more than halfway through now, and its end, as well as Season 3, may have already been thoroughly spoiled.
+---------
+
+# Big Bang Theory Star’s New Dark Comedy Dethrones Biggest AMC Competition On Streaming
+
+TV, Masked Recs
+
+Tue, 14 Apr 2026 21:46:29 GMT
+
+https://screenrant.com/the-audacity-amc-streaming-success-april-2026/
+
+After The Big Bang Theory dominated CBS ratings for years, one of the show's stars helps a new series dethrone AMC's biggest competition.
+---------
+
+# Euphoria Season 3 Premiere Controversy Explained: Why Fans Are So Outraged
+
+Streaming TV, Euphoria
+
+Tue, 14 Apr 2026 21:45:20 GMT
+
+https://screenrant.com/euphoria-season-3-premiere-controversy-explained/
+
+Euphoria season 3 arrived on a wave of controversy, and we break down many fans' issues with storylines involving Zendaya and Sydney Sweeney.
+---------
+
+# HBO's 18-Part Fantasy Series With Stellar RT Score Returns In Two Months & The Time To Binge It Is Now
+
+TV, HBO Max, House of the Dragon, Game of Thrones
+
+Tue, 14 Apr 2026 21:38:06 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-hbo-fantasy-series-2026-return-binge/
+
+This 18-part HBO fantasy series will return in only two months, so those who want to be up to date need to start their 18-episode binge now.
+---------
+
+# DC Officially Releases Aquaman’s Design Ahead of New Justice League Series
+
+Comics, Aquaman, Justice League
+
+Tue, 14 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/new-aquaman-design-for-dark-knights-of-steel-ii-series/
+
+DC has officially revealed Aquaman's redesign for its new Justice League series launching in 2026, and trust us, Arthur Curry has never looked better.
+---------
+
+# Euphoria Overtakes The Pitt as No. 1 on HBO Max Streaming Charts
+
+TV, Euphoria, HBO Max, Drama
+
+Tue, 14 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/euphoria-drama-hbo-success-april-2026/
+
+Euphoria Season 3 debuts as the No. 1 most-watched show worldwide on HBO Max, surpassing The Pitt, despite controversies and negative reviews.
+---------
+
+# George A. Romero's Night of the Living Dead is Still a Timeless Masterpiece
+
+Movies, Night of the Living Dead, Horror
+
+Tue, 14 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/george-a-romero-night-of-the-living-dead-masterpiece/
+
+George A. Romero has made countless amazing zombie movies over the decades, but Night of the Living Dead is still his best one.
+---------
+
+# Paramount Officially Turns Nicolas Cage’s Record-Breaking Longlegs Into a Franchise With New Movie
+
+Movies, Horror, Longlegs
+
+Tue, 14 Apr 2026 21:35:13 GMT
+
+https://www.cbr.com/paramount-turns-nicolas-cage-record-breaking-horror-into-franchise-with-new-movie/
+
+One of the best horror films in recent memory just received fantastic news.
+---------
+
+# 20 Years Later, David Fincher Gets Grilled By Bong Joon Ho on His Crime Thriller Masterpiece
+
+Exclusives, Zodiac, David Fincher, Bong Joon Ho, Once Upon a Time in Hollywood
+
+Tue, 14 Apr 2026 22:02:17 GMT
+
+https://collider.com/zodiac-movie-meaning-david-fincher-explains-bong-joon-ho-interview/
+
+Bong Joon Ho talks with David Fincher about his 2007 film Zodiac, the timeless portrayal of obsession, what he would change, and its lasting impact.
+---------
+
+# Prime Video's 8-Part Hidden Gem Drama Proves the Streamer Is More Than 'Reacher' and 'The Boys'
+
+TV Features, It's Not Like That, Scott Foley, Prime Video, Wondery
+
+Tue, 14 Apr 2026 22:00:13 GMT
+
+https://collider.com/its-not-like-that-prime-video-wonder-project/
+
+The 8-episode family drama series It's Not Like That, starring Scott Foley and Erinn Hayes, is a cozy binge on Prime Video with the Wonder Project.
+---------
+
+# 7 Years Before Fast & Furious, Paul Walker Starred in the 1990s' Most Insane Sci-Fi Horror Movie
+
+Movie Features, Tammy and the T-Rex, Paul Walker, Horror, Sci-Fi
+
+Tue, 14 Apr 2026 21:55:12 GMT
+
+https://collider.com/fast-and-furious-paul-walker-sci-fi-horror-tammy-and-the-t-rex/
+
+Before he was known for the Fast & Furious franchise, Paul Walker starred in Tammy and the T-Rex, a baffling sci-fi horror movie.
+---------
+
+# Nicolas Cage's Record-Breaking Crime Thriller Is Officially Returning With a New Movie
+
+Movie News, Nicolas Cage, Longlegs, Osgood Perkins, Horror
+
+Tue, 14 Apr 2026 21:47:59 GMT
+
+https://collider.com/nicolas-cage-crime-thriller-longlegs-new-movie-osgood-perkins-returning/
+
+Nicolas Cage's Longlegs is officially back, with the Oscar-winner reuniting with director Osgood Perkins for a brand-new movie.
+---------
+
+# 10 Greatest TV Sitcom Ensembles of All Time, Ranked
+
+TV, Sitcom, The Office, Schitt's Creek, Friends
+
+Tue, 14 Apr 2026 21:45:12 GMT
+
+https://collider.com/best-tv-sitcom-ensembles-all-time-ranked/
+
+From The Golden Girls to The Office to Schitt's Creek, these TV sitcoms boasted some of the greatest ensembles of all time, but which is the best?
+---------
+
+# 10 Years Later, A24 Is Still Defined by Its Near-Perfect Horror Movie
+
+Movie Features, The Witch, Robert Eggers, Horror, A24
+
+Tue, 14 Apr 2026 21:42:14 GMT
+
+https://collider.com/a24-horror-movies-the-witch-anya-taylor-joy/
+
+The Witch remains A24's defining horror moment, launching the studio's signature style of unsettling, elevated genre films.
+---------
+
+# 'Star Trek: Strange New Worlds' Sets Aren't Needed for That 'Year One' Pitch To Happen
+
+Features, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 14 Apr 2026 22:00:19 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-dismantled-pitch/
+
+The Alex Kurtzman era is largely believed to be over, but 'Star Trek' might have one more trick up its immediate sleeve.
+---------
+
+# New 'Longlegs' Follow-Up Happening With Nicolas Cage and Original Director
+
+Movie News, Longlegs, Oz Perkins, Nicolas Cage
+
+Tue, 14 Apr 2026 21:31:30 GMT
+
+https://movieweb.com/longlegs-follow-up-nicolas-cage/
+
+The next movie is confirmed to be a follow-up as opposed to a sequel to the hit 2024 movie.
+---------
+
 # Top 10 Fantasy TV Shows With Memorable Villains
 
 Classic TV
