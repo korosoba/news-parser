@@ -1,3 +1,124 @@
+# After 49 Years, Darth Vader Has Been Officially Dethroned As Star Wars' Best Villain
+
+Streaming TV, Star Wars, Star Wars: Maul - Shadow Lord
+
+Tue, 14 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/star-wars-maul-best-villain-not-darth-vader/
+
+Darth Vader has long been the best villain in Star Wars, but a new character has officially dethroned one of the most iconic antagonists in cinema.
+---------
+
+# Who Are The "Evil Forces" In The Super Mario Galaxy Movie? 6 Major Candidates
+
+Movies, The Super Mario Galaxy Movie
+
+Tue, 14 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-evil-forces-villain-tease-candidates/
+
+The Super Mario Galaxy Movie suggested that there are unseen "evil forces" at play. Who could the movie be referring to? Here are six candidates.
+---------
+
+# Xbox CEO Says Game Pass Is "Too Expensive," Fans Hoping For Price Changes
+
+Gaming, Xbox Series X/S, Triple-A Games
+
+Mon, 13 Apr 2026 23:43:43 GMT
+
+https://screenrant.com/xbox-game-pass-pricing-ceo-memo-changes/
+
+As the price of Xbox Game Pass rises, the current CEO and lead of the Xbox brand notes that the service could be getting too expensive.
+---------
+
+# Ryan Reynolds Stars In Emotional Fantasy Movie IF On Netflix
+
+Movies, Masked Recs
+
+Mon, 13 Apr 2026 23:30:21 GMT
+
+https://screenrant.com/ryan-reynolds-if-netflix-new-fantasy-movie-april-2026/
+
+Ryan Reynolds starred in a successful fantasy movie in 2024 that is now available to stream on Netflix, and it's unlike most of his work to date.
+---------
+
+# Warner Bros' Cult Classic 40-Year-Old Sci-Fi Series Quietly Returns As American Streaming Success
+
+TV, ALF
+
+Mon, 13 Apr 2026 23:25:35 GMT
+
+https://screenrant.com/alf-apple-tv-store-vod-streaming-success-april-2026/
+
+Warner Bros.' 40-year-old cult classic sci-fi series quietly returns as an American streaming success four decades after it originally aired.
+---------
+
+# Alien: Covenant is the Greatest Alien Sequel Since Aliens
+
+Movies, aliens, Alien, Alien: Covenant
+
+Tue, 14 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/alien-covenant-greatest-alien-sequel-since-aliens/
+
+While not beloved, this Alien sequel is arguably the best since James Cameron's Aliens, especially when it comes to the scary, slimy xenomorphs.
+---------
+
+# Escape From New York Is Getting Rebooted 45 Years Later
+
+Movies, Escape From New York
+
+Mon, 13 Apr 2026 23:30:10 GMT
+
+https://www.cbr.com/escape-from-new-york-reboot-announced/
+
+A beloved John Carpenter cult classic is officially getting rebooted.
+---------
+
+# Dragon Ball Returns to the Top 10 Manga Sales Chart With New Release After 30+ Years
+
+Anime, Dragon Ball
+
+Mon, 13 Apr 2026 23:10:13 GMT
+
+https://www.cbr.com/dragon-ball-box-set-oricon-top-manga-chart-april-2026/
+
+This is first time that Dragon Ball franchise has featured in the top 10 manga sales this year.
+---------
+
+# Warren Beatty’s Wild 1998 Political Satire Is More Relevant Today Than Ever
+
+Movie Features, Bulworth, Warren Beatty, Halle Berry, 1990s
+
+Mon, 13 Apr 2026 23:08:12 GMT
+
+https://collider.com/bulworth-warren-beatty-wild-political-satire/
+
+Bulworth, a satirical comedy starring and directed by Warren Beatty, mixes fame and politics in a way that still resonates in today's America.
+---------
+
+# Seminal Werewolf Movie 'The Howling' Officially Being Rebooted
+
+Movie News, The Howling
+
+Mon, 13 Apr 2026 23:48:29 GMT
+
+https://movieweb.com/the-howling-reboot-official/
+
+Studiocanal is developing the revival, though no details about any filmmakers attached to the project have been revealed.
+---------
+
+# Alan Ritchson to Lead New Netflix Survival Competition Series
+
+TV News, Alan Ritchson, Netflix
+
+Mon, 13 Apr 2026 23:14:46 GMT
+
+https://movieweb.com/alan-ritchson-netflix-survival-series/
+
+The star of Netflix's 'War Machine' is taking the unscripted route for his next project.
+---------
+
 # Netflix's 6-Part Mystery Thriller Series Is One Of Its Best Book Adaptations
 
 TV, Masked Recs
