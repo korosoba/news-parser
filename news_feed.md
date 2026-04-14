@@ -1,3 +1,333 @@
+# Disney Lorcana: Attack Of The Vine! – Release Date, Confirmed Cards, & Illumineer’s Trove Details
+
+Gaming, Disney Lorcana
+
+Tue, 14 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/disney-lorcana-attack-of-the-vine-release-date-cards-products-prerelease/
+
+Discover the release date, confirmed cards, and product lineup for Disney Lorcana: Attack of the Vine! as the trading card game enters its 4th year.
+---------
+
+# Disney Lorcana: Wilds Unknown – Release Date, Confirmed Cards, & Illumineer’s Trove Details
+
+Gaming, Disney Lorcana
+
+Tue, 14 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/disney-lorcana-wilds-unknown-release-date-cards-products-prerelease/
+
+Discover the release date, confirmed cards, and product lineup for Disney Lorcana's Wilds Unknown set, including new products debuting.
+---------
+
+# Apple TV's Sci-Fi Romance 'The Gorge' Starring Anya Taylor-Joy, Miles Teller
+
+Movies, The Gorge
+
+Tue, 14 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/the-gorge-apple-tv-sci-fi-thriller-movie-best-cast/
+
+Apple TV has always been able to afford A-list talent. They assembled one of their best casts for their star-studded sci-fi action romance The Gorge.
+---------
+
+# Disney Lorcana Reveals Stacked 2026 Release Schedule, With Exciting New Characters
+
+Gaming, Disney Lorcana
+
+Tue, 14 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/disney-lorcana-reveals-release-wilds-unknown-onward-coco-monsters-inc/
+
+Disney's trading card game, Disney Lorcana, announces 2026 release schedule with highly requested Pixar characters, new products, and set rotation.
+---------
+
+# Why There’s No New High Potential Tonight (April 14) & When Fresh Episodes Release
+
+Network TV, High Potential
+
+Tue, 14 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/high-potential-no-new-episode-april-14-2026-season-3-release/
+
+High Potential season 2, episode 18 ended on a massive cliffhanger, and unfortunately, viewers will have to be extra patient to learn its resolution.
+---------
+
+# Hellboy Officially Returns With a Badass Radical Redesign Even Guillermo del Toro Would Approve Of
+
+Comics, Hellboy
+
+Tue, 14 Apr 2026 18:35:19 GMT
+
+https://screenrant.com/giant-robot-hellboy-returns-new-series-redesign/
+
+A new Hellboy duology is on the verge of release, and it arrives with the return of an iconic redesign for Hellboy that even del Toro would applaud.
+---------
+
+# Xbox Game Pass Just Got One Of 2025's Best Games For Free
+
+Gaming, Xbox Game Pass, PC, Indie, Hades 2
+
+Tue, 14 Apr 2026 18:34:01 GMT
+
+https://screenrant.com/xbox-game-pass-free-game-best-2025/
+
+Xbox Game Pass is constantly getting new titles, but the service just got a massive upgrade with the arrival of an unforgettable 2025 hit.
+---------
+
+# Jason Statham's Best Action Movies: Essential Films Before Mutiny
+
+Movies, Jason Statham, Recommendation
+
+Tue, 14 Apr 2026 18:31:19 GMT
+
+https://screenrant.com/jason-statham-movies-essential-must-watch-2026/
+
+Jason Statham has an impressive selection of movies in his repertoire, and here are some of the best to watch first if you're planning to see Mutiny.
+---------
+
+# Prime Video's Upcoming Cyberpunk Show Is The Third Chapter In The Most Unlikely Trilogy Of All Time
+
+TV, Blade Runner, Blade Runner 2099
+
+Tue, 14 Apr 2026 18:31:19 GMT
+
+https://screenrant.com/amazon-blade-runner-2099-show-third-chapter-trilogy/
+
+Despite the franchise's infamous box office failure, Prime Video's upcoming series is set to be one of the most ambitious cyberpunk shows ever.
+---------
+
+# After The Masked Singer Season 14 Finale, Nicole Scherzinger Returns To TV
+
+Reality TV, The Masked Singer
+
+Tue, 14 Apr 2026 18:13:01 GMT
+
+https://screenrant.com/after-the-masked-singer-season-14-finale-nicole-scherzinger-returns-to-tv/
+
+After the Masked Singer season 14 finale, original panelist Nicole Scherzinger makes a grand return to television with an all-new special.
+---------
+
+# Chris Pratt's Drama Series Everwood Streams Free on Pluto TV June 1
+
+TV, Everwood, Drama
+
+Tue, 14 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/chris-pratt-everwood-streaming-free-pluto-tv-june-2026/
+
+Chris Pratt's classic drama series Everwood, which was canceled after 4 seasons, will be available to stream for free on Pluto TV starting June 1.
+---------
+
+# Yellowstone's Lost Season 6 Finally Arrives Next Month After a 2-Year Wait
+
+TV, Yellowstone, Dutton Ranch, Western
+
+Tue, 14 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/yellowstones-lost-season-6-finally-arrives-next-month-after-a-2-year-wait/
+
+After Yellowstone ended a season earlier than planned, this upcoming series finally adapts Taylor Sheridan's lost Season 6 plans.
+---------
+
+# Only 5 Disaster Movies Are Better Than Twister
+
+Movies, Twister
+
+Tue, 14 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/disaster-movies-better-than-twister-list/
+
+Twister is a quintessential '90s disaster movie; films like Greenland and Dante's Peak showcase something even better that fans should see.
+---------
+
+# Cinnamoroll Takes Early Lead in Official 2026 Sanrio Character Ranking
+
+Anime, sanrio, Hello Kitty
+
+Tue, 14 Apr 2026 18:53:39 GMT
+
+https://www.cbr.com/sanrio-character-ranking-2026-early-results-cinnamoroll-win/
+
+Hello Kitty is slated to lose Sanrio's annual character ranking contest for the sixth year in a row, with Cinnamoroll currently taking the no. 1 spot.
+---------
+
+# Vincent D'Onofrio "Hated" 1 Thing About Law & Order: Criminal Intent
+
+TV, Law & Order: Criminal Intent, Law & Order
+
+Tue, 14 Apr 2026 18:34:44 GMT
+
+https://www.cbr.com/law-and-order-criminal-intent-vincent-donofrio-problem/
+
+Vincent D'Onofrio had one major qualm with his role on Law & Order: Criminal Intent.
+---------
+
+# Lena Dunham Accuses Adam Driver of Being 'Verbally Aggressive' & Throwing a Chair on Girls Set
+
+TV, Girls
+
+Tue, 14 Apr 2026 18:31:11 GMT
+
+https://www.cbr.com/lena-dunham-adam-driver-verbally-aggressive-throwing-chair-girls-set/
+
+The accusation comes in Girls creator's new memoir.
+---------
+
+# Superman Sequel Casts Star Wars' Adria Arjona as Supervillain Maxima
+
+Movies, Man of Tomorrow, DCU, Superman
+
+Tue, 14 Apr 2026 18:13:26 GMT
+
+https://www.cbr.com/superman-2-man-of-tomorrow-adria-arjona-maxima/
+
+Star Wars' Adria Arjona joins the cast of James Gunn's Superman sequel as the villainous Maxima, with implications for the Justice League's future.
+---------
+
+# DC Gave Readers a Silver Age Comeback And Nobody Noticed
+
+Comics, DC Comics, Scooby-Doo, silver age
+
+Tue, 14 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/dc-silver-age-comeback-new-52-nobody-noticed-scooby-doo/
+
+While the DC Universe was made dark and gritty for the New 52, an alternate continuity quietly resurrected the fun of the Silver Age.
+---------
+
+# He-Man and Skeletor Just Unleashed the Coolest Popcorn Buckets of 2026
+
+Music News, Masters of the Universe, He-Man and the Masters of the Universe, CinemaCon, Nicholas Galitzine
+
+Tue, 14 Apr 2026 18:35:15 GMT
+
+https://collider.com/he-man-skeletor-masters-of-the-universe-popcorn-buckets-first-look/
+
+The first popcorn buckets for He-Man and Skeletor's upcoming summer clash in Masters of the Universe have officially been revealed. See them here.
+---------
+
+# Chris Pratt's Forgotten 4-Part Neo-Western Officially Hits Free Streaming on May 1
+
+TV News, Everwood, Chris Pratt, Pluto TV, Emily VanCamp
+
+Tue, 14 Apr 2026 18:25:11 GMT
+
+https://collider.com/chris-pratt-neo-western-everwood-free-streaming-pluto-tv-release-date-may-1-2026/
+
+Chris Pratt's forgotten neo-western Everwood is officially coming to free streaming this May.
+---------
+
+# Prime Video's 7-Part Horror Miniseries Is One of the Best on Any Streaming Platform
+
+TV Features, Swarm, Dominique Fishback, Horror, Prime Video
+
+Tue, 14 Apr 2026 18:06:13 GMT
+
+https://collider.com/swarm-prime-video-horror-miniseries/
+
+Prime Video's haunting miniseries Swarm starring Dominique Fishback is a perfect binge from start to finish.
+---------
+
+# Rumored Wonder Woman Frontrunner Officially Joins James Gunn's 'Superman' Follow-Up
+
+Movie News, Man of Tomorrow, Adria Arjona, DC Comics, James Gunn
+
+Tue, 14 Apr 2026 17:56:23 GMT
+
+https://collider.com/superman-2-man-of-tomorrow-cast-adria-arjona-mystery-role-james-gunn-wonder-woman-rumors/
+
+Amid rampant Wonder Woman rumors, Adria Arjona has officially joined James Gunn's Superman sequel in a mystery role.
+---------
+
+# 10 Greatest Dystopian Movies of the Last 100 Years, Ranked
+
+Movie, Children of Men, Sci-Fi, Mad Max: Fury Road, Metropolis
+
+Tue, 14 Apr 2026 17:53:13 GMT
+
+https://collider.com/best-dystopian-movies-of-the-last-100-years-ranked/
+
+Sci-fi masterpieces like Children of Men, Metropolis, and Mad Max: Fury Road are among the best dystopian movies of the last 100 years.
+---------
+
+# Jim Carrey's 'Lemony Snicket's A Series of Unfortunate Events' Arrives on Free Streaming
+
+Movie News, Lemony Snicket's A Series of Unfortunate Events, Coming/Leaving Streaming
+
+Tue, 14 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/lemony-snickets-streaming-tubi-april-2026/
+
+This contender to 'Harry Potter' pushed the limits of family film standards, and came out a winner.
+---------
+
+# 'Snoopy Unleashed': First Look Image Revealed for New 'Peanuts' Movie
+
+Movie News, Peanuts, Apple TV, Animation
+
+Tue, 14 Apr 2026 18:57:40 GMT
+
+https://movieweb.com/snoopy-unleashed-first-look-new-peanuts/
+
+'Snoopy Unleashed' will take the gang to the Big City.
+---------
+
+# 'Masters of the Universe' Creative Team Will Touch Upon What Masculnity Means in the 21st Century
+
+Movie News, Masters of the Universe
+
+Tue, 14 Apr 2026 18:48:23 GMT
+
+https://movieweb.com/masters-of-the-universe-explore-masculinity/
+
+Director Travis Knight reveals that this new take on He-Man will explore topics of what it means to be strong in the current cultural climate.
+---------
+
+# 'Brink of War' Trailer Reveals Jeff Daniels as Ronald Reagan
+
+Movie News, Jeff Daniels, Ronald Reagan, Jared Harris, The Brink of War
+
+Tue, 14 Apr 2026 18:38:14 GMT
+
+https://movieweb.com/brink-of-war-trailer-jeff-daniels/
+
+'Brink of War' unveils Jeff Daniels as Ronald Reagan, while Jared Harris, J.K. Simmons, and Hope Davis round out an impressive cast.
+---------
+
+# Superman Sequel ‘Man of Tomorrow’ Casts Andor’s Adria Arjona in Mysterious Role
+
+Movie News, Man of Tomorrow, Adria Arjona
+
+Tue, 14 Apr 2026 18:13:39 GMT
+
+https://movieweb.com/man-of-tomorrow-adria-arjona-cast/
+
+'Andor' star Adria Arjona will take on an undisclosed new role in James Gunn's upcoming DCU sequel, 'Man of Tomorrow.'
+---------
+
+# Liam Neeson's Remake of the 1980's Action Classic 'The A-Team' is a Streaming Success on Starz in 2026
+
+Movie News, The A-Team, Liam Neeson, STARZ, Hot on Streaming, Action
+
+Tue, 14 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/the-a-team-streaming-success-starz-april-2026-action/
+
+Liam Neeson and Bradley Cooper's 'The A-Team' remake is a divisive action thriller, but it's a streaming success on Starz.
+---------
+
+# 'Focker-In-Law' Teaser: First Look at Ariana Grande in Ben Stiller Sequel
+
+Movie Trailers, Focker-In-Law, Ariana Grande, Ben Stiller, Robert De Niro, Meet the Parents
+
+Tue, 14 Apr 2026 17:58:29 GMT
+
+https://movieweb.com/focker-in-law-ariana-grande-teaser/
+
+Ariana Grande puts her comic chops to good use opposite Ben Stiller and Robert De Niro.
+---------
+
 # James Gunn's Man Of Tomorrow Officially Casts Maxima In Superman 2
 
 Movies, Man of Tomorrow, DC Universe, Superman
