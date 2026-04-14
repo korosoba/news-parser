@@ -1,3 +1,377 @@
+# Naruto's Next Anime Is Going To Save The Franchise
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Tue, 14 Apr 2026 03:45:46 GMT
+
+https://screenrant.com/naruto-next-anime-boruto-two-blue-vortex-save-franchise/
+
+Naruto's anime franchise needs more than its promised four episodes, with its true brightest future hiding in plain sight.
+---------
+
+# Jumanji 4: Open World - Final Installment Revealed with Robin Williams Tribute
+
+Movies, Jumanji, CinemaCon, Jumanji 4
+
+Tue, 14 Apr 2026 03:39:29 GMT
+
+https://screenrant.com/jumanji-4-title-plot-revealed-robin-williams-easter-egg-cinemacon-2026/
+
+Sony unveiled footage from the highly anticipated Jumanji 4 at CinemaCon, featuring the final appearance of Dwayne Johnson, Kevin Hart, Jack Black, and Karen Gillan before the franchise concludes in 2026.
+---------
+
+# Move Over Goku and Vegeta, Another Dragon Ball Fighter Is Destined to Beat Black Frieza
+
+Anime, Dragon Ball
+
+Tue, 14 Apr 2026 03:34:41 GMT
+
+https://screenrant.com/dragon-ball-gohan-destined-beat-frieza-black/
+
+As Black Frieza emerges as the most powerful villain, Gohan may be the key to defeating him and to claiming his rightful place as the strongest.
+---------
+
+# Spider-Man Beyond The Spider-Verse Footage Reveals The Aftermath Of Miles Vs. Miles After 4 Years Of Waiting
+
+Movies, Spider-Man: Beyond the Spider-Verse, CinemaCon, Spider-Verse, Spider-Man, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 03:19:16 GMT
+
+https://screenrant.com/spiderman-beyond-the-spider-verse-trailer-footage-cinemacon-2026/
+
+Miles Morales' saga is almost over, as Sony Pictures shares the first proper look at Spider-Man: Beyond the Spider-Verse after years of delay.
+---------
+
+# Godzilla Minus One Director's Grandgear Release Date & Teaser Revealed
+
+Movies, Godzilla Minus One, CinemaCon
+
+Tue, 14 Apr 2026 03:18:10 GMT
+
+https://screenrant.com/godzilla-minus-one-director-first-english-movie-release-date-first-image-revealed/
+
+Godzilla Minus One director Takashi Yamazaki's first English-language movie, Grandgear, gets a release date and teaser, hinting at massive scale and mech-driven action.
+---------
+
+# Legend Of Zelda Movie Reaches Huge Filming Milestone After 6 Months In Production
+
+Movies, The Legend of Zelda, CinemaCon
+
+Tue, 14 Apr 2026 03:05:36 GMT
+
+https://screenrant.com/the-legend-of-zelda-movie-filming-update-cinemacon-2026/
+
+Sony Pictures' upcoming live-action movie adaptation of The Legend of Zelda finally gets a major update, as the film's release is only a year away.
+---------
+
+# Jenna Ortega Is A Robot In Bestselling Sci-Fi Adaptation Klara & The Sun's First Footage
+
+Movies, Klara and the Sun, CinemaCon
+
+Tue, 14 Apr 2026 02:53:40 GMT
+
+https://screenrant.com/klara-and-the-sun-cinemacon-footage/
+
+The first footage from the film adaptation of the bestselling science-fiction novel Klara and the Sun showcases Jenna Ortega as a robot.
+---------
+
+# Resident Evil's New Trailer Reveals Weapons Director Zach Cregger's Vision For Horror Franchise
+
+Movies, Resident Evil, CinemaCon
+
+Tue, 14 Apr 2026 02:50:18 GMT
+
+https://screenrant.com/resident-evil-new-trailer-sony/
+
+Sony Pictures just released a terrifying brand-new trailer for Zach Cregger's upcoming standalone Resident Evil reboot at CinemaCon 2026.
+---------
+
+# Insidious Introduces It's "Most Terrifying" Entry Yet In Out Of The Further Trailer
+
+Movies, Insidious: The Bleeding World, Insidious, CinemaCon
+
+Tue, 14 Apr 2026 02:43:29 GMT
+
+https://screenrant.com/insidious-6-trailer/
+
+The trailer for Insidious: Out of the Further has been released, revealing new details about the sixth installment of the horror franchise.
+---------
+
+# New Spider-Man Footage Brings Back Depressed Peter Parker In Brand New Day
+
+Movies, Spider-Man: Brand New Day, CinemaCon, Spider-Man, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 02:39:42 GMT
+
+https://screenrant.com/spiderman-brand-new-day-cinemacon-2026-trailer-footage/
+
+Sony Pictures and Marvel Studios reveal more details on Tom Holland's Spider-Man: Brand New Day, as more footage of the film has been unveiled.
+---------
+
+# Alaric Saltzman's Tragic Arc on The Vampire Diaries
+
+TV, The Vampire Diaries
+
+Tue, 14 Apr 2026 03:31:16 GMT
+
+https://www.cbr.com/the-vampire-diaries-real-villain-alaric/
+
+The Vampire Diaries has had many enemies throughout the series, but one of its most dangerous was present since the first season.
+---------
+
+# Apple Studios’ Liminal is The Perfect Blueprint for the MCU's Mutant Era
+
+Movies, Apple TV, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 03:15:17 GMT
+
+https://www.cbr.com/apple-studios-liminal-perfect-blueprint-for-mcu-mutant-era/
+
+An exciting new thriller is coming from Apple Studios, and it could explain exactly how Marvel Studios can answer one of the MCU's biggest questions.
+---------
+
+# Only 3 Open-World Games Are Better Than Red Dead Redemption 2
+
+Games, open world, Red Dead Redemption 2
+
+Tue, 14 Apr 2026 03:15:17 GMT
+
+https://www.cbr.com/3-open-world-games-better-than-red-dead-redemption-2-list/
+
+Red Dead Redemption 2 is one of the best open-world games ever, but some titles give it serious competition.
+---------
+
+# 10 Signs You’ve Watched More Than 100 Anime in Your Life
+
+Anime
+
+Tue, 14 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/you-watch-too-much-anime-list/
+
+If you've done these things, you may have watched too much anime.
+---------
+
+# Invincible Season 4 Owes Everything to Iconic 1990s Franchise
+
+Anime, Invincible, Dragon Ball Z
+
+Tue, 14 Apr 2026 02:50:13 GMT
+
+https://www.cbr.com/prime-invincible-season-4-dbz-inspiration/
+
+As Invincible's popularity continues to grow, the adult animated series owes more credit than ever to this beloved 1990s action franchise.
+---------
+
+# New Transformers Reveal Brings Back Optimus Prime, Bumblebee and More Movie Figures
+
+Anime, Transformers, merchandise, toys, hasbro
+
+Tue, 14 Apr 2026 02:50:13 GMT
+
+https://www.cbr.com/transformers-studio-series-hasbro-new-optimus-prime-bumblebee/
+
+Figures based on the movies Transformers One, Age of Extinction and Rise of the Beasts roll out for the newest wave of Transformers Studio Series.
+---------
+
+# Naruto’s Author Masashi Kishimoto Reveals Godzilla as an Inspiration For the Manga
+
+Anime, Naruto, Godzilla
+
+Tue, 14 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/naruto-author-masashi-kishimoto-godzilla-inspiration/
+
+Godzilla is mostly known for wreaking havoc in live-action movies, but his giant influence directly impacted one of the biggest shonen anime ever.
+---------
+
+# 10 Darkest Anime Series Ever, Ranked
+
+Anime, Attack on Titan
+
+Tue, 14 Apr 2026 02:00:24 GMT
+
+https://www.cbr.com/darkest-anime-shows-of-all-time-list/
+
+Anime like Fullmetal Alchemist: Brotherhood tell dark stories that will stick with viewers.
+---------
+
+# Only 5 Heist Movies Are Better Than Ocean's Eleven
+
+Movies, Ocean's Eleven, Crime
+
+Tue, 14 Apr 2026 02:00:24 GMT
+
+https://www.cbr.com/heist-movies-better-than-oceans-eleven-list/
+
+Ocean's Eleven is a modern heist classic, but it is far from the best of the genre, and other movies have even topped it.
+---------
+
+# Avatar: The Last Airbender Is Still the Best Fantasy Series of the 2000s
+
+Anime, Avatar: The Last Airbender, Netflix
+
+Tue, 14 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/best-fantasy-on-netflix-avatar-the-last-airbender-2005/
+
+No fantasy series since Avatar: The Last Airbender has ever soared to the same great heights as Avatar Aang.
+---------
+
+# Miles Morales Faces a Dangerous Threat in New 'Spider-Man: Beyond the Spider-Verse' Images
+
+Movie News, Spider-Man: Beyond the Spider-Verse, Spider-Man: Brand New Day, Spider-Man: Across the Spider-Verse, Spider-Man: Into The Spider-Verse
+
+Tue, 14 Apr 2026 03:41:33 GMT
+
+https://collider.com/spider-man-beyond-the-spider-verse-images-miles-morales/
+
+Miles Morales is back for one final adventure in some brand new images for Spider-Man: Beyond the Spider-Verse. See them here!
+---------
+
+# First ‘Jumanji 3’ Footage Reveals the Out-Of-This-World Plotline for Dwayne Johnson’s Epic Return
+
+Movie News, Jumanji 4, Dwayne Johnson, Kevin Hart, CinemaCon
+
+Tue, 14 Apr 2026 03:34:15 GMT
+
+https://collider.com/jumanji-4-first-footage-description-dwayne-johnson-open-world-title-cinemacon/
+
+The first trailer for Jumanji 3 sends Dwayne Johnson and the gang back to the jungle for one final adventure that has expanded beyond the game.
+---------
+
+# Netflix’s Stellar 5-Part Crime Thriller Is the Perfect Weekend Binge Before Its 2026 Return
+
+TV Features, Netflix, Thriller, Netflix Original Series, The Åre Murders
+
+Tue, 14 Apr 2026 03:31:18 GMT
+
+https://collider.com/netflix-crime-thriller-the-are-murders-swedish-series-season-1/
+
+Netflix’s The Åre Murders is a smart Nordic noir crime series about a missing girl case, returning for Season 2 in 2026.
+---------
+
+# ‘Spider-Man: Beyond the Spider-Verse’ Confirms Release Date With First Footage at CinemaCon
+
+Movie News, Spider-Man: Beyond the Spider-Verse, Shameik Moore, Hailee Steinfeld, Spider-Man: Into The Spider-Verse, CinemaCon
+
+Tue, 14 Apr 2026 03:20:00 GMT
+
+https://collider.com/spider-man-beyond-the-spider-verse-release-date-first-footage-description-cinemacon/
+
+Shameik Moore and Hailee Steinfeld return to their roles in the animated world of Spider-Man: Beyond the Spider-Verse in a first look at CinemaCon.
+---------
+
+# 15+ Years Later, 'The Social Network's Follow-Up Is Officially a Tense Courtroom Thriller in First Footage
+
+Movie News, The Social Reckoning, Jeremy Strong, Mikey Madison, Aaron Sorkin, CinemaCon
+
+Tue, 14 Apr 2026 03:14:37 GMT
+
+https://collider.com/social-network-sequel-social-reckoning-first-footage-description-cinemacon/
+
+The Social Reckoning revealed the first footage of the Social Network's spiritual successor at CinemaCon. Get the description of the scene here.
+---------
+
+# The Best Gothic Horror Game Ever Is Officially Getting the R-Rated Adaptation It Deserves
+
+TV News, Bloodborne, Sony, PlayStation (Original), Resident Evil
+
+Tue, 14 Apr 2026 03:09:52 GMT
+
+https://collider.com/bloodborne-gothic-horror-video-game-r-rated-animated-adaptation-officially-announced/
+
+Sony has officially announced that an R-rated animated Bloodborne film is happening, with YouTuber Jacksepticeye producing the PlayStation movie.
+---------
+
+# Not Even a Major 'Supernatural' Crossover Can Save 'The Rookie's Worst Episode This Season | Review
+
+TV Reviews, The Rookie, ABC, Nathan Fillion, Supernatural
+
+Tue, 14 Apr 2026 03:00:13 GMT
+
+https://collider.com/the-rookie-season-8-episode-15-recap-review-documentary-supernatural/
+
+The Rookie's latest episode once again features a documentary-style format that falls short with confusing plotlines and unnecessary distractions.
+---------
+
+# First 'Resident Evil' Footage Brings Zach Cregger's Zombie-Infested Video Game Adaptation to Life
+
+Movie News, Resident Evil, Zach Cregger, CinemaCon, Austin Abrams
+
+Tue, 14 Apr 2026 02:52:33 GMT
+
+https://collider.com/zach-cregger-resident-evil-footage-description-cinemacon/
+
+The first footage for Zach Cregger's Resident Evil has arrived at CinemaCon with a terrifying take on Capcom's over-the-top survival horror franchise.
+---------
+
+# New ‘Spider-Man: Brand New Day’ Footage Reveals the Devastating Impact of 'No Way Home'
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Destin Daniel Cretton, Zendaya, CinemaCon
+
+Tue, 14 Apr 2026 02:40:35 GMT
+
+https://collider.com/spider-man-brand-new-day-footage-description-cinemacon/
+
+The emotional fallout from Spider-Man: No Way Home was showcased in new Brand New Day footage show at CinemaCon. Get the description here.
+---------
+
+# Netflix’s Gritty 4-Part Crime Series Surges on Streaming One Year After Cancellation
+
+TV Features, The Cleaning Lady, Netflix, Fox, Elodie Yung
+
+Tue, 14 Apr 2026 01:47:12 GMT
+
+https://collider.com/netflix-crime-series-the-cleaning-lady-streaming-hit/
+
+After four seasons, Fox canceled The Cleaning Lady, but it’s getting a new wave of fans on Netflix.
+---------
+
+# First 'Resident Evil' Trailer Revealed for Zach Cregger's Reboot at CinemaCon
+
+Movie News, Resident Evil, Zach Cregger
+
+Tue, 14 Apr 2026 03:01:10 GMT
+
+https://movieweb.com/first-resident-evil-trailer-cinema-con/
+
+Zach Cregger's take on 'Resident Evil' has been revealed to those attending the Sony Pictures panel at CinemaCon.
+---------
+
+# 10 Great Sci-Fi TV Series With Deeper World-Building Than Any Movie
+
+TV Lists, Sci-Fi
+
+Tue, 14 Apr 2026 02:00:30 GMT
+
+https://movieweb.com/sci-fi-tv-shows-world-building/
+
+These sci-fi TV shows have more impressive and compelling world-building than movies, and fans of the genre will enjoy them.
+---------
+
+# Every Ridley Scott Historical Epic, Ranked
+
+Movie Lists, Ridley Scott
+
+Tue, 14 Apr 2026 01:00:19 GMT
+
+https://movieweb.com/ridley-scott-historical-epic-movies-ranked/
+
+Ridley Scott is a master of many genres, but his historical epics are among his best works, and these movies are impressive.
+---------
+
+# 'Faces of Death' Director Says Original Film Is Even More Relevant Today
+
+Movie News, Faces of Death
+
+Tue, 14 Apr 2026 00:51:28 GMT
+
+https://movieweb.com/faces-of-death-director-interview-original-reaction/
+
+Daniel Goldhaber has taken the dark concept of the 1978 original film to a whole new level.
+---------
+
 # After 49 Years, Darth Vader Has Been Officially Dethroned As Star Wars' Best Villain
 
 Streaming TV, Star Wars, Star Wars: Maul - Shadow Lord
