@@ -1,3 +1,289 @@
+# Absolute Batman Debuts Matching Costumes for New All-Robin Team
+
+DC Comics, Robin, Batman
+
+Tue, 14 Apr 2026 16:08:58 GMT
+
+https://screenrant.com/new-robin-costume-redesign-absolute-batman-mech/
+
+DC recently revealed a radical redesign for the iconic Robin, as Absolute Batman turns the Boy Wonder in a gigantic mech. Now, fans see the pilots.
+---------
+
+# Guy Ritchie & Prime Video's Young Sherlock Is Officially Returning For More Episodes
+
+TV, Young Sherlock
+
+Tue, 14 Apr 2026 16:06:29 GMT
+
+https://screenrant.com/young-sherlock-season-2-renewal-confirmed-guy-ritchie-prime-video/
+
+Prime Video's Young Sherlock is returning for another case.
+---------
+
+# Star Trek And NASA: 1969 And 2026 Cancellations And Milestones
+
+TV, Star Trek
+
+Tue, 14 Apr 2026 16:01:18 GMT
+
+https://screenrant.com/star-trek-canceled-nasa-moon-mission-again/
+
+History repeated itself as major events in Star Trek and NASA in 1969 somehow happened again in 2026.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Filming Reportedly Canceled After Historic Flood
+
+TV, A Knight Of The Seven Kingdoms
+
+Tue, 14 Apr 2026 15:50:22 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-filming-canceled/
+
+Game of Thrones' prequel series A Knight of the Seven Kingdoms is in hot water, as season 2 production has reportedly been canceled.
+---------
+
+# Batman's New 2026 Movie Starts One Of DC's Most Important Franchises
+
+Superheroes, Batman, DC Universe
+
+Tue, 14 Apr 2026 15:50:19 GMT
+
+https://screenrant.com/dc-batman-movie-knightfall-2026-franchise-start/
+
+DC's next Batman movie has already set its 2026 release, and the film is going to mark an important franchise start for the superhero giant.
+---------
+
+# Prime Video's Hit Franchise Is Officially Returning This Summer With A New Sequel
+
+TV, My Fault: London
+
+Tue, 14 Apr 2026 15:43:45 GMT
+
+https://screenrant.com/your-fault-london-release-date-prime-video/
+
+A 2025 rom-com with Asha Banks is getting a sequel that will arrive on Prime Video this June, and a teaser trailer has now been released.
+---------
+
+# Xbox Exclusives Reportedly Coming Back, Leaving Gamers Split
+
+Gaming, Xbox Series X/S, Triple-A Games, PC
+
+Tue, 14 Apr 2026 15:34:59 GMT
+
+https://screenrant.com/xbox-exclusives-coming-back-reactions/
+
+A major change in Xbox policy could come with some benefits, but that doesn't mean that everyone would be happy about the course reversal.
+---------
+
+# Upcoming Superhero Movie Based On A Best-Selling Saga Is Netflix's Answer To The Boys
+
+Streaming TV, The Boys, My Hero Academia
+
+Tue, 14 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/my-hero-academia-netflix-movie-answer-the-boys/
+
+The Boys is one of the most successful superhero stories in recent times, and Netflix is looking to capitalize on it with its own version of the show.
+---------
+
+# Top 10 Breakout Actors Of The 2000s
+
+Movies, Op-Ed
+
+Tue, 14 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/best-acting-breakout-performances-each-year-2000-2009/
+
+The 2000s were home to some incredible breakthrough acting performances from Oscar nominees to blockbuster superhero roles to great debut work.
+---------
+
+# Anne Hathaway's New Thriller Harshly Splits Critics Despite Strong Rotten Tomatoes Score
+
+Movies, Mother Mary
+
+Tue, 14 Apr 2026 15:26:16 GMT
+
+https://screenrant.com/mother-mary-anne-hathaway-rotten-tomatoes-score/
+
+Anne Hathaway is never going out of style as her newest thriller has become the talk of the town, and has harshly split critics on Rotten Tomatoes.
+---------
+
+# Prime Video Officially Seals the Fate of Guy Ritchie's Gritty New Crime Drama 1 Month After Release
+
+TV, Young Sherlock
+
+Tue, 14 Apr 2026 16:06:29 GMT
+
+https://www.cbr.com/prime-video-young-sherlock-season-2-fate/
+
+The streamer revealed whether the prequel would return.
+---------
+
+# Resident Evil Reboot Trailer Debuts at CinemaCon
+
+Movies, Resident Evil, Horror
+
+Tue, 14 Apr 2026 16:02:52 GMT
+
+https://www.cbr.com/resident-evil-reboot-trailer-cinemacon/
+
+Sony Pictures unveiled the first footage from the upcoming Resident Evil reboot at CinemaCon, directed by Weapons helmer Zach Cregger.
+---------
+
+# Reacher’s Neagley Spinoff Has 1 Big Advantage Over Alan Ritchson’s Show
+
+TV, Reacher, Neagley, Prime Video
+
+Tue, 14 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/reacher-neagley-spinoff-big-change-from-lee-child-books/
+
+As the Reacher universe expands with the Frances Neagley spinoff series, can a minor character from Lee Child's books actually be more accurate on TV?
+---------
+
+# DC Comics Confirms Dark Knights of Steel Will Return
+
+Comics, DC Comics
+
+Tue, 14 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/dc-comics-dark-knights-of-steel-ii-release-date-confirmed/
+
+DC Comics just gave readers their first look at the long-awaited follow-up to Dark Knights of Steel, and it looks like a pitch-perfect sequel.
+---------
+
+# Netflix's Thrash is the Perfect Jaws Double Feature
+
+Movies, Jaws, Thrash, Netflix
+
+Tue, 14 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/netflix-thrash-perfect-jaws-double-feature/
+
+Jaws is a fantastic shark movie, but Netflix's Thrash is the perfect pairing for a scary shark-themed marathon.
+---------
+
+# Hulu Finally Gives Tim McGraw an Official Yellowstone Replacement Show
+
+TV, southern bastards
+
+Tue, 14 Apr 2026 15:45:59 GMT
+
+https://www.cbr.com/tim-mcgraw-hulu-southern-bastards/
+
+Tim McGraw is the latest actor to join a major graphic novel adaptation for Hulu.
+---------
+
+# Mouse: P.I. for Hire Brilliantly Blends Steamboat Willie and 30s Film Noir
+
+Games, video game, Indie Games
+
+Tue, 14 Apr 2026 15:45:12 GMT
+
+https://www.cbr.com/mouse-pi-for-hire-review-2026/
+
+Mouse: P.I. for Hire is a brilliant combination of cartoons like Steamboat Willie mixed with the pulpy film noir classics of the 1930s.
+---------
+
+# Pokémon's New 30th Anniversary U.S. Event Is Officially for Older Fans Only
+
+Anime, Pokemon
+
+Tue, 14 Apr 2026 15:37:24 GMT
+
+https://www.cbr.com/pokemon-anniversary-america-event-16-plus/
+
+The 30th anniversary of Pokémon is the perfect time for older fans to look back at the brand, and a special U.S. event is the best way to do so.
+---------
+
+# Reacher's Alan Ritchson Is Back in Action in First Trailer for New Explosive Thriller
+
+Movies, Runner, Action
+
+Tue, 14 Apr 2026 15:35:18 GMT
+
+https://www.cbr.com/alan-ritchson-runner-action-thriller-first-trailer/
+
+The trailer for Alan Ritchson's explosive new action thriller with Owen Wilson has just dropped ahead of Reacher Season 4.
+---------
+
+# Runner   Official Teaser
+
+Movies, Runner
+
+Tue, 14 Apr 2026 15:26:19 GMT
+
+https://www.cbr.com/video/alan-ritchson-runner-teaser/
+
+Angel Studios unveiled the action-packed teaser for Alan Ritchson's Runner
+---------
+
+# 'Margo's Got Money Troubles' Review: Elle Fanning's Dysfunctional Apple TV Miniseries Is a Must-Watch
+
+TV Reviews, Margo's Got Money Troubles, Apple TV, Elle Fanning, Michelle Pfeiffer
+
+Tue, 14 Apr 2026 16:00:13 GMT
+
+https://collider.com/margos-got-money-troubles-review-apple-tv-michelle-pfeiffer-elle-fanning/
+
+Elle Fanning, Michelle Pfeiffer, and Nick Offerman star in Apple TV's Margo's Got Money Troubles, a must-watch dramedy that fires on all cylinders.
+---------
+
+# Lena Headey Is Out for Blood in Sneak Peek From Explosive New Revenge Thriller [Exclusive]
+
+Exclusives, Lena Headey, Ballistic, Game Of Thrones, Thriller
+
+Tue, 14 Apr 2026 15:00:13 GMT
+
+https://collider.com/lena-headey-action-movie-sneak-peek-ballistic-first-look/
+
+Lena Headey plays a desperate mother searching for answers surrounding her son’s battlefield death in a new look at Ballistic. See it here.
+---------
+
+# A24's Big Budget War Movie 'Civil War' Is a Streaming Success on Prime Video in the US
+
+Movie News, Civil War, Prime Video
+
+Tue, 14 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/civil-war-a24-best-war-movie-streaming-success-prime-video-april-2026/
+
+'28 Years Later' writer, Alex Garland's A24 dystopian war action movie 'Civil War' is a streaming success on Prime Video.
+---------
+
+# 15 Anime Like Vinland Saga to Watch Next
+
+TV Lists, Anime
+
+Tue, 14 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/anime-like-vinland-saga/
+
+With equal parts action and rumination, these anime will please fans of 'Vinland Saga.'
+---------
+
+# 'Bloodborne' Getting R-Rated Animated Movie Produced by Jacksepticeye
+
+Movie News, video games, Elden Ring, Horror
+
+Tue, 14 Apr 2026 15:17:23 GMT
+
+https://movieweb.com/bloodborne-getting-r-rated-movie-adaptation/
+
+A feature-length adaptation of 'Bloodborne' is in the works, courtesy of Sony and Jacksepticeye.
+---------
+
+# The Hunger Games' 13 Districts, Explained
+
+Movie Lists, The Hunger Games, The Hunger Games: The Ballad of Songbirds and Snakes
+
+Tue, 14 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/the-hunger-games-13-districts/
+
+In The Hunger Games, Panem is divided into 13 separate districts. Here are each of their assigned roles in serving the Capitol.
+---------
+
 # Netflix Sci-Fi Series That's Silo Meets War Of The Worlds Gets Major Season 2 Update
 
 TV, The Eternaut
