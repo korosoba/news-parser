@@ -1,3 +1,223 @@
+# Skyrim Gets Online Multiplayer Mode That Totally Changes The Game
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games
+
+Tue, 14 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/skyrim-online-multiplayer-unofficial-mod/
+
+If you've been wanting to play multiplayer in Skyrim, now is your chance, as this mode completely changes how you approach the game.
+---------
+
+# Spy x Family Just Dropped the Series' Best Chapter of All Time
+
+Anime, Spy X Family, Shonen Jump
+
+Tue, 14 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/spy-x-family-best-chapter-all-time-132/
+
+Chapter 132 of Spy x Family delivers a shocking moment that changes the series forever in a way that fans have been longing to happen for a while.
+---------
+
+# This Underrated Horror Classic Is Finally Getting A Sequel 20 Years Later, And Here's What You Need To Know
+
+Movies, Horror, Behind the Mask
+
+Tue, 14 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/behind-mask-rise-leslie-vernon-movie-sequel-details/
+
+20 years after its original release, Leslie Vernon is making a glorious return in Behind the Mask II; and here's everything you need to know about it.
+---------
+
+# 7 Things The Book of Boba Fett Got Right
+
+Star Wars, The Book of Boba Fett
+
+Tue, 14 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/book-of-boba-fett-things-got-right-star-wars/
+
+The Book of Boba Fett received a disappointing reception from both fans and critics, but the show still gets a lot of things right.
+---------
+
+# The Testaments Cast Guide & Handmaid's Tale Character Connections
+
+Streaming TV, The Testaments
+
+Tue, 14 Apr 2026 22:45:19 GMT
+
+https://screenrant.com/the-testaments-cast-handmaids-tale-character-connections/
+
+The sequel to the harrowing Hulu original TV show, The Handmaid’s Tale, The Testaments includes both familiar and new faces in its cast.
+---------
+
+# WandaVision: How Disney+'s Sci-Fi Fantasy Series Revolutionized the MCU and Genres
+
+Classic TV, WandaVision, Marvel
+
+Tue, 14 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/wandavision-disney-plus-rewrote-marvel-rules/
+
+Discover how Disney+'s groundbreaking WandaVision series not only changed the Marvel Cinematic Universe but also redefined sci-fi and fantasy genres with its innovative storytelling.
+---------
+
+# Godzilla Minus One Heads for New York in First Trailer & Plot Details
+
+Movies, Godzilla Minus Zero, Godzilla, Godzilla Minus One
+
+Tue, 14 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/godzilla-minus-zero-trailer-plot/
+
+The creature feature was an unexpected hit, and became the only Godzilla film to ever win an Oscar.
+---------
+
+# 10 ‘Near-Perfect’ Apple Films That Define the Service’s Prestige Era
+
+Movies, Apple TV
+
+Tue, 14 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/near-perfect-apple-studios-movies/
+
+Since its founding in 2019, Apple TV has produced some of the most unique, well-regarded, and prestige movies of the modern age.
+---------
+
+# 'A Little Whimsy': Emmy-Nominated Sydney Mikayla Talks Transformers, General Hospital, & Her Acting Future
+
+CBR Exclusives, interview
+
+Tue, 14 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/sydney-mikayla-interview/
+
+In an exclusive interview with CBR, talented actress Sydney Mikayla sits down to discuss her acting career and growing voice-acting filmography.
+---------
+
+# Spider-Man: Brand New Day Poster Appears to Reference Kagurabachi
+
+Anime, Spider-Man: Brand New Day, Kagurabachi
+
+Tue, 14 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-poster-kagurabachi-manga-reference/
+
+Anime fans have taken to social media to call out the obvious similarities between Spider-Man: Brand New Day's new poster and a popular shonen manga.
+---------
+
+# Sony Confirms Bloodborne R-Rated Animated Film in Development
+
+Movies, Bloodborne
+
+Tue, 14 Apr 2026 22:15:10 GMT
+
+https://www.cbr.com/sony-finally-confirms-bloodborne-r-rated-adaptation-is-officially-in-development/
+
+Sony Pictures Entertainment officially confirms the development of an R-rated Bloodborne animated feature film.
+---------
+
+# Historian Critiques Depictions of Vikings in History Channel Series
+
+TV, Vikings, Drama
+
+Tue, 14 Apr 2026 22:09:25 GMT
+
+https://www.cbr.com/vikings-epic-historical-warfare-expert-criticism/
+
+A historian takes issue with the accuracy of the popular TV show Vikings, criticizing its portrayal of Viking tactics, shield walls, and ship travel.
+---------
+
+# Sequel to the Best Godzilla Movie Ever Made Officially Debuts Jaw-Dropping First Trailer
+
+Movie News, Godzilla Minus One, Godzilla Minus Zero, Godzilla, CinemaCon
+
+Tue, 14 Apr 2026 23:04:07 GMT
+
+https://collider.com/godzilla-minus-zero-trailer-imax-cinemacon-2026/
+
+Godzilla Minus Zero just made a massive entrance at CinemaCon. Takashi Yamazaki debuted the first footage from the new film. See the trailer here!
+---------
+
+# ‘The Boys’ Season 5 Is Sending Fans Back to Antony Starr’s 108-Minute Action Thriller
+
+Movie News, G20, Anthony Starr, Viola Davis, Prime Video
+
+Tue, 14 Apr 2026 23:00:13 GMT
+
+https://collider.com/prime-video-g20-olympus-has-fallen-meets-john-wick-streaming-success-april-2026/
+
+Viola Davis and Anthony Starr's Prime Video action movie G20 has returned to the streaming charts a year after its debut. Find out more.
+---------
+
+# George R.R. Martin's Favorite 'Game of Thrones' Spin-Off Faces Major Season 2 Setback
+
+TV News, A Knight Of The Seven Kingdoms, Game Of Thrones, George R.R. Martin, House of the Dragon
+
+Tue, 14 Apr 2026 22:53:47 GMT
+
+https://collider.com/george-rr-martin-favorite-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-season-2-filming-paused/
+
+Work on A Knight of the Seven Kingdoms Season 2 has hit a snag as filming stalls for the Game of Thrones spin-off.
+---------
+
+# This Chilling 13-Episode Military Thriller Feels Eerily Timely Right Now
+
+TV Features, Last Resort, Scott Speedman, ABC, The Night Agent
+
+Tue, 14 Apr 2026 22:47:13 GMT
+
+https://collider.com/last-resort-military-thriller-series-scott-speedman-andre-braugher/
+
+ABC’s 13-episode series Last Resort feels eerily relevant now, with military escalation, political conspiracy, and one of Andre Braugher’s best roles.
+---------
+
+# HBO’s Harry Potter Reboot Is Taking the Books More Seriously After Its Latest Fix
+
+TV Features, Harry Potter, HBO Max, Daniel Radcliffe
+
+Tue, 14 Apr 2026 22:31:14 GMT
+
+https://collider.com/hbo-harry-potter-adding-peeves-the-poltergeist-meaning/
+
+HBO's Harry Potter is adding the character Peeves, the mischievous poltergeist from the book series.
+---------
+
+# 'Tombstone' Didn't Need That 134-Minute Director's Cut
+
+Movie Features, Tombstone, Val Kilmer, Kurt Russell, Western
+
+Tue, 14 Apr 2026 22:21:12 GMT
+
+https://collider.com/tombstone-directors-cut-explained-kurt-russell-val-kilmer-western/
+
+Kurt Russell and Val Kilmer's exceptional Western Tombstone received a director's cut that was very unnecessary.
+---------
+
+# 'Godzilla Minus Zero' Trailer Revealed After CinemaCon Presentation
+
+Movie News, Godzilla Minus Zero, Godzilla Minus One
+
+Tue, 14 Apr 2026 23:02:22 GMT
+
+https://movieweb.com/godzilla-minus-zero-trailer/
+
+'Godzilla Minus Zero' teaser trailer reveals the classic monster heading toward New York City after the events of 'Minus One.'
+---------
+
+# 'For All Mankind' Season 5 Being Followed up By 'Star City' Season 1 Means an 18-Episode Run in the Same Universe
+
+Features, For All Mankind
+
+Tue, 14 Apr 2026 23:01:17 GMT
+
+https://movieweb.com/apple-tv-solves-streaming-short-seasons/
+
+Apple TV is making sci-fi fans very happy with an uncharacteristically long run from the same franchise. Read on for more.
+---------
+
 # Spider-Man Officially Marries One Of His Long-Time Love Interests, And It’s Not MJ
 
 Comics, Black Cat, Spider-Man, Marvel
