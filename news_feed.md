@@ -1,3 +1,267 @@
+# Netflix Sci-Fi Series That's Silo Meets War Of The Worlds Gets Major Season 2 Update
+
+TV, The Eternaut
+
+Tue, 14 Apr 2026 14:44:41 GMT
+
+https://screenrant.com/the-eternaut-season-2-update-netflix/
+
+Netflix's sci-fi series, which combines elements of War of the Worlds and Silo, is prepping for season 2 and a potential change in plans.
+---------
+
+# The One Piece Anime Is Finally Fixing Its Biggest Problem
+
+Anime, One Piece
+
+Tue, 14 Apr 2026 14:30:20 GMT
+
+https://screenrant.com/one-piece-anime-fixed-bix-adaptation-issue-chapter/
+
+One Piece's anime is finally good again.
+---------
+
+# OG Harry Potter Actor’s Franchise Return In New Recast Role Officially Revealed [Exclusive]
+
+TV, Harry Potter
+
+Tue, 14 Apr 2026 14:30:20 GMT
+
+https://screenrant.com/harry-potter-audible-horace-slughorn-bill-nighy-recast/
+
+EXCLUSIVE: Listen to an exclusive clip of a recast Harry Potter and the Half-Blood Prince character voiced by a familiar actor in a new release.
+---------
+
+# Brutal New Road Trip Horror Movie Revealed In First Trailer For Passenger
+
+Movies, Paramount Pictures
+
+Tue, 14 Apr 2026 14:16:40 GMT
+
+https://screenrant.com/passenger-movie-trailer/
+
+Paramount releases the shocking trailer for its new road trip horror film Passenger, which stars Melissa Leo and arrives in theaters this May.
+---------
+
+# Why These Fantasy Anime Are The New Big 3 Of Anime
+
+Anime, Op-Ed, Witch Hat Atelier, Frieren: Beyond Journey's End, Delicious in Dungeon
+
+Tue, 14 Apr 2026 14:00:18 GMT
+
+https://screenrant.com/anime-new-big-3-fantasy-frieren-delicious-dungeon-witch-hat-atelier/
+
+The best new anime a person can watch.
+---------
+
+# 13 Marvel Projects That Rescued The MCU Post-Endgame
+
+Streaming TV, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 14:00:18 GMT
+
+https://screenrant.com/marvel-mcu-movies-tv-shows-saved-franchise/
+
+Ever since Endgame, it's felt like every new Marvel project is either the final nail in the MCU's coffin or the savior of the franchise.
+---------
+
+# Dexter: Resurrection Season 2 Casts New Villain Five Borough Killer
+
+TV, Dexter: Resurrection
+
+Tue, 14 Apr 2026 13:49:19 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-casts-new-villain-five-borough-killer/
+
+Dexter: Resurrection is bringing more stars to New York City, and they are as deadly as ever, and this time Dexter has to face off even more foes.
+---------
+
+# GTA 5 Data Exposed Online After Rockstar Games Blackmailed
+
+Gaming, Grand Theft Auto 5, Grand Theft Auto 6, PC, Grand Theft Auto
+
+Tue, 14 Apr 2026 13:36:52 GMT
+
+https://screenrant.com/rockstar-games-hack-breach-gta-5-profits/
+
+After an unfortunate recent blackmail attempt, Rockstar Games' confidential Grand Theft Auto 5 data has been exposed online.
+---------
+
+# Darth Maul's Death: Why Reviving The Star Wars Villain Would Be A Mistake
+
+Star Wars
+
+Tue, 14 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/star-wars-darth-maul-possible-ressurrection-bad-idea/
+
+The producer of Maul: Shadow Lord didn't rule out the possibility of Maul's death being reverse in the future, but here's why this is a bad idea.
+---------
+
+# Dexter: Resurrection Season 2 Casts Godzilla Star as New Villain
+
+TV, Dexter: Resurrection
+
+Tue, 14 Apr 2026 14:30:45 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-casts-dan-stevens-new-villain/
+
+Casting for Dexter: Resurrection Season 2 continues, with a MonsterVerse star joining the sequel series as a new serial killer.
+---------
+
+# Pusher is the Best Gangster Movie Trilogy Since The Godfather
+
+Movies, Pusher
+
+Tue, 14 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/pusher-best-gangster-movie-trilogy/
+
+Pusher is Nicolas Winding Refn's unique movie trilogy starring three of the greatest Danish actors ever: Kim Bodnia, Mads Mikkelsen and Zlatko Burić.
+---------
+
+# Marvel Officially Confirms the MCU's Newest Multiversal Event
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/mcu-daredevil-born-again-season-2-the-watcher-appearance/
+
+Daredevil: Born Again firmly establishes the street-level stories of the MCU as part of the Multiverse Saga's larger overarching narrative.
+---------
+
+# Jumanji 4 Title & Plot Confirmed 8 Months Ahead of Release
+
+Movies, Jumanji, Jumanji: Open World
+
+Tue, 14 Apr 2026 14:09:10 GMT
+
+https://www.cbr.com/jumanji-4-title-plot-confirmed/
+
+This comes just two weeks after the final entry wrapped production.
+---------
+
+# After 4-Year Wait, Spider-Man: Beyond the Spider-Verse Finally Unveils Footage of Miles' Final Chapter
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Into The Spider-Verse, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse, Spider-Man: Brand New Day
+
+Tue, 14 Apr 2026 13:52:59 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-finally-unveils-footage/
+
+The first footage of Miles Morales' final chapter has finally arrived.
+---------
+
+# Marvel Confirms Fantastic Four and X-Men Team Up In 2026
+
+Comics, Marvel, MCU, X-Men, Fantastic Four, The Fantastic Four: First Steps
+
+Tue, 14 Apr 2026 13:25:31 GMT
+
+https://www.cbr.com/marvel-confirms-fantastic-four-x-men-team-up/
+
+It's official — the X-Men and Fantastic Four will team up months before Avengers: Doomsday.
+---------
+
+# Every Spring 2026 Anime You Need to Be Watching
+
+Anime, Witch Hat Atelier, Re:Zero -Starting Life in Another World-
+
+Tue, 14 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/best-anime-to-watch-spring-2026/
+
+This Spring 2026 anime season is packed with promising premieres, and these are the shows every fan should be watching.
+---------
+
+# Dan Stevens Is Playing a Terrifying New Killer in Part 2 of Paramount+'s Best Thriller Series
+
+TV News, Dexter: Resurrection, Dan Stevens, Michael C. Hall, Dexter
+
+Tue, 14 Apr 2026 14:29:26 GMT
+
+https://collider.com/dexter-resurrection-season-2-cast-dan-stevens/
+
+Godzilla x Kong: The New Empire star Dan Stevens has officially joined Season 2 of Paramount’s serial killer thriller series, Dexter: Resurrection.
+---------
+
+# Sony Pictures Shows First Trailer for 'The Social Reckoning' at CinemaCon
+
+Movie News, The Social Reckoning, Jeremy Strong, Mark Zuckerberg
+
+Tue, 14 Apr 2026 14:54:01 GMT
+
+https://movieweb.com/the-social-reckoning-first-trailer-cinemacon/
+
+The first trailer for Sony Pictures 'The Social Reckoning' played for CinemaCon attendees, showing a brand-new cast of actors and characters.
+---------
+
+# Jason Momoa & Justin Lin's 'Helldivers' Video Game Adaptation Gets Exciting Update
+
+Movie News
+
+Tue, 14 Apr 2026 14:49:15 GMT
+
+https://movieweb.com/jason-momoa-helldivers-movie-update/
+
+A fast-moving new report suggests the actor's latest game-to-screen project, 'Helldivers,' is taking a major step forward behind the scenes.
+---------
+
+# Tom Hardy Gangster Thriller 'Lawless' Leaving Streaming This April
+
+Movie News, Lawless, Coming/Leaving Streaming, Tom Hardy, Thriller
+
+Tue, 14 Apr 2026 14:26:05 GMT
+
+https://movieweb.com/lawless-tom-hardy-leaving-tubi-streaming-april-2026/
+
+You only have a limited time to watch one of Hardy's best performances in the gangster thriller epic before it disappears from streaming.
+---------
+
+# John Le Carré's 'Legacy of Spies' Unveils Full Cast as Filming Begins
+
+TV News, James Bond, james bond
+
+Tue, 14 Apr 2026 14:24:26 GMT
+
+https://movieweb.com/legacy-of-spies-cast-john-le-carre-cast-filming-update/
+
+John Le Carré's 'Legacy of Spies' has rounded out its cast with several stars as filming gets underway on the Matthew Macfadyen-led series.
+---------
+
+# 'The Rookie' and 'Will Trent' Renewed by ABC
+
+TV News, The Rookie, Will Trent
+
+Tue, 14 Apr 2026 14:15:05 GMT
+
+https://movieweb.com/the-rookie-will-trent-renewed-abc/
+
+The network has confirmed whether the Nathan Fillion and Ramón Rodríguez crime dramas are coming back for the 2026-2027 TV season.
+---------
+
+# 30 Years Ago, ‘The Pitt’s Drama Rival 'ER' Fixed a Key Season 2 Issue
+
+Features, The Pitt, ER
+
+Tue, 14 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/er-fixed-the-pitt-season-2-robby-problem/
+
+'ER' aired three decades before the HBO Max medical TV drama 'The Pitt,' and one episode fixed a problem with the new series.
+---------
+
+# 'The Raid's Iko Uwais Returns in First Look at New Action Thriller 'Pendekar: Warrior'
+
+Movie News, Iko Uwais, Action, Thriller
+
+Tue, 14 Apr 2026 13:16:09 GMT
+
+https://movieweb.com/iko-uwais-pendekar-warrior-first-look-action/
+
+The underrated action star is an outlaw drawn back into violence in the upcoming throwback thriller.
+---------
+
 # Nintendo Fans, Prepare For A Wave Of Fake News Straight From The Company Itself
 
 Gaming, Nintendo
