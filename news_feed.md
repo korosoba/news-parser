@@ -1,3 +1,322 @@
+# James Gunn's Man Of Tomorrow Officially Casts Maxima In Superman 2
+
+Movies, Man of Tomorrow, DC Universe, Superman
+
+Tue, 14 Apr 2026 17:38:23 GMT
+
+https://screenrant.com/superman-2-man-of-tomorrow-adria-arjona-maxima-cast/
+
+James Gunn's Man of Tomorrow movie taps a second DC Comics villain to join the upcoming Superman sequel, as Maxima has officially been cast.
+---------
+
+# Spider-Man: Brand New Day's New Tease Is Huge For A Beloved MCU Character
+
+Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 17:35:28 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tease-zendaya-mj-role/
+
+Spider-Man: Brand New Day's new tease points to the importance of a returning Marvel Cinematic Universe character, and it is somewhat surprising.
+---------
+
+# GameCube Animal Crossing Returns In New Anniversary Release From Nintendo
+
+Gaming, Animal Crossing, Triple-A Games
+
+Tue, 14 Apr 2026 17:33:58 GMT
+
+https://screenrant.com/animal-crossing-gamecube-official-return/
+
+It's hard to believe it has been 25 years since Animal Crossing debuted in Japan, but a special anniversary release is a great way to celebrate.
+---------
+
+# 8 Years Before Yellowstone, FX's 6-Part Thriller Series Was TV's Best Neo-Western
+
+Streaming TV, Masked Recs, Recommendation, Justified, Yellowstone, Western
+
+Tue, 14 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/justified-best-neo-western-tv-show-before-yellowstone/
+
+Yellowstone owes a lot to a single gritty crime show that proved audiences were hungry for modern stories rooted in classic Western tropes.
+---------
+
+# Pokémon TCG Introduces Clever Way To Fight Scalpers
+
+Gaming, Pokemon
+
+Tue, 14 Apr 2026 17:17:19 GMT
+
+https://screenrant.com/pokemon-tcg-early-access-pokemon-center/
+
+The Pokémon Center is finally preparing for battle as a new store initiative promises to combat resellers and scalpers at last.
+---------
+
+# Adam Driver's Alleged Aggression & Chair Throwing On Set Of His HBO Series Revealed By Lena Dunham
+
+TV, Girls, Adam Driver, Lena Dunham
+
+Tue, 14 Apr 2026 17:09:03 GMT
+
+https://screenrant.com/adam-driver-lena-dunham-girls-set-incidents-aggression-chair/
+
+It’s been almost a decade since Girls ended, and now Lena Dunham is revealing what allegedly happened behind the scenes with Adam Driver.
+---------
+
+# Netflix's 12-Hour Sci-Fi Series Is The Twilight Zone Of The 21st Century
+
+TV, The Twilight Zone, Love, Death & Robots, Masked Recs
+
+Tue, 14 Apr 2026 17:07:28 GMT
+
+https://screenrant.com/love-death-and-robots-anthology-twiligh-zone-21st-century/
+
+One Netflix series captures a crucial aspect of The Twilight Zone's formula by bouncing unpredictably between sci-fi, comedy, horror, and fantasy.
+---------
+
+# 2026 Kicks Off a New 3-Part Fantasy Series Dungeons & Dragons Fans Will Love
+
+Comics, Conan, Dungeons & Dragons
+
+Tue, 14 Apr 2026 17:04:13 GMT
+
+https://screenrant.com/official-conan-dragonero-new-series-dungeons-and-dragons-fans/
+
+A new three-part epic fantasy crossover series is on the way, and it looks like exactly the kind of adventure Dungeons & Dragons fans live for.
+---------
+
+# Mark Wahlberg's Brutal Crime Thriller Is Tearing Up Netflix Charts 21 Years After Hitting Theaters
+
+Movies, Masked Recs, Mark Wahlberg
+
+Tue, 14 Apr 2026 17:02:27 GMT
+
+https://screenrant.com/mark-wahlberg-four-brothers-movie-netflix-streaming-success/
+
+Mark Wahlberg's brutal crime thriller is tearing up Netflix's global streaming charts over two decades after first hitting theaters in 2005.
+---------
+
+# Reminders Of Him Stars Explain The Color Meanings In New Colleen Hoover Movie
+
+Exclusive, Reminders of Him, Maika Monroe, Tyriq Withers, Rudy Pankow
+
+Tue, 14 Apr 2026 17:00:23 GMT
+
+https://screenrant.com/video/reminders-of-him-colleen-hoover-movie-colors-clip/
+
+Exclusive: ScreenRant presents a BTS clip from Reminders of Him, in which Maika Monroe, Tyriq Withers & Rudy Pankow praise Vanessa Caswill's vision.
+---------
+
+# Transformers Revives Armada Jetfire With a Modern Update for 2026
+
+Anime, Transformers, merchandise, toys, hasbro, action figures
+
+Tue, 14 Apr 2026 17:31:06 GMT
+
+https://www.cbr.com/transformers-armada-age-of-the-primes-jetfire-action-figure-set-hasbro-reveal/
+
+A modernized version of Jetfire from Transformers: Armada shuttles into the Age of the Primes line, complete with a legendary Mini-Con weapon.A modern
+---------
+
+# How an Ancient Alien Theory Changed 2001: A Space Odyssey
+
+Movies, 2001: A Space Odyssey
+
+Tue, 14 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/ancient-alien-theory-changed-2001-a-space-odyssey/
+
+A fictional theory created by H. P. Lovecraft ended up changing 2001: A Space Odyssey - and the world.
+---------
+
+# HBO Abruptly Cancels House of the Dragon Season 4 Filming
+
+TV, A Knight Of The Seven Kingdoms
+
+Tue, 14 Apr 2026 17:24:23 GMT
+
+https://www.cbr.com/hbo-cancels-house-of-the-dragon-season-4-filming/
+
+HBO's Game of Thrones prequel series gets hit with an unfortunate setback.
+---------
+
+# The Last Words of Link's Uncle in Zelda: A Link to the Past, Explained
+
+Games, The Legend of Zelda, The Legend of Zelda: A Link to the Past
+
+Tue, 14 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/zelda-alttp-34-year-anniversary-english-release-link-uncle-quote/
+
+The Legend of Zelda: A Link to the Past's English release in 1992 left behind one of the franchise's most enduring mysteries which remains unsolved.
+---------
+
+# The Boys Take On DC and Marvel Superheroes
+
+Comics, The Boys, CSBG, The Line It Is Drawn
+
+Tue, 14 Apr 2026 17:14:40 GMT
+
+https://www.cbr.com/the-boys-dc-marvel-heroes/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for Marvel and DC heroes taking on The Boys
+---------
+
+# Netflix Finally Adds Jordan Peele's HIM This Week
+
+Movies, Him, Netflix
+
+Tue, 14 Apr 2026 16:58:57 GMT
+
+https://www.cbr.com/netflix-adds-him-april-2026/
+
+The divisive Jordan Peele horror movie is finally hitting Netflix this week.
+---------
+
+# Ahead of The Boys, Supernatural Stars Jensen Ackles and Jared Padalecki Reunite for Surprise The Rookie Crossover
+
+TV, Supernatural, The Rookie
+
+Tue, 14 Apr 2026 16:58:10 GMT
+
+https://www.cbr.com/supernatural-jensen-ackles-reunion-the-rookie-crossover/
+
+Could this be the push they need for a Supernatural reboot?
+---------
+
+# New Witcher RPG Officially Announced for May 2026
+
+Games, The Witcher
+
+Tue, 14 Apr 2026 16:45:17 GMT
+
+https://www.cbr.com/the-witcher-rpg-officially-confirmed-may-2026/
+
+The Witcher fans are getting a brand new title in just a matter of weeks, and it might be the most unexpected franchise entry yet.
+---------
+
+# Avengers: Doomsday Reportedly Breaks MCU Record That Could Hurt Its Success
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 14 Apr 2026 16:15:39 GMT
+
+https://www.cbr.com/avengers-doomsday-reported-budget-could-hurt-success/
+
+Avengers: Doomsday is breaking MCU records ahead of its release, but, as this new report suggests, that's not necessarily a good thing.
+---------
+
+# 7 Dark Anime That Are 10/10, No Notes
+
+Anime, Monster, Another
+
+Tue, 14 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/best-dark-anime-perfect-no-flaws/
+
+Anime is full of dark and disturbing series, but it's rare to find challenging, mature anime that stick the landing without compromise.
+---------
+
+# ‘Train to Busan’ Meets ‘The Exorcist’ in New Horror Movie Out Next Month [Exclusive]
+
+Movie News, William H. Macy, Katie Cassidy, Horror, Thriller
+
+Tue, 14 Apr 2026 17:00:17 GMT
+
+https://collider.com/new-horror-movie-speed-demon-first-image-release-date-katie-cassidy-william-h-macy/
+
+Get an exclusive first look at this new Train to Busan meets The Exorcist horror thriller, Speed Demon, starring Katie Cassidy and William H. Macy.
+---------
+
+# Apple TV’s ‘Big Little Lies’ Replacement Goes Full Throttle Into the Mystery in a New Sneak Peek [Exclusive]
+
+Exclusives, Imperfect Women, Kate Mara, Elisabeth Moss, Big Little Lies
+
+Tue, 14 Apr 2026 17:00:17 GMT
+
+https://collider.com/apple-tv-big-little-lies-replacement-imperfect-women-sneak-peek-episode-6/
+
+Kate Mara and Elisabeth Moss sit down for a seriously tense discussion in a new look at Imperfect Women’s upcoming episode. Watch it here.
+---------
+
+# 10 Most Perfect Movies of the Last 75 Years, Ranked
+
+Movie, The Lord of the Rings: The Return of the King, Lawrence of Arabia, Pan's Labyrinth, Seven Samurai
+
+Tue, 14 Apr 2026 16:45:17 GMT
+
+https://collider.com/perfect-movies-last-75-years-ranked/
+
+Some of the most perfect movies of the last 75 years include classics like Seven Samurai, Lawrence of Arabia, and The Empire Strikes Back.
+---------
+
+# Guy Ritchie's Hit Crime Thriller Is Officially Coming Back for Season 2
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Sherlock Holmes
+
+Tue, 14 Apr 2026 16:14:23 GMT
+
+https://collider.com/prime-video-guy-ritchie-crime-thriller-young-sherlock-season-2/
+
+The fate of Guy Ritchie's hit new crime thriller has been decided by Prime Video. Read on for more!
+---------
+
+# Forget 'Reacher': 'The Terminal List' Could Beat Season 4 to the Punch
+
+Features, Reacher, The Terminal List
+
+Tue, 14 Apr 2026 17:00:21 GMT
+
+https://movieweb.com/the-terminal-list-dark-wolf-season-2-exciting/
+
+'The Terminal List' is another popular Amazon Prime Video action thriller franchise that is great for fans of 'Reacher.'
+---------
+
+# 'Insidious: Out of the Further' Trailer Debuts New Horror Sequel
+
+Movie News, Insidious, Insidious: Out of the Further, Horror
+
+Tue, 14 Apr 2026 16:49:27 GMT
+
+https://movieweb.com/insidious-out-of-the-further-trailer/
+
+The 'Insidious' horror franchise is back with a new sequel that delivers a terrifying twist on the story audiences have come to know.
+---------
+
+# 'Paddington 4' and Animated Spin-Off in the Works
+
+Movie News, Paddington, Paddington 2, Paddington in Peru
+
+Tue, 14 Apr 2026 16:46:51 GMT
+
+https://movieweb.com/paddington-4-confirmed-animated-spin-off/
+
+'Paddington 4' is officially in the works, alongside a separate animated spin-off, setting the beloved bear up for more grand adventures.
+---------
+
+# Guy Ritchie's 'Young Sherlock' Renewed for Season 2 by Prime Video
+
+TV News, Young Sherlock
+
+Tue, 14 Apr 2026 16:13:10 GMT
+
+https://movieweb.com/young-sherlock-season-2-renewal/
+
+Prime Video has secured the future of 'Young Sherlock.'
+---------
+
+# Luke Skywalker Is Gay, Confirms Mark Hamill
+
+Movie News, Star Wars, luke skywalker, Mark Hamill
+
+Tue, 14 Apr 2026 16:12:51 GMT
+
+https://movieweb.com/luke-skywalker-gay-mark-hamill-confirms/
+
+Mark Hamill is fine with fans getting out of 'Star Wars' whatever feels right to them.
+---------
+
 # Absolute Batman Debuts Matching Costumes for New All-Robin Team
 
 DC Comics, Robin, Batman
