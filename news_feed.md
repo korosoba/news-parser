@@ -1,3 +1,278 @@
+# Adria Arjona Suits Up As Wonder Woman In New DC Art Following Man Of Tomorrow Casting
+
+Superheroes, Wonder Woman, Man of Tomorrow, DC Universe
+
+Tue, 14 Apr 2026 20:26:16 GMT
+
+https://screenrant.com/adria-arjona-wonder-woman-man-of-tomorrow-casting-dc-art/
+
+Adria Arjona has been cast in James Gunn's Man of Tomorrow, and the actress now suits up as Wonder Woman in exciting DC art, looking pitch-perfect.
+---------
+
+# Forget Black Flag Resynced, A New Pirate Game Is Available Now (& Has Co-Op)
+
+Gaming, Assassin's Creed 4: Black Flag, Assassin's Creed, Indie Games, PC
+
+Tue, 14 Apr 2026 20:14:23 GMT
+
+https://screenrant.com/windrose-early-access-release-black-flag-remake/
+
+A remake of Assassin's Creed 4: Black Flag is officially on the way, but another very promising pirate game has just launched to fill the gap.
+---------
+
+# Netflix's 3-Hour Psychological Thriller With Near-Perfect Rotten Tomatoes Score Is One Of Its Best To Binge
+
+TV, Baby Reindeer, Masked Recs
+
+Tue, 14 Apr 2026 20:02:19 GMT
+
+https://screenrant.com/baby-reindeer-netflix-miniseries-psychological-thriller-binge/
+
+Discover the unexpected choice that propels Netflix's 10/10 masterpiece to become a binge-worthy psychological thriller unlike any other show.
+---------
+
+# Steam Adds New 10/10 Free Game You Can Beat In One Sitting
+
+Gaming, Steam, Indie Games
+
+Tue, 14 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/steam-free-10-rated-short-game-april-2026/
+
+Steam has a game that you can pick up for free now, and so far, it has positive reviews, and can be finished in very short order.
+---------
+
+# Emily Henry's Beach Read Movie Casts Gus Everett & Readers Have Some Feelings About It
+
+Movies, Beach Read
+
+Tue, 14 Apr 2026 19:55:41 GMT
+
+https://screenrant.com/beach-read-emily-henry-movie-patrick-schwarzenegger-cast/
+
+Emily Henry is getting yet another adaptation, but not everyone is happy about Beach Read's newest casting announcement as Gus Everett debates begin.
+---------
+
+# Netflix's Spy Thriller With Near-Perfect Audience Score On Rotten Tomatoes Has One Of Its Best Casts
+
+Movies, Masked Recs
+
+Tue, 14 Apr 2026 19:55:19 GMT
+
+https://screenrant.com/netflix-the-gray-man-spy-thriller-movie-cast-best/
+
+This Netflix spy thriller became one of the streamer's most-watched releases, and it is easy to see why, as it boasts a star-studded cast.
+---------
+
+# Apple TV's New Movie Based On Popular 76-Year-Old Comics Strip Gets First Images
+
+Movies, Peanuts, Apple TV
+
+Tue, 14 Apr 2026 19:41:33 GMT
+
+https://screenrant.com/snoopy-unleashed-movie-peanuts-apple-tv-image-release/
+
+A long-running and beloved animated franchise, which got its start as a comic strip in the 1950s, is unveiling its next film with a first-look image.
+---------
+
+# A24's Supernatural Horror Movie Is Now Available To Watch At Home After $20M Box Office Run
+
+Movies, Masked Recs
+
+Tue, 14 Apr 2026 19:33:15 GMT
+
+https://screenrant.com/a24-undertone-movie-available-home-digital-streaming/
+
+After grossing $20 million at the box office, an inventive new supernatural horror movie from A24 is now available to watch digitally at home.
+---------
+
+# Taylor Sheridan’s Hit New Star-Studded Western Series Officially Returning For Season 3
+
+TV, The Madison
+
+Tue, 14 Apr 2026 19:30:20 GMT
+
+https://screenrant.com/the-madison-season-3-renewal-taylor-sheridan/
+
+Taylor Sheridan's heartbreaking, star-studded Western series isn't going anywhere, and has been renewed for a third season on Paramount.
+---------
+
+# 5 Confusing Goku Fights That Make Absolutely Zero Sense
+
+Anime, Dragon Ball, Goku
+
+Tue, 14 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/dragon-ball-goku-fights-make-no-sense/
+
+Dragon Ball's writing is usually great, but a few Goku fights eventually slipped through the cracks that just don't make any sense when picked apart.
+---------
+
+# Sisu Rises Again on Netflix After Sequel's Success
+
+Movies, Sisu
+
+Tue, 14 Apr 2026 20:08:18 GMT
+
+https://www.cbr.com/sisu-rises-netflix-streaming-april-2026/
+
+The brutal, action-packed World War II movie is still finding new fans on Netflix.
+---------
+
+# Patrick Dempsey's Memory of a Killer Rises in Streaming After Renewal
+
+TV, Memory of a Killer, Crime, Hulu
+
+Tue, 14 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/patrick-dempsey-memory-of-a-killer-crime-hulu-success-april-2026/
+
+Patrick Dempsey's crime thriller Memory of a Killer climbs streaming charts on Hulu and HBO Max after securing a Season 2 renewal.
+---------
+
+# Buffy The Vampire Slayer Sequel Confirmed To Return, With A Twist
+
+Comics, Buffy The Vampire Slayer
+
+Tue, 14 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-dynamite-entertainment-comic-sequel-confirmed/
+
+Buffy the Vampire Slayer is about to make a comeback, and one critically-acclaimed creator is the one masterminding the return of Sunnydale.
+---------
+
+# 7 Best Open-World Games Stuck On Older Systems
+
+Games, open world
+
+Tue, 14 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/greatest-open-world-games-stuck-on-older-systems/
+
+Open-world games like Grand Theft Auto: Vice City Stories and Saints Row are stuck on decades-old consoles.
+---------
+
+# Pale Blue Eyes is a Better Christian Bale Movie Than The Bride!
+
+Movies, The Pale Blue Eye, The Bride!
+
+Tue, 14 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/the-bride-christian-bale-pale-blue-eyes/
+
+When it comes to Christian Bale going goth, this Netflix thriller has The Bride! beat. You should watch it after (or instead).
+---------
+
+# Paramount+ Renews The Madison for Season 3 After Strong Debut
+
+TV, The Madison, Paramount Plus, Western
+
+Tue, 14 Apr 2026 19:41:34 GMT
+
+https://www.cbr.com/the-madison-season-3-paramount-renewed/
+
+Paramount+ confirms the renewal of The Madison for a third season, following the show's successful first season. Season 2 has been filmed.
+---------
+
+# Frank Grillo and Jason Statham's Homefront is an Underrated Action-Thriller
+
+Movies, Homefront
+
+Tue, 14 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/homefront-frank-grillo-jason-statham-underrated-action-thriller/
+
+Homefront combines Jason Statham’s brutal action with a gripping, emotional story of family, survival, and high-stakes revenge.
+---------
+
+# Lee Cronin, James Wan & Jason Blum on The Mummy’s Dark New Direction
+
+Movies, Lee Cronin's The Mummy
+
+Tue, 14 Apr 2026 19:26:33 GMT
+
+https://www.cbr.com/video/lee-cronin-james-wan-jason-blum-on-the-mummy-s-dark-new-direction/
+
+This isn’t the Mummy you remember. In this interview, the team behind Lee Cronin’s The Mummy reveals how the film blends classic mummy movie secrets with a darker, more psychological edge. From unexpected family drama to brutal horror elements, they explain why this version leans fully into fear. Plus, Cronin dives into the film’s unique cinematography techniques and the meaning behind that bold title choice.
+---------
+
+# 5 Lord of the Rings Characters Who Made Sauron Nearly Unstoppable
+
+Movie, The Lord of the Rings, Fantasy, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Return of the King
+
+Tue, 14 Apr 2026 20:06:12 GMT
+
+https://collider.com/lord-of-the-rings-sauron-most-powerful-allies/
+
+From his master, Morgoth, to his various servants across Middle-earth, these are the Dark Lord Sauron's most powerful allies in The Lord of the Rings.
+---------
+
+# 7 Mystery Shows That Are Perfect From Start to Finish
+
+TV, Mystery, Sherlock, Prime Suspect, Poirot
+
+Tue, 14 Apr 2026 19:44:13 GMT
+
+https://collider.com/mystery-shows-perfect-start-to-finish/
+
+Vera, Prime Suspect, Line of Duty, Life on Mars, Poirot, Sherlock, and more make up our list of mystery shows that are perfect from start to finish.
+---------
+
+# Paramount+ Decides Fate of Taylor Sheridan's New Western Series 1 Month After Finale
+
+TV News, Taylor Sheridan, The Madison, Kurt Russell, Michelle Pfeiffer
+
+Tue, 14 Apr 2026 19:30:12 GMT
+
+https://collider.com/the-madison-season-3-renewed-paramount-plus-taylor-sheridan/
+
+Paramount+ announces a rare early Season 3 renewal for Taylor Sheridan's drama series The Madison, following its successful first season.
+---------
+
+# Michelle Pfeiffer Is Not Holding Back in Sneak Peek for Apple TV's Next Massive Hit [Exclusive]
+
+TV News, Margo's Got Money Troubles, Elle Fanning, Michelle Pfeiffer, AppleTV
+
+Tue, 14 Apr 2026 19:30:12 GMT
+
+https://collider.com/margos-got-money-troubles-sneak-peek-michelle-pfeiffer-elle-fanning-apple-tv/
+
+Watch a tense new sneak peek of Elle Fanning and Michelle Pfeiffer in Margo's Got Money Troubles before the series premieres on Apple TV tomorrow!
+---------
+
+# Only 3 Crime Movies Are Better Than 'The Godfather'
+
+Movie, The Godfather, City of God, High And Low, The Godfather Part II
+
+Tue, 14 Apr 2026 19:23:12 GMT
+
+https://collider.com/crime-movies-better-than-the-godfather/
+
+The Godfather is considered the gold standard for crime cinema, but brilliant movies like City of God and The Godfather Part II arguably surpass it.
+---------
+
+# The Star Trek Series That Flopped 21 Years Ago Is Now One of Streaming's Best-Kept Secrets
+
+TV Features, Star Trek: Enterprise, Scott Bakula, Jolene Blalock, Star Trek
+
+Tue, 14 Apr 2026 19:21:12 GMT
+
+https://collider.com/star-trek-enterprise-apple-tv-store-charts/
+
+Star Trek: Enterprise, once criticized for its unconventional approach, has gained a new appreciation for its storytelling and character development.
+---------
+
+# 'Train to Busan' Director Reinvents Zombies in First 'Colony' Horror Trailer
+
+Movie News, Train to Busan, Horror, International
+
+Tue, 14 Apr 2026 19:06:27 GMT
+
+https://movieweb.com/colony-horror-trailer/
+
+The 'Train to Busan' director is reinventing zombies again after his 95% RT Fresh-rated 2016 hit with the first trailer for the horror film 'Colony'.
+---------
+
 # Disney Lorcana: Attack Of The Vine! – Release Date, Confirmed Cards, & Illumineer’s Trove Details
 
 Gaming, Disney Lorcana
