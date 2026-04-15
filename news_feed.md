@@ -1,3 +1,300 @@
+# LEGO Star Wars N-1 Starfighter UCS Set Revealed: Price, Pieces & Release Date
+
+TV, LEGO, The Mandalorian
+
+Wed, 15 Apr 2026 13:01:19 GMT
+
+https://screenrant.com/lego-mandalorian-n1-starfighter-ucs-set-75442/
+
+The LEGO Mandalorian N-1 Starfighter UCS set (75442) includes 1,800+ pieces, Grogu, display options, plus May the 4th bonus gifts.
+---------
+
+# HBO's Girls Changed The Game Without A Single Bad Episode In 6 Years
+
+Classic TV, Masked Recs
+
+Wed, 15 Apr 2026 13:01:19 GMT
+
+https://screenrant.com/hbo-girls-tv-show-no-bad-episodes/
+
+Lena Dunham's comedy drama for HBO, Girls, is a six-season tour through the lives of friends maturing in NYC, and there's not one bad episode.
+---------
+
+# Xbox Gamers Surprised With Free Xbox Game Pass
+
+Gaming, Xbox Game Pass, Xbox Series X/S
+
+Wed, 15 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/xbox-game-pass-free-3-months-microsoft/
+
+Xbox players might be able to grab themselves three free months of Xbox Game Pass if they check the Microsoft Store.
+---------
+
+# A24's Evolution: From Indie Film Pioneer To Hollywood Powerhouse
+
+Movies, A24
+
+Wed, 15 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/a24-studio-history-future-hollywood/
+
+A24 has experienced a rapid ascent from the low-budget arthouse market to mainstream blockbusters, leaving the indie brand in a state of flux.
+---------
+
+# Taylor Sheridan Can Now Fix The Madison's Disappointing Cast Exit Snafu
+
+Streaming TV, The Madison
+
+Wed, 15 Apr 2026 12:27:19 GMT
+
+https://screenrant.com/the-madison-season-2-matthew-fox-paul-exit-fix-season-3-renewal/
+
+Paramount+ allows Taylor Sheridan to properly fix the storytelling issues brought by a main cast member's departure ahead of The Madison season 2.
+---------
+
+# NCIS Is Finally Answering Hetty’s Biggest Mystery After 5 Years
+
+Network TV, NCIS
+
+Wed, 15 Apr 2026 12:02:18 GMT
+
+https://screenrant.com/ncis-season-23-sam-return-hetty-disappearance-answer/
+
+Half a decade since she was last seen, NCIS is finally starting to answer the lingering mystery about where Hetty Lange is and what she is doing.
+---------
+
+# Tomodachi Life: Living The Dream Review - Worth The Wait
+
+Gaming, Tomodachi Life: Living the Dream
+
+Wed, 15 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/tomodachi-life-living-the-dream-review/
+
+Discover the charming world of Tomodachi Life: Living the Dream, a relaxing life simulation game. Read our review to find out if it's worth the wait.
+---------
+
+# Ryan Gosling's Iconic 'Drive' Role Inspired By 1978's 'The Driver'
+
+Movies, Ryan Gosling, Drive, The Driver, Recommendation
+
+Wed, 15 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/ryan-gosling-most-iconic-movie-role-inspiration-driver/
+
+A 1978 minimalist action movie inspired Ryan Gosling's most famous movie character, and fans of the actor must check out the older classic.
+---------
+
+# Disney Plus' Newest K-Drama Is A Must-Watch for Solo Leveling Fans
+
+Anime, Solo Leveling, Disney+, Perfect Crown
+
+Wed, 15 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/disney-new-k-drama-perfect-crown-solo-leveling/
+
+Get a sneak peek at what fans can expect from Byeon Woo-seok's performance in Solo Leveling by watching his newest Disney+ series!
+---------
+
+# Margo's Got Money Troubles Cast & Character Guide: Who Stars In Elle Fanning's Apple TV Series
+
+Streaming TV, Margo's Got Money Troubles
+
+Wed, 15 Apr 2026 12:00:21 GMT
+
+https://screenrant.com/margos-got-money-cast-characters/
+
+Based on the bestselling novel, Apple TV's Margo's Got Money Troubles is an uproarious, heartfelt miniseries with a stacked cast led by Elle Fanning.
+---------
+
+# Emma Stone’s Bold 84% RT Sci-Fi Thriller Finally Lands on Netflix in 2 Weeks
+
+Movies, Bugonia
+
+Wed, 15 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/emma-stone-bugonia-netflix-release-april-2026/
+
+Netflix subscribers will finally be able to watch Emma Stone's must-see sci-fi thriller that's proven to be a hit with critics and audiences.
+---------
+
+# Terminator: Dark Fate Could've Saved the Franchise, But Instead, it Killed It
+
+Movies, Terminator, Terminator: Dark Fate
+
+Wed, 15 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/terminator-dark-fate-save-franchise-but-killed-it/
+
+Terminator: Dark Fate is the most recent film in the Terminator franchise, and while it's not bad, it wasn't enough to save it.
+---------
+
+# M. Night Shyamalan's Wayward Pines Deserves a Remake
+
+TV, Wayward Pines, Sci-Fi, Dark Matter
+
+Wed, 15 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/m-night-shyamalan-wayward-pines-needs-remake/
+
+With the success of Apple TV+'s Dark Matter, this underrated sci-fi story needs a book-accurate remake as soon as possible.
+---------
+
+# Absolute Batman #20 Unmasks The Robins, With A Twist
+
+Comics, Absolute Batman
+
+Wed, 15 Apr 2026 12:01:12 GMT
+
+https://www.cbr.com/absolute-batman-20-variant-cover-reveals-robins/
+
+Take a closer look at the Absolute Robins.
+---------
+
+# Zorro Officially Returns in Swashbuckling First Look at the Iconic Western Hero's New Series [Exclusive]
+
+TV News, Zorro, Jean Dujardin, Adventure, Action
+
+Wed, 15 Apr 2026 13:00:13 GMT
+
+https://collider.com/new-zorro-series-sneak-peek-jean-dujardin/
+
+Discover the latest adventures of the legendary masked hero Zorro, portrayed by Jean Dujardin, in a new French series set to premiere this Summer.
+---------
+
+# HBO's Near-Perfect 10-Part Sitcom Is Quietly Becoming the Perfect 'Shrinking' Replacement
+
+TV Features, Rooster, Shrinking, HBO, Streaming
+
+Wed, 15 Apr 2026 12:24:11 GMT
+
+https://collider.com/rooster-hbo-sitcom-near-perfect-series/
+
+Rooster on HBO blends humor and heart into a must-watch comedy, offering the perfect follow-up for fans of Shrinking.
+---------
+
+# 8 Box Office Flops That Marked the End of an Era
+
+Movie, Heaven's Gate, Cleopatra, Disaster Movie, One From the Heart
+
+Wed, 15 Apr 2026 12:20:13 GMT
+
+https://collider.com/box-office-flops-end-of-an-era/
+
+Some movies performed poorly enough to bring about the end of certain genres or eras, as happened with the likes of Heaven's Gate and Steel.
+---------
+
+# 13 Years Later, Robert De Niro’s Weakest Crime Thriller Is Being Rewritten as a Streaming Hit
+
+Movie News, The Family, Robert De Niro, Michelle Pfeiffer, Dianna Agron
+
+Wed, 15 Apr 2026 12:00:14 GMT
+
+https://collider.com/michelle-pfeiffer-robert-de-niro-the-family-godfather-meets-schitts-creek-crime-thriller-streaming-success-hbo-max-april-2026/
+
+The Godfather meets Schitt's Creek in Michelle Pfeiffer's forgotten crime-thriller The Family, which is staging a streaming comeback.
+---------
+
+# 10 Greatest Dystopian Books of All Time, Ranked
+
+Movie, Books, Nineteen Eighty-Four, A Clockwork Orange, The Handmaid's Tale
+
+Wed, 15 Apr 2026 11:51:12 GMT
+
+https://collider.com/best-dystopian-books-all-time-ranked/
+
+Great novels like Do Androids Dream of Electric Sheep? and Nineteen Eighty-Four represent the pinnacle of dystopian storytelling in literary history.
+---------
+
+# Prime Video's 8-Part Psychological Thriller Is the Best Binge for 'Tell Me Lies' Fans
+
+TV Features, 56 Days, Prime Video, Thriller, Dove Cameron
+
+Wed, 15 Apr 2026 11:49:12 GMT
+
+https://collider.com/prime-video-56-days-psychological-thriller-tell-me-lies/
+
+The enthralling mystery of 56 Days is a gripping eight-part thriller that follows toxic relationships, and it's perfect for Tell Me Lies fans.
+---------
+
+# 10 Perfect '90s Shows That No One Remembers Today
+
+TV, 90s, 3rd Rock From the sun, Northern Exposure, Wings
+
+Wed, 15 Apr 2026 11:41:12 GMT
+
+https://collider.com/90s-tv-shows-perfect-no-one-remembers/
+
+NBC's 3rd Rock From the Sun, CBS' Northern Exposure, and ABC's Dharma & Greg are some of the perfect '90s shows that are forgotten by audiences.
+---------
+
+# 5 Years Before He Was Harry Potter's Nightmare, Ralph Fiennes Quietly Played the Ultimate Good Guy
+
+Movie Features, Ralph Fiennes, Harry Potter, The Miracle Maker, Jesus
+
+Wed, 15 Apr 2026 11:36:12 GMT
+
+https://collider.com/harry-potter-voldemort-ralph-fiennes-jesus-the-miracle-maker/
+
+Before Ralph Fiennes was Harry Potter's biggest foe, he played Jesus in a forgotten 1999 movie, The Miracle Maker.
+---------
+
+# 'Project Hail Mary's Theatrical Return Follows a Christopher Nolan Trend
+
+Features, Project Hail Mary
+
+Wed, 15 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/project-hail-mary-imax-theatrical-return/
+
+'Project Hail Mary,' the sci-fi movie starring Ryan Gosling, is following a trend set by Christopher Nolan's 'Interstellar.'
+---------
+
+# Jason Momoa Calls Lobo Role "A Dream Come True" as Supergirl Clip Released
+
+Movie News, Supergirl, Jason Momoa
+
+Wed, 15 Apr 2026 12:42:03 GMT
+
+https://movieweb.com/jason-momoa-lobo-supergirl-clip-released/
+
+Momoa made his remarks from CinemaCon, where Warner Bros. debuted an extended clip from the movie.
+---------
+
+# Gerard Butler Vigilante Action Thriller 'Law Abiding Citizen' Secures New Free Streaming Home Next Month
+
+Movie News, Law Abiding Citizen, Coming/Leaving Streaming, Gerard Butler, Action
+
+Wed, 15 Apr 2026 12:00:19 GMT
+
+https://movieweb.com/law-abiding-citizen-gerard-butler-action-streaming-tubi-may-2026/
+
+Butler was at his very best in this 2009 action thriller, which also stars Jamie Foxx.
+---------
+
+# 'Jason Statham Stole My Bike' Could Fix the Actor's Worst Career Trend
+
+Features, Jason Statham
+
+Wed, 15 Apr 2026 12:00:19 GMT
+
+https://movieweb.com/jason-statham-stole-my-bike-fix-career/
+
+Jason Statham is set to play a fictionalized version of himself in the action-comedy 'Jason Statham Stole My Bike,' directed by David Leitch.
+---------
+
+# 'The Man From Nowhere' Action Thriller Remake in the Works With 'The Raid' Star
+
+Movie News, John Wick, The Man from Nowhere, Action, Thriller
+
+Wed, 15 Apr 2026 11:43:22 GMT
+
+https://movieweb.com/man-from-nowhere-remake-action-thriller/
+
+The 100% Rotten Tomatoes rated action movie that inspired 'John Wick' is now getting a remake from 'The Furious' director and actor Joe Taslim.
+---------
+
 # The Witcher 3: Let There Be Light Will Keep You Busy Till The Witcher 4
 
 Gaming, The Witcher 3: Wild Hunt
