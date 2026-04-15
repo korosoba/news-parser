@@ -1,3 +1,14 @@
+# Tom Cruise Is Unrecognizable in 'Digger' CinemaCon Footage
+
+Movie News, Tom Cruise, Digger
+
+Wed, 15 Apr 2026 08:59:10 GMT
+
+https://movieweb.com/tom-cruise-unrecognizable-digger-cinemacon-footage/
+
+The Hollywood icon took to the stage alongside director Alejandro G. Iñárritu to introduce the upcoming black comedy.
+---------
+
 # 'Invincible's Action-Packed Penultimate Chapter Raises the Stakes for an Exhilarating Season 4 Finale
 
 TV Reviews, Invincible, Steven Yeun, J.K. Simmons, Prime Video
