@@ -1,3 +1,410 @@
+# Sydney Sweeney's Controversial Season 3 Storyline Could Save Euphoria
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Wed, 15 Apr 2026 17:30:20 GMT
+
+https://screenrant.com/sydney-sweeney-euphoria-season-3-cassie-storyline-save-hbo-show/
+
+Many Euphoria fans are irate over Sydney Sweeney's controversial season 3 storyline, but Cassie Howard might be the key to saving the show.
+---------
+
+# The Upcoming Remake Of A 45-Year-Old Kurt Russell Classic Has An Impossible Recasting Problem
+
+Movies, Escape From New York, Kurt Russell, Op-Ed
+
+Wed, 15 Apr 2026 17:20:20 GMT
+
+https://screenrant.com/escape-new-york-remake-kurt-russell-recasting-challenge-impossible/
+
+A remake of one of Kurt Russell's most beloved cult movies is back in development, and it still faces a near impossible recasting problem.
+---------
+
+# Forget Conquest, Invincible Just Proved Who Its Real Main Villain Is
+
+Streaming TV, Invincible
+
+Wed, 15 Apr 2026 17:15:20 GMT
+
+https://screenrant.com/invincible-thragg-main-villain-replace-conquest/
+
+Conquest's arrival has made a seismic impact in Invincible, but the show has swiftly moved on from him by giving its real villain the spotlight.
+---------
+
+# The Sisterhood Of The Traveling Pants 3 & Potential Book Accuracy Addressed By OG Director 18 Years Later
+
+Movies, The Sisterhood of the Traveling Pants 3, The Sisterhood of the Traveling Pants
+
+Wed, 15 Apr 2026 17:11:59 GMT
+
+https://screenrant.com/sisterhood-traveling-pants-3-update-book-plot-accuracy-ken-kwapis/
+
+EXCLUSIVE: Ken Kwapis directed The Sisterhood of the Traveling Pants in 2005, and he’s now revealing the current status of a potential threequel.
+---------
+
+# The Expanse Creators' Hit Sci-Fi Series Officially Returns & Fans Can Start It For Free
+
+TV, The Expanse
+
+Wed, 15 Apr 2026 17:11:14 GMT
+
+https://screenrant.com/faith-of-beasts-captives-war-free-first-chapter-expanse-creators/
+
+The Expanse creators' hit science fiction series has officially returned, and existing fans can jump in and start it for free right now.
+---------
+
+# The Lower East Side Film Festival Unveils Official Posters & Lineup
+
+Movies, Patrick Wilson, Run Amok
+
+Wed, 15 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/lower-east-side-film-festival-official-posters-line-up/
+
+ScreenRant presents an exclusive first look at the official posters for LESFF, designed by CHAMPIONS, as the festival unveils its full indie lineup.
+---------
+
+# Taylor Sheridan's Hit 13-Part Western Series Officially Sets Major New Viewership Record For CBS
+
+TV, Marshals
+
+Wed, 15 Apr 2026 16:55:38 GMT
+
+https://screenrant.com/marshals-premiere-cbs-viewership-record-top-broadcast-show/
+
+CBS has now confirmed that the premiere of Taylor Sheridan's hit Yellowstone spinoff series has reached another impressive viewership record.
+---------
+
+# Today Is A Great Day For Tom Holland Spider-Man Fans
+
+Superheroes, Spider-Man, Spider-Man: No Way Home, Marvel Cinematic Universe
+
+Wed, 15 Apr 2026 16:45:20 GMT
+
+https://screenrant.com/spider-man-no-way-home-disney-plus-release-date/
+
+MCU fans waiting for Tom Holland's Spider-Man: Brand New Day just received the perfect gift on Disney+, as a must-watch movie arrived on the streamer.
+---------
+
+# Wonder Woman's Biggest Resurrection of All Time Just Blew Fans Away
+
+Comics, Wonder Woman
+
+Wed, 15 Apr 2026 16:32:41 GMT
+
+https://screenrant.com/wonder-woman-steve-trevor-officially-returns/
+
+DC seems to be ready to make amends for killing off an iconic character, as the publisher officially brings back this legendary hero.
+---------
+
+# Captain America Unveils His Own X-Men Team
+
+Marvel Comics, Captain America, X-Men, Marvel
+
+Wed, 15 Apr 2026 16:30:20 GMT
+
+https://screenrant.com/captain-america-x-men-team/
+
+Marvel gives Steve Rogers a new superhero team as Captain America travels back in time to redeem himself for the negative side effects of his legacy.
+---------
+
+# 10 Characters Fans Hope to See in Star Wars: The Mandalorian and Grogu,
+
+Movies, Star Wars, The Mandalorian and Grogu, Sci-Fi
+
+Wed, 15 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/star-wars-characters-the-mandalorian-and-grogu-list-ranked/
+
+The Mandalorian and Grogu officially return to the big screen next month--here are ten iconic Star Wars characters who should join them.
+---------
+
+# 8 Best Characters in HBO’s The Pitt That Steal the Show
+
+TV, The Pitt, HBO Max
+
+Wed, 15 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/best-the-pitt-characters-not-dr-robby-list/
+
+The Pitt is Dr. Robby's series but the ensemble steals the spotlight.
+---------
+
+# This Forgotten Steam RPG Is One of the Best Games of the Last 5 Years
+
+Games, Steam, Role Playing Game
+
+Wed, 15 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/forgotten-steam-rpg-dread-delusion/
+
+Steam is filled to the brim with games that few will discuss, including this amazing 2024 RPG.
+---------
+
+# Shifting Gears Season 3's Fate Revealed in New ABC Report
+
+TV, Shifting Gears
+
+Wed, 15 Apr 2026 17:24:52 GMT
+
+https://www.cbr.com/shifting-gears-season-3-fate-revealed/
+
+The future of Shifting Gears on ABC gets a major update.
+---------
+
+# Daredevil Star Reveals the 1 Reason Kingpin Won't Be in Avengers: Doomsday
+
+TV, MCU, Marvel, Marvel Comics, Daredevil, Daredevil: Born Again
+
+Wed, 15 Apr 2026 17:23:37 GMT
+
+https://www.cbr.com/daredevil-kingpin-star-admits-why-he-will-not-be-in-avengers-doomsday/
+
+The one reason Marvel won't put Kingpin Wilson Fisk in the multiverse will infuriate fans.
+---------
+
+# CBS’ Marshals Becomes TV’s Most-Watched New Show of 2026
+
+TV, Marshals
+
+Wed, 15 Apr 2026 17:09:11 GMT
+
+https://www.cbr.com/cbs-marshals-most-watched-new-show-2026/
+
+The series turned out to be the most divisive entry in the franchise but it's also the most popular.
+---------
+
+# Alien: Earth Star Joins DC Universe After Missing Superman Sequel Role
+
+TV, Creature Commandos, DCU
+
+Wed, 15 Apr 2026 17:01:00 GMT
+
+https://www.cbr.com/creature-commandos-sydney-chandler-dcu-casting-report/
+
+After missing out on Maxima, Alien: Earth star Sydney Chandler is reportedly joining the DC Universe in a different role.
+---------
+
+# Dark Horse Comics Confirms Magneto Archive Book For 2026 Release
+
+CBR Exclusives, X-Men
+
+Wed, 15 Apr 2026 17:00:13 GMT
+
+https://www.cbr.com/dark-horse-comics-marvels-most-villainous-magneto-release-date-confirmed/
+
+Magneto was right.
+---------
+
+# After 39 Years, It's Officially the End of an Era for Disney
+
+Movies, Disney
+
+Wed, 15 Apr 2026 16:47:58 GMT
+
+https://www.cbr.com/disney-layoffs-home-entertainment-division/
+
+It's the end of an era at the House of Mouse.
+---------
+
+# DC Fans Are Worried About the Batman 2 After Warner Bros. CinemaCon Panel
+
+Movies, DCU, DC Comics, Batman, The Batman – Part II, The Batman Part II, Clayface
+
+Wed, 15 Apr 2026 16:31:37 GMT
+
+https://www.cbr.com/dc-concerns-batman-2-no-update-from-cinemacon-warner-bros/
+
+The fact Warner Bros. refused to provide any update on The Batman Part II has fans angry and worried.
+---------
+
+# 'Thrash' Review: Netflix's New Shark-Attack Thriller Is a Frenzied Good Time
+
+Movie Reviews, Thrash, Netflix, Phoebe Dynevor, Tommy Wirkola
+
+Wed, 15 Apr 2026 17:29:58 GMT
+
+https://collider.com/thrash-review-shark-attack-movie-netflix/
+
+Netflix takes a chomp out of the killer-shark subgenre with Thrash, an excellent new thriller with teeth.
+---------
+
+# Taylor Sheridan’s New 'Yellowstone' Spin-Off Is Officially the Most-Watched Series on TV
+
+TV News, Marshals, Taylor Sheridan, Paramount Plus, Luke Grimes
+
+Wed, 15 Apr 2026 17:28:35 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-cbs-most-watched-new-series/
+
+Taylor Sheridan's divisive Yellowstone spin-off, Marshals, is officially CBS' biggest new series of 2026. Read on for more.
+---------
+
+# 10 Greatest Blockbuster Movies of the Last 50 Years, Ranked
+
+Movie, Blockbuster, Titanic, Jaws, The Lord of the Rings
+
+Wed, 15 Apr 2026 16:34:14 GMT
+
+https://collider.com/best-blockbuster-movies-last-50-years-ranked/
+
+Jaws, Titanic, and Terminator 2: Judgment Day are all among the very best blockbuster movies of the last 50 years.
+---------
+
+# Ridley Scott's 3-Part Horror Series Gets Its Most Terrifying Trailer Yet Before May Release
+
+TV News, Ridley Scott, Horror, AMC, The Terror
+
+Wed, 15 Apr 2026 16:00:39 GMT
+
+https://collider.com/the-terror-devil-in-silver-trailer-amc-shudder-may-2026/
+
+AMC+ and Shudder have revealed the trailer for The Terror: Devil in Silver, starring Dan Stevens, ahead of its May 7 premiere.
+---------
+
+# How Janelle James Became One of TV’s Most Impressive Breakout Stars
+
+TV, Janelle James, Abbott Elementary, Sitcom, ABC
+
+Wed, 15 Apr 2026 16:00:39 GMT
+
+https://collider.com/janelle-james-abbott-elementary-season-5-interview/
+
+Janelle James gets candid on Abbott Elementary, Ava Coleman’s evolution, stand-up, and why success now means something deeper than fame.
+---------
+
+# Nicola Coughlan’s Hidden Gem Series Returns With a Major Upgrade in New Sneak Peek [Exclusive]
+
+TV News, Big Mood, Tubi, Nicola Coughlan, Rupert Everett
+
+Wed, 15 Apr 2026 16:00:39 GMT
+
+https://collider.com/big-mood-season-2-sneak-peek-nicola-coughlan-rupert-everett-tubi/
+
+A new sneak peek from Big Mood Season 2 sees Nicola Coughlan come face-to-face with a fabulously dressed Rupert Everett in search of a favor.
+---------
+
+# 'The Boys' Season 5 Episode 3 Recap: Prime Video's Superhero Show Delivers One of Its Most Brutal Cliffhangers
+
+TV Reviews, The Boys, Prime Video, Karl Urban, Eric Kripke
+
+Wed, 15 Apr 2026 16:00:21 GMT
+
+https://collider.com/the-boys-season-5-episode-3-recap-prime-video/
+
+Episode 3 of The Boys' final season does run into some predictable storytelling, but one brutal cliffhanger saves it.
+---------
+
+# Sam Hargrave Set for New 'Mr. & Mrs. Smith'-Style Action Thriller 'It Had To Be You'
+
+Movie News, Sam Hargrave, Extraction, Mr. & Mrs. Smith
+
+Wed, 15 Apr 2026 17:30:18 GMT
+
+https://movieweb.com/sam-hargrave-it-had-to-be-you/
+
+From 'Extraction' director comes Sony's 'It Had To Be You,' which follows two rival assassins whose deadly mission gets complicated by romance.
+---------
+
+# 'Stranger Things' Spin-Off Showrunner Explains Connection to Official Canon [Exclusive]
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Wed, 15 Apr 2026 17:27:17 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-retcon-explained-showrunner/
+
+Eric Robles sets the record straight on 'Stranger Things: Tales from '85' connects to the live-action series.
+---------
+
+# 'The Boys' Season 5, Episode 3 Review and Recap: You Can't Beat the Machine
+
+TV Reviews, The Boys
+
+Wed, 15 Apr 2026 17:05:31 GMT
+
+https://movieweb.com/the-boys-season-5-episode-3-review-recap/
+
+Everyone's got issues in 'The Boys' Season 5, Episode 3, but none more so than Homelander. Read our review.
+---------
+
+# 'Dexter: Resurrection' Season 2 Just Spoiled Another Serial Killer Identity
+
+Features, Dexter: Resurrection
+
+Wed, 15 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-dan-stevens-killer/
+
+'Dexter: Resurrection' Season 2 has cast Dan Stevens in the role of a serial killer, and the series also stars Michael C. Hall and Brian Cox.
+---------
+
+# 'Agatha All Along' Stars New Deal with Marvel Studios Opens the Door for 'The Young Avengers'
+
+Movie News, MCU, The Avengers, Agatha All Along
+
+Wed, 15 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/joe-locke-mcu-deal-young-avengers-rumor/
+
+Joe Locke reportedly signed a multi-picture deal with Marvel Studios in 2025, possibly hinting at a big future for actor in the MCU.
+---------
+
+# New 'Street Fighter' Teaser Released Ahead of Official Trailer
+
+Movie News, Street Fighter
+
+Wed, 15 Apr 2026 16:52:25 GMT
+
+https://movieweb.com/new-street-fighter-teaser-trailer/
+
+A new teaser has been released for 'Street Fighter' ahead of the official trailer drop tomorrow on April 16.
+---------
+
+# 'Game of Thrones': Every Character on Arya’s Kill List and Their Deaths
+
+Features, Game Of Thrones
+
+Wed, 15 Apr 2026 16:00:41 GMT
+
+https://movieweb.com/game-of-thrones-arya-kill-list-character-deaths/
+
+Arya Stark's kill list in Game of Thrones may have showcased many names, but how many of those did she actually kill?
+---------
+
+# Stream Guy Ritchie & Jason Statham's Action Thriller 'Wrath of Man' for Free on Tubi in May
+
+Movie News, Wrath of Man, Tubi, Coming/Leaving Streaming, Action, Guy Ritchie
+
+Wed, 15 Apr 2026 16:00:39 GMT
+
+https://movieweb.com/wrath-of-man-guy-ritchie-streaming-free-tubi-may-2026/
+
+Guy Ritchie and Jason Statham's Certified Fresh action crime thriller 'Wrath of Man' will stream for free on Tubi in May 2026.
+---------
+
+# 'Man of Tomorrow's Post-Credit Scene Could Include Adria Arjona's Character
+
+Features, Man of Tomorrow, DCU, James Gunn
+
+Wed, 15 Apr 2026 16:00:39 GMT
+
+https://movieweb.com/man-of-tomorrow-adria-arjona-casting-theory/
+
+With Adria Arjona set to play Maxima in 'Man of Tomorrow', James Gunn could pull a page from the DC Animated Universe and pair her with Lobo.
+---------
+
+# 'The Wizard of the Kremlin': Jude Law Is Vladimir Putin in New Trailer
+
+Movie News, Jude Law, The Wizard of the Kremlin
+
+Wed, 15 Apr 2026 16:00:39 GMT
+
+https://movieweb.com/new-the-wizard-of-the-kremlin-trailer/
+
+'The Wizard of the Kremlin' stars Jude Law as Putin, as well as Paul Dano, Alicia Vikander, Will Keen, Tom Sturridge and Jeffrey Wright.
+---------
+
 # All Spider-Man: Brand New Day LEGO Sets Revealed (Images, Prices, Details)
 
 Movies, Spider-Man: Brand New Day, LEGO
