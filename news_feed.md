@@ -1,3 +1,289 @@
+# Spider-Man's Live-Action Show Is Our Best Shot At Seeing This Classic Hero After The Movies Changed Him Forever
+
+TV, Spider-Noir
+
+Wed, 15 Apr 2026 14:45:19 GMT
+
+https://screenrant.com/spider-mans-live-action-show-is-our-best-shot-at-seeing-this-classic-hero-after-sony-movies-changed-him-forever/
+
+An old ally of Spider-Man's felt as if he had been removed from the table by Sony's movies, but Spider-Noir could give him a proper revival.
+---------
+
+# John Cena’s Coyote Vs. Acme Finally Lands Theatrical Release Date After Infamous WB Cancellation
+
+Movies, Coyote Vs. Acme, Looney Tunes
+
+Wed, 15 Apr 2026 14:43:42 GMT
+
+https://screenrant.com/coyote-vs-acme-movie-theatrical-release-date-august-2026/
+
+John Cena's Coyote vs. Acme is gaining steam as Ketchup Entertainment finally sets a theatrical release date after its infamous WB cancellation.
+---------
+
+# Aziraphale & Crowley Prepare For The Second Coming In Good Omens Finale Trailer
+
+TV, Good Omens
+
+Wed, 15 Apr 2026 14:43:26 GMT
+
+https://screenrant.com/good-omens-season-3-trailer-released/
+
+The trailer for the third and final installment of Prime Video's Good Omens reveals Aziraphale and Crowley dealing with the Second Coming.
+---------
+
+# Ridley Scott’s New Post-Apocalyptic Sci-Fi Adaptation Gets First Official Look With All-Star Cast
+
+Movies, The Dog Stars
+
+Wed, 15 Apr 2026 14:31:29 GMT
+
+https://screenrant.com/ridley-scott-the-dog-stars-movie-first-look/
+
+Iconic director Ridley Scott's upcoming sci-fi adaptation The Dog Stars finally gets a first look reveal of stars Jacob Elordi and Margaret Qualley.
+---------
+
+# Superstore: The Underrated Office Successor That Deserves More Love
+
+Classic TV, The Office, Superstore
+
+Wed, 15 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/superstore-best-the-office-imitator-overlooked/
+
+The Office was followed by a wave of feel-good workplace sitcoms, but one of its best imitators — Superstore — is still sadly overlooked.
+---------
+
+# PlayStation Drops 2 New Free Games You Don’t Need PS Plus For
+
+Gaming, PlayStation 5, PlayStation 4
+
+Wed, 15 Apr 2026 14:21:11 GMT
+
+https://screenrant.com/playstation-free-games-april-2026-no-ps-plus-easy-platinums/
+
+Two new free games are available on PlayStation 5 (and at least one on PS4) now, with easy Platinums for all you achievement hunters out there.
+---------
+
+# Why Whiplash Leaving Netflix Is A Tragedy For Music Movie Fans
+
+Movies, Netflix, Rotten Tomatoes, Whiplash, Music
+
+Wed, 15 Apr 2026 14:14:19 GMT
+
+https://screenrant.com/whiplash-leaving-netflix-april-2026-tragedy/
+
+Whiplash is leaving Netflix on April 30. Don't miss the 100% Rotten Tomatoes thriller that treats technical artistry like a high-stakes blood sport.
+---------
+
+# MGM+'s From Is Officially Ending With Season 5
+
+TV, From
+
+Wed, 15 Apr 2026 14:11:32 GMT
+
+https://screenrant.com/from-season-5-renewal-confirmed-mgm-plus-ending/
+
+Ahead of the sci-fi horror series making its much-awaited return, executive producers Jack Bender and Jeff Pinker confirm when From will end.
+---------
+
+# Netflix's 8-Part Stranger Things Followup Borrows From A Divisive '80s Sci-Fi
+
+TV, Stranger Things, The Boroughs
+
+Wed, 15 Apr 2026 14:00:18 GMT
+
+https://screenrant.com/the-boroughs-cocoon-1980s-sci-fi-copy/
+
+Stranger Things creators the Duffer Brothers have a new sci-fi series on Netflix, and its premise is borrowed from a forgotten cult classic.
+---------
+
+# Marvel And DC Just Permanently Combined Their Lore In An Unbelievable Way
+
+Marvel Comics, Storm, Marvel, DC
+
+Wed, 15 Apr 2026 14:00:11 GMT
+
+https://screenrant.com/marvel-dc-combined-lore-source-wall-storm/
+
+One of Marvel's strongest heroes just discovered what may be the frontier shared by Marvel and DC's multiverses, bringing both franchises together.
+---------
+
+# MGM+ Seals the Fate of From 4 Days Ahead of Return
+
+TV, From
+
+Wed, 15 Apr 2026 14:50:17 GMT
+
+https://www.cbr.com/mgm-plus-from-fate-season-5/
+
+MGM+ revealed what's next for the hit series.
+---------
+
+# DC's New R-Rated Clayface Movie Finally Unveils New Villain in First Footage
+
+Movies, DCU, DC Comics, Batman, The Batman, The Batman Part II, Clayface
+
+Wed, 15 Apr 2026 14:34:02 GMT
+
+https://www.cbr.com/dc-clayface-first-footage/
+
+The first official Clayface trailer was disturbing and hints at the darkest Batman spinoff ever.
+---------
+
+# Warner Bros. Officially Confirms Release Dates for 7 Films: Margot Robbie's Ocean's Prequel, Final Destination 7 & Weapons Prequel
+
+Movies, warner bros, Final Destination
+
+Wed, 15 Apr 2026 14:31:09 GMT
+
+https://www.cbr.com/warner-bros-release-schedule-update-oceans-prequel-gladys/
+
+Warner Bros. reveals during its CinemaCon presentation release dates for seven of the studio's highly-anticipated upcoming films.
+---------
+
+# Looper is a Perfect Sci-Fi Gangster Flick
+
+Movies, Looper
+
+Wed, 15 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/looper-sci-fi-gangster-movie-hidden-twist/
+
+Before Rian Johnson helmed Star Wars, the director made a science fiction gangster epic that might be the filmmaker's best work.
+---------
+
+# 5 Upcoming Miniseries Every TV Buff Must Binge in 2026
+
+TV, Cape Fear, Lucky, The House of the Spirits
+
+Wed, 15 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/must-watch-upcoming-2026-miniseries-list/
+
+Cape Fear, Lucky, and Pride and Prejudice are some upcoming 2026 miniseries that are a must-watch for every TV buff.
+---------
+
+# Say Goodbye to Prime Video's Good Omens as It Unveils Official Trailer
+
+TV, Good Omens
+
+Wed, 15 Apr 2026 14:17:39 GMT
+
+https://www.cbr.com/good-omens-season-3-official-trailer/
+
+After multiple controversies and delay, the fantasy series is nearing its finale.
+---------
+
+# Ridley Scott's New Post-Apocalyptic Sci-Fi The Dog Stars Finally Unveils First Look
+
+Movies, ridley scott, The Dog Stars
+
+Wed, 15 Apr 2026 14:12:10 GMT
+
+https://www.cbr.com/ridley-scott-the-dog-stars-first-look/
+
+The critically acclaimed filmmaker is back behind the camera with a new star-studded sci-fi.
+---------
+
+# 10 Greatest Chinese Anime of the 2020s, Ranked
+
+Anime, Donghua, Lord of Mysteries
+
+Wed, 15 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/best-chinese-anime-since-2020/
+
+The past few years have been a gift to donghua fans around the world thanks to Chinese anime hits like Link Click and Lord of Mysteries.
+---------
+
+# 62 Years Ago, Bob Dylan Wrote a Protest Song That Made an Accused Murderer Furious
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Wed, 15 Apr 2026 14:18:32 GMT
+
+https://collider.com/bob-dylan-1964-the-lonesome-death-of-hattie-carroll/
+
+Bob Dylan's powerful song was inspired by a real-life racially motivated murder case, and the accused's furious reaction to Dylan's artistic interpretation.
+---------
+
+# MGM+'s Mind-Bending Horror Series 'From' Takes a Necessary Step Back in Season 4 | Review
+
+TV Reviews, From, MGM, Harold Perrineau, Catalina Sandino Moreno
+
+Wed, 15 Apr 2026 14:00:12 GMT
+
+https://collider.com/from-season-4-review-mgm-plus/
+
+MGM+'s From Season 4 shifts its pace, diving deeper into character-driven storylines amidst the psychological horror. Read our review.
+---------
+
+# Prime Video's Instant-Classic Fantasy Series Pulls Off One Last Miracle in Epic First Trailer
+
+TV News, Good Omens, Prime Video, David Tennant, Michael Sheen
+
+Wed, 15 Apr 2026 14:00:12 GMT
+
+https://collider.com/prime-video-fantasy-series-good-omens-3-trailer/
+
+Prime Video's fantasy series Good Omens returns for a third and final season with a single super-sized episode. Watch the trailer here.
+---------
+
+# Ridley Scott's 'The Dog Stars' Gets First Look Images Featuring Jacob Elordi & Josh Brolin
+
+Movie News, Ridley Scott, The Dog Stars
+
+Wed, 15 Apr 2026 14:36:27 GMT
+
+https://movieweb.com/the-dog-stars-first-look-images/
+
+Ridley Scott returns to sci-fi with the first look at 'The Dog Stars,' which stars Jacob Elordi, Josh Brolin, and Margaret Qualley.
+---------
+
+# Post-Apocalyptic Sci-Fi Action Thriller 'The 100' Lands Exclusive Free Streaming Home
+
+TV News, The 100, Coming/Leaving Streaming, Sci-Fi, Action
+
+Wed, 15 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/the-100-sci-fi-action-streaming-exclusive-pluto-tv-may-2026/
+
+The adaptation of author Kass Morgan's bestselling novel series has finally landed a new streaming home after it left Netflix late last year.
+---------
+
+# 'Margo's Got Money Troubles' Proves An Exciting Apple TV Trend
+
+Features
+
+Wed, 15 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/margos-got-money-troubles-apple-tv-great/
+
+'Margo's Got Money Troubles' is a new AppleTV comedy/drama starring Elle Fanning and Michelle Pfeiffer, adapted from Rufi Thorpe's novel.
+---------
+
+# 'Angel and the Badman' Trailer Remakes a John Wayne Western Classic
+
+Movie News, Angel and the Badman, Zachary Levi, Western
+
+Wed, 15 Apr 2026 13:18:49 GMT
+
+https://movieweb.com/angel-and-the-badman-trailer/
+
+The Western reimagining stars Zachary Levi,  Neal McDonough, and Academy Award winner Tommy Lee Jones.
+---------
+
+# 'Ocean's 11' Prequel Confirms Bradley Cooper & Margot Robbie at CinemaCon
+
+Movie News, Ocean's Eleven, Margot Robbie, Bradley Cooper, CinemaCon
+
+Wed, 15 Apr 2026 13:12:14 GMT
+
+https://movieweb.com/oceans-prequel-margot-robbie-bradley-cooper-plot-release/
+
+Bradley Cooper will write and direct the 'Ocean's 11' prequel, as well as star opposite Margot Robbie, who has confirmed its release date and plot.
+---------
+
 # LEGO Star Wars N-1 Starfighter UCS Set Revealed: Price, Pieces & Release Date
 
 TV, LEGO, The Mandalorian
