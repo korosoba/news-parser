@@ -1,3 +1,322 @@
+# Dakota Fanning's Best TV Show: Netflix's Psychological Thriller Ripley
+
+TV, Masked Recs
+
+Wed, 15 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/dakota-fanning-netflix-ripley-best-show/
+
+Dakota Fanning now has several acclaimed TV roles to her name, but the best remains her standout performance in the Netflix modern classic.
+---------
+
+# The Mummy’s Dark New Movie Breaking 27-Year Franchise Rating Tradition Detailed By Director & Producer
+
+Movies, Lee Cronin's The Mummy, The Mummy, Horror, James Wan
+
+Wed, 15 Apr 2026 18:49:20 GMT
+
+https://screenrant.com/the-mummy-2026-franchise-rating-tradition-break-lee-cronin-james-wan/
+
+Exclusive: Director Lee Cronin and EP James Wan explain how the dark new Mummy movie's rating breaks the franchise's 27-year tradition.
+---------
+
+# Avatar Artists Furiously Call Out Leakers After Entire Aang Movie Surfaces Online
+
+Movies, The Legend of Aang: The Last Airbender, Avatar: The Last Airbender
+
+Wed, 15 Apr 2026 18:47:15 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-movie-artists-response/
+
+Avatar artists furiously call out leakers after the entire Aang, The Last Airbender movie surfaced online, sparking outrage and online backlash.
+---------
+
+# New Fantastic Four Debut Their Own Doctor Doom, With an Unbelievable Costume Change
+
+Marvel Comics, Fantastic Four
+
+Wed, 15 Apr 2026 18:46:17 GMT
+
+https://screenrant.com/fantastic-four-doctor-doom-new-costume-planet-apes/
+
+In a shocking twist, the Marvel Universe just got two Doctor Dooms all thanks to a crossover with Planet of the Apes.
+---------
+
+# Emily In Paris Creator Teases New Season 6 "Surprise" From Abandoning Its OG Premise
+
+TV, Emily in Paris, Darren Star
+
+Wed, 15 Apr 2026 18:42:26 GMT
+
+https://screenrant.com/emily-in-paris-season-6-monaco-greece-location-story-surprises-darren-star/
+
+EXCLUSIVE: Emily in Paris is heading to Greece and Monaco next, and creator Darren Star is now hinting at another surprising element for the series.
+---------
+
+# Star Trek Would Be Very Different In 2026 If Discovery Stuck To Its Original Plan
+
+TV, Star Trek: Discovery, Star Trek
+
+Wed, 15 Apr 2026 18:34:20 GMT
+
+https://screenrant.com/star-trek-different-discovery-original-plan/
+
+Imagine a Star Trek universe without Strange New Worlds or Starfleet Academy. This could have happened if Discovery stuck to its original story plan.
+---------
+
+# Why There's No One Chicago Tonight (April 15) & When New Episodes Of Fire, PD, & Med Release
+
+Network TV, One Chicago, Chicago Fire, Chicago P.D., Chicago Med, NBC
+
+Wed, 15 Apr 2026 18:32:20 GMT
+
+https://screenrant.com/chicago-fire-pd-med-no-new-episode-april-15-2026-release-date/
+
+The finest law enforcers and first responders in the Windy City are taking a break, as NBC disrupts its regular scheduled programming for One Chicago.
+---------
+
+# Did Daredevil: Born Again Season 2 Just Set Up Another Netflix Return?
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 15 Apr 2026 18:30:21 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-claire-temple-return-tease/
+
+A quick moment in Daredevil: Born Again season 2 just set up another Netflix Marvel character's return, and it is not Krysten Ritter's Jessica Jones.
+---------
+
+# Anime's Biggest Production Company Wants To Change The Industry Forever
+
+Anime
+
+Wed, 15 Apr 2026 18:30:21 GMT
+
+https://screenrant.com/toho-change-anime-industry-forever/
+
+Anime as we know it is about to change.
+---------
+
+# Tom Cruise's 1993 Crime Thriller Feels Like A Mission: Impossible Prequel In The Best Way
+
+Movies, Mission: Impossible, The Firm, Recommendation
+
+Wed, 15 Apr 2026 18:30:21 GMT
+
+https://screenrant.com/tom-cruise-the-firm-movie-mission-impossible-prequel/
+
+With striking similarities in tones and the natures of Tom Cruise's roles in them, this 1993 crime movie feels like a prequel to Mission: Impossible.
+---------
+
+# 8 Details Only Hunger Games Book Fans Will Notice in the Sunrise on the Reaping Trailer
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Wed, 15 Apr 2026 19:01:13 GMT
+
+https://www.cbr.com/hunger-games-book-details-sunrise-on-the-reaping-trailer/
+
+Sunrise on the Reaping's trailer teases plenty of action and emotional turmoil, but only book fans know the meaning of these details.
+---------
+
+# Hulu's Malcolm in the Middle Revival Resurrects a Decades-Old Breaking Bad Connection
+
+TV, Malcolm in the Middle, Breaking Bad, Malcolm in the Middle: Life's Still Unfair
+
+Wed, 15 Apr 2026 19:01:13 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-revival-resurrects-breaking-bad-connection/
+
+Fans have long been making connections to Walter White in Breaking Bad and Hal in Malcolm in the Middle, and the revival of the latter reignites this.
+---------
+
+# Tegan And Sara Singer Officially Reveals Inspiration Behind Her New Wiccan And Speed Story
+
+Comics, Marvel Comics
+
+Wed, 15 Apr 2026 19:00:09 GMT
+
+https://www.cbr.com/tegan-and-sara-quin-marvel-wiccan-speed-interview/
+
+In a CBR exclusive interview with Tegan Quin, the Tegan and Sara singer talks about her upcoming Marvel debut writing about another pair of twins
+---------
+
+# The Boys Showrunner Breaks Down Homelander’s Jesus Moment After Trump AI Post
+
+TV, The Boys
+
+Wed, 15 Apr 2026 18:57:12 GMT
+
+https://www.cbr.com/the-boys-homelander-jesus-moment-donald-trump-ai-post/
+
+Prime Video's hit superhero series is following in The Simpsons' footsteps.
+---------
+
+# Absolute Batman Officially Stars in Open-World Game Coming This May
+
+Games, Batman, lego batman
+
+Wed, 15 Apr 2026 18:45:13 GMT
+
+https://www.cbr.com/absolute-batman-officially-stars-in-open-world-game-coming-this-may/
+
+Absolute Batman is officially making his video game debut this year, and fans have barely a month left to wait before he arrives.
+---------
+
+# Jon Bernthal's HIS & HERS Is 1 of Netflix's Most-Watched Shows Ever
+
+TV, His & Hers
+
+Wed, 15 Apr 2026 18:33:48 GMT
+
+https://www.cbr.com/jon-bernthal-his-and-hers-netflix-success/
+
+Jon Bernthal returned to Netflix with a bang as the star one of the streamer's most-watched series ever.
+---------
+
+# 10  Marvel Heroes Who Had Villanous Pasts
+
+Comics, Marvel
+
+Wed, 15 Apr 2026 18:00:39 GMT
+
+https://www.cbr.com/marvel-heroes-fans-forget-were-once-villains/
+
+Not every hero started out with the goodwill of humanity in mind.
+---------
+
+# William Shatner Fires Back at Star Trek Rumors: “Get a Life”
+
+TV, Star Trek
+
+Wed, 15 Apr 2026 17:55:35 GMT
+
+https://www.cbr.com/william-shatner-star-trek-rumors-get-a-life/
+
+William Shatner channels his infamous SNL sketch to shut down recent Star Trek rumors.
+---------
+
+# That Time I Got Reincarnated as a Slime Season 4 Cancels Upcoming Episode
+
+Anime, That Time I Got Reincarnated as a Slime
+
+Wed, 15 Apr 2026 17:41:32 GMT
+
+https://www.cbr.com/reincarnated-as-a-slime-episode-cancel-may-1/
+
+The highly anticipated Season 4 of That Time I Got Reincarnated as a Slime has confirmed an unexpected episode cancellation.
+---------
+
+# ‘Godzilla Minus Zero’ Is Directly Inspired By Steven Spielberg and The Greatest Sci-Fi Directors Ever [Exclusive]
+
+Exclusives, Godzilla Minus Zero, Godzilla Minus One, Takashi Yamazaki, Godzilla
+
+Wed, 15 Apr 2026 18:16:25 GMT
+
+https://collider.com/godzilla-minus-zero-imax-scenes-vfx-shots-james-cameron-steven-spielberg-inspiration-takashi-yamazaki-interview/
+
+Takashi Yamazaki discusses pushing the boundaries of VFX and IMAX in the sequel, character balance and the emotional journey of the Shikishima family.
+---------
+
+# New Sci-Fi Masterpiece Officially Overtakes Peter Jackson's Lowest-Grossing Middle-Earth Film
+
+Movie News, Project Hail Mary, Sci-Fi, The Hobbit: The Battle of the Five Armies, Box Office
+
+Wed, 15 Apr 2026 18:01:16 GMT
+
+https://collider.com/project-hail-mary-overtakes-the-hobbit-battle-of-the-five-armies-box-office-256-million/
+
+Ryan Gosling's sci-fi hit Project Hail Mary overtakes Peter Jackson's lowest-grossing Middle-earth movie at the box office on its massive global run.
+---------
+
+# 10 Most Perfect Opening Horror Scenes of All Time, Ranked
+
+Movie, Scream, Horror, Halloween, Midsommar
+
+Wed, 15 Apr 2026 17:41:12 GMT
+
+https://collider.com/most-perfect-opening-horror-movie-scenes-ranked/
+
+From all-time horror classics like Jaws to hidden gems like The Empty Man, these 10 scary movie starts are the greatest the genre has ever seen.
+---------
+
+# 7 'Malcolm in the Middle' Questions We Still Have After the Revival
+
+Features, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Wed, 15 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/malcolm-in-the-middle-questions-after-revival/
+
+While 'Malcolm in the Middle's revival reunites us with Malcolm, it also fails to answer these important questions from years prior and recently.
+---------
+
+# Jorma Taccone Reveals Rejected 'MacGruber 2' Pitch & Teases a Broadway Musical [Exclusive]
+
+Exclusives, MacGruber, MacGruber 2, Jorma Taccone
+
+Wed, 15 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/jorma-taccone-rejcted-macgruber-2-musical/
+
+'MacGruber' director Jorma Taccone reveals some unique ideas behind rejected sequels and the future of the character on Broadway.
+---------
+
+# Warner Bros. Shows Off First Seven Minutes of 'Dune: Part Three' at CinemaCon
+
+Movie News, Dune: Part Three
+
+Wed, 15 Apr 2026 18:30:18 GMT
+
+https://movieweb.com/dune-part-three-cinema-con-footage/
+
+The opening scene of 'Dune: Part Three' will feature an epic battle, with the stars and director teasing the epic conclusion for Paul Atreides.
+---------
+
+# MCU Phase 4 in Order Chronologically and by Release Date
+
+Features, MCU
+
+Wed, 15 Apr 2026 18:00:51 GMT
+
+https://movieweb.com/mcu-phase-4-movies-in-order/
+
+Phase 4 of the MCU has had more material than any other phase, with multiple storylines. Here's how to watch in chronological and release order.
+---------
+
+# Warner Bros. Sets Release Dates for 'Weapons' Spin-off, 'Final Destination 7' & More
+
+Movie News, Weapons, Evil Dead, The Curse of La Llorona, Final Destination 7
+
+Wed, 15 Apr 2026 18:00:49 GMT
+
+https://movieweb.com/weapons-gladys-final-destination-release-dates/
+
+The 'Weapons' prequel centered on Aunt Gladys, 'Final Destination 7,' and a new 'Evil Dead' movie are just some of the titles with new release dates.
+---------
+
+# 'The Creator:' 'Rogue One' Director's Original Sci-Fi Action Movie Is a Major Streaming Success on HBO Max
+
+Movie News, The Creator, HBO Max, Hot on Streaming, Sci-Fi, Action
+
+Wed, 15 Apr 2026 18:00:49 GMT
+
+https://movieweb.com/the-creator-underrated-sci-fi-streaming-success-hbo-april-2026/
+
+'Rogue One: A Star Wars Story' director's original sci-fi action war movie 'The Creator' is a worldwide streaming success on HBO Max.
+---------
+
+# How Much Bigger Godzilla Is in 'Godzilla Minus Zero'
+
+Features, Godzilla Minus Zero, Godzilla, Godzilla Minus One
+
+Wed, 15 Apr 2026 18:00:49 GMT
+
+https://movieweb.com/godzilla-bigger-size-minus-zero-teaser/
+
+The teaser trailer for 'Godzilla Minus Zero' reveals that Toho's iteration of Godzilla has more than doubled in size for his return.
+---------
+
 # Sydney Sweeney's Controversial Season 3 Storyline Could Save Euphoria
 
 Streaming TV, Euphoria, Euphoria - Season 3
