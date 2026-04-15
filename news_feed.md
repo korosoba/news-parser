@@ -1,3 +1,14 @@
+# 'Invincible's Action-Packed Penultimate Chapter Raises the Stakes for an Exhilarating Season 4 Finale
+
+TV Reviews, Invincible, Steven Yeun, J.K. Simmons, Prime Video
+
+Wed, 15 Apr 2026 07:00:13 GMT
+
+https://collider.com/invincible-season-4-episode-7-recap-prime-video/
+
+Invincible Season 4 Episode 7 is an exhilarating penultimate hour that perfectly sets up what is sure to be an explosive finale.
+---------
+
 # Xbox Game Pass Gets Stunning Day-One Game You Can't Miss
 
 Gaming, Xbox Game Pass, PC, Indie, Replaced
