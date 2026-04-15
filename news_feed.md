@@ -1,3 +1,146 @@
+# Japan Has Officially Chosen Spring 2026's Best Anime
+
+Anime, Daemons of the Shadow Realm, NIPPON SANGOKU: The Three Nations of the Crimson Sun
+
+Wed, 15 Apr 2026 00:02:45 GMT
+
+https://screenrant.com/best-spring-2026-anime-chosen-daemons-shadow-realm/
+
+Spring 2026 just started, but one anime is currently dominating Japan on both streaming platforms and manga sales.
+---------
+
+# Steam Drops 8 New Free Games For April, Yours Forever
+
+Gaming, Steam, PC
+
+Wed, 15 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/steam-8-free-games-april-2026-keep-forever/
+
+Steam users have a new slate of free games available this April that you can download and keep forever, no strings attached.
+---------
+
+# One Of Guy Ritchie's Best Shows Is A Stealth Prequel To A 7-Part Crime Thriller Series
+
+Streaming TV, Masked Recs, Ray Donovan, MobLand
+
+Tue, 14 Apr 2026 23:38:12 GMT
+
+https://screenrant.com/mobland-guy-ritchie-stealth-prequel-ray-donovan/
+
+Guy Ritchie's name may be synonymous with UK gangster and crime movies and shows, but one of his most recent hits has roots not in London, but LA.
+---------
+
+# 10 Legendary Mangaka With Multiple 10/10 Series
+
+Anime
+
+Tue, 14 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/best-mangakas-multiple-perfect-series/
+
+In an unforgiving industry, these talented creators have proved they're far from one-hit wonders.
+---------
+
+# Netflix’s Hit 8-Part Heist Thriller Returns This Week & It’s One Of The Best New Shows To Binge
+
+Streaming TV, Masked Recs
+
+Tue, 14 Apr 2026 23:18:19 GMT
+
+https://screenrant.com/netflix-crooks-season-2-thriller-series-binge-watch/
+
+Crooks season 2, a gripping 8-part heist thriller, returns on Netflix. With high praise and binge-worthy content, it's one of the best new shows now.
+---------
+
+# Keanu Reeves' Outcome Failed to Capture The Dark Side of Hollywood
+
+Movies, Outcome
+
+Wed, 15 Apr 2026 00:00:13 GMT
+
+https://www.cbr.com/keanu-reeves-outcome-dark-side-of-hollywood/
+
+Keanu Reeves may be one of the most beloved actors working right now, but his new comedy failed to hit the mark.
+---------
+
+# 600 Manga Just Gave Crunchyroll a New Rival
+
+Anime, Manga
+
+Tue, 14 Apr 2026 23:36:41 GMT
+
+https://www.cbr.com/manta-manga-addition-april-2026/
+
+Crunchyroll has some new competition as fans get access to over 600 in-demand titles on a new manga platform.
+---------
+
+# Taylor Sheridan Fans Turn 'The Dark Knight' Star’s 83-Minute Neo-Western Into a Streaming Sensation
+
+Movie News, Aaron Eckhart, Western, Taylor Sheridan, Hulu
+
+Wed, 15 Apr 2026 00:01:13 GMT
+
+https://collider.com/dark-knight-star-aaron-eckhart-neo-western-taylor-sheridan-fans-thieves-highway-streaming-success-april-2026/
+
+Taylor Sheridan fans are turning Aaron Eckhart's neo-Western Thieves Highway into a streaming sensation. Find out more.
+---------
+
+# ‘Jack Ryan’ Star's Action Thriller Continues to Dominate the Global Charts 1 Year After Release
+
+Movie News, Fountain of Youth, John Krasinski, Natalie Portman, Guy Ritchie
+
+Tue, 14 Apr 2026 23:45:13 GMT
+
+https://collider.com/jack-ryan-star-john-krasinski-guy-ritchie-action-thriller-fountain-of-youth-streaming-success-apple-tv-april-2026/
+
+Guy Ritchie's Apple TV adventure movie, Fountain of Youth, starring John Krasinski and Natalie Portman, has found a global audience.
+---------
+
+# This 3-Hour Crime Epic Is Dominating Prime Video’s Global Charts
+
+Movie News, Bollywood, Crime, Western, Prime Video
+
+Tue, 14 Apr 2026 23:30:13 GMT
+
+https://collider.com/prime-video-3-hour-crime-epic-o-romeo-bollywood-shahid-kapoor-streaming-success-april-2026/
+
+A nearly three-hour gangster Western titled O'Romeo is taking Prime Video's global streaming chart by storm. Find out more.
+---------
+
+# 8 Best World War II Horror Movies, Ranked
+
+Movie, Overlord, Godzilla Minus One, The Cremator, The Keep
+
+Tue, 14 Apr 2026 23:15:13 GMT
+
+https://collider.com/best-world-war-ii-horror-movies-ranked/
+
+Horror movies set during World War II include underrated classics like The Cremator and controversial art films like Salò, or the 120 Days of Sodom.
+---------
+
+# 3 Years Later, Anya Taylor-Joy's 92-Minute Fantasy Gem Quietly
+
+Movie News, Anya Taylor-Joy, The Super Mario Bros. Movie, Fantasy, The Super Mario Galaxy Movie
+
+Tue, 14 Apr 2026 23:15:13 GMT
+
+https://collider.com/anya-taylor-joy-super-mario-bros-movie-streaming-success-netflix-april-2026/
+
+Anya Taylor-Joy's The Super Mario Bros. Movie became a streaming hit once again as its sequel continues to level up at the box office.
+---------
+
+# 'House of the Dragon's Season 1 Finale Still Has TV's Best-Ever Chase Scene
+
+Features, House of the Dragon
+
+Wed, 15 Apr 2026 00:00:18 GMT
+
+https://movieweb.com/best-tv-chase-scene-house-of-the-dragon/
+
+TV chase scenes can easily feel superfluous, but 'House of the Dragon' quickly proved itself to be capable of pulling them off.
+---------
+
 # Skyrim Gets Online Multiplayer Mode That Totally Changes The Game
 
 Gaming, The Elder Scrolls V: Skyrim, Triple-A Games
