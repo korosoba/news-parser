@@ -1,3 +1,212 @@
+# The Witcher 3: Let There Be Light Will Keep You Busy Till The Witcher 4
+
+Gaming, The Witcher 3: Wild Hunt
+
+Wed, 15 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/witcher-3-let-there-be-light-fan-expansion/
+
+Discover the captivating Let There Be Light mod for The Witcher 3, offering an expansion-sized experience with new quests, characters, and endings.
+---------
+
+# Buffy And Angel Crossover Comic Unveils A New Official Image
+
+TV, Buffy The Vampire Slayer, Angel
+
+Wed, 15 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/buffy-sequel-angel-crossover-dynamite/
+
+The upcoming Buffy the Vampire Slayer revival officially reveals a new image, confirms a crossover with Angel, and teases a major plot twist.
+---------
+
+# Zelda Fans Losing It Over New Ocarina Of Time Trailer
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 15 Apr 2026 11:00:18 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-2026-trailer-gamers-react/
+
+Ocarina of Time is getting a lot of attention right now ahead of a potential remake, and a new trailer has fans excited.
+---------
+
+# The Last Of Us Part 3 Lead Character Teased
+
+Gaming, The Last of Us 3
+
+Wed, 15 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/last-of-us-part-3-lead-character-ellie/
+
+Naughty Dog's Neil Druckmann teases concept for The Last of Us Part III, sparking rumors of an upcoming installment.
+---------
+
+# James Gunn Confirms Superman Sequel’s Returning Composer David Fleming
+
+Movies, Superman, Man of Tomorrow
+
+Wed, 15 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/james-gunn-superman-man-of-tomorrow-returning-composer/
+
+James Gunn confirms another returning creative behind the upcoming Man of Steel, and he is one of the best picks fans could ask for.
+---------
+
+# Dexter: Resurrection Season 2 Cast, Release Date, Plot: Everything We Know
+
+TV, Dexter: Resurrection, Crime, Dexter
+
+Wed, 15 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-cast-release-date-plot-details/
+
+Stay updated on Dexter: Resurrection Season 2, including the anticipated release date, returning cast members, and potential plotlines.
+---------
+
+# Game of Thrones: Aegon's Conquest Officially Confirms Title & Release Window
+
+Movies, Game Of Thrones
+
+Wed, 15 Apr 2026 11:15:12 GMT
+
+https://www.cbr.com/game-of-thrones-movie-aegons-conquest-title-release-window/
+
+The fantasy franchise is officially heading to the big screen.
+---------
+
+# The Lord of the Rings: The Hunt for Gollum Finally Completes Cast With Jamie Dornan as Aragorn
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Wed, 15 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-hunt-for-gollum-complete-cast/
+
+The new The Lord of the Rings film has finally confirmed its returning actors, too.
+---------
+
+# 22 Years Ago, The Punisher Peaked In Marvel Comics
+
+Comics, The Punisher
+
+Wed, 15 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/punisher-max-peak-marvel-series/
+
+The Punisher is one of Marvel's most brutal vigilantes and this is the series that defined a new era for Castle.
+---------
+
+# Apple TV’s 2-Part Thriller Becomes a Late-Night Sleeper Hit for ‘Bosch’ and ‘Lincoln Lawyer’ Fans
+
+TV News, Presumed Innocent, Apple TV, Bosch, The Lincoln Lawyer
+
+Wed, 15 Apr 2026 11:30:13 GMT
+
+https://collider.com/bosch-meets-the-lincoln-lawyer-apple-tv-sleeper-hit-presumed-innocent-streaming-success-april-2026/
+
+Bosch meets The Lincoln Lawyer in Apple TV's binge-worthy sleeper hit legal thriller, Presumed Innocent, which will return for Season 2.
+---------
+
+# The 35 Best Animated Disney Movies Under 90 Minutes Long, Ranked
+
+Movie, Disney+, Animation, Snow White and the Seven Dwarfs, Beauty and the Beast
+
+Wed, 15 Apr 2026 11:16:12 GMT
+
+https://collider.com/disney-animated-movies-under-90-minutes-short/
+
+The Lion King, Beauty and the Beast, and Up are among the best animated Disney movies under 90 minutes long.
+---------
+
+# The 83-Minute Western Quietly Becoming Hulu's Biggest Hit
+
+Movie, Aaron Eckhart, Thieves' Highway, Devon Sawa, Hulu
+
+Wed, 15 Apr 2026 11:08:12 GMT
+
+https://collider.com/aaron-eckhart-thieves-highway-hulu-83-minute-western-movie-is-a-streaming-smash-hit/
+
+18 years after The Dark Knight, Aaron Eckhart fights for justice in the neo-Western film Thieves Highway, which just became the biggest movie on Hulu.
+---------
+
+# Kevin Bacon’s New Western Thriller Adds One of Taylor Sheridan’s Most Memorable Stars
+
+TV News, Tim McGraw, 1883, Taylor Sheridan, Yellowstone
+
+Wed, 15 Apr 2026 11:01:12 GMT
+
+https://collider.com/taylor-sheridan-star-tim-mcgraw-new-western-souther-bastards-cast-erin-kellyman/
+
+A Taylor Sheridan star has been cast in a new neo-Western titled Southern Bastards alongside Erin Kellyman and Kevin Bacon.
+---------
+
+# Sylvester Stallone Officially Unveils a First Look at Taylor Sheridan’s ‘Tulsa King’ Season 4
+
+TV News, Tulsa King, Sylvester Stallone, Taylor Sheridan, Paramount Plus
+
+Wed, 15 Apr 2026 10:31:13 GMT
+
+https://collider.com/tulsa-king-season-4-taylor-sheridan-crime-thriller-release-update-sylvester-stallone-first-look-image/
+
+Sylvester Stallone's epic four-part crime saga from Taylor Sheridan, Tulsa King, is coming back to Paramount soon. Find out the new details here.
+---------
+
+# ‘28 Years Later: The Bone Temple’ Star Erin Kellyman Joins Hulu’s ‘Southern Bastards’
+
+TV News, Hulu, Erin Kellyman, Reinaldo Marcus Green
+
+Wed, 15 Apr 2026 11:20:17 GMT
+
+https://movieweb.com/southern-bastards-hulu-casting-erin-kellyman/
+
+Kellyman has landed the female lead in Hulu’s Punisher-style adaptation of the Jason Aaron and Jason Latour comic.
+---------
+
+# 'Masters of the Universe' Filmmakers Explain How Nicholas Galitzine Earned He-Man
+
+Movie News, Masters of the Universe, Nicholas Galitzine
+
+Wed, 15 Apr 2026 11:11:17 GMT
+
+https://movieweb.com/masters-of-the-universe-casting-nicholas-galitzine-explained/
+
+The 'Red, White, and Royal Blue' star not only committed to transforming his body, but also a charming quality to him that made the hero relatable.
+---------
+
+# 'Dexter: Resurrection' Season 2 Casts Dan Stevens in Killer Role
+
+TV News, Dexter: Resurrection, Dan Stevens
+
+Wed, 15 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-dan-stevens/
+
+The 'Downton Abbey' favorite will join with a deliciously bloody new role based on an infamous slayer.
+---------
+
+# Christopher Nolan's 'The Odyssey' Can't Beat One 'Dark Knight' Action Scene
+
+Features, The Odyssey, The Dark Knight, Christopher Nolan
+
+Wed, 15 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/christopher-nolan-dark-knight-best-action-scene/
+
+Christopher Nolan's 'The Odyssey' won't beat this impressive action scene from 'The Dark Knight' trilogy.
+---------
+
+# 'The Great Beyond' CinemaCon Trailer Reveals Glen Powell & Jenna Ortega in J.J. Abrams' Sci-Fi Movie
+
+Movie News, J.J. Abrams, Glen Powell, Jenna Ortega, Sci-Fi, CinemaCon
+
+Wed, 15 Apr 2026 10:52:43 GMT
+
+https://movieweb.com/the-great-beyond-jj-abrams-trailer-cinemacon/
+
+J.J. Abrams unveiled a trailer for 'The Great Beyond' at CinemaCon, offering a first look at the mysterious Glen Powell & Jenna Ortega sci-fi movie.
+---------
+
 # Bloodborne Remaster Rallies Gamers Following Official PlayStation Announcement
 
 Gaming, Bloodborne
