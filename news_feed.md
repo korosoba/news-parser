@@ -1,3 +1,322 @@
+# CBS’ Ghost Companion Series Reveals First Look & New Release Window
+
+TV
+
+Wed, 15 Apr 2026 21:05:29 GMT
+
+https://screenrant.com/cbs-ghosts-eternally-you-release-window-2026-thursday-nights/
+
+CBS is going full speed ahead with the a new Ghosts companion show, revealing the first image and a release window for its upcoming vampire sitcom.
+---------
+
+# How James Wan’s New Remake Totally “Reinvented” 96-Year-Old Sci-Fi Horror Franchise
+
+Movies, Lee Cronin's The Mummy, The Mummy, Horror, James Wan
+
+Wed, 15 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/james-wan-the-mummy-remake-franchise-reinvention-lee-cronin/
+
+James Wan and Lee Cronin talk their new remake of a 96-year-old sci-fi horror franchise, and why a fan-favorite face isn't returning for the new film.
+---------
+
+# Spider-Man Becomes Carnage's Host In Game-Changing Marvel Comics Transformation
+
+Marvel Comics, Spider-Man, Carnage, Marvel
+
+Wed, 15 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/spider-man-most-powerful-form-carnage-fusion/
+
+Spider-Man officially gains a monstrous new transformation that promises an almost guaranteed but tragic victory in Peter Parker's current story.
+---------
+
+# GTA 6 Map Leak Has Gamers Preparing To Say Goodbye To All Their Free Time
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Wed, 15 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/gta-6-map-leak-size-gamers-reaction/
+
+As fans prepare to jump into the lively world of Grand Theft Auto 6, teams have been piecing together the collective leaks so far.
+---------
+
+# The Boys Predicted Donald Trump's AI Jesus Image Before It Happened
+
+Streaming TV, The Boys
+
+Wed, 15 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/the-boys-season-5-homelander-jesus-trump-predict/
+
+The Boys' satirical nature has often mimicked what's going on in the real world, and somehow, it even predicted Donald Trump's latest AI controversy.
+---------
+
+# Every Official Image Of Spider-Man: Beyond The Spider-Verse & What They Reveal About Miles Morales' Next Movie
+
+Superheroes, Spider-Man: Beyond the Spider-Verse, Spider-Verse
+
+Wed, 15 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/spider-man-beyond-the-spider-verse-official-images-reveals/
+
+Spider-Man: Beyond the Spider-Verse has delivered several exciting teases about Miles Morales' next movie through the release of official images.
+---------
+
+# New NCIS Series Officially Confirmed With Iconic Franchise Star Returning
+
+TV, NCIS
+
+Wed, 15 Apr 2026 20:49:30 GMT
+
+https://screenrant.com/ncis-new-york-spinoff-ll-cool-j-return-cbs/
+
+CBS announces the new NCIS series, NCIS: New York, set to premiere in the 2026-2027 fall schedule.
+---------
+
+# My Name: The 100% RT Thriller Where 'Kill Bill Meets The Departed'
+
+Classic TV, Masked Recs
+
+Wed, 15 Apr 2026 20:46:19 GMT
+
+https://screenrant.com/my-name-netflix-action-series-kill-bill-meets-the-departed/
+
+Kill Bill and The Departed are two of the most iconic action thrillers of all time, but Netflix has a critically acclaimed gem hiding in plain sight.
+---------
+
+# Scrubs' New 5-Season Plan After Record-Setting Revival Premiere Explained By Zach Braff & Creator
+
+TV, Scrubs, Bill Lawrence, Zach Braff
+
+Wed, 15 Apr 2026 20:42:39 GMT
+
+https://screenrant.com/scrubs-new-5-season-plan-zach-braff-bill-lawrence/
+
+EXCLUSIVE: Zach Braff and Bill Lawrence reveal how much longer they wants Scrubs to air for after it was recently revived by ABC for nine episodes.
+---------
+
+# Absolute Batman Is Making His First Official Video Game Debut
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Triple-A Games
+
+Wed, 15 Apr 2026 20:42:03 GMT
+
+https://screenrant.com/absolute-batman-lego-legacy-dark-knight-skin/
+
+Absolute Batman is finally making the leap from DC Comics' topsy-turvy continuity to a video game that will be as opposite as possible in tone.
+---------
+
+# Red Sonja and Vampirella Confirmed For Official Comebacks In All-New Series
+
+Comics, Red Sonja, vampirella
+
+Wed, 15 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/red-sonja-vampirella-dynamite-specials-2026/
+
+The two fan-favorite characters are ready for their comebacks - and one new story even has them crossing paths.
+---------
+
+# Only 5 Dystopian Movies Are Better Than Escape From New York
+
+Movies, Escape From New York, Mad Max, Sci-Fi
+
+Wed, 15 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/dystopian-movies-better-than-escape-from-new-york/
+
+Since 1981, Escape From New York has been the gold-standard of gritty dystopian action, but a handful of movies are even better for the genre.
+---------
+
+# Black Mirror’s "Metalhead" Labeled “Not Feasible” by Robotics Expert
+
+TV, Black Mirror, Sci-Fi, Netflix
+
+Wed, 15 Apr 2026 20:59:57 GMT
+
+https://www.cbr.com/black-mirror-metalhead-not-feasible-robotics-expert/
+
+"Metalhead," Black Mirror's Season 4 episode about a robot apocalypse, doesn't hold up to scrutiny by a real NASA roboticist.
+---------
+
+# Friends’ Matt LeBlanc Returns to TV With CBS Cop Drama
+
+TV, CBS
+
+Wed, 15 Apr 2026 20:50:39 GMT
+
+https://www.cbr.com/matt-leblanc-cop-drama-flint-cbs/
+
+Matt LeBlanc has landed his next major television series role.
+---------
+
+# Dragon Ball Super Finally Brings Back Goku vs. Goku Black
+
+Anime, Dragon Ball, Dragon Ball Super, merchandise
+
+Wed, 15 Apr 2026 20:31:14 GMT
+
+https://www.cbr.com/dragon-ball-super-goku-black-banpresto-match-makers-figure-international-release/
+
+The new release captures the fight between the two characters as seen in Dragon Ball Super anime.
+---------
+
+# Cynthy Wu on For All Mankind Season 5’s Most Shocking Twist
+
+TV, For All Mankind
+
+Wed, 15 Apr 2026 20:31:09 GMT
+
+https://www.cbr.com/video/cynthy-wu-on-for-all-mankind-season-5-s-most-shocking-twist/
+
+SPOILERS AHEAD! Cynthy Wu dives into Kelly’s future in For All Mankind Season 5. The impact of season 5's is massive, and nothing is the same after episode three.In this interview, Wu breaks down the emotional weight behind the shocking scene and how it reshapes Kelly’s journey.
+---------
+
+# 27 Years Later, This Troubled (and Misunderstood) Sopranos Character Is Still Unfairly Hated by Fans
+
+TV, The Sopranos, hbo, Crime
+
+Wed, 15 Apr 2026 20:30:14 GMT
+
+https://www.cbr.com/sopranos-aj-most-misunderstood-unfairly-hated-character/
+
+By the end of The Sopranos, Tony and Carmela’s son didn’t have many redeeming traits, but that doesn’t mean he deserves the hate he gets from fans.
+---------
+
+# 10 Monster Movies To Watch For the Ultimate Double Feature With The Mummy
+
+Movies, The Mummy, Brendan Fraser
+
+Wed, 15 Apr 2026 20:30:14 GMT
+
+https://www.cbr.com/the-mummy-monsters-movies-double-feature/
+
+No film does adventure, romance, and humor like The Mummy, but some films still make the cut as perfect monster flicks.
+---------
+
+# NCIS Franchise Officially Expands With New Series Starring LL Cool J
+
+TV, NCIS
+
+Wed, 15 Apr 2026 20:19:56 GMT
+
+https://www.cbr.com/ncis-new-york-ll-cool-j/
+
+A new NCIS spinoff is moving forward with a major fan favorite from the franchise leading the cast.
+---------
+
+# For All Mankind: Matt Wolpert & Ben Nedivi on Season 5’s Biggest Risk
+
+TV, For All Mankind
+
+Wed, 15 Apr 2026 20:16:37 GMT
+
+https://www.cbr.com/video/for-all-mankind-matt-wolpert-ben-nedivi-on-season-5-s-biggest-risk/
+
+For All Mankind Season 5 takes a bold swing, and Matt Wolpert and Ben Nedivi explain why it had to happen.The showrunners open up about that heartbreaking loss, the challenge of moving on, and how the series is evolving beyond its original core.They break down the shift toward a fully ensemble cast, the rise of a Mars-born generation, and how the show stays grounded even as its science gets more ambitious. Plus, they address the big question fans keep asking: will For All Mankind ever go full alien?
+---------
+
+# 10 Greatest Arthouse Masterpieces of All Time, Ranked
+
+Movie, Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles, Come And See, Hiroshima Mon Amour, Beau Travail
+
+Wed, 15 Apr 2026 20:54:13 GMT
+
+https://collider.com/best-arthouse-movie-masterpieces-all-time-ranked/
+
+From Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles to Hiroshima, Mon Amour, these are cinema's greatest arthouse movie masterpieces ever made.
+---------
+
+# CBS Doubles Down on Crime Thrillers and Leaves Comedy Behind With Packed Fall 2026 Schedule
+
+TV News, CBS, Matlock, FBI, Fire Country
+
+Wed, 15 Apr 2026 20:50:11 GMT
+
+https://collider.com/cbs-fall-2026-schedule-blocks-crime-thriller-fbi-ncis-fire-country/
+
+CBS has confirmed its programming blocks for Fall 2026, and it's great news for crime thriller and detective procedural fans.
+---------
+
+# LL COOL J Is Officially Returning to 'NCIS' With Brand-New Spin-Off Series
+
+TV News, NCIS
+
+Wed, 15 Apr 2026 20:47:11 GMT
+
+https://collider.com/ncis-new-york-spin-off-ll-cool-j-returning-scott-caan-cast-cbs-fall-2026/
+
+CBS has officially confirmed a new NCIS spin-off for Fall 2026, with LL COOL J reprising his role as Agent Sam Hanna.
+---------
+
+# 'Ghosts' Hit With Shocking Release Schedule Change
+
+TV News, Ghosts, CBS, Sitcom, Rose McIver
+
+Wed, 15 Apr 2026 20:40:50 GMT
+
+https://collider.com/ghosts-season-6-release-change-january-2027-holiday-halloween-christmas-specials-2026/
+
+Ghosts Season 6 is shaking things up with a major release change with two holiday specials set for 2026 ahead of a massive shift.
+---------
+
+# Harlan Coben's Most Underrated Murder Mystery Is Officially Returning
+
+TV News, Harlan Coben's Final Twist, Harlan Coben, CBS, Paramount Plus
+
+Wed, 15 Apr 2026 20:35:15 GMT
+
+https://collider.com/harlan-cobens-final-twist-season-2-renewed-cbs/
+
+CBS has officially decided the fate of new true crime murder mystery series Harlan Coben's Final twist 2 months after Season 1 finale.
+---------
+
+# 10 Greatest Epic Movies of the 20th Century, Ranked
+
+Movie, Star Wars, The Godfather, Schindler's List, 2001: A Space Odyssey
+
+Wed, 15 Apr 2026 20:28:16 GMT
+
+https://collider.com/best-epic-movies-20th-century-ranked/
+
+Gone with the Wind, Ben-Hur, The Godfather, King Kong, 2001: A Space Odyssey, and more make up our list of the best epic movies of the 20th century.
+---------
+
+# The New 'Lord of the Rings' Fixes a Peter Jackson Mistake with Leo Woodall's Casting- By Repeating a Divisive Error From 'The Hobbit'
+
+Features, The Lord of the Rings
+
+Wed, 15 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/hunt-for-gollum-lord-of-the-rings-peter-jackson-mistake/
+
+'The Hunt for Gollum' will restore an abandoned storyline in the 'Lord of the Rings' movies, but repeats a problem from 'The Hobbit' in doing so.
+---------
+
+# Jim Carrey's Iconic Psychological Drama 'The Truman Show' Gets New Streaming Home
+
+Movie News, The Truman Show, Coming/Leaving Streaming
+
+Wed, 15 Apr 2026 20:30:19 GMT
+
+https://movieweb.com/truman-show-streaming-paramount-plus-april-2026/
+
+Jim Carrey's iconic drama is now streaming on its new home, Paramount+.
+---------
+
+# 'Stranger Things' Spin-Off Showrunner Says Future Seasons Are Up to Fans [Exclusive]
+
+TV News
+
+Wed, 15 Apr 2026 20:13:08 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-future-season-plans/
+
+Eric Robles confirms that if there's enough demand for the first season of 'Tales from '85,' this could just be the beginning.
+---------
+
 # "I Cannot Believe That": Absolute Batman Creator Reacts to New LEGO Batman Footage
 
 DC Comics, Batman
