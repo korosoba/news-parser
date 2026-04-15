@@ -1,3 +1,234 @@
+# Game Of Thrones & Harry Potter Franchises Swap Mediums: TV To Film
+
+Streaming TV, Harry Potter, Game of Thrones
+
+Wed, 15 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/warner-bros-game-of-thrones-harry-potter-franchises-switching-places/
+
+Two of Warner Bros.' biggest franchises, Harry Potter and Game of Thrones, are switching places with their newest projects, and it's for the better.
+---------
+
+# A Shonen Jump Legend Returns With The Mech Horror Fusion Fans Have Been Dying To See
+
+Anime, shaman king, Shaman King, Shonen Jump
+
+Wed, 15 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/shaman-king-creator-mech-horror-manga-juro/
+
+The creator behind a fan-favorite 2000s anime is back with an upcoming print release for his new mecha horror anime.
+---------
+
+# Steam Unleashes 9/10 New Free Game You Can Keep Forever
+
+Gaming, Steam, Indie, PC
+
+Wed, 15 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/steam-10-rated-new-free-game-april-2026/
+
+Steam has just recently seen the release of a new free game that you can keep forever, and it has already been met with impressive 9/10 reviews.
+---------
+
+# Matt LeBlanc Reunites With CBS For New Detective Comedy 10 Years After 4-Part Sitcom
+
+TV, Matt LeBlanc
+
+Wed, 15 Apr 2026 21:59:42 GMT
+
+https://screenrant.com/matt-leblanc-cbs-reunion-flint-detective-comedy-development/
+
+Matt LeBlanc reunites with CBS for a new detective comedy, a total of 10 years after his four-part sitcom premiered on the same network.
+---------
+
+# 10 Underrated Sci-Fi Movies Worth Watching
+
+Movies, eXistenZ, Dark City, Equilibrium, Coherence, Pitch Black, Pandorum, Moon, Sunshine, Cube, The Vast of Night
+
+Wed, 15 Apr 2026 21:50:19 GMT
+
+https://screenrant.com/great-sci-fi-movies-no-one-talks-about/
+
+We all know the sci-fi classics, but many great titles slip into obscurity and are still worth watching, even decades after their release.
+---------
+
+# Steam Adding Game-Changing New Feature That Could Save You Money
+
+Gaming, Steam, PC
+
+Wed, 15 Apr 2026 21:44:46 GMT
+
+https://screenrant.com/steam-price-history-new-feature-2026/
+
+While new rumors keep popping up left and right for upcoming Steam features, this latest a surprising amount of money in the long run.
+---------
+
+# There's One Other Harry Potter Movie Actor HBO's TV Version Must Bring Back
+
+Streaming TV, Harry Potter
+
+Wed, 15 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/harry-potter-hbo-series-toby-jones-return/
+
+The return of Dobby the Elf to the Harry Potter universe is imminent, but can HBO Max secure the voice of the beloved character?
+---------
+
+# Steam RPG Going Offline In 2 Months Gets Massive Discount
+
+Gaming, Book of Travels, Steam, Indie Games, PC
+
+Wed, 15 Apr 2026 21:28:52 GMT
+
+https://screenrant.com/steam-rpg-book-travels-offline-discount/
+
+A cool Steam RPG is suffering an untimely fate at the end of July, but you can grab it for keeps at a much better price than ever before.
+---------
+
+# 2026 Officially Marks The End Of An Era For The Best Modern Sci-Fi Franchise By Repeating A Space Opera Tragedy
+
+Movies, Sci-Fi, Dune: Part Three, Dune, Star Wars
+
+Wed, 15 Apr 2026 21:20:19 GMT
+
+https://screenrant.com/dune-part-three-2026-sci-fi-messiah-star-wars-connection/
+
+The best modern Sci-Fi franchise is officially ending an era with its 2026 return, as a major release is set to repeat a space opera tragedy.
+---------
+
+# Boruto: Two Blue Vortex Will Officially Ruin Naruto's Power-Scaling
+
+Streaming TV, Boruto: Two Blue Vortex, Naruto
+
+Wed, 15 Apr 2026 21:15:20 GMT
+
+https://screenrant.com/boruto-two-blue-vortox-anime-ruin-power-scaling/
+
+A new Naruto anime is on the way, and as it continues the franchise's overarching story, that power scale is doomed to spin even more out of control.
+---------
+
+# Chris Pine's The Contractor is The Perfect Jason Bourne Replacement
+
+Movies, The Contractor
+
+Wed, 15 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/chris-pine-the-contractor-jason-bourne-replacement/
+
+This 2022 thriller landed with a thud, but with the benefit of hindsight, it has revealed itself as an underrated gem.
+---------
+
+# Mr. Robot Surges on the PVOD Streaming Charts
+
+TV
+
+Wed, 15 Apr 2026 21:42:35 GMT
+
+https://www.cbr.com/mr-robot-cyberpunk-success-pvod-april-2026/
+
+Sam Esmail's cult-favorite techno-thriller Mr. Robot, starring Rami Malek and Christian Slater, is back on the PVOD charts.
+---------
+
+# Elden Ring Officially Drops Surprise New Release On April 30
+
+Games, Elden Ring
+
+Wed, 15 Apr 2026 21:33:51 GMT
+
+https://www.cbr.com/elden-ring-ranni-the-witch-april-30/
+
+Elden Ring fans are getting a new official release this month.
+---------
+
+# Elle Fanning's Margo's Got Money Troubles Is a Streaming Hit on Apple TV
+
+TV, Margo's Got Money Troubles, Apple TV, Drama
+
+Wed, 15 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/margos-got-money-troubles-comedy-drama-apple-tv-success-april-2026/
+
+Apple TV's new comedy drama Margo's Got Money Troubles starring Elle Fanning, becomes a streaming hit with a near-perfect Rotten Tomatoes score.
+---------
+
+# Star Wars Has Been Lying to Fans About the Force for 49 Years
+
+Movies, Star Wars: Episode IV - A New Hope
+
+Wed, 15 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/star-wars-lying-about-force-ghosts-started-with-obi-wan-kenobi/
+
+The Force has always been mysterious in Star Wars, but one aspect the franchise has been lying to fans about one particular aspect for years.
+---------
+
+# 10 Mindblowing From Fan Theories That Actually Make Sense
+
+TV, From
+
+Wed, 15 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/mindblowing-from-fan-theories-that-make-sense/
+
+MGM+'s From has entered its third season and featured many enduring mysteries that have led to some wild theories that may make sense.
+---------
+
+# 10 Iconic Anime Arcs That Are Different From All Others
+
+Anime, Death Note, Hunter X Hunter, Neon Genesis Evangelion
+
+Wed, 15 Apr 2026 21:15:13 GMT
+
+https://www.cbr.com/most-iconic-anime-arcs-that-changed-everything/
+
+These anime arcs may be controversial due to how different they are, but they remain discussed and remembered to this day.
+---------
+
+# Only 3 TV Dramas Are Better Than 'The Sopranos'
+
+TV, The Sopranos, Drama, Peaky Blinders, The Wire
+
+Wed, 15 Apr 2026 22:03:14 GMT
+
+https://collider.com/tv-dramas-better-than-the-sopranos/
+
+HBO's The Sopranos is considered one of the greatest shows of ever made, but drama series like Peaky Blinders and The Wire are far superior.
+---------
+
+# 10 Greatest Horror Movie Taglines, Ranked
+
+Movie, Horror, alien, Jaws 2, The Thing
+
+Wed, 15 Apr 2026 21:52:13 GMT
+
+https://collider.com/horror-movie-taglines-best-ranked/
+
+Horror movies like Jaws 2, Alien, and The Fly have some of the best, most clever and unforgettable taglines in the history of the genre.
+---------
+
+# This 10/10 Crime Thriller Masterpiece Got an Unwanted Sequel With an Apple TV Sci-Fi Star
+
+Movie Features, Inside Man, Inside Man: Most Wanted, Rhea Seehorn, Crime
+
+Wed, 15 Apr 2026 21:29:14 GMT
+
+https://collider.com/inside-man-sequel-most-wanted-rhea-seehorn/
+
+In 2019, we got a bizarre sequel to Inside Man called Inside Man: Most Wanted, a crime thriller that completely wastes Rhea Seehorn.
+---------
+
+# 'A Knight of the Seven Kingdoms' Season 2's Filming Cancelation Ends the Annual Release Promise
+
+Features, A Knight Of The Seven Kingdoms
+
+Wed, 15 Apr 2026 22:00:18 GMT
+
+https://movieweb.com/a-knight-of-the-seven-kingdoms-season-2-filming-delays-annual-releases/
+
+Delays in HBO's Season 2 filming schedule will impact the plan for routine 'A Knight of the Seven Kingdoms' releases.
+---------
+
 # CBS’ Ghost Companion Series Reveals First Look & New Release Window
 
 TV
