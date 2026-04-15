@@ -1,3 +1,388 @@
+# Netflix's Official Answer To Dragon Ball Isn't Just Great, It's Near Perfect
+
+Anime, Netflix, Dragon Ball, Jojo's Bizarre Adventure
+
+Wed, 15 Apr 2026 03:40:45 GMT
+
+https://screenrant.com/netflix-jojos-bizarre-adventure-steel-ball-run-dragon-ball-perfect/
+
+Dragon Ball fans, if they haven't already, should absolutely pick up on this classic from 1987, as its anime truly takes off.
+---------
+
+# 10 Cheers Episodes Better Than Anything Made Today
+
+Classic TV, Cheers
+
+Wed, 15 Apr 2026 03:10:35 GMT
+
+https://screenrant.com/cheers-episodes-better-than-tv-made-today/
+
+Cheers is the bedrock of all great modern sitcoms, and the Ted Danson-led show has many episodes that outshine anything made today.
+---------
+
+# 10 Biggest Easter Eggs, MCU References, and Netflix Nods in Daredevil: Born Again Season 2, Episode 5
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 15 Apr 2026 02:46:37 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-5-easter-eggs-and-references/
+
+Daredevil: Born Again season 2, episode 5 is one of the MCU series' best episodes, while also featuring some great Easter eggs and Netflix nods.
+---------
+
+# Warner Bros. Dates 7 Films For 2027 & Beyond: Margot Robbie's Ocean's Prequel, Final Destination 7, & New Baz Luhrmann
+
+Movies, Warner Bros., CinemaCon, Ocean's, Final Destination
+
+Wed, 15 Apr 2026 02:46:30 GMT
+
+https://screenrant.com/warner-bros-release-dates-2027-2028-oceans-prequel-baz-lurhmann-zach-cregger-final-destination-7/
+
+Warner Bros. reveals the release dates for several 2027 and 2028 titles, including movies from the Ocean's, Final Destination, and Llorona franchises.
+---------
+
+# Game Of Thrones Movie Officially Confirmed At Warner Bros.
+
+Movies, Game of Thrones, CinemaCon
+
+Wed, 15 Apr 2026 02:39:00 GMT
+
+https://screenrant.com/game-of-thrones-movie-aegons-conquest-confirmed-warner-bros-cinemacon/
+
+Warner Bros. has officially confirmed a Game of Thrones movie is in development, revealing the title of the first film from the world of Westeros.
+---------
+
+# Paul Atreides’ Holy War Officially Begins In Dune 3's First 7 Minutes
+
+Movies, Dune: Part Three, Dune, Warner Bros., CinemaCon
+
+Wed, 15 Apr 2026 02:08:42 GMT
+
+https://screenrant.com/dune-3-movie-cinemacon-2026-footage-paul-holy-war-warner-bros/
+
+The first seven minutes of Dune: Part Three reveal the beginnings of Paul Atreides' Holy War, as Denis Villeneuve adapts Frank Herbert's Messiah.
+---------
+
+# How Gyeongseong Creature Broke All The Rules Of Zombie Horror
+
+Classic TV, Masked Recs
+
+Wed, 15 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/gyeongseong-creature-zombie-k-drama-broke-rules-netflix/
+
+At a time when zombie horror feels like it's been done to death (and back), one underrated Netflix project quietly changed the game for good.
+---------
+
+# Jenna Ortega & Glen Powell Are Looking For "Something Pure" In First Footage For The Great Beyond
+
+Movies, CinemaCon
+
+Wed, 15 Apr 2026 01:49:12 GMT
+
+https://screenrant.com/jenna-ortega-glen-powell-the-great-beyond-cinemacon-2026-footage/
+
+Warner Bros. has unveiled first look footage of The Great Beyond at CinemaCon, revealing what to expect from J.J. Abrams' first movie in seven years.
+---------
+
+# Super Mario Galaxy Movie Theory Links THAT Character's Introduction To Wario
+
+Movies, The Super Mario Galaxy Movie
+
+Wed, 15 Apr 2026 01:45:21 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-wario-daisy-connection-theory/
+
+The surprise introduction of a key character in The Super Mario Galaxy Movie could relate directly to how and when Wario makes his grand entrance.
+---------
+
+# Nicole Kidman & Sandra Bullock's Iconic Witches Return To Battle Dark New Horrors In Practical Magic 2 Teaser
+
+Movies, Practical Magic 2, CinemaCon, Practical Magic
+
+Wed, 15 Apr 2026 01:39:39 GMT
+
+https://screenrant.com/practical-magic-2-teaser-footage/
+
+Sandra Bullock and Nicole Kidman are back as the next generation of Owens family witches takes over in Warner Bros.' Practical Magic 2 teaser.
+---------
+
+# 10 Spider-Man Variants Fans Still Need to See in Beyond The Spider-Verse
+
+Movies, Spider-Man: Beyond the Spider-Verse
+
+Wed, 15 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-variants-fans-need-list/
+
+Spider-Man: Beyond the Spider-Verse is finally coming, and with it are a host of new variants that deserve a chance on the big screen.
+---------
+
+# Chainsaw Man & 5 Other Manga That Were Ruined by the Final Chapter
+
+Anime, Chainsaw Man, Jujutsu Kaisen, Attack on Titan, Manga
+
+Wed, 15 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/manga-like-chainsaw-man-final-chapter-ruins-story/
+
+Sometimes, all it takes is for one chapter to undo every bit of goodwill in a story, and these six manga suffered from a disastrous final chapter.
+---------
+
+# A Clever Friends Fan Theory Solves a Years-Long Side Character Mystery (& It Makes Perfect Sense)
+
+TV, Friends, NBC, Comedy
+
+Wed, 15 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/friends-fan-theory-solves-eddie-mystery/
+
+Friends may have ended, but there are more than a few fan theories around, including one about a forgotten side character that keeps fans interested.
+---------
+
+# Fans Still Want a Hitchhikers Guide to the Galaxy Sequel
+
+Movies, The Hitchhiker's Guide to the Galaxy
+
+Wed, 15 Apr 2026 03:15:14 GMT
+
+https://www.cbr.com/hitchhikers-guide-to-the-galaxy-sequel-peacock/
+
+It's been 21 years since the only movie adaptation of Douglas Adams' legendary sci-fi comedy franchise hit theaters, but there's still no sequel.
+---------
+
+# 7 Untouchable Nintendo Wii Games Nobody Remembers
+
+Games, Nintendo Wii, Nintendo
+
+Wed, 15 Apr 2026 03:15:14 GMT
+
+https://www.cbr.com/almost-perfect-nintendo-wii-games-no-one-remembers/
+
+With how big the Wii's library is, one will be hard-pressed to find someone who remembers Dead Space: Extraction and Captain Rainbow.
+---------
+
+# Studio Ghibli's My Neighbor Totoro LEGO Set Hits 10,000 Mark
+
+Anime, My Neighbor Totoro, Studio Ghibli, LEGO
+
+Wed, 15 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-catbus-lego-set-milestone-hit/
+
+A LEGO set recreating one of the most beloved Studio Ghibli films of all time just reached a major new milestone.
+---------
+
+# John Carpenter's Escape From New York Has Kurt Russell's Most Exciting Performance
+
+Movies, Escape From New York, kurt russell
+
+Wed, 15 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/escape-from-new-york-kurt-russell-most-exciting-performance/
+
+Escape From New York is finally getting a remake, but because of the original having Kurt Russell's best performance, it's a tough act to follow.
+---------
+
+# 7 Non-Canon Anime Moments That Fix the Original Story
+
+Anime, Death Note, Steins;Gate, Soul Eater, One Piece, Code Geass: Lelouch of the Rebellion, Fate/Stay Night: Unlimited Blade Works, Fullmetal Alchemist
+
+Wed, 15 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/best-non-canon-anime-scenes-better-than-original/
+
+Most fans dislike when anime diverges from canon, but these non-canon moments made their series even better than the source material.
+---------
+
+# It's Officially a New Era for FromSoftware in 2026
+
+Games, Bloodborne, Elden Ring, Sekiro: Shadows Die Twice
+
+Wed, 15 Apr 2026 02:15:13 GMT
+
+https://www.cbr.com/fromsoftware-2026-era-bloodborne-elden-ring-movie/
+
+FromSoftware is expanding like never before in 2026, with many of its biggest franchises hitting both the big and small screens, with one coming soon.
+---------
+
+# It's The End of an Era For Your Favorite Anime Genre
+
+Anime, Shojo, Shonen
+
+Wed, 15 Apr 2026 02:00:24 GMT
+
+https://www.cbr.com/problematic-anime-genres-shonen-shojo/
+
+Anime studios are saying goodbye to the rules of the past and changing things for good.
+---------
+
+# George R.R. Martin’s Latest ‘Winds of Winter’ Update Exposes a Bigger ‘Game of Thrones’ Problem
+
+TV Features, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms, House of the Dragon
+
+Wed, 15 Apr 2026 03:18:14 GMT
+
+https://collider.com/george-rr-martin-game-of-thrones-winds-of-winter-delay-problems/
+
+George R.R. Martin has provided yet another disappointing update on The Winds of Winter, further delaying Game of Thrones' conclusion.
+---------
+
+# George R.R. Martin's First 'Game of Thrones' Movie Officially Confirms Plot and Title
+
+Movie News, Game Of Thrones, House of the Dragon, Fantasy, HBO
+
+Wed, 15 Apr 2026 03:12:37 GMT
+
+https://collider.com/game-of-thrones-movie-title-aegons-conquest-confirmed/
+
+George R.R. Martin's most underrated story in the Game of Thrones universe is officially get a movie adaptation.
+---------
+
+# Margot Robbie's 'Ocean's Eleven' Prequel Officially Confirms New Director and Release Date
+
+Movie News, Ocean's Eleven, Margot Robbie, Bradley Cooper, George Clooney
+
+Wed, 15 Apr 2026 02:54:58 GMT
+
+https://collider.com/margot-robbie-oceans-eleven-prequel-new-director-confirmed-bradley-cooper-release-date-june-25-2027/
+
+Margot Robbie's Ocean's Eleven prequel officially confirms new writer-director and 2027 release date.
+---------
+
+# First 7 Minutes of 'Dune: Part Three' Reveals the Onset of a Tense Sci-Fi Showdown
+
+Movie News, Dune: Part Three, Timothée Chalamet, Denis Villeneuve, Zendaya, CinemaCon
+
+Wed, 15 Apr 2026 02:16:24 GMT
+
+https://collider.com/dune-part-3-first-7-minutes-footage-description-stilgar-sci-fi-battle/
+
+Denis Villeneuve presented the first 7 minutes of Dune: Part Three at CinemaCon. Get the details on what the footage revealed here.
+---------
+
+# 'Daredevil: Born Again's Ayelet Zurer Promises a "Devastatingly Bad" Future for Kingpin After Vanessa's Fate
+
+TV, Daredevil: Born Again, Ayelet Zurer, Disney+, MCU
+
+Wed, 15 Apr 2026 02:00:24 GMT
+
+https://collider.com/daredevil-born-again-season-2-vanessa-death-explained-ayelet-zurer/
+
+Collider interviews Ayelet Zurer about her character Vanessa's death in Daredevil: Born Again and how it will devastate Wilson Fisk's life moving forward this season.
+---------
+
+# 'Daredevil: Born Again's Major Netflix Cameos Can't Soften the Show's Darkest Turn Yet
+
+TV Reviews, Daredevil: Born Again, Charlie Cox, Vincent D'Onofrio, Disney+
+
+Wed, 15 Apr 2026 02:00:24 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-5-recap-disney-plus/
+
+Daredevil and Kingpin grapple with Born Again's shocking turn of events by taking a trip down memory lane with some familiar faces.
+---------
+
+# Netflix’s Acclaimed 6-Part Crime Thriller Is Making a Massive Comeback on Streaming
+
+TV Features, Peaky Blinders, Peaky Blinders: The Immortal Man, Cillian Murphy, Netflix
+
+Wed, 15 Apr 2026 01:47:14 GMT
+
+https://collider.com/peaky-blinders-netflix-crime-series-surging/
+
+Peaky Blinders surges on Netflix again. Here’s what the crime drama is about and why viewers keep coming back.
+---------
+
+# Nicole Kidman and Sandra Bullock Reunite in First 'Practical Magic' Sequel Footage
+
+Movie News, Practical Magic, Practical Magic 2, CinemaCon, Nicole Kidman
+
+Wed, 15 Apr 2026 01:41:57 GMT
+
+https://collider.com/nicole-kidman-sandra-bullock-practical-magic-2-first-footage-description-cinemacon/
+
+Sandra Bullock and Nicole Kidman make a spectacular return in the sequel to Practical Magic, with new footage unveiled at CinemaCon. Get more details.
+---------
+
+# 1 Year Later, Disney's 107-Minute Sci-Fi Gem Quietly Becomes a Late-Night Favorite
+
+Movie News, Predator: Badlands, Dan Trachtenberg, Disney+, Sci-Fi
+
+Wed, 15 Apr 2026 01:30:14 GMT
+
+https://collider.com/disney-franchise-saving-sci-fi-blockbuster-predator-badlands-streaming-success-april-2026/
+
+Dan Trachtenberg's instant sci-fi classic Predator: Badlands has crossed several streaming milestones worldwide, 1 year after its release.
+---------
+
+# Milly Alcock Gets Sucked Into Space in Super Chill New 'Supergirl' Footage
+
+Movie News, Supergirl, Milly Alcock, Jason Momoa, DC Comics, CinemaCon
+
+Wed, 15 Apr 2026 01:23:44 GMT
+
+https://collider.com/supergirl-footage-description-cinemacon/
+
+New footage from Milly Alcock's Supergirl was unveiled at CinemaCon, find out what happened in the explosive new follow-up to James Gunn's Superman.
+---------
+
+# 10 CW Shows That Prove the Network Deserves a Comeback
+
+TV Lists, The Vampire Diaries, Supernatural
+
+Wed, 15 Apr 2026 02:00:30 GMT
+
+https://movieweb.com/best-cw-shows/
+
+Gone are the days of truly bonkers TV (but they deserve a triumphant return).
+---------
+
+# 9 Modern TV Action Thrillers That Are Better Than Any Taylor Sheridan Show
+
+TV Lists, Taylor Sheridan
+
+Wed, 15 Apr 2026 01:00:19 GMT
+
+https://movieweb.com/action-thriller-tv-better-taylor-sheridan/
+
+Taylor Sheridan's 'Yellowstone' franchise and other Western and crime series are popular, but these TV action thriller series are more impressive.
+---------
+
+# 'Lord of the Rings: The Hunt for Gollum' Teaser Announces Jamie Dornan as Aragorn & Full Main Cast
+
+Movie News, The Lord of the Rings: The Hunt for Gollum
+
+Wed, 15 Apr 2026 00:45:13 GMT
+
+https://movieweb.com/lord-of-the-rings-hunt-for-gollum-teaser/
+
+'The Lord of the Rings: The Hunt for Gollum' has gottten a brief teaser, revealing the star-studded cast for the spin-off.
+---------
+
+# A Detail in 'Godzilla Minus Zero's Teaser May Reveal Ghidorah's Involvement
+
+Features, Godzilla Minus Zero, Godzilla
+
+Wed, 15 Apr 2026 00:30:18 GMT
+
+https://movieweb.com/godzilla-minus-zero-teaser-ghidorah-hidden-detail/
+
+The first teaser for Takashi Yamazaki's highly-anticipated sequel 'Godzilla Minus Zero' contains a minor detail that may hint at Ghidorah's inclusion.
+---------
+
+# Animator on 'Avatar: The Last Airbender' Movie Calls Out "Disrespectful" Leak
+
+Movie News, The Legend of Aang: The Last Airbender, Avatar: The Last Airbender, Paramount Plus
+
+Wed, 15 Apr 2026 00:17:17 GMT
+
+https://movieweb.com/avatar-last-airbender-movie-animator-addresses-leak/
+
+The animator also mentions Paramount's "awful decision" not to release 'The Legend of Aang: The Last Airbender' in theaters.
+---------
+
 # Japan Has Officially Chosen Spring 2026's Best Anime
 
 Anime, Daemons of the Shadow Realm, NIPPON SANGOKU: The Three Nations of the Crimson Sun
