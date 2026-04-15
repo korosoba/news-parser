@@ -1,3 +1,179 @@
+# "I Cannot Believe That": Absolute Batman Creator Reacts to New LEGO Batman Footage
+
+DC Comics, Batman
+
+Wed, 15 Apr 2026 20:12:20 GMT
+
+https://screenrant.com/absolute-batman-lego-batman-legacy-dark-knight/
+
+Absolute Batman's debut in the Lego Batman: Legacy of the Dark Knight video game has left its creator, Scott Snyder, in awe.
+---------
+
+# Tracker Season 4 Release Window Confirmed At CBS
+
+TV, Tracker
+
+Wed, 15 Apr 2026 20:11:53 GMT
+
+https://screenrant.com/tracker-season-4-cbs-premiere-date-confirmed/
+
+CBS has unveiled the Tracker season 4 premiere date, revealing when fans can expect the next chapter of the popular Justin Hartley action drama.
+---------
+
+# CBS Reveals Premiere Dates For More Than 15 Upcoming Shows Including NCIS, Marshals, & More
+
+TV, NCIS, NCIS: Origins, NCIS: Sydney, FBI, CIA, Marshals, Elsbeth, Matlock, Georgie & Mandy's First Marriage, Ghosts, Boston Blue, Tracker, Sheriff Country, Fire Country
+
+Wed, 15 Apr 2026 20:05:28 GMT
+
+https://screenrant.com/cbs-fall-2026-premiere-dates-list/
+
+CBS has given an early peek at its fall line-up of scripted comedies and dramas, confirming when viewers can expect more than a dozen shows.
+---------
+
+# The Last Starfighter's Official Sequel Finally Gets First Preview, And It Looks Breathtaking
+
+Comics, The Last Starfighter
+
+Wed, 15 Apr 2026 20:00:20 GMT
+
+https://screenrant.com/last-satrfighter-sequel-first-look/
+
+Return to the Star League.
+---------
+
+# Invincible Season 4 Broke A Series Tradition For The Best Reason
+
+Streaming TV, Invincible
+
+Wed, 15 Apr 2026 20:00:20 GMT
+
+https://screenrant.com/invincible-season-4-episode-7-no-mid-credits-scene/
+
+Invincible has had many traditions throughout its run, such as the title card gag, but the show just broke a major one for the first time this season.
+---------
+
+# DC's Cyborg Unlocks Awesome Redesign as an Official DC Villain
+
+DC Comics, Cyborg, Justice League
+
+Wed, 15 Apr 2026 19:39:47 GMT
+
+https://screenrant.com/dc-comics-new-cyborg-design-villain/
+
+One of DC Comics’ most iconic Justice League heroes has just debuted his best redesign of all time, and he also just got a major power upgrade.
+---------
+
+# 6 Biggest Changes Margo’s Got Money Troubles Makes To Rufi Thorpe’s Bestselling Book
+
+Streaming TV, Margo's Got Money Troubles
+
+Wed, 15 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/margos-got-money-troubles-rufi-thorpe-book-changes/
+
+Rufi Thorpe's New York Times bestselling book has become an Apple TV show, and it makes some big changes to Margo's Got Money Troubles.
+---------
+
+# Val Kilmer Returns To Acting Via AI In New Trailer For Upcoming Western Movie As Deep As The Grave
+
+Movies, Val Kilmer, CinemaCon
+
+Wed, 15 Apr 2026 19:17:57 GMT
+
+https://screenrant.com/val-kilmer-as-deep-as-the-grave-trailer-western-movie/
+
+Val Kilmer returns to acting via AI in a new trailer for the upcoming Western movie As Deep as the Grave.
+---------
+
+# Netflix's Dark Made Series Finales Look Easy
+
+Classic TV, Masked Recs
+
+Wed, 15 Apr 2026 19:15:20 GMT
+
+https://screenrant.com/dark-tv-show-netflix-make-finales-look-easy/
+
+One of Netflix's best TV shows is a three-part sci-fi masterpiece with one of the best finales in recent years, showing how to craft a good ending.
+---------
+
+# Superman's David Corenswet Transforms Into A "Real-Life Superhero" With First Look At Mr. Irrelevant
+
+Movies, David Corenswet
+
+Wed, 15 Apr 2026 19:10:11 GMT
+
+https://screenrant.com/mr-irrelevant-movie-david-corenswet-john-tuggle-images/
+
+Superman star David Corenswet transforms into a "real-life superhero" in the first look at Mr. Irrelevant, following the true story of John Tuggle.
+---------
+
+# The Lord of the Rings' Composer Confirmed the Trilogy's Three Best Songs
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Wed, 15 Apr 2026 20:00:14 GMT
+
+https://www.cbr.com/howard-shore-confirmed-best-lord-of-the-rings-songs/
+
+Howard Shore, the composer behind Peter Jackson's The Lord of the Rings film trilogy, revealed the three greatest pieces of the soundtrack.
+---------
+
+# Elisabeth Moss's Imperfect Women Rises on Streaming Despite Mixed Reviews
+
+TV, Imperfect Women, Thriller, Apple TV
+
+Wed, 15 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/imperfect-women-psychological-thriller-apple-tv-success-april-2026/
+
+Apple TV's psychological thriller Imperfect Women, starring Elisabeth Moss, Kerry Washington, and Kate Mara, is climbing streaming charts worldwide.
+---------
+
+# AI-Generated Val Kilmer Appears In As Deep as the Grave Trailer
+
+Movies, val kilmer
+
+Wed, 15 Apr 2026 19:25:51 GMT
+
+https://www.cbr.com/ai-generated-val-kilmer-as-deep-as-the-grave-trailer/
+
+Val Kilmer has been resurrected with AI to appear in a new movie one year after his death.
+---------
+
+# Marvel Confirms Rocket Raccoon Anniversary Special One-Shot
+
+Comics, Marvel
+
+Wed, 15 Apr 2026 19:25:23 GMT
+
+https://www.cbr.com/rocket-raccoon-rocket-rewind-1-release-date-confirmed/
+
+Just don't call him a raccoon.
+---------
+
+# Star Wars' New Instant Fan-Favorite Is Ready to Make His Live-Action Debut [Exclusive]
+
+TV News, Star Wars: Maul - Shadow Lord, Wagner Moura, Sam Witwer, Dave Filoni
+
+Wed, 15 Apr 2026 19:21:48 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-wagner-moura-love-brander-lawson-live-action/
+
+Wagner Moura reveals his desire to reprise his role as detective Brander Lawson in live-action after Star Wars: Maul - Shadow Lord.
+---------
+
+# 10 Greatest D-Day War Movie Masterpieces, Ranked
+
+Movie, War, Saving Private Ryan, The Longest Day, Where Eagles Dare
+
+Wed, 15 Apr 2026 19:19:14 GMT
+
+https://collider.com/best-d-day-movie-masterpieces-ranked/
+
+From brutal combat movies like Saving Private Ryan to spy thrillers like Where Eagles Dare, these great movies depict the scope of Operation Overlord.
+---------
+
 # Dakota Fanning's Best TV Show: Netflix's Psychological Thriller Ripley
 
 TV, Masked Recs
