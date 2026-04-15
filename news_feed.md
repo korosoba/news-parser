@@ -1,3 +1,179 @@
+# MGM+'s From Season 4 Debuts With Rare Rotten Tomatoes Score Ahead of Final Season
+
+TV, From, FROM - Season 4
+
+Wed, 15 Apr 2026 23:03:30 GMT
+
+https://screenrant.com/from-season-4-rotten-tomatoes-debut-score/
+
+From season 5 will officially be the end of the hit MGM+ horror series, and now season 4 has debuted with a rare score on Rotten Tomatoes.
+---------
+
+# X-Men Officially Solves a Huge Mystery, Changing Storm Forever
+
+Marvel Comics, X-Men, Storm
+
+Wed, 15 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/x-men-mystery-reveal-storm-mother-one-above-all/
+
+Marvel just let X-Men answer a major mystery plaguing Storm, but the last-minute character reveal is now sparking more questions.
+---------
+
+# Secret Level: The 4-Hour Prime Video Series Blending Black Mirror and Fallout
+
+Streaming TV, Masked Recs
+
+Wed, 15 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/secret-level-prime-video-video-game-show-fallout-black-mirror/
+
+Discover the captivating 15-part anthology series on Prime Video that masterfully fuses elements of Black Mirror and Fallout, offering a binge-worthy sci-fi experience in just 4 hours.
+---------
+
+# Marvel's Spider-Man 3 Accidentally Confirmed Following Leak
+
+Gaming, Marvel's Spider-Man 3, Triple-A Games
+
+Wed, 15 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/marvels-spider-man-3-accidentally-confirmed/
+
+Although we're still waiting for more info on Marvel's Wolverine, their next game seems to have been confirmed after a recent leak.
+---------
+
+# Is Godzilla Minus Zero Teasing A Second Monster? Who It Could Be
+
+Movies, Godzilla Minus Zero
+
+Wed, 15 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/is-godzilla-minus-zero-teasing-a-second-monster-who-it-could-be/
+
+The use of what appears to anti-gravity in the Godzilla Minus Zero teaser trailer hints at a new monster, but if so, which kaiju could it be?
+---------
+
+# Netflix’s New Legal Thriller Series With A Perfect Rotten Tomatoes Score Is Quietly One Of Its Best
+
+Streaming TV, Masked Recs
+
+Wed, 15 Apr 2026 22:48:19 GMT
+
+https://screenrant.com/netflix-law-according-to-lidia-poet-series-watch/
+
+Discover Netflix's best-kept secret: a legal thriller series with a perfect 100% Rotten Tomatoes score, featuring a captivating story and setting.
+---------
+
+# Upcoming Reacher Spinoff Has 1 Big Advantage Over Alan Ritchson’s Show
+
+TV, Reacher, Neagley
+
+Wed, 15 Apr 2026 22:39:19 GMT
+
+https://screenrant.com/reacher-neagley-spinoff-advantage-original-stories-lee-child-books/
+
+Even though Alan Ritchson's action thriller Reacher is one of Prime's biggest shows ever, its spinoff has one thing the original series is missing.
+---------
+
+# Transformers Returns to 70 Million U.S. Homes With New Free Streaming Channel
+
+Anime, Transformers, Power Rangers, G.I. Joe, My Little Pony, hasbro
+
+Wed, 15 Apr 2026 23:02:14 GMT
+
+https://www.cbr.com/hasbro-legends-new-channel-america/
+
+Transformers, Power Rangers, G.I. Joe and more are about to be available across North America thanks to a major new TV and streaming channel.
+---------
+
+# 10 Anime That Crashed & Burned In Their Final Arc
+
+Anime, Death Note
+
+Wed, 15 Apr 2026 23:01:12 GMT
+
+https://www.cbr.com/worst-anime-last-arcs-endings-list/
+
+Even though anime like Naruto start strong, their endings have proved to be controversial.
+---------
+
+# 10 Fantasy Movies as Good as Avatar: Fire and Ash
+
+Movies, Avatar, Fantasy, Dune
+
+Wed, 15 Apr 2026 23:01:12 GMT
+
+https://www.cbr.com/fantasy-movies-as-good-as-avatar-fire-and-ash/
+
+James Cameron's latest sci-fi fantasy movie reminded audiences of Avatar's strengths in visual immersion, but some fantasy movies are even better.
+---------
+
+# 5 Perfect Turn-Based RPGs That Nobody Remembers
+
+Games, Role Playing Game
+
+Wed, 15 Apr 2026 22:45:12 GMT
+
+https://www.cbr.com/perfect-turn-based-rpgs-nobody-remembers-list/
+
+The best turn-based RPGs don't always get the attention they deserve.
+---------
+
+# 2 Years Before Toonami, This Hidden Gem Sci-Fi Series Became Cartoon Network’s First Anime
+
+Anime, toonami
+
+Wed, 15 Apr 2026 22:15:13 GMT
+
+https://www.cbr.com/toonami-cartoon-network-first-anime-g-force-guardians-of-space/
+
+G-Force, the second attempt at a Gatchaman localization, is a largely forgotten anime that helped open doors for Toonami and anime's dubbing industry.
+---------
+
+# Netflix's Surprise Hit This Week Is a 4-Part Crime Thriller That Ended Far Too Soon
+
+TV News, The Cleaning Lady, Fox, Netflix, Thriller
+
+Wed, 15 Apr 2026 23:00:12 GMT
+
+https://collider.com/fox-daredevil-star-elodie-young-thriller-the-cleaning-lady-netflix-streaming-success/
+
+Netflix subscribers can't get enough of Fox's crime thriller that was cancelled after four seasons. Get all the details here.
+---------
+
+# Apple TV’s 4-Part Divisive Drama Is Still One of Its Most Addictive Shows
+
+TV Features, The Morning Show, Jennifer Aniston, Reese Witherspoon, Apple TV
+
+Wed, 15 Apr 2026 22:57:13 GMT
+
+https://collider.com/the-morning-show-apple-tv-divisive-addictive-drama/
+
+The Morning Show blends real-world issues with glossy drama, strong performances, and uneven storytelling that keeps viewers hooked.
+---------
+
+# 8 Unexpected Horror Movies That Are Low-Key Masterpieces
+
+Movie, Horror, Jacob's Ladder, The Empty Man, Carnival of Souls
+
+Wed, 15 Apr 2026 22:22:13 GMT
+
+https://collider.com/horror-movies-low-key-masterpieces/
+
+From The Mothman Prophecies to Carnival of Souls, these ten underappreciated horror movies are low-key masterpieces of the esteemed and popular genre.
+---------
+
+# 'Beef' Director Jack Schreier Breaks Down His Return to the Acclaimed Netflix Series
+
+TV News, Jake Schreier, Beef, Netflix
+
+Wed, 15 Apr 2026 22:20:33 GMT
+
+https://movieweb.com/beef-season-2-jake-schreier-interview/
+
+The filmmaker reflects on returning to the series after the accolades earned by Season 1.
+---------
+
 # Game Of Thrones & Harry Potter Franchises Swap Mediums: TV To Film
 
 Streaming TV, Harry Potter, Game of Thrones
