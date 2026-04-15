@@ -1,3 +1,278 @@
+# All Spider-Man: Brand New Day LEGO Sets Revealed (Images, Prices, Details)
+
+Movies, Spider-Man: Brand New Day, LEGO
+
+Wed, 15 Apr 2026 15:52:54 GMT
+
+https://screenrant.com/spider-man-brand-new-day-lego-sets/
+
+Exclusive: LEGO reveals 3 Spider-Man: Brand New Day sets, including a Hulk clash and a prison transport vehicle chase.
+---------
+
+# Spider-Man: Beyond The Spider-Verse Release Delay Explained
+
+Movies, Spider-Man: Beyond the Spider-Verse
+
+Wed, 15 Apr 2026 15:50:38 GMT
+
+https://screenrant.com/spider-man-beyond-spider-verse-release-delay-makes-sense/
+
+Stunning previews of Beyond The Spider-Verse contextualize the movie’s three-year delay and suggest that it will be well worth the wait.
+---------
+
+# Red Dead Redemption Officially Returning This May With A New Release
+
+Gaming, Red Dead Redemption
+
+Wed, 15 Apr 2026 15:42:58 GMT
+
+https://screenrant.com/red-dead-redemption-may-2026-ps5-release/
+
+Red Dead Redemption makes a comeback with a PlayStation 5 release date set for May.
+---------
+
+# 10 Perfect Far Side Comics That Just Turned 40
+
+Comics, The Far Side
+
+Wed, 15 Apr 2026 15:42:41 GMT
+
+https://screenrant.com/10-perfect-far-side-comics-that-just-turned-40/
+
+Celebrate the best Far Sides from 1986!
+---------
+
+# Netflix's Gritty New 8-Part Crime Series Is Taking Over Streaming Worldwide
+
+TV, Masked Recs
+
+Wed, 15 Apr 2026 15:38:26 GMT
+
+https://screenrant.com/netflix-bandi-streaming-success-april-2026/
+
+Netflix's new crime thriller series has quickly become a global smash hit, climbing the streamer's charts worldwide, and its dominance is wide.
+---------
+
+# Anne Hathaway's 5 Exciting Movies in 2026
+
+Movies, Anne Hathaway, Explainer
+
+Wed, 15 Apr 2026 15:30:32 GMT
+
+https://screenrant.com/anne-hathaway-2026-five-movies/
+
+Anne Hathaway is set to make 2026 all about her, starring in five films, including a much-hyped sequel, a Christopher Nolan epic, and more.
+---------
+
+# Game Of Thrones Killed Its Best Villain 3 Episodes Early
+
+Classic TV, Game Of Thrones, Game of Thrones
+
+Wed, 15 Apr 2026 15:30:32 GMT
+
+https://screenrant.com/game-of-thrones-kill-night-king-early/
+
+Many of the problems from Game of Thrones' final season stem from the decision to kill the show's best villain halfway through its six-episode run.
+---------
+
+# Marvel's New Iron Man/Hulk Combo Has a Vital Power All of His Own
+
+Comics, Hulk, Iron Man, Marvel
+
+Wed, 15 Apr 2026 15:24:21 GMT
+
+https://screenrant.com/marvels-new-iron-manhulk-combo-has-a-vital-power-all-of-his-own/
+
+The new Iron Hulk, explained.
+---------
+
+# PlayStation Plus Extra Free Games For April 2026 Accidentally Confirmed Early
+
+Gaming, PlayStation Plus, Triple-A Games, The Crew: Motorfest, Horizon Zero Dawn (dupe)
+
+Wed, 15 Apr 2026 15:11:56 GMT
+
+https://screenrant.com/playstation-plus-extra-april-2026-new-games-leaked/
+
+While the PlayStation Plus Game Catalog has already expanded with some remarkable titles, three more free games have been leaked for the service.
+---------
+
+# The White Lotus Season 4's First Plot Details Revealed As Filming Starts
+
+TV, The White Lotus
+
+Wed, 15 Apr 2026 15:11:55 GMT
+
+https://screenrant.com/the-white-lotus-season-4-plot-details-cannes-setting-filming-start/
+
+New plot details about The White Lotus season 4 have been revealed, confirming the location of the new episodes as filming begins.
+---------
+
+# Classic American Western Officially Set for Remake 79 Years Later With Zachary Levi
+
+Movies, Angel and the Badman, Western
+
+Wed, 15 Apr 2026 15:56:55 GMT
+
+https://www.cbr.com/angel-and-the-badman-zachary-levi-remake-trailer/
+
+Zachary Levi, Neal McDonough, and Tommy Lee Jones star in the first trailer for an upcoming remake of a classic John Wayne Western film.
+---------
+
+# Marvel Studios Loses Entire Division in Disney Layoffs
+
+Movies, Marvel, MCU, Disney, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse
+
+Wed, 15 Apr 2026 15:32:50 GMT
+
+https://www.cbr.com/disney-layoffs-entire-marvel-division/
+
+Marvel Studios just received terrible news, thanks to Disney.
+---------
+
+# JoJo's Bizarre Adventure Creator Reveals New Artwork for Hit Manga's 20th Anniversary
+
+Anime, Jojo's Bizarre Adventure, Kingdom, Hirohiko Araki
+
+Wed, 15 Apr 2026 15:31:54 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-hirohiko-araki-kingdom-anniversary-art/
+
+The iconic artist behind JoJo's Bizarre Adventure journeys to a new kingdom with a redrawing of an equally beloved manga for its 20th anniversary.
+---------
+
+# 5 Perfect Isekai Anime That Are 10/10, No Notes
+
+Anime, Isekai, Overlord
+
+Wed, 15 Apr 2026 15:15:24 GMT
+
+https://www.cbr.com/best-isekai-anime-perfect-no-flaws/
+
+Isekai anime represent some of the most popular fantasy series, with titles like KonoSuba and Overlord representing the best of the best.
+---------
+
+# Iconic '80s Sci-Fi Movie Sequel Officially Gets A First Look
+
+Comics, The Last Starfighter
+
+Wed, 15 Apr 2026 15:00:16 GMT
+
+https://www.cbr.com/last-starfighter-sequel-first-look/
+
+The Last Starfighter is finally getting a sequel, and CBR has an exclusive first look at the new series
+---------
+
+# Classic Nintendo Games That Were Almost Totally Different
+
+Games, Nintendo, retro games
+
+Wed, 15 Apr 2026 15:00:16 GMT
+
+https://www.cbr.com/best-classic-nintendo-games-changed-in-development/
+
+Many iconic Nintendo games could have been way different, as their original versions were unrecognizable during development, and changed over time.
+---------
+
+# CCXPMX Reveals The Backrooms Creator Kane Parsons As A Guest
+
+CBR Exclusives, The Backrooms
+
+Wed, 15 Apr 2026 15:00:16 GMT
+
+https://www.cbr.com/ccxpmx-2026-kane-parsons-guest-appearance-confirmed/
+
+At 20 years old, Parsons is the youngest director to work with A24 so far.
+---------
+
+# Marvel Could Reveal An Aunt May or Uncle Ben Secret That Changes Spider-Man Lore For Good
+
+Comics, Spider-Man
+
+Wed, 15 Apr 2026 15:00:16 GMT
+
+https://www.cbr.com/amazing-spider-man-26-peter-parker-cousin-mentioned/
+
+Spider-Man's latest enemy just teased a revelation that could reframe the entire history of Aunt May and Uncle Ben's relationship.
+---------
+
+# Star Trek: TNG's 'Frame of Mind' Is a Horror Masterpiece
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Wed, 15 Apr 2026 15:00:16 GMT
+
+https://www.cbr.com/star-trek-scariest-episode-frame-of-mind/
+
+Although Star Trek: The Next Generation isn't a horror series, there's one episode that still gives us nightmares.
+---------
+
+# Kevin Costner’s 8-Part Series Is the Most Unsettling Western the ‘Yellowstone’ Star Has Ever Made
+
+TV Features, Kevin Costner, Kevin Costner's The West, Yellowstone, History Channel
+
+Wed, 15 Apr 2026 15:53:34 GMT
+
+https://collider.com/kevin-costner-the-west-series-history-channel/
+
+Kevin Costner’s The West reveals the brutal, tragic truths behind the frontier myth in a far darker Western story than fans may expect.
+---------
+
+# 'The White Lotus' Season 4 Is Coming for 'The Studio's Crown With This Plot Twist
+
+TV News, The White Lotus, HBO, Mike White, The Studio
+
+Wed, 15 Apr 2026 15:30:36 GMT
+
+https://collider.com/the-white-lotus-season-4-filming-start-plot-details/
+
+HBO has officially begun filming on Season 4 of its juiciest murder mystery series, The White Lotus, revealing a The Studio-style twist.
+---------
+
+# MGM+ Is Officially Ending TV's Best Sci-Fi Horror Series After 5 Seasons
+
+TV News, From, Amazon, Harold Perrineau, Stephen King
+
+Wed, 15 Apr 2026 15:04:27 GMT
+
+https://collider.com/from-season-5-renewed-final-season-mgm-plus/
+
+MGM+ has announced that work has begun on a fifth and final season of TV's best sci-fi horror series of the century. Here's what we know.
+---------
+
+# TV's Most Underrated Serial Killer Thriller Series Returns With Captivating Case in New Sneak Peek [Exclusive]
+
+Exclusives, The Hunting Party, Melissa Roxburgh, NBC, Josh Dallas
+
+Wed, 15 Apr 2026 15:00:16 GMT
+
+https://collider.com/nbc-underrated-serial-killer-thriller-the-hunting-party-season-2-episode-10-sneak-peek/
+
+A tech genius snaps in a brand-new look at this week’s episode of The Hunting Party. Watch it here.
+---------
+
+# ‘Lord of the Rings’ Officially Found the Perfect Replacement for Aragorn
+
+Movie Features, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Jamie Dornan, Andy Serkis
+
+Wed, 15 Apr 2026 14:56:43 GMT
+
+https://collider.com/lord-of-the-rings-hunt-for-gollum-aragorn-jamie-dornan-recast/
+
+Jamie Dornan’s Aragorn may be the key to Hunt for Gollum’s success.
+---------
+
+# 'Weapons' Director Zach Cregger's Next Film 'The Flood' Announced at CinemaCon
+
+Movie News, The Flood, Zach Cregger, Steven Spielberg, Sci-Fi, CinemaCon
+
+Wed, 15 Apr 2026 15:30:24 GMT
+
+https://movieweb.com/the-flood-zach-cregger-release-date/
+
+'Weapons' director Zach Cregger is teaming with Steven Spielberg on 'The Flood,' an original sci-fi thriller, just announced at CinemaCon.
+---------
+
 # Spider-Man's Live-Action Show Is Our Best Shot At Seeing This Classic Hero After The Movies Changed Him Forever
 
 TV, Spider-Noir
