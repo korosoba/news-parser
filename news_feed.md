@@ -1,3 +1,267 @@
+# Law & Order: SVU Season 28's Release Window Confirmed By NBC
+
+TV, Law & Order: Special Victims Unit
+
+Thu, 16 Apr 2026 20:34:58 GMT
+
+https://screenrant.com/law-order-svu-season-28-renewal-release-window-nbc/
+
+NBC's long-running police procedural Law & Order: Special Victims Unit is officially returning for season 28, with the release window now revealed.
+---------
+
+# Netflix Co-Founder Exits Company After 29 Years
+
+TV, Netflix
+
+Thu, 16 Apr 2026 20:33:25 GMT
+
+https://screenrant.com/netflix-reed-hastings-exit-cofounder/
+
+Netflix's co-found Reed Hastings is shockingly leaving the massive streaming platform after nearly thirty years.
+---------
+
+# How Dr. Cox's Illness Changes Scrubs Dynamic
+
+TV, Scrubs, John C. McGinley, Zach Braff
+
+Thu, 16 Apr 2026 20:11:18 GMT
+
+https://screenrant.com/scrubs-dr-cox-future-jd-changes-after-diagnosis-explained-by-cast-creator/
+
+The Scrubs reboot sees Dr. Cox diagnosed with a rare autoimmune disease, shifting the dynamic between him and J.D. as the hospital grapples with the news.
+---------
+
+# Marvel Just Reminded Us Why Netflix’s Daredevil Is The Best Live-Action Superhero Series
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Thu, 16 Apr 2026 20:08:37 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-netflix-series-best/
+
+Many superhero fans believe that Netflix's Daredevil is the best live-action genre series, and Daredevil: Born Again season 2 just reminded us why.
+---------
+
+# Genshin Impact 6.6 Leaks: New Character Nicole's Kit Confirms She Will Be Unskippable
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Thu, 16 Apr 2026 20:00:39 GMT
+
+https://screenrant.com/genshin-impact-66-leaks-nicole-new-character-kit/
+
+The complete gameplay kit for Nicole in Genshin Impact 6.6 has been leaked, and she may be an unskippable playable character in the roster.
+---------
+
+# Phasmophobia Is Getting Its First In-Game Crossover Thanks To Legendary Horror Icon
+
+Gaming, Phasmophobia, Indie Games, PC
+
+Thu, 16 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/phasmophobia-crossover-legendary-horror-alan-wake/
+
+Phasmophobia is upping the ante of its horror during this limited-time crossover, which already looks like one of its most promising updates yet.
+---------
+
+# Invincible Reunites Two Star Trek: The Next Generation Legends
+
+TV, Star Trek: The Next Generation, Invincible, Star Trek
+
+Thu, 16 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/star-trek-the-next-generation-invincible-reunion/
+
+Two legendary actors from Star Trek: The Next Generation have secretly reunited in Prime Video's acclaimed sci-fi TV series.
+---------
+
+# Prime Video Is Changing Forever In 5 Weeks
+
+TV, Prime Video, The Boys, Masked Recs
+
+Thu, 16 Apr 2026 20:00:09 GMT
+
+https://screenrant.com/prime-video-the-boys-flagship-show-ending-may-2026/
+
+As a historic moment in Prime Video's history beckons in late May 2026, shows like Reacher, Invincible, and The Rings of Power await their fate.
+---------
+
+# Assassin's Creed: Black Flag Resynced Release Date Leaks Early
+
+Gaming, Assassin's Creed 4: Black Flag, Triple-A Games
+
+Thu, 16 Apr 2026 19:44:48 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-release-date-leak/
+
+We've been waiting ages for the Assassin's Creed: Black Flag remake to surface, and now we have an idea of when it'll drop thanks to a leak.
+---------
+
+# Michael C. Hall Had an Underrated Disney Villain Role After Dexter
+
+TV, Star vs. The Forces of Evil, Disney
+
+Thu, 16 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/dexter-michael-c-hall-played-villain-toffee/
+
+Though Michael C. Hall may always be Dexter Morgan to some, his voice acting has helped change that image, especially with one particular character.
+---------
+
+# These 10 Brutally Realistic Medical Movies Are Perfect One-Night Watches For The Pitt Fans
+
+Movies, The Pitt
+
+Thu, 16 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/realistic-medical-movies-perfect-fans-the-pitt/
+
+If you've been binging The Pitt and still have a desire to watch more harrowingly real medical drama, try these movies on for size.
+---------
+
+# Legend of Zelda: Twilight Princess Port Officially Drops New Trailer
+
+Games, The Legend of Zelda, Nintendo
+
+Thu, 16 Apr 2026 20:25:13 GMT
+
+https://www.cbr.com/zelda-twilight-princess-2026-port-new-official-trailer/
+
+Twilight Princess is one of the darkest and most ambitious Zelda games ever, and there's officially a new trailer for its latest port.
+---------
+
+# Law & Order: SVU Renewed for Season 28
+
+TV, Law & Order: Special Victims Unit
+
+Thu, 16 Apr 2026 20:16:38 GMT
+
+https://www.cbr.com/law-and-order-svu-season-28-renewed-nbc/
+
+NBC has renewed Law & Order: SVU for Season 28.
+---------
+
+# 10 Strongest Anime Characters Who Left Their Masters in the Dust
+
+Anime, Dragon Ball, One Piece, Naruto, Fullmetal Alchemist, Bleach, Demon Slayer, Hunter X Hunter, My Hero Academia, Samurai Champloo, shonen anime
+
+Thu, 16 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/strongest-anime-characters-who-surpass-their-mentors/
+
+Anime's strongest heroes become legends when they grow even more powerful than the masters who trained them.
+---------
+
+# Absolute Batman #19 Reveals Absolute Deathstroke
+
+Comics, Batman
+
+Thu, 16 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/absolute-batman-19-reveals-absolute-deathstroke/
+
+Absolute Batman finally gives the Absolute Deathstroke the introduction he deserves, and he is bringing an entire army along with him.
+---------
+
+# Sony's Helldivers Adaptation is the Perfect Successor to Starship Troopers
+
+Movies, Starship Troopers, Helldivers II, Sci-Fi
+
+Thu, 16 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/sony-helldivers-movie-perfect-starship-troopers-successor/
+
+With Sony's Helldiverse movie on the way, it could finally earn its place as the successor to what Starship Troopers started.
+---------
+
+# The Best Free JRPG Gets Even Better This April With New Persona Update
+
+Anime, Persona, Persona 5, Persona 5 Royal, atlus, sega
+
+Thu, 16 Apr 2026 19:55:36 GMT
+
+https://www.cbr.com/free-jrpg-persona-5-phantom-x-april-2026-update/
+
+Persona 5: The Phantom X welcomes Goro Akechi to its ever-growing cast of 5-Star Phantom Thieves in the latest update to the popular free JRPG.
+---------
+
+# Georgie & Mandy's First Marriage Clip: Online Shopping Terrifies Audrey
+
+TV, Georgie & Mandy's First Marriage
+
+Thu, 16 Apr 2026 19:54:43 GMT
+
+https://www.cbr.com/georgie-and-mandys-first-marriage-216-clip/
+
+EXCLUSIVE: A sneak peek at the next Georgie & Mandy's First Marriage sees Audrey concerned about the dangers of online shopping.
+---------
+
+# Christopher Meloni's 'Law & Order' Series Officially Cancelled
+
+TV News, Law and Order, Law & Order: Organized Crime, Christopher Meloni, NBC
+
+Thu, 16 Apr 2026 19:54:43 GMT
+
+https://collider.com/christopher-meloni-law-and-order-spin-off-organized-crime-season-6-cancelled/
+
+Christopher Meloni's Law & Order: Organized Crime has been shockingly cancelled by NBC after five seasons.
+---------
+
+# 10 Horror Movies Packed With Plot Twists
+
+Movie, Get Out, The Cabin in the Woods, Horror, Psycho
+
+Thu, 16 Apr 2026 19:52:13 GMT
+
+https://collider.com/horror-movies-packed-plot-twists/
+
+Martyrs, Psycho, Get Out, Cabin in the Woods, Orphan, Saw, and more make up our list of horror movies that are packed with plot twists.
+---------
+
+# 'Avatar: The Last Airbender' Animators Urge Fans Not to Watch Leaked Movie on Social Media
+
+Movie News, The Legend of Aang: The Last Airbender
+
+Thu, 16 Apr 2026 20:35:44 GMT
+
+https://movieweb.com/avatar-the-last-airbender-animators-leak/
+
+Multiple animators from 'Avatar: The Last Airbender' urged fans not to watch the film after it was leaked in its entirety online.
+---------
+
+# 'Top Gun 3' Officially Announced and Tom Cruise Is Returning
+
+Movie News, Top Gun 3, Tom Cruise, Top Gun: Maverick
+
+Thu, 16 Apr 2026 20:09:30 GMT
+
+https://movieweb.com/top-gun-3-official-tom-cruise-return/
+
+Producer Jerry Bruckheimer is also set to return for the sequel.
+---------
+
+# Jenna Ortega's 90% R-Rated Intense Drama 'The Fallout' Becomes Late-Night Sleeper Hit on HBO Max
+
+Movie News, Jenna Ortega, The Fallout, Hot on Streaming, HBO Max
+
+Thu, 16 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/the-fallout-jenna-ortega-streaming-hit-hbo-max-april-2026/
+
+Ortega gave a breakout performance in director Megan Park's debut feature, which has come out of nowhere to dethrone Sydney Sweeney on HBO Max.
+---------
+
+# 10 DC Comics Movies That Never Got Made But Should've
+
+Movie Lists, DCU
+
+Thu, 16 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/dc-comics-movies-never-made/
+
+DC Comics has a troubled history of abandoned projects and unproduced scripts, racking up a long list of movies that will never see the light of day.
+---------
+
 # Netflix's 6-Hour Sci-Fi Thriller Series With 100% Rotten Tomatoes Score Is 'Alien Meets The Thing'
 
 Classic TV, Masked Recs, Recommendation, Parasyte: The Grey, Netflix, Sci-Fi, Horror
