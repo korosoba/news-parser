@@ -1,3 +1,47 @@
+# Beef Season 2 Review: Anxiety Is The Latest Obsession For Netflix's Angry Thriller
+
+TV, Beef
+
+Thu, 16 Apr 2026 07:01:21 GMT
+
+https://screenrant.com/beef-season-2-review/
+
+Netflix's Beef returns with a season that broadens its scope, anxiety and anger coursing through a story about what it means to make it.
+---------
+
+# David Lynch's Dune Is Leaving Netflix.
+
+Movies, Dune, Netflix, Sci-Fi
+
+Thu, 16 Apr 2026 07:31:29 GMT
+
+https://www.cbr.com/david-lynch-dune-leaving-netflix-may-2026/
+
+David Lynch's 1984 Dune movie, starring Kyle MacLachlan, is leaving Netflix in May.
+---------
+
+# Beef Season 2 Review: Oscar Isaac’s Wild New Netflix Feud Is Completely Unhinged
+
+TV, Beef, Netflix
+
+Thu, 16 Apr 2026 07:01:13 GMT
+
+https://www.cbr.com/beef-season-2-review/
+
+The Netflix dark comedy series comes back as sharp as ever, this time with Oscar Isaac, Carey Mulligan, Charles Melton and Cailee Spaeny.
+---------
+
+# 'Beef' Season 2 Review: Netflix's Smash-Hit Series Never Needed To Be an Anthology
+
+TV Reviews, Beef, Netflix, Carey Mulligan, Oscar Isaac
+
+Thu, 16 Apr 2026 07:01:13 GMT
+
+https://collider.com/beef-season-2-review-netflix/
+
+Beef Season 2 attempts to expand its format, but struggles with too many storylines and characters.
+---------
+
 # Highlander Reboot: Cavill's Immortal MacLeod Battles In New Footage
 
 Movies, Highlander, CinemaCon, Henry Cavill
