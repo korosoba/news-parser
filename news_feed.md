@@ -1,3 +1,267 @@
+# Marvel Rivals: All Season 7.5 Buffs & Nerfs Explained
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Thu, 16 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/marvel-rivals-season-7-5-all-buffs-nerfs-characters/
+
+Season 7.5 of Marvel Rivals marks another important patch, with universal systems and specific heroes being adjusted for the game's greater balance.
+---------
+
+# Netflix's Little House On The Prairie Reboot: A Rival To Taylor Sheridan's Westerns
+
+Streaming TV, Little House on the Prairie
+
+Thu, 16 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/little-house-on-the-prairie-netflix-taylor-sheridan-westerns-rival-advantage/
+
+Taylor Sheridan might be the undisputed king of TV Westerns right now, but he'll soon have a new rival to contend with thanks to this Netflix reboot.
+---------
+
+# Crunchyroll Has Officially Found The Next Jujutsu Kaisen
+
+Anime, Crunchyroll, Jujutsu Kaisen, Daemons of the Shadow Realm
+
+Thu, 16 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/daemons-shadow-realm-next-jujutsu-kaisen-crunchyroll/
+
+Jujutsu Kaisen's third season has cemented the series as incredible, and Crunchyroll has just released a new series that might match its energy.
+---------
+
+# Whalefall Trailer: Epic Battle Inside A Sperm Whale Unfolds
+
+Movies, Whalefall, CinemaCon
+
+Thu, 16 Apr 2026 23:28:16 GMT
+
+https://screenrant.com/disneys-whalefall-reveals-battle-of-sea-titans-first-trailer/
+
+Disney unveils the first trailer for Whalefall, an intense survival thriller set to hit theaters in 2026. The story follows a scuba diver swallowed by a sperm whale in a desperate race against time to escape.
+---------
+
+# Normal Ending Explained: What Is The Town's Big Secret And How Does It Set Up The Film's Explosive Ending?
+
+Movies, Normal
+
+Thu, 16 Apr 2026 23:20:19 GMT
+
+https://screenrant.com/normal-ending-explained/
+
+The big secrets in Normal set the stage for some massive firefights, explosive fistfights, and sly satire about small towns in America.
+---------
+
+# Ridley Scott’s Post-Apocalyptic Sci-Fi Movie Has Jacob Elordi Reconnecting The World In Dog Stars Trailer
+
+Movies, The Dog Stars, Ridley Scott, 20th Century
+
+Thu, 16 Apr 2026 23:06:52 GMT
+
+https://screenrant.com/ridley-scott-dog-stars-movie-trailer-cinemacon-2026/
+
+20th Century unveils the first trailer for Ridley Scott's The Dog Stars, a sweeping post-apocalyptic film with a cast led by Jacob Elordi.
+---------
+
+# Dwayne Johnson’s Maui Debuts His Singing Voice In New Live-Action Moana Footage
+
+Movies, CinemaCon, Moana
+
+Thu, 16 Apr 2026 23:05:22 GMT
+
+https://screenrant.com/moana-live-action-dwayne-johnson-maui-disney-footage/
+
+Moana has proven she'll go far, and the live-action is planning on doing the same as Dwayne Johnson transforms into Maui for his singing debut.
+---------
+
+# Euphoria Star's Controversial Remake Breaks A Huge Horror Taboo
+
+Movies, Faces of Death, Euphoria, Stranger Things
+
+Thu, 16 Apr 2026 23:02:20 GMT
+
+https://screenrant.com/faces-of-death-2026-horror-movie-break-death-taboo/
+
+A shocking revelation about a controversial new horror movie starring Euphoria and Stranger Things actors leaves audiences questioning its choices.
+---------
+
+# Buffy The Vampire Slayer's Official Sequel Unveils First Look At The Series' Iconic Returning Heroes
+
+Comics, Buffy The Vampire Slayer, Buffy the Vampire Slayer
+
+Thu, 16 Apr 2026 23:00:28 GMT
+
+https://screenrant.com/buffy-vampire-slayer-sequel-first-look-characters/
+
+Buffy the Vampire Slayer’s official sequel unveils its first look at the iconic returning heroes, teasing what fans can expect from the new series.
+---------
+
+# 5 Reasons Why The Reviews For Lee Cronin's The Mummy Are So Negative
+
+Movies, Lee Cronin's The Mummy
+
+Thu, 16 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/why-lee-cronin-the-mummy-movie-negative-reviews/
+
+Lee Cronin's The Mummy has been met with middling review from critics, and while there are some positives, the negatives can't be ignored.
+---------
+
+# Dragon Ball’s Kamehameha Hasn’t Been Surpassed in 40 Years
+
+Anime, Dragon Ball
+
+Thu, 16 Apr 2026 23:26:12 GMT
+
+https://www.cbr.com/dragon-ball-kamehameha-anime-debut-40-year-anniversary/
+
+On April 16, 1986, the Dragon Ball anime officially debuted the single most influential and iconic anime attack ever created: Goku’s Kamehameha.
+---------
+
+# 8 Mid Manga That Are Only Popular Because of Anime Adaptations
+
+Anime, Sword Art Online, Demon Slayer: Kimetsu no Yaiba, Manga, One-Punch Man, Tokyo Ghoul
+
+Thu, 16 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/manga-only-popular-after-anime-adaptation/
+
+Without an anime adaptation, a lot of manga wouldn't hit nearly as hard as they do with fans.
+---------
+
+# Before The Devil Wears Prada 2, Here Are 10 Must-Watch Meryl Streep Movies
+
+Movies, Meryl Streep
+
+Thu, 16 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/before-devil-wears-prada-2-must-watch-meryl-streep-movies/
+
+Meryl Streep is one of the most acclaimed actors in cinema history, so her return as Miranda Priestly in The Devil Wears Prada 2 is very exciting.
+---------
+
+# Prime Video's Bosch Hit Shows Young Sherlock & Reacher How It's Done
+
+TV, Bosch, Crime, Reacher, Young Sherlock, Prime Video
+
+Thu, 16 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/prime-video-bosch-vs-young-sherlock-reacher/
+
+While Reacher currently dominates Prime Video, Bosch proves that classic detective storytelling still works best when it focuses on the case.
+---------
+
+# First 'Ice Age: Boiling Point' Footage Proves the Long-Running Franchise Still Isn't Extinct
+
+Movie News, Ice Age 6, Ray Romano, Denis Leary, John Leguizamo
+
+Thu, 16 Apr 2026 23:31:41 GMT
+
+https://collider.com/disney-ice-age-6-boiling-point-first-footage-description-cinemacon/
+
+Disney released the first footage of Ice Age: Boiling Point at CinemaCon ahead of the film's February 2027 release.
+---------
+
+# 10 Greatest Action Book Masterpieces, Ranked
+
+Movie, Action, Patriot Games, Books, Jurassic Park
+
+Thu, 16 Apr 2026 23:21:12 GMT
+
+https://collider.com/best-action-book-masterpieces-ranked/
+
+From modern gems like Patriot Games to certified classics like The Count of Monte Cristo, these are the best action books in the genre's long history.
+---------
+
+# Ridley Scott's First Sci-Fi Movie in 9 Years Gets a Near-Perfect First Trailer
+
+Movie News, The Dog Stars, Jacob Elordi, Josh Brolin, Margaret Qualley
+
+Thu, 16 Apr 2026 23:18:19 GMT
+
+https://collider.com/ridley-scott-sci-fi-movie-the-dog-stars-trailer-jacob-elordi-josh-brolin/
+
+Ridley Scott's first original sci-fi movie in decades has been revealed in the first trailer for The Dog Stars. See it here!
+---------
+
+# Every 'Peaky Blinders' Season, Ranked
+
+TV, Peaky Blinders, Crime, Drama, Netflix
+
+Thu, 16 Apr 2026 23:12:12 GMT
+
+https://collider.com/peaky-blinders-seasons-ranked/
+
+Peaky Blinders has surprised fans at every turn, but which season was the best?
+---------
+
+# 10 Years Later, Dwayne Johnson Reprises His Best Role in New Look at Disney's 'Moana' Remake
+
+Movie News, Moana, Dwayne Johnson, Disney
+
+Thu, 16 Apr 2026 23:06:21 GMT
+
+https://collider.com/moana-live-action-remake-footage-description/
+
+10 years later, Dwayne Johnson is back in action as CinemaCon attendees get a fresh look at Disney's Moana remake. Here's what we saw.
+---------
+
+# The Most Stellar Series in Comedy History Is Still Untouchable 6 Years Later
+
+TV Features, Schitt's Creek, Dan Levy, Eugene Levy, Catherine O'Hara
+
+Thu, 16 Apr 2026 22:58:12 GMT
+
+https://collider.com/schitts-creek-stellar-comedy-apple-tv-streaming/
+
+Schitt's Creek continues to find new viewers on streaming six years after its series finale, proving its untouchable status in the realm of comedy TV.
+---------
+
+# 10 Most Perfect DC Movie Opening Scenes, Ranked
+
+Movie, Batman: Mask of the Phantasm, The Dark Knight, DC Comics, Superhero
+
+Thu, 16 Apr 2026 22:54:12 GMT
+
+https://collider.com/most-perfect-dc-comics-movie-opening-scenes-ranked/
+
+DC Comics movies like The Dark Knight, Watchmen, and Superman have some of the best opening scenes in superhero genre history.
+---------
+
+# Playtime Is Over for Jessie and Her Friends in New 'Toy Story 5' Footage
+
+Movie News, Toy Story 5, Tim Allen, Tom Hanks, CinemaCon
+
+Thu, 16 Apr 2026 22:50:05 GMT
+
+https://collider.com/toy-story-5-footage-description-cinemacon-jessie-joan-cusack/
+
+Woody, Buzz, and the rest of the gang face their biggest challenge yet in some brand-new footage for Pixar's Toy Story 5.
+---------
+
+# 'The Mandalorian & Grogu' Is Inspired by 'Flash Gordon,' Jon Favreau Explains [Exclusive]
+
+Exclusives, The Mandalorian and Grogu, Jon Favreau, Star Wars
+
+Thu, 16 Apr 2026 22:40:16 GMT
+
+https://movieweb.com/mandalorian-grogu-flash-gordon-original-vision/
+
+During an exclusive set visit, Jon Favreau shared how the new 'Star Wars' movie will take inspiration from the same sci-fi as the 70s original.
+---------
+
+# Final 'Star Wars: The Mandalorian and Grogu' Trailer Released
+
+Movie News, The Mandalorian and Grogu, Star Wars, Pedro Pascal
+
+Thu, 16 Apr 2026 22:33:25 GMT
+
+https://movieweb.com/star-wars-mandalorian-and-grogu-final-trailer/
+
+The trailer offers us one last fresh glimpse at the big-screen adventure.
+---------
+
 # After Almost 40 Years, It's Officially The End Of An Era For Disney
 
 Movies, Disney, Dupes
