@@ -1,3 +1,399 @@
+# Reacher's Confirmed 2026 Release Revives Prime Video's Best TV Rivalry
+
+TV, Reacher, Tom Clancy's Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Thu, 16 Apr 2026 18:02:09 GMT
+
+https://screenrant.com/reacher-2026-return-prime-video-rivalry/
+
+Reacher season 4 and Jack Ryan's movie both come out this year, setting the stage for a showdown between Prime Video's iconic action hero franchises.
+---------
+
+# Netflix's New Stranger Things Release Officially Debuts In 1 Week Right At The Perfect Time
+
+TV, Stranger Things, Stranger Things: Tales from '85, Netflix, Quiz CV
+
+Thu, 16 Apr 2026 18:00:36 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-netflix-series-release-sci-fi-boost/
+
+Stranger Things' new release is only one week away, and the Netflix Sci-Fi series could not be coming at a better time for fans of the genre.
+---------
+
+# Frank Ocean Kiki Boy Rumors: 10 Clues He’s Releasing New Music
+
+Music, Frank Ocean, Coachella
+
+Thu, 16 Apr 2026 17:50:35 GMT
+
+https://screenrant.com/frank-ocean-2026-kiki-boy-rumors-clues/
+
+From the Coachella Kiki Boy billboards to @kikiboyyyyyyy, here are 10 proven clues that Frank Ocean is dropping a new album in 2026.
+---------
+
+# Jackass 5 Trailer Announces New Cast Member As Final Movie Reunites OG Stars
+
+Movies, CinemaCon, Jackass 5
+
+Thu, 16 Apr 2026 17:50:10 GMT
+
+https://screenrant.com/jackass-5-trailer-paramount-announcement/
+
+The boys are back in town, and Jackass 5 promises more laughs and more pain.
+---------
+
+# Rooster: HBO's Excellent New Comedy That Feels Like Shrinking Meets The Office
+
+Streaming TV, Masked Recs, Dupes
+
+Thu, 16 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/rooster-hbo-steve-carell-sitcom-shrinking-the-office/
+
+If you love the combined heart and comedy of Steve Carell's The Office and Apple TV's Shrinking, HBO's new 10-part series is an absolute must-watch.
+---------
+
+# Taylor Sheridan’s Upcoming Call Of Duty Adaptation Release Date Confirmed By Paramount
+
+Movies, Call of Duty, Paramount Pictures, CinemaCon, Taylor Sheridan
+
+Thu, 16 Apr 2026 17:37:30 GMT
+
+https://screenrant.com/taylor-sheridan-call-of-duty-movie-release-date-2028-paramount/
+
+Paramount officially reveals the release date for Taylor Sheridan's Call of Duty adaptation, while also teasing the large scale of the movie's action.
+---------
+
+# Tyler Perry's Long-Running Political Series Officially Premieres On Paramount+ In A Sudden Season 7 Move
+
+TV, The Oval
+
+Thu, 16 Apr 2026 17:35:34 GMT
+
+https://screenrant.com/tyler-perry-the-oval-season-7-paramount-plus-change/
+
+With little advanced promotion, Tyler Perry's seven-part political thriller series has made a sudden and surprising drop on Paramount+.
+---------
+
+# Ana De Armas' Action-Packed Thriller Breaks Franchise Rules On HBO Max
+
+Movies, Masked Recs
+
+Thu, 16 Apr 2026 17:30:28 GMT
+
+https://screenrant.com/ballerina-ana-de-armas-spinoff-broke-john-wick-rules/
+
+Ana de Armas' John Wick spinoff, Ballerina, is trending on HBO Max, and the action thriller will surprise those who think they know the franchise.
+---------
+
+# Star Trek’s Movie Future Officially Confirmed By Paramount
+
+Movies, Star Trek, CinemaCon
+
+Thu, 16 Apr 2026 17:29:27 GMT
+
+https://screenrant.com/star-trek-movie-future-paramount-confirmed-cinemacon/
+
+Star Trek's movie future has officially been confirmed by Paramount, who've revealed new details about the sci-fi franchise's next chapter.
+---------
+
+# New World War Z Movie Officially Confirmed After David Fincher Sequel Cancellation
+
+Movies, World War Z 2, World War Z, Horror, Paramount Pictures
+
+Thu, 16 Apr 2026 17:28:30 GMT
+
+https://screenrant.com/new-world-war-z-movie-confirmed-paramount-cinemacon/
+
+Paramount is officially moving forward with a new World War Z movie after previously cancelling development on a sequel from David Fincher.
+---------
+
+# Invincible Fans Must Read This Underrated Comic
+
+Comics, Wildstorm, Invincible, planetary
+
+Thu, 16 Apr 2026 18:00:13 GMT
+
+https://www.cbr.com/forgotten-wildstorm-comic-must-read-for-invincible-fans/
+
+Invincible won a devoted fan base of comic readers by blending major superhero universes into one, but a forgotten '90s indie title got there first.
+---------
+
+# Paramount Seals Star Trek's Future Amid Starfleet Academy Cancellation
+
+Movies, Star Trek, paramount pictures, CinemaCon
+
+Thu, 16 Apr 2026 17:55:51 GMT
+
+https://www.cbr.com/star-trek-new-movie-confirmed-paramount-cinemacon/
+
+Star Trek is set to boldly go where the franchise has gone before.
+---------
+
+# 13 Years Later, World War Z Is Finally Getting Its Sequel
+
+Movies, World War Z 2, World War Z
+
+Thu, 16 Apr 2026 17:46:39 GMT
+
+https://www.cbr.com/world-war-z-sequel-confirmed/
+
+The sequel to the smash hit zombie movie is finally moving forward.
+---------
+
+# Taylor Sheridan's Call of Duty Officially Sets Release Date
+
+Movies, Call of Duty
+
+Thu, 16 Apr 2026 17:45:55 GMT
+
+https://www.cbr.com/taylor-sheridan-call-of-duty-release-date/
+
+The highly anticipated adaptation is heading to theaters... not very soon.
+---------
+
+# Disney Finally Confirms Daredevil's Netflix Canon Was Key to the MCU
+
+TV, Daredevil: Born Again, Daredevil
+
+Thu, 16 Apr 2026 17:30:20 GMT
+
+https://www.cbr.com/disney-confirms-key-daredevil-netflix-mcu-canon/
+
+Season of Daredevil: Born Again continues to highlight how making the original series MCU canon only strengthened the revival show.
+---------
+
+# Clayface is The Most Important DCU Film Ever
+
+Movies, Clayface, DCU, Superman
+
+Thu, 16 Apr 2026 17:30:20 GMT
+
+https://www.cbr.com/clayface-most-important-dcu-film/
+
+Suerman proved the DC Universe can work in theaters, but the true fate of the DCU rests in the hands of Clayface.
+---------
+
+# Zorro Returns in Sneak Peek at Swashbuckling New Series
+
+TV, Zorro
+
+Thu, 16 Apr 2026 17:28:27 GMT
+
+https://www.cbr.com/zorro-2026-mhz-choice-sneak-peek/
+
+Everyone's favorite swordsman is back in an all-new series coming this summer.
+---------
+
+# Top Gun 3 Officially In the Works With Tom Cruise
+
+Movies, Top Gun 3, Action
+
+Thu, 16 Apr 2026 17:28:16 GMT
+
+https://www.cbr.com/top-gun-3-tom-cruise-returning/
+
+Paramount has officially confirmed that Tom Cruise will return in Top Gun 3, now in the works.
+---------
+
+# Top Pokémon Winds & Waves Starter Wins Landslide Victory
+
+Anime, Pokemon
+
+Thu, 16 Apr 2026 17:17:35 GMT
+
+https://www.cbr.com/pokemon-winds-and-waves-best-starter-win-pombon/
+
+The top starter from the upcoming Pokémon Winds & Waves becomes the number one choice by a surprisingly wide margin.
+---------
+
+# 10 Open-World PS2 Games Nobody Remembers
+
+Games, PlayStation 2, Video Games
+
+Thu, 16 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/ps2-open-world-games-forgotten/
+
+PS2 released plenty of great games open-world that were forgotten over the years, including Jaws Unleashed and Scarface: The World Is Yours.
+---------
+
+# One of the Highest-Grossing Zombie Movies Ever Made Is Finally Getting a Sequel
+
+Movie News, World War Z
+
+Thu, 16 Apr 2026 17:57:46 GMT
+
+https://collider.com/world-war-z-sequel-officially-confirmed-paramount-cinemacon/
+
+After 13 years, the World War Z sequel is back in development following Paramount’s CinemaCon announcement.
+---------
+
+# Paramount Just Dropped a Bombshell About Star Trek's Future
+
+Movie News, Star Trek, Paramount, CinemaCon, Sci-Fi
+
+Thu, 16 Apr 2026 17:49:40 GMT
+
+https://collider.com/star-trek-movie-in-development-franchise-future-expansion-plans/
+
+At CinemaCon, Paramount confirmed major details about the future of the Star Trek franchise just weeks after cancelling the newest series.
+---------
+
+# 'Teenage Mutant Ninja Turtles: Mutant Mayhem' Sequel Officially Confirms the Villain Fans Have Been Waiting For
+
+Movie News, Ninja Turtles, Teenage Mutant Ninja Turtles: Mutant Mayhem, Teenage Mutant Ninja Turtles: Mutant Mayhem 2, Seth Rogen
+
+Thu, 16 Apr 2026 17:44:17 GMT
+
+https://collider.com/teenage-mutant-ninja-turtles-mutant-mayhem-2-villains-shredder-krang-confirmed-cinemacon/
+
+Teenage Mutant Ninja Turtles: Mutant Mayhem 2 will officially bring Shredder and Krang back to the big screen.
+---------
+
+# First 'Sonic the Hedgehog 4' Footage Officially Confirms the Return of Jim Carrey
+
+Movie News, Sonic the Hedgehog 4, Ben Schwartz, Jim Carrey, CinemaCon
+
+Thu, 16 Apr 2026 17:33:43 GMT
+
+https://collider.com/sonic-the-hedgehog-4-footage-description-jim-carrey-return-confirmed-cinemacon/
+
+Paramount brought Sonic the Hedgehog to this year's CinemaCon with a sneak peek at the Blue Blur's next movie, featuring the return of Jim Carrey.
+---------
+
+# 'Top Gun: Maverick' Sequel Officially Confirmed
+
+Movie News, top gun, Top Gun: Maverick, Tom Cruise, CinemaCon
+
+Thu, 16 Apr 2026 17:30:36 GMT
+
+https://collider.com/top-gun-3-maverick-sequel-officially-confirmed-script-in-development/
+
+Top Gun: Maverick’s long-awaited sequel has been officially confirmed by Paramount at CinemaCon with a major update.
+---------
+
+# Taylor Sheridan's 'Call of Duty' Movie Sets Release Date
+
+Movie News, CinemaCon, Taylor Sheridan, Call of Duty
+
+Thu, 16 Apr 2026 17:29:07 GMT
+
+https://collider.com/taylor-sheridan-call-of-duty-movie-release-date-confirmed/
+
+Paramount unveiled new Call of Duty movie details at CinemaCon, confirming Peter Berg and Taylor Sheridan’s adaptation is set for June 30, 2028.
+---------
+
+# 'Invincible' Fans Have Officially Been Proven Completely Wrong in Season 4
+
+TV Features, Invincible, Prime Video, Lee Pace, Steven Yeun
+
+Thu, 16 Apr 2026 17:23:14 GMT
+
+https://collider.com/invincible-season-4-episode-7-lee-pace-thragg-performance/
+
+In a single episode, Lee Pace proved why Grand Regent Thragg is Invincible's greatest villain.
+---------
+
+# 7 Prime Video Shows That Get Better With Every Episode
+
+TV, Prime Video, The Boys, Fallout, Reacher
+
+Thu, 16 Apr 2026 17:18:12 GMT
+
+https://collider.com/prime-video-shows-better-every-episode/
+
+The Boys, Fallout, Reacher, Cross, Jury Duty, and more make up our list of Prime Video shows that get better with every episode.
+---------
+
+# 10 Greatest Fantasy Movies of the Last 50 Years, Ranked
+
+Movie, Fantasy, The Lord of the Rings, Pan's Labyrinth, The Empire Strikes Back
+
+Thu, 16 Apr 2026 17:08:13 GMT
+
+https://collider.com/best-fantasy-movies-last-50-years-ranked/
+
+The Lord of the Rings Trilogy, Pan's Labyrinth, and Shrek 2 are all among the absolute best fantasy movies of the last 50 years.
+---------
+
+# Netflix's New Revenge Thriller Remake Series Unleashes Brutal New Trailer
+
+TV News, Man on Fire, Yahya Abdul-Mateen II, Bobby Cannavale, Netflix
+
+Thu, 16 Apr 2026 17:00:12 GMT
+
+https://collider.com/man-on-fire-trailer-remake-series-netflix-yahya-abdul-mateen/
+
+Discover the gripping Netflix adaptation of Man on Fire, starring Yahya Abdul-Mateen II. Watch the intense trailer before the series arrives soon!
+---------
+
+# 22 Years Later, 'Samurai Champloo' is an Unexpected Digital Streaming Success on Apple
+
+TV News, Samurai Champloo, Apple TV, Hot on Streaming, Action
+
+Thu, 16 Apr 2026 18:00:19 GMT
+
+https://movieweb.com/samurai-champloo-streaming-success-apple-store-april-2026-action/
+
+Shinichiro Watanabe's 'Cowboy Bebop' prequel, 'Samurai Champloo,' is a digital streaming success on Apple before the live-action remake.
+---------
+
+# A New 'World War Z' Movie Officially in Development at Paramount
+
+Movie News, World War Z, World War Z 2
+
+Thu, 16 Apr 2026 17:41:35 GMT
+
+https://movieweb.com/world-war-z-new-movie-official/
+
+The first film starred Brad Pitt and took in $540 million worldwide.
+---------
+
+# 'Godzilla Minus Zero' Director Teases "Best Kaiju Sequences" in Sequel
+
+Movie News, Godzilla Minus Zero
+
+Thu, 16 Apr 2026 17:19:09 GMT
+
+https://movieweb.com/godzilla-minus-zero-best-kaiju-sequence/
+
+Director Takashi Yamazaki teases more epic Godzilla moments for the 'Godzilla Minus One' sequel, but also a deeper human drama.
+---------
+
+# Iconic Gunslinger Characters in Anime
+
+Movie Lists, Anime
+
+Thu, 16 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/anime-gunslinger-characters-iconic/
+
+Gunslinging action is at the forefront of many classic and cult-favorite anime; these are the best to take up arms.
+---------
+
+# The 'Scrubs' Revival Finale Sets up 5 New Storylines for Season 2 to Continue
+
+TV Lists, Scrubs
+
+Thu, 16 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/new-scrubs-revival-storylines-season-2/
+
+ABC hasn't yet renewed the 'Scrubs' revival for another season, but it's obvious the writers want to do more episodes.
+---------
+
+# 'Lee Cronin's The Mummy' Gets Mixed Rotten Tomatoes Score
+
+Movie News, Lee Cronin's The Mummy
+
+Thu, 16 Apr 2026 16:52:20 GMT
+
+https://movieweb.com/lee-cronin-the-mummy-rotten-tomatoes/
+
+While some praised the film's gore, others noted how it is more of an exorcism movie wrapped up in a mummy movie.
+---------
+
 # All 13 Fights Confirmed For Street Fighter's 2026 Movie
 
 New Movies, Street Fighter
