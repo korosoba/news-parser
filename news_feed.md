@@ -1,3 +1,322 @@
+# The White Lotus Meets Yellowstone In Netflix's The Hunting Wives
+
+Streaming TV, The Hunting Wives
+
+Thu, 16 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/hunting-wives-netflix-white-lotus-meets-yellowstone/
+
+Netflix took the wildest parts of The White Lotus and Yellowstone, and blended them up into this bonkers thriller series that's getting a season 2.
+---------
+
+# Young Sylvester Stallone Refuses To Back Down In I Play Rocky Trailer
+
+Movies, I Play Rocky, CinemaCon
+
+Thu, 16 Apr 2026 14:46:44 GMT
+
+https://screenrant.com/i-play-rocky-cinemacon-trailer-description/
+
+The young Sylvester Stallone shows the eye of the tiger while making his masterpiece in a new trailer for the upcoming biopic I Play Rocky.
+---------
+
+# Lee Cronin's The Mummy Rotten Tomatoes Score Revealed: Does Blumhouse's Version Beat Brendan Fraser's Iconic Movies?
+
+Movies, Lee Cronin's The Mummy, The Mummy
+
+Thu, 16 Apr 2026 14:33:59 GMT
+
+https://screenrant.com/lee-cronins-the-mummy-rotten-tomatoes-score/
+
+Blumhouse and Lee Cronin have teamed up for a reimagined R-rated version of The Mummy, and now its Rotten Tomatoes score has been revealed.
+---------
+
+# New Girl: The Friends Replacement That Fixed Its Biggest Flaws
+
+Classic TV, Masked Recs
+
+Thu, 16 Apr 2026 14:30:20 GMT
+
+https://screenrant.com/new-girl-friends-replacement-better-show/
+
+The best Friends replacement has a near-perfect Rotten Tomatoes score, and with good reason, as it greatly improved on it and fixed its mistakes.
+---------
+
+# Guy Ritchie & Jason Statham's Best Action Thriller Will Be Free To Stream This May
+
+Movies, Masked Recs, Jason Statham, Guy Ritchie
+
+Thu, 16 Apr 2026 14:27:18 GMT
+
+https://screenrant.com/guy-ritchie-jason-statham-wrath-of-man-movie-streaming-free/
+
+Guy Ritchie and Jason Statham have collaborated on quite a few movies together, and their best action thriller is coming to streaming next month.
+---------
+
+# John Krasinski's Jack Ryan Gets Into R-Rated Ghost War In New Trailer For Prime Video Movie
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan, John Krasinski
+
+Thu, 16 Apr 2026 14:16:28 GMT
+
+https://screenrant.com/jack-ryan-ghost-war-movie-trailer-prime-video-john-krasinski/
+
+After three years, John Krasinski is returning as Jack Ryan in the film Jack Ryan: Ghost War, which just released an action-packed new trailer.
+---------
+
+# Why The Back To The Future Musical Took Over 10 Years To Get Right Explained By Bob Gale
+
+Interviews, Back to the Future
+
+Thu, 16 Apr 2026 14:11:46 GMT
+
+https://screenrant.com/back-to-the-future-musical-bob-gale-10-year-delay-interview/
+
+Back to the Future's Bob Gale breaks down the decade-long journey to turning his classic feature into a musical and how the story fits the stage.
+---------
+
+# Netflix's 10/10 Thriller Series Returns For Season 2 With Stellar Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Thu, 16 Apr 2026 14:08:48 GMT
+
+https://screenrant.com/beef-season-2-rotten-tomatoes-score-netflix-reviews/
+
+After three years, one of Netflix's best thriller series has returned for season 2, and it has debuted with an impressive Rotten Tomatoes score.
+---------
+
+# PlayStation Plus Gamers Treated To Unexpected April Freebie
+
+Gaming, PlayStation Plus, Overwatch, Live Service Games, PC
+
+Thu, 16 Apr 2026 14:01:31 GMT
+
+https://screenrant.com/playstation-plus-free-bonus-april-2026-overwatch/
+
+Even though the majority of the offers on PlayStation Plus revolve around exciting new games, there are several free downloads to enjoy.
+---------
+
+# 10 Surprising Revelations From Becoming Led Zeppelin Documentary
+
+Movies, Led Zeppelin, Becoming Led Zeppelin, Classic Rock, Rock, Music
+
+Thu, 16 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/becoming-led-zeppelin-documentary-revelations/
+
+Discover the unfiltered history of rock’s biggest icons. Explore 10 revelations from Becoming Led Zeppelin following its 4K Blu-ray release April 14.
+---------
+
+# After a 5-Year Wait, New James Bond Gets Encouraging Casting Update From Amazon MGM
+
+Movies, James Bond
+
+Thu, 16 Apr 2026 15:05:37 GMT
+
+https://www.cbr.com/james-bond-casting-update-amazon-mgm-studios-cinemacon/
+
+Since Daniel Craig's final Bond film, multiple actors have been fancast as the greatest secret agent of all time.
+---------
+
+# Mass Effect Remains the Most Addictive Sci-Fi Franchise of All Time
+
+Games, Mass Effect, Video Games
+
+Thu, 16 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/mass-effect-most-addictive-sci-fi-franchise-of-all-time/
+
+No sci-fi franchise in all of gaming can compare to Mass Effect.
+---------
+
+# Doc Is Perfect Western for Tombstone Fans
+
+Movies, Doc
+
+Thu, 16 Apr 2026 14:30:14 GMT
+
+https://www.cbr.com/doc-stacy-keach-best-western-tombstone-fans/
+
+While Doc tells the same story fans know and love, it tells it from Doc Holliday's perspective -  a welcoming change for fans of the titular character
+---------
+
+# DC Reveals Clayface Horror Project Ahead Major Movie Event
+
+Comics, Clayface
+
+Thu, 16 Apr 2026 14:30:14 GMT
+
+https://www.cbr.com/dc-comics-clayface-celebrity-dirt-1-release-date-confirmed/
+
+Clayface fans get another exciting project to look forward to before the character makes his DCU debut.
+---------
+
+# 5 Greatest Star Trek Team-Ups Ever
+
+TV, Star Trek, Star Trek: The Next Generation, Star Trek: Deep Space Nine, Sci-Fi
+
+Thu, 16 Apr 2026 14:30:14 GMT
+
+https://www.cbr.com/best-star-trek-team-ups-list/
+
+Star Trek would be nowhere without its characters, and these team-ups highlight why the franchise has endured for so long.
+---------
+
+# Masters of the Universe Movie Poses a Disturbing Question About Skeletor in New Trailer
+
+Movies, Masters of the Universe
+
+Thu, 16 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/masters-of-the-universe-movie-skeletor-winner-question/
+
+The latest addition to the He-Man universe is chock full of fan favorite characters, vivid colors, and an emphasis on empathy.
+---------
+
+# Masterpiece's 100% RT British Detective Series Is Officially Returning for Season 2
+
+TV News, Maigret, PBS, Mystery, British TV
+
+Thu, 16 Apr 2026 15:00:13 GMT
+
+https://collider.com/maigret-season-2-renewed-pbs-masterpiece/
+
+PBS Masterpiece has picked up its contemporary British detective series adaptation, Maigret, for a second season.
+---------
+
+# Netflix's 'Big Mouth' Replacement Goes Buck-Wild in Unforgettable First R-Rated Trailer
+
+TV News, Mating Season, Nick Kroll, June Diane Raphael, Zach Woods
+
+Thu, 16 Apr 2026 15:00:13 GMT
+
+https://collider.com/netflix-big-mouth-replacement-r-rated-mating-season-trailer/
+
+Discover the hilarious new Netflix animated series Mating Season, where animal instincts collide with human foibles in a wild comedy.
+---------
+
+# Rosamund Pike Leaves ‘The Wheel of Time’ Behind in Side-Splitting First Trailer for New Netflix Movie
+
+Movie News, Rosamund Pike, The Wheel of Time, Netflix, Sacha Baron Cohen
+
+Thu, 16 Apr 2026 14:30:15 GMT
+
+https://collider.com/rosamund-pike-ladies-first-netfix-movie-trailer-sacha-baron-cohen/
+
+Netflix has officially released the first trailer for Ladies First, its new comedy starring Rosamund Pike and Sacha Baron Cohen.
+---------
+
+# We Saw 20 Minutes of the New He-Man Movie and It Is Officially the Most Ambitious ‘80s Adaptation Yet
+
+Movie News, Masters of the Universe, Nicholas Galitzine, Camila Mendes, Travis Knight
+
+Thu, 16 Apr 2026 14:27:35 GMT
+
+https://collider.com/he-man-movie-masters-of-the-universe-sneak-peek-footage-20-minutes/
+
+We got a sneak peek of Amazon MGM's live-action Masters of the Universe, featuring 20 minutes of never-before-seen footage. Here's what we saw.
+---------
+
+# Every Iron Maiden Studio Album Released in the 80s, Ranked
+
+Music Features, Iron Maiden: Maiden England, Music, Iron Maiden and The New Wave of British Heavy Metal, Rock, Lists, Classic Albums: Iron Maiden - The Number of the Beast, Iron Maiden: Rock In Rio, The Prisoner, Orson Scott Card
+
+Thu, 16 Apr 2026 14:15:13 GMT
+
+https://collider.com/iron-maiden-80s-studio-albums-ranked/
+
+From The Number of the Beast to Killers to Powerslave to Somewhere in Time, the definitive ranking of Iron Maiden's studio albums released in the 80s.
+---------
+
+# Prime Video’s ‘Jack Ryan’ Debuts Electric First Trailer ‘Reacher’ Fans Will Love
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, John Krasinski, Prime Video, Reacher
+
+Thu, 16 Apr 2026 14:00:56 GMT
+
+https://collider.com/prime-video-jack-ryan-ghost-war-trailer-release-date-may-20/
+
+Prime Video has released the first official trailer for the Jack Ryan movie, titled Ghost War, which begins streaming on May 20.
+---------
+
+# Robert Eggers' 'Werwulf' Trailer Scares CinemaCon With Brutal Aaron Taylor-Johnson Transformation
+
+Movie News, Werwulf, Robert Eggers, Aaron Taylor-Johnson
+
+Thu, 16 Apr 2026 15:04:56 GMT
+
+https://movieweb.com/werwulf-trailer-cinema-con/
+
+The first look at 'Werwulf' was revealed at CinemaCon this week, and the trailer description teases a brutal transformation for Aaron Taylor-Johnson.
+---------
+
+# Streaming's Near-Perfect Sci-Fi Thriller 'From' Returns This Weekend As Season 5 Confirmed
+
+TV News, From, Streaming Recommendations, Sci-Fi, Horror
+
+Thu, 16 Apr 2026 14:18:22 GMT
+
+https://movieweb.com/from-season-4-sci-fi-thriller-streaming-return-mgm-plus-april-2026/
+
+'From' Season 4 debuts this weekend on MGM+, making now the perfect time to start binge-watching what some have called "the best show on TV."
+---------
+
+# 'Jack Ryan: Ghost War' Trailer Finds Brings John Krasinski Action Thriller Back to Amazon
+
+Movie News, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, Action, Thriller
+
+Thu, 16 Apr 2026 14:13:31 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-trailer-action/
+
+John Krasinski returns as Jack Ryan, with the feature-length sequel to the hit series due to debut on streaming in May.
+---------
+
+# 'Focker In-Law' Trailer Teases Ariana Grande's Role in Ben Stiller Sequel at CinemaCon
+
+Movie News, Focker-In-Law, Meet the Parents, Meet the Fockers, Little Fockers, CinemaCon
+
+Thu, 16 Apr 2026 14:08:24 GMT
+
+https://movieweb.com/focker-in-law-trailer-cinemacon/
+
+Universal debuted the first trailer for 'Focker In-Law' at CinemaCon, introducing Ariana Grande to the Robert De Niro and Ben Stiller sequel.
+---------
+
+# ‘Daredevil’s Action Scene Owes the Greatest Revenge Thriller of All Time
+
+Features, Daredevil, Daredevil: Born Again, MCU, Oldboy, Thriller
+
+Thu, 16 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/daredevil-action-thriller-oldboy/
+
+'Daredevil's best fight scene draws inspiration from an infamous revenge thriller that helped define the style.
+---------
+
+# Amazon MGM Chief Promises 'Bond 26' Will Be a 'Truly Worthy' Continuation
+
+Movie News, James Bond, James Bond 26
+
+Thu, 16 Apr 2026 13:23:49 GMT
+
+https://movieweb.com/amazon-007-update-worthy-bond-legacy/
+
+The studio's CinemaCon panel was light on 007 news, but not without its promises.
+---------
+
+# 'Daredevil: Born Again' Creators on Bullseye’s Mindset After Killing Major Character [Exclusive]
+
+TV News, Daredevil: Born Again, MCU, Disney+
+
+Thu, 16 Apr 2026 13:16:15 GMT
+
+https://movieweb.com/daredevil-born-again-bullseye-foggy/
+
+Episode 5 of 'Daredevil: Born Again' explored a side to Bullseye that nobody saw coming.
+---------
+
 # Street Fighter Trailer
 
 Movies, Street Fighter, CinemaCon
