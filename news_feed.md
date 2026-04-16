@@ -1,3 +1,322 @@
+# Netflix's 6-Hour Sci-Fi Thriller Series With 100% Rotten Tomatoes Score Is 'Alien Meets The Thing'
+
+Classic TV, Masked Recs, Recommendation, Parasyte: The Grey, Netflix, Sci-Fi, Horror
+
+Thu, 16 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/parasyte-the-grey-netflix-show-alien-meets-the-thing/
+
+John Carpenter's nightmarish approach to human anatomy meets the parasitic paranoia of the Alien movies in one unforgettable Netflix series.
+---------
+
+# Netflix's 5-Part Spy Thriller Series With Strong Rotten Tomatoes Score Is The Perfect One-Night Weekend Binge
+
+TV, Masked Recs
+
+Thu, 16 Apr 2026 19:20:19 GMT
+
+https://screenrant.com/treason-netflix-spy-thriller-series-must-watch/
+
+Those looking for a Netflix spy thriller series should check out this five-episode show with an intense story, a shocking twist, and a talented cast.
+---------
+
+# Assassin's Creed Black Flag Resynced Revealed In Ubisoft Connect Update
+
+Gaming, Assassin's Creed 4: Black Flag, Assassin's Creed, Triple-A Games, PC
+
+Thu, 16 Apr 2026 19:14:35 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-ubisoft-connect-reveal/
+
+Ubisoft just dropped a first look at Assassin's Creed: Black Flag Resynced in its official PC client, with Edward Kenway front and center.
+---------
+
+# A Quiet Place 3 Return Teased By John Krasinski Amid Exciting Production Update
+
+Movies, A Quiet Place Part III, A Quiet Place, CinemaCon
+
+Thu, 16 Apr 2026 18:51:29 GMT
+
+https://screenrant.com/a-quiet-place-3-bigger-tease-production-update-john-krasinski/
+
+Ahead of A Quiet Place Part 3's theatrical release in summer 2027, John Krasinski teased the scale of the sequel and production status at CinemaCon.
+---------
+
+# Johnny Depp's Dark Scrooge Meets Ian McKellen's Ghost In Haunting Christmas Carol Remake
+
+Movies, Johnny Depp, Ian McKellen, A Christmas Carol, CinemaCon
+
+Thu, 16 Apr 2026 18:51:17 GMT
+
+https://screenrant.com/ebenezer-a-christmas-carol-teaser-footage-description/
+
+Johnny Depp brings a chilling new take on Ebenezer Scrooge, influenced by the 1951 Alastair Sim adaptation, and is visited by Ian McKellen's ghostly Jacob Marley in the first footage from the upcoming Christmas Carol remake.
+---------
+
+# Children Of Blood & Bone Trailer Reveals Paramount's Epic Fantasy Adaptation Of Best-Selling Novel
+
+Movies, CinemaCon, Children of Blood and Bone
+
+Thu, 16 Apr 2026 18:47:33 GMT
+
+https://screenrant.com/children-of-blood-bone-trailer-paramount/
+
+Paramount has shown a trailer for Children of Blood & Bone that has everyone talking, and cast members speak about the upcoming adaptation.
+---------
+
+# Apple TV's Neuromancer Adaptation Will Be The Matrix Meets Blade Runner
+
+Streaming TV, Neuromancer
+
+Thu, 16 Apr 2026 18:45:19 GMT
+
+https://screenrant.com/neuromancer-apple-tv-matrix-meets-blade-runner/
+
+Apple TV has an exciting upcoming cyberpunk series, which promises to be the perfect blend of fan-favorite sci-fi movies, The Matrix and Blade Runner.
+---------
+
+# Brad Pitt & His Dog Embark On Intense Survival Journey In First Trailer For David Ayer’s Heart Of The Beast
+
+Movies, Heart of the Beast, Brad Pitt, CinemaCon
+
+Thu, 16 Apr 2026 18:43:11 GMT
+
+https://screenrant.com/brad-pitt-david-ayer-heart-of-the-beast-cinemacon-2026-paramount/
+
+Brad Pitt is about to star in a new survivor film called Heart of the Beast, directed by David Ayer, and the trailer just made its debut at CinemaCon.
+---------
+
+# Sonic the Hedgehog 4 Footage Reveals First Look At Amy Rose & Jim Carrey's Robotnik Return
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog, CinemaCon
+
+Thu, 16 Apr 2026 18:41:38 GMT
+
+https://screenrant.com/sonic-the-hedgehog-4-jim-carrey-return-cinemacon-2026-paramount/
+
+Paramount has provided an update on Sonic the Hedgehog 4 at CinemaCon, revealing more about the sequel film 11 months before it zooms into theaters.
+---------
+
+# Law & Order: Organized Crime Season 6's Fate Officially Decided By NBC & Peacock
+
+TV, Law & Order: Organized Crime, Law and Order
+
+Thu, 16 Apr 2026 18:39:53 GMT
+
+https://screenrant.com/law-and-order-organized-crime-season-6-cancelled-peacock/
+
+The future of Law & Order: Organized Crime is now decided, with the Christopher Meloni-led spinoff getting a verdict after a year of anticipation.
+---------
+
+# Lee Cronin's The Mummy Rotten Tomatoes Score Unveiled
+
+Movies, Lee Cronin's The Mummy
+
+Thu, 16 Apr 2026 19:35:48 GMT
+
+https://www.cbr.com/lee-cronin-the-mummy-rotten-tomatoes-score/
+
+With a reboot and a sequel to Brendan Fraser's iconic franchise on the way, The Mummy couldn't be more alive.
+---------
+
+# 5 Steamy Romance Anime That Are Actually Well-Written
+
+Anime, Kaguya-Sama: Love Is War, The Fragrant Flower Blooms with Dignity
+
+Thu, 16 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/steamy-romance-anime-most-well-written/
+
+Romance anime can often be great, but these steamy love stories have the rich, tight writing needed to be remembered forever.
+---------
+
+# Normal Star Bob Odenkirk Reveals How He's Different Than Jason Statham
+
+CBR Exclusives, Normal
+
+Thu, 16 Apr 2026 19:01:37 GMT
+
+https://www.cbr.com/normal-bob-odenkirk-jason-statham-differences-revealed/
+
+Bob Odenkirk points to one defining difference that sets him apart as an action hero.
+---------
+
+# Peacock Seals the Fate of Law & Order: Organized Crime
+
+TV, Law & Order: Organized Crime, Peacock
+
+Thu, 16 Apr 2026 19:00:22 GMT
+
+https://www.cbr.com/law-and-order-organized-crime-canceled-peacock/
+
+After almost a year of waiting, the future is sealed for Peacock's Law & Order spinoff series.
+---------
+
+# Why Stephen Baxter's Voyage Is the Perfect Sci-Fi Successor to For All Mankind
+
+TV, For All Mankind, Apple TV
+
+Thu, 16 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/stephen-baxter-voyage-needs-adaptation-like-for-all-mankind/
+
+For All Mankind is one of Apple TV's flagship shows, and its success could lead to the production of more alt-history sci-fi dramas.
+---------
+
+# Dystopian Masterpieces That are Perfect Double Features with Escape From New York
+
+Movies, Escape From New York, Sci-Fi, Action
+
+Thu, 16 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/dystopian-masterpieces-perfect-double-feature-escape-from-new-york/
+
+With news of a fresh Escape From New York movie, some of the best dystopian films just became essential viewing alongside Kurt Russell’s classic.
+---------
+
+# Marvel Officially Fills The Void Left By Blade With a New Vampire Project
+
+Comics, Horror, Marvel, Marvel Comics, Dark Horse Comics, Blade, Blade II, Blade Trinity
+
+Thu, 16 Apr 2026 18:53:21 GMT
+
+https://www.cbr.com/marvel-officially-fills-void-left-by-blade-with-new-horror-project/
+
+When will Blade return in the MCU? Marvel has something to fill the void until then in their collaboration with Dark Horse Comics.
+---------
+
+# Spring 2026's Official Anime Streaming Rankings Are Already an Isekai Battle
+
+Anime, Re:Zero -Starting Life in Another World-, That Time I Got Reincarnated as a Slime, Classroom of the Elite, Isekai
+
+Thu, 16 Apr 2026 18:34:12 GMT
+
+https://www.cbr.com/anime-spring-2026-streaming-ranking-abema-isekai-battle/
+
+According to ABEMA's latest data, the battle for streaming supremacy in Spring 2026 rages between several highly popular isekai franchises.
+---------
+
+# TMNT: Mutant Mayhem Sequel Officially Confirms 2 Major Villains
+
+Movies, Teenage Mutant Ninja Turtles: Mutant Mayhem 2
+
+Thu, 16 Apr 2026 18:20:09 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-mutant-mayhem-2-shredder-krang/
+
+The Heroes in a Half-Shell will have their hands full with two iconic villains making their arrival in TMNT: Mutant Mayhem 2.
+---------
+
+# 10 Greatest Ongoing Rivalries in Shonen Anime
+
+Anime, Hunter X Hunter, Dragon Ball, Naruto, One Piece, Bleach, Black Clover, Fairy Tale, My Hero Academia, Yu-Gi-Oh!, The Seven Deadly Sins, shonen anime, Shonen
+
+Thu, 16 Apr 2026 18:16:13 GMT
+
+https://www.cbr.com/shonen-anime-greatest-rivalries/
+
+An exploration of shonen anime's greatest rivalries, unpacking the core dynamics of the duos.
+---------
+
+# Only 4 21st Century Epics Are Better Than 'Oppenheimer'
+
+Movie, Oppenheimer, The Irishman, Babylon, The Lord of the Rings: The Return of the King
+
+Thu, 16 Apr 2026 19:33:13 GMT
+
+https://collider.com/21st-century-epics-better-than-oppenheimer/
+
+21st-century epic movies rarely get better than Oppenheimer, but a few arguably have, including Lagaan: Once Upon a Time in India and Babylon.
+---------
+
+# 'Lee Cronin's The Mummy' Feels Too Much Like an 'Exorcist' and 'Evil Dead' Rip-Off | Review
+
+Movie Reviews, Lee Cronin's The Mummy, Lee Cronin, Jack Reynor, Horror
+
+Thu, 16 Apr 2026 18:59:51 GMT
+
+https://collider.com/lee-cronins-the-mummy-review/
+
+Lee Cronin's The Mummy borrows far too much from Evil Dead Rise and The Exorcist instead of focusing on being a genuinely scary Egyptian horror flick.
+---------
+
+# ‘Grey’s Anatomy’ Never Recovered From Its Biggest and Most Unforgivable Mistake
+
+TV Features, Grey's Anatomy, ABC, Hulu, Ellen Pompeo
+
+Thu, 16 Apr 2026 18:57:12 GMT
+
+https://collider.com/greys-anatomys-biggest-mistake-lexie-death/
+
+Grey’s Anatomy’s most brutal death still stings — Lexie Grey’s tragic plane crash exit remains one of the show’s most devastating twists.
+---------
+
+# Cynthia Erivo and Idris Elba's New Fantasy Franchise Confirms Release Date With Bonkers First Footage
+
+Movie News, Children of Blood and Bone, Idris Elba, CinemaCon, Regina King
+
+Thu, 16 Apr 2026 18:49:55 GMT
+
+https://collider.com/cynthia-erivo-idris-elba-new-fantasy-franchise-movie-children-of-blood-and-bone-first-footage-description-release-date/
+
+Children of Blood and Bone unleashes incredible first look at CinemaCon ahead of 2027 fantasy franchise release. Here's what we saw.
+---------
+
+# 10 Greatest Detective Shows on Netflix, Ranked
+
+TV, Netflix, NCIS, The Lincoln Lawyer, The Night Agent
+
+Thu, 16 Apr 2026 18:09:13 GMT
+
+https://collider.com/best-netflix-detective-shows-ranked/
+
+We select the best, most engaging detective shows streaming on Netflix, including the legal drama The Lincoln Lawyer and the long-running series NCIS.
+---------
+
+# Netflix Reveals First Look at Twisted 'Charlie and the Chocolate Factory' Reboot
+
+Movie News, Charlie vs. the Chocolate Factory, Netflix, Willy Wonka and the Chocolate Factory
+
+Thu, 16 Apr 2026 19:35:11 GMT
+
+https://movieweb.com/charlie-vs-chocolate-factory-reboot-netflix-first-look/
+
+The new take on the concept looks to put a darker spin on the well-known story by Roald Dahl.
+---------
+
+# New James Bond Game '007 First Light' Gets Theme Song From Lana Del Rey
+
+Movie News, James Bond
+
+Thu, 16 Apr 2026 19:14:19 GMT
+
+https://movieweb.com/james-bond-007-first-light-song/
+
+A popular artist just dropped their theme song for the latest James Bond video game title, '007 First Light.'
+---------
+
+# Anne Hathaway and Dakota Johnson Thriller 'Verity' Gets CinemaCon Trailer
+
+Movie News, Anne Hathaway, Verity, Dakota Johnson
+
+Thu, 16 Apr 2026 18:48:23 GMT
+
+https://movieweb.com/verity-cinema-con-trailer/
+
+Josh Hartnett also stars in the movie based on the book by Colleen Hoover.
+---------
+
+# 'Call of Duty' Movie Lands Summer 2028 Release Date
+
+Movie News, Call of Duty
+
+Thu, 16 Apr 2026 18:42:27 GMT
+
+https://movieweb.com/call-of-duty-movie-release-date/
+
+Directed by Peter Berg and written by Taylor Sheridan, 'Call of Duty' will hit theaters on June 30, 2028, shortly before the Fourth of July weekend.
+---------
+
 # Reacher's Confirmed 2026 Release Revives Prime Video's Best TV Rivalry
 
 TV, Reacher, Tom Clancy's Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
