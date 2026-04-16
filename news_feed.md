@@ -1,3 +1,234 @@
+# CBS Boss Explains Why NCIS: New York Is Happening But Not Tony & Ziva Season 2
+
+Network TV, NCIS, NCIS: Tony & Ziva
+
+Thu, 16 Apr 2026 11:45:20 GMT
+
+https://screenrant.com/ncis-new-york-happening-not-tony-and-ziva-season-2-cbs-explained/
+
+LL Cool J's NCIS: New York spinoff is exciting, but it understandably raises questions about why NCIS: Tony & Ziva season 2 isn't happening.
+---------
+
+# GTA 6 Can Wait, Bully Just Landed On Nintendo Switch
+
+Gaming, Bully, Nintendo, Nintendo Switch 2, Rockstar Games
+
+Thu, 16 Apr 2026 11:45:20 GMT
+
+https://screenrant.com/bully-nintendo-switch-unofficial-port/
+
+A fan-made port of the 2006 Rockstar Games classic Bully brings the beloved school-life GTA-style adventures of Jimmy Hopkins to the Nintendo Switch 2
+---------
+
+# Fallout: Echoes Of The Wasteland Leaves Gamers Impressed
+
+Gaming, Fallout
+
+Thu, 16 Apr 2026 11:30:20 GMT
+
+https://screenrant.com/fallout-echoes-of-the-wasteland-fan-film/
+
+Fallout: Echoes Of The Wasteland is a fan-made film that the community is backing as a solid piece of work for the franchise.
+---------
+
+# Will Trent Main Cast Member Officially Leaving Ahead Of Season 5
+
+Network TV, Will Trent
+
+Thu, 16 Apr 2026 11:15:22 GMT
+
+https://screenrant.com/will-trent-sonja-sohn-amanda-wagner-leaving/
+
+Showrunners Liz Heldens, Daniel T. Thomsen & Karine Rosenthal confirms the exit of a Will Trent original cast ahead of season 5 and explains why.
+---------
+
+# Taylor Sheridan's Paramount+ Success Outshines Star Trek: Starfleet Academy
+
+Streaming TV, Op-Ed, Star Trek, Star Trek: Starfleet Academy, The Madison
+
+Thu, 16 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/star-trek-jealous-madison-season-3-renewal/
+
+The Madison is Taylor Sheridan's latest global hit show for Paramount+, and its season 3 renewal feels like another slap in the face for Star Trek.
+---------
+
+# Tomodachi Life: Living The Dream - All Minigames, Ranked
+
+Gaming, Tomodachi Life: Living the Dream
+
+Thu, 16 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/tomodachi-life-living-the-dream-all-minigames/
+
+Explore the minigames in Tomodachi Life: Living the Dream, ranked from simplest to most fun, offering variety and rewards for players.
+---------
+
+# Red Dead Redemption 2 Official April DLC Isn't A Slam-Dunk
+
+Gaming, Red Dead Redemption 2
+
+Thu, 16 Apr 2026 10:45:18 GMT
+
+https://screenrant.com/red-dead-redemption-2-april-2026-dlc-fan-complaints/
+
+Rockstar Games continues to prioritize GTA Online updates over Red Dead Online, leaving fans of the latter disappointed.
+---------
+
+# How Old Were the Golden Girls Actors & Their Characters?
+
+TV, The Golden Girls
+
+Thu, 16 Apr 2026 11:30:13 GMT
+
+https://www.cbr.com/how-old-golden-girls-ages/
+
+Even superfans have wondered about the ages of Dorothy, Blanche, Rose, and Sophia throughout The Golden Girls.
+---------
+
+# 10 X-Men Friendships That Defined the Comics
+
+Comics, X-Men
+
+Thu, 16 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/x-men-friendships-that-defined-the-team/
+
+Rivalries are cool, but these friendships are even better.
+---------
+
+# This 94% Rotten Tomatoes Hulu War Drama Is a Must-Watch Hidden Gem
+
+TV Features, We Were the Lucky Ones, Joey King, Logan Lerman, Robin Weigert
+
+Thu, 16 Apr 2026 11:46:13 GMT
+
+https://collider.com/we-were-the-lucky-ones-must-watch-war-drama/
+
+We Were the Lucky Ones depicts the true story of the Kurcs, a Jewish family torn apart by World War II and their attempt to find each other again.
+---------
+
+# Apple TV’s Criminally Underseen Thriller Is Still a Perfect 2-Part Weekend Binge
+
+TV Features, Apple TV, The Last Thing He Told Me, Jennifer Garner, Nikolaj Coster-Waldau
+
+Thu, 16 Apr 2026 11:46:13 GMT
+
+https://collider.com/apple-tv-thriller-the-last-thing-he-told-me-weekend-binge/
+
+The Apple TV thriller The Last Thing He Told Me is a riverting binge, but is far from getting the love it deserves.
+---------
+
+# 10 Greatest Space Movies of the Last 20 Years, Ranked
+
+Movie, Science Fiction, Project Hail Mary, Gravity, Interstellar
+
+Thu, 16 Apr 2026 11:43:13 GMT
+
+https://collider.com/best-space-movies-last-20-years-ranked/
+
+Blockbusters like Gravity, pensive gems like Ad Astra, and crowd-pleasers like Project Hail Mary are among the best space movies of the last 20 years.
+---------
+
+# ‘Reacher’ Meets ‘Jack Ryan’ in ABC's Forgotten 3-Part Spy Thriller Staging a Streaming Comeback
+
+TV News, Quantico, Jack Ryan, Reacher, ABC
+
+Thu, 16 Apr 2026 11:30:14 GMT
+
+https://collider.com/reacher-meets-jack-ryan-abc-spy-thriller-quantico-streaming-success-itunes-april-2026/
+
+The ABC procedural thriller Quantico, starring Priyanka Chopra Jonas, recently saw a viewership spike, eight years after its cancellation.
+---------
+
+# Only 3 Epic Movies Are Better Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Ben-Hur, Gone with the Wind, Lawrence of Arabia
+
+Thu, 16 Apr 2026 11:22:17 GMT
+
+https://collider.com/epic-movies-better-than-the-lord-of-the-rings/
+
+Peter Jackson's Lord of the Rings trilogy is nearly unrivaled epic films, but Ben-Hur, Gone With the Wind, and Lawrence of Arabia are even better.
+---------
+
+# Forgotten Adventure Movies That Have Aged Like Fine Wine
+
+Movie, Adventure, The Rocketeer, On Her Majesty's Secret Service
+
+Thu, 16 Apr 2026 11:04:12 GMT
+
+https://collider.com/forgotten-adventure-movies-aged-like-fine-wine/
+
+Unsung modern gems like The Lost City of Z and classics like Captain Horatio Hornblower are among the ignored adventure films that have aged the best.
+---------
+
+# Netflix's 3-Part Fantasy Adaptation Is One of the Best on Any Streaming Platform
+
+TV News, One Piece, Netflix, Fantasy, Adventure
+
+Thu, 16 Apr 2026 11:00:12 GMT
+
+https://collider.com/netflix-fantasy-series-live-action-one-piece-streaming-success-april-2026/
+
+Netflix's live-action One Piece adaptation continues to impress fans, still on Netflix's Top 10 charts as fans eagerly wait for Season 3.
+---------
+
+# 10 Netflix Thriller Shows That Are Perfect From Start To Finish
+
+TV, Netflix, Thriller, The Haunting of Hill House, Dark
+
+Thu, 16 Apr 2026 10:53:12 GMT
+
+https://collider.com/netflix-thriller-shows-perfect-start-to-finish/
+
+From Dark to Mindhunter to Unbelievable, these Netflix thriller shows stay gripping from start to finish with zero weak episodes.
+---------
+
+# 'Spider-Man: Brand New Toy' LEGO Reveals New Look at Hulk & Various MCU Villains
+
+Movie News, Spider-Man: Brand New Day, MCU
+
+Thu, 16 Apr 2026 11:30:18 GMT
+
+https://movieweb.com/spider-man-lego-villains-mcu-designs-hulk/
+
+Merchandise for 'Spider-Man: Brand New Day' offers a better look at Scorpion, Tarantula, and Boomerang, and a first look at Tombstone.
+---------
+
+# Paramount/Warner Bros. Deal Challenged by Florence Pugh, Pedro Pascal & More
+
+Movie News, Florence Pugh, Pedro Pascal
+
+Thu, 16 Apr 2026 11:15:20 GMT
+
+https://movieweb.com/paramount-warner-bros-deal-actor-petition/
+
+The list of those challenging the Paramount/Warner merger now tops 3,000.
+---------
+
+# Disney's Layoffs Hit Marvel Studios, Including Important Visual Development Artists
+
+Movie News, MCU, Disney
+
+Thu, 16 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/disney-layoffs-marvel-studios-visual-development-department/
+
+Disney's massive layoffs severely impacted Marvel, with many members of the visual development team who had been there since Iron Man let go.
+---------
+
+# 'Supergirl's Lobo Almost Had His Own Animated Solo Movie in the '90s
+
+Features, DCU, lobo, Supergirl
+
+Thu, 16 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/lobo-nearly-starred-his-own-movie-before-supergirl/
+
+Lobo is finally making his theatrical debut in the upcoming movie 'Supergirl,' but the alien bounty hunter almost had his own movie 31 years ago.
+---------
+
 # Pokémon Winds & Waves Leak Confirms Brand-New Gen 10 Monster
 
 Gaming, Pokemon Winds and Waves
