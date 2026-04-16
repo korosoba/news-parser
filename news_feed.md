@@ -1,3 +1,190 @@
+# The Super Mario Galaxy Movie's Huge Game Tribute Is A Great Sign For These Classic Characters
+
+Movies, The Super Mario Galaxy Movie
+
+Thu, 16 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-tribute-koopalings-sign/
+
+The Super Mario Galaxy Movie's tribute to a specific game in the franchise is good news for a major group of missing characters.
+---------
+
+# The Odyssey Trailer Reveals Trojan Horse & First Look At Charlize Theron
+
+Movies, The Odyssey, CinemaCon
+
+Wed, 15 Apr 2026 23:46:16 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-cinemacon-2026-footage-trojan-horse/
+
+A new trailer for Christopher Nolan's The Odyssey has been unveiled at CinemaCon, revealing new details about Odysseus' journey home.
+---------
+
+# Copenhagen Test Canceled After One Season
+
+TV, The Copenhagen Test, Marvel, Peacock, Simu Liu
+
+Wed, 15 Apr 2026 23:33:29 GMT
+
+https://screenrant.com/the-copenhagen-test-season-2-cancelled-peacock/
+
+Peacock's espionage thriller The Copenhagen Test, starring Simu Liu, has been canceled after just one season despite receiving critical acclaim and reaching the top 10 on Nielsen streaming charts.
+---------
+
+# Mike Colter's New Show With Evil Creators & One Of The Best Casts Officially Gets First Look & Release Window
+
+TV, Cupertino
+
+Wed, 15 Apr 2026 23:16:44 GMT
+
+https://screenrant.com/mike-colter-cupertino-image-release-window-cbs/
+
+Paramount has announced the release window for Mike Colter's new show with the creators of the hit supernatural show, Evil.
+---------
+
+# Daredevil: Born Again Tackles Catholic Guilt, Foggy's Fate
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 15 Apr 2026 23:15:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-5-foggy-fate-confirmed/
+
+It must've been tempting to retcon Foggy's death, but Daredevil: Born Again has managed to honor the character without undoing that loss.
+---------
+
+# Gundam Wing's Ultimate Heavy Weapons Mecha Returns With New Master Grade Gunpla Release
+
+Anime, Mobile Suit Gundam, Gundam Wing: Endless Waltz, merchandise, toys, bandai
+
+Thu, 16 Apr 2026 00:00:47 GMT
+
+https://www.cbr.com/gundam-wing-heavyarms-bandai-master-grade-gunpla/
+
+One of the most heavily armed Gundam Wing mobile suits is having its Master Grade kit re-released a decade after it first blasted onto the market.One
+---------
+
+# Red Dead Redemption Officially Coming to PS5 May 7
+
+Games, Red Dead Redemption
+
+Thu, 16 Apr 2026 00:00:13 GMT
+
+https://www.cbr.com/red-dead-redemption-official-ps5-port-releasing-may-2026/
+
+This May, a new, physical version of the original Red Dead Redemption will be released on PS5 with graphical upgrades.
+---------
+
+# DC Fans Are Convinced Man of Tomorrow Just Spoiled Its Wonder Woman Casting
+
+Movies, Man of Tomorrow, DCU, Wonder Woman
+
+Thu, 16 Apr 2026 00:00:13 GMT
+
+https://www.cbr.com/superman-man-of-tomorrow-wonder-woman-casting-adria-arjona-dc/
+
+James Gunn's DCU may have secretly just found its Wonder Woman with this star, who was just cast in Man of Tomorrow.
+---------
+
+# Absolute Batman #20 Officially Confirm Absolute Robins' Identities
+
+Comics, Absolute Batman
+
+Wed, 15 Apr 2026 23:59:55 GMT
+
+https://www.cbr.com/absolute-batman-20-absolute-robins-identity-reveal/
+
+Now fans can really get to know the Absolute Robins.
+---------
+
+# Spider-Man: Brand New Day LEGO Sets Officially Revealed
+
+Movies, Spider-Man: Brand New Day, LEGO
+
+Wed, 15 Apr 2026 23:12:47 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-lego-sets/
+
+The LEGO sets inspired by Spider-Man: Brand New Day have officially been unveiled.
+---------
+
+# Prime Video's 109-Minute War Thriller Is Quietly Taking Over America
+
+Movie News, Prime Video, Civil War, Thriller, A24
+
+Thu, 16 Apr 2026 00:00:13 GMT
+
+https://collider.com/a24-thriller-civil-war-streaming-success-prime-video-april-2026/
+
+Alex Garland's thought-provoking war film gains momentum on Prime Video, resonating with viewers two years later as the nation remains divided.
+---------
+
+# The $790M Sci-Fi Disaster Movie That Earned Nearly 4x Its Budget Is Trending Across Global Streaming Charts
+
+Movie News, 2012, Roland Emmerich, Joan Cusack, MGM
+
+Wed, 15 Apr 2026 23:45:12 GMT
+
+https://collider.com/roland-emmerich-sci-fi-movie-2012-streaming-milestone-30-days-mgm-plus/
+
+Roland Emmerich's 2012, often considered an underrated sci-fi film, has recently surpassed a major milestone on a popular streaming platform.
+---------
+
+# New Historical Epic Unleashes Footage That Proves Why It Will Be One of 2026's Biggest Movies
+
+Movie News, The Odyssey, Christopher Nolan, Tom Holland, Matt Damon, CinemaCon
+
+Wed, 15 Apr 2026 23:43:15 GMT
+
+https://collider.com/christopher-nolan-new-historical-epic-they-odyssey-sneak-peek-footage-description-cinemacon/
+
+Christopher Nolan's highly anticipated adaptation of Homer's The Odyssey features an all-star cast, including Tom Holland and Robert Pattinson.
+---------
+
+# Apple TV's Most Divisive 2-Part Thriller Is Still a Late-Night Sensation on Streaming
+
+TV News, Hijack, Apple TV, Thriller, Drama
+
+Wed, 15 Apr 2026 23:30:13 GMT
+
+https://collider.com/idris-elba-crime-thriller-hijack-streaming-success-apple-tv-april-2026/
+
+Viewers were not thrilled by the newest season of Apple TV's crime thriller, but the show remains one of the streamer's most-watched.
+---------
+
+# Netflix Officially Drops the Most Ambitious Horror Scene of 2026 With Its New Shark Thriller
+
+Movie Features, Thrash, Netflix, Phoebe Dynevor, Horror
+
+Wed, 15 Apr 2026 23:21:12 GMT
+
+https://collider.com/thrash-netflix-2026-childbirth-scene-horror-thriller-phoebe-dynevor/
+
+Netflix's new survival horror thriller Thrash, starring Phoebe Dynevor, features the most unhinged childbirth scene of recent memory.
+---------
+
+# The Biggest Horror Movie on Prime Video Right Now Is Getting a Prequel
+
+Movie News, Prime Video, Horror, Weapons, streaming
+
+Wed, 15 Apr 2026 23:15:12 GMT
+
+https://collider.com/weapons-horror-streaming-hit-prime-video-april-2026/
+
+The stand-out horror movie of 2025 continues to prove popular on Prime Video in the U.S. ahead of its villain's new prequel.
+---------
+
+# 8 Near-Perfect HBO Miniseries Nobody Remembers
+
+TV, HBO, John Adams, Sharp Objects, Station Eleven
+
+Wed, 15 Apr 2026 23:11:13 GMT
+
+https://collider.com/near-perfect-hbo-miniseries-nobody-remembers/
+
+John Adams, Sharp Objects, Full Circle, Mildred Pierce, Station Eleven, and more make up our list of near-perfect HBO miniseries nobody remembers.
+---------
+
 # MGM+'s From Season 4 Debuts With Rare Rotten Tomatoes Score Ahead of Final Season
 
 TV, From, FROM - Season 4
