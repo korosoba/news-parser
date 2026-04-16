@@ -1,3 +1,388 @@
+# Netflix's Dept Q Was Made For Binge-Watching
+
+Streaming TV, Dept. Q, Netflix
+
+Thu, 16 Apr 2026 03:44:24 GMT
+
+https://screenrant.com/netflix-dept-q-crime-thriller-series-made-for-binge-watch/
+
+Netflix is the streaming home of a compelling 9-part crime thriller TV series that has already been renewed for season 2 and is perfectly bingeable.
+---------
+
+# Apple TV’s 10-Part Sci-Fi Show Based On Unadaptable Book Series Proved Everyone Wrong
+
+Streaming TV, Sci-Fi, Masked Recs, Apple TV
+
+Thu, 16 Apr 2026 03:15:55 GMT
+
+https://screenrant.com/murderbot-sci-fi-unadaptable-masterpiece/
+
+Apple TV should have had an unmitigated failure on their hands when they took on an unadaptable book series, but they shockingly defied expectations.
+---------
+
+# Crunchyroll’s New Chinese Anime Could Become the Best Isekai of the Year
+
+Anime, Crunchyroll, Isekai
+
+Thu, 16 Apr 2026 03:07:23 GMT
+
+https://screenrant.com/release-that-witch-isekai-anime-year-crunchyroll-chinese/
+
+For fans who crave more quality isekai, a new donghua on Crunchyroll is a must-see in Spring 2026 and could even become the best of the year.
+---------
+
+# Steven Spielberg's New Sci-Fi Movie Is Ready To Unveil The Truth About Aliens In Chaotic Disclosure Day Footage
+
+Movies, Disclosure Day, CinemaCon
+
+Thu, 16 Apr 2026 02:34:58 GMT
+
+https://screenrant.com/steven-spielberg-disclosure-day-footage/
+
+Director Steven Spielberg's upcoming science fiction movie reveals the disturbing truth about aliens in a chaotic brand-new preview.
+---------
+
+# Apple TV’s Returning 9-Part Thriller Achieves A Rare Adaptation Feat In 2026
+
+Streaming TV, Apple TV, Dark Matter
+
+Thu, 16 Apr 2026 02:31:22 GMT
+
+https://screenrant.com/dark-matter-apple-tv-blake-crouch-rare-feat/
+
+One of Apple TV’s most ambitious sci-fi shows is set to return in 2026 with season 2, allowing to achieve an incredibly rare book adaptation feat.
+---------
+
+# 27 Years Later, You'll Never Look At Darth Maul The Same After Star Wars' Massive Dark Side Reveal
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Thu, 16 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/darth-maul-lightsaber-whispers-phantom-menace-connection-shadow-lord/
+
+A blink-and-you-miss it moment from the latest episodes of Maul - Shadow Lord reveal a HUGE connection to The Phantom Menace and the dark side itself.
+---------
+
+# Kate Winslet's New Lord Of The Rings Character Officially Makes Up For A Rings Of Power Mistake
+
+Streaming TV, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power
+
+Thu, 16 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/lord-of-the-rings-kate-winslet-marigol-stoor-hobbit-rings-of-power/
+
+The new Lord of the Rings movie has cast Kate Winslet as an intriguing character who can rewrite one of Rings of Power season 2's biggest mistakes.
+---------
+
+# X-Files’ Most Cyberpunk Episode Is Still 1 Of Its Best
+
+Classic TV, The X-Files, Sci-Fi
+
+Thu, 16 Apr 2026 02:07:23 GMT
+
+https://screenrant.com/x-files-kill-switch-william-gibson-best/
+
+The most cyberpunk episode in The X-Files, which was surprisingly written by legendary sci-fi author, still ranks among its best instalments ever.
+---------
+
+# NieR Automata's Official Sequel Is Finally Playable, But With A Catch
+
+Gaming, NieR: Automata, Triple-A Games, PC
+
+Thu, 16 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/nier-automata-official-sequel-returns-fan-revival-reactions/
+
+After years of being unplayable for millions of players, NieR Automata's official sequel is finally back, thanks to a few dedicated fans.
+---------
+
+# The Boys Season 5 Episode 3's "Happy Ending" Explained By Eric Kripke
+
+TV, The Boys, The Boys - Season 5
+
+Thu, 16 Apr 2026 01:40:47 GMT
+
+https://screenrant.com/the-boys-season-5-episode-3-relationships-explained-eric-kripke/
+
+EXCLUSIVE: Against all odds, two characters achieve a happy ending in The Boys season 5, episode 3, as explained by showrunner Eric Kripke.
+---------
+
+# Thranduil's Return Proves LOTR Is Avoiding a Major Star Wars Mistake
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Star Wars
+
+Thu, 16 Apr 2026 03:45:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-thranduil-casting-avoids-star-wars-mistake/
+
+The Lord of the Rings: The Hunt for Gollum's casting announcement is proof that the film will do something Star Wars' sequel trilogy failed to.
+---------
+
+# 10 Anime That End in Absolute Tragedy For The Hero
+
+Anime, Neon Genesis Evangelion, Attack on Titan, Puella Magi Madoka Magica, Death Note
+
+Thu, 16 Apr 2026 03:45:13 GMT
+
+https://www.cbr.com/anime-with-bad-endings-for-the-hero/
+
+These anime heroes tried their best, but they couldn't save themselves from horribly tragic endings.
+---------
+
+# Twilight Zone Episodes That Would Be Controversial Today
+
+TV, The Twilight Zone, Sci-Fi, Horror
+
+Thu, 16 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/twilight-zone-controversial-episodes-today/
+
+The Twilight Zone was decades ahead of its time, but it also reflected problematic and sometimes silly norms of its era that wouldn't work today.
+---------
+
+# After Escape From LA, Kurt Russell's Never-Made Sequel is 1 of Hollywood's Greatest "What If..." Movies
+
+Movies, Escape From New York, Escape from LA
+
+Thu, 16 Apr 2026 03:16:19 GMT
+
+https://www.cbr.com/kurt-russell-escape-from-la-sequel-escape-from-earth/
+
+Did this cult sequel's negative reception rob fans of a third Snake Plissken adventure that would have sent the gruff antihero into the stratosphere?
+---------
+
+# 10 Upcoming RPGs You Cannot Miss in 2026
+
+Games, Role Playing Game, JRPG
+
+Thu, 16 Apr 2026 03:16:19 GMT
+
+https://www.cbr.com/upcoming-rpgs-2026-cannot-miss/
+
+There's no shortage of amazing upcoming RPGs in 2026, with many games that look like must-play titles.
+---------
+
+# Netflix Is Adding Even More One Piece Episodes in May 2026
+
+Anime, One Piece, Netflix
+
+Thu, 16 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/netflix-one-piece-whole-cake-island-new-episodes-may-2026/
+
+Netflix is just barely two weeks away from adding a new slate of One Piece episodes to its already extensive anime streaming catalog.
+---------
+
+# What We Know About Spider-Man: Beyond the Spider-Verse After CinemaCon
+
+Movies, Spider-Man: Beyond the Spider-Verse, Marvel Comics, superheroes
+
+Thu, 16 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/spider-man-beyond-the-spider-verse-new-details-cinemacon-april-2026/
+
+CinemaCon featured the first official look at Spider-Man: Beyond the Spider-Verse ahead of its release next year. Here's everything we learned.
+---------
+
+# 7 Underrated 2000s Anime Way Ahead of Their Time
+
+Anime, 2000s, mecha, Baccano!
+
+Thu, 16 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/underrated-2000s-anime-way-ahead-of-their-time/
+
+The 2000s were a turning point for the anime industry that introduced some obscure classics that broke down barriers.
+---------
+
+# 10 Strongest Chainsaw Man Characters of All Time
+
+Anime, Chainsaw Man
+
+Thu, 16 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/strongest-chainsaw-man-characters-end-of-the-manga/
+
+From the Horsemen to the Primal Fears, these Devils stood above all others in Chainsaw Man.
+---------
+
+# Things Ocarina of Time's Switch 2 Remake Needs to Change From the Original
+
+Games, The Legend of Zelda: Ocarina of Time, Nintendo, The Legend of Zelda
+
+Thu, 16 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/zelda-ocarina-of-times-switch-2-remake-changes-from-original/
+
+Ocarina of Time is still a gaming masterpiece, but the Switch 2 remake will have to change some antiquated features to live up to modern expectations.
+---------
+
+# Disney Already Proved Pirates of the Caribbean Doesn’t Need Johnny Depp’s Jack Sparrow in 'Pirates 6'
+
+Movie Features, Pirates of the Caribbean, Pirates of the Caribbean 6, Johnny Depp, Pirates of the Caribbean: The Curse of the Black Pearl
+
+Thu, 16 Apr 2026 03:51:09 GMT
+
+https://collider.com/pirates-of-the-caribbean-6-johnny-depp-jack-sparrow-return/
+
+When Disney eventually makes Pirates of the Caribbean 6, it should leave Johnny Depp's Captain Jack Sparrow behind.
+---------
+
+# This Intense 97% Rotten Tomatoes Thriller Is a Near-Perfect 2-Part Weekend Binge
+
+TV Features, Jamie Dornan, The Tourist, Netflix, Danielle Macdonald
+
+Thu, 16 Apr 2026 03:09:13 GMT
+
+https://collider.com/the-tourist-series-jamie-dornan-performance-streaming/
+
+Before Jamie Dornan joins The Lord of the Rings: The Hunt for Gollum, watch his best thriller performance in Netflix’s The Tourist.
+---------
+
+# Ridley Scott's Best Sci-Fi Franchise Hit With Uncertain Update [Exclusive]
+
+Movie News, Alien, David Jonsson, Wasteman, Alien: Romulus
+
+Thu, 16 Apr 2026 02:15:13 GMT
+
+https://collider.com/alien-romulus-sequel-uncertain-update-ridley-scott-sci-fi-franchise-david-jonsson/
+
+Ahead of his new film Wasteman, David Jonsson gave an update on the Alien: Romulus sequel and shared his excitement for the franchise.
+---------
+
+# The Star of 2026's Most Successful TV Revival Is Ready for More
+
+TV News, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle, Hulu, Comedy
+
+Thu, 16 Apr 2026 02:00:23 GMT
+
+https://collider.com/malcolm-in-the-middle-revival-lifes-still-unfair-frankie-muniz-wants-to-make-more/
+
+The highly anticipated return of Malcolm in the Middle has broken streaming records, with star Frankie Muniz expressing his desire to make more.
+---------
+
+# 'Star Wars: Maul — Shadow Lord' Just Pulled Off a Genius Darth Maul Twist
+
+TV Features, Star Wars: Maul - Shadow Lord, Disney+, Sam Witwer, Lucasfilm
+
+Thu, 16 Apr 2026 01:55:13 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-hero-journey-reversal/
+
+Star Wars: Maul - Shadow Lord pulled off a brilliant subversion of the franchise's biggest inspiration in its most recent episode.
+---------
+
+# Steven Spielberg's First Sci-Fi Movie in 8 Years Debuts Jaw-Dropping New Footage
+
+Movie News, Steven Spielberg, Sci-Fi, Disclosure Day, Emily Blunt
+
+Thu, 16 Apr 2026 01:47:26 GMT
+
+https://collider.com/steven-spielberg-sci-fi-movie-disclosure-day-footage-description-cinemacon-2026/
+
+Steven Spielberg's sci-fi thriller Disclosure Day ended Universal's CinemaCon panel with a bang, with 5 minutes of new footage.
+---------
+
+# Apple TV Confirms Major Casting Move for New Film From 'Ozark' Creator
+
+Movie News, Ozark, Apple TV, Spider-Man: Into The Spider-Verse, Brian Tyree Henry
+
+Thu, 16 Apr 2026 01:30:13 GMT
+
+https://collider.com/ozark-creator-new-movie-running-apple-tv-cast-brian-tyree-henry/
+
+'Ozark' creator Bill Dubuque's new Apple TV project just landed Brian Tyree Henry as lead.
+---------
+
+# 10 Greatest Vampire Movie Opening Scenes, Ranked
+
+Movie, Blade, Byzantium, Bram Stoker's Dracula, The Lost Boys
+
+Thu, 16 Apr 2026 01:04:12 GMT
+
+https://collider.com/vampire-movie-opening-scenes-best-ranked/
+
+Vampire movies like Interview with the Vampire, Bram Stoker's Dracula, and Near Dark have some of the best opening scenes in the genre.
+---------
+
+# J.J. Abrams’ Sleek Sci-Fi Blockbuster Is No Match for ‘Project Hail Mary’ at the Box Office
+
+Movie News, Ryan Gosling, Project Hail Mary, Star Trek, J.J. Abrams
+
+Thu, 16 Apr 2026 01:00:13 GMT
+
+https://collider.com/project-hail-mary-box-office-passes-jj-abrams-sleek-sci-fi-blockbuster-star-trek-258-million-domestic/
+
+Project Hail Mary, the new sci-fi blockbuster starring Ryan Gosling, has overtaken J.J. Abrams' critically acclaimed franchise-starter. Find out more.
+---------
+
+# New 'Sense & Sensibility' Adaptation Could be Among the Best Jane Austen Movies After This First Footage
+
+Movie News, Sense and Sensibility, Daisy Edgar-Jones, Esme Creed-Miles, CinemaCon
+
+Thu, 16 Apr 2026 00:54:39 GMT
+
+https://collider.com/new-sense-and-sensibility-adaptation-first-footage-description-daisy-edgar-jones-cinemacon/
+
+Georgia Oakley's upcoming Sense & Sensibility adaptation features Daisy Edgar-Jones and Esmé Creed-Miles as the Dashwood sisters.
+---------
+
+# 8 10/10 Fantasy TV Series With Masterful World-Building
+
+TV Lists, Fantasy
+
+Thu, 16 Apr 2026 02:30:18 GMT
+
+https://movieweb.com/fantasy-tv-masterful-world-building/
+
+A great fantasy TV series can teleport viewers to another world; these are the most polished ones to do just that.
+---------
+
+# 8 Netflix Thriller Miniseries That Are 10/10 But Nobody Remembers Them
+
+TV Lists, Netflix
+
+Thu, 16 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/netflix-thriller-miniseries-forgotten/
+
+Netflix has released many great thriller miniseries, and while some are popular and beloved, these 8 shows have been forgotten about.
+---------
+
+# The 'Scrubs' Revival Refuses To Call the Janitor Glenn Matthews
+
+Features, Scrubs
+
+Thu, 16 Apr 2026 01:00:17 GMT
+
+https://movieweb.com/scrubs-revival-janitor-season-8-mistake/
+
+Neil Flynn's 'Scrubs' character shared his real name in the Season 8 finale, and though he's back in the revival, that name isn't mentioned.
+---------
+
+# 'Scrubs' Revival's Last-Minute Janitor Twist Has To Be a Lie
+
+Features, Scrubs
+
+Thu, 16 Apr 2026 00:30:19 GMT
+
+https://movieweb.com/scrubs-revival-janitor-twist/
+
+Neil Flynn's Janitor finally returns in the 'Scrubs' revival's season finale, and he's already back up to his old tricks.
+---------
+
+# 'From' Renewed for Fifth and Final Season on MGM+
+
+TV News, From
+
+Thu, 16 Apr 2026 00:18:50 GMT
+
+https://movieweb.com/from-renewed-final-season-5/
+
+Season 4 of the horror series is set to premiere on the streamer this month.
+---------
+
 # The Super Mario Galaxy Movie's Huge Game Tribute Is A Great Sign For These Classic Characters
 
 Movies, The Super Mario Galaxy Movie
