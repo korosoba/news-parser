@@ -1,3 +1,333 @@
+# All 13 Fights Confirmed For Street Fighter's 2026 Movie
+
+New Movies, Street Fighter
+
+Thu, 16 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/street-fighter-2026-movie-fights-confirmed/
+
+2026's Street Fighter movie has confirmed plenty of fights between major video game characters. Here are all the fights we know of so far.
+---------
+
+# New James Bond Game Officially Keeps One Franchise Tradition Alive
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Thu, 16 Apr 2026 16:31:58 GMT
+
+https://screenrant.com/007-first-light-lana-del-rey-theme-song/
+
+007 First Light is officially maintaining one staple of the James Bond franchise, and it might have just set a new standard for 007 games in doing so.
+---------
+
+# Wasteman Review: An Unflinching, Unrelenting & Unsettlingly Real Prison Thriller With A Lot To Say
+
+New Movies, Wasteman
+
+Thu, 16 Apr 2026 16:30:36 GMT
+
+https://screenrant.com/wasteman-movie-2025-review/
+
+Wasteman is truly excellent as a film with the duality of an engaging prison thriller and expert commentary on deeper social themes at its center.
+---------
+
+# Outlander: Blood Of My Blood Season 2 Officially Returning This Year With First Look Revealed
+
+TV, Outlander, Outlander: Blood of My Blood
+
+Thu, 16 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/outlander-blood-of-my-blood-season-2-release-window-first-images/
+
+Outlander: Blood of My Blood gets an official release window, plus first-look images and a teaser showcasing the return of Claire and Jamie's parents.
+---------
+
+# Apple TV's Margo's Got Money Troubles Is The Perfect Gilmore Girls Replacement
+
+Streaming TV, Gilmore Girls
+
+Thu, 16 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/margos-got-money-troubles-perfect-gilmore-girls-replacement/
+
+For years, Gilmore Girls fans have been looking for a replacement show to scratch a similar itch, and they've found it with Apple TV's new series.
+---------
+
+# CBS's Complete Fall 2026 Schedule
+
+Network TV, CBS, NCIS, FBI, Tracker, Marshals, Georgie & Mandy's First Marriage, Fire Country
+
+Thu, 16 Apr 2026 16:27:19 GMT
+
+https://screenrant.com/cbs-complete-fall-2026-schedule/
+
+Ahead of its finales, CBS has officially unveiled their confirmed fall 2026 schedule, which is a mix of established franchises and new offerings.
+---------
+
+# When Gen V's Marie Appears In The Boys Season 5 Teased By Eric Kripke
+
+Exclusive, The Boys
+
+Thu, 16 Apr 2026 16:23:42 GMT
+
+https://screenrant.com/the-boys-season-5-when-marie-appears-gen-v-characters-future/
+
+EXCLUSIVE: The Boys and its chaos has taken over the internet, and one question keeps arising, and that is when Gen V's Marie will help save the day.
+---------
+
+# Netflix's 6-Part Crime Thriller Series Deserves Its Record-Breaking Streaming Success
+
+TV, Masked Recs
+
+Thu, 16 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/netflix-his-and-hers-thriller-series-most-popular-record-deserved/
+
+One of Netflix's most exciting 2026 thriller series has broken an all-time record at the streaming service, joining a select group, and it's deserved.
+---------
+
+# Clayface Gets Horrific New Series Ahead Of The Batman Villain's Big DCU Debut
+
+Comics, Clayface, Batman
+
+Thu, 16 Apr 2026 16:00:21 GMT
+
+https://screenrant.com/clayface-celebrity-dirt-new-series/
+
+A dark reckoning.
+---------
+
+# 10 Strongest Supes In The Boys Season 5
+
+Streaming TV, The Boys
+
+Thu, 16 Apr 2026 16:00:21 GMT
+
+https://screenrant.com/the-boys-season-5-strongest-supes-ranked/
+
+The Boys' fifth and final season raises the stakes higher than ever before, as the strongest supes from both sides gather for one final battle.
+---------
+
+# Spaceballs 2 Officially Confirms New Title
+
+Movies, Spaceballs 2
+
+Thu, 16 Apr 2026 16:42:16 GMT
+
+https://www.cbr.com/spaceballs-2-title-confirmed/
+
+The Spaceballs sequel isn't pulling any punches with spoofing modern sci-fi films.
+---------
+
+# X-Men's Beast Returns With An All-New Redesign
+
+Comics, X-Men
+
+Thu, 16 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/marvel-x-men-beast-redesign-dnx-1/
+
+The most hated member of the original X-Men lineup is getting a familiar redesign as the mutants of the Marvel Universe head for another cataclysm
+---------
+
+# How To Watch Every Dragon Ball Series In Order
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Z, Super Dragon Ball Heroes
+
+Thu, 16 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/dragon-ball-series-chronological-order/
+
+The Dragon Ball franchise is a multi-series anime spanning more than thirty years of episodes. Here they are in chronological order.
+---------
+
+# CBS Makes Major Scheduling Change to Matlock and Ghosts
+
+TV, CBS, Ghosts, Matlock
+
+Thu, 16 Apr 2026 16:20:50 GMT
+
+https://www.cbr.com/cbs-2026-27-season-matlock-ghosts-scheduling-change/
+
+CBS is shaking up its schedule for the 2026-27 season, with Matlock and Ghosts on the move.
+---------
+
+# Solo Leveling: Ragnarok Fixes the Anime's Only Objective Flaw
+
+Anime, Solo Leveling
+
+Thu, 16 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/solo-leveling-ragnarok-better-villains-original-manhwa/
+
+Solo Leveling only has one real flaw that can’t be argued against, but its sequel manhwa is already addressing that issue with its upcoming release.
+---------
+
+# Henry Cavill's Highlander Reveals Back Story & Reveals Rivalry With The Kurgan
+
+Movies, Highlander
+
+Thu, 16 Apr 2026 16:09:45 GMT
+
+https://www.cbr.com/henry-cavill-highlander-first-footage-cinemacon/
+
+The film had been in development for almost two decades and it's now officially happening.
+---------
+
+# Steven Spielberg's New Sci-Fi Disclosure Day Officially Unveils Alien Visitor in Eerie New Trailer
+
+Movies, Sci-Fi, Action, Thriller, Disclosure Day
+
+Thu, 16 Apr 2026 16:06:22 GMT
+
+https://www.cbr.com/steven-spielberg-new-sci-fi-disclosure-day-unveils-alien-visitor-eerie-new-trailer/
+
+The first official look at the alien threat in Disclosure Day headlined the film's new trailer.
+---------
+
+# 28 Years Later, Blade Still Has The Greatest Character Introduction of All Time
+
+Movies, Blade, Marvel, Sci-Fi
+
+Thu, 16 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/wesley-snipes-blade-greatest-character-intro-of-all-time/
+
+This underrated comic book masterpiece's introduction of its hero has still yet to be topped after twenty-eight years.
+---------
+
+# 29 Years Later, This Forgotten Buffy the Vampire Slayer Storyline Is Even More Frustrating
+
+TV, Buffy The Vampire Slayer, Horror
+
+Thu, 16 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/forgotten-buffy-storyline-invisible-assassins-still-frustrating/
+
+One episode of Buffy the Vampire Slayer teased a government program for invisible kids, and fans are still thinking about it years later.
+---------
+
+# The Opening to The Expanse Authors' Latest Sci-Fi Is Free
+
+TV, The Expanse, Prime Video, Sci-Fi
+
+Thu, 16 Apr 2026 15:50:25 GMT
+
+https://www.cbr.com/james-sa-corey-captives-war-faith-of-beasts-first-chapter-free/
+
+The opening to The Faith of Beasts, the latest sci-fi novel from The Expanse authors James S.A. Corey, is online for free.
+---------
+
+# Beloved Sci-Fi Fantasy Spin-Off Gets Even Better With New Look at Season 2
+
+TV News, Outlander: Blood of My Blood, Outlander, STARZ, Fantasy
+
+Thu, 16 Apr 2026 16:30:12 GMT
+
+https://collider.com/outlander-blood-of-my-blood-season-2-first-trailer/
+
+Starz has released the first official trailer for Outlander: Blood of My Blood Season 2, which will be released later this year. Watch it here!
+---------
+
+# 10 Most Terrifying Movie Endings of All Time, Ranked
+
+Movie, Black Christmas, Halloween, The Vanishing, The Blair Witch Project
+
+Thu, 16 Apr 2026 16:21:13 GMT
+
+https://collider.com/scariest-movie-endings-ranked/
+
+Eden Lake, The Blair Witch Project, and Black Christmas all have some of the scariest endings in horror movie history.
+---------
+
+# Wolverine and Captain America Face Off in Stunning First Look at New Marvel Release [Exclusive]
+
+Movie News, Marvel, The Punisher, Captain America, Comics
+
+Thu, 16 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-marvel-art-of-mike-zeck-cover-art-image-wolverine-captain-america/
+
+The Marvel Art of Mike Zeck will soon arrive with a cover that pits Wolverine against Captain America in the illustrator's style. See it here first!
+---------
+
+# Prime Video Is Doubling Down on Its $1 Billion Fantasy Series With a 5-Season Commitment
+
+TV Features, The Lord of the Rings: The Rings of Power, Prime Video, Fantasy, Morfydd Clark
+
+Thu, 16 Apr 2026 15:49:14 GMT
+
+https://collider.com/prime-video-rings-of-power-fantasy-epic-five-season-commitment/
+
+Despite early challenges, Prime Video is reportedly committed to releasing all five seasons of The Lord of the Rings: The Rings of Power.
+---------
+
+# The 15 Best Characters in 'The Pitt,' Ranked
+
+TV, The Pitt, HBO Max, Noah Wyle, Drama
+
+Thu, 16 Apr 2026 15:36:14 GMT
+
+https://collider.com/best-the-pitt-characters-ranked/
+
+From Noah Wyle's Dr. Robby to Supriya Ganesh's Dr. Samira Mohan to Taylor Dearden's Dr. Mel King, we rank the best characters of HBO Max's The Pitt.
+---------
+
+# Michael B. Jordan's 'Thomas Crown Affair' Remake Gets Trailer at CinemaCon
+
+Movie News, The Thomas Crown Affair, Michael B. Jordan, CinemaCon
+
+Thu, 16 Apr 2026 16:43:36 GMT
+
+https://movieweb.com/thomas-crown-affair-trailer-cinemacon/
+
+Amazon MGM Studios debuted the first trailer for Michael B. Jordan's upcoming remake of 'The Thomas Crown Affair' at CinemaCon.
+---------
+
+# 'Street Fighter' Official Trailer Released
+
+Movie News, Street Fighter
+
+Thu, 16 Apr 2026 16:06:09 GMT
+
+https://movieweb.com/street-fighter-official-trailer/
+
+Paramount Pictures has released the first full trailer for 'Street Fighter,' showcasing a colorful cast of fighters and a full 1990s aesthetic.
+---------
+
+# Apple's Margo's Got Money Troubles' Comedy Is the Perfect 'Shrinking' Replacement Before Season 4
+
+TV News, Margo's Got Money Troubles, Apple TV, Hot on Streaming, Shrinking
+
+Thu, 16 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/margos-got-money-troubles-new-shrinking-streaming-success-apple-april-2026/
+
+Apple TV's new comedy with Elle Fanning, 'Margo's Got Money Troubles,' is a streaming hit following 'Shrinking's Season 3 finale.
+---------
+
+# Ryan Coogler's 'X-Files' Reboot Gets '90s Sci-Fi Companion Adaptation
+
+Features, The X-Files, Ryan Coogler, Animorphs, Sci-Fi
+
+Thu, 16 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/x-files-nostalgic-sci-fi-animorphs/
+
+Ryan Coogler is producing another sci-fi TV adaptation that will continue his streak of nostalgic '90s reboots.
+---------
+
+# 'Community': Why Was Chevy Chase Fired from the Series?
+
+Features, Community, Chevy Chase
+
+Thu, 16 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/community-chevy-chase-fired-why/
+
+Chevy Chase notably portrayed the character of Pierce Hawthorne in Community, here is why was he fired from the series?
+---------
+
 # The White Lotus Meets Yellowstone In Netflix's The Hunting Wives
 
 Streaming TV, The Hunting Wives
