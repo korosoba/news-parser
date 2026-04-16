@@ -1,3 +1,223 @@
+# After Almost 40 Years, It's Officially The End Of An Era For Disney
+
+Movies, Disney, Dupes
+
+Thu, 16 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/disney-home-entertainment-division-layoffs/
+
+Disney is bringing one of its greatest eras to a close as its recent layoffs shuttered its in-house team in charge of home entertainment.
+---------
+
+# Jon Favreau Addresses Star Wars Giving Film Debut To Chewbacca's Original Abandoned Design 50 Years Later
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars, Chewbacca, Jon Favreau
+
+Thu, 16 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/star-wars-mandalorian-grogu-chewbacca-original-design-returning-jon-favreau/
+
+Exclusive: Jon Favreau explains how the latest Star Wars movie is finally adapting Chewbacca's original design over 50 years after abandoning it.
+---------
+
+# One Piece's Next Anime Makes Dragon Ball's Look Like A Complete Joke
+
+Anime, Dragon Ball, One Piece
+
+Thu, 16 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/one-piece-remake-better-dragon-ball-beerus/
+
+The Dragon Ball franchise's next anime is set to cover material not many fans want, while One Piece fans are gearing up for something much bigger.
+---------
+
+# Mother Mary Ending Explained: What The Red Spirit Is All About & Why It Matters
+
+Movies, Mother Mary
+
+Thu, 16 Apr 2026 22:20:18 GMT
+
+https://screenrant.com/mother-mary-ending-explained/
+
+Mother Mary's powerful visual metaphors add complexity to the emotionally resonant story about grief, relationships, and suicidal ideation.
+---------
+
+# Disney Debuts New Trailer And Major First Look Of The Mandalorian & Grogu Ahead Of Release
+
+Movies, The Mandalorian and Grogu, CinemaCon
+
+Thu, 16 Apr 2026 22:15:54 GMT
+
+https://screenrant.com/the-mandalorian-grogu-first-look-disney-cinemacon/
+
+Disney releases a major preview of the highly anticipated Star Wars film The Mandalorian & Grogu ahead of its release at CinemaCon.
+---------
+
+# The Pitt Season 3: Cast Changes, New Story Timeline & More Updates
+
+Streaming TV, The Pitt
+
+Thu, 16 Apr 2026 22:15:18 GMT
+
+https://screenrant.com/the-pitt-season-3-explained/
+
+HBO Max has confirmed that The Pitt is coming back for season 3, and here's what we know about the returning cast, the setting, and a release window.
+---------
+
+# PlayStation Plus Drops 97-Hour RPG That You'll Struggle To Put Down
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Thu, 16 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/playstation-plus-free-97-hour-monster-train/
+
+It's easy to find lengthy games on services like PlayStation Plus, but this one is incredibly addicting, and will last you weeks.
+---------
+
+# 10 Spider-Man Characters the MCU Needs to Avoid Like the Plague, Ranked
+
+Marvel Comics, Spider-Man, Marvel
+
+Thu, 16 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/spider-man-character-mcu-shouldnt-use/
+
+Some Spider-Man characters don't fit the MCU's plans for Tom Holland's Peter Parker due to convoluted origins, overused tropes, or plain absurdity.
+---------
+
+# Star Wars' New Show Is Everything The Acolyte Should Have Been
+
+Streaming TV, Star Wars: Maul - Shadow Lord, The Acolyte, Star Wars
+
+Thu, 16 Apr 2026 21:49:43 GMT
+
+https://screenrant.com/maul-shadow-lord-the-acolyte-comparison-star-wars/
+
+Maul - Shadow Lord seems like the Star Wars series The Acolyte wanted to be, and could have been, and some key changes been made with the 2024 show.
+---------
+
+# Studio Ghibli Fest 2026 Schedule & Full U.S. Theater Dates Revealed
+
+Anime, Studio Ghibli, GKIDS
+
+Thu, 16 Apr 2026 22:25:56 GMT
+
+https://www.cbr.com/studio-ghibli-fest-2026-schedule-release-dates/
+
+Spirited Away, My Neighbor Totoro and many more iconic Studio Ghibli titles head back to U.S. theaters beginning June 2026.
+---------
+
+# Star Wars: The Mandalorian and Grogu's Final Trailer Released
+
+Movies, The Mandalorian and Grogu
+
+Thu, 16 Apr 2026 22:21:49 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-grogu-final-trailer/
+
+The final trailer has just arrived for Star Wars: The Mandalorian and Grogu.
+---------
+
+# Breath of the Wild Meets Studio Ghibli in New Open-World RPG
+
+Games, The Legend of Zelda, Studio Ghibli, survival, open world, RPG, Steam
+
+Thu, 16 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/of-peaks-and-tides-studio-ghibli-breath-of-the-wild-inspiration/
+
+Magic and mystery collide in CyanCook's upcoming open-world RPG, Of Peaks and Tides, which draws inspiration from both Zelda and Studio Ghibli.
+---------
+
+# Evil Dead Burn Director's Debut Infested is a Perfect Horror Film
+
+Movies, Evil Dead Burn, Infested
+
+Thu, 16 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/evil-dead-burn-director-infested-perfect-horror/
+
+Evil Dead fans should not worry about the franchise's future with this director involved.
+---------
+
+# Jon Favreau Officially Reveals the Surprising Neo-Noir Thriller That Inspired ‘The Mandalorian and Grogu’s Biggest Action Scene
+
+Movie News, The Mandalorian and Grogu, Jon Favreau, The French Connection, Star Wars
+
+Thu, 16 Apr 2026 22:30:13 GMT
+
+https://collider.com/the-mandalorian-and-grogu-inspiration-the-french-connection-gene-hackman/
+
+Discover how the thrilling car chase from a neo-noir thriller influenced a big action scene in The Mandalorian and Grogu, the latest Star Wars movie.
+---------
+
+# First Star Wars Movie in 7 Years Delivers an Epic Sci-Fi Throwback in New Trailer
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Star Wars, CinemaCon
+
+Thu, 16 Apr 2026 22:26:50 GMT
+
+https://collider.com/the-mandalorian-and-grogu-trailer-tickets-on-sale-zeb-embo/
+
+Watch a new trailer for The Mandalorian and Grogu as Pedro Pascal and Sigourney Weaver invite you on the Star Wars adventure of a lifetime.
+---------
+
+# 10 Greatest Korean War Movie Masterpieces, Ranked
+
+Movie, M*A*S*H, The Manchurian Candidate, Devotion, War
+
+Thu, 16 Apr 2026 22:09:12 GMT
+
+https://collider.com/best-korean-war-movie-masterpieces-ranked/
+
+Although the Korean War is somewhat forgotten, the conflict has inspired several movie masterpieces, including M*A*S*H. and The Manchurian Candidate.
+---------
+
+# Netflix's 3-Part Series Is Quietly Becoming the Perfect 'Gilmore Girls' Replacement
+
+TV Features, Ginny & Georgia, Gilmore Girls, Netflix, Antonia Gentry
+
+Thu, 16 Apr 2026 21:51:36 GMT
+
+https://collider.com/ginny-and-georgia-netflix-gilmore-girls-replacement/
+
+Netflix's Ginny & Georgia explores complex family dynamics in a series that reimagines the mother-daughter relationship in Gilmore Girls.
+---------
+
+# Jon Favreau Confirms 'The Mandalorian & Grogu's Surprising Runtime [Exclusive]
+
+Movie News, Star Wars, The Mandalorian and Grogu, Jon Favreau
+
+Thu, 16 Apr 2026 22:30:17 GMT
+
+https://movieweb.com/the-mandalorian-grogu-star-wars-runtime/
+
+'Star Wars' next movie, 'The Mandalorian & Grogu,' will be one of the shortest movies in franchise history, according to director Jon Favreau.
+---------
+
+# 'Daredevil: Born Again' Season 2's Vanessa Twist Finally Tops Iconic 2019 MCU Moment
+
+Features, Daredevil: Born Again, MCU
+
+Thu, 16 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/marvel-unexpected-great-death-scene/
+
+A long-running 'Daredevil' character makes their exit in 'Born Again' Season 2, Episode 5, and it's an incredible way to leave the show.
+---------
+
+# New 'Star Trek' Movie Officially Happening With All-New Cast
+
+Movie News, Star Trek, Star Trek 4
+
+Thu, 16 Apr 2026 21:44:33 GMT
+
+https://movieweb.com/star-trek-4-official-confirmed/
+
+The new installment won't be connected to the trilogy of films developed by J.J. Abrams.
+---------
+
 # The Mummy 2026 Ending Explained: What Really Happened To Katie
 
 New Movies, Lee Cronin's The Mummy, Horror, Explainer
