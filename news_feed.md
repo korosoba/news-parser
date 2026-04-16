@@ -1,3 +1,311 @@
+# The Mummy 2026 Ending Explained: What Really Happened To Katie
+
+New Movies, Lee Cronin's The Mummy, Horror, Explainer
+
+Thu, 16 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/the-mummy-2026-movie-ending-explained/
+
+Lee Cronin’s The Mummy is built around the mystery of what happened to Katie Cannon, and the film’s ending puts it all into perspective.
+---------
+
+# Zero Day Wasted One Of Netflix's Greatest Casts
+
+TV, Zero Day
+
+Thu, 16 Apr 2026 21:29:22 GMT
+
+https://screenrant.com/netflix-zero-day-great-cast-wasted/
+
+Despite a star-studded cast including Robert De Niro, Lizzy Caplan, and Jesse Plemons, Netflix's thriller failed to deliver a compelling storyline.
+---------
+
+# Prime Video's 16-Part Fantasy Series With High Rotten Tomatoes Score Shows House Of The Dragon How It's Done
+
+TV, Masked Recs
+
+Thu, 16 Apr 2026 21:22:04 GMT
+
+https://screenrant.com/rings-of-power-fantasy-series-battles-better-house-of-the-dragon/
+
+Prime Video's biggest fantasy series gets one of the genre's crucial elements right, and the show beats House of the Dragon for a simple reason.
+---------
+
+# Mushoku Tensei: Jobless Reincarnation Is Officially Coming To Netflix With One Twist That Has Fans Furious
+
+Anime, Netflix, Mushoku Tensei: Jobless Reincarnation
+
+Thu, 16 Apr 2026 21:17:53 GMT
+
+https://screenrant.com/jobless-reincarnation-mushoku-tensei-netflix-not-usa/
+
+Netflix is drawing ire from U.S. fans as plans to add Mushoku Tensei: Jobless Reincarnation to its catalog overlook them.
+---------
+
+# Sydney Sweeney's Thriller Officially Becomes Her First Movie Ever To Cross Box Office Milestone As Theatrical Run Nears End
+
+Movies, The Housemaid, Sydney Sweeney, Box Office Milestone
+
+Thu, 16 Apr 2026 21:08:49 GMT
+
+https://screenrant.com/the-housemaid-movie-400-million-box-office-milestone-sydney-sweeney-first-record/
+
+Sydney Sweeney's thriller officially becomes her first movie ever to cross a key box office milestone, as the theatrical run is already at its end.
+---------
+
+# Red, White & Royal Wedding's Prime Video Release Window Revealed By Star
+
+Movies, Red, White & Royal Blue 2, Red, White & Royal Blue
+
+Thu, 16 Apr 2026 21:03:38 GMT
+
+https://screenrant.com/red-white-royal-wedding-release-window-2026-lena-headey/
+
+EXCLUSIVE: After Prime Video began developing Red, White & Royal Wedding, one of its stars has now revealed when viewers can watch the film.
+---------
+
+# New Xbox Game Pass Cyberpunk Release Has Fans "Blown Away"
+
+Gaming, Replaced, Indie Games, PC
+
+Thu, 16 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-replaced-cyberpunk-reactions/
+
+The Cyberunk genre has always been known for striking visuals, but this latest release is blowing fans away with its stunning graphics and gameplay.
+---------
+
+# Prime Video's Stargate Revival Is Coming At The Perfect Time
+
+Streaming TV, Stargate, Star Trek
+
+Thu, 16 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/prime-video-stargate-revival-perfect-time/
+
+Prime Video is bringing back Stargate just as Paramount is culling the Star Trek franchise, so the space opera balance has been restored.
+---------
+
+# Vegeta's Top 10 Most Powerful Moments In Dragon Ball
+
+Anime, Vegeta, Dragon Ball
+
+Thu, 16 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/vegeta-most-impressive-feats-dragon-ball-history/
+
+Vegeta has displayed lots of incredible feats of strength and power in Dragon Ball, from his early days as a villain to his recent Super appearances.
+---------
+
+# 17 Best Starfield Ship Parts (And Where To Find Them)
+
+Gaming, Starfield, PC
+
+Thu, 16 Apr 2026 20:51:36 GMT
+
+https://screenrant.com/starfield-best-ship-parts-locations/
+
+Although Starfield has countless ship parts, they were not all created equal. Some will barely get the job done, but others are simply overpowered.
+---------
+
+# 8 Steamiest The Vampire Diaries Scenes, Ranked
+
+TV, The Vampire Diaries
+
+Thu, 16 Apr 2026 21:30:14 GMT
+
+https://www.cbr.com/the-vampire-diaries-steamiest-scenes/
+
+The Vampire Diaries may be remembered for sad or dramatic scenes, but there were still some iconically steamy moments.
+---------
+
+# 4 RPGs Better Than Elden Ring
+
+Games, Elden Ring, RPG
+
+Thu, 16 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/rpgs-better-than-elden-ring-list/
+
+Elden Ring is one of the best RPGs of the last decade, but a handful of RPGs are even better.
+---------
+
+# James Wan Officially Confirms How His Mummy Movie Is Different Than Brendan Fraser's
+
+CBR Exclusives, Lee Cronin's The Mummy
+
+Thu, 16 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/difference-between-lee-cronins-the-mummy-brendan-fraser-sequel-james-wan/
+
+The Mummy is a hot property in horror cinema right now.
+---------
+
+# God Emperor of Dune Is Almost Impossible to Adapt
+
+Movies, Dune
+
+Thu, 16 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/god-emperor-of-dune-cinematic-adaptation-issue/
+
+Many fans of the franchise consider God Emperor of Dune to be the best book in the series, but transforming it into a film could prove difficult.
+---------
+
+# 10 Greatest Manga Masterpieces of All Time
+
+Anime, Manga, One Piece, Slam Dunk, Frieren: Beyond Journey's End
+
+Thu, 16 Apr 2026 21:17:12 GMT
+
+https://www.cbr.com/greatest-must-read-manga-masterpieces-of-all-time/
+
+10 manga which have emerged to become some of the best masterpieces of all time.
+---------
+
+# Netflix Co-Founder Reed Hastings to Exit
+
+TV, Netflix
+
+Thu, 16 Apr 2026 21:14:33 GMT
+
+https://www.cbr.com/reed-hastings-exits-netflix-board/
+
+Reed Hastings, who co-founded Netflix in 1997, will leave his position on its board of directors.
+---------
+
+# Xbox Officially Offering Free Store Credit Until May 2
+
+Games, Xbox Series X (1), Microsoft, Xbox (Original)
+
+Thu, 16 Apr 2026 21:00:14 GMT
+
+https://www.cbr.com/xbox-free-store-credit-available-now-may-2/
+
+Xbox is giving away gift cards for absolutely free, but only for a limited time.
+---------
+
+# 10 Greatest Crime Thrillers of the Past 50 Years
+
+Movies, Crime, Prisoners, Se7en
+
+Thu, 16 Apr 2026 21:00:14 GMT
+
+https://www.cbr.com/greatest-crime-thrillers-past-50-years/
+
+See the way the genre has evolved over the decades by watching the greatest crime thrillers of the past 50 years.
+---------
+
+# Steam Users Have Until April 23 to Claim Legend of Keepers for Free
+
+Games, Steam
+
+Thu, 16 Apr 2026 20:45:32 GMT
+
+https://www.cbr.com/steam-legend-of-keepers-career-dungeon-master-free-april-23/
+
+An acclaimed RPG is free to claim on Steam for a limited time.
+---------
+
+# CBS Officially Confirms the End of Yellowstone's Streaming Era
+
+TV, Marshals, Yellowstone, CBS
+
+Thu, 16 Apr 2026 20:41:40 GMT
+
+https://www.cbr.com/yellowstone-marshals-vewiership-numbers-end-of-era/
+
+Taylor Sheridan's neo-Western empire is outgrowing its former limits and forging a new era in Yellowstone's Kayce Dutton sequel, Marshals, on CBS.
+---------
+
+# The Worst Trend in Music History Ruined Every Pop and Rock Song of the 2010s
+
+Music Features, Music, Ludacris, Justin Bieber, Pop, Hip-Hop
+
+Thu, 16 Apr 2026 21:30:13 GMT
+
+https://collider.com/justin-bieber-the-worst-trend-in-pop-rock-music-history-2010s/
+
+Justin Bieber helped popularize rap guest spots in 2010s pop, a trend that later spread through pop and rock and hurt many songs.
+---------
+
+# 'Law & Order: SVU' Season 28 Officially Confirmed After Chris Meloni's Spin-Off Is Scrapped
+
+TV News, Law & Order: Special Victims Unit, Law & Order, Law & Order: Organized Crime, NBC
+
+Thu, 16 Apr 2026 21:28:13 GMT
+
+https://collider.com/law-and-order-svu-season-28-renewed-mariska-hargitay/
+
+Hours after Chris Meloni's Organized Crime spin-off was cancelled, Mariska Hargitay's Law & Order: SVU will return for Season 28.
+---------
+
+# The Best Movie From Every Year of the 2020s So Far
+
+Movie, Dune: Part Two, Everything Everywhere All at Once, Marty Supreme, Past Lives
+
+Thu, 16 Apr 2026 21:17:12 GMT
+
+https://collider.com/best-movie-every-year-of-the-2020s/
+
+So far, the 2020s has been a solid decade for cinema, thanks to movies like The Worst Person in the World and Everything Everywhere All at Once.
+---------
+
+# The 5 Best Horror Performances Since Toni Collette in 'Hereditary'
+
+Movie, Sinners, Pearl, Horror, Toni Collette
+
+Thu, 16 Apr 2026 21:09:14 GMT
+
+https://collider.com/best-horror-performances-since-hereditary-toni-collette/
+
+Toni Collette in Hereditary is a powerhouse performance of modern horror, although a select few horror performances have lived up to its stature.
+---------
+
+# Peacock Just Lost Its Best Sci-Fi Advantage Over Apple After Cancelling This 8-Part Series
+
+TV Features, Peacock, The Copenhagen Test, Simu Liu, Sci-Fi
+
+Thu, 16 Apr 2026 21:04:12 GMT
+
+https://collider.com/peacock-sci-fi-series-the-copenhagen-test-cancelled-meaning/
+
+Despite bringing in over 1.1 billion minutes watched, Peacock’s hit sci-fi series The Copenhagen Test has been canceled.
+---------
+
+# Stephen King Loved M. Night Shyamalan's 'Servant' on Apple TV
+
+Features, Servant, Quote
+
+Thu, 16 Apr 2026 21:01:18 GMT
+
+https://movieweb.com/servant-stephen-king-fan-thriller/
+
+Stephen King praised 'Servant,' the M. Night Shyamalan thriller series that ran for four seasons on Apple TV starring Lauren Ambrose and Rupert Grint.
+---------
+
+# 'Pulp Fiction's Fake Bible Quote Used by Pete Hegseth in Pentagon Prayer Service
+
+Movie News, Quentin Tarantino, Pulp Fiction
+
+Thu, 16 Apr 2026 20:55:01 GMT
+
+https://movieweb.com/fake-bible-quote-pulp-fiction-pentagon/
+
+The lines spoken by Samuel L. Jackson were presented as a real Bible verse by Pete Hegseth.
+---------
+
+# 'Transformers' Has a Perfect Original Series Sci-Fi Reunion on 'Invincible'
+
+Features, Transformers, The Transformers, Peter Cullen, Invincible
+
+Thu, 16 Apr 2026 20:53:23 GMT
+
+https://movieweb.com/transformers-reunion-invincible/
+
+After nearly a decade, Optimus Prime's Peter Cullen and Megatron's Frank Welker have reunited on the perfect sci-fi series.
+---------
+
 # Law & Order: SVU Season 28's Release Window Confirmed By NBC
 
 TV, Law & Order: Special Victims Unit
