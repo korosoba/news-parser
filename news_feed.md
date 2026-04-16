@@ -1,3 +1,190 @@
+# Pokémon Winds & Waves Leak Confirms Brand-New Gen 10 Monster
+
+Gaming, Pokemon Winds and Waves
+
+Thu, 16 Apr 2026 10:31:23 GMT
+
+https://screenrant.com/pokemon-winds-waves-leak-gen-10-new-monster/
+
+A leaked image suggests that Pokémon Winds & Waves, set to release in 2027, will introduce a new Gen 10 Water and Flying-type Pokémon.
+---------
+
+# GTA 6's Price Officially Just Went Up For Millions Of Gamers
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Thu, 16 Apr 2026 10:00:18 GMT
+
+https://screenrant.com/gta-6-price-increase-playstation-official/
+
+The release of Grand Theft Auto VI is going to cost a lot more if you need to get your hands on a console to play it.
+---------
+
+# Legend Of Zelda: Twilight Princess Fans Losing It Over New Trailer
+
+Gaming, The Legend of Zelda: Twilight Princess, The Legend of Zelda
+
+Thu, 16 Apr 2026 09:45:33 GMT
+
+https://screenrant.com/legend-of-zelda-twilight-princess-dusk-trailer/
+
+Twilight Princess is one of the best games in The Legend of Zelda series and there's a new trailer fans will want to be aware of.
+---------
+
+# Steam 2024 Game 100% Free To Keep If You Claim Before April 20
+
+Gaming, Steam
+
+Thu, 16 Apr 2026 09:30:38 GMT
+
+https://screenrant.com/steam-free-game-april-2026-limited-time-nine-hells/
+
+Experience the chilling first-person horror of NineHells, a 2024 indie game now available for free on Steam until April 20.
+---------
+
+# Everything We Know About the Superman Sequel, Man of Tomorrow
+
+Movies, Man of Tomorrow, Superman, DCU
+
+Thu, 16 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/superman-man-of-tomorrow-everything-we-know-dcu/
+
+James Gunn's Superman sequel, Man of Tomorrow, has officially started filming. Here's everything we know about the upcoming DCU film.
+---------
+
+# 10 Iconic Old-School Cartoons Everyone Forgot About
+
+TV, The Proud Family, Animation, Fillmore!, Danger Mouse
+
+Thu, 16 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/iconic-forgotten-old-school-cartoons-list/
+
+From Danger Mouse to The Proud Family, these hidden gems hold secrets and surprises that will make you nostalgic for simpler times.
+---------
+
+# 'Fury' Fans Need To Watch Prime Video's Ambitious 2025 War Movie
+
+Movie Features, The Tank, Fury, Prime Video, War
+
+Thu, 16 Apr 2026 10:42:43 GMT
+
+https://collider.com/prime-video-movies-the-tank-ww2/
+
+Prime Video's WWII movie The Tank follows a German crew sent on a dangerous, deadly mission in 1943.
+---------
+
+# The 30 Best Shows With Short (30 Minute or Less) Episodes, Ranked
+
+TV, South Park, BoJack Horseman, The Office, It's Always Sunny in Philadelphia
+
+Thu, 16 Apr 2026 10:36:12 GMT
+
+https://collider.com/best-30-minute-shows-short-episodes/
+
+For fans of television, the best 30-minute shows like South Park and The Office highlight why time is perhaps as important an asset as investments.
+---------
+
+# Forget ‘Reacher,’ Prime Video’s ‘Bosch’ Proves Titus Welliver’s Detective Series Is Still the King of Streaming
+
+TV News, Reacher, Bosch, The Wire, Titus Welliver
+
+Thu, 16 Apr 2026 10:30:12 GMT
+
+https://collider.com/titus-welliver-bosch-prime-video-detective-crime-series-streaming-success-april-2026/
+
+Forget Reacher, Titus Welliver's Bosch is once again a streaming king as the original hit series dominates streaming charts.
+---------
+
+# 45 Years Later, This Remains the Most Addictive Adventure Franchise of All Time
+
+Movie Features, Indiana Jones, Raiders of the Lost Ark, Harrison Ford, Steven Spielberg
+
+Thu, 16 Apr 2026 10:17:13 GMT
+
+https://collider.com/indiana-jones-raiders-of-the-lost-ark-trending-best-adventure-franchise/
+
+Indiana Jones still sets the gold standard for adventure movies 45 years later.
+---------
+
+# 15 Movies to Watch if You Love 'Scary Movie'
+
+Movie, Scary Movie 2, White Chicks, A Haunted House, Scary Movie
+
+Thu, 16 Apr 2026 10:03:12 GMT
+
+https://collider.com/movies-like-scary-movie/
+
+Scary Movie is a one-of-a-kind parody experience, but films like Dracula: Dead and Loving It and A Haunted House certainly come close.
+---------
+
+# Walton Goggins' 7-Part Crime Thriller Is So Good, You Can Rewatch It Multiple Times on Free Streaming
+
+TV News, Bosch, The Shield, Breaking Bad, Walton Goggins
+
+Thu, 16 Apr 2026 10:01:12 GMT
+
+https://collider.com/walton-goggins-fx-crime-thriller-bosch-meets-breaking-bad-the-shield-streaming-success-tubi-april-2026/
+
+Walton Goggins' beloved crime thriller The Shield is making a comeback on streaming. Read on for more details.
+---------
+
+# 6 Forgotten South Korean Movies That Are Incredible
+
+Movie, South Korea, Save the Green Planet, Castaway on the Moon, Time to Hunt
+
+Thu, 16 Apr 2026 09:52:12 GMT
+
+https://collider.com/forgotten-south-korean-movies-incredible/
+
+Castaway on the Moon, Time to Hunt, and Peppermint Candy are all some of the greatest South Korean movies that are underrated and mostly forgotten.
+---------
+
+# 'Firefly' Star's Cancelled 4-Part Sci-Fi Series Officially Returns, but There's a Catch
+
+TV News, Resident Alien, Sci-Fi, Alan Tudyk, Netflix
+
+Thu, 16 Apr 2026 09:31:20 GMT
+
+https://collider.com/firefly-star-alan-tudyk-cancelled-sci-fi-series-resident-alien-finale-comic/
+
+Alan Tudyk's 4-part sci-fi saga is making a comeback with a new project, giving fans some closure after last year's sudden cancellation.
+---------
+
+# Steven Spielberg Unveils New Trailer for 'Disclosure Day' at CinemaCon
+
+Movie News, Disclosure Day, Steven Spielberg, CinemaCon
+
+Thu, 16 Apr 2026 10:28:58 GMT
+
+https://movieweb.com/disclosure-day-trailer-steven-spielberg-cinemacon/
+
+Steven Spielberg appeared on the CinemaCon stage to debut exclusive new footage from his upcoming sci-fi thriller 'Disclosure Day.'
+---------
+
+# 'Spaceballs: The New One' Teaser Spoofs 'Star Wars,' 'Avatar' & More at CinemaCon
+
+Movie News, Spaceballs 2, Spaceballs
+
+Thu, 16 Apr 2026 09:50:59 GMT
+
+https://movieweb.com/spaceballs-2-trailer-title-cinemacon/
+
+The first trailer for 'Spaceballs: The New One' was unveiled at CinemaCon, teasing a spoof-heavy sequel parodying several blockbuster franchises.
+---------
+
+# Christopher Nolan Debuts Epic New Footage From 'The Odyssey' at CinemaCon
+
+Movie News, The Odyssey, Action, Fantasy
+
+Thu, 16 Apr 2026 09:37:23 GMT
+
+https://movieweb.com/the-odyssey-footage-cinemacon/
+
+The Oscar-winning director unveiled new footage from the action fantasy epic while explaining why he chose it as his next project.
+---------
+
 # Tomodachi Life: Living The Dream Romance Options Explained
 
 Gaming, Tomodachi Life: Living the Dream
