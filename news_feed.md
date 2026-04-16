@@ -1,3 +1,58 @@
+# Tomodachi Life: Living The Dream Romance Options Explained
+
+Gaming, Tomodachi Life: Living the Dream
+
+Thu, 16 Apr 2026 09:00:20 GMT
+
+https://screenrant.com/tomodachi-life-living-the-dream-romance-options-explained/
+
+Discover how to create and encourage romantic relationships between custom Mii characters in Tomodachi Life: Living the Dream.
+---------
+
+# Daredevil: Born Again Confirms Kingpin Was Never The MCU’s Best Villain, This Underrated Character Is
+
+TV, Marvel, Daredevil, Daredevil: Born Again
+
+Thu, 16 Apr 2026 09:00:20 GMT
+
+https://screenrant.com/daredevil-born-again-kingpin-mcu-bullseye-best-villain/
+
+This MCU villain has been extraordinary ever since they debuted almost eight years ago, but they've recently become the best Marvel has to offer.
+---------
+
+# The Fate of Peacock’s 2-Part Detective Thriller Has Officially Been Decided
+
+TV News, Peacock, The 'Burbs, Keke Palmer
+
+Thu, 16 Apr 2026 09:00:13 GMT
+
+https://collider.com/peacock-crime-thriller-poker-face-replacement-the-burbs-season-2-renewed/
+
+Peacock has decided the fate of its suburban crime comedy after a successful first season. Read on for more details.
+---------
+
+# 'Highlander' First Footage Finds Henry Cavill Battling Across Time at CinemaCon
+
+Movie News, Henry Cavill, Highlander, Action, Fantasy
+
+Thu, 16 Apr 2026 08:35:28 GMT
+
+https://movieweb.com/henry-cavill-highlander-reboot-first-footage/
+
+The first look at the 'John Wick' director Chad Stahelski's reboot of the action fantasy franchise features plenty of swordplay.
+---------
+
+# 'The Beekeeper 2' First Footage Unleashes Jason Statham at CinemaCon
+
+Movie News, Jason Statham, The Beekeeper, The Beekeeper 2, Action, Thriller
+
+Thu, 16 Apr 2026 08:26:37 GMT
+
+https://movieweb.com/jason-statham-beekeeper-2-footage-plot/
+
+The action star returns to one of his best-loved franchises, with the footage debuting at CinemaCon and revealing our first hint of plot.
+---------
+
 # Beef Season 2 Review: Anxiety Is The Latest Obsession For Netflix's Angry Thriller
 
 TV, Beef
