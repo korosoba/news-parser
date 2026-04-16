@@ -1,3 +1,322 @@
+# Street Fighter Trailer
+
+Movies, Street Fighter, CinemaCon
+
+Thu, 16 Apr 2026 13:10:49 GMT
+
+https://screenrant.com/street-fighter-movie-trailer-cinemacon-2026-paramount/
+
+A new Street Fighter trailer has been released.
+---------
+
+# Xbox Officially Drops Free Store Credit You've Until May 2 To Claim
+
+Gaming, Xbox Series X/S, Xbox Game Pass, PC
+
+Thu, 16 Apr 2026 13:09:59 GMT
+
+https://screenrant.com/xbox-free-store-credit-april-2026/
+
+Xbox gamers can officially claim some free store credit thanks to a limited-time offer that you have just about two weeks left to grab.
+---------
+
+# Taika Waititi's New Willy Wonka Netflix Remake Officially Unveiled With Release Window Confirmation
+
+Movies, Charlie and the Chocolate Factory, Willy Wonka, Netflix
+
+Thu, 16 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/willy-wonka-remake-taika-waititi-netflix-release-window-2027/
+
+Taika Waititi's new Willy Wonka remake for Netflix has officially been unveiled alongside release window confirmation of the movie.
+---------
+
+# Hogwarts Legacy 2 Can Wait, Hogwarts Legacy Is Still Getting New Content In 2026
+
+Gaming, Hogwarts Legacy
+
+Thu, 16 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-new-content-2026-modders/
+
+Hogwarts Legacy's modding community does an unbelievable job of keeping the game alive, and they're back once again with an awesome download.
+---------
+
+# HBO's Brilliant Watchmen Series Broke Every Rule In The Book
+
+Classic TV, Masked Recs
+
+Thu, 16 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/watchmen-hbo-tv-series-broke-every-rule/
+
+HBO and Damon Lindelof came together in 2019 to bring the legendary Watchmen comic to television, and they broke every TV rule while doing so.
+---------
+
+# DC Names the 1 Villain Who Will Eventually Kill the Flash
+
+Comics, DC Comics, DC, The Flash, Wonder Woman
+
+Thu, 16 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/wonder-woman-matriarch-kill-flash/
+
+The Flash's legacy is set to be forever changed, because DC Comics just officially named the villain who will eventually kill the Flash.
+---------
+
+# Lord Of The Rings Movies Ranked By Importance To Upcoming Films
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: Shadow of the Past, The Lord of the Rings
+
+Thu, 16 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/lord-of-the-rings-movies-hunt-for-gollum-shadows-past-linked-ranked/
+
+The Lord of the Rings is set to receive several exciting new films, pulling direct inspiration and lore from these important prior chapters.
+---------
+
+# Lee Cronin’s The Mummy Review: Gnarly Horror Movie Makes A Classic Monster Scary Again
+
+New Movies, Lee Cronin's The Mummy, Horror
+
+Thu, 16 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/the-mummy-2026-movie-review/
+
+Lee Cronin brings his Evil Dead energy to a familiar monster, and the resulting horror movie alternates between chilling scares and gross-out fun.
+---------
+
+# Forget Reacher, Prime Video's Crime Thriller With Strong Rotten Tomatoes Score Is A Better Bosch Replacement
+
+TV, Reacher, Cross, Bosch
+
+Thu, 16 Apr 2026 12:32:19 GMT
+
+https://screenrant.com/cross-better-bosch-replacement-than-reacher-prime-video/
+
+While Alan Ritchson's hit Reacher might seem like the perfect replacement for Bosch, another acclaimed Prime crime thriller is an even better fit.
+---------
+
+# Animal Crossing Officially Returns June 30, Mark Your Calendars
+
+Gaming, Animal Crossing, Animal Crossing New Horizons
+
+Thu, 16 Apr 2026 12:31:35 GMT
+
+https://screenrant.com/animal-crossing-new-switch-hardware-released/
+
+Animal Crossing fans, be sure to mark your calendars for June 30. A batch of official releases are coming that day, and you won't want to miss out.
+---------
+
+# 10 Best Anime To Watch After Fire Force
+
+Anime, Fire Force, Soul Eater
+
+Thu, 16 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/best-anime-to-watch-after-fire-force/
+
+Fans looking for new anime to fall in love with after Fire Force have plenty of great options to explore.
+---------
+
+# Street Fighter Action-Packed Trailer Rivals Mortal Kombat II
+
+Movies, Action, Street Fighter, capcom
+
+Thu, 16 Apr 2026 13:11:51 GMT
+
+https://www.cbr.com/street-fighter-action-packed-trailer-rivals-mortal-kombat-ii/
+
+Street Fighter is refusing to be outdone by Mortal Kombat II and the action-packed trailer proves it.
+---------
+
+# Lee Cronin’s The Mummy Review: A Great Horror Movie That Isn’t Quite a Great Mummy Movie
+
+Movies, Lee Cronin's The Mummy
+
+Thu, 16 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/lee-cronins-the-mummy-review/
+
+Lee Cronin's The Mummy is here but where it thrives in its scares it struggles to nail its core premise.
+---------
+
+# Aragorn’s Recasting Begins a New Era for Lord of the Rings
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Fantasy
+
+Thu, 16 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-recasts-aragorn-jamie-dornan-fantasy/
+
+The Lord of the Rings just offered a huge update about The Hunt for Gollum and the future of the acclaimed fantasy franchise.
+---------
+
+# Before Sonic the Hedgehog, Alvin and the Chipmunks Was the Perfect Live-Action/Animation Hybrid Movies
+
+Movies, Sonic the Hedgehog, Alvin and the Chipmunks
+
+Thu, 16 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/before-sonic-the-hedgehog-alvin-and-the-chipmunks-perfect-live-action-animation-hybrid/
+
+Sonic the Hedgehog is still the most popular live-action animated franchise, but Alvin and the Chipmunks is even better.
+---------
+
+# Kirk's Greatest Star Trek V: The Final Frontier Line Is Still the Most Powerful Quote in Trek History
+
+TV, Star Trek, Star Trek V: The Final Frontier, Sci-Fi
+
+Thu, 16 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/star-trek-final-frontier-kirk-powerful-line/
+
+Kirk’s line about dying alone in Star Trek V: The Final Frontier sums up the franchise's themes of friendship, unity, and cooperation.
+---------
+
+# CBS Is Snubbing Jared Padalecki's Fire Country Spinoff
+
+TV, Jared Padalecki, CBS, Fire Country
+
+Thu, 16 Apr 2026 12:58:31 GMT
+
+https://www.cbr.com/cbs-jared-padalecki-fire-country-spinoff-in-doubt/
+
+CBS is planning to expand the Fire Country franchise into a One Chicago-style universe, but a spinoff starring Jared Padalecki remains unconfirmed.
+---------
+
+# Taylor Sheridan's New Crime Drama Frisco King Finally Starts Filming
+
+TV, Frisco King, Tulsa King, samuel l jackson
+
+Thu, 16 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/frisco-king-filming-samuel-l-jackson-sylvester-stallone/
+
+The first image from the set reveals the first official look at Samuel L. Jackson in the series, joined by Sylvester Stallone.
+---------
+
+# DC's Radical Joker Redesign Was Inspired By A Horrifying Movie Role
+
+Comics, Batman
+
+Thu, 16 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/dc-comics-matt-fraction-joker-redesign-hannibal-lecktor/
+
+Batman writer Matt Fraction opens up about the Joker's new look, all while confirming which horror icon inspired the villain's drastic makeover.
+---------
+
+# David Tennant's Near-Perfect Hulu Sleeper Hit Returns With an Intense Season 2 Trailer
+
+TV News, Rivals, David Tennant, Rupert Everett, Hayley Atwell
+
+Thu, 16 Apr 2026 13:01:29 GMT
+
+https://collider.com/hulu-rivals-season-2-trailer/
+
+David Tennant, Alex Hassell, Hayley Atwell, and Rupert Everett star in the new season of the 1980s-set British drama Rivals.
+---------
+
+# New 'Street Fighter' Adaptation Lands a Hadouken in Unhinged First Official Trailer
+
+Movie News, Street Fighter, CinemaCon, Roman Reigns, Noah Centineo
+
+Thu, 16 Apr 2026 13:01:16 GMT
+
+https://collider.com/street-fighter-first-trailer-andrew-koji/
+
+The first official trailer for Street Fighter has arrived with an unhinged, action-packed new look at Capcom's fighting game brought to life.
+---------
+
+# Kit Connor Takes on Taika Waititi in First Look at Netflix's Reimagining of a Fantasy Classic
+
+Movie News, Charlie and the Chocolate Factory, Netflix, Taika Waititi, Kit Connor
+
+Thu, 16 Apr 2026 13:01:13 GMT
+
+https://collider.com/netflix-fantasy-charlie-vs-the-chocolate-factory-image-taika-waititi-kit-connor/
+
+Netflix reveals first look at its animated reboot of Roald Dahl's Charlie and the Chocolate Factory, starring Kit Connor and Taika Waititi.
+---------
+
+# 35 Best Action Movies of All Time, Ranked According to IMDb
+
+Movie, Action, The Dark Knight, The Lord of the Rings: The Return of the King, Inception
+
+Thu, 16 Apr 2026 12:32:13 GMT
+
+https://collider.com/best-action-movies-of-all-time-imdb/
+
+From 1994’s Léon: The Professional to 2008’s The Dark Knight, IMDb users’ votes have made it easy to discover the best action movies ever made.
+---------
+
+# Taylor Sheridan’s Latest Star Is Dominating Streaming With a New Hit Apple TV Series
+
+TV News, Apple TV, Margo's Got Money Troubles, Elle Fanning, Michelle Pfeiffer
+
+Thu, 16 Apr 2026 12:01:14 GMT
+
+https://collider.com/michelle-pfeiffer-apple-tv-margos-got-money-trouble-streaming-success-april-2026/
+
+Apple TV's newest series, already receiving near-perfect reviews, has immediately entered the U.S. top ten.
+---------
+
+# Taylor Sheridan Made Huge Changes to Tom Clancy's Action Thriller, but That's a Good Thing
+
+Movie Features, Tom Clancy's Without Remorse, Taylor Sheridan, Michael B. Jordan, Jack Ryan
+
+Thu, 16 Apr 2026 11:56:13 GMT
+
+https://collider.com/without-remorse-taylor-sheridan-book-changes/
+
+Without Remorse takes Tom Clancy's source material and makes a few key changes that affect its characters and relationships.
+---------
+
+# 'Lee Cronin's The Mummy' Review: A Horror Film Wrapped in Memories of 'The Exorcist'
+
+Movie Reviews, Lee Cronin, Lee Cronin's The Mummy, Blumhouse
+
+Thu, 16 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/lee-cronins-the-mummy-review/
+
+Lee Cronin’s follow-up to 'Evil Dead Rise' is another nail in the coffin of Blumhouse Productions’ reimagining of the classic Universal monsters
+---------
+
+# Is 'Lee Cronin's 'The Mummy' Connected to Brendan Fraser's 'The Mummy 4'?
+
+Features, The Mummy, The Mummy 4
+
+Thu, 16 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/the-mummy-lee-cronin-brendan-fraser-connection/
+
+There has been a great deal of confusion regarding how 'Lee Cronin's The Mummy' relates to the Universal Monsters franchise.
+---------
+
+# 'The Raid's Gareth Evans Reveals First Trailer for 'A Colt Is My Passport' at CinemaCon
+
+Movie News, A Colt Is My Passport, Action, Thriller
+
+Thu, 16 Apr 2026 12:05:45 GMT
+
+https://movieweb.com/colt-my-passport-remake-trailer-action/
+
+'Gangs of London' star Ṣọpẹ́ Dìrísù is a hitman on the run in this remake of a Japanese action crime thriller classic.
+---------
+
+# Prime Video's 'The Peripheral' Is a Must-Watch Cyberpunk Series Before 'Neuromancer'
+
+Features, Neuromancer, The Peripheral
+
+Thu, 16 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/the-peripheral-prime-video-series-worth-watching-before-neuromancer/
+
+'The Peripheral" is also based on a William Gibson novel, and is essential viewing before 'Neuromancer' arrives on Apple TV.
+---------
+
 # CBS Boss Explains Why NCIS: New York Is Happening But Not Tony & Ziva Season 2
 
 Network TV, NCIS, NCIS: Tony & Ziva
