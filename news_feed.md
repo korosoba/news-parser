@@ -1,3 +1,256 @@
+# 10 Biggest Reveals From Avengers: Doomsday’s New Trailer
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Fri, 17 Apr 2026 16:35:18 GMT
+
+https://screenrant.com/avengers-doomsday-new-trailer-cinemacon-footage-biggest-reveals/
+
+New footage for Avengers: Doomsday has arrived with an official trailer, and it holds several major reveals about the Phase 6 MCU movie.
+---------
+
+# Malcolm In The Middle Revival's New Family Members & Updated Visual Style Explained By Director
+
+TV, Malcolm in the Middle: Life's Still Unfair, Malcolm in the Middle: Life's Still Unfair - Season 1, Disney+
+
+Fri, 17 Apr 2026 16:30:20 GMT
+
+https://screenrant.com/malcolm-in-the-middle-revival-new-family-members-updated-visual-style-ken-kwapis/
+
+Director Ken Kwapis talks returning for the Malcolm in the Middle revival, Life's Still Unfair, introducing new family members and a new visual style.
+---------
+
+# The Boys Season 5 Trolls Fans With Black Noir Comic Ending Tease
+
+Streaming TV, The Boys
+
+Fri, 17 Apr 2026 16:30:20 GMT
+
+https://screenrant.com/the-boys-season-5-black-noir-homelander-clone-comic-ending/
+
+Prime Video's The Boys has made many deviations from the comics, but season 5 is teasing its Homelander clone ending, which feels like a red herring.
+---------
+
+# Dexter: Resurrection Season 2 Officially Cast New Angel Batista Replacement Character
+
+TV, Dexter: Resurrection, Dexter
+
+Fri, 17 Apr 2026 16:22:53 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-captain-officer-mixon-casting/
+
+Paramount has confirmed the casting of a new Dexter: Resurrection season 2 character whose role fulfills the absence left by Angel Batista.
+---------
+
+# The Next Big Non-Disney Animated Movie Officially Releases In 2 Weeks
+
+Movies, Disney, Swapped
+
+Fri, 17 Apr 2026 16:15:18 GMT
+
+https://screenrant.com/netflix-swapped-movie-release-date-how-to-watch/
+
+Hollywood's next big animated movie will go live in just two weeks, giving Disney serious competition for Movie of the Year.
+---------
+
+# Project Hail Mary Gets Streaming Release Update As Amazon Extends Theatrical Run
+
+Movies, Project Hail Mary
+
+Fri, 17 Apr 2026 16:07:33 GMT
+
+https://screenrant.com/project-hail-mary-streaming-release-date-amazon-theatrical-extension/
+
+Amid Project Hail Mary’s box office success, co-director Christopher Miller gives a major update about when the film will be available to stream.
+---------
+
+# Ridley Scott's New Sci-Fi Movie IsA Replacement For A Post-Apocalyptic Series
+
+Classic TV, The Dog Stars
+
+Fri, 17 Apr 2026 16:05:21 GMT
+
+https://screenrant.com/ridley-scott-upcoming-post-apocalyptic-movie-raised-by-wolves/
+
+Ridley Scott has a new sci-fi movie coming out in August 2026, and it might be the post-apocalyptic replacement for his HBO series that was canceled.
+---------
+
+# Taylor Sheridan's Landman Couldn't Have Been Made By Anyone Else
+
+TV, Landman, Taylor Sheridan
+
+Fri, 17 Apr 2026 16:00:55 GMT
+
+https://screenrant.com/taylor-sheridan-landman-not-made-by-anyone-else/
+
+Taylor Sheridan's 20-part neo-Western TV show sound like it'd be boring, but the creator's approach proves it couldn't have been made by anybody else.
+---------
+
+# Kevin Review: Aubrey Plaza's Animal Sitcom Is A Raunchy Mix Of Humor & Heart
+
+TV, Kevin
+
+Fri, 17 Apr 2026 16:00:55 GMT
+
+https://screenrant.com/kevin-tv-review/
+
+Kevin, co-created by Aubrey Plaza and Joe Wengert, stars Jason Schwartzman as Kevin, a tuxedo cat seeking a new beginning after his owners break up.
+---------
+
+# Most Important Naruto Details Boruto Changed
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations, Boruto: Two Blue Vortex, Shonen, shonen anime
+
+Fri, 17 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/biggest-naruto-lore-trivia-boruto-mistakes-change/
+
+Boruto ignores enough major Naruto history that some of the original story’s biggest moments lose their weight.
+---------
+
+# Project Hail Mary Gets Unfortunate Streaming Update Amid Successful Theatrical Run
+
+Movies, Project Hail Mary
+
+Fri, 17 Apr 2026 16:25:37 GMT
+
+https://www.cbr.com/project-hail-mary-streaming-update-longer-theatrical-run/
+
+At the same time, this is good news.
+---------
+
+# Ant-Man and the Wasp: Quantumania Star Officially Confirms Avengers: Doomsday Return 1 Day After CinemaCon
+
+Movies, Marvel, MCU, Marvel Comics, Ant-Man, Ant-Man 2, Ant-Man & the Wasp: Quantumania, Ant-Man and the Wasp: Quantumania, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Fri, 17 Apr 2026 16:19:28 GMT
+
+https://www.cbr.com/kathryn-newton-avengers-doomsday-casting/
+
+A familiar face has officially confirmed they will return in Avengers: Doomsday — sparking questions.
+---------
+
+# 7 Near-Perfect 1970s Anime No One Remembers
+
+Anime, Aim for the Ace, The Rose of Versailles
+
+Fri, 17 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/near-perfect-1970s-anime-no-one-remembers/
+
+The 1970s was a formative decade for anime, but some exceptional titles like Aim for the Ace! and Babel II have become forgotten retro classics.
+---------
+
+# Breaking Bad Lied to Audiences For 5 Whole Seasons (& Most Fans Didn't Even Notice)
+
+TV, Breaking Bad, Crime
+
+Fri, 17 Apr 2026 16:00:37 GMT
+
+https://www.cbr.com/breaking-bad-failed-series-promise/
+
+Breaking Bad promised to be a series where Walter White was pushed to the breaking point, but that actually never happened.
+---------
+
+# The Batman: Part II Still Has No Confirmed Updates
+
+Movies, The Batman, robert pattinson, matt reeves
+
+Fri, 17 Apr 2026 16:00:37 GMT
+
+https://www.cbr.com/the-batman-part-2-robert-pattinson-no-updates-for-sequel/
+
+Warner Bros. most anticipated film outside of Dune is in desperate need of some news.
+---------
+
+# Netflix’s 2-Part Crime Thriller Shows Just How Hard It Is to Follow a Perfect First Season
+
+TV News, Beef, Netflix, Cailee Spaeny, Carey Mulligan
+
+Fri, 17 Apr 2026 16:39:37 GMT
+
+https://collider.com/netflix-beef-season-2-rotten-tomatoes-score-is-it-good/
+
+Netflix’s 2-part crime thriller series proves just how hard it is to follow a perfect first season as new episodes arrive on the streamer.
+---------
+
+# Scrapped Steven Soderbergh Movie Was So Controversial That No One In Hollywood Dared To Touch It
+
+Exclusives, The Christophers, Steven Soderbergh, Ed Solomon, Ian McKellen
+
+Fri, 17 Apr 2026 16:25:31 GMT
+
+https://collider.com/steven-soderbergh-ed-solomon-the-christophers-ai-star-wars-tentpole-talking-monkeys-interview/
+
+Steven Soderbergh and Ed Solomon discuss their dream projects, the movie industry at large, AI in Hollywood, and collaborating on The Christophers.
+---------
+
+# New Adaptation of a Sherlock Holmes Classic Officially Confirmed
+
+TV News, Downton Abbey, Hugh Bonneville, Sherlock, Crime
+
+Fri, 17 Apr 2026 16:06:32 GMT
+
+https://collider.com/hugh-bonneville-sherlock-holmes-podcast-the-hound-of-the-baskervilles/
+
+Hugh Bonneville joins a new adaptation of The Hound of the Baskervilles, one of Arthur Conan Doyle’s most famous Sherlock Holmes stories.
+---------
+
+# After 25 Seasons, One of TV’s Longest-Running Crime Series Is Officially in Jeopardy
+
+TV News, Law & Order, Law & Order: Special Victims Unit, Law & Order: Organized Crime, NBC
+
+Fri, 17 Apr 2026 16:05:37 GMT
+
+https://collider.com/law-and-order-season-26-on-the-bubble-renewal-cancellation/
+
+After 36 years and 25 seasons, one of televisions most defining crime thrillers is officially in jeopardy at NBC.
+---------
+
+# 'Avengers: Endgame' Re-Release Includes New Footage Before 'Doomsday' Debut
+
+Movie News, Avengers: Endgame, Avengers: Doomsday, Joe Russo, Anthony Russo
+
+Fri, 17 Apr 2026 16:09:39 GMT
+
+https://movieweb.com/avengers-endgame-rerelease-new-footage-doomsday/
+
+Before 'Avengers: Doomsday' debuts in December, Marvel Studios is re-releasing 'Avengers: Endgame' with new footage and other surprises.
+---------
+
+# 'Game of Thrones' Celebrates 15 Years: A Retrospective on Foreshadowing King Bran
+
+Features, Game Of Thrones
+
+Fri, 17 Apr 2026 16:06:47 GMT
+
+https://movieweb.com/game-of-thrones-king-bran-foreshadowing/
+
+'Game of Thrones' premiered 15 years ago. The pilot told us exactly what the story was about, and no one believed it. Here's why.
+---------
+
+# The Saddest Episodes of 'Bluey'
+
+TV Lists, Bluey
+
+Fri, 17 Apr 2026 16:00:57 GMT
+
+https://movieweb.com/bluey-saddest-episodes/
+
+Even adult fans of the popular children's show 'Bluey' admit to getting emotional while watching the series.
+---------
+
+# Mark Wahlberg's New Amazon Action Movie 'Balls Up' Dominates Streaming
+
+Movie News, Mark Wahlberg, Balls Up, Action, Comedy, Prime Video
+
+Fri, 17 Apr 2026 16:00:56 GMT
+
+https://movieweb.com/mark-wahlberg-balls-up-action-stream-april-2026/
+
+Director Peter Farrelly casts Mark Wahlberg and Paul Walter Hauser in a raunchy action comedy that's quickly become a streaming hit.
+---------
+
 # Tomodachi Life: Living The Dream - Why You Probably Shouldn't Time Travel
 
 Gaming, Tomodachi Life: Living the Dream
