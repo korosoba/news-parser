@@ -1,3 +1,245 @@
+# Netflix’s New 10 Episode Legal Drama Is the Perfect Weekend Binge
+
+Anime, Netflix
+
+Fri, 17 Apr 2026 23:31:18 GMT
+
+https://screenrant.com/sins-kujo-netflix-new-legal-drama-weekend-binge/
+
+Netflix's new legal drama delves into the grittier and more fascinating side of the law and has gone virtually unnoticed.
+---------
+
+# Steam Makes 2021 RPG Completely Free To Keep Forever Until April 23
+
+Gaming, Steam, RPG, PC, Indie
+
+Fri, 17 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/steam-free-rpg-april-2026-legend-of-keepers/
+
+Steam has just made a 2021 roguelite game entirely free to claim and keep forever, but the offer is limited, and you’ll need to move fast.
+---------
+
+# After 8 Years, Netflix's Daredevil Is Officially Back
+
+Superheroes, Daredevil: Born Again
+
+Fri, 17 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/netflix-daredevil-back-born-again-season-2-episode-5/
+
+After being canceled in 2018, many wished for Netflix’s Daredevil to return. Now, after eight long years, a new episode proves it finally has.
+---------
+
+# Hulk Lifts All Of Antarctica, Mirroring His Iconic Secret Wars Feat
+
+Marvel Comics, Hulk, Marvel
+
+Fri, 17 Apr 2026 22:46:46 GMT
+
+https://screenrant.com/hulk-lift-continent-new-strength-record/
+
+Hulk repeats his most iconic feat of power 42 years after leaving the most famous Marvel heroes speechless with his immense strength and adaptability.
+---------
+
+# The MCU Is Officially Rewriting The Multiverse Saga Before Avengers: Doomsday
+
+Movies, Avengers: Doomsday, Marvel, Avengers: Endgame
+
+Fri, 17 Apr 2026 22:45:18 GMT
+
+https://screenrant.com/avengers-doomsday-retconning-multiverse-saga-endgame/
+
+Marvel's Avengers: Doomsday may disregard the Multiverse Saga, picking up directly after Avengers: Endgame, according to Kevin Feige's CinemaCon comments.
+---------
+
+# George R. R. Martin’s Favorite Book Series Inspired This Netflix Fantasy Hit
+
+Streaming TV, George R.R. Martin, The Last Kingdom
+
+Fri, 17 Apr 2026 22:31:19 GMT
+
+https://screenrant.com/george-r-r-martins-favorite-book-series-the-last-kingdom/
+
+As it turns out, one of George R.R. Martin’s favorite book series also went on to inspire one of Netflix’s best and most acclaimed shows.
+---------
+
+# Apple TV's Trying Is The Perfect 4-Part Ted Lasso Replacement
+
+Streaming TV, Masked Recs
+
+Fri, 17 Apr 2026 22:31:19 GMT
+
+https://screenrant.com/trying-apple-tv-ted-lasso-replacement/
+
+Apple TV's most underrated and longest-running show, Trying, is the perfect Ted Lasso replacement, utilizing a similar atmosphere and sense of humor.
+---------
+
+# Crunchyroll Drops 4 Major Anime Releases in New July 2026 Update
+
+Anime, Crunchyroll, Re:Zero -Starting Life in Another World-, The Apothecary Diaries, The 100 Girlfriends Who Really, Really, Really, Really, Really Love You, Reborn as a Vending Machine, I Now Wander the Dungeon
+
+Fri, 17 Apr 2026 23:16:13 GMT
+
+https://www.cbr.com/crunchyroll-anime-home-release-date-july-2026/
+
+Crunchyroll previews the biggest hits of the summer in new collection featuring limited edition and exclusive material from Re:Zero and more.
+---------
+
+# 7 Near-Perfect Magical Girl Anime No One Remembers
+
+Anime, Princess Tutu, Yuki Yuna Is A Hero
+
+Fri, 17 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/near-perfect-magical-girl-anime-no-one-remembers/
+
+Many magical girl anime have become evergreen hits, but there are also plenty of accomplished classics that don't get their due.
+---------
+
+# Spider-Man: No Way Home Is Disney+'s Most-Watched Movie in America
+
+Movies, Spider-Man: No Way Home, Disney+, Marvel Cinematic Universe
+
+Fri, 17 Apr 2026 23:09:31 GMT
+
+https://www.cbr.com/spider-man-now-way-home-superhero-success-disney-plus-april-2026/
+
+Spider-Man, played by Tom Holland, swings to the top of the Disney+ streaming chart in the United States.
+---------
+
+# South Park Game Officially Free to Play on Xbox for a Limited Time
+
+Games, South Park: Snow Day!, South Park
+
+Fri, 17 Apr 2026 23:09:15 GMT
+
+https://www.cbr.com/south-park-snow-day-free-xbox-april-20/
+
+An official South Park game is now free to play, but there's a catch.
+---------
+
+# 10 Terrifying Zombie Movies That Make the Perfect Double Feature With World War Z
+
+Movies, World War Z
+
+Fri, 17 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/zombie-movies-perfect-double-feature-world-war-z/
+
+A sequel to World War Z is finally on the way, but there are already many other zombie movies that make perfect companion pieces to the horror flick.
+---------
+
+# Battlestar Galactica's Darkest 45 Minutes in Sci-Fi TV History Haven't Been Topped in 21 Years
+
+TV, Battlestar Galactica, Sci-Fi
+
+Fri, 17 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/battlestar-galactica-darkest-sci-fi-chapter-tv-history/
+
+Following the miniseries, Battlestar Galactica returned with the darkest episode in the history of science fiction television. "33" remains unmatched.
+---------
+
+# HBO's 'Euphoria' Season 3 Is Officially the Worst Season By Far According to Rotten Tomatoes
+
+TV News, Euphoria, HBO Max, Zendaya, Sydney Sweeney
+
+Fri, 17 Apr 2026 23:30:12 GMT
+
+https://collider.com/hbo-euphoria-season-3-crime-thriller-rotten-tomatoes-score-is-it-good/
+
+For once, critics and fans are united on Rotten Tomatoes, as Season 3 of HBO's Euphoria is proving to be a major disappointment.
+---------
+
+# ‘John Wick’ Meets ‘The Punisher’ in Jason Statham’s Gritty Action Hit Taking Over the World
+
+Movie News, The Beekeeper, Jason Statham, John Wick, The Punisher
+
+Fri, 17 Apr 2026 23:15:12 GMT
+
+https://collider.com/john-wick-meets-the-punisher-jason-statham-the-beekeeper-streaming-success-prime-video-april-2026/
+
+Jason Statham's action smash hit with DNA from John Wick and The Punisher is taking the world by storm on streaming charts.
+---------
+
+# This Is the 1 Horror Movie That’s Even More Disturbing Than the Classic of the Same Name
+
+Movie Features, The Innocents, Horror, Prime Video, Foreign Films
+
+Fri, 17 Apr 2026 23:05:12 GMT
+
+https://collider.com/the-innocents-2021-horror-movie-disturbing-remake-streaming/
+
+The 2021 horror movie, The Innocents, is a disturbing and cruel look at children with superpowers.
+---------
+
+# The Best Mystery Series Since ‘Sherlock’ Gets a 10/10 Season 2 Trailer
+
+TV News, Sherlock, Mark Gatiss, Crime, Bookish
+
+Fri, 17 Apr 2026 23:00:13 GMT
+
+https://collider.com/sherlock-creator-mark-gatiss-bookish-season-2-trailer/
+
+Sherlock creator and star Mark Gatiss returns to the mystery genre in the Season 2 trailer for his critically acclaimed series, Bookish. See it here!
+---------
+
+# Prime Video and Blumhouse's Forgotten 6-Part Heist Thriller Is the Perfect One-Night Binge
+
+TV Features, Prime Video, The Sticky, Blumhouse, Margo Martindale
+
+Fri, 17 Apr 2026 23:00:13 GMT
+
+https://collider.com/the-sticky-prime-video-blumhouse-perfect-one-night-binge/
+
+Jamie Lee Curtis produced Prime Video's forgotten thriller The Sticky, which unpacks the true story behind a huge Canadian maple syrup heist.
+---------
+
+# 6 Forgotten Japanese Movies That Are Amazing From Start to Finish
+
+Movie, Samurai Rebellion, The Face of Another, A Scene at the Sea, Action
+
+Fri, 17 Apr 2026 22:48:13 GMT
+
+https://collider.com/forgotten-japanese-movies-amazing/
+
+Samurai Rebellion, Blue Spring, and Distant are excellent forgotten Japanese movies that deserve to be rediscovered.
+---------
+
+# Disney+’s Divisive 4-Part MCU Series Deserves More Credit Than It Gets
+
+TV Features, Eyes of Wakanda, Marvel, MCU, Disney+
+
+Fri, 17 Apr 2026 22:34:12 GMT
+
+https://collider.com/eyes-of-wakanda-marvel-mcu-series-worth-watching/
+
+Eyes of Wakanda takes risks, looks stunning, and quietly expands Wakanda in ways fans might be overlooking on Disney+.
+---------
+
+# Original 'Baywatch' Star Erika Eleniak Returning for Reboot
+
+TV News, Baywatch
+
+Fri, 17 Apr 2026 23:10:09 GMT
+
+https://movieweb.com/baywatch-reboot-erika-eleniak-return/
+
+The actor starred in the first three seasons of the beach-inspired drama.
+---------
+
+# 'Lee Cronin's The Mummy' Ending Explained: How Katie Became Possessed
+
+Features, The Mummy, Lee Cronin's The Mummy, Lee Cronin
+
+Fri, 17 Apr 2026 23:01:17 GMT
+
+https://movieweb.com/lee-cronin-the-mummy-ending-explained-what-really-happened-to-katie/
+
+'The Mummy's slow-burn mystery eventually reveals how a young girl who disappeared in Egypt returned 8 years later possessed by a diabolical entity.
+---------
+
 # Marvel Rivals: How To Play Black Cat (Abilities, Ultimate, Tips & Tricks)
 
 Gaming, Marvel Rivals, PC, Live Service Games
