@@ -1,3 +1,212 @@
+# Marvel Rivals: How To Play Black Cat (Abilities, Ultimate, Tips & Tricks)
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Fri, 17 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/marvel-rivals-black-cat-build-best-abilities-ultimate-team-comps/
+
+Season 7.5's newest character to Marvel Rivals is Black Cat, the master thief whose ability to steal fortunes make her a deadly and versatile hero.
+---------
+
+# Beef Season 2's Dark Truth Behind Ashley & Austin's Ending Revealed By Director Jake Schreier
+
+TV, Beef
+
+Fri, 17 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/beef-season-2-ending-explained-ashley-austin-fate-jake-schreier/
+
+Exclusive: Beef season 2 director Jake Schreier addresses Ashley & Austin's ending in the finale, a full circle moment for two conflicted characters.
+---------
+
+# 8 Best Studio Dragon K-Dramas That Are A 10/10
+
+Anime, Netflix, K-Drama
+
+Fri, 17 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/best-kdramas-studio-dragon-perfect/
+
+From zombie thrillers to cozy rom-coms, fans may be surprised by how many of the best, most successful K-dramas of all time come from one studio.
+---------
+
+# How Avengers: Doomsday & Secret Wars Are Connected Explained By Kevin Feige
+
+Movies, Avengers: Doomsday, Avengers: Secret Wars, Marvel Cinematic Universe, Kevin Feige
+
+Fri, 17 Apr 2026 21:46:23 GMT
+
+https://screenrant.com/avengers-doomsday-secret-wars-connection-explained-kevin-feige/
+
+MCU boss Kevin Feige reveals if Avengers Doomsday and Secret Wars are as connected to each other as Avengers: Infinity War and Endgame were.
+---------
+
+# Archive 81 Is Still 1 of Netflix’s Most Disturbing Watches
+
+TV, Horror, Archive 81, Netflix
+
+Fri, 17 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/archive-81-disturbing-netflix-horror-series/
+
+Even four years after its debut, one show's strange, ritualistic atmosphere is still more disturbing than most of the newer horror hits on Netflix.
+---------
+
+# Zelda: Ocarina of Time's Switch 2 Remake Now Objectively Has the Series' Best Combat
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Fri, 17 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-best-combat/
+
+Ocarina of Time’s upcoming remake on the Switch 2 will be a return to classic 3D Zelda combat that’s automatically better than the Wild Era.
+---------
+
+# David Harbour Joins Rambo Prequel in Major Role
+
+Movies, John Rambo, Rambo
+
+Fri, 17 Apr 2026 22:13:09 GMT
+
+https://www.cbr.com/john-rambo-casting-david-harbour/
+
+Stranger Things star David Harbour is playing a familiar character in Sylvester Stallone's Rambo prequel.
+---------
+
+# Pokémon Rip-Off Officially Removed from Steam After Controversy
+
+Games, Pokemon, Steam
+
+Fri, 17 Apr 2026 22:05:50 GMT
+
+https://www.cbr.com/pokemon-ripoff-pickmos-removed-steam/
+
+The Pokémon-inspired game has been pulled from Steam following controversy.
+---------
+
+# Will Trent Crime Drama Series Rises on Hulu Charts After Shocking Death
+
+TV, Will Trent, Crime, ABC
+
+Fri, 17 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/will-trent-crime-drama-abc-hulu-success-april-2026/
+
+ABC's crime drama series Will Trent rises on the Hulu streaming charts in the US, jumping from No. 14 to No. 2, following shocking death.
+---------
+
+# Henry Cavill's Highlander Is Getting the John Wick Treatment
+
+Movies, Highlander, John Wick
+
+Fri, 17 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/henry-cavill-highlander-john-wick-treatment-redefine-genre/
+
+This upcoming fantasy action epic has been years in the making for Cavill, but will it truly Wick-ify the genre like some excited fans have suggested?
+---------
+
+# Dungeons & Dragons Gets First Official Actual Play Series
+
+TV, Dungeons and Dragons, Critical Role
+
+Fri, 17 Apr 2026 21:59:48 GMT
+
+https://www.cbr.com/dungeon-and-dragons-dnd-actual-play-dungeon-masters/
+
+After the successes of Critical Role and Dimension 20, Dungeons & Dragons is launching its own official actual play series, Dungeon Masters.
+---------
+
+# Law & Order: SVU Renewal Boosts Benson & Stabler Reunion Chances
+
+TV, Law & Order: Special Victims Unit, Law & Order: Organized Crime, Law & Order
+
+Fri, 17 Apr 2026 21:40:12 GMT
+
+https://www.cbr.com/law-order-svu-benson-stabler-reunion/
+
+Now that Law & Order: Organized Crime is canceled and SVU is going into its 28th season, maybe Benson and Stabler's next chapter can finally start.
+---------
+
+# 10 Binge-Worthy Superhero Shows That Got Better Every Season
+
+TV, Superhero, Invincible, Daredevil, Justice League Unlimited
+
+Fri, 17 Apr 2026 22:29:12 GMT
+
+https://collider.com/superhero-shows-binge-worthy-better-every-season/
+
+From The Boys to Invincible, these superhero shows kept getting better every season, raising stakes, writing, and character depth.
+---------
+
+# The Best Time-Loop Movie of the Last 15 Years Isn't Tom Cruise's Near-Perfect 'Edge of Tomorrow'
+
+Movie Features, Boss Level, Edge of Tomorrow, Frank Grillo, Hulu
+
+Fri, 17 Apr 2026 22:19:12 GMT
+
+https://collider.com/best-time-loop-movies-boss-level-hulu-frank-grillo-edge-of-tomorrow/
+
+Hulu's 2020 sci-fi action movie Boss Level, starring Frank Grillo, Michelle Yeoh, and Mel Gibson, puts a clever twist on the time-loop movie.
+---------
+
+# Sylvester Stallone's Rambo Prequel Officially Recasts a Beloved Role
+
+Movie News, John Rambo, David Harbour, Noah Centineo, Action
+
+Fri, 17 Apr 2026 22:08:10 GMT
+
+https://collider.com/sylvester-stallone-noah-centineo-rambo-prequel-cast-david-harbour-major-trautman/
+
+Stranger Things star and MCU favorite David Harbour has joined the upcoming Rambo prequel as a beloved fan-favorite character.
+---------
+
+# 2 Years Later, Prime Video's Electric American Thriller Is Unstoppable on Streaming
+
+Movie Features, Alex Garland, Civil War, Kirsten Dunst, Cailee Spaeny
+
+Fri, 17 Apr 2026 22:00:12 GMT
+
+https://collider.com/alex-garland-civil-war-best-thriller/
+
+Alex Garland directed the A24 film Civil War, which chronicles an American conflict through the eyes of a war photojournalist.
+---------
+
+# 'Daredevil: Born Again' Had Every Chance To Be Great — Then It Did This
+
+TV Features, Daredevil: Born Again, Vincent D'Onofrio, Ayelet Zurer, Wilson Bethel
+
+Fri, 17 Apr 2026 21:39:12 GMT
+
+https://collider.com/daredevil-born-again-season-2-vanessa-fisk-fridging-death/
+
+Daredevil: Born Again Season 2 disappoints with the unnecessary death of Vanessa, failing to capitalize on her complex character development.
+---------
+
+# First 'Doctor Who' Spin-Off 'Torchwood' Is Back on Digital Streaming Charts on Apple
+
+TV News, Torchwood, Doctor Who, Apple TV
+
+Fri, 17 Apr 2026 22:21:55 GMT
+
+https://movieweb.com/torchwood-streaming-revival-apple-store-april-2026-better-than-doctor-who/
+
+The 'Torchwood' spin-off that's better than 'Doctor Who,' is making a comeback on digital streaming in 2026 on the Apple Store.
+---------
+
+# 'Top Gun 3': Release Window, Cast, Plot, & Everything We Know
+
+Features, Top Gun 3, Top Gun: Maverick
+
+Fri, 17 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/top-gun-3-everything-we-know/
+
+'Top Gun 3' is confirmed, but what's the plan for it? Here's everything that's been revealed so far.
+---------
+
 # Prime Video's Undone Is So Perfect That It Demands A Second Watch
 
 Classic TV, Masked Recs
