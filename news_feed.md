@@ -1,3 +1,267 @@
+# Upcoming Fantasy TV Show Continues An Exciting Trend After 10/10 Game Of Thrones Spinoff
+
+Streaming TV, A Knight Of The Seven Kingdoms
+
+Fri, 17 Apr 2026 03:58:11 GMT
+
+https://screenrant.com/the-house-by-the-cerulean-sea-a-knight-of-the-seven-kingdoms-cozy-fantasy-trend/
+
+A Knight of the Seven Kingdoms started an exciting TV trend, and it's only going to continue with one newly announced upcoming series.
+---------
+
+# Complete Guide to Digimon Movies and Series: Watch Order & Recommendations
+
+Anime, Digimon
+
+Fri, 17 Apr 2026 03:50:19 GMT
+
+https://screenrant.com/digimon-order-anime-movie-show/
+
+Digimon has spawned almost a dozen anime and an even larger amount of movies, and this is when each one was released and how they can be watched.
+---------
+
+# PlayStation Just Got A Massive Free Open-World RPG You Don't Need PS Plus For
+
+Gaming, Crimson Desert, The Witcher, Fortnite
+
+Fri, 17 Apr 2026 03:31:19 GMT
+
+https://screenrant.com/crimson-desert-meets-witcher-free-open-world-rpg/
+
+A brand-new free RPG has landed on PlayStation alongside Xbox and PC, and you don't need PS Plus or any other subscription.
+---------
+
+# Netflix’s Upcoming Romantasy Movie Will Make Up For ACOTAR’s Cancelation
+
+Movies, A Court of Thorns and Roses
+
+Fri, 17 Apr 2026 03:30:25 GMT
+
+https://screenrant.com/netflix-quicksilver-romantasy-acotar-cancelation/
+
+Hulu might have taken the ax to its A Court of Thorns and Roses adaptation, but Netflix will provide the perfect romantasy film for disappointed fans.
+---------
+
+# One Piece Doesn't Care Much For Romance, But 1 Couple Already Looks Endgame to Us
+
+Anime, One Piece
+
+Fri, 17 Apr 2026 03:15:21 GMT
+
+https://screenrant.com/one-piece-anime-romance-luffy-nami-ship-explainer/
+
+Eiichiro Oda has made it clear that romance is not a priority in One Piece, but there is one couple that the series may make officially canon.
+---------
+
+# Boruto Confirms Dark Future as Naruto's Multiverse Is Quickly Falling Apart
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Fri, 17 Apr 2026 02:45:20 GMT
+
+https://screenrant.com/naruto-dark-multiverse-boruto-two-blue-vortex-broken-future/
+
+The Naruto timeline has become vastly more complicated in its latest manga sequel, with its latest breaking point being made clear
+---------
+
+# The Pitt Season 2 Ending: Robby's Threat To Dr. Al-Hashimi & What It Means For Season 3 Explained By Star
+
+TV, The Pitt, The Pitt - Season 2, Sepideh Moafi, HBO Max
+
+Fri, 17 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/the-pitt-season-2-ending-robby-alhashimi-threat-sepideh-moafi/
+
+Exclusive: Sepideh Moafi talks Dr. Robby's threat to Dr. Al-Hashimi in The Pitt season 2's ending and what it means for season 3 of the show.
+---------
+
+# Transformers Revives Beast Wars Big Convoy After 28 Years
+
+Anime, Transformers, Beast Wars: Transformers, merchandise, toys
+
+Fri, 17 Apr 2026 03:50:12 GMT
+
+https://www.cbr.com/transformers-beast-wars-big-convoy-flame-toys-furai-model-kit-reveal/
+
+Big Convoy, one of the most obscure Japanese Transformers, roars into battle with his Big Cannon through a 'mammoth' new Flame Toys model kit.
+---------
+
+# 5 Confusing Vegeta Fights That Make Absolutely Zero Sense
+
+Anime, Dragon Ball, Vegeta, Dragon Ball Z, Dragon Ball Super
+
+Fri, 17 Apr 2026 03:46:15 GMT
+
+https://www.cbr.com/dragon-ball-vegeta-fights-make-no-sense/
+
+Vegeta is always willing to throw his hat into the battlefield, but some of his fights feature confusing strategies and illogical behavior.
+---------
+
+# The Bobiverse Next Hard Sci-Fi Step After Project Hail Mary
+
+Movies, Sci-Fi, Project Hail Mary, universal pictures
+
+Fri, 17 Apr 2026 03:46:15 GMT
+
+https://www.cbr.com/universal-hard-sci-fi-bobiverse-next-step-after-project-hail-mary/
+
+Project Hail Mary is a box-office smash, and an adaptation of the Bobiverse by Dennis E. Taylor could be its hard science fiction successor
+---------
+
+# 10 Things That Happen in Every Star Trek: The Original Series Episode
+
+TV, Star Trek, Star trek, Sci-Fi
+
+Fri, 17 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/things-that-happen-in-every-star-trek-tos-episode/
+
+Star Trek: The Original Series was a unique show with a wide array of episodes, but certain elements had to be present in each episode for it to work.
+---------
+
+# Everything We Know About The Lord of the Rings: The Hunt for Gollum
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Fri, 17 Apr 2026 03:16:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-everything-we-know/
+
+Over two decades later, another live-action The Lord of the Rings film has entered development, but what does it have in store for Middle-earth fans?
+---------
+
+# 10 Anime Too Controversial for Their Own Good
+
+Anime
+
+Fri, 17 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/most-controversial-anime-list/
+
+Controversy sells, but the most controversial anime proves that not all attention is good attention.
+---------
+
+# Crunchyroll's Dark New Breakout Hit Is Inspired by Game of Thrones, Creator Says
+
+Anime, Game Of Thrones, a song of ice and fire, Sentenced to Be a Hero
+
+Fri, 17 Apr 2026 02:50:12 GMT
+
+https://www.cbr.com/sentenced-to-be-a-hero-creator-game-of-thrones-inspire/
+
+One of Crunchyroll's most popular dark fantasy titles of 2026 takes inspiration from American author George R. R. Martin's iconic medieval epic.
+---------
+
+# Needy Girl Overdose Is Already Even Crazier Than Chainsaw Man
+
+Anime, Chainsaw Man
+
+Fri, 17 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/needy-girl-overdose-perfect-chainsaw-man-replacement/
+
+As far as Chainsaw Man’s crudeness and psychological appeal are concerned, Needy Girl Overdose just matched that energy and took it to the next level.
+---------
+
+# 10 Most Underrated Lightsaber Designs in Star Wars
+
+Movies, Star Wars, Sci-Fi
+
+Fri, 17 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/star-wars-underrated-lightsaber-designs-ranked-list/
+
+Some lightsabers in Star Wars get all the credit, but these superb designs all deserve more attention.
+---------
+
+# Rivals: David Tennant's Hulu Sleeper Hit Returns With Season 2 Trailer
+
+TV, Rivals, Hulu
+
+Fri, 17 Apr 2026 02:15:15 GMT
+
+https://www.cbr.com/hulu-rivals-season-2-trailer-david-tennant/
+
+David Tennant's acclaimed series is back for its new season with the official trailer now revealed.
+---------
+
+# 5 Most Important Action Shows That Define the Genre
+
+TV, Action, Buffy The Vampire Slayer, 24, NCIS
+
+Fri, 17 Apr 2026 04:07:12 GMT
+
+https://collider.com/most-important-action-shows-define-genre/
+
+From the coming-of-age classic Buffy the Vampire Slayer to the thrilling series 24, these action shows are among the most important of the genre.
+---------
+
+# Henry Cavill's 2005 James Bond Audition Tape Proved Daniel Craig Was Always the Right Choice
+
+Movie Features, Henry Cavill, James Bond, Casino Royale, Daniel Craig
+
+Fri, 17 Apr 2026 03:49:52 GMT
+
+https://collider.com/henry-cavill-james-bond-audition-lost-to-daniel-craig/
+
+Henry Cavill's leaked audition tape for the James Bond franchise proves that Daniel Craig was the right choice for the role.
+---------
+
+# ‘The Boys’ Season 5 Just Changed Everything With That Compound V Twist
+
+Interviews, The Boys, Eric Kripke, Laz Alonso, Prime Video
+
+Fri, 17 Apr 2026 03:05:43 GMT
+
+https://collider.com/the-boys-season-5-donald-trump-homelander-eric-kripke-episode-3-interview/
+
+“Hard, sad sigh.” The Boys' Eric Kripke reacts to the final season's unplanned mirror of real-life politics with Homelander's Jesus hallucination.
+---------
+
+# Carrie Preston Delivers Her Best 'Elsbeth' Performance to Date on the CBS Procedural | Review
+
+TV Reviews, Elsbeth, Carrie Preston, Griffin Dunne, CBS
+
+Fri, 17 Apr 2026 03:00:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-16-recap-review-carrie-preston-griffin-dunne/
+
+Elsbeth's latest episode unravels a complex mystery as Carrie Preston delivers her best performance to date on the show.
+---------
+
+# 'The Pitt' Season 2's Most Visceral Patient Scene Took "a Week and a Half" to Film
+
+Exclusives, The Pitt, Luke Tennie, HBO, HBO Max
+
+Fri, 17 Apr 2026 02:00:23 GMT
+
+https://collider.com/the-pitt-season-2-finale-c-section-scene-luke-tennie-crus-henderson-interview/
+
+Luke Tennie discusses joining The Pitt Season 2 and which visceral patient scene in the finale took a week and a half to film.
+---------
+
+# 'The Pitt' Season 2 Ending Explained: What Happens To Dr Robby & Baby Jane Doe?
+
+Features, The Pitt
+
+Fri, 17 Apr 2026 02:05:18 GMT
+
+https://movieweb.com/the-pitt-season-2-ending-explained/
+
+'The Pitt' Season 2, Episode 15, "9:00 P.M." concludes this season of the popular HBO Max medical drama starring Noah Wyle as Dr. Robby Robinavitch.
+---------
+
+# 10 Hard Sci-Fi TV Shows Better Than 'The Expanse'
+
+TV Lists, The Expanse, Sci-Fi
+
+Fri, 17 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/hard-sci-fi-tv-shows-better-than-the-expanse/
+
+Hard sci-fi is a genre of its own, with so many shows exploring the future in deep space, as well as eerie possibilities much closer to home.
+---------
+
 # The Pitt Season 2: Dr. Abbot's Indispensable Role & Robby's Mental Health
 
 Streaming TV, The Pitt, The Pitt - Season 2
