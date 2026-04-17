@@ -1,3 +1,355 @@
+# The Pitt Season 2: Dr. Abbot's Indispensable Role & Robby's Mental Health
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 17 Apr 2026 01:30:19 GMT
+
+https://screenrant.com/the-pitt-season-2-finale-dr-abbot-never-leave/
+
+In The Pitt season 2, Dr. Abbot's pivotal role in saving Robby's life and addressing his passive suicidal ideation highlights the importance of strong male friendships in dealing with depression.
+---------
+
+# Chris Evans Breaks His Silence On Steve Rogers' Return In Avengers: Doomsday
+
+Movies, Avengers: Doomsday, CinemaCon, The Avengers, Marvel Cinematic Universe
+
+Fri, 17 Apr 2026 01:06:25 GMT
+
+https://screenrant.com/chris-evans-avengers-doomsday-marvel-return-comments-cinemacon-2026/
+
+As he is set to return as Steve Rogers in 2026, Chris Evans is finally breaking his silence on reprising his iconic role in Avengers: Doomsday.
+---------
+
+# Why Homelander's Jesus Phase Is His "Final Form" In The Boys Season 5 Explained By Eric Kripke
+
+TV, The Boys
+
+Fri, 17 Apr 2026 01:01:54 GMT
+
+https://screenrant.com/prime-video-the-boys-season-5-homelander-jesus-form-explained-eric-kripke/
+
+Creator Eric Kripke explains why Antony Starr's Homelander has embraced his "final form" as a Jesus-like figure in Prime Video's The Boys season 5.
+---------
+
+# The Pitt Season 2 Ending Explained: What Robby's Final Moment With Baby Jane Doe Means
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 17 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episode-15-ending-explained/
+
+Explore the significance of Robby's conversation with Baby Jane Doe in The Pitt season 2 finale, and how it reflects his mental health struggles and journey towards healing.
+---------
+
+# Zelda: Demon's Quest Will Keep You Busy Till The Ocarina Remake
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Fri, 17 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-demons-quest-rpg/
+
+Completely changing the way you interact with combat in Ocarina of Time, Demon's Quest is worth playing for all types of Zelda fans.
+---------
+
+# The Expanse's Season 7 Chances Make It More Exciting Than Any Upcoming Sci-Fi Show
+
+Classic TV, The Expanse
+
+Fri, 17 Apr 2026 00:45:19 GMT
+
+https://screenrant.com/the-expanse-season-7-possibility-daniel-abraham-ama/
+
+Prime Video's The Expanse ended in January 2022, but the book series' authors think a season 7 revival is still possible.
+---------
+
+# Jonathan Frakes Optimistic About Star Trek's Future Amid Production Hiatus
+
+TV, Star Trek
+
+Fri, 17 Apr 2026 00:30:44 GMT
+
+https://screenrant.com/star-trek-future-jonathan-frakes-optimistic/
+
+Jonathan Frakes is staying positive about Star Trek's future, despite Starfleet Academy's cancellation and the franchise being at a crossroads.
+---------
+
+# 10 Most Ridiculous Scenes In Netflix's Thrash
+
+Movies, Thrash
+
+Fri, 17 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/thrash-netflix-shark-movie-most-ridiculous-scenes/
+
+Netflix's new shark movie, Thrash, may not be realistic but it is fun, and it is one of the most ridiculous high-budget shark movies made to date.
+---------
+
+# New Robin Art Proves Latest Redesign Might Be His Best Costume Ever
+
+DC Comics, Batman, Robin
+
+Fri, 17 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/absolute-batman-robin-redesign-new-costume-art/
+
+Absolute Batman's new costume for Robin is unlike anything we've seen before, and it marks one of the hero's greatest looks yet.
+---------
+
+# Scrubs Season 11 Officially Replaces The Show's Most Beloved Villain
+
+Streaming TV, Scrubs
+
+Fri, 17 Apr 2026 00:15:19 GMT
+
+https://screenrant.com/scrubs-season-11-janitor-neil-flynn-villain-replace-darcy-michael/
+
+Scrubs season 10 used its final episode to bring back the very last element this revival was missing. Now, season 11 is all set to run things forward.
+---------
+
+# 10 Strongest Anime Villains Who Were Too Powerful to Defeat
+
+Anime, Naruto, Monster, Psycho-Pass, Berserk, Cyberpunk: Edgerunners, Devilman Crybaby, Made in Abyss, Dragon Ball, Code Geass: Lelouch of the Rebellion, Fate/Zero, shonen anime
+
+Fri, 17 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/anime-strongest-undefeatable-villains/
+
+A breakdown of anime's strongest villains who couldn't be overpowered.
+---------
+
+# NCIS Officially Confirms a Major Franchise Reset After 3 Years
+
+TV, NCIS, CBS, NCIS: Hawaii, NCIS: Sydney, NCIS: Los Angeles, NCIS: New Orleans, NCIS: Tony & Ziva
+
+Fri, 17 Apr 2026 01:43:14 GMT
+
+https://www.cbr.com/ncis-new-york-location-based-spinoff-return/
+
+CBS's Navy procedural franchise has a massive announcement, confirming NCIS is undergoing a major reset three years after NCIS: Sydney's debut.
+---------
+
+# Martin Scorsese’s The Irishman is a Perfect Love-Letter To His Career
+
+Movies, The Irishman
+
+Fri, 17 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/martin-scorsese-the-irishman-most-underrated-gangster-movie/
+
+Scorsese's latest gangster film, starring Robert De Niro, Al Pacino, and Joe Pesci, is underrated for the same reasons that make it great.
+---------
+
+# Robert Downey Jr.'s Doctor Doom Officially Arrives in Avengers: Doomsday's Shocking Trailer
+
+Movies, Avengers: Doomsday
+
+Fri, 17 Apr 2026 01:02:37 GMT
+
+https://www.cbr.com/avengers-doomsday-cinemacon-trailer/
+
+The Avengers: Doomsday trailer unveiled at CinemaCon includes some shocking moments, especially with the first look at RDJ's Doctor Doom.
+---------
+
+# 10 Best Batman Costumes, Ranked
+
+Comics, Batman, DC Comics
+
+Fri, 17 Apr 2026 01:00:13 GMT
+
+https://www.cbr.com/10-best-batman-costumes-ranked-list/
+
+Batman has had countless legendary costumes over the years, but these ten iconic looks are the Caped Crusader's very best.
+---------
+
+# Star Wars Reveals Official First Meeting of Luke Skywalker and Boba Fett (Exclusive)
+
+Comics, Star Wars
+
+Fri, 17 Apr 2026 00:50:58 GMT
+
+https://www.cbr.com/star-wars-official-first-meeting-luke-skywalker-boba-fett-exclusive/
+
+In a CBR exclusive preview of Star Wars: Galaxy's Edge - Echoes of the Empire #1, see how Luke first encountered Boba Fett after Empire Strikes Back
+---------
+
+# 7 Open World Games No One Can Play Anymore
+
+Games, Video Games, open world, Star Wars
+
+Fri, 17 Apr 2026 00:45:13 GMT
+
+https://www.cbr.com/best-open-world-games-no-one-can-play-anymore/
+
+Good luck trying to get open world games like The Crew and MapleStory 2 up and running these days.
+---------
+
+# Syfy's Dune Miniseries Is a More Faithful Adaptation
+
+TV, Dune
+
+Fri, 17 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/frank-herbert-dune-miniseries-perfect-adaptation/
+
+The blockbuster Dune movies have made the novel series a box-office hit, but one underrated miniseries may be the best adaptation yet.
+---------
+
+# 10 Beautiful Anime That Are Secretly Horror in Disguise
+
+Anime, Horror, The Promised Neverland, To Your Eternity, Puella Magi Madoka Magica, From the New World, Land of the Lustrous, Shadows House, Girls' Last Tour, Made in Abyss
+
+Fri, 17 Apr 2026 00:15:12 GMT
+
+https://www.cbr.com/beautiful-horror-anime-misleading/
+
+Sometimes, an anime's breathtaking beauty is a silent warning that things may not be what they seem.
+---------
+
+# Everything We Know About DC Studio's Clayface
+
+Movies, Clayface, DCU
+
+Fri, 17 Apr 2026 00:00:13 GMT
+
+https://www.cbr.com/everything-we-know-dc-studio-clayface/
+
+A body horror take on Batman's most gruesome villain will hit theaters in October 2026, but what do we actually know about the movie at this point?
+---------
+
+# 'Hacks' Cast Explains the Deeper Meaning Behind That Sci-Fi Icon's Surprise Season 5 Casting
+
+Exclusives, Megan Stalter, Hacks, HBO Max, Paul W. Downs
+
+Fri, 17 Apr 2026 01:45:13 GMT
+
+https://collider.com/hacks-season-5-megan-stalter-paul-w-downs-renee-oconnor-xena/
+
+Hacks stars Megan Stalter and Paul W. Downs break down their perfect chemistry and explain the deeper meaning behind Renee O'Connor's Season 5 role.
+---------
+
+# Apple TV’s Sci-Fi Dominance Is Finally Being Challenged by This Twisted 8-Episode Hit
+
+TV Features, Imperfect Women, Apple TV, Science Fiction, Streaming
+
+Fri, 17 Apr 2026 01:43:13 GMT
+
+https://collider.com/imperfect-women-apple-tv-thriller-series-surpassing-sci-fi-shows/
+
+A twisty Apple TV+ thriller, Imperfect Women blends murder, secrets, and friendship into a bingeable eight-episode drama.
+---------
+
+# ‘The Pitt’s Wildest Season 2 Finale Fan Theory Completely Missed the Point of HBO’s Hit Drama
+
+TV Features, The Pitt, Noah Wyle, HBO Max, Drama, Katherine LaNasa
+
+Fri, 17 Apr 2026 01:37:14 GMT
+
+https://collider.com/the-pitt-season-2-finale-fan-theory-robby-death-wrong/
+
+The Pitt's wildest Season 2 fan theory about Dr. Robby's potential demise overlooks the HBO show's realistic approach to the medical drama.
+---------
+
+# ‘Ghosts’ Season 5’s Bonkers ‘Young Sheldon’ Crossover Was Actually Years in the Making [Exclusive]
+
+Exclusives, Ghosts, Young Sheldon, CBS, Sitcom
+
+Fri, 17 Apr 2026 01:00:13 GMT
+
+https://collider.com/ghosts-season-5-young-sheldon-crossover-guest-role-iain-armitage/
+
+Young Sheldon star Iain Armitage unpacks his thrilling guest role in the latest episode of Ghosts Season 5 after years of wanting to join the show.
+---------
+
+# There's Even More to Al-Hashimi's Most Crushing Scene in 'The Pitt' Season 2 Finale That You Won't See
+
+Exclusives, The Pitt, HBO Max, Sepideh Moafi, HBO
+
+Fri, 17 Apr 2026 01:00:13 GMT
+
+https://collider.com/the-pitt-season-2-finale-sepideh-moafi-al-hashimi-seizures-interview/
+
+The Pitt's Sepideh Moafi discusses Dr. Al-Hashimi's most crushing scenes in the Season 2 finale and which moment was left on the cutting room floor.
+---------
+
+# Before 'Beef,' Oscar Isaac and Carey Mulligan Were a Dysfunctional Duo in These 10/10 Classics
+
+Movie Features, Oscar Isaac, Carey Mulligan, Drive, Inside Llewyn Davis
+
+Fri, 17 Apr 2026 00:12:13 GMT
+
+https://collider.com/oscar-isaac-carey-mulligan-inside-llewyn-davis-drive-beef/
+
+Before Beef, Oscar Isaac and Carey Mulligan portrayed a chaotic relationship in Drive and Inside Llewyn Davis.
+---------
+
+# Netflix’s New Shark Thriller Sets Off a Global Feeding Frenzy on Streaming
+
+Horror, Thrash, Phoebe Dynevor, Netflix
+
+Fri, 17 Apr 2026 00:01:12 GMT
+
+https://collider.com/netflix-shark-thriller-thrash-global-streaming-success-april-2026/
+
+Thrash is Netflix’s No. 1 movie worldwide after a huge debut, as fans chomp down on the streamer's massive array of shark-themed content.
+---------
+
+# Netflix's Streaming Charts Have This Sci-Fi Masterpiece That Still Delivers 29 Years Later
+
+Movie Features, The Fifth Element, Luc Besson, Bruce Willis, Gary Oldman
+
+Thu, 16 Apr 2026 23:49:13 GMT
+
+https://collider.com/the-fifth-element-netflix-streaming-sci-fi-movie/
+
+Luc Besson’s The Fifth Element remains a sci-fi favorite thanks to its bold visuals, iconic cast, and endlessly inventive futuristic world.
+---------
+
+# Robert Downey Jr.'s Doctor Doom Faces the X-Men in New 'Avengers: Doomsday Footage
+
+Movie News, Avengers: Doomsday, MCU, Robert Downey Jr, CinemaCon
+
+Thu, 16 Apr 2026 23:45:11 GMT
+
+https://collider.com/avengers-doomsday-robert-downey-jr-footage-description-cinemacon/
+
+Avengers: Doomsday unveiled its newest footage at CinemaCon, teasing Marvel’s next massive crossover event with an first official look at Doctor Doom.
+---------
+
+# 8 Perfect Miniseries That No One Remembers Today
+
+TV, TV Miniseries, Catch-22, Show Me a Hero, The Good Lord Bird
+
+Thu, 16 Apr 2026 23:39:13 GMT
+
+https://collider.com/miniseries-perfect-no-one-remembers/
+
+From Showtime's Western The Good Lord Bird to Hulu's satirical adaptation of Catch-22, these perfect miniseries are largely forgotten by audiences.
+---------
+
+# Sydney Sweeney Joins Horror Thriller 'The Caretaker' From 'Hellraiser' Director David Bruckner
+
+Movie News, Sydney Sweeney, David Bruckner, Horror
+
+Fri, 17 Apr 2026 00:05:12 GMT
+
+https://movieweb.com/sydney-sweeney-horror-thriller-the-caretaker/
+
+The actor is also already signed on for a sequel to 'The Housemaid,' firmly entrenching her in the genre world.
+---------
+
+# 'Avengers: Doomsday': Marvel Studios Show Off Trailer at CinemaCon
+
+Movie News, Avengers: Doomsday, MCU
+
+Thu, 16 Apr 2026 23:44:10 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-cinemacon/
+
+The hype for 'Avengers: Doomsday' grows after Marvel's eventful CinemaCon panel featuring Chris Evans and the Russo Brothers.
+---------
+
 # Marvel Rivals: All Season 7.5 Buffs & Nerfs Explained
 
 Gaming, Marvel Rivals, PC, Live Service Games
