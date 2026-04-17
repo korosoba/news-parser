@@ -3,6 +3,7 @@ import feedparser
 import json
 import hashlib
 import os
+import requests
 from datetime import datetime
 
 # Файлы для хранения
@@ -16,6 +17,11 @@ FEEDS = [
     "https://collider.com/feed/",
     "https://movieweb.com/feed/",
 ]
+
+# Telegram
+TELEGRAM_BOT_TOKEN = os.environ.get("TELEGRAM_BOT_TOKEN")
+TELEGRAM_CHAT_ID = "1550347468"
+
 
 def load_seen_guids() -> set:
     if os.path.exists(SEEN_FILE):
@@ -39,10 +45,10 @@ def get_categories(entry) -> str:
 def get_date(entry) -> str:
     pub = entry.get("published") or entry.get("updated") or "Не указана"
     try:
-        dt = datetime.strptime(pub, "%a, %d %b %Y %H:%M:%S %z")  # Стандартный RSS формат
+        dt = datetime.strptime(pub, "%a, %d %b %Y %H:%M:%S %z")
         return dt.strftime("%Y-%m-%d %H:%M UTC")
     except:
-        return pub  # Если не парсится, оставляем как есть
+        return pub
 
 def format_item(item: dict) -> str:
     return f"""# {item['title']}
@@ -56,6 +62,29 @@ def format_item(item: dict) -> str:
 {item['description']}
 ---------
 """
+
+def send_file_to_bot(filepath: str):
+    """Отправляет md-файл боту через Telegram API."""
+    if not TELEGRAM_BOT_TOKEN:
+        print("⚠️ TELEGRAM_BOT_TOKEN не задан, пропускаем отправку")
+        return
+
+    date_str = datetime.now().strftime("%Y-%m-%d")
+    filename = f"news-{date_str}.md"
+
+    url = f"https://api.telegram.org/bot{TELEGRAM_BOT_TOKEN}/sendDocument"
+
+    with open(filepath, "rb") as f:
+        response = requests.post(
+            url,
+            data={"chat_id": TELEGRAM_CHAT_ID},
+            files={"document": (filename, f, "text/plain")},
+        )
+
+    if response.ok:
+        print(f"✅ Файл {filename} отправлен боту")
+    else:
+        print(f"❌ Ошибка отправки: {response.status_code} {response.text}")
 
 def main():
     seen = load_seen_guids()
@@ -97,21 +126,21 @@ def main():
     if new_items:
         print(f"Нашли {len(new_items)} новых статей")
 
-        # Читаем существующий файл (если есть)
         existing_content = ""
         if os.path.exists(OUTPUT_FILE):
             with open(OUTPUT_FILE, "r", encoding="utf-8") as f:
                 existing_content = f.read()
 
-        # Форматируем новые
         new_content = "\n".join([format_item(item) for item in new_items])
 
-        # Пишем новые сверху + старые
         with open(OUTPUT_FILE, "w", encoding="utf-8") as f:
             f.write(new_content + "\n" + existing_content)
 
         save_seen_guids(seen)
         print(f"Обновили {OUTPUT_FILE}")
+
+        # Отправляем файл боту на обработку
+        send_file_to_bot(OUTPUT_FILE)
     else:
         print("Новых статей нет")
 
