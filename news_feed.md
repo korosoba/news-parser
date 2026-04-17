@@ -1,3 +1,245 @@
+# Jenna Ortega's Near-Perfect Drama Movie Deserves Its Streaming Success (#1 Trending In The U.S.)
+
+Movies, Masked Recs
+
+Fri, 17 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/jenna-ortega-the-fallout-movie-hbo-max-success-april-2026/
+
+The Fallout just became the number one movie on HBO Max in the U.S.. This success is well-deserved considering lead, Ortega's masterful performance.
+---------
+
+# 6 One Piece Characters Who Could Make Surprise Appearances In Netflix's Season 3
+
+Streaming TV, One Piece
+
+Fri, 17 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/one-piece-season-3-live-action-surprise-character-cameos/
+
+The live-action One Piece has already shaken up Eiichiro Oda's timeline, leaving the door open for several characters to appear earlier than expected.
+---------
+
+# The Last Of Us Season 3 Officially Casts New Villain
+
+TV, The Last of Us
+
+Fri, 17 Apr 2026 20:22:59 GMT
+
+https://screenrant.com/the-last-of-us-season-3-miriam-villain-casting/
+
+The Last of Us has finally found its newest villain for the highly anticipated upcoming season 3 of the hit video game adaptation.
+---------
+
+# Jury Duty S2: Anthony Norman Considered Leaving Prime Video Hoax Comedy
+
+TV, Jury Duty Presents: Company Retreat, Anthony Norman
+
+Fri, 17 Apr 2026 20:15:55 GMT
+
+https://screenrant.com/jury-dutys-new-lead-star-explains-almost-leaving-season-2/
+
+Anthony Norman, lead star of Jury Duty Season 2, reveals he briefly considered leaving the show, but found the experience mostly enjoyable. The Prime Video hoax comedy series follows Norman as he navigates a bizarre company retreat.
+---------
+
+# Superman's Most Powerful Form Gets a Celestial Upgrade In New Costume Reveal
+
+DC Comics, Superman
+
+Fri, 17 Apr 2026 20:15:42 GMT
+
+https://screenrant.com/superman-cosmic-redesign-new-costume/
+
+DC celebrates 88 years of Superman history with a stunning cosmic costume redesign that makes the Man of Steel a glowing, godlike King Omega.
+---------
+
+# For All Mankind Finally Has Its Danny Stevens Replacement
+
+Streaming TV, For All Mankind
+
+Fri, 17 Apr 2026 20:15:18 GMT
+
+https://screenrant.com/for-all-mankind-season-5-danny-stevens-replacement-avery-daughter/
+
+The Stevens family has been a major part of the story since For All Mankind began, and after a brief intermission, the void they left has been filled.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A Glen Powell Action Thriller)
+
+Movies, Prime Video, Recommendation
+
+Fri, 17 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-april-18/
+
+The best movies to watch this weekend on Prime Video include an animated franchise-starter, Mark Wahlberg's new comedy, and a Glen Powell thriller.
+---------
+
+# How Dr. Al-Hashimi Is The Epitome Of The Pitt's "Pressure Cooker" Tone Explained By Season 2 Star
+
+TV, The Pitt, The Pitt - Season 2, Sepideh Moafi, HBO Max
+
+Fri, 17 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/the-pitt-season-2-al-hashimi-pressure-cooker-tone-sepideh-moafi/
+
+Sepideh Moafi reflects on her journey in The Pitt season 2, how Dr. Al-Hashimi matches the show's pressure cooker tone, and Dr. Robby dynamic.
+---------
+
+# Legend Of Zelda: Twilight Princess 2 Leaves Gamers Heartbroken
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Twilight Princess
+
+Fri, 17 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-twilight-princess-sequel-cancelled/
+
+The Legend of Zelda: Twilight Princess 2 was axed, leaving fans heartbroken and wondering what could have been.
+---------
+
+# Guy Ritchie's 8-Part Crime Caper Series Proves What His Next Project Should Be
+
+Classic TV, Masked Recs
+
+Fri, 17 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/guy-ritchie-the-gentleman-next-project-hustle/
+
+The Gentlemen is a great crime comedy, and its success reveals that Guy Ritchie should take on a reboot of the British crime series Hustle next.
+---------
+
+# 10 Actors Who Could Be the Next James Bond After CinemaCon Update
+
+Movies, James Bond
+
+Fri, 17 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/cinemacon-actors-should-play-james-bond/
+
+We explore 10 actors who could potentially take on the iconic role of James Bond, considering talent, experience, and the legacy of the character.
+---------
+
+# Eric Stonestreet Addresses Dexter: Resurrection Season 2 Return
+
+TV, Dexter: Resurrection
+
+Fri, 17 Apr 2026 20:27:15 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-eric-stonestreet/
+
+Dexter still has some unfinished business with one major villain.
+---------
+
+# Netflix's Beef Season 2 Breaks Into Streaming Top 10 1 Day After Return
+
+TV, Beef
+
+Fri, 17 Apr 2026 20:22:31 GMT
+
+https://www.cbr.com/beef-dark-comedy-netflix-success-april-2026/
+
+The new entry had a great reception, and it's now becoming a hit on streaming.
+---------
+
+# 10 Best Anime Swordsmen Who Don't Use Traditional Katana
+
+Anime, shonen anime, Wistoria: Wand and Sword, Berserk, Sword Art Online, Hell's Paradise, Bleach, Black Clover, Fate/Stay Night, Claymore
+
+Fri, 17 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/anime-swordsmen-without-katana/
+
+Traditional Japanese katana feature in plenty of anime, but there are multiple powerful swordsmen who make better use of alternative weapons.
+---------
+
+# Superman Fans Must Pick Up Upper Deck's Latest Trading Card Set
+
+CBR Exclusives, Superman
+
+Fri, 17 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/upper-deck-fleer-ultra-superman-trading-card-set/
+
+Upper Deck just came out with a new trading card set fit for a Kryptonian.
+---------
+
+# Robert Redford's All the President's Men is His Greatest Political Thriller
+
+Movies, Robert Redford, Thriller, Drama
+
+Fri, 17 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/robert-redford-all-the-presidents-men-political-thriller/
+
+Robert Redford headlined some of the best movies of all time, but one ‘70s thriller stands out as the best work of his legendary career.
+---------
+
+# ‘Supernatural’s Most Heartbreaking Loose End Is the Daughter Dean Winchester Never Got To Know
+
+TV Features, Supernatural, Jensen Ackles, Eric Kripke, Jared Padalecki
+
+Fri, 17 Apr 2026 20:22:12 GMT
+
+https://collider.com/supernatural-dean-winchester-daughter-meaning/
+
+Dean Winchester became a father in Supernatural Season 7, but his daughter Emma’s tragic fate made it one of the show’s wildest twists.
+---------
+
+# 10 Fantasy TV Series That Prove Television Does World-Building Better Than Movies
+
+TV, Fantasy, Game Of Thrones, The Wheel of Time, Castlevania: Nocturne
+
+Fri, 17 Apr 2026 20:05:12 GMT
+
+https://collider.com/fantasy-tv-series-great-world-building/
+
+Movies might have larger budgets, but fantasy shows like Game of Thrones and The Wheel of Time have far more engaging and immersive world-building.
+---------
+
+# HBO's 3-Part Sci-Fi Thriller Recruits a 'Sinners' Star for New Season
+
+TV News, The Last of Us, HBO, Li Jun Li, Sinners
+
+Fri, 17 Apr 2026 19:54:44 GMT
+
+https://collider.com/the-last-of-us-season-3-cast-sinners-star-li-jun-li-lev-yara-mother/
+
+HBO's The Last of Us Season 3 has added Sinners star Li Jun Li as a crucial character who didn't appear in the games.
+---------
+
+# TV's Best Historical Epic Officially Returns to Filming
+
+TV News, Shogun, Hiroyuki Sanada, Cosmo Jarvis, Hulu
+
+Fri, 17 Apr 2026 19:53:54 GMT
+
+https://collider.com/shogun-season-2-fx-historical-epic-hiroyuki-sanada-filming-start-april-2026/
+
+Season 2 of FX and Hiroyuki Sanada's Shōgun has officially taken a huge step forward. Read on for more details.
+---------
+
+# 'FernGully' Getting Live-Action Movie From Amazon MGM Studios
+
+Movie News, FernGully: The Last Rainforest, Amazon
+
+Fri, 17 Apr 2026 20:11:17 GMT
+
+https://movieweb.com/ferngully-live-action-movie-amazon/
+
+Amaon MGM Studios will take on the challenge of bringing the 1992 animated classic 'FernGully' back to the big screen in a live-action remake.
+---------
+
+# Every Version of Compound V in 'The Boys', Explained
+
+Features, The Boys
+
+Fri, 17 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/the-boys-season-5-v-one-compound-v/
+
+Season 5 of 'The Boys' just introduced V-One, a new/old version of Compound V. Just how many types of the popular drug are there?
+---------
+
 # For All Mankind’s Biggest Villain Is Officially Back
 
 Streaming TV, For All Mankind
