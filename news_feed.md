@@ -1,3 +1,234 @@
+# 5 Best Biopics Leaving Streaming This Month (April 2026)
+
+Movies, Netflix, MGM+, Amazon, Val Kilmer, Music, Streaming Release, What to Watch on Netflix
+
+Fri, 17 Apr 2026 14:37:07 GMT
+
+https://screenrant.com/unmissable-biopics-leaving-streaming-april-2026/
+
+From The Doors to Sid and Nancy, these are the 5 unmissable biopics leaving Netflix and Paramount+ by April 30. Watch them before they're gone.
+---------
+
+# PlayStation Plus Gamers Mourn The End Of An Era
+
+Gaming, PlayStation Plus, PlayStation 5
+
+Fri, 17 Apr 2026 14:34:40 GMT
+
+https://screenrant.com/playstation-plus-end-of-era-classic-games/
+
+PlayStation Plus subscribers are lamenting the state of the service after many say its priorities have shifted over the past year or two.
+---------
+
+# Beef Season 2's Reunion From Criminally Underrated Coen Brothers Movie Explained By Netflix Director
+
+TV, Beef, Beef - Season 2, Netflix
+
+Fri, 17 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/beef-season-2-coen-brothers-reunion-oscar-isaac-carey-mulligan-jake-schreier/
+
+Director/executive producer Jake Schreier talks Beef season 2's cast and getting to make a reunion from a criminally underrated Coen brothers movie.
+---------
+
+# Hogwarts Legacy: Sword Of Slytherin Proves There's Life In The RPG Yet
+
+Gaming, Hogwarts Legacy
+
+Fri, 17 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/hogwarts-legacy-sword-of-slytherin/
+
+Discover the Sword of Slytherin mod for Hogwarts Legacy, offering players a unique weapon to wield in place of their wand.
+---------
+
+# Netflix's Upcoming Sci-Fi Action Show Takes Stealth To A Whole Other Level
+
+Streaming TV, Assassin's Creed
+
+Fri, 17 Apr 2026 14:29:18 GMT
+
+https://screenrant.com/assassins-creed-netflix-show-action-scenes-stealh-video-game/
+
+Netflix seems set to make the best screen depiction of one iconic video game franchise to date, but can the action show live up to the hype?
+---------
+
+# OG The Pitt Character's Season 3 Return Addressed By Star After Reduced Season 2 Role
+
+TV, The Pitt, The Pitt - Season 2
+
+Fri, 17 Apr 2026 14:23:25 GMT
+
+https://screenrant.com/the-pitt-season-3-mateo-return-season-2-small-role-brooks-response/
+
+EXCLUSIVE: After having a reduced role in The Pitt season 2, one of the original cast members discusses his future on the hit HBO Max medical series.
+---------
+
+# PlayStation Just Added 2 New Free Games You Don't Need PS Plus For
+
+Gaming, PlayStation 5, PlayStation Plus, Triple-A Games
+
+Fri, 17 Apr 2026 14:15:21 GMT
+
+https://screenrant.com/playstation-2-new-free-games-no-ps-plus-needed/
+
+PlayStation has just made two games entirely free for PS5 players, and you won’t need a PlayStation Plus subscription to download them.
+---------
+
+# Pokémon Legends: Z‑A Drops Even More Free Items On April 22
+
+Gaming, Pokemon Legends Z-A, Pokemon
+
+Fri, 17 Apr 2026 14:11:58 GMT
+
+https://screenrant.com/pokemon-legends-z-a-season-10-ranked-battles-rewards/
+
+Pokémon Legends: Z‑A is getting new free item beginning April 22, but you only have a limited time to claim these new rewards before they're gone.
+---------
+
+# After 3 Years, Netflix's Masterpiece 18-Part Thriller Series Returns With A Shocking Twist
+
+TV, Masked Recs
+
+Fri, 17 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/beef-season-2-netflix-thriller-series-review-decrease/
+
+A masterpiece 10/10 Netflix thriller series has finally returned after three years, but no one was expecting it to happen the way it did.
+---------
+
+# Skyrim Meets Civilization In Huge New Free-To-Play Sandbox RPG
+
+Gaming, Steam
+
+Fri, 17 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/steam-free-download-skyrim-style-sandbox-rpg/
+
+Discover a vast open-world inspired by Skyrim and Civilization in Myth of Empires: Throne, a free-to-play sandbox RPG launching on Steam.
+---------
+
+# Stanley Kubrick's Controversial 64-Year-Old War Movie Is a Secret Rip-Off of a Much Darker Film Released the Same Year
+
+Movies, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb
+
+Fri, 17 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/dr-strangelove-fail-safe-similar-war-film-controversial-lawsuit-explained/
+
+Both films examined nuclear war, but whereas Dr. Strangelove took a satirical approach, Fail Safe was deadly serious about the dangers of War.
+---------
+
+# Kristin Kreuk Officially Unveils First Look At Debut Comic Book
+
+Comics, Smallville, Horror
+
+Fri, 17 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/smallville-kristin-kreuk-black-star-comic-first-look/
+
+Take a look at Black Star, the first comic book release from Smallville's Kristin Kreuk.
+---------
+
+# 10 Most Violent Episodes of The Walking Dead
+
+TV, The Walking Dead, AMC, Horror
+
+Fri, 17 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/the-walking-dead-most-violent-episodes-list/
+
+Most episodes of The Walking Dead gave audiences extreme moments of gore and violence, but some stand out from the crowd.
+---------
+
+# 10 Anime That Totally Reinvent Themselves Halfway Through
+
+Anime, Attack on Titan, Death Note, Hunter X Hunter
+
+Fri, 17 Apr 2026 14:15:11 GMT
+
+https://www.cbr.com/anime-become-different-halfway-through/
+
+Not every anime series stays the same throughout, and, in the case of series like Attack on Titan and Gurren Lagann, taking a risk paid off.
+---------
+
+# Guy Ritchie & Jason Statham's Wrath of Man Is Heading to Tubi in May 2026
+
+Movies, Wrath of Man, Tubi, Jason Statham
+
+Fri, 17 Apr 2026 14:00:11 GMT
+
+https://www.cbr.com/guy-ritchie-jason-statham-wrath-of-man-streaming-tubi-may-2026/
+
+Statham and Ritchie teamed up for the epic action thriller that has an astounding 90% approval on Rotten Tomatoes.
+---------
+
+# Pokémon Pokopia Reveals Next Chapter in New 2026 Anime Release
+
+Anime, Pokemon, Nintendo
+
+Fri, 17 Apr 2026 13:32:34 GMT
+
+https://www.cbr.com/pokmon-pokopia-new-anime-2026-release/
+
+The future of Pokémon Pokopia looks bright following the new 2026 anime announcement.
+---------
+
+# This Classic Fantasy Trope is Officially 2026’s Biggest Anime Trend
+
+Anime, Witch Hat Atelier, Fantasy, Isekai, Studio Ghibli
+
+Fri, 17 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-biggest-fantasy-anime-trend-2026/
+
+The most popular fantasy anime of 2026 so far all have witches as their main characters, and it looks like the trend is here to stay.
+---------
+
+# Lee Cronin Reveals 'The Mummy's Hidden Connection to 'Evil Dead Rise'
+
+Exclusives, The Mummy, Lee Cronin, Lee Cronin's The Mummy, Evil Dead Rise
+
+Fri, 17 Apr 2026 14:00:12 GMT
+
+https://collider.com/the-mummy-lee-cronin-evil-dead-rise-crossover-confirmed/
+
+Lee Cronin discusses the connection between The Mummy and Evil Dead Rise, the most challenging scene, and the idea that started it all.
+---------
+
+# 'The Pitt' Season 2 Finale Says Goodbye to Dr. Samira Mohan
+
+TV News, The Pitt, HBO Max
+
+Fri, 17 Apr 2026 14:20:11 GMT
+
+https://movieweb.com/the-pitt-season-2-finale-dr-mohan-exit/
+
+Supriya Ganesh exits the Max medical drama as Mohan’s residency at PTMC comes to an end in “9:00 P.M.”
+---------
+
+# Prime Video's New Action Thriller 'Agent Zeta' Continues To Succeed on Streaming
+
+Movie News, Agent Zeta, Hot on Streaming, Action, Prime Video
+
+Fri, 17 Apr 2026 14:17:36 GMT
+
+https://movieweb.com/agent-zeta-action-prime-video-streaming-success-april-2026/
+
+After four weeks, Prime Video's 'Agent Zeta' continues to be a massive hit on streaming, proving that people around the world can't get enough of it.
+---------
+
+# 'Jackass 5' Confirms Title, Release Date for the Final 'Jackass' Movie Ever
+
+Movie News, Jackass 5
+
+Fri, 17 Apr 2026 13:02:26 GMT
+
+https://movieweb.com/jackass-5-title-release-date/
+
+'Jackass: Best and Last' will arrive in theaters on June 26.
+---------
+
 # Marvel Officially Confirms Chris Evans’ Surprising Captain America Design For Avengers: Doomsday
 
 Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
