@@ -1,3 +1,212 @@
+# Prime Video's Undone Is So Perfect That It Demands A Second Watch
+
+Classic TV, Masked Recs
+
+Fri, 17 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/undone-amazon-prime-sci-fi-show-demands-second-watch/
+
+Prime Video’s sci-fi roster keeps growing. Yet, there is one sci-fi TV show that is underrated, but it's so good that it demands to be watched twice.
+---------
+
+# GTA 6 Gameplay Leak Confirms True Scale Of The Open World
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Fri, 17 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/gta-6-gameplay-leak-open-world-size/
+
+We know that Grand Theft Auto 6 will be huge, but now it seems like it could be one of the biggest open-world games ever, thanks to a leak.
+---------
+
+# The Expanse’s Perfect Upcoming Replacement Is Coming In 2027 (& It Isn’t What You Think It Is)
+
+Movies, The Expanse, Rendezvous with Rama
+
+Fri, 17 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/prime-video-the-expanse-rendezvous-with-rama/
+
+Nothing will ever truly replace The Expanse, but this upcoming sci-fi story, which comes out in 2027, is the perfect way to fill the void.
+---------
+
+# Marvel Studios' New Spider-Man Symbiote Story Sets Up Tom Holland's Venom
+
+Streaming TV, Your Friendly Neighborhood Spider-Man
+
+Fri, 17 Apr 2026 20:45:18 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-season-2-smbyiote-tom-holland/
+
+Spider-Man's story has been tightly wrapped up with the symbiotes nearly since the character was first created, but Marvel Studios has yet to adapt it
+---------
+
+# Kurt Russell Explained Why Tombstone Is the Best Westerns Ever
+
+Movies, Tombstone
+
+Fri, 17 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/tombstone-kurt-russell-quote-best-western-ever/
+
+In a 2024 interview with GQ, Kurt Russell explained that it's "undeniable" that his 1993 film Tombstone has earned its place in popular culture.
+---------
+
+# Netflix’s New Action-Comedy Quietly Stole Detective Conan's Premise
+
+Anime, Case Closed, Kill Blue, Isekai, Mushoku Tensei: Jobless Reincarnation, Oshi No Ko
+
+Fri, 17 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/kill-blue-age-regression-trope-detective-conan/
+
+Netflix's new action-comedy anime Kill Blue sees its protagonist age regress, a trope popularized by Detective Conan in Case Closed.
+---------
+
+# James Bond Game 007 First Light Officially Unveils Title Sequence
+
+Games, James Bond
+
+Fri, 17 Apr 2026 21:06:39 GMT
+
+https://www.cbr.com/james-bond-007-first-light-title-sequence/
+
+The full intro sequence for 007 First Light features a new song by Lana Del Ray.
+---------
+
+# 10 Horror Movies of the 1980s That Still Hold Up Today
+
+Movies, Horror
+
+Fri, 17 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/horror-movies-1980s-still-hold-up/
+
+Not every movie stands the test of time but here are many 1980s horror movies that still work really well today.
+---------
+
+# Hacks Co-Star Reveals What Cult Classic Fans Won't Stop Asking Her About
+
+CBR Exclusives, Hacks
+
+Fri, 17 Apr 2026 20:52:54 GMT
+
+https://www.cbr.com/hacks-ann-dowd-the-leftovers-fan-love/
+
+Fans will have to take what's left over from this supernatural drama and make the most out of it.
+---------
+
+# Disney's Hexed Officially Unveils Its Cast With Sinners & Parks and Rec Stars
+
+Movies, Disney, Parks and Recreation, Sinners
+
+Fri, 17 Apr 2026 20:36:19 GMT
+
+https://www.cbr.com/disney-hexed-lead-stars-hailee-steinfeld-rashida-jones/
+
+Disney unveils the leading cast of its next animated feature film, and multiple fan-favorites are slated to star in the upcoming magical adventure.
+---------
+
+# Only 3 Martial Arts Movies Are Better Than 'Crouching Tiger, Hidden Dragon'
+
+Movie, Crouching Tiger, Hidden Dragon, The Raid 2, Police Story, Seven Samurai
+
+Fri, 17 Apr 2026 21:35:12 GMT
+
+https://collider.com/martial-arts-movies-better-than-crouching-tiger-hidden-dragon/
+
+Few martial arts movies are as good as Crouching Tiger, Hidden Dragon, with only three surpassing it, including Police Story and The Raid 2.
+---------
+
+# 'Your Friends & Neighbors' James Marsden and Olivia Munn Break Down That Complex Dinner Date
+
+TV, Your Friends and Neighbors, Apple TV, James Marsden, Olivia Munn
+
+Fri, 17 Apr 2026 21:11:13 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-episode-3-apple-tv-james-marsden-olivia-munn/
+
+James Marsden and Olivia Munn talk about Ashe and Sam's unique, complicated dynamic in Your Friends & Neighbors Season 2.
+---------
+
+# Prime Video's Forgotten 10/10 Political Thriller Is Quietly Becoming One of the Streamer's Best
+
+Movie Features, Adam Driver, The Report, Prime Video, Thriller
+
+Fri, 17 Apr 2026 21:06:13 GMT
+
+https://collider.com/the-report-2019-amazon-prime-video-political-thriller/
+
+The forgotten 2019 political drama The Report, starring Adam Driver, Jon Hamm, and Annette Bening, explores the aftermath of the War on Terror.
+---------
+
+# 10 Greatest Crime Movies of the Last 6 Years, Ranked
+
+Movie, Crime, The Killer, Killers of the Flower Moon, The Batman
+
+Fri, 17 Apr 2026 21:05:12 GMT
+
+https://collider.com/best-crime-movies-last-6-years-ranked/
+
+From underrated gems like The Outfit to outright masterpieces like Killers of the Flower Moon, these are the best crime movies of the last six years.
+---------
+
+# 10 Best Gangster Movies Released Since 'The Godfather'
+
+Movie, The Godfather, Pulp Fiction, Goodfellas, The Godfather Part II
+
+Fri, 17 Apr 2026 20:51:12 GMT
+
+https://collider.com/best-gangster-movies-since-the-godfather/
+
+Since the release of The Godfather in 1972, there have been plenty of great gangster movies, including Goodfellas and Gangs of Wasseypur.
+---------
+
+# Every Piece of Movie News From CinemaCon, From the Biggest Announcements To Key Details You Missed
+
+Movie Lists, CinemaCon, MCU, DCU, Star Wars
+
+Fri, 17 Apr 2026 21:30:18 GMT
+
+https://movieweb.com/all-cinemacon-movie-news/
+
+Whether you are a horror, sci-fi, or superhero fan, you won't want to miss out on these big reveals and appearances at CinemaCon.
+---------
+
+# Before Season 2, Binge Watch 'Fallout' Star Ella Purnell's Serial Killer Thriller, 'Sweetpea,' on Starz
+
+TV News, Sweetpea, STARZ, Hot on Streaming, Fallout
+
+Fri, 17 Apr 2026 21:14:53 GMT
+
+https://movieweb.com/sweetpea-streaming-binge-watch-starz-season-2/
+
+'Fallout' star, Ella Purnell's seriak killer thriller series 'Sweetpea' is a streaming success on Starz before Season 2.
+---------
+
+# Every Marvel Character Team-Up & Showdown in the 'Avengers: Doomsday' Trailer
+
+Movie Lists, Avengers: Doomsday, MCU
+
+Fri, 17 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/avengers-doomsday-team-ups-fights/
+
+The CinemaCon footage for 'Avengers: Doomsday' not only revealed the first look at Doctor Doom, but also some interesting Marvel team-ups.
+---------
+
+# 'The Pitt' Season 3 Returning Cast Revealed by Series Creator
+
+TV News, The Pitt, Noah Wyle
+
+Fri, 17 Apr 2026 20:56:15 GMT
+
+https://movieweb.com/the-pitt-season-3-returning-characters/
+
+Many of the core figures from the first two seasons will be appearing in Season 3.
+---------
+
 # Jenna Ortega's Near-Perfect Drama Movie Deserves Its Streaming Success (#1 Trending In The U.S.)
 
 Movies, Masked Recs
