@@ -1,3 +1,256 @@
+# Top Gun: Maverick Proves Legacy Sequels Can Succeed With The Right Approach
+
+Movies, Masked Recs
+
+Fri, 17 Apr 2026 17:30:20 GMT
+
+https://screenrant.com/top-gun-marevick-paramount-plus-streaming-success-legacy-sequel/
+
+In 2022, Top Gun: Maverick took over the pop culture, critical, and box office conversations and changed how we think about legacy sequels.
+---------
+
+# 7 Years Ago, A Secret Jurassic Park Movie Was Quietly Released & It Can Be Watched For Free
+
+Movies, Masked Recs, Quiz CV
+
+Fri, 17 Apr 2026 17:20:20 GMT
+
+https://screenrant.com/jurassic-world-battle-at-big-rock-movie-secret-release/
+
+Everyone has watched Chris Pratt's Jurassic World movies, but 7 years ago, a secret Jurassic Park film was released, and it is available for free.
+---------
+
+# Where Dr. Mohan Is In The Pitt Season 3 & Why She’s Not Returning Explained By Series Creator
+
+TV, The Pitt
+
+Fri, 17 Apr 2026 17:19:48 GMT
+
+https://screenrant.com/the-pitt-season-3-dr-mohan-not-returning-reason-creator/
+
+The Pitt creator R. Scott Gemmill addresses Dr. Mohan's absence in season 3, explaining her character's status and the reasoning behind her exit.
+---------
+
+# Mel's Shocking Pitt Season 2 Ending & What It Means For Season 3 Addressed By Star
+
+TV, The Pitt
+
+Fri, 17 Apr 2026 17:04:57 GMT
+
+https://screenrant.com/the-pitt-season-2-ending-mel-deposition-season-3-setup-taylor-dearden/
+
+Exclusive: Taylor Dearden discusses Mel King's ending in The Pitt season 2, and what she is looking forward to about season 3's impending deposition.
+---------
+
+# Netflix's Thrash: Cast Battles Freezing Temperatures, Sharks For Survival Thriller
+
+Movies, Thrash, Netflix, Phoebe Dynevor, Whitney Peak, Djimon Hounsou
+
+Fri, 17 Apr 2026 17:03:36 GMT
+
+https://screenrant.com/the-cast-of-netflixs-new-r-rated-shark-horror-movie-suffered-for-the-art/
+
+Discover how the cast of Netflix's shark horror movie Thrash pushed their limits during filming, facing freezing water tanks, wind machines, and unconventional on-set lube. Learn about their survival thriller experiences.
+---------
+
+# 10 Best D&D Rule Changes Of All Time
+
+Gaming, Dungeons and Dragons, tabletop games
+
+Fri, 17 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/best-dnd-rule-changes-all-time/
+
+Every iteration of D&amp;D has changed some version of the TTRPG's rules, but some have been integral to the game's evolution throughout new editions.
+---------
+
+# Evil Dead Burn Moves Release Dates After Gruesome CinemaCon Trailer & New Teaser
+
+Movies, Evil Dead Burn, Evil Dead
+
+Fri, 17 Apr 2026 16:57:56 GMT
+
+https://screenrant.com/evil-dead-burn-movie-release-date-change/
+
+A new Evil Dead Burn trailer has arrived, seemingly revealing that the upcoming franchise horror movie has shifted its release date up.
+---------
+
+# Frozen 3 Finally Gets Massive Production Update From Kristen Bell
+
+Movies, Frozen III, Frozen
+
+Fri, 17 Apr 2026 17:37:57 GMT
+
+https://www.cbr.com/frozen-3-production-update-kristen-bell-recording/
+
+Now is not the time to "let it go," as Frozen 3 is getting closer.
+---------
+
+# 42 Years Later, Megatron’s Most Intense Redesign Changes Everything
+
+Comics, Transformers, skybound, image comics
+
+Fri, 17 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/transformers-31-megatron-redesign/
+
+The long-awaited shakeup to the Decepticons' status quo has arrived, and it changes everything for the Transformers franchise's original big bad.
+---------
+
+# Gareth Edwards' The Creator is an Underrated Sci-Fi Gem
+
+Movies, The Creator, gareth edwards
+
+Fri, 17 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/gareth-edwards-the-creator-underrated-sci-fi-movie-needs-sequel/
+
+Even though Gareth Edwards has said he never intended to develop a sequel to his 2023 sci-fi epic, we'd still love to see the story continue.
+---------
+
+# Daredevil: Born Again Disrespects Netflix MCU's Canon
+
+TV, Daredevil, Daredevil: Born Again, Netflix
+
+Fri, 17 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/daredevil-born-again-netflix-canon-better-than-disney/
+
+Daredevil: Born Again disregards Netflix MCU canon, with controversial character deaths and a darker tone that loses the series' heart and intrigue.
+---------
+
+# Demon Slayer Reveals Infinity Castle Blu-ray & DVD Release Date for July 29
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Fri, 17 Apr 2026 17:21:44 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-blu-ray-dvd-release-date/
+
+Demon Slayer fans still waiting on Infinity Castle's official streaming release just got a major positive update.
+---------
+
+# Hardest PS1 Bosses Of All Time
+
+Games, PlayStation (Original), Parasite Eve, Final Fantasy, Persona, Mortal Kombat
+
+Fri, 17 Apr 2026 17:15:14 GMT
+
+https://www.cbr.com/hardest-ps1-bosses-of-all-time/
+
+The original PlayStation had its fair share of brutal boss encounters, with enemies that tested the patience of even the most skilled gamers.
+---------
+
+# Hulu Is Adapting Penn Cole's Spark of the Everflame
+
+TV, Hulu
+
+Fri, 17 Apr 2026 16:59:20 GMT
+
+https://www.cbr.com/hulu-everflame-adaptation-drama-series/
+
+The streaming platform is saying yes to more fantasy shows.
+---------
+
+# Pokémon TCG's New Set Reveal Officially Confirms Mega Darkrai Coming Soon
+
+Games, Pokemon
+
+Fri, 17 Apr 2026 16:58:13 GMT
+
+https://www.cbr.com/pokemon-tcg-new-set-legends-z-a-mega-evolutions-confirmed/
+
+The next Pokémon Trading Card Game set in Japan has been announced, and it features Mega Evolutions from the Pokémon Legends: Z-A Mega Dimension DLC.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Officially Returns With New Sequel Series in 1 Month
+
+TV News, Dutton Ranch, Taylor Sheridan, Paramount Plus, Yellowstone
+
+Fri, 17 Apr 2026 17:38:29 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-release-date-how-to-watch-premiere-may-2026/
+
+Taylor Sheridan’s Yellowstone universe keeps getting bigger as new Western spin-off series is officially set to arrive in 1 month.
+---------
+
+# Taylor Sheridan’s ‘Tulsa King’ Universe Is Getting Much Bigger With First Look at New Spin-Off
+
+TV News, Tulsa King, Taylor Sheridan, Samuel L. Jackson, Frisco King
+
+Fri, 17 Apr 2026 17:37:19 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-spin-off-frisco-king-first-look-officially-filming/
+
+Get a first look at Samuel L. Jackson in Frisco King, the first spin-off from Taylor Sheridan’s Tulsa King, as filming officially begins.
+---------
+
+# Forget 'Silo,' One of the Most Bonkers Sci-Fi Thrillers Ever Made Is Free to Stream in May
+
+TV News, Silo, The 100, Sci-Fi, Pluto TV
+
+Fri, 17 Apr 2026 17:35:53 GMT
+
+https://collider.com/silo-replacement-sci-fi-dystopian-thriller-the-100-streaming-free-pluto-tv-may-2026/
+
+This mind-blowing 7-part dystopian sci-fi series that’s perfect for Silo fans will be available to stream for free next month.
+---------
+
+# Reddit's #1 TV Ranking Confirms HBO's Most Divisive Series Beats Every Streaming Rival in the U.S.
+
+TV Features, HBO Max, Euphoria, Zendaya, Sam Levinson
+
+Fri, 17 Apr 2026 17:28:13 GMT
+
+https://collider.com/hbo-series-euphoria-season-3-leading-on-reddit/
+
+After 4 years since the last season, Season 3 of HBO’s Euphoria is making waves and getting people talking.
+---------
+
+# 10 Box Office Smashes That No One Expected
+
+Movie, Box Office, Saw, Everything Everywhere All at Once, Ghost
+
+Fri, 17 Apr 2026 17:05:13 GMT
+
+https://collider.com/box-office-smashes-that-no-one-expected/
+
+Movies like Saw, The Lego Movie, and even Titanic defied expectations to become genuine box-office sensations.
+---------
+
+# 'Daredevil: Born Again's Death Proves Marvel's Episode 4 Cameo Is Important
+
+Features, Daredevil: Born Again, MCU, Daredevil
+
+Fri, 17 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/daredevil-born-again-death-marvel-cameo/
+
+'Daredevil: Born Again' delivered one of the show's biggest deaths, with a secret cameo now bearing more weight in the MCU fallout.
+---------
+
+# Dr. House and His Team's Medical Specialties, Explained
+
+Features, House
+
+Fri, 17 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/house-team-medical-specialties-explained/
+
+The characters on the TV show House come from a wide range of medical specialties, from endocrinology to neurology.
+---------
+
+# 'NCIS: New York' in the Works Featuring LL Cool J and Scott Caan
+
+TV News, NCIS, LL Cool J
+
+Fri, 17 Apr 2026 16:59:11 GMT
+
+https://movieweb.com/ncis-new-york-ll-cool-j/
+
+The franchise’s newest series is heading to New York, but its biggest draw is a veteran character with deep roots in the procedural universe
+---------
+
 # 10 Biggest Reveals From Avengers: Doomsday’s New Trailer
 
 Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
