@@ -1,3 +1,311 @@
+# Henry Cavill's Game Of Thrones Fancast Is Closer To Actually Happening
+
+Streaming TV, Game of Thrones
+
+Fri, 17 Apr 2026 18:45:18 GMT
+
+https://screenrant.com/henry-cavill-aegon-targaryen-game-of-thrones-conquest-movie/
+
+The internet is begging for Henry Cavill to take on one particular role, and though it was only hypothetical just recently, that's all changing now.
+---------
+
+# Missing Dexter: Resurrection Villain Actor Teases Season 2 Return Potential To Complete Unfinished Story
+
+TV, Dexter: Resurrection
+
+Fri, 17 Apr 2026 18:44:58 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-al-rapunnzel-return-potential-eric-stonestreet/
+
+Eric Stonestreet teases that his Dexter: Resurrection villain could return in season 2 to face off against Michael C. Hall's beloved serial killer.
+---------
+
+# 3 Best Netflix Shows To Binge-Watch This Weekend – #1 Is A Surprise Hit Crime Thriller Trending Worldwide
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 17 Apr 2026 18:42:20 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-binge-watch-this-weekend/
+
+Netflix's best new shows to binge this weekend, April 17–19, 2026, include a hidden gem thriller, a star-studded drama, and a surprise global #1 hit.
+---------
+
+# Robin Williams’ Underrated Fantasy Movie Getting Live-Action Adaptation At Amazon 34 Years Later
+
+Movies, FernGully: The Last Rainforest, Robin Williams
+
+Fri, 17 Apr 2026 18:35:39 GMT
+
+https://screenrant.com/ferngully-live-action-movie-amazon-adaptation-development/
+
+Thirty-four years later, one of comedian Robin Williams’ animated films will be remade by Amazon MGM Studios as a live-action fantasy flick.
+---------
+
+# Hogwarts Legacy: Should Sebastian Take The Relic?
+
+Gaming, Hogwarts Legacy, PC
+
+Fri, 17 Apr 2026 18:30:54 GMT
+
+https://screenrant.com/hogwarts-legacy-shadow-relic-sebastian-quest-choice/
+
+Sebastian Sallow's quests in Hogwarts Legacy present some challenging dilemmas, such as choosing whether he should take the dark relic or not.
+---------
+
+# Mel's Emotional Pitt Season 2 Story Broken Down By Taylor Dearden: "It Doesn't Ease Up"
+
+TV, The Pitt, The Pitt - Season 2, Taylor Dearden, HBO Max
+
+Fri, 17 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/the-pitt-season-2-mel-emotional-story-taylor-dearden/
+
+Taylor Dearden breaks down Mel's emotional story in The Pitt season 2 and why it presented her with a new challenge in playing the character.
+---------
+
+# After 10 Years, It’s Officially The End Of An Era For Star Trek
+
+New Movies, Star Trek
+
+Fri, 17 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/new-star-trek-movie-end-era/
+
+A historic era for the Star Trek franchise is officially coming to an end after 10 years after a major update about what's next for the sci-fi series.
+---------
+
+# HBO's 4-Part Crime Thriller Series Has One Of Its Best Casts
+
+Streaming TV, Masked Recs
+
+Fri, 17 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/hbo-true-detective-best-ensemble-cast-all-seasons/
+
+HBO's crime series True Detective might not be the most consistent crime show, but each of its four seasons is worth watching for its perfect cast.
+---------
+
+# 10 Best Villains Batman Permanently Stole From Other Franchises
+
+DC Comics, Batman
+
+Fri, 17 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/best-batman-villains-stolen-other-franchises/
+
+Batman's already huge rogues' gallery has grown throughout the years with the help of several additions from different corners of the DC Universe.
+---------
+
+# Why Bob Odenkirk's Next Action Movie Cast A Beloved Sitcom Legend As Its Villain: "An Idea No One Was Thinking About"
+
+Movies, Normal, Henry Winkler, Bob Odenkirk, SXSW
+
+Fri, 17 Apr 2026 18:20:49 GMT
+
+https://screenrant.com/bob-odenkirk-normal-movie-henry-winkler-villain-cast-explained/
+
+EXCLUSIVE: Breaking Bad and Better Call Saul star Bob Odenkirk explains why producers hired an iconic actor to play a villain in his new movie.
+---------
+
+# Assassin's Creed: Black Flag Officially Available For Free Before Remake
+
+Games, Assassin's Creed, Assassin's Creed IV: Black Flag
+
+Fri, 17 Apr 2026 18:35:12 GMT
+
+https://www.cbr.com/assassins-creed-black-flag-officially-available-for-free-2026-remake/
+
+Assassin's Creed IV: Black Flag Resynced will be releasing this Summer, but fans can play the original version of this classic game for free now.
+---------
+
+# 34 Years Later, FernGully Is Getting a Live-Action Remake
+
+Movies, FernGully: The Last Rainforest
+
+Fri, 17 Apr 2026 18:31:35 GMT
+
+https://www.cbr.com/ferngully-live-action-remake-marielle-heller/
+
+The animated hit FernGully: The Last Rainforest is getting the live-action treatment.
+---------
+
+# Willy Wonka Successor Charlie vs. the Chocolate Factory Headed to Netflix
+
+Movies, Charlie vs. the Chocolate Factory, Netflix, Fantasy
+
+Fri, 17 Apr 2026 18:29:29 GMT
+
+https://www.cbr.com/charlie-vs-the-chocolate-factory-netflix-willy-wonka-sequel/
+
+Charlie vs. the Chocolate Factory will put a new, modern-day spin on Willy Wonka when it hits Netflix.
+---------
+
+# 10 Best Under-The-Radar Sci-Fi Anime From The Last 5 Years
+
+Anime, Sci-Fi, Sonny Boy, Heavenly Delusion
+
+Fri, 17 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/best-overlooked-sci-fi-anime-2020s/
+
+The 2020s have been a great decade for sci-fi, and fans of the genre need to watch some of the most underrated anime in recent years.
+---------
+
+# The Pitt’s Noah Wyle Teases What's Coming for Dr. Robby in Season 3
+
+TV, The Pitt
+
+Fri, 17 Apr 2026 18:07:16 GMT
+
+https://www.cbr.com/the-pitt-noah-wyle-dr-robby-season-3-story/
+
+The Pitt star Noah Wyle offers fans an idea of things to come in Season 3, promising that Doctor Robby will find out "what rock bottom looks like."
+---------
+
+# Netflix Says Goodbye to Blue Mountain State Ahead of Revival
+
+TV, Blue Mountain State, Blue Mountain State: The Rise of Thadland, Netflix
+
+Fri, 17 Apr 2026 18:01:43 GMT
+
+https://www.cbr.com/blue-mountain-state-leaving-netflix-may-2026/
+
+Time is running out to watch Alan Ritchson's hit series on Netflix ahead of the upcoming revival.
+---------
+
+# I Love Deadpool, But He Set The Worst Comic Book Trend Yet
+
+Comics, Deadpool, Marvel, DC Comics
+
+Fri, 17 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/deadpool-responsible-for-worst-trend-modern-comics/
+
+The runaway success of Deadpool during the 1990s paved the way for a new brand of antihero, but in doing so created a divisive trend for comics.
+---------
+
+# Tom Holland's $1.9B Spider-Man Film Is Dominating Disney+ Charts Ahead of His 'Favorite' Sequel
+
+Movies, Marvel, MCU, Marvel Comics, Spider-Man, Spider-Man: Homecoming, Spider-Man: Far from Home, Spider-Man: Brand New Day
+
+Fri, 17 Apr 2026 17:44:49 GMT
+
+https://www.cbr.com/tom-holland-spider-man-dominating-disney-charts-ahead-of-sequel/
+
+Tom Holland has officially taken over Disney before taking over the rest of 2026.
+---------
+
+# Prime Video's Hit 'Reacher' Replacement Officially Gets Scream-Worthy Season 3 Update
+
+TV News, Cross, Aldis Hodge, Prime Video, Ethan Embry
+
+Fri, 17 Apr 2026 18:33:25 GMT
+
+https://collider.com/prime-video-reacher-replacement-crime-thriller-cross-season-3-cast-ethan-embry/
+
+After Matthew Lillard joined Season 2 of the hit crime series, his Scream 7 co-star has officially joined Cross Season 3 in a major role.
+---------
+
+# 30+ Years Later, Robin Williams' First Animated Movie Is Officially Getting a Live-Action Remake
+
+Movie News, FernGully: The Last Rainforest, Marielle Heller, Amazon, Robin Williams
+
+Fri, 17 Apr 2026 18:30:54 GMT
+
+https://collider.com/amazon-live-action-ferngully-the-last-rainforest-remake-marielle-heller-directing/
+
+FernGully, the 1992 cult classic starring Robin Williams and Tim Curry, is officially getting a live-action remake at Amazon.
+---------
+
+# The Forgotten Paul McCartney Solo Track That Deserves Far More Attention 56 Years Later
+
+Music Features, Paul McCartney, Music, Rock, The Beatles
+
+Fri, 17 Apr 2026 18:08:10 GMT
+
+https://collider.com/paul-mccartney-debut-album-mccartney-solo-track-junk-1970/
+
+Paul McCartney’s debut solo album featured a quiet song that reflected The Beatles’ breakup with heartbreak, grace, and simplicity.
+---------
+
+# Prime Video’s 2-Part Psychological Thriller Is Worth Binging for One of TV’s Best Performances
+
+TV Features, Homecoming, Prime Video, Julia Roberts, Thriller
+
+Fri, 17 Apr 2026 18:07:12 GMT
+
+https://collider.com/prime-video-homecoming-julia-roberts-best-tv-performance/
+
+Homecoming on Prime Video features Julia Roberts’ best TV performance in the thriller series’ gripping first season.
+---------
+
+# ‘Jason Statham Stole My Bike’ Is Exactly as Wild as It Sounds [Exclusive]
+
+Exclusives, Jason Statham, David Leitch, CinemaCon, Action
+
+Fri, 17 Apr 2026 18:00:21 GMT
+
+https://collider.com/jason-statham-stole-my-bike-david-leitch-rating-filming-locations-update/
+
+David Leitch has revealed new details about Jason Statham Stole My Bike, his upcoming PG-13 action comedy with Jason Statham.
+---------
+
+# Noah Centineo Reveals How He "Lied, Cheated, and Stole" His Way Into the New Rambo Prequel Movie [Exclusive]
+
+Exclusives, Noah Centineo, Sylvester Stallone, John Rambo, CinemaCon
+
+Fri, 17 Apr 2026 17:58:52 GMT
+
+https://collider.com/new-rambo-movie-noah-centineo-plot-casting-details-filming-wrapped/
+
+Noah Centineo reveals how he "lied, cheated, and stole" his way into the John Rambo movie, and which scene from First Blood shaped the prequel.
+---------
+
+# Val Kilmer Revived by AI in First Trailer for 'As Deep as the Grave'
+
+Movie News, Val Kilmer
+
+Fri, 17 Apr 2026 18:36:12 GMT
+
+https://movieweb.com/val-kilmer-ai-movie-trailer/
+
+The first trailer for 'As Deep as the Grave' revealed the first look at the late Val Kilmer brought back to the screen through AI.
+---------
+
+# CBS Expands 'Fire Country' Universe With New Medical Spin-Off
+
+TV News, Fire Country, Sheriff Country
+
+Fri, 17 Apr 2026 18:07:38 GMT
+
+https://movieweb.com/cbs-fire-country-med-country-spin-off/
+
+A third Fire Country series is reportedly in early development at CBS, with 'Med Country' set to bring a medical drama angle to Edgewater
+---------
+
+# Scarlett Johansson's Raunchy R-Rated Comedy 'Rough Night' Becomes Overnight Smash on Streaming
+
+Movie News, Scarlett Johansson, Rough Night, Hot on Streaming
+
+Fri, 17 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/rough-night-scarlett-johansson-streaming-hit-hbo-max-april-2026/
+
+Johansson's forgotten 2017 raunchy comedy has resurfaced on HBO Max to become a streaming hit nearly 10 years after its premiere.
+---------
+
+# New 'Star Trek' Movie: Release Window, Cast, Story, & Everything We Know About the Upcoming Reboot
+
+Features, Star Trek, Star Trek 4, Everything We Know
+
+Fri, 17 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/star-trek-reboot-everything-we-know/
+
+After a decade of trying to make 'Star Trek 4', Paramount Pictures is moving the franchise in a new direction.
+---------
+
 # Top Gun: Maverick Proves Legacy Sequels Can Succeed With The Right Approach
 
 Movies, Masked Recs
