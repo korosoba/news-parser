@@ -1,3 +1,322 @@
+# Tomodachi Life: Living The Dream - Why You Probably Shouldn't Time Travel
+
+Gaming, Tomodachi Life: Living the Dream
+
+Fri, 17 Apr 2026 15:47:21 GMT
+
+https://screenrant.com/tomodachi-life-living-the-dream-how-to-time-travel-and-why-you-probably-shouldnt/
+
+Time traveling in Tomodachi Life: Living the Dream has some really unfortunate downsides that you'll want to know about.
+---------
+
+# Star Trek's Scariest Episode Has Aged Surprisingly Well 33 Years Later
+
+Classic TV, Star Trek
+
+Fri, 17 Apr 2026 15:45:18 GMT
+
+https://screenrant.com/star-trek-the-next-generation-frame-of-mind-scary-episode-aged-well/
+
+After 33 years, Star Trek's scariest episode of all time remains a masterpiece thanks to its challenging approach on psychological horror.
+---------
+
+# Alan Ritchson's New Action Thriller Proves That A Reacher Movie Needs To Happen
+
+Movies, Runner, Reacher
+
+Fri, 17 Apr 2026 15:45:18 GMT
+
+https://screenrant.com/runner-trailer-alan-ritchson-reacher-movie/
+
+The trailer for Alan Ritchson's next action film proves there's a big audience for the actor, and that the time is right to mount a Reacher movie.
+---------
+
+# Paramount's 4-Part Sci-Fi Franchise With Near-Perfect Rotten Tomatoes Streak Has One Of Its Best Casts
+
+Movies, Masked Recs, Recommendation, Sonic the Hedgehog, Sonic the Hedgehog 2, Sonic the Hedgehog 3
+
+Fri, 17 Apr 2026 15:39:35 GMT
+
+https://screenrant.com/sonic-the-hedgehog-movie-franchise-best-cast/
+
+Paramount has no shortage of legendary films to its name, but its best cast belongs to an unlikely video game adaptation that defied expectations.
+---------
+
+# Forget The Rings Of Power, Amazon's 10/10 Franchise Is The Best High Fantasy On TV
+
+Streaming TV, Masked Recs, Recommendation, Fantasy, The Lord of the Rings: The Rings of Power, The Legend of Vox Machina, Amazon Prime Video
+
+Fri, 17 Apr 2026 15:30:21 GMT
+
+https://screenrant.com/legend-of-vox-machina-amazon-prime-best-fantasy-show/
+
+Amazon set the bar high for fantasy TV shows on Prime Video in 2022, but the series which pushed boundaries has nothing to do with Middle-earth.
+---------
+
+# Demon Slayer: Infinity Castle Finally Reveals Home Release Date
+
+Anime, Demon Slayer
+
+Fri, 17 Apr 2026 15:27:46 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-movie-home-release-date-dvd-blu-ray/
+
+Demon Slayer fans worldwide hold their breath as the long-awaited home release date for Infinity Castle is finally announced.
+---------
+
+# New Final Fantasy Game Officially Unveiled By Square Enix
+
+Gaming, Final Fantasy 7, Final Fantasy, tabletop games
+
+Fri, 17 Apr 2026 15:25:17 GMT
+
+https://screenrant.com/final-fantasy-7-new-game-officially-announced/
+
+Square Enix has just unveiled a new game with familiar Final Fantasy characters, set to hit store shelves in November this year.
+---------
+
+# Marvel's New Avengers: Doomsday Trailer Officially Confirms MCU Phase 2 Hero Return
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Fri, 17 Apr 2026 15:21:21 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-mcu-phase-2-hero-return-confirmed/
+
+Marvel's new Avengers: Doomsday trailer brings back a hero who was introduced in the MCU's Phase 2, doing so with the perfect emotional moment.
+---------
+
+# LVL UP Expo 2026: Everything You Need To Know About The Convention
+
+Anime, LVL UP EXPO
+
+Fri, 17 Apr 2026 15:10:40 GMT
+
+https://screenrant.com/lvl-up-expo-2026-convention-guide/
+
+LVL UP Expo is a three-day celebration of anime and gaming, and ScreenRant has everything you need to know about the Las Vegas convention.
+---------
+
+# The Pitt's Disappointing Exit For Dr. Mohan
+
+Streaming TV, The Pitt
+
+Fri, 17 Apr 2026 15:05:19 GMT
+
+https://screenrant.com/the-pitt-failed-dr-samira-mohan-supriya-ganesh-character/
+
+Dr. Samira Mohan's abrupt exit from The Pitt leaves viewers questioning the show's portrayal of her character and its lack of a satisfying resolution.
+---------
+
+# Christina Applegate's Rep Responds to Report That the Actress Has Been Hospitalized
+
+TV, Dead to Me
+
+Fri, 17 Apr 2026 15:51:31 GMT
+
+https://www.cbr.com/christina-applegate-rep-hospitalized-report/
+
+The actress has been open about her health since her autoimmune disease in 2021.
+---------
+
+# Anne Hathaway and David Lowery Break Down Mother Mary’s Most Intense Dynamic
+
+Movies, Mother Mary
+
+Fri, 17 Apr 2026 15:44:56 GMT
+
+https://www.cbr.com/video/anne-hathaway-and-david-lowery-break-down-mother-mary-s-most-intense-dynamic/
+
+In this interview, Anne Hathaway and writer-director David Lowery unpack the film’s emotional core, the combustible bond between Mother Mary and Sam, and the ideas about collaboration that keep lingering after the credits. They get into whether the film connects spiritually to A Ghost Story, why Michaela Coel was such a vital creative partner, and the “neon and flame” metaphor that defines the central relationship. This is a sharp look at Mother Mary, Anne Hathaway’s performance, David Lowery’s filmmaking style, and the movie’s deeper themes around fashion, art, and authorship.
+---------
+
+# Dexter: Resurrection Season 2 Casts Bokeem Woodbine as New Homicide Captain
+
+TV, Dexter, Dexter: Resurrection, Paramount Plus
+
+Fri, 17 Apr 2026 15:35:52 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-cast-bokeem-woodbine-nona-parker-johnson/
+
+Bokeem Woodbine and Nona Parker Johnson join Dexter: Resurrection Season 2, with the former playing the new NYPD homicide captain.
+---------
+
+# Christopher Meloni Addresses Law & Order Spinoff Cancellation 10 Months After Last Episode
+
+TV, Action, Crime, Law & Order, Law & Order True Crime, Law & Order: Criminal Intent, Law & Order: Organized Crime, Law & Order: Special Victims Unit
+
+Fri, 17 Apr 2026 15:29:53 GMT
+
+https://www.cbr.com/christopher-meloni-addresses-law-order-organized-crime-cancellation/
+
+The Law & Order legend is emotional as he addresses the end of an era.
+---------
+
+# 10 Stunning Manga the Anime Adaptation Failed
+
+Anime, The Promised Neverland, Manga, Tokyo Ghoul, One-Punch Man, Soul Eater, Berserk, One Piece
+
+Fri, 17 Apr 2026 15:21:12 GMT
+
+https://www.cbr.com/manga-failed-by-anime-adaptation/
+
+Manga sets a precedent for fans, and when the anime adaptation doesn't live up to expectations, the disappointment is palpable.
+---------
+
+# The Phantom TV Series In the Works From Black Panther Writer
+
+TV, the phantom, Adventure
+
+Fri, 17 Apr 2026 15:04:20 GMT
+
+https://www.cbr.com/the-phantom-tv-series-reginald-hudlin/
+
+Black Panther writer Reginald Hudlin is developing a new live-action TV series starring The Phantom.
+---------
+
+# 7 Most Perfect Video Games of the Last 10 Years
+
+Games, Nintendo, Elden Ring, The Legend of Zelda, super mario bros
+
+Fri, 17 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/most-perfect-video-games-last-10-years/
+
+There are a lot of great games out there, but Super Mario Odyssey and Red Dead Redemption 2 stand out as among the best.
+---------
+
+# Hacks Co-Star Confirms Their Storyline Has Ended For Good
+
+CBR Exclusives, Hacks
+
+Fri, 17 Apr 2026 14:45:29 GMT
+
+https://www.cbr.com/hacks-season-5-renee-oconnor-cameo-one-time-appearance/
+
+Even after that surprise twist, fans shouldn't expect to see one cast member return.
+---------
+
+# One of the Most Unique Sci-Fi Thrillers in Years Is Blowing Up on Streaming Right Now
+
+Movie News, Nope, Jordan Peele, IMAX, Hoyte van Hoytema
+
+Fri, 17 Apr 2026 15:46:39 GMT
+
+https://collider.com/jordan-peele-sci-fi-thriller-nope-movie-streaming-success-april-2026/
+
+One of the most underrated sci-fi thriller’s ever made for the IMAX screen is officially making a major streaming comeback 4 years later.
+---------
+
+# New Sci-Fi Epic Doubles the Box Office of a Beloved J.J. Abrams Cult Classic
+
+Movie News, Project Hail Mary, Ryan Gosling, J.J. Abrams, Super 8
+
+Fri, 17 Apr 2026 15:44:13 GMT
+
+https://collider.com/project-hail-mary-doubles-box-office-gross-super-8-530-million/
+
+New sci-fi masterpiece, Project Hail Mary, has doubled the lifetime gross of one of J.J. Abrams and Steven Spielberg’s most underrated thrillers.
+---------
+
+# After a 4 Year Delay, HBO’s Most Divisive Show Shocks With Electric Premiere Ratings
+
+TV News, Euphoria, Sam Levinson, HBO, Sydney Sweeney
+
+Fri, 17 Apr 2026 15:40:38 GMT
+
+https://collider.com/euphoria-season-3-premiere-ratings-numbers-8-million/
+
+After a 4 year gap between seasons, Euphoria Season 3 debuts to massive ratings. See the numbers for the premiere episode here.
+---------
+
+# New Sci-Fi Masterpiece Delays Streaming Release
+
+Movie News, Project Hail Mary, Ryan Gosling, Phil Lord, Christopher Miller
+
+Fri, 17 Apr 2026 15:34:42 GMT
+
+https://collider.com/new-sci-fi-project-hail-mary-extended-theatrical-run-not-streaming-soon/
+
+2026's biggest sci-fi blockbuster won't be coming to streaming anytime soon as Project Hail Mary extends theatrical run.
+---------
+
+# Hulu's New Dystopian Thriller Series Is Here to Stay
+
+TV News, The Testaments, The Handmaid's Tale, Hulu, streaming
+
+Fri, 17 Apr 2026 15:30:12 GMT
+
+https://collider.com/the-handmaids-tale-spin-off-testaments-how-many-seasons-3-5/
+
+Hulu’s new 10/10 dystopian series, The Testaments, a sequel to The Handmaid’s Tale gets multi-season plan reveal from creator.
+---------
+
+# New 'Yellowstone' Spin-Off Sneak Peek Shows a Different Side of Kayce Dutton [Exclusive]
+
+Exclusives, Yellowstone, Marshals, Luke Grimes, Logan Marshall-Green
+
+Fri, 17 Apr 2026 15:00:12 GMT
+
+https://collider.com/marshals-episode-8-sneak-peek-kayce-dutton/
+
+In an exclusive sneak peek from Marshals, Kayce Dutton and Pete Calvin delve into the weight of leadership, exploring the moral cost of command.
+---------
+
+# A Superhero 3 Years Older Than Batman Is Officially Getting a TV Series
+
+TV News, Reginald Hudlin, The Phantom, Comic Book, Adventure
+
+Fri, 17 Apr 2026 14:40:10 GMT
+
+https://collider.com/original-comic-superhero-the-phantom-live-action-tv-series-moving-forward/
+
+One of the first superhero characters ever created is officially getting a live-action TV series over 90 years later.
+---------
+
+# 'Avengers: Doomsday': Kathryn Newton Confirms Return as Cassie Lang in MCU Sequel
+
+Movie News, Avengers: Doomsday, Kathryn Newton
+
+Fri, 17 Apr 2026 15:47:39 GMT
+
+https://movieweb.com/avengers-doomsday-kathryn-newton-confirmed/
+
+After making her MCU debut in 'Ant-Man and the Wasp: Quantumania,' Kathryn Newton has confirmed her role in 'Avengers: Doomsday.'
+---------
+
+# AMC's 'The Terror' Season 3 Trailer Showcases Dan Stevens' Nightmare Unfolding
+
+TV News, The Terror, Dan Stevens
+
+Fri, 17 Apr 2026 15:27:50 GMT
+
+https://movieweb.com/the-terror-season-3-trailer/
+
+'Legion' star Dan Stevens is returning to a familiar type of role in this terrifying new trailer for Shudder's revival produced by Ridley Scott
+---------
+
+# 'The Odyssey's Epic Runtime Revealed at CinemaCon
+
+Movie News, The Odyssey, Christopher Nolan, CinemaCon
+
+Fri, 17 Apr 2026 14:54:31 GMT
+
+https://movieweb.com/the-odyssey-runtime-revealed-cinemacon/
+
+The runtime for Christopher Nolan's 'The Odyssey' was revealed at CinemaCon, as the director debuted new footage from his forthcoming epic.
+---------
+
+# 'The Phantom' Live-Action TV Series in the Works
+
+TV News, The Phantom, Superhero, Action
+
+Fri, 17 Apr 2026 14:46:48 GMT
+
+https://movieweb.com/the-phantom-series-happening/
+
+The adaptation of the first ever costumed, crime-fighting superhero is in development from filmmaker Reginald Hudlin.
+---------
+
 # 5 Best Biopics Leaving Streaming This Month (April 2026)
 
 Movies, Netflix, MGM+, Amazon, Val Kilmer, Music, Streaming Release, What to Watch on Netflix
