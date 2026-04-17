@@ -1,3 +1,377 @@
+# Marvel Officially Confirms Chris Evans’ Surprising Captain America Design For Avengers: Doomsday
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Fri, 17 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/avengers-doomsday-chris-evans-captain-america-marvel-reveal/
+
+Chris Evans' Captain America design was officially revealed by Marvel in the new Avengers: Doomsday trailer, and Steve Rogers' look is surprising.
+---------
+
+# Hacks Season 5: Deborah & Ava's Relationship Shifts As They Aim for Career Comeback
+
+TV, Hacks, Hannah Einbinder, Jean Smart
+
+Fri, 17 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/hacks-season-5-ava-deborah-relationship-change-comeback-plan/
+
+In the final season of Hacks, Deborah and Ava's dynamic evolves as they navigate a career-defining comeback, forcing them to confront their needs and dependencies on each other.
+---------
+
+# Disney Lorcana: Wilds Unknown Exclusive Reveal Of 3 Enchanted Cards
+
+Gaming, Disney Lorcana
+
+Fri, 17 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/disney-lorcana-wilds-unknown-enchanted-cards-reveal/
+
+Disney Lorcana: Wilds Unknown is bringing Pixar characters to the TCG in a major way, and we can exclusively reveal three of the new Enchanted cards.
+---------
+
+# 10 Best Anime According To Rotten Tomatoes
+
+Anime, Rotten Tomatoes
+
+Fri, 17 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/best-anime-perfect-rotten-tomatoes-scores/
+
+The certified fresh anime everyone should watch.
+---------
+
+# It's Officially Been 15 Years Since Game Of Thrones Changed TV Forever
+
+Classic TV, Game Of Thrones, Game of Thrones
+
+Fri, 17 Apr 2026 12:45:21 GMT
+
+https://screenrant.com/game-of-thrones-fantasy-tv-hbo-15-year-anniversary/
+
+It's been 15 years since Game of Thrones' first episode premiered on HBO, forever changing the fantasy genre and the television landscape.
+---------
+
+# Xbox Officially Rolls Out Game-Changing Overhaul
+
+Gaming, Xbox Series X/S
+
+Fri, 17 Apr 2026 12:31:12 GMT
+
+https://screenrant.com/xbox-dashboard-update-april-2026/
+
+A new update has given Xbox some noticeable changes, and users may be surprised once they see the overhaul for themselves after installing it.
+---------
+
+# Steam Makes 9/10 Hit Game Completely Free To Download For 48 Hours
+
+Gaming, Steam
+
+Fri, 17 Apr 2026 12:30:24 GMT
+
+https://screenrant.com/steam-free-game-48-hours-keep-forever/
+
+Steam has become the go-to place for free PC games, and there's a new one available right now that you'll need to grab quickly.
+---------
+
+# Red Dead Redemption 2 New Game Plus Mode Will Lasso You Right Back In
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption
+
+Fri, 17 Apr 2026 12:30:24 GMT
+
+https://screenrant.com/red-dead-redemption-2-new-game-plus-unofficial/
+
+Red Dead Redemption 2 New Game Plus is a really clever little mod that makes the mode a reality without the intervention of Rockstar.
+---------
+
+# How Crash Landing On You Rewrote Netflix's Rules Of Streaming
+
+Classic TV, Masked Recs
+
+Fri, 17 Apr 2026 12:30:24 GMT
+
+https://screenrant.com/crash-landing-on-you-netflix-k-drama-rewrote-streaming-rules/
+
+Since it was founded, Netflix has been a trailblazing streaming service— but one of its biggest hits fundamentally went against its signature style.
+---------
+
+# The 10 Greatest Perry Bible Fellowship Strips of the Last 25 years
+
+Comics
+
+Fri, 17 Apr 2026 12:30:24 GMT
+
+https://screenrant.com/greatest-perry-bible-fellowship-comics-25-years/
+
+Nicholas Gurewitch's darkly funny comic strip keeps us laughing.
+---------
+
+# Rebecca Ferguson’s Underseen Sci-Fi Horror FIlm Lands on Free Streaming
+
+Movies, Life, Sci-Fi, rebecca ferguson
+
+Fri, 17 Apr 2026 13:01:11 GMT
+
+https://www.cbr.com/dune-part-three-rebecca-fergusons-life-sci-fi-streaming-tubi-may-2026/
+
+Dune: Part Three is just a few months away. To prepare, audiences need to check out Rebecca Ferguson's underrated sci-fi horror film.
+---------
+
+# Will Trent's Major Death Officially Resets the Series After 4 Seasons
+
+TV, Will Trent
+
+Fri, 17 Apr 2026 13:01:11 GMT
+
+https://www.cbr.com/will-trent-amanda-wagner-death-resets-show/
+
+Will Trent got bold in its latest episode, killing off a main character which will reset the entire series, and upend the lives of everyone.
+---------
+
+# 10 DC Villains Who Need the Horror Movie Treatment After Clayface
+
+Movies, Clayface, DCU
+
+Fri, 17 Apr 2026 13:01:11 GMT
+
+https://www.cbr.com/dc-villains-need-horror-movie-treatment-after-clayface-list/
+
+Clayface is the first DC Comics villain to get his own movie, but it proves that other villains deserve horror movies as well.
+---------
+
+# Absolute Batman's Most Important Ally Confirmed Dead
+
+Comics, Absolute Batman
+
+Fri, 17 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/absolute-batman-jim-gordon-death-confirmed/
+
+It is an unimaginable tragedy that could only exist in DC's Absolute Universe.
+---------
+
+# The Best Scene From Every Mike Flanagan Show (So Far)
+
+TV, The Haunting of Hill House, The Fall of the House of Usher, Mike Flanagan, Horror
+
+Fri, 17 Apr 2026 11:30:11 GMT
+
+https://www.cbr.com/best-mike-flanagan-scenes-every-show-list/
+
+Mike Flanagan's shows are rich in detail and feature many memorable scenes, though some are better than others.
+---------
+
+# 10 Marvel Friendships That Devastated Comic Book Fans
+
+Comics, Marvel
+
+Fri, 17 Apr 2026 11:01:11 GMT
+
+https://www.cbr.com/marvel-friendships-that-broke-fans-hearts/
+
+Marvel heroes are as strong as their bonds.
+---------
+
+# 'The Pitt' Star Eyes Season 3 Return And Exciting New Storyline
+
+Interviews, The Pitt, HBO Max, Ladies Night, Sepideh Moafi
+
+Fri, 17 Apr 2026 13:00:13 GMT
+
+https://collider.com/the-pitt-season-3-return-sepideh-moafi-dr-al-hashimi/
+
+While on Collider Ladies Night, The Pitt's Sepideh Moafi discusses her final scene in Season 2, and shares her hopes for Dr. Al-Hashimi in Season 3.
+---------
+
+# A New Stephen King Sci-Fi Movie Is Officially on Prime Video
+
+Movie, Prime Video, The Running Man, Sarah's Oil, Balls Up
+
+Fri, 17 Apr 2026 12:41:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-april-17/
+
+The Running Man, Balls Up, and Sarah's Oil make up our list of the best movies to watch on Prime Video the weekend of April 17, 2026.
+---------
+
+# This Quentin Tarantino-Approved '80s Slasher Is 'Carrie' Meets David Lynch
+
+Movie Features, Hello Mary Lou: Prom Night II, Quentin Tarantino, Horror, David Lynch
+
+Fri, 17 Apr 2026 12:23:14 GMT
+
+https://collider.com/hello-mary-lou-prom-night-2-slasher-tarantino-carrie-david-lynch/
+
+Hello Mary Lou: Prom Night II is an ’80s slasher oddity, mixing Carrie horror with David Lynch’s surreal vibe.
+---------
+
+# Amazon’s 5-Part Sci-Fi Horror Saga Officially Returns on April 19
+
+TV News, From, MGM, Harold Perrineau, Sci-Fi
+
+Fri, 17 Apr 2026 12:00:12 GMT
+
+https://collider.com/mgm-plus-sci-fi-series-from-season-4-release-date-april-19-2026/
+
+MGM+ has unveiled the upcoming episode titles and release dates for From Season 4. Here are all the details.
+---------
+
+# 8 Best Stephen King Sci-Fi Books, Ranked
+
+Movie, Firestarter, Stephen King, The Long Walk, 11.22.63
+
+Fri, 17 Apr 2026 11:57:12 GMT
+
+https://collider.com/stephen-king-best-sci-fi-books-ranked/
+
+Stephen King has written his fair share of compelling sci-fi books, including classics like Firestarter, The Dead Zone, and The Running Man.
+---------
+
+# The Only Actor Who Appears in 'The Godfather,' 'The Sopranos,' and 'Goodfellas' Also Has an Oscar-Winning Movie Based on His Life
+
+Movie Features, The Godfather, Goodfellas, The Sopranos, Crime
+
+Fri, 17 Apr 2026 11:45:12 GMT
+
+https://collider.com/the-godfather-sopranos-goodfellas-tony-lip/
+
+Tony Lip, whose life was featured in Green Book, was also an actor who appeared in Goodfellas, The Godfather, and The Sopranos.
+---------
+
+# All 3 Before Movies Are Masterpieces, but One Is Untouchable
+
+Movie, Richard Linklater, Before Sunrise, Before Sunset, Before Midnight
+
+Fri, 17 Apr 2026 11:36:15 GMT
+
+https://collider.com/before-movies-masterpieces-ranked/
+
+Richard Linklater's Before trilogy includes three of the best romantic movies ever made, but one is particularly brilliant in its depiction of love.
+---------
+
+# The Best Western Thriller on TV Loses Top Spot to AMC’s New #1 Streaming Hit
+
+TV News, George R.R. Martin, Dark Winds, The Audacity, AMC+
+
+Fri, 17 Apr 2026 11:31:12 GMT
+
+https://collider.com/dark-winds-george-rr-martin-perfect-western-series-streaming-drop-the-audacity-amc-plus-april-2026/
+
+A new tech drama series has overtaken George R.R. Martin's popular Western series Dark Winds on the AMC+ charts just days after the Season 4 finale.
+---------
+
+# 10 HBO Shows That Will Keep You Hooked From Start to Finish
+
+TV, Succession, Six Feet Under, The Sopranos, HBO
+
+Fri, 17 Apr 2026 11:22:13 GMT
+
+https://collider.com/hbo-shows-keep-you-hooked-start-to-finish/
+
+Discover the best HBO shows that maintain consistent quality and keep viewers hooked throughout their entire run, from Six Feet Under to Succession.
+---------
+
+# 10 Near-Perfect Slasher Movies That No One Remembers Today
+
+Movie, The Burning, Intruder, The Prowler, Hell Night
+
+Fri, 17 Apr 2026 11:21:13 GMT
+
+https://collider.com/near-perfect-slasher-movies-no-one-remembers-today/
+
+The Burning, Valentine, and The Slumber Party Massacre are all among the greatest slasher movies that are sadly mostly forgotten.
+---------
+
+# 'Pagan Peak' Is the Only 'True Detective' Season 1 Replacement You'll Need
+
+Features, Pagan Peak, Comparison Recommendation
+
+Fri, 17 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/pagan-peak-underrated-crime-thriller/
+
+A loose remake of a show that predates 'True Detective', 'Pagan Peak' is a ritualistic crime TV thriller that fills the void.
+---------
+
+# Christopher Meloni Reacts to ‘Law & Order: Organized Crime’ Cancellation
+
+TV News, Law & Order, Law & Order: Organized Crime, Christopher Meloni
+
+Fri, 17 Apr 2026 12:42:44 GMT
+
+https://movieweb.com/christopher-meloni-react-law-order-canceled/
+
+The actor shared an emotional response after 'Law & Order: Organized Crime' after it was confirmed the spin-off will not return for Season 6.
+---------
+
+# NBC Officially Renews 'Law & Order: SVU' for Season 28
+
+TV News, Law & Order: Special Victims Unit, Law & Order
+
+Fri, 17 Apr 2026 12:29:35 GMT
+
+https://movieweb.com/law-order-svu-renewed-season-28/
+
+The network has confirmed what comes next for Olivia Benson as the long-running procedural keeps its record-breaking streak going.
+---------
+
+# Binge-Watch Netflix's Masterpiece Sci-Fi Cyberpunk Series 'Altered Carbon' This Weekend on Streaming
+
+Features, Altered Carbon, Netflix, Sci-Fi
+
+Fri, 17 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/altered-carbon-cyberpunk-best-sci-fi-netflix-binge-watch/
+
+Netflix's best sci-fi series, 2018's 'Altered Carbon' is the perfect cyberpunk series to binge-watch before Apple TV+'s 'Neuromancer' series.
+---------
+
+# 80s Sci-Fi Action Adventure 'The Last Starfighter' Is Officially Getting a Sequel
+
+Movie News, The Last Starfighter, Sci-Fi, Action
+
+Fri, 17 Apr 2026 11:56:20 GMT
+
+https://movieweb.com/last-starfighter-sequel-comic/
+
+After more than 40 years, the beloved 80s favorite returns with a new comic book series.
+---------
+
+# 'Man on Fire' Trailer Unleashes Netflix's 'John Wick' Meets 'Taken' Action Thriller Series
+
+TV News, Netflix, Man on Fire, Action, Thriller
+
+Fri, 17 Apr 2026 11:34:34 GMT
+
+https://movieweb.com/netflix-man-on-fire-trailer-action/
+
+Due to premiere this month, the streamer reimagines Denzel Washington's 2004 revenge classic with Emmy winner Yahya Abdul-Mateen II.
+---------
+
+# 'Sonic the Hedgehog 4' Debuts First Trailer at CinemaCon
+
+Movie News, Sonic the Hedgehog 4, Sonic the Hedgehog, Jim Carrey, CinemaCon
+
+Fri, 17 Apr 2026 11:05:25 GMT
+
+https://movieweb.com/sonic-the-hedgehog-4-teaser-footage-cinemacon/
+
+Paramount debuted the first footage from 'Sonic the Hedgehog 4' at CinemaCon, revealing an unexpected fate for Jim Carrey's Dr. Robotnik.
+---------
+
+# 'Game of Thrones: Aegon's Quest': Release Window, Plot, Cast, & Everything We Know
+
+Features, Game of Thrones, Everything We Know
+
+Fri, 17 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/game-of-thrones-aegons-conquest-everything-we-know/
+
+Find out all there is to know so far about 'Aegon's Quest', the first cinematic adaptation of Game of Thrones.
+---------
+
 # GTA 6 Massive Gameplay Deep Dive Has Gamers Losing Their Minds
 
 Gaming, Grand Theft Auto, Grand Theft Auto 6
