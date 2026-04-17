@@ -1,3 +1,234 @@
+# For All Mankind’s Biggest Villain Is Officially Back
+
+Streaming TV, For All Mankind
+
+Fri, 17 Apr 2026 19:45:18 GMT
+
+https://screenrant.com/for-all-mankind-season-5-irina-morozova-kgb-villain-return-explained/
+
+For All Mankind season 5 is heating up with the return of one character who is sure to bring tension and conflict due to their alignment.
+---------
+
+# Mark Wahlberg's New Prime Video Movie Officially Becomes His Lowest Rotten Tomatoes Audience Score Of All Time
+
+Movies, Masked Recs, Mark Wahlberg
+
+Fri, 17 Apr 2026 19:41:53 GMT
+
+https://screenrant.com/mark-wahlberg-balls-up-rotten-tomatoes-audience-score/
+
+Mark Wahlberg scores the lowest Rotten Tomatoes Popcornmeter rating of his career for his new Prime Video comedy from director Peter Farrelly.
+---------
+
+# Hulu's Action-Packed Revenge Thriller Is an Instant 10/10 Weekend Binge
+
+Anime, The Manipulated
+
+Fri, 17 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/hulu-action-thriller-the-manipulated-revenge-binge/
+
+One of the best action-thrillers K-drama fans have ever seen positively demands to be watched by the masses on Hulu and Disney+.
+---------
+
+# Netflix’s The Lincoln Lawyer Officially Doubles Down On Its Bosch Replacement
+
+Streaming TV
+
+Fri, 17 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/the-lincoln-lawyer-mickeys-sister-bosch-replacement-season-5/
+
+Michael Connelly's beloved character, Harry Bosch, is limited to Prime Video shows, so The Lincoln Lawyer has created a permanent replacement.
+---------
+
+# Scarlett Johansson's R-Rated Crime Movie That Grossed 2x Its Budget Resurges On HBO Max 9 Years Later
+
+Movies, Rough Night
+
+Fri, 17 Apr 2026 19:29:45 GMT
+
+https://screenrant.com/scarlett-johansson-rough-night-movie-streaming-success-april-2026/
+
+Scarlett Johansson's R-rated crime movie, which grossed almost twice its budget at the box office, resurges on HBO Max nine years later.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is A New Gritty Supernatural Thriller)
+
+Movies, Netflix, Recommendation
+
+Fri, 17 Apr 2026 19:21:18 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-april-18/
+
+This weekend on Netflix is perfect for a three-movie binge with exciting thrillers, including a slasher, a revenge saga, and a supernatural horror.
+---------
+
+# Mother Mary Has The Best Musical Movie Scene Since Sinners
+
+Movies, Mother Mary
+
+Fri, 17 Apr 2026 19:21:18 GMT
+
+https://screenrant.com/mother-mary-musical-moment/
+
+One of Mother Mary's most visually arresting sequences is a fusion of filmmaking trickery and music that has to be seen to be believed.
+---------
+
+# Why The Pitt Season 2 Felt Less Intense Than Season 1
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Fri, 17 Apr 2026 19:15:20 GMT
+
+https://screenrant.com/the-pitt-season-2-different-tone-characters-future/
+
+Discover how The Pitt Season 2's less intense tone perfectly fits the show's dedication to realism, focusing on ordinary shifts and healthcare workers' everyday struggles.
+---------
+
+# Prime Video's 4-Part Sci-Fi Series That's 'Dark Meets Inglourious Basterds' Is A 10/10 Masterpiece
+
+Classic TV, Masked Recs, Recommendation, The Man in the High Castle, Sci-Fi, Inglourious Basterds, Dark
+
+Fri, 17 Apr 2026 19:13:18 GMT
+
+https://screenrant.com/the-man-in-the-high-castle-sci-fi-show-dark-inglorious-basterds/
+
+Dark and Inglorious Basterds may feel like polar opposites, but one of the best sci-fi's put out by Amazon blends them to create something unique.
+---------
+
+# Mel & Santos' Pitt Season 2 Ending Team-Up Could Have Major Lasting Effects, Teases Star
+
+TV, The Pitt - Season 2, The Pitt, HBO Max
+
+Fri, 17 Apr 2026 19:03:22 GMT
+
+https://screenrant.com/the-pitt-season-2-ending-mel-santos-teamup-future-taylor-dearden/
+
+Exclusive: The Pitt star breaks down season 2's ending scene with the karaoke that hints at a deeper bond forming between Mel and Santos.
+---------
+
+# Evangelion Launches a New Series With a Dark Unit-01 Design
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Fri, 17 Apr 2026 19:34:34 GMT
+
+https://www.cbr.com/evangelion-new-theatrical-edition-series-unit-01-design/
+
+Neon Genesis Evangelion fans get their first look at a new series of incredible EVA and terrifying Angels, and the first of them is perfect.
+---------
+
+# The Pitt Spinoff's Fate Officially Sealed by Lead Star & Creator
+
+TV, The Pitt
+
+Fri, 17 Apr 2026 19:27:10 GMT
+
+https://www.cbr.com/the-pitt-night-shift-spinoff-fate/
+
+The creator and star of The Pitt address the spinoff fans have been calling for.
+---------
+
+# Solo Leveling Joins One Punch Man In Grand Summoners Game Collab
+
+Anime, Solo Leveling
+
+Fri, 17 Apr 2026 19:16:12 GMT
+
+https://www.cbr.com/solo-leveling-grand-summoners-game-crossover-collaboration/
+
+Solo Leveling's new video game collaboration finally allows fans to pit Sung Jinwoo against One Punch Man's Saitama to decide who's the strongest.
+---------
+
+# Brandon Sanderson Explains Why He Chose Apple TV for Cosmere Series
+
+Movies, Apple TV, Fantasy, Mistborn
+
+Fri, 17 Apr 2026 19:03:25 GMT
+
+https://www.cbr.com/brandon-sanderson-why-chose-apple-tv-cosmere-series/
+
+The fantasy author is now working on his first adaptation.
+---------
+
+# 10 First Contact Stories as Good as Project Hail Mary
+
+Movies, Project Hail Mary
+
+Fri, 17 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/first-contact-stories-good-as-project-hail-mary/
+
+First contact with extraterrestrials doesn't always go well, but Project Hail Mary executes it with emotion & optimism like these sci-fi masterpieces
+---------
+
+# Witchy Shows That Are Way Darker Than Harry Potter
+
+TV, Harry Potter, American Horror Story, Agatha All Along, Fantasy
+
+Fri, 17 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/witchy-shows-darker-than-harry-potter-list/
+
+From terrifying witches to sinister magic, these shows are far darker than anything viewers will find in the Wizarding World of Harry Potter.
+---------
+
+# ‘The Pitt’ Star Addresses Dr. Robby vs. Dr. Al-Hashimi Backlash After Explosive Season 2 Finale [Exclusive]
+
+TV News, The Pitt, Noah Wyle, Sepideh Moafi, HBO Max
+
+Fri, 17 Apr 2026 19:36:38 GMT
+
+https://collider.com/the-pitt-season-2-finale-dr-robby-al-hashimi-argument-fan-backlash-sepideh-moafi-response/
+
+The Pitt star Sepideh Moafi discusses Dr. Robby & Dr. Al-Hashimi's Season 2 finale fight and the backlash to her character exposing a bigger problem.
+---------
+
+# Only 3 Movies Are More Epic Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Ben-Hur, Lawrence of Arabia, Ran
+
+Fri, 17 Apr 2026 19:29:14 GMT
+
+https://collider.com/movies-more-epic-than-the-lord-of-the-rings/
+
+Peter Jackson's The Lord of the Rings trilogy is incredibly epic, but movies like Lawrence of Arabia and Ben-Hur feel far grander and more cinematic.
+---------
+
+# Every Episode of 'Malcolm in the Middle: Life's Still Unfair,' Ranked
+
+TV, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Sitcom, Comedy
+
+Fri, 17 Apr 2026 19:08:13 GMT
+
+https://collider.com/malcolm-in-the-middle-lifes-still-unfair-episodes-ranked/
+
+Discover how each episode of the Malcolm in the Middle revival 'Life's Still Unfair' stacks up, from surreal journeys to emotional reunions.
+---------
+
+# 'Beef' Season 2 Rotten Tomatoes Score Proves It's Another Netflix Success
+
+TV News, Beef, Netflix, Rotten Tomatoes
+
+Fri, 17 Apr 2026 19:44:42 GMT
+
+https://movieweb.com/beef-season-2-rotten-tomatoes-reviews/
+
+Season 1 became one of Netflix's most celebrated series and Season 2 is off to a strong start.
+---------
+
+# 'Big Mistakes': A New Eight-Episode Netflix Crime Thriller Is Perfect Binge
+
+Features, Big Mistakes
+
+Fri, 17 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/netflix-new-hit-big-mistakes/
+
+'Big Mistakes' is a new Netflix crime comedy thriller created by 'Schitt's Creek's Dan Levy, is the next hot show.
+---------
+
 # Henry Cavill's Game Of Thrones Fancast Is Closer To Actually Happening
 
 Streaming TV, Game of Thrones
