@@ -1,3 +1,179 @@
+# Heated Rivalry Season 2 Will Change Key Character In Major Way As Creator Teases "Serious" Story
+
+TV, Heated Rivalry
+
+Sat, 18 Apr 2026 20:26:47 GMT
+
+https://screenrant.com/heated-rivalry-season-2-troy-barrett-changes-role-model-adaptation/
+
+Heated Rivalry creator Jacob Tierney teases adding a new dimension to a major character in season 2 as he talks adapting multiple books.
+---------
+
+# Naruto's New Sequel Debunks Major Fan Theory After Nearly A Decade
+
+Streaming TV, Naruto, Boruto: Naruto Next Generations
+
+Sat, 18 Apr 2026 20:15:18 GMT
+
+https://screenrant.com/boruto-two-blue-vortext-infinite-tsukuyomi-naruto-theory-debunked/
+
+An intriguing Boruto theory has been going around for almost a decade, but it seems like Naruto’s next exciting sequel will finally debunk it for good
+---------
+
+# 12 Cozy Pixel Games You Should Be Playing If You Love Stardew Valley
+
+Gaming, Stardew Valley, PC
+
+Sat, 18 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/cozy-pixel-games-like-stardew-valley-list/
+
+Stardew Valley is the reigning champ in the cozy game genre, but plenty of other incredible games share similar vibes and gameplay mechanics.
+---------
+
+# Star Trek's Resilient Comeback: 3 'Deaths' & Rebirths
+
+TV, Star Trek
+
+Sat, 18 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/star-trek-died-return/
+
+Reports of Star Trek’s death have historically been greatly exaggerated because Gene Roddenberry’s 60-year-old sci-fi franchise always comes back.
+---------
+
+# Elden Ring Nightreign Is Back With A Brand-New Release, Available Now
+
+Gaming, Elden Ring Nightreign, PC, Elden Ring
+
+Sat, 18 Apr 2026 20:00:18 GMT
+
+https://screenrant.com/elden-ring-nightreign-small-jar-merchant-release-2026/
+
+Elden Ring Nightreign is officially returning with a brand-new release featuring one of the game's most iconic characters, available to claim now.
+---------
+
+# Band of Brothers: How HBO's Groundbreaking Series Revolutionized TV Casting
+
+Classic TV, Band of Brothers
+
+Sat, 18 Apr 2026 19:54:18 GMT
+
+https://screenrant.com/band-of-brothers-hbo-changed-tv-casting/
+
+TV casting is very different from decades gone by, in part thanks to this revolutionary HBO series with a dazzling array of screen talent.
+---------
+
+# Frankie Muniz Recalls Rejecting Shia LaBeouf's Holes Role
+
+Movies, Holes
+
+Sat, 18 Apr 2026 20:16:19 GMT
+
+https://www.cbr.com/frankie-muniz-rejected-holes/
+
+Frankie Muniz wonders what his career would have been like if he didn't pass on the role that made Shia LaBeouf a big movie star.
+---------
+
+# Best Anime Movie Double Features That Pair Perfectly With Wolf Children
+
+Anime, Wolf Children, My Neighbor Totoro
+
+Sat, 18 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/anime-double-features-pair-perfectly-wolf-children/
+
+Anime movies like My Neighbor Totoro and A Letter to Momo pair beautifully with Wolf Children to create a complete viewing experience.
+---------
+
+# Apple TV's Your Friends & Neighbors Is Officially One of the Best Shows on TV
+
+TV, Your Friends and Neighbors
+
+Sat, 18 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/your-friends-and-neighbors-heist-apple-tv-milestone-april-2026/
+
+One of the best new crime thrillers has officially taken over the streaming charts as Season 2 continues to unfold to the delight of audiences.
+---------
+
+# 46 Years Later, A Classic Teen Titan Just Got Their Most Intense Redesign
+
+Comics, Teen Titans
+
+Sat, 18 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/teen-titans-cyborg-new-titans-design-reveal/
+
+One of the most beloved Teen Titans of all time just got a shocking upgrade, and it might just spell doom for the rest of the team.
+---------
+
+# Naruto Gives Danzo a New Official Story Reveal
+
+Anime, Naruto
+
+Sat, 18 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/naruto-mobile-danzo-shimura-trailer/
+
+The character has been reimagined as a ronin mastermind in the latest release.
+---------
+
+# This 8-Part Military Thriller Is Becoming One of Prime Video’s Strongest Action Franchises
+
+TV Features, The Terminal List, Prime Video, The Terminal List: Dark Wolf, Chris Pratt
+
+Sat, 18 Apr 2026 20:06:12 GMT
+
+https://collider.com/prime-video-the-terminal-list-8-part-military-thriller-success/
+
+Prime Video is doubling down on military thrillers, and The Terminal List is proving to be one of the strongest.
+---------
+
+# 2025's Most Divisive Horror Movie Is Finally Hitting Netflix
+
+Movie Features, Him, Netflix, Marlon Wayans, Jordan Peele
+
+Sat, 18 Apr 2026 20:06:12 GMT
+
+https://collider.com/him-netflix-jordan-peele-most-divisive-horror-movie-2025/
+
+Him will be hitting Netflix this month, and hopefully it'll gain a better reception than it did in its theatrical run.
+---------
+
+# 'Moana' and This 37-Year-Old Disney Classic Are Basically the Same Movie
+
+Movie Features, Moana, The Little Mermaid, Walt Disney Animation Studios, Disney+
+
+Sat, 18 Apr 2026 20:04:12 GMT
+
+https://collider.com/moana-little-mermaid-are-the-same-movie/
+
+Moana shares many similarities with The Little Mermaid, from its watery setting to its protagonist's dream of being somewhere else.
+---------
+
+# 7 HBO Shows That Could Last Forever (and Probably Will)
+
+TV, HBO, Rooster, The Pitt, True Detective
+
+Sat, 18 Apr 2026 20:04:12 GMT
+
+https://collider.com/hbo-tv-shows-could-last-forever/
+
+Dive into the HBO series that can run indefinitely, thanks to their expansive worlds and flexible storytelling, from The Pitt to True Detective.
+---------
+
+# 5 Years Later, Jon Bernthal's Forgotten Taylor Sheridan Thriller Is a Streaming Sleeper Hit
+
+Movie News, Those Who Wish Me Dead, Taylor Sheridan, Jon Bernthal, Angelina Jolie
+
+Sat, 18 Apr 2026 20:00:12 GMT
+
+https://collider.com/jon-bernthal-forgotten-taylor-sheridan-western-those-who-wish-me-dead-streaming-success-april-2026/
+
+Taylor Sheridan's forgotten neo-Western starring Jon Bernthal and Angelina Jolie is lighting up streaming charts five years later.
+---------
+
 # Sorry Elektra And Karen, But Daredevil’s Greatest Love Will Always Be Another MCU Icon
 
 Comics, Marvel, Marvel Cinematic Universe, Daredevil, Daredevil: Born Again
