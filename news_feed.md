@@ -1,3 +1,157 @@
+# 10 Underrated 80s Comedy Movies That Could Have Been Huge If Released Today
+
+Movies, UHF, Better off Dead, The 'Burbs, Real Genius, Top Secret!, Johnny Dangerously, Clue, The King of Comedy, Heathers, Big Business, Comedy
+
+Sat, 18 Apr 2026 21:00:18 GMT
+
+https://screenrant.com/80s-comedy-movies-underrated/
+
+These underrated ’80s comedies were ahead of their time, and their humor, style, and ideas would likely make them huge hits if released today.
+---------
+
+# Daredevil: Born Again Is Great, But Marvel Studios' Best Show Comes Back This Summer
+
+Streaming TV, X-Men '97, Marvel Cinematic Universe
+
+Sat, 18 Apr 2026 21:00:18 GMT
+
+https://screenrant.com/x-men-97-season-2-comeback-2026-marvel-best-show/
+
+There are plenty of Marvel Cinematic Universe shows on Disney+ to look forward to in 2026, including one beloved comic book team's return.
+---------
+
+# Zelda: Twilight Princess Switch 2 Debut Leaves Fans Torn
+
+Gaming, The Legend of Zelda: Twilight Princess
+
+Sat, 18 Apr 2026 21:00:18 GMT
+
+https://screenrant.com/zelda-twilight-princess-switch-2-speculation/
+
+Fans eagerly await news of a Nintendo Switch 2 port for The Legend of Zelda: Twilight Princess, as unofficial PC ports gain popularity in the meantime
+---------
+
+# Taylor Sheridan's Latest Western Is The Soap Opera Sam Elliott Once Accused Yellowstone Of Being
+
+TV, Marshals, Yellowstone
+
+Sat, 18 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/marshals-show-sam-elliott-yellowstone-criticism-taylor-sheridan/
+
+Sam Elliott once dismissed Taylor Sheridan's Yellowstone as a kind of soap opera, but that label feels better suited to the show's latest spinoff.
+---------
+
+# Twisted Metal Season 3 Officially Has One Original Star Not Returning For New Episodes
+
+TV, Twisted Metal
+
+Sat, 18 Apr 2026 20:41:27 GMT
+
+https://screenrant.com/twisted-metal-season-3-stu-mike-mitchell-not-returning-casting/
+
+Twisted Metal season 3 will be facing a major change after it was announced that a fan-favorite character would not be returning.
+---------
+
+# 19 Best Armor Sets In Starfield
+
+Gaming, Starfield, PC
+
+Sat, 18 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/best-armor-sets-starfield/
+
+The best armor sets in Starfield feature unique stats, sentimental value, and environmental resistance, which is viable for all kinds of gameplay.
+---------
+
+# 10 Wildest Simpsons Predictions That Came True
+
+Network TV, The Simpsons
+
+Sat, 18 Apr 2026 20:30:18 GMT
+
+https://screenrant.com/simpsons-wild-predictions-came-true/
+
+The Simpsons has become notorious for predicting the future, but it's more a case of history repeating itself, and real life catching up with satire.
+---------
+
+# Superman Is 400,000 Times Stronger Than The Hulk In The Comics
+
+DC Comics, Superman, Hulk, Marvel
+
+Sat, 18 Apr 2026 20:30:18 GMT
+
+https://screenrant.com/superman-stronger-hulk-lifting-record/
+
+Hulk just pulled off one of his most impressive feats of strength, but Superman already proved that his maximum limit overshadows the Gamma monster's.
+---------
+
+# Ridley Scott & Tom Hardy's Taboo Is the Darkest Period Drama TV Has Ever Seen
+
+TV, Taboo, Crime, tom hardy, ridley scott
+
+Sat, 18 Apr 2026 20:30:11 GMT
+
+https://www.cbr.com/ridley-scott-tom-hardy-taboo-darkest-period-tv-drama-ever/
+
+Ridley Scott and Tom Hardy’s unique, violent series stands out as a truly different period drama as Taboo finds a new audience on streaming.
+---------
+
+# The Best Superhero Series on Prime Video Is a 10/10 Sci-Fi Hit
+
+TV News, The Boys, Prime Video, Superhero, Streaming
+
+Sat, 18 Apr 2026 21:00:12 GMT
+
+https://collider.com/best-superhero-series-the-boys-final-season-5-prime-video-streaming-hit-april-2026/
+
+One of Prime Video's flagship series has taken over the streaming world for the last time.
+---------
+
+# Guy Ritchie’s Prime Video Detective Thriller Is a Global Streaming Smash
+
+TV News, Guy Ritchie, Young Sherlock, Prime Video, Sherlock Holmes
+
+Sat, 18 Apr 2026 20:30:12 GMT
+
+https://collider.com/young-sherlock-guy-ritchie-mystery-thriller-global-streaming-success-prime-video-april-2026/
+
+Young Sherlock remains one of Prime Video’s most popular shows worldwide, currently sitting near the top of the platform’s global chart.
+---------
+
+# One Perfect Sci-Fi Movie From Every Year of the 2010s
+
+Movie, Science Fiction, Inception, The Martian, Annihilation
+
+Sat, 18 Apr 2026 20:29:12 GMT
+
+https://collider.com/sci-fi-movie-perfect-every-year-2010s/
+
+The 2010s were truly glorious for the science fiction genre, producing at least one masterpiece per year, from Inception in 2010 to Arrival in 2016.
+---------
+
+# 'No Good Deed' Is the Most Underrated Netflix Original Series
+
+Features, No Good Deed
+
+Sat, 18 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/no-good-deed-netflix-underrated/
+
+'No Good Deed,' starring Ray Romano and Lisa Kudrow, premiered on Netflix in December 2024 and is about a couple selling their house.
+---------
+
+# The Best Korean Revenge Thrillers of All Time
+
+Movie Lists, K-Drama, International, Thriller
+
+Sat, 18 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/best-korean-revenge-thrillers-of-all-time/
+
+Korean thrillers always impress, and these revenge-themed movies are captivating from start to finish.
+---------
+
 # Heated Rivalry Season 2 Will Change Key Character In Major Way As Creator Teases "Serious" Story
 
 TV, Heated Rivalry
