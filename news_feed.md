@@ -1,3 +1,212 @@
+# Bob Odenkirk's New Action Movie Earns His Worst Box Office Debut In 19 Years
+
+Movies, Box Office, Normal
+
+Sat, 18 Apr 2026 17:10:42 GMT
+
+https://screenrant.com/normal-2026-movie-domestic-box-office-debut-bob-odenkirk-comparison/
+
+The new action movie starring Nobody's Bob Odenkirk earns the two-time Emmy winner his worst wide release domestic debut in nearly two decades.
+---------
+
+# The Last of Us: A More Mature Take on The Walking Dead's Tropes
+
+Streaming TV, The Last of Us, The Walking Dead
+
+Sat, 18 Apr 2026 17:00:18 GMT
+
+https://screenrant.com/the-last-of-us-hbo-zombie-show-walking-dead-modern-update/
+
+HBO's two-season adaptation of The Last of Us gives the familiar tropes and conventions of The Walking Dead a much-needed modern update.
+---------
+
+# Jon Bernthal's Punisher Special Is A Stealth Remake Of The Antihero's Worst Movie, But Has Already Fixed Its Biggest Flaw
+
+TV, The Punisher: One Last Kill
+
+Sat, 18 Apr 2026 16:55:19 GMT
+
+https://screenrant.com/punisher-one-last-kill-2004-movie-remake-fix/
+
+Jon Bernthal's Punisher special will adapt an iconic comic book, which was previously mangled by the antihero's worst movie adaptation.
+---------
+
+# Amazon's The Captive's War From The Expanse Creators Continues A Worrying Sci-Fi Trend
+
+Streaming TV, The Expanse, Sci-Fi
+
+Sat, 18 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/the-captives-war-worrying-sci-fi-trend/
+
+Amazon MGM has The Expanse creators' next sci-fi show in development, but the space opera continues a concerning trend that plagues the TV genre.
+---------
+
+# 4 Played-Out Songs That Should Never Be Performed On American Idol's Disney Night Again
+
+Reality TV, American Idol
+
+Sat, 18 Apr 2026 16:44:24 GMT
+
+https://screenrant.com/american-idol-disney-night-played-out-songs-never-be-performed-again/
+
+American Idol Disney Night is a beloved annual tradition, but there are a few songs that have been performed too many times that should be retired.
+---------
+
+# Tubi's Free Horror Movie Hive Offers Chilling Original Content
+
+Movies, Tubi TV, Recommendation
+
+Sat, 18 Apr 2026 16:40:20 GMT
+
+https://screenrant.com/tubi-original-horror-movie-hive-scary-recommendation/
+
+Tubi is especially popular these days as the rare free streaming service and their latest original horror movie, Hive, is worth checking out.
+---------
+
+# 8 Hidden Gem Fantasy Shows on Netflix You Shouldn’t Miss
+
+TV, Fantasy, Netflix, A Discovery of Witches, The Dark Crystal: Age of Resistance
+
+Sat, 18 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/netflix-must-watch-hidden-gem-fantasy-shows/
+
+From overlooked series to underrated adaptations, these fantasy hidden gem shows will transport viewers to exciting new worlds.
+---------
+
+# 10 Nintendo GameCube Games That Are 10/10, No Notes
+
+Games, Video Games, Nintendo, The Legend of Zelda, super mario bros
+
+Sat, 18 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/nintendo-gamecube-perfect-games/
+
+Nintendo's GameCube brought fans some of the most unforgettable games.
+---------
+
+# Harrison Ford's Indiana Jones and the Dial of Destiny Redeems Itself on PVOD Charts 3 Years Later
+
+Movies, Harrison Ford, harrison ford, Indiana Jones, Indiana Jones and the Dial of Destiny
+
+Sat, 18 Apr 2026 17:03:41 GMT
+
+https://www.cbr.com/harrison-ford-adventure-indiana-jones-and-the-dial-of-destiny-pvod-success-april-2026/
+
+The film is one of the most divisive adventure films and its extremely high budget led it to become a massive box office failure.
+---------
+
+# Prison Break Official Podcast Is Coming to Hulu
+
+TV, Prison Break, Hulu
+
+Sat, 18 Apr 2026 17:03:17 GMT
+
+https://www.cbr.com/prison-break-podcast-hulu/
+
+Prison Break is returning at Hulu over two decades after its TV debut, but with a twist.
+---------
+
+# Sherlock Creator's Bookish Is Officially Coming Back in 2026
+
+TV, Bookish
+
+Sat, 18 Apr 2026 16:38:49 GMT
+
+https://www.cbr.com/mark-gatiss-bookish-season-2-teaser-release-window/
+
+The series fell under the radar, but it still received a renewal.
+---------
+
+# 10 Greatest DreamWorks Animation Movie Opening Scenes, Ranked
+
+Movie, DreamWorks Animation, Shrek, The Prince of Egypt, Rise of the Guardians
+
+Sat, 18 Apr 2026 17:28:13 GMT
+
+https://collider.com/best-dreamworks-animation-movie-opening-scenes-ranked/
+
+Beloved DreamWorks animated movies like The Road to El Dorado, Shrek, and Chicken Run have some of the best opening scenes in the studio's history.
+---------
+
+# 10 Shows From the 2010s That Have Aged Like Milk
+
+TV, The Big Bang Theory, Pretty Little Liars, Glee, 13 Reasons Why
+
+Sat, 18 Apr 2026 17:19:12 GMT
+
+https://collider.com/tv-shows-2010s-aged-like-milk/
+
+Time hasn't been kind to once-beloved TV shows of the 2010s like Glee, 13 Reasons Why, and Dance Moms, with their reputation only getting worse.
+---------
+
+# Paramount+'s 121-Minute Survival Thriller Is Quietly Climbing Global Streaming Charts
+
+Movie News, Not Without Hope, Thriller, Zachary Levi, Paramount Plus
+
+Sat, 18 Apr 2026 17:00:12 GMT
+
+https://collider.com/zachary-levi-survival-thriller-not-without-hope-streaming-hit-april-2026/
+
+A tragic 2025 survival thriller based on a terrifying true story has turned up in the Paramount+ top ten.
+---------
+
+# John Ford Scrapped the Original Ending to His Forgotten John Wayne War Movie After a Real Tragedy
+
+Movie Features, The Horse Soldiers, John Wayne, John Ford, War
+
+Sat, 18 Apr 2026 16:52:13 GMT
+
+https://collider.com/john-wayne-the-horse-soldiers-john-ford-war-movie-ending-tragedy/
+
+In John Wayne's forgotten Civil War movie The Horse Soldiers, John Ford decided to scrap the battle ending as they were dealing with a death on set.
+---------
+
+# This Psychological Thriller Is the Most Intense Movie You'll Ever Watch
+
+Movie Features, Dead Man's Shoes, Paddy Considine, Toby Kebbell, Thriller
+
+Sat, 18 Apr 2026 16:36:12 GMT
+
+https://collider.com/dead-mans-shoes-intense-best-psychological-thriller/
+
+Dead Man's Shoes, starring Paddy Considine, is a brutal revenge thriller that blends genres to leave viewers haunted.
+---------
+
+# How Morley Cigarettes Link 'The X-Files' to Loads of Other TV Shows & Films
+
+Features, The X-Files
+
+Sat, 18 Apr 2026 17:30:16 GMT
+
+https://movieweb.com/the-x-files-crossover-lost-psycho/
+
+The Smoking Man's favorite brand of tobacco in 'The X-Files' actually connects the hit sci-fi show to a bunch of other titles.
+---------
+
+# The 'Scrubs' Revival Finale Rearranges All the Romantic Pairings Again
+
+Features, Scrubs
+
+Sat, 18 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/scrubs-revival-avoids-predictable-romance-trend/
+
+It's often easy to tell which characters will end up together in sitcoms, but 'Scrubs' is making it very difficult. Read on for more.
+---------
+
+# Heartwarming Friends-To-Lovers Movies to Watch Right Now
+
+Movie Lists, Romance
+
+Sat, 18 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/movies-where-best-friends-fall-in-love/
+
+Whether you're a fan of the trope or simply looking for a feel-good love story, these friends-to-lovers movies are sure to warm your heart.
+---------
+
 # HBO's Primal: A Bold Retcon Example For TV Showrunners
 
 Classic TV, Masked Recs
