@@ -1,3 +1,212 @@
+# Stardew Valley Meets Bloodborne In New RPG You Can Try Free Now
+
+Gaming, Stardew Valley, Bloodborne
+
+Sat, 18 Apr 2026 04:00:27 GMT
+
+https://screenrant.com/steam-free-bloodborne-meets-stardew-valley-neverway/
+
+Stardew Valley will channel Bloodborne this year when Steam brings Neverway to life, a horror-inspired life sim that screams GOTY.
+---------
+
+# Star Wars' New Show Just Surpassed One Of The Best Revenge of the Sith Scenes
+
+Star Wars, Star Wars: Maul - Shadow Lord, Star Wars: Episode III - Revenge of the Sith
+
+Sat, 18 Apr 2026 03:52:58 GMT
+
+https://screenrant.com/maul-shadow-lord-surpasses-best-revenge-of-the-sith-scene/
+
+Maul - Shadow Lord is showing all-new methods of dark side corruption, arguably surpassing one of the best scenes from Revenge of the Sith.
+---------
+
+# 15 Best Webtoon Series Everyone Needs to Read
+
+Anime, Webtoon
+
+Sat, 18 Apr 2026 03:30:20 GMT
+
+https://screenrant.com/best-manhwa-webtoon/
+
+Webtoon has a little of something for everyone, with well over a million titles to choose from. Here are 30 of the best manhwa on the platform.
+---------
+
+# MGM+'s From Ending With Season 5 To Avoid Lost's Mistakes
+
+Streaming TV, From, Lost
+
+Sat, 18 Apr 2026 03:30:19 GMT
+
+https://screenrant.com/from-season-5-lost-mistake-ending/
+
+From is reportedly ending its run with season 5, which seems to confirm that it will avoid the biggest mistake that weighed Lost down in its finale.
+---------
+
+# This Free Steam RPG Has Over 300 Hours Of Gameplay On Offer
+
+Gaming, Steam
+
+Sat, 18 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/steam-300-hour-free-rpg-april-2026/
+
+There are many free games on Steam, but if you're looking to get the most out of your freebie, then check out this RPG with over 300 hours of content.
+---------
+
+# Ryan Vs. Homelander In The Boys Season 5 Proves He Isn’t His Father’s Replacement
+
+Streaming TV, The Boys
+
+Sat, 18 Apr 2026 02:31:18 GMT
+
+https://screenrant.com/the-boy-season-5-ryan-homelander-replacement/
+
+After The Boys season 5’s brutal fight scene from episode 3, it is hard not to believe that Ryan can no longer be the perfect Homelander replacement.
+---------
+
+# Spy x Family Loses No. 1 Spot in New Oricon Manga Sales Ranking
+
+Anime, Spy X Family, Case Closed, Detective Conan
+
+Sat, 18 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/spy-x-family-vs-detective-conan-oricon-manga-ranking/
+
+Tatsuya Endo's beloved Spy x Family loses its #1 top-seller status as another iconic shonen series re-emerges to reclaim its former glory.
+---------
+
+# 10 Classic Games That Define Gen Z
+
+Games, Video Games, Mario Kart, Undertale
+
+Sat, 18 Apr 2026 03:15:11 GMT
+
+https://www.cbr.com/gen-z-zoomers-undertale-gta-5-mario-kart-classic-games/
+
+Zoomers are bound to remember classics like Minecraft and Fortnite.
+---------
+
+# 10 Anime That Can Be 2026's Anime of the Year (So Far)
+
+Anime
+
+Sat, 18 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/2026-best-new-anime-of-the-year-list/
+
+It's only April, but 2026 has already been an incredible year for anime thanks to series like Jujutsu Kaisen.
+---------
+
+# After The Star Wars Clone Wars Movie, Starkiller Needs an Animated Movie
+
+Movies, Star Wars
+
+Sat, 18 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/star-wars-starkiller-perfect-animated-movie-after-clone-wars/
+
+The Clone Wars was Lucasfilm's biggest animated movie, and while it didn't do well, it's time for another character to try again.
+---------
+
+# 7 Reasons It's Hard To Watch Dragon Ball Super in 2026
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Sat, 18 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-hard-to-watch-2026/
+
+Dragon Ball Super is a pillar of the franchise, but 10 years later there are certain parts that haven't aged well and hold the anime back.
+---------
+
+# Nintendo Should Do With Zelda What Capcom Does With Resident Evil
+
+Games, The Legend of Zelda, Resident Evil, Nintendo
+
+Sat, 18 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/nintendo-should-remake-zelda-like-capcom-resident-evil/
+
+The Legend of Zelda is one of the biggest series in gaming, but it could be even bigger if it learned from Resident Evil.
+---------
+
+# Starz’s 8-Part Epic Fantasy Series Is Still One of Its Greatest 12 Years Later
+
+TV Features, Outlander, Caitriona Balfe, Sam Heughan, STARZ
+
+Sat, 18 Apr 2026 04:03:13 GMT
+
+https://collider.com/outlander-starz-fantasy-greatest-streaming/
+
+Outlander, Starz's groundbreaking 8-season series, has redefined romance on TV with its captivating story and strong performances.
+---------
+
+# Netflix's 7-Part Medical Drama Is the Best Show To Watch If You Love 'The Pitt'
+
+TV Features, This Is Going To Hurt, Ben Whishaw, The Pitt, Netflix
+
+Sat, 18 Apr 2026 03:41:12 GMT
+
+https://collider.com/netflix-this-is-going-to-hurt-medical-dramedy-ben-wishaw/
+
+This Is Going To Hurt offers a raw and honest portrayal of the mental health challenges faced by healthcare professionals.
+---------
+
+# 33 Years Later, the Best All-Star Western Is Still a Masterpiece
+
+Movie Features, Tombstone, Western, Kurt Russell, Val Kilmer
+
+Sat, 18 Apr 2026 03:10:13 GMT
+
+https://collider.com/tombstone-all-star-western-masterpiece-33-years-later/
+
+Tombstone remains one of the best and most crowd-pleasing Westerns ever made, having aged exceptionally well in the 33 years since its release.
+---------
+
+# You Missed the Real Meaning Behind Netflix's ‘Beef’ Season 2 Ending
+
+Exclusives, Beef, Jake Schreier, X-Men, Netflix
+
+Sat, 18 Apr 2026 03:00:12 GMT
+
+https://collider.com/netflix-beef-season-2-finale-meaning-director-interview-jake-schreier/
+
+Beef director Jake Schreier discusses the themes of Season 2, the finale, and shares details on Marvel's approach to their new upcoming X-Men movie.
+---------
+
+# Paramount+'s 92% RT Horror Thriller Is a 3-Part Binge You Shouldn't Sleep On
+
+TV Features, Yellowjackets, Paramount Plus, Thriller, Horror
+
+Sat, 18 Apr 2026 03:00:12 GMT
+
+https://collider.com/yellowjackets-paramount-plus-horror-thriller-best-binge/
+
+The 3-season show Yellowjackets, starring Sophie Thatcher, Melanie Lynskey, and Christina Ricci, is the ultimate binge for horror fans.
+---------
+
+# HBO Max's 3-Part Adult Animated Series Is One of the Best Shows To Binge This Weekend
+
+TV Features, Smiling Friends, Adult Swim, Rick & Morty, Animation
+
+Sat, 18 Apr 2026 01:56:13 GMT
+
+https://collider.com/smiling-friends-hbo-max-animated-show-weekend-binge/
+
+The unique blend of humor and absurdity in Adult Swim's Smiling Friends makes the 3-season animated series a perfect weekend binge.
+---------
+
+# 10 Netflix Series That Are So Good You'll Want to Binge-Watch Them in One Weekend
+
+TV Lists, Netflix
+
+Sat, 18 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/netflix-series-binge-watch-one-weekend/
+
+Preparing to stay in and treat yourself to a Netflix marathon? There's something for everyone, and we guarantee we'll find it for you.
+---------
+
 # Netflix's 3-Part Reacher Replacement Series Broke The Rules Of Book-To-Show Adaptations
 
 Streaming TV, The Night Agent
