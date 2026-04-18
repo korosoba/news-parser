@@ -1,3 +1,289 @@
+# Dutton Ranch Is An Exciting New Chapter For Beth And Rip After Yellowstone
+
+TV, Yellowstone, Dutton Ranch, Op-Ed
+
+Sat, 18 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/dutton-ranch-not-yellowstone-exciting/
+
+Dutton Ranch is being touted as 'Yellowstone season 6,' but the ways that the spinoff can't be like the original show are what make it intr
+---------
+
+# Galaxy Quest Has Two Secret Sequels That Way Too Many Fans Missed
+
+Comics, Galaxy Quest, IDW Publishing
+
+Sat, 18 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/galaxy-quest-secret-sequels/
+
+Years after the movie's release, IDW Publishing resurrected the Galaxy Quest crew for two comic book series.
+---------
+
+# From Season 4 Finally Ending Series-Long Complaint Addressed By Harold Perrineau
+
+TV, From, FROM - Season 4
+
+Sat, 18 Apr 2026 18:18:48 GMT
+
+https://screenrant.com/from-season-4-communication-complaint-end-harold-perrineau/
+
+EXCLUSIVE: In From's penultimate season, Harold Perrineau addresses why the hit MGM+ horror series is ending a series-long fan complaint.
+---------
+
+# The Boys Confirms Ryan Is 100% Strong Enough To Kill Homelander
+
+Streaming TV, The Boys
+
+Sat, 18 Apr 2026 18:00:18 GMT
+
+https://screenrant.com/the-boys-ryan-kill-homelander-season-5/
+
+While The Boys have struggled to kill Homelander for over four seasons, Ryan has officially become strong enough to take down his own father.
+---------
+
+# Magic: The Gathering Meets Black Flag In This Exciting New Indie Game
+
+Gaming, Upcoming Games, Indie Games, PC
+
+Sat, 18 Apr 2026 18:00:18 GMT
+
+https://screenrant.com/magic-the-gathering-black-flag-cursed-tails/
+
+While it's not the first time MTG and Assassin's Creed have met, this solo developer project looks incredibly promising for fans of either franchise.
+---------
+
+# Elder Scrolls 6 Be Damned, New "Scrollslike" RPG Is Perfect For Morrowind Fans
+
+Gaming, The Elder Scrolls 6, Indie Games, PC
+
+Sat, 18 Apr 2026 17:50:22 GMT
+
+https://screenrant.com/elder-scrolls-6-lantern-laughless-saint-morrowind/
+
+The wait for The Elder Scrolls 6 might be long, but a new open-world RPG could be even more appealing than TES6 for those who love Morrowind.
+---------
+
+# Blumhouse's R-Rated The Mummy Breaks Brendan Fraser Movie's All-Time Rotten Tomatoes Record After 27 Years
+
+Movies, Lee Cronin's The Mummy, The Mummy, Blumhouse, New Line Cinema
+
+Sat, 18 Apr 2026 17:43:30 GMT
+
+https://screenrant.com/lee-cronins-the-mummy-rotten-tomatoes-audience-score-record/
+
+Blumhouse's new R-rated The Mummy movie officially sets a Rotten Tomatoes record, as it dethrones Brendan Fraser's iconic movie after 27 years.
+---------
+
+# 10 '80s Shows That Rewrote The Rules Of Television
+
+Classic TV
+
+Sat, 18 Apr 2026 17:31:19 GMT
+
+https://screenrant.com/shows-from-1980s-changed-television-rules/
+
+These influential 1980s TV shows revolutionized storytelling, production styles, and audience engagement, shaping modern television as we know it.
+---------
+
+# GTA 6 PC Fans Torn Over Latest PC Release Bombshell
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Sat, 18 Apr 2026 17:31:19 GMT
+
+https://screenrant.com/gta-6-pc-microtransactions-release-date/
+
+Just when we thought things were looking up for GTA 6's PC release, a recent leak seems to be all but confirming Rockstar's future direction.
+---------
+
+# Marvel’s Spider-Man vs. Punisher Set for Brutal Summer 2026 Battle Ahead of Brand New Day
+
+Comics, Marvel Comics, MCU, Marvel, Spider-Man, Spider-Man: Brand New Day, Superman, The Punisher, The Punisher: One Last Kill
+
+Sat, 18 Apr 2026 18:35:45 GMT
+
+https://www.cbr.com/marvels-spider-man-vs-punisher-set-for-brutal-summer-2026-battle/
+
+Marvel just gave a first look at Spider-Man and the Punisher going toe-to-toe, and it's glorious.
+---------
+
+# The Good Wife Spin-off Series Elsbeth Dominates Paramount+ Streaming Charts
+
+TV, The Good Wife, Elsbeth, Crime
+
+Sat, 18 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/the-good-wife-spin-off-elsbeth-crime-cbs-paramount-success-april-2026/
+
+CBS's The Good Wife's spin-off crime series, Elsbeth, is finding new success on Paramount+.
+---------
+
+# Star Wars: Maul - Shadow Lord Crowned as Disney+'s New Sci-Fi TV Champion
+
+TV, Star Wars: Maul - Shadow Lord, The Mandalorian, Star Wars
+
+Sat, 18 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/maul-shadow-lord-the-mandalorian-star-wars-comparison/
+
+Star Wars: Maul - Shadow Lord surpasses The Mandalorian, becoming Disney+’s most acclaimed animated series.
+---------
+
+# 8 Dragon Ball Super Characters Who Should Replace Goku
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sat, 18 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-characters-better-than-goku-2026/
+
+Fans of Gohan, Vegeta, and plenty of other Dragon Ball characters are more than ready for someone other than Goku to be the star of the series.
+---------
+
+# The Simpsons Showrunner Explains Phasing Out Couch Gags
+
+TV, The Simpsons
+
+Sat, 18 Apr 2026 18:12:32 GMT
+
+https://www.cbr.com/the-simpsons-couch-gags-missing/
+
+Couch gags were such an important part of The Simpsons for many years, but they are now very scarcely used.
+---------
+
+# Steam Users Can Claim Free Horror Game Until April 20
+
+Games, Steam, Horror
+
+Sat, 18 Apr 2026 18:05:12 GMT
+
+https://www.cbr.com/steam-uncanny-tales-cold-road-april-20/
+
+Steam users only have until April 20 to claim Uncanny Tales: Cold Road for free.
+---------
+
+# Tangled Sequel Series Rises on Disney+ Ahead of Live-Action Remake
+
+TV, Rapunzel's Tangled Adventure, Tangled, Disney
+
+Sat, 18 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/tangled-the-series-short-cuts-animation-disney-success-april-2026/
+
+Tangled: The Series - Short Cuts climbs Disney+ charts as fans await the highly anticipated live-action remake of Disney's Tangled.
+---------
+
+# 10 Classic Animated Movies That Have Aged Poorly
+
+Movies, Lady and the Tramp, Animation
+
+Sat, 18 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/classic-animated-movies-have-aged-poorly/
+
+Animated films like The Last Unicorn and Lady and the Tramp were deemed socially acceptable upon release, but are now considered problematic.
+---------
+
+# Dragon Ball Z Finally Reunites Goku and Vegeta as Super Saiyan Vegito
+
+Anime, Dragon Ball, merchandise
+
+Sat, 18 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/dvz-ssj-vegito-banpresto-grandista-release/
+
+The new Vegito release will hit international markets later this year in July.
+---------
+
+# The Batman Part II Eyes Game of Thrones Star in Key Role
+
+Movies, The Batman, The Batman Part II, Batman, DC Comics, DCU
+
+Sat, 18 Apr 2026 17:58:41 GMT
+
+https://www.cbr.com/the-batman-part-2-charles-dance-casting-report/
+
+One of the most notorious actors in the Game of Thrones universe is heading to Gotham City.
+---------
+
+# 10 Most Important Crime Movies That Define the Genre
+
+Movie, Crime, Pulp Fiction, Goodfellas, The Godfather
+
+Sat, 18 Apr 2026 18:28:12 GMT
+
+https://collider.com/most-important-crime-movies-define-genre/
+
+From Quentin Tarantino's Pulp Fiction to Francis Ford Coppola's The Godfather, these crime movies are among the most important of the genre.
+---------
+
+# Forget 'War of the Worlds' — Apple TV's Best Sci-Fi Thriller Is a 3-Part Masterpiece
+
+TV Features, Apple TV, Invasion, Sci-Fi, Simon Kinberg
+
+Sat, 18 Apr 2026 18:28:12 GMT
+
+https://collider.com/invasion-apple-tv-sci-fi-thriller-masterpiece/
+
+Apple TV's Invasion is a unique take on the sci-fi genre that focuses on how a global alien invasion impacts ordinary people.
+---------
+
+# Ridley Scott’s 8-Part Sci-Fi Masterpiece Emerges as a Perfect Weekend Binge Before Season 2
+
+TV News, Alien: Earth, Ridley Scott, Noah Hawley, Hulu
+
+Sat, 18 Apr 2026 18:00:12 GMT
+
+https://collider.com/ridley-scott-sci-fi-masterpiece-alien-earth-streaming-success-april-2026/
+
+Ridley Scott's eight-part sci-fi masterpiece has emerged as the perfect weekend binge before it returns for its sophomore season.
+---------
+
+# 8 Forgotten Netflix Shows That Have Aged Like Fine Wine
+
+TV, Netflix, GLOW, Dead to Me, Russian Doll
+
+Sat, 18 Apr 2026 17:57:12 GMT
+
+https://collider.com/forgotten-netflix-shows-aged-like-fine-wine/
+
+Unbreakable Kimmy Schmidt, Lupin, GLOW, Dead to Me, and more make up our list of forgotten Netflix shows that have aged like fine wine.
+---------
+
+# 'Banshee': 'The Boys' Star's Action Thriller Series Is Perfectly Bloody & Raunchy
+
+Features, Banshee
+
+Sat, 18 Apr 2026 18:31:17 GMT
+
+https://movieweb.com/the-boys-antony-starr-banshee/
+
+Antony Starr has gained worldwide acclaim playing Homelander in The Boys, but it's not his first acclaimed TV series.
+---------
+
+# Guy Ritchie and Henry Cavill's 'The Man from U.N.C.L.E.' is Their Version of James Bond
+
+Features, The Man From U.N.C.L.E., Guy Ritchie, James Bond
+
+Sat, 18 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/guy-ritchie-henry-cavill-james-bond-man-from-uncle/
+
+Henry Cavill played James Bond (kind of) in Guy Ritchie's 'The Man from U.N.C.L.E' spy thriller remake.
+---------
+
+# 'The United States of Tara' is a Masterpiece Produced By Steven Spielberg
+
+Features, Steven Spielberg, Comparison Recommendation
+
+Sat, 18 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/the-united-states-of-tara-underrated/
+
+'The United States of Tara' began airing on Showtime in 2009 and ran for three seasons, and it starred Toni Collette, John Corbett, and Brie Larson.
+---------
+
 # Bob Odenkirk's New Action Movie Earns His Worst Box Office Debut In 19 Years
 
 Movies, Box Office, Normal
