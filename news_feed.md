@@ -1,3 +1,91 @@
+# Elder Scrolls 6 Step Aside, Skyrim: New Dawn Is Here
+
+Gaming, The Elder Scrolls, The Elder Scrolls 6
+
+Sat, 18 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/skyrim-new-dawn-rpg-overhaul-unofficial/
+
+NEW DAWN Redux is a huge mod collection that entirely transforms the base Skyrim experience with more than 1800 individual mods.
+---------
+
+# Dexter: Resurrection Season 2 Teases Original Sin Cameo
+
+TV, Dexter: Resurrection, Dexter
+
+Sat, 18 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-dexter-original-sin-cameo/
+
+Dexter: Resurrection's director posted some teaser photos, and one in particular caught my attention, hinting at a potential exciting cameo.
+---------
+
+# This Fan-Favorite Horror Franchise Was Officially Revived 11 Years After Its Last Movie
+
+Movie Features, Tremors 5: Bloodlines, Tremors, Jurassic World, Alien
+
+Sat, 18 Apr 2026 11:53:13 GMT
+
+https://collider.com/tremors-5-bloodlines-2015-revived-horror-franchise/
+
+Tremors 5: Bloodlines revives the long-running monster franchise after 11 years, bringing Burt Gummer back for a fresh, action-packed sequel.
+---------
+
+# 10 Fantasy Movies From the 21st Century That Are Actually Perfect
+
+Movie, Fantasy, Pan's Labyrinth, The Lord of the Rings: The Fellowship of the Ring, Spirited Away
+
+Sat, 18 Apr 2026 11:47:13 GMT
+
+https://collider.com/fantasy-movies-21st-century-perfect/
+
+From dark fairytales like Pan's Labyrinth to animated classics like Shrek, these fantasy movies are the best the genre has seen in the 21st century.
+---------
+
+# HBO's Bizarre 8-Part Mystery Thriller Is the Perfect Weekend Binge
+
+TV Features, Tim Robinson, The Chair Company, Lake Bell, HBO
+
+Sat, 18 Apr 2026 11:47:13 GMT
+
+https://collider.com/the-chair-company-hbo-mystery-thriller-perfect-weekend-binge/
+
+HBO's mystery thriller The Chair Company, starring Tim Robinson, is a must-watch weekend binge.
+---------
+
+# ‘John Wick’ Meets ‘Taken’ in Jason Statham’s Hardcore Action Late-Night Prime Video Favorite
+
+Movie News, A Working Man, Jason Statham, Prime Video, David Harbour
+
+Sat, 18 Apr 2026 11:46:13 GMT
+
+https://collider.com/jason-statham-hardcore-action-film-a-working-man-streaming-success-prime-video-april-2026-john-wick-taken/
+
+John Wick meets Taken in Jason Statham's hardcore action thriller that's taking over late-night streaming charts on Prime Video.
+---------
+
+# Apple TV’s Near-Perfect 5-Part Sci-Fi Series Is One of Its Most Bingeable Epics
+
+TV News, For All Mankind, Sci-Fi, Apple TV, Joel Kinnaman
+
+Sat, 18 Apr 2026 11:30:12 GMT
+
+https://collider.com/for-all-mankind-streaming-success-apple-tv-april-2026/
+
+For All Mankind remains one of Apple TV’s biggest series, currently sitting near the top of the platform’s global chart. Find out more here.
+---------
+
+# ‘The Sopranos’ Made James Gandolfini a Legend, but It Came at a Cost
+
+TV Features, The Sopranos, David Chase, Wise Guy: David Chase and the Sopranos, James Gandolfini
+
+Sat, 18 Apr 2026 11:17:12 GMT
+
+https://collider.com/james-gandolfini-the-sopranos-wise-guys-documentary-meaning/
+
+The Sopranos made James Gandolfini a legend, but HBO documentary Wise Guy reveals how playing Tony Soprano took a lasting toll behind the scenes.
+---------
+
 # Bloodborne 60fps PS5 Gameplay Is Splitting Gamers
 
 Gaming, Bloodborne, PlayStation 5
