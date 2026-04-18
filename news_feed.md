@@ -1,3 +1,278 @@
+# HBO's Primal: A Bold Retcon Example For TV Showrunners
+
+Classic TV, Masked Recs
+
+Sat, 18 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/primal-retcon-change-spear-death-set-example/
+
+A retcon is a touchy subject and one that can make or break a TV show, but an HBO sci-fi fantasy series made a case for how it can work.
+---------
+
+# A24's Top 10 Horror Films: A Comprehensive Ranking
+
+Movies, A24, Hereditary, Talk to Me, The Lighthouse, Bring Her Back, I Saw the TV Glow, It Comes at Night, Heretic, Pearl, Midsommar, The Witch
+
+Sat, 18 Apr 2026 16:20:18 GMT
+
+https://screenrant.com/a24-horror-movies-best-ranked/
+
+A24 has become one of the greatest distributors of horror movies for the past ten years, and here are ten of their best scary movies they've released.
+---------
+
+# The Batman 2 Casts Game Of Thrones Star With Major Ties To Harvey Dent
+
+Movies
+
+Sat, 18 Apr 2026 16:09:57 GMT
+
+https://screenrant.com/the-batman-part-2-charles-dance-cast-charles-dent/
+
+The Batman - Part II cast adds another key addition, this time with a Game of Thrones star playing a character who has major ties to Harvey Dent.
+---------
+
+# Super Mario Galaxy Box Office Sets A Major Record & Hits A Huge Milestone With 3rd #1 Weekend In A Row
+
+Movies, The Super Mario Galaxy Movie, Box Office Milestone, Super Mario Bros.
+
+Sat, 18 Apr 2026 16:03:23 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-box-office-350-million-domestic-milestone/
+
+During its record-setting third weekend, Illumination's animated sequel The Super Mario Galaxy Movie hits a major domestic box office milestone.
+---------
+
+# Blumhouse's The Mummy Box Office Debut Just Barely Outdoes Their 2025 Universal Monster Flop Wolf Man
+
+Movies, Box Office, Lee Cronin's The Mummy, Horror
+
+Sat, 18 Apr 2026 16:00:34 GMT
+
+https://screenrant.com/the-mummy-2026-box-office-opening-weekend-domestic-chart-report/
+
+The domestic debut of Lee Cronin's The Mummy, which is Blumhouse's third reboot of a Universal Monsters property, surpasses their 2025 flop Wolf Man.
+---------
+
+# The Worst Twist In Batman Lore Just Got A Massive Revamp
+
+Comics, Batman, Batman Beyond
+
+Sat, 18 Apr 2026 16:00:18 GMT
+
+https://screenrant.com/project-batman-beyond-twist-dc-absolute/
+
+How Absolute Batman fixes Batman Beyond.
+---------
+
+# 10 Romance Shows Better Than The Summer I Turned Pretty
+
+Streaming TV, Masked Recs
+
+Sat, 18 Apr 2026 16:00:18 GMT
+
+https://screenrant.com/romance-shows-better-than-the-summer-i-turned-pretty/
+
+Explore 10 teen romance TV shows that surpass The Summer I Turned Pretty in emotional depth, character development, and storytelling complexity.
+---------
+
+# Fallout Fans Won't Want To Miss This Free Open-World RPG
+
+Gaming, Fallout, Minecraft
+
+Sat, 18 Apr 2026 16:00:18 GMT
+
+https://screenrant.com/fallout-free-open-world-rpg-stalcraft/
+
+Fallout and Minecraft aren't games that seem like they would gel well, but one game begs to differ entirely.
+---------
+
+# 10 Sci-Fi Movies That Are Even Better The Second Time Around
+
+Movies, The Thing, Dark City, Ex Machina, Tenet, Blade Runner, Sci-Fi, Donnie Darko, Children of Men, Annihilation, Arrival, Moon
+
+Sat, 18 Apr 2026 15:55:19 GMT
+
+https://screenrant.com/sci-fi-movies-better-the-second-time-around/
+
+These sci-fi movies reward repeat viewings, revealing hidden clues, deeper themes, and twists that completely change how the story is understood.
+---------
+
+# One Of Netflix's Scariest TV Shows Isn't Even A Horror
+
+Streaming TV, Masked Recs
+
+Sat, 18 Apr 2026 15:45:19 GMT
+
+https://screenrant.com/netflix-scariest-tv-shows-not-horror/
+
+Although Netflix has a variety of horror shows to choose from, one of its scariest isn't a horror one, instead being one of the best sci-fi shows.
+---------
+
+# Lost's Original Ending Would Have Fixed 1 of the Show's Biggest Mysteries (But Probably Not the 1 You Think)
+
+TV, Lost, ABC, Sci-Fi
+
+Sat, 18 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/lost-original-ending-would-have-fixed-1-of-the-shows-biggest-mysteries/
+
+The original idea hatched by Damon Lindelof and Carlton Cuse for the climactic series finale of Lost would have justified the Smoke Monster's look.
+---------
+
+# 25 Most Popular MHA Characters
+
+Anime, My Hero Academia
+
+Sat, 18 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/mha-most-popular-characters/
+
+My Hero Academia has a varied cast of outstanding characters, but how do they rank when it comes to their popularity among fans?
+---------
+
+# Witch Hat Atelier Emerges as Avatar Aang’s Unlikely Successor
+
+Anime, Witch Hat Atelier, Avatar: The Last Airbender
+
+Sat, 18 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-avatar-the-last-airbender-inspiration/
+
+Avatar: The Last Airbender's franchise expansion inspires creative references in 2026's next big fantasy anime when the world needs it most.
+---------
+
+# Russo Bros. Marvel Finally Explain Controversial Robert Downey Jr., Avengers: Doomsday Move
+
+Movies, Marvel, MCU, Marvel Comics, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Secret Wars
+
+Sat, 18 Apr 2026 16:10:00 GMT
+
+https://www.cbr.com/avengers-doomsday-controversial-robert-downey-jr-recasting/
+
+Finally — Marvel confessed why it made one of the most controversial moves in Avengers' history.
+---------
+
+# This Is Us Is Officially Returning to Hulu as Podcast That Was Us
+
+Movies, This Is Us
+
+Sat, 18 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/this-is-us-podcast-hulu-that-was-us-release-date/
+
+The series featured a star-studded ensemble including Justin Hartley and Sterling K. Brown.
+---------
+
+# CBS' Fire Country Franchise Is Firing Up the Paramount+ Charts 3 Days After Spinoff News
+
+TV, Fire Country, Sheriff Country
+
+Sat, 18 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/cbs-fire-country-sheriff-country-paramount-plus-success-april-2026/
+
+One of the hottest franchises of the decade is lighting up the streaming competition on Paramount+ after the announcement of another new spinoff.
+---------
+
+# Absolute Batman Officially Reveals Who The Robins Are Connected To
+
+Comics, Absolute Batman
+
+Sat, 18 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/absolute-batman-deathstroke-robin-connection/
+
+Absolute Batman delivers yet another mind-blowing twist.
+---------
+
+# Gundam's Newest Manga Mecha Returns With New High Grade Gunpla Model Kit Just 1 Year Later
+
+Anime, Mobile Suit Gundam, merchandise, toys, bandai
+
+Sat, 18 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/gundam-eight-zirius-bandai-gunpla-release/
+
+A unique armored Gunpla model kit based on a design from the newest Gundam manga is being reissued less than year after its initial release.
+---------
+
+# Robert Pattinson's 'The Batman: Part II' Officially Casts the Most Devious 'Game of Thrones' Villain
+
+Movie News, The Batman Part II, Charles Dance, Robert Pattinson, The Batman
+
+Sat, 18 Apr 2026 16:27:49 GMT
+
+https://collider.com/robert-pattinson-the-batman-part-2-cast-game-of-thrones-star-charles-dance/
+
+Game of Thrones icon Charles Dance has officially joined the cast of The Batman: Part II, with reports suggesting he will play Two-Face's father.
+---------
+
+# Apple TV’s 10/10 Secret Sci-Fi Masterpiece Officially Returns This Summer
+
+TV News, Dark Matter, Apple TV, Sci-Fi, Joel Edgerton
+
+Sat, 18 Apr 2026 16:20:17 GMT
+
+https://collider.com/apple-tv-sci-fi-series-black-matter-sesaon-2-release-date-august-28-2026/
+
+Season 2 of Apple TV's Dark Matter has officially wrapped filming. Find out when the fan-favorite sci-fi series returns.
+---------
+
+# Only 8 Action Movies of the 2020s Are Genuinely Perfect
+
+Movie, Kill, Action, Top Gun: Maverick, Rebel Ridge
+
+Sat, 18 Apr 2026 16:18:12 GMT
+
+https://collider.com/action-movies-2020s-perfect/
+
+The 2020s have been a great decade for action movies so far, but only 8 action films achieve the title of genuine perfection in action filmmaking.
+---------
+
+# Peacock's 10/10 Spy Thriller Is Quietly Climbing Global Streaming Charts
+
+TV News, The Day of the Jackal, Peacock, Reacher, Alan Ritchson
+
+Sat, 18 Apr 2026 16:00:13 GMT
+
+https://collider.com/peacock-spy-thriller-the-day-of-the-jackal-streaming-success-april-2026/
+
+The 10/10 gripping spy thriller that inspired Alan Ritchson's Reacher is blowing up on streaming charts before its Season 2 premiere.
+---------
+
+# Tom Cruise's "Unrecognizable" New Movie Role Can Finally Redeem His 'Rain Man' Snub
+
+Features, Tom Cruise
+
+Sat, 18 Apr 2026 16:01:16 GMT
+
+https://movieweb.com/tom-cruise-digger-oscar/
+
+Fans have been offered a brief look at the upcoming Tom Cruise movie 'Digger', and the actor is unrecognizable in it. Could he finally win an Oscar?
+---------
+
+# Iconic Western Classic 'Tombstone' Shoots Onto New Free Streaming Home
+
+Movie News, Tombstone, Coming/Leaving Streaming, Western
+
+Sat, 18 Apr 2026 16:01:16 GMT
+
+https://movieweb.com/tombstone-best-western-movie-streaming-tubi-may-2026/
+
+One of the best western movies ever made that assembled an all-star cast will be free to stream next month.
+---------
+
+# Jon Favreau Explains Why 'The Mandalorian & Grogu' Became a Movie
+
+Movie News, The Mandalorian and Grogu
+
+Sat, 18 Apr 2026 16:01:16 GMT
+
+https://movieweb.com/jon-favreau-explains-andalorian-grogu-movie/
+
+The 'Iron Man' director felt that the 'Star Wars' character needed to make the transition to the big screen.
+---------
+
 # Margo's Got Money Troubles Is #1 On Apple TV In The US & It Will Only Get Better
 
 Streaming TV, Margo's Got Money Troubles
