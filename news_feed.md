@@ -1,3 +1,311 @@
+# Netflix's 3-Part Reacher Replacement Series Broke The Rules Of Book-To-Show Adaptations
+
+Streaming TV, The Night Agent
+
+Sat, 18 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/the-night-agent-netflix-show-broke-rules-tv-adaptations/
+
+Netflix recently found a Reacher replacement but, unlike its Prime Video rival, it breaks a key, often mainstay rule of book-to-show adaptations.
+---------
+
+# Star Wars Battlefront 3 Release Leaves Gamers Torn
+
+Gaming, Star Wars Battlefront (2015), Triple-A Games
+
+Sat, 18 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/star-wars-battlefront-3-release-speculation/
+
+Following the collapse of Star Wars Battlefront 2's contentious launch, fans are wondering what could be next for the once-storied franchise.
+---------
+
+# 10 Perfect Garfield Comics That Just Turned 40
+
+Comics, Garfield
+
+Sat, 18 Apr 2026 01:01:19 GMT
+
+https://screenrant.com/10-perfect-garfield-comics-that-just-turned-40/
+
+The best Garfield strips of early 1986!
+---------
+
+# How The Acolyte Made Star Wars' Split Fandom Even More Divided
+
+Classic TV, The Acolyte, Star Wars
+
+Sat, 18 Apr 2026 00:46:19 GMT
+
+https://screenrant.com/star-wars-the-acolyte-divide-split-fandom/
+
+Explore how Disney+'s original Star Wars series, The Acolyte, further divided fans, with differing opinions on pacing, canon, and representation.
+---------
+
+# Netflix's 3-Part Thriller Series That Just Released Its Final Season Becomes Global Streaming Hit
+
+TV, Fake Profile, Netflix
+
+Sat, 18 Apr 2026 00:38:23 GMT
+
+https://screenrant.com/netflix-thriller-fake-profile-show-streaming-success-final-season/
+
+Netflix's three-part romance thriller series is climbing the platform's global streaming charts as its third and final season gets released.
+---------
+
+# Beef Season 2 Cleverly Skips Over The Violence That Made Season 1 Great
+
+Streaming TV, Beef
+
+Sat, 18 Apr 2026 00:15:18 GMT
+
+https://screenrant.com/beed-season-2-conflict-passive-aggressive-change-clever/
+
+Beef season 2 defies expectations by skipping over a defining element of season 1, but this clever move is actually an asset to the Netflix anthology.
+---------
+
+# 5 Different Video Game Stories The Super Mario Galaxy Movie Could Lead To
+
+Movies, The Super Mario Galaxy Movie, Super Mario
+
+Sat, 18 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-game-stories-setup-future/
+
+The Super Mario Galaxy Movie lays the groundwork for several different video game stories to make their way to the big screen in the future.
+---------
+
+# 5 Best American Anime of All-Time
+
+Anime, Avatar: The Last Airbender, Animation, Castlevania, Voltron: Legendary Defender
+
+Sat, 18 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/best-american-anime-of-all-time/
+
+Some of America's best anime series proudly combine the best influences from both East and West.
+---------
+
+# 24 Years Ago, A 10/10 Masterpiece Was Quietly Released On the PS2
+
+Games, PlayStation 2, retro games
+
+Sat, 18 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/ps2-masterpiece-quietly-released-the-thing-game/
+
+There are some undisputable masterpieces on the PS2, and some of its best games are criminally overlooked.
+---------
+
+# 10 Most Creative Jujutsu Kaisen Domain Expansions
+
+Anime, Jujutsu Kaisen, shonen anime, Shonen
+
+Sat, 18 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-most-creative-domain-expansion/
+
+Domain Expansion is the ultimate display of a jujutsu sorcerer's power, and the creativity of their domains often reflects their personality.
+---------
+
+# 27 Years Later, Grant Morrison's JLA: Earth 2 Is Still The Gold Standard For Justice League Comics
+
+Comics, Justice League, DC Comics, Batman
+
+Sat, 18 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/grant-morrison-jla-earth-2-still-best-justice-league-comic-of-all-time/
+
+Grant Morrison and Frank Quitely's spectacular multiversal adventure is the Justice League's finest standalone comic book story.
+---------
+
+# 10 Mecha Anime For People Who Think They Hate Mecha
+
+Anime, Mobile Suit Gundam, Neon Genesis Evangelion, Code Geass: Lelouch of the Rebellion, mecha
+
+Sat, 18 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/mecha-anime-with-best-sci-fi-characters/
+
+These mecha anime with near perfect characters are perfect for sci-fi fans who think they aren't interested in giant robots.
+---------
+
+# Happy Days' Saddest Fonzie Moment: A Deep Fan Theory Explained
+
+TV, Happy Days, Sitcoms
+
+Sat, 18 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/happy-days-fonzie-dark-christmas-theory/
+
+When people tuned in to Happy Days for a holiday episode, they witnessed a dark moment in sitcom history, but a fan theory might finally explain it.
+---------
+
+# HBO's His Dark Materials Is the Closest Any Show Came to Capturing Harry Potter’s Magic
+
+TV, His Dark Materials, Harry Potter, Fantasy
+
+Sat, 18 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/hbo-his-dark-materials-best-harry-potter-replacement/
+
+Harry Potter remains an important franchise in the fantasy genre, and one HBO show arguably comes close to capturing J.K. Rowling adaptation's magic.
+---------
+
+# 7 Forgotten PS3 Games That Have Aged Like Fine Wine
+
+Games, PlayStation (Original), Video Games
+
+Sat, 18 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/ps3-games-that-get-better-with-time/
+
+PS3 gems like Ridge Racer 7 and 3D Dot Game Heroes just get better with time.
+---------
+
+# Netflix, Disney & More Back New Anime Streaming Crackdown After HiAnime Shutdown
+
+Anime, piracy, Streaming
+
+Sat, 18 Apr 2026 00:20:13 GMT
+
+https://www.cbr.com/anime-streaming-shutdown-mpa-coda-action/
+
+Major streaming platforms have renewed their efforts against anime and manga streaming with their latest agreement.
+---------
+
+# CBR's Official Spring 2026 Anime Series Power Ranking (Week 3)
+
+Anime, Anime Power Rankings, Witch Hat Atelier, Daemons of the Shadow Realm
+
+Sat, 18 Apr 2026 00:15:12 GMT
+
+https://www.cbr.com/spring-2026-anime-most-popular-best-series-ranking-2/
+
+From Witch Hat Atelier to One Piece, CBR’s official spring anime series power ranking keeps fans up to date on all the biggest hits.
+---------
+
+# Netflix’s 7-Part Remake of a Classic Denzel Washington Thriller Officially Arrives in 2 Weeks
+
+TV News, Netflix, Man on Fire, Yahya Abdul-Mateen II, Reacher
+
+Sat, 18 Apr 2026 01:45:12 GMT
+
+https://collider.com/netflix-reacher-replacement-man-on-fire-release-date-april-30-2026/
+
+Netflix's new action-thriller series Man on Fire, a perfect answer to Prime Video's Reacher, is only 15 days away from release.
+---------
+
+# Netflix's Hit Anime Comes to Life in Near-Perfect Trailer for Live-Action Movie
+
+Movie News, Sakamoto Days, Action, Anime, Netflix
+
+Sat, 18 Apr 2026 01:30:13 GMT
+
+https://collider.com/netflix-live-action-anime-adaptation-sakamoto-days-trailer/
+
+Japanese idol Ren Meguro transforms into a legendary hitman in a new trailer for the live-action adaptation of Sakamoto Days.
+---------
+
+# 26 Years Later, the Best Historical Epic Is Still a Masterpiece From Start to Finish
+
+Movie News, Gladiator, Ridley Scott, Russell Crowe, Gladiator II
+
+Sat, 18 Apr 2026 01:15:12 GMT
+
+https://collider.com/ridley-scott-historical-epic-gladiator-streaming-success-apple-tv-april-2026/
+
+More than 25 years removed from its first theatrical run, Ridley Scott's $100 million historical epic continues to age like a fine wine.
+---------
+
+# AMC's 4-Part Thriller With No Bad Episodes Is Finally Weekend Binge Material
+
+TV Features, Dark Winds, AMC, Zahn McClarnon, Thriller
+
+Sat, 18 Apr 2026 01:14:12 GMT
+
+https://collider.com/dark-winds-amc-thriller-no-bad-episodes-weekend-binge/
+
+Now that AMC's Dark Winds has wrapped up Season 4, it's the perfect time to binge this gripping thriller.
+---------
+
+# Forget ‘John Wick,’ This 64-Year-Old Action Franchise Is Still a Streaming Juggernaut
+
+Movie News, James Bond, John Wick, Daniel Craig, Keanu Reeves
+
+Sat, 18 Apr 2026 01:00:13 GMT
+
+https://collider.com/prime-video-action-franchise-better-than-john-wick-james-bond-streaming-success-april-2026/
+
+While some would proclaim John Wick as the greatest action franchise ever, its only real competitor is outperforming the Baba Yaga on streaming.
+---------
+
+# HBO's 3-Part Crime Thriller Is One Of Its Best Shows To Binge Right Now
+
+TV News, HBO Max, Euphoria, The Pitt, Drama
+
+Sat, 18 Apr 2026 00:45:12 GMT
+
+https://collider.com/euphoria-season-3-overtakes-the-pitt-season-2-streaming-success-hbo-max-april-2026/
+
+The critically acclaimed The Pitt has been defeated by the divisive Euphoria, proving controversy and hype can still dominate streaming charts.
+---------
+
+# 10 Greatest American War Movies of All Time, Ranked
+
+Movie, War, Patton, Full Metal Jacket, Apocalypse Now
+
+Sat, 18 Apr 2026 00:45:12 GMT
+
+https://collider.com/best-american-war-movies-ranked/
+
+Patton, Apocalypse Now, and Full Metal Jacket are all among the very best American war movies in cinematic history.
+---------
+
+# HBO's Most Game-Changing Series Just Dropped Its Best Episode Ever
+
+TV News, The Pitt, Noah Wyle, HBO Max, IMDb
+
+Sat, 18 Apr 2026 00:30:12 GMT
+
+https://collider.com/hbo-max-the-pitt-season-2-finale-record-imdb-rating/
+
+HBO Max's The Pitt Season 2 has officially concluded, and the show's latest finale has already broken a massive record.
+---------
+
+# The Most Terrifying Movie of 2026 Is Already Going Viral on Streaming
+
+Movie News, The AI Doc: Or How I Became an Apocaloptimist, Daniel Kwan, Documentary, Sci-Fi
+
+Sat, 18 Apr 2026 00:15:12 GMT
+
+https://collider.com/most-terrifying-movie-2026-the-ai-doc-streaming-success-itunes-april-2026/
+
+The most terrifying movie of 2026 isn't Lee Cronin's The Mummy; it's a documentary with an 89% Rotten Tomatoes score. Find out more.
+---------
+
+# 7 Most Perfect HBO Shows of the Last 15 Years, Ranked
+
+TV, HBO, The White Lotus, Veep, Succession
+
+Sat, 18 Apr 2026 00:03:12 GMT
+
+https://collider.com/most-perfect-hbo-shows-last-15-years-ranked/
+
+I May Destroy You, The White Lotus, and Boardwalk Empire are among the best HBO shows of the last 15 years, but which series is the greatest?
+---------
+
+# 'Project Hail Mary' Extends IMAX Run and Delays Streaming Debut
+
+Movie News, Project Hail Mary, IMAX
+
+Sat, 18 Apr 2026 00:32:37 GMT
+
+https://movieweb.com/project-hail-mary-streaming-delay-imax/
+
+The sci-fi spectacle extends its large-format run, which pushes back is Prime Video debut.
+---------
+
 # Netflix’s New 10 Episode Legal Drama Is the Perfect Weekend Binge
 
 Anime, Netflix
