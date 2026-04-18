@@ -267,14 +267,25 @@ async def handle_url(update: Update, context: ContextTypes.DEFAULT_TYPE):
 
     await status_msg.edit_text("🤖 Обрабатываю через Groq...")
 
-    try:
-        result = process_with_groq(article_text)
-    except Exception as e:
-        logging.error(f"Groq error: {e}")
-        await status_msg.edit_text("❌ Ошибка Groq. Попробуй чуть позже.")
-        return
+    # Retry: 6 попыток с паузой 10 секунд = 1 минута
+    last_error = None
+    for attempt in range(1, 7):
+        try:
+            result = process_with_groq(article_text)
+            await status_msg.edit_text(result)
+            return
+        except Exception as e:
+            last_error = e
+            logging.warning(f"Groq попытка {attempt}/6 не удалась: {e}")
+            if attempt < 6:
+                await status_msg.edit_text(f"⏳ Попытка {attempt}/6 не удалась, повторяю через 10 сек...")
+                await asyncio.sleep(10)
 
-    await status_msg.edit_text(result)
+    await status_msg.edit_text(
+        f"❌ Groq недоступен — все 6 попыток за минуту не удались.\n"
+        f"Попробуй отправить ссылку позже.\n"
+        f"Ошибка: {str(last_error)[:200]}"
+    )
 
 
 async def handle_digest_command(update: Update, context: ContextTypes.DEFAULT_TYPE):
