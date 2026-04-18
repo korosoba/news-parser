@@ -32,17 +32,13 @@ jobs:
         if: steps.check.outputs.has_content == 'true'
         run: cp news_feed.md "news-${{ steps.date.outputs.today }}.md"
 
-      - name: Send to Telegram (only if file has content)
+      - name: Send file to bot for processing
         if: steps.check.outputs.has_content == 'true'
-        uses: appleboy/telegram-action@master
-        with:
-          to: ${{ secrets.TELEGRAM_CHAT_ID }}
-          token: ${{ secrets.TELEGRAM_BOT_TOKEN }}
-          document: ./news-${{ steps.date.outputs.today }}.md
-          caption: |
-            Ежедневный дайджест новостей кино и сериалов
-            За период: ${{ steps.date.outputs.today }}
-            (файл очищен после отправки)
+        run: |
+          curl -s -X POST "https://api.telegram.org/bot${{ secrets.TELEGRAM_BOT_TOKEN }}/sendDocument" \
+            -F "chat_id=${{ secrets.TELEGRAM_CHAT_ID }}" \
+            -F "document=@news-${{ steps.date.outputs.today }}.md" \
+            -F "caption=news-${{ steps.date.outputs.today }}.md"
 
       - name: Clean up temporary dated file
         if: always()
