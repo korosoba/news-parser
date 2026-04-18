@@ -1,3 +1,168 @@
+# Netflix "Is 100% Behind" Script For Long-Awaited Movie Adaptation Based On Popular Video Game Franchise
+
+Movies, Gears of War
+
+Sat, 18 Apr 2026 22:20:03 GMT
+
+https://screenrant.com/gears-of-war-movie-netflix-support-script-david-leitch/
+
+Fans have been waiting for Netflix's upcoming video game adaptation for several years, and the streaming platform is just as excited for the project.
+---------
+
+# HBO Max's 10/10 Superhero Masterpiece Broke All The Rules Of The DC Universe
+
+Classic TV, Superman & Lois
+
+Sat, 18 Apr 2026 22:15:18 GMT
+
+https://screenrant.com/superman-and-lois-cw-hbo-superhero-show-broke-dc-universe/
+
+HBO Max has been known to break the mold when it comes to TV, and one superhero story has proven to be a hit despite going against the grain.
+---------
+
+# Now Is The Best Time To Rewatch AMC's 5-Part Crime Masterpiece
+
+Classic TV, Breaking Bad
+
+Sat, 18 Apr 2026 22:02:18 GMT
+
+https://screenrant.com/breaking-bad-rewatch-perfect-time-2026/
+
+After being known for playing Hal in Malcolm in the Middle,  Breaking Bad made Bryan Cranston a household name. Now is the best time to rewatch it.
+---------
+
+# Lost in Space Reboot Thrives with Controversial Dr. Smith Gender-Swap
+
+Classic TV, Lost In Space, Lost in Space, Sci-Fi
+
+Sat, 18 Apr 2026 22:01:09 GMT
+
+https://screenrant.com/lost-in-space-reboot-dr-smith-change-parker-posey/
+
+Netflix's 2018 reboot of a popular 60s space opera became one of the show's best sci-fi shows thanks to one controversial character change.
+---------
+
+# Star Wars Outlaws Free Download Praised By Gamers
+
+Gaming, Star Wars Outlaws
+
+Sat, 18 Apr 2026 22:01:09 GMT
+
+https://screenrant.com/star-wars-outlaws-free-download-praised/
+
+Discover if Star Wars Outlaws lives up to its potential with a free demo. Gamers debate its merits and overlooked aspects.
+---------
+
+# 10 Best Romance Anime That Will Convert Even The Most Cold-Hearted Genre Skeptic
+
+Anime, Horimiya, Blue Box, A Sign of Affection
+
+Sat, 18 Apr 2026 22:01:09 GMT
+
+https://screenrant.com/best-romance-anime-for-genre-skeptics/
+
+Romance anime have gotten a bad reputation for having some sleazy elements, but these series prove that the genre can be so much more than its lows.
+---------
+
+# 7 Most Underrated Paldea Pokémon in Scarlet and Violet
+
+Games, Pokemon, Pokemon Scarlet and Violet
+
+Sat, 18 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/most-underrated-pokemon-scarlet-violet/
+
+Generation IX Pokémon like Arboliva and Dachsbun deserve as much attention as Tinkaton and Ceruledge.
+---------
+
+# Street Fighter's New Movie Continues the Franchise's Weirdest Zangief Trend
+
+Movies, Street Fighter
+
+Sat, 18 Apr 2026 22:00:39 GMT
+
+https://www.cbr.com/street-fighter-new-movie-continues-weirdest-zangief-trend/
+
+The upcoming Street Fighter film's depiction of a certain World Warrior carries on a bizarre trend from the franchise's earlier adaptations.
+---------
+
+# The Apothecary Diaries Star Says New Anime Movie Is 'Exactly What Fans Want'
+
+Anime, The Apothecary Diaries, voice actors
+
+Sat, 18 Apr 2026 22:00:39 GMT
+
+https://www.cbr.com/apothecary-diaries-anime-movie-maomao-aoi-yuki-what-fans-want/
+
+According to The Apothecary Diaries lead Aoi Yuki, the series' upcoming anime film is gearing up to be the ultimate crowd pleaser for die-hard fans.
+---------
+
+# The Best Thriller Series on Apple TV Is a 10/10 Must-Watch *
+
+TV News, Apple TV, The Last Thing He Told Me, Thriller, Streaming
+
+Sat, 18 Apr 2026 22:15:12 GMT
+
+https://collider.com/jennifer-garner-thriller-series-apple-tv-the-last-thing-he-told-me-streaming-success-april-2026/
+
+Apple TV's most exciting new thriller series starring Jennifer Garner has taken over the global streaming charts. Here's everything you should know.
+---------
+
+# 8 Near-Perfect DC Shows That No One Remembers Today
+
+TV, DC, Superhero, Krypton, Swamp Thing
+
+Sat, 18 Apr 2026 22:08:12 GMT
+
+https://collider.com/near-perfect-dc-shows-no-one-remembers/
+
+From the severely underrated Krypton to the hidden gem Green Lantern: The Animated Series, these DC superhero shows have been forgotten by audiences.
+---------
+
+# 10 Greatest So-Bad-They're-Good Movie Classics of All Time, Ranked
+
+Movie, The Room, Troll 2, Battlefield Earth, Plan 9 from Outer Space
+
+Sat, 18 Apr 2026 22:05:12 GMT
+
+https://collider.com/best-so-bad-its-good-movie-classics-all-time-ranked/
+
+From Samurai Cop to The Room, these movies are so terrible that they circle back to being great watches, cementing their place in cinematic infamy.
+---------
+
+# Gore Verbinski's Instant Sci-Fi Cult Classic Is Taking Over the World
+
+Movie News, Good Luck, Have Fun, Don't Die, Gore Verbinski, Sam Rockwell, Sci-Fi
+
+Sat, 18 Apr 2026 22:00:39 GMT
+
+https://collider.com/good-luck-have-fun-dont-die-gore-verbinski-underrated-sci-fi-gem-streaming-success-itunes-april-2026/
+
+Gore Verbinski's underrated new sci-fi gem — Good Luck, Have Fun, Don't Die — is staging a streaming comeback after bombing at the box office.
+---------
+
+# Alex Kurtzman's 'Star Trek' Era Is Being Unfairly Criticized
+
+Features, Star Trek
+
+Sat, 18 Apr 2026 22:01:09 GMT
+
+https://movieweb.com/star-trek-alex-kurtzman-era-enjoyed/
+
+Alex Kurtzman has overseen the entirety of 'Star Trek's modern era to date, and I'm starting to think it's just me who has enjoyed the ride.
+---------
+
+# 'Scrubs' Finale's 'The Last Kiss' Reunion Redeems Rachel Bilson & Zach Braff's 45% RT Movie
+
+Features, Scrubs, The Last Kiss
+
+Sat, 18 Apr 2026 22:01:09 GMT
+
+https://movieweb.com/scrubs-revival-finale-the-last-kiss-reunion/
+
+Rachel Bilson's new 'Scrubs' character feels like an intentional attempt to make up for her 2006 movie with Zach Braff. Read on for more.
+---------
+
 # World Of Warcraft Fan Servers Officially Shutting Down After Lawsuit
 
 Gaming, World of Warcraft, Live Service Games, PC
