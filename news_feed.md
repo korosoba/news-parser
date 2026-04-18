@@ -1,3 +1,91 @@
+# Bloodborne 60fps PS5 Gameplay Is Splitting Gamers
+
+Gaming, Bloodborne, PlayStation 5
+
+Sat, 18 Apr 2026 11:01:18 GMT
+
+https://screenrant.com/bloodborne-ps5-60fps-gamer-reactions/
+
+A dedicated Bloodborne fan has the game running at 60FPS without console modding, and it's a clever way of setting the game up in 2026.
+---------
+
+# Pokémon Solar Eclipse Is An Ambitious New RPG
+
+Gaming, Pokemon
+
+Sat, 18 Apr 2026 10:31:19 GMT
+
+https://screenrant.com/pokemon-solar-eclipse-2026-fan-game/
+
+Pokémon Solar Eclipse is a hugely ambitious fan game that incorporates all of the 'mons from the first nine generations of the franchise.
+---------
+
+# 10 Reasons Why Thor Is More Powerful Than Superman
+
+Comics, Thor, Superman, Marvel, DC Comics
+
+Sat, 18 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/why-thor-is-stronger-than-superman/
+
+This age-old debate does have an answer.
+---------
+
+# Netflix's Upcoming 8-Part Western Already Looks Like the Best Reboot of the 21st Century
+
+TV, Little House on the Prairie, Netflix
+
+Sat, 18 Apr 2026 10:30:12 GMT
+
+https://www.cbr.com/netflix-little-house-on-the-prairie-best-21st-century-reboot/
+
+Little House on The Prairie isn't quite as simple as fans remember, which is why the Netflix reboot might be the most important of the 21st Century.
+---------
+
+# Forget ‘Reacher,’ Prime Video’s Best Action Thriller Is Your Next Must-Watch
+
+TV News, The Terminal List, Chris Pratt, Reacher, Jason Bourne
+
+Sat, 18 Apr 2026 11:00:13 GMT
+
+https://collider.com/chris-pratt-action-thriller-reacher-fans-the-terminal-list-prime-video-streaming-how-to-watch-april-2026/
+
+It's Reacher meets Jason Bourne in Chris Pratt's bingeworthy Prime Video crime series, The Terminal List, which is returning for Season 2.
+---------
+
+# Everyone Should Watch These 7 Unforgettable Fantasy TV Shows At Least Once
+
+TV, Fantasy, Game Of Thrones, Avatar: The Last Airbender, The Good Place
+
+Sat, 18 Apr 2026 10:52:13 GMT
+
+https://collider.com/fantasy-shows-everyone-should-watch-once/
+
+Fantasy TV shows can be hit or miss, but we think everyone should watch Game of Thrones, The Good Place, and Avatar: The Last Airbender once.
+---------
+
+# CBS' 2-Part Detective Series Soars Past a Colossal Streaming Milestone
+
+TV News, Sheriff Country, CBS, Fire Country, Paramount Plus
+
+Sat, 18 Apr 2026 10:30:12 GMT
+
+https://collider.com/sheriff-country-100-days-streaming-success-milestone-paramount-plus-april-2026/
+
+The best spin-off on CBS, Morena Baccarin's Sheriff Country, just hit a huge streaming milestone. Here's what you should know.
+---------
+
+# 8 Greatest Epic Movie Masterpieces of the 21st Century, Ranked
+
+Movie, 21st Century, There Will Be Blood, Mad Max: Fury Road, Oppenheimer
+
+Sat, 18 Apr 2026 10:05:19 GMT
+
+https://collider.com/greatest-21st-century-epic-movie-masterpieces-ranked/
+
+There Will Be Blood, Gangs of New York, Dune: Part Two, Oppenheimer, and more make up our list of the greatest epic movies of the 21st century.
+---------
+
 # This PlayStation Plus Freebie Is A 10/10 Masterpiece You Can Beat In One Weekend
 
 Gaming, PlayStation Plus
