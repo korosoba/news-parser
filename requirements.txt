@@ -2,3 +2,5 @@ requests
 python-dotenv
 flask>=2.0.0
 python-telegram-bot>=20.0
+groq==0.13.1
+trafilatura==1.12.0
