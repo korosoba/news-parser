@@ -1,3 +1,14 @@
+# Rebecca Ferguson’s $60M Sci-Fi Thriller Is Officially a Sleeper Hit
+
+Movie News, Mercy, Rebecca Ferguson, Chris Pratt, Prime Video
+
+Sat, 18 Apr 2026 08:00:12 GMT
+
+https://collider.com/rebecca-ferguson-chris-pratt-sci-fi-thriller-mercy-streaming-success-prime-video-april-2026/
+
+Rebecca Ferguson's $60 million sci-fi bomb with Chris Pratt continues to redeem itself on Prime Video streaming charts.
+---------
+
 # Resident Evil Requiem Players Can Grab Free PlayStation Store Credit Now
 
 Gaming, Resident Evil 9
