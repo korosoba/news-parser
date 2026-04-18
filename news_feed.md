@@ -1,3 +1,190 @@
+# World Of Warcraft Fan Servers Officially Shutting Down After Lawsuit
+
+Gaming, World of Warcraft, Live Service Games, PC
+
+Sat, 18 Apr 2026 21:45:23 GMT
+
+https://screenrant.com/world-warcraft-turtle-wow-shutdown-lawsuit/
+
+Following a lawsuit filed in 2026, the fan-favorite Turtle WoW servers are shutting down, and the official date of the end has been announced.
+---------
+
+# Super Rant Rewatch: Why Winter Soldier Remains A Peak MCU Movie Ahead Of Avengers: Doomsday
+
+Superheroes, Captain America: The Winter Soldier, Marvel Cinematic Universe, Avengers: Doomsday
+
+Sat, 18 Apr 2026 21:30:18 GMT
+
+https://screenrant.com/super-rant-rewatch-why-winter-soldier-remains-a-peak-mcu-movie-ahead-of-avengers-doomsday/
+
+Captain America: The Winter Soldier is still one of the best MCU movies, and rewatching it gets me even more excited for Avengers: Doomsday
+---------
+
+# The Predator Franchise: Rewatching the Hits and Misses
+
+Movies, Predator
+
+Sat, 18 Apr 2026 21:30:18 GMT
+
+https://screenrant.com/rewatching-predator-movies-harsh-realities/
+
+For the most part, the Predator franchise is a fun-filled series of sci-fi action movies, but there are a few flaws that stand out on a rewatch.
+---------
+
+# Freddy Krueger's 10 Funniest Quotes In A Nightmare On Elm Street
+
+Movies, Horror, A Nightmare on Elm Street, Freddy Krueger
+
+Sat, 18 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/nightmare-on-elm-street-quote-freddy-krueger-funny/
+
+Freddy Krueger’s funniest quotes blend horror and humor, turning his kills into iconic moments with razor-sharp one-liners fans still love today.
+---------
+
+# LL Cool J's NCIS Return Repeats the Franchise's Backdoor Pilot Trend
+
+TV, NCIS, NCIS: Sydney, NCIS: Hawai'i, NCIS: Origins, NCIS: Los Angeles, NCIS: New Orleans
+
+Sat, 18 Apr 2026 21:43:56 GMT
+
+https://www.cbr.com/ncis-season-23-sam-hanna-return-new-york-backdoor-pilot/
+
+The NCIS franchise will repeat its greatest trend as LL Cool J returns as Sam Hanna, with NCIS Season 23 reviving a tried and true spinoff tradition.
+---------
+
+# Peacock's Twisted Metal Series Officially Loses 1 Star Ahead of Season 3
+
+TV, Twisted Metal
+
+Sat, 18 Apr 2026 21:31:28 GMT
+
+https://www.cbr.com/twisted-metal-season-3-loses-mike-mitchell/
+
+An original star from the first two seasons of Twisted Metal will not return in the third season.
+---------
+
+# Avengers: Doomsday's Latest Casting News Confirms Film's 5th Superhero Team
+
+Movies, Avengers: Doomsday, MCU, superheroes
+
+Sat, 18 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/avengers-doomsday-kathryn-newton-young-avengers-tease-mcu/
+
+A new star has been added to Avengers: Doomsday's massive cast--and her arrival suggests that another superhero team could also appear.
+---------
+
+# White Chicks 2 Gets Exciting Update From Wayans Brothers
+
+Movies, White Chicks
+
+Sat, 18 Apr 2026 21:17:49 GMT
+
+https://www.cbr.com/white-chicks-2-update-wayans-brothers/
+
+Marlon and Shawn Wayans share the latest update on the long-awaited White Chicks sequel.
+---------
+
+# 10 Best Animated Movies That Are Basically Anime
+
+Anime
+
+Sat, 18 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/best-animated-movies-basically-anime-films-list/
+
+Anime is so influential that some films made outside Japan still feel exactly like anime.
+---------
+
+# MGM+'s Sci-Fi Horror From Season 4 Rotten Tomatoes Score Unveiled
+
+TV, From
+
+Sat, 18 Apr 2026 21:02:16 GMT
+
+https://www.cbr.com/mgm-plus-from-season-4-rotten-tomatoes-score/
+
+This marks the second season in a row with a perfect score.
+---------
+
+# The Greatest Horror Series on TV Is This 10/10 Dark Fantasy That Has Only Gotten Better
+
+TV Features, Interview with the Vampire, The Vampire Lestat, Horror, AMC
+
+Sat, 18 Apr 2026 21:47:13 GMT
+
+https://collider.com/interview-with-the-vampire-amc-greatest-horror-series-dark-fantasy/
+
+AMC's Interview with the Vampire is one of the best shows on television, thanks to its transformative reimagining of a classic Gothic horror tale.
+---------
+
+# All 6 Continents in The Lord of the Rings, From Middle-Earth to the Dark Land
+
+Movie, The Lord of the Rings: The Rings of Power, The Hobbit, The Lord of the Rings, Fantasy
+
+Sat, 18 Apr 2026 21:30:12 GMT
+
+https://collider.com/lord-of-the-rings-continents-middle-earth/
+
+Middle-earth, the setting of The Lord of the Rings, is a territory within the larger planet of Arda, but what are the other continents in this world?
+---------
+
+# Star Wars Director's Sci-Fi Epic Quietly Becomes a Streaming Hit on HBO Max
+
+Movie News, The Creator, Sci-Fi, HBO Max, Gareth Edwards
+
+Sat, 18 Apr 2026 21:30:12 GMT
+
+https://collider.com/gareth-edwards-sci-fi-the-creator-streaming-success-hbo-max-april-2026-star-wars-director/
+
+The Creator has found new streaming life on HBO Max, where it is currently among the platform’s top global movies.
+---------
+
+# The Release of Paul McCartney's Debut Album Marked the End of The Beatles
+
+Music Features, Paul McCartney, The Beatles, Music, Rock
+
+Sat, 18 Apr 2026 21:27:50 GMT
+
+https://collider.com/paul-mccartney-debut-album-mccartney-1970-ended-the-beatles/
+
+Paul McCartney's debut solo album, released in 1970, marked the end of The Beatles era. The album's release came just weeks after the band's official breakup, sparking controversy and comparisons with their final album, Let It Be.
+---------
+
+# Say Goodbye to Paramount's Divisive 115-Minute Sci-Fi Thriller
+
+Movie News, Annihilation, Natalie Portman, Tessa Thompson, Alex Garland
+
+Sat, 18 Apr 2026 21:15:12 GMT
+
+https://collider.com/natalie-portman-most-divisive-sci-fi-climax-annhilation-leaving-streaming-paramount-plus-may-2026/
+
+The movie with sci-fi's most divisive climax of the decade, Annihilation, is leaving Paramount+ soon. Find out when.
+---------
+
+# Hulu's 4-Part Crime Thriller Is One of Its Best Shows To Binge for Fans of 'For All Mankind'
+
+TV Features, The Killing, For All Mankind, Joel Kinnaman, Mireille Enos
+
+Sat, 18 Apr 2026 21:10:12 GMT
+
+https://collider.com/the-killing-joel-kinnaman-crime-thriller-best-show-to-binge/
+
+The Killing, starring Joel Kinnaman, is a must-watch crime drama for fans of For All Mankind who enjoy intense, atmospheric mysteries.
+---------
+
+# 'Malcolm in the Middle: Life's Still Unfair': Disney’s No. 1 in the World Revival Series Continues a Promising TV Trend
+
+Features, Disney+, Malcolm in the Middle: Life's Still Unfair
+
+Sat, 18 Apr 2026 21:30:17 GMT
+
+https://movieweb.com/malcolm-in-the-middle-revival-trend/
+
+'Malcolm in the Middle' has become a hit on Hulu and Disney+, continuing a rare 2026 trend of successful TV revivals.
+---------
+
 # 10 Underrated 80s Comedy Movies That Could Have Been Huge If Released Today
 
 Movies, UHF, Better off Dead, The 'Burbs, Real Genius, Top Secret!, Johnny Dangerously, Clue, The King of Comedy, Heathers, Big Business, Comedy
