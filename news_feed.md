@@ -1,3 +1,36 @@
+# Say Goodbye to Tom Hardy’s 139-Minute Near-Perfect Sleeper Hit on May 1
+
+Movie News, Tom Hardy, Joel Edgerton, Warrior, Paramount Plus
+
+Sat, 18 Apr 2026 09:00:13 GMT
+
+https://collider.com/tom-hardy-near-perfect-sleeper-hit-warrior-leaving-streaming-paramount-plus-may-2026/
+
+Tom Hardy's near-perfect action film, Warrior, is a sleeper hit on streaming, but fans don't have much longer to watch. Find out more here.
+---------
+
+# 4 Years Later, This 131-Minute Action Blockbuster Quietly Becomes a Late-Night Favorite
+
+Movie News, Top Gun: Maverick, Tom Cruise, Paramount Plus, Glen Powell
+
+Sat, 18 Apr 2026 08:40:13 GMT
+
+https://collider.com/tom-cruise-action-blockbuster-top-gun-maverick-streaming-success-paramount-plus-april-2026/
+
+The $1 billion action blockbuster Steven Spielberg said "saved Hollywood' has become the perfect late-night sleeper hit on streaming.
+---------
+
+# 'Dexter' Meets 'Bosch' in the 8-Part Mystery Thriller Dominating Prime Video
+
+TV News, Scarpetta, Bosch, Dexter, Prime Video
+
+Sat, 18 Apr 2026 08:20:12 GMT
+
+https://collider.com/scarpetta-prime-video-mystery-thriller-streaming-success-april-2026-dexter-bosch/
+
+Nicole Kidman's Scarpetta is now one of Prime Video’s top TV titles worldwide as the new mystery thriller continues to gain traction.
+---------
+
 # Rebecca Ferguson’s $60M Sci-Fi Thriller Is Officially a Sleeper Hit
 
 Movie News, Mercy, Rebecca Ferguson, Chris Pratt, Prime Video
