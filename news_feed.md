@@ -1,3 +1,146 @@
+# You Have Just 4 Weeks To Discover Netflix's Iconic 3-Show Crime Franchise
+
+Streaming TV, Masked Recs
+
+Sat, 18 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/money-heist-berlin-netflix-discover-crime-franchise/
+
+The Spanish crime thriller Money Heist was a global phenomenon sparking a remake and a character spinoff, which is returning in just four weeks time.
+---------
+
+# Nightwing Calls Out Batman's Biggest Weakness, But Do You Agree?
+
+Comics, Nightwing, Batman, DC, DC Comics
+
+Sat, 18 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/batman-weakness-nightwing-empathy/
+
+Nightwing's latest entry in the DC Comics has officially called out Batman's largest canon weakness, but do you think it is a weakness or not?
+---------
+
+# Dark Souls 4 Be Damned, This New Dark Fantasy RPG Will Fill The Void
+
+Gaming, Steam
+
+Sat, 18 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/dark-souls-4-riven-crown-dark-fantasy-rpg/
+
+Discover Riven Crown, the highly anticipated Souls-like game that promises an exhilarating blend of fighting game mechanics and traditional RPG combat
+---------
+
+# 8 Episodes Of The Big Bang Theory To Skip On Rewatch
+
+Classic TV, The Big Bang Theory
+
+Sat, 18 Apr 2026 22:45:18 GMT
+
+https://screenrant.com/big-bang-theory-episodes-skip-rewatch/
+
+Where there are highs, there are inevitably also lows. These eight episodes of The Big Bang Theory are best skipped during your next rewatch.
+---------
+
+# Netflix's Most Underrated School Comedy Is Only One Season, And It's The Perfect Weekend Binge
+
+Anime, Netflix
+
+Sat, 18 Apr 2026 22:36:57 GMT
+
+https://screenrant.com/great-teacher-onizuka-netflix-perfect-school-comedy-binge/
+
+Discover the hilarious and heartfelt Great Teacher Onizuka, a '90s anime comedy perfect for a weekend binge, streaming on Netflix.
+---------
+
+# The Wire: HBO's Masterful Crime Procedural That Stands Unmatched
+
+Classic TV, Masked Recs
+
+Sat, 18 Apr 2026 22:30:18 GMT
+
+https://screenrant.com/the-wire-hbo-crime-procedural-never-better-streaming/
+
+This HBO series revolutionized what a TV procedural could do in terms of plot, visuals and characterization. 18 years later, it hasn't been topped.
+---------
+
+# DC’s Titans Just Introduced a Brand-New Superhero to the Team After 62 Years
+
+DC Comics, Teen Titans
+
+Sat, 18 Apr 2026 22:30:18 GMT
+
+https://screenrant.com/dc-comics-new-hero-titans-member-eva-future-tomorrow/
+
+DC Universe is now shaking things up with a major Titans roster change that introduces a brand-new hero to the Titans for the first time.
+---------
+
+# Austin Butler's Caught Stealing Is The Best Crime Dramedy In Years
+
+Movies, Caught Stealing
+
+Sat, 18 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/caught-stealing-austin-butler-best-crime-dramedy/
+
+Austin Butler's 2025 noir comedy was robbed of its deserved commercial success, but has a second chance on Netflix.
+---------
+
+# The Pitt Sacrifices Character Development for Realism
+
+TV, The Pitt, HBO Max
+
+Sat, 18 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/hbo-the-pitt-character-strategy/
+
+The Pitt's dedication to realism may be sacrificing character development, leaving fans questioning the show's approach to storytelling.
+---------
+
+# ‘John Wick’ Meets ‘Sleeping Beauty’ in Neo-Noir Cult Classic Racing Up the Streaming Charts
+
+Movie News, Ryan Gosling, Drive, Nicolas Winding Refn, Carey Mulligan
+
+Sat, 18 Apr 2026 23:00:12 GMT
+
+https://collider.com/ryan-gosling-noir-cult-classic-drive-streaming-success-vudu-april-2026/
+
+Ryan Gosling and Carey Mulligan's neon-soaked neo-noir movie Drive is racing up the streaming charts thanks to Project Hail Mary's success.
+---------
+
+# 10 Best Actors Who Never Got a Single Oscar Nomination
+
+Movie, Donald Sutherland, Alan Rickman, Vincent Price, Marilyn Monroe
+
+Sat, 18 Apr 2026 22:51:12 GMT
+
+https://collider.com/best-actors-who-never-got-oscar-nominations/
+
+So many great actors went their whole careers without getting a single Oscar nomination for any role, including Donald Sutherland and Alan Rickman.
+---------
+
+# The Best Sci-Fi Horror Movie of 2026 Is an Instant Sensation on HBO Max
+
+Movie News, 28 Years Later: The Bone Temple, 28 Years Later, Ralph Fiennes, Jack O'Connell
+
+Sat, 18 Apr 2026 22:45:12 GMT
+
+https://collider.com/ralph-fiennes-sci-fi-horror-28-years-later-the-bone-temple-global-streaming-success-hbo-max-april-2026/
+
+28 Years Later: The Bone Temple remains one of HBO Max’s biggest movies worldwide after its bleak, visceral horror rollout.
+---------
+
+# Say Goodbye to HBO Max's Franchise-Killing Superhero Sequel
+
+Movie News, The Amazing Spider-Man 2, Andrew Garfield, Emma Stone, Superhero
+
+Sat, 18 Apr 2026 22:30:12 GMT
+
+https://collider.com/andrew-garfield-amazing-spider-man-2-worst-superhero-sequel-leaving-streaming-hbo-max-may-2026/
+
+One of the worst superhero sequels ever made, The Amazing Spider-Man 2, is leaving its streaming home ahead of Tom Holland's Brand New Day.
+---------
+
 # Netflix "Is 100% Behind" Script For Long-Awaited Movie Adaptation Based On Popular Video Game Franchise
 
 Movies, Gears of War
