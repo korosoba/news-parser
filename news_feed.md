@@ -1,3 +1,212 @@
+# Sylvester Stallone’s Rambo Prequel Recasts OG Character With Stranger Things Star
+
+Movies, John Rambo, Rambo
+
+Sat, 18 Apr 2026 14:33:12 GMT
+
+https://screenrant.com/john-rambo-major-trautman-john-rambo-cast/
+
+A new casting announcement has arrived for the John Rambo prequel movie, with a Stranger Things star taking on the role of an original character.
+---------
+
+# Only Murders in the Building: The Ultimate Murder Mystery Show With A-List Cast
+
+Streaming TV
+
+Sat, 18 Apr 2026 14:31:19 GMT
+
+https://screenrant.com/hulus-5-part-murder-mystery-has-the-best-cast-in-genre-history/
+
+Various crime TV series can boast all-star casts, but this murder mystery show is in a league of its own, with A-listers lining up to appear in it.
+---------
+
+# The Worst Anime Of The 2020s Just Became Utter Garbage
+
+Anime, Rent-A-Girlfriend
+
+Sat, 18 Apr 2026 14:31:19 GMT
+
+https://screenrant.com/rent-a-girlfriend-pool-scene-cringe-animated/
+
+Rent-A-Girlfriend is beyond hope.
+---------
+
+# Apple TV’s Underrated 9-Part Sci-Fi Thriller Gets Major Update Ahead Of 2026 Return
+
+TV, Dark Matter, Dark Matter - Season 2
+
+Sat, 18 Apr 2026 14:22:50 GMT
+
+https://screenrant.com/dark-matter-season-2-apple-tv-post-production-finish/
+
+One of Apple TV's most underrated sci-fi shows gets an important and exciting update ahead of its season 2 return scheduled for August 28, 2026.
+---------
+
+# James Gunn's HBO Max Superman Series Officially Returns With New Episode
+
+Superheroes, Superman, DC Universe, Quiz CV
+
+Sat, 18 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/krypto-saves-the-day-hbo-max-superman-dc-series-april-2026/
+
+James Gunn's Superman series has come back with a new episode on HBO Max, showing the return of the Man of Steel and one of his super-powered allies.
+---------
+
+# 11 Harsh Realities Of Rewatching Game Of Thrones' First Episode, 15 Years Later
+
+Classic TV, Game Of Thrones, Game of Thrones
+
+Sat, 18 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/game-of-thrones-premiere-episode-15-years-rewatch-harsh-realities/
+
+Rewatching the Game of Thrones pilot 15 years later uncovers uncomfortable truths, from squandered symbolism to unfulfilled expectations.
+---------
+
+# Daniel Radcliffe Ranks All 8 Harry Potter Movies With One Contentious Choice
+
+Movies, Harry Potter
+
+Sat, 18 Apr 2026 14:09:16 GMT
+
+https://screenrant.com/harry-potter-movies-daniel-radcliffe-ranking/
+
+Daniel Radcliffe ranks all the eight Harry Potter movies, revealing which film he prefers, and making one controversial choice compared to the fans.
+---------
+
+# Horror Villain Prequels: Exploring the Trend of Unnecessary Origin Stories
+
+Movies, Horror
+
+Sat, 18 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/horror-villain-prequels-era/
+
+With spinoffs on the way for both Aunt Gladys and the Longlegs killer, we're officially in the era of horror prequels no one asked for.
+---------
+
+# Check Out This Quirky 9/10 Steam Game For Free Right Now
+
+Gaming, Steam, Indie, PC
+
+Sat, 18 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/steam-free-demo-lost-found-9-10-april-2026/
+
+A cozy little game that was released around a month ago and already boasts 9/10 reviews can be checked out for free on Steam right now.
+---------
+
+# Goku Vs. Vegeta Is So Much More Clear Cut Than Dragon Ball Fans Think
+
+Anime, Dragon Ball
+
+Sat, 18 Apr 2026 14:01:19 GMT
+
+https://screenrant.com/goku-vs-vegeta-clear-victor-dragon-ball/
+
+Goku and Vegeta might be the biggest rivals in anime, but their rivalry is much more one sided than anyone understands, and it's not in Goku's favor.
+---------
+
+# Netflix's Cursed Was Overshadowed by Critic Scores
+
+TV, Cursed, Netflix, Fantasy
+
+Sat, 18 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/netflix-cursed-deserves-better/
+
+Despite its flaws, this show offers a captivating world-building and storytelling experience that's worth a binge, despite its Rotten Tomatoes score.
+---------
+
+# Hello Kitty Goes Dark in New Limited-Edition Fashion Collection
+
+Anime, Hello Kitty, sanrio, merchandise, Clothing
+
+Sat, 18 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-assc-fashion-release-april-2026/
+
+Sanrio and Anti Social Social Club have teamed up for a brand-new streetwear line that gives Hello Kitty's sweetness a new edge.
+---------
+
+# Star Wars: The Mandalorian and Grogu Can Fix the Show's Worst Storyline
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Sat, 18 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/mandalorian-and-grogu-fix-worst-season-3-storyline-star-wars-sci-fi/
+
+Star Wars: The Mandalorian and Grogu has the opportunity to fix one of the most disrespected storylines from the Disney+ series.
+---------
+
+# ‘John Wick’ Meets ‘The Beekeeper’ in Action-Packed New Box Office Misfire
+
+Movie News, Normal, Bob Odenkirk, John Wick, Action
+
+Sat, 18 Apr 2026 14:36:51 GMT
+
+https://collider.com/new-action-thriller-normal-box-office-debut-3-million-bob-odenkirk/
+
+Bob Odenkirk’s new John Wick meets Fargo-style action thriller is struggling to take over as the new box office champion. See how much it’s made.
+---------
+
+# Forget Star Wars and Watch Netflix's Greatest Action Sci-Fi
+
+Movie, The Fifth Element, Bruce Willis, Milla Jovovich, Luc Besson
+
+Sat, 18 Apr 2026 14:28:13 GMT
+
+https://collider.com/the-fifth-element-netflix-greatest-action-sci-fi-star-wars/
+
+Bruce Willis, Milla Jovovich, and Gary Oldman teamed up for The Fifth Element, one of the greatest and most ambitious sci-fi spectacles of the ‘90s.
+---------
+
+# This Fan-Favorite Sci-Fi Franchise Is Officially Getting Another Movie, but There's 1 Big Problem
+
+Movie Features, The Matrix, The Wachowskis, Drew Goddard, The Matrix 5
+
+Sat, 18 Apr 2026 14:04:13 GMT
+
+https://collider.com/the-matrix-5-sequel-wachowskis-biggest-problem-drew-goddard/
+
+The Matrix 5 is in development without the Wachowskis, and the sequel faces a major challenge in recapturing the franchise's identity and legacy.
+---------
+
+# Liam Neeson's Roger Ebert-Approved Action Survival Thriller 'The Grey' Is Streaming Free on Tubi in May 2026
+
+Movie News, The Grey, Tubi, Coming/Leaving Streaming, Liam Neeson, Roger Ebert
+
+Sat, 18 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/liam-neeson-the-grey-streaming-free-tubi-april-2026-roger-ebert/
+
+Roger Ebert loved Liam Neeson's 'The Grey,' he walked out of his next screening. The cult classic survival thriller is streaming free on Tubi in May.
+---------
+
+# An Incredible 'Doctor Who' Quote Created a Massive Continuity Problem
+
+Features, Doctor Who, Steven Moffat, Great Line
+
+Sat, 18 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/doctor-who-quote-created-massive-continuity-problem/
+
+While 'Doctor Who's complicated canon is one of its strengths, this iconic quote also highlights the show's issues with continuity and plot holes.
+---------
+
+# 10 MCU Characters Who Need To Appear in 'Marvel Zombies' Season 2
+
+TV Lists, Marvel Zombies, MCU
+
+Sat, 18 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/mcu-characters-marvel-zombies-season-2/
+
+From a cosmic-based team to some Defenders and a werewolf, here are the MCU characters who should appear in 'Marvel Zombies' Season 2.
+---------
+
 # Blumhouse's R-Rated The Mummy Sequel Prospects Depend On 1 Major Condition, Says Lee Cronin
 
 Movies, Lee Cronin's The Mummy, The Mummy, Blumhouse, New Line Cinema
