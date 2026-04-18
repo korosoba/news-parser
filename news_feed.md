@@ -1,3 +1,212 @@
+# Margo's Got Money Troubles Is #1 On Apple TV In The US & It Will Only Get Better
+
+Streaming TV, Margo's Got Money Troubles
+
+Sat, 18 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/margos-got-money-troubles-apple-tv-show-only-get-better/
+
+Apple TV's buzzy new limited series is a bona fide hit with critics and audiences, and thanks to its splashy cast, it's guaranteed to get even better.
+---------
+
+# The Pitt's Night Shift: A Spinoff Worth Exploring
+
+Streaming TV, The Pitt
+
+Sat, 18 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/the-pitt-night-shift-spinoff-night-crawler-season-2-finale/
+
+A spinoff focusing on The Pitt's night shift crew, led by Dr. Jack Abbot, could be a compelling addition to the series, showcasing unique dynamics.
+---------
+
+# One Piece's New Season Is Finally The Series Evolution Fans Have Waited 27 Years For
+
+Anime, One Piece
+
+Sat, 18 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/one-piece-anime-elbaph-upgrade-new-release-schedule/
+
+After years of slow pacing and recycled animation, One Piece's anime has finally evolved into the series fans have been waiting for.
+---------
+
+# The 15 Best Performances In The MCU, Ranked
+
+Superheroes, Marvel Cinematic Universe
+
+Sat, 18 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/marvel-cinematic-universe-movies-best-performances-ranked/
+
+From Loki to Iron Man, these MCU performances defined the franchise, blending charisma, emotion, and depth beyond typical superhero roles.
+---------
+
+# Zelda Fans Unite Over Perfect Link Redesign For Ocarina Of Time Remake
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sat, 18 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-link-perfect-redesign/
+
+The Legend of Zelda: Ocarina of Time could well be returning via a remake, and fans are in agreement about what Link should look like.
+---------
+
+# Far Cry Leak Has Fans More Concerned Than Ever
+
+Gaming, Far Cry, Triple-A Games, PC
+
+Sat, 18 Apr 2026 15:19:11 GMT
+
+https://screenrant.com/far-cry-7-leak-2026-development-hell/
+
+Fans have been waiting a long time for news about the next Far Cry game, but the latest update isn't the one that most were hoping to hear.
+---------
+
+# Shonen Jump's Most Underrated Manga Has A 10/10 Anime
+
+Anime, Shonen Jump, Kill Blue
+
+Sat, 18 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/kill-blue-anime-adatpation-shonen-jump-underrated/
+
+Why this Shonen Jump anime is so great.
+---------
+
+# Horror Director Zach Cregger's 2028 Movie Slate: The Flood & Gladys
+
+Movies, Horror
+
+Sat, 18 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/2028-big-year-horror-director-zach-cregger/
+
+One of horror's most unique filmmakers, who directed an Oscar-winning film in 2025, is set for a massive year in 2028 with two exciting films.
+---------
+
+# Thragg Gets Invincible's Coldest Moment Ever
+
+Streaming TV, Invincible
+
+Sat, 18 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/invincible-coldest-moment-mark-punch-thragg/
+
+The past 5 years of Invincible has been packed with showstopper lines and acts of immense strength, but one moment just topped them all.
+---------
+
+# This Xbox Game Pass Freebie Is Perfect For Red Dead Redemption Fans
+
+Gaming, Evil West, Triple-A Games, PC
+
+Sat, 18 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-free-red-dead-redemption-vibes/
+
+Few games can compete with the sheer quality of Red Dead Redemption, but there are still a few ways to get your cowboy fix with even more action.
+---------
+
+# Paramount’s New Star Trek Strategy Will Go Down as 1 of Sci-Fi's Most Historic Fumbles
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Sat, 18 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/paramount-star-trek-strategy-sci-fi-historic-fumble/
+
+Paramount seems to be moving forward with Star Trek feature films, but what does that mean for the television side of things?
+---------
+
+# Anime Fans Aren’t Ready for the Most Hated Character of 2026
+
+Anime, Witch Hat Atelier, Crunchyroll, seinen, Fantasy
+
+Sat, 18 Apr 2026 15:15:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-most-hated-character-agott/
+
+One of the biggest seinen adventures of the Spring 2026 Anime Season features a character so foul, fans won't be able to resist the hate.
+---------
+
+# James Gunn Celebrates Classic Superman Moment Ahead of Sequel Filming
+
+Movies, DCU, DC Comics, Superman, Superman: Man of Tomorrow, Supergirl
+
+Sat, 18 Apr 2026 15:03:19 GMT
+
+https://www.cbr.com/james-gunn-superman-birthday-celebration-classic-moment/
+
+James Gunn just celebrated one of the most historic moments in Superman history — for good reason.
+---------
+
+# What's Coming to Disney+ in May 2026? Full List
+
+Movies, Disney+
+
+Sat, 18 Apr 2026 15:01:59 GMT
+
+https://www.cbr.com/whats-coming-to-disney-in-may-2026-full-list/
+
+Disney+ and Marvel Studios Television will end one of its best shows ever, but another key character is coming back.
+---------
+
+# 10 Underrated Period Dramas That Are Flawless From Beginning to End
+
+Movies, Hidden Figures
+
+Sat, 18 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/underrated-period-drama/
+
+Period dramas are subgenres of film that haven't been explored much, but that doesn't mean that some of the best movies around don't fit the category.
+---------
+
+# 10 Best Original Xbox Launch Titles, Ranked
+
+Games, Xbox (Original), Video Games
+
+Sat, 18 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/original-xbox-launch-games-halo-star-wars/
+
+Think of any great OG Xbox game, and launch titles like Halo and Dead or Alive 3 will come to mind.
+---------
+
+# HBO’s 6-Part Fantasy Is One of Its Best Series To Binge
+
+TV Features, A Knight Of The Seven Kingdoms, HBO, Game Of Thrones, Peter Claffey
+
+Sat, 18 Apr 2026 15:23:14 GMT
+
+https://collider.com/knight-of-the-seven-kingdoms-hbo-fantasy-best-binge/
+
+Set before Game of Thrones, the character-driven A Knight of the Seven Kingdoms explores honor and friendship in a brutal fantasy world.
+---------
+
+# 3 Years Later, Paramount’s 140-Minute Supernatural Movie Is a Streaming Smash Hit
+
+Movie News, Teen Wolf: The Movie, Teen Wolf, Tubi, Paramount
+
+Sat, 18 Apr 2026 15:01:14 GMT
+
+https://collider.com/teen-wolf-the-movie-streaming-success-tubi-april-2026/
+
+MTV's Teen Wolf: The Movie, a 2023 reunion film for the beloved supernatural teen series, has seen a resurgence in popularity on Tubi.
+---------
+
+# Star Wars Isn't Allowed to Use Its Most Iconic Female Jedi, Mara Jade, & It Makes No Sense
+
+Features, Star Wars
+
+Sat, 18 Apr 2026 15:00:16 GMT
+
+https://movieweb.com/star-wars-mara-jade-not-allowed/
+
+Lucasfilm has deemed their most iconic female Jedi, Mara Jade, to be off limits in new stories— and it makes no sense.
+---------
+
 # Sylvester Stallone’s Rambo Prequel Recasts OG Character With Stranger Things Star
 
 Movies, John Rambo, Rambo
