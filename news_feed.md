@@ -1,3 +1,212 @@
+# Blumhouse's R-Rated The Mummy Sequel Prospects Depend On 1 Major Condition, Says Lee Cronin
+
+Movies, Lee Cronin's The Mummy, The Mummy, Blumhouse, New Line Cinema
+
+Sat, 18 Apr 2026 13:51:37 GMT
+
+https://screenrant.com/blumhouse-lee-cronins-the-mummy-sequel-potential/
+
+Lee Cronin reveals that the potential for a sequel to his R-rated take on The Mummy will heavily depend on one essential factor during the film's run.
+---------
+
+# Nicolas Cage’s Gritty R-Rated Western Sets New Free Streaming Release Date
+
+Movies, Nicolas Cage, Masked Recs
+
+Sat, 18 Apr 2026 13:45:54 GMT
+
+https://screenrant.com/the-old-way-nicolas-cage-tubi-free-streaming-release-date/
+
+One of the few Westerns to star Oscar winner Nicolas Cage, a gritty R-rated revenge thriller, sets an official release date on free streaming.
+---------
+
+# The Super Mario Galaxy Movie’s Box Office Record Proves A Major 2026 Lesson
+
+Movies, The Super Mario Galaxy Movie
+
+Sat, 18 Apr 2026 13:45:19 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-box-office-record-2026-animated/
+
+2026's box office results - and The Super Mario Galaxy Movie's place within them - provides an important lesson about the world of film.
+---------
+
+# Walton Goggins’ $127M Sci-Fi Hit From 39-Year-Old Franchise Officially Sets Free Streaming Release In 2 Weeks
+
+Movies, Masked Recs, Walton Goggins
+
+Sat, 18 Apr 2026 13:32:15 GMT
+
+https://screenrant.com/walton-goggins-predators-tubi-free-streaming-release-may-2026/
+
+A hit installment from a classic sci-fi franchise, featuring three-time Emmy nominee and Fallout star Walton Goggins, arrives on free streaming soon.
+---------
+
+# Marvel’s New Avengers: Doomsday Trailer Is Exactly What MCU Fans Were Waiting For
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe, Quiz CV
+
+Sat, 18 Apr 2026 13:32:06 GMT
+
+https://screenrant.com/new-avengers-doomsday-trailer-mcu-heroes-doctor-doom-reveal/
+
+Marvel has unveiled the first Avengers: Doomsday trailer, and it brings many of the crossovers fans wanted to see, as well as Doctor Doom in action.
+---------
+
+# HBO's Fantasy Series: House Of The Dragon's Impressive Cast
+
+Streaming TV, Masked Recs
+
+Sat, 18 Apr 2026 13:32:06 GMT
+
+https://screenrant.com/house-of-the-dragon-hbo-fantasy-masterpiece-best-cast/
+
+One of HBO Max's biggest shows is coming back for season 3 this summer, and with it comes one of the greatest fantasy TV casts on the streamer.
+---------
+
+# 35 Years Later, Does the Best-Selling Comic of All Time Deserve the Hype?
+
+Comics, X-Men
+
+Sat, 18 Apr 2026 13:32:06 GMT
+
+https://screenrant.com/x-men-best-selling-comic-all-time-retro-review/
+
+It's been 35 years since Marvel published the best-selling comic of all time in 1991's X-Men #1, but does it hold up? Our surprising answer.
+---------
+
+# Epic New Witcher Game Sends Geralt & Ciri To Japan
+
+Tabletop, The Witcher, tabletop games, The Witcher 4
+
+Sat, 18 Apr 2026 13:32:06 GMT
+
+https://screenrant.com/witcher-path-destiny-ronin-geralt-ciri-japan/
+
+While we all wait for The Witcher 4, the popular franchise is getting a brand-new game next month, sending Geralt, Ciri, and friends to Japan.
+---------
+
+# USA Network's Psych Is So Good, It Started An Entire Movie Franchise
+
+Classic TV, Psych
+
+Sat, 18 Apr 2026 13:15:18 GMT
+
+https://screenrant.com/psych-tv-series-usa-start-movie-franchise/
+
+One of the most underrated detective shows of the 2000s was a hit on USA Network, and it successfully expanded into a movie franchise.
+---------
+
+# Hidden Comedy Gems Of The 2020s: 10 Underrated Films
+
+Movies, Comedy, Recommendation
+
+Sat, 18 Apr 2026 13:15:18 GMT
+
+https://screenrant.com/underrated-comedy-movies-2020s/
+
+There have been some fantastic comedy films in the 2020s, including these hidden gems that deserve more appreciation from moviegoers everywhere.
+---------
+
+# Justified: City Primeval Officially Ended an Era for TV Antiheroes
+
+TV, Justified, Justified: City Primeval
+
+Sat, 18 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/justified-city-primeval-timothy-olyphant-changed-tv-antiheroes/
+
+Timothy Olyphant's critically acclaimed return as Raylan Givens marks the end of an era for TV's complex heroes.
+---------
+
+# Sam Raimi's 2019 Survival Horror Crawl That Makes Netflix's Thrash Look Tame Is Now a Paramount+ Hit
+
+Movies, Thrash, Crawl
+
+Sat, 18 Apr 2026 13:22:57 GMT
+
+https://www.cbr.com/sam-raimi-crawl-better-than-thrash-paramount-plus-success-april-2026/
+
+The wildly underrated Sam Raimi-produced survival horror creature feature from 2019 is tearing into Paramount+ after the surprising success of Thrash.
+---------
+
+# 10 Horror Anime That Are Terrifying Without Being Gory
+
+Anime
+
+Sat, 18 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/scariest-horror-anime-with-no-gore/
+
+The scariest horror anime keep their violence restrained, and let dread grow from unseen threats, and characters who lose control of themselves.
+---------
+
+# 10 Hard Sci-Fi Movies Better Than Project Hail Mary
+
+Movies, Sci-Fi, Project Hail Mary, Interstellar
+
+Sat, 18 Apr 2026 13:00:28 GMT
+
+https://www.cbr.com/best-hard-sci-fi-movies-better-than-project-hail-mary-list/
+
+Project Hail Mary took the sci-fi world by storm, but these ten hard sci-fi masterpieces are even better.
+---------
+
+# New ‘Mummy’ Movie Is Trapped in a Tomb in Disappointing Box Office Debut
+
+Movie News
+
+Sat, 18 Apr 2026 13:31:57 GMT
+
+https://collider.com/the-mummy-lee-cronin-box-office-debut-trails-weapons-13-million/
+
+Lee Cronin’s “disgusting” new The Mummy remake lands miles behind Weapons in disappointing box office debut.
+---------
+
+# 33 Years Later, This 'Jurassic Park' Scene Still Does Sci-Fi Thriller Filmmaking Better Than Most
+
+Movie Features, Jurassic Park, Steven Spielberg, Sci-Fi
+
+Sat, 18 Apr 2026 13:23:13 GMT
+
+https://collider.com/jurassic-park-most-intense-scene-still-holds-up/
+
+33 years later, Jurassic Park’s T-rex scene remains a masterclass in sci-fi thriller filmmaking and tension.
+---------
+
+# New Sci-Fi Masterpiece Eclipses Marvel’s First Family at the Box Office
+
+Movie News, The Fantastic Four: First Steps, Project Hail Mary, Sci-Fi, Box Office
+
+Sat, 18 Apr 2026 13:04:37 GMT
+
+https://collider.com/new-sci-fi-movie-project-hail-mary-overtakes-marvel-fantastic-four-box-office-520-million/
+
+New sci-fi masterpiece, Project Hail Mary, has officially rocketed past Marvel’s new Fantastic Four movie at the box office.
+---------
+
+# 'Children of Blood and Bone' Trailer Debuts at CinemaCon
+
+Movie News, Children of Blood and Bone
+
+Sat, 18 Apr 2026 13:39:00 GMT
+
+https://movieweb.com/children-blood-bone-trailer-action-fantasy-epic/
+
+'The Woman King' director Gina Prince-Bythewood offers a first look at the adaptation.
+---------
+
+# Jon Favreau Compares 'Mandalorian & Grogu' to 'The French Connection'
+
+Movie News, The Mandalorian and Grogu, Jon Favreau
+
+Sat, 18 Apr 2026 13:19:11 GMT
+
+https://movieweb.com/jon-favreau-mandalorian-grogu-exclusive/
+
+The director promises a 'Star Wars' movie that movie buffs will love.
+---------
+
 # The Pitt's 15 Best Characters, Ranked
 
 Streaming TV, The Pitt
