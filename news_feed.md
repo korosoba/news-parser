@@ -1,3 +1,234 @@
+# Sorry Elektra And Karen, But Daredevil’s Greatest Love Will Always Be Another MCU Icon
+
+Comics, Marvel, Marvel Cinematic Universe, Daredevil, Daredevil: Born Again
+
+Sat, 18 Apr 2026 19:32:09 GMT
+
+https://screenrant.com/daredevil-love-black-widow-not-elektra-karen/
+
+The MCU's Daredevil has had more than a few love interests thus far, but none may compare to the one he will never have following Avengers: Endgame.
+---------
+
+# Syfy's 5-Part Steampunk Sci-Fi Series Gets Better With Every Season
+
+Classic TV, Masked Recs, Recommendation, Warehouse 13, Sci-Fi
+
+Sat, 18 Apr 2026 19:30:18 GMT
+
+https://screenrant.com/warehouse-13-steampunk-sci-fi-better-with-every-season/
+
+Sci-fi shows with a unique premise have a tendency to fizzle out after a few seasons, but this gem bucks the trend by being flawless throughout.
+---------
+
+# Hulu's Shogun Season 2 Gets First Look At Returning Character As Filming Officially Begins
+
+TV, Shogun, Shogun - Season 2, Hulu
+
+Sat, 18 Apr 2026 19:23:35 GMT
+
+https://screenrant.com/shogun-season-2-filming-lord-toranaga-look-hiroyuki-sanada-video/
+
+Shogun season 2 has officially begun filming, with Hulu and FX sharing a video showcasing the return of Hiroyuki Sanada's iconic character.
+---------
+
+# Crunchyroll's Returning 4-Season Epic Is The Secret Death Note Successor Fans Didn't Know They Needed
+
+Anime, Classroom of the Elite, Death Note
+
+Sat, 18 Apr 2026 19:07:10 GMT
+
+https://screenrant.com/classroom-elite-crunchyroll-death-note-successor/
+
+Discover how Crunchyroll's Classroom of the Elite, with its edgy drama and lighter tone, has become a successor to the 2000s anime classic Death Note.
+---------
+
+# God Of War 6 Kratos Replacement Splits Gamers
+
+Gaming, God of War, Kratos
+
+Sat, 18 Apr 2026 19:01:20 GMT
+
+https://screenrant.com/god-of-war-6-lead-character-kratos-replaced/
+
+The question of who should head up the next God of War game is one that's dividing the community the world over.
+---------
+
+# Why MM Is Completely Different In The Boys Season 5
+
+TV, The Boys
+
+Sat, 18 Apr 2026 19:01:20 GMT
+
+https://screenrant.com/the-boys-season-5-mothers-milk-different-reason/
+
+MM has been a main cast member of The Boys since the very beginning, which is why this big change in his season 5 characterization is so shocking.
+---------
+
+# Pokémon Fans Are Losing It Over Latest Leaked Winds & Waves 'Mon
+
+Gaming, Pokemon
+
+Sat, 18 Apr 2026 19:01:20 GMT
+
+https://screenrant.com/pokemon-winds-waves-gen-10-flying-fish-leak/
+
+Pokémon fans are buzzing about a potential homage to a long-cancelled character in the upcoming 10th generation.
+---------
+
+# Sullivan's Crossing Season 4 Review: The CW's Drama Still Feels Like Home Despite Scott Patterson's Exit
+
+Network TV, Sullivan's Crossing - Season 4, Sullivan's Crossing
+
+Sat, 18 Apr 2026 19:01:20 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-review/
+
+Despite the shocking exit of Scott Patterson's character, Sully, Sullivan's Crossing season 4 still feels as cozy and comfortable as ever.
+---------
+
+# Taylor Sheridan & Sylvester Stallone’s New Crime Series Gets First Look As Filming Officially Begins
+
+TV, Frisco King, Frisco King - Season 1
+
+Sat, 18 Apr 2026 18:56:43 GMT
+
+https://screenrant.com/frisco-king-taylor-sheridan-first-look-filming-start/
+
+Taylor Sheridan and Sylvester Stallone get to work on their new crime series in a first look at the pair's follow-up to the hit show Tulsa King.
+---------
+
+# Forget ACOTAR, Sarah J. Maas' 3-Part Book Series Is The Better Adaptation Choice
+
+Streaming TV, Sarah J. Maas, A Court of Thorns and Roses
+
+Sat, 18 Apr 2026 18:49:16 GMT
+
+https://screenrant.com/crescent-city-sarah-j-maas-better-adaptation-acotar/
+
+While A Court of Thorns and Roses is the most obvious choice for a Sarah J. Maas book adaptation, there's another series that could work even better.
+---------
+
+# Netflix's Trust Me: The False Prophet Is 2026's Most Essential Binge
+
+TV, Trust Me: The False Prophet, Netflix, Keep Sweet: Pray And Obey
+
+Sat, 18 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/netflix-trust-me-the-false-prophet-2026-most-essential-binge/
+
+This true crime series is a recent standout release on Netflix that’s proving to be essential viewing for audiences looking for their next binge.
+---------
+
+# Star Trek’s Jonathan Frakes Shares Post-Mortem on Starfleet Academy
+
+TV, Star Trek: Starfleet Academy, Star Trek
+
+Sat, 18 Apr 2026 19:22:10 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-post-mortem-jonathan-frakes/
+
+Star Trek legend Jonathan Frakes addresses what went wrong with Starfleet Academy and the future of the franchise.
+---------
+
+# 10 Anime That Only Have Great Worldbuilding
+
+Anime, God Eater, Darling in the Franxx
+
+Sat, 18 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/anime-great-worldbuilding-bad-narrative/
+
+Anime like God Eater and Guilty Crown build impressive universes, but unfortunately fall short with other story elements.
+---------
+
+# Skyrim: New Dawn Officially Overhauls Skyrim in 2026
+
+Games, The Elder Scrolls V: Skyrim, The Elder Scrolls
+
+Sat, 18 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/skyrim-new-dawn-official-new-rpg-release-2026/
+
+Before The Elder Scrolls VI comes out, Skyrim fans should take the time to play its greatest evolution yet.
+---------
+
+# DC Studios Is Still Wasting the Bride of Frankenstein (And Clayface Can Change That)
+
+Movies, Clayface, Creature Commandos, DCU
+
+Sat, 18 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/dc-studios-wasting-bride-of-frankenstein-and-clayface-can-change-that/
+
+Creature Commandos' Bride of Frankenstein is a great character that was never seen again, but Clayface has a chance to finally revisit her.
+---------
+
+# Lee Cronin's The Mummy Has Critics & Audiences in Disagreement on Rotten Tomatoes
+
+Movies, Lee Cronin's The Mummy
+
+Sat, 18 Apr 2026 18:53:17 GMT
+
+https://www.cbr.com/lee-cronins-the-mummy-critics-audiences-rotten-tomatoes/
+
+The new horror is part of a long line of attempts to get it right.
+---------
+
+# 10 Greatest War Book Masterpieces, Ranked
+
+Movie, War, All Quiet on the Western Front, Catch-22, War and Peace
+
+Sat, 18 Apr 2026 19:36:12 GMT
+
+https://collider.com/best-war-book-masterpieces-ranked/
+
+Timeless classics like Slaughterhouse-Five, Catch-22, and All Quiet on the Western Front are among the greatest war book masterpieces ever written.
+---------
+
+# The Best Crime Thriller of 2026 Is a #1 Hit on Prime Video
+
+Movie News, Crime 101, Prime Video, Chris Hemsworth, Mark Ruffalo
+
+Sat, 18 Apr 2026 19:00:12 GMT
+
+https://collider.com/chris-hemsworth-thriller-crime-101-global-streaming-success-prime-video-april-2026/
+
+Crime 101 is now the No. 1 movie on Prime Video worldwide as the heist thriller catches on globally. Find out more here.
+---------
+
+# HBO Max's 2-Part Anthology Series Is One of the Best Shows You Can Binge Right Now
+
+TV Features, Love Life, Anna Kendrick, William Jackson Harper, HBO Max
+
+Sat, 18 Apr 2026 18:38:12 GMT
+
+https://collider.com/love-life-best-hbo-anthology-anna-kendrick/
+
+HBO's Love Life is a two-season anthology series that delves into the everyday struggles and triumphs of love and relationships.
+---------
+
+# 10 Movies That Were Banned in Different Countries For Random Reasons
+
+Movie Lists
+
+Sat, 18 Apr 2026 19:31:17 GMT
+
+https://movieweb.com/movies-banned-different-countries/
+
+There are many reasons why films are banned in different countries, but for these movies, the reason is baffling.
+---------
+
+# Amazon's 'Secret Level' Is the Perfect Sci-Fi Action Weekend Binge-Watch
+
+Features, Secret Level, Prime Video
+
+Sat, 18 Apr 2026 19:00:17 GMT
+
+https://movieweb.com/secret-level-amazon-prime-video-binge-watch/
+
+'Secret Level' delves further into 15 different video game worlds in this fantastic, binge-worthy anthology series from Amazon Prime Video.
+---------
+
 # Dutton Ranch Is An Exciting New Chapter For Beth And Rip After Yellowstone
 
 TV, Yellowstone, Dutton Ranch, Op-Ed
