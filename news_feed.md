@@ -1,3 +1,234 @@
+# The Pitt's 15 Best Characters, Ranked
+
+Streaming TV, The Pitt
+
+Sat, 18 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/the-pitt-best-characters-ranked/
+
+All of The Pitt's key players have both flaws and attributes, which makes their strength as characters more complex than pure likability.
+---------
+
+# After This Official Trailer, Hogwarts Legacy 2 Can’t Miss Out On One Feature
+
+Gaming, Hogwarts Legacy, Harry Potter, Triple-A Games
+
+Sat, 18 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/hogwarts-legacy-2-quidditch-harry-potter-hbo/
+
+Hogwarts Legacy 2 can create a ton of great synergy with the HBO Max Harry Potter TV series by finally including one highly anticipated feature.
+---------
+
+# Train To Busan Is Getting The Zombie Movie Sequel We All Deserve
+
+Movies
+
+Sat, 18 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/train-to-busan-colony-zombie-movie-sequel/
+
+Train To Busan's director has a new zombie movie on the way this year, which looks as though it will mirror what made the original film so great.
+---------
+
+# 31 Years Ago, These 4 Comics Competed to Become the Next Far Side
+
+Comics, The Far Side
+
+Sat, 18 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/far-side-succession-comics-farcus-bizarro-quigmans-rubes/
+
+4 successors to The Far Side, explained.
+---------
+
+# ABC Officially Confirms Amanda’s Fate After Will Trent Deadly Cliffhanger
+
+Network TV, Will Trent
+
+Sat, 18 Apr 2026 12:02:19 GMT
+
+https://screenrant.com/will-trent-season-4-amanda-wagner-dead-confirmed/
+
+In the biggest plot twist in its history, Will Trent subjects Amanda Wagner to a scary situation, and now, ABC has officially confirmed her fate.
+---------
+
+# For All Mankind Season 5: Young Heroes Echo Star Trek: Starfleet Academy
+
+TV, Op-Ed, Star Trek, Star Trek: Starfleet Academy, For All Mankind
+
+Sat, 18 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/for-all-mankind-season-5-star-trek-starfleet-academy-comparison/
+
+There's a youth movement on For All Mankind, and the shift in focus to younger characters hearkens to the cadets of Star Trek: Starfleet Academy.
+---------
+
+# All 10 Star Trek Stars Who Appeared In Batman: The Animated Series
+
+TV, DC Universe, Star Trek, Batman: The Animated Series, Batman
+
+Sat, 18 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/batman-the-animated-series-star-trek-stars/
+
+Discover the unexpected crossover of Star Trek stars in Batman: The Animated Series, where actors traded Starfleet uniforms for Gotham’s alleyways.
+---------
+
+# GTA 6 Delay Three Fears Are Heating Up Again
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Sat, 18 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/gta-6-delay-3-april-2026-fears/
+
+The release date for GTA VI is approaching at a rapid rate, but that hasn't stopped fan fears of a potential third delay.
+---------
+
+# Scariest Stephen King TV Episodes That Still Haunt Fans
+
+TV, Stephen King, It: Welcome to Derry, Castle Rock, Horror
+
+Sat, 18 Apr 2026 12:30:12 GMT
+
+https://www.cbr.com/stephen-king-scariest-tv-episodes-list/
+
+From moral dilemmas to gruesome murders, these episodes from Stephen King adaptations are a must-watch for horror enthusiasts.
+---------
+
+# DC Comics Fan-Favorite Crime Series Sequel Confirmed
+
+Comics, DC Vertigo
+
+Sat, 18 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/dc-comics-vertigo-100-bullets-the-us-of-anger-release-date-confirmed/
+
+DC Comics and Vertigo are bringing back one of the most terrifying Minutemen of all time as 100 Bullets prepares for its next harrowing chapter.
+---------
+
+# Chip 'n Dale: Rescue Rangers is 1 of the Greatest Modern Family Comedies That No One Remembers
+
+Movies, Chip 'n Dale: Rescue Rangers
+
+Sat, 18 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/chip-n-dale-rescue-rangers-greatest-modern-family-comedy/
+
+Chip 'n Dale: Rescue Rangers was a hilarious outing for Disney+, but even with a high rating, it's still one of the least remembered Disney movies.
+---------
+
+# 33 Years Later, Bruce Willis’ Forgotten Action Thriller Is a Late-Night Sleeper Hit
+
+Movie News, Striking Distance, Bruce Willis, Netflix, Action
+
+Sat, 18 Apr 2026 12:45:12 GMT
+
+https://collider.com/bruce-willis-forgotten-90s-action-thriller-streaming-success-netflix-april-2026/
+
+Bruce Willis' Striking Distance is now one of Netflix’s biggest movies worldwide, more than three decades after its original release.
+---------
+
+# Prime Video’s Best Sci-Fi Series Continues Streaming Domination 3 Months After Season 2
+
+TV News, Fallout, Prime Video, Ella Purnell, Walton Goggins
+
+Sat, 18 Apr 2026 12:30:13 GMT
+
+https://collider.com/prime-video-best-sci-fi-series-fallout-streaming-success-100-million-views-april-2026/
+
+Prime Video's best sci-fi series is on a mission of streaming domination following the news it's racked up over 100 million views.
+---------
+
+# Henry Cavill’s Dark Crime Thriller Breaks Into the Global Streaming Top 10
+
+Movie, Henry Cavill, Night Hunter, Ben Kingsley, Alexandra Daddario
+
+Sat, 18 Apr 2026 12:29:12 GMT
+
+https://collider.com/henry-cavill-night-hunter-electric-crime-thriller-quietly-climbing-global-streaming-charts/
+
+Henry Cavill’s forgotten action thriller Night Hunter with Ben Kingsley and Alexandra Daddario is becoming a surprise global streaming hit.
+---------
+
+# Hulu's Forgotten 2-Part Horror Anthology Is the Best Series You've Never Seen
+
+TV Features, Into the Dark, Blumhouse Television, Horror, Judy Greer
+
+Sat, 18 Apr 2026 12:17:12 GMT
+
+https://collider.com/hulu-forgotten-horror-anthology-into-the-dark-blumhouse/
+
+Blumhouse TV's Into the Dark showcased the best horror has to offer, while giving emerging directors like Maggie Levin and Emma Tammi a platform.
+---------
+
+# 20 Greatest Disney Animated Movie Masterpieces of All Time, Ranked
+
+Movie, Walt Disney, Walt Disney Studios, Animation, Beauty and the Beast
+
+Sat, 18 Apr 2026 12:14:13 GMT
+
+https://collider.com/best-disney-animated-movie-masterpieces-ranked/
+
+Animated classics like Beauty and the Beast, Pinocchio, and Snow White and the Seven Dwarfs are among the greatest Disney movies ever made.
+---------
+
+# This 2-Part Action Series Is the DC Comic Book Adaptation Fans Deserve To Know About
+
+TV Features, Human Target, DC Comics, Fox, Comic Book
+
+Sat, 18 Apr 2026 12:03:12 GMT
+
+https://collider.com/human-target-fox-tv-show-dc-comic-book-action-series/
+
+Human Target is one of the most underrated DC comic book shows of the previous decade, and it's overdue for its streaming comeback.
+---------
+
+# 10 Greatest Thriller Movie Opening Scenes, Ranked
+
+Movie, Mulholland Drive, Fight Club, Taxi Driver, Thriller
+
+Sat, 18 Apr 2026 12:02:13 GMT
+
+https://collider.com/best-thriller-movie-opening-scenes-ranked/
+
+Thriller movies like Touch of Evil, A History of Violence, and Fight Club have some of the best opening scenes in the history of the genre.
+---------
+
+# Make Me Laugh | with Sadie Sandler, Chloe East, Storm Reid and more!
+
+Netflix, Roommates
+
+Sat, 18 Apr 2026 12:00:13 GMT
+
+https://collider.com/video/make-me-laugh-with-sadie-sandler-chloe-east-storm-reid-and-more/
+
+In this chaotic game of meme-creation, the cast of Roommates Sadie Sandler (Happy Gilmore 2), Chloe East (Heretic), Storm Reid (The Last of Us, Euphoria),  Billy Bryk (Hell of a Summer), Jaya Harper (Peaked) and Bella Murphy (Dollface) absolutely roast each other.Who has the comedy chops to make their co-stars laugh?
+---------
+
+# The Best Spy Thriller on Apple TV Is a 10/10 Global Hit
+
+TV News, Apple TV, Tehran, Streaming, Thriller
+
+Sat, 18 Apr 2026 12:00:13 GMT
+
+https://collider.com/apple-tv-spy-thriller-tehran-streaming-success-april-2026/
+
+Tehran, Apple TV's intense 4-part spy thriller, is a global streaming sensation amid Season 4 production. Find out more details here.
+---------
+
+# Ridley Scott's 'Exodus: Gods and Kings' Action Epic Set To Vanish From Streaming
+
+Movie News, Exodus: Gods and Kings, Coming/Leaving Streaming, Ridley Scott
+
+Sat, 18 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/exodus-gods-and-kings-leaving-tubi-streaming-april-2026/
+
+Scott's divisive biblical epic starring Christian Bale and Joel Edgerton is streaming for free, but only for a limited time.
+---------
+
 # Elder Scrolls 6 Step Aside, Skyrim: New Dawn Is Here
 
 Gaming, The Elder Scrolls, The Elder Scrolls 6
