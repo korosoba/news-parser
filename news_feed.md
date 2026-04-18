@@ -1,3 +1,168 @@
+# The Sarah Connor Chronicles Was So Good, It Beat The Last 4 Terminator Movies
+
+Classic TV, Terminator: The Sarah Connor Chronicles
+
+Sat, 18 Apr 2026 23:45:18 GMT
+
+https://screenrant.com/sarah-connor-chronicles-beat-terminator-movies/
+
+The Sarah Connor Chronicles is one of the best entries in the Terminator franchise. Unfortunately, it's also the most underappreciated.
+---------
+
+# Elden Ring: 15 Hardest Boss Battles, Ranked
+
+Gaming, Elden Ring, PC, Triple-A Games
+
+Sat, 18 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/elden-ring-hardest-boss-battles-ranked/
+
+From the legendary Maliketh to the infamous Malenia, Blade of Miquella, these are by far the most difficult bosses to fight in Elden Ring.
+---------
+
+# Hugh Laurie's Gregory House Only Exists Because Of A Hilarious Studio Mandate
+
+Classic TV, House
+
+Sat, 18 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/house-hugh-laurie-character-no-white-coat-fox-mandate/
+
+A unique network mandate led to the creation of Hugh Laurie’s Gregory House and how it influenced the show's distinctive visual and narrative style.
+---------
+
+# Man Of Tomorrow's Newest Cast Member Isn't Who Fans Think, It's A Much More Tragic Role
+
+Movies, Superman, Man of Tomorrow, Adria Arjona
+
+Sat, 18 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-adria-arjona-brainiac/
+
+Adria Arjona could be playing a very different Superman character.
+---------
+
+# The Orville: A Sci-Fi Series That Blends Star Trek's Optimism with Futurama's Satire
+
+Streaming TV, Masked Recs
+
+Sat, 18 Apr 2026 23:15:18 GMT
+
+https://screenrant.com/the-orville-hulu-sci-fi-star-trek-gets-better/
+
+Seth MacFarlane's affectionate Star Trek parody The Orville is both a smart science fiction satire and one of the best sci-fi shows out there.
+---------
+
+# Witch Hat Atelier Launches a New Era for English Dubs in Anime
+
+Anime, Witch Hat Atelier, seinen, Fantasy
+
+Sat, 18 Apr 2026 23:45:11 GMT
+
+https://www.cbr.com/witch-hat-atelier-anime-english-dub/
+
+Witch Hat Atelier's English dubbed version with varying accents for characters has achieved widespread praise.
+---------
+
+# Ryan Murphy's Scream Queens Launched Glen Powell's Career
+
+TV, Scream Queens, Horror
+
+Sat, 18 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/scream-queens-glen-powell-horror-comedy-tv-breakout-role/
+
+Before lighting up the big screen, Glen Powell had a standout role in one of TV’s most outrageous comedy-horror series.
+---------
+
+# The 7 Greatest Anime Filler Episodes You Cannot Miss
+
+Anime, Naruto: Shippuden, Gintama, Fullmetal Alchemist
+
+Sat, 18 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/best-anime-filler-episodes-list/
+
+Not all filler episodes are created equal, and despite general hate for breaking away from the plot, sometimes filler episodes can be genuinely great.
+---------
+
+# 10 Best Albums of the 1980s, Ranked
+
+Music Features, Prince, Michael Jackson's Thriller, Talking Heads, Metallica
+
+Sat, 18 Apr 2026 23:53:12 GMT
+
+https://collider.com/best-1980s-albums-ranked/
+
+Thriller by Michael Jackson, Purple Rain by Prince, and Hounds of Love by Kate Bush are all among the very best albums of the 1980s.
+---------
+
+# Apple TV’s 9-Part Sci-Fi Is One of Its Best Shows To Binge Before It Returns This Year
+
+TV Features, Dark Matter, Apple TV, Joel Edgerton, Sci-Fi
+
+Sat, 18 Apr 2026 23:52:12 GMT
+
+https://collider.com/dark-matter-apple-tv-sci-fi-best-binge-before-season-2/
+
+Now is the best time to binge Apple TV's sci-fi series Dark Matter, starring Joel Edgerton, before it returns for Season 2 this year.
+---------
+
+# Stephen King's Favorite Netflix Horror Movie of 2026 Is Taking Over the World
+
+Movie News, Thrash, Netflix, Horror, Stephen King
+
+Sat, 18 Apr 2026 23:45:12 GMT
+
+https://collider.com/stephen-king-favorite-netflix-horror-shark-movie-thrash-streaming-success-april-2026/
+
+Stephen King has praised Netflix’s Thrash as the horror movie continues dominating the streamer’s global charts.
+---------
+
+# ‘Tracker’ Is Finally Fixing Season 3 Before It’s Too Late, but It Might Be Undoing Itself at the Same Time
+
+TV Features, Tracker, Justin Hartley, CBS, Jensen Ackles
+
+Sat, 18 Apr 2026 23:36:13 GMT
+
+https://collider.com/tracker-season-3-colter-shaw-lone-wolf-randy-reenie/
+
+Tracker's Season 3 has a lingering problem, preventing the show from fully overcoming its challenges and reaching its full potential.
+---------
+
+# Say Goodbye to Christopher Nolan’s Hard Sci-Fi Masterpiece
+
+Movie News, Interstellar, Christopher Nolan, Sci-Fi, Matthew McConaughey
+
+Sat, 18 Apr 2026 23:30:12 GMT
+
+https://collider.com/christopher-nolan-hard-sci-fi-masterpiece-interstellar-leaving-streaming-peacock-may-2026/
+
+Christopher Nolan's groundbreaking sci-fi epic, Interstellar, is set to leave its streaming home. Find out how long you have left to watch it.
+---------
+
+# Liam Neeson's Best Crime Movie Since 'Taken' Is a Colossal Hit on Paramount+
+
+Movie News, Liam Neeson, The Naked Gun, Action, Paramount Plus
+
+Sat, 18 Apr 2026 23:15:12 GMT
+
+https://collider.com/liam-neeson-crime-movie-the-naked-gun-reboot-streaming-success-paramount-plus-april-2026/
+
+The world can't stop watching Liam Neeson's action-packed Naked Gun reboot from 2025, also starring Pamela Anderson. Find out more here.
+---------
+
+# 'Buffy the Vampire Slayer' Revival Replacement Fixes Hulu's Canceled Series
+
+Features, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series, Hulu
+
+Sat, 18 Apr 2026 23:03:15 GMT
+
+https://movieweb.com/buffy-the-vampire-slayer-revival-replacement-fixes/
+
+The 'Buffy' revival series was canceled by Hulu, but a new replacement has already solved one major problem that plagued 'New Sunnydale'.
+---------
+
 # You Have Just 4 Weeks To Discover Netflix's Iconic 3-Show Crime Franchise
 
 Streaming TV, Masked Recs
