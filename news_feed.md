@@ -1,3 +1,234 @@
+# The Duffer Brothers’ Next Sci-Fi After Stranger Things Is Only Weeks Away
+
+TV, The Boroughs, Stranger Things
+
+Sun, 19 Apr 2026 12:55:18 GMT
+
+https://screenrant.com/duffer-brothers-the-borough-show-next-sci-fi-after-stranger-things/
+
+The first sci-fi show involved the Duffer brothers since Stranger Things is very close to its upcoming debut on Netflix in a few short weeks.
+---------
+
+# Insidious: Out Of The Further - Is It Time To Let Go Of The Red-Faced Demon?
+
+Movies
+
+Sun, 19 Apr 2026 12:31:18 GMT
+
+https://screenrant.com/insidious-out-of-the-further-red-faced-demon-movie-let-go/
+
+Insidious: Out of the Further is looking like a promising sequel to the franchise, but the hint at one villain's return is disappointing.
+---------
+
+# 50 Years After Her Debut, DC's Most Overlooked Kryptonian Deserves To Be Bigger
+
+Comics
+
+Sun, 19 Apr 2026 12:31:18 GMT
+
+https://screenrant.com/power-girl-dc-most-overlooked-kryptonian/
+
+Years of confusion damaged a hero's chance to stand out from the crowd.
+---------
+
+# NCIS Finally Explained Why Timothy McGee Hasn’t Left Despite Years Of Disrespect
+
+Network TV, NCIS
+
+Sun, 19 Apr 2026 12:17:18 GMT
+
+https://screenrant.com/ncis-timothy-mcgee-not-leaving-disrespect-reason/
+
+Despite years of disrespect and character stagnation, Timothy McGee finally offered an explanation as to why he still hasn't left NCIS.
+---------
+
+# 7 Biggest Reveals In From Season 4's Premiere
+
+Streaming TV, From
+
+Sun, 19 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/from-season-4-episode-1-recap-biggest-reveals/
+
+The fourth season of the mystery/horror show is already moving in a whole new direction after these major developments in the season premiere.
+---------
+
+# How Star Trek: Discovery Split Its Timeline (& Saved The Franchise)
+
+TV, Star Trek, Star Trek: Discovery, Op-Ed
+
+Sun, 19 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/star-trek-discovery-split-two-saved-franchise/
+
+Star Trek: Discovery did something no other Star Trek series has, and left a legacy that kept Star Trek alive and vibrant for a decade.
+---------
+
+# Xbox Exclusives Problem Is About To Get Worse
+
+Gaming, Xbox Series X/S
+
+Sun, 19 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/xbox-exclusives-problem-bad-sales/
+
+Insiders say Xbox is considering a return to exclusivity, which is bad for absolutely everyone involved — even if you already own a Series X/S.
+---------
+
+# 10 Real Complaints About the Far Side From Readers In the 1980s
+
+Comics, The Far Side
+
+Sun, 19 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/far-side-real-readercomplaints-1980s-gary-larson/
+
+The Far Side was highly divisive during its time in newspapers; here are some of the wildest reader complaints about Gary Larson from the '80s.
+---------
+
+# Avengers: Doomsday's Fate Has Already Been Decided By Spider-Man: No Way Home's Box Office
+
+Movies, Avengers: Doomsday, Spider-Man: No Way Home, Marvel Cinematic Universe
+
+Sun, 19 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/avengers-doomsday-fate-spiderman-no-way-home-box-office/
+
+Spider-Man: No Way Home's prior MCU movie results have already served to define what a true success would look like for Avengers: Doomsday.
+---------
+
+# Why Netflix's Canceled Stephen King Series Could Have Been Stranger Things' Successor
+
+TV, The Talisman, Stephen King, Netflix
+
+Sun, 19 Apr 2026 12:31:12 GMT
+
+https://www.cbr.com/netflix-stephen-king-the-talisman-stranger-things-replacement/
+
+Netflix's canceled adaptation of Stephen King's The Talisman, a perfect fit for the Duffer Brothers, could have been the successor to Stranger Things.
+---------
+
+# Marvel Officially Retires X-Men's Most Prominent
+
+Comics, X-Men, Wolverine
+
+Sun, 19 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/ultimate-wolverine-16-wolverine-retirement-confirmed/
+
+The beloved mutant gets a heartwarming sendoff as Marvel officially retires the character (for now...)
+---------
+
+# 2 Years Later, This Divisive ‘Yellowstone’ Villain’s Death Still Feels Completely Earned
+
+TV Features, Yellowstone, Marshals, Kelly Reilly, Wes Bentley
+
+Sun, 19 Apr 2026 12:47:12 GMT
+
+https://collider.com/yellowstone-series-season-5-sarah-atwood-death-meaning/
+
+Sarah Atwood’s shocking Yellowstone death still feels earned 2 years later, proving the series was better off without its most divisive villain.
+---------
+
+# Alan Ritchson's 2026 Sci-Fi Thriller Is Dominating Netflix Across the Globe
+
+Movie News, War Machine, Sci-Fi, Alan Ritchson, Netflix
+
+Sun, 19 Apr 2026 12:45:13 GMT
+
+https://collider.com/alan-ritchson-sci-fi-thriller-war-machine-netflix-global-chart-streaming-success-april-2026/
+
+Alan Ritchson's Predator meets War of the Worlds action thriller, War Machine, is still exploding on the Netflix charts, months after its debut.
+---------
+
+# Only 3 Movie Trilogies Are More Important Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Star Wars, The Godfather, Toy Story
+
+Sun, 19 Apr 2026 12:34:13 GMT
+
+https://collider.com/movie-trilogies-more-important-than-the-lord-of-the-rings/
+
+The Lord of the Rings' place in cinematic history is set in stone, but trilogies like The Godfather and Star Wars are even more important.
+---------
+
+# Ana de Armas' Forgotten 'Sicario' Replacement Quietly Becomes an American Streaming Hit
+
+Movie News, Ana De Armas, The Informer, STARZ, Joel Kinnaman
+
+Sun, 19 Apr 2026 12:31:12 GMT
+
+https://collider.com/ana-de-armas-sicario-replacement-the-informer-streaming-success-starz-april-2026/
+
+Ana de Armas' forgotten 2019 crime thriller The Informer is a surprise hit on the streaming charts. Read on for more details.
+---------
+
+# Val Kilmer's Famous 'Tombstone' Performance Made the 10/10 Western Perfect From Start to Finish
+
+Movie Features, Tombstone, Val Kilmer, Western, Kurt Russell
+
+Sun, 19 Apr 2026 12:27:12 GMT
+
+https://collider.com/val-kilmer-tombstone-doc-holliday-performance-perfect-start-to-finish/
+
+It's hard to find a flaw in Kurt Russell's Tombstone, but Val Kilmer's Doc Holliday is what made the iconic Western perfection.
+---------
+
+# The Best Animated Shows From Every Year of the 2000s
+
+TV, Animation, 2000s, Avatar: The Last Airbender, Archer
+
+Sun, 19 Apr 2026 12:22:12 GMT
+
+https://collider.com/best-2000s-animated-shows-every-year/
+
+Explore the best animated TV shows from each year of the 2000s, many of which defined the era, from Avatar: The Last Airbender to Archer.
+---------
+
+# Lord of the Rings Is Repeating Itself by Recasting Aragorn in 'Hunt for Gollum'
+
+Movie Features, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Viggo Mortensen, Fantasy
+
+Sun, 19 Apr 2026 12:18:12 GMT
+
+https://collider.com/lord-of-the-rings-aragorn-recast-stuart-townsend-viggo-mortensen/
+
+As Andy Serkis' The Hunt for Gollum movie approaches, we should look back at how Viggo Mortensen wasn't always supposed to be Aragorn.
+---------
+
+# 2 Years Later, Pedro Pascal’s Sci-Fi Hit Is One of the Best on Streaming
+
+Movie News, The Wild Robot, Pedro Pascal, Sci-Fi, Lupita Nyong'o
+
+Sun, 19 Apr 2026 12:00:12 GMT
+
+https://collider.com/pedro-pascal-sci-fi-adventure-the-wild-robot-streaming-success-peacock-april-2026/
+
+The Wild Robot is a streaming hit on Peacock after earning $334.5 million worldwide against a $78 million budget.
+---------
+
+# 10 Greatest Middle Chapters in Movie Trilogies, Ranked
+
+Movie, The Godfather Part II, The Empire Strikes Back, Before Sunset, Paddington 2
+
+Sun, 19 Apr 2026 11:57:12 GMT
+
+https://collider.com/movie-trilogies-best-second-chapters-ranked/
+
+The Empire Strikes Back, Before Sunset, and The Godfather Part II are all among the absolute best middle chapters in movie trilogies.
+---------
+
+# Iconic 80s Crime Thriller 'The Untouchables' Explodes Onto New Free Streaming Home
+
+Movie News, The Untouchables, Coming/Leaving Streaming, Crime, Thriller
+
+Sun, 19 Apr 2026 12:01:17 GMT
+
+https://movieweb.com/the-untouchables-best-crime-movie-streaming-free-tubi-may-2026/
+
+Featuring one of the greatest casts ever assembled, 'The Untouchables' easily holds up as one of the greatest movies ever made.
+---------
+
 # Red Dead Redemption 3 Setting Splits Gamers, And We Can See Why
 
 Gaming, Red Dead Redemption 2
