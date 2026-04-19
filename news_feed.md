@@ -1,3 +1,168 @@
+# 7 Action Shows Superior to Reacher
+
+Streaming TV, Reacher
+
+Sun, 19 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/action-tv-shows-better-than-reacher/
+
+Reacher is undoubtedly one of the best action shows on the air right now, but there are a handful of even better action shows out there.
+---------
+
+# Canceled Prince Of Persia Games Might Get A Second Chance After All, Says Leak
+
+Gaming, Prince of Persia
+
+Sun, 19 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/prince-of-persia-canceled-team-returns/
+
+The Prince of Persia series may be making a comeback. A leaked Ubisoft memo hints at a possible second chance for the infamous game, The Lost Crown.
+---------
+
+# Jon Bernthal's 10 Best Movies Of All Time, Ranked (#1 Is A Masterpiece)
+
+Movies, Jon Bernthal, Ranking
+
+Sun, 19 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/jon-bernthal-best-movies-ranked/
+
+Jon Bernthal might be best known for his work on the small screen but his greatest films include scene stealing roles in some fantastic movies.
+---------
+
+# One Piece's Straw Hats Are About To Face Their Biggest Loss In 16 Years
+
+Anime, One Piece
+
+Sun, 19 Apr 2026 15:15:25 GMT
+
+https://screenrant.com/one-piece-chapter-1180-imu-straw-hats-lose/
+
+The Straw Hats are destined to lose.
+---------
+
+# From Season 4 Already Confirmed The Best Man In Yellow Theory
+
+Streaming TV, From, FROM - Season 4
+
+Sun, 19 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/from-season-4-episode-1-man-in-yellow-theory-sophia-explained/
+
+Only one episode into From season 4, the popular MGM+ horror series has already confirmed the best theory about the terrifying Man in Yellow.
+---------
+
+# Invincible Switches To An Anime In Season 4
+
+Streaming TV, Invincible
+
+Sun, 19 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/invincible-season-4-switch-genre-to-anime/
+
+Prime Video’s Invincible has been reinventing itself throughout its four seasons, with its latest installment proving that it can work as anime.
+---------
+
+# KPop Demon Hunters’ New Movie Successor Is The Last Film You’d Expect
+
+Movies, KPop Demon Hunters, Charlie vs. the Chocolate Factory
+
+Sun, 19 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/kpop-demon-hunters-new-movie-chalie-vs-chocolate-factory-successor/
+
+One of Neflix's most newly announced upcoming movies looks as though it will serve as a successor of sorts to KPop Demon Hunters and its story.
+---------
+
+# 10 Xbox Games That Are A Perfect 10/10
+
+Gaming, Microsoft, Xbox One
+
+Sun, 19 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/best-xbox-games-perfect-10s/
+
+From Halo to Psychonaut, the original Xbox has a slew of games that are perfect 10/10 that everyone needs to play ASAP.
+---------
+
+# HBO Max Fantasy Shows That Are Perfect From Start To Finish
+
+Streaming TV
+
+Sun, 19 Apr 2026 14:45:18 GMT
+
+https://screenrant.com/hbo-max-fantasy-shows-perfect-start-to-finish/
+
+HBO is home to some of the best fantasy TV shows of all time, but not all of them can brag about being perfect from beginning to end.
+---------
+
+# 10 Kids Movies That Are Great Works Of Cinema (#1 Is Rightfully Iconic)
+
+Movies
+
+Sun, 19 Apr 2026 14:41:18 GMT
+
+https://screenrant.com/kids-movies-great-works-of-cinema/
+
+Though often reduced to their identity as kids’ entertainment, these childhood classic movies are actually masterclasses in the art of filmmaking.
+---------
+
+# The Best Mario Songs in Nintendo History
+
+Games, Video Games, Mario, super mario bros
+
+Sun, 19 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/best-mario-songs-all-time/
+
+The best songs from the Super Mario series rank among the greatest tracks in all of gaming.
+---------
+
+# Michelle Pfeiffer's Absurd New Apple TV Series Is an Instant Streaming Sensation
+
+TV News, Margo's Got Money Troubles, Apple TV, Elle Fanning, Michelle Pfeiffer
+
+Sun, 19 Apr 2026 15:00:13 GMT
+
+https://collider.com/michelle-pfeiffer-dramedy-margos-got-money-troubles-streaming-success-apple-tv-april-2026/
+
+Following the success of Taylor Sheridan’s The Madison, Michelle Pfeiffer has already found another streaming hit with Apple TV’s newest dramedy.
+---------
+
+# Kevin Feige Says the MCU Multiverse Enabled Robert Downey Jr.'s Doctor Doom
+
+Movie News, Avengers: Doomsday, Robert Downey Jr., Kevin Feige
+
+Sun, 19 Apr 2026 15:16:36 GMT
+
+https://movieweb.com/kevin-feige-mcu-multiverse-doom/
+
+Top Marvel executive Kevin Feige explained how the multiverse allowed for Robert Downey Jr.'s return to the franchise as Doctor Doom.
+---------
+
+# 'Mutiny': New Jason Statham Action Thriller Trailer Promises a Classic Sea Adventure
+
+Features, Mutiny, Jason Statham, The Meg, Upcoming Tease
+
+Sun, 19 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/jason-statham-mutiny-trailer-classic/
+
+'Mutiny's trailer features lots of sea action and a human trafficking storyline, promising a more robust movie than 'The Meg'.
+---------
+
+# Rick Moranis Reveals Why He Came Out of Retirement for 'Spaceballs 2'
+
+Movie News, Spaceballs: The New One, Spaceballs, Rick Moranis
+
+Sun, 19 Apr 2026 14:53:41 GMT
+
+https://movieweb.com/rick-moranis-spaceballs-2-return/
+
+'Spaceballs 2' will be the first live-action film to star Rick Moranis in three decades.
+---------
+
 # Lee Pace's Underrated Fantasy Show Pushing Daisies: A Critical Success That Keeps Getting Better
 
 Classic TV, Masked Recs
