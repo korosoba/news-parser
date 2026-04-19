@@ -1,3 +1,322 @@
+# Christopher Nolan’s Inception Meets Netflix’s Dark In Apple TV’s Returning 9-Part Sci-Fi Thriller
+
+Streaming TV, Inception, Dark, Netflix, Christopher Nolan, Apple TV, Dark Matter
+
+Sun, 19 Apr 2026 02:49:21 GMT
+
+https://screenrant.com/inception-dark-matter-apple-tv-recommendation/
+
+Returning Apple TV 9-part sci-fi thriller seems to perfectly combine some of the best elements from Christopher Nolan’s Inception and Netflix’s Dark.
+---------
+
+# Disney’s Lightyear Is The Weakest Link In The Toy Story Series
+
+Movies, Disney, Toy Story, Lightyear
+
+Sun, 19 Apr 2026 02:30:20 GMT
+
+https://screenrant.com/lightyear-weak-link-toy-story-franchise/
+
+Disney has one of the most perfect movie franchises of all time, but there is one $226 million sci-fi in the series that remains its weakest link.
+---------
+
+# Hulu’s Devs Reimagines The Matrix For The 2020s
+
+Classic TV, The Matrix, Devs, Alex Garland
+
+Sun, 19 Apr 2026 02:15:18 GMT
+
+https://screenrant.com/devs-the-matrix-reimagined-2020s-hulu-tv-show/
+
+Hulu is the home of a compelling eight-part sci-fi thriller that seemingly reimagines the Wachowskis’ The Matrix for the 2020s in more ways than one.
+---------
+
+# Jensen Ackles Returns In First Look At Tracker Season 3 Finale
+
+TV, Tracker
+
+Sun, 19 Apr 2026 02:13:12 GMT
+
+https://screenrant.com/tracker-season-3-finale-jensen-ackles-return-photo/
+
+Jensen Ackles is officially coming back for Tracker season 3's finale “The Best Ones,” confirming the return himself on social media.
+---------
+
+# This Netflix Action Thriller Rewrote All the Rules and Only Took 1 Season to Nail It
+
+Anime, My Name, Netflix
+
+Sun, 19 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/netflix-action-thriller-my-name-broke-rules-revenge/
+
+Beyond Squid Game, 2021 saw an emerging dominant presence in thriller television from South Korea with this show among its best works on the service.
+---------
+
+# 10 Perfect Spy Thriller Series No One Remembers
+
+Classic TV
+
+Sun, 19 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/spy-thriller-tv-shows-no-one-remembers/
+
+These 10 forgotten spy thrillers may not be widely talked about anymore, but they remain just as thrilling and are still worthy of recognition.
+---------
+
+# 5 Pokémon ROM Hacks That Do Justice To Johto
+
+Gaming, Pokemon
+
+Sun, 19 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/pokemon-johto-rom-hacks/
+
+There are tons of great Pokémon ROM hacks out there, but ones that expand, improve, or honor the Johto region are some of the most enjoyable.
+---------
+
+# 18 Years After The Dark Knight, DC Officially Unveils The Best Batmobile Redesign
+
+Comics, Batman, The Dark Knight
+
+Sun, 19 Apr 2026 01:45:19 GMT
+
+https://screenrant.com/new-absolute-batman-batmobile-design-dark-knight-comparison/
+
+18 years after The Dark Knight, DC has revealed an all-new design for the Batmobile that could have easily been inspired by 2008's The Dark Knight.
+---------
+
+# Netflix's 2-Part Chaotic Comedy Settles The Millennial Vs. Gen Z Debate Once And For All
+
+Streaming TV, Beef
+
+Sun, 19 Apr 2026 01:45:19 GMT
+
+https://screenrant.com/beef-season-2-settles-millennial-gen-z-debate-generations/
+
+Beef took on the battle of the generations in season 2, ultimately settling the debate over whether Millennials or Gen Z have the edge.
+---------
+
+# Crunchyroll's Most Serious Anime Competition Can't Stop Shooting Themselves In The Foot
+
+Anime, Netflix, Crunchyroll, Jojo's Bizarre Adventure
+
+Sun, 19 Apr 2026 01:31:19 GMT
+
+https://screenrant.com/netflix-jojos-bizarre-adventure-big-mistake-crunchyroll-competition/
+
+Crunchyroll's closest thing to legitimate competition in the world of anime streaming can't stop getting in their own way, and it's killing us.
+---------
+
+# 10 God-Tier Anime Villains, Ranked
+
+Anime
+
+Sun, 19 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/god-tier-anime-villains-ranked-list/
+
+Anime villains like Ryomen Sukuna are so good that they've reached god-tier status.
+---------
+
+# Paddington is 1 of the Greatest Trilogies of All Time
+
+Movies, Paddington
+
+Sun, 19 Apr 2026 02:40:12 GMT
+
+https://www.cbr.com/paddington-greatest-trilogies-of-all-time/
+
+There are some truly stunning trilogies in the film world, but one family adventure franchise is truly one of the best.
+---------
+
+# Yellowstone's John Dutton Replacement Betrays Taylor Sheridan's Flagship
+
+TV, Marshals, CBS, Yellowstone
+
+Sun, 19 Apr 2026 02:37:19 GMT
+
+https://www.cbr.com/yellowstone-marshals-tom-weaver-john-dutton-replacement/
+
+A divisive replacement for the heart and soul of Yellowstone, John Dutton, has emerged in the CBS sequel to Taylor Sheridan's neo-Western flagship.
+---------
+
+# 7 Near-Perfect 2000s Anime Series No One Remembers
+
+Anime, Monster, Welcome to the N.H.K., mecha
+
+Sun, 19 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/near-perfect-2000s-anime-no-one-remembers/
+
+The 2000s was an important decade for anime thanks to major titles ushering in new waves of fans, but not all series gained the same notoriety.
+---------
+
+# 10 Open-World RPGs That Are 10/10, No Notes
+
+Games, Video Games, RPG, open world, Cyberpunk 2077, Elden Ring, The Elder Scrolls V: Skyrim, The Witcher 3: Wild Hunt, Fallout 4
+
+Sun, 19 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/perfect-open-world-rpgs/
+
+The best open-world RPGs quickly become sandboxes fans can built on and explore virtually forever.
+---------
+
+# America Isn't Among Anime's Top 3 Countries, New Global Report Reveals
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle, To Be Hero X, Case Closed, Crunchyroll, India, China
+
+Sun, 19 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/anime-top-country-ranking-america-placing/
+
+A brand-new international anime report reveals that, in terms of viewership, the U.S. is lagging behind two major countries in Asia besides Japan.
+---------
+
+# Netflix vs. Crunchyroll: Best Anime Streaming Service
+
+Anime, Crunchyroll, Netflix
+
+Sun, 19 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/netflix-vs-crunchyroll-best-anime-streaming-platform/
+
+Netflix and Crunchyroll are two streaming platforms with extensive anime catalogs, and both come with pros and cons that fans have debated over time.
+---------
+
+# Netflix Drops Trailer for Raunchy New Series Mating Season
+
+TV, Mating Season
+
+Sun, 19 Apr 2026 01:19:14 GMT
+
+https://www.cbr.com/netflix-mating-season-official-trailer/
+
+Netflix's Big Mouth replacement series gets a new look revealed ahead of its debut.
+---------
+
+# Avengers: Doomsday Solved Its Biggest Problem (But There's a Catch)
+
+Movies, Avengers: Doomsday, superheroes, MCU
+
+Sun, 19 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/avengers-doomsday-fixes-infinity-vision-imax-problem/
+
+Avengers: Doomsday will address the biggest concern ahead of its December release, but not everyone will be on board with this major change.
+---------
+
+# 4 Years Later, Netflix's Long-Gestating Video Game Adaptation Gets Exciting Update
+
+Movies, Gears of War, Netflix
+
+Sun, 19 Apr 2026 00:47:58 GMT
+
+https://www.cbr.com/netflix-gears-of-war-script-update/
+
+The video game adaptation gets an exciting update after spinning its wheels for four years at Netflix.
+---------
+
+# 10 Classic Crime TV Shows Still Worth Binge-Watching
+
+TV, Crime, Breaking Bad, The Sopranos, The Wire
+
+Sun, 19 Apr 2026 02:42:13 GMT
+
+https://collider.com/classic-crime-shows-worth-binge-watching/
+
+Discover classic crime shows that have stood the test of time, offering gripping stories and great characters, from Breaking Bad to The Sopranos.
+---------
+
+# 8 Most Perfect Final Shots of All Time, Ranked
+
+Movie, Inception, Goodfellas, Psycho, Butch Cassidy and the Sundance Kid
+
+Sun, 19 Apr 2026 01:33:12 GMT
+
+https://collider.com/most-perfect-final-movie-shots-all-time-ranked/
+
+Fight Club, Goodfellas, Casablanca, The Godfather, Inception, and more make up our list of the most perfect final movie shots of all time.
+---------
+
+# 'Will Trent's Biggest Creative Mistake Yet Proves the Show Is Losing the Plot
+
+TV Features, Will Trent, Ramon Rodriguez, ABC, Procedural
+
+Sun, 19 Apr 2026 01:01:12 GMT
+
+https://collider.com/will-trent-season-4-amanda-wagner-death-explained/
+
+Will Trent's controversial decision to kill off Amanda Wagner has fans questioning the show's direction thanks to this irreversible creative mistake.
+---------
+
+# 7 Forgotten Sci-Fi Shows That Have Aged Like Fine Wine
+
+TV, Sci-Fi, Firefly, Sense8, Continuum
+
+Sun, 19 Apr 2026 00:34:13 GMT
+
+https://collider.com/forgotten-sci-fi-shows-aged-like-fine-wine/
+
+Time has been extremely kind to forgotten sci-fi TV shows like Firefly, Continuum, and 12 Monkeys, with their reputation improving with age.
+---------
+
+# The Best Sci-Fi Movie of 2014 Is Leaving HBO Max
+
+Movie News, Ex Machina, Oscar Isaac, Alicia Vikander, Domhnall Gleeson
+
+Sun, 19 Apr 2026 00:30:12 GMT
+
+https://collider.com/ex-machina-alex-garland-best-sci-fi-movie-of-2014-leaving-streaming-hbo-max-may-2026/
+
+The critically acclaimed sci-fi movie Ex Machina isn't going to remain at its streaming home for much longer. Find out when it's leaving.
+---------
+
+# Marvel’s Most Overlooked Avengers Movie Is Quietly Taking Over U.S. Streaming
+
+Movie News, Avengers: Age of Ultron, MCU, Disney+, Streaming
+
+Sun, 19 Apr 2026 00:15:12 GMT
+
+https://collider.com/mcu-most-forgettable-sci-fi-movie-avengers-age-of-ultron-streaming-success-disney-plus-april-2026/
+
+The most forgettable Avengers movie in the MCU is back in the streaming charts ahead of Doomsday. Here's what you should know about Age of Ultron.
+---------
+
+# Apple TV’s Fantasy Favorite Is Taking Over Streaming Worldwide
+
+Movie News, Eternity, Elizabeth Olsen, Miles Teller, Callum Turner
+
+Sun, 19 Apr 2026 00:00:13 GMT
+
+https://collider.com/eternity-fantasy-sci-fi-apple-tv-challengers-meets-good-place-streaming-success-april-2026/
+
+Apple TV's good-natured romantic comedy, Eternity, has emerged as one of the streamer's most resilient recent hits. Find out more.
+---------
+
+# Every Upcoming Warner Bros. Movie Confirmed for 2027 & Beyond
+
+Movie Lists, The Lord of the Rings: The Hunt for Gollum, Man of Tomorrow
+
+Sun, 19 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/warner-bros-upcoming-movies-2027-2028/
+
+It's going to be a stacked year for the studio.
+---------
+
+# 'Avengers: Doomsday' Repeats an MCU Captain America Trick for a Third Time
+
+Features, Avengers: Doomsday, MCU, The Avengers, Captain America: The First Avenger
+
+Sun, 19 Apr 2026 00:00:17 GMT
+
+https://movieweb.com/avengers-doomsday-reusing-captain-america-trick/
+
+Recent footage from 'Avengers: Doomsday' confirms fan fears with Marvel looking to repeat Captain America's past story beats.
+---------
+
 # The Sarah Connor Chronicles Was So Good, It Beat The Last 4 Terminator Movies
 
 Classic TV, Terminator: The Sarah Connor Chronicles
