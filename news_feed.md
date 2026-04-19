@@ -1,3 +1,223 @@
+# 10 Most Disappointing Anime Sequels That Fans Still Haven't Forgiven
+
+Anime
+
+Sun, 19 Apr 2026 13:48:52 GMT
+
+https://screenrant.com/most-dissapointing-anime-sequels/
+
+High expectations are generally a sign of quality in anime, but these titles dropped the ball by producing underwhelming sequels.
+---------
+
+# The Super Mario Galaxy Movie's Bowser Change Missed A Golden Game Reference
+
+Movies, The Super Mario Galaxy Movie
+
+Sun, 19 Apr 2026 13:46:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-bowser-hero-game-reference/
+
+Bowser's change to the good side was an unexpected, yet welcome, character shift, but The Super Mario Galaxy Movie missed a chance for a reference.
+---------
+
+# Kaley Cuoco's Raunchy R-Rated Comedy Rises On Streaming After 11 Years
+
+Movies, Masked Recs, Streaming Charts, Kaley Cuoco
+
+Sun, 19 Apr 2026 13:44:30 GMT
+
+https://screenrant.com/kaley-cuoco-movie-the-wedding-ringer-streaming-success/
+
+An R-rated comedy starring The Big Bang Theory's Kaley Cuoco finds a new audience on streaming more than a decade after its original debut.
+---------
+
+# Avengers: Doomsday’s New Trailer Reveals The Doctor Doom Fight That Could Kill A Major MCU Hero
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Sun, 19 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-doctor-doom-thor-fight-death/
+
+Avengers: Doomsday's trailer was just revealed by Marvel, and Doctor Doom fights one of the MCU's top heroes, with a scene making a death more likely.
+---------
+
+# Supergirl Has Already Changed James Gunn's Superman For The Better
+
+Movies, Supergirl, Superman, DC Universe
+
+Sun, 19 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/supergirl-change-superman-james-gunn/
+
+Supergirl's loneliness expands on Superman's darkest moment.
+---------
+
+# Top 10 House of the Dragon Performances Ranked
+
+Streaming TV, House of the Dragon
+
+Sun, 19 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/best-house-of-the-dragon-acting-performances/
+
+House of the Dragon is filled with incredible performances, and there are sure to be more in season 3, but who were the best in seasons 1 and 2?
+---------
+
+# André Øvredal's Upcoming Horror Film Promises To Be Scariest Yet
+
+Movies, Horror, Passenger, The Autopsy of Jane Doe
+
+Sun, 19 Apr 2026 13:15:18 GMT
+
+https://screenrant.com/andre-ovredal-passenger-autopsy-of-jane-doe-horror-movie-scarier/
+
+André Øvredal's latest film, Passenger, is being hyped up as his scariest film ever, which is terrifying since he created The Autopsy of Jane Doe.
+---------
+
+# Rick and Morty's Successor Is Only One Season, Making It The Perfect Sci-Fi Comedy Binge Watch
+
+TV, Rick and Morty, Sci-Fi, Comedy
+
+Sun, 19 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/sunny-side-down-weekend-binge-sci-fi/
+
+The perfect Rick and Morty successor is this excellent sci-fi parody miniseries that you can stream for free on YouTube in under an hour.
+---------
+
+# Final Fantasy 9 Officially Returns In June With New Release
+
+Gaming, Final Fantasy 9, Final Fantasy, PC
+
+Sun, 19 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/final-fantasy-9-official-vivi-ornitier-june-2026/
+
+Final Fantasy 9 is among the most popular entries in the franchise, and fans are getting a new release in June with one of its most iconic characters.
+---------
+
+# 8 Cozy Fantasy Books That Deserve TV Adaptations
+
+Streaming TV, Fantasy
+
+Sun, 19 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/cozy-fantasy-books-deserve-tv-adaptations/
+
+With the demand for cozy fantasy books on the rise, these heartwarming, whimsical novels would make for some excellent low-stakes TV adaptations.
+---------
+
+# I've Only Just Realized That The Sopranos' Ending Was Confirmed in the Show With a Single Throwaway Line
+
+TV, The Sopranos, hbo, Crime
+
+Sun, 19 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/the-sopranos-ending-confirmed-one-line/
+
+Decades later, debate still rages among fans about Tony’s ultimate fate in The Sopranos, but a line from Bobby likely hinted at the truth.
+---------
+
+# The Princess Diaries Is 1 of Disney's Best Cult Classics
+
+Movies, The Princess Diaries
+
+Sun, 19 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/the-princess-diaries-disney-best-cult-classic/
+
+Mia Thermopolis is one of Anne Hathaway's most iconic roles, but it's easy to forget that her first movie wasn't a hit with critics.
+---------
+
+# 10 Best Fantasy Anime to Watch if You Still Miss Frieren
+
+Anime, Frieren: Beyond Journey's End, Witch Hat Atelier
+
+Sun, 19 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/best-fantasy-anime-to-watch-like-frieren/
+
+These anime series are perfect for fans who can't wait for Frieren: Beyond Journey’s End to return with Season 3.
+---------
+
+# Alfred Hitchcock's #1 Fear Is Officially the Weirdest Thing You'll Learn Today
+
+Movie Features, Alfred Hitchcock, Psycho, The Birds, Rear Window
+
+Sun, 19 Apr 2026 13:55:13 GMT
+
+https://collider.com/alfred-hitchcock-fear-eggs/
+
+Alfred Hitchcock mastered suspense on screen, but in real life, he had a strange fear of eggs, which he found deeply revolting and oddly terrifying.
+---------
+
+# 8 Most Entertaining Martin Scorsese Movies, Ranked
+
+Movie, Goodfellas, Martin Scorsese, The Departed, The Wolf of Wall Street
+
+Sun, 19 Apr 2026 13:31:13 GMT
+
+https://collider.com/most-entertaining-martin-scorsese-movies-ranked/
+
+Some of the most entertaining Martin Scorsese movies include classics like Goodfellas, The King of Comedy, and The Wolf of Wall Street.
+---------
+
+# Prime Video’s Hit 2026 Crime Thriller Officially Gets Overtaken by Mark Wahlberg’s Newest Movie
+
+Movie News, Mark Wahlberg, Chris Hemsworth, Balls Up, Crime 101
+
+Sun, 19 Apr 2026 13:30:12 GMT
+
+https://collider.com/prime-video-mark-wahlberg-balls-up-overtakes-chris-hemsworth-crime-101-streaming-success-april-2026/
+
+Prime Video’s streaming darling Crime 101 has officially lost its top spot to Mark Wahlberg’s raunchy new comedy. Read on for more.
+---------
+
+# Netflix’s 10/10 ‘White Lotus’ Replacement Is an Instant Streaming Sensation
+
+TV News, Beef, Netflix, Oscar Isaac, Carey Mulligan
+
+Sun, 19 Apr 2026 13:00:13 GMT
+
+https://collider.com/netflix-white-lotus-replacement-crime-thriller-beef-season-2-streaming-success-april-2026/
+
+Season 2 of Netflix’s Beef, starring Oscar Isaac and Carey Mulligan, is another breakout hit for Netflix in its streaming debut.
+---------
+
+# Hallmark's Cozy Sci-Fi Series 'The Way Home' Sticks the Landing With a Captivating Final Season | Review
+
+TV Reviews, The Way Home, Hallmark, Sci-Fi, Chyler Leigh
+
+Sun, 19 Apr 2026 13:00:13 GMT
+
+https://collider.com/the-way-home-season-4-review/
+
+The Way Home Season 4 expertly juggles multiple major mysteries, focusing on the emotional conflicts and time-traveling adventures of its characters.
+---------
+
+# The Most Controversial Reboot of the 2020s Is Now Netflix's Horror Hit
+
+Movie Features, Halloween, Halloween Ends, Jamie Lee Curtis, John Carpenter
+
+Sun, 19 Apr 2026 12:56:12 GMT
+
+https://collider.com/halloween-ends-controversial-streaming-on-netflix/
+
+Halloween Ends is the third film of the new Halloween trilogy that appears to have finally put Michael Myers to bed.
+---------
+
+# 5 Forgotten '80s Westerns That Are Still Perfect Today
+
+Movie, The Man from Snowy River, Tom Horn, Barbarosa, Western
+
+Sun, 19 Apr 2026 12:56:12 GMT
+
+https://collider.com/forgotten-80s-westerns-still-perfect-today/
+
+The Man from Snowy River, Walker, and Billy the Kid are lesser-known, mostly forgotten '80s Western movies that deserve to be rediscovered.
+---------
+
 # The Duffer Brothers’ Next Sci-Fi After Stranger Things Is Only Weeks Away
 
 TV, The Boroughs, Stranger Things
