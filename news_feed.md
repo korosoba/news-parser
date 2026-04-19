@@ -1,3 +1,91 @@
+# Red Dead Redemption 3 Setting Splits Gamers, And We Can See Why
+
+Gaming, Red Dead Redemption 2
+
+Sun, 19 Apr 2026 11:31:18 GMT
+
+https://screenrant.com/red-dead-redemption-3-setting-gamers-speculate/
+
+Fans debate potential settings for Red Dead Redemption 3, with some preferring a prequel while others want a new protagonist and era.
+---------
+
+# 18 Years Later, M. Night Shyamalan's The Happening Is Almost A Masterpiece
+
+Movies, The Happening, Sci-Fi, Horror
+
+Sun, 19 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/m-night-shyamalan-the-happening-movie-flop-actually-great/
+
+The iconic director's most hated movie deserves another chance with sci-fi horror fans today.
+---------
+
+# The Best Episode From Each Season of Star Trek: The Next Generation
+
+TV, Star Trek: The Next Generation, Star Trek, patrick stewart
+
+Sun, 19 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/star-trek-tng-best-episode-every-season-list/
+
+Every season of Star Trek: The Next Generation had at least one episode that should be considered a masterpiece.
+---------
+
+# Taylor Sheridan's Take on a Tom Clancy Thriller Is Quietly Climbing Global Streaming Charts
+
+Movie News, Tom Clancy, Taylor Sheridan, Without Remorse, Prime Video
+
+Sun, 19 Apr 2026 11:45:12 GMT
+
+https://collider.com/taylor-sheridan-tom-clancy-spy-thriller-without-remorse-streaming-success-free-tubi-april-2026/
+
+Michael B. Jordan, Taylor Sheridan, and Tom Clancy collide in Without Remorse, which is seeing a resurgence on streaming. Read on for more.
+---------
+
+# 10 Greatest Horror Book Masterpieces, Ranked
+
+Movie, Horror, The Haunting of Hill House, It, Dracula
+
+Sun, 19 Apr 2026 11:44:12 GMT
+
+https://collider.com/best-horror-book-masterpieces-ranked/
+
+The horror genre has thrived in literature for centuries, thanks to titles like The Turn of the Screw and Dracula that qualify as true masterpieces.
+---------
+
+# 10 Years Later, Stephen King’s 8-Part Sci-Fi Series Is Even More Relevant Today
+
+TV Features, 11.22.63, Stephen King, James Franco, Sarah Gadon
+
+Sun, 19 Apr 2026 11:43:12 GMT
+
+https://collider.com/stephen-king-11-22-63-modern-relevance/
+
+Stephen King’s 11.22.63 explores control, consequence, and history. Ten years later, its themes feel more relevant than ever.
+---------
+
+# 30 Years Later, This 87-Minute Sci-Fi Adventure Is a Streaming Smash Hit
+
+Movie News, Space Jam, Peacock, Streaming
+
+Sun, 19 Apr 2026 11:30:12 GMT
+
+https://collider.com/space-jam-sci-fi-adventure-streaming-success-peacock-april-2026/
+
+Space Jam, starring Michael Jordan alongside the Looney Tunes, is one of the most nostalgic movies of all time and back on the U.S. streaming charts.
+---------
+
+# 10 Greatest TV Show Endings of All Time, Ranked
+
+TV, Breaking Bad, The Sopranos, Friends, Mad Men
+
+Sun, 19 Apr 2026 11:09:12 GMT
+
+https://collider.com/best-tv-endings-all-time-ranked/
+
+Arguably more important than how a great TV show starts is how it end, and series like Breaking Bad, Friends, and The Sopranos went out in style.
+---------
+
 # "My Name Is Peter Parker": What A CW Spider-Man Show Would've Looked Like
 
 Classic TV, Spider-Man
