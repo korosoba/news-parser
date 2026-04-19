@@ -1,3 +1,179 @@
+# Paul Rudd's New Dark Comedy Adaptation Is Officially The Next Don't Look Up
+
+New Movies, Don't Look Up, Paul Rudd
+
+Sun, 19 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/paul-rudd-losing-earth-adaptation-dont-look-up/
+
+A new dark comedy starring Paul Rudd and helmed by Oscar-winning director Tom McCarthy is officially poised to be the next Don’t Look Up.
+---------
+
+# Dragon Ball Z Is Still The Greatest Anime Of All Time Because It Breaks Every Single Rule Of Shonen Storytelling
+
+Anime, Dragon Ball
+
+Sun, 19 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/dragon-ball-z-greatest-anime-breaks-shonen-storytelling-rules/
+
+There are a couple of rules that define shonen series; Dragon Ball breaks them all, and that might be the reason why it's the greatest of all time.
+---------
+
+# 10 Upcoming Games Every Baldur's Gate 3 Fan Should Have On Their Radar
+
+Gaming, Baldur's Gate 3, Triple-A Games, PC
+
+Sun, 19 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/upcoming-games-baldurs-gate-3-fans/
+
+It's no secret Baldur's Gate 3 is an incredibly hard game to top, but these upcoming games are well worth checking out for any fan of the CRPG genre.
+---------
+
+# DC Is Teasing The Craziest Twist For Batman’s Origins In 87 Years
+
+Comics, Batman, DC Comics
+
+Sun, 19 Apr 2026 22:45:19 GMT
+
+https://screenrant.com/dc-absolute-batman-origins-project-batman-twist-explained/
+
+DC is teasing the craziest origins twist for its newest version of Batman, one very few readers were likely expecting (but is it actually real?)
+---------
+
+# Crunchyroll's Undisputed Best Fantasy Anime Is The One That Breaks Every Rule
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 19 Apr 2026 22:42:23 GMT
+
+https://screenrant.com/frieren-crunchyroll-best-fantasy-anime-break-every-rule/
+
+Discover why Frieren: Beyond Journey's End has become a top fantasy anime, breaking genre tropes with its unique story and compelling characters.
+---------
+
+# Metal Slug Celebrates 30 Years With a Surprise Reboot
+
+Games, Metal Slug Tactics
+
+Sun, 19 Apr 2026 23:22:50 GMT
+
+https://www.cbr.com/metal-slug-30-years-reboot/
+
+After three decades, the run and gun classic Metal Slug is getting rebooted.
+---------
+
+# This Divisive Anime Was Actually Ahead of Its Time
+
+Anime, Sword Art Online
+
+Sun, 19 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/sword-art-online-ahead-of-its-time/
+
+Sword Art Online landed years before viewers were ready to fully appreciate the genius of its ideas.
+---------
+
+# Stephen King's $68.5M Sci-Fi Remake The Running Man Is a Streaming Hit on Prime Video
+
+Movies, The Running Man
+
+Sun, 19 Apr 2026 23:00:13 GMT
+
+https://www.cbr.com/stephen-king-the-running-man-sci-fi-prime-video-success-april-2026/
+
+The film flopped in theaters but it's thriving on multiple streaming platforms.
+---------
+
+# Tia Carrere's Tomb Raider-Style Series Relic Hunter Is Streaming for Free
+
+TV, Relic Hunter
+
+Sun, 19 Apr 2026 22:58:43 GMT
+
+https://www.cbr.com/relic-hunter-streaming-free-tubi-youtube/
+
+Tia Carrere played the "female Indiana Jones" in the long-forgotten series that's now streaming for free.
+---------
+
+# HBO’s 6-Part Hard Sci-Fi Series Is a Hidden Gem in a $355M Franchise
+
+TV Features, Dune: Prophecy, Dune, HBO Max, HBO
+
+Sun, 19 Apr 2026 23:27:12 GMT
+
+https://collider.com/dune-prophecy-hbo-hard-sci-fi-hidden-gem/
+
+Discover the origins of the Dune universe in HBO's Prophecy series, set 10,000 years before the Denis Villeneuve movies.
+---------
+
+# The Most-Hated HBO Series of All Time Stages a Surprising Streaming Comeback
+
+TV News, The Idol, Sam Levinson, HBO Max, Lily-Rose Depp
+
+Sun, 19 Apr 2026 23:15:12 GMT
+
+https://collider.com/hbo-max-most-hated-series-the-idol-streaming-success-april-2026/
+
+Euphoria's creator, Sam Levinson, helmed an even more controversial drama for HBO that is seeing renewed interest. Get all the details.
+---------
+
+# 1 Year Later, Rebecca Ferguson’s 118-Minute War Epic Is Being Abandoned on Netflix
+
+Movie News, A House of Dynamite, Rebecca Ferguson, Netflix, Idris Elba
+
+Sun, 19 Apr 2026 23:00:13 GMT
+
+https://collider.com/rebecca-ferguson-war-epic-a-house-of-dynamite-netflix-streaming-disappointment-april-2026/
+
+Rebecca Ferguson's polarizing war epic with Idris Elba, A House of Dynamite, has been abandoned by audiences on Netflix.
+---------
+
+# This 8-Part Sci-Fi Masterpiece Has 1 Shot You Can’t Look Away From
+
+TV Features, Devs, FX, Hulu, Alex Garland
+
+Sun, 19 Apr 2026 22:49:12 GMT
+
+https://collider.com/devs-fx-hulu-8-part-sci-fi-maserpiece-perfect-shot/
+
+Alex Garland delivered a unique sci-fi story with Devs, particularly in a single shot.
+---------
+
+# HBO's 5-Part Drama Miniseries Is Still One of Its Best Shows To Binge 7 Years Later
+
+TV Features, Chernobyl, HBO Max, Stellan Skarsgård, Emily Watson
+
+Sun, 19 Apr 2026 22:46:12 GMT
+
+https://collider.com/chernobyl-hbo-drama-miniseries-best-binge/
+
+HBO's acclaimed miniseries Chernobyl masterfully portrays the 1986 nuclear disaster, delving into truth, accountability, and the consequences of lies.
+---------
+
+# Sydney Sweeney's Biggest Box Office Bomb Ever Is a #1 Streaming Hit on HBO Max
+
+TV News, Sydney Sweeney, Christy, HBO Max, Ben Foster
+
+Sun, 19 Apr 2026 22:45:12 GMT
+
+https://collider.com/sydney-sweeney-box-office-bomb-christy-streaming-success-hbo-max-charts-april-2026/
+
+Sydney Sweeney’s Christy hit No. 1 on HBO Max just as Euphoria returned to the top of the platform’s TV charts.
+---------
+
+# 'Spaceballs: The New One' Hits Theaters in 2027 - & We Need It More Than Ever
+
+Features, Spaceballs: The New One, Spaceballs
+
+Sun, 19 Apr 2026 23:15:17 GMT
+
+https://movieweb.com/spaceballs-the-new-one-necessary-satire-hollywood-sequels/
+
+Mel Brooks' long-awaited sequel 'Spaceballs: The New One' is set to hit theaters next year, delivering a level of satire that Hollywood needs.
+---------
+
 # Dark Souls 3 Next-Gen Remaster Leaves Gamers Floored
 
 Gaming, Dark Souls 3
