@@ -1,3 +1,91 @@
+# "My Name Is Peter Parker": What A CW Spider-Man Show Would've Looked Like
+
+Classic TV, Spider-Man
+
+Sun, 19 Apr 2026 11:01:18 GMT
+
+https://screenrant.com/spider-man-cw-show-arrowverse-style-what-if/
+
+Peter Parker could have been an incredible character to adapt for an Arrowverse series if the conditions were right, thanks to the strong foundations.
+---------
+
+# 10 Most Iconic Pokémon From Gen 2
+
+Gaming, Pokemon
+
+Sun, 19 Apr 2026 11:01:18 GMT
+
+https://screenrant.com/most-iconic-pokemon-gen-2-johto/
+
+While Gen 2 Pokémon had some big shoes to fill, the generation from the Johto region didn't disappoint with the release of Pokémon Gold and Silver.
+---------
+
+# HBO Max’s New High-Stakes 4-Part Docuseries With Alex Honnold Is Impossible To Look Away From
+
+Streaming TV, Masked Recs
+
+Sun, 19 Apr 2026 10:48:18 GMT
+
+https://screenrant.com/hbo-max-dark-wizard-series-must-watch/
+
+Discover the high-stakes world of free solo climbing in HBO Max's new 4-part docuseries featuring Alex Honnold and The Dark Wizard, Dean Potter.
+---------
+
+# 10 Objects That Changed Marvel Comics Forever
+
+Comics, Marvel
+
+Sun, 19 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/objects-that-changed-the-marvel-universe-forever/
+
+Relics, weapons, and artifacts whose power reshaped destiny across the Marvel Universe.
+---------
+
+# The High Chaparral Still Outshines Most Revisionist Westerns
+
+TV, Western, The High Chaparral
+
+Sun, 19 Apr 2026 10:30:12 GMT
+
+https://www.cbr.com/the-high-chaparral-outshines-modern-revisionist-westerns/
+
+Released in 1967, The High Chaparral is one of the first revisionist TV Westerns to add depth to typically underdeveloped characters.
+---------
+
+# 6 Years Later, Tom Hanks’ WWII Thriller Is Still One of the Best on Streaming
+
+Movie News, Tom Hanks, Greyhound, World War II, Apple TV
+
+Sun, 19 Apr 2026 11:01:12 GMT
+
+https://collider.com/tom-hanks-ww2-epic-greyhound-streaming-success-apple-tv-april-2026/
+
+Tom Hanks' Greyhound is currently one of Apple TV’s top movies worldwide as attention grows ahead of the announced sequel.
+---------
+
+# Netflix Officially Finds the Perfect 'Witcher' Replacement for Fantasy Fans
+
+TV Features, Magic: The Gathering, The Witcher, Netflix, Fantasy
+
+Sun, 19 Apr 2026 11:01:12 GMT
+
+https://collider.com/witcher-replacement-magic-the-gathering-netflix-fantasy/
+
+Fans of The Witcher need to watch the upcoming series Magic: The Gathering, a fantasy show based on the elaborate card game.
+---------
+
+# Ridley Scott's 10/10 Sci-Fi Prequel Is Still a Colossal Streaming After Leaving Netflix
+
+Movie News, Ridley Scott, Prometheus, Alien, Sci-Fi
+
+Sun, 19 Apr 2026 10:30:12 GMT
+
+https://collider.com/ridley-scott-sci-fi-epic-prometheus-global-streaming-success-hbo-max-april-2026/
+
+Prometheus climbed to No. 2 on HBO Max's global movie chart in April after grossing $403.4 million worldwide in theaters. Read on for more.
+---------
+
 # Fallout 5 Can Wait, This Fallout 4 Expansion Adds 24 Hours Worth Of New Quests
 
 Gaming, Fallout 5, Fallout, Fallout 4
