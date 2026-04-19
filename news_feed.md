@@ -1,3 +1,124 @@
+# Daredevil: Born Again Season 2 Confirms Marvel Has Officially Found Their Replacement For Stan Lee Cameos
+
+Comics, Marvel, Marvel Cinematic Universe, Daredevil: Born Again, Daredevil
+
+Sun, 19 Apr 2026 21:31:56 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-watcher-stan-lee-replacement/
+
+Daredevil: Born Again Season 2 features a phenomenal Easter egg that should go on to influence environmental references for years to come in the MCU.
+---------
+
+# 10 Devastating TV Endings That Actually Worked
+
+Classic TV
+
+Sun, 19 Apr 2026 21:30:18 GMT
+
+https://screenrant.com/devastating-tv-endings-that-worked/
+
+TV endings are notoriously hard to get right, as they are the last impressions we get of our beloved characters, while needing to wrap up major plots.
+---------
+
+# Sydney Sweeney's The Housemaid Returns to No. 1 on PVOD After Debuting on Streaming
+
+Movies, The Housemaid
+
+Sun, 19 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-thriller-pvod-success-april-2026/
+
+The thriller even defeated Avatar: Fire and Ash.
+---------
+
+# 10 Box Office Flops From the 1990s That Became Cult Classics
+
+Movies, Batman
+
+Sun, 19 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/box-office-flops-the-1990s-that-became-cult-classics/
+
+Despite poor performances at the box office, these 1990s films went on to become beloved cult classics.
+---------
+
+# A24's Undertone Is the Perfect Blair Witch Project Horror Replacement
+
+Movies, undertone, Horror, The Blair Witch Project
+
+Sun, 19 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/a24-undertone-perfect-blair-witch-project-horror-replacement/
+
+The Blair Witch Project is one of the most profitable horror films ever made, but it failed to create a successful franchise. A24 found the answer.
+---------
+
+# Netflix’s 6-Part Crime Series Griselda Is the Perfect Ozark Replacement
+
+TV, Crime, Griselda
+
+Sun, 19 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/netflix-griselda-crime-series-perfect-ozark-replacement/
+
+Netflix’s Griselda feels like the closest thing to an Ozark replacement, offering a grounded crime drama experience in a tight six-episode binge.
+---------
+
+# 10 Most Mind-Bending Movies Released Since 'Memento'
+
+Movie, Memento, Christopher Nolan, Mulholland Drive, Paprika
+
+Sun, 19 Apr 2026 21:55:12 GMT
+
+https://collider.com/most-mind-bending-movies-since-memento/
+
+Christopher Nolan's Memento is famously mind-bending, much like other puzzle movies like Paprika, Mulholland Drive, and Predestination.
+---------
+
+# 10 Greatest Animated Movie Endings of All Time, Ranked
+
+Movie, Toy Story 3, Animation, Pixar, Disney
+
+Sun, 19 Apr 2026 21:42:12 GMT
+
+https://collider.com/animated-movie-endings-best-ranked/
+
+Beloved animated movies like Toy Story 3, Pinocchio, and The Lion King have some of the best endings in the history of the medium.
+---------
+
+# Apple TV’s 2-Part Mystery Is One of Its Best Shows To Binge
+
+TV Features, The Afterparty, Apple TV, Tiffany Haddish, Sam Richardson
+
+Sun, 19 Apr 2026 21:41:12 GMT
+
+https://collider.com/the-afterparty-apple-tv-mystery-series-best-binge/
+
+Apple TV's The Afterparty stands out with its innovative murder mystery format, shifting genres with every episode for a bingeworthy series.
+---------
+
+# Titus Welliver Officially Confirms "Discussions" About 'Bosch: Legacy' Season 4
+
+TV News, Bosch, Bosch: Legacy, Titus Welliver
+
+Sun, 19 Apr 2026 21:30:12 GMT
+
+https://collider.com/titus-welliver-bosch-legacy-season-4-discussions-confirmed/
+
+Titus Welliver says there have been discussions about Bosch: Legacy Season 4, though nothing is definitive as the franchise focuses on Start of Watch.
+---------
+
+# 'All the Presiden'ts Men': The Most Important Movie About Journalism  Keeps Getting Better
+
+Features, All the President's Men, Robert Redford, Dustin Hoffman
+
+Sun, 19 Apr 2026 21:30:17 GMT
+
+https://movieweb.com/all-the-presidents-men-keeps-getting-better/
+
+'All the President's Men' hasn't aged a day. This is still the most important movie about journalism, and it's still a vital American film.
+---------
+
 # Dragon Ball Super Announces The New Frieza Anime Fans Have Waited 3 Decades For
 
 Anime, Dragon Ball, Dragon Ball Super
