@@ -1,3 +1,157 @@
+# Netflix's 4-Part Sci-Fi Dystopian Series Is So Perfect, You'll Spend The Whole Weekend Binge-Watching It
+
+Streaming TV, Masked Recs
+
+Sun, 19 Apr 2026 19:54:13 GMT
+
+https://screenrant.com/love-death-and-robots-dystopian-series-perfect-binge-weekend/
+
+Netflix's Love, Death & Robots is such an engrossing anthology series that you'll end up binge-watching the whole thing over a long weekend.
+---------
+
+# This 58-Year-Old Star Trek Episode Hits Different In 2026
+
+Classic TV, Star Trek
+
+Sun, 19 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/star-trek-the-ultimate-computer-2026-hit-different/
+
+Star Trek is one of the greatest sci-fi franchises made, both for its progressive values and iconic characters, and for eerily predicting the future.
+---------
+
+# Sydney Sweeney’s Devil Wears Prada 2 Role Clarified By Writer
+
+Movies, The Devil Wears Prada 2, Sydney Sweeney
+
+Sun, 19 Apr 2026 19:27:37 GMT
+
+https://screenrant.com/sydney-sweeney-devil-wears-prada-2-role-mckenna-response/
+
+EXCLUSIVE: After Sydney Sweeney was reportedly spotted on The Devil Wears Prada 2's set, her role in the sequel is clarified by the film's writer.
+---------
+
+# After 85 Years, Wonder Woman Officially Debuts a Permanent New Superpower
+
+Comics, Wonder Woman
+
+Sun, 19 Apr 2026 19:23:18 GMT
+
+https://screenrant.com/absolute-wonder-woman-permanent-new-superpower-love/
+
+After decades of consistent powers, we now see Wonder Woman gain a brand-new superpower. However, this one comes with a tragic cost.
+---------
+
+# April 21 Will Be a Great Day for Xbox Game Pass Members
+
+Games, Xbox (Original), Hades 2, Cyberpunk 2077
+
+Sun, 19 Apr 2026 19:40:12 GMT
+
+https://www.cbr.com/xbox-game-pass-day-one-release-vampire-crawlers-april-2026/
+
+On April 21, a special new game will be following in the footsteps of Cyberpunk 2077 and Hades II, as it becomes free-to-play on Xbox Game Pass.
+---------
+
+# Alicia Silverstone's Shark Feature The Requin Resurfaces on Netflix
+
+Movies, The Requin
+
+Sun, 19 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/alicia-silverstone-the-requin-netflix-hit/
+
+Alicia Silverstone's shark horror thriller resurfaces on Netflix after the debut of Thrash.
+---------
+
+# Every Iron Fist in the MCU
+
+TV, Iron Fist, Marvel Cinematic Universe
+
+Sun, 19 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/every-mcu-iron-fist-list/
+
+Finn Jones is bringing Danny Rand's Iron Fist back to the MCU, but he's not alone as the Protector of K'un-Lun.
+---------
+
+# 10 Best Crunchyroll Original Anime Series
+
+Anime, Crunchyroll
+
+Sun, 19 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/greatest-crunchyroll-original-anime-series-list/
+
+Anime fans shouldn't sleep on Crunchyroll's best original anime series.
+---------
+
+# 10 Mystery Movies That Keep You Guessing From Start to Finish
+
+Movie, Mystery, Knives Out, Rear Window, Where the Crawdads Sing
+
+Sun, 19 Apr 2026 19:36:13 GMT
+
+https://collider.com/mystery-movies-keep-you-guessing-start-to-finish/
+
+From Shutter Island to Mulholland Drive, these mystery movies offer thrilling and twisting narratives that will keep you on your toes until the end.
+---------
+
+# 8 Years Later, Netflix's 7-Part Fantasy Epic Is Still One of the Best Shows To Binge
+
+TV Features, The Dragon Prince, Netflix, Fantasy, Jack De Sena
+
+Sun, 19 Apr 2026 19:14:12 GMT
+
+https://collider.com/the-dragon-prince-netflix-fantasy-animated-epic-binge/
+
+The Dragon Prince is a hidden gem with its lovable characters, intricate worldbuilding, and thrilling adventures set in a divided world.
+---------
+
+# 'Manifest': The Only ‘Lost’ Replacement You'll Ever Need
+
+Features, Lost, Manifest
+
+Sun, 19 Apr 2026 19:30:17 GMT
+
+https://movieweb.com/manifest-lost-perfect-replacement/
+
+Lost did a great job of mixing sci-fi with the supernatural and mythology, but there's another show that came later and approached it differently.
+---------
+
+# Sydney Sweeney's Late-Night R-Rated Thriller 'The Voyeurs' Streams for Free on Tubi in May 2026
+
+Movie News, The Voyeurs, Tubi, Coming/Leaving Streaming, Sydney Sweeney
+
+Sun, 19 Apr 2026 19:30:08 GMT
+
+https://movieweb.com/sydney-sweeney-r-rated-the-voyeurs-streaming-free-tubi-may-2026/
+
+After 'Euphoria' Season 3, Sydney Sweeney and Justice Smith's very R-rated thriller, 'The Voyeurs,' streams for free on Tubi in May 2026.
+---------
+
+# Mike Myers Revives Shrek for Eddie Murphy's AFI Lifetime Achievement Award
+
+Movie News, Shrek, Mike Myers, Eddie Murphy
+
+Sun, 19 Apr 2026 19:27:51 GMT
+
+https://movieweb.com/mike-myers-shrek-eddie-murphy/
+
+Ahead of their reunion in 'Shrek 5,' Mike Myers embodied Shrek in person to help honor co-star Eddie Murphy's new lifetime achievement award.
+---------
+
+# Jessica Chastain Says Apple TV Will Air 'The Savant' After Postponement
+
+TV News, The Savant, Apple TV, Jessica Chastain
+
+Sun, 19 Apr 2026 19:19:29 GMT
+
+https://movieweb.com/jessica-chastain-savant-apple-delay/
+
+We will finally see the hot-button show 'The Savant.'
+---------
+
 # Game Of Thrones Star's 4-Part Series Is A Hidden Gem On HBO Max
 
 Streaming TV, Masked Recs
