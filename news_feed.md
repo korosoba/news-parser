@@ -1,3 +1,267 @@
+# Every D&D Paladin Oath, Ranked Worst To Best
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons
+
+Sun, 19 Apr 2026 16:30:21 GMT
+
+https://screenrant.com/dnd-paladin-oaths-ranked-worst-best-dungeons-dragons/
+
+Paladins have a total of nine official oaths that can be taken in Dungeons & Dragons 5e, but which option is the best and which is the worst?
+---------
+
+# Black Clover's Finale Is Literally Just One Step Away From Perfection
+
+Anime, Black Clover
+
+Sun, 19 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/black-clover-ending-asta-yuno-fight-perfect/
+
+The final arc of Black Clover made some missteps in its execution, but the final chapters still have one clear resolution they must address.
+---------
+
+# 10 Underrated Sci-Fi Shows That Deserve More Recognition
+
+Classic TV, Masked Recs
+
+Sun, 19 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/near-perfect-sci-fi-shows-no-one-ever-talks-about/
+
+Sci-fi shows that flew under the radar, offering exceptional storytelling and innovative concepts often overshadowed by more popular titles.
+---------
+
+# Every OG Game Of Thrones Character Alive During A Knight Of The Seven Kingdoms
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Sun, 19 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-game-of-thrones-characters-alive/
+
+Knight of the Seven Kingdoms is set well before the main series, but there are several Game of Thrones characters already around in the prequel.
+---------
+
+# Zelda: The Masked Ones Is A Hauntingly Beautiful New Adventure
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sun, 19 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/legend-of-zelda-masked-ones-fan-game/
+
+The Masked Ones is an Ocarina of Time mod that is adding a whole new layer of beauty to the classic game.
+---------
+
+# 10 Sci-Fi Horror Movies That Are Truly Terrifying
+
+Movies, Color Out of Space, The Fourth Kind, Europa Report, Life, Pandorum, Sunshine, Fire In The Sky, The Thing, Event Horizon, Alien
+
+Sun, 19 Apr 2026 16:20:19 GMT
+
+https://screenrant.com/scariest-sci-fi-horror-movies/
+
+Aliens and the unknown depths of space can be far scarier than any human threat, and here's a selection of sci-fi horrors not for the faint-hearted.
+---------
+
+# Amazon's Fourth Wing Series Can Fix The Mistakes Of The Rings Of Power & The Wheel Of Time
+
+Streaming TV, Fourth Wing, The Lord of the Rings: The Rings of Power, The Wheel of Time
+
+Sun, 19 Apr 2026 16:15:18 GMT
+
+https://screenrant.com/amazon-fourth-wing-show-fix-rings-of-power-wheel-of-time/
+
+Prime Video has one chance to make up for the mistakes of Rings of Power and The Wheel of Time, and its new fantasy series will be just the thing.
+---------
+
+# Widow’s Bay’s Unique Marketing Campaign Makes It A Must-Watch
+
+Streaming TV, Apple TV, Masked Recs
+
+Sun, 19 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/widows-bay-trailers-no-spoilers/
+
+The creative team behind Apple TV's upcoming horror-comedy series takes a unique approach to marketing, making it a captivating must-watch.
+---------
+
+# New Spider-Man Game Tease Could Be For Multiple Projects
+
+Gaming, Marvel's Spider-Man, Marvel's Spider-Man 3, Spider-Man, Marvel, Triple-A Games
+
+Sun, 19 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/marvels-spider-man-3-tease-peter-parker-cameos/
+
+An exciting tease for Insomniac's Marvel's Spider-Man franchise could be hinting at Marvel's Spider-Man 3, but that's not all it may be for.
+---------
+
+# Top 10 Underrated Animated Movies Of The 2020s
+
+Movies, Animation, Recommendation
+
+Sun, 19 Apr 2026 15:50:19 GMT
+
+https://screenrant.com/underrated-animated-movies-2020s/
+
+The 2020s have been home to some incredible animated films, which has made it so some of the best have been overlooked and deserve more love.
+---------
+
+# Modern Cartoons Owe Everything to The Marvelous Misadventures of Flapjack
+
+TV, The Marvelous Misadventures Of Flapjack, Cartoon Network
+
+Sun, 19 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/marvelous-misadventures-of-flapjack-animated-fantasy-cartoon-influence/
+
+Despite its brief run, one Cartoon Network show left a lasting imprint on the animation industry.
+---------
+
+# Heartstopper Finale Loses Oscar Winner Olivia Colman in Major Cast Shakeup
+
+TV, Heartstopper
+
+Sun, 19 Apr 2026 16:17:57 GMT
+
+https://www.cbr.com/heartstopper-forever-loses-olivia-colman/
+
+The hit Netflix series with 98% RT score paved the way for Heated Rivalry.
+---------
+
+# Marvel Officially Confirms Doctor Doom's Return In An Unbelievable Way
+
+Comics, Fantastic Four, Planet of the Apes
+
+Sun, 19 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/planet-of-the-apes-vs-fantastic-four-doctor-doom/
+
+Marvel just set up one of the greatest villains from a completely different franchise as the next on line to take up the mantle of Doctor Doom.
+---------
+
+# Studio Ghibli's Biggest-Ever My Neighbor Totoro Plush Toy Returns to Official Online Store
+
+Anime, My Neighbor Totoro, Studio Ghibli, merchandise, toys
+
+Sun, 19 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/studio-ghibli-totoro-biggest-plush-toy-release-april-2026/
+
+The biggest-ever My Neighbor Totoro plush makes its way back to the official Studio Ghibli store, although it may not be there much longer.
+---------
+
+# What's Coming to Hulu in May 2026? Full List of Everything Arriving
+
+Movies, Hulu
+
+Sun, 19 Apr 2026 15:50:16 GMT
+
+https://www.cbr.com/whats-coming-to-hulu-in-may-2026-full-list/
+
+The successful Alien film that rebooted the franchise is heading to Hulu in May, alongside many licensed titles.
+---------
+
+# Avengers: Endgame Is Officially Retconning the Story Ahead of Doomsday
+
+Movies, MCU, Marvel, Marvel Comics, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Sun, 19 Apr 2026 15:34:12 GMT
+
+https://www.cbr.com/avengers-endgame-officially-altering-story-ahead-of-doomsday/
+
+Avengers: Endgame's re-release will not be the same movie the world saw in 2019.
+---------
+
+# 10 Greatest Opening Scenes in Supernatural Thrillers, Ranked
+
+Movie, Weapons, Hereditary, Suspiria, Sinister
+
+Sun, 19 Apr 2026 16:06:13 GMT
+
+https://collider.com/supernatural-thriller-opening-scenes-best-ranked/
+
+Scary movies like Sinister, Weapons, and Hereditary have some of the best opening scenes ever in the supernatural thriller genre.
+---------
+
+# 'Euphoria' Meets 'The White Lotus' in Netflix’s Scandalous 8-Part Replacement Being Discovered on Streaming
+
+TV News, Euphoria, Class, Elite, Netflix
+
+Sun, 19 Apr 2026 16:00:12 GMT
+
+https://collider.com/netflix-euphoria-replacement-crime-thriller-class-streaming-success-april-2026/
+
+As Euphoria Season 3 loses critics and fans, Netflix’s similar 2023 crime thriller has quietly become a streaming success. Read on for more.
+---------
+
+# The Best Sci-Fi Series on Prime Video Is a 5-Part Epic Perfect From Start to Finish
+
+TV Features, The Expanse, Thomas Jane, Steven Strait, Prime Video
+
+Sun, 19 Apr 2026 15:54:13 GMT
+
+https://collider.com/the-expanse-prime-video-sci-fi-epic-perfect-series/
+
+The political tensions and space colonization themes in Prime Video's sci-fi epic The Expanse is what makes it such a perfect series to binge.
+---------
+
+# Ridley Scott's $466 Million Action Blockbuster 'Gladiator' Secures New Free Streaming Home
+
+Movie News, Ridley Scott, Gladiator, Coming/Leaving Streaming, Action
+
+Sun, 19 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/ridley-scott-action-epic-gladiator-streaming-free-tubi-may-2026/
+
+One of Ridley Scott's calling cards that some have named "one of the best movies ever made" has found a new free streaming home.
+---------
+
+# 'The Hunt for Gollum': Every New and Returning Actor in the 2027 'Lord of the Rings' Movie & Who They're Playing
+
+Features, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Sun, 19 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/the-hunt-for-gollum-cast-characters-explained/
+
+The first cast for the next entry in Middle-earth has been revealed, including returning stars, a recast icon, and original characters.
+---------
+
+# Best Portrayals of the Devil on TV Shows
+
+TV Lists
+
+Sun, 19 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/devil-portrayal-tv-shows/
+
+Network dramas, side-splitting comedies, and prestige streaming series, these are the greatest Devil portrayals in TV history.
+---------
+
+# 'The Batman Part II' Adds 'Game Of Thrones' Star Charles Dance To Cast
+
+Movie News, The Batman – Part II, Charles Dance, The Batman
+
+Sun, 19 Apr 2026 15:43:53 GMT
+
+https://movieweb.com/batman-part-ii-charles-dance/
+
+Charles Dance will play another tyrannical father in 'The Batman Part II.'
+---------
+
+# Kevin Feige Says the MCU Multiverse Enabled Robert Downey Jr.'s Doctor Doom
+
+Movie News, Avengers: Doomsday, Robert Downey Jr., Kevin Feige
+
+Sun, 19 Apr 2026 15:16:36 GMT
+
+https://movieweb.com/kevin-feige-robert-downey-jr-doom/
+
+Top Marvel executive Kevin Feige explains how the multiverse allowed for Robert Downey Jr.'s return to the franchise as Doctor Doom.
+---------
+
 # 7 Action Shows Superior to Reacher
 
 Streaming TV, Reacher
