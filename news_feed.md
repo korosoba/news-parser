@@ -1,3 +1,190 @@
+# Steam Drops 2 Free Games You Have 24 Hours To Download And Keep
+
+Gaming, Steam
+
+Sun, 19 Apr 2026 04:45:18 GMT
+
+https://screenrant.com/steam-2-free-games-24-hours-april-2026/
+
+Steam is no stranger to offering up free games, but you currently only have around 24 hours left to grab two of them, so you need to act fast.
+---------
+
+# Baldur's Gate 3 Meets Split Fiction In New Steam RPG
+
+Gaming, Steam, RPG, Indie, PC
+
+Sun, 19 Apr 2026 04:30:18 GMT
+
+https://screenrant.com/steam-rpg-baldurs-gate-3-co-op-game/
+
+RPG fans who enjoy Baldur’s Gate 3 and the co-op haven seen in Split Fiction will be delighted to know about this new RPG releasing on Steam soon.
+---------
+
+# PlayStation Drops 5 New Free Downloads You Don't Need PS Plus For
+
+Gaming, PlayStation 5
+
+Sun, 19 Apr 2026 04:00:28 GMT
+
+https://screenrant.com/playstation-april-2026-free-downloads-no-ps-plus/
+
+PlayStation has some new free downloads available that let players try out games before they commit to the full purchase.
+---------
+
+# Russell Crowe Extends Rotten Tomatoes Streak With New Martial Arts Movie
+
+Movies, Beast, Russell Crowe
+
+Sun, 19 Apr 2026 03:59:33 GMT
+
+https://screenrant.com/beast-2026-movie-rotten-tomatoes-score-russell-crowe-streak/
+
+Oscar-winning actor Russell Crowe is seeing an outstanding Rotten Tomatoes streak being extended with the release of his new wrestling movie.
+---------
+
+# Thanks To Recent Star Wars Projects, The Empire Has Never Been More Intimidating
+
+Star Wars, Star Wars: Maul - Shadow Lord, Andor
+
+Sun, 19 Apr 2026 03:58:15 GMT
+
+https://screenrant.com/star-wars-empire-intimidating-shadow-lord-andor/
+
+Thanks to recent Star Wars projects, we've all been reminded just how intimidating and scary the Galactic Empire truly is in the galaxy far, far away.
+---------
+
+# New Revenge Thriller With Game Of Thrones Star Debuts To Solid Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Sun, 19 Apr 2026 03:51:26 GMT
+
+https://screenrant.com/ballistic-2026-movie-rotten-tomatoes-score-lena-headey/
+
+A new revenge thriller starring a Game of Thrones alum debuts to a solid Rotten Tomatoes score, as it makes it way to theaters and on digital.
+---------
+
+# Stephen King Show’s Confirmed Return In 2026 Sets Up Another Great Year For His TV Adaptations
+
+Streaming TV, Stephen King, The Institute, Carrie
+
+Sun, 19 Apr 2026 03:45:54 GMT
+
+https://screenrant.com/stephen-king-the-insitute-season-2-2026-return/
+
+One hit Stephen King horror show is all set to return in 2026 with another season, paving the way for another epic year for King’s TV adaptations.
+---------
+
+# Naruto Shippuden Filler List: Every Episode & Arc You Can Skip
+
+TV, Naruto: Shippuden
+
+Sun, 19 Apr 2026 03:40:19 GMT
+
+https://screenrant.com/naruto-shippuden-filler-episodes-guide/
+
+Naruto: Shippuden is one of the most beloved anime ever, but its large amount of filler content can be intimidating for new viewers.
+---------
+
+# Netflix’s Haunting 8-Part Series Shows How Lovecraftian Horror Should Be Done
+
+Streaming TV, Archive 81, Netflix
+
+Sun, 19 Apr 2026 03:31:19 GMT
+
+https://screenrant.com/netflix-archive-81-lovecraft-show/
+
+Netflix is the streaming home of an 8-part horror adaptation that perfectly captures how Lovecraftian stories should be done on the small screen.
+---------
+
+# After a Year-Long Absence, Webtoon's Best New-Gen Action Fantasy Manhwa Is Back for Season 3
+
+Anime, Webtoon
+
+Sun, 19 Apr 2026 03:08:23 GMT
+
+https://screenrant.com/best-new-gen-manhwa-return-blossoming-blade-mount-hua-sect-english-release/
+
+One of Webtoon's most anticipated returns just dropped six new chapters in a bold fashion hopefully made more common in the near future.
+---------
+
+# That Time Siegel and Shuster Had to Create Superman to Save the World
+
+Comics, CSBG, Superman, Nothing is Better
+
+Sun, 19 Apr 2026 03:58:28 GMT
+
+https://www.cbr.com/siegel-shuster-superman-creation-save-world/
+
+In honor of Superman day, look at a touching story by Marv Wolfman and Gil Kane about Siegel and Shuster having to create Superman to save the world
+---------
+
+# 35 Years Later, Star Trek's Greatest Deanna Troi Episode Remains an Untouchable Sci-Fi Gem
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sun, 19 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/star-trek-tng-greatest-deanna-troi-episode/
+
+A crisis on board the Enterprise separates the leaders and pushes Deanna Troi into command, turning this TNG episode into a defining moment for her.
+---------
+
+# New Transformers 40th Anniversary Release Brings Back Rodimus Prime and Galvatron
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys, The Transformers
+
+Sun, 19 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/transformers-blokees-galaxy-version-one-shall-stand-reveal/
+
+The next wave of Blokees Transformers brings in more characters from The Transformers: The Movie, along with all four seasons of the G1 cartoon.
+---------
+
+# Mark Wahlberg's Balls Up Becomes the No. 1 Film on Prime Video
+
+Movies, Balls Up
+
+Sun, 19 Apr 2026 03:24:40 GMT
+
+https://www.cbr.com/balls-up-streaming-prime-video/
+
+Critics weren't very kind on Mark Wahlberg's latest film, but it has nevertheless been a streaming hit.
+---------
+
+# 10 Best Turn-Based RPG Masterpieces of the Last 20 Years
+
+Games, Yakuza: Like a Dragon, RPG, Baldur's Gate 3, Octopath Traveler II, XCOM, Persona 5 Royal
+
+Sun, 19 Apr 2026 03:15:15 GMT
+
+https://www.cbr.com/best-turn-based-rpgs-last-2-decades/
+
+Turn-based RPGs bring a whole new level of challenge to gaming, and these masterpieces have been highlights of the last two decades.
+---------
+
+# The MCU’s Most Frustrating Cancellation Still Stings 10 Years Later
+
+TV Features, Agent Carter, Marvel, Disney+, Captain America
+
+Sun, 19 Apr 2026 03:44:12 GMT
+
+https://collider.com/agent-carter-cancelled-10-years-ago-deserved-better/
+
+Agent Carter was canceled after two seasons, and a decade later, it still stands as one of the MCU’s most frustrating unfinished stories.
+---------
+
+# 7 Movies That Are Pure Rage-Bait, Ranked
+
+Movie, Star Wars: Episode IX - The Rise of Skywalker, A Serbian Film, Ghostbusters, Mean Girls
+
+Sun, 19 Apr 2026 03:39:12 GMT
+
+https://collider.com/rage-bait-movies-ranked/
+
+Star Wars: The Rise of Skywalker, Materialists, A Serbian Film, 2016 Ghostbusters, and more make up our list of movies that are pure rage-bait.
+---------
+
 # Christopher Nolan’s Inception Meets Netflix’s Dark In Apple TV’s Returning 9-Part Sci-Fi Thriller
 
 Streaming TV, Inception, Dark, Netflix, Christopher Nolan, Apple TV, Dark Matter
