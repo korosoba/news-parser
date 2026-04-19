@@ -1,3 +1,135 @@
+# Animal Crossing Fans Unite Over Missing New Horizons Feature
+
+Gaming, Animal Crossing, Animal Crossing New Horizons, Triple-A Games
+
+Sun, 19 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/animal-crossing-new-horizons-missing-feature-club-lol/
+
+Animal Crossing: New Horizons players wish Nintendo would bring back a missing feature from Animal Crossing: New Leaf that's missing in ACNH.
+---------
+
+# The Legend Of Vox Machina Ripped Up The Fantasy Rulebook In Its Opening Minutes
+
+Streaming TV, The Legend of Vox Machina, Fantasy, Prime Video
+
+Sun, 19 Apr 2026 20:30:19 GMT
+
+https://screenrant.com/legend-of-vox-machina-fantasy-rules-break-opening-minutes/
+
+One unexpected choice in the opening moments of Prime Video's animated fantasy epic set the stage for a story that would break every rule.
+---------
+
+# Clair Obscur: Expedition 33 Multiplayer Works Surprisingly Well
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Sun, 19 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/clair-obscur-expedition-33-multiplayer-mod/
+
+Clair Obscur: Expedition 33 fans have been torn over whether multiplayer could actually work, but we don't have to wait any longer to find out.
+---------
+
+# Chuck McGill Was The Breaking Bad Universe's Greatest Villain
+
+Classic TV, Better Call Saul, Breaking Bad
+
+Sun, 19 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/better-call-saul-chuck-mcgill-greatest-villain-franchise/
+
+In a TV universe filled with drug kingpins, hitmen, and corruption, one character in the Breaking Bad franchise was the worst of them all.
+---------
+
+# Red Dead Redemption 2 Keeps Fans Enthralled With Fan-Made Mexico Expansion
+
+Games, Red Dead Redemption 2, Red Dead Redemption
+
+Sun, 19 Apr 2026 20:25:12 GMT
+
+https://www.cbr.com/red-dead-redemption-2-mexico-expansion-april-2026/
+
+Red Dead Redemption 2 players now have the opportunity to embark on a new adventure in Nuevo Paraiso.
+---------
+
+# Chainsaw Man Manga Outsells One Piece and Dragon Ball in America
+
+Anime, Chainsaw Man, One Piece, Dragon Ball
+
+Sun, 19 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/chainsaw-man-volume-20-sales-beat-one-piece-dragon-ball-jjk/
+
+Chainsaw Man's divisive ending has barely impacted its manga sales, as evidenced by its latest triumph over major hits like One Piece, JJK and DBS.
+---------
+
+# 8 Most Perfect TV Dramas of the Last 15 Years, Ranked
+
+TV, Drama, The Pitt, Severance, Better Call Saul
+
+Sun, 19 Apr 2026 20:33:12 GMT
+
+https://collider.com/most-perfect-tv-drama-shows-last-15-years-ranked/
+
+HBO Max's The Pitt, AMC's Better Call Saul, and Disney+'s Andor are among the best TV dramas of the last 15 years, but which show is the greatest?
+---------
+
+# Ridley Scott’s 144-Minute Sci-Fi Epic Is Quietly Rocketing Up Global Streaming Charts
+
+Movie News, Ridley Scott, The Martian, Matt Damon, Sci-Fi
+
+Sun, 19 Apr 2026 20:30:12 GMT
+
+https://collider.com/ridley-scott-sci-fi-epic-the-martian-global-streaming-success-itunes-april-2026/
+
+Ridley Scott's highest-grossing hit, the sci-fi epic The Martian, is proving to be an evergreen streaming blockbuster. Find out more.
+---------
+
+# The Best Action Thriller on HBO Max Is a 10/10 Disaster Movie
+
+Movie Features, Twister, Bill Paxton, Helen Hunt, Action
+
+Sun, 19 Apr 2026 20:03:13 GMT
+
+https://collider.com/twister-best-action-thriller-on-hbo/
+
+Starring Bill Paxton and Helen Hunt, Twister is a romantic action film following a team of storm chasers.
+---------
+
+# Forget 'The Boys' Season 5, the Gritty Sci-Fi Show's 10/10 Spin-Off Is Surging on Streaming
+
+TV News, Gen V, Prime Video, The Boys, Sci-Fi
+
+Sun, 19 Apr 2026 20:00:12 GMT
+
+https://collider.com/the-boys-gritty-sci-fi-spin-off-gen-v-streaming-success-prime-video-april-2026/
+
+Prime Video's sci-fi series The Boys and Gen V see renewed interest, with Gen V rising in global charts after The Boys' final season premiere.
+---------
+
+# 'Cross': 'Reacher's Flawless Prime Video Thriller Rival Could Run For Decades
+
+Features, Reacher, Cross
+
+Sun, 19 Apr 2026 20:30:17 GMT
+
+https://movieweb.com/reacher-cross-rival-run-for-decades/
+
+Forget 'Reacher's repetition, Prime Video's popular crime series 'Cross' reinvented itself for Season 2 in a long-term creative strategy.
+---------
+
+# 'Friends' Star Matt LeBlanc to Lead New Cop Drama for CBS
+
+TV News, Matt LeBlanc, Crime, Friends
+
+Sun, 19 Apr 2026 20:28:12 GMT
+
+https://movieweb.com/friends-matt-leblanc-cbs-cop-drama/
+
+A dramatic series would be a change for the 'Friends' veteran.
+---------
+
 # Netflix's 4-Part Sci-Fi Dystopian Series Is So Perfect, You'll Spend The Whole Weekend Binge-Watching It
 
 Streaming TV, Masked Recs
