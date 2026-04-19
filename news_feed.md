@@ -1,3 +1,212 @@
+# Lee Pace's Underrated Fantasy Show Pushing Daisies: A Critical Success That Keeps Getting Better
+
+Classic TV, Masked Recs
+
+Sun, 19 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/lee-pace-pushing-daisies-fantasy-show-getting-better/
+
+Lee Pace starred in a two-part fantasy show with a unique premise and style, and it's more than deserving of its near-perfect Rotten Tomatoes score.
+---------
+
+# With The Pokémon Champions Dust Settled, Fans Are Finding Things They Love
+
+Gaming, Pokemon Champions, Pokemon
+
+Sun, 19 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/pokemon-champions-fan-reaction-post-launch/
+
+Pokémon Champions has had a difficult launch, but now that players have come to understand its issues, they’re starting to notice its positives.
+---------
+
+# New Avengers: Endgame Footage Will Directly Set Up Doomsday
+
+Movies, Avengers: Endgame
+
+Sun, 19 Apr 2026 14:21:55 GMT
+
+https://screenrant.com/avengers-endgame-new-footage-rerelease-doomsday-joe-russo/
+
+Avengers: Endgame will be re-released, and Joe Russo has teased new footage, which will shape how the highly anticipated Doomsday will move forward.
+---------
+
+# 30 Years Later, The Substitute Is A Relic Of A Very Different Hollywood
+
+Movies, The Substitute
+
+Sun, 19 Apr 2026 14:20:20 GMT
+
+https://screenrant.com/the-substitute-movie-retrospective/
+
+A mix of campy action tropes and questionable set-pieces make The Substitute the kind of movie that Hollywood simply won't make anymore.
+---------
+
+# 9 Great Supernatural Characters Everyone Forgot About
+
+Classic TV, Supernatural
+
+Sun, 19 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/supernatural-great-characters-forgot-about/
+
+Some of the most overlooked characters of Supernatural who made significant impacts on the Winchesters' journey, from Gordon Walker to Donatello.
+---------
+
+# 10 Movies That Feel Like A Disney Film, But Are Not
+
+Movies, Disney
+
+Sun, 19 Apr 2026 14:15:19 GMT
+
+https://screenrant.com/movies-feel-like-disney-but-are-not/
+
+Audiences may be surprised to realize that these classic family films were not produced by Disney, despite their similarities to the brand.
+---------
+
+# How HBO's Barry Subverted the Action Genre
+
+Classic TV, Barry
+
+Sun, 19 Apr 2026 14:04:19 GMT
+
+https://screenrant.com/bill-hader-action-director-anti-michael-bay/
+
+Michael Bay is the epitome of big, loud, explosive action cinema, but, with his work on Barry, Bill Hader pioneered an antithetical approach.
+---------
+
+# 7 Greatest Batman Actors On TV, Ranked
+
+Classic TV, Batman
+
+Sun, 19 Apr 2026 14:02:20 GMT
+
+https://screenrant.com/best-batman-tv-actors-ranked/
+
+From Adam West in live-action to Kevin Conroy in animation, plenty of great actors have played Batman on TV, but they don't seem to get their flowers.
+---------
+
+# Madonna Biopic News: The Studio Season 2 & Netflix Series Explained
+
+Movies, Madonna, Julia Garner, Netflix, Shawn Levy, The Studio - Season 1
+
+Sun, 19 Apr 2026 14:01:11 GMT
+
+https://screenrant.com/madonna-biopic-the-studio-julia-garner-venice-reveals/
+
+The Madonna biopic is back! See the first photos of Julia Garner in Venice for 'The Studio' Season 2 and get the scoop on Shawn Levy’s Netflix series.
+---------
+
+# Harold Perrineau On Navigating From's Complex Realities As Boyd
+
+TV, From, Harold Perrineau
+
+Sun, 19 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/from-season-4-boyd-reality-knowledge-approach-harold-perrineau/
+
+From actor Harold Perrineau discusses how he and the cast stay focused on their characters' knowledge and the mysteries of From, as the series continues to challenge perceptions in season 4.
+---------
+
+# 10 Worst Science Fiction Movies, According to Roger Ebert
+
+Movies, Sci-Fi
+
+Sun, 19 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/worst-science-fiction-movie-according-to-roger-ebert/
+
+According to Roger Ebert, the worst science fiction movies threw away deep themes, replacing human stories with cheap thrills.
+---------
+
+# NBC's Classic Law & Order Officially Sets Netflix U.S. Release Date
+
+TV, Law and Order
+
+Sun, 19 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/nbc-classic-law-and-order-netflix-us-release-date/
+
+The show that kicked off the biggest procedural franchise of all time is officially heading to Netflix in the United States for the very first time.
+---------
+
+# 10 Smart Sci-Fi Shows You Need to Watch Twice to Understand
+
+TV, Sci-Fi, Severance, Devs, Dark
+
+Sun, 19 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/smart-sci-fi-shows-need-a-rewatch-list/
+
+Some science-fiction series need to be seen more than once to catch every little detail, and watching them a second time often makes them even better.
+---------
+
+# 10 Best Anime Tropes Fans Hope Will Never Die
+
+Anime, One Piece, Dragon Ball, mecha
+
+Sun, 19 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/best-anime-tropes-of-all-time/
+
+Redundant as anime tropes may feel, there are some fans never want to stop seeing.
+---------
+
+# Spider-Man and Punisher's First War Journal Team-Up is a Comic You Should Be Reading
+
+Comics, Spider-Man, The Punisher, Spider-Man: Brand New Day, Comics You Should Be Reading
+
+Sun, 19 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/spiderman-punisher-war-journal-comics-you-should-be-reading/
+
+When Spider-Man and Punisher face a dangerous Neo-Nazi and his dim-witted army, they quickly set aside their differences and join forces to stop evil.
+---------
+
+# Hello Kitty DIY Miniature House Kit Gets U.S. Release From Sanrio
+
+Anime, Hello Kitty, sanrio, merchandise, toys
+
+Sun, 19 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/hello-kitty-sanrio-miniature-house-model-kit-america-release/
+
+A new Sanrio 3D puzzle playset lets fans build a pastry shop for Hello Kitty and even turn on the lights as construction combines with cuteness.
+---------
+
+# Scarlett Johansson’s 'Bridesmaids' Meets 'The Hangover' Movie Is a #1 Hit on HBO Max
+
+Movie News, Scarlett Johansson, Rough Night, Bridesmaids, The Hangover
+
+Sun, 19 Apr 2026 14:00:12 GMT
+
+https://collider.com/scarlett-johansson-bridesmaids-meets-the-hangover-crime-satire-rough-night-streaming-success-hbo-max-april-2026/
+
+Scarlett Johansson made a rare appearance in a full blown comedy with Rough Night, which is now HBO Max’s #1 movie worldwide 9 years later.
+---------
+
+# 'Bohemian Rhapsody' Producer Sees Parallels to 2026 Michael Jackson Biopic
+
+Exclusives, Michael, Bohemian Rhapsody, Graham King
+
+Sun, 19 Apr 2026 14:01:54 GMT
+
+https://movieweb.com/bohemian-rhapsody-similarities-michael-exclusive/
+
+According to producer Graham King, who worked on both 'Bohemian Rhapsody' and 'Michael,' the two movies share some distinct similarities.
+---------
+
+# 'Star Trek: Voyager's "Virtuoso" Has Become a Great Allegory for AI Art After 26 Years
+
+Features, Star Trek: Voyager, Star Trek
+
+Sun, 19 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/star-trek-voyager-virtuoso-ai-allegory/
+
+Sci-fi shows often predict the future, and 'Star Trek' has done it a few times. However, this episode is spooky in its accuracy.
+---------
+
 # 10 Most Disappointing Anime Sequels That Fans Still Haven't Forgiven
 
 Anime
