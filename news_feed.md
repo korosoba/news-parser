@@ -1,3 +1,201 @@
+# Dark Souls 3 Next-Gen Remaster Leaves Gamers Floored
+
+Gaming, Dark Souls 3
+
+Sun, 19 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/dark-souls-3-next-gen-remaster-unofficial/
+
+Experience Dark Souls 3 like never before with a next-gen mod that enhances visuals using fake ray tracing, global illumination, and more.
+---------
+
+# 10 Jujutsu Kaisen Season 3 Replacement Anime With No Bad Episodes
+
+Anime, Jujutsu Kaisen
+
+Sun, 19 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/best-jujutsu-kaisen-replacement-anime-no-bad-episodes/
+
+Now that Jujutsu Kaisen's impeccable third season is over, it's time to watch some other stellar series until the fourth season finally comes out.
+---------
+
+# 10 Horror Movies That Were Box Office Bombs But Became Cult Classics
+
+Classic Movies, Horror, Ranking
+
+Sun, 19 Apr 2026 22:26:18 GMT
+
+https://screenrant.com/horror-movie-box-office-bombs-cult-classics/
+
+Some horror movies never made a dent at all when released into theaters, but they ended up becoming cult classics after a few years on their own.
+---------
+
+# It's Always Sunny In Philadelphia Season 18 Gets Major Filming Update From Rob McElhenney With BTS Photos Revealed
+
+TV, It's Always Sunny in Philadelphia
+
+Sun, 19 Apr 2026 22:20:09 GMT
+
+https://screenrant.com/its-always-sunny-in-philadelphia-season-18-filming-wrapped-rob-mcelhenney/
+
+It's Always Sunny In Philadelphia Season 18 gets an exciting update regarding production from the series' creator Rob McElhenney.
+---------
+
+# Pokemon Gen 9 Is Getting The Huge Sendoff It Deserves
+
+Anime, Pokemon, Pokémon Horizons, Pokemon Scarlet and Violet
+
+Sun, 19 Apr 2026 22:01:48 GMT
+
+https://screenrant.com/pokemon-anime-scarlet-violet-gen-9/
+
+It's a great day for Gen 9 Pokemon fans.
+---------
+
+# Oscar Isaac's Beef Pays Off Netflix's Risky Miniseries Format Change
+
+Streaming TV, Beef
+
+Sun, 19 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/beef-season-2-miniseries-anthology-netflix-change-pay-off/
+
+Netflix has begun an interesting trend with its miniseries, but Oscar Isaac's over-the-top comedy just proved that it's absolutely paying off.
+---------
+
+# 10 Most Satisfying Anime Rewatches Of All Time
+
+Anime, Frieren: Beyond Journey's End, Hunter x Hunter, Horimiya, Haikyuu!!, Fullmetal Alchemist: Brotherhood, Spy x Family, The Apothecary Diaries, Steins;Gate, Mob Psycho 100, Attack On Titan
+
+Sun, 19 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/best-anime-rewatch-satisfying/
+
+There are many anime series that people wish they could watch again for the first time, but these are 10 anime that get better with every rewatch.
+---------
+
+# Zelda And Minecraft Collide In New Fantasy RPG You Can Play Free Now
+
+Gaming, RPG, Steam, Indie, PC
+
+Sun, 19 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/zelda-and-minecraft-collide-in-new-fantasy-rpg-you-can-play-free-now/
+
+A new fantasy RPG that mixes mechanics seen in The Legend of Zelda and Minecraft is set to arrive soon, and you can already play it for free on Steam.
+---------
+
+# 10 Most Iconic N64 Games Of All Time
+
+Gaming, Nintendo, Gaming Hardware
+
+Sun, 19 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/most-iconic-nintendo-64-games-all-time/
+
+The N64 was a historic milestone as Nintendo's first 3D game console, and its most iconic titles are still some of the all-time greats.
+---------
+
+# Forget Dune 3, Ramayana Is the Ultimate 2-Part IMAX Epic of 2026
+
+Movies, Ramayana, Dune: Part Three, IMAX
+
+Sun, 19 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/dune-3-or-ramayana-ultimate-imax-epic-2026/
+
+Ramayana brings a story rooted in ancient Hindu scripture to IMAX screens with a global audience in mind.
+---------
+
+# Zelda's Upcoming 2027 Movie Has Major BOTW Connections
+
+Games, The Legend of Zelda
+
+Sun, 19 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/zelda-movie-logo-imdb-plot-reveal-wild-era-connection/
+
+Zelda fans are beyond ready to move past the Wild Era, but as more information comes out about the Zelda movie, it seems BOTW & TOTK are here to stay.
+---------
+
+# A24's Best Horror Movie of 2026 Has a Scream-Worthy Streaming Debut
+
+Movie News, undertone, A24, Horror, Nina Kiri
+
+Sun, 19 Apr 2026 22:30:13 GMT
+
+https://collider.com/a24-undertone-scariest-horror-movie-of-2026-streaming-debut-itunes/
+
+One of the best-reviewed horror movies of 2026, the A24 title Undertone, delivered a smashing debut on home video. Find out more.
+---------
+
+# 10 Netflix Miniseries Where Every Episode Is a Masterpiece
+
+TV, Netflix, TV Miniseries, The Queen's Gambit, Adolescence
+
+Sun, 19 Apr 2026 22:21:12 GMT
+
+https://collider.com/netflix-miniseries-every-episode-masterpiece/
+
+The Queen's Gambit, Adolescence, Baby Reindeer, and Midnight Mass are among the rare class of Netflix miniseries where every episode is a masterpiece.
+---------
+
+# Forget Sydney Sweeney's ‘The Housemaid,' Netflix’s 3% RT Thriller Is a Surprise Streaming Hit
+
+Movie News, The Roommate, The Housemaid, Leighton Meester, Minka Kelly
+
+Sun, 19 Apr 2026 22:15:12 GMT
+
+https://collider.com/the-roommate-leighton-meester-sydney-sweeney-the-housemaid-replacement-thriller-streaming-success-netflix-april-2026/
+
+The forgotten 2011 thriller The Roommate, which has a 3% score on Rotten Tomatoes, is staging a resurgence on Netflix. Find out more.
+---------
+
+# 8 Most Perfect Movies of the Last 26 Years, Ranked
+
+Movie, 21st Century, Poor Things, Nosferatu, Spirited Away
+
+Sun, 19 Apr 2026 22:03:14 GMT
+
+https://collider.com/most-perfect-movies-last-26-years-ranked/
+
+Shutter Island, Nosferatu, Poor Things, Interstellar, Parasite, and more make up our list of the most perfect movies of the last 26 years.
+---------
+
+# The BBC's Near-Perfect Detective Thriller Teases 2026 Return With First Official Images
+
+TV News, Ludwig, BBC, Britbox, David Mitchell
+
+Sun, 19 Apr 2026 22:00:12 GMT
+
+https://collider.com/bbc-near-perfect-british-detective-thriller-ludwig-season-2-first-look-images/
+
+BBC's detective series Ludwig returns for Season 2 and BritBox has revealed a first look, including images of returning and new stars.
+---------
+
+# 'Super Mario Galaxy' Tops Box Office Charts for 3rd Straight Week, 'Exit 8' in Top 10
+
+Movie News
+
+Sun, 19 Apr 2026 22:04:23 GMT
+
+https://movieweb.com/super-mario-exit-8-box-office/
+
+Universal's 'Super Mario Galaxy' movie still sits on top of the weekly box office rankings, while 'Exit 8' joins the top 10 as well.
+---------
+
+# Taylor Sheridan's 'Call of Duty' Movie: Release Date, Cast, Plot, & Everything We Know
+
+Features, Call of Duty, Taylor Sheridan
+
+Sun, 19 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/call-of-duty-movie-taylor-sheridan-everything-we-know/
+
+Taylor Sheridan is writing and producing a 'Call of Duty' movie, set to be released soon. What progress has been made so far?
+---------
+
 # Daredevil: Born Again Season 2 Confirms Marvel Has Officially Found Their Replacement For Stan Lee Cameos
 
 Comics, Marvel, Marvel Cinematic Universe, Daredevil: Born Again, Daredevil
