@@ -1,3 +1,212 @@
+# How To Train Your Dragon Star Addresses Live-Action Return Chances After 2027 Recast
+
+Movies, How to Train Your Dragon, How To Train Your Dragon 2
+
+Sun, 19 Apr 2026 17:18:00 GMT
+
+https://screenrant.com/how-to-train-your-dragon-2-drago-recast-live-action-return-djimon-hounsou/
+
+EXCLUSIVE: How to Train Your Dragon 2's live-action remake has a distinct casting change, leaving one star addressing his future with the franchise.
+---------
+
+# Doctor Who's Next Season: 7 Classic Monsters The Modern Era Hasn't Used Yet
+
+Streaming TV, Doctor Who
+
+Sun, 19 Apr 2026 17:15:18 GMT
+
+https://screenrant.com/doctor-who-classic-monsters-return-season-16/
+
+Doctor Who needs to get its act together, and one potential way to spark some hope in the fanbase is by bringing back some popular classic villains.
+---------
+
+# 7 Years Later, Game Of Thrones Releases New Footage From Divisive Final Season
+
+TV, Game Of Thrones, Game of Thrones, Game Of Thrones - Season 8
+
+Sun, 19 Apr 2026 17:05:10 GMT
+
+https://screenrant.com/game-of-thrones-new-season-8-behind-the-scenes-footage/
+
+HBO's Game of Thrones ended with season 8 in 2019, but newly released behind-the-scenes footage of the final season has now been released.
+---------
+
+# Euphoria Season 3 Premiere: A Disappointing Departure from the Original Show
+
+Streaming TV, Euphoria
+
+Sun, 19 Apr 2026 17:02:20 GMT
+
+https://screenrant.com/euphoria-season-3-different-show-feel/
+
+Euphoria season 3 has finally premiered on HBO, and something feels off. It just doesn't feel like the same show anymore, but why is that?
+---------
+
+# From's New Character Fixes A 3-Year-Old Problem Ahead Of The Final Season
+
+Streaming TV, From, FROM - Season 4
+
+Sun, 19 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/from-season-4-new-characters-problem-fix/
+
+A new character introduced in From season 4, episode 1 has already fixed a three-year-old problem for the series ahead of the final season.
+---------
+
+# One Piece’s New Threat Stronger Than Gear 5 Luffy & Kaido Explained
+
+Anime, One Piece, One Piece (1997)
+
+Sun, 19 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/one-piece-imu-stronger-luffy-kaido-elders/
+
+One Piece finally reveals Imu's terrifying true strength. From god-like Haki to the devastating new ability, the final boss is here.
+---------
+
+# Wednesday Is "Buffy Meets Stranger Things" & The Perfect Binge
+
+Streaming TV, Masked Recs
+
+Sun, 19 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/wednesday-buffy-vampire-slayer-meets-stranger-things/
+
+The Buffy reboot may be canceled, but this Netflix series takes the iconic '90s shows best elements and combines them with Stranger Things.
+---------
+
+# Elden Ring Returns With Official New Release This July
+
+Gaming, Elden Ring, PC
+
+Sun, 19 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/elden-ring-official-rya-return-july-2026/
+
+Elden Ring fans have already had an exciting year so far, and there's an official new release they'll want to mark their calendars for this summer.
+---------
+
+# 8 Best Grand Theft Auto Vehicles Of All Time
+
+Gaming, Grand Theft Auto
+
+Sun, 19 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/grand-theft-auto-best-vehicles/
+
+From the fiery Diablo Stallion to the iconic Infernus, Grand Theft Auto's best cars are a mix of speed, style, and sheer power.
+---------
+
+# 10 Stephen King Movies With The Best Casts
+
+Classic Movies, Stephen King, Ranking
+
+Sun, 19 Apr 2026 16:55:19 GMT
+
+https://screenrant.com/stephen-king-movies-best-casts/
+
+Stephen King movies have some of the best casts in horror adaptations, and these movies have the best ensemble casts for the King of Horror's films.
+---------
+
+# 10 Sega Dreamcast Games That Are 10/10, No Notes
+
+Games, Sonic the Hedgehog
+
+Sun, 19 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/perfect-sega-dreamcast-games-flawless-start-to-finish/
+
+From platformers to RPGs to fighting games, the Dreamcast had something for everyone, while maintaining an exceptionally high standard for itself.
+---------
+
+# Hulu's Shogun Season 2 Gets Massive Update 2 Years After Season 1 — Season 2 Is Underway
+
+TV, Hulu, Shogun, Shogun (2024)
+
+Sun, 19 Apr 2026 17:09:22 GMT
+
+https://www.cbr.com/hulus-shogun-season-2-gets-massive-update/
+
+Finally, Shogun fans get an update on their favorite series, and it's blockbuster news.
+---------
+
+# Steven Spielberg's $603M Sci-Fi War of the Worlds Is Heading to Hulu in Just 2 Weeks
+
+Movies, War of the Worlds, War of The Worlds
+
+Sun, 19 Apr 2026 17:00:13 GMT
+
+https://www.cbr.com/steven-spielberg-war-of-the-worlds-hulu-release-date-may-2026/
+
+The source material received multiple adaptations, and one of them was disastrous.
+---------
+
+# Steam Drops 2 Free Hidden Gem Games, But There's a Catch
+
+Games, Steam, Indie, Horror, Video Games
+
+Sun, 19 Apr 2026 17:00:13 GMT
+
+https://www.cbr.com/steam-2-games-free-for-24-hours-april-2026/
+
+Gamers have just 24-hours to get these two hidden gems from Steam!
+---------
+
+# DC Comics Unveils Stunning Supergirl Art Book Ahead of Upcoming Movie Release
+
+Movies, DCU, DC Comics, Supergirl, Superman, Man of Tomorrow, Superman: Man of Tomorrow
+
+Sun, 19 Apr 2026 16:45:12 GMT
+
+https://www.cbr.com/dc-comics-unveils-stunning-supergirl-art/
+
+DC Comics is pulling out all the stops for Supergirl.
+---------
+
+# Guy Ritchie’s 10/10 Detective Thriller Loses Box Office Crown to Modern Sci-Fi Masterpiece
+
+Movie News, Guy Ritchie, Sherlock Holmes, Project Hail Mary, Box Office
+
+Sun, 19 Apr 2026 17:01:13 GMT
+
+https://collider.com/guy-ritchie-detective-thriller-sherlock-holmes-overtaken-by-sci-fi-masterpiece-project-hail-mary-box-office-570-million/
+
+Guy Ritchie and Robert Downey Jr.’s first Sherlock Holmes movie has lost its box office spot to Amazon’s newest sci-fi mega-hit.
+---------
+
+# Netflix's Price Hikes & Subscription Plan Changes: A Complete Guide
+
+Features, Netflix, Ted Sarandos
+
+Sun, 19 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/netflix-subscription-changes-guide/
+
+Consumers are paying more again, but how much has it changed over time? So much has changed over the past 29 years.
+---------
+
+# 'Avengers: Endgame''s Joe Russo Reveals How Re-Release Will Connect to' Doomsday'
+
+Movie News, Avengers: Doomsday, Avengers: Endgame, Joe Russo
+
+Sun, 19 Apr 2026 16:52:10 GMT
+
+https://movieweb.com/joe-russo-avengers-doomsday-endgame-ties-new-scenes/
+
+Joe Russo, director of both 'Avengers: Endgame' and 'Avengers: Doomsday,' teased how the re-release of the former will tie into the latter's debut.
+---------
+
+# 'Gears of War' Director David Leitch Hypes "Great Draft" of Screenplay
+
+Movie News, Gears of War, Sci-Fi, Netflix
+
+Sun, 19 Apr 2026 16:32:40 GMT
+
+https://movieweb.com/gears-of-war-script-update/
+
+“'Gears of War,' I think, is going to happen."
+---------
+
 # Every D&D Paladin Oath, Ranked Worst To Best
 
 Gaming, Dungeons and Dragons, Dungeons & Dragons
