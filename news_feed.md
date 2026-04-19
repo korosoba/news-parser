@@ -1,3 +1,245 @@
+# Game Of Thrones Star's 4-Part Series Is A Hidden Gem On HBO Max
+
+Streaming TV, Masked Recs
+
+Sun, 19 Apr 2026 19:02:19 GMT
+
+https://screenrant.com/kit-harington-industry-hbo-hidden-gem-show/
+
+Kit Harington's HBO Max show, Industry, is a cutthroat drama about the inner politics of the finance world. The show is both stylish and fast-paced.
+---------
+
+# Matthew Macfadyen's New Spy Thriller Is The Next Best Thing To Being The New James Bond
+
+Streaming TV, Masked Recs
+
+Sun, 19 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/matthew-macfadyen-george-smiley-spy-series-casting/
+
+Succession star Matthew Macfadyen takes on the role of George Smiley in an upcoming adaptation of John Le Carré's A Legacy Of Spies for MGM+.
+---------
+
+# Legend Of Zelda Fans Rally Behind Perfect Live-Action Tingle Casting
+
+Gaming, The Legend of Zelda
+
+Sun, 19 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-movie-tingle-casting-wishlist/
+
+Zelda fans have rallied behind Ken Jeong as the perfect actor to portray Tingle in the upcoming live-action movie adaptation.
+---------
+
+# The Battle For Middle-earth's Franchise Future Is Coming, And It'll Change LOTR Forever
+
+Streaming TV, The Lord of the Rings
+
+Sun, 19 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/lord-of-the-rings-franchise-future-battle/
+
+Over the next 2 years, an epic battle for the soul of Middle-earth's franchise future will take place, and whatever the result, it'll redefine LOTR.
+---------
+
+# Guy Ritchie's 8-Hour Detective Series That's Designed To Be Binged Can Only Get Better
+
+Streaming TV, Masked Recs
+
+Sun, 19 Apr 2026 18:35:29 GMT
+
+https://screenrant.com/young-sherlock-guy-ritchie-detective-series-get-better-season-2/
+
+Guy Ritchie's latest bingeable Prime Video detective series can only become more exciting as it heads into season 2. The game is now truly afoot.
+---------
+
+# HBO’s Heated Rivalry Finally Meets Its Match With Prime Video’s Upcoming Spicy Sports Romance
+
+Streaming TV, Heated Rivalry, Romance
+
+Sun, 19 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/heated-rivalry-cleat-cute-playing-the-field-spicy-sports-romance/
+
+Heated Rivalry feels one-of-a-kind as a great spicy sports romance series, but the HBO hit will meet its match with an upcoming Prime Video show.
+---------
+
+# Pokémon Fans Up In Arms About Latest Winds & Waves Update
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sun, 19 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/pokemon-winds-and-waves-news-2026-leak/
+
+Following a long period of radio silence since Pokémon Winds and Waves were revealed in February, the new update isn't an optimistic one.
+---------
+
+# New Rocky Biopic Movie Director Challenges Sylvester Stallone's Claim Over Involvement Role: "He Must Have Forgotten"
+
+Movies, I Play Rocky
+
+Sun, 19 Apr 2026 18:22:29 GMT
+
+https://screenrant.com/i-play-rocky-biopic-sylvester-stallone-peter-farrelly/
+
+Sylvester Stallone claims he was not involved in I Play Rocky in any way, but the biopic's director Peter Farrelly is now challenging this claim.
+---------
+
+# Titans' Cyborg Can Now Officially Beat Superman
+
+DC Comics, Superman, Cyborg
+
+Sun, 19 Apr 2026 18:18:55 GMT
+
+https://screenrant.com/titans-cyborg-beat-superman-kryptonite/
+
+An iconic DC hero has just received an upgrade so powerful that he’s now a walking, Superman-killing machine, and that’s no exaggeration.
+---------
+
+# Alec Baldwin's Heading Back to Court for Rust Shooting
+
+Movies, Alec Baldwin, Rust
+
+Sun, 19 Apr 2026 18:32:45 GMT
+
+https://www.cbr.com/alec-baldwin-rust-shooting-civil-lawsuit/
+
+Five years after the incident on the set of Rust, Alec Baldwin's time in the courtroom isn't over just yet.
+---------
+
+# Mel Brooks' Blazing Saddles is His Best and Most Groundbreaking Parody Film
+
+Movies, Blazing Saddles, Comedy
+
+Sun, 19 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/mel-brooks-greatest-parody-movie-blazing-saddles-masterpiece/
+
+Mel Brooks' satirical Western comedy Blazing Saddles remains his greatest and most groundbreaking parody film.
+---------
+
+# CBS' Tracker Keeps Repeating Justin Hartley's Worst Trend in Season 3
+
+TV, Tracker, CBS
+
+Sun, 19 Apr 2026 18:17:00 GMT
+
+https://www.cbr.com/tracker-season-3-episode-16-colter-shaw-refuses-reward/
+
+One of Colter Shaw's best traits proves problematic in Justin Hartley's Tracker Season 3, when he returns an abducted husband to his pregnant wife.
+---------
+
+# 5 Perfect Anime Earworms To Get Stuck In Your Head
+
+Anime, shonen anime, seinen, Jujutsu Kaisen, Naruto: Shippuden, The Apothecary Diaries, Gintama
+
+Sun, 19 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/perfect-anime-opening-closing-earworm/
+
+Anime openings and closings are often just as anticipated as the new seasons and arcs they accompany.
+---------
+
+# 33 Years Later, Harrison Ford's Best Thriller of All Time Is a Free Streaming Sensation
+
+Movie News, Harrison Ford, The Fugitive, Action, Tubi
+
+Sun, 19 Apr 2026 19:00:13 GMT
+
+https://collider.com/harrison-ford-best-thriller-the-fugitive-streaming-success-free-tubi-april-2026/
+
+The highest-rated Harrison Ford movie on Rotten Tomatoes, which also won Tommy Lee Jones an Oscar, is a streaming hit for free.
+---------
+
+# 7 Netflix Miniseries That Get Better With Every Episode
+
+TV, Midnight Mass, One Day, Queen's Gambit, Netflix
+
+Sun, 19 Apr 2026 18:49:13 GMT
+
+https://collider.com/netflix-miniseries-better-every-episode/
+
+Midnight Mass, Beef, Baby Reindeer, The Queen's Gambit, One Day, and more make up our list of Netflix miniseries that get better with every episode.
+---------
+
+# Steven Soderbergh's Secret to Success Is Now Shaping a Major New HBO Drama Series
+
+Exclusives, The Christophers, Michaela Coel, Steven Soderbergh, Ian McKellen
+
+Sun, 19 Apr 2026 18:29:56 GMT
+
+https://collider.com/steven-soderbergh-the-christophers-michaela-coel-first-day-on-earth-hbo-series/
+
+Michaela Coel discusses her collaborations with Ian McKellen and Steven Soderbergh, sharing insights and how they've influenced her new HBO series.
+---------
+
+# Noah Centineo and Sydney Sweeney’s Hard Sci-Fi Netflix Movie Could Be The Biggest Anime Adaptation Ever [Exclusive]
+
+Movie News, Gundam, Noah Centineo, Jim Mickle, Sydney Sweeney
+
+Sun, 19 Apr 2026 18:25:00 GMT
+
+https://collider.com/netflix-gundam-live-action-anime-adaptation-movie-update-noah-centineo-sydney-sweeney/
+
+Noah Centineo and Sydney Sweeney’s new sci-fi action movie, a live-action Gundam adaptation, promises to stay “fan-first” ahead of filming start.
+---------
+
+# All 3 Dark Knight Movies Are Masterpieces, but One is Untouchable
+
+Movie, The Dark Knight, Batman Begins, Christopher Nolan, The Dark Knight Rises
+
+Sun, 19 Apr 2026 18:11:12 GMT
+
+https://collider.com/dark-knight-movies-masterpieces-ranked/
+
+Every entry in Christopher Nolan's Dark Knight trilogy is a masterpiece of superhero storytelling, but which of the three is the best movie overall?
+---------
+
+# 8 Best Western Movies for 'Tombstone' Fans
+
+Movie Lists, Tombstone, Unforgiven, Wyatt Earp
+
+Sun, 19 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/best-western-movies-tombstone-fans/
+
+Whether it's the heart-pounding shootouts, the rich dust-soaked storytelling or the larger-than-life characters, we implore you to check these out.
+---------
+
+# Movies to Watch if You Liked 'Divergent'
+
+Movie Lists, Divergent
+
+Sun, 19 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/movies-like-divergent/
+
+Between the dystopian aspect, characters with chemistry, and teenagers trying to save the world, here are movies like 'Divergent' you need to watch.
+---------
+
+# I’ve Watched Over 3,000 Horror Movies - 'Sleepaway Camp' Still Has the Best Final Girl Twist
+
+Features, Sleepaway Camp
+
+Sun, 19 Apr 2026 18:30:17 GMT
+
+https://movieweb.com/sleepaway-camp-best-final-girl-twist/
+
+Following more than a decade of reviewing horror films, the scariest and most shocking final girl twist belongs to Sleepaway Camp
+---------
+
+# David Harbour Joins 'Rambo' Prequel
+
+Movie News, Rambo, John Rambo, Stranger Things, David Harbour, First Blood
+
+Sun, 19 Apr 2026 18:23:15 GMT
+
+https://movieweb.com/david-harbour-rambo-prequel/
+
+The 'Rambo' prequel movie has already been promising some bold moves, with a 'Stranger Things' now joining the cast.
+---------
+
 # JoJo's Bizarre Adventure Fans Need To Watch This 10/10 Anime
 
 Anime, Op-Ed, JoJo's Bizarre Adventure, Daemons of the Shadow Realm
