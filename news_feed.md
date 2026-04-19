@@ -1,3 +1,234 @@
+# Dragon Ball Super Announces The New Frieza Anime Fans Have Waited 3 Decades For
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 19 Apr 2026 21:23:10 GMT
+
+https://screenrant.com/dragon-ball-super-resurrection-f-remake-anime-frieza/
+
+Fans of Dragon Ball's most iconic villain will most likely be pleased with the latest update ahead of the Beerus series' release.
+---------
+
+# GTA 5 Fans Blown Away By New Leaked Info On Its Longevity
+
+Gaming, Grand Theft Auto 5, PC
+
+Sun, 19 Apr 2026 21:07:39 GMT
+
+https://screenrant.com/gta-5-gta-online-2026-leaks-info/
+
+Grand Theft Auto 5 and Online are still going strong, despite their age and the upcoming, highly anticipated release of Grand Theft Auto 6.
+---------
+
+# Mark Wahlberg Confirms Plot Details For New Ted Sequel Series After 10-Year Franchise Return
+
+TV, Ted
+
+Sun, 19 Apr 2026 21:05:00 GMT
+
+https://screenrant.com/ted-the-animated-series-plot-details-filming-update-mark-wahlberg/
+
+Ted is making a comeback, and original movie star Mark Wahlberg has given a major update abut where the new sequel series is in its production.
+---------
+
+# HBO's Answer To Knives Out Is A 3-Part Black Comedy Rated Near-Perfect On Rotten Tomatoes
+
+Streaming TV, The White Lotus, Knives Out
+
+Sun, 19 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/the-white-lotus-hbo-series-knives-out/
+
+HBO's darkly comedic, critically acclaimed, three-part psychological drama can, much like the Knives Out franchise, potentially last forever.
+---------
+
+# 10 Hit 80s Movies That Aged Like Milk
+
+Movies, Weird Science, National Lampoon's Christmas Vacation, Sixteen Candles, TRON, porky's, Can't Buy Me Love, Revenge of the Nerds, Flashdance, Indiana Jones and the Temple of Doom, Soul Man
+
+Sun, 19 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/hit-80s-movies-aged-like-milk/
+
+These hit ’80s movies were once beloved, but their outdated humor, themes, and portrayals feel jarring and out of step with modern audiences today.
+---------
+
+# Lord Of The Rings Fans, Don't Sleep On This PlayStation Plus Freebie
+
+Gaming, PlayStation Plus, The Lord of the Rings: Return to Moria, Triple-A Games, The Lord of the Rings
+
+Sun, 19 Apr 2026 21:01:18 GMT
+
+https://screenrant.com/playstation-plus-lord-rings-return-moria-ps5/
+
+Among the many new additions to the PlayStation Plus catalog, there is one new free game that will please fans of The Lord of the Rings.
+---------
+
+# 8 Near-Perfect DreamWorks Animated Movies That Nobody Remembers Today
+
+Movies, Antz, The Road to El Dorado, The Prince of Egypt, Flushed Away, Rise of the Guardians, Bee Movie, Spirit: Stallion of the Cimarron, Over The Hedge, Dreamworks
+
+Sun, 19 Apr 2026 20:45:18 GMT
+
+https://screenrant.com/great-dreamworks-animated-movies-nobody-remembers/
+
+These near-perfect DreamWorks animated movies were overlooked on release, but their creativity, storytelling, and charm make them worth rediscovering.
+---------
+
+# Elizabeth Banks Reveals The Surprising Hunger Games Quote Fans Always Say To Her
+
+Movies, The Hunger Games
+
+Sun, 19 Apr 2026 20:43:12 GMT
+
+https://screenrant.com/hunger-games-fans-most-quoted-elizabeth-banks-effie/
+
+EXCLUSIVE: Elizabeth Banks had one of her most famous roles in The Hunger Games, and still has a memorable Effie Trinket line quoted to her.
+---------
+
+# HBO's 3-Part Post-Apocalyptic Masterpiece Has One Producer Still In Awe Of Its Legacy
+
+TV, The Leftovers
+
+Sun, 19 Apr 2026 20:38:12 GMT
+
+https://screenrant.com/hbo-the-leftovers-legacy-surprising-michael-ellenberg/
+
+EXCLUSIVE: Even though it ended in 2017, this three-part post-apocalyptic masterpiece series on HBO continues to have an enduring legacy.
+---------
+
+# One Piece Chapter 1181 Release Date & What to Expect
+
+Anime, One Piece
+
+Sun, 19 Apr 2026 21:25:38 GMT
+
+https://www.cbr.com/one-piece-chapter-1181-release/
+
+One Piece Chapter 1181 holds the key to one of Eiichiro Oda's longest-running mysteries in the series.
+---------
+
+# 9 Anime Side Characters So Perfect, They Steal the Spotlight
+
+Anime, shonen anime, Jujutsu Kaisen, Demon Slayer: Mugen Train, Bleach, Fullmetal Alchemist: Brotherhood, Chainsaw Man, Attack On Titan
+
+Sun, 19 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/anime-side-characters-steal-the-spotlight/
+
+Sometimes it's the side characters who take charge and make their anime unforgettable.
+---------
+
+# In Just 1 Day, Shelby Oaks Becomes a Hulu Success
+
+Movies, Shelby Oaks, Hulu
+
+Sun, 19 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/shelby-oaks-streaming-success-hulu/
+
+The found footage horror film executive produced by Mike Flanagan has become a hit on Hulu.
+---------
+
+# Kevin Feige Confirms Biggest Problem With the MCU Phases 4 and 5
+
+Movies, MCU, Avengers: Doomsday, superheroes
+
+Sun, 19 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/kevin-feige-confirms-mcu-phase-4-5-biggest-problem-avengers-doomsday/
+
+Kevin Feige appeared at CinemaCon to tease Avengers: Doomsday, but may have accidentally confirmed Phases 4 and 5's biggest problem.
+---------
+
+# Big Bang Theory Hints At ‘Evil’ and ‘Lonely’ Role on The Audacity
+
+CBR Exclusives, The Audacity, AMC
+
+Sun, 19 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/the-audacity-simon-helberg-evil-lonely-role/
+
+Simon Helberg trades the International Space Station for Silicon Valley on AMC's The Audacity.
+---------
+
+# Dragon Ball Xenoverse 3's Official Announcement Reveals Goku's Future
+
+Anime, Dragon Ball
+
+Sun, 19 Apr 2026 20:53:12 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-age-1000-announcement/
+
+Dragon Ball Xenoverse 3's new reveal at Dragon Ball Games Battle Hour showcases the future of Goku's universe long after the events of DBZ and Super.
+---------
+
+# Dragon Ball Super Confirms New Anime Ahead of Beerus Release
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Super: Beerus
+
+Sun, 19 Apr 2026 20:44:09 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-frieza-teaser/
+
+Dragon Ball Super is finally back with a confirmed follow-up to the God of Destruction.
+---------
+
+# 'First Blood's Rambo Is Based on a Real-Life World War II Veteran
+
+Movie Features, First Blood, Sylvester Stallone, Rambo: First Blood Part II, Action
+
+Sun, 19 Apr 2026 21:23:12 GMT
+
+https://collider.com/rambo-first-blood-true-story-world-war-2-veteran/
+
+First Blood starred Sylvester Stallone and was loosely inspired by the story of World War II veteran Audie Murphy.
+---------
+
+# A ‘Game of Thrones’ Favorite’s 93% RT Crime Series Becomes a Must-Watch for 'MobLand' Fans
+
+TV News, MobLand, This City Is Ours, AMC+, Sean Bean
+
+Sun, 19 Apr 2026 21:15:12 GMT
+
+https://collider.com/sean-bean-mobland-replacement-crime-series-this-city-is-ours-streaming-success-amc-plus-april-2026/
+
+Game of Thrones icon Sean Bean's MobLand replacement, the crime series This City Is Ours, is surging on streaming.
+---------
+
+# Russell Crowe’s Most Ambitious Epic Since ‘Gladiator’ Is a Colossal Free Streaming Hit
+
+Movie News, Noah, Russell Crowe, Jennifer Connelly, Emma Watson
+
+Sun, 19 Apr 2026 21:00:13 GMT
+
+https://collider.com/russell-crowe-historical-epic-noah-streaming-success-pluto-tv-april-2026/
+
+Russell Crowe's controversial historical epic, Noah, is proving to be a popular choice for audiences at home. Find out more here.
+---------
+
+# 'Dredd:' The Best Cyberpunk Action Movie of the 21st Century is Being Removed From Free Streaming
+
+Movie News, Dredd, Tubi, Coming/Leaving Streaming, Action, Sci-Fi
+
+Sun, 19 Apr 2026 21:19:39 GMT
+
+https://movieweb.com/dredd-best-cyberpunk-action-leaving-free-streaming-tubi-may-2026/
+
+The free streaming platform, Tubi, will be removing Alex Garland's comic book cyberpunk action movie 'Dredd' in May 2026.
+---------
+
+# The 'Scrubs' Revival How Easily Be Hiding Doug in Plain Sight
+
+Features, Scrubs
+
+Sun, 19 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/scrubs-revival-hidden-original-character-theory/
+
+Not every original 'Scrubs' character has been in the revival, although on them has almost definitely been nearby.
+---------
+
 # Animal Crossing Fans Unite Over Missing New Horizons Feature
 
 Gaming, Animal Crossing, Animal Crossing New Horizons, Triple-A Games
