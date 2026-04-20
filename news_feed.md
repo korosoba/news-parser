@@ -1,3 +1,278 @@
+# 5 Best Netflix Shows To Binge This Week – #1 Is The Return Of Its Biggest Franchise Ever
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 20 Apr 2026 21:37:19 GMT
+
+https://screenrant.com/netflix-shows-to-binge-watch-this-week/
+
+Discover the best new Netflix series this week, including the highly anticipated return of a beloved franchise and exciting new reality comedy shows.
+---------
+
+# Netflix's New Ronaldinho Documentary Reminds Us Just How Good He Was
+
+Streaming TV
+
+Mon, 20 Apr 2026 21:33:13 GMT
+
+https://screenrant.com/ronaldinho-the-one-and-only-netflix-doc-messi-ronaldo/
+
+Netflix has an excellent new soccer documentary about the greatest footballer playing the game before Messi and Ronaldo took it to another level.
+---------
+
+# Marvel's New Avengers: Doomsday Trailer Boosts Channing Tatum's Gambit Powers
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 20 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-gambit-powers-shang-chi-mcu-fight/
+
+Marvel unveils the first Avengers: Doomsday trailer, which features a major Gambit fight, and the footage boosts the X-Men hero's powers in a key way.
+---------
+
+# DC's 10/10 Batman Movie With Rare 100% Rotten Tomatoes Score Was So Dark, It Had To Be Censored
+
+Movies, Batman Beyond: Return of the Joker, Batman, DC
+
+Mon, 20 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/batman-beyond-return-of-the-joker/
+
+Discover the dark and censored history of Batman Beyond: Return of the Joker, the rare DC animated film with a perfect 100% Rotten Tomatoes score. Learn about the controversial cuts made due to media violence debates post-Columbine.
+---------
+
+# DC Finally Gives Superman a Weapon, and It’s His Version of Thor’s Hammer
+
+Comics, Superman
+
+Mon, 20 Apr 2026 21:20:28 GMT
+
+https://screenrant.com/absolute-superman-new-weapon-thor-hammer/
+
+When you have powers like Superman, you hardly need a weapon. However, it looks like DC Comics has now decided to throw the status quo to the wind.
+---------
+
+# Avengers: Doomsday Trailer Revealed At CinemaCon - MCU's Future
+
+Movies, Avengers: Doomsday
+
+Mon, 20 Apr 2026 21:20:20 GMT
+
+https://screenrant.com/avengers-doomsday-cinemacon-trailer-best-things/
+
+A new trailer for Avengers: Doomsday was shown at CinemaCon, giving attendees an amazing look at the next film in the MCU.
+---------
+
+# Why Aidan Quinn Didn't Return For Practical Magic 2
+
+Movies, Practical Magic 2
+
+Mon, 20 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/practical-magic-2-movie-aidan-quinn-absence-explained/
+
+Practical Magic 2 is bringing back several actors from the first film, such as Sandra Bullock and Nicole Kidman, but Aidan Quinn is not returning.
+---------
+
+# Apple CEO Tim Cook Stepping Down With New Replacement Confirmed After Taking Over For Steve Jobs 15 Years Ago
+
+Movies, Apple
+
+Mon, 20 Apr 2026 21:11:12 GMT
+
+https://screenrant.com/apple-tim-cook-ceo-stepping-down-replacement/
+
+Apple has now confirmed that long-time CEO Tim Cook, who took over for Steve Jobs in 2011, is stepping down, with his new replacement revealed.
+---------
+
+# Official New Pokémon Release Is The Weirdest Pokémon Game Ever
+
+Gaming, Pokemon
+
+Mon, 20 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/pokemon-new-release-furret-bowling-weird-game/
+
+A new (and official) Pokemon release on Pokemon Center might just make for the weirdest Pokemon game of all time, but it's still incredibly cool.
+---------
+
+# 6 Steamiest Scenes in Game of Thrones
+
+Lists, Game Of Thrones
+
+Mon, 20 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/the-15-steamiest-love-scenes-in-game-of-thrones/
+
+Game of Thrones isn't just about violence. It has some of the hottest scenes in modern TV.
+---------
+
+# Clint Eastwood’s Dirty Harry Replacement Is Wilder Than You Remember
+
+Movies, Clint Eastwood, The Gauntlet
+
+Mon, 20 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/clint-eastwood-gauntlet-wild-dirty-harry-replacement/
+
+Clint Eastwood may be known for Westerns and Dirty Harry, but The Gauntlet was a wild movie that couldn't live up to his other works.
+---------
+
+# Batman and Thor Finally Cross Over, But With A Twist
+
+Comics, Batman, Thor
+
+Mon, 20 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/batman-127-facsimile-edition-release-date-confirmed/
+
+The Dark Knight and the God of Thunder like you've never seen them before... well, not quite.
+---------
+
+# Steve McQueen's Coolest Character is The Cincinnati Kid
+
+Movies, The Cincinnati Kid
+
+Mon, 20 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/steve-mcqueen-coolest-character-cincinnati-kid-movie/
+
+This 1965 drama is one of McQueen's best and most underrated classics of his career.
+---------
+
+# 10 Greatest Nintendo Switch Games in 2026
+
+Games, Nintendo, The Legend of Zelda, Pokemon, Mario
+
+Mon, 20 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/greatest-nintendo-switch-games-2026/
+
+The Switch is the greatest Nintendo console ever, being home to many of the best games of all time.
+---------
+
+# Jon Hamm Finally Breaks His Silence On Becoming A Meme
+
+CBR Exclusives, Your Friends and Neighbors
+
+Mon, 20 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/jon-hamm-your-friends-and-neighbors-meme/
+
+If you have reliable internet connection, you've seen a Jon Hamm meme.
+---------
+
+# 10 Greatest Tom Cruise Movies Where He Isn't a Action Hero
+
+Movies, tom cruise, Tropic Thunder, Thriller
+
+Mon, 20 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/greatest-tom-cruise-movies-not-action-hero-list/
+
+While movies like Mission: Impossible and Jack Reacher established Tom Cruise as an action icon, some of his best work comes courtesy of other genres.
+---------
+
+# A Knight of the Seven Kingdoms Season 2 Resumes Filming in New Gran Canaria Location
+
+TV, A Knight Of The Seven Kingdoms
+
+Mon, 20 Apr 2026 20:53:38 GMT
+
+https://www.cbr.com/a-knight-of-the-seven-kingdoms-season-2-filming-resumes-new-location/
+
+After an unexpected cancellation, the hit prequel series received a new update.
+---------
+
+# Tim Cook Steps Down as Apple CEO
+
+TV, Apple TV
+
+Mon, 20 Apr 2026 20:49:10 GMT
+
+https://www.cbr.com/tim-cook-apple-ceo-exit/
+
+After 15 years, Tim Cook is stepping down as Apple CEO, a role he took on after the company founder Steve Jobs.
+---------
+
+# 'The Shining' Fans Need To Watch This 10/10 Psychological Horror Movie You Can't Unsee
+
+Movie Features, Exit 8, Stanley Kubrick, The Shining, Horror
+
+Mon, 20 Apr 2026 21:32:12 GMT
+
+https://collider.com/exit-8-horror-movie-genki-kawamura-perfect-for-the-shining-fans/
+
+Genki Kawamura's gripping psychological horror movie Exit 8 explores the anxieties of fatherhood in a way fans of The Shining would appreciate.
+---------
+
+# ‘I Am Legend 2’ Has Officially Found Its Director [Exclusive]
+
+Movie News, I Am Legend, I Am Legend 2, Steven Caple Jr., Akiva Goldsman
+
+Mon, 20 Apr 2026 21:26:08 GMT
+
+https://collider.com/i-am-legend-2-director-steven-caple-jr/
+
+After 20 years, the long-awaited I Am Legend sequel is officially moving forward with Transformers: Rise of the Beasts director Steven Caple Jr.
+---------
+
+# 10 Greatest Romantasy Movies of All Time, Ranked
+
+Movie, Fantasy, Romance, The Princess Bride, Enchanted
+
+Mon, 20 Apr 2026 21:08:13 GMT
+
+https://collider.com/best-romantasy-movies-all-time-ranked/
+
+From The Princess Bride to Shrek and Stardust, these timeless movies feature the perfect balance between fantasy and romance to make audiences swoon.
+---------
+
+# First 'Wednesday' Season 3 Image Shows Jenna Ortega in Paris
+
+TV News, Wednesday, Netflix, Jenna Ortega
+
+Mon, 20 Apr 2026 21:32:23 GMT
+
+https://movieweb.com/wednesday-season-3-first-look-jenna-ortega/
+
+Production on the third season of the series kicked off this past February.
+---------
+
+# 'The Mandalorian & Grogu' Reveals First 20 Minutes of Movie During Set Visit
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Mon, 20 Apr 2026 21:30:19 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-footage-description/
+
+Disney and Lucasfilm showed off the first 20 minutes of footage from 'The Mandalorian and Grogu' in an exclusive set visit.
+---------
+
+# The 'Scrubs' Revival's Next Season Must Decide Whether To Make the New Interns Into Residents
+
+Features, Scrubs
+
+Mon, 20 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/scrubs-revival-new-characters-decision/
+
+Older 'Scrubs' seasons moved its characters up the hierarchy at Sacred Heart pretty quickly, but should the revival do the same?
+---------
+
+# More 'Spider-Man' Variant Projects Are in the Works After 'Spider-Noir'
+
+TV News, Spider-Noir, Spider-Man
+
+Mon, 20 Apr 2026 20:49:31 GMT
+
+https://movieweb.com/spider-man-spin-off-spider-noir/
+
+Showrunner Oren Uziel reveals that there will be more Spider-Man-related spin-offs centered on variants in the future.
+---------
+
 # Penny Dreadful: Showtime's Fantasy Masterpiece Combining Supernatural & Peaky Blinders
 
 Classic TV, Masked Recs
