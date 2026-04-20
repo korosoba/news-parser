@@ -1,3 +1,256 @@
+# For The First Time In Official Star Trek Canon, Captain Kirk Is Fighting The Borg
+
+Comics, Star Trek
+
+Mon, 20 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/star-trek-kirk-meet-borg-first-time/
+
+Ready to rumble?
+---------
+
+# Who Is The Star Wars Hologram At The End Of Maul - Shadow Lord Episode 6
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Mon, 20 Apr 2026 23:20:19 GMT
+
+https://screenrant.com/maul-shadow-lord-episode-6-marrok-hologram-explained/
+
+The newest episodes of Maul - Shadow Lord debut Marrok, though it remains a mystery who the Imperial Inquisitor is speaking with in the final scenes.
+---------
+
+# Sydney Sweeney’s Netflix Live-Action Movie Based On Popular Anime Is Officially In Production
+
+Movies, Gundam
+
+Mon, 20 Apr 2026 23:06:10 GMT
+
+https://screenrant.com/gundam-live-action-movie-netflix-sydney-sweeney-filming/
+
+Sydney Sweeney continues to stay busy as her next project, a Netflix live-action movie based on a popular anime, has officially begun filming.
+---------
+
+# The Deeper Meaning Of The Man In Yellow’s New From Season 4 Identity Detailed By Star
+
+TV, From
+
+Mon, 20 Apr 2026 23:02:48 GMT
+
+https://screenrant.com/from-season-4-man-in-yellow-sophia-identity-meaning-julia-doyle/
+
+EXCLUSIVE: From season 4's new actor Julia Doyle addresses the deeper meaning behind the villainous Man in Yellow's secret disguise in town.
+---------
+
+# Apple TV's Sci-Fi Thriller Silo: A Fusion Of Fallout And Severance's Best Elements
+
+Streaming TV, Masked Recs
+
+Mon, 20 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/apple-tv-silo-dystopian-thriller-fallout-meets-severance/
+
+Apple TV has the sci-fi crown at the moment, including an ongoing dystopian television series that has elements of Fallout and Severance.
+---------
+
+# What The New Divergent Books Mean For The Cancelled Movie Franchise
+
+Movies, Divergent, The Divergent Series
+
+Mon, 20 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/new-divergent-books-cancelled-movie-franchise-impact-explained/
+
+Fifteen years after Divergent first hit shelves, Veronica Roth is returning to the dystopian world and here's what that means for the movie franchise.
+---------
+
+# BioShock: The War In Rapture Quietly Released
+
+Gaming, BioShock, Bioshock 4, PC
+
+Mon, 20 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/bioshock-war-in-rapture-unofficial-release/
+
+BioShock just quietly received a brand-new release titled The War In Rapture, and it could very well keep fans busy until BioShock 4.
+---------
+
+# 50 Years Later, This Political Thriller Is More Relevant Than Ever
+
+Movies, All the President's Men
+
+Mon, 20 Apr 2026 23:00:20 GMT
+
+https://screenrant.com/all-the-presidents-men-movie-political-thriller-still-relevant/
+
+All the President's Men is still a relevant political thriller that has influenced every investigative journalism movie made in the last half-century.
+---------
+
+# Sydney Sweeney’s R-Rated Euphoria Season 3 Scenes Are Controversial For The Wrong Reasons
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Mon, 20 Apr 2026 22:45:19 GMT
+
+https://screenrant.com/sydney-sweeney-euphoria-season-3-controversial-scenes-wrong-reasons/
+
+Sydney Sweeney's controversial Euphoria season 3 storyline has set the internet ablaze, but detractors are angry for the wrong reasons.
+---------
+
+# Sophie Turner's Hit 8-Part HBO Crime Series Returns As Netflix Global Streaming Smash
+
+TV, Masked Recs, The Staircase
+
+Mon, 20 Apr 2026 22:40:34 GMT
+
+https://screenrant.com/the-staircase-netflix-streaming-success-april-2026/
+
+Sophie Turner's hit eight-part HBO crime series returns as a global streaming smash on Netflix several years after its original airing.
+---------
+
+# Hunter x Hunter: Nen x Impact Adds Shizuku as Third DLC Character
+
+Anime, Hunter X Hunter
+
+Mon, 20 Apr 2026 23:15:13 GMT
+
+https://www.cbr.com/hunter-x-hunter-nen-impact-shizuku-dlc-america-release/
+
+Hunter x Hunter fans around the globe finally have the chance to get their hands on the latest addition to one of the franchise's hottest titles.
+---------
+
+# 7 Greatest MCU Rivalries of All Time, Ranked
+
+Movies, MCU, Avengers, superheroes
+
+Mon, 20 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/greatest-mcu-rivalries-of-all-time-ranked-list/
+
+The MCU may be built on epic team-ups, but these rivalries are what really get fans invested in the characters.
+---------
+
+# Netflix's The Order With 2 Rare 100% RT Seasons Is the Best Werewolf Show of the Decade
+
+TV, Netflix, The Order, Horror
+
+Mon, 20 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/netflix-horror-sleeper-the-order-best-werewolf-show-decade/
+
+Netflix's best-kept secret is a highly rated werewolf show that should be the blueprint for the horror genre moving forward.
+---------
+
+# Witch Hat Atelier Episode 4 Review: The Anime Makes Magic Life or Death
+
+Anime, Witch Hat Atelier
+
+Mon, 20 Apr 2026 22:45:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-4-review/
+
+Witch Hat Atelier Episode 4 becomes a life-threatening adventure that highlights just how far Coco has to run in order to meet her peers eye-to-eye.
+---------
+
+# Lili Reinhart's Hitchcock-Style Thriller Is Surging on Streaming Right Now
+
+Movie News, American Sweatshop, Lili Reinhart, Daniela Melchior, Rear Window
+
+Mon, 20 Apr 2026 23:31:09 GMT
+
+https://collider.com/hitchcock-style-thriller-lili-reinhart-american-sweatshop-hbo-max-streaming-success-april-2026/
+
+The positively received Hitchcockian thriller American Sweatshop is seeing a viewership spike on HBO Max. Find out more.
+---------
+
+# ‘Stranger Things’ Creators Return To Netflix Next Month With New Sci-Fi Series
+
+TV News, The Boroughs, Netflix, Sci-Fi, Duffer Brothers
+
+Mon, 20 Apr 2026 23:15:13 GMT
+
+https://collider.com/netflix-the-boroughs-sci-fi-thriller-release-date-may-2026-duffer-brothers/
+
+Discover the spiritual successor to Stranger Things, set in a New Mexico retirement community, when The Boroughs premieres on Netflix next month.
+---------
+
+# 10 Superhero Shows That Are True Masterpieces
+
+TV, Superhero, The Boys, Daredevil, Wonder Man
+
+Mon, 20 Apr 2026 23:14:13 GMT
+
+https://collider.com/superhero-shows-true-masterpieces/
+
+The Boys, Daredevil, and Batman: The Animated Series are among the superhero TV shows that have raised the bar and are considered true masterpieces.
+---------
+
+# 10 Greatest Supernatural Thrillers of the Last 25 Years, Ranked
+
+Movie, Thriller, Let the Right One In, The Wailing, Talk to Me
+
+Mon, 20 Apr 2026 23:09:12 GMT
+
+https://collider.com/best-supernatural-thriller-movies-last-25-years-ranked/
+
+Hollywood mega hits like Hereditary and international gems like The Wailing are perfect examples of great thrillers with a chilling supernatural edge.
+---------
+
+# Charlize Theron's Next Must-Watch Action-Thriller Hits Netflix in 4 Days
+
+Movie News, Charlize Theron, Apex, Netflix, Thriller
+
+Mon, 20 Apr 2026 23:00:13 GMT
+
+https://collider.com/netflix-action-thriller-charlize-theron-apex-release-date-april-24-2026/
+
+Netflix's latest action-packed film, Apex, starring Charlize Theron, premieres this week. Here's what you need to know about how to watch it.
+---------
+
+# NCIS's Newest Spinoff Owes Everything to One Fan-Favorite Character
+
+TV Features, NCIS, LL Cool J, Procedural
+
+Mon, 20 Apr 2026 22:52:13 GMT
+
+https://collider.com/ncis-new-york-spinoff-ll-cool-j-sam-hanna/
+
+CBS announces NCIS: New York, featuring fan-favorite character Sam Hanna leading a new team in his hometown.
+---------
+
+# MGM+ Is Ending Its Best Horror Series After Season 5, but There's a Catch
+
+TV Features, From, Harold Perrineau, MGM, Horror
+
+Mon, 20 Apr 2026 22:42:13 GMT
+
+https://collider.com/from-mgm-horror-season-5-ending/
+
+From's planned conclusion in Season 5 ensures a satisfying end for MGM+'s horror series, avoiding the pitfalls of other mystery shows.
+---------
+
+# 17 Years Later, This Sci-Fi Masterpiece Has a Message That's More Important Than Ever
+
+Movie Features, District 9, Neill Blomkamp, Sharlto Copley, Peter Jackson
+
+Mon, 20 Apr 2026 22:42:13 GMT
+
+https://collider.com/district-9-neill-blomkamp-immigrant-allegory/
+
+With immigration battles raging across the United States, Neill Blomkamp's Distict 9 has taken on a whole new meaning.
+---------
+
+# 'Luther': Netflix's 10/10 5-Part Psychological Thriller Is 'Sherlock' Meets 'Hannibal'
+
+Features, Netflix, Comparison Recommendation, Luther
+
+Mon, 20 Apr 2026 23:00:19 GMT
+
+https://movieweb.com/netflix-crime-thriller-sherlock-hannibal-luther/
+
+Starring Idris Elba, this is one of the best psychological crime thrillers ever made, with short seasons you can quickly watch.
+---------
+
 # Riz Ahmed Discusses Hamlet's Universal Fear In Coffee Chats Episode 11
 
 Movies, Hamlet, Riz Ahmed
