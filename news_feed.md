@@ -1,3 +1,223 @@
+# Half-Life 3 Be Damned, A New Portal Game Just Dropped
+
+Gaming, Half-Life, PC, Portal, Portal 2
+
+Mon, 20 Apr 2026 11:06:13 GMT
+
+https://screenrant.com/portal-2-new-game-free-april-2026/
+
+There's no telling how long we'll have to wait to get our hands on Half-Life 3, but luckily there's a brand-new Portal game to keep us busy.
+---------
+
+# Hogwarts Legacy Azkaban Gameplay Expansion Is Seriously Impressive
+
+Gaming, Hogwarts Legacy
+
+Mon, 20 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/hogwarts-legacy-azkaban-fan-expansion/
+
+Experience the dark side of the Harry Potter world with the Azkaban mod for Hogwarts Legacy.
+---------
+
+# For All Mankind Season 5: Show Continues Strong After Ed Baldwin's Death
+
+TV, Op-Ed, For All Mankind
+
+Mon, 20 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/for-all-mankind-good-without-ed-baldwin/
+
+Can For All Mankind succeed without its leading man, Ed Baldwin? Happily, the answer is a resounding yes.
+---------
+
+# Cyberpunk 2077: Night City 2045 Officially Announced
+
+Gaming, Cyberpunk 2077
+
+Mon, 20 Apr 2026 10:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-night-city-2045-single-player-announcement/
+
+Discover the origins of Night City with the upcoming 312-page sourcebook Night City 2045 for Cyberpunk RED.
+---------
+
+# New Ben 10 Off to a Red-Hot Start
+
+Comics, Ben 10
+
+Mon, 20 Apr 2026 11:16:39 GMT
+
+https://www.cbr.com/ben-10-red-hot-start/
+
+Dynamite's upcoming Ben 10 comic book is off to a red-hot start, with very impressive sales for its first issue
+---------
+
+# 10 Massively Important Comic Moments Fans Want In The MCU
+
+Comics, Marvel, Marvel Cinematic Universe
+
+Mon, 20 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/underrated-comic-moments-fans-want-in-the-mcu/
+
+Marvel Studios needs to make these major comic moments happen in its live-action universe.
+---------
+
+# 8 Most Universally Beloved Action Movies of All Time, Ranked
+
+Movie, Action, Terminator 2: Judgment Day, Die Hard, The Dark Knight
+
+Mon, 20 Apr 2026 11:40:13 GMT
+
+https://collider.com/most-universally-beloved-action-movies-all-time-ranked/
+
+From Terminator 2: Judgment Day to The Matrix, these action giants still hit harder, faster, and smarter than anything chasing them.
+---------
+
+# 35 Best Movies Since 2020 (So Far), Ranked According to IMDb
+
+Movie, Spider-Man: Across the Spider-Verse, Oppenheimer, Dune: Part Two, IMDb
+
+Mon, 20 Apr 2026 11:38:12 GMT
+
+https://collider.com/best-movies-2020s-ranked-imdb/
+
+2025 marked another great year for movies, joining the ranks of what will be the very best films of the decade, at least according to IMDb.
+---------
+
+# 10 Netflix Thrillers That Just Get Better With Every Episode
+
+TV, Netflix, Baby Reindeer, The Beast in Me, Ozark
+
+Mon, 20 Apr 2026 11:33:12 GMT
+
+https://collider.com/netflix-thrillers-get-better-with-every-episode/
+
+From Ozark, to Dark, to Money Heist, these relentless Netflix thriller shows just kept getting better with every episode.
+---------
+
+# Bring Out the Gimp! Quentin Tarantino on the Identity of ’Pulp Fiction’s Leather-Clad Icon
+
+Movie Features, Pulp Fiction, Quentin Tarantino, Bruce Willis, Ving Rhames
+
+Mon, 20 Apr 2026 11:31:12 GMT
+
+https://collider.com/pulp-fiction-quentin-tarantino-who-is-the-gimp/
+
+Who is the man in the gimp suit in Pulp Fiction? The answer is someone who is surprisingly involved with some famous animated TV shows.
+---------
+
+# Peacock Officially Reveals the Fate of MCU Star's James Bond Rival After 1 Season
+
+TV News, The Copenhagen Test, Peacock, Action, Simu Liu
+
+Mon, 20 Apr 2026 11:31:12 GMT
+
+https://collider.com/peacock-spy-thriller-simu-liu-the-coppenhagen-test-season-2-cancelled/
+
+A high-concept espionage drama starring a major Marvel actor has been cancelled after one season despite solid reviews and early viewership momentum.
+---------
+
+# 10 Most Perfect Opening Scenes in Superhero Movies, Ranked
+
+Movie, Superhero, The Dark Knight, Watchmen, Spider-Man Into the Spider-Verse
+
+Mon, 20 Apr 2026 11:21:12 GMT
+
+https://collider.com/most-perfect-superhero-movie-scenes-ranked/
+
+Superhero movies like The Dark Knight, Watchmen, and Spider-Man 2 have some of the greatest, nearly perfect opening scenes in the genre's history.
+---------
+
+# 10 Greatest Action Movies of the Last 90 Years, Ranked
+
+Movie, Action, Hard Boiled, Terminator 2: Judgment Day, Raiders of the Lost Ark
+
+Mon, 20 Apr 2026 11:04:14 GMT
+
+https://collider.com/best-action-movies-last-90-years-ranked/
+
+Hard Boiled, The Matrix, and Dirty Harry are all among the absolute greatest and most exciting action movies released over the last 90 years.
+---------
+
+# Amazon's New 4-Part Sci-Fi Horror Series Debuts to Rare Rotten Tomatoes Score
+
+TV News, From, MGM, Horror, Sci-Fi
+
+Mon, 20 Apr 2026 11:00:13 GMT
+
+https://collider.com/amazon-mgm-plus-sci-fi-horror-series-from-season-4-rotten-tomatoes-score-is-it-good/
+
+From Season 4 receives unanimous critical acclaim, continuing the show's trend of overwhelmingly positive reactions. Get all the details.
+---------
+
+# Netflix’s Official ‘Reacher’ Rival Suffers Massive Setback Before Season 4
+
+TV News, The Night Agent, Netflix, Reacher, Gabriel Basso
+
+Mon, 20 Apr 2026 10:30:12 GMT
+
+https://collider.com/netflix-reacher-replacement-the-night-agent-exits-all-time-top-10-most-watched-series/
+
+Netflix's official Reacher rival, The Night Agent, is no longer one of the most-watched shows on the platform. Find out more information here.
+---------
+
+# Ryan Reynolds Confirms He's Now Writing 'Deadpool 4'
+
+Movie News, Ryan Reynolds, Deadpool
+
+Mon, 20 Apr 2026 11:47:49 GMT
+
+https://movieweb.com/ryan-reynolds-deadpool-4-not-main-character/
+
+The MCU star reveals that he's now writing "some stuff," but reveals that Deadpool himself might not be the main character.
+---------
+
+# Patrick Muldoon Dead: 'Starship Troopers' & 'Days of Our Lives' Star Was 57
+
+Movie News, Patrick Muldoon, Starship Troopers, Days of Our Lives, obituaries
+
+Mon, 20 Apr 2026 11:30:55 GMT
+
+https://movieweb.com/patrick-muldoon-dead-aged-57/
+
+Patrick Muldoon, the actor best known for his roles in 'Starship Troopers' and 'Days of Our Lives,' has died at the age of 57.
+---------
+
+# Russell Crowe Teases Transformation in 'Highlander' Reboot With New Image
+
+Movie News, Russell Crowe, Highlander, Action, Fantasy
+
+Mon, 20 Apr 2026 11:28:28 GMT
+
+https://movieweb.com/russell-crowe-highlander-reboot-training-image/
+
+The 62-year-old Oscar-winning actor and 'Gladiator' star has been training hard for Henry Cavill's long-awaited 'Highlander.'
+---------
+
+# 'Fargo': FX's 5-Part Crime Thriller Has One of the Best TV Casts of All Time
+
+Features, Fargo, Crime
+
+Mon, 20 Apr 2026 11:01:17 GMT
+
+https://movieweb.com/fx-fargo-best-tv-cast/
+
+'Fargo', consisting of five seasons, is the perfect choice for anyone looking for a perfect crime thriller series with a great cast.
+---------
+
+# 'Super Mario Galaxy' Is 2026’s Biggest Movie as It Scares off 'The Mummy' Reboot
+
+Movie News
+
+Sun, 19 Apr 2026 22:04:23 GMT
+
+https://movieweb.com/super-mario-mummy-box-office/
+
+Universal's 'Super Mario Galaxy' movie still sits on top of the weekly box office rankings.
+---------
+
 # GTA 6 Official Release Date Update Is The Most Important Yet
 
 Gaming, Grand Theft Auto 6, Grand Theft Auto
