@@ -1,3 +1,322 @@
+# Michelle Pfeiffer's New 96% RT Apple TV Series Dominates Streaming In The U.S.
+
+TV, Margo's Got Money Troubles
+
+Mon, 20 Apr 2026 19:51:46 GMT
+
+https://screenrant.com/margos-got-money-troubles-streaming-success-april-2026/
+
+Michelle Pfeiffer and Elle Fanning's new Apple TV series has become a record-breaking feat for Fanning and has become a streaming sensation.
+---------
+
+# Bob Odenkirk’s New Crime Thriller Puts A Twist On Gary Cooper’s Iconic 74-Year-Old Western Classic
+
+Movies, Normal, Bob Odenkirk
+
+Mon, 20 Apr 2026 19:48:14 GMT
+
+https://screenrant.com/normal-movie-high-noon-western-comparison-ben-wheatley/
+
+EXCLUSIVE: Director Ben Wheatley reveals how much an iconic Gary Cooper Western inspired Breaking Bad alum Bob Odenkirk’s brand-new film.
+---------
+
+# Netflix Is Releasing 3-Part Time Travel Sci-Fi Series Next Week
+
+TV, Masked Recs, La Brea
+
+Mon, 20 Apr 2026 19:45:02 GMT
+
+https://screenrant.com/la-brea-netflix-streaming-release-date-may-2026/
+
+Netflix will soon be getting a sci-fi series that ran for three seasons, continuing an underappreciated strength of the streaming platform.
+---------
+
+# 18 Years Later, DC Is Officially Fixing The Dark Knight
+
+Movies, The Batman Part II, The Dark Knight, Batman, DC
+
+Mon, 20 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/the-batman-part-2-harvey-dent-fixing-dark-knight/
+
+DC aims to rectify The Dark Knight's underwhelming portrayal of Harvey Dent by heavily focusing on the character in The Batman - Part II, with a star-studded cast hinting at a more faithful and tragic depiction.
+---------
+
+# How Elizabeth Banks' New Sci-Fi Comedy Is More Than A Twist Of Disney's $227M Classic Explained By Miniature Wife Cast & Creators
+
+TV, The Miniature Wife, The Miniature Wife - Season 1, Elizabeth Banks, Peacock
+
+Mon, 20 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/miniature-wife-show-honey-i-shrunk-kids-comparisons-cast-creators/
+
+Elizabeth Banks and the cast and creators of The Miniature Wife talk their new sci-fi comedy and how it's more than a twist on a Disney classic.
+---------
+
+# Megan Fox's $31M Cult Classic Horror Officially Releases On Netflix Next Week
+
+Movies, Masked Recs, Megan Fox
+
+Mon, 20 Apr 2026 19:29:47 GMT
+
+https://screenrant.com/jennifers-body-netflix-streaming-release-date-may-2026/
+
+Netflix is getting a cult classic horror movie starring Megan Fox that grossed a disappointing $31 million when it originally released.
+---------
+
+# Spider-Man: Brand New Day's Savage Hulk Return Just Became Even More Likely
+
+Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Quiz CV
+
+Mon, 20 Apr 2026 19:12:50 GMT
+
+https://screenrant.com/spider-man-brand-new-day-savage-hulk-2026-mcu-update/
+
+After many rumors, new evidence teases how the Savage Hulk will return to the MCU in Spider-Man: Brand New Day — say goodbye to Marvel's Smart Hulk.
+---------
+
+# Why Hearthstone Battlegrounds Is Still A Dominant Auto-Battler: "It's A Lot To Juggle"
+
+Gaming, Hearthstone, Triple-A Games
+
+Mon, 20 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/hearthstone-battlegrounds-blizzard-interview-2026/
+
+Despite coming out in 2019 as a side mode for Hearthstone, Battlegrounds has remained a staple of the digital card game ever since.
+---------
+
+# One Piece: The Only Character Stronger Than Luffy Destined to Defeat Imu
+
+Anime, One Piece, One Piece (1997)
+
+Mon, 20 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/one-piece-imu-taken-down-by-loki-not-luffy/
+
+Imu's true power proves Luffy isn't ready for One Piece's final boss. Here is who actually stands a chance against Imu.
+---------
+
+# The Glory Is A Psychological Masterpiece That Is Not Easy To Binge
+
+Classic TV, Masked Recs
+
+Mon, 20 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/the-glory-psychological-thriller-netflix-show-not-easy-binge/
+
+Netflix’s library includes a 16-episode psychological thriller with a near-perfect RT Score that is almost too disturbing to watch, but so worth it.
+---------
+
+# What is Magic: The Gathering?
+
+Games, Magic The Gathering
+
+Mon, 20 Apr 2026 19:52:10 GMT
+
+https://www.cbr.com/mtg-trivia-numbers-history/
+
+How old is Magic: The Gathering? Who Created Magic? All these questions and more.
+---------
+
+# Oscar Isaac Shares the Story Behind Star Wars' Most Infamous Line
+
+Movies, Star Wars: Episode IX - The Rise of Skywalker, Star Wars
+
+Mon, 20 Apr 2026 19:49:23 GMT
+
+https://www.cbr.com/star-wars-oscar-isaac-somehow-palpatine-returned/
+
+After seven years, Oscar Isaac dishes on how the most infamous line in Star Wars history came to be.
+---------
+
+# 10 Best Far Side Comics That Are Officially 30 Years Old Now
+
+Comics, The Far Side
+
+Mon, 20 Apr 2026 19:40:43 GMT
+
+https://www.cbr.com/best-far-side-comics-that-are-30-years-old/
+
+Everyone loves a milestone birthday. Especially The Far Side.
+---------
+
+# This Epic Piano Scene in Tombstone Has a Devastating Hidden Meaning
+
+Movies, Tombstone, Western
+
+Mon, 20 Apr 2026 19:30:13 GMT
+
+https://www.cbr.com/tombstone-doc-holliday-piano-scene-tragic-hidden-message/
+
+Tombstone is packed with details, but one seemingly useless scene is a small part of Doc Holliday's tragic story..
+---------
+
+# MTG's LotR One Ring Card Is Selling For Over $100
+
+Games, Magic The Gathering, TCG
+
+Mon, 20 Apr 2026 19:24:38 GMT
+
+https://www.cbr.com/mtg-lotr-tales-of-middle-earth-one-ring-card-overpriced/
+
+MTG's LotR One Ring is included in Tales of Middle-earth Bundles, but the alt-art card is surging in price.
+---------
+
+# From Season 4: Harold Perrineau Breaks Down Theories, Twists, and What Fans Missed
+
+TV, From
+
+Mon, 20 Apr 2026 19:21:52 GMT
+
+https://www.cbr.com/video/from-season-4-harold-perrineau-breaks-down-theories-twists-and-what-fans-missed/
+
+From Season 4 secrets are starting to take shape, and Harold Perrineau is right there with the fans.The actor reveals how the From fandom is helping decode the show’s biggest mysteries.In this interview, Perrineau talks about the shared experience of watching From unfold, why fan theories sometimes catch details he didn’t, and how tricky it is to tease upcoming twists without spoilers. He also reflects on his career across Lost, Romeo + Juliet, and now From, and how each project connects with different audiences.
+---------
+
+# Outlander: Blood of My Blood Reaches New Milestone Ahead of Season 2
+
+TV, Outlander, Outlander: Blood of My Blood, STARZ
+
+Mon, 20 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/outlander-blood-of-my-blood-romance-drama-starz-success-april-2026/
+
+Outlander: Blood of My Blood has reached a new milestone on US streaming charts, ahead of its highly anticipated Season 2.
+---------
+
+# Before Focker-in-Law, Here are 10 of Robert De Niro's Greatest Movies That Aren't Mob Films
+
+Movies, Focker-In-Law
+
+Mon, 20 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/rober-de-niro-best-non-gangster-movies-before-focker-in-law-list/
+
+Robert De Niro is often remembered for his mobster roles, but he also has movies in other genres that are perfect to watch before Focker-in-Law.
+---------
+
+# All 4 Toy Story Movies Are Masterpieces, but One Is Untouchable
+
+Movie, Toy Story, Toy Story 2, Toy Story 3, Toy Story 4
+
+Mon, 20 Apr 2026 19:41:06 GMT
+
+https://collider.com/toy-story-movies-masterpieces-ranked/
+
+Every movie in the Toy Story franchise can be considered a modern masterpiece of animation, but one towers over the rest in terms of overall quality.
+---------
+
+# Bong Joon Ho Reveals How He Almost Met the Real 'Memories of Murder' Killer
+
+Exclusives, Bong Joon Ho, Parasite, Snowpiercer, Ally
+
+Mon, 20 Apr 2026 19:30:12 GMT
+
+https://collider.com/bong-joon-ho-future-projects-memories-of-murder-ending-killer-zodiac-connection-interview/
+
+Director Bong Joon Ho shares his favorite films and discusses his upcoming animated ocean adventure Ally and his ideas for his next live-action film.
+---------
+
+# 3 Near-Perfect Netflix Movies To Watch This Week
+
+Movie, Netflix, Denial, Him, To Die For
+
+Mon, 20 Apr 2026 19:20:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-april-20/
+
+Denial, Him, and To Die For make up our list of the best Netflix movies to watch the week of April 20, 2026.
+---------
+
+# DC’s Next Superhero Movie Officially Begins Filming With First BTS Reveal
+
+Movie News, Man of Tomorrow, James Gunn, David Corenswet, Nicholas Hoult
+
+Mon, 20 Apr 2026 19:12:31 GMT
+
+https://collider.com/dc-superhero-movie-superman-man-of-tomorrow-filming-start-confirmed-james-gunn/
+
+James Gunn officially confirms DC’s next superhero movie is officially in production with a behind-the-scenes photo as filming begins.
+---------
+
+# New ‘Scooby-Doo’ Series Will Reinvent the Franchise
+
+TV News, Scooby-Doo, Anime, Cartoons, Warner Bros.
+
+Mon, 20 Apr 2026 19:03:27 GMT
+
+https://collider.com/scooby-doo-anime-series-update-warner-bros/
+
+Warner Bros. provides an update on its upcoming Scooby-Doo anime series, Go Go Mystery Machine, set in Japan with new characters and monsters.
+---------
+
+# Taylor Sheridan’s #1 Paramount Hit Confirms This Series Has Entered a Bold New Era
+
+TV Features, Taylor Sheridan, Yellowstone, Marshals, Paramount Plus
+
+Mon, 20 Apr 2026 18:56:12 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-marshals-hit-paramount-franchise-new-era/
+
+Marshalls is drawing record ratings, showcasing that the Yellowstone franchise is capable of evolving.
+---------
+
+# Tom Cruise Confirms May 2026 Re-Release of 'Top Gun' & 'Top Gun: Maverick'
+
+Movie News, Top Gun, Tom Cruise, top gun, Top Gun: Maverick
+
+Mon, 20 Apr 2026 19:54:44 GMT
+
+https://movieweb.com/tom-cruise-top-gun-movies-release/
+
+In May 2026, Tom Cruise's two 'Top Gun' movies will be re-released in theaters to celebrate the original movie's release anniversary.
+---------
+
+# Oscar Isaac Confirms "Palpatine Return" Line in 'Star Wars: The Rise of Skywalker' Was a Part of the Reshoots
+
+Movie News, Star Wars, Star Wars: Episode IX - The Rise of Skywalker, Oscar Isaac
+
+Mon, 20 Apr 2026 19:43:18 GMT
+
+https://movieweb.com/oscar-isaac-star-wars-palpatine-line/
+
+The star of the sequel trilogy admits the now-infamous line wasn't part of the original script.
+---------
+
+# James Gunn Reveals 'Man of Tomorrow' Set Image Teasing Brainiac
+
+Movie News, Man of Tomorrow, Superman, DCU, James Gunn
+
+Mon, 20 Apr 2026 19:39:09 GMT
+
+https://movieweb.com/man-of-tomorrow-set-image-brainiac/
+
+Filming has begun on the 'Superman' follow-up, 'Man of Tomorrow,' is filled with DCU Easter Eggs and references.
+---------
+
+# Netflix Lands Global Streaming Hit in 91-Minute Action Thriller Masterpiece 'Sisu'
+
+Movie News, Netflix, Sisu, Action, War, Thriller
+
+Mon, 20 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/netflix-sisu-stream-april-2026-action/
+
+The action war movie is climbing the global Netflix charts, with the 2025 sequel also available to stream on the platform in the US.
+---------
+
+# Alan Ritchson's 'Blue Mountain State' Is More Relevant Than Ever
+
+Features, Alan Ritchson
+
+Mon, 20 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/blue-mountain-state-alan-ritchson-relevant/
+
+'Blue Mountain State', starring a young Alan Ritchson as a college football player, remains one of the funniest sitcoms ever made.
+---------
+
 # Catwoman’s New DC Design Reveals Major Costume Changes
 
 Comics, Catwoman
