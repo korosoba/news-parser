@@ -1,3 +1,234 @@
+# A24's Elden Ring Movie Confirms Full Cast & 2028 IMAX Release Date
+
+Movies, Elden Ring
+
+Mon, 20 Apr 2026 13:09:22 GMT
+
+https://screenrant.com/elden-ring-movie-cast-release-date-confirmed-a24-alex-garland/
+
+A24's Elden Ring movie confirms its full cast alongside a 2028 IMAX release date, unveiling new details about the video game adaptation.
+---------
+
+# Will Trent Exiting Cast Member Speaks Out About Their Dark Fate: "It's Just A Job"
+
+Network TV, Will Trent
+
+Mon, 20 Apr 2026 13:02:21 GMT
+
+https://screenrant.com/will-trent-amanda-death-sonja-sohn-comment/
+
+In one of the biggest plot twists in the 2025-2026 TV cycle, Will Trent says goodbye to an original cast member and they finally comment about it.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Week (April 20-26)
+
+Movies, HBO Max, Recommendation
+
+Mon, 20 Apr 2026 13:01:17 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-week-april-20/
+
+HBO Max has so many amazing movies to choose from, but this week's picks run the gamut from action, suspense, and Oscar-nominated drama.
+---------
+
+# Xbox $100 Free Store Credit Praised By Gamers
+
+Gaming, Xbox Series X/S
+
+Mon, 20 Apr 2026 13:01:17 GMT
+
+https://screenrant.com/xbox-100-free-store-credit-praised-by-gamers/
+
+Xbox gives players plenty of different ways to save money, but one in particular is worth keeping an eye on if you play regularly.
+---------
+
+# Vampire Crawlers: All Arcanas And How To Unlock Them
+
+Gaming, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Mon, 20 Apr 2026 13:01:17 GMT
+
+https://screenrant.com/vampire-crawlers-all-arcanas-and-how-to-unlock-them/
+
+Arcanas are game-changing buffs to your character's loadout that can make or break your dungeon run in Vampire Crawlers.
+---------
+
+# Vampire Crawlers: How Long Will It Take You To Beat?
+
+Gaming, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Mon, 20 Apr 2026 13:01:17 GMT
+
+https://screenrant.com/vampire-crawlers-how-long-will-it-take-you-to-beat/
+
+For those who want to prepare and strategize, Vampire Crawlers is a lengthy game with a ton of replayability.
+---------
+
+# Vampire Crawlers: Best Upgrades To Buy First
+
+Gaming, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Mon, 20 Apr 2026 13:01:17 GMT
+
+https://screenrant.com/vampire-crawlers-best-upgrades-to-buy-first/
+
+If you want to aim for maximum efficiency, here are our picks for the best upgrades to buy first in Vampire Crawlers.
+---------
+
+# Maggie Lawson Reveals Why Sarah’s Boston Blue Proposal Scene Was The Most Emotional Day On Set
+
+TV, Boston Blue, Blue Bloods
+
+Mon, 20 Apr 2026 12:35:09 GMT
+
+https://screenrant.com/boston-blue-sarah-propsal-emotional-maggie-lawson/
+
+EXCLUSIVE: Boston Blue star Maggie Lawson reveals why Sarah's proposal scene was the most emotional day on set, and what it means for her future.
+---------
+
+# Red Dead Redemption 2 New Mode Is A Massive Hit With Gamers
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Mon, 20 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-duel-mode-april-2026/
+
+Red Dead Redemption 2 was missing a feature that's a quintessential part of the cowboy experience, until now.
+---------
+
+# PlayStation Plus Drops Free Bonus Download For April 2026, Available Now
+
+Gaming, PlayStation Plus
+
+Mon, 20 Apr 2026 12:24:01 GMT
+
+https://screenrant.com/playstation-plus-free-bonus-april-2026-sky/
+
+On top of the usual free monthly games, PlayStation Plus members can now get a free DLC as an added bonus for April, but it won't be around forever.
+---------
+
+# Forget The Hunger Games, 1 of the Wildest Post-Apocalyptic Sci-Fi Series Will Stream for Free in 2 Weeks
+
+TV, The 100
+
+Mon, 20 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/tubi-the-100-post-apocalyptic-sci-fi-streaming-may-2026/
+
+One of the greatest post-apocalyptic sci-fi dramas will soon be available to stream completely free.
+---------
+
+# Project Hail Mary Had 1 Missing Scene That Andy Wier Wanted
+
+Movies, Project Hail Mary, Sci-Fi, ryan gosling
+
+Mon, 20 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-andy-weir-missing-scene/
+
+The success of Project Hail Mary proves viewers love a thoughtful sci-fi story, but even Andy Weir regrets keeping one key scene out of the movie.
+---------
+
+# Star Wars Officially Reveals Luke Skywalker's Lore Will Change Again
+
+Comics, Star Wars
+
+Mon, 20 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/star-wars-galaxys-edge-echoes-of-the-empire-luke-skywalker-boba-fett/
+
+Star Wars fans just got the rematch they have been begging to see for decades, and it marks a major change to two characters' established lore.
+---------
+
+# George R.R. Martin's Most Ambitious Fantasy Project Ever Sets Theatrical Release Date
+
+Movie News, George R.R. Martin, Alex Garland, Elden Ring
+
+Mon, 20 Apr 2026 13:00:13 GMT
+
+https://collider.com/george-r-r-martin-elden-ring-live-action-movie-release-date-alex-garland-directing-cast/
+
+The live-action Elden Ring movie, directed by Alex Garland, has unveiled its star-studded cast and confirmed a 2028 theatrical release.
+---------
+
+# 60 Years Later, This Sci-Fi Quote Is Still the Best of All Time
+
+TV Features, Star Trek, William Shatner, Leonard Nimoy, Sci-Fi
+
+Mon, 20 Apr 2026 12:42:13 GMT
+
+https://collider.com/best-sci-fi-quote-all-time-star-trek-live-long-and-prosper/
+
+Spock's famous "Live Long and Prosper" quote from Star Trek remains one of the most iconic sci-fi lines of all time.
+---------
+
+# Paramount's Epic Horror Fantasy Revival Is Quietly Climbing Free Streaming Charts
+
+Movie News, Teen Wolf: The Movie, Teen Wolf, The Vampire Diaries, Paramount Plus
+
+Mon, 20 Apr 2026 12:30:12 GMT
+
+https://collider.com/teen-wolf-the-movie-fantasy-series-revival-free-streaming-success-tubi-april-2026/
+
+Teen Wolf: The Movie, a revival of the popular fantasy show, is surging on free streaming, making it a must-watch hit for fans of the series.
+---------
+
+# Paramount+'s 2-Part Action Series Is So Good, You Can Rewatch It Multiple Times
+
+Movie Features, top gun, Top Gun: Maverick, Tom Cruise, Paramount Plus
+
+Mon, 20 Apr 2026 12:19:12 GMT
+
+https://collider.com/top-gun-maverick-tomcruise-streaming-paramount-best-action-movie/
+
+With news of a third Top Gun movie in the works, now's the time to revisit the high flying action franchise on Paramount+.
+---------
+
+# Disney's Fantasy Misfire Is Quietly Climbing Global Streaming Charts 3 Years Later
+
+Movie News, Indiana Jones and the Dial of Destiny, Harrison Ford, Mads Mikkelsen, Fantasy
+
+Mon, 20 Apr 2026 12:00:12 GMT
+
+https://collider.com/disney-indiana-jones-and-the-dial-of-destiny-streaming-success-itunes-april-2026/
+
+The franchise-ending big-budget sequel Indiana Jones and the Dial of Destiny is staging a comeback on streaming. Find out more here.
+---------
+
+# Zach Cregger's 'Resident Evil' Reboot: Confirmed Cast & Video Game Characters
+
+Features, Resident Evil, Zach Cregger
+
+Mon, 20 Apr 2026 13:01:16 GMT
+
+https://movieweb.com/resident-evil-reboot-cast-characters/
+
+Everything you need to know about the cast and characters of writer-director Zach Cregger's 'Resident Evil' horror reboot.
+---------
+
+# Crunchyroll's 'The Beginning After the End' is a Streaming Success With Season 2 After the First Season Flopped
+
+TV News, The Beginning After the End, Crunchyroll, Hot on Streaming
+
+Mon, 20 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/the-beginning-after-the-end-anime-streaming-success-crunchyroll-april-2026/
+
+Crunchyroll's high-fantasy action isekai anime 'The Beginning After the End' is a streaming success with its second season after Season 1 was hated.
+---------
+
+# 'Evil Dead Burn' Teaser Detail Finally Sets Up a Connected 'Evil Dead' Universe
+
+Features, Evil Dead Burn, Evil Dead
+
+Mon, 20 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/evil-dead-burn-theory-franchise-connection-ash-vs-evil-dead/
+
+A blink-and-you'll-miss-it detail from the in-theater teaser for 'Evil Dead Burn' hints that the movie may connect to 'Ash vs. Evil Dead'.
+---------
+
 # Half-Life 3 Be Damned, A New Portal Game Just Dropped
 
 Gaming, Half-Life, PC, Portal, Portal 2
