@@ -1,3 +1,344 @@
+# The Mentalist: Hulu's Underrated Sherlock Meets Dexter Crime Thriller
+
+Classic TV, Masked Recs
+
+Mon, 20 Apr 2026 17:46:19 GMT
+
+https://screenrant.com/the-mentalist-sherlock-meets-dexter-detective-series/
+
+Hulu has a seven-season crime thriller that is a mix of Dexter and Sherlock, and fans of police procedurals won't find much better in the genre.
+---------
+
+# Millie Bobby Brown's New WWII Netflix Movie Gets Major Boost With Oscar-Winning Director
+
+Movies, Millie Bobby Brown
+
+Mon, 20 Apr 2026 17:42:46 GMT
+
+https://screenrant.com/millie-bobby-brown-netflix-nineteen-steps-tom-hooper-director/
+
+Millie Bobby Brown's new World War II Netflix movie receives a major boost with the addition of an Academy Award-winning director behind the camera.
+---------
+
+# Prime Video's 2 Biggest Shows Right Now Prove What Marvel & DC Don't Understand
+
+TV, Marvel, DC, The Boys, Invincible, Prime Video
+
+Mon, 20 Apr 2026 17:35:19 GMT
+
+https://screenrant.com/prime-video-biggest-shows-marvel-dc-r-rated-problem/
+
+The Boys and Invincible's shared success on Prime Video highlights an awkward reality Marvel and DC must accept, even if it goes against their plans.
+---------
+
+# Ridley Scott's Near-Perfect Sci-Fi Thriller Epic Soars Back Onto Streaming Charts 11 Years Later
+
+Movies, Masked Recs
+
+Mon, 20 Apr 2026 17:31:28 GMT
+
+https://screenrant.com/ridley-scott-the-martian-movie-streaming-success-itunes/
+
+Ridley Scott's near-perfect sci-fi thriller epic soars back onto the streaming charts 11 years after its original theatrical release in 2015.
+---------
+
+# Who Plays Liam On Sullivan's Crossing? Where You've Seen The Actor Before
+
+Network TV, Sullivan's Crossing
+
+Mon, 20 Apr 2026 17:21:25 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-liam-marcus-rosner-explained/
+
+Sullivan's Crossing has introduced Liam Davies, a new character who claims to be Maggie's husband. Here's where you've seen the actor before.
+---------
+
+# Wonder Woman's Confirmed James Gunn DC Universe Suit Is Exactly What Diana Prince Needed
+
+Superheroes, Wonder Woman, Creature Commandos, DC Universe, Quiz CV
+
+Mon, 20 Apr 2026 17:20:19 GMT
+
+https://screenrant.com/wonder-woman-suit-james-gunn-dc-universe-creature-commandos/
+
+James Gunn's DC Universe has already revealed Wonder Woman's new suit, and it is exactly what Diana Prince needed in live-action after Gal Gadot's.
+---------
+
+# R-Rated Idiots Trailer Reveals Dave Franco & O'Shea Jackson Jr.'s Violent & Vulgar New Comedy
+
+Movies, Idiots, Dave Franco, O'Shea Jackson Jr.
+
+Mon, 20 Apr 2026 17:18:40 GMT
+
+https://screenrant.com/idiots-movie-trailer-dave-franco-oshea-jackson-jr/
+
+Independent Film Company shares the teaser trailer for Dave Franco and O’Shea Jackson Jr.’s upcoming comedy, Idiots, which will be released in August.
+---------
+
+# Oscar Isaac Clarifies Star Wars 9's Most-Meme'd Line After Rise Of Skywalker Disappointment
+
+Movies, Star Wars: Episode IX - The Rise of Skywalker, Star Wars, Oscar Isaac
+
+Mon, 20 Apr 2026 17:03:08 GMT
+
+https://screenrant.com/star-wars-rise-of-skywalker-oscar-isaac-palpatine-quote/
+
+It’s been almost seven years since The Rise of Skywalker created one of the biggest Star Wars memes, and now Oscar Isaac explains what happened.
+---------
+
+# DC Confirms Batman & Lobo’s New Spinoff Arrives After the Supergirl Movie
+
+DC Comics, Batman, Lobo
+
+Mon, 20 Apr 2026 16:49:10 GMT
+
+https://screenrant.com/batman-lobo-new-spinoff-dc-supergirl-movie/
+
+June 26, 2026, isn’t the only date that fans should be marking on their calendar when it comes to some can't-miss Lobo mayhem.
+---------
+
+# The Apothecary Diaries Officially Returns With New Release Before Season 3, But There's One Twist Fans Will Hate
+
+Anime, The Apothecary Diaries
+
+Mon, 20 Apr 2026 16:45:37 GMT
+
+https://screenrant.com/apothecary-diaries-new-chapter-wont-release-america-season-3/
+
+Fans of The Apothecary Diaries will have a new way to experience the series' world with an upcoming big release that has limited availability.
+---------
+
+# Marvel Studios Visual Development Lead Andy Park Laid Off After 16 Years
+
+Movies, Marvel Cinematic Universe, superheroes
+
+Mon, 20 Apr 2026 17:42:17 GMT
+
+https://www.cbr.com/marvel-studios-andy-park-exit/
+
+Marvel's acclaimed visual development lead Andy Park confirmed that he has been let go from the company after 16 years.
+---------
+
+# Taylor Sheridan's Landman Surprises With New Release Today
+
+TV, Landman
+
+Mon, 20 Apr 2026 17:36:26 GMT
+
+https://www.cbr.com/taylor-sheridan-landman-season-2-digital-release-april-2026/
+
+The series is officially set to return for Season 3, but until then, it has a new surprise.
+---------
+
+# MGM+'s From is a Mystery Box Masterpiece That Just Officially Earned Modern Classic Status
+
+TV, From, MGM+, Horror, Mystery
+
+Mon, 20 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/mgm-masterpiece-from-earned-modern-classic-status/
+
+After years of unanswered mystery and delightful genre weirdness, FROM will get a final season and could be the first classic from MGM+.
+---------
+
+# The Mandalorian and Grogu is Finally Give Grogu His Own Solo Mission
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Mon, 20 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-first-solo-mission/
+
+The Mandalorian and Grogu is continuing on the show's legacy and is finally making good on a huge fan request.
+---------
+
+# Steam's New 20-Hour RPG Is an Undisputed Modern Masterpiece
+
+Games, RPG, Steam, Dungeons and Dragons
+
+Mon, 20 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/new-steam-rpg-esoteric-ebb-modern-masterpiece/
+
+The newest RPG on Steam is a masterpiece every fan of the genre needs to play.
+---------
+
+# New Elden Ring Expansion Officially Has the Best FromSoftware Boss Fights
+
+Games, Elden Ring
+
+Mon, 20 Apr 2026 17:10:12 GMT
+
+https://www.cbr.com/elden-ring-sword-heart-official-best-boss-fights-fromsoftware/
+
+Elden Ring offered some of the greatest fights in all of gaming, and the newest addition to the game is set to make combat more intense than ever.
+---------
+
+# 25 Most Expensive Dragon Ball Super: Masters Cards, Ranked
+
+Games, Dragon Ball, Dragon Ball Super, TCG
+
+Mon, 20 Apr 2026 17:07:08 GMT
+
+https://www.cbr.com/dragon-ball-super-card-game-rarest-cards-bandai/
+
+Dragon Ball Super: Masters TCG has been going on for a few years now, making the most expensive cards a true prize for players to get their hands on.
+---------
+
+# Jujutsu Kaisen Loses No. 1 Spot in New U.S. Sales Ranking
+
+Anime, Jujutsu Kaisen, Chainsaw Man
+
+Mon, 20 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-vs-chainsaw-man-manga-ranking-america/
+
+The original Jujutsu Kaisen just dropped out of yet another top spot, this time in the latest manga ranking for the United States.
+---------
+
+# Superman Sequel Man of Tomorrow Begins Filming, First Look Released
+
+Movies, Man of Tomorrow, DCU, superheroes
+
+Mon, 20 Apr 2026 16:49:22 GMT
+
+https://www.cbr.com/superman-2-man-of-tomorrow-first-look-james-gunn/
+
+James Gunn has revealed a sneak peek from the set of Superman sequel Man of Tomorrow as the DC film begins production.
+---------
+
+# Oscar Isaac Addresses Moon Knight's Return in Marvel Cinematic Universe
+
+TV, Moon Knight, Marvel Cinematic Universe
+
+Mon, 20 Apr 2026 16:37:32 GMT
+
+https://www.cbr.com/oscar-isaac-moon-knight-mcu-return-addressed/
+
+Oscar Isaac opens up about what it would take to return to the Marvel Cinematic Universe as Moon Knight.
+---------
+
+# 25 Years Later, This Returning Series Just Became Netflix’s Messiest Weekend Binge
+
+TV Features, Temptation Island, Celebrity Reality TV, Netflix, Fox
+
+Mon, 20 Apr 2026 17:47:13 GMT
+
+https://collider.com/netflix-returning-reality-tv-series-temptation-island-weekend-binge/
+
+After moving to Netflix in 2025, reality TV series Temptation Island is the perfect weeekend binge
+---------
+
+# The Spy Thriller That Inspired ‘Reacher’ Gets First Look at Season 2
+
+TV News, The Day of the Jackal, Reacher, Peacock, Eddie Redmayne
+
+Mon, 20 Apr 2026 17:19:49 GMT
+
+https://collider.com/spy-thriller-that-inspired-reacher-day-of-the-jackal-season-2-first-look-images/
+
+Peacock’s adaptation of the story that inspired Reacher is officially returning as first images from The Day of the Jackal surface online.
+---------
+
+# Netflix Officially Revives Its Biggest Sci-Fi Franchise This Week
+
+TV News, Stranger Things, Netflix, Sci-Fi, Duffer Brothers
+
+Mon, 20 Apr 2026 17:15:37 GMT
+
+https://collider.com/neflix-new-sci-fi-series-stranger-things-tales-from-85-release-date-april-2026/
+
+Netflix’s biggest sci-fi franchise of all time returns with a new spin-off premiering in 3 days. Here’s how to watch Stranger Things: Tales From ’85.
+---------
+
+# The 30 Best Shows on Netflix Longer Than 5 Seasons
+
+TV, Netflix, Black Mirror, Queer Eye, Peaky Blinders
+
+Mon, 20 Apr 2026 17:13:12 GMT
+
+https://collider.com/longest-netflix-series-more-than-five-seasons/
+
+Long shows like Peaky Blinders, Better Call Saul, and Lucifer are there for you when you really want to settle in with more than five seasons.
+---------
+
+# Tom Cruise's 'Top Gun' Movies Officially Return to Theaters
+
+Movie News, Top Gun: Maverick, top gun, Tom Cruise, Paramount
+
+Mon, 20 Apr 2026 17:11:13 GMT
+
+https://collider.com/top-gun-maverick-theatrical-re-release-double-feature-1-week-only/
+
+Top Gun and Top Gun: Maverick are officially returning to theaters together for a limited double feature re-release. Here’s what you need to know.
+---------
+
+# 'Practical Magic 2' Teaser Trailer Features Return of Nicole Kidman & Sandra Bullock in Fantasy Sequel
+
+Movie News, Practical Magic 2, Sandra Bullock, Nicole Kidman, Practical Magic
+
+Mon, 20 Apr 2026 17:48:09 GMT
+
+https://movieweb.com/practical-magic-2-teaser-trailer/
+
+The new sequel is based on the follow-up novel 'The Book of Magic' by Alice Hoffman.
+---------
+
+# Eddie Murphy Says 'Beverly Hills Cop 5' Is Not Happening Anytime Soon
+
+Movie News, Beverly Hills Cop, Eddie Murphy
+
+Mon, 20 Apr 2026 17:43:32 GMT
+
+https://movieweb.com/eddie-murphy-beverly-hills-cop-5/
+
+Eddie Murphy set the record straight on 'Beverly Hills Cop 5,' noting it might be a while before the film happens.
+---------
+
+# 'Legend of Zelda': New Look at Link Released as Film Wraps Production
+
+Movie News, The Legend of Zelda
+
+Mon, 20 Apr 2026 17:21:10 GMT
+
+https://movieweb.com/link-legend-of-zelda-finished-filming/
+
+'The Legend of Zelda' cinemagorapher Gyula Pados celebrated the film's completed filming with a photo that might reveal Link's final costume.
+---------
+
+# 'Beef' Season 2 Review: A Depressing Dive Into the Human Condition
+
+TV Reviews, Beef
+
+Mon, 20 Apr 2026 17:16:15 GMT
+
+https://movieweb.com/beef-season-2-review/
+
+Beef Season 2 takes you down a path of two generational couples with different views on life, but who have more in common than they realize.
+---------
+
+# 'Rogue Trooper' Images Reveal Duncan Jones' Adaptation of Sci-Fi Comic Classic
+
+Movie News, Rogue Trooper, Duncan Jones, Sci-Fi
+
+Mon, 20 Apr 2026 17:02:44 GMT
+
+https://movieweb.com/rogue-trooper-first-look-duncan-jones/
+
+The first teaser and new images for Duncan Jones' 'Rogue Trooper' have been revealed, offering a look at the animated adaptation of the 2000 AD comic.
+---------
+
+# Jason Statham's Throwback Crime Thriller 'The Bank Job' Lands New Free Streaming Home
+
+Movie News, Jason Statham, The Bank Job, Coming/Leaving Streaming, Crime
+
+Mon, 20 Apr 2026 16:56:04 GMT
+
+https://movieweb.com/jason-statham-the-bank-job-crime-thriller-streaming-free-tubi-may-2026/
+
+Statham proved he's more than just an action hero in director Roger Donaldson's phenomenal heist thriller.
+---------
+
 # James Gunn Unveils New Superman Logo As First Man Of Tomorrow Image Reveals Filming Start
 
 Movies, Man of Tomorrow, CinemaCon, DC Universe, Superman
