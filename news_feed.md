@@ -1,3 +1,322 @@
+# Mandalorian & Grogu’s Latest Trailer Proves The Star Wars Movie Has Already Nailed Its Biggest Challenge
+
+Star Wars, The Mandalorian and Grogu
+
+Mon, 20 Apr 2026 14:45:18 GMT
+
+https://screenrant.com/mandalorian-and-grogu-trailer-star-wars-movie-genre-challenge/
+
+The first Star Wars film to be released in theaters in seven years debuted a new trailer this week which inspires more confidence in the title.
+---------
+
+# Batman: Arkham Asylum Officially Returns Next Month
+
+Gaming, Batman: Arkham, Triple-A Games
+
+Mon, 20 Apr 2026 14:39:35 GMT
+
+https://screenrant.com/batman-arkham-asylum-officially-returns-next-month/
+
+Batman: Arkham Asylum was released all the way back in 2009, but even through some mismanagement from WB, the franchise has held strong with fans.
+---------
+
+# A Big Star Wars Cameo Teases A Dark Turn For Disney+'s New Show
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Mon, 20 Apr 2026 14:33:22 GMT
+
+https://screenrant.com/maul-shadow-lord-episodes-5-6-ending-explained/
+
+Disney+’s newest Star Wars TV show has officially moved beyond its halfway point, teasing a dark turn thanks to a major franchise cameo.
+---------
+
+# Designated Survivor: Netflix's Political Thriller That Blends 24 And House Of Cards
+
+Classic TV, Masked Recs
+
+Mon, 20 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/designated-survivor-24-meets-house-of-cards-thriller-series/
+
+Netflix's first major original series was House of Cards, an acclaimed political thriller, but soon after, they ran another worthy political series.
+---------
+
+# Xena: Warrior Princess Star Confirms Rumored Spinoff Plans & Why It Ultimately Failed To Materialize
+
+TV, Xena: Warrior Princess
+
+Mon, 20 Apr 2026 14:30:10 GMT
+
+https://screenrant.com/xena-warrior-princess-gabrielle-spinoff-true-renee-oconnor/
+
+Xena: Warrior Princess star Renee O'Connor confirms the heroic fantasy show's rumored spinoff plans, revealing why they failed to materialize.
+---------
+
+# New Legend Of Zelda Movie Image Seemingly Reveals The Best Look Yet At Link’s Game-Accurate Design
+
+Movies, The Legend of Zelda
+
+Mon, 20 Apr 2026 14:23:21 GMT
+
+https://screenrant.com/legend-of-zelda-movie-image-link-design-game-accurate/
+
+A new behind-the-scenes image from the Legend of Zelda movie adaptation seemingly reveals the best look yet at Link's game-accurate design.
+---------
+
+# PlayStation 6 Leaked Specs Compared To PS5 Promise A Beast Of A Console
+
+Gaming, PlayStation 6
+
+Mon, 20 Apr 2026 14:16:11 GMT
+
+https://screenrant.com/playstation-6-specs-ps5-comparison/
+
+The PlayStation 6 will be incredibly powerful, according to new leaks that say it’ll leave the PS5 in the dust — but what does that mean for price?
+---------
+
+# Event Horizon Is Officially Back With a Wild Sequel, Here’s What To Know
+
+Comics, Event Horizon
+
+Mon, 20 Apr 2026 14:11:45 GMT
+
+https://screenrant.com/event-horizon-sequel-premiere-primer/
+
+Event Horizon's sequel, explained.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Week (April 20-24)
+
+Movies, Prime Video, Recommendation
+
+Mon, 20 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-week-april-20/
+
+This week's movie picks on Amazon Prime Video are all throwbacks, with selections from the thriller, horror, and comedy genres represented.
+---------
+
+# GTA 6 Digital Price Leaks Online, You Probably Missed It
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Mon, 20 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/gta-6-price-leak-digital-rockstar-games/
+
+A price has appeared online for GTA VI, and though it's steep, there's plenty of reason to believe it isn't final either.
+---------
+
+# Hogwarts Legacy's New Dungeons Have Made It a Must-Play Game in 2026
+
+Games, Hogwarts Legacy
+
+Mon, 20 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/hogwarts-legacys-new-dungeons-must-play-game-2026/
+
+Hogwarts Legacy is inviting players back into the Wizarding World with new content for 2026.
+---------
+
+# Japan Reveals Its Top 10 Anime of Spring 2026 in Official Streaming Ranking
+
+Anime, Daemons of the Shadow Realm, Dorohedoro
+
+Mon, 20 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/japan-top-anime-spring-2026-niconico/
+
+Anime such as Daemons of the Shadow Realm, Dorohedoro and Witch Hat Atelier are among the top champions of the spring 2026 season (so far).
+---------
+
+# A Word From Our Deputy Editor of Authority and Access
+
+CBR Exclusives, CBR's Backstage Pass
+
+Mon, 20 Apr 2026 14:45:28 GMT
+
+https://www.cbr.com/video/backstagepass-intro/
+
+CBR's Backstage Pass newsletter drops every Monday and it's packed with exclusive content you won't find anywhere else. From Daredevil: Born Again Season 2 interviews with Charlie Cox and Vincent D'Onofrio, to a cover story with Steve Zahn as part of CBR's new Scene Stealers series, the newsletter is your inside track on the biggest names in entertainment. CBR also recently wrapped cast interviews with the full ensemble of The Boys ahead of Season 5, screened eight episodes of Maul: Shadow Lord, and scored early access to the highly anticipated Spider-Noir. On top of all that, CBR's Nintendo Week coverage (including columns, features, and a March Madness bracket) is in full swing. Subscribe to the Backstage Pass newsletter to stay up to date on everything CBR has to offer.
+---------
+
+# Dexter: Resurrection Season 2 Will Feature Multiple Killers
+
+TV, Dexter: Resurrection, Dexter, Paramount Plus
+
+Mon, 20 Apr 2026 14:45:12 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-multiple-killers/
+
+Dexter: Resurrection Season 2 is shaking things up with a storyline that will push the limits of the iconic series.
+---------
+
+# Patrick Muldoon, Actor in Starship Troopers and Melrose Place, Dies at 57
+
+Movies, Starship Troopers, Melrose Place, Days of Our Lives
+
+Mon, 20 Apr 2026 14:32:41 GMT
+
+https://www.cbr.com/patrick-muldoon-dies-57/
+
+Muldoon, whose credits included Starship Troopers, Days of Our Lives, and Melrose Place, died of a heart attack early Sunday morning.
+---------
+
+# Stephen King Loved The Last House on the Left Remake
+
+Movies, The Last House on the Left
+
+Mon, 20 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/stephen-king-loves-last-house-on-the-left-remake/
+
+Stephen King praised this horror remake as being on par with The Silence of the Lambs, but called Wes Craven's original a "crapfest."
+---------
+
+# Near-Perfect Hard Fantasy Shows Nobody Remembers
+
+TV, Fantasy, Britannia, Warrior Nun, Merlin
+
+Mon, 20 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/near-perfect-forgotten-hard-fantasy-shows-list/
+
+These hard fantasy shows might be near-perfect for fans, but they fell through the cracks somehow, as nobody else remembers them.
+---------
+
+# The Boys Star Laz Alonso Reveals MM’s ‘Catastrophic’ Lesson Learned in Season 5
+
+CBR Exclusives, The Boys
+
+Mon, 20 Apr 2026 14:23:45 GMT
+
+https://www.cbr.com/laz-alonso-the-boys-season-5-mm-lesson-learned/
+
+Please, please don't let MM's story end in tragedy.
+---------
+
+# 7 Anime That Bring Characters Back to Life After Dying
+
+Anime, Jujutsu Kaisen
+
+Mon, 20 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/anime-that-cheat-death/
+
+In some strange anime universes, death isn't always final when a character gets killed off, especially in shows like One Piece and Re:Zero.
+---------
+
+# A24's Elden Ring Movie Adaptation Unveils Full Cast and Release Date
+
+Movies, Elden Ring
+
+Mon, 20 Apr 2026 14:06:26 GMT
+
+https://www.cbr.com/a24-elden-ring-movie-full-cast-release-date/
+
+What a time for video game adaptations!
+---------
+
+# Taylor Sheridan's Best Neo-Western Series Just Became Much Easier to Watch
+
+TV News, Landman, Taylor Sheridan, Paramount Plus, Billy Bob Thornton
+
+Mon, 20 Apr 2026 15:00:13 GMT
+
+https://collider.com/landman-season-2-digital-release-date-april-2026-available-now/
+
+Landman Season 2 arrives on digital on April 20 with two new featurettes, including a behind-the-scenes look at the cast and expanding family drama.
+---------
+
+# RZA’s New Grindhouse-Style Revenge Thriller With Quentin Tarantino Just Dropped a Bonkers Red Band Trailer [Exclusive]
+
+Movie News, One Spoon of Chocolate, RZA, Shameik Moore, Blair Underwood
+
+Mon, 20 Apr 2026 15:00:13 GMT
+
+https://collider.com/one-spoon-of-chocolate-trailer-shameik-moore-rza/
+
+Watch the red band trailer and poster for RZA's action thriller One Spoon of Chocolate, starring Shameik Moore as a man seeking revenge.
+---------
+
+# 'From' Season 4 Just Confirmed the Town's Deadliest Threat With a Game-Changing Cliffhanger
+
+Exclusives, From, MGM, MGM TV, Horror
+
+Mon, 20 Apr 2026 14:01:12 GMT
+
+https://collider.com/from-season-4-man-in-yellow-sophia-reveal-twist-julia-doyle-interview/
+
+From newcomer Julia Doyle discusses the Season 4 premiere's twistiest reveal, when she found out who she was really playing, and more.
+---------
+
+# Times Judge Judy May Have Made the Wrong Call
+
+TV Lists, Judge Judy
+
+Mon, 20 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/times-judge-judy-was-wrong/
+
+TV's most popular Judge has been on screen since 1996 and has presided over thousands of cases. But Judge Judy hasn't always been right.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Has a Force Scream That Isn't Hilarious
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Mon, 20 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-prequel-redemption/
+
+The 'Star Wars' prequel trilogy is full of moments that are often memed and joked about, but 'Shadow Lord' just made one of them really cool.
+---------
+
+# 'Divergent' Author Announces Two New Books in Bestselling Sci-Fi Series
+
+Movie News, The Divergent Series, Divergent, Sci-Fi
+
+Mon, 20 Apr 2026 14:15:26 GMT
+
+https://movieweb.com/divergent-two-new-books-alternate-universe/
+
+'Divergent' author Veronica Roth has announced two new books in her bestselling sci-fi series, 15 years after the release of the first novel.
+---------
+
+# Netflix's True-Crime Satire Murder Mystery 'Bodkin' Is One of the Streamer's Best Series
+
+Features, Bodkin, Netflix, Streaming Recommendations
+
+Mon, 20 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/bodkin-netflix-best-murder-mystery-binge-watch/
+
+Netflix's hidden gem murder mystery thriller 'Bodkin' is one of the best shows on streaming, and it criticizes the true crime genre.
+---------
+
+# 'Beef' Season 2 Ending, Explained
+
+Features, Beef, Netflix
+
+Mon, 20 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/beef-season-2-ending-explained/
+
+'Beef' Season 2, the latest season of the anthology series on Netflix, stars Charles Melton, Cailee Spaeny, Oscar Isaac, and Carey Mulligan.
+---------
+
+# A24's 'Elden Ring' Sets Official Cast & Release Date
+
+Movie News, Elden Ring, A24, Alex Garland
+
+Mon, 20 Apr 2026 13:49:31 GMT
+
+https://movieweb.com/elden-ring-cast-release-date/
+
+Alex Garland is writing and directing 'Elden Ring' for A24, which is set to hit theaters in 2028.
+---------
+
 # A24's Elden Ring Movie Confirms Full Cast & 2028 IMAX Release Date
 
 Movies, Elden Ring
