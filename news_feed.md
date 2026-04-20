@@ -1,3 +1,267 @@
+# Catwoman’s New DC Design Reveals Major Costume Changes
+
+Comics, Catwoman
+
+Mon, 20 Apr 2026 18:48:12 GMT
+
+https://screenrant.com/absolute-catwoman-new-design-costume-dc/
+
+Fans have seen a variety of interpretations of Catwoman, and her latest costume design reveal teases a major shift in the status quo.
+---------
+
+# 8 Unfilmable Books & Why Hollywood Can't Figure Them Out
+
+Books, Slaughterhouse-Five, No Country for Old Men
+
+Mon, 20 Apr 2026 18:39:54 GMT
+
+https://screenrant.com/unfilmable-novels-hollywood-explained/
+
+Why these classics haven't been adapted yet, explained.
+---------
+
+# New Star Trek Series Introduces Deep Space Nine's Official Replacement
+
+Comics, Star Trek, Star Trek: Deep Space Nine
+
+Mon, 20 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/star-trek-deep-space-nine-replacement-last-starship/
+
+A symbol of hope.
+---------
+
+# Why Mark Wahlberg's New Movie With Bottom 3 Rotten Tomatoes Score Is Taking Over The World
+
+New Movies, Mark Wahlberg, Balls Up, Prime Video
+
+Mon, 20 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/mark-wahlberg-balls-up-movie-streaming-success-prime-video/
+
+Mark Wahlberg has a movie that's become very popular, even though it has one of his worst Rotten Tomatoes scores. Here's why it's a hit on streaming.
+---------
+
+# Bob Dylan’s 60-Year 4/20 Mystery: What is “Rainy Day Women” Really About?
+
+Music, Bob Dylan, Classic Rock
+
+Mon, 20 Apr 2026 18:25:21 GMT
+
+https://screenrant.com/bob-dylan-rainy-day-women-420-meaning-explained/
+
+Is Bob Dylan’s “Rainy Day Women #12 & 35” a 4/20 anthem? Explore the true meaning, the 12x35 math myth, and the song's 60th anniversary chart surge.
+---------
+
+# Ana de Armas R-Rated Thriller Dominates HBO Max's Top 10 Chart After $140M Box Office Struggle
+
+Movies, Masked Recs
+
+Mon, 20 Apr 2026 18:15:30 GMT
+
+https://screenrant.com/ana-de-armas-ballerina-movie-hbo-max-streaming-success/
+
+Ana de Armas' R-rated action thriller might not have been a box office hit, but the movie is now a smash hit on streaming, dominating HBO Max.
+---------
+
+# 2026's Most Controversial Shonen Officially Dethrones One Piece AND Jujutsu Kaisen
+
+Anime, One Piece, Dragon Ball Super, Jujutsu Kaisen, Chainsaw Man
+
+Mon, 20 Apr 2026 18:01:19 GMT
+
+https://screenrant.com/chainsaw-man-controversial-shonen-one-piece-jjk/
+
+One of the finest Shonen Jump series out there may have had a controversial ending, but that hasn't killed its franchise's momentum.
+---------
+
+# Tom Cruise's $1.8B Action Franchise Top Gun Is Heading to Theaters Again Ahead of Top Gun 3
+
+Movies, Top Gun 3, top gun, Top Gun: Maverick
+
+Mon, 20 Apr 2026 18:47:16 GMT
+
+https://www.cbr.com/tom-cruise-top-gun-franchise-theatrical-re-release-may-2026/
+
+The theatrical re-release comes less than a week after a new sequel confirmation.
+---------
+
+# Mass Effect Writer Finally Addresses “Non-Gamer” Rewrite Rumors
+
+TV, Mass Effect
+
+Mon, 20 Apr 2026 18:46:23 GMT
+
+https://www.cbr.com/mass-effect-writer-non-gamer-rewrites/
+
+A Mass Effect series writer breaks his silence on rewrite reports that have fans concerned.
+---------
+
+# New Final Fantasy 7 Game Officially Announced For 2027
+
+Games, Final Fantasy VII
+
+Mon, 20 Apr 2026 18:45:12 GMT
+
+https://www.cbr.com/final-fantasy-new-release-2027-ff7-board-game/
+
+2027 marks the 30th anniversary of Final Fantasy 7, and Square Enix has announced a brand-new game set in its universe, which will launch next year.
+---------
+
+# TuMangaOnline Shuts Down for Good as Major Manga Piracy Site Goes Offline
+
+Anime, Manga, piracy, digital piracy, manhwa, webtoon, webtoons
+
+Mon, 20 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/tumangaonline-zonatmo-shut-down-confirm/
+
+The manga website and its affiliates attracted over 50 million users in the month of March before it went dark.
+---------
+
+# Kamrn Rider Black Gets Near-Perfect Update in New U.S. Official Release
+
+Anime, Kamen Rider, Tojima Wants to Be a Kamen Rider
+
+Mon, 20 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/kamen-rider-black-hot-toys-2026-release/
+
+Kamen Rider Black rides high in this latest 2026 release.
+---------
+
+# Cyberpunk 2077 Official Prequel Coming June 2026
+
+Games, Cyberpunk 2077
+
+Mon, 20 Apr 2026 18:16:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-official-new-release-june-2026/
+
+This June, Night City 2045 will reveal the official hidden history of Cyberpunk 2077.
+---------
+
+# 10 Best Comedy Anime That Get Surprisingly Sad
+
+Anime, Gintama, Mob Psycho 100, Shonen, seinen, Comedy
+
+Mon, 20 Apr 2026 18:16:12 GMT
+
+https://www.cbr.com/best-sad-comedy-anime/
+
+Fans come to comedy anime for laughs and a break from reality, yet the funniest comedies can hide profound sadness within their lighthearted plots.
+---------
+
+# After 8 Years, Marvel Finally Confirms When Jessica Jones Will Return
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Jessica Jones
+
+Mon, 20 Apr 2026 18:04:37 GMT
+
+https://www.cbr.com/jessica-jones-mcu-return-daredevil-born-again-season-2-episode-6/
+
+After eight long years, Marvel fans finally know when Jessica Jones will make her Marvel Cinematic Universe return.
+---------
+
+# 10 Must-Read Batman Comics To Finish Before The Batman - Part II
+
+Comics, The Batman Part II, DC Comics, Batman
+
+Mon, 20 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/essential-dark-knight-comics-to-read-before-batman-part-ii/
+
+As fans continue to speculate about details of The Batman Part II, some comics remain perfect companion pieces for Matt Reeves' vision for DC.
+---------
+
+# FX’s ‘Tulsa King’ Replacement Officially Expands With a ‘Walking Dead’ Star
+
+Movie News, The Lowdown, Tulsa King, Ethan Hawke, The Walking Dead Girls
+
+Mon, 20 Apr 2026 18:51:09 GMT
+
+https://collider.com/fx-tulsa-king-replacement-the-lowdown-season-2-cast-austin-amelio-the-walking-dead/
+
+FX’s Tulsa King replacement, the 2-part crime thriller series The Lowdown, has just added a Walking Dead star opposite Betty Gilpin and Tommy Lee Jone
+---------
+
+# Original ‘Avatar’ Stars Call for Theatrical Release After Paramount Movie Leak
+
+Movie News, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender, Paramount, Nickelodeon
+
+Mon, 20 Apr 2026 18:28:52 GMT
+
+https://collider.com/avatar-the-last-airbender-theatrical-release-push-leak-reaction-cast/
+
+The voice cast of the upcoming Avatar: The Last Airbender movie discusses the leaked footage and expresses their support for a theatrical release.
+---------
+
+# Taylor Sheridan’s Most Anticipated Neo-Western Finally Arrives Next Month
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount Plus
+
+Mon, 20 Apr 2026 18:28:48 GMT
+
+https://collider.com/taylor-sheridan-new-show-yellowstone-sequel-series-dutton-ranch-release-date-may-2026/
+
+2 years after Yellowstone ended, Taylor Sheridan is officially returning to the franchise with new sequel series Dutton Ranch in less than a month.
+---------
+
+# Runtime for New Historical Masterpiece Teased by Producer
+
+Movie News, The Odyssey, Christopher Nolan, The Films of Christopher Nolan, History
+
+Mon, 20 Apr 2026 18:24:00 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-runtime-update-shorter-than-oppenheimer/
+
+Christopher Nolan’s new historical epic, The Odyssey, gets official confirmation that the runtime will be shorter than Oppenheimer’s 3-hour length.
+---------
+
+# Marvel Adds ‘Doomsday’ Scenes to ‘Avengers: Endgame’ Re-Release
+
+Movie News, Avengers: Endgame, Avengers: Doomsday, MCU, Avengers: Secret Wars
+
+Mon, 20 Apr 2026 18:23:46 GMT
+
+https://collider.com/avengers-endgame-re-release-doomsday-scenes-footage/
+
+Joe Russo reveals that the upcoming Avengers: Endgame re-release will feature new footage from the Doomsday narrative to create a bridge.
+---------
+
+# 13 Best Plot Twists in 'The Pitt' Season 2, Ranked
+
+TV, The Pitt, HBO Max, Noah Wyle, Drama
+
+Mon, 20 Apr 2026 18:23:12 GMT
+
+https://collider.com/the-pitt-season-2-plot-twists-ranked/
+
+From a cyber attack that puts the hospital offline to Baby Jane Doe, The Pitt Season 2 kept its audience on their toes with these plot twists.
+---------
+
+# Wayans Brothers Say 'Scary Movie 6' Could Get 'White Chicks' Sequel Made
+
+Movie News, Scary Movie, White Chicks, White Chicks 2, Shawn Wayans, Marlon Wayans
+
+Mon, 20 Apr 2026 18:30:39 GMT
+
+https://movieweb.com/wayans-brothers-reveal-white-chicks-sequel/
+
+After 22 Years, a sequel to the fan favorite Wayans Brothers comedy 'White Chicks' may finally see the light of day.
+---------
+
+# 6 'The Pitt' Clues That Prove Dr. Langdon Is Actually Divorced
+
+TV Lists, The Pitt
+
+Mon, 20 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/the-pitt-langdon-divorce-signs/
+
+'The Pitt' Seasons and 2 might have shown viewers some signs that Dr. Frank Langdon (Patrick Ball) is divorced from his wife Abby.
+---------
+
 # The Mentalist: Hulu's Underrated Sherlock Meets Dexter Crime Thriller
 
 Classic TV, Masked Recs
