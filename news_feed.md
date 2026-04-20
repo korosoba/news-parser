@@ -1,3 +1,168 @@
+# Riz Ahmed Discusses Hamlet's Universal Fear In Coffee Chats Episode 11
+
+Movies, Hamlet, Riz Ahmed
+
+Mon, 20 Apr 2026 22:33:36 GMT
+
+https://screenrant.com/hamlet-riz-ahmed-thriller-taps-into-universal-fear-coffee-chats/
+
+In this episode of Coffee Chats, Riz Ahmed reflects on his interpretation of Hamlet, a raw action-thriller reimagining of the Shakespeare classic, and how it taps into a universal fear many feel: 'Has the world gone crazy?'
+---------
+
+# One Piece Just Destroyed Naruto And Bleach In A Massive Way
+
+Anime, One Piece, Naruto, Bleach, Op-Ed
+
+Mon, 20 Apr 2026 22:31:19 GMT
+
+https://screenrant.com/one-piece-final-villain-reveal-better-naruto-bleach/
+
+One Piece still rules the Big 3 of anime.
+---------
+
+# Secret Invasion: Disney+'s Disappointing MCU TV Show Is Now Ignored By Fans
+
+Classic TV, Secret Invasion
+
+Mon, 20 Apr 2026 22:15:20 GMT
+
+https://screenrant.com/marvel-secret-invasion-disney-plus-spy-thriller-poor-reception/
+
+The MCU released a six-part spy thriller series that, unfortunately, was a major disappointment, so much so that fans have chosen to ignore it.
+---------
+
+# Netflix’s 2-Part Global Smash With Near-Perfect Rotten Tomatoes Score Is The Future Of Streaming
+
+TV, Beef, Netflix
+
+Mon, 20 Apr 2026 22:03:19 GMT
+
+https://screenrant.com/beef-season-2-netflix-global-hit-anthology-streaming-future/
+
+Beef season 2's bold move changes the acclaimed series entirely and proves that the Netflix hit's approach is the future for streaming success.
+---------
+
+# Japan's Best Action-Fantasy Franchise Is Officially Halfway Finished (Exclusive)
+
+Anime, Wistoria: Wand and Sword, Fantasy, Action
+
+Mon, 20 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/wistoria-wand-sword-best-action-fantasy-halfway-finished/
+
+Fans finally have an answer about the future of Japan's best action-fantasy series, with the author confirming that the manga is halfway done.
+---------
+
+# Animal Crossing: New Horizons Free Download Officially Available Now
+
+Gaming, Animal Crossing New Horizons, Animal Crossing
+
+Mon, 20 Apr 2026 22:00:20 GMT
+
+https://screenrant.com/animal-crossing-new-horizons-free-design-download/
+
+Animal Crossing: New Horizons is still getting new content, and the latest free download from Nintendo is available now for ACNH fans to check out.
+---------
+
+# I Am Legend 2 Hires New Director For Long-Awaited Will Smith Sequel
+
+Movies, I Am Legend 2
+
+Mon, 20 Apr 2026 21:58:10 GMT
+
+https://screenrant.com/i-am-legend-2-steven-caple-jr-director/
+
+19 years after the original movie was released, Will Smith's long-awaited I Am Legend 2 has found its director, who previously directed Creed II.
+---------
+
+# Marvel Officially Returning To San Diego Comic-Con After Shocking 2025 Absence
+
+Movies, Marvel, San Diego Comic-Con, Marvel Cinematic Universe
+
+Mon, 20 Apr 2026 21:40:56 GMT
+
+https://screenrant.com/marvel-studios-san-diego-comic-con-2026-return-confirmed/
+
+Marvel Studios is officially going to return to Hall H at San Diego Comic-Con after they infamously decided to skip the festivities in 2025.
+---------
+
+# 5 Most Dangerous Solo Leveling Dungeons
+
+Anime, Solo Leveling, shonen anime, Shonen
+
+Mon, 20 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/solo-leveling-most-dangerous-dungeons/
+
+Jinwoo gains levels through the mysterious System and internal dungeons provided, but he also encounters various dangerous external dungeons.
+---------
+
+# James McAvoy's $77M Horror Remake, Speak No Evil, Becomes a Global Hit on Netflix 2 Years Later
+
+Movies, Horror, Speak No Evil, james mcavoy
+
+Mon, 20 Apr 2026 22:13:22 GMT
+
+https://www.cbr.com/james-mcavoy-horror-remake-speak-no-evil-streaming-success-netflix-april-2026/
+
+It's been two years since James McAvoy horrified audiences in a film that's back at the top of Netflix.
+---------
+
+# After Masters of the Universe, ThunderCats Deserves It's Big Screen Debut
+
+Movies, Masters of the Universe, Thundercats
+
+Mon, 20 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/after-masters-of-the-universe-80s-thundercats-big-screen-debut/
+
+He-Man and the Masters of the Universe is finding new life on the big screen and its time that another 80s toy brand got the same treatment.
+---------
+
+# 3 Near-Perfect Movies to Watch on Prime Video This Week
+
+Movie, Prime Video, Weapons, The Voyeurs, Transformers One
+
+Mon, 20 Apr 2026 22:34:12 GMT
+
+https://collider.com/best-movies-prime-video-april-20-2026/
+
+The Voyeurs, Weapons, and Transformers One make up our list of the best movies to watch on Prime Video the week of April 20, 2026.
+---------
+
+# 10 Most Universally Beloved Disney Movies of All Time, Ranked
+
+Movie, Disney, Mary Poppins, The Lion King, Snow White and the Seven Dwarfs
+
+Mon, 20 Apr 2026 22:15:13 GMT
+
+https://collider.com/most-universally-beloved-disney-movies-all-time-ranked/
+
+From The Lion King to Moana, explore the most beloved Disney movies ever made, filled with timeless emotion and unforgettable magic.
+---------
+
+# Only 3 Best Picture Winners Are Better Than 'The Godfather'
+
+Movie, The Godfather, Amadeus, Lawrence of Arabia, The Lord of the Rings: The Return of the King
+
+Mon, 20 Apr 2026 21:53:12 GMT
+
+https://collider.com/best-picture-winners-better-than-the-godfather/
+
+There aren't many Best Picture winners that touch The Godfather in quality, though movies like Amadeus and Lawrence of Arabia might surpass it.
+---------
+
+# Every 'The Pitt' Character Confirmed to Return in Season 3
+
+TV Lists, The Pitt
+
+Mon, 20 Apr 2026 22:00:18 GMT
+
+https://movieweb.com/the-pitt-season-3-every-character-confirmed/
+
+'The Pitt' Season 3 will bring back several fan-favorite characters, and the next season of the HBO Max medical drama will also feature a time jump.
+---------
+
 # 5 Best Netflix Shows To Binge This Week – #1 Is The Return Of Its Biggest Franchise Ever
 
 Streaming TV, Netflix, What to Watch on Netflix
