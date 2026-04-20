@@ -1,3 +1,355 @@
+# Shock DCU Superhero Enemy Confirmed for Lobo’s New Appearance
+
+Comics, Lobo, Aquaman, DC Universe
+
+Mon, 20 Apr 2026 03:46:13 GMT
+
+https://screenrant.com/lobo-versus-aquaman-new-dc-appearance-dcu/
+
+Lobo's latest DC appearance sees The Main Man facing a surprising yet perfect superhero rival ahead of his upcoming DCU debut in Supergirl.
+---------
+
+# Apple TV’s Dark Matter Fills The Void Left By J.K. Simmons 100% RT Masterpiece
+
+Streaming TV, Dark Matter, Counterpart, Apple TV, J.K. Simmons
+
+Mon, 20 Apr 2026 03:45:20 GMT
+
+https://screenrant.com/apple-tv-dark-matter-counterpart-sci-fi-replacement/
+
+Apple TV’s returning sci-fi series seems to perfectly fill the void left by J.K. Simmons incredible two-season show, which was cancelled too soon.
+---------
+
+# 15 Best Isekai Anime Like That Time I Got Reincarnated as a Slime
+
+TV, That Time I Got Reincarnated as a Slime
+
+Mon, 20 Apr 2026 03:30:22 GMT
+
+https://screenrant.com/that-time-i-got-reincarnated-as-a-slime-best-similar-anime/
+
+If you love Isekai anime in general, you'll want to check out these anime like That Time I Got Reincarnated As A Slime as soon as possible.
+---------
+
+# Step Aside Shadow, Sonic The Hedgehog's New Character Needs A Spinoff TV Show More
+
+Movies, Sonic the Hedgehog, Sonic the Hedgehog 4
+
+Mon, 20 Apr 2026 03:30:21 GMT
+
+https://screenrant.com/amy-rose-live-action-tv-show-sonic-the-hedgehog-spinoff/
+
+There has been a strong push for a live-action Shadow series since his introduction in Sonic 3, but another character needs a show more.
+---------
+
+# Elder Scrolls 6 Graphics Are Already Dividing Gamers
+
+Gaming, The Elder Scrolls 6, Triple-A Games
+
+Mon, 20 Apr 2026 03:30:21 GMT
+
+https://screenrant.com/elder-scrolls-6-hammerfell-setting-graphics/
+
+We might be years away from seeing more of The Elder Scrolls 6, but fans are already divided on what they can expect from modern Bethesda.
+---------
+
+# Multiple Spider-Man Variant Projects Secretly In The Works As Amazon Kicks Off New 8-Part Marvel Series
+
+TV, Spider-Noir
+
+Mon, 20 Apr 2026 03:27:28 GMT
+
+https://screenrant.com/spider-man-variant-projects-amazon-spider-man-noir/
+
+Showrunner of Marvel's new Spider-Man series revealed that there are several more projects in the works featuring different variants of the hero.
+---------
+
+# How Many Actors Are Featured In Avengers: Doomsday Teased By Marvel Studios Boss Kevin Feige
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, The Avengers
+
+Mon, 20 Apr 2026 03:10:07 GMT
+
+https://screenrant.com/avengers-doomsday-cast-ensemble-thirty-actors/
+
+The Russo Brothers, known for their ability to juggle ensembles, are at it again with Avengers: Doomsday, assembling a huge roster of iconic heroes.
+---------
+
+# James Wan’s Upcoming Lovecraft Movie’s Update Is Great News For Horror Fans
+
+Movies, James Wan, Horror
+
+Mon, 20 Apr 2026 03:07:11 GMT
+
+https://screenrant.com/james-wan-cthulhu-movie-update/
+
+A new update surrounding James Wan’s ambitious Lovecraft movie project has come out, which surprisingly makes it even more exciting for horror fans.
+---------
+
+# 10 Dumbest Final Fantasy Moments Of All Time
+
+Gaming, Final Fantasy, Triple-A Games
+
+Mon, 20 Apr 2026 03:00:20 GMT
+
+https://screenrant.com/final-fantasy-dumbest-moments-all-time/
+
+Final Fantasy games have plenty of serious and dramatic moments, but there are also some incredibly silly, dumb scenes throughout the franchise.
+---------
+
+# For All Mankind Season 5 Teases Future Space Missions Beyond Titan
+
+Exclusive, For All Mankind
+
+Mon, 20 Apr 2026 02:53:53 GMT
+
+https://screenrant.com/for-all-mankind-titan-future-mission-ben-nedivi/
+
+Exclusive: For All Mankind's executive producers Matt Wolpert and Ben Nedivi discuss just how far humans will go to explore our solar system.
+---------
+
+# 10 R-Rated Anime That Will Keep You Hooked From Start to Finish
+
+Anime, Shonen, Monster, Vinland Saga, Dorohedoro, Prison School, Shimoneta
+
+Mon, 20 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/anime-rated-r-mature/
+
+R-rated anime might be intimidating, but some of them can entertain viewers right up until the final moment.
+---------
+
+# Gundam SEED's Rau Le Creuset Finally Unmasked in New Official Art
+
+Anime, Mobile Suit Gundam SEED, Mobile Suit Gundam, bandai
+
+Mon, 20 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/gundam-seed-rau-le-creuset-face-reveal/
+
+Gundam fans finally get a glimpse at one of the franchise's most infamous villains more than two decades after their unforgettable debut.
+---------
+
+# Nickelodeon's Martin Mystery Deserves a Modern Reboot
+
+TV, Nickelodeon, Martin Mystery, animated, Horror
+
+Mon, 20 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/nickelodeon-martin-mystery-underrated-horror-series-deserves-reboot/
+
+One animated Nickelodeon horror show delighted fans in its heyday and has the perfect television formula for a modern audience.
+---------
+
+# Game of Thrones Officially Releases New Footage of Final Season
+
+TV, Game Of Thrones
+
+Mon, 20 Apr 2026 03:22:17 GMT
+
+https://www.cbr.com/game-of-thrones-final-season-unseen-footage/
+
+All-new footage from the controversial final season of Game of Thrones has officially been unveiled after seven years.
+---------
+
+# 10 Best Open World Games with Character Creation, Ranked
+
+Games, open world
+
+Mon, 20 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/best-open-world-games-character-creation-ranked-list/
+
+Some of the greatest open world games have character creation you can spend hours on.
+---------
+
+# American Anime Fans Need To Be Reading The JOJOLands
+
+Anime, Jojo's Bizarre Adventure
+
+Mon, 20 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/best-american-anime-underrated-2026-manga/
+
+American eyes may currently be on the Steel Ball Run anime, but Jojo's Bizarre Adventure: The JOJOLands is better in every way.
+---------
+
+# This Captain America Quote Is the Greatest in the MCU
+
+Movies, MCU, Avengers: Endgame, Avengers
+
+Mon, 20 Apr 2026 02:30:13 GMT
+
+https://www.cbr.com/mcu-avengers-endgame-avengers-assemble-quote/
+
+The Marvel Cinematic Universe is full of iconic and memorable lines of dialogue, but one from Avengers: Endgame rises above the rest.
+---------
+
+# 5 Near-Perfect Samurai Anime To Watch Before The Elusive Samurai S2
+
+Anime, samurai, Shonen, Samurai Champloo, Ronin Warriors (Samurai Troopers), Gintama
+
+Mon, 20 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/samurai-anime-to-binge-before-the-elusive-samurai-s2/
+
+Samurai anime remain a treasured staple among anime fans, and with The Elusive Samurai returning Summer 2026, here's a few to fill the void until then
+---------
+
+# 10 Best PS1 RPGs That Aren't Final Fantasy
+
+Games, PlayStation (Original), JRPG
+
+Mon, 20 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/best-ps1-rpgs-not-final-fantasy-list/
+
+Games like FF7 were instrumental to the PS1's success, but the console had plenty more amazing RPGs.
+---------
+
+# LEGO Officially Reveals 5 Yu-Gi-Oh Set Designs
+
+Anime, Yu-Gi-Oh!, LEGO
+
+Mon, 20 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/lego-official-yu-gi-oh-set-designs/
+
+Yu-Gi-Oh! fans have the chance to vote on which of five final designs will get to become a real LEGO set, and they all look absolutely stunning.
+---------
+
+# The Western Movie That Changed Everything for Clint Eastwood
+
+Movie Features, Clint Eastwood, High Plains Drifter, Western, A Fistful of Dollars
+
+Mon, 20 Apr 2026 03:10:12 GMT
+
+https://collider.com/clint-eastwood-western-movie-high-plains-drifter-changed-everything/
+
+Clint Eastwood's 1973 Western, High Plains Drifter, kicked off a new era for the legendary director and actor.
+---------
+
+# The Greatest 5-Part Sci-Fi Show Ever Made Has Nothing To Do With Star Trek or Star Wars
+
+TV Features, Babylon 5, Star Trek, Star Wars, Sci-Fi
+
+Mon, 20 Apr 2026 03:08:13 GMT
+
+https://collider.com/babylon-5-greatest-sci-fi-tv-show-ever-made/
+
+Babylon 5 didn’t just become a sci-fi classic — it helped lay the foundation for the serialized storytelling style that dominates TV today.
+---------
+
+# Charles Melton Gives the Perfect Answer for the Biggest Mystery of Netflix's Season 2 Finale of 'Beef'
+
+Exclusives, Beef, Charles Melton, Oscar Isaac, Netflix
+
+Mon, 20 Apr 2026 02:19:23 GMT
+
+https://collider.com/netflix-beef-season-2-finale-shot-meaning-country-club-charles-melton-creator-lee-sung-jin-interview/
+
+Lee Sung Jin and Charles Melton discuss Marvel's X-Men movie, Melton's Tom Cruise shot, and break down the meaning behind Beef Season 2 final scenes.
+---------
+
+# 45 Highest-Rated Movies on IMDb, Ranked by Votes
+
+Movie, Top 10, The Shawshank Redemption, The Dark Knight, Inception
+
+Mon, 20 Apr 2026 01:22:13 GMT
+
+https://collider.com/imdb-top-movies/
+
+IMDb is the go-to site for anyone that loves movies, and users have cemented their favorites (like The Dark Knight and The Matrix) for all time.
+---------
+
+# 10 Action Shows That Are Amazing From Start to Finish
+
+TV, Action, Invincible, Avatar: The Last Airbender, Daredevil
+
+Mon, 20 Apr 2026 01:21:12 GMT
+
+https://collider.com/action-shows-amazing-start-to-finish/
+
+Invincible, Daredevil, Avatar: The Last Airbender, and Reacher are among the best action TV shows that are truly amazing from start to finish.
+---------
+
+# Russell Crowe Officially Reveals His Stunning Transformation for Henry Cavill's 'Highlander' Reboot
+
+Movie News, Highlander Reboot, Highlander, Russell Crowe, Henry Cavill
+
+Mon, 20 Apr 2026 00:45:12 GMT
+
+https://collider.com/russell-crowe-highlander-workout-photo-gladiator-shape-image/
+
+Russell Crowe is getting back into Gladiator shape as he gears up to begin filming his scenes in Henry Cavill's long-awaited Highlander reboot.
+---------
+
+# Forget 'Reacher': These 10 2020s Thriller Series Have Much Better Action
+
+TV, Reacher, Action, The Boys, The Last of Us
+
+Mon, 20 Apr 2026 00:41:12 GMT
+
+https://collider.com/thriller-shows-better-action-than-reacher/
+
+The Night Agent, The Last of Us, Paradise, The Boys, Shōgun, and more make up our list of 2020s thriller shows with better action than Reacher.
+---------
+
+# Mark Wahlberg’s 2026 Raunchy New Movie Is Getting Obliterated by Critics
+
+Movie News, Mark Wahlberg, Rotten Tomatoes, Balls Up, Comedy
+
+Mon, 20 Apr 2026 00:30:12 GMT
+
+https://collider.com/mark-wahlberg-raunchy-new-movie-balls-up-rotten-tomatoes-is-it-good/
+
+Mark Wahlberg's new raunchy comedy, Balls Up, is being torn apart by critics on review aggregator Rotten Tomatoes.
+---------
+
+# Netflix's 3-Part Drama Is So Good, You'll Finish It Before Your Favorite Show Returns
+
+TV Features, Sullivan's Crossing, Netflix, Drama, Virgin River
+
+Mon, 20 Apr 2026 00:20:14 GMT
+
+https://collider.com/netflix-sullivans-crossing-virgin-river-alternative-binge-watch/
+
+Sullivan's Crossing is a drama-filled series perfect for Virgin River fans about finding peace in the countryside and redefining happiness.
+---------
+
+# Say Goodbye to Jason Statham’s Explosive 105-Minute Action Movie in 11 Days
+
+Movie News, Jason Statham, Transporter 3, Action, Plex
+
+Mon, 20 Apr 2026 00:15:13 GMT
+
+https://collider.com/jason-statham-action-movie-transporter-3-leaving-streaming-plex-april-2026/
+
+Jason Statham's 105-minute threequel, Transporter 3, is losing its spot on this streamer next month. Here's how long you have left to watch it.
+---------
+
+# 'Reacher': 10 Great Action Thrillers Better Than the Prime Video Series
+
+TV Lists, Cross, Reacher
+
+Mon, 20 Apr 2026 02:33:51 GMT
+
+https://movieweb.com/best-action-thriller-tv-shows-like-reacher/
+
+If wall-to-wall action is your thing, we've got the cure for what ails you. These 10 great action thrillers will make you forget about 'Reacher.'
+---------
+
+# 'The Mummy' Proves Why Lee Cronin Should Revive 'A Nightmare on Elm Street'
+
+Features, Lee Cronin's The Mummy, Nightmare on Elm Street
+
+Mon, 20 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/lee-cronin-the-mummy-perfect-fit-nightmare-on-elm-street-franchise/
+
+'Lee Cronin's The Mummy' features horror director Lee Cronin at his absolute gnarliest, and it reinforced why he should resurrect Freddy Krueger.
+---------
+
 # After 4 Years Of Fumbles, Marvel Is Finally Ushering The Punisher Into His Golden Age
 
 Comics, Marvel, Marvel Cinematic Universe, The Punisher, Spider-Man: Brand New Day, Daredevil: Born Again
