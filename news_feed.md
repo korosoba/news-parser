@@ -1,3 +1,289 @@
+# Penny Dreadful: Showtime's Fantasy Masterpiece Combining Supernatural & Peaky Blinders
+
+Classic TV, Masked Recs
+
+Mon, 20 Apr 2026 20:45:20 GMT
+
+https://screenrant.com/penny-dreadful-showtime-show-supernatural-meets-peaky-blinders/
+
+Showtime is home to one of the best fantasy shows of all time that brings together the best elements of Supernatural and Peaky Blinders.
+---------
+
+# Farva & Thorny Are About To Become Brothers In R-Rated New Super Troopers 3 Trailer
+
+Movies, Super Troopers 3: Winter Soldiers, Super Troopers
+
+Mon, 20 Apr 2026 20:32:34 GMT
+
+https://screenrant.com/super-troopers-3-trailer-released/
+
+The official trailer for Super Troopers 3 arrives, revealing new members joining the police squad and Farva and Thorny on the verge of a wedding.
+---------
+
+# Guy Ritchie's TV Shows Ranked: From Worst To Best
+
+Streaming TV, MobLand
+
+Mon, 20 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/guy-ritchie-tv-shows-ranked-worst-to-best/
+
+Guy Ritchie might be best-known for his big-screen gangster flicks, but it's his TV shows that are generating more buzz around him these days.
+---------
+
+# Marvel Just Gave Avengers: Endgame A Chance To Reclaim Its Biggest Lost Record
+
+Superheroes, Avengers: Endgame, Marvel Cinematic Universe
+
+Mon, 20 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/avengers-endgame-rerelease-box-office-beat-avatar/
+
+Five years ago, Avengers: Endgame lost its biggest record. But Marvel has just found a way to give it a chance to reclaim the MCU's throne.
+---------
+
+# Wednesday Season 3 Confirms Major Location Change With First Image Of Jenna Ortega's Return
+
+TV, Wednesday
+
+Mon, 20 Apr 2026 20:23:17 GMT
+
+https://screenrant.com/wednesday-season-3-paris-jenna-ortega-image/
+
+The first image of Jenna Ortega as Wednesday Addams in season 3 of the Netflix series has been released and shows her in another country.
+---------
+
+# Netflix's New Global Smash Hit 8-Part Psychological Thriller Series Officially Marks The Start Of An Era
+
+TV, Netflix, Something Very Bad Is Going to Happen
+
+Mon, 20 Apr 2026 20:17:08 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-duffer-brothers-netflix-streak/
+
+One of Netflix's best psychological thriller series became a global smash hit recently, and it marks the start of a new era for the streaming service.
+---------
+
+# Netflix Added USA Network's Popular Legal Drama "Suits" To Its Platform
+
+Classic TV, Masked Recs
+
+Mon, 20 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/suits-legal-drama-streaming-success-netflix-surprising/
+
+Netflix acquired a nine-season legal drama from the USA Network in 2023, and it wound up becoming one of its most-viewed TV shows ever.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Filming Gets Major New Change After Cancellation Report
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Mon, 20 Apr 2026 20:13:36 GMT
+
+https://screenrant.com/knight-seven-kingdoms-season-2-spain-filming-resume-new-location/
+
+After severe flooding caused A Knight of the Seven Kingdoms to halt filming, a major new update is finally revealed for the Game of Thrones spinoff.
+---------
+
+# Daniel Craig's 130-Minute Crime Drama With Near-Perfect Rotten Tomatoes Score Keeps Getting Better
+
+Movies, Knives Out
+
+Mon, 20 Apr 2026 20:04:19 GMT
+
+https://screenrant.com/daniel-craig-knives-out-movie-aging-well/
+
+While its sequels struggled to match its innovative narrative structure, Daniel Craig's masterpiece remains a standout crime thriller years later.
+---------
+
+# The Pitt Season 2 Finale Sets Massive Viewership Record For HBO Max Series
+
+TV, The Pitt, The Pitt - Season 2, HBO Max
+
+Mon, 20 Apr 2026 20:02:38 GMT
+
+https://screenrant.com/the-pitt-season-2-finale-viewership-record/
+
+The Pitt season 2 finale is already a smash hit for HBO Max as the episode has set a massive viewership record going all the way back to season 1.
+---------
+
+# Marvel Confirms Miles Morales' Return Ahead Of Next Spider-Verse Movie
+
+Comics, MCU, Marvel, Marvel Comics, Spider-Man, Spider-Man: Into The Spider-Verse, Spider-Man: Into The Spider-Verse 4K ULTRA HD 4K UHD, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse, Spider-Man: Brand New Day
+
+Mon, 20 Apr 2026 20:48:09 GMT
+
+https://www.cbr.com/marvel-confirms-miles-morales-return-ahead-of-spider-verse-finale/
+
+Miles Morales is back and ahead of schedule for Marvel — a major appetizer to his Spider-Verse finale.
+---------
+
+# Pokémon TCG: 10 Greatest Expansions of All Time, Ranked
+
+Games, Pokemon, Pokemon Trading Card Game, Tabletop, Lists
+
+Mon, 20 Apr 2026 20:39:46 GMT
+
+https://www.cbr.com/pokemon-tcg-best-expansions/
+
+The Pokemon TCG is one of the most iconic trading card games of all time - which of its expansions over the years are the all-time best?
+---------
+
+# Why Newman Is Seinfeld's Most Memorable Minor Character
+
+TV, Seinfeld, Sitcoms
+
+Mon, 20 Apr 2026 20:33:34 GMT
+
+https://www.cbr.com/seinfeld-best-characters-newman/
+
+Newman, played by Wayne Knight, stands out as the secret MVP of Seinfeld, adding chaos, rivalry, and unforgettable moments to the show.
+---------
+
+# Netflix's Live-Action Scooby-Doo Cast Unites in New Photos
+
+TV, Scooby-Doo, Netflix
+
+Mon, 20 Apr 2026 20:30:53 GMT
+
+https://www.cbr.com/netflix-scooby-doo-live-action-cast-images/
+
+The newest Mystery Incorporated team can be seen together in new images of Netflix's live-action Scooby-Doo series.
+---------
+
+# Luther: The Superior BBC Detective Series to Sherlock
+
+TV, Luther, Sherlock, Detective
+
+Mon, 20 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/bbc-luther-better-than-sherlock/
+
+Sherlock remains a major hit for detective shows, but there's another that runs even longer and is even better.
+---------
+
+# Only 5 Movies Are Better One-Man Army Films Than The Beekeeper
+
+Movies, Action, Jason Statham, Escape From New York
+
+Mon, 20 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/one-man-army-films-better-than-beekeeper/
+
+David Ayer's The Beekeeper gave Jason Statham the ultimate one-man army movie of his career, but five films stand out as so much better.
+---------
+
+# The Mandalorian Season 4 Plot Revealed
+
+TV, The Mandalorian, Star Wars, Disney+
+
+Mon, 20 Apr 2026 20:21:19 GMT
+
+https://www.cbr.com/the-mandalorian-season-4-plot/
+
+We now finally know what The Mandalorian Season 4 would have been about.
+---------
+
+# Netflix Is Doing What Hulu Is Failing to Do for Anime Fans This May
+
+Anime, Netflix, Hulu, Medalist, Akane-banashi, Assassination Classroom
+
+Mon, 20 Apr 2026 20:20:13 GMT
+
+https://www.cbr.com/netflix-vs-hulu-anime-streaming-release-dates-may-2026/
+
+Unlike Hulu, Netflix's May 2026 anime slate provides updates for iconic mega-hit titles like One Piece, Jujutsu Kaisen, Akane Banashi and many more.
+---------
+
+# Wednesday Season 3 Unveils Surprising Location Change
+
+TV, Wednesday
+
+Mon, 20 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/wednesday-season-3-paris-location-change/
+
+Production is still ongoing on the highly anticipated new season.
+---------
+
+# 10 Forgotten '90s Anime Series No One Remembers Today
+
+Anime, shonen anime, Kyô kara Ore wa!!, Shadow Skill, Those Who Hunt Elves, Pet Shop of Horrors, Sorcerous Stabber Orphen, Violinist of Hamelin
+
+Mon, 20 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/best-90s-anime-hidden-gems/
+
+Modern anime has never been able to recapture the originality of '90s anime, and sadly, there are few who even remember these hidden gems.
+---------
+
+# 7 Forgotten Psychological Thrillers That Are Perfect From Start to Finish
+
+Movie, Thriller, Repulsion, Take Shelter, Strange Darling
+
+Mon, 20 Apr 2026 20:48:13 GMT
+
+https://collider.com/forgotten-psychological-thrillers-perfect-start-to-finish/
+
+From foundational horrors like Repulsion to more modern efforts like Strange Darling, these forgotten psychological thrillers are actually flawless.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Week
+
+TV, Netflix, Wayward, Too Much, Daybreak
+
+Mon, 20 Apr 2026 20:47:13 GMT
+
+https://collider.com/best-netflix-shows-watch-week-april-20/
+
+Too Much, Daybreak, and Wayward make up our list of the best Netflix shows to watch the week of April 20, 2026.
+---------
+
+# Netflix's 3-Part Historical Drama Series Remains One of Its All-Time Greatest Binges 7 Years Later
+
+TV Features, Anne With an E, Netflix, Drama, History
+
+Mon, 20 Apr 2026 20:24:13 GMT
+
+https://collider.com/anne-with-an-e-netflix-historical-drama-binge-watch/
+
+Netflix's charming Anne with an E follows Anne Shirley's journey of growth and self-discovery in a picturesque 19th-century Canadian town.
+---------
+
+# 10 Greatest Anime on Crunchyroll in Spring 2026
+
+TV, Anime, Go for It, Nakamura-Kun!!, Dorohedoro, Witch Hat Atelier
+
+Mon, 20 Apr 2026 20:10:13 GMT
+
+https://collider.com/best-anime-crunchyroll-spring-2026/
+
+Crynchyroll's Spring 2026 anime slate is packed, including highly anticipated debuts like Witch Hat Atelier and new seasons of hits like Dorohedoro.
+---------
+
+# Jimi Hendrix's Best Anti-War Song Has a 12-Minute Live Version and It’s One of the Greatest Performances Ever
+
+Music Features, Jimi Hendrix, Rock, Music
+
+Mon, 20 Apr 2026 20:00:12 GMT
+
+https://collider.com/jimi-hendrix-best-performance-anti-war-song-machine-gun/
+
+Jimi Hendrix used his guitar to create a powerful anti-war message in his iconic 12-minute live version of Machine Gun, reflecting his experiences and opinions on the Vietnam War.
+---------
+
+# Netflix Acquires 'Play Dead' World War II Thriller From 'Carry-On' Director
+
+Movie News, Netflix, Carry-On, Jaume Collet-Serra
+
+Mon, 20 Apr 2026 19:59:09 GMT
+
+https://movieweb.com/play-dead-thriller-netflix-deal/
+
+The streaming service is set to release this genre-bending period piece from director Jaume Collet-Serra and producer Sam Raimi.
+---------
+
 # Michelle Pfeiffer's New 96% RT Apple TV Series Dominates Streaming In The U.S.
 
 TV, Margo's Got Money Troubles
