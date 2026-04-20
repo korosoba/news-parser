@@ -1,3 +1,190 @@
+# After 4 Years Of Fumbles, Marvel Is Finally Ushering The Punisher Into His Golden Age
+
+Comics, Marvel, Marvel Cinematic Universe, The Punisher, Spider-Man: Brand New Day, Daredevil: Born Again
+
+Mon, 20 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/punisher-golden-era-marvel-2026/
+
+Punisher is having a renaissance this spring/summer in comics, at the same time as his MCU counterpart is similarly ubiquitous.
+---------
+
+# Tomb Raider: Legacy Of Atlantis Free Download Available To Claim Now
+
+Gaming, Tomb Raider
+
+Mon, 20 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/tomb-raider-legacy-of-atlantis-free-download-available-to-claim-now/
+
+Tomb Raider: Legacy Of Atlantis isn't even out yet, but you can already claim some free items for use once it does arrive.
+---------
+
+# Anime's Big 3 Are Back For The First Time Since 2012, But Their Era As Kings Is Officially Over
+
+Anime
+
+Mon, 20 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/big-3-anime-naruto-one-piece-bleach-back-era-over/
+
+The Big 3's 2026 reunion matters as a cultural event, but, ironically, it marks the moment when they're no longer recipients of Shonen's spotlight.
+---------
+
+# 15 Iconic HBO Characters: From Tony Soprano to Daenerys Targaryen
+
+Classic TV, HBO
+
+Sun, 19 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/best-hbo-show-characters-ranked/
+
+From Tony Soprano to Selina Meyer to Curb Your Enthusiasm's Leon Black, some of the most iconic characters in TV history originated on HBO.
+---------
+
+# Star Trek Introduces a Brand New Enterprise (But There's a Twist)
+
+Comics, Star Trek
+
+Sun, 19 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/star-trek-new-enterprise-ferengi/
+
+Free Enterprise
+---------
+
+# Zelda Fan Finally Solves Wind Waker Puzzle After 16 Years
+
+Gaming, The Legend of Zelda: The Wind Waker, The Legend of Zelda
+
+Sun, 19 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/zelda-wind-waker-sliding-puzzle-fan-reaction/
+
+A fan of The Legend of Zelda: The Wind Waker has finally solved a puzzle that took them 16 years to complete — and they’re still not finished.
+---------
+
+# Simon Helberg's New Series The Audacity Rises on the AMC+ Streaming Charts
+
+TV, The Audacity, AMC, The Big Bang Theory
+
+Mon, 20 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/the-audacity-comedy-drama-amc-success-april-2026/
+
+Simon Helberg, known for his role in The Big Bang Theory, stars in The Audacity, a dark comedy-drama that has quickly climbed on the AMC+ charts.
+---------
+
+# Fullmetal Alchemist Publisher Launches AI Tool to Cut 3,000 Hours of Work
+
+Anime, Square Enix, Artificial Intelligence, Fullmetal Alchemist
+
+Mon, 20 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/fullmetal-alchemist-publisher-ai-manga-tool/
+
+Square Enix is teaming up with Mantra to cut thousands of hours of work from Japanese manga publishing using an incredible new AI tool.
+---------
+
+# 5 Smartest Time Loop Episodes in Sci-Fi History
+
+TV, Sci-Fi, Person of Interest, Star Trek: The Next Generation
+
+Mon, 20 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/smartest-time-loop-sci-fi-episodes-list/
+
+The time loop episode has become a classic sci-fi trope, and these episodes of television did it particularly well.
+---------
+
+# Dave Chappelle Open to Chappelle's Show Return Under 1 Condition
+
+TV, Dave Chappelle, chappelle's show
+
+Sun, 19 Apr 2026 23:51:16 GMT
+
+https://www.cbr.com/dave-chappelle-eddie-murphy-chappelles-show/
+
+Dave Chappelle admits he's open to bringing back Chappelle's Show, but there's one thing he really wants to see happen with the potential reboot.
+---------
+
+# The Apothecary Diaries' Lakan Isn't As Controversial As Fans Think
+
+Anime, The Apothecary Diaries, seinen, light novels
+
+Sun, 19 Apr 2026 23:45:12 GMT
+
+https://www.cbr.com/the-apothecary-diaries-lakan-maomao-relationship/
+
+The Apothecary Diaries' Maomao hates her biological father something fierce, and her narrative skews fan perception to feel the same way.
+---------
+
+# This 66-Year-Old Twilight Zone Episode Ended the Show's Longest-Running Trend
+
+TV, The Twilight Zone, CBS, Sci-Fi
+
+Sun, 19 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/the-twilight-zone-king-nine-will-not-return-true-story-broke-franchise-trend/
+
+Though most famous for its twist ending, The Twilight Zone’s “King Nine Will Not Return” is based on a true story and features another iconic moment.
+---------
+
+# 8 Netflix Shows That Could Last Forever (and Probably Will)
+
+TV, Netflix, Beef, The Haunting of Hill House, One Piece
+
+Mon, 20 Apr 2026 00:02:12 GMT
+
+https://collider.com/netflix-shows-could-last-forever/
+
+Discover Netflix shows with unique formats and character-driven plots that give them the potential to last forever, from One Piece to Black Mirror.
+---------
+
+# Hulu's New Sci-Fi Crime Thriller Quietly Becomes a Late-Night Streaming Hit
+
+Movie News, Mike & Nick & Nick & Alice, Guy Ritchie, Eiza Gonzalez, Vince Vaughn
+
+Mon, 20 Apr 2026 00:00:12 GMT
+
+https://collider.com/vince-vaughn-james-marsden-mike-and-nick-and-nick-and-alice-sci-fi-crime-thriller-streaming-success-hulu-april-2026/
+
+Hulu's sci-fi movie Mike & Nick & Nick & Alice, starring James Marsden, is proving to be a major streaming hit. Find out more.
+---------
+
+# Sabrina Carpenter, Justin Bieber, and Karol G Turn Coachella 2026 Into a Legendary Weekends
+
+Music Features, Sabrina Carpenter, Justin Bieber, Music, Coachella
+
+Sun, 19 Apr 2026 23:52:41 GMT
+
+https://collider.com/sabrina-carpenter-justin-bieber-karol-g-coachella-2026/
+
+Sabrina Carpenter, Justin Bieber, and Karol G deliver unforgettable performances at Coachella 2026, setting new standards for future headliners with surprise guests and standout moments.
+---------
+
+# Tom Holland's Best Spider-Man Movie Is Quietly Climbing Disney+'s Global Streaming Charts
+
+Movie News, Spider-Man: No Way Home, MCU, Spider-Man: Brand New Day, Disney+
+
+Sun, 19 Apr 2026 23:45:12 GMT
+
+https://collider.com/tom-holland-spider-man-no-way-home-streaming-success-disney-plus-april-2026/
+
+Ahead of Tom Holland's upcoming Brand New Day, the most ambitious Spider-Man movie is a huge streaming hit in America.
+---------
+
+# 12 Years Later, Prime Video's 10/10 Detective Thriller Is Still One of Streaming's Best
+
+TV News, Bosch, Prime Video, Reacher, Mystery
+
+Sun, 19 Apr 2026 23:30:12 GMT
+
+https://collider.com/bosch-titus-welliver-detective-thriller-global-streaming-success-amazon-prime-video-april-2026/
+
+A 7-season crime drama surges again on Prime Video, blending sharp detective work with action grit and pulling in new fans globally.
+---------
+
 # Paul Rudd's New Dark Comedy Adaptation Is Officially The Next Don't Look Up
 
 New Movies, Don't Look Up, Paul Rudd
