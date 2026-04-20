@@ -1,3 +1,344 @@
+# James Gunn Unveils New Superman Logo As First Man Of Tomorrow Image Reveals Filming Start
+
+Movies, Man of Tomorrow, CinemaCon, DC Universe, Superman
+
+Mon, 20 Apr 2026 16:30:52 GMT
+
+https://screenrant.com/man-of-tomorrow-movie-image-filming-start-james-gunn/
+
+James Gunn's Man of Tomorrow has started principal photography, as set photos from the DC Studios film have finally been shared for the DCU sequel.
+---------
+
+# 10 Harsh Realities Of Rewatching The Avengers Movies
+
+Movies, The Avengers
+
+Mon, 20 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/avengers-movies-rewatch-harsh-realities/
+
+It's the perfect time to rewatch the Avengers movies, but there are some major issues that stand out when you revisit them ahead of Doomsday.
+---------
+
+# Controversial Paramount+ Series Dethrones Taylor Sheridan's Most-Watched Show Of All Time On Streaming
+
+TV, Masked Recs
+
+Mon, 20 Apr 2026 16:30:11 GMT
+
+https://screenrant.com/taylor-sheridan-marshals-show-streaming-chart-south-park-dethrones/
+
+Taylor Sheridan's most-watched drama is knocked off its perch on Paramount+, falling to one of television's most consistently controversial shows.
+---------
+
+# The Boys Race To Find V1 As Another Fight With Homelander Looms In Episode 4 Trailer
+
+TV, The Boys
+
+Mon, 20 Apr 2026 16:26:48 GMT
+
+https://screenrant.com/the-boys-season-5-episode-4-trailer-fort-harmony/
+
+A new teaser reveals a tense confrontation between the boys and Homelander as the race to V1 heats up in The Boys season 5, episode 4.
+---------
+
+# Sasha & Esther's Separation In Nobody Wants This Season 3: What To Expect
+
+TV, Nobody Wants This, Netflix, Jackie Tohn, Timothy Simons
+
+Mon, 20 Apr 2026 16:24:39 GMT
+
+https://screenrant.com/nobody-wants-this-how-sasha-esthers-break-up-affects-season-3/
+
+Find out how Esther and Sasha's split in Nobody Wants This could impact their characters in season 3 -- and the show -- according to the cast.
+---------
+
+# 10 Best Characters Introduced to Spider-Man Lore Since 2000, Ranked
+
+Comics, Spider-Man
+
+Mon, 20 Apr 2026 16:21:46 GMT
+
+https://screenrant.com/spider-man-best-characters-21st-century-marvel/
+
+These characters changed Spider-Man forever.
+---------
+
+# HBO Max's 4-Part Sci-Fi Series With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+Classic TV, Doom Patrol
+
+Mon, 20 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/hbo-max-doom-patrol-sci-fi-show-best-cast/
+
+HBO Max delivered a standout sci-fi series in 2019 that boasts an impressive cast of top-tier talent, but the show still slipped under the radar.
+---------
+
+# Practical Magic 2 Retcons Original Ending As Nicole Kidman & Sandra Bullock Return To Break The Curse In New Trailer
+
+Movies, Practical Magic 2
+
+Mon, 20 Apr 2026 16:04:30 GMT
+
+https://screenrant.com/practical-magic-2-trailer-nicole-kidman-sandra-bullock/
+
+Warner Bros. has released the first trailer for Practical Magic 2, the highly-anticipated sequel to Sandra Bullock and Nicole Kidman's cult classic.
+---------
+
+# All 6 Grant Gustin Flash Suits, Ranked Worst To Best
+
+Classic TV, The Flash
+
+Mon, 20 Apr 2026 16:00:22 GMT
+
+https://screenrant.com/the-flash-cw-show-costumes-ranked/
+
+Grant Gustin set a high benchmark for the character of the Flash across 8 seasons of TV, with a range of suits that helped develop the character.
+---------
+
+# James Gunn's $618 Million Superhero Movie Surges On Streaming At The Perfect Time
+
+Superheroes, Superman, DC Universe
+
+Mon, 20 Apr 2026 15:55:12 GMT
+
+https://screenrant.com/james-gunn-superman-movie-streaming-success-april-2026/
+
+A James Gunn superhero movie has found renewed popularity on streaming, and the success is perfectly timed with a major update on the franchise.
+---------
+
+# 6 Weirdest Details in Dexter
+
+TV, Dexter
+
+Mon, 20 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/weirdest-dexter-details-list/
+
+While Dexter is a well-written show with memorable episodes and characters, some details stand out as plain weird.
+---------
+
+# Dragon Ball Super Needs One Character to Make the Black Frieza Saga Perfect
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Mon, 20 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/dragon-ball-super-black-frieza-saga-needs-future-trunks/
+
+Dragon Ball Super's heroes need all the help they can get against Black Frieza, and Future Trunks is one fighter who needs to be present for action.
+---------
+
+# The Most Expensive Magic: The Gathering Cards, Ranked by Value
+
+Games, Magic The Gathering, feature
+
+Mon, 20 Apr 2026 16:05:39 GMT
+
+https://www.cbr.com/magic-gathering-expensive-cards-ranked/
+
+The most valuable non-Reserved List cards in Magic: The Gathering are often premium Masterpieces or box toppers. But which are the most valuable?
+---------
+
+# Magic: The Gathering - Double Masters' Artifact Cards Are Powerful in Any Deck
+
+Games, Magic The Gathering, feature
+
+Mon, 20 Apr 2026 16:02:08 GMT
+
+https://www.cbr.com/magic-the-gathering-double-masters-artifact-cards/
+
+Artifacts are the stars of Magic: The Gathering's Double Masters, and they fit into any deck. However, they are also quite powerful alone.
+---------
+
+# After The Wheel of Time's Cancelation, I'm Really Worried This Long-Running Sci-Fi Series Will Be Next
+
+TV, The Wheel of Time, Doctor Who, Sci-Fi
+
+Mon, 20 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/doctor-who-cancellation-concerns-after-wheel-of-time/
+
+Prime Video's cancelation of The Wheel of Time reflects a bigger shift in streaming that threatens a 60-year-old sci-fi universe and its future.
+---------
+
+# Paramount's New Star Trek Movie Announcement May Not Be the Good News
+
+Movies, Star Trek, Star Trek: The Motion Picture
+
+Mon, 20 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/paramount-star-trek-movie-announcement-bad-news/
+
+Fans cheered news of a new Star Trek movie at CinemaCon, but from the 1970s to more recent history, they shouldn't celebrate just yet.
+---------
+
+# Adult Swim's Smiling Friends Is Becoming a Modern Classic
+
+TV, Smiling Friends, Adult Swim, Animation
+
+Mon, 20 Apr 2026 15:42:29 GMT
+
+https://www.cbr.com/adult-swim-smiling-friends-modern-classic/
+
+Adult Swim's Smiling Friends became a modern classic in Western animation by embracing episodic storytelling and unique humor.
+---------
+
+# Anne Hathaway Reveals Christopher Nolan's 1 Rule for The Dark Knight Rises' Catwoman 14 Years Later
+
+Movies, The Dark Knight Rises
+
+Mon, 20 Apr 2026 15:35:10 GMT
+
+https://www.cbr.com/anne-hathaway-christopher-nolan-the-dark-knight-rises-catwoman-rule/
+
+14 years later, Anne Hathaway reveals the one rule Christopher Nolan had for her when it came to playing Catwoman in The Dark Knight Rises.
+---------
+
+# Rogue Trooper Movie Gets First Trailer
+
+Movies, Rogue Trooper, Sci-Fi, War
+
+Mon, 20 Apr 2026 15:30:28 GMT
+
+https://www.cbr.com/rogue-trooper-movie-trailer/
+
+Watch the first teaser trailer for Duncan Jones' Rogue Trooper movie, adapting the long-running military sci-fi from 2000 AD.
+---------
+
+# Steve Carell's Rooster Is a Fresh Take on Prestige Comedy TV
+
+TV, Rooster, HBO Max, steve carell
+
+Mon, 20 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/steve-carell-rooster-hilarious-prestige-sitcom/
+
+Bill Lawrence's Rooster on HBO brought Steve Carell back to comedy, but the Prestige TV sticom might be the start of a new comedy era.
+---------
+
+# First ‘Practical Magic 2’ Trailer Conjures Perfect Fantasy Return for Sandra Bullock and Nicole Kidman
+
+Movie News, Practical Magic 2, Nicole Kidman, Sandra Bullock, Warner Bros.
+
+Mon, 20 Apr 2026 16:32:08 GMT
+
+https://collider.com/practical-magic-2-trailer-sandra-bullock-nicole-kidman/
+
+Get out your midnight margaritas, the first Practical Magic 2 trailer has arrived and Sandra Bullock and Nicole Kidman are as fantastic as ever.
+---------
+
+# 10 Most Intense Martial Arts Movies of All Time, Ranked
+
+Movie, The Raid 2, The Raid: Redemption, Harakiri, The Night Comes For Us
+
+Mon, 20 Apr 2026 16:11:12 GMT
+
+https://collider.com/most-intense-martial-arts-movies-all-time-ranked/
+
+The most intense martial arts movies ever made include modern classics, like The Raid and its sequel, alongside downbeat samurai films like Harakiri.
+---------
+
+# Taylor Sheridan's Best Western Thriller Gets Must-See Behind-the-Scenes Look With New Digital Release [Exclusive]
+
+Exclusives, Landman, Taylor Sheridan, Billy Bob Thornton, Paramount Plus
+
+Mon, 20 Apr 2026 16:00:13 GMT
+
+https://collider.com/landman-season-2-behind-the-scenes-featurette-going-deeper-digital-release-sneak-peek/
+
+An exclusive Landman Season 2 featurette sneak peek highlights the growing Norris family dynamic with Billy Bob Thornton, Ali Larter, and Sam Elliott.
+---------
+
+# Apple TV Confirms Jessica Chastain's Long-Delayed Thriller Is Finally Releasing
+
+TV News, Apple TV, Jessica Chastain, The Savant, Streaming
+
+Mon, 20 Apr 2026 15:50:38 GMT
+
+https://collider.com/apple-tv-delayed-thriller-series-the-savant-release-update-summer-2026-jessica-chastain/
+
+Jessica Chastain confirms release plans for her long-delayed, controversial thriller series The Savant, coming soon on Apple TV.
+---------
+
+# New Sci-Fi Masterpiece Buries Denis Villeneuve’s Classic at the Box Office
+
+Movie News, Project Hail Mary, Sci-Fi, Denis Villeneuve, Dune: Part Two
+
+Mon, 20 Apr 2026 15:48:22 GMT
+
+https://collider.com/project-hail-mary-new-sci-fi-masterpiece-overtakes-denis-villeneuve-dune-part-2-box-office/
+
+The new sci-fi masterpiece Project Hail Mary has overtaken Denis Villeneuve's Dune: Part Two at the box office. Find out how much it has grossed.
+---------
+
+# One of 2026’s Most Divisive Horror Movies Just Opened at the Box Office
+
+Movie News, Lee Cronin's The Mummy, 28 Years Later: The Bone Temple, Horror, Box Office
+
+Mon, 20 Apr 2026 15:47:58 GMT
+
+https://collider.com/the-mummy-lee-cronin-box-office-debut-34-million/
+
+Horror’s wild year at the box office continues as Lee Cronin’s The Mummy lands an impressive opening against massive competition.
+---------
+
+# 'The Boys' Latest Episode Quietly Hid a 'Supernatural' Easter Egg That Most Fans Completely Missed
+
+TV Features, The Boys, Prime Video, Supernatural, Jensen Ackles
+
+Mon, 20 Apr 2026 15:27:22 GMT
+
+https://collider.com/the-boys-season-5-episode-3-supernatural-easter-egg-soldier-boy-colt/
+
+The Boys' latest episode features Jensen Ackles making an iconic Supernatural reference that most fans likely missed.
+---------
+
+# Marvel Studios Just Laid Off Director of Visual Development Andy Park
+
+Movie News, MCU
+
+Mon, 20 Apr 2026 16:14:48 GMT
+
+https://movieweb.com/marvel-studios-mcu-andy-park/
+
+Disney and Marvel Studios have laid off Andy Park, one of the main visual architects of the MCU.
+---------
+
+# The Most Visually Stunning Anime, Ranked
+
+Movie Lists
+
+Mon, 20 Apr 2026 16:00:21 GMT
+
+https://movieweb.com/anime-most-visually-stunning/
+
+From intriguing fight scenes to alluring animations, these anime offer unparalleled eye-candy!
+---------
+
+# Netflix's 'Ray Gunn' Is the Sci-Fi Original I've Waited 19 Years For
+
+Features, Ray Gunn, Netflix, Brad Bird
+
+Mon, 20 Apr 2026 16:00:20 GMT
+
+https://movieweb.com/ray-gunn-netflix-cyperpunk-anticipated/
+
+'Ray Gunn' is director Brad Bird's upcoming cyberpunk sci-fi original movie that will stream on Netflix, and it's exactly what the genre needs.
+---------
+
+# Oscar Isaac Shares 'Midnight' Sons' Update & MCU Ghost Rider Casting Idea
+
+Movie News, Moon Knight, Oscar Isaac, Ryan Gosling, Ghost Rider
+
+Mon, 20 Apr 2026 15:27:52 GMT
+
+https://movieweb.com/oscar-isaac-midnight-sons-ghost-rider/
+
+Moon Knight star Oscar Isaac shared an exciting 'Midnight Sons' development update and offered an idea for who should play the MCU's Ghost Rider.
+---------
+
 # Mandalorian & Grogu’s Latest Trailer Proves The Star Wars Movie Has Already Nailed Its Biggest Challenge
 
 Star Wars, The Mandalorian and Grogu
