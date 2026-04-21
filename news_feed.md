@@ -1,3 +1,377 @@
+# The Knick: HBO Max's Perfect Pitt Replacement You Can Binge In One Weekend
+
+Streaming TV, Masked Recs
+
+Tue, 21 Apr 2026 01:46:19 GMT
+
+https://screenrant.com/the-pitt-hbo-max-replacement-the-knick-binge-recommendation/
+
+Another season HBO Max's The Pitt has concluded, but fans of the hit medical drama have a perfect replacement already on the same streaming service.
+---------
+
+# Why Paramount Must Succeed With Star Trek Movies
+
+TV, Star Trek, Op-Ed
+
+Tue, 21 Apr 2026 01:31:20 GMT
+
+https://screenrant.com/star-trek-movies-important-reason/
+
+Star Trek theatrical movies have been dormant for a decade, robbing fans of more iconic moments from beloved characters that stand the test of time.
+---------
+
+# Ethan Hawke’s Gritty New 8-Part Western Crime Series Return Officially Sets Reunion For His Depression-Era Thriller
+
+TV, The Lowdown
+
+Tue, 21 Apr 2026 01:10:38 GMT
+
+https://screenrant.com/ethan-hawke-the-lowdown-season-2-austin-amelio-casting/
+
+Ethan Hawke's gritty FX crime series, The Lowdown, is back and setting up a major on-screen reunion tied to his upcoming historical thriller.
+---------
+
+# 3 Years Later, Star Wars' Most Mysterious Imperial Villain Finally Speaks
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Tue, 21 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/star-wars-inquisitor-marrok-finally-speaks-shadow-lord/
+
+After only saying three words three years ago, we're finally getting more from one of Star Wars' most mysterious Imperial villains in Shadow Lord.
+---------
+
+# Star Wars' New 100% RT Show Is Showing Obi-Wan Kenobi How It's Done
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Tue, 21 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/maul-shadow-lord-shows-obi-wan-kenobi-how-its-done/
+
+Obi-Wan Kenobi had several disappointing aspects, two of which are being utilized in Star Wars’ new acclaimed TV show to much better effect.
+---------
+
+# I Watched The First 18 Minutes Of The Mandalorian & Grogu: Here’s What Star Wars Gets Right
+
+Movies, Star Wars
+
+Tue, 21 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/he-mandalorian-and-grogu-first-15-minutes-watched/
+
+The first 18 minutes of The Mandalorian and Grogu were shown at CinemaCon, highlighting some amazing action and a classic Star Wars feel.
+---------
+
+# Sullivan's Crossing Season 4 Already Proves Why Sully Needs To Be Recast
+
+Network TV, Sullivan's Crossing
+
+Tue, 21 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-proves-sully-needs-to-be-recast-scott-patterson-spoilers/
+
+It's only been one episode of Sullivan's Crossing S4, but it's already clear that the role of Sully should be recast to bring him back to the show.
+---------
+
+# First Xbox Game Pass May Freebie Is A Seriously Overlooked RPG
+
+Gaming, Xbox Game Pass, PC, Triple-A Games, Final Fantasy, RPG
+
+Tue, 21 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-first-may-freebie-overlooked-rpg/
+
+Microsoft has announced the first free Xbox Game Pass addition in May, and it’s going to be a seriously overlooked RPG that you shouldn’t miss.
+---------
+
+# The Lincoln Lawyer: Netflix's Legal Drama That Blends Bosch & Suits
+
+Streaming TV, Masked Recs
+
+Tue, 21 Apr 2026 00:30:20 GMT
+
+https://screenrant.com/the-lincoln-lawyer-netflix-bosch-meets-suits-crime-thriller/
+
+Netflix is home to a crime thriller TV show that has rightfully earned a near-perfect Rotten Tomatoes score, becoming one of Netflix's best shows.
+---------
+
+# The X-Files Star Robbie Amell Goes Behind The Scenes Of Pluto TV's Marathon
+
+Interviews, The X-Files, Robbie Amell
+
+Tue, 21 Apr 2026 00:10:50 GMT
+
+https://screenrant.com/x-files-marathon-robbie-amell-pluto-tv-interview/
+
+ScreenRant visits a bunker in Joshua Tree to celebrate the contest winner of Pluto TV's X-Files contest and reminisce with Robbie Amell.
+---------
+
+# 10 Pokémon TCG Cards With the Best Art
+
+Games, Pokemon TCG, TCG, Tabletop
+
+Tue, 21 Apr 2026 01:45:13 GMT
+
+https://www.cbr.com/pokemon-cards-with-best-art/
+
+For a lot of Pokémon TCG collectors, the gorgeous full art cards are the highlight of their collections.
+---------
+
+# 10 Classic Anime Masterpieces Every New Fan Needs to Watch
+
+Anime, Cowboy Bebop, Mobile Suit Gundam
+
+Tue, 21 Apr 2026 01:25:13 GMT
+
+https://www.cbr.com/must-watch-classic-anime-for-new-fans/
+
+It's fun to follow seasonal hits, but more new anime fans should consider going back to the medium's classics.
+---------
+
+# Spider-Man's Official Family Tree is Uprooted in New Marvel Crossover
+
+Comics, Spider-Man
+
+Tue, 21 Apr 2026 01:02:15 GMT
+
+https://www.cbr.com/amazing-spider-man-26-review-family-tree-marvel-crossover/
+
+In a CBR review of Amazing Spider-Man #26, see how the latest Marvel crossover event has hidden a shocking secret about the Parker family tree
+---------
+
+# Mission: Impossible Quietly Confirms It Isn't Over After Final Reckoning
+
+Movies, Mission: Impossible, Mission: Impossible - The Final Reckoning, tom cruise
+
+Tue, 21 Apr 2026 01:00:13 GMT
+
+https://www.cbr.com/mission-impossible-quietly-confirms-more-films-possible/
+
+Mission: Impossible -- The Final Reckoning may not be the end of Tom Cruise's spy franchise after all, after this new report.
+---------
+
+# 10 Best Open-World Adventure Games You Cannot Miss
+
+Games, action rpg, RPG, The Witcher 3: Wild Hunt, Dragon's Dogma: Dark Arisen, Adventure
+
+Tue, 21 Apr 2026 00:45:13 GMT
+
+https://www.cbr.com/best-open-world-adventure-games/
+
+Open-World adventure games provide the best adventure game experiences through vast, immersive worlds that beg to be explored.
+---------
+
+# 10 Hardest '90s Retro Games of All Time, Ranked By Difficulty
+
+Games, retro games
+
+Tue, 21 Apr 2026 00:31:13 GMT
+
+https://www.cbr.com/hardest-90s-retro-games-all-time-ranked-by-difficulty-list/
+
+Titles like Rayman and The Lion King are some of the hardest '90s games ever made.
+---------
+
+# Wagon Master Is One of John Ford's Best Movies
+
+Movies
+
+Tue, 21 Apr 2026 00:31:13 GMT
+
+https://www.cbr.com/john-fords-best-western-movie-wagon-master-underrrated/
+
+John Ford is a legend of the Western genre and created countless iconic films, but Wagon Master was underrated by fans and critics alike.
+---------
+
+# Bosch's Titus Welliver Stole the Show in Ben Affleck's The Town With 92% on Rotten Tomatoes
+
+TV, Bosch, The Town, Crime
+
+Tue, 21 Apr 2026 00:31:13 GMT
+
+https://www.cbr.com/bosch-titus-welliver-the-town/
+
+Titus Welliver may be most recognizable for his role in the Bosch franchise, but he's also been a part of one of Ben Affleck's best movies.
+---------
+
+# Dragon Ball Super's Golden Frieza Saga Armor Mistake Finally Explained
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball Super, Dragon Ball
+
+Tue, 21 Apr 2026 00:18:02 GMT
+
+https://www.cbr.com/dragon-ball-super-golden-frieza-saga-armor-oversight-explained/
+
+Dragon Ball Super's now confirmed Golden Frieza remake already contains the anime's weirdest apparent oversight, but it was never actually a mistake.
+---------
+
+# Crunchyroll's Spring 2026 Mind Game Anime Is Even Smarter than Squid Game
+
+Anime, Squid Game, Liar Game, Crunchyroll, Netflix
+
+Tue, 21 Apr 2026 00:15:12 GMT
+
+https://www.cbr.com/liar-game-anime-smarter-than-squid-game/
+
+Squid Game was directly inspired by the underrated psychological anime, Liar Game, which is finally streaming on Crunchyroll now.
+---------
+
+# MGM+'s Terrifying Sci-Fi Series Is at Its Best Heading Into Season 5
+
+TV Features, From, Harold Perrineau, Eion Bailey, MGM TV
+
+Tue, 21 Apr 2026 01:48:20 GMT
+
+https://collider.com/mgm-plus-from-best-sci-fi-series-before-season-5/
+
+MGM+'s scariest series is From, a show about a town where no one is able to leave and the mysteries keeping everyone there.
+---------
+
+# 23 Years Later, This Long-Running Crime Series Still Surges as Paramount+’s Biggest Hit
+
+TV Features, NCIS, Paramount Plus, Series, Streaming
+
+Tue, 21 Apr 2026 01:48:20 GMT
+
+https://collider.com/ncis-still-worth-watching-paramount-plus-crime-series/
+
+NCIS is still a streaming and broadcast force 23 years later. Here’s why the long-running crime series remains worth watching on Paramount+.
+---------
+
+# 10 Most Perfect Sci-Fi Endings of All Time, Ranked
+
+Movie, Inception, Back to the Future, The Empire Strikes Back, Sci-Fi
+
+Tue, 21 Apr 2026 01:38:13 GMT
+
+https://collider.com/most-perfect-sci-fi-movie-endings-ranked/
+
+Sci-fi movies like The Terminator, Stalker, and The Empire Strikes Back have some of the best, most perfect endings in the history of the genre.
+---------
+
+# Guy Ritchie’s Bingeworthy Crime Thriller Spikes on Streaming Following Season 2 News
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, MobLand
+
+Tue, 21 Apr 2026 01:30:12 GMT
+
+https://collider.com/guy-ritchie-bingeworthy-crime-thriller-young-sherlock-streaming-success-prime-video-april-2026/
+
+Guy Ritchie's intensely bingeable British crime thriller, Young Sherlock, his trending on streaming after being renewed for Season 2.
+---------
+
+# This Hidden Gem Post-Apocalyptic Sci-Fi Movie Is Finally Getting Its Moment on Hulu
+
+Movie News, Love and Monsters, Adventure, Comedy, Prime Video
+
+Tue, 21 Apr 2026 01:15:13 GMT
+
+https://collider.com/best-post-apocalyptic-adventure-movie-2020-love-and-monsters-streaming-hulu-may-2026/
+
+An overlooked post-apocalyptic adventure returns to streaming, blending action, heart, and humor in a way most films miss.
+---------
+
+# This Legendary Film Hero Is the Most Expensively Dressed Movie Character of All Time
+
+Movie Features, James Bond, Daniel Craig, Spectre, Action
+
+Tue, 21 Apr 2026 01:11:14 GMT
+
+https://collider.com/james-bond-most-expensively-dressed-movie-character-of-all-time/
+
+Daniel Craig’s portrayal of James Bond in Spectre has impressively nabbed the title of the most expensively dressed character in movie history.
+---------
+
+# 3 Binge-Worthy Shows To Watch on Prime Video This Week
+
+TV, Prime Video, Kevin, The Better Sister, Penny Dreadful
+
+Tue, 21 Apr 2026 01:11:14 GMT
+
+https://collider.com/best-shows-binge-prime-video-april-20-2026/
+
+Kevin, The Better Sister, and Penny Dreadful make up our list of the best shows to binge on Prime Video the week of April 20, 2026.
+---------
+
+# Zendaya Scores Another Box Office Hit as Her Controversial A24 Movie Nears $100M
+
+Movie News, The Drama, Zendaya, Robert Pattinson, A24
+
+Tue, 21 Apr 2026 01:01:13 GMT
+
+https://collider.com/zendaya-controversial-movie-the-drama-box-office-milestone-a24-top-five-list/
+
+Zendaya and Robert Pattinson's controversial dark comedy, The Drama, has broken into an elite A24 box-office list. Find out more.
+---------
+
+# The Best Streaming Service Costs Half as Much as Netflix (And That Isn't Changing Anytime Soon)
+
+TV Features, Game Changer, Dropout TV, Make Some Noise, Netflix
+
+Tue, 21 Apr 2026 00:52:12 GMT
+
+https://collider.com/dropout-tv-best-streaming-service-cheaper-than-netflix/
+
+Dropout TV, formerly College Humor, has become not only the most hilarious streaming service around, but also one of the most affordable.
+---------
+
+# Marvel’s New Spider-Man Series Adds Gwen Stacy With a Major Twist
+
+TV News, Your Friendly Neighborhood Spider-Man, Spider-Man, Spider-Man: Brand New Day, MCU
+
+Tue, 21 Apr 2026 00:45:13 GMT
+
+https://collider.com/marvel-gwen-stacy-debut-your-friendly-neighborhood-spider-man-season-2/
+
+Marvel Studios is introducing Gwen Stacy in 2026, but her first MCU appearance won’t come in Tom Holland’s live-action Spider-Man world.
+---------
+
+# 10 Near-Perfect Hard Sci-Fi Shows That Feel a Little Too Real
+
+TV Lists, Science Fiction
+
+Tue, 21 Apr 2026 01:01:17 GMT
+
+https://movieweb.com/hard-sci-fi-tv-shows-perfect-realistic/
+
+These hard science-fiction TV shows have great world-building, memorable characters, and storylines that feel realistic.
+---------
+
+# 'The Mandalorian and Grogu' Director Explains the Origins of Martin Scorsese's Role
+
+Movie News, The Mandalorian and Grogu, Star Wars, Martin Scorsese, Kathleen Kennedy, Jon Favreau
+
+Tue, 21 Apr 2026 00:38:25 GMT
+
+https://movieweb.com/mandalorian-and-grogu-martin-scorsese-explained/
+
+Jon Favreau reveals why the acclaimed director decided to join the upcoming 'Star Wars' film.
+---------
+
+# 'Stranger Things' Spin-Off Showrunner Breaks Down the Secrets of the New Series
+
+Movie News, Stranger Things: Tales from '85, Stranger Things
+
+Mon, 20 Apr 2026 23:51:53 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-eric-robles-interview/
+
+Eric Robles explains the approach to telling this story set between Seasons 2 and 3.
+---------
+
+# 'Super Troopers 3' Trailer Released Exactly 8 Years After Last Sequel
+
+Movie News, Super Troopers 3, Jay Chandrasekhar, Kevin Heffernan
+
+Mon, 20 Apr 2026 23:38:18 GMT
+
+https://movieweb.com/super-troopers-3-trailer/
+
+The Broken Lizard team is at it again with another raunchy outing.
+---------
+
 # For The First Time In Official Star Trek Canon, Captain Kirk Is Fighting The Borg
 
 Comics, Star Trek
