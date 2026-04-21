@@ -1,3 +1,311 @@
+# 28 Years Later, Zoro Just Broke His Biggest Promise To Luffy With One Heartbreaking Moment
+
+Anime, One Piece
+
+Tue, 21 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/one-piece-zoro-break-promise-luffy-loss-imu/
+
+In a shocking turn of events, One Piece's ultimate King of the World has arrived on Elbaph, and it took them no time to break Zoro's promise to Luffy.
+---------
+
+# Netflix's Emmy-Winning Thriller Series Returns With 58% Viewership For Season 2
+
+TV, Beef
+
+Tue, 21 Apr 2026 19:55:59 GMT
+
+https://screenrant.com/beef-season-2-netflix-viewership-drop/
+
+Netflix's Emmy-winning thriller Beef returned for season 2, but its debut numbers reveal a staggering 58% drop in viewership compared to season 1.
+---------
+
+# Splatoon Raiders: Release Date, Platforms, Price, Story Info, & Gameplay Details
+
+Gaming, Splatoon, Triple-A Games
+
+Tue, 21 Apr 2026 19:53:38 GMT
+
+https://screenrant.com/splatoon-raiders-switch-2-release-date-price-story-gameplay/
+
+Nintendo's third-person shooter series will get its first-ever spin-off this summer with Splatoon Raiders – here's a breakdown of its release info.
+---------
+
+# Ryan Coogler's X-Files Reboot Gets Seal Of Approval From Yet Another Original Star
+
+TV, The X-Files, Robbie Amell
+
+Tue, 21 Apr 2026 19:43:23 GMT
+
+https://screenrant.com/ryan-coogler-x-files-reboot-robbie-amell-seal-of-approval/
+
+EXCLUSIVE: Eight years after going off the air, The X-Files is being rebooted, and an original star is giving their blessing to Ryan Coogler’s vision.
+---------
+
+# HBO's 8-Part 'Stranger Things Meets Lovecraft' Series Fixed An Iconic Franchise
+
+TV, It: Welcome to Derry, It, Stranger Things
+
+Tue, 21 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/it-welcome-to-derry-save-franchise-hbo/
+
+Blending the nostalgia of Stranger Things with Lovecraftian horror has allowed an iconic HBOMax series to redeem its franchise's flawed reputation.
+---------
+
+# Matlock Star Teases Emotionally Expensive & Game-Changing Season 2 Finale
+
+TV, Matlock, Skye P. Marshall
+
+Tue, 21 Apr 2026 19:28:48 GMT
+
+https://screenrant.com/matlock-season-2-finale-emotional-changes-tease-skye-p-marshall/
+
+Matlock's highly-anticipated two-hour season 2 finale promises emotional depth and major plot twists that will leave no character untouched, according to star Skye P. Marshall.
+---------
+
+# Netflix's 3-Part Sci-Fi Series That's Designed To Be Binged Is One Of Its Best Space Shows
+
+Classic TV, Lost In Space, Masked Recs, Recommendation, Sci-Fi, Netflix
+
+Tue, 21 Apr 2026 19:06:11 GMT
+
+https://screenrant.com/lost-in-space-netflix-remake-space-show-binge/
+
+There's no shortage of bingeworthy sci-fi shows on Netflix, but few are as enjoyable from start to finish as this immaculate reboot of a genre classic
+---------
+
+# Helaena Targaryen’s House Of The Dragon Season 3 Return Finally Revealed As Fans Speculate Major Book Change
+
+TV, House of the Dragon
+
+Tue, 21 Apr 2026 19:04:43 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-helaena-targaryen-first-look/
+
+House of the Dragon is heating up ahead of season 3, as a first-look image could signal a major book change for Phia Saban's character, Helaena.
+---------
+
+# After 39 Years, The Simpsons Is Right To Break Its Number 1 Rule
+
+TV, The Simpsons
+
+Tue, 21 Apr 2026 19:04:18 GMT
+
+https://screenrant.com/the-simpsons-couch-gag-change-explained-future/
+
+The Simpsons has been a cultural phenomenon for nearly four decades, but a recent change has some fans questioning the iconic show's new direction.
+---------
+
+# Xbox Game Pass Officially Lowers Prices in 2026 (But There's a Catch)
+
+Games, Xbox (Original)
+
+Tue, 21 Apr 2026 20:01:12 GMT
+
+https://www.cbr.com/xbox-game-pass-price-decrease-2025-cod/
+
+Microsoft has announced that it's officially lowering the cost of several Game Pass tiers, but there's a huge catch for Call of Duty fans.
+---------
+
+# 10 Most Popular Anime Characters From the Last Decade, Ranked
+
+Anime, Mob Psycho 100, Spy X Family
+
+Tue, 21 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/most-popular-anime-characters-last-decade-ranked-list/
+
+Over the last 10 years, we've been introduced to some of the most popular anime characters of all time.
+---------
+
+# Top Gun 3 Needs to Solve the Franchise's Maverick Problem
+
+Movies, Top Gun 3, tom cruise, War
+
+Tue, 21 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/top-gun-3-solve-maverick-story-problem/
+
+The news of a third Top Gun movie has Maverick fans elated, but there's one key story flaw the sequel has to address to make its hero more compelling.
+---------
+
+# Citadel Season 2 Finally Premieres on Prime Video Next Month
+
+TV, Citadel
+
+Tue, 21 Apr 2026 19:38:21 GMT
+
+https://www.cbr.com/prime-video-citadel-season-2-streaming-may-2026/
+
+After a years-long wait, the immensely expensive series is finally returning to Prime Video.
+---------
+
+# The Treasure of Sierra Madre Is One of the Best Westerns of All Time
+
+Movies, Western
+
+Tue, 21 Apr 2026 19:30:13 GMT
+
+https://www.cbr.com/this-humphrey-bogart-classic-is-one-of-the-best-westerns-of-all-time/
+
+The Treasure of Sierra Madre remains one of the most influential Westerns of all time almost a century after it initially debuted.
+---------
+
+# Michael Star Nia Long Reveals the Real Reason Jafaar Jackson Was the Perfect Choice to Play the King of Pop
+
+CBR Exclusives, Michael
+
+Tue, 21 Apr 2026 19:16:24 GMT
+
+https://www.cbr.com/michael-nia-long-jafaar-jackson-perfect-choice-michael-jackson-biopic/
+
+The upcoming biopic for the King of Pop will feature his real nephew in the leading role.
+---------
+
+# 15 Best Cards to Pull in Pokémon: Journey Together
+
+Games, Pokemon Trading Card Game, Journey Together, Tabletop, TCG
+
+Tue, 21 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/pokemon-tcg-journey-together-best-card-pulls/
+
+Pokemon's Journey Together expansion brings a plethora of gorgeous cards to the table that are equally useful.
+---------
+
+# Modern Family's Eric Stonestreet Says The Show Could Have Lasted Longer
+
+TV, Modern Family, Happy's Place, Sitcoms
+
+Tue, 21 Apr 2026 19:12:27 GMT
+
+https://www.cbr.com/eric-stonestreet-modern-family-couldve-lasted-longer/
+
+Give us 11 more seasons of Modern Family!
+---------
+
+# Yellowstone Spinoff Dutton Ranch Casts Country Star Morgan Wade
+
+TV, Dutton Ranch, Yellowstone
+
+Tue, 21 Apr 2026 19:10:45 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-morgan-wade-casting/
+
+A Taylor Sheridan trend continues with the next Yellowstone franchise series.
+---------
+
+# Netflix Releases First 6 Minutes of Stranger Things: Tales from '85
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Tue, 21 Apr 2026 19:03:22 GMT
+
+https://www.cbr.com/netflix-first-6-minutes-stranger-things-tales-from-85/
+
+Stranger Things is back with Netflix dropping an extended sneak peek at the franchise's return.
+---------
+
+# Netflix's Hit Crime Series Returns to the Top 10, but There's a Huge Catch
+
+TV News, Beef, Netflix, Oscar Isaac, Carey Mulligan
+
+Tue, 21 Apr 2026 19:51:56 GMT
+
+https://collider.com/netflix-crime-thriller-beef-season-2-streaming-success-60-percent-drop-in-viewership/
+
+Netflix's Beef Season 2 has debuted on the streamer's Top 10, but has suffered a colossal drop in viewership compared to Season 1.
+---------
+
+# 10 Most Perfect Thriller Movies of the Last 20 Years, Ranked
+
+Movie, Inception, Parasite, Uncut Gems, Thriller
+
+Tue, 21 Apr 2026 19:44:12 GMT
+
+https://collider.com/most-perfect-thriller-movies-last-20-years-ranked/
+
+The Secret Agent, Uncut Gems, The Dark Knight, Gone Girl, and more make up our list of the most perfect thriller movies of the last 20 years.
+---------
+
+# Hulu's 3-Part Sci-Fi Masterpiece Officially Adds an 'ER' Icon for Final Season
+
+TV News, Paradise, Julianna Margulies, Sterling K. Brown, Hulu
+
+Tue, 21 Apr 2026 19:30:36 GMT
+
+https://collider.com/hulu-sci-fi-thriller-paradise-season-3-cast-er-star-julianna-margulies/
+
+Julianna Margulies, best known for her work in ER and The Morning Show, has joined the final season of Hulu's Paradise.
+---------
+
+# Taylor Sheridan's ‘Yellowstone’ Spin-Off Is Paying the Price for Moving Too Fast
+
+TV Features, Marshals, Logan Marshall-Green, Yellowstone, CBS
+
+Tue, 21 Apr 2026 19:21:14 GMT
+
+https://collider.com/marshals-yellowstone-cbs-pacing-miles-madison-relationship/
+
+The latest Marshals episode reveals Miles is dating Cal's daughter, Madison, but the revelation feels rushed and lacks the impact the series needs.
+---------
+
+# John Carpenter's Quiet Sci-Fi Gem Remains the Most Surprising Film of His Career
+
+Movie Features, John Carpenter, Jeff Bridges, Starman, Sci-Fi
+
+Tue, 21 Apr 2026 19:21:14 GMT
+
+https://collider.com/john-carpenter-starman-1984-sci-fi-jeff-bridges/
+
+John Carpenter might be best known for horror films like Halloween and The Thing, but Starman with Jeff Bridges is an underrated hidden gem.
+---------
+
+# Netflix's New #1 Global Hit Is Unknown 94-Minute Revenge Thriller '180'
+
+Movie News, Netflix, Crime, Thriller
+
+Tue, 21 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/netflix-180-stream-april-2026/
+
+The crime thriller has quickly found both global and US success after debuting on the streamer last week.
+---------
+
+# 'Over Your Dead Body' Review: Segel and Weaving Get Big Laughs in Twisted Comedy
+
+3 star movies, Over Your Dead Body
+
+Tue, 21 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/over-your-dead-body-review/
+
+A married couple tries to kill each other in a remote cabin, but are interrupted by dangerous interlopers.
+---------
+
+# 'How to Train Your Dragon 2' Crew Member Suffers Major Injury During Production
+
+Movie News, How To Train Your Dragon 2, How to Train Your Dragon
+
+Tue, 21 Apr 2026 19:39:16 GMT
+
+https://movieweb.com/how-to-train-your-dragon-2-major-injury/
+
+The crew member severed multiple fingers.
+---------
+
+# 'Devil May Cry' Season 2 Trailer Released by Netflix
+
+TV News, Devil May Cry, Netflix
+
+Tue, 21 Apr 2026 19:14:21 GMT
+
+https://movieweb.com/devil-may-cry-season-2-trailer/
+
+The team behind the 'Castlevania' series on Netflix is back with a second season of the hit video game adaptation.
+---------
+
 # Star Wars Fans Need To Hear X-Men Writer Jonathan Hickman's Explanation Of Marvel Canon
 
 Comics, X-Men, Star Wars
