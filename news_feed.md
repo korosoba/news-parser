@@ -1,3 +1,245 @@
+# Game Of Thrones Star's New Revenge Thriller Was Originally Written For A Man, Reveals Ballistic Star & Director
+
+Movies, Ballistic, Lena Headey
+
+Tue, 21 Apr 2026 22:00:18 GMT
+
+https://screenrant.com/ballistic-movie-2026-script-gender-change-lena-headey-chad-faust/
+
+Writer/director Chad Faust and star Lena Headey talk their new revenge thriller Ballistic and how the script was changed from being written for a man.
+---------
+
+# PlayStation Drops Free Game With Platinum You Can Grab In 5 Minutes
+
+Gaming, PlayStation 5, Triple-A Games
+
+Tue, 21 Apr 2026 22:00:18 GMT
+
+https://screenrant.com/playstation-free-game-easy-platinum-april-2026/
+
+Trophy hunters are always on the move, and there's a prime target for a Platinum out now on PlayStation 5, with no strings attached.
+---------
+
+# After 59 Years, Batgirl Debuts Her Most Scandalous Costume of All Time
+
+DC Comics, Batgirl
+
+Tue, 21 Apr 2026 22:00:18 GMT
+
+https://screenrant.com/new-batgirl-scandalous-costume-hawk-girl-summer/
+
+DC’s Hawk-Girl Summer is almost here, and the publisher is turning up the heat as iconic heroes like Batgirl debut bold new redesigned looks.
+---------
+
+# Michael 2 Sequel Ideas Teased By Biopic Producer & Stars
+
+Movies, Michael
+
+Tue, 21 Apr 2026 21:56:24 GMT
+
+https://screenrant.com/michael-2-sequel-ideas-tease-producer-jaafar-jackson/
+
+EXCLUSIVE: The stars of the new Michael Jackson biopic tease a possible sequel to the highly-anticipated film about the life of the iconic musician.
+---------
+
+# 10 Western Movies With The Best Villain Performances
+
+Classic Movies, Ranking, Western
+
+Tue, 21 Apr 2026 21:50:19 GMT
+
+https://screenrant.com/western-movies-best-villain-performances/
+
+The Western genre has its share of great heroes like John Wayne and Clint Eastwood, but every good hero needs a great villain, and these are the best.
+---------
+
+# Apple TV's Upcoming Cyberpunk Series That's Blade Runner Meets The Matrix Adapts One Of The Greatest Novels Of All Time
+
+Streaming TV, Neuromancer, Masked Recs, The Matrix, Blade Runner
+
+Tue, 21 Apr 2026 21:45:20 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-matrix-meets-blade-runner-novel/
+
+Apple has already delivered some masterpiece sci-fi adaptations, but one upcoming show looks poised to completely dominate conversations for years.
+---------
+
+# Netflix's Money Heist: A Perfect Blend Of Squid Game & Ocean's Eleven
+
+Classic TV, Masked Recs
+
+Tue, 21 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/money-heist-show-squid-game-meets-oceans-11-plot-twists/
+
+One of Netflix's best TV shows of all time is the perfect mix of Squid Game and Ocean's Eleven, spawning one of the streamer's best franchises.
+---------
+
+# MGM+'s From Season 4 Returns To Record Audience Rotten Tomatoes Score
+
+TV, From, FROM - Season 4
+
+Tue, 21 Apr 2026 21:25:54 GMT
+
+https://screenrant.com/from-season-4-rotten-tomatoes-audience-score-record/
+
+From season 4 has debuted on MGM+, and the horror series has already set a record-breaking Rotten Tomatoes audience score after one episode.
+---------
+
+# 10 Most Powerful Villains In Invincible Season 4, Ranked
+
+Streaming TV
+
+Tue, 21 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/invincible-season-4-villains-ranked/
+
+Prime Video’s Invincible season 4 featured a wide array of antagonists that ranged from familiar bad guys to new and powerful villains.
+---------
+
+# Pixar's Elio is the Best Family Movie of 2025
+
+Movies, Elio, Disney+, pixar
+
+Tue, 21 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/pixar-elio-sci-fi-flop-best-family-movie-2025/
+
+This cosmic adventure of mistaken identities was one of 2025's biggest flops and now it's one of the best science fiction family films on Disney+
+---------
+
+# James Bond Movies Leave Netflix
+
+Movies, James Bond, Netflix, Action
+
+Tue, 21 Apr 2026 21:46:38 GMT
+
+https://www.cbr.com/james-bond-movies-leave-netflix-april-2026/
+
+Netflix just lost 26 James Bond movies.
+---------
+
+# Star Trek Reveals Deep Space Nine's Replacement Series
+
+Comics, Star Trek, Star Trek: Deep Space Nine
+
+Tue, 21 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/star-trek-the-last-starship-7-release-date-confirmed/
+
+An exciting and mysterious new replacement for Star Trek's Deep Space Nine was just teased, with more information coming next month.
+---------
+
+# The Godfather Trilogy's Most Important Character Was Hiding in Plain Sight (& He's Not a Corleone)
+
+Movies, The Godfather
+
+Tue, 21 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/the-godfather-trilogy-al-neri-most-overlooked-character/
+
+Al Neri may be an overlooked character in The Godfather trilogy, but without his loyalty, Michael’s world would have been far more fragile.
+---------
+
+# Eric Stonestreet Confirms His Fate on Sitcom Television
+
+CBR Exclusives, Happy's Place, Modern Family, Sitcoms
+
+Tue, 21 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/modern-family-eric-stonestreet-cam-tucker-future-confirmed/
+
+The Modern Family star is ready to dive back into comedy after Happy's Place.
+---------
+
+# Law & Order Is Now on Netflix, but Only Two Seasons
+
+TV, Law & Order, Law and Order, Netflix
+
+Tue, 21 Apr 2026 21:25:42 GMT
+
+https://www.cbr.com/law-and-order-netflix-seasons/
+
+Law & Order returns to Netflix, but not with as many episodes as fans hoped. More are on the way.
+---------
+
+# 10 Best Pokémon TCG Booster Packs to Buy in 2026
+
+Games, Pokemon, Pokemon TCG, TCG, SWSH07: Evolving Skies, SV: Shrouded Fable, SV: Paldean Fates
+
+Tue, 21 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/best-pokemon-booster-packs-2026/
+
+Adults who grew up with Pokémon still collect, trade, play and sell Pokémon cards, making them both an investment & trading card game.
+---------
+
+# Only 3 Movie Trilogies Are More Thrilling Than The Lord of the Rings
+
+Movie, The Lord of the Rings, The Dark Knight Trilogy, Star Wars, Thriller
+
+Tue, 21 Apr 2026 21:55:13 GMT
+
+https://collider.com/movie-trilogies-more-thrilling-than-the-lord-of-the-rings/
+
+Beyond The Lord of the Rings, these trilogies deliver relentless tension, character depth, and rare start-to-finish consistency.
+---------
+
+# 8 Perfect Mystery Shows To Watch After ‘High Potential’
+
+TV, High Potential, Mystery, Law & Order: Special Victims Unit, Will Trent
+
+Tue, 21 Apr 2026 21:44:12 GMT
+
+https://collider.com/mystery-shows-like-high-potential/
+
+While you wait for High Potential's Season 3 return, be sure to check out other mystery shows like Will Trent, Elsbeth, and Law & Order: SVU.
+---------
+
+# 10 Greatest Space Sci-Fi Movies of All Time, Ranked
+
+Movie, Science Fiction, Alien, Star Wars, 2001: A Space Odyssey
+
+Tue, 21 Apr 2026 21:42:13 GMT
+
+https://collider.com/best-space-sci-fi-movies-all-time-ranked/
+
+From timeless masterpieces like 2001: A Space Odyssey to recent hits like Project Hail Mary, these are the best space movies in cinematic history.
+---------
+
+# Everyone Forgot the Truth Behind the 1980s' Most Iconic Movie Moment
+
+Movie Features, Say Anything..., John Cusack, Cameron Crowe, 80s movies
+
+Tue, 21 Apr 2026 21:23:12 GMT
+
+https://collider.com/say-anything-boombox-scene-john-cusack-iconic-80s-movie-moment/
+
+Even though John Cusack's boombox scene in Say Anything is considered an iconic romantic gesture, many people forget one key part of it.
+---------
+
+# 'The Mandalorian' Creator Confirms Season 4 Would Have Brought in Grand Admiral Thrawn
+
+TV News, The Mandalorian, The Mandalorian and Grogu, Jon Favreau
+
+Tue, 21 Apr 2026 22:00:28 GMT
+
+https://movieweb.com/star-wars-mandalorian-season-4-thrawn/
+
+With the character pivoting to a movie, don't count on the 'Star Wars' villain facing off against Din Djarin.
+---------
+
+# 'Maul – Shadow Lord's Jedi Mind Trick Scene Means Ben Kenobi's First Iconic Moment Makes No Sense
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars, Star Wars: Episode IV - A New Hope
+
+Tue, 21 Apr 2026 22:00:16 GMT
+
+https://movieweb.com/star-wars-force-plot-hole-shadow-lord/
+
+Alec Guinness' Obi-Wan Kenobi was the first 'Star Wars' character to use a Jedi mind trick on-screen, but now it doesn't make any sense.
+---------
+
 # Taylor Sheridan's Challenging Adaptation Of Empire Of The Summer Moon
 
 Movies, Taylor Sheridan
