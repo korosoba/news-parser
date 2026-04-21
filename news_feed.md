@@ -1,3 +1,135 @@
+# Apple TV's Drops of God: The Ultimate Wine-Themed Mystery Thriller Adapted from Masterful Manga
+
+Streaming TV, Masked Recs
+
+Tue, 21 Apr 2026 23:45:19 GMT
+
+https://screenrant.com/drops-of-god-apple-tv-best-manga-adaptation/
+
+Apple TV has plenty of weird and wonderful original series, but this gourmet thriller based on an all-time great manga is among its best releases.
+---------
+
+# HBO’s New 8-Part Sci-Fi Western Will Be ‘True Detective Meets Watchmen’
+
+TV, True Detective, Watchmen, Lanterns, HBO, Masked Recs
+
+Tue, 21 Apr 2026 23:32:19 GMT
+
+https://screenrant.com/lanterns-hbo-sci-fi-western-like-true-detective-watchmen/
+
+A blend of True Detective season 1's murder mystery with Watchmen's dark superhero subversions has viewers buzzing about HBO's new sci-fi western.
+---------
+
+# 17 Best Seeds For Minecraft Pocket Edition (PE)
+
+Gaming, Minecraft
+
+Tue, 21 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/minecraft-pocket-edition-pe-best-seeds/
+
+The best Pocket Edition Seeds in Minecraft have a variety of useful structures and picturesque biomes, usually available at Spawn point.
+---------
+
+# Attack on Titan Quietly Launches Unexpected New Series With First Look
+
+Anime, Attack on Titan, Attack On Titan
+
+Tue, 21 Apr 2026 23:22:21 GMT
+
+https://www.cbr.com/attack-on-titan-wit-studio-kyoji-asano-project-reveal/
+
+The first look at a new Attack on Titan project perfectly offsets Wit Studio's recent AI controversy.
+---------
+
+# Wild Arms 4 Officially Returning to PlayStation Consoles After 20 Years
+
+Games, PlayStation 5
+
+Tue, 21 Apr 2026 23:11:16 GMT
+
+https://www.cbr.com/wild-arms-4-playstation-return/
+
+The 20-year-old classic makes a surprise return on PS4 and PS5.
+---------
+
+# Prime Video’s 2-Part Sci-Fi Spin-Off Is Back on the Streaming Charts
+
+TV Features, Prime Video, Gen V, The Boys, Vought Rising
+
+Tue, 21 Apr 2026 23:55:13 GMT
+
+https://collider.com/prime-video-gen-v-the-boys-spinoff-flixpatrol-top-10/
+
+As The Boys' final season races to the finish line, its spinoff series Gen V has re-entered Prime Video's streaming lists.
+---------
+
+# ‘Landman’ Icon’s 1998 Sci-Fi Epic Officially Loses Box Office Rank to Amazon’s 10/10 Blockbuster
+
+Movie News, Project Hail Mary, Michael Bay, Armageddon, Box Office
+
+Tue, 21 Apr 2026 23:45:13 GMT
+
+https://collider.com/2026-sci-fi-classic-project-hail-mary-overtakes-michael-bay-bill-bob-thornton-blockbuster-armageddon-box-office-575-million/
+
+Ryan Gosling's Project Hail Mary has overtaken Michael Bay's Armageddon at the box office. Find out how much it has grossed so far.
+---------
+
+# This 2-Part Sci-Fi Epic Is the Most Addictive Binge You'll Find on Streaming Right Now
+
+TV Features, Stargate, Stargate: Atlantis, Stargate SG-1, Sci-Fi
+
+Tue, 21 Apr 2026 23:42:13 GMT
+
+https://collider.com/stargate-atlantis-pilot-episodes-sci-fi-epic-binge/
+
+Stargate Atlantis is a must-watch sci-fi series, starting with its thrilling two-part pilot that sets the stage for an addictive adventure across the stars.
+---------
+
+# Henry Cavill’s First Movie in 2 Years Officially Arrives on May 15
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie, Jake Gyllenhaal
+
+Tue, 21 Apr 2026 23:30:13 GMT
+
+https://collider.com/henry-cavill-guy-ritchie-movie-in-the-grey-release-date-may-15-how-to-watch/
+
+Henry Cavill's first movie since 2024, Guy Ritchie's In the Grey, officially arrives next month on May 15. Find out how to watch it here.
+---------
+
+# The Most Beloved Sci-Fi Franchise of the Decade Becomes a Hulu Sleeper Hit Ahead of Upcoming Prequel
+
+Movie News, The Hunger Games, The Hunger Games: Catching Fire, The Hunger Games: The Ballad of Songbirds and Snakes, Sci-Fi
+
+Tue, 21 Apr 2026 23:15:12 GMT
+
+https://collider.com/hunger-games-ya-sci-fi-franchise-streaming-success-hulu-april-2026/
+
+The Hunger Games film adaptations, based on Suzanne Collins' YA dystopian sci-fi novels, have topped Hulu's streaming charts.
+---------
+
+# 10 Greatest Gothic Book Masterpieces, Ranked
+
+Movie, Jane Eyre, Frankenstein, Wuthering Heights, The Picture of Dorian Gray
+
+Tue, 21 Apr 2026 23:15:12 GMT
+
+https://collider.com/best-gothic-book-masterpieces-ranked/
+
+Gothic literature has given us some of the medium's all-time best masterpieces, including Jane Eyre and The Strange Case of Dr. Jekyll and Mr. Hyde.
+---------
+
+# 'Project Hail Mary's Rocky Performer Could Get Them an Acting Award
+
+Movie News, Project Hail Mary, Oscars
+
+Tue, 21 Apr 2026 23:23:21 GMT
+
+https://movieweb.com/project-hail-mary-rocky-oscar/
+
+The criteria for acting awards would allow James Ortiz to be nominated for his work.
+---------
+
 # Japan Reveals the Official Top 10 Spring Anime for 2026
 
 Anime, Daemons of the Shadow Realm, Daemons of the Shadow Realm - Season 1, Dorohedoro, Dorohedoro - Season 2, Needy Girl Overdose, NEEDY GIRL OVERDOSE - Season 1, Witch Hat Atelier, Witch Hat Atelier - Season 1, That Time I Got Reincarnated as a Slime, Rooster Fighter, Rooster Fighter - Season 1
