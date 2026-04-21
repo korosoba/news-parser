@@ -1,3 +1,245 @@
+# Xbox Game Pass Unleashes Iconic 50-Hour RPG, Completely Free
+
+Gaming, Xbox Game Pass, Final Fantasy
+
+Tue, 21 Apr 2026 14:30:18 GMT
+
+https://screenrant.com/xbox-game-pass-50-hour-free-rpg/
+
+Xbox Game Pass has become a great place to go for a new RPG, and another all-time classic has just been added to the extensive list.
+---------
+
+# Silo's 2026 Return Date Confirmed As Apple Reveals Trailer For Season 3 Of Rebecca Ferguson's Sci-Fi Series
+
+TV, Silo
+
+Tue, 21 Apr 2026 14:05:23 GMT
+
+https://screenrant.com/silo-season-3-trailer-release-date-images/
+
+Apple TV has revealed the first trailer for the highly-anticipated third season of its hit sci-fi series Silo starring Rebecca Ferguson.
+---------
+
+# John Wick Creator's Gritty New Crime Thriller Is A Final Destination-Style “Anti-Action” Movie
+
+Movies, Normal
+
+Tue, 21 Apr 2026 14:04:57 GMT
+
+https://screenrant.com/normal-anti-action-movie-final-destination-comparison-ben-wheatley/
+
+EXCLUSIVE: A new movie from John Wick creator Derek Kolstad gets a breakdown from director Ben Wheatley, who describes it as an "anti-action" movie.
+---------
+
+# Xbox Officially Unveils New Hardware, Coming Next Month
+
+Gaming, Xbox Series X/S
+
+Tue, 21 Apr 2026 14:00:45 GMT
+
+https://screenrant.com/forza-horizon-6-xbox-controller-headset-release/
+
+Xbox is getting two new limited-edition hardware releases next month to commemorate the release of one of its most anticipated games this year.
+---------
+
+# Henry Cavill Leads Highlander Reboot, a Fresh Start After The Witcher's Missteps
+
+Streaming TV, Highlander, The Witcher
+
+Tue, 21 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/highlander-reboot-prime-video-henry-cavill-witcher-replacement/
+
+It was a devastating blow when Henry Cavill left The Witcher, but he's got the perfect replacement lined up: the Highlander reboot.
+---------
+
+# DC's New R-Rated Villain Movie Reveals First Official Look At Clayface Pre-Transformation
+
+Movies, Clayface, DC Universe, Batman
+
+Tue, 21 Apr 2026 13:52:53 GMT
+
+https://screenrant.com/clayface-first-look-tom-rhys-harries-matt-hagen-dcu-photo/
+
+The R-rated DC Universe movie, Clayface, finally gets an official first look at the iconic DC shape-shifter's pre-transformation from DC Studios.
+---------
+
+# Psych Season 9 & Juliet’s Potential Return Story Addressed By Maggie Lawson
+
+TV, Psych
+
+Tue, 21 Apr 2026 13:47:44 GMT
+
+https://screenrant.com/psych-season-9-sequel-juliet-story-potential-maggie-lawson/
+
+EXCLUSIVE: Maggie Lawson discusses the possibility of returning for Psych season 9, sharing her hopes for the fan-favorite Juliet O'Hara.
+---------
+
+# Michael Rotten Tomatoes Score Revealed For Michael Jackson Biopic
+
+Movies, Michael, Michael Jackson
+
+Tue, 21 Apr 2026 13:46:19 GMT
+
+https://screenrant.com/michael-movie-2026-rotten-tomatoes-score-revealed/
+
+The Michael Rotten Tomatoes score is in as reviews roll out for the biographical exploration of King of Pop Michael Jackson, played by his nephew.
+---------
+
+# Final Fantasy 6 Officially Returns In Unexpected New Release
+
+Gaming, Final Fantasy, Triple-A Games
+
+Tue, 21 Apr 2026 13:42:28 GMT
+
+https://screenrant.com/final-fantasy-6-kefka-villain-return-ff14/
+
+There are many iconic Final Fantasy games, but alongside of Final Fantasy 7, FF6 is beloved by many for generations, and for good reason.
+---------
+
+# Animal Crossing Officially Returns This August With A Brand-New Release
+
+Gaming, Animal Crossing
+
+Tue, 21 Apr 2026 13:30:18 GMT
+
+https://screenrant.com/animal-crossing-official-august-2026-return/
+
+Discover the adorable Animal Crossing Chara-Magnets collection launching in Japan this August, featuring 24 characters and exclusive stationary cards.
+---------
+
+# 22 Years Later, Harry Potter's Most Random Character Still Stole Every Scene in Prisoner of Azkaban
+
+Movies, Harry Potter
+
+Tue, 21 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/harry-potter-bem-prisoner-of-azkaban-movie/
+
+Harry Potter and the Prisoner of Azkaban has many great moments, and one that includes a random character fans can't get enough of.
+---------
+
+# 10 Best K-Dramas Every Beginner Must Watch
+
+TV, Drama, Crash Landing On You, Reply 1988, Sweet Home
+
+Tue, 21 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/best-k-dramas-for-beginners-list/
+
+There's an overwhelming number of K-Dramas available, but beginners looking for a great place to enter the genre can't go wrong with these hits.
+---------
+
+# Star Wars' Qui-Gon Jinn Confirmed To Return In An All-New Star Wars Project
+
+Comics, Star Wars
+
+Tue, 21 Apr 2026 14:00:15 GMT
+
+https://www.cbr.com/star-wars-jedi-knights-vol-2-qui-gon-jinn-return-confirmed/
+
+One of the most beloved Star Wars characters of an entire generation is officially back in action thanks to a fan-favorite Marvel title.
+---------
+
+# How Picard's Man of the People Quote Defines Star Trek
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Tue, 21 Apr 2026 13:30:59 GMT
+
+https://www.cbr.com/picard-star-trek-man-of-the-people-quote/
+
+Jean-Luc Picard's powerful line in The Next Generation's Man of the People' encapsulates Star Trek's themes of justice and ethics.
+---------
+
+# Sydney Sweeney's Gundam Live-Action Movie Gets Massive Filming Update From Netflix
+
+Movies, Gundam
+
+Tue, 21 Apr 2026 13:28:39 GMT
+
+https://www.cbr.com/sydney-sweeney-gundam-netflix-live-action-movie-massive-filming-update/
+
+Netflix is officially battle-ready and giving fans a long-awaited update on Sydney Sweeney's live-action Gundam film with Noah Centineo.
+---------
+
+# 10 Classic '90s Anime That Are Perfectly Written
+
+Anime, Cowboy Bebop, Neon Genesis Evangelion
+
+Tue, 21 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/best-written-classic-90s-anime/
+
+The 1990s were anime's golden age, producing some of the medium's best-written masterpieces.
+---------
+
+# ‘Michael’ Is Already One of the Worst-Reviewed Movies of the Year
+
+Movie News, Michael, Miles Teller, Colman Domingo, Antoine Fuqua
+
+Tue, 21 Apr 2026 14:18:49 GMT
+
+https://collider.com/michael-jackson-movie-biopic-rotten-tomatoes-score-is-it-good/
+
+Michael, Antoine Fuqua’s Michael Jackson biopic, is officially one of the worst rated movies of the year with a devastating Rotten Tomatoes score.
+---------
+
+# Rebecca Ferguson's 3-Part Sci-Fi Masterpiece Sets Release Date on Apple TV
+
+TV News, Silo, Sci-Fi, Rebecca Ferguson, Apple TV
+
+Tue, 21 Apr 2026 14:00:16 GMT
+
+https://collider.com/apple-tv-silo-season-3-release-date-july-2026-rebecca-ferguson/
+
+Apple TV's dystopian sci-fi drama Silo, starring Rebecca Ferguson, returns for Season 3 on July 3 with a weekly release schedule through September 4.
+---------
+
+# David Bowie's Forgotten 1987 Masterpiece Comes From His Least-Favorite Album
+
+Music Features, David Bowie, Rock, Music, Billboard Hot 100
+
+Tue, 21 Apr 2026 13:43:36 GMT
+
+https://collider.com/david-bowie-1987-day-in-day-out-forgotten-song/
+
+David Bowie critiques homelessness and urban poverty in the US, making it a standout track from his least favorite album, Never Let Me Down.
+---------
+
+# '9-1-1: Nashville' Season 2 Casts Ryan Phillippe as New Detective
+
+TV News, Ryan Phillippe, 9-1-1: Nashville, 9-1-1
+
+Tue, 21 Apr 2026 14:32:47 GMT
+
+https://movieweb.com/9-1-1-nashville-season-2-ryan-phillippe/
+
+Phillippe has signed a multi-year deal to join ABC’s 9-1-1 spin-off, with Season 2 introducing him as a “seductive bad boy” detective from New York
+---------
+
+# 'Project Hail Mary: Journey Among the Stars' VR Video Game Announced
+
+Movie News, Project Hail Mary, Sci-Fi, video games
+
+Tue, 21 Apr 2026 14:02:10 GMT
+
+https://movieweb.com/project-hail-mary-journey-among-the-stars-video-game/
+
+'Project Hail Mary' author Andy Weir has written a new chapter of his sci-fi epic for a video game releasing later this year.
+---------
+
+# Noah Wyle's 'The Pitt' Season 3 Setting Change Idea Repeats a Major Problem
+
+Features, The Pitt
+
+Tue, 21 Apr 2026 14:00:19 GMT
+
+https://movieweb.com/the-pitt-season-3-setting-repeating-trope/
+
+'The Pitt' Season 3 will feature a time jump, and Noah Wyle recently shared what setting the next season of the HBO Max medical drama could have.
+---------
+
 # GTA 5 Free Download Officially Available To Grab Before April 29
 
 Gaming, Grand Theft Auto, Grand Theft Auto Online
