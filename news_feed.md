@@ -1,3 +1,245 @@
+# Japan Reveals the Official Top 10 Spring Anime for 2026
+
+Anime, Daemons of the Shadow Realm, Daemons of the Shadow Realm - Season 1, Dorohedoro, Dorohedoro - Season 2, Needy Girl Overdose, NEEDY GIRL OVERDOSE - Season 1, Witch Hat Atelier, Witch Hat Atelier - Season 1, That Time I Got Reincarnated as a Slime, Rooster Fighter, Rooster Fighter - Season 1
+
+Tue, 21 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/japan-top-10-spring-2026-anime-revealed/
+
+Japan has officially revealed the top 10 anime series for Spring 2026 so far, and this lineup has great options for every kind of anime fan.
+---------
+
+# John Krasinski's Upcoming Action Movie That Comes Out In 1 Month Rewrites The Rules Of Streaming
+
+Streaming TV, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, John Krasinski
+
+Tue, 21 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/john-krasinski-jack-ryan-ghost-war-movie-sequel-show/
+
+The upcoming John Krasinski movie isn't just a highly anticipated release, it's a test case for blockbuster -budgeted streaming sequels.
+---------
+
+# If You Love Complicated Time Travel Movies, You Should Watch This 2004 Indie Film
+
+Movies, Sci-Fi, Primer, Recommendation
+
+Tue, 21 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/primer-movie-time-travel-complicated/
+
+Even 22 years later, this independent time-travel movie continues to live up to its reputation of being truly impossible to understand.
+---------
+
+# Liam Neeson's New Reboot Of 44-Year-Old Crime Franchise Becomes Netflix Global Streaming Sensation
+
+Movies, The Naked Gun
+
+Tue, 21 Apr 2026 22:52:54 GMT
+
+https://screenrant.com/liam-neeson-the-naked-gun-netflix-streaming-success-april-2026/
+
+Liam Neeson's new reboot of a 44-year-old franchise becomes a global streaming sensation on Netflix, nearly nine months after its theatrical release.
+---------
+
+# After You And Mindhunter, Netflix Has A New Queen Of Psychological Thrillers
+
+TV, You, Mindhunter, The Hunting Wives, Netflix, Masked Recs
+
+Tue, 21 Apr 2026 22:35:19 GMT
+
+https://screenrant.com/the-hunting-wives-netflix-top-psychological-thriller-series/
+
+After two of Netflix's best psychological thrillers, You and Mindhunter, were canceled, one new show can now fill the void and last for years.
+---------
+
+# 5 Movies That Impressed Me The Most At CinemaCon 2026
+
+Movies, CinemaCon
+
+Tue, 21 Apr 2026 22:30:18 GMT
+
+https://screenrant.com/cinemacon-2026-movies-impressed-most/
+
+CinemaCon was an event full of incredible new looks at upcoming studio films in 2026 and 2027, but these five truly stood out above the rest.
+---------
+
+# From Season 4 Is Already 1 of the Most Popular TV Shows in America
+
+TV, From
+
+Tue, 21 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/from-sci-fi-prime-video-mgm-plus-success-april-2026/
+
+After a fantastic return, the hit sci-fi horror series turned into a major streaming hit.
+---------
+
+# Apple TV Officially Changed For All Mankind's Timeline Years Before Fans Noticed
+
+TV, For All Mankind, Apple TV
+
+Tue, 21 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-timeline-earlier-point-of-divergence/
+
+For All Mankind's point of divergence actually happened years before the 1969 Moon landing that changed everything in the series premiere.
+---------
+
+# 5 Steve McQueen Movies That Everyone Must Watch At Least Once
+
+Movies, The Great Escape, The Magnificent Seven, Bullitt
+
+Tue, 21 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/steve-mcqueen-movies-that-everyone-must-watch-at-least-once/
+
+Steve McQueen is a legend of the big screen, and some of his films everyone should see at least once.
+---------
+
+# The Boys Creator 'Terrified' of Pulling a Game of Thrones With Finale
+
+TV, The Boys
+
+Tue, 21 Apr 2026 22:46:23 GMT
+
+https://www.cbr.com/the-boys-showrunner-worried-game-of-thrones-ending/
+
+The Boys showrunner Eric Kripke is admittedly terrified about botching the series finale akin to Game of Thrones.
+---------
+
+# Tomb Raider DLC Officially Free, Available Now
+
+Games, Tomb Raider
+
+Tue, 21 Apr 2026 22:45:12 GMT
+
+https://www.cbr.com/tomb-raider-dlc-free-legacy-of-atlantis/
+
+Gamers can get the latest Tomb Raider DLC completely free, even if the next game in the series hasn't made its way into their hands yet.
+---------
+
+# Doc Holliday's 'You’re No Daisy at All' Tombstone Line Means More Than You Think
+
+Movies, Tombstone, Western
+
+Tue, 21 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/doc-holliday-most-underrated-tombstone-line/
+
+Tombstone's line, “You’re no daisy at all,” expresses Doc's disappointment towards Johnny Ringo, who couldn’t provide the release he sought.
+---------
+
+# Ash Ketchum's 10 Best Pokémon of All Time
+
+Anime, Pokémon, Pokemon
+
+Tue, 21 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/ash-ketchum-best-pokemon-in-the-anime/
+
+Ash has surrounded himself with some impressive Pokémon, but some of these companions make a greater impact than others.
+---------
+
+# Anne Hathaway Officially Confirms a Sequel to Her Legendary Fantasy Franchise Is “100%” in the Works
+
+Movie News, Anne Hathaway, The Princess Diaries, The Devil Wears Prada 2, The Odyssey
+
+Tue, 21 Apr 2026 23:00:12 GMT
+
+https://collider.com/anne-hathaway-disney-sequel-the-princess-diaries-3-update/
+
+Anne Hathaway confirms that a third Princess Diaries movie is still in development, promising to deliver a sequel that meets high expectations.
+---------
+
+# Adam Driver's Underrated ‘Gladiator’ Replacement Is Headed to a New Streaming Home
+
+Movie News, The Last Duel, Adam Driver, Gladiator, Ridley Scott
+
+Tue, 21 Apr 2026 23:00:12 GMT
+
+https://collider.com/adam-driver-underrated-gladiator-replacement-the-last-duel-streaming-hulu-may-2026/
+
+A divisive historical epic resurfaces on streaming, where its bold storytelling and performances may finally find the audience it deserved.
+---------
+
+# Sydney Sweeney’s Sci-Fi ‘Transformers’ Replacement Officially Adds a Beloved Harry Potter Villain
+
+Movie News, Sydney Sweeney, Noah Centineo, Gundam, Sci-Fi
+
+Tue, 21 Apr 2026 22:50:31 GMT
+
+https://collider.com/sydney-sweeney-sci-fi-movie-live-action-gundam-cast-jason-isaacs/
+
+Sydney Sweeney’s live-action Gundam movie at Netflix has rounded out its cast with Harry Potter icon Jason Isaacs.
+---------
+
+# 67 Years Later, This 14-Part Western Is Still One of the Best Shows Ever Made
+
+TV Features, Bonanza, NBC, Western, Peacock
+
+Tue, 21 Apr 2026 22:46:13 GMT
+
+https://collider.com/greatest-western-tv-show-all-time-bonanza/
+
+Bonanza was a progressive Western that tackled racism and morality, making it one of TV’s most groundbreaking shows.
+---------
+
+# Ryan Reynolds Officially Confirms Deadpool’s MCU Return With Surprising New Detail
+
+Movie News, Deadpool, Deadpool 2, Deadpool & Wolverine, Deadpool & Wolverine (2024)
+
+Tue, 21 Apr 2026 22:42:16 GMT
+
+https://collider.com/ryan-reynolds-deadpool-return-script-update-supporting-character/
+
+Ryan Reynolds confirms he is currently writing Deadpool’s next adventure, but clarifies it will be a very different role for him.
+---------
+
+# Star Wars Director Officially Reveals Scrapped Plans for ‘The Mandalorian’ Season 4
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Star Wars, Jon Favreau
+
+Tue, 21 Apr 2026 22:39:16 GMT
+
+https://collider.com/the-mandalorian-season-4-scrapped-plans-ahsoka-season-2-connection-explained-jon-favreau/
+
+Jon Favreau opens the curtain on his scrapped plans for The Mandalorian Season 4, revealing its connections to Ahsoka Season 2.
+---------
+
+# 'The Office's Most Infamous Character Returns With a Terrifying Warning [Exclusive]
+
+Exclusives, Rainn Wilson, The Office, Comedy, Documentary
+
+Tue, 21 Apr 2026 22:30:12 GMT
+
+https://collider.com/the-office-recyclops-rainn-wilson-earth-day-short-film-trailer/
+
+The Office star Rainn Wilson discusses bringing Recyclops back for The Death of Recycl@ps and why he thinks Earth Day is “problematic.”
+---------
+
+# 10 Greatest Fantasy Movies of the Last 6 Years, Ranked
+
+Movie, Fantasy, The Green Knight, The Northman
+
+Tue, 21 Apr 2026 22:21:13 GMT
+
+https://collider.com/best-fantasy-movies-last-6-years-ranked/
+
+The 2020s have already produced a slew of truly masterful fantasy movies, from Viking tales like The Nortman to Arthurian epics like The Green Knight.
+---------
+
+# 'Lost in Tanslation': Still One of the Greatest 21st Century Movies
+
+Features, Lost in Translation, Scarlett Johansson, Career Arc Reframe
+
+Tue, 21 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/scarlett-johansson-lost-in-translation-greatest-movies/
+
+Scarlett Johansson has never been better than in 'Lost in Translation', a profoundly tender movie that holds up almost 25 years later.
+---------
+
 # Game Of Thrones Star's New Revenge Thriller Was Originally Written For A Man, Reveals Ballistic Star & Director
 
 Movies, Ballistic, Lena Headey
