@@ -1,3 +1,322 @@
+# Star Wars Fans Need To Hear X-Men Writer Jonathan Hickman's Explanation Of Marvel Canon
+
+Comics, X-Men, Star Wars
+
+Tue, 21 Apr 2026 18:50:22 GMT
+
+https://screenrant.com/what-star-wars-fans-need-to-learn-from-x-mens-greatest-living-writer/
+
+A galaxy-brain approach to canon.
+---------
+
+# Star Wars Officially Brings Back One Of The Most Broken Force Powers
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 21 Apr 2026 18:45:19 GMT
+
+https://screenrant.com/maul-shadow-lord-marrok-psychometry-force-power-star-wars-canon/
+
+Maul - Shadow Lord season 1, episode 5 reveals Inquisitor Marrok possesses the rare Force power of psychometry, making him a formidable threat in the Star Wars series.
+---------
+
+# Robert Pattinson & Zendaya's New Movie Officially Crosses Rare Box Office Milestone In All Of A24's History
+
+Movies, The Drama, Box Office
+
+Tue, 21 Apr 2026 18:40:29 GMT
+
+https://screenrant.com/robert-pattinson-zendaya-the-drama-movie-100-million-box-office/
+
+Robert Pattinson and Zendaya's new movie officially crosses a rare box office milestone in all of A24's 13-year history.
+---------
+
+# Nightwing Goes Super Saiyan as DC Merges with Dragon Ball Lore
+
+Comics, Batman
+
+Tue, 21 Apr 2026 18:37:10 GMT
+
+https://screenrant.com/batman-dragon-ball-super-saiyan-robin-redesign-new-costume/
+
+An iconic Batman hero just turned into a Super Saiyan, as the latest DC hero to unleash the transformation made iconic by Dragon Ball Z.
+---------
+
+# Netflix’s #1 Hit Horror Series Proves The Streamer Will Be Just Fine Without Mike Flanagan
+
+TV, Mike Flanagan, Something Very Bad Is Going to Happen
+
+Tue, 21 Apr 2026 18:32:19 GMT
+
+https://screenrant.com/something-very-bad-is-going-to-happen-netflix-hit-without-mike-flanagan/
+
+Netflix's loss of Mike Flanagan was rough, but the streaming service's latest hit proves that their psychological horror drama game remains strong.
+---------
+
+# Disney's New Movie Secretly Already Debuted Over 5 Years Ago
+
+Movies, Disney, Hexed, The Owl House
+
+Tue, 21 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/disney-new-movie-hexed-the-owl-house/
+
+Hexed is Disney's next big animated film that's set to release in November, but its story seems remarkably similar to another hit Disney series.
+---------
+
+# Titus Welliver's 2025 Dracula Sequel Adaptation Officially Releases On Hulu Next Month
+
+Movies, Abraham's Boys
+
+Tue, 21 Apr 2026 18:27:54 GMT
+
+https://screenrant.com/titus-welliver-abrahams-boys-hulu-streaming-release-date/
+
+Titus Welliver's 2025 Dracula sequel adaptation officially releases on Hulu next month, a total of 10 months after its theatrical release.
+---------
+
+# Michael Director Addresses Original 4-Hour Cut & Changes From "The Best Editors In The World"
+
+Movies, Michael
+
+Tue, 21 Apr 2026 18:26:18 GMT
+
+https://screenrant.com/michael-4-hour-cut-editing-antoine-fuqua-response/
+
+EXCLUSIVE: The Michael Jackson biopic Michael was originally four hours long, with director Antoine Fuqua now explaining how he pared it down.
+---------
+
+# The Day Of The Jackal Season 2 Images Reveal Eddie Redmayne's Return As The Deadly Assassin
+
+TV, The Day of the Jackal
+
+Tue, 21 Apr 2026 18:15:45 GMT
+
+https://screenrant.com/the-day-of-the-jackal-season-2-eddie-redmayne-set-photos/
+
+New set images from The Day of the Jackal season 2 reveal Eddie Redmayne back in action, with production already underway in Budapest.
+---------
+
+# Netflix's Last Samurai Standing Fills The Void Left By Shōgun's Uncertain Future
+
+Streaming TV, Masked Recs
+
+Tue, 21 Apr 2026 18:00:18 GMT
+
+https://screenrant.com/last-samurai-standing-netflix-shogun-replacement/
+
+The latest news about Shōgun season 2 suggests the show won't be ready for a year at least, fortunately, Netflix has a six-episode replacement.
+---------
+
+# 8 LOTR and Hobbit Actors Who Auditioned for Different Roles
+
+Movies, The Lord of the Rings, The Hobbit
+
+Tue, 21 Apr 2026 19:00:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-hobbit-actors-auditioned-for-different-parts-list/
+
+Peter Jackson's The Lord of the Rings trilogy had one of the greatest casts ever assembled, but some members originally tried out for different parts.
+---------
+
+# 22 Years Later, Stargate's 2-Part Masterpiece Remains the Best 88 Minutes in Sci-Fi History
+
+TV, Stargate SG-1, Stargate
+
+Tue, 21 Apr 2026 19:00:14 GMT
+
+https://www.cbr.com/stargate-sg1-masterpiece-heroes-sci-fi/
+
+This Stargate SG-1 episode is considered a sci-fi masterpiece, featuring a documentary crew's visit and a shocking death that elevates the storyline.
+---------
+
+# Hello Kitty Gets New Nintendo Switch Game as Sanrio Makes Major Gaming Move
+
+Anime, Hello Kitty, sanrio, Nintendo
+
+Tue, 21 Apr 2026 18:39:02 GMT
+
+https://www.cbr.com/sanrio-party-land-nintendo-switch-reveal/
+
+Hello Kitty is heading to the Nintendo Switch for another brand-new game that will be the first of many from Sanrio's first in-house publisher.
+---------
+
+# James Cameron Called Gravity 'The Best Space Film Ever Done'
+
+Movies, Gravity
+
+Tue, 21 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/james-cameron-gravity-best-space-film-ever/
+
+If anyone knows a well-made sci-fi space thriller, it's James Cameron, and he said this 2016 film is the best.
+---------
+
+# After 20 Years, Star Wars Is Finally Returning to Burger King
+
+Movies, Star Wars
+
+Tue, 21 Apr 2026 18:27:15 GMT
+
+https://www.cbr.com/star-wars-burger-king-promotion/
+
+Burger King introduces a limited-time menu inspired by Star Wars: The Mandalorian and Grogu.
+---------
+
+# Jack Quaid Marries The Boys Co-Star Ahead of Season 5 Finale
+
+TV, The Boys
+
+Tue, 21 Apr 2026 18:11:10 GMT
+
+https://www.cbr.com/the-boys-jack-quaid-secret-wedding/
+
+Jack Quaid has quietly married one of his co-stars from The Boys ahead of the series finale.
+---------
+
+# Sydney Sweeney's Cameo in The Devil Wears Prada 2 Officially Confirmed
+
+Movies, The Devil Wears Prada 2
+
+Tue, 21 Apr 2026 18:05:28 GMT
+
+https://www.cbr.com/sydney-sweeney-the-devil-wears-prada-2-cameo-cut/
+
+The highly anticipated sequel will be a star-studded affair.
+---------
+
+# Project Hail Mary Video Game Officially in Development, Coming This Year
+
+Games, Project Hail Mary
+
+Tue, 21 Apr 2026 18:05:12 GMT
+
+https://www.cbr.com/project-hail-mary-game-journey-among-the-stars-2026/
+
+Project Hail Mary fans are getting the follow-up they didn't know they needed, and it's coming in the form of a sci-fi video game experience.
+---------
+
+# 10 Batman Comics That Rely On Shock Value Alone
+
+Comics, Batman, DCU, Batman: The Killing Joke
+
+Tue, 21 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/batman-comics-dark-just-for-shock-value/
+
+Batman’s stories have waded into some of the darkest topics and brutal violence over the years, often ending up with more shock value than substance.
+---------
+
+# Unchosen: How Fra Fee Waited Underwater With Weighted Shoes | Set Stories
+
+Interviews, Fra Fee, Netflix
+
+Tue, 21 Apr 2026 18:23:55 GMT
+
+https://collider.com/video/unchosen-how-fra-fee-waited-underwater-with-weighted-shoes-set-stories/
+
+Fra Fee breaks down the deeply complex character of Tom in Netflix’s Unchosen, revealing the trauma, manipulation, and desire for peace that define one of the show’s most layered figures. In this exclusive Collider interview, Fee explains why Tom can’t simply be labeled a villain—and how his past shapes every decision he makes.Discussing Julie Geary’s richly detailed writing, Fee highlights how Tom’s childhood abandonment and lack of positive role models influence his warped worldview. He also dives into the emotional contradictions at the heart of the character, noting that “he just wants peace,” even if he goes about it in destructive ways.Beyond character work, Fee shares insights into filming intense sequences, including underwater scenes at Pinewood Studios and the eerie real-world location used for the show’s religious community. He also reflects on collaborating with standout co-stars like Siobhan Finneran and exploring themes of power, faith, and moral ambiguity.From psyc
+---------
+
+# Netflix's Creepy Cult Thriller Series Gets "Brilliant" Season 2 Update [Exclusive]
+
+TV News, Unchosen, Fra Fee, Netflix, Asa Butterfield
+
+Tue, 21 Apr 2026 18:20:43 GMT
+
+https://collider.com/netflix-cult-crime-thriller-unchosen-season-2-update-fra-fee/
+
+Unchosen star Fra Fee believes there are ways to continue the new British thriller with a Season 2 and an expanded story for his character, Sam.
+---------
+
+# 20 Years Later, the Best Video Game Movie Ever Made Remains a Horror Masterpiece
+
+Movie Features, Silent Hill, Horror, video game movies, Christophe Gans
+
+Tue, 21 Apr 2026 18:06:12 GMT
+
+https://collider.com/silent-hill-20th-anniversary-best-video-game-movie-horror-masterpiece/
+
+On its 20th anniversary, we look back at Christopher Gans' Silent Hill, a horror cult classic adaptation of an iconic video game.
+---------
+
+# 10 Most Perfect Thriller Movie Endings, Ranked
+
+Movie, The Usual Suspects, Se7en, Psycho, The Game
+
+Tue, 21 Apr 2026 17:52:14 GMT
+
+https://collider.com/most-perfect-thriller-movie-endings-ranked/
+
+Thriller movies like The Departed, The Game, and The Usual Suspects have some of the greatest, most perfect endings in the genre's history.
+---------
+
+# Alan Ritchson's 'Reacher' Rumored To Be Renewed for Season 5 on Prime Video
+
+TV News, Reacher, Prime Video
+
+Tue, 21 Apr 2026 18:40:09 GMT
+
+https://movieweb.com/reacher-alan-ritchson-season-5-rumor/
+
+According to a new rumor, Prime Video's 'Reacher,' starring Alan Ritchson, may be on its way to a Season 5 renewal.
+---------
+
+# 'Top Gun 3': Director Joseph Kosinski Reportedly Not Returning for Tom Cruise Sequel
+
+Movie News, Top Gun 3, Top Gun, Tom Cruise
+
+Tue, 21 Apr 2026 18:26:02 GMT
+
+https://movieweb.com/top-gun-3-joseph-kosinski/
+
+It looks like the 'Top Gun' franchise will once again be changing directors.
+---------
+
+# 'Jennifer's Body 2' Director Confirms Unexpected Twist in Horror Sequel [Exclusive]
+
+Movie News, Jennifer's Body, Karyn Kusama
+
+Tue, 21 Apr 2026 18:22:17 GMT
+
+https://movieweb.com/jennifers-body-sequel-karyn-kusama-return/
+
+Comments about the upcoming project tease that we might not get a full-blown sequel after all.
+---------
+
+# James Gunn's 'Superman' Is a Streaming Success Again on HBO Max Worldwide
+
+Movie News, Superman, HBO Max, Hot on Streaming, DCU
+
+Tue, 21 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/superman-dcu-streaming-return-hbo-max-april-2026/
+
+James Gunn's DCU reboot movie 'Superman,' starring David Corenswet as the Man of Steel, is a streaming success on HBO Max worldwide.
+---------
+
+# 'James Bond 26' Will Break the Record for the Longest Gap Between 007 Movies
+
+Features, James Bond
+
+Tue, 21 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/james-bond-26-franchise-gap/
+
+The next James Bond movie will mark the longest gap between two Bond movies, a record previously held by 'GoldenEye'.
+---------
+
+# 'Michael' Director Antoine Fuqua Questions Michael Jackson Allegations
+
+Movie News, Michael, Antoine Fuqua, michael jackson
+
+Tue, 21 Apr 2026 17:35:52 GMT
+
+https://movieweb.com/antoine-fuqua-michael-jackson-allegations/
+
+In a new interview, Antoine Fuqua made it clear that he had doubts about the abuse allegations against Michael Jackson.
+---------
+
 # Harry Potter Still Hasn’t Officially Cast Peeves
 
 Streaming TV, Harry Potter
