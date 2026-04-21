@@ -1,3 +1,366 @@
+# Katie Cassidy Must Perform An Exorcism On A Train In Speed Demon Trailer
+
+Exclusive, Katie Cassidy, William H. Macy
+
+Tue, 21 Apr 2026 16:00:18 GMT
+
+https://screenrant.com/video/speed-demon-movie-katie-cassidy-william-h-macy-trailer/
+
+Exclusive: ScreenRant presents the Speed Demon trailer, in which Katie Cassidy and William H. Macy battle possessed passengers on a runaway train
+---------
+
+# Star Trek's 60-Year Legacy: 6 Eras of TV & Movies Explained
+
+TV, Star Trek
+
+Tue, 21 Apr 2026 16:00:18 GMT
+
+https://screenrant.com/star-trek-6-movie-tv-eras/
+
+For 60 years, Star Trek has endured and evolved throughout television and feature films, overseen by a series of producers over a half-dozen eras.
+---------
+
+# Every Beatles Album Ranked: The Definitive 13
+
+Lists, The Beatles, Classic Rock, Music
+
+Tue, 21 Apr 2026 16:00:03 GMT
+
+https://screenrant.com/beatles-albums-ranked/
+
+From the raw energy of Please Please Me to the streaming dominance of Abbey Road, we rank every Beatles studio album based on impact and data.
+---------
+
+# George R. R. Martin's New Fantasy Movie Reportedly Becomes A24's Most Expensive Production Ever
+
+Movies, Elden Ring
+
+Tue, 21 Apr 2026 15:59:53 GMT
+
+https://screenrant.com/george-rr-martin-elden-ring-movie-budget-a24-most-expensive-record/
+
+A24's upcoming fantasy movie based on a world created by George R. R. Martin is reportedly the production company's most expensive film ever.
+---------
+
+# Studio Ghibli's Next Anime Finally Gets First Look
+
+Anime, Studio Ghibli
+
+Tue, 21 Apr 2026 15:50:39 GMT
+
+https://screenrant.com/studio-ghibli-next-anime-first-look/
+
+Fans worldwide are buzzing about Studio Ghibli's latest surprise: an all-new anime short set to premiere in early July.
+---------
+
+# Netflix's Next Blockbuster Unites Two Of Its Biggest Action Stars (It's Coming Soon)
+
+New Movies, Apex, Netflix
+
+Tue, 21 Apr 2026 15:50:18 GMT
+
+https://screenrant.com/netflix-apex-movie-cast-action-stars/
+
+Netflix has a star-studded action thriller just around the corner, and the blockbuster brings together two of the streamer's biggest stars.
+---------
+
+# Stranger Things Spinoff’s First Six Minutes Released By Netflix
+
+TV, Stranger Things: Tales from '85, Stranger Things
+
+Tue, 21 Apr 2026 15:48:36 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-first-six-minutes-netflix/
+
+Netflix has released the first six minutes of Stranger Things spinoff, Tales from '85, following the divisive series finale of its flagship series.
+---------
+
+# 10 Panels Not to Miss At CCXPMX (Including the Ones ScreenRant is Hosting)
+
+Movies, Comic Con Experience (CCXP)
+
+Tue, 21 Apr 2026 15:38:06 GMT
+
+https://screenrant.com/ccxp-mexico-2026-panels/
+
+CCXP Mexico 2026 is taking place from April 24–26, and it's bringing an exciting lineup of panels – including ones hosted by ScreenRant.
+---------
+
+# Netflix's Action-Packed Political Thriller: Bodyguard
+
+Classic TV, Masked Recs
+
+Tue, 21 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/bodyguard-netflix-jack-ryan-meets-the-night-agent-thriller/
+
+Netflix has a six-episode political thriller that's a mix of Tom Clancy's Jack Ryan and The Night Agent, and is well worth the weekend binge watch.
+---------
+
+# All 9 Nightmare On Elm Street Movies Ranked By How Scary The Nightmares Are
+
+Horror, Freddy's Dead: The Final Nightmare, A Nightmare on Elm Street 5: The Dream Child, A Nightmare on Elm Street 4: The Dream Master, Freddy vs. Jason, A Nightmare on Elm Street, A Nightmare on Elm Street 2: Freddy's Revenge, A Nightmare on Elm Street 3: Dream Warriors, New Nightmare
+
+Tue, 21 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/nightmare-on-elm-street-movies-scary-nightmares-ranked/
+
+From terrifying to totally ridiculous, the Elm Street nightmares show how Freddy Krueger evolved from pure horror into a wisecracking dream demon.
+---------
+
+# Cyberpunk Fans Are Running Out of Time To Stream an 80% RT Cult Classic for Free
+
+Movies, Dredd
+
+Tue, 21 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/cyberpunk-dredd-losing-streaming-home-may-2026/
+
+The underrated cyberpunk film has fans still holding out for a sequel - but it's about to lose its free streaming home.
+---------
+
+# Stephen Colbert's Dream LOTR Movie Is Impossible to Make
+
+Movies, The Lord of the Rings, The Lord of the Rings: Shadow of the Past
+
+Tue, 21 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/stephen-colbert-dream-lord-of-the-rings-movie-beren-and-luthien-impossible/
+
+Stephen Colbert is writing The Lord of the Rings: Shadows of the Past, but there is a different Middle-earth story that he would rather see adapted.
+---------
+
+# DC Comics Officially Reveals Superman's Stunning New Redesign
+
+Comics, Superman, Action Comics
+
+Tue, 21 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/superman-2026-annual-year-one-thousand-release-date-confirmed/
+
+DC Comics gives fans a glimpse at Superman's most powerful form ahead of what might be the biggest milestone in the Man of Steel's history.
+---------
+
+# Battlestar Galactica Is Coming to Paramount+
+
+TV, Battlestar Galactica, Paramount Plus, Sci-Fi
+
+Tue, 21 Apr 2026 15:52:35 GMT
+
+https://www.cbr.com/battlestar-galactica-paramount-plus-pluto-may-2026/
+
+Battlestar Galactica, its pilot miniseries, the movie Battlestar Galactica: The Plan, and prequel Caprica are all headed to Paramount+ and Pluto TV.
+---------
+
+# Absolute Batman Officially Gets Down to the Heart of the Matter
+
+Comics, Absolute Batman
+
+Tue, 21 Apr 2026 15:38:27 GMT
+
+https://www.cbr.com/absolute-batman-18-review-heart-of-matter/
+
+In a CBR review of Absolute Batman #18, see how Batman's fight with Poison Ivy forces him to get down to the heart of the matter
+---------
+
+# My Hero Academia Anime Confirms Major New 10th Anniversary Plans
+
+Anime, My Hero Academia, toho
+
+Tue, 21 Apr 2026 15:30:14 GMT
+
+https://www.cbr.com/my-hero-academia-anime-anniversary-america-tour-dates-2026/
+
+Fans across the United States are about to get the chance to celebrate the My Hero Academia anime's 10th anniversary like never before.
+---------
+
+# 12 Best Anime of The Last 10 Years
+
+Anime, shonen anime, seinen, History, Shojo
+
+Tue, 21 Apr 2026 15:30:14 GMT
+
+https://www.cbr.com/best-anime-last-decade-2026/
+
+The last decade gave fans anime that changed the game forever. Which series and movies were the best?
+---------
+
+# Netflix Lands WWII Thriller Described as ‘Don’t Breathe Meets 1917’
+
+Movies, Netflix
+
+Tue, 21 Apr 2026 15:26:08 GMT
+
+https://www.cbr.com/play-dead-wwii-thriller-acquired-netflix/
+
+Netflix is staying in business with Jaume Collet-Serra, snapping up his World War II thriller with Don't Breathe comparisons.
+---------
+
+# Laz Alonso Confirms The Boys’ Final Message Before Series Finale
+
+CBR Exclusives, The Boys
+
+Tue, 21 Apr 2026 15:18:51 GMT
+
+https://www.cbr.com/laz-alonso-reveals-the-boys-final-message/
+
+As The Boys prepares to meet its fate after five seasons, the show's ultimate message aims to resonate on a human level.
+---------
+
+# Witch Hat Atelier Episode 5 Release Date & Time
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Tue, 21 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-5-release-date/
+
+After Episode 4, Witch Hat Atelier Episode 5 will have Coco knowing that magic is the difference between surviving and suffering a firey demise.
+---------
+
+# Apple TV’s 2-Part Crime Thriller Takes a Dark Turn in New Sneak Peek [Exclusive]
+
+TV News, Peter Capaldi, Criminal Record, Cush Jumbo, Apple TV
+
+Tue, 21 Apr 2026 16:01:12 GMT
+
+https://collider.com/criminal-record-season-2-sneak-peek-peter-capaldi-cush-jumbo-apple-tv/
+
+Apple TV’s hit crime thriller, Criminal Record, takes a dark turn in a new sneak peek as Cush Jumbo’s Detective June hits a major roadblock.
+---------
+
+# Burger King Launches First Official Star Wars Collection in Over 20 Years
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Star Wars, Pedro Pascal
+
+Tue, 21 Apr 2026 15:06:15 GMT
+
+https://collider.com/star-wars-burger-king-collection-mandalorian-and-grogu-deals-toys/
+
+Burger King has officially launched new Star Wars themed meals and toys tied to the release of The Mandalorian and Grogu. See them here!
+---------
+
+# 3 Years Later, Prime Video's Most Expensive Spy Series Ever Officially Sets Season 2 Release Date
+
+TV News, Citadel, Prime Video, Richard Madden, Priyanka Chopra Jonas
+
+Tue, 21 Apr 2026 15:01:12 GMT
+
+https://collider.com/prime-video-spy-thriller-citadel-season-2-release-date-trailer/
+
+Prime Video confirms the highly anticipated return of Citadel Season 2, starring Richard Madden, Priyanka Chopra Jonas, and sets the release date.
+---------
+
+# Netflix's Hit Video Game Fantasy Series Reaches Another Level in Action-Packed Season 2 Trailer
+
+TV News, Devil May Cry, Johnny Yong Bosch, Capcom, Netflix
+
+Tue, 21 Apr 2026 15:01:12 GMT
+
+https://collider.com/devil-may-cry-season-2-trailer-video-game-adaptation/
+
+A new trailer for Devil May Cry Season 2 drags Dante back into hell for a fateful battle against his long-lost brother and more demonic threats.
+---------
+
+# 8 TV Action Heroes Better Than Jack Reacher
+
+TV Lists, Reacher
+
+Tue, 21 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/tv-action-heroes-better-jack-reacher/
+
+'Reacher' on Prime Video starring Alan Ritchson as Jack Reacher is one of the most popular action TV shows, but there are many other TV heroes.
+---------
+
+# Cyberpunk Crime Thriller 'Mr. Robot' Is a Digital Streaming Success on Apple
+
+TV News, mr robot, Apple TV, Hot on Streaming, Sci-Fi
+
+Tue, 21 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/mr-robot-cyberpunk-digital-streaming-success-apple-april-2026/
+
+One of the best cyberpunk sci-fi thriller shows ever made, 'Mr. Robot,' is a digital streaming success on the Apple Store in 2026.
+---------
+
+# The Best Love Triangles In Anime
+
+TV Lists, Anime
+
+Tue, 21 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/best-love-triangles-anime/
+
+When an anime throws three hearts into a whirlwind, there’s bound to be loads of drama. Here are the 20 best love triangles in anime.
+---------
+
+# 'Silo' Season 3 Teaser Trailer Released by Apple TV
+
+TV Trailers, Silo, Apple TV, Sci-Fi
+
+Tue, 21 Apr 2026 15:59:10 GMT
+
+https://movieweb.com/silo-season-3-apple-tv-teaser/
+
+Apple also revealed the release date and dropped some first-look photos.
+---------
+
+# 'Citadel' Season 2 Trailer Released by Prime Video
+
+TV News, Prime Video, Citadel, Action, Thriller
+
+Tue, 21 Apr 2026 15:30:46 GMT
+
+https://movieweb.com/prime-video-citadel-season-2-trailer/
+
+The hit spy series finally returns next month after three years away.
+---------
+
+# Netflix's Live-Action 'Gundam' Now in Production With Sydney Sweeney & Noah Centineo
+
+Movie News, Gundam, Sydney Sweeney, Noah Centineo
+
+Tue, 21 Apr 2026 15:29:13 GMT
+
+https://movieweb.com/sydney-sweeney-gundam-netflix-cast/
+
+Jason Isaacs, Michael Mando, Shioli Kutsuna, and more have joined Netflix and Legendary’s live-action Gundam movie, which is now filming in Queensland
+---------
+
+# Michael Jackson Biopic 'Michael' Debuts Low Rotten Tomatoes Score
+
+Movie News, Michael
+
+Tue, 21 Apr 2026 15:12:37 GMT
+
+https://movieweb.com/michael-jackson-rotten-tomatoes-score/
+
+The Michael Jackson biopic has landed a verdict on Rotten Tomatoes as critics are not impressed with final product.
+---------
+
+# Superhero Action Horror Movie 'Spawn' Secures New Free Streaming Home
+
+Movie News, Spawn, Coming/Leaving Streaming, Action
+
+Tue, 21 Apr 2026 15:00:19 GMT
+
+https://movieweb.com/spawn-superhero-action-horror-streaming-free-tubi-may-2026/
+
+29 years after disappointing everyone but Roger Ebert, the live-action version of Todd McFarlane's 'Spawn' has found a new streaming home.
+---------
+
+# 'Devil Wears Prada 2' Removed Sydney Sweeney Cameo
+
+Movie News, Sydney Sweeney, The Devil Wears Prada 2, The Devil Wears Prada
+
+Tue, 21 Apr 2026 14:58:25 GMT
+
+https://movieweb.com/sydney-sweeney-cut-devil-wears-prada-2/
+
+But the movie will have plenty more star power to make up for it.
+---------
+
 # Xbox Game Pass Unleashes Iconic 50-Hour RPG, Completely Free
 
 Gaming, Xbox Game Pass, Final Fantasy
