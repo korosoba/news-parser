@@ -1,3 +1,300 @@
+# GTA 5 Free Download Officially Available To Grab Before April 29
+
+Gaming, Grand Theft Auto, Grand Theft Auto Online
+
+Tue, 21 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/gta-5-free-download-april-2026-420/
+
+GTA VI might be drawing all of the attention right now, but there's still life in the old dog yet.
+---------
+
+# Michael Review: A Masterful Biopic That Lives Up To The King Of Pop's Legendary Status
+
+New Movies, Michael
+
+Tue, 21 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/michael-movie-2026-review/
+
+Adaptations of Michael Jackson's life are nothing new, yet Michael is truly in a league of its own, all but resurrecting the legendary singer.
+---------
+
+# Castlevania: A Faithful Adaptation? Not Quite, But It's Still a Great Show
+
+Classic TV, Castlevania
+
+Tue, 21 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/castlevania-netflix-show-broke-canon-forgiven/
+
+Netflix's Castlevania series deviated drastically from the source material, but it's so good that it was forgiven for taking so many liberties.
+---------
+
+# Project Hail Mary's Sci-Fi Themes Resemble Denis Villeneuve's Arrival
+
+Movies, Sci-Fi, Arrival, Recommendation, Project Hail Mary
+
+Tue, 21 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/arrival-movie-dennis-villeneuve-similar-project-hail-mary/
+
+With similarities in themes and characterization, Project Hail Mary is reminiscent of a decade-old sci-fi film that qualifies as a modern masterpiece.
+---------
+
+# Xbox Game Pass Gets Huge Day One Sci-Fi Release On April 28
+
+Gaming, Xbox Game Pass, PC
+
+Tue, 21 Apr 2026 12:53:40 GMT
+
+https://screenrant.com/xbox-game-pass-sci-fi-day-one-aphelion-april-28/
+
+Xbox Game Pass subscribers are getting an excellent day-one release, and it's a brand-new sci-fi experience "rooted in real-world science."
+---------
+
+# Beloved PS2 JRPG Officially Returns On PS5 After 20 Years, And It's Free
+
+Gaming, PlayStation 5, PlayStation Plus
+
+Tue, 21 Apr 2026 12:41:56 GMT
+
+https://screenrant.com/playstation-ps2-jrpg-free-download-ps-plus/
+
+A great JRPG from the PS2 era is finally available on PlayStation 5, and if you've got PlayStation Plus Premium, you can play it for free.
+---------
+
+# Rosamund Pike’s R-Rated Thriller Sets First-Ever US Streaming Release Next Week
+
+TV, Hallow Road
+
+Tue, 21 Apr 2026 12:36:31 GMT
+
+https://screenrant.com/hallow-road-hulu-streaming-release-date/
+
+Rosamund Pike's R-rated thriller movie sets its first-ever US streaming release next week, an exciting new feat for the well-received 2025 movie.
+---------
+
+# Assassin's Creed Origins Rebirth Is A Thing Of Beauty
+
+Gaming, Assassin's Creed Origins, Assassin's Creed
+
+Tue, 21 Apr 2026 12:31:19 GMT
+
+https://screenrant.com/assassins-creed-origins-rebirth-remaster-mod/
+
+Assassin's Creed Origins Rebirth Reshade is a mod that brings a whole new lease of life to the already stunning visuals of the game.
+---------
+
+# Nintendo's Next Potential $1 Billion Movie: The Legend Of Zelda In 2027
+
+Movies, The Super Mario Galaxy Movie
+
+Tue, 21 Apr 2026 12:31:19 GMT
+
+https://screenrant.com/legend-of-zelda-movie-super-mario-galaxy-box-office-1-billion/
+
+The Super Mario Galaxy Movie is on pace to earn $1 billion worldwide, and Nintendo has another movie in 2027 that could reach the same milestone.
+---------
+
+# How From Season 4’s OG Monsters Inspired New Villain While Avoiding Evil “Cliche” Addressed By Star
+
+TV, From, FROM - Season 4
+
+Tue, 21 Apr 2026 12:16:18 GMT
+
+https://screenrant.com/from-season-4-sophia-monsters-inspiration-evil-cliche-julia-doyle/
+
+EXCLUSIVE: The star playing From season 4's new villain explains how their performance connects to the Township's original nocturnal monsters.
+---------
+
+# Before Zac Cregger's Reboot, Here are 10 of the Greatest Moments in Milla Jovovich's Resident Evil Franchise
+
+Movies, Resident Evil, Resident Evil: Apocalypse, Resident Evil: The Final Chapter
+
+Tue, 21 Apr 2026 13:01:13 GMT
+
+https://www.cbr.com/greatest-moments-in-milla-jovovichs-resident-evil-franchise-list/
+
+There’s no shortage of memorable moments from the Jovovich era as fans eagerly await Zach Cregger's upcoming Resident Evil reboot.
+---------
+
+# Oscar Isaac Confirms Marvel Is Assembling Its Next Big Team
+
+Comics, Marvel Cinematic Universe
+
+Tue, 21 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/oscar-isaac-confirms-marvel-midnight-sons-inclusion/
+
+The Moon Knight returns to tease a major MCU development.
+---------
+
+# 'Happy Death Day' Star Returns in Haunting New Sci-Fi Body Horror Trailer
+
+Movie News, Jessica Rothe, Affection, Happy Death Day, Horror
+
+Tue, 21 Apr 2026 13:01:13 GMT
+
+https://collider.com/new-sci-fi-body-horror-thriller-affection-trailer-jessica-rothe/
+
+Jessica Rothe stars in the chilling new horror film Affection, where she plays a woman trapped in a cyclical nightmare.
+---------
+
+# Richard Gadd's 'Baby Reindeer' Follow-Up 'Half Man' Is Raw, Brutal, and Absolutely Devastating | Review
+
+TV Reviews, Half Man, Jamie Bell, HBO, Drama
+
+Tue, 21 Apr 2026 13:01:13 GMT
+
+https://collider.com/half-man-review-hbo-richard-gadd-jamie-bell/
+
+Richard Gadd's Baby Reindeer follow-up, Half Man, tells a dark, unrelenting tale of two brothers and their raw, complex relationship. Read our review.
+---------
+
+# ‘Michael’ Is a Dazzling, Incomplete Spectacle About the King of Pop
+
+Movie, Michael, Colman Domingo, Nia Long, Music
+
+Tue, 21 Apr 2026 13:01:13 GMT
+
+https://collider.com/michael-movie-review-jackson-5/
+
+Michael Jackson’s nephew, Jaafar Jackson, shines in a dazzling, incomplete music biopic about his uncle alongside Oscar nominee Colman Domingo.
+---------
+
+# Netflix's Mindbending 2-Part Sci-Fi Series Remains One of the Greatest Thrillers a Decade Later
+
+TV Features, The OA, Sci-Fi, Netflix, Brit Marling
+
+Tue, 21 Apr 2026 12:36:13 GMT
+
+https://collider.com/netflix-the-oa-sci-fi-thriller-series/
+
+Netflix's The OA pushed boundaries and left viewers in awe with its mindbending plot and unforgettable characters.
+---------
+
+# Prime Video Just Became the Only Streaming App You'll Ever Need
+
+TV Features, Prime Video, Apple TV, Streaming, Peacock
+
+Tue, 21 Apr 2026 12:31:13 GMT
+
+https://collider.com/prime-video-apple-tv-partnership-only-streaming-app-you-need/
+
+Prime Video’s Apple TV partnership turns the platform into a bigger streaming hub, giving viewers easier access, bundles, and fewer apps to manage.
+---------
+
+# 10 Most Undeniable Horror Movie Classics, Ranked
+
+Movie, Horror, Night of the Living Dead, The Exorcist, Psycho
+
+Tue, 21 Apr 2026 12:28:12 GMT
+
+https://collider.com/most-undeniable-horror-movie-classics-ranked/
+
+From The Exorcist to Night of the Living Dead, these are the most undeniable horror classics in cinema history.
+---------
+
+# The 20 Best NC-17 Movies Ever Made, Ranked
+
+Movie, The Evil Dead, Y Tu Mamá También, Blue is the Warmest Color, A Clockwork Orange
+
+Tue, 21 Apr 2026 12:15:12 GMT
+
+https://collider.com/best-nc-17-movies-all-time-ranked/
+
+The NC-17 rating is seen as taboo, but it lets movies explore the darker parts of human life, like in the films Perfect Blue and Mysterious Skin.
+---------
+
+# Alan Ritchson’s Netflix Sci-Fi Movie Suddenly Vanishes From Streaming Charts
+
+Movie News, Alan Ritchson, Sci-Fi, War Machine, Netflix
+
+Tue, 21 Apr 2026 12:00:13 GMT
+
+https://collider.com/alan-ritchson-war-machine-netflix-sci-fi-movie-streaming-dip-april-2026/
+
+War Machine, starring Reacher's Alan Ritchson, has fallen out of Netflix’s worldwide Top 10 after a huge streaming run in 2026.
+---------
+
+# Forget ‘Game of Thrones’: These 5 Fantasy Shows Have Much Better Writing
+
+TV, The Legend of Vox Machina, Avatar: The Last Airbender, Game Of Thrones, Fantasy
+
+Tue, 21 Apr 2026 11:52:13 GMT
+
+https://collider.com/fantasy-tv-shows-better-writing-than-game-of-thrones/
+
+From Arcane to Kingdom to Avatar: The Last Airbender, these are the fantasy TV shows that far outshine Game of Thrones' writing.
+---------
+
+# Henry Cavill 90-Minute Action Thriller Bomb 'Night Hunter' Finds Streaming Success
+
+Movie News, Henry Cavill, Night Hunter, Action, Thriller
+
+Tue, 21 Apr 2026 13:05:09 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-stream-april-2026-action/
+
+Starring Alexandra Daddario and Ben Kinglsey alongside Cavill, the action crime thriller is now a hit after landing on new streaming platform.
+---------
+
+# 'Michael' Review: Jaafar Jackson Shines in Dazzling Biopic
+
+3.5 star movies, Michael, Colman Domingo, Antoine Fuqua
+
+Tue, 21 Apr 2026 13:01:18 GMT
+
+https://movieweb.com/michael-review/
+
+Jaafar Jackson delivers a captivating performance as Michael Jackson in Antoine Fuqua's musical biopic.
+---------
+
+# 'The Punisher: One Last Kill' Will Repeat a Frank Castle MCU Trend
+
+TV News, The Punisher: One Last Kill, The Punisher, MCU, Jon Bernthal
+
+Tue, 21 Apr 2026 13:01:18 GMT
+
+https://movieweb.com/the-punisher-one-last-kill-frank-castle-trend/
+
+'The Punisher: One Last Kill' will repeat all the similar stories that Jon Bernthal's character always experiences.
+---------
+
+# 'The Pitt' Season 2 Finale Sets Ratings Record for HBO's Hit Medical Drama
+
+TV News, The Pitt
+
+Tue, 21 Apr 2026 12:40:00 GMT
+
+https://movieweb.com/pitt-finale-sets-ratings-record/
+
+It's now on a very short list of the network's most popular shows.
+---------
+
+# 'The Mandalorian & Grogu's Opening Minutes Confirm Return of Opening Crawl
+
+Movie News, Star Wars, The Mandalorian and Grogu
+
+Tue, 21 Apr 2026 12:00:55 GMT
+
+https://movieweb.com/the-mandalorian-grogu-opening-star-wars-crawl/
+
+The upcoming 'Star Wars' movie will feature one classic mainstay from the Skywalker Saga.
+---------
+
+# DC's 'Clayface' Can Redeem Sony's $2.17 Billion Spider-Man Franchise
+
+Features, Clayface, Batman, DCU, Spider-Man
+
+Tue, 21 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/clayface-fix-spider-man-franchise/
+
+'Clayface' is an upcoming DC movie directed by James Watkins, co-written by Mike Flanagan, and starring Tom Rhys Harries.
+---------
+
 # Steam Drops 24 Free Downloads In Massive Limited-Time Giveaway
 
 Gaming, Steam, Valve
