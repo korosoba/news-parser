@@ -1,3 +1,267 @@
+# Harry Potter Still Hasn’t Officially Cast Peeves
+
+Streaming TV, Harry Potter
+
+Tue, 21 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/harry-potter-peeves-not-cast-hbo/
+
+Hogwarts was missing someone important in the Harry Potter movies, and though HBO's TV show is bound to set things right, it's being tight-lipped.
+---------
+
+# The Elden Ring Movie's Cast Is Exactly What The Upcoming Fantasy Film Needed
+
+Movies, Elden Ring
+
+Tue, 21 Apr 2026 17:20:18 GMT
+
+https://screenrant.com/elden-ring-movie-cast-good/
+
+The new update about the upcoming Elden Ring movie and which actors will be appearing within the film sets a promising precedent for the project.
+---------
+
+# Avengers, X-Men and Deadpool Debut Official Soccer Uniforms
+
+Comics, The Avengers, X-Men, Deadpool
+
+Tue, 21 Apr 2026 17:16:35 GMT
+
+https://screenrant.com/avengers-x-men-deadpool-new-costumes-matching-redesign/
+
+New images show matching costumes for heroes including the Avengers, X-Men and the motor-mouth mercenary Wade Wilson, aka Deadpool.
+---------
+
+# The Mandalorian Season 4's Original Plans Reveal Avengers-Level Team-Up Against Star Wars' Major Villain
+
+TV, The Mandalorian and Grogu, Star Wars, Jon Favreau, The Mandalorian
+
+Tue, 21 Apr 2026 17:03:22 GMT
+
+https://screenrant.com/mandalorian-season-4-thrawn-original-plans-jon-favreau/
+
+Jon Favreau reveals what The Mandalorian season 4 plot would have been if he and Disney had not created The Mandalorian and Grogu instead.
+---------
+
+# Top Gun 3 Seeks New Director Amid Joseph Kosinski's Project Shifts
+
+Movies, Top Gun, Top Gun 3
+
+Tue, 21 Apr 2026 17:03:11 GMT
+
+https://screenrant.com/top-gun-3-director-new-joseph-kosinski-exit/
+
+Paramount's Top Gun 3 faces directorial changes as Joseph Kosinski may not return, prompting the studio to explore new options for the upcoming franchise installment.
+---------
+
+# Tom Felton's Bloody New Horror Comedy Sets Digital Release Date After $19M Box Office Disappointment
+
+Movies, They Will Kill You
+
+Tue, 21 Apr 2026 16:55:37 GMT
+
+https://screenrant.com/tom-felton-they-will-kill-you-digital-release-date/
+
+Tom Felton's bloody new horror comedy officially sets a digital release date following its $19 million disappointment at the box office.
+---------
+
+# Diablo 4 Lord Of Hatred Reviews Are In: See How It Compares To Previous Games
+
+Gaming, Diablo 4, Triple-A Games
+
+Tue, 21 Apr 2026 16:49:26 GMT
+
+https://screenrant.com/diablo-4-lord-hatred-reviews-compared-other-games-dlc/
+
+The second major expansion for Diablo 4 is in, and there are plenty of thoughts swirling around the critical community about how it measures up.
+---------
+
+# One Of The Best Crime Thrillers Of All Time Officially Returns To Theaters In 5 Days
+
+Movies, Masked Recs, The Silence of the Lambs
+
+Tue, 21 Apr 2026 16:45:18 GMT
+
+https://screenrant.com/silence-of-the-lambs-rerelease-how-to-watch/
+
+The Silence of the Lambs is returning to theaters for an anniversary special, screening in theaters nationwide on April 26 and 29.
+---------
+
+# A Few Good Men Is Tom Cruise's Most Impressive Movie
+
+Movies, A Few Good Men, tom cruise
+
+Tue, 21 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/a-few-good-men-courtroom-drama-streaming-on-tubi/
+
+Tom Cruise may be known for his action star prowess, but one of his early roles was career-defining.
+---------
+
+# New Open-World RPG Crimson Desert Has Already Dethroned Skyrim
+
+Games, Crimson Desert, The Elder Scrolls V: Skyrim
+
+Tue, 21 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/crimson-desert-better-open-world-rpg-skyrim/
+
+Skyrim was an era defining open-world RPG, but there is a possibility that this new release could one day surpass its reputation.
+---------
+
+# Chainsaw Man's New Live-Action Reze Arc Trailer Is Perfect
+
+Anime, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc
+
+Tue, 21 Apr 2026 17:13:12 GMT
+
+https://www.cbr.com/chainsaw-man-live-action-reze-arc-stage-play-casting/
+
+Chainsaw Man just released an official live-action Reze Arc trailer that perfectly captures the characters and aesthetic of the series.
+---------
+
+# James Gunn's DC Universe Unveils Its First Batman Villain
+
+Movies, Clayface, DCU
+
+Tue, 21 Apr 2026 17:11:34 GMT
+
+https://www.cbr.com/clayface-first-look-dcu-magazine-covers/
+
+After being teased in Creature Commandos, the Batman side of the DC Universe is officially coming alive in the new first look at Clayface.
+---------
+
+# Pokémon TCG Scarlet & Violet—Journey Together: 10 Most Expensive Cards (So Far), Ranked
+
+Games, Pokemon, Pokemon Trading Card Game, trading cards, Tabletop, Lists
+
+Tue, 21 Apr 2026 17:08:09 GMT
+
+https://www.cbr.com/pokemon-tcg-journey-together-most-expensive-cards/
+
+Some of the cards from the Pokémon TCG sell for quite a pretty penny - what are the most valuable cards from the Journey Together expansion?
+---------
+
+# Fallout Slips on Prime Video TV Streaming Chart
+
+TV, Fallout, Prime Video
+
+Tue, 21 Apr 2026 17:05:53 GMT
+
+https://www.cbr.com/fallout-sci-fi-falling-prime-video-april-2026/
+
+Fallout is finally falling on the Prime Video streaming charts two months after the Season 2 finale.
+---------
+
+# Rebecca Ferguson's Silo Season 3 Finally Unveils Return Date
+
+TV, Silo
+
+Tue, 21 Apr 2026 16:55:29 GMT
+
+https://www.cbr.com/rebecca-ferguson-silo-season-3-apple-tv-release-date/
+
+The sci-fi series was a hit, and fans have been waiting impatiently to know when it comes out.
+---------
+
+# Did The Far Side Once Explain a Joke to Each Newspaper That Carried It?
+
+Comics, The Far Side
+
+Tue, 21 Apr 2026 16:53:23 GMT
+
+https://www.cbr.com/did-the-far-side-once-explain-a-joke-to-each-newspaper-that-carried-it/
+
+One time, The Far Side's Gary Larson had to explain a joke to every paper that carried the strip
+---------
+
+# Studio Ghibli Confirms Exclusive New Anime for July 2026
+
+Anime, Studio Ghibli
+
+Tue, 21 Apr 2026 16:47:45 GMT
+
+https://www.cbr.com/studio-ghibli-new-anime-release-july-2026/
+
+The legendary Studio Ghibli confirms a new anime project scheduled for release this summer, with a first look now revealed.
+---------
+
+# PlayStation Plus Officially Drops Surprise Free Download for April 2026
+
+Games, PlayStation (Original), Sky: Children of the Light
+
+Tue, 21 Apr 2026 16:40:13 GMT
+
+https://www.cbr.com/playstation-plus-free-download-sky-children-of-the-light-april-2026/
+
+PlayStation Plus gives gamers the chance to pick up one of the most stunning open world adventure titles, and it doesn't cost a cent.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Sequel Expands With Unexpected Update 1 Month Before Premiere
+
+TV News, Yellowstone, Dutton Ranch, Taylor Sheridan, Paramount Plus
+
+Tue, 21 Apr 2026 17:20:22 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-sequel-dutton-ranch-cast-country-music-star-morgan-wade/
+
+Taylor Sheridan's most-anticipated Yellowstone spin-off, Dutton Ranch, has officially added a country music star to the cast.
+---------
+
+# A ‘Walking Dead’ Alum Trades in Zombies for Cyber Crimes in Bonkers New Horror Trailer [Exclusive]
+
+Exclusives, Chandler Riggs, Horror, Comedy, Thriller
+
+Tue, 21 Apr 2026 17:00:13 GMT
+
+https://collider.com/new-horror-movie-trailer-hacked-a-double-entendre-of-rage-fueled-karma-chandler-riggs/
+
+Chandler Riggs swaps killing zombies for committing life-altering cyber crimes in a new look at Hacked: A Double Entendre of Rage Fueled Karma.
+---------
+
+# 7 Most Universally Beloved Comedy Movies of All Time, Ranked
+
+Movie, Comedy, Some Like It Hot, Monty Python and the Holy Grail, Groundhog Day
+
+Tue, 21 Apr 2026 16:45:12 GMT
+
+https://collider.com/most-universally-beloved-comedy-movies-all-time-ranked/
+
+From Mean Girls to The Hangover, these beloved comedy films shaped humor across generations and still deliver timeless laughs.
+---------
+
+# 'Evil Dead Burn' Teaser Trailer Unveils July Release Date
+
+Movie News, Evil Dead Burn
+
+Tue, 21 Apr 2026 17:22:16 GMT
+
+https://movieweb.com/evil-dead-burn-teaser/
+
+The next spin-off in the beloved franchise is arriving on July 10.
+---------
+
+# New 'Daredevil: Born Again' Season 2 Clip Features Jessica Jones Team-Up Fight Scene
+
+TV News, Daredevil: Born Again, MCU, Jessica Jones
+
+Tue, 21 Apr 2026 17:05:50 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-clip/
+
+A new clip from 'Daredevil: Born Again' Season 2 teases the return of Krysten Ritter's Jessica Jones as she joins forces with Daredevil.
+---------
+
+# Best Action Movies With Female Leads
+
+Movie Lists, Action
+
+Tue, 21 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/best-action-movies-with-female-leads/
+
+The greatest action movies anchored by a female lead, covering everything from gritty revenge thrillers to e sci-fi action blockbusters.
+---------
+
 # Katie Cassidy Must Perform An Exorcism On A Train In Speed Demon Trailer
 
 Exclusive, Katie Cassidy, William H. Macy
