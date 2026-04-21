@@ -1,3 +1,245 @@
+# Taylor Sheridan's Challenging Adaptation Of Empire Of The Summer Moon
+
+Movies, Taylor Sheridan
+
+Tue, 21 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/empire-of-the-summer-moon-taylor-sheridan-western-adaptation-controversial/
+
+While Taylor Sheridan has plenty of different projects in the pipeline, none of them is as important as this historical Western dear to his heart.
+---------
+
+# 10 Best Shows Like The Pitt
+
+Streaming TV, The Pitt
+
+Tue, 21 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/best-shows-like-the-pitt/
+
+10 shows similar to The Pitt on HBO Max, featuring intense medical dramas, gritty realistic series, and stories with majorly compelling characters.
+---------
+
+# Michael Jackson Movie's Projected Box Office Record Climbs Higher Despite 33% Rotten Tomatoes Debut
+
+Movies, Michael
+
+Tue, 21 Apr 2026 20:42:34 GMT
+
+https://screenrant.com/michael-jackson-movie-box-office-musical-biopic-record-projection-update/
+
+Despite largely negative reviews from critics ahead of its release, the Michael Jackson biopic Michael is projected to have a strong opening weekend.
+---------
+
+# Ubisoft Cancels Highly-Anticipated Game According To New Leak
+
+Gaming, Ubisoft, Triple-A Games, PC
+
+Tue, 21 Apr 2026 20:30:56 GMT
+
+https://screenrant.com/ubisoft-game-canceled-april-2026-alterra/
+
+The upcoming Ubisoft slate has gone through plenty of turmoil already, and the latest report suggests another game will never see the light of day.
+---------
+
+# The Origins Of Bob Odenkirk & Derek Kolstad’s Violent New Nobody 2 Follow-Up Explained By Normal Director
+
+Movies, Normal, Bob Odenkirk
+
+Tue, 21 Apr 2026 20:30:25 GMT
+
+https://screenrant.com/normal-bob-odenkirk-derek-kolstad-nobody-2-follow-up-origins/
+
+Derek Kolstad and the Normal team talk the new R-rated action comedy and the origins behind Bob Odenkirk's violent Nobody 2 follow-up movie.
+---------
+
+# The Monsterverse Is Teasing A Twist The Godzilla Franchise Hasn't Seen In 35 Years
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 21 Apr 2026 20:30:25 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-isabel-plan-time-travel-ghidorah-similar/
+
+Monarch: Legacy of Monsters is teasing a twist that the Godzilla franchise hasn't done in 35 years. And it offers a lesson for how it might go.
+---------
+
+# Netflix's 8-Hour Supernatural Thriller That's Dark Meets Mike Flanagan Is One Of Its Best To Binge
+
+TV, Mike Flanagan, Archive 81, Masked Recs, Dark
+
+Tue, 21 Apr 2026 20:28:23 GMT
+
+https://screenrant.com/archive-81-netflix-supernatural-thriller-dark-meets-mike-flanagan/
+
+One of Netflix's most underrated thrillers blended Dark's sci-fi plotting with Mike Flanagan's supernatural horror style, so why wasn't it bigger?
+---------
+
+# 27 Years Later, DC's 3-Part Cyberpunk Series Is Still One Of The Genre's Best
+
+Classic TV, Batman Beyond, Batman, DC
+
+Tue, 21 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/batman-beyond-dc-cyberpunk-tv-best-genre/
+
+Discover why DC's Batman Beyond, a 27-year-old cyberpunk series, remains one of the best in the genre, offering timeless social commentary and captivating storytelling.
+---------
+
+# Hulu's Answer to Yellowstone Officially Completes Cast
+
+TV, southern bastards, Hulu
+
+Tue, 21 Apr 2026 21:06:38 GMT
+
+https://www.cbr.com/southern-bastards-hulu-main-cast/
+
+The full starring cast of Hulu's gritty Yellowstone rival has been revealed.
+---------
+
+# Zelda: Twilight Princess is Officially Playable on Nintendo Switch
+
+Games, The Legend of Zelda
+
+Tue, 21 Apr 2026 21:05:12 GMT
+
+https://www.cbr.com/zelda-twilight-princess-officially-playable-nintendo-switch/
+
+The Legend of Zelda: Twilight Princess is finally playable on Switch, as well as on the Switch 2.
+---------
+
+# 10 Unforgettable Moments from Spaceballs That Make Us Excited for the Sequel
+
+Movies, Spaceballs, Comedy, Spaceballs: The New One
+
+Tue, 21 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/unforgettable-moments-from-spaceballs-list/
+
+As we wait for Spaceballs: The New One to hit theatres in 2027, let's remember the unforgettable moments from Spaceballs to get us excited.
+---------
+
+# HBO's Richard Gadd Series Half Man Unveils Rotten Tomatoes Score
+
+TV, Half Man, Rotten Tomatoes
+
+Tue, 21 Apr 2026 20:40:34 GMT
+
+https://www.cbr.com/hbo-half-man-rotten-tomatoes-score/
+
+Following the success of Baby Reindeer, Richard Gadd is now moving to HBO Max.
+---------
+
+# House of the Dragon Returns to HBO Max Streaming Chart Ahead of Season 3
+
+TV, House of the Dragon, Fantasy, HBO Max
+
+Tue, 21 Apr 2026 20:35:28 GMT
+
+https://www.cbr.com/house-of-the-dragon-fantasy-success-hbo-max-april-2026/
+
+Game of Thrones fans are revisiting House of the Dragon on HBO Max ahead of its return on HBO in June.
+---------
+
+# Why Martin Scorsese Refused to Watch The Sopranos (& Quit After 1 Episode)
+
+TV, Martin Scorsese, The Sopranos, hbo, Crime
+
+Tue, 21 Apr 2026 20:30:20 GMT
+
+https://www.cbr.com/why-martin-scorsese-refuses-to-watch-the-sopranos/
+
+Martin Scorsese is a fantastic director of gangster dramas, but he famously refused to watch more than a single episode of The Sopranos.
+---------
+
+# 10 Comedy Movies of the 1980s That Still Hold Up Today
+
+Movies, Comedy
+
+Tue, 21 Apr 2026 20:30:20 GMT
+
+https://www.cbr.com/comedy-movies-1980s-still-hold-up/
+
+The big studio comedy has fallen out of favor in recent years, so let's look back at one of the best decades for movie comedies: the 1980s.
+---------
+
+# Super Mario Bros. Movie Storyboards Reveal Which Character Was Cut
+
+Movies, The Super Mario Bros. Movie, Nintendo, Paper Mario: The Thousand-Year Door
+
+Tue, 21 Apr 2026 20:24:47 GMT
+
+https://www.cbr.com/super-mario-bros-movie-cut-character/
+
+Major Nintendo fans would have appreciated the cameo, but it wasn't meant to be.
+---------
+
+# Transformers Brings Back Starscream's Most Loyal Seekers With New G1 Release
+
+Anime, Transformers, merchandise, toys
+
+Tue, 21 Apr 2026 20:23:41 GMT
+
+https://www.cbr.com/transformers-skywarp-thundercracker-yolopark-model-kit-release/
+
+Two of Starscream's most notable 'repaints' are finally flying their way into the Yolopark AMK Series of animation-accurate Transformers model kits.
+---------
+
+# 10 Shonen Manga That Are 10/10, No Notes
+
+Anime, Fullmetal Alchemist, Jujutsu Kaisen, Yu Yu Hakusho, One Piece, Manga, Shonen, My Hero Academia
+
+Tue, 21 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/perfect-shonen-manga-no-notes/
+
+Shonen manga has evolved from its early emulation of American cartoons, with series like Hunter x Hunter and Demon Slayer shining in the spotlight.
+---------
+
+# 'MasterChef' Season 16 Rewrites the FOX Competition With Its Most Unexpected Twist Yet
+
+Collider Signature, MasterChef, Gordon Ramsay, Fox, Hulu
+
+Tue, 21 Apr 2026 21:04:12 GMT
+
+https://collider.com/masterchef-season-16-gordon-ramsay-fox-series-set-visit/
+
+Gordon Ramsay teases MasterChef Season 16’s Global Gauntlet, with amateur cooks competing by heritage and facing huge pressure.
+---------
+
+# 'Hungry' Trailer Unveils Horror Thriller Twist on Hungry Hungry Hippo
+
+Movie News, Horror
+
+Tue, 21 Apr 2026 21:03:34 GMT
+
+https://movieweb.com/hungry-hippo-trailer/
+
+The new animal-centric horror film puts a focus on one of the worlds deadliest animals.
+---------
+
+# 'Project Hail Mary' Will Be Tricky To Top as 2026's Movie of the Year
+
+Features, Project Hail Mary
+
+Tue, 21 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/project-hail-mary-movie-of-the-year/
+
+2026 isn't even halfway done, but Ryan Gosling's hit sci-fi epic still stands a great chance at being the year's best feature-length effort.
+---------
+
+# 'Peacemaker' Star Frank Grillo Confirms Start of Filming for 'Man of Tomorrow'
+
+Movie News, Man of Tomorrow, Frank Grillo
+
+Tue, 21 Apr 2026 20:58:01 GMT
+
+https://movieweb.com/frank-grillo-man-of-tomorrow-filming/
+
+Rick Flag star Frank Grillo is now ready to start filming for his next DCU appearance in James Gunn's 'Man of Tomorrow.'
+---------
+
 # 28 Years Later, Zoro Just Broke His Biggest Promise To Luffy With One Heartbreaking Moment
 
 Anime, One Piece
