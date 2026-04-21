@@ -1,3 +1,300 @@
+# 10 Prime Video Anime You Can’t Watch Anywhere Else
+
+Anime, Amazon Prime Video
+
+Tue, 21 Apr 2026 04:30:20 GMT
+
+https://screenrant.com/best-anime-streaming-only-on-amazon-prime/
+
+Discover 7 captivating anime series and films that are only available to stream on Prime Video, offering a diverse range of genres and themes for fans
+---------
+
+# Steam Hit RPG Officially Free To Download And Keep Forever For 48 More Hours
+
+Gaming, Steam, Triple-A Games
+
+Tue, 21 Apr 2026 04:01:24 GMT
+
+https://screenrant.com/steam-free-rpg-48-hours-april-2026/
+
+This hit RPG has garnered hundreds of positive reviews, and you can grab it for free now thanks to a deal - but only for a limited-time.
+---------
+
+# The Expanse’s Return After Cancellation Proves A Netflix Sci-Fi Series Deserves A Revival
+
+Classic TV, The Expanse, The OA, Netflix
+
+Tue, 21 Apr 2026 03:45:27 GMT
+
+https://screenrant.com/the-expanse-the-oa-netflix-cancellation-revival/
+
+The fact that The Expanse was eventually able to return despite being cancelled proves that an epic Netflix sci-fi show also deserves a second chance.
+---------
+
+# Silo’s Confirmed 2026 Return Officially Ends An Era For Rebecca Ferguson’s Character
+
+Streaming TV, Silo, Apple TV, Rebecca Ferguson
+
+Tue, 21 Apr 2026 03:04:36 GMT
+
+https://screenrant.com/silo-2026-return-rebecca-ferguson-juliette/
+
+With Silo all set to return with season 3 on Apple TV in 2026, it seems like it will finally mark the end of an era for Rebecca Ferguson’s Juliette.
+---------
+
+# There's 1 Crucial Detail Veronica Roth’s New Divergent Books Cannot Change
+
+Books, Divergent, The Divergent Series
+
+Tue, 21 Apr 2026 03:01:22 GMT
+
+https://screenrant.com/divergent-the-sixth-faction-tris-four-relationship/
+
+Veronica Roth might have altered a lot of things in her new Divergent books, but one crucial detail from the original series just cannot change.
+---------
+
+# Tomodachi Life: Living The Dream - 10 Unbelievable Mii Character Creations
+
+Gaming, Tomodachi Life: Living the Dream
+
+Tue, 21 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/tomodachi-life-living-the-dream-player-made-mii-character-creations/
+
+Discover the incredible talent and creativity of gamers who have transformed ordinary Mii characters in Tomodachi Life into stunning creations.
+---------
+
+# 10 Spring 2026 Anime Nobody Is Talking About (But Should Be)
+
+Anime, NIPPON SANGOKU: The Three Nations of the Crimson Sun, Akane-banashi
+
+Tue, 21 Apr 2026 02:35:48 GMT
+
+https://screenrant.com/best-spring-anime-most-underrated/
+
+These series that have gone unnoticed in spring 2026 have the potential to be among the best anime of the year and deserve more attention.
+---------
+
+# Prime Video's New Cyberpunk Series Reboots One Of The Greatest Sci-Fi Stories
+
+Streaming TV, Prime Video, Ghost in the Shell
+
+Tue, 21 Apr 2026 02:15:21 GMT
+
+https://screenrant.com/ghost-in-the-shell-prime-video-upcoming-anime-remake-manga/
+
+Prime Video upcoming cyberpunk TV series will soon mark the return of one of the greatest stories told in the history of the science fiction genre.
+---------
+
+# Every Pokémon Anime Series Ranked
+
+Anime, Pokémon, Pokémon Horizons, Pokemon
+
+Tue, 21 Apr 2026 02:00:32 GMT
+
+https://screenrant.com/every-pokemon-anime-series-ranked-worst-best/
+
+Pokémon has been through a variety of different forms over the years, with some seasons better than others. Here's every major Pokémon anime ranked.
+---------
+
+# New GTA 6 Map Leak Is Blowing Gamers Away
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Tue, 21 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/gta-6-tree-map-graphics-details-fan-reaction/
+
+While we wait for the official reveal of the Grand Theft Auto 6 map, fans have already discovered a ton of details for Vice City.
+---------
+
+# From Season 4 Premiere Review: 'The Arrival' Changes the Show Forever
+
+TV, From, MGM+, Lost
+
+Tue, 21 Apr 2026 04:01:25 GMT
+
+https://www.cbr.com/from-season-4-premiere-review/
+
+The Season 4 Premiere of From on MGM+ delivers an intense, emotional opener that changes the show's familiar dynamic in some significant ways.
+---------
+
+# 2018's Suspiria Remake Is One of The Most Brutal Horror Movies of The 21st Century
+
+Movies, Suspiria, Horror
+
+Tue, 21 Apr 2026 03:45:13 GMT
+
+https://www.cbr.com/suspiria-horror-remake-most-brutal-movie-in-years/
+
+This remake of an iconic '70s horror movie raises the bar for modern-day horror brutality, and it's even better than the original.
+---------
+
+# Wyatt Earp and the Cowboy War Is a Historically Accurate Western Series
+
+TV, Wyatt Earp and the Cowboy War, Western, Netflix
+
+Tue, 21 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/wyatt-earp-and-the-cowboy-war-best-tombstone-adaptation/
+
+This 80% fresh-rated show redefines Wyatt Earp and Doc Holliday, painting a complex portrait of loyalty.
+---------
+
+# 35 Darkest Manga Series Of All-Time
+
+Anime, Manga, weekly shonen jump, Horror, Thriller, Shonen, seinen
+
+Tue, 21 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/darkest-manga-series/
+
+Intense manga like Berserk, Fire Punch, and Attack on Titan push the genre's boundaries by delving into the darkest corners of human existence.
+---------
+
+# Denis Villeneuve's James Bond Can Finally Send James Bond to the Past
+
+Movies, James Bond
+
+Tue, 21 Apr 2026 03:15:14 GMT
+
+https://www.cbr.com/denis-villeneuve-james-bond-period-piece/
+
+Denis Villeneuve's James Bond has writer Steven Knight attached and can finally give fans the perfect period piece.
+---------
+
+# 10 Greatest Turn-Based RPGs of the Last 30 Years
+
+Games, Role Playing Game, Video Games
+
+Tue, 21 Apr 2026 03:15:14 GMT
+
+https://www.cbr.com/best-turn-based-rpgs-last-30-years/
+
+Some of the greatest turn-based RPGs include the likes of Final Fantasy X and Persona 5.
+---------
+
+# Gundam's New Anime Movie Gets Its Biggest High Grade Gunpla Release in April
+
+Anime, Mobile Suit Gundam, merchandise, Mobile Suit Gundam Hathaway: The Sorcery of Nymph Circe, toys, bandai
+
+Tue, 21 Apr 2026 02:58:45 GMT
+
+https://www.cbr.com/gundam-hathaway-sorcery-of-nymph-circe-alyzeus-gunpla-april-release/
+
+A model kit based on the latest Mobile Suit Gundam movie is on the way, with this recreating the mecha as one of the biggest High Grades ever.
+---------
+
+# 10 Best Battle Shonen Anime of All Time
+
+Anime, Dragon Ball, Demon Slayer: Kimetsu no Yaiba, One Piece, Shonen Jump
+
+Tue, 21 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/best-battle-shonen-anime-of-all-time/
+
+Battle shonen series represent some of anime's most popular titles, but there's a select few that make up the best of the best.
+---------
+
+# 10 Sci-Fi Movies That Changed the Genre Forever
+
+Movies, Sci-Fi, Star Wars
+
+Tue, 21 Apr 2026 02:45:13 GMT
+
+https://www.cbr.com/sci-fi-movies-changed-genre-forever/
+
+Sci-fi is one of cinema's biggest genres, and there are some films that have completely changed it forever.
+---------
+
+# 10 Forgotten Sci-Fi Anime That Are Still Perfect Masterpieces Today
+
+Anime, Sci-Fi, Space Brothers
+
+Tue, 21 Apr 2026 02:15:13 GMT
+
+https://www.cbr.com/forgotten-sci-fi-anime-still-masterpieces/
+
+There are hundreds of formative sci-fi anime that have reinvented the medium, yet there are also plenty of essential series that have been forgotten.
+---------
+
+# Only 5 Fantasy Movies of the 2020s Are Genuinely Perfect
+
+Movie, Fantasy, Guillermo del Toro’s Pinocchio, The Boy and the Heron, All of Us Strangers
+
+Tue, 21 Apr 2026 04:05:13 GMT
+
+https://collider.com/fantasy-movies-2020s-perfect/
+
+While there have been many great fantasy films released in the 2020s, only 5 films so far have achieved pure cinematic perfection in their execution.
+---------
+
+# Gerard Butler's Painful 15% RT Fantasy Epic Was So Bad, It Nearly Ended the Director's Career
+
+Movie Features, Gods of Egypt, Gerard Butler, Alex Proyas, Fantasy
+
+Tue, 21 Apr 2026 03:11:15 GMT
+
+https://collider.com/gerard-butler-gods-of-egypt-2016-streaming-free-pluto-tv/
+
+Gerard Butler led the 2016 fantasy epic Gods of Egypt, a movie that was met with intense controversy even before it bombed at the box office.
+---------
+
+# 'The Rookie' Bounces Back by Bringing In Liam Glasser After a Dud Mockumentary Episode Last Week | Review
+
+TV Features, The Rookie, ABC, Nathan Fillion, Eric Winter
+
+Tue, 21 Apr 2026 03:00:13 GMT
+
+https://collider.com/the-rookie-season-8-episode-16-recap-review-liam-glasser-chenford/
+
+After a disappointing mockumentary episode, The Rookie bounces back with a Liam Glasser-focused installment and exciting Chenford developments.
+---------
+
+# As Taylor Sheridan Prepares to Leave Paramount, His New Series Shows Why He Dominates TV
+
+TV News, Taylor Sheridan, Kurt Russell, Michelle Pfeiffer, The Madison
+
+Tue, 21 Apr 2026 02:30:13 GMT
+
+https://collider.com/the-madison-taylor-sheridan-neo-western-passes-major-paramount-plus-streaming-milestone-april-2026/
+
+Taylor Sheridan may be leaving Paramount+ soon, but he leaves behind a library of blockbuster shows including The Madison. Find out more.
+---------
+
+# Mads Mikkelsen’s Fantasy Movie Becomes No. 1 Streaming Hit on HBO Max
+
+Movie News, Dust Bunny, Mads Mikkelsen, Bryan Fuller, The Last of Us
+
+Tue, 21 Apr 2026 02:01:13 GMT
+
+https://collider.com/mads-mikkelsen-bryan-fuller-fantasy-movie-dust-bunny-streaming-success-hbo-max-may-2026/
+
+Mads Mikkelsen's fantasy film Dust Bunny, directed by his Hannibal collaborator Bryan Fuller, has emerged as a streaming sensation. Find out more.
+---------
+
+# 12 Crime Thriller TV Shows That Are Perfect From Start To Finish
+
+TV Lists, Thriller
+
+Tue, 21 Apr 2026 02:01:19 GMT
+
+https://movieweb.com/crime-thriller-tv-shows-perfect/
+
+These crime thriller TV shows have well-written characters, solid performances, and several great seasons.
+---------
+
+# New Superhero Movie 'Razorman' Based on Bill Masuku's Graphic Novel In Development
+
+Movie News, Superhero
+
+Tue, 21 Apr 2026 01:58:50 GMT
+
+https://movieweb.com/superhero-movie-razorman-production/
+
+Writer/artist Bill Masuku's 'Razorman' graphic novel series is now being adapted into a new superhero movie.
+---------
+
 # The Knick: HBO Max's Perfect Pitt Replacement You Can Binge In One Weekend
 
 Streaming TV, Masked Recs
