@@ -1,3 +1,388 @@
+# How The Man In Yellow’s From Season 4 Return Is Different For Every Character & More Sophia Twists Teased By Star
+
+TV, From, FROM - Season 4
+
+Wed, 22 Apr 2026 02:33:30 GMT
+
+https://screenrant.com/from-season-4-man-in-yellow-sophia-different-interpretations-julia-doyle-interview/
+
+EXCLUSIVE: New series regular Julia Doyle breaks down The Man in Yellow's return in the From season 4 premiere and what it means for Sophia.
+---------
+
+# Why Dark Winds Season 3 Episode 1 Is Dedicated To Joe Bufalino III
+
+Streaming TV, Dark Winds
+
+Wed, 22 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/dark-winds-season-3-episode-1-joe-bufalino-iii-dedication-explained/
+
+Dark Winds season 3 has struck a much darker tone than previous seasons. Sadly, that darkness extended to the loss of one of the film community's own.
+---------
+
+# The Blake's 7 Reboot: An Ideal Doctor Who Replacement
+
+Streaming TV, Masked Recs
+
+Wed, 22 Apr 2026 02:15:19 GMT
+
+https://screenrant.com/blakes-7-reboot-perfect-replacement-doctor-who/
+
+Doctor Who is one of the most influential science fiction series of all time, but its flagging popularity leaves the door open for an upcoming reboot.
+---------
+
+# 11 Biggest Easter Eggs, MCU References, and Netflix Nods in Daredevil: Born Again Season 2, Episode 6
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 22 Apr 2026 02:07:56 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-6-easter-eggs-and-mcu-references/
+
+Daredevil: Born Again season 2, episode 6 features the return of Jessica Jones to the MCU, as well as some great Easter eggs and Netflix nods.
+---------
+
+# Avengers: Doomsday's CinemaCon Trailer Recreated With Best Look Yet At Epic Marvel Movie
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 22 Apr 2026 02:02:53 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-recreated-best-look/
+
+The best look yet at Avengers: Doomsday has released online, further hyping loyal fans about the much-anticipated MCU blockbuster.
+---------
+
+# Taylor Sheridan Predicted Yellowstone's Ending In Episode 3
+
+TV, Yellowstone
+
+Wed, 22 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/yellowstone-episode-3-ending-foreshadow/
+
+Just three episodes into Yellowstone, writer-director Taylor Sheridan laid out how John Dutton would lose his beloved ranch years before it happened.
+---------
+
+# 10 Greatest Fantasy Shows No One Ever Talks About
+
+Classic TV, Fantasy
+
+Wed, 22 Apr 2026 01:45:19 GMT
+
+https://screenrant.com/fantasy-tv-shows-nobody-talks-about/
+
+Some fantasy TV shows are ahead of their time, or too similar to a more popular series and forgotten. These fantasy shows should be talked about more.
+---------
+
+# New Psychological Thriller From One-Punch Man Creator Needs To Be Every Manga Fan's Next Binge
+
+Anime, One-Punch Man
+
+Wed, 22 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/one-punch-man-creator-thriller-psychological-mystery-bug-ego/
+
+One-Punch Man's creator has had this new series running for years, but now it's finally getting the wider release it deserves.
+---------
+
+# What's Up With Jessica Jones' Powers? Daredevil: Born Again Season 2, Episode 6 Ending Explained
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 22 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-6-ending-explained/
+
+Daredevil: Born Again season 2 is in full swing with revelations, reunions, and some wild surprises. However, this episode also raises more questions.
+---------
+
+# Who Is The Father Of Jessica Jones' Daughter? Marvel's Defenders Return Explained
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 22 Apr 2026 01:10:19 GMT
+
+https://screenrant.com/daredevil-born-again-jessica-jones-daughter-father-luke-cage/
+
+Daredevil: Born Again season 2 just delivered a huge reveal, but it could also point to some huge developments for the street-level heroes of the MCU.
+---------
+
+# Avengers: Doomsday's New Trailer Gambit's True Strength
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 22 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/avengers-doomsday-trailer-gambit-shang-chi-fight-upgrade/
+
+Avengers: Doomsday's latest teaser showed some fans a great fight between Gambit and Shang-Chi that teases just how powerful the Mutant really is.
+---------
+
+# 7 Near-Perfect 2010s Anime Series No One Remembers
+
+Anime, Bakuman, Yurikuma Arashi, Run with the Wind, After the Rain, Humanity Has Declined, 91 Days
+
+Wed, 22 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/perfect-2010s-anime-no-one-remembers/
+
+Many of the most popular anime were made in the 2010s, but there are still a plethora of series that are just as good, but no one's heard of.
+---------
+
+# 10 Greatest Strategy RPGs of All Time
+
+Games, Role Playing Game, Video Games, Final Fantasy Tactics: The Ivalice Chronicles, Shin Megami Tensei
+
+Wed, 22 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/greatest-strategy-rpgs-of-all-time/
+
+SRPGs, may sound complicated at first thought, although if one gets it just right, these games can be plenty more satisfying to get through
+---------
+
+# Agents of SHIELD Quietly Erased 2 Characters From the MCU 10 Years Ago
+
+TV, Agents of S.H.I.E.L.D., Marvel Cinematic Universe
+
+Wed, 22 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/agents-of-shield-quietly-erased-2-mcu-characters-years-ago/
+
+A decade ago, one of the most emotional episodes of Marvel Television removed two fan-favorite characters from the franchise.
+---------
+
+# Only 5 Westerns Are Darker Than Clint Eastwood's Unforgiven
+
+Movies, Western, Unforgiven, Clint Eastwood
+
+Wed, 22 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/westerns-darker-than-clint-eastwoods-unforgiven/
+
+In 1992, Clint Eastwood turned in one the darkest Westerns of all time with Unforgiven, but some movies make the Old West even more grim.
+---------
+
+# 10 Best Anime That Inspired Equally Amazing Game Adaptations
+
+Anime, Naruto, Dragon Ball, Jujutsu Kaisen, My Hero Academia
+
+Wed, 22 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/best-anime-with-amazing-game-adaptations/
+
+Some of the greatest anime of all time have expanded their timeless stories into incredible video games.
+---------
+
+# 8 Anime Less Mature Than they Initially Seemed
+
+Anime, Elfen Lied, Tokyo Ghoul
+
+Wed, 22 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/anime-less-mature-than-they-seemed/
+
+These anime show that tackling complex ideas requires more than just a darker tone.
+---------
+
+# How Old Is Harry Potter in Each Movie?
+
+Movies, Harry Potter
+
+Wed, 22 Apr 2026 01:00:13 GMT
+
+https://www.cbr.com/how-old-is-harry-potter-in-each-movie/
+
+Harry Potter is a franchise that sees its hero grow up from a young age into a young adult, with each year marking a key point in his life.
+---------
+
+# Star Trek: The Next Generation's 'The Inner Light' Is a Sci-Fi Masterpiece
+
+TV, Star Trek: The Next Generation, Star Trek, patrick stewart, Sci-Fi
+
+Wed, 22 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/patrick-stewart-favorite-star-trek-episode-inner-light/
+
+Patrick Stewart has named his favorite Star Trek episode, and it is worthy of the actor's praise.
+---------
+
+# 10 Classic PS2 Games That Aren't As Good As You Remember
+
+Games, PlayStation 2, retro games
+
+Wed, 22 Apr 2026 00:45:38 GMT
+
+https://www.cbr.com/best-classic-ps2-games-aged-poorly-list/
+
+Some of the best PS2 games, like Devil May Cry 2, haven't held up over the years.
+---------
+
+# Forget ‘The Blair Witch Project,’ Prime Video Just Added a Forgotten Horror Nightmare to Its Library
+
+Movie News, Prime Video, The Poughkeepsie Tapes, Horror, Mystery
+
+Wed, 22 Apr 2026 02:30:13 GMT
+
+https://collider.com/prime-video-found-footage-horror-movie-the-poughkeepsie-tapes-streaming-prime-video-april-2026/
+
+A deeply disturbing found-footage horror resurfaces on streaming, reviving its notorious reputation and daring a new wave to watch.
+---------
+
+# Amazon's 10/10 Horror Thriller Becomes a Global Streaming Sensation
+
+TV News, From, MGM, Horror, Amazon
+
+Wed, 22 Apr 2026 02:00:23 GMT
+
+https://collider.com/amazon-horror-thriller-from-season-3-global-streaming-success-mgm-plus-april-2026/
+
+Amazon's mystery thriller has become a global streaming sensation, attracting significant attention across multiple platforms.
+---------
+
+# One of Marvel’s Best Heroes Finally Returns on ‘Daredevil: Born Again’ With a Major Twist | Review
+
+TV Reviews, Daredevil: Born Again, Charlie Cox, Krysten Ritter, Disney+
+
+Wed, 22 Apr 2026 02:00:23 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-6-recap-disney-plus-jessica-jones-return/
+
+At long last, Krysten Ritter's Jessica Jones finally returns in the newest episode of Daredevil: Born Again Season 2 — and she's not alone.
+---------
+
+# HBO Max's Best 'Game of Thrones' Spin-Off Takes a Colossal Step Forward After Season 2 Filming Delay
+
+TV News, A Knight Of The Seven Kingdoms, George R.R. Martin, Ira Parker, Game Of Thrones
+
+Wed, 22 Apr 2026 01:45:12 GMT
+
+https://collider.com/hbo-max-george-r-r-martin-game-of-thrones-spin-off-a-knight-of-the-seven-kingdoms-season-2-filming-resumes-spain/
+
+HBO Max's and George R.R. Martin's A Knight of the Seven Kingdoms Season 2 is set to resume filming after being delayed.
+---------
+
+# Prime Video’s Ambitious 2-Part Thriller Is Quietly Becoming the Perfect 'Reacher' Replacement
+
+TV Features, Prime Video, Reacher, Cross, Aldis Hodge
+
+Wed, 22 Apr 2026 01:42:12 GMT
+
+https://collider.com/prime-video-reacher-replacement-series-cross/
+
+While fans continue to wait for Season 4 of Reacher, Prime Video’s Cross is the perfect replacement.
+---------
+
+# Netflix Officially Confirms the Setting of ‘Wednesday’ Season 3 in First Image
+
+TV News, Wednesday, Netflix, Jenna Ortega, Fantasy
+
+Wed, 22 Apr 2026 01:30:13 GMT
+
+https://collider.com/netflix-wednesday-season-3-jenna-ortega-first-look-image/
+
+Wednesday Addams, played by Jenna Ortega, embarks on a new mystery in Paris in the first official image for Season 3 of the Netflix series.
+---------
+
+# Jack Quaid's Twisted 97-Minute Sci-Fi Thriller Is Taking Over HBO Max 1 Year Later
+
+Movie News, Jack Quaid, Sci-Fi, Companion, HBO Max
+
+Wed, 22 Apr 2026 01:15:12 GMT
+
+https://collider.com/jack-quaid-sci-fi-thriller-companion-streaming-success-hbo-max-april-2026/
+
+A twisted sci-fi thriller starring Jack Quaid surges on streaming a year later, fueled by word of mouth and a breakout lead performance.
+---------
+
+# 7 Years Later, Will Smith’s Forgotten Sci-Fi Spy Thriller Becomes an Overnight Smash on Streaming
+
+Movie News, Gemini Man, Will Smith, Terminator, Jason Bourne
+
+Wed, 22 Apr 2026 01:15:12 GMT
+
+https://collider.com/will-smith-sci-fi-thriller-gemini-man-streaming-success-starz-april-2026/
+
+Will Smith's $130 million sci-fi bomb with DNA from Terminator and Jason Bourne is rewriting history on streaming.
+---------
+
+# 'Jaws' Meets 'Twister' in the 86-Minute Disaster Thriller Taking Over the World
+
+Movie, Thrash, Netflix, Djimon Hounsou, Phoebe Dynevor
+
+Wed, 22 Apr 2026 01:12:12 GMT
+
+https://collider.com/thrash-netflix-jaws-meets-twister-in-the-86-minute-disaster-thriller-taking-over-the-world/
+
+Netflix’s ambitious shark thriller Thrash is officially streaming sensation, hitting the highest spot on the streamer’s top 10 list in just days.
+---------
+
+# Netflix Officially Reveals Stellar Anime Line-up for May 2026
+
+TV News, Anime, Netflix, Hulu, Jujutsu Kaisen
+
+Wed, 22 Apr 2026 01:00:13 GMT
+
+https://collider.com/netflix-anime-one-piece-devil-may-cry-jujutsu-kaisen-release-dates-may-2026/
+
+New seasons of One Piece, Devil May Cry, and more lead a stellar anime line-up for Netflix this May as Hulu falls behind.
+---------
+
+# 9 HBO Miniseries You Can Binge-Watch in One Night
+
+TV Lists, HBO Max
+
+Wed, 22 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/hbo-miniseries-bingeworthy/
+
+Short enough to finish in one night and leave a mark, these are the best HBO miniseries.
+---------
+
+# 7 Reasons Why Reviews for 'Michael' Are So Bad
+
+Features
+
+Wed, 22 Apr 2026 01:32:38 GMT
+
+https://movieweb.com/why-michael-2026-reviews-bad/
+
+Antoine Fuqua's biopic covers the first 20 years of Michael Jackson's career, but so far critics have been disappointed by how shallow it is.
+---------
+
+# 10 Best Movie Action Scenes of the 21st Century
+
+Movie Lists, Action
+
+Wed, 22 Apr 2026 01:01:18 GMT
+
+https://movieweb.com/action-scenes-best-21st-century/
+
+The greatest movie action scenes of the 21st century, featuring jaw-dropping stunts and groundbreaking choreography.
+---------
+
+# 'From' Star Harold Perrineau Explains How Season 3's Major Death Impacts the Town
+
+TV News, From, Harold Perrineau
+
+Wed, 22 Apr 2026 00:06:43 GMT
+
+https://movieweb.com/from-season-3-death-harold-perrineau-reaction/
+
+Season 4 of the MGM+ sci-fi thriller kicks off with a deep dive into the Man in Yellow.
+---------
+
+# Every 'Elden Ring' Character To Expect in Alex Garland's Movie
+
+Movie Lists, Elden Ring
+
+Wed, 22 Apr 2026 00:00:59 GMT
+
+https://movieweb.com/elden-ring-every-expected-character-alex-garland/
+
+Here are the 'Elden Ring' characters fans can likely expect in Alex Garland's adaptation.
+---------
+
 # Apple TV's Drops of God: The Ultimate Wine-Themed Mystery Thriller Adapted from Masterful Manga
 
 Streaming TV, Masked Recs
