@@ -1,3 +1,377 @@
+# Interview With The Vampire Season 3 Trailer Confirms Lestat's New Era Releasing This Summer
+
+TV, Interview with the Vampire, Immortal Universe
+
+Wed, 22 Apr 2026 16:00:31 GMT
+
+https://screenrant.com/interview-with-the-vampire-season-3-the-vampire-lestat-trailer/
+
+Interview with the Vampire season 3 trailer confirms Lestat's new era has arrived, alongside a summer release date for the next chapter of the series.
+---------
+
+# Boruto Will Always Be A Failure, And It's For One Big Reason
+
+Anime, Naruto, Boruto: Two Blue Vortex, Boruto: Naruto Next Generations, Op-Ed
+
+Wed, 22 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/boruto-never-live-up-naruto-weak-villains/
+
+The biggest problem hurting Boruto.
+---------
+
+# 11 Best Hangout Sitcoms Everyone Forgot About
+
+Classic TV
+
+Wed, 22 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/hangout-sitcom-tv-shows-everyone-forgot-about/
+
+These lesser-known hangout sitcoms that offer charming casts and relatable character-driven humor, overlooked in favor of more mainstream classics.
+---------
+
+# Event Horizon Sequel Confirms the Return Of One Major Character
+
+Comics, Event Horizon
+
+Wed, 22 Apr 2026 15:45:56 GMT
+
+https://screenrant.com/event-horizon-sequel-original-cast-return-starck/
+
+Event Horizon's sequel brings back an OG character.
+---------
+
+# 5 Years Later, Netflix's Best Crime Thriller Series With 100% RT Score Keeps Getting Better Ahead Of 2026 Return
+
+TV, Masked Recs
+
+Wed, 22 Apr 2026 15:30:20 GMT
+
+https://screenrant.com/the-chestnut-man-season-2-netflix-thriller-series-better-2026-return/
+
+The best Netflix crime thriller series is officially coming back next month, and it just keeps getting better ahead of its 2026 return.
+---------
+
+# Dexter: Resurrection Season 2 Reveals First Look At Dexter & Harry’s Returns As Filming Begins
+
+TV, Dexter: Resurrection, Dexter
+
+Wed, 22 Apr 2026 15:22:57 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-dexter-harry-return-set-reveal/
+
+Original stars Michael C. Hall and James Remar tease Dexter Morgan and Harry Morgan's returns on the set for Dexter: Resurrection season 2.
+---------
+
+# Scarlett Johansson & Adam Driver's Gritty New Crime Thriller Sets Premiere & Distributor
+
+Movies, Paper Tiger, Scarlett Johansson, Adam Driver
+
+Wed, 22 Apr 2026 15:19:28 GMT
+
+https://screenrant.com/scarlett-johansson-adam-driver-paper-tiger-movie-james-gray-cannes-neon/
+
+Scarlett Johansson and Adam Driver are reuniting in a new crime thriller, which just secured a distributor and highly prestigious premiere.
+---------
+
+# Netflix's 8-Hour 'Alien Meets Interstellar' Series Is One Of Its Best Sci-Fi Shows
+
+Classic TV, Masked Recs, Recommendation, The Silent Sea, Interstellar, Alien, Sci-Fi, Netflix
+
+Wed, 22 Apr 2026 15:14:19 GMT
+
+https://screenrant.com/the-silent-sea-netflix-alien-meets-interstellar-sci-fi-show/
+
+A top-tier K-Drama offers a gripping balance between the urgency of saving Earth and the creeping dread of encountering the unknown horrors of space.
+---------
+
+# Reacher's Official 2026 Return Seals Alan Ritchson's Biggest Year Yet
+
+Streaming TV, Reacher
+
+Wed, 22 Apr 2026 15:00:21 GMT
+
+https://screenrant.com/reacher-season-4-release-alan-ritchson-2026/
+
+With Prime Video set to release Reacher season 4 in 2026, Alan Ritchson is arguably having the best year of his acting career thus far.
+---------
+
+# A Massive Zoro Vs. Sanji Debate In One Piece Is Finally Over
+
+Anime, One Piece
+
+Wed, 22 Apr 2026 15:00:21 GMT
+
+https://screenrant.com/one-piece-zoro-vs-sanji-debate-speed-settled/
+
+One Piece fans can finally stop talking about this.
+---------
+
+# John Wick-Style WWII Action Thriller Sisu Takes Netflix by Storm
+
+Movies, John Wick, Sisu, Netflix
+
+Wed, 22 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/john-wick-replacement-sisu-action-thriller-netflix-success-april-2026/
+
+Finnish-American WWII action thriller Sisu, perfect for fans of gritty action and John Wick-style revenge movies, is a global hit on Netflix.
+---------
+
+# The Vampire Diaries Focuses on the Wrong Main Character (& the Real 1 Was Hiding in Plain Sight)
+
+TV, The Vampire Diaries, The CW, Fantasy
+
+Wed, 22 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/the-vampire-diaries-focuses-wrong-main-character-elena/
+
+Elena is the biggest part of The Vampire Diaries, but there was another character that could've taken her spot.
+---------
+
+# Chris Evans' Sunshine is a Must-Watch Sci-Fi Masterpiece
+
+Movies, Sunshine
+
+Wed, 22 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/chris-evans-sunshine-sci-fi-masterpiece-must-watch/
+
+You only have a few days left to watch one of Chris Evans' most perfect sci-fi performances before it leaves Tubi.
+---------
+
+# DC Comics Confirms Absolute Batman Has Outsold A Divisive Comics Era
+
+Comics, Batman, The New 52
+
+Wed, 22 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/dc-comics-absolute-batman-dominating-new-52-sales/
+
+Absolute Batman has officially overshadowed one of the most memorable and iconic chapters in DC Comics history, and it isn't even close.
+---------
+
+# Marvel Comics Reveals First Look At Avengers: Armageddon
+
+Comics, Marvel, MCU, Marvel Comics, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers
+
+Wed, 22 Apr 2026 15:46:10 GMT
+
+https://www.cbr.com/marvel-comics-first-look-at-avengers-armageddon/
+
+Marvel's first-look at their new Avengers saga is an absolute must-see.
+---------
+
+# Pokémon TCG: Pitch Black Cards Officially Revealed Before July 2026 Release
+
+Games, Pokemon, Pokemon TCG
+
+Wed, 22 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/pokmon-tcg-pitch-black-cards-officially-revealed-july-2026-release/
+
+The first Pokémon TCG cards from the upcoming Pitch Black expansion, including Mega Darkrai ex, have been revealed.
+---------
+
+# Star Trek Voyager's Timeless Is Masterful Time Travel Sci-Fi
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Wed, 22 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/star-trek-voyager-timeless-best-time-travel-episode/
+
+Star Trek: Voyager's best time-travel episode sees the Voyager crew's fate hanging in the balance, and it's a sci-fi masterpiece.
+---------
+
+# 5 Best South Korean Anime of All Time
+
+Anime, Solo Leveling
+
+Wed, 22 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/best-south-korean-anime-of-all-time/
+
+Over the years, South Korean anime have stolen plenty of attention, and these are the very best among them.
+---------
+
+# George R.R. Martin's Hit Video Game Adaptation Massive Budget Confirmed After Cast Reveal
+
+Movies, Elden Ring, George R.R. Martin, A24
+
+Wed, 22 Apr 2026 15:12:25 GMT
+
+https://www.cbr.com/a24-elden-ring-movie-massive-budget-confirmed/
+
+The massive budget for the upcoming feature-length adaptation of the hit video game Elden Ring has just been confirmed by A24.
+---------
+
+# Dark Horse's X-Files Replacement Series Launches This Summer (Exclusive)
+
+Comics, dark horse
+
+Wed, 22 Apr 2026 15:00:45 GMT
+
+https://www.cbr.com/dark-horse-smart-division-exclusive-announcement/
+
+Dark Horse is launching a new crime series in the spirit of The X-Files dealing with an artificial intelligence that promises to outsmart the police
+---------
+
+# Lestat’s Rock Star Era Officially Arrives in New 'Interview With the Vampire' Trailer
+
+TV News, Interview with the Vampire, Sam Reid, AMC, Anne Rice
+
+Wed, 22 Apr 2026 16:00:58 GMT
+
+https://collider.com/the-vampire-lestat-trailer-interview-with-the-vampire-season-3-amc/
+
+Lestat’s rock star era has officially begun as a new trailer arrives for The Vampire Lestat, the third season of AMC’s Anne Rice series.
+---------
+
+# 'The Boys' Borrows a Surprising Twist From 'The Last of Us' in an Eerily Timely Episode | Review
+
+TV Reviews, The Boys, Prime Video, Eric Kripke, Karl Urban
+
+Wed, 22 Apr 2026 16:00:16 GMT
+
+https://collider.com/the-boys-season-5-episode-4-recap-prime-video/
+
+The latest hour of The Boys is tense, dense, and eerily timely, making for one of the most important episodes of the final season.
+---------
+
+# Godzilla Officially Crosses Into the Marvel Universe With Bonkers New Series [Exclusive]
+
+Movie News, Marvel, Godzilla, Doctor Doom, Spider-Man
+
+Wed, 22 Apr 2026 16:00:14 GMT
+
+https://collider.com/godzilla-marvel-crossover-godzilla-conquers-the-multiverse-release-date-cover-art/
+
+Godzilla Conquers the Multiverse, the Marvel x Godzilla crossover featuring characters like Doctor Doom and Spider-Man, launches this July.
+---------
+
+# Colman Domingo’s Moment Has Been a Long Time Coming
+
+Collider Signature, Colman Domingo, Michael, Michael Jackson's Thriller, Biopic
+
+Wed, 22 Apr 2026 16:00:14 GMT
+
+https://collider.com/colman-domingo-michael-movie-joe-jackson-interview/
+
+Michael star Colman Domingo reflects on ambition, attention, and the long road to becoming one of Hollywood’s most vital stars.
+---------
+
+# 3 Decades Later, Here's Why Robert De Niro's Sleeper Hit Crime Thriller Performance Is One of His Best [Exclusive]
+
+Exclusives, Sleepers, Robert De Niro, Barry Levinson, Crime
+
+Wed, 22 Apr 2026 16:00:14 GMT
+
+https://collider.com/robert-de-niro-best-performance-sleepers-30-years-later-barry-levinson/
+
+Director Barry Levinson reflects on why Robert De Niro’s understated Sleepers performance remains one of his very best after 30 years.
+---------
+
+# Anthony Mackie’s New ‘Sicario’ Meets ‘Mad Max’ Action Thriller Debuts Pulse-Pounding Sneak Peek [Exclusive]
+
+Movie News, Desert Warrior, Anthony Mackie, Sicario, Mad Max
+
+Wed, 22 Apr 2026 16:00:14 GMT
+
+https://collider.com/anthony-mackie-action-thriller-desert-warrior-sneak-peek/
+
+Vertical Entertainment has released a new sneak peek at Desert Warrior, Anthony Mackie's new Sicario meets Mad Max action thriller.
+---------
+
+# Prime Video’s Flawless 10-Episode Action Thriller Is Quietly the Best Thing on the Platform
+
+TV Features, Ballard, Bosch, Prime Video
+
+Wed, 22 Apr 2026 15:52:13 GMT
+
+https://collider.com/prime-video-best-action-thriller-series-ballard-season-2-renewal/
+
+Prime Video’s Bosch spin-off Ballard gives Maggie Q a gritty new crime thriller with franchise ties and a 100% Rotten Tomatoes score.
+---------
+
+# Grand Theft Auto Creator Unveils New Netflix Series
+
+TV News, Animation, Comedy, Rachel Dratch, Video Game
+
+Wed, 22 Apr 2026 15:00:25 GMT
+
+https://collider.com/grand-theft-auto-creator-new-animated-project-absurdaverse-voice-actor-casting-rachel-dratch/
+
+Dan Houser, co-founder of Rockstar Games, is set to launch the Absurdaverse, an interconnected universe of animated satire featuring an all-star cast.
+---------
+
+# He-Man’s Big-Screen Comeback Is a Must-See for Fantasy Fans in New Sneak Peek [Exclusive]
+
+Exclusives, Masters of the Universe, He-Man and the Masters of the Universe, Action, Nicholas Galitzine
+
+Wed, 22 Apr 2026 15:00:14 GMT
+
+https://collider.com/he-man-movie-masters-of-the-universe-behind-the-scenes-sneak-peek-featurette/
+
+Get an exclusive sneak peek behind the scenes of the He-Man movie, Masters of the Universe, with stars Nicholas Galitzine, Camila Mendes & Idris Elba.
+---------
+
+# 'The Boys' Season 5's Trump Storyline Is Prophetic - But It Was Accidental
+
+Features, The Boys
+
+Wed, 22 Apr 2026 16:05:18 GMT
+
+https://movieweb.com/the-boys-season-5-trump-storyline/
+
+'The Boys' Season 5 is currently streaming on Amazon Prime Video and stars Antony Starr as Homelander and Karl Urban as Billy Butcher.
+---------
+
+# HBO Max's 'Nobody 2' is the Perfect John Wick Replacement on Streaming
+
+Movie News, Nobody 2, HBO Max, Hot on Streaming, John Wick
+
+Wed, 22 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/nobody-2-john-wick-streaming-success-hbo-max-april-2026-action/
+
+HBO Max finds major success with Bob Odenkirk's 'John Wick' rip-off action movie, 'Nobody 2.'
+---------
+
+# 'The Boys' Season 5, Episode 4 Recap and Review: "King of Hell"
+
+TV Reviews, The Boys
+
+Wed, 22 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/the-boys-season-5-episode-4-review-recap/
+
+Tensions reach a boiling point in 'The Boys' Season 5, Episode 4. Read on for our review.
+---------
+
+# MCU: Longest Movies in the Franchise, Ranked by Runtime
+
+Movie Lists, MCU
+
+Wed, 22 Apr 2026 15:01:18 GMT
+
+https://movieweb.com/mcu-movies-longest-runtime/
+
+Wondering which MCU movie has the largest runtime? This complete ranking covers the longest movies in the Marvel Cinematic Universe.
+---------
+
+# 'The Lord of the Rings: The Rings of Power' Season 3 Releasing in Late 2026
+
+TV News, The Rings of Power, The Lord of the Rings
+
+Wed, 22 Apr 2026 14:58:21 GMT
+
+https://movieweb.com/rings-of-power-season-3-release-date/
+
+The 'Lord of the Rings' prequel series is reportedly set to return on Prime Video before the end of the year.
+---------
+
 # Half-Life 3 Fans Lose It Over New Steam Machine Leak
 
 Gaming, Steam, Half-Life, PC
