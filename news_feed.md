@@ -1,3 +1,311 @@
+# 25 Years Later, John Singleton's Baby Boy Is More Powerful Than Ever
+
+Movies, Baby Boy, John Singleton
+
+Wed, 22 Apr 2026 21:21:19 GMT
+
+https://screenrant.com/john-singleton-baby-boy-criterion-collection/
+
+John Singleton's Baby Boy was powerful when it debuted, but the film's commentary on toxic masculinity hits harder in the era of the manosphere.
+---------
+
+# Michael B. Jordan And Austin Butler Cast In Miami Vice '85 Remake
+
+Movies, Miami Vice, Michael b jordan, Austin Butler
+
+Wed, 22 Apr 2026 21:19:31 GMT
+
+https://screenrant.com/miami-vice-85-movie-title-michael-b-jordan-austin-butler-confirmed/
+
+Universal Pictures confirms Michael B. Jordan and Austin Butler as leads in the Miami Vice '85 remake, directed by Joseph Kosinski and set for an August 6, 2027 release.
+---------
+
+# Star Wars Takes Its First Step Toward Retconning The Sequel Trilogy
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Wed, 22 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/star-wars-mandalorian-and-grogu-retconning-sequel-trilogy/
+
+The upcoming Mandalorian movie may be Star Wars' first attempt at retconning the divisive sequel trilogy, adding context and recontextualizing the films.
+---------
+
+# Sam Raimi & Dylan O’Brien’s New R-Rated Horror Movie Sets Hulu Premiere Date After $94M Box Office Run
+
+Movies, Horror, Masked Recs, Sam Raimi
+
+Wed, 22 Apr 2026 21:12:45 GMT
+
+https://screenrant.com/sam-raimi-dylan-obrien-send-help-movie-hulu-premiere-date-may-2026/
+
+Sam Raimi's return to the R-rated horror game after 26 years on the bench sets a premiere date on Hulu after a massively successful theatrical run.
+---------
+
+# Thragg's Ominous Deal With Mark In Invincible Season 4 Ending Broken Down By Star
+
+TV, Invincible, Invincible - Season 4
+
+Wed, 22 Apr 2026 21:11:47 GMT
+
+https://screenrant.com/invincible-season-4-ending-thragg-mark-deal-explained-lee-pace/
+
+EXCLUSIVE: Invincible season 4 ends with an ominous deal made between Grand Regent Thragg and Mark Grayson, which Lee Pace breaks down.
+---------
+
+# Netflix's 10-Hour Cyberpunk Series Brought Back One Of The Greatest Sci-Fi Franchises Of All Time
+
+Classic TV, Masked Recs, Recommendation, Ghost in the Shell, Ghost in the Shell: SAC_2045, Sci-Fi, Netflix
+
+Wed, 22 Apr 2026 21:11:32 GMT
+
+https://screenrant.com/ghost-in-the-shell-sac-2045-netflix-cyberpunk-anime-franchise/
+
+While it may not be the peak of the property, one Netflix show helped keep a franchise afloat at one of its lowest points, and secured its future too.
+---------
+
+# Netflix's 6-Part Martial Arts Series Reinvented An Entire Genre
+
+TV, Cobra Kai, Netflix, Masked Recs
+
+Wed, 22 Apr 2026 21:07:18 GMT
+
+https://screenrant.com/cobra-kai-reinvent-martial-arts-genre-netflix/
+
+Netflix's acclaimed six-part action thriller broke ever rule of the martial arts movie genre, and reignited the format's popularity as a result.
+---------
+
+# How Clayface Connects To James Gunn’s DCU
+
+Superheroes, Clayface, DC Universe
+
+Wed, 22 Apr 2026 21:05:42 GMT
+
+https://screenrant.com/clayface-movie-dc-universe-connections-explained/
+
+DC Studios is preparing to release another movie in theaters this year, so let's break down Clayface's connections to James Gunn's DCU.
+---------
+
+# Steam Drops New Sandbox Freebie You Can Download Now
+
+Gaming, Steam, Indie, PC
+
+Wed, 22 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/steam-new-sandbox-free-game-download/
+
+If you’re looking for a brand-new game to try out, know that Steam has just dropped a free option for players that is available to download right now.
+---------
+
+# Netflix's Returning 10/10 Thriller Series Has One Of Its Darkest Endings
+
+TV, Masked Recs
+
+Wed, 22 Apr 2026 20:40:34 GMT
+
+https://screenrant.com/beef-season-2-ending-dark-netflix-series/
+
+Netflix's global hit thriller series is finally back, and the show's second season ends on one of the darkest notes for any release from the streamer.
+---------
+
+# How The Rings of Power Season 3 Changes Lord of the Rings' Timeline
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Wed, 22 Apr 2026 21:20:42 GMT
+
+https://www.cbr.com/rings-of-power-season-3-lord-of-the-rings-timeline-change/
+
+The Lord of the Rings: The Rings of Power Season 3 confirms a major deviation from Tolkien's lore, with the War of the Elves and Sauron beginning before Sauron forges his One Ring.
+---------
+
+# In Just 2 Days, Taylor Sheridan's Landman Is Officially the No. 1 Title on PVOD
+
+TV, Landman
+
+Wed, 22 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-neo-western-drama-landman-pvod-success-april-2026/
+
+After a surprise release, the hit drama series is now back to topping the charts.
+---------
+
+# 8 Most Perfect Western Movies To Watch After 'Tombstone'
+
+Movies, Western, Tombstone
+
+Wed, 22 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/perfect-western-movies-watch-after-tombstone/
+
+Tombstone set the standard for modern Westerns, and the following movies are the perfect follow-ups for fans wanting to scratch the same itch.
+---------
+
+# 'Tales From the Far Side II' Is Even Better Than the Original
+
+TV, Tales from the Far Side
+
+Wed, 22 Apr 2026 20:55:12 GMT
+
+https://www.cbr.com/tales-from-the-far-side-secret-sequel-better-than-original/
+
+Gary Larson fans remember Tales from the Far Side fondly for bringing the comic to animation, but its sequel has gone mostly unseen by many of them.
+---------
+
+# Transformers Gives 3 Autobots a New Alternate Mode in Official Crossover Release
+
+Anime, Transformers, merchandise, action figures, hasbro, toys
+
+Wed, 22 Apr 2026 20:32:13 GMT
+
+https://www.cbr.com/hasbro-transformers-nfl-action-figure-release-summer-2026/
+
+A new wave of official Transformers action figures has been revealed, with this pigskin trio rolling out onto the gridiron later this year.
+---------
+
+# Xbox Officially Says Goodbye to Fan-Favorite Feature in April 2026
+
+Games, Xbox Series X (1)
+
+Wed, 22 Apr 2026 20:31:14 GMT
+
+https://www.cbr.com/xbox-social-club-removed-april-2026/
+
+Xbox players will notice a beloved feature being officially phased out.
+---------
+
+# The Godfather Secretly Inspired Star Wars' Most Satisfying Character Death
+
+Movies, The Godfather, Star Wars
+
+Wed, 22 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/the-godfather-luca-brasi-star-wars-jabba-death-connection/
+
+Luca Brasi's death in The Godfather was the inspiration behind a character death in the Star Wars franchise fans were elated to see.
+---------
+
+# 10 Greatest Moments from the Top Gun Franchise
+
+Movies, top gun, tom cruise, War
+
+Wed, 22 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/greatest-moments-top-gun-franchise/
+
+In 1986, Tony Scott and Tom Cruise soared to success with the release of Top Gun, spawning a franchise packed full of iconic pop culture moments.
+---------
+
+# 'Top Gun: Maverick' Director's '80s Crime Thriller Reboot Officially Casts the Perfect Stars
+
+Movie News, Miami Vice, Joseph Kosinski, Austin Butler, Michael B. Jordan
+
+Wed, 22 Apr 2026 21:19:49 GMT
+
+https://collider.com/top-gun-maverick-director-joseph-kosinski-miami-vice-85-michael-b-jordan-austin-butler-confirmed/
+
+Joseph Kosinski's Miami Vice remake has been officially greenlit, with Michael B. Jordan and Austin Butler confirmed to star.
+---------
+
+# ‘Law & Order: SVU’ Officially Unveils New Episode Sneak Peek After Season 28 Renewal [Exclusive]
+
+Exclusives, Law & Order: Special Victims Unit, NBC, Kelli Giddish, Corey Cott
+
+Wed, 22 Apr 2026 21:00:13 GMT
+
+https://collider.com/law-and-order-svu-season-27-episode-18-sneak-peek-corey-cott-kelli-giddish/
+
+A new sneak peek from Law & Order: SVU Season 27, Episode 18, sends Rollins and Griffin into the world of professional fighting to find a killer.
+---------
+
+# 5 Forgotten War Movies That Are Perfect From Start to Finish
+
+Movie, War, The Thin Red Line, Come And See, Rescue Dawn
+
+Wed, 22 Apr 2026 20:54:13 GMT
+
+https://collider.com/forgotten-war-movies-perfect/
+
+From Come and See to The Thin Red Line, these forgotten war films hit deeper, quieter, and harder than the usual classics.
+---------
+
+# Forget 'The Odyssey,' One the Best Adaptations of Homer's Fantasy Epic Is Officially Getting a Movie
+
+Movie News, The Odyssey, Christopher Nolan, Jerry Bruckheimer, Matt Damon
+
+Wed, 22 Apr 2026 20:40:08 GMT
+
+https://collider.com/epic-the-odyssey-musical-animated-movie-jerry-bruckheimer/
+
+With Christopher Nolan's The Odyssey just months away, Jerry Bruckheimer is adapting the Greek story's viral musical, Epic.
+---------
+
+# 7 Forgotten Horror Shows That Have Aged Like Fine Wine
+
+TV, Horror, Friday the 13th: The Series, Monsters, The Outer Limits
+
+Wed, 22 Apr 2026 20:29:19 GMT
+
+https://collider.com/forgotten-horror-shows-aged-like-fine-wine/
+
+Friday the 13th: The Series, Masters of Horror, The Outer Limits, and more make up our list of forgotten horror shows that have aged like fine wine.
+---------
+
+# 'Heart Eyes 2' Lands Official 2028 Release Date
+
+Movie News, Heart Eyes
+
+Wed, 22 Apr 2026 21:23:53 GMT
+
+https://movieweb.com/heart-eyes-2-release-date/
+
+Director Josh Ruben will return to write and direct as Paramount Pictures takes over distribution from Sony Pictures.
+---------
+
+# 'Victorian Psycho' First Look Image Revealed of Maika Monroe
+
+Movie News, Maika Monroe, Victorian Psycho
+
+Wed, 22 Apr 2026 21:17:58 GMT
+
+https://movieweb.com/victorian-psycho-first-look-image/
+
+Maika Monroe is set to lead an intense new period piece horror alongside Thomasin McKenzie and Jason Isaacs.
+---------
+
+# 'Children of Men' Predicts the Future Better Than Most Sci-Fi Films
+
+Features, Sci-Fi, Children of Men, Clive Owen, Alfonso Cuarón, Roger Ebert
+
+Wed, 22 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/children-of-men-sci-fi-film-predicts-future/
+
+Over the last 50 years, among all the films that posit the future, one bleak sci-fi masterpiece predicted humanity’s better than most.
+---------
+
+# Sebastian Stan Reveals When He Will Start Filming for DC Studios's 'The Batman - Part 2'
+
+Movie News, The Batman Part II, Sebastian Stan
+
+Wed, 22 Apr 2026 20:53:21 GMT
+
+https://movieweb.com/sebastian-stan-the-batman-2-filming/
+
+Sebastian Stan, who will play Harvey Dent in 'The Batman - Part 2,' shared an update on when he will start filming for his DC debut.
+---------
+
+# Horror Thriller  'Leviticus' Gets Official Trailer From Neon
+
+Movie News, Leviticus
+
+Wed, 22 Apr 2026 20:44:28 GMT
+
+https://movieweb.com/leviticus-official-trailer/
+
+'Leviticus,' hailed as a heartbreaking horror thriller by critics, has received its first trailer from movie distributor Neon.
+---------
+
 # New The Odyssey Movie Confirmed From POTC Producer After Christopher Nolan Adaptation
 
 Movies, The Odyssey, Jerry Bruckheimer
