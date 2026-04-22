@@ -1,3 +1,289 @@
+# The English: Prime Video's Underrated Miniseries Echoes Clint Eastwood's Classic Westerns
+
+TV, Masked Recs, Prime Video
+
+Wed, 22 Apr 2026 17:30:21 GMT
+
+https://screenrant.com/prime-videos-6-part-western-with-strong-rotten-tomatoes-score-is-basically-a-clint-eastwood-tv-show/
+
+Prime Video isn't known for its orthodox TV Westerns, but this brilliant miniseries is firmly in the tradition of Clint Eastwood's genre classics.
+---------
+
+# Natalie Portman's New 90-Minute Sci-Fi Fantasy Movie Finally Releases On Streaming Next Month
+
+Movies, Arco, Streaming Release
+
+Wed, 22 Apr 2026 17:27:21 GMT
+
+https://screenrant.com/arco-hulu-streaming-release-date-may-2026/
+
+Natalie Portman's recent sci-fi fantasy movie, also starring Mark Ruffalo, Will Ferrell, and others, finally comes to streaming in May 2026.
+---------
+
+# Andrew Garfield & Blumhouse's New Historical Action Drama Based On 700-Year-Old Revolt Officially Releases This September
+
+Movies, Andrew Garfield, Blumhouse
+
+Wed, 22 Apr 2026 17:18:34 GMT
+
+https://screenrant.com/the-uprising-2026-release-date-confirmed/
+
+Days after its horror film Lee Cronin's The Mummy was released in theaters, Blumhouse is set to release a historical drama in late summer.
+---------
+
+# Mario Games Will Change Forever After New Movie Bombshell
+
+Gaming, Mario, The Super Mario Galaxy Movie, Nintendo
+
+Wed, 22 Apr 2026 17:15:54 GMT
+
+https://screenrant.com/mario-games-will-change-forever-after-new-movie-bombshell/
+
+Nintendo's director Shigeru Miyamoto reveals the surprising change to Peach's origin story in the new Mario movie is going to stick around.
+---------
+
+# Nintendo Officially Sued Over Refunds
+
+Gaming, Nintendo, Triple-A Games
+
+Wed, 22 Apr 2026 17:04:29 GMT
+
+https://screenrant.com/nintendo-lawsuit-tariff-refunds-april-2026/
+
+Nintendo recently sued the United States government over tariffs, but the company is now on the receiving end of its own tariff lawsuit.
+---------
+
+# Zelda: TOTK -  Where To Find Wild Lynels (& How To Beat Them)
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
+
+Wed, 22 Apr 2026 17:01:31 GMT
+
+https://screenrant.com/zelda-totk-how-to-find-beat-wild-lynels/
+
+Lynels are infamously difficult enemies in Zelda: TOTK, found on both the surface and the Depths. Fighting them requires careful preparation.
+---------
+
+# X-Men's Cyclops Just Perfectly Explained Why He's NOT The Best Superhero
+
+Marvel Comics, Cyclops, X-Men, Marvel
+
+Wed, 22 Apr 2026 17:01:30 GMT
+
+https://screenrant.com/x-men-cyclops-not-best-superhero/
+
+Cyclops struggles to be the best X-Men leader for one important reason that makes him a less well-rounded superhero than Captain America.
+---------
+
+# 5 Characters In The Boys Season 5 Who Could Kill Homelander
+
+Streaming TV, The Boys
+
+Wed, 22 Apr 2026 17:01:30 GMT
+
+https://screenrant.com/the-boys-season-5-characters-who-could-kill-homelander/
+
+Finishing off Homelander is the main mission in The Boys season 5, but only a small handful of characters could actually do such a thing.
+---------
+
+# Titus Welliver Cast In Season 4 Of Netflix's Night Agent
+
+TV, The Night Agent, Netflix, Titus Welliver
+
+Wed, 22 Apr 2026 16:46:22 GMT
+
+https://screenrant.com/the-night-agent-season-4-titus-welliver-casting-confirmation/
+
+Titus Welliver joins the cast of Netflix's The Night Agent for season 4, alongside Li Jun Li, Trevante Rhodes, and Elizabeth Lail.
+---------
+
+# Guy Ritchie's 8-Part Crime Series With Stellar Rotten Tomatoes Score Just Keeps Getting Better
+
+TV, Masked Recs
+
+Wed, 22 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/young-sherlock-season-1-prime-video-series-better/
+
+Guy Ritchie's latest crime series is one of his best, and this Prime Video TV show manages to keep getting better throughout its first season.
+---------
+
+# Prime Video Finally Confirms The Boys' Most Important Rule
+
+TV, The Boys, Prime Video
+
+Wed, 22 Apr 2026 17:30:14 GMT
+
+https://www.cbr.com/prime-video-the-boys-most-important-rule/
+
+The latest episode of The Boys delivers a line that defines every moment in the series to this point, and the only way to succeed going forward.
+---------
+
+# 7 Sega Genesis Games That Are Perfect From Start to Finish
+
+Games, Sonic the Hedgehog, Mortal Kombat, Sega Genesis
+
+Wed, 22 Apr 2026 17:30:14 GMT
+
+https://www.cbr.com/best-sega-genesis-games-perfect-from-start-to-finish/
+
+The console that defined what a 16-BIT machine could be, the Sega Genesis is home to many games that are completely flawless.
+---------
+
+# 10 Fights We’re Ready to See in Avengers: Doomsday
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Wed, 22 Apr 2026 17:30:14 GMT
+
+https://www.cbr.com/fights-fans-want-avengers-doomsday/
+
+Avengers: Doomsday is coming soon, and CinemaCon teased some of the biggest fights of the movie.
+---------
+
+# Guy Ritchie's Young Sherlock Rises on Prime Video After Season 2 Renewal
+
+TV, Young Sherlock, Sherlock Holmes, Prime Video
+
+Wed, 22 Apr 2026 17:00:15 GMT
+
+https://www.cbr.com/guy-ritchie-young-sherlock-crime-prime-video-success-april-2026/
+
+Guy Ritchie's crime series Young Sherlock, based on Andrew Lane's book series, is climbing the charts on Prime Video after Season 2 renewal.
+---------
+
+# Sanrio's New 30th Anniversary Pompompurin Seiko Watch Gets International Release
+
+Anime, sanrio, Hello Kitty, merchandise
+
+Wed, 22 Apr 2026 17:00:15 GMT
+
+https://www.cbr.com/sanrio-pompompurin-anniversary-seiko-watch-international-release/
+
+The hat-wearing Pompompurin is officially turning 30 years old, with the cute Sanrio golden retriever celebrating with a classy new Seiko watch.
+---------
+
+# Titus Welliver Finds His New Bosch Replacement With Netflix's The Night Agent
+
+TV, The Night Agent
+
+Wed, 22 Apr 2026 16:46:35 GMT
+
+https://www.cbr.com/titus-welliver-joins-the-night-agent-season-4/
+
+As the Bosch universe continues, Titus Welliver is also setting up exciting projects.
+---------
+
+# 6 TV Show Endings Better Than Breaking Bad
+
+TV, Breaking Bad, Six Feet Under, The Leftovers
+
+Wed, 22 Apr 2026 16:31:41 GMT
+
+https://www.cbr.com/tv-show-endings-better-than-breaking-bad-list/
+
+Breaking Bad has become the metric all shows are measured to, but even some series have a better ending.
+---------
+
+# Transformers 8 Won't Be A Rise of the Beasts Sequel
+
+Movies, Transformers, Transformers: Rise of the Beasts, Sci-Fi
+
+Wed, 22 Apr 2026 16:31:11 GMT
+
+https://www.cbr.com/transformers-8-rise-of-the-beasts-sequel/
+
+Transformers: Rise of the Beasts director Steven Caple Jr. confirms the next Transformers movie won't follow-up on his film.
+---------
+
+# Apple TV's My Brother the Minotaur Unveils New Clip 2 Days Ahead of Release
+
+TV, My Brother the Minotaur, Apple TV
+
+Wed, 22 Apr 2026 16:30:09 GMT
+
+https://www.cbr.com/apple-tv-my-brother-the-minotaur-clip/
+
+Apple TV has a future hit series coming out soon.
+---------
+
+# 1 Character Is About to Ruin JoJo's Bizarre Adventure Part 7
+
+Anime, Jojo's Bizarre Adventure
+
+Wed, 22 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-jjba-hot-pants-ruin-steel-ball-run/
+
+Part 7 of JoJo's Bizarre Adventure is finally being adapted into an anime, but one character could turn it into an absolute laughingstock.
+---------
+
+# New James Bond Release Unveils Stunning New Trailer Ahead of May 27 Drop
+
+Movie News, James Bond, Patrick Gibson, Daniel Craig, Pierce Brosnan
+
+Wed, 22 Apr 2026 17:28:53 GMT
+
+https://collider.com/james-bond-007-first-light-gameplay-trailer-patrick-gibson/
+
+James Bond is officially back next month, and a brand-new trailer for 007's next mission reveals the spy thriller in all its glory.
+---------
+
+# Titus Welliver Officially Joins Netflix's Perfect ‘Bosch’ Replacement Series
+
+TV News, Titus Welliver, The Night Agent, Bosch, Netflix
+
+Wed, 22 Apr 2026 17:05:43 GMT
+
+https://collider.com/netflix-the-night-agent-season-4-cast-titus-welliver-bosch-replacement/
+
+Titus Welliver has officially found the perfect Bosch replacement as he boards Season 4 of one of Netflix’s most action packed crime thrillers.
+---------
+
+# Apple TV Made Hard Sci-Fi Essential Again With This Modern Masterpiece
+
+TV Features, Silo, Apple TV, Rebecca Ferguson, Sci-Fi
+
+Wed, 22 Apr 2026 17:01:23 GMT
+
+https://collider.com/apple-tv-silo-revived-hard-sci-fi-genre-modern-masterpiece/
+
+Apple TV's Silo is the hard sci-fi masterpiece revitalizing the genre, with an intricate dystopia, compelling characters, and expert storytelling.
+---------
+
+# Only 8 Sci-Fi Movies of the 2020s Are Genuinely Perfect
+
+Movie, Everything Everything, Godzilla Minus One, Project Hail Mary, Dune: Part Two
+
+Wed, 22 Apr 2026 16:34:13 GMT
+
+https://collider.com/sci-fi-movies-2020s-perfect/
+
+Project Hail Mary, Dune: Part Two, and Everything Everywhere All At Once are among the only 2020s sci-fi movies that are truly perfect masterpieces.
+---------
+
+# 'Mortal Kombat II' Eying $40 to $50 Million Opening Weekend at the Box Office
+
+Movie News, Mortal Kombat II
+
+Wed, 22 Apr 2026 17:20:57 GMT
+
+https://movieweb.com/mortal-kombat-2-opening-weekend-projections/
+
+Warner Bros. decision to delay 'Mortal Kombat II' from October 2025 to the 2026 summer movie season looks like it will pay off.
+---------
+
+# 'Riverdale': Every Musical Episode, Ranked
+
+TV Lists, Riverdale
+
+Wed, 22 Apr 2026 17:00:20 GMT
+
+https://movieweb.com/riverdale-each-musical-episode-ranked/
+
+Every Riverdale musical episode ranked by quality, covering the show's most ambitious song-and-dance performances.
+---------
+
 # Interview With The Vampire Season 3 Trailer Confirms Lestat's New Era Releasing This Summer
 
 TV, Interview with the Vampire, Immortal Universe
