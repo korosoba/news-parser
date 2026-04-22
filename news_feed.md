@@ -1,3 +1,333 @@
+# Star Trek's Terrifying Planet Killer: The Doomsday Machine
+
+TV, Op-Ed, Star Trek, Star Trek: The Original Series
+
+Wed, 22 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/star-trek-the-doomsday-machine-never-topped/
+
+Star Trek: The Original Series season 2 introduced a robot planet killer that remains one of the 60-year-old saga's most fearsome concepts.
+---------
+
+# One Piece Finally Debuts The One True Heir To Dragon Ball's Cell, And They're Even More Terrifying
+
+Anime, One Piece, Dragon Ball
+
+Wed, 22 Apr 2026 19:01:19 GMT
+
+https://screenrant.com/one-piece-dragon-ball-cell-heir-imu/
+
+Eiichiro Oda has borrowed a shocking feature from one of Dragon Ball's best foes to create a One Piece villain that isn’t holding anything back.
+---------
+
+# What Song Is In The Clayface Trailer (& What It Means For The DC Movie)
+
+Superheroes, Clayface, DC Universe
+
+Wed, 22 Apr 2026 18:58:43 GMT
+
+https://screenrant.com/clayface-movie-trailer-song-meaning/
+
+The first trailer for DC's new movie, Clayface, is out now and has a smart song selection that connects to the character, story, and themes.
+---------
+
+# DC's New R-Rated Movie Releases First Trailer & It's Exactly What Batman Fans Have Been Waiting For
+
+Superheroes, DC Universe, Clayface, Batman
+
+Wed, 22 Apr 2026 18:58:15 GMT
+
+https://screenrant.com/clayface-trailer-dc-movie-batman-villain-perfect/
+
+DC has released the first trailer for the franchise's new R-rated movie, and the footage is perfect for Batman fans, fitting the Dark Knight's world.
+---------
+
+# James Gunn's DC Universe Unveils First R-Rated Horror With Batman Villain In Clayface Trailer
+
+Movies, Clayface, DC Universe, Batman
+
+Wed, 22 Apr 2026 18:49:27 GMT
+
+https://screenrant.com/clayface-trailer-dcu-movie/
+
+The first official Clayface trailer has finally been released by DC Studios, showing the live-action debut of the iconic Batman villain in the DCU.
+---------
+
+# One Piece's Cast Want A Massive MCU Star To Join Luffy's Crew, And It'd Be Near Perfect
+
+Anime, One Piece
+
+Wed, 22 Apr 2026 18:49:04 GMT
+
+https://screenrant.com/one-piece-dave-bautista-join-luffy-strawhat-pirates-jinbe/
+
+One Piece's top stars believe they've found the perfect actors to play Jinbe and Franky, but you'll know one of them best from the MCU.
+---------
+
+# Steven Spielberg's New Sci-Fi Movie Finally Reveals First Look At Aliens In Disclosure Day Trailer
+
+Movies, Disclosure Day, Steven Spielberg
+
+Wed, 22 Apr 2026 18:34:07 GMT
+
+https://screenrant.com/steven-spielberg-disclosure-day-trailer-aliens-reveal/
+
+With less than two months to go until Disclosure Day is released in theaters, Steven Spielberg’s new film finally reveals the mysterious aliens.
+---------
+
+# 6 Reasons Why A Long-Missing Mario Bros. Character May Be The Next Movie Villain
+
+Movies, The Super Mario Galaxy Movie
+
+Wed, 22 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-sequel-villain-tatanga-reasons/
+
+A character who has been missing from the Super Mario games for decades may very well be the villain of the sequel - and there's multiple reasons why.
+---------
+
+# The Boys Fires A Huge Shot At HBO's The Last Of Us, And It's Hard To Disagree
+
+Streaming TV, The Boys
+
+Wed, 22 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/the-boys-the-last-of-us-insult/
+
+The Boys continues to poke fun at other franchises, and its The Last of Us critique may be hard for fans to hear, but it's not completely inaccurate.
+---------
+
+# All 15 Episodes Of The Pitt Season 2, Ranked
+
+Streaming TV, The Pitt, The Pitt - Season 2
+
+Wed, 22 Apr 2026 18:15:19 GMT
+
+https://screenrant.com/the-pitt-season-2-episodes-ranked/
+
+Ranking all episodes of The Pitt season 2 based on emotional impact, medical drama, character development, and how they add to the overall season.
+---------
+
+# NBC's 4-Season Superhero Series Heroes Makes PVOD Comeback 16 Years Later
+
+TV, Heroes, NBC, superheroes
+
+Wed, 22 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/heroes-superhero-drama-apple-store-success-april-2026/
+
+The cult classic NBC superhero series Heroes is making a surprising comeback on PVOD 16 years after its finale.
+---------
+
+# The 10 Strongest Street Fighter Film Characters, Ranked
+
+Movies, Street Fighter
+
+Wed, 22 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/strongest-street-fighter-movie-2026-characters-list/
+
+The upcoming live-action Street Fighter film will bring the games' iconic World Warriors to the big screen, but which combatant is the strongest?
+---------
+
+# Why It's Finally Time for Kevin Bacon's Canceled Tremors TV Series
+
+TV, Tremors, Kevin Bacon
+
+Wed, 22 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/kevin-bacon-tremors-tv-show/
+
+Kevin Bacon's return to the Tremors franchise in a 2018 TV series was canceled, but now is the perfect time to bring it back to life.
+---------
+
+# Vampire Crawlers Review
+
+Games, Indie Games
+
+Wed, 22 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/vampire-crawlers-review-best-roguelike-2026/
+
+Vampire Crawlers turns Vampire Survivors into a deckbuilder that makes for a game you can’t put down.
+---------
+
+# Clayface Trailer: Watch A Horribly Disfigured Batman Villain Come to Life
+
+Movies, Clayface
+
+Wed, 22 Apr 2026 18:50:56 GMT
+
+https://www.cbr.com/clayface-trailer-watch-a-horribly-disfigured-batman-villain-come-to-life/
+
+The DCU dives into straight horror in this upcoming comics movie.
+---------
+
+# 2000s Anime Masterpieces With No Bad Seasons
+
+Anime, Dragon Ball, Fullmetal Alchemist, Mobile Suit Gundam
+
+Wed, 22 Apr 2026 18:45:13 GMT
+
+https://www.cbr.com/2000s-anime-masterpieces-no-bad-seasons/
+
+The 2000s were filled with classic shonen, shojo, and mecha anime without a single bad season between them.
+---------
+
+# Michael Jackson Biopic Already Set To Break Major Box Office Record
+
+Movies, Michael
+
+Wed, 22 Apr 2026 18:38:56 GMT
+
+https://www.cbr.com/michael-jackson-biopic-box-office-record/
+
+The Michael Jackson biopic is on track to obliterate a major box office record.
+---------
+
+# Bob Odenkirk's Action-Thriller Normal Sets Streaming Release Date
+
+Movies, Normal, Action, Crime
+
+Wed, 22 Apr 2026 18:32:36 GMT
+
+https://www.cbr.com/normal-bob-odenkirk-streaming-release-date/
+
+Bob Odenkirk's latest movie, Normal, has set its streaming debut date less than a week after opening in theaters.
+---------
+
+# Toyotarou Returns to Dragon Ball Super With 4 of the Series' Most Dangerous Scientists
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball GT, Dragon Ball Z
+
+Wed, 22 Apr 2026 18:31:12 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-april-2026-art/
+
+Dragon Ball Super's Toyotarou is back with a new official reveal starring the strangest lineup of evil scientists.
+---------
+
+# Yahya Abdul-Mateen II Responds To Wonder Man Season 2 Surprise Renewal After Becoming 1 of Marvel's Best Shows
+
+TV, Wonder Man, Marvel Cinematic Universe
+
+Wed, 22 Apr 2026 18:02:51 GMT
+
+https://www.cbr.com/yahya-abdul-mateen-ii-wonder-man-season-2-renewal-reaction/
+
+Wonder Man star Yahya Abdul-Mateen II reveals how felt learning that the MCU show had been renewed for a second season by Disney+.
+---------
+
+# First ‘Clayface’ Trailer Reveals the DCU’s Most Terrifying Movie Yet
+
+Movie News, Clayface, James Gunn, DCU, Mike Flanagan
+
+Wed, 22 Apr 2026 18:51:17 GMT
+
+https://collider.com/new-dcu-movie-clayface-trailer-james-gunn-mike-flanagan-tom-rhys-harries/
+
+DC has released the first terrifying trailer for Clayface, the new body horror film written by Mike Flanagan. Watch it here!
+---------
+
+# 10 Greatest Voyage and Return Movie Masterpieces, Ranked
+
+Movie, Fantasy, Spirited Away, Interstellar, The Wizard of Oz
+
+Wed, 22 Apr 2026 17:41:12 GMT
+
+https://collider.com/voyage-and-return-movies/
+
+Spirited Away, The Wizard of Oz, and Interstellar are all among the finest movie masterpieces that follow the Voyage and Return plot and formula.
+---------
+
+# 10 Wild & Unpredictable Thriller Shows You Won't Be Able To Stop Watching
+
+Features, Thriller
+
+Wed, 22 Apr 2026 19:00:19 GMT
+
+https://movieweb.com/wild-unpredictable-thriller-tv-shows/
+
+These incredible thriller TV shows will draw you in immediately, ultimately leaving you wanting more long after the credits have rolled.
+---------
+
+# Arnold Schwarzenegger's 1980s Sci-Fi Action Classic 'Predator' Is a Free Streaming Success on Tubi Ahead of Sequel Return
+
+Movie News, Predator, Tubi, Hot on Streaming, Action, Sci-Fi
+
+Wed, 22 Apr 2026 19:00:19 GMT
+
+https://movieweb.com/predator-best-sci-fi-action-streaming-free-tubi-april-2026/
+
+Arnold Schwarzenegger is set to return to the 'Predator' franchise, and the first film in his sci-fi action franchise is streaming for free on Tubi.
+---------
+
+# Rebel Wilson Accused of Making 'The Deb' Co-Star Charlotte MacInnes' Life "Nightmarish"
+
+Movie News, Rebel Wilson
+
+Wed, 22 Apr 2026 18:59:00 GMT
+
+https://movieweb.com/rebel-wilson-the-deb-charlotte-macinnes/
+
+An Australian court is hearing testimony from those close to 'The Deb,' the doomed directorial debut of Rebel Wilson.
+---------
+
+# 'Clayface' Teaser Trailer Unveils Big-Screen DCU Debut of Classic Batman Villain
+
+Movie News, Clayface, DCU
+
+Wed, 22 Apr 2026 18:51:31 GMT
+
+https://movieweb.com/clayface-teaser-trailer-dcu/
+
+DC Studios has revealed the first teaser trailer for 'Clayface,' a standalone horror thriller featuring the iconic Batman supervillain.
+---------
+
+# Amazon's "Punisher Meets Batman" Action Thriller 'Vengeance' Shoots up Streaming Ranks
+
+Movie News, Prime Video, Action, Thriller
+
+Wed, 22 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/vengeance-prime-stream-april-2026-action/
+
+The streamer's hugely ambitious action thriller effort has quickly found both global and US success on Prime Video.
+---------
+
+# 10 Great Netflix Series With Undeniably Perfect Endings
+
+TV Lists, Netflix, Stranger Things
+
+Wed, 22 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/netflix-series-perfect-endings/
+
+These Netflix TV series have perfect endings that feel satisfying and are still memorable years later.
+---------
+
+# A24 Hires 'Obsession' Director to Helm New 'Texas Chainsaw Massacre' Remake
+
+Movie News, Texas Chainsaw Massacre, A24, Obsession
+
+Wed, 22 Apr 2026 17:47:30 GMT
+
+https://movieweb.com/texas-chainsaw-massacre-reboot-curry-barker/
+
+Curry Barker has been hired to direct a new film in the iconic horror franchise unaffiliated with the previously announced television series.
+---------
+
+# 'Heartstopper Forever' Finale Movie Sets Netflix Release Date
+
+Movie News, Heartstopper, Netflix
+
+Wed, 22 Apr 2026 17:38:51 GMT
+
+https://movieweb.com/heartstopper-forever-finale-film-netflix-release-date/
+
+Netflix announced the release date for the 'Heartstopper' finale film, 'Heartstopper Forever,' with a new teaser and first look.
+---------
+
 # The English: Prime Video's Underrated Miniseries Echoes Clint Eastwood's Classic Westerns
 
 TV, Masked Recs, Prime Video
