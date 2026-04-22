@@ -1,3 +1,234 @@
+# Viggo Mortensen's Next Starring Movie Gets First Look After Being Replaced For New Lord Of The Rings Film
+
+Movies, Viggo Mortensen
+
+Wed, 22 Apr 2026 23:08:09 GMT
+
+https://screenrant.com/viggo-mortensen-movie-embers-after-hunt-for-gollum-replacement/
+
+Viggo Mortensen's next starring role receives a first look after being replaced in the new Lord of the Rings movie, The Hunt for Gollum.
+---------
+
+# Star Wars Reveals First True Battle Between Luke Skywalker and Boba Fett
+
+Star Wars, Luke Skywalker, Boba Fett
+
+Wed, 22 Apr 2026 23:01:50 GMT
+
+https://screenrant.com/star-wars-luke-skywalker-first-true-meeting-boba-fett/
+
+A brand-new Star Wars story reveals the first true fight between Jedi Knight Luke Skywalker and Boba Fett before the events of Return of the Jedi.
+---------
+
+# 30 Years Later, The Greatest Isekai Anime Is Still This Mecha Masterpiece
+
+Anime, Isekai, The Vision of Escaflowne, The Vision of Escaflowne - Season 1
+
+Wed, 22 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/vision-escaflowne-greatest-isekai-anime-all-time-mech/
+
+Despite releasing 30 years ago, this spectacular mecha anime series is still the isekai genre's greatest work, and it deserves more love.
+---------
+
+# The Best Horror Show Of The Decade Devours The Competition On MGM+
+
+TV, Masked Recs
+
+Wed, 22 Apr 2026 22:49:10 GMT
+
+https://screenrant.com/from-season-4-mgm-plus-streaming-success-april-2026/
+
+This decade's best horror series has officially returned with season 4 and is devouring all its streaming competition on MGM+ and via Amazon.
+---------
+
+# The First Appearance Of Batman In James Gunn's DCU Is In Serious Trouble
+
+Streaming TV, Creature Commandos, Clayface, DC
+
+Wed, 22 Apr 2026 22:46:19 GMT
+
+https://screenrant.com/clayface-dcu-batman-creature-commands-canon/
+
+James Gunn's DCU faces a crisis as the upcoming Clayface movie contradicts the tone and continuity of Creature Commandos, calling the animated series' importance into question.
+---------
+
+# Sherlock Creator's New 6-Part Detective Drama Bookish Can Only Get Better
+
+Network TV, Masked Recs
+
+Wed, 22 Apr 2026 22:30:20 GMT
+
+https://screenrant.com/bookish-season-2-improve-mark-gatiss/
+
+Mark Gatiss' new period detective drama, Bookish, will only get better as the show continues — and it could continue for a very long time.
+---------
+
+# HBO Max Is Changing Forever In 8 Months
+
+TV, HBO Max, Harry Potter
+
+Wed, 22 Apr 2026 22:12:19 GMT
+
+https://screenrant.com/hbo-max-harry-potter-show-change-streaming/
+
+HBO Max may be one of the biggest streaming services in the entertainment industry, but it will soon change forever thanks to a major release.
+---------
+
+# Dragon Ball Officially Brings Back Goku Super Saiyan 4
+
+Anime, Dragon Ball, Dragon Ball DAIMA, Dragon Ball FighterZ
+
+Wed, 22 Apr 2026 23:03:13 GMT
+
+https://www.cbr.com/dragon-ball-fighterz-super-saiyan-4-goku-release/
+
+Goku's SSJ4 transformation from DAIMA returns to face SSJ Blue Vegeta and Golden Frieza in Dragon Ball FighterZ, but many fans aren't thrilled.
+---------
+
+# The Expanse Returns as a PVOD Streaming Hit in the United States
+
+TV, The Expanse, Sci-Fi
+
+Wed, 22 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/the-expanse-sci-fi-streaming-success-pvod-april-2026/
+
+Prime Video's The Expanse is a hit in the Apple TV Store in the United States.
+---------
+
+# 10 Moments that Prove Toy Story is the Ultimate Generational Franchise
+
+Movies, Toy Story
+
+Wed, 22 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/moments-prove-toy-story-ultimate-generational-franchise/
+
+Toy Story has been around for a long time and entertained countless kids and adults; it has become a defining franchise for multiple generations.
+---------
+
+# Yoshi and the Mysterious Book Preview
+
+Games, Nintendo
+
+Wed, 22 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/yoshi-and-the-mysterious-book-preview/
+
+We played a preview of Yoshi and the Mysterious Book that showcased Yoshi interacting with different creatures.
+---------
+
+# Stephen King Praises Hulu's Sci-Fi Thriller Paradise
+
+TV, Paradise, Hulu, Stephen King
+
+Wed, 22 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/hulu-paradise-stephen-king-favorite-modern-sci-fi-show/
+
+Paradise, Hulu's post-apocalyptic sci-fi thriller, has caught the attention of renowned author Stephen King, who praises its writing, acting, and story.
+---------
+
+# Matlock Officially Kills Its First Character Ahead Of Season 2's Finale
+
+TV, Matlock, CBS
+
+Wed, 22 Apr 2026 22:37:11 GMT
+
+https://www.cbr.com/matlock-season-2-episode-14-ellie-kingston-ai-death/
+
+Matlock has its first major character death in Season 2, Episode 14, "Day One," opening the door for Kathy Bates' story to change in Season 3.
+---------
+
+# Magic: The Gathering Secrets of Strixhaven Review
+
+Games, Magic: The Gathering
+
+Wed, 22 Apr 2026 22:35:12 GMT
+
+https://www.cbr.com/mtg-secrets-of-strixhaven-review/
+
+Magic: The Gathering has returned to the plane of Arcavios in the Secrets of Strixhaven set, one that's filled with sorcery and powerful cards.
+---------
+
+# Best Action RPG Masterpieces of the Last 20 Years
+
+Games, RPG, Video Games, Final Fantasy VII Rebirth, The Witcher 3: Wild Hunt, The Elder Scrolls V: Skyrim, Dragon Age: Inquisition, Xenoblade Chronicles
+
+Wed, 22 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/best-action-rpg-last-20-years/
+
+Action RPGs have seen a surge in popularity since the 2010s, with a handful of titles ranked among the greatest video games of all time.
+---------
+
+# 10 Toxic Anime Heroes Fans Can't Help But Love
+
+Anime, shonen anime, Naruto, My Hero Academia, Code Geass: Lelouch of the Rebellion
+
+Wed, 22 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/toxic-anime-heroes-fans-love/
+
+Anime's most toxic heroes have a depth of character that makes it impossible for fans not to love them.
+---------
+
+# 8 Romance Shows With Better Writing Than ‘Bridgerton’
+
+TV, Romance, Bridgerton, My Lady Jane, Outlander
+
+Wed, 22 Apr 2026 23:11:12 GMT
+
+https://collider.com/romance-shows-better-writing-than-bridgerton/
+
+My Lady Jane, Heartstopper, Normal People, One Day, Outlander, and more make up our list of romance shows with better writing than Bridgerton.
+---------
+
+# Studio Ghibli Officially Announces New Extremely Limited Release
+
+Movie News, Studio Ghibli, Anime, Japan, Fantasy
+
+Wed, 22 Apr 2026 23:00:13 GMT
+
+https://collider.com/studio-ghibli-new-original-anime-movie-night-in-the-valley-of-witches-short-film/
+
+Discover Studio Ghibli's latest project, a new animated short film set in the Witch's Valley at Ghibli Park, directed by Hayao Miyazaki's son.
+---------
+
+# Forget Taylor Sheridan — Paramount+’s 94% Rotten Tomatoes Spin-Off Is One of Its Best Shows
+
+TV Features, Paramount Plus, Taylor Sheridan, Star Trek: Strange New Worlds, Yellowstone
+
+Wed, 22 Apr 2026 22:57:12 GMT
+
+https://collider.com/star-trek-strange-new-worlds-paramount-plus-best-sci-fi-show/
+
+Paramount+ crafted one of its best shows with Star Trek: Strange New Worlds, which gives the Taylor Sheridan universe a run for its money.
+---------
+
+# 10 Upcoming Animated Movies That You Cannot Miss
+
+Movie, Animation, Toy Story 5, Wildwood, Spider-Man: Beyond the Spider-Verse
+
+Wed, 22 Apr 2026 22:22:12 GMT
+
+https://collider.com/upcoming-animated-movies-cannot-miss/
+
+Animation fans are about to feast, because multiple exciting projects are set to debut in the coming months, from Toy Story 5 to Forgotten Island.
+---------
+
+# Mark Ruffalo Hints That Tom Holland's Spider-Man Will Fight Venom in the MCU
+
+Movie News, Spider-Man, Venom, Mark Ruffalo
+
+Wed, 22 Apr 2026 22:11:10 GMT
+
+https://movieweb.com/mark-ruffalo-tom-holland-spider-man-alien-fight/
+
+According to Mark Ruffalo, a Spider-Man vs. Venom fight is set to happen in the MCU before long.
+---------
+
 # Netflix's 2-Part Sci-Fi Series That You Can Binge In 5 Hours Made A Near-Perfect Franchise Even Better
 
 TV, Pacific Rim, Pacific Rim: The Black, Masked Recs
