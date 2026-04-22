@@ -1,3 +1,289 @@
+# New The Odyssey Movie Confirmed From POTC Producer After Christopher Nolan Adaptation
+
+Movies, The Odyssey, Jerry Bruckheimer
+
+Wed, 22 Apr 2026 20:24:43 GMT
+
+https://screenrant.com/the-odyssey-musical-jerry-bruckheimer/
+
+Pirates of the Caribbean director revealed that he is currently working on a musical adaptation of the iconic story of The Odyssey.
+---------
+
+# All 18 Live-Action Superman Suits, Ranked Worst To Best
+
+Movies, Superman
+
+Wed, 22 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/every-superman-costume-movies-tv-ranked/
+
+Superman remains one of the most iconic and beloved heroes of all time, with the character undergoing a lot of costume changes over the decades.
+---------
+
+# 10 Major Reveals From The DCU’s First Clayface Trailer
+
+Superheroes, Clayface, DC Universe
+
+Wed, 22 Apr 2026 20:14:59 GMT
+
+https://screenrant.com/10-major-reveals-from-the-dcus-first-clayface-trailer/
+
+DC Studios has released the first teaser for Clayface, debuting the DCU's first big Batman villain, along with some very exciting reveals.
+---------
+
+# Abbott Elementary Season 6: Release Date, Story, & Everything We Know
+
+Network TV, Abbott Elementary
+
+Wed, 22 Apr 2026 20:06:20 GMT
+
+https://screenrant.com/abbott-elementary-season-6-status-release-date-cast-story-explained/
+
+As Janine, Ava, and the rest of Philadelphia-set school show ends another cycle, all eyes are on what comes next in Abbott Elementary season 6.
+---------
+
+# Inside Netflix’s Apex: How Charlize Theron & Taron Egerton Survived Their Survival Thriller
+
+New Movies, Apex, Cover Story, Charlize Theron, Taron Egerton
+
+Wed, 22 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/apex-2026-movie-charlize-theron-taron-egerton-interview-cover-story/
+
+In our exclusive cover story, Charlize Theron, Taron Egerton, and director Baltasar Kormákur dive into their time filming Netflix's new movie, Apex.
+---------
+
+# Netflix's 10-Part Fantasy Series That's Designed To Be Binged Is One Of Its Best Action Shows
+
+Classic TV, Masked Recs, Recommendation, Wu Assassins, Action, Netflix
+
+Wed, 22 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/wu-assassins-netflix-fantasy-action-show-binge/
+
+One Netflix series stands out as a criminally overlooked gem, blending modern crime drama with ancient mysticism for a truly addictive watch.
+---------
+
+# Skye P. Marshall Teases Olympia & Matty's Relationship Evolution On Matlock
+
+TV, Matlock, Kathy Bates, Skye P. Marshall
+
+Wed, 22 Apr 2026 20:00:09 GMT
+
+https://screenrant.com/matlock-season-3-matty-olympia-relationship-change-tease-skye-p-marshall/
+
+Matlock star Skye P. Marshall discusses the future of Olympia and Matty's relationship in season 3, hinting at deeper bonds and shared vulnerabilities.
+---------
+
+# 2026 Is Officially The Start Of A Glorious New Era For Dragon Ball And One Piece
+
+Anime, Dragon Ball, One Piece
+
+Wed, 22 Apr 2026 19:57:39 GMT
+
+https://screenrant.com/dragon-ball-one-piece-toei-animation-games-new-era/
+
+Toei, parent company of Toei Animation, announces the launch of Toei Games, marking the company's entry into the video game industry.
+---------
+
+# Is Stranger Things' Animated Spinoff Canon? Let's Break It Down
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Wed, 22 Apr 2026 19:45:18 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-spinoff-canon-explained/
+
+Stranger Things is expanding with its first spinoff series, but, given its time setting, its place in the main show's canon can be confusing.
+---------
+
+# Netflix's New 94-Minute Crime Thriller Movie Is An Instant Global Streaming Sensation
+
+Movies, Netflix
+
+Wed, 22 Apr 2026 19:42:08 GMT
+
+https://screenrant.com/180-movie-netflix-streaming-success-crime-thriller-april-2026/
+
+Netflix's new 94-minute crime thriller movie becomes an instant streaming sensation around the world just days after its release on April 17.
+---------
+
+# Studio Ghibli's When Marnie Was There Is More Important Than Ever
+
+Anime, Studio Ghibli, When Marnie Was There
+
+Wed, 22 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/studio-ghibli-when-marnie-was-there-importance/
+
+When Marnie Was There is one of the most underrated Ghibli films, but its high ratings tell a different story.
+---------
+
+# Rachel McAdams' R-Rated Horror Send Help Sets Streaming Hulu & Disney+ Release Date
+
+Movies, Send Help
+
+Wed, 22 Apr 2026 20:11:05 GMT
+
+https://www.cbr.com/rachel-mcadams-send-help-hulu-disney-release-date/
+
+The horror reunited McAdams with Doctor Strange in the Multiverse of Madness director.
+---------
+
+# Mads Mikkelsen's Fantasy Film Dust Bunny Tops HBO Max Charts
+
+Movies, Dust Bunny, Fantasy, HBO Max
+
+Wed, 22 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/mads-mikkelsen-dust-bunny-action-fantasy-hbo-max-success-april-2026/
+
+Bryan Fuller's Dust Bunny, a fantasy action film starring Mads Mikkelsen, is currently dominating the HBO Max streaming charts in the United States.
+---------
+
+# The Little Rascals is a Family Masterpiece in 2026
+
+Movies, The Little Rascals
+
+Wed, 22 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/the-little-rascals-family-masterpiece-gold-standard/
+
+1994's The Little Rascals nailed cartoon-style storytelling, and its practical humor shows why modern family movies continually miss the mark.
+---------
+
+# Heart Eyes 2 Officially Sets 2028 Release Date
+
+Movies, Heart Eyes
+
+Wed, 22 Apr 2026 19:47:30 GMT
+
+https://www.cbr.com/heart-eyes-2-release-date/
+
+A release date is officially set for the sequel to one of the best modern slasher movies.
+---------
+
+# Star Wars: Starfighter Director Gives His Honest Take on AI in Hollywood
+
+Movies, Sci-Fi, Star Wars, Star Wars: Starfighter
+
+Wed, 22 Apr 2026 19:40:09 GMT
+
+https://www.cbr.com/star-wars-starfighter-director-gives-his-honest-take-on-ai-in-hollywood/
+
+The world now knows if Star Wars: Starfighter used AI to help it along.
+---------
+
+# 'The Shooting' Is a Young Jack Nicholson's Hidden Western Movie Gem
+
+Movies, Western
+
+Wed, 22 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/jack-nicholson-forgotten-western-the-shooting/
+
+For many, seeing Jack Nicholson in a Cowboy hat isn't something they can picture, unless you know about this art-house western hit.
+---------
+
+# Disney+'s 79% RT Sci-Fi Adventure Series Canceled Too Soon Returns to the Charts 2 Years Later
+
+TV, Star Wars, The Acolyte
+
+Wed, 22 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/star-wars-the-acolyte-sci-fi-disney-plus-success-april-2026/
+
+Two years later, a canceled sci-fi series reemerges on Disney+'s Top 10 chart.
+---------
+
+# 29 Years Later, Sylvester Stallone's Cop Land Is Getting Rebooted
+
+TV, Cop Land, sylvester stallone
+
+Wed, 22 Apr 2026 19:15:37 GMT
+
+https://www.cbr.com/sylvester-stallone-cop-land-reboot-series/
+
+Sylvester Stallone's underrated crime drama movie is getting rebooted after nearly three decades.
+---------
+
+# Stranger Things Officially Recasts Horror Icon Robert Englund In New Role
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Wed, 22 Apr 2026 19:13:40 GMT
+
+https://www.cbr.com/stranger-things-recasts-robert-englund-new-role/
+
+A new era is starting.
+---------
+
+# Forget Scream, One of the Best Horror Satires of the Decade Is Officially Getting a Sequel
+
+Movie News, Heart Eyes, Paramount, Josh Ruben, Christopher Landon
+
+Wed, 22 Apr 2026 19:28:34 GMT
+
+https://collider.com/heart-eyes-2-sequel-confirmed-paramount-release-date-february-11-2028-director-josh-ruben-returning/
+
+Paramount's breakout horror hit Heart Eyes is officially getting a sequel in 2028, with comedian and director Josh Ruben returning.
+---------
+
+# Sylvester Stallone's 10/10 Crime Movie Is Officially Getting Rebooted at Paramount
+
+TV News, Cop Land, James Mangold, Robert Levine, Paramount
+
+Wed, 22 Apr 2026 19:19:52 GMT
+
+https://collider.com/tulsa-king-star-sylvester-stallone-crime-movie-cop-land-series-paramount-james-mangold-returning/
+
+Sylvester Stallone's cult crime movie Cop Land is getting the TV series reboot treatment, with director James Mangold returning.
+---------
+
+# 8 Best Panels To Attend at CALGARY EXPO 2026
+
+Movie, Fan Expo, The Lord of the Rings, Harry Potter, Once Upon A Time
+
+Wed, 22 Apr 2026 19:19:12 GMT
+
+https://collider.com/calgary-expo-2026-best-panels/
+
+CALGARY EXPO will be packed with exciting panels, featuring cast reunions from beloved fantasy franchises like The Lord of the Rings and Harry Potter.
+---------
+
+# ‘Disclosure Day’ Reveals First Look at Alien in Steven Spielberg Sci-Fi Thriller
+
+Movie News, Disclosure Day, Steven Spielberg
+
+Wed, 22 Apr 2026 20:12:27 GMT
+
+https://movieweb.com/disclosure-day-teaser-alien-first-look/
+
+Steven Spielberg's new movie, 'Disclosure Day', had a new trailer released, teasing a scary new alien species on film.
+---------
+
+# 'Invincible' Season 5: Cast, Story, & Release Date - Everything We Know
+
+Features, Everything We Know, Invincible, Prime Video, Superhero
+
+Wed, 22 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/invincible-season-5-everything-we-know/
+
+Everything you need to know about 'Invincible' Season 5 following the superhero show's latest haunting finale.
+---------
+
+# Move Over MonsterVerse, a New Godzilla Cinematic Universe is Confirmed
+
+Movie News, Godzilla, Godzilla Minus Zero
+
+Wed, 22 Apr 2026 19:17:12 GMT
+
+https://movieweb.com/toho-godzilla-world-cinematic-universe-confirmed/
+
+Toho Co. has made some new plans of its own to expand the world of Godzilla.
+---------
+
 # Star Trek's Terrifying Planet Killer: The Doomsday Machine
 
 TV, Op-Ed, Star Trek, Star Trek: The Original Series
