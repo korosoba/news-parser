@@ -1,3 +1,300 @@
+# Half-Life 3 Fans Lose It Over New Steam Machine Leak
+
+Gaming, Steam, Half-Life, PC
+
+Wed, 22 Apr 2026 14:50:23 GMT
+
+https://screenrant.com/half-life-3-steam-machine-leak-april-2026/
+
+It's sometimes been hard to believe that Half-Life 3 will ever come, but the latest update on Steam has fans posting about hope once more.
+---------
+
+# Why Radiohead’s Most Controversial Album Is Actually Their Best In 2026
+
+Lists, Radiohead
+
+Wed, 22 Apr 2026 14:46:41 GMT
+
+https://screenrant.com/radiohead-albums-ranked/
+
+We rank every Radiohead studio album from 'Pablo Honey' to 'A Moon Shaped Pool,' including 2026 solo updates and why 'The Bends' is trending again.
+---------
+
+# Thor's Arrival In Wakanda Has Officially Been Dethroned (But There's A Twist)
+
+Superheroes, Daredevil: Born Again, Avengers: Infinity War, Marvel Cinematic Universe
+
+Wed, 22 Apr 2026 14:45:26 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-jessica-jones-return-dethroned-thor/
+
+Thor’s arrival in Wakanda is one of the most exciting MCU moments of all time, but another scene, for very different reasons, now rivals it.
+---------
+
+# 10 Praiseworthy Adventure Movies Nobody Ever Talks about (#1 Needs More Attention)
+
+Movies, Hidalgo, The Hitchhiker's Guide to the Galaxy, John Carter, Valerian and the City of a Thousand Planets, Stardust, The Lost City of Z, The Road to El Dorado, The Adventures of Tintin, The 13th Warrior
+
+Wed, 22 Apr 2026 14:45:19 GMT
+
+https://screenrant.com/adventure-movies-praiseworthy-nobody-remembers/
+
+Some of the most adored movies of all time are adventure films, but many projects in the genre don't get the appreciation they deserve.
+---------
+
+# Invincible Season 5 Return Confirmed By Prime Video's New Villain Star: "I'm Excited About It"
+
+TV, Invincible
+
+Wed, 22 Apr 2026 14:41:17 GMT
+
+https://screenrant.com/invincible-season-5-thragg-return-confirmed-lee-pace/
+
+EXCLUSIVE: Invincible's Lee Pace confirms that Thragg will return in season 5, teasing what's next after the unexpected conclusion to season 4.
+---------
+
+# Marvel Ends Hulk's Story In the Perfect Way. Here Are the Details
+
+Marvel Comics, Hulk
+
+Wed, 22 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/hulk-ending-bruce-banner-perfect-conclusion/
+
+After unlocking godlike power, the Hulk saves Earth but retreats to Antarctica, leaving humanity to believe he died in the core. Will this isolation l
+---------
+
+# Punisher's Next Appearance Unveils Its Villain, And It's Frank's Most Personal Foe Yet
+
+Comics, punisher, The Punisher
+
+Wed, 22 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/punisher-next-villain-personal-collateral-damage/
+
+What's the damage?
+---------
+
+# Invincible Season 4 Ending Explained (In Full)
+
+Streaming TV, Invincible
+
+Wed, 22 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/invincible-season-4-ending-explained/
+
+Invincible season 4's finale revealed the Viltrumites' next steps following the war, and it will have huge ramifications heading into next season.
+---------
+
+# The Last Of Us Teases Joel's Return Amid Part 3 Rumours
+
+Gaming, The Last of Us, Triple-A Games
+
+Wed, 22 Apr 2026 14:18:12 GMT
+
+https://screenrant.com/last-of-us-part-3-joel-return-tease/
+
+While The Last Of Us saga is still raging on through the television series, fans have been waiting for news on Last Of Us Part 3 for ages.
+---------
+
+# Heartstopper Movie Gets Teaser Trailer, Release Date & New Title For Nick & Charlie's Final Chapter
+
+Movies, Heartstopper
+
+Wed, 22 Apr 2026 14:16:39 GMT
+
+https://screenrant.com/heartstopper-movie-trailer-release-date-title-images/
+
+Heartstopper is returning for one final chapter this year, and now Netflix has revealed the release date for the film Heartstopper Forever.
+---------
+
+# Hugh Jackman's The Death of Robin Hood Is Officially Bloodier and Grittier Than Wolverine
+
+Movies, hugh jackman, The Death of Robin Hood
+
+Wed, 22 Apr 2026 14:53:36 GMT
+
+https://www.cbr.com/hugh-jackman-the-death-of-robin-hood-new-promo/
+
+After reprising his role of Wolverine in 2024, the actor will release a film that's even bloodier and grittier.
+---------
+
+# Marvel's New Punisher Special Officially Continues an Important Rating Tradition
+
+TV, Marvel, Marvel Comics, MCU, The Punisher, The Punisher: One Last Kill, Spider-Man: Brand New Day, Daredevil: Born Again, Daredevil, Marvel's The Punisher
+
+Wed, 22 Apr 2026 14:41:50 GMT
+
+https://www.cbr.com/marvel-disney-punisher-special-continues-rating-tradition/
+
+The news Marvel fans have been waiting to hear about The Punisher is now official.
+---------
+
+# Animal Crossing Officially Gets New Release In August
+
+Games, Animal Crossing, Nintendo
+
+Wed, 22 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/animal-crossing-new-release-august-2026/
+
+The Animal Crossing franchise is getting a new release in August 2026, though international fans will have to work hard to acquire one.
+---------
+
+# 5 Perfect American Sitcoms
+
+TV, Sitcoms, Schitt's Creek, The Golden Girls, The Office
+
+Wed, 22 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/best-american-sitcoms-list/
+
+There have been many great American sitcoms over the decades, but a few stand out as the best of the best.
+---------
+
+# Very Much Not Official Marvel/DC Crossovers
+
+Comics, dc vs marvel, CSBG, The Line It Is Drawn
+
+Wed, 22 Apr 2026 14:22:16 GMT
+
+https://www.cbr.com/marvel-dc-unofficial-crosovers/
+
+The Line it is Drawn celebrates today's Spider-Man/Superman crossover with some more unusual Marvel/DC crossovers
+---------
+
+# Batman And Lobo Will Face Off After Supergirl's Movie Releases In Theaters
+
+Comics, DC Comics
+
+Wed, 22 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/detective-comics-2026-annual-batman-lobo-crossover/
+
+The Dark Knight and the "Main Man" will meet in DC Comics soon.
+---------
+
+# Warner Bros.' Shelved Coyote vs Acme Unveils First Look
+
+Movies, Coyote Vs. Acme
+
+Wed, 22 Apr 2026 13:31:09 GMT
+
+https://www.cbr.com/coyote-vs-acme-first-trailer/
+
+Few films have been through so much.
+---------
+
+# 10 Near-Perfect Inuyasha Filler Episodes Everyone Should Watch
+
+Anime, Inuyasha
+
+Wed, 22 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/inuyasha-near-perfect-anime-filler-episodes/
+
+Inuyasha is infamous for its filler, but there are some anime original episodes that every fan actually needs to watch.
+---------
+
+# The Beatles Officially Broke Up in 1970 and One Unexpected Man Helped Tear Them Apart
+
+Music Features, Paul McCartney, John Lennon, The Beatles, Music, Rock
+
+Wed, 22 Apr 2026 14:33:53 GMT
+
+https://collider.com/the-beatles-1970-break-up-caused-by-allen-klein/
+
+The Beatles' business affairs led to internal conflicts, lawsuits, and ultimately contributed to the band's breakup, despite Yoko Ono's often blamed role.
+---------
+
+# The Lord of the Rings Officially Returns This Year
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, Morfydd Clark, The Lord of the Rings
+
+Wed, 22 Apr 2026 14:08:42 GMT
+
+https://collider.com/lord-of-the-rings-the-rings-of-power-season-3-release-date-window-2026/
+
+Prime Videos Lord of the Rings series, The Rings of Power sets release date for 2026 as the franchise returns to theaters next year.
+---------
+
+# ‘Andor’ Star Tries to Rescue FIFA World Cup in Jaw-Dropping True Story First Netflix Trailer
+
+Movie News, Diego Luna, Sports, Netflix, Andor
+
+Wed, 22 Apr 2026 13:53:49 GMT
+
+https://collider.com/netflix-movie-diego-luna-mexico-86-trailer-fifa-world-cup/
+
+Diego Luna returns to Netflix with the incredible true story of the '86 World Cup in Mexico 86.
+---------
+
+# 'The Death of Robin Hood' Trailer Casts Hugh Jackman as a Grizzled Outlaw
+
+Movie News, The Death of Robin Hood, Hugh Jackman
+
+Wed, 22 Apr 2026 14:38:29 GMT
+
+https://movieweb.com/hugh-jackman-death-of-robin-hood-trailer/
+
+The first trailer for Hugh Jackman's 'The Death of Robin Hood' was released, showing an old and grizzled version of the legendary outlaw.
+---------
+
+# 'Silence of the Lambs' Secures New Free Streaming Home 35 Years Later
+
+Movie News, The Silence of the Lambs, Silence of the Lambs, Coming/Leaving Streaming, Horror
+
+Wed, 22 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/silence-of-the-lambs-best-horror-streaming-tubi-may-2026/
+
+The best serial killer movie ever made that changed the horror genre forever is officially coming to free streaming.
+---------
+
+# 'Untamed' Is an Netflix Action Thriller Perfect for 'Reacher' Fans
+
+Features, Untamed, Reacher, Netflix
+
+Wed, 22 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/untamed-netflix-thriller-reacher-fans/
+
+'Reacher' fans who enjoy the Prime Video series starring Alan Ritchson will enjoy Netflix's 'Untamed' series starring Eric Bana.
+---------
+
+# Robert Englund's 'Stranger Things: Tales From '85' Character Revealed in First Look
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Robert Englund, Netflix
+
+Wed, 22 Apr 2026 13:45:30 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-robert-englund-cosmo-first-look/
+
+A first look has unmasked Robert Englund's 'Stranger Things: Tales From '85' character Cosmo, revealing new details about the Netflix spin-off series.
+---------
+
+# First 'Coyote vs. ACME' Trailer Finally Released
+
+Movie News, Coyote Vs. Acme
+
+Wed, 22 Apr 2026 13:28:43 GMT
+
+https://movieweb.com/first-coyote-vs-acme-trailer-released/
+
+The first official trailer for the abandoned and nearly shelved 'Coyote vs. ACME' was released, showing Wile E. Coyote's return to cinemas.
+---------
+
+# Jim Belushi Joins Kumail Nanjiani & Brittany O’Grady in Sci-Fi Thriller 'Green Bank'
+
+Movie News, Jim Belushi, Tatiana Maslany, Sci-Fi, Thriller
+
+Wed, 22 Apr 2026 13:11:25 GMT
+
+https://movieweb.com/jim-belushi-sci-fi-thriller-green-bank/
+
+The actor has joined sci-fi thriller set in the real-life West Virginia “Quiet Zone,” where a sleep scientist uncovers a dark reality.
+---------
+
 # Spider-Man Unveils New Redesign as Spider-Carnage
 
 Marvel Comics, Spider-Man
