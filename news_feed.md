@@ -1,3 +1,179 @@
+# Netflix's 2-Part Sci-Fi Series That You Can Binge In 5 Hours Made A Near-Perfect Franchise Even Better
+
+TV, Pacific Rim, Pacific Rim: The Black, Masked Recs
+
+Wed, 22 Apr 2026 22:01:18 GMT
+
+https://screenrant.com/pacific-rim-the-black-netflix-spinoff-made-franchise-better/
+
+Netflix's critically acclaimed sci-fi action series managed to make a blockbuster franchise even better by expanding on its fictional world.
+---------
+
+# Harry Potter's Action-Fantasy Successor Is Here, And It's The Last Series Anyone Expected (Exclusive)
+
+Anime, Harry Potter, Wistoria: Wand and Sword, Wistoria: Wand and Sword - Season 1, Wistoria: Wand and Sword - Season 2, Action, Fantasy
+
+Wed, 22 Apr 2026 22:01:18 GMT
+
+https://screenrant.com/wistoria-wand-sword-harry-potter-heir-action-fantasy/
+
+The perfect action-fantasy successor to Harry Potter has been confirmed in an exclusive interview, and the show is currently airing a second season.
+---------
+
+# Baldur's Gate 3 Official Sequel Has Gamers Super Concerned
+
+Gaming, Baldur's Gate 3, PC
+
+Wed, 22 Apr 2026 22:01:18 GMT
+
+https://screenrant.com/baldurs-gate-3-official-sequel-show-gamers-react/
+
+Baldur's Gate 3 has set the bar incredibly high for the franchise, and gamers are starting to get nervous about the official upcoming sequel.
+---------
+
+# Michael Jackson's Real-Life Mother's Reaction To Michael Biopic Revealed By Producer
+
+Movies, Michael
+
+Wed, 22 Apr 2026 22:01:10 GMT
+
+https://screenrant.com/michael-2026-katherine-jackson-response-graham-king/
+
+EXCLUSIVE: Paris Jackson has been very critical of the new Michael Jackson biopic, but a producer is now revealing what Katherine Jackson thinks.
+---------
+
+# 37 Years Later, This Sci-Fi Quote Is Still The Best Of All Time
+
+TV, Star Trek: The Next Generation, Star Trek
+
+Wed, 22 Apr 2026 21:32:19 GMT
+
+https://screenrant.com/star-trek-the-next-generation-picard-best-sci-fi-quote/
+
+n a genre with too many straightforward heroes and villains, the best line is any sci-fi show is an iconic reminder of reality's contradictions.
+---------
+
+# Ocean's 8 Did 1 Thing Better Than the Original Trilogy
+
+Movies, Ocean's Eight
+
+Wed, 22 Apr 2026 22:00:13 GMT
+
+https://www.cbr.com/oceans-eight-better-than-original-trilogy/
+
+The Oceans franchise has lasted for decades but this overlooked entry might be one of the most important of the series.
+---------
+
+# This X-Files Theory May Explain Cigarette Smoking Man's Mysterious Survival
+
+TV, The X-Files
+
+Wed, 22 Apr 2026 21:40:13 GMT
+
+https://www.cbr.com/the-x-files-cigarette-smoking-man-theory/
+
+A thoughtful and mind-blowing fan theory may finally explain why the Cigarette Smoking Man in The X-Files seemingly never dies.
+---------
+
+# This 10/10 Western Still Has the Genre's Greatest Ending of All Time
+
+Movies, Western, Butch Cassidy and the Sundance Kid
+
+Wed, 22 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/butch-cassidy-sundance-kid-best-western-ending-ever/
+
+Butch Cassidy and the Sundance Kid tells the story of two outlaws on a quest for freedom, with one of the most tragic endings of all time.
+---------
+
+# Sam Raimi's Fan-Favorite Horror Confirmed To Return, But With A Twist
+
+Comics, Archie Comics, archie, Army of Darkness, Evil Dead
+
+Wed, 22 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/archie-army-of-darkness-4-release-date-confirmed/
+
+The next chapter of one of the most brutal horror epics of all time is on its way, and it will set up Riverdale's biggest battle yet.
+---------
+
+# Eric Stonestreet Reveals How The Super Bowl Help Land Him An Unexpected Role
+
+TV, Happy's Place, Modern Family, Sitcoms
+
+Wed, 22 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/eric-stonestreet-super-bowl-happys-place-story/
+
+Super Bowl is more than just a football game... it's networking for actors.
+---------
+
+# 10 Near-Perfect Marvel Shows That No One Remembers Today
+
+TV, Marvel, Legion, Luke Cage, Moon Knight
+
+Wed, 22 Apr 2026 22:04:12 GMT
+
+https://collider.com/near-perfect-marvel-shows-no-one-remembers/
+
+From the severely underrated FX drama Legion to the miniseries Moon Knight, these Marvel superhero shows have been largely forgotten by audiences.
+---------
+
+# In Just 4 Weeks, One of 2026’s Highest-Rated Crime Thrillers Officially Arrives
+
+Movie News, Tuner, Leo Woodall, Dustin Hoffman, Crime
+
+Wed, 22 Apr 2026 22:00:13 GMT
+
+https://collider.com/2026-highest-rated-movies-tuner-leo-woodall-release-date-may-22/
+
+Tuner, the highly anticipated crime thriller starring Leo Woodall, will be released in theaters in only four weeks. Find out more details here.
+---------
+
+# Taylor Sheridan Quietly Delivered a 10/10 Performance in a War Movie You've Never Seen
+
+Movie Features, 12 Strong, Taylor Sheridan, Thriller, War
+
+Wed, 22 Apr 2026 21:52:13 GMT
+
+https://collider.com/taylor-sheridan-12-strong-performance-war-movie-chris-hemsworth/
+
+The 2018 war movie 12 Strong, starring Chris Hemsworth and Michael Shannon, also features a strong performance from Taylor Sheridan.
+---------
+
+# Netflix's 87% Thriller Is Taylor Sheridan's Best Film and It's Not Even Close
+
+Movie Features, Wind River, Taylor Sheridan, Jeremy Renner, Elizabeth Olsen
+
+Wed, 22 Apr 2026 21:30:13 GMT
+
+https://collider.com/wind-river-best-taylor-sheridan-movie/
+
+Taylor Sheridan's magnum opus is Wind River, a film about the reality of crime committed against Indigenous women on a modern-day reservation.
+---------
+
+# 'Miami Vice' Officially Moving Forward With Michael B. Jordan & Austin Butler
+
+Movie News, Miami Vice, Michael B. Jordan, Austin Butler, Joseph Kosinski
+
+Wed, 22 Apr 2026 22:01:49 GMT
+
+https://movieweb.com/miami-vice-reboot-title/
+
+The long-speculated about re-imagining of the classic TV series is finally moving forward.
+---------
+
+# 'Pokémon' Is Still the Best Video Game Adaptation of All Time
+
+Features, Pokémon, Pokemon
+
+Wed, 22 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/pokemon-greatest-video-game-adaptation/
+
+Video game adaptations tend to either be amazing or really bad, but one perfected the formula right out of the gate. Read on for more.
+---------
+
 # 25 Years Later, John Singleton's Baby Boy Is More Powerful Than Ever
 
 Movies, Baby Boy, John Singleton
