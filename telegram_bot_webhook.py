@@ -44,7 +44,7 @@ application = ApplicationBuilder().token(TELEGRAM_BOT_TOKEN).build()
 
 def groq_call(messages: list, max_tokens: int = 1024, temperature: float = 0.5) -> str:
     response = groq_client.chat.completions.create(
-        model="llama-3.3-70b-versatile",
+        model="meta-llama/llama-4-scout-17b-16e-instruct",
         messages=messages,
         temperature=temperature,
         max_tokens=max_tokens,
