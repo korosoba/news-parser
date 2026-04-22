@@ -1,3 +1,212 @@
+# NCIS Changes Format At The Absolute Worst Time
+
+Network TV, NCIS
+
+Wed, 22 Apr 2026 11:46:19 GMT
+
+https://screenrant.com/ncis-season-23-episode-17-change-format-worst-timing/
+
+In the middle of its strongest season in years, NCIS season 23 changes its storytelling approach at the worst time with a contained outing.
+---------
+
+# Red Dead Redemption 2 Players Stunned By New Feature After 8 Years
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2, Rockstar Games
+
+Wed, 22 Apr 2026 11:30:31 GMT
+
+https://screenrant.com/red-dead-redemption-2-players-stunned-by-new-feature-after-8-years/
+
+Discover a rare and unexpected encounter in Red Dead Redemption 2, eight years after release, showcasing the game's attention to detail and realism.
+---------
+
+# A Surprise Legend Of Zelda Remaster Is Dividing Gamers
+
+Gaming, The Legend of Zelda
+
+Wed, 22 Apr 2026 11:30:25 GMT
+
+https://screenrant.com/legend-of-zelda-links-awakening-pc-port-gamers-react/
+
+The unofficial native PC port of The Legend of Zelda: Link's Awakening has been re-released, allowing fans to enjoy the enhanced version.
+---------
+
+# Elden Ring Official 2028 Return Has Gamers Marking Their Calendars
+
+Gaming, Elden Ring, PC
+
+Wed, 22 Apr 2026 11:14:53 GMT
+
+https://screenrant.com/elden-ring-movie-2028-official-release-fan-reactions/
+
+Elden Ring is officially making a massive return in 2028, and a major new announcement has gamers extremely hopeful for what's ahead.
+---------
+
+# Dragon Ball Z Filler List: Every Episode You Can Skip
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Wed, 22 Apr 2026 11:00:20 GMT
+
+https://screenrant.com/dragon-ball-z-filler-list-guide-episodes-skip/
+
+This Dragon Ball Z anime filler guide explores the series' best non-canon episodes that expand the series' characters & the ones that can be skipped.
+---------
+
+# Dark Souls 3: Shadows Of The First Flame Is Jaw-Dropping
+
+Gaming, Dark Souls 3
+
+Wed, 22 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/dark-souls-3-shadows-of-the-first-flame-is-jaw-dropping/
+
+Shadows of the First Flame, a free graphics mod for Dark Souls 3, enhances the game's visuals with dynamic lighting, and more.
+---------
+
+# Hogwarts Legacy 2 Setting And Era Unites Gamers
+
+Gaming, Hogwarts Legacy, Harry Potter
+
+Wed, 22 Apr 2026 10:51:44 GMT
+
+https://screenrant.com/hogwarts-legacy-2-setting-and-era-unites-gamers/
+
+The next Hogwarts Legacy game is on the way, but it could easily be a very different prospect from the first release.
+---------
+
+# Good Omens Is the Smartest Fantasy Show of the 21st Century
+
+TV, Good Omens, Fantasy
+
+Wed, 22 Apr 2026 11:30:13 GMT
+
+https://www.cbr.com/good-omens-smartest-fantasy-show-21st-century/
+
+This underrated Prime Video original starring David Tennant avoids a common misstep made by other modern fantasy shows.
+---------
+
+# 10 Best DC Comics Crossovers Of All Time
+
+Comics, DC Comics
+
+Wed, 22 Apr 2026 11:00:13 GMT
+
+https://www.cbr.com/best-dc-comics-crossovers-ranked/
+
+Out of all of DC Comics' crossover events, these are the ones that really do earn the title of being the best.
+---------
+
+# Robert Pattinson's Electric Sci-Fi Adventure Is Officially an HBO Max Sleeper Hit
+
+Movie, Mickey 17, Robert Pattinson, Bong Joon Ho, Mark Ruffalo
+
+Wed, 22 Apr 2026 11:51:14 GMT
+
+https://collider.com/sci-fi-thriller-robert-pattinson-mickey-17-hbo-max-streaming-success/
+
+Bong Joon Ho’s Parasite follow-up, the sci-fi adventure Mickey 17 with Robert Pattinson, was a box office flop that’s finding new life on HBO Max.
+---------
+
+# Netflix's Hilarious 4-Part Sitcom Is Still One of the Best Weekend Binges on the Platform
+
+TV Features, Unbreakable Kimmy Schmidt, Netflix, Ellie Kemper, Tina Fey
+
+Wed, 22 Apr 2026 11:50:13 GMT
+
+https://collider.com/netflix-unbreakable-kimmy-schmidt-sitcom-weekend-binge/
+
+From larger-than-life characters and witty writing, Unbreakable Kimmy Schmidt remains one of the best sitcoms on the platform.
+---------
+
+# 10 K-Dramas Where Every Episode Is a Masterpiece
+
+TV, South Korea, When Life Gives You Tangerines, The Glory, Hospital Playlist
+
+Wed, 22 Apr 2026 11:42:13 GMT
+
+https://collider.com/k-dramas-every-episode-masterpiece/
+
+The Glory, When Life Gives You Tangerines, and Hospital Playlist are among the rare class of K-dramas where every episode is truly a masterpiece.
+---------
+
+# 10 Psychological Thriller Movies That Will Keep You Hooked From Start to Finish
+
+Movie, Psychological Thriller, Caché, The Conversation, The Vanishing
+
+Wed, 22 Apr 2026 11:36:13 GMT
+
+https://collider.com/psychological-thriller-movies-that-will-keep-you-hooked-from-start-to-finish/
+
+Caché, Blow-Up, and The Vanishing are incredible psychological thriller movies that will keep you hooked from start to finish.
+---------
+
+# Ridley Scott’s Divisive ‘Prince of Egypt’ Replacement Leaves Free Streaming on April 30
+
+Movie News, Ridley Scott, Exodus: Gods and Kings, Christian Bale, Joel Edgerton
+
+Wed, 22 Apr 2026 11:31:13 GMT
+
+https://collider.com/ridley-scott-christian-bale-historical-epic-exodus-gods-and-kinds-leaving-streaming-tubi-april-30/
+
+Ridley Scott's controversial historical epic, Exodus: Gods and Kings, featuring Christian Bale, is about to depart its free streaming home.
+---------
+
+# HBO’s Most Shocking Drama Becomes a Late-Night Sleeper Hit 4 Years Later
+
+TV Features, Euphoria, Sam Levinson, Zendaya, Jacob Elordi
+
+Wed, 22 Apr 2026 11:27:12 GMT
+
+https://collider.com/euphoria-hbo-drama-sleeper-hit-streaming/
+
+4 years since its last season premiered, HBO's most shocking drama has returned as a late-night sleeper hit on more than one streaming platform.
+---------
+
+# 10 Most Perfect Pixar Endings, Ranked
+
+Movie, Toy Story 3, Ratatouille, WALL·E, Coco
+
+Wed, 22 Apr 2026 11:08:14 GMT
+
+https://collider.com/most-perfect-pixar-movie-endings-ranked/
+
+So many Pixar movies have pretty much perfect endings, including classics like the first three Toy Story movies, Ratatouille, and The Incredibles.
+---------
+
+# John Wick Franchise Star Officially Confirmed To Lead Apple TV’s New 8-Part Spy Series
+
+TV News, Ana De Armas, Jennifer Connelly, Apple TV, Tobias Menzies
+
+Wed, 22 Apr 2026 11:00:13 GMT
+
+https://collider.com/apple-tv-spy-thriller-safe-houses-cast-ana-de-armas/
+
+Ana de Armas stars in Apple TV's upcoming eight-episode thriller Safe Houses, a spy series from Gideon Raff, alongside David Lyons and Tobias Menzies.
+---------
+
+# 'The Day of the Jackal' Season 2 Images Tease Eddie Redmayne's Return
+
+TV News, The Day of the Jackal, Action, Thriller
+
+Wed, 22 Apr 2026 11:03:47 GMT
+
+https://movieweb.com/day-jackal-season-2-eddie-redmayne-images/
+
+New images reveal that Peacock's 'The Day of the Jackal' Season 2 has finally entered production.
+---------
+
+# 'Doctor Who's 2026 Christmas Special Should Use Steven Moffat's Scrapped 50th Anniversary Idea
+
+Features, Doctor Who
+
+Wed, 22 Apr 2026 11:00:18 GMT
+
+https://movieweb.com/doctor-who-2026-comeback-scrapped-steven-moffat-idea/
+
+Former showrunner Steven Moffat once had an unconventional idea about how to celebrate 'Doctor Who's longevity. Now is the time to pull it off.
+---------
+
 # Fallout 5 "Perfect" Setting Is Getting Everyone Excited
 
 Gaming, Fallout 5, Fallout
