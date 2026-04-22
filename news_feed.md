@@ -1,3 +1,256 @@
+# Spider-Man Unveils New Redesign as Spider-Carnage
+
+Marvel Comics, Spider-Man
+
+Wed, 22 Apr 2026 13:10:19 GMT
+
+https://screenrant.com/spider-man-carnage-redesign-costume/
+
+Spider-Man's wildest upgrade yet, explained.
+---------
+
+# Fallout: New Vegas 2 Quietly Confirmed, But There's A Major Catch
+
+Gaming, Fallout: New Vegas, Fallout
+
+Wed, 22 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/fallout-new-vegas-2-confirmed-then-scrapped/
+
+A Fallout: New Vegas sequel was underway at Obsidian Entertainment after the release of the first game, before it was quietly canned.
+---------
+
+# Superman's Venom Form Officially Revealed in Marvel/DC Crossover
+
+Comics, Superman, Venom
+
+Wed, 22 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/superman-new-venom-form-redesign-crossover-marvel-dc/
+
+In a historic first, Superman just became the latest host of Marvel's Venom symbiote. Marvel and DC's latest crossover is pulling out all the stops.
+---------
+
+# 10 Great Western Movies Perfect For Tombstone Fans
+
+Movies, Tombstone
+
+Wed, 22 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/great-western-movies-tombstone-fans/
+
+Tombstone might be a perfect western, but there are plenty of other great movies for fans to check out if they love the 1993 Kurt Russell classic.
+---------
+
+# 15 Most Satisfying TV Shows to Rewatch
+
+Classic TV
+
+Wed, 22 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/most-satisfying-tv-show-rewatches/
+
+The most rewatchable TV shows, like Dark and Twin Peaks, are so densely packed and dramatically rich that they reward a second viewing.
+---------
+
+# Wile E. Coyote Uncovers The Truth In Action-Packed Coyote Vs. Acme Trailer
+
+Movies, Coyote Vs. Acme
+
+Wed, 22 Apr 2026 12:56:49 GMT
+
+https://screenrant.com/coyote-vs-acme-trailer-released/
+
+The ACME Corporation is getting exposed in Coyote vs. Acme, as Wile E. Coyote sues them for all of the bad gadgets and products over the decades.
+---------
+
+# Xbox Game Pass' Newest Free Game Is Impossible To Put Down, Players Warn
+
+Gaming, Xbox Game Pass, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Wed, 22 Apr 2026 12:48:49 GMT
+
+https://screenrant.com/xbox-game-pass-april-2026-perfect-freebie/
+
+Xbox Game Pass gets a new day-one release, and people who've played it already are warning that the game is nearly impossible to put down.
+---------
+
+# Markiplier's New Horror Smash Hit Gets Streaming Release Update After $49M Box Office Success
+
+Movies, Iron Lung
+
+Wed, 22 Apr 2026 12:45:17 GMT
+
+https://screenrant.com/markiplier-iron-lung-streaming-release-update/
+
+Markiplier's new horror smash hit gets a streaming release update from the creator and star after its massive $49 million box office success.
+---------
+
+# For All Mankind: Remembering Gordo & Tracy Stevens' Heartbreaking Deaths In Season 2
+
+TV, For All Mankind, Op-Ed
+
+Wed, 22 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/for-all-mankind-tracy-gordo-death-impact/
+
+For All Mankind has lost several beloved characters since Apple TV's astronaut saga began, but the impact of these particular losses are still felt.
+---------
+
+# Smokey And The Bandit: Burt Reynolds' 1977 Classic Driving Movie
+
+Movies, Smokey and the Bandit, Sally Field, Burt Reynolds, Recommendation
+
+Wed, 22 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/smokey-and-the-bandit-movie-crime-caper-age-well/
+
+Starring Burt Reynolds and Sally Field, this 1977 crime caper's characters, humor, and approach to vehicular action all hold up even today.
+---------
+
+# Crunchyroll's Best Spring Isekai Anime Gets New Action-Packed 2026 Release
+
+Anime, That Time I Got Reincarnated as a Slime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, Crunchyroll
+
+Wed, 22 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/crunchyroll-slime-isekai-anime-movie-2026-release/
+
+Crunchyroll's greatest 2026 isekai comeback is ready for its new action-packed U.S. release.
+---------
+
+# Sarah Reveals A Shocking Secret In Exclusive Matlock Season 2 Finale Clip
+
+TV, Matlock, CBS
+
+Wed, 22 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/matlock-season-2-finale-sarah-franklin-clip/
+
+Sarah reveals a secret to Madeline, Olympia, and Hunter in CBR's exclusive clip from Matlock Season 2's two-hour finale episode on Thursday, April 23.
+---------
+
+# Ryan Reynolds' New Deadpool Comments Finally Confirm His Trilogy's Biggest Issue
+
+Movies, Marvel Cinematic Universe, Deadpool & Wolverine
+
+Wed, 22 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/ryan-reynolds-deadpool-comments-confirm-biggest-issue/
+
+Ryan Reynolds comments about the fate of Deadpool finally prove why the movies were fun but lacked true substance.
+---------
+
+# Get to know the cast of Michael | with Jafaar Jackson, Colman Domingo, Nia Long and Juliano Valdi
+
+Movies, Michael, Colman Domingo
+
+Wed, 22 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/video/get-to-know-the-cast-of-michael-with-jafaar-jackson-colman-domingo-nia-long-and-juliano-valdi/
+
+In this heartwarming, intimate interview with the cast of Michael, the new biopic which follows the life and career of Michael Jackson, we get Real with Jafaar Jackson, Colman Domingo (Euphoria, The Four Seasons), Nia Long (Empire, The Best Man) and Juliano Valdi (9-1-1).The cast discusses how unrecognizable Colman is in his role as Joe Jackson, the sweetness Jafaar brings to the role of Michael and how Juliano brought joy to the set. Nia reflects on the lessons learned in a decades-spanning career and her super power as a person and actor.Bringing joy, light and insight, this is We're Not Really Strangers!
+---------
+
+# Marvel Officially Reveals New X-Men Logo Ahead of Next Big Title
+
+Comics, X-Men
+
+Wed, 22 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/marvel-x-men-dnx-logo-revealed/
+
+Marvel Comics is giving the X-Men a brand-new logo ahead of the next major X-event, and it proves just how terrified the world is of mutants.
+---------
+
+# John Cena's 'Coyote vs. Acme' Finally Releases First Trailer After Being Saved From Cancellation
+
+Movie News, Coyote Vs. Acme, Will Forte, Lana Condor, John Cena
+
+Wed, 22 Apr 2026 13:00:23 GMT
+
+https://collider.com/john-cena-coyote-vs-acme-trailer/
+
+After being shelved in 2023, Coyote vs. Acme is now officially set for a theatrical release. Watch the star-studded trailer now.
+---------
+
+# 'The Boys' Could Say Goodbye To Its Core Team If It Follows the Comics
+
+TV Features, The Boys, Karl Urban, Erin Moriarty, Prime Video
+
+Wed, 22 Apr 2026 12:24:13 GMT
+
+https://collider.com/the-boys-could-say-goodbye-core-team-comics/
+
+The Boys may not copy its comics exactly, but Season 5 hints suggest the Prime Video series could still say goodbye to its core team.
+---------
+
+# 6 Most Addictive Sci-Fi Movie Franchises of All Time, Ranked
+
+Movie, Mad Max: Fury Road, Back to the Future, Star Wars, Star Trek
+
+Wed, 22 Apr 2026 12:20:13 GMT
+
+https://collider.com/most-addictive-sci-fi-movie-franchises-all-time-ranked/
+
+Science fiction is famous for its compelling stories, and movie franchises like Star Wars and Back to the Future are outright addictive to audiences.
+---------
+
+# 'Rebel Moon' Star Gives a Major Update on Zack Snyder's Next Passion Project [Exclusive]
+
+Exclusives, The Last Photograph, Zack Snyder, Fra Fee, Stuart Martin
+
+Wed, 22 Apr 2026 12:01:15 GMT
+
+https://collider.com/new-zack-snyder-movie-the-last-photograph-fra-fee-update-completed-passion-project/
+
+Fra Fee shared a major update on the status of Zack Snyder's long-gestating The Last Photograph and the experience of working with the director.
+---------
+
+# The Janitor's Toaster-Bomb Adds to the Character's Collection of Wild Inventions From the Classic 'Scrubs' Episodes
+
+Features, Scrubs
+
+Wed, 22 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/scrubs-revival-janitor-invention-joke/
+
+Neil Flynn is finally back as the Janitor, and his return in the recent 'Scrubs' finale immediately revived an underrated gag.
+---------
+
+# Viral Horror Short 'Mora' Getting Feature Film From 'Parasite' Studio Neon
+
+Movie News, YouTube, Horror
+
+Wed, 22 Apr 2026 12:30:53 GMT
+
+https://movieweb.com/viral-horror-mora-film-neon/
+
+Neon is turning Sam Evenson’s viral horror short 'Mora' into a feature film, with the original creator returning to write and direct
+---------
+
+# 'Invincible' Season 4 Ending, Explained
+
+Features, Invincible, Prime Video, Superhero
+
+Wed, 22 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/invincible-season-4-ending-explained/
+
+After an intense season marked by war and trauma, where does the ending of Season 4 find the characters of 'Invincible'?
+---------
+
+# Forget 'Blade Runner,' the Best Cyberpunk Action Movie of All Time Is a Violent Classic on Free Streaming
+
+Movie News, RoboCop, Streaming Recommendations, Blade Runner, Action
+
+Wed, 22 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/robocop-best-cyberpunk-action-streaming-tubi-april-2026/
+
+Ridley Scott's 'Blade Runner' is one of the most influential movies ever made, but it's missing one thing that 'RoboCop' has in spades: action.
+---------
+
 # NCIS Changes Format At The Absolute Worst Time
 
 Network TV, NCIS
