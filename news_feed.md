@@ -1,3 +1,146 @@
+# Animal Farm Review: A Made-For-Kids Movie That Completely Betrays Its Source Material
+
+New Movies, Animal Farm
+
+Wed, 22 Apr 2026 04:00:25 GMT
+
+https://screenrant.com/animal-farm-2025-movie-review/
+
+Andy Serkis’ animated Animal Farm abandons the lessons of George Orwell’s classic in favor of a lazy kids movie that talks down to its audience.
+---------
+
+# 15 Best Enemies To Lovers Manhwa
+
+Anime
+
+Wed, 22 Apr 2026 03:58:20 GMT
+
+https://screenrant.com/best-enemies-to-lovers-manhwa/
+
+From Purple Hyacinth to Iseop's Romance, these are the best enemies to lovers manhwa that every romance fan needs to try reading at least once.
+---------
+
+# 12 Years Later, Naruto Shippuden's Worst Arc Of All Time Proves Fans Have Been Sleeping On Boruto
+
+Anime, Naruto, Naruto: Shippuden
+
+Wed, 22 Apr 2026 03:30:19 GMT
+
+https://screenrant.com/mecha-naruto-worst-arc-boruto-redemption/
+
+One of Naruto's most nonsensical filler arcs is fascinating to look at in retrospect.
+---------
+
+# Epic New DC Art Brings Every Era Of Batman Together For One Breathtaking Collage
+
+Comics, Batman, DC
+
+Wed, 22 Apr 2026 03:04:56 GMT
+
+https://screenrant.com/every-batman-movie-era-new-artwork/
+
+Batman's history of cinematic experiences has added immeasurable flavor to the character's mythos, and this iconic artist's work celebrates that.
+---------
+
+# Steam Adds 4 New Free Games, Yours Forever With No Catch
+
+Gaming, Steam
+
+Wed, 22 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/steam-4-free-games-april-2026-keep-forever/
+
+Steam is offering up another batch of free games right now, and theirs yours to keep forever with no catch, so check them out as soon as you can.
+---------
+
+# 10 Most Stunning Anime & the Unique Color Palettes That Make Them Pop
+
+Anime, Cyberpunk: Edgerunners, Isekai, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 22 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/most-stunning-anime-with-best-animation/
+
+These anime don't just have beautiful animation, but color palettes that make them stand out from all of their competitors.
+---------
+
+# All 3 Tom Holland Spider-Man Movies Are Masterpieces, but 1 Is Untouchable
+
+Movies, Spider-Man, MCU, superheroes
+
+Wed, 22 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/tom-holland-spider-man-trilogy-mcu-superheroes-no-way-home-list-ranked/
+
+Ahead of Spider-Man: Brand New Day, revisit the best of Tom Holland's Spider-Man films in the Marvel Cinematic Universe.
+---------
+
+# This 26-Year-Old Angel Episode is Still The Most Disturbing in the Show (& For Good Reason)
+
+TV, Angel, Horror, Buffy The Vampire Slayer
+
+Wed, 22 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/angel-ive-got-you-under-my-skin-s1-most-disturbing-episode/
+
+A Season 1 episode of Angel paid homage to The Exorcist while telling a unique story that was one of the darkest and most horrifying of the series.
+---------
+
+# It's Officially a New Era for Open World Games in 2026
+
+Games, open world, Fable
+
+Wed, 22 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/open-world-games-2026-new-era-fable-game/
+
+Open-world games are entering a new era thanks to this upcoming 2026 game.
+---------
+
+# Arnold Schwarzenegger's Predator Is Still His Most Quotable Movie
+
+Movies, Predator
+
+Wed, 22 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-predator-most-quotable-movie/
+
+Arnold Schwarzenegger is no stranger to great quotes, but some of his best came from 1987's Predator
+---------
+
+# Dragon Ball's Toei Enters PC Gaming With New Steam Label
+
+Anime, Toei Animation, Steam
+
+Wed, 22 Apr 2026 03:14:33 GMT
+
+https://www.cbr.com/toei-steam-game-new-release/
+
+Dragon Ball's parent company confirms the formation of a brand-new publishing house that will bring fans a whole slate of original Steam game titles.
+---------
+
+# 10 Greatest Movie Climaxes of All Time, Ranked
+
+Movie, The Good, the Bad and the Ugly, Goodfellas, Whiplash, Kill Bill: Vol. 1
+
+Wed, 22 Apr 2026 04:14:12 GMT
+
+https://collider.com/greatest-movie-climaxes-of-all-time-ranked/
+
+Some of the best climaxes in cinema history can be found in classic movies like The Good, the Bad and the Ugly, Seven Samurai, and Hard Boiled.
+---------
+
+# 7 Most Universally Beloved Musical Movies of All Time, Ranked
+
+Movie, Musical, The Wizard of Oz, West Side Story, Singin in the Rain
+
+Wed, 22 Apr 2026 03:26:12 GMT
+
+https://collider.com/most-universally-beloved-musical-movies-all-time-ranked/
+
+From La La Land to Singin’ in the Rain, these iconic musicals fuse story and song into unforgettable emotion across generations.
+---------
+
 # How The Man In Yellow’s From Season 4 Return Is Different For Every Character & More Sophia Twists Teased By Star
 
 TV, From, FROM - Season 4
