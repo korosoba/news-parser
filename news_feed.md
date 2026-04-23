@@ -1,3 +1,267 @@
+# Nightwing Debuts New Logo in Absolute Batman Canon
+
+DC Comics, Nightwing
+
+Thu, 23 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/absolute-batman-nightwing-new-logo/
+
+Nightwing's brand-new logo in the Absolute Universe brings out the best in Dick Grayson, making him the ultimate superhero.
+---------
+
+# Michael Ending Explained: Why The Biopic Ends When It Does (And How It Sets Up The Pop Star's Future)
+
+Movies, Michael
+
+Thu, 23 Apr 2026 23:20:19 GMT
+
+https://screenrant.com/michael-ending-explained/
+
+Michael is largely a celebration of Michael Jackson, showcasing his art and deconstructing his need for a good father while avoiding thornier issues.
+---------
+
+# Fuze Ending Explained: Who's Behind The Heist And What It Was All About
+
+Movies, Fuze
+
+Thu, 23 Apr 2026 23:20:19 GMT
+
+https://screenrant.com/fuze-ending-explained/
+
+Fuze is a twisty thriller that has a lot more layers than audiences expect, with the true mastermind behind the heist radically changing the themes.
+---------
+
+# Star Wars Has Been Ignoring the Most Important Piece Of Franchise Lore Since the Beginning
+
+Star Wars
+
+Thu, 23 Apr 2026 23:08:18 GMT
+
+https://screenrant.com/star-wars-history-long-time-ago-canon-legends/
+
+Star Wars always forgets 1 very important detail.
+---------
+
+# Star Wars' New Show Still Hasn't Answered My Biggest Darth Maul Question
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Thu, 23 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/maul-shadow-lord-where-is-the-darksaber-explained-star-wars/
+
+Although Maul - Shadow Lord is already one of my favorite Star Wars projects of all time, the new series still hasn't answered a pretty big question.
+---------
+
+# Transformers & G.I. Joe's Movie Crossover Is Now More Possible Than Ever
+
+Movies, Transformers, G.I. Joe
+
+Thu, 23 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/transformers-gi-joe-crossover-movie-updates/
+
+The last Transformers movie ended with a tease for a G.I. Joe crossover, and a new update suggests that project could happen in the future.
+---------
+
+# PlayStation Plus Gamers Praise "10/10" Free Open-World RPG
+
+Gaming, PlayStation Plus
+
+Thu, 23 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/playstation-plus-10-free-open-world-game/
+
+One of the newest free games with PlayStation Plus is getting a ton of praise from gamers, who are calling it a 10/10 open-world experience.
+---------
+
+# Apex Review: Taron Egerton Is The Horrifying Bright Spot In Netflix’s Mundane Survival Thriller
+
+New Movies, Apex
+
+Thu, 23 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/apex-movie-2026-review/
+
+Charlize Theron and Taron Egerton’s new thriller delivers a memorable villain and some solid set pieces, but it’s a bit too simple to really shine.
+---------
+
+# Gerard Butler's 140-Minute Crime Movie Officially Releasing On Biggest Streamer Worldwide
+
+Movies, Masked Recs
+
+Thu, 23 Apr 2026 22:59:58 GMT
+
+https://screenrant.com/gerard-butler-den-of-thieves-movie-netflix-release-date-may-2026/
+
+Gerard Butler's 140-minute action crime movie is officially releasing on the biggest streaming platform in the world early next month.
+---------
+
+# The MCU's New Villain Continues A 5-Year Multiverse Saga Streak
+
+Superheroes, Marvel Cinematic Universe, Daredevil: Born Again, Daredevil, Quiz CV
+
+Thu, 23 Apr 2026 22:37:05 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-matthew-lillard-mr-charles-wasted/
+
+Marvel Studios' latest release has introduced a villain with a lot of potential to the franchise, but it seems like the MCU is continuing a trend.
+---------
+
+# 9anime Down as Major Streaming Sites Go Dark
+
+Anime, piracy, Streaming
+
+Thu, 23 Apr 2026 23:20:12 GMT
+
+https://www.cbr.com/anime-streaming-9anime-new-shutdown/
+
+Several of the largest anime streaming websites are now officially offline, and there's no telling if or when they might be returning.
+---------
+
+# 10 Anime With 50+ Episodes That Are Worth Your Time
+
+Anime, Fullmetal Alchemist: Brotherhood, Hajime no Ippo: Rising, Kaiji: Ultimate Survivor, Ghost in the Shell: Stand Alone Complex, Haikyuu!!, Natsume's Book of Friends
+
+Thu, 23 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/anime-worth-watching-with-50-plus-episodes/
+
+Not every anime can wrap up its story in a single season, some need more time to unfold into a glorious storyline fans won't soon forget.
+---------
+
+# Netflix's New K-Drama Sold Out on You Becomes Global Streaming Hit
+
+TV, Netflix, Romance, Comedy
+
+Thu, 23 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/sold-out-on-you-k-drama-rom-com-netflix-success-april-2026/
+
+Ahn Hyo-seop and Chae Won-bin's Sold Out on You debuts as Netflix's No. 2 most-streamed series worldwide in just one day.
+---------
+
+# Apple TV’s One-of-a-Kind Sci-Fi Show With 95% on RT Can Never Be Replicated
+
+TV, Calls, Apple TV, Sci-Fi
+
+Thu, 23 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/apple-tv-one-of-a-kind-sci-fi-show-calls-never-be-replicated/
+
+Apple TV series Calls is one of the streamer's earliest, and it remains one of the most unique, one of the most sensory shows, you'll ever see.
+---------
+
+# 10 MCU Characters That Need a Standalone Special After The Punisher
+
+Movies, Marvel Cinematic Universe, The Punisher: One Last Kill
+
+Thu, 23 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/mcu-characters-need-standalone-special-after-the-punisher/
+
+Jon Bernthal is returning as the Punisher in a new story this May, possibly setting up other Marvel characters for their own standalone specials.
+---------
+
+# Ridley Scott’s $300 Million Epic Is a Streaming Hit Despite Russell Crowe's Crushing Review
+
+Movie News, Russell Crowe, Ridley Scott, Gladiator, Gladiator II
+
+Thu, 23 Apr 2026 23:30:12 GMT
+
+https://collider.com/ridley-scott-epic-sequel-gladiator-2-streaming-success-paramount-plus-april-2026-russell-crowe-criticism/
+
+The epic Ridley Scott sequel that Russell Crowe wasn't a fan of is having a resurgence on streaming. Find out more here.
+---------
+
+# 10 Most Perfectly Directed Blockbuster Movies, Ranked
+
+Movie, Jurassic Park, Blockbuster, Steven Spielberg, Mad Max: Fury Road
+
+Thu, 23 Apr 2026 23:21:13 GMT
+
+https://collider.com/perfectly-directed-blockbuster-movies/
+
+Exceptional directing can make all the difference for a great blockbuster film, such as the case in The Matrix, The Dark Knight, and Jurassic Park.
+---------
+
+# Mark Wahlberg's Thrilling ‘Reacher’ Alternative Becomes an Overnight Smash on Streaming
+
+Movie News, Mark Wahlberg, Antoine Fuqua, Shooter, Kate Mara
+
+Thu, 23 Apr 2026 23:16:12 GMT
+
+https://collider.com/mark-wahlberg-reacher-replacement-action-thriller-shooter-streaming-success-netflix-april-2026/
+
+Reacher meets Hitman in Mark Wahlberg's action thriller that's having a streaming resurgence ahead of its 20th anniversary. Find out more here.
+---------
+
+# Netflix’s Most Unmissable Live Series WWE Raw Just Became the Perfect Weekly Watch
+
+TV Features, Raw, WWE, WWE Raw, pro wrestling
+
+Thu, 23 Apr 2026 23:04:12 GMT
+
+https://collider.com/netflix-wwe-monday-night-raw-weekly-watch/
+
+WWE Monday Night Raw is thriving on Netflix thanks to its live drama, crowd energy, and must-watch weekly storytelling.
+---------
+
+# Netflix’s New ‘John Wick’ Replacement Is Taking Over Streaming Worldwide
+
+Movie News, Netflix, International, John Wick, Action
+
+Thu, 23 Apr 2026 23:00:12 GMT
+
+https://collider.com/netflix-blockbuster-creature-feature-thrash-overtaken-by-180-south-africa-john-wick-replacement-streaming-success-april-2026/
+
+Netflix's new creature feature, Thrash, has been overtaken on the streamer's viewership charts by a surprising South African thriller. Find out more.
+---------
+
+# Netflix's New Thriller 'Apex' Puts Charlize Theron Through Hell — and It's Absolutely Worth Watching | Review
+
+Movie Reviews, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Thu, 23 Apr 2026 23:00:12 GMT
+
+https://collider.com/apex-review-charlize-theron-netflix/
+
+Dazzling visuals and another great action-heroine turn from Charlize Theron make Apex a survival thriller worth watching.
+---------
+
+# 'Predator' and 'Planet of the Apes' Crossing Over in Marvel Series
+
+Movie News, Predator, Planet of the Apes
+
+Thu, 23 Apr 2026 23:30:39 GMT
+
+https://movieweb.com/predator-planet-of-the-apes-crossover-comics/
+
+The five-issue event will kick off this summer.
+---------
+
+# 'Michael': Why Michael Jackson's Biopic Ends Abruptly in the '80s
+
+Features, Michael
+
+Thu, 23 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/michael-jackson-biopic-adbrupt-ending/
+
+'Michael', the new Michael Jackson biopic directed by Antoine Fuqua, ends in 1988, 21 years before the pop star's passing. Here's why.
+---------
+
+# 'Apex' Review: Charlize Theron Suffers in Netflix's Assembly-Line Thriller
+
+Movie Reviews, Apex, Charlize Theron, Taron Egerton
+
+Thu, 23 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/apex-review/
+
+Even with talented stars, the movie feels like a paint-by-numbers experience.
+---------
+
 # Hannibal: The Cult Classic Crime Drama That's Aged Like Fine Wine
 
 Classic TV, Masked Recs
