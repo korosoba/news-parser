@@ -1,3 +1,399 @@
+# Netflix's 2-Part Sci-Fi Series With Near-Perfect RT Score Is Quietly One Of Its Best Superhero Shows
+
+Classic TV, Masked Recs, Recommendation, Raising Dion, Netflix, Sci-Fi
+
+Thu, 23 Apr 2026 15:01:14 GMT
+
+https://screenrant.com/raising-dion-netflix-show-superhero-sci-fi/
+
+This show reframes superheroics through a unique lens, creating emotional weight that sets it apart from traditional cape and cowl stories.
+---------
+
+# The Best Comic Deal Of 2026 Is Officially Here, And The Value Is Unbelievable
+
+Comics, image comics
+
+Thu, 23 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/before-absolute-comic-bundle-image/
+
+What a deal!
+---------
+
+# You Is "Dexter Meets The White Lotus" & One Of Netflix's Best Thrillers
+
+Classic TV, Masked Recs
+
+Thu, 23 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/you-netflix-dexter-meets-white-lotus/
+
+Netflix's 5-part satirical thriller series, told through the POV of a serial killer, is the perfect blend of Dexter and The White Lotus.
+---------
+
+# Vox Machine Reunite To Face Major Enemy In New Season 4 Trailer Of Prime’s Fantasy Series
+
+TV, The Legend of Vox Machina, The Legend of Vox Machina - Season 4, Critical Role, Prime Video
+
+Thu, 23 Apr 2026 15:00:16 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-season-4-trailer/
+
+Prime Video unveils the official Legend of Vox Machina season 4 trailer, showing the group reuniting to face their next world-threatening enemy.
+---------
+
+# Xbox Game Pass Begins A New Era, And Gamers Are Loving It
+
+Gaming, Xbox Game Pass, Xbox Series X/S
+
+Thu, 23 Apr 2026 14:52:07 GMT
+
+https://screenrant.com/xbox-game-pass-new-era-choose-your-own-plan/
+
+With price drops and the upcoming Discord integration, there’s a lot going on for Xbox Game Pass this year, and members are excited about the future.
+---------
+
+# Binge-Worthy: Netflix's 8-Episode Norse Mythology Series From Zack Snyder
+
+Classic TV, Twilight of the Gods
+
+Thu, 23 Apr 2026 14:45:19 GMT
+
+https://screenrant.com/twilight-of-the-gods-netflix-norse-mythology-fantasy-show/
+
+Netflix has an 8-episode Norse mythology TV series that fans of fantasy, adult animation, and violent visuals can binge in just a few hours.
+---------
+
+# Taylor Sheridan's Underrated 102-Minute Western Epic Is Getting Pulled From Netflix After Just 3 Months
+
+Movies, Masked Recs
+
+Thu, 23 Apr 2026 14:43:25 GMT
+
+https://screenrant.com/taylor-sheridan-hell-or-high-water-netflix-leaving-may-2026/
+
+Taylor Sheridan has become the face of modern Westerns with his empire of TV shows, including Yellowstone, and his epic movie is now leaving Netflix.
+---------
+
+# Michael Star Explains Why Diana Ross Was Cut From New Michael Jackson Movie
+
+Movies, Michael, Kat Graham
+
+Thu, 23 Apr 2026 14:18:26 GMT
+
+https://screenrant.com/michael-movie-diana-ross-cut-kat-graham/
+
+When Michael is released in theaters, moviegoers won’t see Diana Ross, even though her role was cast. The actress playing her is now speaking out.
+---------
+
+# Mass Effect 5 Official Update Released Out Of The Blue
+
+Gaming, Mass Effect
+
+Thu, 23 Apr 2026 14:09:23 GMT
+
+https://screenrant.com/mass-effect-5-official-update-bioware/
+
+Things have been quiet at BioWare recently, making some fans worry about the future of Mass Effect 5 — but as it turns out, there’s a good reason.
+---------
+
+# 4-Part Sci-Fi Masterpiece Series Battlestar Galactica Finally Returning To Streaming
+
+TV, Battlestar Galactica
+
+Thu, 23 Apr 2026 14:01:18 GMT
+
+https://screenrant.com/battlestar-galactica-streaming-release-date-paramount-plus-return/
+
+In an announcement that highlights the sci-fi franchise, Battlestar Galactica will finally be available to stream again after a notable absence.
+---------
+
+# 6 Pokémon Redesigns Officially Revealed Ahead of April 29 Release
+
+Anime, Pokemon
+
+Thu, 23 Apr 2026 15:20:12 GMT
+
+https://www.cbr.com/pokemon-new-manhole-cover-design-release-april-2026/
+
+Pokémon brightens up the streets with new designs featuring a wide variety of Pocket Monsters, including Snorlax, Gyarados, Sylveon and more.
+---------
+
+# Dragon Ball's New Hero Is Goku's Descendant From the Distant Future
+
+Anime, Dragon Ball
+
+Thu, 23 Apr 2026 15:15:13 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-new-hero-brett-goku-descendent/
+
+Dragon Ball has revealed a brand new protagonist for the series who follows in the footsteps of his ancient ancestors: Goku and Gohan.
+---------
+
+# 10 Game Boy JRPGs That Are 10/10 But No One Remembers
+
+Games, Role Playing Game, Nintendo, Video Games, Final Fantasy
+
+Thu, 23 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/best-game-boy-jrpgs-no-one-remembers/
+
+Hardly anyone knows about Game Boy JRPGs like Final Fantasy Adventure and Ultima: Runes of Virtue.
+---------
+
+# Assassin's Creed Black Flag Resynced Official Release Date and Price Leaked
+
+Games, Assassin's Creed, Assassin's Creed IV: Black Flag
+
+Thu, 23 Apr 2026 14:50:13 GMT
+
+https://www.cbr.com/assassins-creed-black-flag-resynced-official-release-date-price/
+
+Gamers ready to go on another pirate adventure don't have to wait long for Assassin's Creed: Black Flag Resynced to be officially released.
+---------
+
+# Prince Adam Returns to Eternia in New Trailer for Amazon's Highly Anticipated Masters of the Universe Reboot
+
+Movies, He-Man, Masters of the Universe
+
+Thu, 23 Apr 2026 14:36:35 GMT
+
+https://www.cbr.com/masters-of-the-universe-trailer-prince-adam-returns-to-eternia-amazon/
+
+He-Man returns home to Eternia for the first time in the latest Masters of the Universe trailer.
+---------
+
+# 10 Years Ago, The Original Captain America Made His Official Comeback
+
+Comics, Captain America, CSBG, look back
+
+Thu, 23 Apr 2026 14:31:42 GMT
+
+https://www.cbr.com/captain-america-steve-rogers-returns/
+
+A look back to a decade ago, when Steve Rogers triumphantly returned as Captain America, but no one knew at the time that there would be a major twist
+---------
+
+# Agatha Christie’s Forgotten Final Book Remains Untouched
+
+Movies, Mystery
+
+Thu, 23 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/agatha-christie-postern-of-fate-adaptation/
+
+Published in 1973, Agatha Christie's final novel features the final appearance of a dynamic detective duo and has yet to be adapted.
+---------
+
+# 5 Things About Reacher That Make No Sense
+
+TV, Reacher, Prime Video, Action
+
+Thu, 23 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/reacher-things-that-make-no-sense-list/
+
+Take a closer look at the inconsistencies and implausible elements in Reacher's small-town conspiracies, invincibility, and more.
+---------
+
+# Pixar's Hoppers Is Finally Heading to Digital After Strong Theatrical Run
+
+Movies, Hoppers
+
+Thu, 23 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/pixar-hoppers-digital-physical-release-date/
+
+Pixar had a new hit, and it has finally set a physical and digital release date.
+---------
+
+# A Batman Sidekick Just Went Full Super Saiyan And Fans Are Freaking Out
+
+Comics, Batman, Robin
+
+Thu, 23 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/absolute-batman-20-robin-super-saiyan-variant-cover/
+
+This Absolute Batman-inspired art should be rated over 9000.
+---------
+
+# Apple TV's Next Sci-Fi Masterpiece Releases Final Trailer Ahead of May 29 Debut
+
+TV News, Star City, For All Mankind, Apple TV, Sci-Fi
+
+Thu, 23 Apr 2026 14:00:13 GMT
+
+https://collider.com/apple-tv-for-all-mankind-spin-off-star-city-trailer-release-date-may-29/
+
+Apple TV has debuted the first trailer for Star City, the new For All Mankind spin-off premiering globally on May 29.
+---------
+
+# The Best Sci-Fi Series of the 2000s Is Finally Back on Streaming
+
+TV News, Battlestar Galactica, Pluto TV, Paramount Plus
+
+Thu, 23 Apr 2026 14:00:13 GMT
+
+https://collider.com/battlestar-galactica-streaming-free-pluto-tv-paramount-plus-may-2026-best-sci-fi-series/
+
+The critically acclaimed 2000s Battlestar Galactica reboot is coming to Pluto TV and Paramount+ on May 1, with Pluto TV offering the series for free.
+---------
+
+# ABC News Exposes a Social Media Messiah in 'The Cult of NatureBoy' Trailer [Exclusive]
+
+TV News, ABC News, Hulu, Documentary, Crime
+
+Thu, 23 Apr 2026 13:04:12 GMT
+
+https://collider.com/abc-news-the-cult-of-natureboy-trailer/
+
+Discover the disturbing truth behind Carbon Nation, a commune led by charismatic figure NatureBoy. The ABC News docuseries will premiere on April 28.
+---------
+
+# Apple TV’s Near-Perfect 9-Part Crime Thriller Is Even Easier to Binge After This Season 2 Update
+
+TV Features, Smoke, Apple TV, Streaming, Taron Egerton
+
+Thu, 23 Apr 2026 12:39:12 GMT
+
+https://collider.com/apple-tv-smoke-season-2-update-easier-to-recommend/
+
+Apple TV’s Smoke is even easier to recommend after a promising Season 2 update, thanks to its complete story and real potential for more.
+---------
+
+# 15 Most Forgotten Cartoon Network Shows
+
+TV, Cartoon Network, Animation, The Life and Times of Juniper Lee, The Secret Saturdays
+
+Thu, 23 Apr 2026 12:32:12 GMT
+
+https://collider.com/cartoon-network-forgotten-shows/
+
+We search for the most forgotten Cartoon Network shows, from The Marvelous Misadventures of Flapjack to Time Squad.
+---------
+
+# All 3 Cornetto Movies Are Masterpieces, but One Is Untouchable
+
+Movie, Edgar Wright, Hot Fuzz, Shaun of the Dead, The World's End
+
+Thu, 23 Apr 2026 12:18:12 GMT
+
+https://collider.com/three-flavours-cornetto-movies-masterpieces-ranked/
+
+All three movies in Edgar Wright's Cornetto Trilogy are modern masterpieces, but which one is the undeniable best? Turns out, there is a right answer.
+---------
+
+# You Should Watch These Unforgettable 10 Sci-Fi TV Shows At Least Once
+
+TV, Sci-Fi, Science Fiction, For All Mankind, Black Mirror
+
+Thu, 23 Apr 2026 12:09:12 GMT
+
+https://collider.com/sci-fi-tv-shows-everyone-should-watch-once/
+
+Sci-fi TV shows can be hit or miss, but we think everyone should watch HBO's Westworld, Netflix's Black Mirror, and Fox's Firefly at least once.
+---------
+
+# Star Trek Legend Reveals a Wild Story Behind 'The Next Generation's Western Episode [Exclusive]
+
+TV News, Star Trek: The Next Generation, Brent Spiner, Gates McFadden, Jonathan Frakes
+
+Thu, 23 Apr 2026 12:00:12 GMT
+
+https://collider.com/star-trek-the-next-generation-western-episode-a-fistful-of-datas-brent-spiner-wardrobe-malfunction/
+
+Brent Spiner reveals the wild wardrobe malfunction that occurred during the filming of Star Trek: The Next Generation's ' Fistful of Datas episode.
+---------
+
+# 7 Most Universally Beloved Vampire Movies of All Time, Ranked
+
+Movie, Vampire, Nosferatu, Let the Right One In, The Lost Boys
+
+Thu, 23 Apr 2026 12:00:12 GMT
+
+https://collider.com/most-universally-beloved-vampire-movies-all-time-ranked/
+
+From The Lost Boys to Blade, revisit cult-favorite vampire films packed with style, darkness, and lasting impact.
+---------
+
+# HBO’s 7‑Part Crime Series Is So Good, It Demands a Second Watch
+
+TV, Mare of Easttown, HBO Max, Kate Winslet
+
+Thu, 23 Apr 2026 11:46:12 GMT
+
+https://collider.com/mare-of-easttown-hbo-crime-series/
+
+HBO's Mare of Easttown featuring Kate Winslet has so many details and clues that viewers likely missed on their first watch.
+---------
+
+# Paramount's Warner Bros. Takeover Passes Major Hurdle
+
+Movie News, David Ellison, Paramount Plus, HBO Max
+
+Thu, 23 Apr 2026 15:08:28 GMT
+
+https://movieweb.com/paramounts-warner-bros-takeover-approved/
+
+Paramount’s Warner Bros. Takeover Approved After Passing Major Hurdle
+---------
+
+# The 15 Best Quotes from Greta Gerwig's 'Little Women'
+
+Movie Lists, Little Women
+
+Thu, 23 Apr 2026 15:00:19 GMT
+
+https://movieweb.com/little-women-2019-quotes/
+
+These are the most memorable quotes from 'Little Women' directed by Greta Gerwig, covering the screenplay's most emotionally resonant moments
+---------
+
+# 'Stranger Things: Tales From '85' Debuts With Solid Rotten Tomatoes Score
+
+TV News, Stranger Things, Stranger Things: Tales from '85
+
+Thu, 23 Apr 2026 14:33:23 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-rotten-tomatoes/
+
+Netflix's new spin-off series 'Stranger Things: Tales From '85' has landed on the streaming platform.
+---------
+
+# Before 'The Odyssey' Matt Damon's Historical Fantasy Action Movie 'The Great Wall' Is a Streaming Success on Prime Video
+
+Movie News, The Great Wall, Prime Video, Hot on Streaming, The Odyssey
+
+Thu, 23 Apr 2026 14:01:16 GMT
+
+https://movieweb.com/the-great-wall-matt-damon-odyssey-streaming-success-prime-video-april-2026/
+
+Matt Damon and Christopher Nolan's 'The Odyssey' releases in July 2026. Before that, Damon's 'The Great Wall' is a streaming success on Prime Video.
+---------
+
+# Netflix Has Fixed 'Stranger Things' Season 5's Controversial Ending
+
+Features, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Thu, 23 Apr 2026 14:01:16 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-fixed-season-5-ending/
+
+'Stranger Things: Tales from '85' is now streaming on Netflix, and it has solved the ending of Season 5, which leaves Eleven's fate a mystery.
+---------
+
+# Sam Raimi's 'Send Help' Sets Streaming Release Date
+
+Movie News, Send Help, Sam Raimi, Horror, Hulu, Disney+
+
+Thu, 23 Apr 2026 13:25:30 GMT
+
+https://movieweb.com/send-help-sam-raimi-streaming-release-date/
+
+Sam Raimi's horror-thriller 'Send Help,' starring Rachel McAdams and Dylan O'Brien, has landed a streaming release date on Hulu and Disney+.
+---------
+
 # GTA 6 Official Release Date Update Confirmed, Brace Yourselves
 
 Gaming, Grand Theft Auto 6, Grand Theft Auto, Rockstar Games
