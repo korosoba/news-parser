@@ -1,3 +1,245 @@
+# Paramount+'s 2-Part Sci-Fi Series That's Star Trek Meets Star Wars Is One Of Its Best Space Shows
+
+Classic TV, Masked Recs
+
+Thu, 23 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/halo-paramount-plus-space-show-star-wars-trek-sci-fi/
+
+Discover Paramount+'s unique sci-fi series, Halo, which seamlessly combines elements of Star Trek and Star Wars, offering a captivating space adventure worth exploring.
+---------
+
+# Benedict Cumberbatch To Star & Produce A24's New Buzzy Heist Thriller Based On Book
+
+TV, Benedict Cumberbatch
+
+Thu, 23 Apr 2026 20:14:22 GMT
+
+https://screenrant.com/benedict-cumberbatch-white-smoke-movie-development/
+
+After starring in The Roses, Benedict Cumberbatch is heading to the small screen for a new heist thriller based on an upcoming buzz-worthy novel.
+---------
+
+# Daredevil: Born Again Season 2 Officially Rewrites Krysten Ritter’s Jessica Jones
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Thu, 23 Apr 2026 20:05:14 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-rewrites-krysten-ritter-jessica-jones/
+
+Daredevil: Born Again season 2's latest episode brings back Krysten Ritter's Jessica Jones and rewrites her for the return of The Defenders.
+---------
+
+# Baldur’s Gate 3: Paladin Subclasses - All Oaths & How To Break Them
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC, Triple-A Games
+
+Thu, 23 Apr 2026 20:00:31 GMT
+
+https://screenrant.com/baldurs-gate-3-paladin-subclasses-oaths-oathbreaker/
+
+The latest Baldur's Gate 3 update gave players access to the Paladin class, empowered by the sacred Oaths they keep and the Oaths they break.
+---------
+
+# Star Trek: Starfleet Academy's DS9 Sisko Tribute Outshines Original Plan
+
+Streaming TV, Star Trek, Star Trek: Starfleet Academy, Op-Ed
+
+Thu, 23 Apr 2026 20:00:30 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-sisko-episode-original-idea-change-good/
+
+Writer Tawny Newsome reveals the scrapped original idea for what became Star Trek: Starfleet Academy's tribute to Captain Sisko and Deep Space Nine.
+---------
+
+# Taron Egerton's Unexpected New Netflix Thriller Role Is "Like Jack Nicholson In The Shining"
+
+Movies, Apex, Taron Egerton
+
+Thu, 23 Apr 2026 20:00:15 GMT
+
+https://screenrant.com/apex-taron-egerton-jack-nicholson-the-shining-comparison-director/
+
+EXCLUSIVE: In an interview with ScreenRant, Baltasar Kormákur explains how Taron Egerton channels his inner Jack Nicholson for his role in Apex.
+---------
+
+# Which Songs Should The American Idol Season 24 Top 7 Finalists Sing On Taylor Swift Night?
+
+Reality TV, American Idol
+
+Thu, 23 Apr 2026 19:52:35 GMT
+
+https://screenrant.com/american-idol-season-24-top-7-songs-taylor-swift-night/
+
+On April 27, American Idol season 24 will celebrate Taylor Swift Night, with the Top 7 finalists singing iconic songs from all of her eras.
+---------
+
+# Steam Users Have Until April 25 to Claim SurrounDead Poly Construction
+
+Games, Steam
+
+Thu, 23 Apr 2026 20:42:13 GMT
+
+https://www.cbr.com/steam-free-april-25-surroundead-poly-construction/
+
+Time is running out to pick up a free open world game on Steam.
+---------
+
+# Family Guy Was Influenced by Gary Larson's Far Side, and it Honored It
+
+Comics, The Far Side
+
+Thu, 23 Apr 2026 20:39:29 GMT
+
+https://www.cbr.com/family-guy-was-influenced-by-the-far-side/
+
+Family Guy was influenced by Gary Larson's The Far Side, and the show later paid homage to the classic comic strip
+---------
+
+# Prime Video's Mexican Revenge Thriller Vengeance Dominates On Streaming
+
+Movies, Crime, Thriller, Prime Video
+
+Thu, 23 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/venganza-vengeance-crime-thriller-prime-video-success-april-2026/
+
+Mexican revenge thriller Vengeance is an ambitious production and an action-packed film, now dominating the streaming charts on Prime Video.
+---------
+
+# 17 Years Later, Nickelodeon’s Forgotten Fantasy Adventure Is Still a Perfect 2-Season Gem
+
+TV, Nickelodeon, Fantasy
+
+Thu, 23 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/nickelodeon-huntik-secrets-seekers-fantasy-perfect-seasons/
+
+This underrated animated series from 2009 set itself apart from competitors like Pokémon and Yu-Gi-Oh.
+---------
+
+# 10 Intense Thriller Movies That Are Perfect From Start To Finish
+
+Movies, Thriller, Frantic, Chinatown
+
+Thu, 23 Apr 2026 20:30:13 GMT
+
+https://www.cbr.com/intense-thriller-movies-perfect-from-start-to-finish/
+
+Thrillers rarely leave viewers disappointed, and some are masterclasses in tense and suspenseful storytelling that viewers never forget.
+---------
+
+# Classic Anime Arcs That Really Haven't Aged Well
+
+Anime, One Piece, Dragon Ball
+
+Thu, 23 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/classic-anime-arcs-not-aged-well/
+
+While they were once widely revered, time has not been kind to these arcs in otherwise excellent anime series.
+---------
+
+# 10 Anime Mentors Who Were Actually Terrible at Their Jobs
+
+Anime, shonen anime, Naruto: Shippuden, Hunter x Hunter, JoJo's Bizarre Adventure, Jujutsu Kaisen, Dragon Ball
+
+Thu, 23 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/worst-shonen-anime-mentors-all-time/
+
+The strongest mentors may get the job done, but the lengths they go to achieve success are often dangerous and detrimental to their students' health.
+---------
+
+# Solo Leveling Arise Overdrive Reveals Jeju Island Trailer Ahead of Fall 2026 Console Release
+
+Anime, Solo Leveling, Crunchyroll, Xbox Series X (1)
+
+Thu, 23 Apr 2026 20:14:57 GMT
+
+https://www.cbr.com/solo-leveling-arise-overdrive-xbox-2026-release/
+
+Xbox just dropped the next Solo Leveling release for Sung Jinwoo.
+---------
+
+# The Best Dystopian Franchise of All Time Is Dominating Hulu Charts 7 Months Ahead of New Entry
+
+Movies, The Hunger Games
+
+Thu, 23 Apr 2026 20:00:28 GMT
+
+https://www.cbr.com/hunger-games-dystopian-franchise-hulu-streaming-success-april-2026/
+
+All five films in the blockbuster dystopian franchise are enjoying success on a new streaming home as fans eagerly await the upcoming sequel.
+---------
+
+# The Punisher's Return in Spider-Man: Brand New Day Is Even More Exciting
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, The Punisher
+
+Thu, 23 Apr 2026 20:00:28 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-the-punisher-change-explained/
+
+Frank Castle will be fighting alongside Peter Parker in Spider-Man: Brand New Day, fully embracing his identity as the Punisher.
+---------
+
+# Hulu's 10-Episode Sleeper Hit Is the Perfect Binge Before Season 2 Next Month
+
+TV Features, Deli Boys, Hulu, Saagar Shaikh, Poorna Jagannathan
+
+Thu, 23 Apr 2026 20:07:28 GMT
+
+https://collider.com/hulu-sleeper-hit-series-deli-boys-season-2/
+
+Before Season 2 of Deli Boys premieres next month, there’s no better time than now to catch up on Hulu’s comedy series.
+---------
+
+# Apple TV Officially Teams With 'Will Trent' Co-Creator for New Series
+
+TV News, Elizabeth Banks, Jonathan Krisel, Will Trent, Apple TV
+
+Thu, 23 Apr 2026 20:00:27 GMT
+
+https://collider.com/apple-tv-will-trent-creator-liz-heldens-comedy-elizabeth-banks-comedy-series/
+
+Will Trent co-creator Liz Heldens is partnering with Apple TV for a brand-new comedy series with Elizabeth Banks attached to star.
+---------
+
+# 10 Shows That Prove Apple TV Is the Best Streamer of All Time
+
+TV, Apple TV, Severance, The Studio, Ted Lasso
+
+Thu, 23 Apr 2026 19:52:24 GMT
+
+https://collider.com/apple-tv-best-streamer-all-time-shows-proof/
+
+Ted Lasso, Pluribus, Severance, Silo, Shrinking, Slow Horses, and more shows prove that Apple TV is the best streamer of all time.
+---------
+
+# Peacock Not Moving Forward With Alicia Silverstone's 'Clueless' Sequel Series
+
+Movie News, Clueless
+
+Thu, 23 Apr 2026 20:41:52 GMT
+
+https://movieweb.com/clueless-sequel-series-canceled/
+
+Despite Alicia Silverstone reprising her role as Cher, Peacock is not moving forward with the legacy series to 'Clueless.'
+---------
+
+# Gina Carano Reveals She Has Spoken to 'Star Wars' Dave Filoni & Jon Favreau After Exit
+
+TV News, Gina Carano, The Mandalorian, Dave Filoni, Jon Favreau
+
+Thu, 23 Apr 2026 20:09:14 GMT
+
+https://movieweb.com/gina-carano-jon-favreau-dave-filoni-star-wars-exit/
+
+Cara Dune star Gina Carano revealed that she has had a conversation with 'Star Wars' leaders Dave Filoni and Jon Favreau after her unceremonious exit.
+---------
+
 # Apple TV's Hit 8-Part Crime Thriller Series Finally Returns With Rare Rotten Tomatoes Score
 
 TV, Masked Recs
