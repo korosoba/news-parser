@@ -1,3 +1,245 @@
+# GTA 6 Official Release Date Update Confirmed, Brace Yourselves
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Rockstar Games
+
+Thu, 23 Apr 2026 13:03:29 GMT
+
+https://screenrant.com/gta-6-official-release-date-update-confirmed-may-2026/
+
+Mark your calendars, GTA 6 is getting an official release date update, and this is perhaps the most important one yet.
+---------
+
+# Marvel's Spider-Man Remastered Free Download Available For Millions
+
+Gaming, Marvel's Spider-Man, PlayStation Plus
+
+Thu, 23 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/marvels-spider-man-remastered-ps5-free-download-ps-plus/
+
+Consider this an important PSA: you can play Marvel's Spider-Man Remastered for free right now if you meet these specific requirements.
+---------
+
+# Running Point Season 2 Finale Spoilers: Isla & Jay's Relationship Status Revealed
+
+Streaming TV, Running Point
+
+Thu, 23 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/running-point-season-2-ending-explained/
+
+The fate of Isla & Jay's budding romance is revealed in the surprising ending of Running Point season 2, available now on Netflix.
+---------
+
+# Citadel Season 2 Premiere: Binge Watch Before May 6 Release
+
+Streaming TV, Masked Recs
+
+Thu, 23 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/citadel-season-2-return-watch-prime-video-catch-up/
+
+A super high-budget spy thriller TV show is returning to Amazon Prime Video in May 2026, so it's a good time to catch up on the first season.
+---------
+
+# Avengers: Endgame's Multiverse Connection To Doomsday Explained
+
+Movies, Avengers: Endgame, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 23 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/avengers-endgame-important-mcu-rewatch-before-doomsday/
+
+Avengers: Endgame is getting a re-release in September, and there are a few reasons why it's worth rewatching before Avengers: Doomsday.
+---------
+
+# Hello Kitty Is Officially Returning With Ridiculously Adorable New Series (Exclusive)
+
+Comics, Hello Kitty, IDW Publishing
+
+Thu, 23 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/hello-kitty-adorable-new-series-idw/
+
+Sanrio's most famous icon, Hello Kitty, is officially back with a series that is seriously too cute to miss, coming sooner than fans expected.
+---------
+
+# Blue Heron Review: Singular Memory Drama Is One Of The Best Movies Of 2026
+
+New Movies
+
+Thu, 23 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/blue-heron-movie-review/
+
+Sophy Romvari’s semi-autobiographical debut feature is a precisely crafted exploration of memory, and the kind of movie magic this medium is for.
+---------
+
+# James Gunn Confirms DCU Timeline For Clayface & It Changes Batman & Superman’s New Movies
+
+Movies, Clayface, DC Universe, Superman, Creature Commandos, The Brave and the Bold
+
+Thu, 23 Apr 2026 12:49:54 GMT
+
+https://screenrant.com/dcu-timeline-clayface-movie-before-superman-batman/
+
+The Clayface movie's place in the DC Universe timeline has been confirmed by James Gunn, which means a twist for the Superman film from 2025.
+---------
+
+# Prime Video Reveals Heated Rivalry Replacement In Trailer New Hockey Romance Series Off Campus
+
+TV, Off Campus
+
+Thu, 23 Apr 2026 12:46:56 GMT
+
+https://screenrant.com/off-campus-show-trailer-prime-video-heated-rivalry-replacement/
+
+Not a year after the success of Heated Rivalry, Prime Video releases the first look at its best replacement for the HBO Max's hit hockey romance show.
+---------
+
+# MLB The Show 26 Is Free Right Now, So Get It While You Still Can
+
+Gaming, MLB The Show 26
+
+Thu, 23 Apr 2026 12:46:54 GMT
+
+https://screenrant.com/mlb-the-show-26-free-nintendo-switch-april-2026/
+
+A month into the new baseball season, MLB The Show 26 is free right now, so be sure to give it a try while you've still got the chance.
+---------
+
+# DC’s Clayface Horror Movie Continues Trend Started by Superman
+
+Movies, Clayface
+
+Thu, 23 Apr 2026 13:03:13 GMT
+
+https://www.cbr.com/clayface-dcu-horror-tagline-trend-superman/
+
+The DCU's body horror film arrives in time for Halloween - but it's already following an exciting trend that started with James Gunn's Superman.
+---------
+
+# Marvel Legends Celebrates Jessica Jones’ MCU Return With Daredevil 2-Pack
+
+TV, Daredevil: Born Again, Jessica Jones, Marvel Cinematic Universe
+
+Thu, 23 Apr 2026 13:03:13 GMT
+
+https://www.cbr.com/jessica-jones-daredevil-born-again-marvel-legends-2-pack/
+
+Krysten Ritter is back in the MCU in Daredevil: Born Again, and fans can celebrate with a 2-pack of Marvel Legends figures based on the show.
+---------
+
+# Star Wars: Maul - Shadow Lord Finally Made the Inquisitors Scary
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Star Wars: Rebels
+
+Thu, 23 Apr 2026 13:03:13 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-inquisitors-scariest-disney-villains/
+
+Over a decade after their debut, the latest Star Wars series turned the Inquisitors into the terrifying threat that they were always meant to be.
+---------
+
+# Paramount’s Primate Is the Essential Modern Creature Feature
+
+Movies, Primate, Stephen King
+
+Thu, 23 Apr 2026 13:03:13 GMT
+
+https://www.cbr.com/paramount-primate-essential-modern-creature-feature/
+
+Primate is finally available on Paramount+, and its Stephen King-style horror is exactly what creature features need today.
+---------
+
+# Absolute Batman Will Reveal Absolute Harley Quinn's Origin Story
+
+Comics, Batman, Harley Quinn
+
+Thu, 23 Apr 2026 12:04:11 GMT
+
+https://www.cbr.com/absolute-harley-quinn-origin-story-confirmed/
+
+DC Comics confirms that the Absolute Harley Quinn's origin story is on the way, and it's shaping up to be an extremely explosive revelation.
+---------
+
+# Spider-Man Officially Teams Up With His Most Horrifying Villain
+
+Comics, Venom, Spider-Man
+
+Thu, 23 Apr 2026 11:46:56 GMT
+
+https://www.cbr.com/venom-257-review-spider-man-bonds-carnage-red-venom/
+
+In a CBR review of Venom #257, see what shocking turns of event had to occur to see Spider-Man willing to team up with...Carnage?!?
+---------
+
+# 'From' Season 4 Is Finally Here and You Can Watch Season 1 For Free
+
+Features, From
+
+Thu, 23 Apr 2026 13:01:16 GMT
+
+https://movieweb.com/from-season-4-return-watch-free-roku/
+
+'From,' the sci-fi mystery series starring Harold Perrineau, returned for Season 4, and fans can stream Season 1 for free.
+---------
+
+# 'Iron Man' Director Jon Favreau Admits He Was Wrong About Tony Stark's Fate
+
+Movie News, Jon Favreau
+
+Thu, 23 Apr 2026 12:38:56 GMT
+
+https://movieweb.com/jon-favreau-wrong-tony-starks-fate/
+
+Years after trying to prevent Stark's death in 'Avengers: Endgame,' Favreau says Joe and Anthony Russo had it right all along.
+---------
+
+# 'Avengers: Doomsday' Trailer Theory Suggests a Full Preview Will Drop Soon
+
+Features, Avengers: Doomsday, MCU
+
+Thu, 23 Apr 2026 12:01:16 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-theory-soon/
+
+'Avengers: Doomsday' is set to be released on December 18, 2026, and it stars Chris Evans, Chris Hemsworth, and Robert Downey Jr., among others.
+---------
+
+# Henry Cavill's Action Adventure Flop 'Argylle' Surges on Streaming Ahead of Planned Sequel
+
+Movie News, Henry Cavill, Argylle, Hot on Streaming, Action
+
+Thu, 23 Apr 2026 12:01:16 GMT
+
+https://movieweb.com/henry-cavill-argylle-streaming-success-apple-tv-april-2026-action/
+
+Despite having an all-star cast, 'Argylle' struggled to find success at the box office, but fared much better on streaming.
+---------
+
+# 'Bosch' Star Titus Welliver Joins Netflix's Spy Thriller 'The Night Agent'
+
+TV News, Titus Welliver, The Night Agent, Bosch, Netflix
+
+Thu, 23 Apr 2026 11:54:31 GMT
+
+https://movieweb.com/netflix-night-agent-season-4-titus-welliver/
+
+Titus Welliver has officially joined Netflix’s 'The Night Agent,' the hit thriller often compared to 'Reacher' and 'Bosch.'
+---------
+
+# A Musical Adaptation of 'The Odyssey' Coming From Producer Jerry Bruckheimer
+
+Movie News, The Odyssey, Jerry Bruckheimer, Christopher Nolan
+
+Thu, 23 Apr 2026 11:38:59 GMT
+
+https://movieweb.com/the-odyssey-musical-adaptation-epic/
+
+Hollywood backs another Odyssey-inspired movie as Bruckheimer produces an adaptation of Jorge Rivera-Herran’s viral 'EPIC: The Musical.'
+---------
+
 # Hogwarts Legacy Official Free Download Adds Hours Of New Content
 
 Gaming, Hogwarts Legacy
