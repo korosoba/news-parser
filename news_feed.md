@@ -1,3 +1,377 @@
+# Stranger Things Officially Reveals What Happened Between Seasons 2 & 3 - 8 Biggest Reveals
+
+Streaming TV, Stranger Things: Tales from '85
+
+Thu, 23 Apr 2026 18:00:24 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-franchise-story-reveals/
+
+Stranger Things: Tales from ’85 is an animated spin-off of the main show set between seasons 2 and 3, revealing exactly what went down in Hawkins.
+---------
+
+# Every Famous Member Of Michael Jackson's Family Tree Explained: Major Projects & Where They Are Now
+
+Music, Janet Jackson, Michael Jackson, Michael, Jaafar Jackson
+
+Thu, 23 Apr 2026 17:55:20 GMT
+
+https://screenrant.com/michael-jackson-family-tree-musicians-explained/
+
+Here is every member of the Jackson family tree explained—including Michael’s talented next of kin.
+---------
+
+# Charlize Theron's New Netflix Thriller Broke 12-Year Career Streak After Mad Max: Fury Road
+
+Movies, Apex, Charlize Theron
+
+Thu, 23 Apr 2026 17:54:12 GMT
+
+https://screenrant.com/charlize-theron-apex-mad-max-filming-emotional-toll-comparison/
+
+EXCLUSIVE: Action star Charlize Theron breaks down how filming her new Netflix action thriller took the most intense toll since Mad Max: Fury Road.
+---------
+
+# 8 Feel-Good LGBTQ+ Movies
+
+Movies
+
+Thu, 23 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/lgbtq-movies-feel-good/
+
+Numerous modern movies have broken free from the “Queer Tragedy Trope” of a Post-Hays-Code Hollywood to radically display LGBTQ+ joy.
+---------
+
+# Michael Jackson Biopic Subtle Changes Reflect Era Shifts
+
+Movies, Michael
+
+Thu, 23 Apr 2026 17:41:24 GMT
+
+https://screenrant.com/michael-2026-filming-techniques-character-changes-eras-director-cast/
+
+Michael 2026 film subtly alters cast, settings to signify time jumps, marking Jackson's life journey from Jackson 5 to historic Bad World Tour, as per director Antoine Fuqua and cast.
+---------
+
+# Sylvester Stallone's Classic 29-Year-Old Crime Thriller Is Officially Being Remade Into A TV Series
+
+Movies, Cop Land
+
+Thu, 23 Apr 2026 17:37:28 GMT
+
+https://screenrant.com/sylvester-stallone-cop-land-remake-series-james-mangold-return/
+
+One of Stallone's classic thrillers is being adapted into a television series, with the original director set to return for the project.
+---------
+
+# Secret Level: Prime Video's Sci-Fi Series Elevates Warhammer 40k Universe
+
+Classic TV, Masked Recs
+
+Thu, 23 Apr 2026 17:30:18 GMT
+
+https://screenrant.com/secret-level-warhammer-40k-episode-post-apocalyptic-universe/
+
+There is an animated anthology on Prime Video that's one of its most underrated sci-fi shows, and it may even influence an upcoming dystopian series.
+---------
+
+# The Bachelor Season 30’s Fate Revealed After Taylor Frankie Paul Cancellation
+
+Reality TV, The Bachelor
+
+Thu, 23 Apr 2026 17:24:16 GMT
+
+https://screenrant.com/the-bachelor-season-30-fate-revealed-after-taylor-frankie-paul-cancellation/
+
+The Bachelor franchise was turned upside down when Taylor Frankie Paul's season was canceled, but now the fate of The Bachelor is finally revealed.
+---------
+
+# Scarlett Johansson & Netflix Adapting New TV Remake Of Her 19-Year-Old Rom-Com
+
+TV, The Nanny Diaries, Scarlett Johansson
+
+Thu, 23 Apr 2026 17:22:20 GMT
+
+https://screenrant.com/scarlett-johansson-netflix-the-nanny-diaries-series/
+
+Netflix is remaking Scarlett Johansson’s 2007 rom-com as a TV show. This time around, the actress is taking on a completely different role.
+---------
+
+# 10 Biggest Changes Invincible Season 4 Makes To Robert Kirkman's Comic Series
+
+TV, Invincible, Invincible - Season 4
+
+Thu, 23 Apr 2026 17:20:18 GMT
+
+https://screenrant.com/invinicible-season-4-comic-changes/
+
+Invincible season 4 makes some significant changes to Robert Kirkman's comics, with each designed to improve the story and characters in the show.
+---------
+
+# One Scene in The Super Mario Galaxy Movie Almost Became the Entire Film
+
+Movies, The Super Mario Galaxy Movie
+
+Thu, 23 Apr 2026 18:00:18 GMT
+
+https://www.cbr.com/super-mario-galaxy-shigeru-miyamoto-interview-yoshi-storyline/
+
+The creator of Mario speaks out about the one fan-favorite character he wanted to focus on in the sequel film - and how plans quickly changed.
+---------
+
+# One Pulp Hero Is Being Given New Life Thanks To A Black Panther Writer
+
+Movies, The Phantom, Black Panther, reginald hudlin
+
+Thu, 23 Apr 2026 18:00:18 GMT
+
+https://www.cbr.com/black-panther-writer-quietly-reviving-iconic-superhero-phantom/
+
+Marvel has seen some of the most talented writers come and go, and one esteemed Black Panther writer is now adapting a beloved comic strip hero to TV.
+---------
+
+# Spider-Man Actor Addresses Return in Brand New Day: "I Can Give You a Big Spoiler"
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 23 Apr 2026 17:55:15 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-mcu-return-jon-favreau/
+
+An MCU veteran reveals if he's in Spider-Man: Brand New Day.
+---------
+
+# Yu-Gi-Oh Officially Brings Back Beloved Archetypes in Legendary Modern Decks 2026
+
+Games, Yu-Gi-Oh!
+
+Thu, 23 Apr 2026 17:50:12 GMT
+
+https://www.cbr.com/yu-gi-oh-tcg-legendary-modern-decks-2026-sky-strikers-x-sabers/
+
+Konami has released three Yu-Gi-Oh Legendary Modern Decks for 2026, bringing back beloved archetypes from the old days like Sky Strikers and X-Sabers.
+---------
+
+# The Last Straighter Finally Gets A Sequel in The Backstage Pass
+
+CBR Exclusives, CBR's Backstage Pass
+
+Thu, 23 Apr 2026 17:47:54 GMT
+
+https://www.cbr.com/the-last-straighter-finally-gets-a-sequel-in-the-backstage-pass/
+
+Also, the Avengers: Doomsday trailer and more with Maul in this week's Backstage Pass.
+---------
+
+# 10 Things About The Handmaid's Tale That Make No Sense
+
+TV, The Handmaid's Tale
+
+Thu, 23 Apr 2026 17:40:12 GMT
+
+https://www.cbr.com/handmaids-tale-makes-no-sense-list/
+
+While The Handmaid's Tale is always praised for its impeccable writing and impressive worldbuilding, a few details don't quite add up.
+---------
+
+# Marvel Finally Confirms Luke Cage's New Role in the MCU
+
+TV, Daredevil: Born Again, Jessica Jones, Luke Cage
+
+Thu, 23 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/luke-cage-new-role-in-mcu-explained/
+
+During Jessica Jones and Daredevil's conversations in Daredevil: Born Again, she revealed a big Luke Cage secret to MCU fans.
+---------
+
+# The DCU's Clayface Movie Proves The Difference Between DC and Marvel
+
+Movies, DCU
+
+Thu, 23 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/dcu-clayface-proves-difference-between-dc-marvel/
+
+The DCU is attempting to create a different identity and this latest release showcases how it contrasts from Marvel Studios' work.
+---------
+
+# Apple TV’s For All Mankind Spinoff Star City Gets First Trailer
+
+TV, Star City
+
+Thu, 23 Apr 2026 17:22:53 GMT
+
+https://www.cbr.com/star-city-trailer-apple-tv/
+
+The anticipated spinoff gets its first official trailer one month before its Apple TV premiere.
+---------
+
+# Slay the Spire II Is Already as Good as Hades 2, and It Just Hit Early Access
+
+Games, Video Games, Hades 2, Hades, Slay the Spire
+
+Thu, 23 Apr 2026 17:16:14 GMT
+
+https://www.cbr.com/slay-the-spire-2-indie-roguelike-early-access/
+
+Hades 2 is a fine rougelike, but this game outdoes it in many ways.
+---------
+
+# Only 8 Epics in the 2020s Can Be Considered True Masterpieces
+
+Movie, The Brutalist, Dune, Everything Everywhere All at Once, Oppenheimer
+
+Thu, 23 Apr 2026 17:19:12 GMT
+
+https://collider.com/2020s-epic-movie-masterpieces/
+
+Babylon, The Northman, Dune, Killers of the Flower Moon, The Brutalist, and more make up our list of 2020s epics that can be considered masterpieces.
+---------
+
+# Titus Welliver's Genre-Bending 'Bosch' Follow-Up Arrives on Streaming Next Month
+
+Movie News, Abraham's Boys, Titus Welliver, Horror, Bosch
+
+Thu, 23 Apr 2026 17:18:19 GMT
+
+https://collider.com/bosch-star-titus-welliver-horror-series-abrahams-boys-hulu-may-12-2026/
+
+Abraham’s Boys, starring Bosch icon Titus Welliver, begins streaming on Hulu this May. Read on for more details.
+---------
+
+# The Stephen King Sci-Fi Thriller With the Most Shocking Ending of All Time Arrives on Free Streaming Next Month
+
+Movie News, The Mist, Horror, Frank Darabont, Stephen King
+
+Thu, 23 Apr 2026 17:17:15 GMT
+
+https://collider.com/stephen-king-sci-fi-thriller-the-mist-free-streaming-kanopy-may-2026/
+
+The Mist, the Stephen King masterpiece with one of the most shocking endings to a sci-fi thriller of all time, will soon stream for free.
+---------
+
+# 'Dexter' Meets 'American Psycho' in 2014's Most Bonkers Horror Crime Thriller Streaming Free Next Month
+
+Movie News, The Voices, Ryan Reynolds, Gemma Arterton, Anna Kendrick
+
+Thu, 23 Apr 2026 17:16:24 GMT
+
+https://collider.com/ryan-reynolds-horror-crime-thriller-the-voices-free-streaming-kanopy-may-2026/
+
+Ryan Reynolds’ bonkers horror comedy The Voices, which is a blend of Dexter and American Psycho, will soon be streaming for free.
+---------
+
+# Mark Wahlberg’s Most Underrated Movie of All Time Its Free Streaming on May 15
+
+Movie News, Instant Family, Mark Wahlberg, Rose Byrne, Isabela Merced
+
+Thu, 23 Apr 2026 17:15:22 GMT
+
+https://collider.com/mark-wahlberg-instant-family-free-streaming-kanopy-may-2026/
+
+Mark Wahlberg and Isabela Merced's Instant Family arrives on a new platform on May 15, making the hit family comedy free to stream.
+---------
+
+# 15 Years Later, 'Superbad' Meets 'The Bucket List' in This Free Streaming Sensation
+
+Movie News, 50/50, Seth Rogen, Joseph Gordon-Levitt, Anna Kendrick
+
+Thu, 23 Apr 2026 17:13:17 GMT
+
+https://collider.com/seth-rogen-joseph-gordon-levitt-50-50-free-streaming-kanopy-may-2026/
+
+50/50, starring Seth Rogen and Joseph Gordon-Levitt, arrives on Kanopy on May 15, making the acclaimed cancer dramedy free to stream.
+---------
+
+# 10 Gangster Movies That Are Perfectly Written
+
+Movie, Crime, Goodfellas, The Godfather, The Godfather Part II
+
+Thu, 23 Apr 2026 17:08:12 GMT
+
+https://collider.com/gangster-movies-perfectly-written/
+
+Crime movie classics like The Godfather, Animal Kingdom, and The Usual Suspects are perfectly written gangster movies.
+---------
+
+# After Cancelling ’Star Trek’s Latest Spin-off, Paramount+ Is Quietly Building a Better Sci-Fi Future
+
+TV Features, Battlestar Galactica, Star Trek: Starfleet Academy, Paramount Plus
+
+Thu, 23 Apr 2026 17:03:13 GMT
+
+https://collider.com/battlestar-galactica-now-streaming-on-paramount-plus-pluto/
+
+The 2004 reboot of Battlestar Galactica recontextualized themes of war and xenophobia in a series about humanity's fight with the Cylons.
+---------
+
+# See How Pixar's Bonkers New Sci-Fi Adventure Nearly Started With This Deleted Cold Open [Exclusive]
+
+Movie News, Hoppers, Pixar, Bobby Moynihan, Disney
+
+Thu, 23 Apr 2026 17:01:12 GMT
+
+https://collider.com/hoppers-behind-the-scenes-sneak-peek-cold-open-digital-dvd-blu-ray-release-date/
+
+Pixar has shared the home release date for Hoppers and a BTS sneak peek showing what could've been the bonkers animated film's riotous cold open.
+---------
+
+# Netflix Continues to Dominate With Book Adaptations, From 'Bridgerton' to 'Remarkably Bright Creatures
+
+Movie News, Netflix, Remarkably Bright Creatures, His & Hers, People We Meet on Vacation
+
+Thu, 23 Apr 2026 17:01:12 GMT
+
+https://collider.com/netflix-literary-adpatations-streaming-success-bridgerton-remarkably-bright-creatures-bridgerton/
+
+World Book Day is here and Netflix again has a stack of page-to-screen adaptations on offer, including the upcoming Remarkably Bright Creatures.
+---------
+
+# The Best War Movie Ever Made 'Saving Private Ryan' Is Leaving Free Streaming on Tubi
+
+Movie News, Saving Private Ryan, Tubi
+
+Thu, 23 Apr 2026 18:00:23 GMT
+
+https://movieweb.com/saving-private-ryan-best-war-movie-leaving-streaming-free-tubi-may-2026/
+
+'Saving Private Ryan' will no longer stream for free on Tubi in May 2026, so watch the greatest war movie of all-time while you still can for free.
+---------
+
+# Hannibal Lecter Movies in Order: How to Watch Chronologically and By Release Date
+
+Features, Silence of the Lambs, Hannibal
+
+Thu, 23 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/hannibal-movies-in-order/
+
+Here's how to watch every movie and TV show featuring Thomas Harris' cannibal creation, Hannibal Lecter.
+---------
+
+# 'Karate Kid: Legends' Didn't Keep the Franchise Alive After 'Cobra Kai' as Expected
+
+Features, Karate Kid: Legends, Cobra Kai
+
+Thu, 23 Apr 2026 17:00:16 GMT
+
+https://movieweb.com/karate-kid-franchise-struggling-after-cobra-kai/
+
+2025's 'Legends' was supposed to usher in a new age for the 'Karate Kid' franchise, but things haven't been great since 'Cobra Kai' ended.
+---------
+
+# James Gunn Confirms 'Clayface' DCU Timeline, Teases 'Creature Commandos' Connection
+
+Movie News, Clayface, DCU, James Gunn
+
+Thu, 23 Apr 2026 16:59:30 GMT
+
+https://movieweb.com/james-gunn-clayface-fits-dcu-timeline/
+
+James Gunn reveals the Batman villain film is the first chronologically in the DCU, setting it before 'Superman.'
+---------
+
 # New Spider-Man Teaser Unveils Better Look At Ben Reilly's 4 Major Villains In Amazon's 8-Part Marvel Series
 
 TV, Spider-Noir, Spider-Noir - Season 1, Spider-Man
