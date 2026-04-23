@@ -1,3 +1,366 @@
+# New Spider-Man Teaser Unveils Better Look At Ben Reilly's 4 Major Villains In Amazon's 8-Part Marvel Series
+
+TV, Spider-Noir, Spider-Noir - Season 1, Spider-Man
+
+Thu, 23 Apr 2026 16:53:31 GMT
+
+https://screenrant.com/prime-video-spider-noir-villains-megawatts-sandman-tombstone/
+
+A new Spider-Man teaser trailer unveils a better look at Ben Reilly's four major villains in Amazon Prime Video's upcoming eight-part Marvel series.
+---------
+
+# Chainsaw Man: Reze Arc Crunchyroll Streaming Release Date Officially Confirmed
+
+Anime, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc
+
+Thu, 23 Apr 2026 16:35:21 GMT
+
+https://screenrant.com/chainsaw-man-reze-arc-streaming-release-date-officially-revealed/
+
+Another massive hit 2025 anime movie is about to be a lot more accessible to its adoring fans!
+---------
+
+# HBO’s Gritty New 6-Part Thriller Series Debuts To Promising Rotten Tomatoes Score
+
+TV, Half Man, HBO
+
+Thu, 23 Apr 2026 16:33:55 GMT
+
+https://screenrant.com/half-man-hbo-rotten-tomatoes-score-debut/
+
+HBO's gritty new six-episode thriller created by an award-winning TV creative series debuts to a promising Rotten Tomatoes score.
+---------
+
+# Clueless Sequel Series Quietly Canceled By Peacock
+
+TV, Clueless
+
+Thu, 23 Apr 2026 16:25:27 GMT
+
+https://screenrant.com/clueless-sequel-series-quietly-canceled-by-peacock/
+
+Peacock's sequel series to the 1995 classic rom-com Clueless with Alicia Silverstone is reportedly no longer moving forward at the streamer.
+---------
+
+# Steam 9/10 Fantasy Adventure Completely Free To Keep, Grab Before April 26
+
+Gaming, Steam
+
+Thu, 23 Apr 2026 16:21:33 GMT
+
+https://screenrant.com/steam-free-fantasy-adventure-nocturnal/
+
+Discover the hidden gem Nocturnal, a highly rated action-adventure game, now available for free download on Steam from April 23-26.
+---------
+
+# Assassin's Creed Black Flag Resynced Will Officially Be Unplayable For Millions At Launch
+
+Gaming, Assassin's Creed, Assassin's Creed 4: Black Flag, Ubisoft
+
+Thu, 23 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-unplayable-launch/
+
+Assassin's Creed Black Flag Resynced is real, but it will unfortunately not be available to everyone at launch.
+---------
+
+# Assassin's Creed: Black Flag Resynced 7 Biggest Changes From The Original Game
+
+Gaming, Assassin's Creed 4: Black Flag, Ubisoft, Assassin's Creed
+
+Thu, 23 Apr 2026 16:14:19 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-biggest-changes/
+
+Assassin's Creed: Black Flag Resynced is a very different game - here are the seven biggest changes from the 2013 original.
+---------
+
+# Assassin's Creed: Black Flag Resynced Officially Unveiled With 2026 Release Date
+
+Gaming, Assassin's Creed, Assassin's Creed 4: Black Flag, Ubisoft
+
+Thu, 23 Apr 2026 16:13:33 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-official-release-date/
+
+Everybody act surprised! Assassin's Creed: Black Flag Resynced is real, and it's coming this year. We've got all the first details.
+---------
+
+# Iconic $4 Billion Franchise Gets First Ever LEGO Sets For A Surprising Cost
+
+Movies, Shrek, LEGO
+
+Thu, 23 Apr 2026 16:09:35 GMT
+
+https://screenrant.com/shrek-franchise-first-lego-set-cost-details/
+
+One of the most iconic movie franchises of all-time with $4 billion in box office earning is getting its first-ever LEGO set with a surprising cost.
+---------
+
+# Quincy Jones Once Told Me Michael Jackson 'Lost His Mind' Over Billie Jean
+
+Movies, Michael Jackson, Michael, Pop
+
+Thu, 23 Apr 2026 16:06:40 GMT
+
+https://screenrant.com/quincy-jones-michael-jackson-billie-jean-exclusive/
+
+As the Michael biopic hits theaters, I’m sharing what Quincy Jones told me about the "crazy" fight for the iconic Billie Jean intro.
+---------
+
+# Peacock Seals the Fate of Clueless Sequel Series With Alicia Silverstone
+
+TV, Clueless
+
+Thu, 23 Apr 2026 16:39:00 GMT
+
+https://www.cbr.com/clueless-sequel-series-peacock-scrapped/
+
+A major update is revealed about the future of Alicia Silverstone's Clueless sequel on Peacock.
+---------
+
+# The Legend of Vox Machina Season 4 Gets Trailer & Release Date
+
+TV, The Legend of Vox Machina, Fantasy, Prime Video
+
+Thu, 23 Apr 2026 16:35:34 GMT
+
+https://www.cbr.com/the-legend-of-vox-machina-season-4-trailer-release-date/
+
+The Legend of Vox Machina, Prime Video's 100% RT Critical Role series, is finally returning for its fourth season.
+---------
+
+# Marvel's Spider-Man/Superman Crossover Officially Put Character Ahead of Spectacle
+
+Comics, Spider-Man, Superman
+
+Thu, 23 Apr 2026 16:27:23 GMT
+
+https://www.cbr.com/spider-man-superman-review-character-ahead-spectacle/
+
+In a CBR review of Spider-Man/Superman, see how Marvel's side of the crossover event placed character front and center
+---------
+
+# 10 Best Anime Hard-Won Redemption Arcs
+
+Anime, Avatar: The Last Airbender, Dragon Ball, My Hero Academia, Naruto
+
+Thu, 23 Apr 2026 16:16:12 GMT
+
+https://www.cbr.com/best-anime-redemption-arcs-of-all-time/
+
+From Zuko, to Reiner, to Vegeta, the anime heroes with the most satisfying redemption arcs rank among the greatest in the medium.
+---------
+
+# Iron Man Director Finally Admits “I Was Wrong” About Tony Stark’s Death
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe
+
+Thu, 23 Apr 2026 16:04:15 GMT
+
+https://www.cbr.com/jon-favreau-wrong-about-iron-man-mcu-death/
+
+Iron Man director and Happy Hogan actor Jon Favreau is ready to admit that he was wrong about Tony Stark's death in Avengers: Endgame.
+---------
+
+# Stephen King's $68.5M Sci-Fi Remake The Running Man Celebrates Major Paramount+ Milestone
+
+Movies, The Running Man
+
+Thu, 23 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/stephen-king-the-running-man-paramount-plus-milestone-april-2026/
+
+The film had an underwhelming theatrical run but it found its audience on streaming.
+---------
+
+# Overhated & Underrated: Escape from L.A. is an Overhated 90s Classic
+
+Movies, Overhated & Underrated, Escape from LA
+
+Thu, 23 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/overhated-underrated-escape-from-la/
+
+The dystopian genre is beloved by cinephiles, but one film continues to receive undeserved hate.
+---------
+
+# 29 Years Later, A Horrifying Sci-Fi Movie Sequel Has Been Confirmed
+
+Comics, Event Horizon
+
+Thu, 23 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/event-horizon-inferno-prequel-comic-on-sale-now/
+
+One of the most beloved cult classic sci-fi horror films of an entire generation has finally received the sequel it always needed.
+---------
+
+# James Gunn Officially Confirms Clayface’s Place in the DCU Timeline
+
+Movies, DCU, DC Comics, Clayface, The Batman, The Batman Part II, Batman, The Bold and the Brave
+
+Thu, 23 Apr 2026 15:45:32 GMT
+
+https://www.cbr.com/james-gunn-officially-confirms-clayface-dcu-timeline/
+
+We now know exactly when Clayface will exist in James Gunn's DCU timeline, and it's unexpected.
+---------
+
+# Steam Users Have Until April 29 to Claim Free Adventure Game
+
+Games, Steam
+
+Thu, 23 Apr 2026 15:30:12 GMT
+
+https://www.cbr.com/steam-aeonic-free-adventure-game-april-29/
+
+Aeonic is a classic adventure game, and it's free to claim on Steam from now until April 29, 2026.
+---------
+
+# Another Classic '90s Reboot Is Officially Dead
+
+TV News, Clueless, Alicia Silverstone, Paul Rudd, Peacock
+
+Thu, 23 Apr 2026 16:30:37 GMT
+
+https://collider.com/alicia-silverstone-clueless-90s-reboot-series-cancelled-peacock/
+
+After the Buffy the Vampire remake was scrapped by Hulu, Peacock is not moving forward with Alicia Silverstone's Clueless reboot series.
+---------
+
+# 10 Best Stephen King Short Stories, Ranked
+
+Movie, Stephen King, 1408, Children of the Corn, Nightmares & Dreamscapes: From the Stories of Stephen King
+
+Thu, 23 Apr 2026 16:21:12 GMT
+
+https://collider.com/best-stephen-king-short-stories-ranked/
+
+Of the countless short stories Stephen King has written, classics like "Survivor Type," "The Jaunt," and "Quitters, Inc." are among the very best.
+---------
+
+# Every Daniel Craig James Bond Theme Song, Ranked by Cultural Impact
+
+Music Features, James Bond, Daniel Craig, Sam Smith: Love Goes - Live at Abbey Road Studios, Billie Eilish, Chris Cornell, Alicia Keys, Jack White: Unstaged, Adele, Skyfall, Quantum of Solace, Casino Royale, 007, Lists, Music
+
+Thu, 23 Apr 2026 16:15:12 GMT
+
+https://collider.com/daniel-craig-james-bond-theme-songs-ranked/
+
+From Chris Cornell to Adele to Billie Eilish and Sam Smith, the best Bond Theme Songs from the Daniel Craig era.
+---------
+
+# ‘Assassin’s Creed’ Officially Returns This Summer With New Release
+
+Gaming News, Assassin's Creed IV: Black Flag, Assassin's Creed, Ubisoft
+
+Thu, 23 Apr 2026 16:07:59 GMT
+
+https://collider.com/assassins-creed-black-flag-resynced-trailer-release-date-july-9/
+
+Ubisoft has released the first official trailer for the Assassin’s Creed Black Flag remake. Check it out here.
+---------
+
+# 30 Years Later, ‘Sleepers’ Proves Why Mid-Budget Thrillers Still Matter Today [Exclusive]
+
+Exclusives, Sleepers, Barry Levinson, Crime, Thriller
+
+Thu, 23 Apr 2026 16:01:13 GMT
+
+https://collider.com/sleepers-director-barry-levinson-mid-budget-thrillers-not-made-any-more/
+
+30 years later, director Barry Levinson explains why Hollywood rarely makes adult studio dramas like Sleepers anymore.
+---------
+
+# Prime Video's Best Fantasy Series Officially Returns on June 3
+
+TV News, The Legend of Vox Machina, Prime Video, Fantasy, Critical Role
+
+Thu, 23 Apr 2026 15:52:31 GMT
+
+https://collider.com/prime-video-fantasy-series-the-legend-of-vox-machina-season-4-release-date-june-3-2026/
+
+Prime Video's hit fantasy saga, The Legend of Vox Machina, officially returns this June. Read on for more details.
+---------
+
+# Prime Video's New Spider-Man Series Officially Confirms 4 Major Villains
+
+TV News, Spider-Noir, Nicolas Cage, Prime Video, Spider-Man: Into The Spider-Verse
+
+Thu, 23 Apr 2026 15:45:00 GMT
+
+https://collider.com/prime-video-spider-noir-teaser-villain-reveal-silvermane-sandman-tombstone-megawatt/
+
+Prime Video has revealed key details about the villains in Nicolas Cage's Spider-Noir, including Sandman, Tombstone, and Megawatt.
+---------
+
+# Rob Mac Goes Back in Time Without Ryan Reynolds in Hilarious New Wrexham Ad
+
+TV News, Welcome to Wrexham, Ryan Reynolds, Rob McElhenney, FX
+
+Thu, 23 Apr 2026 15:37:33 GMT
+
+https://collider.com/ryan-reynolds-rob-mac-welcome-to-wrexham-ancestry-crossover-ad-video/
+
+With Welcome to Wrexham Season 5 debuting next month, Ryan Reynolds and Rob Mac have reunited for a hilarious new Ancestry.com ad.
+---------
+
+# 'The Pitt' Just Set Up 9 Unexpected Season 3 Mysteries
+
+TV, The Pitt
+
+Thu, 23 Apr 2026 15:36:13 GMT
+
+https://collider.com/the-pitt-season-3-mysteries-hbo-max/
+
+The Pitt Season 2 has concluded, so while we wait for the highly anticipated Season 3, these are our burning questions for the HBO Max series.
+---------
+
+# 'Spider-Noir' Featurette Unveils Iconic Spider-Man Villains
+
+TV News, Spider-Noir, Spider-Noir (2025), Prime Video
+
+Thu, 23 Apr 2026 16:08:28 GMT
+
+https://movieweb.com/spider-noir-featurette-villains/
+
+A new 'Spider-Noir' preview has offered a closer look at the villains appearing in the 'Spider-Man' spin-off, including Sandman, Tombstone, and more.
+---------
+
+# A24 Challenges Taylor Sheridan as the New "King of Streaming"
+
+TV News, Taylor Sheridan, A24, Hot on Streaming
+
+Thu, 23 Apr 2026 16:01:18 GMT
+
+https://movieweb.com/a24-challenges-taylor-sheridan-as-new-king-of-streaming/
+
+Taylor Sheridan's stranglehold over streaming is being tested thanks to three of A24's hottest TV shows right now.
+---------
+
+# 7 Reasons the Reviews for 'Stranger Things: Tales from '85' Are So Bad
+
+TV Lists, Stranger Things: Tales from '85
+
+Thu, 23 Apr 2026 16:01:18 GMT
+
+https://movieweb.com/7-reasons-the-reviews-for-stranger-things-tales-from-85-are-so-bad/
+
+'Stranger Things: Tales from '85,' the animated spin-off of the Netflix series, premiered on April 23, 2025 and tells a new story in Hawkins, Indiana.
+---------
+
+# ‘Scary Movie 6’ Targets Michael Jackson in New Teaser: "Touching Fans Everywhere"
+
+Movie News, Scary Movie, Marlon Wayans, Kenan Thompson
+
+Thu, 23 Apr 2026 15:52:35 GMT
+
+https://movieweb.com/scary-movie-6-michael-jackson-teaser/
+
+The 'Scary Movie' franchise mocks this weekend's release of 'Michael.'
+---------
+
 # Netflix's 2-Part Sci-Fi Series With Near-Perfect RT Score Is Quietly One Of Its Best Superhero Shows
 
 Classic TV, Masked Recs, Recommendation, Raising Dion, Netflix, Sci-Fi
