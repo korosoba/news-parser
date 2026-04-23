@@ -1,3 +1,146 @@
+# Hogwarts Legacy Official Free Download Adds Hours Of New Content
+
+Gaming, Hogwarts Legacy
+
+Thu, 23 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/hogwarts-legacy-free-download-creator-kit-new-content/
+
+Discover how the Hogwarts Legacy modding community is keeping the game fresh with the official free Creator Kit.
+---------
+
+# A Beloved Zelda Game Is Finally Getting The Re-Release It Deserves After 20 Years
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Twilight Princess, Nintendo
+
+Thu, 23 Apr 2026 11:13:18 GMT
+
+https://screenrant.com/legend-of-zelda-twilight-princess-2026-release-pc/
+
+Zelda fans rejoice, one of the series' very best entries is getting a big re-release after 20 long years.
+---------
+
+# One Week Left Before Xbox Game Pass Removes Must-Play Shooter
+
+Gaming, Xbox Game Pass, Hunt: Showdown 1896, Live Service Games, PC
+
+Thu, 23 Apr 2026 11:00:20 GMT
+
+https://screenrant.com/hunt-showdown-leaving-xbox-game-pass-april-30/
+
+The Xbox Game Pass carousel comes for every title on the service eventually, so use this week to try out a legendary extraction shooter.
+---------
+
+# Elden Ring Official Prequel Has Gamers Losing Their Minds
+
+Gaming, Elden Ring
+
+Thu, 23 Apr 2026 10:45:18 GMT
+
+https://screenrant.com/elden-ring-official-prequel-2028/
+
+Set leaks from the upcoming Elden Ring movie have fans buzzing with the revelation of a prequel plot.
+---------
+
+# Red Dead Redemption Remade In RDR2’s Engine Is Everything I've Ever Wanted
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Thu, 23 Apr 2026 10:36:46 GMT
+
+https://screenrant.com/red-dead-redemption-remake-rdr2-engine-project-new-austin/
+
+GTA 6? I couldn't care less. Give me a Red Dead Redemption remake in RDR2's engine any day of the week.
+---------
+
+# The Last Of Us Prequel Has Gamers Seriously Excited
+
+Gaming, The Last of Us
+
+Thu, 23 Apr 2026 10:30:18 GMT
+
+https://screenrant.com/last-of-us-joel-prequel-gamer-reactions/
+
+Fans are buzzing about actor Troy Baker's comments on the future of The Last of Us franchise.
+---------
+
+# Luther's Alice Morgan Is TV's Most Unforgettable Femme Fatale
+
+TV, Luther, idris elba
+
+Thu, 23 Apr 2026 11:34:12 GMT
+
+https://www.cbr.com/luther-alice-morgan-most-disturbing-tv-female-villain/
+
+Television is filled with one-note female villains, but this femme fatale steals the show.
+---------
+
+# 10 Best Batman Comics That Are Loved and Hated at the Same Time
+
+Comics, Batman, DC Comics
+
+Thu, 23 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/10-best-batman-comics-fans-both-love-and-hate-list/
+
+Batman has countless legendary comic book stories, but these ten tales are often both loved and hated by fans of the Caped Crusader.
+---------
+
+# 20 Greatest Classic Rock Acoustic Guitar Intros, Ranked
+
+Music Features, The Beatles, Led Zeppelin, Jethro Tull: Live At Montreux 2003, Pink Floyd
+
+Thu, 23 Apr 2026 10:56:12 GMT
+
+https://collider.com/classic-rock-acoustic-guitar-intros-best-ranked/
+
+Classic rock songs like "Dust In the Wind" by Kansas and "Stairway to Heaven" by Led Zeppelin have some of the best acoustic guitar intros ever.
+---------
+
+# 'The Outsider' Has the Most Perfect Cast of Any Stephen King TV Adaptation
+
+Features, The Outsider, Stephen King
+
+Thu, 23 Apr 2026 11:01:16 GMT
+
+https://movieweb.com/the-outsider-stephen-king-perfect-cast/
+
+'The Outsider,' the HBO miniseries based on the novel by Stephen King, stars Jason Bateman, Cynthia Erivo, and Ben Mendelsohn.
+---------
+
+# Paul Greengrass' New Historical Action Epic 'The Uprising' Sets Release Date
+
+Movie News, The Uprising, Paul Greengrass, Andrew Garfield, Action, War
+
+Thu, 23 Apr 2026 10:48:54 GMT
+
+https://movieweb.com/the-uprising-release-date-greengrass-garfield/
+
+The period action movie stars Andrew Garfield as a man who becomes leader of the 1381 Peasants' Revolt in England against King Richard II.
+---------
+
+# Michael Jackson's Nephew Fires Back at Critics Ahead of Biopic Release
+
+Movie News, Michael, michael jackson
+
+Thu, 23 Apr 2026 10:42:04 GMT
+
+https://movieweb.com/michael-jackson-nephew-defends-biopic-critics-reviews/
+
+Michael Jackson's nephew Taj Jackson has fired back at critics of the 'Michael' biopic, stating that the media can no longer "control the narrative."
+---------
+
+# Henry Cavill Wears a Kilt in New 'Highlander' Reboot Images
+
+Movie News, Henry Cavill, Highlander, Action, Fantasy
+
+Thu, 23 Apr 2026 10:18:09 GMT
+
+https://movieweb.com/henry-cavill-highlander-images-kilt-battle/
+
+The former Man of Steel joins forces with Kevin McKidd and WWE star Drew McIntyre in new images from 'John Wick' director's action fantasy remake.
+---------
+
 # Cyberpunk 2077 Official Free Download Available For Millions, Don't Miss Out
 
 Gaming, Cyberpunk 2077
