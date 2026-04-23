@@ -1,3 +1,223 @@
+# Lee Pace Addresses Comparison Between His Invincible Season 4 & MCU Villains
+
+TV, Invincible, Invincible - Season 4, Prime Video, Lee Pace
+
+Thu, 23 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/lee-pace-invincible-season-4-thragg-ronan-mcu-comparisons-addressed/
+
+Lee Pace talks joining Invincible season 4 as the villainous Thragg and the comparisons between him and his iconic Marvel Cinematic Universe villain.
+---------
+
+# Everybody Loves Raymond's Best Episode: Snow Day
+
+Classic TV, Everybody Loves Raymond
+
+Thu, 23 Apr 2026 21:30:20 GMT
+
+https://screenrant.com/everybody-loves-raymond-best-episode-tv-greatest/
+
+14 years after it aired, the best episode of Everybody Loves Raymond still holds up and is an example of why the series is considered a classic.
+---------
+
+# Director Discusses Apex's Shift From Theatrical To Netflix Release
+
+Movies, Apex, Netflix, Charlize Theron
+
+Thu, 23 Apr 2026 21:30:00 GMT
+
+https://screenrant.com/netflix-apex-original-theatrical-release-ambitions-director/
+
+Apex director Baltasar Kormákur explains the film's transition from a big screen debut to a Netflix release, and why he remains hopeful that audiences can still experience the film's grandeur on any screen.
+---------
+
+# 10 Directors Top Gun 3 Could Land To Replace Maverick's Joseph Kosinski
+
+New Movies, Top Gun 3, Top Gun
+
+Thu, 23 Apr 2026 21:01:20 GMT
+
+https://screenrant.com/top-gun-3-directors-replace-joseph-kosinski/
+
+Top Gun 3 may need a new director, with Maverick's Joseph Kosinski becoming too busy. Here's who Paramount and Tom Cruise could consider.
+---------
+
+# Invincible Season 4's Finale Marks The End Of A 5-Year Era
+
+Streaming TV, Invincible
+
+Thu, 23 Apr 2026 21:01:20 GMT
+
+https://screenrant.com/invincible-season-4-end-of-era-viltrumite-villains/
+
+Invincible season 4's finale ends on an ambiguous note, but one thing's for certain: the episode marks the end of an era after five years.
+---------
+
+# The Uncensored Version of 2026's Most Controversial Anime Episode Is Getting an Official Release
+
+Anime, Rent-A-Girlfriend
+
+Thu, 23 Apr 2026 20:52:29 GMT
+
+https://screenrant.com/controversial-rent-a-girlfriend-release-blu-ray-censorship/
+
+Rent-a-Girlfriend's censorship battle reached a boiling point this week as the anime tackled a famous scene, sparking outrage among fans.
+---------
+
+# Taylor Sheridan's Underrated 3-Part Action Series Gets Exciting "Minefield" Story Return Tease From Major Star
+
+TV, Lioness
+
+Thu, 23 Apr 2026 20:45:58 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-season-3-story-tease-nicole-kidman/
+
+One of Taylor Sheridan's most underrated shows gets a very positive update from one of its biggest stars about its upcoming third season.
+---------
+
+# Netflix's New Psychological Thriller Unchosen Tops Global Streaming Charts
+
+TV, Unchosen, Thriller, Netflix
+
+Thu, 23 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/unchosen-british-psychological-thriller-netflix-success-april-2026/
+
+Molly Windsor and Asa Butterfield's psychological thriller Unchosen has become the No. 1 most-watched show on Netflix worldwide days after debut.
+---------
+
+# Star Trek Officially Confirms Captain Kirk Will Fight One Horrifying Villain
+
+Comics, Star Trek
+
+Thu, 23 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/star-trek-picard-borg-last-starship-battle-idw-publishing/
+
+Star Trek fans get a long-awaited battle as a new story confirms Kirk will face off with one of his most terrifying enemies.
+---------
+
+# Red Dead Redemption 2 Officially Visits Mexico in New Expansion
+
+Games, Red Dead Redemption 2
+
+Thu, 23 Apr 2026 21:20:36 GMT
+
+https://www.cbr.com/red-dead-redemption-2-mexico-expansion/
+
+A new expansion allows Red Dead Redemption 2 players to ride into Mexico.
+---------
+
+# Young Sheldon’s Iain Armitage Officially Returns to CBS After 2 Years
+
+TV, Young Sheldon, Ghosts, CBS
+
+Thu, 23 Apr 2026 21:18:48 GMT
+
+https://www.cbr.com/iain-armitage-young-sheldon-cbs-return-in-ghosts-season-5/
+
+Young Sheldon star Iain Armitage makes his return to CBS two years after his The Big Bang Theory spinoff wrapped in 2024, per franchise canon.
+---------
+
+# 10 Underrated Nintendo Switch Games That Are 10/10, No Notes
+
+Games, Nintendo Switch, Nintendo
+
+Thu, 23 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/underrated-nintendo-switch-games-flawless-start-to-finish/
+
+There are many great under-the-radar Switch games out there, including Chicory: A Colorful Tale and Graveyard Keeper.
+---------
+
+# Apple TV's Criminal Record Season 2 Is an Instant Streaming Hit
+
+TV, Criminal Record
+
+Thu, 23 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/criminal-record-streaming-apple-tv-april-2026/
+
+Apple TV's acclaimed crime series comes back with a bang on streaming.
+---------
+
+# The 10 Most Terrifying AI Villains In Movies That Define The Sci-Fi Genre
+
+Movies, Sci-Fi
+
+Thu, 23 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/most-terrifying-ai-villains-in-movies/
+
+From rogue supercomputers to emotionless androids, these AI villains are the stuff of modern nightmares.
+---------
+
+# Daredevil: Born Again Season 3 Set Photos Reveal Major Kingpin Spoilers
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Thu, 23 Apr 2026 20:55:10 GMT
+
+https://www.cbr.com/daredevil-born-again-season-3-kingpin-change-set-photo/
+
+Daredevil: Born Again set photos reveal the first look at Vincent D'Onofrio as Wilson Fisk in Season 3, and spoil a major change to the Kingpin.
+---------
+
+# HBO's Forgotten 2-Part Drama Is So Good, You'll Watch It in a Single Weekend
+
+TV Features, Julia, HBO, HBO Max, Drama
+
+Thu, 23 Apr 2026 21:27:12 GMT
+
+https://collider.com/hbo-julia-child-forgotten-drama-best-to-binge/
+
+HBO's overlooked Julia Child drama follows her rise to TV icon, explores 60s feminism, and is a captivating binge-watch.
+---------
+
+# Taylor Sheridan Needs To Forget 'Yellowstone' and Return to His Neo-Western Movie Roots
+
+Movie Features, Taylor Sheridan, Yellowstone, Sicario, Paramount TV
+
+Thu, 23 Apr 2026 21:09:14 GMT
+
+https://collider.com/taylor-sheridan-neo-western-movies-better-than-tv/
+
+While Taylor Sheridan has achieved a ton of success with shows like Yellowstone, he's at his best when he's writing movies like Sicario.
+---------
+
+# 10 Most Perfect Action Movie Endings of All Time, Ranked
+
+Movie, Action, Terminator 2: Judgment Day, The Matrix, aliens
+
+Thu, 23 Apr 2026 20:57:14 GMT
+
+https://collider.com/most-perfect-action-movie-endings-ranked/
+
+Action movies like Terminator 2: Judgment Day, First Blood, and The Matrix have some of the best endings in the genre's history.
+---------
+
+# 'Michael' Stars Tease Sequel After Biopic Leaves Out Child Abuse Allegations
+
+Movie News, Michael
+
+Thu, 23 Apr 2026 21:16:09 GMT
+
+https://movieweb.com/michael-biopic-sequel-child-abuse-allegations/
+
+The child abuse allegations brought up against the late Michael Jackson may be explored if a 'Michael' sequel is greenlit.
+---------
+
+# 'Dexter: Resurrection' Season 2's Joey Quinn Return Is a Huge Threat
+
+Features, Dexter: Resurrection
+
+Thu, 23 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-joey-quinn-threat/
+
+'Dexter: Resurrection' Season 2 will feature Desmond Harrington as Joey Quinn, along with Michael C. Hall as Dexter.
+---------
+
 # Paramount+'s 2-Part Sci-Fi Series That's Star Trek Meets Star Wars Is One Of Its Best Space Shows
 
 Classic TV, Masked Recs
