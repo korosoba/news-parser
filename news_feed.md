@@ -1,3 +1,278 @@
+# Apple TV's Hit 8-Part Crime Thriller Series Finally Returns With Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Thu, 23 Apr 2026 19:42:28 GMT
+
+https://screenrant.com/criminal-record-season-2-rotten-tomatoes-score-debut/
+
+Apple TV's successful crime thriller series finally returns after two years with an impressive rare Rotten Tomatoes score from critics.
+---------
+
+# The Big Bang Theory Star's New Comedy Is The Best Thing Any TBBT Actor Has Done Since The Show Ended
+
+TV, The Big Bang Theory, The Audacity, Masked Recs
+
+Thu, 23 Apr 2026 19:35:22 GMT
+
+https://screenrant.com/the-audacity-simon-helberg-best-since-big-bang-theory/
+
+One of The Big Bang Theory's breakout stars now appears in an acclaimed new series, and it's becoming the TBBT cast's best show since the sitcom.
+---------
+
+# New Day-One Release On Xbox Game Pass Looks Absolutely Stunning
+
+Gaming, Xbox Game Pass, Indie, PC
+
+Thu, 23 Apr 2026 19:29:12 GMT
+
+https://screenrant.com/xbox-game-pass-day-one-release-vapor-world/
+
+Several new day-one titles on Xbox Game Pass were confirmed during the recent ID@Xbox showcase, but one of those games truly stands out.
+---------
+
+# Xbox Officially Confirms Major Rebrand And Name Change
+
+Gaming, Xbox Series X/S, Xbox One, Microsoft, Xbox Game Pass
+
+Thu, 23 Apr 2026 19:25:24 GMT
+
+https://screenrant.com/xbox-major-rebrand-microsoft-gaming-new-name/
+
+It's officially the end Xbox as we knew it, but Xbox is just getting started. It's a new dawn for the iconic platform holder.
+---------
+
+# Prime Video's 2-Part Action Thriller Series With An Iconic Character Is The Perfect Weekend Binge
+
+TV, Masked Recs
+
+Thu, 23 Apr 2026 19:21:22 GMT
+
+https://screenrant.com/taken-prime-video-thriller-series-must-watch/
+
+Prime Video's 2-season thriller series makes for an intense weekend binge, and it is a spinoff focused on a fan-favorite movie franchise action hero.
+---------
+
+# Michael Jackson Movie Has Critics & Audiences Very Divided On Rotten Tomatoes
+
+Movies, Michael
+
+Thu, 23 Apr 2026 19:16:57 GMT
+
+https://screenrant.com/michael-jackson-movie-rotten-tomatoes-audience-score/
+
+The new Michael Jackson movie has critics and audiences very divided on Rotten Tomatoes ahead of its theatrical release this Friday, April 24.
+---------
+
+# Michael Fassbender Stars in Spy Thriller The Agency: A Bourne-Like CIA Saga On Paramount+
+
+Streaming TV, The Agency
+
+Thu, 23 Apr 2026 19:02:18 GMT
+
+https://screenrant.com/michael-fassbender-the-agency-paramount-plus-spy-thriller-jason-bourne/
+
+Michael Fassbender is one of the best around when it comes to spy thrillers, so it's only fitting he should play TV's equivalent to Jason Bourne.
+---------
+
+# Steven Spielberg's $495M Thriller Hit Officially Releases On Netflix After Making 55x Its Budget
+
+Movies, Masked Recs
+
+Thu, 23 Apr 2026 19:02:04 GMT
+
+https://screenrant.com/steven-spielberg-jaws-movie-netflix-release-date-streaming/
+
+Steven Spielberg's $495 million thriller hit officially releases on Netflix after making 55 times its $9 million budget at the box office.
+---------
+
+# Wasteman Ending: Dee & Taylor's "Quite Traumatizing" Fates And Future Explained By Tom Blyth & David Jonsson
+
+Movies, Wasteman, Tom Blyth, David Jonsson
+
+Thu, 23 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/wasteman-ending-dee-taylor-fates-future-explained-tom-blyth-david-jonsson/
+
+Tom Blyth and David Jonsson break down Wasteman's ending, Dee and Taylor's intense final scene and what the future holds for a certain character.
+---------
+
+# Why There Is No New Elsbeth This Week (April 23) & When Season 3, Episode 17 Releases
+
+Network TV, Elsbeth, CBS
+
+Thu, 23 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/elsbeth-no-new-episode-april-23-2026-season-3-episode-17-release-date/
+
+As it nears the end of its current year, Elsbeth season 3 is taking a break in the middle of the cycle because of CBS's scheduling decision.
+---------
+
+# Fox Officially Renews Fear Factor: House of Fear for Season 2
+
+TV, Fear Factor
+
+Thu, 23 Apr 2026 19:43:43 GMT
+
+https://www.cbr.com/fox-fear-factor-house-of-fear-renewed-season-2/
+
+One month after the finale, Fox seals the future of the Johnny Knoxville's Fear Factor reboot series.
+---------
+
+# GTA 6 Wanted System Officially Leaks, Revealing Major Changes
+
+Games, Grand Theft Auto
+
+Thu, 23 Apr 2026 19:35:17 GMT
+
+https://www.cbr.com/gta-6-wanted-system-official-leak-new-features/
+
+The latest Grand Theft Auto VI leak unveils the massive changes coming to the franchise's iconic Wanted system, and it sounds incredible.
+---------
+
+# Criminal Minds Shoots Up the Streaming Chart In the U.S. Ahead of Season 19 Return
+
+TV, Criminal Minds, Crime, Paramount Plus
+
+Thu, 23 Apr 2026 19:30:14 GMT
+
+https://www.cbr.com/criminal-minds-crime-success-paramount-plus-april-2026/
+
+Criminal Minds, a.k.a. Criminal Minds: Evolution, is seeing renewed interest on Paramount+ ahead of its return.
+---------
+
+# New The Odyssey Movie Announced Ahead of Christopher Nolan Version
+
+Movies, Christopher Nolan, The Odyssey
+
+Thu, 23 Apr 2026 19:18:48 GMT
+
+https://www.cbr.com/the-odyssey-animated-musical-epic-announced/
+
+A very different version of The Odyssey is announced ahead of the release of Christopher Nolan's movie.
+---------
+
+# Best RPGs No One Ever Talks About
+
+Games, RPG, Video Games, Final Fantasy Tactics Advance, Shin Megami Tensei IV, Vampire: The Masquerade, Persona
+
+Thu, 23 Apr 2026 19:10:12 GMT
+
+https://www.cbr.com/best-rpgs-overshadowed-forgotten/
+
+Some RPGs are genre-defining masterpieces that break into the mainstream, while others are just as high quality, but they fade into obscurity.
+---------
+
+# 10 Fantasy Movies That Make a Perfect Double Feature With Highlander
+
+Movies, Fantasy, Highlander, Conan the Barbarian
+
+Thu, 23 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/fantasy-movies-perfect-double-feature-highlander/
+
+Forty years ago, Russell Mulcahy gave fantasy fans an action-packed urban masterpiece, and some movies are essential viewing alongside the classic.
+---------
+
+# Silent Hill Officially Confirms a New Ending
+
+Anime, Silent Hill, Silent Hill f
+
+Thu, 23 Apr 2026 18:32:30 GMT
+
+https://www.cbr.com/silent-hill-f-manga-new-ending-confirm/
+
+The acclaimed Japanese horror franchise is getting a surprising new ending, but not in the way fans might expect.
+---------
+
+# It’s Officially the End of an Era for Star Trek’s Kelvin Timeline
+
+Movies, Star Trek
+
+Thu, 23 Apr 2026 18:30:29 GMT
+
+https://www.cbr.com/end-of-era-star-treks-kelvin-timeline/
+
+A recent announcement from the new owners of Paramount suggest an era of modern Star Trek is over, even though it has some unfinished business.
+---------
+
+# 10 Praiseworthy Dark Fantasy Anime No One Talks About
+
+Anime, Dororo, Drifters, Isekai
+
+Thu, 23 Apr 2026 18:15:24 GMT
+
+https://www.cbr.com/greatest-dark-fantasy-anime-no-one-ever-talks/
+
+Anime's dark fantasy subgenre is full of unforgettable classics, but some of these unique genre subversions have fallen into deep obscurity.
+---------
+
+# 10 Action Movies From the 21st Century That Are Perfect From Start to Finish
+
+Movie, Action, Mad Max: Fury Road, The Raid: Redemption, Mission: Impossible - Rogue Nation
+
+Thu, 23 Apr 2026 19:33:15 GMT
+
+https://collider.com/action-movies-21st-century-perfect/
+
+Martial art epics like Hero and dystopian sci-fi hits like Mad Max: Fury Road are just some of the 21st-century action movies that are truly flawless.
+---------
+
+# Netflix and Henry Cavill's 3-Part Detective Franchise Officially Returns on July 1
+
+Movie News, Enola Holmes 3, Henry Cavill, Netflix, Enola Holmes
+
+Thu, 23 Apr 2026 18:29:53 GMT
+
+https://collider.com/netflix-henry-cavill-detective-franchise-enola-holmes-3-release-date-july-1-2026/
+
+The release date for Netflix's Enola Holmes 3, starring Millie Bobby Brown and Henry Cavill, has been revealed, and it's sooner than you think.
+---------
+
+# 10 Disney Channel Shows That Are Perfect From Start to Finish
+
+TV, Disney Channel, Disney, Phineas and Ferb, Hannah Montana
+
+Thu, 23 Apr 2026 18:09:22 GMT
+
+https://collider.com/disney-channel-shows-perfect-start-to-finish/
+
+From the animated series Phineas and Ferb to the beloved Hannah Montana, these Disney Channel shows are genuinely perfect from start to finish.
+---------
+
+# 'Leaving Neverland' Director Calls Michael Jackson “Worse Than Epstein” Amid Biopic Debut
+
+Movie News, Leaving Neverland, HBO Max, Michael
+
+Thu, 23 Apr 2026 19:23:37 GMT
+
+https://movieweb.com/leaving-neverland-director-michael-jackson-movie-reaction/
+
+You won't find HBO's 'Leaving Neverland' anywhere today.
+---------
+
+# 'The Boys' Season 5 Comic Change Prevents Iconic Kimiko Moment
+
+Features, The Boys
+
+Thu, 23 Apr 2026 19:00:17 GMT
+
+https://movieweb.com/the-boys-season-5-kimiko-comic-book-change/
+
+'The Boys' Season 5 changes Kimiko's character, which means that the Amazon Prime Video show is different from the comic book on which it is based.
+---------
+
+# 'Chainsaw Man - The Movie: Reze Arc' Lands Crunchyroll Streaming Date
+
+Movie News, Chainsaw Man - The Movie: Reze Arc
+
+Thu, 23 Apr 2026 18:10:59 GMT
+
+https://movieweb.com/chainsaw-man-reze-arc-crunchyroll-streaming-april/
+
+'Chainsaw Man - The Movie: Reze Arc' is set to stream on Crunchyroll later this month.
+---------
+
 # Stranger Things Officially Reveals What Happened Between Seasons 2 & 3 - 8 Biggest Reveals
 
 Streaming TV, Stranger Things: Tales from '85
