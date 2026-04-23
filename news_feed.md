@@ -1,3 +1,212 @@
+# Hannibal: The Cult Classic Crime Drama That's Aged Like Fine Wine
+
+Classic TV, Masked Recs
+
+Thu, 23 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/hannibal-show-crime-thriller-aged-well-streaming-charts/
+
+NBC is behind some of the most beloved TV shows in history, but this all-time great thriller is very different from anything else on the network.
+---------
+
+# GTA 6 Release Date Update Leaks Amid Third Delay Concerns
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Thu, 23 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/gta-6-release-date-update-delay-3-concerns/
+
+There have been multiple rumors suggesting GTA 6 will be delayed a third time, and a new report sheds more light on what fans should expect this year.
+---------
+
+# Crunchyroll Has Found Its Next Solo Leveling, And It's An Instant Classic
+
+Anime, Crunchyroll, Solo Leveling, Sentenced to Be a Hero
+
+Thu, 23 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/sentenced-to-be-hero-next-solo-leveling-crunchyroll/
+
+Solo Leveling has become a titan of anime, and this new shōnen sensation might be the best thing to watch while we wait on Jinwoo in a third season.
+---------
+
+# Over Your Dead Body Ending Explained: Who Survives The Grisly Anti-Romcom (And What It's All About)
+
+Movies, Over Your Dead Body
+
+Thu, 23 Apr 2026 22:21:19 GMT
+
+https://screenrant.com/over-your-dead-body-ending-explained/
+
+Over Your Dead Body is a grisly comedy with plenty of surprising deaths and bloody twists, building to a surprisingly optimistic ending.
+---------
+
+# Quentin Tarantino’s New Version Of Iconic 22-Year-Old Crime Thriller Officially Releases On Streaming Next Month
+
+Movies, Kill Bill: The Whole Bloody Affair, Quentin Tarantino, Kill Bill
+
+Thu, 23 Apr 2026 22:04:45 GMT
+
+https://screenrant.com/kill-bill-the-whole-bloody-affair-streaming-release-date/
+
+Quentin Tarantino's new version of his iconic crime thriller saga finally debuts on streaming next month after its long-awaited theatrical release.
+---------
+
+# 8 Near-Perfect Marvel Shows No One Ever Talks About
+
+Classic TV, Marvel, Marvel Cinematic Universe
+
+Thu, 23 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/near-perfect-marvel-shows-no-one-talks-about/
+
+The MCU has led to a wealth of Marvel TV shows, but many of the best from both before and after the Disney era remain inexplicably obscure.
+---------
+
+# It Took 21 Years, But DC's Original Evil Superman Is Finally Beating The Boys
+
+DC Comics, Superman, Superboy
+
+Thu, 23 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/superboy-prime-original-evil-superman-beating-boys-homelander/
+
+After 21 years as DC’s original evil Superman, Superboy-Prime’s redemption arc is blinding fans, and even outshining The Boys’ most infamous villains.
+---------
+
+# Andy Serkis Movie Based On 81-Year-Old Dystopian Book Debuts To Underwhelming RT Score
+
+Movies, Animal Farm, Masked Recs
+
+Thu, 23 Apr 2026 21:49:20 GMT
+
+https://screenrant.com/animal-farm-movie-rotten-tomatoes-score-andy-serkis/
+
+Despite its classic source material and star-studded cast, Andy Serkis' new movie completely fails to impress critics ahead of theatrical release.
+---------
+
+# HBO Max's Sci-Fi Thriller With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, Masked Recs
+
+Thu, 23 Apr 2026 21:40:25 GMT
+
+https://screenrant.com/hbo-max-companion-sci-fi-movie-best/
+
+HBO Max's sci-fi thriller is one of the highest-rated releases on the streaming service, displaying bloody kills and an intense, creative concept.
+---------
+
+# Goku's Single Greatest DBZ Line is the Hardest Hitting in Dragon Ball
+
+Anime, Dragon Ball Z, Dragon Ball, Goku
+
+Thu, 23 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/goku-single-greatest-dbz-line-hits-harder-any-dragon-ball-quote/
+
+Dragon Ball Z is full of inspirational speeches, but Goku's proclamation to Frieza upon his Super Saiyan debut has become the series' guiding mantra.
+---------
+
+# The Conjuring: Last Rites Climbs Prime Video Streaming Chart
+
+Movies, The Conjuring: Last Rites, The Conjuring, Prime Video
+
+Thu, 23 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/the-conjuring-last-rites-horror-success-prime-video-april-2026/
+
+The Conjuring: Last Rites is seeing a surge in popularity on Prime Video.
+---------
+
+# Lou Diamond Phillips' Casa Grande Will Be The Perfect Yellowstone Replacement
+
+Movies, Casa Grande
+
+Thu, 23 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/lou-diamond-phillips-western-casa-grande-perfect-yellowstone-replacement/
+
+Yellowstone may rule the Western TV landscape, but there is finally a perfect big screen replacement for the Western series.
+---------
+
+# Peacock's Ted Season 2 Becomes No. 1 Comedy Across All Streamers
+
+TV, Ted
+
+Thu, 23 Apr 2026 21:41:25 GMT
+
+https://www.cbr.com/ted-season-2-top-streaming-comedy-2026/
+
+Even with a perfect RT score and impressive viewership, the comedy series is unlikely to be renewed.
+---------
+
+# 10 Sci-Fi Movies From the 21st Century That Are Actually Perfect
+
+Movie, Science Fiction, Dune: Part Two, Eternal Sunshine of the Spotless Mind, Arrival
+
+Thu, 23 Apr 2026 22:09:12 GMT
+
+https://collider.com/sci-fi-movies-21st-century-perfect/
+
+From animated gems like WALL-E to cerebral masterworks like Arrival, these 21st-century sci-fi movies are the premier example of cinematic perfection.
+---------
+
+# Prime Video's 'The House of the Spirits' Miniseries Adaptation Is a Brutal but Rewarding Watch | Review
+
+TV Reviews, The House of the Spirits, Prime Video, Drama, TV Miniseries
+
+Thu, 23 Apr 2026 22:00:13 GMT
+
+https://collider.com/the-house-of-the-spirits-review-prime-video/
+
+Prime Video's The House of the Spirits miniseries faithfully adapts Isabel Allende's classic novel with a stellar cast.
+---------
+
+# All 8 Episodes of 'Invincible' Season 4, Ranked
+
+TV, Invincible, Prime Video, Superhero, Animation
+
+Thu, 23 Apr 2026 21:52:13 GMT
+
+https://collider.com/invincible-season-4-episodes-ranked/
+
+Invincible Season 4 signifies another chapter in Mark Grayson's story, but which episode of the Prime Video animated superhero series is the best?
+---------
+
+# ‘Winnie-the-Pooh: Blood and Honey 3’ Image Reveals Terrifying Twist on Rabbit
+
+Movie News, Winnie the Pooh: Blood and Honey
+
+Thu, 23 Apr 2026 22:27:38 GMT
+
+https://movieweb.com/winnie-the-poohs-rabbit-new-blood-honey-3-image/
+
+The Poohniverse is continuing to expand with a horrific new rendition of a beloved character.
+---------
+
+# 8 Sci-Fi Movies About Aliens That Are Better Than 'Project Hail Mary'
+
+Movie Lists, Project Hail Mary, Science Fiction
+
+Thu, 23 Apr 2026 22:01:19 GMT
+
+https://movieweb.com/sci-fi-movies-better-project-hail-mary/
+
+'Project Hail Mary,' the sci-fi movie based on Andy Weir's novel starring Ryan Gosling, is great, but these other films are better.
+---------
+
+# MCU Star Jon Favreau Confirms He's Not in 'Spider-Man: Brand New Day'
+
+Movie News, Spider-Man: Brand New Day, Jon Favreau
+
+Thu, 23 Apr 2026 21:40:47 GMT
+
+https://movieweb.com/spider-man-brand-new-day-jon-favreau/
+
+'The Mandalorian and Grogu' director and Happy Hogan actor is not returning for 'Brand New Day', marking the first MCU Spider-Man film without him.
+---------
+
 # Lee Pace Addresses Comparison Between His Invincible Season 4 & MCU Villains
 
 TV, Invincible, Invincible - Season 4, Prime Video, Lee Pace
