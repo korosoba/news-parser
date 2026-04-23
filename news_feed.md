@@ -1,3 +1,366 @@
+# 6 Netflix Animated TV Shows We Cannot Wait To See (#1 Will Be The Ultimate Comic Book Adaptation)
+
+Streaming TV, Netflix
+
+Thu, 23 Apr 2026 03:45:07 GMT
+
+https://screenrant.com/upcoming-netflix-animated-tv-shows-exciting/
+
+Netflix's animation slate is full of exciting projects, but these six TV shows stand out as the most promising shows. We cannot wait to see them!
+---------
+
+# Harry Potter’s Original Cast Return Overshadows HBO Show’s Reboot Efforts
+
+Streaming TV, Harry Potter
+
+Thu, 23 Apr 2026 03:30:39 GMT
+
+https://screenrant.com/harry-potter-tom-felton-draco-return-hbo-series-problem/
+
+Getting reboots right is challenging, but HBO’s Harry Potter will also struggle to compete with the recent return of an OG actor in the franchise.
+---------
+
+# Jujutsu Kaisen: All of the Culling Game's Players Ranked
+
+Anime, Jujutsu Kaisen
+
+Thu, 23 Apr 2026 03:30:19 GMT
+
+https://screenrant.com/jjk-season-3-anime-culling-game-players-ranking/
+
+The Culling Game has some of the strongest characters in Jujutsu Kaisen, and here's where each player ranks in this brutal death battle.
+---------
+
+# Stardew Valley, Kingdom Come Collide In New RPG You Can Try Free
+
+Gaming, Stardew Valley
+
+Thu, 23 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/steam-free-download-stardew-valley-meets-kingdom-come/
+
+Create a magical kingdom while enjoying relaxing gameplay reminiscent of Stardew Valley and the medieval life of Kingdom Come: Deliverance.
+---------
+
+# Final Fantasy 7 Rebirth Just Got A Completely New Look
+
+Gaming, Final Fantasy 7 Rebirth, Triple-A Games
+
+Thu, 23 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/final-fantasy-7-rebirth-ps1-overhaul-mod/
+
+While a lot of us have already done everything there is to do in Final Fantasy 7 Rebirth, this new look gives us an excuse to come back.
+---------
+
+# Pedro Pascal Was Right About What Needed To Happen After The Mandalorian Season 3
+
+Star Wars, The Mandalorian and Grogu
+
+Thu, 23 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/pedro-pascal-themandalorian-movie-season-3/
+
+The actor who plays Din Djarin voiced that he always thought The Mandalorian should become a movie at some point, and he's right.
+---------
+
+# Michael Jackson Biopic 'Michael' Explains Absence Of Iconic Songs
+
+Movies, Michael
+
+Thu, 23 Apr 2026 01:46:21 GMT
+
+https://screenrant.com/michael-2026-missing-songs-timeline-reason-antoine-fuqua-graham-king/
+
+Exclusive: Director Antoine Fuqua, producer Graham King, and star Colman Domingo discuss why Michael Jackson's biopic omitted some classic songs.
+---------
+
+# New Spider-Man Character Debuts, Changing Peter Parker Forever
+
+Comics, Spider-Man, Marvel
+
+Thu, 23 Apr 2026 01:30:19 GMT
+
+https://screenrant.com/spider-man-family-change-forever/
+
+A new character has entered Peter Parker's life at the tail-end of Spider-Man's Death Spiral event, and they are bound to be paramount to the story.
+---------
+
+# All 23 Naruto Villains, Ranked Worst To Best
+
+Classic TV, Naruto
+
+Thu, 23 Apr 2026 01:15:18 GMT
+
+https://screenrant.com/naruto-villains-ranked-worst-best/
+
+Naruto introduced several powerful and intriguing villains, but the very best of them were those who left a resounding impact on the story (and us).
+---------
+
+# Valheim Meets Stardew Valley In New RPG You Can Play Free Now
+
+Gaming, Stardew Valley, Valheim
+
+Thu, 23 Apr 2026 01:01:18 GMT
+
+https://screenrant.com/valheim-stardew-valley-free-demo-bread-blood/
+
+Discover a unique medieval farming RPG that blends survival elements from Valheim with the farming gameplay of Stardew Valley.
+---------
+
+# Why Oscar Isaac's Moon Knight Return Has Taken So Long Explained
+
+Movies, Moon Knight, MCU, superheroes
+
+Thu, 23 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/moon-knight-movie-oscar-isaac-confirmed-mcu-midnight-sons/
+
+Oscar Isaac recently confirmed his desire to return to the MCU as Moon Knight, but the character's return is much more complicated than we thought.
+---------
+
+# 10 Classic Magical Girl Anime That Are 100% Unwatchable Today
+
+Anime, Magical Princess Minky Momo, Pretty Cure, Cartoon Network
+
+Thu, 23 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/classic-magical-girl-anime-that-are-unwatchable-today/
+
+There are some pivotal magical girl anime that helped put the genre on the map that are now serious struggles to get through.
+---------
+
+# Twin Peaks Was Inspired by This Real 117-Year-Old Cold Case
+
+TV, Twin Peaks
+
+Thu, 23 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/twin-peaks-based-on-true-story-hazel-drew/
+
+A tragic real-life crime that was never officially solved shares striking similarities with a key character in Twin Peaks.
+---------
+
+# 10 Best American Turn-Based RPGs of All Time
+
+Games, Role Playing Game, Video Games
+
+Thu, 23 Apr 2026 03:15:30 GMT
+
+https://www.cbr.com/best-american-turn-based-rpgs-all-time/
+
+Turn-based RPGs aren't just made in Japan, and games like Fallout and South Park: The Stick of Truth prove it.
+---------
+
+# Time Bandits Remains An Untouchable Classic
+
+Movies, Time Bandits, Fantasy
+
+Thu, 23 Apr 2026 03:15:30 GMT
+
+https://www.cbr.com/time-bandits-untouchable-fantasy-classic/
+
+It has been 45 years since this Terry Gilliam fantasy film warped its way into theaters, and nobody has made another movie quite like it since.
+---------
+
+# Gundam SEED's Strike Freedom Returns With High-End Clear Gunpla Model Kit
+
+Anime, Mobile Suit Gundam, merchandise, Mobile Suit Gundam SEED Destiny, toys, bandai
+
+Thu, 23 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/bandai-gundam-seed-destiny-strike-freedom-clear-gunpla-re-release/
+
+A popular clear Gundam SEED Destiny model kit sold out earlier this year, but fans now have another chance to score this mechanical masterpiece.
+---------
+
+# All 4 Toy Story Movies Are Masterpieces, But One Is Untouchable
+
+Movies, Toy Story, Disney, pixar
+
+Thu, 23 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/best-toy-story-movies-list/
+
+Toy Story is a beloved animated franchise with many great movies, and with a fifth on the way, it still can't trump the best of them all.
+---------
+
+# 10 Anime That Got Way Darker After A Single Transformation
+
+Anime, shonen anime, Attack On Titan, Hunter x Hunter, Blood-C, Berserk
+
+Thu, 23 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/anime-that-turn-dark-after-transformation/
+
+Sometimes a single transformative experience is all it takes to draw an anime straight to the dark side.
+---------
+
+# 7 Near-Perfect Shojo Manga No One Remembers
+
+Anime, Manga, Shojo
+
+Thu, 23 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/shojo-manga-no-one-remembers/
+
+These shojo manga series have incredible stories, but they have been completely forgotten by fans.
+---------
+
+# 10 Underrated Isekai Anime That Are Flawless from Beginning to End
+
+Anime, Isekai
+
+Thu, 23 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/anime-underrated-isekai-perfect-start-to-finish-list/
+
+Some of the most underrated isekai anime, like Escaflowne, are basically flawless.
+---------
+
+# Netflix's U.S. Audience Is Making a Major Genre Shift in the Next 3 Months
+
+TV Features, Netflix, Action, Streaming, Streaming Services
+
+Thu, 23 Apr 2026 03:17:12 GMT
+
+https://collider.com/netflix-action-genre-shift-us-viewership-spring-2026-streaming/
+
+Netflix continues to dominate the streaming market with a surge in action shows, including the upcoming reinterpretation of Man on Fire.
+---------
+
+# 7 Fantasy Miniseries That Are True Masterpieces
+
+TV, Fantasy, TV Miniseries, Over the Garden Wall, Moon Knight
+
+Thu, 23 Apr 2026 03:01:12 GMT
+
+https://collider.com/fantasy-miniseries-true-masterpieces/
+
+Over the Garden Wall, Moon Knight, and The 10th Kingdom are among the fantasy miniseries that have raised the bar and are now considered masterpieces.
+---------
+
+# Apple TV's Rebecca Ferguson Sci-Fi Series Is One of the Best on Any Streaming Platform
+
+TV News, Rebecca Ferguson, Silo, Apple TV, Sci-Fi
+
+Thu, 23 Apr 2026 02:30:12 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-series-silo-streaming-success-apple-tv-april-2026/
+
+Rebecca Ferguson's sci-fi gem Silo has returned to the streaming charts after huge Season 3 news. Read on for more details.
+---------
+
+# The Future of This Gritty 7-Part British Detective Series Has Been Decided
+
+TV News, Grace, ITV, Crime, Drama
+
+Thu, 23 Apr 2026 02:15:12 GMT
+
+https://collider.com/british-detective-series-grace-season-7-renewed-itv/
+
+The hit British detective series Grace just had its future sealed by ITV after 6 incredible seasons. Read on for more details.
+---------
+
+# One of the Best WWII Movies of the 2010s Will Be Free To Stream on May 1
+
+Movie News, The Imitation Game, Plex, Keira Knightley, Benedict Cumberbatch
+
+Thu, 23 Apr 2026 02:02:12 GMT
+
+https://collider.com/benedict-cumberbatch-ww2-thriller-the-imitation-game-free-streaming-plex-may-2026/
+
+Benedict Cumberbatch's Oscar-nominated performance in the WW2 thriller, The Imitation Game, is heading to free streaming this May.
+---------
+
+# Say Goodbye to Sylvester Stallone’s Franchise-Starting Crime Thriller on Free Streaming
+
+Movie News, Escape Plan, Sylvester Stallone, Thriller, Plex
+
+Thu, 23 Apr 2026 01:45:12 GMT
+
+https://collider.com/tulsa-king-star-sylvester-stallone-escape-plan-leaving-free-streaming-plex-may-2026/
+
+Tulsa King icon Sylvester Stallone's prison thriller Escape Plan is leaving its free streaming home soon. Read on for more details.
+---------
+
+# The Best Marvel Series of All Time Officially Returns on June 13
+
+TV News, X-Men '97, Disney+, Marvel Animation, Marvel
+
+Thu, 23 Apr 2026 01:30:12 GMT
+
+https://collider.com/disney-x-men-97-season-2-summer-release-date-june-13-tribeca-film-festival/
+
+X-Men '97 will officially be released this June at the Tribeca Film Festival before its worldwide premiere. Find out more information here.
+---------
+
+# 33 Years Later, the Greatest Quote in This Iconic Western Still Lives Rent-Free In Our Heads
+
+Movie Features, Tombstone, Val Kilmer, Kurt Russell, Bill Paxton
+
+Thu, 23 Apr 2026 01:19:08 GMT
+
+https://collider.com/tombstone-val-kilmer-doc-holliday-huckleberry-quote-im-your-huckleberry/
+
+This enchanted moment in Tombstone made a Western legend into a cinematic icon.
+---------
+
+# Godzilla’s Best Movie Is Returning to Theaters in 1 Month
+
+Movie News, Godzilla Minus One, Godzilla Minus Zero, Godzilla
+
+Thu, 23 Apr 2026 01:15:12 GMT
+
+https://collider.com/godzilla-minus-one-theatrical-re-release-may-22-2026/
+
+Godzilla's best movie, Minus One, officially heads back to theaters soon, ahead of its sequel, Minus Zero's November debut.
+---------
+
+# Netflix Says Goodbye to the Greatest Spy Thriller Franchise of All Time
+
+Movie News, Denis Villeneuve, Netflix, James Bond, Thriller
+
+Thu, 23 Apr 2026 01:00:13 GMT
+
+https://collider.com/all-james-bond-movies-off-netflix-streaming-best-british-spy-series/
+
+James Bond, the iconic 10/10 British spy franchise, has officially lost Netflix as a streaming home. Here's what we know.
+---------
+
+# 9 Mind-Blowing Psychological Thriller Series Better Than 'Mindhunter'
+
+TV Lists, Mindhunter
+
+Thu, 23 Apr 2026 02:00:28 GMT
+
+https://movieweb.com/psychological-thriller-series-better-mindhunter/
+
+If you're missing Mindhunter, these other psychological thriller series will fill the gaping hole for cerebral, mind-bending content.
+---------
+
+# May 2026 Looks Like an All-Time Great Month for Horror Movies
+
+Features, Horror, Hokum, Backrooms
+
+Thu, 23 Apr 2026 01:00:17 GMT
+
+https://movieweb.com/may-2026-all-time-horror-month/
+
+A string of high-profile, acclaimed horror movies including Hokum, Obsession, and Backrooms will make May 2026 an all-timer for horror.
+---------
+
+# Sylvester Stallone's Crime Thriller 'Cop Land' Being Rebooted as TV Series
+
+TV News, Cop Land, James Mangold, Sylvester Stallone
+
+Thu, 23 Apr 2026 00:07:52 GMT
+
+https://movieweb.com/cop-land-tv-show-reboot/
+
+Director James Mangold is revisiting his 1997 film in a new format.
+---------
+
 # Netflix Says Goodbye To A 20-Part Action Thriller Masterpiece
 
 Movies, James Bond, Netflix, Dupes
