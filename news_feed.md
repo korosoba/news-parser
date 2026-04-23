@@ -1,3 +1,146 @@
+# Netflix Says Goodbye To A 20-Part Action Thriller Masterpiece
+
+Movies, James Bond, Netflix, Dupes
+
+Thu, 23 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/james-bond-movies-leave-netflix-april-2026/
+
+After only three months on Netflix, the streaming service has officially yanked James Bond from its U.S. catalog.
+---------
+
+# Skyrim Next-Gen Graphics Overhaul Proves This Game Will Never Leave Us
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games
+
+Thu, 23 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/skyrim-2026-next-gen-graphics-overhaul/
+
+Fans have shared footage of a next-gen graphical overhaul for The Elder Scrolls: Skyrim, and we hope The Elder Scrolls 6 looks this good.
+---------
+
+# Spider-Man Has New Superstrength Level, According to Superman
+
+Comics, Spider-Man
+
+Thu, 23 Apr 2026 00:00:19 GMT
+
+https://screenrant.com/how-strong-spider-man-strength-level-superman/
+
+It has taken over 60 years, but Marvel is finally answering a major question about Spider-Man's strength with help from Superman.
+---------
+
+# Naruto Unveils 6 New Official Designs for Naruto, Sasuke, Sakura and More
+
+Anime, Naruto, Naruto: Shippuden
+
+Thu, 23 Apr 2026 00:01:12 GMT
+
+https://www.cbr.com/naruto-shippuden-anime-new-design-release-april-2026/
+
+Naruto and the gang don traditional Japanese kimono in a special preview illustration, teasing Pierrot's upcoming revival of the Shippuden anime.
+---------
+
+# Arnold Schwarzenegger's Total Recall is a Sci-Fi Masterpiece
+
+Movies, Total Recall
+
+Thu, 23 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-total-recall-sci-fi-masterpiece-untouchable/
+
+There simply isn't another sci-fi film quite like this Paul Verhoeven classic, even though Hollywood tried to replicate its singular magic.
+---------
+
+# New Elden Ring Game Officially Confirmed for June 2026
+
+Games, Elden Ring
+
+Wed, 22 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/new-elden-ring-game-june-2026-nightreign-ttrpg/
+
+A brand-new game set in the Elden Ring universe is coming in June 2026, giving fans a chance to experience The Lands Between in a fresh medium.
+---------
+
+# ‘Mindhunter’ Meets ‘Jason Bourne’ in Paramount’s Bingeworthy Spy Thriller Returning This Year
+
+TV News, The Agency, Michael Fassbender, Mindhunter, Jason Bourne
+
+Thu, 23 Apr 2026 00:00:12 GMT
+
+https://collider.com/mindhunter-meets-jason-bourne-paramount-spy-thriller-the-agency-season-2-details-paramount-plus/
+
+Paramount's spy thriller with DNA from Mindhunter and Jason Bourne is officially set to return this year. Find out more information here.
+---------
+
+# Tom Hardy's Franchise-Ending Sci-Fi Movie Becomes an Overnight Smash on Streaming
+
+Movie News, Venom: The Last Dance, Tom Hardy, Sony Pictures, Sci-Fi
+
+Wed, 22 Apr 2026 23:45:12 GMT
+
+https://collider.com/tom-hardy-franchise-ending-sci-fi-movie-venom-the-last-dance-streaming-success-prime-video-april-2026/
+
+Tom Hardy's Venom: The Last Dance has returned to the streaming charts 2 years after bringing Eddie Brock's story to a close.
+---------
+
+# 5 Years Later, Apple TV's Near-Perfect Sci-Fi Thriller Is Still Dominating Global Streaming
+
+TV News, Foundation, Apple TV, Sci-Fi, Lee Pace
+
+Wed, 22 Apr 2026 23:31:13 GMT
+
+https://collider.com/foundation-season-4-apple-tv-sci-fi-thriller-global-streaming-success/
+
+Apple TV's high-concept sci-fi series, Foundation, is dominating global charts ahead of Season 4, despite the lengthy gap between seasons.
+---------
+
+# Paramount+'s Beloved 33-Year-Old Sitcom Is Still the Gold Standard for the Genre
+
+TV Features, Frasier, Kelsey Grammer, David Hyde Pierce, Paramount Plus
+
+Wed, 22 Apr 2026 23:24:13 GMT
+
+https://collider.com/frasier-paramount-sitcom-kelsey-grammar/
+
+Frasier is still the gold standard for sitcoms, surpassing even Cheers and Seinfeld in Emmy wins and enduring popularity.
+---------
+
+# 3 Years Later, ‘Attack on Titan’ Is Officially Back With a Surprising New Project
+
+TV News, Attack on Titan, Anime, Action, Crunchyroll
+
+Wed, 22 Apr 2026 23:15:12 GMT
+
+https://collider.com/attack-on-titan-wit-studios-new-anime-project-image/
+
+The beloved anime franchise Attack on Titan has quietly returned with a new official project. Read on for more details.
+---------
+
+# 'Good Omens': Prime Video's Star-Studded Fantasy Series Is Perfect Adaptation
+
+Features, Fantasy, Good Omens
+
+Thu, 23 Apr 2026 00:00:17 GMT
+
+https://movieweb.com/prime-video-fantasy-good-omens-perfect-adaptation/
+
+'Good Omens' isn't just a great fantasy series; it's one of the strongest adaptations out there, fully embracing the spirit of the books.
+---------
+
+# 'Rise of the Beasts' Director Not Returning for 'Transformers' Sequel
+
+Movie News, Transformers, Transformers: Rise of the Beasts, Steven Caple Jr.
+
+Wed, 22 Apr 2026 23:56:35 GMT
+
+https://movieweb.com/transformers-rise-of-the-beasts-director-sequel-exit/
+
+Steven Caple Jr. says the next movie won't be the teased 'G.I. Joe' crossover.
+---------
+
 # Viggo Mortensen's Next Starring Movie Gets First Look After Being Replaced For New Lord Of The Rings Film
 
 Movies, Viggo Mortensen
