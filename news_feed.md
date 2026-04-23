@@ -1,3 +1,91 @@
+# Cyberpunk 2077 Official Free Download Available For Millions, Don't Miss Out
+
+Gaming, Cyberpunk 2077
+
+Thu, 23 Apr 2026 10:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-free-download-ps-plus-game-pass-april-2026/
+
+Experience the award-winning RPG Cyberpunk 2077 for free with Xbox Game Pass or PlayStation Plus subscriptions.
+---------
+
+# Stranger Things: Tales From '85 Voice Cast & Character Guide
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Thu, 23 Apr 2026 10:00:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-voice-cast-character-guide/
+
+The animated spinoff series Stranger Things: Tales From '85 features a completely new cast, bringing together new talents and well-known actors.
+---------
+
+# Running Point Season 2 Review: Hudson's Charm Saves Sitcom From Flaws
+
+Streaming TV, Running Point
+
+Thu, 23 Apr 2026 10:00:19 GMT
+
+https://screenrant.com/running-point-season-2-review/
+
+Running Point Season 2 on Netflix features Kate Hudson's captivating performance, saving the sitcom from structural issues and trope-heavy storylines.
+---------
+
+# GTA 6 Official Gameplay Leaves Fans Split
+
+Gaming, Grand Theft Auto 6
+
+Thu, 23 Apr 2026 09:30:20 GMT
+
+https://screenrant.com/gta-6-official-gameplay-first-look-gamers-react/
+
+Fans speculate whether a memorable scene featuring NPCs recognizing the protagonist in the latest GTA 6 trailer is actual gameplay.
+---------
+
+# Netflix's Stranger Things Officially Returns With New Episodes
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Thu, 23 Apr 2026 09:00:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-netflix-series-april-2026/
+
+Stranger Things is finally back on Netflix after season 5 with a fresh batch of episodes in the form of the Sci-Fi horror franchise's new release.
+---------
+
+# Stranger Things: Tales From '85 Parents Guide - Is The Show Suitable For Kids?
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Thu, 23 Apr 2026 09:00:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-parents-guide/
+
+Stranger Things is back, this time with an animated spinoff show with a different tone from the main show, thus aiming at a wider audience.
+---------
+
+# Apple TV's 2-Part Crime Drama Is Jon Hamm's Best Show Since Mad Men
+
+TV, Your Friends and Neighbors, Jon Hamm, Apple TV, Mad Men
+
+Thu, 23 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/apple-tv-your-friends-and-neighbors-best-jon-hamm-show-post-mad-men/
+
+Jon Hamm has made some intriguing career choices since Mad Men ended in 2015, but his latest Apple TV crime drama is a return to form.
+---------
+
+# Ryan Reynolds's Deadpool 4 Update Just Teased One Marvel Team's MCU Debut
+
+Movies, Deadpool, MCU, superheroes
+
+Thu, 23 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/deadpool-4-x-force-mcu-debut-ryan-reynolds/
+
+Ryan Reynolds just opened up about Deadpool's next adventure in the MCU, and may have teased the debut of a fan-favorite superhero team.
+---------
+
 # Steam 2025 Open-World Game 100% Free To Keep If Claimed In Next 48 Hours
 
 Gaming, Steam, Indie Games
