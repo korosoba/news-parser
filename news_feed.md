@@ -1,3 +1,366 @@
+# Peacock's 10-Part Spy Series Beat James Bond At His Own Game
+
+Streaming TV, Peacock, James Bond, The Day of the Jackal
+
+Fri, 24 Apr 2026 01:45:44 GMT
+
+https://screenrant.com/day-of-the-jackal-spy-tv-series-beat-james-bond/
+
+Peacock is the streaming home of a compelling 10-episode spy crime thriller that surprisingly manages to beat James Bond at its own game in one way.
+---------
+
+# Maul May No Longer Be A Sith, But Shadow Lord Proves He Still Respects Dark Side Rules
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Fri, 24 Apr 2026 01:01:18 GMT
+
+https://screenrant.com/maul-shadow-lord-respecting-dark-side-rules-devon-apprentice/
+
+Although Maul may no longer be an official Sith Lord, his attempts to gain his own apprentice prove he still respects dark side traditions.
+---------
+
+# One Piece Chapter 1181 Release Date and Time
+
+Anime, One Piece, One Piece (1997)
+
+Fri, 24 Apr 2026 01:01:18 GMT
+
+https://screenrant.com/one-piece-chapter-1181-release-date-time/
+
+One Piece chapter 1181 pits Loki directly against Imu. Find out when the new chapter drops and where to read it.
+---------
+
+# Legend Of Zelda: Oracle Remakes Leave Gamers With One Concern
+
+Gaming, The Legend of Zelda
+
+Fri, 24 Apr 2026 01:01:18 GMT
+
+https://screenrant.com/legend-of-zelda-oracle-remakes-gamers-react/
+
+The Legend of Zelda's Oracle games have captivated fans for years, but a modern remake could face a major challenge.
+---------
+
+# The Greatest World War II Movie Of All Time Is Officially Releasing On Netflix 32 Years Later
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 00:40:28 GMT
+
+https://screenrant.com/best-world-war-2-movie-schindlers-list-netflix-release-date-may-2026/
+
+One of the most highly acclaimed World War II movies of all time is set to stream on Netflix again, as it offers viewers another chance to watch.
+---------
+
+# Warner Bros & HBO Have Rings of Power Trapped In An Impossible Corner
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Fri, 24 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/rings-of-power-season-3-2026-premiere-warner-bros-trapped/
+
+Rings of Power season 3 will arrive sooner than we thought, but this does nothing to improve the show's position compared to Warner Bros Discovery.
+---------
+
+# Jamie Lee Curtis’ Reboot Of 12-Part Murder Mystery Delays Release Date To Avoid Major Box Office Battle
+
+Movies, Murder, She Wrote, Jamie Lee Curtis
+
+Fri, 24 Apr 2026 00:13:57 GMT
+
+https://screenrant.com/jamie-lee-curtis-murder-she-wrote-reboot-release-delay/
+
+Jamie Lee Curtis’ reboot of a classic murder mystery TV show has officially postponed its release date to avoid its box office competition.
+---------
+
+# Far Cry Collides With Valheim In New Open-World Sandbox RPG
+
+Gaming, Far Cry, Triple-A Games
+
+Fri, 24 Apr 2026 00:07:23 GMT
+
+https://screenrant.com/far-cry-away-from-life-new-sandbox-rpg-april-2026/
+
+If you're missing Far Cry, there's a game that's out now that marries a lot of the core mechanics of that series in a new setting.
+---------
+
+# Netflix's Biggest Fighting Anime Staff Talks Release Schedule Advantages Ahead of Part 2 (Exclusive)
+
+Anime, Netflix, Baki-Dou: The Invincible Samurai, Baki
+
+Fri, 24 Apr 2026 00:00:20 GMT
+
+https://screenrant.com/netflix-baki-dou-part-2-release-schedule-tms/
+
+The long-awaited return of Baki Hanma has more on the way for Netflix subscribers as a cloned samurai challenger poses the greatest challenge yet.
+---------
+
+# The Strongest Dandadan Characters in the Manga, Ranked
+
+Anime, Dandadan, Manga
+
+Fri, 24 Apr 2026 01:50:12 GMT
+
+https://www.cbr.com/dandadan-strongest-manga-characters/
+
+Dandadan's supernatural origins make for some powerful encounters. Here are the strongest characters from the source material.
+---------
+
+# Yu Yu Hakusho's Entire Reputation Is Built On 1 Perfect Arc
+
+Anime, Yu Yu Hakusho
+
+Fri, 24 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/yu-yu-hakusho-reputation-built-on-dark-tournament-arc/
+
+Much of the Yu Yu Hakusho’s lasting praise is as a result of this unforgettable chapter in the story.
+---------
+
+# Shonen Anime's Toughest Old Men
+
+Anime, shonen anime, Bleach, Naruto, Dragon Ball, One Piece
+
+Fri, 24 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/shonen-anime-strongest-old-men/
+
+Along with wisdom, the strongest old men in shonen bring with them decades of fighting experience the younger generation could learn a lot from.
+---------
+
+# Why Pansy Parkinson Was Recast 4 Times in the Harry Potter Movies
+
+Movies, Harry Potter
+
+Fri, 24 Apr 2026 01:00:13 GMT
+
+https://www.cbr.com/harry-potter-movies-pansy-parkinson-recast-explained/
+
+Pansy Parkinson was a lesser-known antagonist in the Harry Potter movies, and while she's ever-present, she was recast multiple times.
+---------
+
+# Frank Miller's Divisive The Dark Knight Strikes Again Is Actually A Secret Comics Masterpiece
+
+Comics, Batman, frank miller, DC Comics
+
+Fri, 24 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/frank-miller-batman-dark-knight-strikes-again-comic-best-secret-masterpiece/
+
+This often hated Batman comic by a legendary writer is quietly one of the most important tales in the Dark Knight's modern history.
+---------
+
+# Microsoft Officially Unveils New Xbox Logo
+
+Games, Xbox Series X (1)
+
+Fri, 24 Apr 2026 00:52:53 GMT
+
+https://www.cbr.com/microsoft-new-xbox-logo/
+
+The Xbox logo gets updated as the Microsoft console enters a new gaming era.
+---------
+
+# 26 Years Later, Pokémon Trading Card Game on Game Boy Is Worth Revisiting
+
+Games, Pokemon, Pokemon TCG
+
+Fri, 24 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/pokemon-tcg-game-boy-underrated-rpg/
+
+With the Pokémon TCG more popular than ever, fans need to finally play an underrated Game Boy game.
+---------
+
+# Netflix's The Stranger Is a Riveting 6-Hour Murder Mystery
+
+TV, The Stranger, Netflix, Mystery
+
+Fri, 24 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/netflix-the-stranger-murder-mystery-deserves-watch/
+
+Netflix has gained fame for its numerous murder mysteries, but one show released in 2020 deserves equal recognition.
+---------
+
+# Dragonslayer Delivers the Best Dragon Scene Ever Filmed
+
+Movies, Dragonslayer
+
+Fri, 24 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/dragonslayer-best-dragon-movie-scene-ever/
+
+The 1980s were responsible for some of the best fantasy films ever, but this underrated gem still holds up as having the best dragon ever put to film.
+---------
+
+# 15 Highest Ranked Players In Blue Lock
+
+Anime, Blue Lock
+
+Fri, 24 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/blue-lock-highest-rank-players/
+
+Blue Lock holds Japan's diamonds in the rough, and some players score higher than others.
+---------
+
+# Star Wars Icon's New Zombie Movie Officially Takes Over Streaming on May 8
+
+Movie News, Star Wars, Daisy Ridley, We Bury the Dead, Zombie
+
+Fri, 24 Apr 2026 01:45:12 GMT
+
+https://collider.com/star-wars-icon-daisy-ridley-zombie-horror-movie-we-bury-the-dead-streaming-release-date-hulu-may-8-2026/
+
+Star Wars icon Daisy Ridley stars in the psychological zombie thriller We Bury the Dead, premiering on streaming this May.
+---------
+
+# Guy Ritchie’s 10-Part Crime Drama Is Still a Late-Night Sleeper Hit on Streaming 1 Year Later
+
+TV Features, Guy Ritchie, MobLand, Tom Hardy, Paramount Plus
+
+Fri, 24 Apr 2026 01:36:13 GMT
+
+https://collider.com/guy-ritchie-mobland-paramount-plus-crime-drama-sleeper-hit-streaming/
+
+Guy Ritchie's MobLand continues to thrive on streaming 1 year after its premiere, thanks to a star-studded cast and gripping storylines.
+---------
+
+# More ‘Community’ Reunions Are Coming to ‘Animal Control’ If Joel McHale Has His Way
+
+Exclusives, Animal Control, Fox, Joel McHale, Community
+
+Fri, 24 Apr 2026 01:32:12 GMT
+
+https://collider.com/joel-mchale-animal-control-season-4-finale-interview-teases-community-reunion/
+
+Joel McHale teases Animal Control Season 5, Frank and Victoria’s relationship after that near-kiss, Templeton’s twist, and more Community reunions.
+---------
+
+# Taylor Sheridan's 13-Part Western Dethrones CBS' Most Popular Procedural
+
+TV News, Marshals, Tracker, CBS, Taylor Sheridan
+
+Fri, 24 Apr 2026 01:30:12 GMT
+
+https://collider.com/taylor-sheridan-western-marshals-overtakes-cbs-most-popular-crime-series-tracker/
+
+Taylor Sheridan's divisive new Yellowstone spin-off has surpassed Tracker as CBS' top show. Get all the details here.
+---------
+
+# Tom Cruise's Breathtaking Thriller With Near-Perfect Rotten Tomatoes Score Is a Late-Night Sleeper Hit
+
+Movie News, A Few Good Men, The Lincoln Lawyer, Tubi, Tom Cruise
+
+Fri, 24 Apr 2026 01:16:12 GMT
+
+https://collider.com/tom-cruise-the-lincoln-lawyer-replacement-a-few-good-men-free-streaming-success-tubi-april-2026/
+
+The gripping legal drama A Few Good Men, directed by the late Rob Reiner and starring Tom Cruise, is surging on free streaming. Here's all to know.
+---------
+
+# Disney's 9-Part Sci-Fi Franchise Is Taking Over Free Streaming Worldwide
+
+Movie News, Arnold Scharzenegger, Predator, Predator: Badlands, Predator 2
+
+Fri, 24 Apr 2026 01:00:13 GMT
+
+https://collider.com/arnold-schwarzenegger-sci-fi-franchise-predator-danny-glover-sequel-free-streaming-success-tubi-april-2026/
+
+Arnold Schwarzenegger's Predator and Danny Glover's sequel are taking over a free streaming service. Read on for more details.
+---------
+
+# 18 Years Later, the Most Divisive Fantasy Sequel Officially Surges on Streaming Ahead of 2028 Follow-Up
+
+Movie News, The Mummy: Tomb of the Dragon Emperor, HBO Max, Brendan Fraser, Streaming
+
+Fri, 24 Apr 2026 00:46:13 GMT
+
+https://collider.com/brendan-fraser-fantasy-sequel-the-mummy-tomb-of-the-dragon-emperor-streaming-success-hbo-max-april-2026/
+
+The Mummy sequel confirmed to not be canon, is a surprise streaming hit ahead of Brendan Fraser's long-awaited next installment.
+---------
+
+# Disney's Live-Action Fantasy Remake Surges on Streaming Ahead of Long-Delayed Sequel
+
+Movie News, Angelina Jolie, Maleficent, Maleficent: Mistress of Evil, Disney+
+
+Fri, 24 Apr 2026 00:30:12 GMT
+
+https://collider.com/angelina-jolie-fantasy-hit-maleficent-streaming-success-disney-plus-april-2026/
+
+Angelina Jolie's Oscar-nominated fantasy movie Maleficent is making a comeback on streaming 12 years after its theatrical release. Read on for more.
+---------
+
+# Prime Video’s Near-Perfect Sci-Fi Epic Is Officially Beating ‘The Boys’ at Its Own Game
+
+TV News, Invincible, Prime Video, Sci-Fi, The Boys
+
+Fri, 24 Apr 2026 00:15:12 GMT
+
+https://collider.com/prime-video-sci-fi-series-invincible-season-4-finale-streaming-success-april-2026/
+
+The finale of Prime Video's best sci-fi superhero series has just taken over the streaming world, even beating the ongoing final season of The Boys.
+---------
+
+# Paramount+'s Best Crime Drama Has the Most Devastating Character Arc on Television
+
+TV Features, Criminal Minds, Matthew Gray Gubler, True Crime, Paramount Plus
+
+Fri, 24 Apr 2026 00:13:13 GMT
+
+https://collider.com/criminal-minds-spencer-reid-trauma-storyline-paramount-plus/
+
+From addiction to heartbreak, Criminal Minds' Spencer Reid has experienced emotional turmoil and relentless challenges that define his character.
+---------
+
+# 'For All Mankind' Spin-Off 'Star City' Trailer Released by Apple TV
+
+TV News, For All Mankind, Star City
+
+Fri, 24 Apr 2026 00:54:45 GMT
+
+https://movieweb.com/star-city-spin-off-trailer/
+
+The new series will premiere on Apple TV the same day as 'For All Mankind' Season 5 concludes, May 29.
+---------
+
+# 'Michael' Lands Certified Hot Audience Score on Rotten Tomatoes
+
+Movie News, Michael
+
+Fri, 24 Apr 2026 00:42:09 GMT
+
+https://movieweb.com/michael-audience-rotten-tomatoes-score/
+
+Ahead of its Apr. 24 debut, Antoine Fuqua's 'Michael' has a Rotten Tomatoes score from general audiences.
+---------
+
+# 10 Legendary Foreign War Movies Better Than Anything Made in America
+
+Movie Lists, War
+
+Fri, 24 Apr 2026 00:00:18 GMT
+
+https://movieweb.com/foreign-war-movies-better-than-anything-american/
+
+Step outside Hollywood for the ultimate classics. These foreign language war movies might take a bit more effort, but the reward is immeasurable.
+---------
+
+# 'Ted' Season 2 Becomes Most-Streamed Comedy Series of 2026
+
+TV News, Ted
+
+Thu, 23 Apr 2026 23:54:00 GMT
+
+https://movieweb.com/ted-season-2-streaming-record/
+
+The prequel series to the hit 2012 film 'Ted' has generated 1.2 billion minutes of viewership since Season 2 debuted on March 5, 2026.
+---------
+
 # Nightwing Debuts New Logo in Absolute Batman Canon
 
 DC Comics, Nightwing
