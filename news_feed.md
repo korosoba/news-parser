@@ -1,3 +1,289 @@
+# Chainsaw Man: Reze Arc Movie Announces Crunchyroll Streaming Release
+
+Anime, Crunchyroll, Chainsaw Man - The Movie: Reze Arc
+
+Fri, 24 Apr 2026 14:32:41 GMT
+
+https://screenrant.com/the-biggest-anime-movie-of-2025-finally-announces-its-us-streaming-release/
+
+As the anime industry continues to explode, the wait is finally over for fans eager to stream Chainsaw Man - The Movie: Reze Arc.
+---------
+
+# Luke Grimes' Favorite Yellowstone Scene: A Perfect Dutton Moment
+
+TV, Yellowstone
+
+Fri, 24 Apr 2026 14:30:19 GMT
+
+https://screenrant.com/yellowstone-first-episode-dutton-men-ride-together/
+
+Yellowstone's series premiere has an idyllic scene that became impossible to recreate as the show continued, and it's Luke Grimes' favorite.
+---------
+
+# Final Fantasy 10 Makes Its Official Return In New Trailer
+
+Gaming, Final Fantasy X, PC, Final Fantasy
+
+Fri, 24 Apr 2026 14:22:18 GMT
+
+https://screenrant.com/final-fantasy-10-dissidia-duellum/
+
+Final Fantasy 10 is among the most beloved entries in the entire franchise, and it just made a triumphant return in an official new trailer.
+---------
+
+# Charli XCX’s The Moment Officially Confirms HBO Max Streaming Release Date
+
+Movies, The Moment, Charli XCX
+
+Fri, 24 Apr 2026 14:12:42 GMT
+
+https://screenrant.com/charli-xcx-the-moment-hbo-max-streaming-release-date/
+
+Singer Charli XCX is starring in and producing a new mockumentary film called The Moment, and HBO has now revealed when it’ll be released on HBO Max.
+---------
+
+# All 8 New Upside Down Creatures In Stranger Things: Tales From '85
+
+Streaming TV, Stranger Things: Tales from '85
+
+Fri, 24 Apr 2026 14:06:38 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-upside-down-creatures-explained/
+
+Stranger Things: Tales from ’85 broadens the universe of the main show by introducing a whole host of new Upside Down-linked creatures to fight.
+---------
+
+# 13 Assassin's Creed Games You Can Play Free Right Now
+
+Gaming, Assassin's Creed
+
+Fri, 24 Apr 2026 14:01:10 GMT
+
+https://screenrant.com/13-assassins-creed-games-free-to-play/
+
+Discover 13 Assassin's Creed games available to play for free on PlayStation Plus Extra, including classics like Black Flag and the Ezio Collection.
+---------
+
+# Netflix’s New Scooby Doo Series Title Officially Revealed Amid Major Production Update
+
+TV, Scooby-Doo
+
+Fri, 24 Apr 2026 14:01:10 GMT
+
+https://screenrant.com/netflix-scooby-doo-origins-title-reveal-production-start/
+
+Netflix officially confirms the title for its Scooby-Doo live action reboot and offers an exciting production update for the highly anticipated show.
+---------
+
+# Hulk Unlocks His Ultimate Form as an Official Red Lantern
+
+Comics, Hulk, Superman
+
+Fri, 24 Apr 2026 14:01:10 GMT
+
+https://screenrant.com/hulk-red-lantern-stronger-than-superman-dc-marvel/
+
+For over 60 years, fans have been debating who's the strongest - Superman or the Incredible Hulk. Now, Hulk has finally emerged as the winner.
+---------
+
+# New The Boys Episode Admits Starlight's Story Last Season Was Problematic
+
+Streaming TV, The Boys
+
+Fri, 24 Apr 2026 14:01:10 GMT
+
+https://screenrant.com/the-boys-starlight-hughie-problematic-story/
+
+Starlight has always been one of The Boys' most moral characters, but her story from last season was problematic, and even the show is admitting it.
+---------
+
+# New Stranger Things Series Creator Clarifies Major Loophole After Eleven Closed The Gate
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Fri, 24 Apr 2026 13:56:54 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-demogorgon-flowers-explained-eric-robles/
+
+Stranger Things has a major loophole, and Eleven's biggest achievement could be entirely pointless, as the new series creator reveals exactly why.
+---------
+
+# Taylor Sheridan Fires Yellowstone Spinoff Showrunner 3 Weeks Before Release
+
+TV, Dutton Ranch
+
+Fri, 24 Apr 2026 14:42:12 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-showrunner-chad-feehan-fired/
+
+It'll be one and done for Dutton Ranch creator/showrunner Chad Feehan, and here's why.
+---------
+
+# Pokémon TCG Chaos Rising Rewards Playing Like Ash Ketchum
+
+Games, Pokemon TCG
+
+Fri, 24 Apr 2026 14:35:12 GMT
+
+https://www.cbr.com/pokemon-tcg-chaos-rising-rewards-tauros-ash-ketchum/
+
+One of the upcoming cards in Pokémon TCG: Mega Evolution - Chaos Rising set features a familiar Gen 1 'Mon, one with an attack Ash Ketchum would love.
+---------
+
+# Ray Romano's Favorite Everybody Loves Raymond Episode Is Perfect
+
+TV, Sitcoms, Everybody Loves Raymond, Comedy
+
+Fri, 24 Apr 2026 14:31:10 GMT
+
+https://www.cbr.com/ray-romano-favorite-everybody-loves-raymond-episode-sitcom-perfection/
+
+Ray Romano selected his favorite Everybody Loves Raymond episode, highlighting the long-running sitcom's best 22-minute chapter.
+---------
+
+# 8 Reasons It's Tough to Watch the Godfather Trilogy Today
+
+Movies, The Godfather
+
+Fri, 24 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/reasons-the-godfather-trilogy-didnt-hold-up-list/
+
+The epic Godfather crime saga changed cinema forever, but several factors make revisiting the Corleone family a challenge today.
+---------
+
+# Every Character Death In That Time I Got Reincarnated As a Slime, In Order
+
+Anime, Isekai, That Time I Got Reincarnated as a Slime
+
+Fri, 24 Apr 2026 14:15:12 GMT
+
+https://www.cbr.com/that-time-i-got-reincarnated-as-a-slime-all-character-deaths/
+
+Despite That Time I Got Reincarnated as a Slime often resorting to diplomacy over violence, many a character has lost their life in the popular isekai
+---------
+
+# The 51-Year-Old Creature Feature Quentin Tarantino Hailed as the 'Greatest Movie Ever Made' Jaws Is Leaving Netflix
+
+Movies, Netflix
+
+Fri, 24 Apr 2026 14:00:59 GMT
+
+https://www.cbr.com/steven-spielberg-jaws-leaving-netflix-april-2026/
+
+There couldn't be a better timing.
+---------
+
+# Event Horizon Sequel Confirms A Fan-Favorite Character's Fate
+
+Comics, Event Horizon
+
+Fri, 24 Apr 2026 14:00:41 GMT
+
+https://www.cbr.com/event-horizon-inferno-lieutenant-strack-alive/
+
+The highly anticipated sci-fi sequel promises the return of one major character - but in a shocking new way.
+---------
+
+# Dorohedoro Is Actually Anime’s Best Chaotic Dark Fantasy
+
+Anime, Dorohedoro, Chainsaw Man
+
+Fri, 24 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/dorohedoro-better-chaotic-dark-fantasy-than-chainsaw-man/
+
+Although Dorohedoro is a lesser-known series, it actually outdoes Chainsaw Man in sheer chaos and creativity.
+---------
+
+# Classic Sega Franchise Officially Returns With New Game After 26 Years
+
+Games, sega
+
+Fri, 24 Apr 2026 13:10:12 GMT
+
+https://www.cbr.com/sega-ecco-the-dolphin-new-game-2026/
+
+One of the most beloved Sega franchises of an entire generation is finally making the long-overdue comeback that fans have been begging for.
+---------
+
+# 'Michael's Audience Score Proves Critics Wrong on Rotten Tomatoes
+
+Movie News, Michael, Antoine Fuqua, Miles Teller, Colman Domingo
+
+Fri, 24 Apr 2026 14:01:19 GMT
+
+https://collider.com/michael-jackson-movie-audience-score-rotten-tomatoes-proves-critics-wrong/
+
+Audiences for the new Michael Jackson biopic are proving critics wrong as the Rotten Tomatoes score hits impressive highs following a critical lashing
+---------
+
+# Netflix's Live-Action 'Scooby-Doo' Reboot Drops First Official Image and Plot Details as Filming Kicks Off
+
+TV News, Scooby-Doo, Netflix, Mckenna Grace, Abby Ryder Fortson
+
+Fri, 24 Apr 2026 14:00:41 GMT
+
+https://collider.com/netflix-live-action-scooby-doo-reboot-series-first-image-plot-details-filming-start/
+
+Netflix has officially revealed the first image and plot details of its live-action Scooby-Doo reboot as filming kicks off.
+---------
+
+# 3 Classic Rock David Bowie Songs That Are Forgotten Today
+
+Music Features, David Bowie, Music, Rock, Billboard Hot 100
+
+Fri, 24 Apr 2026 13:59:48 GMT
+
+https://collider.com/3-classic-rock-david-bowie-songs-forgotten-today/
+
+Three overlooked 1970s David Bowie songs from Aladdin Sane, Station to Station, and The Man Who Sold the World prove his brilliance.
+---------
+
+# Netflix 'Scooby-Doo' Series Gets First Look as Filming Begins
+
+TV News, Scooby-Doo, Netflix
+
+Fri, 24 Apr 2026 14:33:54 GMT
+
+https://movieweb.com/netflix-scooby-doo-reboot-production-start/
+
+Netflix revealed a new behind-the-scenes look at its upcoming live-action 'Scooby-Doo' reboot as it begins production.
+---------
+
+# New 'Mortal Kombat 2' Trailer Debuts Johnny Cage in "Let's F'ckn Go!" Teaser
+
+Movie News, Mortal Kombat II, Karl Urban
+
+Fri, 24 Apr 2026 14:20:20 GMT
+
+https://movieweb.com/mortal-kombat-2-trailer-roster/
+
+The new 'Mortal Kombat II' trailer puts Karl Urban's Johnny Cage front and center, while teasing Shao Kahn's threat ahead of the film's release.
+---------
+
+# 'Masters of the Universe' Gets Action-Packed International Trailer
+
+Movie News, Masters of the Universe
+
+Fri, 24 Apr 2026 14:03:36 GMT
+
+https://movieweb.com/masters-of-the-universe-international-trailer/
+
+A new international trailer for 'Masters of the Universe' puts the focus on He-Man and his quest to find the Power Sword.
+---------
+
+# Sydney Sweeney's 82-Minute Crime Thriller, 'Reality,' Surges in Popularity on Streaming
+
+Movie News, Sydney Sweeney, Reality, Hot on Streaming, Thriller
+
+Fri, 24 Apr 2026 14:01:10 GMT
+
+https://movieweb.com/sydney-sweeney-reality-best-movie-streaming-hbo-max-april-2026/
+
+The forgotten crime thriller directed by Tina Satter is Sweeney's highest-rated movie thus far in her career.
+---------
+
 # Genshin Impact Drops New Code & Free Primogems During Snezhnaya Livestream
 
 Gaming, Genshin Impact, PC, Live Service Games
