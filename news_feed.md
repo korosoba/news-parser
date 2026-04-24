@@ -1,3 +1,388 @@
+# Prime Video's 10 Perfectly Rated Shows On Rotten Tomatoes
+
+TV, Prime Video
+
+Fri, 24 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/prime-video-best-shows-perfect-rotten-tomatoes-score/
+
+Prime Video has an especially impressive selection of original TV shows which have earned a perfect score on the critical aggregator Rotten Tomatoes.
+---------
+
+# Harrison Ford's $775M Sci-Fi Hit Officially Releases On Hulu After Making 70x Its Budget
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 16:52:34 GMT
+
+https://screenrant.com/harrison-ford-star-wars-streaming-release-hulu-may-2026/
+
+Harrison Ford's groundbreaking sci-fi classic, which earned 70x its production budget, is set for an upcoming release on streaming platform Hulu.
+---------
+
+# FX’s Adaptation Of Six-Part Action Video Game Gets Script & Filming Update From Creator
+
+TV, Far Cry
+
+Fri, 24 Apr 2026 16:45:12 GMT
+
+https://screenrant.com/far-cry-fx-video-game-adaptation-noah-hawley-production-update/
+
+FX's new video game adaptation just got a major production update, as Noah Hawley heads into production ahead of the release of a few major titles.
+---------
+
+# Alleged Avatar: The Last Airbender Leaker Arrested After Aang Movie Released Online
+
+Movies, The Legend of Aang: The Last Airbender, Avatar
+
+Fri, 24 Apr 2026 16:42:44 GMT
+
+https://screenrant.com/avatar-aang-last-airbender-movie-leaker-arrested/
+
+An arrest has been made in connection with the recent leak of the new Avatar: The Last Airbender film, Avatar Aang: The Last Airbender.
+---------
+
+# Netflix's R-Rated Action Thriller With Stellar Audience Score On Rotten Tomatoes Is One Of Its Best
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 16:35:19 GMT
+
+https://screenrant.com/netflix-extraction-2-action-thriller-movie-best/
+
+One of Netflix's best action thrillers is this R-rated release with a beloved star that boasts an impressive Rotten Tomatoes audience score.
+---------
+
+# Fargo Season 6 Chances Get Exciting Update From Creator As He Focuses On 2 Other Series
+
+TV, Fargo
+
+Fri, 24 Apr 2026 16:15:42 GMT
+
+https://screenrant.com/fargo-season-6-return-update-noah-hawley/
+
+Almost three years after season 5, Fargo season 6 gets an exciting new update from series creator Noah Hawley amid his work on two other shows.
+---------
+
+# Netflix's Big Movie Adaptation Of Bestselling Book Officially Releases In 2 Weeks
+
+Movies, Netflix, Remarkably Bright Creatures, Sally Field, Lewis Pullman
+
+Fri, 24 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-netflix-how-to-watch/
+
+Here is how to watch Netflix’s Remarkably Bright Creatures and the best movies to stream while you bide your time.
+---------
+
+# Alien: Earth Season 2's Filming Start Window Confirmed By Noah Hawley As It Moves To Iconic Franchise Setting
+
+TV, Alien: Earth, Horror, FX
+
+Fri, 24 Apr 2026 16:12:35 GMT
+
+https://screenrant.com/alien-earth-season-2-filming-start-window-confirmed-pinewood-noah-hawley/
+
+Noah Hawley confirms Alien: Earth season 2's filming start window as he also offers an update on the season's scripts and moving to a new location.
+---------
+
+# Iain Armitage’s CBS Return Reveals The Real Reason Why Sheldon Hasn’t Been In Georgie & Mandy’s First Marriage
+
+Network TV, Georgie & Mandy's First Marriage, The Big Bang Theory, Ghosts, Young Sheldon
+
+Fri, 24 Apr 2026 16:02:18 GMT
+
+https://screenrant.com/iain-armitage-ghosts-role-georgie-and-mandys-first-marriage-sheldon-absence-reason/
+
+Two years after Young Sheldon ended, Iain Armitage returns to CBS and explains why Sheldon hasn't been in Georgie & Mandy’s First Marriage.
+---------
+
+# "Very Positive" Steam Game 100% Free To Keep, But Only For 48 More Hours
+
+Gaming, Steam, PC, Indie
+
+Fri, 24 Apr 2026 16:01:12 GMT
+
+https://screenrant.com/steam-free-game-nocturnal-48-hours-april-2026/
+
+You can find premium games with 100% discounts on Steam, and this adventure game’s promotional discount period will come to a close soon.
+---------
+
+# Transformers Revives Ultra Magnus Beyond Optimus Prime With New Action Figure Release
+
+Anime, Transformers, merchandise, action figures, toys
+
+Fri, 24 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/transformers-idw-ultra-magnus-great-general-toys-action-figure-prototype/
+
+Bringing a Transformers comic book design to life, an upcoming action figure for Ultra Magnus is set to be one of his most impressive ever created.
+---------
+
+# Alien: Earth Season 2 Films in the Same Place As the Original Alien Trilogy
+
+TV, Alien: Earth, Hulu, Alien
+
+Fri, 24 Apr 2026 16:56:38 GMT
+
+https://www.cbr.com/alien-earth-season-2-change-pinewood-uk/
+
+Alien: Earth Season 2 has moved production ot Pinewood Studios in the UK, where Alien, Aliens, Alien 3, and Prometheus filmed.
+---------
+
+# Riz Ahmed Did Something “Insane” for His Star Wars: Rogue One Audition
+
+Movies, Rogue One: A Star Wars Story, Star Wars
+
+Fri, 24 Apr 2026 16:53:12 GMT
+
+https://www.cbr.com/riz-ahmed-star-wars-rogue-one-audition/
+
+Rogue One star Riz Ahmed opens up about his audition for the Star Wars franchise and why the way he approached it was "an insane thing to do."
+---------
+
+# Clair Obscur Officially Drops New Anniversary DLC Available Now
+
+Games, RPG
+
+Fri, 24 Apr 2026 16:45:12 GMT
+
+https://www.cbr.com/clair-obscur-new-anniversary-dlc-hairstyles/
+
+April 24 marks the first anniversary of Clair Obscur: Expedition 33, and the developers have released a special update to mark the occasion.
+---------
+
+# Charlize Theron's New 96-Minute Survival Thriller Apex Rotten Tomatoes Score Unveiled
+
+Movies, Apex, Rotten Tomatoes
+
+Fri, 24 Apr 2026 16:40:25 GMT
+
+https://www.cbr.com/charlize-theron-apex-rotten-tomatoes-score/
+
+The survival film is the perfect replacement for Sam Raimi's Send Help.
+---------
+
+# Hulu’s Far Cry Series Gets Major Update, but There’s a Problem
+
+TV, Far Cry
+
+Fri, 24 Apr 2026 16:36:00 GMT
+
+https://www.cbr.com/hulu-far-cry-series-production-update-noah-hawley/
+
+The live-action Far Cry series is officially on its way - but one issue might pose a problem for the series.
+---------
+
+# Brawl Stars Officially Introduces New Brawler Damian
+
+Games, Clash of Clans
+
+Fri, 24 Apr 2026 16:35:12 GMT
+
+https://www.cbr.com/brawl-stars-damian-new-brawler-music-video/
+
+The latest addition to the Brawl Stars roster gets the most rocking introduction that the game has ever seen, and it's the perfect debut for Damian.
+---------
+
+# Best Scenes in the Original Gladiator Movie, Ranked
+
+Movies, Gladiator
+
+Fri, 24 Apr 2026 16:30:13 GMT
+
+https://www.cbr.com/best-original-gladiator-movie-scenes-ranked-list/
+
+The original Gladiator opened the floodgates of 00s epics with its success, but which scenes entertained audiences the most?
+---------
+
+# Chris Hemsworth's Crime 101 Thriller Finds Streaming Success on Prime Video
+
+Movies, Crime 101, Thriller, Prime Video
+
+Fri, 24 Apr 2026 16:24:12 GMT
+
+https://www.cbr.com/chris-hemsworth-crime-101-crime-thriller-prime-video-success-april-2026/
+
+Chris Hemsworth's crime thriller Crime 101 is now a hit on Prime Video, dominating global streaming charts after bombing at the box office.
+---------
+
+# Beloved Anime That Are Weirdly Bad At Writing Women
+
+Anime, Naruto, Dragon Ball Z
+
+Fri, 24 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/beloved-anime-bad-at-writing-women/
+
+These fan-favorite anime struggle to give their female characters the same depth as the rest of the cast.
+---------
+
+# 'Pirates of the Caribbean 6': Is Disney's Action Epic Officially Happening? [Exclusive]
+
+Movie Features, Jerry Bruckheimer, Johnny Depp, Pirates of the Caribbean, Disney
+
+Fri, 24 Apr 2026 17:04:12 GMT
+
+https://collider.com/pirates-of-the-caribbean-6-everything-we-know-update-jerry-bruckheimer-margot-robbie-craig-mazin/
+
+Pirates of the Caribbean 6 has been delayed for months, but Jerry Bruckheimer's recent updates on the Disney franchise seem promising.
+---------
+
+# Prime Video Has Become PBS Masterpiece’s Secret Weapon After 55 Years of Literary Adaptations
+
+TV News, PBS, Masterpiece, The Count of Monte Cristo, The Forsytes
+
+Fri, 24 Apr 2026 17:00:13 GMT
+
+https://collider.com/pbs-masterpiece-book-adaptations-the-count-of-monte-cristo-the-forsytes/
+
+PBS Masterpiece is continuing to build a massive library of literary adaptations in 2026, from The Count of Monte Cristo to The Forsytes.
+---------
+
+# Yung Gravy Releases New “HBO” Music Video That Is ‘Texas Chain Saw Massacre’ Meets ‘Friday the 13th’ [Exclusive]
+
+Exclusives, Music Video, Horror, Friday the 13th, Texas Chain Saw Massacre
+
+Fri, 24 Apr 2026 16:55:13 GMT
+
+https://collider.com/yung-gravy-hbo-music-video-debut-texas-chainsaw-massacre-meets-friday-the-13th/
+
+Yung Gravy steps out with the music video for his latest single “HBO”, drawing on some of horror’s most classic films for inspiration.
+---------
+
+# Ridley Scott's Best Sci-Fi Story Since 'The Martian' Officially Starts Filming Season 2 This Summer
+
+TV News, Alien: Earth, Ridley Scott, Noah Hawley, FX
+
+Fri, 24 Apr 2026 16:50:23 GMT
+
+https://collider.com/fx-sci-fi-horror-series-alien-earth-season-2-filming-start-summer-2026-noah-hawley/
+
+FX's smash-hit sci-fi prequel Alien: Earth has officially begun prep for Season 2, with filming set to begin this summer.
+---------
+
+# Creator of FX’s Greatest Crime Thriller Teases Unexpected Series Return
+
+TV News, Fargo, Noah Hawley, FX, Hulu
+
+Fri, 24 Apr 2026 16:43:41 GMT
+
+https://collider.com/fx-crime-thriller-fargo-season-6-update-noah-hawley/
+
+FX's legendary crime thriller series Fargo has been on a 2-year hiatus, but creator Noah Hawley has teased Season 6 is very much in the works.
+---------
+
+# Charlize Theron's Netflix Blockbuster 'Apex' Has Officially Divided Critics on Rotten Tomatoes
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Rotten Tomatoes
+
+Fri, 24 Apr 2026 16:29:40 GMT
+
+https://collider.com/netflix-charlize-theron-taron-egerton-survival-thriller-apex-rotten-tomatoes-score-is-it-good/
+
+Charlize Theron and Taron Egerton's new Netflix thriller Apex is currently sitting between Theron's The Old Guard and its sequel on Rotten Tomatoes.
+---------
+
+# A 'Crazy Rich Asians' Star Picks Apart 'Elsbeth' in Thrilling New Sneak Peek [Exclusive]
+
+Exclusives, Elsbeth, CBS, Constance Wu, Carrie Preston
+
+Fri, 24 Apr 2026 16:01:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-17-sneak-peek-constance-wu/
+
+Constance Wu joins Elsbeth Season 3 as a formidable new foe in a new sneak peek, completely picking apart Carrie Preston's sharp-dressed sleuth.
+---------
+
+# ‘The School for Good and Evil’s Author Is Back With a Revolutionary New Thriller [Exclusive]
+
+Exclusives, The School for Good and Evil, Young Adult, Drama, Thriller
+
+Fri, 24 Apr 2026 16:01:13 GMT
+
+https://collider.com/the-school-for-good-and-evil-author-soman-chainani-new-thriller-young-world-sneak-peek/
+
+The School for Good and Evil’s Soman Chainani is back with a new book and we’ve got a first-listen excerpt. Read on for more.
+---------
+
+# The True Story Behind the Most All-Star Legal Thriller Ever Made, 30 Years Later [Exclusive]
+
+Exclusives, Sleepers, Crime, Thriller, Barry Levinson
+
+Fri, 24 Apr 2026 16:01:13 GMT
+
+https://collider.com/all-star-legal-thriller-sleepers-30th-anniversary-brad-pitt-robert-deniro-barry-levinson-interview/
+
+Barry Levinson looks back on Sleepers, its cast, moral ambiguity, and why the film still stays with audiences 30 years later.
+---------
+
+# Best TV Shows About Women’s Prison
+
+TV Lists, Orange is The New Black
+
+Fri, 24 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/womens-prison-tv-shows/
+
+The experiences of women in prison aren't as widely documented as those of men, but a few TV shows imagine what the situation is always like.
+---------
+
+# Every Lost 'Doctor Who' Episode That's Been Recovered
+
+Features, Doctor Who
+
+Fri, 24 Apr 2026 17:00:16 GMT
+
+https://movieweb.com/doctor-who-missing-episode-serials-recovered/
+
+Since the '70s, the BBC and 'Doctor Who' audiences have been desperately seeking out the several missing episodes from the classic era.
+---------
+
+# 'Dutton Ranch' Showrunner Leaves Series Ahead of Series Premiere
+
+TV News, Dutton Ranch, Yellowstone
+
+Fri, 24 Apr 2026 16:06:20 GMT
+
+https://movieweb.com/dutton-ranch-showrunner-exit/
+
+'Dutton Ranch' has a tough road ahead of it, as showrunner Chad Feehan will not return should the 'Yellowstone' show get a second season.
+---------
+
+# Josh Safran Developing 'Glory Days' Sports Series at Netflix
+
+TV News, Gossip Girl, Netflix, The O.C., Bull Durham
+
+Fri, 24 Apr 2026 16:02:22 GMT
+
+https://movieweb.com/glory-days-netflix-series-in-development-josh-safran/
+
+Netflix is in early development on 'Glory Days,' a scripted sports series about a summer baseball league, from 'Gossip Girl' showrunner Josh Safran.
+---------
+
+# Apple TV's 'Criminal Record' Quickly Takes Over Streaming Following Season 2 Premiere
+
+TV News, Criminal Record, Hot on Streaming, Apple TV, Crime
+
+Fri, 24 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/criminal-record-apple-tv-crime-thriller-streaming-hit-april-2026/
+
+With a perfect rating of 100% on Rotten Tomatoes, Apple TV's returning crime thriller is clearly making an impact on streaming.
+---------
+
+# The Saddest Episode of 'The Rookie' Is Still Heartbreaking Years Later
+
+Features, The Rookie
+
+Fri, 24 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/the-rookie-saddest-episode-zoe-andersen-death-season-1-episode-16/
+
+An episode of 'The Rookie' changed the series forever, and still remains one of the most devastating moments in the show's history.
+---------
+
 # X-Files Spinoff Of Iconic Crossover Episode Pitched By Revival Series Star
 
 TV, The X-Files
