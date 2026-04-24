@@ -1,3 +1,256 @@
+# Star Wars’ Cancelled Prequel Series Sees Surprise US Streaming Resurgence
+
+TV, The Acolyte, Star Wars
+
+Fri, 24 Apr 2026 22:02:45 GMT
+
+https://screenrant.com/star-wars-the-acolyte-us-disney-plus-streaming-success-april-2026/
+
+One of Star Wars' most divisive installments, which was cancelled ahead of its time, is climbing the streaming charts amid new releases.
+---------
+
+# Star Wars Battlefront's Long-Awaited Return Has Gamers Marking Their Calendars
+
+Gaming, Star Wars Battlefront 2 (2017), Star Wars, Triple-A Games, PC
+
+Fri, 24 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/star-wars-battlefront-2026-return-gamers-react/
+
+Nearly a decade after the release of Battlefront 2, fans of the iconic shooter are preparing for another major release next month.
+---------
+
+# One Of The Best Shows Of The 20th Century Gets A Modern Update In Prime Video's 10-Part Detective Thriller
+
+Streaming TV, Masked Recs
+
+Fri, 24 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/batman-caped-crusader-prime-video-bruce-timm-modern-series/
+
+In an era saturated with superhero shows, one Prime Video series demands attention for its connection to a defining piece of television history.
+---------
+
+# 40 Years Later, This Standalone Graphic Novel Is Still The Gold Standard For Batman Comics
+
+Comics, Batman
+
+Fri, 24 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/best-standalone-batman-graphic-the-dark-knight-returns/
+
+Batman is one of the most legendary characters of all time, built on 87 years of phenomenal storytelling. Yet not every story is equal.
+---------
+
+# From Taxi Driver To Heat, This 59-Year-Old Movie Inspired Your Favorite Crime Thrillers
+
+Movies, Crime, Masked Recs
+
+Fri, 24 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/le-samourai-french-film-noir-crime-influences-taxi-driver-heat/
+
+Most of the crime thrillers made in the past six decades, from Taxi Driver and John Wick to Drive and Heat, were all inspired by this French film.
+---------
+
+# House Of The Dragon Officially Gets New Release On HBO Max Next Month
+
+TV, House of the Dragon, Game of Thrones
+
+Fri, 24 Apr 2026 21:55:21 GMT
+
+https://screenrant.com/house-of-the-dragon-asl-version-release-date/
+
+A new version of HBO's hit Game of Thrones prequel series House of the Dragon will arrive on HBO Max just one month before season 3 premieres.
+---------
+
+# Top 3 Must-Watch Netflix Shows This Weekend: April 24–26, 2026
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 24 Apr 2026 21:36:19 GMT
+
+https://screenrant.com/best-netflix-shows-to-watch-weekend-april-24-26-2026/
+
+Discover the three must-watch Netflix shows to binge this weekend, including Running Point, Stranger Things: Tales From '85, and Unchosen.
+---------
+
+# Netflix's 8-Part Sci-Fi Adaptation Feels Like It Was Made To Be Binged
+
+TV, Masked Recs, Netflix, 3 Body Problem
+
+Fri, 24 Apr 2026 21:33:19 GMT
+
+https://screenrant.com/3-body-problem-netflix-watch-one-go/
+
+Netflix has one underrated sci-fi series that could have been huge, but viewers need to binge it to truly understand the complex plot of the show.
+---------
+
+# Predator Is a Free Streaming Hit on Tubi
+
+Movies, Predator, Tubi
+
+Fri, 24 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/arnold-schwarzenegger-predator-sci-fi-success-tubi-april-2026/
+
+The original Predator and its first sequel, Predator 2, are dominating Tubi.
+---------
+
+# Street Fighter Sequel Officially Confirmed Before 2026 Movie Release
+
+Comics, Street Fighter
+
+Fri, 24 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/street-fighter-vs-the-valiant-universe-july-2026/
+
+Street Fighter fans may be waiting until October for the new theatrical release, but a surprising sequel was just announced that no one saw coming.
+---------
+
+# Mystique's Avengers: Doomsday Return Doesn't Make Sense
+
+Movies, Avengers: Doomsday, X-Men, Marvel Cinematic Universe
+
+Fri, 24 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/mystique-avengers-doomsday-return-makes-no-sense/
+
+One of Avengers: Doomsday's confirmed characters doesn't make sense, given her divisive history in 20th Century Fox's X-Men franchise.
+---------
+
+# The Most Popular Demon Slayer Characters
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Mugen Train, Demon Slayer the Movie: Mugen Train, shonen anime
+
+Fri, 24 Apr 2026 21:45:12 GMT
+
+https://www.cbr.com/demon-slayer-most-popular-characters/
+
+From Kyojuro Rengoku and Shinobu Kochou, to Tanjiro and Nezuko Kamado, Demon Slayer's greatest characters have won over thousands of fans.
+---------
+
+# 10 Greatest Modern Westerns of the Last 25 Years, Ranked
+
+Movies, Western
+
+Fri, 24 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/best-modern-western-movie-last-25-years-list/
+
+Gunfights, outlaws, and jaw-dropping cinematography define the best modern Westerns, including 3:10 to Yuma and Hell or High Water.
+---------
+
+# CBS' Tracker Makes History for Justin Hartley's Show
+
+TV, Tracker, CBS
+
+Fri, 24 Apr 2026 21:26:44 GMT
+
+https://www.cbr.com/cbs-tracker-season-3-colter-shaw-murder-case-make-history/
+
+Justin Hartley's outstanding CBS procedural, Tracker, makes history in Season 3, Episode 17, "Daughters," putting Colter Shaw in uncharted territory.
+---------
+
+# 10 Completed Anime That Failed to Stick the Landing
+
+Anime, The Promised Neverland, Darling in the Franxx, Erased, Platinum End
+
+Fri, 24 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/completed-anime-with-bad-terrible-endings/
+
+Even an excellent anime series can be ruined by a poorly executed ending that doesn't live up to fans' expectations.
+---------
+
+# All 10 Michael Jackson Albums, Ranked
+
+Music Features, Michael, Michael Jackson, Music, Biopic
+
+Fri, 24 Apr 2026 21:59:12 GMT
+
+https://collider.com/every-michael-jackson-album-ranked/
+
+Michael Jackson released a total of 10 studio albums in his lifetime, including classics like Thriller and Off the Wall... but which is the very best?
+---------
+
+# 3 Near-Perfect Prime Video Movies to Watch This Weekend
+
+Movie, Prime Video, Regretting You, The Conjuring: Last Rites, The Last Unicorn
+
+Fri, 24 Apr 2026 21:49:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-april-24/
+
+The Conjuring: Last Rites, Regretting You, and The Last Unicorn make our list of the best Prime Video movies to watch the weekend of April 24, 2026.
+---------
+
+# Only 5 Action Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Action, One Battle After Another, Everything Everywhere All at Once, Top Gun: Maverick
+
+Fri, 24 Apr 2026 21:35:12 GMT
+
+https://collider.com/action-movies-2020s-true-masterpieces/
+
+Long-awaited sequels like Top Gun: Maverick and grand epics like RRR are among the action movies from the 2020s that can be called true masterpieces.
+---------
+
+# Prime Video's Grittiest Fantasy Series Officially Returns in 2026, but There's a Big Catch
+
+TV News, Helluva Boss, Prime Video, Hazbin Hotel, Animation
+
+Fri, 24 Apr 2026 21:15:30 GMT
+
+https://collider.com/prime-video-fantasy-series-helluva-boss-season-3-release-window-part-1-fall-2026-part-2-2027/
+
+Prime Video's Helluva Boss officially returns in Fall 2026, but there's a catch for the fantasy series' biggest season yet.
+---------
+
+# Michael B. Jordan’s ‘Miami Vice’ Reboot Reveals First Plot Details
+
+Movie News, Miami Vice, Joseph Kosinski, Austin Butler, Michael B. Jordan
+
+Fri, 24 Apr 2026 21:11:21 GMT
+
+https://collider.com/miami-vice-85-plot-details-michael-b-jordan-austin-butler-crime-thriller-reboot-release-date-delay-may-19-2028/
+
+Michael B. Jordan's '80s crime thriller reboot has revealed its first plot details after a major delay.
+---------
+
+# 10 Fantasy Books That Are Better Than 'Harry Potter'
+
+Movie Lists, Harry Potter
+
+Fri, 24 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/fantasy-books-better-than-harry-potter/
+
+These literary adventures will take you to places far greater than Hogwarts.
+---------
+
+# 'The Mummy 4' Release Date Moved Up to October 2027
+
+Movie News, The Mummy 4, Brendan Fraser, Rachel Weisz
+
+Fri, 24 Apr 2026 21:45:56 GMT
+
+https://movieweb.com/the-mummy-4-release-date-2027/
+
+This is a promising sign that the Brendan Fraser and Rachel Weisz sequel is actually happening.
+---------
+
+# 'Michael' Ending & Why the Story Ends So Early, Explained
+
+Features, Michael
+
+Fri, 24 Apr 2026 21:14:56 GMT
+
+https://movieweb.com/michael-ending-explained/
+
+Find out what happens at the end of 'Michael', the controversial biopic about the King of Pop, Michael Jackson.
+---------
+
 # Spider-Man: Beyond The Spider-Verse's Plot Has A Perfect Solution Thanks To The Comics
 
 Movies, Spider-Man: Beyond the Spider-Verse, Ultimate Spider-Man (2024)
