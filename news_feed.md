@@ -1,3 +1,322 @@
+# Steam Hit 2024 Game Officially Free To Keep Until April 27
+
+Gaming, Steam
+
+Fri, 24 Apr 2026 04:00:27 GMT
+
+https://screenrant.com/steam-2024-game-free-download-keep-limited-time/
+
+Steam gamers have until April 27 to get their hands on yet another free game, which you can download and keep forever.
+---------
+
+# Miles Morales’ Next Spider-Man Era Has a Release Date: Everything We Know So Far
+
+Comics, Spider-Man, Marvel
+
+Fri, 24 Apr 2026 03:56:00 GMT
+
+https://screenrant.com/miles-morales-next-spider-man-era-release-date/
+
+Spider-Man is being treated to a continuation of one of his best new eras this summer, and its announcement is already turning quite a few heads.
+---------
+
+# All of Dragon Ball’s Main Villains From Weakest To Strongest
+
+Anime, Dragon Ball
+
+Fri, 24 Apr 2026 03:45:21 GMT
+
+https://screenrant.com/all-dragon-ball-villains-ranked-weakest-strongest/
+
+Dragon Ball has introduced numerous villains over the years who continue to compete to take the throne as the strongest in the franchise.
+---------
+
+# Daredevil: Born Again Season 3 Set Photos Reveal Kingpin’s Fate & New Look
+
+TV, Daredevil: Born Again
+
+Fri, 24 Apr 2026 03:44:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-set-photos-kingpin-fate/
+
+New Daredevil: Born Again season 3 set photos reveal a very different Kingpin, hinting at a major shift in the upcoming installment.
+---------
+
+# Mike Flanagan’s New Lovecraftian Movie Prepares Him For His Stephen King Show
+
+Streaming TV, The Dark Tower, Mike Flanagan, Stephen King, The Mist
+
+Fri, 24 Apr 2026 03:42:09 GMT
+
+https://screenrant.com/mike-flanagan-the-mist-lovecraftian-dark-tower/
+
+Mike Flanagan is working on a new Lovecraftian movie project, which will seemingly prepare him for his most ambitious Stephen King project to date.
+---------
+
+# Bleach Filler List: Every Episode You Can Skip
+
+Anime, Bleach
+
+Fri, 24 Apr 2026 03:01:19 GMT
+
+https://screenrant.com/bleach-filler-list-every-episode-skip/
+
+Bleach's original anime is infamous for how much filler it has, and here's a list of every filler episode and the few that are worth watching.
+---------
+
+# Silo Season 3’s Official Juliette Reveal Confirms Rebecca Ferguson’s Character Isn’t The Same
+
+Streaming TV, Silo, Apple TV
+
+Fri, 24 Apr 2026 03:01:18 GMT
+
+https://screenrant.com/silo-season-3-juliette-memory-loss/
+
+A new official story detail about Apple TV’s Silo season 3 confirms that Rebecca Ferguson’s Juliette is not the same character in the new installment.
+---------
+
+# A New Era For The MCU’s Street-Level Stories Has Finally Begun
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Fri, 24 Apr 2026 03:01:02 GMT
+
+https://screenrant.com/a-new-era-for-mcu-street-level-stories-jessica-jones-debut/
+
+The most recent episode of Daredevil: Born Again season 2 kicks off the MCU's brand-new era of epic street-level stories into high gear.
+---------
+
+# Prime Video's Upcoming Fourth Wing Adaptation Will Make House Of The Dragon Feel Small
+
+Streaming TV, Masked Recs
+
+Fri, 24 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/fourth-wing-amazon-high-fantasy-show-house-of-the-dragon-small/
+
+Prime Video is preparing its own high fantasy show to rival Game of Thrones, and it's all set to make House of the Dragon look small in comparison.
+---------
+
+# Netflix’s “Rambo Meets Reacher” Action Masterpiece Breaks The Genre’s Rules
+
+Movies, Rambo, Reacher, First Blood, Rebel Ridge
+
+Fri, 24 Apr 2026 02:15:49 GMT
+
+https://screenrant.com/netflix-rebel-ridge-rocky-reacher-comparison/
+
+One of Netflix’s best action movies not only combines Reacher and Rambo’s best story tropes and elements but also brilliantly bends the genre’s rules.
+---------
+
+# The Best Action Anime to Watch After Invincible Season 4
+
+Anime, Invincible, Jujutsu Kaisen, Cyberpunk: Edgerunners, Dragon Ball Z, To Be Hero X, My Hero Academia
+
+Fri, 24 Apr 2026 04:00:29 GMT
+
+https://www.cbr.com/best-action-anime-to-watch-after-invincible-season-4/
+
+After Invincible Season 4's massive cliffhanger ending, it's the perfect time to discover the best action series that the anime medium has to offer.
+---------
+
+# Escape from New York Remains a Masterpiece From Start to Finish
+
+Movies, Escape From New York, Sci-Fi
+
+Fri, 24 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/escape-from-new-york-best-dystopian-sci-fi-movie/
+
+Kurt Russell has been the focus of some amazing sci-fi films, but Escape from New York is one of his dystopian masterpieces.
+---------
+
+# Doom Must Stop His Own Past Self in This Official Marvel Preview
+
+Comics, Doctor Doom
+
+Fri, 24 Apr 2026 03:30:48 GMT
+
+https://www.cbr.com/doom-2099-marvel-exclusive-preview/
+
+In a CBR exclusive preview of next week's Doom 2099: Rage of Doom, see why Doom has to go back in time to stop his own past self
+---------
+
+# 10 Best Spider-Man: The Animated Series Episodes, Ranked
+
+TV, Spider-Man: The Animated Series, Animation, Marvel
+
+Fri, 24 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/spiderman-animated-series-best-episodes-ranked-list/
+
+With the upcoming continuation in Spider-Man '94, fans might want to dive back into a few of Spider-Man: The Animated Series' unforgettable stories.
+---------
+
+# 10 God-Tier Video Game Villains, Ranked
+
+Games, Video Games, Final Fantasy VII Remake, The Legend of Zelda: Majora's Mask, God of War Ragnarok, Mortal Kombat, Elden Ring
+
+Fri, 24 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/god-tier-video-game-villains/
+
+When fighting monsters isn't enough, these god-tier villains will put gamers in their place.
+---------
+
+# Why Dave Bautista’s Ocean's 11 Replacement, Heist, Failed
+
+Movies, Action, Prime Video
+
+Fri, 24 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/dave-bautista-oceans-11-replacement-heist-failed/
+
+Dave Bautista is crushing it on Prime Video, but his latest success sheds light on why his 2015 action thriller didn't quite launch him as a lead.
+---------
+
+# Prime Video's Invincible Officially Defeats The Boys on Streaming Charts
+
+TV, Invincible
+
+Fri, 24 Apr 2026 03:02:13 GMT
+
+https://www.cbr.com/invincible-surpasses-the-boys-season-5-prime-video/
+
+Homelander gets a big blow as another acclaimed series takes the lead on Prime Video's streaming charts.
+---------
+
+# CBS Confirms the End of Matlock Despite Season 3 Renewal
+
+TV, Matlock, CBS
+
+Fri, 24 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/cbs-ends-madeline-case-matlock-season-2-finale/
+
+Despite CBS renewing the series for Matlock Season 3, it's the end of the line for Kathy Bates' leading Madeline "Matty" Matlock character.
+---------
+
+# Transformers Revives Unicron's Fiercest Warrior for Brutal 40th Anniversary Release
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys
+
+Fri, 24 Apr 2026 02:48:58 GMT
+
+https://www.cbr.com/transformers-flame-toys-cyclonus-anniversary-reveal/
+
+40 years after his movie debut, a futuristic Decepticon jet gets a samurai makeover in an upcoming Transformers model kit.
+---------
+
+# Chainsaw Man Volume 24 Confirms Extra Pages of Manga
+
+Anime, Chainsaw Man
+
+Fri, 24 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/chainsaw-man-volume-24-manga-extra-pages-epilogue/
+
+Chainsaw Man Volume 24's page count has been revealed, and it leaves just enough room for the rumored final epilogue chapter or a Part 3 announcement.
+---------
+
+# 9 Forgotten Spy Shows That Have Aged Like Fine Wine
+
+TV, Archer, Alias, Nikita, The Little Drummer Girl
+
+Fri, 24 Apr 2026 04:08:12 GMT
+
+https://collider.com/forgotten-spy-shows-aged-like-fine-wine/
+
+Time has been kind to forgotten spy shows like FX's Archer, ABC's Alias, and USA Network's Covert Affairs, with their reputation improving with age.
+---------
+
+# HBO’s Underseen 6-Part Crime Masterpiece Is One of the Decade’s Best Thrillers
+
+TV Features, Claire Danes, Full Circle, Timothy Olyphant, HBO
+
+Fri, 24 Apr 2026 03:10:13 GMT
+
+https://collider.com/hbo-most-underseen-crime-masterpiece-full-circle-miniseries/
+
+Steven Soderbergh's twisty crime thriller Full Circle, starring Timothy Olyphant and Claire Danes, is a complex kidnapping heist.
+---------
+
+# Noah Wyle's 3-Part Campy Heist Show Is the Perfect Post-'Pitt' Binge
+
+TV Features, Leverage: Redemption, Noah Wyle, Prime Video, Leverage
+
+Fri, 24 Apr 2026 03:04:13 GMT
+
+https://collider.com/leverage-redemption-prime-video-heist-series-binge-the-pitt/
+
+Now that The Pitt Season 2 has come to an end, viewers have the chance to check out Noah Wyle in a different kind of series with Leverage: Redemption.
+---------
+
+# 8 Most Universally Beloved American Movies of All Time, Ranked
+
+Movie, The Shawshank Redemption, The Godfather, Casablanca, The Wizard of Oz
+
+Fri, 24 Apr 2026 03:03:12 GMT
+
+https://collider.com/most-universally-beloved-american-movies-all-time-ranked/
+
+From The Godfather to Jaws, these universally beloved American films earned timeless admiration, blending emotion, craft, and unforgettable moments.
+---------
+
+# Apple TV’s Answer to ‘Bosch’ and ‘The Lincoln Lawyer’ Has Officially Wrapped Season 2
+
+TV News, Presumed Innocent, Apple TV, Bosch, The Lincoln Lawyer
+
+Fri, 24 Apr 2026 02:30:13 GMT
+
+https://collider.com/apple-tv-bosch-meets-the-lincoln-lawyer-presumed-innocent-season-2-filming-wrap/
+
+Apple TV's bingeable sleeper hit series with DNA from Bosch and The Lincoln Lawyer gets the Season 2 update fans have been waiting for.
+---------
+
+# Disney's Cancelled 8-Part Star Wars Series Officially Becomes a Late-Night Sleeper Hit
+
+TV News, The Acolyte, Star Wars, Ahsoka, Andor
+
+Fri, 24 Apr 2026 02:16:12 GMT
+
+https://collider.com/star-wars-cancelled-series-the-acolyte-streaming-success-disney-plus-april-2026/
+
+Despite being cancelled in 2024 due to low viewership, high production costs, and fan backlash Star Wars' The Acolyte has found renewed interest.
+---------
+
+# Netflix’s 10/10 Romance Series Will Officially End on July 17
+
+Movie News, Heartstopper, Netflix, The Hunger Games: Sunrise on the Reaping, Finding Her Edge
+
+Fri, 24 Apr 2026 02:00:23 GMT
+
+https://collider.com/netflix-ya-adaptation-heartstopper-forever-movie-release-date-july-17-2026/
+
+The final movie adaptation of Alice Oseman's YA series is set to premiere on Netflix this summer, concluding the romantic story of Nick and Charlie.
+---------
+
+# 'Enola Holmes 3' Reportedly Lands Premiere Date on Netflix
+
+Movie News, Enola Holmes 3, Netflix
+
+Fri, 24 Apr 2026 03:57:45 GMT
+
+https://movieweb.com/enola-holmes-3-release-date/
+
+Millie Bobby Brown's 'Enola Holmes 3' is now set to debut on Netflix in July 2026.
+---------
+
+# 10 Forgotten Sci-Fi Thriller Movies That Are Perfect From Start to Finish
+
+Movie Lists, Sci-Fi, Thriller
+
+Fri, 24 Apr 2026 02:01:17 GMT
+
+https://movieweb.com/forgotten-sci-fi-thriller-movies-perfect/
+
+Sometimes, even perfect sci-fi thrillers fall into obscurity, becoming hidden genre gems that should be lauded classics.
+---------
+
 # Peacock's 10-Part Spy Series Beat James Bond At His Own Game
 
 Streaming TV, Peacock, James Bond, The Day of the Jackal
