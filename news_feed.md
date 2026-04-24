@@ -1,3 +1,234 @@
+# CBS Officially Seals Matlock's Fate After Season 2 Collapse (& It Makes Sense)
+
+Network TV, Matlock
+
+Fri, 24 Apr 2026 11:46:18 GMT
+
+https://screenrant.com/matlock-season-3-renewed-story-reboot-confirmed/
+
+Matlock season 2 finale ended with a major Wellbrexa case payoff two years in-the-making, but CBS already knows what's next for the show.
+---------
+
+# Netflix Will Officially Release Another K-Pop Movie This May
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 11:45:12 GMT
+
+https://screenrant.com/k-pops-movie-netflix-release-date-may-2026/
+
+After the animated film K-Pop Demon Hunters took the world by storm last year, Netflix is now set to release another K-Pop movie next month.
+---------
+
+# Fallout 5 Exclusivity Splits Gamers Following Official Announcement
+
+Gaming, Fallout, Fallout 5
+
+Fri, 24 Apr 2026 11:34:33 GMT
+
+https://screenrant.com/fallout-5-xbox-exclusive-speculation/
+
+Fallout 5 might be a long way away, but the release plans in its future could be very different from previous games in the series.
+---------
+
+# Xbox Game Pass Officially Unleashing 15 Brand-New Free Games
+
+Gaming, Xbox Game Pass, PC
+
+Fri, 24 Apr 2026 11:27:46 GMT
+
+https://screenrant.com/xbox-game-pass-15-new-free-day-one-games/
+
+Xbox Game Pass subscribers have fifteen new free games headed their way soon, with some exciting original titles and a few hidden gems.
+---------
+
+# Cyberpunk 2077: Welcome To Night City Is A Substantial New Experience
+
+Gaming, Cyberpunk 2077
+
+Fri, 24 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-welcome-to-night-city-mod-collection/
+
+Explore over 200 mods in the Welcome to Night City collection for Cyberpunk 2077, adding realism, quality-of-life improvements, and more.
+---------
+
+# Binge Marvel’s X-Men '97 in Under 5 Hours Before Season 2 Drops This Summer
+
+TV, X-Men '97, Marvel, Disney+, Animation
+
+Fri, 24 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/xmen-97-5-hour-binge-before-season-2/
+
+The animated X-Men are about to come back again, and now's the perfect time to revisit the first season of their nostalgic Disney+ revival show.
+---------
+
+# Frieren: Beyond Journey's End Comes to AFK Journey RPG on May 1
+
+Anime, Frieren: Beyond Journey's End, RPG
+
+Fri, 24 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/frieren-afk-journey-crossover-may-1-release/
+
+Frieren and Himmel the Hero leave the anime behind to embark on an exciting new journey by way of their first official RPG video game debut.
+---------
+
+# 10 Best Spider-Man Friendships That Fans Still Love
+
+Comics, Spider-Man
+
+Fri, 24 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/best-spider-man-friendships-ranked/
+
+Spider-Man's ensemble has boosted him throughout his historic comic run and these friendships are undeniable.
+---------
+
+# 10 Most Universally Beloved Animated Movies of All Time, Ranked
+
+Movie, Animation, Spirited Away, Toy Story, Spider-Man: Into The Spider-Verse
+
+Fri, 24 Apr 2026 11:45:12 GMT
+
+https://collider.com/most-universally-beloved-animated-movies-all-time-ranked/
+
+From Spirited Away to Toy Story, these beloved animated films capture emotion, wonder, and timeless storytelling at its finest.
+---------
+
+# 10 Greatest Hard Sci-Fi Movie Masterpieces of All Time
+
+Movie, Science Fiction, 2001: A Space Odyssey, The Martian, Arrival
+
+Fri, 24 Apr 2026 11:36:12 GMT
+
+https://collider.com/best-hard-sci-fi-movie-masterpieces-all-time/
+
+Hard sci-fi focuses on scientific accuracy, and movies like Primer and Arrival prove that this grounded approach can still lead to great storytelling.
+---------
+
+# Alan Ritchson's Forgotten 2024 Favorite With a Near-Perfect RT Score Quietly Returns to Streaming Charts
+
+Movie News, Alan Ritchson, Ordinary Angels, Hilary Swank, House of David
+
+Fri, 24 Apr 2026 11:30:12 GMT
+
+https://collider.com/alan-ritchson-forgotten-movie-ordinary-angels-hilary-swank-streaming-success-peacock-april-2026/
+
+Alan Ritchson and Hilary Swank's faith-based film Ordinary Angels is staging a streaming comeback two years after its theatrical release.
+---------
+
+# 10 Forgotten '80s Sci-Fi Shows That Nobody Remembers Today
+
+TV, 1980s, Sci-Fi, Centurions, The Adventures of the Galaxy Rangers
+
+Fri, 24 Apr 2026 11:22:13 GMT
+
+https://collider.com/forgotten-80s-sci-fi-shows/
+
+Discover forgotten '80s sci-fi shows that are still great today and deserve a new audience, from Galaxy Rangers to Centurions.
+---------
+
+# 10 Horror Movies That Are Perfectly Written
+
+Movie, Get Out, Horror, An American Werewolf In London, The Exorcist
+
+Fri, 24 Apr 2026 11:21:12 GMT
+
+https://collider.com/horror-movies-perfectly-written/
+
+Acclaimed horror movies like Get Out, Misery, and The Exorcist all came from some of the most perfect screenplays in the history of the genre.
+---------
+
+# 10 Most Underrated Classic Rock Songs of All Time, Ranked
+
+Music Features, George Harrison, Elton John, Queen, Rock
+
+Fri, 24 Apr 2026 11:15:12 GMT
+
+https://collider.com/classic-rock-songs-underrated/
+
+"Wah-Wah" by George Harrison, "Transcendence" by Santana, and "Baker St. Muse" by Jethro Tull are all among the most underrated classic rock songs.
+---------
+
+# The Sci-Fi Crossover Movie Critics Buried Is Still Pulling Audiences Back on HBO Max
+
+Movie Features, Alien vs. Predator, AVP: Alien vs. Predator, Alien, HBO Max
+
+Fri, 24 Apr 2026 11:07:12 GMT
+
+https://collider.com/alien-vs-predator-hbo-max-infamous-crossover-trending/
+
+Alien vs. Predator is trending on HBO Max, reputation and all.
+---------
+
+# Gore Verbinski’s Bonkers Sci-Fi Movie Is a Streaming Hit After Box Office Disappointment
+
+Movie News, Gore Verbinski, Good Luck, Have Fun, Don't Die, Sam Rockwell, Juno Temple
+
+Fri, 24 Apr 2026 11:00:13 GMT
+
+https://collider.com/gore-verbinski-sci-fi-flop-good-luck-have-fun-dont-die-streaming-success-itunes-amazon-april-2026/
+
+Gore Verbinski's directorial comeback — Good Luck, Have Fun, Don't Die — has passed a major streaming milestone after underperforming theatrically.
+---------
+
+# Paul McCartney's 1977 Track Became the Best-Selling Single in British History, Beating The Beatles
+
+Music Features, Paul McCartney, The Beatles, Rock, Music
+
+Fri, 24 Apr 2026 11:00:13 GMT
+
+https://collider.com/paul-mccartney-mull-of-kintyre-best-selling-single/
+
+Paul McCartney's heartfelt ode to Scotland, became the biggest-selling single in British history, surpassing even The Beatles' most iconic hits.
+---------
+
+# Jorma Taccone Reveals the 'Hot Rod' Easter Egg He Regrets Including in His New Dark Comedy
+
+Exclusives, Jorma Taccone, Over Your Dead Body, Hot Rod, Overlook Film Festival
+
+Fri, 24 Apr 2026 11:00:13 GMT
+
+https://collider.com/over-your-dead-body-jorma-taccone-hot-rod-easter-egg/
+
+Jorma Taccone discusses his reluctance to direct Over Your Dead Body, the Hot Rod joke he may regret, and balancing the movie's dark comedy tones.
+---------
+
+# 'Daredevil: Born Again' Season 3 Set Photos Reveal Kingpin's Fate & Bold New Look
+
+TV News, Daredevil: Born Again, Vincent D'Onofrio
+
+Fri, 24 Apr 2026 11:36:40 GMT
+
+https://movieweb.com/daredevil-born-again-season-3-set-photos-kingpin-new-look/
+
+'Daredevil: Born Again' Season 3 set photos have revealed the fate of Vincent D'Onofrio's Wilson Fisk, as the Kingpin star sports a bold new look.
+---------
+
+# Taylor Sheridan's Best Neo-Western 'Hell or High Water' Leaves Netflix in May
+
+Movie News, Coming/Leaving Streaming, Hell or High Water, Taylor Sheridan, Action, Western, Thriller
+
+Fri, 24 Apr 2026 11:30:18 GMT
+
+https://movieweb.com/hell-or-high-water-leaving-netflix-may-2026/
+
+At 97%, the film is Sheridan's highest-rated project on Rotten Tomatoes.
+---------
+
+# 'Stranger Things' Officially Replaces Max With the Biggest Prequel Retcon
+
+Features, Stranger Things: Tales from '85, Netflix, Stranger Things
+
+Fri, 24 Apr 2026 11:01:16 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-nikki-repeats-max-arc/
+
+'Stranger Things: Tales from '85,' premiered on Netflix on April 23, 2026 and features a new character who repeats Max Mayfield's (Sadie Sink) arc.
+---------
+
 # Steam Makes Beloved Fantasy Game Completely Free For 72 Hours
 
 Gaming, Steam
