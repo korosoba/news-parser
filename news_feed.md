@@ -1,3 +1,245 @@
+# Final Fantasy 14 Fans Torn On Massive Impending Job Overhaul
+
+Gaming, Final Fantasy 14 (2010), Triple-A Games
+
+Fri, 24 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/final-fantasy-14-evolved-combat-fan-reaction/
+
+Square Enix announced a brand-new expansion for Final Fantasy 14 this week, but it'll come with some pretty stark changes for a lot of aspects.
+---------
+
+# Chainsaw Man Confirms New Content in Final Release: Here's Everything We Know
+
+Anime, Chainsaw Man
+
+Fri, 24 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/chainsaw-man-manga-final-release-new-content/
+
+Chainsaw Man Volume 24 officially confirms that the manga's published finale will have new content, and here is everything we know about it.
+---------
+
+# 3 Years Before Breaking Bad, Mary-Louise Parker Was The Female Walter White
+
+Classic TV, Weeds
+
+Fri, 24 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/breaking-bad-mary-louise-parker-female-walter-white/
+
+Walter White was, in fact, not the first suburban parent on television to join the criminal drug world in an effort to support his family.
+---------
+
+# Is The Mandalorian & Grogu Teasing Live-Action Clone Wars Flashbacks?
+
+Star Wars, The Mandalorian and Grogu, Star Wars: The Clone Wars
+
+Fri, 24 Apr 2026 22:36:58 GMT
+
+https://screenrant.com/mandalorian-and-grogu-teasing-live-action-clone-wars-flashbacks-rotta/
+
+An exciting new behind-the-scenes Star Wars reveal may be teasing the appearance of more live-action Clone Wars flashbacks in The Mandalorian & Grogu.
+---------
+
+# Prime Video's Upcoming Sci-Fi Show Reinvents One Of The Greatest Fictional Universes Of All Time
+
+Streaming TV, Masked Recs
+
+Fri, 24 Apr 2026 22:31:19 GMT
+
+https://screenrant.com/spider-noir-amazon-prime-show-reinvents-spider-man-universe/
+
+Amazon is no stranger to bold sci-fi projects and experimental shows, but one upcoming release is going to be among the platform's most daring yet.
+---------
+
+# 5 Best Horror Movies Turning 50 In 2026, Ranked
+
+Movies, Horror, Ranking
+
+Fri, 24 Apr 2026 22:25:19 GMT
+
+https://screenrant.com/best-horror-movies-turning-50-ranked/
+
+With the horror movies of 1976 turning 50 this year, which of the classic fright flicks is the best of the best?
+---------
+
+# Matthew McConaughey & Austin Butler Officially Starring In New Western Thriller From Oldboy Director
+
+Movies, Matthew McConaughey, Austin Butler
+
+Fri, 24 Apr 2026 22:20:54 GMT
+
+https://screenrant.com/park-chan-wook-brigands-rattlecreek-western-matthew-mcconaughey-austin-butler/
+
+Matthew McConaughey and Austin Butler join a star-studded cast for a new Western film by the director of the critically acclaimed film Old Boy.
+---------
+
+# HBO Max’s Controversial 5-Part Psychological Thriller Series Returns As Global Smash Hit
+
+TV, Masked Recs
+
+Fri, 24 Apr 2026 22:20:30 GMT
+
+https://screenrant.com/the-idol-hbo-max-streaming-success-april-2026/
+
+One of HBO Max's most controversial TV shows has returned as a major global streaming hit, and this psychological thriller is as intense as it gets.
+---------
+
+# Vampire Crawlers - All Characters And How To Unlock Them
+
+Gaming, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Fri, 24 Apr 2026 22:20:10 GMT
+
+https://screenrant.com/vampire-crawlers-all-characters-and-how-to-unlock-them/
+
+There are quite a few characters to use in Vampire Crawlers, each offering their own unique boons for your dungeon runs.
+---------
+
+# Chicago Fire Season 15 Confirms Major Shakeup With OG Exit
+
+TV, Chicago Fire
+
+Fri, 24 Apr 2026 22:13:11 GMT
+
+https://screenrant.com/chicago-fire-season-15-andrea-newman-showrunner-exit-replacement-confirmed/
+
+Chicago Fire season 15 is facing a big shake-up behind the scenes as the series' original writer and producer and recent showrunner confirms her exit.
+---------
+
+# Demon Slayer Ranked No. 1 in New Must-Watch Anime Ranking Ahead of Final Battle
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Case Closed, The Apothecary Diaries
+
+Fri, 24 Apr 2026 23:02:12 GMT
+
+https://www.cbr.com/demon-slayer-top-ranking-must-watch-anime/
+
+A major Japanese ranking site determines that Demon Slayer holds definitive 'must-watch' status thanks to the first Infinity Castle film.
+---------
+
+# The Best Sci-Fi Movie From Every Year of The 1990s
+
+Movies, Sci-Fi, Jurassic Park, The Matrix
+
+Fri, 24 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/best-sci-fi-movie-every-year-1990s/
+
+The 1990s was an era of experimentation for science fiction, producing some of the greatest stories the genre has ever seen.
+---------
+
+# Michael Review: Michael Jackson Biopic Glosses Over the King of Pop’s Complicated Legacy
+
+Movies, Michael
+
+Fri, 24 Apr 2026 22:16:53 GMT
+
+https://www.cbr.com/michael-movie-review/
+
+Jaafar Jackson shines in a hollow musical drama that recreates iconic performances while dodging harder truths behind the artist's fame and family.
+---------
+
+# 10 Nintendo Wii Games That Are 10/10, No Notes
+
+Games, Video Games, Nintendo Wii, Nintendo, super mario bros, The Legend of Zelda
+
+Fri, 24 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/perfect-nintendo-wii-games/
+
+Grab your Wii Remotes and get ready to play some of the system's absolutely perfect games.
+---------
+
+# Pixar's Finding Nemo Receives Unexpected Sequel Update
+
+Movies, Finding Nemo, Finding Dory
+
+Fri, 24 Apr 2026 22:13:29 GMT
+
+https://www.cbr.com/finding-nemo-dory-sequel-ellen-degeneres/
+
+A beloved Pixar classic is getting a new sequel, but with a catch.
+---------
+
+# Alan Ritchson's Netflix Sci-Fi Thriller Reaches Colossal Streaming Milestone
+
+Movie News, War Machine, Alan Ritchson, Netflix, Sci-Fi
+
+Fri, 24 Apr 2026 23:00:12 GMT
+
+https://collider.com/netflix-alan-ritchson-sci-fi-thriller-war-machine-125-million-views-streaming-success-april-2026/
+
+Netflix's best sci-fi thriller of the year, Alan Ritchson's War Machine, has already earned over 125 million views since arriving on the platform.
+---------
+
+# 10 Greatest Third Chapters in Movie Trilogies, Ranked
+
+Movie, The Lord of the Rings: The Return of the King, Return of the Jedi, The Dark Knight Rises, Indiana Jones and the Last Crusade
+
+Fri, 24 Apr 2026 22:48:12 GMT
+
+https://collider.com/movie-trilogies-best-third-chapters-ranked/
+
+The Lord of the Rings: The Return of the King, The Dark Knight Rises, and Return of the Jedi are all among the best finales to movie trilogies.
+---------
+
+# 10 Cult Classic Sci-Fi Shows That Nobody Remembers Today
+
+TV, Sci-Fi, Fringe, Lexx, Sense8
+
+Fri, 24 Apr 2026 22:44:12 GMT
+
+https://collider.com/forgotten-cult-classic-sci-fi-shows/
+
+Discover cult classic sci-fi shows that have faded into obscurity, but still offer fascinating storytelling ahead of their time, from Fringe to Lexx.
+---------
+
+# After 14 Years, 'Chicago Fire' Is Officially Losing a Major Player
+
+TV News, Chicago Fire, NBC, One Chicago, Drama
+
+Fri, 24 Apr 2026 22:42:29 GMT
+
+https://collider.com/chicago-fire-executive-producer-showrunner-andrea-newman-exit-victor-teran-replacement/
+
+After 14 seasons as an EP and the last few as showrunner, Andrea Newman has made a shocking exit from Chicago Fire.
+---------
+
+# Skip 'Michael' and Watch This 10/10 Remake of a Hollywood Classic on Netflix Instead
+
+Movie Features, Michael, Michael Jackson's Thriller, The Wiz, Netflix
+
+Fri, 24 Apr 2026 22:19:12 GMT
+
+https://collider.com/the-wiz-movie-wizard-of-oz-remake-streaming-netflix/
+
+The Wiz, a bold musical reimagining of The Wizard of Oz starring Michael Jackson as the Scarecrow, is now streaming on Netflix.
+---------
+
+# Guy Ritchie's 'Mobland' Is Paramount's Answer to Taylor Sheridan's Exit
+
+Features, MobLand, Taylor Sheridan, Guy Ritchie, Paramount Plus, Thriller
+
+Fri, 24 Apr 2026 23:00:16 GMT
+
+https://movieweb.com/mobland-guy-ritchie-taylor-sheridan-paramount-secret-weapon/
+
+Paramount has a gem on its hands with Guy Ritchie's 'MobLand', the perfect alternative to any Taylor Sheridan show and a great "Dad" TV title.
+---------
+
+# 'Over Your Dead Body' Director Jorma Taccone Explains "Sink or Swim" Ending
+
+Movie News, Over Your Dead Body, Jorma Taccone
+
+Fri, 24 Apr 2026 22:08:35 GMT
+
+https://movieweb.com/over-my-dead-body-ending-explained-jorma-taccone/
+
+The film is a remake of a 2021 Norwegian movie that earned high praise from critics.
+---------
+
 # Star Wars’ Cancelled Prequel Series Sees Surprise US Streaming Resurgence
 
 TV, The Acolyte, Star Wars
