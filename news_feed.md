@@ -1,3 +1,201 @@
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A Bestselling Book Adaptation)
+
+Movies, Prime Video, Recommendation
+
+Fri, 24 Apr 2026 20:04:49 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-april-25/
+
+Prime Video subscribers will find that the best movies to watch this weekend are a tragic love story, a terrifying horror, and an action thriller.
+---------
+
+# Final Fantasy 14 Switch 2 Officially Dated, But There's A Catch
+
+Gaming
+
+Fri, 24 Apr 2026 20:01:08 GMT
+
+https://screenrant.com/final-fantasy-14-switch-2-release-window-details/
+
+Fans have been wanting Final Fantasy 14 to hit Switch for years, and now it's finally coming to Switch 2, with a full release window.
+---------
+
+# Rocket Raccoon Special Explores Life Before Guardians Of The Galaxy, Per Marvel
+
+Marvel Comics, Rocket Raccoon, Guardians of the Galaxy, Marvel
+
+Fri, 24 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/guardians-galaxy-spinoff-rocket-raccoon-new-series/
+
+Marvel officially announces a Rocket Raccoon spinoff mini-series for Summer 2026, delving into the cosmic hero's past and present adventures.
+---------
+
+# 2026's New Evil Dead Movie Keeps The $303 Million Franchise's Best Trend Alive
+
+Movies, Evil Dead, Evil Dead Burn
+
+Fri, 24 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/evil-dead-burn-continue-reboot-standalone/
+
+The franchise has consistently impressed critics for decades, but how will the Evil Dead Burn fare with its whole new setting and story setup?
+---------
+
+# Desert Warrior Review: An Awkward Epic That Wants So Badly To Be Cool
+
+New Movies, Desert Warrior
+
+Fri, 24 Apr 2026 19:58:59 GMT
+
+https://screenrant.com/desert-warrior-movie-review/
+
+Anthony Mackie’s historical action movie wants to channel the mythic feeling of the best Westerns, but struggles to be engaging at all.
+---------
+
+# The Devil Wears Prada 2 Fuels Racism Backlash
+
+Movies, The Devil Wears Prada 2
+
+Fri, 24 Apr 2026 19:51:37 GMT
+
+https://screenrant.com/devil-wear-prada-2-asian-stereotype-racism-backlash/
+
+The Devil Wears Prada 2 arrives in theaters soon, but the highly anticipated sequel is starting to face some backlash over an allegedly racist clip.
+---------
+
+# Director David Lowery Explains Mother Mary's Hidden Backstory
+
+Interviews, Mother Mary, Anne Hathaway
+
+Fri, 24 Apr 2026 19:45:34 GMT
+
+https://screenrant.com/anne-hathaway-mother-mary-backstory-hidden-why-david-lowery/
+
+Director David Lowery discusses the intentional ambiguity surrounding Mother Mary's backstory, focusing on the film's themes and creative process.
+---------
+
+# Wednesday Season 3 Return Addressed By Addams Family Veteran After Season 2 Guest Role
+
+TV, Comic Con Experience (CCXP), Wednesday
+
+Fri, 24 Apr 2026 19:41:21 GMT
+
+https://screenrant.com/wednesday-season-3-christopher-lloyd-return/
+
+After a popular season 2 guest role, one Addams Family veteran addresses his return for Wednesday season 3 as the Netflix show eyes its return.
+---------
+
+# Star Wars: All 16 Inquisitors In Canon Explained
+
+Streaming TV, Star Wars
+
+Fri, 24 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/star-wars-every-imperial-inquisitor-canon-explained/
+
+Star Wars' Inquisitors were Darth Vader's elite death squad of Jedi-killing dark side users. Who were these Imperial agents and what were their fates?
+---------
+
+# Disney's Hexed Is The Perfect 'Owl House' Replacement
+
+Movies, The Owl House, Hexed, Disney
+
+Fri, 24 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/disneys-hexed-secretly-perfect-owl-house-replacement/
+
+Following Disney's latest announcement for its next animated feature, fans are noticing some similarities to its magical predecessor, The Owl House.
+---------
+
+# Gina Carano Shares Surprising Update on Star Wars Return
+
+TV, The Mandalorian, Star Wars, gina carano
+
+Fri, 24 Apr 2026 19:58:17 GMT
+
+https://www.cbr.com/gina-carano-star-wars-return-update/
+
+The Mandalorian's Gina Carano speaks about returning to Star Wars five years after her controversial firing.
+---------
+
+# The Boys Creator Confirms How Supernatural Is Connected To The Superhero Series
+
+CBR Exclusives, The Boys, Supernatural
+
+Fri, 24 Apr 2026 19:27:09 GMT
+
+https://www.cbr.com/eric-kripke-the-boys-supernatural-connection-confirmed/
+
+Salt and burn, baby.
+---------
+
+# 10 Greatest Epic Fantasy Movies of All Time
+
+Movie, Fantasy, The Lord of the Rings: The Return of the King, Star Wars: Episode V - The Empire Strikes Back, The Northman
+
+Fri, 24 Apr 2026 19:29:13 GMT
+
+https://collider.com/best-epic-fantasy-movies-all-time/
+
+The all-time best epic fantasy movies, like Legend and Star Wars, marry a powerful and compelling hero's journey with a sweeping and grandiose scale.
+---------
+
+# Prime Video's Near-Perfect Sci-Fi Spin-Off Has Officially Been Cancelled After 2 Seasons
+
+TV News, Gen V, The Boys, Vought Rising, Prime Video
+
+Fri, 24 Apr 2026 19:28:05 GMT
+
+https://collider.com/prime-video-sci-fi-the-boys-spin-off-gen-v-season-3-cancelled/
+
+Prime Video has made a shocking decision regarding one of it's best sci-fi sagas in spite of The Boys and Invincible's success.
+---------
+
+# Netflix's 'Pluto' Sci-Fi Noir Thriller Is a Masterpiece Anime to Binge-Watch
+
+Features, Pluto, Netflix, Streaming Recommendations, Sci-Fi
+
+Fri, 24 Apr 2026 20:00:16 GMT
+
+https://movieweb.com/pluto-best-sci-fi-thriller-netflix-binge-watch/
+
+Science fiction fans need to binge-watch Netflix's anime adaptation of the Astro Boy-adjacent 'Pluto' this weekend.
+---------
+
+# Michael Jackson's Family Tree, Explained & Where They All Are Now
+
+Movie Lists, Michael
+
+Fri, 24 Apr 2026 20:00:16 GMT
+
+https://movieweb.com/michael-jackson-family-tree-explained/
+
+The Jackson family is widely regarded as one of the most iconic, influential, and prolific dynasties in entertainment history.
+---------
+
+# Suspect Who Allegedly Leaked 'The Legend of Aang: The Last Airbender' Arrested
+
+Movie News, The Legend of Aang: The Last Airbender, Paramount Plus
+
+Fri, 24 Apr 2026 19:51:07 GMT
+
+https://movieweb.com/avatar-last-airbender-leak-suspect-arrested/
+
+An arrest has been made as part of the investigation into how 'The Legend of Aang: The Last Airbender' was leaked before its release.
+---------
+
+# 'Gen V' Canceled by Prime Video Ahead of 'The Boys' Season 5 Finale
+
+TV News, Gen V, The Boys
+
+Fri, 24 Apr 2026 19:43:56 GMT
+
+https://movieweb.com/gen-v-canceled-prime-video/
+
+'Gen V' has not been picked up for a Season 3 by Prime Video, ending 'The Boys' spin-off after only two seasons.
+---------
+
 # 3 Best Movies To Watch On Netflix This Weekend (#1 Is A New Star-Studded Action Thriller)
 
 Movies, Netflix, Recommendation
