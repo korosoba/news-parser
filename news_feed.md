@@ -1,3 +1,278 @@
+# Genshin Impact Drops New Code & Free Primogems During Snezhnaya Livestream
+
+Gaming, Genshin Impact, PC, Live Service Games
+
+Fri, 24 Apr 2026 13:01:37 GMT
+
+https://screenrant.com/genshin-impact-snezhnaya-livestream-code-free-primogems/
+
+In addition to the teasers for the new content coming soon with Snezhnaya, HoYoverse also revealed a new code with free Primogems for Genshin Impact.
+---------
+
+# This Controversial Influencer Might Be Ruining Manga For Everyone
+
+Anime, Pokemon, Logan Paul
+
+Fri, 24 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/logan-paul-pokemon-graded-manga-ruined-hobby/
+
+Reading manga might be getting harder.
+---------
+
+# Widow’s Bay Review: Matthew Rhys’ Horror Show Proves Apple TV Is Still The King Of Suspenseful ComedyWidow’s Bay Review: Matthew Rhys’ Horror Show Proves Apple TV Is Still The King Of Suspenseful Comedy
+
+Streaming TV, Widow's Bay
+
+Fri, 24 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/widows-bay-tv-review/
+
+Matthew Rhys' Widow's Bay continues Apple TV's legacy of exceptional, suspenseful thrillers but with a delicious, ghost-story-horror twist.
+---------
+
+# Ike Barinholtz's Bennie Is The Hilarious Gem Of Running Point Season 2
+
+Streaming TV, Running Point
+
+Fri, 24 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/running-point-season-2-ike-barinholtz-cameo-perfect/
+
+Ike Barinholtz's character, Bennie, adds a near-perfect comedic touch to Running Point Season 2, enriching the show's exploration of family dynamics.
+---------
+
+# AMC's New 'Silicon Valley Meets Succession' Dark Comedy Series Is Getting Better And Better
+
+TV, Masked Recs
+
+Fri, 24 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/the-audacity-gets-better-amc-dark-comedy-series/
+
+AMC's new dark comedy series described as "Silicon Valley meets Succession" is getting better and better as new episodes get released every week.
+---------
+
+# Clair Obscur New Anniversary DLC Officially Announced, Available Now
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Fri, 24 Apr 2026 12:58:45 GMT
+
+https://screenrant.com/clair-obscur-first-anniversary-dlc-announcement/
+
+Clair Obscur: Expedition 33 just turned one year old, and Sandfall Interactive are giving fans some brand-new content, available to claim now.
+---------
+
+# Beth & Rip Spinoff Fires Showrunner After Reported Clashes With OG Yellowstone Stars
+
+TV, Dutton Ranch
+
+Fri, 24 Apr 2026 12:52:08 GMT
+
+https://screenrant.com/dutton-ranch-yellowstone-spinoff-showrunner-chad-feehan-fired/
+
+Dutton Ranch will be getting a new showrunner, as Taylor Sheridan reportedly steps in to make a change and side with Yellowstone's original stars.
+---------
+
+# Halo 7 Gameplay Leak Divides Fans In A Big Way
+
+Gaming, Halo
+
+Fri, 24 Apr 2026 12:51:29 GMT
+
+https://screenrant.com/halo-7-extraction-shooter-leaks/
+
+News has emerged out of the development on the next Halo game, and it's safe to say that fans are divided on the approach.
+---------
+
+# Nathan Fillion's 8-Season Crime Thriller Gets Rave Spinoff Pilot Update As Series Order Wait Continues
+
+Network TV, The Rookie
+
+Fri, 24 Apr 2026 12:40:42 GMT
+
+https://screenrant.com/the-rookie-north-spinoff-pilot-update-jay-ellis/
+
+An in-development spinoff of Nathan Fillion's hit 8-season crime show gets rave comments about its pilot as ABC continues to evaluate its potential.
+---------
+
+# Godzilla Steals Wolverine's Powers in New Marvel Crossover
+
+Comics, Godzilla
+
+Fri, 24 Apr 2026 12:39:37 GMT
+
+https://screenrant.com/godzilla-redesign-new-images-claws-wolverine-marvel/
+
+The King of Monsters has an unbelievable new weapon, as fresh images of Godzilla reveal the mighty kaiju is now wielding gigantic Wolverine claws.
+---------
+
+# 5 Forgotten Gangster Movies That Are Amazing From Start to Finish
+
+Movies, Crime, Carlito's Way, Miller's Crossing
+
+Fri, 24 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/underrated-gangster-movies-amazing-start-to-finish/
+
+The gangster genre is full of iconic films from across film history, but these five forgotten gems are deserving of so much more recognition today.
+---------
+
+# Peacock's The Day of the Jackal Revived the Genre's Greatest Assassin Story
+
+TV, Thriller, Peacock, The Day of the Jackal
+
+Fri, 24 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/peacock-day-of-the-jackal-revived-spy-genre-greatest-assassin-story/
+
+Peacock’s Day of the Jackal brings assassin stories back to old-school genre basics with slow tension and a focus on precision and planning.
+---------
+
+# Anti-AI Tech Thriller Comic Predicts a Haunting Future For A Digital Age
+
+CBR Exclusives, Sci-Fi, comics
+
+Fri, 24 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/dren-productions-ones-and-zeroes-comic-release-date-confirmed/
+
+AI is the top of the food chain in this new, upcoming sci-fi comic book series.
+---------
+
+# Robert Aramayo Reveals What He Relied on Most for His Flawless ‘I Swear’ Performance
+
+Exclusives, I Swear, Robert Aramayo, Maxine Peake, The Lord of the Rings: The Rings of Power
+
+Fri, 24 Apr 2026 13:00:13 GMT
+
+https://collider.com/i-swear-tourette-syndrome-movie-robert-aramayo-interview/
+
+Robert Aramayo discusses I Swear, winning Best Actor at the BAFTA Awards, learning about Tourette Syndrome, and playing Elrond in Rings of Power.
+---------
+
+# Matthew Rhys' Horror Series 'Widow's Bay' Is Apple TV's Weirdest, Boldest Show Yet | Review
+
+TV Reviews, Widow's Bay, Horror, Matthew Rhys, Apple TV
+
+Fri, 24 Apr 2026 13:00:13 GMT
+
+https://collider.com/widows-bay-review-apple-tv-matthew-rhys-katie-dippold/
+
+Widow's Bay, starring Matthew Rhys, blends workplace comedy and horror for a truly unique series on Apple TV.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Weekend
+
+TV, Stranger Things: Tales from '85, Running Point, Dirty John, Netflix
+
+Fri, 24 Apr 2026 12:41:12 GMT
+
+https://collider.com/netflix-shows-binge-april-24/
+
+Stranger Things: Tales from '85, Running Point, and Dirty John make up our list of the best Netflix shows to watch the weekend of April 24, 2026.
+---------
+
+# 10 Best Crowd-Pleasing Westerns, Ranked
+
+Movie, The Good, the Bad and the Ugly, Dances With Wolves, Butch Cassidy and the Sundance Kid, Tombstone
+
+Fri, 24 Apr 2026 12:23:12 GMT
+
+https://collider.com/best-crowd-pleasing-westerns-ranked/
+
+Some of the best crowd-pleasing Westerns of all time include classics like The Good, the Bad and the Ugly, Dances with Wolves, and Rio Bravo.
+---------
+
+# Robert De Niro's Deadly Request for This 10/10 War Thriller Made the Movie Even More Terrifying
+
+Movie Features, The Deer Hunter, Robert De Niro, Michael Cimino, War
+
+Fri, 24 Apr 2026 12:20:12 GMT
+
+https://collider.com/the-deer-hunter-robert-de-niro-performance-russian-roulette-scene/
+
+Robert De Niro asked for a live bullet to be put in his gun while filming The Deer Hunter, making the Russian Roulette scene even more terrifying.
+---------
+
+# ‘Euphoria’ Stars Joke Sam Levinson Should “Run Off and Join the Circus” Next [Exclusive]
+
+TV News, Euphoria, Sam Levinson, HBO Max, Zendaya
+
+Fri, 24 Apr 2026 12:05:12 GMT
+
+https://collider.com/euphoria-season-3-sam-levinson-future-plans-chloe-cherry-martha-kelly/
+
+Euphoria stars Chloe Cherry and Martha Kelly share what they think Sam Levinson is going to be doing once the HBO series is over.
+---------
+
+# Euphoria's Biggest Flirt, Most Likely to Laugh Mid-take and Active in the Group Chat | Superlatives
+
+TV, Euphoria
+
+Fri, 24 Apr 2026 12:01:12 GMT
+
+https://collider.com/video/euphoria-s-biggest-flirt-most-likely-to-laugh-mid-take-and-active-in-the-group-chat-superlatives/
+
+For it's third (and possibly final???) season, Euphoria went all out. Chloe Cherry and Martha Kelly give us the scoop on behind the scenes goofs, who tried to get whose number and what award Chloe would give to herself.
+---------
+
+# Michael Jackson Controversy Reignites as ‘Leaving Neverland’ Director Speaks Out
+
+Movie News, Michael, Antoine Fuqua, Leaving Neverland, HBO
+
+Fri, 24 Apr 2026 12:00:13 GMT
+
+https://collider.com/leaving-neverland-director-michael-jackson-michael-jackson-biopic-comments/
+
+Leaving Neverland director Dan Reed doubles down on his stance on Michael Jackson and reacts to Antoine Fuqua's comments on the allegations.
+---------
+
+# 8 Years Ago Today, Marvel Released Its Greatest Film and Has Been Chasing That High Ever Since
+
+Movie Features, Avengers: Infinity War, Avengers: Endgame, Avengers: Doomsday, Disney+
+
+Fri, 24 Apr 2026 11:57:12 GMT
+
+https://collider.com/avengers-infinity-war-eight-year-anniversary-disney-plus/
+
+Eight years might have passed, but Avengers: Infinity War still remains one of Marvel Studios’ greatest accomplishments.
+---------
+
+# 'Monarch' Makes 'Kong: Skull Island' More Important to the Monsterverse
+
+Features, Monarch: Legacy of Monsters, Kong: Skull Island, King Kong, Monsterverse, Godzilla
+
+Fri, 24 Apr 2026 13:00:17 GMT
+
+https://movieweb.com/monarch-monsterverse-kong-skull-island-important/
+
+The latest Season 2 twist on 'Monarch: Legacy of Monsters' heavily redefines the Monsterverse's most overlooked entry.
+---------
+
+# 'Clayface': Release Date, Plot, Cast & Everything We Know
+
+Features, Clayface
+
+Fri, 24 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/clayface-everything-we-know/
+
+'Clayface,' the body horror DC movie directed by James Watkins, is one of the most exciting 2026 film releases.
+---------
+
+# Johnny Knoxville's 'Fear Factor' Reboot Renewed for Season 2
+
+TV News, Fear Factor, Johnny Knoxville, Reality
+
+Fri, 24 Apr 2026 11:55:04 GMT
+
+https://movieweb.com/fear-factor-house-knoxville-renewed/
+
+Fox has officially renewed Johnny Knoxville's 'Fear Factor: House of Fear' for Season 2, with a two-part special set to air in May.
+---------
+
 # CBS Officially Seals Matlock's Fate After Season 2 Collapse (& It Makes Sense)
 
 Network TV, Matlock
