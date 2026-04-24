@@ -1,3 +1,278 @@
+# The Marvelous Mrs. Maisel: Prime Video's Period Drama with Near-Perfect Rotten Tomatoes Score
+
+Classic TV, Masked Recs
+
+Fri, 24 Apr 2026 18:02:19 GMT
+
+https://screenrant.com/marvelous-mrs-maisel-prime-video-period-drama-best-casts/
+
+Prime Video's period dramedy The Marvelous Mrs. Maisel assembled a stacked ensemble cast to bring its colorful 1960s characters to life.
+---------
+
+# The Pitt Season 3: Returning Characters Confirmed
+
+Streaming TV, The Pitt
+
+Fri, 24 Apr 2026 18:00:18 GMT
+
+https://screenrant.com/the-pitt-season-3-characters-return-confirmed/
+
+The Pitt is set to return in January 2027 for season 3, and we already know which doctors and nurses will be back in the Pittsburgh Emergency Room.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (#1 Is The Biggest Sci-Fi Epic Of All Time)
+
+Movies, Disney+, Recommendation
+
+Fri, 24 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-april-25/
+
+Disney+'s best movies to watch this weekend include a fantasy franchise starter, an adventure crowdpleaser movie, and a visually stunning Sci-Fi epic.
+---------
+
+# For All Mankind Proves Nobody Learned From One Of The Show's Most Terrifying Moments
+
+Streaming TV, For All Mankind
+
+Fri, 24 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/for-all-mankind-riot-peacekeepers-repeat-history/
+
+For All Mankind is full of tension, but this season has just repeated a major incident that suggests things need to change in a big way.
+---------
+
+# Key Marvel Ally In Tom Holland's Spider-Man Trilogy Won't Return In Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Jon Favreau
+
+Fri, 24 Apr 2026 17:42:57 GMT
+
+https://screenrant.com/spiderman-brand-new-day-happy-hogan-not-returning-jon-favreau/
+
+Tom Holland, Zendaya and Jacob Batalon are all back for this summer’s highly anticipated Spider-Man: Brand New Day, but one MCU actor isn’t returning.
+---------
+
+# Dexter: Resurrection Season 2 Confirms Return Of Iconic Franchise Tradition Missing From Season 1
+
+TV, Dexter: Resurrection, Dexter
+
+Fri, 24 Apr 2026 17:37:23 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-donuts-return-confirmed-production/
+
+Dexter: Resurrection season 2 is officially bringing back an iconic franchise tradition that was absent from season 1 of the sequel series.
+---------
+
+# How The Watch Dogs Movie Adapts The Hit Sci-Fi Video Game Franchise's "Massive World" Addressed By Star
+
+Movies, Watch Dogs, Tom Blyth
+
+Fri, 24 Apr 2026 17:34:08 GMT
+
+https://screenrant.com/watch-dogs-movie-game-world-adaptation-tom-blyth/
+
+Exclusive: Tom Blyth offers an early tease of how the Watch Dogs movie is adapting the "massive world" of the hit sci-fi video game franchise.
+---------
+
+# FFXIV Reveals Next Expansion & Release Month
+
+Gaming, Final Fantasy 14 (2010), PC, Live Service Games
+
+Fri, 24 Apr 2026 17:31:23 GMT
+
+https://screenrant.com/final-fantasy-14-evercold-january-2027-release/
+
+During the first iteration of FFXIV Fan Fest 2026, Square Enix revealed the next big expansion for Final Fantasy 14, as well as its release window.
+---------
+
+# Mike Flanagan Horror Movie That Saved A Franchise Is Officially Releasing On Netflix
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 17:28:12 GMT
+
+https://screenrant.com/mike-flanagan-ouija-origin-of-evil-netflix-release-date-may-2026/
+
+Mike Flanagan's critically praised horror movie that saved a franchise is officially releasing on Netflix, 10 years after it was in theaters.
+---------
+
+# Taylor Sheridan's Call Of Duty Movie Gets Unexpected Rival As Michael B. Jordan Plans New War Video Game Movie Adaptation
+
+Movies, Michael B. Jordan
+
+Fri, 24 Apr 2026 17:25:35 GMT
+
+https://screenrant.com/battlefield-movie-adaptation-michael-b-jordan-christopher-mcquarrie/
+
+Taylor Sheridan is facing some tough competition as Michael B. Jordan's latest venture could be his biggest rival ahead of his Call of Duty movie.
+---------
+
+# Battlefield Adaptation in the Works With Michael B. Jordan
+
+Movies, Battlefield, Michael B. Jordan
+
+Fri, 24 Apr 2026 18:02:51 GMT
+
+https://www.cbr.com/michael-b-jordan-battlefield-movie/
+
+Michael B. Jordan takes on a major video game adaptation with Mission: Impossible franchise director Christopher McQuarrie.
+---------
+
+# 10 Marvel Characters Who Would Be Horrific Roommates
+
+Comics, Marvel
+
+Fri, 24 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/marvel-characters-who-would-be-terrible-roommates/
+
+Never meet your heroes - or move in with them.
+---------
+
+# The Wachowkis' Speed Racer Is The Most Perfect Cartoon Adaptation Of All Time
+
+Movies, Speed Racer, Sci-Fi, Action
+
+Fri, 24 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/speed-racer-perfect-movie-cartoon-adaptation-ever/
+
+After years of flying under the radar, this 2008 sci-fi masterpiece is finally getting the love it deserves from fans.
+---------
+
+# Star Trek Permanently Ended the Borg Storyline
+
+TV, Star Trek, Star Trek: Picard
+
+Fri, 24 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/star-trek-picard-ended-borg-storyline/
+
+Star Trek: Picard was the swan song for The Next Generation characters, but it was also the grand finale for the show's iconic villains.
+---------
+
+# 2 Years Later, FX’s Crime Drama Fargo Could Still Get Season 6
+
+TV, Fargo
+
+Fri, 24 Apr 2026 17:22:20 GMT
+
+https://www.cbr.com/fargo-season-6-update-noah-hawley/
+
+One of the best crime drama just got an encouraging update.
+---------
+
+# 10 Games With the Best Lovecraftian Themes
+
+Games, Gaming, H.P. Lovecraft, Bloodborne
+
+Fri, 24 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/best-games-with-lovecraftian-themes/
+
+Explore Lovecraftian themes with these games that portray the genre through gothic narratives, eldritch abominations and alien elder gods.
+---------
+
+# ‘True Detective’s Near-Perfect 6-Part Replacement Series Is Officially Returning With New Episodes
+
+TV Features, True Detective, Unforgotten, BBC, PBS
+
+Fri, 24 Apr 2026 17:43:13 GMT
+
+https://collider.com/true-detective-replacement-series-unforgotten-bbc-pbs/
+
+Unforgotten Season 7 is in production, making PBS’ stellar crime drama the perfect True Detective replacement for mystery fans.
+---------
+
+# Taylor Sheridan's 'Call of Duty' Adaptation Gets Major Competition as 'Battlefield' Movie Is Officially Announced
+
+Movie News, Battlefield, Christopher McQuarrie, Michael B. Jordan
+
+Fri, 24 Apr 2026 17:33:13 GMT
+
+https://collider.com/battlefield-video-game-adaptation-christopher-mcquarrie-directing-michael-b-jordan-producing/
+
+As Taylor Sheridan's Call of Duty gains steam, Michael B. Jordan and Christopher McQuarrie are officially making a movie based on Battlefield.
+---------
+
+# Netflix’s Slick 2-Part Series Is Built for Your Next Weekend Binge
+
+TV Features, Million Dollar Secret, Netflix, Reality, Streaming
+
+Fri, 24 Apr 2026 17:28:12 GMT
+
+https://collider.com/netflix-million-dollar-secret-weekend-binge/
+
+Million Dollar Secret Season 2 sharpens its strategy and suspense, making it one of Netflix’s most bingeable reality series.
+---------
+
+# 'Baldur's Gate 3's Best Character Is Officially Getting His Own Prequel
+
+Video Games, Baldur's Gate 3, Dungeons and Dragons, Larian Studios, Neil Newbon
+
+Fri, 24 Apr 2026 17:22:22 GMT
+
+https://collider.com/baldurs-gate-3-fantasy-spin-off-books-ahead-of-hbo-series-astarion-prequel/
+
+As HBO works on bringing Baldur's Gate to life, a new series of spin-off books have been announced, including an Astarion prequel.
+---------
+
+# FX's Highly-Anticipated Action Video Game Adaptation Gets Official Plot Details
+
+TV News, Noah Hawley, Fargo, Far Cry 5, Alien: Earth
+
+Fri, 24 Apr 2026 17:20:09 GMT
+
+https://collider.com/fx-video-game-adaptation-far-cry-series-plot-details-multi-season-plan/
+
+FX's series adaptation of Far Cry is being planned as a multi-season series and won't directly adapt the previous games' stories.
+---------
+
+# Rambo 'First Blood' Officially Returns to Free Streaming on Pluto TV in May 2026
+
+Movie News, First Blood, Pluto TV, Coming/Leaving Streaming, Action
+
+Fri, 24 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/rambo-first-blood-best-action-movie-streaming-free-pluto-may-2026/
+
+Sylvester Stallone's 1980s action masterpiece 'Rambo' or 'First Blood' makes a comeback on free streaming before the new prequel movie.
+---------
+
+# 'Battlefield' Movie in the Works From Michael B. Jordan & 'Mission: Impossible' Director Christopher McQuarrie
+
+Movie News, Michael B. Jordan, Battlefield
+
+Fri, 24 Apr 2026 17:43:32 GMT
+
+https://movieweb.com/battlefield-movie-michael-b-jordan/
+
+A 'Battlefield' film is in the works from writer-director Christopher McQuarrie and Michael B. Jordan.
+---------
+
+# Noah Hawley Confirms 'Far Cry' FX Series Begins Production After 'Alien: Earth'
+
+TV News, Noah Hawley, far cry, Alien: Earth, video games
+
+Fri, 24 Apr 2026 17:23:52 GMT
+
+https://movieweb.com/far-cry-filming-2026/
+
+'Alien: Earth' creator Noah Hawley has a busy schedule, juggling the second season of his sci-fi show and a new video game series.
+---------
+
+# 'Michael' Scores Biggest Preview Debut of 2026
+
+Movie News, Michael
+
+Fri, 24 Apr 2026 17:23:24 GMT
+
+https://movieweb.com/michael-preview-box-office/
+
+The Michael Jackson musical biopic is set to fly high in its opening weekend, as preview numbers are already past 'Project Hail Mary.'
+---------
+
 # Prime Video's 10 Perfectly Rated Shows On Rotten Tomatoes
 
 TV, Prime Video
