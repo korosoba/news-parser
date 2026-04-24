@@ -1,3 +1,245 @@
+# X-Files Spinoff Of Iconic Crossover Episode Pitched By Revival Series Star
+
+TV, The X-Files
+
+Fri, 24 Apr 2026 15:56:57 GMT
+
+https://screenrant.com/x-files-spinoff-cops-crossover-pitch-robbie-amell/
+
+EXCLUSIVE: As he shares some of his favorite episodes from the sci-fi show, X-Files alum Robbie Amell pitches a return to a fan-favorite crossover.
+---------
+
+# Pokémon Winds & Waves Map Leaks, Revealing Gyms & More
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Fri, 24 Apr 2026 15:52:37 GMT
+
+https://screenrant.com/pokemon-winds-waves-map-leaks-gyms/
+
+Pokémon Winds and Waves map has seemingly leaked online, showing off numerous details from Gen 10's region, like Gyms, towns, and more.
+---------
+
+# What Time Diablo 4: Lord Of Hatred Goes Live In Your Region
+
+Gaming, Diablo 4, Diablo IV: Lord of Hatred
+
+Fri, 24 Apr 2026 15:51:54 GMT
+
+https://screenrant.com/diablo-4-lord-hatred-launch-times-date-region/
+
+Diablo 4 is about to enter a whole new era with Lord of Hatred and you'll want to get straight into the action when it drops.
+---------
+
+# 10 Praiseworthy Action Thriller Movies No One Ever Talks About
+
+Movies, Action
+
+Fri, 24 Apr 2026 15:45:19 GMT
+
+https://screenrant.com/great-action-thriller-movies-no-one-talks-about/
+
+Action thrillers are a unique breed, and they combine the suspense of thrillers with the explosiveness of action. These movies are way overlooked.
+---------
+
+# Michael Box Office Completely Obliterates Multiple Preview Records For Michael Jackson Biopic
+
+Movies, Box Office, Michael
+
+Fri, 24 Apr 2026 15:42:34 GMT
+
+https://screenrant.com/michael-movie-box-office-preview-records-michael-jackson/
+
+The Michael Jackson biopic Michael conquers several box office records on preview night, and is on track to break several more with its debut.
+---------
+
+# Steven Spielberg & Tom Cruise's $603M Sci-Fi Hit Officially Releases On Hulu After Making 4x Its Budget
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 15:42:18 GMT
+
+https://screenrant.com/steven-spielberg-tom-cruise-war-of-the-worlds-streaming-release-may-2026/
+
+After grossing over four times its budget at the box office, Steven Spielberg and Tom Cruise's intense sci-fi collaboration is now coming to Hulu.
+---------
+
+# A New Crime Series From The Creator Of Power Is Hitting Netflix Next Month
+
+TV, Masked Recs
+
+Fri, 24 Apr 2026 15:37:48 GMT
+
+https://screenrant.com/nemesis-show-netflix-release-date-soon/
+
+Netflix has been releasing compelling crime series for years, and now the platform's latest is a new action-crime story from the creator of Power.
+---------
+
+# Justin Theroux's Villain In Running Point Season 2 Explained By Creator
+
+TV, Running Point, Running Point - Season 2, Justin Theroux
+
+Fri, 24 Apr 2026 15:34:13 GMT
+
+https://screenrant.com/justin-theroux-running-point-season-2-cam-villain-arc-explained/
+
+EXCLUSIVE: Justin Theroux is back on Running Point, and showrunner David Stassen tells ScreenRant how he wanted to reveal Cam’s villain behavior.
+---------
+
+# Marvel Reveals Updated Costumes For Wanda's Children Wiccan & Speed
+
+Marvel Comics, Scarlet Witch, Marvel
+
+Fri, 24 Apr 2026 15:30:18 GMT
+
+https://screenrant.com/wiccan-speed-new-redesign-scarlet-witch/
+
+Marvel confirms Scarlet Witch's children, Billy and Tommy a.k.a. Wiccan and Speed, will sport streamlined costumes in their upcoming reunion.
+---------
+
+# Running Point Season 2 Marks The End Of An Era For The Gordon Family
+
+Streaming TV, Running Point
+
+Fri, 24 Apr 2026 15:30:18 GMT
+
+https://screenrant.com/running-point-season-2-jay-cam-team-end-of-era/
+
+Running Point Season 2 concludes with a shocking twist, marking the end of an era for the Gordon family as viewers have come to know them so far.
+---------
+
+# Jordan Peele's Maligned Horror Film Him Finds Redemption on Netflix After Flopping in Theaters
+
+Movies, Horror, Him, Jordan Peele
+
+Fri, 24 Apr 2026 15:29:45 GMT
+
+https://www.cbr.com/jordan-peele-new-horror-him-netflix-streaming-success-april-2026/
+
+It stands as arguably the worst project from Jordan Peele, but now it's dominating Netflix.
+---------
+
+# 19 Years Later, Netflix Is Officially Rebooting Scarlett Johansson's $48M Cult Classic The Nanny Diaries
+
+TV, The Nanny Diaries, scarlett johansson
+
+Fri, 24 Apr 2026 15:27:12 GMT
+
+https://www.cbr.com/netflix-rebooting-scarlett-johansson-the-nanny-diaries/
+
+The actress will also be involved in the new reboot.
+---------
+
+# Netflix Reveals First Look at Scooby-Doo Live-Action Reboot
+
+TV, Scooby-Doo, Mystery, Netflix
+
+Fri, 24 Apr 2026 15:26:24 GMT
+
+https://www.cbr.com/scooby-doo-origins-cast-photo-netflix/
+
+Netflix has revealed the first look at Mckenna Grace, Tanner Hagen, Abby Ryder Fortson, and Maxwell Jenkins in Scooby-Doo: Origins.
+---------
+
+# The Far Side's 20 Greatest Wordless Comics of All Time
+
+Comics, The Far Side
+
+Fri, 24 Apr 2026 15:22:27 GMT
+
+https://www.cbr.com/20-greatest-wordless-the-far-side-comics-of-all-time/
+
+Gary Larson's The Far Side comic strip consistently found absurdist takes on every possible subject, and sometimes it didn't need words to make a joke
+---------
+
+# Pokémon & Witch Hat Atelier Have a Shocking Connection
+
+Anime, Witch Hat Atelier, Pokemon TCG
+
+Fri, 24 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/pokemon-tcg-witch-hat-atelier-shocking-connection-kamome-shirahama/
+
+Witch Hat Atelier is one of 2026's biggest anime, but the series' creator has also had a hand in another groundbreaking franchise -- Pokémon
+---------
+
+# 10 Best Spider-Man Games
+
+Games, Spider-Man
+
+Fri, 24 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/best-spider-man-games-marvel/
+
+Spider-Man might be one of Marvel Comics' most popular characters, but his video game history could be even more iconic.
+---------
+
+# Top NFL Draft Player Officially Confirms Comic Series to Challenge Marvel, DC
+
+Comics, Marvel Comics, DC Comics, MCU, DCU, Marvel
+
+Fri, 24 Apr 2026 15:01:05 GMT
+
+https://www.cbr.com/top-nfl-draft-player-officially-confirms-comic-series-to-challenge-marvel-dc/
+
+One of the best players in the NFL Draft just unleashed his challenge to Marvel and DC.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off Fires Showrunner 3 Weeks Before Release
+
+TV News, Yellowstone, Dutton Ranch, Western, Taylor Sheridan
+
+Fri, 24 Apr 2026 15:16:31 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-creator-showrunner-chad-feehan-fired/
+
+3 weeks before the show's premiere, Taylor Sheridan's new Yellowstone spin-off has shockingly cut ties with creator and showrunner Chad Feehan.
+---------
+
+# The Last-Minute Editing Change That Completely Transformed the Ending of ‘Original Sound’
+
+Exclusives, Original Sound, Screening, Bridget Moynahan, Drama
+
+Fri, 24 Apr 2026 15:13:34 GMT
+
+https://collider.com/original-sound-movie-ending-change-david-lambert-gregory-jbara-interview/
+
+Discover the incredible journey of transforming an Off-Broadway play into a feature film in only 23 days, from music to cinematography, and more.
+---------
+
+# Zach Galifianakis' Panic Is Palpable in New Sneak Peek of AMC's Most Outlandish Thriller [Exclusive]
+
+TV News, The Audacity, AMC, Sarah Goldberg, Zach Galifianakis
+
+Fri, 24 Apr 2026 15:01:13 GMT
+
+https://collider.com/the-audacity-episode-3-sneak-peek-sarah-goldberg-zach-galifianakis/
+
+A new sneak peek at The Audacity Episode 3 sees Sarah Goldberg dealing with a panicking, stabby Zach Galifianakis and family drama.
+---------
+
+# Disney & Pixar Share First Look at 'Hoppers' Deleted Scene Ahead of Home Release
+
+Exclusives, Hoppers
+
+Fri, 24 Apr 2026 15:10:18 GMT
+
+https://movieweb.com/hoppers-deleted-scene-digital-release/
+
+Disney and Pixar shared a new look at a deleted scene from 'Hoppers' for MovieWeb to share exclusively with fans.
+---------
+
+# Forget 'Reacher': Amazon's Biggest Action Thriller 'Citadel' Returns Next Month
+
+Features, Citadel, Reacher, Upcoming Tease
+
+Fri, 24 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/reacher-replacement-prime-video-citadel-season-2/
+
+'Reacher' is great, but while we're waiting, Amazon has an easy-to-binge action thriller that they've spent an exorbitant amount on.
+---------
+
 # Chainsaw Man: Reze Arc Movie Announces Crunchyroll Streaming Release
 
 Anime, Crunchyroll, Chainsaw Man - The Movie: Reze Arc
