@@ -1,3 +1,278 @@
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is A New Star-Studded Action Thriller)
+
+Movies, Netflix, Recommendation
+
+Fri, 24 Apr 2026 19:20:19 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-april-25/
+
+Netflix's best movies this weekend include a new action thriller that was just released on the streamer, a global smash hit comedy, and a tense flick.
+---------
+
+# Millie Bobby Brown's Enola Holmes 3 Release Date Reportedly Revealed
+
+Movies, Enola Holmes 3, Enola Holmes, Sherlock Holmes, Netflix, Millie Bobby Brown
+
+Fri, 24 Apr 2026 19:16:33 GMT
+
+https://screenrant.com/millie-bobby-brown-enola-holmes-3-netflix-release-date-report/
+
+Millie Bobby Brown's Enola Holmes 3 is reportedly close to make its Netflix debut as the Sherlock Holmes spinoff threequel potentially has a date.
+---------
+
+# The Boys Spinoff Cancelled After 2 Seasons
+
+TV, Gen V
+
+Fri, 24 Apr 2026 19:05:15 GMT
+
+https://screenrant.com/the-boys-gen-v-spinoff-cancelled-vought-rising-release-date/
+
+The Boys universe is getting smaller, as one of its spinoffs has been cancelled after two seasons ahead of the release of a prequel series.
+---------
+
+# Apex Ending Explained: Sasha's Fight For Survival & Ben's Big Twist
+
+New Movies, Apex
+
+Fri, 24 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/apex-movie-ending-explained/
+
+Charlize Theron and Taron Egerton go head-to-head in Netflix's survival action thriller, as Apex's ending includes a big death and a major twist.
+---------
+
+# Star Trek: Discovery Revives The Guardian of Forever After 53-Year Absence
+
+TV, Star Trek, Star Trek: Discovery
+
+Fri, 24 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/star-trek-discovery-guardian-of-forever-carl/
+
+The Guardian of Forever hadn't been seen in live-action since its lone appearance in Star Trek: The Original Series, then it made a shocking comeback.
+---------
+
+# Boruto Is Finally Redeeming The Naruto Franchise's Worst Villain
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Fri, 24 Apr 2026 19:00:19 GMT
+
+https://screenrant.com/boruto-redeeming-code-naruto-worst-villain/
+
+The manga has teased the return of one of the Naruto franchise's most underwhelming villains, who can only improve from where Boruto left them.
+---------
+
+# FFXIV Reveals New Job Details Coming In Evercold Expansion
+
+Gaming, Final Fantasy, Final Fantasy 14 (2010), PC, Live Service Games
+
+Fri, 24 Apr 2026 18:44:33 GMT
+
+https://screenrant.com/ffxiv-evercold-new-jobs-details-dps-tank/
+
+Square Enix has confirmed that two new Jobs will be introduced with the Evercold expansion arriving for Final Fantasy 14 in early 2027.
+---------
+
+# Margot Robbie’s Divisive New Romantic Novel Adaptation Sets HBO Max Streaming Release Date
+
+Movies, Wuthering Heights
+
+Fri, 24 Apr 2026 18:33:57 GMT
+
+https://screenrant.com/margot-robbie-wuthering-heights-hbo-max-streaming-release-date-may-2026/
+
+After dividing viewers, Margot Robbie's steamy romantic novel adaptation has now set an HBO Max release date, and there isn't long to wait.
+---------
+
+# I Love Cecil, But Invincible Can't Keep Letting Him Get Away With This
+
+Streaming TV, Invincible
+
+Fri, 24 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/invincible-cecil-get-away-with-mistakes/
+
+Cecil is one of Invincible's most complex characters, and also one of its best, but the show can't keep letting him get away with his biggest flaw.
+---------
+
+# Keanu Reeves’ John Wick 5 Release Timeline Addressed By Studio Exec
+
+Movies, John Wick: Chapter 5, John Wick, Lionsgate
+
+Fri, 24 Apr 2026 18:27:10 GMT
+
+https://screenrant.com/john-wick-5-release-timeline-lionsgate-exec/
+
+Lionsgate exec Adam Fogelson offers an update on the release timeline for Keanu Reeves' John Wick 5, as well as two other films in the series.
+---------
+
+# Heroes Is the No. 1 Series on Digital Platforms 16 Years After Last Episode
+
+TV, Heroes, superheroes, Apple TV
+
+Fri, 24 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/nbc-heroes-superhero-streaming-success-apple-april-2026/
+
+More than a decade after it concluded its run, NBC's controversial superhero show is back at the top of the charts.
+---------
+
+# 5 Best New Shonen Jump Manga in 2026 (So Far)
+
+Anime, Manga, Shonen, Shonen Jump, viz media, Alien Headbutt
+
+Fri, 24 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/best-new-shonen-jump-manga-2026/
+
+Shonen Jump remains the most popular manga magazine around, and Shueisha is always adding new manga for fans to devour.
+---------
+
+# Gen V Canceled at Prime Video
+
+TV, Gen V, The Boys, Prime Video
+
+Fri, 24 Apr 2026 19:11:15 GMT
+
+https://www.cbr.com/gen-v-cancelled-amazon-prime-video/
+
+Amazon will not move forward with the third season of its Prime Video series Gen V, a spinoff of The Boys.
+---------
+
+# 6 Near-Perfect Hard Sci-Fi Movies Nobody Remembers
+
+Movies, Sci-Fi
+
+Fri, 24 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/near-perfect-forgotten-hard-sci-fi-movies/
+
+Some of the best science fiction movies in recent memory have already been forgotten by the masses, so here's a refresher.
+---------
+
+# Michael Jackson's Biopic Michael Has Divided Critics & Theaters as It Breaks Multiple Box Office Records
+
+Movies, Michael
+
+Fri, 24 Apr 2026 18:59:54 GMT
+
+https://www.cbr.com/michael-jacksons-biopic-has-officially-divided-critics-theaters-as-it-breaks-multiple-box-office-records/
+
+After a long time in development, the biopic won't stop 'til it gets enough.
+---------
+
+# Noah Hawley Reveals How Long Alien: Earth Could Continue
+
+TV, Alien: Earth, Alien, Hulu
+
+Fri, 24 Apr 2026 18:57:28 GMT
+
+https://www.cbr.com/alien-earth-how-many-seasons/
+
+Alien: Earth showrunner Noah Hawley teases his long-term plan for FX's Alien-universe-set series.
+---------
+
+# Margot Robbie's Wuthering Heights Finally Sets HBO Max Release Date
+
+Movies, Wuthering Heights
+
+Fri, 24 Apr 2026 18:46:27 GMT
+
+https://www.cbr.com/margot-robbie-wuthering-heights-hbo-max-release-date/
+
+The controversial movie was a box office hit, which continued on digital platforms, too.
+---------
+
+# Jack Nicholson Resurfaces in Rare Photo 16 Years After Last Movie
+
+Movies
+
+Fri, 24 Apr 2026 18:41:20 GMT
+
+https://www.cbr.com/jack-nicholson-rare-new-photo-89th-birthday/
+
+Legendary actor Jack Nicholson is seen in a rare new photo celebrating his 89th birthday.
+---------
+
+# GTA 5 Officially Offers Free Download, Available Until April 29
+
+Games, Grand Theft Auto
+
+Fri, 24 Apr 2026 18:35:12 GMT
+
+https://www.cbr.com/gta-5-free-download-april-29-cosmetic-dlc/
+
+Grand Theft Auto players have just a few days left to pick up one of the most conspicuous downloads in the game entirely for free.
+---------
+
+# Naruto Launches a New Series With a Dark Uzumaki Design
+
+Anime, Naruto, merchandise, Naruto: Shippuden
+
+Fri, 24 Apr 2026 18:31:15 GMT
+
+https://www.cbr.com/naruto-uzumaki-noir-edge-collection-banpresto/
+
+Naruto is leading the next hit noir collection, and fans hardly have to wait to be able to take the awe-striking new release home for themselves.
+---------
+
+# 10 Classic Fantasy TV Shows Still Worth Binge-Watching Today
+
+TV, The Twilight Zone, Fantasy, Buffy The Vampire Slayer, Avatar: The Last Airbender
+
+Fri, 24 Apr 2026 19:09:13 GMT
+
+https://collider.com/classic-fantasy-shows-worth-binge-watching-today/
+
+Discover timeless fantasy TV shows that remain captivating and binge-worthy, including The Twilight Zone, Buffy the Vampire Slayer, and Charmed.
+---------
+
+# 22 Years Ago, Donny Osmond Was Injured on the Set of ‘Friends’ and Kept Filming Anyway [Exclusive]
+
+Exclusives, Friends, Donny Osmond, Original Sound, Drama
+
+Fri, 24 Apr 2026 19:00:12 GMT
+
+https://collider.com/friends-season-10-episode-11-the-one-where-the-stripper-cries-donny-osmond-injury-explained/
+
+Gregory Jbara recalled watching Donny Osmond keep filming on Friends through a nasty injury, cementing him as a real team player on the sitcom.
+---------
+
+# Apple TV's 'Widow's Bay' Debuts to 100% RT Score
+
+TV News, Widow's Bay
+
+Fri, 24 Apr 2026 19:03:47 GMT
+
+https://movieweb.com/widows-bay-rotten-tomatoes-score-perfect/
+
+The thrilling and darkly comedic new series is off to a strong start with critics.
+---------
+
+# 'The Night Agent' Adds Star Titus Welliver, Making It the Perfect 'Bosch: Legacy' Replacement
+
+Features, Bosch: Legacy, The Night Agent
+
+Fri, 24 Apr 2026 19:00:16 GMT
+
+https://movieweb.com/night-agent-season-4-titus-welliver-bosch/
+
+'Bosch: Legacy's future is still up in the air, but Titus Welliver isn't done with top-quality thriller TV, joining 'The Night Agent's cast.
+---------
+
+# 'Alien: Earth' Creator Confirms the Sci-Fi Series' Future Ahead of Season 2
+
+TV News, Alien: Earth, Alien, Noah Hawley
+
+Fri, 24 Apr 2026 18:28:29 GMT
+
+https://movieweb.com/alien-earth-season-3-update/
+
+The creator behind 'Fargo' and 'Legion' hopes the sci-fi horror series runs long.
+---------
+
 # The Marvelous Mrs. Maisel: Prime Video's Period Drama with Near-Perfect Rotten Tomatoes Score
 
 Classic TV, Masked Recs
