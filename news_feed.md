@@ -1,3 +1,267 @@
+# Steam Drops New 100% Free Game That You Can Keep Forever
+
+Gaming, Steam, PC, Indie
+
+Sat, 25 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/steam-free-game-keep-forever-april-2026/
+
+Steam has just seen the release of a brand-new game that you can grab entirely for free and keep it forever as part of your library’s collection.
+---------
+
+# 2026’s Horror Movie Box Office Curse Officially Broken By Lee Cronin’s The Mummy In Week 2
+
+Movies, Box Office, Horror, Lee Cronin's The Mummy
+
+Sat, 25 Apr 2026 17:56:32 GMT
+
+https://screenrant.com/the-mummy-2026-movie-box-office-week-2-domestic-drop/
+
+Blumhouse's reboot Lee Cronin's The Mummy has a solid week 2 performance, breaking free from a curse that has been plaguing the horror genre in 2026.
+---------
+
+# Margaret Qualley & Callum Turner Join Remake Of 1981 Cult Horror Movie
+
+Movies, Horror, Margaret Qualley, Possession
+
+Sat, 25 Apr 2026 17:39:58 GMT
+
+https://screenrant.com/possession-remake-casting-margaret-qualley-callum-turner/
+
+Margaret Qualley and Callum Turner are ready to get crazy as they join the upcoming remake of a famously bonkers 1981 cult horror movie.
+---------
+
+# The Walking Dead's Best Spinoff Is What The Franchise's Future Should Look Like
+
+Streaming TV, The Walking Dead
+
+Sat, 25 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/the-walking-dead-spinoff-ones-who-live-future/
+
+The long-term future of The Walking Dead remains unclear, but looking at the franchise's best spinoff gives a good idea of what it should be.
+---------
+
+# Forgotten '90s Kids Shows: Classics That Deserve Recognition
+
+Classic TV, Masked Recs
+
+Sat, 25 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/forgotten-1990s-kids-tv-shows-classics/
+
+Forgotten '90s kids shows that were ahead of their time, featuring innovative animation, captivating storylines, and packed full of educational value.
+---------
+
+# 10 Panned Movies That Earned Acclaim Years Later
+
+Movies, The Shining, Starship Troopers, Eyes Wide Shut, The Thing, The Shawshank Redemption, The Night of the Hunter, Vertigo, American Psycho, It's a Wonderful Life, Twin Peaks: Fire Walk With Me
+
+Sat, 25 Apr 2026 17:15:18 GMT
+
+https://screenrant.com/panned-movies-critical-acclaim-years-later/
+
+These movies were once dismissed or misunderstood, but years later, critics and audiences reevaluated them as classics, cult hits, or masterpieces.
+---------
+
+# Alden Ehrenreich's Beautiful Creatures Finds Redemption on Free Streaming 15 Years Later
+
+Movies, Beautiful Creatures, Alden Ehrenreich
+
+Sat, 25 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/alden-ehrenreich-beautiful-creatures-fantasy-tubi-success-april-2026/
+
+The film should've started a franchise, but its underwhelming box office run killed any chance.
+---------
+
+# Transformers Reveals New Studio Series Release for Cliffjumper, Cyclonus and Blitzwing
+
+Anime, Transformers, The Transformers: The Movie, merchandise, hasbro, toys, action figures
+
+Sat, 25 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/hasbro-transformers-studio-series-cliffjumper-cyclonus-blitzwing-action-figure/
+
+Cyclonus, Cliffjumper and Blitzwing round out more re-released action figures for the continued 40th anniversary of The Transformers: The Movie.
+---------
+
+# Robert Duvall’s The Godfather Line Is the Most Powerful Movie Quote
+
+Movies, The Godfather
+
+Sat, 25 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/robert-duvall-the-godfather-most-powerful-quote-movie-history/
+
+Introduced as the Consigliere of the Corleone family, Tom Hagen's line in The Godfather's opening revealed the importance of family in Vito's World.
+---------
+
+# Marvel Won’t Stop Killing This Character — And It Somehow Still Works
+
+Comics, Marvel
+
+Sat, 25 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/marvel-keeps-killing-agent-coulson-death-keeps-working/
+
+Deaths never last long in the Marvel world, but this character has died and come back so many times that it has become an ongoing joke.
+---------
+
+# My Hero Academia Movie Timeline
+
+Anime, My Hero Academia, My Hero Academia: Heroes Rising
+
+Sat, 25 Apr 2026 17:45:12 GMT
+
+https://www.cbr.com/mha-where-movies-fit-series-timeline/
+
+A definitive guide to where the three MHA movies take place in the anime's timeline.
+---------
+
+# Adam Scott's Hokum Is Already 1 of the Best Films of 2025
+
+Movies, Hokum
+
+Sat, 25 Apr 2026 17:42:29 GMT
+
+https://www.cbr.com/hokum-rotten-tomatoes-score/
+
+The director of Oddity does it again as his newest horror film is among the highest-rated movies of the year.
+---------
+
+# American Fantasy TV Shows You Need to Stream Right Now
+
+TV, Fantasy, Sweet Tooth, Game Of Thrones, Buffy The Vampire Slayer
+
+Sat, 25 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/best-american-fantasy-tv-shows-now-streaming/
+
+The best American fantasy TV shows featuring epic stories, compelling characters, and immersive magical worlds are available to stream now.
+---------
+
+# Best Final Fantasy Characters of All Time
+
+Games, Final Fantasy, Final Fantasy 15, Final Fantasy VII Remake, Final Fantasy Tactics Advance
+
+Sat, 25 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/best-final-fantasy-characters-all-time/
+
+The Final Fantasy series has had some incredible playable characters and villains over the years, yet a few stand out as the best of the bunch.
+---------
+
+# Final Fantasy 10 Officially Returns in 2026
+
+Games, Final Fantasy
+
+Sat, 25 Apr 2026 17:10:13 GMT
+
+https://www.cbr.com/final-fantasy-10-returns-2026-dissidia-duellum/
+
+Fans are just days away from the return of Final Fantasy X, even if it is coming back in one of the last places fans might expect.
+---------
+
+# 'Outlander' Beats George R.R. Martin at His Own Game With 10/10 Fantasy Spin-Off
+
+TV News, Outlander: Blood of My Blood, Outlander, STARZ, Streaming
+
+Sat, 25 Apr 2026 18:00:12 GMT
+
+https://collider.com/outlander-blood-of-my-blood-fantasy-spin-off-streaming-milestone-200-days-starz-april-2026/
+
+Outlander's near-perfect spin-off, Blood of My Blood, has just surpassed a huge milestone on the U.S. streaming charts.
+---------
+
+# 10 TV Shows We Thought Would Be the Next ‘Game of Thrones'
+
+TV, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, The Lord of the Rings: The Rings of Power
+
+Sat, 25 Apr 2026 17:57:13 GMT
+
+https://collider.com/tv-shows-almost-next-game-of-thrones/
+
+His Dark Materials, Wheel of Time, Shadow and Bone, The Last Kingdom, and more make our list of shows we thought would be the next Game of Thrones.
+---------
+
+# Shudder's Most Overlooked Horror-Thriller Is the Found Footage Film You've Been Waiting For
+
+Movie Features, Bodycam, Horror, Shudder, Found Footage
+
+Sat, 25 Apr 2026 17:31:12 GMT
+
+https://collider.com/found-footage-movies-bodycam-shudder-horror-thriller/
+
+Shudder's chilling horror movie Bodycam embraces an inventive, terrifying found-footage premise to follow two cops dealing with demons.
+---------
+
+# 10 Perfect Medical Dramas To Watch After 'The Pitt'
+
+TV, The Pitt, Grey's Anatomy, ER, Drama
+
+Sat, 25 Apr 2026 17:19:13 GMT
+
+https://collider.com/medical-dramas-like-the-pitt-hbo-max/
+
+Medical TV dramas like Showtime's Nurse Jackie, NBC's ER, and ABC's Grey's Anatomy are perfect to watch after you finish watching The Pitt.
+---------
+
+# 10 Best Stephen King Thriller Books, Ranked
+
+Movie, Stephen King, The Outsider, The Dark Tower, Misery
+
+Sat, 25 Apr 2026 17:10:13 GMT
+
+https://collider.com/best-stephen-king-thriller-books-ranked/
+
+Stephen King has written plenty of great thrillers throughout his decades-spanning career, including classics like Misery and The Dead Zone.
+---------
+
+# Alan Ritchson's 'Blue Mountain State' Is Leaving Netflix in May 2026
+
+TV News, Blue Mountain State, Netflix, Coming/Leaving Streaming, Alan Ritchson, Reacher
+
+Sat, 25 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/blue-mountain-state-alan-ritchson-leaving-streaming-netflix-may-2026/
+
+Alan Ritchson's pre-'Reacher' football sitcom 'Blue Mountain State' is Being Removed From Streaming
+---------
+
+# Forget 'The Boys' Netflix's Forgotten 6-Episode Superhero Series 'Supacell' Is Even Better
+
+Features, Supacell, The Boys, Comparison Recommendation
+
+Sat, 25 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/supacell-netflix-better-than-the-boys/
+
+Plenty of Netflix shows go underseen, but it's rare when they fall into the superhero genre. This one is a must-see.
+---------
+
+# How the 'Michael' Biopic Picked Which Michael Jackson Story to Tell
+
+Movie News, Michael, Graham King
+
+Sat, 25 Apr 2026 17:42:56 GMT
+
+https://movieweb.com/michael-producer-moments-michael-jacksons-life/
+
+Producer Graham King reveals how the 'Michael' team decided which chapters from Jackson's extraordinary life to focus on.
+---------
+
+# A Dark Horse Candidate to Portray 007 in 'James Bond 26' Already Has Experience Playing the Iconic Role
+
+Features, James Bond 26
+
+Sat, 25 Apr 2026 17:30:17 GMT
+
+https://movieweb.com/patrick-gibson-james-bond-frontrunner/
+
+Never mind the odds-on frontrunners, Patrick Gibson is the perfect candidate to star in 'James Bond 26' after voicing the role in '007 First Light'.
+---------
+
 # Rooster Episode 8 Clip Sees Cristle Set Ground Rules For Greg
 
 Exclusive, Rooster, Steve Carell
