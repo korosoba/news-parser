@@ -1,3 +1,245 @@
+# 8 Near-Perfect Thriller Novels That Are Absolute Pager Turners
+
+Books
+
+Sat, 25 Apr 2026 00:00:18 GMT
+
+https://screenrant.com/8-near-perfect-thriller-novels-that-are-absolute-pager-turners/
+
+Thriller novels you won't be able to put down.
+---------
+
+# Recasting Ned Stark For A Game Of Thrones Prequel: 8 Actors Who'd Be Perfect
+
+Classic TV, Game Of Thrones
+
+Sat, 25 Apr 2026 00:00:18 GMT
+
+https://screenrant.com/game-of-thrones-prequel-recasting-ned-stark-actors/
+
+Another Game of Thrones prequel that has been proposed could feature a younger Ned Stark, and he must be perfectly cast to do justice to Sean Bean.
+---------
+
+# 10 PlayStation Plus RPGs That Are A Perfect 10/10
+
+Gaming, PlayStation Plus
+
+Sat, 25 Apr 2026 00:00:18 GMT
+
+https://screenrant.com/best-playstation-plus-rpgs-perfect-score-games/
+
+PlayStation Plus is a bountiful feast of terrific RPGs with diverse flavors of gameplay genres, with many being exclusive to PlayStation itself.
+---------
+
+# Director Kirk Jones Risked It All To Make I Sware Biopic With Robert Aramayo
+
+Movies, Robert Aramayo, I Swear
+
+Fri, 24 Apr 2026 23:45:21 GMT
+
+https://screenrant.com/robert-aramayo-i-swear-movie-risky-kirk-jones/
+
+Kirk Jones financed his home and took a big risk casting Robert Aramayo in the 2025 biopic I Swear, which explores the life of John Davidson living with Tourette's Syndrome.
+---------
+
+# Tomb Raider Fans Rally Behind Official Lara Croft Redesign
+
+Gaming, Tomb Raider, Triple-A Games, PC
+
+Fri, 24 Apr 2026 23:30:27 GMT
+
+https://screenrant.com/tomb-raider-lara-croft-official-redesign/
+
+Tomb Raider's iconic mascot Lara Croft is getting a fresh look, and the redesign seems to be striking a chord with the majority of fans.
+---------
+
+# Michael Jackson Movie Controversy Explained
+
+Movies, Michael
+
+Fri, 24 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/michael-movie-michael-jackson-controversy-explained/
+
+The brand-new biopic about Michael Jackson, Michael (2026), has stirred up considerable controversy because of some narrative omissions.
+---------
+
+# 8 Anime Endings That Are So Depressing That They're Actually Brilliant
+
+Anime, Attack on Titan, Chainsaw Man
+
+Fri, 24 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/depressing-anime-endings-brilliant/
+
+Some anime endings feel terrible when you first see them, but over time, you come to realize that they're perfect for their respective series.
+---------
+
+# Stranger Things's New Show Officially Makes Eleven A Superhero
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Fri, 24 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-eleven-superhero/
+
+Stranger Things had some issues with depicting Eleven as a true superhero, but the franchise’s latest installment changes that in a big way.
+---------
+
+# Disney+'s $1 Billion Space Opera With Stellar Audience Score On Rotten Tomatoes Has One Of Its Best Casts
+
+Movies, Masked Recs
+
+Fri, 24 Apr 2026 23:16:34 GMT
+
+https://screenrant.com/disney-plus-star-wars-the-rise-of-skywalker-sci-fi-movie-cast-best/
+
+One of the biggest franchises of all time has a star-studded movie on Disney+ that helps the space opera easily stand among the streamer's best casts.
+---------
+
+# Billy Zane's The Phantom Is Finally Making a Comeback
+
+Movies, The Phantom, Adventure, reginald hudlin
+
+Sat, 25 Apr 2026 00:00:12 GMT
+
+https://www.cbr.com/billy-zane-phantom-movie-roger-ebert-approved/
+
+Thirty years after Billy Zane played an iconic comic book hero, a Black Panther writer has been tasked with reviving him for a new generation.
+---------
+
+# 10 Greatest Anime War Arcs of All Time
+
+Anime, One Piece, Naruto: Shippuden, Jujutsu Kaisen, Hunter x Hunter, shonen anime, Attack On Titan
+
+Fri, 24 Apr 2026 23:45:12 GMT
+
+https://www.cbr.com/greatest-anime-war-arcs-of-all-time/
+
+From massive clashes to strategic wars, some of the greatest war arcs of all time take place in unforgettable anime.
+---------
+
+# Greenland 2: Migration Sets HBO Max Release Date
+
+Movies, Greenland 2: Migration, HBO Max
+
+Fri, 24 Apr 2026 23:40:08 GMT
+
+https://www.cbr.com/greenland-2-migration-hbo-max-release-date/
+
+The post-apocalyptic thriller gets another chance to find an audience on HBO Max after an unfortunate box office performance.
+---------
+
+# 7 Near-Perfect Romance Anime No One Remembers
+
+Anime, Shojo, seinen, Paradise Kiss
+
+Fri, 24 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/near-perfect-romance-anime-forgotten/
+
+Not every romance anime will be a major hit with audiences, but some of the sub-genre's most brilliant gems have been long forgotten.
+---------
+
+# Baldur's Gate 3 Prequel Officially Confirmed for September 2026
+
+Games, Baldur's Gate 3
+
+Fri, 24 Apr 2026 23:05:12 GMT
+
+https://www.cbr.com/baldurs-gate-3-prequel-official-september-2026/
+
+Baldur's Gate 3 fans will soon be able to return, as a prequel has been announced for September 2026 that follows the story of its most popular hero.
+---------
+
+# New Lord of the Rings Spin-Off Gains Major Momentum
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: Gollum, Viggo Mortensen
+
+Sat, 25 Apr 2026 00:00:12 GMT
+
+https://collider.com/lord-of-the-rings-open-world-rpg-video-game-tease-kingdom-come-deliverance-creators/
+
+Warhorse Studios, the team behind Kingdom Come: Deliverance, has hinted at an upcoming Lord of the Rings RPG project.
+---------
+
+# The Sci-Fi Series That Reinvented the Genre in 14 Episodes Is Now Deeply Controversial
+
+TV Features, Firefly, Nathan Fillion, Alan Tudyk, Sci-Fi
+
+Fri, 24 Apr 2026 23:53:12 GMT
+
+https://collider.com/firefly-sci-fi-series-14-episodes-controversial/
+
+Firefly, Joss Whedon's short-lived sci-fi series, became a cult phenomenon that redefined the genre in just 14 episodes, but remains controversial.
+---------
+
+# Steven Spielberg's Return to Sci-Fi Officially Reveals Its Alien Threat
+
+Movie News, Steven Spielberg, Disclosure Day, Sci-Fi, Emily Blunt
+
+Fri, 24 Apr 2026 23:46:12 GMT
+
+https://collider.com/steven-spielberg-sci-fi-return-disclosure-day-teaser-alien-reveal/
+
+A new teaser for Steven Spielberg's highly anticipated sci-fi return has officially revealed the movie's elusive alien threat. See it here!
+---------
+
+# 3 Binge-Worthy Prime Video Shows To Watch This Weekend
+
+TV, Prime Video, Ghost Whisperer, Ballard, The Paradise
+
+Fri, 24 Apr 2026 23:43:13 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-april-24/
+
+Ghost Whisperer, Ballard, and The Paradise make up our list of Prime Video shows to watch the weekend of April 24, 2026.
+---------
+
+# One of the Most Controversial Video Game Adaptations Stages a No. 1 Global Comeback
+
+Movie News, Uncharted, Mark Wahlberg, Tom Holland, Ruben Fleischer
+
+Fri, 24 Apr 2026 23:30:12 GMT
+
+https://collider.com/mark-wahlberg-video-game-adaptation-uncharted-streaming-success-hulu-april-2026/
+
+Uncharted, the polarizing video game adaptation starring Mark Wahlberg and Tom Holland, is staging a #1 global comeback on streaming.
+---------
+
+# Paramount's 2-Part Crime Thriller Officially Confirms a Fan-Favorite's Return as Filming Starts
+
+TV News, Dexter: Resurrection, Paramount Plus, Michael C. Hall, Dexter
+
+Fri, 24 Apr 2026 23:15:12 GMT
+
+https://collider.com/dexter-resurrection-season-2-filming-start-cast-desmond-harrington-joey-quinn/
+
+Paramount has officially announced that Dexter: Resurrection Season 2 is now in production, with an original star rejoining the cast.
+---------
+
+# 10 Best Sports Movies of the 20th Century
+
+Movie, Sports, A League of Their Own, Raging Bull, The Hustler
+
+Fri, 24 Apr 2026 23:05:13 GMT
+
+https://collider.com/best-sports-movies-20th-century/
+
+From underdog tales like Rocky to rom-coms like Jerry Maguire, the best sports movies of the 20th century showcase the genre's power and versatility.
+---------
+
+# New 'Finding Nemo' Short on the Way With Ellen DeGeneres Returning
+
+Movie News, Finding Nemo, Finding Dory, Ellen DeGeneres
+
+Fri, 24 Apr 2026 23:35:34 GMT
+
+https://movieweb.com/finding-nemo-sequel-short-ellen-degeneres/
+
+It's currently unknown who else might be involved in the short and where it will be released.
+---------
+
 # Final Fantasy 14 Fans Torn On Massive Impending Job Overhaul
 
 Gaming, Final Fantasy 14 (2010), Triple-A Games
