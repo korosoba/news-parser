@@ -1,3 +1,267 @@
+# 6 Major Unresolved Plots American Horror Story Season 13 Can Finish
+
+Horror, American Horror Story
+
+Sat, 25 Apr 2026 20:45:18 GMT
+
+https://screenrant.com/american-horror-story-season-13-plot/
+
+American Horror Story season 13 could finally resolve major Coven and Apocalypse mysteries, from Fiona’s return to Mallory’s timeline-altering.
+---------
+
+# Apple TV's 10-Part Sci-Fi Series With An A-List Cast Is One Of Its Best Space Shows
+
+Streaming TV, Masked Recs
+
+Sat, 25 Apr 2026 20:38:18 GMT
+
+https://screenrant.com/apple-tv-murderbot-sci-fi-a-list-cast-best-space-show/
+
+It's rare to find a comedy sci-fi series that excels in both genres, but one smash Apple TV+ show manages it thanks to multiple flawless performances.
+---------
+
+# Netflix's Lord of the Flies: A Dystopian Masterpiece That's Lost Meets Adolescence
+
+TV, Masked Recs, Lost, Adolescence
+
+Sat, 25 Apr 2026 20:30:18 GMT
+
+https://screenrant.com/lord-of-the-flies-netflix-lost-meets-adolescence-jack-thorne/
+
+Netflix has a new critically-acclaimed book adaptation which combines elements of ABC's landmark TV show Lost with the 2025 masterpiece Adolescence.
+---------
+
+# New Xbox Game Pass Changes Prove GTA 6 Boss Was Right All Along
+
+Gaming, Xbox Game Pass, Grand Theft Auto 6
+
+Sat, 25 Apr 2026 20:30:18 GMT
+
+https://screenrant.com/xbox-game-pass-gta-6-2026-update/
+
+The CEO of Take-Two Interactive, which owns Rockstar, had some things to say about Game Pass a few years ago, and history has proven him right.
+---------
+
+# 24 Years Later, This Fantasy Quote Is Still The Best Of All Time
+
+Movies, The Lord of the Rings
+
+Sat, 25 Apr 2026 20:15:18 GMT
+
+https://screenrant.com/best-fantasy-quote-all-time-sam-gamgee-lord-of-the-rings/
+
+The fantasy genre is often about hope, self-discovery, and the battle between good and evil. Naturally, the genre's best quote has to reflect that.
+---------
+
+# Timothy Olyphant's New R-Rated Thriller Remake Officially Sets All-Time Rotten Tomatoes Record
+
+Movies, Masked Recs, Timothy Olyphant
+
+Sat, 25 Apr 2026 20:10:31 GMT
+
+https://screenrant.com/over-your-dead-body-rotten-tomatoes-audience-score-timothy-olyphant-record/
+
+Timothy Olyphant's new R-rated thriller movie has now set a new Rotten Tomatoes record for the star, as the remake makes its way to theaters.
+---------
+
+# Fallout 5's Map Size Is Already Leaving Gamers Torn
+
+Gaming, Fallout 5, Fallout
+
+Sat, 25 Apr 2026 20:00:34 GMT
+
+https://screenrant.com/fallout-5-map-size-setting-gamers-react-speculation/
+
+The next game in the Fallout series is likely a long way away, but that just leaves us plenty of time to speculate on what it will be like.
+---------
+
+# MCU Needs More Marvel Spotlight Projects After Wonder Man Success
+
+Movies, MCU, Wonder Man
+
+Sat, 25 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/wonder-man-mcu-marvel-spotlight-shows/
+
+MCU Needs More Marvel Spotlight Projects After Wonder Man Success
+---------
+
+# 8 Isekai Anime Better Than the Genre's Biggest Hits
+
+Anime, The Vision of Escaflowne, Saga of Tanya the Evil
+
+Sat, 25 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/isekai-anime-better-than-the-biggest-hits/
+
+These series offer a more compelling take on the isekai genre than many mainstream favorites.
+---------
+
+# Eric Bana and Charlize Theron's Apex Is Officially the No. 1 Film on Netflix
+
+Movies, Apex
+
+Sat, 25 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/eric-bana-apex-survival-netflix-global-success-april-2026/
+
+The film received mixed reviews but it turned into a streaming hit.
+---------
+
+# Marvel Officially Reveals Wolverine's Shocking Replacement
+
+Comics, Wolverine, X-Men
+
+Sat, 25 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/wolverine-23-wolverine-replacement-taskmaster-confirmed/
+
+Marvel gives fans their first glimpse at Logan's next replacement as Wolverine, and they are the one character nobody saw coming.
+---------
+
+# Gundam Character Designer Opens Up About Long-Awaited Anime Comeback: 'I Had Lingering Regrets'
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: The Origin
+
+Sat, 25 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/gundam-yoshikazu-yasuhiko-anime-comeback-regret/
+
+The official designer behind the original Gundam anime talks his past and his future in the industry -- and one contentious technology's place in it.
+---------
+
+# Apple TV’s Colossal 2-Part Sci-Fi Series Is Taking Over Global Streaming
+
+TV News, Godzilla x Kong: Supernova, MonsterVerse, Monarch: Legacy of Monsters, Apple TV
+
+Sat, 25 Apr 2026 20:30:12 GMT
+
+https://collider.com/monarch-legacy-of-monsters-apple-tv-streaming-charts-april-2026/
+
+Monarch: Legacy of Monsters is surging on Apple TV’s global charts as Season 2 keeps viewers hooked.
+---------
+
+# 10 Greatest Adventure Movies of the 21st Century, Ranked
+
+Movie, Adventure, Paddington 2, Pirates of the Caribbean: Dead Man's Chest, The Lord of the Rings
+
+Sat, 25 Apr 2026 20:29:12 GMT
+
+https://collider.com/best-adventure-movies-21st-century-ranked/
+
+Beloved family gems like Paddington 2 and Oscar winners like Everything Everywhere All at Once rank among the 21st century's best adventure movies.
+---------
+
+# Prime Video Officially Renews Its 5-Part Fantasy Masterpiece for Final Season
+
+TV News, Prime Video, Hazbin Hotel, Helluva Boss, Fantasy
+
+Sat, 25 Apr 2026 20:21:55 GMT
+
+https://collider.com/prime-video-fantasy-series-hazbin-hotel-final-season-5-renewed/
+
+Prime Video's hit dark fantasy series Hazbin Hotel will return for Season 5, but it will be the show's final chapter.
+---------
+
+# Peacock Officially Has a Must-Watch Sci-Fi Franchise After This Show’s 92% Rotten Tomatoes Season
+
+TV Features, Twisted Metal, Peacock, Anthony Mackie, Stephanie Beatriz
+
+Sat, 25 Apr 2026 20:06:12 GMT
+
+https://collider.com/peacock-twisted-metal-season-2-rotten-tomatoes-rating-improvement/
+
+Twisted Metal has become one of Peacock's biggest shows, thanks to its vastly improved second season.
+---------
+
+# The Best Scene From All 12 Star Wars Movies
+
+Movie, Star Wars, The Empire Strikes Back, Rogue One: A Star Wars Story, Star Wars: Episode VIII - The Last Jedi
+
+Sat, 25 Apr 2026 20:05:12 GMT
+
+https://collider.com/best-scene-from-every-star-wars-movie/
+
+There are a total of 12 theatrically released Star Wars movies, and each of them has at least one standout scene that's worth highlighting.
+---------
+
+# Apple TV’s 3-Part Sci-Fi Series Is So Good, You’ll Finish It in One Sitting
+
+TV News, Severance, Apple TV, Sci-Fi, Pluribus
+
+Sat, 25 Apr 2026 20:00:12 GMT
+
+https://collider.com/apple-tv-sci-fi-series-severance-streaming-success-april-2026/
+
+Apple TV's only sci-fi show with no bad episodes, Severance, has become the perfect weekend binge before the premiere of Season 3.
+---------
+
+# 'Silo': Apple TV's Hard Sci-Fi Masterpiece Has Reinvented the Genre
+
+Features, Silo, Upcoming Tease
+
+Sat, 25 Apr 2026 20:30:17 GMT
+
+https://movieweb.com/silo-season-3-apple-tv-underrated-masterpiece/
+
+Don't worry, you have time to catch up before its return.
+---------
+
+# Samara Weaving Calls 'Over Your Dead Body' a Metaphor for Couples' Therapy
+
+Exclusives, Samara Weaving, Over Your Dead Body
+
+Sat, 25 Apr 2026 20:24:07 GMT
+
+https://movieweb.com/over-your-dead-body-couples-therapy-exclusive/
+
+The battle of the sexes heats up in Samara Weaving and Jason Segel's new action comedy.
+---------
+
+# 'Watch Dogs' Star Reveals Long-Awaited Update on Video Game Adaptation
+
+Movie News, Watch Dogs, Tom Blyth
+
+Sat, 25 Apr 2026 20:01:44 GMT
+
+https://movieweb.com/watch-dogs-update-video-game-adaptation/
+
+After more than a decade in development hell, the movie's finally almost here.
+---------
+
+# Francis Ford Coppola's Crime Thriller Masterpiece 'The Godfather' Streams on Paramount+ in May 2026
+
+Movie News, The Godfather, Paramount Plus, Coming/Leaving Streaming
+
+Sat, 25 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/the-godfather-streaming-free-paramount-may-2026/
+
+The "second-best movie of all time," Francis Ford Coppola's 'The Godfather' is streaming on Paramount+ in May 2026.
+---------
+
+# 6 Michael Jackson Documentaries To Watch After 'Michael'
+
+Movie Lists, Michael
+
+Sat, 25 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/michael-jackson-documentaries/
+
+The 'Michael' biopic might not check all your boxes, but these explore the full scope of his music, legacy, and controversies.
+---------
+
+# The Best Movies About FBI Agents, Ranked
+
+Movie Lists, Crime
+
+Sat, 25 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/best-movies-about-fbi-agents-ranked/
+
+Meticulously researched or more fanciful, here are the 12 best films we’ve enjoyed about the Federal Bureau of Investigation.
+---------
+
 # Did The MCU Just Reveal A Secret New Avengers Character?
 
 Superheroes, Daredevil: Born Again, Thunderbolts*, Marvel Cinematic Universe
