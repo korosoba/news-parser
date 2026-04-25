@@ -1,3 +1,14 @@
+# Say Goodbye to the Most Violent World War II Thriller Ever Made
+
+Movie News, Sisu, Sisu: Road to Revenge, World War II
+
+Sat, 25 Apr 2026 08:00:13 GMT
+
+https://collider.com/sisu-most-violent-ww2-thriller-leaving-prime-video-april-2026/
+
+Sisu is leaving Prime Video soon, so now’s the time to catch the blood-soaked WW2 thriller. Here's how long you have to watch it.
+---------
+
 # The OG Fallout Is Being Remade After 29 Years
 
 Gaming, Fallout, Fallout: New Vegas
