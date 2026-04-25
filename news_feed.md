@@ -1,3 +1,113 @@
+# Every Michael Jackson Solo Album Ranked (2026 Biopic Guide)
+
+Music, Michael, Michael Jackson, Pop, Jaafar Jackson
+
+Sat, 25 Apr 2026 11:40:52 GMT
+
+https://screenrant.com/every-michael-jackson-solo-album-ranked-michael-biopic/
+
+Ranking MJ’s solo albums from Motown to Thriller. The 'Michael' biopic is officially in theaters!
+---------
+
+# Cyberpunk 2077: Night City Reborn Update Released, Completely Changes The Game
+
+Gaming, Cyberpunk 2077
+
+Sat, 25 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/cyberpunk-2077-night-city-reborn-april-2026-mod-update/
+
+The Night City Reborn mod collection for Cyberpunk 2077 receives a major update, adding over 600 mods that enhance graphics, vehicles, and more.
+---------
+
+# Netflix's Narcos Crime Series Revolutionized Prestige TV
+
+TV, Narcos, Netflix, Crime
+
+Sat, 25 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/netflix-narcos-rivals-the-sopranos/
+
+The Sopranos will always be the foundation, but Narcos opened up the world of organized crime to a much more unforgiving level.
+---------
+
+# Netflix's 95% RT Sci-Fi Movie Is Quietly One of the Best Films on the Platform Right Now
+
+Movie Features, They Cloned Tyrone, John Boyega, Jamie Foxx, Netflix
+
+Sat, 25 Apr 2026 11:54:13 GMT
+
+https://collider.com/they-cloned-tyrone-netflix-sci-fi-movie-best-film-to-stream/
+
+Netflix's 95% RT sci-fi hit They Cloned Tyrone is one of Netflix's best hidden gems, weaving a wild conspiracy tale, satire, and mystery.
+---------
+
+# Apple TV's 8-Part Thriller Is Quietly Becoming Its Perfect Weekend Binge
+
+TV Features, Imperfect Women, Apple TV, Kerry Washington, Elisabeth Moss
+
+Sat, 25 Apr 2026 11:47:13 GMT
+
+https://collider.com/imperfect-women-apple-tv-thriller-perfect-weekend-binge/
+
+Apple TV's Imperfect Women is a captivating 8-part thriller that explores complex female friendships, betrayal, and murder.
+---------
+
+# 100 Years Before 'Terminator,' This Forgotten Film Invented the Sci-Fi Robot
+
+Movie Features, Classics, Sci-Fi, A Trip to the Moon, Looney Tunes
+
+Sat, 25 Apr 2026 11:47:13 GMT
+
+https://collider.com/first-terminator-sci-fi-movie-robot-gugusse-and-the-automaton-silent-film/
+
+Gugusse and the Automaton, a lost 1897 Georges Méliès film, has finally been rediscovered, and leaves the blueprint for sci-fi robots in movies.
+---------
+
+# Forget Jason Bourne, Matt Damon's Forgotten 2024 Crime Thriller Officially Makes a Streaming Comeback
+
+Movie News, The Instigators, Matt Damon, Apple TV, Doug Liman
+
+Sat, 25 Apr 2026 11:46:13 GMT
+
+https://collider.com/matt-damon-crime-thriller-jason-bourne-replacement-the-instigators-global-streaming-success-apple-tv-april-2026/
+
+Before The Odyssey this summer, Matt Damon's 41% Rotten Tomatoes action thriller is staging a comeback on streaming.
+---------
+
+# Netflix’s Gritty 6-Part Western Is the Closest Live-Action ‘Red Dead Redemption’ Yet
+
+TV Features, Netflix, American Primeval, Taylor Kitsch, Betty Gilpin
+
+Sat, 25 Apr 2026 11:31:12 GMT
+
+https://collider.com/american-primeval-netflix-western-similarities-red-dead-redemption/
+
+Netflix's 6-episode Western series, American Primeval, is the closest thing we get to a live-action adaptation of Red Dead Redemption.
+---------
+
+# Say Goodbye to Guy Ritchie’s 2-Part Detective Saga on Prime Video
+
+Movie News, Guy Ritchie, Robert Downey Jr, Jude Law, Sherlock Holmes
+
+Sat, 25 Apr 2026 11:30:12 GMT
+
+https://collider.com/guy-ritchie-detective-crime-saga-sherlock-holmes-leaving-prime-april-2026/
+
+Sherlock Holmes is leaving Prime Video soon, giving fans one last chance to revisit Guy Ritchie’s hit mystery.
+---------
+
+# Aaron Taylor-Johnson Reveals Why He’s Jealous of This Actor-Director Combo
+
+Exclusives, Fuze, Aaron Taylor-Johnson, Werwulf, Theo James
+
+Sat, 25 Apr 2026 11:11:13 GMT
+
+https://collider.com/aaron-taylor-johnson-theo-james-fuze-movie-robert-eggers-werwulf-comments/
+
+Aaron Taylor-Johnson discusses training and working alongside experts for Fuze, working with Tom Ford, and reuniting with Robert Eggers for Werwulf.
+---------
+
 # Janet Jackson's Absence Explained In Michael Jackson Biopic: LaToya Jackson Speaks Out
 
 Movies, Michael
