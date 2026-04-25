@@ -1,3 +1,91 @@
+# Pokémon Crystal Reflection Makes Johto Feel New Again
+
+Gaming, Pokemon
+
+Sat, 25 Apr 2026 10:00:20 GMT
+
+https://screenrant.com/pokemon-crystal-reflection-johto-rom-hack/
+
+Discover how Pokémon Crystal Reflection breathes new life into the Johto region with its curated experience, featuring custom battles, and more.
+---------
+
+# Steam Near-Perfect Fantasy Gem Is 100% Free To Keep For 24 Hours
+
+Gaming, Steam
+
+Sat, 25 Apr 2026 09:31:18 GMT
+
+https://screenrant.com/steam-near-perfect-fantasy-game-free-24-hours/
+
+Discover the hidden gem Nocturnal, a highly-rated fantasy action-adventure game on Steam, available for free download.
+---------
+
+# Star Trek Revealed the New Faces of the Franchise After Paramount Killed Trek's Streaming Run
+
+TV, Star Trek, Star Trek: Picard, Sci-Fi
+
+Sat, 25 Apr 2026 10:00:13 GMT
+
+https://www.cbr.com/star-trek-revealed-new-franchise-faces-jack-crusher-sidney-laforge-before-killing-streaming-run/
+
+As Paramount gears up to take Star Trek in a new direction, two characters introduced in Picard are the perfect ones to take it forward.
+---------
+
+# 10 Sci-Fi Tropes That Fans Never Want to Stop Seeing
+
+Movies, Sci-Fi, Demolition Man, Minority Report
+
+Sat, 25 Apr 2026 10:00:13 GMT
+
+https://www.cbr.com/greatest-sci-fi-tropes-aged-well/
+
+For sci-fi fans, there are tried and true, go-to tropes audiences never want to stop seeing on screen.
+---------
+
+# Forget 'Stranger Things': These 8 Sci-Fi Shows Have Much Better Writing
+
+TV, Stranger Things, Dark, Westworld, Severance
+
+Sat, 25 Apr 2026 10:05:17 GMT
+
+https://collider.com/sci-fi-shows-better-writing-than-stranger-things/
+
+Dark, Westworld, Arcane, Black Mirror, Severance, Fringe, and more make up our list of sci-fi shows with better writing than Stranger Things.
+---------
+
+# 6 Great Superhero TV Shows With Plot Holes Too Big To Ignore
+
+TV, Superhero, Smallville, Secret Invasion, Loki
+
+Sat, 25 Apr 2026 10:02:16 GMT
+
+https://collider.com/superhero-shows-with-plot-holes/
+
+Dive into the glaring plot holes in popular superhero TV shows that break their own logic, seen in shows like Moon Knight and Agents of S.H.I.E.L.D.
+---------
+
+# HBO Max’s 3-Part Sci-Fi Series Is Officially One of Its Best Sci-Fi Shows To Watch
+
+TV News, The Last of Us, Sci-Fi, HBO Max
+
+Sat, 25 Apr 2026 10:00:13 GMT
+
+https://collider.com/the-last-of-us-divisive-sci-fi-series-roaring-back-streaming-hbo-max-april-2026/
+
+The Last of Us is roaring back on streaming as HBO’s divisive sci-fi hit surges in popularity again. Find out more here.
+---------
+
+# Say Goodbye to Nicole Kidman’s 105-Minute Fantasy Cult Classic Next Month
+
+Movie News, Nicole Kidman, Practical Magic, Fantasy, HBO Max
+
+Sat, 25 Apr 2026 09:40:13 GMT
+
+https://collider.com/nicole-kidman-fantasy-cult-classic-practical-magic-leaving-streaming-hbo-max-may-2026/
+
+Nicole Kidman's fantasy classic, Practical Magic, also starring Sandra Bullock, is leaving streaming ahead of its sequel. Find out more here.
+---------
+
 # Star Wars Jedi 3 Open World Setting Splits Gamers
 
 Gaming, Star Wars, Star Wars Jedi: Survivor, Star Wars Jedi: Fallen Order
