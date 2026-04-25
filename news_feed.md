@@ -1,3 +1,256 @@
+# Rooster Episode 8 Clip Sees Cristle Set Ground Rules For Greg
+
+Exclusive, Rooster, Steve Carell
+
+Sat, 25 Apr 2026 17:01:12 GMT
+
+https://screenrant.com/video/rooster-episode-8-steve-carell-annie-mumolo-clip/
+
+Exclusive: ScreenRant presents a clip from Rooster episode 8, in which Cristle (Annie Mumolo) lays down the post-breakup law for Greg (Steve Carell).
+---------
+
+# Forget God Of War, This Is The Video Game Adaptation That Can't Come Soon Enough
+
+Streaming TV, Far Cry
+
+Sat, 25 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/far-cry-tv-show-noah-hawley-upcoming-video-game-adaptation/
+
+Discover why Noah Hawley's upcoming Far Cry show for FX is the most exciting video game adaptation, offering anthology storytelling and creative freedom beyond most game-based shows.
+---------
+
+# 10 Most Iconic Pokémon From Gen 3
+
+Gaming, Pokemon
+
+Sat, 25 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/pokemon-gen-3-best-pokemon-hoenn-region/
+
+Pokémon Ruby and Sapphire gave us some pretty iconic designs, but some of these Gen 3 Pokémon from Hoenn are simply better than the rest.
+---------
+
+# Stranger Things' New Show Achieves Something That The Series Finale Failed At
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Sat, 25 Apr 2026 16:45:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-final-fight-better-series-finale/
+
+Stranger Things' new spinoff shows audiences a version of what could have been had the Stranger Things finale done one sequence differently.
+---------
+
+# Event Horizon's Sequel Confirms The Original Movie's Ending Was A Lie
+
+Movies, Event Horizon, Horror
+
+Sat, 25 Apr 2026 16:41:19 GMT
+
+https://screenrant.com/event-horizon-inferno-comic-sequel-one-survivor-ending/
+
+Event Horizon's sequel not only confirms which characters survived the original movie, but also that the ending itself was a major lie.
+---------
+
+# 2026 Is Officially The Year Of The Space Western
+
+Streaming TV, The Mandalorian and Grogu, Dune: Part Three, Firefly, Lanterns, Supergirl
+
+Sat, 25 Apr 2026 16:32:20 GMT
+
+https://screenrant.com/2026-space-westerns-lanterns-mandalorian-grogu-firefly/
+
+The Space Western has been a subgenre of science-fiction for decades now, but 2026 will be its most prolific, high-profile, franchise-driven year yet.
+---------
+
+# My Hero Academia Hypes Final Return with New Sneak Peek
+
+Anime, My Hero Academia
+
+Sat, 25 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/my-hero-academia-more-final-episode-sneak-peek/
+
+My Hero Academia's final epilogue OVA, "More" gives fans a new sneak peek with a new trailer ahead of its release in a week.
+---------
+
+# Beef Is Officially Netflix's Version Of The White Lotus
+
+Streaming TV, Beef
+
+Sat, 25 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/netflix-beef-anthology-the-white-lotus-similar-show/
+
+When The White Lotus first premiered, there was nothing like it, but now, Netflix has its own version of Mike White's eat-the-rich satire series.
+---------
+
+# GTA 6 Boss Delivers Promising Update On AI Use In Games
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6, Rockstar Games
+
+Sat, 25 Apr 2026 16:30:19 GMT
+
+https://screenrant.com/gta-6-ai-use-rockstar-take-two-ceo-comments/
+
+CEO Strauss Zelnick discusses his stance on AI in gaming, believing it should be used as a support tool rather than replacing human workers.
+---------
+
+# Elden Ring’s Set Photos Officially Confirm 1 Big Game Scene Is In The Movie
+
+Movies, Elden Ring
+
+Sat, 25 Apr 2026 16:25:20 GMT
+
+https://screenrant.com/elden-ring-set-photo-opening-game-movie-scene/
+
+One of Elden Ring's biggest and most well-known scenes has been confirmed to appear at least in part in the upcoming 2028 movie adaptation.
+---------
+
+# Netflix's Comedy Hit Series Running Point Is Officially the No. 1 Show in America
+
+TV, Running Point
+
+Sat, 25 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/justin-theroux-running-point-comedy-netflix-success-april-2026/
+
+The series just returned with new episodes and it's already a hit.
+---------
+
+# Netflix's Havoc is Already an Action Classic For Fans of the Genre
+
+Movies, Havoc, Netflix
+
+Sat, 25 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/netflix-havoc-tom-hardy-timothy-olyphant-modern-classic/
+
+Netflix's Havoc not only features great performances from Timothy Olyphant and Tom Hardy, but it also establishes itself as a must-watch action hit.
+---------
+
+# All 3 Original Star Wars Movies Are Masterpieces, But One Is Untouchable
+
+Movies, Star Wars
+
+Sat, 25 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/all-original-star-wars-movies-list/
+
+The original Star Wars movies changed cinema forever, but the best one did more for the franchise than any other.
+---------
+
+# The Walking Dead's Most Controversial Character Got a Radically Different Fate in the Source Material
+
+TV, The Walking Dead, AMC, Horror
+
+Sat, 25 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/the-walking-dead-andrea-death-tv-comics-differences/
+
+Andrea Harrison wasn't a fan-favorite on AMC's adaptation of The Walking Dead, but she received an ending that fit her character's tragic arc.
+---------
+
+# Great Anime That Chose the Least Interesting Endgame Romance
+
+Anime, Sailor Moon, Inuyasha
+
+Sat, 25 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/great-anime-boring-endgame-romance/
+
+These anime series built up stronger possibilities but chose safer, less engaging pairings in the end.
+---------
+
+# What's Coming to Peacock in May 2026? Full List of Everything Arriving
+
+Movies, Peacock
+
+Sat, 25 Apr 2026 16:14:11 GMT
+
+https://www.cbr.com/whats-coming-peacock-may-2026-full-list/
+
+Peacock will be great for Quentin Tarantino fans in May.
+---------
+
+# 10 K-Dramas That Will Keep You Hooked From Start to Finish
+
+TV, South Korea, Bloodhounds, The Trauma Code: Heroes on Call, Lovely Runner
+
+Sat, 25 Apr 2026 17:04:13 GMT
+
+https://collider.com/k-dramas-keep-you-hooked-start-to-finish/
+
+Discover the most addictive K-dramas that are perfect for binge-watching, including Squid Game, Kingdom, and Mr. Queen.
+---------
+
+# Anya Taylor-Joy’s 127-Minute Sci-Fi Thriller Quietly Becomes a Global Streaming Favorite
+
+Movie News, The Gorge, Sci-Fi, Miles Teller, Anya Taylor-Joy
+
+Sat, 25 Apr 2026 17:00:13 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-thriller-the-gorge-streaming-success-apple-tv-april-2026/
+
+The Gorge is rising again on Apple TV’s global charts as viewers rediscover Anya Taylor-Joy’s sci-fi horror thriller.
+---------
+
+# 10 Most Universally Beloved Epic Movies of All Time, Ranked
+
+Movie, Lawrence of Arabia, The Lord of the Rings: The Return of the King, Schindler’s List, Gone with the Wind
+
+Sat, 25 Apr 2026 16:52:13 GMT
+
+https://collider.com/most-universally-beloved-epic-movies-all-time-ranked/
+
+From Gladiator to Titanic, explore the most beloved epic films ever made, where scale, emotion, and legacy collide beautifully.
+---------
+
+# Sydney Sweeney's 2025 Box Office Disaster Has Officially Become a Sleeper Hit on Streaming
+
+Movie Features, Sydney Sweeney, Christy, HBO Max, Drama
+
+Sat, 25 Apr 2026 16:36:13 GMT
+
+https://collider.com/sydney-sweeney-christy-hbo-max-streaming-top-10-sleeper-hit/
+
+Sydney Sweeney's boxing movie Christy was a box office flop, though it's found a new life on HBO Max.
+---------
+
+# 10 Most Undeniable Film Noir Movie Classics, Ranked
+
+Movie, Double Indemnity, Classics, The Maltese Falcon, Film Noir
+
+Sat, 25 Apr 2026 16:18:14 GMT
+
+https://collider.com/film-noir-movie-classics-ranked/
+
+The Maltese Falcon, Double Indemnity, and The Killers are all among the greatest, most undeniable classics in the film noir genre.
+---------
+
+# 'Breaking Bad's "To'hajiilee" - The Greatest Western TV Episode of the Century
+
+Features, Western
+
+Sat, 25 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/tohajiilee-breaking-bad-taylor-sheridan/
+
+Breaking Bad's "To'hajiilee" has all the ingredients to rank superior to all contemporary Westerns, including Taylor Sheridan's.
+---------
+
+# Saddest Movies on Paramount+ to Watch Right Now
+
+Movie Lists, Paramount Plus
+
+Sat, 25 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/saddest-movies-streaming-paramount-plus/
+
+The most heartbreaking movies currently on Paramount+ cover devastating dramas and deeply moving films.
+---------
+
 # How Final Fantasy 14 Is Embracing Change With Evercold, According To Producer Yoshi-P
 
 Gaming, Final Fantasy 14 (2010), Triple-A Games
