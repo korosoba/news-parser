@@ -1,3 +1,245 @@
+# 8 Greatest Apple TV Shows No One Ever Talks About
+
+Streaming TV, Apple TV
+
+Sat, 25 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/greatest-apple-tv-shows-nobody-talks-about/
+
+Apple TV has some of the best television on the air right now, but there are still plenty of shows people aren't giving enough love to.
+---------
+
+# Cyberpunk 2077 Meets L.A. Noire In New Adventure Game
+
+Gaming, Cyberpunk 2077, L.A. Noire
+
+Sat, 25 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-artificial-detective-2027-game/
+
+If you’re stuck waiting for a Cyberpunk sequel, or want more stylized detective games like L.A. Noire, look no further than this upcoming PC game.
+---------
+
+# 10 Near-Perfect Anime Turning 10 In 2026
+
+Anime
+
+Sat, 25 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/best-anime-openings-turn-10-2026/
+
+Discover the anime celebrating their 10-year anniversaries in 2026, each featuring unforgettable stories, characters, and moments.
+---------
+
+# A Key Marvel Creative Was Resistant Against Iron Man's Death In Avengers Endgame: "I Was Wrong"
+
+Movies, Marvel Cinematic Universe, Avengers: Endgame, Jon Favreau, Iron Man
+
+Sat, 25 Apr 2026 13:55:32 GMT
+
+https://screenrant.com/avengers-endgame-tony-stark-iron-man-death-jon-favreau/
+
+Not all Marvel creatives liked the idea of Iron's Man's death in Avengers: Endgame, although this individual now admits it was the right call.
+---------
+
+# 6 Hit 70s Movies That Aged Like Milk
+
+Movies, Saturday Night Fever, Grease, Meatballs, Last Tango in Paris, The Deer Hunter, Midnight Express
+
+Sat, 25 Apr 2026 13:45:18 GMT
+
+https://screenrant.com/70s-movies-hit-aged-like-milk/
+
+These hit ’70s movies were once beloved, but outdated themes, troubling scenes, and offensive portrayals make them far harder to watch today.
+---------
+
+# Elden Ring Fans Split On Iconic Character's New Look
+
+Gaming, Elden Ring, Elden Ring: Shadow of the Erdtree, PC
+
+Sat, 25 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/elden-ring-marika-film-design-leak-fan-reaction/
+
+Elden Ring is famous for its incredibly unique character designs, and a new leak has fans debating one iconic character's 2028 return.
+---------
+
+# Superman's Permanent New Power Is a Genius Twist on X-Ray Vision
+
+DC Comics, Superman
+
+Sat, 25 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/superman-new-power-strength-level-spiderman/
+
+The Marvel-led Superman special has just dropped a subtle yet exceptionally interesting detail about the Man of Steel’s iconic X-ray vision.
+---------
+
+# The Mummy's Hidden Evil Dead Connection: A Secret Tie-In Revealed
+
+Movies, Lee Cronin's The Mummy, Evil Dead
+
+Sat, 25 Apr 2026 13:16:19 GMT
+
+https://screenrant.com/the-mummy-evil-dead-rise-bixler-tie-in/
+
+Lee Cronin's The Mummy is a gruesomely fun film that gives fans a new twist on Mummy lore, but it also has an almost impossible to spot movie tie-in.
+---------
+
+# Ethan Hawke's Hit 3-Part Batman Series Officially Returns Next Month
+
+TV, Batwheels
+
+Sat, 25 Apr 2026 13:10:50 GMT
+
+https://screenrant.com/batwheels-season-3c-release-date-hbo-max/
+
+Five-time Academy Award nominee Ethan Hawke returns to his stealth superhero role, with new episodes of a unique DC series set to premiere soon.
+---------
+
+# Daredevil: Born Again Season 3 Set Photos Confirm One Popular Villain Theory Is Coming True
+
+TV, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Sat, 25 Apr 2026 13:10:48 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-heather-muse-theory-true-set-photos/
+
+With Daredevil: Born Again season 3 filming, new set photos confirm that one popular theory is officially coming true in the upcoming episodes.
+---------
+
+# Riz Ahmed Says He’s “Never Seen Anything Like” Tom Cruise in Digger
+
+Movies, Digger
+
+Sat, 25 Apr 2026 14:06:34 GMT
+
+https://www.cbr.com/riz-ahmed-tom-cruise-digger-praise/
+
+Rogue One: A Star Wars Story star Riz Ahmed opens up about his time on the set of Alejandro G. Iñárritu's Tom Cruise-led black comedy.
+---------
+
+# Vince Vaughn’s 76% Sci-Fi Action Mike & Nick & Nick & Alice Is Climbing Disney+ Global Charts
+
+Movies, Mike & Nick & Nick & Alice
+
+Sat, 25 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/vince-vaughn-comedy-mike-nick-nick-alice-disney-plus-global-success-april-2026/
+
+After less than a month online, Vince Vaughn's new sci-fi action comedy is setting its sights at the top of the streaming charts.
+---------
+
+# Captain Kirk's The Final Frontier Line Hits Harder Than Any Star Trek Quote Since
+
+Movies, Star Trek, Star Trek V: The Final Frontier
+
+Sat, 25 Apr 2026 14:00:13 GMT
+
+https://www.cbr.com/captain-kirk-the-final-frontier-line-best-star-trek-quote/
+
+Kirk’s line in The Final Frontier represents the philosophy and humanism of the franchise.
+---------
+
+# The 20 Best Doc Brown Quotes In the Back to the Future Franchise
+
+Movies, Back to the Future, Sci-Fi, robert zemeckis
+
+Sat, 25 Apr 2026 13:30:13 GMT
+
+https://www.cbr.com/back-to-the-future-franchise-doc-brown-best-quotes-list/
+
+From Marty McFly to Biff Tannen, the Back to the Future movies have plenty of memorable characters, but none with as many iconic quotes as Doc Brown.
+---------
+
+# Line of Duty Series 1 Retro Review: One of the Best TV Seasons Ever Made
+
+TV, Line of Duty
+
+Sat, 25 Apr 2026 13:30:13 GMT
+
+https://www.cbr.com/line-of-duty-tv-show-series1-retro-review/
+
+Line of Duty Series 1 is what made the BBC TV show a phenomenon, thanks to impeccable acting and incredible storytelling from start to finish.
+---------
+
+# Biggest Fumbles in Sci-Fi Anime History
+
+Anime, Psycho-Pass, Darling in the Franxx
+
+Sat, 25 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/biggest-fumbles-in-sci-fi-anime-history/
+
+These sci-fi anime had the potential to be great but missed the mark in major ways.
+---------
+
+# 83 Years Later, Alfred Hitchcock's Masterpiece Remains One of the Only Film Noirs With 100% on Rotten Tomatoes
+
+Movie Features, Shadow of a Doubt, Alfred Hitchcock, Film Noir, Thriller
+
+Sat, 25 Apr 2026 14:04:13 GMT
+
+https://collider.com/shadow-of-a-doubt-alfred-hitchcock-film-noir-masterpiece/
+
+One of the few film noir movies that has received 100% on Rotten Tomatoes is Alfred Hitchcock’s 1943 mystery thriller, Shadow of a Doubt.
+---------
+
+# Netflix’s 6-Part ‘The Handmaid’s Tale’ Replacement Is an Instant Streaming Hit
+
+TV News, Unchosen, Netflix, The Handmaid's Tale, Asa Butterfield
+
+Sat, 25 Apr 2026 13:46:14 GMT
+
+https://collider.com/netflix-psychological-thriller-unchosen-streaming-success-april-2026/
+
+Netflix’s answer to The Handmaid’s Tale, Unchosen, is a colossal hit for the streaming giant. Find out more about the new thriller here.
+---------
+
+# Only 3 Movie Trilogies Are More Rewatchable Than 'The Lord of the Rings'
+
+Movie, Scream, The Lord of the Rings, The Mighty Ducks, High School Musical
+
+Sat, 25 Apr 2026 13:41:13 GMT
+
+https://collider.com/movie-trilogies-more-rewatchable-than-the-lord-of-the-rings/
+
+Peter Jackson's The Lord of the Rings trilogy is iconic for a reason, but three-parters like Scream and High School Musical are even more rewatchable.
+---------
+
+# 7 Must-Watch Movies Leaving Netflix in May
+
+Movie, Netflix, Sicario, How to Train Your Dragon, Hell or High Water
+
+Sat, 25 Apr 2026 13:23:14 GMT
+
+https://collider.com/movies-leaving-netflix-may-2026/
+
+Say goodbye to the animated masterpiece How to Train Your Dragon and the action thriller Sicario, as these movies are set to leave Netflix in May.
+---------
+
+# Netflix Finds Global Hit in Mark Wahlberg's Divisive Action Thriller 'Shooter'
+
+Movie News, Mark Wahlberg, Shooter, Netflix, Action, Thriller
+
+Sat, 25 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/shooter-netflix-stream-april-2026/
+
+Almost 20 years later, the throwback action outing is being rediscovered on streaming.
+---------
+
+# 'Peaky Blinders': Netflix's 6-Season Crime Thriller Masterpiece Has a Perfect Cast
+
+Features, Netflix, Peaky Blinders
+
+Sat, 25 Apr 2026 14:00:17 GMT
+
+https://movieweb.com/netflix-peaky-blinders-perfect-cast/
+
+Netflix's 'Peaky Blinders' has one of the best casts of any crime thriller, blending emerging talent with established Hollywood names.
+---------
+
 # The 2000s' Two Biggest Fantasy Franchises Will Face The Same Impossible Challenge Just 12 Months Apart
 
 TV, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Harry Potter
