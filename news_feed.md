@@ -1,3 +1,201 @@
+# Apple TV's 6-Hour Sci-Fi Series That's 'Black Mirror Meets Severance' Is Quietly One Of Its Best Shows
+
+Classic TV, Masked Recs
+
+Sat, 25 Apr 2026 22:00:18 GMT
+
+https://screenrant.com/sunny-apple-tv-black-mirror-meets-severance-sci-fi-show/
+
+There's plenty of great sci-fi shows on Apple TV+, which makes the fact one of its best is also its most underrated incredibly frustrating.
+---------
+
+# After 86 Years, An Underrated Batman Villain Is Ready To Redefine DC's Cinematic Future
+
+DC Comics, DC Universe, Clayface, Superman, Lanterns
+
+Sat, 25 Apr 2026 22:00:18 GMT
+
+https://screenrant.com/clayface-redefine-dc-cinematic-future-batman-villain/
+
+The new DCU is as malleable as clay, but it could dry out.
+---------
+
+# 6 Batman: The Animated Series Episodes With Multiple A-List Stars
+
+Superheroes, DC Universe, Batman, Batman: The Animated Series
+
+Sat, 25 Apr 2026 21:55:19 GMT
+
+https://screenrant.com/batman-the-animated-series-multiple-a-list-actors-episodes/
+
+The amazing hidden all-star lineup that brought depth and prestige to Gotham's world in these iconic Batman: The Animated Series episodes.
+---------
+
+# Michael’s Original Ending Revealed Before Last Minute Changes To Script
+
+Movies, Michael
+
+Sat, 25 Apr 2026 21:41:34 GMT
+
+https://screenrant.com/michael-original-ending-revealed-script-change/
+
+The original script for the new Michael Jackson film had a very different and much grimmer ending than the version audiences watched theaters.
+---------
+
+# Who Invincible Season 5's Main Villain Will Be (According To The Comics)
+
+Streaming TV, Invincible
+
+Sat, 25 Apr 2026 21:30:18 GMT
+
+https://screenrant.com/who-is-invincible-season-5-villain/
+
+According to the popular Invincible comic books, the villain Mark will face in the show’s fifth season will be a huge challenge for the young hero.
+---------
+
+# 5 Years Later, Mike Flanagan's Horror Series Tribute To Stephen King Is Still The Best Thing He's Ever Made
+
+TV, Midnight Mass, Mike Flanagan, Stephen King
+
+Sat, 25 Apr 2026 21:30:18 GMT
+
+https://screenrant.com/midnight-mass-mike-flanagan-stephen-king-tribute-best/
+
+Mike Flanagan is a complete Stephen King fanboy, and he paid homage to The King with this acclaimed 2021 horror series streaming on Netflix.
+---------
+
+# Dragon Ball Unearths Rare 35-Year-Old Art Showcasing Original Super Saiyan Goku Design
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sat, 25 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/dragon-ball-super-saiyan-goku-akira-toriyama-draft-art/
+
+Dragon Ball fans just got a look at an original Super Saiyan Goku form, as imagined by Akira Toriyama in an early draft design.
+---------
+
+# Prime Video Officially Seals the Fate of Hazbin Hotel
+
+TV, Hazbin Hotel
+
+Sat, 25 Apr 2026 21:59:36 GMT
+
+https://www.cbr.com/hazbin-hotel-renewed-season-5/
+
+The future of Hazbin Hotel at Prime Video has officially been revealed.
+---------
+
+# Wicked Star Slams Airline for Boarding Denial 'Because I'm Disabled'
+
+Movies, Wicked
+
+Sat, 25 Apr 2026 21:46:50 GMT
+
+https://www.cbr.com/wicked-marissa-bode-segregation/
+
+Wicked's Marissa Bode claims she was denied a flight due to her disability in a scathing video posted online.
+---------
+
+# Project Hail Mary's Proves an Artemis Movie Is More Likely Than Ever
+
+Movies, Project Hail Mary, Science Fiction
+
+Sat, 25 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/project-hail-mary-proves-sci-fi-artemis-adaptation/
+
+Andy Weir's Project Hail Mary and The Martian have been box office smashes - now it's time to adapt his 2017 award-winning sci-fi thriller novel
+---------
+
+# Pedro Pascal's The Great Wall Is 1 of the Most Popular Films on Prime Video in America
+
+Movies, The Great Wall
+
+Sat, 25 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/pedro-pascal-the-great-wall-creature-feature-prime-video-success-america-april-2026/
+
+The film was extremely divisive but it became an underrated masterpiece.
+---------
+
+# Guy Ritchie’s 8-Part Netflix Crime Saga Surges Ahead of New Episodes
+
+TV News, The Gentlemen, Netflix, Guy Ritchie
+
+Sat, 25 Apr 2026 22:00:12 GMT
+
+https://collider.com/guy-ritchie-netflix-crime-saga-the-gentlemen-streaming-success-april-2026/
+
+Guy Ritchie's bingeworthy Netflix crime thriller, The Gentlemen, is surging on streaming charts before the premiere of its second season.
+---------
+
+# Stephen King's Scariest 8-Part Horror Series Is the Perfect Weekend Binge
+
+TV Features, It: Welcome to Derry, Stephen King, Bill Skarsgård, HBO Max
+
+Sat, 25 Apr 2026 21:47:12 GMT
+
+https://collider.com/stephen-king-scariest-horror-tv-series-it-welcome-to-derry-perfect-binge/
+
+IT: Welcome to Derry, the latest adaptation of Stephen King's iconic novel, brings a new level of horror and depth to the beloved story.
+---------
+
+# 10 Near-Perfect Crime Shows Nobody Remembers
+
+TV, Defending Jacob, The Undoing, Escape at Dannemora, Crime
+
+Sat, 25 Apr 2026 21:41:12 GMT
+
+https://collider.com/forgotten-crime-shows-near-perfect/
+
+Discover great crime shows that have flown under the radar despite compelling storylines and standout performances, from Full Circle to Painkiller.
+---------
+
+# Tom Hardy’s Near-Perfect Sci-Fi Masterpiece Is Still a #1 Late-Night Favorite
+
+Movie News, Mad Max: Fury Road, Tom Hardy, Sci-Fi, George Miller
+
+Sat, 25 Apr 2026 21:30:12 GMT
+
+https://collider.com/tom-hardy-near-perfect-sci-fi-mad-max-fury-road-streaming-success-prime-video-apple-tv-april-2026/
+
+Tom Hardy's near-perfect sci-fi masterpiece, Mad Max: Fury Road, is still a late-night streaming favorite. Find out how to watch here.
+---------
+
+# 10 Thrillers From the 21st Century That Are Actually Perfect
+
+Movie, Thriller, The Handmaiden, The Departed, Prisoners
+
+Sat, 25 Apr 2026 21:30:12 GMT
+
+https://collider.com/thriller-movies-21st-century-perfect/
+
+From David Fincher's Zodiac to Christopher Nolan's Memento, these thriller movies from the 21st century are the cinematic definition of perfection.
+---------
+
+# 8 New 'Stranger Things' Lore & Story Changes From 'Tales From '85'
+
+TV Lists, Stranger Things: Tales from '85
+
+Sat, 25 Apr 2026 22:01:17 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-lore-story-changes/
+
+'Stranger Things: Tales from '85,' is the animated spin-off series of 'Stranger Things' on Netflix and includes several lore and character changes.
+---------
+
+# 'Highlander': Release Window, Cast, Plot, & Everything We Know
+
+Features, Highlander, Everything We Know
+
+Sat, 25 Apr 2026 21:31:18 GMT
+
+https://movieweb.com/highlander-reboot-henry-cavill-everything-we-know/
+
+A darker, bigger 'Highlander' is on the way. Here's what we know about Henry Cavill's reboot, including cast and release plans.
+---------
+
 # Forget RJD's Doctor Doom, The Best Supervillain Of 2026 Has Already Been Decided
 
 Streaming TV, Avengers: Doomsday, Invincible
