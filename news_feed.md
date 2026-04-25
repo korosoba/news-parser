@@ -1,3 +1,179 @@
+# Forget RJD's Doctor Doom, The Best Supervillain Of 2026 Has Already Been Decided
+
+Streaming TV, Avengers: Doomsday, Invincible
+
+Sat, 25 Apr 2026 21:15:18 GMT
+
+https://screenrant.com/best-2026-supervillain-not-doctor-doom-thragg/
+
+Forget Robert Downey Jr.'s Doctor Doom, a new villain has taken the crown as the most terrifying of 2026.
+---------
+
+# Sonic 4 Is Pulling Its Metal Sonic Story From An Unlikely Source
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog
+
+Sat, 25 Apr 2026 21:15:18 GMT
+
+https://screenrant.com/sonic-4-metal-sonic-story-pulled-comic-brotherhood-metallix/
+
+Sonic the Hedgehog 4 is pulling its Metal Sonic story from an unlikely source, which only serves to make the upcoming movie even stronger.
+---------
+
+# Beta Ray Bill Leads Marvel's Defenders Of Light and Dark Against The Queen In Black
+
+Marvel Comics, Thor, The Avengers, Marvel
+
+Sat, 25 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/thor-beta-ray-bill-defenders-new-roster/
+
+This Summer, Marvel's new Thor assembles his own cosmic version of the Avengers to combat one of the God of Thunder's most powerful villains.
+---------
+
+# What Is The Heaviest Thing Hulk Has Lifted In Official Marvel Canon?
+
+Marvel Comics, Hulk
+
+Sat, 25 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/hulk-heaviest-think-lifted-marvel/
+
+The Hulk's latest feat in Hulk: Smash Everything has shattered expectations, as the hero lifts the heaviest thing he's ever tackled in Marvel canon.
+---------
+
+# Game Of Thrones' 13 Best Lannisters, Ranked
+
+Classic TV, Game Of Thrones, House of the Dragon, Game of Thrones
+
+Sat, 25 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/game-of-thrones-lannisters-ranked/
+
+They may not be the most likable characters in all of Westeros, but their family drama is some of the most compelling in the entire fantasy saga.
+---------
+
+# Hogwarts Legacy Finally Has A House-Point System
+
+Gaming, Hogwarts Legacy
+
+Sat, 25 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/hogwarts-legacy-house-point-system-mod/
+
+Hogwarts Legacy is a great game that's lacking in a lot of areas, but modders have done a brilliant job plugging those gaps.
+---------
+
+# 10 Superhero Movie Moments That Had Audiences Cheering In Theaters
+
+Classic Movies, Superhero, Ranking
+
+Sat, 25 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/superhero-movie-moments-audiences-cheering-theaters/
+
+There might not be another genre that has the ability to get the audience openly cheering than in superhero films, and here are the ones that thrived.
+---------
+
+# Mother Mary's Red Dress & Ending Performance Explained By David Lowery
+
+Movies, Mother Mary
+
+Sat, 25 Apr 2026 20:58:54 GMT
+
+https://screenrant.com/mother-mary-ending-red-dress-performance-explained-david-lowery/
+
+EXCLUSIVE: Mother Mary director David Lowrey explains why the red dress and final performance are framed the way they are at the end of the movie.
+---------
+
+# 10 Best-Written Anime Movies of the Last 10 Years
+
+Anime
+
+Sat, 25 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/best-written-anime-movies-of-the-last-10-years/
+
+These recent anime films from the last 10 years have been celebrated for their outstanding writing since they released.
+---------
+
+# Doctor Who's 'Woke' Casting Backlash Addressed by Peter Capaldi
+
+TV, Doctor Who
+
+Sat, 25 Apr 2026 21:04:13 GMT
+
+https://www.cbr.com/peter-capaldi-doctor-who-ncuti-gatwa-jodie-whittaker/
+
+Doctor Who has been criticized for its "woke" casting of the titular role in recent years.
+---------
+
+# Malcolm in the Middle Becomes a Disney+ Hit in the U.S. 2 Weeks After Revival
+
+TV, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair
+
+Sat, 25 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/malcolm-in-the-middle-sitcom-disney-plus-success-april-2026/
+
+The overwhelming success of the recently released revival series has sent a classic sitcom on a run for the top of the streaming charts.
+---------
+
+# Say Goodbye to Ridley Scott’s Terrifying Sci-Fi Horror Classic on HBO Max
+
+Movie News, alien, Sci-Fi, Horror, HBO Max
+
+Sat, 25 Apr 2026 21:15:12 GMT
+
+https://collider.com/ridley-scott-sci-fi-horror-classic-alien-leaving-hbo-max-may-2026/
+
+HBO Max is losing the greatest sci-fi horror movie of all time next month. Here's what you should know about Ridley Scott's masterpiece.
+---------
+
+# Only 7 Horror Remakes of the 2000s Were Actually Great
+
+Movie, Horror, Remake, The Texas Chainsaw Massacre, The Hills Have Eyes
+
+Sat, 25 Apr 2026 21:14:13 GMT
+
+https://collider.com/2000s-horror-movie-remakes/
+
+While the 2000s were a notoriously rough time for horror remakes, films like The Ring and House of Wax were among the few remakes actually worthwhile.
+---------
+
+# This 10/10 4-Part DCU Series Is a Necessary Binge Watch Before ‘Supergirl’ This Summer
+
+TV Features, Superman, Krypto the Superdog, Supergirl, James Gunn
+
+Sat, 25 Apr 2026 21:10:13 GMT
+
+https://collider.com/james-gunn-supergirl-krypto-saves-the-day/
+
+Krypto Saves the Day explores the connection between the Superman movie and animation, linking directly to the Supergirl movie coming this summer.
+---------
+
+# Taylor Sheridan’s Darkest Crime Series Has Become a Streaming Sensation Before Its Final Season
+
+TV News, Mayor of Kingstown, Taylor Sheridan, Jeremy Renner, Paramount Plus
+
+Sat, 25 Apr 2026 21:00:13 GMT
+
+https://collider.com/taylor-sheridan-dark-crime-series-mayor-of-kingstown-streaming-success-paramount-plus-april-2026/
+
+Taylor Sheridan's grittiest crime series, Mayor of Kingstown, has become a sensation on Paramount+ before the premiere of Season 5.
+---------
+
+# Dean Winchester's Legendary 'Supernatural' Season 5 Quote Proves Why We Need Season 16
+
+Features, Supernatural, Great Line
+
+Sat, 25 Apr 2026 21:00:18 GMT
+
+https://movieweb.com/supernatural-achilles-heel-quote-season-16/
+
+In Season 5, Dean and Sam have a heart-to-heart conversation that proves why 'Supernatural' could last forever.
+---------
+
 # 6 Major Unresolved Plots American Horror Story Season 13 Can Finish
 
 Horror, American Horror Story
