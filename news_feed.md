@@ -1,3 +1,223 @@
+# How Final Fantasy 14 Is Embracing Change With Evercold, According To Producer Yoshi-P
+
+Gaming, Final Fantasy 14 (2010), Triple-A Games
+
+Sat, 25 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/final-fantasy-14-evercold-yoshi-p-interview/
+
+We interviewed famed Final Fantasy 14 director Naoki "Yoshi P" Yoshida, to see how the team plans on evolving the game in the Evercold era.
+---------
+
+# The Simpsons' Unlikely Origins: From Tracey Ullman Show to Iconic Series
+
+Network TV, The Simpsons
+
+Sat, 25 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/the-simpsons-origins-1987-tracey-ullman-show-debut/
+
+The Simpsons is in its 37th season — it's one of the longest-running TV shows of all time — but it's actually been around for even longer than that.
+---------
+
+# One Piece's Return Is The Best The Anime's Been In 15 Years
+
+Anime, One Piece
+
+Sat, 25 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/one-piece-return-best/
+
+One Piece has finally kicked off the Elbaph Arc, and it's already bringing back the one thing the series has been missing for years.
+---------
+
+# Elden Ring: Distant Tales Between Official Teaser Praised By Gamers
+
+Gaming, Elden Ring
+
+Sat, 25 Apr 2026 16:00:20 GMT
+
+https://screenrant.com/elden-ring-distant-tales-between-official-teaser/
+
+Elden Ring fans are eagerly anticipating the release of the upcoming manga series, Elden Ring: Distant Tales, set to launch on July 16.
+---------
+
+# Michael Jackson Biopic's Record-Breaking Debut Unseats 2026's Biggest Box Office Hit On U.S. Chart
+
+Movies, Box Office, Michael
+
+Sat, 25 Apr 2026 16:00:15 GMT
+
+https://screenrant.com/michael-2026-box-office-opening-weekend-domestic-chart-report/
+
+The Michael Jackson biopic smashes records during its opening weekend, dethroning a blockbuster that has been No. 1 for three consecutive weekends.
+---------
+
+# Pet Sematary (2019) Remake: An Underrated Adaptation Of Stephen King's Iconic Story
+
+Movies, Stephen King, Pet Sematary
+
+Sat, 25 Apr 2026 15:56:19 GMT
+
+https://screenrant.com/stephen-king-movie-pet-sematary-2019-underappreciated/
+
+Many Stephen King adaptations go under the radar for most fans because of how they don't meet expectations, but this 2019 remake deserved better.
+---------
+
+# Christian Bale's $109M Thriller Hit Officially Releases On Hulu After Making 2x Its Budget
+
+Movies, Masked Recs, Christian Bale
+
+Sat, 25 Apr 2026 15:55:59 GMT
+
+https://screenrant.com/christian-bale-the-prestige-movie-hulu-release-date-streaming/
+
+A thriller starring Oscar-winner Christian Bale that doubled its budget at the global box office sets its official Hulu streaming release date.
+---------
+
+# Andy Serkis’ New Fantasy Movie Is Subtly A Sequel To Classic 81-Year-Old Dystopian Novel
+
+Movies, Animal Farm, Andy Serkis
+
+Sat, 25 Apr 2026 15:50:26 GMT
+
+https://screenrant.com/andy-serkis-animal-farm-movie-book-sequel-subtle/
+
+EXCLUSIVE: After starring in and directing numerous sequels, Andy Serkis' new fantasy movie is more of a subtle sequel to its source material.
+---------
+
+# Netflix's Wednesday Is Officially Changing Genre In Season 3
+
+Streaming TV, Wednesday
+
+Sat, 25 Apr 2026 15:45:19 GMT
+
+https://screenrant.com/wednesday-netflix-change-genre-season-3/
+
+For nearly half a decade, Wednesday has been Netflix's best coming-of-age drama, but the gothic adaptation of The Addams Family is due for a change.
+---------
+
+# Prime Video's 8-Hour Sci-Fi Series From An Iconic Director Is One Of Its Best Anthology Shows
+
+Classic TV, Masked Recs
+
+Sat, 25 Apr 2026 15:42:19 GMT
+
+https://screenrant.com/tales-from-the-loop-matt-reeves-prime-video-anthology-show/
+
+One of Hollywood's most interesting modern filmmakers was a creative driving force behind one of the most innovative sci-fi TV shows of the decade.
+---------
+
+# Hello Kitty Officially Confirmed To Return Ahead Of Major Movie Debut
+
+Comics, Hello Kitty
+
+Sat, 25 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/idw-publishing-hello-kitty-and-friends-hello-world-1-release-date-confirmed/
+
+Hello Kitty is making a surprising comeback later this year, and she's putting a decidedly Sanrio spin on one of the hottest trends in the industry.
+---------
+
+# Ethan Hawke's $132M Horror Sequel Black Phone 2 Is Officially Heading to Netflix
+
+Movies, The Black Phone, Black Phone 2
+
+Sat, 25 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/ethan-hawke-black-phone-2-netflix-release-date-may-2026/
+
+One of the best horror sequels of the decade is officially heading to Netflix as its next streaming home, and fans hardly have to wait.
+---------
+
+# Avatar: The Last Airbender Hits an Unwanted New Milestone This Week
+
+Anime, The Legend of Aang: The Last Airbender, Avatar: The Last Airbender, piracy
+
+Sat, 25 Apr 2026 16:00:13 GMT
+
+https://www.cbr.com/avatar-legend-of-aang-last-airbender-unwanted-milestone-april-2026/
+
+The hotly-anticipated Avatar: The Last Airbender animated film just claimed one of the least desirable titles after the franchise's biggest leak yet.
+---------
+
+# Stranger Things: Tales From '85 Isn't Canon - And That's Okay
+
+TV, Stranger Things: Tales from '85, Stranger Things
+
+Sat, 25 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-not-canon/
+
+Stranger Things: Tales From '85 might take some liberties with lore, but whether it's canon isn't the question fans should be asking.
+---------
+
+# This 162 Episode Sci-Fi Series is Perfect For Star Trek Fans
+
+Anime, Legend Of The Galactic Heroes, Star Trek
+
+Sat, 25 Apr 2026 15:15:13 GMT
+
+https://www.cbr.com/legend-of-the-galactic-heroes-sci-fi-series-perfect-for-star-trek-fans/
+
+Legend of the Galactic Heroes is not just a formative space opera, but it's also the perfect companion anime to Star Trek's approach to sci-fi.
+---------
+
+# Fuze Review: Aaron Taylor-Johnson & Theo James Lead a Clever, Twisty Heist Thriller
+
+Movies, Fuze
+
+Sat, 25 Apr 2026 15:05:42 GMT
+
+https://www.cbr.com/fuze-review/
+
+2026's latest heist movie, Fuze, tries to reimagine the genre in a new way and mostly succeeds — except in one key aspect.
+---------
+
+# One of the ’90s’ Most Shocking Legal Thrillers Is Leaving Streaming
+
+Movie News, Primal Fear, Richard Gere, Edward Norton, Peacock
+
+Sat, 25 Apr 2026 16:00:13 GMT
+
+https://collider.com/edward-norton-primal-fear-shocking-legal-thriller-1990s-leaving-peacock-may-2026/
+
+Edward Norton became an overnight star with Primal Fear, the twisty legal thriller leaving Peacock. Find out when.
+---------
+
+# The 9-Part Mystery Series That Reshaped the MCU Is the Perfect Weekend Binge
+
+TV Features, WandaVision, Disney+, MCU, Elizabeth Olsen
+
+Sat, 25 Apr 2026 15:23:13 GMT
+
+https://collider.com/wandavision-mcu-disney-plus-perfect-weekend-binge/
+
+WandaVision reshaped the MCU with its unique format and character-driven storytelling, offering a visually captivating and emotionally charged binge.
+---------
+
+# 'Battlestar Galactica' Returns to Streaming: Acclaimed Sci-Fi Classic Finds New Home Online
+
+TV News, Battlestar Galactica, Coming/Leaving Streaming, Sci-Fi
+
+Sat, 25 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/battlestar-galactica-best-sci-fi-streaming-paramount-pluto-tv-may-2026/
+
+'Battlestar Galactica' is finally returning to streaming on May 1 with two new ways to watch what is one of the best TV shows ever made.
+---------
+
+# 'Stranger Things' Finally Solves a Frustrating Problem With Will Byers
+
+Features, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Sat, 25 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-solves-will-byers-problem/
+
+'Stranger Things: Tales from '85' is an animated spin-off series premiering on Netflix on April 23, 2026, and has an interesting Will Byers storyline.
+---------
+
 # Michael Movie Review: Young Michael Jackson's Rise Outshines Adult Narrative
 
 Movies, Michael
