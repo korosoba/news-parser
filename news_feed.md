@@ -1,3 +1,135 @@
+# Did The MCU Just Reveal A Secret New Avengers Character?
+
+Superheroes, Daredevil: Born Again, Thunderbolts*, Marvel Cinematic Universe
+
+Sat, 25 Apr 2026 19:55:19 GMT
+
+https://screenrant.com/daredevil-born-again-secret-new-avengers-character-mr-charles/
+
+An exciting reveal in one of the MCU's best new shows suggests a hidden player who may have been secretly involved with The Thunderbolts/New Avengers.
+---------
+
+# Hazbin Hotel Season 5's Fate Officially Revealed By Creator Vivienne Medrano
+
+TV, Hazbin Hotel
+
+Sat, 25 Apr 2026 19:46:44 GMT
+
+https://screenrant.com/hazbin-hotel-season-5-ending-vivienne-medrano-confirm/
+
+Hazbin Hotel season 3 is in the works, but series creator Vivienne Medrano has now revealed the fate of season 5 of the hit animated series.
+---------
+
+# After 5 Years, Hacks Reveals A Whole New Side To Deborah's Character
+
+Streaming TV, Hacks
+
+Sat, 25 Apr 2026 19:45:19 GMT
+
+https://screenrant.com/hacks-deborah-season-5-romance-character/
+
+One of Deborah's main traits is the walls she has up around her personal life, but Hacks season 5 just took a big step towards breaking them down.
+---------
+
+# 10 Near-Perfect Action Shows That No One Remembers
+
+Classic TV, Dollhouse, Nikita, Queen of the South
+
+Sat, 25 Apr 2026 19:45:19 GMT
+
+https://screenrant.com/near-perfect-action-shows-no-one-remembers/
+
+10 incredible action shows that flew under the radar, offering perfect blends of heart-racing action and compelling storytelling.
+---------
+
+# Quentin Tarantino's Forgotten Movie Is Worth Watching This Weekend
+
+Movies, Quentin Tarantino, Bruce Willis, four rooms
+
+Sat, 25 Apr 2026 19:32:09 GMT
+
+https://screenrant.com/quentin-tarantino-forgotten-movie-bruce-willis-four-rooms/
+
+Four Rooms is the forgotten movie that secretly brought Quentin Tarantino and Bruce Willis back together one year after Pulp Fiction.
+---------
+
+# Star Wars: Maul - Shadow Lord Is Telling The Same Sith Story For The Third Time
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Sat, 25 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-repeat-sith-story/
+
+Star Wars' latest Disney+ show gives one of the franchise's best Sith characters the attention they deserve, though the story has been done before.
+---------
+
+# Super Rant Rewatch: Revisiting X-Men: Days of Future Past Before Avengers: Doomsday
+
+Superheroes, X-Men: Days of Future Past, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 25 Apr 2026 19:26:19 GMT
+
+https://screenrant.com/super-rant-rewatch-xmen-days-of-future-past-before-avengers-doomsday/
+
+With 8 months to go before the release of Marvel Studios' Avengers: Doomsday, it's well worth revisiting 2014's X-Men: Days of Future Past.
+---------
+
+# Matthew Macfadyen's Sci-Fi Comedy The Miniature Wife Hits No. 4 on Peacock After Just 2 Weeks
+
+TV, The Miniature Wife
+
+Sat, 25 Apr 2026 19:30:13 GMT
+
+https://www.cbr.com/elizabeth-banks-the-miniature-wife-comedy-peacock-drop-us-april-2026/
+
+The series had a mixed reception and it's already falling from the charts.
+---------
+
+# 10 Reasons It's Tough to Rewatch The Avengers Movies Today
+
+Movies, Marvel Cinematic Universe
+
+Sat, 25 Apr 2026 19:30:13 GMT
+
+https://www.cbr.com/reasons-tough-rewatch-the-avengers-movies-today/
+
+The Avengers changed the superhero genre forever, but going back to those films can be bittersweet.
+---------
+
+# 10 Greatest High Fantasy Movies of the Last 50 Years, Ranked
+
+Movie, Fantasy, Star Wars, The Lord of the Rings: The Fellowship of the Ring, Spirited Away
+
+Sat, 25 Apr 2026 19:36:12 GMT
+
+https://collider.com/best-high-fantasy-movies-last-50-years-ranked/
+
+The best high fantasy movies, like Excalibur and Princess Mononoke, awe and inspire us with their larger-than-life worlds that defy all possibilities.
+---------
+
+# 'Michael' Earns Best International Opening Weekend at 2026 Box Office
+
+Movie News, Michael
+
+Sat, 25 Apr 2026 19:49:43 GMT
+
+https://movieweb.com/michael-box-office-record-opening-weekend/
+
+Coming to theaters on Apr. 24, the Michael Jackson biopic, 'Michael,' earned 2026's biggest opening weekend yet at the box office.
+---------
+
+# Why George Lucas' Darth Maul Sequel Trilogy Plan Would've Worked Better
+
+Features, Star Wars: Maul - Shadow Lord, George Lucas, Star Wars
+
+Sat, 25 Apr 2026 19:30:17 GMT
+
+https://movieweb.com/george-lucas-darth-maul-sequel-trilogy-plan/
+
+Unlike the Sequel Trilogy, Emperor Palpatine wouldn’t have returned from the dead— but another Sith would’ve appeared: Darth Maul.
+---------
+
 # The One Major Reason Black Clover Destroys Other Shonen Anime
 
 Anime, Black Clover
