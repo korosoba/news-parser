@@ -1,3 +1,201 @@
+# Michael Movie Review: Young Michael Jackson's Rise Outshines Adult Narrative
+
+Movies, Michael
+
+Sat, 25 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/michael-movie-first-30-minutes-movie/
+
+The first 30 minutes of Michael promised a much better movie than the 90 that followed. The Jackson 5 should've gotten their own biopic.
+---------
+
+# The Fantastic Four's Human Torch Gets Ghost Rider-Inspired Redesign With Invisible Woman's Help
+
+Marvel Comics, Fantastic Four, Marvel
+
+Sat, 25 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/fantastic-four-johnny-storm-ghost-rider-homage/
+
+The Fantastic Four's most spectacular hero debuts a brand-new twist on their appearance as they impersonate a former member of Marvel's First Family.
+---------
+
+# 12 Near-Perfect 2010s Sitcoms That Are Worth Rewatching Today
+
+Classic TV
+
+Sat, 25 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/2010s-sitcoms-worth-rewatching-today/
+
+The best sitcoms of the 2010s are worth revisiting, featuring a mix of comfort viewing & innovative storytelling, from fan faves to undiscovered gems.
+---------
+
+# Evil Dead Burn Has Me Worried About The Future Of The Franchise
+
+Movies, Evil Dead Burn
+
+Sat, 25 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/evil-dead-franchise-future-sequels-concern/
+
+Though Evil Dead Burn looks like an exciting new installment in the horror series, it has me worried about the future of the Evil Dead franchise.
+---------
+
+# GTA 6 Leaked Soundtrack Has Gamers Seriously Excited
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Sat, 25 Apr 2026 15:00:19 GMT
+
+https://screenrant.com/gta-6-soundtrack-leaks-gamers-react/
+
+Some of the artists set to feature on the GTA VI soundtrack are coming to light, and fans are seriously excited about the potential.
+---------
+
+# PlayStation Games Could Become Unplayable Following Sony Update
+
+Gaming, PlayStation 5
+
+Sat, 25 Apr 2026 14:49:29 GMT
+
+https://screenrant.com/playstation-games-unplayable-sony-update-drm-problem/
+
+One bold move by Sony could leave gamers unable to play their legally purchased titles.
+---------
+
+# Star Wars’ New Show Can Finally Answer A Major Inquisitor Mystery
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Sat, 25 Apr 2026 14:40:19 GMT
+
+https://screenrant.com/maul-shadow-lord-marrok-inquisitor-death-mystery/
+
+Maul - Shadow Lord has the exciting opportunity to answer of the biggest Imperial Inquisitor mysteries in the Star Wars canon since 2023.
+---------
+
+# Spider-Man's Top 10 Secret Six Members Who Still Need to Appear in the MCU
+
+Comics, Spider-Man
+
+Sat, 25 Apr 2026 14:31:19 GMT
+
+https://screenrant.com/spider-man-sinister-six-members-mcu-needs-next/
+
+As Tom Holland's Spider-Man begins a new trilogy, could the Sinister Six be on their way? Here are the most likely members the MCU still hasn't used.
+---------
+
+# Stranger Things Spinoff Reveals Huge Missed Opportunity In Main Show
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Sat, 25 Apr 2026 14:31:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-winter-season-upside-down-heat/
+
+The animated Stranger Things spinoff series brings back the show's main characters, and through Dustin, it reveals a huge missed opportunity.
+---------
+
+# Baldur's Gate 3 Is Getting an Official Prequel
+
+Gaming, Baldur's Gate 3
+
+Sat, 25 Apr 2026 14:16:43 GMT
+
+https://screenrant.com/baldurs-gate-3-is-getting-an-official-prequel/
+
+It's official: Baldur's Gate 3 is expanding with an official prequel come September 2026 as Astarion's origin story will get its long-awaited debut.
+---------
+
+# 8 Horror Game Protagonists Who Faced the Odds Completely Unprepared
+
+Games, Five Nights at Freddy's, Silent Hill
+
+Sat, 25 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/horror-game-protagonists-who-faced-most-dangerous-monsters/
+
+These horror protagonists were completely unprepared video game monsters they were forced to face.
+---------
+
+# Steven Spielberg's Animaniacs Is Officially Dominating PVOD Charts 33 Years After Debut
+
+TV, Animaniacs, animaniacs, steven spielberg
+
+Sat, 25 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/steven-spielberg-animaniacs-comedy-pvod-success-april-2026/
+
+The series also briefly returned in the 2020s.
+---------
+
+# Hulu's Neo-Noir Mystery Veronica Mars Is What Weekend Binges Were Made For
+
+TV, Mystery, Hulu, Veronica Mars
+
+Sat, 25 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/hulu-neo-noir-mystery-veronica-mars-perfect-weekend-binge/
+
+The fourth season of Veronica Mars is a fast-paced, easy binge that proves that sometimes shorter runs can deliver the most satisfying stories.
+---------
+
+# My Dress-Up Darling Is a Near-Perfect Heir to Sailor Moon's Throne
+
+Anime, Sailor Moon, My Dress-Up Darling, Sailor Moon Crystal
+
+Sat, 25 Apr 2026 14:15:13 GMT
+
+https://www.cbr.com/sailor-moon-anime-heir-my-dress-up-darling-cosplay-fashion/
+
+After 30 years, the new 'it girl' of anime finally challenges the idea that Sailor Moon's legacy is unshakeable.
+---------
+
+# Netflix's New Blockbuster Action Thriller 'Apex' Is Officially Taking Over the World
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Sat, 25 Apr 2026 15:00:14 GMT
+
+https://collider.com/charlize-theron-taron-egerton-action-thriller-apex-streaming-success-netflix-april-2026/
+
+Charlize Theron and Taron Egerton’s new Netflix thriller Apex is now streaming and already climbing charts around the world.
+---------
+
+# Michael Jackson Is the King of the Box Office in Record-Breaking Box Office Debut
+
+Movie News, Michael, Antoine Fuqua, Box Office, Biopic
+
+Sat, 25 Apr 2026 14:28:50 GMT
+
+https://collider.com/michael-jackson-music-biopic-box-office-90-million/
+
+Despite poor reviews and ongoing controversy, Antoine Fuqua’s Michael is already a certified hit with a huge box office debut.
+---------
+
+# 10 Best Gangster Movies Not Directed by Martin Scorsese, Ranked
+
+Movie, The Godfather Part II, The Godfather, Pulp Fiction, Scarface
+
+Sat, 25 Apr 2026 14:28:13 GMT
+
+https://collider.com/best-gangster-movies-not-directed-by-martin-scorsese-ranked/
+
+While Martin Scorsese's perhaps the king of the gangster movie, plenty of classics, like The Godfather and Scarface, weren't directed by him.
+---------
+
+# Why J.J. Abrams' $1.19 Billion 'Star Trek' Reboot Trilogy Failed
+
+Features, Star Trek, Star Trek 4, J.J. Abrams
+
+Sat, 25 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/why-jj-abrams-star-trek-reboot-failed/
+
+Getting a sequel out four years later, struggling with 'Star Trek 4', and never adjusting expectations doomed the franchise just as it began.
+---------
+
 # 8 Greatest Apple TV Shows No One Ever Talks About
 
 Streaming TV, Apple TV
