@@ -1,3 +1,300 @@
+# The 2000s' Two Biggest Fantasy Franchises Will Face The Same Impossible Challenge Just 12 Months Apart
+
+TV, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Harry Potter
+
+Sat, 25 Apr 2026 13:03:19 GMT
+
+https://screenrant.com/harry-potter-lord-of-the-rings-recast-challenge/
+
+The two biggest fantasy franchises of the 2000s are finally back, but both of them now face the same problem that could sink their reboots.
+---------
+
+# Black Clover Hypes Its True Final Battle with Latest New Look
+
+Anime, Black Clover
+
+Sat, 25 Apr 2026 13:00:52 GMT
+
+https://screenrant.com/black-clover-final-battle-asta-yuno-new-look/
+
+In a new image, Black Clover has finally confirmed that fans will soon witness the true battle that will bring Asta's story to an end.
+---------
+
+# David Tennant Teases Crowley's Situation In Prime Video's Good Omens Season 3 After Devastating Split From Aziraphale
+
+TV, Good Omens
+
+Sat, 25 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/good-omens-season-3-crowley-return-david-tennant/
+
+Aziraphale and Crowley parted on bad terms at the end of Good Omens season 2, and David Tennant reveals where the demon's storyline picks up.
+---------
+
+# 2014's Greatest Anime Love Story, Yona of the Dawn, Is Finally Returning For A Second Season, And It Already Looks Perfect
+
+Anime, Yona of the Dawn, Yona of the Dawn - Season 1, Romance
+
+Sat, 25 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/yona-dawn-greatest-anime-love-story-season-2/
+
+Over a decade after its beloved first season, Yona of the Dawn is officially returning with a Season 2, and this new visual is a must-see for fans.
+---------
+
+# Zelda: Twilight Princess Are Very Excited About Link's Official Redesign
+
+Gaming, The Legend of Zelda: Twilight Princess
+
+Sat, 25 Apr 2026 13:00:20 GMT
+
+https://screenrant.com/zelda-twilight-princess-movie-official-look/
+
+Fans excited as director of photography's Instagram post hints at Twilight Princess-inspired design for Link.
+---------
+
+# Adam Sandler's Netflix Comedy 'Roommates' Tops Streaming Charts
+
+Movies, Roommates
+
+Sat, 25 Apr 2026 12:56:19 GMT
+
+https://screenrant.com/adam-sandler-roommates-movie-streaming-charts/
+
+Roommates has been the most-watched movie on Netflix in the U.S. since its debut on April 17—bumping Thrash from the streamer's top spot.
+---------
+
+# Stranger Things Spinoff Exacerbates Series Finale's Upside Down Plot Hole
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Sat, 25 Apr 2026 12:45:19 GMT
+
+https://screenrant.com/stranger-things-finale-upside-down-monsters-spinoff-worse/
+
+The first Stranger Things spinoff introduces a new type of monster, and through it, it makes an Upside Down plot hole from the finale even worse.
+---------
+
+# Game Of Thrones Universe Is "Infinite" After Aegon's Conquest Movie Confirmation
+
+TV, Game of Thrones, Aegon's Conquest, Game Of Thrones
+
+Sat, 25 Apr 2026 12:39:55 GMT
+
+https://screenrant.com/game-of-thrones-universe-infinite-intellectual-property-shauna-spenley/
+
+The expansive Game of Thrones universe continues to grow with the confirmation of Game of Thrones: Aegon's Conquest, a standalone feature film.
+---------
+
+# Top 10 Most Dangerous Saw Movie Traps Ranked
+
+Movies, Saw, Saw II, Saw III, Saw IV, Saw V, Saw VI, Saw 3D
+
+Sat, 25 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/saw-movie-traps-most-dangerous-ranked/
+
+The Saw franchise contains many of the most vicious traps in cinema, and here are some of the most deadly and dangerous of them all.
+---------
+
+# Red Dead Redemption 2 PS5 Upgrade Price Tag Splits Gamers
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 25 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-ps5-upgrade-price-speculation/
+
+Red Dead Redemption 2 will get an upgrade for current-gen consoles at some point, but will people be willing to pay for it when it's ready?
+---------
+
+# Alan Ritchson’s 3-Part Series With 13%RT Becomes a PVOD Hit 1 Week Before Leaving Netflix
+
+TV, Blue Mountain State
+
+Sat, 25 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/alan-ritchson-blue-mountain-state-pvod-success-leaving-netflix-april-2026/
+
+Ritchson fans should act fast to grab his criminally underrated 3-part series on PVOD at an absolutely unbeatable price.
+---------
+
+# The 10 Most Perfect Cat-And-Mouse Thrillers To Watch After Netflix's 'Apex'
+
+Movies, Thriller, Netflix, Apex
+
+Sat, 25 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/perfect-cat-and-mouse-thrillers-watch-after-netflix-apex/
+
+After watching Apex on Netflix, fans wanting more should check out these cat-and-mouse thrillers packed with intense survival and nonstop tension.
+---------
+
+# 5 Star Trek Episodes Diehard Fans Swear By
+
+TV, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation, Star Trek: Deep Space Nine, Sci-Fi
+
+Sat, 25 Apr 2026 12:30:12 GMT
+
+https://www.cbr.com/best-star-trek-episodes-diehard-fans-list/
+
+Fans may disagree about which Star Trek episodes are their favorite, but there are some episodes that everyone can agree are masterpieces.
+---------
+
+# The Boys’ Eric Kripke Reveals What Inspired The Superhero Parody Show
+
+CBR Exclusives, The Boys
+
+Sat, 25 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/eric-kripke-the-boys-inspiration-explained/
+
+There's a greater meaning behind The Boys beyond its ultra-violent irony.
+---------
+
+# Predator and Planet of the Apes Officially Face Off In Major Crossover Event
+
+Comics, Predator, Planet of the Apes
+
+Sat, 25 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/predator-vs-planet-of-the-apes-comic-release-date-confirmed/
+
+Marvels brings two iconic sci-fi franchises together for an epic battle.
+---------
+
+# Marvel Studios Will is Copying Star Wars' Special Edition Trend
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, Avengers: Endgame
+
+Sat, 25 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/marvel-studios-avegners-endgame-release-copy-star-wars-strategy/
+
+The Star Wars special editions were a controversial topic when they first happened, and Avengers: Endgame will be following a similar trend.
+---------
+
+# Guy Ritchie’s 8-Part Detective Series Soars Past a Massive Prime Video Milestone
+
+TV News, Prime Video, Guy Ritchie, Young Sherlock, Hero Fiennes Tiffin
+
+Sat, 25 Apr 2026 13:00:13 GMT
+
+https://collider.com/prime-video-guy-ritchie-crime-thriller-young-sherlock-streaming-success-april-2026/
+
+Guy Ritchie’s smash-hit detective series, Young Sherlock, just set a new Prime Video record now that Season 2 is confirmed.
+---------
+
+# 10 Most Perfect War Movie Opening Scenes, Ranked
+
+Movie, War, Saving Private Ryan, 1917, All Quiet on the Western Front
+
+Sat, 25 Apr 2026 12:46:13 GMT
+
+https://collider.com/most-perfect-war-movie-opening-scenes-ranked/
+
+War movies like Saving Private Ryan, 1917, and All Quiet on the Western Front have some of the best opening scenes in the history of the genre.
+---------
+
+# Taylor Sheridan’s 8-Part Western Is So Good, You’ll Finish It in One Sitting
+
+TV News, Lawmen: Bass Reeves, Taylor Sheridan, Paramount Plus, Western
+
+Sat, 25 Apr 2026 12:45:13 GMT
+
+https://collider.com/taylor-sheridan-western-series-lawmen-bass-reeves-streaming-success-paramount-plus-april-2026/
+
+Taylor Sheridan's bingeworthy Western miniseries, Lawmen: Bass Reeves, is proving why it still deserves another season on Paramount+.
+---------
+
+# ‘Running Point’s Kate Hudson Reveals the Intense 50-Second Scene That Intimidated Her Most in Netflix’s Sitcom
+
+TV, Running Point, Netflix, Kate Hudson, Brenda Song
+
+Sat, 25 Apr 2026 12:35:13 GMT
+
+https://collider.com/running-point-season-2-kate-hudson-brenda-song-interview/
+
+Kate Hudson and Brenda Song tease Running Point Season 2’s family drama, friendship strain, and one intimidating dance scene.
+---------
+
+# Say Goodbye to Prime Video's 125-Minute Oscar-Winning Classic
+
+Movie News, La La Land, Ryan Gosling, Emma Stone, Streaming
+
+Sat, 25 Apr 2026 12:30:13 GMT
+
+https://collider.com/ryan-gosling-oscar-winning-classic-la-la-land-leaving-streaming-prime-video-april-2026/
+
+La La Land, starring Ryan Gosling & Emma Stone, is leaving Prime Video soon, making now the perfect time to revisit Damien Chazelle’s Oscar winner.
+---------
+
+# 10 Movies With the Most Perfect Special Effects
+
+Movie, VFX, Avatar: Fire and Ash, Jurassic Park, Star Wars: Episode IV - A New Hope
+
+Sat, 25 Apr 2026 12:29:12 GMT
+
+https://collider.com/movies-with-perfect-special-effects/
+
+Pirates of the Caribbean: Dead Man's Chest, Jurassic Park, and Inception are among the most spectacular blockbusters with perfect special effects.
+---------
+
+# The Fleetwood Mac Song That Was Cut, Forgotten, and Later Became Legendary
+
+Music Features, Stevie Nicks, Fleetwood Mac, Music, Rock
+
+Sat, 25 Apr 2026 12:15:12 GMT
+
+https://collider.com/fleetwood-mac-silver-springs-forgotten-later-legendary/
+
+Stevie Nicks' heartbreaking song, cut from Fleetwood Mac's iconic Rumours album, and its journey to becoming a legendary song.
+---------
+
+# 8 Most Universally Acclaimed Western Movies of All Time, Ranked
+
+Movie, Western, The Good, the Bad and the Ugly, Unforgiven, No Country for Old Men
+
+Sat, 25 Apr 2026 12:14:12 GMT
+
+https://collider.com/most-universally-acclaimed-western-movies-all-time-ranked/
+
+Rio Bravo, Unforgiven, and No Country for Old Men are all among the best and most universally acclaimed Western movies ever made.
+---------
+
+# Prime Video's 6-Part Psychological Thriller Is So Brilliant That It Rewards Every Rewatch
+
+TV Features, The Girlfriend, Olivia Cooke, Robin Wright, Prime Video
+
+Sat, 25 Apr 2026 12:03:13 GMT
+
+https://collider.com/prime-video-the-girlfriend-psychological-thriller/
+
+Prime Video's The Girlfriend is a psychological thriller that keeps audiences on the edge of their seats with its unique storytelling and twisty plot.
+---------
+
+# 7 Forgotten Crime Thrillers That Are Perfect From Start to Finish
+
+Movie, Thriller, Thief, Blue Ruin, Mother
+
+Sat, 25 Apr 2026 12:02:13 GMT
+
+https://collider.com/forgotten-crime-thrillers-perfect-start-to-finish/
+
+The crime thriller genre has produced multiple perfect gems, including many forgotten ones, like Michael Mann's Thief and Jeremy Saulnier's Blue Ruin.
+---------
+
+# Ridley Scott's Long-Awaited Action Epic Becomes a Major Streaming Success
+
+Movie News, Gladiator II, Ridley Scott, Hot on Streaming, Action
+
+Sat, 25 Apr 2026 12:00:18 GMT
+
+https://movieweb.com/gladiator-2-ridley-scott-streaming-success-netflix-april-2026-action/
+
+Ridley Scott's long-awaited 'Gladiator' sequel, 'Gladiator II' is a global streaming success on Netflix.
+---------
+
 # Every Michael Jackson Solo Album Ranked (2026 Biopic Guide)
 
 Music, Michael, Michael Jackson, Pop, Jaafar Jackson
