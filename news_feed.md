@@ -1,3 +1,245 @@
+# Avengers: Doomsday's Newest Trailer Makes One Big Doctor Doom Question More Complex
+
+Movies, Avengers: Doomsday
+
+Sat, 25 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/avengers-doomsdays-newest-trailer-makes-one-big-doctor-doom-question-more-complex/
+
+Doctor Doom is set to be the next big villain in the MCU, and the trailer shown at CinemaCon brings up new questions regarding the character.
+---------
+
+# Elden Ring Just Got A Brutal New Mode You Can Play Free Now
+
+Gaming, Elden Ring
+
+Sat, 25 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/elden-ring-rune-health-mod-free-download/
+
+Elden Ring modders continue to push the boundaries of difficulty with the new Rune Health mod.
+---------
+
+# Netflix's 2-Part Fantasy Series Is A Better Lord Of The Rings Show Than The Rings Of Power
+
+Streaming TV, Masked Recs
+
+Sat, 25 Apr 2026 22:32:20 GMT
+
+https://screenrant.com/one-piece-live-action-netflix-high-fantasy-show-lord-of-the-rings/
+
+Amazon's LotR TV show may have failed to capture the essence of Tolkien's work, but a surprising Netflix hit is here to pick up the pieces.
+---------
+
+# Marvel Officially Unveils Deadpool's Best Redesign of All Time, Bar None
+
+Comics, Deadpool
+
+Sat, 25 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/deadpool-redesign-new-costume-knullbuster-king-black/
+
+Marvel just unveiled Deadpool's coolest redesign of all time, as Wade Wilson throws on a suit of cosmic armor to bring down his biggest threat yet.
+---------
+
+# Game Of Thrones Star's 5-Part Superhero Series Shows The Boys How It's Done
+
+Classic TV, Masked Recs
+
+Sat, 25 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/misfits-the-boys-superhero-tv-show/
+
+The Boys has taken the superhero genre by storm, giving viewers iconic characters and shocking twists, but the show could learn from another series.
+---------
+
+# Massive Crunchyroll Anime Franchise Just Introduced The Best Isekai Villain Of 2026
+
+Anime, That Time I Got Reincarnated as a Slime, Crunchyroll
+
+Sat, 25 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/that-time-reincarnated-as-slime-crunchyroll-best-isekai-villain-2026/
+
+Isekai has exploded in popularity over the past few years, and this Crunchyroll giant might've just revealed the best villain in the genre.
+---------
+
+# Pokémon TCG: 10 Most Valuable Scarlet & Violet Era Cards
+
+Games, Pokemon, Pokemon Trading Card Game, TCG, Pokemon TCG, Tabletop
+
+Sat, 25 Apr 2026 22:45:12 GMT
+
+https://www.cbr.com/pokemon-tcg-most-valuable-cards-scarlet-violet-era/
+
+Pokémon's Scarlet & Violet Era produced some of the most collectible trading cards, but fans will want to make sure they've got their wallet.
+---------
+
+# Kill Bill: The Whole Bloody Affair Drops on Peacock on May 22
+
+Movies, Quentin Tarantino, Peacock
+
+Sat, 25 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/quentin-tarantino-movies-peacock-may-22/
+
+Quentin Tarantino fans should mark the calendar.
+---------
+
+# South Park's 5 Permanently Banned Episodes Are Still Adult Animation's Biggest Controversies
+
+TV, South Park, South Park: 200 / 201, Paramount Plus
+
+Sat, 25 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/south-park-banned-episodes-adult-animation-biggest-controversy/
+
+The controversies surrounding South Park's permanently banned episodes delved into censorship, satire, and the boundaries of adult animation.
+---------
+
+# Michael Jackson's Iconic Popcorn Meme Recreated by Biopic Star
+
+Movies, Michael
+
+Sat, 25 Apr 2026 22:26:56 GMT
+
+https://www.cbr.com/michael-jackson-popcorn-jafaar-jackson-recreation/
+
+Michael star Jaafar Jackson recreates the iconic meme of his late uncle eating popcorn from the Thriller video.
+---------
+
+# CBS Is Officially Reviving Gibbs' Canceled NCIS Story
+
+TV, NCIS, NCIS: Origins, CBS
+
+Sat, 25 Apr 2026 22:18:30 GMT
+
+https://www.cbr.com/cbs-ncis-origins-reviving-gibbs-lala-romance-story/
+
+NCIS: Origins reworks an implausible story about Mark Harmon's Leroy Jethro Gibbs character, changing what's possible in the NCIS franchise's future.
+---------
+
+# JRPG Series With 5+ Games That Are Worth Your Time
+
+Games, Final Fantasy, Pokemon, The Elder Scrolls, Digimon
+
+Sat, 25 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/jrpg-series-with-5-games-that-are-worth-your-time/
+
+Some RPG franchises have been releasing new entries since the '80s and '90s, but that doesn't mean their gameplay is antiquated or out of touch.
+---------
+
+# Time Is Running Out To Watch Russell Crowe’s Twisty Crime Thriller on Paramount+
+
+Movie News, Memento, Sleeping Dogs, Russell Crowe, Se7en
+
+Sat, 25 Apr 2026 23:00:13 GMT
+
+https://collider.com/russell-crowe-forgotten-twisty-thriller-sleeping-dogs-leaving-paramount-plus-may-2026/
+
+Russell Crowe's Memento meets Se7en psychological thriller Sleeping Dogs is set to leave Paramount+. Find out when.
+---------
+
+# The Unhinged Cannibal Thriller With Keanu Reeves, Jim Carrey, & Jason Momoa Is a Sleeper Hit
+
+Movie Features, The Bad Batch, Keanu Reeves, Jason Momoa, Jim Carrey
+
+Sat, 25 Apr 2026 22:51:12 GMT
+
+https://collider.com/the-bad-batch-unhinged-cannibal-thriller-keanu-reeves-jason-momoa-jim-carrey/
+
+Starring Keanu Reeves and Jason Momoa, The Bad Batch is a star-studded thriller set in a post apocalyptic world overrun by cannibals.
+---------
+
+# Tom Hardy Fans Have Less Than 1 Week To Watch His 97-Minute Spy Thriller on HBO Max
+
+Movie News, Tom Hardy, HBO Max, Thriller, This Means War
+
+Sat, 25 Apr 2026 22:45:12 GMT
+
+https://collider.com/tom-hardy-spy-thriller-this-means-war-leaving-streaming-hbo-max-may-2026/
+
+Tom Hardy's underrated spy thriller with Chris Pine, This Means War, is being dropped from the HBO Max catalog this May. Find out more here.
+---------
+
+# 10 Greatest Australian Comedy Shows of All Time, Ranked
+
+TV, Kath And Kim, Sitcom, Comedy, Australia
+
+Sat, 25 Apr 2026 22:37:12 GMT
+
+https://collider.com/best-australian-comedy-shows-ranked/
+
+Rake, Mr Inbetween, and Kath & Kim are all among the absolute best and funniest Australian comedy TV shows ever made.
+---------
+
+# 5 Years Later, Tom Hanks' Forgotten Sci-Fi Gem Is Quietly Taking Over the World
+
+Movie News, Finch, Tom Hanks, Apple TV, Sci-Fi
+
+Sat, 25 Apr 2026 22:30:12 GMT
+
+https://collider.com/tom-hanks-fogotten-sci-fi-gem-finch-streaming-success-apple-tv-april-2026/
+
+Five years after being released straight to streaming, Tom Hanks' forgotten sci-fi gem is staging a world takeover on streaming.
+---------
+
+# Say Goodbye to Matt Damon’s Weirdest Sci-Fi Movie on Paramount+
+
+Movie News, Matt Damon, Alexander Payne, Hong Chau, Downsizing
+
+Sat, 25 Apr 2026 22:15:12 GMT
+
+https://collider.com/matt-damon-weirdest-sci-fi-movie-downsizing-leaving-streaming-paramount-plus-may-2026/
+
+Matt Damon's most overlooked sci-fi film, Downsizing, is leaving Paramount+ soon. Find out how long you have to watch.
+---------
+
+# 8 Greatest '80s Shows Nobody Remembers
+
+TV, 1980s, Small Wonder, Street Hawk, Empty Nest
+
+Sat, 25 Apr 2026 22:08:12 GMT
+
+https://collider.com/best-1980s-shows-forgotten/
+
+From the sci-fi comedy sitcom Small Wonder to the action hidden gem Street Hawk, these '80s TV shows have largely been forgotten by audiences.
+---------
+
+# 10 Most Universally Beloved Movies of All Time, Ranked
+
+Movie, The Shawshank Redemption, The Godfather, Jurassic Park, Star Wars
+
+Sat, 25 Apr 2026 22:05:13 GMT
+
+https://collider.com/most-universally-beloved-movies-all-time-ranked/
+
+Some of the greatest and most widely loved movies of all time include untouchable classics like Jurassic Park, The Godfather, and Lawrence of Arabia.
+---------
+
+# 'The Legend of Vox Machina': Prime's Perfect Fantasy Series Returns for Season 4 This June
+
+Features, The Legend of Vox Machina, Upcoming Tease
+
+Sat, 25 Apr 2026 23:01:17 GMT
+
+https://movieweb.com/amazon-prime-legend-of-vox-machina-redefining-fantasy/
+
+Prime Video's hit adult-animation series continues to push the fantasy genre to new heights as Season 4 approaches.
+---------
+
+# 'Evil Dead Burn's Director Compares Its Style of Violence to 'American History X'
+
+Features, Evil Dead Burn, American History X, Evil Dead
+
+Sat, 25 Apr 2026 22:31:18 GMT
+
+https://movieweb.com/evil-dead-burn-comparison-american-history-x/
+
+Director Sébastien Vaniček noted that 'Evil Dead Burn' trades in blood for the stomach-churning violence of 'American History X's famous scene.
+---------
+
 # Apple TV's 6-Hour Sci-Fi Series That's 'Black Mirror Meets Severance' Is Quietly One Of Its Best Shows
 
 Classic TV, Masked Recs
