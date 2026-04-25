@@ -1,3 +1,135 @@
+# Janet Jackson's Absence Explained In Michael Jackson Biopic: LaToya Jackson Speaks Out
+
+Movies, Michael
+
+Sat, 25 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/michael-jackson-movie-no-janet-jackson-appearance-latoya-jackson/
+
+Michael Jackson's new biopic depicts the King of Pop's family life with the Jackson 5, but Janet, the other most famous sibling, isn't in the movie.
+---------
+
+# Skyrim: Through Fire & War Will Keep You Busy Till Elder Scrolls 6
+
+Gaming, The Elder Scrolls V: Skyrim
+
+Sat, 25 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/skyrim-fire-and-war-unofficial-expansion/
+
+Discover a brand-new, Morrowind-inspired quest in Skyrim with the Through Fire & War mod, featuring unique branches, fully voiced dialogue, and more.
+---------
+
+# Final Fantasy 7 DLC Is Leaving This Popular Game Next Month
+
+Gaming, PowerWash Simulator, Final Fantasy
+
+Sat, 25 Apr 2026 10:30:30 GMT
+
+https://screenrant.com/final-fantasy-dlc-powerwash-simulator-limited-time/
+
+One of the most popular cozy games will lose its Final Fantasy 7 and Tomb Raider DLC packs next month, along with its relationship with Square Enix.
+---------
+
+# 10 Strongest Marvel Characters Who Couldn't Work In An Office
+
+Comics, Marvel
+
+Sat, 25 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/powerful-marvel-characters-struggle-at-modern-office-jobs/
+
+And you think your coworkers are bad?
+---------
+
+# MHA Anime Is Officially Over With Final New Episode Release
+
+Anime, My Hero Academia, Crunchyroll, Shonen Jump
+
+Sat, 25 Apr 2026 10:52:32 GMT
+
+https://www.cbr.com/my-hero-academia-final-anime-2026-release/
+
+Deku and the students of Class 1-A finally say goodbye in the final My Hero Academia release.
+---------
+
+# Jason Momoa's Stargate: Atlantis Is Stargate SG-1's Only Perfect Replacement
+
+TV, Jason Momoa, Sci-Fi, Stargate, Stargate: Atlantis
+
+Sat, 25 Apr 2026 10:30:30 GMT
+
+https://www.cbr.com/jason-momoa-stargate-atlantis-only-perfect-stargate-sg-1-replacement/
+
+With Jason Momoa’s incredible career and the renewed interest in the franchise, Stargate Atlantis is finally getting the recognition it deserves.
+---------
+
+# Bob Dylan's 1966 Classic Hit Was Long Debated as a Love Song or Breakup Song
+
+Music Features, Bob Dylan, Music, Rock, Billboard Hot 100
+
+Sat, 25 Apr 2026 11:00:12 GMT
+
+https://collider.com/bob-dylan-1966-just-like-a-woman-love-song-breakup-song/
+
+The ongoing debate surrounding the mysterious muse behind Bob Dylan's 1966 classic hit with theories pointing to Joan Baez and Edie Sedgwick.
+---------
+
+# Joel Edgerton's Sleeper Hit 2025 Horror Thriller Is a Streaming Favorite
+
+Movie News, The Plague, Joel Edgerton, Streaming, AMC+
+
+Sat, 25 Apr 2026 11:00:12 GMT
+
+https://collider.com/joel-edgerton-horror-thriller-the-plague-streaming-hit-amc-plus-april-2026/
+
+Joel Edgerton's sleeper 2025 hit The Plague is finally a streaming favorite. Here's what you should know.
+---------
+
+# 7 HBO Shows That Are Perfectly Written From Start to Finish
+
+TV, HBO, Succession, The Sopranos, The Wire
+
+Sat, 25 Apr 2026 10:52:13 GMT
+
+https://collider.com/hbo-shows-perfect-writing-start-to-finish/
+
+HBO shows boast some of the most compelling narratives put to television, with series like The Sopranos and Succession featuring the best writing.
+---------
+
+# Tom Cruise's Most Unexpected Gamble Forced Him Into the Action Movie Box
+
+Movie Features, Tom Cruise, Rock of Ages, Musical, Action
+
+Sat, 25 Apr 2026 10:32:12 GMT
+
+https://collider.com/tom-cruise-rock-of-ages-box-office-bomb-action-movies/
+
+Tom Cruise gave an excellent performance in 2012's Rock of Ages, a musical that bombed, forcing Cruise to lean on action movies.
+---------
+
+# Ridley Scott’s Sci-Fi Epic That Earned 3x Its Budget Scores Big on Streaming
+
+Movie News, Prometheus, Ridley Scott, Sci-Fi, Alien
+
+Sat, 25 Apr 2026 10:30:29 GMT
+
+https://collider.com/ridley-scott-mind-blowing-sci-fi-epic-prometheus-streaming-success-hbo-max-april-2026-how-to-watch/
+
+Ridley Scott's mind-blowing sci-fi epic, Prometheus, is scoring big on streaming 14 years after a successful box office run. Read on for more.
+---------
+
+# 10 Greatest Space Operas of the Last 50 Years, Ranked
+
+Movie, Science Fiction, Star Wars, Dune, Serenity
+
+Sat, 25 Apr 2026 10:30:29 GMT
+
+https://collider.com/best-space-operas-last-50-years-ranked/
+
+From blockbuster masterpieces like Star Wars and Dune to cult gems like The Ice Pirates, these sci-fi movies are the height of space opera filmmaking.
+---------
+
 # Pokémon Crystal Reflection Makes Johto Feel New Again
 
 Gaming, Pokemon
