@@ -1,3 +1,69 @@
+# Star Wars Jedi 3 Open World Setting Splits Gamers
+
+Gaming, Star Wars, Star Wars Jedi: Survivor, Star Wars Jedi: Fallen Order
+
+Sat, 25 Apr 2026 09:00:19 GMT
+
+https://screenrant.com/star-wars-jedi-3-open-world-setting-gamer-speculation/
+
+The idea of the third Star Wars Jedi game being open-world is an interesting one, but it doesn't necessarily suit the series as it has been so far.
+---------
+
+# Idris Elba’s 5-Part British Detective Thriller Series Quietly Becomes Perfect Weekend Binge
+
+TV News, Luther, Idris Elba, Luther: The Fallen Sun, Hulu
+
+Sat, 25 Apr 2026 09:20:13 GMT
+
+https://collider.com/idris-elba-british-detective-thriller-luther-streaming-success-hulu-amc-plus-april-2026/
+
+Idris Elba's bingeworthy British detective thriller, Luther, has been reborn as a #1 late-night streaming favorite. Here's everything you should know.
+---------
+
+# Only 7 Crime Shows in the 1990s Can Be Considered True Masterpieces
+
+TV, Twin Peaks, Oz, Crime, 1990s
+
+Sat, 25 Apr 2026 09:18:14 GMT
+
+https://collider.com/90s-crime-shows-true-masterpieces/
+
+Explore the groundbreaking crime shows from the 1990s that redefined television, featuring Oz, Twin Peaks, and more.
+---------
+
+# Tom Cruise’s High-Stakes 120-Minute World War II Epic Is One Last Watch Away From Vanishing
+
+Movie News, Tom Cruise, valkyrie, World War II, History
+
+Sat, 25 Apr 2026 09:00:13 GMT
+
+https://collider.com/tom-cruise-ww2-epic-valkyrie-leaving-prime-video-april-2026/
+
+Valkyrie is set to leave Prime Video soon, giving viewers one last chance to revisit Tom Cruise’s WW2 thriller. Find out more here.
+---------
+
+# The Best Sci-Fi Series on Apple TV Proves It's Still the Perfect Weekend Binge
+
+TV News, Apple TV, Pluribus, Sci-Fi, Streaming
+
+Sat, 25 Apr 2026 08:40:13 GMT
+
+https://collider.com/pluribus-streaming-hit-apple-tv-april-2026/
+
+Apple TV's Pluribus is the weekend binge you simply can't miss, and it's back in the streaming charts. Find out more here.
+---------
+
+# Chris Pratt’s 7-Part Gem Is Quietly Becoming Peacock's Perfect Weekend Binge
+
+TV News, Parks and Recreation, Chris Pratt, Amy Poehler, Nick Offerman
+
+Sat, 25 Apr 2026 08:20:12 GMT
+
+https://collider.com/chris-pratt-bingable-series-parks-and-rec-streaming-success-peacock-april-2026/
+
+Chris Pratt's highly bingable seven-part series that won a handful of Emmys only gets better with each rewatch. Here's what you should know.
+---------
+
 # Say Goodbye to the Most Violent World War II Thriller Ever Made
 
 Movie News, Sisu, Sisu: Road to Revenge, World War II
