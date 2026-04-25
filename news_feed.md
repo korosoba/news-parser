@@ -1,3 +1,377 @@
+# Upcoming Post-Apocalyptic Horror TV Show Based On A Bestselling Book Is More Timely Than Ever
+
+Streaming TV, Horror
+
+Sat, 25 Apr 2026 03:34:48 GMT
+
+https://screenrant.com/swan-song-robert-mccamon-post-apocalyptic-nuclear-war/
+
+39 years have passed since the publication of an important post-apocalyptic horror book, but the TV adaptation will be timely and relevant.
+---------
+
+# Reacher’s Neagley Spinoff Is Confusing After Its Confirmed 2026 Return
+
+Streaming TV, Reacher, Neagley, Prime Video
+
+Sat, 25 Apr 2026 03:30:20 GMT
+
+https://screenrant.com/reacher-season4-neagley-spinoff-release-window/
+
+While it is great news that Reacher season 4 is officially returning in 2026 itself, the silence around the Neagley spinoff show is getting confusing.
+---------
+
+# Armin Shimerman Praises Star Trek: Starfleet Academy's DS9 Tribute
+
+TV, Star Trek, Star Trek: Starfleet Academy, Star Trek: Deep Space Nine
+
+Sat, 25 Apr 2026 03:29:33 GMT
+
+https://screenrant.com/star-treks-armin-shimerman-reviews-starfleet-academys-ds9-tribute/
+
+Star Trek: Deep Space Nine's Armin Shimerman reveals his take on Star Trek: Starfleet Academy's tribute to DS9 and Cirroc Lofton's comeback.
+---------
+
+# Squid Game Villain's New Mystery Thriller K-Drama Is Spring's Next Must-Watch
+
+Anime, Squid Game
+
+Sat, 25 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/squid-game-villain-mystery-thriller-spring-2026-must-watch/
+
+Park Hae-soo's Emmy-nominated turn on Squid Game is just one of many of his excellent roles, with his most recent as the star of a chilling mystery.
+---------
+
+# Star Wars' New Show Is Finally Teasing A Major Maul Betrayal
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Sat, 25 Apr 2026 02:48:13 GMT
+
+https://screenrant.com/maul-shadow-lord-teasing-mandalorian-betrayal-rook/
+
+While Maul's power and influence continue to grow in Star Wars' new Shadow Lord series, the seeds have already been sown for an inevitable betrayal.
+---------
+
+# Apple TV’s Greatest Opening Sci-Fi Mystery Will Finally Pay Off
+
+Streaming TV, Silo, Apple TV
+
+Sat, 25 Apr 2026 02:30:18 GMT
+
+https://screenrant.com/apple-tv-silo-season-3-greatest-opening-mystery/
+
+The greatest opening mystery in an Apple TV science fiction show is finally going to be resolved in its upcoming installment after two whole seasons.
+---------
+
+# 8 Near-Perfect Romance Anime On Netflix
+
+Anime, Netflix, The Fragrant Flower Blooms with Dignity, Blue Box
+
+Sat, 25 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/near-perfect-romance-anime-netflix/
+
+Netflix has some of the best romance anime series around, but only a handful are so good that they can be considered near perfect.
+---------
+
+# 3 Cyberpunk Classics That Redefined Sci-Fi Are Returning Very Soon
+
+Streaming TV, Blade Runner, Ghost in the Shell, Neuromancer
+
+Sat, 25 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/neuromancer-ghost-in-shell-blade-runner-return/
+
+Three of the most the seminal additions to cyberpunk, which gave it a distinct identity in the sci-fi genre, will return soon with new installments.
+---------
+
+# Elden Ring Collides With Baldur's Gate 3 In Massive New Dark Fantasy RPG
+
+Gaming, RPG, PC, Live Service Games
+
+Sat, 25 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/elden-ring-embers-of-uncrowned-new-mmorpg/
+
+A brand-new dark fantasy RPG is arriving soon, and it seems to draw inspiration from Elden Ring, Baldur’s Gate 3, and the gritty Diablo franchise.
+---------
+
+# 1 Casting Choice Could Make Or Break Peacock's Dungeon Crawler Carl Show
+
+Streaming TV, Sci-Fi, Fantasy
+
+Sat, 25 Apr 2026 01:45:19 GMT
+
+https://screenrant.com/dungeon-crawler-carl-princess-donut-kelly-bishop-fancast/
+
+Peacock is bringing a bestselling LitRPG book to life, and the show could be the next big thing. However, one casting choice could make or break it.
+---------
+
+# 15 Most Heartbreaking Moments in Sons of Anarchy
+
+TV, Sons of Anarchy
+
+Sat, 25 Apr 2026 03:30:13 GMT
+
+https://www.cbr.com/saddest-sons-of-anarchy-scenes-list/
+
+Sons of Anarchy was full of violence and heartbreaking moments, but a few stand out as among the most devastating.
+---------
+
+# 10 Praiseworthy Sci-Fi Games No One Ever Talks About
+
+Games, Sci-Fi, Avatar, Guardians of the Galaxy, Infamous
+
+Sat, 25 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/flawless-sci-fi-games-no-one-ever-talks-about/
+
+These incredible sci-fi games are painfully underrated, and everyone needs to play them.
+---------
+
+# Bruce Willis' Die Hard Clone Is Getting a Second Chance
+
+Movies, Die Hard, Striking Distance
+
+Sat, 25 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/burce-willis-striking-distance-die-hard-copycat/
+
+This underwhelming Bruce Willis '90s action vehicle has become an unlikely Netflix hit throughout April.
+---------
+
+# Bandai Revives Gundam's First-Ever Gunpla With Exclusive Modern Release
+
+Anime, Mobile Suit Gundam, merchandise, toys, bandai
+
+Sat, 25 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/bandai-first-gunpla-modern-release-may-2026/
+
+The very first Gundam model kit is being re-released, with this iteration combining an old-school aesthetic with modern engineering and new colors.
+---------
+
+# 7 Mystery Anime That Are Perfect From Start to Finish
+
+Anime, Mononoke, Erased
+
+Sat, 25 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/mystery-anime-that-are-perfect-from-start-to-finish/
+
+Anime loves to experiment with the mystery genre and there are some extra special series that go above and beyond when it comes to crafting mysteries.
+---------
+
+# Before Clayface, 1986's The Fly is Mandatory Viewing
+
+Movies, Clayface, The Fly
+
+Sat, 25 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/clayface-the-fly-body-horror-mandatory-viewing/
+
+Clayface promises an exciting new take on the body horror genre, but before doing so, audiences have to check out 1986's The Fly.
+---------
+
+# 10 Weakest JJK Characters Who Could Still Defeat Goku
+
+Anime, Jujutsu Kaisen, Dragon Ball
+
+Sat, 25 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/weakest-jjk-characters-stronger-than-goku/
+
+Jujutsu Kaisen characters can be pretty weak, but their sorcery still gives them the edge over Dragon Ball's Goku.
+---------
+
+# 10 Masterpiece Anime That Genuinely Have Better Writing Than Shakespeare
+
+Anime, Studio Ghibli
+
+Sat, 25 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/most-well-written-anime-better-than-shakespeare-list/
+
+William Shakespeare's writing is considered untouchable by many, but the writing in these classic anime series is even better.
+---------
+
+# 10 Movies Conspiracy Theorists Are Obsessed With
+
+Movies, Thriller
+
+Sat, 25 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/movies-conspiracy-theorists-obsessed-with/
+
+Conspiracy theorists tend to find something sinister lurking around every corner, so it's no surprise they use movies to confirm their worldview.
+---------
+
+# Netflix's Griselda Is a Near-Perfect Narcos Follow-Up
+
+TV, Griselda, Netflix, Crime
+
+Sat, 25 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/netflix-griselda-narcos-spiritualsuccessor/
+
+Narcos might have been a beautifully grim retelling of Pablo Escobar's story, but this Netflix follow-up is almost just as compelling.
+---------
+
+# 6 Most Universally Beloved Horror Movies of All Time, Ranked
+
+Movie, Horror, The Exorcist, Psycho, The Shining
+
+Sat, 25 Apr 2026 03:09:13 GMT
+
+https://collider.com/most-universally-beloved-horror-movies-all-time-ranked/
+
+From The Exorcist to The Thing, these horror classics didn’t just scare audiences, they became legends every generation keeps returning to.
+---------
+
+# Netflix’s ‘Arcane’ Stars Reveal How Many Times They Record the Pilot Episode [Exclusive]
+
+TV News, Arcane, Netflix, Fan Expo, League of Legends
+
+Sat, 25 Apr 2026 02:01:17 GMT
+
+https://collider.com/netflix-arcane-pilot-different-versions-silco-design-jason-spisak-jb-blanc/
+
+JB Blanc and Jason Spisak reflected on the many different drafts and the unique creative process that Netflix's Arcane went through before release.
+---------
+
+# Samara Weaving Quit Horror Until This Jason Segel Movie Pulled Her Back In
+
+Exclusives, Over Your Dead Body, Samara Weaving, Jason Segel, Jorma Taccone
+
+Sat, 25 Apr 2026 02:00:23 GMT
+
+https://collider.com/samara-weaving-jason-segel-over-your-dead-body-blood-gore-violence-interview/
+
+Jason Segel and Samara Weaving discuss Over Your Dead Body, the most challenging scenes to pull off, and their only autograph.
+---------
+
+# 3 Years Before 'Game of Thrones,' This Fantasy Procedural Was Hiding a Future Fan-Favorite
+
+TV Features, Nikolaj Coster-Waldau, New Amsterdam, Game Of Thrones, FOX TV
+
+Sat, 25 Apr 2026 01:55:12 GMT
+
+https://collider.com/new-amsterdam-nikolaj-coster-waldau-fantasy-procedural-game-of-thrones/
+
+Before Jaime Lannister, Nikolaj Coster-Waldau starred in the forgotten Fox series New Amsterdam, playing an immortal detective with a unique story.
+---------
+
+# Jason Statham and Charlize Theron's Fan-Favorite Heist Thriller Is a Streaming Sleeper Hit
+
+Movie News, Jason Statham, Mark Wahlberg, The Italian Job, STARZ
+
+Sat, 25 Apr 2026 01:45:13 GMT
+
+https://collider.com/jason-statham-charlize-theron-heist-thriller-the-italian-job-streaming-hit-starz-april-2026/
+
+Jason Statham, Charlize Theron, and the rest of The Italian Job's star-studded cast are making a clean getaway on streaming.
+---------
+
+# 5 Rob Zombie Horror Movies That Are God-Awful
+
+Movie, Zombie, Rob Zombie's Halloween, Rob Zombie's Halloween II, 31
+
+Sat, 25 Apr 2026 01:42:12 GMT
+
+https://collider.com/worst-rob-zombie-horror-movies-awful/
+
+Rob Zombie’s worst horror films ranked, from Halloween to 31, exploring failed terror, chaos and cult gore misfires.
+---------
+
+# HBO Max's Fantasy Classic Surges on Streaming Ahead of Theatrical Return
+
+Movie News, The Mummy, Brendan Fraser, The Mummy 4, HBO Max
+
+Sat, 25 Apr 2026 01:30:13 GMT
+
+https://collider.com/brendan-fraser-the-mummy-cult-classic-fantasy-franchise-streaming-success-hbo-max-april-2026/
+
+The Mummy franchise, including the original film and its sequels, has made a significant impact on HBO Max's top 10 list.
+---------
+
+# Apple TV's 2-Part Crime Thriller Series Is the Perfect One-Night Weekend Binge
+
+TV News, Apple TV, Criminal Record, Thriller, Peter Capaldi
+
+Sat, 25 Apr 2026 01:15:12 GMT
+
+https://collider.com/apple-tv-british-crime-thriller-criminal-record-streaming-hit-april-2026/
+
+Apple TV's twisted British crime thriller starring Peter Capaldi is a sudden streaming hit following the debut of Season 2.
+---------
+
+# 8 Superhero Movie Masterpieces That Definitely Aren’t for Kids
+
+Movie, Watchmen, Superhero, Deadpool, Kick-Ass
+
+Sat, 25 Apr 2026 01:15:12 GMT
+
+https://collider.com/superhero-movies-definitely-not-for-kids/
+
+R-rated superhero movies like Watchmen, Kick-Ass, and Deadpool are all great, but you definitely shouldn't watch them with your kids.
+---------
+
+# Netflix’s 9-Part ‘Reacher’ Replacement Based on a Bestselling Book Series Is the Perfect Binge
+
+TV Features, Jo Nesbø's Detective Hole, Joel Kinnaman, Netflix, Crime
+
+Sat, 25 Apr 2026 01:15:12 GMT
+
+https://collider.com/netflix-reacher-replacement-jo-nesbos-detective-hole-perfect/
+
+Netflix's new 9-part series, based on the bestselling book series by author Jo Nesbø, delves deep into the psyche of a flawed crime squad detective.
+---------
+
+# 'Rush Hour 4' Suffers Production Delay After Reported Pay Cuts for Returning Stars for SEO
+
+Movie News, Rush Hour 4, Rush Hour
+
+Sat, 25 Apr 2026 02:25:09 GMT
+
+https://movieweb.com/rush-hour-4-delay-pay-dispute/
+
+'Rush Hour 4' will not begin production for the foreseeable future after reported salary disputes with its leading stars.
+---------
+
+# 11 Greatest TV Endings of the 21st Century, Ranked
+
+TV Lists
+
+Sat, 25 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/greatest-tv-endings-21st-century-ranked/
+
+Not all TV shows say goodbye the right way, but these masterpiece shows set the gold standard for perfect endings.
+---------
+
+# Henry Cavill's 'Highlander' Reboot Can Finally Redeem 'The Man from U.N.C.L.E.'
+
+Features, Highlander, Henry Cavill
+
+Sat, 25 Apr 2026 01:00:18 GMT
+
+https://movieweb.com/henry-cavill-highlander-reboot-redemption-the-man-from-uncle/
+
+Cavill will star in the 'Highlander' reboot, which could give him another legitimate franchise after 'The Man from U.N.C.L.E.' failed to launch.
+---------
+
+# Pedro Pascal & Matthew McConaughey Join Western From 'Oldboy's Park Chan-Wook
+
+Movie News, Pedro Pascal, Matthew McConaughey, Park Chan-wook, Austin Butler
+
+Sat, 25 Apr 2026 00:32:34 GMT
+
+https://movieweb.com/pedro-pascal-western-park-chan-wook/
+
+Austin Butler also stars in the movie from the writer of 'Bone Tomahawk.'
+---------
+
 # 8 Near-Perfect Thriller Novels That Are Absolute Pager Turners
 
 Books
