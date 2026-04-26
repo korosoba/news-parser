@@ -1,3 +1,333 @@
+# Apple TV’s Returning 8-Part Detective Thriller Will Be A Radically Different Show In 2026
+
+Streaming TV, Apple TV, Sugar
+
+Sun, 26 Apr 2026 03:30:20 GMT
+
+https://screenrant.com/apple-tv-sugar-different-season-2/
+
+Apple TV’s acclaimed 8-part detective show is all set to return in 2026 with season 2, and, this time around, it will be a radically different series.
+---------
+
+# One Piece Anime Faces Backlash Over One Frustrating Reason
+
+Anime, One Piece
+
+Sun, 26 Apr 2026 03:30:20 GMT
+
+https://screenrant.com/one-piece-anime-return-fans-upset-pacing/
+
+The One Piece anime made a triumphant return before quickly disappointing its audience. Here's what caused the massive drop in recent episode ratings.
+---------
+
+# Frieren Season 2 is Only 10-Episodes Long, and That is For the Best
+
+Anime, Frieren: Beyond Journey's End, Frieren: Beyond Journey's End - Season 2
+
+Sun, 26 Apr 2026 03:21:19 GMT
+
+https://screenrant.com/frieren-anime-season-2-episode-count-better-op-ed/
+
+Frieren: Beyond Journey's End Season 2 is significantly shorter than Season 1 and that is a very good thing for the beloved anime series.
+---------
+
+# Netflix’s New Philip K. Dick Adaptation Is Based On His Most Underrated Story
+
+Streaming TV, Netflix, Sci-Fi
+
+Sun, 26 Apr 2026 03:15:20 GMT
+
+https://screenrant.com/netflix-philip-k-dick-show-underrated/
+
+Netflix is adapting a Philip K. Dick story, which is not as well known as his most popular works and remains underrated even after so many years.
+---------
+
+# Kimiko & Frenchie's Romance In The Boys Was A Bad Idea
+
+Streaming TV, The Boys
+
+Sun, 26 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/the-boys-frenchie-kimiko-romance-bad-idea-prove-me-wrong/
+
+Kimiki and Frenchie have had undeniable chemistry almost throughout The Boys’ runtime, but their romance seems like a mistake in the show’s season 5.
+---------
+
+# Outlander Season 8's Latest Time Travel Twist Will Save The Show's Finale
+
+Streaming TV, Outlander, Outlander - Season 8
+
+Sun, 26 Apr 2026 02:46:20 GMT
+
+https://screenrant.com/outlander-season-8-fanny-time-travel-save-ending/
+
+Outlander doesn't have much time to overcome its biggest ending issue, but this most recent time travel twist could turn everything around.
+---------
+
+# Sparks Of Tomorrow Sci-Fi Show Will Lead To A 2026 Steampunk Vs. Cyberpunk Battle
+
+Streaming TV, Sparks of Tomorrow, Neuromancer, Blade Runner 2099, Ghost in the Shell
+
+Sun, 26 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/sparks-of-tomorrow-steampunk-cyberpunk-battle/
+
+Cyberpunk is undoubtedly going to have a great year in 2026, but one upcoming sci-fi show will lead to an epic steampunk vs. cyberpunk showdown.
+---------
+
+# Marvel's Failed First Cinematic Universe Would Have Changed Movie History Forever
+
+Movies, Marvel Cinematic Universe
+
+Sun, 26 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/marvel-first-cinematic-universe-artisan/
+
+A failed deal between Marvel and Artisan Entertainment could have changed not just the MCU, but the entire cinema landscape.
+---------
+
+# Pokémon Fans Stunned At How Far X & Y Has Come After Leaked Footage
+
+Gaming, Pokemon
+
+Sun, 26 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/pokemon-x-y-leaked-footage-fan-reaction/
+
+Pokémon X and Y may be classics, but recently shared development builds suggest just how far they came — and how much the franchise has evolved.
+---------
+
+# 10 Most Underrated Superpowers in X-Men Lore
+
+Comics, X-Men
+
+Sun, 26 Apr 2026 02:30:19 GMT
+
+https://screenrant.com/x-men-most-underrated-powers/
+
+Forget telepathy and adamantium; the most dangerous gifts in Charles Xavier's Institute were the ones nobody bothered to fear.
+---------
+
+# 10 Harsh Realities of Rewatching Lost 22 Years Later
+
+TV, Lost, ABC, Mystery
+
+Sun, 26 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/lost-harsh-realities-after-rewatch-list/
+
+While Lost is a wonderful show that has aged well, there are some harsh truths about revisiting the show that can make it not as fun the second time.
+---------
+
+# 10 Open-World Games That Are (Almost) As Good As Elden Ring
+
+Games, Lists, Video Games, Elden Ring
+
+Sun, 26 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/best-open-world-games-almost-as-good-as-elden-ring/
+
+Elden Ring is the greatest open-world game of all time, but there are also similar titles that everyone needs to play.
+---------
+
+# 10 Reasons Miraculous Ladybug Is More Than Just a Kid's Show
+
+Anime, Miraculous: Tales of Ladybug & Cat Noir
+
+Sun, 26 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/miraculous-ladybug-anime-complex-themes-not-just-kids-series-list/
+
+Miraculous: Tales of Ladybug & Cat Noir is one of the best all-ages anime ever.
+---------
+
+# Berserk Revives the Dragon Slayer Sword With New Limited-Edition Release
+
+Anime, Berserk, merchandise
+
+Sun, 26 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/berserk-dragon-slayer-art-of-war-release/
+
+Fans of Berserk can now have their own Dragon Slayer through a truly sharp and exquisite new statue, complete with a recreation of Guts' arm.
+---------
+
+# Xbox Game Pass Officially Adds 15 New Free Games Available Day One
+
+Games, Xbox (Original)
+
+Sun, 26 Apr 2026 02:55:12 GMT
+
+https://www.cbr.com/xbox-game-pass-new-free-games-april-2026/
+
+Xbox Game Pass gamers are getting more than a dozen brand-new games completely for free, and they won't have to wait a single day more.
+---------
+
+# One Piece is About to Make its Biggest Mistake Ever
+
+Anime, One Piece
+
+Sun, 26 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/one-piece-biggest-mistake-imu-wont-kill-strawhats/
+
+One Piece has always been shy about killing characters, but Nerona Imu's upcoming failure will make the rest of the manga feel pointless.
+---------
+
+# Every Taron Egerton Movie Ranked (Including Netflix's 'Apex')
+
+Movies, Apex
+
+Sun, 26 Apr 2026 02:20:12 GMT
+
+https://www.cbr.com/every-taron-egerton-movie-ranked/
+
+Taron Egerton has collected a great catalogue of film roles over his career so far, but which one is the best?
+---------
+
+# Most Frustrating Video Game Boss Fights Of All Time
+
+Games, Video Games, Elden Ring, Baldur's Gate 3, Sekiro: Shadows Die Twice
+
+Sun, 26 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/most-frustrating-video-game-boss-fights/
+
+Some boss fights can elevate a video game experience, while others are so annoying that they remain a hated part of the player's memory forever.
+---------
+
+# Naruto Still Isn't as Big in Japan as It Is Overseas, Official Ranking Reveals
+
+Anime, Naruto
+
+Sun, 26 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/naruto-japan-vs-international-anime-country-popularity/
+
+According to a new data report on global anime trends, the Naruto series is not as popular in Japan as it is internationally.
+---------
+
+# 10 Most Powerful Boruto Characters Stronger Than Everyone in Naruto
+
+Anime, Boruto: Naruto Next Generations, Naruto
+
+Sun, 26 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/most-powerful-boruto-characters-stronger-than-naruto/
+
+Nearly every major character in Boruto could destroy Naruto icons like Madara and Itachi Uchiha.
+---------
+
+# Nicolas Cage Channels 'Bosch' in Intense New Trailer for Spider-Man Detective Series
+
+TV News, Spider-Noir, Nicolas Cage, Li Jun Li, Prime Video
+
+Sun, 26 Apr 2026 02:06:37 GMT
+
+https://collider.com/prime-video-spider-noir-trailer-nicolas-cage-ccxp/
+
+A new trailer for Spider-Noir tangles Nicolas Cage's super-detective up with a deadly mystery and even deadlier villains. Watch it here!
+---------
+
+# 8 Netflix Fantasy Shows That Nobody Remembers
+
+TV, Fantasy, Netflix, Warrior Nun, The Order
+
+Sun, 26 Apr 2026 01:34:13 GMT
+
+https://collider.com/netflix-fantasy-shows-nobody-remembers/
+
+Warrior Nun, The Order, Cursed, Locke & Key, and more make up our list of Netflix fantasy shows that nobody remembers.
+---------
+
+# Netflix's 2-Part Action Thriller Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, The Recruit, Noah Centineo, Action, Netflix
+
+Sun, 26 Apr 2026 01:01:12 GMT
+
+https://collider.com/netflix-the-recruit-thriller-noah-centineo-rewatch/
+
+Noah Centineo transitions from adorkable rom-com lead to a skilled CIA operative in the thrilling Netflix series The Recruit, showcasing his versatility and growth.
+---------
+
+# 10 Perfect Fantasy TV Shows With the Greatest World-Building
+
+TV, Fantasy, Game Of Thrones, Avatar: The Last Airbender, Pokémon
+
+Sun, 26 Apr 2026 00:34:13 GMT
+
+https://collider.com/perfect-fantasy-tv-shows-best-worldbuilding/
+
+Avatar: The Last Airbender, Pokémon, and Game of Thrones are among the best fantasy shows that perfectly immerse audiences into their worlds.
+---------
+
+# HBO Max’s 7-Part Crime Thriller Is Officially One of Its Best Shows To Binge
+
+TV News, DTF St. Louis, Crime, HBO Max, David Harbour
+
+Sun, 26 Apr 2026 00:16:13 GMT
+
+https://collider.com/david-harbour-crime-thriller-series-dtf-st-louis-streaming-success-hbo-max-april-2026/
+
+DTF St. Louis is climbing HBO Max’s global chart and becoming one of the platform’s standout crime hits.
+---------
+
+# Forget ‘The Godfather,’ Watch Tom Hanks’ 116-Minute Crime Epic Before It Leaves Streaming
+
+Movie News, Road to Perdition, Tom Hanks, The Last of Us, The Godfather
+
+Sun, 26 Apr 2026 00:00:12 GMT
+
+https://collider.com/tom-hanks-last-of-us-meets-godfather-crime-epic-road-to-perdition-leaving-peacock-may-2026/
+
+Tom Hanks' critically acclaimed crime epic, Road to Perdition, is leaving its streaming home. Find out when.
+---------
+
+# 'Pirates of the Caribbean 6' Still Set to Move Forward, Says Jerry Bruckheimer
+
+Movie News, Pirates of the Caribbean 6, Pirates of the Caribbean
+
+Sun, 26 Apr 2026 02:41:34 GMT
+
+https://movieweb.com/pirates-of-the-caribbean-6-jerry-bruckheimer-production/
+
+Producer Jerry Bruckheimer offered a promising update on 'Pirates of the Caribbean 6,' confirming it is still being planned for release.
+---------
+
+# Alternate Ending to 'Michael' Biopic Showed Child Abuse Allegations
+
+Movie News, Michael
+
+Sun, 26 Apr 2026 02:40:22 GMT
+
+https://movieweb.com/original-michael-ending-different/
+
+The original ending of 2026's 'Michael' showed one of the darkest moments in Michael Jackson's life, when he was accused of child abuse.
+---------
+
+# 10 Things the New 'Star Trek' Reboot Needs To Get Right
+
+Movie Lists, Star Trek
+
+Sun, 26 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/star-trek-reboot-changes-needs-to-get-right/
+
+With a new 'Star Trek' film on the way, here are the ten ways it can distinguish itself from the 2009 J.J. Abrams reboot.
+---------
+
+# Stephen King's 'Dreamcatcher' Adaptation Deserves a Reevaluation
+
+Features, Dreamcatcher
+
+Sun, 26 Apr 2026 00:00:18 GMT
+
+https://movieweb.com/stephen-king-adaptation-dreamcatcher-reevaluated/
+
+Released in 2003, 'Dreamcatcher' often ranks low on Stephen King adaptations lists, yet it's quite enjoyable.
+---------
+
 # A24 Built Thirty Thousand Square Feet Of Backrooms So Kane Parsons Could Bring His "Strange" World To Life
 
 Movies, Backrooms, Comic Con Experience (CCXP)
