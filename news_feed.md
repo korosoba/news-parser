@@ -1,3 +1,113 @@
+# X-Men '97 Is Great, But The Blueprint For The MCU's X-Men Movie Is A Different Mutant Show
+
+Classic TV, X-Men: Evolution, X-Men '97
+
+Sun, 26 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/x-men-evolution-mcu-blueprint-younger-mutants/
+
+The X-Men are landing in the MCU, and things are about to change in big ways, but Marvel has a great foundation for these stories going forward.
+---------
+
+# This Free Steam Game Has Over 1,800 Hours Of Content
+
+Gaming, Steam, Dota 2
+
+Sun, 26 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/steam-free-game-1800-hours/
+
+Though it can't be beaten in any traditional sense, there is a game on Steam that has the potential to absorb thousands of hours of your life.
+---------
+
+# Zelda: Majora's Mask Meets Tunic In New Adventure Game
+
+Gaming, The Legend of Zelda: Majora's Mask, Tunic
+
+Sun, 26 Apr 2026 10:30:19 GMT
+
+https://screenrant.com/zelda-yalroc-island-tunic-new-game/
+
+Discover a unique world where players must save an island from flood within three days with a blend of Zelda and Landstalker elements.
+---------
+
+# 10 Best Batman Retcons That Made DC Comics Better
+
+Comics, Batman
+
+Sun, 26 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/best-batman-retcons-ranked/
+
+These Batman retcons made The Caped Crusader's story even more meaningful.
+---------
+
+# MGM+'s From Has the Scariest Opening Scene in TV History
+
+TV, From, Horror, Sci-Fi, MGM+
+
+Sun, 26 Apr 2026 10:30:12 GMT
+
+https://www.cbr.com/mgm-from-scariest-opening-scene/
+
+MGM's horror sci-fi hit has shown its sheer brutality since the opening minutes of the first episode, and hasn't slowed down since.
+---------
+
+# Bryan Cranston's Best Crime Thriller Since 'Breaking Bad' Officially Leaves Netflix This May
+
+Movie News, The Infiltrator, Bryan Cranston, Breaking Bad, Netflix
+
+Sun, 26 Apr 2026 11:00:13 GMT
+
+https://collider.com/bryan-cranston-best-crime-thriller-since-breaking-bad-the-infiltrator-leaving-netflix-may-2026/
+
+One of Bryan Cranston’s best film roles, The Infiltrator, in which he plays an undercover U.S. agent, is leaving a major streamer soon.
+---------
+
+# Only 10 Sitcoms in the 2000s Can Be Considered True Masterpieces
+
+TV, Sitcom, It's Always Sunny in Philadelphia, The Office, Curb Your Enthusiasm
+
+Sun, 26 Apr 2026 10:59:12 GMT
+
+https://collider.com/2000s-sitcoms-true-masterpieces/
+
+Revisit sitcoms from the 2000s that stand out as comedy masterpieces, showcasing exceptional writing and modern humor, from Scrubs to The Office.
+---------
+
+# 12 Years Later, Sci-Fi’s Biggest Masterpiece Still Hasn’t Been Adapted Like It Deserves
+
+TV Features, Sci-Fi, Books, Science Fiction, Universal
+
+Sun, 26 Apr 2026 10:44:12 GMT
+
+https://collider.com/red-rising-books-movie-tv-show-adaptation-status-pierce-brown/
+
+Pierce Brown's acclaimed sci-fi series Red Rising has been in development limbo for over a decade, per the latest update from the author.
+---------
+
+# 8 Years Later, Steven Spielberg’s Sci-Fi Sleeper Hit Is Officially Taking Over the World
+
+Movie News, Ready Player One, Steven Spielberg, Sci-Fi, Streaming
+
+Sun, 26 Apr 2026 10:30:12 GMT
+
+https://collider.com/steven-spielberg-sci-fi-sleeper-hit-ready-player-one-global-streaming-success-prime-video-apple-tv-april-2026/
+
+Ready Player One is resurging on streaming as the franchise prepares for its October 2026 graphic novel follow-up.
+---------
+
+# This Sci-Fi Cult Thriller From 'The OA' Creators Flew Under Everyone's Radar
+
+Movie Features, Sound of My Voice, Brit Marling, The OA, Thriller
+
+Sun, 26 Apr 2026 10:23:12 GMT
+
+https://collider.com/sound-of-my-voice-2011-sci-fi-thriller-brit-marling-the-oa/
+
+The OA creators Brit Marling and Zal Batmanglij made Sound of My Voice, a chilling thriller about the seduction of cults.
+---------
+
 # Star Trek: Strange New Worlds Season 4 - Release, Cast, Story & Latest News
 
 TV, Star Trek, Star Trek: Strange New Worlds
