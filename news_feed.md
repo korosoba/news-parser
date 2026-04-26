@@ -1,3 +1,234 @@
+# Alien Xenomorph 6-Foot Animatronic Revealed by Spirit Halloween for Alien Day (Exclusive)
+
+Movies, Alien
+
+Sun, 26 Apr 2026 16:31:24 GMT
+
+https://screenrant.com/alien-xenomorph-animatronic-6ft-spirit-halloween/
+
+This life-size Alien Xenomorph animatronic stands over 6 feet tall with motion effects and inner jaw action. Here are details, price, and features.
+---------
+
+# 10 Classic TV Shows That Can't Be Revived
+
+Classic TV
+
+Sun, 26 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/tv-shows-cannot-be-revived/
+
+Some classic TV shows simply can't be revived after examining core factors like story closure, cast availability, and narrative sustainability.
+---------
+
+# 10 Best Sci-Fi Time Travel TV Shows Everyone Forgot About
+
+Classic TV
+
+Sun, 26 Apr 2026 16:30:18 GMT
+
+https://screenrant.com/time-travel-tv-shows-forgotten/
+
+These overlooked time travel TV shows offer innovative takes on sci-fi, from emotional character-driven stories to complex serialized mythologies.
+---------
+
+# Every Jason Statham Movie Remake, Ranked Worst To Best
+
+Movies, Jason Statham, Ranking
+
+Sun, 26 Apr 2026 16:20:18 GMT
+
+https://screenrant.com/jason-statham-movie-remakes-ranking/
+
+Jason Statham has fronted many movie remakes throughout his career, from classic comedies to gritty thrillers, but not all of them are hidden gems.
+---------
+
+# Anime "Fans" Have No Right To Hate On Crunchyroll's Latest Hit
+
+Anime, Witch Hat Atelier, Crunchyroll
+
+Sun, 26 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/witch-hat-atelier-interview-controversy/
+
+The Witch Hat Atelier situation is crazy.
+---------
+
+# 19 Years Later, Glen Powell's Upcoming Comedy Can Revive A Dead Genre
+
+Movies, Judd Apatow, Glen Powell, Knocked Up, The Comeback King
+
+Sun, 26 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/comeback-king-glen-powell-revive-bromance-comedy/
+
+Judd Apatow's long-awaited return to directing with Glen Powell in The Comeback King could be the comeback comedy fans have been waiting for.
+---------
+
+# 10 RPGs On Xbox Game Pass That Are Perfect 10/10s
+
+Gaming, Xbox Game Pass, RPG, Triple-A Games, Indie
+
+Sun, 26 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/best-rpgs-xbox-game-pass-perfect-scores/
+
+You can find dozens of great RPGs available to play within the Xbox Game Pass catalog, but some of them are perfect 10/10s you shouldn’t skip.
+---------
+
+# 10 Superhero Movies That Completely Reinvented Their Source Material
+
+Classic Movies, Superhero, Ranking
+
+Sun, 26 Apr 2026 15:55:19 GMT
+
+https://screenrant.com/superhero-movies-reinvented-source-material/
+
+Superhero movies often stay close to the source material to keep comic fans happy while still creating great movies, but some change everything.
+---------
+
+# Marvel’s 91% RT Show Renewed For Season 2 Began As “A Joke Pitch”
+
+TV, Wonder Man, Wonder Man - Season 1, Marvel Cinematic Universe
+
+Sun, 26 Apr 2026 15:47:24 GMT
+
+https://screenrant.com/wonder-man-marvel-joke-pitch-destin-daniel-cretton-explained/
+
+Before it became a critically acclaimed show or got renewed for season 2, this Marvel Cinematic Universe series began as "a joke pitch."
+---------
+
+# Jimmy McGill's Humble Beginnings as TV's Greatest Lawyer
+
+TV, Better Call Saul, Breaking Bad
+
+Sun, 26 Apr 2026 16:30:12 GMT
+
+https://www.cbr.com/better-call-saul-jimmy-mcgill-saul-goodman-best-tv-lawyer/
+
+For a glimpse at the average hustle-filled day in the public defender's life, one montage in Better Call Saul is by far the most realistic portrayal.
+---------
+
+# Wonder Man, 1 of Marvel's Best Shows Ever, Began as a 'Joke Pitch'
+
+TV, Marvel, MCU, Marvel Comics, Wonder Man
+
+Sun, 26 Apr 2026 16:19:38 GMT
+
+https://www.cbr.com/marvel-top-show-wonder-man-began-as-a-joke-pitch-disney/
+
+One of the most celebrated shows in the history of Marvel wasn't supposed to happen.
+---------
+
+# 10 Most Popular Anime Characters of the '90s, Ranked
+
+Anime, shonen anime, Dragon Ball, Sailor Moon, Cowboy Bebop, Yu Yu Hakusho
+
+Sun, 26 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/most-popular-90s-anime-characters/
+
+The 1990s brought Japanese anime to viewers worldwide, establishing some of the medium's most memorable characters.
+---------
+
+# 10 Most Perfect Superhero Movies Not Connected to Marvel Or DC
+
+Movies, superheroes
+
+Sun, 26 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/perfect-superhero-movie-not-marvel-or-dc/
+
+Marvel Studios and DC Studios may have a monopoly on superhero films, but there are many incredible superhero flicks not in these major franchises.
+---------
+
+# Dragon Ball Z Officially Brings Back 1 of Frieza's Strongest Forms With a New Release
+
+Anime, Dragon Ball Z, Dragon Ball, merchandise
+
+Sun, 26 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/dbz-frieza-tamashii-nations-sh-figuarts-release-2026/
+
+Dragon Ball's villains are almost never gone for good, and a new official DBZ release brings back Frieza at his strongest.
+---------
+
+# Timothy Olyphant's New R-Rated Thriller Remake Officially Scores Best RT Audience Score in 19 Years
+
+Movies, Over Your Dead Body
+
+Sun, 26 Apr 2026 15:57:35 GMT
+
+https://www.cbr.com/timothy-olyphant-over-your-dead-body-rotten-tomatoes-audience-score/
+
+Timothy Olyphant is extremely busy with thrilling projects.
+---------
+
+# 10 Greatest Biopunk Movies of All Time, Ranked
+
+Movie, Blade Runner, Akira, The Fly, Tetsuo: The Iron Man
+
+Sun, 26 Apr 2026 16:23:12 GMT
+
+https://collider.com/best-biopunk-movies-all-time-ranked/
+
+The biopunk subgenre focuses on the possibilities and dangers of biological technology, with movies like Gattaca and The Fly ranking among the best.
+---------
+
+# 10 Best Movie Endings of the 2000s, Ranked
+
+Movie, The Lord of the Rings: The Return of the King, The Mist, Gladiator, There Will Be Blood
+
+Sun, 26 Apr 2026 16:06:13 GMT
+
+https://collider.com/best-movie-endings-2000s-ranked/
+
+The best movie endings of the 2000s come from masterpieces like Oldboy, The Lord of the Rings: The Return of the King, and Mulholland Drive.
+---------
+
+# Taylor Sheridan's Forgotten Crime Thriller With Jenna Ortega Surges on Streaming 3 Years Later
+
+Movie News, Taylor Sheridan, Finestkind, Paramount Plus, Marshals
+
+Sun, 26 Apr 2026 16:00:13 GMT
+
+https://collider.com/taylor-sheridan-jenna-ortega-forgotten-crime-thriller-finestkind-streaming-success-paramount-plus-april-2026/
+
+Taylor Sheridan's gritty crime thriller Finestkind, starring Ben Foster and perfect for fans of The Town, is staging a comeback on streaming.
+---------
+
+# Prime Video’s 4-Part 'Bridgerton' Replacement Is the Perfect One-Night Binge
+
+TV Features, Seeking Persephone, Prime Video, Drama
+
+Sun, 26 Apr 2026 15:54:12 GMT
+
+https://collider.com/prime-video-seeking-perseophone-bridgerton-replacement/
+
+Seeking Persephone is a perfect comfort watch set to fill the Bridgerton void with its slow-burn chemistry and emotional intimacy.
+---------
+
+# 'Supernatural's Main Three Stars Reunite This Week on 'The Boys'
+
+Features, Supernatural, The Boys, Upcoming Tease
+
+Sun, 26 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/supernatural-the-boys-reunion-next-week/
+
+Fans of 'Supernatural' finally have the perfect follow-up with Jared Padalecki, Jensen Ackles, and Misha Collins coming back together.
+---------
+
+# 'Spider-Noir' Trailer Reveals Nicolas Cage Battling Brendon Gleeson
+
+TV Trailers, Spider-Noir, Spider-Man, Nicolas Cage
+
+Sun, 26 Apr 2026 15:55:24 GMT
+
+https://movieweb.com/spider-noir-trailer-nicolas-cage-brendon-gleeson/
+
+The 'Spider-Noir' trailer also shows off 1930s versions of Spider-Man villains like Sandman and Electro.
+---------
+
 # Super Mario Galaxy Hits Huge Box Office Milestone That Only 2 Video Game Movies Have Reached Before
 
 Movies, Box Office Milestone, Super Mario Bros., The Super Mario Galaxy Movie
