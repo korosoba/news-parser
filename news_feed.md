@@ -1,3 +1,69 @@
+# 10 Must-Watch K-Dramas For Every Romantasy Fan
+
+Classic TV, K-Drama
+
+Sun, 26 Apr 2026 09:00:19 GMT
+
+https://screenrant.com/k-dramas-for-romance-fantasy-fans/
+
+Each year, more and more titles blend heartwarming romance and enchanting fantasy, but the Korean drama industry has always been a romantasy goldmine.
+---------
+
+# 'The Pitt' Cut a Scene Between Emma and Javadi And We'd Love to See It in Season 3
+
+Exclusives, The Pitt, Ladies Night, Laëtitia Hollard, Shabana Azmi
+
+Sun, 26 Apr 2026 09:00:13 GMT
+
+https://collider.com/the-pitt-deleted-scene-javadi-emma-laetitia-hollard/
+
+While on Collider Ladies Night, The Pitt's Laëtitia Hollard discussed nurse Emma's journey in Season 2, and her hopes for the character in Season 3.
+---------
+
+# Say Goodbye to Jesse Eisenberg’s 96-Minute Cult Thriller on Netflix
+
+Movie News, Manodrome, Netflix, Adrien Brody, Jesse Eisenberg
+
+Sun, 26 Apr 2026 09:00:13 GMT
+
+https://collider.com/taxi-driver-meets-fight-club-in-manodrome-leaving-netflix-may-2026/
+
+Netflix is scheduled to remove the underrated thriller Manodrome, starring Jesse Eisenberg and Adrien Brody, very soon.
+---------
+
+# Apple TV's Near-Perfect Crime Thriller Becomes a No. 1 Streaming Hit
+
+TV News, Your Friends and Neighbors, Jon Hamm, Crime, Apple TV
+
+Sun, 26 Apr 2026 08:40:12 GMT
+
+https://collider.com/your-friends-and-neighbors-apple-tv-crime-thriller-streaming-success-april-2026/
+
+Your Friends & Neighbors has climbed to No. 1 on Apple TV’s worldwide chart, ahead of Monarch and more.
+---------
+
+# Say Goodbye to Michael Bay’s 144-Minute Sci-Fi Blockbuster on Streaming
+
+Movie News, Transformers, Michael Bay, Shia LaBeouf, Megan Fox
+
+Sun, 26 Apr 2026 08:20:12 GMT
+
+https://collider.com/michael-bay-millennial-masterpiece-transformers-2007-leaving-peacock-may-2026/
+
+Michael Bay's millennial masterpiece, Transformers, is leaving Peacock soon. Find out how long you have left to watch it.
+---------
+
+# Megan Fox’s 95-Minute Sci-Fi Thriller Is Leaving Netflix Sooner Than You Think
+
+Movie News, Subservience, Netflix, Megan Fox, Sci-Fi
+
+Sun, 26 Apr 2026 08:00:12 GMT
+
+https://collider.com/megan-fox-sci-fi-thriller-subservience-leaving-netflix-may-2026/
+
+Megan Fox's sci-fi thriller Subservience, which holds a 49% rating on Rotten Tomatoes, is set to leave Netflix soon. Here's all to know.
+---------
+
 # Assassin’s Creed Black Flag Resynched: Release Date, Pre-orders, Price, & Biggest Changes
 
 Gaming, Assassin's Creed 4: Black Flag, Triple-A Games, PC, Assassin's Creed Black Flag Resynced
