@@ -1,3 +1,201 @@
+# A24 Built Thirty Thousand Square Feet Of Backrooms So Kane Parsons Could Bring His "Strange" World To Life
+
+Movies, Backrooms, Comic Con Experience (CCXP)
+
+Sat, 25 Apr 2026 23:30:46 GMT
+
+https://screenrant.com/backrooms-movie-complex-explained-kane-parsons-ccxp/
+
+Parsons also said that the film will reward rewatches, with eagle-eyed viewers able to notice more details about the Complex upon repeat viewings.
+---------
+
+# One Star Wars Moment Still Dominates the Franchise 12 Years Later
+
+Star Wars, Star Wars: Rebels
+
+Sat, 25 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/most-heartbreaking-star-wars-moment-kanan-jarrus/
+
+The Cowboy Jedi who gave all he had so a rebellion could grow.
+---------
+
+# Tom Hardy's Underrated 2009 Crime Drama 'The Take' With Partner Charlotte Riley
+
+Classic TV, Masked Recs, Tom Hardy
+
+Sat, 25 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/tom-hardy-the-take-best-tv-roles/
+
+One of the best character actors around, Tom Hardy has a penchant for crime roles, and this underappreciated 2009 performances is among his very best.
+---------
+
+# Xbox Game Pass Could Have Even More Changes According To Leak
+
+Gaming, Xbox Game Pass
+
+Sat, 25 Apr 2026 23:30:20 GMT
+
+https://screenrant.com/xbox-game-pass-more-changes-cheaper-price/
+
+Despite having already gone through several major changes in the past few weeks, Xbox Game Pass could look entirely different in the next few months.
+---------
+
+# Star Trek’s Best Show On TV Officially Returns In July As First Trailer Unveils New Alien Threat
+
+TV, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4, Star Trek, Comic Con Experience (CCXP)
+
+Sat, 25 Apr 2026 23:15:19 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-release-date-trailer/
+
+This July marks the return of the best modern Star Trek show, whose fourth season now has an official Paramount+ date and a new trailer.
+---------
+
+# HBO Max Officially Adds ASL Viewing Option for House of the Dragon
+
+TV, House of the Dragon, HBO Max, Game Of Thrones
+
+Sat, 25 Apr 2026 23:54:59 GMT
+
+https://www.cbr.com/house-of-the-dragon-asl-may-2026/
+
+House of the Dragon gets a new viewing option for the Game of Thrones prequel series on HBO Max.
+---------
+
+# 10 Best Shonen Anime Villains of the 1990s
+
+Anime, shonen anime, Dragon Ball Z, Cowboy Bebop, Yu Yu Hakusho, Shonen
+
+Sat, 25 Apr 2026 23:45:12 GMT
+
+https://www.cbr.com/best-shonen-anime-villains-1990s/
+
+Shonen anime of the '90s set the bar for villains to come in future generations of anime.
+---------
+
+# Madame's Place Is 1 of the Most Bizarre Relics of the 1980s
+
+TV, Sitcoms, Madame's Place
+
+Sat, 25 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/forgotten-80s-sitcom-madames-place/
+
+A forgotten prime-time queen shook up TV with her risqué humor and celebrity guests, proving she was more than a typical talk show host.
+---------
+
+# Ben Gardner's Jaws Death Remains Cinema's Biggest Unsolved Mystery
+
+Movies, Jaws
+
+Sat, 25 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/after-51-years-jaws-secret-death-remains-cinemas-biggest-unsolved-mystery/
+
+Ben Gardner's death in Jaws is one of the most mysterious moments in Jaws and after over 50 years, it still hasn't been answered.
+---------
+
+# 10 Most Popular Shonen Heroes From the Last Decade, Ranked
+
+Anime, My Hero Academia, Demon Slayer: Kimetsu no Yaiba, Chainsaw Man, Frieren: Beyond Journey's End
+
+Sat, 25 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/most-popular-shonen-heroes-2020s/
+
+Over the last 10 years, shonen anime has introduced some of its best characters ever, and fans have naturally loved them more than any others.
+---------
+
+# Netflix’s 2-Part Fantasy Series Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Netflix, Fantasy, Adventure, One Piece
+
+Sat, 25 Apr 2026 23:52:12 GMT
+
+https://collider.com/one-piece-netflix-fantasy-good-rewatch/
+
+Netflix's live-action One Piece adaptation, following a pirate crew on their epic adventures, is the perfect series to watch again and again.
+---------
+
+# The Best Dinosaur Movie Since 'Jurassic Park' Is a Global Streaming Hit Ahead of Sequel Release
+
+Movie News, Primitive War, Sci-Fi, Jurassic Park, Jeremy Piven
+
+Sat, 25 Apr 2026 23:45:13 GMT
+
+https://collider.com/jurassic-park-replacement-primitive-war-global-streaming-success-hulu-april-2026-ahead-of-sequel-release/
+
+Primitive War is finding streaming success as buzz builds around the movie’s already-confirmed sequel.
+---------
+
+# Netflix’s 97% RT Action Epic Is So Good, You'll Finish It in One Sitting
+
+TV Features, Netflix, Blue Eye Samurai, Animation, Action
+
+Sat, 25 Apr 2026 23:36:13 GMT
+
+https://collider.com/netflix-blue-eye-samurai-action-epic-binge-watch/
+
+Netflix's 97% RT action epic, Blue Eye Samurai, tells a gripping revenge story set in 17th-century Japan that's worth binging in one sitting.
+---------
+
+# Adam Driver’s Historical Epic That Took 40 Years To Make Is Leaving Paramount+
+
+Movie News, Martin Scorsese, Liam Neeson, Silence, Adam Driver
+
+Sat, 25 Apr 2026 23:30:13 GMT
+
+https://collider.com/adam-driver-historical-epic-martin-scorsese-liam-neeson-silence-leaving-paramount-plus-may-2026/
+
+The Adam Driver-led Silence, Martin Scorsese's passion project that took decades to get made, is leaving Paramount+ soon. Find out when.
+---------
+
+# Sam Rockwell's Intense Psychological Thriller With Vera Farmiga Is a Modern Hitchcock Film
+
+Movie Features, Joshua, Sam Rockwell, Vera Farmiga, Alfred Hitchcock
+
+Sat, 25 Apr 2026 23:21:12 GMT
+
+https://collider.com/joshua-psychological-thriller-hitchcock-sam-rockwell-vera-farmiga/
+
+Joshua, starring Vera Farmiga and Sam Rockwell, brings the Hitchcockian psychological thriller to modern urban times with tons of suspense.
+---------
+
+# Netflix’s 9-Part Crime Thriller Is Officially Taking Over the World
+
+TV News, Jo Nesbø's Detective Hole, Jo Nesbø, Netflix, Crime
+
+Sat, 25 Apr 2026 23:15:12 GMT
+
+https://collider.com/jo-nesbo-detective-hole-crime-thriller-netflix-streaming-success-april-2026/
+
+Detective Hole is now streaming on Netflix and quickly becoming one of the platform’s biggest crime hits.
+---------
+
+# Paramount+ Officially Confirms ‘Star Trek: Strange New Worlds’ Season 4 Release Date
+
+TV News, Star Trek: Strange New Worlds, Star Trek, Paramount Plus, Anson Mount
+
+Sat, 25 Apr 2026 23:15:12 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-teaser-trailer-paramount-plus-release-date-july-23-2026/
+
+The penultimate season of Star Trek: Strange New Worlds has debuted its first teaser trailer and official Paramount+ release date.
+---------
+
+# Paramount Shares Trailer, Release Date for Star Trek: Strange New World S4
+
+TV News, Star Trek: Strange New Worlds
+
+Sat, 25 Apr 2026 23:15:17 GMT
+
+https://movieweb.com/star-trek-strange-new-world-season-4-release-trailer/
+
+During a presentation at CCXP 2026, Paramount revealed the first trailer and release date for the fourth season of 'Star Trek: Strange New World.'
+---------
+
 # Avengers: Doomsday's Newest Trailer Makes One Big Doctor Doom Question More Complex
 
 Movies, Avengers: Doomsday
