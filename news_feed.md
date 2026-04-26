@@ -1,3 +1,278 @@
+# Forget Bloodborne, FromSoftware Should Revive This Forgotten Cult Classic
+
+Gaming, Bloodborne, Triple-A Games
+
+Sun, 26 Apr 2026 18:30:55 GMT
+
+https://screenrant.com/bloodborne-fromsoftware-better-remake-lost-kingdoms/
+
+As Bloodborne fans desperately await a remake or PC port, there's one older FromSoftware title that needs to be rescued from obscurity.
+---------
+
+# 10 Near-Perfect DC Shows No One Ever Talks About
+
+Classic TV, DC Comics
+
+Sun, 26 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/near-perfect-dc-tv-shows-not-talked-about/
+
+From forgotten animated hits to live-action experiments, some of the DC Universe's greatest TV shows have been totally lost to time.
+---------
+
+# Why Avengers: Doomsday Could Be The MCU's Most Ambitious Villain Story Yet
+
+Movies, Avengers: Doomsday
+
+Sun, 26 Apr 2026 18:30:18 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-ambitious-villain/
+
+Avengers: Doomsday will be a huge movie and it might have the most ambitious villain story from any film in the entire franchise with Doctor Doom.
+---------
+
+# 5 Major Michael Jackson Events The New Biopic Movie Doesn’t Cover That Could Be In A Sequel
+
+Movies, Michael
+
+Sun, 26 Apr 2026 18:05:19 GMT
+
+https://screenrant.com/michael-jackson-sequel-movie-events/
+
+Not every major milestone in Michael Jackson's life is covered in Michael—here's what was left out and could appear in a potential sequel movie.
+---------
+
+# Walton Goggins' 10-Year-Old HBO Series Was A Role Only He Could Do
+
+Classic TV, Vice Principals
+
+Sun, 26 Apr 2026 18:02:18 GMT
+
+https://screenrant.com/walton-goggins-vice-principals-role-only-actor/
+
+Walton Goggins brings a singular energy to every project he's a part of, but in this HBO series, he played a character only he could pull off.
+---------
+
+# Superman's Most Powerful Feat Of Strength Is Lifting The Earth For Multiple Days
+
+DC Comics, Superman
+
+Sun, 26 Apr 2026 18:01:18 GMT
+
+https://screenrant.com/how-much-can-superman-lift-dc-canon/
+
+Superman's strength has broken the laws of physics multiple times in DC canon, but his most impressive feat is still one that can be quantified.
+---------
+
+# The Boys Just Became A Horror Show In Season 5
+
+Streaming TV, The Boys
+
+Sun, 26 Apr 2026 18:01:18 GMT
+
+https://screenrant.com/the-boys-season-5-change-genre-horror/
+
+Despite being a superhero parody, The Boys has always excelled at drama and comedy, but season 5's latest episode just switched up the show's genre.
+---------
+
+# Zelda: Minish Cap Fans, Don't Miss This Brand-New Adventure Game
+
+Gaming, Steam
+
+Sun, 26 Apr 2026 18:01:18 GMT
+
+https://screenrant.com/zelda-fourleaf-fields-new-game/
+
+Discover the charming world of Fourleaf Fields, a Zelda: Minish Cap inspired farming simulator where you run a tiny farm and connect with village resi
+---------
+
+# Netflix's Canceled Shadow And Bone Series Deserved The Witcher's Success
+
+Streaming TV, Shadow and Bone, The Witcher
+
+Sun, 26 Apr 2026 17:45:20 GMT
+
+https://screenrant.com/netflix-shadow-and-bone-franchise-witcher/
+
+Netflix's canceled two-season steampunk fantasy series could have spawned a franchise just as extensive as the streamer's The Witcher universe.
+---------
+
+# 5 Spider-Heroes Who Could Totally Change Spider-Man: Beyond The Spider-Verse With Their Debuts
+
+Movies, Spider-Man: Beyond the Spider-Verse
+
+Sun, 26 Apr 2026 17:45:20 GMT
+
+https://screenrant.com/spiderman-beyond-the-spider-verse-spider-heroes-need/
+
+Spider-Man: Beyond the Spider-Verse has the potential for even more cameos, and these five Spider-Heroes could change the film for the best.
+---------
+
+# Before Tom Cruise's 'Digger,' Fans Must Watch 'Eyes Wide Shut'
+
+Movies, Eyes Wide Shut, Digger
+
+Sun, 26 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/tom-cruise-digger-erotic-thriller-eyes-wide-shut/
+
+Eyes Wide Shut proves that Tom Cruise is not just an action star
+---------
+
+# Today’s Dark Fantasy Boom Owes Everything to Claymore
+
+Anime, Claymore
+
+Sun, 26 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/claymore-dark-fantasy-anime-trendsetter/
+
+This lesser-known 2000s anime helped lay the groundwork for today’s dark fantasy surge.
+---------
+
+# Toy Story 5 Makes Franchise Record With Unexpected Rating
+
+Movies, Toy Story 5
+
+Sun, 26 Apr 2026 18:13:09 GMT
+
+https://www.cbr.com/toy-story-5-unexpected-rating/
+
+Toy Story 5 marks a first for the franchise with its official rating.
+---------
+
+# New Star Wars LEGO Sets Officially Revealed, Available for Pre-Order Now
+
+Games, Star Wars, LEGO
+
+Sun, 26 Apr 2026 18:10:12 GMT
+
+https://www.cbr.com/lego-official-new-star-wars-set-designs-revealed-available-for-pre-order/
+
+Star Wars fans can officially pre-order newly revealed LEGO sets before the release of The Mandalorian & Grogu.
+---------
+
+# 5 Perfect Sci-Fi Movies Nobody Talks About Anymore
+
+Movies, Sci-Fi
+
+Sun, 26 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/5-perfect-sci-fi-movies-nobody-talks-about-anymore/
+
+The science fiction genre has no shortage of forgotten gems and cult classics, with audiences forgetting about some of its greatest stories.
+---------
+
+# Alfred Pennyworth Once Had Powers That Batman Fans Forgot About
+
+Comics, Alfred Pennyworth, Batman
+
+Sun, 26 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/batman-alfred-pennyworth-superpower-eagle/
+
+There is more to Batman's butler than meets the eye.
+---------
+
+# Official Anime Report Reveals the #1 Streaming Platform, and It's Not Crunchyroll
+
+Anime, Crunchyroll, Netflix, Streaming
+
+Sun, 26 Apr 2026 18:00:12 GMT
+
+https://www.cbr.com/netflix-anime-streaming-platform-biggest-worldwide/
+
+An official anime report reveals that Crunchyroll is losing the anime streaming wars, and by a wide margin.
+---------
+
+# Severance Ending Teased by Adam Scott Ahead of Season 3
+
+TV, Severance
+
+Sun, 26 Apr 2026 17:59:45 GMT
+
+https://www.cbr.com/severance-ending-teased-adam-scott/
+
+One of Severance's leading stars and executive producers promises that he knows when the series is ending, and fans should be very happy with the news
+---------
+
+# 22 Years Later, This 2000s Cult Classic Is Taking Over Streaming
+
+Movie News, Mean Girls, Comedy, Paramount Plus, streaming
+
+Sun, 26 Apr 2026 18:00:13 GMT
+
+https://collider.com/mean-girls-cult-classic-2000s-streaming-success-paramount-plus-april-2026/
+
+Lindsay Lohan's Mean Girls, regarded as the greatest chick flick of all time, is a streaming hit in America.
+---------
+
+# 'Dexter: Resurrection’ Season 2 Is Officially Setting Up Dexter for His Darkest Showdown
+
+TV Features, Dexter, Dexter: Resurrection, Michael C. Hall, Paramount Plus
+
+Sun, 26 Apr 2026 17:58:13 GMT
+
+https://collider.com/dexter-resurrection-season-2-desmond-harrington-joey-quinn-series-regular/
+
+Quinn's promotion to series regular in Dexter: Resurrection and his likely pursuit of the truth about Batista pose a significant threat in Season 2.
+---------
+
+# 10 Best Characters in 'Euphoria,' Ranked
+
+TV, Euphoria, HBO, Sydney Sweeney, Drama
+
+Sun, 26 Apr 2026 17:33:13 GMT
+
+https://collider.com/euphoria-best-characters-ranked/
+
+From Zendaya's Rue to Sydney Sweeney's Cassie to Jacob Elordi's Nate, we determine who the greatest character in the hit HBO series Euphoria.
+---------
+
+# 'Penny Dreadful' Is the Greatest Fantasy Series of the Century
+
+Features, Penny Dreadful, Cultural Reassessment
+
+Sun, 26 Apr 2026 18:30:16 GMT
+
+https://movieweb.com/penny-dreadful-underrated-fantasy-horror-series/
+
+It's a wildly original, darkly sumptuous thrill ride.
+---------
+
+# 'Invincible' Creator Explains Why Character Was Gender-Swapped in Season 4
+
+TV News, Invincible, Prime Video, Robert Kirkman, Superhero
+
+Sun, 26 Apr 2026 18:29:55 GMT
+
+https://movieweb.com/invincible-creator-explains-season-4-gender-swap/
+
+Turning the character from male to female corrects a "shortcoming" of the original comic.
+---------
+
+# Curry Barker is the Perfect Choice to Resurrect 'Texas Chainsaw Massacre'
+
+Features, Texas Chainsaw Massacre, Obsession
+
+Sun, 26 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/texas-chainsaw-massacre-reboot-a24-curry-barker-new-direction/
+
+A24 has tapped the young director for its upcoming reboot of the iconic slasher franchise and it's an ideal choice for a new generation of moviegoers.
+---------
+
+# Best Spy Movies That Are Based on True Stories, Ranked
+
+Movie Lists
+
+Sun, 26 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/spy-movies-based-on-true-stories/
+
+These spy movies both entertain and educate about crucial times in real-world history.
+---------
+
 # J.J. Abrams' 'Super 8': Underrated Sci-Fi Gem Predicted Stranger Things Trend
 
 Movies, Masked Recs
