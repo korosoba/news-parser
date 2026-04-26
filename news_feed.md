@@ -1,3 +1,190 @@
+# From's Lake Of Tears Explained And Why [SPOILER] Tells Ethan To Find It
+
+Streaming TV, From
+
+Sun, 26 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/from-lake-of-tears-significance-jim-ethan-explained/
+
+From just brought the Lake of Tears into the center of its mystery, drawing attention to a location the show has been teasing since season 1.
+---------
+
+# Red Hood Unveils Hardcore Redesign in Absolute Batman Lore
+
+Comics, Batman, Red Hood
+
+Sun, 26 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/absolute-batman-red-hood-redesign-best-new-costume/
+
+Gun-toting Gotham vigilante the Red Hood just debuted his best redesign since he returned to life, with Batman lore dialling Jason Todd up to 11.
+---------
+
+# Xbox Game Pass Loses Nearly 10 Free Games On April 30
+
+Gaming, Xbox Game Pass, PC, Indie, Triple-A Games
+
+Sun, 26 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-leaving-catalog-april-30/
+
+Nearly 10 games are being removed from the Xbox Game Pass catalog on April 30, so this will be your final chance to play them for free.
+---------
+
+# Why Christopher Lee Wasn’t Paid For One Of His Best Movie Roles
+
+Movies, Christopher Lee, The Wicker Man
+
+Sun, 26 Apr 2026 12:00:20 GMT
+
+https://screenrant.com/christopher-lee-the-wicker-man-movie-role-wasnt-paid/
+
+One of the most unique additions to Christopher Lee's movie career is also a film the actor appeared in for free, and for a good reason.
+---------
+
+# Aragorn's Recast Is A Bigger Problem For The Lord Of The Rings' New Movie Than You Think
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Sun, 26 Apr 2026 11:30:20 GMT
+
+https://screenrant.com/lord-of-the-rings-aragorn-recast-problem/
+
+Though recasting Aragorn in The Hunt for Gollum makes sense, it'll be difficult to see anyone else in the role. How will it affect the film?
+---------
+
+# Cyberpunk 2077 Official Prequel RPG Has Left Gamers Stunned
+
+Gaming, Cyberpunk 2077
+
+Sun, 26 Apr 2026 11:30:20 GMT
+
+https://screenrant.com/cyberpunk-2077-official-prequel-gamer-reaction/
+
+Discover the intricate details of Night City with the upcoming 'Night City 2045' sourcebook.
+---------
+
+# Spider-Man/Superman #1 Confirmed To Get New Covers For Major Return
+
+Comics, Spider-Man, Superman
+
+Sun, 26 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/marvel-dc-spider-man-superman-1-reprint-covers/
+
+There is more to see from the Man of Steel and the webslinger's landmark crossover comic.
+---------
+
+# 5 TV Couples Fans Still Can’t Agree On
+
+TV, Romance, Gilmore Girls, Friends, The Vampire Diaries
+
+Sun, 26 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/tv-couples-fans-disagree-about-list/
+
+From unhealthy relationships to a lack of chemistry, these controversial couples aren't always that beloved among disagreeing fans.
+---------
+
+# Domhnall Gleeson Says 'The Paper' Season 2 Leans Into a "Massive Problem"
+
+Exclusives, The Paper, Peacock, Domhnall Gleeson, Greg Daniels
+
+Sun, 26 Apr 2026 12:00:13 GMT
+
+https://collider.com/the-paper-season-2-release-window-peacock-domhnall-gleeson-greg-daniels-interview/
+
+Domhnall Gleeson and showrunner Greg Daniels discuss the return of Season 2, all-new character dynamics, guest stars, the season finale, and more.
+---------
+
+# Say Goodbye to HBO Max's Forgotten Fantasy Epic Ahead of Hugh Jackman's A24 Reboot
+
+Movie News, Robin Hood, Taron Egerton, Eve Hewson, Jamie Foxx
+
+Sun, 26 Apr 2026 12:00:13 GMT
+
+https://collider.com/taron-egerton-forgotten-fantasy-epic-robin-hood-2018-reboot-leaving-hbo-max-may-2026/
+
+The 2018 theatrical reboot of Robin Hood, starring Taron Egerton and Jamie Foxx, is leaving HBO Max soon. Find out more.
+---------
+
+# Forget ‘Sinners,’ Ryan Coogler’s 10/10 Feature Debut Hits Free Streaming Next Month
+
+Movie News, Ryan Coogler, Sinners, Fruitvale Station, Plex
+
+Sun, 26 Apr 2026 11:45:12 GMT
+
+https://collider.com/ryan-coogler-feature-debut-fruitvale-station-streaming-plex-april-2026/
+
+Sinners fans will get the chance to stream Ryan Coogler's directorial debut starring Michael B. Jordan for free next month.
+---------
+
+# Tom Cruise's 38% RT Action Movie Is Quietly a Hidden Gem for the Mission: Impossible Star
+
+Movie Features, Days of Thunder, Sports, Tom Cruise, Tony Scott
+
+Sun, 26 Apr 2026 11:44:12 GMT
+
+https://collider.com/tom-cruise-movies-days-of-thunder-tony-scott/
+
+Tony Scott’s Days of Thunder stars Tom Cruise in an underrated NASCAR movie with thrilling stunts, a Hans Zimmer score, and lasting action legacy.
+---------
+
+# Paramount+’s Darkest Crime Series Is Still One of Streaming’s Most Addictive Watches
+
+TV Features, Paramount Plus, Criminal Minds, Matthew Gray Gubler, Crime
+
+Sun, 26 Apr 2026 11:43:12 GMT
+
+https://collider.com/paramount-plus-best-crime-series-criminal-minds/
+
+18 seasons in, Paramount+’s Criminal Minds is still one of the best crime series on TV.
+---------
+
+# Disney's Near-Perfect 3-Part Sci-Fi Series Passes a Colossal Streaming Milestone Ahead of Final Season
+
+TV News, Paradise, Hulu, Sterling K. Brown, Julianne Nicholson
+
+Sun, 26 Apr 2026 11:30:13 GMT
+
+https://collider.com/disney-paradise-near-perfect-sci-fi-series-streaming-milestone-100-days-hulu-april-2026/
+
+Amid production of Season 3, Hulu's standout sci-fi series of the 2020s, Paradise, has passed a major streaming milestone. Find out more here.
+---------
+
+# Netflix's 6-Part Critically-Acclaimed Historical Drama Is Worth a Weekend Binge
+
+TV Features, The Crown, Netflix, Olivia Colman, Claire Foy
+
+Sun, 26 Apr 2026 11:27:12 GMT
+
+https://collider.com/netflix-the-crown-historical-drama-weekend-binge/
+
+Netflix's The Crown follows Queen Elizabeth II's reign and includes a stunning production and compelling performances across decades.
+---------
+
+# Everyone Needs To Watch These 10 Legendary HBO Shows at Least Once
+
+TV, HBO, Game Of Thrones, The Sopranos, Sex and the City
+
+Sun, 26 Apr 2026 11:09:13 GMT
+
+https://collider.com/hbo-shows-everyone-should-watch-once/
+
+HBO has a vast library of exceptional series, and we think everyone should watch shows like Game of Thrones and Curb Your Enthusiasm at least once.
+---------
+
+# Russell Crowe's Deeply Divisive Fantasy Epic 'Noah' Rises to Free Streaming Success
+
+Movie News, Russell Crowe, Noah, Fantasy
+
+Sun, 26 Apr 2026 11:30:18 GMT
+
+https://movieweb.com/noah-russell-crowe-streaming-april-2026/
+
+Director Darren Aronofsky's 21st Century take on the Bible story is having a resurgence more than a decade later.
+---------
+
 # X-Men '97 Is Great, But The Blueprint For The MCU's X-Men Movie Is A Different Mutant Show
 
 Classic TV, X-Men: Evolution, X-Men '97
