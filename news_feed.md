@@ -1,3 +1,190 @@
+# Predator Vs Planet Of The Apes Comic Crossover Officially Announced By Marvel
+
+Movies, Predator, Planet of the Apes, Marvel
+
+Sun, 26 Apr 2026 19:32:08 GMT
+
+https://screenrant.com/predator-planet-of-the-apes-crossover/
+
+Disney's 20th Century Studios and Marvel officially confirm an unprecedented crossover between two massive movie franchises this Summer.
+---------
+
+# All 20 Live-Action Batman Suits, Ranked Worst To Best
+
+Movies, Batman
+
+Sun, 26 Apr 2026 19:31:18 GMT
+
+https://screenrant.com/every-batman-costume-movies-tv-ranked/
+
+From George Clooney's Bat-nipples to Ben Affleck's power armor, here's every live-action Batman costume from movies and TV, ranked from worst to best.
+---------
+
+# If You're Playing Pokémon Pokopia, Bookmark This Island Code For Everything You Need
+
+Gaming, Pokemon Pokopia
+
+Sun, 26 Apr 2026 19:31:18 GMT
+
+https://screenrant.com/pokemon-pokopia-designer-island-code/
+
+Discover how to access a generous player's Cloud Island in Pokémon Pokopia, with all dyed material blocks and essential items for your building needs.
+---------
+
+# Big Bang Theory Star's New Comedy Is Dividing Critics & Audiences On Rotten Tomatoes
+
+TV, The Audacity, The Audacity - Season 1
+
+Sun, 26 Apr 2026 19:04:43 GMT
+
+https://screenrant.com/the-audacity-rotten-tomatoes-critics-audiences-divided/
+
+One of the major stars from The Big Bang Theory's cast is in a new comedy series that is dividing critics and audiences on Rotten Tomatoes.
+---------
+
+# 8 Romantasy Book Duologies That Deserve TV Adaptations
+
+Streaming TV, Romantasy
+
+Sun, 26 Apr 2026 19:01:18 GMT
+
+https://screenrant.com/romantasy-book-duologies-deserve-tv-adaptations/
+
+Epic, multi-season romantasy adaptations are great, but these completed, well-plotted romantasy duologies deserve to be seen on screen, too.
+---------
+
+# Pokémon Legends Hoenn Trailer Leaves Gamers Floored
+
+Gaming, Pokemon
+
+Sun, 26 Apr 2026 19:01:18 GMT
+
+https://screenrant.com/pokemon-legends-hoenn-delta-rom-hack-gamers-react/
+
+Discover the all-new Pokémon Legends: Delta ROM hack, bringing the iconic Hoenn region back with enhanced gameplay.
+---------
+
+# 2026's Newest Movie Flop Wasted One Of Bridgerton's Best Stars
+
+Movies, Thrash
+
+Sun, 26 Apr 2026 18:56:18 GMT
+
+https://screenrant.com/netflix-thrash-phoebe-dynevor-wasted/
+
+This new Netflix disaster movie managed to cast a major Bridgerton star in a leading role, then inexplicably completely wasted her talents.
+---------
+
+# Pokémon Scarlet & Violet Drop Free Download Available Until April 30
+
+Games, Pokemon Scarlet and Violet, Pokemon
+
+Sun, 26 Apr 2026 19:35:12 GMT
+
+https://www.cbr.com/pokmon-scarlet-violet-free-download-april-2026/
+
+Pokémon Scarlet & Violet players have the chance to pick up a new Tera Raid event completely for free, at least for the next few days.
+---------
+
+# 'Michael' Officially Makes The Biggest Biopic Movie Mistake
+
+Movies, Michael, musical, Biography
+
+Sun, 26 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/michael-biggest-biopic-movie-mistake/
+
+The Michael Jackson biopic brilliantly portrayed the King of Pop's life and music, but divided critics by excluding controversial parts of the story.
+---------
+
+# The Best Glengarry Glen Ross Quotes
+
+Movies, Glengarry Glen Ross, Crime
+
+Sun, 26 Apr 2026 19:30:12 GMT
+
+https://www.cbr.com/glengarry-glen-ross-quotes-iconic-list/
+
+Glengarry Glen Ross is a modern fable on the intersections of capitalism and masculinity, featuring iconic actors like Kevin Spacey and Alec Baldwin.
+---------
+
+# 10 Best Anime That Are Officially 20 Years Old Now
+
+Anime, Shojo, shonen anime, Nana, Gintama, Ouran High School Host Club, Hellsing Ultimate
+
+Sun, 26 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/best-anime-officially-20-years-old/
+
+It's hard to believe that some of the most beloved anime are officially turning 20 in 2026.
+---------
+
+# Near-Perfect Disney Animated Movies That Everyone Forgot
+
+Movies, Disney, Animation
+
+Sun, 26 Apr 2026 19:01:12 GMT
+
+https://www.cbr.com/near-perfect-forgotten-disney-animated-movies/
+
+These near-perfect animated Disney movies aren't well-remembered by today's audiences, but they should be.
+---------
+
+# Netflix’s Forgotten 6-Part Fantasy Epic Is Still Worth a Weekend Binge
+
+TV Features, The Letter for the King, Amir Wilson, Netflix, Fantasy
+
+Sun, 26 Apr 2026 19:14:12 GMT
+
+https://collider.com/netflix-letter-for-the-king-fantasy-series-weekend-binge/
+
+Despite being overlooked, Netflix's The Letter for the King is a must-watch for fantasy fans seeking a satisfying, low-commitment binge.
+---------
+
+# Jenna Ortega's 92-Minute Answer to 'Euphoria' Is a Streaming Sensation
+
+Movie News, Jenna Ortega, The Fallout, Euphoria, HBO Max
+
+Sun, 26 Apr 2026 19:00:12 GMT
+
+https://collider.com/jenna-ortega-the-fallout-streaming-success-hbo-max-april-2026-euphoria/
+
+Jenna Ortega's forgotten teen movie, The Fallout, is a streaming hit in the U.S. Here's what you should know.
+---------
+
+# 10 Greatest Alien Movies of All Time, Ranked
+
+Movie, Sci-Fi, Alien, E.T. the Extra-Terrestrial, Lilo & Stitch
+
+Sun, 26 Apr 2026 18:49:12 GMT
+
+https://collider.com/greatest-alien-movies-all-time-ranked/
+
+Aliens, Arrival, Nope, Predator, Lilo & Stitch, E.T. the Extra-Terrestrial, and more make up our list of the best alien movies of all time.
+---------
+
+# 'The Madison': Taylor Sheridan's Latest Neo-Western Series Is Better Than 'Yellowstone'
+
+Features, The Madison, Yellowstone, Comparison Recommendation
+
+Sun, 26 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-the-madison-better-yellowstone/
+
+Taylor Sheridan's opus is 'Yellowstone', but a new contender is here to dethrone it. This is his most poignant story yet.
+---------
+
+# 8 Cyberpunk TV Series That Are Better Than 'Altered Carbon'
+
+TV Lists, Altered Carbon
+
+Sun, 26 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/cyberpunk-tv-series-better-than-altered-carbon/
+
+'Altered Carbon' is one of the most high-profile cyberpunk shows in recent memory and was a blast to watch, but it wasn't necessarily the greatest.
+---------
+
 # Forget Bloodborne, FromSoftware Should Revive This Forgotten Cult Classic
 
 Gaming, Bloodborne, Triple-A Games
