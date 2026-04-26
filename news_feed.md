@@ -1,3 +1,278 @@
+# Crunchyroll's Dark Fantasy Return Confirms Exciting Future for Seinen Fans
+
+Anime, Crunchyroll, Sentenced to Be a Hero
+
+Sun, 26 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/crunchyroll-dark-fantasy-sentenced-to-be-hero-seinen-future/
+
+Seinen fans have always been put on the backburner for shonen fans, but a returning Crunchyroll series is putting the mature genre back on the map.
+---------
+
+# Resident Evil Fans Jump For Joy Over Latest Voice Actor Leak
+
+Gaming, Resident Evil 9, Triple-A Games, PC
+
+Sun, 26 Apr 2026 23:30:18 GMT
+
+https://screenrant.com/resident-evil-requieum-dlc-grace-actor-leak/
+
+Requiem's first expansion already has plenty of theories, but one of the series' voice actors may have just let slip a major revelation for its DLC.
+---------
+
+# The Big Bang Theory Franchise Officially Returns In Three Months With Sequel Series
+
+TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Sun, 26 Apr 2026 23:15:20 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-hbo-max-july-2026/
+
+Seven years after The Big Bang Theory flagship ended on CBS, the beloved franchise is officially coming back in two months with its first sequel arc.
+---------
+
+# The Big Bang Theory Sequel Goes Full Sci-Fi In Stuart Fails To Save The Universe First Look Images
+
+Streaming TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Sun, 26 Apr 2026 23:15:20 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-bert-denise-barry-first-images/
+
+The Big Bang Theory Sequel Goes Full Sci-Fi In Stuart Fails To Save The Universe First Look Images
+---------
+
+# Charlize Theron's New Netflix Action Thriller Debuts To Disappointing Rotten Tomatoes Audience Score
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 23:10:56 GMT
+
+https://screenrant.com/netflix-apex-thriller-movie-rotten-tomatoes-audience-score/
+
+Netflix's new action thriller is dominating streaming charts worldwide, and it manages to do so despite a negative Rotten Tomatoes audience score.
+---------
+
+# Titus Welliver's Post-Bosch Crime Drama Roles Include Exciting Future Projects
+
+Streaming TV, Bosch, The Night Agent, The Westies
+
+Sun, 26 Apr 2026 23:02:19 GMT
+
+https://screenrant.com/titus-welliver-crime-dramas-2026-night-agent-the-westies/
+
+A much-needed update on Titus Welliver's latest crime drama roles and upcoming projects following his iconic portrayal of Harry Bosch.
+---------
+
+# LOST Saved TV, But It's Absolutely Breaking HBO's New #1 Series
+
+TV, The Pitt, Lost
+
+Sun, 26 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/the-pitt-ruined-by-lost-discourse/
+
+The mystery box has spread, and there may be no cure.
+---------
+
+# 15 Greatest Characters In American Sitcoms
+
+Classic TV
+
+Sun, 26 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/greatest-american-sitcom-characters-all-time/
+
+Memorable characters are essential for a truly great sitcom. These iconic characters elevated their shows with laughs, heart, and personality.
+---------
+
+# Dark Souls 2 Remaster Quietly Released, Available Now
+
+Gaming, Dark Souls, Triple-A Games, PC
+
+Sun, 26 Apr 2026 23:00:19 GMT
+
+https://screenrant.com/dark-souls-2-path-tracing-remaster-download/
+
+Despite being one of the least popular Souls games, Dark Souls 2 just got an absolutely gorgeous makeover that you won't regret revisiting.
+---------
+
+# IT: Welcome To Derry Season 2 Gets Major Writing Update From Creator
+
+TV, It: Welcome to Derry
+
+Sun, 26 Apr 2026 22:37:02 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-writing-update/
+
+IT: Welcome To Derry's creator just revealed a massive update for the second season of the it HBO adaptation of Stephen King's classic novel.
+---------
+
+# 10 Savage Hermione Moments the Harry Potter Movies Skipped That Need to Be in the Reboot
+
+TV, Harry Potter, Fantasy
+
+Sun, 26 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/hermione-moments-harry-potter-movies-skipped-list/
+
+In the Harry Potter movies, Hermione's darker side isn't explored deeply. But the reboot could change that for the better.
+---------
+
+# HBO Max Reveals First Look at Stuart Fails to Save the Universe
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Sun, 26 Apr 2026 23:28:10 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-first-look/
+
+The next Big Bang Theory spinoff series gets its first look officially unveiled.
+---------
+
+# Why Michael Jackson Biopic Cut Kat Graham's Diana Ross Scenes
+
+Movies, Michael
+
+Sun, 26 Apr 2026 23:23:00 GMT
+
+https://www.cbr.com/michael-biopic-cut-kat-graham-diana-ross/
+
+The iconic singer's scenes in Michael were left on the cutting room floor.
+---------
+
+# 10 Hardest Anime Worlds to Survive
+
+Anime, Berserk, Attack on Titan, Chainsaw Man, Neon Genesis Evangelion
+
+Sun, 26 Apr 2026 23:15:12 GMT
+
+https://www.cbr.com/10-hardest-anime-worlds-to-survive/
+
+For as many anime worlds as fans would love to live in, there are others which are nearly impossible to survive.
+---------
+
+# The Hunting Party Becomes a Hit on Peacock Ahead of Season 2 Finale
+
+TV, Crime, The Hunting Party, Peacock
+
+Sun, 26 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/the-hunting-party-crime-drama-streaming-success-peacock-april-2026/
+
+Despite overwhelmingly negative reviews, this surprising NBC procedural series is dominating the streaming charts ahead of its season finale.
+---------
+
+# There’s a Reason Colin Creevey Disappeared From the Harry Potter Movies
+
+Movie Features, Harry Potter and the Chamber of Secrets, Harry Potter, Daniel Radcliffe, J.K. Rowling
+
+Sun, 26 Apr 2026 23:30:58 GMT
+
+https://collider.com/harry-potter-colin-creevey-actor-hugh-mitchell/
+
+Colin Creevey's spritely innocence was replaced in later Harry Potter movies with the character Nigel, likely due to the actor's growth spurt.
+---------
+
+# 25 Years Later, Paramount+'s WWII Thriller Quietly Becomes a Streaming Favorite
+
+Movie News, Enemy At The Gates, War, Jude Law, Joseph Fiennes
+
+Sun, 26 Apr 2026 23:30:12 GMT
+
+https://collider.com/ed-harris-jude-law-ww2-thriller-enemy-at-the-gates-streaming-paramount-plus-may-2026/
+
+Enemy at the Gates arrives on Paramount+ on May 1, bringing the Ed Harris and Jude Law-led WW2 thriller back to streaming.
+---------
+
+# Netflix’s New 8-Part Crime Series Is One of Its Best Shows To Binge
+
+TV Features, Big Mistakes, Dan Levy, Netflix, Crime
+
+Sun, 26 Apr 2026 23:27:13 GMT
+
+https://collider.com/big-mistakes-netflix-crime-series-best-binge/
+
+Schitt's Creek's creator Dan Levy brings his unique brand of humor to a dark crime drama in the new Netflix series Big Mistakes.
+---------
+
+# ‘Mean Girls’ Meets ‘The Evil Dead’ in This Legendary Cult Classic Heading to Netflix
+
+Movie News, Jennifer's Body, Megan Fox, Netflix, Amanda Seyfried
+
+Sun, 26 Apr 2026 23:15:13 GMT
+
+https://collider.com/mean-girls-meets-the-evil-dead-cult-classic-jennifers-body-megan-fox-streaming-netflix-may-2026/
+
+The greatest horror comedy of all time, the Megan Fox-led Jennifer's Body, is heading to a new streamer next month. Read on for more.
+---------
+
+# 4 Years Later, Netflix’s Best True Crime Thriller Is Back in the Top 10, and There’s a Catch
+
+TV News, The Staircase, Colin Firth, Toni Collette, Netflix
+
+Sun, 26 Apr 2026 23:00:12 GMT
+
+https://collider.com/netflix-best-true-crime-thriller-the-staircase-streaming-success-april-2026/
+
+After taking HBO by storm, the dramatized telling of The Staircase has made its way onto Netflix. Find out more here.
+---------
+
+# Hulu’s Most Reliable 8-Part Procedural Is Hands Down TV’s Best Comfort Binge
+
+TV Features, The Rookie, Hulu, Streaming, ABC
+
+Sun, 26 Apr 2026 22:49:13 GMT
+
+https://collider.com/hulu-the-rookie-most-reliable-procedural-comfort-binge-explained/
+
+A closer look at why The Rookie thrives as a comfort binge, from structure and tone to its massive streaming growth.
+---------
+
+# Michael Douglas' 5-Part American Crime Drama Is Finally Free To Watch
+
+TV Features, Michael Douglas, Pluto TV, Procedural, ABC
+
+Sun, 26 Apr 2026 22:46:12 GMT
+
+https://collider.com/michael-douglas-streets-of-san-francisco-american-crime-drama/
+
+Michael Douglas’s portrayal in The Streets of San Francisco reveals an actor learning restraint and timing through quieter, observational moments.
+---------
+
+# The Scariest Horror Sequel of 2025 Officially Debuts on Netflix This May
+
+Movie News, Black Phone 2, Ethan Hawke, The Black Phone, Netflix
+
+Sun, 26 Apr 2026 22:45:13 GMT
+
+https://collider.com/ethan-hawke-scariest-horror-sequel-black-phone-2-streaming-netflix-may-2026/
+
+Ethan Hawke stalks Mason Thames in the sequel to the pair’s hit 2021 horror movie. Find out how to watch Black Phone 2 here.
+---------
+
+# Prime Video's 2-Part Historical Epic Is Scratching ‘The Chosen’ Itch on Streaming
+
+TV News, House of David, The Chosen, Prime Video, Dallas Jenkins
+
+Sun, 26 Apr 2026 22:31:13 GMT
+
+https://collider.com/the-chosen-replacement-historical-epic-house-of-david-streaming-success-prime-video-april-2026/
+
+The Chosen better watch its back because a new contender is stepping up to take down the Biblical titan. Find out more here.
+---------
+
+# 'Stranger Things: Tales from '85' Spin-Off Resolves Steve Harrington Problem
+
+Features, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Sun, 26 Apr 2026 23:00:17 GMT
+
+https://movieweb.com/stranger-things-resolves-steve-harrington-problem/
+
+Steve's troubling direction started in Season 4, with Season 5 continuing the problem, but 'Stranger Things' finally has a fix.
+---------
+
 # 10 Best Comedy Movies Of All Time, Ranked By Box Office
 
 Movies, Comedy, Ranking
