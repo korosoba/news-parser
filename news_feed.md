@@ -1,3 +1,190 @@
+# Super Mario Galaxy Hits Huge Box Office Milestone That Only 2 Video Game Movies Have Reached Before
+
+Movies, Box Office Milestone, Super Mario Bros., The Super Mario Galaxy Movie
+
+Sun, 26 Apr 2026 15:34:23 GMT
+
+https://screenrant.com/the-super-mario-galaxy-movie-box-office-800-million-global-milestone/
+
+The Super Mario Galaxy Movie rockets past a major global box office milestone, becoming only the third video game movie in history to ever do so.
+---------
+
+# Netflix's New Action Thriller Debuts As No.1 Global Streaming Hit
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 15:32:09 GMT
+
+https://screenrant.com/apex-netflix-streaming-success-april-2026/
+
+Netflix's new action thriller packs quite the punch, as it dominates streaming charts worldwide for an impactful debut, anchored by major stars.
+---------
+
+# One Piece's Biggest Villain Is Officially Luffy's Perfect Nemesis
+
+Anime, One Piece, Op-Ed
+
+Sun, 26 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/one-piece-luffy-villain-imu-powers/
+
+Why Imu is the perfect villain for Luffy.
+---------
+
+# Disney+'s 3-Part Sci-Fi Show That's Designed To Be Binged Shows Star Wars How It's Done
+
+Streaming TV, Masked Recs
+
+Sun, 26 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/star-wars-visions-disney-plus-not-canon-good/
+
+Discover how Star Wars: Visions, an animated anthology series on Disney+, has become a shining example of non-canon success, proving the potential of Legends stories and 2D animation in the franchise.
+---------
+
+# The Texas Chainsaw Massacre’s New Movie Reboot Confirms What We All Knew About 2026
+
+Movies, The Texas Chainsaw Massacre
+
+Sun, 26 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/texas-chainsaw-massacre-movie-reboot-horror-2026/
+
+The Texas Chainsaw Massacre's next movie and the recent news about its director sets up an exciting film future for another beloved and iconic series.
+---------
+
+# Michael Jackson Biopic Box Office Outgrosses Almost All Of 2026's Biggest Movies In One Weekend
+
+Movies, Michael, Box Office
+
+Sun, 26 Apr 2026 15:12:09 GMT
+
+https://screenrant.com/michael-2026-global-box-office-debut/
+
+During its global opening weekend, the Michael Jackson biopic Michael hits a major milestone that cements it as one of 2026's Top 10 movies.
+---------
+
+# Yu-Gi-Oh!'s True Finale Is So Much Better Than You Think
+
+Anime, Yu-Gi-Oh!: The Dark Side of Dimensions, Yu-Gi-Oh!, Yu-Gi-Oh! Duel Monsters
+
+Sun, 26 Apr 2026 15:00:18 GMT
+
+https://screenrant.com/yugioh-the-dark-side-of-dimensions-best-anime-finale/
+
+Why Yu-Gi-Oh!'s finale is peak fiction.
+---------
+
+# Pokémon HeartGold & SoulSilver Switch Release Unites Gamers Everywhere
+
+Gaming, Pokemon, Nintendo Switch 2, Nintendo Switch
+
+Sun, 26 Apr 2026 15:00:18 GMT
+
+https://screenrant.com/pokemon-heart-gold-soul-silver-switch-release-speculation/
+
+Pokémon HeartGold & SoulSilver are both beloved and actually quite difficult to get hold of in 2026, so a Switch release makes total sense.
+---------
+
+# 10 War Movies That Show A Different Perspective
+
+Classic Movies, War, Ranking
+
+Sun, 26 Apr 2026 14:40:19 GMT
+
+https://screenrant.com/war-movies-showing-different-perspective/
+
+War movies are almost always films that have the good guys fighting evil forces, but there are some great war movies from a different perspective.
+---------
+
+# Dutton Ranch Can Officially Fix Jamie Dutton's Death
+
+TV, Yellowstone, Dutton Ranch, Paramount Plus
+
+Sun, 26 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/dutton-ranch-can-fix-yellowstone-ending-jamie-dutton-death/
+
+An unsatisfying ending to a Dutton family member's story on Yellowstone may actually get the resolution it deserves on Beth and Rip's spinoff.
+---------
+
+# 10 Best Shonen Anime With Adult Protagonists
+
+Anime, Dragon Ball, Gintama, Frieren: Beyond Journey's End
+
+Sun, 26 Apr 2026 15:15:13 GMT
+
+https://www.cbr.com/best-shonen-anime-adult-protagonists/
+
+Teenagers are usually the heroes of shonen anime, yet it's always refreshing to see adult protagonists take the spotlight.
+---------
+
+# The Far Cry TV Show Is Quietly Ignoring The Games' Potential
+
+Games, Far Cry
+
+Sun, 26 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/far-cry-tv-series-bad-adaptation-ignoring-the-games-stories/
+
+The showrunner of the Far Cry show has revealed that they're wasting the games' potential, raising the question of why the adaptation exists.
+---------
+
+# New Sci-Fi Masterpiece Overtakes Tom Cruise’s Franchise-Ending Action Thriller
+
+Movie News, Project Hail Mary, Ryan Gosling, Tom Cruise, Mission: Impossible - The Final Reckoning
+
+Sun, 26 Apr 2026 15:30:13 GMT
+
+https://collider.com/project-hail-mary-best-sci-fi-movie-2026-overtakes-tom-cruise-mission-impossible-the-final-reckoning-600-million/
+
+Ryan Gosling’s smash-hit sci-fi epic has officially overtaken Tom Cruise’s final Mission: Impossible movie at the box office.
+---------
+
+# Michael Jackson Movie Is Officially One of the Biggest Music Biopics of All Time
+
+Movie News, Michael, Box Office, Antoine Fuqua, Biopic
+
+Sun, 26 Apr 2026 14:57:46 GMT
+
+https://collider.com/michael-jackson-music-biopic-top-10-lionsgate-opening-box-office-217-million/
+
+The Michael Jackson movie has defied the odds to become one of the biggest music biopics ever. Read on for more.
+---------
+
+# 'House of the Dragon's Repeated 'Game of Thrones' Weird Fourth-Wall Break
+
+Features, Game of Thrones, Game Of Thrones, House of the Dragon
+
+Sun, 26 Apr 2026 15:01:18 GMT
+
+https://movieweb.com/game-of-thrones-repeated-fourth-wall-break/
+
+The 'Game of Thrones' franchise doesn't typically break the illusion of its being a story, but it does occasionally try, and it fails.
+---------
+
+# Keanu Reeves Has an "Exciting Idea" for 'John Wick 5'
+
+Movie News, John Wick 5, John Wick, Keanu Reeves
+
+Sun, 26 Apr 2026 14:47:21 GMT
+
+https://movieweb.com/keanu-reeves-exciting-idea-john-wick-5/
+
+How the series moves forward after the events of 'John Wick 4' is anybody's guess.
+---------
+
+# When 'Michael' Will Stream on Prime Video
+
+Features, Michael
+
+Sun, 26 Apr 2026 14:46:26 GMT
+
+https://movieweb.com/when-michael-stream-prime-video/
+
+'Michael' is bringing audiences to the theaters to catch the King of Pop on the big screen, but the film will be available in our homes soon!
+---------
+
 # Fans Won't Believe How Michael Jackson Nearly Changed Marvel Forever in the 90s
 
 Comics, Michael Jackson, Marvel
