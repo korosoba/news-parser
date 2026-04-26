@@ -1,3 +1,267 @@
+# J.J. Abrams' 'Super 8': Underrated Sci-Fi Gem Predicted Stranger Things Trend
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 17:31:18 GMT
+
+https://screenrant.com/super-8-jj-abrams-elle-fanning-breakout-role/
+
+Before Elle Fanning was an iconic, Oscar-nominated A-list star, she got her breakout role in J.J. Abrams' nostalgic sci-fi drama Super 8.
+---------
+
+# 10 Best Pirate Video Games Of All Time
+
+Gaming, Assassin's Creed 4: Black Flag, Triple-A Games, PC
+
+Sun, 26 Apr 2026 17:31:18 GMT
+
+https://screenrant.com/best-pirate-video-games-all-time/
+
+Despite being an incredibly underutilized genre, there are still plenty of excellent pirate games out there to live out your seafaring dreams with.
+---------
+
+# The Amazing Digital Circus: Ranking All 8 Episodes
+
+Movies, The Amazing Digital Circus
+
+Sun, 26 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/the-amazing-digital-circus-episodes-ranked/
+
+The Amazing Digital Circus has become one of the biggest hits in internet history, and with the Last Act on the way, here's every episode ranked.
+---------
+
+# Nicole Kidman Is Officially The Queen Of TV With Margo's Got Money Troubles
+
+Streaming TV, Margo's Got Money Troubles, Nicole Kidman
+
+Sun, 26 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/margos-got-money-troubles-nicole-kidman-tv-success/
+
+Nicole Kidman is back on TV again with an acclaimed new miniseries from Apple TV, an acclaimed series that's vastly different from her other projects.
+---------
+
+# Steam 24 Free Downloads Available For 24 Hours
+
+Gaming, Steam, Triple-A Games, Indie Games
+
+Sun, 26 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/steam-24-free-downloads-24-hours/
+
+PC giant Steam has done it again: Snag (way) more than 24 free game trials and discounts during special, limited-time event for 24 more hours.
+---------
+
+# Hacks Season 5 Is Twisting The Classic Sitcom Formula
+
+Streaming TV, Hacks
+
+Sun, 26 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/hacks-season-5-sitcom-formula-twist/
+
+The hit HBO Max comedy has taken on a new story structure in its fifth and final season, and it's a subtle nod to the traditional sitcom format.
+---------
+
+# Sci-Fi Show La Brea Finds New Life On Netflix
+
+Streaming TV, Masked Recs
+
+Sun, 26 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/netflix-sci-fi-show-la-brea-better-on-streaming/
+
+La Brea, a sci-fi show that struggled on NBC, has a new home on Netflix where its complex, high-concept plot can be fully appreciated with a binge.
+---------
+
+# 15 Major Stars You Forgot Were In American Horror Story
+
+TV, American Horror Story, Horror
+
+Sun, 26 Apr 2026 16:55:19 GMT
+
+https://screenrant.com/american-horror-story-major-stars/
+
+From Naomi Campbell to Darren Criss, these major stars had surprising roles in American Horror Story that many fans completely forgot about.
+---------
+
+# Every Vault In Fallout 3, Ranked
+
+Gaming, Fallout, PC
+
+Sun, 26 Apr 2026 16:46:29 GMT
+
+https://screenrant.com/fallout-3-every-vault-ranked/
+
+Fallout 3 has seven Vaults located in the Capital Wasteland, and although only six can visited, they all hold terrible Vault-Tec experiments.
+---------
+
+# HBO's New 6-Part Thriller Series Becomes Global Smash Hit
+
+TV, Masked Recs
+
+Sun, 26 Apr 2026 16:43:22 GMT
+
+https://screenrant.com/half-man-hbo-max-streaming-success-april-2026/
+
+HBO Max's new thriller series is lighting up the streaming service's charts worldwide after the gritty show debuted to a strong Rotten Tomatoes score.
+---------
+
+# What's Coming to HBO Max in April 2026? Full List
+
+TV, HBO Max
+
+Sun, 26 Apr 2026 17:31:32 GMT
+
+https://www.cbr.com/whats-coming-hbo-max-april-2026-full-list/
+
+"Wuthering Heights," Saltburn and Greenland 2: Migration are among the new releases on HBO Max next month.
+---------
+
+# 49 Years Later, Clint Eastwood’s Most Important Line Still Defines the Western Antihero
+
+Movies, Western
+
+Sun, 26 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/clint-eastwood-outlaw-josey-wales-most-important-quote-western-antihero/
+
+In The Outlaw Josey Wales’ infamous saloon scene, a single line turned the typical outlaw into the ultimate Western antihero.
+---------
+
+# True Blood’s Human Serial Killer Was the Most Underrated Villain
+
+TV, True Blood, hbo
+
+Sun, 26 Apr 2026 17:30:13 GMT
+
+https://www.cbr.com/true-blood-underrated-villain-rene/
+
+True Blood had the most outrageous supernatural creatures but its most horrifying villain was one a little more realistic.
+---------
+
+# 10 Most Valuable Pokémon TCG Cards, With Prices
+
+Games, Pokemon, Pokemon TCG, trading cards, Tabletop
+
+Sun, 26 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/most-valuable-pokemon-tcg-cards-with-prices/
+
+Most Pokémon cards will never be worth more than a few dollars, but a select few are worth hundreds of thousands of dollars, or more.
+---------
+
+# Star Wars: The Mandalorian Returns to Disney+ Charts Ahead of New Movie
+
+Movies, Star Wars, The Mandalorian, The Mandalorian and Grogu
+
+Sun, 26 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-streaming-success-disney-plus-april-2026/
+
+One of Star Wars' most popular television shows officially returns to the streaming charts one month ahead of its next installment.
+---------
+
+# Canon Events: Marvel Boy's Hard-Earned Evolution Into Justice Came with a Heavy Cost
+
+Comics, Canon Events, New Warriors, Marvel
+
+Sun, 26 Apr 2026 17:00:12 GMT
+
+https://www.cbr.com/canon-events-new-warriors-marvel-boy-justice-evolution/
+
+Abuse and tragedy changed Marvel Boy's life forever, setting him on the path to becoming the leader of the New Warriors and Avenger known as Justice.
+---------
+
+# Michael Thrills Box Office With Record-Setting Debut Above Expectations
+
+Movies, Michael, box office
+
+Sun, 26 Apr 2026 16:42:00 GMT
+
+https://www.cbr.com/michael-box-office-opening-weekend/
+
+The film ended up being extremely divisive, but it's a commercial success.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Available Until April 27
+
+Games, Red Dead Redemption 2, Red Dead Redemption
+
+Sun, 26 Apr 2026 16:40:12 GMT
+
+https://www.cbr.com/red-dead-redemption-2-official-free-download-available-april-2026/
+
+Red Dead Redemption 2 fans don't want to miss out on the free DLC that's about to disappear forever.
+---------
+
+# Only 5 Superhero Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Superhero, Spider-Man: Across the Spider-Verse, The Batman, Superman
+
+Sun, 26 Apr 2026 17:03:12 GMT
+
+https://collider.com/superhero-movies-2020s-true-masterpieces/
+
+Although the 2020s have been somewhat weak for superheroes, movies like The Batman and The Suicide Squad are among the rare masterpieces in the genre.
+---------
+
+# A24's Spectacular Box Office Misfire Surges on Streaming 3 Years Later
+
+Movie News, Joaquin Phoenix, Beau Is Afraid, Plex, Streaming
+
+Sun, 26 Apr 2026 17:00:13 GMT
+
+https://collider.com/joaquin-phoenix-a24-box-office-misfire-beau-is-afraid-streaming-plex-may-2026/
+
+Joaquin Phoenix's 2023 Ari Aster flop Beau is Afraid is about to stream for free. Find out more here.
+---------
+
+# Why the Michael Jackson Documentary 'Leaving Neverland' Disappeared
+
+Features, Michael
+
+Sun, 26 Apr 2026 17:30:17 GMT
+
+https://movieweb.com/michael-jackson-documentary-leaving-neverland-hbo-lawsuit/
+
+'Leaving Neverland' is no longer available to watch on HBO Max and any other streaming service. What happened?
+---------
+
+# Seth MacFarlane Pushes for 'Ted' Season 3 or 'Ted 3' Movie on Peacock
+
+TV News, Ted
+
+Sun, 26 Apr 2026 17:08:10 GMT
+
+https://movieweb.com/seth-macfarlane-ted-season-3-peacock/
+
+'Ted' creator Seth MacFarlane publicly stated a desire to make a third movie or a third season of his live-action Peacock show.
+---------
+
+# 'Stranger Things: Tales from '85' Has Only One Path Forward After Retcons
+
+Features, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Sun, 26 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-future-after-retcons/
+
+'Stranger Things: Tales from '85' is an animated spin-off series of Netflix's 'Stranger Things' featuring new characters Nikki and Anna Baxter.
+---------
+
+# 'From' Season 4 Rotten Tomatoes Score Revealed
+
+TV Reviews, From, Horror, Harold Perrineau
+
+Sun, 26 Apr 2026 16:42:16 GMT
+
+https://movieweb.com/from-season-4-rotten-tomatoes-score/
+
+And it's spectacular.
+---------
+
 # Alien Xenomorph 6-Foot Animatronic Revealed by Spirit Halloween for Alien Day (Exclusive)
 
 Movies, Alien
