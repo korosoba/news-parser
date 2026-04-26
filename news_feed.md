@@ -1,3 +1,190 @@
+# 10 Best Comedy Movies Of All Time, Ranked By Box Office
+
+Movies, Comedy, Ranking
+
+Sun, 26 Apr 2026 22:25:19 GMT
+
+https://screenrant.com/comedy-movies-best-of-all-time-ranked-by-box-office/
+
+The greatest comedy films of all time have kept audience laughing for generations, but which of these hilarious classics made the most money?
+---------
+
+# Stranger Things' New Spinoff Redeems The Show's Most Disappointing Cameo
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Sun, 26 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-robert-englund-cameo-redeem/
+
+Stranger Things’ new spin-off introduces several intriguing characters, one of whom redeems the most disappointing cameo from the original show.
+---------
+
+# One Favorite Bat-Family Hero Deserves Their DCU Debut Before Batman
+
+Movies, Catwoman, Batman, DC Universe
+
+Sun, 26 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/catwoman-dcu-new-movie-debut/
+
+This sometimes villain has earned their chance to shine (again).
+---------
+
+# PlayStation Plus Freebie Is A 2000-Hour Monster Of A Game
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Sun, 26 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/playstation-plus-2000-hour-free-game-planetfall/
+
+PlayStation Plus Extra and Premium subscribers can sink over 2000 hours into one strategy game with a huge amount of content to play around with.
+---------
+
+# Upcoming Show Based On A Bestselling Book Series Will Change Sci-Fi TV Forever
+
+Streaming TV, Sci-Fi, Peacock
+
+Sun, 26 Apr 2026 21:45:51 GMT
+
+https://screenrant.com/dungeon-crawler-carl-change-absurdist-sci-fi/
+
+Pecock's upcoming sci-fi show will bring a bestselling book series to TV in live action, and the adaptation could change sci-fi TV forever.
+---------
+
+# In Just 1 Day, Marty Supreme Is the Most-Watched Film in America on HBO Max
+
+Movies, Marty Supreme, HBO Max, Drama
+
+Sun, 26 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/timothee-chalamet-marty-supreme-drama-streaming-success-hbo-april-2026/
+
+Timothée Chalamet's Academy Award-nominated drama just made its streaming debut, but it's already a massive hit.
+---------
+
+# Netflix's Hush is the Best Slasher Movies of All Time
+
+Movies, Hush
+
+Sun, 26 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/netflix-hush-best-slasher-movie-of-all-time/
+
+One of the best slasher films ever made barely gets recognition from the horror community at this point.
+---------
+
+# 7 NES Games That Are Perfect From Start to Finish
+
+Games, Nintendo, The Legend of Zelda, super mario bros, Mega Man
+
+Sun, 26 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/best-nes-games-flawless-from-start-to-finish/
+
+The NES is the most important video game console of all time, and plenty of its games still hold up perfectly in 2026.
+---------
+
+# Anne Rice's Queen of the Damned Resurfaces as Free Streaming Hit
+
+Movies, Queen of the Damned
+
+Sun, 26 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/queen-of-the-damned-streaming-free-tubi-april-2026/
+
+The forgotten Anne Rice adaptation resurfaces as a free streaming hit ahead of The Vampire Lestat Season 3.
+---------
+
+# Transformers Revives Grimlock and the Dinobots With a Mecha Anime Makeover
+
+Anime, Transformers, merchandise, toys
+
+Sun, 26 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/transformers-grimlock-slag-great-general-toys-prototype/
+
+Two upcoming toys based on the Dinobots have been revealed, with these renders and prototypes giving the classic Transformers a mecha anime update.
+---------
+
+# 10 Perfect Superhero Shows To Watch After 'Invincible'
+
+TV, Invincible, Superhero, Smallville, The Flash
+
+Sun, 26 Apr 2026 22:21:12 GMT
+
+https://collider.com/superhero-shows-like-invincible-prime-video/
+
+Superhero shows like Smallville, The Flash, and Batman: The Animated Series are perfect to watch after you finish watching Prime Video's Invincible.
+---------
+
+# Henry Cavill’s Spy Thriller Misfire Is Suddenly a Global Apple TV Hit 2 Years Later
+
+Movie News, Argylle, Henry Cavill, Bryce Dallas Howard, Bryan Cranston
+
+Sun, 26 Apr 2026 22:15:12 GMT
+
+https://collider.com/henry-cavill-spy-thriller-argylle-global-streaming-success-apple-tv-april-2026/
+
+Henry Cavill’s massive miss with critics, Argylle, is getting its chance to shine thanks to Apple TV. Find out more  about the spy film here.
+---------
+
+# 8 Netflix Thriller Shows That Hook You in the First 2 Minutes
+
+TV, Thriller, Netflix, Squid Game, Dark
+
+Sun, 26 Apr 2026 22:03:12 GMT
+
+https://collider.com/netflix-thriller-shows-instantly-hook-you/
+
+The Haunting of Hill House, Mindhunter, Dark, Money Heist, Squid Game, and more make up our list of Netflix thriller shows that instantly hook you.
+---------
+
+# Nearly 40 Years Later, Arnold Schwarzenegger’s Sci-Fi Classic Is Taking Over Streaming Again
+
+Movie News, Arnold Schwarzenegger, Sci-Fi, Predator, Tubi
+
+Sun, 26 Apr 2026 22:00:12 GMT
+
+https://collider.com/arnold-schwarzenegger-sci-fi-action-classic-predator-streaming-hit-tubi-april-2026/
+
+Arnold Schwarzenegger's genre-defining sci-fi action masterpiece Predator, which launched a franchise, is a streaming hit. Read on for more.
+---------
+
+# Denis Villeneuve's Near-Perfect Sci-Fi Film Is the One Everyone Skipped Before Dune
+
+Movie Features, Arrival, Dune, Denis Villeneuve, Amy Adams
+
+Sun, 26 Apr 2026 21:55:13 GMT
+
+https://collider.com/arrival-best-denis-villeneuve-movie-streaming-paramount/
+
+Before Dune, Denis Villeneuve directed Arrival, a film about first contact with aliens and the linguist who saves the world.
+---------
+
+# 8 Worst Action Movies of All Time, Ranked by a Fan of the Genre
+
+Movie, Action, Catwoman, Ballistic: Ecks vs. Sever, Simon Sez
+
+Sun, 26 Apr 2026 21:42:12 GMT
+
+https://collider.com/worst-action-movies-of-all-time-ranked-by-a-fan/
+
+These are the worst action movies ever, from Catwoman to Ballistic: Ecks vs. Sever, where chaos replaces thrils and nothing actually lands.
+---------
+
+# 'The Twilight Zone' Is a Groundbreaking Series That Still Holds Up
+
+Features, The Twilight Zone, Rod Serling, William Shatner, Holds Up
+
+Sun, 26 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/twilight-zone-holds-up/
+
+'The Twilight Zone,' the sci-fi/horror anthology TV series created by Rod Sterling, still holds up well.
+---------
+
 # The Hobbit Trilogy Keeps Getting Better Ahead Of The Franchise's 2027 Return
 
 Movies, The Hobbit
