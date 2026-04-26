@@ -1,3 +1,278 @@
+# The Hobbit Trilogy Keeps Getting Better Ahead Of The Franchise's 2027 Return
+
+Movies, The Hobbit
+
+Sun, 26 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/the-hobbit-better-thranduil-return-hunt-for-gollum/
+
+One of the biggest fantasy movie trilogies of all time deserves a second look as the franchise prepares for its theatrical return in 2027.
+---------
+
+# 10 Iconic Legend Of Zelda Characters We Need In The Live-Action Movie
+
+Gaming, The Legend of Zelda
+
+Sun, 26 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/zelda-live-action-movie-10-iconic-characters/
+
+Nintendo's live-action adaptation of The Legend of Zelda better include 10 of the franchise's most iconic characters lest fans decide to riot.
+---------
+
+# 10 Martial Arts Movies That Launched Major Stars' Careers
+
+Classic Movies, Ranking
+
+Sun, 26 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/martial-arts-movies-launched-major-stars-careers/
+
+These are the martial arts movies that helped launch the career of some extremely famous actors and why they remain great watches to this day.
+---------
+
+# 10 Iconic 2000s Movies That Feel Totally Different To Watch Now
+
+Classic Movies
+
+Sun, 26 Apr 2026 21:15:19 GMT
+
+https://screenrant.com/2000s-movies-iconic-different-watch-now/
+
+Our perception of movies can change over time, and all of these iconic 2000s releases feel totally different when revisiting them today
+---------
+
+# One Piece Needs to Fix Its Most Divisive Issue Before It's Too Late
+
+Anime, One Piece (1997), One Piece
+
+Sun, 26 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/one-piece-final-arc-leaks-controversy/
+
+With Imu finally stepping into the spotlight on Elbaph, One Piece is diving into its final saga but it has to fix a major issue before the finale.
+---------
+
+# Marvel's Spider-Man 3 Redesigned Green Goblin Is A Hit With Gamers
+
+Gaming, Marvel's Spider-Man 3, Marvel's Spider-Man
+
+Sun, 26 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/marvels-spider-man-3-green-goblin-redesign-leak/
+
+Green Goblin is one of the most iconic comic book villains in history, and a potential new design is a hit with fans.
+---------
+
+# Prime Video's 4-Part Dieselpunk Series Changed Streaming Forever
+
+Classic TV, Masked Recs
+
+Sun, 26 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/man-in-the-high-castle-prime-video-changed-streaming/
+
+A bold move in 2015 signaled a seismic shift in the entertainment landscape, with an ambitious sci-fi making streaming originals must-watch TV.
+---------
+
+# The Most Underrated Horror Sequel Of All Time Is So Much Better Than You Remember
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/psycho-most-underrated-horror-sequel/
+
+Horror sequels aren't always very good, but the most underrated horror follow-up of all time is so much better than you remember.
+---------
+
+# 10 Best Psychological Horror Movies Of The Last 20 Years
+
+Classic Movies, Ranking, Horror
+
+Sun, 26 Apr 2026 20:45:18 GMT
+
+https://screenrant.com/best-psychological-thrillers-last-20-years/
+
+Psychological horror movies leaves scars because it relies on terror over gore, and it involves monsters who dig deep down and destroy a person.
+---------
+
+# Every Star Trek Movie Villain, Ranked By Threat Level
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Star Trek: First Contact
+
+Sun, 26 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/every-star-trek-movie-villain-ranked-threat-level-list/
+
+From ruthless alien conquerors to deceptive Starfleet traitors, here’s all of the Star Trek movie villains ranked by threat level.
+---------
+
+# The MCU Is Still Missing This Iconic Spider-Man Scene
+
+Movies, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 26 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-fix-mcu-new-york-mistake/
+
+The Marvel Cinematic Universe has yet to include one iconic type of scene that appeared in the previous Spider-Man film franchises.
+---------
+
+# Abbott Elementary's Best Line Is the Funniest Quote in Sitcom History
+
+TV, Abbott Elementary
+
+Sun, 26 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/abbott-elementary-funniest-quote/
+
+Abbott Elementary has plenty of great one-liners, but this Barbara Howard quote from Season 1 remains the best.
+---------
+
+# Stephen King Fans Will Appreciate IT: Welcome to Derry Season 2 Update
+
+TV, It: Welcome to Derry, Stephen King
+
+Sun, 26 Apr 2026 21:19:51 GMT
+
+https://www.cbr.com/it-welcome-to-derry-season-2-official-update/
+
+Andy Muschietti shares new info about IT: Welcome to Derry that will satisfy Stephen King fans.
+---------
+
+# The 9 Most Toxic Relationships in Anime
+
+Anime, Naruto, Death Note, Neon Genesis Evangelion
+
+Sun, 26 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/most-toxic-relationships-romances-in-anime/
+
+These anime relationships were toxic from the start, and the characters who were a part of them never should have come together.
+---------
+
+# Scooby-Doo Star Matthew Lillard Confirms Shaggy Return
+
+TV, Scooby-Doo
+
+Sun, 26 Apr 2026 21:04:28 GMT
+
+https://www.cbr.com/matthew-lillard-future-scooby-doo-shaggy/
+
+Shaggy actor Matthew Lillard comments on his future in the Scooby-Doo franchise.
+---------
+
+# Charlize Theron Names ‘80s TV Icon as Unexpected Celebrity Crush
+
+TV, charlize theron, MacGyver
+
+Sun, 26 Apr 2026 20:34:45 GMT
+
+https://www.cbr.com/charlize-theron-names-celebrity-crush/
+
+Charlize Theron feels like she's aging herself by revealing a retro TV icon as her celebrity crush.
+---------
+
+# 'Fallout' Star's 6-Part 'Killing Eve' Replacement Is Officially a Sleeper Streaming Hit
+
+TV News, Sweetpea, Killing Eve, STARZ, Ella Purnell
+
+Sun, 26 Apr 2026 21:30:12 GMT
+
+https://collider.com/ella-purnell-killing-eve-replacement-sweetpea-streaming-success-starz-april-2026/
+
+Fallout star Ella Purnell's sleeper hit series Sweetpea is back in the streaming charts. Here's everything you should know.
+---------
+
+# Only 3 Animated Movies Are Better Than Spirited Away
+
+Movie, Animation, Spirited Away, Disney's Pinocchio, Grave of the Fireflies
+
+Sun, 26 Apr 2026 21:23:13 GMT
+
+https://collider.com/animated-movies-better-than-spirited-away/
+
+Discover why Spirited Away ranks below only three animated masterpieces in emotional storytelling and cinematic depth.
+---------
+
+# ’Top Gun: Maverick’s Re-Release Takes Flight With Perfect Popcorn Bucket
+
+Movie News, top gun, Top Gun: Maverick, Tom Cruise, Paramount
+
+Sun, 26 Apr 2026 21:15:12 GMT
+
+https://collider.com/top-gun-maverick-re-release-popcorn-bucket-amc/
+
+AMC Theaters has released the first look at its popcorn bucket coming out to honor the 40th anniversary re-release of Top Gun and Top Gun: Maverick.
+---------
+
+# Ridley Scott’s Greatest Sci-Fi Movie Is Being Removed From HBO Max in 1 Month
+
+Movie News, Ridley Scott, Alien, Sci-Fi, HBO Max
+
+Sun, 26 Apr 2026 21:00:12 GMT
+
+https://collider.com/ridley-scott-greatest-sci-fi-movie-alien-1979-leaving-hbo-max-may-2026/
+
+Ridley Scott's greatest achievement in the sci-fi genre, Alien, is set to leave its streaming home shortly. Find out more.
+---------
+
+# 10 Greatest Endings in International Horror Movies, Ranked
+
+Movie, Ringu, Let the Right One In, Lamb, [REC]
+
+Sun, 26 Apr 2026 20:56:12 GMT
+
+https://collider.com/best-international-horror-movie-endings-ranked/
+
+International horror movies like Ringu, Lamb, and Thirst have some of the scariest and most unforgettable endings in the genre.
+---------
+
+# 8 Biopics That Are Even Worse Than 'Michael'
+
+Movie, Michael, Gotti, Stardust, The 15:17 to Paris
+
+Sun, 26 Apr 2026 20:41:12 GMT
+
+https://collider.com/biopics-worse-than-michael/
+
+2026's Michael hasn't been getting great reviews, but it's not the worst biopic of all time, since stinkers like Starman and Gotti also exist.
+---------
+
+# 'Masters of the Universe' Box Office Flop Led to 'Teenage Mutant Ninja Turtles' Success
+
+Features, Teenage Mutant Ninja Turtles, Masters of the Universe
+
+Sun, 26 Apr 2026 21:30:17 GMT
+
+https://movieweb.com/masters-of-the-universe-teenage-mutant-ninja-turtles/
+
+1990's 'Teenage Mutant Ninja Turtles became the highest-grossing independent film and became one of the most important films of the 1990s.
+---------
+
+# Best Anime Series That Take Place in a Post-Apocalypse World
+
+TV Lists, Attack on Titan, Anime
+
+Sun, 26 Apr 2026 21:01:18 GMT
+
+https://movieweb.com/best-anime-series-post-apocalypse-world/
+
+From 'Attack on Titan' to 'High School of the Dead', anime that have delivered some truly memorable visuals of a world on the brink of extinction.
+---------
+
+# 'Michael Jackson: Searching for Neverland' Is Better Than 'Michael'
+
+Features, Michael
+
+Sun, 26 Apr 2026 21:01:17 GMT
+
+https://movieweb.com/michael-jackson-searching-for-neverland-best-biopic/
+
+'Michael Jackson: Searching for Neverland' was released in 2017 and is a better biopic than 'Michael.'
+---------
+
 # Best Tomodachi Life: Living The Dream Apps That Will Take Your Creations To The Next Level
 
 Gaming
