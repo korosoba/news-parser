@@ -1,3 +1,102 @@
+# Star Trek: Strange New Worlds Season 4 - Release, Cast, Story & Latest News
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 26 Apr 2026 10:00:19 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-updates/
+
+Star Trek: Strange New Worlds season 4 is a return to space exploration, new planets, and meeting new aliens by the crew of the Starship Enterprise.
+---------
+
+# Bloodborne: Shadows Of The Hunt Leaves Gamers Stunned
+
+Gaming, Bloodborne
+
+Sun, 26 Apr 2026 09:30:18 GMT
+
+https://screenrant.com/bloodborne-shadows-of-the-hunt-mod-gamers-react/
+
+Bloodborne fans are thrilled with an unofficial PC port created by a dedicated modder, which significantly enhances visuals and performance.
+---------
+
+# Star Trek: The Animated Series' Impact on the Star Trek Canon
+
+TV, Star Trek, Star Trek: The Animated Series
+
+Sun, 26 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/gene-roddenberry-erased-star-trek-the-animated-series-from-canon/
+
+One Star Trek series was erased from canon by Gene Roddenberry himself, but it continued to shape the universe just the same.
+---------
+
+# Every MCU Character Confirmed To Survive Avengers: Doomsday
+
+Movies, Avengers: Doomsday, MCU, superheroes
+
+Sun, 26 Apr 2026 10:00:12 GMT
+
+https://www.cbr.com/mcu-characters-confirmed-survive-avengers-doomsday-list/
+
+Avengers: Doomsday will be a deadly time for many MCU heroes, but we know that these characters will live to fight another day.
+---------
+
+# 7 Questions 'Spider-Man: Brand New Day' Needs to Answer
+
+Movie, Spider-Man: Brand New Day, MCU, Tom Holland, Marvel
+
+Sun, 26 Apr 2026 10:01:12 GMT
+
+https://collider.com/spider-man-brand-new-day-questions/
+
+What does this mean for Avengers: Doomsday? Who is Sadie Sink playing? These are the questions Spider-Man: Brand New Day must answer.
+---------
+
+# One of Taylor Sheridan's Biggest Western Hits Ever Is Taking Over Paramount+
+
+TV News, Marshals, Yellowstone, Taylor Sheridan, Western
+
+Sun, 26 Apr 2026 10:00:12 GMT
+
+https://collider.com/taylor-sheridan-biggest-western-series-marshals-streaming-success-paramount-plus-april-2026/
+
+Discover the thrilling new Yellowstone spin-off that has viewers on a chokehold, propelling it to the top of streaming charts.
+---------
+
+# James Gunn’s New 4-Part Superman Series Quietly Becomes a Streaming Hit
+
+TV News, Superman, James Gunn, HBO Max
+
+Sun, 26 Apr 2026 09:40:19 GMT
+
+https://collider.com/james-gunn-superman-series-krypto-saves-the-day-coastal-catastrophe-streaming-success-hbo-max-april-2026/
+
+Krypto Saves the Day: Coastal Catastrophe is now streaming on HBO Max as the final part of the four-short series.
+---------
+
+# 6 Crime TV Shows That Have Earned the Right to Run Forever
+
+TV, Crime, Criminal Minds, NCIS, Law & Order
+
+Sun, 26 Apr 2026 09:26:13 GMT
+
+https://collider.com/long-crime-shows-can-run-forever/
+
+Explore the enduring appeal of iconic crime series that have stood the test of time, including Law & Order, Chicago P.D., and NCIS.
+---------
+
+# HBO Max Says Goodbye to Zack Snyder's Cult Classic Fantasy Epic This May
+
+Movie News, Legend of the Guardians: The Owls of Ga'Hoole, Zack Snyder, Animation, HBO Max
+
+Sun, 26 Apr 2026 09:20:12 GMT
+
+https://collider.com/zack-snyder-cult-classic-fantasy-epic-legend-of-guardians-owls-of-gahoole-leaving-hbo-max-may-2026/
+
+Zack Snyder's sole animated movie, Legend of the Guardians: The Owls of Ga'Hoole, is leaving HBO Max soon. Find out when.
+---------
+
 # 10 Must-Watch K-Dramas For Every Romantasy Fan
 
 Classic TV, K-Drama
