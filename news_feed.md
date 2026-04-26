@@ -1,3 +1,333 @@
+# Henry Cavill & Alexandra Daddario’s Intense Crime Thriller Officially Sets Free Streaming Release Date
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 13:41:50 GMT
+
+https://screenrant.com/henry-cavill-night-hunter-pluto-tv-free-streaming-release-date/
+
+Henry Cavill and Alexandra Daddario starred together in a 2018 crime thriller that was a flop at the time, but is getting a new life on streaming.
+---------
+
+# 10 Most Iconic Batman Superheroes Of All Time
+
+Comics, Batman
+
+Sun, 26 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/best-dc-superheroes-spin-off-batman/
+
+The best heroes in the Batfamily.
+---------
+
+# How Hulu's Drama Based On An Award-Winning Book Redefined Streaming TV
+
+Streaming TV, The Handmaid's Tale
+
+Sun, 26 Apr 2026 13:31:19 GMT
+
+https://screenrant.com/hulu-drama-the-handmaids-tale-streaming-history/
+
+This emotional dystopian drama made streaming TV history in its first season, setting the stage for the streaming medium's rise to prominence.
+---------
+
+# 10 Forgotten Nickelodeon Movies That Deserve Another Look
+
+Movies, Nickelodeon
+
+Sun, 26 Apr 2026 13:15:18 GMT
+
+https://screenrant.com/great-nickelodeon-movies-nobody-remembers/
+
+Nickelodeon has established itself as one of the best and biggest names in family entertainment, and these features deserve more attention today.
+---------
+
+# Infamous Michael Jackson Movie’s HBO Removal Sharply Criticized By Director
+
+Movies, Leaving Neverland
+
+Sun, 26 Apr 2026 13:13:25 GMT
+
+https://screenrant.com/michael-jackson-leaving-neverland-hbo-max-removal-director-response/
+
+Leaving Neverland director Dan Reed is speaking out after his infamous HBO two-part documentary is taken off of the streaming platform.
+---------
+
+# Reacher Season 4 Is The End Of An Era For Prime Video's Series
+
+Streaming TV, Reacher
+
+Sun, 26 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/reacher-season-4-end-era-personal-stories/
+
+When Alan Ritchson returns later this year in Reacher season 4, it will mark the end of an era for massive Amazon Prime Video hit series.
+---------
+
+# Doctor Who Can Only Survive Past Season 16 By Dropping One Bad Habit
+
+Classic TV, Doctor Who
+
+Sun, 26 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/doctor-who-survive-past-season-16-drop-mystery-box/
+
+As Doctor Who's future hangs in the balance, it's now clear that the Time Lord can only survive past season 16 by dropping a bad habit.
+---------
+
+# Gintama's Creator Is Back With An Amazing Isekai Parody Manga
+
+Anime, Gintama, Shonen Jump
+
+Sun, 26 Apr 2026 13:00:19 GMT
+
+https://screenrant.com/shonen-jump-new-manga-isekai-parody-great/
+
+Why you need to read Shonen Jump's new comedy.
+---------
+
+# Joey Quinn's Return In Dexter: Resurrection Could Mirror Another Major Return
+
+TV, Dexter
+
+Sun, 26 Apr 2026 12:55:18 GMT
+
+https://screenrant.com/dexter-resurrection-quinn-return-similar-angel-batista/
+
+Joey Quinn had a cameo in season 1, but is set to be a major character in season 2, which may be similar to another returning Dexter character.
+---------
+
+# The Elden Ring Movie Needs To Include These 10 Bosses
+
+Gaming, Elden Ring, PC
+
+Sun, 26 Apr 2026 12:30:19 GMT
+
+https://screenrant.com/elden-ring-movie-a24-10-bosses/
+
+With the Elden Ring film's release date confirmed and set images leaking online, it's worth considering which iconic bosses should make the final cut.
+---------
+
+# A Single Throwaway Line From The Sopranos Season 4 Is Far More Important Than Fans Realize (& It Explains This Tony Soprano Trend)
+
+TV, The Sopranos, Crime, hbo
+
+Sun, 26 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/sopranos-season-4-throwaway-line-tony-soprano-trend/
+
+One major fashion trend in The Sopranos was inspired by James Gandolfini's encounter with a real-life mobster.
+---------
+
+# After 13 Years, The Greatest Modern Zombie Movie is Getting a Sequel and It's Well Overdue
+
+Movies, World War Z
+
+Sun, 26 Apr 2026 13:30:12 GMT
+
+https://www.cbr.com/greatest-zombie-movie-world-war-z-sequel/
+
+World War Z proved the blockbuster merits of the zombie genre, and the upcoming sequel will further its legacy
+---------
+
+# Beloved Anime Friend Groups That Are Kind of Toxic
+
+Anime, Naruto, Fairy Tail
+
+Sun, 26 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/beloved-anime-friend-groups-that-are-toxic/
+
+These close-knit anime crews show patterns that prove they are not as healthy as they seem.
+---------
+
+# Ethan Hawke's Batwheels Officially Returns in May on HBO Max
+
+TV, Batwheels
+
+Sun, 26 Apr 2026 13:01:13 GMT
+
+https://www.cbr.com/ethan-hawkes-batman-batwheels-season-3-hbo-max-may-2026/
+
+Hawke's underrated Batman series makes its triumphant return with new episodes this May on HBO Max.
+---------
+
+# The 10 Most Important Sci-Fi Movies That Define the Genre, Ranked
+
+Movies, Sci-Fi
+
+Sun, 26 Apr 2026 13:00:13 GMT
+
+https://www.cbr.com/most-important-sci-fi-movies-define-genre-ranked/
+
+Some sci-fi movies stand out as the best of the best, defining the genre that has given cinema some of its most memorable chapters.
+---------
+
+# NBC’s Hannibal Remains the Gold Standard for Perfect Horror TV
+
+TV, Hannibal, Horror, NBC
+
+Sun, 26 Apr 2026 12:30:12 GMT
+
+https://www.cbr.com/nbc-hannibal-perfect-horror-tv/
+
+It's hard to believe that perfect horror came from a network TV channel, but Bryan Fuller's prequel series hit the mark repeatedly.
+---------
+
+# Why Villains Are The Most Iconic Characters H YT
+
+Movies, Darth Vader, The Joker, Game Of Thrones, Star Wars, Disney
+
+Sun, 26 Apr 2026 12:15:12 GMT
+
+https://www.cbr.com/video/why-villains-are-the-most-iconic-characters-h-yt/
+
+Why are villains more iconic than heroes? From Joker and Darth Vader to Disney villains and Game of Thrones, the best villains don’t just steal scenes, they define the entire story.In this CBR deep dive, Sierra Nutkevitch breaks down why villains are often more unforgettable than the heroes they fight. A great villain has a sharp identity, a memorable design, a clear desire, and a direct connection to the story’s theme. That’s why characters like Joker, Darth Vader, Cersei Lannister, Ursula, Maleficent, and Scar stay burned into pop culture long after the credits roll.Sierra explores why villains get to be more specific, more theatrical, more emotionally intense, and often more visually iconic than heroes. She also looks at what separates a legendary villain from a forgettable one, and why the best antagonists reveal what the hero fears becoming.
+---------
+
+# 'House of the Dragon' Season 3 Unleashes Brutal New Trailer at CCXP Mexico
+
+TV News, House of the Dragon, Game Of Thrones, George R.R. Martin, CCXP
+
+Sun, 26 Apr 2026 13:39:43 GMT
+
+https://collider.com/house-of-the-dragon-season-3-trailer-description-ccxp-mexico/
+
+House of the Dragon debuted a new Season 3 trailer at CCXP Mexico, teasing larger battles, more death, and a fiercer war for the Iron Throne.
+---------
+
+# The Best Album From Every Year of the 1970s
+
+Music Features, Pink Floyd, Music, David Bowie, Bruce Springsteen
+
+Sun, 26 Apr 2026 13:31:13 GMT
+
+https://collider.com/best-album-from-every-year-1970s/
+
+From Paranoid (1970) by Black Sabbath to London Calling (1979) by The Clash, these classic albums demonstrate how great the 1970s was for music.
+---------
+
+# Netflix’s Brutal Charlize Theron Survival Thriller Is an Instant Streaming Blockbuster
+
+Movie News, Netflix, Apex, Charlize Theron, Taron Egerton
+
+Sun, 26 Apr 2026 13:16:12 GMT
+
+https://collider.com/netflix-charlize-theron-survival-thriller-apex-streaming-success-april-2026/
+
+In just one day, Netflix’s new thriller is another #1 streaming hit for Charlize Theron and Taron Egerton. Read on for more.
+---------
+
+# Christopher Nolan Is a Surprise Super Fan of This Mega Action Franchise
+
+Movie Features, Christopher Nolan, Fast and Furious, Action, The Fast and the Furious: Tokyo Drift
+
+Sun, 26 Apr 2026 12:56:13 GMT
+
+https://collider.com/christopher-nolan-loves-fast-and-furious-franchise/
+
+While he may be associated with elevated cinema, Christopher Nolan is a proud fan of the Fast & Furious saga — especially Tokyo Drift!
+---------
+
+# 4 Years Later, This Iconic Sci-Fi Doesn’t Have a Single Bad Episode
+
+TV Features, Severance, Apple TV, Adam Scott, Ben Stiller
+
+Sun, 26 Apr 2026 12:47:13 GMT
+
+https://collider.com/apple-tv-severance-sci-fi-series-no-bad-episodes/
+
+Apple TV+'s Severance stands out as the most consistent and iconic sci-fi series, delivering captivating episodes without a single misstep.
+---------
+
+# This 8-Part Emmy-Winning Drama Is Taking Over Streaming 14 Years Later
+
+TV News, Weeds, Showtime, Mary-Louise Parker, Kevin Nealon
+
+Sun, 26 Apr 2026 12:45:13 GMT
+
+https://collider.com/emmy-winning-drama-weeds-streaming-success-apple-tv-april-2026/
+
+The Emmy-winning dark comedy-drama Weeds is experiencing a resurgence in popularity on streaming platforms, twenty years after its premiere.
+---------
+
+# Pink Floyd's 20 Greatest Songs, Ranked
+
+Music Features, Pink Floyd, Rock, Roger Waters: The Wall, David Gilmour: In Concert
+
+Sun, 26 Apr 2026 12:43:12 GMT
+
+https://collider.com/pink-floyd-best-songs-ranked/
+
+"Hey You," "Wish You Were Here," and "Shine On You Crazy Diamond" are all among the very best songs ever recorded by Pink Floyd.
+---------
+
+# 10 Most Perfect Marvel Movie Endings, Ranked
+
+Movie, Spider-Man, Marvel, Ending, Superhero
+
+Sun, 26 Apr 2026 12:34:12 GMT
+
+https://collider.com/most-perfect-marvel-movie-endings-ranked/
+
+Marvel movies like Logan, Spider-Man, and Captain America: The First Avenger have some of the best endings in the entire superhero genre's history.
+---------
+
+# Crunchyroll’s 3-Part Dark Fantasy Series Quietly Becomes a Record-Breaking Favorite
+
+TV News, Jujutsu Kaisen, Crunchyroll, Anime, Black Clover
+
+Sun, 26 Apr 2026 12:30:13 GMT
+
+https://collider.com/jujutsu-kaisen-2026-biggest-dark-fantasy-anime-streaming-milestone-100-days-crunchyroll/
+
+Jujutsu Kaisen, the dark fantasy anime series, has passed a significant milestone on Crunchyroll following its massive Season 3 finale.
+---------
+
+# 10 Greatest Climate Fiction Movies of All Time, Ranked
+
+Movie, WALL-E, Interstellar, First Reformed, Mad Max: Fury Road
+
+Sun, 26 Apr 2026 12:27:12 GMT
+
+https://collider.com/best-climate-fiction-movies-all-time-ranked/
+
+Climate fiction movies can cover many mediums and genres, from animated gems like Wall-E and Flow to sci-fi dystopias like Interstellar and The Road.
+---------
+
+# Jason Segel Shares What His 'Over Your Dead Body' Character Fears Most
+
+Exclusives, Over Your Dead Body, Jason Segel
+
+Sun, 26 Apr 2026 13:35:21 GMT
+
+https://movieweb.com/jason-segel-over-your-dead-body-afraid/
+
+The concept of speaking out and standing up for yourself plays a major role for Jason Segel in his new movie, 'Over Your Dead Body.'
+---------
+
+# Action Thriller 'G20' Is Climbing the Streaming Ranks on HBO
+
+Movie News, G20, Action, Thriller, HBO Max
+
+Sun, 26 Apr 2026 13:00:18 GMT
+
+https://movieweb.com/g20-stream-hbo-april-2026/
+
+Oscar-winner and Hollywood icon Viola Davis is a POTUS with a particular set of skills.
+---------
+
+# Fresh Michael Jackson Allegations Emerge As New Movie Reignites Debate
+
+Movie News, Michael, michael jackson, Leaving Neverland
+
+Sun, 26 Apr 2026 12:48:35 GMT
+
+https://movieweb.com/michael-jackson-accused-of-assault/
+
+Four New Jersey siblings accuse the King of Pop of sexual misconduct when they were minors.
+---------
+
 # From's Lake Of Tears Explained And Why [SPOILER] Tells Ethan To Find It
 
 Streaming TV, From
