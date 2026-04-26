@@ -1,3 +1,256 @@
+# Fans Won't Believe How Michael Jackson Nearly Changed Marvel Forever in the 90s
+
+Comics, Michael Jackson, Marvel
+
+Sun, 26 Apr 2026 14:30:18 GMT
+
+https://screenrant.com/michael-jackson-bought-marvel-90s/
+
+The King of Pop almost became Marvel's boss.
+---------
+
+# One Supe Is Way More Important To The Boys' Future After Season 5 Twist
+
+TV, The Boys, Vought Rising
+
+Sun, 26 Apr 2026 14:30:18 GMT
+
+https://screenrant.com/the-boys-quinn-vought-rising-important/
+
+One Supe is going to be way more important to the future of The Boys after season 5's massive twist revealed their tragic origin story.
+---------
+
+# Top Gun 3 Has Unlocked Its Best Chance Of A Series Box Office Record
+
+Movies, Top Gun 3
+
+Sun, 26 Apr 2026 14:15:03 GMT
+
+https://screenrant.com/top-gun-3-box-office-movie-series-record-actors/
+
+Paramount recently confirmed that Top Gun 3 is in development, and it can use one element from Maverick to break the franchise's box office record.
+---------
+
+# New Michael Jackson Movie’s Rave Audience Reception Slammed By Major Director: “People Just Want To Forget”
+
+Movies, Michael, Leaving Neverland
+
+Sun, 26 Apr 2026 14:04:03 GMT
+
+https://screenrant.com/michael-jackson-movie-2026-audience-response-dan-reed-criticism/
+
+Michael is a box office hit with a 97% audience score on Rotten Tomatoes, but one major director is criticizing the movie's positive reception.
+---------
+
+# 10 Best Weapons In Clair Obscur: Expedition 33
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Sun, 26 Apr 2026 14:00:20 GMT
+
+https://screenrant.com/clair-obscur-expedition-33-best-weapons/
+
+With so many weapons available in Clair Obscur: Expedition 33 for each character, these 10 are easily the best options for a range of builds.
+---------
+
+# DC's Greatest Martial Artist Makes Batman Look Like An Absolute Amateur
+
+Comics, DC Comics, Batman
+
+Sun, 26 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/dc-greatest-martial-artist-karate-kid-batman/
+
+This kid knows how to fight.
+---------
+
+# Every Johnny Depp TV Role, Ranked Worst To Best
+
+Classic TV, Johnny Depp
+
+Sun, 26 Apr 2026 14:00:19 GMT
+
+https://screenrant.com/johnny-depp-tv-shows-ranked/
+
+Johnny Depp might be best known as a bona-fide movie star, but he has appeared in some surprising TV shows, including a few roles playing himself.
+---------
+
+# New Rambo Movie Is "Entirely Respectful" To Sylvester Stallone's Action Franchise As Production Begins
+
+Movies, John Rambo
+
+Sun, 26 Apr 2026 13:56:15 GMT
+
+https://screenrant.com/rambo-prequel-movie-respect-sylvester-stallone-franchise-fogelson/
+
+The upcoming Rambo prequel John Rambo may not feature Sylvester Stallone in the lead, but Lionsgate's chairman says it well honors the original.
+---------
+
+# 9 Best Western & Neo-Western Movies Released Since 2000
+
+Movies, No Country for Old Men, Hell or High Water, There Will Be Blood, Rango, True Grit, The Hateful Eight, First Cow, The Power of the Dog, The Harder They Fall, Western
+
+Sun, 26 Apr 2026 13:45:18 GMT
+
+https://screenrant.com/westerns-neo-best-movies-21st-century-since-2000/
+
+Westerns have experienced an innovative and fascinating resurgence in the 21st century, with some of the genre’s best works released after 2000.
+---------
+
+# 8 Mystery Shows That Are Impossible to Predict
+
+TV, Mystery, Jo Nesbø's Detective Hole, His & Hers
+
+Sun, 26 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/most-unpredictable-mystery-shows-list/
+
+The most unpredictable mysteries deliver intriguing stories that keep viewers guessing until the end.
+---------
+
+# What's Coming to Pluto TV in May 2026? Full List Everything Arriving for Free
+
+TV, Pluto
+
+Sun, 26 Apr 2026 14:27:17 GMT
+
+https://www.cbr.com/whats-coming-pluto-tv-may-2026-full-list/
+
+Paramount's free-streaming platform is a great place to combine live TV and on-demand free films.
+---------
+
+# Anime Fans Call Masterpieces Because They’ve Not Rewatched Them As Adults
+
+Anime, Death Note, Elfen Lied
+
+Sun, 26 Apr 2026 14:15:21 GMT
+
+https://www.cbr.com/anime-not-masterpieces-rewatch-as-adults/
+
+Revisiting anime like Death Note and Elfen Lied as an adult will reveal flaws that were easy to ignore as a young viewer.
+---------
+
+# Henry Cavill & Alan Ritchson Teamed Up With Guy Ritchie for The Ministry of Ungentlemanly Warfare Is Coming to Peacock
+
+Movies, The Ministry of Ungentlemanly Warfare
+
+Sun, 26 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/henry-cavill-ministry-of-ungentlemanly-warfare-peacock-may-2026/
+
+Despite flopping at the box office, Ritchie's epic war film with Cavill and Ritchson remains beloved by both critics and audiences.
+---------
+
+# Marvel Celebrates The Fantastic Four With Massive Anniversary Special
+
+Comics, Fantastic Four
+
+Sun, 26 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/marvel-fantastic-four-65th-anniversary-special-release-date-confirmed/
+
+Marvel has big plans to celebrate The Fantastic Four's landmark anniversary later this year.
+---------
+
+# Evangelion Reveals New First-Look Prototype for 'Final Battle' Ahead of New Anime Release
+
+Anime, Neon Genesis Evangelion, merchandise, Evangelion: 3.0+1.0 Thrice Upon a Time
+
+Sun, 26 Apr 2026 14:00:12 GMT
+
+https://www.cbr.com/evangelion-asuke-rei-prime-1-studio-prototype-release/
+
+Years after the franchise's latest anime movie, two new Neon Genesis Evangelion statues are on the way depicting the film's versions of Asuka and Rei.
+---------
+
+# 10 Greatest Horror Thrillers Released Since 'The Silence of the Lambs'
+
+Movie, The Silence of the Lambs, Hereditary, Horror, Thriller
+
+Sun, 26 Apr 2026 14:33:13 GMT
+
+https://collider.com/best-horror-thrillers-since-the-silence-of-the-lambs/
+
+The Silence of the Lambs remains arguably the best thriller ever made, but many great ones have followed, from I Saw the Devil to the recent Weapons.
+---------
+
+# 'From's Most Horrifying Twist So Far Is a Whole New Low for the Nightmarish Town
+
+Exclusives, From, Harold Perrineau, MGM, Horror
+
+Sun, 26 Apr 2026 14:30:12 GMT
+
+https://collider.com/from-season-4-episode-2-harold-perrineau-interview-jim-death-twist/
+
+From star Harold Perrineau discusses Boyd's fractured state of mind in Season 4 leading up to the show's most horrifying twist yet.
+---------
+
+# 8 Forgotten Netflix Movies That Have Aged Like Fine Wine
+
+Movie, Netflix, The Ballad of Buster Scruggs, Okja, The King
+
+Sun, 26 Apr 2026 14:09:13 GMT
+
+https://collider.com/forgotten-netflix-movies-aged-like-fine-wine/
+
+Time has been kind to forgotten Netflix movies like Okja, The King, and The Ballad of Buster Scruggs, with their reputation improving with age.
+---------
+
+# New 'Stranger Things' Episodes Dominate Netflix Streaming Charts
+
+TV News, Netflix, Stranger Things, Stranger Things: Tales from '85
+
+Sun, 26 Apr 2026 14:01:14 GMT
+
+https://collider.com/netflix-sci-fi-spin-off-stranger-things-tales-from-85-streaming-success-april-2026/
+
+Netflix’s first-ever Stranger Things spin-off has officially debuted, but has fallen short of the #1 spot. Read on for more.
+---------
+
+# Scarlett Johansson's R-Rated Sci-Fi Thriller 'Under the Skin' Being Deleted From Free Streaming
+
+Movie News, Scarlett Johansson, Under the Skin, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 26 Apr 2026 14:30:16 GMT
+
+https://movieweb.com/scarlett-johansson-under-the-skin-sci-fi-leaving-streaming-april-2026/
+
+Scarlett Johansson gave the performance of a lifetime in 'Under the Skin,' which not a lot of people understood at first.
+---------
+
+# 'Michael' Director Says It Shows a Side of Michael Jackson We've Never Seen
+
+Movie News, Michael, Antoine Fuqua
+
+Sun, 26 Apr 2026 14:05:13 GMT
+
+https://movieweb.com/michael-director-mythology-biopic-exclusive/
+
+Antoine Fuqua, the director of 2026's 'Michael,' had a tough challenge in bringing the mythology of Michael Jackson to the big screen.
+---------
+
+# 37 Years Later, Stephen King’s "Dead Is Better" Quote Proves Why He's a Horror Legend
+
+Features, Pet Sematary, Stephen King, Great Line
+
+Sun, 26 Apr 2026 14:01:18 GMT
+
+https://movieweb.com/pet-sematary-stephen-king-quote-horror-legend/
+
+Can you think of anything scarier than Stephen King's 'Pet Sematary'? This one quote sums it all up.
+---------
+
+# Acclaimed Horror Thriller 'Speak No Evil' Leaves Streaming May 1
+
+Movie News, Speak No Evil, Coming/Leaving Streaming
+
+Sun, 26 Apr 2026 13:44:54 GMT
+
+https://movieweb.com/speak-no-evil-leaving-tubi-may-2026/
+
+You will not find a more unsettling and nihilistic movie in modern European cinema.
+---------
+
 # Henry Cavill & Alexandra Daddario’s Intense Crime Thriller Officially Sets Free Streaming Release Date
 
 Movies, Masked Recs
