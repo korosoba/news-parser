@@ -1,3 +1,256 @@
+# Best Tomodachi Life: Living The Dream Apps That Will Take Your Creations To The Next Level
+
+Gaming
+
+Sun, 26 Apr 2026 20:31:20 GMT
+
+https://screenrant.com/tomodachi-life-best-community-sharing-apps-guide/
+
+Tomodachi Life: Living The Dream is missing a number of features from its predecessors, but these fan-made apps will elevate your island creations.
+---------
+
+# Michael Jackson Biopic Officially Breaks All-Time Rotten Tomatoes Record
+
+Movies, Michael
+
+Sun, 26 Apr 2026 20:26:11 GMT
+
+https://screenrant.com/michael-rotten-tomatoes-music-biopic-audience-score-record/
+
+The brand-new Michael Jackson biopic has broken a major Rotten Tomatoes record just mere days after its theatrical release.
+---------
+
+# One Piece Finally Reveals Imu & Joy Boy's Past Connection
+
+Anime, One Piece, One Piece (1997)
+
+Sun, 26 Apr 2026 20:00:24 GMT
+
+https://screenrant.com/one-piece-imu-joy-boy-friends-foes/
+
+One Piece Chapter 1181 completely changes the series' lore by revealing the tragic personal history between Imu and Joy Boy.
+---------
+
+# Two Live-Action X-Men Shows Released Within Months Of Each Other, But Are Now Ignored
+
+Classic TV, X-Men, Legion, The Gifted
+
+Sun, 26 Apr 2026 20:00:20 GMT
+
+https://screenrant.com/x-men-live-action-tv-shows-legion-gifted-forgotten/
+
+Prior to the Disney acquisition, Fox was pulling some incredibly ambitious and inventive moves with the X-Men franchise that deserve remembering.
+---------
+
+# Zelda: Ocarina Of Time Remake New Content Unites Gamers
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sun, 26 Apr 2026 20:00:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-switch-2-remake-new-content-speculation/
+
+The Legend of Zelda: Ocarina of Time could be back in a very big way soon, and fans already know exactly what they want from a new release.
+---------
+
+# HBO Max's $447 Million Action Thriller With Near-Perfect RT Score Has One Of Its Best Casts
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 19:58:57 GMT
+
+https://screenrant.com/john-wick-chapter-4-best-ensemble-cast-action-stars/
+
+There's no shortage of star-studded movies on HBO Max, but few can match the caliber and care of the latest installment in a genre-redefining epic.
+---------
+
+# This 1989 Horror Movie Is David Lynch Meets Norman Rockwell
+
+Movies, Masked Recs
+
+Sun, 26 Apr 2026 19:55:20 GMT
+
+https://screenrant.com/parents-horror-movie-david-lynch-norman-rockwell/
+
+This criminally underrated 1989 horror movie skewers the 1950s, and feels like a sinister mashup of David Lynch and Norman Rockwell.
+---------
+
+# Stephen King's Dystopian Horror The Long Walk Returns as a Streaming Hit in America
+
+Movies, The Long Walk
+
+Sun, 26 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/stephen-king-the-long-walk-dystopian-horror-starz-success-april-2026/
+
+Almost four months after its streaming debut, the dystopian horror is still a success.
+---------
+
+# The Mandalorian and Grogu Starts a New Era For Star Wars Films
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Sun, 26 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/mandalorian-and-grogu-new-star-wars-movies-era-streaming-series/
+
+The past seven years have been an unusual period for the Star Wars franchise, but it is just a few weeks away from entering an exciting new era.
+---------
+
+# Deep Space Nine Broke Star Trek's Formula and Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek: Deep Space Nine, Star Trek, Sci-Fi
+
+Sun, 26 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/star-trek-ds9-sci-fi-masterpiece-broke-treks-formula/
+
+Star Trek wasn't truly a "franchise" until Deep Space Nine debuted to much controversy among fans, but it is a sci-fi masterpiece just the same.
+---------
+
+# Nana Still Understands Romance Better Than Most New Hits
+
+Anime, Nana
+
+Sun, 26 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/nana-understands-romance-better-than-most-new-hits/
+
+Despite its flaws, Nana handles relationships with a depth that many modern romance anime struggle to achieve.
+---------
+
+# Five Nights at Freddy's 2  Hit No. 1 on Peacock After Box Office Win
+
+Movies, Five Nights at Freddy's 2, video game, Horror
+
+Sun, 26 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/five-nights-at-freddys-2-video-game-streaming-success-peacock-april-2026/
+
+One of the highest-grossing video game adaptations of 2025 is continuing its success on streaming.
+---------
+
+# Almost 16 Years Later, Highschool of the Dead Finally Returns With New 2026 Release
+
+Anime, High School of the Dead, Crunchyroll
+
+Sun, 26 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/high-school-of-the-dead-day-0-2026-release/
+
+Hulu's risqué zombie horror harem is finally back with a brand-new 2026 release.
+---------
+
+# The Legend of Korra Officially Confirmed To Return, But Not How Fans Expect
+
+Anime, The Legend of Korra, Avatar: The Last Airbender
+
+Sun, 26 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/the-legend-of-korra-turf-wars-webtoon-release-date-confirmed/
+
+The Legend of Korra is making its way to a fan-favorite platform ahead of the release of the next entry in the Avatar: The Last Airbender franchise.
+---------
+
+# Gary Larson's 20 Most Underrated The Far Side Comics
+
+Comics, The Far Side
+
+Sun, 26 Apr 2026 19:53:30 GMT
+
+https://www.cbr.com/gary-larsons-20-most-underrated-the-far-side-comics/
+
+Despite featuring all the key ingredients for a hilarious Far Side comic, some of Gary Larson's greatest strips are also his most underrated.
+---------
+
+# 15 Years Later, Tom Hardy’s 140-Minute Sleeper Hit Officially Comes to Free Streaming
+
+Movie News, Tom Hardy, Warrior, Plex, Streaming
+
+Sun, 26 Apr 2026 20:30:12 GMT
+
+https://collider.com/tom-hardy-sleeper-hit-warrior-streaming-plex-may-2026/
+
+Tom Hardy's underrated masterpiece, Warrior, is coming to a new streamer next month. Find out more here.
+---------
+
+# 8 Years Later, the 10/10 Horror Movie With the Most Jaw-Dropping Twist of All Time Is Free To Stream
+
+Movie News, Hereditary, Horror, Plex, Streaming
+
+Sun, 26 Apr 2026 20:00:12 GMT
+
+https://collider.com/hereditary-horror-masterpiece-jaw-dropping-twist-streaming-plex-may-2026/
+
+One of the greatest horror movies of the past decade is about to stream for free. Here's what you should know about Hereditary.
+---------
+
+# 33 Years Later, This ‘Simpsons’ Episode Still Upsets Matt Groening’s Dad
+
+TV Features, The Simpsons, Matt Groening, Animation, Cartoons
+
+Sun, 26 Apr 2026 19:55:36 GMT
+
+https://collider.com/simpsons-episode-matt-groening-dad-upset-homers-barbershop-quartet/
+
+Matt Groening’s dad had one issue with The Simpsons, and it’s a surprisingly grounded moment in a classic Season 5 episode.
+---------
+
+# Apple TV’s 10-Part Comedy Is So Good, You’ll Finish It in One Weekend
+
+TV Features, The Studio, Seth Rogen, Ike Barinholtz, Apple TV
+
+Sun, 26 Apr 2026 19:42:12 GMT
+
+https://collider.com/the-studio-apple-tv-comedy-good-weekend-binge/
+
+Apple TV's The Studio, starring Seth Rogen, offers a hilarious and intelligent portrayal of the movie industry through razor-sharp satire.
+---------
+
+# Kevin Feige's Hint of Ms. Marvel's Role in 'Avengers: Doomsday' Could Set Up the Young Avengers
+
+Features, Avengers: Doomsday, Avengers: Secret Wars, Ms. Marvel, MCU
+
+Sun, 26 Apr 2026 20:30:17 GMT
+
+https://movieweb.com/ms-marvel-avengers-doomsday-young-avengers/
+
+Kevin Feige teased a "New Jersey presence" in 'Avengers: Doomsday,' suggesting Iman Velani's return as Ms. Marvel.
+---------
+
+# Gerard Butler's Action Thriller 'Den of Thieves 2: Pantera' Is a Global Streaming Hit on HBO Max
+
+Movie News, Den of Thieves 2: Pantera, HBO Max, Hot on Streaming, Action
+
+Sun, 26 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/den-of-thieves-2-pantera-gerard-butler-streaming-success-hbo-mapril-2026-action/
+
+Gerard Butler's 'Den of Thieves 2: Pantera' is a global streaming success on HBO Max. But will the action thriller get another sequel?
+---------
+
+# These 10 Terrifying 'Star Trek' Episodes Deserve to Mentioned Among All-Time Horror Classics
+
+TV Lists, Star Trek
+
+Sun, 26 Apr 2026 20:00:18 GMT
+
+https://movieweb.com/scariest-star-trek-episodes-horror-classics/
+
+With plenty of mortifying options to choose from, these 10 scary 'Star Trek' episodes still give us nightmares.
+---------
+
+# 'Michael' Moonwalks Past Competition to Win Weekend Box Office
+
+Movie News, Michael, The Super Mario Galaxy Movie, Project Hail Mary
+
+Sun, 26 Apr 2026 19:49:07 GMT
+
+https://movieweb.com/michael-breaks-records-wins-weekend-box-office/
+
+'Michael' joins 'Project Hail Mary' and 'The Super Mario Galaxy Movie' as the three biggest earners of the year so far.
+---------
+
 # Predator Vs Planet Of The Apes Comic Crossover Officially Announced By Marvel
 
 Movies, Predator, Planet of the Apes, Marvel
