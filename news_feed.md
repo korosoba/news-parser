@@ -1,3 +1,289 @@
+# Netflix's 10/10 Crime Thriller With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+Movies, The Irishman, Netflix, Masked Recs
+
+Mon, 27 Apr 2026 20:32:19 GMT
+
+https://screenrant.com/the-irishman-netflix-martin-scorese-movie-best-cast/
+
+Discover the staggering A-list lineup that came together to become Netflix's most impressive cast in an Oscar-nominated crime masterpiece.
+---------
+
+# Black Clover's Ending Release Date Confirmed
+
+Anime, Black Clover
+
+Mon, 27 Apr 2026 20:18:26 GMT
+
+https://screenrant.com/black-clover-final-chapter-release-date-confirmed/
+
+Black Clover's final chapters are set to release in less than a week, leaving fans to brace themselves for the manga's goodbye.
+---------
+
+# Titus Welliver's Perfect Bosch Replacement: The Noir Crime Drama 'Dark Winds'
+
+Streaming TV, Masked Recs
+
+Mon, 27 Apr 2026 20:01:18 GMT
+
+https://screenrant.com/dark-winds-netflix-titus-welliver-bosch-replacement/
+
+Discover why 'Dark Winds' is Titus Welliver's ideal replacement for 'Bosch' with its perfect Rotten Tomatoes score and gripping noir crime drama. Coming to Netflix soon.
+---------
+
+# Final Fantasy 10 Official 25th Anniversary Release Unveiled
+
+Gaming, Final Fantasy X, PC, Final Fantasy
+
+Mon, 27 Apr 2026 20:01:18 GMT
+
+https://screenrant.com/final-fantasy-10-official-25th-anniversary-release/
+
+Final Fantasy 10's 25th anniversary is almost here, and a brand-new release was just officially unveiled to celebrate the occasion.
+---------
+
+# Assassin’s Creed Hexe Official Update Confirms We’re In For A Wait
+
+Gaming, Assassin's Creed, Triple-A Games
+
+Mon, 27 Apr 2026 19:54:12 GMT
+
+https://screenrant.com/assassins-creed-hexe-development-update-release-window/
+
+Assassin's Creed Hexe is as mysterious as its rumored premise, but that premise may no longer be the same after this big development update.
+---------
+
+# 2026 Officially Marks The Start Of An Era For Spider-Man 2 Months Before Brand New Day
+
+Superheroes, Spider-Man, Spider-Noir, Marvel Cinematic Universe
+
+Mon, 27 Apr 2026 19:45:50 GMT
+
+https://screenrant.com/spider-man-tv-show-noir-prime-video-black-webs/
+
+Before Tom Holland's Peter Parker takes over the big screen in Spider-Man: Brand New Day, 2026 has a major change reserved for the Marvel hero.
+---------
+
+# Euphoria's Graphic "Red Wedding" Finally Makes Season 3 Worth Watching
+
+Streaming TV, Euphoria
+
+Mon, 27 Apr 2026 19:45:18 GMT
+
+https://screenrant.com/euphoria-season-3-nate-cassie-wedding-graphic/
+
+Nate and Cassie's Euphoria season 3 wedding is as shocking as you'd expect — and its graphic nature may be the key to restoring the show to its glory.
+---------
+
+# DC’s Most Controversial Batman Is Finally Back
+
+DC Comics, Batman
+
+Mon, 27 Apr 2026 19:39:40 GMT
+
+https://screenrant.com/batman-who-laughs-return-confirmed/
+
+The Batman Who Laughs, one of DC's most polarizing villains, is set to make a comeback, reigniting the debate surrounding the character.
+---------
+
+# 8 Ways A Knight Of The Seven Kingdoms Is Better Than Game Of Thrones
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game Of Thrones
+
+Mon, 27 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/why-knight-of-the-seven-kingdoms-better-than-game-of-thrones/
+
+A Knight of the Seven Kingdoms wouldn't exist without Game of Thrones, but there are ways this spinoff made itself better than its predecessor.
+---------
+
+# Boruto Finally Reminds Readers Why It's The True Naruto Successor
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Mon, 27 Apr 2026 19:31:19 GMT
+
+https://screenrant.com/boruto-true-naruto-successor/
+
+After a few disappointing wins, Boruto: Two Blue Vortex's latest victory feels like a refreshing return to the clever tactics that made Naruto shine.
+---------
+
+# The 10 Worst Lines in Star Wars History
+
+Movies, Sci-Fi, Star Wars
+
+Mon, 27 Apr 2026 20:30:12 GMT
+
+https://www.cbr.com/worst-lines-dialogue-star-wars-history-sci-fi-list-ranked/
+
+Star Wars is one of the greatest sci-fi franchises in history, but it's also known for its clunky dialogue.
+---------
+
+# Anime Villains Who Were Right For All the Wrong Reasons
+
+Anime, One Piece, Naruto
+
+Mon, 27 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/anime-villains-right-for-the-wrong-reasons/
+
+These anime antagonists had arguments that made sense, even if their actions did not.
+---------
+
+# Hulu's Chad Powers Confirms Season 2 Release Window
+
+TV, Chad Powers
+
+Mon, 27 Apr 2026 20:10:26 GMT
+
+https://www.cbr.com/hulu-chad-powers-season-2-release-window/
+
+The series is officially returning this year.
+---------
+
+# The Guild Returns With 20th Anniversary Reunion Movie Kickstarter
+
+Movies, The Guild, Comedy, kickstarter
+
+Mon, 27 Apr 2026 20:10:24 GMT
+
+https://www.cbr.com/the-guild-movie-20th-anniversary-reunion-felicia-day-kickstarter/
+
+Felicia Day has officially announced the return of The Guild as the cast reunities to celebrate its 20th anniversary with a movie Kickstarter.
+---------
+
+# DC's Must-Have Absolute Batman #20 Variants Are Perfect For Superfans
+
+Comics, Absolute Batman
+
+Mon, 27 Apr 2026 20:09:27 GMT
+
+https://www.cbr.com/absolute-batman-20-103-variant-covers/
+
+The astonishing number of Absolute Batman #20 variant covers might actually be too small for this universe.
+---------
+
+# ABC's High Potential Celebrates Major Hulu Milestone in the U.S.
+
+TV, High Potential, Hulu, Crime
+
+Mon, 27 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/abc-high-potential-crime-procedural-streaming-success-hulu-april-2026/
+
+A surprising crime procedural is celebrating a major streaming milestone this week.
+---------
+
+# Batman: Hush Universe Officially Confirmed To Return Ahead of Highly-Anticipated Sequel
+
+Comics, batman: hush
+
+Mon, 27 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/batman-hush-universe-batman-wonder-woman-truth-1-release-date-confirmed/
+
+Jeph Loeb's new Batman/Wonder Woman comic is canon to his cherished classic.
+---------
+
+# Tom Cruise's War of the Worlds Is the Best Sci-fi Adaptation
+
+Movies, War of The Worlds
+
+Mon, 27 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/tom-cruise-war-of-the-worlds-best-sci-fi-adaptation/
+
+Tom Cruise and Steven Spielberg's 2005 collaboration is still the best adaptation of H. G. Wells' iconic 1898 sci-fi story.
+---------
+
+# The 13 Rarest Charizard Pokémon Cards
+
+Games, Pokemon Trading Card Game, Pokemon
+
+Mon, 27 Apr 2026 19:46:13 GMT
+
+https://www.cbr.com/most-valuable-charizard-pokemon-cards/
+
+From Shining Charizard 1st Edition to Charizard National Championship, the fan-favorite Pokémon has several valuable trading cards to its name.
+---------
+
+# What's Coming to Paramount+ in May 2026? Full List
+
+Movies, Paramount Plus, Paramount
+
+Mon, 27 Apr 2026 19:36:58 GMT
+
+https://www.cbr.com/whats-coming-paramount-may-2026-full-list/
+
+A new Yellowstone spinoff, and a wave of season finales are coming to Paramount+ in May.
+---------
+
+# Prime Video's 2-Part Cringe Comedy Is So Good It Gets Better Every Rewatch
+
+TV Features, Fleabag, Prime Video, Phoebe Waller-Bridge, Olivia Colman
+
+Mon, 27 Apr 2026 20:24:13 GMT
+
+https://collider.com/prime-video-fleabag-phoebe-waller-bridge-rewatch/
+
+Created by Phoebe Waller-Bridge, Fleabag is a must-watch comedy with unforgettable characters and witty writing.
+---------
+
+# Only 3 Action Thrillers in the 2020s Can Be Considered True Masterpieces
+
+Movie, Action, Thriller, One Battle After Another, John Wick: Chapter 4
+
+Mon, 27 Apr 2026 19:41:12 GMT
+
+https://collider.com/action-thrillers-2020s-true-masterpieces/
+
+From Oscar winners like One Battle After Another to blockbusters like Top Gun: Maverick, these action thrillers from the 2020s are true masterpieces.
+---------
+
+# 3 Near-Perfect Netflix Movies to Watch This Week
+
+Movie, Netflix, Eleanor the Great, The Fifth Element, The Black Phone
+
+Mon, 27 Apr 2026 19:19:12 GMT
+
+https://collider.com/best-netflix-movies-watch-week-april-27/
+
+Eleanor the Great, The Black Phone, and The Fifth Element make up our list of the best Netflix movies to watch the week of April 27, 2026.
+---------
+
+# 'Maul - Shadow Lord' Just Redeemed Two Wasted Star Wars Characters
+
+Features, Star Wars: Maul - Shadow Lord
+
+Mon, 27 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-redeemed-marrok-eleventh-brother/
+
+'Star Wars: Maul - Shadow Lord,' which streams on Disney+, redeemed two 'Star Wars' characters who haven't been used well.
+---------
+
+# Zach Cregger's 'Resident Evil' Reboot Reveals Official Logo
+
+Movie News, Zach Cregger, Resident Evil, Horror
+
+Mon, 27 Apr 2026 19:59:11 GMT
+
+https://movieweb.com/resident-evil-reboot-official-logo/
+
+Zach Cregger's 'Resident Evil' reboot is beginning to reveal its hidden thrills with a new logo and website, with the first trailer sure to follow.
+---------
+
+# New Look at 'The Punisher: One Last Kill' Reveals a Bloody Jon Bernthal as Frank Castle
+
+TV News, The Punisher: One Last Kill, Jon Bernthal
+
+Mon, 27 Apr 2026 19:43:12 GMT
+
+https://movieweb.com/jon-bernthal-punisher-one-kill-bloody-image/
+
+Jon Bernthal's Frank Castle appears bloody and angry in a new image from the Disney+ 'The Punisher: One Last Kill' special.
+---------
+
 # Netflix Rolls Out Vertical Video Feed, Blurring Lines Between Streaming and Social Media
 
 Streaming TV, Netflix
