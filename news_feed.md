@@ -1,3 +1,333 @@
+# Michael Is Already 1/4 Of The Way To An All-Time Box Office Record
+
+New Movies, Michael
+
+Mon, 27 Apr 2026 17:45:19 GMT
+
+https://screenrant.com/michael-movie-box-office-music-biopic-record-start/
+
+The Michael Jackson movie is a huge, record-breaking hit, and Michael's box office has already put itself in a position to break a massive one.
+---------
+
+# Punisher Co-Creator Gerry Conway Passes Away At 73
+
+Marvel Comics, The Punisher
+
+Mon, 27 Apr 2026 17:42:58 GMT
+
+https://screenrant.com/gerry-conway-death-punisher/
+
+The Marvel universe mourns as reports confirm the passing of Gerry Conway, a legendary figure behind iconic characters.
+---------
+
+# Russell Crowe's $359M Historical Epic Is About To Leave Streaming Entirely In Just 3 Days
+
+Movies, Noah
+
+Mon, 27 Apr 2026 17:38:31 GMT
+
+https://screenrant.com/russell-crowe-noah-movie-leaving-streaming-may-2026/
+
+Russell Crowe's controversial $359 million historical epic movie is about to leave all streaming platforms entirely in just three days.
+---------
+
+# Glen Powell's Hit 6-Part Hulu Series Officially Returns This Year
+
+TV, Chad Powers, Chad Powers - Season 2, Glen Powell
+
+Mon, 27 Apr 2026 17:36:13 GMT
+
+https://screenrant.com/chad-powers-season-2-release-window-confirmed/
+
+Movie star Glen Powell is heading back to the small screen later this year for his hit sports comedy, which debuted in fall 2025 on Hulu.
+---------
+
+# 8 Years Later, Star Wars Is Finally Paying Off Solo’s Twist Ending
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Solo: A Star Wars Story, Star Wars
+
+Mon, 27 Apr 2026 17:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-crimson-dawn-solo-movie/
+
+Maul - Shadow Lord delves into the untold story of how Maul came to control Crimson Dawn, addressing the unresolved plot from Solo: A Star Wars Story.
+---------
+
+# The Best Forgotten Clint Eastwood Movies From Each Decade Of His Career (1950s - 2020s)
+
+Movies, Clint Eastwood, Ranking
+
+Mon, 27 Apr 2026 17:20:19 GMT
+
+https://screenrant.com/clint-eastwood-best-movies-forgotten-decade-breakdown/
+
+Clint Eastwood has been in the movie business for over 70 years, so it stands to reason he's made many gems that have been forgotten over the years.
+---------
+
+# After 6 Years, A Near-Perfect Crunchyroll Isekai Anime Finally Returns For Season 2
+
+Anime, The World's Finest Assassin Gets Reincarnated in Another World as an Aristocrat, Crunchyroll, Isekai
+
+Mon, 27 Apr 2026 17:02:58 GMT
+
+https://screenrant.com/crunchyroll-near-perfect-isekai-worlds-finest-assassin-season-2/
+
+Six years later, this near-perfect isekai anime is getting another season that fans have been waiting for, and it is coming to Crunchyroll.
+---------
+
+# Korn Drops Original New Song For Diablo 4: Lord of Hatred In Must-See Video
+
+Gaming, Diablo 4, Triple-A Games
+
+Mon, 27 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/korn-diablo-4-lord-of-hatred-music-video/
+
+Diablo 4: Lord of Hatred is upon us this week, and Blizzard is celebrating with a shockingly out of left field music video featuring Korn.
+---------
+
+# Zendaya's Last 2 Roles Explore Gun Violence in Unique Ways
+
+Streaming TV, Zendaya, The Drama, Euphoria
+
+Mon, 27 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/zendaya-euphoria-season-3-the-drama-same-topic/
+
+In both The Drama and Euphoria season 3, Zendaya's character deals with the taboo topic of gun control head-on (in very, very different ways).
+---------
+
+# Stranger Things Finally Ignores The Show's Worst Subplot
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Mon, 27 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-no-military-story/
+
+One specific subplot of Stranger Things is, without a doubt, the weakest of the entire show. Finally, though, the franchise is ignoring it.
+---------
+
+# Firefly’s Most Overlooked Episode Quietly Changed TV Sci-Fi Forever With 44 Perfect Minutes
+
+TV, Firefly, Sci-Fi
+
+Mon, 27 Apr 2026 17:45:13 GMT
+
+https://www.cbr.com/firefly-episode-objects-in-space-changed-sci-fi-tv/
+
+Firefly is a cult classic sci-fi show with one episode that forever changed TV with 44 perfect minutes.
+---------
+
+# Doctor Strange Almost Featured Stan Lee's Funniest Cameo
+
+Movies, Marvel, Doctor Strange
+
+Mon, 27 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/mcu-doctor-strange-deleted-alternate-funniest-cameo/
+
+If moviegoers lived in another timeline, this 2016 superhero origin story would have featured the funniest Stan Lee cameo in any Marvel blockbuster.
+---------
+
+# ABC's 4-Part Crime Drama Based on Bestselling Books Reaches Massive Streaming Milestone in the U.S.
+
+TV, Will Trent, Hulu
+
+Mon, 27 Apr 2026 17:18:57 GMT
+
+https://www.cbr.com/will-trent-crime-drama-massive-streaming-milestone-hulu-april-2026/
+
+Hulu subscribers push ABC's fan-favorite crime drama series past a major streaming milestone.
+---------
+
+# FF XIV Evercold's New Jobs Could Throw Players Back To The 8-bit Era
+
+Games, final fantasy xiv, Final Fantasy, RPG
+
+Mon, 27 Apr 2026 17:15:12 GMT
+
+https://www.cbr.com/final-fantasy-xiv-evercold-new-jobs-nes-era-throwback/
+
+Final Fantasy 14's upcoming Evercold expansion is adding two new jobs to the game, and the setting suggests they'll be a throwback to the NES era.
+---------
+
+# Lord of the Rings Game Officially Revealed in New Trailer
+
+Games, The Lord of the Rings
+
+Mon, 27 Apr 2026 17:05:12 GMT
+
+https://www.cbr.com/lotr-game-revealed-lord-of-the-rings-ascension/
+
+The Lord of the Rings fans are about to get the chance to revisit Middle-earth thanks to one of the most beloved games of an entire genre.
+---------
+
+# Melania Trump Calls for Jimmy Kimmel's Firing After White House Correspondents' Dinner Joke
+
+TV, Melania, Jimmy Kimmel Live!
+
+Mon, 27 Apr 2026 17:05:09 GMT
+
+https://www.cbr.com/melania-trump-jimmy-kimmel-firing-white-house-correspondents-dinner-joke/
+
+The remark came before the White House Correspondents' shooting.
+---------
+
+# James Gunn Explains Why DC"s The Authority Was Scrapped
+
+Movies, the authority, DCU, superheroes
+
+Mon, 27 Apr 2026 16:51:57 GMT
+
+https://www.cbr.com/james-gunn-the-authority-update-dcu/
+
+DC Studios head James Gunn explains why The Authority never made into production.
+---------
+
+# Anya Taylor-Joy's The Super Mario Galaxy Movie Sets Digital Release Date 1 Month After Release
+
+Movies, The Super Mario Galaxy Movie
+
+Mon, 27 Apr 2026 16:49:31 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-movie-digital-release-date-report/
+
+The sequel is already the highest grossing film of the year.
+---------
+
+# The Punisher Creator Gerry Conway Dead At 73
+
+Comics, Marvel
+
+Mon, 27 Apr 2026 16:48:05 GMT
+
+https://www.cbr.com/gerry-conway-dead-at-73/
+
+Conway brought fan-favorite Marvel characters such as The Punisher to life.
+---------
+
+# Data's Darkest Star Trek Episode Remains a Sci-Fi Masterpiece
+
+TV, Star Trek: The Next Generation, Star Trek, Sci-Fi
+
+Mon, 27 Apr 2026 16:25:12 GMT
+
+https://www.cbr.com/star-trek-tng-the-most-toys-darkest-data-episode/
+
+Data was one of Star Trek's brightest characters, but he made a shockingly dark decision in this excellent Next Generation episode.
+---------
+
+# Quentin Tarantino’s Most Bonkers Crossover Story Is Back From the Dead
+
+Movie News, Zorro, Quentin Tarantino, Brian Helgeland, Django Unchained
+
+Mon, 27 Apr 2026 17:38:19 GMT
+
+https://collider.com/quentin-tarantino-django-zorro-crossover-movie-comic-matt-wagner-brian-helgeland-script/
+
+Rare Quentin Tarantino sequel officially in the works as Sony taps LA Confidential writer Brian Helgleland to write a bonkers crossover movie.
+---------
+
+# 10 Most Universally Beloved Thriller Movies of All Time, Ranked
+
+Movie, Thriller, Vertigo, Psycho, Chinatown
+
+Mon, 27 Apr 2026 17:14:12 GMT
+
+https://collider.com/most-universally-beloved-thriller-movies-all-time-ranked/
+
+From Vertigo to Se7en, these thrillers grip, haunt, and redefine suspense with every unforgettable twist and turn.
+---------
+
+# Apple TV’s New Tatiana Maslany Thriller Is Officially Her Wildest Series Since 'Orphan Black'
+
+Exclusives, Maximum Pleasure Guaranteed, Tatiana Maslany, Jake Johnson, Apple TV
+
+Mon, 27 Apr 2026 17:11:10 GMT
+
+https://collider.com/tatiana-maslany-maximum-pleasure-guaranteed-teaser-apple-tv/
+
+Tatiana Maslany fights for her life in a new teaser for Apple TV’s Maximum Pleasure Guaranteed. Watch it here.
+---------
+
+# 'Jackass: Best and Last' Trailer Reveals Final Installment in Long-Running Franchise
+
+Movie News, Jackass: Best and Last
+
+Mon, 27 Apr 2026 17:26:24 GMT
+
+https://movieweb.com/jackass-final-movie-trailer/
+
+After 26 years, the 'Jackass' crew says goodbye with one final film set to open against 'Supergirl' on Jun. 26.
+---------
+
+# 'The Sheep Detectives' Review: Adults Won't Even Be Counting Sheep During this Charmer
+
+Movie Reviews, The Sheep Detectives, Hugh Jackman, Emma Thompson
+
+Mon, 27 Apr 2026 17:12:52 GMT
+
+https://movieweb.com/the-sheep-detectives-review/
+
+The mystery is delightful and engaging enough for audiences of all ages.
+---------
+
+# The Best Free Horror Movies on YouTube, Ranked
+
+Movie Lists, Horror, YouTube
+
+Mon, 27 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/best-free-horror-movies-youtube/
+
+Tired of the same old movies circulating on your streaming services? Check out these free horror movies on YouTube.
+---------
+
+# 'Inception's Ending Is Completely Changed By a Single Line
+
+Features, Inception, Canon Shift
+
+Mon, 27 Apr 2026 17:00:17 GMT
+
+https://movieweb.com/inception-quote-changes-ending/
+
+'Inception,' the sci-fi movie directed by Christopher Nolan starring Leonardo DiCaprio, was released in 2010.
+---------
+
+# 'Enola Holmes 3' New Look Reveals Return of Milly Bobby Brown & Henry Cavill in Netflix Mystery Franchise
+
+Movie News, Enola Holmes 3, Netflix
+
+Mon, 27 Apr 2026 16:53:59 GMT
+
+https://movieweb.com/enola-holmes-3-netflix-new-look/
+
+Millie Bobby Brown, Henry Cavill, and more are back in action in new images from Netflix's 'Enola Holmes 3.'
+---------
+
+# Matthew Lillard Attributes Career Resurgence to "Weird Nostalgia"
+
+Movie News, Matthew Lillard, Scream, Scooby-Doo
+
+Mon, 27 Apr 2026 16:38:10 GMT
+
+https://movieweb.com/matthew-lillard-credits-nostalgia-for-acting-resurgence/
+
+Matthew Lillard has attributed his recent career resurgence to cultural nostalgia for his earlier roles in the likes of 'Scream' and 'Scooby-Doo.'
+---------
+
+# 'Gen V' Cast Jaz Sinclair, London Thor, and Maddie Phillips React to Cancellation
+
+TV News, Gen V, The Boys, Eric Kripke
+
+Mon, 27 Apr 2026 16:34:24 GMT
+
+https://movieweb.com/gen-v-cast-cancellation-the-boys-future/
+
+Gen V may be over as a standalone series, but a new promise from 'The Boys' producers suggests Marie and the other young supes still have a future.
+---------
+
 # Steven Spielberg's Directorial Debut: The Untold Story Behind Duel
 
 Movies, Duel, Steven Spielberg, Recommendation
