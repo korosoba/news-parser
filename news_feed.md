@@ -1,3 +1,311 @@
+# Netflix Rolls Out Vertical Video Feed, Blurring Lines Between Streaming and Social Media
+
+Streaming TV, Netflix
+
+Mon, 27 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/etflix-app-vertical-video-feed-streaming-like-social-media/
+
+The biggest streaming platform in television has just made a big statement about where its content is going, with a brand-new interface feature.
+---------
+
+# Half-Man Is Baby Reindeer Meets Animal Kingdom
+
+Streaming TV, Masked Recs
+
+Mon, 27 Apr 2026 18:45:19 GMT
+
+https://screenrant.com/hbo-half-man-british-drama-like-baby-reindeer-animal-kingdom/
+
+HBO’s latest drama starring Richard Gadd borrows from Baby Reindeer’s dark and unsettling premise and Animal Kingdom’s family-centred story.
+---------
+
+# Taylor Sheridan’s Gritty Western Crime Thriller Officially Releases On Hulu Next Week
+
+Movies, Masked Recs
+
+Mon, 27 Apr 2026 18:42:32 GMT
+
+https://screenrant.com/taylor-sheridan-sicario-hulu-may-2026-streaming/
+
+One of Taylor Sheridan's most exciting releases is coming to Hulu in just one week, and subscribers need to rush to this gritty Western.
+---------
+
+# Sydney Sweeney's 4-Hour Netflix Series Is One Of Her Best
+
+TV, Everything Sucks!, Masked Recs, Sydney Sweeney
+
+Mon, 27 Apr 2026 18:37:19 GMT
+
+https://screenrant.com/sydney-sweeney-everything-sucks-netflix-show/
+
+Discover the untold story of Sydney Sweeney's breakout role in a Netflix series, a forgotten teen dramedy that remains criminally underrated.
+---------
+
+# Trump Demands ABC Fire Jimmy Kimmel Over Assassination Joke
+
+Network TV, Jimmy Kimmel, jimmy kimmel, Donald Trump, Melania Trump
+
+Mon, 27 Apr 2026 18:32:09 GMT
+
+https://screenrant.com/donald-trump-jimmy-kimmel-abc-fire-request-widow-joke/
+
+Donald Trump urges ABC to terminate Jimmy Kimmel's contract following a joke the late-night host made about the president's assassination attempt.
+---------
+
+# Marvel Officially Confirms New Codename For Jessica Jones' New Appearance
+
+Marvel Comics, Jessica Jones, Spider-Man, Marvel
+
+Mon, 27 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/jessica-jones-new-codename-spider-girl/
+
+Marvel explores a wild scenario where Jessica Jones' story becomes more closely intertwined with Spider-Man's legacy, rewriting her origins.
+---------
+
+# From Season 4 Officially Debunks A Popular Randall Theory
+
+Streaming TV, From, FROM - Season 4
+
+Mon, 27 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/from-season-4-randall-not-storywalker-theory-confirmed/
+
+One of the most popular From theories about Randall has been debunked in season 4, but this outcome raises a question about a different character.
+---------
+
+# 10 Live-Action Anime Adaptations That Are Surprisingly Good
+
+Anime
+
+Mon, 27 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/best-live-action-anime-adaptations-ever/
+
+Fans are used to their precious anime being butchered in live-action, so these ambitious adaptations are a welcome, albeit shocking, success.
+---------
+
+# Quentin Tarantino's $426M Western Crime Thriller Is Officially Getting A Sequel 14 Years Later
+
+Movies
+
+Mon, 27 Apr 2026 17:57:10 GMT
+
+https://screenrant.com/sony-django-zorro-crossover-movie-brian-helgeland/
+
+Fourteen years after its release, another Quentin Tarantino film is officially getting a sequel, joining Once Upon a Time in Hollywood.
+---------
+
+# Spider-Man Noir's Controversial Organic Webbing Update Explained
+
+TV, Spider-Noir, Prime Video, Spider-Man
+
+Mon, 27 Apr 2026 19:02:29 GMT
+
+https://www.cbr.com/prime-video-spider-man-noir-organic-web-shooter-update/
+
+Spider-Man Noir's unique organic webbing sets him apart from other Spider-Man iterations, sparking debate among fans and altering his edgy persona.
+---------
+
+# Dunkirk Officially Releases On Peacock After Making 5.5x Its Budget
+
+Movies, Peacock, Dunkirk, tom hardy
+
+Mon, 27 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/tom-hardy-dunkirk-historical-epic-peacock-debut-may-2026/
+
+One of the greatest historical epics of all time just made its debut on a surprising streaming platform.
+---------
+
+# 10 R-Rated Thrillers That Are (Almost) As Good As Sydney Sweeney's The Housemaid
+
+Movies, The Housemaid
+
+Mon, 27 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/r-rated-thrillers-as-good-as-sydney-sweeney-the-housemaid/
+
+The Housemaid has revived the R-rated thriller for modern audiences, but there are some must-watch movies that are almost as good.
+---------
+
+# Netflix's 3-Season A Series of Unfortunate Events Will Hook You in 5 Minutes
+
+TV, Netflix, Mystery, A Series Of Unfortunate Events
+
+Mon, 27 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/netflix-a-series-of-unfortunate-events-captivating-well-paced-mystery-show/
+
+Discover the secret to captivating storytelling as Netflix's mystery series masterfully hooks viewers in the intro to keep them coming back for more.
+---------
+
+# Bruce Miller Reveals the 'Essential' Change He Made to The Testaments From the Book
+
+TV, The Testaments, The Handmaid's Tale, Hulu
+
+Mon, 27 Apr 2026 18:51:35 GMT
+
+https://www.cbr.com/the-testaments-changes-from-book-revealed/
+
+This one change also opened up a wormhole of theories for fans of The Handmaid's Tale and The Testaments.
+---------
+
+# Hello Kitty x Crocs Officially Reveals New Spring Collection Releasing April 29
+
+Anime, Hello Kitty, sanrio, merchandise, Clothing
+
+Mon, 27 Apr 2026 18:45:57 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-crocs-spring-collection-april-29-release/
+
+Crocs brand-new Hello Kitty and Friends designs ahead of an official Sanrio collection coming soon this spring.
+---------
+
+# I Love You, Man Has the Best Bromance in Movies
+
+Movies, I Love You, Man, Comedy, paul rudd
+
+Mon, 27 Apr 2026 18:30:12 GMT
+
+https://www.cbr.com/17-years-later-i-love-you-man-still-holds-up/
+
+I Love You, Man is an underrated movie from 2009 that explores male friendship in a hilarious yet heartwarming way.
+---------
+
+# Why Spider-Man Isn't in Daredevil: Born Again Explained
+
+TV, Daredevil: Born Again, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Mon, 27 Apr 2026 18:26:59 GMT
+
+https://www.cbr.com/why-spider-man-isnt-in-daredevil-born-again/
+
+The real reason Tom Holland's Spider-Man doesn't appear in Daredevil: Born Again was quietly revealed to MCU fans before they realized it.
+---------
+
+# Elden Ring Raging Wolf Statue Officially Coming in 2026
+
+Games, Elden Ring
+
+Mon, 27 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/elden-ring-new-release-2026-raging-wolf/
+
+A statue depicting the Tarnished warrior of Elden Ring wearing the Raging Wolf armor is coming in 2026, and the pre-orders are open right now.
+---------
+
+# Hunter x Hunter Is Finally Returning and That's a Problem
+
+Anime, Hunter x Hunter, Shonen Jump, Manga
+
+Mon, 27 Apr 2026 18:15:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-officially-returning-problem/
+
+Yoshihiro Togashi's Hunter X Hunter is finally returning from its long hiatus, but its exciting comeback is bittersweet.
+---------
+
+# This 4-Part Forgotten Fantasy Series Is About To Stream Free, but There’s a Catch
+
+TV Features, The Outpost, CW, The Witcher, Fantasy
+
+Mon, 27 Apr 2026 18:57:12 GMT
+
+https://collider.com/forgotten-sci-series-the-outpost-free-streaming-details/
+
+The forgotten sci-fi series The Outpost was cancelled after four seasons, but is still a must-watch in the genre.
+---------
+
+# 7 Must-Watch Shows Coming to Netflix in May
+
+TV, Netflix, A Good Girl's Guide to Murder, Lord of the Flies, Devil May Cry
+
+Mon, 27 Apr 2026 18:22:13 GMT
+
+https://collider.com/tv-shows-netflix-may-2026/
+
+From the latest Lord of the Flies adaptation to A Good Girl's Guide to Murder Season 2, these are the best shows coming to Netflix this May.
+---------
+
+# Bob Dylan Wrote This Song for George Harrison for a Forgotten Film Soundtrack
+
+Music Features, The Beatles, Bob Dylan, Music, Rock
+
+Mon, 27 Apr 2026 18:04:36 GMT
+
+https://collider.com/bob-dylan-wrote-song-for-george-harrison-porkys-revenge-classic-film/
+
+Bob Dylan wrote a forgotten song for George Harrison that resurfaced on an overlooked 1980s film soundtrack and became a hidden gem.
+---------
+
+# After Growing Cancellations, HBO Max’s 98% Certified Fresh Sci-Fi Miniseries Is a Perfect Weekend Binge
+
+TV Features, Station Eleven, HBO, Sci-Fi
+
+Mon, 27 Apr 2026 17:47:12 GMT
+
+https://collider.com/station-eleven-hbo-post-apocalyptic-sci-fi-show-binge/
+
+The Emmy-nominated, 98% Certified Fresh HBO Max miniseries Station Eleven is more than worthy of a binge-watch today.
+---------
+
+# 10 Major Fantasy Shows You Still Have To Look Forward To in 2026
+
+TV Lists, Fantasy
+
+Mon, 27 Apr 2026 19:00:10 GMT
+
+https://movieweb.com/fantasy-tv-shows-upcoming-2026/
+
+These fantasy TV series are all being released in 2026, and fans of compelling characters and excellent world-building won't want to miss them.
+---------
+
+# Hugh Jackman Mystery Film 'The Sheep Detectives' Lands Impressive Rotten Tomatoes Debut
+
+Movie News, The Sheep Detectives, Hugh Jackman
+
+Mon, 27 Apr 2026 18:34:25 GMT
+
+https://movieweb.com/the-sheep-detectives-rotten-tomatoes/
+
+The upcoming murder-mystery movie features an ensemble voice cast.
+---------
+
+# 'Django/Zorro' Crossover Film Officially Moves Forward From Writer Brian Helgeland
+
+Movie News, Django Unchained, Quentin Tarantino, Zorro
+
+Mon, 27 Apr 2026 18:02:07 GMT
+
+https://movieweb.com/django-unchained-zorro-film-sony/
+
+Sony is moving forward with a 'Django Unchained' and 'Zorro' crossover film approved by Quentin Tarantino.
+---------
+
+# Jason Statham Action Thriller Remake 'The Mechanic' Explodes Onto New Streaming Home
+
+Movie News, Jason Statham, The Mechanic, Action, Thriller, Coming/Leaving Streaming
+
+Mon, 27 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/jason-statham-the-mechanic-stream-paramount-plus-may-2026-action/
+
+Statham steps into the role made famous by Charles Bronson in this thrilling remake of a 1972 action classic.
+---------
+
+# 'House of the Dragon' Season 3 Official Teaser Trailer Released by HBO
+
+TV News, House of the Dragon, Game Of Thrones
+
+Mon, 27 Apr 2026 17:55:43 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-trailer/
+
+The new trailer also confirms a June 21 release date for the new season.
+---------
+
 # Michael Is Already 1/4 Of The Way To An All-Time Box Office Record
 
 New Movies, Michael
