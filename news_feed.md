@@ -1,3 +1,366 @@
+# Crunchyroll's Newest Chinese Isekai Is Secretly The Season's Most Profound Anime
+
+Anime, Crunchyroll
+
+Mon, 27 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/release-that-witch-crunchyroll-chinese-isekai-profound-anime/
+
+China's latest isekai series has a pretty profound message that a lot of fans might miss on their first watch.
+---------
+
+# 10 Near-Perfect Murder Mystery Shows Based On Books
+
+Classic TV
+
+Mon, 27 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/best-murder-mystery-shows-based-on-books/
+
+These near-perfect murder mystery shows perfectly capture what made the original books so great while offering a new perspective on the genre.
+---------
+
+# Final Fantasy Fans Issued Dire Warning About PS4 Consoles
+
+Gaming, Final Fantasy 14 (2010), Triple-A Games
+
+Mon, 27 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/final-fantasy-14-evercold-expansion-ps4-compatability/
+
+The PlayStation 4 is about to celebrate its 13th anniversary this year, and Square Enix has a warning for fans who are still using it.
+---------
+
+# 10 Memorable Fallout Characters Who Should Appear In Season 3 Of The Show
+
+Gaming
+
+Mon, 27 Apr 2026 02:00:30 GMT
+
+https://screenrant.com/fallout-characters-appear-season-3-show/
+
+As Amazon eyes the third season of Fallout, there are 10 top-tier characters from the video games that the TV show needs to introduce.
+---------
+
+# 11 Years Later, Black Clover's Biggest Missed Opportunity Is The Still The Series Creator's Favorite Character
+
+Anime, Black Clover
+
+Mon, 27 Apr 2026 01:51:19 GMT
+
+https://screenrant.com/black-clover-ending-dwarves-charmy-lore-missed/
+
+While Black Clover's finale has driven one particular bit of lore deep within the surface, perhaps this is where it can thrive, unearthed in spinoffs.
+---------
+
+# 10 Batman Beyond Episodes That Are Considered Masterpieces
+
+Classic TV, Batman Beyond, Batman, DC
+
+Mon, 27 Apr 2026 01:46:20 GMT
+
+https://screenrant.com/batman-beyond-episodes-considered-masterpieces/
+
+Explore the 10 standout episodes of Batman Beyond that are still considered masterpieces nearly three decades later, showcasing the show's consistently high quality and memorable storytelling.
+---------
+
+# The Boys Spinoff Star Promises To Reveal Info About Gen V Cancellation In Official Statement
+
+TV, Gen V
+
+Mon, 27 Apr 2026 01:30:35 GMT
+
+https://screenrant.com/gen-v-cancellation-jaz-sinclair-official-statement/
+
+Star of The Boys' spinoff Gen V posted a heartfelt statement after the show got cancelled, she also revealed that she would share more information.
+---------
+
+# Netflix’s Upcoming Beauty In The Beast K-Drama Will Be Perfect For “Team Jacob” Twilight Fans
+
+Streaming TV, Twilight, Jacob Black
+
+Mon, 27 Apr 2026 01:30:18 GMT
+
+https://screenrant.com/beauty-in-the-beast-twilight-team-jacob/
+
+One upcoming Netflix K-drama should have Team Jacob fans rejoicing as it offers a YA wolfy romance that Twilight denied them.
+---------
+
+# Red Hulk's Return To Villainy Is The Perfect Choice... Albeit 15 Years Too Late
+
+Marvel Comics, Red Hulk, Hulk, Marvel
+
+Mon, 27 Apr 2026 01:30:18 GMT
+
+https://screenrant.com/avengers-armageddon-red-hulk-better-villain/
+
+An underrated Marvel character takes center stage in 2026's main crossover event, reverting to his villain roots after more than a decade of heroics.
+---------
+
+# Netflix Officially Retcons Stranger Things
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Mon, 27 Apr 2026 01:15:20 GMT
+
+https://screenrant.com/stranger-things-nikki-baxter-tales-from-85-plot-hole/
+
+Netflix has released a Stranger Things story that officially retcons the show by adding in several plot holes, meaning explanations are needed soon.
+---------
+
+# 10 Best Anime That Are Perfect From Start to Finish
+
+Anime
+
+Mon, 27 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/perfect-anime-beginning-to-end-list/
+
+Some of the greatest anime ever made are completely flawless from beginning to end.
+---------
+
+# Persona's New Ann Takamaki Release Gets Official First Look
+
+Anime, Persona, Persona 5, merchandise, Persona 5: The Animation
+
+Mon, 27 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/persona-ann-takamaki-official-first-look/
+
+10 years after the game's debut, a new statue based on the most ferocious Persona 5 Phantom Thief (besides Morgana) is coming from Prime 1 Studio.
+---------
+
+# Star Trek's 5-Part Masterpiece With 93% RT Finally Broke a Historic Gene Roddenberry Rule
+
+TV, Star Trek, Star Trek Lower Decks, Sci-Fi
+
+Mon, 27 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/star-trek-lower-decks-broke-historic-gene-roddenberry-rule/
+
+Star Trek: Lower Decks was a raucous comedy set in this universe, but it broke a specific Roddenberry rule that maybe should have been broken earlier.
+---------
+
+# 10 Most Universally Beloved Action Movies Of All Time, Ranked
+
+Movies, Action, Die Hard, Mad Max: Fury Road
+
+Mon, 27 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/most-universally-beloved-action-movies-ranked/
+
+Since the genre was born in the 1960s, action movies have provided moviegoers non-stop entertainment, and some are so great everyone loves them.
+---------
+
+# 10 Anime Characters Who Are Just Like John Wick
+
+Anime, John Wick, Cowboy Bebop, Fate/Zero
+
+Mon, 27 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/anime-characters-who-are-just-like-john-wick/
+
+Anime anti-heroes have often had more than a few things in common with action hero John Wick.
+---------
+
+# 10 NES Games That Aren't As Good As You Remember
+
+Games, Nintendo, retro games
+
+Mon, 27 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/nes-games-aged-like-milk-list/
+
+Even though games like Super Mario Bros. are classics, they aren't quite as good as players remember.
+---------
+
+# James Gunn Officially Confirms Clayface's Worrying DCU Timeline Placement
+
+Movies, DCU, Clayface, superheroes
+
+Mon, 27 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/clayface-dcu-timeline-worrying-james-gunn-trend-superhero/
+
+We now know when Clayface takes place in the DCU timeline, but its placement should be worrying to some fans.
+---------
+
+# Dororo Portrays the Tragic Sibling Bond Better Than Demon Slayer
+
+Anime, Dororo, Demon Slayer: Kimetsu no Yaiba
+
+Mon, 27 Apr 2026 01:25:13 GMT
+
+https://www.cbr.com/dororo-anime-perfected-tragic-sibling-bond/
+
+Dororo uses Hyakkimaru and Tahomaru's relationship to portray the tragic sibling dynamic in truly heartbreaking ways.
+---------
+
+# Chicago Fire Hit With Major Departure After 14 Seasons
+
+TV, Chicago Fire
+
+Mon, 27 Apr 2026 01:18:43 GMT
+
+https://www.cbr.com/chicago-fire-andrew-newman-exit/
+
+Chicago Fire's 14th season finale will mark the end of an era for the series.
+---------
+
+# Yuji Itadori's Single Greatest Line Changed Jujutsu Kaisen Forever
+
+Anime, shonen anime, Shonen, Jujutsu Kaisen
+
+Mon, 27 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/itadori-single-greatest-line-changed-jujutsu-kaisen-forever/
+
+Jujutsu Kaisen is full of series-altering moments, but none more defining than the moment Yuji Itadori realized he & Mahito were the same.
+---------
+
+# One of the Best TV Series Ever Made Reveals New Bonkers Sci-Fi Spin-Off Footage
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, CCXP, HBO Max
+
+Mon, 27 Apr 2026 01:30:17 GMT
+
+https://collider.com/big-bang-theory-sci-fi-spin-off-series-stuart-fails-to-save-the-universe-trailer-footage-description-ccxp/
+
+The first trailer for Stuart Fails to Save the Universe has arrived, teasing a bonkers, multiversal adventure beyond the Big Bang Theory's world.
+---------
+
+# The Best Crime Shows From Every Year of the 2010s
+
+TV, Crime, Sherlock, Mindhunter, Barry
+
+Mon, 27 Apr 2026 01:22:13 GMT
+
+https://collider.com/best-2010s-crime-shows-every-year/
+
+Explore the top crime dramas that premiered each year during the 2010s, featuring standout series like Sherlock, Minhunter, Barry, and more.
+---------
+
+# Roger Ebert Gave a Rare Perfect Score to the Meg Ryan Film That Features Her Best Performance
+
+Movie Features, When a Man Loves a Woman, Meg Ryan, Andy Garcia, Roger Ebert
+
+Mon, 27 Apr 2026 01:04:48 GMT
+
+https://collider.com/meg-ryan-when-a-man-love-a-woman-streaming-roger-ebert-review/
+
+Meg Ryan gives what is perhaps her best performance in the poignant drama When a Man Loves a Woman, alongside Andy Garcia and Philip Seymour Hoffman.
+---------
+
+# ‘Rocky’ Meets ’The Departed’ in $129 Million Oscar-Winner Leaving Peacock
+
+Movie News, The Fighter, Mark Wahlberg, Amy Adams, Christian Bale
+
+Mon, 27 Apr 2026 01:00:13 GMT
+
+https://collider.com/mark-wahlberg-rocky-meets-the-departed-boxing-movie-the-fighter-leaving-peacock-may-2026/
+
+Mark Wahlberg's critically acclaimed boxing movie, The Fighter, is leaving Peacock. Find out when.
+---------
+
+# Sci-Fi Fans Have 6 Days To Watch This 92% RT Masterpiece Before It Disappears
+
+Movie News, Ex Machina, Sci-Fi, Streaming, HBO Max
+
+Mon, 27 Apr 2026 00:45:12 GMT
+
+https://collider.com/alex-garland-best-hard-sci-fi-film-ex-machina-leaving-hbo-max-may-2026/
+
+Ex Machina is leaving HBO Max soon, giving viewers a limited chance to revisit Alex Garland’s sci-fi classic.
+---------
+
+# Russell Crowe’s Controversial Banned $359 Million Epic Is Officially Leaving Peacock in 6 Days
+
+Movie News, Russell Crowe, Noah, Emma Watson, Jennifer Connelly
+
+Mon, 27 Apr 2026 00:31:13 GMT
+
+https://collider.com/russell-crowe-banned-epic-noah-leaving-peacock-may-2026/
+
+Russell Crowe's controversial epic, Noah, is leaving its streaming home soon. Find out when.
+---------
+
+# Prime Video’s Dark 4-Part Sci-Fi Series Is Quietly Becoming a Perfect Weekend Binge
+
+TV Features, The Man in the High Castle, Alexa Davalos, Rufus Sewell, Prime Video
+
+Mon, 27 Apr 2026 00:20:14 GMT
+
+https://collider.com/prime-video-man-in-the-high-castle-sci-fi-weekend-binge/
+
+Prime Video's The Man in the High Castle is a thought-provoking series that follows an alternate reality where the Axis powers win World War II.
+---------
+
+# 10 Years Later, 'Jack Ryan' Star's War Thriller Is Locked and Loaded for Paramount+
+
+Movie News, 13 Hours: The Secret Soldiers of Benghazi, Michael Bay, War, John Krasinski
+
+Mon, 27 Apr 2026 00:15:13 GMT
+
+https://collider.com/michael-bay-john-krasinski-war-thriller-13-hours-the-secret-soldiers-of-benghazi-streaming-paramount-plus-may-2026/
+
+Based on the 2012 attacks in Benghazi, Michael Bay's 13 Hours, starring John Krasinski, is coming to a new streamer next month. Find out more here.
+---------
+
+# 10 Netflix Shows That Will Keep You Hooked From Start to Finish
+
+TV, Netflix, Sense8, Mindhunter, The Last Kingdom
+
+Mon, 27 Apr 2026 00:02:12 GMT
+
+https://collider.com/netflix-shows-keep-you-hooked-start-to-finish/
+
+Discover captivating Netflix series that maintain audience interest throughout thanks to their gripping narratives, from Mindhunter to Sense8.
+---------
+
+# ‘Black Mirror’ Meets ‘Gone Girl’ in This Brilliant Cyber-Crime Thriller Coming to Paramount+
+
+Movie News, Searching, Black Mirror, Gone Girl, John Cho
+
+Mon, 27 Apr 2026 00:00:13 GMT
+
+https://collider.com/crime-thriller-john-cho-searching-streaming-paramount-plus-may-2026-black-mirror-gone-girl/
+
+Searching, starring John Cho, arrives on Paramount+ on May 1 as part of the streamer’s new movie slate. Read on for more details.
+---------
+
+# 'Top Gun's Iconic "Need for Speed" Quote Is Just as Meaningful 40 Years Later
+
+Features, Top Gun, Top Gun: Maverick, Top Gun 3
+
+Mon, 27 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/best-action-movie-quote-top-gun-40-years-later/
+
+The spirit and significance of Maverick's all-time great line from the iconic action movie 'Top Gun' has never been more relevant.
+---------
+
+# Perfect X-Men Series Beat the MCU Replacing Patrick Stewart's Professor X
+
+Features, X-Men, MCU, Noah Hawley, Legion, Cultural Reassessment, Patrick Stewart
+
+Mon, 27 Apr 2026 01:00:17 GMT
+
+https://movieweb.com/x-men-series-beat-mcu-patrick-stewart/
+
+The critically acclaimed Marvel series from 'Alien: Earth' and 'Fargo' creator Noah Hawley recast Charles Xavier long before the MCU.
+---------
+
+# The DCU 'Teen Titans' Movie Could Reveal James Gunn's Justice League Lineup
+
+Features, Teen Titans, DCU, James Gunn
+
+Mon, 27 Apr 2026 00:30:17 GMT
+
+https://movieweb.com/james-gunn-justice-league-teen-titans-reveal/
+
+The Teen Titans movie is coming soon, but who will be on the team? A certain roster might confirm the DCU's Justice League members.
+---------
+
 # Crunchyroll's Dark Fantasy Return Confirms Exciting Future for Seinen Fans
 
 Anime, Crunchyroll, Sentenced to Be a Hero
