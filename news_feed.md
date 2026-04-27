@@ -1,3 +1,289 @@
+# Charlie Cox Addresses Potential Return In Clair Obscur Movie Adaptation
+
+Movies, Clair Obscur: Expedition 33
+
+Mon, 27 Apr 2026 22:36:05 GMT
+
+https://screenrant.com/charlie-cox-clair-obscur-movie-gustave-return-response/
+
+Charlie Cox, one of the original voice actors in the popular video game Clair Obscur, addresses whether he would appear in the movie adaptation.
+---------
+
+# HBO Max's Sci-Fi Masterpiece With Near-Perfect Rotten Tomatoes Score Is One Of Its Best
+
+Movies, Masked Recs
+
+Mon, 27 Apr 2026 22:35:10 GMT
+
+https://screenrant.com/hbo-max-the-substance-sci-fi-movie-best/
+
+One of the best Sci-Fi movies in recent memory is available on HBO Max, and this shocking release is among the streamer's most intriguing.
+---------
+
+# 1 Year Later, Netflix's 2-Part Action Thriller Series Is Still One Of Its Best Martial Arts Shows
+
+TV, Weak Hero, Netflix, Masked Recs
+
+Mon, 27 Apr 2026 22:31:18 GMT
+
+https://screenrant.com/weak-hero-netflix-action-thriller-best-martial-arts-show/
+
+A clever spin on the classic martial arts protagonist keeps viewers on the edge of their seats, turning this Netflix drama into a modern masterpiece.
+---------
+
+# The Only DC Villain Movie That Doesn't Use Batman's Rogues' Gallery Came Out 4 Years Ago
+
+Classic Movies, Black Adam, DC
+
+Mon, 27 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/dc-villain-movies-not-about-batman-rogues-gallery/
+
+Batman's rogues' gallery has been central to every DC villain movie, except for one. The only one removed from The Dark Knight came 4 years ago.
+---------
+
+# Jujutsu Kaisen Sequel Will Soon Reveal Megumi's Fate in New Post-Finale Special
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Mon, 27 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/jjk-sequel-modulo-megumi-return-finale-release/
+
+Jujutsu Kaisen fans are buzzing with anticipation as the final volume of the sequel's manga goes live in Japan, hinting at a long-awaited revelation.
+---------
+
+# Jordan Peele's New Horror Movie Is A Netflix Hit In The US After $28M Disappointment
+
+Movies, Masked Recs
+
+Mon, 27 Apr 2026 22:19:36 GMT
+
+https://screenrant.com/jordan-peele-him-movie-netflix-streaming-success-april-2026/
+
+Jordan Peele's new horror movie becomes a Netflix hit in the United States, seven months after disappointing with $28 million at the box office.
+---------
+
+# Emma Stone & Chris Pine's New Rom-Com Officially Sets 2027 Release Date
+
+Movies, Emma Stone
+
+Mon, 27 Apr 2026 22:18:30 GMT
+
+https://screenrant.com/the-catch-emma-stone-chris-pine-movie-release-date/
+
+Emma Stone returns to the romantic comedy genre after officially closing a deal for a new film that is set to be released in theaters in 2027.
+---------
+
+# Marvel's New 8-Part Spider-Man Series Leads May 2026's 10 Most Anticipated New TV Shows
+
+TV
+
+Mon, 27 Apr 2026 22:17:29 GMT
+
+https://screenrant.com/most-anticipated-new-tv-shows-may-2026/
+
+Based on data from predictive media analytics company Diesel Labs, ScreenRant reveals the top 10 most-hyped new TV releases of May 2026.
+---------
+
+# Naruto's Next Anime Is The End Of An Era For The Franchise
+
+Streaming TV, Boruto: Two Blue Vortex, Naruto
+
+Mon, 27 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-end-of-an-era/
+
+Naruto, as we know it, is coming to a close. The upcoming anime will usher in a new era, shifting the tone, characters, and world that we are used to.
+---------
+
+# PlayStation Plus Drops 4 New Bonus Free Downloads For April 2026
+
+Gaming, PlayStation Plus
+
+Mon, 27 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/playstation-plus-4-free-bonus-downloads-april-2026/
+
+PlayStation Plus subscribers are getting four bonus freebies in April before the month ends, so be sure to check these out if you're a member.
+---------
+
+# James Gunn Confirms DC's Paradise Lost, Booster Gold Status
+
+TV, DCU, Booster Gold, Paradise Lost (DC)
+
+Mon, 27 Apr 2026 22:38:56 GMT
+
+https://www.cbr.com/james-gunn-dcu-tv-paradise-lost-booster-gold-update/
+
+James Gunn provided updates for the Wonder Woman-adjacent series Paradise Lost and Booster Gold.
+---------
+
+# 10 Smartest Fighters in All of Anime
+
+Anime, shonen anime, Dr. Stone, Naruto, Avatar: The Last Airbender, Jujutsu Kaisen
+
+Mon, 27 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/anime-smartest-fighters/
+
+Combat is all about strategy, and these anime characters use brains over brawn to get the job done.
+---------
+
+# Marvel And DC Reveal Superman's Most Shocking Redesign
+
+Comics, Superman, Spider-Man, Venom
+
+Mon, 27 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/marvel-dc-spider-man-superman-venomized/
+
+The latest Marve/DC Comics crossover anthology just put Superman through his wildest transformation yet, and it might also be his scariest.
+---------
+
+# How Goodfellas Opening Line Defines Mob Movie
+
+Movies, Goodfellas, Martin Scorsese
+
+Mon, 27 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/goodfellas-most-important-mob-movie-quote-ever/
+
+Goodfellas' opening line completely outclasses other mob movie quotes because it serves as the absolute blueprint for the next two hours.
+---------
+
+# Directive 8020 Preview Reveals the Best Cosmic Horror Story of 2026
+
+Games, horror games, Science Fiction
+
+Mon, 27 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/directive-8020-preview-2026/
+
+Directive 8020 is shaping up as a cosmic horror story that'll be shaped by the choices you make.
+---------
+
+# Apple TV's 9-Part Crime Drama Is So Good, You'll Finish It in One Weekend
+
+TV Features, Smoke, Apple TV, Taron Egerton, Jurnee Smollett
+
+Mon, 27 Apr 2026 22:42:12 GMT
+
+https://collider.com/smoke-apple-tv-crime-drama-weekend-binge/
+
+Apple TV's 9-part crime drama Smoke is perfect for a weekend binge-watch, with stunning cinematography and a shocking twist.
+---------
+
+# 3 Near-Perfect Movies to Watch on Prime Video This Week
+
+Movie, Prime Video, Molly's Game, Ondine, FernGully: The Last Rainforest
+
+Mon, 27 Apr 2026 22:34:12 GMT
+
+https://collider.com/best-movies-prime-video-april-27/
+
+FernGully: The Last Rainforest, Ondine, and Molly's Game make up our list of the best movies to watch on Prime Video the week of April 27, 2026.
+---------
+
+# Rebecca Ferguson's Gritty Sci-Fi Thriller Makes a Surprising Streaming Comeback
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Mon, 27 Apr 2026 22:30:13 GMT
+
+https://collider.com/silo-apple-tv-sci-fi-april-2026-streamimg-resurgence-season-3-premiere-date/
+
+Rebecca Ferguson's popular sci-fi series makes a comeback on Apple TV's top 10 chart with the announcement of its third season premiere date.
+---------
+
+# 10 Depressing Movies of the Last 10 Years That Are Impossible To Shake
+
+Movie, The Voice of Hind Rajab, An Elephant Sitting Still, The Zone of Interest, Hereditary
+
+Mon, 27 Apr 2026 22:15:12 GMT
+
+https://collider.com/most-depressing-movies-last-10-years/
+
+Gems like If Beale Street Could Talk and The Zone of Interest are true masterpieces of tragedy, depressing modern classics that you won't soon forget.
+---------
+
+# ‘Battlestar Galactica’ Meets ‘Game of Thrones’ in the Sci-Fi Masterpiece Taking Over Streaming
+
+TV News, Prime Video, Sci-Fi, The Expanse, Drama
+
+Mon, 27 Apr 2026 22:00:12 GMT
+
+https://collider.com/prime-video-6-part-sci-fi-masterpiece-the-expanse-digital-success-april-2026/
+
+An acclaimed sci-fi epic makes a surprise comeback years later, turning into a streaming hit as fans rediscover its layered storytelling.
+---------
+
+# 10 Fantasy Cult Classic Movies That Are Still Perfect From Start to Finish
+
+Movie, Dungeons & Dragons: Honor Among Thieves, Legend, Excalibur, Fantasy
+
+Mon, 27 Apr 2026 21:53:13 GMT
+
+https://collider.com/fantasy-cult-classic-movies-perfect/
+
+From Legend to The Dark Crystal, these fantasy movie gems have become proper cult classics over time, perfectly encapsulating what the genre is about.
+---------
+
+# 'Verity' Trailer Showcase Anne Hathaway's Dark Side in New Thriller from Author Colleen Hoover
+
+Movie News, Verity, Anne Hathaway, Dakota Johnson, Josh Hartnett
+
+Mon, 27 Apr 2026 22:39:15 GMT
+
+https://movieweb.com/verity-trailer-anne-hathaway/
+
+Co-starring Darkota Johnson and Josh Harnett, 'Verity' will open in theaters on Oct. 2, just in time for Halloween.
+---------
+
+# Legendary Comic Writer and The Punisher Co-Creator Gerry Conway Dies at 73
+
+Movie News, The Punisher
+
+Mon, 27 Apr 2026 22:18:11 GMT
+
+https://movieweb.com/gerry-conway-dead-age-73/
+
+Gerry Conway co-created iconic characters for Marvel and DC Comics, and his stories have inspired adaptations, including 'Spider-Man: Brand New Day.'
+---------
+
+# Official 'Harry Potter' Film Podcast Coming to HBO Next Month
+
+TV News, Harry Potter
+
+Mon, 27 Apr 2026 22:03:10 GMT
+
+https://movieweb.com/harry-potter-official-podcast-hbo/
+
+'Harry Potter: The Official Film Podcast' Season 1 is now set to make its debut in the coming weeks.
+---------
+
+# Replacing Alan Tudyk as the DCU's Clayface Means He's Free To Play Dr. Phosphorus in Live-Action
+
+Features, Clayface, Alan Tudyk
+
+Mon, 27 Apr 2026 22:00:17 GMT
+
+https://movieweb.com/clayface-dcu-live-action-debut-recasting/
+
+Alan Tudyk originally played Clayface in James Gunn's DCU, but the character being recast is secretly great news. Read on for more.
+---------
+
+# 'Possession' Reboot Confirms Margaret Qualley and Callum Turner Casting
+
+Movie News, Possession, Margaret Qualley
+
+Mon, 27 Apr 2026 21:49:46 GMT
+
+https://movieweb.com/possession-reboot-margaret-qualley-callum-turner/
+
+The pair have been rumored to be involved in the new adaptation from Parker Finn for months.
+---------
+
 # The Devil Wears Prada 3 Story Ideas & Timeline Debated By Stars
 
 Movies, The Devil Wears Prada 2
