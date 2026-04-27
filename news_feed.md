@@ -1,3 +1,168 @@
+# Apple TV’s New Fantasy Adaptation Will Feature TV’s Best Magical World
+
+Streaming TV, The Stormlight Archive
+
+Mon, 27 Apr 2026 23:30:19 GMT
+
+https://screenrant.com/apple-tv-cosmere-the-stormlight-archive-best-tv-magical-world/
+
+Apple TV's upcoming series has the power to revolutionize the genre, potentially setting up TV's most expansive on-screen fantasy universe.
+---------
+
+# Jules' R-Rated Euphoria Season 3 Scene Is More Controversial Than You Think
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Mon, 27 Apr 2026 23:15:34 GMT
+
+https://screenrant.com/euphoria-season-3-jules-cling-wrap-scene-dangerous/
+
+In an already controversial Euphoria season 3, Jules has one of the most graphic, extreme scenes yet. Here's what you really need to know.
+---------
+
+# KPop Demon Hunters: Netflix's Animated Musical Masterpiece That Reinvented The Genre
+
+Movies, KPop Demon Hunters
+
+Mon, 27 Apr 2026 23:01:19 GMT
+
+https://screenrant.com/kpop-demon-hunters-netflix-movie-reinvented-animated-musicals/
+
+Netflix is home to a fantasy masterpiece that ended up reinventing an entire genre, while becoming one of the streamer's biggest hits ever.
+---------
+
+# 5 Best New Prime Video Shows Worth Watching This Week: April 27–May 1, 2026
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 27 Apr 2026 22:44:18 GMT
+
+https://screenrant.com/best-new-prime-video-shows-to-watch-this-week/
+
+Discover the top trending and brand new Prime Video shows to watch this week, including American Gladiators, Kevin, From, Invincible, and The Boys.
+---------
+
+# Justified Season 2 Is Still the Defining Moment of Timothy Olyphant's Career
+
+TV, Justified
+
+Mon, 27 Apr 2026 23:30:12 GMT
+
+https://www.cbr.com/justified-bloody-harlan-best-timothy-olyphant-performance/
+
+A single episode of Justified redefined a career and set a new standard for television drama.
+---------
+
+# One Piece Is Officially Becoming Harder to Read Early
+
+Anime, One Piece
+
+Mon, 27 Apr 2026 23:11:12 GMT
+
+https://www.cbr.com/one-piece-early-release-shueisha-respond/
+
+A new wave of copyright strikes by the official owner of One Piece and more does not bode well for 'early releases' of this and other acclaimed manga.
+---------
+
+# Tomb Raider (2018) Heading to HBO Max After Adaptation Undergoes Major Setback
+
+Movies, Action, Tomb Raider: The Legend of Lara Croft, Tomb Raider
+
+Mon, 27 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/popular-275m-video-game-reboot-heading-to-hbo-max-after-adaptation-undergoes-major-setback/
+
+Bad news for the iconic gaming adaptation is now getting a bit of good news — with a twist.
+---------
+
+# 10 Gritty Sci-Fi Movies That Will Keep You Hooked From Start to Finish
+
+Movies, Sci-Fi
+
+Mon, 27 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/most-engaging-sci-fi-movies-start-to-finish/
+
+While some science-fiction movies have explored the distant reaches of space or advanced technologies, others take grounded and raw approach.
+---------
+
+# Kevin Bacon’s Hulu Western Southern Bastards Will Show Timothy Olyphant's Justified How It's Done
+
+TV, Western, Justified, southern bastards
+
+Mon, 27 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/kevin-bacon-hulu-western-southern-bastards-timothy-olyphant-justified-comparisons/
+
+With news that Hulu has completed casting for its Southern crime series, fans might finally have the project that will dethrone Justified.
+---------
+
+# Prime Video’s Fantasy Finale Promises a Dark Twist for David Tennant Ahead of May 13 Release
+
+TV News, David Tennant, Good Omens, Fantasy, Prime Video
+
+Mon, 27 Apr 2026 23:30:12 GMT
+
+https://collider.com/good-omens-finale-movie-david-tennant-warning-to-fans/
+
+David Tennant issues a warning to Good Omens fans ahead of the series' finale movie, airing next month on Prime Video.
+---------
+
+# Netflix's Unhinged 3-Part Comedy Is Even Better the Second Time Around
+
+TV Features, I Think You Should Leave with Tim Robinson, Tim Robinson, Sam Richardson, Netflix
+
+Mon, 27 Apr 2026 23:24:48 GMT
+
+https://collider.com/netflix-tim-robinson-i-think-you-should-leave-comedy-series-rewatch/
+
+Tim Robinson's unique sketch comedy series, I Think You Should Leave, pushes boundaries and delivers hilarious, unconventional humor.
+---------
+
+# 10 Fantasy Shows With the Greatest Villains, Ranked
+
+TV, Fantasy, Game Of Thrones, Avatar: The Last Airbender, Supernatural
+
+Mon, 27 Apr 2026 23:14:12 GMT
+
+https://collider.com/fantasy-tv-shows-best-villains-ranked/
+
+From the American animated gem Avatar: The Last Airbender to critically acclaimed Game of Thrones, these fantasy shows feature the best villains.
+---------
+
+# 'Apex's Charlize Theron Lost the Lead Role in an NC-17 Movie That Could've Ended Her Career
+
+Movie Features, Charlize Theron, Showgirls, Paul Verhoeven, Elizabeth Berkley
+
+Mon, 27 Apr 2026 23:08:13 GMT
+
+https://collider.com/charlize-theron-showgirls-audition-paul-verhoeven/
+
+Before she was a star, Charlize Theron auditioned for Showgirls, a critically panned film that likely would've ended her career before it started.
+---------
+
+# Joel McHale Reveals Why ‘The 1% Club’ Is Way Harder Than It Looks
+
+TV, The 1% Club, Joel McHale, Fox, Game Show
+
+Mon, 27 Apr 2026 23:07:12 GMT
+
+https://collider.com/joel-mchale-1-percent-club-brutal-trick-contestants/
+
+Fox game show host Joel McHale discusses the logic puzzles and time limits that make The 1% Club challenging for contestants, and how even he struggles with the questions.
+---------
+
+# ABC’s Best Crime Series Gets “Amazing” Spin-Off Update
+
+TV News, The Rookie, Nathan Fillion, Crime, ABC
+
+Mon, 27 Apr 2026 23:01:13 GMT
+
+https://collider.com/the-rookie-spin-off-update-pilot-filmed-network-reaction-abc/
+
+The Rookie: North spin-off star, Jay Ellis, and creator Alexei Hawley, are both confident of the proposed spin-off's success.
+---------
+
 # Charlie Cox Addresses Potential Return In Clair Obscur Movie Adaptation
 
 Movies, Clair Obscur: Expedition 33
