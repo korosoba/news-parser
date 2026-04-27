@@ -1,3 +1,278 @@
+# Steven Spielberg's Directorial Debut: The Untold Story Behind Duel
+
+Movies, Duel, Steven Spielberg, Recommendation
+
+Mon, 27 Apr 2026 16:15:18 GMT
+
+https://screenrant.com/duel-movie-steven-spielberg-monster-movie/
+
+As one of the most versatile directors, Steven Spielberg has worked in every genre, including monster classics, but his debut film will shock you.
+---------
+
+# Marvel’s Spider-Man Fans Hyped Following Venom Game Leak
+
+Gaming, Venom, Marvel, Spider-Man, Triple-A Games
+
+Mon, 27 Apr 2026 16:14:53 GMT
+
+https://screenrant.com/marvels-spider-man-venom-spinoff-leaks/
+
+Insomniac's leaked Venom game just got its best glimmer of hope yet, with fans more excited than ever about it following Marvel's Wolverine.
+---------
+
+# Sydney Sweeney’s Overlooked R-Rated Drama Quickly Climbing Streaming Charts After Box Office Bombing
+
+Movies, Sydney Sweeney, Masked Recs
+
+Mon, 27 Apr 2026 16:01:21 GMT
+
+https://screenrant.com/sydney-sweeney-christy-movie-streaming-success-april-2026/
+
+Sydney Sweeney's R-rated drama may have bombed at the box office, but it's now mounting a comeback bid, as it fights its way up the streaming charts.
+---------
+
+# Netflix's 2-Part Sci-Fi Series Was Secretly A Battlestar Galactica Reunion
+
+Streaming TV, Masked Recs
+
+Mon, 27 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/another-life-netflix-katee-sackhoff-battlestar-galactica-reunion/
+
+10 years after Battlestar Galactica ended, sci-fi icon Katee Sackhoff starred in another science fiction drama on Netflix – and she wasn't alone.
+---------
+
+# 12 Underrated RPGs That Deserve More Attention
+
+Gaming, RPG, PC
+
+Mon, 27 Apr 2026 16:00:19 GMT
+
+https://screenrant.com/best-overlooked-rpgs-underrated-recommendations/
+
+These 12 role-playing games deserve more attention, and fans of new hits like Clair Obscur might want take the dive into these underrated gems.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Week (April 27-May 3)
+
+Movies, HBO Max, Recommendation
+
+Mon, 27 Apr 2026 15:50:19 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-week-april-27/
+
+Though HBO Max is best known for their riveting TV shows, these three movies prove its a hotspot for excellent films as well.
+---------
+
+# Disney+'s 19-Part Sci-Fi Series Is A Better Tron Sequel Than Tron: Ares
+
+TV, Tron, TRON: Ares, TRON: Uprising
+
+Mon, 27 Apr 2026 15:31:19 GMT
+
+https://screenrant.com/disneys-19-part-sci-fi-series-is-a-better-tron-sequel-than-tron-ares/
+
+One bold move by Disney+ turned the Tron franchise on its head, delivering a spinoff sequel series that outshines its lackluster follow-up Ares.
+---------
+
+# New Stranger Things Show Already Dethroned On Netflix
+
+TV, Stranger Things: Tales from '85, Stranger Things, Running Point
+
+Mon, 27 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-netflix-dethroned-running-point/
+
+After Netflix released a new Stranger Things series that became a worldwide hit, the show has already been dethroned on the streamer's charts.
+---------
+
+# Disney’s Next Ice Age Movie Is Closer To Releasing Than You Think
+
+Movies, Ice Age
+
+Mon, 27 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/ice-age-movie-boiling-point-release-date/
+
+Ice Age's next movie is only months away from debuting in cinemas, and bringing the beloved animated franchise back to the big screen once more.
+---------
+
+# Disney’s Live-Action Formula Is About To Face Its Biggest Test Yet
+
+Movies, Disney, Disney+, Moana
+
+Mon, 27 Apr 2026 15:26:09 GMT
+
+https://screenrant.com/moana-live-action-remake-disney-formula-risk/
+
+Disney's live-action Moana (2026) faces a massive risk: remaking a modern masterpiece while the original is still fresh in the audience's mind.
+---------
+
+# Coolest Anime Transformations That Make No Narrative Sense
+
+Anime, Dragon Ball, One Piece
+
+Mon, 27 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/cool-anime-transformations-that-make-no-narrative-sense/
+
+These anime power-ups impress visually, but raise a lot of questions in the story.
+---------
+
+# Bob Odenkirk's John Wick Replacement Becomes a Global Hit on HBO Max After Underwhelming Run
+
+Movies, Nobody 2
+
+Mon, 27 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/bob-odenkirk-nobody-2-hbo-max-streaming-success-april-2026/
+
+John Wick fans are loving Odenkirk's new action thriller, despite its underwhelming theatrical run last year.
+---------
+
+# Raiders of the Lost Ark is the Best Adventure Movie Ever
+
+Movies, Raiders of the Lost Ark
+
+Mon, 27 Apr 2026 16:00:12 GMT
+
+https://www.cbr.com/indiana-jones-raiders-of-the-lost-ark-greatest-adventure-movie/
+
+Steven Spielberg's original action-adventure blockbuster is still the best of the bunch, and there's never been a better movie like it.
+---------
+
+# 4 Words in Lord of the Rings Quietly Changed Everything About Its Greatest Villain
+
+Movies, The Lord of the Rings
+
+Mon, 27 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-quote-sauron-fears-you-aragorn-changed-trilogy/
+
+A line from the extended edition of Peter Jackson's The Lord of the Rings: The Two Towers recontextualized the trilogy's main antagonist.
+---------
+
+# Pokémon Home Officially Giving Away Shiny Mythical Pokémon
+
+Games, Pokemon
+
+Mon, 27 Apr 2026 15:30:13 GMT
+
+https://www.cbr.com/pokemon-home-shiny-volcanion-giveaway/
+
+Pokémon Home owners can now claim a Shiny version of a Gen 6 Mythical Pokémon, but it comes with a huge catch, requiring a lot of work.
+---------
+
+# 10 Near-Perfect Anime With 100+ Episodes
+
+Anime, One Piece, Jojo's Bizarre Adventure, Naruto
+
+Mon, 27 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/near-perfect-anime-with-100-episodes/
+
+Anime series with hundreds of episodes can feel intimidating, yet some shows need the extra runtime for their stories to truly shine.
+---------
+
+# Best Steam Golden Week Sale Deals 2026
+
+Games, Video Games, Yakuza, Final Fantasy VII Rebirth, Sonic the Hedgehog, RPG
+
+Mon, 27 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/best-steam-golden-week-deals-2026/
+
+Steam Golden Week is happening right now until early May and these are the best deals to get before it's too late.
+---------
+
+# House of the Dragon Season 3 Trailer Reveals HBO Release Date
+
+TV, House of the Dragon, Fantasy, HBO Max
+
+Mon, 27 Apr 2026 14:51:11 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-release-date-trailer/
+
+HBO's Game of Thrones prequel House of the Dragon has finally set its Season 3 return date in a new trailer.
+---------
+
+# 10 Neo-Noir Movies That Are Perfectly Written
+
+Movie, Chinatown, Jack Nicholson, Crime, Turner Classic Movies
+
+Mon, 27 Apr 2026 16:11:13 GMT
+
+https://collider.com/neo-noir-movies-perfectly-written/
+
+L.A. Confidential, Pulp Fiction, and Body Heat are all among the best neo-noir movies that have genuinely perfect screenplays.
+---------
+
+# Fan-Favorite Cozy Series Gets Shocking Sneak Peek Following Major Character Exit [Exclusive]
+
+TV News, Sullivan's Crossing, Chad Michael Murray, Netflix, The CW
+
+Mon, 27 Apr 2026 16:00:13 GMT
+
+https://collider.com/sullivans-crossing-season-4-episode-2-sneak-peek/
+
+Watch a breathtaking sneak peek from Sullivan's Crossing Season 4, Episode 2 before it premieres on the CW.
+---------
+
+# If You're Watching Netflix's Bonkers 'False Prophet' Doc, Binge This Forgotten 2022 Series Next
+
+TV Features, Trust Me: The False Prophet, Keep Sweet: Pray And Obey, True Crime, Netflix
+
+Mon, 27 Apr 2026 15:27:14 GMT
+
+https://collider.com/keep-sweet-pray-and-obey-netflix-docuseries-trust-me-false-prophet/
+
+After you watch Netflix's Trust Me, delve into the story of the twisted cult's disturbing origins in this chilling 2022 docuseries.
+---------
+
+# HBO's Most Brutal Fantasy Series Is Bigger Than Ever With Dark New Season 3 Trailer
+
+TV News, House of the Dragon, HBO, Fantasy, Game Of Thrones
+
+Mon, 27 Apr 2026 14:35:30 GMT
+
+https://collider.com/hbo-polarizing-fantasy-series-house-of-the-dragon-season-3-trailer/
+
+HBO has released a new trailer for its most polarizing fantasy series, House of the Dragon, before it returns for Season 3.
+---------
+
+# Henry Cavill 90-Minute Action Thriller Bomb 'Night Hunter' Lands New Free Streaming Home
+
+Movie News, Henry Cavill, Night Hunter, Action, Thriller, Coming/Leaving Streaming
+
+Mon, 27 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-stream-pluto-tv-may-2026-action/
+
+Also starring Alexandra Daddario and Ben Kinglsey, Cavill's 'Night Hunter' is set to explode on a new streaming home May 1.
+---------
+
+# Stephen King Praised HBO’s Thriller ‘Task’ Due to a Crucial Element
+
+Features, Task, Quote
+
+Mon, 27 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/task-stephen-king-praised-hbo-thriller/
+
+'Task,' the HBO thriller series starring Mark Ruffalo and Tom Pelphrey, received praise from Stephen King for one reason.
+---------
+
+# James Bond Movies In Order: Chronologically and By Order of Release Date
+
+Movie Lists, James Bond
+
+Mon, 27 Apr 2026 15:00:22 GMT
+
+https://movieweb.com/james-bond-movies-in-order/
+
+For over 60 years and 25 movies, James Bond has been the go-to name for spy thrillers. Here are the 007 movies in release order.
+---------
+
 # One Of TV's Best-Ever Mystery Thrillers Is A Show That Demands To Be Binged
 
 TV
