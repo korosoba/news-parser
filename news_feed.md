@@ -1,3 +1,267 @@
+# One Piece's Official Final Villain Face Reveal Was Worth the Wait
+
+Anime, One Piece, One Piece (1997)
+
+Mon, 27 Apr 2026 05:00:20 GMT
+
+https://screenrant.com/one-piece-imu-face-reveal-theory-manga-eiichiro-oda/
+
+Oda's newly revealed sketches may have just revealed the true appearance of One Piece's final villain ahead of his big debut on Elbaph.
+---------
+
+# Review: That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea
+
+Anime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, That Time I Got Reincarnated as a Slime
+
+Mon, 27 Apr 2026 04:01:23 GMT
+
+https://screenrant.com/that-time-i-got-reincarnated-slime-tears-azure-sea-movie-review/
+
+That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea is a must-watch side story for fans of the original anime and light novels.
+---------
+
+# Prime Video's New Post-Apocalyptic Action Thriller Is The Perfect Fallout Palate Cleanser
+
+Anime, Prime Video, Fallout, Fist Of The North Star
+
+Mon, 27 Apr 2026 03:55:19 GMT
+
+https://screenrant.com/prime-video-fallout-postapocalyptic-fist-of-the-north-star/
+
+Fallout recently finished season 2, but there are plenty of other postapocalyptic hits to discover on Prime Video beyond waiting for season 3.
+---------
+
+# 1 Year Later, Solo Leveling's Best Arc Proves The Series Was Snubbed For Anime of the Year 2026
+
+Anime, Solo Leveling
+
+Mon, 27 Apr 2026 03:51:52 GMT
+
+https://screenrant.com/solo-leveling-jeju-island-anime-year-snub/
+
+Despite winning the Anime of the Year award in 2025, Solo Leveling was surprisingly omitted from the 2026 Crunchyroll Anime of the Year lineup
+---------
+
+# HBO’s Harry Potter Can Fix A 27-Year-Old Weasley Plot Hole With 1 Minor Book Change
+
+Streaming TV, Harry Potter
+
+Mon, 27 Apr 2026 03:40:58 GMT
+
+https://screenrant.com/harry-potter-weasley-plot-hbo-book-change/
+
+The Harry Potter movies and books created one hard-to-ignore Weasley plot hole that the upcoming HBO adaptation can fix with one minor book change.
+---------
+
+# Supergirl's Future & Ideal Team-Ups In James Gunn's DC Universe Addressed By Milly Alcock
+
+Exclusive, Supergirl, DC Universe, Comic Con Experience (CCXP)
+
+Mon, 27 Apr 2026 03:38:47 GMT
+
+https://screenrant.com/supergirl-2026-milly-alcock-dc-universe-future-crossovers/
+
+As Milly Alcock discusses Supergirl's potential team-ups, the possibilities for exciting crossover moments in the DC Universe are endless.
+---------
+
+# How One Problematic Netflix Series Produced 2018's Most Heartbreaking Anime Moment
+
+Anime, Violet Evergarden, Netflix
+
+Mon, 27 Apr 2026 03:30:18 GMT
+
+https://screenrant.com/violet-evergarden-problematic-most-heartbreaking-anime-moment-2018/
+
+Netflix is home to some of the most emotionally moving anime around, and one of its most heartbreaking moments comes from a very controversial series.
+---------
+
+# Is The MCU Is Teasing A Major Daredevil: Born Again Romance Twist?
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Mon, 27 Apr 2026 03:29:25 GMT
+
+https://screenrant.com/daredevil-born-again-teasing-karen-romance-twist-punisher-theory/
+
+After the most recent episode of Daredevil: Born Again season 2, I'm starting to wonder if a major twist is coming for Matt Murdock and Karen Page.
+---------
+
+# Returning Stephen King Show In 2026 Makes Up For His 10/10 Thriller’s Cancellation
+
+Streaming TV, The Institute, The Outsider, Stephen King
+
+Mon, 27 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/stephen-king-the-institute-the-outsider-cancellation/
+
+One Stephen King show is all set to return in 2026 with a new season, seemingly making up for the cancellation of his thriller masterpiece on HBO.
+---------
+
+# The Greatest Twist In Anime History Turns 15 In 2026, And It's Aged Like Fine Wine
+
+Anime, Puella Magi Madoka Magica
+
+Mon, 27 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/madoka-magica-greatest-twist-anime-history-aged-well/
+
+15 years after its initial airing, Puella Magi Madoka Magica remains a psychological anime classic, known for its dark twists and enduring relevance.
+---------
+
+# The 10 Most Important One Piece Bloodlines, Ranked
+
+Anime, One Piece, Monkey D. Luffy
+
+Mon, 27 Apr 2026 03:45:13 GMT
+
+https://www.cbr.com/one-piece-most-important-bloodlines-ranked/
+
+Luffy & Gol D. Roger are two of the most important pirates in One Piece's story, and only a few other bloodlines come close to being as significant.
+---------
+
+# Animal Rights Punisher Officially Reveals a New Anti-Hero
+
+Comics, indie comics
+
+Mon, 27 Apr 2026 03:40:39 GMT
+
+https://www.cbr.com/animal-rights-punisher-calico-new-vigilante-pig-bath/
+
+Sigma Comics is set to introduce a new anti-hero into its Calico universe, and this new anti-hero specifically targets crooked cops
+---------
+
+# Sam Elliott's The Ranch Is a Must-Watch Western Series
+
+TV, Western, the ranch
+
+Mon, 27 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/the-ranch-must-watch-for-tombstone-fans/
+
+From the dusty streets of Tombstone to the rolling hills of Colorado, Sam Elliot embodies the enduring spirit of the American West.
+---------
+
+# A Brand-New Cyberpunk Action Game Is Coming Soon (& It Looks Amazing)
+
+Games, Video Games
+
+Mon, 27 Apr 2026 03:25:42 GMT
+
+https://www.cbr.com/45-parabellum-bloodhound-new-cyberpunk-action-game/
+
+A new trailer has been released for .45 Parabellum Bloodhound.
+---------
+
+# It's Officially a New Era for RPGs in 2026
+
+Games, RPG, JRPG, Grand Theft Auto
+
+Mon, 27 Apr 2026 03:15:14 GMT
+
+https://www.cbr.com/gta-official-new-era-rpgs-2026/
+
+RPG players are looking at a new golden era starting with 2026.
+---------
+
+# One Piece Gets New Smartwatch Collection With 4 Character Designs in Worldwide Release
+
+Anime, One Piece, merchandise
+
+Mon, 27 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/one-piece-smartwatch-collection-worldwide-release/
+
+GARRACK returns with new One Piece smartwatches based on the most notable pirate emperors that are certain to become must-wear necessities.
+---------
+
+# 10 Anime Characters Who Could Actually Survive the Steel Ball Run Race
+
+Anime, Jojo's Bizarre Adventure, One Piece, mecha
+
+Mon, 27 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/anime-characters-could-survive-jojo-steel-ball-run-race/
+
+The Steel Ball Run is one of the most dangerous races in all of anime, but these characters are up to the challenge.
+---------
+
+# HBO Max's Half Man Is an Instant Global Streaming Hit
+
+TV, Half Man
+
+Mon, 27 Apr 2026 02:42:17 GMT
+
+https://www.cbr.com/half-man-streaming-success-hbo-max/
+
+HBO Max has a new streaming hit just days after the crime drama show's debut.
+---------
+
+# 6 Open-World RPGs With Unbeatable Worldbuilding
+
+Games, RPG, Video Games, The Witcher 3: Wild Hunt, The Elder Scrolls V: Skyrim, Genshin Impact, Elden Ring
+
+Mon, 27 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/open-world-rpgs-strong-worldbuilding/
+
+Even with a vast open world to explore, nothing keeps gamers invested in an RPG like powerful worldbuilding.
+---------
+
+# The Faculty Gets a Free Streaming Home in May 2026
+
+Movies, The Faculty
+
+Mon, 27 Apr 2026 02:10:48 GMT
+
+https://www.cbr.com/the-faculty-streaming-free-pluto-tv-may-2026/
+
+The 90s cult classic that was an inspiration for the Oscar-winning Sinners will be available to watch for free.
+---------
+
+# FX's Near-Perfect 6-Part Crime Drama Is Officially Worth a Rewatch Before Its 2026 Spin-off
+
+TV Features, Snowfall, Crime, FX, Damson Idris
+
+Mon, 27 Apr 2026 04:00:16 GMT
+
+https://collider.com/snowfall-fx-crime-drama-rewatch-before-2026-spinoff/
+
+With a 2026 spin-off on the horizon, now's the time to revisit one of FX's most critically acclaimed crime drama masterpieces.
+---------
+
+# ‘Band of Brothers’ Fans Need This 4-Part War Drama Now That It’s Finally Streaming
+
+TV Features, China Beach: Pilot, HBO, Roku, Band of Brothers
+
+Mon, 27 Apr 2026 03:32:12 GMT
+
+https://collider.com/band-of-brothers-replacement-china-beach-streaming-roku/
+
+Before Band of Brothers, China Beach set the standard for TV war dramas—and now this gripping classic is streaming for free on The Roku Channel today.
+---------
+
+# 8 Most Important Sci-Fi Shows That Define the Genre
+
+TV, Sci-Fi, Science Fiction, Doctor Who, Star Trek
+
+Mon, 27 Apr 2026 03:22:13 GMT
+
+https://collider.com/most-important-sci-fi-shows-define-genre/
+
+From the long-running classic Doctor Who to the game-changing series Star Trek, these sci-fi shows are among the most important of the genre.
+---------
+
+# One of the Best Folk Horror Movies of the Decade Has Been Hiding Out on Streaming
+
+Movie Features, Starve Acre, Morfydd Clark, Matt Smith, Horror
+
+Mon, 27 Apr 2026 02:51:12 GMT
+
+https://collider.com/starve-acre-streaming-folk-horror-movie-morfydd-clark-matt-smith/
+
+British folk horror Starve Acre's greatest strength is its establishment of dread, which forces the audience on a compelling yet unnerving journey.
+---------
+
 # Crunchyroll's Newest Chinese Isekai Is Secretly The Season's Most Profound Anime
 
 Anime, Crunchyroll
