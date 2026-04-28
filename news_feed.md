@@ -1,3 +1,344 @@
+# Stephen King's Hit 10-Part HBO Crime Thriller Series Returns As Worldwide Streaming Success
+
+TV, Stephen King, Masked Recs
+
+Tue, 28 Apr 2026 20:43:35 GMT
+
+https://screenrant.com/the-outsider-hbo-max-streaming-success-april-2026/
+
+Stephen King's hit 10-part HBO crime thriller series returns as a worldwide streaming sensation, six years after it originally premiered.
+---------
+
+# HBO Max's New Harry Potter Release Next Month Is The Perfect Setup For The Reboot Series
+
+TV, Harry Potter
+
+Tue, 28 Apr 2026 20:30:11 GMT
+
+https://screenrant.com/harry-potter-official-film-podcast-tv-show-hbo-max-setup/
+
+Harry Potter is coming back with a new release next month on HBO Max, and it serves as the perfect project before the reboot TV show arrives.
+---------
+
+# KeiLyn Durrel Jones Details Deeper Bond Between Michael Jackson & His Bodyguard
+
+Movies, Michael, Jaafar Jackson
+
+Tue, 28 Apr 2026 20:19:30 GMT
+
+https://screenrant.com/michael-keilyn-jones-details-bodyguard-relationship-potential-sequel/
+
+Jones, who played Michael's bodyguard, shares the deeper meaning behind his relationship with the late singer and hints at a potential sequel.
+---------
+
+# 10 Action Thriller Series Where The Villain Steals The Show
+
+Streaming TV, Hannibal
+
+Tue, 28 Apr 2026 20:15:19 GMT
+
+https://screenrant.com/action-thriller-tv-series-villain-steal-show/
+
+From quietly violent killers to unhinged drug lords, nothing in Hollywood does a villain quite like television.
+---------
+
+# Cheers' Funniest Quote: Norm's Hilarious 'Milk-Bone Underwear' Line
+
+TV, Cheers
+
+Tue, 28 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/cheers-norm-peterson-greatest-tv-quote/
+
+Cheers is still a yardstick for TV comedy today, and this ingeniously hilarious line from the sitcom's fourth season proves how relatable it remains.
+---------
+
+# 10 Anime With The Most Wasted Potential
+
+Anime
+
+Tue, 28 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/anime-most-wasted-potential/
+
+These titles had the chance to create iconic legacies but failed to capitalize on their massive potential.
+---------
+
+# Naked Gun Franchise Return Addressed By Creator As He Shares Update On Original Script Before Liam Neeson Reboot
+
+Movies, The Naked Gun: From the Files of Police Squad!, The Naked Gun
+
+Tue, 28 Apr 2026 19:58:27 GMT
+
+https://screenrant.com/naked-gun-franchise-return-scrapped-script-update-david-zucker/
+
+Exclusive: Creator/director David Zucker addresses the chances of returning to the Naked Gun franchise and offers an update on his original script.
+---------
+
+# Liam Neeson's $25M Survival Action Movie Sets Official Free Streaming Release After Making 3.2x Its Budget
+
+Movies, Masked Recs
+
+Tue, 28 Apr 2026 19:57:50 GMT
+
+https://screenrant.com/liam-neeson-the-grey-movie-streaming-release-date-free-tubi/
+
+After grossing over three times its production budget, one gritty Liam Neeson survival action movie has now set its signs on a free streaming release.
+---------
+
+# Spider-Man Is Officially Beating The Avengers To The Ultimate Marvel Movie Crossover
+
+Superheroes, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Tue, 28 Apr 2026 19:55:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-marvel-character-crossover/
+
+The Avengers movies have been where many of the MCU's biggest team-ups happen, but Spider-Man is officially beating them to the ultimate crossover.
+---------
+
+# Crunchyroll Just Gave Solo Leveling Fans The Biggest Gift Since Season 2's Ending
+
+Anime, Crunchyroll, Solo Leveling
+
+Tue, 28 Apr 2026 19:51:37 GMT
+
+https://screenrant.com/solo-leveling-crunchyroll-free-gift/
+
+This May, Crunchyroll is giving shonen and Solo Leveling fans the biggest gift they have gotten since the anime's Season 2 ending in 2025.
+---------
+
+# Harold Perrineau Thinks Fans Still Remember Him For His Outlandish Shakespeare Character
+
+CBR Exclusives, From
+
+Tue, 28 Apr 2026 20:31:13 GMT
+
+https://www.cbr.com/harold-perrineau-leonardo-dicaprio-romeo-juliet-reactions/
+
+American English classes were never the same after the 1990s' version of Shakespeare's most prominent play.
+---------
+
+# Buffy Fans Are Still Confused About This Fan-Favorite Episode That Started a Supernatural Trend
+
+TV, Buffy The Vampire Slayer, Charmed, Horror
+
+Tue, 28 Apr 2026 20:31:13 GMT
+
+https://www.cbr.com/buffy-fans-confused-about-fan-favorite-episode-best-supernatural-trend/
+
+Buffy the Vampire Slayer has one beloved episode that, while confusing, also introduced iconic trends that other shows followed.
+---------
+
+# 10 Scariest Horror Movies Released Since 'Sinister'
+
+Movies, Horror, Sinister, Barbarian
+
+Tue, 28 Apr 2026 20:31:13 GMT
+
+https://www.cbr.com/scariest-horror-movie-released-since-sinister/
+
+Scott Derrickson's Sinister raised the bar for terror when it released in 2012, and the last 14 years have delivered plenty of great scares.
+---------
+
+# House of the Dragon Surges on Streaming After Season 3 Trailer
+
+TV, House of the Dragon, Fantasy, HBO Max
+
+Tue, 28 Apr 2026 20:19:46 GMT
+
+https://www.cbr.com/house-of-the-dragon-fantasy-streaming-success-hbo-max-april-2026/
+
+HBO's Game of Thrones prequel, House of the Dragon, is climbing the HBO Max chart after the Season 3 trailer confirmed its return date.
+---------
+
+# Nintendo Quietly Seals The Super Mario Universe's Fate With New Movie Set for April 2028
+
+Movies, The Super Mario Galaxy Movie, Nintendo, The Super Mario Bros. Movie
+
+Tue, 28 Apr 2026 20:18:27 GMT
+
+https://www.cbr.com/nintendo-universal-new-movie-april-2028-release-date/
+
+Nintendo and Illumination have a bright future in store for their Super Mario Bros. universe, although Mario and Luigi might not be at the heart of it
+---------
+
+# Studio Ghibli LEGO Dreams Shut Down as Record 143 Sets Rejected
+
+Anime, Studio Ghibli, My Neighbor Totoro, Spirited Away, LEGO
+
+Tue, 28 Apr 2026 20:17:13 GMT
+
+https://www.cbr.com/studio-ghibli-lego-set-review-update-april-2026/
+
+LEGO's prolific list of rejected submissions from the past year include several sets inspired by Studio Ghibli's My Neighbor Totoro and Spirited Away.
+---------
+
+# 10 Psychological Thriller Anime That Are 10/10
+
+Anime, Death Parade, Thriller, Death Note, Monster, Perfect Blue
+
+Tue, 28 Apr 2026 20:15:12 GMT
+
+https://www.cbr.com/perfect-psychological-thriller-anime/
+
+These narratives utilize abstract concepts like trauma, depression, and social isolation, exploring the raw nature of the psyche.
+---------
+
+# Apple TV's Horror Show Widow's Bay Is Just 1 Day Away From Release
+
+TV, Widow's Bay, Midnight Mass
+
+Tue, 28 Apr 2026 20:13:11 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-release-date-april-2026/
+
+Apple TV is adding a new horror show soon.
+---------
+
+# Mortal Kombat II's Johnny Cage Can Fix The First Movie's Mistake
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Tue, 28 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/mortal-kombat-2-johnny-cage-fix-cole-young-mistake/
+
+By focusing on this fan favorite from the games, Mortal Kombat II has the potential to appeal to the fans better than the last movie.
+---------
+
+# Marvel Officially Confirms The X-Men's Next Major Villain, And It's Not Magneto
+
+Comics, X-Men
+
+Tue, 28 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/x-men-dnx-white-beast-villain-confirmed/
+
+The X-Men's original and most iconic nemesis is officially being replaced by one of the greatest members of the classic lineup.
+---------
+
+# 70 Years Later, This Sci-Fi Masterpiece That Shaped ‘Star Trek’ Officially Needs a Reboot
+
+TV Features, Star Trek, Forbidden Planet, Gene Roddenberry, MGM
+
+Tue, 28 Apr 2026 20:39:15 GMT
+
+https://collider.com/forbidden-planet-star-trek-sci-fi-movie-reboot/
+
+70 years ago, Forbidden Planet ushered in the Space Age of science fiction, and now it's ready for a reboot.
+---------
+
+# ‘The Big Bang Theory's New Sci-Fi Spin-Off Officially Arrives in July
+
+TV News, The Big Bang Theory, Stuart Fails to Save the Universe, Young Sheldon, Georgie & Mandy's First Marriage
+
+Tue, 28 Apr 2026 20:30:17 GMT
+
+https://collider.com/big-bang-theory-spin-off-stuart-fails-save-universe-hbo-max-july-2026-release-window/
+
+The Big Bang Theory spin-off, Stuart Fails to Save the Universe, premieres on HBO Max this July with a wild multiverse story.
+---------
+
+# All 20 Star Wars Shows, Ranked
+
+TV, Star Wars, Star Wars: The Clone Wars, Star Wars: Maul - Shadow Lord, Andor
+
+Tue, 28 Apr 2026 20:05:13 GMT
+
+https://collider.com/every-star-wars-show-ranked/
+
+From the truly mediocre, like The Book of Boba Fett, to the real classics, like The Clone Wars, here is the absolute ranking of every Star Wars show.
+---------
+
+# ‘Toy Story 5’ Officially Breaks a 30-Year Franchise Tradition
+
+Movie News, Toy Story, Toy Story 5, Pixar, Disney
+
+Tue, 28 Apr 2026 20:00:12 GMT
+
+https://collider.com/toy-story-5-pg-rating-franchise-first-summer-release/
+
+Toy Story 5 has reportedly received a PG rating, marking a historic first for Pixar’s beloved animated franchise.
+---------
+
+# 6 Crime Shows With Better Writing Than ‘Breaking Bad’
+
+TV, The Wire, The Sopranos, Gomorrah, Crime
+
+Tue, 28 Apr 2026 19:44:12 GMT
+
+https://collider.com/crime-shows-better-writing-than-breaking-bad/
+
+Several crime shows outshine Breaking Bad, including The Wire, Bosch, and The Sopranos, redefining depth, realism, and storytelling power.
+---------
+
+# This 10-Year-Old Comedy Surges on 3 Streaming Charts, Hinting at Huge Box Office for Its Sequel
+
+Movie Features, The Devil Wears Prada, The Devil Wears Prada 2, Anne Hathaway, Meryl Streep
+
+Tue, 28 Apr 2026 19:23:15 GMT
+
+https://collider.com/devil-wears-prada-2-box-office-streaming-success-april-2026/
+
+The Devil Wears Prada is the ultimate 2000s comfort watch, and its streaming success is hinting at a huge box office for the sequel.
+---------
+
+# Hulu Made Hard Sci-Fi Essential Again With This 8-Part Modern Masterpiece
+
+TV Features, Devs, Alex Garland, Nick Offerman, Sonoya Mizuno
+
+Tue, 28 Apr 2026 19:21:13 GMT
+
+https://collider.com/hulu-devs-hard-sci-fi-series-masterpiece/
+
+Devs is a thought-provoking, intricate sci-fi series that takes elements of a thriller, hard sci-fi, and mystery to the very edge.
+---------
+
+# Netflix Is Officially Doubling Down on More ‘Stranger Things’
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Tue, 28 Apr 2026 19:15:24 GMT
+
+https://collider.com/netflix-stranger-things-spin-off-tales-from-85-season-2-renewed-fall-2026-sci-fi-series/
+
+Netflix's Stranger Things: Tales From '85 has been officially greenlit for Season 2, premiering sooner than expected this Fall.
+---------
+
+# Highly Anticipated 'Far Cry' TV Adaptation Gets the Official Update Fans Have Been Waiting For [Exclusive]
+
+TV News, Far Cry 6, Welcome to Wrexham, Rob McElhenney, Action
+
+Tue, 28 Apr 2026 19:01:44 GMT
+
+https://collider.com/far-cry-series-filming-start-update-fx-hulu-rob-mac-noah-hawley/
+
+Rob Mac confirms when the Far Cry TV series starts filming and calls Noah Hawley’s scripts a love letter to the game.
+---------
+
+# 'Stranger Things: Tales From '85' Officially Renewed for Season 2
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Tue, 28 Apr 2026 20:04:19 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-renewed-season-2/
+
+The first 'Stranger Things' spin-off series has gotten quick word, with Season 2 on the way, and it debuts sooner than you think.
+---------
+
+# First Look at the Rom-Com Version of 'The Purge' Released
+
+Movie News, The Purge, One Night Only, Romance
+
+Tue, 28 Apr 2026 19:47:10 GMT
+
+https://movieweb.com/first-look-rom-com-purge-one-night-only/
+
+Read the premise for 'One Night Only' and try to avoid thinking of 'The Purge.'
+---------
+
 # 15 Best Minecraft Seeds With Blacksmiths
 
 Gaming, Minecraft, Nintendo Switch, PC
