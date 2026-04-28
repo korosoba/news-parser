@@ -1,3 +1,256 @@
+# The Lincoln Lawyer Season 5's Major Betrayal Is The Harry Bosch Crossover The Show Is Missing
+
+Streaming TV, The Lincoln Lawyer, Bosch
+
+Tue, 28 Apr 2026 03:57:22 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-5-maggie-betrayal-resurrection-walk/
+
+Resurrection Walk's shocking betrayal might work without Bosch, but it's hard to imagine the scene without him in The Lincoln Lawyer season 5
+---------
+
+# Demon Slayer: Every Upper-Rank Demon And Their Powers Explained
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba
+
+Tue, 28 Apr 2026 03:30:19 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-every-demon-power-explained/
+
+The Upper-Rank Kizuki are the biggest villains of Demon Slayer: Kimetsu no Yaiba, and here's a breakdown of each of them and their unique abilities.
+---------
+
+# One Piece: The Ultimate Guide to All of Roronoa Zoro's Swords
+
+Anime, One Piece
+
+Tue, 28 Apr 2026 03:01:22 GMT
+
+https://screenrant.com/one-piece-zoro-swords-anime-guide/
+
+Roronoa Zoro has used many notable weapons and swords over the course of One Piece so far and this is everything fans know about each sword so far.
+---------
+
+# Xbox Drops 5 New Free Downloads For All, No Game Pass Required
+
+Gaming, Xbox Game Pass, Xbox Series X/S, PC
+
+Tue, 28 Apr 2026 03:01:21 GMT
+
+https://screenrant.com/xbox-5-free-downloads-april-2026-no-game-pass/
+
+While the majority of new additions to the Xbox platform are often locked behind Xbox Game Pass, everyone can enjoy five free downloads.
+---------
+
+# Ted Season 3's Fate Clarified By Seth MacFarlane After Series-Ending Comments
+
+TV, Ted
+
+Tue, 28 Apr 2026 02:13:41 GMT
+
+https://screenrant.com/ted-season-3-fate-update-peacock-seth-macfarlane/
+
+After previously seeming to indicate that Peacock's Ted had ended with season 2, Seth MacFarlane is clarifying whether season 3 will happen.
+---------
+
+# 10 Most Ruthless Child Soldiers of Anime
+
+Anime, Hunter X Hunter, Spy X Family
+
+Tue, 28 Apr 2026 03:45:12 GMT
+
+https://www.cbr.com/most-ruthless-child-soldiers-in-anime/
+
+Anime are sadly packed with kids who were denied real childhoods and turned into killers at an early age.
+---------
+
+# Crunchyroll Streams Solo Leveling Free on YouTube for 1 Week
+
+Anime, Solo Leveling, Crunchyroll
+
+Tue, 28 Apr 2026 03:30:29 GMT
+
+https://www.cbr.com/crunchyroll-solo-leveling-free-streaming-youtube/
+
+Anime fans will soon be able to watch Solo Leveling without a subscription on YouTube, but for a limited time only.
+---------
+
+# Supernatural Season 11 Should Have Been the Series Finale
+
+TV, Supernatural
+
+Tue, 28 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/supernatural-should-have-ended-after-season-11-finale/
+
+The Supernatural series finale divided fans, but four years before then, it had the perfect ending for Sam and Dean Winchester with "Alpha and Omega."
+---------
+
+# Netflix Adds All 3 Seasons of Canceled NBC Sci-Fi Drama La Brea
+
+TV, La Brea
+
+Tue, 28 Apr 2026 03:30:02 GMT
+
+https://www.cbr.com/la-brea-netflix-streaming-may-2026/
+
+The sci-fi series gets another chance to find a new audience on Netflix after getting axed by NBC.
+---------
+
+# Alex Garland's Civil War is HBO Max's Best War Movie
+
+Movies, Civil War, alex garland, HBO Max
+
+Tue, 28 Apr 2026 03:15:13 GMT
+
+https://www.cbr.com/perfect-dystopian-war-movie-civil-war-best-on-hbo-max/
+
+One of the most gripping and striking war movies in recent memory recently reappeared in HBO Max's streaming charts, two years after its release.
+---------
+
+# 10 Unique Survival Crafting Games Worth Playing
+
+Games, Gaming, V Rising, Valheim, Palworld
+
+Tue, 28 Apr 2026 03:15:13 GMT
+
+https://www.cbr.com/survival-crafting-games-everyone-should-play/
+
+Find 10 Survival Crafting Games that offer immersive worlds, gameplay, and unique mechanics in a crowded genre.
+---------
+
+# 5 Forgotten Adventure Movies That Are Amazing From Start to Finish
+
+Movies, Adventure, The Abyss, The Lost City of Z
+
+Tue, 28 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/5-forgotten-underrated-adventure-movies-amazing-from-start-to-finish-list/
+
+There are countless adventure movies that have remained iconic for years, but these five perfect genre epics have been unfortunately forgotten.
+---------
+
+# 10 Shojo Manga That Are 10/10, No Notes
+
+Anime, Manga, Shojo, Sailor Moon, Kamisama Kiss, Banana Fish, Nana
+
+Tue, 28 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/perfect-shojo-manga-no-notes/
+
+Some shojo manga are so beautifully written that it's hard to criticize them.
+---------
+
+# 10 Greatest Sports Anime of All Time, Ranked
+
+Anime, Haikyu!!, Blue Lock
+
+Tue, 28 Apr 2026 02:15:12 GMT
+
+https://www.cbr.com/best-sports-anime-of-all-time-ranked/
+
+Sports anime represent an underrated genre, but titles like Haikyu!! and Hajime no Ippo are testaments to what's possible in these types of series!
+---------
+
+# 7 Prime Video Miniseries That Are Perfect From Start to Finish
+
+TV, Prime Video, TV Miniseries, Daisy Jones & The Six, Swarm
+
+Tue, 28 Apr 2026 04:18:12 GMT
+
+https://collider.com/prime-video-miniseries-perfect-start-to-finish/
+
+From the musical drama Daisy Jones & The Six to Emily Blunt's Western hit The English, these Prime Video miniseries are perfect from start to finish.
+---------
+
+# New Sci-Fi Video Game Movie Officially Overtakes the Best Lord of the Rings Movie at the Box Office
+
+Movie News, The Super Mario Galaxy Movie, The Lord of the Rings: The Return of the King, Box Office, Chris Pratt
+
+Tue, 28 Apr 2026 03:15:13 GMT
+
+https://collider.com/super-mario-galaxy-movie-box-office-overtakes-lord-of-the-rings-return-of-the-king-386-million/
+
+The Super Mario Galaxy Movie, starring Chris Pratt, continues its box office dominance, surpassing The Lord of the Rings: The Return of the King.
+---------
+
+# 10 Worst Remakes of Beloved Sci-Fi Movies, Ranked
+
+Movie, Star Trek Into Darkness, Godzilla, Planet of the Apes, The Day the Earth Stood Still
+
+Tue, 28 Apr 2026 03:11:12 GMT
+
+https://collider.com/worst-sci-fi-remakes/
+
+Sci-fi classics like The Day the Earth Stood Still, Total Recall, and Planet of the Apes didn't need remakes, and the retreads turned out terrible.
+---------
+
+# The Greatest Sci-Fi Franchise Ever Expands With Surprise Sequel
+
+Movie News, Alien: Isolation - The Series, Ridley Scott, Alien, Alien: Romulus
+
+Tue, 28 Apr 2026 03:05:13 GMT
+
+https://collider.com/greatest-sci-fi-franchise-alien-isolation-sequel-teaser/
+
+12 years after the original, the greatest sci-fi franchise in history is coming back with a sequel to Alien: Isolation, the 2014 survival horror game.
+---------
+
+# 'The Rookie' Does Right by Its Most Compelling Villain in a Rare Perfect Payoff | Review
+
+TV Features, The Rookie, ABC, Nathan Fillion, Bridget Regan
+
+Tue, 28 Apr 2026 03:00:14 GMT
+
+https://collider.com/the-rookie-season-8-episode-17-recap-review-monica-stevens-death/
+
+The Rookie delivers a satisfying end to Monica's storyline, offering a poignant conclusion for her while wrapping up Liam Glasser's custody story.
+---------
+
+# New Spy Thriller With a ’FBI: International' Star Could Be Fox’s Next Big Hit
+
+TV News, Luke Kleintank, FBI: International, Fox, Procedural
+
+Tue, 28 Apr 2026 03:00:14 GMT
+
+https://collider.com/the-night-manager-replacement-the-interrogator-new-series-order-fox/
+
+British actor and filmmaker Stephen Fry's upcoming spy drama The Interrogator for Fox has cast FBI: International's Luke Kleintank in a key role.
+---------
+
+# The Most Brutal Creature Feature of the 21st Century Is Officially Free To Stream
+
+Movie News, Crawl, Kaya Scodelario, Netflix, Pluto TV
+
+Tue, 28 Apr 2026 02:45:12 GMT
+
+https://collider.com/crawl-streaming-free-pluto-tv-may-2026/
+
+Crawl begins streaming free on Pluto in May, giving horror fans a new reason to brave one of the best creature thrillers around.
+---------
+
+# Divisive Mystery Drama That Earned 6x Its Budget Just Became a Streaming Hit Again
+
+Movie News, Where the Crawdads Sing, To Kill A Mockingbird, The Notebook, Tubi
+
+Tue, 28 Apr 2026 02:30:13 GMT
+
+https://collider.com/murder-mystery-where-the-crawdads-sing-free-streaming-success-april-2026/
+
+Despite mixed reviews and a 34% critics' score, Where the Crawdads Sing has found renewed popularity on streaming platforms. Here's all to know.
+---------
+
+# Alan Ritchson’s Superhero Series Is Officially Trending Again
+
+TV News, Titans, Alan Ritchson, Reacher, HBO Max
+
+Tue, 28 Apr 2026 02:15:12 GMT
+
+https://collider.com/alan-ritchson-4-part-reacher-predecessor-titans-streaming-success-worldwide-april-2026/
+
+Titans is charting again on HBO Max worldwide, giving Alan Ritchson’s pre-Reacher DC role fresh streaming life.
+---------
+
 # Disney+ Is Changing Forever, And You Can Already See The Effects
 
 Streaming TV, Disney+, Marvel, Star Wars
