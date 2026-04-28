@@ -1,3 +1,289 @@
+# Who Is Dryden Vos? Shadow Lord's New Villain & Solo Ties Explained
+
+Star Wars, Star Wars: Maul - Shadow Lord, Solo: A Star Wars Story
+
+Tue, 28 Apr 2026 21:50:20 GMT
+
+https://screenrant.com/who-is-dryden-vos-shadow-lords-new-villain-solo-ties-explained/
+
+The most recent episodes of Shadow Lord tease the return of Dryden Vos, an important Star Wars villain with intriguing ties to Maul himself.
+---------
+
+# Guy Ritchie's Young Sherlock: A Fresh Take On Sherlock Holmes
+
+Streaming TV, Young Sherlock
+
+Tue, 28 Apr 2026 21:45:19 GMT
+
+https://screenrant.com/young-sherlock-reinvents-conan-doyle-character-guy-ritchie/
+
+Guy Ritchie's eight-part crime TV show has been a huge hit & with good reason, as it brilliantly reinvents one of the most famous literary characters.
+---------
+
+# John Wick Creator's Gritty New "Anti-Action" Crime Thriller Officially Releases On Digital Next Month
+
+Movies, Normal
+
+Tue, 28 Apr 2026 21:42:00 GMT
+
+https://screenrant.com/normal-2026-digital-vod-release-date/
+
+Years after creating John Wick, Derek Kolstad wrote and produced an anti-action thriller that will soon be released on digital platforms.
+---------
+
+# Star Wars Has The Perfect Chance To Bring Back A Fan-Favorite Character After 19 Years
+
+Movies, Star Wars
+
+Tue, 28 Apr 2026 21:20:19 GMT
+
+https://screenrant.com/star-wars-mara-jade-ahsoka-season-2-return/
+
+Ahsoka season 2 may be the perfect place to bring back this Star Wars Legends character all these years later.
+---------
+
+# Daredevil: Born Again Loses More Than Double Of Season 1’s Viewership
+
+TV, Daredevil: Born Again, Daredevil: Born Again - Season 2, Marvel Cinematic Universe
+
+Tue, 28 Apr 2026 21:15:36 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-viewership-drop/
+
+Daredevil: Born Again season 2 has won over critics and audiences, but the Disney+ viewership tells a different and more concerning story.
+---------
+
+# Maddy Is The Only Euphoria Character Season 3 Hasn't Ruined
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Tue, 28 Apr 2026 21:15:20 GMT
+
+https://screenrant.com/euphoria-season-3-maddy-only-character-not-ruined/
+
+By being so different than previous seasons, Euphoria season 3 has ruined its core group of characters — except for one fan favorite, that is.
+---------
+
+# Hit DC Game’s Newest Content Update Is Already Dividing Gamers
+
+Gaming, Injustice 2, DC, Triple-A Games, Injustice
+
+Tue, 28 Apr 2026 21:07:17 GMT
+
+https://screenrant.com/injustice-2-mobile-supergirl-update-fan-reaction/
+
+One long-running DC game is butter scrapped over too much bread at this point and fans' patience is wearing even thinner in anticipation for a sequel.
+---------
+
+# Prime Video’s 8-Part Sci-Fi Adaptation Feels Like A Blade Runner Prequel
+
+TV, The Peripheral, Prime Video, Blade Runner, Blade Runner 2099, Masked Recs
+
+Tue, 28 Apr 2026 21:06:18 GMT
+
+https://screenrant.com/the-peripheral-prime-video-like-blade-runner-prequel/
+
+Prime Video cancelled this cyberpunk hidden gem too soon, but the show is still perfect for Blade Runner fans before Blade Runner: 2099's arrival.
+---------
+
+# 10 Praiseworthy 90s Thriller Movies No One Ever Talks About
+
+Movies, Thriller
+
+Tue, 28 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/great-90s-thriller-movies-no-one-talks-about/
+
+There were so many praiseworthy thrillers in the 1990s that some were bound to slip through the cracks. These flicks deserve to be talked about.
+---------
+
+# Netflix's New Hit 6-Part Psychological Thriller Series Is The Perfect One-Night Weekend Binge
+
+TV, Masked Recs
+
+Tue, 28 Apr 2026 20:45:26 GMT
+
+https://screenrant.com/unchosen-netflix-thriller-series-must-watch/
+
+Netflix has a new psychological thriller series that makes for an engaging one-night weekend binge, and it has become a global streaming sensation.
+---------
+
+# Daredevil: Born Again Season 2 Viewership Drops 50%
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Tue, 28 Apr 2026 21:46:57 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-ratings-drop-disney-plus-mcu/
+
+According to new data, Daredevil: Born Again Season 2's ratings are about half of the first season, which is bad news for the MCU Disney+ show.
+---------
+
+# Jo Nesbø's Detective Hole Is Perfect for Agatha Christie Fans
+
+TV, Jo Nesbø's Detective Hole, The ABC Murders, Crime
+
+Tue, 28 Apr 2026 21:28:53 GMT
+
+https://www.cbr.com/jo-nesbo-detective-hole-similarities-the-abc-murders-agatha-christie/
+
+Jo Nesbø's Detective Hole is a Nordic noir crime thriller that shares similarities with one of Agatha Christie's best crime novels.
+---------
+
+# Netflix Sets Release Date for Sci-Fi Thriller The Last House
+
+Movies, Netflix
+
+Tue, 28 Apr 2026 21:15:50 GMT
+
+https://www.cbr.com/the-last-house-netflix-release-date/
+
+Netflix's nightmarish sci-fi horror thriller starring Emmy and Oscar nominees is set to start streaming this summer.
+---------
+
+# 10 Greatest Star Trek Games of All Time, Ranked
+
+Games, Star Trek, Video Games
+
+Tue, 28 Apr 2026 21:15:13 GMT
+
+https://www.cbr.com/greatest-star-trek-games-all-time/
+
+Some of the best Star Trek games ever made include The Next Generation – A Final Unity and Klingon Academy.
+---------
+
+# Every Major Character Death In Boruto (So Far)
+
+Anime, Boruto: Naruto Next Generations, Naruto, shonen anime, Manga
+
+Tue, 28 Apr 2026 21:01:14 GMT
+
+https://www.cbr.com/boruto-major-character-deaths-so-far/
+
+Much like its predecessor, Naruto, Boruto is filled to the brim with deadly battles, and more than a few major characters have met a brutal end.
+---------
+
+# 10 Most Universally Beloved Movie Masterpieces of the Last 6 Years, Ranked
+
+Movies, One Battle After Another, Project Hail Mary, Thriller
+
+Tue, 28 Apr 2026 21:01:13 GMT
+
+https://www.cbr.com/beloved-movie-masterpieces-list/
+
+The 2020s have been one of the most hit or miss decades for mainstream moviegoers, but some movies stand out as undeniable masterpieces.
+---------
+
+# Hit Horror Movie Good Boy Becomes a Hulu Sensation
+
+Movies, Hulu, Good Boy, Horror
+
+Tue, 28 Apr 2026 20:21:52 GMT
+
+https://www.cbr.com/good-boy-horror-streaming-hulu/
+
+The immense success of low-budget horror movie continues after debuting on Hulu.
+---------
+
+# 6 Greatest Syfy Sci-Fi Shows of the Last 10 Years, Ranked
+
+TV, SyFy, Sci-Fi, Resident Alien, Blood Drive
+
+Tue, 28 Apr 2026 21:44:12 GMT
+
+https://collider.com/best-syfy-sci-fi-shows-last-10-years-ranked/
+
+From Alan Ritchson's forgotten Blood Drive to the comedy Resident Alien, these science fiction shows are among Syfy's best over the last decade.
+---------
+
+# Sonic the Hedgehog Doesn't Need Jim Carrey Anymore
+
+Movie Features, Sonic the Hedgehog 4, Sonic the Hedgehog, Jim Carrey, Comedy
+
+Tue, 28 Apr 2026 21:42:13 GMT
+
+https://collider.com/sonic-the-hedgehog-4-doesnt-need-jim-carrey-robotnik/
+
+Paramount revealed that Jim Carrey will return as Dr. Robotnik in Sonic the Hedgehog 4, but the franchise needs a new villain.
+---------
+
+# ‘Severance’ Meets ‘Parks and Rec’ in Apple TV’s New 10/10 Mystery Series
+
+TV News, Widow's Bay, Apple TV, Horror, Comedy
+
+Tue, 28 Apr 2026 21:30:13 GMT
+
+https://collider.com/widows-bay-apple-tv-rotten-tomatoes-score-is-it-good/
+
+Critics are raving about Apple TV's new series, giving it a perfect 100% rating on Rotten Tomatoes. Get all the details here.
+---------
+
+# Alice Cooper Had One of the Biggest Radio Hits of the 1970s and Then Disappeared
+
+Music Features, Alice Cooper: Brutally Live, Music, Rock, Alice Cooper: Live from the Astroturf
+
+Tue, 28 Apr 2026 21:30:13 GMT
+
+https://collider.com/alice-cooper-you-and-me-1977-classic-song/
+
+Alice Cooper's 1977 hit marked a creative departure from his shock rock persona, and explore the 12-year period where the rock legend's commercial success slowed.
+---------
+
+# Only 5 Comedy Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Comedy, Hundreds of Beavers, Poor Things, The Holdovers
+
+Tue, 28 Apr 2026 21:23:13 GMT
+
+https://collider.com/comedy-movies-2020s-true-masterpieces/
+
+Only a select few comedies of the 2020s deserve true masterpiece status, with movies like The Holdovers and Poor Things being a step above the rest.
+---------
+
+# Lionsgate Officially Confirms ‘John Wick 5’ Is Moving Forward With New Story Details
+
+Movie News, John Wick, Keanu Reeves, Chad Stahelski, Lionsgate
+
+Tue, 28 Apr 2026 21:00:13 GMT
+
+https://collider.com/john-wick-5-update-keanu-reeves-lionsgate-update/
+
+Chad Stahelski and Keanu Reeves are set to return for John Wick 5, with Lionsgate head Adam Fogelson revealing they have an exciting new idea.
+---------
+
+# ‘Tangled’ Director Laments Lack of “Original Content” Following Live-Action Reboot Announcement [Exclusive]
+
+Exclusives, Tangled, Swapped, Animation, Walt Disney Studios
+
+Tue, 28 Apr 2026 20:49:22 GMT
+
+https://collider.com/tangled-live-action-reboot-reaction-director-nathan-greno-original-content/
+
+Tangled director Nathan Greno reacts to Hollywood’s reboot wave and explains why original stories excite him most.
+---------
+
+# 'Daredevil: Born Again' Season 2 Ratings Down Nearly 50% Compared to Season 1
+
+TV News, Daredevil: Born Again, MCU
+
+Tue, 28 Apr 2026 21:35:35 GMT
+
+https://movieweb.com/daredevil-season-2-viewership-drop/
+
+Despite better reviews than Season 1, 'Daredevil: Born Again' Season 2 is trailing its predecessor in terms of viewer numbers.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Finally Points Out How Maul's Legs Can Be a Weakness
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 28 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/star-wars-darth-maul-legs-weakness/
+
+Maul lost his legs in 1999's 'The Phantom Menace,' and the real impact of that is only just now being explored.
+---------
+
 # Stephen King's Hit 10-Part HBO Crime Thriller Series Returns As Worldwide Streaming Success
 
 TV, Stephen King, Masked Recs
