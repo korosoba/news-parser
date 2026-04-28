@@ -1,3 +1,366 @@
+# Disney+ Is Changing Forever, And You Can Already See The Effects
+
+Streaming TV, Disney+, Marvel, Star Wars
+
+Tue, 28 Apr 2026 02:03:09 GMT
+
+https://screenrant.com/disney-plus-marvel-star-wars-content-strategy-changing/
+
+In one of its riskiest moves, Disney+ is making a bold move away from its COVID-19 era content strategy and embracing a whole new style of TV shows.
+---------
+
+# Cyberpunk 2077 Meets Halo In New Open-World Adventure You Can Try Free Now
+
+Gaming, Steam, PC, Indie
+
+Tue, 28 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/cyberpunk-2077-meets-halo-steam-free-download/
+
+Players who use Steam can now try out a new adventure game that mixes Cyberpunk 2077 and Halo entirely for free before its official release.
+---------
+
+# Dragon Ball Z First Premiered 37 Years Ago Today, And It's Aging Better Than Critics Admit
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Tue, 28 Apr 2026 01:32:42 GMT
+
+https://screenrant.com/dragon-ball-premiere-age-wine/
+
+Dragon Ball Z, premiering 37 years ago, has aged better than critics admit, with its timeless storytelling, iconic characters, and lasting popularity.
+---------
+
+# It's Time For Sullivan's Crossing To Let This Character Go
+
+Network TV, Sullivan's Crossing
+
+Tue, 28 Apr 2026 01:30:19 GMT
+
+https://screenrant.com/sullivans-crossing-let-lola-character-go/
+
+An original Sullivan's Crossing character's story has run its course, and it's time for them to move on with their life to bigger and better things.
+---------
+
+# 10 Best Male K-Drama Leads Of The 21st Century
+
+Classic TV, K-Drama
+
+Tue, 28 Apr 2026 01:30:19 GMT
+
+https://screenrant.com/best-k-drama-male-actors-ranked/
+
+Most K-dramas are only the sum of their main characters, meaning the male lead can make or break the story; luckily, there are many standout talents.
+---------
+
+# Star Wars Just Gave Us A Version of Darth Maul I Never Thought We'd See
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 28 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/maul-crying-in-shadow-lord-episode-7-8-star-wars/
+
+Star Wars' new Shadow Lord series has just shown us a surprising new side to Maul I never thought we'd see (and I'm absolutely loving it).
+---------
+
+# Assassin's Creed Gamers Losing It Over Our Next Remake After Black Flag
+
+Gaming, Assassin's Creed, Triple-A Games, PC
+
+Tue, 28 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/assassins-creed-future-remakes-leak/
+
+The Assassin's Creed series is ripe for excellent remake potential, with the next obvious choice raising plenty of excitement among fans.
+---------
+
+# Sullivan's Crossing Officially Confirms Maggie's True Feelings About Liam
+
+Network TV, Sullivan's Crossing
+
+Tue, 28 Apr 2026 01:00:20 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-episode-2-maggie-liam-true-feelings/
+
+Sullivan's Crossing season 4 episode 2 revealed Maggie's true feelings for her long-lost love, Liam. Will they spell trouble for her and Cal?
+---------
+
+# Star Trek: Discovery Memorabilia Auction - Own Sonequa Martin-Green's Uniforms And Props
+
+TV, Star Trek, Star Trek: Discovery
+
+Tue, 28 Apr 2026 00:58:20 GMT
+
+https://screenrant.com/star-trek-discovery-online-auction-burnham-uniforms/
+
+Check out Sonequa Martin-Green's costumes in Star Trek: Discovery in an exclusive video, plus tons of other amazing Star Trek props up for action.
+---------
+
+# Kin Is Charlie Cox’s Best TV Role
+
+Classic TV, Charlie Cox, Kin
+
+Tue, 28 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/charlie-cox-best-tv-show-not-daredevil/
+
+While Charlie Cox gives a riveting performance as Matt Murdoch in Daredevil, his best role on TV is actually in an overlooked 2021 series.
+---------
+
+# 9 Canadian Anime That Can Be Called Masterpieces, Ranked
+
+Anime, Invincible
+
+Tue, 28 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/canadian-anime-that-can-be-called-masterpieces-ranked/
+
+Shows like Invincible and Totally Spies prove Canada knows how to make amazing anime.
+---------
+
+# Where To Stream 10 of Johnny Depp’s Most Essential Movies
+
+Movies, Pirates of the Caribbean
+
+Tue, 28 Apr 2026 02:00:23 GMT
+
+https://www.cbr.com/where-to-stream-johnny-depp-best-movies/
+
+Johnny Depp is one of the most prominent movie stars of our time - and here is where you can watch his most important work.
+---------
+
+# 10 Most Popular Video Game Characters from the Last Decade, Ranked
+
+Games, Video Games, characters, Mario, Red Dead Redemption 2, Resident Evil, The Last of Us
+
+Tue, 28 Apr 2026 01:45:12 GMT
+
+https://www.cbr.com/most-popular-video-game-characters-last-decade/
+
+The last decade in gaming brought new characters into fans' hearts, while others have been there and barely have to work to keep their spot!
+---------
+
+# Sony Officially Confirms Even More PlayStation 5 Price Hikes in May 2026
+
+Games, PlayStation 5
+
+Tue, 28 Apr 2026 01:34:07 GMT
+
+https://www.cbr.com/sony-playstation-5-southeast-asia-price-increase/
+
+More price increases are announced by Sony for the PS5 starting in May.
+---------
+
+# 10 Classic GameCube Games That Are Unplayable Today
+
+Games, Nintendo, retro games
+
+Tue, 28 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/throwback-gamecube-games-aged-badly-list/
+
+Some of the best GameCube games, like Animal Crossing, can be hard to play today.
+---------
+
+# The 10 Most Toxic Anime Fanbases
+
+Anime, shonen anime, JoJo's Bizarre Adventure, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba, Dragon Ball
+
+Tue, 28 Apr 2026 01:25:12 GMT
+
+https://www.cbr.com/most-toxic-anime-fandoms/
+
+Devoted anime fans have a lot of opinions about their favorite series, but not everyone agrees. This has led to plenty of fandom controversy.
+---------
+
+# 30 Best High School Romance Movies of All Time
+
+Movies, Twilight, To All the Boys I've Loved Before, The Fault in Our Stars, The Perks of Being a Wallflower, All the Bright Places
+
+Tue, 28 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/best-high-school-romance-movies/
+
+Between To All The Boys I've Loved Before and The Fault in Our Stars, viewers have plenty of great high school romance movies to enjoy.
+---------
+
+# 7 SNES Games That Are Perfect From Start to Finish
+
+Games, Nintendo, Mario, The Legend of Zelda
+
+Tue, 28 Apr 2026 00:45:12 GMT
+
+https://www.cbr.com/best-snes-games-flawless-start-to-finish/
+
+The SNES is rightfully known as one of the vest video game consoles ever, being home to some truly flawless titles.
+---------
+
+# 10 Major Sons of Anarchy Mysteries We'll Never Get Answers To
+
+TV, Sons of Anarchy, FX, Crime
+
+Tue, 28 Apr 2026 00:30:12 GMT
+
+https://www.cbr.com/sons-of-anarchy-major-unsolved-mysteries/
+
+Sons of Anarchy's series finale leaves fans with numerous questions, and sadly, it's unlikely most of them will ever truly get answers.
+---------
+
+# In Just 3 Days, Netflix's New 7-Part Jack Ryan-Style Thriller Finally Releases
+
+TV, Man on Fire
+
+Tue, 28 Apr 2026 00:24:01 GMT
+
+https://www.cbr.com/netflix-man-on-fire-tv-series-release-date/
+
+Netflix's new gritty action series based on a bestseller is coming soon, and Jack Ryan fans should definitely be tuned in.
+---------
+
+# Netflix’s New Action Movie Slammed With Review Bombing
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Tue, 28 Apr 2026 02:05:12 GMT
+
+https://collider.com/netflix-action-blockbuster-apex-review-bombed-rotten-tomatoes/
+
+Netflix's latest action blockbuster starring Charlize Theron and Taron Egerton, Apex, has begun being review-bombed by angry fans.
+---------
+
+# ‘Landman’ Star’s 2000s Sci-Fi Hit Is the No. 1 Show on Apple TV
+
+TV News, Heroes, Landman, Ali Larter, NBC
+
+Tue, 28 Apr 2026 02:00:23 GMT
+
+https://collider.com/landman-ali-larter-emmy-winning-sci-fi-drama-heroes-streaming-success-april-2026/
+
+Landman's Ali Larter starred in the Emmy-winning sci-fi drama Heroes, which has made a surprise comeback 20 years later, dominating digital charts.
+---------
+
+# Star Wars Officially Brings Back Its Biggest Failed Movie Story 8 Years Later
+
+TV Features, Star Wars: Maul - Shadow Lord, Solo: A Star Wars Story, Star Wars: The Clone Wars, Disney+
+
+Tue, 28 Apr 2026 01:47:12 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-solo-dryden-vos-cameo/
+
+The latest episode of Star Wars: Maul - Shadow Lord features a deep cut connection to Solo: A Star Wars Story.
+---------
+
+# Christopher Nolan’s Sci-Fi Classic Officially Loses Top Box Office Spot to New Certified Masterpiece
+
+Movie News, Project Hail Mary, Inception, Christopher Nolan, Box Office
+
+Tue, 28 Apr 2026 01:46:12 GMT
+
+https://collider.com/project-hail-mary-box-office-overtakes-christopher-nolan-greatest-sci-fi-movie-inception/
+
+The year's biggest sci-fi blockbuster, Project Hail Mary, has overtaken Christopher Nolan's crowning achievement in the genre at the box office.
+---------
+
+# One of Marvel’s Most Important Trilogies Leaves Streaming in 3 Days
+
+Movie News, Marvel, Blade, Blade II, Action
+
+Tue, 28 Apr 2026 01:31:12 GMT
+
+https://collider.com/best-marvel-trilogy-blade-leaving-streaming-peacock-april-2026/
+
+A beloved Marvel trilogy disappears from streaming with no next home confirmed, leaving a sudden gap fans didn’t expect.
+---------
+
+# Near-Perfect Horror Film is Leaving Audiences Screaming and Stars 'Severance's Adam Scott
+
+Exclusives, Hokum, Adam Scott, Severance, CinemaCon
+
+Tue, 28 Apr 2026 01:15:12 GMT
+
+https://collider.com/adam-scott-hokum-horror-film-audiences-screaming-interview/
+
+Adam Scott discusses his love for horror movies, what makes Hokum so uniquely terrifying, his favorite movies, and filming for Severance Season 3.
+---------
+
+# Prime Video’s Flagship Superhero Series Dethroned in Surprise Shakeup
+
+TV News, Prime Video, The Boys, Invincible, Steven Yeun
+
+Tue, 28 Apr 2026 01:15:12 GMT
+
+https://collider.com/prime-video-invincible-season-4-finale-dethrones-the-boys-streaming-charts-april-2026/
+
+Prime Video’s new 99% rated hit overtakes its biggest series after a finale surge, reshaping streaming rankings overnight.
+---------
+
+# 3 Binge-Worthy Shows to Watch on Prime Video This Week
+
+TV, Prime Video, Young Sherlock, 12 Monkeys, Bait
+
+Tue, 28 Apr 2026 01:11:12 GMT
+
+https://collider.com/best-shows-binge-prime-video-april-27-2026/
+
+Young Sherlock, 12 Monkeys, and Bait make up our list of the best Prime Video shows to binge the week of April 27, 2026.
+---------
+
+# 10 Greatest Horror Movie Climaxes of All Time, Ranked
+
+Movie, Scream, Horror, Halloween, Saw
+
+Tue, 28 Apr 2026 01:11:12 GMT
+
+https://collider.com/best-horror-movie-climaxes/
+
+A great climax can make all of the difference in terms of a horror film, with iconic films like Halloween, Saw, and Scream having the best climaxes.
+---------
+
+# Disney’s 5-Part Adventure Series Is One of the Best on Any Streamer
+
+Movie News, Indiana Jones, Harrison Ford, Steven Spielberg, Disney+
+
+Tue, 28 Apr 2026 01:05:12 GMT
+
+https://collider.com/disney-5-part-adventure-series-indiana-jones-streaming-success-april-2026-how-to-watch/
+
+Disney's Indiana Jones franchise, which consists of five blockbuster movies, is one of the best to watch on any streaming service.
+---------
+
+# 10 Thrilling Mystery Series That Are Perfect From Beginning To End
+
+TV Lists, Thriller
+
+Tue, 28 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/mystery-thriller-series-perfect/
+
+These 10 mystery TV series have strong characters, compelling twists, and can be considered perfect from the first episode until the series finale.
+---------
+
+# 8 Netflix Shows I Knew Were Masterpieces After One Episode
+
+TV Lists, Netflix
+
+Tue, 28 Apr 2026 00:00:17 GMT
+
+https://movieweb.com/netflix-shows-masterpieces-one-episode/
+
+These Netflix TV shows have perfect and memorable first episodes, and they range from a comedy about love to a hit sci-fi/horror show.
+---------
+
+# 'IT: Welcome to Derry' Creator Promises Season 2 Adapts Novel's 1930s Storyline
+
+TV News, It: Welcome to Derry, Stephen King, It
+
+Mon, 27 Apr 2026 23:48:35 GMT
+
+https://movieweb.com/it-welcome-to-derry-season-2-bradley-gang/
+
+We'll get to see the exploits of the Bradley Gang, which has only been hinted at in previous adaptations.
+---------
+
 # Apple TV’s New Fantasy Adaptation Will Feature TV’s Best Magical World
 
 Streaming TV, The Stormlight Archive
