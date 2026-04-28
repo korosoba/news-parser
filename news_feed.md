@@ -1,3 +1,212 @@
+# 10 Most Anticipated New Movies Of May 2026 (According To Real Data)
+
+Movies
+
+Tue, 28 Apr 2026 22:41:47 GMT
+
+https://screenrant.com/most-anticipated-movies-may-2026/
+
+Based on data from predictive media analytics company Diesel Labs, ScreenRant reveals the top 10 most-hyped new movies releasing in May 2026.
+---------
+
+# HBO Max's 6-Part Sci-Fi Series That's 'Dune Meets Game Of Thrones' Is One Of Its Best
+
+TV, Dune, Dune: Prophecy, Game Of Thrones, Masked Recs
+
+Tue, 28 Apr 2026 22:32:34 GMT
+
+https://screenrant.com/dune-prophecy-hbo-max-best-sci-fi-show/
+
+This ambitious HBO Max series blends the intricate world of Dune with the epic storytelling of Game of Thrones, resulting in a thrilling sci-fi saga.
+---------
+
+# Thor's Final Battle With His Strongest Ever Villain Is Officially Here
+
+Comics, Thor, Ultimate Marvel
+
+Tue, 28 Apr 2026 22:30:32 GMT
+
+https://screenrant.com/thor-new-appearance-villain-mangog-ultimate-marvel/
+
+Thor is about to go up against his strongest villain of all time, as Marvel fans witness the definitive battle between the God of Thunder and Mangog.
+---------
+
+# A PS1 Classic Is Officially Returning On PS5 May 15
+
+Gaming, PlayStation (Original)
+
+Tue, 28 Apr 2026 22:00:25 GMT
+
+https://screenrant.com/playstation-5-ps1-classic-rugrats-search-for-reptar-may-2026/
+
+A nostalgic trip down memory lane is about to become a reality for '90s kids as Rugrats games make a comeback on the PlayStation 5.
+---------
+
+# Marvel Officially Debuts Punisher's New Costume for Next Appearance
+
+Comics, The Punisher
+
+Tue, 28 Apr 2026 22:00:25 GMT
+
+https://screenrant.com/marvel-officially-debuts-major-redesign-for-punishers-next-appearance/
+
+Frank Castle's Punisher has a dark new look, as the lethal vigilante undergoes a surprising redesign for his upcoming appearance.
+---------
+
+# Steam Machine Price Leak Has Gamers Concerned Console Is "DOA"
+
+Gaming, Steam, PC, Gaming Hardware
+
+Tue, 28 Apr 2026 21:59:29 GMT
+
+https://screenrant.com/steam-machine-price-leak-gamer-concerns/
+
+Valve hasn't announced the price of the Steam Machine, but some new insider information has some consumers convinced the device's market isn't there.
+---------
+
+# How Netflix's Gritty Remake Of Denzel Washington Action Classic Approaches Its Books Differently Explained By Director
+
+TV, Man on Fire, Man on Fire - Season 1, Denzel Washington, Netflix
+
+Tue, 28 Apr 2026 21:51:34 GMT
+
+https://screenrant.com/netflix-man-on-fire-series-book-adaptations-different-caple-jr/
+
+Exclusive: Director/EP Steven Caple Jr. explains how Netflix's remake of a Denzel Washington action classic is adapting its book series differently.
+---------
+
+# Spider-Man: Brand New Day's New Costumes Revealed
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 28 Apr 2026 22:39:27 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-new-spider-suit/
+
+A new Funko Pop offers the first look at Spider-Man's new MCU Spider-Suit in Spider-Man: Brand New Day.
+---------
+
+# Katie Dippold Talks Widow’s Bay, Stephen King Vibes & Smart Scares
+
+TV, Widow's Bay
+
+Tue, 28 Apr 2026 22:00:35 GMT
+
+https://www.cbr.com/video/katie-dippold-talks-widow-s-bay-stephen-king-vibes-smart-scares/
+
+Widow’s Bay creator Katie Dippold reveals how the horror keeps escalating.Dippold talks about crafting a slow-burn start, using humor as a survival tool, and layering in Stephen King-style nostalgia. She also shares how the show’s unique episode titles tie into the story and why unpredictability is key to a great scare. From Paranormal Activity to Silence of the Lambs, her influences shape every moment. This Katie Dippold Widow’s Bay interview dives into what makes the Apple TV horror series stand out.
+---------
+
+# Battlestar Galactica Surges on PVOD After Finding New Streaming Home
+
+TV, Battlestar Galactica, Sci-Fi
+
+Tue, 28 Apr 2026 22:00:21 GMT
+
+https://www.cbr.com/battlestar-galactica-sci-fi-success-pvod-apple-tv-store-april-2026/
+
+Battlestar Galactica is surging in the Apple TV Store ahead ot its debut on Paramount+ and Pluto TV.
+---------
+
+# Marvel’s Pride 2026 Lineup Spotlights Inclusive Characters and Storylines To Follow
+
+Comics, Marvel Comics
+
+Tue, 28 Apr 2026 22:00:21 GMT
+
+https://www.cbr.com/marvel-pride-2026-lineup-release-dates-confirmed/
+
+Marvel announces this year's plans to spotlight LGBTQIA+ heroes and villains.
+---------
+
+# Adam Sandler's Jack and Jill Had Al Pacino's Craziest Performance
+
+Movies, Jack and Jill
+
+Tue, 28 Apr 2026 22:00:21 GMT
+
+https://www.cbr.com/al-pacino-craziest-role-adam-sandler-jack-and-jill/
+
+Even in a career filled with peculiar performances, this much-memed turn from 2011 remains arguably Al Pacino's weirdest to date.
+---------
+
+# ‘Game of Thrones’ Most Famous Quote Is Actually Complete Nonsense
+
+TV Features, Game Of Thrones, HBO, Aidan Gillen, George R.R. Martin
+
+Tue, 28 Apr 2026 22:46:39 GMT
+
+https://collider.com/game-of-thrones-best-quote-chaos-is-a-ladder-meaning/
+
+Game of Thrones character Petyr Baelish claims chaos is a ladder, but the story says otherwise.
+---------
+
+# NBC's 2-Part Serial Killer Thriller Is Officially a Perfect Weekend Binge
+
+TV News, NBC, Crime, The Hunting Party, Peacock
+
+Tue, 28 Apr 2026 22:30:29 GMT
+
+https://collider.com/nbc-crime-thriller-the-hunting-party-season-2-streaming-success-peacock-april-2026/
+
+NBC’s critically panned crime thriller The Hunting Party defies awful reviews and climbs Peacock Top 10 before its Season 2 finale.
+---------
+
+# 10 Greatest Action Thriller Masterpieces of the Last 100 Years, Ranked
+
+Movie, Action, Thriller, The French Connection
+
+Tue, 28 Apr 2026 22:21:27 GMT
+
+https://collider.com/best-action-thriller-masterpieces-last-100-years-ranked/
+
+From The Fugitive to The Dark Knight, the best action thrillers of all time understand that great action means nothing without stakes and character.
+---------
+
+# Sharon Stone's Cult Classic Western Was a Massive Risk That Changed 3 Careers Forever
+
+Movie Features, The Quick and the Dead, Sharon Stone, Leonardo DiCaprio, Sam Raimi, Russell Crowe
+
+Tue, 28 Apr 2026 22:21:27 GMT
+
+https://collider.com/sharon-stone-western-the-quick-and-the-dead-leonardo-dicaprio-russell-crowe-sam-raimi/
+
+Sharon Stone pushed for Sam Raimi, Russell Crowe, and Leonardo DiCaprio in The Quick and the Dead, changing their Hollywood futures.
+---------
+
+# 2 Years Later, Apple TV's Cult-Classic Spy Thriller Quietly Becomes a Late-Night Favorite
+
+Movie News, Henry Cavill, Argylle, Apple TV, Action
+
+Tue, 28 Apr 2026 22:00:21 GMT
+
+https://collider.com/henry-cavill-spy-thriller-argylle-streaming-success-apple-tv-april-2026/
+
+Henry Cavill's 2024 spy thriller Argylle is making a resurgence on streaming charts, despite its mixed reviews and low box office performance.
+---------
+
+# 10 Most Perfect Superhero Endings of All Time, Ranked
+
+Movie, Ending, Superhero, The Dark Knight, Avengers: Infinity War
+
+Tue, 28 Apr 2026 21:55:16 GMT
+
+https://collider.com/most-perfect-superhero-endings-all-time-ranked/
+
+Superhero movies like Avengers: Infinity War, The Dark Knight, and The Incredibles have some of the best endings in the history of the genre.
+---------
+
+# 'Deadpool 4' Finally Gets Status Update From Ryan Reynolds
+
+Movie News, MCU, Deadpool & Wolverine, Ryan Reynolds
+
+Tue, 28 Apr 2026 22:38:15 GMT
+
+https://movieweb.com/deadpool-mcu-update-ryan-reynolds/
+
+Ryan Reynolds is working on ideas for 'Deadpool 4', but he says he is currently not in any rush to reprise the Merc with the Mouth.
+---------
+
 # Who Is Dryden Vos? Shadow Lord's New Villain & Solo Ties Explained
 
 Star Wars, Star Wars: Maul - Shadow Lord, Solo: A Star Wars Story
