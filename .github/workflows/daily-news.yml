@@ -28,21 +28,22 @@ jobs:
             echo "has_content=false" >> $GITHUB_OUTPUT
           fi
 
-      - name: Rename / copy file for Telegram
-        if: steps.check.outputs.has_content == 'true'
-        run: cp news_feed.md "news-${{ steps.date.outputs.today }}.md"
-
       - name: Send file to bot for processing
         if: steps.check.outputs.has_content == 'true'
         run: |
-          curl -s -X POST "https://api.telegram.org/bot${{ secrets.TELEGRAM_BOT_TOKEN }}/sendDocument" \
-            -F "chat_id=${{ secrets.TELEGRAM_CHAT_ID }}" \
-            -F "document=@news-${{ steps.date.outputs.today }}.md" \
-            -F "caption=news-${{ steps.date.outputs.today }}.md"
-
-      - name: Clean up temporary dated file
-        if: always()
-        run: rm -f news-*.md || true
+          TEXT=$(cat news_feed.md)
+          PAYLOAD=$(python3 -c "
+          import json, sys
+          text = open('news_feed.md', encoding='utf-8').read()
+          print(json.dumps({
+              'text': text,
+              'date': '${{ steps.date.outputs.today }}',
+              'chat_id': '${{ secrets.TELEGRAM_CHAT_ID }}'
+          }))
+          ")
+          curl -s -X POST "https://sr-bot-kqwv.onrender.com/process" \
+            -H "Content-Type: application/json" \
+            -d "$PAYLOAD"
 
       - name: Reset news_feed.md
         if: always()
