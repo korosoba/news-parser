@@ -1,3 +1,267 @@
+# Tom Cruise's Dark Comedy 'Digger' Could Finally Earn Him an Oscar
+
+Movies, Digger, Tom Cruise
+
+Tue, 28 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/tom-cruise-digger-oscar-chances-best-actor/
+
+Tom Cruise could finally win his first Oscar for Best Actor in 2027 after his starring role in Alejandro G. Iñárritu's comedy epic Digger.
+---------
+
+# Xbox Game Pass Drops Surprise Day-One Release On April 30
+
+Gaming, Xbox Game Pass, PC, Indie
+
+Tue, 28 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-day-one-release-april-30/
+
+April 30 is going to be a great day for Xbox Game Pass members, as they’ll soon gain access to an outstanding day-one addition to the catalog.
+---------
+
+# Marvel Officially Reveals Vulture's New Armor, for Spider-Man's Next Appearance
+
+Comics, Spider-Man
+
+Tue, 28 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/spider-man-vulture-redesign-return-new-costume/
+
+An iconic Spider-Man villain has an extreme new redesign, as the Vulture returns for another shot at his web-slinging nemesis.
+---------
+
+# The Devil Wears Prada 2: Revisiting Fashion And Journalism In A Changing Industry
+
+Movies, The Devil Wears Prada 2
+
+Tue, 28 Apr 2026 12:00:19 GMT
+
+https://screenrant.com/devil-wears-prada-2-20-years-after-original-movie/
+
+The creators of The Devil Wears Prada are revisiting the beloved franchise 20 years later to spread a timely message about an industry in crisis.
+---------
+
+# Tragedy Derails Tim & Lucy’s Engagement In The Rookie Season 8 Finale Preview
+
+Network TV, The Rookie
+
+Tue, 28 Apr 2026 11:51:40 GMT
+
+https://screenrant.com/the-rookie-season-8-episode-18-trailer-tim-lucy-engagement-death/
+
+ABC has released the trailer for The Rookie season 8 finale, and it previews a tragedy that threatens to derail Tim and Lucy's engagement.
+---------
+
+# Upcoming 007 Franchise Star Pushes For New James Bond Actor To Lead Amazon’s Reboot
+
+Movies, James Bond
+
+Tue, 28 Apr 2026 11:47:15 GMT
+
+https://screenrant.com/james-bond-reboot-patrick-gibson-candidate-lennie-james/
+
+An upcoming star joining the 007 franchise pushes for one particularly new James Bond actor to lead Amazon's upcoming reboot of the spy movie series.
+---------
+
+# Pokémon Legends: Z-A Free Download Available Right Now
+
+Gaming, Pokemon Legends Z-A
+
+Tue, 28 Apr 2026 11:46:19 GMT
+
+https://screenrant.com/pokemon-legends-za-shiny-volcanion-free-download-april-2026/
+
+Earn a Shiny Volcanion reward by completing Lumiose, Mega Evolution, and Hyperspace Pokédexes in Pokémon HOME.
+---------
+
+# The Last Of Us Officially Returns This Summer With Huge New Release
+
+Gaming, PC, The Last of Us, The Last Of Us - Season 2, The Last of Us: Part 1
+
+Tue, 28 Apr 2026 11:36:08 GMT
+
+https://screenrant.com/the-last-of-us-sequel-ost-summer-june-2026/
+
+The Last of Us is officially returning this June with a highly requested new release, and it will have fans marking their calenders.
+---------
+
+# Legend Of Zelda: The Wind Waker HD Switch 2 Release Splits Gamers
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker
+
+Tue, 28 Apr 2026 11:30:18 GMT
+
+https://screenrant.com/zelda-wind-waker-hd-switch-2-release-hopes/
+
+The Legend Of Zelda: The Wind Waker's Switch 2 release is not proving to be popular with fans, and there's a version they almost universally prefer.
+---------
+
+# Assassin's Creed Gamers Can Claim Free Xbox Store Credit For A Limited Time
+
+Gaming, Assassin's Creed
+
+Tue, 28 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/assassins-creed-free-store-credit-xbox-april-2026/
+
+Pre-order Assassin's Creed IV: Black Flag Resynced on Xbox to receive free store credit vouchers.
+---------
+
+# Fan-Favorite Batman Villain Confirmed to Make A Long-Awaited Comeback
+
+Comics, Batman
+
+Tue, 28 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/scott-snyder-confirms-batman-who-laughs-comeback/
+
+This Batman rogue's eventual return is no laughing matter.
+---------
+
+# 15 Funniest The Far Side Comics About the Workplace
+
+Comics, The Far Side
+
+Tue, 28 Apr 2026 11:01:12 GMT
+
+https://www.cbr.com/funniest-the-far-side-comics-about-the-workplace/
+
+The Far Side has picked apart almost every aspect of life on Earth, and the trials and tribulations of the workplace are no different.
+---------
+
+# Wonder Woman Is More Important Than Batman - Here's 10 Reasons Why
+
+Comics, Wonder Woman, Batman, DC Comics
+
+Tue, 28 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/wonder-woman-more-important-than-batman/
+
+Despite Batman's incredible sales, Wonder Woman far outpaces the Caped Crusader almost everywhere it counts, ranging from legacy to power level.
+---------
+
+# Original Harry Potter Star Officially Admits the HBO Reboot Will Be Better For Fans [Exclusive]
+
+Exclusives, Harry Potter, HBO Max, Bonnie Wright, Fan Expo
+
+Tue, 28 Apr 2026 12:01:13 GMT
+
+https://collider.com/harry-potter-hbo-reboot-series-bonnie-wright-reaction-better-for-fans/
+
+Original Harry Potter star Bonnie Wright shares her honest thoughts on HBO’s upcoming reboot and the new cast stepping into Hogwarts.
+---------
+
+# 8 Thriller Movies That Are Even Better the Second Time Around
+
+Movie, Thriller, Mulholland Drive, The Usual Suspects, Fight Club
+
+Tue, 28 Apr 2026 11:52:13 GMT
+
+https://collider.com/thriller-movies-even-better-second-time/
+
+Fight Club, Mulholland Drive, Oldboy, The Silence of the Lambs, and more make up our list of thriller movies that are even better the second time.
+---------
+
+# Stars of Near-Perfect 7-Part Fantasy Series Officially Break Their Silence on ‘Once Upon a Time’ Reboot Rumors [Exclusive]
+
+Exclusives, Once Upon A Time, Colin O'Donoghue, Fan Expo, ABC
+
+Tue, 28 Apr 2026 11:31:12 GMT
+
+https://collider.com/once-upon-a-time-reboot-15-years-later-colin-odonoghue-sean-maguire/
+
+Once Upon a Time stars Colin O'Donoghue and Sean Maguire addressed the very real possibilities of a return for the ABC fantasy series.
+---------
+
+# 10 Greatest Sci-Fi Thrillers of All Time, Ranked
+
+Movie, Science Fiction, Minority Report, Blade Runner, Children of Men
+
+Tue, 28 Apr 2026 11:31:12 GMT
+
+https://collider.com/best-sci-fi-thrillers-all-time-ranked/
+
+From foundational movies like Blade Runner to modern masterpieces like Children of Men, these are the all-time greatest thrillers with a sci-fi twist.
+---------
+
+# It's Time You Watch the Best 3-Part Star Wars Sci-Fi Before Its Big Theatrical Release
+
+TV Features, The Mandalorian, The Mandalorian and Grogu, Pedro Pascal, Disney+
+
+Tue, 28 Apr 2026 11:19:12 GMT
+
+https://collider.com/star-wars-the-mandalorian-disney-plus-franchise-jump-start/
+
+The Mandalorian helped revitalize Star Wars on television, and it looks like it's about to do the same for film.
+---------
+
+# Star of Cancelled Fan-Favorite DC Series Shares Honest Take on His DCU Future [Exclusive]
+
+TV News, Brenton Thwaites, Titans, James Gunn, Fan Expo
+
+Tue, 28 Apr 2026 11:00:12 GMT
+
+https://collider.com/james-gunn-dcu-teen-titans-brenton-thwaites-return-possibility/
+
+Actor Brenton Thwaites discusses the possibility of reprising his role as Nightwing in the new DC cinematic universe under James Gunn.
+---------
+
+# 10 'Everybody Loves Raymond' Episodes That Have Aged Like Milk
+
+TV, Everybody Loves Raymond, CBS, Sitcom, Comedy
+
+Tue, 28 Apr 2026 10:52:13 GMT
+
+https://collider.com/everybody-loves-raymond-episodes-aged-like-milk/
+
+Time hasn't been kind to the once beloved '90s sitcom Everybody Loves Raymond, featuring certain episodes of the CBS show that have aged poorly.
+---------
+
+# 5 Forgotten Action Movies That Are Incredible
+
+Movie, Action, The Raid 2, Dredd, The Rundown
+
+Tue, 28 Apr 2026 10:42:12 GMT
+
+https://collider.com/forgotten-action-movies-perfect/
+
+From Dredd to The Raid 2, these overlooked action films still deliver raw intensity, sharp storytelling, and unforgettable thrills.
+---------
+
+# ‘The Boys’ Spin-Off Star Breaks Silence on Shock Series Cancellation
+
+TV News, Gen V, Prime Video, The Boys, Superhero
+
+Tue, 28 Apr 2026 10:31:12 GMT
+
+https://collider.com/gen-v-cancellation-jaz-sinclair-breaks-silence-reaction/
+
+Gen V stars express gratitude for the opportunity to be part of the Prime Video spin-off, despite its controversial cancellation after two seasons.
+---------
+
+# 'Under the Dome' is a Divisive and Underrated Stephen King TV Adaptation
+
+Features, Under the Dome, Stephen King, Cultural Reassessment
+
+Tue, 28 Apr 2026 12:01:17 GMT
+
+https://movieweb.com/under-the-dome-underrated-stephen-king-adaptation/
+
+'Under the Dome,' based on the Stephen King novel and executive  produced by Steven Spielberg, stars Rachelle Lefevre and Mike Voegl.
+---------
+
+# Taylor Sheridan's 'Lioness' Has a Great TV Cast That No One Talks About
+
+Features, Lioness
+
+Tue, 28 Apr 2026 11:01:16 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-best-tv-cast/
+
+'Lioness,' which stars Zoe Saldaña, Nicole Kidman, and Morgan Freeman, is a Taylor Sheridan TV series with an incredible cast.
+---------
+
 # Final Fantasy 7 Rebirth Free Limited-Time Download Available Now
 
 Gaming, Final Fantasy 7 Rebirth
