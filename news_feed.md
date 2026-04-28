@@ -1,3 +1,333 @@
+# 15 Best Minecraft Seeds With Blacksmiths
+
+Gaming, Minecraft, Nintendo Switch, PC
+
+Tue, 28 Apr 2026 19:00:22 GMT
+
+https://screenrant.com/minecraft-seeds-best-blacksmiths-village/
+
+Blacksmiths are some of the most useful villagers to trade with in Minecraft, offering essential gear such as tools, weapons, and armor for survival.
+---------
+
+# Star Wars’ New Show Is ‘Andor Meets Rebels’
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Andor, Star Wars Rebels
+
+Tue, 28 Apr 2026 19:00:21 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-andor-meets-rebels/
+
+Discover how Star Wars' new show, Maul - Shadow Lord, combines Andor's mature storytelling with Rebels' in-depth exploration of the Force, offering a philosophical deep dive into the galaxy's dark and light sides.
+---------
+
+# The Devil Wears Prada 2 First Reactions Are In
+
+Movies, The Devil Wears Prada 2, The Devil Wears Prada
+
+Tue, 28 Apr 2026 18:59:28 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-first-reactions/
+
+The Devil Wears Prada 2's first reactions are in – see what critics are saying about the long-awaited sequel starring Meryl Streep and Anne Hathaway.
+---------
+
+# Disney’s Original Tangled 2 Attempts Recalled By Director Ahead Of Live-Action Reboot
+
+Movies, Tangled
+
+Tue, 28 Apr 2026 18:35:11 GMT
+
+https://screenrant.com/tangled-2-disney-nathan-greno-director-story-abandoned/
+
+Disney is currently developing a live-action remake of Tangled, but original director Nathan Greno reveals his attempt at making an animated sequel.
+---------
+
+# Prime Video's 2-Part The Boys Predecessor Is Quietly One Of Its Best Superhero Shows
+
+Classic TV, Masked Recs
+
+Tue, 28 Apr 2026 18:30:20 GMT
+
+https://screenrant.com/the-tick-amazon-prime-video-boys-predecessor-superhero-show/
+
+Before The Boys shook up the superhero genre, Amazon had already tested the waters with a show that's now considered one of its most underrated gems.
+---------
+
+# Peter Parker, MJ & Ned Get Brand New Looks In Unreleased Spider-Man Art
+
+Movies, Spider-Man, Your Friendly Neighborhood Spider-Man
+
+Tue, 28 Apr 2026 18:15:47 GMT
+
+https://screenrant.com/spiderman-peter-parker-mj-ned-concept-art/
+
+Unreleased concept art for Your Friendly Neighborhood Spider-Man has made its way online, revealing brand new looks for Peter, MJ, and Ned.
+---------
+
+# Stranger Things Spinoff Fails To Match Main Show's Success On Netflix
+
+Streaming TV, Stranger Things, Stranger Things: Tales from '85
+
+Tue, 28 Apr 2026 18:15:19 GMT
+
+https://screenrant.com/stranger-things-netflix-streaming-end-era/
+
+Stranger Things has officially expanded with its first spinoff show, but, unfortunately, through it, the end of an era has come for the main show.
+---------
+
+# Wagner Moura on Representation and Star Wars: Maul - Shadow Lord
+
+TV, Wagner Moura, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 28 Apr 2026 18:11:55 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-wagner-moura-continues-latino-representation/
+
+Brazilian actor Wagner Moura discusses the importance of Latino representation in Star Wars: Maul - Shadow Lord and his role as Captain Lawson.
+---------
+
+# The Real "Next Miranda" In The Devil Wears Prada 2 Revealed
+
+Movies, The Devil Wears Prada 2, Simone Ashley
+
+Tue, 28 Apr 2026 18:08:10 GMT
+
+https://screenrant.com/devil-wears-prada-2-amari-next-miranda-simone-ashley/
+
+EXCLUSIVE: Meryl Streep returns as Miranda Priestly in The Devil Wears Prada 2, but she might have a successor lined up at Runway in the new film.
+---------
+
+# Official New Naruto x Sasuke Art Is The Best Gift To Shippers Fans Have Received In A Decade
+
+Anime, Naruto, Naruto Uzumaki, Naruto: Shippuden
+
+Tue, 28 Apr 2026 18:02:55 GMT
+
+https://screenrant.com/new-naruto-sasuke-art-shipper-gift/
+
+The new official Naruto art is the best gift that Naruto x Sasuke shippers have recieved in a long time, proving that Narusasu should have been canon.
+---------
+
+# Matthew Lillard's $181M Sequel Tops the Charts on Free Streaming Ahead of Netflix Live-Action Reboot
+
+Movies, Scooby-Doo 2: Monsters Unleashed, Scooby-Doo, Tubi
+
+Tue, 28 Apr 2026 19:00:13 GMT
+
+https://www.cbr.com/scooby-doo-2-monsters-unleashed-tubi-success-april-2026/
+
+Ahead of the upcoming Netflix reboot, Matthew Lillard's beloved 2000s comedy sequel tops the chart on Tubi.
+---------
+
+# Charmed Classic Still Has Fantasy TV's Most Perfect Finale
+
+TV, Charmed, Fantasy
+
+Tue, 28 Apr 2026 19:00:13 GMT
+
+https://www.cbr.com/the-cw-charmed-perfect-tv-finale/
+
+Charmed ended 20 years ago, but fans still consider its final episode as one of fantasy television's most emotional and satisfying endings.
+---------
+
+# Every 2026 Video Game Movie Releasing After The Super Mario Galaxy Movie
+
+Movies, Resident Evil, Street Fighter, Mortal Kombat II
+
+Tue, 28 Apr 2026 19:00:13 GMT
+
+https://www.cbr.com/video-game-movies-releasing-2026/
+
+The Super Mario Galaxy Movie is one of the best video game movies, and fans still have many more to look forward to in 2026.
+---------
+
+# The Real Reason Disney Scrapped Tangled Sequel Finally Revealed
+
+Movies, Tangled, Disney
+
+Tue, 28 Apr 2026 18:48:28 GMT
+
+https://www.cbr.com/why-disney-scrapped-tangled-sequel/
+
+Despite the original movie's big success, a sequel was never greenlit by Disney.
+---------
+
+# That Time I Got Reincarnated as a Slime: Tears of the Azure Sea Review
+
+Anime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, That Time I Got Reincarnated as a Slime
+
+Tue, 28 Apr 2026 18:37:13 GMT
+
+https://www.cbr.com/reincarnated-as-a-slime-tears-of-the-azure-sea-movie-review/
+
+The biggest modern isekai returns with a 6/10 film that’s a solid sign of things to come for Rimuru Tempest, but not much of cinematic breakthrough.
+---------
+
+# Transformers' Smartest G1 Combiner Gets New First-Look Reveal After 39 Years
+
+Anime, Transformers, merchandise, toys
+
+Tue, 28 Apr 2026 18:33:14 GMT
+
+https://www.cbr.com/transformers-nosecone-color-prototype-magic-square-toys/
+
+A new Transformers toy has been revealed that updates another Generation 1 Technobot, meaning there are three more figures to be announced.
+---------
+
+# JRR Tolkien Confirmed the Greatest Piece of Lord of the Rings Lore
+
+Movies, The Lord of the Rings
+
+Tue, 28 Apr 2026 18:30:13 GMT
+
+https://www.cbr.com/lotr-jrr-tolkien-greatest-piece-of-lore-confirmed/
+
+Lore is key to The Lord of the Rings, and decades ago, J.R.R. Tolkien confirmed that the most important lore is also the most prevalent.
+---------
+
+# Anne Hathaway's Stephen King-Style Thriller Verity Gets First Trailer
+
+Movies, Verity, anne hathaway
+
+Tue, 28 Apr 2026 18:18:29 GMT
+
+https://www.cbr.com/anne-hathaway-verity-official-teaser-trailer/
+
+Amazon MGM Studios unveils the first trailer for the thriller that reverses an iconic Stephen King story.
+---------
+
+# 10 Best Easy-to-Binge Anime On Crunchyroll in 2026
+
+Anime, Crunchyroll, Lycoris Recoil, Spy x Family, Mob Psycho 100, Dragon Ball DAIMA
+
+Tue, 28 Apr 2026 18:15:13 GMT
+
+https://www.cbr.com/easy-to-binge-anime-crunchyroll-2026/
+
+Crunchyroll is a top anime streamer with over 1000 titles, but there are also some perfect selections for those who want an easy binge-watch.
+---------
+
+# New Walking Dead Game Officially Unveiled, Coming This Summer
+
+Games, The Walking Dead
+
+Tue, 28 Apr 2026 18:02:47 GMT
+
+https://www.cbr.com/the-walking-dead-aftermath-roguelite-game/
+
+Take on walker herds as Rick Grimes and other fan favorites in the newest Walking Dead game.
+---------
+
+# Ryan Reynolds Reveals Why He's Not in a Rush To Create More Deadpool Content [Exclusive]
+
+Movie News, Ryan Reynolds, Welcome to Wrexham, Deadpool & Wolverine, Avengers: Doomsday
+
+Tue, 28 Apr 2026 18:37:25 GMT
+
+https://collider.com/deadpool-mcu-marvel-future-update-ryan-reynolds/
+
+Ryan Reynolds speaks on Deadpool's uncertain MCU future while promoting the newest season of Welcome to Wrexham. Find out what he said here.
+---------
+
+# Only 3 Video Game Movie Adaptations Are Actually Good
+
+Movie, Video Game, Werewolves Within, Sonic the Hedgehog, Angry Birds 2
+
+Tue, 28 Apr 2026 17:52:15 GMT
+
+https://collider.com/video-game-movie-adaptations-actually-good/
+
+Video game adaptations have a terrible reputation, and it's not unwarranted, but movies like Sonic the Hedgehog are among the few precious exceptions.
+---------
+
+# Apple TV's 4-Part Comedy Revival Has a Real Shot at Fixing Its Biggest Mistake
+
+TV Features, Ted Lasso, Jason Sudeikis, Brett Goldstein, Juno Temple
+
+Tue, 28 Apr 2026 17:34:13 GMT
+
+https://collider.com/ted-lasso-season-4-trailer-roy-keeley-romance/
+
+Ted Lasso Season 4 has the chance to reunite fan-favorite couple Roy and Keeley after their heartbreaking demise.
+---------
+
+# Guy Ritchie’s ‘Young Sherlock’ Has an Underrated Cast No One Talks About
+
+Features, Young Sherlock
+
+Tue, 28 Apr 2026 19:00:19 GMT
+
+https://movieweb.com/young-sherlock-underrated-cast/
+
+'Young Sherlock,' the Amazon Prime Video reboot TV series from Guy Ritchie, has a talented cast.
+---------
+
+# More 'Toy Story' Sequels Could Be in Development at Pixar After 'Toy Story 5'
+
+Movie News, Toy Story 5, Toy Story
+
+Tue, 28 Apr 2026 18:54:48 GMT
+
+https://movieweb.com/toy-story-5-future-sequels-planned/
+
+Director Andrew Stanton teases where the 'Toy Story' franchise could go, and also the end of his time directing movies at Pixar.
+---------
+
+# First 'Caine' Teaser Offers Official Look at 'John Wick' Spin-Off
+
+Movie Trailers, John Wick, Donnie Yen, Action
+
+Tue, 28 Apr 2026 18:43:22 GMT
+
+https://movieweb.com/john-wick-spin-off-caine-producer-teaser/
+
+Donnie Yen will direct and star in a movie about John Wick's blind assassin friend.
+---------
+
+# David Leitch's New Action Heist Film 'How to Rob a Bank' Gets Early Test Screening Buzz
+
+Movie News, David Leitch
+
+Tue, 28 Apr 2026 18:28:36 GMT
+
+https://movieweb.com/how-to-rob-a-bank-test-screening/
+
+David Leitch is back with 'How to Rob a Bank' starring Nicholas Hoult, a new thriller being described as a "punk rock and edgy" directorial effort.
+---------
+
+# One of the Greatest Action Thrillers Ever, 'Heat,' Made Sets Official Free Streaming Release Date
+
+Movie News, Heat, Tubi, Coming/Leaving Streaming, Action
+
+Tue, 28 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/heat-action-streaming-free-tubi-may-2026/
+
+Michael Mann's masterpiece action thriller 'Heat' streams for free on Tubi ahead of the sequel, 'Heat 2.'
+---------
+
+# 'Alien: Isolation' Sequel Confirmed as First Trailer Released
+
+Movie News, Alien, video games
+
+Tue, 28 Apr 2026 17:34:41 GMT
+
+https://movieweb.com/alien-isolation-sequel-teaser/
+
+A new teaser for 'Alien: Isolation 2' has been released, offering a first look at the long-awaited sequel, 12 years after the original game.
+---------
+
+# 'Ms. Marvel' Star Iman Vellani Stays Quiet on Potential 'Avengers: Doomsday' Role
+
+Movie News, Avengers: Doomsday, Iman Vellani, Ms. Marvel
+
+Tue, 28 Apr 2026 17:29:26 GMT
+
+https://movieweb.com/iman-vellani-avoid-avengers-doomsday-cast/
+
+Iman Vellani tried to avoid saying anything about a role in 'Avengers: Doomsday' after Andy Serkis expressed his excitement for the movie.
+---------
+
 # Nic Cage's Sci-Fi Action Masterpiece That Made 3x Its Budget Is Officially Releasing On New Streamer
 
 Movies, Masked Recs
