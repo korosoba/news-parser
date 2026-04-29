@@ -1,3 +1,212 @@
+# Jenna Ortega's Jurassic World Series On Netflix Is The Franchise's Best Since 1993
+
+TV, Netflix, Jurassic World, Jurassic World: Camp Cretaceous, Jurassic Park, Jenna Ortega
+
+Wed, 29 Apr 2026 23:36:18 GMT
+
+https://screenrant.com/jurassic-park-camp-cretaceous-best-since-1993/
+
+One change elevated star Jenna Ortega's lesser-known Jurassic World project to the top of the blockbuster franchise, outdoing Jurassic Park's sequels.
+---------
+
+# Marvel Is Finally Paying Off Luke Cage Season 2's Ending, Just Not How We Expected
+
+Superheroes, Daredevil: Born Again, Luke Cage, Marvel Cinematic Universe
+
+Wed, 29 Apr 2026 23:30:14 GMT
+
+https://screenrant.com/marvel-paying-off-luke-cage-season-2-ending-daredevil-born-again-season-2/
+
+Daredevil: Born Again season 2 confirms Luke Cage's whereabouts, setting up a future MCU return while also connecting to his last Netflix appearance.
+---------
+
+# Prime Video’s New 8-Part Series Based On A Bestselling Novel Finally Fixes A Star-Studded $61M Box Office Flop
+
+Streaming TV, Masked Recs
+
+Wed, 29 Apr 2026 23:18:19 GMT
+
+https://screenrant.com/prime-video-house-of-the-spirits-novel-series-watch/
+
+After a failed 1993 film adaptation, Prime Video's new 8-part series aims to revive the forgotten bestselling novel, The House of the Spirits.
+---------
+
+# Every One Piece Warlord from Weakest to Strongest
+
+TV, One Piece
+
+Wed, 29 Apr 2026 23:15:20 GMT
+
+https://screenrant.com/one-piece-strongest-most-powerful-warlord/
+
+One Piece is rife with powerful pirates, and many of them are members of the Seven Warlords, but who among the Warlords is the strongest?
+---------
+
+# PlayStation 5 Drops Massive New Open-World RPG You Won't Need PS Plus For
+
+Gaming, PlayStation 5
+
+Wed, 29 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/playstation-free-open-world-rpg-april-2026-no-ps-plus/
+
+A brand-new free-to-play open-world RPG has just landed on PlayStation, and the best part is no PS Plus is required.
+---------
+
+# 10 Spider-Man: The Animated Series Episodes That Are Considered Masterpieces
+
+Classic TV, Spider-Man: The Animated Series, Spider-Man, Marvel
+
+Wed, 29 Apr 2026 23:00:18 GMT
+
+https://screenrant.com/spider-man-animated-series-episodes-considered-masterpieces/
+
+Explore the 10 most acclaimed episodes of Spider-Man: The Animated Series, showcasing the show's storytelling mastery and timeless entertainment value.
+---------
+
+# Marvel Officially Launched a New Era of Spider-Man 25 Years Ago
+
+Comics, Spider-Man, CSBG, look back
+
+Wed, 29 Apr 2026 23:15:33 GMT
+
+https://www.cbr.com/spider-man-stracynsyki-romita-run-debut/
+
+A look back to April 2001, when the iconic J. Michael Straczynski and John Romita Jr. run on Amazing Spider-Man began with a shocking revelation
+---------
+
+# Crunchyroll Won the Anime Streaming War by 'Not Following the Rules,' Former Exec Says
+
+Anime, Crunchyroll, Streaming, Naruto
+
+Wed, 29 Apr 2026 23:15:13 GMT
+
+https://www.cbr.com/crunchyroll-anime-streaming-unfair-advantage/
+
+Crunchyroll's path to dominating anime streaming began with an unfair advantage, according to the executive.
+---------
+
+# CBS Finally Course Corrects With Justin Hartley in Tracker Season 3
+
+TV, Tracker, CBS
+
+Wed, 29 Apr 2026 23:06:43 GMT
+
+https://www.cbr.com/tracker-season-3-episode-18-fix-justin-hartley-colter-shaw/
+
+As Tracker slips from its spot as network television's most-watched series, CBS ushers in a major change for Justin Hartley's Colter Shaw.
+---------
+
+# 5 Things That Happen In Every Toy Story Movie
+
+Movies, Toy Story
+
+Wed, 29 Apr 2026 23:00:12 GMT
+
+https://www.cbr.com/toy-story-things-that-happen-in-every-movie/
+
+Toy Story is one of the most beloved animated franchises of all time, but the movies do have some things that just keep happening.
+---------
+
+# Tom Cruise's 130-Minute 'Reacher' Attempt is a Quiet Streaming Hit
+
+Movie News, Tom Cruise, Jack Reacher, Reacher, Paramount Plus
+
+Wed, 29 Apr 2026 23:45:13 GMT
+
+https://collider.com/tom-cruise-jack-reacher-streaming-hit-paramount-plus-april-2026/
+
+Christopher McQuarrie's 2012 film adaptation of Lee Child's Jack Reacher novel, starring Tom Cruise, is currently dominating streaming.
+---------
+
+# PBS’ Brilliant British Detective Thriller Sets Season 2 Release Date With First Look
+
+TV News, Patience, PBS, British TV, Channel 4
+
+Wed, 29 Apr 2026 23:30:13 GMT
+
+https://collider.com/british-detective-series-patience-season-2-release-date-first-look-trailer/
+
+Patience Season 2, inspired by Astrid et Raphaëlle, sets U.S. premiere date with a first look at the new season. Here's all to know.
+---------
+
+# 'Tracker' Has 1 Unfinished Story Thread That Reenie's Subplot Has To Pay Off
+
+TV Features, Tracker, Justin Hartley, CBS, Procedural
+
+Wed, 29 Apr 2026 23:24:12 GMT
+
+https://collider.com/tracker-season-3-reenie-the-process-storyline/
+
+Tracker Season 3 forces Reenie to face stalking threats that may be connected to the return of The Process from early in the series.
+---------
+
+# Quentin Tarantino Confirmed He Wrote Himself Into One of the Greatest Crime Films Ever Made
+
+Movie Features, Quentin Tarantino, True Romance, Christian Slater, Crime
+
+Wed, 29 Apr 2026 23:21:13 GMT
+
+https://collider.com/quentin-tarantino-movie-appearance-true-romance-crime-film-clarence-christian-slater/
+
+In the commentary track for True Romance, Quentin Tarantino opens up about the many similarities he shares with Christian Slater's Clarence.
+---------
+
+# The 4 Best Star Wars Movies Are Getting a New Streaming Home
+
+Movie News, Star Wars: Episode IV - A New Hope, Star Wars: Episode V - The Empire Strikes Back, Star Wars, The Mandalorian and Grogu
+
+Wed, 29 Apr 2026 23:15:13 GMT
+
+https://collider.com/best-star-wars-movies-new-hope-empire-strikes-back-return-of-the-jedi-rogue-one-streaming-release-date-hulu-may-1-2026/
+
+The four best Star Wars movies, including the original franchise trilogy, will soon begin streaming on a new home. Here are all the details.
+---------
+
+# The Best Action Movie From Every Year of the Past Decade
+
+Movie, Action, One Battle After Another, Mad Max: Fury Road, Top Gun: Maverick
+
+Wed, 29 Apr 2026 23:12:12 GMT
+
+https://collider.com/best-action-movie-every-year-2015-2025/
+
+Top Gun: Maverick, One Battle After Another, Mad Max: Fury Road, and more make our list of the best action movies from every year of the past decade.
+---------
+
+# Gerard Butler's Long-Awaited Sci-Fi Sequel Becomes an Overnight Smash on Streaming
+
+Movie News, Gerard Butler, Greenland 2: Migration, Morena Baccarin, Sci-Fi
+
+Wed, 29 Apr 2026 23:00:12 GMT
+
+https://collider.com/greenland-2-migration-gerard-butler-sci-fi-flop-streaming-success-prime-video-april-2026/
+
+Gerard Butler's recent box-office bomb, Greenland 2: Migration, is redeeming itself on streaming. Find out more.
+---------
+
+# Star Trek’s Greatest Modern Sci-Fi Spin-off Finally Solves a Problem That Started 59 Years Ago
+
+TV Features, Star Trek, Star Trek: Strange New Worlds, Anson Mount, Rebecca Romijn
+
+Wed, 29 Apr 2026 22:57:12 GMT
+
+https://collider.com/star-trek-strange-new-worlds-una-china-riley-meaning/
+
+Una China-Riley has been a Star Trek character for decades, but Strange New Worlds is finally giving Captain Pike's Number One her due.
+---------
+
+# 'Invincible' Season 5 Will Debut on Prime Video in 2027
+
+TV News, Invincible
+
+Wed, 29 Apr 2026 23:27:18 GMT
+
+https://movieweb.com/invincible-season-5-release-window/
+
+'Invincible' Season 5 is a year away and teases more Thragg and Dinosaurus.
+---------
+
 # Frank's "Massive Sacrifice" For Brianna In Outlander Season 8 Episode 8 Explained By Star
 
 TV, Outlander
