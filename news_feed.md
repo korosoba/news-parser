@@ -1,3 +1,377 @@
+# Netflix’s New K-Drama Is ‘Business Proposal Meets Hometown Cha-Cha-Cha’ (#4 Trending Worldwide)
+
+Streaming TV, K-Drama
+
+Wed, 29 Apr 2026 02:01:27 GMT
+
+https://screenrant.com/sold-out-on-you-netflix-new-k-drama-april-2026/
+
+Netflix is at the top of the game when it comes to K-dramas, and the streaming service just dropped one of the most promising new titles of 2026.
+---------
+
+# The MCU Just Killed One Of The Multiverse Saga's Best Characters
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 29 Apr 2026 01:45:16 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-7-daniel-death-explained/
+
+The MCU has introduced a wide array of new characters in the Multiverse Saga, but one stands out as the most complex, which led to his demise.
+---------
+
+# What Is Matt Murdock's Plan? Daredevil: Born Again Season 2, Episode 7 Ending Explained
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 29 Apr 2026 01:31:13 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-7-ending-explained/
+
+Daredevil: Born Again season 2 is racing to the finish line in the penultimate episode with major twists and revelations setting up the final conflict
+---------
+
+# Daredevil: Born Again Season 2 Officially Sets Up The New Muse
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 29 Apr 2026 01:17:14 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-7-heather-new-muse-clues/
+
+Muse was one of the most terrifying villains that Daredevil has had the displeasure of fighting, but his legacy appears to live on in season 2.
+---------
+
+# Netflix's Remake Of R-Rated Denzel Washington Action Movie Has A Few Hidden Easter Eggs, Confirms Director
+
+TV, Man on Fire
+
+Wed, 29 Apr 2026 01:06:51 GMT
+
+https://screenrant.com/netflix-man-on-fire-remake-tony-scott-easter-eggs-caple-jr/
+
+EXCLUSIVE: Netflix has remade Denzel Washington's R-rated action movie into a series, but it still has several Easter eggs connected to the film.
+---------
+
+# I'm Now 100% Positive Star Wars Is Setting Up A Major Darth Maul Rematch
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Wed, 29 Apr 2026 01:06:41 GMT
+
+https://screenrant.com/maul-shadow-lord-setting-up-palpatine-darth-maul-rematch/
+
+After the most recent episodes of Maul - Shadow Lord, I'm fully expecting a major dark side rematch in the official Star Wars timeline.
+---------
+
+# Far Cry's Official Return And New Setting Splits Gamers
+
+Gaming, Far Cry
+
+Wed, 29 Apr 2026 01:01:00 GMT
+
+https://screenrant.com/far-cry-official-return-setting-gamers-react/
+
+Far Cry fans are upset following comments by the creator of its TV adaptation, which they say betray a failure to engage with the source material.
+---------
+
+# Miles Morales Is Hitting A Huge Marvel Hero Milestone
+
+Comics, Spider-Man, Marvel, Miles Morales
+
+Wed, 29 Apr 2026 00:00:51 GMT
+
+https://screenrant.com/miles-morales-break-up-new-love-interest/
+
+Miles Morales: Spider-Man is returning for a new run with a new creative team, and one detail threatens to make a big change to Miles' lore.
+---------
+
+# Yoshi And The Mysterious Book: Release Date, Pre-Orders, And Gameplay
+
+Gaming, Yoshi, Super Mario
+
+Wed, 29 Apr 2026 00:00:51 GMT
+
+https://screenrant.com/yoshi-and-the-mysterious-book-release-date-price-preorder-gameplay/
+
+Discover the colorful new Yoshi adventure, Yoshi and the Mysterious Book, coming to Nintendo Switch 2. Learn about its release date, gameplay, & more!
+---------
+
+# 10 Most Powerful Invincible Characters After Season 4
+
+Streaming TV, Invincible
+
+Wed, 29 Apr 2026 00:00:51 GMT
+
+https://screenrant.com/invincible-season-4-most-powerful-characters/
+
+The fourth installment of Invincible included some incredibly powerful characters. However, some protagonists in the series are stronger than others.
+---------
+
+# Top 10 Anime Series Better Than Bleach
+
+Anime, Bleach, Shonen
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://www.cbr.com/greatest-anime-series-better-than-bleach-list/
+
+Bleach is one of the greatest shonen anime of all time, but some anime series are even better.
+---------
+
+# Marvel Is Officially Replacing the MCU's Most Disturbing Villain Since Thanos
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, superheroes
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://www.cbr.com/marvel-daredevil-born-again-officially-replacing-muse-heather-glenn/
+
+Since fans last saw Thanos in 2019, few MCU villains have scared viewers more than the one who is about to return in a highly anticipated project.
+---------
+
+# 6 Forgotten Movie Franchises Returning in 2026
+
+Movies, Street Fighter
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://www.cbr.com/biggest-movie-franchise-comeback-2026/
+
+Some franchises disappear from the public eye, but 2026 sees a few cinematic franchises making a big comeback.
+---------
+
+# Roger Sweet, He-Man Creator, Dies at 91
+
+TV, obituary, He-Man
+
+Wed, 29 Apr 2026 01:55:40 GMT
+
+https://www.cbr.com/he-man-creator-roger-sweet-dead/
+
+Roger Sweet, best known for creating the popular Masters of the Universe character He-Man, has passed away.
+---------
+
+# The Critic Closer Than Ever to Revival After King of the Hill Success
+
+TV, The Critic
+
+Wed, 29 Apr 2026 01:46:54 GMT
+
+https://www.cbr.com/the-critic-revival-closer-than-ever/
+
+The success of Hulu's King of the Hill revival has given momentum to plans to revive another animated series from the 1990s.
+---------
+
+# 10 Anime Villains Who Deserved to Win
+
+Anime, Pokemon, Naruto, Neon Genesis Evangelion, My Hero Academia
+
+Wed, 29 Apr 2026 01:45:09 GMT
+
+https://www.cbr.com/anime-villains-deserved-to-win-more-than-heroes/
+
+Some anime villains are too sympathetic or too competent to root against.
+---------
+
+# 10 Perfect PS1 Games Nobody Remembers
+
+Games, PlayStation (Original), retro games
+
+Wed, 29 Apr 2026 01:31:01 GMT
+
+https://www.cbr.com/perfect-ps1-games-nobody-remembers-list/
+
+No one seems to remember classic PS1 games like Threads of Fate anymore.
+---------
+
+# 8 Best-Written Anime of the 1980s
+
+Anime, Touch, Urusei Yatsura, Mobile Suit Gundam
+
+Wed, 29 Apr 2026 01:26:58 GMT
+
+https://www.cbr.com/best-written-anime-of-1980s/
+
+The 1980s were a revelatory decade for anime, with titles like Touch and Macross representing peak writing in the medium.
+---------
+
+# RGG's Judgment Series Could Be Saved With One Small Adjustment
+
+Games, Judgment, Yakuza, Yakuza: Like a Dragon, sega
+
+Wed, 29 Apr 2026 00:46:53 GMT
+
+https://www.cbr.com/rgg-judgment-should-follow-like-a-dragon-example/
+
+RGG's Judgment series explored Yakuza's well-established world-setting from a different angle, and fans want more.
+---------
+
+# Dexter Fans Are Wrong About the Show's Last 4 Seasons
+
+TV, Dexter
+
+Wed, 29 Apr 2026 00:30:57 GMT
+
+https://www.cbr.com/dexter-everyone-wrong-about-last-4-seasons/
+
+Dexter's final seasons are divisive among viewers, but there are some things fans were wrong about.
+---------
+
+# The Best Sci-Fi Movie of 2026 Officially Overtakes Steven Spielberg’s Underrated Video Game Movie
+
+Movie News, Ready Player One, Steven Spielberg, Project Hail Mary, Ryan Gosling
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://collider.com/2026-sci-fi-masterpiece-project-hail-mary-overtakes-steven-spielberg-sleeper-hit-ready-player-one-box-office-613-million/
+
+Ryan Gosling's blockbuster Project Hail Mary has overtaken one of Steven Spielberg's most successful sci-fi movies at the box office. Find out more.
+---------
+
+# Matt Murdock’s Greatest Fight Yet Sets Up a Massive 'Daredevil: Born Again' Finale | Review
+
+TV Reviews, Daredevil: Born Again, Charlie Cox, Disney+, Jessica Jones
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-7-review-disney-plus/
+
+After being on the run, Matt Murdock steps back into the spotlight in a major way for Daredevil: Born Again Season 2's penultimate episode.
+---------
+
+# ‘Daredevil: Born Again’s Michael Gandolfini Teases How Daniel’s Shocking Choice Could Fuel Season 3
+
+Interviews, Daredevil: Born Again, Michael Gandolfini, Charlie Cox, Vincent D'Onofrio, Disney+
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-7-daniel-death-michael-gandolfini-interview/
+
+Michael Gandolfini discusses the impact of Daniel's shocking death in Daredevil: Born Again and how it could fuel Season 3.
+---------
+
+# Netflix’s Certified Fresh Series Is a Perfect Weekend Binge Before Season 2 Changes Everything
+
+TV Features, Netflix, The Four Seasons, Tina Fey, Steve Carell
+
+Wed, 29 Apr 2026 01:49:00 GMT
+
+https://collider.com/netflix-the-four-seasons-season-2-certified-fresh-series-binge-watch/
+
+A year after the premiere, Netflix’s TV show The Four Seasons will be back for Season 2 in May.
+---------
+
+# Brand-New Historical Epic Becomes One of the Biggest Box Office Bombs of All Time
+
+Movie News, Desert Warrior, Anthony Mackie, Ben Kingsley, Rupert Wyatt
+
+Wed, 29 Apr 2026 01:45:11 GMT
+
+https://collider.com/anthony-mackie-action-historical-epic-desert-warrior-box-office-disaster-less-than-487-thousand/
+
+The $150 million period epic Desert Warrior, starring Anthony Mackie, has emerged as one of the biggest box-office bombs ever made.
+---------
+
+# Netflix's Overlooked 91% RT War Movie Is Still the Streamer's Most Harrowing Film
+
+Movie Features, Beasts of No Nation, Netflix, Idris Elba, War
+
+Wed, 29 Apr 2026 01:43:10 GMT
+
+https://collider.com/beasts-of-no-nation-netflix-war-movie-idris-elba/
+
+Netflix's first original film, Beasts of No Nation, is a brilliant war drama that helped establish the platform before the streaming wars.
+---------
+
+# ‘Mindhunter’ Meets ‘Prison Break’ in Apple TV’s 10/10 Easy-To-Binge Thriller That Needs a Season 2
+
+TV News, Black Bird, Taron Egerton, Mindhunter, Prison Break
+
+Wed, 29 Apr 2026 01:31:12 GMT
+
+https://collider.com/mindhunter-meets-prison-break-taron-egerton-series-black-bird-streaming-success-apple-tv-may-2026/
+
+Taron Egerton's binge-worthy Apple TV series with shades of Mindhunter and Prison Break is still a knockout weekend binge.
+---------
+
+# The Sci-Fi Thriller Inspired by One of the Most Underrated Anthology Series Is Still a Late-Night Favorite 10 Years Later
+
+Movie News, Denis Villeneuve, Sci-Fi, Arrival, Jeremy Renner
+
+Wed, 29 Apr 2026 01:15:16 GMT
+
+https://collider.com/denis-villeneuve-sci-fi-thriller-arrival-free-streaming-success-pluto-tv-april-2026/
+
+Denis Villeneuve's Arrival, starring Amy Adams and Jeremy Renner, is currently topping free streaming charts.
+---------
+
+# 8 Worst Fantasy Movies of All Time, Ranked by a Fan of the Genre
+
+Movie, Fantasy, Dragonball Evolution, The Last Airbender, Eragon
+
+Wed, 29 Apr 2026 01:13:00 GMT
+
+https://collider.com/worst-fantasy-movies-of-all-time-ranked-by-a-fan-of-the-genre/
+
+The absolute worst fantasy films ranked, from The Last Airbender to Eragon, where magic fails, worlds collapse, and wonder never arrives.
+---------
+
+# Tom Hanks Officially Returns With a New World War II Series on May 25
+
+TV News, Tom Hanks, The History Channel, Greyhound, Saving Private Ryan
+
+Wed, 29 Apr 2026 01:01:00 GMT
+
+https://collider.com/world-war-2-with-tom-hanks-history-channel-release-date-may-25-2026/
+
+Explore the epic story of World War II through Tom Hanks' new 20-part documentary series, premiering next month on History Channel.
+---------
+
+# 10 TV Shows That Are Unanimously Agreed To Be Masterpieces
+
+TV Lists, Seinfeld
+
+Wed, 29 Apr 2026 02:01:26 GMT
+
+https://movieweb.com/tv-shows-masterpieces-popular/
+
+These TV shows are all so popular and memorable that TV fans can all agree that they're fantastic, from 1990s sitcoms to an HBO miniseries about war.
+---------
+
+# Universal Pictures Secures 2028 Release Date for Upcoming Nintendo Animated Movie
+
+Movie News, The Super Mario Galaxy Movie, Nintendo
+
+Wed, 29 Apr 2026 01:58:51 GMT
+
+https://movieweb.com/super-mario-nintendo-sequel-2028/
+
+Another Nintendo animated movie from Universal and Illumination will make its way to theaters in April 2028.
+---------
+
+# He-Man Creator Roger Sweet Dies at Age 91
+
+Movie News, Masters of the Universe
+
+Wed, 29 Apr 2026 00:44:36 GMT
+
+https://movieweb.com/roger-sweet-he-man-dies/
+
+Folowing a long battle with dementia, He-Man creator Roger Sweet passed away in a care facility at the age of 91.
+---------
+
+# 8 Greatest Erotic Thriller Movies from the '80s Nobody Remembers
+
+Movie Lists, Thriller
+
+Wed, 29 Apr 2026 00:00:53 GMT
+
+https://movieweb.com/erotic-thriller-movies-1980s-forgotten/
+
+The 1980s were a pivotal decade for erotic thrillers, but many of the best ones have become lost with time and deserve to be celebrated again.
+---------
+
 # 10 Animated Movies For Studio Ghibli Fans
 
 Movies
