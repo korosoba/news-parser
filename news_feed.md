@@ -1,3 +1,344 @@
+# HBO’s 5-Part Masterpiece That Paved The Way For The Last Of Us Returns With Worldwide Streaming Success
+
+TV, Masked Recs
+
+Wed, 29 Apr 2026 21:33:17 GMT
+
+https://screenrant.com/chernobyl-hbo-max-streaming-success-april-2026/
+
+The HBO masterpiece drama series that paved the way for The Last of Us to be the show that it became is now back as a global streaming smash hit.
+---------
+
+# Brianna's Decision To Stay In The Past Explained By Outlander Star
+
+TV, Sophie Skelton, Outlander
+
+Wed, 29 Apr 2026 21:32:40 GMT
+
+https://screenrant.com/outlander-season-8-roger-brianna-stay-in-past-explained-sophie-skelton/
+
+Sophie Skelton discusses Brianna's role as the rock of the Fraser family, choosing to stay in the 18th century after Fergus' devastating death, and protecting her family's support system.
+---------
+
+# Forget Goku, Dragon Ball's Next Anime Will Finally Prove Vegeta's The Series' Best Character
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Wed, 29 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/dragon-ball-galactic-patrol-vegeta-best-character/
+
+As Dragon Ball Super returns, Vegeta's growth takes center stage, showcasing his evolution from villain to one of anime's greatest heroes.
+---------
+
+# Netflix’s Dark Rewrites The Rules Of Your Perceived Time
+
+Classic TV, Dark, Netflix
+
+Wed, 29 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/netflix-dark-rewrites-time-rules/
+
+Netflix’s is the streaming home of a 3-season sci-fi masterpiece that begins with one line that completes rewrites the rules of our perceived time.
+---------
+
+# South Park's Trey Parker & Matt Stone Were "Never As Good" In Live-Action As Their Underrated 1998 Comedy, Recalls Director
+
+Movies, BASEketball, Trey Parker, Matt Stone
+
+Wed, 29 Apr 2026 21:27:11 GMT
+
+https://screenrant.com/south-park-trey-parker-matt-stone-baseketball-best-acting-david-zucker/
+
+Exclusive: Co-writer/director David Zucker recalls working with South Park's Trey Parker & Matt Stone on an underrated comedy and their great acting.
+---------
+
+# Did You Catch Daredevil: Born Again Season 2's Subtle Spider-Man Reference?
+
+Superheroes, Daredevil: Born Again - Season 2, Marvel Cinematic Universe, Daredevil: Born Again
+
+Wed, 29 Apr 2026 21:20:18 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-7-spider-man-reference/
+
+Daredevil: Born Again season 2, episode 7 includes a quick reference to Spider-Man that was very easy to miss at first. Did you catch it?
+---------
+
+# Mortal Kombat II Cast Reveals Brutal Training That Led One Star To Break Down In Tears
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Wed, 29 Apr 2026 21:11:26 GMT
+
+https://screenrant.com/mortal-kombat-2-training-cast-details-explained/
+
+The upcoming film Mortal Kombat II involved a grueling training process that led to tears being shed, which the cast is now opening up about.
+---------
+
+# 007 First Light Release Date, Cast, Story, & Edition Details
+
+Gaming, 007 First Light, Triple-A Games, PC
+
+Wed, 29 Apr 2026 21:00:21 GMT
+
+https://screenrant.com/007-first-light-release-date-editions-charactesr-gameplay-story/
+
+Get the latest details on 007 First Light, including its release date, star-studded cast, intriguing story, and available editions, all in one place.
+---------
+
+# How 'The Contest' Became Seinfeld's Most Iconic Episode
+
+Classic TV, Seinfeld
+
+Wed, 29 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/seinfeld-the-contest-greatest-episode-tv-history/
+
+More than three decades later, Seinfeld's most iconic episode — season 4, episode 11, "The Contest" — remains a timeless TV masterpiece.
+---------
+
+# One Piece Finally Proves That Even The Weakest Straw Hats Are Now Total Monsters
+
+Anime, One Piece
+
+Wed, 29 Apr 2026 21:00:19 GMT
+
+https://screenrant.com/one-piece-anime-nami-usopp-weakest-strongest/
+
+Luffy's crew has each grown a lot since leaving the East Blue, but even the weakest Straw Hats have transformed into total forces of nature in Elbaph.
+---------
+
+# Tom Hardy's Venom Is Heading to Paramount+ (But There's a Twist)
+
+Movies, Venom, superheroes, Paramount Plus
+
+Wed, 29 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/tom-hardy-venom-superhero-streaming-home-paramount-may-2026/
+
+Tom Hardy's hit superhero film that spawned an entire cinematic universe is getting a new streaming home.
+---------
+
+# Shadow Lord Made Maul Star Wars' Most Tragic Villain
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Star Wars: Episode I - The Phantom Menace
+
+Wed, 29 Apr 2026 21:30:12 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-more-tragic-darth-vader/
+
+Star Wars: Maul - Shadow Lord used the same technique as the Star Wars prequel trilogy to make its protagonist even more tragic than Anakin Skywalker.
+---------
+
+# Netflix's Masters of the Universe Confirmed To Return After Live-Action Movie Release
+
+Comics, Masters of the Universe, He-Man
+
+Wed, 29 Apr 2026 21:26:54 GMT
+
+https://www.cbr.com/netflix-masters-of-the-universe-confirmed-to-return-after-live-action-movie/
+
+This is exactly what He-Man and Masters of the Universe fans want to see happen in 2026.
+---------
+
+# 7 Best Decks for Ranked Battles in Pokémon TCG Pocket
+
+Games, Pokemon Trading Card Game Pocket, Pokemon Trading Card Game, Pokemon
+
+Wed, 29 Apr 2026 21:15:13 GMT
+
+https://www.cbr.com/pokemon-tcg-pocket-best-decks-ranked-battles/
+
+Decks led by Charizard, Altaria, and more are worth checking out for serious Pokemon TCG Pocket players.
+---------
+
+# In Just 1 Day, Pixar's New Animated Hit With 94% RT Becomes an Instant PVOD Hit After Fantastic Box Office Run
+
+Movies, Hoppers, pixar
+
+Wed, 29 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/pixar-hoppers-instant-pvod-hit-april-2026/
+
+After showing impressive legs at the box office, Disney/Pixar's latest animated film Hoppers is now conquering the PVOD charts.
+---------
+
+# Spider-Man's Most Fearsome Villain Gets A Terrifying New Redesign
+
+Comics, The Vulture, Spider-Man
+
+Wed, 29 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/vulture-new-look-the-amazing-spider-man-32/
+
+This Spider-Man villain has rarely looked so fowl.
+---------
+
+# 10 Relentless '80s Movie Remakes That Make the Perfect Double Feature With The Running Man
+
+Movies, The Running Man, Sci-Fi
+
+Wed, 29 Apr 2026 21:00:12 GMT
+
+https://www.cbr.com/the-running-man-must-watch-80s-movie-remakes-list/
+
+The Running Man isn't the first 80s movie remake, and other remakes pair perfectly with it for an action-packed double feature.
+---------
+
+# Bugs Bunny & Daffy Duck Return in First Look at a Very Different Looney Tunes TV Series
+
+Anime, Looney Tunes
+
+Wed, 29 Apr 2026 20:33:12 GMT
+
+https://www.cbr.com/looney-tunes-gokko-first-trailer-release-warner-bros/
+
+Bugs Bunny, Daffy Duck and their most iconic Looney Tunes friends are heading back to television with a new look that many fans wouldn't expect.
+---------
+
+# Colin Firth's True Crime Miniseries The Staircase Is a Global Netflix Hit
+
+TV, The Staircase, Netflix, Crime
+
+Wed, 29 Apr 2026 20:30:14 GMT
+
+https://www.cbr.com/colin-firth-the-staircase-true-crime-drama-netflix-success-april-2026/
+
+Colin Firth's true crime miniseries The Staircase is a global hit on Netflix four years after its release.
+---------
+
+# 10 Action Movies That Are (Almost) As Good As Predator
+
+Movies, Action, Predator
+
+Wed, 29 Apr 2026 20:30:14 GMT
+
+https://www.cbr.com/action-movies-for-fans-of-predator-list/
+
+1987's Predator is one of the greatest action movies in cinema history, but there are many other action flicks are almost as impressive.
+---------
+
+# ‘Marshals’ Meets ‘American Sniper’ in New Neo-Western Coming This Year
+
+Movie News, Guy Pearce, Marshals, American Sniper, Taylor Sheridan
+
+Wed, 29 Apr 2026 21:30:13 GMT
+
+https://collider.com/marshals-meets-american-sniper-guy-pearce-neo-western-the-marshal-cannes-release-date/
+
+Marshals meets American Sniper in Guy Pearce's new neo-Western thriller, The Marshal, which will premiere next month.
+---------
+
+# The Greatest Sci-Fi Western Series in History Is Officially Taking Over the World
+
+TV News, The Mandalorian, Pedro Pascal, The Mandalorian and Grogu, Disney+
+
+Wed, 29 Apr 2026 21:01:13 GMT
+
+https://collider.com/best-sci-fi-western-tv-show-the-mandalorian-streaming-success-disney-plus-april-2026/
+
+The greatest sci-fi Western TV series in history, The Mandalorian, is taking over the world on streaming before the debut of its feature continuation.
+---------
+
+# Taylor Sheridan's Greatest Film Has 48 Hours Left on Netflix
+
+Movie Features, Sicario, Denis Villeneuve, Taylor Sheridan, Crime
+
+Wed, 29 Apr 2026 20:54:13 GMT
+
+https://collider.com/taylor-sheridan-sicario-greatest-film-leaving-netflix-may-1/
+
+Now's your last chance to watch Sicario on Netflix, Taylor Sheridan's crime thriller that's also his best film.
+---------
+
+# 41 Years Ago, Bob Dylan Felt Uncomfortable Recording One of the Best-Selling Singles of All Time
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Wed, 29 Apr 2026 20:48:38 GMT
+
+https://collider.com/bob-dylan-we-are-the-world-best-selling-single-of-all-time/
+
+41 years ago, Bob Dylan felt uneasy recording the charity anthem that became one of the best-selling singles ever made in music history.
+---------
+
+# Taylor Sheridan's 'Call of Duty' Movie Faces Backlash After Director's Past Comments Resurface
+
+Movie News, Call of Duty, Peter Berg, Taylor Sheridan
+
+Wed, 29 Apr 2026 20:30:14 GMT
+
+https://collider.com/taylor-sheridan-call-of-duty-movie-peter-berg-gamers-comments/
+
+Call of Duty movie director Peter Berg faces backlash over old comments calling people who play war video games “weak” and “pathetic.”
+---------
+
+# 10 Broadway Musicals You Can Stream at Home After ‘Merrily We Roll Along'
+
+Movie, Musical, Broadway, Hamilton, Waitress: The Musical
+
+Wed, 29 Apr 2026 20:28:13 GMT
+
+https://collider.com/merrily-we-roll-along-broadway-musical-proshot-recommendation/
+
+From Hamilton to Frozen, Shrek the Musical to Diana, these proshot musicals are ready to watch from the couch.
+---------
+
+# Netflix’s New Robert De Niro Crime Thriller Adaptation Lands First Look and Release Date
+
+Movie News, The Whisper Man, Robert De Niro, Netflix, Michelle Monaghan
+
+Wed, 29 Apr 2026 20:11:30 GMT
+
+https://collider.com/netflix-robert-de-niro-crime-thriller-whisper-man-images-release-date/
+
+Netflix reveals first look and release date for new crime thriller adaptation starring Robert De Niro, Michelle Monaghan, and Adam Scott.
+---------
+
+# Kurt Russell Doubts 'Escape From New York' Reboot Will Actually Happen [Exclusive]
+
+Movie News, Escape From New York, Kurt Russell, Escape from New York
+
+Wed, 29 Apr 2026 21:03:11 GMT
+
+https://movieweb.com/escape-from-new-york-reboot-kurt-russell-reaction/
+
+The Snake Plissken actor knows it's much harder to capture the spirit of the character than studios think.
+---------
+
+# 'The Boys' Creator Confirms 'Gen V' Season 3 Could Still Happen After Cancellation
+
+TV News, Gen V, The Boys
+
+Wed, 29 Apr 2026 21:01:33 GMT
+
+https://movieweb.com/gen-v-season-3-future-revival/
+
+Even if 'Gen V' does not return for Season 3, series creator Erik Kripke wants to revisit the plans for the season in a new spin-off series.
+---------
+
+# 'The White Lotus’ Has an Impressive Cast That Is About To Get Even Better
+
+Features, The White Lotus
+
+Wed, 29 Apr 2026 21:00:17 GMT
+
+https://movieweb.com/the-white-lotus-great-cast-laura-dern/
+
+'The White Lotus' Season 4 will feature Laura Dern, who is joining the cast that also features Chris Messina, AJ Michalka, and Alexander Ludwig.
+---------
+
+# Steven Spielberg Rebooting 'Casper' With A Wednesday-Style Disney+ Series
+
+TV News, Casper, Wednesday
+
+Wed, 29 Apr 2026 20:46:48 GMT
+
+https://movieweb.com/casper-live-action-series-disney/
+
+Steven Spielberg and Disney+ are in development on a new series centered on Casper the Friendly Ghost.
+---------
+
 # James Gunn's Creature Commandos: A Promising Tease of the DCU's Future
 
 Streaming TV, Masked Recs
