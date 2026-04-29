@@ -1,3 +1,421 @@
+# Fox's 5-Part Crime Thriller That's Designed To Be Binged Is Quietly One Of Its Best Sci-Fi Shows
+
+Classic TV, Masked Recs
+
+Wed, 29 Apr 2026 17:15:19 GMT
+
+https://screenrant.com/gotham-fox-dc-show-crime-thriller-quietly-sci-fi/
+
+One ambitious Fox show perfectly blends gritty crime drama storytelling with superhero sci-fi spectacle and it absolutely can't be missed.
+---------
+
+# Silo Star’s New 6-Part Adaptation Of Classic Pirate Novel Gets Exciting New Release Update
+
+TV, Silo, David Oyelowo
+
+Wed, 29 Apr 2026 17:13:02 GMT
+
+https://screenrant.com/treasure-island-mgm-plus-filming-wrap-release-update/
+
+A new adaptation of Robert Louis Stevenson’s classic pirate novel is coming soon to MGM+, with a Silo cast member in one of the leading roles.
+---------
+
+# The Wayans' New Scary Movie Return Addressed By Director Who Replaced Them 23 Years Ago
+
+Movies, Scary Movie, Marlon Wayans
+
+Wed, 29 Apr 2026 17:06:59 GMT
+
+https://screenrant.com/scary-movie-6-wayans-return-david-zucker-response/
+
+Exclusive: The director who once replaced the Wayans in the Scary Movie franchise is weighing in on their return with the new movie 23 years later.
+---------
+
+# Crunchyroll's Sudden Hunter x Hunter Removal Came at the Worst Possible Time
+
+Anime, Hunter x Hunter
+
+Wed, 29 Apr 2026 17:00:20 GMT
+
+https://screenrant.com/crunchyroll-hunter-x-hunter-anime-streaming-removal/
+
+With a newly released mobile game and the scheduled return of the manga, Hunter X Hunter's streaming future with Crunchyroll is up in flames.
+---------
+
+# Marvel Officially Confirms The Thing's Design For Spider-Man's New Appearance
+
+Superheroes, Spider-Man, Spidey and His Amazing Friends, Marvel Cinematic Universe
+
+Wed, 29 Apr 2026 16:45:22 GMT
+
+https://screenrant.com/spider-man-tv-show-disney-plus-the-thing-marvel-reveal/
+
+Ben Grimm, aka The Thing from the Fantastic Four, has had his design officially revealed by Marvel for Spider-Man's new appearance, with a cool suit.
+---------
+
+# Jared Padalecki's The Boys Character, Mr. Marathon, Explained
+
+Streaming TV, The Boys
+
+Wed, 29 Apr 2026 16:31:19 GMT
+
+https://screenrant.com/the-boys-mr-marathron-jared-padalecki-character-explained/
+
+Jared Padalecki finally appeared in The Boys season 5 as Mister Marathon, and the character made quite an impression in his debut episode.
+---------
+
+# The Devil Wears Prada 2 Rotten Tomatoes Score Revealed
+
+Movies, The Devil Wears Prada 2
+
+Wed, 29 Apr 2026 16:29:24 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-rotten-tomatoes-score-revealed/
+
+The Devil Wears Prada 2 reviews are rolling out, and the movie's debut Rotten Tomatoes score is here, revealing an interesting race with the original.
+---------
+
+# All Dancing With The Stars Pros Appearing In American Idol Season 24 Crossover (SPOILERS)
+
+Reality TV, American Idol, Dancing with the Stars
+
+Wed, 29 Apr 2026 16:23:16 GMT
+
+https://screenrant.com/american-idol-season-24-dancing-with-the-stars-pros-crossover-spoilers/
+
+For the first time ever, American Idol and Dancing With The Stars are having a crossover, and the pros who'll be appearing have been announced.
+---------
+
+# Hulk's New Daughter-in-Law Officially Joins Marvel Lore
+
+Marvel Comics, Hulk, Marvel
+
+Wed, 29 Apr 2026 16:23:13 GMT
+
+https://screenrant.com/hulk-daughter-she-hulk-debut/
+
+Marvel brings a member of Hulk's family to Earth, where they join Jennifer Walters a.k.a. She-Hulk in expanding their gamma-powered dynasty.
+---------
+
+# 2 Of Hollywood's Biggest Stars Have Completely Avoided The Streaming Wars
+
+New Movies, Tom Cruise, Jason Statham
+
+Wed, 29 Apr 2026 16:15:19 GMT
+
+https://screenrant.com/actors-no-streaming-movies-shows-tom-cruise-jason-statham/
+
+The streaming wars have brought most of Hollywood's biggest stars to the small screen in some fashion, but two major actors have avoided doing so.
+---------
+
+# Ann Dowd Reveals Aunt Lydia’s Mindset in The Testaments
+
+TV, The Testaments
+
+Wed, 29 Apr 2026 17:15:13 GMT
+
+https://www.cbr.com/video/ann-dowd-reveals-aunt-lydia-s-mindset-in-the-testaments/
+
+Ann Dowd reveals what’s really going on inside Aunt Lydia in The Testaments. The fan-favorite character returns with a new perspective, and Dowd unpacks the mindset behind her biggest changes.SPOILER ALERT! The interview touches on a pivotal backstory moment where Lydia faces an impossible survival choice—one that continues to define her actions and emotional weight throughout the series.Dowd breaks down Lydia’s role at the academy, her complicated sense of care for the girls, and how her journey differs from The Handmaid’s Tale. It’s a deeper look at one of Gilead’s most layered characters, plus insight into working with rising stars in this new era of the story.
+---------
+
+# Euphoria's Shocking Wedding Scene Is HBO's Red Wedding Replacement
+
+TV, Euphoria, Game Of Thrones, HBO Max
+
+Wed, 29 Apr 2026 17:13:00 GMT
+
+https://www.cbr.com/hbo-euphoria-season-3-nate-cassie-red-wedding-comparison/
+
+HBO's Euphoria Season 3, Episode 3 features a dramatic wedding scene that draws comparisons to Game of Thrones' infamous Red Wedding.
+---------
+
+# Daredevil Star Praises Michael Gandolfini For Superhero Breakout Role
+
+TV, Daredevil: Born Again
+
+Wed, 29 Apr 2026 17:10:49 GMT
+
+https://www.cbr.com/daredevil-vincent-donofrio-michael-gandolfini-praise/
+
+Daredevil: Born Again star Vincent D'Onofrio opens up about Michael Gandolfini's incredible work on the hit street-level superhero series.
+---------
+
+# Netflix's Ransom Canyon Sets Season 2 Release Date After Major Cast Shakeup
+
+TV, Ransom Canyon
+
+Wed, 29 Apr 2026 16:39:16 GMT
+
+https://www.cbr.com/netflix-ransom-canyon-season-2-release-date/
+
+The neo-Western series received divisive reviews.
+---------
+
+# Apple TV's Trying Season 5 Officially Debuts This Summer
+
+TV, Trying, Apple TV
+
+Wed, 29 Apr 2026 16:37:41 GMT
+
+https://www.cbr.com/apple-tv-trying-season-5-streaming-release-date/
+
+A first look and streaming premiere date have been set for the return of the Apple TV sitcom.
+---------
+
+# 15 Best Scenes in Guy Ritchie's British Gangster Movies
+
+Movies, guy ritchie, Crime, Snatch
+
+Wed, 29 Apr 2026 16:30:13 GMT
+
+https://www.cbr.com/best-guy-ritchie-gangster-movie-scenes-list/
+
+Guy Ritchie's gangster movies like Snatch and RocknRolla are full of mind-blowing scenes that showcase the filmmaker's talent and style.
+---------
+
+# Free Comic Book Day 2026: All Titles, Comic Giveaway Day, and More
+
+Comics, free comic book day
+
+Wed, 29 Apr 2026 16:25:30 GMT
+
+https://www.cbr.com/free-comic-book-day-2026-guide/
+
+The ultimate holiday for comic book fans returns.
+---------
+
+# Anne Hathaway & Meryl Streep's The Devil Wears Prada 2 Debuts to Strong Rotten Tomatoes Score
+
+Movies, The Devil Wears Prada 2
+
+Wed, 29 Apr 2026 16:21:57 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-rotten-tomatoes-score/
+
+20 years later, The Devil Wears Prada is just as iconic.
+---------
+
+# 8 Near-Perfect Anime Movies No One Remembers Today
+
+Anime
+
+Wed, 29 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/near-perfect-anime-movies-no-one-remembers-2026/
+
+Fireworks and Sword of the Stranger prove that just because an anime movie has slipped through the cracks doesn't mean that it's not still a classic!
+---------
+
+# Spider-Man: Brand New Day Director Reveals What MCU Movie Is Really About
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Wed, 29 Apr 2026 16:12:30 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-about-connection-with-people-destin-daniel-cretton/
+
+Director Destin Daniel Cretton is finally revealing what the upcoming Marvel movie Spider-Man: Brand New Day is really all about.
+---------
+
+# Steven Spielberg Officially Returns to TV With Remake of Beloved ‘90s Classic
+
+TV News, Disney+, Casper, Steven Spielberg, Rob Letterman
+
+Wed, 29 Apr 2026 17:16:22 GMT
+
+https://collider.com/disney-steven-spielberg-casper-the-friendly-ghost-live-action-reboot-series/
+
+Disney and Steven Spielberg are teaming up for a new live-action series following Casper the Friendly Ghost.
+---------
+
+# After 20 Years, 'The Devil Wears Prada 2' Officially Lands "Groundbreaking" Rotten Tomatoes Score
+
+Movie News, The Devil Wears Prada 2, The Devil Wears Prada, Meryl Streep, Anne Hathaway
+
+Wed, 29 Apr 2026 16:44:00 GMT
+
+https://collider.com/anne-hathaway-sequel-the-devil-wears-prada-2-rotten-tomatoes-score-is-it-good/
+
+Anne Hathaway's The Devil Wears Prada 2 has debuted to a Rotten Tomatoes score on par with the original classic.
+---------
+
+# 'The Boys' Star Explains the Fatal Mistake Behind Season 5's Shocking 2-Minute Scene
+
+Exclusives, The Boys, Valorie Curry, Ladies Night, Prime Video
+
+Wed, 29 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-boys-season-5-episode-5-firecracker-death-valorie-curry/
+
+The Boys star Valorie Curry discusses her unforgettable scenes as Firecracker in Season 5, including that last one with Antony Starr's Homelander.
+---------
+
+# 'The Devil Wears Prada 2' Is a Near-Perfect Blend of Nostalgia and Newness | Review
+
+Movie Reviews, The Devil Wears Prada 2, Meryl Streep, Anne Hathaway, Emily Blunt
+
+Wed, 29 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-devil-wears-prada-2-review-anne-hathaway-meryl-streep-emily-blunt/
+
+Meryl Streep, Anne Hathaway, Stanley Tucci, and Emily Blunt effortlessly anchor The Devil Wears Prada 2, which is fresh, fun, and nostalgic.
+---------
+
+# Netflix's Hit Western Series Officially Unveils Summer Release Date With First Look
+
+TV News, Ransom Canyon, Josh Duhamel, Western, Netflix
+
+Wed, 29 Apr 2026 16:00:13 GMT
+
+https://collider.com/ransom-canyon-season-2-netflix-release-date-first-look/
+
+Netflix has announced the release date and first-look details for Ransom Canyon Season 2, starring Josh Duhamel and Minka Kelly.
+---------
+
+# Jensen Ackles Breaks Down ‘The Boys’ Explosive ‘Supernatural’ Reunion and the Stunt That Almost Injured Jared Padalecki
+
+Exclusives, The Boys, Jensen Ackles, Jared Padalecki, Supernatural
+
+Wed, 29 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-boys-season-5-episode-5-supernatural-reunion-jensen-ackles-interview/
+
+Jensen Ackles discusses The Boys Season 5, Episode 5's Supernatural reunion, punching Jared Padalecki, and Homelander's growing power.
+---------
+
+# 'The Boys' Officially Changes Genres in the Season's Best Episode | Review
+
+TV Reviews, The Boys, Prime Video, Jared Padalecki, Jensen Ackles
+
+Wed, 29 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-boys-season-5-episode-5-recap-prime-video/
+
+The Boys' newest episode is a high point for the series, using an anthology structure to showcase some of the season's most exciting storylines.
+---------
+
+# ‘The Testaments’ Star Explains What Episode 6’s Shocking Reveals Mean for Aunt Lydia
+
+Exclusives, The Testaments, Ann Dowd, Chase Infiniti, The Handmaid's Tale
+
+Wed, 29 Apr 2026 16:00:13 GMT
+
+https://collider.com/the-testaments-episode-6-ann-dowd-interview-aunt-lydia-backstory/
+
+Ann Dowd discusses The Testaments, what the shocking Episode 6 reveals mean for Aunt Lydia, and why she wants to shut Gilead down.
+---------
+
+# 'Spider-Man: Brand New Day' Director Confirms Tobey Maguire & Andrew Garfield Influenced New Suit
+
+Movie News, Spider-Man: Brand New Day, Tobey Maguire, Andrew Garfield
+
+Wed, 29 Apr 2026 17:02:13 GMT
+
+https://movieweb.com/spider-man-suit-inspiration-tobey-maguire-andrew-garfield/
+
+Tom Holland's new suit in 'Spider-Man: Brand New Day' is confirmed to be influenced by Tobey Maguire and Andrew Garfield.
+---------
+
+# Taylor Sheridan's American Frontier Trilogy Resurrected an Entire Genre
+
+Features, Taylor Sheridan, Career Arc Reframe
+
+Wed, 29 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-american-frontier-trilogy/
+
+Taylor Sheridan's American Frontier trilogy movies, 'Sicario,' 'Hell or High Water,' and 'Wind River,' changed the Western genre for the better.
+---------
+
+# 'The Boys' Season 5, Episode 5 Recap & Review: The Season's Best Episode
+
+TV Reviews, The Boys
+
+Wed, 29 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/the-boys-season-5-episode-5-review-recap/
+
+'The Boys' Season 5, Episode 5 subverts its storytelling formula with a fresh (and gory) approach.
+---------
+
+# Netflix Thriller 'The Whisper Man' Starring Robert De Niro Gets First Look Images
+
+Movie News, The Whisper Man, Robert De Niro
+
+Wed, 29 Apr 2026 16:54:21 GMT
+
+https://movieweb.com/netflix-whisper-man-images-release-date/
+
+Robert De Niro stars in a Netflix new crime thriller adaptation alongside Adam Scott and Michelle Monaghan.
+---------
+
+# Survival Thriller Sequel 'Fall 2' Gets First Look Image
+
+Movie News, Fall 2, Fall, Thriller
+
+Wed, 29 Apr 2026 16:05:05 GMT
+
+https://movieweb.com/fall-2-first-look-image/
+
+A first look at the survival thriller sequel, 'Fall 2,' has revealed the new cast and a hair-raising change in setting.
+---------
+
+# 'The Office:' Michael Scott's Love Interests, Ranked
+
+TV Lists, The Office
+
+Wed, 29 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/the-office-michael-scotts-love-interests-ranked/
+
+Michael Scott has had many love interests during his time on the hit sitcom 'The Office,' and here are some of the best.
+---------
+
+# 'The Devil Wears Prada 2' Review: Meryl Streep Waited 20 Years for This?
+
+Movie Reviews, The Devil Wears Prada 2, Anne Hathaway, Meryl Streep
+
+Wed, 29 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/the-devil-wears-prada-2-review/
+
+A likable ensemble returns for a lighthearted mix of fashion, catfights, and commentary on modern journalism.
+---------
+
+# Jennifer Lawrence's Divisive & Very R-Rated Comedy 'No Hard Feelings' Is a Streaming Success on HBO Max
+
+Movie News, No Hard Feelings, HBO Max, Hot on Streaming, Jennifer Lawrence
+
+Wed, 29 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/no-hard-feelings-r-rated-streaming-success-hbo-april-2026/
+
+Jennifer Lawrence's R-rated comedy 'No Hard Feelings' is a major streaming success on HBO Max in the US.
+---------
+
+# Jared Padalecki’s ‘The Boys’ Season 5 Mister Marathon’s Speed, Explained
+
+Features, The Boys
+
+Wed, 29 Apr 2026 16:00:17 GMT
+
+https://movieweb.com/jared-padalecki-mister-marathon-the-boys-season-5-speed/
+
+Jared Padalecki plays Mister Marathon in 'The Boys' Season 5, which reunites him with 'Supernatural' cast members Jensen Ackles and Misha Collins.
+---------
+
+# James Gunn Explains Why Lex Luthor Doesn't Know 'Superman's Real Identity
+
+Movie News, Superman, James Gunn, DCU
+
+Wed, 29 Apr 2026 15:56:30 GMT
+
+https://movieweb.com/superman-identity-james-gunn-lex-luthor/
+
+Does it make sense that super-genius Lex Luthor hasn't figured out Superman's secret identity? James Gunn doesn't think so.
+---------
+
 # Joker Gets Cowboy Redesign in New Costume
 
 Comics, Joker, Batman, Wonder Woman, The Joker
