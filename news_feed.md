@@ -1,3 +1,311 @@
+# Glen Powell's Hit Netflix Jurassic Park Series Succeeds In Its Hardest Task
+
+TV, Jurassic Park, Jurassic World: Camp Cretaceous
+
+Wed, 29 Apr 2026 18:50:20 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-netflix-deaths-movies-comparison/
+
+Netflix's Jurassic Park series had a nearly impossible task, but it managed to succeed, and the Glen Powe show accomplished that with a lot of action.
+---------
+
+# HBO Max's 2-Part Sci-Fi Series That You Can Binge In 8 Hours Is One Of Its Best Space Shows
+
+Classic TV, Masked Recs
+
+Wed, 29 Apr 2026 18:45:18 GMT
+
+https://screenrant.com/avenue-5-hbo-max-hugh-laurie-sci-fi-space-show/
+
+One incredibly bingeworthy HBO Max TV show seamlessly blends science-fiction and hilarious satire to create a must-watch underrated gem.
+---------
+
+# All American Idol Season 5 Alums Returning For 20th Anniversary Episode (SPOILERS)
+
+Reality TV, American Idol
+
+Wed, 29 Apr 2026 18:33:45 GMT
+
+https://screenrant.com/american-idol-season-5-alums-returning-20th-anniversary-episode-taylor-elliott-paris-kellie-bucky-spoilers/
+
+On May 4, American Idol celebrates the 20th anniversary of season 5, and some beloved alums return to sing duets with the season 24 Top 5 finalists.
+---------
+
+# 8 TV Shows That Peaked In Season 2 Then Went Downhill
+
+Classic TV
+
+Wed, 29 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/tv-shows-peaked-season-2/
+
+These TV shows peaked in their second season, only to decline later in the run, and these factors contributed to their downhill trajectory.
+---------
+
+# The Elden Ring Movie Already Has A Perfect Sequel
+
+Gaming, Elden Ring, PC, Elden Ring: Shadow of the Erdtree
+
+Wed, 29 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/elden-ring-movie-shadow-of-the-erdtree-sequel/
+
+With the Elden Ring movie officially in development and set for a March 2028 release, we already have the perfect sequel lined up next.
+---------
+
+# Ted Lasso Season 4: The End Of An Era for Apple TV's Biggest Hit
+
+Streaming TV, Ted Lasso
+
+Wed, 29 Apr 2026 18:18:20 GMT
+
+https://screenrant.com/ted-lasso-season-4-proves-its-officially-the-end-of-an-era/
+
+Ted Lasso's upcoming fourth season marks the end of an era as the show introduces a women's team, leaving some fan favorites behind for new stories.
+---------
+
+# One Of The Greatest MMOs Of All Time Is About To Be Free For Millions Of People
+
+Gaming, RPG, PC, Live Service Games
+
+Wed, 29 Apr 2026 18:16:36 GMT
+
+https://screenrant.com/guild-wars-reforged-free-mobile-version/
+
+Only a select few MMOs manage to survive in the long-term, but a bona fide classic is about to release a new version that'll be even more accessible.
+---------
+
+# Daredevil: Born Again's Alternate Ending Is Officially Season 2's Biggest Twist
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 29 Apr 2026 18:15:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-daniel-death-alternate-ending-biggest-twist/
+
+Daredevil: Born Again was set to have an alternate ending that could have drastically impacted how season 3 of the show would shape up.
+---------
+
+# For All Mankind Season 5: Gordo Stevens' Warning Comes True
+
+Streaming TV, Op-Ed, For All Mankind
+
+Wed, 29 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/for-all-mankind-gordo-prediction-mars-mistake/
+
+The chaos on Mars in For All Mankind season 5 is what a dead character didn't want, but the mission to Titan could restore the show's original spirit.
+---------
+
+# Pokémon TCG Pocket: 10 Best Cards In Pulsing Aura
+
+Gaming, Pokemon Trading Card Game Pocket, Triple-A Games
+
+Wed, 29 Apr 2026 18:00:20 GMT
+
+https://screenrant.com/pokemon-tcg-pocket-best-cards-pulsing-aura/
+
+Pulsing Aura ushers in a ton of new cards for Pokémon TCG Pocket, and there are a lot of choices to make when it comes to spending pack points.
+---------
+
+# A Complete 2026 Timeline for That Time I Got Reincarnated As a Slime
+
+Anime, that time I got reincarnated as a slime, Isekai
+
+Wed, 29 Apr 2026 18:45:12 GMT
+
+https://www.cbr.com/that-time-i-go-reincarnated-as-a-slime-complete-2026-timeline/
+
+The continuity of That Time I Got Reincarnated As a Slime can be confusing, but it's essential that Isekai fans understand it.
+---------
+
+# DC's Lanterns Trailer Back Online, Reveal Release Date
+
+TV, Lanterns, DCU, HBO Max
+
+Wed, 29 Apr 2026 18:25:47 GMT
+
+https://www.cbr.com/lanterns-trailer-return-release-date-hbo-james-gunn-dcu-bruce-springsteen/
+
+The trailers for DC's HBO series Lanterns, which had been taken down from official channels, are back, and confirm the show's release date.
+---------
+
+# Disney+ Sets Live-Action Reboot of Casper the Friendly Ghost
+
+Movies, Casper the Friendly Ghost, Casper, Disney+
+
+Wed, 29 Apr 2026 18:19:40 GMT
+
+https://www.cbr.com/casper-the-friendly-ghost-live-action-reboot-disney/
+
+Disney+ will give an iconic animated character another live-action reboot.
+---------
+
+# One Piece: Best Imu Quotes, Ranked
+
+Anime, One Piece
+
+Wed, 29 Apr 2026 18:00:40 GMT
+
+https://www.cbr.com/best-one-piece-imu-quotes-ranked/
+
+One Piece's endgame villain is getting chattier as the Final Saga nears, revealing new details about the true nature of the demon king of the sea.
+---------
+
+# The Crime Drama Serpico is Al Pacino’s Greatest Performance
+
+Movies, Serpico
+
+Wed, 29 Apr 2026 18:00:13 GMT
+
+https://www.cbr.com/serpico-1973-al-pacino-70s-crime-drama/
+
+Based on a true story, Serpico is a classic Pacino with a twist. With several awards and nominations, Serpico remains one of Pacino’s best films.
+---------
+
+# One Marvel Comic Can Explain Robert Downey Jr.'s Doctor Doom
+
+Comics, Avengers: Doomsday (2026)
+
+Wed, 29 Apr 2026 18:00:13 GMT
+
+https://www.cbr.com/ultimates-4-robert-downey-jr-doctor-doom-connection/
+
+Avengers: Doomsday is still being kept tightly under wraps, but one recent comic may provide answers surrounding the iconic villain.
+---------
+
+# Transformers Reveals 4 New Anime-Accurate Takes on a Classic G1 Autobot
+
+Anime, Transformers, merchandise, toys
+
+Wed, 29 Apr 2026 17:32:19 GMT
+
+https://www.cbr.com/transformers-sideswipe-newage-toys-four-color-reveal/
+
+Newage Toys unleashes four different variants of Sideswipe from across the Transformers franchise.
+---------
+
+# Every Star Trek Movie Opening Scene, Ranked
+
+Movies, Star Trek, Star Trek: First Contact
+
+Wed, 29 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/every-star-trek-movie-opening-scene-ranked-list/
+
+From the earliest voyages of the Enterprise to modern-era adventures, here are all of the Star Trek movie opening scenes ranked.
+---------
+
+# 10 Classic SNES Games That Aren't As Good As You Remember
+
+Games, Nintendo, Video Games, Final Fantasy
+
+Wed, 29 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/classic-snes-games-that-are-unplayable-today/
+
+SNES classics from the 1990s like Super Mario Kart and The Lion King aren't nearly as great as fans remember.
+---------
+
+# The Boys Confirm Why People Still Look Up to Homelander
+
+TV, The Boys
+
+Wed, 29 Apr 2026 17:30:12 GMT
+
+https://www.cbr.com/the-boys-why-people-like-homelander/
+
+People look up to Homelander on The Boys because he's painted as a hero, but one character learned the hard way that they made the wrong choice.
+---------
+
+# Say Goodbye to Russell Crowe's 138-Minute Historical Epic on April 30
+
+Movie News, Russell Crowe, Noah, Darren Aronofsky, Peacock
+
+Wed, 29 Apr 2026 18:14:08 GMT
+
+https://collider.com/russell-crowe-historical-epic-noah-leaving-streaming-peacock-april-30-2026/
+
+Darren Aronofsky's Noah, starring Russell Crowe in the titular role, is leaving Peacock on April 30.
+---------
+
+# HBO Max's Most Anticipated Sci-Fi Series Finally Sets Release Date
+
+TV News, Lanterns, Kyle Chandler, Aaron Pierre, James Gunn
+
+Wed, 29 Apr 2026 18:05:27 GMT
+
+https://collider.com/james-gunn-dcu-sci-fi-series-lanterns-hbo-max-release-date-august-16-2026/
+
+James Gunn's highly-anticipated Lanterns finally has a release date, with the DCU sci-fi series debuting this Summer.
+---------
+
+# 'The Last of Us' Season 3's Game-Changing Shift Is About to Challenge Everything Fans Love About Its Heroes
+
+Exclusives, The Last of Us, Gabriel Luna, The Terminal List, HBO Max
+
+Wed, 29 Apr 2026 17:49:57 GMT
+
+https://collider.com/the-last-of-us-season-3-tommy-gabriel-luna-the-terminal-list-season-2/
+
+Gabriel Luna discusses filming for The Last of Us Season 3 and what fans of The Terminal List can expect from his Season 2 fan favorite character.
+---------
+
+# Prime Video's Best Sci-Fi Series Will Officially Return in 2027
+
+TV News, Invincible, Prime Video, Steven Yeun, Lee Pace
+
+Wed, 29 Apr 2026 17:26:30 GMT
+
+https://collider.com/prime-video-invincible-season-5-release-window-2027-voice-acting-complete-thragg-dinosaurus-return/
+
+Prime Video's Invincible is set to return in 2027, with Thragg and Dinosaurus confirmed to return. Read on for more.
+---------
+
+# HBO Confirms 'Lanterns' Release Date in Newly Updated Teaser Trailer
+
+TV News, Lanterns, DCU
+
+Wed, 29 Apr 2026 18:07:29 GMT
+
+https://movieweb.com/lanterns-release-date-hbo/
+
+The Green Lantern DCU reboot starring Aaron Pierre and Kyle Chandler is officially headed to HBO this August.
+---------
+
+# Tom Hardy's WWII Action Masterpiece 'Dunkirk' Lands on Peacock May 1
+
+Movie News, Tom Hardy, Dunkirk, War, Coming/Leaving Streaming
+
+Wed, 29 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/dunkirk-tom-hardy-streaming-peacock-may-2026/
+
+Hardy shines in director Christopher Nolan's epic WWII action classic that's based on a true story.
+---------
+
+# 10 Essential Anime Everyone Should Watch at Least Once
+
+TV Lists, Anime
+
+Wed, 29 Apr 2026 18:00:18 GMT
+
+https://movieweb.com/anime-essential-everyone-should-watch/
+
+These memorable and fantastic anime series should be watched by everyone, and they each tell powerful and creative stories.
+---------
+
+# 'The Devil Wears Prada 2' Lands Fresh Rotten Tomatoes Score
+
+Movie News, The Devil Wears Prada 2, Rotten Tomatoes
+
+Wed, 29 Apr 2026 17:42:52 GMT
+
+https://movieweb.com/devil-wears-prada-2-rotten-tomatoes/
+
+Critics were quite positive in their Rotten Tomatoes reviews for 20th Century Studios' 'The Devil Wears Prada 2.'
+---------
+
 # Fox's 5-Part Crime Thriller That's Designed To Be Binged Is Quietly One Of Its Best Sci-Fi Shows
 
 Classic TV, Masked Recs
