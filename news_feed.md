@@ -1,3 +1,256 @@
+# Frank's "Massive Sacrifice" For Brianna In Outlander Season 8 Episode 8 Explained By Star
+
+TV, Outlander
+
+Wed, 29 Apr 2026 22:47:43 GMT
+
+https://screenrant.com/outlander-season-8-episode-8-frank-brianna-sacrifice-sophie-skelton/
+
+Outlander star reveals what Frank's "massive sacrifice" for Briana means and how it will affect the story going forward in its final season.
+---------
+
+# MCU Phase 3 Hero's Return Is The Closest It Has Ever Been After New Marvel Reveal
+
+Superheroes, Marvel Cinematic Universe, Daredevil: Born Again, Daredevil
+
+Wed, 29 Apr 2026 22:41:21 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-mike-colter-luke-cage-return/
+
+A major Daredevil: Born Again season 2 reveal has teased that the return of a hero introduced back in the MCU's Phase 3 is closer than ever.
+---------
+
+# Saros Shattered Rise Guide: Biome 1 Tips & Strategies
+
+Gaming, Saros, Triple-A Games
+
+Wed, 29 Apr 2026 22:37:33 GMT
+
+https://screenrant.com/saros-shattered-rise-guide-tips-strategy/
+
+Saros throws you into the fray with an excursion through Carcosa's Shattered Rise region, but knowing some basic strategies will get you through.
+---------
+
+# Apple TV's New Sci-Fi Adaptation Will Make Silo & Dark Matter Feel Small
+
+TV, Apple TV, Neuromancer, Silo, Dark Matter
+
+Wed, 29 Apr 2026 22:33:19 GMT
+
+https://screenrant.com/neuromancer-apple-tv-sci-fi-series-feel-small/
+
+Compared to earlier hits like Silo and Dark Matter, Apple TV's upcoming cyberpunk series will be its most complex and ambitious sci-fi show.
+---------
+
+# Marvel Teases The Punisher's Death With Gruesome Glimpse At New Series
+
+Marvel Comics, The Punisher, Marvel
+
+Wed, 29 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/marvel-killing-off-punisher-twist/
+
+Marvel provides the first glimpse at the Punisher's possible death, with Frank Castle deciding to put a definitive end to his painful crusade.
+---------
+
+# GTA 6 Trailer 3 Official Update Splits Gamers
+
+Gaming, Rockstar Games, Grand Theft Auto, Grand Theft Auto 6
+
+Wed, 29 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/gta-6-trailer-3-official-update-take-two/
+
+As Grand Theft Auto VI's release date approaches, fans are impatient for new gameplay reveals from Rockstar, raising concerns about potential delays.
+---------
+
+# Dexter: Resurrection Season 2 Officially Casts Actor For 2 Of Horror’s Most Iconic Serial Killers
+
+TV, Dexter: Resurrection, Dexter
+
+Wed, 29 Apr 2026 22:16:21 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-kane-hodder-casting/
+
+Dexter: Resurrection season 2 officially casts an actor known for playing two of the most iconic serial killers in the history of horror.
+---------
+
+# Dutton Ranch: Beth & Rip's Bloody New Chapter In Yellowstone Universe
+
+Streaming TV, Yellowstone, Dutton Ranch
+
+Wed, 29 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/dutton-ranch-yellowstone-train-station-replacement/
+
+Taylor Sheridan's Yellowstone universe is rapidly expanding, but it needs to find a replacement for one key subplot in the original series.
+---------
+
+# 8 Near-Perfect Time Loop Movies That Do Something Different
+
+Movies
+
+Wed, 29 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/near-perfect-sci-fi-movies-time-loop-unique/
+
+Movie fans love a time loop story. Movie fans love a time loop story.
+---------
+
+# New D&D Subclass Has A Free Game-Breaking Update
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Wed, 29 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/dnd-new-subclass-venom-monk-free-update-broken/
+
+A new subclass is set to arrive soon in Dungeons and Dragons, bringing forth a free update that will surely break the game during combat encounters.
+---------
+
+# Christopher Nolan's The Odyssey Is Shorter Than Oppenheimer
+
+Movies, The Odyssey, Oppenheimer, Fantasy
+
+Wed, 29 Apr 2026 22:44:10 GMT
+
+https://www.cbr.com/christopher-noaln-the-odyssey-shorter-than-oppenheimer/
+
+Christopher Nolan's adaptation of the mythological epic The Odyssey is shorter than his Oscar-winning biopic, Oppenheimer.
+---------
+
+# Kenneth Branagh Wants to Give Thor the Logan Treatment
+
+Movies, Thor, Marvel Cinematic Universe, thor
+
+Wed, 29 Apr 2026 22:30:59 GMT
+
+https://www.cbr.com/thor-sequel-kenneth-branagh-logan-mcu/
+
+Marvel's original Thor director has as sequel idea that would give Chris Hemsworth a godly sendoff.
+---------
+
+# Aunt Lydia's Biggest Changes Since The Handmaid's Tale, Explained by Ann Dowd
+
+CBR Exclusives, The Testaments, The Handmaid's Tale, Hulu
+
+Wed, 29 Apr 2026 22:30:13 GMT
+
+https://www.cbr.com/ann-dowd-aunt-lydia-changes-handmaids-tale-the-testaments-explained/
+
+Is Aunt Lydia ready to atone for her sins?
+---------
+
+# Anime Where the Most Popular Character Is the Biggest Writing Problem
+
+Anime, Jujutsu Kaisen, Naruto
+
+Wed, 29 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/anime-popular-characters-biggest-writing-problem/
+
+These anime characters draw attention, but they also complicate the plot around them.
+---------
+
+# Andy Serkis Reveals Animal Farm's Original, Darker Version
+
+Movies, Animal Farm
+
+Wed, 29 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/animal-farm-andy-serkis-dark-original-idea/
+
+The new Animal Farm adaptation was almost an Orwellian nightmare.
+---------
+
+# The Drama Proves Zendaya and Robert Pattinson Are a Power Couple
+
+Movies, The Drama
+
+Wed, 29 Apr 2026 22:00:12 GMT
+
+https://www.cbr.com/the-drama-zendaya-robert-pattinson-hollywood-power-couple/
+
+A24's acclaimed dark romantic comedy, The Drama, is just the beginning for Zendaya and Robert Pattinson starring vehicles in 2026.
+---------
+
+# Ving Rhames Hospitalized After Medical Emergency
+
+Movies, Mission: Impossible
+
+Wed, 29 Apr 2026 21:51:45 GMT
+
+https://www.cbr.com/ving-rhames-collapses-hospitalized/
+
+Ving Rhames was rushed to the hospital after suffering a medical emergency.
+---------
+
+# Fan-Favorite Video Game Movie Surges on Streaming Ahead of Prime Video's Reboot
+
+Movie News, Tomb Raider, HBO Max, Action, Alicia Vikander
+
+Wed, 29 Apr 2026 22:30:13 GMT
+
+https://collider.com/tomb-raider-video-game-movie-streaming-success-hbo-max-april-2026/
+
+A $275M video game reboot hits HBO Max as Prime Video's new adaptation faces backlash, delays, and rising fan controversy online.
+---------
+
+# 10 Greatest Psychological Thrillers of the Last 15 Years, Ranked
+
+Movie, Thriller, A Different Man, Parasite, Prisoners
+
+Wed, 29 Apr 2026 22:22:13 GMT
+
+https://collider.com/best-psychological-thriller-movies-last-15-years/
+
+The past 15 years have seen the release of several exceptional psychological thrillers, including Nightcrawler, Gone Girl, and Anatomy of a Fall.
+---------
+
+# All 9 New Supes in 'The Boys' Season 5, Ranked
+
+TV, The Boys, Prime Video, Superhero, Drama
+
+Wed, 29 Apr 2026 22:04:12 GMT
+
+https://collider.com/the-boys-season-5-new-supes-ranked/
+
+From Daveed Diggs' Oh-Father to Jared Padalecki's highly anticipated Mister Marathon, which new Season 5 Supe is the best in Prime Video's The Boys?
+---------
+
+# Apple TV’s Most-Anticipated Sci-Fi Spin-Off Officially Debuts on May 29
+
+TV News, Star City, For All Mankind, Chernobyl, Apple TV
+
+Wed, 29 Apr 2026 22:01:13 GMT
+
+https://collider.com/apple-tv-for-all-mankind-spin-off-star-city-sci-fi-series-release-date-may-29-2026-how-to-watch/
+
+Apple TV's next big sci-fi series, Star City, is only a month away from release. Find out when you can watch it.
+---------
+
+# 10 Most Perfect War Movie Endings, Ranked
+
+Movie, War, Apocalypse Now, All Quiet on the Western Front, 300
+
+Wed, 29 Apr 2026 21:51:13 GMT
+
+https://collider.com/war-movie-endings-best/
+
+From All Quiet on the Western Front to Apocalypse Now, these war movies have the absolute best endings of all time.
+---------
+
+# 'Hokum' Review: Adam Scott Delivers Terrifying Horror Mystery With Brutal Twists
+
+4 star movies, Hokum
+
+Wed, 29 Apr 2026 22:01:43 GMT
+
+https://movieweb.com/hokum-review-april-2026/
+
+Writer/director Damian McCarthy delivers brutal twists and spine-tingling suspense in 'Hokum.'
+---------
+
 # HBO’s 5-Part Masterpiece That Paved The Way For The Last Of Us Returns With Worldwide Streaming Success
 
 TV, Masked Recs
