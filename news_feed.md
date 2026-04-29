@@ -1,3 +1,278 @@
+# Why Goro Miyazaki's New Ghibli Short Could Be His Most Important Work Yet
+
+Anime
+
+Wed, 29 Apr 2026 04:42:40 GMT
+
+https://screenrant.com/studio-ghibli-new-goro-miyazaki-anime/
+
+Goro Miyazaki's directorial career has been scrutinized due to the influence of Miyazaki's legacy. But his new film might be a genuine tipping point.
+---------
+
+# Mariska Hargitay Confirms A Benson & Stabler Kiss Scene Was Filmed
+
+TV, Law & Order: Special Victims Unit
+
+Wed, 29 Apr 2026 03:46:58 GMT
+
+https://screenrant.com/law-order-svu-benson-stabler-kiss-filmed-mariska-hargitay-confirm/
+
+Law and Order: SVU star Mariska Hargitay reveals that a kiss scene was filmed in season 24 between Benson and Stabler (Christopher Meloni).
+---------
+
+# Gen V’s Cancellation Hurts More After Its Characters’ The Boys Season 5 Absence
+
+Streaming TV, Gen V, The Boys
+
+Wed, 29 Apr 2026 03:45:24 GMT
+
+https://screenrant.com/gen-v-the-boys-cancellation-season-5-absence/
+
+Gen V’s cancellation after season 2 is disappointing in itself, but it seems even more of a letdown because of its characters’ absence in The Boys S5.
+---------
+
+# Stephen King’s Pet Sematary Meets Death Note In Netflix’s New 8-Part Thriller
+
+Streaming TV, Masked Recs
+
+Wed, 29 Apr 2026 03:31:21 GMT
+
+https://screenrant.com/netflix-if-wishes-could-kill-recommendation/
+
+Netflix’s new 8-part thriller seems to combines some of the underlying themes from Stephen King’s Pet Sematary with the Death Note anime’s rules.
+---------
+
+# Steam Adds 4 Brand-New Free Games You Can Keep Forever, No Catch
+
+Gaming, Steam, PC, Indie
+
+Wed, 29 Apr 2026 03:01:23 GMT
+
+https://screenrant.com/steam-4-free-games-april-2026-download-no-subscription/
+
+Players looking for free-to-play options on Steam can now claim and keep four games without having to spend a single penny, no strings attached.
+---------
+
+# One Of The Best Lovecraft Shows Is An Unexpected 8-Part Thriller That Isn’t Even Horror
+
+Streaming TV, Masked Recs
+
+Wed, 29 Apr 2026 02:47:06 GMT
+
+https://screenrant.com/true-detective-lovecraft-horror-show/
+
+One of the greatest Lovecraftian TV shows out there is surprisingly an 8-part crime thriller that does not even qualify to be in the horror genre.
+---------
+
+# Lost Star Is Still Upset About Brutal Plot Twist 20 Years Later
+
+TV, Lost, Lost - Season 2
+
+Wed, 29 Apr 2026 02:37:50 GMT
+
+https://screenrant.com/lost-michael-kill-ana-lucia-libby-twist-upset-20-year-later/
+
+Even though this brutal plot twist happened 20 years ago now, one Lost star is still upset by it and remains adamant about not speaking to a co-star.
+---------
+
+# 10 Biggest Easter Eggs, MCU References, and Netflix Nods in Daredevil: Born Again Season 2, Episode 7
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 29 Apr 2026 02:23:25 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-7-easter-eggs-and-references/
+
+Daredevil: Born Again season 2, episode 7 has been released, featuring some great Easter eggs, MCU connections, and nods to the previous Netflix era.
+---------
+
+# Reacher’s End Of Era In 2026 Proves Alan Ritchson’s Character Has Changed Forever
+
+Streaming TV, Reacher, Alan Ritchson
+
+Wed, 29 Apr 2026 02:15:16 GMT
+
+https://screenrant.com/reacher-end-era-alan-ritchson-character-change/
+
+Prime Video’s Reacher is finally reaching the end of a crucial era in 2026, revealing how Alan Ritchson’s character will never be the same again.
+---------
+
+# Tubi Officially Adds All 3 Seasons of Colony in May 2026
+
+TV, Colony
+
+Wed, 29 Apr 2026 03:51:15 GMT
+
+https://www.cbr.com/colony-streaming-tubi-may-2026/
+
+All three seasons of the sci-fi drama Stephen King called "something special" can be streamed for free.
+---------
+
+# One Piece Chapter 1181 Reveals the Power System Behind Imu's Devil Fruit
+
+Anime, One Piece
+
+Wed, 29 Apr 2026 03:49:38 GMT
+
+https://www.cbr.com/one-piece-elbaph-arc-imu-devil-fruit-full-reveal/
+
+The Elbaph Arc just changed everything with the introduction of a new power system tied to One Piece's darkest Devil Fruit.
+---------
+
+# Only 3 Sci-Fi Movies in the 2020s Can Be Considered True Masterpieces
+
+Movies, Sci-Fi, Project Hail Mary, Jordan Peele
+
+Wed, 29 Apr 2026 03:45:18 GMT
+
+https://www.cbr.com/greatest-sci-fi-movies-2020s/
+
+The 2020s haven't delivered sci-fi fans as many masterpieces as they'd like, but a few have distinguished themselves among the genre's finest.
+---------
+
+# 10 Things About Bones That Make No Sense
+
+TV, Bones, fox, Crime
+
+Wed, 29 Apr 2026 03:31:14 GMT
+
+https://www.cbr.com/bones-details-make-no-sense-list/
+
+Bones is still loved by fans, but even die-hard viewers can't ignore some of the stranger elements that still make no sense.
+---------
+
+# Strongest Pokémon That Aren’t Legendary
+
+Games, Pokemon
+
+Wed, 29 Apr 2026 03:15:14 GMT
+
+https://www.cbr.com/strongest-pokemon-that-arent-legendary/
+
+Legendary and Mythical Pokémon are the mightiest of the bunch, but a handful of regular Pokémon can be just as powerful under the right circumstances.
+---------
+
+# Gundam's Weirdest Mecha Returns With New High Grade Gunpla Model Kit
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Unicorn, merchandise, toys, bandai
+
+Wed, 29 Apr 2026 03:01:17 GMT
+
+https://www.cbr.com/gundam-unicorn-dra-c-gunpla-release/
+
+Almost a decade and a half after its initial release, Gundam's strangest (and some might even say ugliest) Gunpla model kit makes its official return.
+---------
+
+# Jordan Peele's Forgotten Horror Gem Him Finds New Life On Netflix
+
+Movies, Him, Horror, Jordan Peele
+
+Wed, 29 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/jordan-peele-forgotten-horror-movie-netflix/
+
+Jordan Peele's forgotten horror movie gem is suddenly climbing the Netflix ranks.
+---------
+
+# 6 Best Shonen Anime On Netflix in 2026
+
+Anime, One Piece, Hunter X Hunter
+
+Wed, 29 Apr 2026 02:45:12 GMT
+
+https://www.cbr.com/best-shonen-anime-on-netflix-2026/
+
+Netflix is a great streaming service for anime fans, particularly those looking for the best Shonen series.
+---------
+
+# 10 Most Perfect Turn-Based RPGs You Cannot Miss
+
+Games, Role Playing Game, Marvel, Persona
+
+Wed, 29 Apr 2026 02:15:14 GMT
+
+https://www.cbr.com/most-perfect-turn-based-rpgs-you-cannot-miss/
+
+Turn-based RPG like Mewgenics and Persona 5 are simply unmissable by every measure.
+---------
+
+# 7 Best Stephen King Movies and Shows on Netflix, Ranked
+
+Movie, Stephen King, Netflix, Gerald's Game, Castle Rock
+
+Wed, 29 Apr 2026 04:27:10 GMT
+
+https://collider.com/best-stephen-king-movies-shows-netflix-ranked/
+
+In the Tall Grass, 1922, Gerald's Game, 11.22.63, Castle Rock, and more make up our list of the best Stephen King movies and shows on Netflix.
+---------
+
+# 10 Most Realistic Sci-Fi Movies of All Time, Ranked
+
+Movie, 2001: A Space Odyssey, Children of Men, Ex Machina, Moon
+
+Wed, 29 Apr 2026 04:15:14 GMT
+
+https://collider.com/most-realistic-sci-fi-movies-all-time-ranked/
+
+If you're after realistic sci-fi movies, it's well worth checking out masterpieces like 2001: A Space Odyssey, Children of Men, and Primer.
+---------
+
+# David Duchovny’s Best 7-Part Series Quietly Becomes a Late-Night Favorite 12 Years Later
+
+TV Features, David Duchovny, Californication, Natascha McElhone, Showtime
+
+Wed, 29 Apr 2026 04:03:22 GMT
+
+https://collider.com/david-duchovny-californication-late-night-streaming-apple-tv/
+
+David Duchovny's Californication transcended his X-Files legacy, delivering a poignant and raunchy series that remains a hidden gem on streaming.
+---------
+
+# Margot Robbie, Chris Pine, & Chiwetel Ejiofor Teamed Up for This Underrated Sci-Fi Thriller No One Ever Talks About
+
+Movie Features, Z For Zachariah, Margot Robbie, Chris Pine, Chiwetel Ejiofor
+
+Wed, 29 Apr 2026 03:27:15 GMT
+
+https://collider.com/z-for-zachariah-movie-margot-robbie-chris-pine-chiwetel-ejiofor/
+
+Z for Zachariah trades familiar tropes for a deeply introspective sci-fi thriller starring Margot Robbie, Chris Pine, and Chiwetel Ejiofor.
+---------
+
+# 6 Things 'The Devil Wears Prada 2' Needs to Have
+
+Movie, The Devil Wears Prada 2, The Devil Wears Prada, Meryl Streep, Anne Hathaway
+
+Wed, 29 Apr 2026 03:19:09 GMT
+
+https://collider.com/the-devil-wears-prada-2-must-haves/
+
+From more fashion and cameos to better friends for Andy and fresh challenges for Miranda, here are the things The Devil Wears Prada 2 must have.
+---------
+
+# ‘Harry Potter’ Star Leaves the Fantasy World Behind for New Star-Studded Thriller
+
+Movie News, Prime Video, Harry Potter, Hudson Williams, Charlize Theron
+
+Wed, 29 Apr 2026 02:31:11 GMT
+
+https://collider.com/harry-potter-paapa-essiedu-heated-rivalry-hudson-williams-cast-prime-video-thriller-tyrants/
+
+Harry Potter's Paapa Essiedu is moving to Amazon for a new thriller, Tyrant, which co-stars Heated Rivalry's Hudson Williams.
+---------
+
+# The Star of TV's Best Sci-Fi Horror Series Responds to Cancellation Claims
+
+TV News, From, MGM, Harold Perrineau, Sci-Fi
+
+Wed, 29 Apr 2026 02:15:15 GMT
+
+https://collider.com/from-season-5-cancellation-harold-perrineau-response/
+
+Harold Perrineau explains why From will be coming to an end after 5 critically acclaimed seasons.
+---------
+
 # Netflix’s New K-Drama Is ‘Business Proposal Meets Hometown Cha-Cha-Cha’ (#4 Trending Worldwide)
 
 Streaming TV, K-Drama
