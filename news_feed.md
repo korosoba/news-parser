@@ -1,3 +1,256 @@
+# James Gunn's Creature Commandos: A Promising Tease of the DCU's Future
+
+Streaming TV, Masked Recs
+
+Wed, 29 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/creature-commandos-hbo-max-dc-near-perfect-rt-score/
+
+James Gunn's DC Universe got off to a strong start with its official first entry, Creature Commandos, a near-perfect animated series on HBO Max.
+---------
+
+# 10 Incredible Pokémon Easter Eggs Even Diehard Fans Overlook
+
+Gaming, Pokemon
+
+Wed, 29 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/best-pokemon-easter-eggs-for-diehard-fans/
+
+From rare in-game animations to clever character cameos, some of Pokemon's most impressive easter eggs are criminally overlooked by fans.
+---------
+
+# Why There's No New Abbott Elementary Tonight (April 29) & When Fresh Episodes Release
+
+Network TV, Abbott Elementary, ABC
+
+Wed, 29 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/abbott-elementary-no-new-episode-april-29-2026-season-6-release/
+
+Abbott Elementary season 5, episode 22 ended great for Janine and her co-workers, but it will be a while before what comes next for them is revealed.
+---------
+
+# 7 Years Later, Galaxy’s Edge Finally Features Every Major Star Wars Era
+
+Star Wars, Disneyland, Marvel
+
+Wed, 29 Apr 2026 19:57:24 GMT
+
+https://screenrant.com/disneyland-star-wars-galaxys-edge-update-now-open-original-trilogy/
+
+Seven years after Galaxy's Edge first opened, Disney's Star Wars-themed land is finally making changes that should have been featured from the start.
+---------
+
+# Will Smith & Margot Robbie's Crime Thriller That Grossed 3x Its Budget Steals Top 10 Streaming Spot
+
+Movies, Masked Recs, Will Smith, Margot Robbie, Streaming Charts
+
+Wed, 29 Apr 2026 19:49:41 GMT
+
+https://screenrant.com/will-smith-margot-robbie-movie-focus-streaming-success/
+
+A crime thriller starring Oscar nominee Margot Robbie and Oscar winner Will Smith becomes a streaming hit years after its successful theatrical run.
+---------
+
+# All 7 Cameos & Guest Stars In The Boys Season 5, Episode 5
+
+Streaming TV, The Boys
+
+Wed, 29 Apr 2026 19:45:19 GMT
+
+https://screenrant.com/the-boys-season-5-cameos-guest-stars/
+
+The Boys season 5, episode 5 features a different kind of story for the show, one that allows for several celebrity cameos and guest stars.
+---------
+
+# Netflix's 3-Part Fantasy Series That's 'Stranger Things Meets One Piece' Is One Of Its Best
+
+TV, Masked Recs, Stranger Things, One Piece, Netflix
+
+Wed, 29 Apr 2026 19:30:19 GMT
+
+https://screenrant.com/sweet-tooth-show-netflix-fantasy-one-piece-meets-stranger-things/
+
+There are many differences between Stranger Things and One Piece, but one underrated Netflix masterpiece blended their shared appeal perfectly.
+---------
+
+# 400-Year-Old Epic Unadaptable Novel Finally Getting Movie But There's A Major Catch
+
+Movies
+
+Wed, 29 Apr 2026 19:18:33 GMT
+
+https://screenrant.com/paradise-lost-movie-adaptation-ai-roger-avary/
+
+A 400-year-old epic novel that was previously thought to be unadaptable is finally getting a feature film adaptation, but there is a major catch.
+---------
+
+# Apple TV's New Stephen King-Like Horror Series Has A Secret Connection To 7-Part Classic Sitcom
+
+TV, Widow's Bay, Widow's Bay - Season 1, Horror, Apple TV
+
+Wed, 29 Apr 2026 19:04:23 GMT
+
+https://screenrant.com/widows-bay-apple-tv-parks-and-recreation-connection-creator/
+
+Exclusive: The creator of Apple TV's new Stephen King-like horror series explains the secret connection the show has to a classic sitcom.
+---------
+
+# Euphoria's Red Wedding Has Nothing On Margo's Got Money Troubles
+
+Streaming TV, Margo's Got Money Troubles, Euphoria
+
+Wed, 29 Apr 2026 19:00:20 GMT
+
+https://screenrant.com/margos-got-money-troubles-better-wedding-episode-euphoria-season-3/
+
+The latest episode of Euphoria season 3 featured Nate and Cassie's shocking wedding, but this new Apple TV show featured a better ceremony.
+---------
+
+# Netflix's Unchosen Defeats Running Point & Beef to No. 1
+
+TV, Unchosen, Beef, Running Point, Netflix
+
+Wed, 29 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/unchosen-defeats-beef-running-point-netflix-global-success-april-2026/
+
+The new psychological thriller has defeated two already-established Netflix series.
+---------
+
+# Indiana Jones and the Dial of Destiny Confims Indy Belongs in the Past
+
+Movies, Indiana Jones and the Dial of Destiny
+
+Wed, 29 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/indiana-jones-dial-of-destiny-time-travel-big-mistake/
+
+Indiana Jones and the Dial of Destiny wasn't the greatest Indy film, but the film failed to capitalize on its best moment.
+---------
+
+# Hugh Jackman's The Sheep Detectives Earns Best RT Score in 7 Years
+
+Movies, The Sheep Detectives, Rotten Tomatoes
+
+Wed, 29 Apr 2026 19:17:24 GMT
+
+https://www.cbr.com/the-sheep-detectives-rotten-tomatoes-score/
+
+Hugh Jackman's newest movie is one of the Wolverine actor's very best of all time, according to critics.
+---------
+
+# Dragon Ball Finally Brings Back Master Roshi's Strongest Form
+
+Anime, Dragon Ball, merchandise
+
+Wed, 29 Apr 2026 19:05:13 GMT
+
+https://www.cbr.com/dragon-ball-master-roshi-banpresto-solid-edge-works-release/
+
+The next hit Dragon Ball release gives fans the chance to take home Master Roshi at his strongest, and they won't have to wait long to get it.
+---------
+
+# 10 Most Perfect Cult Classic Movies Of All Time, Ranked
+
+Movies, The Big Lebowski, The Thing
+
+Wed, 29 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/greatest-cult-classic-movies-of-all-time-list/
+
+Hollywood has no shortage of films that bombed at the box office before garnering some of the most devoted cult followings in cinema.
+---------
+
+# The Boys Season 5: Sister Sage Can Beat Homelander at His Own Game
+
+TV, The Boys
+
+Wed, 29 Apr 2026 19:00:12 GMT
+
+https://www.cbr.com/the-boys-season-5-sister-sage-can-beat-homelander/
+
+Homelander is the most powerful Supe on Earth, or is he? Even Soldier Boy may be no match for this Supe, who is seemingly already winning.
+---------
+
+# Jensen Ackles Reveals Supernatural Prepared Him for the Reunion on The Boys
+
+TV, The Boys, Supernatural, Jensen Ackles
+
+Wed, 29 Apr 2026 18:56:36 GMT
+
+https://www.cbr.com/jensen-ackles-supernatural-prepared-reunion-the-boys/
+
+Six years after the Supernatural finale, the lead stars are back together and it's more explosive than ever.
+---------
+
+# Christopher Nolan Officially Confirms His New Fantasy Epic Is Shorter Than His WWII Masterpiece
+
+Movie News, Oppenheimer, Christopher Nolan, The Odyssey, Matt Damon
+
+Wed, 29 Apr 2026 20:00:12 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-runtime-shorter-than-oppenheimer-pressure/
+
+Christopher Nolan says The Odyssey is shorter than Oppenheimer, but still an epic film worthy of Homer’s classic story.
+---------
+
+# 10 Greatest Dark Fantasy Movie Masterpieces of All Time, Ranked
+
+Movie, Fantasy, Pan's Labyrinth, Guillermo del Toro’s Pinocchio, Conan the Barbarian
+
+Wed, 29 Apr 2026 19:20:12 GMT
+
+https://collider.com/best-dark-fantasy-movie-masterpieces-all-time-ranked/
+
+From The Dark Crystal to Pan's Labyrinth, these are the greatest dark fantasy movies ever made, dealing with bleaker, more mature and macabre issues.
+---------
+
+# Horror Thriller 'Hokum' Lands Impressive Rotten Tomatoes Score Ahead of Theatrical Release
+
+Movie News, Horror, Hokum, Adam Scott
+
+Wed, 29 Apr 2026 19:50:07 GMT
+
+https://movieweb.com/hokum-rotten-tomatoes/
+
+Neon's latest folk horror starring Emmy-nominated 'Severance' actor Adam Scott hits theaters this weekend.
+---------
+
+# 'The Boys' Installs Jared Padalecki & Misha Collins' New Characters Deep Into the Show's History
+
+Features, The Boys, Supernatural
+
+Wed, 29 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/the-boys-supernatural-reunion-perfect/
+
+'Supernatural' fans will have been thrilled to see 'The Boys' reunite the hit show's beloved trio, but it did so much more than that.
+---------
+
+# Stephen King's 'Castle Rock' Is the Perfect Show for Weekend Binge-Watching
+
+Features, Stephen King, Castle Rock, Thriller
+
+Wed, 29 Apr 2026 19:00:18 GMT
+
+https://movieweb.com/stephen-king-castle-rock-supernatural-thriller/
+
+Stephen King's 'Castle Rock' is an astounding TV show, and whether you're a fan of the King of Horror or not, you'll easily find something to enjoy.
+---------
+
+# Kurt Russell Reflects on MindUP's Science-Based Approach to Improving Mental Health
+
+Interviews, Kurt Russell, Goldie Hawn
+
+Wed, 29 Apr 2026 18:58:20 GMT
+
+https://movieweb.com/kurt-russell-interview-mindup-goldie-hawn-foundation/
+
+Goldie Hawn launched the MindUP program, with Russell set to attend a screening of 'The Thing' with proceeds going to MindUP.
+---------
+
 # Glen Powell's Hit Netflix Jurassic Park Series Succeeds In Its Hardest Task
 
 TV, Jurassic Park, Jurassic World: Camp Cretaceous
