@@ -1,3 +1,322 @@
+# Joker Gets Cowboy Redesign in New Costume
+
+Comics, Joker, Batman, Wonder Woman, The Joker
+
+Wed, 29 Apr 2026 15:48:38 GMT
+
+https://screenrant.com/joker-new-costume-cowboy/
+
+The Joker gets a brand-new costume in DC's newest comic that is perfectly fitting for his character, but took a shocking 86 years to finally happen.
+---------
+
+# Final Fantasy 7 Remake Part 3 Official Release Update Confirms It's Nearly Time
+
+Gaming, Final Fantasy 7 Remake, Final Fantasy 7 Rebirth, Final Fantasy 7, Square Enix
+
+Wed, 29 Apr 2026 15:41:50 GMT
+
+https://screenrant.com/final-fantasy-7-remake-part-3-release-update-april-2026/
+
+Final Fantasy 7 Remake Part 3 is getting closer, and with it comes the end of a truly surprising trilogy.
+---------
+
+# Sword Art Online's New Movie Finally Gets Major Update
+
+Anime, Sword Art Online
+
+Wed, 29 Apr 2026 15:36:31 GMT
+
+https://screenrant.com/sword-art-online-isekai-movie-july-2026/
+
+Sword Art Online fans finally get good news.
+---------
+
+# Chris Evans Officially Replaces Josh Brolin In New Star-Studded Crime Thriller
+
+Movies, Chris Evans
+
+Wed, 29 Apr 2026 15:34:37 GMT
+
+https://screenrant.com/chris-evans-my-darling-california-crime-thriller-casting/
+
+Captain America star Chris Evans steps in for the departing Josh Brolin in the new star-studded crime thriller from the director of Magazine Dreams.
+---------
+
+# PlayStation Plus Free Games For May 2026 Officially Revealed
+
+Gaming, PlayStation Plus
+
+Wed, 29 Apr 2026 15:32:34 GMT
+
+https://screenrant.com/playstation-plus-may-2026-games-essential-lineup/
+
+PlayStation Plus has officially unveiled its May 2026 lineup of Essential games, which members of all tiers can access at no additonal cost.
+---------
+
+# Daredevil: Born Again Season 2's Alternate Ending For Key Character Revealed After Episode 7 Death
+
+TV, Daredevil: Born Again, Daredevil: Born Again - Season 2, Daredevil, Michael Gandolfini
+
+Wed, 29 Apr 2026 15:32:22 GMT
+
+https://screenrant.com/daredevil-born-again-daniel-death-alternate-ending-michael-gandolfini-response/
+
+A Daredevil: Born Again season 2 character’s shocking demise in the most recent episode almost had a very different ending, as explained by the actor.
+---------
+
+# 10 Hit Comedy Movies That Have Aged Like Milk
+
+Movies, Comedy
+
+Wed, 29 Apr 2026 15:30:17 GMT
+
+https://screenrant.com/hit-comedy-movies-aged-like-milk/
+
+Comedy is a tricky genre, and many movies don't stand the test of time. These 10 comedy hits haven't just aged poorly, they've aged like milk.
+---------
+
+# Friends' Gradual Joey Retcon Turned Matt LeBlanc's Character Into A Parody
+
+Classic TV, Friends
+
+Wed, 29 Apr 2026 15:30:17 GMT
+
+https://screenrant.com/friends-joey-change-worse-less-intelligent/
+
+Joey Tribbiani's wild personality change on Friends turned him from a street-smart and cheeky member of the group into a painful caricature.
+---------
+
+# Marvel Just Gave DC the Perfect Shout-Out
+
+Marvel Comics, Marvel, DC Comics
+
+Wed, 29 Apr 2026 15:15:22 GMT
+
+https://screenrant.com/marvel-copy-dc-lore-new-gods-kirby/
+
+Marvel and DC just combined in a perfect callback.
+---------
+
+# Robert De Niro's New Netflix Crime Movie The Whisper Man Revealed In First Look Images
+
+Movies, The Whisper Man, Robert De Niro
+
+Wed, 29 Apr 2026 15:06:40 GMT
+
+https://screenrant.com/the-whisper-man-movie-robert-de-niro-netflix-images/
+
+Robert De Niro's new Netflix crime movie, titled The Whisper Man, has been revealed in first look images of his latest project with the studio.
+---------
+
+# Avatar: The Last Airbender Stuck With Unwanted Milestone for a 2nd Straight Week
+
+Anime, Avatar: The Last Airbender, The Legend of Aang: The Last Airbender
+
+Wed, 29 Apr 2026 15:30:25 GMT
+
+https://www.cbr.com/avatar-last-airbender-legend-of-aang-unwanted-milestone-week-2/
+
+The most highly anticipated Avatar: The Last Airbender release of the year is stuck with one of the worst possible records for a second week in a row.
+---------
+
+# 10 Most Perfect Isekai Anime of the Last 5 Years
+
+Anime, Isekai, Mushoku Tensei: Jobless Reincarnation, Uncle From Another World, Tsukimichi: Moonlit Fantasy
+
+Wed, 29 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/best-isekai-anime-last-5-years/
+
+The last five years have been phenomenal for the isekai genre anime, and some refreshing series have arisen amidst the new releases.
+---------
+
+# Stranger Things: Tales from '85 Earns 2.8M Views on Netflix
+
+TV, Stranger Things: Tales from '85, Netflix, Sci-Fi
+
+Wed, 29 Apr 2026 15:10:18 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-viewers-ratings-netflix/
+
+Stranger Things: Tales from '85, the new animated spinoff show, earned 2.8 million views for Netflix and has been renewed for Season 2.
+---------
+
+# Netflix Says Goodbye to a 30-Year-Old Masterpiece Spy Series
+
+Movies, Mission: Impossible
+
+Wed, 29 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/netflix-losing-mission-impossible-franchise-may-2026/
+
+Fans have just days left before one of the greatest spy film franchises of all times loses its streaming home on Netflix.
+---------
+
+# Zelda: Wind Waker & Twilight Princess HD on Switch 2 Is Overdue
+
+Games, The Legend of Zelda
+
+Wed, 29 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/zelda-wind-waker-twilight-princess-hd-switch-2/
+
+As great as it is to have Wind Waker and Twilight Princess finally playable on Switch, neither of these ports are the ones Zelda fans actually wanted.
+---------
+
+# The Witcher 3 Mods Consoles
+
+Games, The Witcher 3: Wild Hunt
+
+Wed, 29 Apr 2026 15:00:12 GMT
+
+https://www.cbr.com/witcher-3-official-update-cd-projekt-red-2026/
+
+The Witcher 3 is getting a major addition that players have been waiting for since 2015.
+---------
+
+# 10 Best American Crime Shows of the Last 20 Years
+
+TV, Crime, Breaking Bad, Dexter
+
+Wed, 29 Apr 2026 14:30:12 GMT
+
+https://www.cbr.com/best-american-crime-shows-last-20-years-list/
+
+Viewers are living in the best-ever era of television, and these 10 American crime shows are the genre's finest from the past two decades.
+---------
+
+# The Star Trek Quote That Defines Spock and Kirk's Friendship
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Wed, 29 Apr 2026 14:25:03 GMT
+
+https://www.cbr.com/spock-star-trek-city-on-the-edge-of-forever-quote/
+
+Spock's cryptic Star Trek line, 'He knows, Doctor. He knows,' in 'City on the Edge of Forever' is the epitome of his and Kirk's friendship
+---------
+
+# What's Coming to Netflix in May 2026? Full List
+
+TV, Netflix
+
+Wed, 29 Apr 2026 14:24:24 GMT
+
+https://www.cbr.com/whats-coming-netflix-may-2026-full-list/
+
+With Netflix rebooting 13 Going on 30, the streamer will add the beloved ro-com, alongside other classics including Jennifer's Body and The Breakfast
+---------
+
+# Widow’s Bay Cast Reveal the Show’s Creepy Tone and Big Themes
+
+TV, Widow's Bay
+
+Wed, 29 Apr 2026 14:15:13 GMT
+
+https://www.cbr.com/video/widow-s-bay-cast-reveal-the-show-s-creepy-tone-and-big-themes/
+
+Matthew Rhys, Stephen Root & Kate O’Flynn break down Widow’s Bay’s unique tone.The cast explains how the Apple TV+ series blends horror and comedy without losing its edge.In this interview, the Widow’s Bay stars dive into the show’s eerie small-town mystery, the unforgettable water scene, and why the balance of scares and laughs works so well. Matthew Rhys unpacks his character’s frustration as mayor, while Stephen Root and Kate O’Flynn reveal what makes the town feel real and unsettling. From behind-the-scenes moments to deeper themes, this is a must-watch for fans of smart horror storytelling and character-driven drama.
+---------
+
+# Every Van Halen Studio Album with Sammy Hagar, Ranked
+
+Music Features, Van Halen, Red Til I'm Dead: Sammy Hagar's Rock-N-Roll Birthday Bash, Rock & Roll Road Trip with Sammy Hagar, Van Halen - Live Without A Net, Van Halen - Live: Right Here, Right Now, Lists, Music, Rock, Van Halen: Video Hits Vol. 1
+
+Wed, 29 Apr 2026 15:45:32 GMT
+
+https://collider.com/every-sammy-hagar-van-halen-album-ranked/
+
+From 5150 to For Unlawful Carnal Knowledge to OU812 and Balance, Van Halen's albums with Sammy Hagar, ranked.
+---------
+
+# You Have 2 Months To Catch Up on Apple TV’s Greatest Sitcom of the Last Decade Before Its Return
+
+TV Features, Trying, Apple TV, Rafe Spall, Comedy
+
+Wed, 29 Apr 2026 15:11:13 GMT
+
+https://collider.com/apple-tv-greatest-series-trying-catch-up-before-season-5/
+
+Trying returns July 8 with Esther Smith and Rafe Spall — catch up now on Apple TV’s beloved comedy before Season 5 begins.
+---------
+
+# ‘One Night Only’ Might Be the Most Unhinged Rom-Com Concept Yet in New Trailer
+
+Movie News, Monica Barbaro, One Night Only, Callum Turner, Will Gluck
+
+Wed, 29 Apr 2026 15:07:28 GMT
+
+https://collider.com/one-night-only-trailer-monica-barbaro-callum-turner/
+
+Discover the unique premise of One Night Only, where single people have one night a year to sleep together, starring Monica Barbaro and Callum Turner.
+---------
+
+# Forget 'Anyone But You,' Maya Hawke & KJ Apa's Modern Shakespeare Adaptation Will Be Your New Favorite Romance [Exclusive]
+
+Exclusives, Maya Hawke, KJ Apa, Audible, Romance
+
+Wed, 29 Apr 2026 15:00:12 GMT
+
+https://collider.com/maya-hawke-kj-apa-the-summer-oath-audiobook-sneak-peek-romance-novel/
+
+Discover Maya Hawke & KJ Apa's modern twist on Shakespeare's Love's Labour's Lost in a sneak peek from The Summer Oath audiobook.
+---------
+
+# ‘Ghosts’ Is Getting Even Bigger Ahead of Its First-Ever Hour-Long Finale [Exclusive]
+
+Exclusives, Ghosts, CBS, Rose McIver, Sitcom
+
+Wed, 29 Apr 2026 15:00:12 GMT
+
+https://collider.com/ghosts-season-5-episode-18-sneak-peek-rose-mciver-cbs-sitcom/
+
+Ghosts is officially rewriting the show’s best addition in this jaw-dropping Season 5 sneak peek, ahead of next month’s hour-long season finale.
+---------
+
+# Why Did Nicola Walker Leave 'Unforgotten'? The Real Reason, Explained
+
+Features, Unforgotten, Crime, Drama
+
+Wed, 29 Apr 2026 15:00:17 GMT
+
+https://movieweb.com/why-nicola-walker-left-unforgotten/
+
+Nicola Walker's departure from 'Unforgotten' was completely unexpected, but the real reason may surprise you even more.
+---------
+
+# First Pages of 'Spider-Man: Brand New Day' Script Officially Released Online
+
+Movie News, Spider-Man, MCU, Spider-Man: Brand New Day
+
+Wed, 29 Apr 2026 14:40:37 GMT
+
+https://movieweb.com/spider-man-brand-new-day-script/
+
+The first few pages of the 'Spider-Man: Brand New Day' script have been released, annotated by the franchise's new director, Destin Daniel Cretton.
+---------
+
+# John Wayne's Legendary 1976 Western 'The Shootist' Finally Announces US Streaming Date
+
+Movie News, The Shootist, Paramount Plus, Coming/Leaving Streaming, Western
+
+Wed, 29 Apr 2026 14:00:16 GMT
+
+https://movieweb.com/the-shootist-western-streaming-paramount-may-2026/
+
+John Wayne's last ever movie, the cult classic Western 'The Shootist,' will stream on Paramount+ in May 2026.
+---------
+
+# How Much 'The Devil Wears Prada 2' Needs To Make To Profit
+
+Features, The Devil Wears Prada 2
+
+Wed, 29 Apr 2026 14:00:16 GMT
+
+https://movieweb.com/devil-wears-prada-2-box-office-profit/
+
+'The Devil Wears Prada 2' opens in theaters on May 1, 2026 and stars Meryl Streep, Emily Blunt, Anne Hathaway, and Stanley Tucci.
+---------
+
 # Liam Neeson & Bradley Cooper's $177M Remake Of 80s Action Series Sets Official Streaming Release
 
 Movies, Masked Recs
