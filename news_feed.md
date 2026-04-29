@@ -1,3 +1,289 @@
+# Liam Neeson & Bradley Cooper's $177M Remake Of 80s Action Series Sets Official Streaming Release
+
+Movies, Masked Recs
+
+Wed, 29 Apr 2026 13:40:13 GMT
+
+https://screenrant.com/liam-neeson-bradley-cooper-the-a-team-movie-streaming-release-date/
+
+Liam Neeson and Bradley Cooper's $177 million remake of a classic 1980s action series sets an official streaming release date that's closing in fast.
+---------
+
+# GTA 6 Release Date Update Officially Drops, Claim Your Sick Days Now
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Wed, 29 Apr 2026 13:30:17 GMT
+
+https://screenrant.com/gta-6-release-date-update-take-two-november/
+
+It really is a critical few months ahead of the launch of GTA VI, and the latest tidbit should come as a huge relief for many.
+---------
+
+# Thor's Ultimate Form Revealed "The All-Storm"
+
+Comics, Thor
+
+Wed, 29 Apr 2026 13:13:32 GMT
+
+https://screenrant.com/thor-ultimate-form-all-storm-god/
+
+Thor just became the embodiment of every storm across time, unleashing the "All-Storm!"
+---------
+
+# Marvel Just Introduced "Kid Doom" To Canon
+
+Comics, Marvel, Doctor Doom
+
+Wed, 29 Apr 2026 13:05:10 GMT
+
+https://screenrant.com/doctor-doom-young-clone-marvel-canon/
+
+Marvel's new Doctor Doom pulls an old trick.
+---------
+
+# Survival Horror Fans Can Try This Brutal Co-Op Game Free for a Limited Time
+
+Gaming, Steam, PC, Indie Games
+
+Wed, 29 Apr 2026 13:00:18 GMT
+
+https://screenrant.com/no-more-room-in-hell-2-free-weekend-console-launch/
+
+Preview this brutal co-op survival horror game and its brand-new Survival Mode, free for a limited-time weekend on Steam ahead of its full release.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Focuses On Kirk & Spock Bromance
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 29 Apr 2026 13:00:18 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-kirk-spock-bromance/
+
+Star Trek: Strange New Worlds season 3 finally brought Kirk and Spock together, and season 4 goes all in on "Spirk" and their eternal friendship.
+---------
+
+# 10 Underrated Action Comedies That Nobody Talks About Today
+
+Movies, Last Action Hero, The 51st State, Kiss Kiss Bang Bang, The Nice Guys, The Golden Child, Black Knight, Blue Streak, Money Talks, The Whole Nine Yards, Bulletproof
+
+Wed, 29 Apr 2026 13:00:18 GMT
+
+https://screenrant.com/underrated-action-comedies-nobody-remembers/
+
+Excellent action comedy movies that have survived the test of time and are worth watching even if they are rarely referenced today.
+---------
+
+# Dead Space Officially Returns In Winter 2026
+
+Gaming, Dead Space, PC, Dead Space (2008), Dead Space 2, Dead Space 3
+
+Wed, 29 Apr 2026 12:43:53 GMT
+
+https://screenrant.com/dead-space-isaac-clarke-winter-2026/
+
+Dead Space is officially set to return this winter with a brand-new release featuring the franchise's iconic main character, Isaac Clarke.
+---------
+
+# Cyberpunk 2077 "Real-Life" Graphics Update Leaves Gamers Floored
+
+Gaming, Cyberpunk 2077
+
+Wed, 29 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-graphics-mod-april-2026/
+
+YouTuber Digital Dreams achieves groundbreaking 4K 150FPS performance in Cyberpunk 2077 using cutting-edge hardware.
+---------
+
+# Mike Flanagan's 9-Part Horror Miniseries Deserved The Haunting Of Hill House's Success
+
+Classic TV, Masked Recs
+
+Wed, 29 Apr 2026 12:30:18 GMT
+
+https://screenrant.com/mike-flanagan-haunting-of-bly-manor-deserved-more-success/
+
+The Haunting of Hill House put Mike Flanagan on the map, but his next Netflix limited series should have received just as much fanfare.
+---------
+
+# Netflix Orders New Harlan Coben Adaptation of The Woods Starring Tom Bateman
+
+TV, Netflix
+
+Wed, 29 Apr 2026 13:25:19 GMT
+
+https://www.cbr.com/netflix-harlan-coben-adaptation-the-woods/
+
+More Harlan Coben is coming.
+---------
+
+# Keanu Reeves' John Wick Spinoff, Caine, Gets First Teaser
+
+Movies, Action, John Wick, John Wick: Chapter 2, John Wick: Chapter 4, John Wick: Chapter 5, John Wick 3, John Wick 5, John Wick 4, John wick: parabellum, John Wick: Chapter 3 - Parabellum
+
+Wed, 29 Apr 2026 13:20:07 GMT
+
+https://www.cbr.com/john-wick-keanu-reeves-spinoff-caine-first-teaser/
+
+The first look at the highly-anticipated John Wick spinoff is giving goosebumps.
+---------
+
+# It's Officially a New Era for Shonen Jump in 2026
+
+Anime, Shonen Jump, Manga, Kagurabachi, weekly shonen jump
+
+Wed, 29 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/shonen-jump-new-era-2026-kagurabachi/
+
+Shonen Jump remains the best place to discover shonen manga in 2026, and Kagurabachi is the most recent success from the magazine.
+---------
+
+# 10 Funniest The Far Side Comic Strips About Airplanes and Pilots
+
+Comics, The Far Side
+
+Wed, 29 Apr 2026 13:01:12 GMT
+
+https://www.cbr.com/10-funniest-the-far-side-comic-strips-about-airplanes-and-pilots-ranked/
+
+From life's many joys and trials, airplane rides were one setting Gary Larson used wisely in The Far Side, and pilots were frequent stars as well.
+---------
+
+# Robert De Niro's New Netflix Crime Thriller Based on Bestselling Novel Sets Summer Release Date
+
+Movies, The Whisper Man
+
+Wed, 29 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/robert-de-niro-netflix-crime-thriller-whisper-man-release-date/
+
+The Oscar winner stars in a gripping new crime drama, and Netflix finally shares more about its upcoming release.
+---------
+
+# Spider-Noir Can Finally End Nic Cage's Superhero Curse
+
+TV, Spider-Noir, Spider-Man, Prime Video
+
+Wed, 29 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/prime-video-spider-noir-nic-cage-best-superhero-role/
+
+Nicolas Cage has had bad luck with live-action superhero adaptations, but Prime Video's upcoming 8-part series has a chance to change that trend.
+---------
+
+# That Time I Got Reincarnated as a Slime’s Voice of Rimuru Confirms New Movie Is Non-Canon
+
+CBR Exclusives, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea
+
+Wed, 29 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/reincarnated-as-a-slime-movie-non-canon-brittany-karbowski-interview/
+
+According to Rimuru’s English voice actor, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea may not be all too canon.
+---------
+
+# Marvel's Spider-Noir Officially Returns Before Live-Action Series Premieres
+
+Comics, Spider-Noir, Spider-Man
+
+Wed, 29 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/marvel-spider-noir-one-shot-confirmed/
+
+Nicolas Cage's live-action Spider-Noir series is getting the comic book tie-in it deserves, and it's available in two separate formats.
+---------
+
+# Ann Dowd Breaks Down Aunt Lydia's 'Powerful Backstory' on The Testaments
+
+CBR Exclusives, The Testaments, The Handmaid's Tale, Hulu
+
+Wed, 29 Apr 2026 12:00:12 GMT
+
+https://www.cbr.com/the-testaments-ann-dowd-aunt-lydia-backstory-explained/
+
+The Handmaid's Tale actor also unpacks the terrifying choice Aunt Lydia makes to survive, but at the cost of her morality.
+---------
+
+# Apple TV’s Most Underrated Series Finally Returns This Summer
+
+TV News, Trying, Apple TV, Rafe Spall, Sitcom
+
+Wed, 29 Apr 2026 13:00:13 GMT
+
+https://collider.com/trying-season-5-release-date-first-images-apple-tv/
+
+Trying has set the date for its Apple TV return with a new set of images from Season 5 that tease a chaotic new chapter for the family.
+---------
+
+# 27 Years Later, HBO's 6-Part Crime Show Is Still a Masterpiece From Start to Finish
+
+TV, The Sopranos, James Gandolfini, Edie Falco, HBO Max
+
+Wed, 29 Apr 2026 12:24:12 GMT
+
+https://collider.com/hbo-the-sopranos-crime-masterpiece/
+
+Whether you're watching The Sopranos for the first time or the 10th time, it's clear in every episode why it's one of the greatest shows of all time.
+---------
+
+# Forget Netflix, the Greatest War Thriller of All Time Is Free to Watch Right Now
+
+Movie Features, Rob Reiner, Tom Cruise, Aaron Sorkin, A Few Good Men
+
+Wed, 29 Apr 2026 12:20:12 GMT
+
+https://collider.com/a-few-good-men-streaming-on-tubi/
+
+Rob Reiner's gripping courtroom drama, A Few Good Men, follows a Naval lawyer tasked with defending two Marines in a hazing ritual gone wrong.
+---------
+
+# Taylor Sheridan's Crime Masterpiece Officially Lands a New Streaming Home Next Week
+
+Movie News, Sicario, Taylor Sheridan, Hulu, Emily Blunt
+
+Wed, 29 Apr 2026 12:00:12 GMT
+
+https://collider.com/sicario-taylor-sheridan-crime-masterpiece-hulu-streaming-may-1-2026/
+
+Taylor Sheridan's action crime thriller, Sicario, starring Josh Brolin and Emily Blunt, has landed a new streaming home.
+---------
+
+# 'Star Wars' Makes First Move Towards Paying off Maul's 'Solo' Cameo
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars, Solo: A Star Wars Story
+
+Wed, 29 Apr 2026 13:00:16 GMT
+
+https://movieweb.com/star-wars-maul-crimson-dawn-storyline/
+
+It takes a lot for 'Star Wars' to cut its losses and move on, but that's just what happened in 2018. Thankfully, Disney is making a U-turn.
+---------
+
+# Kevin Costner Western 'Horizon' To Stream on Prime Video for the First Time
+
+Movie News, Horizon: An American Saga - Chapter 1, Kevin Costner, Western, Coming/Leaving Streaming
+
+Wed, 29 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/horizon-kevin-costner-streaming-prime-video-may-2026/
+
+'Horizon: An American Saga – Chapter 1' will leave the confines of HBO Max next month for greener pastures on Prime Video.
+---------
+
+# The Only True 'The Pitt' Replacement ‘ER’ Still Has 1 Major Advantage
+
+Features, ER, The Pitt
+
+Wed, 29 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/er-better-guest-stars-vs-the-pitt/
+
+'ER,' the medical TV drama starring Noah Wyle and George Clooney, aired for 15 seasons on NBC, and it does one thing better than 'The Pitt.'
+---------
+
 # Skyrim Has Officially Returned With Yet Another New Release
 
 Gaming, The Elder Scrolls V: Skyrim, PC, The Elder Scrolls
