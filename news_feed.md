@@ -1,3 +1,234 @@
+# Bosch Meets True Detective In Netflix’s 9-Part Crime Thriller
+
+Streaming TV, Masked Recs
+
+Thu, 30 Apr 2026 03:33:25 GMT
+
+https://screenrant.com/bosch-true-detective-netflix-detective-hole/
+
+Netflix is the streaming home a compelling 9-part crime thriller that seems to have some the best elements from True Detective and Prime Video’s Bosch
+---------
+
+# Keanu Reeves’ Iconic Thriller Sequel Gets Official Release Window
+
+TV, Point Break
+
+Thu, 30 Apr 2026 03:17:37 GMT
+
+https://screenrant.com/point-break-tv-sequel-amc-release-window/
+
+Keanu Reeves' cult classic thriller's sequel series finally gets a promising update and an official release window from AMC.
+---------
+
+# Is Nobara Alive in Jujutsu Kaisen Season 3, Explained
+
+Anime, Jujutsu Kaisen
+
+Thu, 30 Apr 2026 03:15:20 GMT
+
+https://screenrant.com/is-nobara-alive-in-jujutsu-kaisen-season-3-explained/
+
+Nobara's fate at the end of Jujutsu Kaisen season 2 was left deliberately ambiguous, naturally leading fans to wonder whether she's alive in season 3.
+---------
+
+# GTA 6 Step Aside, Red Dead Redemption Next-Gen Release Officially Confirmed
+
+Gaming, Red Dead Online, Red Dead Redemption, Red Dead Redemption 2
+
+Thu, 30 Apr 2026 03:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-may-2026-release-rockstar-games/
+
+Who needs GTA 6? Red Dead Redemption is officially back with a brand-new release for PlayStation 5.
+---------
+
+# Netflix’s 2-Season Action Series Made A K-Pop Icon Terrifying (#3 Trending Worldwide)
+
+Streaming TV, Netflix, Bloodhounds, Bloodhounds - Season 2
+
+Thu, 30 Apr 2026 02:45:00 GMT
+
+https://screenrant.com/netflix-bloodhounds-season-2-rain-villain/
+
+Hit Netflix South Korean action series, which is trending #3 right now after its 2026 return, just made a K-pop icon look completely unrecognizable.
+---------
+
+# Star Wars' New Darth Maul Show Just Dropped The Craziest Deep Cut Easter Egg
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars, Star Wars: Episode III - Revenge of the Sith
+
+Thu, 30 Apr 2026 02:30:20 GMT
+
+https://screenrant.com/maul-shadow-lord-deep-cut-revenge-of-the-sith-easter-egg-creeping-fear/
+
+Although Maul - Shadow Lord has been full of cool Easter eggs and Star Wars references, the latest episode features a super deep-cut reference.
+---------
+
+# White House Robot Romance Draws Its Epic Love Story to a Close With an Explosive Finale
+
+Comics, indie comics
+
+Thu, 30 Apr 2026 03:56:35 GMT
+
+https://www.cbr.com/white-house-robot-romance-3-advance-review-finale/
+
+In a CBR advance review of White House Robot Romance #3, see how Chip Zdarsky and Rachel Stott bring this epic love story to a grand conclusion
+---------
+
+# 10 Best Anime That Are Officially 10 Years Old Now
+
+Anime, Yuri on Ice, Mob Psycho 100, My Hero Academia
+
+Thu, 30 Apr 2026 03:45:13 GMT
+
+https://www.cbr.com/best-anime-officially-10-years-old/
+
+These anime series may be 10 years old, but they still hold up as some of the best in the medium.
+---------
+
+# All Bleach Filler Arcs (In Chronological Order)
+
+Anime, Bleach
+
+Thu, 30 Apr 2026 03:45:13 GMT
+
+https://www.cbr.com/bleach-anime-filler-arc-chronological-order/
+
+From The Bount Arc to the Gotei 13 Invading Army Arc, these Bleach filler arcs kept fans satisfied while Tite Kubo progressed the canon storyline.
+---------
+
+# George Takei’s Favorite Star Trek Episode Introduced the Most Important Piece of Vulcan Lore
+
+TV, Star Trek, george takei, Sci-Fi
+
+Thu, 30 Apr 2026 03:30:12 GMT
+
+https://www.cbr.com/george-takei-favorite-star-trek-episode-introduced-important-vulcan-lore/
+
+Star Trek's Spock has an amazing lore, and George Takei's favorite episode introduced one of the character's best assets.
+---------
+
+# Solo Leveling Season 3's Upcoming Arcs Get First-Look In New Trailer
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Thu, 30 Apr 2026 03:23:13 GMT
+
+https://www.cbr.com/solo-leveling-arise-evolution-trailer-season-3-arcs-first-look/
+
+Solo Leveling gives fans an exciting look at what's next for the anime with a new trailer that showcases scenes from some of the manhwa's best arcs.
+---------
+
+# Saving Private Ryan Has the Greatest War Movie Quote Ever
+
+Movies, Saving Private Ryan
+
+Thu, 30 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/greatest-quote-war-movies-saving-private-ryan/
+
+There's a reason why Steven Spielberg's enduring war drama remains a fixture of its popular genre, and it comes down to these haunting final words.
+---------
+
+# Most Universally Beloved RPGs of All Time
+
+Games, RPG, Final Fantasy, The Witcher
+
+Thu, 30 Apr 2026 03:15:12 GMT
+
+https://www.cbr.com/most-universally-beloved-rpgs-of-all-time/
+
+Many RPGs elicit polarized responses from audiences, but a handful are universally loved and ranked among the greatest video games of all time.
+---------
+
+# The Big Burn is Officially One Hell of a Heist
+
+Comics, indie comics
+
+Thu, 30 Apr 2026 03:09:28 GMT
+
+https://www.cbr.com/big-burn-hell-heist-souls/
+
+In a CBR review of The Big Burn, learn how a group of crooks pull off one hell of a heist as they try to steal their souls from the devil
+---------
+
+# Pokemon's Prettiest Designs of All Time
+
+Anime, Pokemon
+
+Thu, 30 Apr 2026 03:00:13 GMT
+
+https://www.cbr.com/prettiest-pokemon-designs/
+
+Some Pokémon aren't just cool-looking, they're absolutely breathtaking.
+---------
+
+# Gundam's Most Iconic Villain Mecha Gets Stunning Clear Gunpla Redesign
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, toys, bandai
+
+Thu, 30 Apr 2026 03:00:12 GMT
+
+https://www.cbr.com/gundam-sazabi-clear-color-gunpla-new-release/
+
+A new version of the Sazabi is set to be released as a store-exclusive Gundam model kit, giving the Char's Counterattack mecha a translucent filter.
+---------
+
+# Netflix's 9-Part Sitcom Is a Better 'Malcolm in the Middle' Replacement Than You'd Expect
+
+TV Features, The Middle, Malcolm in the Middle, Malcolm in the Middle: Life's Still Unfair, Sitcom, Patricia Heaton
+
+Thu, 30 Apr 2026 04:07:12 GMT
+
+https://collider.com/netflix-the-middle-sitcom-binge-watch/
+
+The Middle surpasses expectations as the ideal successor to Malcolm in The Middle, delivering heartwarming, relatable family humor.
+---------
+
+# Netflix’s 6-Part Sci-Fi Series Is the Perfect Binge Before Its Bigger and Better Season 2 Return
+
+TV Features, The Eternaut, Netflix, Ricardo Darín, Sci-Fi
+
+Thu, 30 Apr 2026 03:15:13 GMT
+
+https://collider.com/the-eternaut-netflix-sci-fi-perfect-binge-before-season-2/
+
+Netflix's hidden sci-fi gem The Eternaut is the perfect binge before Season 2's even bigger scope and scale.
+---------
+
+# ‘The Night Agent’s 85% Rotten Tomatoes Replacement Series Is a Darker Spy Thriller Binge
+
+TV Features, Reacher, The Day of the Jackal, Prime Video, Peacock
+
+Thu, 30 Apr 2026 03:09:14 GMT
+
+https://collider.com/night-agent-best-replacement-spy-series-day-of-the-jackal/
+
+The Day of the Jackal is an 85% Rotten Tomatoes spy thriller series on Peacock, offering a dark, more complex alternative to The Night Agent Season 3.
+---------
+
+# 10 Most Exciting Movie Masterpieces of All Time, Ranked
+
+Movie, RRR, Mission: Impossible - Fallout, Raiders of the Lost Ark, Jaws
+
+Thu, 30 Apr 2026 03:03:14 GMT
+
+https://collider.com/exciting-movie-masterpieces-ranked/
+
+There have been many exceptional films that have achieved excellence in their usage of excitement, such as The Matrix, Jaws, and The Dark Knight.
+---------
+
+# Say Goodbye To Bryan Cranston’s Divisive 2-Part Crime Thriller Before It Leaves Netflix in 1 Month
+
+TV Features, Bryan Cranston, Your Honor, Netflix, Michael Stuhlbarg
+
+Thu, 30 Apr 2026 02:55:13 GMT
+
+https://collider.com/netflix-your-honor-leaving-may-31-bryan-cranston-crime-thriller/
+
+Two years after arriving on Netflix, Bryan Cranston’s divisive crime thriller Your Honor is leaving the platform for good.
+---------
+
 # 1 Of The Best Spy Thrillers Of The Century Is Based On The Book That Inspired Reacher
 
 Streaming TV, The Day of the Jackal, Reacher
