@@ -1,3 +1,432 @@
+# The Mandalorian & Grogu Movie Is Remixing The Star Wars Show's Most Iconic Element
+
+Exclusive, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Thu, 30 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/mandalorian-and-grogu-music-remix-cover-star-wars/
+
+Exclusive: ScreenRant presents a first look at the cover for "The Mandalorian and Grogu (Boys Noize Remix)" prior to the single's release on May 1.
+---------
+
+# 15 Greatest Characters In American Sci-Fi Shows
+
+Classic TV
+
+Thu, 30 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/greatest-sci-fi-characters-american-tv-shows/
+
+Strong characters ensure that twisty sci-fi shows are balanced with emotional urgency. These legacy-worthy characters gave their shows heart.
+---------
+
+# 10 Great Tomodachi Life: Living The Dream Layouts To Help You Create The Perfect Island
+
+Gaming, Tomodachi Life: Living the Dream, Triple-A Games, PC
+
+Thu, 30 Apr 2026 17:00:19 GMT
+
+https://screenrant.com/tomodachi-life-best-island-layouts-tips-guide/
+
+Living the Dream's island builder can be a little overwhelming at times, but these designs offer great inspiration for your next island expansion.
+---------
+
+# Super Smash Bros. Just Landed On PC
+
+Gaming, Super Smash Bros., PC
+
+Thu, 30 Apr 2026 16:56:47 GMT
+
+https://screenrant.com/super-smash-bros-pc-port-unofficial/
+
+The original 1999 Nintendo 64 Super Smash Bros. has received an unofficial PC port, thanks to the efforts of some very dedicated fans.
+---------
+
+# After Disastrous Anime Finale, The Promised Neverland Is Officially Returning For 10th Anniversary
+
+Anime, Shonen Jump, The Promised Neverland
+
+Thu, 30 Apr 2026 16:54:10 GMT
+
+https://screenrant.com/promised-neverland-return-disastrous-anime-finale/
+
+After six years since the manga's conclusion and five years since the anime's disastrous final season, The Promised Neverland is making a comeback.
+---------
+
+# Scrubs’ ABC Future Revealed After Record-Setting Revival
+
+TV, Scrubs
+
+Thu, 30 Apr 2026 16:52:58 GMT
+
+https://screenrant.com/scrubs-season-11-renewed-update-abc/
+
+After the fan-favorite hospital comedy series made a record-breaking return in February, the fate of Scrubs has been revealed at ABC and Hulu.
+---------
+
+# Shifting Gears Season 3 Renewal Announced With ABC Cast Video
+
+TV, Shifting Gears, Tim Allen, Kat Dennings, ABC
+
+Thu, 30 Apr 2026 16:52:24 GMT
+
+https://screenrant.com/shifting-gears-season-3-renewed-abc/
+
+ABC comedy series Shifting Gears confirmed for season 3 return, with cast members sharing the exciting news in a video announcement.
+---------
+
+# Mandalorian & Grogu’s Early Box Office Opening Projection Eyes New Star Wars Franchise Record
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars, Box Office
+
+Thu, 30 Apr 2026 16:52:23 GMT
+
+https://screenrant.com/mandalorian-grogu-early-box-office-opening-projection-star-wars-record/
+
+The Mandalorian and Grogu comes out on Memorial Day weekend, and early box office projections have the new Star Wars film setting a shocking record.
+---------
+
+# Is Saros Easier Than Returnal?
+
+Gaming, Saros, Returnal, Triple-A Games
+
+Thu, 30 Apr 2026 16:48:32 GMT
+
+https://screenrant.com/saros-difficulty-settings-easier-harder-returnal/
+
+Returnal gained a reputation for being unapproachable because of its unforgiving difficulty, but has Housemarque repeated this with Saros?
+---------
+
+# 39-Year-Old Superman Villain’s DCU Return & Comic Accuracy Teased By Sean Gunn
+
+Movies, Superman, DC Universe, Sean Gunn
+
+Thu, 30 Apr 2026 16:38:43 GMT
+
+https://screenrant.com/maxwell-lord-dcu-return-future-tease-sean-gunn/
+
+Sean Gunn has appeared in several of his brother James Gunn’s superhero films, and the actor is now teasing what the future holds for him in the DCU.
+---------
+
+# Transformers Turns Up the Volume on Soundwave With a Massive New G1 Collectible
+
+Anime, Transformers, merchandise
+
+Thu, 30 Apr 2026 17:03:35 GMT
+
+https://www.cbr.com/transformers-g1-soundwave-iron-studios-reveal/
+
+Soundwave sounds off like never before through an epic new Transformers Generation 1 statue from Iron Studios, complete with a cassette minion.
+---------
+
+# Steve Carell's Rooster Is Almost the No. 1 Show in the World on HBO Max
+
+TV, HBO Max, Rooster, Sitcoms
+
+Thu, 30 Apr 2026 17:01:12 GMT
+
+https://www.cbr.com/steve-carell-rooster-streaming-success-comedy-hbo-max-april-2026/
+
+More than a decade after The Office, Steve Carell's new comedy series is about to become the biggest show in the world on HBO Max.
+---------
+
+# Invincible Creator Robert Kirkman Calls Out The Biggest Problem Facing The Comics Industry Today
+
+Comics, Marvel, Marvel Comics, MCU, DC Comics, DCU, Invincible, Invincible (TV Show), Superman, Batman, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse
+
+Thu, 30 Apr 2026 16:56:50 GMT
+
+https://www.cbr.com/robert-kirkman-calls-out-biggest-problem-facing-the-comics-industry/
+
+The creator of Invincible just called out Superman, Spider-Man and the entire industry.
+---------
+
+# ABC Renews Scrubs Revival 2 Weeks After Season Finale
+
+TV, Scrubs
+
+Thu, 30 Apr 2026 16:54:26 GMT
+
+https://www.cbr.com/abc-scrubs-revival-fate/
+
+The series returned after over half a decade with new episodes.
+---------
+
+# The Boys: Eric Kripke Explains the Show’s True Meaning as Season 5 Ends
+
+CBR Exclusives, The Boys
+
+Thu, 30 Apr 2026 16:49:57 GMT
+
+https://www.cbr.com/eric-kripke-the-boys-ultimate-message-revealed/
+
+It's not all doom and gloom for The Boys after all.
+---------
+
+# AMC Officially Orders Thunder Road Starring Dennis Quaid
+
+TV, AMC, F1
+
+Thu, 30 Apr 2026 16:29:39 GMT
+
+https://www.cbr.com/amc-thunder-road-dennis-quaid/
+
+As F1 is getting a sequel, AMC is releasing its own replacement as a TV show.
+---------
+
+# 007 First Light Officially Offering Free DLC, Available Until May 25
+
+Games, James Bond, Hitman 3
+
+Thu, 30 Apr 2026 16:28:13 GMT
+
+https://www.cbr.com/james-bond-007-first-light-free-limited-time-offer-may-25/
+
+007 First Light is giving gamers the chance to step into the world of James Bond ahead of the upcoming game's release thanks to some surprising DLC.
+---------
+
+# Game of Thrones Is Fantasy TV's Most Successful Franchise
+
+TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Thu, 30 Apr 2026 16:25:13 GMT
+
+https://www.cbr.com/game-of-thrones-most-successful-tv-fantasy-franchise/
+
+Modern fantasy TV has a lot of competition, but one franchise stands out as the clear audience favorite.
+---------
+
+# Andy Serkis & Kathleen Turner Break Down Animal Farm’s Big Changes
+
+Movies, Animal Farm
+
+Thu, 30 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/video/andy-serkis-kathleen-turner-break-down-animal-farm-s-big-changes/
+
+Kathleen Turner and Andy Serkis break down how the 2026 Animal Farm adaptation rethinks a classic without losing its core.In this interview, the duo dives into why the film stays true to George Orwell’s original setting while shifting the tone for a younger, cross-generational audience. Serkis reveals how performance capture nearly shaped a much darker version, while Turner shares her take on Benjamin’s iconic worldview.
+---------
+
+# 10 Greatest Spy Anime of All Time
+
+Anime, Spy X Family, Princess Principal, shonen anime
+
+Thu, 30 Apr 2026 16:15:12 GMT
+
+https://www.cbr.com/best-spy-anime-all-time/
+
+From sleek action scenes to slow-burn deceptions, anime brings an intensity and artistry to espionage that no other medium matches.
+---------
+
+# The Best Reboot Series of 2026 Is Officially Coming Back for More
+
+TV News, Scrubs, ABC, Zach Braff, Donald Faison
+
+Thu, 30 Apr 2026 17:09:53 GMT
+
+https://collider.com/zach-braff-scrubs-revival-season-2-renewed-abc/
+
+After reuniting Zach Braff, Donald Faison, and the rest of the cast, ABC has officially revealed if Scrubs will return for Season 2.
+---------
+
+# 10 Disney Movies That Are Perfectly Written
+
+Movie, Finding Nemo, Beauty and the Beast, The Lion King, Disney
+
+Thu, 30 Apr 2026 17:08:13 GMT
+
+https://collider.com/disney-movies-perfectly-written/
+
+Disney films that feel magically effortless, from The Lion King and Aladdin to stories engineered with near-perfect precision.
+---------
+
+# After 2 Seasons, the Fate of Tim Allen's 'Shifting Gears' Has Been Officially Decided by ABC
+
+TV News, Tim Allen, Shifting Gears, ABC, Kat Dennings
+
+Thu, 30 Apr 2026 16:49:28 GMT
+
+https://collider.com/tim-allen-sitcom-shifting-gears-season-3-renewed-abc/
+
+ABC has officially decided the fate of Tim Allen's hit sitcom, Shifting Gears, after two seasons. Read on for more details.
+---------
+
+# The Scariest Horror Movie of '90s Is Officially Getting Rebooted
+
+Movie News, The Blair Witch Project, James Wan, Horror, Lionsgate
+
+Thu, 30 Apr 2026 16:46:42 GMT
+
+https://collider.com/blair-witch-horror-movie-reboot-original-filmmakers-cast-producing/
+
+The Blair Witch has returned, as a new movie from the 1999 classic's original cast and crew is officially in development.
+---------
+
+# After 6 Years, ‘The Boys’ Finally Gave Us the TV Reunion the World Has Waited For
+
+Exclusives, The Boys, Eric Kripke, Prime Video, Valorie Curry
+
+Thu, 30 Apr 2026 16:40:51 GMT
+
+https://collider.com/the-boys-supernatural-reunion-season-5-episode-5-meaning-explained-eric-kripke/
+
+Eric Kripke discusses Homelander's most recent casualty, the epic Hollywood cameos, The Boys: Mexico, Vought Rising, and Gen V Season 3.
+---------
+
+# After 40 Years, the Greatest Sci-Fi Cult Classic of the '80s Is Finally Getting a Sequel
+
+Movie News, The Last Starfighter, Crossing the Frontier: Making The Last Starfighter, Sci-Fi, Comics
+
+Thu, 30 Apr 2026 16:29:11 GMT
+
+https://collider.com/80s-cult-classic-sci-fi-the-last-starfighter-sequel-comic-book-release-date-july-2026/
+
+The cult classic ‘80s sci-fi movie fans have been waiting for a sequel to for 40 years is officially returning this summer, but there’s a catch.
+---------
+
+# This 1997 Cult Sci-Fi Horror Movie Is Getting a Sequel Set 200 Years Later
+
+Movie News, Event Horizon, Sam Neill, Laurence Fishburne, Sci-Fi
+
+Thu, 30 Apr 2026 16:27:52 GMT
+
+https://collider.com/90s-sci-fi-horror-event-horizon-sequel-inferno-comic-book-200-years-later-release-date-april-2026/
+
+The 1997 cult classic sci-fi horror movie Event Horizon is officially getting a sequel set 200 years later. Here’s what you need to know.
+---------
+
+# Steven Spielberg's $607M Sci-Fi Hit Officially Gets a 2-Part Sequel Release
+
+Movie News, Sci-Fi, Steven Spielberg, Ready Player One, Ready Player Two
+
+Thu, 30 Apr 2026 16:26:42 GMT
+
+https://collider.com/steven-spielberg-underrated-sci-fi-ready-player-one-sequel-graphic-novel-release-date-october-2026/
+
+Steven Spielberg’s underrated $607M sci-fi adventure hit is officially getting a two-part sequel later this year. Here’s what you need to know!
+---------
+
+# Pedro Pascal's $334M Sci-Fi Hit Surges on Streaming After Making 4x Its Budget
+
+Movie News, The Wild Robot, Sci-Fi, Pedro Pascal, Adventure
+
+Thu, 30 Apr 2026 16:25:17 GMT
+
+https://collider.com/pedro-pascal-sci-fi-movie-the-wild-robot-streaming-success-peacock-april-2026/
+
+Pedro Pasal’s $334 million sci-fi adventure movie that earned 4x its budget is officially crushing it on streaming. Here’s where you can watch it.
+---------
+
+# James Cameron Saved 'Aliens' After the Studio Didn't Ask Ridley Scott Back
+
+Movie Features, Aliens, alien, James Cameron, Ridley Scott
+
+Thu, 30 Apr 2026 16:21:12 GMT
+
+https://collider.com/james-cameron-aliens-ridley-scott-asked-not-to-direct/
+
+When Ridley Scott wasn't asked to direct the sequel to Alien, James Cameron stepped in to give us a sci-fi masterpiece.
+---------
+
+# Adam Scott Thought He'd Never Land His Severance Role When Ben Stiller First Called
+
+TV News, Severance, Adam Scott, Ben Stiller
+
+Thu, 30 Apr 2026 17:11:07 GMT
+
+https://movieweb.com/adam-scott-ben-stiller-severance-role/
+
+Adam Scott was convinced his 'Severance' role would never come to fruition when he first found out about it.
+---------
+
+# Tom Hardy's 'John Wick' Rip-Off 'Havoc Is One of the Best Action Movies on Netflix
+
+Features, Havoc, Netflix, Streaming Recommendations, Action, Tom Hardy
+
+Thu, 30 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/tom-hardy-havoc-action-streaming-netflix/
+
+Tom Hardy went full 'John Wick' in 'The Raid' director's underrated Netflix action movie 'Havoc.'
+---------
+
+# Netflix's 'Man on Fire' Season 1 Ending, Explained: What is Creasy's Next Mission?
+
+Features, Man on Fire, Netflix, Action
+
+Thu, 30 Apr 2026 17:00:18 GMT
+
+https://movieweb.com/man-on-fire-season-1-ending-explained/
+
+Who's behind the bombing, and what mission is Creasy tasked with next? Every burning 'Man on Fire' Season 1 question answered.
+---------
+
+# Star Wars Land Welcomes Darth Vader In Major Galaxy's Edge Shake-Up
+
+Movie News, Star Wars
+
+Thu, 30 Apr 2026 16:46:16 GMT
+
+https://movieweb.com/darth-vader-star-wars-galaxy-edge-disneyland/
+
+'Star Wars: Galaxy Edge' at Disneyland undergoes a massive change, shifting the focus from the sequel trilogy to the original trilogy characters.
+---------
+
+# Anthony Mackie's 'Desert Warrior' Set To Be Biggest Box Office Flop Of All Time
+
+Movie News, Desert Warrior, Anthony Mackie
+
+Thu, 30 Apr 2026 16:36:55 GMT
+
+https://movieweb.com/anthony-mackie-desert-warrior-box-office/
+
+The new action adventure epic, which cost $150 million to produce, has made less than a $1 million at the box office.
+---------
+
+# The Dark True Story Behind This ‘80s Christian Kids' TV Show
+
+Features, True Crime
+
+Thu, 30 Apr 2026 16:00:19 GMT
+
+https://movieweb.com/joy-junction-christian-kids-show-true-story/
+
+The Christian TV show Joy Junction disappeared from the air with no explanation. The real reason for this proved to be shocking.
+---------
+
+# 'The Ministry of Ungentlemanly Warfare' To Stream Exclusively on Peacock May 18
+
+Movie News, The Ministry of Ungentlemanly Warfare, Coming/Leaving Streaming, Action, Henry Cavill, Alan Ritchson
+
+Thu, 30 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/the-ministry-of-ungentlemanly-warfare-streaming-exclusive-peacock-may-2026/
+
+Guy Ritchie assembled an all-star cast including Henry Cavill and Alan Ritchson for what is easily one of the best action comedy movies of the decade.
+---------
+
+# 'The Devil Wears Prada 2' Cast: Who's Returning and Who's Not, Explained
+
+Features, The Devil Wears Prada 2
+
+Thu, 30 Apr 2026 16:00:18 GMT
+
+https://movieweb.com/the-devil-wears-prada-2-cast-characters/
+
+'The Devil Wears Prada 2' opens in theaters on May 1, 2026, and the highly anticipated comedy sequel to the 2006 original features some beloved stars.
+---------
+
+# Netflix's 'Man on Fire' Rotten Tomatoes Score Revealed
+
+TV News, Man on Fire, Netflix, Action
+
+Thu, 30 Apr 2026 15:45:49 GMT
+
+https://movieweb.com/netflix-man-on-fire-rotten-tomatoes-score/
+
+Netflix's 'Man on Fire' series has landed a Rotten Tomatoes score, as critics deliver their verdict on the reboot of the action classic.
+---------
+
 # Black Clover Ending Explained
 
 Anime, Black Clover
