@@ -1,3 +1,223 @@
+# Zelda Officially Confirms End Of An Era With New 2026 Release
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, The Legend of Zelda: Tears of the Kingdom, Nintendo
+
+Thu, 30 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/zelda-wilds-era-over-october-2026-release/
+
+The Legend Of Zelda is officially saying goodbye to a beloved era after ten long years.
+---------
+
+# Silo & Dune’s 2026 Return Proves 1 Actor Is This Year’s Biggest Sci-Fi Star
+
+Streaming TV, Silo, Dune
+
+Thu, 30 Apr 2026 11:30:19 GMT
+
+https://screenrant.com/silo-dune-rebecca-ferguson-2026-sci-fi/
+
+After Silo and Dune’s confirmed return in 2026, it is hard not to conclude that one actor deserves to be touted as this year’s biggest sci-fi star.
+---------
+
+# Hogwarts Legacy 2 Setting And Map Size Splits Gamers
+
+Gaming, Hogwarts Legacy
+
+Thu, 30 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/hogwarts-legacy-2-setting-map-size-gamers-react/
+
+The Hogwarts Legacy sequel is coming down the pipeline at some point, and fans can't decide what they want the map to be like.
+---------
+
+# How Netflix’s Man On Fire Connects To Denzel Washington’s 2004 Movie
+
+Streaming TV, Man on Fire
+
+Thu, 30 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/man-on-fire-netflix-denzel-washington-2004-movie/
+
+Yahya Abdul-Mateen II is not the first actor to play John Creasy, and this is how his Man on Fire connects to Denzel Washington's 2004 movie.
+---------
+
+# Man On Fire Ending Explained: Who Really Caused The Bombing & What Happens To Creasy
+
+Streaming TV, Man on Fire, Man on Fire - Season 1
+
+Thu, 30 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/man-on-fire-season-1-ending-explained/
+
+Netflix's Man on Fire takes John Creasy all throughout Rio on a mission for revenge, leading to an exciting ending that answers all the big questions.
+---------
+
+# Fuze Cast Breaks Down Crime Thriller's Twist Ending
+
+Interviews, Fuze, Aaron Taylor-Johnson, Sam Worthington
+
+Thu, 30 Apr 2026 11:00:19 GMT
+
+https://screenrant.com/fuze-movie-ending-tranter-twist-aaron-taylor-johnson-director-cast/
+
+Director David Mackenzie and the cast of Fuze discuss the film's shocking twist ending, revealing Aaron Taylor-Johnson's character's true motives and the film's unique structure.
+---------
+
+# Final Fantasy 7 Remake Part 3 Title Officially Chosen
+
+Gaming, Final Fantasy 7, Final Fantasy 7 Remake, Final Fantasy 7 Rebirth, Square Enix
+
+Thu, 30 Apr 2026 10:30:18 GMT
+
+https://screenrant.com/final-fantasy-7-remake-part-3-title-chosen/
+
+Final Fantasy 7 Remake Part 3 finally has an official title as development on the closing chapter continues smoothly.
+---------
+
+# Colin Firth's Near-Perfect HBO Crime Miniseries Is the Tensest 9-Hour Binge of the Decade
+
+TV, The Staircase, HBO Max, colin firth
+
+Thu, 30 Apr 2026 11:30:12 GMT
+
+https://www.cbr.com/colin-firth-hbo-crime-miniseries-the-staircase-tense-binge/
+
+You can binge one of the most tense and best performed miniseries of the decade, starring Colin Firth and Toni Collette in legendary roles.
+---------
+
+# 10 DC Comics Characters Who Deserved Better Writers
+
+Comics, DC Comics, Shazam
+
+Thu, 30 Apr 2026 11:00:12 GMT
+
+https://www.cbr.com/dc-comics-characters-who-deserved-better-writers/
+
+Despite assigning some of the best writers in comics to its universe, DC has no shortage of wasted potential and creative blunders with its heroes.
+---------
+
+# 10 Most Intelligent 'Lord of the Rings' Characters, Ranked
+
+Movie, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Thu, 30 Apr 2026 11:56:14 GMT
+
+https://collider.com/lord-of-the-rings-most-intelligent-characters-ranked/
+
+From Saruman to Gandalf, these are the most intelligent characters from the Lord of the Rings trilogy.
+---------
+
+# 10 Greatest War-Fantasy Movie Masterpieces, Ranked
+
+Movie, Fantasy, War, Warcraft, The Lord of the Rings: The Return of the King
+
+Thu, 30 Apr 2026 11:43:14 GMT
+
+https://collider.com/best-war-fantasy-movie-masterpieces-ranked/
+
+The best war-fantasy movies, like Pan's Labyrinth and Princess Mononoke, feature large-scale conflicts but ground the action in deep character drama.
+---------
+
+# 10 Greatest Albums of the 1960s, Ranked
+
+Music Features, The Beach Boys, The Beatles, Bob Dylan, Led Zeppelin
+
+Thu, 30 Apr 2026 11:32:13 GMT
+
+https://collider.com/best-1960s-albums-ranked/
+
+The 1960s was an incredible time for music, particularly albums, as classics like Pet Sounds, Abbey Road, and In the Court of the Crimson King show.
+---------
+
+# Netflix’s ‘White Lotus’ Replacement Has Viewers Checking Out in Droves
+
+TV News, Beef, Netflix, Steven Yeun, Oscar Isaac
+
+Thu, 30 Apr 2026 11:30:13 GMT
+
+https://collider.com/netflix-white-lotus-replacement-crime-thriller-beef-season-2-declining-viewership-april-2026/
+
+Beef Season 2 has emerged as Netflix's most popular binge-watch of the week, but the show is more than 10 million views behind Season 1.
+---------
+
+# Only 3 Action Thrillers in the 2020s Are Actually Perfect
+
+Movie, Sinners, One Battle After Another, John Wick: Chapter 4, Action
+
+Thu, 30 Apr 2026 11:21:13 GMT
+
+https://collider.com/action-thrillers-2020s-perfect/
+
+The 2020s aren't over yet, but a few action thrillers from the decade so far have been perfect, including John Wick: Chapter 4 and Sinners.
+---------
+
+# 'Lost' Icon's Near-Perfect Sci-Fi Series Hits Free Streaming This May
+
+TV News, Colony, Josh Holloway, Stephen King, Sci-Fi
+
+Thu, 30 Apr 2026 11:00:12 GMT
+
+https://collider.com/josh-holloway-near-perfect-sci-fi-series-colony-streaming-free-tubi-may-2026/
+
+A 92%-rated sci-fi series backed by Stephen King is now free to stream, offering a full binge for fans of layered dystopian drama.
+---------
+
+# Elton John and Other Classic Rock Legends Made Huge Comebacks in the 1980s
+
+Music Features, Music, Madonna, Bon Jovi, Paul McCartney, Elton John
+
+Thu, 30 Apr 2026 11:00:12 GMT
+
+https://collider.com/elton-john-other-classic-rock-legends-1980s-comeback/
+
+Discover why classic rock acts like Elton John, Pink Floyd, and AC/DC experienced resurgences in the 1980s, driven by new technology, MTV, and the enduring quality of their music.
+---------
+
+# 10 Most Intense Action Thriller Movies That Are Perfect if You Love 'Taken'
+
+Movie, Taken, John Wick, The Equalizer, Man on Fire
+
+Thu, 30 Apr 2026 10:53:12 GMT
+
+https://collider.com/action-thriller-movies-taken-fans/
+
+Harry Brown, John Wick, Man on Fire, Nobody, The Equalizer, and more make up our list of intense action thriller movies perfect for Taken fans.
+---------
+
+# 5 'Game of Thrones' Stories That Work Better as Movies Than Aegon's Conquest
+
+Movie, Game Of Thrones, Fantasy, House of the Dragon, A Song of Ice and Fire
+
+Thu, 30 Apr 2026 10:42:12 GMT
+
+https://collider.com/game-of-thrones-stories-better-movies-aegons-conquest/
+
+A movie about Aegon's Conquest sounds good, but the World of Ice and Fire has other better stories, like the first Long Night or the Doom of Valyria.
+---------
+
+# HBO Max Says Hello to Gerard Butler's Long-Awaited Sci-Fi Sequel
+
+Movie News, HBO Max, Gerard Butler, Greenland 2: Migration, Morena Baccarin
+
+Thu, 30 Apr 2026 10:30:12 GMT
+
+https://collider.com/gerard-butler-sci-fi-sequel-greenland-2-migration-streaming-hbo-max-may-2026/
+
+Discover the thrilling sequel to Greenland as the Garrity family embarks on a perilous journey across a decimated Europe in Greenland 2: Migration.
+---------
+
+# 'House of the Dragon' Season 3 Cast Guide: Every Main Character, Explained
+
+Features, House of the Dragon
+
+Thu, 30 Apr 2026 11:00:17 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-characters/
+
+There are a lot of players on the board for the next phase of the Targaryen civil war.
+---------
+
 # Cyberpunk 2077 Just Got A Brand-New Ending
 
 Gaming, Cyberpunk 2077
