@@ -1,3 +1,366 @@
+# 1 Of The Best Spy Thrillers Of The Century Is Based On The Book That Inspired Reacher
+
+Streaming TV, The Day of the Jackal, Reacher
+
+Thu, 30 Apr 2026 02:01:41 GMT
+
+https://screenrant.com/day-of-the-jackal-reacher-inspiration/
+
+One of the absolute best spy thriller TV shows of the century is interestingly based on a book that also served as an inspiration for Jack Reacher.
+---------
+
+# Fallout Fans Furious With Official New Bethesda Game Release
+
+Gaming, Fallout, Triple-A Games
+
+Thu, 30 Apr 2026 02:00:31 GMT
+
+https://screenrant.com/fallout-april-2026-new-release-gamers-react/
+
+Although Bethesda has a lot cooking right now between a new Fallout and another Elder Scrolls, fans aren't happy about a new release.
+---------
+
+# Netflix Is Getting The Most Controversial Anime Ever, And It Needs To Be Every Fan's Next Weekend Binge
+
+Anime, Netflix, Assassination Classroom
+
+Thu, 30 Apr 2026 01:30:20 GMT
+
+https://screenrant.com/assasination-classroom-netflix-most-controversial-anime/
+
+Netflix adds the controversial anime series Assassination Classroom to its lineup, despite being banned in classrooms across the United States.
+---------
+
+# TV's Riskiest New Crime Thriller Is Perfect From Start To Finish
+
+Streaming TV, Masked Recs
+
+Thu, 30 Apr 2026 01:15:20 GMT
+
+https://screenrant.com/dexter-resurrection-season-1-perfect-start-finish/
+
+Dexter: Resurrection season 1 is a phenomenal return to form for the crime thriller franchise, delivering 10 episodes of thrilling twists, emotional depth, and satisfying conclusions.
+---------
+
+# 21 Years Later, Marvel's True Worst Movie Ever Makes Morbius Look Like Citizen Kane
+
+Movies, Morbius, Marvel
+
+Thu, 30 Apr 2026 01:00:19 GMT
+
+https://screenrant.com/marvel-worst-movie-man-thing/
+
+One of the weirdest movies totally rewrote its main character's origin and remains a mess two decades later.
+---------
+
+# One Of Fantasy's Best Book Trilogies Is 'Harry Potter Meets Narnia'
+
+Books, Masked Recs
+
+Thu, 30 Apr 2026 00:45:19 GMT
+
+https://screenrant.com/the-magicians-book-trilogy-fantasy-best/
+
+Harry Potter and The Chronicles of Narnia are among the best fantasy has to offer, and this all-time great trilogy is a combination of both.
+---------
+
+# Solo Leveling's Webtoon Replacement Is An All-Time Classic That's Still Near-Perfect
+
+Anime, Solo Leveling
+
+Thu, 30 Apr 2026 00:30:19 GMT
+
+https://screenrant.com/solo-leveling-replacement-webtoon-eleceed/
+
+While Solo Leveling's anime has hit a mysterious roadblock, Eleceed, with its promising upcoming anime, could come for its empty throne.
+---------
+
+# Michael 2 Development Teased By Lionsgate Chief After Record-Breaking Box Office
+
+Movies, Michael
+
+Thu, 30 Apr 2026 00:22:55 GMT
+
+https://screenrant.com/michael-jackson-biopic-sequel-update/
+
+Less than a week after Lionsgate's Michael was released in theaters, development has been teased for a sequel to the pop star's biopic.
+---------
+
+# Netflix's 2-Part 'Supernatural Meets Van Helsing' Series Is Quietly One Of Its Best Fantasy Shows
+
+TV, Supernatural, Van Helsing, Netflix, Masked Recs
+
+Thu, 30 Apr 2026 00:12:19 GMT
+
+https://screenrant.com/netflixs-2-part-supernatural-meets-van-helsing-series-is-quietly-one-of-its-best-fantasy-shows/
+
+One of Netflix's darkest blends of fantasy and horror brought Van Helsing's brutal gore and action to the religious horror seen in Supernatural.
+---------
+
+# Keira Knightley Officially Starring In New Adaptation Of 20-Year-Old War Thriller
+
+Movies, Keira Knightley
+
+Thu, 30 Apr 2026 00:01:55 GMT
+
+https://screenrant.com/keira-knightley-the-lives-of-others-stage-play/
+
+Keira Knightley will star in a brand-new adaptation of an Academy Award-winning film this fall 20 years after its initial release.
+---------
+
+# The 5 Worst Studio Ghibli Movies, Ranked
+
+Anime, Studio Ghibli
+
+Thu, 30 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/worst-studio-ghibli-movies-ranked-list/
+
+Studio Ghibli has made many of the best anime movies, but some films miss the mark.
+---------
+
+# 8 MCU Heroes We Want Deadpool to Team Up With in His Next Movie
+
+Movies, Deadpool, Marvel Cinematic Universe
+
+Thu, 30 Apr 2026 02:00:22 GMT
+
+https://www.cbr.com/deadpool-4-mcu-hero-team-up/
+
+Ryan Reynolds has teased future team-ups for Deadpool in the MCU, and there are many brilliant characters we want him to fight alongside.
+---------
+
+# The 10 Best Cyberpunk Games That Aren't Cyberpunk 2077
+
+Games, cyberpunk 2077, Video Games, Stray, Science Fiction
+
+Thu, 30 Apr 2026 01:45:13 GMT
+
+https://www.cbr.com/best-cyberpunk-games-that-arent-cyberpunk-2077/
+
+CD Projekt RED put cyberpunk on the map, but games like Deus Ex, System Shock 2, and Stray prove cyberpunk has been thriving in gaming for decades.
+---------
+
+# 22 Years Later, The Greatest PS2 Action RPG Is More Powerful Than Ever
+
+Games, Role Playing Game, PlayStation 2, action rpg
+
+Thu, 30 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/22-years-later-greatest-ps2-action-rpg-more-powerful-than-ever/
+
+One of the best action RPGs on the PS2 has only gotten better with age.
+---------
+
+# The Best Movie From Every Year of the 1980s
+
+Movies, Die Hard
+
+Thu, 30 Apr 2026 01:30:12 GMT
+
+https://www.cbr.com/best-movie-every-year-80s/
+
+The 1980s contained some of the best films of the modern cinematic world, and these ten films are the best entries from each year of the decade.
+---------
+
+# Witch Hat Atelier's Qifrey Shows JJK's Gojo Exactly How Magic in Anime is Done
+
+Anime, Witch Hat Atelier, Jujutsu Kaisen
+
+Thu, 30 Apr 2026 01:25:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-qifrey-copies-jjk-gojo-anime/
+
+Gojo may still be trapped inside the Prison Realm, but Spring 2026 has come in clutch with an epic moment showing off another powerful anime mentor.
+---------
+
+# Sony Officially Responds After PlayStation's New DRM Policy Sparks Backlash
+
+Games, PlayStation 5
+
+Thu, 30 Apr 2026 01:01:51 GMT
+
+https://www.cbr.com/sony-responds-playstation-online-license-checks/
+
+PS4 and PS5 gamers are not happy about a new DRM policy, leading Sony to officially clarify the change.
+---------
+
+# It's Officially the End of an Era for CBS Ghosts
+
+TV, CBS, Ghosts, Eternally Yours
+
+Thu, 30 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/cbs-ghosts-schedule-change-eternally-yours-end-of-era/
+
+It's the end of an era for Ghosts despite its critical success as CBS ushers in major scheduling changes for the 2026-2027 television lineup.
+---------
+
+# Record of Lodoss War Is Officially Back With New 2026 WEBTOON Release
+
+Anime, Record Of Lodoss War, webtoon, webtoons, Kadokawa
+
+Thu, 30 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/record-of-lodoss-war-webtoon-may-2026-release/
+
+After a 30-year wait, Record of Lodoss War is finally back with a brand-new release in 2026.
+---------
+
+# Frank Miller's The Dark Knight Returns: The Last Crusade Is The Best Jason Todd Robin Comic
+
+Comics, Batman, frank miller, Robin
+
+Thu, 30 Apr 2026 01:00:12 GMT
+
+https://www.cbr.com/frank-miller-batman-dark-knight-returns-last-crusade-gold-standard-jason-todd-robin-comics/
+
+Jason Todd's best Robin story isn't Death in The Family, it's this forgotten masterpiece from a decade ago.
+---------
+
+# Daniel Craig’s Best James Bond Movie Surrenders Box-Office Rank to 2026's Sci-Fi Juggernaut
+
+Movie News, Project Hail Mary, Skyfall, James Bond, Box Office
+
+Thu, 30 Apr 2026 01:45:13 GMT
+
+https://collider.com/2026-sci-fi-masterpiece-project-hail-mary-overtakes-skyfall-daniel-craig-best-james-bond-movie-box-office-615-million/
+
+The sci-fi blockbuster Project Hail Mary has overtaken the box-office haul of Skyfall, the best James Bond movie of Daniel Craig's tenure.
+---------
+
+# ‘Dune: Prophecy’ Star’s Cautionary Sci-Fi Tale Dominates HBO Max 2 Years Later
+
+Movie News, 2073, Sci-Fi, HBO Max, Samantha Morton
+
+Thu, 30 Apr 2026 01:30:12 GMT
+
+https://collider.com/2073-sci-fi-box-office-bomb-streaming-success-hbo-max-april-2026/
+
+Oscar-winner Asif Kapadia's experimental sci-fi film 2073 is staging a major comeback on streaming following a poor box-office run.
+---------
+
+# Middle-earth Gets a Makeover in Trailer for New The Lord of the Rings Adaptation
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Peter Jackson, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 30 Apr 2026 01:15:13 GMT
+
+https://collider.com/lord-of-the-rings-trilogy-fantasy-franchise-ascension-tabletop-game-trailer/
+
+Discover the latest adaptation of The Lord of the Rings trilogy with Ascension, featuring three expansion sets based on the trilogy.
+---------
+
+# 10 Most Entertaining Movies of the 1980s, Ranked
+
+Movie, Indiana Jones and the Last Crusade, The Empire Strikes Back, Back to the Future, Akira
+
+Thu, 30 Apr 2026 01:03:12 GMT
+
+https://collider.com/most-entertaining-movies-1980s-ranked/
+
+Raiders of the Lost Ark, The Empire Strikes Back, and Aliens are all among the best and most purely entertaining movies released in the 1980s.
+---------
+
+# Fans of Tom Hiddleston’s Epic Spy Thriller Won’t Have to Wait 10 Years for Season 3
+
+TV News, The Night Manager, Tom Hiddleston, Hugh Laurie, David Farr
+
+Thu, 30 Apr 2026 01:00:13 GMT
+
+https://collider.com/tom-hiddleston-spy-thriller-the-night-manager-season-3-release-update-creator-david-farr/
+
+The Night Manager creator David Farr has offered a hopeful update regarding a third season of Tom Hiddleston's show.
+---------
+
+# Tom Hanks' 169-Minute WWII Masterpiece Is Taking Over Streaming Worldwide
+
+Movie News, Saving Private Ryan, Tom Hanks, Matt Damon, Steven Spielberg
+
+Thu, 30 Apr 2026 00:45:13 GMT
+
+https://collider.com/saving-private-ryan-tom-hanks-brutal-ww2-epic-streaming-success-tubi-april-2026/
+
+The iconic World War 2 movie Saving Private Ryan, starring Tom Hanks and directed by Steven Spielberg, has emerged as a free streaming hit.
+---------
+
+# Netflix Says Goodbye to Jaws the Greatest Horror Thriller Franchise of All Time
+
+Movie Features, Jaws, Jaws 2, Jaws 3-D, Steven Spielberg
+
+Thu, 30 Apr 2026 00:31:13 GMT
+
+https://collider.com/jaws-leaving-netflix-best-creature-feature-franchise/
+
+Jaws and its sequels are leaving Netflix, marking the departure of one of the most influential creature feature franchises ever made.
+---------
+
+# 'Interview With the Vampire' Is About to Go Live With a Rocking New Season 3 Event
+
+TV News, Interview with the Vampire, Sam Reid, Anne Rice, AMC
+
+Thu, 30 Apr 2026 00:30:13 GMT
+
+https://collider.com/interview-with-the-vampire-season-3-the-vampire-lestat-one-night-only-live-sam-reid-june-7/
+
+Interview With the Vampire star Sam Reid will embody his immortal rock star this summer with a new live event celebrating The Vampire Lestat.
+---------
+
+# New Spy Thriller Series From ‘Lethal Weapon’ and 'The Nice Guys' Writer Officially in Development
+
+TV News, AMC, Action, Shane Black, Greg Nicotero
+
+Thu, 30 Apr 2026 00:30:13 GMT
+
+https://collider.com/new-spy-thriller-adaptation-bannerman-tv-series-amc-shane-black/
+
+AMC Studios is developing a TV series based on John R. Maxim's Bannerman spy novels, with Shane Black executive producing and directing.
+---------
+
+# ‘Heated Rivalry’ Star's New Mystery Thriller Series Is Officially Coming This Year
+
+TV News, Hudson Williams, Heated Rivalry, Carrie-Anne Moss, AMC+
+
+Thu, 30 Apr 2026 00:30:13 GMT
+
+https://collider.com/heated-rivalry-hudson-williams-new-series-mystery-thriller-yaga-details-amc-plus/
+
+Heated Rivalry star Hudson Williams has been tapped to headline a new mystery series, Yaga, which is coming to AMC+ later this year.
+---------
+
+# 8 Classic Martial Arts Movies With 10/10 Action From Start To Finish
+
+Movie Lists, Martial Arts, Action, Bruce Lee, Jackie Chan, Jet Li
+
+Thu, 30 Apr 2026 02:00:29 GMT
+
+https://movieweb.com/classic-martial-arts-movies-action-start-finish/
+
+Whether from Jackie Chan, Bruce Lee, or the Shaw Brothers, these martial arts classics feature impressive action throughout.
+---------
+
+# 'The Pitt's Shawn Hatosy Bumped From Guest to Supporting Star for Emmy Awards
+
+TV News, The Pitt, Shawn Hatosy
+
+Thu, 30 Apr 2026 00:52:38 GMT
+
+https://movieweb.com/the-pitt-shawn-hatosy-guest-star-emmy-promotion/
+
+The actor could have made history for scoring consecutive Guest Actor Emmy Awards for the same role, which has never been done.
+---------
+
+# New 'Masters of the Universe' Trailer Spotlights Skeletor, Evil-Lynn, and The Horde
+
+Movie News, Masters of the Universe
+
+Wed, 29 Apr 2026 23:58:54 GMT
+
+https://movieweb.com/masters-of-the-universe-teaser-villains/
+
+The newest featurette for 'Masters of the Universe' showcases more of Jared Leto and Alison Brie as the film's two main villains.
+---------
+
 # Jenna Ortega's Jurassic World Series On Netflix Is The Franchise's Best Since 1993
 
 TV, Netflix, Jurassic World, Jurassic World: Camp Cretaceous, Jurassic Park, Jenna Ortega
