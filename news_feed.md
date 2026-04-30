@@ -1,3 +1,278 @@
+# Apple TV's New Thriller With Perfect RT Score Is 'Parks & Rec Meets American Horror Story'
+
+Streaming TV, Masked Recs
+
+Thu, 30 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/apple-tv-widows-bay-thriller-parks-and-rec-meets-american-horror-story/
+
+Apple TV's new thriller series somehow takes the workplace quirkiness of Parks & Recreation and layers it up with every horror trope in the book.
+---------
+
+# Daredevil: Born Again Season 2’s Shocking Death Hurts The MCU Series
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Thu, 30 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-daniel-blake-death-bad/
+
+Daredevil: Born Again season 2's latest major death was not only shocking, but it will also impact the Disney+ Marvel series in a negative way.
+---------
+
+# 8 Best Romance K-Dramas on Netflix
+
+TV, Netflix
+
+Thu, 30 Apr 2026 22:30:19 GMT
+
+https://screenrant.com/best-romance-k-drama-netflix/
+
+Netflix has become the go-to K-drama hub in recent years, and these are some of the best romance K-dramas on the platform.
+---------
+
+# How One Of The Most Terrifying Batman Scenes Was Actually Created Explained 21 Years Later
+
+Movies, Batman Begins, Batman
+
+Thu, 30 Apr 2026 22:23:43 GMT
+
+https://screenrant.com/batman-begins-scarecrow-vision-scene-creation-explained/
+
+A VFX supervisor explains how one of the most terrifying Batman scenes was actually created, debunking a misconception in the process.
+---------
+
+# Viggo Mortensen 'Thrilled' With Jamie Dornan's Aragorn Recasting
+
+Movies, The Lord of the Rings: The Hunt for Gollum, Andy Serkis, Viggo Mortensen, Jamie Dornan
+
+Thu, 30 Apr 2026 22:05:51 GMT
+
+https://screenrant.com/lotr-hunt-for-gollum-viggo-mortensen-reacts-tojamie-dornan-casting/
+
+Andy Serkis reveals Viggo Mortensen's positive reaction to Jamie Dornan's casting as Aragorn in the upcoming The Lord of the Rings: The Hunt for Gollum film, set for release in 2027.
+---------
+
+# 1 Upcoming Post-Apocalyptic Series Will Show Silo & Fallout How It’s Done
+
+Streaming TV, Silo, Fallout
+
+Thu, 30 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/post-apocalyptic-swan-song-silo-fallout-comparison/
+
+A new post apocalyptic thriller, based on an acclaimed sci-fi novel, could turn out to be even better than Apple TV’s Silo and Prime Video’s Fallout.
+---------
+
+# For All Mankind Season 5: Margo And Irina's Rivalry Across Millions Of Miles
+
+TV, For All Mankind
+
+Thu, 30 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/for-all-mankind-margo-irina-rivalry-mars/
+
+One For All Mankind character is in prison, the other is on Mars, but their rivalry still impacts the future of space exploration.
+---------
+
+# 8 Near-Perfect Movies That Combine Live-Action and Animation
+
+Movies
+
+Thu, 30 Apr 2026 22:00:19 GMT
+
+https://screenrant.com/near-perfect-movies-combine-live-action-animation/
+
+Let's admit it now - Who Framed Roger Rabbit is #1.
+---------
+
+# Glen Powell's Future Star Fox Movie Can Break Illumination's 16 Year Mold
+
+New Movies, Illumination, Star Fox
+
+Thu, 30 Apr 2026 21:50:20 GMT
+
+https://screenrant.com/star-fox-movie-illumination-first-2d-animation/
+
+The Super Mario Galaxy Movie sets up a Star Fox movie for Glen Powell's character, and it could break the mold that Illumination has always used.
+---------
+
+# Taylor Sheridan's Landman Show Aims To Break Awards Drought
+
+Streaming TV, Landman
+
+Thu, 30 Apr 2026 21:46:56 GMT
+
+https://screenrant.com/taylor-sheridan-landman-western-awards-streak-break/
+
+Landman, a neo-Western series from Taylor Sheridan, is making a push for major awards recognition after its first season was surprisingly snubbed.
+---------
+
+# Pokémon TCG Expansion Mega Evolution Pitch Black Announced
+
+Games, Pokemon TCG
+
+Thu, 30 Apr 2026 22:39:13 GMT
+
+https://www.cbr.com/new-pokemon-tcg-expansion-mega-evolution-pitch-black-july-17-release-date/
+
+The next Pokémon TCG expansion has been revealed, as Mega Evolution - Pitch Black is launching in July, bringing in new creatures from Legends: Z-A.
+---------
+
+# All 3 Meet the Parents Films Will Release on Netflix Ahead of New Sequel
+
+Movies, Meet the Parents, Comedy, Netflix
+
+Thu, 30 Apr 2026 22:30:12 GMT
+
+https://www.cbr.com/meet-the-parents-franchise-streaming-home-netflix-before-sequel-may-2026/
+
+Ahead of the highly anticipated sequel, Robert De Niro's beloved comedy trilogy is getting a new streaming home.
+---------
+
+# New Dragon Ball Super Leaks Confirm the 2026 Remake Was Always a Mistake
+
+Anime, Dragon Ball Super, Dragon Ball Super: Beerus, Dragon Ball Super: The Galactic Patrol
+
+Thu, 30 Apr 2026 22:18:12 GMT
+
+https://www.cbr.com/dragon-ball-super-production-leaks-remake-mistake/
+
+New insider reports suggest Dragon Ball Super's Galactic Patrol Arc is already in production, and that's actually terrible news for the anime remake.
+---------
+
+# 10 Strongest Anime Heroes of the 1980s
+
+Anime
+
+Thu, 30 Apr 2026 22:15:12 GMT
+
+https://www.cbr.com/strongest-anime-heroes-of-the-1980s/
+
+Goku and the Z-Warriors weren't the only powerful anime heroes in the 1980s.
+---------
+
+# Netflix Finally Sets Streaming Release Date for Bugonia
+
+Movies, Bugonia, Netflix
+
+Thu, 30 Apr 2026 22:01:13 GMT
+
+https://www.cbr.com/netflix-bugonia-now-streaming/
+
+The Oscar-nominated sci-fi thriller is finally heading to Netflix after shocking audiences more than any other film last year.
+---------
+
+# Pirates of the Caribbean Has The Best VFX On Streaming
+
+Movies, Pirates of the Caribbean
+
+Thu, 30 Apr 2026 22:01:13 GMT
+
+https://www.cbr.com/best-movie-vfx-pirates-of-the-caribbean/
+
+Over the last 23 years, one movie franchise has delivered some of the best visual effects in cinema history, and you can see it all on Disney+.
+---------
+
+# Diablo 4: Lord of Hatred's New Hidden Secret Officially Has Gamers Hyped
+
+Games, Diablo 4, Diablo
+
+Thu, 30 Apr 2026 21:35:13 GMT
+
+https://www.cbr.com/diablo-4-lord-of-hatred-secret-cow-level/
+
+Diablo 4: Lord of Hatred might just be bringing one of the most beloved and absurd aspects of the entire franchise back for another brutal run.
+---------
+
+# 10 Greatest Adventure Video Game Masterpieces of All Time, Ranked
+
+Movie, Video Game, The Last of Us, Pokémon, The Legend of Zelda
+
+Thu, 30 Apr 2026 21:47:12 GMT
+
+https://collider.com/best-adventure-video-game-masterpieces-all-time-ranked/
+
+From the lighthearted Super Mario Galaxy to the bleak The Last of Us, the all-time best adventure video games are timeless masterpieces of the medium.
+---------
+
+# Gerard Butler's Epic Crime Thriller Is Still a #1 Late-Night Favorite
+
+Movie Features, Gerard Butler, Den of Thieves, Den of Thieves 2: Pantera, O'Shea Jackson Jr.
+
+Thu, 30 Apr 2026 21:45:31 GMT
+
+https://collider.com/den-of-thieves-2-gerard-butler-epic-crime-thriller-on-prime-video-streaming-may-2026/
+
+Gerard Butler stars in Den of Thieves 2, where he returns as Nick O'Brien, a sheriff looking for a big score.
+---------
+
+# It's the End of an Era for Netflix's Near Perfect Zombie Thriller
+
+Movie Features, Train to Busan, Netflix, Gong Yoo, Ma Dong-seok
+
+Thu, 30 Apr 2026 21:45:18 GMT
+
+https://collider.com/train-to-busan-leaving-netflix/
+
+Train to Busan is a high-octane Korean zombie film about the terrifying reality of being trapped in close quarters with the scourge of the undead.
+---------
+
+# Tom Hardy's Brutal Action Thriller Gets a Second Life on a New Streaming Platform
+
+Movie News, Tom Hardy, Joel Edgerton, Warrior, Sports
+
+Thu, 30 Apr 2026 21:31:13 GMT
+
+https://collider.com/tom-hardy-fighter-action-movie-warrior-streaming-plex-may-2026/
+
+Tom Hardy's underrated ex-marine fighter movie, Warrior, is coming to a new streaming home very soon. Here's where you can watch the film.
+---------
+
+# 'Wonder Man' Season 2 Will Maintain the Same Tone, Showrunner Confirms
+
+TV News, Wonder Man
+
+Thu, 30 Apr 2026 22:20:56 GMT
+
+https://movieweb.com/wonder-man-season-2-plot-tone/
+
+Series co-creator Andrew Guest reveals 'Wonder Man' Season 2 will continue to focus on the struggles of being an actor and friendship.
+---------
+
+# Classic 'Scrubs' Episode Reveals the Middle Name of JD's New Off-Screen Son
+
+Features, Scrubs
+
+Thu, 30 Apr 2026 22:00:18 GMT
+
+https://movieweb.com/scrubs-jd-elliot-child-middle-name/
+
+JD & Elliot's son, Ollie, is a new (but as-yet unseen) character for the 'Scrubs' revival. Weidly, we learned something about him 20 years ago.
+---------
+
+# Christopher Nolan Addresses 'The Odyssey' Runtime
+
+Movie News, The Odyssey, Christopher Nolan
+
+Thu, 30 Apr 2026 22:00:15 GMT
+
+https://movieweb.com/the-odyssey-shorter-than-oppenheimer/
+
+The Academy Award-winning director confirmed 'The Odyssey' won't be as long as 'Oppenheimer's three-hour runtime.
+---------
+
+# 'Star Wars: Starfighter' Behind-The-Scenes Info Reveals Speeder Chases & Big Explosions
+
+Movie News, Star Wars: Starfighter
+
+Thu, 30 Apr 2026 21:32:05 GMT
+
+https://movieweb.com/star-wars-starfighter-visual-effects/
+
+Classic Star Wars action will be included in 2027's 'Starfighter' movie, including speeder chases and massive explosions.
+---------
+
 # The Devil Wears Prada 2’s Celebrity Cameos Explained By Director
 
 Movies, The Devil Wears Prada 2
