@@ -1,3 +1,322 @@
+# Netflix's 10-Part Psychological Thriller That's Designed To Be Binged Is Cobra Kai Meets Squid Game
+
+Streaming TV, Cobra Kai, Squid Game, Netflix, Masked Recs
+
+Thu, 30 Apr 2026 13:38:19 GMT
+
+https://screenrant.com/bet-kakegurui-netflix-pscyhological-thriller-cobra-kai-squid-game/
+
+This underrated Netflix show's unexpected premise blends Cobra Kai and Squid Game into something new, inventive, and entirely unpredictable.
+---------
+
+# Elden Ring's Official 2026 Return Has Gamers Debating Price
+
+Gaming, Elden Ring, Triple-A Games
+
+Thu, 30 Apr 2026 13:36:35 GMT
+
+https://screenrant.com/elden-ring-tarnished-edition-price-reactions/
+
+With a new Elden Ring official release around the corner, fans are debating whether or not it's worth the price, given an official listing.
+---------
+
+# PlayStation Plus "Beautiful" New Free Game Is Already A Hit
+
+Gaming, PlayStation Plus, Indie Games
+
+Thu, 30 Apr 2026 13:32:24 GMT
+
+https://screenrant.com/playstation-plus-beautiful-free-game-may-2026/
+
+A free PlayStation Plus title for May is already winning fans over, earning comparisons to Sekiro and praise for visuals and playstyle.
+---------
+
+# DC’s 3-Part Superman Series Sets Official 2026 Return With Iconic Comic Book Story
+
+TV, Superman, My Adventures With Superman, DC Universe
+
+Thu, 30 Apr 2026 13:31:35 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-release-date-hbo-max/
+
+DC's Superman series is officially returning with new episodes in 2026, as it has been confirmed that the HBO Max show adapts a major comics' story.
+---------
+
+# Which Resident Evil Games Inspired Zach Cregger's Upcoming Horror Movie
+
+Movies, Resident Evil
+
+Thu, 30 Apr 2026 13:30:22 GMT
+
+https://screenrant.com/resident-evil-movie-games-inspiration-zach-cregger/
+
+Exclusive: Zach Cregger, director of the new Resident Evil movie, takes cues and studies the elements of some of the franchise's most iconic games.
+---------
+
+# Crunchyroll Has Officially Found The Next Gojo, And They're In 2026's Best Fantasy Anime
+
+Anime, Crunchyroll
+
+Thu, 30 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/witch-hat-atellier-gojo-successor-crunchyroll-best-fantasy-anime-2026/
+
+A new character in one of Crunchyroll's hottest series has been called a "Gojo clone" and the latest episode reveals why that isn't a bad thing.
+---------
+
+# Jennifer Lopez & Brett Goldstein's Relationship Takes A Raunchy Turn In Netflix's Office Romance Trailer
+
+Movies, Office Romance
+
+Thu, 30 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/netflix-office-romance-movie-trailer/
+
+The workplace takes a raunchy turn for Jennifer Lopez and Brett Goldstein in the first trailer for Netflix's upcoming romantic comedy Office Romance.
+---------
+
+# James Gunn's New Batman Villain Movie Has Already Explained The Dark Knight's Absence
+
+Superheroes, Clayface, DC Universe
+
+Thu, 30 Apr 2026 13:30:19 GMT
+
+https://screenrant.com/clayface-movie-batman-absence-explained-timeline/
+
+James Gunn's DC Universe has a new Batman villain movie, and The Dark Knight won't be in it. An update on the film explains how this can work.
+---------
+
+# Zach Cregger's Resident Evil (2026) | Official Teaser Trailer
+
+Movies, Resident Evil
+
+Thu, 30 Apr 2026 13:26:11 GMT
+
+https://screenrant.com/video/zach-creggers-resident-evil-2026-official-teaser-trailer/
+
+From the mind of visionary filmmaker Zach Cregger (Weapons, Barbarian) comes a thrilling — and terrifying — reinvention of the Resident Evil franchise. In an all-new story, Resident Evil follows Bryan (Austin Abrams), a medical courier who unwittingly finds himself in an action-packed, non-stop race for survival as one fateful, horrifying night collapses around him in chaos.
+---------
+
+# Why Zach Cregger Has Never Seen A Resident Evil Movie Before New Adaptation: "Not For Me"
+
+Movies, Horror, Resident Evil
+
+Thu, 30 Apr 2026 13:20:01 GMT
+
+https://screenrant.com/zach-cregger-resident-evil-movies-watch-no-why/
+
+Exclusive: New Resident Evil reboot director Zach Cregger explains why the original movies turned him off, even though he loves the games.
+---------
+
+# Resident Evil Officially Kicks Off a New Era With First Teaser for Zach Cregger's Reboot
+
+Movies, Resident Evil
+
+Thu, 30 Apr 2026 13:29:30 GMT
+
+https://www.cbr.com/resident-evil-reboot-teaser/
+
+A new era is officially starting for one of the most popular video game franchises of all time.A new era is officially starting for one of the most po
+---------
+
+# Al Pacino, Robert Di Nero Heat Sets Free Streaming Release Date Ahead of Sequels
+
+Movies, Action, Crime, Thriller, Heat, Heat 2
+
+Thu, 30 Apr 2026 13:16:46 GMT
+
+https://www.cbr.com/al-pacino-robert-dinero-greatest-action-thrillers-heat-free-streaming-tubi-release-date/
+
+The single best crime movie of all-time will finally be free to stream in 2026.
+---------
+
+# DC Comics Game Franchise Makes Surprise Return in 2026
+
+Games, DCU
+
+Thu, 30 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/injustice-3-game-leak-hogwarts-legacy-2/
+
+A new listing has all but confirmed that a new DC Comics video game is on the way, one that's part of a beloved fighting game franchise.
+---------
+
+# 10 Forgotten '90s Shonen Anime That Have Aged Like Fine Wine
+
+Anime, Ghost Sweeper Mikami, Outlaw Star, Shonen
+
+Thu, 30 Apr 2026 13:15:12 GMT
+
+https://www.cbr.com/forgotten-90s-shonen-anime-aged-like-fine-wine/
+
+The '90s were a formative decade for shonen anime programming, including some excellent titles that nobody remembers that still deserve some love.
+---------
+
+# Meryl Streep Turned Down The Devil Wears Prada Until She Was Paid Double
+
+Movies, The Devil Wears Prada 2
+
+Thu, 30 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/meryl-streep-devil-wears-prada-rejection-salary-increase/
+
+The Devil Wears Prada 2 star revealed she almost turned down the role of Miranda Priestly, saying she was ready to retire.
+---------
+
+# The Mandalorian and Grogu Are Star Wars' Skywalker Family Replacement
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Thu, 30 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/star-wars-skywalker-family-replaced-mandalorian-grogu/
+
+Luke, Leia, Anakin, and Rey Skywalker will always be important to Star Wars, but The Mandalorian and Grogu marks a huge shift in the galaxy.
+---------
+
+# The 10 Funniest The Far Side Comics with Cavemen
+
+Comics, The Far Side
+
+Thu, 30 Apr 2026 13:00:12 GMT
+
+https://www.cbr.com/funniest-far-side-comics-about-cavemen/
+
+Gary Larson's Stone Age humans in The Far Side were among the funniest of them all.
+---------
+
+# G.I. Joe Reveals Return of Popular Anti-Hero Character
+
+Comics, G.I. Joe
+
+Thu, 30 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/gi-joe-storm-shadow-anti-hero-returns/
+
+A gripping new G.I. Joe battle sees a beloved anti-hero joining the fray in the most exciting way possible.
+---------
+
+# Ryan Reynolds Was Afraid Of One Thing As Isekai Anime's Next Big Star
+
+Anime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, That Time I Got Reincarnated as a Slime
+
+Thu, 30 Apr 2026 12:00:13 GMT
+
+https://www.cbr.com/that-time-i-got-reincarnated-as-a-slime-gobta-ryan-reynolds-interview/
+
+In an interview with CBR, Reincarnated as a Slime's voice of Gobta shared their struggle with tackling their biggest role yet in the anime's new film.
+---------
+
+# Netflix's New Jennifer Lopez and Brett Goldstein Rom-Com Gets Must-See First Trailer
+
+Movie News, Office Romance, Jennifer Lopez, Brett Goldstein, Netflix
+
+Thu, 30 Apr 2026 13:39:11 GMT
+
+https://collider.com/netflix-office-romance-trailer-jennifer-lopez-brett-goldstein/
+
+The official trailer for Jennifer Lopez's new rom-com, Office Romance, sees the star begin a raunchy new office affair with Brett Goldstein.
+---------
+
+# 'Doctor Who' Officially Returns This Summer — But There's a Catch
+
+TV News, Doctor Who, Science Fiction
+
+Thu, 30 Apr 2026 13:00:12 GMT
+
+https://collider.com/doctor-who-release-date-june-25-2026-circuit-breaker-multimedia-event-jo-martin-fugitive-doctor-return/
+
+Doctor Who star returns in Doctor Who: Circuit Breaker, a summer-long multimedia crossover event spanning games, comics, audio stories, and prose.
+---------
+
+# 25 Years Later, Steven Spielberg's 10-Part War Drama Show Is Still a Masterpiece From Start to Finish
+
+TV, Band of Brothers, HBO, Steven Spielberg, Tom Hanks
+
+Thu, 30 Apr 2026 12:39:13 GMT
+
+https://collider.com/band-of-brothers-steven-spielberg-masterpiece/
+
+Band of Brothers has no bad episodes and shows the power of Spielberg's storytelling from the beginning to the end.
+---------
+
+# 20 Highest Bounties in 'One Piece,' Ranked
+
+TV, One Piece, Anime, Manga
+
+Thu, 30 Apr 2026 12:32:13 GMT
+
+https://collider.com/one-piece-highest-bounties-ranked/
+
+We rank the highest bounties from the iconic anime series One Piece, from Kaido to Gol D. Roger.
+---------
+
+# 10 Most Undeniable War Movie Classics, Ranked
+
+Movie, All Quiet on the Western Front, Saving Private Ryan, Casablanca, Paths of Glory
+
+Thu, 30 Apr 2026 12:17:12 GMT
+
+https://collider.com/war-movie-classics/
+
+From Patton to Saving Private Ryan, no one can deny that these are the most classic war movies of all time.
+---------
+
+# Only 3 Crime Shows Are Better Than 'Breaking Bad'
+
+TV, Breaking Bad, Peaky Blinders, The Sopranos, Crime
+
+Thu, 30 Apr 2026 12:08:12 GMT
+
+https://collider.com/crime-tv-shows-better-than-breaking-bad/
+
+Breaking Bad is considered the gold standard of the crime drama, but TV series like BBC's Peaky Blinders and HBO's The Sopranos are actually better.
+---------
+
+# Taylor Sheridan’s Sweeping 3-Part Neo-Western Is Officially a Major Awards Contender
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Ali Larter
+
+Thu, 30 Apr 2026 12:00:13 GMT
+
+https://collider.com/taylor-sheridan-neo-western-landman-season-2-emmy-awards-campaign/
+
+Landman, the 3-part sweeping American Western written by Taylor Sheridan, just became an official contender at the Emmys.
+---------
+
+# 'Resident Evil' Teaser Trailer Unleashes Zach Cregger Video Game Reboot
+
+Movie News, Zach Cregger, Resident Evil, Horror
+
+Thu, 30 Apr 2026 13:05:50 GMT
+
+https://movieweb.com/resident-evil-teaser-trailer/
+
+The first trailer for the 'Weapons' director's latest film looks to be a spiritually faithful adaptation.
+---------
+
+# Taylor Sheridan's 'Hell or High Water' To Stream Exclusively on Peacock May 1
+
+Movie News, Taylor Sheridan, Hell or High Water, Coming/Leaving Streaming, Western, Action
+
+Thu, 30 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/taylor-sheridan-hell-or-high-water-streaming-exclusive-peacock-may-2026/
+
+Directed by David Mackenzie from a script by Taylor Sheridan, 'Hell or High Water' has landed a new streaming home after abandoning Netflix.
+---------
+
+# 'Dark Winds’ Is an Underrated TV Masterpiece for Taylor Sheridan Fans
+
+Features, Dark Winds, Cultural Reassessment
+
+Thu, 30 Apr 2026 12:00:17 GMT
+
+https://movieweb.com/dark-winds-underrated-neo-western/
+
+'Dark Winds,' the Neo-Western TV series that the late Robert Redford executive-produced, is a great watch for fans of Taylor Sheridan.
+---------
+
 # Zelda Officially Confirms End Of An Era With New 2026 Release
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, The Legend of Zelda: Tears of the Kingdom, Nintendo
