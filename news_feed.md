@@ -1,3 +1,344 @@
+# The Devil Wears Prada 2’s Celebrity Cameos Explained By Director
+
+Movies, The Devil Wears Prada 2
+
+Thu, 30 Apr 2026 21:30:19 GMT
+
+https://screenrant.com/devil-wears-prada-2-cameos-director-explanation/
+
+EXCLUSIVE: Director David Frankel discusses how the film's celebrity cameos were chosen to represent Miranda Priestly's uniquely elite world.
+---------
+
+# Marvel’s New Spider-Man Just Beat Out Tom Holland For A Major Live-Action Record
+
+Superheroes, Spider-Man: Brand New Day, Spider-Noir, Marvel Cinematic Universe
+
+Thu, 30 Apr 2026 21:20:20 GMT
+
+https://screenrant.com/spider-noir-beats-tom-holland-live-action-spiderman-record-organic-webs/
+
+While Spider-Man: Brand New Day is giving Tom Holland's Webslinger new powers, the next live-action Spider-Man we see is beating him to the punch.
+---------
+
+# 6 Most Impactful Order 66 Survivors In Star Wars, Ranked
+
+Movies, Star Wars
+
+Thu, 30 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/star-wars-order-66-survivors-ranked/
+
+While Star Wars has revealed dozens of Order 66 survivors in recent years, only a handful have made a true impact against the Empire's tyranny.
+---------
+
+# Pokémon Winds & Waves Legendary Monsters Are Truly Fearsome
+
+Gaming, Pokemon Winds and Waves, Pokemon, Nintendo Switch 2
+
+Thu, 30 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/pokemon-winds-waves-legendary-monsters-details-leaked/
+
+Pokémon always delivers when it comes to Legendary Pokémon, and it sounds like the latest creatures are no exception.
+---------
+
+# 5 Years Later, A Fantasy Action Movie Audiences Loved Is A Must-Watch This Weekend
+
+Classic Movies, Masked Recs
+
+Thu, 30 Apr 2026 21:00:20 GMT
+
+https://screenrant.com/mortal-kombat-movie-watch-this-weekend-streaming/
+
+A fantasy action movie that audiences loved when it came out 5 years ago is the perfect option to watch this weekend, ahead of another release.
+---------
+
+# Stephen King’s 2 New Shows In 2026 Will Tell The Same Dark Story
+
+Streaming TV, Stephen King, Carrie, Mike Flanagan, The Institute
+
+Thu, 30 Apr 2026 20:45:19 GMT
+
+https://screenrant.com/stephen-king-2026-carrie-institute-same-story/
+
+Two new Stephen King TV shows are all set to be released in 2026, and a closer look at both reveals how they will tell somewhat of similar story.
+---------
+
+# Invincible's Season 4 Finale Officially Rewrites The Rules Of The Prime Video Series
+
+TV, Invincible
+
+Thu, 30 Apr 2026 20:30:20 GMT
+
+https://screenrant.com/invincible-season-4-finale-rewrites-prime-video-series/
+
+Invincible season 4's finale is completely unlike what the Prime Video series has shown in the past, rewriting the show's rules in a major way.
+---------
+
+# Future Supernatural Reunions In Jensen Ackles' The Boys Prequel Addressed By Franchise Boss
+
+TV, The Boys, Supernatural
+
+Thu, 30 Apr 2026 20:20:14 GMT
+
+https://screenrant.com/the-boys-vought-rising-supernatural-reunions-chances-eric-kripke/
+
+EXCLUSIVE: Eric Kripke, creator mastermind behind both Supernatural and The Boys, addresses the possibility of more reunions in Vought Rising.
+---------
+
+# Game Of Thrones' Strongest Dragons, Ranked
+
+TV, Game Of Thrones, hbo, House of the Dragon
+
+Thu, 30 Apr 2026 21:30:14 GMT
+
+https://www.cbr.com/game-of-thrones-house-of-the-dragon-strongest-dragons/
+
+HotD hasn't shied away from the destructive power of dragons, like when both Vhagar and Arrax went rogue in the Season 1 finale.
+---------
+
+# Apple TV's Imperfect Women Becomes No. 1 Most-Watched Show Globally
+
+TV, Imperfect Women, Crime, Apple TV
+
+Thu, 30 Apr 2026 21:30:13 GMT
+
+https://www.cbr.com/imperfect-women-murder-mystery-thriller-apple-tv-success-april-2026/
+
+Apple TV's Imperfect Women tops streaming charts worldwide after a shocking finale and a major change from the original book's ending.
+---------
+
+# The 10 Best Sims 4 Gameplay Mods in 2026
+
+Games, The Sims, Simulation, Gaming, The Sims 4
+
+Thu, 30 Apr 2026 21:15:12 GMT
+
+https://www.cbr.com/best-sims-4-mods-2026/
+
+The Sims 4 is one of the most modded games of the current era and these specific add-ons are sure to completely shift the classic title.
+---------
+
+# Law & Order Sneak Peek Clip Pits Riley & Walker Against Dozens of Suspects
+
+TV, Law & Order
+
+Thu, 30 Apr 2026 21:08:44 GMT
+
+https://www.cbr.com/law-and-order-exclusive-clip-season-25-episode-19/
+
+Exclusive: Riley and Walker have to narrow down a suspect from dozens of men in a Law & Order Season 25, episode 19 clip.
+---------
+
+# Harley Quinn's Fate is Confirmed In Elvira Crossover Comic
+
+Comics, Harley Quinn, Elvira
+
+Thu, 30 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/harley-quinn-x-elvira-6-fate-confirmed/
+
+Do the Clown Princess of Crime and Mistress of the Dark finally get to party in DC and Dynamite's Harley Quinn x Elvira?
+---------
+
+# 10 MCU Characters Who Outgrew Their Storylines
+
+Movies, Marvel Cinematic Universe
+
+Thu, 30 Apr 2026 21:00:13 GMT
+
+https://www.cbr.com/mcu-biggest-character-changes-list/
+
+The MCU has more characters than anyone can even remember at this point, and some of them have outgrown their own stories.
+---------
+
+# Zelda Officially Returns With New Release October 2026
+
+Games, The Legend of Zelda
+
+Thu, 30 Apr 2026 20:50:13 GMT
+
+https://www.cbr.com/zelda-officially-returns-new-release-october-2026/
+
+It's an official new era for The Legend of Zelda.
+---------
+
+# 35 Strongest Jujutsu Kaisen Characters In The Anime (So Far)
+
+Anime, Jujutsu Kaisen
+
+Thu, 30 Apr 2026 20:50:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-strongest-characters/
+
+Jujutsu Kaisen has many powerful characters, but several have proven themselves to be stronger than the rest throughout the series so far.
+---------
+
+# Andrew Garfield Addresses Spider-Man Return Theories
+
+Movies, Spider-Man, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 30 Apr 2026 20:40:31 GMT
+
+https://www.cbr.com/andrew-garfield-spider-man-brand-new-day-return-theory-insane/
+
+Former Spider-Man star Andrew Garfield is again addressing theories about his return as the Marvel hero.
+---------
+
+# Solo Leveling's New Cha Haein Design Turns Jinwoo's Wife Into a Demon Slayer Hashira
+
+Anime, Solo Leveling:ARISE, Demon Slayer: Kimetsu no Yaiba
+
+Thu, 30 Apr 2026 20:35:13 GMT
+
+https://www.cbr.com/solo-leveling-arise-cha-haein-outfit-demon-slayer-shinobu-comparison/
+
+Solo Leveling’s beloved S-Rank Korean Hunter, Cha Haein, just got an epic new redesign in Arise that takes design cues from Demon Slayer’s Shinobu.
+---------
+
+# Forget ‘Blade Runner’ — This Sci-Fi Cyberpunk Series Is Your Perfect Weekend Binge
+
+TV Features, Animation, Sci-Fi, Ron Perlman, Mark Hamill
+
+Thu, 30 Apr 2026 21:27:12 GMT
+
+https://collider.com/phantom-2040-sci-fi-cyberpunk-series-weekend-binge/
+
+With The Phantom getting a new live-action series, it's time to take a look back at its trippy, sci-fi cyberpunk adaptation, Phantom 2040.
+---------
+
+# 4 Zombie Movie Remakes, Ranked Worst to Best
+
+Movie, Zombie, Day of the Dead, Night of the Living Dead, The Crazies
+
+Thu, 30 Apr 2026 21:19:13 GMT
+
+https://collider.com/zombie-movie-remakes-ranked/
+
+Four zombie remakes ranked, from Dawn of the Dead to The Crazies, where familiar horror gets sharper, faster, and more intense.
+---------
+
+# 10 Most Universally Beloved Family Movies of All Time, Ranked
+
+Movie, Family, Back to the Future, The Lion King, Mary Poppins
+
+Thu, 30 Apr 2026 21:10:40 GMT
+
+https://collider.com/most-universally-beloved-family-movies-all-time-ranked/
+
+From The Lion King to Back to the Future, these beloved family films capture emotion, adventure, and timeless bonds across generations.
+---------
+
+# 'Yellowstone’ Spin-Off Star Reveals Major Update on His Future in Taylor Sheridan's New Western Series
+
+TV News, Luke Grimes, Yellowstone, Marshals, Dutton Ranch
+
+Thu, 30 Apr 2026 21:00:13 GMT
+
+https://collider.com/yellowstone-luke-grimes-kayce-dutton-marshals-future-10-years/
+
+Luke Grimes has opened up about his Yellowstone future and how long he could keep playing Kayce Dutton in his new Marshals spin-off series.
+---------
+
+# 6 Forgotten Period Movies That Are Perfect From Start to Finish
+
+Movie, Belle, The Man from Snowy River, Doctor Zhivago, Silence
+
+Thu, 30 Apr 2026 20:58:13 GMT
+
+https://collider.com/forgotten-period-movies-perfect/
+
+Period movies like Belle, Silence, and Doctor Zhivago are mostly forgotten these days, but they're near-perfect masterpieces you need to watch.
+---------
+
+# 38 Years Later, Michael Jackson's Sleeper Hit Fantasy Film Is Officially Taking Over the World
+
+Movie News, Moonwalker, Michael Jackson's Thriller, Michael, HBO Max
+
+Thu, 30 Apr 2026 20:40:54 GMT
+
+https://collider.com/michael-jackson-sleeper-hit-fantasy-film-moonwalker-streaming-success-hbo-max-april-2026/
+
+As his hit biopic conquers theaters, Michael Jackson's 1988 fantasy classic Moonwalker is a sudden streaming sensation.
+---------
+
+# ‘Avatar 4’ Officially Confirms Major Change in Massive Filming Update
+
+Movie News, Avatar, Avatar 4, Sci-Fi, James Cameron
+
+Thu, 30 Apr 2026 20:30:13 GMT
+
+https://collider.com/avatar-4-plot-details-time-jump-pandora-expansion-trinity-jo-li-bliss/
+
+Avatar star Trinity Jo-Li Bliss has teased the epic time jump and more coming in Avatar 4, the next installment of James Cameron's sci-fi epic.
+---------
+
+# 5 TV Shows With Better Worldbuilding Than Harry Potter
+
+TV, Game Of Thrones, Harry Potter, Avatar: The Last Airbender, Star Trek
+
+Thu, 30 Apr 2026 20:16:13 GMT
+
+https://collider.com/tv-shows-better-worldbuilding-than-harry-potter/
+
+Epics like Game of Thrones and masterpieces like Avatar: The Last Airbender have better, more immersive worldbuilding than the Harry Potter movies.
+---------
+
+# Netflix’s 8-Part Sci-Fi Series From the Duffer Bros Is the Grown-Up ‘Stranger Things’ We’ve Been Waiting For
+
+TV Features, Netflix, Stranger Things, The Boroughs, Alfred Molina
+
+Thu, 30 Apr 2026 20:07:12 GMT
+
+https://collider.com/netflix-the-boroughs-stranger-things-duffer-bros-8-part-sci-fi-series/
+
+Stranger Things might have wrapped up, but its legacy lives on in the upcoming series The Boroughs.
+---------
+
+# Evangeline Lilly Slams Disney for Major Marvel Studios Layoffs: "Shame on You"
+
+Movie News, MCU, Evangeline Lilly, Avengers: Endgame, Ant-Man and the Wasp
+
+Thu, 30 Apr 2026 21:29:23 GMT
+
+https://movieweb.com/marvel-star-disney-layoffs-disgusting/
+
+Evangeline Lilly, who plays The Wasp in the MCU, calls out Disney's for firing Marvel artists and accuses the studio of replacing them with AI.
+---------
+
+# New 'Blair Witch Project' Reboot Bringing Back Original Stars and Directors to Produce
+
+Movie News, Blair Witch Project, Eduardo Sánchez, Joshua Leonard
+
+Thu, 30 Apr 2026 20:57:54 GMT
+
+https://movieweb.com/blair-wtich-project-reboot-original-stars-return/
+
+Key figures from the original 1999 movie are returning to lend a hand to the next installment.
+---------
+
+# Tom Hanks Pretends to Forget His Lines to Comfort Haley Joel Osment
+
+Movie News, Forrest Gump, Tom Hanks, Haley Joel Osment
+
+Thu, 30 Apr 2026 20:40:40 GMT
+
+https://movieweb.com/tom-hanks-haley-joel-osment-forrest-gump-audition/
+
+Archive footage of a 'Forrest Gump' audition has surfaced, showing Tom Hanks pretending to forget his lines to comfort a young Haley Joel Osment.
+---------
+
+# 'Godzilla x Kong: Supernova' Plot Synopsis Surfaces Online
+
+Movie News, Godzilla, Godzilla x Kong: Supernova
+
+Thu, 30 Apr 2026 20:13:43 GMT
+
+https://movieweb.com/godzilla-kong-supernova-plot-synopsis/
+
+The next Monsterverse film may be the biggest one, as a new plot synopsis for 'Godzilla x Kong: Supernova' teases another epic clash between titans.
+---------
+
 # Sony Responds To PlayStation Game License Controversy
 
 Gaming, PlayStation 5, Sony, Gaming Hardware
