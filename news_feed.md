@@ -1,3 +1,355 @@
+# Black Clover Ending Explained
+
+Anime, Black Clover
+
+Thu, 30 Apr 2026 15:30:57 GMT
+
+https://screenrant.com/black-clover-ending-explained/
+
+Black Clover has come to an end with chapter #392. Here's what happened to Asta and the Black Bulls in the finale and what’s next for the series.
+---------
+
+# Thor's Final MCU Movie With Returning Director Is Exactly What Marvel Needs
+
+Superheroes, Thor 5, Marvel Cinematic Universe
+
+Thu, 30 Apr 2026 15:30:19 GMT
+
+https://screenrant.com/thor-5-kenneth-branagh-pitch-logan-comparison-needed/
+
+The perfect final MCU movie for Thor has now been pitched by a returning franchise director, and it's exactly what Marvel and Chris Hemsworth need.
+---------
+
+# Xbox Game Pass Adds 4 New Free Games Including Bonus Freebie For Everyone
+
+Gaming, Xbox Game Pass
+
+Thu, 30 Apr 2026 15:27:46 GMT
+
+https://screenrant.com/xbox-game-pass-free-games-april-30-may-3/
+
+Xbox Game Pass just dropped four free games, including one that's free for all Xbox users, so you'll have some new stuff to check out this weekend.
+---------
+
+# Ready Or Not 2 Gets Official Digital Release Date After $42M Box Office Run
+
+Movies, Ready or Not 2: Here I Come
+
+Thu, 30 Apr 2026 15:19:44 GMT
+
+https://screenrant.com/ready-or-not-2-here-i-come-digital-release-date/
+
+After grossing $42 million at the box office, Radio Silence’s Ready or Not 2 will soon be available to watch at home on multiple digital platforms.
+---------
+
+# Netflix’s Remake Of R-Rated Denzel Washington Action Classic Sets Rotten Tomatoes Record
+
+TV, Masked Recs
+
+Thu, 30 Apr 2026 15:17:23 GMT
+
+https://screenrant.com/man-on-fire-netflix-rotten-tomatoes-score-debut/
+
+Netflix's remake of a classic, R-rated Denzel Washington movie sets a Rotten Tomatoes record, becoming the first of its kind for the franchise.
+---------
+
+# Tom Hardy's Ambitious $479M Sci-Fi Hit Returns As Worldwide Streaming Smash After Exciting Franchise Update
+
+Movies, Masked Recs
+
+Thu, 30 Apr 2026 15:06:55 GMT
+
+https://screenrant.com/tom-hardy-venom-the-last-dance-streaming-success-april-2026/
+
+Tom Hardy's hit Sci-Fi movie has become a global streaming sensation, and it comes at the perfect time, as the franchise has received a major update.
+---------
+
+# Maria Bakalova's Dead Dad AI Takes Over Her Life In O Horizon Trailer
+
+Exclusive, O Horizon, Maria Bakalova
+
+Thu, 30 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/video/o-horizon-movie-maria-bakalova-david-strathairn-trailer/
+
+Exclusive: ScreenRant presents a first look at the O Horizon trailer, starring Maria Bakalova, David Strathairn, Adam Pally, and Maggie Grace.
+---------
+
+# "He's Not Cold Yet": 007 First Light Director On Following Daniel Craig's Bond
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Thu, 30 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/007-first-light-james-bond-daniel-craig/
+
+Taking up the Bond mantle after Daniel Craig's memorable turn could be tough, but 007 First Light is confidently pivoting in a new direction.
+---------
+
+# Netflix’s Upcoming Murder Mystery Series Is A Gen Z Sherlock
+
+Streaming TV, A Good Girl's Guide to Murder
+
+Thu, 30 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/a-good-girls-guide-to-murder-season-2-gen-z-sherlock/
+
+Prime Video may have Young Sherlock, but Netflix's popular murder mystery series, now going into season 2, features an equally brilliant Gen Z sleuth.
+---------
+
+# James Bond Is Very Back: Hands-On With 007 First Light
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Thu, 30 Apr 2026 15:00:20 GMT
+
+https://screenrant.com/007-first-light-hands-on-preview/
+
+James Bond finally returns in 007 First Light, and Screen Rant went hands-on with the new adventure to see how things are looking ahead of launch.
+---------
+
+# Hacks Season 5 Stat Confirms The Possibility Of A Movie
+
+CBR Exclusives, Hacks
+
+Thu, 30 Apr 2026 15:28:24 GMT
+
+https://www.cbr.com/hacks-hannah-einbinder-confirms-talks-possible-hacks-movie/
+
+The Hacks cast is hacking away at the perfect idea for a movie.
+---------
+
+# 10 Most Powerful Anime Moms of All Time
+
+Anime, Spy X Family, Dragon Ball, Naruto
+
+Thu, 30 Apr 2026 15:15:12 GMT
+
+https://www.cbr.com/most-powerful-anime-moms-of-all-time/
+
+The most powerful moms in anime have redefined physical and mental strength.
+---------
+
+# Point Break Sequel Series Sets 2027 Debut at AMC
+
+TV, Point Break, Action, AMC
+
+Thu, 30 Apr 2026 15:05:45 GMT
+
+https://www.cbr.com/point-break-sequel-series-amc-release-date-2027/
+
+Point Break, the sequel to the Keanu Reeves cult class action movie, will release on AMC in 2027.
+---------
+
+# Samara Weaving's Ready or Not 2: Here I Come Sets Digital and Physical Release Dates
+
+Movies, Ready or Not, Ready or Not 2: Here I Come
+
+Thu, 30 Apr 2026 15:02:26 GMT
+
+https://www.cbr.com/samara-weaving-ready-or-not-digital-physical-release-date/
+
+The sequel didn't gross as much as the original but it was just enough to be profitable.
+---------
+
+# Harry Potter's Horcrux Plot Hole Was Hiding in Plain Sight the Whole Time
+
+Movies, Harry Potter
+
+Thu, 30 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/harry-potter-voldemort-seventh-horcrux-plot-hole-revealed/
+
+Voldemort made many Horcruxes in Harry Potter, but many fans believe he intentionally missed one, but that plot hole is just a misunderstanding.
+---------
+
+# 10 Classic PS1 Games That Aren’t As Good as You Remember
+
+Games, PlayStation (Original), Silent Hill, Resident Evil
+
+Thu, 30 Apr 2026 15:00:13 GMT
+
+https://www.cbr.com/classic-ps1-games-arent-as-good-as-you-remember/
+
+The PS1 is filled with classic titles, but some of its most beloved games are unplayable in 2026.
+---------
+
+# 10 Best American Sci-Fi Shows of All Time
+
+TV, Sci-Fi, Star Trek, The Twilight Zone, The X-Files
+
+Thu, 30 Apr 2026 14:30:13 GMT
+
+https://www.cbr.com/best-american-sci-fi-shows-ever-list/
+
+Since the 1950s, the American entertainment industry has consistently produced some of the greatest science fiction TV shows fans have ever seen.
+---------
+
+# Netflix's Man on Fire Outdoes the Original With Solid Rotten Tomatoes Score
+
+TV, Rotten Tomatoes, Man on Fire
+
+Thu, 30 Apr 2026 14:23:14 GMT
+
+https://www.cbr.com/netflix-man-on-fire-rotten-tomatoes-score/
+
+The new remake has officially surpassed the original with a score almost twice as good.
+---------
+
+# Dad's House Gets the Green Light at Netflix
+
+TV, Family Guy, American Dad!, Adult Swim
+
+Thu, 30 Apr 2026 14:19:25 GMT
+
+https://www.cbr.com/family-guy-replacement-series-dads-house-gets-the-netflix-green-light/
+
+Netflix believes it has a perfect replacement for Family Guy, and it's on the way.
+---------
+
+# 8 Perfect Anthology Shows To Watch After Netflix's 'Beef'
+
+TV, Beef, Anthology, The White Lotus, Black Mirror
+
+Thu, 30 Apr 2026 15:36:13 GMT
+
+https://collider.com/anthology-shows-like-beef-netflix/
+
+Anthology shows like The White Lotus, Black Mirror, Fargo, and True Detective are perfect to watch after you finish watching Netflix's Beef.
+---------
+
+# New Superman Series Officially Sets Summer Release Date
+
+TV News, My Adventures With Superman, HBO Max, James Gunn, Superman
+
+Thu, 30 Apr 2026 15:32:10 GMT
+
+https://collider.com/my-adventures-with-superman-season-3-release-date-hbo-max/
+
+My Adventures With Superman officially sets Season 3's release date and reveals the focus on the Reign of Superman comic run.
+---------
+
+# Ridley Scott’s Most Binge-Worthy Sci-Fi Series Officially Hits #1 Worldwide
+
+TV News, Alien: Earth, Ridley Scott, Noah Hawley, Hulu
+
+Thu, 30 Apr 2026 15:09:39 GMT
+
+https://collider.com/ridley-scott-binge-worthy-sci-fi-series-alien-earth-hulu-streaming-success-april-2026/
+
+Ridley Scott's binge-worthy sci-fi masterpiece, Alien: Earth, officially hits #1 worldwide again on streaming.
+---------
+
+# Gary Cole Gets an Emotional, Unexpected Visitor in New 'NCIS' Season 23 Sneak Peek [Exclusive]
+
+Exclusives, NCIS, Gary Cole
+
+Thu, 30 Apr 2026 15:00:14 GMT
+
+https://collider.com/ncis-season-23-episode-19-sneak-peak-gary-cole-nancy-travis/
+
+A new sneak peek at NCIS Season 23's penultimate episode finds Gary Cole behind bars as an unexpected familiar face makes an emotional visit.
+---------
+
+# Collider Partners With Digital Horror Series 'The Séance' for Cannes Film Festival Return
+
+Movie News, Cannes Film Festival, Horror, Digital
+
+Thu, 30 Apr 2026 15:00:14 GMT
+
+https://collider.com/collider-the-seance-partnership-cannes-film-festival-2026/
+
+Alex Noyer's digital horror series The Séance is returning to Cannes for more genre recaps, interviews, and more with Collider as a partner.
+---------
+
+# Anya Taylor-Joy’s 10/10 Sci-Fi Sleeper Hit Quietly Becomes Streaming’s Biggest Hidden Gem
+
+Movie News, The Gorge, Anya Taylor-Joy, Apple TV, Miles Teller
+
+Thu, 30 Apr 2026 14:59:40 GMT
+
+https://collider.com/anya-taylor-joy-apple-tv-sci-fi-thriller-the-gorge-sleeper-hit-streaming-success-april-2026/
+
+Anya Taylor-Joy's 10/10 sci-fi sleeper hit, The Gorge, has quietly become one of Apple TV's biggest hidden gems.
+---------
+
+# 18 Years Later, This 91% RT Sci-Fi Epic Is Still TV’s Greatest Masterpiece
+
+TV Features, Fringe, Sci-Fi, Leonard Nimoy, J.J. Abrams
+
+Thu, 30 Apr 2026 14:56:14 GMT
+
+https://collider.com/greatest-sci-fi-masterpiece-series-fringe-free-to-stream-now/
+
+J.J. Abrams’ Fringe remains a groundbreaking early-2000s sci-fi series that deserves wider recognition 18 years later and is now free to stream.
+---------
+
+# Prime Video Officially Reveals First Look at Reylo-Inspired Movie
+
+Movie News, The Love Hypothesis, Daisy Ridley, Adam Driver, Prime Video
+
+Thu, 30 Apr 2026 14:44:10 GMT
+
+https://collider.com/the-love-hypothesis-reylo-inspired-movie-first-look-footage-prime-video-obsessed-fan-event/
+
+Prime Video has released a teaser for its biggest YA projects of the year, and among them is the Reylo-inspired film, The Love Hypothesis.
+---------
+
+# Why 'The Rookie' Killed Off Jackson West
+
+Features, The Rookie
+
+Thu, 30 Apr 2026 15:00:19 GMT
+
+https://movieweb.com/why-the-rookie-killed-off-jackson-west/
+
+Jackson West's Death in 'The Rookie' came fast and out of nowhere, but issues behind the scenes led to the swift decision.
+---------
+
+# 'Andor': Disney's Sci-Fi Masterpiece Tells a Perfect Story Without a Single Bad Episode
+
+Features, Andor, Star Wars
+
+Thu, 30 Apr 2026 15:00:18 GMT
+
+https://movieweb.com/andor-disney-masterpiece-no-bad-episodes/
+
+Disney has proven that it’s challenging to make a good Star Wars movie. 'Andor', however, managed to tell a perfect story.
+---------
+
+# Jason Statham's Unforgettable Action Thriller 'Crank' Comes to Peacock May 1
+
+Movie News, Jason Statham, Crank, Action, Coming/Leaving Streaming
+
+Thu, 30 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/jason-statham-crank-streaming-peacock-may-2026/
+
+See Jason Statham like never before in his 2006 wild action thriller that breaks all the rules.
+---------
+
+# HBO’s Hit New Comedy 'Rooster' Is the Perfect ‘Scrubs Replacement’
+
+Features, Rooster, Comparison Recommendation
+
+Thu, 30 Apr 2026 14:00:18 GMT
+
+https://movieweb.com/rooster-hbo-comedy-scrubs-replacement/
+
+'Rooster,' the new comedy on HBO starring Steve Carell and Danielle Deadwyler, is a great pick for fans of the sitcom 'Scrubs.'
+---------
+
+# 'My Adventures with Superman' Season 3 Gets First Look & Release Date
+
+TV News, My Adventures With Superman, HBO Max, Superman
+
+Thu, 30 Apr 2026 13:58:42 GMT
+
+https://movieweb.com/my-adventures-with-superman-season-3-first-look/
+
+HBO Max shared an exciting first look at Superman in 'My Adventures With Superman' Season 3, along with a release date.
+---------
+
 # Netflix's 10-Part Psychological Thriller That's Designed To Be Binged Is Cobra Kai Meets Squid Game
 
 Streaming TV, Cobra Kai, Squid Game, Netflix, Masked Recs
