@@ -1,3 +1,333 @@
+# Disney's Casper Live-Action Show Can Be Its Own Version Of Netflix's Wednesday
+
+Streaming TV, Casper, Wednesday, Disney+
+
+Thu, 30 Apr 2026 18:45:19 GMT
+
+https://screenrant.com/disney-plus-casper-live-action-dark-wednesday-show/
+
+Disney has a live-action TV adaptation of a beloved spooky character in development, which can be the direct competition of Netflix's Wednesday.
+---------
+
+# Will One Piece Season 3 Include Imu? It's More Likely Than You Think
+
+Streaming TV, One Piece
+
+Thu, 30 Apr 2026 18:30:19 GMT
+
+https://screenrant.com/one-piece-season-3-netflix-imu-cameo-possible/
+
+As One Piece's Imu looms over the manga's final arc, Netflix's live-action adaptation may have to speed up to introduce the villain.
+---------
+
+# Val Kilmer's Infamous AI Revival In New Adventure Movie Emotionally Defended By Daughter
+
+Movies, Val Kilmer, As Deep as the Grave
+
+Thu, 30 Apr 2026 18:15:31 GMT
+
+https://screenrant.com/val-kilmer-ai-revival-as-deep-as-grave-defense-mercedes-kilmer/
+
+Val Kilmer's daughter emotionally defends her late father's infamous revival through artificial intelligence in a new adventure movie.
+---------
+
+# DC Officially Confirms Mr. Freeze's Design For Batman's New Appearance
+
+Superheroes, Batman, Bat-Fam, DC Universe
+
+Thu, 30 Apr 2026 18:11:45 GMT
+
+https://screenrant.com/bat-fam-prime-video-batman-dc-mr-freeze-reveal/
+
+DC has officially confirmed Mr. Freeze's design in Batman's exciting new appearance, with the Dark Knight villain seen in a unique suit combo.
+---------
+
+# Original Blair Witch Stars & Creators Officially Returning For Blumhouse’s New Reboot
+
+Movies, The Blair Witch Project, Blair Witch, Blumhouse
+
+Thu, 30 Apr 2026 18:09:24 GMT
+
+https://screenrant.com/blair-witch-blumhouse-reboot-original-actors-creators-return/
+
+Blumhouse’s upcoming remake of the found footage horror film The Blair Witch Project will includes actors who are very familiar to the franchise.
+---------
+
+# Jujutsu Kaisen Modulo Gets Official Anime Trailer, And It's Breathtaking
+
+Anime, Jujutsu Kaisen
+
+Thu, 30 Apr 2026 18:00:24 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-anime-trailer-mappa/
+
+Jujutsu Kaisen Modulo has never looked so good.
+---------
+
+# The Boys Star's Returning DC Universe Show Adapts One Of The Most Famous Comic Book Stories Of All Time
+
+Streaming TV, My Adventures With Superman, Jack Quaid, The Boys, DC
+
+Thu, 30 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-reign-of-the-supermen-arc/
+
+Jack Quaid voices Superman in the animated series My Adventures with Superman, which is set to adapt the iconic 'Reign of the Supermen' comic story arc in season 3, taking inspiration from the famous Superman tale.
+---------
+
+# 007 First Light: 8 Biggest Takeaways From Playing The Game
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Thu, 30 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/007-first-light-biggest-takeaways-preview/
+
+Screen Rant went hands-on with several hours of 007 First Light gameplay, and the session provided some big insights into what to expect.
+---------
+
+# Matlock Season 3: Release Date, Story, & Everything We Know
+
+Network TV, Matlock
+
+Thu, 30 Apr 2026 18:00:19 GMT
+
+https://screenrant.com/matlock-season-3-status-release-date-cast-story-explained/
+
+Madeline and Olympia's pursuit for justice has ended, leaving avid viewers looking forward to what's next for the pair in Matlock season 3.
+---------
+
+# Who Wins At The 2026 Summer Box Office? Hollywood’s Most-Accurate Forecasters Weigh In
+
+New Movies, Box Office
+
+Thu, 30 Apr 2026 18:00:07 GMT
+
+https://screenrant.com/2026-movies-box-office-summer-projections-cinelytic/
+
+This summer is especially crowded, with several of the year’s biggest movies competing for our attention. A new box office forecast names the winners.
+---------
+
+# Evangeline Lilly Slams Marvel Studios Over Layoff, AI Pivot
+
+Movies, Marvel Cinematic Universe, superheroes, Avengers: Endgame
+
+Thu, 30 Apr 2026 18:32:23 GMT
+
+https://www.cbr.com/evangeline-lilly-slams-marvel-studios-layoffs-ai/
+
+Evangeline Lilly -- Wasp in the MCU -- let loose on Marvel Studios and Disney for axing the entire MCU visual development division amid AI pivot.
+---------
+
+# 5 Most Underrated Anime On Crunchyroll in Spring 2026
+
+Anime, Crunchyroll, Digimon Beatbreak, Welcome to Demon School! Iruma-kun
+
+Thu, 30 Apr 2026 18:15:13 GMT
+
+https://www.cbr.com/most-underrated-crunchyroll-anime-spring-2026/
+
+The Spring 2026 Anime Season has produced some highly underrated anime, and Crunchyroll has more than its share.
+---------
+
+# Robert Kirkman Sparks Debate With Bold Claim About Manga and Image Comics
+
+Comics, image comics, Manga
+
+Thu, 30 Apr 2026 18:11:11 GMT
+
+https://www.cbr.com/robert-kirkman-manga-image-comics-connection/
+
+Manga readers, here's your sign to pick up a book from Image Comics.
+---------
+
+# Blair Witch Project Reboot Brings Back Original Stars With 1 Major Absence
+
+Movies, The Blair Witch Project
+
+Thu, 30 Apr 2026 18:07:12 GMT
+
+https://www.cbr.com/the-blair-witch-project-reboot-original-stars/
+
+The Blair Witch Project is being reimagined with the stars of the original, but with one major exception.
+---------
+
+# Major Spider-Man Villain Tarantula Confirmed To Return Ahead Brand New Day
+
+Comics, Marvel, MCU, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse
+
+Thu, 30 Apr 2026 18:04:50 GMT
+
+https://www.cbr.com/major-spider-man-villain-confirmed-ahead-of-brand-new-day/
+
+Spider-Man is suddenly up against one of his most hated villains as Brand New Day approaches.
+---------
+
+# 10 Marvel Characters Who Would Break the Internet for All the Wrong Reasons
+
+Comics, Marvel
+
+Thu, 30 Apr 2026 18:01:20 GMT
+
+https://www.cbr.com/marvel-characters-viral-for-the-wrong-reasons/
+
+From wild behavior to questionable decisions, these Marvel characters would spark instant internet backlash.
+---------
+
+# Universal Officially Says Goodbye to Nintendo May 3
+
+Games, Nintendo, universal studios
+
+Thu, 30 Apr 2026 17:50:12 GMT
+
+https://www.cbr.com/universal-officially-closing-nintendo-attraction-may-2026/
+
+Nintendo fans heading to Universal Epic Universe need to know about upcoming changes.
+---------
+
+# Yellowstone Quietly Confirms Monica Dutton's Replacement in Marshals
+
+TV, Marshals, Yellowstone, CBS
+
+Thu, 30 Apr 2026 17:30:16 GMT
+
+https://www.cbr.com/kayce-dutton-andrea-cruz-romance-marshals-episode-9/
+
+After the premiere of Marshals revealed Monica's tragic fate, the Yellowstone spinoff indicates it will replace the role she played in Kayce's life.
+---------
+
+# Mark Wahlberg's Boogie Nights is His Only True Masterpiece
+
+Movies, Boogie Nights
+
+Thu, 30 Apr 2026 17:30:16 GMT
+
+https://www.cbr.com/mark-wahlberg-best-movie-boogie-nights/
+
+Even after nearly three decades, Mark Wahlberg's awe-inspiring performance in Paul Thomas Anderson's second film remains his greatest achievement.
+---------
+
+# ABC Officially Renews Tim Allen’s Shifting Gears for Season 3
+
+TV, Shifting Gears
+
+Thu, 30 Apr 2026 17:15:49 GMT
+
+https://www.cbr.com/shifting-gears-season-3-officially-renewed-abc/
+
+The future of Shifting Gears is officially revealed after months on the bubble.
+---------
+
+# Netflix’s 16-Part Sci-Fi Is the Most Ambitious Time Travel Miniseries of the Past Decade
+
+TV Features, Netflix, Sisyphus: The Myth, Sci-Fi, Thriller
+
+Thu, 30 Apr 2026 18:48:13 GMT
+
+https://collider.com/netflix-best-sci-fi-time-travel-series-sisyphus-the-myth/
+
+The 2021 Netflix K-Drama Sisyphus: The Myth follows Han Tae-sul and Kang Seo-hae as they try to break a time loop to prevent a war.
+---------
+
+# 8 Forgotten Sitcoms From the 2010s That Have Aged Like Fine Wine
+
+TV, Sitcom, Unbreakable Kimmy Schmidt, Superstore, One Day at a Time
+
+Thu, 30 Apr 2026 18:10:13 GMT
+
+https://collider.com/forgotten-sitcoms-2010s-aged-like-fine-wine/
+
+Time has been extremely kind to forgotten 2010s sitcoms like Superstore, Happy Endings, and Life in Pieces, with their reputation improving with age.
+---------
+
+# Star Wars' Best Year Ever Continues as Sci-Fi Spin-Off Officially Sets October Release Date
+
+Gaming News, Star Wars, Lucasfilm, Disney, Disney+
+
+Thu, 30 Apr 2026 17:22:52 GMT
+
+https://collider.com/star-wars-galactic-racer-video-game-trailer-release-date-october-6-sebulba-spin-off/
+
+After the return of Maul and The Mandalorian, another Star Wars spin-off is confirmed to debut on October 6. Read on for more!
+---------
+
+# Prime Video's New 'Bosch' Meets 'Reacher' Replacement Series Has Leveled Up Its Cast
+
+TV News, Bishop, Prime Video, Bosch, Dexter
+
+Thu, 30 Apr 2026 17:19:23 GMT
+
+https://collider.com/prime-video-reacher-bosch-replacement-crime-thriller-bishop-cast-ulrich-thomsen-erik-svedberg-zelman-john-larroquette-rob-yang/
+
+Prime Video's new Reacher replacement, Bishop, has added stars from Banshee, Paradise, and more to the cast.
+---------
+
+# 8 Greatest Movie Trilogies You Didn't Know Existed
+
+Movie, Before Sunset, Rosemary's Baby, The Girl With The Dragon Tattoo, Oldboy
+
+Thu, 30 Apr 2026 17:18:14 GMT
+
+https://collider.com/greatest-movie-trilogies-lesser-known/
+
+The Millennium Trilogy, The Human Condition Trilogy, The Apu Trilogy, and more comprise our list of the best movie trilogies you've never heard of.
+---------
+
+# Viggo Mortensen Approves of Jamie Dornan’s Aragorn in ‘The Lord of the Rings: The Hunt for Gollum’
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Andy Serkis, Jamie Dornan, Viggo Mortensen
+
+Thu, 30 Apr 2026 18:08:50 GMT
+
+https://movieweb.com/viggo-mortensen-jamie-dornan-hunt-for-gollum/
+
+Jamie Dornan's Aragorn got an official seal of approval from OG star Viggo Mortensen for 'The Lord of the Rings: The Hunt for Gollum.'
+---------
+
+# 10 Controversial Movies With Shocking Endings That Are Still Being Debated
+
+Movie Lists, The Mist
+
+Thu, 30 Apr 2026 18:00:17 GMT
+
+https://movieweb.com/best-controversial-movies-spark-debate/
+
+These movies, ranging from horror to action to romance, have unforgettable endings that people still debate now.
+---------
+
+# Jennifer Lopez & Brett Goldstein Lead First Trailer for Netflix's 'Office Romance'
+
+Movie News, Office Romance, Jennifer Lopez, Brett Goldstein
+
+Thu, 30 Apr 2026 17:56:25 GMT
+
+https://movieweb.com/netflix-office-romance-trailer/
+
+Netflix has released the first trailer for Office Romance, starring Jennifer Lopez and Brett Goldstein, ahead of the film’s June 5 debut.
+---------
+
+# Dan Stevens Teases Action-Thriller 'Onslaught' as Spiritual Sequel to 'The Guest'
+
+Movie News, The Guest, Dan Stevens, Adam Wingard
+
+Thu, 30 Apr 2026 17:51:15 GMT
+
+https://movieweb.com/the-guest-spiritual-sequel-dan-stevens/
+
+The actor reunited with his 'The Guest' director Adam Wingard on the upcoming thriller.
+---------
+
+# 'The Batman - Part II' Star Andy Serkis Says "Amazing" DC Sequel Script Is a "Huge Swing"
+
+Movie News, The Batman Part II, The Batman
+
+Thu, 30 Apr 2026 17:23:58 GMT
+
+https://movieweb.com/the-batman-2-huge-swing-andy-serkis/
+
+The upcoming sequel from Matt Reeves, starring Robert Pattinson and Sebastian Stan, will be entering production soon.
+---------
+
 # The Mandalorian & Grogu Movie Is Remixing The Star Wars Show's Most Iconic Element
 
 Exclusive, The Mandalorian and Grogu, The Mandalorian, Star Wars
