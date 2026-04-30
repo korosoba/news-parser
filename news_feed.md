@@ -1,3 +1,322 @@
+# Sony Responds To PlayStation Game License Controversy
+
+Gaming, PlayStation 5, Sony, Gaming Hardware
+
+Thu, 30 Apr 2026 20:03:49 GMT
+
+https://screenrant.com/playstation-game-license-update-30-day-drm/
+
+Unexplained 30-day PlayStation game licenses were recently discovered, causing concern among consumers, but Sony has now cleared up the situation.
+---------
+
+# Love Hypothesis Gets First Look In Obsessed Fest Teaser
+
+Movies, Prime Video, The Love Hypothesis
+
+Thu, 30 Apr 2026 20:01:50 GMT
+
+https://screenrant.com/prime-video-love-hypothesis-movie-footage/
+
+Prime Video showcases its upcoming YA film and TV slate at Obsessed Fest, including The Love Hypothesis, Elle, and more. Tickets are on sale for the immersive fan experience on June 27.
+---------
+
+# 5 Studios In Bidding War For Major Video Game Adaptation Starring Michael B. Jordan
+
+Movies, Battlefield
+
+Thu, 30 Apr 2026 20:00:27 GMT
+
+https://screenrant.com/battlefield-movie-bidding-war-studios-michael-b-jordan/
+
+Michael B. Jordan and Christopher McQuarrie's upcoming video game movie package has sparked an intense bidding war between five major studios.
+---------
+
+# Halo: Combat Evolved On Nintendo Switch Looks Incredible
+
+Gaming, Halo, Triple-A Games
+
+Thu, 30 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/halo-combat-evolved-nintendo-switch-unofficial-port/
+
+Although Halo: Campaign Evolved is on the way, the original game looks great on Nintendo Switch, and fits the portability very well.
+---------
+
+# Why There Is No New Matlock Tonight (April 30) & When Fresh Episodes Release
+
+Network TV, Matlock, CBS
+
+Thu, 30 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/matlock-no-new-episode-april-30-2026-season-3-release-date/
+
+Coming from the satisfying ending of Matlock season 2, episode 16, fans will have to wait a while to find out what's next for Madeline and Olympia.
+---------
+
+# Neuromancer’s Opening Line Has An Adaptation Problem After 40 Years
+
+Streaming TV, Neuromancer, Sci-Fi
+
+Thu, 30 Apr 2026 20:00:19 GMT
+
+https://screenrant.com/neuromancer-opening-line-adaptation-problem-apple-tv/
+
+One of the greatest opening lines in the history of sci-fi is still iconic after 40 years, but it is almost impossible to adapt it for the screen.
+---------
+
+# 10 Near-Perfect Free Steam Games That Launched This Year
+
+Gaming, Steam, PC, Indie Games
+
+Thu, 30 Apr 2026 19:59:08 GMT
+
+https://screenrant.com/steam-10-near-perfect-free-games-may-2026/
+
+Check out a collection of 10 Steam releases from 2026 that are completely free, well-rated by players, and span a large range of genres.
+---------
+
+# Steam Officially Makes 2 Hit Games Free To Download Until May 4
+
+Gaming, Steam
+
+Thu, 30 Apr 2026 19:58:16 GMT
+
+https://screenrant.com/steam-officially-makes-2-hit-games-free-to-download-until-may-4/
+
+Steam gamers can download and play two classic games right now completely free, but you only have until May 4.
+---------
+
+# Capcom Officially Stokes Resident Evil 5 Remake Rumors
+
+Gaming, Resident Evil 5, Resident Evil, Capcom, Triple-A Games
+
+Thu, 30 Apr 2026 19:57:24 GMT
+
+https://screenrant.com/resident-evil-5-remake-rumor-capcom-official-tease/
+
+A remake of Resident Evil 5 has been rumored for quite some time, and Capcom's latest social media posts continue to stir that particular pot.
+---------
+
+# Remake Of Brad Pitt’s Sci-Fi Movie Is One Of The Best Time Travel Shows
+
+Classic TV, Masked Recs
+
+Thu, 30 Apr 2026 19:45:19 GMT
+
+https://screenrant.com/12-monkeys-brad-pitt-remake-sci-fi/
+
+A four-season sci-fi show, which served as a remake of an acclaimed Brad Pitt movie, still has one of the best portrayals of time travel on screen.
+---------
+
+# Hasbro's Guess Who? Pokémon Edition Game Review
+
+Games, Pokemon, hasbro, Tabletop, review, Pokemon TCG
+
+Thu, 30 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/hasbro-pokemon-guess-who-game-review/
+
+Considering how popular both Pokémon and Guess Who? are with kids, it's surprising it took this long for the two to merge into the perfect game.
+---------
+
+# Seth Rogen's Knocked Up Becomes a Global Streaming Hit on Netflix
+
+Movies, Knocked Up, Netflix, Comedy
+
+Thu, 30 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/seth-rogen-knocked-up-comedy-netflix-success-april-2026/
+
+Seth Rogen's 2007 comedy Knocked Up, directed by Judd Apatow, is currently one of the most-streamed movies worldwide on Netflix.
+---------
+
+# Ian McKellen's Best Performance is in The Christophers
+
+Movies, The Christophers
+
+Thu, 30 Apr 2026 20:00:12 GMT
+
+https://www.cbr.com/ian-mckellen-best-performance-the-christophers/
+
+Ian McKellen is given a chance to give what might very well be one of his last great performances in Steven Soderbergh's new comedy, The Christophers.
+---------
+
+# The Lord of the Rings Fan-Favorite Andy Serkis Addresses Being Cast as Voldemort
+
+TV, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Harry Potter
+
+Thu, 30 Apr 2026 19:50:52 GMT
+
+https://www.cbr.com/andy-serkis-lord-voldemort-harry-potter-fancasting/
+
+The Hunt for Voldemort is still ongoing.
+---------
+
+# New Lord of the Rings Trailer Officially Transforms Middle-earth
+
+Games, The Lord of the Rings
+
+Thu, 30 Apr 2026 19:45:12 GMT
+
+https://www.cbr.com/new-lotr-trailer-lord-of-the-rings-ascension/
+
+An early trailer for the next Lord of the Rings game showcases exactly how Middle-earth is being translated for a new platform.
+---------
+
+# Netflix Officially Orders 28-Episode Minimum Wage Series
+
+TV, Netflix
+
+Thu, 30 Apr 2026 19:42:00 GMT
+
+https://www.cbr.com/netflix-orders-minimum-wage-american-high-series/
+
+A popular web series gets a whopping series order at Netflix.
+---------
+
+# Viggo Mortensen “Thrilled” With Jamie Dornan As Strider in Hunt for Gollum
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Thu, 30 Apr 2026 19:32:14 GMT
+
+https://www.cbr.com/viggo-mortensen-aragorn-replacement-jamie-dornan-lotr-hunt-for-gollum/
+
+The Hunt for Gollum director Andy Serkis says Viggo Mortensen is thrilled with Jamie Dornan playing Strider in the next Lord of the Rings.
+---------
+
+# David Suchet Stole the Show in Agatha Christie's Thirteen at Dinner
+
+Movies, Thirteen at Dinner
+
+Thu, 30 Apr 2026 19:31:13 GMT
+
+https://www.cbr.com/forgotten-agatha-christie-film-thirteen-at-dinner/
+
+David Suchet is most famous for playing Hercule Poirot, but he was also part of an underseen Agatha Christie film in a totally different role.
+---------
+
+# Studio Ghibli Quietly Brings Back Hayao Miyazaki's Original Nausicaa Manga
+
+Anime, Studio Ghibli, Nausicaä Of The Valley Of The Wind
+
+Thu, 30 Apr 2026 19:16:12 GMT
+
+https://www.cbr.com/studio-ghibli-nausicaa-manga-donguri-sora-return/
+
+Donguri Sora re-releases the hit manga which sparked the creation of Hayao Miyazaki's first original anime film, Nausicaa of the Valley of the Wind.
+---------
+
+# 2026 Is A Dark New Era For Dungeons & Dragons
+
+Games, Dungeons and Dragons, Tabletop, Baldur's Gate 3
+
+Thu, 30 Apr 2026 19:15:12 GMT
+
+https://www.cbr.com/dnd-wotc-dark-new-era-2026/
+
+2026 is seeing an injection of unique content to Dungeons & Dragons, marking a new era of villainous protagonists and evil player characters.
+---------
+
+# The Fate of Tom Hardy and Guy Ritchie's Crime Series May Have Already Been Decided
+
+Movie News, Guy Ritchie, Tom Hardy, MobLand, Pierce Brosnan
+
+Thu, 30 Apr 2026 20:00:13 GMT
+
+https://collider.com/tom-hardy-mobland-season-3-potential-paramount-plus-guy-ritchie/
+
+Tom Hardy and Guy Ritchie’s Paramount+ gangster thriller MobLand is reportedly expected to continue beyond Season 2.
+---------
+
+# 8 Drama Shows With Better Writing Than ‘The Pitt’
+
+TV, The Pitt, Drama, The Sopranos, Better Call Saul
+
+Thu, 30 Apr 2026 19:52:13 GMT
+
+https://collider.com/the-pitt-drama-shows-better-writing/
+
+The Sopranos, Breaking Bad, The Wire, Pluribus, Mare of Easttown, and more make up our list of drama shows with better writing than The Pitt.
+---------
+
+# 10 Most Addictive Action Movie Franchises of All Time, Ranked
+
+Movie, Action, Mad Max: Fury Road, Mission: Impossible, Police Story
+
+Thu, 30 Apr 2026 19:33:12 GMT
+
+https://collider.com/most-addictive-action-movie-franchises-all-time-ranked/
+
+James Bond, John Wick, Indiana Jones. These are just some of the action franchises that have proven themselves to be as addictive as they are iconic.
+---------
+
+# New Lunar Sci-Fi Thriller Series Officially Adds ‘Rivals’ and ‘Pride and Prejudice’ Stars
+
+TV News, Andrea Riseborough, Jennifer Ehle, Alex Hassell, Mystery
+
+Thu, 30 Apr 2026 19:23:48 GMT
+
+https://collider.com/new-sci-fi-thriller-series-alex-hassell-jennifer-ehle-cast-first-woman-itv/
+
+The new lunar sci-fi thriller, First Woman, adds two major Rivals and Pride and Prejudice stars to the cast as production heats up in Belfast.
+---------
+
+# Jared Padalecki Deserved a Bigger 'The Boys' Role Than Episode 5's 'Supernatural' Reunion
+
+Features, The Boys, Vought Rising, Supernatural
+
+Thu, 30 Apr 2026 20:00:17 GMT
+
+https://movieweb.com/the-boys-jared-padalecki-better-vought-rising/
+
+'The Boys' brought Jensen Ackles, Jared Padalecki, and Misha Collins back together, but there was a better option available.
+---------
+
+# $600 Grogu Is the Most Realistic 'Star Wars' Figure Ever
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Thu, 30 Apr 2026 19:47:27 GMT
+
+https://movieweb.com/star-wars-grogu-most-realistic-toy/
+
+The figure is one of the most advanced toys that 'Star Wars' has ever released.
+---------
+
+# Stanley Tucci Was "Unnerved" On 'The Devil Wears Prada 2' Set
+
+Movie News, The Devil Wears Prada 2, Stanley Tucci
+
+Thu, 30 Apr 2026 19:45:50 GMT
+
+https://movieweb.com/stanley-tucci-unnerved-the-devil-wears-prada-2/
+
+Stanley Tucci said The Devil Wears Prada 2’s New York and Milan shoots drew intense crowds, causing distractions, delays, and leaked set photos
+---------
+
+# 'Scrubs' Revival Officially Renewed for Season 2 by ABC
+
+TV News, Scrubs
+
+Thu, 30 Apr 2026 19:44:32 GMT
+
+https://movieweb.com/scrubs-renewed-season-2-abc/
+
+Following a successful return, the 'Scrubs' revival will officially return for new episodes on ABC.
+---------
+
+# Amazon Developing 'The Apprentice' Reboot With Donald Trump, Jr As The Star
+
+TV News, The Apprentice, Donald Trump
+
+Thu, 30 Apr 2026 19:18:28 GMT
+
+https://movieweb.com/amazon-the-apprentice-reboot-donald-trump-jr/
+
+The streamer continues its courting of presidential power as it lands a new star for 'The Apprentice' reboot.
+---------
+
 # Disney's Casper Live-Action Show Can Be Its Own Version Of Netflix's Wednesday
 
 Streaming TV, Casper, Wednesday, Disney+
