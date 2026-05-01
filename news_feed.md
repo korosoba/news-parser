@@ -1,3 +1,245 @@
+# 8 New Details About Spider-Man: Brand New Day Revealed This Week
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 01 May 2026 17:45:20 GMT
+
+https://screenrant.com/spider-man-brand-new-day-reveals-updates/
+
+Spider-Man: Brand New Day has received several major reveals this week that better explain the story, themes, and Peter Parker's lonely journey.
+---------
+
+# Crunchyroll's Most-Viewed Anime Of All Time Has Officially Been Confirmed
+
+Anime, Crunchyroll, Chainsaw Man
+
+Fri, 01 May 2026 17:44:42 GMT
+
+https://screenrant.com/chainsaw-man-most-viewed-anime-crunchyroll/
+
+Crunchyroll has officially revealed the most-viewed anime on the platform ever, and it is an iconic shonen series that nearly everyone loves.
+---------
+
+# Lord Of The Rings RPG Gets Official Update In Disastrous Q&A
+
+Gaming, The Lord of the Rings, Kingdom Come: Deliverance II, Triple-A Games
+
+Fri, 01 May 2026 17:33:12 GMT
+
+https://screenrant.com/lotr-open-world-rpg-rumors-dev-response/
+
+Rumors have been swirling that a new, open-world Lord of the Rings RPG is in development, and the supposed developers have finally spoken out.
+---------
+
+# Sophie Thatcher's Upcoming Sci-Fi Horror Gets Summer 2026 Release Date
+
+Movies
+
+Fri, 01 May 2026 17:30:57 GMT
+
+https://screenrant.com/sophie-thatcher-her-private-hell-movie-release-date-july-2026/
+
+Sophie Thatcher's upcoming sci-fi horror collaboration with Drive director Nicolas Winding Refn has now secured a summer 2026 release date.
+---------
+
+# The Witcher Meets Supernatural In Netflix's 2-Part Fantasy Series Returning This Month
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 17:30:20 GMT
+
+https://screenrant.com/the-witcher-meets-supernatural-devil-may-cry/
+
+One of Netflix's best fantasy shows brings together the best elements of The Witcher and Supernatural, and it's returning soon with a second season.
+---------
+
+# Pokémon Legends 3 Leak Splits Gamers Over Setting
+
+Gaming, Pokemon, Pokemon Legends   Arceus, Pokemon Legends Z-A
+
+Fri, 01 May 2026 17:26:03 GMT
+
+https://screenrant.com/pokemon-legends-3-leak-setting-details/
+
+A third Pokémon Legends game is seemingly in the works, and the setting is already leaving fans split when it comes to the upcoming RPG.
+---------
+
+# John Krasinski's Action Movie That Paved The Way For Jack Ryan Series Is Officially Back On Streaming
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 17:25:31 GMT
+
+https://screenrant.com/john-krasinski-13-hours-secret-soldiers-benghazi-jack-ryan-paramount-plus-streaming/
+
+John Krasinski's action movie that paved the way for his Jack Ryan series on Prime Video is officially back on streaming right now for fans.
+---------
+
+# DCU & Snyderverse Canon Connections Officially Addressed By James Gunn
+
+Movies, DC Universe, Zack Snyder, James Gunn
+
+Fri, 01 May 2026 17:05:28 GMT
+
+https://screenrant.com/dcu-snyderverse-canon-connections-james-gunn-update/
+
+James Gunn officially addresses the lingering connections between the DC Universe and Snyderverse and when the answers will start to come.
+---------
+
+# Yellowstone Crossover: Rip And Kayce's Remarkable Transformation
+
+TV, Yellowstone, Marshals, Dutton Ranch
+
+Fri, 01 May 2026 17:00:21 GMT
+
+https://screenrant.com/yellowstone-crossover-rip-kayce-brothers/
+
+Hopes are high that Marshals will have a crossover with Dutton Ranch, which will bring two characters who used to hate each other back together.
+---------
+
+# Diablo 4: Lord Of Hatred's Overhauled Skill Trees Split Gamers
+
+Gaming, Diablo 4, Triple-A Games, PC
+
+Fri, 01 May 2026 16:56:58 GMT
+
+https://screenrant.com/diablo-4-lord-of-hatred-skill-tree-overhaul/
+
+Diablo 4 is no stranger to criticism, but for once, fans of the new Lord of Hatred skill trees might actually be more plentiful than skeptics.
+---------
+
+# Yona of the Dawn Wins No. 1 Spot in Official Manga Binge-Read Ranking
+
+Anime, Yona Of The Dawn, Detective Conan, Case Closed, Space Brothers
+
+Fri, 01 May 2026 17:30:13 GMT
+
+https://www.cbr.com/best-manga-binge-read-yona-of-the-dawn-win/
+
+After a nationwide survey, manga binge-readers are gravitating towards a 15+ year shoujo title from the early 2000s.
+---------
+
+# Paramount+ Hit With Subscriber Lawsuit in Major Streaming Controversy With Warner Bros. Merger
+
+Movies, Paramount, paramount pictures, Paramount Plus
+
+Fri, 01 May 2026 17:20:25 GMT
+
+https://www.cbr.com/paramount-hit-with-subscriber-lawsuit-warner-bros-merger/
+
+What started as a promising opportunity for Paramount has turned into a potential lawsuit.
+---------
+
+# 26 Years Ago, Pokémon Stadium is Still the Best-Selling Pokémon Spin-off
+
+Games, Pokemon, Nintendo 64, Nintendo
+
+Fri, 01 May 2026 17:16:13 GMT
+
+https://www.cbr.com/pokemon-stadium-best-selling-spin-off/
+
+One classic, but disappointing Pokémon game remains the best-selling spin-off in the series.
+---------
+
+# DC Confirms The Fate of Batman's Hush After Highly Anticipated Finale
+
+Comics, batman: hush, Batman
+
+Fri, 01 May 2026 17:00:13 GMT
+
+https://www.cbr.com/batman-hush-2-finale-and-sequel-confirmed/
+
+Is the conclusion to the Batman: Hush sequel upon us?
+---------
+
+# Monarch: Legacy of Monsters Is Blowing Up on Streaming at the Perfect Time
+
+TV, Monarch: Legacy of Monsters, Apple TV, Monsterverse
+
+Fri, 01 May 2026 17:00:13 GMT
+
+https://www.cbr.com/monarch-legacy-monsters-kurt-russell-streaming-success-apple-tv-may-2026/
+
+A perfect monster show starring Kurt Russell is dominating the streaming charts just in time for its big finale.
+---------
+
+# ‘Tangled’ Director Returns With Star-Studded Body Swap Netflix Movie This Week [Exclusive]
+
+Exclusives, Swapped, Michael B. Jordan, Juno Temple, Netflix
+
+Fri, 01 May 2026 17:48:31 GMT
+
+https://collider.com/netflix-new-body-swap-movie-swapped-juno-temple-director-nathan-greno-interview/
+
+Tangled director Nathan Greno and Juno Temple tease their new Netflix body-swap movie, Swapped, starring Michael B. Jordan, Temple, and Tracy Morgan.
+---------
+
+# Kevin Bacon’s New Western Thriller Poaches a ‘Stranger Things’ Star
+
+TV News, Cara Buono, Kevin Bacon, Tim McGraw, Hulu
+
+Fri, 01 May 2026 17:29:18 GMT
+
+https://collider.com/hulu-kevin-bacon-neo-western-southern-bastards-cast-stranger-things-star-cara-buono/
+
+Hulu and Kevin Bacon's upcoming neo-western series has added Stranger Things favorite Cara Buono to the cast.
+---------
+
+# 18 Years Later, This Groundbreaking Crime Thriller Doesn’t Have a Single Bad Episode
+
+TV Features, The Wire, HBO, HBO Max, Idris Elba
+
+Fri, 01 May 2026 17:28:14 GMT
+
+https://collider.com/the-wire-hbo-crime-thriller-no-bad-episodes/
+
+The Wire remains just as grim, gripping, and well-crafted as it was 18 years ago.
+---------
+
+# 10 Books With Better Worldbuilding Than Harry Potter
+
+Movie, Harry Potter, A Song of Ice and Fire, The Lord of the Rings, Dune
+
+Fri, 01 May 2026 17:04:14 GMT
+
+https://collider.com/books-better-worldbuilding-than-harry-potter/
+
+Harry Potter may be a fan favorite, but book series like The Expanse and The Wheel of Time are far superior when it comes to immersive worldbuilding.
+---------
+
+# Early 'Spider-Noir' Reactions Compare Spider-Man Series to 'Batman: The Animated Series'
+
+TV News, Spider-Noir, Spider-Man
+
+Fri, 01 May 2026 17:34:56 GMT
+
+https://movieweb.com/early-spider-noir-reactions/
+
+Some brief reactions to Nicolas Cage's new superhero Prime Video series, 'Spider-Noir,' have surfaced online.
+---------
+
+# 'The Super Mario Galaxy Movie' Gets May Digital Release Date
+
+Movie News, The Super Mario Galaxy Movie
+
+Fri, 01 May 2026 17:20:20 GMT
+
+https://movieweb.com/super-mario-galaxy-digital-release/
+
+Universal Studios has set a date on the calendar for the streaming release date for 'The Super Mario Galaxy Movie.'
+---------
+
+# All Movies by the Russo Brothers, Ranked According to Rotten Tomatoes
+
+Movie Lists, Joe Russo, Anthony Russo
+
+Fri, 01 May 2026 17:00:18 GMT
+
+https://movieweb.com/russo-brothers-movies-ranked-according-to-rotten-tomatoes/
+
+The Russo brothers have made 9 movies so far. Some of them have been great, but others haven't, according to Rotten Tomatoes.
+---------
+
 # Prime Video's R-Rated Psychological Thriller That's Just 6 Hours Long Is Your Next Weekend Binge
 
 TV, Prime Video, Masked Recs
