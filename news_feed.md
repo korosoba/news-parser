@@ -1,3 +1,366 @@
+# A Knight Of The Seven Kingdoms Star Reveals Egg’s Season 2 Look In BTS Video
+
+TV, A Knight Of The Seven Kingdoms
+
+Fri, 01 May 2026 02:08:53 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-egg-season-2/
+
+A Knight Of The Seven Kingdoms star shares Egg's transformation in a behind-the-scenes video for season 2 on social media.
+---------
+
+# The MCU Has Already Set Up A Major Spider-Man: Brand New Day Villain Rivalry
+
+Superheroes, Spider-Man: Brand New Day, Your Friendly Neighborhood Spider-Man, Marvel Cinematic Universe
+
+Fri, 01 May 2026 02:00:33 GMT
+
+https://screenrant.com/the-mcu-set-up-spiderman-brand-new-day-rivalry-scorpion-tombstone/
+
+A previous MCU project may have secretly set up a major villain rivalry in Spider-Man: Brand New Day, one that could have some major consequences.
+---------
+
+# Star Wars: Galactic Racer Edition Differences & Pre-Order Bonuses
+
+Gaming, Star Wars: Galactic Racer, Star Wars, Triple-A Games, PC
+
+Fri, 01 May 2026 02:00:33 GMT
+
+https://screenrant.com/star-wars-galactic-racer-deluxe-collectors-edition-preorder/
+
+Star Wars: Galactic Racer's release date has been set, and that means pre-orders are live. Check out all the game's optional goodies here.
+---------
+
+# Netflix's 8-Part New Dark Psychological Horror Series Is Perfect for a Weekend Binge
+
+Anime, Netflix
+
+Fri, 01 May 2026 02:00:33 GMT
+
+https://screenrant.com/netflix-psychological-horror-if-wishes-could-kill-binge/
+
+Discover why Netflix's unapologetic new YA horror K-drama is topping global charts with its brutal mix of modern tech and ancient curses.
+---------
+
+# Steam Drops New Dark Fantasy RPG That's Completely Free
+
+Gaming, Steam, Indie Games
+
+Fri, 01 May 2026 02:00:33 GMT
+
+https://screenrant.com/steam-free-dark-fantasy-rpg-april-2026/
+
+A new dark fantasy cooperative RPG has just dropped on Steam, created by a dedicated solo developer, and completely free.
+---------
+
+# Quentin Tarantino's Favorite TV Show: The Newsroom's Iconic Dialogue
+
+Classic TV, Masked Recs
+
+Fri, 01 May 2026 01:30:20 GMT
+
+https://screenrant.com/the-newsroom-hbo-drama-quentin-tarantino-best-lines/
+
+Plaudtis from Quentin Tarantino for your writing are high praise indeed, and this HBO TV series has consistently earned the director's admiration.
+---------
+
+# 7 Essential Facts About Marvel's New Sorcerer Supreme
+
+Comics, Marvel, Doctor Strange
+
+Fri, 01 May 2026 01:30:20 GMT
+
+https://screenrant.com/doctor-strange-new-sorcerer-supreme-scarlet-witch-turin/
+
+Marvel's long list of Sorcerer Supremes just got longer, and this new addition comes from the last place you'd expect
+---------
+
+# Zach Cregger Reveals Which Resident Evil Game Inspired His Reboot
+
+Movies, Resident Evil
+
+Fri, 01 May 2026 01:29:56 GMT
+
+https://screenrant.com/zach-cregger-resident-evil-4-inspired-reboot/
+
+Zach Cregger reveals which iconic Resident Evil video game inspired his upcoming movie reboot of the classic survival horror franchise.
+---------
+
+# Black Clover’s Perfect Finale Proved Why It's Better Than Jujutsu Kaisen And My Hero Academia
+
+Anime, Black Clover
+
+Fri, 01 May 2026 01:00:20 GMT
+
+https://screenrant.com/black-clover-ending-new-gen-king-jujutsu-kaisen/
+
+Discover why Black Clover's perfectly paced finale succeeded where hits like My Hero Academia and Jujutsu Kaisen left their fans disappointed.
+---------
+
+# Dragon Ball Super's Censorship Will Hurt the Galactic Patrol Anime
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball Super: The Galactic Patrol, Dragon Ball Super
+
+Fri, 01 May 2026 02:15:13 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-remake-blood-galactic-patrol-disappointment/
+
+Dragon Ball Super: Beerus is continuing the trend of watering down DBZ's action to cater to a wider audience, and the Galactic Patrol Arc will suffer.
+---------
+
+# 7 Anime Everyone 'Loves' But Would Never Actually Rewatch
+
+Anime, Dragon Ball
+
+Fri, 01 May 2026 02:03:22 GMT
+
+https://www.cbr.com/best-anime-no-one-rewatches/
+
+While some fans love watching their favorite anime on repeat, some shows make it hard to enjoy a rewatch.
+---------
+
+# Every Celebrity Cameo in The Devil Wears Prada 2
+
+Movies, The Devil Wears Prada 2, Comedy, The Devil Wears Prada
+
+Fri, 01 May 2026 02:01:14 GMT
+
+https://www.cbr.com/devil-wears-prada-2-celebrity-cameos-list/
+
+Many actors, models, singers, and fashion designers appear in The Devil Wears Prada 2.
+---------
+
+# Peter Capaldi’s Sleeper Apple TV Hit Is Becoming the Best Crime Thriller of the Decade
+
+TV, Criminal Record, Apple TV, Crime
+
+Fri, 01 May 2026 02:01:14 GMT
+
+https://www.cbr.com/peter-capaldi-apple-tv-hit-criminal-record-best-modern-crime-thriller/
+
+It's rare to see an underground show get sudden traction, but this Apple TV thriller is now starting to get the recognition it deserves.
+---------
+
+# 10 Best Anime Plot Twists Of All Time
+
+Anime, Devilman Crybaby, Bleach, shonen anime, Black Clover
+
+Fri, 01 May 2026 01:45:13 GMT
+
+https://www.cbr.com/best-anime-plot-twists-of-all-time/
+
+What separates the greatest anime twists from cheap shock value is the depth of the reframe
+---------
+
+# Tom Hardy Stole the Show in Star Trek: Nemesis
+
+Movies, Star Trek: Nemesis
+
+Fri, 01 May 2026 01:30:13 GMT
+
+https://www.cbr.com/tom-hardy-star-trek-nemesis-deserved-better-op-ed/
+
+Because resistance is futile, Tom Hardy's first breakout role was a part that Star Trek fans should not miss.
+---------
+
+# Star Wars Life-Size Grogu Officially Available for Preorder Now
+
+Games, Star Wars, The Mandalorian and Grogu
+
+Fri, 01 May 2026 01:22:26 GMT
+
+https://www.cbr.com/star-wars-life-size-grogu-preorder/
+
+Baby Yoda can soon be yours with preorders now live for life-size animatronic replicas of Grogu.
+---------
+
+# NCIS Continues Its Worst Jimmy Trend In Season 23
+
+TV, NCIS, CBS
+
+Fri, 01 May 2026 01:10:25 GMT
+
+https://www.cbr.com/ncis-season-23-episode-19-kasie-hines-jimmy-palmer/
+
+CBS revives Jimmy Palmer's worst trait in NCIS Season 23, Episode 18, "Bad Impressions," revealing room for growth amid Sam Hanna's return.
+---------
+
+# The Best Marvel Comic From Every Year of The 2000s
+
+Comics, Marvel, Spider-Man, Daredevil
+
+Fri, 01 May 2026 01:01:13 GMT
+
+https://www.cbr.com/the-best-marvel-comic-from-every-year-of-the-2000s/
+
+The 2000s were an incredible decade for Marvel Comics, and these are the ten best comics from each year of the legendary era.
+---------
+
+# After 13 Years, Nintendo's Most Underrated Franchise Is Officially the Next Animal Crossing
+
+Games, Tomodachi Life
+
+Fri, 01 May 2026 00:45:13 GMT
+
+https://www.cbr.com/tomodachi-life-nintendo-official-next-animal-crossing/
+
+This Nintendo franchise has resurfaced for the first time in over a decade and might shape the future success of the Nintendo Switch 2.
+---------
+
+# Robby Hoffman Reveals Her Own 10/10 Invention That Her 'Hacks' Character Would Make
+
+TV, Hacks, HBO Max, Comedy, Robby Hoffman
+
+Fri, 01 May 2026 02:10:16 GMT
+
+https://collider.com/hacks-season-5-robby-hoffman-randi-interview/
+
+Emmy-nominated Hacks star Robby Hoffman talks about her surprising start in Hollywood, how much of Randi is improvised, and Episode 4's cameo.
+---------
+
+# Stephen King-Approved Supernatural Western Surges to No. 1 on Streaming Overnight
+
+Movie News, Killing Faith, Guy Pearce, Stephen King, Hulu
+
+Fri, 01 May 2026 02:01:14 GMT
+
+https://collider.com/stephen-king-approved-supernatural-western-killing-faith-streaming-success-april-2026-prime-video-apple-tv/
+
+The low-budget supernatural Western approved by Stephen King, Killing Faith, is quietly becoming a massive hit on streaming.
+---------
+
+# Anya Taylor-Joy’s Action-Packed 7-Part Crime Thriller Is a Game Changer for Apple TV
+
+TV Features, Lucky, Anya Taylor-Joy, Apple TV, Timothy Olyphant
+
+Fri, 01 May 2026 01:36:13 GMT
+
+https://collider.com/anya-taylor-joy-apple-tv-lucky-crime-thriller-streaming/
+
+Apple TV is venturing into uncharted territory with Anya Taylor-Joy's Lucky, a crime thriller that marks a bold departure for the streamer.
+---------
+
+# 8 Worst Comedy Remakes, Ranked
+
+Movie, Comedy, Remake, The Hustle, White Men Can't Jump
+
+Fri, 01 May 2026 01:32:13 GMT
+
+https://collider.com/worst-comedy-remakes/
+
+There have been several awful comedy remakes released over the years, with films like Swept Away and He's All That being among the worst.
+---------
+
+# DreamWorks Dominates Streaming With 5 Fan-Favorite Movies
+
+Movie News, DreamWorks, Kung Fu Panda, Ruby Gillman, Teenage Kraken, Bee Movie
+
+Fri, 01 May 2026 01:30:14 GMT
+
+https://collider.com/dreamworks-peacock-streaming-top-10-kung-fu-panda-bee-movie-ruby-gillman-teenage-kraken/
+
+Discover how 5 of DreamWorks most popular films have taken over Peacock's Top 10 charts, including hits like Kung Fu Panda 2 and Bee Movie.
+---------
+
+# ’Doctor Who’s Next Era Could Be Its Most Divisive Yet After the Disney+ Exit
+
+TV Features, Doctor Who / Whoniverse, Doctor Who
+
+Fri, 01 May 2026 01:21:13 GMT
+
+https://collider.com/doctor-who-reboot-rumor-franchise-core-identity/
+
+Doctor Who may be heading toward a reboot following its Disney+ exit, raising questions about the show’s future.
+---------
+
+# HBO Max's 10-Part Supernatural Crime Series Is Taking Over Streaming Worldwide
+
+TV News, The Outsider, Stephen King, Carrie, HBO Max
+
+Fri, 01 May 2026 01:15:12 GMT
+
+https://collider.com/stephen-king-supernatural-crime-thriller-the-outsider-streaming-success-hbo-max-april-2026/
+
+Stephen King's chilling 2018 thriller The Outsider, starring Jason Bateman and Ben Mendelsohn, is experiencing a global resurgence on HBO Max.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Officially Doubling Down on the Most Divisive Peter Parker MCU Trend
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, MCU, Avengers: Doomsday
+
+Fri, 01 May 2026 01:00:14 GMT
+
+https://collider.com/spider-man-brand-new-day-peter-parker-ai-assistant-in-mask-stark-tech-explained/
+
+Spider-Man: Brand New Day will continue one of Peter Parker's most controversial MCU trends. Find out what it is here.
+---------
+
+# ‘Interview with the Vampire's Forgotten Horror Sequel Becomes an Overnight Smash on Streaming
+
+Movie News, Queen of the Damned, Interview with the Vampire, Tubi
+
+Fri, 01 May 2026 00:45:13 GMT
+
+https://collider.com/interview-with-the-vampire-fantasy-horror-sequel-queen-of-the-damned-free-streaming-success-tubi-april-2026/
+
+2002's cult classic fantasy sequel to Interview with the Vampire is a free streaming sensation in the U.S.
+---------
+
+# Forget 'Firefly' — This Cult Sci-Fi Series Is the One That Deserves a Revival
+
+TV Features, Farscape, Firefly, Sci-Fi, Comic Book
+
+Fri, 01 May 2026 00:13:13 GMT
+
+https://collider.com/farscape-cult-sci-fi-show-needs-revival-firefly/
+
+The cult sci-fi television series that should be getting a new animated revival isn't Firefly, but the classic sci-fi show Farscape.
+---------
+
+# 12 Essential TV Shows Everyone Should Try at Least The First 5 Episodes
+
+TV Lists, Squid Game
+
+Fri, 01 May 2026 02:00:31 GMT
+
+https://movieweb.com/tv-shows-essential-everyone-watch-once/
+
+From sitcoms to sci-fi, crime dramas, and an anthology series, these TV shows are still popular and influential today.
+---------
+
+# 5 Studios Fighting to Make Michael B. Jordan's 'Battlefield' Movie
+
+Movie News, Michael B. Jordan, Battlefield
+
+Fri, 01 May 2026 00:50:39 GMT
+
+https://movieweb.com/michael-b-jordan-battlefield-bidding-war/
+
+Warner Bros., Universal, and more are all trying to secure the project Jordan is developing with Christopher McQuarrie.
+---------
+
+# Unofficial 'Star Trek' Sci-Fi Sequel 'Galaxy Quest Lands Free Streaming Release on Pluto TV
+
+Movie News, Galaxy Quest, Pluto TV, Coming/Leaving Streaming, Sci-Fi, Star Trek
+
+Fri, 01 May 2026 00:00:18 GMT
+
+https://movieweb.com/galaxy-quest-star-trek-streaming-free-pluto-may-2026/
+
+'Star Trek's unofficial sequel movie, 'Galaxy Quest' will stream for free on Pluto TV in May 2026.
+---------
+
+# Every Mike Flanagan Netflix Movie & TV Series, Ranked
+
+Movie Lists, Mike Flanagan, Netflix, The Haunting of Hill House, Midnight Mass, Hush
+
+Fri, 01 May 2026 00:00:18 GMT
+
+https://movieweb.com/mike-flanagan-netflix-movie-tv-series-ranked/
+
+Mike Flanagan's partnership with Netflix has delivered more than one masterpiece, including lauded movies and TV shows.
+---------
+
 # The Devil Wears Prada 2 Ending Explained: Who Ends Up Running Runway (And Why It Matters So Much)
 
 Movies, The Devil Wears Prada 2
