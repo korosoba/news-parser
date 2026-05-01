@@ -1,3 +1,267 @@
+# Netflix's Record-Breaking Shark Horror Movie Gets Massive Sequel Update
+
+Movies, Under Paris, Netflix
+
+Fri, 01 May 2026 13:01:23 GMT
+
+https://screenrant.com/under-paris-2-netflix-shark-movie-production-update/
+
+Netflix's record-breaking shark horror movie gets a massive sequel update as development on the follow-up reaches an important milestone.
+---------
+
+# Antony Starr Is Quietly Jealous Of 1 Of The Boys Season 5's Plotlines
+
+TV, The Boys
+
+Fri, 01 May 2026 13:00:19 GMT
+
+https://screenrant.com/the-boys-season-5-the-deep-plotlines-antony-starr-jealous/
+
+EXCLUSIVE: In an interview with ScreenRant, one of The Boys cast members reveals that Anthony Starr is quietly jealous of their season 5 storyline.
+---------
+
+# How To Beat Giovanni In Pokémon GO (May 2026)
+
+Gaming, Pokemon GO, Pokemon, Mobile, Live Service Games
+
+Fri, 01 May 2026 13:00:19 GMT
+
+https://screenrant.com/pokemon-go-how-to-beat-giovanni-counters-may-2026/
+
+The leader of Team Rocket, Giovanni, has been through another Taken Over event in May 2026 for Pokémon GO, changing up his team for players to beat.
+---------
+
+# Megan Fox's Unbeatable Horror Comedy Just Got Its Best Chance At A Revival
+
+Movies, Jennifer's Body, Megan Fox
+
+Fri, 01 May 2026 13:00:19 GMT
+
+https://screenrant.com/megan-fox-jennifers-body-netflix-release-revival-chance/
+
+One near-perfect cult classic just got its best chance at making a revival happen almost 20 years after the original movie released in cinemas.
+---------
+
+# Why There Is No New Episode Of Outlander This Week (May 1) & When Season 8 Resumes
+
+Streaming TV, Outlander
+
+Fri, 01 May 2026 12:51:46 GMT
+
+https://screenrant.com/outlander-no-new-episode-may-1-2026-season-8-episode-9-release-date/
+
+If you were expecting to watch the next Outlander episode tonight, you're going to be disappointed. However, you won't have to wait too long.
+---------
+
+# GTA 6 Pre-Orders Have Gamers Marking Their Calendars
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Fri, 01 May 2026 12:51:40 GMT
+
+https://screenrant.com/gta-6-pre-order-hype-may-earnings-call/
+
+GTA VI is currently scheduled to release in November, but it's this month that's really going to make or break those plans.
+---------
+
+# Titus Welliver's 7-Part Crime Western Sets Up His Next Bosch Storyline
+
+Streaming TV, Ballard, Sons of Anarchy
+
+Fri, 01 May 2026 12:45:20 GMT
+
+https://screenrant.com/titus-welliver-sons-of-anarchy-role-sets-up-bosch-ballard-season-2/
+
+Titus Welliver's Bosch is still around, and his next storyline was subtly set up in a crime Western show Welliver was a part of for three seasons.
+---------
+
+# CBS Makes Last Minute Change To Jensen Ackles’ Tracker Season 3 Role
+
+Network TV, Tracker
+
+Fri, 01 May 2026 12:38:37 GMT
+
+https://screenrant.com/tracker-season-3-jensen-ackles-russell-return-change/
+
+In an unexpected twist ahead of its last few episodes of the cycle, CBS changes Jensen Ackles' role as Russell Shaw in Tracker season 3.
+---------
+
+# DC's 95% RT Show Is The Prequel DCU's Clayface Needed
+
+Movies, Clayface
+
+Fri, 01 May 2026 12:30:19 GMT
+
+https://screenrant.com/dc-universe-clayface-movie-the-penguin/
+
+DC's acclaimed 2024 series about an iconic villain is the perfect prequel to the DCU's Clayface, which explores the origins of a Batman antagonist.
+---------
+
+# Ridley Scott's Forgotten Sci-Fi Masterpiece With 80% RT Score Is Just As Good As Blade Runner
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 12:30:19 GMT
+
+https://screenrant.com/ridley-scott-raised-by-wolves-sci-fi-show/
+
+Blade Runner is one of the best science fiction movies of all time, but Ridley Scott’s often-forgotten TV masterpiece is just as good.
+---------
+
+# The 10 Best Performances In The Star Trek Movies, Ranked
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Star Trek: First Contact
+
+Fri, 01 May 2026 13:00:12 GMT
+
+https://www.cbr.com/best-star-trek-movies-performances-ranked/
+
+From surprising turns by veteran cast members to unforgettable one-off characters, these are the best performances from the Star Trek movies.
+---------
+
+# Arrow Is Now Streaming Free on Pluto TV
+
+TV, Arrow, DCU, superheroes
+
+Fri, 01 May 2026 13:00:12 GMT
+
+https://www.cbr.com/arrow-dc-superhero-series-streaming-pluto-tv-may-2026/
+
+One of the most formative superhero TV shows of all time is now available to stream for free.
+---------
+
+# Batman’s Perfect Robin Confirmed in DC Canon
+
+Comics, Robin, Batman
+
+Fri, 01 May 2026 12:00:13 GMT
+
+https://www.cbr.com/batman-perfect-robin-carrie-kelley-confirmed-frank-miller/
+
+One of the most celebrated Batman writers names the ultimate Robin.
+---------
+
+# That Time I Got Reincarnated as a Slime Officially Confirms How Rimuru Earned His Voice
+
+CBR Exclusives, That Time I Got Reincarnated as a Slime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea
+
+Fri, 01 May 2026 12:00:13 GMT
+
+https://www.cbr.com/that-time-i-got-reincarnated-as-a-slime-brittany-karbowski-rimuru-voice/
+
+Rimuru Tempest's English VA finally reveals her surprising method for crafting the distinct voice of isekai anime's most iconic OP protagonist.
+---------
+
+# Prime Video’s 5-Part Sci-Fi Series Is the Perfect Weekend Binge
+
+TV Features, Person of Interest, Jim Caviezel, Prime Video, Sci-Fi
+
+Fri, 01 May 2026 12:48:14 GMT
+
+https://collider.com/prime-video-best-sci-fi-series-person-of-interest-5-seasons/
+
+Person of Interest is a Prime Video sci-fi thriller with 5 seasons, perfect for cozy-night binges and eerily timely A.I. stakes.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Weekend
+
+TV, Man on Fire, La Brea, One Piece, Netflix
+
+Fri, 01 May 2026 12:41:13 GMT
+
+https://collider.com/netflix-shows-binge-may-1/
+
+La Brea, Man on Fire, and One Piece make up our list of the best Netflix shows to watch the weekend of May 1st, 2026.
+---------
+
+# 8 Most Universally Beloved Western Movies of All Time, Ranked
+
+Movie, Western, Unforgiven, Shane, Django Unchained
+
+Fri, 01 May 2026 12:23:12 GMT
+
+https://collider.com/most-universally-beloved-western-movies-all-time-ranked/
+
+From 'The Good, the Bad and the Ugly' to modern classics, these Western films redefine heroes, morality, and genre storytelling.
+---------
+
+# Bugs Bunny Get an Anime Makeover in First Look at First New Looney Tunes Series in 3 Years
+
+TV News, Looney Tunes, Anime, Cartoons, Warner Bros.
+
+Fri, 01 May 2026 12:00:13 GMT
+
+https://collider.com/looney-tunes-gokko-anime-first-look-warner-bros-new-series/
+
+Warner Bros. is set to release a new Looney Tunes series in a chibi anime-inspired art style. The series, titled Looney Tunes Gokko.
+---------
+
+# Only 3 Movie Trilogies Are More Perfect Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Before Sunrise, Three Colors: Red, Pather Panchali
+
+Fri, 01 May 2026 11:57:13 GMT
+
+https://collider.com/movie-trilogies-more-perfect-than-the-lord-of-the-rings/
+
+These three film trilogies go beyond epic storytelling, delivering intimate, human narratives that rival the greatest trilogy ever made.
+---------
+
+# Zach Cregger Confirms His ‘Resident Evil’ Film Shares a Timeline With ‘Resident Evil 2’ — but the Trailer Tells a Different Story
+
+Movie Features, Resident Evil, Zach Cregger, Horror
+
+Fri, 01 May 2026 11:46:14 GMT
+
+https://collider.com/resident-evil-zach-cregger-timeline-resident-evil-2-continuity-break-snow/
+
+Director Zach Cregger has confirmed his Resident Evil film takes place alongside Resident Evil 2, but the snow in the trailer tells a different story.
+---------
+
+# Every Disney Era of Animation, Ranked
+
+Movie, Disney, Animation, The Little Mermaid, Snow White and the Seven Dwarfs
+
+Fri, 01 May 2026 11:37:13 GMT
+
+https://collider.com/disney-eras-animation-ranked/
+
+Throughout its history, Disney has gone through eight eras of animation, from the infamous Dark Age to the acclaimed Renaissance. Which is the best?
+---------
+
+# 'Monarch' Season 2 Ending, Explained: A Classic 'Godzilla' Titan Joins Season 3
+
+Features, Monarch: Legacy of Monsters, Godzilla, King Kong, Monsterverse, Apple TV
+
+Fri, 01 May 2026 13:00:17 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-season-2-ending-explained/
+
+'Monarch' may be done with Titan X after the Season 2 finale, but a classic 'Godzilla' monster looks set for Season 3.
+---------
+
+# Ridley Scott Sci-Fi Masterpiece 'The Martian' Now Streaming on Peacock
+
+Movie News, The Martian, Ridley Scott, Sci-Fi, Coming/Leaving Streaming
+
+Fri, 01 May 2026 12:00:18 GMT
+
+https://movieweb.com/ridley-scott-the-martian-streaming-peacock-may-2026/
+
+Ridley Scott landed the highest-grossing movie of his career with the stunning sci-fi survival thriller, which has officially touched down on Peacock.
+---------
+
+# James Gunn's DCU Update Proves 'Superman' Needed Metallo
+
+Features, Superman, DCU
+
+Fri, 01 May 2026 12:00:18 GMT
+
+https://movieweb.com/superman-metallo-villain-necessary/
+
+James Gunn's DCU update about 'The Authority' proves that the 2025 movie 'Superman' needed the villain Metallo.
+---------
+
 # Legend Of Zelda: The Minish Cap Is Back, And Gamers Are Delighted
 
 Gaming, The Legend of Zelda, The Legend of Zelda: The Minish Cap
