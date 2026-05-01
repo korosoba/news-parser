@@ -1,3 +1,300 @@
+# Prime Video's R-Rated Psychological Thriller That's Just 6 Hours Long Is Your Next Weekend Binge
+
+TV, Prime Video, Masked Recs
+
+Fri, 01 May 2026 16:38:19 GMT
+
+https://screenrant.com/dead-ringers-prime-video-weekend-watch-psychological-thriller/
+
+Rachel Weisz delivers two of the best performances of her career in Prime Video's twisty, unpredictable psychological thriller miniseries from 2023.
+---------
+
+# The Boys' Firecracker Star Has 1 Regret About Season 5 As She Says Goodbye To The Series
+
+Exclusive, The Boys, The Boys - Season 5
+
+Fri, 01 May 2026 16:34:42 GMT
+
+https://screenrant.com/the-boys-season-5-episode-5-firecracker-valorie-curry-regrets-interview/
+
+The Boys star Valorie Curry shares her biggest regret in the wake of Firecracker's demise, and reflects on her dynamics with Homelander & Soldier Boy.
+---------
+
+# Apple TV+ Horror-Comedy Widow's Bay Maintains Perfect RT Score
+
+TV, Apple TV, Rotten Tomatoes, Masked Recs
+
+Fri, 01 May 2026 16:32:52 GMT
+
+https://screenrant.com/widows-bay-apple-tv-streaming-success-may-2026/
+
+Apple TV+'s new horror-comedy series Widow's Bay premieres at #4 on watch charts with a perfect 100% Rotten Tomatoes score, delighting audiences and critics alike.
+---------
+
+# Taylor Sheridan’s Hit Crime Western Officially Releases On Perfect Streaming Home For Yellowstone Fans
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 16:23:46 GMT
+
+https://screenrant.com/taylor-sheridan-hell-or-high-water-may-2026-streaming/
+
+Taylor Sheridan's Western crime thriller is one of his best, and while it is not part of Yellowstone, it has landed on the perfect streaming service.
+---------
+
+# Robert De Niro's $116M Crime Hit Officially Releases On Streaming After Making 2x Its Budget
+
+Movies, Masked Recs, Robert De Niro
+
+Fri, 01 May 2026 16:20:26 GMT
+
+https://screenrant.com/robert-de-niro-casino-movie-streaming-release-date-official/
+
+One of Robert De Niro's all-time prestige films is finally landing in the world of streaming more than two decades after its theatrical run.
+---------
+
+# New Resident Evil Movie Trailer Breaks A Major Franchise Rule That Hasn’t Been Crossed Since 2017
+
+Movies, Resident Evil, Resident Evil 7: Biohazard
+
+Fri, 01 May 2026 16:15:19 GMT
+
+https://screenrant.com/resident-evil-movie-trailer-main-character-rule/
+
+Zach Cregger's Resident Evil reboot officially has a trailer, and on top of looking incredible, it's breaking a major rule first broken by Biohazard.
+---------
+
+# Netflix's New 7-Part Crime Action Series Is An Instant #1 Streaming Hit Worldwide
+
+TV, Masked Recs
+
+Fri, 01 May 2026 16:12:22 GMT
+
+https://screenrant.com/netflix-man-on-fire-streaming-success-may-2026/
+
+Netflix's new, seven-episode crime action series has become an instant Number 1 streaming hit worldwide, just one day after its release.
+---------
+
+# Netflix’s Biggest Shows This Weekend (May 1–3) Are Already Dominating – Here’s What To Watch
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 01 May 2026 16:12:20 GMT
+
+https://screenrant.com/netflix-shows-to-watch-now-weekend-may-1-3/
+
+Discover the three hottest Netflix original series dominating global streaming charts heading into the first weekend of May 2026, led by Man on Fire.
+---------
+
+# Apple TV's New Sci-Fi Adaptation Will Be The Bridge Between Blade Runner And The Matrix
+
+Streaming TV, Neuromancer, Sci-Fi, The Matrix, Blade Runner, Apple TV
+
+Fri, 01 May 2026 16:02:21 GMT
+
+https://screenrant.com/neuromancer-show-apple-blade-runner-meets-the-matrix/
+
+The Matrix and Blade Runner are both staples of cyberpunk, and one upcoming Apple TV+ show will combine everythign fans love about both.
+---------
+
+# What Convinced Meryl Streep To Return For The Devil Wears Prada 2
+
+Interviews, The Devil Wears Prada 2, Meryl Streep
+
+Fri, 01 May 2026 16:00:48 GMT
+
+https://screenrant.com/devil-wears-prada-2-meryl-streep-return-director-writer-explanation/
+
+The Devil Wears Prada 2 sees Meryl Streep reprise her role as Miranda Priestly. Director David Frankel and writer Aline Brosh McKenna discuss convincing Streep to return, focusing on the sequel's fresh take on the fashion magazine world.
+---------
+
+# How My Adventures With Superman Sets Up Green Lantern Spinoff Revealed
+
+TV, My Adventures With Superman, Superman, superheroes
+
+Fri, 01 May 2026 16:33:16 GMT
+
+https://www.cbr.com/my-adventures-with-superman-season-3-green-lantern-jessica-cruz/
+
+Green Lantern Jessica Cruz will feature in My Adventures with Superman before leading the spinoff show.
+---------
+
+# 10 Detective Thrillers That Are Perfect from Start to Finish
+
+Movies, Thriller
+
+Fri, 01 May 2026 16:30:12 GMT
+
+https://www.cbr.com/perfect-detective-thrillers-list/
+
+There are plenty of excellent detective thrillers for fans to watch, but these ten stand out as absolutely perfect entries in the genre.
+---------
+
+# Gaten Matarazzo & Iman Vellani Reveal Animal Farm’s Biggest Change
+
+Movies, Animal Farm
+
+Fri, 01 May 2026 16:15:12 GMT
+
+https://www.cbr.com/video/gaten-matarazzo-iman-vellani-reveal-animal-farm-s-biggest-change/
+
+Gaten Matarazzo & Iman Vellani break down why this 2026 adaptation feels more relevant than ever—and why it doesn’t just leave audiences in despair.From reflecting on reading George Orwell’s classic in school to exploring how the film introduces political awareness for younger viewers, Gaten and Iman dive deep into what makes this version different. They discuss the shift toward hope, why that matters today, and how their characters bring a fresh perspective.
+---------
+
+# 7 Slice-of-Life Anime That Are Perfect From Start to Finish
+
+Anime, Laid-Back Camp, Non Non Biyori, Mushishi
+
+Fri, 01 May 2026 16:15:12 GMT
+
+https://www.cbr.com/slice-of-life-anime-that-are-perfect-from-start-to-finish/
+
+Slice-of-life anime offer a cozy and incomparable experience that can be tricky to maintain, but these titles make small-scale storytelling look easy.
+---------
+
+# Star Wars’ First Movie in 7 Years Is Tracking for Its Worst Live-Action Opening Ever
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Fri, 01 May 2026 16:13:49 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-box-office-tracking/
+
+This is not the way Lucasfilm wanted Star Wars' big screen return to go.
+---------
+
+# 10 Sitcoms With Zero Weak Seasons
+
+TV, Sitcoms, Schitt's Creek, Ted Lasso, Parks and Recreation
+
+Fri, 01 May 2026 16:00:15 GMT
+
+https://www.cbr.com/sitcoms-no-weak-seasons-list/
+
+While some sitcoms are hit and miss, these ones are nearly perfect with no weak seasons in their entire run.
+---------
+
+# Indiana Jones and the Last Crusade is Disney's Best Cast Movie
+
+Movies, Indiana Jones, Indiana Jones and the Last Crusade
+
+Fri, 01 May 2026 16:00:15 GMT
+
+https://www.cbr.com/disney-best-cast-adventure-movie-indiana-jones-last-crusade/
+
+Among the Indiana Jones films, The Last Crusade features one of the best casts in this or any franchise and that's why the film works so well.
+---------
+
+# How Absolute Batman May Be Boosting Sales for Other Comic Book Companies
+
+Comics, Absolute Batman
+
+Fri, 01 May 2026 16:00:15 GMT
+
+https://www.cbr.com/absolute-batman-boosting-image-comics-sales/
+
+DC is not the only comic book publisher benefiting from Absolute Batman.
+---------
+
+# Netflix's Popular Creature Feature Under Paris 2 Starts Filming
+
+Movies, Under Paris, Under Paris 2
+
+Fri, 01 May 2026 15:56:43 GMT
+
+https://www.cbr.com/under-paris-2-starts-filming/
+
+Creature features will never go out of style, and Netflix knows all about that.
+---------
+
+# James Bond Is Officially Back, and This Month's New Release Looks Phenomenal
+
+Movie News, James Bond, Daniel Craig, Pierce Brosnan, No Time to Die
+
+Fri, 01 May 2026 16:15:13 GMT
+
+https://collider.com/james-bond-007-first-light-release-date-may-27-new-game/
+
+Years later, James Bond officially returns this month with a new release, 007 First Light. Catch up on all the details here.
+---------
+
+# Disney’s Near-Perfect 3-Part Sci-Fi Saga Is a Perfect Weekend Binge
+
+Movie Features, Guardians of the Galaxy, MCU, Chris Pratt, James Gunn
+
+Fri, 01 May 2026 16:06:13 GMT
+
+https://collider.com/disney-guardians-of-the-galaxy-perfect-weekend-binge/
+
+James Gunn’s 'Guardians of the Galaxy' balances humor, music, and emotion, making it one of Marvel’s most distinctive and satisfying weekend binges.
+---------
+
+# MGM's 4-Part Psychological Thriller Series Is Officially Taking Over the World
+
+TV News, From, Amazon, HBO Max, Horror
+
+Fri, 01 May 2026 16:05:14 GMT
+
+https://collider.com/from-amazon-mgm-best-horror-sci-fi-thriller-series-streaming-success-hbo-max-april-2026/
+
+MGM+'s horror thriller From has become a streaming sensation, not only on its original platform but also on HBO Max.
+---------
+
+# Pierce Brosnan Trains a Future Legend in First Official Trailer for Sylvester Stallone's New Action Hit [Exclusive]
+
+Exclusives, Pierce Brosnan, Giant, Sylvester Stallone, Sports
+
+Fri, 01 May 2026 16:00:16 GMT
+
+https://collider.com/pierce-brosnan-amir-el-masry-giant-trailer-boxing-movie-prince-naseem-hamed-sylvester-stallone/
+
+Pierce Brosnan and Amir El-Masry star in Giant, the true story of boxing champion Prince Naseem Hamed. Check the trailer here.
+---------
+
+# Netflix Shark Thriller Sequel 'Under Paris 2' Begins Production
+
+Movie News, Under Paris, Under Paris 2, Netflix, Thriller
+
+Fri, 01 May 2026 16:32:02 GMT
+
+https://movieweb.com/netflix-under-paris-2-filming/
+
+Netflix's plans for a sequel to its intense shark action thriller are swimming ahead, with a horror icon set to direct.
+---------
+
+# Every Must-Watch Movie Coming to Theaters in May 2026
+
+Features, Obsession
+
+Fri, 01 May 2026 16:30:18 GMT
+
+https://movieweb.com/movies-playing-in-theaters-may-2026/
+
+Your guide for every movie coming to theaters in May 2026, including a new Star Wars movie and several anticipated horror releases.
+---------
+
+# IMAX Calls Marvel Studios' Infinity Vision Format for 'Avengers: Doomsday' a "Marketing Play"
+
+Movie News, Avengers: Doomsday, MCU, IMAX
+
+Fri, 01 May 2026 16:14:43 GMT
+
+https://movieweb.com/imax-infinity-vision-avengers-doomsday/
+
+Disney's new premium large-format certification is its answer to losing IMAX screens for Avengers: Doomsday.
+---------
+
+# A24's Terrifying Horror Masterpiece 'Hereditary' Lands on Free Streaming
+
+Movie News, Hereditary, Coming/Leaving Streaming
+
+Fri, 01 May 2026 16:00:17 GMT
+
+https://movieweb.com/hereditary-streaming-tubi-may-2026/
+
+While "elevated horror" is an unnecessary term, it's safe to say that A24's 'Hereditary' from Ari Aster elevated the scares to unforeseen heights.
+---------
+
 # Denzel Washington Vs. Yahya Abdul-Mateen II: Who Is Man On Fire's Better John Creasy?
 
 Streaming TV, Man on Fire
