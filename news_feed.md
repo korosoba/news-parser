@@ -1,3 +1,223 @@
+# Beloved PS1 JRPG Is Getting A Remake For Modern Consoles
+
+Gaming, PlayStation (Original)
+
+Fri, 01 May 2026 05:00:20 GMT
+
+https://screenrant.com/ps1-classic-jrpg-remaster-tales-eternia/
+
+A classic JRPG from the PS1 era may be getting a surprise remake soon, but the news comes with some confusion over its planned platforms.
+---------
+
+# Daredevil: Born Again's Latest Major Death Is A Waste Of Marvel Comics Potential
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Fri, 01 May 2026 03:55:25 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-daniel-blake-death-marvel-comics-waste/
+
+The most recent significant death ahead of Daredevil: Born Again season 2's finale feels like a pretty big waste of Marvel Comics potential.
+---------
+
+# Sam Elliott's 10 Greatest TV Roles
+
+Lists, Sam Elliott
+
+Fri, 01 May 2026 03:44:48 GMT
+
+https://screenrant.com/sam-elliotts-10-greatest-tv-roles/
+
+Sam Elliot has played myriad television roles in his long acting career, but some of his roles on the small-screen are arguably far more memorable.
+---------
+
+# 10 Near-Perfect Detective Shows Everyone Forgot About
+
+Lists, The Afterparty, Giri/Haji, Bored to Death
+
+Fri, 01 May 2026 03:30:20 GMT
+
+https://screenrant.com/detective-tv-shows-near-perfect-forgotten/
+
+While some detective shows stand the test of time and are watched on repeat, others are forgotten despite being incredible additions to the genre.
+---------
+
+# Star Wars' New Show Can Give Darth Maul An Elite Inquisitor Record
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Fri, 01 May 2026 03:15:52 GMT
+
+https://screenrant.com/maul-shadow-lord-most-inquisitor-kills-ahsoka-darth-vader/
+
+The appearance of two Imperial Inquisitors in Maul - Shadow Lord means that a major Star Wars record could be broken by the former Sith apprentice.
+---------
+
+# 10 Reasons New-Gen Shonen Anime Are Better Than Your Retro Fave
+
+Anime
+
+Fri, 01 May 2026 02:30:19 GMT
+
+https://screenrant.com/reasons-new-gen-anime-better-than-retro/
+
+Anime has continually improved over the years, so it's no surprise that newer titles do many things better than their beloved older counterparts.
+---------
+
+# Jujutsu Kaisen Officially Releases The First Look at JJK Modulo's Anime
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo, Manga
+
+Fri, 01 May 2026 03:57:50 GMT
+
+https://www.cbr.com/jjk-modulo-anime-first-look-mappa/
+
+MAPPA just dropped a surprise first-look at Jujutsu Kaisen Modulo that no one saw coming, and it's absolutely perfect.
+---------
+
+# Hulu's Shoresy Is a Perfect Ted Lasso Replacement
+
+TV, Shoresy, Hulu, Letterkenny
+
+Fri, 01 May 2026 03:30:13 GMT
+
+https://www.cbr.com/hulu-shoresy-perfect-for-ted-lasso-fans/
+
+This Letterkenny spin-off is the perfect sports comedy for Ted Lasso fans looking to fill the void.
+---------
+
+# Zelda: Ocarina of Time's Switch 2 Remake Has to Change Navi
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Fri, 01 May 2026 03:15:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-navi-changes/
+
+The Legend of Zelda: Ocarina of Time's Switch 2 remake is being forced to contend with Navi's character, for all her endearing flaws and faults.
+---------
+
+# Naruto's First-Ever Manga Appearance Is Officially Back, But Not for Long
+
+Anime, Naruto, weekly shonen jump
+
+Fri, 01 May 2026 03:00:13 GMT
+
+https://www.cbr.com/naruto-first-manga-goldin-auction/
+
+Naruto’s first manga appearance returns, alongside extremely rare Shonen Jump issues including Dragon Ball and One Piece.
+---------
+
+# The 25 Best Action Anime of All Time, Ranked
+
+Anime
+
+Fri, 01 May 2026 02:45:13 GMT
+
+https://www.cbr.com/best-action-anime-ranked/
+
+Series like Demon Slayer, Dragon Ball Z, One Piece, and more show why action anime are among the best in the medium.
+---------
+
+# Frieren: Beyond Journey's End is an Overrated Fantasy Anime — Here's Why
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 01 May 2026 02:45:12 GMT
+
+https://www.cbr.com/reasons-why-frieren-beyond-journeys-end-is-overrated-anime-criticism/
+
+Frieren: Beyond Journey's End is a masterpiece, but it certainly isn't without its flaws. Anime fans don't hate on it simply because its popular.
+---------
+
+# The 10 Most Intense Action Movies of All Time, Ranked
+
+Movies, Action
+
+Fri, 01 May 2026 02:45:12 GMT
+
+https://www.cbr.com/most-intense-action-movies-list/
+
+A lot of standard action films are just fun, but the following movies are genuinely stressful and intense in the best way.
+---------
+
+# 8 Netflix Series That Are So Good, You'll Want to Binge Them in One Weekend
+
+TV, Netflix, The Gentlemen, Baby Reindeer, Beef
+
+Fri, 01 May 2026 04:51:13 GMT
+
+https://collider.com/netflix-series-binge-watch-one-weekend/
+
+Baby Reindeer, Bodies, The Residence, The Fall of the House of Usher, Beef, and more make up our list of best Netflix shows to binge in one weekend.
+---------
+
+# Andy Serkis Confirms Key Changes Made to 'Animal Farm' for a New Generation
+
+Exclusives, Andy Serkis, Animal Farm, Animation, Seth Rogen
+
+Fri, 01 May 2026 04:26:10 GMT
+
+https://collider.com/andy-serkis-animal-farm-new-ending-meaning-explained-george-orwell/
+
+Andy Serkis discusses the long development process, how the approach and story have evolved, and adapting the film's core message to screen.
+---------
+
+# Only 3 Horror Movies Are More Entertaining Than 'Scream'
+
+Movie, Scream, Jaws, The Silence of the Lambs, Horror
+
+Fri, 01 May 2026 04:13:12 GMT
+
+https://collider.com/horror-movies-more-entertaining-than-scream/
+
+Scream is obviously one of the most entertaining horror movies ever made, but thrillers like Jaws and Aliens pack even more punch.
+---------
+
+# Prime Video Is the Best Streamer for Action, and These 9 Shows Prove It
+
+TV, Prime Video, Action, Reacher, Tom Clancy's Jack Ryan
+
+Fri, 01 May 2026 04:07:12 GMT
+
+https://collider.com/prime-video-shows-best-streamer-for-action/
+
+Prime Video is the premier streaming service for the action genre, and shows like Reacher, The Terminal List, Fallout, and Jack Ryan are proof.
+---------
+
+# The Best Western Thrillers on Tubi Are a 3-Part Epic Perfect From Start to Finish
+
+Movie, A Fistful of Dollars, For a Few Dollars More, The Good, the Bad and the Ugly, Clint Eastwood
+
+Fri, 01 May 2026 04:05:13 GMT
+
+https://collider.com/dollars-trilogy-best-western-thrillers-3-part-epic-tubi-perfect/
+
+The movies that make up the Dollars trilogy are some of the most thrilling Westerns ever made, and Tubi is currently a convenient place to watch them.
+---------
+
+# This '9-1-1' Storyline for Buck Is What Fans Have Been Waiting Seasons For
+
+TV Features, 9-1-1, Oliver Stark, ABC, Procedural
+
+Fri, 01 May 2026 03:04:15 GMT
+
+https://collider.com/9-1-1-season-9-episode-17-buck-theo-adhd-parenting/
+
+9-1-1 Season 9 explores Buck's possible ADHD diagnosis and his parenting journey, adding depth to his character and addressing his impulsivity.
+---------
+
+# Robert Pattinson, Tom Holland, and Charlie Hunnam Teamed Up for a Haunting Adventure Nobody Watched
+
+Movie Features, The Lost City of Z, Robert Pattinson, Tom Holland, Charlie Hunnam
+
+Fri, 01 May 2026 03:03:15 GMT
+
+https://collider.com/robert-pattinson-tom-holland-charlie-hunnam-the-lost-city-of-z/
+
+'The Lost City of Z' stars the likes of Tom Holland and Robert Pattinson and is a harrowing epic about a real discovery mission that went awry.
+---------
+
 # A Knight Of The Seven Kingdoms Star Reveals Egg’s Season 2 Look In BTS Video
 
 TV, A Knight Of The Seven Kingdoms
