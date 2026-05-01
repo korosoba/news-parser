@@ -1,3 +1,300 @@
+# Tears Of The Azure Sea's End Credits Scene Makes It An Instant Must Watch For Every Slime Fan
+
+Anime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, That Time I Got Reincarnated as a Slime, Isekai
+
+Fri, 01 May 2026 22:00:21 GMT
+
+https://screenrant.com/that-time-i-got-reincarnated-as-a-slime-tears-azure-sea-end-credits-scene-explained/
+
+That Time I Got Reincarnated as a Slime's latest movie, Tears of the Azure Sea, has an important end credits scene that fans will not want to skip.
+---------
+
+# Emma Stone's R-Rated Sci-Fi Movie Invades Netflix's Top 10 Streaming Chart
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 22:00:21 GMT
+
+https://screenrant.com/emma-stone-sci-fi-movie-bugonia-streaming-success-netflix/
+
+Emma Stone has become a dominant force in Hollywood, and now her R-rated sci-fi movie has invaded streaming giant Netflix's streaming charts.
+---------
+
+# 7 Biggest Marvel Deaths in 2026 So Far
+
+Comics, Marvel
+
+Fri, 01 May 2026 22:00:21 GMT
+
+https://screenrant.com/marvel-comics-deaths-2026-so-far/
+
+The biggest Marvel deaths of 2026.
+---------
+
+# Hogwarts Legacy 2 Chamber Of Secrets Setting Has Gamers Seriously Excited
+
+Gaming, Warner Bros., Hogwarts Legacy, Harry Potter, Harry Potter and the Chamber of Secrets
+
+Fri, 01 May 2026 22:00:21 GMT
+
+https://screenrant.com/hogwarts-legacy-2-chamber-of-secrets-fan-theory/
+
+Fans speculate on the setting and timeline for Hogwarts Legacy 2, with theories pointing towards the Chamber of Secrets and a 1940s setting.
+---------
+
+# Netflix's 2-Part Fantasy Show That's 'The Magicians Meets Shadowhunters' Deserves Its 100% RT Score
+
+Classic TV, Masked Recs
+
+Fri, 01 May 2026 21:45:22 GMT
+
+https://screenrant.com/the-order-netflix-the-magicians-meets-shadowhunters-fantasy-show/
+
+The Magicians and Shadowhunters are some of the best modern fantasy in TV history, but Netflix had a perfect successor with critical acclaim.
+---------
+
+# Peacock's Twisted Metal: A Fusion of Mad Max and Fallout
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 21:32:20 GMT
+
+https://screenrant.com/twisted-metal-peacock-fallout-meets-mad-max-show/
+
+Discover how Peacock's original series Twisted Metal masterfully blends elements from the iconic Mad Max and Fallout franchises, creating one of the streaming service's best post-apocalyptic shows.
+---------
+
+# Magneto Turns Asteroids Into Bullets Against Godzilla In Infinity Roar Crossover
+
+Marvel Comics, Magneto, X-Men, Marvel
+
+Fri, 01 May 2026 21:24:57 GMT
+
+https://screenrant.com/magneto-new-power-asteroid-bullets-kill-godzilla/
+
+Magneto unleashes his full power with an impressive attack that makes the Marvel Universe's most durable antagonist bleed in outer space.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is Liam Neeson's R-Rated Action Thriller)
+
+Movies, Prime Video, Recommendation
+
+Fri, 01 May 2026 21:20:55 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-may-2/
+
+Prime Video's best movies to watch this weekend include a bloody Liam Neeson action thriller, a Matt Damon adventure, and a star-studded drama.
+---------
+
+# Marvel’s Latest Hulk Bombshell Is Set to Transform the Entire Comic Universe
+
+Comics, she-hulk, Hulk
+
+Fri, 01 May 2026 22:00:14 GMT
+
+https://www.cbr.com/marvel-planet-she-hulk-6-juno-reveal/
+
+Marvel Comics just dropped another impossibly strong member of the Hulk family into the middle of the Marvel Universe, and her impact is unmistakable.
+---------
+
+# Den of Thieves is Gerard Butler's Best Performance
+
+Movies, Den of Thieves
+
+Fri, 01 May 2026 22:00:14 GMT
+
+https://www.cbr.com/gerard-butler-best-performance-den-of-thieves/
+
+It's been nearly a decade since Den of Thieves smashed into theaters, and Gerard Butler has never been better than he was in this meathead movie.
+---------
+
+# Batman Who Laughs Officially Returns With Stunning New Figure
+
+Comics, Batman
+
+Fri, 01 May 2026 21:38:13 GMT
+
+https://www.cbr.com/batman-who-laughs-new-figure-preorders-available-now/
+
+Batman fans can now pre-order their very own startling recreation of the Batman Who Laughs, and it is terrifying for how perfect it is.
+---------
+
+# Ghosts Gets a Surprise Streaming Update in America
+
+TV, Ghosts
+
+Fri, 01 May 2026 21:30:14 GMT
+
+https://www.cbr.com/ghosts-streaming-rise-after-schedule-change/
+
+Fans of Ghosts on CBS get some excellent news.
+---------
+
+# 10 Greatest All-Star War Movies of All Time
+
+Movies, War
+
+Fri, 01 May 2026 21:30:14 GMT
+
+https://www.cbr.com/greatest-war-movies-ever-list/
+
+The War genre is packed with stunning films and movies like Black Hawk Down and Saving Private Ryan are among the greatest of all time.
+---------
+
+# Steam Users Can Claim Free Horror Game Until May 7
+
+Games, Steam
+
+Fri, 01 May 2026 21:28:10 GMT
+
+https://www.cbr.com/steam-free-game-may-7-overcome-your-fears-caretaker/
+
+Halfway to Halloween, Steam gamers can claim an atmospheric horror game for free.
+---------
+
+# Terminator 2 Returns to Theaters for Its 35th Anniversary
+
+Movies, Terminator 2: Judgment Day, Terminator, Sci-Fi
+
+Fri, 01 May 2026 21:20:10 GMT
+
+https://www.cbr.com/terminator-2-judgment-day-35th-anniversary-theaters-return/
+
+James Cameron's sci-fi action classic Terminator 2: Judgment Day is returning to theaters.
+---------
+
+# 10 Anime Fandoms That Are Actually Incredibly Wholesome
+
+Anime, Shojo, Fruits Basket
+
+Fri, 01 May 2026 21:15:14 GMT
+
+https://www.cbr.com/most-wholesome-anime-fandoms-of-all-time/
+
+Anime fandoms get a bad reputation, but some series and movies naturally build communities that are just downright wholesome.
+---------
+
+# One of the Most Successful British Detective Sagas of All Time Is Officially Taking Over America
+
+TV News, Death In Paradise, Death in Paradise, Britbox, BBC
+
+Fri, 01 May 2026 22:00:15 GMT
+
+https://collider.com/british-detective-mystery-series-death-in-paradise-streaming-success-prime-video-may-2026/
+
+The BBC's Death in Paradise is experiencing a resurgence on streaming charts amid Season 15's run in the U.S. Here's all to know.
+---------
+
+# 10 Non-Hitchcock Thrillers That Alfred Hitchcock Would Be Proud Of
+
+Movie, Alfred Hitchcock
+
+Fri, 01 May 2026 22:00:15 GMT
+
+https://collider.com/thrillers-alfred-hitchcock-would-be-proud-of/
+
+Master of Suspense Alfred Hitchcock would be proud of excellent thrillers like Blue Velvet, Memento, and The Silence of the Lambs.
+---------
+
+# 3 Near-Perfect Prime Video Movies to Watch This Weekend
+
+Movie, Prime Video, Ford v Ferrari, Migration, Funny Pages
+
+Fri, 01 May 2026 21:48:13 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-may-1/
+
+Ford v Ferrari, Funny Pages, and Migration make up our list of the best Prime Video movies to watch the weekend of May 1, 2026.
+---------
+
+# Netflix Officially Finds Its Next No. 1 Streaming Hit, and It's the Perfect 'Handmaid's Tale' Replacement
+
+TV News, Unchosen, Running Point, Netflix, Streaming
+
+Fri, 01 May 2026 21:45:15 GMT
+
+https://collider.com/netflix-handmaids-tale-replacement-unchosen-running-point-streaming-rivalry-may-2026/
+
+The new Netflix series The Unchosen is fighting Running Point for the American streaming crown. Find out more here.
+---------
+
+# Forget ‘Bridgerton,’ This 91% RT Fantasy Romance Is a Free Streaming Obsession 28 Years Later
+
+Movie News, Ever After, Fantasy, Tubi, Drew Barrymore
+
+Fri, 01 May 2026 21:30:15 GMT
+
+https://collider.com/drew-barrymore-fantasy-romance-ever-after-a-cinderella-story-streaming-success-tubi-may-2026/
+
+Ever After: A Cinderella Story, starring Drew Barrymore, is a free streaming hit in America. Find out more here.
+---------
+
+# Prime Video’s 2-Part Fantasy Adventure From a Horror Legend Is the Best Binge on the Platform
+
+TV Features, Sam Raimi, Legend of the Seeker, Fantasy, ABC
+
+Fri, 01 May 2026 21:25:13 GMT
+
+https://collider.com/prime-video-legend-of-the-seeker-sam-raimi-fantasy-series/
+
+Legend of the Seeker is now streaming on Prime Video, with all 2 seasons and 44 episodes of the Sam Raimi-produced fantasy series available now.
+---------
+
+# 'Andor's Diego Luna Officially Joins Disney's Next Live-Action Remake
+
+Movie News, Tangled, Diego Luna, Kathryn Hahn, Disney
+
+Fri, 01 May 2026 21:23:31 GMT
+
+https://collider.com/disney-tangled-live-action-remake-cast-andor-star-diego-luna-original-role/
+
+Star Wars icon Diego Luna, the man behind Cassian Andor, has officially been cast in Disney's live-action Tangled remake.
+---------
+
+# Before Netflix's ‘Scooby-Doo’ Reboot, Mckenna Grace's Twisty Mystery Thriller Is Taking Over Prime Video
+
+Movie News, Prime Video, What We Hide, Mckenna Grace, Jesse Williams
+
+Fri, 01 May 2026 21:15:14 GMT
+
+https://collider.com/mckenna-grace-mystery-thriller-what-we-hide-streaming-success-prime-video-may-2026/
+
+Scream 7 star Mckenna Grace's underrated 2025 thriller, What We Hide, is a hit on Prime Video. Find out more here.
+---------
+
+# 'Hokum' Director Confirms the Adam Scott Movie's Original "Bleak" Ending
+
+Movie News, Hokum, Adam Scott
+
+Fri, 01 May 2026 22:00:20 GMT
+
+https://movieweb.com/hokum-original-ending-adam-scott-interview/
+
+Damian McCarthy had a challenging time developing a script that was so heavy.
+---------
+
+# 'Star Wars': The 10 Strongest Lightsaber Fighters, Ranked
+
+Features, Star Wars
+
+Fri, 01 May 2026 22:00:20 GMT
+
+https://movieweb.com/star-wars-strongest-lightsaber-fighters/
+
+Lightsaber battles are one of the biggest cornerstones of the 'Star Wars' franchise, but not every character is best with a laser sword in their hand.
+---------
+
+# Netflix's 'Narnia: The Magician's Nephew' From Greta Gerwig Lands New 2027 Release Date
+
+Movie News, Narnia: The Magician's Nephew, Greta Gerwig, Netflix
+
+Fri, 01 May 2026 21:13:31 GMT
+
+https://movieweb.com/netflix-narnia-new-release-date/
+
+The highly anticipated fantasy adaptation is being pushed back from its initial November 2026 release.
+---------
+
 # Saros: Best Armor Matrix Upgrades To Grab First
 
 Gaming, Saros, PC
