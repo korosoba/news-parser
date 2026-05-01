@@ -1,3 +1,311 @@
+# Born Again Season 3’s New Set Photo Has A Brilliant Daredevil Easter Egg 99% Of Fans Missed
+
+Comics, Daredevil: Born Again, Daredevil, Marvel, Marvel Cinematic Universe
+
+Fri, 01 May 2026 23:00:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-easter-egg-foggy/
+
+Daredevil: Born Again's production is fairly illuminating regarding what Season 3 may entail, and a possible Easter egg may have spoiled this reveal.
+---------
+
+# Apple TV's The Stormlight Archive Is Coming To Show The Rings Of Power How It's Done
+
+Streaming TV, The Stormlight Archive, The Lord of the Rings: The Rings of Power
+
+Fri, 01 May 2026 23:00:20 GMT
+
+https://screenrant.com/apple-tv-stormlight-archive-tv-show-beat-rings-of-power/
+
+It's finally Apple TV's turn to give us an epic high fantasy series, and it's already set up to be something in another league from Rings of Power.
+---------
+
+# Every K-Drama Coming to Netflix, Viki, and More in May 2026
+
+Anime, Netflix
+
+Fri, 01 May 2026 23:00:20 GMT
+
+https://screenrant.com/every-k-drama-netflix-viki-kocowa-may-2026/
+
+May 2026's K-drama lineup is an impressive spread with comedy, fantasy, and healing dramas appropriately highlighting the Spring 2026 season.
+---------
+
+# Star Wars: Knights Of The Old Republic Fans Lose It Over New Teaser
+
+Gaming, Star Wars, Triple-A Games
+
+Fri, 01 May 2026 23:00:20 GMT
+
+https://screenrant.com/star-wars-knights-of-old-republic-teaser-may-2026/
+
+It's been five years since the Knights of the Old Republic remake was announced, and we still haven't gotten much in the way of info.
+---------
+
+# 10 Calvin & Hobbes Comics That Hit Different As An Adult
+
+Comics, Calvin and Hobbes
+
+Fri, 01 May 2026 22:31:19 GMT
+
+https://screenrant.com/calvin-hobbes-best-comics-for-adults/
+
+Calvin & Hobbes comics for grown ups.
+---------
+
+# All Magic: The Gathering Cards That Debuted At MagicCon Las Vegas
+
+Gaming, Magic: The Gathering, Triple-A Games
+
+Fri, 01 May 2026 22:30:20 GMT
+
+https://screenrant.com/magic-con-las-vegas-panel-all-cards/
+
+MagicCon: Las Vegas is running from May 1-3 weekend, and Wizards has given us a ton of reveals for multiple sets, including The Hobbit.
+---------
+
+# True Detective Meets Sharp Objects In HBO's Returning 7-Part Crime Thriller
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 22:30:20 GMT
+
+https://screenrant.com/mare-of-easttown-hbo-true-detective-meets-sharp-objects-thriller/
+
+An acclaimed seven-episode crime thriller series on HBO Max that is a combination of Sharp Objects and True Detective is coming back for season 2.
+---------
+
+# Tangled Live-Action Remake Officially Sets First Original Role
+
+Movies, Tangled, Disney, Diego Luna
+
+Fri, 01 May 2026 22:17:53 GMT
+
+https://screenrant.com/tangled-diego-luna-joins-disneys-live-action-remake/
+
+Diego Luna joins the cast of Disney's Tangled live-action remake in an original role, alongside Teagan Croft as Rapunzel and Milo Manheim as Flynn Rider. Filming set to start in Spain in June.
+---------
+
+# Why Rookie Villain Monica Stevens Was Killed Off After 4 Seasons
+
+TV, The Rookie, Bridget Regan
+
+Fri, 01 May 2026 22:16:11 GMT
+
+https://screenrant.com/the-rookie-season-8-monica-death-explained-alexi-hawley/
+
+After four seasons, The Rookie's villain Monica Stevens meets her demise. Showrunner Alexi Hawley explains why now was the right time for Monica's powerful ending.
+---------
+
+# Ryan Reynolds' Wrexham AFC Journey: From Docuseries To Premier League?
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 22:15:18 GMT
+
+https://screenrant.com/ryan-reynolds-welcome-to-wrexham-ted-lasso-replacement/
+
+Some true stories are even more incredible than fiction, and that's definitely the case with Ryan Reynolds and Rob Mac's feel-good docuseries.
+---------
+
+# 10 Must-Watch Anime That Have Zero Bad Arcs
+
+Anime
+
+Fri, 01 May 2026 23:00:13 GMT
+
+https://www.cbr.com/best-anime-perfect-no-bad-arcs-list/
+
+There aren't many perfect anime, but series like Fullmetal Alchemist: Brotherhood come close to being flawless.
+---------
+
+# The Mandalorian Blows up on Streaming 3 Weeks Before New Movie
+
+Movies, Star Wars, The Mandalorian, Sci-Fi
+
+Fri, 01 May 2026 23:00:13 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-streaming-success-disney-plus-sci-fi-may-2026/
+
+An acclaimed sci-fi series starring Timothy Olyphant is rising on the streaming charts ahead of its upcoming movie continuation.
+---------
+
+# 8 Reasons It's Tough to Watch Tombstone Today
+
+Movies, Tombstone, Western, kurt russell
+
+Fri, 01 May 2026 23:00:13 GMT
+
+https://www.cbr.com/reasons-tough-to-watch-tombstone-list/
+
+Tombstone has endured as a Western masterpiece for an impressive thirty-three years, but fresh eyes in 2026 can tarnish the viewing experience.
+---------
+
+# Resident Evil Reboot Director Reveals Trailer Easter Egg
+
+Movies, Resident Evil
+
+Fri, 01 May 2026 22:40:09 GMT
+
+https://www.cbr.com/resident-evil-reboot-trailer-easter-egg/
+
+Fans missed a fun Easter egg in the Resident Evil reboot trailer that pays homage to the video games.
+---------
+
+# MTG's Reality Fracture Features New "What If" Versions Of Iconic Characters
+
+Games, Magic: The Gathering
+
+Fri, 01 May 2026 22:35:13 GMT
+
+https://www.cbr.com/magic-the-gathering-reality-fracture-alternative-universe-set/
+
+Wizards of the Coast has revealed details about the upcoming Reality Fracture set, featuring alternate-universe versions of iconic characters.
+---------
+
+# There's 1 Near-Perfect Pokémon Game That Everyone Forgot About
+
+Games, Pokemon, Nintendo, Nintendo Wii, Video Games
+
+Fri, 01 May 2026 22:15:12 GMT
+
+https://www.cbr.com/pokemon-battle-revolution-wii/
+
+Pokémon has such a rich history of incredible games, but fans often forget the franchise's wider foray into genres outside of the RPG line.
+---------
+
+# 10 Thrillers That Keep You Guessing From Start to Finish
+
+Movie, Thriller, Sound of My Voice, The Game, Memento
+
+Fri, 01 May 2026 23:06:13 GMT
+
+https://collider.com/thriller-movies-keep-you-guessing-start-to-finish/
+
+From the sci-fi puzzle that is Coherence to the psychological maze of Memento, these enigmatic thriller masterpieces thrive on confusing the audience.
+---------
+
+# Star Wars Meets 'Firefly' in Sci-Fi Smash-Hit That Refuses to Die on Streaming
+
+Movie News, Guardians of the Galaxy, James Gunn, Star Wars, Firefly
+
+Fri, 01 May 2026 23:00:14 GMT
+
+https://collider.com/guardians-of-the-galaxy-star-wars-meets-firefly-superhero-blockbuster-streaming-success-disney-plus-may-2026/
+
+Director James Gunn's original Guardians of the Galaxy movie is staging a streaming comeback, more than a decade after its theatrical release.
+---------
+
+# 10 Worst Movie Sequels With Terrible Writing
+
+Movie, S. Darko, Caddyshack II, Jaws: The Revenge, Son of the Mask
+
+Fri, 01 May 2026 22:49:13 GMT
+
+https://collider.com/worst-movie-sequels-terrible-writing/
+
+From Jaws: The Revenge to Son of the Mask, these are sequels where terrible writing crushed iconic originals and lost their core magic.
+---------
+
+# The $50M Sci-Fi Horror Hit That Earned 16x Its Budget Hits Major Streaming Roadblock
+
+Movie News, Iron Lung, Horror, YouTube, Sci-Fi
+
+Fri, 01 May 2026 22:46:13 GMT
+
+https://collider.com/markiplier-sci-fi-horror-movie-iron-lung-youtube-release-issue/
+
+Markiplier's indie horror film Iron Lung became a box office hit, but now faces obstacles in releasing the movie on YouTube.
+---------
+
+# 10 Crime Shows That Are Even Better the Second Time Around
+
+TV, Crime, Breaking Bad, Mindhunter, The Sinner
+
+Fri, 01 May 2026 22:44:12 GMT
+
+https://collider.com/best-crime-shows-to-rewatch/
+
+Experience the full potential of these crime shows by watching them twice and uncovering new layers, from Breaking Bad to Mindhunter.
+---------
+
+# Netflix's New 6-Part Cult Thriller Is Officially a Perfect Weekend Binge
+
+TV News, Unchosen, Netflix, Thriller, Asa Butterfield
+
+Fri, 01 May 2026 22:30:14 GMT
+
+https://collider.com/netflix-cult-thriller-unchosen-streaming-success-may-2026/
+
+Netflix's new six-episode cult thriller has become the most-streamed TV series on the platform, with 10.4 million views in its first week.
+---------
+
+# Forget 'Michael,' These 10 Biopics Are Actually Good Movies
+
+Movie, Michael, The Doors, What's Love Got to Do with It?, Amadeus
+
+Fri, 01 May 2026 22:19:13 GMT
+
+https://collider.com/forget-michael-these-10-biopics-are-actually-good-movies/
+
+Michael is a certified box-office smash, but biopics like Amadeus, Rocketman, and Sid & Nancy are far superior movies.
+---------
+
+# Tom Hardy's $856M Sci-Fi Hit Officially Hits Paramount+ After Making 8x Its Budget
+
+Movie News, Tom Hardy, Venom, Paramount Plus, Sci-Fi
+
+Fri, 01 May 2026 22:16:12 GMT
+
+https://collider.com/tom-hardy-sci-fi-movie-venom-streaming-paramount-plus-may-2026/
+
+Tom Hardy's $856M sci-fi blockbuster that sparked a major franchise is moving to a new platform, giving the film a fresh streaming runway.
+---------
+
+# The 10 Greatest American Sitcom Casts of All Time, Ranked
+
+TV Lists
+
+Fri, 01 May 2026 23:00:18 GMT
+
+https://movieweb.com/greatest-american-sitcom-casts/
+
+The US has introduced loads of incredible sitcom casts to the world, but only a select few are widely considered the best of the best.
+---------
+
+# 'Avengers: Secret Wars' Secures IMAX Release
+
+Movie News, Avengers: Secret Wars, Avengers: Doomsday, MCU, IMAX
+
+Fri, 01 May 2026 22:53:27 GMT
+
+https://movieweb.com/avengers-secret-wars-imax-release/
+
+While 'Avengers: Doomsday' will not have IMAX screens, 'Avengers: Secret Wars' won the IMAX screens over 'The Lord of the Rings: The Hunt for Gollum."
+---------
+
+# Every New Movie and TV Show Coming to Netflix in May 2026
+
+Features, Netflix
+
+Fri, 01 May 2026 22:30:19 GMT
+
+https://movieweb.com/netflix-new-movie-tv-may-2026/
+
+Crime thriller TV, an Oscar-worthy new film, and plenty of new and returning series highlight May 2026 on Netflix.
+---------
+
+# The Academy Introduces New Oscar Rules for Actor & International Feature Categories
+
+Movie News, Oscars, The Oscars
+
+Fri, 01 May 2026 22:18:24 GMT
+
+https://movieweb.com/oscars-rule-changes-2026/
+
+The Academy revealed new rules for the Oscars, adjusting metrics for the Actor and International Feature categories
+---------
+
 # Tears Of The Azure Sea's End Credits Scene Makes It An Instant Must Watch For Every Slime Fan
 
 Anime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, That Time I Got Reincarnated as a Slime, Isekai
