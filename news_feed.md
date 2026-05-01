@@ -1,3 +1,223 @@
+# The Greatest Space Movie Of The 21st Century Officially Returns To Global Success
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 14:34:10 GMT
+
+https://screenrant.com/interstellar-movie-streaming-success-apple-charts-rank/
+
+More than a decade after its release, a space adventure film hailed as one of the best of the 21st century is a hit with worldwide audiences.
+---------
+
+# 3 Best Movies To Watch On Peacock This Weekend (May 2-3)
+
+Movies, Peacock, Recommendation
+
+Fri, 01 May 2026 14:30:20 GMT
+
+https://screenrant.com/best-peacock-movies-watch-weekend-may-2/
+
+With a blockbuster musical, a hit video game movie, and an understated drama, this weekend's Peacock picks are the best films on the platform.
+---------
+
+# Netflix's Ambitious Sci-Fi Horror Set On A Space Station Has One Of Its Best Casts
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 14:30:20 GMT
+
+https://screenrant.com/the-cloverfield-paradox-netflix-impressive-cast/
+
+Netflix is home to a sci-fi horror movie with one of the best casts in the genre, and it left its mark through its ambitious release strategy.
+---------
+
+# IMAX Shades Disney's Infinity Vision Plans After Avengers: Doomsday Loses Premium Screens To Dune 3
+
+Movies
+
+Fri, 01 May 2026 14:23:31 GMT
+
+https://screenrant.com/disney-infinity-vision-avengers-doomsday-imax-response/
+
+Disney is launching a new premium large format with the release of Avengers: Doomsday, and now a top IMAX is breaking her silence on the matter.
+---------
+
+# Steam Machine Leak Points To Impending Release Date
+
+Gaming, Steam, Triple-A Games
+
+Fri, 01 May 2026 14:20:13 GMT
+
+https://screenrant.com/steam-machine-release-date-leak-valve-consoles/
+
+Valve has kept their plans for the Steam Machine close to their chest, but a new leak points at an impending date and price announcement.
+---------
+
+# Netflix's 8-Part Thriller Is One Of The Weirdest Shows You'll Ever Watch
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 14:15:19 GMT
+
+https://screenrant.com/wayward-netflix-thriller-unsettling-weirdest-watch-this-year/
+
+Netflix's Wayward is a psychological thriller that takes weirdness to new heights, all while exploring impactful lessons and themes.
+---------
+
+# Animal Crossing Is Back In August With Official 2026 Release
+
+Gaming, Animal Crossing, PC
+
+Fri, 01 May 2026 14:13:10 GMT
+
+https://screenrant.com/animal-crossing-lego-set-timmy-tommy-august-2026/
+
+Animal Crossing is making an official return in summer 2026 with a brand-new release, and fans will want to mark their calendars for August.
+---------
+
+# David Hasselhoff’s 4-Part Action Series Getting New Release Ahead Of Movie Adaptation
+
+Movies, Knight Rider, David Hasselhoff
+
+Fri, 01 May 2026 14:08:35 GMT
+
+https://screenrant.com/david-hasselhoff-knight-rider-declassified-trailer-release-info/
+
+One of David Hasselhoff's most iconic action shows is officially getting a new release ahead of the movie adaptation that will bring it back to life.
+---------
+
+# All Ditto Disguises In Pokémon GO (May 2026)
+
+Gaming, Pokemon GO, Pokemon, Mobile, Live Service Games
+
+Fri, 01 May 2026 14:00:19 GMT
+
+https://screenrant.com/pokemon-go-all-ditto-disguises-may-2026/
+
+After celebration events have ended, Ditto has returned to their usual disguises for May 2026, possibly throwing off players who are new to the game.
+---------
+
+# Witch Hat Atelier Officially Makes Up For Modern Anime's Biggest Failure
+
+Anime, Frieren: Beyond Journey's End, Witch Hat Atelier, Crunchyroll, Op-Ed
+
+Fri, 01 May 2026 14:00:19 GMT
+
+https://screenrant.com/witch-hat-atelier-zom-100-disappointment-fix/
+
+How Witch Hat fixes a major anime mistake.
+---------
+
+# 5 Perfect Fantasy TV Pilots That Are 10/10
+
+TV, Fantasy, Twin Peaks, Lost, The Walking Dead, Supernatural, Game Of Thrones
+
+Fri, 01 May 2026 14:30:13 GMT
+
+https://www.cbr.com/perfect-fantasy-tv-pilots-list/
+
+Fantasy shows have to do a lot of work to sell the show to audiences in their pilot episodes, and these series definitely hit the ground running.
+---------
+
+# 7 Near-Perfect 2020s Anime Series No One Talks About
+
+Anime, Deca-Dence, MF Ghost, Undead Murder Farce, shonen anime, Isekai
+
+Fri, 01 May 2026 14:15:12 GMT
+
+https://www.cbr.com/near-perfect-forgotten-2020s-anime-series/
+
+The 2020s have introduced countless unforgettable anime, but there are other exceptional modern classics that have flown under the radar.
+---------
+
+# Star Trek Has Officially Locked in a Canon-Level Kirk & Spock Update
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Original Series
+
+Fri, 01 May 2026 14:15:12 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-kirk-spock-canon-update/
+
+Their shared history with La'an Noonien Singh in Strange New Worlds can recontextualize how fans see Kirk and Spock in TOS.
+---------
+
+# Frieren: Beyond Journey's End Officially Returns With New RPG Crossover Ahead of Season 3
+
+Anime, Frieren: Beyond Journey's End
+
+Fri, 01 May 2026 14:00:13 GMT
+
+https://www.cbr.com/frieren-puzzle-dragons-collaboration-reveal-announcement/
+
+Lightning has struck twice for Frieren fans as the anime returns with a second major RPG crossover event dropping exactly the same date as the first.
+---------
+
+# The Most Important Dragon Ball Characters, Ranked
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Fri, 01 May 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-most-important-characters-ranked/
+
+There are hundreds of great Dragon Ball characters, but some are naturally more important to the Shonen anime than others.
+---------
+
+# Paul McCartney Pays Tribute to The Beatles With Upcoming Ringo Starr Duet
+
+Music Features, Paul McCartney, Ringo Starr, The Beatles, Music, Rock
+
+Fri, 01 May 2026 14:28:23 GMT
+
+https://collider.com/paul-mccartney-tribute-the-beatles-ringo-starr-duet/
+
+Paul McCartney takes with his new album The Boys of Dungeon Lane, featuring a rare duet with Ringo Starr that pays tribute to their Liverpool roots and early days with The Beatles.
+---------
+
+# Andy Serkis Pitches Himself for Voldemort Role in HBO 'Harry Potter' Reboot
+
+TV News, Harry Potter, Andy Serkis
+
+Fri, 01 May 2026 14:16:58 GMT
+
+https://movieweb.com/andy-serkis-voldemort-harry-potter/
+
+Andy Serkis threw his name into the ring to play Voldemort in HBO Max's 'Harry Potter' reboot.
+---------
+
+# 'For All Mankind' Season 5's AI Storyline Further Proves the Show Can't Ever Become Outdated
+
+Features, For All Mankind
+
+Fri, 01 May 2026 14:00:18 GMT
+
+https://movieweb.com/for-all-mankind-mars-automation-twist/
+
+Sci-fi shows often make predictions about the future that ultimately turn out to be inaccurate. 'For all Mankind' just proved itself immune to that.
+---------
+
+# 'One Battle After Another' To Stream on Prime Video Beginning May 23
+
+Movie News, One Battle After Another, Coming/Leaving Streaming, Action
+
+Fri, 01 May 2026 14:00:18 GMT
+
+https://movieweb.com/one-battle-after-another-streaming-prime-video-may-2026/
+
+Paul Thomas Anderson's award-winning action thriller will officially leave the confines of HBO Max later this month.
+---------
+
+# Goldie Hawn Explains Her 6-Year Acting Hiatus
+
+Movie News, Goldie Hawn, The Christmas Chronicles 2
+
+Fri, 01 May 2026 13:33:40 GMT
+
+https://movieweb.com/goldie-hawn-acting-hiatus-reason/
+
+Goldie Hawn says she’s open to acting again after six years away, but only if the material is funny, interesting, and a better fit.
+---------
+
 # Netflix's Record-Breaking Shark Horror Movie Gets Massive Sequel Update
 
 Movies, Under Paris, Netflix
