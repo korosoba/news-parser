@@ -1,3 +1,267 @@
+# Saros: Best Armor Matrix Upgrades To Grab First
+
+Gaming, Saros, PC
+
+Fri, 01 May 2026 21:09:54 GMT
+
+https://screenrant.com/saros-best-early-armor-matrix-upgrades/
+
+Armor Matrix upgrades are absolutely essential to your success in Saros and facing the Eclipse, and it may be overwhelming to know what to prioritize.
+---------
+
+# Kevin Bacon's New Series Based On Award-Winning Comic Series Officially Adds Stranger Things Star
+
+TV, Kevin Bacon, Stranger Things, Cara Buono
+
+Fri, 01 May 2026 21:04:46 GMT
+
+https://screenrant.com/kevin-bacon-southern-bastards-show-cara-buono-casting/
+
+Four months after Stranger Things ended, one of the stars of the hit Netflix series is heading to Hulu for Kevin Bacon’s upcoming series.
+---------
+
+# SyFy's 4-Part Sci-Fi Series That's Designed To Be Binged Deserves Its Near-Perfect RT Score
+
+Classic TV, Masked Recs, SyFy, Sci-Fi
+
+Fri, 01 May 2026 21:02:19 GMT
+
+https://screenrant.com/resident-alien-syfy-show-near-perfect-rt-score-binge/
+
+What makes this quirky tale of an outsider arriving in a remote town one of SyFy's best ever TV shows isn't just the concept, it's the execution.
+---------
+
+# Star Wars: Battlefront 3 Step Aside, Star Wars: Battleground Has Landed
+
+Gaming, Star Wars Battlefront 2 (2017), Triple-A Games, PC
+
+Fri, 01 May 2026 21:00:20 GMT
+
+https://screenrant.com/star-wars-battlefront-3-battleground-fortnite/
+
+May the fourth is nearly here, with a few new experiences standing out among the countless events celebrating the sci-fi franchise.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (May 2-3)
+
+Movies, HBO Max, Recommendation
+
+Fri, 01 May 2026 21:00:20 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-may-2/
+
+Cancel your weekend plans because HBO Max has served up a host of excellent films, including a divisive period piece starring Margot Robbie.
+---------
+
+# 8 Bingeworthy TV Shows That Reward Fans Who Pay Close Attention
+
+TV, The Wire, BoJack Horseman
+
+Fri, 01 May 2026 21:00:20 GMT
+
+https://screenrant.com/best-tv-shows-demand-attention-mad-men-wire-sopranos/
+
+Shows that demand your attention.
+---------
+
+# Hokum: Director Damian McCarthy's Scary New Horror Movie Starring Adam Scott
+
+Movies, Hokum
+
+Fri, 01 May 2026 21:00:20 GMT
+
+https://screenrant.com/severance-adam-scott-hokum-mystery-thriller-movie/
+
+Adam Scott has followed up the dystopian mysteries of Severance with the psychological horrors of Hokum, which you can see in theaters now.
+---------
+
+# Man On Fire Season 2 Chances Addressed By Star Of Netflix's Gritty Denzel Washington Remake
+
+TV, Man on Fire, Yahya Abdul-Mateen II, Netflix
+
+Fri, 01 May 2026 20:51:58 GMT
+
+https://screenrant.com/man-on-fire-netflix-season-2-chances-yahya-abdul-mateen-ii/
+
+EXCLUSIVE: Yahya Abdul-Mateen II, who stars in Netflix’s new gritty Man on Fire remake, opens up about a potential second season of the thriller.
+---------
+
+# Paramount’s Surprise New World War Z Movie Announcement Gets First Response From Original Star
+
+Movies, World War Z 2, World War Z, Horror, Paramount Pictures
+
+Fri, 01 May 2026 20:51:34 GMT
+
+https://screenrant.com/paramount-new-world-war-z-movie-mireille-enos-response/
+
+Exclusive: One of the stars of the original World War Z is weighing in on Paramount's recent new movie announcement and the chances of returning.
+---------
+
+# Paramount+’s Top Shows This Weekend (May 1–3) Are Quietly Taking Over – What To Watch Right Now
+
+Streaming TV, What to Watch on Paramount+, Paramount Plus
+
+Fri, 01 May 2026 20:48:20 GMT
+
+https://screenrant.com/paramount-plus-top-shows-weekend-watch-right-now/
+
+Discover the top trending Paramount+ original series to watch this weekend, including Ghosts, Marshals, and Survivor as they quietly take over charts.
+---------
+
+# RJ Decker Is Officially 1 of the Most-Watched Shows in the U.S.
+
+TV, RJ Decker
+
+Fri, 01 May 2026 21:00:13 GMT
+
+https://www.cbr.com/abc-rj-decker-most-watched-streaming/
+
+Even with an uncertain future, the ABC series gets a huge bump on streaming.
+---------
+
+# 10 Dystopian Books That Are As Good As Animal Farm
+
+Movies
+
+Fri, 01 May 2026 21:00:13 GMT
+
+https://www.cbr.com/dystopian-books-like-animal-farm-list-ranked/
+
+A new adaptation of George Orwell's Animal Farm is now playing in theaters. These dystopian books are all perfect reads after the movie.
+---------
+
+# Robert Kirkman Sparks Debate Over Spider-Man’s Most Divisive Movie
+
+Comics, The Amazing Spider-Man 2, Spider-Man, robert kirkman
+
+Fri, 01 May 2026 21:00:13 GMT
+
+https://www.cbr.com/robert-kirkman-just-insulted-spider-mans-most-divisive-movie/
+
+Invincible and The Walking Dead creator Robert Kirkman unloads on the most divisive Spider-Man film, and fans are equally divided on his take.
+---------
+
+# Netflix Dates Greta Gerwig's Narnia Reboot for 2027 IMAX Release
+
+Movies, Narnia: The Magician's Nephew, Netflix, The Chronicles of Narnia
+
+Fri, 01 May 2026 20:37:45 GMT
+
+https://www.cbr.com/narnia-reboot-netflix-great-gerwig-imax-2027/
+
+Narnia: The Magician's Nephew, the new film from Barbie director Greta Gerwig, will open in IMAX theaters ahead of its Netflix debut.
+---------
+
+# Only 3 Space Movies Are More Epic Than Project Hail Mary
+
+Movies, Project Hail Mary, Sci-Fi, Dune 2
+
+Fri, 01 May 2026 20:30:13 GMT
+
+https://www.cbr.com/space-movies-better-than-project-hail-mary/
+
+The success of Project Hail Mary reminds audiences that the epic side of sci-fi is alive and well, but these three movies pull it off even better.
+---------
+
+# Naruto Characters Who Would Survive The Culling Game in Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, Naruto
+
+Fri, 01 May 2026 20:15:14 GMT
+
+https://www.cbr.com/naruto-characters-the-culling-game-jujutsu-kaisen/
+
+These fighters from Naruto have what it takes to make it through the brutal survival contest that is the Culling Game.
+---------
+
+# Netflix Officially Says Goodbye to the Greatest Fantasy Movies of All Time
+
+Movie Features, How to Train Your Dragon, How to Train Your Dragon 2, Netflix, DreamWorks Animation
+
+Fri, 01 May 2026 21:05:12 GMT
+
+https://collider.com/how-to-train-your-dragon-movies-leaving-netflix-may-1/
+
+The first two How To Train Your Dragon films launched a fantasy franchise, but they're set to fly off Netflix's roster.
+---------
+
+# 'Your Friends & Neighbors' Amanda Peet Reveals One Surprising Detail From Mel's Big Fight With Sam
+
+TV, Amanda Peet, Your Friends and Neighbors, Crime, Apple TV
+
+Fri, 01 May 2026 21:04:13 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-apple-tv-amanda-peet-mel-sam-fight/
+
+Your Friends & Neighbors' Amanda Peet also breaks down Mel's lack of control in Season 2 and teases what's ahead in the Apple TV hit.
+---------
+
+# Mark Ruffalo's Crime Thriller Officially Surges on Streaming After Making 4x Its Budget
+
+Movie News, Mark Ruffalo, Now You See Me, Peacock, Jesse Eisenberg
+
+Fri, 01 May 2026 21:00:13 GMT
+
+https://collider.com/mark-ruffalo-crime-thriller-now-you-see-me-streaming-success-peacock-may-2026/
+
+Mark Ruffalo's controversial heist movie with Woody Harrelson, Now You See Me, is an unlikely late-night hit on streaming.
+---------
+
+# 8 Worst Remakes of Classic '70s Horror Movies, Ranked
+
+Movie, Horror, The Wicker Man, The Omen, The Stepford Wives
+
+Fri, 01 May 2026 20:50:14 GMT
+
+https://collider.com/worst-remakes-of-classic-70s-horror-movies/
+
+From Carrie to The Omen, these lousy horror remakes stripped away dread, meaning, and the raw psychological fear of ’70s classics.
+---------
+
+# Netflix Officially Confirms Greta Gerwig's Narnia Remake's Release Date
+
+Movie News, Greta Gerwig, Narnia: The Magician's Nephew, Netflix, IMAX
+
+Fri, 01 May 2026 20:30:58 GMT
+
+https://collider.com/netflix-greta-gerwig-the-chronicles-of-narnia-the-magicians-nephew-february-12-2027-theater-release-date-streaming-april-2/
+
+Netflix and Greta Gerwig's Narnia reboot will officially debut in IMAX theaters in February 2027, releasing months later on streaming.
+---------
+
+# Netflix’s Underrated Sci-Fi Series ‘Bodies’ Is a Perfect Weekend Binge-Watch
+
+Features, Bodies
+
+Fri, 01 May 2026 21:00:18 GMT
+
+https://movieweb.com/bodies-underrated-binge-watch/
+
+'Bodies' is a science-fiction miniseries on Netflix that stars Stephen Graham and premiered on the streaming service in 2023.
+---------
+
+# Every New Movie and TV Show Coming to Paramount+ in May 2026
+
+Features, Paramount Plus
+
+Fri, 01 May 2026 20:30:18 GMT
+
+https://movieweb.com/paramount-new-movies-tv-may-2026/
+
+New to streaming on Paramount+ for May 2026 is an acclaimed sci-fi franchise and a new Taylor Sheridan project.
+---------
+
+# 'Spider-Man: Brand New Day': Savage Hulk Revealed in New Funko Pop! Images
+
+Movie News, Spider-Man: Brand New Day, Hulk, MCU
+
+Fri, 01 May 2026 20:27:29 GMT
+
+https://movieweb.com/spider-man-brand-new-day-savage-hulk-funko/
+
+The latest line of Funko Pop! reveals that Mark Ruffalo's Bruce Banner will lose control of the Hulk persona in the new 'Spider-Man' film.
+---------
+
 # Xbox Makes All DLC Free For Major RPG, With A Catch
 
 Gaming, Xbox Series X/S, The Outer Worlds, Triple-A Games, PC
