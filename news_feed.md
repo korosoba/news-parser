@@ -1,3 +1,267 @@
+# Xbox Makes All DLC Free For Major RPG, With A Catch
+
+Gaming, Xbox Series X/S, The Outer Worlds, Triple-A Games, PC
+
+Fri, 01 May 2026 20:07:24 GMT
+
+https://screenrant.com/outer-worlds-spacers-choice-upgrade-free-dlc/
+
+Xbox will be giving away all the expansion DLC for one of its big first-party RPGs, but there are a couple of big caveats to the giveaway.
+---------
+
+# Netflix’s 10-Part Western Is ‘Virgin River Meets Yellowstone’ & It Returns This Summer
+
+TV, Virgin River, Yellowstone, Netflix, Masked Recs, Taylor Sheridan
+
+Fri, 01 May 2026 20:07:19 GMT
+
+https://screenrant.com/netflix-ransom-canyon-virgin-river-meets-yellowstone/
+
+One Netflix Western show is quietly becoming the next Yellowstone, blending the romance of Virgin River with the grit of Sheridan's franchise.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (#1 Is A New Intense Sci-Fi Thriller)
+
+Movies, Netflix, Recommendation
+
+Fri, 01 May 2026 20:01:58 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-may-2/
+
+Netflix's best movies to watch this weekend include a generational classic, an exciting new release, and Emma Stone's intense Sci-Fi thriller.
+---------
+
+# Disney Dreamlight Valley Free Download Officially Available To Claim Now
+
+Gaming, Disney Dreamlight Valley, Triple-A Games
+
+Fri, 01 May 2026 20:00:20 GMT
+
+https://screenrant.com/http/disney-dreamlight-valley-free-code-may-2026/
+
+We're coming up on nearly three years in operation, and Disney Dreamlight Valley is still going strong, releasing constant updates.
+---------
+
+# Viggo Mortensen's Gritty Post-Apocalyptic Thriller Based On Iconic Book Will Officially Stream Free
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 19:33:06 GMT
+
+https://screenrant.com/viggo-mortensen-the-road-movie-streaming-free-release-tubi/
+
+Viggo Mortensen's gritty post-apocalyptic thriller, based on an iconic book, is officially coming to streaming for free on a major platform.
+---------
+
+# One Piece's New Power System Isn't Just Haki's Opposite, It's Way Stronger
+
+Anime, One Piece, Dupes
+
+Fri, 01 May 2026 19:30:20 GMT
+
+https://screenrant.com/one-piece-imu-omen-power-system-stronger-haki/
+
+A shocking twist on One Piece's Haki power system, nearing the Elbaph arc's climax, threatens to crush the Straw Hats like never before.
+---------
+
+# Netflix’s New 7-Part Thriller Is The Perfect Reacher Replacement
+
+Streaming TV, Masked Recs, Reacher
+
+Fri, 01 May 2026 19:30:20 GMT
+
+https://screenrant.com/man-on-fire-reacher-replacement/
+
+Reacher season 4 still doesn't have a release date, but this 7-episode Netflix crime thriller is the perfect show to watch while waiting.
+---------
+
+# Kevin Costner's Yellowstone Exit Addressed In Dutton Ranch Teaser
+
+TV, Dutton Ranch, Kevin Costner, Yellowstone
+
+Fri, 01 May 2026 19:23:41 GMT
+
+https://screenrant.com/dutton-ranch-kevin-costner-exit-addressed-by-beth-and-rip/
+
+In a teaser for the Yellowstone spin-off, Beth Dutton and Rip Wheeler reflect on John Dutton's legacy, as fans remember Kevin Costner's exit from the series.
+---------
+
+# The Devil Wears Prada 2 Doesn't Have A Post-Credits Scene, But There's Another Reason To Stay
+
+New Movies, The Devil Wears Prada 2
+
+Fri, 01 May 2026 19:02:31 GMT
+
+https://screenrant.com/devil-wears-prada-2-post-credits-scene-song/
+
+The Devil Wears Prada 2 may be a franchise film, but it ignores Hollywood's post-credits scene and gives viewers another reason to watch the credits.
+---------
+
+# Why Andy Serkis' New Adaptation Of 81-Year-Old Dystopian Novel Changes The Dark OG Ending
+
+Movies, Animal Farm, Andy Serkis
+
+Fri, 01 May 2026 19:02:09 GMT
+
+https://screenrant.com/andy-serkis-animal-farm-movie-ending-book-changed-explained/
+
+EXCLUSIVE: Director Andy Serkis reveals why his adaptation of a classic 1945 dystopian novel has a markedly different ending than the book.
+---------
+
+# Sydney Sweeney's Biopic Christy Is a Steady HBO Max Hit in the U.S.
+
+Movies, Christy
+
+Fri, 01 May 2026 20:00:13 GMT
+
+https://www.cbr.com/sydney-sweeney-christy-biopic-hbo-max-success-may-2026/
+
+Sydney Sweeney is thriving on streaming platforms.
+---------
+
+# Dragon Ball Officially Brings Back 2 Saiyans With Their Own Fusion
+
+Anime, Dragon Ball, merchandise, namco bandai
+
+Fri, 01 May 2026 20:00:13 GMT
+
+https://www.cbr.com/dragon-ball-legends-giblet-shallot-bandai-release/
+
+Two of the most underrated Saiyans in the entire Dragon Ball franchise are finally available internationally as part of a fan-favorite figure line.
+---------
+
+# Final Fantasy 9 Officially Returns in New Prequel May 2026
+
+Games, Final Fantasy
+
+Fri, 01 May 2026 19:55:13 GMT
+
+https://www.cbr.com/final-fantasy-9-officially-returns-new-prequel-may-2026/
+
+26 years after the PS1 RPG's original release, Final Fantasy IX is receiving an official prequel.
+---------
+
+# DC Co-Head Appears to Shade Marvel Studios Ahead of Supergirl Release
+
+Movies, Supergirl, DCU, Marvel Cinematic Universe
+
+Fri, 01 May 2026 19:52:48 GMT
+
+https://www.cbr.com/dc-head-peter-safran-mediocre-movie-fatigue-marvel-supergirl/
+
+Comments by DC Studios co-head Peter Safran regarding "mediocre movie fatigue" feel like a wipe at Marvel Studios.
+---------
+
+# Star Wars Officially Giving Away Free Games for May 4
+
+Games, Star Wars
+
+Fri, 01 May 2026 19:37:59 GMT
+
+https://www.cbr.com/star-wars-free-games-fortnite-may-4-2026/
+
+Star Wars fans can celebrate May the Fourth with three games available to dive into for free.
+---------
+
+# Netflix’s Man on Fire Is Officially the No. 1 Series in the World
+
+Movies, Man on Fire, Netflix
+
+Fri, 01 May 2026 19:30:13 GMT
+
+https://www.cbr.com/man-on-fire-action-netflix-success-may-2026/
+
+After strong reviews, the new action series is a worldwide hit.
+---------
+
+# 10 Strongest Children in All of Shonen Anime
+
+Anime, Bleach, One Piece, Dragon Ball Z
+
+Fri, 01 May 2026 19:15:12 GMT
+
+https://www.cbr.com/strongest-children-in-shonen-anime/
+
+Children may not be as strong as adults in the real world, but they can destroy planets in Shonen anime.
+---------
+
+# 7 Best Anime Series Coming to Netflix and Crunchyroll in May
+
+TV, Anime, Netflix, Crunchyroll, Devil May Cry
+
+Fri, 01 May 2026 20:06:13 GMT
+
+https://collider.com/best-anime-series-netflix-crunchyroll-may-2026/
+
+New episodes of Dorohedoro and the debut of Devil May Cry Season 2 are among the most exciting releases coming to Netflix and Crunchyroll in May 2026.
+---------
+
+# ‘Ramayana’ Star Yash Opens Up About the ‘Huge Pressure’ of Appearing in This Global Epic
+
+Exclusives, Ramayana, Ranbir Kapoor, CinemaCon, Yash
+
+Fri, 01 May 2026 19:48:15 GMT
+
+https://collider.com/yash-ramayana-ravana-part-1-2-toxic-a-fairy-tale-interview/
+
+Yash discusses the pressure of bringing this Indian epic to the big screen, his preparation process, the visual spectacle, and Ravana's complexity.
+---------
+
+# Forget Star Wars, Rebecca Ferguson's 3-Part Fantasy Saga Is Conquering Streaming This Week
+
+Movie News, Dune, Rebecca Ferguson, Star Wars, The Lord of the Rings
+
+Fri, 01 May 2026 19:38:48 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-fantasy-star-wars-replacement-dune-streaming-success-prime-video-netflix-may-2026/
+
+Rebecca Ferguson's franchise-starting masterpiece, Dune, is surging on several streamers ahead of Part 3.
+---------
+
+# Lord of the Rings Legend Officially Reacts to Being Recast in New Movie
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Viggo Mortensen, Jamie Dornan, Andy Serkis
+
+Fri, 01 May 2026 19:35:50 GMT
+
+https://collider.com/lord-of-the-rings-the-hunt-for-gollum-aragorn-jamie-dornan-recasting-viggo-mortensen-response-andy-serkis/
+
+Andy Serkis has officially revealed Viggo Mortensen's response to Aragorn's recasting in the new Lord of the Rings movie.
+---------
+
+# 5 Sitcoms That Have Earned the Right to Run Forever
+
+TV, Sitcom, The Simpsons, Ted Lasso, Bob's Burgers
+
+Fri, 01 May 2026 19:08:13 GMT
+
+https://collider.com/long-sitcoms-can-run-forever/
+
+Explore the enduring charm of sitcoms that have become comfort watches that could keep running forever, from The Simpsons to Ted Lasso.
+---------
+
+# 10 Great TV Shows About Dysfunctional Families That Are 10/10, No Notes
+
+TV Lists, The Sopranos
+
+Fri, 01 May 2026 20:00:18 GMT
+
+https://movieweb.com/great-tv-shows-dysfunctional-families/
+
+These popular TV shows, from sitcoms to dramas, all tell interesting and memorable stories about family members who have trouble getting along.
+---------
+
+# James Gunn Reveals Why the DCU Was Not a Full Reboot
+
+Movie News, DCU, James Gunn, Peacemaker
+
+Fri, 01 May 2026 19:02:40 GMT
+
+https://movieweb.com/james-gunn-dcu-reboot-reason/
+
+James Gunn breaks down his motivation for keeping some elements of the DCEU, like 'Peacemaker' and 'The Suicide Squad' instead of doing a full reboot.
+---------
+
 # Skeletor's Epic Redesign Revealed Ahead Of New Masters of the Universe Series (Exclusive)
 
 Comics, Masters of the Universe
