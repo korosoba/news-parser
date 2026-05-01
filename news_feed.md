@@ -1,3 +1,245 @@
+# Skeletor's Epic Redesign Revealed Ahead Of New Masters of the Universe Series (Exclusive)
+
+Comics, Masters of the Universe
+
+Fri, 01 May 2026 19:00:20 GMT
+
+https://screenrant.com/skeletor-redesign-masters-of-the-universe-wings-of-fate/
+
+He's scary!
+---------
+
+# Marvel Tōkon Gamescom Latam Preview: A Masterclass In Fighting Games
+
+Gaming, Marvel, Triple-A Games, PC
+
+Fri, 01 May 2026 19:00:20 GMT
+
+https://screenrant.com/marvel-tokon-gamescom-latam-preview/
+
+Screen Rant had the opportunity to check out Marvel Tōkon: Fighting Souls, a new 4v4 tag-team fighting game, during Gamescom LATAM 2026.
+---------
+
+# Blade Runner 2099 Sci-Fi Series Delayed to 2027, Six Years After Announcement
+
+Streaming TV, Blade Runner 2099
+
+Fri, 01 May 2026 19:00:20 GMT
+
+https://screenrant.com/blade-runner-2099-most-exciting-sci-fi-shows-2027/
+
+Blade Runner 2099 is one of the most promising sci-fi shows on the docket, but its release has been pushed back to 2027, making the wait even longer.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (#1 Is A Sci-Fi Fantasy Global Smash Hit)
+
+Movies, Disney+, Recommendation
+
+Fri, 01 May 2026 18:53:14 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-may-2/
+
+Subscribers will find that the best movies on Disney+ to watch this weekend include a timely romance, a star-studded comedy, and a hit sci-fi fantasy.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Promises Exploration And Adventure
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 01 May 2026 18:30:20 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-new-planets/
+
+Seeking out new life and new civilizations is what Star Trek: Strange New Worlds will do again when the Starship Enterprise returns in season 4.
+---------
+
+# Pierce Brosnan Boxing Biopic Gets US Release Date
+
+Movies, Pierce Brosnan, Giant
+
+Fri, 01 May 2026 18:25:31 GMT
+
+https://screenrant.com/pierce-brosnan-giant-movie-release-date-united-states/
+
+Discover the untold story of boxing champion Prince Naseem Hamed in Pierce Brosnan's new biopic Giant, premiering in US theaters and on VOD May 22.
+---------
+
+# Prime Video's Most Epic Sci-Fi Series Was So Perfect, George R.R. Martin Said "Nothing Else Comes Close"
+
+TV, Game Of Thrones, George R.R. Martin, The Expanse
+
+Fri, 01 May 2026 18:00:20 GMT
+
+https://screenrant.com/the-expanse-george-rr-martin-praise/
+
+George R.R. Martin, the mastermind behind Game of Thrones, had high praise for Prime Video's epic sci-fi show, calling it 'the best space show on TV.
+---------
+
+# Disney's $326M Adaptation Of Bestselling Novel Sees Massive Streaming Resurgence At The Perfect Time
+
+Exclusive, The Devil Wears Prada, The Devil Wears Prada 2
+
+Fri, 01 May 2026 17:57:22 GMT
+
+https://screenrant.com/the-devil-wears-prada-streaming-success-justwatch/
+
+Exclusive: JustWatch reports that The Devil Wears Prada is skyrocketing on streaming platforms, highlighting theatrical and home release synergy.
+---------
+
+# Fallout Falls on Prime Video Streaming Charts In America
+
+TV, Fallout, Prime Video, Sci-Fi
+
+Fri, 01 May 2026 19:00:13 GMT
+
+https://www.cbr.com/fallout-sci-fi-falling-prime-video-may-2026/
+
+Fallout, the Prime Video series based on the post-apocalyptic video games, is slipping on the U.S. charts.
+---------
+
+# 66 Years Later, Twilight Zone's Creepiest Episode Remains the Best 25 Minutes in Sci-Fi History
+
+TV, The Twilight Zone, Sci-Fi, Horror
+
+Fri, 01 May 2026 19:00:13 GMT
+
+https://www.cbr.com/the-twilight-zone-creepiest-sci-fi-episode-eye-of-the-beholder/
+
+One of the creepiest episodes of classic sci-fi anthology series The Twilight Zone remains just as disturbing decades after its premiere.
+---------
+
+# 10 Superhero Team-Ups Avengers: Doomsday Must Include
+
+Movies, Marvel Cinematic Universe
+
+Fri, 01 May 2026 19:00:13 GMT
+
+https://www.cbr.com/avengers-doomsday-superhero-team-ups-list/
+
+Avengers: Doomsday is coming soon, and there are some superhero team-ups that fans desperately want to see.
+---------
+
+# Avengers: Secret Wars Will Play In IMAX Theaters
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe, superheroes
+
+Fri, 01 May 2026 18:57:52 GMT
+
+https://www.cbr.com/avengers-secret-wars-imax-theaters-screens/
+
+While Avengers: Doomsday will miss out on IMAX showings, its sequel, Avengers: Secret Wars, will not.
+---------
+
+# Stranger Things Star Officially Cast In Hulu's Southern Bastards
+
+TV, southern bastards, Hulu
+
+Fri, 01 May 2026 18:32:31 GMT
+
+https://www.cbr.com/hulu-southern-bastards-cara-buono/
+
+The cast of Hulu's upcoming Breaking Bad rival gets rounded out.
+---------
+
+# Transformers Brings Back the Junkions With a Massive New Army Builder Set
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys, action figures
+
+Fri, 01 May 2026 18:30:13 GMT
+
+https://www.cbr.com/transformers-junkion-set-newage-toys-action-figure-prototype/
+
+A new wave of six distinct Junkion action figures lets fans recreate the Planet of Junk A new battle sequence from 1986's The Transformers: The Movie.
+---------
+
+# The Official Darkest Manga of All Time
+
+Anime, Manga
+
+Fri, 01 May 2026 18:15:12 GMT
+
+https://www.cbr.com/official-darkest-manga-ever/
+
+Manga are capable of going into truly dark territory in ways that will haunt readers forever.
+---------
+
+# The Best Quotes from The Mummy (1999)
+
+Movies, The Mummy, Brendan Fraser, Adventure
+
+Fri, 01 May 2026 18:00:13 GMT
+
+https://www.cbr.com/the-mummy-1999-best-quotes-list/
+
+The Mummy (1999) is packed to the brim with quotes that have made their way into the pop culture lexicon. Let's take a look at ten of the best.
+---------
+
+# The Ultimate Ranking of Marvel’s 10 Best Multiverse Variants
+
+Comics, Marvel
+
+Fri, 01 May 2026 18:00:13 GMT
+
+https://www.cbr.com/best-marvel-multiverse-variants-ranked/
+
+Marvel Comics' universe is vast, but these are the very best variants that have taken over the pages of the comics.
+---------
+
+# The Academy Awards Officially Make 3 Historic Changes to the 2027 Oscars
+
+Movie News, The Oscars, Academy Awards, Academy of Motion Picture Arts and Sciences, One Battle After Another
+
+Fri, 01 May 2026 18:29:51 GMT
+
+https://collider.com/2027-academy-awards-rule-changes-best-actor-actress-international-film-categories-ai-crackdown/
+
+The Academy Awards are making major changes to the acting and Best International Film categories at the 2027 Oscars.
+---------
+
+# 'Hokum' Ending Explained: What Happens in the Hotel Basement
+
+Features, Hokum
+
+Fri, 01 May 2026 19:00:18 GMT
+
+https://movieweb.com/hokum-ending-explained/
+
+'Hokum' evolves into a shocking yet satisfying tale of supernatural vengeance as Damian McCarthy explores the pitfalls of guilt and self-forgiveness.
+---------
+
+# 'Walking Dead' And 'Invincible' Creator Robert Kirkman Slams The Amazing Spider-Man 2 As "A Mess"
+
+Movie News, Invincible, Robert Kirkman, Andrew Garfield, The Amazing Spider-Man 2, The Amazing Spider-Man, Spider-Man
+
+Fri, 01 May 2026 18:40:52 GMT
+
+https://movieweb.com/invincible-creator-andrew-garfield-spider-man/
+
+'Invincible' creator Robert Kirkman loves Andrew Garfield, but he's happy to call out "a mess" when he sees it.
+---------
+
+# Every New Movie and TV Show Coming to Prime Video in May 2026
+
+Features, Prime Video
+
+Fri, 01 May 2026 18:30:18 GMT
+
+https://movieweb.com/prime-vide-new-movies-tv-may-2026/
+
+Jack Ryan makes his triumphant return, and there is a new Spider-Man in town. Prime Video's May line-up delivers must-watch films and TV.
+---------
+
+# 'Monarch' Season 3: Everything We Know - Cast, Story, and Release Date
+
+Features, Monarch: Legacy of Monsters, Monsterverse, Godzilla, King Kong, Apple TV, Everything We Know
+
+Fri, 01 May 2026 18:00:18 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-season-3-everything-we-know/
+
+Everything we know about the cast, story, and release date for 'Monarch: Legacy of Monsters' Season 3.
+---------
+
 # 8 New Details About Spider-Man: Brand New Day Revealed This Week
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
