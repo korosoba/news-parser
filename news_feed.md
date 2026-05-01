@@ -1,3 +1,289 @@
+# Denzel Washington Vs. Yahya Abdul-Mateen II: Who Is Man On Fire's Better John Creasy?
+
+Streaming TV, Man on Fire
+
+Fri, 01 May 2026 15:45:20 GMT
+
+https://screenrant.com/man-on-fire-john-creasy-denzel-washington-yahya-abdul-mateen-comparison/
+
+Denzel Washington and Yahya Abdul-Mateen II both portray Creasy in versions of Man on Fire, but one actor barely edges out the other for who's best.
+---------
+
+# The Devil Wears Prada 2 Features A Major First For One Of Its Cast Members
+
+Movies, The Devil Wears Prada 2
+
+Fri, 01 May 2026 15:45:20 GMT
+
+https://screenrant.com/devil-wears-prada-2-cast-member/
+
+The Devil Wears Prada 2 is bringing back four prominent actors from the first film, and the sequel is a significant first for one cast member.
+---------
+
+# Star Wars' Best-Rated Disney Series Gets Season 2 Release Update
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Fri, 01 May 2026 15:30:36 GMT
+
+https://screenrant.com/maul-shadow-lord-season-2-disney-plus-release-update-sam-witwer/
+
+A cast member on the highest-rated Star Wars TV show of all time teases when viewers can expect to see the second season released on Disney+.
+---------
+
+# John Wick: Chapter 4's Cliffhanger Will Finally Be Resolved
+
+Movies, John Wick: Chapter 4
+
+Fri, 01 May 2026 15:30:20 GMT
+
+https://screenrant.com/john-wick-chapter-4-akira-cliffhanger-caine-spinoff/
+
+Donnie Yen's Caine spinoff has officially started filming, so Akira's cliffhanger ending from John Wick: Chapter 4 will finally be resolved.
+---------
+
+# MCU Star Slams Disney Layoffs After Marvel Creators Were Let Go
+
+Movies, Marvel
+
+Fri, 01 May 2026 15:29:10 GMT
+
+https://screenrant.com/disney-layoffs-marvel-mcu-evangeline-lilly-response/
+
+Disney is facing tough criticism as a Marvel star speaks out amid the growing concern surrounding layoffs in Marvel Studios and the MCU's future.
+---------
+
+# Xbox's New PC Era Begins With A Game-Changing Update
+
+Gaming, Xbox Series X/S, PC
+
+Fri, 01 May 2026 15:29:01 GMT
+
+https://screenrant.com/xbox-mode-windows-11-update/
+
+Xbox is introducing a fascinating new feature for PC players that seems like a relic from a bygone era — but that doesn’t mean it’s all bad.
+---------
+
+# Today Should've Been The Biggest Day For Marvel Fans In 7 Years
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Fri, 01 May 2026 15:20:20 GMT
+
+https://screenrant.com/avengers-doomsday-release-original-may-2026/
+
+Today was supposed to be a huge day for Marvel fans, as everyone would be watching one of the MCU's biggest releases ever in a different timeline.
+---------
+
+# The Pitt Hits #1 For The First Time With Another Billion+ Milestone As Season 2 Ends
+
+TV, The Pitt, The Pitt - Season 2, HBO Max
+
+Fri, 01 May 2026 15:17:55 GMT
+
+https://screenrant.com/the-pitt-season-2-nielsen-1-billion-minutes-streaming-milestone/
+
+The Pitt season 2 has reached a massive streaming milestone, as the hit medical drama is setting the stage for already renewed season 3.
+---------
+
+# Xbox Project Helix Official Reveal Has Gamers Divided
+
+Gaming, Xbox Series X/S, Triple-A Games, PC
+
+Fri, 01 May 2026 15:09:45 GMT
+
+https://screenrant.com/xbox-project-helix-official-reveal-gamer-reactions/
+
+Xbox isn't shy about showing off its next-generation console, but its potential audience is split on whether Project Helix will turn things around.
+---------
+
+# Sharp Objects Meets Big Little Lies In Apple TV's Trending 8-Part Psychological Thriller Adaptation
+
+Streaming TV, Masked Recs, Apple TV, Thriller
+
+Fri, 01 May 2026 15:02:57 GMT
+
+https://screenrant.com/imperfect-women-apple-tv-psychological-thriller-adaptation/
+
+Despite mixed critical reviews, audiences have embraced Apple TV's latest emotionally charged thiller miniseries, and it's easy to see why.
+---------
+
+# Official Star Wars Rogue One Prequel Reveals a Secret Andor Mission
+
+Comics, Star Wars
+
+Fri, 01 May 2026 15:37:36 GMT
+
+https://www.cbr.com/official-star-wars-rogue-one-prequel-secret-andor-mission/
+
+In a CBR exclusive preview of next week's Star Wars: Rogue One - Cassian Andor #1, see Andor's final mission before Rogue One
+---------
+
+# Marvel Reshaped Its Cosmos 50 Years Ago With the Eternals
+
+Comics, Eternals, CSBG, look back
+
+Fri, 01 May 2026 15:22:08 GMT
+
+https://www.cbr.com/marvel-eternals-debut-changec-cosmos/
+
+A look back to 1976 for the debut of the Eternals, Jack Kirby's iconic creations who changed the Marvel Universe forever
+---------
+
+# 10 Greatest High Fantasy Anime of All Time, Ranked
+
+Anime, Fantasy, Frieren: Beyond Journey's End, Claymore, Berserk
+
+Fri, 01 May 2026 15:15:13 GMT
+
+https://www.cbr.com/best-high-fantasy-anime-all-time-ranked/
+
+Some of the best high fantasy anime of all time feature unforgettable worldbuilding, mythical creatures, epic battles, magical quests and more.
+---------
+
+# Star Wars: Maul -- Shadow Lord Sets Up a Perfect Sith Prequel Series
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi
+
+Fri, 01 May 2026 15:10:12 GMT
+
+https://www.cbr.com/star-wars-darth-maul-shadow-lord-sidious-sith-prequel/
+
+The latest episodes of Star Wars: Maul -- Shadow Lord just set up the perfect prequel series about two iconic Sith Lords.
+---------
+
+# Prime Video's The House of the Spirits Reboot Is an Instant Streaming Hit After Strong Reviews
+
+TV, Prime Video, The House of the Spirits
+
+Fri, 01 May 2026 15:00:13 GMT
+
+https://www.cbr.com/the-house-of-the-spirits-reboot-prime-video-success-may-2026/
+
+The new reboot boasts best scores than the original.
+---------
+
+# 10 Classic PS1 Games That Aren't As Good As You Remember
+
+Games, PlayStation (Original), Video Games
+
+Fri, 01 May 2026 15:00:13 GMT
+
+https://www.cbr.com/classic-ps1-games-overrated/
+
+PS1 classics like Final Fantasy VII and Grand Theft Auto have seen better days.
+---------
+
+# 'MobLand' Star Officially Joins Harlan Coben's Next Big Netflix Thriller
+
+TV News, Harlan Coben, Netflix, Fool Me Once, Mystery
+
+Fri, 01 May 2026 15:50:13 GMT
+
+https://collider.com/harlan-coben-the-woods-netflix-thriller-adaptation-cast-tom-bateman-mandeep-dhillon-pearce-quigley-rade-sherbedgia/
+
+Harlan Coben is officially reuniting with Netflix for his next project, The Woods, starring Tom Bateman and Mandeep Dhillon.
+---------
+
+# HBO Max's Most-Watched Series of 2026 Just Broke Another Streaming Record
+
+TV News, The Pitt, Noah Wyle, Shawn Hatosy, HBO Max
+
+Fri, 01 May 2026 15:40:14 GMT
+
+https://collider.com/hbo-max-most-popular-2026-show-the-pitt-season-2-nielsen-streaming-record-1-billion-minutes-viewed/
+
+HBO Max's most popular series of 2026, The Pitt, has spent eight weeks atop Nielsen charts with over one billion minutes viewed each week.
+---------
+
+# 'Minority Report' Meets 'The Fugitive' in Rebecca Ferguson's World-Dominating Sci-Fi Thriller
+
+Movie News, Mercy, Minority Report, The Fugitive, Sci-Fi
+
+Fri, 01 May 2026 15:31:14 GMT
+
+https://collider.com/sci-fi-action-mercy-rebecca-ferguson-prime-video-streaming-success/
+
+After a mixed reception in theaters, the sci-fi thriller Mercy, starring Chris Pratt and Rebecca Ferguson, has become a top performer on Prime Video.
+---------
+
+# 'Ted Lasso' Meets 'The Hangover' in Prime Video's #1 Comedy Taking Over The World
+
+Movie News, Ted Lasso, Balls Up, Prime Video, The Hangover
+
+Fri, 01 May 2026 15:05:13 GMT
+
+https://collider.com/balls-up-prime-video-streaming-success-mark-wahlberg-may-2026/
+
+The football farce Balls Up, starring Mark Wahlberg and Paul Walter Hauser, has climbed to the top of Prime Video's global movie chart.
+---------
+
+# Ethan Hawke’s Thriller Hit Officially Releases on Netflix After Making 4x Its Budget
+
+Movie News, The Black Phone, Black Phone 2, Netflix, Ethan Hawke
+
+Fri, 01 May 2026 14:55:14 GMT
+
+https://collider.com/black-phone-2-netflix-release-date-streaming-ethan-hawke/
+
+Ethan Hawke stars in Black Phone 2, a horror sequel that earned over $132 million on a $30 million budget before premiering on Netflix.
+---------
+
+# Netflix’s New 3-Part True Crime Series Is Officially the No. 1 Show in America
+
+TV News, Netflix, Reality, Crime, Thriller
+
+Fri, 01 May 2026 14:44:58 GMT
+
+https://collider.com/netflix-number-1-true-crime-series-should-i-marry-a-murderer-streaming-success-may-2026/
+
+Netflix's gripping 3-part true crime series following a forensic pathologist's engagement to a man accused of murder is the top show in America.
+---------
+
+# James Cameron's 'Terminator 2: Judgment Day' Returns to Theaters for 35th Anniversary
+
+Movie News, Terminator 2: Judgment Day, James Cameron, Arnold Schwarzenegger, Linda Hamilton
+
+Fri, 01 May 2026 15:24:47 GMT
+
+https://movieweb.com/terminator-2-judgment-day-35th-anniversary-theaters/
+
+James Cameron's 'Terminator 2: Judgment Day' is heading back to theaters this May.
+---------
+
+# 'Michael' Star Nia Long Reportedly Fighting Lionsgate Over Contract Clause
+
+Movie News, Michael, michael jackson, Nia Long
+
+Fri, 01 May 2026 15:10:52 GMT
+
+https://movieweb.com/michael-nia-long-contract-dispute/
+
+Nia Long, who plays Katherine Jackson in the Michael Jackson biopic 'Michael,' is reportedly in a contract dispute with Lionsgate over her salary.
+---------
+
+# TV Shows With Intricate Plots Like Prison Break
+
+TV Lists, Prison Break
+
+Fri, 01 May 2026 15:00:18 GMT
+
+https://movieweb.com/best-tv-shows-like-prison-break/
+
+These TV shows are in the same vein as Prison Break, shows that combine intricate plots, an atmosphere of suspense, and unique action.
+---------
+
+# Antony Starr Teases 'The Boys' Finale, Addresses Fan Concerns
+
+TV News, The Boys, Antony Starr
+
+Fri, 01 May 2026 14:46:09 GMT
+
+https://movieweb.com/antony-starr-the-boys-finale-fan-concerns/
+
+Antony Starr says The Boys' finale won’t play it safe, addressing fan fears over divisive TV endings and warning that no one is guaranteed to survive.
+---------
+
 # The Greatest Space Movie Of The 21st Century Officially Returns To Global Success
 
 Movies, Masked Recs
