@@ -1,3 +1,245 @@
+# Fallout's Official June Return Is For Hardcore Fans
+
+Gaming, Fallout, Fallout 4
+
+Sat, 02 May 2026 17:00:20 GMT
+
+https://screenrant.com/fallout-june-return-official-pipboy-release/
+
+Fallout is officially getting an exciting brand-new release this summer, and it's a must-have for any hardcore fans of the franchise.
+---------
+
+# The Time-Traveling Oner That Made Sinners a Modern Classic
+
+Movies, Sinners
+
+Sat, 02 May 2026 17:00:20 GMT
+
+https://screenrant.com/sinners-movie-time-travel-scene-gets-better/
+
+One year later, Sinners' greatest sequence is no less impressive. The "I Lied to You" surreal montage has already earned a place in film history.
+---------
+
+# Original Thor Director Proposes Thor 5 With Logan-Esque Storyline For Chris Hemsworth's Iconic Marvel Role
+
+Movies, Thor 5, Marvel Cinematic Universe, Thor
+
+Sat, 02 May 2026 16:58:51 GMT
+
+https://screenrant.com/thor-5-logan-storyline-pitch-kenneth-branagh/
+
+Kenneth Branagh pitches the perfect storyline for Thor 5 by using inspiration from Hugh Jackman's most critically acclaimed Marvel superhero movie.
+---------
+
+# The Only Video Game Movie More Perfect For Keanu Reeves Than Sonic Is On Its Way
+
+Movies, Keanu Reeves, Metal Gear Solid
+
+Sat, 02 May 2026 16:55:20 GMT
+
+https://screenrant.com/keanu-reeves-metal-gear-solid-movie-casting-perfect/
+
+Keanu Reeves' talents and film history means there's one video game movie adaptation that would be truly perfect for the actor going forward.
+---------
+
+# Nia DaCosta Is One Of The Best Directors Working Right Now Despite Some Box Office Flops
+
+Movies, Op-Ed, 28 Years Later: The Bone Temple, Candyman, The Marvels
+
+Sat, 02 May 2026 16:40:20 GMT
+
+https://screenrant.com/nia-dacosta-great-director-despite-box-office-bombs/
+
+Nia DaCosta has had a few movies that famously struggled commercially but each of her films is high quality, proving that she's a fantastic director.
+---------
+
+# Star Trek: Strange New Worlds Will Outdo Season 2's Weakest Episode In Season 4 Premiere
+
+TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 02 May 2026 16:30:20 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-worst-episode-do-over/
+
+Star Trek: Strange New Worlds season 4 has a Captain Pike-led away mission that already looks better than the last time these crew mates teamed up.
+---------
+
+# Pokémon Fans Can Explore Hoenn And Sinnoh In One Massive Game Now
+
+Gaming, Pokemon
+
+Sat, 02 May 2026 16:30:20 GMT
+
+https://screenrant.com/pokemon-hoenn-sinnoh-one-game-hyper-emerald/
+
+Discover an expanded Pokémon world with Pokémon Hyper Emerald, a fan-made ROM hack that brings Hoenn and Sinnoh regions together.
+---------
+
+# 10 Best Emma Stone Movies, Ranked (#1 Is Still Basically Perfect)
+
+Movies, Emma Stone, Ranking
+
+Sat, 02 May 2026 16:20:19 GMT
+
+https://screenrant.com/emma-stone-best-movies-ranked/
+
+Emma Stone is one of the best actors in Hollywood today and her greatest films prove that, from Oscar winners to rom-coms to musicals and more.
+---------
+
+# Netflix’s Wildly Popular Zombie-Horror Masterpiece Is About To Get Even Better
+
+Streaming TV, Masked Recs
+
+Sat, 02 May 2026 16:15:19 GMT
+
+https://screenrant.com/all-of-us-are-dead-netflix-season-2-even-better/
+
+Netflix rewrote the rules of zombie horror television with this 2022 release, but its highly-anticipated return is set to up the ante even further.
+---------
+
+# Michael Star Battles Studio Over Pay & Contract Dispute For Michael Jackson Movie
+
+Movies, Michael
+
+Sat, 02 May 2026 16:13:43 GMT
+
+https://screenrant.com/michael-movie-nia-long-contract-fight-lionsgate/
+
+A new report claims that one star of the new Michael Jackson movie is threatening legal action over a salary dispute tied to her contract.
+---------
+
+# Gilmore Girls Original Star Gives the Most Practical Answer About Rory's Best Boyfriend Debate
+
+TV, Gilmore Girls
+
+Sat, 02 May 2026 16:56:26 GMT
+
+https://www.cbr.com/gilmore-girls-scott-patterson-rory-best-boyfriend-debate/
+
+The long-running debate has received the most objective answer so far.
+---------
+
+# The One Ring Officially Returns to Magic: The Gathering in 2026
+
+Games, Magic: The Gathering, The Hobbit, The Lord of the Rings
+
+Sat, 02 May 2026 16:55:13 GMT
+
+https://www.cbr.com/mtg-hobbit-set-new-the-one-ring/
+
+Magic: The Gathering's set based on The Hobbit is adding a brand new version of The One Ring, following its debut in the Lord of the Rings set.
+---------
+
+# 10 Best TV Show Endings of All Time (That Everyone Should Watch)
+
+TV, Breaking Bad, The Fresh Prince of Bel-Air, The Wire
+
+Sat, 02 May 2026 16:30:12 GMT
+
+https://www.cbr.com/best-tv-show-endings-everyone-should-watch-list/
+
+These TV shows delivered unforgettable finales, ending their stories with grace, impact, and lasting emotional resonance that still holds up today.
+---------
+
+# CBS Makes Last-Minute Change to Jensen Ackles' Tracker Return
+
+TV, Tracker
+
+Sat, 02 May 2026 16:19:22 GMT
+
+https://www.cbr.com/cbs-jensen-ackles-tracker-season-3-return/
+
+Jensen Ackles was already confirmed to return in the Tracker Season 3 finale.
+---------
+
+# 7 '90s Anime That Are Perfect from Start to Finish
+
+Anime, Serial Experiments Lain, Neon Genesis Evangelion, Mobile Suit Gundam
+
+Sat, 02 May 2026 16:15:12 GMT
+
+https://www.cbr.com/90s-anime-that-are-perfect-from-start-to-finish/
+
+Shonen anime represent some of the medium's most popular titles and the '90s has its share of truly perfect series that never drop the ball.
+---------
+
+# This 10-Part WWII Miniseries on HBO Is Still One of the Best Ever Made
+
+TV Features, The Pacific, HBO, Band of Brothers, World War II
+
+Sat, 02 May 2026 17:07:12 GMT
+
+https://collider.com/best-ever-made-world-war-ii-miniseries-the-pacific-hbo/
+
+As one of the best WWII series ever made, HBO’s The Pacific continues to stand out thanks to its historical accuracy and engaging storytelling.
+---------
+
+# Christopher Nolan’s Breakout Revenge Thriller That Grossed 4x Its Budget Is Leaving HBO Max
+
+Movie News, Memento, Christopher Nolan, Guy Pearce, Carrie-Anne Moss
+
+Sat, 02 May 2026 17:00:14 GMT
+
+https://collider.com/memento-christopher-nolan-breakout-revenge-thriller-leaving-hbo-max-june-2026/
+
+Christopher Nolan's career-launching thriller, Memento, is leaving its streaming home soon. Find out how long you have left to watch it.
+---------
+
+# 10 Forgotten Meryl Streep Movies That Are Perfect From Start to Finish
+
+Movie, Meryl Streep, The Devil Wears Prada 2, It's Complicated, The River Wild
+
+Sat, 02 May 2026 16:53:13 GMT
+
+https://collider.com/forgotten-meryl-streep-movies-perfect-start-to-finish/
+
+Meryl Streep has such an expansive filmography that it's easy to forget movies like It's Complicated, The River Wild, and August: Osage County.
+---------
+
+# 10 Most Perfect Sci-Fi Movies of the Last 5 Years, Ranked
+
+Movie, Science Fiction, Dune: Part Two, Godzilla Minus One, Project Hail Mary
+
+Sat, 02 May 2026 16:36:12 GMT
+
+https://collider.com/most-perfect-sci-fi-movies-last-5-years-ranked/
+
+Spin-offs like Furiosa and masterful sequels like Dune: Part Two are among the rare sci-fi movies of the last five years that are genuinely faultless.
+---------
+
+# 8 Years Later, Marvel's Funniest Moment Still Belongs to Mark Ruffalo
+
+Movie Features, MCU, Mark Ruffalo, Avengers: Infinity War
+
+Sat, 02 May 2026 16:18:13 GMT
+
+https://collider.com/mcu-funniest-moment-avengers-infinity-war-bruce-banner-hulk-buster-armor-fall/
+
+To this day, it's still Bruce Banner's faceplant while wearing the Hulk-Buster armor in Infinty War that gives the MCU its single funniest gag.
+---------
+
+# 26 Shows on Netflix That Couples Can Binge-Watch Together
+
+TV Lists, Netflix
+
+Sat, 02 May 2026 17:00:19 GMT
+
+https://movieweb.com/netflix-shows-couples-watch-together/
+
+"Netflix and chill" is in the past. It's time for couples to "Netflix and binge-watch" these great shows together.
+---------
+
+# Every Guy Ritchie Gangster Movie, Ranked
+
+Movie Lists, Guy Ritchie
+
+Sat, 02 May 2026 17:00:18 GMT
+
+https://movieweb.com/guy-ritchie-gangster-movies-ranked/
+
+From 'Snatch' to 'Revolver' and everything in between, Guy Ritchie's best gangster movies helped reinvent the genre
+---------
+
 # Lady Gaga's Cameo In The Devil Wears Prada 2 Explained By Director
 
 Movies, The Devil Wears Prada 2, Lady Gaga
