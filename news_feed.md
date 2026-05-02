@@ -1,3 +1,245 @@
+# Batman: Arkham Knight Next-Gen Upgrade Unites Gamers
+
+Gaming, Batman: Arkham, Triple-A Games
+
+Sat, 02 May 2026 00:00:21 GMT
+
+https://screenrant.com/batman-arkham-knight-next-gen-upgrade-speculation/
+
+The Batman: Arkham series is currently up in the air following the recent live service launch debacle, but fans are excited for a next-gen upgrade.
+---------
+
+# 5 Reasons Why Reviews For The Sheep Detectives Are So Wildly Positive
+
+Movies, The Sheep Detectives
+
+Sat, 02 May 2026 00:00:21 GMT
+
+https://screenrant.com/why-the-sheep-detectives-movie-positive-reviews/
+
+Hugh Jackman’s upcoming sheep-centric whodunit has received early critical praise for its unique plot, teeming with humor, heart, and mystery.
+---------
+
+# 10 Greatest Double Duty Hosts On Saturday Night Live
+
+Network TV, Saturday Night Live
+
+Sat, 02 May 2026 00:00:21 GMT
+
+https://screenrant.com/saturday-night-live-best-double-duty-hosts/
+
+To do both comedy and music in the same show is a big ask for any performer, but these 10 SNL hosts proved they deserved the double billing.
+---------
+
+# Brilliant Minds' Fate Finally Decided By NBC
+
+TV, Brilliant Minds
+
+Fri, 01 May 2026 23:40:24 GMT
+
+https://screenrant.com/brilliant-minds-fate-nbc-cancelled/
+
+The NBC medical drama Brilliant Minds' fate has finally been decided by the network after its performance.
+---------
+
+# The Animatrix: Expanding The Matrix Universe with Anime
+
+Movies, Masked Recs
+
+Fri, 01 May 2026 23:39:20 GMT
+
+https://screenrant.com/the-animatrix-movie-matrix-spinoff-makes-franchise-better/
+
+Keanu Reeves briefly reprised his role as Neo in The Animatrix, but the real fun of this animated spinoff is the way it expands the Matrix universe.
+---------
+
+# 1 Year Later, Disney+'s 8-Part Sci-Fi Series That You Can Binge In 4 Hours Is Still One Of Its Best
+
+Streaming TV, Masked Recs
+
+Fri, 01 May 2026 23:32:16 GMT
+
+https://screenrant.com/skeleton-crew-disney-plus-star-wars-forgotten-show/
+
+Discover Disney+'s best-kept sci-fi secret: Star Wars: Skeleton Crew, an 8-part series perfect for binge-watching in just 4 hours. Accessible for all ages, this underrated show offers adventure, humor, and a fresh take on the Star Wars universe.
+---------
+
+# Netflix's Latest Stranger Things Replacement Reboots A 57-Year-Old Franchise
+
+TV, Stranger Things, Netflix, Scooby-Doo, Stranger Things: Tales from '85
+
+Fri, 01 May 2026 23:30:20 GMT
+
+https://screenrant.com/netflix-scooby-doo-reboot-stranger-things-replacement/
+
+Netflix's latest attempt to replace Stranger Things is a live-action reboot of a classic cartoon franchise, and this risky approach could be perfect.
+---------
+
+# HBO's 10/10 Fantasy Series Succeeds In Its Hardest Task
+
+TV, HBO Max, House of the Dragon, Game of Thrones, Quiz CV
+
+Fri, 01 May 2026 23:26:55 GMT
+
+https://screenrant.com/hbo-house-of-the-dragon-game-of-thrones-ending-success/
+
+HBO's star-studded, 18-part fantasy series is one of the streamer's biggest releases, and the show succeeds in the hardest task it had to face.
+---------
+
+# Jensen Ackles & Jared Padalecki's The Boys Reunion Needed One More Thing To Be Perfect
+
+Streaming TV, The Boys, Supernatural
+
+Fri, 01 May 2026 23:15:19 GMT
+
+https://screenrant.com/the-boys-jensen-ackles-jared-padalecki-reunion-near-perfect/
+
+The Boys season 5, episode 5 featured a Supernatural reunion between Jensen Ackles and Jared Padalecki, but one thing was missing from it.
+---------
+
+# Jennifer Lopez's Hustlers is a Forgotten 'Goodfellas' Clone
+
+Movies, Hustlers, Goodfellas
+
+Sat, 02 May 2026 00:00:12 GMT
+
+https://www.cbr.com/jennifer-lopez-hustlers-goodfellas-comparison/
+
+Jennifer Lopez has never been better, or braver, than she is in this crime dramedy in the vein of 'Goodfellas.'
+---------
+
+# 10 Anime That Ended Their Stories Perfectly
+
+Anime, shonen anime, Samurai Champloo, Fullmetal Alchemist: Brotherhood
+
+Fri, 01 May 2026 23:45:13 GMT
+
+https://www.cbr.com/anime-perfect-story-ending/
+
+Anime that take great care to end their stories on a solid note stand heads above the competition.
+---------
+
+# Castlevania's Most Popular Character Was Inspired By a Classic Anime
+
+Games, Castlevania, Castlevania: Symphony of the Night, Vampire Hunter D
+
+Fri, 01 May 2026 23:30:13 GMT
+
+https://www.cbr.com/castlevania-inspired-by-anime-vampire-hunter-d/
+
+One of the best Castlevania games took inspiration from a surprising source.
+---------
+
+# Newtokki, Manatokki and Booktokki Shut Down as Major Manga and Webtoon Sites Go Dark
+
+Anime, Manga, webtoons, piracy, digital piracy
+
+Fri, 01 May 2026 23:26:33 GMT
+
+https://www.cbr.com/newtokki-manatokki-booktokki-shutdown/
+
+All three of the websites shut down just days before a major copyright law came into effect.
+---------
+
+# Star Trek Has Officially Replaced Captains Kirk & Picard
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 01 May 2026 23:15:13 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-captain-pike-replaced-kirk-picard/
+
+Captains Kirk and Picard are arguably the most famous captains in Star Trek, but it seems like someone else may replace them.
+---------
+
+# Naruto’s Most Iconic Villains Proved How Easily He Could Have Broken
+
+Anime, Naruto, Naruto: Shippuden
+
+Fri, 01 May 2026 23:15:13 GMT
+
+https://www.cbr.com/iconic-naruto-villains-proved-how-easily-he-could-have-broken/
+
+Naruto's greatest antagonists showed how easily the story could have taken a darker turn for the boy at the center of the story.
+---------
+
+# 8 Mystery Shows That Are Even Better the Second Time Around
+
+TV, Mystery, From, Gravity Falls, Twin Peaks
+
+Sat, 02 May 2026 00:02:13 GMT
+
+https://collider.com/best-mystery-shows-to-rewatch/
+
+From the animated cult classic Gravity Falls to Showtime's horror thriller Yellowjackets, these mystery TV shows are even better on second viewing.
+---------
+
+# Dwayne Johnson's $474M Box Office Smash Officially Returns to Free Streaming
+
+Movie News, San Andreas, Dwayne Johnson, Tubi, Science Fiction
+
+Sat, 02 May 2026 00:00:13 GMT
+
+https://collider.com/dwayne-johnson-disaster-movie-san-andreas-streaming-free-tubi-may-2026/
+
+Dwayne Johnson's 2015 disaster thriller San Andreas, which grossed over $474 million worldwide, is now available to stream for free on Tubi.
+---------
+
+# ‘Daredevil: Born Again’s Original Ending Would’ve Completely Ruined This Polarizing Character
+
+TV Features, Daredevil: Born Again, Michael Gandolfini, MCU, Disney+
+
+Fri, 01 May 2026 23:52:13 GMT
+
+https://collider.com/daredevil-born-again-season-2-episode-5-original-ending-different-daniel-death/
+
+Daniel Blake’s shocking death in Daredevil: Born Again, Season 2, was decided late into production, making his tragic arc hit even harder.
+---------
+
+# 3 Binge-Worthy Prime Video Shows To Watch This Weekend
+
+TV, Prime Video, Wilderness, The House of the Spirits, Blue Bloods
+
+Fri, 01 May 2026 23:43:13 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-may-1/
+
+The House of the Spirits, Blue Bloods, Wilderness, and more make up our list of the best Prime Video shows to watch the weekend of May 1, 2026.
+---------
+
+# Apple TV's Hit Sci-Fi Epic Officially Recasts Major Characters in New Spin-Off Series
+
+TV News, For All Mankind, Star City, Sci-Fi, Apple TV
+
+Fri, 01 May 2026 23:30:13 GMT
+
+https://collider.com/apple-tv-sci-fi-series-for-all-mankind-spin-off-star-city-recast-characters-explained/
+
+Co-creator of Apple TV's alt-history sci-fi series explains why they had to recast some characters in the new spin-off. Get all the details here.
+---------
+
+# 'The Devil Wears Prada 2’ Ending, Explained
+
+Features, The Devil Wears Prada 2
+
+Fri, 01 May 2026 23:59:23 GMT
+
+https://movieweb.com/the-devil-wears-prada-2-ending-explained/
+
+'The Devil Wears Prada 2' is the highly anticipated sequel to the 2006 movie starring Meryl Streep, Anne Hathaway, Stanley Tucci, and Emily Blunt.
+---------
+
+# First Reviews for Michael B. Jordan's 'Swapped' Are Not Kind
+
+Movie News, Michael B. Jordan, Swapped
+
+Fri, 01 May 2026 23:51:33 GMT
+
+https://movieweb.com/swapped-reviews-michael-b-jordan/
+
+Critics haven't fully been won over by Netflix's animated family film 'Swapped.'
+---------
+
 # Born Again Season 3’s New Set Photo Has A Brilliant Daredevil Easter Egg 99% Of Fans Missed
 
 Comics, Daredevil: Born Again, Daredevil, Marvel, Marvel Cinematic Universe
