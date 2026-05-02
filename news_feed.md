@@ -1,3 +1,135 @@
+# Pokémon Light Platinum Will Keep You Busy Till Winds & Waves
+
+Gaming, Pokemon
+
+Sat, 02 May 2026 10:00:20 GMT
+
+https://screenrant.com/pokemon-light-platinum-ds-rom-hack/
+
+Discover Pokémon Light Platinum DS: Chapter 1, a free, expanded reimagining of the original GBA ROM hack .
+---------
+
+# George R.R. Martin Recommends Canceled Fantasy Series My Lady Jane
+
+TV, My Lady Jane, George R.R. Martin, Prime Video
+
+Sat, 02 May 2026 10:30:26 GMT
+
+https://www.cbr.com/prime-video-my-lady-jane-george-rr-martin-praise/
+
+George R.R. Martin praised Prime Video's canceled fantasy series My Lady Jane, calling for its revival despite low viewership.
+---------
+
+# 5 Stephen King Books Better Than IT
+
+TV, Stephen King, It, Horror
+
+Sat, 02 May 2026 10:00:13 GMT
+
+https://www.cbr.com/stephen-king-books-better-than-it-list/
+
+Stephen King's IT is certainly the most popular of his adaptations, but as far as the books go, it's a far cry from being the Horror Master's best.
+---------
+
+# 10 Longest Superhero Movies Of All Time
+
+Movies, DCU, Marvel Cinematic Universe
+
+Sat, 02 May 2026 10:00:13 GMT
+
+https://www.cbr.com/longest-superhero-movies-of-all-time-list/
+
+Superhero movies didn't used ot be synonymous wiht long runtimes, but nowadays some of the best or worst can have fans seated for over 2 hours.
+---------
+
+# This ’90s Horror Gem Is Back and Taking Over Free Streaming 28 Years Later
+
+Movie News, Sci-Fi, The Faculty, Elijah Wood, Josh Hartnett
+
+Sat, 02 May 2026 10:30:29 GMT
+
+https://collider.com/1990s-horror-movie-the-faculty-streaming-free-pluto-may-2026/
+
+The Faculty, Robert Rodriguez's '90s cult classic with an A-list cast, is now streaming for free. Find out where to watch the sci-fi horror.
+---------
+
+# 8 Biggest New Movies Coming to Streaming in May 2026
+
+Movie, Netflix, HBO Max, Prime Video, Streaming
+
+Sat, 02 May 2026 10:05:14 GMT
+
+https://collider.com/streaming-movies-may-2026-biggest/
+
+Wuthering Heights, Swapped, Greenland 2: Migration, Remarkably Bright Creatures, and more make our list of the biggest movies streaming in May 2026.
+---------
+
+# The Best Free 88-Minute Watch Right Now Is a John Carpenter-Inspired Neo-Western Thriller
+
+Movie Features, Jericho Ridge, Nikki Amuka-Bird, Western, Thriller
+
+Sat, 02 May 2026 10:03:13 GMT
+
+https://collider.com/john-carpenter-inspired-western-thriller-jericho-ridge-movie-streaming-free/
+
+Jericho Ridge is a gripping neo-Western thriller that's the perfect watch for fans of John Carpenter's Assault on Precinct 13.
+---------
+
+# 10 Apple TV Shows That Will Keep You Hooked From Start to Finish
+
+TV, Apple TV, Ted Lasso, Pluribus, Severance
+
+Sat, 02 May 2026 10:02:14 GMT
+
+https://collider.com/apple-tv-shows-keep-you-hooked-start-to-finish/
+
+Binge-watch these top Apple TV series that offer compelling narratives, ensuring you're invested until the very end, from Severance to Silo.
+---------
+
+# 'Olympus Has Fallen' Star’s Unhinged Sci-Fi Disaster Movie Is Leaving Paramount+
+
+Movie News, Aaron Eckhart, The Core, Hilary Swank, Sci-Fi
+
+Sat, 02 May 2026 10:00:13 GMT
+
+https://collider.com/aaron-eckhart-sci-fi-disaster-movie-the-core-leaving-paramount-plus-june-2026/
+
+The Dark Knight star Aaron Eckhart's Armageddon dupe, The Core, is leaving its streaming home soon. Find out when.
+---------
+
+# 'Hokum' Director Reveals Chilling New Details That Completely Transform That Ending
+
+Exclusives, Hokum, Adam Scott, Oddity, Neon
+
+Sat, 02 May 2026 10:00:13 GMT
+
+https://collider.com/hokum-ending-explained-adam-scott-damian-mccarthy/
+
+Adam Scott and Damian McCarthy discuss the film's most challenging scenes, the witch's design, and new details that completely change that ending.
+---------
+
+# Say Goodbye to Sam Raimi's 87-Minute Creature Feature on Paramount+
+
+Movie News, Crawl, Sam Raimi, Kaya Scodelario, Barry Pepper
+
+Sat, 02 May 2026 09:40:12 GMT
+
+https://collider.com/sam-raimi-creature-feature-crawl-leaving-streaming-paramount-plus-june-2026/
+
+The Sam Raimi-produced sleeper hit creature feature Crawl is leaving its streaming home soon. Find out when.
+---------
+
+# 'Tangled' Live-Action Movie Casts Diego Luna
+
+Movie News, Tangled, Star Wars, Diego Luna
+
+Sat, 02 May 2026 10:35:38 GMT
+
+https://movieweb.com/tangled-live-action-diego-luna-cast/
+
+'Star Wars: Andor' actor Diego Luna has joined the cast of Disney's live-action 'Tangled' remake, playing an original new character.
+---------
+
 # The Last Of Us Part 3 Graphics Already Has Gamers Seriously Excited
 
 Gaming, The Last of Us Part 2
