@@ -1,3 +1,267 @@
+# The 1990 Spy Thriller That Launched A Major Action Franchise Is Finally On Streaming
+
+Movies, Masked Recs
+
+Sat, 02 May 2026 21:31:48 GMT
+
+https://screenrant.com/hunt-for-red-october-spy-thriller-streaming-release-date-may-2026/
+
+A classic spy thriller from Sean Connery's body of work has finally become available to view on streaming nearly three decades after its release.
+---------
+
+# Jason Statham's R-Rated Action Hit That Rebooted A 70s Classic Is Officially Streaming
+
+Movies, The Mechanic
+
+Sat, 02 May 2026 21:30:53 GMT
+
+https://screenrant.com/the-mechanic-movie-jason-statham-streaming-paramount-may-2026/
+
+Jason Statham's remake of a 1972 cult classic action thriller film is now officially available to stream on a massive platform.
+---------
+
+# GTA 6 Delay 3 Fears Have Me Marking My Calendar
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Sat, 02 May 2026 21:30:19 GMT
+
+https://screenrant.com/gta-6-delay-3-fear-take-two-may-2026/
+
+GTA VI is technically closer than it has ever been before, but that makes these next few months all the more worrying.
+---------
+
+# The Western Genre Is Having A Hollywood Renaissance
+
+Movies, Op-Ed, Western
+
+Sat, 02 May 2026 21:30:19 GMT
+
+https://screenrant.com/western-genre-having-a-renaissance-today/
+
+The Western genre is on the upswing, with some tremendous movies thanks to streaming platforms and here is what you need to know about its return.
+---------
+
+# Slow Horses Actor Charlie Rowe Ideal For Ned Stark In Game Of Thrones Prequel
+
+TV, Game of Thrones, Game Of Thrones, Slow Horses
+
+Sat, 02 May 2026 21:15:20 GMT
+
+https://screenrant.com/charlie-rowe-perfect-ned-stark-actor-game-of-thrones/
+
+A new Game of Thrones prequel about Ned Stark is set to premiere this summer, and one actor stands out as the obvious choice to play the young king.
+---------
+
+# Star Wars: The Clone Wars Era Officially Returns In New Release
+
+Gaming, Fortnite, Star Wars: The Clone Wars, Live Service Games, PC
+
+Sat, 02 May 2026 21:04:39 GMT
+
+https://screenrant.com/star-wars-clone-wars-anakin-ahsoka-fortnite/
+
+Star Wars: The Clone Wars aired its final season six years ago, but its legacy is still going strong in this new release for May the Fourth.
+---------
+
+# Mad Max: The Unlikely Blockbuster Franchise Born From a Shoestring Budget
+
+Movies, Mad Max
+
+Sat, 02 May 2026 21:00:21 GMT
+
+https://screenrant.com/mad-max-rewrote-hollywood-rules-twice/
+
+Mad Max is the unlikeliest blockbuster franchise of all time. It rewrote the rules of Hollywood in 1979, and then did it again in 2015.
+---------
+
+# Stardew Valley: Pine Village Will Keep You Busy Until Haunted Chocolatier
+
+Gaming, Stardew Valley, Haunted Chocolatier
+
+Sat, 02 May 2026 21:00:21 GMT
+
+https://screenrant.com/stardew-valley-pine-village-fan-expansion/
+
+Pine Village is a new mod for Stardew Valley that adds a town and a bunch of new NPCs and adventures to the base game.
+---------
+
+# Why Practical Magic's Rotten Tomatoes Score Is So Low
+
+Movies, Practical Magic, Explainer
+
+Sat, 02 May 2026 21:00:21 GMT
+
+https://screenrant.com/practical-magic-rotten-tomatoes-low-score/
+
+Practical Magic is a beloved 1990s cult classic with a long-awaited sequel on the way, so why is its Rotten Tomatoes score so low?
+---------
+
+# PlayStation Drops 5 New Free Downloads You Can Play Now, No PS Plus Needed
+
+Gaming, PlayStation 5, PlayStation Plus
+
+Sat, 02 May 2026 21:00:21 GMT
+
+https://screenrant.com/playstation-5-free-downloads-may-2026-no-ps-plus/
+
+The PlayStation 5 has a bunch of fresh demos to explore, so you can make an informed purchase next time out.
+---------
+
+# James McAvoy's Wanted Is The Weirdest Comic Book Action Movie of The 2000s
+
+Movies, Wanted, Action, Sci-Fi
+
+Sat, 02 May 2026 21:30:13 GMT
+
+https://www.cbr.com/wanted-starring-james-mcavoy-the-weirdest-action-movie-of-the-2000s/
+
+Even after 18 years, this forgotten comic book adaptation is impossible to look away from.
+---------
+
+# 10 Classic Shonen Anime That Aren't As Good As You Remember
+
+Anime, shonen anime, Shonen
+
+Sat, 02 May 2026 21:15:12 GMT
+
+https://www.cbr.com/classic-shonen-anime-not-as-good-as-remembered/
+
+Nostalgia has a way of making viewers remember their favorite shonen anime differently than what it actually was.
+---------
+
+# Adult Swim's Parody Talk Show Space Ghost Coast to Coast Tops PVOD Charts
+
+TV, Space Ghost Coast to Coast, Adult Swim, Cartoon Network
+
+Sat, 02 May 2026 21:00:13 GMT
+
+https://www.cbr.com/adult-swim-space-ghost-coast-to-coast-apple-tv-store-success-may-2026/
+
+Space Ghost Coast to Coast, the cult classic adult live-action/animated parody talk show, hit the No. 1 spot on the Apple TV Store in the US.
+---------
+
+# Rob Liefeld Claims Superman Faces an Invincible Problem
+
+Games, Superman, Invincible
+
+Sat, 02 May 2026 21:00:13 GMT
+
+https://www.cbr.com/robert-kirkman-believes-superman-has-an-invincible-problem/
+
+It's a bird, it's a plane, it's... very similar ideas in superhero comics!
+---------
+
+# Star Wars Did These 10 Actors Dirty
+
+Movie, Star Wars, Rose Byrne, Jimmy Smits, Kelly Marie Tran
+
+Sat, 02 May 2026 21:30:13 GMT
+
+https://collider.com/star-wars-did-these-actors-dirty/
+
+Star Wars has a deeply flawed track record when it comes to actors, with Jake Lloyd and and Kelly Marie Tran among the most infamous examples.
+---------
+
+# 25 Years Later, Quentin Tarantino’s Favorite Ridley Scott Movie Is Officially Taking Over the World
+
+Movie News, Black Hawk Down, Ridley Scott, Quentin Tarantino, Ewan McGregor
+
+Sat, 02 May 2026 21:30:13 GMT
+
+https://collider.com/quentin-tarantino-favorite-ridley-scott-movie-black-hawk-down-global-streaming-success-apple-tv-amazon-prime-video-may-2026/
+
+25 years after its initial release, Ridley Scott's war movie praised by Quentin Tarantino is staging a worldwide takeover on streaming.
+---------
+
+# The Best Crime Shows From Every Year of the 1990s
+
+TV, Crime, 1990s, Twin Peaks, The Sopranos
+
+Sat, 02 May 2026 21:24:12 GMT
+
+https://collider.com/best-90s-crime-shows-every-year/
+
+Explore the groundbreaking crime shows that shaped the 1990s and paved the way for modern television drama, from Twin Peaks to The Sopranos.
+---------
+
+# ‘Zero Dark Thirty’ Meets ‘No Country for Old Men’ in Taylor Sheridan’s Near-Perfect Neo-Western
+
+Movie News, Sicario, Taylor Sheridan, Zero Dark Thirty, No Country for Old Men
+
+Sat, 02 May 2026 21:15:13 GMT
+
+https://collider.com/zero-dark-thirty-no-country-for-old-men-taylor-sheridan-neo-western-sicario-global-streaming-succes-apple-tv-hbo-max-may-2026/
+
+Taylor Sheridan's near-perfect neo-Western with DNA from other hits like Zero Dark Thirty and No Country for Old Men is the perfect sleeper hit.
+---------
+
+# 7 Vampire Movie Remakes, Ranked
+
+Movie, Vampire, Nosferatu The Vampyre, Bram Stoker's Dracula, let me in
+
+Sat, 02 May 2026 21:15:13 GMT
+
+https://collider.com/vampire-movie-remakes-ranked/
+
+From Let Me In to two different versions of Nosferatu, this is a definitive ranking of notable vampire remakes.
+---------
+
+# Netflix’s Greatest Crime Series Is Still a 10/10 Weekend Binge
+
+TV News, Ozark, Netflix, Jason Bateman, Julia Garner
+
+Sat, 02 May 2026 21:00:13 GMT
+
+https://collider.com/netflix-greatest-crime-series-ozark-weekend-binge-streaming-success-may-2026/
+
+Netflix's greatest crime series with nearly no bad episodes, Ozark starring Jason Bateman, is still a perfect binge over a single weekend.
+---------
+
+# 5 Forgotten Disney Movies That Are Amazing From Start to Finish
+
+Movie, Disney, Meet the Robinsons, The Rocketeer, The Sorcerer's Apprentice
+
+Sat, 02 May 2026 20:58:13 GMT
+
+https://collider.com/forgotten-disney-movies-amazing/
+
+From animated sci-fi adventures to a very loose live-action adaptation of a classic, these Diney films are incredible, yet lost to time.
+---------
+
+# Netflix’s Thrilling 3-Part Crime Drama Is a Masterpiece From Start to Finish
+
+TV Features, Narcos, Wagner Moura, Pedro Pascal, Boyd Holbrook
+
+Sat, 02 May 2026 20:42:13 GMT
+
+https://collider.com/netflix-narcos-crime-drama-weekend-binge/
+
+Narcos shares a complex and unique history of the Colombian drug war through the lens of both law enforcement and cartel leaders.
+---------
+
+# Netflix’s Fantasy Series ‘Shadow and Bone’ Is Perfect To Binge This Weekend
+
+Features, Fantasy, Shadow and Bone
+
+Sat, 02 May 2026 21:30:18 GMT
+
+https://movieweb.com/shadow-and-bone-netflix-binge/
+
+'Shadow and Bone', based on the novels of Leigh Bardugo, is one of the most gripping fantasy TV shows on Netflix
+---------
+
+# Every New Movie and TV Show Coming to HBO Max in May 2026
+
+Features, HBO Max
+
+Sat, 02 May 2026 21:30:18 GMT
+
+https://movieweb.com/hbo-max-new-movie-tv-may-2026/
+
+Music biopics, samurai action, and an adaptation of a classic lead the best new titles on HBO Max for May.
+---------
+
 # Tombstone Meets The Sopranos In Timothy Olyphant's 3-Part Masterpiece Western Better Than Yellowstone
 
 Classic TV, Masked Recs
