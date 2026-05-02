@@ -1,3 +1,245 @@
+# After 64 Years, Spider-Man’s Brother Officially Enters Marvel Lore
+
+Comics, Spider-Man, Marvel
+
+Sat, 02 May 2026 19:30:20 GMT
+
+https://screenrant.com/spider-man-brother-debut-crane/
+
+Spider-Man's family drama is adding a surprising layer lately with a new character who could upend the Parkers forever, depending on his relation.
+---------
+
+# Aubrey Plaza's Legion Is Just As Good As Agatha All Along
+
+Classic TV, Legion, Agatha All Along
+
+Sat, 02 May 2026 19:30:20 GMT
+
+https://screenrant.com/agatha-all-along-aubrey-plaza-first-marvel-role-legion/
+
+In addition to starring in Agatha All Along, Aubrey Plaza's first Marvel TV show should be just as positively regarded as her time in the MCU.
+---------
+
+# My Hero Academia's Epilogue Ending Explained
+
+Anime, My Hero Academia
+
+Sat, 02 May 2026 19:15:53 GMT
+
+https://screenrant.com/my-hero-academia-episode-170-1-more-ending-explained/
+
+My Hero Academia is back again.
+---------
+
+# New Stranger Things Spinoff Continues Unfortunate Rotten Tomatoes Trend
+
+TV, Stranger Things: Tales from '85, Stranger Things
+
+Sat, 02 May 2026 19:05:46 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-rotten-tomatoes-audience-score-trend/
+
+The Stranger Things franchise is continuing to expand, but this latest Rotten Tomatoes rating could prove to be its downfall, and it's not promising.
+---------
+
+# The Audacity Episode 4 Clip Finds Zach Galifianakis & Billy Magnussen In A Schrödinger's Cat Situation
+
+Exclusive, The Audacity, Billy Magnussen, Zach Galifianakis
+
+Sat, 02 May 2026 18:34:28 GMT
+
+https://screenrant.com/the-audacity-episode-4-zach-galifianakis-billy-magnussen-clip/
+
+Exclusive: ScreenRant presents a The Audacity episode 4 clip, where Duncan (Billy Magnussen) must win Carl (Zach Galifianakis) back for Hypergnosis.
+---------
+
+# 6 Lesser-Known Jackie Chan Movies You Should Watch On Prime Video
+
+Movies, Jackie Chan
+
+Sat, 02 May 2026 18:30:19 GMT
+
+https://screenrant.com/jackie-chan-movies-hidden-gems-watch-prime-video/
+
+Prime Video hosts a selection of Jackie Chan's martial arts movies, including a few hidden gems that are definitely worth checking out.
+---------
+
+# Anne Hathaway Explains Andy Sachs' Contrasting Ending In The Devil Wears Prada 2
+
+Movies, The Devil Wears Prada 2
+
+Sat, 02 May 2026 18:13:18 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-ending-andy-sachs-decision-explained-anne-hathaway/
+
+The ending for The Devil Wears Prada and its sequel are broken down by Anne Hathaway, who explains why she likes the newest one so much.
+---------
+
+# Hit 2000s Sitcom Everybody Hates Chris Tops Global Streaming Charts
+
+TV, Everybody Hates Chris, Sitcoms, Netflix
+
+Sat, 02 May 2026 19:30:14 GMT
+
+https://www.cbr.com/everybody-hates-chris-2000s-sitcom-netflix-success-may-2026/
+
+Everybody Hates Chris is a global hit on streaming platforms, topping charts in multiple countries and remaining popular decades later.
+---------
+
+# 10 Forgotten Terrifying MCU Scenes No One Ever Talks About
+
+Movies, Marvel Cinematic Universe
+
+Sat, 02 May 2026 19:30:14 GMT
+
+https://www.cbr.com/most-terrifying-mcu-scenes-list/
+
+There have been many scenes in the MCU's 18-year history that have frightened us to our cores and sent shivers down our spines.
+---------
+
+# It Only Took 1 Episode of Spring 2026's Best Anime to Outshine Frieren
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End, Crunchyroll, seinen
+
+Sat, 02 May 2026 19:15:12 GMT
+
+https://www.cbr.com/witch-hat-atelier-anime-outshines-frieren-spring-2026/
+
+After one episode, the anime community is already considering Witch Hat Atelier is the new series that will outshine Frieren: Beyond Journey's End.
+---------
+
+# Adam Scott's Cult Classic Sitcom Party Down Tops PVOD Charts
+
+TV, Party Down, Comedy, Adam Scott
+
+Sat, 02 May 2026 19:00:12 GMT
+
+https://www.cbr.com/adam-scott-party-down-comedy-sitcom-apple-tv-store-success-may-2026/
+
+Adam Scott's cult classic comedy series Party Down rose to the top 10 on the Apple TV Store, 3 years after its revival.
+---------
+
+# Red Dead Redemption 2 Final Free Download Officially Available Until May 4
+
+Games, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 02 May 2026 18:15:13 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-download-officially-available-may-2026/
+
+An era of Red Dead Redemption 2 is officially coming to an end on May 4.
+---------
+
+# Guy Ritchie's Highest-Grossing Movie Is Not the One You'd Expect
+
+Movie Features, Guy Ritchie, Aladdin, Disney, Fantasy
+
+Sat, 02 May 2026 19:09:13 GMT
+
+https://collider.com/guy-ritchie-highest-grossing-movie-aladdin-2019/
+
+Guy Ritchie's 2019 live-action remake of Aladdin made over $1 billion worldwide, far more than his crime comedies.
+---------
+
+# After 2 Years, This Taylor Sheridan Neo-Western Doesn't Have a Single Bad Episode
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Paramount Plus
+
+Sat, 02 May 2026 19:00:13 GMT
+
+https://collider.com/taylor-sheridan-best-neo-western-series-landman-streaming-success-paramount-plus-may-2026/
+
+Taylor Sheridan's best neo-Western thriller series is striking at the competition on streaming before its long-awaited Season 3 return.
+---------
+
+# The Official Sequel to One of the Most Divisive Movies Ever Made Has Wrapped Filming
+
+Movie News, The Passion of the Christ, The Passion of the Christ: Resurrection - Chapter 1, The Resurrection of the Christ Part 1, Mel Gibson
+
+Sat, 02 May 2026 18:45:13 GMT
+
+https://collider.com/the-official-sequel-to-one-of-the-most-divisive-movies-ever-made-has-wrapped-filming/
+
+Mel Gibson's 2-part sequel to The Passion of the Christ has reportedly wrapped filming. Read on for more details.
+---------
+
+# Stephen King's 6-Part Sci-Fi Series on Prime Video Is So Good, You'll Wish You Found It Sooner
+
+TV Features, The Dead Zone, Anthony Michael Hall, Stephen King, Sci-Fi
+
+Sat, 02 May 2026 18:38:12 GMT
+
+https://collider.com/stephen-king-prime-video-sci-fi-the-dead-zone/
+
+Stephen King's classic series, The Dead Zone, is often overshadowed by its 1983 film adaptation, but the 6-season show is still worth a binge.
+---------
+
+# Netflix's 6-Part Murder Mystery Series Is the Perfect Binge Before It Returns This Month
+
+TV Features, A Good Girl's Guide to Murder, Netflix, Emma Myers, Mystery
+
+Sat, 02 May 2026 18:27:13 GMT
+
+https://collider.com/netflix-mystery-series-a-good-girls-guide-to-murder-binge-before-season-2/
+
+Now is the perfect time to binge Netflix's suspenseful coming-of-age murder mystery series before Season 2 premieres next month.
+---------
+
+# Prime Video's 5-Part Sci-Fi Masterpiece Almost Looked Completely Different
+
+TV News, Invincible, Prime Video, Robert Kirkman, J.K. Simmons
+
+Sat, 02 May 2026 18:20:23 GMT
+
+https://collider.com/prime-video-sci-fi-series-invincible-jk-simmons-original-casting-choice-cecil-before-omni-man-robert-kirkman/
+
+Invincible creator Robert Kirkman reveals J.K. Simmons almost played a completely different character before Omni-Man.
+---------
+
+# Timothy Olyphant's Exciting Crime Thriller Series ‘Lucky’ Starts This Year
+
+Features, Timothy Olyphant, Lucky
+
+Sat, 02 May 2026 19:00:17 GMT
+
+https://movieweb.com/lucky-thriller-apple-tv-2026/
+
+'Lucky,' the crime thriller TV adaptation of Marissa Stapley's novel, will premiere on Apple TV in the summer of 2026 and stars Timothy Olyphant.
+---------
+
+# What Every ‘Devil Wears Prada’ Character Was Doing For 20 Years
+
+Movie Lists, The Devil Wears Prada 2, The Devil Wears Prada
+
+Sat, 02 May 2026 18:30:17 GMT
+
+https://movieweb.com/devil-wears-prada-2-characters-between-movies/
+
+After 20 years, we've got quite a bit of catching up to do for 'The Devil Wears Prada 2'. Where has every character been, and who got left behind?
+---------
+
+# Every New Movie and TV Show Coming to Peacock in May 2026
+
+Features, Peacock
+
+Sat, 02 May 2026 18:30:17 GMT
+
+https://movieweb.com/peacock-new-movie-tv-may-2026/
+
+In May 2026, Peacock is bringing Quentin Tarantino fans the full director's catalog and debuting a new crime series from the co-creator of Ozark.
+---------
+
+# 'The Devil Wears Prada 2' Beats Original 2006 Movie in Box Office Opening
+
+Movie News, The Devil Wears Prada 2, The Devil Wears Prada, box office
+
+Sat, 02 May 2026 18:26:33 GMT
+
+https://movieweb.com/devil-wears-prada-2-box-office/
+
+'The Devil Wears Prada 2' wins at the box office with a bigger opening than the original 2006 'The Devil Wears Prada.'
+---------
+
 # 10 Praiseworthy Dark Fantasy Movies No One Ever Talks About
 
 Movies, The Secret of NIMH, The Dark Crystal, Gretel & Hansel, Snow White: A Tale of Terror, Legend, The Neverending Story, Dragonslayer, The Head Hunter, Highlander, The Last Unicorn
