@@ -1,3 +1,234 @@
+# How Artemis Fowl Can Find Redemption After Disney+'s Percy Jackson Success
+
+Streaming TV, Percy Jackson & the Olympians, Artemis Fowl
+
+Sat, 02 May 2026 23:31:53 GMT
+
+https://screenrant.com/after-disneys-95-rt-percy-jackson-success-another-failed-adaptation-needs-a-remake/
+
+After Disney+'s successful Percy Jackson adaptation, fans wonder if the streaming service can revive the failed Artemis Fowl film adaptation.
+---------
+
+# Netflix’s New Scooby-Doo Series Unveils Shaggy’s Full Look With Iconic Green Shirt
+
+TV, Scooby-Doo
+
+Sat, 02 May 2026 23:31:11 GMT
+
+https://screenrant.com/scooby-doo-origins-set-photos-tanner-hagen-shaggy-green-shirt/
+
+Netflix's upcoming Scooby-Doo reboot is filming as new set photos reveal Shaggy's classic look with the famous green shirt in the live-action TV show.
+---------
+
+# HBO Max's 8-Part Crime Thriller Series With A 10/10 Cast Deserves Its 92% RT Score
+
+Classic TV, Masked Recs
+
+Sat, 02 May 2026 23:30:20 GMT
+
+https://screenrant.com/the-staircase-hbo-max-true-crime-show-perfect-cast/
+
+HBO Max's eight-part true crime drama features an incredible cast; both of the show's lead performers were nominated for Emmy Awards in 2022.
+---------
+
+# 8 Modern Black and White Movies Everyone Should Watch
+
+Movies
+
+Sat, 02 May 2026 23:30:20 GMT
+
+https://screenrant.com/near-perfect-black-white-movies-since-2000-lighthouse/
+
+In this list, we're looking at modern movies no-one should miss, which use only or primarily black and white to tell their stories.
+---------
+
+# Amazon Cancels Gen V Amid The Boys' Final Season, Spoiling Key Plot Point
+
+Streaming TV, The Boys, Gen V
+
+Sat, 02 May 2026 23:15:20 GMT
+
+https://screenrant.com/the-boys-gen-v-cancellation-give-away-ending/
+
+Amazon's shock cancellation of Gen V is disappointing, but it also inadvertently spoiled The Boys' ending in the middle of its final season.
+---------
+
+# 6 Best New Movies Coming To Disney+ In May 2026
+
+Movies, Disney+, Send Help, We Bury the Dead, We Bought a Zoo, Arco, Alien: Romulus, Descendent
+
+Sat, 02 May 2026 23:15:20 GMT
+
+https://screenrant.com/disney-plus-best-new-movies-may-2026/
+
+Six standout movies hit Disney+ in May 2026, from heartfelt drama to twisted horror – perfect picks to refresh your watchlist this month.
+---------
+
+# The MCU Officially Introduces A New Marvel Team For Phase 6
+
+Streaming TV, Daredevil: Born Again
+
+Sat, 02 May 2026 23:00:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-heroes-for-hire-luke-cage-iron-fist/
+
+The MCU's Phase 6 has been messy at times, but with Avengers: Doomsday looming, it appears that superhero teams are lining up to fight.
+---------
+
+# Netflix's New Supernatural Legal Drama Is Finally Complete and Now's The Perfect Time to Binge It
+
+Anime, Netflix, Phantom Lawyer
+
+Sat, 02 May 2026 23:00:19 GMT
+
+https://screenrant.com/netflix-supernatural-legal-drama-phantom-lawyer-must-binge/
+
+Netflix brings fans the best of both worlds in its newly completed K-drama that blends the supernatural with the timeless thrill of a legal drama.
+---------
+
+# Netflix's 6-Part 'The Boys Meets Heroes' Series Is Quietly One Of The Decade's Best Superhero Shows
+
+Streaming TV, Supacell
+
+Sat, 02 May 2026 22:45:20 GMT
+
+https://screenrant.com/supacell-netflix-superhero-show-the-boys-meets-heroes/
+
+Netflix has had some mixed luck when it comes to superhero storytelling, but one incredible 2024 show managed to overcome the odds and succeed.
+---------
+
+# Prime Video's 5-Part 'The Boys Meets Dragon Ball Z' Series Still Has A 100% Success Rate
+
+Streaming TV, Masked Recs
+
+Sat, 02 May 2026 22:43:09 GMT
+
+https://screenrant.com/invincible-prime-video-perfect-success-rate/
+
+The Boys and Dragon Ball Z have little in common, flying superhumans aside, but they combine to create a Prime Video series with a 100% success rate.
+---------
+
+# Why Uhura Speaks Klingon in Strange New Worlds, But Not Star Trek VI
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 02 May 2026 23:30:13 GMT
+
+https://www.cbr.com/strange-new-worlds-uhura-klingon-star-trek/
+
+In Star Trek: Strange New Worlds Season 2, Uhura is adept at speaking Klingon, which doesn't match a scene in Star Trek VI: The Undiscovered Country.
+---------
+
+# 10 Shonen Manga That can Be Called Masterpieces, Ranked
+
+Anime, Manga, Naruto, One Piece, Hunter X Hunter
+
+Sat, 02 May 2026 23:15:13 GMT
+
+https://www.cbr.com/flawless-shonen-manga-that-can-be-called-masterpieces/
+
+Shonen manga are often written off as juvenile, but many of them are near-flawless masterpieces.
+---------
+
+# Every Spider-Man Villain Confirmed to Appear in Spider-Noir
+
+TV, Spider-Noir, Spider-Man, Prime Video
+
+Sat, 02 May 2026 23:00:12 GMT
+
+https://www.cbr.com/spider-man-villains-in-spider-noir-list/
+
+Spider-Noir will feature several iconic villains from Spider-Man's comic book adventures. Here's everyone you should know.
+---------
+
+# 30 Years Later, Sean Connery’s ‘Die Hard’ Replacement Is a Free Streaming Favorite
+
+Movie News, The Rock, Sean Connery, Tubi, Nicolas Cage
+
+Sat, 02 May 2026 23:30:13 GMT
+
+https://collider.com/sean-connery-nicolas-cage-die-hard-replacement-the-rock-streaming-success-tubi-may-2026/
+
+James Bond icon Sean Connery's Die Hard replacement, The Rock with Nicolas Cage, is a hit on free streaming. Find out more here.
+---------
+
+# 12 Years Later, Ridley Scott’s $100M Historical Epic Flop Is Exploding on Free Streaming
+
+Movie News, Ridley Scott, Exodus: Gods and Kings, Christian Bale, Tubi
+
+Sat, 02 May 2026 23:15:13 GMT
+
+https://collider.com/ridley-scott-historical-epic-flop-exodus-gods-and-kings-streaming-success-tubi-may-2026/
+
+Ridley Scott's biblical flop starring Christian Bale, Exodus: Gods and Kings, is a streaming hit in America. Read on for details.
+---------
+
+# Walton Goggins' 7-Part Detective Thriller Is So Good, You’ll Finish It in One Sitting
+
+TV News, The Shield, Walton Goggins, Michael Chiklis, Tubi
+
+Sat, 02 May 2026 23:00:13 GMT
+
+https://collider.com/walton-goggins-fx-detective-thriller-the-shield-streaming-success-tubi-may-2026/
+
+Walton Goggins' bingeable FX detective thriller is the perfect blend of Breaking Bad and Training Day, and fans can't get enough.
+---------
+
+# 10 Greatest Fantasy Movie Opening Scenes, Ranked
+
+Movie, The Lord of the Rings: The Fellowship of the Ring, Fantasy, Star Wars: Episode IV - A New Hope, The Princess Bride
+
+Sat, 02 May 2026 22:51:12 GMT
+
+https://collider.com/fantasy-movie-opening-scenes-best-ranked/
+
+Fantasy movies like The Lord of the Rings: The Fellowship of the Ring, Shrek, and The Princess Bride have some of the genre's best opening scenes.
+---------
+
+# The 10/10 WWII Movie That Inspired HBO's Best Series Is a Free Streaming Sensation
+
+Movie News, Saving Private Ryan, War, HBO, Tom Hanks
+
+Sat, 02 May 2026 22:45:13 GMT
+
+https://collider.com/tom-hanks-ww2-movie-saving-private-ryan-streaming-success-tubi-may-2026/
+
+Steven Spielberg's Saving Private Ryan, the WW2 masterpiece that inspired HBO's best series, is a hit on free streaming in America.
+---------
+
+# 'Texas Chainsaw Massacre' Horror Reboot Director Focusing on Leatherface's Family
+
+Movie News, Texas Chainsaw Massacre, The Texas Chainsaw Massacre, Texas Chain Saw Massacre, Horror, Leatherface
+
+Sat, 02 May 2026 23:17:37 GMT
+
+https://movieweb.com/texas-chainsaw-massacre-reboot-leatherface-family/
+
+'Obsession' director Curry Barker is ready to tackle Leatherface's "messed up" farm life in his 'Texas Chainsaw Massacre' reboot.
+---------
+
+# J.J. Abrams' 'Almost Human' Hard Sci-Fi Series Deserves a Revival More Than 'Firefly'
+
+Features, J.J. Abrams, Almost Human, Sci-Fi, Firefly
+
+Sat, 02 May 2026 23:00:18 GMT
+
+https://movieweb.com/jj-abrams-almost-human-sci-fi-series/
+
+After 12 years, the underrated J.J. Abrams-produced sci-fi series starring Karl Urban still deserves more after just one season.
+---------
+
+# Netflix's Action Thriller 'Man on Fire' Reboot is a Global Streaming Success
+
+Movie News, Man on Fire, Netflix, Hot on Streaming, Action
+
+Sat, 02 May 2026 23:00:18 GMT
+
+https://movieweb.com/man-on-fire-action-streaming-success-netflix-may-2026/
+
+Netflix's action thriller reboot of Denzel Washington's cult classic 'Man on Fire' is a global streaming success in 2026.
+---------
+
 # DC Crowns Its Most Powerful Magical User (And You Won't Believe Who It ls)
 
 Comics, DC Comics
