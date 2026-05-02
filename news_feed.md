@@ -1,3 +1,300 @@
+# DC Crowns Its Most Powerful Magical User (And You Won't Believe Who It ls)
+
+Comics, DC Comics
+
+Sat, 02 May 2026 22:31:19 GMT
+
+https://screenrant.com/swamp-thing-jesus-christ-dc-comics/
+
+Is it blasphemy?
+---------
+
+# Marvel Unveils God-Tier Fantastic Four Redesign For Their New Appearance
+
+Marvel Comics, Fantastic Four, Marvel
+
+Sat, 02 May 2026 22:31:19 GMT
+
+https://screenrant.com/fantastic-four-redesign-infernal-hulk-war/
+
+The Fantastic Four debut their scariest forms against their will in Marvel's latest crossover event, which adds a new layer of sci-fi to the team.
+---------
+
+# HBO's 12-Part Steampunk Series Deserved So Much Better
+
+Classic TV, The Nevers
+
+Sat, 02 May 2026 22:31:19 GMT
+
+https://screenrant.com/the-nevers-hbo-steampunk-series-deserved-better/
+
+HBO has some excellent dramas, but relatively few steampunk shows. This makes its steampunk series controversial cancelation even more heartbreaking.
+---------
+
+# 10 Most Surreal Horror Movies, Ranked By Weirdness
+
+Movies, Horror, Ranking
+
+Sat, 02 May 2026 22:25:19 GMT
+
+https://screenrant.com/horror-movies-surreal-weird-ranked/
+
+Surreal horror movies use absurdity and dreamlike logic to terrify and confuse the audience, but which surreal horror movie is the weirdest of all?
+---------
+
+# Hugh Jackman's Grim Robin Hood Reboot: A Darker 'Logan' Awaits?
+
+Movies, The Death of Robin Hood
+
+Sat, 02 May 2026 22:24:35 GMT
+
+https://screenrant.com/hugh-jackman-death-of-robin-hood-franchise-revive/
+
+Hugh Jackman's gritty new Robin Hood movie, The Death of Robin Hood, could finally redeem the franchise with a Logan-esque end-of-the-road story.
+---------
+
+# The Most Important Book Of The Last 400 Years Is Getting Its First Movie, But One Choice Is Downright Disrespectful
+
+Books, Pulp Fiction, Paradise Lost
+
+Sat, 02 May 2026 22:00:19 GMT
+
+https://screenrant.com/paradise-lost-movie-adaptation-ai-disrespectful/
+
+The "can" vs. "should" argument about adaptation.
+---------
+
+# 8 Shows About AI That Have Aged Like Fine Wine
+
+Classic TV
+
+Sat, 02 May 2026 22:00:19 GMT
+
+https://screenrant.com/sci-fi-shows-about-ai-aged-like-wine/
+
+As AI enters the world, shows that tackled it as a piece of fictional sci-fi tech can be seen in a new light, but these shows still resonate.
+---------
+
+# DC's New Hero Has The Best Character Design Of The Year
+
+DC Comics
+
+Sat, 02 May 2026 22:00:19 GMT
+
+https://screenrant.com/dc-new-hero-best-design-zatanna/
+
+DC's new mystery character is an incomprehensible enigma that perfectly exemplifies the unique designs that are only possible in comic books.
+---------
+
+# Cyberpunk 2077 Night City Treasure Hunt Is The Perfect Excuse To Play Again
+
+Gaming, Cyberpunk 2077
+
+Sat, 02 May 2026 22:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-night-city-treasure-hunt-mod/
+
+Discover hidden art and earn rewards in the Card Collection - Treasure Hunt mod for Cyberpunk 2077.
+---------
+
+# My Hero Academia New Sequel: Everything Known About I am a Hero Too
+
+Anime, My Hero Academia
+
+Sat, 02 May 2026 21:51:32 GMT
+
+https://screenrant.com/my-hero-academia-i-am-a-hero-too-latest-news-everything-known/
+
+Discover everything we know about the newly announced My Hero Academia: I Am a Hero Too anime special, centered on Eri.
+---------
+
+# Bruce Willis' Box-Office Bomb Hart's War Is a Hit on Tubi 24 Years Later
+
+Movies, Hart's War, Tubi, War
+
+Sat, 02 May 2026 22:30:12 GMT
+
+https://www.cbr.com/bruce-willis-harts-war-wwii-war-drama-tubi-success-may-2026/
+
+The 2002 war drama Hart's War, starring Bruce Willis, flopped at the box office but is now the No. 9 most-watched movie on Tubi.
+---------
+
+# 10 Most Universally Beloved Western Movie Heroes Of All Time, Ranked
+
+Movies, Western, Django Unchained, Shane
+
+Sat, 02 May 2026 22:30:12 GMT
+
+https://www.cbr.com/beloved-western-movie-heroes-list/
+
+The Western genre continues to deliver audiences some of the greatest stories on the big screen, using iconic heroes to explore the frontier.
+---------
+
+# 7 Nintendo Games That Are Perfect From Start to Finish
+
+Games, Mario, The Legend of Zelda, Kirby, Nintendo
+
+Sat, 02 May 2026 22:15:12 GMT
+
+https://www.cbr.com/nintendo-games-perfect-start-to-finish/
+
+Mario, Link, and others have led unforgettable games over the years.
+---------
+
+# Stephen King's The Running Man Gets a Disappointing Streaming Update 4 Months After Paramount+ Release
+
+Movies, The Running Man
+
+Sat, 02 May 2026 22:00:12 GMT
+
+https://www.cbr.com/stephen-king-the-running-man-sci-fi-remake-paramount-plus-drop-charts-may-2026/
+
+After a successful run on streaming, the sci-fi remake received a disappointing streaming update.
+---------
+
+# Re:Zero Partners With Seiko for 2 New Limited-Edition Watches
+
+Anime, Re:Zero -Starting Life in Another World-, merchandise
+
+Sat, 02 May 2026 22:00:12 GMT
+
+https://www.cbr.com/rezero-emilia-rem-seiko-watch-international-release/
+
+Re:Zero fans are getting two new limited-edition watch releases from Seiko, and this time, they will officially be available worldwide.
+---------
+
+# Michael B. Jordan’s Video Game Movie Battlefield Sparks 5-Way Bidding War With Netflix
+
+Movies, Battlefield, Netflix
+
+Sat, 02 May 2026 21:38:57 GMT
+
+https://www.cbr.com/michael-b-jordan-video-game-movie-battlefield-bidding-war/
+
+The hotly-anticipated Battlefield feature film adaptation from Michael B. Jordan is lighting up a massive bidding war in Hollywood, and Netflix is in.
+---------
+
+# 'Reacher' Star Alan Ritchson's Sci-Fi Epic Loses Top Netflix Spot to Charlize Theron's Survival Thriller
+
+Movie News, Apex, Netflix, Taron Egerton, Charlize Theron
+
+Sat, 02 May 2026 22:30:13 GMT
+
+https://collider.com/netlfix-genre-bending-survival-thriller-apex-streaming-success-may-2026/
+
+Netflix's genre-bending survival thriller starring Charlize Theron and Taron Egerton, Apex, is officially its best movie of 2026.
+---------
+
+# Forget 'Bosch,' Netflix's 10/10 Crime Thriller Is a Perfect Weekend Binge
+
+Movie News, The Lincoln Lawyer, Netflix, Bosch, Titus Welliver
+
+Sat, 02 May 2026 22:15:12 GMT
+
+https://collider.com/netflix-bosch-replacement-crime-thriller-the-lincoln-lawyer-streaming-success-may-2026/
+
+The Lincoln Lawyer, which has been hailed as Netflix's bingeworthy successor to Bosch, is taking over the streaming world between seasons.
+---------
+
+# 'Daredevil: Born Again's Bullseye Diner Scene Is Brutal, but so Are These 7 Fights
+
+TV, Daredevil: Born Again, Daredevil, Superhero, Marvel
+
+Sat, 02 May 2026 22:08:13 GMT
+
+https://collider.com/daredevil-born-again-brutal-fights-disney-plus/
+
+While many deem Bulleye's diner fight in Daredevil: Born Again Season 2 as the most brutal fight, we think these other fights are just as intense.
+---------
+
+# 8 Worst Remakes of Classic '80s Horror Movies, Ranked
+
+Movie, Horror, The Fog, A Nightmare on Elm Street, Poltergeist
+
+Sat, 02 May 2026 22:05:12 GMT
+
+https://collider.com/worst-remakes-of-classic-80s-horror-movies/
+
+From A Nightmare on Elm Street to The Fog, these modern horror remakes lost the dread, atmosphere, and soul of '80s classics.
+---------
+
+# Tom Hanks' 189-Minute Stephen King Adaptation Finds Redemption on Streaming
+
+Movie News, The Green Mile, Tom Hanks, Stephen King, Michael Clarke Duncan
+
+Sat, 02 May 2026 22:00:13 GMT
+
+https://collider.com/tom-hanks-stephen-king-adaptation-prison-movie-the-green-mile-global-streaming-success-apple-tv-amazon-prime-may-2026/
+
+The Green Mile, the Stephen King sleeper hit starring Tom Hanks, is a streaming success globally. Find out more about the prison epic here.
+---------
+
+# 16 Years Later, a Beloved Superhero Classic Is Quietly Taking Over Streaming
+
+TV Features, Heroes, Tim Kring, Hayden Panettiere, Milo Ventimiglia
+
+Sat, 02 May 2026 21:47:13 GMT
+
+https://collider.com/heroes-tv-show-superhero-streaming-apple-tv/
+
+NBC's Heroes, which redefined superhero storytelling on TV, is enduring 16 years after its series finale with a resurgence on streaming.
+---------
+
+# 'Raised by Wolves': Ridley Scott's HBO Sci-Fi Series Is 'Dune' Meets 'Blade Runner'
+
+Features, Raised by Wolves, Dune, Comparison Recommendation
+
+Sat, 02 May 2026 22:30:18 GMT
+
+https://movieweb.com/raised-by-wolves-dune-blade-runner-comparison/
+
+Running for two seasons on HBO Max, Ridley Scott's underrated sci-fi series Raised By Wolves shares DNA with Dune and Blood Runner
+---------
+
+# Guillermo Del Toro Credited With Special Acknowledgement on 'The Mandalorian and Grogu'
+
+Movie News, The Mandalorian and Grogu, Jon Favreau, Guillermo del Toro
+
+Sat, 02 May 2026 22:24:40 GMT
+
+https://movieweb.com/mandalorian-grogu-guillermo-del-toro-credits/
+
+'The Mandalorian and Grogu' will include a surprising special acknowledgment for famed director Guillermo del Toro.
+---------
+
+# DC 'Static Shock' Cult Classic Series is Streaming for Free on Tubi
+
+Movie News, Static Shock, Tubi, Coming/Leaving Streaming, DCU
+
+Sat, 02 May 2026 22:01:50 GMT
+
+https://movieweb.com/static-shock-dcu-streaming-free-tubi-may-2026/
+
+The DC Comics animated 'Static Shock' series is finally streaming in the US for free on Tubi.
+---------
+
+# 8 Masterpiece Netflix Miniseries You Can Binge-Watch in One Night
+
+TV Lists, Netflix
+
+Sat, 02 May 2026 22:00:18 GMT
+
+https://movieweb.com/best-netflix-miniseries-binge-one-night/
+
+From 'Adolescence' to 'Ripley', these short, highly acclaimed miniseries on Netflix are the perfect way to spend a night
+---------
+
+# 'Evil Dead Burn' Reveals Terrifying First Look at New Deadites in Horror Sequel
+
+Movie News, Evil Dead Burn, Evil Dead, Horror
+
+Sat, 02 May 2026 21:54:15 GMT
+
+https://movieweb.com/evil-dead-burn-reveals-new-deadites/
+
+The next 'Evil Dead' sequel has finally revealed the new Deadites in this summer's horror follow-up in Sam Raimi's classic franchise.
+---------
+
 # The 1990 Spy Thriller That Launched A Major Action Franchise Is Finally On Streaming
 
 Movies, Masked Recs
