@@ -1,3 +1,267 @@
+# Tombstone Meets The Sopranos In Timothy Olyphant's 3-Part Masterpiece Western Better Than Yellowstone
+
+Classic TV, Masked Recs
+
+Sat, 02 May 2026 20:25:46 GMT
+
+https://screenrant.com/deadwood-hbo-masterpiece-western-tombstone-the-sopranos/
+
+In the shootout between Yellowstone and Timothy Olyphant's masterpiece "Tombstone meets The Sopranos" Western, the latter easily wins out in the end.
+---------
+
+# Anne Hathaway's New Disney Movie Officially Clutches All-Time Rotten Tomatoes Record After 12 Years
+
+Movies, Masked Recs, Anne Hathaway
+
+Sat, 02 May 2026 20:22:46 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-rotten-tomatoes-audience-score-anne-hathaway-record/
+
+With a busy 2026 movie schedule for star Anne Hathaway, her new Disney movie has officially set an all-time Rotten Tomatoes record in her career.
+---------
+
+# 10 Perfect Crime Shows Everyone Should Watch At Least Once
+
+Classic TV
+
+Sat, 02 May 2026 20:05:18 GMT
+
+https://screenrant.com/perfect-crime-shows-everyone-watch-once/
+
+The top 10 crime TV shows everyone should watch at least once, featuring gripping stories, exceptional performances, and high emotional stakes.
+---------
+
+# Taylor Sheridan’s 8-Part Historical Series Is His Most Important Western Yet
+
+Classic TV, Masked Recs
+
+Sat, 02 May 2026 20:00:19 GMT
+
+https://screenrant.com/lawmen-bass-reeves-taylor-sheridan-historical-western-important/
+
+Taylor Sheridan's TV universe is one of the biggest on the air, but his most important show is an eight-episode Western different than the rest.
+---------
+
+# One Piece's New Villain Is Way Stronger Than You Think
+
+Anime, One Piece
+
+Sat, 02 May 2026 20:00:19 GMT
+
+https://screenrant.com/one-piece-imu-strongest-power-level/
+
+What makes Imu so powerful?
+---------
+
+# Marvel’s Official Captain America Redesign Highlights His Best Look In 86 Years
+
+Gaming, Captain America, Marvel, Triple-A Games
+
+Sat, 02 May 2026 20:00:19 GMT
+
+https://screenrant.com/captain-america-redesign-costume-steve-rogers-classic-costume/
+
+Captain America has a full closet of fun costumes after nearly 86 years of publication history, but one costume has always been his best.
+---------
+
+# Live-Action Spider-Man Show's Surprise Villain Reveal Is Exactly What The Series Needs
+
+TV, Spider-Noir
+
+Sat, 02 May 2026 19:55:19 GMT
+
+https://screenrant.com/spider-noir-show-megawatt-obscure-villains/
+
+The identity of one of the villains in Spider-Noir has been confirmed, and this is great news for Prime Video's live-action Spider-Man series.
+---------
+
+# Next Assassin's Creed Game Reportedly At Risk Of Cancellation
+
+Gaming, Assassin's Creed, Triple-A Games, PC
+
+Sat, 02 May 2026 19:39:37 GMT
+
+https://screenrant.com/assassins-creed-invictus-update-cancellation-risk/
+
+Assassin's Creed is still an unstoppable franchise, but reportedly, the next new game on the horizon might end up falling by the wayside.
+---------
+
+# Margot Robbie's Wuthering Heights Is the No. 1 Film in the World on HBO Max
+
+Movies, Wuthering Heights
+
+Sat, 02 May 2026 20:30:13 GMT
+
+https://www.cbr.com/margot-robbie-wuthering-heights-drama-hbo-max-success-may-2026/
+
+After the box office success, Margot Robbie's steamy film is now a hit on HBO Max.
+---------
+
+# Shane is the Best Western Ever, But it Was Disavowed by its Creator
+
+Movies, Shane, Western
+
+Sat, 02 May 2026 20:30:13 GMT
+
+https://www.cbr.com/shane-best-gunslinger-western-disowned-creator/
+
+Despite having penned one of the most influential Western stories, one of the genre's best novelists disowned his greatest work.
+---------
+
+# One Piece Characters Who Would Survive a Horror Anime Without Powers
+
+Anime, One Piece
+
+Sat, 02 May 2026 20:15:13 GMT
+
+https://www.cbr.com/one-piece-characters-survive-horror-anime/
+
+A few characters from One Piece have the mindset needed to survive a horror show without their usual abilities.
+---------
+
+# Bruce Willis' Gasoline Alley Finds Redemption on Paramount+
+
+Movies, Gasoline Alley, bruce willis
+
+Sat, 02 May 2026 20:00:13 GMT
+
+https://www.cbr.com/bruce-willis-gasoline-alley-streaming-paramount-may-2026/
+
+One of Bruce Willis' final films earns redemption as a streaming hit four years later.
+---------
+
+# Fullmetal Alchemist's Successor Refuses to Tell Its Story the Normal Way, Writer Says
+
+Anime, Daemons of the Shadow Realm
+
+Sat, 02 May 2026 20:00:13 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-writer-abnormal-story/
+
+Hiromu Arakawa's official successor to Fullmetal Alchemist ditches the shonen playbook in a story that makes good and evil impossible to discern.
+---------
+
+# 10 Epic Fantasy Books That Are As Good As The Lord of the Rings
+
+Movies, Fantasy, The Lord of the Rings
+
+Sat, 02 May 2026 20:00:13 GMT
+
+https://www.cbr.com/fantasy-books-for-fans-of-lord-of-the-rings-list/
+
+If you're a fan of the Peter Jackson's adaptation and J.R.R. Tolkien's The Lord of the Rings, you will fall in love with these high fantasy books
+---------
+
+# A24's Remake of the '70s Scariest Horror Movie Gets First Official Details From Director
+
+Movie News, A24, Texas Chainsaw Massacre, Curry Barker, Horror
+
+Sat, 02 May 2026 20:30:57 GMT
+
+https://collider.com/a24-texas-chainsaw-massacre-reboot-first-plot-details-leatherface-family-director-curry-barker/
+
+Curry Barker, the director of A24's upcoming Texas Chainsaw reboot, has shared the first details of Leatherface's return.
+---------
+
+# 9 Years Later, Tom Hardy’s Crime Saga Becomes a Perfect Must-Watch for 'MobLand' Fans
+
+TV News, Taboo, Tom Hardy, Ridley Scott, Pluto TV
+
+Sat, 02 May 2026 20:30:13 GMT
+
+https://collider.com/tom-hardy-crime-series-taboo-streaming-success-apple-tv-peacock-pluto-may-2026/
+
+Tom Hardy and Ridley Scott's bingeworthy crime saga has shades of Peaky Blinders and Black Sails, and it's the perfect weekend binge.
+---------
+
+# Forget ‘The Boys’ — Hulu’s Forgotten Supernatural Sci-Fi Series Is a Perfect Weekend Binge
+
+TV Features, The Boys, Misfits, Hulu, Robert Sheehan
+
+Sat, 02 May 2026 20:08:13 GMT
+
+https://collider.com/misfits-the-boys-replacement-streaming-on-hulu/
+
+UK's teen drama, Misfits, follows a group of juvenile delinquents who, after being struck by lightning, develop supernatural powers.
+---------
+
+# 10 Greatest Battles in the Lord of the Rings Universe, Ranked
+
+Movie, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, The Hobbit: The Battle of the Five Armies
+
+Sat, 02 May 2026 20:04:13 GMT
+
+https://collider.com/lord-of-the-rings-best-battles-ranked/
+
+From Pelennor Fields to the Fall of Gondolin, these are the most exciting battles in J.R.R. Tolkien's expanded universe, beyond The Lord of the Rings.
+---------
+
+# 2 Years Later, This Ridley Scott Historical Epic Is Clawing Its Way Into the Spotlight
+
+Movie News, Ridley Scott, Gladiator II, Gladiator, Pedro Pascal
+
+Sat, 02 May 2026 20:00:13 GMT
+
+https://collider.com/ridley-scott-historical-epic-gladiator-2-streaming-success-netflix-may-2026/
+
+Ridley Scott’s biggest historical flop is finally getting the crowd amped up on streaming. Find out more about Gladiator II here.
+---------
+
+# Prime Video's 3-Part Fantasy Series Is So Good, It Sparked a Passionate Fan Campaign
+
+TV Features, The Wheel of Time, Prime Video, Fantasy
+
+Sat, 02 May 2026 19:41:12 GMT
+
+https://collider.com/wheel-of-time-prime-video-fantasy-series-cancellation-fan-campaign/
+
+Prime Video's captivating fantasy series The Wheel of Time inspired a passionate fan campaign after its abrupt cancellation.
+---------
+
+# 9 Movie Trilogies Where Every Movie Is Perfect From Start to Finish
+
+Movie, The Lord of the Rings, Back to the Future, Shaun of the Dead, Three Colors: Red
+
+Sat, 02 May 2026 19:36:13 GMT
+
+https://collider.com/movie-trilogies-every-movie-perfect-start-to-finish/
+
+A few precious trilogies, like The Lord of the Rings and Back to the Future, are fortunate enough to have three movies that are virtually faultless.
+---------
+
+# Every New Movie and TV Show Coming to Disney+ and Hulu in May 2026
+
+Features, Disney+, Hulu
+
+Sat, 02 May 2026 20:30:18 GMT
+
+https://movieweb.com/disney-hulu-new-tv-movie-may-2026/
+
+Looking to what to watch this May? Here are the best movies and TV series coming to Disney+ and Hulu for the month.
+---------
+
+# Horror Movies That Are Actually Scary
+
+Movie Lists, Horror
+
+Sat, 02 May 2026 20:00:19 GMT
+
+https://movieweb.com/actually-scary-movies/
+
+When you have watched so many horror movies, you think you can't be scared anymore. Check out these frightening films.
+---------
+
+# 'Mr. & Mrs. Smith': Returning Prime Video Action Series Does One Thing Better Than 'Reacher'
+
+Features, Reacher, Comparison Recommendation
+
+Sat, 02 May 2026 20:00:18 GMT
+
+https://movieweb.com/prime-video-reacher-weakness-mr-mrs-smith/
+
+Prime Video's 'Mr. & Mrs. Smith', inspired by Brad Pitt and Angelina Jolie's movie of the same name, does one thing better than 'Reacher'.
+---------
+
 # After 64 Years, Spider-Man’s Brother Officially Enters Marvel Lore
 
 Comics, Spider-Man, Marvel
