@@ -1,3 +1,113 @@
+# HBO's 3-Part Mystery Thriller Is So Great, It Demands To Be Rewatched
+
+Classic TV, Masked Recs
+
+Sat, 02 May 2026 11:30:18 GMT
+
+https://screenrant.com/the-leftovers-hbo-series-demands-rewatch/
+
+The best TV mysteries draw the viewer in from beginning to end, but HBO's thrilling slow-burn requires multiple watches to be fully appreciated.
+---------
+
+# The Marvel Cinematic Universe Is Officially 18 Years Old Today
+
+Movies, Marvel Cinematic Universe
+
+Sat, 02 May 2026 11:30:18 GMT
+
+https://screenrant.com/marvel-cinematic-universe-18-year-anniversary/
+
+The first entry in the Marvel Cinematic Universe, Iron Man, released in theaters 18 years ago, on May 2, 2008. Let's look at the MCU and its future.
+---------
+
+# Every Thriller Fan Needs To Watch Netflix’s New 6-Part Masterpiece
+
+Streaming TV, Masked Recs
+
+Sat, 02 May 2026 11:00:20 GMT
+
+https://screenrant.com/under-a-dark-sun-must-watch/
+
+This 2025 Netflix miniseries was one of the best new crime thriller shows of last summer that shockingly nobody seems to be talking about.
+---------
+
+# Lord Of The Rings Open-World RPG Has Gamers More Excited Than Ever
+
+Gaming, The Lord of the Rings
+
+Sat, 02 May 2026 11:00:19 GMT
+
+https://screenrant.com/lord-of-the-rings-open-world-rpg-gamer-reactions/
+
+A new Lord of the Rings open-world RPG is on the way, and it's safe to say that the franchise's considerable community are excited about it.
+---------
+
+# Star Trek: Legacy Could Revive Paramount's Feature Film Plans
+
+TV, Star Trek
+
+Sat, 02 May 2026 11:30:12 GMT
+
+https://www.cbr.com/paramount-star-trek-legacy-reset-feature-film-plan/
+
+The new Paramount wants to put Star Trek back on the big screen, but they can't forget how TV is part of that equation.
+---------
+
+# 10 Best DC Comics Multiverse Variants That Changed Comics Forever
+
+Comics, DC Comics, Watchmen, Batman
+
+Sat, 02 May 2026 11:00:12 GMT
+
+https://www.cbr.com/best-dc-comics-multiverse-variants-ranked/
+
+The DC multiverse boasts the greatest assortment of superhero stories and characters in comics, and some are undeniably better than others.
+---------
+
+# 8 Years Later, Tom Hardy’s Sci-Fi Hit Officially Becomes a Streaming Sensation
+
+Movie News, The Mask, Tom Hardy, Spider-Man, Venom
+
+Sat, 02 May 2026 11:30:12 GMT
+
+https://collider.com/tom-hardy-sci-fi-marvel-movie-venom-streaming-success-paramount-plus-may-2026-spider-man/
+
+Ahead of Brand New Day, Tom Hardy's first Spider-Man antihero film, Venom, is now streaming. Here's everything you should know.
+---------
+
+# Tom Hardy’s Certified Fresh 2-Part Crime Drama Is a Nasty ‘MobLand’ Follow-Up
+
+TV Features, Tom Hardy, MobLand, Taboo, Thriller
+
+Sat, 02 May 2026 11:23:12 GMT
+
+https://collider.com/tom-hardy-taboo-best-mobland-follow-up-crime-drama/
+
+Tom Hardy's chilling performance in the gritty crime drama Taboo deserves even more recognition after his role in MobLand.
+---------
+
+# 49 Years Ago, Fleetwood Mac Fans Are Revisiting This Breakup Album in 2026
+
+Music Features, Stevie Nicks, Fleetwood Mac, Music, Rock
+
+Sat, 02 May 2026 11:01:12 GMT
+
+https://collider.com/49-years-later-fleetwood-mac-fans-revisiting-rumours-album/
+
+The personal turmoil and emotional intensity behind Fleetwood Mac's iconic 1977 album Rumours, featuring hit songs like The Chain and Dreams.
+---------
+
+# HBO's $200M Fantasy Prequel That Ruined an Iconic Character Leaves Streaming Soon
+
+Movie News, Fantastic Beasts: The Secrets of Dumbledore, Harry Potter, Fantasy, Jude Law
+
+Sat, 02 May 2026 11:01:12 GMT
+
+https://collider.com/harry-potter-fantasy-prequel-fantastic-beasts-secrets-of-dumbledore-leaving-hbo-max-june-2026/
+
+The bloated Harry Potter prequel film Fantastic Beasts: The Secrets of Dumbledore is leaving its streaming home. Find out when.
+---------
+
 # Pokémon Light Platinum Will Keep You Busy Till Winds & Waves
 
 Gaming, Pokemon
