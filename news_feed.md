@@ -1,3 +1,14 @@
+# ‘Star Wars’ Meets ‘Doctor Who’ in 2010's Cult Sci-Fi Hit Now Streaming for Free
+
+Movie News, Attack the Block, Sci-Fi, Jodie Whittaker, John Boyega
+
+Sat, 02 May 2026 08:00:13 GMT
+
+https://collider.com/star-wars-meets-doctor-who-sci-fi-cult-classic-attack-the-block-streaming-free-pluto-may-2026/
+
+Featuring Jodie Whittaker and John Boyega, the sci-fi alien invasion film Attack the Block is now streaming for free. Find out more here.
+---------
+
 # Xbox Drops Free Game Available For 24 Hours, No Game Pass Needed
 
 Gaming, Xbox Game Pass, Xbox Series X/S
