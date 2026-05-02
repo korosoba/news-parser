@@ -1,3 +1,377 @@
+# New Stephen King-esque Horror Movie Earns Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs, Stephen King
+
+Sat, 02 May 2026 03:49:37 GMT
+
+https://screenrant.com/hokum-movie-rotten-tomatoes-score/
+
+A new horror movie with strong essence of Stephen King flair has officially earned a stellar Rotten Tomatoes score, as it drops in theaters.
+---------
+
+# New Audrey Hepburn Biopic Movie Officially Reveals Stunning First Look At Hollywood I
+
+Movies, Audrey Hepburn
+
+Sat, 02 May 2026 03:48:50 GMT
+
+https://screenrant.com/dinner-with-audrey-biopic-movie-first-look/
+
+New first-look images of the upcoming Audrey Hepburn biopic have just been released, revealing its stars and impressive costume design.
+---------
+
+# For All Mankind: Are The Sons & Daughters Of Mars Heroes Or Villains?
+
+Streaming TV, For All Mankind
+
+Sat, 02 May 2026 03:45:21 GMT
+
+https://screenrant.com/for-all-mankind-sons-daughters-of-mars-rebels-villains-plan-explained/
+
+For All Mankind has raised the stakes as the SDM create new problems for Mars and the Earthbound M6, but where does their moral alignment lie?
+---------
+
+# For All Mankind Officially Sets The Stage For War
+
+Streaming TV, For All Mankind
+
+Sat, 02 May 2026 03:30:20 GMT
+
+https://screenrant.com/for-all-mankind-season-5-mars-war-setup/
+
+The future of Mars hangs in the balance as For All Mankind season 5 sets the stage for a major interplanetary conflict to build in the coming episodes
+---------
+
+# 10 Dragon Ball Fights That Changed Shonen Forever
+
+Anime, Dragon Ball
+
+Sat, 02 May 2026 02:00:30 GMT
+
+https://screenrant.com/best-dragon-ball-fights-all-time/
+
+Dragon Ball might be the single most influential anime franchise of all time, and these specific fights will shape shonen forever.
+---------
+
+# Hogwarts Legacy Meets Final Fantasy In 9/10 New RPG You Can Try Free Now
+
+Gaming, Steam, Triple-A Games
+
+Sat, 02 May 2026 02:00:30 GMT
+
+https://screenrant.com/steam-free-demo-magical-princess-hogwarts-legacy/
+
+This RPG is taking Steam by storm right now, and although it's a mish-mash of a few favorites, it also forges its own identity with positive reviews.
+---------
+
+# Elle Fanning's New Comedy Is The Most Authentic Show Currently On TV
+
+Streaming TV, Margo's Got Money Troubles
+
+Sat, 02 May 2026 01:45:20 GMT
+
+https://screenrant.com/elle-fanning-margos-got-money-troubles-casting-authentic/
+
+Elle Fanning's latest project is a groundbreaking adaptation that dives into a stigmatized subject, but one bold move sets it apart from other shows.
+---------
+
+# One Piece Chapter 1182 Release Date & Time
+
+Anime, One Piece, One Piece (1997)
+
+Sat, 02 May 2026 01:41:50 GMT
+
+https://screenrant.com/one-piece-chapter-1182-release-date-time/
+
+While One Piece goes on a hiatus, chapter 1182 prepares to reveal a massive secret about Imu and Loki as their battle tears Elbaph apart.
+---------
+
+# The Boys' Comic Book Ending Is Impossible Now
+
+Streaming TV, The Boys
+
+Sat, 02 May 2026 01:30:19 GMT
+
+https://screenrant.com/the-boys-comic-ending-impossible-black-noir/
+
+The Boys had early potential to follow the ending of its original comic books, but now, that ending is impossible for a number of reasons.
+---------
+
+# Another Marvel Comics Crime Boss May Be Hiding In Spider-Man's Live-Action Show
+
+TV, Spider-Noir, Explainer
+
+Sat, 02 May 2026 01:30:19 GMT
+
+https://screenrant.com/spider-noir-show-silvermane-crime-boss-rival-gang-war/
+
+Is there a gang war brewing in Prime Video's live-action Spider-Man show? If there is, who could be leading the other side of the conflict?
+---------
+
+# This Shonen Anime is Perfect For Fans of The Devil Wears Prada
+
+Anime, Smile Down the Runway, The Devil Wears Prada
+
+Sat, 02 May 2026 03:45:13 GMT
+
+https://www.cbr.com/forgotten-shonen-anime-perfect-for-devil-wears-prada-fans/
+
+With The Devil Wears Prada 2 making waves in theaters, Smile Down the Runway is the perfect companion piece to the cutthroat world of high-fashion.
+---------
+
+# The 5 Most Important Words in Star Trek History Will Never Be Topped
+
+TV, Star Trek: The Next Generation, Star Trek
+
+Sat, 02 May 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-tng-lets-see-whats-out-there-best-quote/
+
+The closing line of Star Trek: The Next Generation's first episode encapsulates the franchise's central themes.
+---------
+
+# 7 Near-Perfect Game Consoles No One Remembers
+
+Games, Video Games, atari, Neo Geo
+
+Sat, 02 May 2026 03:15:12 GMT
+
+https://www.cbr.com/almost-perfect-atari-neo-geo-game-consoles-no-one-remembers/
+
+Good luck finding someone who has ever played an Atari Lynx or Neo Geo Pocket Color.
+---------
+
+# 20 Cute Age Gap Romances In Manga
+
+Anime, Manga, Romance, webtoon
+
+Sat, 02 May 2026 03:10:14 GMT
+
+https://www.cbr.com/cute-age-gap-manga-romances/
+
+While some age-gap romances can be questionable, others like Serena and Mizukawa from You've Got Me, Senpai are adorable.
+---------
+
+# One Piece Returns to Uniqlo Alongside Elbaph Anime for Summer 2026
+
+Anime, One Piece, merchandise, Clothing
+
+Sat, 02 May 2026 02:50:13 GMT
+
+https://www.cbr.com/one-piece-elbaph-arc-uniqlo-summer-2026-release/
+
+Uniqlo and One Piece are crossing over once more with a new range of clothes, to coincide with the anime's return and the beginning of the Elbaph arc.
+---------
+
+# Why Star Trek's Reboot Trilogy Remains the Perfect Weekend Binge
+
+Movies, Star Trek, Star Trek Into Darkness, Star Trek Beyond
+
+Sat, 02 May 2026 02:45:12 GMT
+
+https://www.cbr.com/weekend-movie-marathon-star-trek-reboot-trilogy/
+
+Starting with J.J. Abrams' 2009 Star Trek, the three-part 'Kelvin Timeline' trilogy of films is a perfect weekend binge for fans of space adventures.
+---------
+
+# 10 Great Shonen Anime That Are Fun From the Start
+
+Anime, Fullmetal Alchemist: Brotherhood, Jujutsu Kaisen, Attack on Titan
+
+Sat, 02 May 2026 02:45:12 GMT
+
+https://www.cbr.com/best-shonen-anime-fun-entertaining-from-the-start/
+
+Some shonen adventures have slow beginnings, yet these series don't waste fans' time with boring first episodes.
+---------
+
+# Steam Users Can Play 2 Free Games Until May 4
+
+Games, Steam
+
+Sat, 02 May 2026 02:27:10 GMT
+
+https://www.cbr.com/steam-free-games-may-4-2026/
+
+Time is running out to play two quality games on Steam for free with no strings attached.
+---------
+
+# 10 Near-Perfect Anime Movies That Are 10/10, No Notes
+
+Anime, Studio Ghibli
+
+Sat, 02 May 2026 02:15:13 GMT
+
+https://www.cbr.com/near-perfect-anime-movies-flawless-start-to-finish/
+
+Anime movies like Spirited Away and Perfect Blue are flawless from start to finish.
+---------
+
+# 10 Strongest Pokémon Trainers Ash Ketchum Never Beat
+
+Anime, Pokémon, Pokemon
+
+Sat, 02 May 2026 02:00:22 GMT
+
+https://www.cbr.com/best-pokemon-trainers-who-beat-ash-list/
+
+Ash Ketchum wanted to be the very best, but there are some powerful Pokémon trainers he never managed to defeat.
+---------
+
+# The Worst Avengers Movie's Deleted Scene Explains the Controversial Reason Captain America Changed His Uniform
+
+Music Features, Avengers: Age of Ultron, Avengers: Doomsday, Chris Evans, Anthony Mackie
+
+Sat, 02 May 2026 03:44:36 GMT
+
+https://collider.com/avengers-age-of-ultron-deleted-scene-captain-america-costume-change-helmet/
+
+A deleted scene from Avengers: Age of Ultron shows Captain America tossing aside his helmet after seeing graffiti calling him a fascist.
+---------
+
+# Netflix’s 6-Part Thriller Inspired by a Real Cult Is Taking Over With 46.9M Hours Watched
+
+TV Features, Unchosen, Christopher Eccleston, Netflix, Asa Butterfield
+
+Sat, 02 May 2026 03:21:13 GMT
+
+https://collider.com/unchosen-thriller-real-cult-inspiration-on-netflix/
+
+Unchosen is a fascinating look at a religious cult that takes inspiration from the thousands of sects that have cropped up around the UK.
+---------
+
+# 'Miami Vice' Reboot Update: Michael B. Jordan and Austin Butler's Crime Drama Set To Dominate 2028
+
+Movie Features, Miami Vice, Joseph Kosinski, Michael B. Jordan, Austin Butler
+
+Sat, 02 May 2026 03:09:14 GMT
+
+https://collider.com/miami-vice-reboot-michael-b-jordan-austin-butler-joseph-kosinski-everything-we-know/
+
+Miami Vice '85, starring Michael B. Jordan and Austin Butler, is expected to be a massive hit for Universal Studios in 2028.
+---------
+
+# HBO's Unique 2-Part Sci-Fi Series Is So Good, It Should've Never Been Cancelled
+
+TV Features, Made For Love, Cristin Milioti, Billy Magnussen, HBO
+
+Sat, 02 May 2026 02:41:14 GMT
+
+https://collider.com/hbo-made-for-love-sci-fi-dramedy-cristin-milioti/
+
+Cristin Milioti stars in this dark sci-fi comedy about technology, romance, and identity, but the show was canceled before exploring its full potential.
+---------
+
+# Apple TV’s Next Sleeper Hit Sci-Fi Series Gets Perfect Update From a ‘Ted Lasso’ Star [Exclusive]
+
+TV News, Juno Temple, Joel Kinnaman, Daniel Ings, Ted Lasso
+
+Sat, 02 May 2026 02:00:23 GMT
+
+https://collider.com/apple-tv-the-husbands-update-juno-temple-sci-fi-rom-com-series/
+
+The Husbands, the new sci-fi rom-com series in the works at Apple TV, gets an update from Ted Lasso's own Juno Temple before Season 4.
+---------
+
+# Netflix's Forgotten 3-Part Psychological Thriller Is One of Its Best Hidden Gems
+
+TV Features, Bloodline, Kyle Chandler, Linda Cardellini, Ben Mendelsohn
+
+Sat, 02 May 2026 01:55:14 GMT
+
+https://collider.com/netflix-bloodline-psychological-thriller-weekend-binge/
+
+Bloodline is a Netflix original series that delves into the complexities of family dynamics and the consequences of buried secrets.
+---------
+
+# HBO Max Officially Has a 4-Part Sci-Fi Reboot That Gets Better With Each Movie
+
+Movie Features, Rise of the Planet of the Apes, War for the Planet of the Apes, Sci-Fi, HBO Max
+
+Sat, 02 May 2026 01:42:14 GMT
+
+https://collider.com/planet-of-the-apes-reboot-streaming-hbo-max/
+
+Planet of the Apes' 4-part reboot reinvigorated the iconic sci-fi franchise, and is now available on HBO Max.
+---------
+
+# Disney’s Near-Perfect Star Wars Spin-Off Will Officially Return Soon
+
+TV News, Star Wars: Maul - Shadow Lord, Star Wars, Disney+, Sam Witwer
+
+Sat, 02 May 2026 01:30:14 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-season-2-release-date-tease-sam-witwer/
+
+Disney's highest-rated Star Wars series, Maul - Shadow Lord, gets an exciting Season 2 update mere days before the Season 1 finale.
+---------
+
+# Karl Urban Officially Breaks Silence on Returning for the Reboot of His Sci-Fi Cult Classic [Exclusive]
+
+Movie News, Dredd 3D, Judge Dredd, Karl Urban, Mortal Kombat II
+
+Sat, 02 May 2026 01:30:14 GMT
+
+https://collider.com/karl-urban-taika-waititi-judge-dredd-sci-fi-reboot-response-mortal-kombat-2/
+
+Ahead of Mortal Kombat II, Karl Urban has broken his silence on Taika Waititi's in-development Judge Dredd reboot.
+---------
+
+# Forget ‘Euphoria,’ HBO Max's Worst Series of All Time Is the Perfect Weekend Binge
+
+TV News, The Idol, HBO, Euphoria, Empire
+
+Sat, 02 May 2026 01:16:13 GMT
+
+https://collider.com/hbo-max-euphoria-replacement-the-idol-streaming-success-may-2026/
+
+HBO's forgotten 2023 music drama is seeing renewed interest following Euphoria's return. Get all the details here.
+---------
+
+# 'Avatar: Fire and Ash' Star Trinity Jo-Li Bliss Addresses Time Jump for 'Avatar 4'
+
+Movie News, Avatar 4, Avatar
+
+Sat, 02 May 2026 02:54:39 GMT
+
+https://movieweb.com/avatar-4-trinity-jo-li-bliss-time-jump-pandora/
+
+'Avatar: Fire and Ash' star Trinity Jo-Li Blissed discussed the lenghty time jump that will be used between the last film and 'Avatar 4.'
+---------
+
+# 8 Great Fantasy Book Series With Better World-Building Than 'Harry Potter'
+
+TV Lists, Harry Potter, Game of Thrones, The Wheel of Time, The Lord of the Rings
+
+Sat, 02 May 2026 02:00:29 GMT
+
+https://movieweb.com/fantasy-books-better-world-building-harry-potter/
+
+The world of 'Harry Potter' is dense and detailed, but it has nothing on these series.
+---------
+
+# 'World War Z' Star Mireille Enos Unaware of a Possible Sequel Return
+
+Movie News, World War Z, World War Z 2, Mireille Enos
+
+Sat, 02 May 2026 01:00:32 GMT
+
+https://movieweb.com/world-war-z-sequel-mireille-enos-return/
+
+The actor seems just as in the dark about the sequel to the 2013 movie as fans are.
+---------
+
+# Crunchyroll's 'Jujutsu Kaisen' Dark Fantasy Action Anime Is a Masterpiece on Streaming
+
+Features, Jujutsu Kaisen, Crunchyroll, Streaming Recommendations, Action
+
+Sat, 02 May 2026 00:21:56 GMT
+
+https://movieweb.com/jujutsu-kaisen-best-fantasy-action-crunchyroll/
+
+'Jujutsu Kaisen,' one of the best anime of all time, is a three-season dark fantasy action masterpiece on streaming.
+---------
+
 # Batman: Arkham Knight Next-Gen Upgrade Unites Gamers
 
 Gaming, Batman: Arkham, Triple-A Games
