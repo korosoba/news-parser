@@ -1,3 +1,267 @@
+# Star Wars Fans Are Already Worried About Its New Kanan Jarrus Replacement
+
+Star Wars, Star Wars: Maul - Shadow Lord, Disney
+
+Sat, 02 May 2026 14:00:19 GMT
+
+https://screenrant.com/devon-izara-sith-theories-maul-shadow-lord/
+
+Star Wars has introduced a seemingly brand-new Jedi Padawan character recently, and there is already worry that she will turn out to be someone else.
+---------
+
+# Timothy Olyphant's Upcoming Crime Thriller Series Will Change The Way You See Him
+
+TV, Masked Recs
+
+Sat, 02 May 2026 14:00:19 GMT
+
+https://screenrant.com/timothy-olyphant-lucky-tv-show-change-image/
+
+Timothy Olyphant's upcoming crime thriller series is going to change the way you see him thanks to a new role that goes against his typical casting.
+---------
+
+# Red Dead Redemption 2 Free Downloads Available To Claim Until May 4
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 02 May 2026 14:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-may-2026/
+
+Red Dead Redemption 2 is currently running one of its regular events, and there are some free downloads available, simply for playing the game.
+---------
+
+# 10 Best Marvel Superheroes Who Originally Span Off From Spider-Man, Ranked
+
+Marvel Comics, Spider-Man, Marvel
+
+Sat, 02 May 2026 14:00:19 GMT
+
+https://screenrant.com/best-marvel-heroes-spin-off-spider-man/
+
+Several famous Marvel superheroes owe their origins to Spider-Man, having made their first comic book appearance in a Peter Parker story.
+---------
+
+# Fire Country Season 5 Hit With Reduced Episode Count
+
+TV, Fire Country
+
+Sat, 02 May 2026 13:53:48 GMT
+
+https://screenrant.com/fire-country-season-5-thirteen-episode-order/
+
+Fire Country season 5 will run for fewer episodes as the popular CBS show competes with robust slate of scripted series in the 2026-2027 season.
+---------
+
+# Marvel's Ultimate Universe Permanently Retires Thor and Sif
+
+Comics, Ultimate Marvel
+
+Sat, 02 May 2026 13:51:33 GMT
+
+https://screenrant.com/marvel-retire-thor-sif-ultimate-universe/
+
+Marvel just officially retired two major characters, familiar from both the MCU and Marvel Comics. And no, they're not coming back.
+---------
+
+# Every Horror Movie Releasing In 2026
+
+New Movies, Horror, We Bury the Dead, Primate, 28 Years Later: The Bone Temple, Return to Silent Hill, Mother of Flies, Send Help, The Strangers - Chapter 3, Psycho Killer, Scream 7, They Will Kill You, Lee Cronin's The Mummy, Obsession, Evil Dead Burn, Insidious: Out of the Further, Clayface, Resident Evil, Werwulf
+
+Sat, 02 May 2026 13:45:19 GMT
+
+https://screenrant.com/2026-horror-movies-release-dates/
+
+2026 has no shortage of horror movies releasing throughout the year, with some big-name directors and major franchises contributing to the lineup.
+---------
+
+# Netflix's 6-Part Action Series Will Leave You 100% Satisfied After The Final Episode
+
+TV, Cobra Kai, The Karate Kid, Netflix
+
+Sat, 02 May 2026 13:31:20 GMT
+
+https://screenrant.com/cobra-kai-netflix-guaranteed-satisfying-final-episode/
+
+Netflix's best martial arts series had a risky premise, but the franchise reboot offered viewers one of TV's most satisfying finales in years.
+---------
+
+# The Biggest Difference Between HBO's Harry Potter Series & The Movies Won't Be The Extra Book Material
+
+Streaming TV, Harry Potter
+
+Sat, 02 May 2026 13:15:19 GMT
+
+https://screenrant.com/harry-potter-tv-show-biggest-book-change-setup-foreshadowing/
+
+Explore the advantages of adapting Harry Potter as an HBO TV series, including the ability to leverage a more cohesive adaptation over the movies.
+---------
+
+# 5 Clone Wars Characters Who Are Perfect For Ahsoka Season 2
+
+Star Wars, Ahsoka
+
+Sat, 02 May 2026 13:15:19 GMT
+
+https://screenrant.com/star-wars-clone-wars-characters-ahsoka-season-2-perfect/
+
+With Dave Filoni at the helm, Ahsoka season 2 will almost certainly call back to The Clone Wars in some way, and these characters would fit right in.
+---------
+
+# Galaxy Quest, Now Streaming on Paramount+, Is The Perfect Star Trek Replacement
+
+Movies, Galaxy Quest, Star Trek, Sci-Fi
+
+Sat, 02 May 2026 14:00:13 GMT
+
+https://www.cbr.com/galaxy-quest-perfect-star-trek-replacement/
+
+27 years later, this loving homage to Star Trek is required viewing for fans of the legendary science-fiction franchise.
+---------
+
+# Star Trek: The Original Series' Most Iconic Episode: 'The Devil in the Dark'
+
+TV, Star Trek: The Original Series
+
+Sat, 02 May 2026 13:30:13 GMT
+
+https://www.cbr.com/star-trek-the-devil-in-the-dark-cast-favorite-episode/
+
+Star Trek: The Original Series produced many classic episodes, but the show's stars, William Shatner and Leonard Nimoy, have a mutual favorite.
+---------
+
+# The 15 Best Scenes From The Godfather Trilogy, Ranked
+
+Movies, The Godfather, Crime
+
+Sat, 02 May 2026 13:30:13 GMT
+
+https://www.cbr.com/the-godfather-trilogy-best-scenes-list/
+
+The Godfather trilogy is the best trilogy in cinematic history. Hundreds of quality scenes must come together to create this incredible epic.
+---------
+
+# Andy Serkis Explains Why Animal Farm Had To Change
+
+Movies, Animal Farm, andy serkis, Heroes Journey Podcast
+
+Sat, 02 May 2026 13:15:12 GMT
+
+https://www.cbr.com/video/andy-serkis-explains-why-animal-farm-had-to-change/
+
+Andy Serkis explains why Animal Farm had to change for a new generation, and why this adaptation may divide longtime Orwell fans.In this Heroes Journey Podcast episode, Rachel Leishman talks with Andy Serkis about adapting George Orwell’s Animal Farm as an animated movie with a younger audience in mind. Serkis breaks down why the story still matters, how Orwell’s themes of power, corruption, misinformation, and dictatorship remain painfully relevant, and why he did not want the movie to feel like a lecture.The conversation digs into the biggest creative choices behind Animal Farm, including the new piglet character Lucky, the decision to make the film more accessible without abandoning Orwell’s darker ideas, and why Serkis believes the movie should start debate rather than chase an algorithm.Serkis also explains how Rise of the Planet of the Apes helped inspire his approach, why he wanted the animation to feel cinematic and physically real, and how the voice cast shaped the film.
+---------
+
+# One Piece Characters Who Would Be Terrifying Demons In Demon Slayer
+
+Anime, One Piece, Demon Slayer: Kimetsu no Yaiba
+
+Sat, 02 May 2026 13:15:12 GMT
+
+https://www.cbr.com/one-piece-characters-terrifying-demons-in-demon-slayer/
+
+These One Piece characters would make for nightmare-level threats as demons in the dark setting of Demon Slayer.
+---------
+
+# NTE: New Open World JRPG Celebrates Launch With Free S-Rank Character & More
+
+Anime, open world, PlayStation 5
+
+Sat, 02 May 2026 13:00:14 GMT
+
+https://www.cbr.com/nte-open-world-jrpg-free-s-rank-character/
+
+The new open-world JRPG described as ZZZ meets GTA is giving away free in-game rewards and an S-Rank character for its 2026 release.
+---------
+
+# The Strongest Mortal Kombat II Movie Characters, Ranked
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Sat, 02 May 2026 13:00:14 GMT
+
+https://www.cbr.com/mortal-kombat-2-movie-strongest-characters-list/
+
+The upcoming film Mortal Kombat II will feature deadly fighters from across the realms, but which of these Kombatants is the mightiest?
+---------
+
+# Chris Pine’s Pulse-Pounding Spy Thriller Is the Paramount+ Hit No One Saw Coming
+
+Movie News, Kiefer Sutherland, Chris Pine, The Contractor, Paramount Plus
+
+Sat, 02 May 2026 14:01:14 GMT
+
+https://collider.com/chris-pine-war-spy-thriller-the-contractor-streaming-success-paramount-plus-may-2026/
+
+The Bourne Ultimatum meets Jack Ryan in Chris Pine’s sleeper hit sensation taking Paramount+ by storm 4 years after it’s initial release.
+---------
+
+# 10 Greatest 'Devil Wears Prada' Quotes, Ranked
+
+Movie, The Devil Wears Prada, The Devil Wears Prada 2, Meryl Streep, Drama
+
+Sat, 02 May 2026 13:41:14 GMT
+
+https://collider.com/the-devil-wears-prada-best-quotes-ranked/
+
+The Devil Wears Prada, starring Meryl Streep, is among the most iconic and quotable movies of the 2000s, and these unforgettable lines prove it.
+---------
+
+# The Star Wars Film Fans Love to Hate Is Taking Over Disney+ Right Now
+
+Movie News, Star Wars, Star Wars: Episode I - The Phantom Menace, George Lucas, Sci-Fi
+
+Sat, 02 May 2026 13:30:13 GMT
+
+https://collider.com/star-wars-the-phantom-menace-streaming-success-disney-plus-may-2026/
+
+Fans refuse to give up on one of Star Wars’ most divisive entries as the film takes over Disney+ ahead of the franchise’s return to theaters.
+---------
+
+# Russell Crowe's Big-Budget Disaster Epic Is Dominating Streaming Right Now
+
+Movie News, Noah, Russell Crowe, Emma Watson, Jennifer Connelly
+
+Sat, 02 May 2026 13:01:13 GMT
+
+https://collider.com/russell-crowe-epic-disaster-movie-noah-streaming-success-pluto-tv-may-2026/
+
+Russell Crowe’s forgotten big-budget disaster epic has officially become one of streaming’s most resilient hits over 10 years later.
+---------
+
+# Will Netflix's 'Man on Fire' Remake Get a Season 2 After Season 1's Cliffhanger Ending?
+
+Exclusives, Man on Fire, Yahya Abdul-Mateen II, Steven Caple Jr., Netflix
+
+Sat, 02 May 2026 13:01:13 GMT
+
+https://collider.com/man-on-fire-netflix-season-2-yahya-abdul-mateen-ii-john-creasy/
+
+Yahya Abdul-Mateen II discusses the Season 1 finale, what he wants to explore in Season 2, as well as Marvel's Wonder Man Season 2 on Disney+.
+---------
+
+# 'Apex' Reigns Supreme on Streaming Over Sydney Sweeney's 'Euphoria'
+
+TV News, Sydney Sweeney, Euphoria, Apex, Action, Hot on Streaming
+
+Sat, 02 May 2026 14:00:18 GMT
+
+https://movieweb.com/netflix-apex-beats-sydney-sweeney-hbo-euphoria-on-streaming/
+
+Netflix's newest hit action thriller took top spot across all of streaming for the week of April 20-26, keeping Sweeney's HBO smash in second place.
+---------
+
+# 'Star Wars: Maul - Shadow Lord' Finally Offers A Fresh Twist On 'The Lone Wolf And Cub' Samurai Trope
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars, The Mandalorian, Obi-Wan Kenobi, Star Wars: The Bad Batch
+
+Sat, 02 May 2026 14:00:18 GMT
+
+https://movieweb.com/star-wars-maul-lone-wolf-and-cub-trope/
+
+The Disney era has frequently incorporated the 'Lone Wolf and Cub' trope. However, Maul - Shadow Lord offers a fresh twist on the familiar trend.
+---------
+
 # Resident Evil, Red Dead Redemption Collide In New Western Horror Game
 
 Gaming, Steam, Triple-A Games
