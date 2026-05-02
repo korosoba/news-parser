@@ -1,3 +1,223 @@
+# This Is The Best Anime Dub In Years, And It's Not Even Close
+
+Anime, Op-Ed
+
+Sat, 02 May 2026 15:00:20 GMT
+
+https://screenrant.com/witch-hat-atelier-english-dub-amazing/
+
+Anime fans need to watch this show in English.
+---------
+
+# 2028 Is Now An Even Bigger Year For Video Game Movies
+
+Movies, Elden Ring, Call of Duty
+
+Sat, 02 May 2026 15:00:20 GMT
+
+https://screenrant.com/video-games-movies-2028-releases-update/
+
+2028 already has a few major video game movies on its schedule, but a recent update from one studio just made the year's lineup even more exciting.
+---------
+
+# 11 Game Of Thrones Characters Who Deserved Better
+
+Classic TV, Game Of Thrones, Game of Thrones
+
+Sat, 02 May 2026 15:00:20 GMT
+
+https://screenrant.com/game-of-thrones-characters-deserved-better/
+
+Explore the bittersweet and undeserved fates of these fan-favorite Game of Thrones characters who didn't receive the endings they received.
+---------
+
+# Pokémon Solar Eclipse Has Landed, And It's Stunning
+
+Gaming, Pokemon
+
+Sat, 02 May 2026 15:00:20 GMT
+
+https://screenrant.com/pokemon-solar-eclipse-rom-hack-download/
+
+Pokémon Solar Eclipse is a brand-new fan game that really pushes the boat out to become one of the most ambitious projects of its type.
+---------
+
+# DC Villain Who “Scared The S**t” Out Of James Gunn Teased To Return In 95% RT Series
+
+TV, Creature Commandos, DC Universe, DC
+
+Sat, 02 May 2026 14:45:40 GMT
+
+https://screenrant.com/creature-commandos-season-2-starro-the-conqueror-dcu-tease/
+
+As the DCU continues to expand, a villain who "scared the s**t" out of James Gunn is teased to be in season 2 of a show with 95% on Rotten Tomatoes.
+---------
+
+# 10 Best Joaquin Phoenix Movies (#1 Is A $1B+ Box Office Hit)
+
+Movies, Joaquin Phoenix, Gladiator, Her, Walk The Line, Joker
+
+Sat, 02 May 2026 14:42:19 GMT
+
+https://screenrant.com/joaquin-phoenix-best-movies/
+
+From “Joker” to “Her” and “Gladiator,” Joaquin Phoenix has built one of the boldest careers in modern Hollywood. Here are his 10 best movies, ranked.
+---------
+
+# Netflix's Upcoming Fantasy Detective Series Marks The Beginning Of A New Era
+
+TV, Netflix, Scooby-Doo
+
+Sat, 02 May 2026 14:31:20 GMT
+
+https://screenrant.com/netflixs-upcoming-fantasy-detective-series-marks-the-beginning-of-a-new-era/
+
+After 57 years, one iconic franchise is finally ready to make a bold move with Netflix's upcoming supernatural mystery series, a daring prequel.
+---------
+
+# One Of The Best N64 Games Of All Time May Be Headed To PC Soon
+
+Gaming, Nintendo
+
+Sat, 02 May 2026 14:30:18 GMT
+
+https://screenrant.com/best-n64-game-pc-recomp-harvest-moon/
+
+The power of fandom has brought a groundbreaking N64 title closer to a new generation of players.
+---------
+
+# Toy Story 5 Could Finally Confirm The Emily Theory
+
+Movies, Toy Story 5
+
+Sat, 02 May 2026 14:30:18 GMT
+
+https://screenrant.com/toy-story-emily-andys-mom-theory-2026-perfect-chance/
+
+This summer, in Toy Story 5, Pixar can finally confirm or deny the popular fan theory that Emily, Jessie's original owner, is really Andy's mom.
+---------
+
+# Batman's Stephanie Brown Debuts Jaw-Dropping New Design, Returning to Robin Codename
+
+Comics, Batman, Robin
+
+Sat, 02 May 2026 14:30:18 GMT
+
+https://screenrant.com/absolute-batman-stephanie-brown-robin-redesign/
+
+Batman's most underrated Robin is finally returning to the codename, debuting an awesome redesign including a new costume, weapon and vehicle.
+---------
+
+# Nicolas Cage's The Sorcerer's Apprentice Remains Disney's Weirdest Live-Action Remake
+
+Movies, The Sorcerer's Apprentice, Disney
+
+Sat, 02 May 2026 15:01:13 GMT
+
+https://www.cbr.com/nicolas-cage-sorcerers-apprentice-cult-hit-weirdest-disney-live-action-remake/
+
+Disney attempted to create a new franchise from a strange idea, but despite its potential, it didn't quite live up to expectations.
+---------
+
+# 5 Most Unplayable Classic 2000s Games
+
+Games, Video Games, Sonic the Hedgehog
+
+Sat, 02 May 2026 15:01:13 GMT
+
+https://www.cbr.com/official-most-unplayable-classic-2000s-games/
+
+It's a slog trying to play 2000s games like Sonic the Hedgehog and Universal Studios Theme Park Adventure.
+---------
+
+# Monarch: Legacy of Monsters Confirms Why Godzilla Didn't Kill Kong
+
+TV, Monsterverse, Monarch: Legacy of Monsters, Godzilla, King Kong
+
+Sat, 02 May 2026 14:30:12 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-why-godzilla-didnt-kill-kong/
+
+The second season of Monarch: Legacy of Monsters clarifies Godzilla's purpose by showcasing a strange sense of compassion in the Titan king.
+---------
+
+# Tangled Live-Action Remake Casts Diego Luna in an Original Role
+
+Movies, Tangled
+
+Sat, 02 May 2026 14:20:50 GMT
+
+https://www.cbr.com/tangled-live-action-diego-luna-original-role/
+
+Disney's hit animation will receive a live-action remake.
+---------
+
+# Skyrim Officially Gets New Release, Available Now
+
+Games, The Elder Scrolls V: Skyrim, Nintendo Switch
+
+Sat, 02 May 2026 14:20:13 GMT
+
+https://www.cbr.com/skyrim-new-release-2026-available-now/
+
+The Elder Scrolls V: Skyrim is officially back for another system, although it might not be the new release that fans were hoping to see.
+---------
+
+# 10 Most Universally Beloved Anime of All Time
+
+Anime, One Piece, Cowboy Bebop, shonen anime
+
+Sat, 02 May 2026 14:15:13 GMT
+
+https://www.cbr.com/universally-beloved-anime/
+
+Some anime series are so beloved by fans, they are basically immune to criticism.
+---------
+
+# That Time I Got Reincarnated as a Slime Movie Timeline Confusion Solved
+
+Movies, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea
+
+Sat, 02 May 2026 14:15:13 GMT
+
+https://www.cbr.com/video/that-time-i-got-reincarnated-as-a-slime-movie-timeline-confusion-solved/
+
+Brittany Karbowski (Rimuru) and Amber Lee Connors (Elmesia) dive into the Slime movie timeline, revealing it plays more like a standalone story between seasons rather than strict canon. They also unpack Elmesia’s true intentions, Rimuru’s growth, and how the dub brings these characters to life. Plus, you’ll hear the surprising origin of “my guy” and how Rimuru’s unique voice was crafted.
+---------
+
+# 'Devil Wears Prada 2' Shatters Box Office Records for Both Anne Hathaway and Meryl Streep
+
+Movie News, Anne Hathaway, Meryl Streep, The Devil Wears Prada 2, The Devil Wears Prada
+
+Sat, 02 May 2026 15:00:14 GMT
+
+https://collider.com/the-devil-wears-prada-2-box-office-debut-record-80-million-anne-hathaway-meryl-streep/
+
+The Devil Wears Prada 2 has officially shattered box office records for both Anne Hathaway and Meryl Streep. See how much the sequel has made.
+---------
+
+# 10 Fantasy Movies With the Best World-Building, Ranked
+
+Movie, Fantasy, The Wizard of Oz, The Green Knight, Star Wars: Episode IV - A New Hope
+
+Sat, 02 May 2026 14:28:13 GMT
+
+https://collider.com/fantasy-movies-best-world-building/
+
+Fantasy movies like The Wizard of Oz, Harry Potter and the Sorcerer's Stone, and The Dark Crystal have some of the best world-building of the genre.
+---------
+
+# William Shatner & Leonard Nimoy's Favorite 'Star Trek' Episode: "The Devil in the Dark"
+
+Features, Star Trek: The Original Series, Star Trek
+
+Sat, 02 May 2026 15:00:18 GMT
+
+https://movieweb.com/star-trek-william-shatner-leonard-nimoy-favorite-episode/
+
+One of 'Star Trek's most indelible horror episodes, "The Devil in the Dark," has aged like fine wine.
+---------
+
 # Star Wars Fans Are Already Worried About Its New Kanan Jarrus Replacement
 
 Star Wars, Star Wars: Maul - Shadow Lord, Disney
