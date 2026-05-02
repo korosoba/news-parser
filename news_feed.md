@@ -1,3 +1,267 @@
+# Resident Evil, Red Dead Redemption Collide In New Western Horror Game
+
+Gaming, Steam, Triple-A Games
+
+Sat, 02 May 2026 12:31:20 GMT
+
+https://screenrant.com/red-dead-resident-evil-western-horror-rpg/
+
+Two worlds collide as a new game manages to wrangle up both horror elements and action in the old west, creating an intriguing concept.
+---------
+
+# 10 Best Oscar Isaac Movies & Shows, Ranked
+
+Movies, Oscar Isaac
+
+Sat, 02 May 2026 12:31:20 GMT
+
+https://screenrant.com/oscar-isaac-best-movies-tv-shows/
+
+The Golden Globe-winning actor has been in a number of high quality films and shows, and these 10 stand out above the rest.
+---------
+
+# Steam Drops New Free Game To Satisfy Your Zelda Itch
+
+Gaming, Steam
+
+Sat, 02 May 2026 12:31:20 GMT
+
+https://screenrant.com/steam-free-game-may-2026-zelda-vibes/
+
+A new game on Steam is perfect if you're a fan of The Legend of Zelda, and you can actually play it for right now, so you don't want to miss it.
+---------
+
+# 10 Most Iconic Pokémon From Gen 4
+
+Gaming, Pokemon Diamond and Pearl, Pokemon
+
+Sat, 02 May 2026 12:31:20 GMT
+
+https://screenrant.com/pokemon-most-popular-gen-4-sinnoh/
+
+Pokémon Diamond and Pearl introduced one of the best generations ever, but these Gen 4 Pokémon from Sinnoh have withstood the test of time.
+---------
+
+# Netflix’s 5-Part Crime Thriller With Near-Perfect Rotten Tomatoes Score Changed Streaming Forever
+
+TV, Netflix, Masked Recs
+
+Sat, 02 May 2026 12:01:19 GMT
+
+https://screenrant.com/money-heist-netflix-changed-streaming/
+
+One bold move by Netflix in 2018 changed the streaming landscape forever, paving the way for international hits with an acclaimed crime thriller.
+---------
+
+# Bullseye Achieves Marvel's Most Mind-Blowing Accuracy Record
+
+Marvel Comics, Bullseye, Marvel
+
+Sat, 02 May 2026 12:00:19 GMT
+
+https://screenrant.com/bullseye-broke-record-hawkeye-joke-marvel/
+
+A famous Marvel villain just pulled off an absurd feat of accuracy that surpasses Hawkeye's most impressive records and cements him as a superhuman.
+---------
+
+# 10 Great Movies And Shows Made Possible By Trans Artists
+
+Movies, The Matrix, The Amazing Digital Circus, The Shining, Paris Is Burning, Pose, Nimona, Boy Meets Girl, I Saw the TV Glow
+
+Sat, 02 May 2026 12:00:19 GMT
+
+https://screenrant.com/great-movies-shows-trans-artists/
+
+Trans artists have played a major role in the filmmaking process for decades by bringing some of the greatest stories to the big and small screen.
+---------
+
+# Cyberpunk 2077 Romance Expansion Adds A Handful Of New Quests
+
+Gaming, Cyberpunk 2077
+
+Sat, 02 May 2026 12:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-panam-romance-expansion/
+
+The Go On a Date (Panam) mod for Cyberpunk 2077 adds extensive new content to the Panam romance, including 108 phone messages, and more.
+---------
+
+# Great Cyberpunk Shows Nobody Remembers
+
+TV, Cyberpunk, Altered Carbon, Almost Human, Continuum, Dark Angel, Blade Runner: Black Lotus
+
+Sat, 02 May 2026 12:30:12 GMT
+
+https://www.cbr.com/great-forgotten-cyberpunk-shows-list/
+
+An iconic sci-fi subgenre, cyberpunk stories are hard to adapt, but some forgotten television series made very worthy attempts.
+---------
+
+# Bizarre Batman Villains Will Get Even Scarier in the Absolute Universe
+
+Comics, Absolute Batman
+
+Sat, 02 May 2026 12:00:12 GMT
+
+https://www.cbr.com/absolute-batman-scarier-bizarre-villains-confirmed-by-scott-snyder/
+
+Absolute Batman's rogues' gallery might be getting a little weirder.
+---------
+
+# Amy Adams' Sci-Fi Masterpiece Arrival Is the Perfect Project Hail Mary Replacement
+
+Movies, Arrival, Project Hail Mary, Sci-Fi
+
+Sat, 02 May 2026 12:00:12 GMT
+
+https://www.cbr.com/sci-fi-movies-like-project-hail-mary-arrival-amy-adams/
+
+Project Hail Mary and Arrival define a brand-new era of ‘hopecore’ sci-fi built on intellect, language, and massive emotional stakes.
+---------
+
+# Jujutsu Kaisen VA Scheduling Made 2026’s Top Isekai Anime Even Better
+
+CBR Exclusives, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, That Time I Got Reincarnated as a Slime
+
+Sat, 02 May 2026 12:00:12 GMT
+
+https://www.cbr.com/reincarnated-as-a-slime-allegra-clark-yura-interview/
+
+In an interview with CBR, JJK’s Maki VA reveals the full-circle moment when her role as a brand-new Reincarnated as a Slime character finally clicked.
+---------
+
+# 9 Greatest 6-Episode Miniseries, Ranked
+
+TV, TV Miniseries, Black Bird, Pride And Prejudice, We Own This City
+
+Sat, 02 May 2026 12:52:13 GMT
+
+https://collider.com/best-miniseries-6-episodes-ranked/
+
+From the period drama Pride and Prejudice to Apple TV's Black Bird, these miniseries are a testament to what can be achieved in just six episodes.
+---------
+
+# The Worst Harry Potter Movie Is Officially Leaving Streaming Ahead of HBO's Reboot
+
+Movie News, Fantastic Beasts: The Crimes of Grindelwald, Harry Potter, Johnny Depp, Jude Law
+
+Sat, 02 May 2026 12:45:14 GMT
+
+https://collider.com/worst-harry-potter-movie-fantastic-beasts-crimes-of-grindelwald-leaving-hbo-max-june-2026/
+
+The critically panned Harry Potter prequel film Fantastic Beasts: The Crimes of Grindelwald is leaving its streaming home. Find out when.
+---------
+
+# 10 Greatest Epic Movie Climaxes, Ranked
+
+Movie, The Lord of the Rings: The Two Towers, Seven Samurai, The Good, the Bad and the Ugly, Titanic
+
+Sat, 02 May 2026 12:30:12 GMT
+
+https://collider.com/best-epic-movie-climaxes-ranked/
+
+The best epic movie climaxes can be found in masterpieces like Titanic, Seven Samurai, and The Lord of the Rings: The Return of the King.
+---------
+
+# Anya Taylor-Joy’s M. Night Shyamalan Thriller Is One Last Watch Away From Leaving Streaming
+
+Movie News, Split, Anya Taylor-Joy, M. Night Shyamalan, James McAvoy
+
+Sat, 02 May 2026 12:30:12 GMT
+
+https://collider.com/anya-taylor-joy-m-night-shyamalan-thriller-split-leaving-hbo-max-june-2026/
+
+Anya Taylor-Joy's first major blockbuster alongside James McAvoy, Split, is leaving its streaming home soon. Find out when.
+---------
+
+# The Hobbit Trilogy's Best Character Will Officially Return for the Next Lord of the Rings Movie
+
+Movie Features, The Lord of the Rings: The Hunt for Gollum, Lee Pace, The Hobbit, Fantasy
+
+Sat, 02 May 2026 12:20:12 GMT
+
+https://collider.com/lord-of-the-rings-hunt-for-gollum-thranduil-lee-pace-return-hobbit-trilogy/
+
+Fans are excited about Jamie Dornan's Aragorn in The Hunt for Gollum, but the best casting news is Lee Pace's Thranduil return.
+---------
+
+# 3 Years Later, Gerard Butler's Tense War Thriller Finds a Second Life on Free Streaming
+
+Movie Features, Kandahar, Gerard Butler, Travis Fimmel, Ali Fazal
+
+Sat, 02 May 2026 12:15:13 GMT
+
+https://collider.com/gerard-butler-war-thriller-kandahar-free-streaming-tubi-pluto/
+
+Gerard Butler's Kandahar is a tense war thriller that shows a different side of the B-movie action star, and it's available for free.
+---------
+
+# America's Take on This Successful Legal Comedy Completely Failed After 13 Episodes
+
+TV Features, Rake, Fox, Greg Kinnear, Miranda Otto
+
+Sat, 02 May 2026 12:03:12 GMT
+
+https://collider.com/rake-legal-drama-us-adaptation-cancelled/
+
+Despite its original success, the U.S. version of the Australian legal comedy, Rake, fell flat and was cancelled before it got a chance to shine.
+---------
+
+# 10 Greatest Thriller Masterpieces of the Last 80 Years, Ranked
+
+Movie, Thriller, The Silence of the Lambs, Rear Window, Se7en
+
+Sat, 02 May 2026 12:02:13 GMT
+
+https://collider.com/best-thriller-movie-masterpieces-last-80-years-ranked/
+
+From the subversive Dog Day Afternoon to the outright revolutionary The Silence of the Lambs, these are the best thriller movies of the last 80 years.
+---------
+
+# Kris Kristofferson Wrote This Classic Song Before Janis Joplin Made It a No. 1 Hit
+
+Music Features, Janis Joplin, Music, Rock, Billboard Hot 100
+
+Sat, 02 May 2026 12:01:13 GMT
+
+https://collider.com/kris-kristofferson-wrote-me-and-bobby-mcgee-before-janis-joplin-made-it-a-no-1-hit/
+
+The unexpected origins of Kris Kristofferson's classic song its inspiration, and how Janis Joplin's powerful cover made it a No. 1 hit.
+---------
+
+# Say Goodbye to Hugh Jackman's Near-Perfect Sci-Fi Masterpiece on HBO Max
+
+Movie News, Logan, Hugh Jackman, Dafne Keen, Superhero
+
+Sat, 02 May 2026 12:01:13 GMT
+
+https://collider.com/hugh-jackman-near-perfect-sci-fi-marvel-masterpiece-logan-leaving-hbo-max-june-2026-wolverine/
+
+The superhero masterpiece Logan, whose legacy was tarnished by Deadpool & Wolverine, is leaving its streaming home. Find out when.
+---------
+
+# Megan Fox Cult Classic Horror 'Jennifer’s Body' Lands on Netflix
+
+Movie News, Jennifer's Body, Coming/Leaving Streaming
+
+Sat, 02 May 2026 12:51:35 GMT
+
+https://movieweb.com/jennifers-body-streaming-netflix-may-2026/
+
+There hasn't been a better coming-of-age horror film in the last 20 years.
+---------
+
+# Michael Jackson's 'Moonwalker' Becomes Global Hit on HBO Max
+
+Movie News, Moonwalker, Michael, Hot on Streaming, Fantasy
+
+Sat, 02 May 2026 12:00:17 GMT
+
+https://movieweb.com/michael-jackson-moonwalker-streaming-hit-hbo-max-may-2026/
+
+Following the success of 'Michael,' the King of Pop's 1988 musical fantasy epic has resurfaced on streaming to become to smash hit.
+---------
+
 # HBO's 3-Part Mystery Thriller Is So Great, It Demands To Be Rewatched
 
 Classic TV, Masked Recs
