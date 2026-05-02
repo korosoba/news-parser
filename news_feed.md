@@ -1,3 +1,234 @@
+# 10 Praiseworthy Dark Fantasy Movies No One Ever Talks About
+
+Movies, The Secret of NIMH, The Dark Crystal, Gretel & Hansel, Snow White: A Tale of Terror, Legend, The Neverending Story, Dragonslayer, The Head Hunter, Highlander, The Last Unicorn
+
+Sat, 02 May 2026 18:05:19 GMT
+
+https://screenrant.com/great-dark-fantasy-movies-no-one-talks-about/
+
+Dark fantasy fans all know the classics, like Pan's Labyrinth, but many great movies in the genre fall into obscurity and are still worth your time.
+---------
+
+# Steam's New Free RPG Is Cyberpunk 2077 Meets Genshin Impact
+
+Gaming, Steam, Triple-A Games
+
+Sat, 02 May 2026 18:00:20 GMT
+
+https://screenrant.com/steam-free-open-world-rpg-zenless-zone-zero/
+
+There are myriad unique games on Steam, and this time you'll be able to find Cyberpunk meets Genshin Impact for free in the very near future.
+---------
+
+# After 65 Years, One of Marvel's Oldest Characters Debuts Their First Iron Man Armor
+
+Comics, Iron Man
+
+Sat, 02 May 2026 18:00:20 GMT
+
+https://screenrant.com/iron-man-armor-fin-fang-foom/
+
+It looks good on them.
+---------
+
+# Toy Story 5 Officially Revives A Devastating Jessie Storyline
+
+Movies, Toy Story 5, Toy Story
+
+Sat, 02 May 2026 17:58:13 GMT
+
+https://screenrant.com/toy-story-5-jessie-emily-storyline-revive/
+
+27 years after first being introduced, a devastating Jessie storyline is being brought back in an intriguing way for Pixar's Toy Story 5.
+---------
+
+# Disney’s Songs In Sign Language Makes One Major Mistake
+
+Movies, Disney
+
+Sat, 02 May 2026 17:45:20 GMT
+
+https://screenrant.com/disney-sign-language-songs-animation-mistake/
+
+Disney introduced a fascinating new program recreating its best songs in sign language, but they feature a major mistake that needs to be fixed.
+---------
+
+# The Deep & Black Noir's Sibling-Like Rivalry In The Boys Season 5 Explained By Chace Crawford
+
+Interviews, The Boys, The Boys - Season 5
+
+Sat, 02 May 2026 17:30:52 GMT
+
+https://screenrant.com/the-boys-season-5-black-noir-the-deep-sibling-rivalry-chace-crawford/
+
+The Boys star Chace Crawford explains the back-and-forth bickering between The Deep and Black Noir in season 5, and why his character is so affected.
+---------
+
+# Pokémon Winds & Waves Release Date Splits Gamers
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Sat, 02 May 2026 17:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-release-date-leak-reaction/
+
+A possible Pokémon Winds & Waves release date has leaked online, and fans are a bit split on what that means for the upcoming Gen 10 games.
+---------
+
+# Sydney Sweeney’s Most Controversial Project Ever Can't Beat Netflix’s New R-Rated Action Hit
+
+TV, Sydney Sweeney
+
+Sat, 02 May 2026 17:28:15 GMT
+
+https://screenrant.com/sydney-sweeney-euphoria-apex-netflix-action-thriller-streaming-battle/
+
+Sydney Sweeney's most controversial role is struggling to beat this Netflix R-rated thriller, as a shocking report shows Sweeney may not succeed.
+---------
+
+# 10 Best Movies To Watch After The Devil Wears Prada 2
+
+Movies, The Devil Wears Prada 2
+
+Sat, 02 May 2026 17:15:19 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-best-movies-watch-after/
+
+Each of these films is the perfect watch for anyone who saw this year’s The Devil Wears Prada 2 and immediately needed a whole lot more like it.
+---------
+
+# Pokémon's Original Starters Officially Return for 'Golden' 30th Anniversary Reveal
+
+Anime, Pokemon, merchandise, food
+
+Sat, 02 May 2026 18:00:13 GMT
+
+https://www.cbr.com/pokemon-gen-1-starter-anniversary-release-goldfish/
+
+The 30th anniversary of Pokémon is getting even cheesier with a new round of branded Goldfish cheese crackers featuring the classic Kanto starters.
+---------
+
+# 10 Marvel Characters Who Had Huge Potential But Were Wasted
+
+Comics, Marvel
+
+Sat, 02 May 2026 18:00:13 GMT
+
+https://www.cbr.com/major-marvel-characters-who-were-wasted-potential/
+
+Marvel has such an incredible roster of characters that it is surprising that so many of them haven't quite lived up to expectations.
+---------
+
+# Netflix’s Man on Fire Star Yahya Abdul-Mateen II Addresses Season 2 Plans
+
+TV, Man on Fire
+
+Sat, 02 May 2026 17:41:24 GMT
+
+https://www.cbr.com/netflix-man-on-fire-season-2-plans/
+
+The remake of the 2004 Denzel Washington film is a major streaming hit.
+---------
+
+# Sony's Venom Animated Movie Is Bad News for Spider-Man Fans
+
+Movies, Venom, Spider-Man, superheroes
+
+Sat, 02 May 2026 17:30:13 GMT
+
+https://www.cbr.com/sonys-new-venom-movie-end-of-an-era-spider-man/
+
+Sony is officially making a new Venom movie, but it won't be what Spider-Man fans have been waiting for.
+---------
+
+# 7 Near-Perfect Open World Games No One Ever Talks About
+
+Games, open world, Sunset Overdrive, Dying Light, Mad Max
+
+Sat, 02 May 2026 17:15:12 GMT
+
+https://www.cbr.com/near-perfect-open-world-games-no-one-ever-talks-about/
+
+From The Saboteur and Mad Max to Gravity Rush 2 and Sunset Overdrive, these near-perfect open-world games were buried by bad timing, dead studios, and
+---------
+
+# 4 Years Later, Russell Crowe’s Vietnam War Movie Quietly Becomes a Late-Night Favorite
+
+Movie News, The Greatest Beer Run Ever, Russell Crowe, Zac Efron, Apple TV
+
+Sat, 02 May 2026 18:00:14 GMT
+
+https://collider.com/russell-crowe-forgotten-vietnam-war-movie-the-greatest-beer-run-ever-streaming-success-apple-tv-may-2026/
+
+Russell Crowe's forgotten Vietnam war movie, The Greatest Beer Run Ever, is still a #1 late-night favorite on Apple TV.
+---------
+
+# 8 Most Divisive Sci-Movies of All Time, Ranked
+
+Movie, Eternals, Sci-Fi, Don't Look Up, Star Wars: Episode VIII - The Last Jedi
+
+Sat, 02 May 2026 17:57:13 GMT
+
+https://collider.com/most-divisive-sci-movies-all-time-ranked/
+
+War of the Worlds, The Core, About Time, Solaris, Tenet, Eternals, and more make up our list of the most divisive sci-fi movies of all time.
+---------
+
+# NBC Officially Decides the Fate of Its Sleeper Hit Medical Thriller After 2 Seasons
+
+TV News, Brilliant Minds, The Pitt, NBC, Zachary Quinto
+
+Sat, 02 May 2026 17:30:58 GMT
+
+https://collider.com/zachary-quinto-medical-thriller-brilliant-minds-season-3-cancelled-nbc/
+
+NBC has definitively decided the fate of Star Trek icon Zachary Quinto's fan-favorite medical thriller, Brilliant Minds.
+---------
+
+# Ridley Scott's Best Sci-Fi Film Has the Most Unlikely Origin Story in Hollywood
+
+Movie Features, The Martian, Ridley Scott, Andy Weir, Sci-Fi
+
+Sat, 02 May 2026 17:28:14 GMT
+
+https://collider.com/ridley-scott-the-martian-andy-weir-blog-posts/
+
+Ridley Scott's star-studded sci-fi movie The Martian started as a series of blog posts from writer Andy Weir.
+---------
+
+# CBS Officially Cuts Down ‘Fire Country,’ ‘Matlock’ and More
+
+TV News, Fire Country, Matlock, NCIS: Origins, CBS
+
+Sat, 02 May 2026 17:22:54 GMT
+
+https://collider.com/cbs-fire-country-ncis-origins-sydney-matlock-reduced-season-orders/
+
+CBS has made the shock decision to significantly shorten the upcoming seasons of Fire Country, NCIS: Origins, and more.
+---------
+
+# 10 Heaviest TV Episodes of the Last 10 Years, Ranked
+
+TV, Television, It's Always Sunny in Philadelphia, Severance, BoJack Horseman
+
+Sat, 02 May 2026 17:19:14 GMT
+
+https://collider.com/heaviest-tv-episodes-last-10-years-ranked/
+
+Severance, Succession, Yellowjackets, and The Bear have hit audiences with brutal moments over the last decade, but which TV episode is the heaviest?
+---------
+
+# 'Legends of Tomorrow': DC's Version of 'Star Trek' Is a Certified Cult Classic
+
+Features, DC's Legends of Tomorrow
+
+Sat, 02 May 2026 18:00:18 GMT
+
+https://movieweb.com/legends-of-tomorrow-cult-classic-canceled-too-soon/
+
+DC's 'Legends of Tomorrow' is a rare TV series that could have gone on forever and never gotten boring. Luckily, there are seven seasons to enjoy.
+---------
+
 # Fallout's Official June Return Is For Hardcore Fans
 
 Gaming, Fallout, Fallout 4
