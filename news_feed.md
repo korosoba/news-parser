@@ -1,3 +1,223 @@
+# Lady Gaga's Cameo In The Devil Wears Prada 2 Explained By Director
+
+Movies, The Devil Wears Prada 2, Lady Gaga
+
+Sat, 02 May 2026 16:04:42 GMT
+
+https://screenrant.com/devil-wears-prada-2-lady-gaga-cameo-explained-david-frankel-molly-rogers/
+
+The Devil Wears Prada 2 features an important Lady Gaga cameo, with director David Frankel explaining how the star joined the long-awaited sequel.
+---------
+
+# Legend Of Zelda Fans Unite Over Toon Link's Return
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker
+
+Sat, 02 May 2026 16:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-toon-link-return-gamer-speculation/
+
+The Toon Link art style was very divisive when it debuted in the Zelda series, but fans have really warmed to the approach since.
+---------
+
+# The Boys' V-One Storyline Has One Fatal Flaw
+
+Streaming TV, The Boys
+
+Sat, 02 May 2026 16:00:19 GMT
+
+https://screenrant.com/the-boys-season-5-v-one-plot-hole/
+
+The Boys' dramatic final season is heading towards an explosive conclusion, but one huge plot concern is looking increasingly problematic.
+---------
+
+# Strange New Worlds Is Missing A Golden Opportunity To Explore One Of Star Trek's Most Underrated Captains
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 02 May 2026 16:00:19 GMT
+
+https://screenrant.com/star-trek-captain-decker-strange-new-world-great-captain/
+
+Bring him back.
+---------
+
+# 1 Year Ago, Disney Officially Confirmed The End Of An Era For The Avengers
+
+Movies, Thunderbolts*, Explainer, Marvel Cinematic Universe
+
+Sat, 02 May 2026 15:55:20 GMT
+
+https://screenrant.com/disney-avengers-thunderbolts-end-era/
+
+The MCU completely changed the future of The Avengers with a 2025 film that sets the stage for something interesting in Avengers: Doomsday.
+---------
+
+# One Change In Netflix's Man On Fire Show Makes It Better Than Denzel Washington's Movie
+
+Streaming TV, Man on Fire
+
+Sat, 02 May 2026 15:45:20 GMT
+
+https://screenrant.com/netflix-man-on-fire-denzel-washington-movie-trauma/
+
+Denzel Washington's 2004 version of Man on Fire is amazing in many ways, but one big change makes the Netflix show even better than the movie.
+---------
+
+# Adam Scott's Chilling New Movie Brings A Folk Horror Twist To An 82-Year-Old Disney Classic
+
+Movies, Hokum, Horror
+
+Sat, 02 May 2026 15:39:26 GMT
+
+https://screenrant.com/adam-scott-hokum-movie-disney-pinocchio-update-donkey-character/
+
+Exclusive: Hokum director Damian McCarthy reveals the inspiration behind the supernatural horror movie's disturbing Jack the Jackass character.
+---------
+
+# 20 Years Later, How I Met Your Mother's Best Scene Is Still One Of TV's Funniest Moments
+
+Classic TV, How I Met Your Mother
+
+Sat, 02 May 2026 15:30:21 GMT
+
+https://screenrant.com/how-i-met-your-mother-best-scene-tv-funniest-moment/
+
+How I Met Your Mother's best episode remains a TV classic, balancing hilarious antics with genuine character moments and a memorable music video.
+---------
+
+# 8 Best Movies To Watch On Netflix In May 2026
+
+Movies, Netflix
+
+Sat, 02 May 2026 15:30:21 GMT
+
+https://screenrant.com/netflix-best-movies-may-2026/
+
+Netflix is serving up a big batch of new movies for the month of May, and these 8 flicks should go straight to the top of your must-watch list.
+---------
+
+# Hogwarts Legacy Gamers Unite Over Official Castle Redesign For New Release
+
+Gaming, Hogwarts Legacy
+
+Sat, 02 May 2026 15:30:21 GMT
+
+https://screenrant.com/hogwarts-legacy-castle-redesign-harry-potter-hbo/
+
+Fans debate the architectural differences between Hogwarts in the upcoming HBO series and the video game Hogwarts Legacy.
+---------
+
+# Evangelion x MAYLA High-End Jewelry Collection Features Shinji, Rei, Asuka & Kaworu
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Sat, 02 May 2026 16:00:13 GMT
+
+https://www.cbr.com/evangelion-mayla-jewelry-collection-international-release/
+
+All four of the classic EVA unit pilots are represented through a gorgeous quartet of new Evangelion story rings based on the iconic Mecha classic.
+---------
+
+# Pokémon Pokopia Leaks Officially Reveal Big Plans for 2026
+
+Games, Pokemon, Nintendo
+
+Sat, 02 May 2026 15:30:14 GMT
+
+https://www.cbr.com/pokemon-pokopia-leaks-dlc-lavender-town/
+
+The latest round of Pokémon rumors point toward some of the original game's most iconic locales getting a post-apocalyptic makeover soon.
+---------
+
+# Paramount’s Surprise World War Z Sequel Gets Update From Original Star Mireille Enos
+
+Movies, World War Z, World War Z 2
+
+Sat, 02 May 2026 15:21:12 GMT
+
+https://www.cbr.com/paramount-world-war-z-sequel-update-mireille-enos/
+
+The highest-grossing zombie movie ever made is finally getting a sequel.
+---------
+
+# The Best Manga to Recommend For People Who Don't Like Anime
+
+Anime, Manga, Slam Dunk, seinen
+
+Sat, 02 May 2026 15:15:13 GMT
+
+https://www.cbr.com/best-manga-for-people-who-dont-like-anime/
+
+10 best manga picks for non-anime fans, which are refreshing, easy to read and extremely intriguing.
+---------
+
+# The Dragon Ball Super Manga Is Back Thanks to the Galactic Patrol Anime
+
+Anime, Dragon Ball, Dragon Ball Super: The Galactic Patrol, Dragon Ball Super
+
+Sat, 02 May 2026 15:11:13 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-return-shonen-jump-plus-moro-saga/
+
+Dragon Ball Super's manga just got its first new release in a year. While it's not Chapter 105, it's still an amazing sign for the series' future.
+---------
+
+# Paramount+ Has Already Found a 'Call of Duty' Replacement in This New Streaming Hit
+
+Movie News, 13 Hours: The Secret Soldiers of Benghazi, John Krasinski, Michael Bay, Call of Duty
+
+Sat, 02 May 2026 16:01:14 GMT
+
+https://collider.com/black-hawk-down-meets-call-of-duty-war-thriller-13-hours-streaming-success-paramount-plus-may-2026/
+
+Black Hawk Down meets Call of Duty in the breakneck Michael Bay action war thriller currently being rediscovered on Paramount+.
+---------
+
+# The Biggest Disaster Movie of the '90s Loses Box-Office Rank to 2026's Sci-Fi Masterpiece
+
+Movie News, Independence Day, Project Hail Mary, Sci-Fi, Box Office
+
+Sat, 02 May 2026 15:30:10 GMT
+
+https://collider.com/2026-sci-fi-masterpiece-project-hail-mary-overtakes-independence-day-disaster-blockbuster-domestic-box-office-308-million/
+
+Project Hail Mary has passed a seminal sci-fi movie that was released two decades ago at the box office. Find out more.
+---------
+
+# Mike Flanagan’s Most Overlooked 9-Part Horror Miniseries Has Aged Like Fine Wine
+
+TV Features, The Haunting of Bly Manor, Mike Flanagan, Victoria Pedretti, Netflix
+
+Sat, 02 May 2026 15:23:13 GMT
+
+https://collider.com/mike-flanagan-haunting-of-bly-manor-netflix-horror-miniseries/
+
+Mike Flanagan's most overlooked miniseries masterpiece weaves haunting romance and family drama within Gothic horror trappings.
+---------
+
+# 'Hokum' Will Reign as the Scariest Horror Movie of 2026
+
+Features, Hokum
+
+Sat, 02 May 2026 16:00:18 GMT
+
+https://movieweb.com/hokum-scariest-movie-of-2026/
+
+Damian McCarthy's supernatural horror movie 'Hokum' is loaded with spine-tingling scares, which will
+---------
+
+# Guy Ritchie Action Fantasy Film 'King Arthur: Legend of the Sword' Hits Free Streaming
+
+Movie News, King Arthur: Legend of the Sword, Guy Ritchie
+
+Sat, 02 May 2026 16:00:18 GMT
+
+https://movieweb.com/guy-ritchie-king-arthur-legend-of-sword-streaming-may/
+
+Guy Ritchie's 2017 fantasy film 'King Arthur: Legend of the Sword' is now available to stream on Tubi.
+---------
+
 # This Is The Best Anime Dub In Years, And It's Not Even Close
 
 Anime, Op-Ed
