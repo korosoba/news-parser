@@ -1,3 +1,212 @@
+# Red Dead Redemption 2 Free Download Yours To Claim For 24 Hours
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2, Red Dead Online
+
+Sun, 03 May 2026 05:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-may-2026-free-24-hours/
+
+Red Dead Redemption 2's latest online event is about to draw to a close and you're running out of time to grab some freebies.
+---------
+
+# Cyberpunk 2077 Officially Returns This Month With A Brand-New Game
+
+Gaming, Cyberpunk 2077
+
+Sun, 03 May 2026 04:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077-chrome-rush-may-2026/
+
+Cyberpunk 2077 is back with a brand-new game called Cyberpunk 2077: Chrome Rush, allowing fans to return to Night City in an unexpected new way.
+---------
+
+# Steam Makes 3 Hit Games Free For 24 Hours
+
+Gaming, Steam, Sonic Racing: CrossWorlds
+
+Sun, 03 May 2026 04:15:18 GMT
+
+https://screenrant.com/steam-free-games-may-2026-24-hours/
+
+Steam has become a great place to go for free gaming experiences at the weekend, and there are three more games on offer now.
+---------
+
+# Tomb Raider: The Angel Of Darkness Officially Returns This Spring
+
+Gaming, Tomb Raider, Rise of the Tomb Raider, Tomb Raider: Catalyst, PC
+
+Sun, 03 May 2026 04:00:27 GMT
+
+https://screenrant.com/tomb-raider-angel-of-darkness-new-release/
+
+Tomb Raider: The Angel of Darkness is one of the most controversial entries in the series, but it's making an official return this spring.
+---------
+
+# Netflix's New Fantasy Movie Extends Michael B. Jordan's Rare 5-Year Rotten Tomatoes Streak
+
+Movies, Masked Recs, Netflix, Michael B. Jordan
+
+Sun, 03 May 2026 03:58:09 GMT
+
+https://screenrant.com/netflix-swapped-movie-rotten-tomatoes-audience-score-michael-b-jordan-streak/
+
+Netflix's new fantasy movie has finally been released on streaming, with the Rotten Tomatoes score now extending a streak for Michael B. Jordan.
+---------
+
+# Netflix’s Remake Of R-Rated Denzel Washington Classic Carries On A Rotten Tomatoes Trend
+
+TV, Masked Recs, Netflix
+
+Sun, 03 May 2026 03:27:53 GMT
+
+https://screenrant.com/netflix-man-on-fire-show-rotten-tomatoes-audience-score-trend/
+
+Netflix has dropped its TV remake of Denzel Washington's R-rated action classic, and the Rotten Tomatoes score carries on a major trend.
+---------
+
+# Mortal Kombat 2 Star Says Writer Consults Franchise Co-Creator On Which "Fatalities And Stages" To Keep
+
+Movies, Mortal Kombat II
+
+Sun, 03 May 2026 03:05:04 GMT
+
+https://screenrant.com/mortal-kombat-2-fatalities-stages-final-cut/
+
+Mortal Kombat 2 star reveals that the film's writer regularly spoke to the franchise's co-creator for inspiration while working on the script.
+---------
+
+# Sonic Adventure 2 Redux Is An Impressive Remake Of A Classic Game
+
+Gaming, Sonic the Hedgehog, Sega, Sonic Adventure 2, Retro
+
+Sun, 03 May 2026 03:00:20 GMT
+
+https://screenrant.com/sonic-adventure-2-redux-unreal-engine-5-fan-remake/
+
+Sonic Adventure 2 Redux, a PC remake of the cult classic 2001 Dreamcast game, is using Unreal Engine 5 to bring the nostalgia of retro gaming to life.
+---------
+
+# Super Rant Rewatch: 2014's Guardians of the Galaxy Was A Major Turning Point for the MCU
+
+Superheroes, Guardians of the Galaxy, Marvel Cinematic Universe
+
+Sun, 03 May 2026 02:45:19 GMT
+
+https://screenrant.com/super-rant-rewatch-guardians-of-the-galaxy-mcu-op-ed/
+
+Let's take a look back at 2014's Guardians of the Galaxy, part of our ongoing Super Rant Rewatch series ahead of Avengers: Doomsday in December.
+---------
+
+# 10 Sci-Fi Movies That Accurately Predicted The Future
+
+Classic Movies, Explainer, The Truman Show
+
+Sun, 03 May 2026 02:30:20 GMT
+
+https://screenrant.com/sci-fi-movies-accurately-predicted-future/
+
+Sci-fi movies are meant to be futuristic and they explore what could be, but some of the best ended up predicting big things in the future.
+---------
+
+# 7 Forgotten Shonen Manga That Are Perfect from Start to Finish
+
+Anime, Shonen, Manga
+
+Sun, 03 May 2026 03:45:14 GMT
+
+https://www.cbr.com/forgotten-shonen-manga-perfect-from-start-to-finish/
+
+Beyond Dragon Ball and Naruto is an entire world of forgotten 10/10 Shonen manga.
+---------
+
+# 10 Best The Vampire Diaries Theories About Damon Salvatore
+
+TV, The Vampire Diaries, Drama, The CW
+
+Sun, 03 May 2026 03:30:12 GMT
+
+https://www.cbr.com/the-vampire-diaries-damon-salvatore-best-theories-list/
+
+Damon Salvatore is easily the most beloved character in The Vampire Diaries, and some of the best theories about him have continued to prove that.
+---------
+
+# 7 N64 Games That Are Perfect From Start to Finish
+
+Games, Video Games, Nintendo, The Legend of Zelda, Resident Evil
+
+Sun, 03 May 2026 03:15:12 GMT
+
+https://www.cbr.com/best-n64-games-perfect-from-start-to-finish/
+
+Nintendo's first 3D console may look outdated, but its home to a selection of flawless games.
+---------
+
+# 10 Incredible Anime Series With Absolutely Perfect Endings
+
+Anime
+
+Sun, 03 May 2026 03:00:12 GMT
+
+https://www.cbr.com/best-anime-series-with-perfect-endings-list/
+
+Some of the greatest anime ever managed to end on a high note.
+---------
+
+# Amazon Prime Video’s Secret Isekai Hit Is Finally Back in New Season 2 Release
+
+Anime, From Old Country Bumpkin to Master Swordsman, Prime Video, Isekai
+
+Sun, 03 May 2026 03:00:12 GMT
+
+https://www.cbr.com/country-bumpkin-to-master-swordsman-season-2-release-date/
+
+Anime's most unconventional isekai series reveals when it will return to Japan's airwaves and,  ultimately, Prime Video's streaming catalog.
+---------
+
+# Fox's Canceled Sci-Fi Series Terra Nova Now Streaming on Tubi
+
+TV, Terra Nova
+
+Sun, 03 May 2026 02:55:12 GMT
+
+https://www.cbr.com/terra-nova-streaming-free-tubi-may-2026/
+
+The forgotten sci-fi dinosaur series makes a return on a free streaming home.
+---------
+
+# 10 Fantasy Manga That Can Be Called Masterpieces, Ranked
+
+Anime, Manga, Fantasy
+
+Sun, 03 May 2026 02:45:12 GMT
+
+https://www.cbr.com/fantasy-manga-masterpieces-ranked/
+
+Only a handful of mang combine world-building with emotional precision so completely that calling them anything less than masterpieces feel wrong.
+---------
+
+# The 10 Hardest Video Game Worlds to Survive
+
+Games, Video Games, Dark Souls, Don't Starve, The Outer Wilds
+
+Sun, 03 May 2026 02:15:12 GMT
+
+https://www.cbr.com/hardest-video-game-worlds-to-survive/
+
+From Dark Souls and Dead Space to Subnautica and Alien: Isolation, these are ten of gaming’s most impossible worlds to survive.
+---------
+
+# Forget ‘The Walking Dead’ — Prime Video’s 6-Part Forgotten Sci-Fi Is the Perfect Weekend Binge
+
+TV Features, Earth Abides, Alexander Ludwig, MGM, Prime Video
+
+Sun, 03 May 2026 03:44:13 GMT
+
+https://collider.com/walking-dead-replacement-series-earth-abides-6-episodes/
+
+Earth Abides on MGM+ reimagines the post-apocalyptic genre as a limited series, following survivors rebuilding society after a global plague.
+---------
+
 # Saros: Best Carcosan Modifiers & When To Use Them
 
 Gaming, Saros, PC
