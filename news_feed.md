@@ -1,3 +1,212 @@
+# 9 Forgotten Animated Sitcoms That Deserve A Second Look
+
+Classic TV
+
+Sun, 03 May 2026 15:30:20 GMT
+
+https://screenrant.com/animated-sitcoms-everyone-forgot-about/
+
+Some animated sitcoms have made TV history, but there are many other great sitcoms that, with time, have unfairly faded into obscurity.
+---------
+
+# GTA 6 Fans Are Furious Over Official Third Trailer Date
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Sun, 03 May 2026 15:30:20 GMT
+
+https://screenrant.com/gta-6-trailer-date-may-2026-release-reaction/
+
+GTA 6 fans are getting whipped up into a frenzy (again) over the odds of a third trailer coming out this May — but they may have a point this time.
+---------
+
+# 10 Greatest Sci-Fi Movie Villains of All Time, Ranked
+
+Classic Movies, Ranking, Sci-Fi
+
+Sun, 03 May 2026 15:30:20 GMT
+
+https://screenrant.com/greatest-sci-fi-movie-villains-ranked/
+
+The sci-fi genre are often known for their high themes and concepts, but some of the movies have some of the greatest villains in movie history.
+---------
+
+# The Devil Wears Prada 2 Box Office Struts To #1, Almost Triples OG Movie's Debut (Sunday Top 5 Update)
+
+Movies, Box Office, The Devil Wears Prada, The Devil Wears Prada 2
+
+Sun, 03 May 2026 15:29:31 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-box-office-opening-weekend-domestic-chart-report/
+
+The opening weekend of The Devil Wears Prada 2 beats Michael's landmark sophomore weekend to hit No. 1, almost tripling the original movie's debut.
+---------
+
+# Saros: Best Weapons Tier Guide
+
+Gaming, Saros, PC
+
+Sun, 03 May 2026 15:23:37 GMT
+
+https://screenrant.com/saros-best-weapons-tier-guide/
+
+Saros has a range of incredible weapons for a variety of different playstyles, and selecting the right one can be make or break.
+---------
+
+# 10 Gothic TV Shows That Perfectly Capture The Dark, Romantic Genre
+
+Classic TV
+
+Sun, 03 May 2026 15:21:32 GMT
+
+https://screenrant.com/near-perfect-gothic-tv-shows/
+
+The best gothic TV shows masterfully blend dark atmosphere, supernatural elements, and romantic storytelling for a truly immersive viewing experience.
+---------
+
+# The Devil Wears Prada 2 Box Office Outgrosses OG Movie's Entire Domestic Run In Just 3 Days
+
+Movies, The Devil Wears Prada 2, The Devil Wears Prada, Box Office
+
+Sun, 03 May 2026 15:16:42 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-global-box-office-debut/
+
+The Devil Wears Prada 2's global box office debut takes just three days to outgross the entire domestic run of the original 2006 movie.
+---------
+
+# Hulu’s Little Fires Everywhere Has One Of Its Best Casts
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 15:02:20 GMT
+
+https://screenrant.com/little-fires-everywhere-best-cast-hulu/
+
+Hulu’s psychological drama adapted limited series has one of the best TV casts even in minor roles, from new discoveries to seasoned veterans.
+---------
+
+# LEGO Batman: Legacy Of The Dark Knight Release Date, Preorders, Editions, & Confirmed Characters
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, LEGO Batman, Triple-A Games
+
+Sun, 03 May 2026 15:00:23 GMT
+
+https://screenrant.com/lego-batman-legacy-dark-knight-release-date-preorders-characters/
+
+LEGO Batman returns in Legacy of the Dark Knight, a new installment in the brick building-Caped Crusader crossover. Here’s everything we know so far.
+---------
+
+# 10 Best Female Characters In Modern Anime
+
+Anime, Op-Ed
+
+Sun, 03 May 2026 15:00:20 GMT
+
+https://screenrant.com/best-iconic-new-gen-female-anime-characters/
+
+The definitive best girls of modern anime.
+---------
+
+# Hunter x Hunter Hid One of Shonen's Darkest Heroes in Plain Sight
+
+Anime, Hunter x Hunter
+
+Sun, 03 May 2026 15:15:13 GMT
+
+https://www.cbr.com/hunter-x-hunter-one-of-shonen-darkest-heroes/
+
+Beneath its surface, Hunter x Hunter quietly centered one of shonen’s most morally complex leads.
+---------
+
+# The Devil Wears Prada 2 Earns Praise for Human Art for Film's AI Meme
+
+Movies, The Devil Wears Prada 2
+
+Sun, 03 May 2026 15:14:21 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-praise-human-art-ai-meme/
+
+As AI is trying to take over, human art will always be preferable.
+---------
+
+# Best Pokémon Games of All Time
+
+Games, Pokemon
+
+Sun, 03 May 2026 15:00:13 GMT
+
+https://www.cbr.com/best-pokmon-games-of-all-time/
+
+The Pokémon series has produced some of the best video games of all time, but a few stand out among the crowd as the greatest in the franchise.
+---------
+
+# The Most Anticipated Sequel of the Year Just Silenced Every Box Office Doubt
+
+Movie News, The Devil Wears Prada 2, Anne Hathaway, Meryl Streep, Emily Blunt
+
+Sun, 03 May 2026 15:14:45 GMT
+
+https://collider.com/the-devil-wears-prada-2-box-office-projections-beat-anne-hathaway-sci-fi-interstellar-223-million/
+
+The Devil Wears Prada 2 is already beating expectations as it overtakes Anne Hathaway’s beloved sci-fi spectacle in global box office debut.
+---------
+
+# 7 Most Universally Beloved Jason Statham Movies of All Time, Ranked
+
+Movie, Jason Statham, The Beekeeper, Snatch, Crank
+
+Sun, 03 May 2026 15:04:14 GMT
+
+https://collider.com/jason-statham-universally-beloved-movies-all-time-ranked/
+
+Jason Statham has built a reputation for himself and his filmography, with movies like The Beekeeper and Snatch being among his most beloved.
+---------
+
+# Every Must-See TV Show Streaming in May 2026
+
+Features
+
+Sun, 03 May 2026 15:30:19 GMT
+
+https://movieweb.com/tv-streaming-may-2026/
+
+Spider-Noir and the next chapter in the 'Yellowstone' Universe leads May 2026 new TV series coming to the biggest platforms.
+---------
+
+# Adam Scott Tried Sneaking Into 'Hellraiser 6' After Dying in 'Hellraiser 4'
+
+Movie News, Hellraiser: Bloodline, Adam Scott, Hellraiser
+
+Sun, 03 May 2026 15:17:24 GMT
+
+https://movieweb.com/adam-scott-hellraiser-4-bloodline-hellseeker/
+
+Adam Scott tried (unsuccessfully) to take a second bit out of the long-running horror franchise.
+---------
+
+# Quentin Tarantino Just Found Yet Another Way to Beak His 10-Movie Rule
+
+Features, Quentin Tarantino
+
+Sun, 03 May 2026 15:00:18 GMT
+
+https://movieweb.com/quentin-tarantino-10-movie-rule-broken-again/
+
+It's been known for a long time that Tarantino intends to only direct 10 movies, but he's just subverted his own rule once more.
+---------
+
+# 'The Patriot' Ending, Explained
+
+Features, The Patriot, Mel Gibson, Heath Ledger
+
+Sun, 03 May 2026 15:00:18 GMT
+
+https://movieweb.com/the-patriot-ending-explained/
+
+The Patriot intersperses spectacular battle scenes with subtle character details, but amid them, some elements of the story get confusing.
+---------
+
 # Meryl Streep Confirms "Beef" With Oscar-Winning Actor In Classic '90s Fantasy Horror Movie
 
 Movies, Meryl Streep, Death Becomes Her
