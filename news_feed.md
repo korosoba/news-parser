@@ -1,3 +1,113 @@
+# 8 Worst Things About Being A Doctor Who Fan In The 2020s
+
+Streaming TV, Doctor Who
+
+Sun, 03 May 2026 11:00:20 GMT
+
+https://screenrant.com/doctor-who-fans-2020s-worst-things/
+
+Doctor Who has been going through a lot of changes in recent years, and unfortunately, it has led to the series being a bit of a catastrophic mess.
+---------
+
+# Elden Ring Is Back With A New Free Game, Thanks To The Fans
+
+Gaming, Elden Ring, Triple-A Games, PC
+
+Sun, 03 May 2026 11:00:20 GMT
+
+https://screenrant.com/elden-ring-game-watch-free-download/
+
+Despite already having countless hours of replayability, the one thing that will always keep Elden Ring alive are its creative fans.
+---------
+
+# Star Wars Jedi 3 Perfect Title Unites Gamers
+
+Gaming, Star Wars Jedi: Survivor, Star Wars, Star Wars Jedi: Fallen Order, EA, Respawn Entertainment
+
+Sun, 03 May 2026 10:45:20 GMT
+
+https://screenrant.com/star-wars-jedi-3-perfect-title-reaction-speculation/
+
+Star Wars Jedi 3 is coming, and the perfect title has been staring us right in the face for years.
+---------
+
+# Fallout 4 Free Download Officially Available For Millions Of Gamers
+
+Gaming, Fallout 4, Fallout
+
+Sun, 03 May 2026 10:30:19 GMT
+
+https://screenrant.com/fallout-4-free-download-game-pass-ps-plus/
+
+Fallout 4 is still a standout example of the RPG genre and you can play it at no extra cost if you're signed up to certain services.
+---------
+
+# The Best DC Comic From Every Year of The 2000s
+
+Comics, DC Comics, Batman, Justice League
+
+Sun, 03 May 2026 11:00:13 GMT
+
+https://www.cbr.com/best-dc-comics-every-year-of-the-2000s-list/
+
+The 2000s saw some truly unforgettable DC Comics published, but these ten stand as the best from each year of the decade.
+---------
+
+# Netflix's Psychological Thriller Unchosen Is the Perfect Weekend Binge
+
+TV, Unchosen, Netflix, Thriller
+
+Sun, 03 May 2026 10:30:13 GMT
+
+https://www.cbr.com/unchosen-psychological-thriller-netflix-perfect-weekend-binge/
+
+Netflix's 6-part psychological thriller Unchosen is a captivating, character-driven story, and the perfect weekend binge.
+---------
+
+# 7 Greatest American Sci-Fi Shows of All Time, Ranked
+
+TV, Sci-Fi, Science Fiction, The X-Files, The Twilight Zone
+
+Sun, 03 May 2026 11:10:13 GMT
+
+https://collider.com/best-american-sci-fi-shows-all-time-ranked/
+
+From franchise favorite Star Trek: The Next Generation to the game-changing series The X-Files, these are American sci-fi shows are among the best.
+---------
+
+# ‘Jurassic Park’ Meets ‘Indiana Jones’ in This Wild ’90s Sci-Fi Adventure Now Streaming for Free
+
+Movie News, Congo, Jurassic Park, Thriller, Laura Linney
+
+Sun, 03 May 2026 11:00:13 GMT
+
+https://collider.com/jurassic-park-indiana-jones-1990s-sci-fi-adventure-congo-streaming-free-pluto-may-2026/
+
+The unhinged sci-fi action-adventure film Congo is now streaming for free. Here's where to watch the Laura Linney film.
+---------
+
+# 10 Years Later, HBO’s Forgotten 6-Part Crime Miniseries Still Deserves Another Look
+
+TV, Show Me a Hero, Oscar Isaac, HBO, David Simon
+
+Sun, 03 May 2026 10:51:13 GMT
+
+https://collider.com/show-me-a-hero-hbo-crime-series-rewatch/
+
+Show Me a Hero has a 96% on Rotten Tomatoes but most people haven't ever even heard of it.
+---------
+
+# Billy Bob Thornton's Sci-Fi Thriller Is So Good, You’ll Want to Watch It Again Immediately
+
+Movie News, Eagle Eye, Thriller, Billy Bob Thornton, Shia LaBeouf
+
+Sun, 03 May 2026 10:31:13 GMT
+
+https://collider.com/billy-bob-thornton-sci-fi-thriller-eagle-eye-streaming-free-pluto-may-2026/
+
+The sci-fi thriller Eagle Eye, starring Shia LaBeouf and Billy Bob Thornton, is now streaming for free. Find out where to watch it here.
+---------
+
 # Avengers: Doomsday's Ultimate Viewing Guide: Every MCU Movie & Show You Need To Watch
 
 Movies, Avengers: Doomsday
