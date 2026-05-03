@@ -1,3 +1,311 @@
+# 10 Most Exciting Movies Ever Made
+
+Classic Movies
+
+Sun, 03 May 2026 13:45:20 GMT
+
+https://screenrant.com/most-exciting-movies-ever/
+
+More so than any other medium, movies have the power to excite audiences and absolutely floor them with some of the spectacular visuals ever seen
+---------
+
+# All 8 Hogwarts Professors Cast For HBO's Harry Potter TV Show
+
+Streaming TV, Harry Potter
+
+Sun, 03 May 2026 13:35:21 GMT
+
+https://screenrant.com/harry-potter-tv-show-hogwarts-professors-cast/
+
+The professors of Hogwarts School of Witchcraft and Wizardry are icons in their own right who added to the magic of the Harry Potter franchise.
+---------
+
+# Fallout Officially Returns With A New July 2026 Release
+
+Gaming, Fallout, Fallout 4, PC
+
+Sun, 03 May 2026 13:30:20 GMT
+
+https://screenrant.com/fallout-nuka-girl-official-release/
+
+Fallout fans are marking their calendars for a brand-new release this July with the exciting launch of Fallout: Nuka Girl.
+---------
+
+# 10 Perfect Fantasy TV Shows We Can't Live Without
+
+Classic TV, Fantasy
+
+Sun, 03 May 2026 13:30:20 GMT
+
+https://screenrant.com/fantasy-tv-shows-not-live-without/
+
+Fantasy is a ubiquitous, everlasting genre, and many of the most unforgettable television shows manage to capture something truly magical.
+---------
+
+# 10 Most Underrated Superpowers In Avengers Lore, Ranked
+
+Marvel Comics, The Avengers, Marvel
+
+Sun, 03 May 2026 13:30:20 GMT
+
+https://screenrant.com/avengers-most-underrated-powers/
+
+The Avengers' most useful and overpowered abilities could absolutely change the game if Earth's Mightiest Heroes took full advantage of them.
+---------
+
+# 10 Best New Movies Coming To Prime Video In May 2026
+
+Movies, Prime Video, Recommendation
+
+Sun, 03 May 2026 13:15:19 GMT
+
+https://screenrant.com/prime-video-best-new-movies-may-2026/
+
+Prime Video's catalog of new arrivals in May features a Best Picture winner, some timeless classics, a spin-off of a popular TV show, and so more.
+---------
+
+# Marvel's Ultimates #23 Is Everything the Line Does Right
+
+Comics, Marvel, Op-Ed
+
+Sun, 03 May 2026 13:00:20 GMT
+
+https://screenrant.com/marvel-ultimate-comics-review-criticism-creative/
+
+The Ultimates is as amazing as it is frustrating.
+---------
+
+# Prime Video’s Classic Sci-Fi Series With Near-Perfect Rotten Tomatoes Score Revolutionized The Genre
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 13:00:20 GMT
+
+https://screenrant.com/farscape-sci-fi-classic-prime-video-revolutionized-genre/
+
+There is a five-season sci-fi epic available on Prime Video that has influenced the sci-fi genre from Stargate SG-1 to Guardians of the Galaxy.
+---------
+
+# Zelda, No Man's Sky Collide In Open-World RPG You Can Play Free Now
+
+Gaming, Steam
+
+Sun, 03 May 2026 13:00:20 GMT
+
+https://screenrant.com/steam-free-demo-highreach-zelda-meets-no-mans-sky/
+
+Discover a lost world shattered by calamity in Highreach, an upcoming open-world survival game that blends elements of Zelda and No Man's Sky.
+---------
+
+# 10 Marvel Movies With The Most Powerful Heroes
+
+Movies, Marvel, Thunderbolts*, Eternals, Guardians of the Galaxy Vol. 2, Guardians of the Galaxy Vol. 3, The Marvels, Avengers: Endgame, Thor: Ragnarok, X-Men: The Last Stand, Doctor Strange In the Multiverse of Madness, The Fantastic Four: First Steps
+
+Sun, 03 May 2026 12:55:20 GMT
+
+https://screenrant.com/marvel-movies-most-powerful-heroes/
+
+Marvel's movies, both in and out of the MCU, feature some of the most powerful heroes on the big screen, and here are ten of the strongest yet.
+---------
+
+# Pokémon Scarlet & Violet Drops New Free Download Available Until May 7
+
+Games, Pokemon Scarlet and Violet, Pokemon
+
+Sun, 03 May 2026 13:30:14 GMT
+
+https://www.cbr.com/pokemon-scarlet-violet-new-free-download-may-2026/
+
+Pokémon Scarlet & Violet players have just days left to get in on the latest free download and all the rewards it has to offer.
+---------
+
+# 10 Old-School Animated TV Shows That Are Still Awesome Today
+
+TV, Animation, The Bugs Bunny Show, Spider-Man, Speed Racer
+
+Sun, 03 May 2026 13:30:14 GMT
+
+https://www.cbr.com/awesome-old-school-cartoons-list/
+
+Old-school TV animation retains a charm that makes it just as entertaining for a modern audience as it was for viewers half a decade ago.
+---------
+
+# Marshawn Lynch, Darrell Britt-Gibson and Adewale Akinnuoye-Agbaje Play We're Not Really Strangers
+
+TV, Euphoria
+
+Sun, 03 May 2026 13:19:13 GMT
+
+https://www.cbr.com/video/marshawn-lynch-darrell-britt-gibson-and-adewale-akinnuoye-agbaje-play-we-re-not-really-strangers/
+
+Is Marshawn Lynch here so he won't get fined? Maybe. But in this intimate interview, he, Darrell Britt-Gibson and Adewale Akinnuoye-Agbaje talk connecting as a crew and the similarities they found between themselves and their Euphoria characters.What's it like being on set with this group? What have they learned from each other? How has a stranger changed their lives?All this and more, in this hysterical hang.
+---------
+
+# Naruto Characters Who Would Thrive In The World of Jujutsu Kaisen
+
+Anime, Naruto, Jujutsu Kaisen
+
+Sun, 03 May 2026 13:15:12 GMT
+
+https://www.cbr.com/naruto-characters-who-would-thrive-in-the-world-of-jjk/
+
+These Naruto characters would adapt surprisingly well to the cursed world of Jujutsu Kaisen.
+---------
+
+# Paramount's Classic Top Gun Rival Finds New Life as a Streaming Hit 40 Years Later
+
+Movies, Crocodile Dundee
+
+Sun, 03 May 2026 13:00:14 GMT
+
+https://www.cbr.com/paramount-top-gun-rival-crocodile-dundee-streaming-success-may-2026/
+
+The surprise film that almost beat Top Gun at the box office is now a certified streaming hit as it lands a new streaming home.
+---------
+
+# 8 Reasons It's Hard To Watch the Star Wars Prequel Trilogy Today
+
+Movies, Star Wars, Sci-Fi, Star Wars: Episode III - Revenge of the Sith
+
+Sun, 03 May 2026 13:00:14 GMT
+
+https://www.cbr.com/reasons-star-wars-prequel-trilogy-hard-to-watch-today-list/
+
+Despite cultural reappraisal from Star Wars fans, the years have not been kind to George Lucas's prequel trilogy.
+---------
+
+# JAG Is Pro-Military, But the Navy Didn’t Want It on TV
+
+TV, JAG, Drama
+
+Sun, 03 May 2026 12:30:14 GMT
+
+https://www.cbr.com/jag-tv-show-navy-conflict-explained/
+
+Donald Bellisario began one of the greatest TV franchises with a patriotic military show that the US Navy tried to shut down.
+---------
+
+# 2026’s Hit Space Jam Replacement Lands Streaming Date After $191M Box Office Run
+
+Movies, GOAT
+
+Sun, 03 May 2026 12:19:14 GMT
+
+https://www.cbr.com/goat-sports-comedy-netflix-streaming-release-date/
+
+The breakout animated sports comedy is finally preparing to make its streaming debut.
+---------
+
+# 'Sicario' Meets 'The Town' In Star-Studded Crime Thriller Seeking Streaming Redemption
+
+Movie News, Triple 9, Sicario, The Town, Thriller
+
+Sun, 03 May 2026 13:31:14 GMT
+
+https://collider.com/sicario-meets-the-town-crime-thriller-triple-9-streaming-success-tubi-may-2026/
+
+10 Years after underwhelming at the box office, the thriller starring Kate Winslet, Woody Harrelson, and Anthony Mackie finally gets a second chance.
+---------
+
+# 10 Faith-Based Movies To Watch if You Love 'King of Kings'
+
+Movie, King of Kings, Ben-Hur, The Passion of the Christ, The Greatest Story Ever Told
+
+Sun, 03 May 2026 13:31:14 GMT
+
+https://collider.com/faith-based-movies-like-king-of-kings/
+
+Fans of Nicholas Ray's classic Christian epic King of Kings will likely enjoy faith-based movies like The Passion of the Christ, Ben-Hur, and Risen.
+---------
+
+# 48 Years Later, This Remake of the Greatest Noir Thriller Ever Hasn't Aged Well
+
+Movie Features, Robert Mitchum, The Big Sleep, James Stewart, Crime
+
+Sun, 03 May 2026 13:23:14 GMT
+
+https://collider.com/the-big-sleep-remake-crime-noir-jimmy-stewart-robert-mitchum/
+
+The 1978 remake of the crime noir The Big Sleep, starring Robert Mitchum and Jimmy Stewart, shouldn't have been so strict with the source material.
+---------
+
+# 'The Punisher' Meets 'Constantine' in Nicolas Cage’s Bonkers Action Bomb Being Resurrected on HBO Max
+
+Movie News, Nicolas Cage, Drive Angry, Amber Heard, Action
+
+Sun, 03 May 2026 13:01:14 GMT
+
+https://collider.com/nicolas-cage-bonkers-action-movie-drive-angry-streaming-success-hbo-max-may-2026/
+
+The Punisher meets Constantine in Nicolas Cage’s bonkers action movie officially being resurrected on HBO Max.
+---------
+
+# 10 Greatest Jacob Elordi Movie Roles
+
+Movie, Jacob Elordi, Wuthering Heights, Frankenstein, The Kissing Booth
+
+Sun, 03 May 2026 12:56:13 GMT
+
+https://collider.com/jacob-elordi-movies-best-ranked/
+
+Jacob Elordi has become one of the most prominent actors in the entertainment industry. Here is a ranking of his best roles since his debut in 2018.
+---------
+
+# 24 Years Later, This Iconic Vietnam War Epic Still Holds Up
+
+Movie News, We Were Soldiers, War, Mel Gibson, Paramount Plus
+
+Sun, 03 May 2026 12:45:14 GMT
+
+https://collider.com/mel-gibson-vietnam-war-epic-we-were-soldiers-streaming-paramount-plus-may-2026/
+
+The Mel Gibson-led Vietnam War film, We Were Soldiers, is now streaming. Find out where to watch it here.
+---------
+
+# 8 Supernatural Movies From the 2000s That Have Aged Like Fine Wine
+
+Movie, Twilight, Coraline, Spirited Away, Corpse Bride
+
+Sun, 03 May 2026 12:35:14 GMT
+
+https://collider.com/supernatural-movies-2000s-aged-like-fine-wine/
+
+From Coraline to Corpse Bride, these supernatural classics from the 2000s have aged beautifully, taking you on an unforgettable trip down memory lane.
+---------
+
+# 24 Years Later, Tom Hanks' High-Stakes Crime Classic Is a Must-Watch on Free Streaming
+
+Movie News, Catch Me If You Can, Streaming, Tom Hanks, Leonardo DiCaprio
+
+Sun, 03 May 2026 12:30:14 GMT
+
+https://collider.com/tom-hanks-leonardo-dicaprio-crime-classic-catch-me-if-you-can-free-streaming-pluto-may-2026/
+
+Leonardo DiCaprio is on the run from Tom Hanks in Catch Me If You Can, which is now streaming for free. Find out more below.
+---------
+
+# 10 Best-Narrated Movies of All Time, Ranked
+
+Movie, Goodfellas, Grizzly Man, Fight Club, Trainspotting
+
+Sun, 03 May 2026 12:27:14 GMT
+
+https://collider.com/best-narrated-movies-all-time-ranked/
+
+If you're after particularly great narration, it can be found in classics like Goodfellas, Fight Club, and Werner Herzog's documentary Grizzly Man.
+---------
+
+# 10 Netflix Shows That Are Even Better the Second Time Around
+
+TV, The Haunting of Hill House, Beef, Black Mirror, Netflix
+
+Sun, 03 May 2026 12:21:14 GMT
+
+https://collider.com/best-netflix-shows-to-rewatch/
+
+Dive into the hidden layers and emotional depth of these Netflix shows on a second watch, from The Haunting of Hill House to Dark.
+---------
+
 # Gladiator Meets Game Of Thrones In Peacock's Underrated 10-Part Historical Epic
 
 Streaming TV, Masked Recs
