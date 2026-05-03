@@ -1,3 +1,245 @@
+# This Iconic 44-Year-Old Cyberpunk Manga Still Hasn't Had A Live-Action Adaptation, Despite Many Attempts
+
+Classic TV, Akira
+
+Sun, 03 May 2026 17:30:19 GMT
+
+https://screenrant.com/akira-cyberpunk-no-live-action-adaptation-attempts/
+
+One "high tech, low life" manga has an incredible legacy, but the 44-year-old cyberpunk story shockingly still hasn't had a live-action adaptation.
+---------
+
+# CBS Finally Listened To Fans’ 3-Year Tracker Plea
+
+Network TV, Tracker
+
+Sun, 03 May 2026 17:30:19 GMT
+
+https://screenrant.com/tracker-fan-plea-cbs-listen/
+
+After three years of begging and pleading, CBS finally listened to the biggest wish fans have for Justin Hartley's hit procedural, Tracker.
+---------
+
+# GTA 6 Official Price Update Has Gamers On Edge
+
+Gaming
+
+Sun, 03 May 2026 17:30:19 GMT
+
+https://screenrant.com/gta-6-price-update-rockstar-official-statement/
+
+Official word on GTA 6's pricing has redoubled players' anxiety surrounding the cost of the highly anticipated sequel.
+---------
+
+# Every Confirmed Star Wars Planet In The Mandalorian And Grogu (So Far)
+
+Star Wars, The Mandalorian and Grogu
+
+Sun, 03 May 2026 17:15:19 GMT
+
+https://screenrant.com/star-wars-planet-mandalorian-and-grogu-every/
+
+The trailers for the new film have kept the plot a mystery, but have shown new looks at some of the places Mando and Grogu will be headed to.
+---------
+
+# CBS' 4-Season American Sitcom Was Modern Family's Overlooked Cousin
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 17:00:19 GMT
+
+https://screenrant.com/life-in-pieces-sitcom-modern-family-cousin/
+
+CBS’s 4-season sitcom that is the overlooked cousin of Modern Family deserves more recognition for its unique story structure and impressive cast.
+---------
+
+# PlayStation Plus Losing Multiple Free Games In 24 Hours
+
+Gaming, PlayStation Plus
+
+Sun, 03 May 2026 17:00:19 GMT
+
+https://screenrant.com/playstation-plus-april-2026-essential-games-leaving/
+
+A new batch of PlayStation Plus games are about to arrive, but before that happens, multiple free games will be leaving PS Plus in about 24 hours.
+---------
+
+# Friends Star Reveals The Show's Horrifying Behind-The-Scenes Truth
+
+TV, Friends
+
+Sun, 03 May 2026 16:56:30 GMT
+
+https://screenrant.com/friends-lisa-kudrow-writers-room-behind-the-scenes-truth/
+
+The fun NBC sitcom Friends has taken a dark turn, as this original star reveals the horrifying truth about what happened behind the scenes.
+---------
+
+# Bruce Willis & Morgan Freeman's 2010 Comic Book Movie Is One Of DC's Most Star-Studded Movies
+
+Movies, RED, Bruce Willis
+
+Sun, 03 May 2026 16:55:21 GMT
+
+https://screenrant.com/red-bruce-willis-morgan-freeman-comic-book-movie/
+
+Bruce Willis, Morgan Freeman and Karl Urban fronted the most star-studded DC comics adaptation ever, which still holds up over 15 years later.
+---------
+
+# 10 Best Voice Acting Performances In Movies From The Past Decade
+
+Movies, Ranking
+
+Sun, 03 May 2026 16:40:20 GMT
+
+https://screenrant.com/best-voice-acting-performances-movies-2016-2025/
+
+The last 10 years have been home to some tremendous voice acting performances from superheroes to musicals to incredible villains and more.
+---------
+
+# CBS Officially Downsizes Fire Country Season 5 After Major Cast Shakeup
+
+TV, Fire Country
+
+Sun, 03 May 2026 17:35:34 GMT
+
+https://www.cbr.com/cbs-fire-country-season-5-lower-episode-count/
+
+CBS cuts down on Fire Country following the announcement of another spinoff and a major shakeup in the series' creative team.
+---------
+
+# The NCIS Franchise Gets Episode Deduction From CBS Despite Renewals
+
+TV, NCIS
+
+Sun, 03 May 2026 17:15:44 GMT
+
+https://www.cbr.com/ncis-origins-sydney-lower-episode-count-fall-2026/
+
+The police procedural franchise has received a renewal, but CBS is making some big changes.
+---------
+
+# 10 Best RTS Games of All Time
+
+Games, Age of Empires, Star Wars, Gaming
+
+Sun, 03 May 2026 17:15:12 GMT
+
+https://www.cbr.com/best-rts-games-all-time/
+
+Discover the best RTS games in the genre, with ones that provide plenty of high-stakes narratives, blend genres, and have the best strategy elements.
+---------
+
+# Spider-Man's Deadliest Foe Carnage Goblin Confirmed To Return In Summer 2026
+
+Comics, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse
+
+Sun, 03 May 2026 17:05:18 GMT
+
+https://www.cbr.com/spider-man-deadliest-marvel-foe-returns-summer-2026/
+
+How on Earth can Spider-Man defeat the supervillain Marvel just put in front of him?
+---------
+
+# Batman: War on Crime is a Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, Batman, alex ross, superheroes
+
+Sun, 03 May 2026 17:00:13 GMT
+
+https://www.cbr.com/alex-ross-paul-dini-batman-war-on-crime-comic-you-should-be-reading/
+
+Following up on the acclaimed Superman: Peace on Earth, Ross and Dini dive into the Man behind the Bat as Bruce Wayne tries to make things better.
+---------
+
+# 29 Years Later, the 5 Most Important Words in Horror Movie History Remain Unmatched
+
+Movies, Scream, Wes Craven, Horror
+
+Sun, 03 May 2026 17:00:13 GMT
+
+https://www.cbr.com/scream-do-you-like-scary-movies-quote-changed-horror/
+
+Wes Craven's slasher classic revolutionized the horror subgenre forever with an iconic quote, and its influence remains today.
+---------
+
+# 6 Greatest HBO Episodes of All Time, According to Rotten Tomatoes
+
+TV, HBO, Game Of Thrones, Succession, The Last of Us
+
+Sun, 03 May 2026 17:33:12 GMT
+
+https://collider.com/best-hbo-episodes-all-time-rotten-tomatoes/
+
+According to Rotten Tomatoes, important episodes from Game of Thrones, The Last of Us, Big Little Lies, and Succession are some of HBO's greatest.
+---------
+
+# 27 Years Later, Daniel Craig and Cillian Murphy's War Drama Is Better Than Its Rancid RT Score
+
+Music Features, The Trench, Daniel Craig, Cillian Murphy, War
+
+Sun, 03 May 2026 17:31:13 GMT
+
+https://collider.com/the-trench-daniel-craig-cillian-murphy/
+
+The 1999 World War I movie The Trench with Daniel Craig and Cillian Murphy is better than its 40% score on the Rotten Tomatoes Popcornmeter suggests.
+---------
+
+# 8 Forgotten Detective Movies That Have Aged Like Fine Wine
+
+Movie, Mystery, Night Moves, The Kid Detective, Zero Effect
+
+Sun, 03 May 2026 17:03:13 GMT
+
+https://collider.com/forgotten-detective-movies-aged-like-fine-wine/
+
+'70s gems like Night Moves and cult classics in the making like The Kid Detective are among the best detective movies that have been sadly forgotten.
+---------
+
+# Matthew McConaughey's Forgotten 'The Mummy' Dupe Is Taking Over Paramount+
+
+Movie News, Sahara, Adventure, Matthew McConaughey, Penelope Cruz
+
+Sun, 03 May 2026 17:00:13 GMT
+
+https://collider.com/matthew-mcconaughey-the-mummy-replacement-sahara-streaming-paramount-plus-may-2026/
+
+Matthew McConaughey and Penélope Cruz team up in the dusty adventure film Sahara, now streaming on Paramount+. Find out more below.
+---------
+
+# 8 Most Underrated Action Horror Movies, Ranked
+
+Movie, Dog Soldiers, Versus, The Seventh Curse, Petey Wheatstraw
+
+Sun, 03 May 2026 16:41:14 GMT
+
+https://collider.com/most-underrated-action-horror-movies-ranked/
+
+Action horror movies are often unusual and not for everyone, so some stand as quite underrated, including The Seventh Curse and Haunted Samurai.
+---------
+
+# 'Clayface's Bold Body Horror Genre Sets an Example for Marvel's 'Blade'
+
+Features, Clayface, Blade, DCU, MCU
+
+Sun, 03 May 2026 17:30:17 GMT
+
+https://movieweb.com/marvel-blade-reboot-dc-clayface-steal/
+
+The trailer for 'Clayface' showcases the diverse tones and style that will make up the DCU, a lesson that Marvel Studios should learn for 'Blade.'
+---------
+
+# 'The Lord of the Rings': The Greatest Fantasy Franchise Ever Returns With an Epic Story in 2026
+
+Features, The Rings of Power, Fantasy
+
+Sun, 03 May 2026 17:00:18 GMT
+
+https://movieweb.com/lord-of-the-rings-rings-of-power-return-2026/
+
+'The Rings of Power' returns this year, continuing to adapt one of J.R.R. Tolkien's most epic stories. Here's why you should tune in.
+---------
+
 # The Devil Wears Prada 2’s Major Returning Character Death Explained By Director
 
 Movies, The Devil Wears Prada 2
