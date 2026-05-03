@@ -1,3 +1,223 @@
+# X-Men's Magik And Colossus Swap Powers In Epic Redesign
+
+Marvel Comics, X-Men, Colossus, Marvel
+
+Sun, 03 May 2026 22:30:19 GMT
+
+https://screenrant.com/x-men-colossus-redesign-magik/
+
+Colossus' new redesign gives the X-Men's ultra-strong powerhouse a new set of powers and a new costume that Piotr Rasputin is quite familiar with.
+---------
+
+# Why 2026 Is The Most Ambitious Year For Horror In A Decade
+
+Movies, Op-Ed, Horror
+
+Sun, 03 May 2026 22:25:19 GMT
+
+https://screenrant.com/horror-movies-2026-most-ambitious-year/
+
+Horror movies are finally finding respect in Hollywood, and here is why 2026 looks to be one of the most ambitious years in over a decade.
+---------
+
+# The Devil Wears Prada 2 Ending Is A Nod To Sigourney Weaver & Harrison Ford's Classic '80s Movie
+
+Movies, The Devil Wears Prada 2
+
+Sun, 03 May 2026 22:22:29 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-ending-shot-working-girl-explained-meryl-streep/
+
+The Devil Wears Prada 2 star and director say the film plays homage to Sigourney Weaver and Harrison Ford's classic romantic comedy.
+---------
+
+# Disney+'s New 'Cobra Kai Meets Stranger Things' Show Will Rescue One Of The Greatest American Franchises
+
+Streaming TV, Power Rangers, Disney+
+
+Sun, 03 May 2026 22:00:18 GMT
+
+https://screenrant.com/power-rangers-franchise-disney-plus-reboot-rescue/
+
+An upcoming Disney+ reboot represents could resurrect an icon of Saturday morning TV and unleash its untapped potential to be a streaming titan.
+---------
+
+# The Legend Of Zelda Officially Returns With Unexpected Anniversary Release
+
+Gaming, The Legend of Zelda, PC, The Elder Scrolls V: Skyrim
+
+Sun, 03 May 2026 22:00:18 GMT
+
+https://screenrant.com/zelda-official-unexpected-anniversary-skyrim-release/
+
+With the Legend of Zelda officially turning 40 years old this year, fans probably weren't expecting this brand-new surprise anniversary release.
+---------
+
+# 10 Greatest Pokémon Cards Of All Time Judged By Their Art
+
+Gaming, Pokemon, Pokemon Trading Card Game, Pokemon Trading Card Game Pocket
+
+Sun, 03 May 2026 22:00:18 GMT
+
+https://screenrant.com/best-pokemon-card-art-all-time/
+
+Pokémon cards are not just great because of their powerful gameplay, some of the cards are true works of art and these are the 10 most stunning.
+---------
+
+# 10 Scariest Modern Horror Movie Villains, Ranked
+
+Movies, Horror, Ranking
+
+Sun, 03 May 2026 21:55:19 GMT
+
+https://screenrant.com/scariest-modern-horror-movie-villains-ranked/
+
+Up there with the likes of Freddy, Jason, or Michael, these 10 modern horror movie villains are as iconic as they are terrifying.
+---------
+
+# Harry Potter's Premiere Rewrites The Rules Of HBO Sundays
+
+Streaming TV, Harry Potter
+
+Sun, 03 May 2026 21:45:10 GMT
+
+https://screenrant.com/harry-potter-season-1-premiere-hbo-friday-not-sunday/
+
+HBO Sundays have long been a big deal for the network. Surprisingly, the new Harry Potter series is about to change everything.
+---------
+
+# Wednesday Season 3 Shifts Focus from Nevermore Academy to Paris
+
+TV, Wednesday, Netflix, Fantasy
+
+Sun, 03 May 2026 22:30:12 GMT
+
+https://www.cbr.com/netflix-wednesday-season-3-location-change/
+
+Wednesday is making a change to the core of the show in Season 3, and that's a risk.
+---------
+
+# Best SNES Fighting Games That Still Hold Up Today
+
+Games, Nintendo, Video Games, Gaming
+
+Sun, 03 May 2026 22:15:12 GMT
+
+https://www.cbr.com/snes-fighting-games-that-hold-up/
+
+The SNES might not have had the hardware prowess of the arcades, but it still had a ton of amazing fighting games that brought in the crowds.
+---------
+
+# Kagurabachi Scores Major Milestone After Long-Awaited Anime Release
+
+Anime, Kagurabachi
+
+Sun, 03 May 2026 22:00:12 GMT
+
+https://www.cbr.com/kagurabachi-manga-circulation-milestone/
+
+Kagurabachi’s latest achievement confirms its status as one of the hottest manga being serialized right now.
+---------
+
+# John Wick's Lowest-Grossing Movie Charts a Streaming Comeback 1 Year Later
+
+Movie News, John Wick, From the World of John Wick: Ballerina, Keanu Reeves, Ana De Armas
+
+Sun, 03 May 2026 22:30:12 GMT
+
+https://collider.com/john-wick-lowest-grossing-spin-off-ballerina-streaming-success-hbo-max-may-2026/
+
+The mighty John Wick franchise was almost brought down by one of its spin-offs, which is now taking center stage on streaming. Find out more here.
+---------
+
+# Jennifer Lawrence’s Wild 103-Minute Favorite Is the Ultimate Late-Night Watch
+
+Movie News, Jennifer Lawrence, No Hard Feelings, HBO Max, Streaming
+
+Sun, 03 May 2026 22:15:13 GMT
+
+https://collider.com/jennifer-lawrence-late-night-no-hard-feelings-streaming-success-hbo-max-may-2026/
+
+Jennifer Lawrence's NSFW gem, No Hard Feelings, is back in the American streaming charts. Here's what you should know about the laugh-out-loud film.
+---------
+
+# 10 Blockbuster Comedies With Great Acting, Ranked
+
+Movie, Comedy, It Happened One Night, Young Frankenstein, The Big Lebowski
+
+Sun, 03 May 2026 22:04:14 GMT
+
+https://collider.com/blockbuster-comedies-great-acting-ranked/
+
+Hitch, The Addams Family, Napoleon Dynamite, Sister Act, Young Frankenstein, and more make up our list of blockbuster comedies with great acting.
+---------
+
+# ‘Euphoria’ Fans Are Turning Sydney Sweeney’s Box Office Miss Into a Streaming Hit
+
+Movie News, Euphoria, Sydney Sweeney, HBO Max, Christy
+
+Sun, 03 May 2026 22:00:12 GMT
+
+https://collider.com/sydney-sweeney-true-crime-box-office-miss-christy-streaming-success-hbo-max-may-2026-euphoria/
+
+Sydney Sweeney's underrated box office flop based on a true story, Christy, is back in the streaming charts. Find out more here.
+---------
+
+# 5 Forgotten War Movies That Are Amazing From Start to Finish
+
+Movie, War, Army of Shadows, Breaker Morant, The Steel Helmet
+
+Sun, 03 May 2026 21:55:13 GMT
+
+https://collider.com/forgotten-war-movies-amazing/
+
+Army of Shadows, Tigerland, and The Steel Helmet are overlooked and mostly forgotten war movies that are genuinely amazing.
+---------
+
+# 10 Greatest Video Game Masterpieces of the 1990s, Ranked
+
+Movie, Video Game, Metal Gear Solid, Half-Life, Mario
+
+Sun, 03 May 2026 21:42:12 GMT
+
+https://collider.com/best-video-game-masterpieces-1990s-ranked/
+
+Goldeneye 007, The Legend of Zelda: Ocarina of Time, and Street Fighter II are all among the very best video games of the '90s decade.
+---------
+
+# Forget 'Lioness,' Paramount's 'The Agency' Is Its Best Action Thriller Original
+
+Features, Lioness, The Agency, Comparison Recommendation
+
+Sun, 03 May 2026 22:30:17 GMT
+
+https://movieweb.com/the-agency-paramount-lioness-replacement/
+
+Forget about Taylor Sheridan's Lioness, Paramount+'s CIA spy series The Agency is far more compelling
+---------
+
+# 'The Boys': Every Homelander Love Interest, Ranked
+
+TV Lists, The Boys
+
+Sun, 03 May 2026 22:00:18 GMT
+
+https://movieweb.com/the-boys-homelander-love-interests/
+
+Homelander has tried his luck in love and lust several times in The Boys. Here's how his love interests rank against each other.
+---------
+
+# Tom Hiddleston: 'Avengers: Doomsday' Will "Defy All Your Expectations"
+
+Movie News, Loki, Tom Hiddleston, Avengers: Doomsday
+
+Sun, 03 May 2026 21:50:23 GMT
+
+https://movieweb.com/tom-hiddleston-avengers-doomsday-defy-expectations/
+
+Out expectations for 'Avengers: Doomsday' are already sky-high. Tom Hiddleston (Loki) thinks we should aim higher.
+---------
+
 # Alien: Earth: Adapting Ridley Scott's Original 1979 Ending
 
 Streaming TV, Alien: Earth, Alien
