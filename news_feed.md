@@ -1,3 +1,322 @@
+# Saros: Best Carcosan Modifiers & When To Use Them
+
+Gaming, Saros, PC
+
+Sun, 03 May 2026 02:08:32 GMT
+
+https://screenrant.com/saros-best-carcosan-modifiers/
+
+If you're struggling to take down one of Saros's challenging bosses, the built-in Carcosan Modifier system will help you throttle difficulty.
+---------
+
+# Red Dead Redemption 2 Fans Can Finally Download An Iconic Outfit
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption, Triple-A Games, PC
+
+Sun, 03 May 2026 02:00:31 GMT
+
+https://screenrant.com/red-dead-redemption-2-outfit-clint-eastwood-mod/
+
+Red Dead Redemption 2 might not be getting the same attention as Grand Theft Auto 6 right now, but that doesn't mean it's time to leave it behind.
+---------
+
+# Wonder Woman’s New Appearance Is A ’90s Throwback DC Should Have Avoided
+
+DC Comics, Wonder Woman, DC, Batman
+
+Sun, 03 May 2026 02:00:31 GMT
+
+https://screenrant.com/wonder-woman-batman-truth-sexist-criticism/
+
+The latest outing for Wonder Woman revisits a bygone DC era, and, above all else, does a great job of showing how far comics have come.
+---------
+
+# 10 Greatest New-Gen Manga To Read After Black Clover’s Ending
+
+Anime, Black Clover
+
+Sun, 03 May 2026 01:48:23 GMT
+
+https://screenrant.com/best-new-gen-manga-read-after-black-clover/
+
+Black Clover's ending left fans with a huge void. Luckily these new-gen manga are so good they will pull readers out of their post-Black Clover slump.
+---------
+
+# 7-Part Netflix Series Starring A Hollywood Icon Broke All The Rules
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 01:36:39 GMT
+
+https://screenrant.com/grace-and-frankie-netflix-series-broke-rules-age/
+
+Grace And Frankie, starring Jane Fonda & Lily Tomlin, broke TV norms by focusing on women in their 70s, exploring aging, reinvention, & independence.
+---------
+
+# Stephen King's Castle Rock: A Faithful Tribute to His Literary Universe
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 01:30:20 GMT
+
+https://screenrant.com/stephen-king-castle-rock-hulu-best-series/
+
+There's no shortage of TV shows based on the works of Stephen King, but Castle Rock is easily one of the all-time best King adaptations.
+---------
+
+# 10 Modern TV Crossovers We Want To See
+
+Classic TV
+
+Sun, 03 May 2026 01:16:18 GMT
+
+https://screenrant.com/modern-tv-crossovers-want-to-see/
+
+In a TV landscape that's never been more divided, we need crossovers that remind us of the magic that happens when two series share a universe.
+---------
+
+# Why Sydney Sweeney's R-Rated Thriller Is Officially Taking Over America Despite Backlash
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 01:03:43 GMT
+
+https://screenrant.com/sydney-sweeney-euphoria-season-3-success-hbo-max-may-2026/
+
+Sydney Sweeney has returned to the small screen with an R-rated thriller, which is currently one of the most-watched shows in the United States.
+---------
+
+# Red Dead Redemption 2: Life Of Crime Is All Thanks To The Fans
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sun, 03 May 2026 01:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-life-of-crime-is-all-thanks-to-the-fans/
+
+Some Red Dead Redemption 2 mods really do change everything, and none more so than Life of Crime.
+---------
+
+# 10 Near-Perfect Character Designs That Marvel Somehow Made Even Better
+
+Marvel Comics, Marvel
+
+Sun, 03 May 2026 01:00:20 GMT
+
+https://screenrant.com/marvel-best-character-designs-improved-costumes/
+
+Throughout the years, Marvel has taken promising character designs and overhauled them to transform famous characters into unforgettable icons.
+---------
+
+# Texas Chainsaw Massacre Reboot Director Teases His New Vision
+
+Movies, The Texas Chainsaw Massacre
+
+Sun, 03 May 2026 02:04:45 GMT
+
+https://www.cbr.com/curry-barker-explains-texas-chainsaw-massacre-reboot/
+
+Curry Barker, who's directing the upcoming Texas Chainsaw Massacre reboot, teases where he's taking the franchise next.
+---------
+
+# JoJo's Bizarre Adventure Director Teases New Steel Ball Run Content Ahead of Netflix Release
+
+Anime, Jojo's Bizarre Adventure, Netflix
+
+Sun, 03 May 2026 02:00:22 GMT
+
+https://www.cbr.com/jojo-bizarre-adventure-new-steel-ball-run-anime-netflix-release/
+
+Director Yasuhiro Kimura talks about bringing anime original content to the world of Steel Ball Run before the series returns to Netflix.
+---------
+
+# 6 Biggest Reveals From the Spider-Man: Brand New Day Script
+
+Movies, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 03 May 2026 02:00:22 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-script-biggest-reveals-list/
+
+The director of Spider-Man: Brand New Day shared the first few pages of the upcoming film's script, which includes some interesting plot details.
+---------
+
+# Quentin Tarantino Almost Made the Greatest Star Trek Movie Ever
+
+Movies, Star Trek
+
+Sun, 03 May 2026 02:00:22 GMT
+
+https://www.cbr.com/quentin-tarantino-greatest-star-trek-movie-ever/
+
+A surprising number of potential Star Trek movies fell apart in development in the past ten years, and Quentin Tarantino's might be the biggest loss.
+---------
+
+# Jo Nesbø's Detective Hole Is A Darker, Bolder Police Procedural Than Bosch
+
+TV, Jo Nesbø's Detective Hole, Bosch, Crime
+
+Sun, 03 May 2026 02:00:22 GMT
+
+https://www.cbr.com/netflix-jo-nesbo-detective-hole-better-darker-than-prime-video-bosch/
+
+Netflix's gritty 9-part crime drama, Jo Nesbø's Detective Hole, outshines Bosch with its darker, more realistic portrayal of a flawed detective.
+---------
+
+# 10 Classic 2000s Anime That Aren't As Good As You Remember
+
+Anime, Black Butler, Code Geass: Lelouch of the Rebellion, Love Hina, Elfen Lied
+
+Sun, 03 May 2026 01:45:12 GMT
+
+https://www.cbr.com/2000s-anime-not-good-as-memory/
+
+In hindsight, not every anime from the 2000s is worth going back for a re-watch.
+---------
+
+# 10 Romantasy Movies That Are Better Than 'Fourth Wing'
+
+Movies, Romance, Twilight, The Mortal Instruments
+
+Sun, 03 May 2026 01:30:13 GMT
+
+https://www.cbr.com/romantasy-movies-better-than-fourth-wing-list/
+
+Fourth Wing is the newest in the romantasy craze but no story does the genre better than these films.
+---------
+
+# Adam Scott Auditioned for Hellraiser 6, Despite Dying in Part 4
+
+Movies, Hellraiser, Hellraiser: Bloodline, Hellraiser: Hellseeker
+
+Sun, 03 May 2026 01:29:58 GMT
+
+https://www.cbr.com/adam-scott-hellraiser-6-audition/
+
+Adam Scott tried to land a role in a horror movie sequel despite getting killed off earlier in the franchise.
+---------
+
+# There Aren't Many 10/10 Anime Series, But These 10 Anime Are a Must-Watch
+
+Anime, Frieren: Beyond Journey's End, mecha, Fullmetal Alchemist
+
+Sun, 03 May 2026 01:25:12 GMT
+
+https://www.cbr.com/best-must-watch-anime-series-flawless-start-to-finish/
+
+Every anime fans needs to watch these 10/10 series before any others.
+---------
+
+# 6 Sci-Fi Shows Better Than Stargate SG-1
+
+TV, Stargate SG-1, Sci-Fi
+
+Sun, 03 May 2026 01:00:12 GMT
+
+https://www.cbr.com/sci-fi-shows-better-than-stargate-sg1-list/
+
+Stargate SG-1 may be one of the greatest sci-fi television series of all time, but these shows surpass it in quality and impact.
+---------
+
+# 10 Greatest HBO Shows of the Last 5 Years, Ranked
+
+TV, HBO, The Pitt, Hacks, House of the Dragon
+
+Sun, 03 May 2026 02:04:13 GMT
+
+https://collider.com/best-hbo-shows-last-5-years-ranked/
+
+Discover HBO's best shows from the past five years, ranked based on storytelling, performances, and impact, from The Pitt to House of the Dragon.
+---------
+
+# 7 Forgotten Pedro Pascal Movies and Shows You (Probably) Haven't Seen
+
+Movie, Pedro Pascal, Strange Way of Life, Freaky Tales, If Beale Street Could Talk
+
+Sun, 03 May 2026 01:33:14 GMT
+
+https://collider.com/underrated-pedro-pascal-movies-shows/
+
+If Beale Street Could Talk, Freaky Tales, Strange Way of Life, and more make up our list of the best underrated Pedro Pascal movies and shows.
+---------
+
+# This 3-Part Cult Classic on Netflix Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Avatar: The Last Airbender, Netflix, Animation, Nickelodeon
+
+Sun, 03 May 2026 01:02:12 GMT
+
+https://collider.com/netflix-avatar-the-last-airbender-animated-weekend-binge/
+
+Avatar: The Last Airbender balances humor, adventure, and complex themes, set in a stunning original universe.
+---------
+
+# 5 Near-Perfect Netflix Shows That No One Remembers Today
+
+TV, Netflix, Bloodline, Sense8, The OA
+
+Sun, 03 May 2026 00:34:13 GMT
+
+https://collider.com/near-perfect-netflix-shows-no-one-remembers/
+
+From the sci-fi cult classic Sense8 to the psychological thriller series Bloodline, these Netflix shows have been largely forgotten by audiences.
+---------
+
+# Netflix's 6-Part Crime Thriller Adaptation Is Still One of the Best Ever Made
+
+TV Features, Alias Grace, Sarah Gadon, Margaret Atwood, Netflix
+
+Sat, 02 May 2026 23:52:13 GMT
+
+https://collider.com/alias-grace-netflix-crime-thriller-adaptation-best/
+
+Margaret Atwood's Alias Grace, a psychological thriller miniseries, delves into the life of controversial historical figure Grace Marks.
+---------
+
+# Netflix's 10-Part Miniseries Based on a True Story Is a Perfect Weekend Binge
+
+TV Features, Maid, Netflix, Margaret Qualley, Andie MacDowell
+
+Sat, 02 May 2026 23:36:12 GMT
+
+https://collider.com/netflix-maid-miniseries-based-on-a-true-story-margaret-qualley/
+
+Maid tells the inspiring true story of a single mother's struggle in a 10-part Netflix miniseries based on Stephanie Land's memoir.
+---------
+
+# 10 Divisive TV Shows That Are Pure Rage Bait
+
+TV Lists
+
+Sun, 03 May 2026 02:00:29 GMT
+
+https://movieweb.com/tv-shows-divisive-rage-bait/
+
+Tired of prestige TV? Want something with a little more edge? These shows aren't perfect, but they're undoubtedly entertaining.
+---------
+
+# Will There Be a 'Devil Wears Prada 3'? Confirmation, Cast, & Everything We Know
+
+Features, The Devil Wears Prada 2, Everything We Know
+
+Sun, 03 May 2026 01:00:18 GMT
+
+https://movieweb.com/devil-wears-prada-3-everything-we-know/
+
+With 'The Devil Wears Prada' tracking for a massive opening, the director and cast have discussed ideas for a third film.
+---------
+
+# 9 Great Action Thriller Movies Made by Auteur Directors
+
+Movie Lists, Action, Thriller
+
+Sun, 03 May 2026 00:00:18 GMT
+
+https://movieweb.com/great-action-thriller-movies-by-auteur-directors/
+
+Some of the best directors, like James Cameron and Steven Spielberg, have great action movies under their belts.
+---------
+
 # How Artemis Fowl Can Find Redemption After Disney+'s Percy Jackson Success
 
 Streaming TV, Percy Jackson & the Olympians, Artemis Fowl
