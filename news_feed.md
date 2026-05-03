@@ -1,3 +1,168 @@
+# Apple TV’s New Horror Comedy Series With Near-Perfect Rotten Tomatoes Score Is Already One Of Its Best
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 19:36:19 GMT
+
+https://screenrant.com/apple-tv-widows-bay-best-new-series-watch/
+
+Apple TV's new horror comedy series, starring Matthew Rhys, has earned a near-perfect Rotten Tomatoes score and quickly became one of its best shows.
+---------
+
+# CBS’ Ghosts Companion Series Took 11 Years To Be Officially Greenlit
+
+TV, Eternally Yours
+
+Sun, 03 May 2026 19:35:51 GMT
+
+https://screenrant.com/eternally-yours-ghosts-cbs-11-year-development/
+
+Ghosts' companion show that is premiering on CBS in the fall of 2026 had an uncertain but ultimately successfully 11-year journey to being greenlit.
+---------
+
+# A Knight Of The Seven Kingdoms Is Unlikely To Solve Game Of Thrones' Biggest Mystery
+
+Streaming TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Sun, 03 May 2026 19:30:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-game-of-thrones-tragedy-summerhall-mystery/
+
+HBO's Game of Thrones spinoff should, in theory, solve a massive franchise mystery. Given several constraints, however, it seems unlikely to happen.
+---------
+
+# The 4-Part Spy Thriller So Good, Even Prince William Has Watched Every Episode
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 19:15:20 GMT
+
+https://screenrant.com/killing-eve-spy-thriller-good-prince-william/
+
+Killing Eve, a critically acclaimed spy thriller, caught the attention of Prince William & became a cultural phenomenon, exploring unique dynamics.
+---------
+
+# Netflix’s 16-Part Sci-Fi Series That’s ‘Dark Meets Tenet’ Is A Time Travel Hidden Gem
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 19:00:19 GMT
+
+https://screenrant.com/netflix-sci-fi-sisyphus-the-myth-dark-tenet-time-travel/
+
+This K-Drama fuses the layered loops of Dark with the high-stakes espionage of Tenet, creating a time travel experience like no other.
+---------
+
+# Bloodborne Officially Returns Next Month With 10th Anniversary Release
+
+Gaming, Bloodborne, PlayStation 5
+
+Sun, 03 May 2026 19:00:19 GMT
+
+https://screenrant.com/bloodborne-2026-anniversary-release-official/
+
+Bloodborne is one of the most beloved games of the last 20 years, and it's back in an entirely new medium to celebrate its 10th anniversary.
+---------
+
+# Netflix Officially Confirms The End Of An Era
+
+New Movies, Netflix, Narnia: The Magician's Nephew
+
+Sun, 03 May 2026 18:55:21 GMT
+
+https://screenrant.com/netflix-narnia-movie-theaters-release-end-era/
+
+Netflix is the dominant force in streaming with some of the biggest movies and shows around, but a significant change has brought the end of an era.
+---------
+
+# 3 Times Inuyasha's Shippo Stole the Spotlight
+
+Anime, Inuyasha, shonen anime
+
+Sun, 03 May 2026 19:16:26 GMT
+
+https://www.cbr.com/inuyasha-shippo-spotlight/
+
+Some anime characters have the energy to claim the spotlight easily, and Shippo steals it away from Inuyasha every chance he gets.
+---------
+
+# Meryl Streep Reveals Miranda Priestly's Softer Side in The Devil Wears Prada 2 Avoids 'Marvel-izing' the Character
+
+Movies, Meryl Streep, The Devil Wears Prada 2
+
+Sun, 03 May 2026 19:05:44 GMT
+
+https://www.cbr.com/meryl-streep-miranda-priestlys-softer-side-the-devil-wears-prada-2/
+
+The iconic role of Miranda Priestly added another Oscar nomination to Meryl Streep's long list.
+---------
+
+# 5 Most Powerful Asian Heroes in the MCU, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Sun, 03 May 2026 19:00:13 GMT
+
+https://www.cbr.com/most-powerful-asian-heroes-mcu-list/
+
+Recent speculation has teased an Asian superhero team forming in the MCU, and these powerful heroes would be incredible additions to the line-up.
+---------
+
+# The Greatest Legal Drama Ever Made Is Sitting on Hulu After 40 Years
+
+TV Features, L.A. Law, Corbin Bernsen, Harry Hamlin, Drama
+
+Sun, 03 May 2026 19:15:13 GMT
+
+https://collider.com/hulu-la-law-legal-drama-series/
+
+After 40 years, L.A. Law still holds up today and set the bar high for legal dramas, creating the blueprint for TV procedurals.
+---------
+
+# Henry Cavill’s Upcoming Sci-Fi Fantasy Epic Gets Enchanting Update From Co-Star
+
+Movie News, Henry Cavill, Karen Gillan, Highlander, Chad Stahelski
+
+Sun, 03 May 2026 19:09:30 GMT
+
+https://collider.com/henry-cavill-highlander-sci-fi-reboot-karen-gillan-first-look-images/
+
+Henry Cavill's Highlander reboot is currently filming in Scotland, with co-star Karen Gillan sharing first look images online. See them here!
+---------
+
+# Josh Hartnett's Savage Vampire Horror Movie Is a Must-Watch on Free Streaming
+
+Movie News, 30 Days of Night, Josh Hartnett, Horror, Melissa George
+
+Sun, 03 May 2026 19:00:13 GMT
+
+https://collider.com/josh-hartnett-savage-vampire-horror-30-days-of-night-streaming-free-pluto-may-2026/
+
+Josh Hartnett's brutal vampire film, 30 Days of Night, is now streaming. Find out where to watch it for free.
+---------
+
+# 5 Upcoming Rom-Coms You Cannot Miss
+
+Movie, romcom, Heartstopper, Sense and Sensibility, Practical Magic 2
+
+Sun, 03 May 2026 18:50:13 GMT
+
+https://collider.com/2026-rom-coms-you-cannot-miss/
+
+Heartstopper Forever, One Night Only, Practical Magic 2, Verity, and more make up our list of upcoming 2026 rom-coms you cannot miss.
+---------
+
+# Trump Responds To 'Apprentice' Reboot Rumors With Son As Host
+
+TV News, The Apprentice, Donald Trump, Prime Video
+
+Sun, 03 May 2026 19:43:54 GMT
+
+https://movieweb.com/donald-trump-jr-apprentice-reboot-rumors/
+
+Donald Trump Jr. may take time away from podcasting and investing in crypto mining to host a reboot of 'The Apprentice.'
+---------
+
 # 10 Best Workplace Sitcoms Everyone Forgot About
 
 Classic TV, Sitcoms
