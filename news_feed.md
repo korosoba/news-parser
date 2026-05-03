@@ -1,3 +1,190 @@
+# Gladiator Meets Game Of Thrones In Peacock's Underrated 10-Part Historical Epic
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 12:01:20 GMT
+
+https://screenrant.com/those-about-to-die-peacock-overlooked-historical-epic/
+
+Peacock's 2024 hidden gem expertly blends the high-octane battles of Gladiator's Ancient Rome with Game of Thrones' royal family power struggles.
+---------
+
+# Studio Ghibli's Most Infamous Box Office Bomb Proves How Deeply Fans Misunderstand The Anime Giant
+
+Anime, Studio Ghibli, The Tale of the Princess Kaguya, Princess Mononoke
+
+Sun, 03 May 2026 12:01:20 GMT
+
+https://screenrant.com/princess-kaguya-bomb-misunderstand-ghibli/
+
+The biggest Studio Ghibli box office bomb just proves that audiences do not understand the legendary anime studio, and it is really a shame.
+---------
+
+# 10 Most Painful-Looking Stunts In The Jackass Movies
+
+Movies, Jackass, Jackass: The Movie, Jackass Number Two, Jackass 3.5, Jackass 3D, Jackass Forever
+
+Sun, 03 May 2026 12:01:20 GMT
+
+https://screenrant.com/jackass-movies-most-painful-stunts/
+
+The Jackass movies are full of ridiculous set pieces and wild stunts, but some seem so painful that most people would never try them.
+---------
+
+# Final Fantasy 7 Rebirth Free DLC Launches Ahead Of New Release
+
+Gaming, Final Fantasy 7 Rebirth
+
+Sun, 03 May 2026 12:01:20 GMT
+
+https://screenrant.com/final-fantasy-7-rebirth-free-dlc-april-2026/
+
+Experience the first two chapters of Final Fantasy VII Rebirth, including Cloud's Nibelheim adventure and Sephiroth's descent.
+---------
+
+# Steam 2025 Game Free To Keep Forever Until May 7, No Strings Attached
+
+Gaming, Steam
+
+Sun, 03 May 2026 11:30:20 GMT
+
+https://screenrant.com/steam-free-game-may-2027-horror/
+
+Steam gamers have until May 7 to download and play a 2025 hidden gem completely free. Oh, and you get to keep the game forever.
+---------
+
+# Justin Hartley's Tracker Gets a Disappointing Streaming Update 3 Weeks Before Season 3 Finale
+
+TV, Tracker
+
+Sun, 03 May 2026 12:00:13 GMT
+
+https://www.cbr.com/justin-hartley-tracker-losing-steam-paramount-may-2026/
+
+Despite an action-packed Season 3, fans get a disappointing update regarding Tracker's latest season right as the finale approaches.
+---------
+
+# Absolute Universe Crossover Event Details Confirmed Ahead of Martian Manhunter Finale
+
+Comics, Martian Manhunter, DC Comics
+
+Sun, 03 May 2026 12:00:13 GMT
+
+https://www.cbr.com/absolute-universe-crossover-event-details-confirmed/
+
+The Absolute Universe's upcoming crossover event is all coming together thanks to the most mind-bending hero any DC Universe has ever seen.
+---------
+
+# 4 Sci-Fi Books Better Than Dune
+
+Movies, Sci-Fi
+
+Sun, 03 May 2026 12:00:13 GMT
+
+https://www.cbr.com/sci-fi-books-better-than-dune-list/
+
+Sci-fi stories are prolific on the screen and page, and while Dune may be currently popular, other books are even better.
+---------
+
+# 6 Great Sci-Fi Shows That Are Exactly Like The Expanse
+
+TV, The Expanse, Sci-Fi, For All Mankind, Foundation
+
+Sun, 03 May 2026 11:30:14 GMT
+
+https://www.cbr.com/best-sci-fi-shows-like-the-expanse-list/
+
+These epic space operas have a lot in common with The Expanse.
+---------
+
+# The Hunt for Gollum Can Explain The Hobbit's Aragorn Reference
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Hobbit
+
+Sun, 03 May 2026 11:30:14 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-forgotten-hobbit-aragorn-line/
+
+The Lord of the Rings: The Hunt for Gollum will bring back Thranduil from The Hobbit, so it can follow up on one of the Elvenking's final lines.
+---------
+
+# ‘The Hangover’ Meets ‘Back to the Future’ in This Sci-Fi Classic Now Streaming for Free
+
+Movie News, Hot Tub Time Machine, Sci-Fi, John Cusack, Craig Robinson
+
+Sun, 03 May 2026 12:00:13 GMT
+
+https://collider.com/time-travel-sci-fi-classic-hot-tub-time-machine-free-streaming-pluto-may-2026-the-hangover-back-to-the-future/
+
+Hot Tub Time Machine, the wild time-travel comedy starring John Cusack, has found a free streaming home. Find out where below.
+---------
+
+# ‘Rivals’ Bella Maclean and Alex Hassell Prove You’re Missing the Point of That Age-Gap Relationship [Exclusive]
+
+TV, Rivals, David Tennant, Alex Hassell, Bella Maclean
+
+Sun, 03 May 2026 11:58:14 GMT
+
+https://collider.com/rivals-season-2-bella-maclean-alex-hassell-david-tennant-set-visit/
+
+Bella Maclean, Alex Hassell, David Tennant, and the cast of Rivals tease major drama to come and dive deep into complicated relationships in Season 2.
+---------
+
+# Elijah Wood's Bonkers 86-Minute Psychological Thriller Is a Horror Movie You Can't Unsee
+
+Movie, The Good Son, Elijah Wood, Macaulay Culkin, Thriller
+
+Sun, 03 May 2026 11:58:14 GMT
+
+https://collider.com/elijah-wood-the-good-son-horror-thriller-macaulay-culkin/
+
+The '90s psychological thriller The Good Son, starring Elijah Wood and Macaulay Culkin, is a disturbing movie you won't be able to shake.
+---------
+
+# The Most-Anticipated Sci-Fi Sequel of 2026 Gets a Surprise New Spin-Off Project
+
+Movie News, Dune: Part Three, Denis Villeneuve, Dune, Timothée Chalamet
+
+Sun, 03 May 2026 11:45:13 GMT
+
+https://collider.com/dune-part-three-sci-fi-sequel-book-legendary-publishing-release-date-december-22-2026/
+
+After arriving in theaters December 18, Dune: Part Three will be joined by a companion book from Legendary Publishing. Find out more here.
+---------
+
+# 10 Movies That Audiences Love but Cinephiles Absolutely Hate
+
+Movie, A Minecraft Movie, Fast X, Venom, The Super Mario Bros. Movie
+
+Sun, 03 May 2026 11:44:14 GMT
+
+https://collider.com/movies-audiences-love-cinephiles-hate/
+
+Movies like Mortal Kombat and Venom showcase the divide between casual fans looking for frivolous fun and those who consider cinema a higher art form.
+---------
+
+# ‘Independence Day’ Meets ‘Signs’ in This Blockbuster Sci-Fi Thriller Now Streaming for Free
+
+Movie News, Tom Cruise, Independence Day, Signs, War of The Worlds
+
+Sun, 03 May 2026 11:30:14 GMT
+
+https://collider.com/tom-cruise-blockbuster-sci-fi-thriller-war-of-the-worlds-streaming-free-pluto-may-2026-independence-day-signs/
+
+The Tom Cruise-led adaptation of War of the Worlds is now streaming for free. Find out where to watch the Steven Spielberg film.
+---------
+
+# Emma Stone Thriller 'Bugonia' Becomes Streaming Hit on Netflix
+
+Movie News, Emma Stone, Bugonia, Hot on Streaming, Thriller
+
+Sun, 03 May 2026 12:00:18 GMT
+
+https://movieweb.com/bugonia-emma-stone-netflix-streaming-hit-may-2026/
+
+Following a dismal box office performance in 2025, Emma Stone's 'Bugonia' has found new life on streaming thanks to Netflix.
+---------
+
 # 8 Worst Things About Being A Doctor Who Fan In The 2020s
 
 Streaming TV, Doctor Who
