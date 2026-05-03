@@ -1,3 +1,146 @@
+# Disney's Highest-Rated Star Wars Series Is The Antithesis Of The Prequel Trilogy
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
+
+Sun, 03 May 2026 20:30:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-prequel-trilogy-opposite/
+
+Star Wars' acclaimed new show, a sequel to the prequel trilogy and Star Wars: The Clone Wars, bravely pushes the franchise in a new direction.
+---------
+
+# 007 First Light Is Nothing Like Your Favorite Bond Movie
+
+Gaming, 007 First Light, James Bond, Triple-A Games, PC
+
+Sun, 03 May 2026 20:30:19 GMT
+
+https://screenrant.com/007-first-light-james-bond-movie-comparison/
+
+James Bond is set for his big return in 007 First Light, but don't expect it to fall in line with Casino Royale or any of the other classics.
+---------
+
+# Outer Range: The Underrated Western Sci-Fi Series That's Aging Well
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 20:00:20 GMT
+
+https://screenrant.com/outer-range-prime-video-tv-show-gets-better/
+
+Outer Range starts off like a typical Yellowstone-style neo-western, but it takes a gonzo sci-fi turn when a strange black void opens up on the ranch.
+---------
+
+# God Of War Ragnarök Free Download Available To Millions Now
+
+Gaming, God of War, God of War: Ragnarok
+
+Sun, 03 May 2026 20:00:20 GMT
+
+https://screenrant.com/god-of-war-ragnarok-free-playstation-plus-psa/
+
+God Of War: Ragnarök is the follow-up to the very successful 2018 reboot of God of War, and you might not even need to buy it as a PlayStation player.
+---------
+
+# Netflix's 10/10 Sci-Fi Series Succeeds In Its Hardest Task
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 20:00:03 GMT
+
+https://screenrant.com/black-mirror-netflix-anthology-succeeds-sci-fi-relevant/
+
+One of Netflix's most ambitious science fiction shows cleverly combines futuristic tech, psychological horror, and satirical storytelling.
+---------
+
+# 10 Witch Horror Movies To Watch If You Enjoy Hokum (#1 Is A Must Watch)
+
+Movies, The Craft, Hokum, The Blair Witch Project, Fear Street: Part Three - 1666, Gretel & Hansel, Pyewacket, Suspiria, The Lords of Salem, Hagazussa, The Wretched, The Witch
+
+Sun, 03 May 2026 19:55:19 GMT
+
+https://screenrant.com/best-witch-horror-movies-like-hokum/
+
+Horror movies focused on witches and folklore don't come along every day, but many already exist and are absolutely worth your time.
+---------
+
+# Dragon Ball Xenoverse 3 Needs to Include This Forgotten Transformation
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sun, 03 May 2026 20:15:12 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-needs-to-include-super-saiyan-5-transformation/
+
+Dragon Ball fans everywhere are hyped for Xenoverse 3, but only the inclusion of Super Saiyan 5 can make it the best game in the series.
+---------
+
+# Taylor Sheridan's Yellowstone Rival Landman Becomes PVOD Hit
+
+TV, Landman, Yellowstone
+
+Sun, 03 May 2026 20:01:14 GMT
+
+https://www.cbr.com/taylor-sheridan-landman-yellowstone-western-drama-success-may-2026/
+
+Taylor Sheridan's Yellowstone rival, Landman, is a hit on PVOD and streaming platforms ahead of Season 3.
+---------
+
+# The Must-Read Marvel Comics From Every Year of The 2010s
+
+Comics, Marvel, X-Men, Avengers
+
+Sun, 03 May 2026 20:01:14 GMT
+
+https://www.cbr.com/best-marvel-comics-every-year-the-2010s-list/
+
+The 2010s were an absolutely magical era for Marvel Comics, and these ten stories stand out as the best from every year of the iconic decade.
+---------
+
+# The Quintessential Quintuplets Is Finally Back With New Anime Release
+
+Anime, The Quintessential Quintuplets
+
+Sun, 03 May 2026 20:01:14 GMT
+
+https://www.cbr.com/quintessential-quintuplets-new-anime-release/
+
+Fans of The Quintessential Quintuplets can look forward to two brand new anime productions, including an adaptation of the series' beloved sequel.
+---------
+
+# 10 Sci-Fi Movies That Are As Good As Star Trek II: The Wrath of Khan
+
+Movies, Star Trek 2: The Wrath of Khan, Star Trek, Sci-Fi
+
+Sun, 03 May 2026 20:01:14 GMT
+
+https://www.cbr.com/sci-fi-movies-better-than-star-trek-wrath-of-khan-list-ranked/
+
+Star Trek II: The Wrath of Khan is one of the greatest sci-fi movies ever made. Only a handful of other films can hope to measure up.
+---------
+
+# 1 Year Later, Jack Black’s Wild Creature Thriller Is a Must-Watch on Netflix
+
+Movie News, Jack Black, Netflix, Anaconda, Paul Rudd
+
+Sun, 03 May 2026 20:30:12 GMT
+
+https://collider.com/jack-black-paul-rudd-creature-feature-thriller-anaconda-remake-streaming-success-netflix-may-2026/
+
+Jack Black's 2025 action horror with Paul Rudd, Anaconda, is a streaming hit in America. Here's everything you should know about the remake.
+---------
+
+# Say Goodbye to James McAvoy’s 83% RT Horror Thriller on Peacock
+
+Movie News, Speak No Evil, James McAvoy, Thriller, Peacock
+
+Sun, 03 May 2026 20:00:14 GMT
+
+https://collider.com/james-mcavoy-horror-thriller-speak-no-evil-leaving-streaming-peacock-june-2026/
+
+A few years after stunning audiences with his performance in Split, James McAvoy delivered another mesmerizing turn in this thriller leaving Peacock.
+---------
+
 # Apple TV’s New Horror Comedy Series With Near-Perfect Rotten Tomatoes Score Is Already One Of Its Best
 
 Streaming TV, Masked Recs
