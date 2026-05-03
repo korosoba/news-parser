@@ -1,3 +1,267 @@
+# Alien: Earth: Adapting Ridley Scott's Original 1979 Ending
+
+Streaming TV, Alien: Earth, Alien
+
+Sun, 03 May 2026 21:30:19 GMT
+
+https://screenrant.com/alien-earth-original-ridley-scott-ending-adapt/
+
+Alien: Earth season 2 may adapt director Ridley Scott's original 1979 ending for the iconic film, killing off Ripley and leaving a dark, bleak conclusion.
+---------
+
+# Netflix's Remake Of R-Rated Action Thriller Continues A Weirdly Specific Actor Streak
+
+TV, Man on Fire, Netflix
+
+Sun, 03 May 2026 21:29:20 GMT
+
+https://screenrant.com/man-on-fire-remake-yahya-abdul-mateen-actor-streak/
+
+Yahya Abdul-Mateen II's latest role in Netflix's action thriller show sees him inherit yet another iconic part, this time from Denzel Washington.
+---------
+
+# USA Network's 4-Part Psychological Thriller Is The TV Version Of Taxi Driver
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 21:15:20 GMT
+
+https://screenrant.com/mr-robot-christian-slater-tv-show-like-taxi-driver/
+
+50 years after its release, Taxi Driver remains a genre-defining psychological drama— but its best successor is a fully completed television show.
+---------
+
+# GTA Fans Split Over New Rockstar Remasters
+
+Gaming
+
+Sun, 03 May 2026 21:00:20 GMT
+
+https://screenrant.com/gta-series-rockstar-remasters-2026-reaction/
+
+Recent job postings hint at possible upcoming remasters at Rockstar Games, but fans are split on which game should get this treatment.
+---------
+
+# Disney's Sci-Fi Action Thriller With Near-Perfect Rotten Tomatoes Score Has One Of Its Best Casts
+
+Movies, Masked Recs, Disney, Disney+
+
+Sun, 03 May 2026 21:00:20 GMT
+
+https://screenrant.com/thunderbolts-disney-plus-best-ensemble-cast/
+
+A near-perfect sci-fi action thriller boasts a powerhouse cast, blending award-winning talent with gripping, character-driven storytelling.
+---------
+
+# Prime Video's 2-Part Supernatural Comedy Crowns A New Queen Of Voice Roles
+
+Streaming TV, Hazbin Hotel
+
+Sun, 03 May 2026 21:00:20 GMT
+
+https://screenrant.com/hazbin-hotel-stephanie-beatriz-voice-roles/
+
+From playing a no-nonsense cop on Brooklyn Nine-Nine to an explosive ex-angel in Hazbin Hotel, one actress has proven there's no voice she can't do.
+---------
+
+# 12 Different Versions Of Hulk Bruce Banner Could Still Become In The MCU
+
+Movies, Marvel Cinematic Universe, Hulk
+
+Sun, 03 May 2026 20:45:20 GMT
+
+https://screenrant.com/hulk-versions-mcu-future-bruce-banner/
+
+From Grey Hulk to Maestro, these Hulk variants and alters prove the MCU has barely scratched the surface of Bruce Banner’s fractured, powerful future.
+---------
+
+# Amazon's 10/10 Fantasy Franchise With 2 Perfect Shows Is Prime Video's Answer To Game Of Thrones
+
+TV, Masked Recs
+
+Sun, 03 May 2026 20:37:19 GMT
+
+https://screenrant.com/prime-video-legend-of-vox-machina-best-fantasy-franchise/
+
+Prime Video’s true Game of Thrones replacement isn't The Wheel of Time and The Rings of Power, but rather this dark, R-rated fantasy franchise.
+---------
+
+# 5 Great American '90s Sitcoms Nobody Remembers
+
+TV, Sitcoms, The Powers That Be, On the Air, Townies
+
+Sun, 03 May 2026 21:30:12 GMT
+
+https://www.cbr.com/best-forgotten-american-90s-sitcoms-list/
+
+While the 1990s saw no shortage of American sitcoms, some flew under the radar and deserved more recognition.
+---------
+
+# Kagurabachi's Latest Volume Sales Challenge JJK Modulo Volume 3
+
+Anime, Kagurabachi, Jujutsu Kaisen
+
+Sun, 03 May 2026 21:15:12 GMT
+
+https://www.cbr.com/kagurabachi-manga-volume-11-jujutsu-kaisen-modulo-sales-comparison/
+
+Kagurabachi’s long-awaited anime adaptation was only just announced and its manga sales are already closing in on Jujutsu Kaisen’s.
+---------
+
+# Tobin Bell's Horror Finders Keepers Becomes a Netflix Global Hit
+
+Movies, Finders Keepers
+
+Sun, 03 May 2026 21:00:12 GMT
+
+https://www.cbr.com/tobin-bell-finders-keepers-netflix-may-2026/
+
+A forgotten horror film featuring Saw icon Tobin Bell finds a new audience on Netflix over a decade later.
+---------
+
+# Marvel Officially Reveals the Next Hulk, Surprising Fans Everywhere
+
+Comics, Hulk, Iron Man
+
+Sun, 03 May 2026 21:00:12 GMT
+
+https://www.cbr.com/marvel-infernal-hulk-6-tony-stark-twist/
+
+The Marvel Universe is about to get a brand-new Hulk, and he just so happens to be the most gruesome version of a founding member of the Avengers.
+---------
+
+# How Star Trek Created Modern Blockbuster Movie Franchises by Accident
+
+Movies, Star Trek, Star Trek: The Motion Picture
+
+Sun, 03 May 2026 21:00:12 GMT
+
+https://www.cbr.com/star-trek-created-modern-movie-franchises/
+
+Hollywood is dominated by blockbuster movie franchises, and they all owe a debt to Star Trek, which created them by accident.
+---------
+
+# The Rookie Creator Confirms Crossover Episodes With Highly Anticipated Spinoff (If It Ever Happens)
+
+TV, The Rookie
+
+Sun, 03 May 2026 20:47:34 GMT
+
+https://www.cbr.com/the-rookie-creator-confirms-crossover-north/
+
+The Rookie creator and showrunner Alexi Hawley breaks down what audiences can expect from crossover episodes with the next spinoff series.
+---------
+
+# Before 'Spider-Man: Brand New Day,' Marvel's Most Successful Reboot Officially Returns to Streaming Charts
+
+Movie News, Marvel, Spider-Man: Homecoming, Superhero, Disney+
+
+Sun, 03 May 2026 21:30:12 GMT
+
+https://collider.com/spider-man-homecoming-tom-holland-marvel-reboot-streaming-success-disney-plus-may-2026/
+
+The Marvel movie that reignited one of the best superheroes is back in the streaming charts ahead of Spider-Man: Brand New Day. Read on for more.
+---------
+
+# Sorry, Mike Flanagan, but This Director’s Still the Greatest at Making Stephen King Movies
+
+Movie, The Mist, The Shawshank Redemption, The Green Mile, Stephen King
+
+Sun, 03 May 2026 21:23:12 GMT
+
+https://collider.com/frank-darabont-best-director-of-stephen-king-adaptations/
+
+Frank Darabont is still the greatest of all directors who've taken on the works of Stephen King, as The Shawshank Redemption and The Mist show.
+---------
+
+# 7 Forgotten Action Shows That Have Aged Like Fine Wine
+
+TV, Action, Black Sails, Banshee, Spartacus
+
+Sun, 03 May 2026 21:21:13 GMT
+
+https://collider.com/forgotten-action-shows-aged-like-fine-wine/
+
+Forgotten action shows like Banshee, Spartacus, Black Sails, and Nikita have only gotten better with age, despite being ignored by audiences.
+---------
+
+# Forget 'Wednesday,' Jenna Ortega's Forgotten 92-Minute Thriller Is a Must-Watch on HBO Max
+
+Movie News, The Fallout, Jenna Ortega, HBO Max, Euphoria
+
+Sun, 03 May 2026 21:15:12 GMT
+
+https://collider.com/jenna-ortega-forgotten-thriller-the-fallout-streaming-success-hbo-max-may-2026-wednesday/
+
+Jenna Ortega tackles the extreme trauma of high school in the debut feature from Megan Park, The Fallout. Find out more here.
+---------
+
+# Disney's Record-Breaking Detective Thriller Is a Streaming Sensation 1 Year Later
+
+Movie News, Zootopia 2, Animation, Disney+, Streaming
+
+Sun, 03 May 2026 21:00:13 GMT
+
+https://collider.com/disney-record-breaking-detective-thriller-zootopia-2-streaming-success-may-2026/
+
+Hollywood's highest-grossing animated movie, Zootopia 2, is a streaming hit in America. Here's everything you should know about the blockbuster film.
+---------
+
+# 10 Worst Movies of the Last 6 Years, Ranked
+
+Movie, Madame Web, 365 Days, Music, War of the Worlds
+
+Sun, 03 May 2026 20:56:13 GMT
+
+https://collider.com/worst-movies-last-6-years-ranked/
+
+While the last 6 years have been largely great for cinema, films like 365 Days, War of the Worlds, and Madame Web make it seem like the opposite.
+---------
+
+# ‘Dexter’ Fans Need Hulu’s Near-Perfect 2-Part Serial Killer Comedy Next
+
+TV Features, Obituary, Dexter, Hulu, Thriller
+
+Sun, 03 May 2026 20:44:13 GMT
+
+https://collider.com/dexter-replacement-series-obituary-tv-show-hulu-streaming/
+
+Obituary, a dark-comedy thriller series with a perfect Rotten Tomatoes score, is a must-watch for Dexter fans.
+---------
+
+# 8 Early Netflix Masterpiece Series That Defined Streaming but No One Talks About Today
+
+TV Lists, Netflix
+
+Sun, 03 May 2026 21:30:17 GMT
+
+https://movieweb.com/early-netflix-masterpiece-series/
+
+In 2013, Netflix established the blueprint for binge-watching with these excellent shows that are long forgotten.
+---------
+
+# 'The Devil Wears Prada 2' Wins Opening Weekend at Box Office
+
+Movie News, The Devil Wears Prada 2, box office
+
+Sun, 03 May 2026 21:06:58 GMT
+
+https://movieweb.com/devil-wears-prada-2-box-office-opening-weekend/
+
+Disney and 20th Century Fox's 'The Devil Wears Prada 2' topped the box office charts in its first weekend in theaters
+---------
+
+# 'Star Wars' Fandom Names Tenebrae the 10th Most Popular Character
+
+Features, Star Wars
+
+Sun, 03 May 2026 21:00:18 GMT
+
+https://movieweb.com/tenebrae-star-wars-fandom-most-popular-characters/
+
+Who is this mysterious Sith Lord? Class is in session, apprentices.
+---------
+
 # Disney's Highest-Rated Star Wars Series Is The Antithesis Of The Prequel Trilogy
 
 Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars
