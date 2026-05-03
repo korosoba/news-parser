@@ -1,3 +1,212 @@
+# 7 Biggest DC Comics Deaths of the Year, So Far
+
+DC Comics, Batman, Wonder Woman, Deathstroke
+
+Sun, 03 May 2026 23:30:19 GMT
+
+https://screenrant.com/dc-biggest-deaths-2026-comics/
+
+We'll all miss them... and pray for their resurrection
+---------
+
+# Prime Video's Official Answer To Stranger Things Will Age Better Than The Netflix Show
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 23:15:20 GMT
+
+https://screenrant.com/tales-from-the-loop-amazon-answer-to-stranger-things/
+
+Prime Video’s answer to Netflix’s Stranger Things proves that it might actually age better than the popular science fiction series.
+---------
+
+# Joe Pickett: Paramount+ Cancelled Neo-Western Crime Drama Too Soon
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 23:00:19 GMT
+
+https://screenrant.com/joe-pickett-paramount-western-better-every-rewatch/
+
+Paramount is the undisputed home of TV Westerns, but its best neo-Western crime series gets overlooked compared with other shows in the genre.
+---------
+
+# 8 Near-Perfect Home Invasion Movies with a Totally Unique Twist
+
+Movies
+
+Sun, 03 May 2026 23:00:19 GMT
+
+https://screenrant.com/near-perfect-home-invasion-movies-best-horror-twist/
+
+Home invasion movies promise a special kind of horror that will have you jumping at every shadow. These eight movies took that to the next level.
+---------
+
+# Magic: The Gathering: Marvel Super Heroes - Release Date, Pricing, Sets, & Cards Info
+
+Gaming, Magic: The Gathering, tabletop games, PC
+
+Sun, 03 May 2026 23:00:19 GMT
+
+https://screenrant.com/mtg-marvel-super-heroes-release-date-price-cards/
+
+Marvel's most iconic characters and stories are finally coming to Magic: The Gathering, with plenty of products to satisfy fans of both franchises.
+---------
+
+# Tom Hiddleston Teases Loki's "Magnificent" Return In Avengers: Doomsday "Will Defy Expectations"
+
+Movies, Avengers: Doomsday, Loki, Marvel Cinematic Universe
+
+Sun, 03 May 2026 22:49:35 GMT
+
+https://screenrant.com/avengers-doomsday-tom-hiddleston-loki-mcu-return-expectations/
+
+Ahead of Avengers: Doomsday's December release, Loki actor Tom Hiddleston hypes up his appearance in the next MCU crossover film.
+---------
+
+# Is Star Wars Finally Revealing The Origins Of The Mandalorian’s Most Mysterious Character?
+
+Streaming TV, Star Wars, The Mandalorian, Star Wars: Maul - Shadow Lord
+
+Sun, 03 May 2026 22:45:20 GMT
+
+https://screenrant.com/maul-shadow-lord-rook-kast-armorer-mandalorian-star-wars-theory-explained/
+
+Star Wars' newest series might be revealing the origins of one of the most mysterious characters from The Mandalorian, seven years after their debut.
+---------
+
+# Jennifer's Body Is a Major Hit on Netflix in the U.S.
+
+Movies, Jennifer's Body
+
+Sun, 03 May 2026 23:30:12 GMT
+
+https://www.cbr.com/megan-fox-jennifers-body-horror-netflix-success-may-2026/
+
+The coming-of-age revenge horror film has become a cult classic.
+---------
+
+# 8 TV Sitcoms With No Bad Seasons
+
+TV, Sitcoms, Schitt's Creek, Frasier, Cheers
+
+Sun, 03 May 2026 23:30:12 GMT
+
+https://www.cbr.com/tv-sitcoms-no-bad-seasons-list/
+
+Some sitcoms manage to defy the odds and keep their audience in stitches year after year.
+---------
+
+# Nicolas Cage's Critically Panned Action Film 211 Is a Hit on Starz
+
+Movies, 211, Nicolas Cage, Action
+
+Sun, 03 May 2026 23:00:12 GMT
+
+https://www.cbr.com/nicolas-cage-211-action-heist-starz-success-may-2026/
+
+Despite holding a 4% Tomatometer score on Rotten Tomatoes, Nicolas Cage's 211 is now one of the most-watched movies on Starz.
+---------
+
+# The Expanse Is Battlestar Galactica's Only Perfect Replacement
+
+TV, Battlestar Galactica, The Expanse, Prime Video
+
+Sun, 03 May 2026 23:00:12 GMT
+
+https://www.cbr.com/prime-video-the-expanse-battlestar-galactica-comparison/
+
+The Expanse, a spiritual successor to Battlestar Galactica, continues the legacy of social commentary and hard sci-fi storytelling.
+---------
+
+# Guardians of the Galaxy Is James Gunn's One Untouchable Superhero Masterpiece
+
+Movies, James Gunn, superheroes, Guardians of the Galaxy
+
+Sun, 03 May 2026 23:00:12 GMT
+
+https://www.cbr.com/james-gunn-superhero-movies-masterpiece-ranked/
+
+James Gunn has one of the best track records of any superhero movie director, but only one of his films can be the very best.
+---------
+
+# ‘Mission: Impossible’ Meets ‘Freaky Friday’ in Nicolas Cage's Bonkers Sci-Fi Actioner Now Streaming
+
+Movie News, Face/Off, Freaky Friday, Mission: Impossible, Action
+
+Sun, 03 May 2026 23:30:12 GMT
+
+https://collider.com/nicolas-cage-sci-fi-action-movie-face-off-streaming-paramount-plus-may-2026-mission-impossible-freaky-friday/
+
+The most bonkers movie of the '90s, Face/Off, starring Nicolas Cage and John Travolta, has found success on Paramount+. Find out more here.
+---------
+
+# Apple TV Made Post-Apocalyptic Sci-Fi Essential Again With This Modern Masterpiece
+
+TV Features, Pluribus, Apple TV, Sci-Fi, Rhea Seehorn
+
+Sun, 03 May 2026 23:27:12 GMT
+
+https://collider.com/apple-tv-sci-fi-pluribus-essential-modern-masterpiece/
+
+Pluribus has become a must-watch sci-fi series on Apple TV, blending unique storytelling, compelling performances, and thought-provoking themes.
+---------
+
+# 23 Years Later, Disney's 118-Minute Adventure Classic Is Finally Heading to Paramount+
+
+Movie News, Holes, Adventure, Sigourney Weaver, Shia LaBeouf
+
+Sun, 03 May 2026 23:15:14 GMT
+
+https://collider.com/disney-adventure-classic-sigourney-weaver-holes-streaming-paramount-plus-may-2026/
+
+Holes, starring Sigourney Weaver and Shia LaBeouf, is coming to Paramount+ in May 2026. Here's everything you should know.
+---------
+
+# Netflix's Most-Watched Movie Ever Just Passed a Groundbreaking Milestone
+
+Movie News, Netflix, KPop Demon Hunters, Animation, Streaming
+
+Sun, 03 May 2026 23:00:13 GMT
+
+https://collider.com/netflix-most-watched-movie-kpop-demon-hunters-streaming-milestone-300-days/
+
+The most-watched movie ever on Netflix, KPop Demon Hunters, just hit a huge streaming milestone. Read on for more details.
+---------
+
+# Netflix's 8-Part Crime Thriller Is So Gripping, It Demands a One-Weekend Binge
+
+TV Features, Black Rabbit, Netflix, Jason Bateman, Jude Law
+
+Sun, 03 May 2026 22:46:13 GMT
+
+https://collider.com/netflix-black-rabbit-crime-thriller-jude-law-jason-bateman/
+
+With a strong ensemble and a well-crafted story, Black Rabbit is a perfect, thrilling weekend binge on Netflix.
+---------
+
+# Timothee Chalamet's Divisive Box Office Record-Breaker Is an Instant HBO Max Smash
+
+Movie News, Timothée Chalamet, Marty Supreme, HBO Max, Streaming
+
+Sun, 03 May 2026 22:45:12 GMT
+
+https://collider.com/timothee-chalamet-divisive-a24-box-office-record-breaker-marty-supreme-streaming-success-hbo-max-may-2026/
+
+Timothee Chalamet's controversial box office record-breaker from A24, Marty Supreme, is an instant hit on streaming. Find out more below.
+---------
+
+# Netflix’s ‘Man on Fire’ Action Thriller Reboot Is ‘Reacher’ Meets ‘The Punisher'
+
+Features, Netflix, Man on Fire, Reacher, The Punisher
+
+Sun, 03 May 2026 23:30:18 GMT
+
+https://movieweb.com/man-on-fire-reacher-punisher/
+
+Many will compare Netflix's new action thriller series to 'Reacher', but it may have more in common with 'The Punisher'.
+---------
+
 # X-Men's Magik And Colossus Swap Powers In Epic Redesign
 
 Marvel Comics, X-Men, Colossus, Marvel
