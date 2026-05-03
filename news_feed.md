@@ -1,3 +1,267 @@
+# The Devil Wears Prada 2’s Major Returning Character Death Explained By Director
+
+Movies, The Devil Wears Prada 2
+
+Sun, 03 May 2026 16:33:52 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-irv-ravitz-death-david-frankel-explained/
+
+A returning character from The Devil Wears Prada shockingly dies during the sequel, with director David Frankel explaining why it had to happen.
+---------
+
+# This Character Is Anime's Biggest Joke, And It's Not Even Close
+
+Anime, Jujutsu Kaisen, Explainer
+
+Sun, 03 May 2026 16:30:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-megumi-manga-biggest-new-gen-fraud/
+
+Say goodbye to "Potential Man".
+---------
+
+# Jon Bernthal's Punisher Resurgence: How Netflix's Cancelled Show Was Undervalued
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 16:30:20 GMT
+
+https://screenrant.com/the-punisher-netflix-tv-show-prove-critics-wrong/
+
+Jon Bernthal's Punisher is still going strong a decade later, proving Netflix was wrong to cancel his show (and the critics were wrong to doubt him).
+---------
+
+# Almost All Pokémon TCG: Chaos Rising Cards Leak Early
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Sun, 03 May 2026 16:30:20 GMT
+
+https://screenrant.com/pokemon-tcg-chaos-rising-cards-leak/
+
+Most of the cards in the Pokémon TCG's upcoming Chaos Rising set have been leaked online ahead of its release this May — here’s what to expect.
+---------
+
+# New Hidden Gem Animated Show Hits 2.6 Million Views In Its First 2 Weeks
+
+TV
+
+Sun, 03 May 2026 16:20:20 GMT
+
+https://screenrant.com/gnome-show-animated-hidden-gem-views/
+
+Despite it going viral, plenty of people who would no doubt love it have yet to watch one charming and fascinating newly released animated show.
+---------
+
+# Binge-Worthy 4-Part Space Opera Masterpiece Officially Hits #1 On Apple
+
+TV, Masked Recs
+
+Sun, 03 May 2026 16:16:30 GMT
+
+https://screenrant.com/space-opera-battlestar-galactica-apple-tv-streaming-chart/
+
+One critically acclaimed space opera series is showing its staying power, as it just officially became the most popular series on the Apple TV store.
+---------
+
+# If You're Tired Of Sci-Fi Shows Getting Canceled, Watch HBO's 10-Part Masterpiece That's Already Finished
+
+Streaming TV, Masked Recs
+
+Sun, 03 May 2026 16:15:19 GMT
+
+https://screenrant.com/station-eleven-limited-series-sci-fi-finished/
+
+A satisfactory sci-fi ending is hard to come by these days, which makes HBO's single-season post apocalyptic epic such a treat for audiences.
+---------
+
+# Dragon Ball Is Facing One America-Sized Problem, And It's Only Getting Worse
+
+Anime, Dragon Ball
+
+Sun, 03 May 2026 16:00:19 GMT
+
+https://screenrant.com/dragon-ball-manga-translation-america-bad/
+
+Dragon Ball faces criticism over its English manga releases, which are infamous for their poor quality despite the series' dedicated global fan base.
+---------
+
+# Jacob Elordi's Post-Apocalyptic Film Offers Respite From Wuthering Heights & Euphoria Backlash
+
+Movies, The Dog Stars
+
+Sun, 03 May 2026 16:00:19 GMT
+
+https://screenrant.com/jacob-elordi-the-dog-stars-perfect-response/
+
+Next up, Jacob Elordi is starring in post-apocalyptic thriller The Dog Stars, and it'll be a refreshing change from Wuthering Heights and Euphoria.
+---------
+
+# Steam Makes 9/10 Game 100% Free To Download And Keep Forever
+
+Gaming, Steam, Indie Games
+
+Sun, 03 May 2026 16:00:19 GMT
+
+https://screenrant.com/steam-9-10-free-game-download-keep-forever/
+
+It's easy to find free games on Steam, but not all of them are equally impressive - now you can pick up a highly-rated adventure.
+---------
+
+# 8 Sci-Fi Shows Better Than Star Trek: The Next Generation
+
+TV, Sci-Fi, Star Trek: The Next Generation, Battlestar Galactica
+
+Sun, 03 May 2026 16:30:13 GMT
+
+https://www.cbr.com/sci-fi-shows-better-than-star-trek-tng-list/
+
+Star Trek: The Next Generation is a genre-defining sci-fi series, but there are some other amazing sci-fi shows that surpass TNG in many ways.
+---------
+
+# Every Adam Scott Horror Movie To Watch Before Hokum
+
+Movies, Adam Scott, Hokum, Krampus
+
+Sun, 03 May 2026 16:30:13 GMT
+
+https://www.cbr.com/adam-scott-horror-movies-hokum-list/
+
+Hokum is far from Adam Scott's first foray into the horror genre.
+---------
+
+# 8 New Star Wars Figures Officially Revealed, Available for Preorder Now
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord
+
+Sun, 03 May 2026 16:20:13 GMT
+
+https://www.cbr.com/new-star-wars-hot-toy-figures-darth-maul-2026/
+
+Star Wars fans can now pre-order the next eight stunning action figure releases from Hot Toys, including the latest returning franchise icon.
+---------
+
+# 10 Greatest Romance Manga of All Time
+
+Anime, Manga, Shojo, Romance, Horimiya, Nana, Ao Haru Ride
+
+Sun, 03 May 2026 16:15:13 GMT
+
+https://www.cbr.com/best-romance-manga-all-time/
+
+The best romance manga don't offer a complete emotional trajectory or perfectly compatible couple, but explore every aspect of relationships.
+---------
+
+# Spike Lee Slams Critics Over Michael Criticism: 'People Showed Up Worldwide'
+
+Movies, Michael, Michael Jackson's Thriller
+
+Sun, 03 May 2026 16:02:11 GMT
+
+https://www.cbr.com/spike-lee-slams-michael-criticism/
+
+Spike Lee just gave one reason in particular he wants critics to shut up about Michael.
+---------
+
+# Michael B. Jordan's Near-Perfect 5-Season Series Is Now Streaming on Paramount+
+
+TV, Friday Night Lights
+
+Sun, 03 May 2026 16:00:13 GMT
+
+https://www.cbr.com/michael-b-jordan-friday-night-lights-paramount-streaming-may-2026/
+
+The Sinners and Black Panther star once led an underrated TV series that's now available on Paramount+.
+---------
+
+# Transformers Reveals First Look at New G1 Wave With Ultra Magnus, Shockwave and Rare Variants
+
+Anime, Transformers, merchandise, toys, action figures
+
+Sun, 03 May 2026 16:00:13 GMT
+
+https://www.cbr.com/transformers-g1-auldey-calculus-of-order-action-figure-first-look/
+
+Auldey's latest Transformers figures include recognizable G1 Autobots and Decepticons, plus one character who was left out of the original cartoon.
+---------
+
+# The 10 Most Perfect Movie Climaxes Ever, Ranked
+
+Movies, The Empire Strikes Back, The Shawshank Redemption, Everything Everywhere All at Once
+
+Sun, 03 May 2026 16:00:13 GMT
+
+https://www.cbr.com/most-perfect-movie-climaxes-ranked/
+
+The greatest movie climaxes offer the best closure.
+---------
+
+# The Devil Wears Prada 2 Debut Sets Records as It Outgrosses Original Movie's Entire Domestic Run
+
+Movies, The Devil Wears Prada 2, box office
+
+Sun, 03 May 2026 15:53:18 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-box-office-opening/
+
+Higher box office numbers for a sequel? Groundbreaking.
+---------
+
+# 10 Greatest Epistolary Books, Ranked
+
+Movie, Dracula, Carrie, Frankenstein, The Handmaid's Tale
+
+Sun, 03 May 2026 16:06:13 GMT
+
+https://collider.com/best-epistolary-books-all-time-ranked/
+
+From The Handmaid's Tale to Carrie and Dracula, these are the best books that use the distinct epistolary format to its fullest and most compelling.
+---------
+
+# Ridley Scott's Sci-Fi Classic Loses Box Office Crown to New Masterpiece
+
+Movie News, Ridley Scott, Sci-Fi, Project Hail Mary, The Martian
+
+Sun, 03 May 2026 16:00:13 GMT
+
+https://collider.com/sci-fi-masterpiece-project-hail-mary-box-office-overtakes-the-martian-global-630-million/
+
+Ridley Scott’s Matt Damon-led blockbuster has officially lost its global box office crown to the best new sci-fi movie of the decade.
+---------
+
+# This Hilarious 4-Part Sitcom on Prime Video Has No Bad Episodes
+
+TV Features, Catastrophe, Sitcom, Rob Delaney, Sharon Horgan
+
+Sun, 03 May 2026 15:54:14 GMT
+
+https://collider.com/prime-video-catastrophe-sitcom-rob-delaney-sharon-horgan/
+
+Catastrophe is a British sitcom that deserves more praise for its consistently excellent and hilarious episodes.
+---------
+
+# 'Gremlins' Legendary Rough Cut Premieres With an Hour of Unseen Footage
+
+Movie News, Gremlins, Gremlins 3
+
+Sun, 03 May 2026 16:33:56 GMT
+
+https://movieweb.com/gremlins-rough-cut-unseen-footage-horror/
+
+After decades of rumors, a 2.5-hour version of 'Gremlins' was screened for an audience of horror filmmakers.
+---------
+
+# The 10 Greatest 'Harry Potter' Movie Performances, Ranked
+
+Movie Lists, Harry Potter
+
+Sun, 03 May 2026 16:00:18 GMT
+
+https://movieweb.com/harry-potter-movies-greatest-performances/
+
+The 'Harry Potter' movies were filled with great actors giving awesome performances. Let's talk about only the best.
+---------
+
 # 9 Forgotten Animated Sitcoms That Deserve A Second Look
 
 Classic TV
