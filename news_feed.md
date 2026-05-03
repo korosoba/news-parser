@@ -1,3 +1,256 @@
+# 10 Best Workplace Sitcoms Everyone Forgot About
+
+Classic TV, Sitcoms
+
+Sun, 03 May 2026 18:30:19 GMT
+
+https://screenrant.com/workplace-sitcom-tv-shows-everyone-forgot-about/
+
+Discover the best overlooked workplace sitcoms, offering relatable humor and ensemble dynamics, from classics to modern gems. A few are still running!
+---------
+
+# 10 Hit Fox Movies Disney Could Turn Into Franchises Next After The Devil Wears Prada 2
+
+Movies, In Time, Jumper, Minority Report, I, Robot, Sunshine, Alita: Battle Angel, Dodgeball: A True Underdog Story, Chronicle, Jennifer's Body, Big Trouble in Little China
+
+Sun, 03 May 2026 18:30:19 GMT
+
+https://screenrant.com/fox-movies-disney-franchise-future/
+
+Disney's release of The Devil Wears Prada 2 proves that any Fox movie could become a franchise, and here are some of the hottest potential candidates.
+---------
+
+# New Pokémon DLC On The Way, According To Leak
+
+Gaming, Pokemon Pokopia, Pokemon
+
+Sun, 03 May 2026 18:30:19 GMT
+
+https://screenrant.com/pokemon-pokopia-dlc-leak-update-new-areas/
+
+With most eyes on Winds and Waves, it appears Pokémon isn't quite done with its current releases. A leak says new Pokémon DLC in on the way.
+---------
+
+# 8 TV Shows From The Past 10 Years That Should Become Cult Classics
+
+Classic TV
+
+Sun, 03 May 2026 18:30:19 GMT
+
+https://screenrant.com/tv-shows-past-10-years-cult-classics/
+
+Shows from the past decade that flew under the radar but have the potential to become classics, featuring unique storytelling & compelling characters.
+---------
+
+# He-Man Fans Need To Watch The New Movie Star's Best Performance Yet
+
+Movies, Bottoms
+
+Sun, 03 May 2026 18:05:20 GMT
+
+https://screenrant.com/he-man-nicholas-galitzine-movie-best-performance/
+
+Before transforming into He-Man, Nicholas Galitzine delivered a brilliantly absurd performance as a pampered jock in the cult-comedy Bottoms.
+---------
+
+# The Super Mario Galaxy Movie Draws Close To Being 2026's 1st Billion-Dollar Movie
+
+Movies, The Super Mario Galaxy Movie, Box Office
+
+Sun, 03 May 2026 18:04:48 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-900-million-global-box-office-milestone/
+
+The Super Mario Galaxy Movie is proving to be out of this world, as it may become the first movie in 2026 to reach this incredible milestone.
+---------
+
+# Hulk vs X-Men Finally Makes Magneto a Badass Again
+
+Marvel Comics, Hulk, Magneto
+
+Sun, 03 May 2026 18:00:19 GMT
+
+https://screenrant.com/hulk-vs-x-men-magneto-powers/
+
+It's been a long time coming, but Marvel's latest Infernal Hulk preview proves Magneto's badass era is finally back.
+---------
+
+# Before Becoming DC's Green Lantern, Aaron Pierre Already Played This Kryptonian
+
+Streaming TV, Lanterns
+
+Sun, 03 May 2026 18:00:19 GMT
+
+https://screenrant.com/lanterns-aaron-pierre-krypton-actor/
+
+Aaron Pierre is set to star as John Stewart in DC's Lantern series, but the actor previously appeared in the superhero franchise as a Kryptonian.
+---------
+
+# Injustice 3 Leak Splits DC Fans Over Story & Cast
+
+Gaming, Injustice, Injustice 2, Triple-A Games
+
+Sun, 03 May 2026 18:00:19 GMT
+
+https://screenrant.com/injustice-3-leak-story-characters/
+
+NetherRealm may be closer than ever to finally announcing its newest game following Mortal Kombat 1, and there is reason to believe it is Injustice 3.
+---------
+
+# Supergirl’s Runtime Reveal Sets Milestone For James Gunn’s DCU
+
+Movies, Supergirl, DC Universe
+
+Sun, 03 May 2026 17:46:55 GMT
+
+https://screenrant.com/supergirl-dcu-movie-run-time-craig-gillespie/
+
+The Supergirl movie is closer than ever to being released, as the film's run time is finally revealed ahead of its summer debut by the director.
+---------
+
+# Absolute Batman Fan Film Brings DC Comics' Best Work To Life With A Twist
+
+Comics, DC Comics, DCU, Batman, The Batman, The Batman Part II, Absolute Batman
+
+Sun, 03 May 2026 18:26:25 GMT
+
+https://www.cbr.com/absolute-batman-film-brings-dc-comics-best-work-to-life/
+
+This is one of the best things to ever happen to Absolute Batman — a sensational must-watch.
+---------
+
+# Luffy & Nami Shippers Are Closer Than Ever to One Piece's Perfect Romance
+
+Anime, One Piece, shonen anime
+
+Sun, 03 May 2026 18:15:13 GMT
+
+https://www.cbr.com/one-piece-romance-luffy-nami/
+
+One Piece's unexpected romantic connection between Luffy and Nami continues to grow, and takes one step closer to becoming the perfect romance.
+---------
+
+# HBO's Tales From the Crypt Horror Anthology Based on Hit Comic Book Finally Debuts On Streaming
+
+TV, Horror, Tales From the Crypt, Tales from the Crypt, Tales from the Crypt: Demon Knight
+
+Sun, 03 May 2026 18:00:13 GMT
+
+https://www.cbr.com/hbo-classic-horror-tales-from-the-crypt-streaming-shudder-2026/
+
+One of the most iconic horror franchise in history is finally debuting on streaming after more than 30 years.
+---------
+
+# You're Not Imagining It, Anime Episodes Are Officially Getting Shorter
+
+Anime
+
+Sun, 03 May 2026 18:00:13 GMT
+
+https://www.cbr.com/anime-episodes-shorter-tv-network-broadcast-time/
+
+TV networks are seeing shorter anime episodes as the solution to broadcasting bottleneck problems.
+---------
+
+# Kevin Costner's Horizon: Chapter 2 Release 'Not in the Plans' in 2026
+
+Movies, Horizon: An American Saga - Chapter 2
+
+Sun, 03 May 2026 17:46:19 GMT
+
+https://www.cbr.com/horizon-an-american-saga-chapter-2-release-doubt/
+
+Kevin Costner's Western saga gets another disappointing update, but not all hope is lost.
+---------
+
+# HBO’s Bonkers 4-Part Comedy Series Officially Becomes a Late-Night Sleeper Hit 13 Years Later
+
+TV Features, Eastbound & Down, Danny McBride, Jody Hill, HBO
+
+Sun, 03 May 2026 18:44:13 GMT
+
+https://collider.com/eastbound-and-down-hbo-danny-mcbride-streaming-hit/
+
+Danny McBride's groundbreaking HBO comedy series Eastbound & Down is finding new life on streaming 13 years after it ended.
+---------
+
+# Harrison Ford and Tommy Lee Jones' 10/10 Action Thriller Has a Forgotten Sequel No One Asked For
+
+Movie Features, The Fugitive, U.S. Marshals, Harrison Ford, Tommy Lee Jones, Wesley Snipes
+
+Sun, 03 May 2026 18:11:14 GMT
+
+https://collider.com/harrison-ford-the-fugitive-sequel-us-marshals-action-thriller/
+
+Harrison Ford and Tommy Lee Jones' iconic action thriller The Fugitive got a sequel U.S. Marshals that completely flopped.
+---------
+
+# ‘Dead Poets Society’ Meets ‘This Is Spinal Tap’ in This Iconic 2000s Hit Now Streaming
+
+Movie News, School of Rock, Comedy, Jack Black, Paramount Plus
+
+Sun, 03 May 2026 18:00:13 GMT
+
+https://collider.com/jack-black-2000s-music-movie-school-of-rock-streaming-paramount-plus-may-2026-dead-poets-society-this-is-spinal-tap/
+
+Jack Black brings rock-n-roll to school in the cult-classic School of Rock, which is now streaming. Find out where to watch it below.
+---------
+
+# Apple TV Is Officially Launching 'For All Mankind's First Spin-Off This Month
+
+TV Features, Star City, For All Mankind, Apple TV, Sci-Fi
+
+Sun, 03 May 2026 17:58:14 GMT
+
+https://collider.com/apple-tv-for-all-mankind-spin-off-star-city/
+
+Apple TV's first For All Mankind spin-off, Star City, premieres this month with a completely different look at the alt-history space race.
+---------
+
+# Markiplier's 'Iron Lung' Digital Release Delayed
+
+Movie News, Iron Lung, YouTube, Horror
+
+Sun, 03 May 2026 18:06:14 GMT
+
+https://movieweb.com/markiplier-iron-lung-delay-youtube/
+
+Markplier wants to distribute his horror film 'Iron Lung' without going through the usual gatekeepers, and it's proving difficult.
+---------
+
+# Best Revenge Movies of All Time
+
+Movie Lists, Thriller
+
+Sun, 03 May 2026 18:00:19 GMT
+
+https://movieweb.com/best-revenge-movies-ranked/
+
+The revenge genre is often one of the most engaging forms of storytelling in cinema. Here are some of the best revenge films of all time.
+---------
+
+# Catch up on Prime Video’s ‘Reacher’ Replacement Before ‘Jack Ryan: Ghost War'
+
+Features, Reacher, Tom Clancy's Jack Ryan, Jack Ryan, Prime Video, Comparison Recommendation, Tom Clancy's Jack Ryan: Ghost War
+
+Sun, 03 May 2026 18:00:18 GMT
+
+https://movieweb.com/jack-ryan-perfect-reacher-replacement/
+
+There are only a few weeks left to catch up on Prime Video's 'Reacher' replacement before the next action thriller installment.
+---------
+
+# 'The Acolyte': The Most Hated Star Wars Show Almost Canonized the Expanded Universe
+
+Features, The Acolyte, Star Wars, Canon Shift
+
+Sun, 03 May 2026 18:00:18 GMT
+
+https://movieweb.com/star-wars-acolyte-expanded-universe-almost-canonized/
+
+'The Acolyte' established concepts from the expanded universe, but it practically sent them to die.
+---------
+
 # This Iconic 44-Year-Old Cyberpunk Manga Still Hasn't Had A Live-Action Adaptation, Despite Many Attempts
 
 Classic TV, Akira
