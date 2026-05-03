@@ -1,3 +1,201 @@
+# Meryl Streep Confirms "Beef" With Oscar-Winning Actor In Classic '90s Fantasy Horror Movie
+
+Movies, Meryl Streep, Death Becomes Her
+
+Sun, 03 May 2026 14:38:59 GMT
+
+https://screenrant.com/death-becomes-her-meryl-streep-goldie-hawn-beef/
+
+Meryl Streep is finally having her say after 34 years, as she confirms "beef" with her Oscar-winning co-star in this cult classic fantasy horror.
+---------
+
+# Netflix’s New Fantasy Movie Starring Michael B. Jordan Soars To The Top Of The Streaming Charts
+
+Movies, Masked Recs, Michael B. Jordan
+
+Sun, 03 May 2026 14:37:28 GMT
+
+https://screenrant.com/swapped-movie-netflix-streaming-success-may-2026/
+
+Michael B. Jordan continues to have a successful 2026, as his new fantasy film on Netflix has officially climbed to the top of the streaming charts.
+---------
+
+# Fallout 5 Setting And Era Officially Confirmed, But You Might've Missed It
+
+Gaming, Fallout, Fallout 5
+
+Sun, 03 May 2026 14:30:09 GMT
+
+https://screenrant.com/fallout-5-official-setting-timelines-confirmed/
+
+Fallout 5's setting has been up for debate for some time, but those in charge of the franchise have given us major clues about where it will take us.
+---------
+
+# The Boys Just Confirmed The Deep Is Way Stronger Than Anyone Knew
+
+Streaming TV, The Boys
+
+Sun, 03 May 2026 14:30:09 GMT
+
+https://screenrant.com/the-boys-deep-stronger-supe-eel-toilet-scene/
+
+The Boys is still finding ways to surprise its audience in season 5, with the show revealing that one Seven member is much stronger than expected.
+---------
+
+# 10 Most Iconic Anime To Come Out Of The 2010s
+
+Anime, Op-Ed
+
+Sun, 03 May 2026 14:16:53 GMT
+
+https://screenrant.com/best-anime-2010s-every-year/
+
+The best anime of an amazing decade.
+---------
+
+# Hokum's Original Bleak Ending For Adam Scott's Protagonist Revealed By Director
+
+Movies, Hokum
+
+Sun, 03 May 2026 14:14:15 GMT
+
+https://screenrant.com/hokum-movie-ending-ohm-original-fate-explained-damian-mccarthy/
+
+Director Damian McCarthy reveals that the ending of Hokum was almost a lot darker for Adam Scott's already tortured protagonist Ohm Bauman.
+---------
+
+# The Devil Wears Prada 2 Ending Subtly Calls Back To Anne Hathaway's Famous Cerulean Sweater
+
+Movies, The Devil Wears Prada 2
+
+Sun, 03 May 2026 14:12:02 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-ending-andy-cerulean-sweater-explained-david-frankel/
+
+Before The Devil Wears Prada 2 ends, there is a subtle callback to the famous cerulean sweater that Anne Hathaway wears in the original film.
+---------
+
+# Netflix's 3-Part KPop Demon Hunters Predecessor Is One Of Its Best Fantasy Shows
+
+Classic TV, Masked Recs
+
+Sun, 03 May 2026 14:10:21 GMT
+
+https://screenrant.com/trollhunters-tales-of-arcadia-netflix-kpop-demon-hunters-predecessor/
+
+Among Netflix's best TV shows is an animated one that's a predecessor to K-Pop Demon Hunters, and which spawned an underrated franchise.
+---------
+
+# PlayStation Plus Is Hiding A 100-Hour Beast Of A Free RPG
+
+Gaming, PlayStation 5, PlayStation Plus
+
+Sun, 03 May 2026 14:00:20 GMT
+
+https://screenrant.com/playstation-plus-100-hour-rpg-darkest-dungeon-2/
+
+PlayStation Plus is a genuinely compelling offering, and it's hiding one of the most underrated RPGs of the last decade or more.
+---------
+
+# 10 Near-Perfect Bleach Filler Episodes Worth Watching
+
+Anime, Bleach, Shonen
+
+Sun, 03 May 2026 14:15:13 GMT
+
+https://www.cbr.com/bleach-near-perfect-filler-episodes-worth-watching/
+
+Bleach is one of the prime examples of a long-running Shonen filled with filler, but that's not necessarily a bad thing.
+---------
+
+# Gundam's Most Iconic Movie Mecha Returns in Massive New Bandai Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Char's Counterattack, merchandise, bandai, toys, action figures
+
+Sun, 03 May 2026 14:00:14 GMT
+
+https://www.cbr.com/bandai-metal-structure-rx-93-nu-gundam-re-release/
+
+The nu Gundam lives again with a re-released action figure that recreates the iconic Mobile Suit Gundam: Char's Counterattack mecha in epic detail.
+---------
+
+# ’80s Star Goldie Hawn Reveals Real Reason Behind 6-Year Acting Hiatus
+
+Movies, Netflix, The Christmas Chronicles, Overboard
+
+Sun, 03 May 2026 13:56:44 GMT
+
+https://www.cbr.com/goldie-hawn-real-reason-acting-hiatus/
+
+One of the most beloved Hollywood stars of an entire generation opens up about her 6-year hiatus and what would bring her back to acting.
+---------
+
+# 10 Best Albums of the 1990s, Ranked
+
+Music Features, Music, Radiohead, Sigur Rós, Björk
+
+Sun, 03 May 2026 14:33:16 GMT
+
+https://collider.com/best-1990s-albums-ranked/
+
+The best albums released in the 1990s include classics like Heaven or Las Vegas by Cocteau Twins and A Tribe Called Quest's The Low End Theory.
+---------
+
+# Ridley Scott's Ruthless 2021 Historical Drama Doubles as a Masterful Kurosawa Remake
+
+Movie Features, The Last Duel, Ridley Scott, Matt Damon, Ben Affleck
+
+Sun, 03 May 2026 14:04:14 GMT
+
+https://collider.com/ridley-scott-the-last-duel-historical-drama-kurosawa-rashomon-remake/
+
+Ridley Scott's The Last Duel, starring Ben Affleck, Matt Damon, and Jodie Comer, actually works as a remake as Akira Kurosawa's Rashomon.
+---------
+
+# In Just 2 Episodes, Apple TV's New Horror Series Is Officially a Streaming Classic
+
+TV News, Apple TV, Matthew Rhys, Widow's Bay, Schitt's Creek
+
+Sun, 03 May 2026 14:00:14 GMT
+
+https://collider.com/the-shining-meets-schitts-creek-new-series-widows-bay-streaming-success-apple-tv-may-2026/
+
+Apple TV’s new 10/10 series with The Shining meets Schitt’s Creek vibes is already a late night streaming sensation.
+---------
+
+# Every Must-See Movie Streaming in May 2026
+
+Features
+
+Sun, 03 May 2026 14:30:09 GMT
+
+https://movieweb.com/movies-streaming-may-2026/
+
+From Netflix to Prime Video, movie fans have plenty of exciting new releases to stream in May 2026.
+---------
+
+# The New King of Horror Damian McCarthy’s Movies Ranked, Worst to Best
+
+Features, Hokum, Oddity, Caveat
+
+Sun, 03 May 2026 14:00:19 GMT
+
+https://movieweb.com/damian-mccarthy-movies-ranked-worst-best/
+
+Irish filmmaker Damian McCarthy's latest horror movie 'Hokum' is being hailed as the best of 2026, but how does it stack up in his filmography?
+---------
+
+# Johnny Depp's '90s Action Thriller 'Nick of Time' Hits Free Streaming
+
+Movie News, Nick of Time, Coming/Leaving Streaming
+
+Sun, 03 May 2026 14:00:19 GMT
+
+https://movieweb.com/nick-of-time-streaming-tubi-may-2026/
+
+Johnny Depp's divisive 1995 thriller 'Nick of Time' did not do well with critics, but it has a chance to redeem itself on free streaming.
+---------
+
 # 10 Most Exciting Movies Ever Made
 
 Classic Movies
