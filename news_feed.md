@@ -1,3 +1,322 @@
+# NBC’s Classic Sci-Fi Reboot Series Quietly Returns As American Streaming Success
+
+TV, Masked Recs, Streaming Charts
+
+Mon, 04 May 2026 17:58:12 GMT
+
+https://screenrant.com/battlestar-galactica-apple-tv-vod-streaming-success-may-2026/
+
+The reboot of one of the most classic sci-fi franchises from NBC finds new success in 2026 as it has become a streaming success in the United States.
+---------
+
+# All 3 Marvel Movies & TV Shows Releasing On Disney+ In May 2026
+
+Superheroes, Marvel Cinematic Universe, Disney+
+
+Mon, 04 May 2026 17:45:20 GMT
+
+https://screenrant.com/marvel-movies-shows-release-disney-plus-may-2026/
+
+Multiple Marvel Cinematic Universe releases are coming to Disney+ in May, with the month being perfect for fans of the street-level MCU.
+---------
+
+# The Best Order To Watch Yellowstone & Its Many Spinoffs
+
+Streaming TV, Yellowstone, 1883, 1923
+
+Mon, 04 May 2026 17:45:20 GMT
+
+https://screenrant.com/what-order-watch-yellowstone-spinoff-series/
+
+The Yellowstone universe has begun to grow, sprouting various spinoff series which span several generations. Here's the proper viewing order.
+---------
+
+# Euphoria Season 3's R-Rated Stripper Scene Officially Takes The Show Too Far
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Mon, 04 May 2026 17:44:54 GMT
+
+https://screenrant.com/euphoria-season-3-kitty-scene-too-far/
+
+Euphoria season 3 has been garnering controversy since before its premiere, but episode 4's scene with new character Kitty takes the show too far.
+---------
+
+# Stephen King's Hit 8-Part Sci-Fi Thriller Series Dominates Streaming Charts After Passing Impressive Milestone
+
+TV, Masked Recs
+
+Mon, 04 May 2026 17:31:55 GMT
+
+https://screenrant.com/the-institute-streaming-success-milestone-may-2026/
+
+Stephen King's hit eight-part sci-fi thriller series dominates the streaming charts after passing an impressive milestone this past month.
+---------
+
+# From Season 4 Has Officially Redeemed The Most Insufferable Character
+
+Streaming TV, From, FROM - Season 4
+
+Mon, 04 May 2026 17:30:20 GMT
+
+https://screenrant.com/from-season-4-randall-character-redeem/
+
+The most insufferable character in the MGM+ horror series From is now officially redeemed after the events of season 4, episode 3, "Merrily We Go."
+---------
+
+# 5 Best Prime Video Shows (May 4–8) – #1 Finally Returns After 3 Years
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 04 May 2026 17:12:20 GMT
+
+https://screenrant.com/best-prime-video-shows-watch-now-week/
+
+Discover the top trending original series on Prime Video this week, including a viral true crime docuseries & a modern adaptation of a classic novel.
+---------
+
+# HBO's Draco Malfoy Star Explains How He's Changing Iconic Harry Potter Villain
+
+TV, Harry Potter
+
+Mon, 04 May 2026 17:10:10 GMT
+
+https://screenrant.com/harry-potter-hbo-series-draco-malfoy-changes-lox-pratt/
+
+With less than a year to go until the Harry Potter TV show premieres, Lox Pratt opens up about how Malfoy will be different than in the movies.
+---------
+
+# Resident Evil Requiem DLC Leak Teases More Classic Characters Returning
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Mon, 04 May 2026 17:09:08 GMT
+
+https://screenrant.com/resident-evil-requiem-dlc-leak-chris-ada-re9/
+
+More single-player story content for Resident Evil Requiem is supposedly on the way, and leaked details point to more fan favorites returning.
+---------
+
+# Paramount+'s 2-Part 'Sicario Meets Jack Ryan' Series Is One Of Its Best Action Shows
+
+TV, Sicario, Jack Ryan, Masked Recs, Paramount Plus
+
+Mon, 04 May 2026 17:04:21 GMT
+
+https://screenrant.com/special-ops-lioness-taylor-sheridan-paramount-action-show/
+
+One bold move saw creator Taylor Sheridan combine the thrills of Sicario and Jack Ryan for Paramount+'s daring new spin on the spy thriller genre.
+---------
+
+# New Harry Potter TV Series Set Photos Tease Book-Accurate Season 1 Ending
+
+TV, Harry Potter
+
+Mon, 04 May 2026 17:48:26 GMT
+
+https://www.cbr.com/harry-potter-tv-series-book-accurate-season-1-ending/
+
+The Harry Potter series is bringing the magic back to different locations.
+---------
+
+# Hello Kitty Island Adventure Gets Free New Update Starring Sanrio's Laziest Icon
+
+Anime, sanrio, Hello Kitty, Hello Kitty Island Adventure
+
+Mon, 04 May 2026 17:31:32 GMT
+
+https://www.cbr.com/hello-kitty-island-adventure-free-may-release-update-gudetama/
+
+Hello Kitty Island Adventure's latest free update features a fan-favorite Sanrio character loved for being a global lazy icon.
+---------
+
+# Nintendo Is Officially Replacing Mario With the Legend of Zelda
+
+Movies, The Super Mario Galaxy Movie, The Legend of Zelda, The Super Mario Bros. Movie
+
+Mon, 04 May 2026 17:30:13 GMT
+
+https://www.cbr.com/legend-of-zelda-replacing-mario-nintendo-movies/
+
+Mario might be traveling through the galaxy in theaters now, but 2027 will see the very important rise of another Nintendo hero on the big screen.
+---------
+
+# 8 American TV Shows More Rewatchable Than The Office
+
+TV, The Office, Sitcoms, Parks and Recreation, Brooklyn Nine-Nine
+
+Mon, 04 May 2026 17:30:13 GMT
+
+https://www.cbr.com/american-tv-shows-more-rewatchable-than-the-office-list/
+
+You could watch The Office for the ninth time this year or you could check out other American TV shows that are even more rewatchable.
+---------
+
+# It Only Took 45 Minutes for 2025's Best Game to Outshine Final Fantasy
+
+Games
+
+Mon, 04 May 2026 17:15:13 GMT
+
+https://www.cbr.com/clair-obscur-outshines-final-fantasy/
+
+There's a new king of RPGs, and it blows the Final Fantasy format out of the water.
+---------
+
+# Star Wars: Maul — Shadow Lord's Darth Vader Appearance Confirms Sith Rule
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi
+
+Mon, 04 May 2026 17:13:13 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-darth-vader-sith-hierarchy-confirmed/
+
+Darth Vader's latest Star Wars appearance proves that the hierarchy of the Sith remains intact.
+---------
+
+# Jason Statham's $76M Action Remake Resurfaces as a Streaming Hit on Paramount+ 15 Years Later
+
+Movies, The Mechanic, Jason Statham, Paramount Plus
+
+Mon, 04 May 2026 16:41:15 GMT
+
+https://www.cbr.com/jason-statham-the-mechanic-paramount-plus-success-may-2026/
+
+No matter the format, audiences cannot get enough of action icon Jason Statham.
+---------
+
+# Netflix's The Night Agent to End With Season 4
+
+TV, The Night Agent
+
+Mon, 04 May 2026 16:39:47 GMT
+
+https://www.cbr.com/netflix-the-night-agent-season-4-ending/
+
+The Netflix hit action series has already been renewed for Season 4.
+---------
+
+# Maul Star Confirms 'Everything Is Different' In Scene That Changes Star Wars Canon
+
+CBR Exclusives, Star Wars: Maul - Shadow Lord, Star Wars
+
+Mon, 04 May 2026 16:26:39 GMT
+
+https://www.cbr.com/maul-shadow-lord-changes-star-wars-canon-sam-witwer/
+
+Sam Witwer explains how Star Wars: Maul – Shadow Lord challenges Maul’s canon backstory through a major Season 1 Force vision.
+---------
+
+# Bradley Nowell Wrote Sublime's Biggest Hit Before He Ever Got to See It Succeed
+
+Music Features, Rock, Music, Billboard Hot 100, Punk
+
+Mon, 04 May 2026 17:53:51 GMT
+
+https://collider.com/bradley-nowell-wrote-sublime-biggest-hit-santeria-before-his-death/
+
+Sublime's signature song became a crossover hit after lead singer Bradley Nowell's untimely death, epitomizing the band's unique blend of ska, punk, and reggae.
+---------
+
+# Netflix’s Stellar 2-Part Sitcom Keeps Getting Better as It Surges Past 25.2M Hours Viewed
+
+TV Features, Running Point, Netflix, Kate Hudson, Justin Theroux
+
+Mon, 04 May 2026 17:47:14 GMT
+
+https://collider.com/running-point-season-2-netflix-25m-hours-viewed/
+
+Running Point Season 2 improves its storytelling and character arcs as it surpasses 25.2M hours viewed on Netflix.
+---------
+
+# Every Season of 'The Wire,' Ranked According to Rotten Tomatoes
+
+TV, The Wire, Rotten Tomatoes, HBO, Crime
+
+Mon, 04 May 2026 17:12:13 GMT
+
+https://collider.com/the-wire-seasons-ranked-best-rotten-tomatoes/
+
+HBO's crime drama The Wire is now considered one of the finest TV shows ever made. Here's how critics on the Tomatometer rank all five seasons.
+---------
+
+# AMC Officially Unveils Behind-the-Scenes Look at New Silicon Valley Thriller [Exclusive]
+
+Exclusives, The Audacity, Billy Magnussen, Zach Galifianakis, AMC
+
+Mon, 04 May 2026 17:00:13 GMT
+
+https://collider.com/the-audacity-sneak-peek-featurette-technology-billy-magnussen-sarah-goldberg-zach-galifianakis/
+
+A fun new teaser for AMC's The Audacity questions the star-studded cast on their own relationships with technology. Watch it here!
+---------
+
+# Netflix's 'White Lotus' Rival Officially Unveils Its Chaotic Season 2 in First Trailer
+
+TV News, The Four Seasons, Tina Fey, Will Forte, Colman Domingo
+
+Mon, 04 May 2026 16:50:52 GMT
+
+https://collider.com/netflix-the-white-lotus-replacement-the-four-seasons-season-2-trailer/
+
+Watch the first Season 2 trailer for Netflix’s The White Lotus replacement as vacation chaos descends into pure thrills in The Four Seasons.
+---------
+
+# Netflix’s Best ‘Reacher’ Replacement Will Officially End With Season 4
+
+TV News, The Night Agent, Gabriel Basso, Netflix, Reacher
+
+Mon, 04 May 2026 16:38:30 GMT
+
+https://collider.com/netflix-reacher-replacement-the-night-agent-season-4-ending-cancelled-netflix/
+
+Netflix has decided to end its best Reacher replacement after Season 4 as production begins in Los Angeles.
+---------
+
+# 'Man on Fire' Star Yahya Abdul-Mateen II Reveals Why He Left 'Furiosa: A Mad Max Saga'
+
+Movie News, Furiosa: A Mad Max Saga, Mad Max, Yahya Abdul-Mateen II
+
+Mon, 04 May 2026 17:41:57 GMT
+
+https://movieweb.com/yahya-abdul-mateen-ii-mad-max-prequel/
+
+The 'Wonder Man' actor had a good reason for stepping away from George Miller's film.
+---------
+
+# Kurt Russell Explains the Real Meaning Behind John Carpenter's 'The Thing' Ending
+
+Movie News, The Thing, Kurt Russell, John Carpenter
+
+Mon, 04 May 2026 17:39:28 GMT
+
+https://movieweb.com/the-thing-ending-kurt-russell-explained/
+
+The actor explains how there's intentionally no answer to be solved in the film's finale.
+---------
+
+# 'Shadow Lord' Reunites Maul & Vader for the First Time Since 'The Phantom Menace'
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars, Star Wars: Episode I - The Phantom Menace
+
+Mon, 04 May 2026 17:35:18 GMT
+
+https://movieweb.com/star-wars-maul-vader-reunion/
+
+There are often 'Star Wars' characters that meet several times in various eras, but other pairings are saved for special occasions. Just like this.
+---------
+
+# Kevin Hart To Star in Netflix Spy Action Comedy Directed by McG
+
+Movie News, Kevin Hart, McG, Netflix
+
+Mon, 04 May 2026 16:32:42 GMT
+
+https://movieweb.com/kevin-hart-netflix-spy-action-comedy-mcg/
+
+The untitled Netflix movie teams Kevin Hart with McG for a spy action comedy about rival agents whose personal lives collide before fatherhood.
+---------
+
 # In Just 4 Days, Warner Bros' Mortal Kombat Sequel Officially Releases
 
 New Movies, Mortal Kombat II, Mortal Kombat
