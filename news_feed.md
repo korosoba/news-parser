@@ -1,3 +1,256 @@
+# GTA 6 Delay Lamented By Gamers: "We Were So Close"
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6, Rockstar Games
+
+Mon, 04 May 2026 12:06:50 GMT
+
+https://screenrant.com/gta-6-delay-may-2025-gamers-react/
+
+Gamers are expressing frustration and anticipation as the originally planned May 2026 release date for Grand Theft Auto VI is fast approaching.
+---------
+
+# Lord Of The Flies Ending Explained: The Real Meaning Behind Netflix's Disturbing Adaptation
+
+Streaming TV, Lord of the Flies
+
+Mon, 04 May 2026 12:03:44 GMT
+
+https://screenrant.com/lord-of-the-flies-netflix-ending-explained/
+
+The newest Lord of the Flies adaptation, now available on Netflix, uses its ending as a reminder of what William Golding's original novel was about.
+---------
+
+# 15 Seasons Later, The Best British Detective Series Ever Is Finally Taking Over America
+
+TV, Masked Recs
+
+Mon, 04 May 2026 12:02:21 GMT
+
+https://screenrant.com/death-in-paradise-british-detective-series-streaming-success-may-2026/
+
+The latest season of a beloved and long-running British detective series filmed in Guadeloupe, is taking the United States by storm after 15 seasons.
+---------
+
+# After 6 Years, Solo Leveling's Biggest Rival Shows No Signs of Slowing Down
+
+Anime, Omniscient Reader (2020), Webtoon
+
+Mon, 04 May 2026 12:00:20 GMT
+
+https://screenrant.com/solo-leveling-replacement-omniscient-reader-season-1-ending/
+
+Solo Leveling has only one worthy rival, and it's Omniscient Reader, and the series just proved why it's going to surpass it.
+---------
+
+# BBC's Hit Mockumentary Franchise Returns With Solid Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Mon, 04 May 2026 11:47:28 GMT
+
+https://screenrant.com/twenty-twenty-six-bbc-show-rotten-tomatoes-score/
+
+A popular BBC mockumentary franchise, starring Hugh Bonneville, returns with a follow-up show that is scoring a solid rating on Rotten Tomatoes.
+---------
+
+# Nathan Fillion’s 8-Season Crime Thriller's First Spinoff Crossover Is Officially Confirmed
+
+Network TV, The Rookie
+
+Mon, 04 May 2026 11:45:18 GMT
+
+https://screenrant.com/the-rookie-north-crossover-confirmed/
+
+Amid the wait for its pilot order, the first crossover of Nathan Fillion's 8-season crime thriller with its new spinoff is officially happening.
+---------
+
+# Pokémon Gamma Emerald Looks Like The Best Pokémon In Years
+
+Gaming, Pokemon, Nintendo
+
+Mon, 04 May 2026 11:30:20 GMT
+
+https://screenrant.com/pokmon-gamma-emerald-fan-game-try-now/
+
+Pokémon Gamma Emerald is literally everything I've wanted from Pokémon for a long, long time.
+---------
+
+# Star Wars Fans Only Have 24 Hours To Claim This Surprise Offer
+
+Gaming, Fortnite, Live Service Games, PC
+
+Mon, 04 May 2026 11:24:28 GMT
+
+https://screenrant.com/star-wars-fortnite-skin-offer-24-hours/
+
+Star Wars has launched plenty of offerings to get fans excited for May the Fourth, but this one deal is one that fans of the series don't wanna miss.
+---------
+
+# PlayStation Gamers Officially Set For Millions In Compensation
+
+Gaming, PlayStation 5, Sony, PC, PlayStation Plus
+
+Mon, 04 May 2026 11:17:09 GMT
+
+https://screenrant.com/playstation-class-action-lawsuit-payout/
+
+PlayStation users will officially be able to claim millions in compensation after Sony recently settled a massive anti-trust lawsuit in the US.
+---------
+
+# Halo Officially Returns This Autumn With A Brand-New Prequel
+
+Gaming, Halo: Campaign Evolved, Halo, Xbox Series X/S
+
+Mon, 04 May 2026 11:00:20 GMT
+
+https://screenrant.com/halo-new-prequel-autumn-2026-parasites-wake/
+
+Halo makes it return this October with a new prequel to set the stage for the series' 25th anniversary.
+---------
+
+# Marvel Officially Names the Avengers’ New Leader Ahead of Big Event
+
+Comics, Avengers, Wolverine, Marvel
+
+Mon, 04 May 2026 12:00:12 GMT
+
+https://www.cbr.com/avengers-armageddon-wolverine-leader-confirmed/
+
+Earth's Mightiest Heroes are about to assemble under the leadership of one of the most brutal heroes of all time, and he's perfect for the job.
+---------
+
+# 10 Reasons Batman Is the Least Powerful Justice League Hero
+
+Comics, Batman, DC Comics, Justice League
+
+Mon, 04 May 2026 11:00:12 GMT
+
+https://www.cbr.com/batman-weakest-justice-league-member/
+
+As much as DC fans consider Batman the flagship of the Justice League, his inclusion is in spite of the fact that he's the team's weakest link.
+---------
+
+# Taylor Sheridan’s Most Popular Western Thriller Officially Returns on May 15
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount+ with Showtime
+
+Mon, 04 May 2026 12:00:13 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-paramount-plus-release-date-may-15-2026/
+
+Taylor Sheridan’s biggest gamble yet, the Yellowstone spin-off Dutton Ranch, will premiere later this month.
+---------
+
+# 10 Most Perfect Heist Movies of All Time, Ranked
+
+Movie, Michael Mann, Heat, Thief, Ocean's Eleven
+
+Mon, 04 May 2026 11:51:12 GMT
+
+https://collider.com/most-perfect-heist-movies-ranked/
+
+Acclaimed thrillers like Inside Man, Heat, and The Town are all among the best, near-perfect heist movies ever made.
+---------
+
+# 7 Greatest Endings in International Supernatural Thrillers, Ranked
+
+Movie, Ju-On: The Grudge, Talk to Me, Livid, The Babadook
+
+Mon, 04 May 2026 11:40:13 GMT
+
+https://collider.com/international-supernatural-thriller-endings-best-ranked/
+
+International films like Talk to Me, The Babadook, and The Orphanage have some of the best endings in the history of the supernatural thriller genre.
+---------
+
+# 15 Best Star Wars Quotes, Ranked
+
+Movie, Star Wars, Star Wars: Episode IV - A New Hope, Star Wars: Episode VI - Return of the Jedi
+
+Mon, 04 May 2026 11:38:14 GMT
+
+https://collider.com/best-star-wars-quotes-ranked/
+
+The most famous Star Wars quotes from a galaxy far, far away are forever a part of pop culture, including lines like "may the Force be with you."
+---------
+
+# 10 Movies That Are Terrible From Start to Finish
+
+Movie, The Master of Disguise, Superbabies: Baby Geniuses 2, The Garbage Pail Kids Movie, The Legend of the Titanic
+
+Mon, 04 May 2026 11:31:13 GMT
+
+https://collider.com/worst-movies-terrible-from-start-to-finish/
+
+The Legend of the Titanic, Son of the Mask, and Foodfight! are all among the worst movies of all time, genuinely terrible from start to finish.
+---------
+
+# Tom Cruise’s Game-Changing Spy Thriller Climbs Free Streaming 15 Years Later
+
+Movie News, Mission: Impossible - Ghost Protocol, Tom Cruise, Thriller, Mission: Impossible
+
+Mon, 04 May 2026 11:31:13 GMT
+
+https://collider.com/tom-cruise-spy-thriller-mission-impossible-ghost-protocol-streaming-free-pluto-tv-may-2026/
+
+Tom Cruise's franchise-saving spy thriller, Mission: Impossible - Ghost Protocol, is now streaming free.
+---------
+
+# This May 4, It’s Time For Star Wars To Start Treating Its Best Jedi Cal Kestis Like The Main Character He Is
+
+Movie Features, Star Wars, Star Wars Jedi: Fallen Order, Star Wars Jedi: Survivor, Cameron Monaghan
+
+Mon, 04 May 2026 11:21:13 GMT
+
+https://collider.com/star-wars-cal-kestis-video-game-live-action-need-best-jedi/
+
+Cal Kestis has become one of Star Wars’ strongest modern Jedi through Jedi: Fallen Order and Jedi: Survivor, and he needs to be in live-action.
+---------
+
+# Netflix’s Ambitious 8-Part Supernatural Horror Series Is a 10/10 Binge
+
+TV Features, Cracow Monsters, Netflix, Horror, Barbara Liberek
+
+Mon, 04 May 2026 11:12:14 GMT
+
+https://collider.com/netflix-best-horror-series-cracow-monsters-8-episodes/
+
+Cracow Monsters is a must-watch Netflix horror series with supernatural demons, Slavic folklore, and stellar creature design.
+---------
+
+# 10 Most Universally Beloved War Movies of All Time, Ranked
+
+Movie, War, Lawrence of Arabia, Saving Private Ryan, All Quiet on the Western Front
+
+Mon, 04 May 2026 11:04:13 GMT
+
+https://collider.com/most-universally-beloved-war-movies-all-time-ranked/
+
+Saving Private Ryan, The Great Escape, and Platoon are all among the best and most universally loved war movies of all time.
+---------
+
+# Ridley Scott's Long-Awaited Historical Epic Surges on Streaming 2 Years Later
+
+Movie News, Gladiator, Gladiator II, Ridley Scott, Russell Crowe
+
+Mon, 04 May 2026 11:00:13 GMT
+
+https://collider.com/ridley-scott-historical-epic-gladiator-2-russell-crowe-criticism-streaming-success-netflix-may-2026/
+
+Ridley Scott's Gladiator II is climbing Netflix’s global movie chart after Russell Crowe criticized the sequel’s moral core.
+---------
+
+# 'Hoppers' Undeniably Confirms Pixar's Shared Universe Theory
+
+Features, Hoppers, Pixar
+
+Mon, 04 May 2026 11:00:17 GMT
+
+https://movieweb.com/hoppers-confirms-pixar-shared-universe/
+
+Pixar fans have had a theory for years now that all of the studio's movies exist as part of the same timeline. 'Hoppers' proves them right.
+---------
+
 # Red Dead Redemption 3 Perfect Lead Character Leaves Gamers Hopeful
 
 Gaming, Red Dead Redemption 2, Red Dead Redemption
