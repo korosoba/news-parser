@@ -1,3 +1,344 @@
+# Naked Gun Creator Is Excited For Netflix's Major New Release, Though Dreads 1 Part
+
+Movies, The Naked Gun: From the Files of Police Squad!
+
+Mon, 04 May 2026 14:30:23 GMT
+
+https://screenrant.com/naked-gun-netflix-is-a-joke-rerelease-david-zucker-excited/
+
+David Zucker talks Netflix's major new release of the original Naked Gun movie, the one part he's not looking forward to, and his career legacy.
+---------
+
+# New Freebie On Steam Is A Hidden Gem For Fans Of Narrative Games
+
+Gaming, Steam, PC, Indie
+
+Mon, 04 May 2026 14:23:15 GMT
+
+https://screenrant.com/steam-free-demo-vampire-narrative/
+
+A new narrative game focused on empathy is set to be released on Steam soon, and you can already play a portion of it entirely for free.
+---------
+
+# DCU's Green Lantern Series Controversy Officially Addressed After Divisive First Trailer
+
+TV, Lanterns, DC Universe, Green Lantern
+
+Mon, 04 May 2026 14:21:38 GMT
+
+https://screenrant.com/lanterns-green-dcu-controversy-chris-mundy-response/
+
+The Lanterns TV showrunner is finally opening up about the backlash on the DC Universe controversy surrounding the upcoming HBO superhero series.
+---------
+
+# GameStop Buying eBay For $56 Billion Sparks Mass Confusion
+
+Gaming, ebay, Triple-A Games
+
+Mon, 04 May 2026 14:18:41 GMT
+
+https://screenrant.com/gamestop-buying-ebay-56-billion-reactions/
+
+In one of the most confusing business proposals in recent memory, GameStop is offering to buy eBay for a staggering sum of money.
+---------
+
+# 5 Best Netflix Shows (May 4–8) – #1 Adapts A Classic Bestselling Novel
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 04 May 2026 14:12:19 GMT
+
+https://screenrant.com/best-netflix-shows-watch-now-week/
+
+Discover the 5 best new Netflix series for the week of May 4-8, including a classic novel adaptation, gripping true crime, and a top sci-fi mystery.
+---------
+
+# Star Wars: Maul Vs Vader - Power Levels Explored In Shadow Lord
+
+Streaming TV, Star Wars: Maul - Shadow Lord
+
+Mon, 04 May 2026 14:00:29 GMT
+
+https://screenrant.com/maul-shadow-lord-darth-vader-more-powerful/
+
+Powerscaling is a tricky subject in Star Wars, and Star Wars: Maul - Shadow Lord throws fuel on the power pyramid fire with its Maul vs. Vader duel.
+---------
+
+# For All Mankind's Mars Obsession Has A Negative Impact On Astronaut Characters
+
+TV, For All Mankind, Op-Ed
+
+Mon, 04 May 2026 14:00:21 GMT
+
+https://screenrant.com/for-all-mankind-season-5-no-astronauts-bad/
+
+For All Mankind season 5 is dug in on strife and politics on Mars, and it's sorely lacking the bold astronauts from previous seasons exploring space.
+---------
+
+# Fallout 3 Already Has A Pretty Perfect Remaster You Can Play Now
+
+Gaming, Fallout
+
+Mon, 04 May 2026 14:00:21 GMT
+
+https://screenrant.com/fallout-3-xbox-game-pass-fps-boost/
+
+Fallout 3 is a stunning RPG that's due for a remaster, but there is a better way to be playing the current version on console.
+---------
+
+# PlayStation Drops 6 New Free Downloads For May, No PS Plus Required
+
+Gaming, PlayStation Plus, PlayStation 5
+
+Mon, 04 May 2026 13:57:50 GMT
+
+https://screenrant.com/playstation-6-free-downloads-may-2026-no-ps-plus/
+
+PlayStation is offering up six new free downloads right now for PS5 users, and a PlayStation Plus membership isn't required to get them.
+---------
+
+# Halo 7 Can Wait, Multiple New Remakes Just Leaked
+
+Gaming, Halo, Triple-A Games
+
+Mon, 04 May 2026 13:45:48 GMT
+
+https://screenrant.com/halo-remakes-2-3-leaked/
+
+The Halo series will never fade, and remakes beyond the original will continue to support its legacy in gaming for decades to come.
+---------
+
+# Farscape: The Cult Classic Hard Sci-Fi Series That Pushes Boundaries
+
+TV, Farscape, Sci-Fi
+
+Mon, 04 May 2026 14:30:13 GMT
+
+https://www.cbr.com/syfy-farscape-best-2000s-sci-fi-cult-classic/
+
+In a genre known for pushing boundaries, one show ventured into uncharted territories with its unconventional characters and mind-bending stories.
+---------
+
+# 8 Greatest Hidden Gem Anime You'll Wish You Watched Sooner
+
+Anime
+
+Mon, 04 May 2026 14:15:13 GMT
+
+https://www.cbr.com/greatest-anime-hidden-gems-need-to-watch-soon/
+
+These series are underrated masterpieces with unforgettable storylines that every anime viewer should have watched a long time ago.
+---------
+
+# Karl Urban & Josh Lawson Break Down Johnny Cage & Kano in Mortal Kombat II
+
+Movies, Mortal Kombat II
+
+Mon, 04 May 2026 14:15:13 GMT
+
+https://www.cbr.com/video/karl-urban-josh-lawson-break-down-johnny-cage-kano-in-mortal-kombat-ii/
+
+Mortal Kombat II stars Karl Urban and Josh Lawson get real about Johnny Cage and Kano.From ego checks to chaotic energy, they break down what makes these characters tick.In this interview, Karl Urban dives into Johnny Cage’s self-reflection, while Josh Lawson explains how he transforms into Kano, voice and all. They also open up about why they avoid watching their own performances, the pressure of perfectionism, and the surprising things actors notice about themselves. Plus, their funniest hidden “Arcana” talents might be the most unexpected reveal.
+---------
+
+# Lord of the Flies Review: Netflix Turns a Classic Into Nightmare Fuel
+
+TV, Lord of the Flies, Netflix
+
+Mon, 04 May 2026 14:10:48 GMT
+
+https://www.cbr.com/lord-of-the-flies-netflix-series-review/
+
+Lord of the Flies gets its first television adaptation from Adolescence writer Jack Thorne, who sinks his teeth into Golding’s daunting classic.
+---------
+
+# Steven Spielberg's Cult Sci-Fi Classic Is the Best Star Trek Copycat of the '90s
+
+TV, Earth 2, Star Trek, steven spielberg
+
+Mon, 04 May 2026 14:00:43 GMT
+
+https://www.cbr.com/steven-spielberg-scifi-cult-classic-earth-2-best-90s-star-trek-copycat/
+
+Star Trek had a golden age in the 1990s, but one sci-fi competitor was sadly killed before its time while exploring uncharted thematic territory.
+---------
+
+# Dune: Part Three Gets a Surprise New Companion Project 4 Days After Release
+
+Movies, Dune: Part Three
+
+Mon, 04 May 2026 13:57:23 GMT
+
+https://www.cbr.com/dune-part-three-companion-novel/
+
+Denis Villeneuve's Dune: Part Three will officially get its own jaw-dropping follow-up, and it's coming just days after the film arrives in theaters.
+---------
+
+# The 10 Best The Far Side Comics About Pets
+
+Comics, The Far Side
+
+Mon, 04 May 2026 13:17:36 GMT
+
+https://www.cbr.com/best-far-side-comics-about-pets/
+
+The Far Side comics by Gary Larson provide comedy using literary devices like personification. A favored and funny outlet for this device is pets.
+---------
+
+# In Just 1 Day, Netflix's New Michael B. Jordan Film Becomes an Instant Global Hit
+
+Movies, Swapped
+
+Mon, 04 May 2026 13:00:13 GMT
+
+https://www.cbr.com/netflix-michael-b-jordan-swapped-instant-streaming-success-may-2026/
+
+Michael B. Jordan's latest Netflix film wasted no time climbing to the top of the charts around the world, and audiences are loving it.
+---------
+
+# The Devil Wears Prada 2 Officially Fixes Originals Biggest Problem
+
+Movies, The Devil Wears Prada 2
+
+Mon, 04 May 2026 13:00:13 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-fixes-nate-villain-problem/
+
+The Devil Wears Prada 2 is getting a lot of praise from fans for finally fixing one of the biggest problems with the first movie.
+---------
+
+# 'From's Biggest Tragedy So Far Has an Even Deeper Meaning for the Town's Future
+
+Interviews, From, Catalina Sandino Moreno, MGM, Horror
+
+Mon, 04 May 2026 14:00:13 GMT
+
+https://collider.com/from-season-4-episode-3-catalina-sandino-moreno-jim-death-meaning-tabitha-interview/
+
+From star Catalina Sandino Moreno discusses Season 4's latest episode and how that tragic death is driving Tabitha even further for answers.
+---------
+
+# 2012's Franchise-Starting Sci-Fi Classic Tops American Streaming Charts Ahead of Theatrical Return
+
+Movie News, The Hunger Games, AMC+, Action, Jennifer Lawrence
+
+Mon, 04 May 2026 12:30:17 GMT
+
+https://collider.com/jennifer-lawrence-sci-fi-classic-the-hunger-games-streaming-success-amc-plus-may-2026/
+
+The $695 million modern dystopian classic, Jennifer Lawrence's The Hunger Games, is proving popular on streaming.
+---------
+
+# 10 Most Perfectly Directed Classic Movies, Ranked
+
+Movie, Citizen Kane, The Godfather, Humphrey Bogart, Classics
+
+Mon, 04 May 2026 12:20:14 GMT
+
+https://collider.com/most-perfectly-directed-classic-movies-ranked/
+
+Timeless films like Casablanca, Vertigo, and The Godfather are all among the best and most perfectly directed classic Hollywood movies of all time.
+---------
+
+# Dave Franco Joins Sophie Wilde in Sci-Fi Thriller 'Soon You Will Be Gone And Possibly Eaten'
+
+Movie News, Dave Franco
+
+Mon, 04 May 2026 14:29:20 GMT
+
+https://movieweb.com/dave-franco-sci-fi-invasion-thriller-cast/
+
+The upcoming alien invasion thriller comes from director Egor Abramenko and the writing team behind Hulu’s 'Hellraiser' reboot
+---------
+
+# New Draco Malfoy Actor Lox Pratt Won't Play Villain Roles After 'Harry Potter' TV Show
+
+TV News, Harry Potter
+
+Mon, 04 May 2026 14:10:13 GMT
+
+https://movieweb.com/harry-potter-hbo-max-lox-pratt-villain-plans/
+
+After playing Draco Malfoy in HBO Max's 'Harry Potter' series, Lox Pratt has no more plans to play villainous roles
+---------
+
+# Amazon’s Upcoming Sci-Fi ‘Warhammer 40k’ Will Make ‘The Expanse’ Look Small
+
+Features, Warhammer 40k
+
+Mon, 04 May 2026 14:00:19 GMT
+
+https://movieweb.com/warhammer-40k-bigger-than-expanse-foundation/
+
+'Warhammer 40K' is an upcoming sci-fi series coming to Amazon Prime Video and will be perfect for fans of series like 'The Expanse' and 'Foundation.'
+---------
+
+# Why 'The Shawshank Redemption' Is Dedicated to Allen Greene
+
+Features, The Shawshank Redemption, Frank Darabont, Stephen King
+
+Mon, 04 May 2026 14:00:19 GMT
+
+https://movieweb.com/why-the-shawshank-redemption-is-dedicated-to-allen-greene/
+
+One of the most celebrated movies of all time, 'The Shawshank Redemption' tells a touching tale and has a poignant history behind its making.
+---------
+
+# AMC Announces 'Bannerman' Series Based on Action Spy Novels
+
+TV News, Shane Black, Action, Thriller, AMC+
+
+Mon, 04 May 2026 13:41:26 GMT
+
+https://movieweb.com/bannerman-series-amc-shane-black/
+
+AMC is bringing the novels to live-action for the first time, with 'Lethal Weapon's Shane Black directing.
+---------
+
+# Sequel to Keanu Reeves Action Thriller 'Point Break' Gets Release Window
+
+TV News, Point Break, Keanu Reeves, Action, Thriller
+
+Mon, 04 May 2026 13:07:18 GMT
+
+https://movieweb.com/point-break-sequel-series-release/
+
+AMC has now revealed details of the sequel series, which picks up 35 years after the events of the original.
+---------
+
+# When 'The Devil Wears Prada 2' Will Stream on Disney+
+
+Features, The Devil Wears Prada 2
+
+Mon, 04 May 2026 13:00:18 GMT
+
+https://movieweb.com/the-devil-wears-prada-2-disney-streaming-date/
+
+Find out when 'The Devil Wears Prada 2,' starring Anne Hathaway and Meryl Streep, will be available to stream on Disney+ in 2026.
+---------
+
+# Kenneth Branagh Unveils His Idea for a 'Logan'-Style Final 'Thor' Film
+
+Movie News, Kenneth Branagh, Thor
+
+Mon, 04 May 2026 12:52:24 GMT
+
+https://movieweb.com/kenneth-branagh-logan-thor-finale/
+
+Looking back on the original 'Thor' 15 years later, the director sounds like he might be ready to return to the MCU.
+---------
+
+# Zack Snyder's MMA Action Movie 'Brawlers' Gets Exciting Production Update
+
+Movie News, Zack Snyder, Action, Martial Arts
+
+Mon, 04 May 2026 12:11:23 GMT
+
+https://movieweb.com/zack-snyder-mma-action-brawlers-filming/
+
+The movie sees Snyder team up with the UFC and is expected to be his next movie after putting out a casting call and undergoing a title change.
+---------
+
 # GTA 6 Delay Lamented By Gamers: "We Were So Close"
 
 Gaming, Grand Theft Auto, Grand Theft Auto 6, Rockstar Games
