@@ -1,3 +1,322 @@
+# In Just 4 Days, Warner Bros' Mortal Kombat Sequel Officially Releases
+
+New Movies, Mortal Kombat II, Mortal Kombat
+
+Mon, 04 May 2026 16:16:04 GMT
+
+https://screenrant.com/mortal-kombat-2-movie-release-date-how-to-watch/
+
+Warner Bros. has hade some major blockbuster hits over the years, and a fantasy action thriller sequel coming this week is poised to be the next.
+---------
+
+# Amazon's Fourth Wing Will Show The Wheel Of Time How It's Done
+
+Streaming TV, Fourth Wing
+
+Mon, 04 May 2026 16:16:04 GMT
+
+https://screenrant.com/fourth-wing-amazon-prime-fantasy-replace-wheel-of-time/
+
+The Wheel of Time didn't quite work out for Amazon's Prime Video, but its upcoming fantasy series is all set up to more meaningfully succeed.
+---------
+
+# X-Men Star Details "Traumatizing" X2 Shoot As Cast Prepares For Avengers: Doomsday Return
+
+Movies, X2: X-Men United, Avengers: Doomsday, The Avengers, X-Men, Marvel Cinematic Universe
+
+Mon, 04 May 2026 16:15:58 GMT
+
+https://screenrant.com/x2-xmen-united-filming-traumatizing-alan-cumming-avengers-doomsday-return/
+
+One of the major X-Men stars who is returning for Marvel Studios' Avengers: Doomsday opens up about a traumatizing shooting experience on X2.
+---------
+
+# The Night Agent Season 5's Fate Officially Decided By Netflix
+
+TV, The Night Agent
+
+Mon, 04 May 2026 16:13:45 GMT
+
+https://screenrant.com/the-night-agent-season-4-ending-final-one/
+
+Ahead of Peter Sutherland's anticipated return in season 4, Netflix has officially confirmed the fate of the series via The Night Agent season 5.
+---------
+
+# Soldier Boy & Bombsight Brutally Fight In The Boys Season 5 Episode 6 Trailer
+
+TV, The Boys
+
+Mon, 04 May 2026 16:08:56 GMT
+
+https://screenrant.com/the-boys-season-5-episode-6-trailer/
+
+The Boys is preparing for its end, as Soldier Boy and Bombsight reunite and fight for their lives in the season 5 episode 6 trailer.
+---------
+
+# Kurt Russell Addresses New Remake Of His 45-Year-Old Sci-Fi Cult Classic: “It’s Tougher Than You Think”
+
+Movies, Escape From New York, Kurt Russell
+
+Mon, 04 May 2026 16:06:01 GMT
+
+https://screenrant.com/kurt-russell-escape-from-new-york-reboot-response/
+
+It’s been 45 years since Kurt Russell starred in a sci-fi cult classic film, and the actor is now revealing what he thinks of a possible reboot.
+---------
+
+# One Piece Fans Officially Pick Their Favorite Movie
+
+Anime, One Piece
+
+Mon, 04 May 2026 16:00:19 GMT
+
+https://screenrant.com/its-official-this-is-the-greatest-one-piece-movie-of-all-time/
+
+Why this is the best One Piece movie.
+---------
+
+# Pokémon Pokopia Fans Are Terrified By This Latest DLC Leak
+
+Gaming, Pokemon Pokopia, Pokemon
+
+Mon, 04 May 2026 16:00:19 GMT
+
+https://screenrant.com/pokemon-pokopia-dlc-leak-fan-reaction/
+
+Despite sounding incredibly promising, Pokopia's rumored DLC has one major drawback that fans of the series are struggling to look past.
+---------
+
+# The Chestnut Man: Hide and Seek Review - One Of Netflix's Best Crime Thriller Series Returns In Top Form
+
+Streaming TV, The Chestnut Man, The Chestnut Man - Season 2
+
+Mon, 04 May 2026 16:00:19 GMT
+
+https://screenrant.com/the-chestnut-man-season-2-review/
+
+The Chestnut Man: Hide and Seek is the perfect sequel to one of Netflix's most enticing crime thrillers, deepening the bond between Hess and Thulin.
+---------
+
+# Melissa Benoist's Supergirl Returns With New Look In DC Universe Art
+
+Superheroes, Supergirl, DC Universe
+
+Mon, 04 May 2026 15:50:19 GMT
+
+https://screenrant.com/melissa-benoist-supergirl-dc-universe-art/
+
+Melissa Benoist suits back up as Supergirl in new DC Universe art ahead of Milly Alcock's 2026 movie, and her Kara Zor-El looks amazing.
+---------
+
+# Martyn Ford & Joe Taslim Break Down Mortal Kombat II’s Massive Scale
+
+Movies, Mortal Kombat II
+
+Mon, 04 May 2026 16:15:40 GMT
+
+https://www.cbr.com/video/martyn-ford-joe-taslim-break-down-mortal-kombat-ii-s-massive-scale/
+
+Mortal Kombat II stars Martyn Ford & Joe Taslim reveal their real-life “Arcana.”From singing at home to parenting skills, their answers are not what you expect.In this candid Mortal Kombat II interview, Ford and Taslim open up about the gap between their intense on-screen personas and who they really are. They talk about surprising fan interactions, the illusion of being a “badass,” and how they break that perception instantly. Plus, they dive into what makes Mortal Kombat II feel bigger than ever, from its passionate fanbase to the scale of the production.
+---------
+
+# Only 3 Anime Series Are More Rewatchable Than Cowboy Bebop
+
+Anime, Cowboy Bebop, Fullmetal Alchemist: Brotherhood, Neon Genesis Evangelion, Kill la Kill
+
+Mon, 04 May 2026 16:15:40 GMT
+
+https://www.cbr.com/anime-more-rewatchable-than-cowboy-bebop/
+
+Cowboy Bebop's rewatchability factor is only surpassed by three anime series
+---------
+
+# Wedge Antilles is Star Wars' Most Underrated Rebel Hero
+
+Movies, Star Wars
+
+Mon, 04 May 2026 16:00:13 GMT
+
+https://www.cbr.com/star-wars-most-underrated-hero-wedge-antilles/
+
+Star Wars has many great pilots, but Wedge Antilles remains one of the most underrated and overlooked heroes of the franchise.
+---------
+
+# Nickelodeon's 5 Longest Running Cartoons, Ranked
+
+TV, Nickelodeon, Rugrats, The Fairly OddParents, cartoons
+
+Mon, 04 May 2026 16:00:13 GMT
+
+https://www.cbr.com/nickelodeon-longest-running-cartoons-list/
+
+Nickelodeon has shaped childhoods for decades, but a few animated shows have gone the distance and reached iconic status.
+---------
+
+# Doctor Doom Replacement Confirmed by Marvel Before Avengers: Doomsday
+
+Comics, Avengers: Doomsday
+
+Mon, 04 May 2026 16:00:13 GMT
+
+https://www.cbr.com/marvel-doctor-doom-replacement-confirmed/
+
+Marvel is already teasing what's next for Doctor Doom, months before fans even get to see Robert Downey Jr. assume the role in Doomsday.
+---------
+
+# Vincent D'Onofrio: Daredevil's Deadly Kingpin Talks Cast Shakeups, Fight Scenes, And His Marvel Future
+
+CBR Exclusives, vincent d'onofrio
+
+Mon, 04 May 2026 16:00:13 GMT
+
+https://www.cbr.com/vincent-donofrio-talks-daredevil-season-finale-marvel-scene-stealer/
+
+Our latest Scene Stealer has spent 12 years in Wilson Fisk's skin. It's having an effect on him.
+---------
+
+# Star Wars Sees Streaming Surge on Star Wars Day
+
+Movies, Star Wars, Star Wars: Episode I - The Phantom Menace, Star Wars: Episode IV - A New Hope
+
+Mon, 04 May 2026 15:57:16 GMT
+
+https://www.cbr.com/star-wars-day-sci-fi-streaming-success-disney-plus-may-2026/
+
+Several Star Wars movies and shows are suddenly climbing up the streaming charts.
+---------
+
+# MTG Card Sells for a Record-Breaking $3 Million in 2026
+
+Games, Magic: The Gathering
+
+Mon, 04 May 2026 15:40:13 GMT
+
+https://www.cbr.com/most-expensive-mtg-card-2026-black-lotus-3-million/
+
+Magic: The Gathering just set a new record for the most expensive card the game has ever sold, and the price tag is absolutely staggering
+---------
+
+# The Walking Dead: Dead City Season 3 Release Window Officially Confirmed
+
+TV, The Walking Dead, The Walking Dead: Dead City
+
+Mon, 04 May 2026 15:36:46 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-release-window/
+
+The Walking Dead spinoff will officially return sooner than expected.
+---------
+
+# May the Fourth Be With You: A History of Star Wars Day
+
+CBR Exclusives, Star Wars, Sci-Fi
+
+Mon, 04 May 2026 15:30:13 GMT
+
+https://www.cbr.com/may-the-fourth-history-of-star-wars-day/
+
+This punny holiday has been an excuse for Star Wars fans to unite, almost as far back as the franchise's beginnings.
+---------
+
+# Ridley Scott’s $130 Million Epic Was Ruined by the Wrong Theatrical Cut
+
+Movie Features, Kingdom of Heaven, Ridley Scott, Orlando Bloom, Liam Neeson
+
+Mon, 04 May 2026 16:11:13 GMT
+
+https://collider.com/ridley-scott-kingdom-of-heaven-theatrical-cut-ruined-movie/
+
+The Director’s Cut of Ridley Scott’s Kingdom of Heaven is the only way the film should be viewed.
+---------
+
+# New Crime Thriller Sneak Peek Teases a Brutal Revenge Story Set in Florida’s Dark Underworld [Exclusive]
+
+TV News, M.I.A., Peacock, Cary Elwes, Thriller
+
+Mon, 04 May 2026 16:00:13 GMT
+
+https://collider.com/new-crime-thriller-series-mia-peacock-sneak-peek/
+
+Discover the dark secrets of Etta Tiger Jonze in an exclusive M.I.A. sneak peek, before Peacock's new crime thriller series premieres on May 7.
+---------
+
+# Gibbs Gets His Iconic Head Slap in ‘NCIS: Origins’ Season 2 Finale Sneak Peek [Exclusive]
+
+Exclusives, NCIS: Origins, Austin Stowell, Kyle Schmid, CBS
+
+Mon, 04 May 2026 16:00:13 GMT
+
+https://collider.com/ncis-origins-season-2-finale-sneak-peek-austin-stowell-gibbs-head-slap/
+
+A new sneak peek at the NCIS: Origins Season 2 finale sees Gibbs learn what will become one of his most iconic moves from Franks.
+---------
+
+# Hugh Jackman’s Wild New Whodunit Sneak Peek Teases a Hilarious Murder Mystery [Exclusive]
+
+Movie News, The Sheep Detectives, Hugh Jackman, Nicholas Braun, Molly Gordon
+
+Mon, 04 May 2026 15:00:14 GMT
+
+https://collider.com/the-sheep-detectives-hugh-jackman-sneak-peek/
+
+Watch an exclusive sneak peek from the hilarious whodunit, The Sheep Detectives, starring Hugh Jackman, as the sheep investigate a murder.
+---------
+
+# Netflix Action Thriller 'Man on Fire' Falls to 'Should I Marry a Murderer?'
+
+TV News, Man on Fire, Hot on Streaming, Netflix, Action
+
+Mon, 04 May 2026 16:17:42 GMT
+
+https://movieweb.com/netflix-man-on-fire-beaten-by-should-i-marry-a-murderer-streaming/
+
+Netflix's newest action thriller is no match for a true crime sensation that's taken over the streaming service in the United States.
+---------
+
+# Dominic Sessa is Anthony Bourdain in First Look Images & Poster for Upcoming Biopic 'Tony'
+
+Movie News, Anthony Bourdain, A24
+
+Mon, 04 May 2026 16:12:10 GMT
+
+https://movieweb.com/tony-first-look-images-poster/
+
+A24's star-studded Anthony Bourdain biopic has officially been revealed in a new poster and images.
+---------
+
+# Best Scene in Every 'Star Wars' Movie, Ranked
+
+Movie Lists, Star Wars
+
+Mon, 04 May 2026 16:00:18 GMT
+
+https://movieweb.com/star-wars-best-scenes/
+
+Across all 12 theatrically released 'Star Wars' films, every entry has one standout moment. But which film has the best scene in the entire franchise?
+---------
+
+# Comedy Detective Movies That Are Laugh Out Loud Funny
+
+Movie Lists, Mystery, Comedy
+
+Mon, 04 May 2026 16:00:18 GMT
+
+https://movieweb.com/funniest-comedy-detective-movies/
+
+The greatest comedy detective movies ever committed to screen, covering the films that combined sharp writing, memorable characters, and humor.
+---------
+
+# NBC Cancels 'Brilliant Minds’ and 'Stumble'
+
+TV News, Brilliant Minds, Stumble
+
+Mon, 04 May 2026 15:12:33 GMT
+
+https://movieweb.com/brilliant-minds-stumble-canceled-nbc/
+
+NBC has made its first scripted cuts for the 2026-27 season, with 'Brilliant Minds' Season 2 still set to air six final episodes this summer.
+---------
+
 # Naked Gun Creator Is Excited For Netflix's Major New Release, Though Dreads 1 Part
 
 Movies, The Naked Gun: From the Files of Police Squad!
