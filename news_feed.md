@@ -1,3 +1,333 @@
+# New Solo Leveling Series Just Got Its First Major Update From Series Star
+
+Anime, Solo Leveling, Netflix
+
+Mon, 04 May 2026 21:00:21 GMT
+
+https://screenrant.com/solo-leveling-live-action-update-star/
+
+The live-action adaptation of Solo Leveling has been shrouded in mystery, but a recent update from one of its stars has fans buzzing with excitement.
+---------
+
+# Why HBO Max's New #1 Movie Is Taking Over The World ($241 Million Hit Made 3x Its Budget)
+
+New Movies, Masked Recs
+
+Mon, 04 May 2026 21:00:21 GMT
+
+https://screenrant.com/wuthering-heights-hbo-max-streaming-charts-success/
+
+HBO Max has a new movie topping its streaming charts worldwide in the form of a recent star-studded hit remake that's continuing to find success.
+---------
+
+# Prime Video's 2-Part Fantasy Universe Succeeds In Its Hardest Task
+
+Streaming TV, Masked Recs, Dungeons & Dragons, The Mighty Nein, The Legend of Vox Machina, Amazon Prime Video
+
+Mon, 04 May 2026 21:00:21 GMT
+
+https://screenrant.com/legend-of-vox-machina-amazon-succeeds-dungeons-dragons-adaptations/
+
+After decades of failed attempts, two animated shows on Prime Video have captured the essence of what makes playing tabletop roleplaying great.
+---------
+
+# Animal Crossing All-Star Collection Officially Announced
+
+Gaming, Animal Crossing
+
+Mon, 04 May 2026 21:00:21 GMT
+
+https://screenrant.com/animal-crossing-all-star-collection-official-line/
+
+Animal Crossing is celebrating its 25th anniversary and a new collection has been officially unveiled, offering a chance to snag all sorts of merch.
+---------
+
+# Seinfeld's OJ Simpson Trial Parodies: A Cultural Capsule
+
+Classic TV, Seinfeld
+
+Mon, 04 May 2026 20:45:19 GMT
+
+https://screenrant.com/seinfeld-oj-simpson-trial-connections-explained/
+
+As a cultural capsule of the '90s, Seinfeld naturally contained plenty of references to the OJ Simpson trial (and may have even predicted it).
+---------
+
+# Adventure Time's Original Cast Returns For New 4-Part Series This Summer
+
+Comics, Adventure Time
+
+Mon, 04 May 2026 20:43:29 GMT
+
+https://screenrant.com/new-adventure-time-quadruple-series-original-characters-return/
+
+Four of the most iconic characters of the original Adventure Time cast are returning in a brand-new four-part series that arrives this summer.
+---------
+
+# Adam Scott Details Challenges Of Playing An Role In Hokum
+
+Movies, Horror, Hokum, Adam Scott
+
+Mon, 04 May 2026 20:40:38 GMT
+
+https://screenrant.com/hokum-movie-ohm-irredeemable-better-adam-scott-damian-mccarthy/
+
+In the folk horror film Hokum, Adam Scott takes on an 'irredeemable' protagonist, and director Damian McCarthy and the actor discuss the character's challenges and the movie's inspiration.
+---------
+
+# Blake Lively & Justin Baldoni Settle It Ends With Us Lawsuit 18 Months After Bitter Feud Began
+
+Movies, Blake Lively, Justin Baldoni
+
+Mon, 04 May 2026 20:40:25 GMT
+
+https://screenrant.com/blake-lively-justin-baldoni-lawsuit-settlement-end/
+
+After 18 millions of a bitter legal conflict between Blake Lively and Justin Baldoni, the It Ends With Us stars have reached a settlement.
+---------
+
+# Every Lightsaber Color In Star Wars, Ranked By Power Level
+
+Movies, Star Wars
+
+Mon, 04 May 2026 20:30:20 GMT
+
+https://screenrant.com/star-wars-lightsaber-color-ranked-power-level/
+
+The lightsaber is one of the most iconic weapons in all of film and television, and here's how each color ranks in terms of power.
+---------
+
+# How Far Far West Is Reinventing The Extraction Genre
+
+Gaming
+
+Mon, 04 May 2026 20:30:20 GMT
+
+https://screenrant.com/far-far-west-developer-interview/
+
+In just over a week Evil Raptor's Far Far West has exploded on Steam, and we talked to the team behind it about what makes it tick.
+---------
+
+# Batman’s Most Forgotten Robin Gets a Stunning New Redesign Fans Must See
+
+Comics, Batman, Robin, Absolute Batman
+
+Mon, 04 May 2026 21:00:13 GMT
+
+https://www.cbr.com/absolute-batman-robin-stephanie-brown-redesign/
+
+This underrated Batman ally finally receives their redemption moment.
+---------
+
+# The Best Movies About Fashion To Watch After 'The Devil Wears Prada 2'
+
+Movies, The Devil Wears Prada 2
+
+Mon, 04 May 2026 21:00:13 GMT
+
+https://www.cbr.com/best-movies-about-fashion-the-devil-wears-prada-2/
+
+The Devil Wears Prada 2 might be the fashion film of the year, but it isn't the only flick that explores this complex industry.
+---------
+
+# 10 Greatest Disney Animated Movies of the Last 15 Years, Ranked
+
+Movies, Disney, Animation
+
+Mon, 04 May 2026 21:00:13 GMT
+
+https://www.cbr.com/best-disney-animated-movies-after-2010-list-ranked/
+
+From Moana to Zootopia, these are the best animated movies Disney has released after 2010.
+---------
+
+# Star Wars: Carrie Fisher's Daughter Melts Hearts With May the 4th Post
+
+Movies, Star Wars, Star Wars: Episode IV - A New Hope, Carrie Fisher
+
+Mon, 04 May 2026 20:58:24 GMT
+
+https://www.cbr.com/star-wars-carrie-fisher-remembered-billie-lourd/
+
+Carrie Fisher is missed on the annual day of celebration for Star Wars fans.
+---------
+
+# Avengers: Doomsday Director Talks Spoilers
+
+Movies, Avengers: Doomsday, Avengers, Marvel Cinematic Universe
+
+Mon, 04 May 2026 20:52:12 GMT
+
+https://www.cbr.com/avengers-doomsday-spoilers-joe-russo/
+
+Joe Russo had some surprising things to say about spoilers for Marvel's upcoming Avengers: Doomsday movie.
+---------
+
+# It Ends With Settlement: Blake Lively and Justin Baldoni Officially Settle Long-Running Legal Drama
+
+Movies, It Ends With Us
+
+Mon, 04 May 2026 20:39:25 GMT
+
+https://www.cbr.com/blake-lively-justin-baldoni-it-ends-with-us-settlement/
+
+Two weeks before trial, Blake Lively no longer has to face a jury.
+---------
+
+# Dragon Ball Fans Just Got 25 More Episodes of a 100-Episode Anime on Netflix
+
+Anime, Dragon Quest: The Adventure of Dai, Netflix
+
+Mon, 04 May 2026 20:32:13 GMT
+
+https://www.cbr.com/dragon-quest-netflix-new-streaming-release/
+
+This fantasy anime shares a strong bond with the Dragon Ball franchise and its fans, thanks to late creator Akira Toriyama.
+---------
+
+# 10 Best Sitcoms With Plot Twists Like The Good Place
+
+TV, The Good Place, Sitcoms, Schitt's Creek, Happy Endings
+
+Mon, 04 May 2026 20:30:13 GMT
+
+https://www.cbr.com/sitcoms-with-plot-twists-like-the-good-place-list/
+
+Fans of The Good Place's inventive storytelling will enjoy these sitcoms, which feature plot twists, emotional depth and genre-defying narratives.
+---------
+
+# 10 Best Masterpiece Movies Celebrating Major Anniversaries in 2026
+
+Movies, Taxi Driver, The Silence of the Lambs
+
+Mon, 04 May 2026 20:30:13 GMT
+
+https://www.cbr.com/movies-with-important-anniversaries-2026/
+
+Now is the time to watch these masterpiece movies that are celebrating huge milestone anniversaries this year.
+---------
+
+# 10 Sci-Fi Anime to Watch If You Miss Dandadan
+
+Anime, Dandadan, Dr. Stone, Science Fiction
+
+Mon, 04 May 2026 20:15:14 GMT
+
+https://www.cbr.com/best-sci-fi-anime-like-dandadan-list/
+
+Some of the best modern sci-fi anime are nearly as good as Dandadan is.
+---------
+
+# Lord of the Rings Director’s New Fantasy Adaptation Earns 10% of Its Budget in Disastrous Box Office Debut
+
+Movie News, Animal Farm, Seth Rogen, Andy Serkis, The Lord of the Rings: The Hunt for Gollum
+
+Mon, 04 May 2026 21:00:14 GMT
+
+https://collider.com/lord-of-the-rings-director-andy-serkis-animal-farm-movie-box-office-3-million/
+
+The director of the upcoming Lord of the Rings live-action movie, Andy Serkis, has a new film out, and it isn't doing very well. Find out more.
+---------
+
+# 3 Stellar Netflix Shows to Watch This Week
+
+TV, Netflix, Lord of the Flies, Scandal, Kim's Convenience
+
+Mon, 04 May 2026 20:48:13 GMT
+
+https://collider.com/netflix-shows-binge-may-4/
+
+Lord of the Flies, Scandal, and Kim's Convenience make up our list of the best Netflix shows to binge-watch the week of May 4, 2026.
+---------
+
+# The 10 Greatest Star Wars Video Games of All Time, Ranked
+
+Movie, Star Wars, Video Game, Star Wars: Knights of the Old Republic, Star Wars Jedi: Fallen Order
+
+Mon, 04 May 2026 20:48:13 GMT
+
+https://collider.com/best-star-wars-video-games-all-time-ranked/
+
+Star Wars has experienced considerable success in the video game space, with titles like Star Wars Jedi: Fallen Order ranking among the all-time best.
+---------
+
+# 'The Last of Us' Season 2 Star Officially Lands a Surprising New TV Role
+
+TV News, The Last of Us, The Traitors, Bella Ramsey
+
+Mon, 04 May 2026 20:30:14 GMT
+
+https://collider.com/the-last-of-us-star-bella-ramsey-the-celebrity-traitors-season-2-cast/
+
+The Last of Us star Bella Ramsey is set to appear in the second season of BBC's Celebrity Traitors, a reality competition series filmed in Scotland.
+---------
+
+# This NBC Comedy Series Is So Good, It Inspired One of TV's Most Passionate Fan Campaigns
+
+TV Features, Freaks and Geeks, Seth Rogen, Linda Cardellini, Jason Segel
+
+Mon, 04 May 2026 20:24:14 GMT
+
+https://collider.com/freaks-and-geeks-nbc-comedy-series-cancelled-fan-campaign/
+
+NBC cancelled Freaks and Geeks after one season despite critical acclaim and a passionate fan campaign for the cult classic show.
+---------
+
+# 'Landman' Star Hints at 'Yellowstone' Crossover in Season 3
+
+TV News, Landman, Yellowstone, Taylor Sheridan, Paramount+ with Showtime
+
+Mon, 04 May 2026 20:00:14 GMT
+
+https://collider.com/landman-season-3-yellowstone-dutton-ranch-crossover-paulina-chavez/
+
+Landman star Paulina Chávez has hinted at a possible Yellowstone crossover with Dutton Ranch while speculating about Season 3.
+---------
+
+# Netflix's ‘Lord of the Flies’ Brings the Book That Inspired ‘Lost’ to Life
+
+Features, Lord of the Flies, Netflix, Comparison Recommendation
+
+Mon, 04 May 2026 21:00:19 GMT
+
+https://movieweb.com/lord-of-the-flies-netflix-lost-inspiration/
+
+'Lord of the Flies' is a new Netflix TV adaptation of the novel by William Golding and premiered on May 4, 2026.
+---------
+
+# Rotten Tomatoes Brings Back Average of Rated Reviews Feature
+
+Movie News, Rotten Tomatoes
+
+Mon, 04 May 2026 20:56:14 GMT
+
+https://movieweb.com/rotten-tomatoes-average-rating-feature-return/
+
+The revived feature offers a more nuanced look at how a score was calculated.
+---------
+
+# Nielsen Data for 'Star Wars' Reveals Big New Disney+ Streaming Trends for the Franchise
+
+Movie News, Star Wars
+
+Mon, 04 May 2026 20:54:15 GMT
+
+https://movieweb.com/star-wars-nielsen-data-2025-most-popular/
+
+Bolstered by 'Andor' Season 2 and 'Revenge of the Sith' 25th anniversary, 'Star Wars' generated 550 million hours of watch time in 2025 on Disney+.
+---------
+
+# Netflix’s First Series ‘Lilyhammer’ Is a Forgotten Secret ‘Sopranos’ Sequel
+
+Features, Lilyhammer, The Sopranos, Comparison Recommendation
+
+Mon, 04 May 2026 20:00:19 GMT
+
+https://movieweb.com/lilyhammer-netflix-underrated/
+
+One year before 'House of Cards' legitimized Netflix as a streamer, Steven Van Zandt starred in 'Lilyhammer.'
+---------
+
 # After Years Of Controversy, Jujutsu Kaisen's Studio Is Changing The Anime Industry With One Revolutionary Step
 
 Anime, Jujutsu Kaisen, Chainsaw Man
