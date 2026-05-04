@@ -1,3 +1,355 @@
+# 37 Years Ago, Hayao Miyazaki Proved Why He's Anime's Greatest Director With One Devastating Twist
+
+Anime, Hayao Miyazaki, Studio Ghibli
+
+Mon, 04 May 2026 02:00:31 GMT
+
+https://screenrant.com/studio-ghibli-hayao-miyazaki-kikis-delivery-service-jiji-twist/
+
+Explore how Hayao Miyazaki's adaptation of Kiki's Delivery Service from novel to film introduced a bittersweet twist
+---------
+
+# 2025’s Best Soulslike Is Free For PS Plus Subscribers This Month
+
+Gaming, PlayStation Plus, Wuchang: Fallen Feathers, Triple-A Games, PC
+
+Mon, 04 May 2026 02:00:31 GMT
+
+https://screenrant.com/playstation-plus-wuchang-fallen-feathers-free-soulslike/
+
+If you've been looking for a true rival to the Dark Souls series, this free PlayStation Plus addition taps into many of the same strengths.
+---------
+
+# Netflix's 4-Part Crime Series Is So Good, It Survived Cancellation Twice
+
+Streaming TV, Masked Recs
+
+Mon, 04 May 2026 01:46:20 GMT
+
+https://screenrant.com/the-killing-good-survive-cancellation-twice/
+
+In the age of streaming, it's all too common for promising series to be prematurely canceled— but this crime drama defied the odds more than once.
+---------
+
+# Disney+'s Returning Superhero Show Makes Avengers: Doomsday Even Better
+
+Superheroes, X-Men '97, Avengers: Doomsday
+
+Mon, 04 May 2026 01:31:00 GMT
+
+https://screenrant.com/x-men-97-season-2-disney-plus-mutants-avengers-doomsday/
+
+Avengers: Doomsday is already one of 2026’s most anticipated films, but a Disney+ project releasing in the summer makes it even more exciting.
+---------
+
+# 10 Brilliant Final Battles in Anime That Completely Lived Up to The Hype
+
+Anime
+
+Mon, 04 May 2026 01:31:00 GMT
+
+https://screenrant.com/near-perfect-anime-final-battles/
+
+These high-profile confrontations were brewing for a while, and upon arrival, they did not disappoint.
+---------
+
+# 10 Near-Perfect Character Designs That DC Somehow Made Even Better
+
+DC Comics
+
+Mon, 04 May 2026 01:16:08 GMT
+
+https://screenrant.com/dc-best-character-designs-improved-costumes/
+
+Some of DC Comics' best-ever hero and villain designs only achieved legendary status after a few subtle but genius tweaks and improvements.
+---------
+
+# Resident Evil Is Going To Be the Greatest Video Game Movie Ever For One Simple Reason
+
+Movies, Resident Evil
+
+Mon, 04 May 2026 01:00:19 GMT
+
+https://screenrant.com/resident-evil-zach-cregger-greatest-video-game-movie-ever/
+
+Zach Cregger's first Resident Evil movie trailer harbors a lot of love for the games it is inspired by, and fans might have missed those details.
+---------
+
+# Netflix’s 2-Part Sports Series With Strong Rotten Tomatoes Score Keeps Getting Better And Better
+
+Streaming TV, Masked Recs
+
+Mon, 04 May 2026 01:00:19 GMT
+
+https://screenrant.com/running-point-netflix-getting-better-season-2/
+
+The latest installment of Netflix’s 2-part sports comedy has once again demonstrated why the series is one of the streamer’s best with its RT score.
+---------
+
+# All 5 DC Movies That Have Won Oscars
+
+Classic Movies, Explainer, DC
+
+Mon, 04 May 2026 01:00:19 GMT
+
+https://screenrant.com/dc-movies-won-oscars-all/
+
+DC Comics movies have enjoyed lots of Oscar success and notice, but only five of the films have actually won Oscars at the Academy Awards.
+---------
+
+# Stardew Valley Meets WALL-E In Adorable New RPG You Can Try Free Now
+
+Gaming, Steam, Indie Games
+
+Mon, 04 May 2026 01:00:19 GMT
+
+https://screenrant.com/stardew-valley-meets-wall-e-steam-free-demo/
+
+There are ample farming sims out there to peruse on Steam, but this one manages to marry a charming concept with a cute art style.
+---------
+
+# Avatar: The Last Airbender Finally Returns to the Kyoshi Warriors in New First Look
+
+Anime, Avatar: The Last Airbender, Dark Horse Comics
+
+Mon, 04 May 2026 02:00:23 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-kyoshi-warriors-new-first-look/
+
+Some of the most beloved characters from the original Avatar: The Last Airbender animated series are returning with one of their very own.
+---------
+
+# How Prime Video Changes Spider-Noir's Origin From the Marvel Comics
+
+TV, Spider-Noir, Prime Video, Spider-Man
+
+Mon, 04 May 2026 02:00:23 GMT
+
+https://www.cbr.com/prime-video-spider-noir-ben-reilly-origin-change/
+
+Prime Video's Spider-Noir series marks a drastic shift from Marvel's original, violent Spider-Man Noir story, embracing a new origin.
+---------
+
+# The Most Anticipated Upcoming Anime of Summer 2026
+
+Anime, Isekai, shoujo, Shonen
+
+Mon, 04 May 2026 01:46:12 GMT
+
+https://www.cbr.com/most-anticipated-anime-summer-2026-list/
+
+Just like the weather, anime looks to bring the heat in the summer season.
+---------
+
+# National Treasure is Better Than The Mummy
+
+Movies, The Mummy, National Treasure
+
+Mon, 04 May 2026 01:30:43 GMT
+
+https://www.cbr.com/national-treasure-better-than-the-mummy/
+
+As The Mummy 4 is set to premiere, the streaming success of a beloved adventure franchise should serve as a stark reminder to movie execs.
+---------
+
+# 10 Best Characters in Re:Zero in 2026, Ranked
+
+Anime, re:Zero, Re:Zero − Starting Life in Another World
+
+Mon, 04 May 2026 01:25:18 GMT
+
+https://www.cbr.com/best-rezero-characters-2026-ranked-list/
+
+The Re:Zero cast is full of strong and intelligent characters, but these ten personalities are among the best and easiest to root for.
+---------
+
+# Fallout Officially Gets New Release, Coming July 2026
+
+Games, Fallout
+
+Mon, 04 May 2026 01:20:39 GMT
+
+https://www.cbr.com/fallout-new-release-nuka-girl-july-2026/
+
+Fans are just months away from being able to get their hands on one of the most iconic characters from the entire Fallout franchise.
+---------
+
+# 6 Creepy Twilight Zone Episodes Nobody Remembers
+
+TV, The Twilight Zone, Sci-Fi, Horror
+
+Mon, 04 May 2026 01:00:12 GMT
+
+https://www.cbr.com/creepy-forgotten-twilight-zone-episodes-list/
+
+The following underappreciated The Twilight Zone episodes may not top every list, but they deliver some of the series most unsettling moments
+---------
+
+# 10 Best Otome Games On Nintendo Switch
+
+Games, Nintendo Switch
+
+Mon, 04 May 2026 00:30:12 GMT
+
+https://www.cbr.com/best-otome-games-nintendo-switch/
+
+The Nintendo Switch is an amazing console for otome games, with must-play romance games like Cupid Parasite and Collar X Malice.
+---------
+
+# It's Officially The End of An Era For Star Wars Movies
+
+Movies, Star Wars, The Mandalorian, The Mandalorian and Grogu
+
+Mon, 04 May 2026 00:30:12 GMT
+
+https://www.cbr.com/mandalorian-and-grogu-end-of-an-era-star-wars-movies/
+
+When The Mandalorian and Grogu debuts in theaters, it will represent a drastic shift in how Star Wars creates its most important heroes in its stories
+---------
+
+# My Hero Academia Reveals New Anime Short After Final Special Episode
+
+Anime, My Hero Academia
+
+Mon, 04 May 2026 00:00:13 GMT
+
+https://www.cbr.com/my-hero-academia-i-am-a-hero-too-anime-reveal-10th-anniversary/
+
+My Hero Academia's final farewell delivered a surprise anime reveal no one saw coming.
+---------
+
+# Tommy Lee Jones' Hidden Gem Neo-Western Crime Thriller Is Everything 'Yellowstone' Isn't
+
+Movie Features, The Three Burials of Melquiades Estrada, Tommy Lee Jones, Westerns, Yellowstone
+
+Mon, 04 May 2026 01:24:58 GMT
+
+https://collider.com/tommy-lee-jones-western-the-three-burials-of-melquiades-estrada/
+
+The Three Burials of Melquiades Estrada, starring and directed by Tommy Lee Jones, is an underrated and forgotten Western.
+---------
+
+# 10 Forgotten Fantasy Shows That Nobody Remembers Today
+
+TV, Fantasy, Wonderfalls, Legend of the Seeker, The Secret Circle
+
+Mon, 04 May 2026 01:22:13 GMT
+
+https://collider.com/forgotten-fantasy-tv-shows/
+
+Discover fantasy TV shows that were once captivating but have since slipped into obscurity, from Legend of the Seeker to The Secret Circle.
+---------
+
+# Nicolas Cage’s Forgotten 5% RT Western Has Found New Life on Streaming
+
+Movie News, Nicolas Cage, Gunslingers, HBO Max, Stephen Dorff
+
+Mon, 04 May 2026 00:45:13 GMT
+
+https://collider.com/nicolas-cage-forgotten-western-gunslingers-streaming-success-hbo-max-may-2026/
+
+Nicolas Cage's critically panned 2025 Western, Gunslingers, has re-emerged as a surprise streaming success. Here's how to watch it.
+---------
+
+# Tom Hardy’s 109-Minute Sci-Fi Trilogy Capper Is Obliterating the Competition on Streaming
+
+Movie News, Tom Hardy, Venom: The Last Dance, Prime Video
+
+Mon, 04 May 2026 00:30:13 GMT
+
+https://collider.com/tom-hardy-sci-fi-trilogy-capper-venom-the-last-dance-streaming-success-prime-video-may-2026/
+
+Tom Hardy's sci-fi superhero blockbuster Venom: The Last Dance is once again soaring on the global streaming charts. Here's how to watch it.
+---------
+
+# Netflix's 6-Part Fantasy Thriller Series Is So Good, It Sparked a Full Fan Revolt
+
+TV Features, Lucifer, Tom Ellis, Fox, Netflix
+
+Mon, 04 May 2026 00:21:14 GMT
+
+https://collider.com/netflix-lucifer-fantasy-procedural-fan-campaign/
+
+Lucifer becomes a crime consultant in Los Angeles, navigating eternal forces and forming unlikely alliances in this urban fantasy series.
+---------
+
+# Henry Cavill's 14% RT Crime Thriller Is the Streaming Hit No One Saw Coming
+
+Movie News, Henry Cavill, Night Hunter, Action, Thriller
+
+Mon, 04 May 2026 00:15:14 GMT
+
+https://collider.com/henry-cavill-detective-crime-thriller-night-hunter-streaming-success-paramount-plus-may-2026/
+
+Henry Cavill’s 2019 detective crime thriller Night Hunter is finding new life on streaming platforms. Find out more about the mystery here.
+---------
+
+# The Best Sci-Fi Shows From Every Year of the 1990s
+
+TV, Sci-Fi, 1990s, Batman: The Animated Series, The X-Files
+
+Mon, 04 May 2026 00:03:14 GMT
+
+https://collider.com/best-90s-sci-fi-shows-every-year/
+
+Explore the best science fiction television shows from each year of the 1990s, including The Flash, Batman: The Animated Series, and The X-Files.
+---------
+
+# Margot Robbie’s Addictive Crime Thriller Is a Must-Watch on Netflix Ahead of Her ‘Ocean’s Eleven’ Prequel
+
+Movie News, Margot Robbie, Focus, Will Smith, Netflix
+
+Mon, 04 May 2026 00:00:14 GMT
+
+https://collider.com/margot-robbie-will-smith-oceans-eleven-replacement-heist-thriller-focus-streaming-success-netflix-may-2026/
+
+Margot Robbie and Will Smith’s 2015 crime thriller Focus has become a streaming hit more than a decade later. Here's everything you should know.
+---------
+
+# Robert De Niro's 'Apocalypse Now' Meets 'The Raid' War Thriller Is a Shock Streaming Sensation
+
+Movie News, Tin Soldier, Robert De Niro, War, Prime Video
+
+Sun, 03 May 2026 23:45:13 GMT
+
+https://collider.com/robert-de-niro-war-thriller-tin-soldier-streaming-success-prime-video-may-2026-apocalypse-now-the-raid/
+
+Apocalypse Now meets The Raid in Robert De Niro’s war thriller Tin Soldier, which has become a surprise streaming success on Prime Video.
+---------
+
+# 9 Movies That Are Hard to Enjoy Due to Off-Screen Controversies
+
+Movie Lists, The Shining
+
+Mon, 04 May 2026 01:00:17 GMT
+
+https://movieweb.com/movies-off-screen-controversies/
+
+From fighting behind the scenes to shocking tragedies, movies like 'The Shining' are harder to enjoy when you know the truth.
+---------
+
+# Margot Robbie's R-Rated Drama 'Wuthering Heights' Is a Late Night Hit on Streaming
+
+Movie News, Wuthering Heights, HBO Max, Hot on Streaming, Margot Robbie
+
+Mon, 04 May 2026 00:38:52 GMT
+
+https://movieweb.com/wuthering-heights-margot-robbie-streaming-success-hbo-may-2026/
+
+Margot Robbie's divisive 'Wuthering Heights' R-Rated adaptation is now streaming on HBO Max and it's already a worldwide success.
+---------
+
+# A New Theory About Godzilla's Frenemy Rodan Could Change the Monsterverse
+
+Features, Monarch: Legacy of Monsters, Monsterverse
+
+Mon, 04 May 2026 00:15:18 GMT
+
+https://movieweb.com/second-rodan-return-monsterverse-godzilla-theory/
+
+The Monsterverse tie-in show 'Monarch: Legacy of Monsters' just paved the way for an unexpected return for Rodan, according to a new fan theory.
+---------
+
 # 7 Biggest DC Comics Deaths of the Year, So Far
 
 DC Comics, Batman, Wonder Woman, Deathstroke
