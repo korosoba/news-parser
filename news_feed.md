@@ -1,3 +1,256 @@
+# Steam 9/10 2026 Hit Is Free To Download And Check Out Right Now
+
+Gaming, Steam, Vampire Crawlers: The Turbo Wildcard from Vampire Survivors
+
+Mon, 04 May 2026 04:00:28 GMT
+
+https://screenrant.com/steam-9-10-free-download-vampire-crawlers-demo/
+
+You can definitely count on this free download not to suck the life out of you. Head on over to Steam and grab it now.
+---------
+
+# Project Hail Mary Box Office Shatters Ridley Scott Movie's Worldwide Record After 11 Years
+
+Movies, Project Hail Mary, Box Office, Amazon
+
+Mon, 04 May 2026 03:59:50 GMT
+
+https://screenrant.com/project-hail-mary-global-box-office-record-andy-weir-adaptation/
+
+After two months in theaters, Project Hail Mary's box office continues to soar by breaking a major global record once held by Ridley Scott's movie.
+---------
+
+# Jujutsu Kaisen Is Great, But Only One Modern Shonen Anime Is The Genre's Biggest Evolution Since Dragon Ball
+
+Anime, Dandadan, Dragon Ball
+
+Mon, 04 May 2026 03:57:25 GMT
+
+https://screenrant.com/dandadan-biggest-shonen-evolution-since-dragon-ball/
+
+Dragon Ball made waves that continue to be felt in the present for battle shonen fans, but this new series may leave readers similarly awestruck.
+---------
+
+# Blumhouse's The Mummy Officially Extends The Studio's Box Office Streak With Crucial Global Milestone
+
+Movies, Lee Cronin's The Mummy, Box Office Milestone, Blumhouse, New Line Cinema, Horror
+
+Mon, 04 May 2026 03:53:56 GMT
+
+https://screenrant.com/lee-cronins-the-mummy-80-million-global-box-office-blumhouse-streak/
+
+Blumhouse's new The Mummy movie hits a global box office milestone, which officially extends the studio's rebound streak from last year.
+---------
+
+# Charlie Hunnam's Underrated SOA Follow-Up Is The Perfect Binge Before His Upcoming Crime Drama
+
+Streaming TV, Sons of Anarchy, Shantaram, Recommendation
+
+Mon, 04 May 2026 03:29:23 GMT
+
+https://screenrant.com/charlie-hunnam-criminal-upcoming-show-shantaram-recommendation/
+
+Before Charlie Hunnam's upcoming crime drama premieres on Prime, viewers should check out his underrated post-Sons of Anarchy series on Apple TV+.
+---------
+
+# Invincible Creator Says He Hates This Spider-Man Sequel Calling It "S***"
+
+Movies, The Amazing Spider-Man 2, Spider-Man
+
+Mon, 04 May 2026 03:25:22 GMT
+
+https://screenrant.com/invincible-robert-kirkman-hates-amazing-spider-man-2/
+
+The creator of Invincible, Robert Kirkman, revealed which Spider-Man sequel was his least favorite despite his love for the franchise.
+---------
+
+# One My Hero Academia Character Suffered A Major Glow-Down In The Series Finale
+
+Anime, My Hero Academia
+
+Mon, 04 May 2026 03:01:19 GMT
+
+https://screenrant.com/my-hero-academia-anime-todoroki-redesign-controversy/
+
+Fans are calling out Shoto's timeskip redesign in the My Hero Academia finale, as he falls victim to the timeskip curse.
+---------
+
+# Batman: Arkham Asylum Fans Celebrate Official Batman Game Update
+
+Gaming, Batman, DC, Gotham Knights, LEGO Batman: Legacy of the Dark Knight, Triple-A Games
+
+Mon, 04 May 2026 03:01:19 GMT
+
+https://screenrant.com/lego-batman-legacy-nightwing-arkham-reaction/
+
+A highly anticipated upcoming Batman game is already living up to Arkham fans' expectations, but one feature takes the cake over this DC game.
+---------
+
+# Reacher's Neagley Spinoff Already Has A Clear Advantage With Its Main Character
+
+Streaming TV, Neagley, Reacher, Alan Ritchson
+
+Mon, 04 May 2026 03:00:34 GMT
+
+https://screenrant.com/neagley-spinoff-improves-reacher-character-franchise/
+
+As incredible as Alan Ritchson may seem in Reacher, the Neagley spin-off already seems to have one major advantage with its main titular character.
+---------
+
+# Batman & Wonder Woman’s New Team-Up Finally Redeems Their Flash Movie Cameos
+
+Comics, The Flash, Batman, Wonder Woman, DC Comics
+
+Mon, 04 May 2026 02:51:39 GMT
+
+https://screenrant.com/batman-wonder-woman-new-teamup-redeems-flash-movies-cameos/
+
+Batman and Wonder Woman joined Barry Allen in a team-up at the beginning of 2023's The Flash, but they've now got a much better Lasso of Truth scene.
+---------
+
+# 10 Classic PS3 Games That Are Unplayable Today
+
+Games
+
+Mon, 04 May 2026 03:51:13 GMT
+
+https://www.cbr.com/throwback-ps3-games-aged-badly-list/
+
+Some PS3 games have aged poorly and are borderline unplayable today.
+---------
+
+# 10 Forgotten Naruto Characters Who Deserve More Fan Love
+
+Anime, Naruto, Naruto: Shippuden
+
+Mon, 04 May 2026 03:45:13 GMT
+
+https://www.cbr.com/forgotten-naruto-characters-deserve-more-fan-love/
+
+Naruto has a widely love cast of iconic characters, but many compelling figures have sadly been forgotten.
+---------
+
+# Watson Creator Shares What Would've Happened in Season 3
+
+TV, Watson
+
+Mon, 04 May 2026 03:43:28 GMT
+
+https://www.cbr.com/watson-series-finale-season-3-plans/
+
+Now that Watson is officially over, the show's creator shares where the series would have gone in Season 3.
+---------
+
+# The Pitt Star Snaps at Theatergoers Ruining Shows With References
+
+TV, The Pitt
+
+Mon, 04 May 2026 03:33:33 GMT
+
+https://www.cbr.com/the-pitt-isa-briones-broadway-fans/
+
+The Pitt fans are causing problems at shows featuring one of the stars of the hit HBO Max series.
+---------
+
+# 10 Most Popular Naruto Episodes, Ranked
+
+Anime, Naruto, Shonen
+
+Mon, 04 May 2026 03:30:12 GMT
+
+https://www.cbr.com/most-popular-naruto-episodes-ranked-list/
+
+Naruto has plenty of amazing episodes, but these 10 are the best of them all.
+---------
+
+# 5 Smartest Star Trek Captains, Ranked
+
+TV, Star Trek
+
+Mon, 04 May 2026 03:30:12 GMT
+
+https://www.cbr.com/smartest-star-trek-captains-list/
+
+It takes more than ambition to lead a starship across the galaxy, and Star Trek's greatest leaders have more than smarts to earn the rank of captain.
+---------
+
+# 10 American Video Games That Can Be Called Masterpieces
+
+Games, Video Games, Lists
+
+Mon, 04 May 2026 03:15:13 GMT
+
+https://www.cbr.com/american-video-game-masterpieces-list/
+
+These hidden gems of the American gaming industry have been overlooked for their Japanese and UK counterparts and prove that quality knows no borders.
+---------
+
+# Final Fantasy XIV Gets Limited Edition Collab Ahead of Switch 2 Release
+
+Anime, Final Fantasy, final fantasy xiv, Square Enix
+
+Mon, 04 May 2026 03:01:12 GMT
+
+https://www.cbr.com/final-fantasy-xiv-hyte-y70-case/
+
+Final Fantasy XIV gets a new limited edition release worthy of the Warrior of Light ahead of its Nintendo Switch 2 debut.
+---------
+
+# KPop Demon Hunters is Officially the Greatest American Anime Ever
+
+Anime, KPop Demon Hunters, Avatar: The Last Airbender
+
+Mon, 04 May 2026 02:45:13 GMT
+
+https://www.cbr.com/kpop-demon-hunters-officially-greatest-american-anime-of-all-time/
+
+No American anime has ever been as perfect, or as impactful, as KPop Demon Hunters.
+---------
+
+# Sean Bean's Gritty Gangster Series Is 1 of the Most Popular Shows on AMC+ in America
+
+TV, This City Is Ours
+
+Mon, 04 May 2026 02:34:35 GMT
+
+https://www.cbr.com/sean-bean-this-city-is-ours-amc-streaming-success-may-2026/
+
+The hit crime drama has already been renewed for a second season.
+---------
+
+# HBO’s Forgotten 3-Part Detective Series Has Quietly Become One of TV’s Funniest Crime Shows
+
+TV Features, Bored to Death, Jason Schwartzman, Zach Galifianakis, Ted Danson
+
+Mon, 04 May 2026 04:00:16 GMT
+
+https://collider.com/bored-to-death-hbo-funniest-detective-crime-series/
+
+HBO's Bored to Death, which skillfully blends humor and mystery, deserves to be revisited as one of TV's funniest crime shows.
+---------
+
+# This Trippy 3-Part Fantasy Epic on Prime Video Is Still One of the Best Ever Made
+
+TV Features, Britannia, The Wheel of Time, Prime Video, Kelly Reilly
+
+Mon, 04 May 2026 03:32:13 GMT
+
+https://collider.com/best-underrated-fantasy-series-ever-made-britannia-3-seasons/
+
+Prime Video's Britannia is the perfect fantasy show for The Wheel of Time fans, with a 92% Rotten Tomatoes score and a stellar cast.
+---------
+
+# With 92% on Rotten Tomatoes, This Free Survival Thriller Will Leave You Chilled to the Bone
+
+Movie Features, Cold Meat, Allen Leech, YouTube, Thriller
+
+Mon, 04 May 2026 03:28:12 GMT
+
+https://collider.com/cold-meat-survival-thriller-free-movie/
+
+Cold Meat is a compelling and claustrophobic thriller that relies heavily on its characters.
+---------
+
 # 37 Years Ago, Hayao Miyazaki Proved Why He's Anime's Greatest Director With One Devastating Twist
 
 Anime, Hayao Miyazaki, Studio Ghibli
