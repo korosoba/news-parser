@@ -1,3 +1,256 @@
+# Nicolas Cage's Next Longlegs Movie Lands The Perfect Release Date
+
+Movies, Longlegs
+
+Mon, 04 May 2026 23:38:49 GMT
+
+https://screenrant.com/nicolas-cage-longlegs-new-movie-release-date/
+
+Nicolas Cage and Osgood Perkins are teaming up for a new Longlegs movie, which has now landed an official and promising theatrical release date.
+---------
+
+# Netflix’s 6-Hour Western Is The Perfect Yellowstone Substitute
+
+Classic TV, Masked Recs
+
+Mon, 04 May 2026 23:30:20 GMT
+
+https://screenrant.com/netflix-western-territory-yellowstone-substitute/
+
+Several TV shows have wanted to have the kind of success that Yellowstone enjoys, but it's this 6-part Netflix series that resembles it the most.
+---------
+
+# It's Time for Darth Nihilus to Return to Star Wars
+
+Comics, Star Wars
+
+Mon, 04 May 2026 23:30:20 GMT
+
+https://screenrant.com/star-wars-darth-nihilus-series-movie-needed/
+
+Star Wars must break away from Darth Vader's shadow if it wants to survive.
+---------
+
+# Devon’s Heartbreaking Decision In Maul - Shadow Lord Finale Explained By Star
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Mon, 04 May 2026 23:25:24 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-finale-devon-dark-side-gideon-adlon-response/
+
+In the season 1 finale of Star Wars: Maul – Shadow Lord, Devon Izara makes a heartbreaking decision, which actor Gideon Adlon now explains.
+---------
+
+# 25 Years Later, The Biggest Dark Side “What If” Finally Becomes Official Star Wars Canon
+
+Star Wars, Star Wars: Maul - Shadow Lord, Anakin Skywalker/Darth Vader
+
+Mon, 04 May 2026 23:16:49 GMT
+
+https://screenrant.com/25-years-later-darth-maul-vs-darth-vader-becomes-star-wars-canon-shadow-lord/
+
+25 years later, a major Sith showdown relegated to being just a fun "What If?" becomes official Star Wars canon (and it's better than I ever dreamed).
+---------
+
+# Zelda: The Wind Waker Is Quietly Making Its Long-Awaited Return
+
+Gaming, The Legend of Zelda
+
+Mon, 04 May 2026 23:00:21 GMT
+
+https://screenrant.com/zelda-wind-waker-pc-decomp-progress/
+
+As The Legend of Zelda turns 40, unofficial fan projects like the decompilation of The Wind Waker are keeping the game alive.
+---------
+
+# Star Wars Just Made Ahsoka An Even More Powerful Jedi
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Mon, 04 May 2026 23:00:21 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-inqusitor-ahsoka-powerful-jedi/
+
+Ahsoka Tano has always been known as a strong Star Wars character, but a recent project has solidified her as one of the most powerful Jedi ever.
+---------
+
+# A Generation-Defining Isekai Epic Officially Has Modern Anime's Best Love-Triangle
+
+Anime, That Time I Got Reincarnated as a Slime, That Time I Got Reincarnated as a Slime the Movie: Tears of the Azure Sea, Romance
+
+Mon, 04 May 2026 23:00:21 GMT
+
+https://screenrant.com/reincarnated-slime-tears-of-the-azure-sea-anime-best-love-triangle/
+
+Unlike many isekai series, which are full of harems and shallow romances, this isekai and its latest film has the best love triangle in modern anime.
+---------
+
+# Early 2000s Comedy Movies Are Back In A Big Way At The Summer 2026 Box Office
+
+Movies, Scary Movie, Jackass: Best and Last
+
+Mon, 04 May 2026 23:00:21 GMT
+
+https://screenrant.com/summer-movies-2026-scary-movie-jackass-5-box-office/
+
+Two comedy franchises from the early 2000s are returning to theaters in summer 2026 with new installments that have strong box office potential.
+---------
+
+# Liam Neeson's Thriller With Near-Perfect Rotten Tomatoes Score Based On An 80s TV Show Has One Of His Best Casts
+
+Movies, Masked Recs
+
+Mon, 04 May 2026 22:45:21 GMT
+
+https://screenrant.com/liam-neeson-widows-thriller-movie-cast-best/
+
+Liam Neeson and a star-studded cast lead a thriller movie that is based on a 1980s TV show, and the ensemble is one of the best in the actor's career.
+---------
+
+# Crunchyroll Shares Unfortunate Anime Release Update for Daemons of the Shadow Realm
+
+Anime, Crunchyroll, Daemons of the Shadow Realm
+
+Mon, 04 May 2026 23:30:12 GMT
+
+https://www.cbr.com/crunchyroll-daemons-of-the-shadow-realm-anime-release-date-delay/
+
+After only four episodes, Crunchyroll confirms a delay for BONES' long-awaited Fullmetal Alchemist successor, Daemons of the Shadow Realm.
+---------
+
+# Cthulhu Officially Returns to Dungeons & Dragons With New Miniature
+
+Games, Dungeons and Dragons
+
+Mon, 04 May 2026 23:20:14 GMT
+
+https://www.cbr.com/new-cthulhu-dnd-miniature-preorders-may-2026/
+
+Cthulhu is making its return to Dungeons & Dragons in Ravenloft: The Horrors Within, and players can add it to games via a massive new mini.
+---------
+
+# All 5 Seasons of Gene Roddenberry's Andromeda Are Streaming on YouTube
+
+TV, Andromeda, YouTube
+
+Mon, 04 May 2026 23:01:14 GMT
+
+https://www.cbr.com/andromeda-five-seasons-streaming-youtube-may-2026/
+
+Another sci-fi series based on a story by Star Trek creator Gene Roddenberry can be streamed for free.
+---------
+
+# Netflix Officially Reveals First Look at John Cena Movie Little Brother
+
+Movies, John Cena, Netflix
+
+Mon, 04 May 2026 22:46:59 GMT
+
+https://www.cbr.com/john-cena-little-brother-first-look/
+
+John Cena returns to comedy with the first look at his upcoming Netflix movie revealed.
+---------
+
+# Kevin Costner's Delayed 'Yellowstone' Replacement Officially Gets Devastating Update 2 Years Later
+
+Movie News, Kevin Costner, Horizon: An American Saga - Chapter 2, Sam Worthington, Yellowstone
+
+Mon, 04 May 2026 23:31:14 GMT
+
+https://collider.com/kevin-costner-horizon-chapter-2-american-saga-western-theatrical-release-update/
+
+Kevin Costner's Western series Horizon: An American Saga faces an uncertain future due to pending lawsuits, with Chapter 2's release in limbo.
+---------
+
+# One of the Most Controversial Best Picture Winners Ever Is Officially a Streaming Hit
+
+Movie News, Green Book, Mahershala Ali, Netflix, Viggo Mortensen
+
+Mon, 04 May 2026 23:18:23 GMT
+
+https://collider.com/controversial-best-picture-winner-green-book-streaming-success-may-2026/
+
+One of the most controversial Best Picture winners ever, starring Mahershala Ali, is officially thriving on streaming 8 years later.
+---------
+
+# Sean Bean’s Gritty Gangster Series Is One of the Most Popular Shows in America
+
+TV News, Sean Bean, This City Is Ours, Drama, Crime
+
+Mon, 04 May 2026 23:00:14 GMT
+
+https://collider.com/sean-bean-gritty-gangster-series-this-city-is-ours-a-crime-family-saga-streaming-success-amc-may-2026/
+
+Sean Bean’s hit series surges on AMC+, holding top chart positions with strong ratings, gripping storytelling, and rising global momentum.
+---------
+
+# Prime Video's 3-Part Action Thriller Is Good Enough To Be Its Best-Kept Secret
+
+TV Features, Hanna, Esme Creed-Miles, Mireille Enos, Joel Kinnaman
+
+Mon, 04 May 2026 22:53:12 GMT
+
+https://collider.com/hanna-prime-video-action-thriller-best/
+
+Prime Video's Hanna is a captivating coming-of-age story that mixes action and everyday life for a new perspective on the genre.
+---------
+
+# Hulu’s 10-Part ‘Handmaid’s Tale’ Sequel Has a Major Problem That Goes Beyond 1 Episode
+
+TV Features, The Testaments, The Handmaid's Tale, Ann Dowd, Hulu
+
+Mon, 04 May 2026 22:42:13 GMT
+
+https://collider.com/the-testaments-handmaids-tale-sequel-problem-aunt-lydia-backstory-episode/
+
+The Testaments faces a major problem with one character's inconsistent backstory that threatens to derail The Handmaid Tale's spin-off.
+---------
+
+# 3 Praiseworthy Movies to Watch on Prime Video This Week
+
+Movie, Prime Video, Do the Right Thing, Bad Words, Mamma Mia!
+
+Mon, 04 May 2026 22:34:13 GMT
+
+https://collider.com/best-movies-prime-video-may-4/
+
+Do the Right Thing, Mamma Mia!, and Bad Words make up our list of the best movies to watch on Prime Video the week of May 4, 2026.
+---------
+
+# First Photos From Audrey Hepburn Biopic Spark Divisive Ansel Elgort Casting Reactions
+
+Movie News, Audrey Hepburn, Thomasin McKenzie
+
+Mon, 04 May 2026 23:22:23 GMT
+
+https://movieweb.com/audrey-hepburn-biopic-first-look-backlash/
+
+Elgort was accused in 2020 of sexual misconduct.
+---------
+
+# White House Posts President Trump as Mandalorian Image for 'Star Wars' Day
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Donald Trump
+
+Mon, 04 May 2026 22:57:41 GMT
+
+https://movieweb.com/star-wars-day-trump-white-house-mandalorian/
+
+The post was shared in honor of "May the Fourth," just weeks ahead of the theatrical premiere of The Mandalorian and Gorgu.'
+---------
+
+# 'Shogun' Fans Need to Watch HBO Max's Historical Action Series 'Song of the Samurai' on Streaming
+
+Features, Shogun (2024), HBO Max, Hot on Streaming, Action
+
+Mon, 04 May 2026 22:47:16 GMT
+
+https://movieweb.com/hbo-finds-perfect-shogun-replacement-in/
+
+HBO Max's new action series 'Song of the Samurai' could be the new 'Shogun' on streaming in May 2026.
+---------
+
 # 10 TV Shows That Perfectly Combined Live-Action With Animation
 
 Classic TV
