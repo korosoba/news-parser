@@ -1,3 +1,355 @@
+# After Years Of Controversy, Jujutsu Kaisen's Studio Is Changing The Anime Industry With One Revolutionary Step
+
+Anime, Jujutsu Kaisen, Chainsaw Man
+
+Mon, 04 May 2026 19:29:39 GMT
+
+https://screenrant.com/mappa-changing-anime-industry-revolutionary-jujutsu-kaisen/
+
+MAPPA, the studio behind Jujutsu Kaisen, is changing the anime industry by self-funding projects and taking a revolutionary approach to production.
+---------
+
+# 3 Years Later, Prime Video's 6-Part Spy Thriller Series Can Only Get Better When It Returns This Week
+
+TV, Masked Recs
+
+Mon, 04 May 2026 19:28:32 GMT
+
+https://screenrant.com/citadel-season-2-prime-video-thriller-series-better-2026-return/
+
+Prime Video's globe-trotting spy thriller series returns with new episodes this week, and the ambitious show can only get better in season 2.
+---------
+
+# Netflix's New 4-Part Adaptation Of Classic 72-Year-Old Thriller Novel Is Harshly Dividing Audiences & Critics On Rotten Tomatoes
+
+TV, Masked Recs
+
+Mon, 04 May 2026 19:28:06 GMT
+
+https://screenrant.com/lord-of-the-flies-netflix-rotten-tomatoes-audience-critics-divide/
+
+Netflix's new four-part adaptation of a classic 72-year-old thriller novel is harshly dividing critics and audiences on Rotten Tomatoes.
+---------
+
+# Why Widow's Bay Frontloads Its Backstory
+
+Interviews, Widow's Bay, Apple TV, Horror
+
+Mon, 04 May 2026 19:21:00 GMT
+
+https://screenrant.com/widows-bay-apple-tv-backstory-frontloaded-explained-creator-cast/
+
+Widow's Bay creator Katie Dippold and the cast discuss the importance of establishing deep character backstories in the first two episodes to create a relatable and engaging horror-comedy experience on Apple TV+.
+---------
+
+# Forza Horizon 6 Officially The Most Ambitious Entry Yet, Thanks To New Reveal
+
+Gaming, Forza Horizon 6, Forza, Triple-A Games, PC
+
+Mon, 04 May 2026 19:19:27 GMT
+
+https://screenrant.com/forza-horizon-6-radio-station-song-list/
+
+Forza Horizon 6 is right around the corner, and a new reveal from Playground Games confirms that it will be the series' biggest game yet.
+---------
+
+# Why Darth Vader Doesn't Speak In Maul - Shadow Lord (Was He Recast?)
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars, Anakin Skywalker/Darth Vader, James Earl Jones
+
+Mon, 04 May 2026 19:00:21 GMT
+
+https://screenrant.com/maul-shadow-lord-season-1-episode-10-darth-vader-voice-explained/
+
+Explore the reasons behind Darth Vader's silence in Maul - Shadow Lord, including the impact on his character and the future of his iconic voice.
+---------
+
+# One Piece Just Dropped The Ultimate Death Note Tribute, With A Surprising Hero Becoming Light
+
+Anime, One Piece
+
+Mon, 04 May 2026 19:00:21 GMT
+
+https://screenrant.com/one-piece-anime-morgans-death-note-light-writing/
+
+The latest episode of One Piece's Elbaph arc included a clever nod to Death Note and one of its most iconic scenes.
+---------
+
+# Netflix’s 4-Part Thriller Based On A Bestselling Novel Is An Easy One-Night Binge
+
+Streaming TV, Masked Recs
+
+Mon, 04 May 2026 18:48:20 GMT
+
+https://screenrant.com/netflix-lord-of-the-flies-series-watch-now/
+
+Discover Netflix's captivating 4-part adaptation of William Golding's classic novel, Lord of the Flies, perfect for a quick one-night binge right now.
+---------
+
+# Justin Hartley's Tracker Season 4 Officially Confirms Series' Biggest Change Yet
+
+TV, Tracker, Justin Hartley
+
+Mon, 04 May 2026 18:34:47 GMT
+
+https://screenrant.com/tracker-season-4-los-angeles-filming-relocation/
+
+Tracker season 3 is about to wrap up on CBS, but the Justin Hartley-led series is getting ready to undergo a massive production change.
+---------
+
+# Netflix's 4-Part Crime Thriller That Won 4 Emmys Has One Of Its Best Casts
+
+TV, Masked Recs, Netflix
+
+Mon, 04 May 2026 18:33:19 GMT
+
+https://screenrant.com/ozark-netflix-thriller-emmy-wins-best-cast/
+
+One bold move by this Netflix crime drama's creators expanded the show's scope, but it was the ensemble cast that made the risky choice pay off.
+---------
+
+# Crunchyroll Officially Brings Back Attack on Titan on May 18
+
+Anime, Attack on Titan, Attack on Titan: The Last Attack, Crunchyroll
+
+Mon, 04 May 2026 19:40:24 GMT
+
+https://www.cbr.com/crunchyroll-attack-on-titan-the-last-attack-new-release-date-may-18/
+
+Crunchyroll is reviving the most epic chapter of Attack on Titan for a new shot at the box office this month.
+---------
+
+# Hacks Star Names the Most Fun Episode of the Series to Film
+
+CBR Exclusives, Hacks
+
+Mon, 04 May 2026 19:27:45 GMT
+
+https://www.cbr.com/hacks-star-hannah-einbinder-favorite-episode-revealed/
+
+Hacks has plenty of unforgettable moments, but these episodes stand out above the rest.
+---------
+
+# The 20 Best Romance Action Anime, Ranked
+
+Anime, Romance, Yona of the Dawn, Is It Wrong To Try To Pick Up Girls In A Dungeon?, Sailor Moon, Inuyasha, Angel Beats!, Code Geass: Lelouch of the Rebellion, Future Diary
+
+Mon, 04 May 2026 19:16:13 GMT
+
+https://www.cbr.com/greatest-romance-action-anime-ranked/
+
+There's nothing more exciting than action anime with romance like Inuyasha, Code Geas, and Yona of the Dawn.
+---------
+
+# Harry Potter's New Draco Malfoy Lox Pratt Reveals How the HBO Reboot Changes the Villain
+
+TV, Harry Potter
+
+Mon, 04 May 2026 19:15:49 GMT
+
+https://www.cbr.com/harry-potter-tv-reboot-draco-malfoy-changes-lox-pratt/
+
+The new Harry Potter series is book-accurate and the new Draco Malfoy explains how that changes the character.
+---------
+
+# Gene Hackman War Film Uncommon Valor Resurfaces on Streaming
+
+Movies, Uncommon Valor
+
+Mon, 04 May 2026 19:10:42 GMT
+
+https://www.cbr.com/gene-hackman-uncommon-valor-streaming-may-2026/
+
+The forgotten war film makes a return on streaming 43 years after its release in movie theaters.
+---------
+
+# Tracker Moves Production to Los Angeles for Season 4
+
+Movies, Tracker, Action, CBS
+
+Mon, 04 May 2026 19:04:38 GMT
+
+https://www.cbr.com/tracker-season-4-relocating-los-angeles/
+
+Tracker will leave Vancouver to shoot in Los Angeles beginning in Season 4
+---------
+
+# HBO's New 8-Part Hit Comedy Returns to the Charts Ahead of Season 2
+
+TV, I Love LA
+
+Mon, 04 May 2026 19:02:20 GMT
+
+https://www.cbr.com/i-love-la-comedy-hbo-max-success-may-2026/
+
+Rachel Sennott's new original comedy series is back on the streaming charts ahead of its second season on HBO.
+---------
+
+# Marvel Announces Star Wars Pride Variant Covers Coming Summer 2026
+
+Comics, Star Wars, Marvel Comics
+
+Mon, 04 May 2026 19:00:13 GMT
+
+https://www.cbr.com/marvels-star-wars-pride-variants-2026/
+
+Star Wars fans are getting the Pride drop they didn't know they needed courtesy of Marvel Comics and one of the industry's rising star artists.
+---------
+
+# 4-Season Masterpiece Wynonna Earp Perfectly Blends Western & Horror
+
+TV, Wynonna Earp, syfy, Western, Horror
+
+Mon, 04 May 2026 19:00:13 GMT
+
+https://www.cbr.com/wynonna-earp-perfect-blend-western-horror-masterpiece/
+
+Wynonna Earp blended horror and westerns, never losing sight of itself, creating a brilliant character-driven series, perfect from start to finish.
+---------
+
+# 10 Manson Family-Inspired Movies To Watch After Netflix's 'CHAOS'
+
+Movies, Chaos: The Manson Murders
+
+Mon, 04 May 2026 19:00:13 GMT
+
+https://www.cbr.com/movies-inspired-by-manson-family/
+
+For a widely despised criminal, Charles Manson has had a shockingly profound impact on cinema.
+---------
+
+# All 3 Original Star Wars Movies Are Masterpieces, but One Is Untouchable
+
+Movie, Star Wars, Star Wars: Episode IV - A New Hope, Star Wars: Episode VI - Return of the Jedi, Star Wars: Episode V - The Empire Strikes Back
+
+Mon, 04 May 2026 19:41:15 GMT
+
+https://collider.com/star-wars-original-movie-trilogy-masterpieces-ranked/
+
+The original Star Wars movie trilogy is a cinematic institution that revolutionized sci-fi, but which of these pioneers is the greatest masterpiece?
+---------
+
+# 3 Praiseworthy Netflix Movies to Watch This Week
+
+Movie, Bad News Bears, Jennifer's Body, The Land Before Time, Netflix
+
+Mon, 04 May 2026 19:19:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-may-4/
+
+Bad News Bears, Jennifer's Body, and The Land Before Time make up our list of the best Netflix movies to watch the week of May 4, 2026.
+---------
+
+# Netflix’s Record-Breaking ‘Jurassic World’ Series Reveals What the Movies Keep Missing
+
+TV Features, Jurassic World: Camp Cretaceous, Netflix, Jurassic World, Jurassic Park
+
+Mon, 04 May 2026 18:56:13 GMT
+
+https://collider.com/jurassic-world-camp-cretaceous-netflix-complex-characters/
+
+Netflix’s Jurassic World Camp Cretaceous series has complex characters, giving it an edge over the films and securing it better ratings.
+---------
+
+# 'Tracker' Makes a Move That Will Change Everything Ahead in Season 4
+
+TV News, Tracker, Justin Hartley, CBS, Jensen Ackles
+
+Mon, 04 May 2026 18:39:28 GMT
+
+https://collider.com/tracker-season-4-filming-in-la-leaving-vancouver/
+
+Ahead of Season 4, CBS' biggest crime series is making a major move as Tracker gets an update that changes everything.
+---------
+
+# 8 'Simpsons' Episodes That Would Have Made Great Movies
+
+TV, The Simpsons, The Simpsons Movie, The Simpsons 2, Animation
+
+Mon, 04 May 2026 18:22:14 GMT
+
+https://collider.com/the-simpsons-episodes-turned-into-movies/
+
+The plots in episodes like Season 4's "Kamp Krusty" and Season 7's "Bart on the Road" are so good that they could've made great Simpsons movies.
+---------
+
+# 'Euphoria' Season 3’s Anna Van Patten Comes From One of Hollywood's Oldest Families
+
+Features, Euphoria
+
+Mon, 04 May 2026 19:00:19 GMT
+
+https://movieweb.com/euphoria-anna-van-patten-famous-family/
+
+'Euphoria' Season 3, Episode 4 features a strong performance from Anna Van Patten as Kitty, and the actress comes from a famous family.
+---------
+
+# 'Avengers: Doomsday' Star Alan Cumming Talks "Trauma Bonding" With Co-Stars in 2003’s ‘X2’
+
+Movie News, Avengers: Doomsday, Alan Cumming, X-Men
+
+Mon, 04 May 2026 18:59:17 GMT
+
+https://movieweb.com/avengers-doomsday-alan-cumming-trauma-bonding/
+
+Nightcrawler actor Alan Cumming looked back on the "trauma bonding" he went through ahead of his return in 'Avengers: Doomsday.'
+---------
+
+# Netflix Action Thriller 'The Night Agent' Ending With Season 4
+
+TV News, The Night Agent, Netflix
+
+Mon, 04 May 2026 18:31:55 GMT
+
+https://movieweb.com/netflix-the-night-agent-ending-season-4/
+
+Netflix has announced that 'The Night Agent' will return for one last call as the action thriller series will end with Season 4.
+---------
+
+# Astronomers Discover 27 Tatooine-Like Planets That Orbit Two Stars on Star Wars Day
+
+Movie News, Star Wars
+
+Mon, 04 May 2026 18:19:47 GMT
+
+https://movieweb.com/star-wars-27-new-planets-tattooine/
+
+27 new planets orbiting two different stars were discovered ahead of Star Wars Day 2026.
+---------
+
+# 'Toy Story's Tim Allen Reveals Why He Didn’t Like Tom Hanks When They First Met
+
+Movie News, Toy Story, Tim Allen, Tom Hanks
+
+Mon, 04 May 2026 18:16:38 GMT
+
+https://movieweb.com/toy-story-tim-allen-didnt-like-tom-hanks/
+
+Buzz and Woody's tense first meeting goes beyond just the film, with Tim Allen and Tom Hanks not initially becoming fast friends.
+---------
+
+# Sci-Fi Thriller 'La Brea' Becomes Streaming Hit on Netflix Following NBC Cancellation
+
+TV News, La Brea, Hot on Streaming, Sci-Fi, Netflix
+
+Mon, 04 May 2026 18:00:18 GMT
+
+https://movieweb.com/la-brea-streaming-hit-netflix-may-2026/
+
+After being canceled by NBC in 2024, 'La Brea' has found new life after being added to Netflix in the U.S. for the first time.
+---------
+
+# 8 Superhero Shows That Are Perfect From Start To Finish
+
+TV Lists, The Boys
+
+Mon, 04 May 2026 18:00:18 GMT
+
+https://movieweb.com/superhero-tv-shows-perfect/
+
+These superhero TV shows tell exciting action-packed stories and have great character arcs, and there are no disappointing seasons.
+---------
+
 # NBC’s Classic Sci-Fi Reboot Series Quietly Returns As American Streaming Success
 
 TV, Masked Recs, Streaming Charts
