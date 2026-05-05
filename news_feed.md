@@ -1,3 +1,388 @@
+# How Apple TV’s 5-Part Mars Sci-Fi Series Is Mirroring Real-Life US History Addressed By For All Mankind Star
+
+TV, For All Mankind, For All Mankind - Season 5
+
+Tue, 05 May 2026 01:20:37 GMT
+
+https://screenrant.com/for-all-mankind-season-5-episode-6-mars-colonies-america-comparison-costa-ronin-interview/
+
+EXCLUSIVE: Despite being a sci-fi show set in an alternate timeline, For All Mankind star Costa Ronin identifies parallels with real-world history.
+---------
+
+# Netflix's Upcoming Show The Wonderfools Is 'The Incredibles Meets The Boys'
+
+Streaming TV, The WONDERfools
+
+Tue, 05 May 2026 01:15:21 GMT
+
+https://screenrant.com/the-wonderfools-netflix-new-superhero-k-drama-incredibles-the-boys/
+
+Netflix has a new superhero TV show on the way that will combine the nostalgia, themes, impact, and overall lunacy of other beloved franchises.
+---------
+
+# One Saros Trick Will Melt Every Boss In The Entire Game
+
+Gaming, Saros, Triple-A Games
+
+Tue, 05 May 2026 01:00:21 GMT
+
+https://screenrant.com/saros-beat-bosses-easy-strategy-biomes/
+
+A major boss is the final challenge of every biome in Saros, but adjusting your strategy in one simple way can trivialize every single one.
+---------
+
+# A 70-Year-Old Kaiju Movie May Explain That Massive Monsterverse Reveal
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Tue, 05 May 2026 01:00:21 GMT
+
+https://screenrant.com/monarch-legacy-monsters-two-rodans-return-1956-twist/
+
+A 1956 kaiju movie could make sense of the shocking Titan reveal from the end of the Monarch: Legacy of Monsters season 2 finale.
+---------
+
+# House Of The Dragon Season 3's Premiere Breaks HBO's Game Of Thrones Tradition
+
+Streaming TV, House of the Dragon, Game of Thrones
+
+Tue, 05 May 2026 00:30:20 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-opening-battle-gullet-break-tradition/
+
+HotD isn't just shaking up the GoT formula, it's setting the pace for what could be the most action-packed season in the franchise's history.
+---------
+
+# Star Trek: Strange New Worlds Season 4 & 5 Tease 'Final Boss Energy'
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 05 May 2026 00:20:12 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-actors-tease-season-4-5/
+
+Star Trek: Strange New Worlds' Rebecca Romijn, Ethan Peck, Celia Rose Gooding, and Paul Wesley talk about the final two seasons.
+---------
+
+# 10 Near-Perfect Star Wars Comics No Fan Should Miss
+
+Comics, Star Wars, Marvel, Dark Horse Comics
+
+Tue, 05 May 2026 00:00:20 GMT
+
+https://screenrant.com/best-star-wars-series-comics-near-perfect/
+
+The Star Wars franchise extends far beyond the films and TV series, so here are 10 essential Star Wars comics that no fan should ever miss.
+---------
+
+# Cyberpunk 2077: Future Sound Of Night City Officially Announced
+
+Gaming, Cyberpunk 2077
+
+Tue, 05 May 2026 00:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-future-sound-of-night-city/
+
+Cyberpunk is getting another compilation album release this summer, with some of the game’s greatest tracks on one huge LP set, along with new merch.
+---------
+
+# 10 Best Adam Scott Movies & TV Shows
+
+Movies, Adam Scott
+
+Tue, 05 May 2026 00:00:20 GMT
+
+https://screenrant.com/best-adam-scott-movies-tv-shows/
+
+Adam Scott has had a fascinating career that oscillated between comedy and drama, and led him to the center of critically acclaimed series and films.
+---------
+
+# 10 Marvel TV Episodes Considered Masterpieces
+
+Classic TV, Luke Cage, Daredevil, Jessica Jones, X-Men '97, Spider-Man: The Animated Series, Agents of S.H.I.E.L.D., Loki, Agatha All Along, Wonder Man, WandaVision, Marvel
+
+Tue, 05 May 2026 00:00:20 GMT
+
+https://screenrant.com/marvel-tv-episodes-considered-masterpieces/
+
+A lot of Marvel TV shows have been released over the years, and these Marvel TV episodes rank among the best of the best as masterpieces.
+---------
+
+# CBS Officially Gives Tracker a Long-Overdue Upgrade in Season 3
+
+TV, Tracker, CBS
+
+Tue, 05 May 2026 02:00:24 GMT
+
+https://www.cbr.com/cbs-tracker-season-3-episode-19-chain-of-custody/
+
+CBS is ushering in a massive upgrade to Colter Shaw's team in Tracker Season 3, revamping Justin Hartley's series in Episode 19, "Chain of Custody."
+---------
+
+# 10 Moments That Prove Star Wars Is Still The Perfect Sci-Fi Franchise
+
+Movies, Star Wars, Sci-Fi
+
+Tue, 05 May 2026 02:00:24 GMT
+
+https://www.cbr.com/star-wars-moments-perfect-sci-fi-franchise/
+
+Star Wars is a tentpole sci-fi franchise, and some of its best moments prove why it's a pioneer in the genre.
+---------
+
+# 10 Most Universally Beloved Nintendo Characters of All Time
+
+Games, Video Games, Nintendo, characters, Mario, pikachu, The Legend of Zelda
+
+Tue, 05 May 2026 01:45:13 GMT
+
+https://www.cbr.com/most-beloved-nintendo-characters-all-time/
+
+Nintendo fans absolutely can't live without these beloved characters.
+---------
+
+# Witch Hat Atelier Episode 6 Review: Taking a Page Out of Frieren's Grimoire
+
+Anime, Witch Hat Atelier, Frieren: Beyond Journey's End
+
+Tue, 05 May 2026 01:30:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-6-review/
+
+Witch Hat Atelier steals a move from Frieren: Beyond Journey's End, slowing its pace and exploring the magic and characters that makes it so charming.
+---------
+
+# 10 Darkest Fantasy Anime of All Time, Ranked
+
+Anime, Dororo, Goblin Slayer, Berserk, Akame ga Kill!, Devilman Crybaby, Claymore, The Promised Neverland, Puella Magi Madoka Magica, Attack on Titan, Made in Abyss, Fantasy
+
+Tue, 05 May 2026 01:25:13 GMT
+
+https://www.cbr.com/darkest-fantasy-anime-all-time/
+
+A breakdown of the darkest fantasy anime of all time, exploring their brutal themes and violence.
+---------
+
+# Star Wars Gets Beautifully Recreated With Cardboard on YouTube
+
+Movies, Star Wars
+
+Tue, 05 May 2026 01:20:48 GMT
+
+https://www.cbr.com/star-wars-cardboard-recreation-zach-king/
+
+The original Star Wars has been reimagined with with cardboard sets, costumes, and props, and you can watch the whole movie for free right now.
+---------
+
+# The Must-Read DC Comics From Every Year of The 2010s
+
+Comics, DC Comics, Batman, Justice League
+
+Tue, 05 May 2026 01:00:13 GMT
+
+https://www.cbr.com/best-dc-comics-every-year-the-2010s-list/
+
+The 2010s were an incredible era for DC Comics, and these ten masterpieces stand out as the best books from each year of the iconic decade.
+---------
+
+# How MTG's Hobbit Set Adapts The Book To The Card Game
+
+Games, Magic: The Gathering, The Hobbit, The Lord of the Rings, TCG
+
+Tue, 05 May 2026 00:45:13 GMT
+
+https://www.cbr.com/magic-the-gathering-the-hobbit-card-reveal/
+
+Wizards of the Coast has revealed details about The Hobbit set, including new mechanics and a distinct feel from The Lord of the Rings crossover.
+---------
+
+# Transformers Revives Devastator's Constructicons With a Forgotten G1 Combiner Reveal
+
+Anime, Transformers, merchandise, toys, action figures
+
+Tue, 05 May 2026 00:35:12 GMT
+
+https://www.cbr.com/transformers-war-within-scrapper-scavenger-dr-wu-prototype-reveal/
+
+Dr. Wu presents two new upcoming Transformers action figures that bring the most obscure takes on the classic Generation 1 Constructicons to life.
+---------
+
+# Seinfeld's Shocking Susan Ross Death, Explained
+
+TV, Seinfeld
+
+Tue, 05 May 2026 00:30:13 GMT
+
+https://www.cbr.com/why-seinfeld-killed-susan-ross-explained/
+
+Susan Ross plays a major role in several seasons of Seinfeld, yet she was still unceremoniously written out of the show toward the end of its run.
+---------
+
+# 27 Years Later, This Near-Perfect 5-Part Dark Fantasy Spin-off Is Now the Perfect Free Binge
+
+TV Features, Angel, Buffy The Vampire Slayer, Tubi, David Boreanaz
+
+Tue, 05 May 2026 01:47:14 GMT
+
+https://collider.com/angel-buffy-the-vampire-slayer-series-spinoff-streaming-on-tubi-may-2026/
+
+Angel, the shockingly dark spin-off of Buffy the Vampire Slayer, is free to stream on Tubi as of May 2026.
+---------
+
+# 7 Greatest Spaghetti Western Heroes, Ranked
+
+Movie, A Fistful of Dollars, The Good, the Bad and the Ugly, Django, Once Upon a Time in the West
+
+Tue, 05 May 2026 01:38:14 GMT
+
+https://collider.com/greatest-spaghetti-western-heroes-ranked/
+
+Spaghetti Westerns don't always have traditional heroes, but memorable and sometimes complex ones can be found in Django and The Great Silence.
+---------
+
+# 30 Years Later, These Are the 10 Best Movies of 1996
+
+Movie, Trainspotting, Waiting for Guffman, Jerry Maguire, Fargo
+
+Tue, 05 May 2026 01:11:13 GMT
+
+https://collider.com/best-movies-of-1996/
+
+1996 was a great year for movies, with bona fide classics like Trainspotting, Fargo, and Secrets & Lies standing out as the year's finest.
+---------
+
+# 3 Most Satisfying Shows to Watch on Prime Video This Week
+
+TV, Prime Video, Friday Night Lights, Downton Abbey, Unforgettable
+
+Tue, 05 May 2026 01:11:13 GMT
+
+https://collider.com/best-shows-binge-prime-video-may-4-2026/
+
+Friday Night Lights, Downton Abbey, and Unforgettable make up our list of the best Prime Video shows to watch the week of May 4, 2026.
+---------
+
+# Keanu Reeves' Crime Hit Is Officially the No. 1 Movie on Streaming Right Now
+
+TV News, Outcome, Keanu Reeves, Jonah Hill, Apple TV
+
+Tue, 05 May 2026 01:02:20 GMT
+
+https://collider.com/keanu-reeves-new-crime-movie-outcome-streaming-success-apple-tv-may-2026/
+
+Keanu Reeves’ new crime movie is officially taking over streaming as the number one movie on Apple TV right now.
+---------
+
+# Glen Powell Officially Takes Over Paramount+ With Total Streaming Domination
+
+Movie News, Glen Powell, The Running Man, Top Gun: Maverick, Taylor Sheridan
+
+Tue, 05 May 2026 00:48:30 GMT
+
+https://collider.com/glen-powell-top-gun-maverick-the-running-man-streaming-success-paramount-plus-may-2026/
+
+Paramount+ has officially found a new streaming king as multiple Glen Powell projects dominate the top 10.
+---------
+
+# 10 Greatest Marvel Movie Climaxes, Ranked
+
+Movie, Marvel, MCU, Superhero, Guardians of the Galaxy
+
+Tue, 05 May 2026 00:42:13 GMT
+
+https://collider.com/best-marvel-movie-climaxes-ranked/
+
+Marvel and MCU movies like Logan, Guardians of the Galaxy, and X-Men: First Class have some of the best climaxes in the all of the superhero genre.
+---------
+
+# A $160M Box Office Disaster Just Found a Second Life on Streaming
+
+Movie News, Sahara, Matthew McConaughey, National Treasure, Uncharted
+
+Tue, 05 May 2026 00:30:14 GMT
+
+https://collider.com/sahara-matthew-mcconaughey-prince-of-persia-meets-uncharted-streaming-success-may-2026/
+
+One of the biggest box-office bombs ever made, Sahara, is finding an audience on streaming over two decades after its theatrical run. Find out more.
+---------
+
+# Michael B. Jordan's New Adventure Movie Dethrones Netflix's No. 1 Blockbuster in Just 1 Week
+
+Movie News, Michael B. Jordan, Swapped, Apex, Netflix
+
+Tue, 05 May 2026 00:15:13 GMT
+
+https://collider.com/netflix-blockbuster-survival-thriller-apex-overtaken-by-michael-b-jordan-swapped-streaming-may-2026/
+
+Netflix's new survival thriller, Apex, has lost its dominion on the streamer's viewership charts to Michael B. Jordan and Juno Temple's new film.
+---------
+
+# 10 Most Perfectly Directed Sci-Fi Action Movies, Ranked
+
+Movie, Mad Max: Fury Road, Terminator 2: Judgment Day, The Matrix, The Empire Strikes Back
+
+Tue, 05 May 2026 00:09:13 GMT
+
+https://collider.com/perfectly-directed-sci-fi-action-movies-ranked/
+
+Perfectly directed movies that belong to both the sci-fi and action genres include classics like The Matrix, Aliens, and The Empire Strikes Back.
+---------
+
+# The 10 Greatest Spy Thriller Movie Masterpieces of All Time
+
+Movie Lists, Thriller
+
+Tue, 05 May 2026 02:00:31 GMT
+
+https://movieweb.com/best-spy-thriller-movies/
+
+From well-laid-out plans to competent protagonists, these spy thriller movies make you fall in love with the genre all over again.
+---------
+
+# Forget 'John Wick,' Chris Hemsworth's 'Extraction' Franchise the GOAT Netflix Action Saga
+
+Features, Extraction, John Wick, Comparison Recommendation
+
+Tue, 05 May 2026 01:00:20 GMT
+
+https://movieweb.com/chris-hemsworth-extraction-john-wick-clone/
+
+Move over, John Wick, Chris Hemsworth's hit Netflix action series is blasting its way toward a third franchise entry.
+---------
+
+# Blake Lively and Justin Baldoni Reach Settlement After 'It Ends With Us' Lawsuit
+
+Movie News, It Ends With Us, Blake Lively, Justin Baldoni
+
+Tue, 05 May 2026 00:51:13 GMT
+
+https://movieweb.com/blake-lively-justin-baldoni-lawsuit-settlement-finished/
+
+After a long legal battle, the stars of 'It Ends with Us' have reached an undisclosed settlement.
+---------
+
+# 'Star Wars' Toy Sparks Fan Backlash for Sexualizing Teenage Ahsoka
+
+TV News, Ahsoka, Star Wars, Star Wars The Clone Wars
+
+Tue, 05 May 2026 00:17:17 GMT
+
+https://movieweb.com/star-wars-ahsoka-hot-toys-backlash/
+
+The newest collectible has garnered plenty of controversy.
+---------
+
+# 10 Great '80s Kids Movies That Are Way Scarier Than You Remember
+
+Movie Lists
+
+Tue, 05 May 2026 00:00:19 GMT
+
+https://movieweb.com/1980s-kids-movies-scary/
+
+These movies for children that were released in the 1980s are much more frightening when watched today.
+---------
+
 # Nicolas Cage's Next Longlegs Movie Lands The Perfect Release Date
 
 Movies, Longlegs
