@@ -1,3 +1,366 @@
+# Prime Video's Fallout Successor Can Be The Definitive Adaptation Of A Video Game Classic
+
+TV, Tomb Raider, Fallout, Prime Video
+
+Tue, 05 May 2026 18:32:22 GMT
+
+https://screenrant.com/tomb-raider-amazon-show-definitive-lara-croft-adaptation/
+
+Despite the success of Prime Video's Fallout and other video game shows, one iconic franchise has yet to find its definitive screen adaptation.
+---------
+
+# Daredevil: Born Again Season 2's Perfect Sequel Is Officially 1 Week Away
+
+Superheroes, Daredevil: Born Again, The Punisher: One Last Kill, Marvel Cinematic Universe
+
+Tue, 05 May 2026 18:30:21 GMT
+
+https://screenrant.com/daredevil-born-again-season-sequel-release-one-week/
+
+Daredevil: Born Again season 2 has reached its end, but the story isn't over. Its sequel is officially releasing in just one week from today.
+---------
+
+# Henry Cavill Dons Connor MacLeod's Iconic Scottish Look In Highlander Set Photos
+
+Movies, Highlander
+
+Tue, 05 May 2026 18:14:51 GMT
+
+https://screenrant.com/highlander-movie-scotland-story-henry-cavill-transformation/
+
+New photos from the set of Chad Stahelski's Highlander have arrived, revealing Henry Cavill adopting one of Connor MacLeod's memorable Scottish looks.
+---------
+
+# The White Lotus Season 4's New Plot Details & $120M Filming Detailed In New Report
+
+TV, The White Lotus
+
+Tue, 05 May 2026 18:12:18 GMT
+
+https://screenrant.com/the-white-lotus-season-4-plot-details-filming-explained-report/
+
+As production gets underway on The White Lotus season 4, brand-new details about the hit HBO series have now been revealed, including the budget.
+---------
+
+# Netflix's 2-Part Thriller Series With A Star-Studded Cast & 92% RT Score Takes A Massive Hit
+
+TV, Masked Recs
+
+Tue, 05 May 2026 18:06:53 GMT
+
+https://screenrant.com/beef-netflix-thriller-series-charts-top-ten-fall/
+
+A star-studded Netflix thriller series that is one of the streamer's best just took a massive hit, and it needs to fight its way back from it.
+---------
+
+# 9 Harsh Realities Of Rewatching Buffy The Vampire Slayer's Final Season Today
+
+Classic TV, Buffy The Vampire Slayer
+
+Tue, 05 May 2026 18:00:20 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-rewatch-final-season-harsh-realities/
+
+The flaws in Buffy's last ever episode are more apparent with time, from the lackluster final battle to retconned sacrifices and tone-changing events.
+---------
+
+# New Trailer Reveals Crucial Details For Latest Batman Spin-Off
+
+Comics, Batgirl, Batman, DC
+
+Tue, 05 May 2026 18:00:07 GMT
+
+https://screenrant.com/batman-batgirl-barbara-gordon-breakout-trailer/
+
+DC is preparing fans for a unique storyline for one of the most beloved Bat-Family characters of all time, and it will be released in a week.
+---------
+
+# 5 Greatest Star Wars Parodies Of All Time
+
+Movies, Star Wars
+
+Tue, 05 May 2026 17:45:20 GMT
+
+https://screenrant.com/greatest-star-wars-parodies-all-time/
+
+Star Wars has become one of the most influential sci-fi franchises of all time, and these five parodies perfectly found the funny side of the force.
+---------
+
+# Harry Potter Season 1's Finale Is A Big Change From The Movies
+
+Streaming TV, Harry Potter
+
+Tue, 05 May 2026 17:45:19 GMT
+
+https://screenrant.com/harry-potter-season-1-ending-weasley-family-change/
+
+The Harry Potter TV show is making a huge change in the finale of season 1, which highlights a key element that the movies overlooked.
+---------
+
+# Ana de Armas To Star In New Spy Thriller With Sebastian Stan
+
+Movies, Ana De Armas, Sebastian Stan
+
+Tue, 05 May 2026 17:41:30 GMT
+
+https://screenrant.com/ana-de-armas-spy-thriller-impunity-movie-sebastian-stan/
+
+Ballerina’s Ana de Armas and Marvel star Sebastian Stan will star in and produce a new spy thriller from the director of the Western The Settlers.
+---------
+
+# Maul Star Reveals What the Show Has Done For the First Time in Star Wars History
+
+TV, Star Wars: Maul - Shadow Lord
+
+Tue, 05 May 2026 18:36:59 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-sam-witwer-maul-identity/
+
+Sam Witwer says Maul – Shadow Lord explores Maul defining himself for the first time after breaking from Sidious.
+---------
+
+# 10 Greatest Movie Endings of the 21st Century, Ranked
+
+Movies
+
+Tue, 05 May 2026 18:30:13 GMT
+
+https://www.cbr.com/greatest-movie-ending-21st-century-list/
+
+The 21st century has been an amazing time for movies, delivering endings that audiences can never forget.
+---------
+
+# Best Anime With Hitmen Who Make Violence Look Effortless
+
+Anime, Buddy Daddies, Gungrave
+
+Tue, 05 May 2026 18:15:14 GMT
+
+https://www.cbr.com/best-anime-with-hitmen-effortless-violence/
+
+These anime have professional assassins who carry out their terribly violent work with chilling ease.
+---------
+
+# The Boys Series Finale Officially Arrives Early (With a Twist)
+
+TV, The Boys
+
+Tue, 05 May 2026 17:53:37 GMT
+
+https://www.cbr.com/the-boys-series-finale-early-release-theaters/
+
+The Boys gets an exciting release update for its series finale.
+---------
+
+# The Real Reason The White Lotus Replaced a Harry Potter Star After 1 Week Revealed
+
+TV, The White Lotus
+
+Tue, 05 May 2026 17:34:26 GMT
+
+https://www.cbr.com/the-white-lotus-season-4-helena-bonham-carter-replaced-reason/
+
+Two weeks after Helena Bonham Carter exited The White Lotus, an explanation has been given for her sudden departure from the fourth season.
+---------
+
+# Transformers Gives the Junkions a Dark New Look With a Shattered Glass Makeover
+
+Anime, The Transformers: The Movie, Transformers, merchandise, toys, action figures
+
+Tue, 05 May 2026 17:31:31 GMT
+
+https://www.cbr.com/transformers-shattered-glass-junkions-newage-toys-prototype/
+
+Newage Toys variants of the Junkions redeco the junk robots and their leader Wreck-Gar in the reversed colors of Transformers: Shattered Glass.
+---------
+
+# The Rocketeer Marks Major Anniversary With Exclusive Collector’s Item
+
+Comics, The Rocketeer
+
+Tue, 05 May 2026 17:30:41 GMT
+
+https://www.cbr.com/the-rocketeer-official-cellar-whiskey-idw-entertainment/
+
+Cheers to 35 years of The Rocketeer!
+---------
+
+# Star Wars Just Officially Confirmed Next Generation of Sith
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi
+
+Tue, 05 May 2026 17:30:14 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-new-sith-sci-fi/
+
+The latest 10/10 Star Wars animated series officially introduces a new generation of the Sith that will usher in a new era for the franchise.
+---------
+
+# Alan Ritchson's Revenge Thriller Motor City Sets Release Date
+
+Movies, Motor City
+
+Tue, 05 May 2026 17:16:55 GMT
+
+https://www.cbr.com/alan-ritchson-motor-city-release-date/
+
+Alan Ritchson is back in action as the star of the new revenge thriller coming this summer.
+---------
+
+# 10 Hidden Gem Indie Games Everyone Should Play at Least Once
+
+Games, Video Games, Steam
+
+Tue, 05 May 2026 17:16:13 GMT
+
+https://www.cbr.com/best-hidden-gem-indie-games-everyone-must-play/
+
+These indie games are hidden gems that everyone should play at least once. These games offer immersive worlds, unique settings, and tons of content.
+---------
+
+# 10 Greatest Action Movie Masterpieces of the Last 50 Years, Ranked
+
+Movie, Action, Terminator 2: Judgment Day, Die Hard, Aliens
+
+Tue, 05 May 2026 18:32:16 GMT
+
+https://collider.com/best-action-movie-masterpieces-last-50-years-ranked/
+
+From modern marvels like Mad Max: Fury Road to old-school hits like Die Hard, these action movies are the greatest to come out over the last 50 years.
+---------
+
+# Sean Gunn Turns a Small-Town Science Fair Into a Battlefield in Wild New Indie Movie [Exclusive]
+
+Exclusives, Comedy, Weird Al Yankovic, Sean Gunn, Jackie Tohn
+
+Tue, 05 May 2026 18:00:14 GMT
+
+https://collider.com/sean-gunn-vanessa-chester-weird-al-yankovic-cast-kestrin-pantera-comedy-backseat-drivers/
+
+SXSW award winner Kestrin Panters has officially unveiled the title of her new indie comedy and four new cast members. Here's what we know.
+---------
+
+# ‘Creed’ Meets ‘A Thousand Blows’ in Your Next Weekend Binge Officially Coming This Summer
+
+TV News, STARZ, Creed, A Thousand Blows, 50 Cent
+
+Tue, 05 May 2026 17:30:15 GMT
+
+https://collider.com/fightland-first-look-images-starz-release-date-july-31-2026/
+
+Starz has debuted the first images from Fightland, the new series with DNA from both Creed and A Thousand Blows, which launches this summer.
+---------
+
+# Netflix's 'Reacher' Replacement With 'Bosch's Titus Welliver Just Expanded the Cast
+
+TV News, The Night Agent, Netflix, Abigail Breslin, David Denman
+
+Tue, 05 May 2026 17:18:35 GMT
+
+https://collider.com/netflix-reacher-replacement-the-night-agent-season-4-titus-welliver-cast-abigail-breslin-david-denman-annabeth-gish/
+
+After casting Bosch's Titus Welliver, The Night Agent Season 4 has also added 3 major names to the cast of its final chapter.
+---------
+
+# Spike Lee Defends 'Michael' After Leaving Out Sexual Abuse Allegations
+
+Movie News, Spike Lee, Michael
+
+Tue, 05 May 2026 18:35:01 GMT
+
+https://movieweb.com/spike-lee-michael-movie-defense-allegations/
+
+The director has never shied away from controversy.
+---------
+
+# 'The Odyssey' Cast & Character Guide: Who's Who In Christopher Nolan's Epic?
+
+Features, The Odyssey, Christopher Nolan, Matt Damon
+
+Tue, 05 May 2026 18:30:19 GMT
+
+https://movieweb.com/the-odyssey-christopher-nolan-confirmed-cast-character-guide/
+
+The cast for Christopher Nolan's 'The Odyssey' has been kept under wraps aside from a few exceptions. Here's who could be in the cast.
+---------
+
+# 'The Chestnut Man' Season 2 Unleashes an All-New Mystery on Netflix This Week
+
+TV News, The Chestnut Man, Streaming Recommendations, Netflix, Thriller
+
+Tue, 05 May 2026 18:00:19 GMT
+
+https://movieweb.com/the-chestnut-man-season-2-hide-and-seek-stream-netflix-may-2026/
+
+It's been a long time coming, but one of Netflix's best crime thrillers is finally back this week with an all-new mystery.
+---------
+
+# 'The Bear' Drops Bonus Prequel Episode With Jon Bernthal & Ebon Moss-Bacharach Ahead of Season 5
+
+TV News, The Bear
+
+Tue, 05 May 2026 17:54:52 GMT
+
+https://movieweb.com/the-bear-prequel-episode-gary/
+
+Ahead of 'The Bear' Season 5, Hulu dropped a special episode titled "Gary" starring Ebon Moss-Bacharach and Jon Bernthal.
+---------
+
+# 'Evil Dead Burn' Official Trailer Released
+
+Movie News, Horror, Evil Dead Burn, The Evil Dead
+
+Tue, 05 May 2026 17:49:35 GMT
+
+https://movieweb.com/evil-dead-burn-trailer/
+
+The very R-rated trailer for 'Evil Dead Burn' is finally here, and the horror sequel features the family reunion from hell.
+---------
+
+# Prime Video Releasing 'The Boys' Season 5 Finale in Theaters
+
+TV News, The Boys, Prime Video
+
+Tue, 05 May 2026 17:26:44 GMT
+
+https://movieweb.com/the-boys-season-5-finale-theatrical-release/
+
+To close out Season 5 of 'The Boys,' Prime Video is bringing the long-awaited series finale to theaters starting on May 19.
+---------
+
+# 'Beyond the Spider-Verse' Star Jake Johnson Admits He Doesn't Know How the Trilogy Ends
+
+Movie News, Spider-Man: Beyond the Spider-Verse, Jake Johnson, Spider-Man: Across the Spider-Verse
+
+Tue, 05 May 2026 17:24:25 GMT
+
+https://movieweb.com/beyond-the-spider-verse-ending-jake-johnson-reaction/
+
+The Peter B. Parker actor confirms that he has started recording the 2027 movie but hasn't gotten to its ending.
+---------
+
+# 'Tony' Trailer Reveals 'The Holdover's Dominic Sessa as Anthony Bourdain
+
+Movie News, Tony, Anthony Bourdain
+
+Tue, 05 May 2026 17:09:26 GMT
+
+https://movieweb.com/tony-trailer-anthony-bourdain/
+
+Directed by 'Nirvana: The Band - The Show - The Movie' director Matt Johnson, A24 has set the film for a August 2026 release date.
+---------
+
+# Nicolas Cage's New 'Longlegs' Horror Movie Sequel Gets an Official Release Date
+
+Movie News, Nicolas Cage, Longlegs, Horror
+
+Tue, 05 May 2026 17:03:28 GMT
+
+https://movieweb.com/nicolas-cage-new-longlegs-movie-release-date/
+
+Nicolas Cage and director Osgood Perkins' haunting horror follow-up to 'Longlegs' has an official theatrical release date.
+---------
+
 # Star Trek And Battlestar Galactica: The Magic Number 47
 
 TV, Battlestar Galactica, Star Trek
