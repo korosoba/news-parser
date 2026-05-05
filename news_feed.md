@@ -1,3 +1,311 @@
+# Xbox Game Pass Quietly Confirms 2 Brand-New Free Games
+
+Gaming, Xbox Game Pass
+
+Tue, 05 May 2026 12:39:13 GMT
+
+https://screenrant.com/xbox-game-pass-new-day-one-titles-may-2026/
+
+Xbox Game Pass users are getting two bonus free games this year, both of which will be coming to the subscription service later in 2026.
+---------
+
+# Cyberpunk 2077 Officially Returns Next Month, Mark Your Calendars
+
+Gaming, Cyberpunk 2077
+
+Tue, 05 May 2026 12:30:18 GMT
+
+https://screenrant.com/cyberpunk-2077june-2026-official-vinyl-release/
+
+Experience the immersive soundscape of Night City with the limited-edition Cyberpunk 2077: Future Sound of Night City vinyl.
+---------
+
+# X-Men's New Hero Mei Is The Next Generation's Cyclops
+
+Marvel Comics, X-Men, Marvel
+
+Tue, 05 May 2026 12:30:18 GMT
+
+https://screenrant.com/x-men-new-hero-mei-cyclops-leader/
+
+Marvel secretly lays the foundations to replace Cyclops as the X-Men's main leader figure, with his successor beginning to follow in his steps.
+---------
+
+# 10 Great Horror Movies From The 2020s That Nobody Talks About
+
+Lists, Horror, Recommendation
+
+Tue, 05 May 2026 12:30:18 GMT
+
+https://screenrant.com/underrated-horror-movies-2020s/
+
+Horror films from the 2020s have been fantastic, yet some of the best, from slashers to psychological thrillers, have flown under the radar.
+---------
+
+# What The Next MCU Show After Daredevil: Born Again S2 Is (& When It Releases)
+
+Streaming TV, Daredevil: Born Again
+
+Tue, 05 May 2026 12:15:37 GMT
+
+https://screenrant.com/marvel-show-after-daredevil-born-again-season-2-visionquest/
+
+Daredevil: Born Again season 2 ends tonight with a hotly anticipated finale, but what is coming next for Marvel and the MCU on the small screen?
+---------
+
+# Stephen King Praises Netflix's "Remarkable" Adaptation Of 72-Year-Old Survival Novel
+
+TV, Masked Recs
+
+Tue, 05 May 2026 12:07:39 GMT
+
+https://screenrant.com/lord-of-the-flies-netflix-stephen-king-review/
+
+Stephen King praises Netflix's "remarkable" adaptation of a 72-year-old survival novel just one day after the series arrived on the platform.
+---------
+
+# Fallout: Vault 13 Will Keep Us All Busy Until Fallout 5
+
+Gaming, Fallout, Fallout 5, Fallout 4
+
+Tue, 05 May 2026 12:00:19 GMT
+
+https://screenrant.com/fallout-vault-13-remake-unofficial-download/
+
+Vault 13 is an enormous mod for Fallout 4 that brings back the very first game in the series in a big way.
+---------
+
+# Every Nia DaCosta Movie, Ranked
+
+Movies, Ranking, Little Woods, Candyman, 28 Years Later: The Bone Temple, The Marvels, Hedda
+
+Tue, 05 May 2026 12:00:19 GMT
+
+https://screenrant.com/every-nia-dacosta-movie-ranked-worst-to-best/
+
+Nia DaCosta is one of the best directors currently working in Hollywood and finding her best film, from Candyman to The Marvels, is a tall task.
+---------
+
+# Star Trek: Strange New Worlds Forgot Key Details About Kirk Brothers' Family Lives
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 05 May 2026 12:00:19 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-kirk-father-parents/
+
+Star Trek: Strange New Worlds hasn't made mention of Sam and James T. Kirk's personal lives and what they have in common in seasons 4 and 5.
+---------
+
+# 8 Near-Perfect Movie Scenes Flawlessly Choreographed to Music
+
+Movies
+
+Tue, 05 May 2026 12:00:19 GMT
+
+https://screenrant.com/near-perfect-movie-scenes-synced-music-edgar-wright/
+
+The right score can transform any movie scene, but some films take it one step further, fully choreographing the action to the soundtrack.
+---------
+
+# DC Comics Announces Sequel to Fan-Favorite Batman Story — With a Shocking New Twist
+
+Comics, Batman
+
+Tue, 05 May 2026 12:01:13 GMT
+
+https://www.cbr.com/batman-white-knight-sequel-superman-confirmed/
+
+An acclaimed Batman story continues with a classic character joining the fun.
+---------
+
+# Maul: Shadow Lord Star Reveals The Fan Reaction That Surprised Him The Most
+
+TV, Star Wars: Maul - Shadow Lord
+
+Tue, 05 May 2026 11:45:14 GMT
+
+https://www.cbr.com/star-wars-maul-shadow-lord-sam-witwer-fan-reaction/
+
+Sam Witwer says Maul – Shadow Lord fans have given the team a new sense of responsibility for Season 2.
+---------
+
+# Oscar Isaac’s Conditions for Returning As Moon Knight in the MCU Revealed
+
+TV, Moon Knight
+
+Tue, 05 May 2026 11:30:12 GMT
+
+https://www.cbr.com/oscar-isaac-moon-knight-return-condition-revealed/
+
+Moon Knight's creator opens up on what it will take to get Oscar Isaac to return as the beloved character in the MCU.
+---------
+
+# Prime Video's Reacher Season 4 Will Take a New Direction
+
+TV, Reacher, Prime Video
+
+Tue, 05 May 2026 11:30:12 GMT
+
+https://www.cbr.com/prime-video-reacher-season-4-changing-formula/
+
+Reacher Season 4 is shaking things up in a way that might prove the show's narrative flexibility.
+---------
+
+# Hokum Ending: Star Adam Scott & Director Reveal Movie’s Original, ‘Bleaker’ Finale
+
+CBR Exclusives, Hokum
+
+Tue, 05 May 2026 11:15:12 GMT
+
+https://www.cbr.com/hokum-ending-explained-adam-scott-damian-mccarthy/
+
+Oddity director Damian McCarthy explains how his Hokum ending gradually shifted over time and why.
+---------
+
+# 'Elsbeth' Finally Brings Back a Core Character That Season 3 Has Been Desperately Missing
+
+TV Features, Elsbeth, Carrie Preston, CBS
+
+Tue, 05 May 2026 12:36:13 GMT
+
+https://collider.com/elsbeth-season-3-episode-17-kaya-blanke-return/
+
+Despite strong performances and guest stars, Elsbeth Season 3 has missed the much-needed dynamic between Elsbeth and Kaya Blanke.
+---------
+
+# Netflix Is Losing HBO’s Most Daring Sci-Fi Series Soon
+
+TV News, Scavengers Reign, Netflix, HBO Max, HBO
+
+Tue, 05 May 2026 12:30:12 GMT
+
+https://collider.com/hbo-most-original-sci-fi-series-scavengers-reign-leaving-netflix-may-2026/
+
+Scavengers Reign, an original sci-fi drama series created for HBO Max, is set to leave its major streaming home soon. Here's all to know.
+---------
+
+# 7 Greatest Original Characters in The Lord of the Rings Movie Trilogy, Ranked
+
+Movie, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Tue, 05 May 2026 12:27:13 GMT
+
+https://collider.com/the-lord-of-the-rings-movie-trilogy-original-characters/
+
+Figwit, Sharku, and Háleth are all among the best original characters from Peter Jackson's The Lord of the Rings movie trilogy.
+---------
+
+# 30 Best Christian Movies, Ranked According to Rotten Tomatoes
+
+Movie, Hacksaw Ridge, Rotten Tomatoes, Mass, First Reformed
+
+Tue, 05 May 2026 12:15:12 GMT
+
+https://collider.com/best-christian-movies/
+
+Faith-based movies don't always score with critics, but films like Hacksaw Ridge, Mass, and Jesus Revolution have proven to be lauded exceptions.
+---------
+
+# 10 Greatest Fantasy Anime of All Time, Ranked
+
+TV, Anime, Frieren: Beyond Journey's End, Mushi-Shi, Berserk
+
+Tue, 05 May 2026 12:05:13 GMT
+
+https://collider.com/best-fantasy-anime-all-time-ranked/
+
+From Mushi-Shi to Berserk and Dorehodoro, these anime series epitomize just how limitless and awe-inspiring the fantasy genre can be in this medium.
+---------
+
+# Prime Video’s James Bond Rival Officially Returns on May 20
+
+Movie News, John Krasinski, Tom Clancy's Jack Ryan: Ghost War, Prime Video, Tom Clancy's Jack Ryan
+
+Tue, 05 May 2026 12:01:13 GMT
+
+https://collider.com/john-krasinski-james-bond-replacement-jack-ryan-ghost-war-release-date-prime-video-may-2026/
+
+Discover the thrilling conclusion to John Krasinski's hit Prime Video series Jack Ryan, as the character embarks on a globetrotting mission.
+---------
+
+# 8 Netflix Miniseries That Are Even Better the Second Time Around
+
+TV, Netflix, One Day, Ripley, Bodies
+
+Tue, 05 May 2026 11:52:13 GMT
+
+https://collider.com/netflix-miniseries-even-better-second-time/
+
+One Day, Midnight Mass, Bodies, Ripley, The Queen's Gambit, and more make up our list of Netflix miniseries that are even better the second time.
+---------
+
+# 10 Greatest Action Movie Climaxes, Ranked
+
+Movie, Terminator 2: Judgment Day, Action, Seven Samurai, Hard Boiled
+
+Tue, 05 May 2026 11:31:12 GMT
+
+https://collider.com/best-action-movie-climaxes-ranked/
+
+Exciting action movie classics like Terminator 2: Judgment Day, Seven Samurai, and The Wild Bunch have some of the best climaxes in genre history.
+---------
+
+# Alan Ritchson's Underrated WWII Action Thriller Hits a New Streamer Next Week
+
+Movie News, Alan Ritchson, The Ministry of Ungentlemanly Warfare, Guy Ritchie, Henry Cavill
+
+Tue, 05 May 2026 11:30:12 GMT
+
+https://collider.com/alan-ritchson-guy-ritchie-ww2-thriller-the-ministry-of-ungentlemanly-warfare-streaming-release-date-peacock-may-2026/
+
+Guy Ritchie's The Ministry of Ungentlemanly Warfare, starring Henry Cavill and Alan Ritchson, moves to an exclusive streaming deal on Peacock, May 18.
+---------
+
+# Forget 'High Potential' — This 7-Part Detective Drama Series Is a Perfect Weekend Binge
+
+TV Features, High Potential, The Mentalist, Simon Baker, CBS
+
+Tue, 05 May 2026 11:18:13 GMT
+
+https://collider.com/high-potential-detective-drama-replacement-the-mentalist/
+
+For fans of High Potential looking for a replacement series, CBS’ The Mentalist will be a darker, moodier replacement.
+---------
+
+# 'The Odyssey' Trailer Sparks Debate Over Accents in Christopher Nolan Epic
+
+Movie News, The Odyssey, Christopher Nolan, Action, Fantasy
+
+Tue, 05 May 2026 11:51:20 GMT
+
+https://movieweb.com/the-odyssey-trailer-debate-accent/
+
+Reactions have quickly emerged, with the latest look at 'The Odyssey' proving to be divisive due to modern language and the director's visuals.
+---------
+
+# 'Grey's Anatomy' Season 22 Images Tease Devastating Finale
+
+TV News, Grey's Anatomy, Ellen Pompeo, Kevin McKidd
+
+Tue, 05 May 2026 11:01:47 GMT
+
+https://movieweb.com/greys-anatomy-season-22-finale-images/
+
+The latest 'Grey's Anatomy' finale stills preview a bridge collapse, a full disaster response, and emotional scenes for Meredith and Teddy.
+---------
+
+# 'Maul – Shadow Lord' Just Proved Why We Need an R-Rated 'Star Wars' Project
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 05 May 2026 11:01:18 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-r-rated-tease/
+
+'Star Wars' is traditionally made as family-friendly entertainment, but the franchise just proved why it's time to stray from that formula.
+---------
+
 # An Iconic Zelda Game Returns After 22 Years
 
 Gaming, The Legend of Zelda
