@@ -1,3 +1,278 @@
+# The 7-Part Dystopian Series Streaming For Free This Month Deserves Its 93% Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Tue, 05 May 2026 20:01:21 GMT
+
+https://screenrant.com/the-100-streaming-free-deserves-rotten-tomatoes-score/
+
+One sci-fi series now streaming on PlutoTV is a mandatory binge-watch for viewers who miss the post-apocalyptic dystopia trend of the 2010s.
+---------
+
+# How Ridley Scott's Returning 3-Part Horror Series Adapts Its Source Novel Explained By The Terror Creators & Director
+
+TV, The Terror, The Terror - Season 3, Horror, AMC+
+
+Tue, 05 May 2026 20:00:26 GMT
+
+https://screenrant.com/the-terror-season-3-devil-in-silver-book-adaptation-lavalle-cantwell-kusama/
+
+Creators Victor LaValle and Chris Cantwell and director/EP Karyn Kusama talk The Terror season 3 and how the horror series adapts its book source.
+---------
+
+# New Spider-Man TV Show Reveal Makes A Major Brand New Day Theory Look Even More Unlikely
+
+TV, Spider-Noir, Spider-Man: Brand New Day
+
+Tue, 05 May 2026 19:55:19 GMT
+
+https://screenrant.com/spider-noir-show-man-spider-transformation-brand-new-day-unlikely/
+
+Recent details regarding Prime Video's Spider-Noir show cast further doubt on one of the most popular theories about Spider-Man: Brand New Day.
+---------
+
+# The Night Agent Season 4 Casts FBI Agents For Netflix Show's Final Episodes
+
+TV, The Night Agent
+
+Tue, 05 May 2026 19:54:05 GMT
+
+https://screenrant.com/the-night-agent-season-4-abigail-breslin-annabeth-gish-roles/
+
+Three more cast members are joining Gabriel Basso for The Night Agent season 4, which will be the action thriller’s farewell run on Netflix.
+---------
+
+# Steam Controller Restocks Get Official Update From Valve
+
+Gaming, Steam, Triple-A Games
+
+Tue, 05 May 2026 19:36:12 GMT
+
+https://screenrant.com/steam-controller-restocks-valve-statement/
+
+After instantly selling out at the only marketplace available, Valve has given us an official update regarding Steam Controller stock.
+---------
+
+# Watson Season 3: Cancellation & Everything We Know
+
+TV, Watson
+
+Tue, 05 May 2026 19:31:21 GMT
+
+https://screenrant.com/watson-season-3-explained/
+
+CBS's Sherlock Holmes retelling/medical procedural Watson ended its second season with a cliffhanger, but is Watson season 3 happening?
+---------
+
+# Will Trent Is Returning For Season 5 - Everything We Know
+
+Network TV, Will Trent
+
+Tue, 05 May 2026 19:30:22 GMT
+
+https://screenrant.com/will-trent-season-5-explained/
+
+The 2025-2026 TV year has been hard on Wilbur and the rest of the GBI. Luckily, things can still look up for them in Will Trent season 5.
+---------
+
+# NCIS Origins Is Returning For Season 3 - Everything We Know
+
+Network TV, NCIS, NCIS: Origins
+
+Tue, 05 May 2026 19:30:22 GMT
+
+https://screenrant.com/ncis-origins-season-3-explained/
+
+Gibbs, Lala, and the rest of the Pendleton office will continue their story in NCIS: Origins season 3, but their future comes with many changes.
+---------
+
+# The Objective Greatest Anime Of All Time's Official Heir Just Got A Disappointing Crunchyroll Update
+
+Anime, Daemons of the Shadow Realm, Daemons of the Shadow Realm - Season 1, Crunchyroll, Dupes
+
+Tue, 05 May 2026 19:25:23 GMT
+
+https://screenrant.com/daemons-shadow-realm-dissapointing-crunchyroll-update/
+
+The official anime successor to the Fullmetal Alchemist franchise gets an extremely disappointing Crunchyroll streaming update for its latest episode.
+---------
+
+# Xbox Officially Launches New Era With Major Shake-Up
+
+Gaming, Xbox Series X/S, Triple-A Games, PC
+
+Tue, 05 May 2026 19:21:29 GMT
+
+https://screenrant.com/xbox-new-era-team-shake-up-ai/
+
+Xbox has been undergoing plenty of major changes recently, and the latest brings in an influx of new team members that might concern some fans.
+---------
+
+# James Bond Is Officially Copying The Lord of the Rings Ahead of Reboot
+
+Movies, James Bond
+
+Tue, 05 May 2026 20:00:17 GMT
+
+https://www.cbr.com/james-bond-copying-lord-of-the-rings-hobbit-reboot/
+
+James Bond is about to get a fresh start, but it is taking its cues from an unusual source.
+---------
+
+# Netflix Release The Boroughs Trailer from Stranger Things Creators
+
+TV, The Boroughs, Sci-Fi, Netflix
+
+Tue, 05 May 2026 19:21:16 GMT
+
+https://www.cbr.com/the-boroughs-trailer-netflix-duffer-brothers/
+
+The Duffere Brothers return with a new series, The Boroughs, which could be Stranger Things for adults.
+---------
+
+# Andy Serkis' New Film Based on Classic Novel Divides Critics & Audiences After Disappointing Opening
+
+Movies, Animal Farm
+
+Tue, 05 May 2026 19:16:34 GMT
+
+https://www.cbr.com/andy-serkis-animal-farm-divided-critics-audiences-rotten-tomatoes/
+
+Despite bombing in theaters, audiences are far more welcoming towards Andy Serkis' new film than critics.
+---------
+
+# 35 Strongest Hunter X Hunter Characters
+
+Anime, Hunter X Hunter, Hunter x Hunter
+
+Tue, 05 May 2026 19:15:14 GMT
+
+https://www.cbr.com/strongest-hunterxhunter-characters/
+
+Since its debut in 1998, Hunter x Hunter has introduced some very powerful characters, and some Nen users are stronger than others.
+---------
+
+# Christopher Nolan's The Odyssey Trailer Ignites Backlash With 1 Word
+
+Movies, The Odyssey
+
+Tue, 05 May 2026 19:08:19 GMT
+
+https://www.cbr.com/the-odyssey-trailer-dad-american-accent-backlash/
+
+Christopher Nolan's The Odyssey trailer has created controversy, with one word in particular making lots of filmgoers upset.
+---------
+
+# Monarch: Legacy of Monsters Reopens the MonsterVerse's Biggest Plot Hole
+
+TV, Monarch: Legacy of Monsters, Monsterverse, Godzilla
+
+Tue, 05 May 2026 19:00:15 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-alan-jonah-monsterverse-return/
+
+The season finale of Monarch: Legacy of Monsters reopens old wounds as it reminds MonsterVerse fans of the franchise's biggest unanswered plot hole.
+---------
+
+# 10 Most Universally Beloved Horror Movies Ever, Ranked
+
+Movies, Horror
+
+Tue, 05 May 2026 19:00:15 GMT
+
+https://www.cbr.com/beloved-horror-movies-list/
+
+While horror has made a huge comeback in recent years, there are some horror films that remain universally loved by fans.
+---------
+
+# Taylor Sheridan's Spy Thriller Officially Confirms Season 3 Release Window [Exclusive]
+
+TV News, Lioness, Michael Kelly, Taylor Sheridan, Paramount Plus
+
+Tue, 05 May 2026 19:52:17 GMT
+
+https://collider.com/taylor-sheridan-lioness-season-3-release-window-summer-paramount-plus-michael-kelly/
+
+Lioness, the dark-ops spy thriller written and created by Taylor Sheridan, gets a huge Season 3 update from Michael Kelly.
+---------
+
+# John Krasinski Confirms When His Almost $1 Billion Dollar Franchise Starts Filming
+
+Exclusives, A Quiet Place Part III, John Krasinski, Tom Clancy's Jack Ryan: Ghost War
+
+Tue, 05 May 2026 19:49:40 GMT
+
+https://collider.com/a-quiet-place-part-3-filming-update-john-krasinski-horror-trilogy/
+
+John Krasinski has officially revealed when filming for his long-awaited trilogy capper, A Quiet Place Part III, kicks off. Here's what we know.
+---------
+
+# 8 Worst Book-to-Movie Adaptations of All Time, Ranked
+
+Movie, Persuasion, Dune, The Dark Tower, World War Z
+
+Tue, 05 May 2026 19:44:13 GMT
+
+https://collider.com/worst-book-to-movie-adaptations-all-time-ranked/
+
+Persuasion, The Giver, World War Z, The Dark Tower, Dune (1984), and more make up our list of the worst book-to-movie adaptations of all time.
+---------
+
+# Only 3 Movies Have Better Worldbuilding Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Blade Runner, Spirited Away, Children of Men
+
+Tue, 05 May 2026 19:24:16 GMT
+
+https://collider.com/movies-better-worldbuilding-than-lord-of-the-rings/
+
+Middle-earth is as brilliant a world as cinema has ever seen, but a dystopian L.A., an apocalyptic London, and a magical realm in Japan surpass it.
+---------
+
+# Kayce Dutton Finally Gets the Story That 'Yellowstone' Couldn't Tell
+
+TV Features, Marshals, Yellowstone, Luke Grimes, Logan Marshall-Green
+
+Tue, 05 May 2026 19:21:16 GMT
+
+https://collider.com/marshals-yellowstone-kayce-playing-with-fire-season-1-episode-10/
+
+As Marshals delves into Kayce Dutton's past, the show explores the unresolved storylines from Yellowstone, testing Kayce's future as a lawman.
+---------
+
+# 'Highlander' Images Reveal Henry Cavill as a 16th Century Warrior
+
+Movie News, Henry Cavill, Highlander, Karen Gillan
+
+Tue, 05 May 2026 19:55:54 GMT
+
+https://movieweb.com/highlander-images-henry-cavill-karen-gillan/
+
+Henry Cavill and Karen Gillan get into their 16th century best on the set of 'Highlander.'
+---------
+
+# Hulu Just Dropped a Surprise 'The Bear' Prequel That Changes Everything
+
+Features, The Bear
+
+Tue, 05 May 2026 19:22:49 GMT
+
+https://movieweb.com/the-bear-surprise-prequel-episode-gary-important/
+
+'The Bear' just dropped a surprise prequel episode called "Gary" featuring Richie (Ebon Moss-Bachrach) and Mikey (Jon Bernthal).
+---------
+
+# 'Supergirl' Director Confirms Runtime for Upcoming DCU Film
+
+Movie News, Supergirl
+
+Tue, 05 May 2026 19:01:24 GMT
+
+https://movieweb.com/supergirl-runtime-revealed/
+
+Director Craig Gillespie reveals 'Supergirl' will have an approximate 110-minute runtime, with credits.
+---------
+
 # Prime Video's Fallout Successor Can Be The Definitive Adaptation Of A Video Game Classic
 
 TV, Tomb Raider, Fallout, Prime Video
