@@ -1,3 +1,256 @@
+# Star Wars Needs Episode 10 More Than It Ever Needed Episode 7
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Tue, 05 May 2026 22:45:20 GMT
+
+https://screenrant.com/star-wars-episode-10-franchise-theatrical-future-movies/
+
+Discover why Episode X is crucial for the Star Wars franchise to regain its former glory and move forward from past failures in this insightful analysis.
+---------
+
+# James Cameron Wants To Remake The Best Sci-Fi Sequel Of All Time In A Controversial New Way
+
+Movies, Aliens
+
+Tue, 05 May 2026 22:40:51 GMT
+
+https://screenrant.com/aliens-3d-conversion-james-cameron-explained/
+
+Director James Cameron reveals plans to convert his iconic sci-fi sequel, Aliens, into 3D.
+---------
+
+# Apple TV's 3-Part Space Opera Series Makes Star Wars Look Small
+
+Streaming TV, Masked Recs
+
+Tue, 05 May 2026 22:33:20 GMT
+
+https://screenrant.com/foundation-space-opera-series-makes-star-wars-small/
+
+There's plenty of small-screen tales from the galaxy far, far away, but a single ambitious Apple space opera dwarfs all of them combined.
+---------
+
+# Goodreads Officially Crowns the Best Fantasy Book Of The Decade (Exclusive)
+
+Books, Fantasy
+
+Tue, 05 May 2026 22:30:20 GMT
+
+https://screenrant.com/goodreads-official-best-fantasy-book-and-romantasy-decade-exclusive/
+
+Goodreads officially confirms the best fantasy book and the best romantasy book of the last decade, and it's not even close.
+---------
+
+# Karl Urban's Next Major Recurring Role After The Boys Could Start This Week
+
+Movies, Mortal Kombat II
+
+Tue, 05 May 2026 22:30:20 GMT
+
+https://screenrant.com/karl-urban-next-major-role-johnny-cage-mortal-kombat/
+
+Karl Urban's role as Billy Butcher in The Boys is ending later this month, but his next recurring franchise role may be starting this week.
+---------
+
+# From Season 4 Officially Makes A Harsh Reality Worse For One Character
+
+Streaming TV, From, FROM - Season 4
+
+Tue, 05 May 2026 22:30:20 GMT
+
+https://screenrant.com/from-season-4-tabitha-past-harsh-reality-made-worse/
+
+Life is incredibly hard for From's characters, and season 4 is making a harsh reality even more difficult for one particularly important character.
+---------
+
+# Resident Evil's 10 Most Iconic Weapons, Ranked
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Tue, 05 May 2026 22:30:20 GMT
+
+https://screenrant.com/resident-evil-most-iconic-weapons-ranked/
+
+The cast of the Resident Evil games would barely stand a chance without their arsenal of weapons, but some stand out far more than the others.
+---------
+
+# Netflix's Once Piece Is The Best Fantasy Show On TV
+
+Streaming TV, Masked Recs
+
+Tue, 05 May 2026 22:15:20 GMT
+
+https://screenrant.com/one-piece-live-action-best-fantasy-show-tv-streaming/
+
+Fantasy has been hit or miss in recent years, but with examples from shows like Lord of the Rings and Stranger Things, one series stands out.
+---------
+
+# Taylor Sheridan's New Western Series Is So Good, It's Already Renewed For 2 More Seasons
+
+TV, Taylor Sheridan, Masked Recs, Paramount Plus
+
+Tue, 05 May 2026 22:06:20 GMT
+
+https://screenrant.com/the-madison-taylor-sheridan-western-renewed-seasons-2-3/
+
+Taylor Sheridan's Yellowstone replacement will last at least two more seasons at Paramount+ after breaking viewership records with its first outing.
+---------
+
+# The Fate Of Power Rangers' Greatest '90s Villain Will Shock OG Fans
+
+Classic TV, Power Rangers
+
+Tue, 05 May 2026 22:03:20 GMT
+
+https://screenrant.com/power-rangers-lord-zedd-fate-cosmic-fury-rita-repulsa-prison/
+
+The most iconic antagonist in Power Rangers history has an ending that almost defies belief but remains incredibly true to the spirit of the series.
+---------
+
+# 8 Best-Written Anime Of The '90s
+
+Anime
+
+Tue, 05 May 2026 22:15:13 GMT
+
+https://www.cbr.com/best-written-anime-of-the-1990s/
+
+The 1990s changed the game for writing in anime, taking the medium in a darker and more mature direction.
+---------
+
+# Matthew Rhys & Rosamund Pike's Thriller Hallow Road Tops Hulu Charts
+
+Movies, Hallow Road, Thriller, Hulu
+
+Tue, 05 May 2026 22:00:13 GMT
+
+https://www.cbr.com/matthew-rhys-rosamund-pike-hallow-road-thriller-hulu-success-may-2026/
+
+The underrated psychological horror thriller Hallow Road, starring Matthew Rhys and Rosamund Pike, is one of the most-watched movies in America.
+---------
+
+# Netflix's Narnia Is Officially the End of the Streaming Era
+
+Movies, Narnia: The Magician's Nephew, Netflix
+
+Tue, 05 May 2026 22:00:13 GMT
+
+https://www.cbr.com/netflix-narnia-movie-end-of-streaming-era/
+
+Netflix will be making some huge changes with the release of Greta Gerwig's Narnia reboot, starting with The Magician's Nephew in 2027.
+---------
+
+# Maul - Shadow Lord Subverted Star Wars' Oldest Jedi Tradition
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord
+
+Tue, 05 May 2026 21:58:14 GMT
+
+https://www.cbr.com/maul-shadow-lord-breaks-oldest-star-wars-jedi-trope/
+
+The thrilling finale of Star Wars: Maul - Shadow Lord's first season put a dark twist on a trope that began in the original Star Wars film.
+---------
+
+# Taylor Sheridan's Marshals Tops Paramount+ Streaming Chart
+
+TV, Marshals, Paramount+ with Showtime, Western
+
+Tue, 05 May 2026 21:49:06 GMT
+
+https://www.cbr.com/marshals-western-success-paramount-plus-may-2026/
+
+Taylor Sheridan's Yellowstone spinoff, Marshals, claims the top streaming television spot on Paramount+.
+---------
+
+# 25 Years Later, This 'Landman' Star's Psychological Drama Remains Perfect From Start to Finish
+
+Movie Features, monster's ball, Halle Berry, Billy Bob Thornton, Marc Forster
+
+Tue, 05 May 2026 22:22:13 GMT
+
+https://collider.com/billy-bob-thornton-monsters-ball-halle-berry-perfect-start-to-finsh/
+
+Monster’s Ball remains a powerful look at racism, grief, and redemption, anchored by Halle Berry’s historic Oscar-winning performance.
+---------
+
+# 10 Greatest Sci-Fi Video Games of All Time, Ranked
+
+Movie, Video Game, Portal, Metroid, Mass Effect
+
+Tue, 05 May 2026 22:00:14 GMT
+
+https://collider.com/best-sci-fi-video-games-all-time-ranked/
+
+Sci-fi has had a celebrated history in the realm of video games, producing many certified masterpieces like Mass Effect, Bioshock, and Half-Life 2.
+---------
+
+# All 7 Stephen King Short Story Collections, Ranked
+
+Movie, Stephen King, Nightmares & Dreamscapes: From the Stories of Stephen King, The Mist, The Dark Tower
+
+Tue, 05 May 2026 21:56:13 GMT
+
+https://collider.com/every-stephen-king-short-story-collection-ranked/
+
+Some of Stephen King's best works can be found in short story collections like Nightmares & Dreamscapes, You Like It Darker, and Skeleton Crew.
+---------
+
+# 10 Most Universally Beloved Sitcom Characters of All Time, Ranked
+
+TV, Sitcom, Ted Lasso, Parks and Recreation, New Girl
+
+Tue, 05 May 2026 21:44:15 GMT
+
+https://collider.com/tv-sitcom-universally-beloved-characters-all-time-ranked/
+
+From Parks and Recreation's Leslie Knope to Schitt's Creek's Moira Rose, which TV sitcom character is the most universally beloved by audiences?
+---------
+
+# Netflix's 2-Part Gritty Horror Thriller Is the Perfect Binge Before the Sequel
+
+Movie Features, 28 Years Later, 28 Years Later: The Bone Temple, Netflix, Danny Boyle
+
+Tue, 05 May 2026 21:42:41 GMT
+
+https://collider.com/netflix-horror-movie-28-years-later-weekend-binge-streaming/
+
+Both of the incredible 28 Years Later films are streaming on Netflix.
+---------
+
+# 'Interstellar' Is Officially Crowned as Letterboxd's Most-Watched Film Ever
+
+Movie News, Interstellar, Christopher Nolan
+
+Tue, 05 May 2026 22:37:41 GMT
+
+https://movieweb.com/interstellar-letterboxd-most-watched-film/
+
+Christopher Nolan's epic and moving film is a hit with Letterboxd users.
+---------
+
+# Steven Spielberg's 'Disclosure Day' Can't Hide New 'Close Encounters' Sequel Evidence
+
+Features, Steven Spielberg, Disclosure Day, Close Encounters of The Third Kind, Sci-Fi
+
+Tue, 05 May 2026 22:36:52 GMT
+
+https://movieweb.com/steven-spielberg-disclosure-sequel-connection-new-evidence/
+
+A new piece of photographic evidence from 'Disclosure Day' can't hide the fact that it's a secret sequel anymore.
+---------
+
+# 'Manhunt': Stream Marvel Star Paul Bettany's Forgotten 8-Part Crime Thriller for Free
+
+Features, Paul Bettany
+
+Tue, 05 May 2026 22:00:19 GMT
+
+https://movieweb.com/manhunt-paul-bettany-free-streaming/
+
+'Manhunt,' an anthology crime thriller series starring Paul Bettany, can now be watched for free.
+---------
+
 # Bourne Meets Bond In Paramount+'s 10-Part Thriller That's Designed To Be Binged
 
 Streaming TV, Masked Recs
