@@ -1,3 +1,245 @@
+# Netflix's Hit 'Hannibal Meets Criminal Minds' Series Is One Of Its Best Psychological Thrillers
+
+TV, Netflix, Masked Recs
+
+Tue, 05 May 2026 23:36:20 GMT
+
+https://screenrant.com/mindhunter-netflix-tv-show-hannibal-meets-criminal-minds/
+
+One Netflix show is a perfect substitute for both Criminal Minds and Hannibal, thanks to its fascination with the inner workings of murderers.
+---------
+
+# Star Wars’ Epic Maul vs Darth Vader Showdown Is Deeper (And Much Darker) Than You Realize
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars, Anakin Skywalker/Darth Vader
+
+Tue, 05 May 2026 23:30:20 GMT
+
+https://screenrant.com/star-wars-maul-vs-darth-vader-showdown-deeper-connections-op-ed/
+
+Shadow Lord gave Star Wars fans the long-awaited duel between Darth Vader and Maul. However, it's far more significant than a simple Sith showdown.
+---------
+
+# NBC Officially Decides The Fate Of Daniel Radcliffe's New Comedy Series
+
+TV, The Fall and Rise of Reggie Dinkins
+
+Tue, 05 May 2026 23:12:56 GMT
+
+https://screenrant.com/the-fall-and-rise-of-reggie-dinkins-nbc-season-2-renewed/
+
+NBC's new comedy series starring Daniel Radcliffe earned a rare Rotten Tomatoes score, and now its season 2 fate has been officially decided.
+---------
+
+# DC Is Building Up To Its Own Civil War, Officially Confirmed
+
+DC Comics, Justice League
+
+Tue, 05 May 2026 23:00:21 GMT
+
+https://screenrant.com/justice-league-dc-civil-war/
+
+DC is setting the stage for the Justice League's equivalent of Marvel's Civil War, as heroes grow divided over their villain amnesty initiative.
+---------
+
+# After 37 Episodes, The Boys Marks A Surprising First For The Deep
+
+Streaming TV, The Boys
+
+Tue, 05 May 2026 23:00:21 GMT
+
+https://screenrant.com/the-boys-deep-no-costume-season-5/
+
+The Boys often uses The Deep in a specific way, but five seasons and 37 episodes in, a key difference represents a further side to his character.
+---------
+
+# Bloodborne 60fps Release Leaves Fans Seriously Impressed
+
+Gaming, Bloodborne, Triple-A Games
+
+Tue, 05 May 2026 23:00:21 GMT
+
+https://screenrant.com/bloodborne-60fps-co-op-gameplay-mods/
+
+From Software's Bloodborne is already a seriously impressive game, but this 60 fps release has left many gamers stunned at the quality.
+---------
+
+# 7 Sci-Fi Books Better Than Dune
+
+Movies, Dune
+
+Tue, 05 May 2026 23:00:21 GMT
+
+https://screenrant.com/sci-fi-books-better-than-dune/
+
+Dune is one of the greatest science fiction novels ever written, but there are is a small handful of strong works that might be even better.
+---------
+
+# Studio Ghibli Officially Releases New Hayao Miyazaki Collection With 178 Unseen Works
+
+Anime, Hayao Miyazaki, Studio Ghibli, Whisper of the Heart, merchandise
+
+Tue, 05 May 2026 23:10:12 GMT
+
+https://www.cbr.com/studio-ghibli-hayao-miyazaki-new-collection-june-2026/
+
+Studio Ghibli unveils a grand collection of never-before-seen illustrations created by Hayao Miyazaki for two of his most underrated '90s productions.
+---------
+
+# 5 Sitcoms That Aren’t As Good As You Remember (& 5 That Still Hold Up)
+
+TV, Sitcoms, Friends, Modern Family, The Office
+
+Tue, 05 May 2026 23:00:13 GMT
+
+https://www.cbr.com/sitcoms-outdated-still-good-list/
+
+While some sitcoms prove that their humor, characters, and storylines are timeless, shows like Friends haven't always aged well.
+---------
+
+# It's Officially a New Era for Steam in 2026
+
+Games, Steam
+
+Tue, 05 May 2026 23:00:13 GMT
+
+https://www.cbr.com/steam-new-era-2026-steam-deck-shortage-controller/
+
+Steam is jumping headfirst into the hardware market, but the rising cost of RAM could make that a dangerous leap.
+---------
+
+# Green Book Becomes a Global Streaming Hit 8 Years Later
+
+Movies, Green Book, Drama, Netflix
+
+Tue, 05 May 2026 23:00:13 GMT
+
+https://www.cbr.com/green-book-mahershala-ali-drama-streaming-success-netflix-may-2026/
+
+An Academy Award-winning drama starring Mahershala Ali is rising on the streaming charts eight years after becoming a massive box office hit.
+---------
+
+# 10 Most Intense Action Scenes in Star Trek Movies, Ranked
+
+Movies, Star Trek
+
+Tue, 05 May 2026 23:00:13 GMT
+
+https://www.cbr.com/star-trek-movies-best-action-scenes-list/
+
+While mostly known for its high-minded allegory and character drama, Star Trek is no stranger to intense action sequences, especially in its movies.
+---------
+
+# Russell Crowe's Stunning WWII Thriller Is Proving Why It Has a Near-Perfect Audience Score on Netflix
+
+Movie News, Russell Crowe, Rami Malek, Nuremberg, World War II
+
+Tue, 05 May 2026 23:30:13 GMT
+
+https://collider.com/russell-crowe-ww2-thriller-nuremberg-streaming-success-netflix-may-2026/
+
+Russell Crowe’s WW2 thriller Nuremberg has become a late-night streaming hit after earning a 95% audience score.
+---------
+
+# Apple TV's 90% RT Crime Series Surges the Charts Following Its Most Devastating Case Yet
+
+TV Features, Criminal Record, Apple TV, Peter Capaldi, Series
+
+Tue, 05 May 2026 23:29:21 GMT
+
+https://collider.com/apple-tv-criminal-record-season-2-charts-devastating-case/
+
+Criminal Record climbs Apple TV charts after Season 2’s devastating case. Here’s why the 90% RT crime drama is finally breaking out.
+---------
+
+# Alan Ritchson’s WWII Action Thriller Officially Gets New Streaming Release Date
+
+Movie News, Henry Cavill, Alan Ritchson, The Ministry of Ungentlemanly Warfare, Guy Ritchie
+
+Tue, 05 May 2026 23:15:14 GMT
+
+https://collider.com/henry-cavill-alan-ritchson-ww2-movie-the-ministry-of-ungentlemanly-warfare-streaming-release-date-peacock-may-18-2026/
+
+Henry Cavill and Alan Ritchson’s Guy Ritchie WW2 movie The Ministry of Ungentlemanly Warfare lands on Peacock this May.
+---------
+
+# 10 Worst Remakes of Beloved Horror Movies
+
+Movie, Horror, One Missed Call, Psycho, The Wicker Man
+
+Tue, 05 May 2026 23:15:14 GMT
+
+https://collider.com/worst-remakes-of-beloved-horror-movies/
+
+Horror remakes often lose what made the originals work, with failures like The Omen and Black Christmas retreads among the most notable examples.
+---------
+
+# Jon Hamm's New 8-Part Crime Thriller Gets a Stunning First Look
+
+TV News, Jon Hamm, Giovanni Ribisi, MGM, Crime
+
+Tue, 05 May 2026 23:09:23 GMT
+
+https://collider.com/jon-hamm-crime-thriller-american-hostage-first-look-mgm-plus/
+
+Mad Men icon Jon Hamm returns to TV with the new MGM+ crime thriller, American Hostage. See the first look here!
+---------
+
+# Henry Cavill Is Ready for Action in Sneak Peek of Guy Ritchie's New Thriller Releasing in 10 Days [Exclusive]
+
+Movie News, In the Grey, Guy Ritchie, Henry Cavill, Jake Gyllenhaal
+
+Tue, 05 May 2026 23:00:13 GMT
+
+https://collider.com/guy-ritchie-in-the-grey-sneak-peek-henry-cavill-jake-gyllenhaal-eiza-gonzalez/
+
+Check out a sneak peek of Guy Ritchie's new action movie, In The Grey, starring Jake Gyllenhaal, Henry Cavill, and Eiza González.
+---------
+
+# 1 Year Later, Gerad Butler's Sci-Fi Thriller Is Officially Taking Over the World
+
+Movie News, Gerard Butler, Greenland 2: Migration, Sci-Fi, Morena Baccarin
+
+Tue, 05 May 2026 23:00:13 GMT
+
+https://collider.com/gerard-butler-sci-fi-movie-greenland-2-migration-streaming-success-prime-video-may-2026/
+
+Greenland 2: Migration is dominating streaming charts as Gerard Butler’s post-apocalyptic sci-fi sequel finds new life.
+---------
+
+# 'Attack on Titan: The Last Attack' Gets Surprise US 4K Theatrical Release
+
+Movie News, Attack on Titan, Attack on Titan: The Last Attack
+
+Tue, 05 May 2026 23:35:47 GMT
+
+https://movieweb.com/attack-on-titan-surprise-theatrical-release/
+
+The epic finale to the hit anime series is retuning to theaters for a special event.
+---------
+
+# Darth Vader's 'Shadow Lord' Cameo Lets Maul Take a Break From Villainy
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Tue, 05 May 2026 23:00:18 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-darth-vader-cameo/
+
+Maul's status as a villain has always come with the caveat of being too likeable, but that's no longer the case. Read on for more.
+---------
+
+# 'Yellowstone' Veteran Teases "New Beginning" for Taylor Sheridan Franchise
+
+TV News, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Tue, 05 May 2026 22:56:36 GMT
+
+https://movieweb.com/yellowstone-cole-hauser-taylor-sheridan-dutton-ranch/
+
+'Dutton Ranch' is set in a new state and brings in a new cast of stars, but it has the same intense, 'Yellowstone'-style drama.
+---------
+
 # Star Wars Needs Episode 10 More Than It Ever Needed Episode 7
 
 Movies, Star Wars, The Mandalorian and Grogu
