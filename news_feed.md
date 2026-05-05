@@ -1,3 +1,300 @@
+# Bourne Meets Bond In Paramount+'s 10-Part Thriller That's Designed To Be Binged
+
+Streaming TV, Masked Recs
+
+Tue, 05 May 2026 21:30:21 GMT
+
+https://screenrant.com/the-agency-paramount-plus-bourne-meets-bond-thriller-series/
+
+Jason Bourne meets James Bond in this ten-episode spy thriller available on Paramount+ that is based on one of the greatest thriller series ever.
+---------
+
+# Robert Pattinson & Zendaya's New A24 Movie Is Available To Watch At Home After Record Box Office
+
+Movies, The Drama, Robert Pattinson, Zendaya, A24
+
+Tue, 05 May 2026 21:26:50 GMT
+
+https://screenrant.com/robert-pattinson-the-drama-movie-zendaya-digital-streaming-vod-available/
+
+Robert Pattinson and Zendaya starred in a critically and commercially successful A24 movie in early 2026, and now it can be watched at home.
+---------
+
+# Netflix's Masterpiece 3-Part Sci-Fi Series Succeeds In Its Hardest Task
+
+TV, Masked Recs
+
+Tue, 05 May 2026 21:20:19 GMT
+
+https://screenrant.com/netflix-dark-sci-fi-series-time-travel-no-plot-holes/
+
+One of Netflix's best Sci-Fi series is a masterpiece 3-part show that had a nearly impossible task ahead of it, but managed to succeed.
+---------
+
+# Netflix’s Stephen King-Approved Adaptation Of 72-Year-Old Survival Thriller Takes America By Storm
+
+TV, Masked Recs
+
+Tue, 05 May 2026 21:16:34 GMT
+
+https://screenrant.com/lord-of-the-flies-netflix-streaming-success-may-2026/
+
+Stephen King has called this adaptation of a 72-year-old survival thriller "remarkable," and it's now taking Netflix by storm in the United States.
+---------
+
+# Daredevil: Born Again Season 3 - Confirmation, Cast, Story Details & Everything We Know
+
+Streaming TV, Daredevil: Born Again
+
+Tue, 05 May 2026 21:16:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-explained/
+
+Daredevil: Born Again continues to be one of the best and most successful MCU TV shows, and its future is already looking bright with season 3.
+---------
+
+# Amazon Requests Privacy For Movie Filming Of Hit 3-Season Series After Disruptions
+
+TV, The Summer I Turned Pretty
+
+Tue, 05 May 2026 21:04:16 GMT
+
+https://screenrant.com/the-summer-i-turned-pretty-movie-filming-amazon-privacy-request/
+
+One of Prime Video’s hit TV shows is currently filming a movie to wrap up the story, but the production process has faced unnecessary disruptions.
+---------
+
+# Zelda: Ocarina Of Time Remake Confirmed, And We All Missed It
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Tue, 05 May 2026 21:00:21 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-aonuma-teased/
+
+The Legend of Zelda fans are buzzing with excitement as rumors of an Ocarina of Time remake continue to swirl, and they've got good reason to geek out
+---------
+
+# After 2 Years, Kingsman's Secret Spinoff Spy Movie Is Now A Global Smash Hit & It's Worth Watching
+
+Movies, Masked Recs
+
+Tue, 05 May 2026 21:00:21 GMT
+
+https://screenrant.com/argylle-spy-movie-kingsman-apple-tv-must-watch/
+
+A secret spy movie set in the Kingsman franchise has become a global smash hit two years after it was released in theaters, and it is worth watching.
+---------
+
+# The Boys Predicted Yet Another Real-Life News Story Before It Happened
+
+Streaming TV, The Boys
+
+Tue, 05 May 2026 21:00:21 GMT
+
+https://screenrant.com/the-boys-trump-broadcast-license-prediction/
+
+The Boys satire has become increasingly accurate over the years, and the show once again mimicked real-life news with one hilarious scene.
+---------
+
+# Ryan Reynolds' Soccer Club Wrexham AFC Misses Out On Playoffs In Welcome To Wrexham
+
+Streaming TV, Masked Recs, Ryan Reynolds
+
+Tue, 05 May 2026 20:45:22 GMT
+
+https://screenrant.com/ryan-reynolds-welcome-to-wrexham-tv-show-season-5-bad-news/
+
+Ryan Reynolds isn't used to failure, but his biggest TV show just suffered a major setback ahead of its fifth season's imminent release.
+---------
+
+# Star Trek's Best Spock Quotes
+
+TV, Star Trek, Spock, quotes
+
+Tue, 05 May 2026 21:30:14 GMT
+
+https://www.cbr.com/spock-best-quotes-star-trek/
+
+Spock is known for his highly quotable lines, which range from wise observations about the universe to downright sarcastic responses.
+---------
+
+# 10 Hardest PS2 Bosses of All Time
+
+Games, PlayStation 2, Video Games
+
+Tue, 05 May 2026 21:16:13 GMT
+
+https://www.cbr.com/hardest-ps2-bosses-all-time/
+
+Think of a boss from any PS2 game, and they won't be as bad as Metal Gear Solid 3's The End and Resident Evil 4's Verdugo.
+---------
+
+# The Hunger Games Movies Are Streaminmg Free Ahead of Prequel
+
+Movies
+
+Tue, 05 May 2026 21:01:20 GMT
+
+https://www.cbr.com/the-hunger-games-streaming-free-philo-may-2026/
+
+The original four Hunger Games movies are streaming for free ahead of the new prequel, Sunrise on the Reaping.
+---------
+
+# Star Wars Confirms Mandalorian and Grogu Return After Upcoming Movie Event
+
+Comics, The Mandalorian and Grogu, Star Wars
+
+Tue, 05 May 2026 21:00:14 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-danger-in-the-dark-release-date-confirmed/
+
+The Mandalorian and Grogu's movie follow-up comes sooner than expected.
+---------
+
+# 10 Space Fantasy Books Perfect for Star Wars Fans
+
+Movies, Star Wars
+
+Tue, 05 May 2026 21:00:14 GMT
+
+https://www.cbr.com/greatest-space-fantasy-books-for-star-wars-fans/
+
+Any die-hard fan will love these science fiction space fantasy books that are perfect reading material on Star Wars Day
+---------
+
+# 9 Action-Packed Sci-Fi Hits on Disney+ Right Now
+
+Movies, Disney+
+
+Tue, 05 May 2026 20:30:14 GMT
+
+https://www.cbr.com/disney-plus-best-action-sci-fi-movies-streaming-may-2026/
+
+Discover the top sci-fi movies streaming on Disney+, from classic favorites to cult hits, offering action, adventure, and thought-provoking stories.
+---------
+
+# Obscure One Piece Character Is Officially More Popular Than Ever
+
+Anime, One Piece
+
+Tue, 05 May 2026 20:15:12 GMT
+
+https://www.cbr.com/one-piece-popularity-poll-rocks-d-xebec-rockstar/
+
+One of One Piece's most obscure characters is doing amazingly well in an official popularity poll, but it's all due to a fluke, thansk to his name.
+---------
+
+# Mortal Kombat Becomes a Streaming Hit on HBO Max Ahead of New Sequel
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Tue, 05 May 2026 20:06:29 GMT
+
+https://www.cbr.com/mortal-kombat-action-success-hbo-max-may-2026/
+
+2021's Mortal Kombat movie is back on the HBO Max charts ahead of Mortal Kombat 2's theatrical debut.
+---------
+
+# Dragon Ball Unearths Original 32-Year-Old Art Giving Goku a Military Redesign
+
+Anime, Dragon Ball, Akira Toriyama
+
+Tue, 05 May 2026 20:02:47 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-goku-military-uniform-original-draft-art/
+
+For a limited time only, Dragon Ball unearths a rare piece of art replacing Goku's most iconic design with a surprisingly political look.
+---------
+
+# Sci-Fi Fans Will Need to Pause Every Second of The Upcoming 'Spaceballs' Sequel [Exclusive]
+
+Movie News, Lewis Pullman, Spaceballs: The New One, Rick Moranis, Remarkably Bright Creatures
+
+Tue, 05 May 2026 21:08:10 GMT
+
+https://collider.com/spaceballs-2-the-new-one-update-lewis-pullman-rick-moranis-what-to-expect/
+
+Lewis Pullman discusses the highly anticipated Spaceballs: The New One film, praising the seamless return of Rick Moranis as Dark Helmet and more!
+---------
+
+# Guillermo del Toro's 10/10 Fantasy Epic Gets a 4K Release 20 Years Later
+
+Movie News, Pan's Labyrinth, Guillermo del Toro, Cannes Film Festival, Doug Jones
+
+Tue, 05 May 2026 20:24:35 GMT
+
+https://collider.com/guillermo-del-toro-fantasy-epic-pans-labyrinth-4k-cannes-release/
+
+Guillermo del Toro's Pan's Labyrinth is officially returning to the festival where it first shattered records. Read on for more.
+---------
+
+# Only 3 'Game of Thrones' Seasons Can Be Considered Masterpieces
+
+TV, Game Of Thrones, Fantasy, A Song of Ice and Fire, HBO
+
+Tue, 05 May 2026 20:15:12 GMT
+
+https://collider.com/game-of-thrones-seasons-masterpieces/
+
+Despite the controversy, Game of Thrones' first four seasons remain the stuff of TV legend, but only three of them deserve to be called masterpieces.
+---------
+
+# Christopher Nolan's 'The Odyssey': 6 Biggest Reveals From the New Trailer
+
+Movie Lists, The Odyssey
+
+Tue, 05 May 2026 21:05:55 GMT
+
+https://movieweb.com/the-odyssey-biggest-trailer-reveals/
+
+The latest trailer for Christopher Nolan's epic action movie 'The Odyssey' starring Robert Pattinson and Matt Damon shares many big reveals.
+---------
+
+# ‘The White Lotus’ Season 4 Storyline Confirmed
+
+TV News, The White Lotus, HBO Max, Helena Bonham Carter
+
+Tue, 05 May 2026 21:04:22 GMT
+
+https://movieweb.com/the-white-lotus-season-4-storyline-helena-bonham-carter-laura-dern/
+
+Also, new details emerge about why Helena Bonham Carter left the project.
+---------
+
+# 'The Rookie' Creator Talks Season 8 Finale Cliffhanger, Cast Changes
+
+TV News, Eric Winter, The Rookie
+
+Tue, 05 May 2026 20:39:57 GMT
+
+https://movieweb.com/the-rookie-finale-cliffhanger-cast-changes/
+
+Alexi Hawley says Season 9 will deal with the fallout from the finale shock and confirms no series regulars are exiting ahead of the ABC hit’s return.
+---------
+
+# Kurt Russell Doubts Netflix Will Make a 'Christmas Chronicles 3'
+
+Movie News, The Christmas Chronicles, The Christmas Chronicles 2, Kurt Russell, Netflix
+
+Tue, 05 May 2026 20:36:59 GMT
+
+https://movieweb.com/christmas-chronicles-3-kurt-russell-reaction/
+
+The Santa Claus actor thinks they narrative may have run its course after two movies.
+---------
+
+# 'Highlander' Set Images Reveal Henry Cavill & Karen Gillen in Action Fantasy Reboot
+
+Movie News, Henry Cavill, Highlander, Karen Gillan
+
+Tue, 05 May 2026 19:55:54 GMT
+
+https://movieweb.com/highlander-set-images-henry-cavill-karen-gillan/
+
+Henry Cavill and Karen Gillan get into their 16th century best on the set of 'Highlander.'
+---------
+
 # The 7-Part Dystopian Series Streaming For Free This Month Deserves Its 93% Rotten Tomatoes Score
 
 TV, Masked Recs
