@@ -1,3 +1,201 @@
+# Christopher Nolan's New Trailer For The Odyssey Reveals Mythological Epic's Full Cast
+
+Movies, The Odyssey
+
+Tue, 05 May 2026 04:14:31 GMT
+
+https://screenrant.com/the-odyssey-trailer-2/
+
+Matt Damon's Odysseus undertakes an epic journey and encounters terrifying monsters in the new trailer for Christopher Nolan's The Odyssey.
+---------
+
+# Steam Drops Gorgeous New RPG You Can Play Free Now
+
+Gaming, Steam, PC, Indie
+
+Tue, 05 May 2026 04:00:28 GMT
+
+https://screenrant.com/steam-new-rpg-test-free-may-2026/
+
+A gorgeous new action RPG that has yet to be released can be played for free on Steam, but you’d better move fast to make sure you can test it.
+---------
+
+# From's Worst Death Of The Series Gets Honest Reaction From Star
+
+TV, From, FROM - Season 4
+
+Tue, 05 May 2026 02:35:26 GMT
+
+https://screenrant.com/from-season-4-jim-death-catalina-sandino-moreno-response/
+
+EXCLUSIVE: There have been several memorable character deaths in From, with one of the show's stars honestly reacting to the worst one.
+---------
+
+# Steven Spielberg's Disclosure Day Sneak Peek Reveals Full Look at UFO
+
+Movies, Disclosure Day, steven spielberg
+
+Tue, 05 May 2026 03:46:41 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-ufo-first-look/
+
+A new look at Steven Spielberg's Disclosure Day officially reveals a UFO piloted by the alien invaders.
+---------
+
+# After Netflix's Apex, Dangerous Animals Makes For a Perfect Thriller Double Feature
+
+Movies, Apex, Netflix, Dangerous Animals
+
+Tue, 05 May 2026 03:45:13 GMT
+
+https://www.cbr.com/netflix-apex-dangerous-animals-perfect-double-feature/
+
+Netflix's Apex delivers an amazing survival story, and Shudder's Dangerous Animals is perfect for a double feature.
+---------
+
+# 10 Best-Written Manga of the Last 10 Years
+
+Anime, Manga, Jujutsu Kaisen, Frieren: Beyond Journey's End, Kagurabachi, Chainsaw Man
+
+Tue, 05 May 2026 03:45:13 GMT
+
+https://www.cbr.com/best-written-manga-last-10-years/
+
+From Chainsaw Man to Frieren, the last ten years have brought so many outstanding manga to readers.
+---------
+
+# 10 Moments That Made The Vampire Diaries Fans Quit the Show (& Never Look Back)
+
+TV, The Vampire Diaries, The CW, Drama
+
+Tue, 05 May 2026 03:30:13 GMT
+
+https://www.cbr.com/the-vampire-diaries-moments-made-fans-quit-show-list/
+
+The Vampire Diaries remains a beloved series, but that didn't stop certain fans from dropping the show forever for various reasons.
+---------
+
+# Ciarán Hinds' Narnia Casting Discredits a Major Aslan Rumor
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, The Lord of the Rings: The Rings of Power
+
+Tue, 05 May 2026 03:15:13 GMT
+
+https://www.cbr.com/ciaran-hinds-narnia-casting-meryl-streep-aslan-rumor/
+
+A The Lord of the Rings: The Rings of Power star was just added to the cast of Netflix's The Magician's Nephew, contradicting a long-standing rumor.
+---------
+
+# Top 10 Super Smash Bros. Remixes Ranked
+
+Games, Video Games, Nintendo, Super Smash Bros
+
+Tue, 05 May 2026 03:15:13 GMT
+
+https://www.cbr.com/official-best-super-smash-bros-remixes/
+
+Super Smash Bros is famous for taking some of the most famous video game songs of all time and making them even better.
+---------
+
+# Nicolas Cage's Longlegs Officially Sets Sequel Release Date
+
+Movies, Longlegs
+
+Tue, 05 May 2026 03:00:33 GMT
+
+https://www.cbr.com/longlegs-2-official-release-date/
+
+The hit horror movie dubbed the "scariest film of the decade" has finally set a release date for its sequel.
+---------
+
+# New One Piece Manga Sells 280K Copies in 4 Days After Surprise Delay
+
+Anime, One Piece
+
+Tue, 05 May 2026 03:00:13 GMT
+
+https://www.cbr.com/one-piece-chopper-manga-delay-oricon-manga-sales/
+
+After a significant delay, One Piece's latest manga release tops Oricon's weekly manga sales by a huge margin.
+---------
+
+# Kaiju No. 8 Characters Who Would Make Great Pro Heroes in MHA
+
+Anime, Kaiju No. 8, My Hero Academia
+
+Tue, 05 May 2026 02:45:13 GMT
+
+https://www.cbr.com/kaiju-no-8-characters-great-pro-heroes-in-mha/
+
+These characters from Kaiju No. 8 could easily adapt to a world built around professional heroes.
+---------
+
+# 10 Most Perfect Western Movie Anti-Heroes, Ranked
+
+Movies, Western, The Good, the Bad and the Ugly, Unforgiven
+
+Tue, 05 May 2026 02:45:13 GMT
+
+https://www.cbr.com/western-movies-with-perfect-anti-heroes-list/
+
+The antihero archetype has defined the Western since the days of silent movies, and some of the best continue to represent the genre to a tee.
+---------
+
+# 10 Prime Video Shows That Will Keep You Hooked From Start to Finish
+
+TV, Prime Video, The Boys, Reacher, Invincible
+
+Tue, 05 May 2026 03:55:13 GMT
+
+https://collider.com/prime-video-shows-hooked-start-to-finish/
+
+From the action-packed Reacher to the hit superhero series The Boys, these Prime Video shows will keep you hooked to your screen from start to finish.
+---------
+
+# The 21st-Century’s Greatest Espionage Thriller Spin-off Series Just Became the Best Weekend Binge
+
+TV Features, 24, 24: Legacy, Corey Hawkins, Tubi
+
+Tue, 05 May 2026 03:44:13 GMT
+
+https://collider.com/24-legacy-spin-off-weekend-binge-watch-on-tubi/
+
+24: Legacy more than lives up to its predecessor, as it's become a streaming sensation on Tubi.
+---------
+
+# 10 Classic Horror Movies That Are Still Perfect Today
+
+Movie, Don't Look Now, Psycho, The Innocents, Halloween
+
+Tue, 05 May 2026 03:11:14 GMT
+
+https://collider.com/classic-horror-movies-still-perfect-today/
+
+Undeniable horror movie classics like The Innocents, Night of the Living Dead, and Halloween hold up fearsomely well to this day.
+---------
+
+# 'The Rookie' Wraps Up With a Chenford Cliffhanger That Saves an Uneven Season 8 | Review
+
+TV Reviews, The Rookie, ABC, Nathan Fillion, Melissa O'Neil
+
+Tue, 05 May 2026 03:00:14 GMT
+
+https://collider.com/the-rookie-season-8-finale-cliffhanger-chenford-engagement/
+
+The Rookie's Season 8 finale features a thrilling Chenford cliffhanger that rescues the uneven season, setting up exciting storylines for Season 9.
+---------
+
+# 'Michael' Eyes Sequel, Jackson Biographer Responds To Backlash
+
+Movie News, Michael, michael jackson, Music
+
+Tue, 05 May 2026 04:06:53 GMT
+
+https://movieweb.com/michael-sequel-critic-backlash/
+
+Critics are down on 'Michael,' but fans love it. A biographer, a professor, and a lawyer weigh in on the split.
+---------
+
 # How Apple TV’s 5-Part Mars Sci-Fi Series Is Mirroring Real-Life US History Addressed By For All Mankind Star
 
 TV, For All Mankind, For All Mankind - Season 5
