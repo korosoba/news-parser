@@ -1,3 +1,256 @@
+# All 5 Marvel Netflix Characters Who Return In Daredevil: Born Again Season 2
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 06 May 2026 22:45:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-netflix-marvel-characters-return/
+
+Daredevil: Born Again season 2 has ended, and the Marvel Cinematic Universe series brought back five surprising Netflix characters in 2026.
+---------
+
+# HBO Max's 4-Part Superhero Show Was So Good, Fans Fought For 6 Years To Bring It Back
+
+Classic TV, Young Justice, DC
+
+Wed, 06 May 2026 22:30:19 GMT
+
+https://screenrant.com/young-justice-hbo-max-fan-campaign-dc-universe-saved-show/
+
+Discover HBO Max's top superhero series, Young Justice, a 4-season animated show that gained a passionate fanbase, saving it from cancellation through dedicated campaigns.
+---------
+
+# Daredevil: Born Again Season 2 Sets Up 6 Future MCU Movies & TV Shows
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 06 May 2026 22:30:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-mcu-movies-shows-setup/
+
+Daredevil: Born Again season 2 is over, but it set up multiple future MCU movies and TV shows that are both confirmed and unannounced by Marvel.
+---------
+
+# Summer Game Fest 2026: Start Times, Dates, Streams, & How To Watch
+
+Gaming, Summer Game Fest
+
+Wed, 06 May 2026 22:30:19 GMT
+
+https://screenrant.com/summer-game-fest-2026-start-times-dates-lineup-watch/
+
+Summer Game Fest 2026 is kicking off soon. Here's everything to know about dates, start times, and how to watch all the streams going on.
+---------
+
+# Nintendo Officially Reveals New Star Fox Game In Surprise Direct
+
+Gaming, Star Fox, Nintendo Direct, Triple-A Games
+
+Wed, 06 May 2026 22:16:29 GMT
+
+https://screenrant.com/nintendo-star-fox-reveal-surprise-direct/
+
+With very little notice, Nintendo has officially revealed the next entry in the Star Fox series, a reimagining of one of its classic games.
+---------
+
+# Mortal Kombat 2 Officially Breaks All-Time Rotten Tomatoes Record By Miles
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Wed, 06 May 2026 22:10:51 GMT
+
+https://screenrant.com/mortal-kombat-2-rotten-tomatoes-score-record/
+
+The first reviews of the upcoming Mortal Kombat 2 are in, and the Rotten Tomatoes score officially sets an all-time franchise record by miles.
+---------
+
+# Star Wars Is Changing Forever In 2 Weeks
+
+Movies, Star Wars
+
+Wed, 06 May 2026 22:00:21 GMT
+
+https://screenrant.com/star-wars-theatrical-movies-mandalorian-grogu-change-may-2026/
+
+In two weeks, the direction of Star Wars is going to change forever, and Disney and Lucasfilm will have a heading on what to do with their property.
+---------
+
+# Doctor Doom's New Appearance Unleashes His Epic Ultimate Weapon
+
+Marvel Comics, Godzilla, Marvel
+
+Wed, 06 May 2026 22:00:21 GMT
+
+https://screenrant.com/godzilla-new-mechagodzilla-doctor-doom/
+
+Mechagodzilla, the ultimate weapon against Godzilla, is now piloted by an unexpected human villain in a new battle for Earth's survival.
+---------
+
+# Star Wars Battlefront: Resurgence Day Coming May 23
+
+Gaming, Star Wars, Star Wars: Battlefront II
+
+Wed, 06 May 2026 22:00:21 GMT
+
+https://screenrant.com/star-wars-battlefront-return-may-2026/
+
+Star Wars Battlefront II is going through a bit of a renaissance right now, as players return to the game in their droves.
+---------
+
+# The MCU Just Officially Made Agents Of SHEILD Canon For Good
+
+Superheroes, Agents of S.H.I.E.L.D., Marvel Cinematic Universe
+
+Wed, 06 May 2026 21:50:19 GMT
+
+https://screenrant.com/agents-of-shield-mcu-canon-official-daredevil-born-again-connection/
+
+Agents of S.H.I.E.L.D. was Marvel's first TV show, but its status in the MCU was thrown into question over time. It's now officially canon.
+---------
+
+# New Star Fox Game Coming to Switch 2 June 2026
+
+Games, Star Fox
+
+Wed, 06 May 2026 22:33:13 GMT
+
+https://www.cbr.com/star-fox-switch-2-game-reveal-june-2026/
+
+After 10 years and a surprise appearance in The Super Mario Galaxy Movie, Star Fox is getting a new game based on the Nintendo 64 classic.
+---------
+
+# The Next 2D Zelda Game for Switch 2 Reportedly Stars Ganondorf
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 06 May 2026 22:18:12 GMT
+
+https://www.cbr.com/zelda-next-switch-2-game-ganondorf-2d/
+
+A new 2D Zelda game starring Ganondorf is reportedly in the works and could be coming to the Nintendo Switch 2 as soon as next year.
+---------
+
+# The Testaments Director Jet Wilkinson Explains Episode 6's Deleted Scene
+
+CBR Exclusives, The Testaments, Hulu, The Handmaid's Tale
+
+Wed, 06 May 2026 22:15:17 GMT
+
+https://www.cbr.com/the-testaments-director-jet-wilkinson-episode-6-deleted-scene/
+
+Director Jet Wilkinson talks about the deleted scene that pitted women against women in Gilead's beginning.
+---------
+
+# Fans Obsessed With Main Character Energy Will Love Blue Lock
+
+Anime, Blue Lock
+
+Wed, 06 May 2026 22:15:12 GMT
+
+https://www.cbr.com/blue-lock-main-character-energy-intense-sports-anime/
+
+Blue Lock has an abundance of characters with strong personalities who are in a constant battle to dominate the narrative.
+---------
+
+# The Bear's Surprise Episode Becomes an Instant Global Hit on Disney+
+
+TV, The Bear
+
+Wed, 06 May 2026 22:00:14 GMT
+
+https://www.cbr.com/the-bear-surprise-episode-disney-plus-global-success-may-2026/
+
+The actor couldn't be busier.
+---------
+
+# 12 Years Later, Rebecca Ferguson's Forgotten Fantasy Epic Is Officially Taking Over the World
+
+Movie News, Hercules, Rebecca Ferguson, Gladiator, The Odyssey
+
+Wed, 06 May 2026 22:30:13 GMT
+
+https://collider.com/hercules-rebecca-ferguson-fantasy-epic-streaming-success-netflix-may-2026/
+
+The epic fantasy film Hercules, starring Dwayne Johnson and Rebecca Ferguson, saw a streaming resurgence over a decade after its theatrical run.
+---------
+
+# Forget 'Mortal Kombat 2' — This Martial Arts Classic Deserves a Revival
+
+Movie Features, Martial Arts, Enter the Dragon, Mortal Kombat II, Bruce Lee
+
+Wed, 06 May 2026 22:22:13 GMT
+
+https://collider.com/forget-mortal-kombat-2-groundbreaking-enter-the-dragon-deserves-revival/
+
+Mortal Kombat 2 shows a continued interest in tournament-style martial arts movies, but no film in the genre has done it as well as Enter the Dragon.
+---------
+
+# 20 Years Later, Matt Damon’s 10/10 Crime Thriller Is Taking Over the World Once Again
+
+Movie News, Matt Damon, The Departed, Martin Scorsese, Crime
+
+Wed, 06 May 2026 22:16:12 GMT
+
+https://collider.com/the-departed-matt-damon-crime-thriller-masterpiece-streaming-success-hulu-may-2026/
+
+Matt Damon's critically acclaimed crime epic The Departed saw a streaming spike after the release of a new trailer for The Odyssey. Find out more.
+---------
+
+# 10 Near-Perfect Hard Sci-Fi Shows That No One Remembers Today
+
+TV, Sci-Fi, Science Fiction, The 100, Dark Matter
+
+Wed, 06 May 2026 22:03:13 GMT
+
+https://collider.com/near-perfect-hard-sci-fi-shows-no-one-remembers/
+
+From The CW's post-apocalyptic series The 100 to the mystery drama 12 Monkeys, these hard sci-fi shows have been largely forgotten by audiences.
+---------
+
+# Apple TV's 114-Minute Fantasy Blockbuster Officially Passes a Major Milestone
+
+Movie News, Eternity, Apple TV, Elizabeth Olsen, Miles Teller
+
+Wed, 06 May 2026 22:00:15 GMT
+
+https://collider.com/elizabeth-olsen-eternity-apple-tv-fantasy-blockbuster-streaming-success-may-2026/
+
+Apple's quietly successful romantic fantasy film Eternity, starring Elizabeth Olsen, Miles Teller, and Callum Turner, has passed a major milestone.
+---------
+
+# Maul's Damaged Legs in 'Shadow Lord' Make Darth Vader Even More Imposing
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Wed, 06 May 2026 22:00:19 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-leg-damage-finale/
+
+'Shadow Lord's main character has been at an uncharacteristic disadvantage in Season 1, but the finale explains the real reason why.
+---------
+
+# ‘90s Cult Horror Series 'Tales from the Crypt' Is a Hit After Streaming for First Time
+
+TV News, Tales From the Crypt, Coming/Leaving Streaming, Horror, Shudder
+
+Wed, 06 May 2026 22:00:19 GMT
+
+https://movieweb.com/tales-from-the-crypt-streaming-may-2026/
+
+The signature cult horror series features famous faces such as Brad Pitt, Demi Moore, Tom Hanks, and more.
+---------
+
+# New 'Planet of the Apes' Film Coming From 'Fantastic Four' Director Matt Shakman
+
+Movie News, Planet of the Apes, Kingdom of the Planet of the Apes, The Fantastic Four: First Steps, Matt Shakman
+
+Wed, 06 May 2026 21:38:42 GMT
+
+https://movieweb.com/planet-of-the-apes-matt-shakman/
+
+The upcoming film will not be a sequel to 'Kingdom of the Planet of the Apes' and instead will be a new story set in the franchise.
+---------
+
 # Evil Dead Is Fully Switching Genres After 45 Years
 
 Movies, Evil Dead, Evil Dead Burn
