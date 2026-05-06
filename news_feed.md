@@ -1,3 +1,333 @@
+# Evil Dead Is Fully Switching Genres After 45 Years
+
+Movies, Evil Dead, Evil Dead Burn
+
+Wed, 06 May 2026 21:37:20 GMT
+
+https://screenrant.com/evil-dead-burn-change-genre-horror-action/
+
+The Evil Dead franchise is making a bold, risky move with 2026's Evil Dead Rise, switching genres for the first time in its 45-year history.
+---------
+
+# After 11 Years, Two Major Marvel Netflix Characters Finally Meet Face-To-Face
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe, Quiz CV
+
+Wed, 06 May 2026 21:25:36 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-jessica-jones-kingpin-meeting/
+
+One of the MCU's best heroes finally shares the screen with a major Marvel franchise villain in this action-packed 2026 release, and it's perfect.
+---------
+
+# Tatiana Maslany's MCU She-Hulk Return Requires This 1 Condition
+
+Exclusive, She-Hulk: Attorney at Law, Tatiana Maslany, Marvel Cinematic Universe
+
+Wed, 06 May 2026 21:13:41 GMT
+
+https://screenrant.com/she-hulk-mcu-return-tatiana-maslany-condition/
+
+Exclusive: She-Hulk star Tatiana Maslany has one major condition if she plans on returning to the Marvel Cinematic Universe as the superhero.
+---------
+
+# 10 Years Later, Star Wars’ New Show Answers A Major Sith Lord Mystery About Darth Vader
+
+Star Wars, Star Wars: Maul - Shadow Lord, Star Wars Rebels, Anakin Skywalker/Darth Vader
+
+Wed, 06 May 2026 21:00:20 GMT
+
+https://screenrant.com/maul-shadow-lord-answers-sith-lord-rebels-mystery-darth-vader/
+
+10 years later, the newest Star Wars series has answered a major mystery about Darth Vader's history and full power during the Dark Times.
+---------
+
+# Why NBC Cancelled La Brea After Season 3
+
+Classic TV, Masked Recs
+
+Wed, 06 May 2026 21:00:20 GMT
+
+https://screenrant.com/la-brea-season-3-sci-fi-nbc-show-cancel-reason/
+
+NBC's science fiction drama series, La Brea, ran for three seasons between 2021 and 2024 before it was canceled; now it's found new life on Netflix.
+---------
+
+# Marvel's Spider-Man 2 Free Download Divides Gamers
+
+Gaming, Marvel's Spider-Man 2
+
+Wed, 06 May 2026 21:00:20 GMT
+
+https://screenrant.com/marvels-spider-man-2-free-download-ps-plus-reactions/
+
+Discover how players are divided over Marvel's Spider-Man 2 after its free download on PlayStation Plus Extra.
+---------
+
+# Ben Affleck's The Accountant 3 Gets Encouraging Update From Creator After $103M Sequel Success
+
+Movies, The Accountant, Bill Dubuque, Ben Affleck
+
+Wed, 06 May 2026 20:48:23 GMT
+
+https://screenrant.com/ben-affleck-the-accountant-3-update-bill-dubuque/
+
+Exclusive: Creator Bill Dubuque offers an encouraging update on Ben Affleck's The Accountant 3 after 2025's sequel was a critical and commercial hit.
+---------
+
+# Control Resonant’s Mikael Kasurinen On The New Open-World RPG: Our Gamescom LATAM 2026 Interview
+
+Gaming, Control Resonant, Control, PC, Triple-A Games
+
+Wed, 06 May 2026 20:43:44 GMT
+
+https://screenrant.com/control-resonant-mikael-kasurinen-gamescom-latam-2026-interview/
+
+Screen Rant had the opportunity to sit and chat with Mikael Kasurinen, the creative director for Control Resonant, during Gamescom LATAM 2026.
+---------
+
+# Romantic Horror Movie Obsession Wants Your Love Now
+
+Movies, Obsession, Blumhouse, Horror
+
+Wed, 06 May 2026 20:42:22 GMT
+
+https://screenrant.com/obsession-movie-romantic-horror-publicity/
+
+Audiences can text Nikki, the leading lady of Focus Features' unique horror movie Obsession, to see how deep (and terrifying) her love is.
+---------
+
+# Sydney Sweeney Loves One TV Show So Much, She's Seen All 500+ Episodes Multiple Times
+
+TV, Sydney Sweeney, Masked Recs
+
+Wed, 06 May 2026 20:32:19 GMT
+
+https://screenrant.com/sydney-sweeney-law-and-order-svu-fan/
+
+Sydney Sweeney's love for a certain cult TV show led to a social media scandal when she allegedly watched the series on a dubious streaming site.
+---------
+
+# The Chronicles of Riddick Is A Bad Pitch Black Sequel
+
+Movies, The Chronicles of Riddick
+
+Wed, 06 May 2026 21:30:13 GMT
+
+https://www.cbr.com/vin-diesel-pitch-black-cult-classic/
+
+Vin Diesel has had many roles beyond Dom Toretto, and his sci-fi horror sequel didn't kill a franchise, but became a cult classic.
+---------
+
+# Daredevil Post-Credit Scene: How Born Again Season 2 Ends an MCU Era
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Wed, 06 May 2026 21:19:56 GMT
+
+https://www.cbr.com/is-there-a-daredevil-born-again-season-2-post-credit-scene/
+
+Daredevil: Born Again Season 2 marks the end of the rivalry between Matt Murdock and Wilson Fisk, making a lack of a post-credit scene fitting.
+---------
+
+# The Lord of the Rings: Trials of Saruman Revealed, Launching June 2026
+
+Games, The Lord of the Rings
+
+Wed, 06 May 2026 21:15:12 GMT
+
+https://www.cbr.com/lotr-trials-of-saruman-tabletop-game-reveal-june-2026/
+
+The Lord of the Rings fans who want to change the White Wizard's fate can now do so thanks to the Trials of Saruman, which launches in June 2026.
+---------
+
+# 10 Flawless SNES Games That Aged Like Fine Wine
+
+Games, Nintendo, retro games
+
+Wed, 06 May 2026 21:15:12 GMT
+
+https://www.cbr.com/flawless-snes-games-aged-perfectly/
+
+Some of the most flawless SNES games, like Chrono Trigger, prove retro games can be timeless.
+---------
+
+# Star Wars Dominates Streaming Following May the Fourth
+
+Movies, Star Wars, Disney+, Sci-Fi
+
+Wed, 06 May 2026 21:00:13 GMT
+
+https://www.cbr.com/star-wars-sci-fi-streaming-success-disney-plus-may-2026/
+
+Star Wars Day has led to a surge, with Star Wars dominating multiple platforms.
+---------
+
+# Doctor Who Will Return in 2026, But the Plan Has Fans Shocked
+
+Comics, Doctor Who
+
+Wed, 06 May 2026 21:00:13 GMT
+
+https://www.cbr.com/doctor-who-circuit-breaker-series-details/
+
+After a long wait, Doctor Who is finally set to return - and the new story involves some of the franchise's most iconic villains.
+---------
+
+# 10 Fantasy Book Series That Are Better Than 'Harry Potter'
+
+Movies, Harry Potter
+
+Wed, 06 May 2026 21:00:13 GMT
+
+https://www.cbr.com/fantasy-books-better-than-harry-potter-list/
+
+Harry Potter may the go-to when it comes to the genre's reading material, but there are other fantasy book series that are even better.
+---------
+
+# Fantastic Four's Matt Shakman to Direct New Planet of the Apes Movie
+
+Movies, Planet of the Apes, Sci-Fi
+
+Wed, 06 May 2026 20:51:41 GMT
+
+https://www.cbr.com/planet-of-the-apes-movie-matt-shakman-josh-friedman-fantastic-four/
+
+Fantastic Four: First Steps director Matt Shakman will helm the next installment of Disney's Planet of the Apes franchise.
+---------
+
+# The Winds of Winter Release Date Delays, Explained
+
+TV, Game Of Thrones, george rr martin, Fantasy
+
+Wed, 06 May 2026 20:30:13 GMT
+
+https://www.cbr.com/game-of-thrones-winds-of-winter-release-delays-explained/
+
+Game of Thrones fans have been waiting years to see the release date for the upcoming A Song of Ice and Fire novel, The Winds of Winter. But why?
+---------
+
+# The Greatest Star Wars Trilogy Ever Is Surging on Streaming — As It Should Be
+
+TV Features, Star Wars, Star Wars: Episode I - The Phantom Menace, Star Wars: Episode II - Attack of the Clones, Star Wars: Episode III - Revenge of the Sith
+
+Wed, 06 May 2026 21:29:13 GMT
+
+https://collider.com/star-wars-prequel-trilogy-surging-on-disney-plus/
+
+The prequels are the greatest Star Wars trilogy as they continue to have immense rewatch value and have spawned top-notch television shows.
+---------
+
+# One of the Worst Sequels Ever The Mummy: Tomb of the Dragon Emperor Is Finding New Life on HBO Max
+
+Movie Features, The Mummy: Tomb of the Dragon Emperor, The Mummy, Brendan Fraser, HBO Max
+
+Wed, 06 May 2026 20:54:13 GMT
+
+https://collider.com/the-mummy-3-tomb-of-the-dragon-emperor-hbo-max-streaming-top-10-why/
+
+Despite its reputation as one of the worst sequels ever, The Mummy 3 is drawing viewers back and climbing the HBO Max charts.
+---------
+
+# 58 Years Later, Disney's Most Underrated Sci-Fi Franchise Taps MCU Director for New Movie
+
+Movie News, Kingdom of the Planet of the Apes, Matt Shakman, Josh Friedman
+
+Wed, 06 May 2026 20:35:18 GMT
+
+https://collider.com/disney-sci-fi-franchise-new-planet-of-the-apes-movie-fantastic-four-first-steps-director-matt-shakman/
+
+Planet of the Apes is officially back, with an MCU veteran directing the sci-fi franchise's next chapter.
+---------
+
+# 15 Most Perfect Animated Movies of the Last 10 Years, Ranked
+
+Movie, Spider-Man: Across the Spider-Verse, Flow, The Boy and the Heron, Animation
+
+Wed, 06 May 2026 20:28:13 GMT
+
+https://collider.com/most-perfect-animated-movies-last-10-years-ranked/
+
+KPop Demon Hunters, Flow, Encanto, Turning Red, and more make up our list of the most perfect animated movies of the last 10 years.
+---------
+
+# Disney Confirms Theatrical Release for 'Hocus Pocus 3'
+
+Movie News, Hocus Pocus 3
+
+Wed, 06 May 2026 21:34:24 GMT
+
+https://movieweb.com/hocus-pocus-3-confirmed-disney-theatrical/
+
+Disney is now officially in development on 'Hocus Pocus 3,' setting the sequel up to be released in theaters.
+---------
+
+# Kevin Spacey to Continue His Comeback Attempts With World War II Drama
+
+Movie News, Kevin Spacey
+
+Wed, 06 May 2026 21:16:51 GMT
+
+https://movieweb.com/kevin-spacey-comeback-world-war-2/
+
+Much like the actor's own controversies, the movie digs into a character whose troubled past resurfaces.
+---------
+
+# Melissa Barrera: Paramount Lied About 'Scream 7' Firing, Calls Returning Cast "Scabs"
+
+Movie News, Melissa Barrera, Scream 7, Scream
+
+Wed, 06 May 2026 21:02:00 GMT
+
+https://movieweb.com/melissa-barrera-paramount-lied-scream-7/
+
+Melissa Barrera didn't hold back when talking about her 'Scream 7' firing, calling the cast scabs and even claiming Paramount lied.
+---------
+
+# 'The Bear' “Gary” Prequel Theory Transforms How You'll Watch Season 5
+
+Features, The Bear
+
+Wed, 06 May 2026 21:00:18 GMT
+
+https://movieweb.com/the-bear-prequel-theory-changes-season-5/
+
+'The Bear' just dropped a prequel episode called "Gary" starring Ebon Moss-Bachrach and Jon Bernthal as Richie and Mikey.
+---------
+
+# Ted Turner, CNN Founder & TV Mogul, Dies Aged 87
+
+TV News, CNN Primetime, Jane Fonda
+
+Wed, 06 May 2026 20:32:30 GMT
+
+https://movieweb.com/ted-turner-dies-aged-87/
+
+The mogul also founded TNT and Turner Classic Movies.
+---------
+
+# Netflix's 'Lord of the Flies' Series is a Streaming Success in the US
+
+TV News, Lord of the Flies, Netflix, Comparison Recommendation
+
+Wed, 06 May 2026 20:30:19 GMT
+
+https://movieweb.com/lord-of-the-flies-netflix-streaming-success-may-2026/
+
+Netflix's new 'Lord of the Flies' Limited Series is a major streaming success, nearly beating the action thriller remake 'Man on Fire.'
+---------
+
+# Kurt Russell Admits He's Not Interested in More 'Big Trouble in Little China'
+
+Movie News, Big Trouble in Little China, Kurt Russell, John Carpenter
+
+Wed, 06 May 2026 20:14:44 GMT
+
+https://movieweb.com/big-trouble-in-little-china-revival-kurt-russell-reaction/
+
+The actor isn't interested in a sequel that couldn't match the success of the original.
+---------
+
 # Star Wars: The Force Unleashed "Free Remaster" Leaves Gamers Floored
 
 Gaming, Star Wars, Triple-A Games
