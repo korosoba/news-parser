@@ -1,3 +1,399 @@
+# Harry Potter Season 2 Officially Renewed By HBO With Exciting New Change
+
+TV, Harry Potter
+
+Wed, 06 May 2026 18:08:14 GMT
+
+https://screenrant.com/harry-potter-season-2-confirmed-hbo-filming-start-report/
+
+While season 1 is premiering at the end of 2026, HBO has officially announced that Harry Potter season 2 has been formally renewed.
+---------
+
+# Batgirl Gets the Perfect Last Words as She Officially Leaves the Bat-Family After 59 Years
+
+DC Comics, Batgirl, Batman
+
+Wed, 06 May 2026 18:03:07 GMT
+
+https://screenrant.com/batgirl-last-words-leave-bat-family-oracle/
+
+It’s officially the end of an era for Barbara Gordon’s Batgirl as she leaves the Bat-Family, but this end also kicks off the hero's new solo era.
+---------
+
+# Taylor Sheridan’s TV Universe Officially Has A New Home
+
+Streaming TV, Taylor Sheridan
+
+Wed, 06 May 2026 18:00:20 GMT
+
+https://screenrant.com/taylor-sheridan-tv-shows-new-home-texas/
+
+Taylor Sheridan's TV Westerns are moving, which means a new focus for the show creator's entire small-screen universe, from Tulsa King to Yellowstone.
+---------
+
+# Galactus And the Watcher Officially Get Their Own Venom Symbiotes
+
+Marvel Comics, Venom, Marvel
+
+Wed, 06 May 2026 18:00:20 GMT
+
+https://screenrant.com/galactus-venom-watcher-symbiote-silver-surfer/
+
+In Venom's new crossover, Knull's symbiotes infect some of the strongest characters in the universe, expanding their reach across Marvel's hierarchy.
+---------
+
+# Scarlett Johansson’s Jurassic World Future Gets First Major Update After $869M Success
+
+Movies, Jurassic World Rebirth, Jurassic Park
+
+Wed, 06 May 2026 17:56:40 GMT
+
+https://screenrant.com/jurassic-world-5-scarlett-johansson-future-confirmed-report/
+
+After Jurassic World Rebirth was a major box office hit, the fate of the sci-fi movie franchise starring Scarlett Johansson has been revealed.
+---------
+
+# Brendan Fraser To Star In New Sci-Fi Thriller Starman
+
+Movies, Brendan Fraser
+
+Wed, 06 May 2026 17:42:26 GMT
+
+https://screenrant.com/starman-movie-brendan-fraser-casting-plot-details/
+
+Brendan Fraser is returning to the sci-fi genre after almost two decades for a new high-stakes thriller, Starman, from Emmy winner Josh Wakely.
+---------
+
+# Hocus Pocus 3 Officially Happening With OG Cast Returning
+
+Movies, Hocus Pocus, Hocus Pocus 3
+
+Wed, 06 May 2026 17:39:42 GMT
+
+https://screenrant.com/hocus-pocus-3-confirmed-cast-return/
+
+Several years after the release of the long-awaited sequel, Hocus Pocus 3 is now officially happening with original cast members set to return.
+---------
+
+# Matthew Lillard & James Gunn Officially Reunite In Superman Sequel Man Of Tomorrow
+
+Movies, Man of Tomorrow, Superman, DC Universe, Matthew Lillard
+
+Wed, 06 May 2026 17:37:32 GMT
+
+https://screenrant.com/man-of-tomorrow-matthew-lillard-james-gunn-reunion-superman-sequel/
+
+The Superman sequel, Man of Tomorrow, is adding another big star to the DC Universe as Matthew Lillard is officially joining James Gunn's 2027 film.
+---------
+
+# The Boys Season 5, Episode 6 Ending Explained: Why Soldier Boy Does THAT
+
+Streaming TV, The Boys
+
+Wed, 06 May 2026 17:30:20 GMT
+
+https://screenrant.com/the-boys-season-5-episode-6-ending-explained/
+
+Soldier Boy's decision at the end of The Boys' latest episode just completely changed the series, and not even Sage anticipated his shocking move.
+---------
+
+# Resident Evil Requiem Officially Settles First-Person Vs. Third-Person Debate
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Wed, 06 May 2026 17:20:32 GMT
+
+https://screenrant.com/resident-evil-requiem-first-third-person-perspective-debate/
+
+Resident Evil has dabbled in both first- and third-person cameras, but new player data from Requiem perhaps shows what's in store for future entries.
+---------
+
+# Hocus Pocus 3 Officially Moving Forward at Disney
+
+Movies, Hocus Pocus 3
+
+Wed, 06 May 2026 18:15:40 GMT
+
+https://www.cbr.com/hocus-pocus-3-confirmed-original-stars/
+
+The third Hocus Pocus movie is officially moving forward with Bette Midler, Sarah Jessica Parker, and Kathy Najimy.
+---------
+
+# HBO Max Officially Renews Harry Potter Reboot for Season 2
+
+TV, Harry Potter
+
+Wed, 06 May 2026 18:14:51 GMT
+
+https://www.cbr.com/hbo-max-harry-potter-reboot-season-2-fate/
+
+Warner Bros. had already confirmed plans for a ten-year series.
+---------
+
+# Elle - Official Teaser   Prime Video
+
+TV, Elle
+
+Wed, 06 May 2026 18:12:24 GMT
+
+https://www.cbr.com/video/elle-teaser-trailer/
+
+Prime Video unveiled the Elle teaser
+---------
+
+# High Potential Season 3 Taps Buffy the Vampire Slayer Revival Showrunners After Major Shakeup
+
+TV, High Potential
+
+Wed, 06 May 2026 18:10:29 GMT
+
+https://www.cbr.com/high-potential-season-3-showrunners-revealed/
+
+ABC's hit series is finally getting some good news.
+---------
+
+# Avengers: Endgame Directors Debate Chadwick Boseman’s Final Scene in the MCU
+
+CBR Exclusives, MCU, Marvel, Black Panther, Avengers: Endgame, Captain America: Civil War, Black Panther: Wakanda Forever
+
+Wed, 06 May 2026 18:00:13 GMT
+
+https://www.cbr.com/avengers-endgame-russo-bros-chadwick-boseman-final-mcu-scene/
+
+The Russo Brothers remember the final scene ever filmed by the late, great Chadwick Boseman.
+---------
+
+# Batman: The Dark Knight Returns Arnold Crimp Scene Explained: Why It Matters More Than You Think
+
+Comics, batman the dark knight returns
+
+Wed, 06 May 2026 18:00:13 GMT
+
+https://www.cbr.com/batman-the-dark-knight-returns-arnold-crimp-scene-important/
+
+Is this classic Batman comic's most dumbfounding scene secretly genius?
+---------
+
+# Ridley Scott’s Horror Series The Terror: Devil in Silver Debuts to Rare Rotten Tomatoes Score
+
+TV, The Terror, Rotten Tomatoes, ridley scott
+
+Wed, 06 May 2026 17:44:41 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-horror-anthology-season-3-rotten-tomatoes-score/
+
+It's officially a return to form for the long-running supernatural horror anthology.
+---------
+
+# James Gunn's Superman Sequel Adds Matthew Lillard to Cast
+
+Movies, Man of Tomorrow, DCU, Superman
+
+Wed, 06 May 2026 17:39:33 GMT
+
+https://www.cbr.com/superman-2-man-of-tomorrow-cast-matthew-lillard-james-gun-dcu/
+
+Scream and Daredevil actor Matthew Lillard has joined the cast of James Gunn's DC Studios Superman sequel, Man of Tomorrow.
+---------
+
+# Batman’s New Villain to Be Created by Fans in New DC Comics Initiative
+
+Comics, Batman
+
+Wed, 06 May 2026 17:30:16 GMT
+
+https://www.cbr.com/dc-comics-batman-villain-sweepstakes/
+
+DC invites fans to help imagine Batman's latest foe.
+---------
+
+# 10 Best PS1 RPGs That Still Hold Up Today
+
+Games, PlayStation (Original), Final Fantasy, RPG
+
+Wed, 06 May 2026 17:30:13 GMT
+
+https://www.cbr.com/official-best-ps1-rpgs-that-still-hold-up-today/
+
+The PS1 remains one of the greatest consoles for RPG fans to this day.
+---------
+
+# Brendan Fraser Officially Returns to Sci-Fi Ahead of 'The Mummy 4'
+
+Movie News, Brendan Fraser, David S. Goyer, Science Fiction, Cannes Film Festival
+
+Wed, 06 May 2026 18:14:19 GMT
+
+https://collider.com/brendan-fraser-cast-sci-fi-movie-starman-david-s-goyer-the-martian-project-hail-mary-replacement/
+
+Brendan Fraser will officially star in David S. Goyer's new sci-fi movie, Starman, which sounds perfect for Project Hail Mary fans.
+---------
+
+# HBO’s Most Anticipated Fantasy Remake Officially Gets Season 2
+
+TV News, Harry Potter, Harry Potter and the Chamber of Secrets
+
+Wed, 06 May 2026 18:00:14 GMT
+
+https://collider.com/harry-potter-series-season-2-renewed-hbo-fantasy-remake/
+
+HBO has officially decided the fate of its massive fantasy remake of J.K. Rowling’s Harry Potter series over 7 months ahead of the series premiere.
+---------
+
+# James Gunn's 'Superman' Sequel Officially Adds 'Daredevil: Born Again's Best New Star
+
+Movie News, Man of Tomorrow, Superman, James Gunn, Matthew Lillard
+
+Wed, 06 May 2026 17:50:51 GMT
+
+https://collider.com/james-gunn-superman-follow-up-man-of-tomorrow-cast-daredevil-born-again-star-matthew-lillard/
+
+Daredevil: Born Again star and horror icon Matthew Lillard has officially joined the cast of James Gunn's Superman follow-up.
+---------
+
+# 70 Best Comedy Movies of All Time, Ranked
+
+Movie, comedies, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, Blazing Saddles, Airplane!
+
+Wed, 06 May 2026 17:48:14 GMT
+
+https://collider.com/best-comedy-movies-all-time-ranked/
+
+From City Lights and Duck Soup to Borat and Bridesmaids, this is Collider's ranking of the best, funniest comedy movies ever made.
+---------
+
+# Disney's $90M Box Office Bomb Needs To Be Rediscovered 28 Years Later
+
+Movie Features, Mighty Joe Young, Charlize Theron, Disney, King Kong
+
+Wed, 06 May 2026 17:41:15 GMT
+
+https://collider.com/disney-box-office-bombs-mighty-joe-young-1998-remake-good/
+
+Disney’s Mighty Joe Young 1998 remake flopped at the box office, but Charlize Theron’s heartfelt performance is more impressive — and relevant — today
+---------
+
+# 'The Batman's Paul Dano Reveals What He Knows About The Highly Anticipated Sequel [Exclusive]
+
+Exclusives, The Batman, The Batman Part II, Matt Reeves, Paul Dano
+
+Wed, 06 May 2026 17:28:41 GMT
+
+https://collider.com/the-batman-2-paul-dano-riddler-return-potential-script-reaction-what-to-expect/
+
+Paul Dano hints at his involvement in the hotly anticipated sequel, The Batman Part 2, sharing his excitement for director Matt Reeves' vision.
+---------
+
+# ABC's 10/10 Crime Thriller Finally Moves Forward After Shock Exit Ahead of Season 3
+
+TV News, High Potential, Kaitlin Olson, ABC, Todd Harthan
+
+Wed, 06 May 2026 17:17:23 GMT
+
+https://collider.com/abc-crime-thriller-high-potential-season-3-new-showrunners-nora-lilla-zuckerman/
+
+ABC's High Potential Season 3 is officially moving forward, with the hit crime thriller finding the perfect new showrunners.
+---------
+
+# Prime Video's Best 2-Part 'Reacher' Replacement Adds 'Scream' and 'Fear the Walking Dead' Stars
+
+TV News, Scarpetta
+
+Wed, 06 May 2026 17:16:53 GMT
+
+https://collider.com/prime-video-reacher-replacement-crime-thriller-scarpetta-season-2-cast-david-arquette-william-zabka-filming-start/
+
+Season 2 of Prime Video's Reacher replacement, Scarpetta, has recruited an all-star cast including horror icon David Arquette.
+---------
+
+# Hulu’s Hit Crime Series Returns With Bigger, Wilder Season 2 Trailer
+
+TV News, Deli Boys, Hulu, Fred Armisen, Kumail Nanjiani
+
+Wed, 06 May 2026 17:01:15 GMT
+
+https://collider.com/deli-boys-season-2-trailer-hulu/
+
+The Deli Boys are back for more laughs and criminal antics in the trailer for Season 2 of Hulu's hit series, premiering later this month.
+---------
+
+# Tom Cruise's 'Edge of Tomorrow 2': Confirmation, Plot, Cast & Everything We Know
+
+Features, Edge of Tomorrow 2, Everything We Know
+
+Wed, 06 May 2026 18:00:18 GMT
+
+https://movieweb.com/edge-of-tomorrow-2-everything-we-know/
+
+'Edge of Tomorrow,' the action movie starring Tom Cruise and directed by Doug Liman that was released in 2014, might be getting a sequel.
+---------
+
+# 'The Bear' Season 5 Will Debut in June 2026
+
+TV News, The Bear
+
+Wed, 06 May 2026 17:54:17 GMT
+
+https://movieweb.com/the-bear-season-5-premiere-date/
+
+A day after the surprise episode "Gary" debuted on Hulu, 'The Bear''s final season sets an appropriate premiere date.
+---------
+
+# 'Legally Blonde' Prequel Series 'Elle' Gets First Trailer From Prime Video
+
+TV News, Elle
+
+Wed, 06 May 2026 17:26:35 GMT
+
+https://movieweb.com/elle-trailer-prime-video/
+
+Prime Video released the first official trailer for the new 'Legally Blonde' prequel series 'Elle,' starring Lexi Minetree.
+---------
+
+# 'Avengers' Directors Confirm Spider-Man Was Not Responsible for Uncle Ben's Death in the MCU
+
+Movie News, Captain America: Civil War, MCU, Spider-Man, Joe Russo
+
+Wed, 06 May 2026 17:18:17 GMT
+
+https://movieweb.com/spider-man-mcu-origin-change-joe-russo/
+
+On the ten-year anniversary of 'Captain America: Civil War' and Spider-Man's MCU debut, Joe Russo reveals a big change to Peter Parker's origin.
+---------
+
+# 'The Boys' Season 5, Episode 6 Recap & Review: Planting Seeds for a Spin-Off
+
+TV Reviews, The Boys
+
+Wed, 06 May 2026 17:01:19 GMT
+
+https://movieweb.com/the-boys-season-5-episode-6-recap-review/
+
+'The Boys' Season 5, Episode 6 reminds us that life is ephemeral, but Vought is forever.
+---------
+
+# Amazon Confirms Homelander's Replacement Before 'The Boys' Season 5 Finale
+
+Features, The Boys
+
+Wed, 06 May 2026 17:01:19 GMT
+
+https://movieweb.com/the-boys-season-5-homelander-replacement/
+
+'The Boys' Season 5 finale is streaming soon on Amazon Prime Video, and the series is setting up a replacement for Antony Starr's character Homelander
+---------
+
+# The Scariest Asian Horror Movies on Netflix
+
+Movie Lists, Netflix, Horror
+
+Wed, 06 May 2026 17:01:19 GMT
+
+https://movieweb.com/scariest-asian-horror-movies-on-netflix/
+
+Netflix houses a stellar collection of Asian horror movies, in case you weren't aware.
+---------
+
 # Scarlett Johansson To Star In Ari Aster's Next Movie Scapegoat
 
 Movies, Scarlett Johansson, A24, Ari Aster
