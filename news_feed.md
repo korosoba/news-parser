@@ -1,3 +1,322 @@
+# PlayStation Plus Releases Bonus Free Download For May, Yours Forever
+
+Gaming, PlayStation Plus, PC
+
+Wed, 06 May 2026 12:19:48 GMT
+
+https://screenrant.com/playstation-plus-free-download-may-2026-icons-pack/
+
+PlayStation Plus users are constantly getting new additions to the free library of games, and subscribers just got a surprise May freebie.
+---------
+
+# Netflix's 4-Part R-Rated Series With 93% On Rotten Tomatoes Has One Of Its Best Casts Ever
+
+TV, Netflix, Masked Recs
+
+Wed, 06 May 2026 12:03:18 GMT
+
+https://screenrant.com/sex-education-netflix-mature-show-best-cast-recommendation/
+
+The secret to one R-rated Netflix show's success? A sprawling cast of then-unknown stars who each brought their own unique story to the table.
+---------
+
+# PlayStation Drops $150 Worth Of Free Games You Can Grab Now
+
+Gaming, PlayStation 5, PlayStation Plus, Wuchang: Fallen Feathers
+
+Wed, 06 May 2026 12:00:20 GMT
+
+https://screenrant.com/playstation-plus-free-games-150-dollars-may-2026/
+
+PlayStation has become a great place to get games at no extra cost, particularly if you're a Plus subscriber.
+---------
+
+# The MCU Movie That Answered Marvel's Biggest Avengers: Doomsday Problem Turns 10 Today
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 06 May 2026 12:00:20 GMT
+
+https://screenrant.com/mcu-avengers-doomsday-captain-america-civil-war-movie-10-today/
+
+The one movie that best shows how Avengers: Doomsday can navigate its biggest and most important storyline has officially turned 10 years old today.
+---------
+
+# Gibbs Finally Returns In NCIS 5 Years After Mark Harmon's Exit (& It's Perfect)
+
+Network TV, NCIS
+
+Wed, 06 May 2026 11:55:19 GMT
+
+https://screenrant.com/ncis-season-23-episode-19-gibbs-return-explainer/
+
+As if the year hasn't been chaotic enough for the Navy Yard office, Leroy Jethro Gibbs finally returned in NCIS season 23, but with a caveat.
+---------
+
+# Will Trent Season 4’s Brutal Angie Tragedy After Amanda’s Death Defended By Show Boss
+
+Network TV, Will Trent
+
+Wed, 06 May 2026 11:42:39 GMT
+
+https://screenrant.com/will-trent-season-4-seth-dead-defended-liz-heldens/
+
+Co-showrunner Liz Hedlens defends Angie's horrendous loss in the Will Trent season 4 finale — just several episodes after Amanda's untimely death.
+---------
+
+# The Witcher 3 Geralt And Ciri Officially Reunite For New 2026 Release
+
+Gaming, The Witcher 3: Wild Hunt, PC
+
+Wed, 06 May 2026 11:38:23 GMT
+
+https://screenrant.com/witcher-3-geralt-ciri-december-2026-statue/
+
+The Witcher 3's iconic main characters are officially reuniting for a brand-new 2026 release that drops late in the year, mark your calendars now.
+---------
+
+# Widow’s Bay Episode 3 Recap: Matthew Rhys Takes A Swim With The Dreaded Sea Hag
+
+Streaming TV, Widow's Bay
+
+Wed, 06 May 2026 11:33:42 GMT
+
+https://screenrant.com/widows-bay-episode-3-recap-discussion/
+
+Widow's Bay episode 3, "The Inaugural Swim," sees Matthew Rhys' Tom Loftis face off with the next big haunt of the island - this time, a Sea Hag.
+---------
+
+# Elden Ring Officially Getting Final DLC, But Gamers Are Torn
+
+Gaming, Elden Ring
+
+Wed, 06 May 2026 11:30:19 GMT
+
+https://screenrant.com/elden-ring-official-dlc-gamers-torn/
+
+FromSoftware's Elden Ring is set to receive an official expansion, Elden Ring: Tarnished Edition, but gamers are divided over its value.
+---------
+
+# Hogwarts Legacy: Ancient Magic Official Teaser Has Gamers Losing It Over Sequel
+
+Gaming, Hogwarts Legacy, Harry Potter, Warner Bros.
+
+Wed, 06 May 2026 11:15:53 GMT
+
+https://screenrant.com/hogwarts-legacy-2-ancient-magic-teaser-speculation/
+
+The official Hogwarts Legacy social media channels just posted a mysterious teaser completely out of the blue, and fans are losing it.
+---------
+
+# Marvel Just Changed Civil War Canon Forever (And Fans Are Shocked)
+
+Comics, Marvel's Civil War, Marvel Comics, Captain America, Iron Man
+
+Wed, 06 May 2026 12:00:13 GMT
+
+https://www.cbr.com/marvel-civil-war-unmasked-1-changes/
+
+Marvel just introduced a new layer to the original Civil War that completely recontextualizes the entire event, though not necessarily for the better.
+---------
+
+# MGM+'s New 8-Part Psychological Thriller Unveils First Look at Jon Hamm's Character
+
+TV, Jon Hamm, American Hostage
+
+Wed, 06 May 2026 11:30:12 GMT
+
+https://www.cbr.com/mgm-jon-hamm-psychological-thriller-american-hostage-first-look/
+
+New details emerge about MGM+ and Sony Pictures Television's upcoming thriller starring Emmy winner Jon Hamm.
+---------
+
+# 5 Great American '80s Sitcoms Nobody Remembers
+
+TV, Sitcoms
+
+Wed, 06 May 2026 11:30:12 GMT
+
+https://www.cbr.com/best-forgotten-american-80s-sitcoms-list/
+
+From military antics to ghostly romances, these hidden gems of '80s American sitcoms never got the love they deserved before they faded into oblivion.
+---------
+
+# Oscar Winner Javier Bardem Confirms Losing Roles Over Gaza Support: 'American Studios Are Not the Only Place'
+
+Movies, Javier Bardem
+
+Wed, 06 May 2026 11:00:12 GMT
+
+https://www.cbr.com/javier-bardem-losing-roles-gaza-support-interview/
+
+The Dune: Part Three star gets honest about how advocating for Palestinian rights has impacted his career in Hollywood.
+---------
+
+# The 9 Most Disturbing Moments in DC Comics History, Ranked
+
+Comics, DC Comics
+
+Wed, 06 May 2026 11:00:12 GMT
+
+https://www.cbr.com/most-disturbing-dc-comics-moments-ranked/
+
+DC Comics is no stranger to unsettling moments, yet these are the worst.
+---------
+
+# 10 International Thrillers That Are Perfect From Start to Finish
+
+Movie, The Girl With The Dragon Tattoo, Run Lola Run, Parasite, Oldboy
+
+Wed, 06 May 2026 12:20:14 GMT
+
+https://collider.com/international-thrillers-perfect-from-start-to-finish/
+
+Foreign thrillers like The Girl with the Dragon Tattoo, Parasite, and Oldboy are pretty much perfect, and some of the best movies ever in the genre.
+---------
+
+# George Lucas' New Star Wars Project Sets Official Release Date
+
+Movie News, Star Wars, George Lucas, Star Wars: Episode IV - A New Hope, The Mandalorian and Grogu
+
+Wed, 06 May 2026 12:00:13 GMT
+
+https://collider.com/george-lucas-museum-star-wars-motion-exhibit-fall-2026/
+
+George Lucas is officially returning to the Star Wars galaxy with a brand new project set to debut in 2026.
+---------
+
+# 8 Worst War Movies of All Time, Ranked by a Fan of the Genre
+
+Movie, War, Inchon, Pearl Harbor, Revolution
+
+Wed, 06 May 2026 11:51:13 GMT
+
+https://collider.com/worst-war-movies-of-all-time-ranked-by-a-fan-of-the-genre/
+
+God-awful war movies like Red Tails, Pearl Harbor, and The Green Berets are a disgrace to a genre I genuinely love and admire.
+---------
+
+# 'Daredevil: Born Again' Just Set Up 6 Unexpected Season 3 Mysteries
+
+TV, Daredevil: Born Again, Daredevil, Superhero
+
+Wed, 06 May 2026 11:41:14 GMT
+
+https://collider.com/daredevil-born-again-season-3-mysteries/
+
+Daredevil: Born Again Season 2 has concluded, so while we wait for Season 3 and The Punisher: One Last Kill, these are our burning questions.
+---------
+
+# ‘Star Trek’ Creator’s Forgotten 5-Part Sci-Fi Series Is Officially Streaming for Free
+
+TV News, Andromeda, Star Trek, Sci-Fi, Gene Roddenberry
+
+Wed, 06 May 2026 11:30:12 GMT
+
+https://collider.com/star-trek-creator-sci-fi-series-andromeda-free-streaming-youtube-may-2026/
+
+A cult sci-fi series from the creator of Star Trek is now streaming free with 100+ episodes, reviving interest in a bold space saga.
+---------
+
+# Only 3 Movies Are Bigger Masterpieces Than 'The Godfather'
+
+Movie, The Godfather, The Lord of the Rings, Seven Samurai, 2001: A Space Odyssey
+
+Wed, 06 May 2026 11:27:12 GMT
+
+https://collider.com/movies-bigger-masterpieces-than-the-godfather/
+
+The Godfather is the greatest movie ever made — or is it? A fantasy phenomenon, a sci-fi stunner, and a Japanese classic might actually surpass it.
+---------
+
+# 5 Forgotten Dark Fantasy Movies That Are Perfect From Start to Finish
+
+Movie, Fantasy, The Dark Crystal, The City of Lost Children, Bram Stoker's Dracula
+
+Wed, 06 May 2026 11:09:12 GMT
+
+https://collider.com/forgotten-dark-fantasy-movies-that-are-incredible/
+
+From Bram Stoker's Dracula to The Dark Crystal, these forgotten dark fantasy movies blend eerie worlds, emotion, and unforgettable storytelling.
+---------
+
+# HBO’s 5-Part Crime Drama With the “Most Terrifying Female Villain” in TV History Is a Sleeper Hit on Streaming
+
+TV News, HBO, The Wire, Crime, Stephen King
+
+Wed, 06 May 2026 11:01:12 GMT
+
+https://collider.com/hbo-crime-thriller-the-wire-streaming-success-may-2026/
+
+An iconic HBO crime drama resurfaces on streaming charts, proving its lasting grip through layered storytelling and chilling performances.
+---------
+
+# 10 K-Dramas Better Than 'Crash Landing on You'
+
+TV, Drama, South Korea, Crash Landing On You, Tale Of The Nine-Tailed
+
+Wed, 06 May 2026 10:54:12 GMT
+
+https://collider.com/k-dramas-better-than-crash-landing-on-you/
+
+The K-drama Crash Landing on You was very well-done... but there are many better ones out there that need your full attention and appreciation.
+---------
+
+# 10 Insane Movies That Make You Think "What the Hell Did I Just Watch?"
+
+Movie, Santa Sangre, Titane, Crash, The Killing of a Sacred Deer
+
+Wed, 06 May 2026 10:38:12 GMT
+
+https://collider.com/insane-movies-what-did-i-just-watch/
+
+Wild and genuinely insane movies like Titane, The Killing of a Sacred Deer, and Speak No Evil will make you wonder what the hell you just watched.
+---------
+
+# 'Shadow Lord' Isn't the First Time Maul & Vader Have Fought in 'Star Wars'
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Wed, 06 May 2026 12:00:18 GMT
+
+https://movieweb.com/star-wars-vader-maul-first-fight/
+
+'Shadow Lord's Season 1 finale sees Maul and Vader face off, but not for the first time. Read on for more.
+---------
+
+# 'Euphoria' Season 3 Holds Firm As HBO's Most Popular Show on Streaming
+
+TV News, Sydney Sweeney, Euphoria, Hot on Streaming
+
+Wed, 06 May 2026 12:00:18 GMT
+
+https://movieweb.com/sydney-sweeney-euphoria-season-3-streaming-hit-hbo-may-2026/
+
+Sydney Sweeney, Zendaya, Jacob Elordi, and Hunter Schafer are back in 'Euphoria' Season 3, which has been a huge hit for HBO despite poor reviews.
+---------
+
+# James Cameron Planning 'Aliens' 3D Conversion for 40th Anniversary
+
+Movie News, James Cameron, Aliens, Alien, Action, Sci-Fi
+
+Wed, 06 May 2026 11:43:16 GMT
+
+https://movieweb.com/james-cameron-converting-aliens-3d/
+
+The filmmaker says 'Aliens' could be converted into 3D as newer technology makes the process more viable ahead of the 1986 film's July 2026 milestone.
+---------
+
+# 'Star Trek: Voyager's "Tuvix" Just Turned 30 & Still Presents an Impossible Dilemma
+
+Features, Star Trek: Voyager, Star Trek
+
+Wed, 06 May 2026 11:00:18 GMT
+
+https://movieweb.com/star-trek-voyager-tuvix-dilemma/
+
+The 'Star Trek' franchise is filled with moments that are debated for years, but one 'Voyager' installment is the shining example of this.
+---------
+
 # Final Fantasy 9 Is Officially Getting A Sequel After 26 Years
 
 Gaming, Final Fantasy, Final Fantasy 9
