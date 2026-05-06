@@ -1,3 +1,399 @@
+# Scarlett Johansson To Star In Ari Aster's Next Movie Scapegoat
+
+Movies, Scarlett Johansson, A24, Ari Aster
+
+Wed, 06 May 2026 16:57:11 GMT
+
+https://screenrant.com/scarlett-johansson-ari-aster-movie-scapegoat-a24-development/
+
+Scarlett Johansson will star in Ari Aster's new movie, which will officially mark her return to A24 after her last film 12 years ago.
+---------
+
+# Lost Hayao Miyazaki Work Finally Gets Official Studio Ghibli Release
+
+Anime, Studio Ghibli, Hayao Miyazaki
+
+Wed, 06 May 2026 16:35:50 GMT
+
+https://screenrant.com/lost-hayao-miyazaki-art-studio-ghibli-release/
+
+Studio Ghibli is resurrecting 'lost' Miyazaki works with a brand-new project that offers a deep dive into two overlooked 1995 Ghibli productions.
+---------
+
+# The Bear's Surprise New Episode Officially Introduces A New Side To Jon Bernthal's Mikey
+
+Streaming TV, The Bear
+
+Wed, 06 May 2026 16:30:20 GMT
+
+https://screenrant.com/the-bear-new-episode-gary-new-side-mikey-jon-bernthal/
+
+"Gary," The Bear's unexpected new episode, offered a more intimate, prolonged look at Mikey Berzatto than the show has ever provided before.
+---------
+
+# Avengers: Doomsday Spoilers & Leaks Addressed By Director Joe Russo: "It's Over-Policed"
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, The Avengers
+
+Wed, 06 May 2026 16:21:26 GMT
+
+https://screenrant.com/avengers-doomsday-marvel-spoilers-leaks-joe-russo-response/
+
+Director Joe Russo opens up on the challenges of Avengers: Doomsday spoilers and leaks as the film is more than half a year away from release.
+---------
+
+# Superman Just Took a Punch That Fans Will Remember for Decades
+
+Comics, Superman
+
+Wed, 06 May 2026 16:20:05 GMT
+
+https://screenrant.com/absolute-superman-king-shazam-strength-level/
+
+Superman has taken more than his fair share of punches. However, after 88 years, he may have just suffered one of his most devastating right hooks.
+---------
+
+# Prime Video's $300M Spy Thriller Series Officially Returns With 7 New Episodes
+
+TV, Masked Recs
+
+Wed, 06 May 2026 16:17:55 GMT
+
+https://screenrant.com/citadel-season-2-prime-video-may-2026-release/
+
+Prime Video's 6-part spy thriller series, which is one of the most expensive TV shows of all time, has officially returned with new episodes.
+---------
+
+# A Quiet Place Part 3's Filming Start Window Finally Confirmed By John Krasinski
+
+Movies, A Quiet Place, A Quiet Place Part III, Horror
+
+Wed, 06 May 2026 16:16:57 GMT
+
+https://screenrant.com/a-quiet-place-part-3-filming-start-window-john-krasinski/
+
+Six years after the release of Part 2, writer and director John Krasinski now finally confirms when A Quiet Place Part 3 is expected to start filming.
+---------
+
+# Bullseye's Avengers Future In The MCU After Daredevil: Born Again Season 2 Explained
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 06 May 2026 16:16:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-bullseye-avengers-setup/
+
+Daredevil: Born Again season 2 sets up a major character to join an Avengers team, as their MCU journey takes an unexpected but delightful turn.
+---------
+
+# Tracker’s Biggest Series Change Yet Derails CBS’s Season 4 Upgrade
+
+Network TV, Tracker
+
+Wed, 06 May 2026 16:16:20 GMT
+
+https://screenrant.com/tracker-season-4-upgrade-derail-los-angeles-relocation/
+
+Ahead of season 3's end, CBS announces the biggest change in Tracker yet, effectively derailing the much-needed upgrade when it returns for season 4.
+---------
+
+# Elle Woods’ Life Changes Forever In First Trailer For Prime Video’s Legally Blonde Prequel
+
+TV, Elle, Legally Blonde
+
+Wed, 06 May 2026 16:14:27 GMT
+
+https://screenrant.com/elle-show-trailer-legally-blonde-prequel-series/
+
+The Legally Blonde franchise is expanding this summer with the prequel series Elle, and Prime Video has now released the official teaser trailer.
+---------
+
+# Melissa Barrera Blasts Scream 7, Jenna Ortega & 'Scabby' Co-Stars
+
+Movies, Scream 7
+
+Wed, 06 May 2026 16:45:52 GMT
+
+https://www.cbr.com/scream-7-criticism-melissa-barrera/
+
+Fired franchise star Melissa Barrera is not pulling punches with sharing her thoughts about Scream 7 and her former co-stars.
+---------
+
+# 10 Anime Villains Who Went Too Far
+
+Anime, Fullmetal Alchemist, One Piece, Naruto
+
+Wed, 06 May 2026 16:20:13 GMT
+
+https://www.cbr.com/anime-villains-who-went-too-far/
+
+Some anime villains crossed too many lines and pushed morality to its limits with their ruthless crimes.
+---------
+
+# The Bear Season 5 Hulu Release Date Revealed
+
+TV, The Bear, Hulu, Drama
+
+Wed, 06 May 2026 16:16:48 GMT
+
+https://www.cbr.com/the-bear-season-5-release-date-hulu/
+
+Hulu has confirmed the release date for The Bear Season 5, the final season of the hit series.
+---------
+
+# Dylan Sprouse Gets Arrested in Tense Clip From New Action Film
+
+Movies, Neglected
+
+Wed, 06 May 2026 16:01:13 GMT
+
+https://www.cbr.com/neglected-exclusive-clip/
+
+Dylan Sprouse stars in Neglected alongside Josh Duhamel and CBR has an exclusive sneak peek of the new action movie.
+---------
+
+# Absolute Superman Reveals the Fate of a Major DC Villain
+
+Comics, Superman, Shazam
+
+Wed, 06 May 2026 16:01:13 GMT
+
+https://www.cbr.com/absolute-superman-19-king-shazam-reveal/
+
+DC Comics' Absolute Superman officially has a new nemesis, and there might not be any stopping him for even this Man of Steel.
+---------
+
+# 10 Most Iconic The CW Shows of All Time
+
+TV, The CW, Supernatural, Gilmore Girls, Smallville
+
+Wed, 06 May 2026 16:01:13 GMT
+
+https://www.cbr.com/most-iconic-cw-shows-all-time-list/
+
+The CW has become a juggernaut in television with dramas like The Vampire Diaries and The Flash, but some are more iconic than others.
+---------
+
+# Avengers: Doomsday Directors Shoot Down a Popular X-Men Rumor: ‘Never Even Discussed’
+
+Movies, Marvel, Marvel Comics, MCU, Avengers, Avengers: Doomsday (2026), Avengers: Secret Wars, Avengers: Endgame, X-Men
+
+Wed, 06 May 2026 16:01:13 GMT
+
+https://www.cbr.com/avengers-doomsday-directors-shoot-down-popular-x-men-rumor/
+
+One of the most popular X-Men rumors around just got buried by the Avengers: Doomsday directors, the Russo Brothers.
+---------
+
+# Mortal Kombat II Review: The Bloody Sequel Levels Up With Karl Urban’s Johnny Cage
+
+Movies, Mortal Kombat II
+
+Wed, 06 May 2026 16:00:13 GMT
+
+https://www.cbr.com/mortal-kombat-ii-review/
+
+Mortal Kombat II delivers bloodier battles, bigger stakes, and a scene-stealing Karl Urban debut as Johnny Cage.
+---------
+
+# Disney+ Hailed the 'Centerpiece' of Digital Future by New Disney CEO
+
+TV, Disney+, Disney
+
+Wed, 06 May 2026 15:36:39 GMT
+
+https://www.cbr.com/disney-plus-centerpiece-of-digital-future-josh-damaro-ceo/
+
+After Warner Bros. and Paramount's new deal, Disney is still confident in what it does best.
+---------
+
+# Western Animators Want to Make Anime But Are Stuck With Peppa Pig, Industry Exec Says
+
+Anime, peppa pig, Cannon Busters
+
+Wed, 06 May 2026 15:17:14 GMT
+
+https://www.cbr.com/western-anime-peppa-pig-stuck/
+
+The executive also noted that anime produced in the West was 'not going to make anyone rich.'
+---------
+
+# 10 Best Crowd-Pleasing Drama Movies, Ranked
+
+Movie, The Shawshank Redemption, Cinema Paradiso, Ikiru, Good Will Hunting
+
+Wed, 06 May 2026 16:34:13 GMT
+
+https://collider.com/best-crowd-pleasing-drama-movies-ranked/
+
+The greatest and most crowd-pleasing dramas of all time include classics like It's a Wonderful Life, Cinema Paradiso, and The Shawshank Redemption.
+---------
+
+# Prime Video's Most-Anticipated Prequel Series Officially Debuts First Trailer
+
+TV News, Legally Blonde
+
+Wed, 06 May 2026 16:30:32 GMT
+
+https://collider.com/prime-video-legally-blonde-prequel-elle-teaser-trailer/
+
+Prime Video and Reese Witherspoon's official Legally Blonde prequel, Elle, has debuted its first trailer. See it here!
+---------
+
+# 'The Bear' Officially Sets Release Date for Final Season
+
+TV News, The Bear, Jeremy Allen White, Ebon Moss-Bachrach, Hulu
+
+Wed, 06 May 2026 16:20:02 GMT
+
+https://collider.com/fx-hulu-the-bear-final-season-5-release-date-june-25-2026/
+
+Hulu has officially confirmed the release date for the final season of The Bear, and fans will not have to wait long.
+---------
+
+# 'The Boys' Most Chilling Cliffhanger Can't Save a Glaringly Obvious Spin-Off Setup | Review
+
+TV Reviews, The Boys, Prime Video, Eric Kripke, Karl Urban
+
+Wed, 06 May 2026 16:00:14 GMT
+
+https://collider.com/the-boys-season-5-episode-6-recap-prime-video/
+
+The Boys Season 5 Episode 6 ends on an effective cliffhanger, but rushes certain storylines in favor of setting up the Vought Rising spin-off.
+---------
+
+# 'Sheriff Country' Faces a DEA Crackdown in This Week's Dramatic Episode [Exclusive]
+
+Exclusives, Sheriff Country, Fire Country, Morena Baccarin, CBS
+
+Wed, 06 May 2026 16:00:14 GMT
+
+https://collider.com/sheriff-country-season-1-episode-18-sneak-peek-the-gambler-morena-baccarin/
+
+Sheriff Country Episode 18, “The Gambler,” brings a dramatic DEA crackdown to Edgewater in an exclusive sneak peek. Watch it here!
+---------
+
+# ‘Fire Country’ Heads Toward a Brutal Finale With New Season 4 Sneak Peek [Exclusive]
+
+TV News, Fire Country, Max Thieriot, CBS, Paramount Plus
+
+Wed, 06 May 2026 16:00:14 GMT
+
+https://collider.com/fire-country-season-4-episode-18-sneak-peek-alexi-sharon/
+
+CBS has released a new sneak peek at Fire Country Season 4, Episode 18, before it begins streaming on Paramount+. Watch it here exclusively.
+---------
+
+# ‘The Boys’ Season 5’s Most “Intense” Betrayal Was Nearly Ruined by This 1 Quote
+
+Exclusives, The Boys, Chace Crawford, Nathan Mitchell, Eric Kripke
+
+Wed, 06 May 2026 16:00:14 GMT
+
+https://collider.com/the-boys-season-5-episode-6-deep-black-noir-fate-chace-crawford-nathan-mitchell-interview/
+
+Chace Crawford and Nathan Mitchell discuss The Boys Season 5, the moment that Black Noir makes The Deep snap, and shooting that final moment.
+---------
+
+# 'Mortal Kombat II' Is a Significant Improvement but Still Can't Top the '95 Cult Classic | Review
+
+Movie Reviews, Mortal Kombat II, Karl Urban, Action, Fantasy
+
+Wed, 06 May 2026 16:00:14 GMT
+
+https://collider.com/mortal-kombat-2-review-karl-urban-martial-arts-fantasy/
+
+Mortal Kombat II isn't a flawless victory, but it has enough charm and humor to keep hardcore fans entertained.
+---------
+
+# Peacock's Stylish 9-Part 'Ozark' Successor Offers a Fresh Take on the Crime Genre | Review
+
+TV Reviews, M.I.A., Peacock, Bill Dubuque, Crime
+
+Wed, 06 May 2026 16:00:14 GMT
+
+https://collider.com/mia-peacock-review-crime-drama/
+
+Peacock's neon-soaked 9-part series M.I.A., from the creator of Ozark, offers a stylish, fresh take on the crime genre.
+---------
+
+# This Forgotten 13-Part Spielberg Sci-Fi Series Is the Closest TV Ever Got to 'Jurassic Park'
+
+TV Features, Terra Nova, Steven Spielberg, Jurassic Park, Sci-Fi
+
+Wed, 06 May 2026 15:52:14 GMT
+
+https://collider.com/steven-spielberg-most-underrated-series-terra-nova-jurassic-park-replacement/
+
+Terra Nova, Steven Spielberg’s $20M dinosaur series, is now streaming free on Tubi, giving Jurassic Park fans a full 13-episode sci-fi binge.
+---------
+
+# 'The Fast and the Furious' 25th Anniversary Event Features Vin Diesel and His On-Screen Family
+
+Movie News, The Fast and the Furious, Vin Diesel
+
+Wed, 06 May 2026 16:44:02 GMT
+
+https://movieweb.com/vin-diesel-fast-furious-25th-anniversary-event/
+
+The first 'Fast' film will be celebrated at The Cannes Film Festival.
+---------
+
+# Christopher Nolan Fans Are Divided Over 'The Odyssey' With New Trailer Backlash
+
+Features, The Odyssey, Christopher Nolan
+
+Wed, 06 May 2026 16:16:19 GMT
+
+https://movieweb.com/christopher-nolan-the-odyssey-trailer-backlash-fans/
+
+The latest trailer release for Christopher Nolan's upcoming fantasy epic 'The Odyssey' resurrected fan criticisms about anachronism.
+---------
+
+# Matthew Perry's 'Friends' Memorabilia Among Items Up for Auction
+
+TV News, Matthew Perry, Friends
+
+Wed, 06 May 2026 16:00:24 GMT
+
+https://movieweb.com/matthew-perry-auction-friends-memorabilia/
+
+A charity auction featuring 'Friends' memorabilia, artwork, and other personal items from Matthew Perry's estate is scheduled to take place in June.
+---------
+
+# 'Mortal Kombat II' Review: Karl Urban Owns the Savage Video Game Action Sequel
+
+Movie Reviews, Mortal Kombat II, Action
+
+Wed, 06 May 2026 16:00:18 GMT
+
+https://movieweb.com/mortal-kombat-ii-review/
+
+Karl Urban shines as Johnny Cage in a violent and action-packed sequel that delivers bloody battles and a focus on fan-favorites.
+---------
+
+# 'Motor City' Teaser Trailer Reveals Alan Ritchson in Revenge Action Thriller
+
+Movie News, Motor City, Alan Ritchson
+
+Wed, 06 May 2026 15:53:29 GMT
+
+https://movieweb.com/alan-ritchson-motor-city-teaser-trailer/
+
+'Reacher' star Alan Ritchson is out for revenge in the bloody first trailer for 'Motor City.'
+---------
+
+# 'The Mandalorian and Grogu' Early Reviews from Fans & Influences Revealed
+
+Movie News, The Mandalorian and Grogu
+
+Wed, 06 May 2026 15:39:29 GMT
+
+https://movieweb.com/mandalorian-and-grogu-early-reviews/
+
+Star Wars fans and influencers got to watch the first 25 minutes of Star Wars newest movie, 'The Mandalorian and Grogu,' on IMAX screens.
+---------
+
 # LEGO Batman: Legacy Of The Dark Knight is a Love Letter To All Things Batman
 
 Gaming, LEGO Batman: Legacy of the Dark Knight
