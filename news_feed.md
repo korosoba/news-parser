@@ -1,3 +1,388 @@
+# NCIS’s Mark Harmon Reveals His Favorite Gibbs Rule & It’s Surprisingly Practical
+
+TV, NCIS, Mark Harmon
+
+Wed, 06 May 2026 02:06:47 GMT
+
+https://screenrant.com/ncis-mark-harmon-favorite-gibbs-rule-response/
+
+Mark Harmon revealed which of the rules that his NCIS character, Leroy Jethro Gibbs, came up with is his favorite, and it's a practical choice.
+---------
+
+# Luke Cage's MCU Return After Daredevil Season 2 Finale Addressed By Born Again Showrunner & EP
+
+TV, Daredevil: Born Again, Luke Cage, Marvel Cinematic Universe
+
+Wed, 06 May 2026 02:02:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-luke-cage-return/
+
+EXCLUSIVE: The Daredevil: Born Again showrunner and executive producer opens up about Luke Cage's return in the MCU following the season 2 finale.
+---------
+
+# Charlie Cox Addresses Matt Murdock's Daredevil Season 2 Fate After Shocking Born Again Ending
+
+TV, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 06 May 2026 02:00:31 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-matt-murdock-identity-reveal-charlie-cox/
+
+EXCLUSIVE: Charlie Cox breaks his silence on the future of Matt Murdock after the shocking events of the Daredevil: Born Again season 2 finale.
+---------
+
+# Resident Evil Code: Veronica Remake Reveal Splits Gamers
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Wed, 06 May 2026 02:00:31 GMT
+
+https://screenrant.com/resident-evil-code-veronica-remake-reveal-speculation/
+
+Resident Evil Code: Veronica remake rumors are white-hot right now, and that may be a prelude to a reveal coming in the near future.
+---------
+
+# Marvel Is Officially Entering A New Era. Here Are 8 Things Fans Need To See
+
+Comics, Marvel, Marvel Cinematic Universe, Avengers: Doomsday
+
+Wed, 06 May 2026 02:00:31 GMT
+
+https://screenrant.com/marvel-new-era-positives-negatives-armageddon/
+
+Marvel is hinting at a colossal course correction for comics in the years to come, and there is a lot its new "architects" will hopefully consider.
+---------
+
+# 6 Incredible Martial Arts Movies That Predate Bruce Lee's Films
+
+Movies, Bruce Lee
+
+Wed, 06 May 2026 02:00:31 GMT
+
+https://screenrant.com/great-martial-arts-movies-before-bruce-lee/
+
+Bruce Lee was a revolutionary figure in martial arts cinema, but the genre bore witness to several masterpieces before he came along.
+---------
+
+# 18 Years Later, Marvel Officially Remakes Iron Man's Ending
+
+Streaming TV, Daredevil: Born Again
+
+Wed, 06 May 2026 01:55:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-matt-murdock-identity-reveal-iron-man/
+
+Iron Man still sets a high bar for the rest of the MCU to strive for, and a recent release provides a contrasting moment that recaptures the magic.
+---------
+
+# 16 Biggest Easter Eggs, MCU References, and Netflix Nods In The Daredevil: Born Again Season 2 Finale
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Wed, 06 May 2026 01:50:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-episode-8-finale-easter-eggs-and-references/
+
+Daredevil: Born Again season 2, episode 8 has arrived, and the epic finale features some great Easter eggs, MCU connections, and Netflix nods.
+---------
+
+# 8 Forgotten Details From The Sopranos Season 1
+
+Classic TV, The Sopranos
+
+Wed, 06 May 2026 01:45:21 GMT
+
+https://screenrant.com/the-sopranos-season-1-details-forget/
+
+From Tony's surprising remorse to Uncle Junior's unexpected talent in the bedroom, everyone forgot these details from The Sopranos season 1.
+---------
+
+# The Punisher's Absence From Daredevil: Born Again Season 2 Explained
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Wed, 06 May 2026 01:30:20 GMT
+
+https://screenrant.com/the-punisher-daredevil-born-again-season-2-absence-explained/
+
+Jon Bernthal's Punisher does not appear in an episode of Daredevil: Born Again season 2, and the reason for his absence should not be too mysterious.
+---------
+
+# 10 New-Gen Anime That Are Objectively Better Than Solo Leveling
+
+Anime, Solo Leveling
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://www.cbr.com/best-new-gen-anime-better-than-solo-leveling-list/
+
+Solo Leveling might be the biggest anime of the last decade, but that doesn't mean it's the best.
+---------
+
+# Daredevil: Born Again Season 2 Finale - Will Elektra Replace Matt Murdock?
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-finale-elektra-set-up/
+
+After Matt Murdock's arrest, Elektra could take on the Daredevil mantle in Born Again Season 3, following in the comics' footsteps.
+---------
+
+# Kingpin’s Fate Finally Revealed by Daredevil Star: What It Means for Born Again Season 3
+
+CBR Exclusives, Daredevil: Born Again, vincent d'onofrio
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://www.cbr.com/daredevil-born-again-vincent-donofrio-kingpin-fate/
+
+What is in store for the Kingpin this far into Daredevil: Born Again?
+---------
+
+# 5 Forgotten Spy Movies That Are Amazing From Start to Finish
+
+Movies, Thriller, Drama
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://www.cbr.com/greatest-spy-movies-no-one-remembers/
+
+The biggest names in the genre often overshadow smaller hits, but these forgotten spy films have a lot to offer despite lacking blockbuster attention.
+---------
+
+# 10 Incredible Anime With Absolutely Perfect First Episodes
+
+Anime, Attack on Titan, Code Geass: Lelouch of the Rebellion, Oshi No Ko, Chainsaw Man
+
+Wed, 06 May 2026 01:45:13 GMT
+
+https://www.cbr.com/flawless-anime-with-absolutely-perfect-first-episodes/
+
+These anime premieres get their series off to amazing starts, and they remain high-quality from start to finish.
+---------
+
+# The Real Reason Fans Love Vegeta More Than Goku
+
+Anime, Vegeta, Dragon Ball, shonen anime, Manga
+
+Wed, 06 May 2026 01:25:14 GMT
+
+https://www.cbr.com/dragon-ball-fans-love-vegeta-more-than-goku/
+
+Dragon Ball's Goku is often presented as Vegeta's superior, but there's strong evidence that suggests Vegeta is the better and more beloved Saiyan!
+---------
+
+# Animal Crossing All Star Collection Officially Coming This July
+
+Games, Animal Crossing
+
+Wed, 06 May 2026 01:15:13 GMT
+
+https://www.cbr.com/animal-crossing-25th-anniversary-all-star-collection-july-2026/
+
+It's the 25th anniversary for Animal Crossing and to celebrate, a collection is coming out that fans have wanted for a while.
+---------
+
+# Red Dead Redemption 2 Officially Reveals Free DLC Available May 5
+
+Games, Red Dead Redemption 2, Red Dead Redemption
+
+Wed, 06 May 2026 01:00:14 GMT
+
+https://www.cbr.com/red-dead-redemption-2-officially-reveals-free-dlc-may-2026/
+
+Red Dead Redemption 2 is officially back with a new free series of DLC, available now.
+---------
+
+# The 35 Strongest Witches And Wizards In Harry Potter
+
+Movies, Harry Potter
+
+Wed, 06 May 2026 01:00:14 GMT
+
+https://www.cbr.com/harry-potter-strongest-witches-wizards/
+
+From Harry Potter and Lord Voldemort to Professors Dumbledore and McGonagall, the strongest witches and wizards left their mark on the Wizarding World
+---------
+
+# 10 Classic Anime Games That Are 100% Unplayable Today
+
+Games, Video Games, Anime, Black Clover, Yu-Gi-Oh!
+
+Wed, 06 May 2026 00:45:13 GMT
+
+https://www.cbr.com/classic-anime-games-that-are-unplayable-today/
+
+Anime-inspired titles like Bleach: Soul Resurrección and Yu-Gi-Oh! Online are nigh-unplayable today.
+---------
+
+# Paramount+'s New 2-Part ‘Yellowstone’ Spin-Off Is Officially the No. 1 Show in the World
+
+TV News, Taylor Sheridan, Marshals, Yellowstone, Luke Grimes
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://collider.com/marshals-taylor-sheridan-yellowstone-spin-off-streaming-milestone-paramount-plus-may-2026/
+
+Taylor Sheridan's critically panned Yellowstone spin-off, Marshals, is continuing to draw viewership despite a 27% audience score on Rotten Tomatoes.
+---------
+
+# ‘Daredevil: Born Again’s Low Viewership Makes His Spider-Man Future Harder To Ignore
+
+TV Features, Daredevil: Born Again, Daredevil, Spider-Man: Brand New Day, Charlie Cox
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://collider.com/daredevil-born-again-spider-man-brand-new-day-team-up-low-viewership/
+
+Daredevil: Born Again's ratings struggle may be a problem that a potential Spider-Man crossover could help the series overcome ahead of Season 3.
+---------
+
+# ‘Daredevil: Born Again’s Wilson Bethel Teases Bullseye’s Bigger MCU Future After That Finale Twist
+
+Interviews, Wilson Bethel, Daredevil: Born Again, Disney+, Spider-Man 4
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://collider.com/daredevil-born-again-season-2-finale-bullseye-mcu-twist-meaning-wilson-bethel-interview/
+
+Wilson Bethel teases Bullseye’s MCU future after Daredevil: Born Again’s Season 2 finale twist and who he wants to fight next.
+---------
+
+# Prime Video’s New ‘Reacher’ Series Will Officially Be Very Different From Alan Ritchson’s Crime Thriller [Exclusive]
+
+TV News, Adeline Rudolph, Reacher, Neagley, Mortal Kombat II
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://collider.com/prime-video-reacher-spin-off-crime-thriller-neagley-update-adeline-rudolph-mortal-kombat-2/
+
+Adeline Rudolph talks to Collider about her upcoming Reacher spin-off, Neagley, which will reunite her with a Mortal Kombat II star.
+---------
+
+# 'Daredevil: Born Again's Stunning Season 2 Finale Is Among Marvel TV's Best | Review
+
+TV Reviews, Daredevil: Born Again, Disney+, Charlie Cox, Vincent D'Onofrio
+
+Wed, 06 May 2026 02:00:23 GMT
+
+https://collider.com/daredevil-born-again-season-2-finale-review-disney-plus/
+
+Daredevil: Born Again's Season 2 finale makes a bold, brave, and shocking story choice that will change Matt Murdock's MCU future forever.
+---------
+
+# ‘The Batman’ Director’s 10/10 Sci-Fi Prequel Is Officially Free to Stream
+
+Movie News, Rise of the Planet of the Apes, Dawn of the Planet of the Apes, Andy Serkis, Matt Reeves
+
+Wed, 06 May 2026 01:45:14 GMT
+
+https://collider.com/sci-fi-epic-rise-dawn-of-the-planet-of-the-apes-free-streaming-tubi-may-2026/
+
+Rise and Dawn of the Planet of the Apes are both streaming completely for free. Read on for more details!
+---------
+
+# 2 Seasons Later, the Greatest Quote in This Stellar Apple TV Sci-Fi Still Lives Rent-Free
+
+TV Features, Severance, Adam Scott, Apple TV, Ben Stiller
+
+Wed, 06 May 2026 01:42:12 GMT
+
+https://collider.com/severance-greatest-quote-apple-tv-good-news-about-hell/
+
+Severance's entire thesis can be summed up by Ms. Cobel's quote about how corporate culture is hell as well as man-made.
+---------
+
+# Netflix’s 10/10 Crime Series Officially Takes Down the Streamer’s New ‘Reacher’ Replacement
+
+TV News, Netflix, Man on Fire, True Crime, Documentary
+
+Wed, 06 May 2026 01:30:13 GMT
+
+https://collider.com/netflix-true-crime-series-should-i-marry-a-murderer-overtakes-man-on-fire-streaming-success-may-2026/
+
+Netflix's rollicking new true-crime series, Should I Marry a Murderer?, is outperforming the big-budget Reacher replacement Man on Fire.
+---------
+
+# Roger Ebert Praised Patrick Swayze's Only Western Movie as a "Warm-Blooded" Adventure
+
+Movie Features, Tall Tale, Patrick Swayze, Westerns, Disney
+
+Wed, 06 May 2026 01:20:43 GMT
+
+https://collider.com/roger-ebert-reviews-patrick-swayze-tall-tale-western/
+
+Unfortunately, Disney's Tall Tale starring Patrick Swayze as Pecos Bill is the Dirty Dancing star's only Western.
+---------
+
+# One of the Greatest Sci-Fi Survival Films Returns to Streaming Spotlight
+
+Movie News, The Martian, Matt Damon, Sci-Fi, Ridley Scott
+
+Wed, 06 May 2026 01:15:13 GMT
+
+https://collider.com/ridley-scott-sci-fi-epic-the-martian-streaming-success-vudu-may-2026/
+
+Ridley Scott's The Martian, starring Matt Damon, has returned to streaming charts after becoming a box-office hit in 2015.
+---------
+
+# : ‘Daredevil: Born Again’ Season 2 Ending, Explained
+
+Features, Daredevil: Born Again, MCU
+
+Wed, 06 May 2026 01:05:19 GMT
+
+https://movieweb.com/daredevil-born-again-season-2-ending-explained/
+
+'Daredevil: Born Again' Season 2 not only sets up Season 3, but potentially 'Spider-Man: Brand New Day' and a 'Thunderbolts*' sequel.
+---------
+
+# 'Friends' Star Lisa Kudrow Explains Whether Ross & Rachel Were on a Break
+
+TV News, Lisa Kudrow
+
+Wed, 06 May 2026 00:58:54 GMT
+
+https://movieweb.com/friends-ross-rachel-break-lisa-kudrow-reaction/
+
+The ex-Friend appeared on 'The Tonight Show' to promote her new hit series.
+---------
+
+# Sydney Sweeney's R-Rated 'The Housemaid' Beaten by Sam Raimi's 'Send Help' on Digital Streaming
+
+Movie News, Send Help, The Housemaid, Hot on Streaming, Sydney Sweeney
+
+Wed, 06 May 2026 00:24:12 GMT
+
+https://movieweb.com/the-housemaid-streaming-beaten-send-help-google/
+
+Sydney Sweeney's R-Rated 'The Housemaid' beaten by Sam Raimi's new horror movie 'Send Help' on digital streaming.
+---------
+
+# 9 Times Directors Admitted They Were Wrong About Casting Decisions
+
+Movie Lists, Dogma, Batman and Robin, Fantastic Four, Back to the Future, Kevin Smith, Joel Schumacher, Thriller, Sci-Fi
+
+Wed, 06 May 2026 00:00:20 GMT
+
+https://movieweb.com/times-directors-admitted-wrong-casting/
+
+Sometimes actors aren't right for the Movie, and on rare occasions, directors have even acknowledged the mistake.
+---------
+
+# Gerard Butler's Action Thriller 'Kandahar' Is Leaving Free Streaming on Tubi in June 2026
+
+Movie News, Kandahar, Tubi, Coming/Leaving Streaming, Action, Gerard Butler
+
+Tue, 05 May 2026 23:56:17 GMT
+
+https://movieweb.com/kandahar-leaving-free-streaming-tubi-june-2026-action/
+
+Gerard Butler's box office flop action thriller 'Kandahar' will leave free streaming on Tubi in June 2026.
+---------
+
 # Netflix's Hit 'Hannibal Meets Criminal Minds' Series Is One Of Its Best Psychological Thrillers
 
 TV, Netflix, Masked Recs
