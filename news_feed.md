@@ -1,3 +1,355 @@
+# LEGO Batman: Legacy Of The Dark Knight is a Love Letter To All Things Batman
+
+Gaming, LEGO Batman: Legacy of the Dark Knight
+
+Wed, 06 May 2026 15:00:20 GMT
+
+https://screenrant.com/lego-batman-legacy-of-the-dark-knight/
+
+LEGO Batman: Legacy of the Dark Knight is a truly massive love letter to decades of superhero storytelling and is an absolute blast of a game.
+---------
+
+# Scrubs Revival Season 2: Release Date, Story, & Everything We Know
+
+Network TV, Scrubs
+
+Wed, 06 May 2026 15:00:20 GMT
+
+https://screenrant.com/scrubs-season-11-revival-return-explained/
+
+Following the Scrubs revival's first season airing on ABC, these are the details about what's been said about Season 2 of the medical sitcom.
+---------
+
+# It's Officially A Bold New Era For Zelda: Ocarina Of Time
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Wed, 06 May 2026 14:53:12 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-new-era-2026/
+
+The Legend of Zelda: Ocarina of Time has been an absolute classic for decades, and even holds the title of one of the best-reviewed games ever.
+---------
+
+# Invisible Woman's God-Like Ultimate Form Revealed
+
+Marvel Comics, Fantastic Four, Marvel
+
+Wed, 06 May 2026 14:43:51 GMT
+
+https://screenrant.com/fantastic-four-invisible-woman-ultimate-form-powers/
+
+The Fantastic Four's most powerful hero becomes Galactus' new Silver Surfer and singlehandedly saves the Devourer of Worlds from a certain death.
+---------
+
+# NBC's The Office Revealing Never-Before-Seen Footage In Official New Release
+
+TV, The Office
+
+Wed, 06 May 2026 14:41:28 GMT
+
+https://screenrant.com/the-office-nbc-complete-series-expanded-episodes-release-2026/
+
+A special release of NBC's The Office has been announced, with hours of never-before-seen footage set to be included in the beloved sitcom.
+---------
+
+# CNN Founder Ted Turner Dies
+
+TV, CNN
+
+Wed, 06 May 2026 14:38:31 GMT
+
+https://screenrant.com/ted-turner-death-obituary/
+
+Ted Turner, one of the most iconic media moguls and the founder of 24-hour news network CNN has died, leaving behind a storied journalism legacy.
+---------
+
+# Netflix's Narnia Movie Is Already Breaking A Major Budget Record For The Streamer
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Wed, 06 May 2026 14:36:15 GMT
+
+https://screenrant.com/narnia-movie-netflix-budget-most-expensive-ever-greta-gerwig/
+
+The Narnia franchise is coming back to life thanks to Netflix, but the upcoming 2027 reboot is reportedly setting a new record for the streamer.
+---------
+
+# Steam 10/10 Acclaimed RPG Completely Free In May For Extremely Limited Time
+
+Gaming, Steam
+
+Wed, 06 May 2026 14:23:28 GMT
+
+https://screenrant.com/steam-free-game-may-2026-10-out-of-10/
+
+One of the greatest games ever made is being given away completely free via Steam, but you don't have much time at all to claim it.
+---------
+
+# Nathan Fillion's Hit 8-Season Crime Series Officially Dethrones Disney's Iconic Star-Studded Comedy After Huge Episode Release
+
+TV, Masked Recs
+
+Wed, 06 May 2026 14:15:33 GMT
+
+https://screenrant.com/the-rookie-dethrones-devil-wears-prada-hulu-streaming-charts/
+
+Nathan Fillion's crime series just released one of its biggest episodes to date, and the 8-season show has found immense streaming success.
+---------
+
+# 2 PS1 Classics Are Officially Getting PlayStation 5 Remakes
+
+Gaming, PlayStation 5
+
+Wed, 06 May 2026 14:13:56 GMT
+
+https://screenrant.com/playstation-ps5-remakes-myst-riven/
+
+Two PS1 classics are coming to PS5 later this month with the full remake treatment, and you need to put them on your wishlist as soon as possible.
+---------
+
+# Mark Hamill's Force Ghost Movie Pitch Is the Perfect Star Wars Movie
+
+Movies, Star Wars
+
+Wed, 06 May 2026 15:00:13 GMT
+
+https://www.cbr.com/mark-hamill-force-ghost-luke-skywalker-perfect-star-wars-movie/
+
+Mark Hamill doesn't want to return to Star Wars, but his joke pitch for a Luke Skywalker return would actually be amazing.
+---------
+
+# Russo Brothers Officially Reveal How Avengers: Doomsday Differs From Their Previous Marvel Movies
+
+Movies, Marvel Comics, MCU, Marvel Cinematic Universe, Marvel, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers, Avengers: Secret Wars, X-Men
+
+Wed, 06 May 2026 15:00:13 GMT
+
+https://www.cbr.com/russo-brothers-reveal-how-avengers-doomsday-differs-from-other-marvel-movies/
+
+The Russo Bros. just officially warned Marvel fans to strap in for Avengers: Doomsday.
+---------
+
+# 27 Years Ago, Pokémon Snap Was a Non-Violent First-Person Shooter
+
+Games, Pokemon Snap, Pokemon, New Pokémon Snap
+
+Wed, 06 May 2026 15:00:13 GMT
+
+https://www.cbr.com/pokemon-snap-non-violent-first-person-shooter/
+
+In a time of great expansion for the Pokémon universe, an N64 spin-off took it in an unexpected direction.
+---------
+
+# NBC Officially Renews Daniel Radcliffe's The Fall and Rise of Reggie Dinkins
+
+TV, The Fall and Rise of Reggie Dinkins, Daniel Radcliffe
+
+Wed, 06 May 2026 14:38:58 GMT
+
+https://www.cbr.com/nbc-renews-daniel-radcliffe-sitcom-the-fall-and-rise-of-reggie-dinkins/
+
+The announcement comes almost a month after the Season 1 finale.
+---------
+
+# The Office Officially Drops Long-Awaited Release This July
+
+TV, The Office
+
+Wed, 06 May 2026 14:38:27 GMT
+
+https://www.cbr.com/the-office-superfan-extended-episodes-blu-ray-release/
+
+A different way to watch The Office will finally be available for all fans of the hit NBC mockumentary sitcom.
+---------
+
+# 5 Smartest Star Trek Commanders, Ranked
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Wed, 06 May 2026 14:30:13 GMT
+
+https://www.cbr.com/smartest-star-trek-commanders-ranked-list/
+
+These Star Trek commanders are known for their intelligence and strategic thinking. But who's the smartest of them all?
+---------
+
+# Mortal Kombat II Cast Gets Real About Violence, Power & Fans
+
+Movies, Mortal Kombat II
+
+Wed, 06 May 2026 14:16:14 GMT
+
+https://www.cbr.com/video/mortal-kombat-ii-cast-gets-real-about-violence-power-fans/
+
+Ludi Lin, Jessica McNamee, and Mehcad Brooks unpack the franchise’s lasting appeal and what keeps fans locked in.Between hilarious tangents and off-the-rails moments, the trio gets into the real heart of Mortal Kombat: its “secret sauce.” From arcana as personal power to unmatched representation across characters, they explain why MK still resonates globally. Plus, some unexpected takes on food, talents, and fandom.
+---------
+
+# CBR-civil-war-qa_H-YT
+
+Movies, Russo brothers, Captain America: Civil War, Marvel
+
+Wed, 06 May 2026 14:11:22 GMT
+
+https://www.cbr.com/video/civil-war-turns-10/
+
+Civil War nearly broke Marvel—and the Russo Brothers explain why. In this Captain America: Civil War 10th anniversary interview, Joe and Anthony Russo reveal the internal battle that shaped the MCU’s future.From fighting Marvel over the ending to holding production until Spider-Man was secured, this is the untold story behind one of Marvel’s most important films. They also dive into Robert Downey Jr. and Chris Evans’ performances, how Chadwick Boseman defined Black Panther, how they chose Team Cap vs Team Iron Man, and why they refused a safer ending.Plus: Why it was always going to be Secret Wars...Moderated by Sean O'Connell
+---------
+
+# As Captain America: Civil War Turns 10, The Russo Brothers Reveal How They Tore the MCU in Half
+
+CBR Exclusives, Chris Evans, Captain America: Civil War
+
+Wed, 06 May 2026 14:00:24 GMT
+
+https://www.cbr.com/as-captain-america-civil-war-turns-10-the-russo-brothers-reveal-how-they-tore-the-mcu-in-half/
+
+Before the Russo Brothers unleash Avengers: Doomsday, the MCU directors look back on their 10-year-old MCU masterpiece.
+---------
+
+# Striking Distance Finds Redemption on Netflix 33 Years After $77M Flop
+
+Movies, Striking Distance, Netflix, bruce willis
+
+Wed, 06 May 2026 14:00:14 GMT
+
+https://www.cbr.com/bruce-willis-striking-distance-streaming-success-action-netflix-may-2026/
+
+Bruce Willis's most infamous action-thriller is soaring to the top of the Netflix streaming charts more than 30 years after flopping in theaters.
+---------
+
+# Karl Urban Is Officially Done With 'The Boys,' but Mortal Kombat Is Just the Beginning
+
+Collider Signature, Karl Urban, profile, Star Trek, The Boys, Mortal Kombat II
+
+Wed, 06 May 2026 15:00:13 GMT
+
+https://collider.com/karl-urban-the-boys-ending-mortal-kombat-2-johnny-cage-interview/
+
+Karl Urban reflects on The Boys ending, Mortal Kombat II, and his career, revealing how fandom, leadership, and gratitude shaped him.
+---------
+
+# Will Sharpe and Paul Bettany's 'Amadeus' Is a Stunning but Sometimes Shallow Adaptation | Review
+
+TV Reviews, Paul Bettany, Amadeus, Will Sharpe, Starz
+
+Wed, 06 May 2026 14:00:14 GMT
+
+https://collider.com/amadeus-tv-show-review-starz-will-sharpe-paul-bettany/
+
+Will Sharpe and Paul Bettany's Amadeus boasts stunning performances and lavish visuals, but sometimes sacrifices depth for spectacle.
+---------
+
+# The 1965 Track That Outshines "Blowin' in the Wind" as Bob Dylan's Greatest Work
+
+Music Features, Bob Dylan, Music, Rock, Billboard Hot 100
+
+Wed, 06 May 2026 13:59:12 GMT
+
+https://collider.com/bob-dylan-1965-subterranean-homesick-blues-outshines-blowin-in-the-wind/
+
+Bob Dylan's groundbreaking 1965 track marked a pivotal shift in his career and showcased his unique songwriting style that outshines his famous Blowin' in the Wind.
+---------
+
+# Charlize Theron's Hit Netflix Thriller Passes an Unexpected Milestone
+
+Movie News, Charlize Theron, Taron Egerton, Eric Bana, Apex
+
+Wed, 06 May 2026 12:31:12 GMT
+
+https://collider.com/charlize-theron-netflix-thriller-song-chemical-brothers-go-shazam-billboard-success/
+
+After conquering Netflix, Charlize Theron's Apex is also conquering music charts thanks to The Chemical Brothers' hit song Go.
+---------
+
+# Netflix’s 3-Part Murder-Mystery Series Is the Perfect Late Night Thriller
+
+TV Features, Netflix, Agatha Christie's Seven Dials, Helena Bonham Carter, Martin Freeman
+
+Wed, 06 May 2026 12:24:13 GMT
+
+https://collider.com/netflix-mystery-series-agatha-christies-seven-dials/
+
+In January 2026, Netflix released it’s latest Agatha Christie adaptation in the mystery thriller Agatha Christie’s Seven Dials.
+---------
+
+# $100K Action Thriller 'Hierarchy' Shoots up Streaming Charts
+
+Movie News, Hierarchy (2024), Action, Crime, Thriller
+
+Wed, 06 May 2026 15:00:18 GMT
+
+https://movieweb.com/hierarchy-stream-chart-may-2026/
+
+The low-budget, independent action crime thriller has become an unexpected streaming smash hit.
+---------
+
+# 'John Wick's Scott Adkins Makes Directorial Debut in First Look at Action Thriller 'Brawler'
+
+Movie News, Scott Adkins, Action, Thriller, Lewis Tan
+
+Wed, 06 May 2026 14:52:57 GMT
+
+https://movieweb.com/scott-adkins-directorial-debut-brawler/
+
+Starring 'Mortal Kombat's Lewis Tan alongside Adkins, the action thriller is currently filming and will launch sales ahead of the Cannes market.
+---------
+
+# Michael Fassbender Thriller 'Hope' Gets Summer 2026 Release Update
+
+Movie News, Cannes Film Festival, Michael Fassbender, Alicia Vikander
+
+Wed, 06 May 2026 14:30:26 GMT
+
+https://movieweb.com/michael-fassbender-hope-summer-2026-release/
+
+The Na Hong-jin sci-fi action thriller will premiere at Cannes before rolling out through Neon and Mubi in major territories.
+---------
+
+# ‘Captain America: Civil War’ Perfected Marvel’s Formula, 10 Years Ago Today
+
+Features, Captain America: Civil War, MCU, Holds Up
+
+Wed, 06 May 2026 14:00:19 GMT
+
+https://movieweb.com/captain-america-civil-war-secret-avengers/
+
+'Captain America: Civil War' was released on May 6, 2016, and the film has proven to be one of the most important Marvel Cinematic Universe movies.
+---------
+
+# The Mandalorian & Grogu’ Return Officially Revealed After Movie With New Comic
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Wed, 06 May 2026 13:52:45 GMT
+
+https://movieweb.com/mandalorian-grogu-return-comic-revealed/
+
+The Mandalorian & Grogu: Danger in the Dark will arrive on July 22, 2026, giving Din Djarin and Grogu their next confirmed release after the May movie
+---------
+
+# Jo Martin's New 'Doctor Who' Project Rules Out the Fugitive Doctor From the Show's 2026 Comeback
+
+Features, Doctor Who
+
+Wed, 06 May 2026 13:00:19 GMT
+
+https://movieweb.com/doctor-who-comeback-no-jo-martin/
+
+'Doctor Who's upcoming "Circuit Breaker" storyline gives Jo Martin's Fugitive Doctor the chance to shine, just not in the TV show.
+---------
+
+# 'King of the Hill' Sets Season 15 Release Date for Hulu Revival
+
+TV News, King of the Hill, Hulu, Disney+
+
+Wed, 06 May 2026 12:45:27 GMT
+
+https://movieweb.com/king-of-the-hill-season-15-release-date/
+
+Hulu has set a summer release date for Season 15 of 'King of the Hill,' which brings the highly successful revival series back for a second run.
+---------
+
 # PlayStation Plus Releases Bonus Free Download For May, Yours Forever
 
 Gaming, PlayStation Plus, PC
