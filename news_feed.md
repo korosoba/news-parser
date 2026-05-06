@@ -1,3 +1,256 @@
+# Sinners Meets Supernatural In HBO’s 10-Part Historical Horror Series That Deserves To Be Binged
+
+Classic TV, Masked Recs
+
+Wed, 06 May 2026 23:30:20 GMT
+
+https://screenrant.com/lovecraft-country-hbo-like-sinners-supernatural-horror-binge/
+
+HBO Max has a lot of great horror series, but this small-screen precursor to Ryan Coogler's Sinners remains arguably the platform's best horror binge.
+---------
+
+# Wolverine Officially Has a New Most Extreme Injury in Marvel History
+
+Comics, Wolverine, Marvel
+
+Wed, 06 May 2026 23:30:20 GMT
+
+https://screenrant.com/wolverine-worst-injury-invisible-woman/
+
+Marvel just pushed Wolverine to his limit.
+---------
+
+# Paradise Season 3 Image Reveals Elijah Wood & Supergirl’s Melissa Benoist Joining Cast In A Major Sci-Fi Twist
+
+TV, Paradise
+
+Wed, 06 May 2026 23:12:38 GMT
+
+https://screenrant.com/paradise-season-3-elijah-wood-melissa-benoist-cast-image/
+
+Season 3 of Hulu's Paradise is getting two major additions to its cast with a new image from Dan Fogelman revealing Elijah Wood and Melissa Benoist.
+---------
+
+# Scarpetta Season 2 Adds 9 To Cast
+
+TV, Scarpetta
+
+Wed, 06 May 2026 23:06:44 GMT
+
+https://screenrant.com/prime-videos-hit-crime-series-based-on-bestselling-novels-adds-9-to-cast-for-season-2/
+
+Prime Video's crime thriller based on a bestselling novel series adds nine new cast members for its highly anticipated second season.
+---------
+
+# Netflix's 3-Part 'Mindhunter Meets True Detective' Thriller Series Deserves Its 92% RT Score
+
+TV, Mindhunter, True Detective, Masked Recs, Netflix
+
+Wed, 06 May 2026 23:02:20 GMT
+
+https://screenrant.com/the-sinner-netflix-thriller-mindhunter-meets-true-detective/
+
+Mindhunter and True Detective are two of the best psychological thrillers ever, but one underrated Netflix show can match their unique shared style.
+---------
+
+# Storm's Daughter Officially Joins X-Men Canon
+
+Marvel Comics, Storm, X-Men, Marvelous
+
+Wed, 06 May 2026 23:00:22 GMT
+
+https://screenrant.com/x-men-storm-future-mutant-daughter-furaha/
+
+Marvel finally reveals the child of the X-Men's most powerful mutant, who may play a crucial role in saving the multiverse from collapse.
+---------
+
+# 15 Years Later, Thor Proves Chris Hemsworth Is Avengers: Doomsday's Secret Weapon
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 06 May 2026 23:00:22 GMT
+
+https://screenrant.com/thor-movie-15-year-anniversary-avengers-doomsday/
+
+Avengers: Doomsday is sure to be among the biggest hits of the year, but Thor’s role in the film is more important than many have expected.
+---------
+
+# Jessie Mei Li Stars In Hulu's New Series The Season On June 17, 2026
+
+TV, Hulu
+
+Wed, 06 May 2026 22:53:25 GMT
+
+https://screenrant.com/the-season-show-jessie-mei-li-hulu-release-date/
+
+A Shadow and Bone alum is starring in Hulu's new revenge series, premiering next month with betrayal, power plays, and hidden agendas to surface.
+---------
+
+# Star Fox Reveal Confirms the Zelda: Ocarina of Time Remake Is Real
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Wed, 06 May 2026 23:39:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-star-fox-announcement-confirmation/
+
+The rumored Zelda: Ocarina of Time remake has now been all but confirmed thanks to Nintendo's surprise announcement of the new Star Fox game.
+---------
+
+# Crunchyroll Anime Awards' Japan Problem Revealed by Industry Insiders Ahead of 10th Anniversary
+
+Anime, Crunchyroll
+
+Wed, 06 May 2026 23:15:12 GMT
+
+https://www.cbr.com/crunchyroll-anime-awards-japan-problem-reveal/
+
+Some of the most prominent figures in the world of anime explain why the Crunchyroll Anime Awards are far from being the Oscars of their industry.
+---------
+
+# 22 Years Later, the Greatest Quote in Anime History Is Still Untouchable
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED Destiny
+
+Wed, 06 May 2026 23:00:14 GMT
+
+https://www.cbr.com/best-anime-quote-mobile-suit-gundam-seed-destiny/
+
+The Gundam franchise changed anime history with one unforgettable line.
+---------
+
+# Debra's Absence in Dexter: Resurrection's Continues a Problematic Trend
+
+TV, Dexter: Resurrection
+
+Wed, 06 May 2026 23:00:14 GMT
+
+https://www.cbr.com/dexter-resurrection-debra-absence-problematic-female-trend/
+
+Dexter fans miss an important character, whose absence highlights a frustrating franchise trend.
+---------
+
+# 5 Forgotten Mystery Movies That Are Amazing From Start to Finish
+
+Movies, Thriller, The Long Goodbye, Mystery
+
+Wed, 06 May 2026 23:00:14 GMT
+
+https://www.cbr.com/perfect-mystery-movies-no-one-remembers-list/
+
+Mystery thrillers have captivated audiences for over a century, but even some of the best stories have been forgotten to modern generations.
+---------
+
+# Nicolas Cage’s Crime Thriller Will Officially Return, but Not Until 2028
+
+Movie News, Longlegs, Nicolas Cage, Horror, Paramount
+
+Wed, 06 May 2026 23:30:14 GMT
+
+https://collider.com/nicolas-cage-crime-thriller-follow-up-longlegs-release-date-january-14-2028/
+
+Nicolas Cage's follow-up to his hit crime thriller Longlegs now has a release date, but it's gonna be a while.
+---------
+
+# 'Will Trent' Can't Come Back After Yet Another Badly-Timed Death in Season 4
+
+TV Features, Will Trent, Ramon Rodriguez, Scott Foley, ABC
+
+Wed, 06 May 2026 23:24:13 GMT
+
+https://collider.com/will-trent-season-4-finale-seth-amanda-death/
+
+Will Trent's Season 4 finale shocks fans with the untimely death of Seth, further damaging the show's already shaky storytelling and character development.
+---------
+
+# 8 Near-Perfect Thrillers of the Last 6 Years, Ranked
+
+Movie, Thriller, The Seed of the Sacred Fig, Decision to Leave, Pig
+
+Wed, 06 May 2026 23:21:13 GMT
+
+https://collider.com/near-perfect-thriller-movies-last-6-years/
+
+The past 6 years have seen the release of many exceptional, near-perfect thriller films, including The Long Walk, The Seed of the Sacred Fig, and Pig.
+---------
+
+# 11 Years Later, Michael B. Jordan's Hit Action Reboot Franchise Is Officially Taking Over the World
+
+Movie News, Creed II, Creed III, Tubi, Creed
+
+Wed, 06 May 2026 23:15:13 GMT
+
+https://collider.com/michael-b-jordan-sports-franchise-creed-free-streaming-success-tubi-may-2026/
+
+The Creed film series, starring Michael B. Jordan, is experiencing a resurgence in popularity on free streaming platforms. Here's all to know.
+---------
+
+# 8 Renewed Fantasy Shows Coming Back For More Seasons In 2026 and Beyond
+
+TV, Fantasy, House of the Dragon, Wednesday, The Lord of the Rings: The Rings of Power
+
+Wed, 06 May 2026 23:11:13 GMT
+
+https://collider.com/fantasy-shows-renewed-more-seasons-2026/
+
+House of the Dragon, Interview with the Vampire, Wednesday, One Piece, and more make our list of renewed fantasy shows coming back for more seasons.
+---------
+
+# Netflix’s Remake of a Fantasy Classic Officially Confirmed for 2027 Release
+
+TV News, One Piece, Netflix, Anime, Fantasy
+
+Wed, 06 May 2026 23:00:14 GMT
+
+https://collider.com/netflix-anime-remake-the-one-piece-release-date-february-2027/
+
+Netflix's One Piece anime remake gets a 2027 release date, giving fans a chance to revisit Eiichiro Oda's action-adventure fantasy.
+---------
+
+# Anne Hathaway’s Strange 7-Part Prime Video Sci-Fi Miniseries Is Better Than Its Rotten Tomatoes Score
+
+TV Features, Anne Hathaway, Prime Video, Solos, Sci-Fi
+
+Wed, 06 May 2026 22:57:13 GMT
+
+https://collider.com/anne-hathaway-prime-video-sci-fi-series-solos/
+
+In 2021, Anne Hathaway starred alongside fellow Oscar winners in Solos, a forgotten Prime Video sci-fi series.
+---------
+
+# 2026’s Highest-Grossing Sci-Fi Movie Officially Overtakes One of Marvel’s Most Divisive Sequels
+
+Movie News, The Super Mario Galaxy Movie, Spider-Man 3, Sci-Fi, Box Office
+
+Wed, 06 May 2026 22:46:14 GMT
+
+https://collider.com/2026-sci-fi-sequel-super-mario-galaxy-movie-overtakes-spider-man-3-box-office-896-million/
+
+The Super Mario Galaxy Movie has officially taken down Sam Raimi's Spider-Man 3 at the box office. Read on for more.
+---------
+
+# U.S. Summer Box Office Is Shaping Up to Be the Best Since the Pandemic
+
+Movie News, box office, The Odyssey
+
+Wed, 06 May 2026 23:26:57 GMT
+
+https://movieweb.com/summer-box-office-2026-projections/
+
+The 2026 summer movie season is shaping up to bring in $4 billion at the domestic box office, potentially the best since 2019.
+---------
+
+# 'The Odyssey': Christopher Nolan Is Taking the Opposite Approach From Batman Trilogy
+
+Features, Christopher Nolan, The Odyssey, The Dark Knight, Batman, Batman Begins
+
+Wed, 06 May 2026 23:00:20 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-opposite-batman/
+
+Christopher Nolan is finally changing things up, and the latest trailer for 'The Odyssey' proves the direction he leaned into.
+---------
+
 # All 5 Marvel Netflix Characters Who Return In Daredevil: Born Again Season 2
 
 Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
