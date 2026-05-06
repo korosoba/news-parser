@@ -1,3 +1,190 @@
+# Xbox Game Pass Unleashes 5 Free Games Today
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Wed, 06 May 2026 04:01:24 GMT
+
+https://screenrant.com/xbox-game-pass-may-6-free-games/
+
+If you're looking for something to play next, Xbox Game Pass just added five free games, and you're able to check them out right now.
+---------
+
+# Tom Holland's Spider-Man Is Officially 10 Years Old Today
+
+Superheroes, Spider-Man, Captain America: Civil War, Marvel Cinematic Universe
+
+Wed, 06 May 2026 04:00:29 GMT
+
+https://screenrant.com/spider-man-tom-holland-10-year-anniversary/
+
+Today marks the 10th anniversary of Tom Holland's Spider-Man joining the Marvel Cinematic Universe. Let's look at how it went and where it's going.
+---------
+
+# Andy Serkis' New Dystopian Movie Based On 81-Year-Old Book Harshly Divides Critics & Audiences On Rotten Tomatoes
+
+Movies, Andy Serkis, Masked Recs
+
+Wed, 06 May 2026 03:58:58 GMT
+
+https://screenrant.com/andy-serkis-animal-farm-movie-rotten-tomatoes-audience-score/
+
+Based on a very famous book from 81 years ago, Andy Serkis' new dystopian movie brutally divides critics and audiences on Rotten Tomatoes.
+---------
+
+# 8 Things About Prime Video's Reacher That Make No Sense
+
+Streaming TV, Reacher, Prime Video
+
+Wed, 06 May 2026 03:27:30 GMT
+
+https://screenrant.com/reacher-things-make-no-sense/
+
+Prime Video’s Reacher is easily one of the best crime thrillers on streaming right now, but it is hard not to notice how it makes no sense sometimes.
+---------
+
+# Star Wars Quietly Recasts A Major Villain After 8 Years
+
+Streaming TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Wed, 06 May 2026 02:15:22 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-dryden-vos-recast/
+
+A major Star Wars villain introduced eight years ago is quietly recast in the franchise's new show, and will likely have a bigger role in season 2.
+---------
+
+# 10 Best Magical Girl Anime for Sailor Moon Fans
+
+Anime, Sailor Moon, Shojo
+
+Wed, 06 May 2026 03:45:14 GMT
+
+https://www.cbr.com/best-magical-girl-anime-sailor-moon-fans/
+
+Sailor Moon started the Magical Girl revolution, and the many amazing anime that followed in her footsteps are worth discovering.
+---------
+
+# 5 Forgotten R-Rated Thrillers That Are Perfect From Start to Finish
+
+Movies, Thriller, Frantic, Crime
+
+Wed, 06 May 2026 03:45:14 GMT
+
+https://www.cbr.com/r-rated-thrillers-no-one-remembers/
+
+The thriller boasts one of the biggest footprints in cinema, leaving plenty of forgotten and undiscovered gems every mystery fan needs to see.
+---------
+
+# Bosch Fans Need to Watch Line of Duty
+
+TV, Line of Duty, Bosch
+
+Wed, 06 May 2026 03:30:12 GMT
+
+https://www.cbr.com/bosch-fans-line-of-duty-british-crime-drama/
+
+Bosch is a series that fans can't get enough of, and with that in mind, another British crime series might be a perfect follow-up.
+---------
+
+# Pokémon Go Events Schedule for May 2026
+
+Games, Pokemon GO, Pokemon, Nintendo
+
+Wed, 06 May 2026 03:15:14 GMT
+
+https://www.cbr.com/pokmon-go-events-schedule-may-2026/
+
+May 2026 is going to be a great month for Pokémon Go fans.
+---------
+
+# June 4 Will Be a Great Day for Bleach Fans
+
+Anime, Bleach
+
+Wed, 06 May 2026 03:00:12 GMT
+
+https://www.cbr.com/dont-bleach-my-fist-tite-kubo-cover-art-release-date/
+
+Bleach unveils the official cover art and release date for a brand-new spin-off novel by Tite Kubo that's now scheduled for this summer.
+---------
+
+# 10 New-Gen Shonen Better Than The Classics You Grew Up On
+
+Anime, Demon Slayer, Chainsaw Man, Jujutsu Kaisen, shonen anime
+
+Wed, 06 May 2026 02:45:13 GMT
+
+https://www.cbr.com/new-gen-shonen-better-than-the-classics/
+
+Classic shonen anime series continue to stand the test of time, but these 10 new-gen series are proving that the new era of shonen is better.
+---------
+
+# New Black Panther Revealed in Marvel Tōkon: Fighting Souls Trailer
+
+Games, Marvel
+
+Wed, 06 May 2026 02:25:14 GMT
+
+https://www.cbr.com/new-black-panther-marvel-tokon-fighting-souls-trailer/
+
+Black Panther is coming to the new fighting game, Marvel Tōkon: Fighting Souls, but it's not who players are expecting.
+---------
+
+# Video Games Turning 30 In 2026
+
+Games, Video Games, Nintendo, PlayStation (Original), Tomb Raider
+
+Wed, 06 May 2026 02:15:13 GMT
+
+https://www.cbr.com/video-games-turning-30-in-2026/
+
+As the '90s fade further into the distance, a new roster of video games celebrates their 30th birthdays in 2026, including entire franchises.
+---------
+
+# 'Euphoria's Most-Searched New Character Completely Changes the HBO Show's Direction in Just 3 Minutes
+
+TV Features, Euphoria, HBO, Zendaya, Grace Van Patten
+
+Wed, 06 May 2026 04:45:12 GMT
+
+https://collider.com/euphoria-season-3-kitty-anna-von-patten-character-explained/
+
+Euphoria Season 3's most-searched character makes the most of her impact on the HBO series with just three minutes of screentime.
+---------
+
+# Prime Video's 2-Part Superhero Thriller Is a Better Watch Than 'Invincible' or 'The Boys'
+
+TV Features, The Tick, The Boys, Invincible, Prime Video
+
+Wed, 06 May 2026 03:45:14 GMT
+
+https://collider.com/prime-video-the-tick-most-important-superhero-thriller/
+
+Long before Invincible or The Boys took the world by storm, Prime Video was delivering superhero satire in the form of The Tick.
+---------
+
+# The Cult Classic Western Trilogy So Good You Can Rewatch It Multiple Times
+
+Movie, Desperado, El Mariachi, Once Upon a Time in Mexico, Robert Rodriguez
+
+Wed, 06 May 2026 03:26:14 GMT
+
+https://collider.com/cult-classic-westerns-mexico-trilogy-robert-rodriguez-rewatchable/
+
+There are three movies in Robert Rodriguez's Mexico trilogy, with all of them proving fun and rewatchable in their own distinctive ways.
+---------
+
+# 'Landman' Season 3 Gets Exciting Release Update
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton
+
+Wed, 06 May 2026 04:47:08 GMT
+
+https://movieweb.com/taylor-sheridan-landman-season-3-paramount-release/
+
+'Landman' could return sooner than you think.
+---------
+
 # NCIS’s Mark Harmon Reveals His Favorite Gibbs Rule & It’s Surprisingly Practical
 
 TV, NCIS, Mark Harmon
