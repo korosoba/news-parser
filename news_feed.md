@@ -1,3 +1,311 @@
+# Star Wars: The Force Unleashed "Free Remaster" Leaves Gamers Floored
+
+Gaming, Star Wars, Triple-A Games
+
+Wed, 06 May 2026 20:00:20 GMT
+
+https://screenrant.com/star-wars-force-unleashed-remaster-xbox-series/
+
+Star Wars: The Force Unleashed is living on long past its expiration date, thanks to a version of the game that runs on current-generation systems.
+---------
+
+# Netflix's Upcoming Fantasy Show Gives One Of The Greatest Games Of All Time The Arcane Treatment
+
+Streaming TV, Magic: The Gathering, Arcane, Netflix
+
+Wed, 06 May 2026 20:00:20 GMT
+
+https://screenrant.com/magic-the-gathering-netflix-animated-series-arcane-treatment/
+
+After turning League of Legends into a breathtaking animated masterpiece, Netflix is doing the same with an iconic trading card game.
+---------
+
+# Marvel Just Totally Changed Spider-Man: Brand New Day's Trailer Prison Scene
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Daredevil: Born Again
+
+Wed, 06 May 2026 19:56:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-finale-changes-spiderman-brand-new-day-prison-scene/
+
+Following the recent season finale of a major MCU series, the first trailer for Spider-Man: Brand New Day is now looking a whole lot different.
+---------
+
+# Ahsoka Season 2 Release Timeline & Potential Season 3 Return Addressed By Dave Filoni
+
+TV, Ahsoka, Star Wars
+
+Wed, 06 May 2026 19:45:56 GMT
+
+https://screenrant.com/ahsoka-season-2-release-timeline-potential-season-3-return-addressed-by-dave-filoni/
+
+EXCLUSIVE: Dave Filoni comments on the release timeline for Ahsoka season 2 and addresses whether a season 3 of the Disney+ show will move forward.
+---------
+
+# Martin Scorsese & Oscar Isaac Teaming Up For 8-Part Netflix Casino Thriller Series
+
+TV, Martin Scorsese, Oscar Isaac
+
+Wed, 06 May 2026 19:42:22 GMT
+
+https://screenrant.com/martin-scorsese-oscar-isaac-netflix-casino-crime-series-cast/
+
+Martin Scorsese and Oscar Isaac are teaming up for a new eight-episode Netflix series about the high-stakes world of Las Vegas casinos.
+---------
+
+# Netflix's Little House On The Prairie Reboot: Release Date, Cast & Everything We Know
+
+Streaming TV, Little House on the Prairie
+
+Wed, 06 May 2026 19:30:21 GMT
+
+https://screenrant.com/little-house-on-the-prairie-netflix-reboot-explained/
+
+Netflix is bringing back Little House on the Prairie this summer, and the reboot has already been renewed for season 2 ahead of its premiere.
+---------
+
+# David Wise On Creating Gaming Soundtracks, 40 Years Later
+
+Gaming, Music, Triple-A Games
+
+Wed, 06 May 2026 19:26:22 GMT
+
+https://screenrant.com/david-wise-interview-donkey-kong-gamescom-latam-2026/
+
+During Gamescom LATAM 2026, Screen Rant sat down with legendary video game composer David Wise to discuss his career and what he’s learned.
+---------
+
+# Q’orianka Kilcher Sues James Cameron For Stealing Her Features For Avatar Movies
+
+Movies, Avatar, James Cameron
+
+Wed, 06 May 2026 19:24:33 GMT
+
+https://screenrant.com/avatar-lawsuit-james-cameron-stealing-qorianka-kilcher-facial-features/
+
+Over four months after the release of Avatar: Fire and Ash, director James Cameron is at the center of a lawsuit by an actor from The New World.
+---------
+
+# 10 Harsh Realities Of Rewatching The Mummy Returns 25 Years After Its Release
+
+Movies, The Mummy, The Mummy Returns, The Mummy: Tomb of the Dragon Emperor, The Mummy 4
+
+Wed, 06 May 2026 19:20:21 GMT
+
+https://screenrant.com/the-mummy-returns-harsh-realities-25-years-later/
+
+The Mummy Returns is a timeless adventure classic. It's adored for many reasons, but there are some things to keep in mind during a rewatch today.
+---------
+
+# The Lord Of The Rings: Trials Of Saruman Revealed With 2026 Release Date
+
+Gaming, The Lord of the Rings, tabletop games
+
+Wed, 06 May 2026 19:17:56 GMT
+
+https://screenrant.com/lord-rings-trails-saurman-rpg-june-2026/
+
+Saruman returns in a new Lord of the Rings game that was freshly announced, and it's set to come out this year, ahead of expectations.
+---------
+
+# Captain America: Civil War Directors Confirm The Major Change Made to Black Widow In Early Scripts
+
+CBR Exclusives, MCU, Marvel, Marvel Comics, Captain America, Captain America: Civil War, Avengers: Doomsday, Avengers: Doomsday (2026), Black Widow
+
+Wed, 06 May 2026 20:00:13 GMT
+
+https://www.cbr.com/captain-america-civil-war-directors-confirm-major-black-widow-change/
+
+This would've changed Black Widow's arc, if Marvel's biggest creators hadn't stepped in.
+---------
+
+# Why Christopher Nolan's The Odyssey Is a Secret Dark Knight Sequel
+
+Movies, The Odyssey, The Dark Knight, Christopher Nolan
+
+Wed, 06 May 2026 20:00:13 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-secret-dark-knight-sequel/
+
+Christopher Nolan's upcoming fantasy epic is secretly a spiritual sequel to his acclaimed Dark Knight trilogy.
+---------
+
+# Dazed and Confused Remains the Best R-Rated Comedy Of All Time
+
+Movies, Dazed and Confused
+
+Wed, 06 May 2026 20:00:13 GMT
+
+https://www.cbr.com/greatest-r-rated-comedy-dazed-and-confused/
+
+Some movies get older, while others stay the same age, and this 33-year-old cult comedy is still one of the funniest ever made.
+---------
+
+# The Boys Showrunner Breaks Down the Dark Truth Behind Sister Sage’s Arc
+
+CBR Exclusives, The Boys
+
+Wed, 06 May 2026 19:35:20 GMT
+
+https://www.cbr.com/the-boys-season-5-sister-sage-eric-kripke/
+
+The Boys reminds audiences that even the most intelligent people can be anything but heroic.
+---------
+
+# Zelda: Ocarina of Time's New Switch 2 Remake Leak Reports Are False
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Wed, 06 May 2026 19:20:14 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-switch-2-leak-misinformation/
+
+As unofficial information about the rumored Ocarina of Time Switch 2 remake floods in, fans should be aware that many new reports are totally wrong.
+---------
+
+# Mortal Kombat II Scores Fresh Rotten Tomatoes Score In Franhise First
+
+Movies, Mortal Kombat II, Mortal Kombat, Fantasy
+
+Wed, 06 May 2026 19:12:07 GMT
+
+https://www.cbr.com/mortal-kombat-2-rotten-tomatoes-score/
+
+Mortal Kombat II scored the first fresh Rotten Tomatoes rating for a live-action Mortal Kombat movie, improving on its predecessor.
+---------
+
+# Star Trek: TNG's 'Conundrum' Is an Underrated Gem
+
+TV, Star Trek: The Next Generation, Sci-Fi, Star Trek
+
+Wed, 06 May 2026 19:00:13 GMT
+
+https://www.cbr.com/star-trek-tng-conundrum-smartest-trek-twist/
+
+This underrated Star Trek: TNG episode delivers a great twist by turning the Enterprise and its crew upside down.
+---------
+
+# 5 Forgotten Dark Sci-Fi Movies That Are Perfect from Start to Finish
+
+Movies, Sci-Fi
+
+Wed, 06 May 2026 19:00:13 GMT
+
+https://www.cbr.com/best-dark-sci-fi-movies-no-one-remembers-list/
+
+These may not be the biggest box office hits, but there are five forgotten dark sci-fi movies that are flawless from beginning to end.
+---------
+
+# 7 Greatest Anime Tournament Arcs of All Time
+
+Anime, Dragon Ball, Yu Yu Hakusho
+
+Wed, 06 May 2026 18:46:13 GMT
+
+https://www.cbr.com/greatest-anime-tournament-arcs-of-all-time/
+
+Tournament arcs are a tried and true anime tradition that specialize in non-stop action, but some titles truly go above and beyond with this tradition
+---------
+
+# Transformers and LEGO Rebuild Megatron With an Adorably Evil New Release
+
+Anime, Transformers, merchandise, LEGO, toys
+
+Wed, 06 May 2026 18:30:13 GMT
+
+https://www.cbr.com/transformers-megatron-lego-brickheadz-reveal/
+
+The newest LEGO Transformers brick set gives the original version of Megatron a cute but deadly makeover, with the collectible rolling out soon.
+---------
+
+# Netflix Officially Reunites With Oscar Isaac for Martin Scorsese's New Crime Thriller Series
+
+TV News, Oscar Isaac, Martin Scorsese, Netflix, Brian Koppelman
+
+Wed, 06 May 2026 19:45:21 GMT
+
+https://collider.com/netflix-untitled-las-vegas-crime-thriller-series-martin-scorsese-cast-oscar-isaac/
+
+Oscar Isaac is reuniting with Netflix for Martin Scorsese's upcoming Vegas crime thriller from the writer of Ocean's 13.
+---------
+
+# 10 Near-Perfect 3D Animated Movies That No One Remembers Today
+
+Movie, Animation, The Book of Life, Hoodwinked!, The Peanuts Movie
+
+Wed, 06 May 2026 19:19:13 GMT
+
+https://collider.com/near-perfect-3d-animated-movies-no-one-remembers/
+
+From Hoodwinked to A Bug's Life, these 3D animated movies come very close to cinematic perfection but have been sadly forgotten by today's audiences.
+---------
+
+# 'Hocus Pocus 3' Officially Gets the Scream-Worthy Update Fans Have Been Waiting For
+
+Movie News, Hocus Pocus 3, Disney, Bette Midler, Sarah Jessica Parker
+
+Wed, 06 May 2026 18:18:38 GMT
+
+https://collider.com/disney-horror-franchise-hocus-pocus-3-confirmed-bette-midler-sarah-jessica-parker-kathy-najimy-returning/
+
+Get those spells ready, because Hocus Pocus 3 is officially happening at Disney with your favorite trio of witches returning.
+---------
+
+# David Gordon Green Offers 'Halloween' Advice for Upcoming TV Show
+
+Movie News, Halloween, David Gordon Green, michael myers
+
+Wed, 06 May 2026 18:54:52 GMT
+
+https://movieweb.com/halloween-reboot-david-gordon-green-advice/
+
+The filmmaker encourages storytellers to focus on a story that's personal to them as opposed to fan service.
+---------
+
+# 'Mortal Kombat II' Lands Impressive Rotten Tomatoes Score
+
+Movie News, Mortal Kombat II, Mortal Kombat, Rotten Tomatoes
+
+Wed, 06 May 2026 18:44:14 GMT
+
+https://movieweb.com/mortal-kombat-ii-rotten-tomatoes-score/
+
+Did 'Mortal Kombat II' land a fatality on the critics? The video game sequel's Rotten Tomatoes score has finally been revealed.
+---------
+
+# John Krasinski's First Action Movie '13 Hours' Is Streaming on Paramount+
+
+Movie News, 13 Hours: The Secret Soldiers of Benghazi, Jack Ryan, Paramount Plus, Coming/Leaving Streaming, Action
+
+Wed, 06 May 2026 18:30:18 GMT
+
+https://movieweb.com/13-hours-jack-ryan-streaming-paramount-may-2026-action/
+
+John Krasinski's action war movie '13 Hours' is streaming on Paramount+ before the new Jack Ryan film.
+---------
+
+# Matthew Lillard Joins 'Superman' Sequel 'Man of Tomorrow'
+
+Movie News, Man of Tomorrow, Matthew Lillard
+
+Wed, 06 May 2026 18:27:50 GMT
+
+https://movieweb.com/matthew-lillard-man-of-tomorrow-cast/
+
+'Daredevil' star Matthew Lillard is now confirmed to play an undisclosed role in James Gunn's 2027 'Superman' sequel, 'Man of Tomorrow.'
+---------
+
+# HBO Renews 'Harry Potter' Reboot for Season 2, Titled 'The Chamber of Secrets'
+
+TV News, Harry Potter
+
+Wed, 06 May 2026 18:18:45 GMT
+
+https://movieweb.com/hbo-harry-potter-season-2-renewal/
+
+It has been confirmed that HBO's 'Harry Potter' will be getting a second season on the network.
+---------
+
 # Harry Potter Season 2 Officially Renewed By HBO With Exciting New Change
 
 TV, Harry Potter
