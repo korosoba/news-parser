@@ -1,3 +1,245 @@
+# La Brea's 8 Biggest Character Deaths (& How They Die)
+
+Network TV, La Brea
+
+Thu, 07 May 2026 23:45:20 GMT
+
+https://screenrant.com/every-major-character-death-in-la-brea-explained/
+
+Delve into the significant character deaths in the TV series La Brea, understanding their narrative impact and how they shaped the show's mythology.
+---------
+
+# Netflix's Bloodhounds Studio Breaks Silence on Season 3 Hints (Exclusive)
+
+Anime, Bloodhounds, Netflix, Webtoon
+
+Thu, 07 May 2026 23:30:19 GMT
+
+https://screenrant.com/netflix-bloodhounds-action-thriller-season-3-studio-ceo/
+
+One of Netflix's biggest April hits was a smash hit with its second season, but key scenes intentionally set up future stories, its studio confirms.
+---------
+
+# Free Steam RPG Is Like Final Fantasy Meets Animal Crossing
+
+Gaming, Steam, RPG, PC, Indie
+
+Thu, 07 May 2026 23:30:19 GMT
+
+https://screenrant.com/steam-rpg-free-demo-sunny-trails/
+
+A gorgeous new RPG is set to be released on Steam pretty soon, but interested players should know that they can already start playing it.
+---------
+
+# Netflix Just Dealt HBO's Harry Potter A Huge Blow Less Than 8 Months Before Episode 1
+
+Streaming TV, Narnia: The Magician's Nephew
+
+Thu, 07 May 2026 23:30:19 GMT
+
+https://screenrant.com/hbo-harry-potter-netflix-narnia-clash/
+
+Harry Potter and Greta Gerwig's Narnia are competing fantasy franchises, and the Narnia reboot has just introduced a game changing strategy.
+---------
+
+# Matt Reeves Drops The Batman 2 First Look & Potential Villain
+
+Movies, The Batman Part II, DC Universe, Batman
+
+Thu, 07 May 2026 23:15:40 GMT
+
+https://screenrant.com/the-batman-2-matt-reeves-first-look/
+
+As The Batman - Part II is getting closer to starting principal photography, director Matt Reeves has finally shared a first look at the DC sequel.
+---------
+
+# Remarkably Bright Creatures Cast: These A-List Actors Make A Splash In Netflix’s Movie Adaptation
+
+Movies, Remarkably Bright Creatures
+
+Thu, 07 May 2026 23:15:19 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-cast-characters/
+
+Netflix's Remarkably Bright Creatures brings a magical story of to life, and these are the A-list actors who play the lovable characters.
+---------
+
+# Zelda: Ocarina Of Time Remake's Latest Leak Is Completely Ridiculous
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo Switch 2
+
+Thu, 07 May 2026 23:00:19 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-leak-two-parts/
+
+A new leak doing the rounds about the Zelda: Ocarina of Time remake is just straight-up dumb.
+---------
+
+# I'm Officially Worried About Hannah After Chicago Med Season 11's Ominous Warning
+
+Network TV, Chicago Med, One Chicago
+
+Thu, 07 May 2026 23:00:19 GMT
+
+https://screenrant.com/chicago-med-season-11-hannah-character-foreshadow-labor/
+
+Chicago Med is teasing trouble for Hannah and her pregnancy ahead of the season 11 finale, based on potential foreshadowing tied to her mother.
+---------
+
+# All 7 Starter Digimon from Season One, Rated by Design
+
+Anime, Digimon, Digimon Adventure - Season 1, Digimon Adventure
+
+Thu, 07 May 2026 23:00:19 GMT
+
+https://screenrant.com/digimon-season-one-best-starter-designs/
+
+The 1999 anime Digimon Adventure had seven unique starter Digimon creatures, and here are all seven ranked by how recognizable their designs are.
+---------
+
+# Remarkably Bright Creatures Review: Netflix's Heartwarming Drama Is Like A Warm Hug
+
+New Movies, Remarkably Bright Creatures
+
+Thu, 07 May 2026 23:00:19 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-review/
+
+Sally Field and Lewis Pullman anchor Netflix's Remarkably Bright Creatures with stirring performances in a story about family and overcoming grief.
+---------
+
+# 8 Reasons It's Tough to Watch Code Geass Today
+
+Anime, Code Geass: Lelouch of the Rebellion, Death Note
+
+Thu, 07 May 2026 23:15:12 GMT
+
+https://www.cbr.com/code-geass-reasons-its-unwatchable-2026/
+
+Code Geass may have been an iconic mecha anime back in the 2000s, but fans today can't help but see its obvious flaws.
+---------
+
+# Daemons of the Shadow Realm Dethroned in New Top 20 Sales Ranking
+
+Anime, Daemons of the Shadow Realm, Witch Hat Atelier
+
+Thu, 07 May 2026 23:05:13 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-vs-witch-hat-atelier-sales-ranking-lose/
+
+Official monthly sales rankings confirm that Daemons of the Shadow Realm is being overshadowed by another hit fantasy series.
+---------
+
+# Guy Ritchie's Adventure Film Fountain of Youth Celebrates Major Milestone on Apple TV Despite Mixed Reviews
+
+Movies, Fountain of Youth
+
+Thu, 07 May 2026 23:00:12 GMT
+
+https://www.cbr.com/guy-ritchie-fountain-of-youth-adventure-apple-tv-milestone-may-2026/
+
+The adventure film missed out on a theatrical release but it was a streaming revelation.
+---------
+
+# 10 Near-Perfect Disaster Movies to Watch After Greenland 2
+
+Movies, Greenland 2: Migration
+
+Thu, 07 May 2026 23:00:12 GMT
+
+https://www.cbr.com/greatest-disaster-movies-watch-after-greenland-2-list/
+
+Greenland 2: Migration might not be the most successful sequel ever, but it has made us want to watch these other fantastic disaster movies.
+---------
+
+# 12 Years Later, Denzel Washington's ‘John Wick’-Style Action-Thriller Hit Is Officially Taking Over Prime Video
+
+Movie News, Denzel Washington, Reacher, The Equalizer, Prime Video
+
+Thu, 07 May 2026 23:31:13 GMT
+
+https://collider.com/denzel-washington-crime-thriller-the-equalizer-streaming-success-prime-video-may-2026/
+
+Denzel Washington's cult classic crime thriller, The Equalizer, is a sudden streaming hidden gem on Prime Video.
+---------
+
+# 8 Upcoming Superhero Movies, Ranked by Anticipation
+
+Movie, Superhero, Avengers: Doomsday, Spider-Man: Brand New Day, Spider-Man: Beyond the Spider-Verse
+
+Thu, 07 May 2026 23:21:13 GMT
+
+https://collider.com/upcoming-superhero-movies-ranked-by-anticipation/
+
+There are a lot of exciting superhero movies set to release over the next few years, including Avengers: Doomsday, Man of Tomorrow, and Incredibles 3.
+---------
+
+# Forget 'Lost' — This Near-Perfect '90s Sci-Fi Classic Had TV’s Most Nasty Cliffhanger
+
+TV Features, Lost, Quantum Leap, Sci-Fi
+
+Thu, 07 May 2026 23:04:13 GMT
+
+https://collider.com/best-sci-fi-classic-series-quantum-leap-cliffhanger-ending-meaning/
+
+Back in 1993, the beloved sci-fi series Quantum Leap ended with an ambiguous and controversial finale.
+---------
+
+# HBO Max's 10/10 Crime Thriller Surges on Streaming
+
+TV News, DTF St. Louis, HBO Max, Crime, Jason Bateman
+
+Thu, 07 May 2026 23:00:13 GMT
+
+https://collider.com/jason-bateman-hbo-crime-thriller-dtf-st-louis-streaming-success-hbo-max-may-2026/
+
+Explore the twists and turns of HBO's critically acclaimed crime thriller miniseries, now surging on HBO Max.
+---------
+
+# Martin Scorsese and Oscar Isaac Team Up for Netflix Thriller Series 'Untitled Vegas'
+
+TV News, Oscar Isaac, Netflix, Martin Scorsese
+
+Thu, 07 May 2026 23:38:44 GMT
+
+https://movieweb.com/martin-scorsese-oscar-isaac-netflix-thriller/
+
+The 'Frankenstein' star is headed to Vegas in the upcoming drama.
+---------
+
+# Kevin Costner's Sci-Fi Action Flop 'Waterworld' is Streaming on Netflix in May 2026
+
+Movie News, Waterworld, Netflix, Coming/Leaving Streaming, Action
+
+Thu, 07 May 2026 23:00:17 GMT
+
+https://movieweb.com/waterworld-kevin-costner-action-streaming-netflix-may-2026/
+
+Kevin Costner's major sci-fi action post-apocalyptic box office flop, 'Waterworld,' is now streaming on Netflix in the US.
+---------
+
+# HBO’s Underrated Thriller ‘Industry’ Is Better Than Sydney Sweeney’s ‘Euphoria’
+
+Features, Industry, Euphoria, Comparison Recommendation
+
+Thu, 07 May 2026 23:00:17 GMT
+
+https://movieweb.com/industry-better-than-euphoria/
+
+'Industry,' the financial thriller series with four seasons on HBO, is better than 'Euphoria' starring Sydney Sweeney.
+---------
+
+# Colin Farrell's 'The Penguin' Season 2 Gets Update From WGA Website
+
+TV News, The Penguin, The Batman, The Batman Part II, Colin Farrell
+
+Thu, 07 May 2026 22:58:30 GMT
+
+https://movieweb.com/the-penguin-season-2-update-wga/
+
+The HBO Limited Series may live to see another day in Gotham.
+---------
+
 # Netflix’s New 6-Part Crime Thriller Series With One Of Its Best Casts Is Officially A Must-Watch
 
 Streaming TV, Masked Recs
