@@ -1,3 +1,267 @@
+# 15 Greatest New-Gen Manga to Read in 2026
+
+Anime, Shinobi Undercover, Kagurabachi
+
+Thu, 07 May 2026 03:59:15 GMT
+
+https://screenrant.com/best-new-gen-manga-read-2026/
+
+The landscape of anime and manga fandom has utterly changed in the post-pandemic years, so here's what you should check out next!
+---------
+
+# Daredevil: Born Again Season 2 Finale Sets All-Time IMDb Record For The Marvel Cinematic Universe
+
+TV, Daredevil: Born Again - Season 2, Daredevil: Born Again, Marvel Cinematic Universe, Disney+
+
+Thu, 07 May 2026 03:57:33 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-finale-imdb-mcu-disney-record/
+
+Daredevil: Born Again season 2 finale has received the public verdict, which has set a massive IMDb record in the entire Marvel Cinematic Universe.
+---------
+
+# The Expanse Creators’ New Space Opera Has 1 Advantage Over The Prime Video Sci-Fi Epic
+
+Streaming TV, The Expanse, Prime Video
+
+Thu, 07 May 2026 03:42:52 GMT
+
+https://screenrant.com/expanse-captive-war-prime-video-advantage/
+
+The Expanse’ creators as a developing a whole new sci-fi adaptation for Prime Video, and it already seems to have 1 advantage over the 6-season epic.
+---------
+
+# Apple TV’s New 10-Part Horror Show Is The Best Thing Since Its M. Night Shyamalan Hit
+
+Streaming TV, Servant, Apple TV
+
+Thu, 07 May 2026 03:15:19 GMT
+
+https://screenrant.com/widows-bay-m-night-shyamalan-the-servant-apple-tv/
+
+Apple TV has added a new horror comedy show to its catalog, and it is easily the best thing since its M. Night Shyamalan hit from a few years ago.
+---------
+
+# Naruto's Next Anime Is Recreating Sasuke vs. Itachi, with One Tragic Twist
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 07 May 2026 02:30:20 GMT
+
+https://screenrant.com/naruto-next-anime-boruto-two-blue-vortex-sasuke-itachi/
+
+Sasuke's fateful clash with his brother was one of the great definitive moments of the Naruto franchise, with one sequel trying to recapture that.
+---------
+
+# It: Welcome to Derry Season 2 Teases A Genre Shift After Pennywise’s Time Travel Twist
+
+Streaming TV, It: Welcome to Derry
+
+Thu, 07 May 2026 02:29:10 GMT
+
+https://screenrant.com/it-welcome-to-derry-pennywise-time-travel-genre-shift/
+
+It: Welcome to Derry season 2 seems to be teasing a massive genre shift in its storyline after season 1’s surprising Pennywise time travel reveal.
+---------
+
+# The Perfect Josei Manga Recommendations for Beginners
+
+Anime, Princess Jellyfish, Paradise Kiss, Manga, Isekai
+
+Thu, 07 May 2026 03:45:13 GMT
+
+https://www.cbr.com/best-josei-manga-recommendations-for-beginners/
+
+Manga fans interested in reading Josei series but don't know where to start can always rely on classics like Paradise Kiss and Princess Jellyfish.
+---------
+
+# Lost is One of TV's Most Divisive Shows and is Finally Ready for a Reboot
+
+TV, Lost, ABC, Mystery
+
+Thu, 07 May 2026 03:30:13 GMT
+
+https://www.cbr.com/lost-controversial-ending-deserves-modern-reboot/
+
+Lost was one of the biggest shows in the 2000s, but disappointed fans with its lackluster ending. So, is it time to give the show another chance?
+---------
+
+# Planet of the Apes New Movie Is an End of an Era
+
+Movies, Planet of the Apes, Kingdom of the Planet of the Apes
+
+Thu, 07 May 2026 03:15:12 GMT
+
+https://www.cbr.com/planet-of-the-apes-next-movie-end-of-reboot-era/
+
+Disney has announced the director for the next Planet of the Apes, but the narrative shake-up planned might throw some franchise fans for a loop.
+---------
+
+# 7 Most Anticipated Switch 2 Games of May 2026
+
+Games, Nintendo Switch, Nintendo, Video Games
+
+Thu, 07 May 2026 03:15:12 GMT
+
+https://www.cbr.com/new-switch-2-games-may-2026/
+
+Everyone is looking forward to games like Indiana Jones and the Great Circle and Yoshi and the Mysterious Book.
+---------
+
+# Netflix Adds 14 More One Piece Episodes in New June 2026 Streaming Update
+
+Anime, One Piece, Netflix
+
+Thu, 07 May 2026 03:00:13 GMT
+
+https://www.cbr.com/netflix-one-piece-whole-cake-arc-part-6-release-date/
+
+Netflix announces more episodes of One Piece's Whole Cake Island arc coming to the streamer in June, bringing the arc closer to its conclusion.
+---------
+
+# 10 Best Anime Movie Directors of All Time
+
+Anime, Hayao Miyazaki, Satoshi Kon
+
+Thu, 07 May 2026 02:45:12 GMT
+
+https://www.cbr.com/best-anime-movie-directors-of-all-time/
+
+Between Masaaki Yuasa, Yoshiaki Kawajiri, and Hayao Miyazaki, there are some absolutely legendary directors who have helmed essential anime movies.
+---------
+
+# 6 Sci-Fi Horror Movies Better Than Alien
+
+Movies, Alien
+
+Thu, 07 May 2026 02:45:12 GMT
+
+https://www.cbr.com/greatest-sci-fi-horror-movies-better-than-alien-list/
+
+Alien is widely regarded as the pinnacle of the sci-fi horror genre, but there are at least six other movies that rival its impact and fear-factor.
+---------
+
+# In Just 1 Week, Prime Video's Good Omens Finally Returns After 3-Year Wait
+
+TV, Good Omens
+
+Thu, 07 May 2026 02:36:13 GMT
+
+https://www.cbr.com/good-omens-finale-streaming-prime-video/
+
+Fans have been waiting for three years to see how the Prime Video fantasy series ends.
+---------
+
+# 10 Near-Perfect Webtoons From The Last 10 Years
+
+Anime, webtoon, Wind Breaker
+
+Thu, 07 May 2026 02:15:12 GMT
+
+https://www.cbr.com/near-perfect-webtoons-from-the-last-10-years/
+
+Webtoon has exploded over the past decade, largely as a result of it delivering some truly amazing manga.
+---------
+
+# The Internet Is Completely Wrong About Christopher Nolan's 'The Odyssey' Trailer
+
+Movie Features, The Odyssey, Christopher Nolan, Matt Damon, Tom Holland
+
+Thu, 07 May 2026 03:54:14 GMT
+
+https://collider.com/the-odyssey-trailer-christopher-nolan-internet-reaction-american-accent-tom-holland/
+
+Christopher Nolan's highly-anticipated trailer for The Odyssey starring Matt Damon was met with intense backlash, and it's ridiculous.
+---------
+
+# So What the Hell Is Going on With Kevin Costner’s Doomed 4-Part Western Series?
+
+Movie Features, Kevin Costner, Horizon: An American Saga - Chapter 2, Horizon: An American Saga - Chapter 1, Western
+
+Thu, 07 May 2026 03:48:49 GMT
+
+https://collider.com/horizon-chapter-2-streaming-prime-video-kevin-costner/
+
+Despite Kevin Costner having filmed the second part of his Horizon series, we still don't have a release date for Horizon: Chapter 2.
+---------
+
+# Netflix Just Secured the Future of Its Biggest Sci-Fi Universe With a Season 2 Renewal
+
+TV Features, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Thu, 07 May 2026 03:15:12 GMT
+
+https://collider.com/netflix-stranger-things-tales-from-85-season-2-renewed-sci-fi-franchise-future/
+
+Netflix has secured the future of its most beloved sci-fi universe with a Season 2 renewal that promises even more thrilling adventure.
+---------
+
+# 'The Bear's Surprise Prequel Reframes the Entire Series in the Best Way Possible
+
+TV Features, The Bear, Hulu, FX, Series
+
+Thu, 07 May 2026 03:11:13 GMT
+
+https://collider.com/the-bear-gary-surprise-prequel-richie-mikey-reframes-series/
+
+The Bear’s surprise prequel “Gary” deepens Richie and Mikey’s bond while changing how fans see the entire FX series.
+---------
+
+# Forget ‘Chernobyl’ — Prime Video’s 3-Part Political Thriller Is a Near-Perfect Weekend Binge
+
+TV Features, The Salisbury Poisonings, Rafe Spall, BBC, Prime Video
+
+Thu, 07 May 2026 03:09:15 GMT
+
+https://collider.com/prime-video-best-political-thriller-the-salisbury-poisonings/
+
+The Salisbury Poisonings on Prime Video is a near-perfect 3-part political thriller that’s getting better as new doc interest surges.
+---------
+
+# 20 Box Office Flops That Nobody Saw Coming
+
+Movie
+
+Thu, 07 May 2026 03:05:15 GMT
+
+https://collider.com/box-office-flops-movies-nobody-saw-coming/
+
+Mission: Impossible - Dead Reckoning Part One and Furiosa: A Mad Max Saga are box-office flop movies nobody saw coming.
+---------
+
+# 6 Forgotten Mystery Movies That Are Perfect From Start to Finish
+
+Movie, Mystery, Devil in a Blue Dress, Sneakers, Brick
+
+Thu, 07 May 2026 03:03:14 GMT
+
+https://collider.com/forgotten-mystery-movies-perfect-start-to-finish/
+
+Movies like Brick and Sneakers perfectly encapsulate the mystery genre's greatest strengths but have sadly been forgotten by mainstream audiences.
+---------
+
+# 8 Fantasy Shows That Are 10/10, No Notes
+
+TV, Fantasy, Avatar: The Last Airbender, Alchemy of Souls, Gravity Falls
+
+Thu, 07 May 2026 03:01:12 GMT
+
+https://collider.com/fantasy-shows-perfect-no-notes/
+
+From the animated masterpiece Avatar: The Last Airbender to underrated Pushing Daisies, these fantasy shows are some of the best of the genre.
+---------
+
+# Scarlett Johansson Cast in A24's New Movie 'Scapegoat,' Directed by Ari Aster
+
+Movie News, Scarlett Johansson, Jurassic World Rebirth
+
+Thu, 07 May 2026 04:45:08 GMT
+
+https://movieweb.com/scarlett-johansson-jurassic-world-scapegoat-a24/
+
+A24's new movie 'Scapegoat,' written and directed by Ari Aster, will feature Scarlett Johansson in the leading role.
+---------
+
 # Netflix’s Upcoming Sci-Fi Movie Is The Perfect Follow-Up To Disney’s New 98% RT Star Wars Show
 
 Streaming TV, Masked Recs
