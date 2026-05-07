@@ -1,3 +1,377 @@
+# Netflix’s Upcoming Sci-Fi Movie Is The Perfect Follow-Up To Disney’s New 98% RT Star Wars Show
+
+Streaming TV, Masked Recs
+
+Thu, 07 May 2026 02:00:32 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-netflix-sc-fi-ray-gunn-movie-recommendation/
+
+Season 1 of Disney's acclaimed new Star Wars show with a 98% score on Rotten Tomatoes has ended, but Netflix has a perfect follow-up coming soon.
+---------
+
+# Monsterverse Theory Suggests THAT Titan Is A Secret Godzilla Ally
+
+TV
+
+Thu, 07 May 2026 02:00:32 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-rodan-secret-godzilla-ally-theory/
+
+It's possible that the surprise Titan shown in the Monarch: Legacy of Monsters season 2 finale is actually a former ally to Godzilla.
+---------
+
+# Mortal Kombat 2 Star Ludi Lin Reveals Favorite Game Character
+
+Movies, Mortal Kombat II
+
+Thu, 07 May 2026 01:50:42 GMT
+
+https://screenrant.com/mortal-kombat-2-ludi-lin-favorite-game-character-sub-zero/
+
+Returning Mortal Kombat 2 star reveals who his favorite video game character is in the franchise, and it's not the one he portrays.
+---------
+
+# The Boys’ Long-Awaited Character Death Makes Me Wish I Could Watch His Fake M
+
+TV, The Boys, Op-Ed
+
+Thu, 07 May 2026 01:00:21 GMT
+
+https://screenrant.com/the-boys-dawn-of-seven-best-fake-movie/
+
+The Boys finally killed off a recurring character who has been around since season 2, but his legacy is a cinematic masterpiece that I wish were real.
+---------
+
+# Red Dead Redemption 3 Step Aside, New Open-World Western RPG Free To Try Now
+
+Gaming, Red Dead Redemption, Triple-A Games, PC
+
+Thu, 07 May 2026 01:00:21 GMT
+
+https://screenrant.com/red-dead-redemption-frontier-legends-steam-demo/
+
+You might not see a Red Dead Redemption 3 for a while, but luckily, there's an upcoming Steam game that might fill the gap—and you can try it now.
+---------
+
+# 10 Netflix Miniseries That Are Absolute Masterpieces (#1 Has No Bad Episodes)
+
+Streaming TV, Netflix
+
+Thu, 07 May 2026 00:30:56 GMT
+
+https://screenrant.com/netflix-miniseries-masterpieces/
+
+There are plenty of excellent original TV shows on Netflix, but not as many miniseries as you may think; however, these are the best of them.
+---------
+
+# Maul: Shadow Lord Season 2 Story Teased By Cast & EPs After Mind-Blowing Season 1 Finale
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars: Maul - Shadow Lord - Season 1, Star Wars
+
+Thu, 07 May 2026 00:26:34 GMT
+
+https://screenrant.com/maul-shadow-lord-season-2-story-tease-cast-producers/
+
+EXCLUSIVE: The Star Wars: Maul – Shadow Lord cast and executive producers hint at what will happen next after the shocking season 1 finale.
+---------
+
+# Spider-Man And Daredevil’s New Team-Up Stings After Born Again Season 2 Finale
+
+Comics, Daredevil, Spider-Man, Marvel, Marvel Cinematic Universe, Daredevil: Born Again
+
+Thu, 07 May 2026 00:00:20 GMT
+
+https://screenrant.com/daredevil-spider-man-team-up-born-again-sting/
+
+Daredevil: Born Again Season 2's finale is explosive and climactic, but one character's absence still leaves a sour taste in the mouth.
+---------
+
+# Netflix's 10/10 Sci-Fi Masterpiece Series Makes Black Mirror Look Small
+
+Streaming TV, Masked Recs
+
+Thu, 07 May 2026 00:00:20 GMT
+
+https://screenrant.com/love-death-and-robots-sci-fi-masterpiece-black-mirror-look-small/
+
+Black Mirror may be the flagship sci-fi anthology show for Netflix, but the streamer has a another series that dwarfs it in creative ambition.
+---------
+
+# Star Wars: Embers Of The Empire Finally Takes Gamers Back To The Legends Timeline
+
+Gaming, Star Wars, Triple-A Games, PC
+
+Thu, 07 May 2026 00:00:20 GMT
+
+https://screenrant.com/star-wars-embers-of-the-empire-legends-game/
+
+The days of the old Star Wars canon may be long-gone, but this new project picks things up where an iconic story from Legends left off.
+---------
+
+# Battlestar Galactica's Cylons Are Still the Best Sci-Fi Villains
+
+TV, Battlestar Galactica, Sci-Fi
+
+Thu, 07 May 2026 02:00:25 GMT
+
+https://www.cbr.com/battlestar-galactica-cylons-best-sci-fi-villains/
+
+Sci-fi has a collection of some of the best villains in television history, but none can compare to robots set on the destruction of humanity.
+---------
+
+# 10 Most Universally Beloved Movie Masterpieces of the 2000s
+
+Movies, Fantasy, Shrek, The Dark Knight
+
+Thu, 07 May 2026 02:00:25 GMT
+
+https://www.cbr.com/beloved-perfect-movies-2000s/
+
+The 2000s were a golden age of universally-beloved entertainment, producing treasured family films, epic fantasy and the revival of the Western.
+---------
+
+# 10 Best Loot-Based ARPG Games of All Time
+
+Games, Diablo, action rpg, Role Playing Game
+
+Thu, 07 May 2026 01:45:12 GMT
+
+https://www.cbr.com/best-loot-based-arpg-games-list/
+
+These 10 Loot-Based ARPG games offer the most content and excllent naratives amongst all others in the gerne.
+---------
+
+# 10 Romance Anime That Are Perfect From Start to Finish
+
+Anime, Fruits Basket, His and Her Circumstances
+
+Thu, 07 May 2026 01:25:13 GMT
+
+https://www.cbr.com/best-romance-anime-perfect-from-start-to-finish/
+
+Anime absolutely loves to talk about love, but there are some very special romance anime that go above and beyond without any compromises.
+---------
+
+# 10 Strongest Star Wars Inquisitors, Ranked
+
+Lists, Star Wars
+
+Thu, 07 May 2026 01:00:12 GMT
+
+https://www.cbr.com/star-wars-inquisitors-ranked/
+
+In Star Wars, the Inquisitors are a powerful enemy trained to hunt down Jedi mercilessly, but who among them in the strongest?
+---------
+
+# After HiAnime and 9anime, More Anime Streaming Sites Face Shutdown
+
+Anime, piracy, Streaming
+
+Thu, 07 May 2026 00:55:24 GMT
+
+https://www.cbr.com/anime-streaming-crackdown-ustr-vietnam/
+
+The U.S. might soon take action against a country that is notorious for housing various anime streaming websites.
+---------
+
+# 10 Pokémon Games With the Best Story
+
+Games, Pokemon, Nintendo
+
+Thu, 07 May 2026 00:45:13 GMT
+
+https://www.cbr.com/pokemon-games-best-story-list/
+
+Pokémon games don't always tell the best stories, but games like Scarlet & Violet made players feel invested.
+---------
+
+# Hell on Wheels Is the Definitive Modern Western Series
+
+TV, Hell on Wheels, Western
+
+Thu, 07 May 2026 00:30:13 GMT
+
+https://www.cbr.com/amc-hell-on-wheels-best-western-show/
+
+Period westerns aren't a common occurrence on modern television anymore, but this AMC show remains excellent to this day.
+---------
+
+# Fox Is Rebooting Highway to Heaven After 42 Years
+
+TV, Highway to Heaven
+
+Thu, 07 May 2026 00:28:26 GMT
+
+https://www.cbr.com/fox-highway-to-heaven-reboot/
+
+The classic NBC fantasy series is returning on a new network after four decades.
+---------
+
+# 10 Perfect Witch Manga for Fans of Witch Hat Atelier
+
+Anime, Manga, Witch Hat Atelier, Frieren: Beyond Journey's End, Fullmetal Alchemist
+
+Thu, 07 May 2026 00:15:13 GMT
+
+https://www.cbr.com/perfect-witch-manga-for-fans-of-witch-hat-atelier/
+
+These fantasy manga are absolutely perfect for fans of Witch Hat Atelier.
+---------
+
+# Marvel’s Greatest Hero Officially Returns This Month With New Prime Video Release
+
+TV News, Spider-Noir, Nicolas Cage, Prime Video, Spider-Man
+
+Thu, 07 May 2026 02:00:25 GMT
+
+https://collider.com/marvel-greatest-hero-spider-man-returns-spider-noir-release-date-may-25-2026-how-to-watch/
+
+Marvel's greatest superhero, Spider-Man, officially returns to Prime Video this month with a new project starring Nicolas Cage.
+---------
+
+# ‘Avatar: The Last Airbender’ Is Officially Ending With Fewer Episodes Than Ever
+
+TV News, Avatar: The Last Airbender, Netflix, The Legend of Aang: The Last Airbender
+
+Thu, 07 May 2026 01:45:13 GMT
+
+https://collider.com/avatar-the-last-airbender-live-action-netflix-season-3-episode-count/
+
+The final season of Netflix's Avatar: The Last Airbender series will have fewer episodes than any season in franchise history.
+---------
+
+# In Just 4 Days, Netflix's New Crime Thriller Series Hits 11 Million Views Worldwide
+
+TV News, Man on Fire, Netflix, Crime, Streaming
+
+Thu, 07 May 2026 01:30:13 GMT
+
+https://collider.com/man-on-fire-crime-thriller-remake-11-million-views-netflix-2026/
+
+The new Netflix crime thriller series Man on Fire, starring Yahya Abdul-Mateen II, debuts with impressive streaming numbers in just four days.
+---------
+
+# Director Breaks Silence on Box Office Disappointment Surrounding the Year's Best Horror Movie
+
+Movie News, 28 Years Later: The Bone Temple, Nia DaCosta, 28 Years Later, The Marvels
+
+Thu, 07 May 2026 01:15:13 GMT
+
+https://collider.com/28-years-later-bone-temple-box-office-disappointment-nia-dacosta-reaction/
+
+Director Nia DaCosta broke her silence on the box office underperformance of 28 Years Later: The Bone Temple. Here's what she said.
+---------
+
+# 7 Hollywood Productions Where the Cast Got Violently Sick
+
+Movie, Armageddon, Apollo 13, Madame Web, Texas Chain Saw Massacre
+
+Thu, 07 May 2026 01:03:13 GMT
+
+https://collider.com/hollywood-movies-shows-cast-got-sick/
+
+In each of these movies or TV shows, actors became sick and vomited while filming, either through disease, exhaustion, or disgust.
+---------
+
+# Henry Cavill's Third Guy Ritchie Action Movie Officially Hits Theaters in 10 Days
+
+Movie News, Guy Ritchie, Henry Cavill, Jake Gyllenhaal, In the Grey
+
+Thu, 07 May 2026 01:00:13 GMT
+
+https://collider.com/in-the-grey-guy-ritchie-henry-cavill-action-thriller-release-date-may-15-2026/
+
+The countdown has begun for the theatrical release of Guy Ritchie's new action film, In the Grey, which reunites him with Henry Cavill.
+---------
+
+# Guy Ritchie’s $180M 'Indiana Jones' Replacement Passes Monumental Streaming Milestone
+
+Movie News, Fountain of Youth, Guy Ritchie, Apple TV, Action
+
+Thu, 07 May 2026 00:45:14 GMT
+
+https://collider.com/guy-ritchie-critically-panned-action-movie-fountain-of-youth-passes-streaming-milestone-300-days-apple-tv/
+
+Guy Ritchie's big-budget action-adventure film, Fountain of Youth, has passed a major streaming milestone on Apple TV despite poor reviews.
+---------
+
+# 10 Greatest Video Game Masterpieces of the 2000s, Ranked
+
+Movie, Video Game, Grand Theft Auto, The Legend of Zelda, Metal Gear Solid
+
+Thu, 07 May 2026 00:31:12 GMT
+
+https://collider.com/best-video-game-masterpieces-2000s-ranked/
+
+Resident Evil 4, BioShock, and Super Mario Galaxy are all among the absolute best video games of the 2000s.
+---------
+
+# James Gunn's 'Superman' Falls to 2026's Biggest Sci-Fi Event at the Box Office
+
+Movie News, Project Hail Mary, Superman, James Gunn, Ryan Gosling
+
+Thu, 07 May 2026 00:30:13 GMT
+
+https://collider.com/project-hail-mary-sci-fi-masterpiece-box-office-overtakes-james-gunn-superman-638-million/
+
+The year's breakout sci-fi blockbuster, Project Hail Mary, has overtaken James Gunn's Superman at the worldwide box office. Find out more.
+---------
+
+# Only These 3 Michael Jackson Albums Are Perfect
+
+Music Features, Michael, Michael Jackson, Thriller, 1980s
+
+Thu, 07 May 2026 00:17:14 GMT
+
+https://collider.com/michael-jackson-3-perfect-albums/
+
+Of the 10 studio albums Michael Jackson released as a solo artist, only a small number are pretty much perfect, including Off the Wall and Thriller.
+---------
+
+# 10 Perfect Miniseries With 6 Episodes or Less You Can Binge-Watch in One Night
+
+TV Lists, Alias Grace
+
+Thu, 07 May 2026 02:00:31 GMT
+
+https://movieweb.com/perfect-miniseries-binge-one-night/
+
+These BBC, HBO, Apple TV, Amazon Prime Video, and Netflix TV miniseries are perfect for watching over one evening.
+---------
+
+# 10 Action Thriller Movies About Fighters That Are Better Than Any 'Rocky'
+
+Movie Lists, Rocky
+
+Thu, 07 May 2026 01:00:18 GMT
+
+https://movieweb.com/action-movies-fighters-better-than-rocky/
+
+These 10 movies pack an even harder punch and deserve just as much credit when talking "fighting" movies.
+---------
+
+# New Details Released About 'Drive' Director's New Movie 'Her Private Hell'
+
+Movie News, Nicolas Winding Refn, Her Private Hell
+
+Thu, 07 May 2026 00:30:40 GMT
+
+https://movieweb.com/her-private-hell-nicolas-minding-refn/
+
+Nicolas Winding Refn's thriller is set to premiere this month at Cannes before hitting theaters in July.
+---------
+
+# The 10 Greatest Sci-Fi Movie Masterpieces of the 21st Century, Ranked
+
+Movie Lists, Science Fiction
+
+Thu, 07 May 2026 00:00:18 GMT
+
+https://movieweb.com/best-science-fiction-movies-21st-century-ranked/
+
+21st-century science fiction has produced some of cinema's greatest achievements, but these ones stand above the rest.
+---------
+
 # Sinners Meets Supernatural In HBO’s 10-Part Historical Horror Series That Deserves To Be Binged
 
 Classic TV, Masked Recs
