@@ -1,3 +1,311 @@
+# Jeff Daniels, Caleb McLaughlin, & Joel Edgerton Join Joseph Gordon-Levitt's Untitled Netflix AI Thriller
+
+Movies, Netflix
+
+Thu, 07 May 2026 19:07:23 GMT
+
+https://screenrant.com/caleb-mclaughlin-netflix-ai-thriller-movie-development/
+
+Following the Stranger Things series finale, one star has now joined Netflix's new AI thriller movie that already features some impressive talent.
+---------
+
+# All Essential Skyrim Followers Who Can't Die
+
+Gaming, The Elder Scrolls V: Skyrim, PC
+
+Thu, 07 May 2026 19:00:22 GMT
+
+https://screenrant.com/skyrim-followers-that-cant-die-essential-npcs-companions/
+
+Out of all the NPCs that the Dragonborn can encounter, there are only a select handful that are marked as essential followers in Skyrim.
+---------
+
+# KPop Demon Hunter Meets Fast and The Furious In Ridiculously Metal New Series (Exclusive)
+
+Comics, KPop Demon Hunters, Fast & Furious
+
+Thu, 07 May 2026 19:00:20 GMT
+
+https://screenrant.com/monster-racing-league-kpop-demon-hunters-fast-furious-new-series/
+
+Robert and Lily Windom team up once more with Jae Lee to bring an exciting fantastical spin to the underground world of Japanese street racing.
+---------
+
+# 9-1-1 Is Returning For Season 10 - Everything We Know
+
+Network TV, 9-1-1
+
+Thu, 07 May 2026 19:00:20 GMT
+
+https://screenrant.com/911-season-10-explained/
+
+As the 118 finishes its first full cycle without Bobby Nash at the helm, there's increased interest on what comes next in 9-1-1 season 10.
+---------
+
+# Quentin Tarantino & Gary Oldman's R-Rated Crime Thriller Officially Releases On Netflix In 2 Weeks
+
+Movies, Masked Recs
+
+Thu, 07 May 2026 18:48:12 GMT
+
+https://screenrant.com/true-romance-netflix-streaming-may-2026/
+
+Quentin Tarantino and Gary Oldman's R-rated crime thriller is officially releasing on Netflix in just two weeks, building excitement among fans.
+---------
+
+# All 3 Marvel And DC Movies & TV Shows Releasing On HBO Max In May 2026
+
+Superheroes, DC Universe, Marvel Cinematic Universe, HBO Max
+
+Thu, 07 May 2026 18:37:36 GMT
+
+https://screenrant.com/marvel-dc-movies-shows-release-hbo-max-may-2026/
+
+Marvel and DC are coming to HBO Max in May, with the month seeing superhero series and movies arrive on the streaming service, including major heroes.
+---------
+
+# 5 Biggest Questions We Need Answered After The Star Wars: Maul Shadow Lord Finale
+
+Star Wars
+
+Thu, 07 May 2026 18:30:20 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-finale-biggest-questions/
+
+The season one finale of Maul: Shadow Lord was a huge event, featuring lots of action, cameos, and groundbreaking changes to the Star Wars galaxy.
+---------
+
+# SNL UK Season 2 Officially Renewed With A Major Episode Upgrade
+
+TV, Saturday Night Live UK
+
+Thu, 07 May 2026 18:05:59 GMT
+
+https://screenrant.com/snl-uk-season-2-renewed-episode-increase/
+
+SNL UK is less than two weeks away from airing its very first finale, but Sky has now revealed the fate of the international SNL spinoff.
+---------
+
+# Magic: The Gathering: Goblin Storm Commander Deck - Release Date, Pricing, Sets, Card Info
+
+Gaming
+
+Thu, 07 May 2026 17:57:41 GMT
+
+https://screenrant.com/mtg-goblin-storm-release-date-price-cards/
+
+Magic: The Gathering's latest Secret Lair Commander deck is a classic archetype with some exciting new artwork.
+---------
+
+# Dungeon Crawler Carl Stealth Drops First Episode Ahead of Full Release
+
+Books, Sci-Fi
+
+Thu, 07 May 2026 17:46:57 GMT
+
+https://screenrant.com/dungeon-crawler-carl-first-episode-free-release-details/
+
+There are three upcoming Dungeon Crawler Carl releases that fans have to look forward to, and one of them has just dropped an early sneak peek.
+---------
+
+# Zendaya's The Drama Is a Hit on PVOD After Strong Box Office Run
+
+Movies, The Drama, Drama, Comedy
+
+Thu, 07 May 2026 19:06:41 GMT
+
+https://www.cbr.com/zendaya-the-drama-success-pvod-may-2026/
+
+A24's The Drama, a dark romantic comedy starring Zendaya and Robert Pattinson, is hitting big on Amazon and in the Apple TV Store.
+---------
+
+# Netflix Silently Removes Key Feature Users Have Had for Years
+
+TV, Netflix
+
+Thu, 07 May 2026 19:03:04 GMT
+
+https://www.cbr.com/netflix-quietly-removes-sorting-feature/
+
+Netflix users may notice a change when browsing for something new to watch on the platform.
+---------
+
+# 10 Space Opera Books That Are Perfect For Star Trek Fans
+
+Movies, Star Trek
+
+Thu, 07 May 2026 19:00:13 GMT
+
+https://www.cbr.com/best-space-books-for-star-trek-fans-list/
+
+Any fan of the 60-year-old cultural phenomenon Star Trek will love these science fiction space opera books and their epic outer space adventures
+---------
+
+# Quentin Tarantino's Criticism of Alfred Hitchcock Is 100% Accurate
+
+Movies, alfred hitchcock
+
+Thu, 07 May 2026 18:30:13 GMT
+
+https://www.cbr.com/quentin-tarantino-hitchcock-third-act-criticism-explained/
+
+Alfred Hitchcock is the master of suspense and a legendary filmmaker, but another modern legend has one accurate criticism of Hitchcock's work.
+---------
+
+# Naruto Reveals Obito Uchiha's Most Powerful Form in New Official Reveal
+
+Anime, Naruto
+
+Thu, 07 May 2026 18:18:42 GMT
+
+https://www.cbr.com/naruto-ol-obito-uchiha-release-date/
+
+The latest animated release shows Naruto and Sasuke trying their best to stop the franchise’s most tragic antagonist.
+---------
+
+# The Audacity: Paul Adelstein Breaks Down Gary Felder
+
+TV, The Audacity
+
+Thu, 07 May 2026 18:16:13 GMT
+
+https://www.cbr.com/video/the-audacity-paul-adelstein-breaks-down-gary-felder/
+
+Paul Adelstein breaks down Gary Felder in The Audacity, revealing the character’s inner conflict, fading relevance, and search for purpose.In this exclusive interview, Adelstein dives into Gary’s complicated mindset—from his belief in therapy as a calling to his growing resentment in a world driven by power and ego. He also explores Gary’s evolving relationship with his stepson, his dynamic with Sarah Goldberg’s character, and the show’s darker comedic moments.Beyond character work, Adelstein shares why The Audacity feels so timely, highlighting its take on tech power, human flaws, and the people shaping the future.
+---------
+
+# 10 Greatest Anime Endings of All Time
+
+Anime, Full Metal Alchemist, Clannad, Fruits Basket, shonen anime, Shojo
+
+Thu, 07 May 2026 18:16:13 GMT
+
+https://www.cbr.com/best-anime-endings-all-time/
+
+After dedicating to an entire anime series, sticking the landing is especially important, and these anime pull of some of the greatest endings ever.
+---------
+
+# Official Ocarina of Time Remake Puts the Nintendo Original to Shame
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Thu, 07 May 2026 18:05:13 GMT
+
+https://www.cbr.com/legend-of-zelda-ocarina-of-time-remake-officially-better-than-n64-game/
+
+Nintendo will be announcing their Legend of Zelda: Ocarina of Time remake in 2026, but it may not even be necessary.
+---------
+
+# WWII Series Das Boot Set to Stream in U.S. for First Time Ever
+
+TV, Das Boot
+
+Thu, 07 May 2026 18:02:12 GMT
+
+https://www.cbr.com/das-boot-streaming-first-time-ever-united-states/
+
+The underrated World War II series resurfaces with episodes streaming in the U.S. for the first time ever.
+---------
+
+# After Settlement, Justin Baldoni's Jane the Virgin Returns as Digital Hit
+
+TV, Jane the Virgin
+
+Thu, 07 May 2026 18:00:13 GMT
+
+https://www.cbr.com/jane-the-virgin-streaming-may-2026/
+
+Justin Baldoni's acclaimed TV series returns as a digital hit just after his legal war with Blake Lively officially ended.
+---------
+
+# Forget ‘The Walking Dead’ — This Stellar 12-Part Horror Has a Darker ‘28 Days Later’ Twist
+
+TV Features, Horror, The Walking Dead, Dark Hole, 28 Days Later
+
+Thu, 07 May 2026 18:59:14 GMT
+
+https://collider.com/best-series-after-walking-dead-dark-hole-horror-zombie-twist/
+
+Dark Hole is a 12-part Korean horror series that gives zombie TV a disturbing psychological twist unlike The Walking Dead.
+---------
+
+# Folk Horror 'Love Is the Monster' With 'Twin Peaks' and 'Westworld' Stars Sets Summer Release [Exclusive]
+
+Exclusives, Horror, Westworld, Twin Peaks, Thriller
+
+Thu, 07 May 2026 18:00:13 GMT
+
+https://collider.com/love-is-the-monster-folk-horror-release-date-june-2026-alex-noyer/
+
+Alex Noyer's folk horror film Love Is the Monster, starring Madeline Zima and Leonardo Nam, is set to hit theaters in North America this summer.
+---------
+
+# Prime Video’s Hit 2-Part Thriller Officially Adds ‘Mad Men’ and ‘True Detective’ Stars
+
+TV News, We Were Liars, Josh Dallas, Madison Wolfe, Prime Video
+
+Thu, 07 May 2026 17:28:31 GMT
+
+https://collider.com/prime-video-thriller-we-were-liars-season-2-cast-josh-dallas-peyton-list/
+
+Prime Video’s biggest summer thriller is about to get even bigger with a massive slate of new series regulars including Mad Men and True Detective sta
+---------
+
+# 10 Best Survival Thriller Movies of All Time, Ranked
+
+Movie, Thriller, The Revenant, Gravity, The Road
+
+Thu, 07 May 2026 17:18:13 GMT
+
+https://collider.com/best-survival-thriller-movies-all-time-ranked/
+
+The Revenant, Aliens, The Road, Gravity, Deliverance, and more make up our list of the best survival thriller movies of all time.
+---------
+
+# 'The Devils' Director's Cut Getting 4K Remaster for Cannes Film Festival and Home Video Release
+
+Movie News, The Devils
+
+Thu, 07 May 2026 19:00:13 GMT
+
+https://movieweb.com/the-devils-director-cut-release/
+
+Ken Russell's original cut of his controversial horror film 'The Devils' is getting a home video and limited theatrical run in 2026.
+---------
+
+# Sam Worthington Leads Teaser Trailer for Netflix's 'I Will Find You' Series Adaptation
+
+TV News, I Will Find You, Sam Worthington
+
+Thu, 07 May 2026 18:42:21 GMT
+
+https://movieweb.com/netflix-i-will-find-you-teaser-trailer/
+
+Netflix's adaptation of Harlan Coben thriller 'I Will Find You' has unleashed a tense first trailer.
+---------
+
+# Sky Renews 'Saturday Night Live UK' for Season 2
+
+TV News, Saturday Night Live UK
+
+Thu, 07 May 2026 18:28:07 GMT
+
+https://movieweb.com/saturday-night-live-uk-season-2-renewed/
+
+Sky UK Limited has officially been renewed for Season 2, which will begin airing in September 2026.
+---------
+
+# Tom Cruise Sci-Fi Action Sequel 'Edge of Tomorrow 2' Not in Development
+
+Movie News, Tom Cruise, Edge of Tomorrow 2, Edge of Tomorrow
+
+Thu, 07 May 2026 17:33:25 GMT
+
+https://movieweb.com/tom-cruise-edge-of-tomorrow-2-not-happening/
+
+Despite rumors of an impending production start, a new report claims that 'Edge of Tomorrow 2' is not currently in the pipeline.
+---------
+
 # Tom Cruise’s Edge Of Tomorrow Sequel Release Timeline Clarified After Recent Reports
 
 Movies, Edge of Tomorrow 2, Tom Cruise
