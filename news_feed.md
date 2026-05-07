@@ -1,3 +1,322 @@
+# New Frankenstein Series' Reunion Between Director & Star Of 33-Year-Old Classic Gets Heartwarming Update
+
+TV, Very Young Frankenstein
+
+Thu, 07 May 2026 12:14:39 GMT
+
+https://screenrant.com/very-young-frankenstein-series-mel-brooks-reunion-update-cary-elwes/
+
+EXCLUSIVE: Cary Elwes provides an update on his new show Very Young Frankenstein, which will give him a reunion with a key director in his career.
+---------
+
+# Kelly Severide's Chicago Fire Exit Path Is Now Clear Thanks To A Shocking Comeback
+
+Network TV, One Chicago, Chicago Fire
+
+Thu, 07 May 2026 12:05:19 GMT
+
+https://screenrant.com/chicago-fire-kelly-severide-taylor-kinney-exit-clear/
+
+An unexpected character return in Chicago Fire season 14 clears the path for Taylor Kinney's Kelly Severide to finally make his Firehouse 51 exit.
+---------
+
+# DC Confirms Manchester Black for Superman's New Appearance
+
+Comics, Superman
+
+Thu, 07 May 2026 12:00:21 GMT
+
+https://screenrant.com/superman-next-villain-manchester-black-confirmed-details/
+
+Manchester Black unleashed!
+---------
+
+# We Got Morrowind Remade In Elden Ring Before The Elder Scrolls 6
+
+Gaming, Elden Ring, PC, The Elder Scrolls 6, The Elder Scrolls III: Morrowind
+
+Thu, 07 May 2026 11:38:14 GMT
+
+https://screenrant.com/elder-scrolls-morrowind-remake-elden-ring-mod/
+
+As the wait for Elder Scrolls 6 drudges on, fans are taking matters into their own hands with an Elden Ring Morrowind remake we didn't know we needed.
+---------
+
+# Marvel's Spider-Man 3 Carnage Design Praised By Gamers
+
+Gaming, Marvel's Spider-Man 2, Marvel's Spider-Man 3, Marvel's Spider-Man
+
+Thu, 07 May 2026 11:30:20 GMT
+
+https://screenrant.com/marvels-spider-man-3-carnage-design-speculation/
+
+Will Marvel's Spider-Man 3 be absolute Carnage? We've got a long wait ahead of us, but it looks likely.
+---------
+
+# Brendan Fraser Will Shape Up For Rick O'Connell In The Mummy 4
+
+Movies, The Mummy, The Mummy 4, Brendan Fraser
+
+Thu, 07 May 2026 11:20:13 GMT
+
+https://screenrant.com/the-mummy-4-brendan-fraser-rick-oconnell-filming-update/
+
+Brendan Fraser shared a few exciting updates for The Mummy 4, including his Rick O'Connell transformation and hints at the filming location.
+---------
+
+# Red Dead Redemption 2: The Forgotten Frontier Trailer Floors Gamers
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Thu, 07 May 2026 11:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-forgotten-frontier-fan-expansion-reaction/
+
+Red Dead Redemption 2: The Forgotten Frontier finally takes players back to Mexico, and it's safe to say they are pleased about it.
+---------
+
+# Taylor Sheridan’s 9-Part Yellowstone Spinoff Confirms Kevin Costner’s Unexpected Replacement
+
+TV, Yellowstone, Dutton Ranch
+
+Thu, 07 May 2026 11:00:20 GMT
+
+https://screenrant.com/dutton-ranch-kevin-costner-replacement-annette-bening/
+
+Kevin Costner's spirit is part of Dutton Ranch, but Beth and Rip come across a new enemy who is the Yellowstone sequel's new spin on John Dutton.
+---------
+
+# BioShock 4 Gets Official Update After Years Of Waiting
+
+Gaming, BioShock, BioShock Infinite (dupe), Take-Two Interactive
+
+Thu, 07 May 2026 10:38:58 GMT
+
+https://screenrant.com/bioshock-4-update-may-2026-take-two/
+
+Strauss Zelnick, shares his thoughts on the long development cycle of Bioshock 4, expressing disappointment but confidence in the game's future.
+---------
+
+# DC Just Revealed A Batman's Best Look So Far
+
+Comics, Batman, Catwoman, black mask
+
+Thu, 07 May 2026 12:00:13 GMT
+
+https://www.cbr.com/batman-villain-black-mask-catwoman-87-cover/
+
+A new DC comic's cover art makes this Batman villain look ever so striking.
+---------
+
+# 6 Prime Video Shows That Actually Stick the Landing
+
+TV, The Marvelous Mrs. Maisel, The Man in the High Castle, The Expanse, Prime Video
+
+Thu, 07 May 2026 11:30:12 GMT
+
+https://www.cbr.com/prime-video-shows-great-endings-list/
+
+It's not easy to create the perfect finale, but these Prime Video series exceed all expectations
+---------
+
+# 10 Best Far Side Comics Set At School
+
+Comics, The Far Side
+
+Thu, 07 May 2026 11:01:12 GMT
+
+https://www.cbr.com/best-far-side-comics-set-at-school/
+
+From karate class to high school algebra, many of The Far Side's best comics are set in a place no one wants to return to: School.
+---------
+
+# PBS's 2-Season Fantasy Classic Is Officially Getting Rebooted Next Year
+
+TV, Clifford the Big Red Dog
+
+Thu, 07 May 2026 11:00:13 GMT
+
+https://www.cbr.com/pbs-kids-clifford-the-big-red-dog-reboot-announcement/
+
+The beloved children's story is making a comeback for a new generation, and it already sounds amazing.
+---------
+
+# The 10 Best Wrestling Comics Every Fan Should Read
+
+Comics, WWE, Kinnikuman, Tiger Mask
+
+Thu, 07 May 2026 11:00:13 GMT
+
+https://www.cbr.com/best-pro-wrestling-comics-ranked/
+
+Professional wrestling and comic books go together like peanut butter and jelly, with larger-than-life characters, flashy costumes, and epic battles.
+---------
+
+# 10 Years Later, Captain America: Civil War’s Directors Reveal The ‘Strongest Moment’ In The Film
+
+Movies, Marvel, MCU, Marvel Comics, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Secret Wars, Captain America, Captain America: Civil War
+
+Thu, 07 May 2026 11:00:13 GMT
+
+https://www.cbr.com/10-years-later-captain-america-civil-war-directors-reveal-crazy-twist-in-the-film/
+
+MCU fans will never guess which moment in the legendary film changed everything for the directors.
+---------
+
+# 10 Greatest International Supernatural Thrillers, Ranked
+
+Movie, Black Sunday, Ringu, The Babadook, Under the Shadow
+
+Thu, 07 May 2026 12:17:13 GMT
+
+https://collider.com/best-international-supernatural-thrillers-ranked/
+
+The Babadook, Black Sunday, and A Tale of Two Sisters are all among the greatest international supernatural thrillers ever made.
+---------
+
+# 10 Mystery Shows That Will Keep You Hooked From Start to Finish
+
+TV, Severance, Twin Peaks, Death Note, The X-Files
+
+Thu, 07 May 2026 12:08:13 GMT
+
+https://collider.com/mystery-shows-hooked-start-to-finish/
+
+Mystery shows like Twin Peaks, Severance, Death Note, and True Detective are guaranteed to keep you hooked to your screen from start to finish.
+---------
+
+# Netflix's 100% RT Crime Thriller Officially Returns This Week
+
+TV News, The Chestnut Man, Crime, Netflix, Mystery
+
+Thu, 07 May 2026 12:00:14 GMT
+
+https://collider.com/netflix-crime-thriller-the-chestnut-man-season-2-returns-streaming-may-2026/
+
+Five years after Season 1, Netflix's acclaimed crime thriller, The Chestnut Man, finally makes its return. Here's everything you should know.
+---------
+
+# 6 Most Universally Beloved Adventure Movies of All Time
+
+Movie, Adventure, The Princess Bride, The Goonies, The Mummy
+
+Thu, 07 May 2026 11:56:14 GMT
+
+https://collider.com/most-universally-beloved-adventure-movies-all-time-ranked/
+
+These beloved adventure films, including Raiders of the Lost Ark and The Goonies, prove why great journeys never lose their magic.
+---------
+
+# This Fan-Favorite Character of CBS' Top-Rated Program Just Became the Show’s #1 Villain
+
+TV Features, Sheriff Country, Fire Country, CBS
+
+Thu, 07 May 2026 11:49:13 GMT
+
+https://collider.com/sheriff-country-wes-fox-villain-character-the-hunting-party/
+
+Wes Fox's recent actions in Sheriff Country only serve to make the character more unlikable, making him into the show's worst villain to date.
+---------
+
+# 10 Worst Remakes of Beloved Sci-Fi Movies
+
+Movie, Sci-Fi, The Time Machine, Planet of the Apes, Total Recall
+
+Thu, 07 May 2026 11:48:13 GMT
+
+https://collider.com/worst-sci-fi-movie-remakes/
+
+From RoboCop to Planet of the Apes, these remakes show how losing the core idea turns iconic sci-fi into nothing but hollow visuals.
+---------
+
+# Netflix's Latest Divisive 3-Part Sci-Fi Addition Is a Perfect Guilty-Pleasure Binge
+
+TV Features, La Brea, Natalie Zea, Netflix, NBC
+
+Thu, 07 May 2026 11:46:13 GMT
+
+https://collider.com/netflix-la-brea-3-part-sci-fi-guilty-pleasure-binge/
+
+Though La Brea wasn't exactly prestige TV, it had its fans, and now it's getting a second life on Netflix.
+---------
+
+# ‘Yellowstone’ Meets ‘MobLand’ in Taylor Sheridan’s 3-Part Crime Thriller Taking Over the World
+
+TV News, Tulsa King, Yellowstone, MobLand, Taylor Sheridan
+
+Thu, 07 May 2026 11:30:13 GMT
+
+https://collider.com/taylor-sheridan-crime-series-tulsa-king-streaming-success-paramount-plus-may-2026-yellowstone-mobland/
+
+Taylor Sheridan's three-part crime drama taking over the world has all the best parts of Yellowstone and MobLand.
+---------
+
+# 10 Greatest Disney Movie Climaxes, Ranked
+
+Movie, Sleeping Beauty, Disney, Pirates of the Caribbean: At World's End, The Lion King
+
+Thu, 07 May 2026 11:21:12 GMT
+
+https://collider.com/best-disney-movie-climaxes-ranked/
+
+Disney movies like Sleeping Beauty, The Lion King, and Beauty and the Beast have some of the best, most exciting climaxes in the studio's history.
+---------
+
+# 10 Thriller Movies That Are Heart-Pounding From Start to Finish
+
+Movie, Point Blank, Thriller, Blood Simple, Sorcerer
+
+Thu, 07 May 2026 11:04:14 GMT
+
+https://collider.com/best-thriller-movies-heart-pounding/
+
+Great thriller movies like The Grifters, Sorcerer, and The Wages of Fear are all truly suspenseful and heart-pounding from start to finish.
+---------
+
+# 'Resident Evil' Theory Reveals a Video Game Boss in Zach Cregger's Reboot
+
+Features, Resident Evil, Zach Cregger
+
+Thu, 07 May 2026 12:00:19 GMT
+
+https://movieweb.com/resident-evil-theory-video-game-boss/
+
+'Resident Evil' fans believe a video game boss is hiding in Zach Cregger's reboot trailer, and the theory makes a lot of sense.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Season 2: Confirmation, Cast, & Everything We Know
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars
+
+Thu, 07 May 2026 11:00:18 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-season-2-everything-we-know/
+
+Disney+'s Darth Maul spin-off has been an instant hit, making decisions about its future a foregone conclusion.
+---------
+
+# Taylor Sheridan Action Thriller 'Lioness' Season 3 Expected to Debut This Summer
+
+TV News, Lioness, Taylor Sheridan, Action, Thriller
+
+Thu, 07 May 2026 10:52:02 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-season-3-release/
+
+The return of the 'Yellowstone' creator's spy thriller series is now "completed" and likely to premiere on Paramount+ soon.
+---------
+
+# James Cameron & Disney Sued for Stealing 'Avatar' Character Design
+
+Movie News, Avatar, James Cameron, The New World
+
+Thu, 07 May 2026 10:40:10 GMT
+
+https://movieweb.com/avatar-lawsuit-james-cameron-qorianka-kilcher-likeness/
+
+Q'orianka Kilcher is suing James Cameron and Disney for allegedly using her likeness for an 'Avatar' character design without consent.
+---------
+
 # Cyberpunk 2077 Officially Returning For Brand-New DLC
 
 Gaming, Cyberpunk 2077, Cyberpunk: Edgerunners
