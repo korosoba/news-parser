@@ -1,3 +1,289 @@
+# Xbox Project Helix Official Update Is A Great Sign For The Next-Gen Console
+
+Gaming, Microsoft, Triple-A Games
+
+Thu, 07 May 2026 21:07:55 GMT
+
+https://screenrant.com/xbox-project-helix-update-spring-2026/
+
+Although there wasn't too much news regarding Xbox's next big console, some information suggests that fans might get exactly what they want in 2026.
+---------
+
+# 8 Years Later, Netflix's 2-Part 'Lost Meets Inception' Series Is Still One Of Its Best Sci-Fi Shows
+
+TV, Masked Recs, Netflix, Inception, Lost
+
+Thu, 07 May 2026 21:03:22 GMT
+
+https://screenrant.com/sense-8-netflix-lost-meets-inception-sci-fi-show/
+
+Diving headfirst into a complex sci-fi narrative, Netflix's "Lost meets Inception" series blended philosophical musings with pulse-pounding action.
+---------
+
+# M.I.A.'s Brutal Opening Character Deaths & Their Future In The Series Explained By Cast As Creators Talk Show's Deeper Meaning
+
+TV, M.I.A., M.I.A. - Season 1, Bill Dubuque, Danay Garcia, Cary Elwes, Peacock
+
+Thu, 07 May 2026 21:00:21 GMT
+
+https://screenrant.com/mia-season-1-etta-family-deaths-future-impact-meaning-cast-creators/
+
+M.I.A. creators Bill Dubuque and Karen Campbell and stars Danay Garcia and Cary Elwes talk the show's opening deaths and future in the series.
+---------
+
+# Marvel's New Uncle Ben Reveal Officially Rewrites Tom Holland's Spider-Man
+
+Superheroes, Spider-Man, Marvel Cinematic Universe
+
+Thu, 07 May 2026 21:00:21 GMT
+
+https://screenrant.com/marvel-uncle-ben-reveal-rewrites-tom-holland-spider-man/
+
+Before Tom Holland returns in Spider-Man: Brand New Day, a new Uncle Ben reveal completely rewrites the MCU's Peter Parker, and it is shocking.
+---------
+
+# No Man's Sky Meets Zelda: TOTK In Epic New Open-World Sci-Fi RPG
+
+Gaming, Steam, PC, Indie Games
+
+Thu, 07 May 2026 21:00:21 GMT
+
+https://screenrant.com/atmosfar-zelda-meets-no-mans-sky-may-2026/
+
+One upcoming Steam game has managed to beautifully bring together the space exploration of No Man's Sky and the aesthetic and gameplay of Zelda.
+---------
+
+# X-Men's Cyclops Officially Debuts Dark New Redesign
+
+Marvel Comics, Cyclops, X-Men, Marvel
+
+Thu, 07 May 2026 21:00:21 GMT
+
+https://screenrant.com/x-men-cyclops-redesign-cyborg/
+
+Marvel's Cyclops is dramatically redesigned into a monstrous version of the X-Men commander, complete with a Venom-like tongue and a new visor.
+---------
+
+# Jessie Buckley & Paul Mescal Officially Set Hamnet Reunion
+
+Movies, Hamnet, Jessie Buckley, Paul Mescal
+
+Thu, 07 May 2026 20:52:50 GMT
+
+https://screenrant.com/jessie-buckley-paul-mescal-reunion-hold-on-to-your-angels/
+
+Hamnet stars Jessie Buckley and Paul Mescal are reuniting for another romance drama after a successful awards season and Oscar win.
+---------
+
+# After 3 Years, Prime Video’s 7-Part Spy Thriller Finally Returns To Fix Its Biggest Problem
+
+Streaming TV, Citadel
+
+Thu, 07 May 2026 20:48:20 GMT
+
+https://screenrant.com/prime-video-citadel-season-2-fixes-problem/
+
+Citadel, the divisive Prime Video spy action thriller, returns with an already popular season 2, aiming to improve on its predecessor's shortcomings.
+---------
+
+# 10 Best Magic Items For Fighters In D&D 5e, Ranked
+
+Lists, Dungeons and Dragons
+
+Thu, 07 May 2026 21:36:13 GMT
+
+https://www.cbr.com/best-fighter-magic-items-dnd-5e/
+
+Fighters are often seen as the most straightforward Dungeons & Dragons class, but that doesn't mean they can't make great use of magic items.
+---------
+
+# 8 Yellowstone Episodes That Aged Poorly
+
+TV, Yellowstone, Paramount, Western
+
+Thu, 07 May 2026 21:30:13 GMT
+
+https://www.cbr.com/yellowstone-episodes-aged-poorly-list/
+
+Taylor Sheridan's Yellowstone has made its mark in the Western genre, but some episodes were burning daylight on the air.
+---------
+
+# The Worst Final Fantasy Game Censorships of All Time
+
+Games, Final Fantasy
+
+Thu, 07 May 2026 21:15:13 GMT
+
+https://www.cbr.com/final-fantasy-games-worst-censorship/
+
+The Final Fantasy series has received a ton of censorship over the years, with even the most recent RPG releases seeing changes in different regions.
+---------
+
+# The Terror: Devil in Silver Review: Ridley Scott’s Hidden Gem Horror Series Returns
+
+TV, The Terror, AMC
+
+Thu, 07 May 2026 21:03:51 GMT
+
+https://www.cbr.com/the-terror-devil-in-silver-review/
+
+Dan Stevens stars as a man wrongfully admitted to a haunted psychiatric hospital in The Terror Season 3, marking its comeback after seven years.
+---------
+
+# Denzel Washington's $130M Action Hit Man on Fire Resurfaces on Streaming Amid Netflix Hit Remake
+
+Movies, Man on Fire, Action
+
+Thu, 07 May 2026 21:00:14 GMT
+
+https://www.cbr.com/denzel-washington-action-hit-man-on-fire-netflix-streaming-may-2026/
+
+Denzel Washington's action classic is taking over streaming — thanks to its 2026 remake.
+---------
+
+# Alien Confirms Major Lore Change That Makes the Franchise Even More Terrifying
+
+Comics, Alien
+
+Thu, 07 May 2026 21:00:14 GMT
+
+https://www.cbr.com/alien-king-killer-xenomorph-lore-update/
+
+The Alien franchise's lore just got an incredible update that changes the way humanity can fight back against the terrifying Xenomorphs.
+---------
+
+# All 7 Taylor Sheridan Movies, Ranked From Sicario to Hell or High Water
+
+Movies, Sicario, Hell or High Water, Wind River
+
+Thu, 07 May 2026 21:00:14 GMT
+
+https://www.cbr.com/taylor-sheridan-movies-list/
+
+From Sicario to Hell or High Water, this list of Taylor Sheridan movies feature the writer and director's most essential films and hidden gems.
+---------
+
+# Dark Side of the Ring Officially Sets Return Date, New Subjects Revealed
+
+TV, Dark Side of the Ring
+
+Thu, 07 May 2026 20:47:47 GMT
+
+https://www.cbr.com/dark-side-of-the-ring-season-7-premiere-date/
+
+Season 7's subjects have been revealed for the hit wrestling docuseries Dark Side of the Ring.
+---------
+
+# Netflix’s New ‘80s Sci-Fi Reboot Series Sets Official Release Window
+
+TV News, Ghostbusters, Dan Aykroyd, Animation, Netflix
+
+Thu, 07 May 2026 21:30:24 GMT
+
+https://collider.com/netflix-ghostbusters-animated-series-80s-sci-fi-reboot-release-window/
+
+Netflix’s new reboot of Ghostbusters, one of the most beloved sci-fi franchises of the 1980s, has officially set a release window. Here’s what we know
+---------
+
+# Netflix Officially Reveals Fresh Look at New Sci-Fi Detective Movie From 'The Incredibles' Director
+
+Movie News, Brad Bird, The Incredibles, The Incredibles 2, Netflix
+
+Thu, 07 May 2026 21:28:56 GMT
+
+https://collider.com/netflix-officially-reveals-fresh-look-at-new-sci-fi-detective-movie-from-the-incredibles-director/
+
+Netflix officially reveals a breathtaking new look at Ray Gunn, a sci-fi detective movie from The Incredibles director Brad Bird.
+---------
+
+# 'Maul: Shadow Lord' Officially Sets up One of Star Wars Legends' Most Iconic Characters
+
+TV Features, Star Wars: Maul - Shadow Lord, Star Wars, Disney+, Sam Witwer
+
+Thu, 07 May 2026 21:27:14 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-darth-legends-talon-devon-izara/
+
+In the season finale of Star Wars: Maul - Shadow Lord, Devon Izara's fall to the Dark Side sets up a new origin story for Darth Talon.
+---------
+
+# 'Jurassic Park's Greatest Quote Has a Whole New Meaning 33 Years Later
+
+Movie Features, Jurassic Park, Steven Spielberg, Jeff Goldblum
+
+Thu, 07 May 2026 21:19:13 GMT
+
+https://collider.com/jurassic-park-greatest-quote-life-finds-a-way-meaning/
+
+Steven Spielberg's Jurassic Park franchise is defined by one simple, yet brilliant quote from Jeff Goldblum's Dr. Ian Malcolm in the first movie.
+---------
+
+# 10 Most Universally Beloved '90s Cult Classic Movies, Ranked
+
+Movie, Fight Club, Pulp Fiction, The Big Lebowski, Trainspotting
+
+Thu, 07 May 2026 20:57:13 GMT
+
+https://collider.com/most-universally-beloved-90s-cult-classic-movies-ranked/
+
+Some of the most iconic cult movies of the '90s are now popular enough to be mainstream, including beloved ones like Pulp Fiction and Trainspotting.
+---------
+
+# MGM+'s Western Remake Series Officially Casts a 'Yellowstone' Favorite
+
+TV News, MGM, Will Patton, The Magnificent Seven, Western
+
+Thu, 07 May 2026 20:50:03 GMT
+
+https://collider.com/mgm-plus-magnificent-seven-remake-series-cast-yellowstone-star-will-patton/
+
+MGM+'s remake series of the beloved Western, The Magnificent Seven, has cast its first lead role with Yellowstone alum Will Patton.
+---------
+
+# 'The Accountant 3' Gets Promising Sequel Update From Series Writer
+
+Movie News, The Accountant 3, The Accountant 2, Ben Affleck, Gavin O'Connor
+
+Thu, 07 May 2026 21:10:47 GMT
+
+https://movieweb.com/the-accountant-3-ben-affleck-update/
+
+The screenwriter behind the films is optimistic about the series' future.
+---------
+
+# Paramount+ Releases New Trailer for 'Criminal Minds: Evolution' Season 19
+
+TV News, Criminal Minds: Evolution
+
+Thu, 07 May 2026 21:00:39 GMT
+
+https://movieweb.com/criminal-minds-evolution-paramount-season-19-trailer/
+
+A new trailer for Season 19 of 'Criminal Minds: Evolution' was released ahead of its May 28 debut on Paramount+.
+---------
+
+# 8 Book-to-Movie Adaptations That Ended Up Nothing Like the Source Material
+
+Movie Lists
+
+Thu, 07 May 2026 21:00:19 GMT
+
+https://movieweb.com/book-to-movie-adaptations-different-source-material/
+
+These book-to-movie adaptations got lost in translation from the page to the screen. But did it help, or did it ruin the story?
+---------
+
+# Dark Horse Comic Announces 'Masters of the Universe' Prequel Comic to Tie-In with the Upcoming Film
+
+Movie News, Masters of the Universe
+
+Thu, 07 May 2026 20:47:58 GMT
+
+https://movieweb.com/masters-of-the-universe-prequel-comic-he-man-skeletor/
+
+In addition to a prequel comic for the film, Dark Horse will also publish a 12-issue that reveals the origins for many characters.
+---------
+
 # The Bourne Identity's Doug Liman Developing Spy Thriller Star One With Miles Teller & Eddie Redmayne In Talks
 
 Movies, Eddie Redmayne, Miles Teller, Doug Liman
