@@ -1,3 +1,322 @@
+# The Bourne Identity's Doug Liman Developing Spy Thriller Star One With Miles Teller & Eddie Redmayne In Talks
+
+Movies, Eddie Redmayne, Miles Teller, Doug Liman
+
+Thu, 07 May 2026 20:30:24 GMT
+
+https://screenrant.com/star-one-movie-miles-teller-eddie-redmayne-development/
+
+The Bourne Identity's Doug Liman is gearing up to direct an upcoming CIA spy thriller that will star Miles Teller and Eddie Redmayne.
+---------
+
+# Daredevil: Born Again Season 2's Sequel Officially Releases In 5 Days
+
+Streaming TV, The Punisher: One Last Kill, Daredevil: Born Again
+
+Thu, 07 May 2026 20:30:20 GMT
+
+https://screenrant.com/daredevil-born-again-the-punisher-special-sequel-may-2026/
+
+Just a couple of days after the finale of Daredevil: Born Again season 2, the MCU is bringing an official secret sequel starring a popular vigilante.
+---------
+
+# 2026 Is Days Away From Its First $1 Billion Movie
+
+New Movies, Box Office
+
+Thu, 07 May 2026 20:30:20 GMT
+
+https://screenrant.com/2026-box-office-first-billion-dollar-movie/
+
+The first $1 billion movie of 2026 is nearly here, as one blockbuster global hit is quickly approaching the significant box office milestone.
+---------
+
+# Peacock's New Series M.I.A. Debuts To 57% Rotten Tomatoes Score
+
+TV, M.I.A., M.I.A. - Season 1
+
+Thu, 07 May 2026 20:14:41 GMT
+
+https://screenrant.com/peacock-mia-season-1-rotten-tomatoes-score/
+
+Ozark co-creator Bill Dubuque's new crime thriller fails to live up to Netflix's hit series with its Rotten Tomatoes debut on the day of its release.
+---------
+
+# Marisa Tomei Officially Starring In HBO’s Returning Legal Thriller War Season 2
+
+TV, Marisa Tomei
+
+Thu, 07 May 2026 20:04:16 GMT
+
+https://screenrant.com/hbo-war-season-2-cast-marisa-tomei-kelly-macdonald/
+
+After starring in multiple Spider-Man films, Tomei is returning to the small screen in season 2 of a new HBO legal thriller that’s premiering in 2026.
+---------
+
+# Dan Stevens' New Horror Series The Terror "Has Nods" To His 10/10 Marvel Series
+
+TV, The Terror, The Terror - Season 3, AMC+, Dan Stevens, Horror
+
+Thu, 07 May 2026 20:00:19 GMT
+
+https://screenrant.com/dan-stevens-the-terror-devil-in-silver-legion-marvel-homages/
+
+Dan Stevens talks his new horror series, The Terror: The Devil in Silver, and how it has a few subtle nods to his acclaimed work on a Marvel series.
+---------
+
+# Nintendo Just Showed Us What To Expect From Zelda's Ocarina Remake
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Thu, 07 May 2026 20:00:19 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-graphics-improvements/
+
+The Legend of Zelda's Ocarina Of Time remake has gotten a promising update thanks to a new trailer from Nintendo. Here's what to expect.
+---------
+
+# Grey's Anatomy Is Returning For Season 23 - Everything We Know
+
+Network TV, Grey's Anatomy
+
+Thu, 07 May 2026 20:00:19 GMT
+
+https://screenrant.com/greys-anatomy-season-23-explained/
+
+After a milestone year where it crossed its 500th episode, the people at Grey Sloan Memorial Hospital moves towards Grey's Anatomy season 23.
+---------
+
+# Director Olivia Newman Explains Cutting An Entire Chapter From Remarkably Bright Creatures
+
+Interviews, Remarkably Bright Creatures, Netflix
+
+Thu, 07 May 2026 19:57:07 GMT
+
+https://screenrant.com/remarkably-bright-creatures-netflix-book-chapter-cut-explained-olivia-newman/
+
+Netflix's Remarkably Bright Creatures film director Olivia Newman discusses adapting the bestselling novel, cutting an entire chapter, and focusing on Tova's story and experience.
+---------
+
+# Murder In A Small Town Season 3 Renewed By Fox
+
+TV, Murder in a Small Town
+
+Thu, 07 May 2026 19:56:42 GMT
+
+https://screenrant.com/murder-in-a-small-town-season-3-renewed-by-fox/
+
+Fox renews Murder in a Small Town for a third season with 10 episodes, and actor Peter Gallagher joins the cast as a new series regular.
+---------
+
+# 5 Reasons Star Trek: The Motion Picture Is The Franchise's Most Perfect Movie
+
+Movies, Star Trek, Star Trek: The Motion Picture
+
+Thu, 07 May 2026 20:30:13 GMT
+
+https://www.cbr.com/perfect-sci-fi-movie-star-trek-the-motion-picture-list/
+
+Star Trek: The Motion Picture is perhaps the most perfect iteration of Gene Roddenberry's vision for his storytelling universe.
+---------
+
+# 12 Best Kids' Cartoons of All Time
+
+TV, cartoons, Scooby-Doo, Powerpuff Girls, Looney Tunes
+
+Thu, 07 May 2026 20:30:13 GMT
+
+https://www.cbr.com/best-kids-cartoons-of-all-time-list/
+
+Children's cartoons are a major part of television history, and the genre has produced several iconic series that are still watched today.
+---------
+
+# Tatiana Maslany Talks About Her "Open-Ended" MCU Future as She-Hulk
+
+TV, She-Hulk: Attorney at Law, Marvel Cinematic Universe, Disney+
+
+Thu, 07 May 2026 20:24:25 GMT
+
+https://www.cbr.com/she-hulk-tatiana-maslany-mcu-return-jessica-gao/
+
+Tatiana Maslany, star of Marvel's She-Hulk: Attorney at Law Disney+ series, discusses her MCU future.
+---------
+
+# 10 Most Popular Anime Characters in 2026, Ranked
+
+Anime, Jujutsu Kaisen, Attack on Titan, Naruto, Demon Slayer: Kimetsu no Yaiba
+
+Thu, 07 May 2026 20:17:12 GMT
+
+https://www.cbr.com/official-most-popular-anime-characters-2026/
+
+Anime as a medium has existed for several decades, yet these ten characters stand the test of time as the most popular anime figures in 2026.
+---------
+
+# ABC's Desperate Housewives Is a Digital Streaming Hit Ahead of Spin-Off
+
+TV, Desperate Housewives, Mystery, ABC
+
+Thu, 07 May 2026 20:00:12 GMT
+
+https://www.cbr.com/desperate-housewives-mystery-drama-abc-streaming-success-may-2026/
+
+ABC's iconic 2000s series Desperate Housewives is a hit on streaming ahead of spin-off titled Wisteria Lane.
+---------
+
+# DC Is Replacing Superman With Supergirl
+
+Movies, Supergirl, Superman, DCU
+
+Thu, 07 May 2026 20:00:12 GMT
+
+https://www.cbr.com/dcu-supergirl-replacing-superman/
+
+Supergirl flies back onto the big screen this summer, and her new film represents a shift for the DCU and the heroine's previous movie appearances.
+---------
+
+# Fox's Murder in a Small Town's Future Finally Revealed 5 Months Later
+
+TV, Murder in a Small Town
+
+Thu, 07 May 2026 19:53:59 GMT
+
+https://www.cbr.com/murder-in-a-small-town-renewed-season-3/
+
+The future of Murder in a Small Town on Fox is finally revealed over five months since the second season ended.
+---------
+
+# Cyberpunk 2077: Future Sound of Night City Officially Coming June 2026
+
+Games, Cyberpunk 2077
+
+Thu, 07 May 2026 19:40:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-future-sound-of-night-city-officially-revealed-june-2026/
+
+The newest Cyberpunk 2077 release will allow fans to experience Night City like never before.
+---------
+
+# Tom Cruise's Edge of Tomorrow 2 Not Happening After All
+
+Movies, Edge of Tomorrow 2, Sci-Fi, Edge of Tomorrow
+
+Thu, 07 May 2026 19:34:34 GMT
+
+https://www.cbr.com/tom-cruise-edge-of-tomorrow-2-not-happening/
+
+New information has squashed reports that the long-awaited sequel to Tom Cruise's Edge of Tomorrow will film this fall.
+---------
+
+# Solo Leveling Just Dropped 2 of the Series' Darkest Manhwa Chapters Ever
+
+Anime, Solo Leveling:ARISE, Solo Leveling
+
+Thu, 07 May 2026 19:30:13 GMT
+
+https://www.cbr.com/solo-leveling-arise-hunter-origin-manhwa-antoine-martinez-myro/
+
+Solo Leveling officially releases two brand-new manhwa chapters, revealing characters whose backstories are arguably just as dark as Sung Jinwoo's.
+---------
+
+# 5 'Daredevil: Born Again' Characters Who Deserve Their Own Spin-Off
+
+TV, Daredevil, Daredevil: Born Again, Superhero, Marvel
+
+Thu, 07 May 2026 20:42:13 GMT
+
+https://collider.com/daredevil-born-again-characters-deserve-a-spin-off/
+
+Standout Daredevil: Born Again characters like Bullseye, Jessica Jones, and Swordsman are all worthy of their own spin-off projects.
+---------
+
+# Star Wars’ $90M Hit Series Is Still An Elite Sci-Fi Weekend Binge
+
+TV Features, Obi-Wan Kenobi, Star Wars, Ewan McGregor, Hayden Christensen
+
+Thu, 07 May 2026 20:08:13 GMT
+
+https://collider.com/star-wars-obi-wan-kenobi-series-weekend-binge-darth-vader-peak/
+
+Star Wars’ Obi-Wan Kenobi series is perfect to watch in a weekend to touch on one of the franchise’s most emotional character arcs.
+---------
+
+# 8 Perfect Netflix Shows Where Every Episode Is a 10/10, No Notes
+
+TV, Netflix, Better Call Saul, Adolescence, Ripley
+
+Thu, 07 May 2026 19:52:12 GMT
+
+https://collider.com/netflix-shows-every-episode-perfect/
+
+Adolescence, Ripley, Dark, Derry Girls, BoJack Horseman, and more make up our list of perfect Netflix shows where every episode is a 10/10.
+---------
+
+# Charlize Theron Confirms New Action Thriller With ‘Apex’ Director After Bonkers Netflix Debut
+
+Movie News, Apex, Charlize Theron, Netflix, Taron Egerton
+
+Thu, 07 May 2026 19:35:56 GMT
+
+https://collider.com/charlize-theron-new-action-movie-apex-director-baltasar-kormakur-six-clean-kills/
+
+Charlize Theron is officially reuniting with Apex director Baltasar Kormákur for her next action thriller. Here’s what we know about the movie.
+---------
+
+# 7 Near-Perfect Fantasy Movies of the Last 6 Years, Ranked
+
+Movie, Fantasy, The Boy and the Heron, Frankenstein, Wicked
+
+Thu, 07 May 2026 19:33:14 GMT
+
+https://collider.com/near-perfect-fantasy-movies-last-6-years-ranked/
+
+From animated gems like KPop Demon Hunters to genre blends like Frankenstein, these fantasy movies of the last 6 years come quite close to perfection.
+---------
+
+# Taylor Sheridan's Thriller ‘Lioness’ Officially Beats 'Reacher' in 2026
+
+Features, Taylor Sheridan
+
+Thu, 07 May 2026 20:00:18 GMT
+
+https://movieweb.com/lioness-summer-2026-release-date-beats-reacher/
+
+'Lioness' Season 3, Taylor Sheridan's action thriller series, has an advantage over 'Reacher,' the Amazon Prime Video show starring Alan Ritchson.
+---------
+
+# Apple TV's Stephen King-Esque Horror Comedy 'Widow's Bay' Conquers Streaming
+
+TV News, Hot on Streaming, Widow's Bay, Horror, Stephen King, Apple TV
+
+Thu, 07 May 2026 20:00:18 GMT
+
+https://movieweb.com/widows-bay-streaming-apple-tv-may-2026/
+
+Starring Matthew Rhys, the genre-bending horror-comedy boasts a near-perfect 96% on Rotten Tomatoes.
+---------
+
+# Brendan Fraser Teases Upcoming Physical Transformation for 'The Mummy 4'
+
+Movie News, The Mummy 4, Brendan Fraser, The Mummy
+
+Thu, 07 May 2026 19:43:47 GMT
+
+https://movieweb.com/the-mummy-4-brendan-fraser-transformation/
+
+The actor's comments tease a return to the adventure of the original films.
+---------
+
+# Robin Williams: Memoir Author Reveals Lost True Story Movie Role Details
+
+Movie News, Robin Williams, Drama, Eric Roth, First Person Plural
+
+Thu, 07 May 2026 19:23:46 GMT
+
+https://movieweb.com/robin-williams-lost-movie-role-details/
+
+New details highlight the unmade memoir adaptation that would have pushed even Robin Williams' talents to the limit.
+---------
+
 # Jeff Daniels, Caleb McLaughlin, & Joel Edgerton Join Joseph Gordon-Levitt's Untitled Netflix AI Thriller
 
 Movies, Netflix
