@@ -1,3 +1,443 @@
+# Tom Cruise’s Edge Of Tomorrow Sequel Release Timeline Clarified After Recent Reports
+
+Movies, Edge of Tomorrow 2, Tom Cruise
+
+Thu, 07 May 2026 17:13:20 GMT
+
+https://screenrant.com/tom-cruise-edge-of-tomorrow-sequel-update-report/
+
+Tom Cruise's highly anticipated sequel may not be happening for a while, as recent reports clarify whether this long-awaited movie is in development.
+---------
+
+# Daredevil: Born Again Star Advocates For David Tennant's MCU Villain Return After Season 2 Finale Twist
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe, Jessica Jones
+
+Thu, 07 May 2026 17:10:53 GMT
+
+https://screenrant.com/daredevil-born-again-david-tennant-return-hopes-charlie-cox/
+
+Following the massive twist for Daredevil: Born Again season 2, Charlie Cox shares how much he would want to see David Tennant return as Kilgrave.
+---------
+
+# Elden Ring Unveils Official New Release For July 2026
+
+Gaming, Elden Ring, PC
+
+Thu, 07 May 2026 17:08:15 GMT
+
+https://screenrant.com/elden-ring-radagon-marika-golden-order-july-release/
+
+Elden Ring just unveiled a stunning new official release featuring the game's most iconic characters, and it's available to check out now.
+---------
+
+# Halo 3 Remake Release Date Massively Narrowed Down, Mark Your Calendars
+
+Gaming, Halo, Halo 3, Triple-A Games
+
+Thu, 07 May 2026 17:00:38 GMT
+
+https://screenrant.com/halo-3-remake-release-date-leaks/
+
+More remakes of iconic Halo games are rumored to follow Halo: Campaign Evolved, and one of them could have a momentous launch in the near future.
+---------
+
+# Jujutsu Kaisen Just Got The Marvel Crossover Of Our Dreams
+
+Anime, Jujutsu Kaisen, Marvel
+
+Thu, 07 May 2026 17:00:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-marvel-universe-storm/
+
+The world of Jujutsu Kaisen just got a whole lot bigger.
+---------
+
+# The Best Nordic-Noir Thriller Of All Time Is Back On Netflix
+
+TV, Masked Recs, Film Noir
+
+Thu, 07 May 2026 17:00:20 GMT
+
+https://screenrant.com/chestnut-man-best-nordic-noir-thriller-netflix-season-2/
+
+Netflix has brought back one of the decade's best crime thrillers, for an impressive second season that cements its status as Nordic noir's greatest.
+---------
+
+# Netflix's New Ghostbusters Series Sets Official Release Window With Original Star Returning
+
+TV, Ghostbusters
+
+Thu, 07 May 2026 16:48:32 GMT
+
+https://screenrant.com/busters-netflix-series-release-window-confirmed/
+
+One of the original stars of the hit 1984 film Ghostbusters is returning to the franchise, as Netflix reveals when its new TV shows will be released.
+---------
+
+# 5 DC Characters Matthew Lillard Could Be Playing In Man Of Tomorrow
+
+Superheroes, Man of Tomorrow, DC Universe
+
+Thu, 07 May 2026 16:45:19 GMT
+
+https://screenrant.com/man-of-tomorrow-matthew-lillard-character-options/
+
+James Gunn has brought Matthew Lillard to the DC Universe for Man of Tomorrow, but who he's playing is a secret, leaving room for speculation.
+---------
+
+# Netflix's 4-Part British Drama Quietly Justifies Harry Potter's Perfect TV Villain Casting
+
+Streaming TV, Harry Potter, Lord of the Flies
+
+Thu, 07 May 2026 16:45:19 GMT
+
+https://screenrant.com/lord-of-the-flies-netflix-harry-potter-show-draco-lox-pratt-casting/
+
+Getting used to a new cast in HBO's Harry Potter will be no easy thing, but Netflix's recent drama provides every reason to hold out hope.
+---------
+
+# Mozart's One-Sided Rivalry Explored In Starz's Amadeus Series
+
+TV, Amadeus, Starz, Paul Bettany, Will Sharpe
+
+Thu, 07 May 2026 16:42:47 GMT
+
+https://screenrant.com/amadeus-series-mozart-salieri-rivalry-paul-bettany-explanation/
+
+In Starz's new five-part series Amadeus, Paul Bettany and Will Sharpe delve into the one-sided rivalry between Mozart and Salieri, based on Peter Shaffer's 1979 stage play.
+---------
+
+# Elijah Wood, Melissa Benoist Join Hulu's Paradise Season 3
+
+TV, Paradise, Thriller, Hulu
+
+Thu, 07 May 2026 17:11:28 GMT
+
+https://www.cbr.com/paradise-season-3-cast-elijah-wood-melissa-benoist/
+
+The Lord of the Rings' Elijah Wood and Supergirl's Melissa Benoist have joined the cast of Hulu's Paradise in Season 3.
+---------
+
+# Transformers and Hot Wheels Fire Up an Official New Autobot Crossover With First-Look Reveal
+
+Anime, Transformers, merchandise, Hot Wheels, toys, hasbro
+
+Thu, 07 May 2026 17:00:13 GMT
+
+https://www.cbr.com/transformers-hot-wheels-twin-mill-reveal/
+
+The 2025 crossover between Hot Wheels and Transformers continues with a redeco of a previous action figure that subtly homages numerous Autobots.
+---------
+
+# 3 Years After Scream Firing, Melissa Barrera Officially Returns to Horror
+
+Movies, Horror
+
+Thu, 07 May 2026 16:27:02 GMT
+
+https://www.cbr.com/melissa-barrera-returns-to-horror-inhabit/
+
+Melissa Barrera is ready to reclaim her Scream Queen title.
+---------
+
+# Brendan Fraser Teases Transformation for The Mummy 4 Return
+
+Movies, The Mummy 4, Horror, The Mummy
+
+Thu, 07 May 2026 16:19:23 GMT
+
+https://www.cbr.com/the-mummy-4-brendan-fraser-filming-update/
+
+Brendan Fraser asks fans to wish him luck as the 57-year-old actor gets into shape for The Mummy 4.
+---------
+
+# The Audacity Cast Reveal the Dark Side of Tech Culture
+
+TV, The Audacity
+
+Thu, 07 May 2026 16:15:12 GMT
+
+https://www.cbr.com/video/the-audacity-cast-reveal-the-dark-side-of-tech-culture/
+
+In this CBR Presents interview, creator Jonathan Glatzer explains how The Audacity explores Silicon Valley beyond the office, focusing on relationships, power, and personal choices. Instead of villains, the show presents complex people navigating a system that rewards division and profit.Billy Magnussen dives into Duncan Park, a character torn between idealism and ambition, constantly chasing success while losing his grounding. This The Audacity series interview highlights the blurred line between innovation and consequence—and why the real story isn’t about evil tech, but human behavior.
+---------
+
+# 10 Classic Anime Series That Will Never Need a Remake
+
+Anime, shonen anime, Steins;Gate, Monster, Cowboy Bebop
+
+Thu, 07 May 2026 16:15:12 GMT
+
+https://www.cbr.com/classic-anime-series-no-remake-needed/
+
+Some classic anime get everything right on their first try, never needing another reinterpretation of a perfectly executed series.
+---------
+
+# Why Karl Urban Probably Won't Watch Mortal Kombat 2 or The Boys
+
+Movies, Action, Mortal Kombat, Mortal Kombat 1, Mortal Kombat II
+
+Thu, 07 May 2026 16:14:23 GMT
+
+https://www.cbr.com/why-karl-urban-probably-wont-watch-mortal-kombat-2-or-anything-else-hes-in/
+
+The Boys' superstar has a wild confession, and it involves Mortal Kombat 2 as well.
+---------
+
+# DC’s New Crossover Event Is Being Written by Two Batman Legends
+
+Comics, Absolute Batman, Batman, matt fraction, scott snyder
+
+Thu, 07 May 2026 16:00:13 GMT
+
+https://www.cbr.com/batman-scotty-snyder-matt-fraction-2027-dc-crossover/
+
+Two of Batman's worlds are about to collide.
+---------
+
+# CBS Unveils the Criminal Minds Season 19 Trailer
+
+TV, Criminal Minds
+
+Thu, 07 May 2026 16:00:13 GMT
+
+https://www.cbr.com/criminal-minds-season-19-trailer/
+
+The next pulse-pounding season of Criminal Minds: Evolution is almost here, and it already looks like everything fans were hoping it would be.
+---------
+
+# Crunchyroll Launches $1.99 Anime Streaming Deal After Controversial Price Hike
+
+Anime, Crunchyroll
+
+Thu, 07 May 2026 16:00:13 GMT
+
+https://www.cbr.com/crunchyroll-anime-streaming-deal-may-2026/
+
+Crunchyroll is offering new and returning subscribers a limited-time premium membership following the streaming service's controversial price hike.
+---------
+
+# 10 Praiseworthy Sci-Fi Movies That No One Remembers
+
+Movie, Science Fiction, Cube, Dark City, Moon
+
+Thu, 07 May 2026 17:08:14 GMT
+
+https://collider.com/praiseworthy-sci-fi-movies-no-one-remembers/
+
+'90s cult classics like Gattaca and 2010s hidden gems like The Vast of Night are sci-fi triumphs deserving of all the praise yet continuously ignored.
+---------
+
+# ‘Notting Hill’ Meets ‘Sleepless in Seattle’ in Netflix’s Next Big Rom-Com Officially Coming This Summer
+
+Movie News, Netflix, Notting Hill, Sleepless In Seattle, Nick Offerman
+
+Thu, 07 May 2026 17:04:13 GMT
+
+https://collider.com/netflix-voicemails-for-isabelle-first-images-release-date-june-2026-zoey-deutch-nick-offerman/
+
+Netflix has released the first images from its next rom-com, Voicemails for Isabelle, which launches this summer on June 19.
+---------
+
+# Tom Cruise's 'Edge of Tomorrow 2' Is NOT Happening Anytime Soon [Exclusive]
+
+Exclusives, Edge of Tomorrow, Tom Cruise, Emily Blunt, Sci-Fi
+
+Thu, 07 May 2026 17:01:58 GMT
+
+https://collider.com/edge-of-tomorrow-2-tom-cruise-sci-fi-sequel-not-in-development/
+
+Despite recent reports, a sequel to Tom Cruise's cult classic sci-fi movie, Edge of Tomorrow, is not currently in the works.
+---------
+
+# Prime Video's ‘House of David’ Expands With First Look at Epic New 3-Part Companion Series [Exclusive]
+
+TV News, The Chosen, House of David, Ben Kingsley, Prime Video
+
+Thu, 07 May 2026 17:01:22 GMT
+
+https://collider.com/ben-kingsley-the-old-stories-moses-trailer-poster-wonder-project-prime-video/
+
+Ben Kingsley stars as Moses in The Old Stories: Moses, a new House of David companion special premiering May 14.
+---------
+
+# Hulu Officially Unleashes Perfect First Trailer for 2026’s Messiest New Rom-Com
+
+TV News, Hulu, Jermaine Clement, Joel Fry, Comedy
+
+Thu, 07 May 2026 16:24:16 GMT
+
+https://collider.com/hulu-rom-com-series-alice-and-steve-trailer-release-date-june-2026/
+
+Hulu unleashes hilarious first trailer for 2026’s messiest new rom-com, Alice and Steve, ahead of its streaming release next month.
+---------
+
+# Marvel's 3-Part Action Series Is So Good, You'll Finish It Before the Next Movie
+
+Movie Features, Spider-Man: Brand New Day, Spider-Man: Homecoming, Captain America: Civil War, Tom Holland
+
+Thu, 07 May 2026 16:20:45 GMT
+
+https://collider.com/marvel-studios-spider-man-trilogy-tom-holland-so-good-streaming/
+
+With Spider-Man: Brand New Day set to hit theaters, now's the best time to revisit Tom Holland's first three movies as the web-slinger.
+---------
+
+# ‘Yellowstone’ Spin-Off Teases Kayce Dutton’s Most Dangerous Mission Yet in New ‘Marshals’ Sneak Peek [Exclusive]
+
+Exclusives, Marshals, Yellowstone, Luke Grimes, CBS
+
+Thu, 07 May 2026 16:00:13 GMT
+
+https://collider.com/marshals-season-1-episode-11-sneak-peek-kayce-dutton/
+
+Watch an exclusive sneak peek from Marshals Episode 11, as Kayce and Pete escort a prisoner through snowy woods and find themselves stranded.
+---------
+
+# Apple TV’s Twisted Crime Thriller Is About To Push Jon Hamm Over the Edge in New Sneak Peek [Exclusive]
+
+Exclusives, James Marsden, Jon Hamm, Your Friends and Neighbors, Apple TV
+
+Thu, 07 May 2026 16:00:13 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-episode-6-sneak-peek-jon-hamm-james-marsden-apple-tv/
+
+Watch an exclusive sneak peek from Your Friends & Neighbors Season 2, Episode 6, featuring Jon Hamm and James Marsden, before it arrives on Apple TV.
+---------
+
+# Evil Is Contagious in the First Trailer for Season 19 of Paramount+'s Darkest Crime Drama
+
+TV News, Criminal Minds, Paramount+ with Showtime, Zach Gilford, A.J. Cook
+
+Thu, 07 May 2026 16:00:13 GMT
+
+https://collider.com/criminal-minds-evolution-season-19-trailer-zach-gilford-paramount-plus/
+
+The official trailer for Criminal Minds: Evolution Season 19 forces the BAU to work with Elias Voit to catch a sinister copycat. Watch it here!
+---------
+
+# All 11 Characters Confirmed To Return in 'The Pitt' Season 3
+
+TV, The Pitt, HBO Max, Drama, Noah Wyle
+
+Thu, 07 May 2026 15:36:14 GMT
+
+https://collider.com/the-pitt-season-3-confirmed-returning-characters/
+
+The Pitt Season 3 will pick up several months after Season 2's Fourth of July shift, but which doctors will be returning to the HBO Max series?
+---------
+
+# Prime Video Action Thriller 'Citadel' Skyrockets on Streaming After Season 2 Premiere
+
+TV News, Citadel, Hot on Streaming, Prime Video, Action
+
+Thu, 07 May 2026 17:00:19 GMT
+
+https://movieweb.com/citadel-season-2-prime-video-action-hit-streaming-may-2026/
+
+After a three year absence, 'Citadel' is finally back with Season 2 on Prime Video, but was the wait worth it?
+---------
+
+# 10 Classic TV Shows Nobody Wants To See a Remake of
+
+TV Lists
+
+Thu, 07 May 2026 17:00:19 GMT
+
+https://movieweb.com/classic-tv-shows-nobody-wants-remake/
+
+While it's always fun when a show makes a comeback, there are some titles that nobody wants to see a remake of, and we hope the world of TV listens.
+---------
+
+# Introverted Anime Characters That Are Highly Relatable
+
+Movie Lists
+
+Thu, 07 May 2026 17:00:19 GMT
+
+https://movieweb.com/introverted-anime-characters-relatable/
+
+Not all anime characters are outgoing and bold. Here are some introverted characters you may relate to.
+---------
+
+# Netflix's New 'Ghostbusters' Series Adds Dan Aykroyd in an Unexpected Role
+
+Movie News, Ghostbusters, Dan Aykroyd
+
+Thu, 07 May 2026 16:27:58 GMT
+
+https://movieweb.com/netflix-ghostbusters-series-dan-aykroyd/
+
+Dan Aykroyd is finally signing on for the Netflix series, but the 'Ghostbusters' actor is taking on an unexpected role.
+---------
+
+# James Marsden to Lead Apple TV Spy Thriller Series 'Disavowed'
+
+TV News, James Marsden, Apple TV, James Bond, james bond, Action
+
+Thu, 07 May 2026 16:05:16 GMT
+
+https://movieweb.com/disavowed-james-marsden-apple-tv-series/
+
+Apple TV has ordered a new spy thriller series titled 'Disavowed,' with James Marsden set to play the lead role.
+---------
+
+# Netflix’s ‘Stranger Things: Tales from ‘85’ Set a Franchise Record
+
+Features, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Thu, 07 May 2026 16:00:18 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-netflix-record/
+
+'Stranger Things: Tales from '85,' the spin-off series of Netflix's 'Stranger Things,'
+---------
+
+# Every Taylor Sheridan Movie and TV Series in Development
+
+TV Shows, Taylor Sheridan, Marshals, The Madison, Dutton Ranch, Landman, Mayor of Kingstown
+
+Thu, 07 May 2026 16:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-upcoming-tv-shows-movies/
+
+With the massively successful 'Yellowstone' universe continuing to grow, here's every tv show and movie Taylor Sheridan has in the works.
+---------
+
+# 'The Boys' Creator Fires Back at Complaints About Season 5 "Filler Episodes"
+
+TV News, The Boys, Eric Kripke
+
+Thu, 07 May 2026 15:57:29 GMT
+
+https://movieweb.com/the-boys-season-5-eric-kripke-filler-episodes/
+
+Creator Eric Kripke addressed fan complaints about 'The Boys' Season 5 having too many filler episodes before the show ends.
+---------
+
+# Amazon's New #1 Global Hit Is "John Wick Meets Rambo" Action Thriller 'Vengeance'
+
+Movie News, Action, Prime Video, Thriller
+
+Thu, 07 May 2026 15:30:19 GMT
+
+https://movieweb.com/vengeance-amazon-stream-may-2026-action/
+
+The action movie could have a major impact on the genre after flying under the radar to find streaming success.
+---------
+
+# 'Daredevil: Born Again' Season 2' Finale's Game-Changing Reveal Explained by Showrunner
+
+TV News, Daredevil, Daredevil: Born Again, MCU
+
+Thu, 07 May 2026 15:09:23 GMT
+
+https://movieweb.com/daredevil-born-again-reveal-season-3/
+
+Matt Murdock’s public unmasking and arrest leave Daredevil: Born Again with no easy reset.
+---------
+
 # Minions & Monsters Final Trailer Released
 
 Movies, Minions & Monsters
