@@ -1,3 +1,377 @@
+# Star Trek Actors “Cried At Every End” Of Strange New Worlds’ Final Season Episodes
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 08 May 2026 02:07:51 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-final-season-cried-emotional-end/
+
+Star Trek: Strange New Worlds' Rebecca Romijn, Ethan Peck, Celia Rose Gooding, and Paul Wesley say tears were shed during the fifth and final season.
+---------
+
+# Godzilla Show's Big Titan Reveal Means The Monsterverse Can Revive A Scrapped KOTM Plan
+
+TV, Monarch: Legacy of Monsters, Monsterverse
+
+Fri, 08 May 2026 02:00:31 GMT
+
+https://screenrant.com/monarch-legacy-monsters-season-2-rodan-temple-kotm-cancelled/
+
+An interesting concept from Godzilla: King of the Monsters was cut from the film, but it could soon find its way into the Monsterverse regardless.
+---------
+
+# Law & Order Season 26 Fate
+
+TV, Law & Order
+
+Fri, 08 May 2026 01:59:46 GMT
+
+https://screenrant.com/law-and-order-season-26-renewal-nbc/
+
+Law & Order's fate has finally been decided by NBC ahead of the company's upfront presentation for its advertisers on May 11, 2026.
+---------
+
+# 6 Comedy Horror Shows Like Apple TV's Widow's Bay
+
+Streaming TV, Widow's Bay
+
+Fri, 08 May 2026 01:38:58 GMT
+
+https://screenrant.com/best-comedy-horror-shows-like-widows-bay/
+
+Nothing is quite like Apple TV's hit new horror-comedy show Widow's Bay, but these six series come pretty close, making them great follow-ups.
+---------
+
+# Marvel Officially Unveils Iconic Villain’s Redesign For Daredevil’s New Appearance
+
+Comics, Daredevil, Marvel
+
+Fri, 08 May 2026 01:18:42 GMT
+
+https://screenrant.com/daredevil-owl-villain-redesign/
+
+Daredevil is enjoying a brand-new comic book run just as the second season of Born Again Season 2 ends, offering both familiarity and twists.
+---------
+
+# HBO's 10/10 Superhero Show Makes The Boys Look Tame
+
+Classic TV, Masked Recs
+
+Fri, 08 May 2026 01:15:20 GMT
+
+https://screenrant.com/watchmen-hbo-show-makes-the-boys-look-tame/
+
+HBO's own comic book series, Watchmen, is so subversive and out there that it makes The Boys look like a traditional superhero show by comparison.
+---------
+
+# Every Daredevil Season, Ranked (Including Born Again)
+
+Streaming TV, Daredevil, Daredevil: Born Again
+
+Fri, 08 May 2026 01:00:20 GMT
+
+https://screenrant.com/every-daredevil-season-ranked-netflix-born-again/
+
+Between the original series on Netflix and the Born Again reboot on Disney+, here's every season of Daredevil, ranked from worst to best.
+---------
+
+# 10 Strongest One Piece Characters From The Elbaph Arc
+
+Anime, One Piece
+
+Fri, 08 May 2026 01:00:20 GMT
+
+https://screenrant.com/one-piece-strongest-characters-elbaph-arc/
+
+The Elbaph war is finally showing what top-tier power looks like. See where Luffy, Loki, and Imu rank in the series' new power hierarchy.
+---------
+
+# Pokémon Officially Returns To Kanto With New Release Coming October 27
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 08 May 2026 01:00:20 GMT
+
+https://screenrant.com/pokemon-adventures-red-blue-kanto-october-2026/
+
+Pokémon is going back to its roots in a new release that celebrates the series start in the Kanto region, with an extra-special memento for fans.
+---------
+
+# 10 Most Powerful Anime Dads of All Time
+
+Anime, Bleach, One Piece, Naruto, Dragon Ball
+
+Fri, 08 May 2026 02:15:13 GMT
+
+https://www.cbr.com/most-powerful-anime-dads-of-all-time/
+
+Some of the best and worst dads in anime also rank among the most powerful.
+---------
+
+# 5 Weakest Super Saiyans of All Time, Ranked
+
+Anime, Dragon Ball, Super saiyan
+
+Fri, 08 May 2026 02:00:23 GMT
+
+https://www.cbr.com/weakest-dragon-ball-super-saiyans-ranking-list/
+
+Every Super Saiyan is incredibly powerful, but some are much weaker than the best of the best.
+---------
+
+# The 10 Most Exciting Sci-Fi Masterpieces of All Time, Ranked
+
+Movies, Sci-Fi
+
+Fri, 08 May 2026 02:00:23 GMT
+
+https://www.cbr.com/most-exciting-perfect-sci-fi-movies-list/
+
+Promising to keep you on the edge of your seat, these cinematic action-packed science fiction masterpieces are essential viewing for every sci-fi fan.
+---------
+
+# 10 Most Universally Beloved Anime Masterpieces of the Last 6 Years
+
+Anime, Frieren: Beyond Journey's End, Jujutsu Kaisen
+
+Fri, 08 May 2026 01:45:12 GMT
+
+https://www.cbr.com/most-universally-beloved-anime-masterpieces-2020s/
+
+The 2020s have already gifted fans a number of near-perfect anime masterpieces everybody loves.
+---------
+
+# 10 Best Shonen Anime Arcs of All Time
+
+Anime
+
+Fri, 08 May 2026 01:25:13 GMT
+
+https://www.cbr.com/official-best-shonen-anime-arcs-of-all-time/
+
+From Naruto to Hunter X Hunter, these Shonen arcs are the best in all of anime.
+---------
+
+# 20 Best Korean Action Movies, Ranked
+
+Movies, Action Movie, Korea, Thriller, movie list, Train to Busan, Oldboy, Joint Security Area, I Saw the Devil, The Good, The Bad, The Weird
+
+Fri, 08 May 2026 01:00:13 GMT
+
+https://www.cbr.com/best-korean-action-movies-ranked/
+
+Korea has made huge strides in cinema and has created some outstanding action movies like Oldboy and The Man from Nowhere.
+---------
+
+# 10 Best Chase Cards in Pokémon TCG: Perfect Order
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game
+
+Fri, 08 May 2026 00:45:13 GMT
+
+https://www.cbr.com/best-chase-cards-pokmon-tcg-perfect-order/
+
+For players and collectors alike, these are the chase cards in Perfect Order that Pokémon TCG fans need.
+---------
+
+# My Hero Academia: Class 1-A Officially Ranked
+
+Anime, My Hero Academia
+
+Fri, 08 May 2026 00:30:13 GMT
+
+https://www.cbr.com/my-hero-academia-class-1-a-ranked/
+
+We’re going to rank all of Class 1A from My Hero Academia, from those that need to work harder to those most likely to make a name for themselves.
+---------
+
+# The Vampire Western Classic Ravenous is Nearly Perfect
+
+Movies, Ravenous
+
+Fri, 08 May 2026 00:30:12 GMT
+
+https://www.cbr.com/best-vampire-western-ravenous/
+
+Roger Ebert was always one to identify a great cult classic when he saw one, and in 1999 he found a nearly perfect vampire Western.
+---------
+
+# HBO's The Outsider Is One of the Best Stephen King Adaptations
+
+TV, hbo, Stephen King, The Outsider
+
+Fri, 08 May 2026 00:30:12 GMT
+
+https://www.cbr.com/stephen-king-the-outsider-best-adaptation/
+
+Stephen King has been a master of horror for decades, but only one HBO show perfectly captured what makes his stories both deep and terrifying.
+---------
+
+# 'Hacks' Hannah Einbinder and Jean Smart Explain How Episode 7 Puts Deborah at the "Mercy" of Ava
+
+TV, Hannah Einbinder, Hacks, Jean Smart, HBO Max
+
+Fri, 08 May 2026 02:15:13 GMT
+
+https://collider.com/hacks-season-5-episode-7-hannah-einbinder-jean-smart-interview/
+
+Hannah Einbinder and Jean Smart also discuss what they've learned from each other and how much Episode 7 tests Ava and Deborah.
+---------
+
+# Disney's 3-Part Sci-Fi Spin-Off With Near-Perfect RT Score Quietly Returns to Streaming Charts
+
+TV News, The Mandalorian, The Mandalorian and Grogu, Disney+, Star Wars
+
+Fri, 08 May 2026 02:00:24 GMT
+
+https://collider.com/the-mandalorian-disney-star-wars-series-streaming-success-may-2026/
+
+As The Mandalorian and Grogu's theatrical release approaches, fans are revisiting the Disney+ series that started it all.
+---------
+
+# ‘Mortal Kombat II’ Officially Breaks a Decade-Long Franchise Streak Before May 8 Release
+
+Movie News, Mortal Kombat, Mortal Kombat II, Rotten Tomatoes
+
+Fri, 08 May 2026 01:31:13 GMT
+
+https://collider.com/mortal-kombat-2-fantasy-sequel-rotten-tomatoes-score-is-it-good/
+
+The highly anticipated Mortal Kombat II has received a surprising critics' score on Rotten Tomatoes, breaking a decades-long streak for the franchise.
+---------
+
+# 7 Best New Movies on HBO Max in May 2026
+
+Movie, HBO Max, Greenland 2: Migration, The Moment, Lurker
+
+Fri, 08 May 2026 01:25:13 GMT
+
+https://collider.com/best-new-movies-hbo-max-may-2026/
+
+Greenland 2: Migration, Lurker, Tomb Raider, A Complete Unknown, and more make up our list of the best new movies on HBO Max in May 2026.
+---------
+
+# 8 Years Later, One of the Most Divisive Sci-Fi Reboots of All Time Is Officially Taking Over the World
+
+Movie News, The Predator, Sci-Fi, Horror, Tubi
+
+Fri, 08 May 2026 01:00:13 GMT
+
+https://collider.com/sci-fi-reboot-the-predator-free-streaming-success-tubi-may-2026/
+
+8 years later, the most hated Predator movie is a free streaming hit after the franchise's recent resurgence.
+---------
+
+# Before John Wick Took Over Hollywood, Denzel Washington Built This Brutal Crime Thriller Franchise
+
+Movie News, The Equalizer, Denzel Washington, Antoine Fuqua, Tubi
+
+Fri, 08 May 2026 00:45:14 GMT
+
+https://collider.com/denzel-washington-crime-thriller-franchise-the-equalizer-free-streaming-tubi-june-2026/
+
+Denzel Washington goes full-on John Wick-mode in his massive franchise-starter that’s on its way to a free streamer. Find out more here.
+---------
+
+# Bruce Willis' Forgotten 97-Minute Actioner Smashes Tom Cruise's Cinema-Saving Masterpiece
+
+Movie News, Bruce Willis, Gasoline Alley, Top Gun: Maverick, Paramount Plus
+
+Fri, 08 May 2026 00:30:13 GMT
+
+https://collider.com/bruce-willis-crime-thriller-gasoline-alley-overtakes-tom-cruise-top-gun-maverick-streaming-success-paramount-plus-may-2026/
+
+Tom Cruise's Top Gun: Maverick has found a surprising rival in Bruce Willis' forgotten 2022 crime thriller.
+---------
+
+# ‘John Wick’ Meets ‘Black Swan’ in 2025’s Brutal Action Spin-Off Now Streaming
+
+Movie News, John Wick, Action, Ana De Armas, From the World of John Wick: Ballerina
+
+Fri, 08 May 2026 00:15:13 GMT
+
+https://collider.com/ana-de-armas-john-wick-action-spin-off-ballerina-streaming-success-hbo-max-may-2026-black-swan/
+
+Ballerina, the Ana de Armas-led John Wick spin-off, is now streaming after expanding the assassin franchise. Find out more here.
+---------
+
+# 29 Years Later, This Beloved Superhero Classic Is Quietly Taking Over Streaming Charts
+
+TV Features, X-Men, X-Men: The Animated Series, X-Men '97, Marvel Studios
+
+Fri, 08 May 2026 00:13:13 GMT
+
+https://collider.com/x-men-the-animated-series-streaming-charts/
+
+X-Men: The Animated Series sparked a multimedia revolution for Marvel and paved the way for the MCU with its sophisticated long-form storytelling.
+---------
+
+# 'The Batman: Part 2' Officially Reveals First Look at Robert Pattinson's Long-Awaited Return
+
+Movie News, The Batman Part II, The Batman, Matt Reeves, Robert Pattinson
+
+Fri, 08 May 2026 00:12:54 GMT
+
+https://collider.com/the-batman-part-2-first-look-image-batmobile-snowy-gotham-city-matt-reeves/
+
+Matt Reeves has shared the first official look at The Batman: Part 2, showing the Batmobile in a snowy Gotham City. See it here!
+---------
+
+# The 20 Best $1 Billion Movies, Ranked
+
+Movie Lists, Titanic
+
+Fri, 08 May 2026 02:00:29 GMT
+
+https://movieweb.com/best-one-billion-movies-ranked/
+
+60 films have grossed the $1 billion worldwide box office milestone, and these 20 films stand as the best of the best.
+---------
+
+# Golden Globes Introduce New Rules to Address AI Use in TV & Film
+
+Movie News, Golden Globes
+
+Fri, 08 May 2026 01:24:37 GMT
+
+https://movieweb.com/golden-globes-rule-changes-2026/
+
+The Golden Globes unveiled new rules pertaining to the use of artificial intelligence in TV shows and movies.
+---------
+
+# 'The Death of Sherlock Holmes' Set to Star Rafe Spall
+
+TV News, Sherlock Holmes, Rafe Spall
+
+Fri, 08 May 2026 00:53:42 GMT
+
+https://movieweb.com/sherlock-holmes-reboot-rafe-spall/
+
+The series is currently filming and is set to premiere sometime in 2027.
+---------
+
+# Netflix's Realistic 'The Handmaid's Tale' Replacement 'Unchosen' Is a Major Streaming Success
+
+TV News, Unchosen, Netflix, Hot on Streaming, The Handmaid's Tale
+
+Fri, 08 May 2026 00:00:18 GMT
+
+https://movieweb.com/unchosen-handmaids-tale-netflix-streaming-success-may-2026/
+
+Netflix has the perfect thriller for 'The Handmaid's Tale' fans, called 'Unchosen,' and it's a major streaming success.
+---------
+
+# 'Landman': Taylor Sheridan's 2-Part Masterpiece Is Changing Hollywood's Casting Culture
+
+Features, Landman
+
+Fri, 08 May 2026 00:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-landman-casting-strategy/
+
+Taylor Sheridan's 'Landman' has brought back many actors who were considered "washed up," while also keeping a vibrant young cast.
+---------
+
 # La Brea's 8 Biggest Character Deaths (& How They Die)
 
 Network TV, La Brea
