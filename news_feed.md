@@ -1,3 +1,256 @@
+# New Zelda: Ocarina Of Time Release Confirmed For May 21
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Fri, 08 May 2026 04:01:23 GMT
+
+https://screenrant.com/zelda-ocarina-time-book-echoes-hyrule-may-21/
+
+Ocarina of Time is having a moment this year, as it's one of the most highlighted aspects of the 40th anniversary of The Legend of Zelda.
+---------
+
+# 7 Sci-Fi Books That Need Apple TV Adaptations ASAP
+
+Streaming TV, Apple TV
+
+Fri, 08 May 2026 03:48:52 GMT
+
+https://screenrant.com/books-need-apple-tv-adaptations/
+
+Apple TV is a master at bringing sci-fi books to the screen, and these seven titles are desperately in need of an epic adaptation.
+---------
+
+# Prime Video’s 13-Part Thriller Takes 24’s Premise, But Gives It A Game-Changing Double Meaning
+
+Streaming TV, Countdown, 24
+
+Fri, 08 May 2026 03:13:26 GMT
+
+https://screenrant.com/prime-video-countdown-24-show-premise-double-meaning/
+
+24 is one of the greatest action thriller TV shows of all time, so it's no wonder that Amazon Prime's new series draws notable inspiration from it.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2's Story Is Doubling Down On Biggest Difference From GOT & HOTD, Confirms Creator
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Fri, 08 May 2026 03:07:09 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-quieter-smaller-story-ira-parker/
+
+"If it ain't broke, don't fix it" is A Knight of the Seven Kingdom's motto as season 2  plans to continue and even exceed what made season 1 a hit.
+---------
+
+# Final Fantasy 17 Setting Leaves Gamers Torn
+
+Gaming, Final Fantasy, Final Fantasy 16, Final Fantasy 15
+
+Fri, 08 May 2026 03:00:20 GMT
+
+https://screenrant.com/final-fantasy-17-setting-gamer-reactions-speculation/
+
+Where will Final Fantasy take us next? Final Fantasy 17 has plenty of potential to deliver something special.
+---------
+
+# Star Wars’ Andy Serkis Explains His Concerns About Joining Andor
+
+TV, Andor, Andy Serkis, Star Wars
+
+Fri, 08 May 2026 02:56:12 GMT
+
+https://screenrant.com/star-wars-andor-andy-serkis-concerns/
+
+Andy Serkis starred as Kino Loy in Disney+'s Andor season 1, but the actor was initially worried when he was offered the iconic role.
+---------
+
+# Moon Knight Star Artist Devmalya Pramanik Explains His Artistic Approach
+
+Comics, Moon Knight
+
+Fri, 08 May 2026 03:59:27 GMT
+
+https://www.cbr.com/moon-knight-devmalya-pramanik-marvel-interview/
+
+In a CBR exclusive interview with star Marc Spector: Moon Knight artist, Devmalya Pramanik, we discuss his background and his artistic approach
+---------
+
+# 10 Weakest Dragon Ball Characters With Overpowered Techniques
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Fri, 08 May 2026 03:45:14 GMT
+
+https://www.cbr.com/weakest-dragon-ball-characters-with-overpowered-techniques/
+
+Dragon Ball occasionally features weaker characters that still possess powerful techniques that can do unfathomable damage in the right context.
+---------
+
+# The Bear's Innovative Prequel Episode Could Start a Trend
+
+TV, The Bear, Hulu
+
+Fri, 08 May 2026 03:30:14 GMT
+
+https://www.cbr.com/hulu-the-bear-gary-prequel-episode-trend/
+
+Hulu's The Bear surprised and delighted viewers with an unexpected prequel episode, and this could start a trend.
+---------
+
+# PlayStation Plus Subscribers Can Grab Wuchang: Fallen Feathers for Free
+
+Games, PlayStation 5
+
+Fri, 08 May 2026 03:18:42 GMT
+
+https://www.cbr.com/wuchang-fallen-feathers-free-playstation-plus-may-2026/
+
+Last year's Soulslike hit is available for free all month for PS Plus subscribers.
+---------
+
+# 10 Best Game Boy Advance Games of All Time
+
+Games, Nintendo, Video Games, The Legend of Zelda, Final Fantasy
+
+Fri, 08 May 2026 03:15:13 GMT
+
+https://www.cbr.com/official-best-game-boy-advance-games-of-all-time/
+
+The greatest GBA games include titles from the Super Mario, Zelda, and Final Fantasy series.
+---------
+
+# Netflix Exec Confirms Major Shift in Streamer's Global Anime Strategy
+
+Anime, Netflix, mappa, Cosmic Princess Kaguya!
+
+Fri, 08 May 2026 03:00:12 GMT
+
+https://www.cbr.com/netflix-old-anime-strategy-leave/
+
+Netflix content director Hiroshi Yamano breaks down how the streaming service is doing more than ever to expand anime's presence worldwide.
+---------
+
+# Marvel Releases Official Preview of Brand New Day
+
+Comics, Spider-Man
+
+Fri, 08 May 2026 02:49:52 GMT
+
+https://www.cbr.com/marvel-releases-official-preview-brand-new-day/
+
+In a CBR exclusive preview of next week's Spectacular Spider-Man: Brand New Day #1, see how Spider-Man's return to his iconic era goes
+---------
+
+# 7 Forgotten '90s Anime Series That Have Aged Like Fine Wine
+
+Anime, Outlaw Star, Now and Then, Here and There
+
+Fri, 08 May 2026 02:45:13 GMT
+
+https://www.cbr.com/forgotten-90s-anime-series-aged-like-fine-wine/
+
+Time may have forgotten these '90s anime, but they've actually aged better than some of the most well-known series.
+---------
+
+# 10 Masterpiece Buddy Cop Movies That Are Perfect From Start To Finish
+
+Movies, Comedy, The Other Guys, Beverly Hills Cop
+
+Fri, 08 May 2026 02:45:13 GMT
+
+https://www.cbr.com/perfect-buddy-cop-movies-list/
+
+Since the early 80s, the buddy cop genre has given audiences some of the most entertaining comedy-thrillers ever made.
+---------
+
+# Resident Evil Requiem Officially Gets Free New DLC, Available Now
+
+Games, Resident Evil
+
+Fri, 08 May 2026 02:42:49 GMT
+
+https://www.cbr.com/resident-evil-requiem-dlc-leon-must-die-forever/
+
+Leon Kennedy is put to the test in the new DLC that's now available to play for free on Resident Evil Requiem.
+---------
+
+# 6 Near-Perfect on Rotten Tomatoes Movies to Watch This Weekend
+
+Movie, Rotten Tomatoes, Toy Story, Parasite, Inside Out
+
+Fri, 08 May 2026 04:51:13 GMT
+
+https://collider.com/near-perfect-rotten-tomatoes-movies-watch-weekend-may-8-2026/
+
+The Truman Show, The Social Network, Toy Story, Parasite, and more make up our list of near-perfect on Rotten Tomatoes movies to watch this weekend.
+---------
+
+# 8 Forgotten Sitcoms From the 2000s That Have Aged Like Fine Wine
+
+TV, Sitcom, Malcolm in the Middle, The Middle, George Lopez
+
+Fri, 08 May 2026 04:07:12 GMT
+
+https://collider.com/forgotten-sitcoms-2000s-aged-like-fine-wine/
+
+Time has been extremely kind to forgotten 2000s sitcoms like The Middle, George Lopez, and The IT Crowd, with their reputation improving with age.
+---------
+
+# Prime Video's Fantasy Saga Ridley Scott Called "So Brilliant" Is a Hidden Gem
+
+Music Features, Ridley Scott, Quest For Fire, Ron Perlman, The Dog Stars
+
+Fri, 08 May 2026 03:56:42 GMT
+
+https://collider.com/ridley-scott-quest-for-fire-movie-brilliant-streaming-prime-video/
+
+The fantasy adventure movie, Quest for Fire, is one of Ridley Scott's favorite films, according to a recent Letterboxd interview.
+---------
+
+# The Sci-Fi Classic Christopher Nolan Calls "Pure Cinema," But Still Doesn't Understand
+
+Movie Features, Christopher Nolan, 2001: A Space Odyssey, Stanley Kubrick, Sci-Fi
+
+Fri, 08 May 2026 03:22:47 GMT
+
+https://collider.com/christopher-nolan-doesnt-understand-2001-a-space-odyssey-pure-cinema/
+
+Stanley Kubrick's 2001: A Space Odyssey is considered a seminal sci-fi classic, inspiring generations of filmmakers, including Christopher Nolan.
+---------
+
+# Netflix’s Fan-Favorite Spy Thriller Is Ending After 4 Seasons, but There’s a Catch
+
+TV Features, The Night Agent, Netflix, Gabriel Basso, Shawn Ryan
+
+Fri, 08 May 2026 03:15:13 GMT
+
+https://collider.com/the-night-agent-netflix-ending-season-4/
+
+The Night Agent's Season 4 announcement hints at a carefully planned series finale, bringing the spy thriller to a satisfying end.
+---------
+
+# 10 Most Perfect Movies of the Last 40 Years, Ranked
+
+Movie, The Lord of the Rings: The Return of the King, Aftersun, Schindler's List, City of God
+
+Fri, 08 May 2026 03:03:14 GMT
+
+https://collider.com/most-perfect-movies-last-40-years-ranked/
+
+The Lord of the Rings: The Return of the King, Aftersun, and City of God are all among the best, most perfect movies released over the last 40 years.
+---------
+
+# Prime Video’s Best ‘Reacher’ Alternative Officially Returns This Month
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Prime Video, Reacher, John Krasinski
+
+Fri, 08 May 2026 02:30:13 GMT
+
+https://collider.com/prime-video-reacher-alternative-jack-ryan-ghost-war-release-date-may-20-2026/
+
+Prime Video's original Reacher alternative, Jack Ryan, officially returns this month with a new sequel film, Ghost War.
+---------
+
 # Star Trek Actors “Cried At Every End” Of Strange New Worlds’ Final Season Episodes
 
 TV, Star Trek, Star Trek: Strange New Worlds
