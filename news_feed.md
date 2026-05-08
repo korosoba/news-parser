@@ -1,3 +1,212 @@
+# Ryan Reynolds' The Proposal Officially Releases On Netflix After Making 8x Its Budget
+
+Movies, Masked Recs, Quiz CV
+
+Fri, 08 May 2026 22:39:30 GMT
+
+https://screenrant.com/ryan-reynolds-the-proposal-netflix-may-2026/
+
+Ryan Reynolds' new arrival on Netflix is a movie that became a global smash hit, making 8x its budget in theaters, and it features another major star.
+---------
+
+# Amazon's Upcoming Cyberpunk Show Will Rescue One Of The Greatest American Sci-Fi Franchises
+
+Streaming TV, Masked Recs
+
+Fri, 08 May 2026 22:30:21 GMT
+
+https://screenrant.com/blade-runner-2099-amazon-cyberpunk-show-rescue-franchise/
+
+Amazon is bringing Ridley Scott's cyberpunk masterpiece to TV with Blade Runner 2099, and it'll finally save this iconic but troubled franchise.
+---------
+
+# Chainsaw Man Studio's Underrated Isekai Anime Gem Is Still The Genre's Biggest Evolution In 14 Years
+
+Anime, Chainsaw Man
+
+Fri, 08 May 2026 22:30:21 GMT
+
+https://screenrant.com/campfire-cooking-another-world-isekai-anime-biggest-evolution/
+
+Isekai has become one of the most popular genres in anime, but there's only one isekai franchise that truly takes the genre to another level.
+---------
+
+# Invincible Vs' Aleks Le Reveals Steven Yeun's Heartwarming Response To Casting News
+
+Gaming, Invincible
+
+Fri, 08 May 2026 22:30:11 GMT
+
+https://screenrant.com/invincible-versus-aleks-le-steven-yeun-blessing/
+
+Exclusive: Invincible Vs star Aleks Le recently spoke with ScreenRant about his role as Mark Grayson and Steven Yeun's response to his casting.
+---------
+
+# Citadel Season 2: Prime Video's Spy Thriller Returns With High Audience Approval
+
+TV, Masked Recs
+
+Fri, 08 May 2026 22:06:53 GMT
+
+https://screenrant.com/citadel-season-2-audience-rotten-tomatoes-score-debut/
+
+Citadel, Prime Video's espionage series starring Richard Madden and Priyanka Chopra Jonas, returns for a second season with strong audience approval on Rotten Tomatoes, joining the streamer's catalog of crime dramas and thrillers.
+---------
+
+# Zelda Meets Chrono Trigger In Gorgeous New RPG You Can Try Free Now
+
+Gaming, RPG, Indie, PC, Chrono Trigger, The Legend of Zelda
+
+Fri, 08 May 2026 22:00:20 GMT
+
+https://screenrant.com/alabaster-dawn-free-demo-zelda-chrono-trigger-vibes/
+
+A gorgeous new RPG inspired by Zelda and Chrono Trigger has just been released, and you can check it out for free via a demo available right now.
+---------
+
+# Netflix’s Official 2-Part Answer To Lord of the Rings Is Still The Decade’s Best Fantasy Series
+
+Anime, Frieren: Beyond Journey's End, The Lord of the Rings, Netflix
+
+Fri, 08 May 2026 22:00:20 GMT
+
+https://screenrant.com/frieren-netflix-official-lord-of-the-rings-best-fantasy/
+
+Netflix's 2-part fantasy show is the perfect next-watch for The Lord of the Rings fans looking for a new series to binge-watch.
+---------
+
+# 10 Top Fighters In The Game Of Thrones Universe
+
+Streaming TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Fri, 08 May 2026 22:00:20 GMT
+
+https://screenrant.com/game-of-thrones-shows-best-fighters/
+
+There is no shortage of savage killers throughout HBO's hit fantasy franchise, but these ten warriors make fighting look like an art form.
+---------
+
+# After 1-Year Delay, Pinocchio Horror Slasher Officially Sets Release Date
+
+Movies, Horror, Pinocchio: Unstrung
+
+Fri, 08 May 2026 22:39:32 GMT
+
+https://www.cbr.com/pinocchio-unstrung-horror-movie-release-date/
+
+The Pinocchio horror parody film featuring Freddy Krueger actor Robert Englund is finally heading to theaters.
+---------
+
+# Official Jujutsu Kaisen and Marvel Comics Crossover Stuns Fans
+
+Comics, Marvel, Jujutsu Kaisen
+
+Fri, 08 May 2026 22:30:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-and-marvel-comics-officially-cross-over-yes-really/
+
+Is Gojo finally coming back?
+---------
+
+# 10 Modern Pokémon Cards Even Better Than '90s Charizard
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game
+
+Fri, 08 May 2026 22:15:12 GMT
+
+https://www.cbr.com/modern-pokmon-cards-better-than-90s-charizard/
+
+No Pokémon card is more iconic than '90s Charizard, but there are some modern TCG staples that put it to shame.
+---------
+
+# Evil Dead burn Marks a Return to Action for the Horror Franchise
+
+Movies, Evil Dead, Evil Dead Burn
+
+Fri, 08 May 2026 22:00:13 GMT
+
+https://www.cbr.com/evil-dead-burn-new-era-genre-change/
+
+Evil Dead Burn is coming, and with it is the start of a new era that hasn't been seen in the franchise for over a decade.
+---------
+
+# 10 Sci-Fi Shows That Will Keep You Hooked From Start to Finish
+
+TV, Sci-Fi, Severance, Lost, Dark
+
+Fri, 08 May 2026 22:44:12 GMT
+
+https://collider.com/sci-fi-shows-keep-you-hooked-start-to-finish/
+
+Discover the most captivating sci-fi shows that will keep you glued to your screen from beginning to end, including Lost, Severance, and Dark.
+---------
+
+# Disney+ Just Got the 4.1 Million-View Sci-Fi Streaming Hit It Needed
+
+TV Features, Star Wars: Maul - Shadow Lord, Disney+, Sam Witwer, Star Wars: The Clone Wars
+
+Fri, 08 May 2026 22:35:12 GMT
+
+https://collider.com/disney-plus-star-wars-maul-shadow-lord-sci-fi-streaming-hit/
+
+Star Wars: Maul - Shadow Lord isn't just a big hit for the Star Wars franchise but also for Disney+.
+---------
+
+# 'Reacher' Meets 'The Equalizer' in Tom Cruise's Bone-Crunching Action Thriller Streaming Now
+
+Movie News, Jack Reacher, Jack Reacher: Never Go Back, The Equalizer, Reacher
+
+Fri, 08 May 2026 22:30:14 GMT
+
+https://collider.com/jack-reacher-tom-cruise-action-thriller-streaming-success-paramount-plus-may-2026/
+
+Tom Cruise’s Jack Reacher is streaming now, giving fans another version of Lee Child’s bone-crunching hero.
+---------
+
+# Netflix’s Most Addictive Thriller Is About To Get Even More Unhinged [Exclusive]
+
+TV News, The Hunting Wives, Netflix, Thriller, Brittany Snow
+
+Fri, 08 May 2026 22:15:13 GMT
+
+https://collider.com/the-hunting-wives-season-2-salazar-expanded-role-karen-rodriguez-explains/
+
+The Hunting Wives star Karen Rodriguez opens up on Salazar's larger role in Season 2 while providing an update on the hit Netflix series.
+---------
+
+# Win Tickets to Our Early 'Passenger' Screening and Q&A
+
+Exclusives, Screening, Passenger, Paramount Pictures
+
+Fri, 08 May 2026 22:05:27 GMT
+
+https://collider.com/passenger-screening-zach-donohue-gary-dauberman-walter-hamada-q-and-a/
+
+Details on how you can enter for your chance to win free tickets to our early screening of Passenger and Q&amp;A with the writer and producers.
+---------
+
+# New James Bond Project Coming This Month Is Already Earning Sequel Buzz
+
+Movie News, James Bond, Daniel Craig, Pierce Brosnan, No Time to Die
+
+Fri, 08 May 2026 22:00:13 GMT
+
+https://collider.com/james-bond-007-first-light-sequel-update-fan-response/
+
+The new James Bond project launching this month, 007 First Light, may be just the first, as a potential sequel is already being discussed.
+---------
+
+# First Teaser for 'Pacifico' Looks Like 'The Descent' Meets 'Aliens'
+
+Movie News, Horror
+
+Fri, 08 May 2026 22:12:17 GMT
+
+https://movieweb.com/pacifico-horror-movie-teaser-trailer/
+
+The new movie is one of the biggest Spanish-language sci-fi films of all time.
+---------
+
 # Landman Season 3's Release Update Explains Taylor Sheridan's Winning TV Formula
 
 Streaming TV, Landman, Taylor Sheridan
