@@ -1,3 +1,344 @@
+# Landman Season 3's Release Update Explains Taylor Sheridan's Winning TV Formula
+
+Streaming TV, Landman, Taylor Sheridan
+
+Fri, 08 May 2026 21:45:18 GMT
+
+https://screenrant.com/landman-season-3-update-filming-production-taylor-sheridan-fast-release/
+
+Discover how Landman's speedy season releases, like most of Taylor Sheridan's shows, contribute to the writer's success and keep viewers engaged in the streaming era.
+---------
+
+# The Expanse Creators Tease Unadaptable New Sci-Fi Series Coming To TV Soon
+
+TV, The Expanse
+
+Fri, 08 May 2026 21:37:22 GMT
+
+https://screenrant.com/captives-war-series-sci-fi-show-adaptation-challenges-expanse-creators/
+
+Four years after The Expanse ended, the authors of the original books are working on a new adaptation, which is proving to be very challenging.
+---------
+
+# Paramount+ Binge Guide (May 8–10): Taylor Sheridan’s #1 Hit Is Dethroned Globally
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Fri, 08 May 2026 21:37:20 GMT
+
+https://screenrant.com/paramount-plus-binge-guide-weekend-watch/
+
+Paramount+ has several trending hits heading into the weekend of May 8–10, 2026, but these three elite shows are among the very best to binge tonight.
+---------
+
+# Apple TV's 8-Part 'Severance Meets Pluribus' Series Was Designed To Be Rewatched
+
+Streaming TV, Masked Recs
+
+Fri, 08 May 2026 21:30:19 GMT
+
+https://screenrant.com/sugar-apple-tv-detective-sci-fi-show-rewatchable/
+
+Apple TV filled its twisty detective show Sugar with all kinds of clues and foreshadowing, so it's worth rewatching to see all the things you missed.
+---------
+
+# How Mortal Kombat 2 Gives Iconic Villain More Depth Than Previous Adaptations Explained By Star
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Fri, 08 May 2026 21:07:28 GMT
+
+https://screenrant.com/mortal-kombat-2-shao-kahn-more-depth-comparisons-martyn-ford/
+
+EXCLUSIVE: Actor Marytn Ford explains how his version of Shao Kahn in Mortal Kombat II is different than previous renditions of the character.
+---------
+
+# Baldur's Gate 3 Officially Adds A Ton Of New Free Content, Available Now
+
+Gaming, Baldur's Gate 3, Triple-A Games
+
+Fri, 08 May 2026 21:00:21 GMT
+
+https://screenrant.com/baldurs-gate-3-free-content-may-2026/
+
+It's hard to believe that Baldur's Gate 3 came out nearly three years ago given how popular it is, and now it's getting even more content.
+---------
+
+# FX's 6-Part 'Reacher Meets Yellowstone' Series Is Still One Of The Greatest Westerns Of The Century
+
+Classic TV, Masked Recs
+
+Fri, 08 May 2026 21:00:21 GMT
+
+https://screenrant.com/justified-reacher-meets-yellowstone-greatest-western-century/
+
+It's hard to think of a show that delivers more thrills than Reacher and Yellowstone, but the 21st century's greatest Western has the best of both.
+---------
+
+# All 12 Fights In Mortal Kombat 2, Ranked Worst To Best
+
+New Movies, Mortal Kombat II
+
+Fri, 08 May 2026 21:00:21 GMT
+
+https://screenrant.com/mortal-kombat-2-movie-fights-ranked/
+
+Mortal Kombat II includes several anticipated head-to-head fights between characters from the video game franchise. Which one was the best?
+---------
+
+# Shawn Levy Confirms New Netflix Sci-Fi Movie
+
+Movies, Shawn Levy, Netflix
+
+Fri, 08 May 2026 20:52:15 GMT
+
+https://screenrant.com/shawn-levy-netflix-original-somewhere-out-there/
+
+Deadpool & Wolverine director, Shawn Levy, is directing and producing an original science fiction film for Netflix.
+---------
+
+# Adventure Time Is Officially Doing Its First Pride Special, and We Have the Exclusive Preview
+
+Comics, Adventure Time
+
+Fri, 08 May 2026 21:45:36 GMT
+
+https://www.cbr.com/adventure-time-pride-special-exclusive-preview/
+
+In a CBR exclusive preview of Adventure Time Pride Special: PB & Marcy's Infinite Mixtape #1, see the fan-favorite couple celebrate their anniversary
+---------
+
+# 7 Near-Perfect PS1 Games No One Remembers
+
+Games, PlayStation (Original), retro games
+
+Fri, 08 May 2026 21:45:12 GMT
+
+https://www.cbr.com/near-perfect-ps1-games-no-one-remembers-list/
+
+PS1 games like Vandal Hearts have been completely overlooked by retro game fans.
+---------
+
+# 10 Best Female Characters in Invincible, Ranked
+
+TV, Invincible (TV Show)
+
+Fri, 08 May 2026 21:30:13 GMT
+
+https://www.cbr.com/best-female-characters-invincible/
+
+Invincible features a stellar cast of female characters, including several who steal the spotlight in multiple episodes.
+---------
+
+# Elle Fanning's Underrated Disney Live-Action Maleficent Is a Streaming Hit
+
+Movies, Maleficent, Disney+, Fantasy
+
+Fri, 08 May 2026 21:30:12 GMT
+
+https://www.cbr.com/elle-fanning-maleficent-disney-live-action-fantasy-success-may-2026/
+
+Elle Fanning's 2014 Disney live-action film Maleficent is finding redemption on streaming 12 years later, despite mixed reviews from critics.
+---------
+
+# Clint Eastwood is Not The Star in 2 of Sergio Leone's Greatest Westerns
+
+Movies, Western
+
+Fri, 08 May 2026 21:30:12 GMT
+
+https://www.cbr.com/lee-van-cleef-real-star-of-clint-eastwood-dollars-trilogy/
+
+Clint Eastwood and Sergio Leone's Dollars Trilogy is a cornerstone of the Western genre, but one actor stole the show completely in 2 of the movies.
+---------
+
+# Project Hail Mary Surpasses The Martian at Global Box Office
+
+Movies, Project Hail Mary, The Martian, Sci-Fi
+
+Fri, 08 May 2026 21:22:54 GMT
+
+https://www.cbr.com/project-hail-mary-beats-the-martian-worldwide-box-office/
+
+Project Hail Mary officially wins the box-office battle against the other Andy Weir movie, The Martian.
+---------
+
+# Peacock's Friday the 13th Prequel Crystal Lake Reveals First Look at Jason
+
+TV, Friday the 13th, Crystal Lake
+
+Fri, 08 May 2026 21:22:39 GMT
+
+https://www.cbr.com/crystal-lake-peacock-first-look-jason-voorhees/
+
+Jason Voorhees has finally resurfaced in a sneak peek at the Crystal Lake prequel series.
+---------
+
+# 10 Isekai Manga That are 10/10
+
+Anime, Manga, Isekai
+
+Fri, 08 May 2026 21:15:12 GMT
+
+https://www.cbr.com/best-isekai-mangas-flawless/
+
+Isekai is more than just the otherworldly journey, following its characters through unexpected change and development.
+---------
+
+# Netflix’s New Fantasy Series Officially Beats Game of Thrones
+
+Anime, Fantasy, One Piece, Game Of Thrones
+
+Fri, 08 May 2026 21:10:13 GMT
+
+https://www.cbr.com/netflix-one-piece-game-of-thrones-best-casting-season-2/
+
+Game of Thrones became one of the biggest fantasy series of all time thanks to its exceptional casting, but a newer show on Netflix has it beat.
+---------
+
+# The 25 Very Best Calvin & Hobbes Quotes
+
+Comics, Calvin and Hobbes
+
+Fri, 08 May 2026 21:00:15 GMT
+
+https://www.cbr.com/best-calvin-hobbes-quotes/
+
+Bill Watterson published thousands of Calvin and Hobbes strips, but some essential quotes stand out. Dust specks and scientific boinks abound.
+---------
+
+# 3 Near-Perfect Prime Video Movies to Watch This Weekend
+
+Movie, Prime Video, Nobody, Sing 2, Civil War
+
+Fri, 08 May 2026 21:48:13 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-may-8/
+
+Sing 2, Nobody, and Civil War make up our list of the best Prime Video movies to watch the weekend of May 8, 2026.
+---------
+
+# ’The Bear’s Jon Bernthal and Ebon Moss-Bachrach Break Down the Most Uncomfortable Scene in “Gary”
+
+Exclusives, The Bear, Ebon Moss-Bachrach, Jon Bernthal, The Punisher: One Last Kill
+
+Fri, 08 May 2026 21:42:37 GMT
+
+https://collider.com/the-bear-gary-flashback-season-5-ebon-moss-bachrach-jon-bernthal/
+
+Jon Bernthal and Ebon Moss-Bachrach discuss The Bear, co-writing the special flashback episode Gary, and that intense moment in the bar.
+---------
+
+# Alan Ritchson Proves He's More Than 'Reacher' in Netflix's Relentless 107-Minute Sci-Fi Thriller
+
+Movie Features, War Machine, Alan Ritchson, Netflix, Sci-Fi
+
+Fri, 08 May 2026 21:35:13 GMT
+
+https://collider.com/alan-ritchson-war-machine-netflix-sci-fi-thriller-streaming-success-may-2026/
+
+Alan Ritchson has become best known for his role in Reacher, though Netflix's sci-fi thriller is proof he can anchor more than the Prime Video hit.
+---------
+
+# Dwayne Johnson's Best Fantasy Epic Is Proving Why Its a Perfect Late Night Watch
+
+Movie News, Rebecca Ferguson, Black Adam, Hercules, Dwayne Johnson
+
+Fri, 08 May 2026 21:30:13 GMT
+
+https://collider.com/hercules-rebecca-ferguson-dwayne-johnson-streaming-netflix-mgm-plus-may-2026/
+
+Hercules, starring Dwayne Johnson and Rebecca Ferguson, is streaming now as the fantasy epic finds new life.
+---------
+
+# James Gunn's 'Superman' Follow-Up Gets a Juicy Update Directly From the Daily Planet [Exclusive]
+
+Movie News, Superman, Man of Tomorrow, Mikaela Hoover, DC Comics
+
+Fri, 08 May 2026 21:15:13 GMT
+
+https://collider.com/superman-sequel-man-of-tomorrow-update-dcu-daily-planet-cat-grant-mikaela-hoover/
+
+Cat Grant actress Mikaela Hoover hints at the potential return of the Daily Planet crew in James Gunn's upcoming Superman film, Man of Tomorrow.
+---------
+
+# Netflix's New Sci-Fi Epic Recruits 'Stranger Things' and Star Wars Director
+
+Movie News, Shawn Levy, Netflix, Science Fiction, Drama
+
+Fri, 08 May 2026 21:12:17 GMT
+
+https://collider.com/star-wars-starfighter-stranger-things-director-shawn-levy-netflix-sci-fi-movie-somewhere-out-there/
+
+Shawn Levy, the director of Stranger Things and the upcoming Star Wars: Starfighter, is reteaming with Netflix for a new sci-fi movie.
+---------
+
+# 'SNL U.K.' Just Did What Everyone Said It Couldn’t
+
+TV Features, Saturday Night Live, Lorne Michaels, Saturday Night Live UK, Tina Fey
+
+Fri, 08 May 2026 21:11:13 GMT
+
+https://collider.com/snl-uk-season-2-renewal-meaning/
+
+SNL UK has officially beaten the odds (and the haters) with a renewal for an even bigger Season 2 on Sky.
+---------
+
+# 10 Near-Perfect Sci-Fi Movies of the Last 6 Years, Ranked
+
+Movie, Science Fiction, The Mitchells vs. the Machines, Tenet, Nope
+
+Fri, 08 May 2026 21:05:14 GMT
+
+https://collider.com/near-perfect-sci-fi-movies-last-6-years-ranked/
+
+From big blockbusters like Tenet to underrated animations like Mars Express, these sci-fi gems are still great even if they aren't exactly perfect.
+---------
+
+# The Best 4-Part Sci-Fi Saga on Apple TV Has Vanished From Streaming Charts
+
+TV News, Silo, Sci-Fi, Rebecca Ferguson, Apple TV
+
+Fri, 08 May 2026 21:00:14 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-saga-silo-apple-tv-streaming-charts-disappearance-may-2026/
+
+Silo has vanished from Apple TV streaming charts, marking a rare quiet moment for Rebecca Ferguson’s sci-fi hit.
+---------
+
+# MCU's Anthony Mackie's Action Crime Thriller 'Triple 9' Is Leaving Free Streaming
+
+Movie News, Triple 9, Tubi, Coming/Leaving Streaming, MCU, Action
+
+Fri, 08 May 2026 21:30:18 GMT
+
+https://movieweb.com/triple-9-action-leaving-streaming-pluto-tv-june-2026/
+
+The new Captain America, Anthony Mackie's crime thriller flop 'Triple 9' is being removed from free streaming on Pluto TV.
+---------
+
+# 'Mortal Kombat II' Ending, Explained: Will Johnny Cage Return in 'Mortal Kombat 3'?
+
+Features, Mortal Kombat II, Mortal Kombat, Action
+
+Fri, 08 May 2026 21:21:18 GMT
+
+https://movieweb.com/mortal-kombat-ii-ending-explained/
+
+Which characters live and die? Is there a post-credit scene? All your burning 'Mortal Kombat II' questions answered.
+---------
+
+# Deathstroke & Bane Team-Up DCU Film Eyeing 'Peacemaker' Director
+
+Movie News, Greg Mottola, Batman, Deathstroke
+
+Fri, 08 May 2026 21:15:47 GMT
+
+https://movieweb.com/deathstoke-bane-batman-greg-mottola-director/
+
+DC Studios's 'Deathstroke and Bane' movie reportedly has one of 'Peacemaker''s directors in mind for the same role.
+---------
+
 # FromSoftware's Elden Ring RPG Follow-Up Leaked, Could Involve Pirates
 
 Gaming, Elden Ring, PC, FromSoftware
