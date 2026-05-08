@@ -1,3 +1,366 @@
+# 3 Best Movies To Watch On Netflix This Weekend (May 9-10)
+
+Movies, Netflix, Recommendation
+
+Fri, 08 May 2026 19:35:15 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-may-9/
+
+Looking for a movie to watch on Netflix this weekend? The streaming service has a new mystery, a wild zombie film, and a powerful drama available.
+---------
+
+# How Mortal Kombat 2 Is Built On Fan Feedback Explained By Director & Cast
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Fri, 08 May 2026 19:30:20 GMT
+
+https://screenrant.com/mortal-kombat-2-fan-feedback-impact-cast-director/
+
+Simon McQuoid and his star-studded Mortal Kombat 2 cast talk the highly-anticipated action sequel and how it was built on fan feedback.
+---------
+
+# Star Wars' Rey Replacement Is Officially Rebuilding The Jedi Order
+
+Streaming TV, Star Wars: Visions, Star Wars, Star Wars: New Jedi Order
+
+Fri, 08 May 2026 19:30:20 GMT
+
+https://screenrant.com/star-wars-lah-kara-rey-replacement-new-jedi-order/
+
+As Rey's announced Star Wars: New Jedi Order movie remains stuck in development limbo, another very similar Star Wars story has emerged on Disney+.
+---------
+
+# DC’s Deathstroke & Bane Movie Reportedly Eyeing Peacemaker Alum As Director
+
+Movies, DC Universe, Deathstroke, Bane
+
+Fri, 08 May 2026 19:22:39 GMT
+
+https://screenrant.com/deathstroke-bane-dc-movie-greg-mottola-direct/
+
+The Deathstroke and Bane movie at DC Studios finally gets a major update as DC Studios is eying one of the Peacemaker directors for the massive gig.
+---------
+
+# Aerion Targaryen's A Knight Of The Seven Kingdoms Return Potential Addressed By Finn Bennett
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Fri, 08 May 2026 19:21:18 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-aerion-targaryen-return-response-finn-bennett/
+
+EXCLUSIVE: Aerion "Brightflame" Targaryen actor Finn Bennett addresses a potential return after A Knight of the Seven Kingdoms season 1.
+---------
+
+# Joachim Trier Is Writing His Next Movie But Renate Reinsve Doesn't Know If She'll Star
+
+Movies, Renate Reinsve
+
+Fri, 08 May 2026 19:09:42 GMT
+
+https://screenrant.com/joachim-trier-next-movie-update-renate-reinsve-reunion-response/
+
+Exclusive: Renate Reinsve offers a small update on Sentimental Value director Joachim Trier's next movie and her own possible involvement.
+---------
+
+# 4-Part Underseen WW2 Series Will Officially Stream In The US For The First Time
+
+TV, Masked Recs
+
+Fri, 08 May 2026 19:05:17 GMT
+
+https://screenrant.com/das-boot-show-streaming-release-date-official/
+
+An underseen four-part World War II series is officially coming to streaming in the United States for the very first time in its history.
+---------
+
+# The New My Little Pony TCG Is A Treat For Fans
+
+Gaming, My Little Pony, tabletop games
+
+Fri, 08 May 2026 19:00:22 GMT
+
+https://screenrant.com/my-little-pony-kayou-2026-tcg-review/
+
+Kayou and Hasbro have released a new My Little Pony TCG into the market, and it's a fun thematic treat for big fans of the series.
+---------
+
+# Remarkably Bright Creatures Ending Explained: Who's Cameron's Dad & What It Means For Tova
+
+Movies, Remarkably Bright Creatures
+
+Fri, 08 May 2026 19:00:22 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-ending-explained/
+
+Remarkably Bright Creatures, the newest adaptation on Netflix, tells a beautiful and relatable story about connection at the Sowell Bay Aquarium.
+---------
+
+# The Boys' 2027 Spinoff Is Hurting Its Final Season
+
+Streaming TV, The Boys
+
+Fri, 08 May 2026 19:00:22 GMT
+
+https://screenrant.com/the-boys-season-5-vought-rising-setup-problem/
+
+The Boys has only two episodes left of its final season, and while still enjoyable, the setup for its 2027 prequel has harmed the story.
+---------
+
+# James Gunn's DCU's Next Batman Movie Eyes Director
+
+Movies, DCU, Deathstroke, Batman
+
+Fri, 08 May 2026 19:23:24 GMT
+
+https://www.cbr.com/dc-deathstroke-bane-movie-director-greg-mottola/
+
+The DCU's next Batman villain showcase may have found its director.
+---------
+
+# 10 Hottest Anime Guys With White Hair
+
+Anime, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba, Naruto
+
+Fri, 08 May 2026 19:15:14 GMT
+
+https://www.cbr.com/hot-anime-guys-white-hair/
+
+The hottest white-haired anime guys in existence woo fans with their personality and looks.
+---------
+
+# Peacock's M.I.A. Debuts Strong on Streaming Despite Mixed Reviews
+
+TV, Peacock, M.I.A.
+
+Fri, 08 May 2026 19:12:42 GMT
+
+https://www.cbr.com/peacock-mia-rotten-tomatoes-score-streaming-success/
+
+Peacock's new crime drama series is a major streaming hit.
+---------
+
+# How Prime Video's The Tick Perfected Superhero Comedy
+
+TV, Prime Video, The Tick, superheroes
+
+Fri, 08 May 2026 19:11:33 GMT
+
+https://www.cbr.com/prime-video-the-tick-great-superhero-comedy/
+
+The Tick's unique blend of satire and action makes it the only superhero comedy to perfectly capture the essence of modern storytelling, as explored in this Prime Video sitcom.
+---------
+
+# Every Fatality in Mortal Kombat 2, Ranked
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Fri, 08 May 2026 19:00:15 GMT
+
+https://www.cbr.com/mortal-kombat-2-best-fatalities-list/
+
+Mortal Kombat is known for its gruesome fatalities and the sequel does not disappoint when delivering these jaw-dropping moments.
+---------
+
+# 8 Classic American TV Shows That Still Hold Up Today
+
+TV, The Fresh Prince of Bel-Air, Cheers, The X-Files
+
+Fri, 08 May 2026 19:00:15 GMT
+
+https://www.cbr.com/classic-american-tv-shows-aged-well-list/
+
+Feeling nostalgic for the good old days of television? These classic American TV shows are just as relevant now as when they came out back then.
+---------
+
+# NBC Order The Rockford Files Reboot Starring David Boreanaz to Series
+
+TV, The Rockford Files, NBC, Crime
+
+Fri, 08 May 2026 18:43:50 GMT
+
+https://www.cbr.com/rockford-files-reboot-ordered-nbc-david-boreanaz/
+
+NBC's Rockford Files reboot, which sees David Boreanaz taking over the iconic PI role, will move forward after a successful pilot.
+---------
+
+# Netflix's Remarkably Bright Creatures Rotten Tomatoes Score Unveiled
+
+Movies, Remarkably Bright Creatures, Rotten Tomatoes
+
+Fri, 08 May 2026 18:36:47 GMT
+
+https://www.cbr.com/netflix-remarkably-bright-creatures-rotten-tomatoes-score/
+
+Netflix has a new star-studded original film, and it's off to a great start.
+---------
+
+# Transformers Revives Original Megatron Design Once Deemed Too Dangerous for Release
+
+Anime, Transformers, merchandise, toys, action figures
+
+Fri, 08 May 2026 18:20:33 GMT
+
+https://www.cbr.com/transformers-yolopark-amk-mini-decepticon-avatar-megatron/
+
+A new BotCon-exclusive model kit for Megatron recreates the Decepticon leader's most controversial, and previously unreleased, action figure.
+---------
+
+# The Audacity Cast on Auditions, AI & Emotional Storylines
+
+TV, The Audacity
+
+Fri, 08 May 2026 18:15:32 GMT
+
+https://www.cbr.com/video/the-audacity-cast-on-auditions-ai-emotional-storylines/
+
+The Audacity cast dives into AI, teen identity, and family tension in this exclusive interview. Everett Blunck, Thailey Roberge, and Ava Marie Telek share how they joined the series, what surprised them about the story, and why its take on artificial intelligence feels more relevant than ever.The trio discusses navigating complex tech-heavy scripts, building strong bonds during filming, and unpacking the emotional core behind their characters. From neglected teens to ambitious parents, The Audacity explores issues that hit close to home.
+---------
+
+# 'She-Hulk' Star Officially Weighs In on a Potential MCU Return
+
+TV News, She-Hulk: Attorney at Law, MCU, Disney+
+
+Fri, 08 May 2026 19:35:39 GMT
+
+https://collider.com/she-hulk-attorney-at-law-tatiana-maslany-mcu-return-response-jessica-gao/
+
+She-Hulk herself, Tatiana Maslany, has officially revealed what would convince her to come back as the divisive MCU character.
+---------
+
+# 9 Movie Franchises Where Every Movie Is Perfect From Start to Finish
+
+Movie, Back to the Future, Toy Story, The Lord of the Rings, The Godfather
+
+Fri, 08 May 2026 19:29:13 GMT
+
+https://collider.com/franchises-every-movie-perfect-start-to-finish/
+
+Hollywood movie franchises can be hit-or-miss, but thankfully, the likes of Toy Story and John Wick keep delivering movies that are actually perfect.
+---------
+
+# 'New Girl's Jake Johnson Officially Returns to Network TV With New Crime Series
+
+TV News, Jake Johnson, Keith David, Jane Levy, NBC
+
+Fri, 08 May 2026 19:12:43 GMT
+
+https://collider.com/new-girl-star-jake-johnson-nbc-crime-series-sunset-pi-confirmed/
+
+Jake Johnson is finally ending his network TV hiatus with a brand-new crime series coming to NBC. Read on for more details.
+---------
+
+# 'Terrifier' Is Officially Rewriting the Franchise's Biggest Plotline for Final Film
+
+Movie News, Terrifier, Terrifier 2, Terrifier 3, Terrifier 4
+
+Fri, 08 May 2026 19:08:30 GMT
+
+https://collider.com/terrifier-4-first-plot-details-new-years-eve-setting-damien-leone/
+
+The fourth and final Terrifier movie will have Art the Clown terrorizing a new holiday according to creator Damien Leone.
+---------
+
+# 10 Classic HBO TV Shows Still Worth Binge-Watching Today
+
+TV, HBO, The Sopranos, Band of Brothers, The Wire
+
+Fri, 08 May 2026 19:08:20 GMT
+
+https://collider.com/classic-hbo-shows-worth-binge-watching-today/
+
+Discover timeless HBO series that have shaped television history and still captivate audiences today, from The Sopranos to Band of Brothers.
+---------
+
+# Peter Krause's First Series Since Leaving '9-1-1' Officially Confirmed at NBC
+
+TV News, Peter Krause, 9-1-1, NBC
+
+Fri, 08 May 2026 19:06:16 GMT
+
+https://collider.com/9-1-1-star-peter-krause-nbc-cop-thriller-series-line-of-fire-confirmed/
+
+After being controversially killed off in 9-1-1, Peter Krause is leaving Bobby Nash behind for a new cop thriller at NBC.
+---------
+
+# David Boreanaz's New NBC Reboot of 52-Year-Old Detective Series Officially Confirmed
+
+TV News, David Boreanaz, The Rockford Files, NBC, Felix Solis
+
+Fri, 08 May 2026 18:32:48 GMT
+
+https://collider.com/david-boreanaz-nbc-detective-reboot-the-rockford-files-confirmed/
+
+David Boreanaz's reboot of the hit detective series The Rockford Files has officially been greenlit at NBC. Read on for more.
+---------
+
+# Gerard Butler Is Officially Going Full John Wick for His New Action Thriller
+
+Movie News, Gerard Butler, Greenland 2: Migration, How to Train Your Dragon, John Wick
+
+Fri, 08 May 2026 18:07:52 GMT
+
+https://collider.com/gerard-butler-action-thriller-the-nest-john-wick-producer-thunder-road/
+
+Gerard Butler has found his answer to John Wick in Thunder Road's new action thriller, The Nest, where he'll save the World Cup from terrorists.
+---------
+
+# Mike Flanagan's 'The Dark Tower' Will Be Even More Epic Than 'The Rings of Power'
+
+Features, The Dark Tower, The Lord of the Rings: The Rings of Power, Mike Flanagan
+
+Fri, 08 May 2026 19:30:18 GMT
+
+https://movieweb.com/amazon-prime-the-dark-tower-mike-flanagan-epic-rings-of-power/
+
+Mike Flanagan's interpretation of Stephen King's magnum opus 'The Dark Tower' has the lore and world-building to make even Middle-Earth feel small.
+---------
+
+# 'Paradise' Season 3 Image Confirms Elijah Wood & Melissa Benoist Guest Roles
+
+TV News, Paradise, Elijah Wood, Melissa Benoist
+
+Fri, 08 May 2026 19:21:23 GMT
+
+https://movieweb.com/paradise-season-3-elijah-wood-melissa-benoist/
+
+'Paradise' creator Dan Fogelman confirmed roles for Elijah Wood and Melissa Benoist in Season 3.
+---------
+
+# AMC Seeking New Distribution Deal for 'The Walking Dead'
+
+TV News, The Walking Dead, AMC+
+
+Fri, 08 May 2026 19:03:53 GMT
+
+https://movieweb.com/the-walking-dead-amc-rights-deal/
+
+The series could leave its longtime home on Netflix for a new platform.
+---------
+
+# 'Rocky' Spin-off ‘Creed’ Topples Arnold Schwarzenegger’s ‘Predator’ on Free Streaming
+
+Movie News, Hot on Streaming, Predator, Creed II, Creed III, The Predator
+
+Fri, 08 May 2026 19:00:20 GMT
+
+https://movieweb.com/predator-creed-free-streaming-tubi-may-2026/
+
+The action giants once again collide, but there can only be one winner.
+---------
+
+# Gerard Butler Joins New Action Thriller 'The Next' From 'John Wick' Producer
+
+Movie News, Gerard Butler
+
+Fri, 08 May 2026 18:18:45 GMT
+
+https://movieweb.com/gerard-butler-the-nest-cast/
+
+Gerard Butler is set to play a sniper who is tasked with saving thousands at the biggest sporting event in the world in the new thriller.
+---------
+
 # Taylor Sheridan's Tulsa King Officially Returning This Year
 
 TV, Tulsa King
