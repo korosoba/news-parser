@@ -1,3 +1,344 @@
+# Yellowstone Crossover Status For Dutton Ranch Season 1 Confirmed By Kelly Reilly
+
+TV, Yellowstone, Dutton Ranch
+
+Fri, 08 May 2026 16:47:25 GMT
+
+https://screenrant.com/yellowstone-crossover-dutton-ranch-marshals-kayce-kelly-reilly/
+
+Kelly Reilly confirms whether Dutton Ranch season 1 will have any crossovers with the wider Yellowstone universe as the Paramount+ show approaches.
+---------
+
+# DC Officially Confirms Poison Ivy's Design For Batman's New Appearance
+
+Superheroes, Batman, Batwheels, DC Universe
+
+Fri, 08 May 2026 16:40:27 GMT
+
+https://screenrant.com/batwheels-hbo-max-batman-dc-poison-ivy-reveal/
+
+Batman helps Poison Ivy in the Dark Knight's new appearance, as DC officially confirms what the beloved villain looks like with a fresh design.
+---------
+
+# Mortal Kombat 2 Fixes One Of The First Movie's Biggest Complaints, Promises Director
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Fri, 08 May 2026 16:36:31 GMT
+
+https://screenrant.com/mortal-kombat-2-complaint-fix-more-female-characters-simon-mcquoid/
+
+EXCLUSIVE: Director Simon McQuoid reveals he heard a major complaint about 2021’s Mortal Kombat film and vowed to make a course correction.
+---------
+
+# Captain Kirk’s Biggest Star Trek Movie Failure Was Never Resolved
+
+Movies, Star Trek, Star Trek V: The Final Frontier
+
+Fri, 08 May 2026 16:31:42 GMT
+
+https://screenrant.com/star-trek-v-captain-kirk-climb-el-capitan/
+
+Captain James T. Kirk saved Earth and the galaxy many times, but there's one thing he tried and failed at in the original Star Trek movies.
+---------
+
+# R.J. Decker Season 2's Fate Officially Sealed By ABC
+
+TV, RJ Decker
+
+Fri, 08 May 2026 16:16:22 GMT
+
+https://screenrant.com/rj-decker-season-2-renewed-abc/
+
+ABC's hit adaptation of a 39-year-old crime novel, R.J. Decker season 2's fate has officially been sealed by ABC a week after its season 1 finale.
+---------
+
+# Tom Hardy's Hit 8-Part Crime Thriller Series Subtly Returns As Global Streaming Success
+
+TV, Masked Recs
+
+Fri, 08 May 2026 16:02:25 GMT
+
+https://screenrant.com/tom-hardy-taboo-apple-tv-store-vod-success-may-2026/
+
+Tom Hardy finds success in 2026 with one of his most underappreciated projects, as the crime drama has become a streaming hit for the British actor.
+---------
+
+# NBA Star John Salley Is A Concerned Father In New Boston Blue Clip
+
+Exclusive, Boston Blue
+
+Fri, 08 May 2026 16:00:40 GMT
+
+https://screenrant.com/video/boston-blue-season-1-episode-18-nba-john-salley-clip/
+
+Exclusive: ScreenRant presents a clip from tonight's Boston Blue, in which a father (NBA's John Salley) worries over his daughter's stalker.
+---------
+
+# Zelda Officially Returns To Wilds Era For One More 2026 Release
+
+Gaming, The Legend of Zelda
+
+Fri, 08 May 2026 16:00:40 GMT
+
+https://screenrant.com/legend-of-zelda-wilds-era-december-2026-release/
+
+Link from The Legend of Zelda: Tears of Kingdom is the latest addition to Hallmark's Keepsake Ornament collection.
+---------
+
+# 10 Unpopular Opinions About American Sitcoms
+
+Classic TV
+
+Fri, 08 May 2026 16:00:40 GMT
+
+https://screenrant.com/american-sitcoms-unpopular-opinions/
+
+These unpopular opinions about popular sitcoms challenge the way we view our favorite funny shows, from Friends and Seinfeld to The Office.
+---------
+
+# Netflix Feature Available For Years Discreetly Removed By Streamer In New Update
+
+TV, Netflix
+
+Fri, 08 May 2026 15:55:27 GMT
+
+https://screenrant.com/netflix-search-browse-feature-removed-update/
+
+Netflix has discreetly removed one of their features available to users for years in the latest update that could cause ire for new difficulties.
+---------
+
+# Prime Video’s 8-Part Mystery Based on a 26-Year-Old Book Adds 9 to Cast For Season 2
+
+TV, Scarpetta, Prime Video
+
+Fri, 08 May 2026 16:45:26 GMT
+
+https://www.cbr.com/prime-video-scarpetta-season-2-cast-update/
+
+Prime Video adds actors from Cobra Kai, For All Mankind, The Morning Show, and more to the Season 2 cast of its hit crime drama series.
+---------
+
+# R.J. Decker Renewed for Season 2 at ABC
+
+TV, RJ Decker, Crime, ABC
+
+Fri, 08 May 2026 16:41:57 GMT
+
+https://www.cbr.com/rj-decker-season-2-renewed-abc/
+
+ABC has officially renewed crime drama R.J. Decker, starring Scott Speedman, for a second season.
+---------
+
+# The Audacity Cast on Chaos & Desperation in the Series
+
+TV, The Audacity
+
+Fri, 08 May 2026 16:16:36 GMT
+
+https://www.cbr.com/video/the-audacity-cast-on-chaos-desperation-in-the-series/
+
+The Audacity cast breaks down the chaos, characters, and core emotions driving the series. Simon Helberg, Rob Corddry, and Meaghan Rath dive into what makes the show so unpredictable and compelling.From Jonathan’s standout writing to the layered character dynamics, the cast explains why this world feels so intense—and real. Simon Helberg shares what it’s like playing Martin Phister, a character disconnected from reality, while Rob Corddry reveals why he approached the series as a straight drama. Meaghan Rath explores the complicated love-hate relationship at the heart of her storyline.
+---------
+
+# Marvel Snap Officially Reveals New Swimsuit Cards to Win Back Fans
+
+Games, Marvel SNAP, Marvel
+
+Fri, 08 May 2026 16:06:37 GMT
+
+https://www.cbr.com/marvel-snap-swimsuit-cards-reveal/
+
+Marvel Snap has seen a downturn in player numbers, but it might win them back with the newly announced swimsuit variant cards, based on comic covers.
+---------
+
+# Comic Book Icon Slams Batman Writer in Explosive Remarks
+
+Comics, frank miller, alan moore
+
+Fri, 08 May 2026 16:00:36 GMT
+
+https://www.cbr.com/alan-moor-frank-miller-drama/
+
+It appears that two of history's most beloved comic book creators do not see eye to eye.
+---------
+
+# 8 Shows to Watch If You Loved Sons of Anarchy
+
+TV, Sons of Anarchy, The Sopranos, Breaking Bad, Crime
+
+Fri, 08 May 2026 16:00:36 GMT
+
+https://www.cbr.com/sons-of-anarchy-similar-shows-list/
+
+Although Sons of Anarchy ended in 2014, fans still feel a void. Fortunately, there are a few similar shows to binge.
+---------
+
+# Clint Eastwood's Dollars Trilogy Is a Perfect Weekend Binge
+
+Movies, Western, The Good, the Bad and the Ugly, A Fistful of Dollars
+
+Fri, 08 May 2026 16:00:36 GMT
+
+https://www.cbr.com/amazon-fistful-of-dollars-perfect-weekend-binge/
+
+Sergio Leone's Dollars trilogy defines the Western genre, and no matter the weekend, it's the best thing for newcomers to binge.
+---------
+
+# Harry Potter Agency Shows Support for Paramount-Warner Bros. Merger
+
+TV, Harry Potter, paramount pictures, warner bros
+
+Fri, 08 May 2026 15:38:21 GMT
+
+https://www.cbr.com/harry-potter-agency-support-paramount-warner-bros-merger/
+
+The Paramount-Warner Bros. merger just received major support.
+---------
+
+# Nintendo Officially Confirms Switch 2 Price Increase Starting September 1
+
+Games, Nintendo, Nintendo Switch
+
+Fri, 08 May 2026 15:25:25 GMT
+
+https://www.cbr.com/nintendo-officially-confirms-switch-2-price-increase-september-2026/
+
+The slumping sales of the Switch 2 are forcing Nintendo to raise the console's price this September.
+---------
+
+# 5 Sailor Moon Mysteries That are Still Unsolved to This Day
+
+Anime, Sailor Moon, Sailor Moon Crystal, Shojo
+
+Fri, 08 May 2026 15:15:24 GMT
+
+https://www.cbr.com/unsolved-sailor-moon-mysteries/
+
+From its early beginnings in 1992 to the 2020s movies, Sailor Moon's story is rich with lore and history, yet there are still some unresolved parts.
+---------
+
+# Ellie Bamber Fully Transforms Into Fashion Icon Kate Moss in New Biopic Sneak Peek [Exclusive]
+
+Movie News, Ellie Bamber, Derek Jacobi, Drama, Biopic
+
+Fri, 08 May 2026 16:31:41 GMT
+
+https://collider.com/moss-and-freud-kate-moss-biopic-sneak-peek-ellie-bamber/
+
+Ellie Bamber and Derek Jacobi star as two very different British icons in a new exclusive sneak peek of Moss & Freud. Watch it here.
+---------
+
+# ABC's Best New Crime Thriller Officially Has Its Season 2 Fate Decided
+
+TV News, RJ Decker, Scott Speedman, ABC, Crime
+
+Fri, 08 May 2026 16:18:51 GMT
+
+https://collider.com/abc-crime-thriller-rj-decker-season-2-renewed/
+
+After becoming a sleeper hit for ABC, the fate of the new crime thriller RJ Decker has officially been decided by the network.
+---------
+
+# The Best Thriller Film From Every Year of the 1990s
+
+Movie, Thriller, The Silence of the Lambs, Se7en, Scream
+
+Fri, 08 May 2026 16:06:38 GMT
+
+https://collider.com/best-90s-thriller-movies-every-year/
+
+From the Stephen King adaptation Misery to the mind-blowing masterpiece The Sixth Sense, the 1990s featured one excellent thriller after another.
+---------
+
+# Kumail Nanjiani’s New Movie Feels Like a Modern John Hughes Road Trip [Exclusive]
+
+Movie News, Driver's Ed, Kumail Nanjiani, Sam Nivola, Bobby Farrelly
+
+Fri, 08 May 2026 16:00:38 GMT
+
+https://collider.com/new-john-hughes-style-movie-drivers-ed-sneak-peek-kumail-nanjiani/
+
+Kumail Nanjiani is a world-weary driver's ed teacher in this hilarious Collider-exclusive preview of Driver's Ed. Watch it now.
+---------
+
+# Steve Carell Breaks a Promise in New Look at His 'Shrinking' Replacement's Season Finale [Exclusive]
+
+TV News, Rooster, Steve Carell, Connie Britton, HBO
+
+Fri, 08 May 2026 16:00:38 GMT
+
+https://collider.com/rooster-season-1-finale-sneak-peek-steve-carell-connie-britton/
+
+A new sneak peek from the season finale of Rooster sees Steve Carell breaking a promise that his ex-wife knows he'll regret.
+---------
+
+# HBO Max’s ‘Song of the Samurai’ Is the Perfect Action Epic for ‘Shōgun’ Fans | Review
+
+TV Reviews, Song of the Samurai, HBO Max, Action, Drama
+
+Fri, 08 May 2026 16:00:38 GMT
+
+https://collider.com/song-of-the-samurai-review-hbo-max/
+
+With stunning visuals and a stellar cast, HBO Max's Song of the Samurai is a must-watch for fans of Shōgun.
+---------
+
+# 'The Housemaid' Author's Thriller 'The Divorce' Set for Movie Adaptation
+
+Movie News, The Housemaid, Thriller
+
+Fri, 08 May 2026 16:30:42 GMT
+
+https://movieweb.com/freida-mcfadden-the-divorce-movie-adaptation/
+
+A movie adaptation of Freida McFadden's forthcoming thriller, 'The Divorce,' is in the works following the huge success of 'The Housemaid.'
+---------
+
+# 6 Connections Between 'Evil Dead Burn' & the 'Evil Dead' Universe
+
+Features, Evil Dead Burn, Evil Dead
+
+Fri, 08 May 2026 16:00:40 GMT
+
+https://movieweb.com/connections-between-evil-dead-burn-universe/
+
+Two trailers for 'Evil Dead Burn' have revealed new details and terrifying images, some of which connect it to the greater 'Evil Dead' universe.
+---------
+
+# Underseen Mystery Horror Gem 'The Gift' Gets Free Streaming Home
+
+Movie News, The Gift, Coming/Leaving Streaming, Keanu Reeves, Horror
+
+Fri, 08 May 2026 16:00:40 GMT
+
+https://movieweb.com/the-gift-streaming-pluto-may-2026/
+
+Directed by Sam Raimi and starring Cate Blanchett alongside Keanu Reeves in rare villain role, 'The Gift' is now streaming free.
+---------
+
+# New Netflix 'John Wick'-Style Romantic Action Thriller Hailed as "Heroic Bloodshed"
+
+Movie News, Netflix, Action, Thriller, Romance, John Wick
+
+Fri, 08 May 2026 15:30:31 GMT
+
+https://movieweb.com/netflix-my-dearest-assassin-reviews-stream/
+
+The action thriller with a coming-of-age twist is streaming now.
+---------
+
+# Netflix Crime Thriller 'Legends' Lands Fresh Rotten Tomatoes Score
+
+TV News, Legends, Netflix
+
+Fri, 08 May 2026 15:08:55 GMT
+
+https://movieweb.com/netflix-legends-rotten-tomatoes/
+
+The latest crime thriller from Netflix, a British spy series titled 'Legends,' is getting rave reviews from critics.
+---------
+
 # Ridley Scott's Hit Horror Series Is Officially A #1 American Streaming Sensation
 
 TV, Masked Recs
