@@ -1,3 +1,300 @@
+# Netflix's 10/10 Fantasy Series Is Making Every Other Streaming Franchise Look Small
+
+TV, Masked Recs, Netflix
+
+Fri, 08 May 2026 13:05:20 GMT
+
+https://screenrant.com/one-piece-netflix-makes-shows-feel-small/
+
+One Netflix show is outdoing even the biggest earlier fantasy franchises when it comes to sheer depth of its seemingly endless in-universe lore.
+---------
+
+# GTA 5 Free Download Officially Available To Claim Until June 10
+
+Gaming, Grand Theft Auto 5, Grand Theft Auto
+
+Fri, 08 May 2026 13:00:22 GMT
+
+https://screenrant.com/gta-5-free-download-may-2026-limited-time/
+
+GTA V is still the most recent game in the series for the next 6 months, and there's a download you can grab if you're still playing.
+---------
+
+# The Tom Cruise Movie That Saved Hollywood Is Taking Over America Again
+
+Movies, Masked Recs, Streaming Charts, Tom Cruise
+
+Fri, 08 May 2026 13:00:22 GMT
+
+https://screenrant.com/tom-cruise-movie-streaming-success-top-gun-maverick/
+
+A recent Tom Cruise movie that is widely credited with helping to resurrect the box office is having a resurgence in popularity in the United States.
+---------
+
+# Melissa Barrera's 10 Best Movies & TV Shows, Ranked
+
+Movies, Melissa Barrera
+
+Fri, 08 May 2026 13:00:22 GMT
+
+https://screenrant.com/melissa-barreras-8-best-movies-tv-shows-ranked/
+
+Melissa Barrera is a fantastic actress, evidenced by watching any one of these great films or TV series that showcase her immense talents.
+---------
+
+# 1990's Spider-Man #1 Broke All Records, But Is It Still Worth Your Time?
+
+Comics, Spider-Man
+
+Fri, 08 May 2026 13:00:22 GMT
+
+https://screenrant.com/spider-man-best-selling-comic-all-time-retro-review/
+
+Did it deserve to sell millions of copies?
+---------
+
+# Pokémon Legends: Z-A Free Downloads Confirmed For May 2026
+
+Gaming, Pokemon Legends Z-A, Pokemon
+
+Fri, 08 May 2026 12:34:52 GMT
+
+https://screenrant.com/pokemon-legends-za-season-11-free-rewards/
+
+New free downloads are coming to Pokémon Legends: Z-A this month, as we've got official confirmation for what's arriving soon in May 2026.
+---------
+
+# Pokémon Fire Ash Stuffs 8 Regions Into One Massive Game
+
+Gaming, Pokemon
+
+Fri, 08 May 2026 12:30:20 GMT
+
+https://screenrant.com/pokemon-fire-ash-kanto-to-galar-multiple-regions/
+
+Explore 8 iconic Pokémon regions in this extensive fan-made ROM hack, Pokémon Fire Ash.
+---------
+
+# 7 Biggest Changes Remarkably Bright Creatures Makes To Shelby Van Pelt’s Book
+
+Movies, Remarkably Bright Creatures
+
+Fri, 08 May 2026 12:30:20 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-book-changes/
+
+Netflix's Remarkably Bright Creatures stays true to the heart of "That Octopus Book," but it also makes some major changes to Shelby Van Pelt's novel.
+---------
+
+# 3 Years Ago, One Piece Reached A Peak So High, No Anime's Topped It Since
+
+Anime, One Piece, One Piece (1997)
+
+Fri, 08 May 2026 12:30:20 GMT
+
+https://screenrant.com/one-piece-gear-5-peak-anime-not-topped/
+
+It's been years since One Piece's Wano Arc dropped its epic battle between Kaido and Luffy, and it's yet to dethroned.
+---------
+
+# The Best Forgotten Sylvester Stallone Movies From Each Decade Of His Career (1970s - 2020s)
+
+Movies, Sylvester Stallone, Ranking
+
+Fri, 08 May 2026 12:30:20 GMT
+
+https://screenrant.com/sylvester-stallone-best-movies-forgotten-decade-breakdown/
+
+Sylvester Stallone has been a movie star for over 50 years and counting, and in addition to his classics, he's made plenty of forgotten gems.
+---------
+
+# 10 Science Fantasy Anime That Are Perfect From Start to Finish
+
+Anime, Made in Abyss, Dragon Ball, Code Geass: Lelouch of the Rebellion
+
+Fri, 08 May 2026 13:15:13 GMT
+
+https://www.cbr.com/science-fantasy-anime-perfect-from-start-to-finish/
+
+These anime series are the perfect blend of science fiction's inventive worldbuilding and the awe-inspiring magic of fantasy.
+---------
+
+# The 7 Best Sci-Fi Book-to-Movie Adaptations of The 21st Century, Ranked
+
+Movies, Sci-Fi, Arrival, Dune
+
+Fri, 08 May 2026 13:00:14 GMT
+
+https://www.cbr.com/best-sci-fi-book-to-movie-adaptation-ranked-list/
+
+Being a faithful adaptation is not the only thing that make these sci-fi classics work.
+---------
+
+# Stephen King Hailed Coffin Moon as 'the Best Modern Vampire Story'
+
+TV, Stephen King, Horror
+
+Fri, 08 May 2026 13:00:14 GMT
+
+https://www.cbr.com/stephen-king-horror-book-recommendation-coffin-moon-keith-rosson/
+
+Stephen King is never shy about praising the horror books, movies, and TV shows he loves, but this 2025 novel might be his most glowing.
+---------
+
+# Daredevil: Born Again Brings Back Jessica Jones & Luke Cage, Signals MCU Reset
+
+TV, Daredevil, Daredevil: Born Again, Jessica Jones
+
+Fri, 08 May 2026 12:56:16 GMT
+
+https://www.cbr.com/daredevil-born-again-sets-up-mcu-street-level-reset/
+
+Daredevil: Born Again's finale reintroduces Jessica Jones and Luke Cage, hinting at a much-needed MCU reset focusing on character-driven stories.
+---------
+
+# Batman Beyond Makes a Comeback With a Sleek New Suit Redesign
+
+Comics, Batman Beyond, Static Shock, DC Comics
+
+Fri, 08 May 2026 12:00:13 GMT
+
+https://www.cbr.com/batman-beyond-redesigned-costume-revealed/
+
+Terry McGinnis is finally getting a much-needed upgrade.
+---------
+
+# 10 Hysterical The Far Side Comics That Aged Like Fine Wine
+
+Comics, The Far Side
+
+Fri, 08 May 2026 12:00:13 GMT
+
+https://www.cbr.com/hysterical-far-side-comics-that-aged-like-fine-wine/
+
+Despite debuting 45 years ago and dealing with numerous topical issues, The Far Side's panels and humor have continued to age elegantly for fans.
+---------
+
+# 48 Years Ago, David Bowie Turned an Unusual Inspiration Into One of His Greatest Songs
+
+Music Features, David Bowie, Rock, Music, Billboard Hot 100
+
+Fri, 08 May 2026 12:45:17 GMT
+
+https://collider.com/48-years-ago-david-bowie-heroes-inspiration-greatest-song/
+
+The unusual inspiration behind David Bowie's hit song including a secret affair and the Berlin Wall, that turned into one of his greatest songs.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Weekend
+
+TV, Netflix, The Umbrella Academy, The Chestnut Man, Rescue Me
+
+Fri, 08 May 2026 12:41:14 GMT
+
+https://collider.com/netflix-shows-binge-may-8/
+
+The Chestnut Man: Hide and Seek, Rescue Me, and Umbrella Academy make our list of the best Netflix shows to binge-watch the weekend of May 6, 2026.
+---------
+
+# HBO Max’s 9-Part Near-Perfect Sci-Fi Alien Franchise Is Perfect To Binge This Weekend
+
+Movie Features, Alien, Aliens, HBO Max
+
+Fri, 08 May 2026 12:24:13 GMT
+
+https://collider.com/hbo-max-alien-franchise-weekend-binge-perfect-sci-fi-horror/
+
+The Alien franchise remains one of the strongest sci-fi horror sagas ever made, and HBO Max makes it easy to binge all nine films in one weekend.
+---------
+
+# Before ‘Reacher,’ Denzel Washington Delivered One of the Coolest Crime Thrillers Ever Made
+
+Movie News, The Equalizer, Denzel Washington, Antoine Fuqua, Reacher
+
+Fri, 08 May 2026 12:00:14 GMT
+
+https://collider.com/denzel-washington-crime-thriller-reacher-replacement-the-equalizer-streaming-success-prime-video-may-2026/
+
+Antoine Fuqua's blockbuster franchise-starter, The Equalizer, is slaying streaming competition more than a decade after its release.
+---------
+
+# Dave Grohl’s Punk-Rock Cred Was Critical to Nirvana’s Success
+
+Music Features, Dave Grohl, Kurt Cobain
+
+Fri, 08 May 2026 12:00:14 GMT
+
+https://collider.com/dave-grohls-punk-rock-cred-was-critical-to-nirvanas-success/
+
+Nirvana likely wouldn’t have succeeded as massively without drummer Dave Grohl's essential participation in the band, which he joined in 1990.
+---------
+
+# Jon Hamm Breaks Down 'Your Friends & Neighbors' Season 2's Bold Twist After That Unexpected Death
+
+TV, Jon Hamm, Your Friends and Neighbors, Apple TV, Crime
+
+Fri, 08 May 2026 12:00:14 GMT
+
+https://collider.com/your-friends-and-neighbors-season-2-episode-6-coop-father-death-jon-hamm-interview/
+
+Jon Hamm explains why they chose to make a bottle episode to explore Coop's grief in 'Your Friends & Neighbors' Season 2, Episode 6.
+---------
+
+# This Sci-Fi Horror Movie Expertly Combined 'The Thing' and 'Alien,' and It Came Out at the Perfect Time
+
+Movie Features, Sea Fever, The Thing, Alien, Sci-Fi
+
+Fri, 08 May 2026 11:57:13 GMT
+
+https://collider.com/sea-fever-alien-the-thing-masterpiece-horror-movie/
+
+If you love the horror classics Alien and The Thing, you need to check out the claustrophobic, paranoid horror film, Sea Fever.
+---------
+
+# John & Aeryn's Will-They-Won't-They Subplot Helped 'Farscape' Outlast 'Firefly'
+
+Features, Firefly, Farscape
+
+Fri, 08 May 2026 13:00:19 GMT
+
+https://movieweb.com/farscape-outlasted-firefly-john-aeryn/
+
+'Firefly' only lasted 1 season, whereas 'Farscape' ran for four. The biggest reason for this disparity is not what you'd expect. Read on for more.
+---------
+
+# Russell Crowe's New MMA Action Movie 'Beast' Gets Digital Streaming Release
+
+Movie News, Russell Crowe, Martial Arts, Action, Beast
+
+Fri, 08 May 2026 12:10:18 GMT
+
+https://movieweb.com/russell-crowe-beast-digital-streaming-release/
+
+The martial arts sports drama has already landed a knockout score on Rotten Tomatoes.
+---------
+
+# 'Top Gun: Maverick' Hits Free Streaming for the First Time – And It's Already a Smash
+
+Movie News, Tom Cruise, Top Gun: Maverick, Hot on Streaming, Action
+
+Fri, 08 May 2026 12:00:18 GMT
+
+https://movieweb.com/tom-cruise-top-gun-maverick-streaming-free-pluto-tv-may-2026/
+
+Tom Cruise's 2022 action blockbuster has finally arrived on free streaming, and it's already a hit.
+---------
+
+# 'Your Friendly Neighborhood Spider-Man' Season 2 Introduces Venom Before Tom Holland's Spider-Man Movies
+
+Features, Your Friendly Neighborhood Spider-Man, Spider-Man, Tom Holland
+
+Fri, 08 May 2026 12:00:18 GMT
+
+https://movieweb.com/your-friendly-neighborhood-spider-man-venom-debut/
+
+'No Way Home's Venom cameo suggested Tom Holland's Spider-Man would soon face the villain, but he still hasn't. Read on for more.
+---------
+
 # The Witcher 3: Tales Of The Witcher Will Prepare You For The Witcher 4
 
 Gaming, The Witcher, The Witcher 3: Wild Hunt
