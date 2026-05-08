@@ -1,3 +1,289 @@
+# Taylor Sheridan's Tulsa King Officially Returning This Year
+
+TV, Tulsa King
+
+Fri, 08 May 2026 18:02:57 GMT
+
+https://screenrant.com/tulsa-king-2026-paramount-plus-release-david-ellison/
+
+Taylor Sheridan's Sylvester Stallone-led Paramount+ crime drama series Tulsa King is officially set to return with season 4 before the end of 2026,
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (May 9-10)
+
+Movies, Disney+, Recommendation
+
+Fri, 08 May 2026 18:01:51 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-may-9/
+
+The best movies available on Disney+ this weekend are a superhero epic that is quite timely, an intense thriller, and a $1 billion space opera.
+---------
+
+# Kate Moss Knows Her Worth In Moss & Freud Clip
+
+Exclusive, Kate Moss
+
+Fri, 08 May 2026 18:00:33 GMT
+
+https://screenrant.com/video/moss-and-freud-movie-ellie-bamber-derek-jacobi-clip/
+
+Exclusive: ScreenRant presents a clip from Moss & Freud, which follows Kate Moss (Ellie Bamber) and Lucian Freud's (Derek Jacobi) unique friendship.
+---------
+
+# 10 Great Netflix Shows Already Renewed For More Seasons
+
+Streaming TV, Netflix
+
+Fri, 08 May 2026 18:00:33 GMT
+
+https://screenrant.com/netflix-shows-renewed-2026/
+
+Thankfully, Netflix has renewed some of its best shows, from crime dramas, epic fantasy sagas, romantic comedies, and everything in between.
+---------
+
+# GTA Online Final Major Update Before GTA 6 Has Gamers Pumped
+
+Gaming, Grand Theft Auto 6, PC
+
+Fri, 08 May 2026 17:52:59 GMT
+
+https://screenrant.com/gta-online-summer-update-2026/
+
+Grand Theft Auto 6 fans are hyped for what could be the final major GTA Online update before the big November 19 launch date.
+---------
+
+# Nicolas Cage Makes History For DC & Marvel's "Big Three" After 49 Years
+
+Streaming TV, Spider-Noir, The Flash
+
+Fri, 08 May 2026 17:31:24 GMT
+
+https://screenrant.com/nicolas-cage-spider-noir-spiderman-superman/
+
+At the age of 62, Nicolas Cage is achieving something no other actor has managed in the history of the superhero genre, involving both Marvel and DC.
+---------
+
+# Why Homelander Is Hunting Psychic Supes 2 Episodes Before The Boys Ends
+
+Streaming TV, The Boys
+
+Fri, 08 May 2026 17:00:21 GMT
+
+https://screenrant.com/the-boys-homelander-hunting-psychics-explained/
+
+Homelander's plans in The Boys season 5 go beyond just getting V-One, raising questions about what he wants with the psychic supes he's assembling.
+---------
+
+# Prime Video’s New Spider-Man Series Is Officially Releasing Early
+
+TV, Spider-Noir, Spider-Noir - Season 1, Spider-Man
+
+Fri, 08 May 2026 16:50:10 GMT
+
+https://screenrant.com/spiderman-prime-video-spider-noir-series-release-early-alamo-drafthouse/
+
+The new Spider-Man series on Prime Video will be released on May 27, but fans have the chance to watch the show early and on the big screen.
+---------
+
+# Ludi Lin Breaks Down Liu Kang’s Fighting Style in Mortal Kombat II
+
+Exclusive, Mortal Kombat II, Ludi Lin
+
+Fri, 08 May 2026 16:49:29 GMT
+
+https://screenrant.com/mortal-kombat-ii-ludi-lin-fighting-style-going-method-episode-2/
+
+In this special Going Method episode, Mortal Kombat II star Ludi Lin takes ScreenRant inside Liu Kang’s fight choreography and martial arts training.
+---------
+
+# The Forgotten Star Wars Comics Storylines That Changed the Franchise Forever
+
+Comics, Star Wars
+
+Fri, 08 May 2026 18:00:29 GMT
+
+https://www.cbr.com/star-wars-comics-qira-jaxxon-storyline-redemption/
+
+Star Wars has a habit of reviving its characters in new mediums and these forgotten comics did a fantastic job of shaping the series.
+---------
+
+# Prime Video Casts Imogen Poots, John Reynolds as Sex Criminals
+
+TV, Sex Criminals, Prime Video, Crime
+
+Fri, 08 May 2026 17:52:39 GMT
+
+https://www.cbr.com/sex-criminals-cast-imogen-poots-john-reynolds-prime-video/
+
+Imogen Poots and John Reynolds will star in Prime Video's adaptation of Image Comics' spicy crime drama Sex Criminals.
+---------
+
+# Hellraiser, Now Streaming on Tubi, Is Fatal Attraction Meets The Thing
+
+Movies, Hellraiser, Horror, Tubi
+
+Fri, 08 May 2026 17:30:16 GMT
+
+https://www.cbr.com/hellraiser-fatal-attraction-meets-the-thing-best-tubi-domestic-horror-movie/
+
+Combining the eroticism of Fatal Attraction with the body horror of The Thing, Hellraiser is a gruesomely tragic tale about obsession and lust.
+---------
+
+# Netflix's Behind Her Eyes Is a Gripping Thriller with a Shocking Twist
+
+TV, Behind Her Eyes, Netflix, Thriller
+
+Fri, 08 May 2026 17:30:16 GMT
+
+https://www.cbr.com/netflix-behind-her-eyes-twist-ending/
+
+This Netflix thriller miniseries thrives on emotional manipulation and a genre-shifting ending that will blow viewers' minds.
+---------
+
+# The Boys Boss Eric Kripke Opens Up About Season 5’s Celebrity Death Scenes
+
+CBR Exclusives, The Boys
+
+Fri, 08 May 2026 17:16:49 GMT
+
+https://www.cbr.com/the-boys-eric-kripke-one-shots-deaths-explained/
+
+Eric Kripke had one shot at making these deaths matter.
+---------
+
+# 8 Star Wars Video Games to Play Before The Mandalorian & Grogu
+
+Games, The Mandalorian and Grogu, Star Wars
+
+Fri, 08 May 2026 17:15:14 GMT
+
+https://www.cbr.com/best-star-wars-video-games-to-play-before-the-mandalorian-grogu/
+
+These Star Wars video games are great warm-ups for the cinematic event that is The Mandalorian & Grogu.
+---------
+
+# Cyberpunk: Edgerunners Officially Returns in New Wuthering Waves Crossover
+
+Games, Cyberpunk: Edgerunners, Cyberpunk
+
+Fri, 08 May 2026 17:05:13 GMT
+
+https://www.cbr.com/cyberpunk-edgerunners-returns-wuthering-waves-crossover/
+
+Cyberpunk: Edgerunners is officially back thanks to the hit anime series' latest collaboration with one of the hottest gacha RPGs of the decade.
+---------
+
+# Rachel McAdams' Send Help Becomes an Instant Global Hit on Hulu and Disney+
+
+Movies, Send Help
+
+Fri, 08 May 2026 17:00:14 GMT
+
+https://www.cbr.com/rachel-mcadams-send-help-survival-disney-plus-hulu-success-may-2026/
+
+The survival film is perfect for Netflix's Apex thriller.
+---------
+
+# Pokémon Red and Blue Gets New 30th Anniversary Release
+
+Anime, Pokemon, Nintendo, Pokémon Adventures
+
+Fri, 08 May 2026 17:00:14 GMT
+
+https://www.cbr.com/pokemon-red-blue-new-30th-anniversary-release/
+
+Pokémon officially returns to Kanto for its upcoming 30th Anniversary re-release.
+---------
+
+# 'Fire Country' Medical Spin-Off Officially Confirmed at CBS
+
+TV News, Fire Country, CBS, Sheriff Country, Procedural
+
+Fri, 08 May 2026 17:33:28 GMT
+
+https://collider.com/cbs-paramount-fire-country-medical-spin-off-confirmed-matt-lopez-overall-deal/
+
+A new Fire Country medical spin-off is officially in the works at CBS, with showrunner Matt Lopez returning as producer.
+---------
+
+# Netflix's Popular 2-Part Crime Drama Is Being Removed From the Platform
+
+TV Features, Dirty John, Connie Britton, Netflix, Eric Bana
+
+Fri, 08 May 2026 17:28:15 GMT
+
+https://collider.com/dirty-john-leaving-netflix-may/
+
+Dirty John is leaving Netflix in May and it's unclear if it'll find a home on another streaming platform.
+---------
+
+# 10 Most Intense Zombie Movies of All Time, Ranked
+
+Movie, Zombie, The Return of the Living Dead, Night of the Living Dead, 28 Days Later
+
+Fri, 08 May 2026 17:04:14 GMT
+
+https://collider.com/most-intense-zombie-movies-ranked/
+
+From Train to Busan to 28 Days Later, these zombie films deliver relentless tension, emotional stakes, and unforgettable survival stories.
+---------
+
+# 8 Legendary Music Icons Who Deserve Biopics Even More Than Michael Jackson
+
+Movie Lists, Michael
+
+Fri, 08 May 2026 18:00:33 GMT
+
+https://movieweb.com/music-icons-deserve-biopics-michael/
+
+Iconic pop star Michael Jackson is just one of many legendary musicians whose life story is perfect material for a movie.
+---------
+
+# Paul Dano Shares Thoughts on Robert Pattinson's Batman Joining James Gunn's DCU
+
+Movie News, The Batman, Robert Pattinson, James Gunn, Paul Dano
+
+Fri, 08 May 2026 17:52:25 GMT
+
+https://movieweb.com/batman-robert-pattinson-dcu-paul-dano-reaction/
+
+Riddler star Paul Dano discusses whether Robert Pattinson's Batman should be the main Batman in James Gunn's DC Universe.
+---------
+
+# New 'Masters of the Universe' Poster Unveils First Look at Armored Battle Cat
+
+Movie News, Masters of the Universe
+
+Fri, 08 May 2026 17:07:24 GMT
+
+https://movieweb.com/masters-of-the-universe-armored-battle-cat/
+
+'Masters of the Universe' looks like the full-fledged love letter to the iconicfranchise that fans have been waiting for.
+---------
+
+# 'Veronica': The True Story, Explained
+
+Features, Horror
+
+Fri, 08 May 2026 17:00:20 GMT
+
+https://movieweb.com/veronica-2017-spanish-horror-true-story/
+
+The disturbing true story behind the Spanish horror film Veronica: the real events, police reports, and documented details.
+---------
+
+# 'Send Help': Sam Raimi's First Horror Movie in 17 Years Is Finally Streaming
+
+Features, Send Help, Sam Raimi
+
+Fri, 08 May 2026 17:00:19 GMT
+
+https://movieweb.com/sam-raimi-send-help-streaming-hulu/
+
+A great weekend for horror fans.
+---------
+
 # Yellowstone Crossover Status For Dutton Ranch Season 1 Confirmed By Kelly Reilly
 
 TV, Yellowstone, Dutton Ranch
