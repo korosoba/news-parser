@@ -1,3 +1,289 @@
+# Ridley Scott's Hit Horror Series Is Officially A #1 American Streaming Sensation
+
+TV, Masked Recs
+
+Fri, 08 May 2026 15:02:40 GMT
+
+https://screenrant.com/the-terror-devil-in-silver-streaming-success-may-2026/
+
+A sinister new horror series from filmmaker Ridley Scott has arrived, and it has quickly become a major streaming sensation in the U.S.
+---------
+
+# Couples Weekend Review: Josh Gad Shines In Sharp But Uneven Relationship Drama
+
+New Movies, Couples Weekend
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://screenrant.com/couples-weekend-movie-2026-review/
+
+Josh Gad shines brightest in this relationship dramedy, but despite a strong start, the somewhat repetitive film fades out as it goes along.
+---------
+
+# 6 Biggest Changes Netflix's Jurassic World Shows Make To The Franchise Lore
+
+Streaming TV, Jurassic World
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://screenrant.com/netflix-jurassic-world-shows-biggest-lore-changes-franchise-canon/
+
+Netflix's animated Jurassic World shows are not only the best projects since the original trilogy, but they also expanded the lore in exciting ways.
+---------
+
+# Netflix's Intense 8-Part Crime Thriller Series Is The Perfect Weekend Binge
+
+TV, Masked Recs
+
+Fri, 08 May 2026 14:56:39 GMT
+
+https://screenrant.com/the-madness-netflix-thriller-series-must-watch/
+
+Anyone looking for a TV show to watch should turn to this intense Netflix crime thriller series with an Oscar-nominated star for a weekend binge.
+---------
+
+# The Walking Dead Rights For Sale As AMC Re-Evaluates Relationship With Network-Defining Franchise
+
+TV, The Walking Dead, AMC
+
+Fri, 08 May 2026 14:48:54 GMT
+
+https://screenrant.com/the-walking-dead-rights-amc-change-details/
+
+AMC is considering a new path forward for The Walking Dead franchise as the rights are going up for sale for the series that defined the network.
+---------
+
+# PlayStation Officially Confirms The Beginning Of A Brand-New Era
+
+Gaming, PlayStation 5
+
+Fri, 08 May 2026 14:42:53 GMT
+
+https://screenrant.com/playstation-preservation-official-announcement/
+
+PlayStation has embarked on an internal game preservation effort, but some fans still think it’s not enough to keep classic games alive.
+---------
+
+# Xbox Game Pass Officially Drops 10/10 GOTY Contender
+
+Gaming, Xbox Game Pass
+
+Fri, 08 May 2026 14:30:20 GMT
+
+https://screenrant.com/xbox-game-pass-may-2026-goty-contender-mixtape/
+
+Xbox Game Pass has a new day-one release that's gotten plenty of 10/10 reviews, and it's already a serious GOTY contender for 2026. Don't miss it.
+---------
+
+# 10 Great Time Travel Sci-Fi Shows Like La Brea
+
+Classic TV, La Brea
+
+Fri, 08 May 2026 14:30:20 GMT
+
+https://screenrant.com/best-sci-fi-shows-like-la-brea/
+
+La Brea is sitting high on the Netflix viewing chart, but if you already binged that series and need something new, check out these time-travel shows.
+---------
+
+# Fist of the North Star Just Became Prime Video's #1 Anime
+
+Anime, Fist Of The North Star, Prime Video
+
+Fri, 08 May 2026 14:00:20 GMT
+
+https://screenrant.com/fist-of-the-north-star-best-amazon-prime-anime/
+
+The new Fist of the North Star is a certified hit.
+---------
+
+# New WWII D-Day Movie Gets Release Date & First Trailer (Exclusive)
+
+Movies, CNN
+
+Fri, 08 May 2026 14:00:20 GMT
+
+https://screenrant.com/why-we-dream-cnn-release-date-memorial-day/
+
+Exclusive: CNN is preparing a new World War II movie that explores the impact of D-Day. Directed by Meredith Danluck, it premieres this month.
+---------
+
+# BioShock 4 Gets Official Update (& It's Bad News for Fans)
+
+Games, bioshock
+
+Fri, 08 May 2026 15:05:16 GMT
+
+https://www.cbr.com/bioshock-4-update-take-two/
+
+Take-Two Interactive CEO Strauss Zelnick gives fans a pained if ultimately hopeful update on the status of the long-awaited fourth BioShock game.
+---------
+
+# Night of the Hunted is 1 of the Best Survival Thrillers of the 2020s
+
+Movies, Night of the Hunted
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://www.cbr.com/best-survival-thriller-night-of-the-hunted/
+
+This 2023 survival horror movie is one of the most underrated thrillers released in the last five years, and fans can watch it on Shudder now.
+---------
+
+# Evangelion Debuts New Rei, Asuka & Shinji Designs Ahead of Upcoming Anime Series
+
+Anime, Neon Genesis Evangelion, Rebuild of Evangelion
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://www.cbr.com/evangelion-rei-asuka-shinji-new-design-summer-2026/
+
+An upcoming Neon Genesis Evangelion event is being hyped up with a new promo image that puts the EVA pilots in duds besides their plugsuits.
+---------
+
+# “Spider-Noir” Fan Event Coming to Alamo Drafthouse: What Fans Can Expect
+
+CBR Exclusives, Spider-Noir
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://www.cbr.com/alamo-drafthouse-spider-noir-premiere-event/
+
+Alamo Drafthouse is bringing the shadows, style, and suspense of "Spider-Noir" to the big screen.
+---------
+
+# Star Fox Reveal All But Confirms Switch 2 Ocarina of Time Remake
+
+Games, Nintendo, Star Fox
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://www.cbr.com/nintendo-star-fox-reveal-switch-2-biggest-game-of-2026/
+
+Nintendo dropped a Star Fox Direct, which all but confirmed that the Switch 2's biggest game of 2026 is real and will launch this holiday season.
+---------
+
+# PlayStation 6 Officially Gets Bad News in New Update From Sony
+
+Games, PlayStation (Original)
+
+Fri, 08 May 2026 14:25:13 GMT
+
+https://www.cbr.com/ps6-official-release-date-update-sony/
+
+Sony has made a surprise statement regarding the PlayStation 6, and it's bad news for those expecting to play the system any time soon.
+---------
+
+# Netflix's Disaster Limited Series La Palma Officially Gets Season 2 Renewal Florida
+
+TV, Netflix, La Palma
+
+Fri, 08 May 2026 14:18:39 GMT
+
+https://www.cbr.com/netflix-la-palma-disaster-series-standalone-sequel-florida/
+
+The series had very strong viewership numbers but was divisive.
+---------
+
+# 10 Strongest Undefeated Characters in Shonen Anime
+
+Anime, One Punch Man, Dragon Ball, Solo Leveling, Demon Slayer
+
+Fri, 08 May 2026 14:15:13 GMT
+
+https://www.cbr.com/strongest-undefeated-characters-shonen-anime/
+
+These Shonen characters are unbeatable and stand as some of the strongest in all of anime.
+---------
+
+# Star Wars: Maul - Shadow Lord Changed the Meaning of Duel of the Fates
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Star Wars: Episode I - The Phantom Menace
+
+Fri, 08 May 2026 14:00:13 GMT
+
+https://www.cbr.com/maul-shadow-lord-duel-of-the-fates-meaning/
+
+Star Wars' latest animated series changed the meaning of the most iconic musical track from the Star Wars prequel trilogy.
+---------
+
+# NBC Officially Unveils Law & Order's Fate
+
+TV, Law & Order
+
+Fri, 08 May 2026 13:34:23 GMT
+
+https://www.cbr.com/nbc-law-order-fate-season-26/
+
+After NBC revealed the fate for its spinoffs, the flagship show's future was still undecided.
+---------
+
+# Neon's Best Horror Movie You Haven’t Seen Yet Is Finally Coming to Streaming [Exclusive]
+
+Movie News, Exit 8, Neon, Prime Video, Apple TV
+
+Fri, 08 May 2026 15:00:13 GMT
+
+https://collider.com/neon-exit-8-horror-movie-vod-release-date-may-8-how-to-watch/
+
+Exit 8, the best horror movie you haven't had the chance to see yet, is finally available to watch at home on VOD platforms like Prime Video.
+---------
+
+# Forget 'Man on Fire' — Paramount's 3-Part Revenge Thriller Is the Perfect Weekend Binge
+
+Movie Features, Denzel Washington, The Equalizer, Prime Video, Man on Fire
+
+Fri, 08 May 2026 14:19:10 GMT
+
+https://collider.com/paramount-the-equalizer-movie-denzel-washington-forget-man-on-fire-binge/
+
+Denzel Washington is unstoppable in The Equalizer trilogy, and we can't stop watching.
+---------
+
+# 6 Movies Roger Ebert Walked Out On
+
+Movie Lists, Roger Ebert
+
+Fri, 08 May 2026 15:00:19 GMT
+
+https://movieweb.com/movies-roger-ebert-walked-out-on/
+
+Roger Ebert was very patient, but some movies frustrated him so much that he either pressed the stop button or walked out of the theater.
+---------
+
+# Elliott Page is Achilles in Christopher Nolan’s The Odyssey, According to Theory
+
+Features, The Odyssey, Elliot Page, Troy
+
+Fri, 08 May 2026 15:00:18 GMT
+
+https://movieweb.com/elliot-page-achilles-the-odyssey-brad-pitt/
+
+Actor Elliot Page might be taking the baton from Brad Pitt, as fan theories circulate that he’ll portray the ghost of Achilles in 'The Odyssey'.
+---------
+
+# HBO's Epic ‘Harry Potter’ Fantasy Adaptation Will Make 'Game of Thrones' Seem Small
+
+Features, Harry Potter, Game Of Thrones
+
+Fri, 08 May 2026 14:00:18 GMT
+
+https://movieweb.com/harry-potter-hbo-better-than-game-of-thrones/
+
+HBO's 'Harry Potter' TV adaptation will premiere in December 2026 and can be compared to the fantasy series 'Game of Thrones.'
+---------
+
+# Charlize Theron to Reteam With 'Apex' Director on 'Six Clean Kills'
+
+Movie News, Charlize Theron, Baltasar Kormakur, Apex, Action
+
+Fri, 08 May 2026 13:40:18 GMT
+
+https://movieweb.com/six-clean-kills-charlize-theron-baltasar-kormakur/
+
+Charlize Theron is reteaming with 'Apex' director Baltasar Kormákur for 'Six Clean Kills,' an action thriller based on a novel by Stan Parish.
+---------
+
 # Netflix's 10/10 Fantasy Series Is Making Every Other Streaming Franchise Look Small
 
 TV, Masked Recs, Netflix
