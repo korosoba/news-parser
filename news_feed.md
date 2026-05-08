@@ -1,3 +1,212 @@
+# Is The MCU Setting Up Bullseye To Replace An Original Avenger?
+
+Superheroes, Bullseye, Daredevil: Born Again, Marvel Cinematic Universe
+
+Fri, 08 May 2026 23:36:29 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-bullseye-replacing-hawkeye-dark-avengers-theory/
+
+In the aftermath of Daredevil: Born Again season 2's finale, Bullseye's future may have been set up for him to replace an OG Avenger (with a catch).
+---------
+
+# Every New Isekai Anime Coming To Streaming In 2026
+
+Anime, Isekai
+
+Fri, 08 May 2026 23:35:14 GMT
+
+https://screenrant.com/every-isekai-anime-streaming-2026/
+
+For those who have difficulty keeping up with all the upcoming releases, here is a complete list of all the new isekai anime confirmed for 2026.
+---------
+
+# 10 Best Snoopy Quotes In Peanuts History
+
+Comics, Peanuts
+
+Fri, 08 May 2026 23:00:20 GMT
+
+https://screenrant.com/best-snoopy-quotes-peanuts/
+
+The GOAT quotes from Peanuts' beloved pup.
+---------
+
+# Zelda: Ocarina Of Time Graphical Overhaul Divides Gamers Following Official Reveal
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Star Fox
+
+Fri, 08 May 2026 23:00:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-graphics-overhaul-star-fox-comparison/
+
+The new Star Fox release has fans thinking about what comes next for Zelda, and it's quite an exciting potential future.
+---------
+
+# Percy Jackson Could Last An Entire Decade If Disney Lets It
+
+Streaming TV
+
+Fri, 08 May 2026 23:00:20 GMT
+
+https://screenrant.com/percy-jackson-disney-fantasy-series-last-decade/
+
+Disney currently has one of the most popular fantasy TV shows, which, if it wanted to, could continue for a decade and even a bit more.
+---------
+
+# Invincible Vs' Aleks Le Reveals Steven Yeun's Heartwarming Response To Casting News
+
+Gaming, Invincible
+
+Fri, 08 May 2026 22:30:11 GMT
+
+https://screenrant.com/invincible-vs-aleks-le-steven-yeun-blessing/
+
+Exclusive: Invincible Vs star Aleks Le recently spoke with ScreenRant about his role as Mark Grayson and Steven Yeun's response to his casting.
+---------
+
+# 4 Shonen Anime Better Than Solo Leveling
+
+Anime, Solo Leveling, Hunter x Hunter, Jujutsu Kaisen
+
+Fri, 08 May 2026 23:45:12 GMT
+
+https://www.cbr.com/shonen-anime-better-than-solo-leveling/
+
+Solo Leveling is one of the decade's biggest anime hits, yet shonen series like Hunter x Hunter and Jujutsu Kaisen beat it at its own game.
+---------
+
+# Every One Piece Warlord, Ranked (By Strength)
+
+Anime, One Piece, shonen anime, Shonen
+
+Fri, 08 May 2026 23:15:12 GMT
+
+https://www.cbr.com/one-piece-warlords-ranked-by-strength/
+
+One Piece's Warlord system may be abolished, but its former members are still powerhouses
+---------
+
+# May 9 is a Great Day for Solo Leveling Fans
+
+Anime, Solo Leveling
+
+Fri, 08 May 2026 23:05:12 GMT
+
+https://www.cbr.com/solo-leveling-a-1-pictures-birthday-mumbai-comic-con-panel/
+
+The stars seem to be aligning for Solo Leveling fans May 9 as the anime celebrates a major anniversary on the same day as one of its biggest events.
+---------
+
+# Sailor Moon Ocean Bomb Reveals New Sailor Mars Can Design
+
+Anime, Sailor Moon, Sailor Moon Crystal, merchandise, drinks
+
+Fri, 08 May 2026 23:05:12 GMT
+
+https://www.cbr.com/sailor-moon-crystal-sailor-mars-ocean-bomb-new-can-design-reveal/
+
+Sailor Moon fans have a new must-have collectible with an officially redesigned Sailor Mars reveal inspired by Sailor Moon Crystal.
+---------
+
+# NCIS Dethrones Y: Marshals on Paramount+ in the U.S.
+
+TV, NCIS, Marshals, Paramount Plus
+
+Fri, 08 May 2026 23:00:13 GMT
+
+https://www.cbr.com/ncis-defeats-yellowstone-marshals-procedural-paramount-plus-may-2026/
+
+A perennial favorite on the streaming charts just took home a massive victory against one of Paramount+'s most popular new procedurals.
+---------
+
+# The Walking Dead's Carol Peletier Is Officially Leaving the Franchise
+
+TV, The Walking Dead, The Walking Dead: Daryl Dixon, AMC
+
+Fri, 08 May 2026 23:00:13 GMT
+
+https://www.cbr.com/the-walking-dead-melissa-mcbride-carol-departure/
+
+After the series finale of The Walking Dead: Daryl Dixon, fans will have to say goodbye to one of the longest-running characters in the franchise.
+---------
+
+# 20 Years Later, These Are the 10 Must-Watch Movies of 2006
+
+Movies, Thriller, Children of Men, will smith
+
+Fri, 08 May 2026 23:00:13 GMT
+
+https://www.cbr.com/greatest-movies-of-2006-list/
+
+The 2000s has no shortage of movie masterpieces, with 2006 producing a range of fantastic films set to turn twenty this year.
+---------
+
+# Stanley Tucci’s Near-Perfect Spy Action Show Is Your Next Weekend Binge
+
+TV, The Summer I Turned Pretty, Citadel, Criminal Minds, Prime Video
+
+Fri, 08 May 2026 23:43:14 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-may-8/
+
+The Summer I Turned Pretty, Citadel, and Criminal Minds make up our list of the best Prime Video shows to binge the weekend of May 8, 2026.
+---------
+
+# Marvel's Biggest X-Men Project of 2026 Officially Arrives This September
+
+Movie News, X-Men, Insomniac Games, Marvel's Spider-Man, Deadpool & Wolverine
+
+Fri, 08 May 2026 23:31:13 GMT
+
+https://collider.com/marvel-wolverine-playstation-5-video-game-release-date-september-15-2026/
+
+Marvel’s Wolverine officially arrives on PS5 this September. Read on for more details on the Spider-Man follow-up.
+---------
+
+# A Beloved ‘Game of Thrones’ Star Is Officially Headlining a New Must-See Holiday Movie [Exclusive]
+
+Exclusives, Game Of Thrones, Comedy, Mark Addy, Russell Tovey
+
+Fri, 08 May 2026 23:15:12 GMT
+
+https://collider.com/mark-addy-first-christmas-full-cast-reveal-russell-tovey-eleanor-tomlinson/
+
+Mark Addy, known for his role in Game of Thrones, is set to headline a new dark comedy feature titled First Christmas alongside a star-studded cast.
+---------
+
+# The Forgotten John Ford Western That Proves He Was the Greatest of All Time
+
+Movie Features, John Ford, Westerns, Adventure, Classics
+
+Fri, 08 May 2026 23:06:13 GMT
+
+https://collider.com/john-ford-forgotten-western-masterpiece-wagon-master-movie/
+
+John Ford’s Wagon Master is a forgotten 1950 Western masterpiece that shows the director’s purest storytelling instincts.
+---------
+
+# Henry Cavill’s Netflix Detective Thriller Gets New Look 8 Weeks Before Release
+
+Movie News, Enola Holmes 3, Henry Cavill, Netflix, Millie Bobby Brown
+
+Fri, 08 May 2026 23:00:13 GMT
+
+https://collider.com/henry-cavill-netflix-detective-thriller-enola-holmes-3-new-image-release-date-july-1-2026/
+
+Netflix has released a new image from Henry Cavill's new detective thriller, Enola Holmes 3, which will be released on July 1.
+---------
+
+# 'Obsession' Director Explains How Other Horror Movies "Pulled Their Punches"
+
+Movie News, Obsession
+
+Fri, 08 May 2026 23:24:47 GMT
+
+https://movieweb.com/obsession-curry-barker-interview-explained/
+
+The filmmaker thinks similar stories failed to fully lean into the premise of being careful what you wish for.
+---------
+
 # Ryan Reynolds' The Proposal Officially Releases On Netflix After Making 8x Its Budget
 
 Movies, Masked Recs, Quiz CV
