@@ -1,3 +1,267 @@
+# FromSoftware's Elden Ring RPG Follow-Up Leaked, Could Involve Pirates
+
+Gaming, Elden Ring, PC, FromSoftware
+
+Fri, 08 May 2026 20:50:43 GMT
+
+https://screenrant.com/from-software-pirate-rpg-2026-leak/
+
+A newly circulating leak suggests FromSoft's next big open-world RPG is coming much sooner than expected, and it could possibly involve pirates.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (May 9-10)
+
+Movies, Prime Video, Recommendation
+
+Fri, 08 May 2026 20:34:49 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-may-9/
+
+The most exciting movies on Prime Video this weekend include a brand-new romance, a smash hit animation, and Denzel Washington's action thriller.
+---------
+
+# Marvel Officially Unveils New Hulk With A Wild New Look
+
+Gaming, Marvel Tokon: Fighting Souls, Triple-A Games, PC
+
+Fri, 08 May 2026 20:33:22 GMT
+
+https://screenrant.com/marvel-hulk-redesign-tokon-fighting-souls/
+
+The upcoming Marvel fighting game has just revealed Hulk for its roster, with a costume inspired by past appearances in many different comic stories.
+---------
+
+# 3 Body Problem Seasons 2 & 3 Return Gets Disappointing Update From Original Netflix Actor
+
+Exclusive, 3 Body Problem
+
+Fri, 08 May 2026 20:32:24 GMT
+
+https://screenrant.com/3-body-problem-season-2-3-return-update-lillian-cch-pounder/
+
+EXCLUSIVE: An actor from 3 Body Problem season 1 reveals whether she expects to return in the confirmed seasons 2 and 3 of the hit Netflix series.
+---------
+
+# Netflix's Upcoming Superhero Movie Is 'The Boys Meets Invincible'
+
+Streaming TV, My Hero Academia
+
+Fri, 08 May 2026 20:30:20 GMT
+
+https://screenrant.com/my-hero-academia-movie-netflix-invincible-meets-the-boys/
+
+Netflix has a live-action adaptation on the way, and though it's taking a while, the film will combine all that's great about The Boys and Invincible.
+---------
+
+# HBO Max's 'His Dark Materials Meets The Magicians' Series Is One Of Its Best Fantasy Shows
+
+TV, Masked Recs
+
+Fri, 08 May 2026 20:28:19 GMT
+
+https://screenrant.com/the-nevers-hbo-fantasy-show-his-dark-materials-meets-magicians/
+
+Despite its original creation sparking a bidding war between HBOMax and Netflix, this blend of The Magicians and His Dark Materials was never renewed.
+---------
+
+# Mortal Kombat 2 Doesn't Have A Post-Credits Scene, But You'll Regret Leaving Early
+
+Movies, Mortal Kombat II
+
+Fri, 08 May 2026 20:20:23 GMT
+
+https://screenrant.com/mortal-kombat-2-credits-scene/
+
+Mortal Kombat II viewers don’t need to stay through the credits for hints of a third movie, but they’ll be rewarded for sticking around.
+---------
+
+# X-Men's Brand New Hero Is A Gift To Marvel Cosplayers
+
+Marvel Comics, X-Men, Marvel
+
+Fri, 08 May 2026 20:19:46 GMT
+
+https://screenrant.com/x-men-new-hero-storm-guitar/
+
+The X-Men's latest potential recruit has a unique mutant power and weapon that's both practical and easy to  replicate by cosplayers and fan artists.
+---------
+
+# For All Mankind Has Found Its New Villain
+
+Streaming TV, For All Mankind
+
+Fri, 08 May 2026 20:15:19 GMT
+
+https://screenrant.com/for-all-mankind-season-5-new-villain-dev/
+
+For All Mankind is a sci-fi drama that has explored the impact one person can have on the world, and now a new villain is putting that to the test.
+---------
+
+# Prime Video Binge Guide (May 8–10): Russo Bros’ Action Thriller Hits #2 Worldwide
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 08 May 2026 20:14:19 GMT
+
+https://screenrant.com/prime-video-binge-guide-weekend-watch/
+
+The top shows to binge-watch this weekend on Prime Video include the return of the Russo Brothers' spy action thriller that just hit #2 worldwide.
+---------
+
+# In Just 1 Day, 1 Citdal Season 2 Is an Instant Hit on Prime Video
+
+TV, Citadel
+
+Fri, 08 May 2026 20:48:16 GMT
+
+https://www.cbr.com/citadel-season-2-streaming-success-prime-video/
+
+While the series has been extremely expensive to produce, it's starting to pay off with its Prime Video viewership.
+---------
+
+# Where Was House Velaryon During Game of Thrones?
+
+TV, Game Of Thrones, House of the Dragon, Fantasy
+
+Fri, 08 May 2026 20:30:13 GMT
+
+https://www.cbr.com/house-velaryon-during-game-of-thrones-explained/
+
+HBO's hit drama Game of Thrones featured many great houses, but why were the Velaryons from House of the Dragon nowhere to be found?
+---------
+
+# 5 Dark Transformers' Fan Theories That Might Actually Be True
+
+Anime, Transformers, mecha
+
+Fri, 08 May 2026 20:15:12 GMT
+
+https://www.cbr.com/dark-transformers-fan-theories/
+
+The Transformers franchise has a lot dark fan theories, with many tying back to the resident devil of the mythos: the Chaos Bringer, Unicron.
+---------
+
+# The Testaments Director Jet Wilkinson Explains Aunt Lydia's Backstory
+
+TV, The Testaments, The Handmaid's Tale, Hulu
+
+Fri, 08 May 2026 20:02:51 GMT
+
+https://www.cbr.com/the-testaments-jet-wilkinson-aunt-lydia-backstory-explained/
+
+Aunt Lydia's pre-Gilead life gets a major upgrade in Episode 6 of The Testaments.
+---------
+
+# Jujutsu Kaisen Beats Kagurabachi in New Oricon Manga Sales Ranking
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo, Kagurabachi
+
+Fri, 08 May 2026 20:01:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-modulo-vs-kagurabachi-oricon-manga-ranking/
+
+Jujutsu Kaisen tops the latest official sales charts, beating Shonen Jump's next-generation hit in the process.
+---------
+
+# The 10 Greatest Dark Western Movie Masterpieces of All Time, Ranked
+
+Movies, Western, Unforgiven, Clint Eastwood
+
+Fri, 08 May 2026 20:01:13 GMT
+
+https://www.cbr.com/greatest-dark-western-movies-list/
+
+The darker side of the American West has kept the genre alive for decades, and these movies prove the strength of the revisionist movement.
+---------
+
+# This Seinfeld Episode Is So Offensive That It's Out of Syndication
+
+TV, Seinfeld, NBC, Sitcoms
+
+Fri, 08 May 2026 19:54:46 GMT
+
+https://www.cbr.com/seinfeld-puerto-rican-day-controversy-explained/
+
+Seinfeld had many episodes that modern audiences could find fault with, but one offended so much that NBC apologized and pulled it from the air.
+---------
+
+# 10 Greatest Action Movies That Are Pure Cinema, Ranked
+
+Movie, Mad Max: Fury Road, The Matrix, John Wick, The Raid: Redemption
+
+Fri, 08 May 2026 20:50:15 GMT
+
+https://collider.com/best-action-movies-pure-cinema/
+
+Must-watch, all-time great action movies like Sicario, The Matrix, and Seven Samurai are cinema at its purest and most effective.
+---------
+
+# ABC’s 8-Part Mystery Masterpiece Becomes a Streaming Sensation 14 Years Later
+
+TV News, ABC, Desperate Housewives, Mystery, Thriller
+
+Fri, 08 May 2026 20:46:13 GMT
+
+https://collider.com/abc-mystery-thriller-desperate-housewives-streaming-success-disney-plus-may-2026/
+
+ABC's long-finished suburban mystery phenomenon is storming streaming charts again following recent reports of a revival.
+---------
+
+# ‘Avengers: Doomsday’ Director Officially Addresses MCU Spoiler Concerns
+
+Movie News, Avengers: Doomsday, Joe Russo, MCU, Avengers: Endgame
+
+Fri, 08 May 2026 20:30:14 GMT
+
+https://collider.com/avengers-doomsday-director-joe-russo-mcu-spoiler-response/
+
+Avengers: Doomsday director Joe Russo addresses concerns over spoilers and leak prevention for the new MCU movie.
+---------
+
+# Netflix's 4-Part Series Based on a Dark Classic Is One of the Most Unsettling Watches on the Platform
+
+TV Features, Lord of the Flies, Netflix, Series, Streaming
+
+Fri, 08 May 2026 20:08:13 GMT
+
+https://collider.com/netflix-lord-of-the-flies-review-dark-classic-series/
+
+Netflix’s Lord of the Flies turns William Golding’s classic into a haunting limited series about fear, violence, and boyhood rage.
+---------
+
+# Forget 'Clayface' and 'Joker,' James Gunn's Next Batman Villain Movie Has Tapped a 'Peacemaker' Director
+
+Movie News, DC Comics, Greg Mottola, Deathstroke, Peacemaker
+
+Fri, 08 May 2026 20:07:10 GMT
+
+https://collider.com/dc-batman-villain-movie-deathstroke-and-bane-peacemaker-director-greg-mottola/
+
+DC's Deathstroke and Bane movie has reportedly tapped Peacemaker and Superbad director Greg Mottola to helm the new Batman spin-off.
+---------
+
+# Why ‘The Sheep Detectives’ Writer Craig Mazin Doesn’t Think He Should Push His Luck With a Sequel
+
+Collider Signature, The Sheep Detectives, Craig Mazin, The Last of Us, The Hangover
+
+Fri, 08 May 2026 20:00:14 GMT
+
+https://collider.com/the-sheep-detectives-spoilers-sequel-writer-craig-mazin-interview/
+
+The Sheep Detectives writer Craig Mazin reveals behind the scenes secrets of the whodunit, and how the adaptation experience compared to Last of Us.
+---------
+
+# Jonathan Bailey and Natalie Portman Starring in Psychological Thriller 'Pumping Black'
+
+Movie News, Natalie Portman, Jonathan Bailey
+
+Fri, 08 May 2026 20:18:50 GMT
+
+https://movieweb.com/natalie-portman-jonathan-bailey-pumping-black-thriller/
+
+The tense new outing will unfold in the world of competitive cycling.
+---------
+
 # 3 Best Movies To Watch On Netflix This Weekend (May 9-10)
 
 Movies, Netflix, Recommendation
