@@ -1,3 +1,245 @@
+# The Witcher 3: Tales Of The Witcher Will Prepare You For The Witcher 4
+
+Gaming, The Witcher, The Witcher 3: Wild Hunt
+
+Fri, 08 May 2026 11:45:19 GMT
+
+https://screenrant.com/witcher-3-tales-of-the-witcher-new-region-mod/
+
+Tales of The Witcher is a hugely ambitious mod that takes players to an entirely new region in their quest.
+---------
+
+# Skyrim's Surprise Official 2026 DLC Is Well Worth Your Time
+
+Gaming, The Elder Scrolls V: Skyrim, The Elder Scrolls, pinball
+
+Fri, 08 May 2026 11:30:20 GMT
+
+https://screenrant.com/skyrim-2026-dlc-return-bethesda-pinball/
+
+Skyrim has appeared in a lot of different forms over the year, but the 2026 version really isn't like anything else we've seen so far.
+---------
+
+# Hogwarts Legacy 2 Multiplayer Gameplay Splits Fans, And We Can See Why
+
+Gaming, Hogwarts Legacy
+
+Fri, 08 May 2026 11:00:19 GMT
+
+https://screenrant.com/hogwarts-legacy-2-multiplayer-gameplay-reactions/
+
+As development continues on the Hogwarts Legacy sequel, fans speculate about potential storylines, multiplayer features, and release date.
+---------
+
+# Prime Video's 5-Part 'Dungeons & Dragons Meets The Princess Bride' Series Still Has A 100% Record
+
+Streaming TV, Masked Recs
+
+Fri, 08 May 2026 11:00:19 GMT
+
+https://screenrant.com/prime-video-critical-role-legends-of-vox-machina-perfect-record/
+
+Balancing comedy and fantasy across multiple seasons is a tricky task, but a pair of Amazon Prime Video shows make juggling the two seem effortless.
+---------
+
+# Elden Ring: Academy Of Raya Lucaria Officially Announced
+
+Gaming, Elden Ring
+
+Fri, 08 May 2026 10:30:20 GMT
+
+https://screenrant.com/elden-ring-raya-lucaria-official-announcement/
+
+Bandai Namco releases an official Elden Ring-inspired collector's box, showcasing the Academy of Raya Lucaria.
+---------
+
+# Marvel's Wolverine Official Release Date Update Shared By Insomniac Games
+
+Gaming, Marvel, Marvel's Wolverine, Wolverine
+
+Fri, 08 May 2026 10:20:55 GMT
+
+https://screenrant.com/marvel-wolverine-playstation-release-date-update-may-2026/
+
+Insomniac Games officially confirms Marvel's Wolverine release date for September 2026 on PS5, setting the stage for a brutal and bloody action game.
+---------
+
+# Netflix's New Harlan Coben Adaptation Starring Sam Worthington & Milo Ventimiglia Officially Sets Release Date
+
+TV, I Will Find You
+
+Fri, 08 May 2026 11:30:13 GMT
+
+https://www.cbr.com/netflix-harlan-coben-i-will-find-you-release-date/
+
+The bestselling author brings another one of his gripping novels to Netflix as a new 8-part series.
+---------
+
+# The X-Files’ "Detour" is Still Its Most Underrated Monster Episode
+
+TV, The X-Files
+
+Fri, 08 May 2026 11:30:13 GMT
+
+https://www.cbr.com/the-x-files-detour-scariest-monster-episode/
+
+The X-Files' "Detour" episode is still its scariest monster episode, and yet nobody ever talks about it.
+---------
+
+# After 4-Year Wait, Robert Pattinson's The Batman 2 Finally Gets First Look
+
+Movies, The Batman – Part II
+
+Fri, 08 May 2026 11:00:12 GMT
+
+https://www.cbr.com/mat-reeves-the-batman-2-teaser-image-batmobile/
+
+Matt Reeves reveals an exciting first look from the set of The Batman: Part 2 that shows The Dark Knight getting an epic upgrade.
+---------
+
+# 10 DC Characters DC Comics Completely Wasted
+
+Comics, DC Comics
+
+Fri, 08 May 2026 11:00:12 GMT
+
+https://www.cbr.com/major-dc-characters-that-were-wasted-potential/
+
+Why did DC Comics give up on these characters so easily?
+---------
+
+# 10 Greatest DC Movie Climaxes, Ranked
+
+Movie, DC, Superhero, Watchmen, The Dark Knight Rises
+
+Fri, 08 May 2026 11:45:14 GMT
+
+https://collider.com/best-dc-movie-climaxes-ranked/
+
+DC superhero movies like The Dark Knight Rises, Watchmen, and Superman have some of the best, most exciting climaxes in the genre's history.
+---------
+
+# 10 Greatest Horror Shows Worth Watching Over and Over
+
+TV, Horror, Hannibal, The Vampire Diaries, Supernatural
+
+Fri, 08 May 2026 11:41:13 GMT
+
+https://collider.com/best-horror-shows-worth-watching-over-and-over/
+
+If you are courageous enough, grab some popcorn, a few non-fearful friends, and begin binge-watching these titles that will disturb you yet amaze you.
+---------
+
+# 10 Greatest Space Opera Movie Masterpieces of All Time, Ranked
+
+Movie, Sci-Fi, Star Wars, Serenity, The Empire Strikes Back
+
+Fri, 08 May 2026 11:36:14 GMT
+
+https://collider.com/best-space-opera-movie-masterpieces-of-all-time-ranked/
+
+The Empire Strikes Back, Dune: Part Two, and The Fifth Element are all among the absolute best space opera movies ever made.
+---------
+
+# Prime Video's 10/10 Fantasy Series Officially Returns Next Week After 3-Year Wait
+
+TV News, Good Omens, Prime Video, Fantasy, Michael Sheen
+
+Fri, 08 May 2026 11:31:12 GMT
+
+https://collider.com/david-tennant-michael-sheen-fantasy-series-good-omens-streaming-prime-video-release-date-may-13-2026/
+
+A long-delayed Prime Video fantasy finale returns as a condensed endgame where divine hierarchy fractures and an unlikely bond is tested.
+---------
+
+# 10 Thriller Shows That Are Even Better the Second Time Around
+
+TV, Thriller, The Night Agent, Behind Her Eyes, Orphan Black
+
+Fri, 08 May 2026 11:22:14 GMT
+
+https://collider.com/best-thriller-shows-to-rewatch/
+
+Dive into some of the most thrilling TV series that become even more compelling on a second viewing, including You, Dark, and The Night Agent.
+---------
+
+# 8 Worst Movies That Tried To Be the Next 'Lord of the Rings,' Ranked
+
+Movie, Fantasy, The Golden Compass, The Hobbit: The Battle of the Five Armies, The Lord of the Rings
+
+Fri, 08 May 2026 11:21:13 GMT
+
+https://collider.com/worst-lord-of-the-rings-movie-ripoffs/
+
+Fantasy misfires The Golden Compass, Mortal Engines, and Eragon are all movies that tried and failed to capture the magic of The Lord of the Rings.
+---------
+
+# Alfred Hitchcock's 6 Greatest Black and White Masterpieces, Ranked
+
+Movie, Alfred Hitchcock, Psycho, Classics, Notorious
+
+Fri, 08 May 2026 11:07:13 GMT
+
+https://collider.com/alfred-hitchcock-best-black-and-white-movies/
+
+Classic thrillers like Psycho, Strangers on a Train, and Notorious are all among Alfred Hitchcock's best black and white movie masterpieces.
+---------
+
+# Michael B. Jordan's 'Swapped' Is a Pokémon Movie Mirroring Real World Conflict | Review
+
+Movie Reviews, Swapped, Michael B. Jordan, Juno Temple, Netflix
+
+Fri, 08 May 2026 11:03:13 GMT
+
+https://collider.com/swapped-movie-review-michael-b-jordan-juno-temple-netflix/
+
+Michael B. Jordan and Juno Temple's Netflix film Swapped is a colorful call for compassion.
+---------
+
+# Jon Bernthal’s Surprise 'The Bear' Return Becomes a Global Streaming Hit Ahead of the Final Season
+
+Movie News, Jon Bernthal, The Bear, Ebon Moss-Bachrach, Drama
+
+Fri, 08 May 2026 11:00:13 GMT
+
+https://collider.com/jon-bernthal-surprise-the-bear-prequel-gary-global-streaming-success-hulu-may-2026/
+
+A devastating new chapter from one of TV’s most emotionally chaotic worlds just erupted into a massive global streaming hit. Find out more here.
+---------
+
+# 8 Most Perfect TV Dramas of the Last 25 Years, Ranked
+
+TV, Television, The Pitt, The Sopranos, Breaking Bad
+
+Fri, 08 May 2026 10:48:13 GMT
+
+https://collider.com/most-perfect-tv-drama-shows-last-25-years-ranked/
+
+HBO Max's The Pitt, FX's Fargo, and AMC's Better Call Saul are among the best TV dramas of the last 25 years, but which show is the greatest?
+---------
+
+# Steven Spielberg's 'The Terminal' made Roger Ebert "Unreasonably Happy"
+
+Features, The Terminal, Steven Spielberg, Roger Ebert
+
+Fri, 08 May 2026 11:00:17 GMT
+
+https://movieweb.com/the-terminal-roger-ebert-reaction/
+
+After working together on 'Catch Me if You Can,' Steven Spielberg and Tom Hanks reunited for the overlooked feel-good film 'The Terminal.'
+---------
+
+# Netflix's '3 Body Problem' Season 3 Gets Major Production Update
+
+TV News, 3 Body Problem, Netflix, Sci-Fi
+
+Fri, 08 May 2026 10:35:20 GMT
+
+https://movieweb.com/3-body-problem-season-3-production-update/
+
+Netflix's hit sci-fi series '3 Body Problem' has received a major production update, with a date now locked in for filming to begin.
+---------
+
 # The Legend Of Zelda: Echoes Of Hyrule Is A Stunning New 40th Anniversary Release
 
 Gaming, The Legend of Zelda
