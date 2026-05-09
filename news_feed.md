@@ -1,3 +1,245 @@
+# Netflix's 16-Part Hit With An All-Star Cast Revived A Dead Genre
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 21:30:19 GMT
+
+https://screenrant.com/wednesday-netflix-revive-goth-genre/
+
+Netflix's Addams Family spinoff Wednesday brought goth back into the mainstream for the first time since Twilight, which wasn't very gothy at all.
+---------
+
+# Kevin Costner's Failed Blockbuster Waterworld Is Streaming Now On Netflix
+
+Movies, Waterworld, Kevin Costner
+
+Sat, 09 May 2026 21:30:19 GMT
+
+https://screenrant.com/waterworld-movie-kevin-costner-streaming-netflix-failure/
+
+The expensive blockbuster that changed Kevin Costner's career is streaming now on Netflix, but how does the post-apocalyptic Western hold up?
+---------
+
+# For All Mankind Season 5 Redeems An Underrated Marvel Casting From 11 Years Ago
+
+Streaming TV, For All Mankind
+
+Sat, 09 May 2026 21:15:20 GMT
+
+https://screenrant.com/for-all-mankind-season-5-toby-kebbel-doctor-doom-marvel-casting-redeem/
+
+For All Mankind season 5 has exposed how much one character resembles a major Marvel role that the same actor was cast in more than a decade ago.
+---------
+
+# All 7 Banned Star Trek Episodes, Explained
+
+TV, Star Trek, Explainer, Quiz CV
+
+Sat, 09 May 2026 21:15:20 GMT
+
+https://screenrant.com/star-trek-banned-episodes-explained/
+
+Though the Star Trek franchise is generally considered safe for viewers of all ages, a few episodes have been banned in the past.
+---------
+
+# Robert De Niro’s Latest Netflix Series Is A Modern Version Of Cinema’s Greatest Murder Mystery
+
+Movies, The Whisper Man, M
+
+Sat, 09 May 2026 21:00:19 GMT
+
+https://screenrant.com/robert-de-niro-whisper-man-netflix-modern-m-fritz-lang/
+
+Robert De Niro has a new Netflix movie coming out this summer with a plot that's remarkably similar to cinema's original crime-procedural masterpiece.
+---------
+
+# Alan Ritchson's Motor City: A Risky Action Thriller with Minimal Dialogue
+
+Movies, Motor City, Alan Ritchson
+
+Sat, 09 May 2026 21:00:19 GMT
+
+https://screenrant.com/motor-city-alan-ritchson-silence-gimmick-silent-night/
+
+Alan Ritchson will front his riskiest action movie yet in 2026, whose unique selling point also risks turning audiences away, as another film proves.
+---------
+
+# Xbox Game Pass Drops A Massive Day-One Release May 14
+
+Gaming, Xbox Game Pass, Subnautica 2, Indie Games, PC
+
+Sat, 09 May 2026 21:00:19 GMT
+
+https://screenrant.com/xbox-game-pass-subnautica-2-may-14/
+
+Day-one releases are still a major draw for Xbox Game Pass, and a very highly anticipated title will be debuting on the service on May 14.
+---------
+
+# 7 Harsh Realities Of Rewatching The Office Series Finale, 13 Years Later
+
+Classic TV, The Office
+
+Sat, 09 May 2026 20:45:20 GMT
+
+https://screenrant.com/the-office-series-finale-rewatch-harsh-realities/
+
+The Office's series finale managed to redeem a shaky final season with a satisfying ending. But, 13 years later, does it still hold up to a rewatch?
+---------
+
+# 8 Best Jenna Ortega Movie & Show Roles You Never Knew Existed
+
+Movies, Jenna Ortega, Recommendation
+
+Sat, 09 May 2026 20:45:20 GMT
+
+https://screenrant.com/jenna-ortega-best-movie-show-roles-underrated/
+
+Jenna Ortega is well known for her work in Wednesday and the Scream franchise, yet these are her most impressive lesser-known roles you should see.
+---------
+
+# Dexter: New Blood Ending Backlash Fueled Death Threats
+
+Movies, Dexter: New Blood
+
+Sat, 09 May 2026 20:39:10 GMT
+
+https://screenrant.com/dexter-new-blood-ending-son-backlash-jack-alcott-death-threats/
+
+One of Dexter: New Blood's stars faced intense fan backlash due to the show's season 1 finale, which led to multiple death threats.
+---------
+
+# Kurt Russell's Monarch: Legacy of Monsters Is Still Fighting Its Way Up the Apple TV Charts 1 Week After Finale
+
+TV, Monarch: Legacy of Monsters
+
+Sat, 09 May 2026 21:30:13 GMT
+
+https://www.cbr.com/kurt-russell-monarch-legacy-of-monsters-creature-feature-apple-tv-success-may-2026/
+
+One of the most underrated creature feature series is making a run for the top of the streaming charts after its epic Season 2 finale.
+---------
+
+# 13 Movies That Have Made $1 Billion At The Box Office Since 2020, Ranked
+
+Movies, Barbie, Ne Zha 2, Spider-Man: No Way Home
+
+Sat, 09 May 2026 21:30:13 GMT
+
+https://www.cbr.com/billion-dollar-box-office-movies-2020s-ranked/
+
+From Spider-Man: No Way Home to Avatar: Fire and Ash, these films managed to make $1 billion in a post-pandemic world.
+---------
+
+# 8 Funniest Billy Butcher Quotes From The Boys
+
+TV, The Boys
+
+Sat, 09 May 2026 21:30:13 GMT
+
+https://www.cbr.com/funniest-billy-butcher-quotes-the-boys/
+
+The Boys' Billy Butcher has a way with words, especially when he's on a rant, and Karl Urban carries off every line to perfection.
+---------
+
+# 7 Forgotten 2000s Anime Series That Have Aged Like Fine Wine
+
+Anime, Samurai Champloo, Ergo Proxy, Texhnolyze, Gankutsuou The Count of Monte Cristo, Moribito: Guardian Of The Spirit, Darker Than Black, Now and Then, Here and There
+
+Sat, 09 May 2026 21:15:13 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-series-that-aged-well/
+
+An exploration of the best forgotten anime of the 2000s, analyzing their impact and artistry.
+---------
+
+# Marvel Comics Reveals New Horror Line Launching This Fall
+
+Comics, Marvel
+
+Sat, 09 May 2026 21:01:12 GMT
+
+https://www.cbr.com/marvel-comics-midnight-universe-fall-2026-release/
+
+Marvel is introducing a new initiative poised to leave readers spooked.
+---------
+
+# 5 Reasons It's Tough To Watch The Mummy Today
+
+Movies, The Mummy, Horror
+
+Sat, 09 May 2026 21:01:12 GMT
+
+https://www.cbr.com/brendan-fraser-the-mummy-tough-to-rewatch-list/
+
+In 1999, Stephen Sommers helped bring horror to a new height when he rebooted The Mummy, but it's undeniable parts of the franchise didn't age well.
+---------
+
+# Rebecca Ferguson's Sci-Fi Take on 'The Lincoln Lawyer' Is a Late-Night Streaming Hit
+
+Movie News, Mercy, Sci-Fi, The Lincoln Lawyer, Rebecca Ferguson
+
+Sat, 09 May 2026 21:30:13 GMT
+
+https://collider.com/rebecca-ferguson-chris-pratt-sci-fi-thriller-mercy-streaming-success-prime-video-may-2026-lincoln-lawyer-replacement/
+
+Mercy, starring Chris Pratt and Rebecca Ferguson, is now streaming after its theatrical run earlier this year. Find out more here.
+---------
+
+# Prime Video’s New 8-Part Detective Saga Feels Like Guy Ritchie at His Absolute Best
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Hero Fiennes Tiffin
+
+Sat, 09 May 2026 21:15:14 GMT
+
+https://collider.com/guy-ritchie-detective-saga-series-young-sherlock-streaming-success-prime-video-may-2026/
+
+Young Sherlock, Prime Video’s hit detective series from Guy Ritchie, is now streaming. Here's everything you should know.
+---------
+
+# HBO’s Greatest Fantasy Series Reminds the World Why the Genre Matters
+
+TV Features, Game Of Thrones, HBO, HBO Max, Fantasy
+
+Sat, 09 May 2026 21:10:13 GMT
+
+https://collider.com/hbo-game-of-thrones-greatest-fantasy-series/
+
+Game of Thrones revolutionized the fantasy genre with its complex characters, shocking twists, and groundbreaking visuals, setting the standard for modern fantasy series.
+---------
+
+# ‘Taken’ Meets ‘Sicario’ in Netflix’s New Revenge Thriller Series
+
+TV News, Taken, Man on Fire, Netflix, Yahya Abdul-Mateen II
+
+Sat, 09 May 2026 21:00:13 GMT
+
+https://collider.com/yahya-abdul-mateen-ii-revenge-thriller-series-man-on-fire-netflix-streaming-success-netflix-may-2026-taken-sicario/
+
+Based on the Denzel Washington film, Man on Fire, Netflix’s new revenge thriller series starring Yahya Abdul-Mateen II, is now streaming.
+---------
+
+# Ryan Murphy’s Controversial 9-Part Drama Is Officially Taking Over America
+
+TV Features, Love Story, FX, Drama, Ryan Murphy
+
+Sat, 09 May 2026 20:48:13 GMT
+
+https://collider.com/ryan-murphy-love-story-fx-drama-apple-tv-streaming/
+
+Ryan Murphy's controversial nine-part drama, Love Story: JFK Jr. and Carolyn Bessette, is finding a new audience on streaming platforms.
+---------
+
+# 'Station Eleven': HBO's Sci-Fi Miniseries With Near-Perfect Rotten Tomatoes Score
+
+Features, Station Eleven, Cultural Reassessment
+
+Sat, 09 May 2026 21:00:17 GMT
+
+https://movieweb.com/hbo-station-eleven-sci-fi-miniseries-hidden-gem/
+
+Released during the height of the COVID-19 crisis, HBO's highly acclaimed sci-fi miniseries 'Station Eleven' is worth a second look.
+---------
+
 # Hacks Season 5 Just Gave Deborah & Ava's Shippers Everything They Wanted
 
 Streaming TV, Hacks
