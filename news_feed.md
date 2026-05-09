@@ -1,3 +1,212 @@
+# Hacks Season 5 Just Gave Deborah & Ava's Shippers Everything They Wanted
+
+Streaming TV, Hacks
+
+Sat, 09 May 2026 20:15:19 GMT
+
+https://screenrant.com/hacks-season-5-deborah-ava-fake-courtship-wink-fans/
+
+Hacks season 5 hasn't made Deborah and Ava a romantic couple, and probably never will, but it has given their shippers the next best thing.
+---------
+
+# The Last Of Us Makes Official Return This October
+
+Gaming, The Last of Us, The Last of Us: Part 1, PC
+
+Sat, 09 May 2026 20:00:19 GMT
+
+https://screenrant.com/last-of-us-october-joel-masterpiece-release/
+
+The Last of Us is set for an official return later this year featuring the franchise's most iconic main character in a stunning new release.
+---------
+
+# Spring 2026’s Best Anime Has Been Officially Crowned With a Near-Perfect Audience Rating
+
+Anime, Witch Hat Atelier
+
+Sat, 09 May 2026 20:00:19 GMT
+
+https://screenrant.com/witch-hat-atellier-spring-2026-best-anime-near-perfect/
+
+With a 4.9 viewer rating on Crunchyroll, Ayumu Watanabe's Witch Hat Atelier is Spring 2026's best anime.
+---------
+
+# Hugh Jackman Extends Stellar Rotten Tomatoes Streak With The Sheep Detectives
+
+Movies, The Sheep Detectives
+
+Sat, 09 May 2026 19:58:21 GMT
+
+https://screenrant.com/the-sheep-detectives-rotten-tomatoes-audience-score-hugh-jackman-streak/
+
+After starring in Deadpool & Wolverine and Song Sung Blue, Hugh Jackman's new mystery movie extends a stellar Rotten Tomatoes streak for the actor.
+---------
+
+# 3 Best Shows To Watch On Disney+ This Weekend: May 9–10, 2026
+
+Streaming TV, Disney+, What to Watch on Disney Plus
+
+Sat, 09 May 2026 19:42:20 GMT
+
+https://screenrant.com/best-disney-plus-shows-watch-weekend-may-9/
+
+The top shows on Disney+ this weekend, including the #1 most-watched series The Testaments, Daredevil: Born Again, and Star Wars: Maul - Shadow Lord.
+---------
+
+# Universal Horror Unleashed In Las Vegas Offers Brave Fans Year-Round Nightmares
+
+Exclusive, Universal Studios, Horror
+
+Sat, 09 May 2026 19:39:57 GMT
+
+https://screenrant.com/universal-horror-unleashed-las-vegas-monsters/
+
+ScreenRant visits Universal Horror Unleashed in Las Vegas, complete with haunted houses, frightful feasts, live performances, and more.
+---------
+
+# Jennifer Aniston & Julia Roberts' Mother's Day Tops Paramount+ Charts
+
+Movies, Mother's Day, Paramount+ with Showtime
+
+Sat, 09 May 2026 20:30:12 GMT
+
+https://www.cbr.com/jennifer-aniston-julia-roberts-mothers-day-paramount-success-may-2026/
+
+Jennifer Aniston and Julia Roberts' star-studded Mother's Day film tops Paramount+ charts in the US, surpassing Tom Cruise's Top Gun: Maverick.
+---------
+
+# 5 Lord of the Rings Characters That Rival Sauron’s Power, Ranked
+
+Movies, The Lord of the Rings, peter jackson, Fantasy
+
+Sat, 09 May 2026 20:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-characters-more-powerful-sauron-ranked-list/
+
+Sauron may be the Dark Lord who nearly took over Middle-earth, but these Lord of the Rings characters are even more powerful.
+---------
+
+# 5 Best Steamy Shows to Watch on HBO Max Right Now
+
+TV, Game Of Thrones, Euphoria, HBO Max, The White Lotus
+
+Sat, 09 May 2026 20:30:12 GMT
+
+https://www.cbr.com/best-steamy-shows-on-hbo-max-right-now/
+
+Viewers know that HBO Max always has sultry shows available for them.
+---------
+
+# 21 Years Later, Piccolo's Greatest DBZ Quote is One of the Best in Shonen
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Sat, 09 May 2026 20:15:13 GMT
+
+https://www.cbr.com/dbz-best-dragon-ball-piccolo-quote-in-shonen/
+
+Piccolo has always been one of Dragon Ball Z's most important players, but a simple line to Gohan early on in the series speaks volumes for their bond
+---------
+
+# The 10 Most Universally Beloved War Movies of All Time, Ranked
+
+Movies, War, Saving Private Ryan, 1917
+
+Sat, 09 May 2026 20:00:13 GMT
+
+https://www.cbr.com/most-beloved-war-movies-of-all-time-list/
+
+War movies are a constant in cinema, but only a handful have stood the test of time and remain loved by all who watch them.
+---------
+
+# One Piece Is About to Officially End the Zoro vs. Sanji Debate
+
+Anime, One Piece
+
+Sat, 09 May 2026 20:00:13 GMT
+
+https://www.cbr.com/one-piece-zoro-vs-sanji-debate-end-august-2026/
+
+The official global One Piece popularity poll is nearing its conclusion, and it will finally end the debate over who is better: Zoro or Sanji.
+---------
+
+# The Ocarina of Time Remake Needs to Bring Yusuke Nakano's Art Back
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Sat, 09 May 2026 19:51:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-art-style-yusuke-nakano/
+
+There are many approaches Nintendo could take to the OOT remake’s art style, but iconic Zelda artist Yusuke Nakano already gave it the perfect one.
+---------
+
+# 9 Years Later, HBO Max Is Losing the Most Visually Stunning MonsterVerse Movie
+
+Movie News, Kong: Skull Island, HBO Max, MonsterVerse, King Kong
+
+Sat, 09 May 2026 20:31:13 GMT
+
+https://collider.com/monsterverse-stunning-sci-fi-thriller-kong-skull-island-leaving-hbo-max-may-2026/
+
+Jordan Vogt-Roberts' Kong: Skull Island, one of the top-reviewed installments of the MonsterVerse franchise, is leaving HBO Max soon.
+---------
+
+# One of Cinema's Greatest Performances Was Rediscovered in a Janitor's Closet After 50 Years
+
+Movie Features, The Passion Of Joan Of Arc, Classics
+
+Sat, 09 May 2026 20:29:12 GMT
+
+https://collider.com/the-passion-of-joan-of-arc-falconetti-performance-lost-janitors-closet/
+
+The Passion of Joan of Arc is a silent film masterpiece, with Falconetti’s iconic performance nearly lost for good before its rediscovery.
+---------
+
+# 10 Worst Remakes of Beloved Action Movies, Ranked
+
+Movie, Action, Point Break, Rollerball, The Crow
+
+Sat, 09 May 2026 20:05:13 GMT
+
+https://collider.com/worst-remakes-of-beloved-action-movies/
+
+From Death Wish to The Crow, these remakes reveal how losing character, tone, and purpose kills even the most beloved action classics.
+---------
+
+# Forget ‘Gone Girl,’ Sydney Sweeney’s Twisted New Thriller Is the Perfect Late-Night Watch
+
+Movie News, The Housemaid, Thriller, Sydney Sweeney, Amanda Seyfried
+
+Sat, 09 May 2026 20:00:13 GMT
+
+https://collider.com/sydney-sweeney-amanda-seyfried-twisted-thriller-the-housemaid-streaming-success-starz-may-2026/
+
+The twisty new thriller, The Housemaid, starring Sydney Sweeney and Amanda Seyfried, is now a streaming success. Here's what you should know.
+---------
+
+# The 15 Greatest 'The Far Side' Comics of the '80s
+
+Movie Lists
+
+Sat, 09 May 2026 20:30:17 GMT
+
+https://movieweb.com/far-side-comics-best-80s/
+
+Gary Larson's first decade producing The Far Side was one of the most creative periods in comic strip history.
+---------
+
+# 8 Classic American War Movies That Haven't Aged Well
+
+Movie Lists, War
+
+Sat, 09 May 2026 20:00:17 GMT
+
+https://movieweb.com/american-war-movies-that-havent-aged-well/
+
+These classic war movies have their strengths, but that doesn't free them from controversy for one reason or another.
+---------
+
 # Peacock's 8-Part Thriller That's "You Meets Big Little Lies" Deserves Its Streaming Success
 
 Streaming TV, Masked Recs
