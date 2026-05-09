@@ -1,3 +1,168 @@
+# Homelander's Antony Starr Shares Hot Take On Thanos' Philosophy In The Avengers Movies
+
+Movies, Marvel Cinematic Universe, Thanos, Antony Starr
+
+Sat, 09 May 2026 18:10:00 GMT
+
+https://screenrant.com/homelander-antony-starr-favorite-villain-thanos-assessment/
+
+Antony Starr plays Homelander in The Boys, but when it comes to the Marvel Cinematic Universe, he has a hot take on Thanos' philosophy.
+---------
+
+# Angelina Jolie's Best Performance Ever Is In A Made-For-TV Movie For HBO From Nearly 30 Years Ago
+
+Movies, Gia, Angelina Jolie, Op-Ed
+
+Sat, 09 May 2026 18:05:19 GMT
+
+https://screenrant.com/angelina-jolie-best-performance-gia-hbo/
+
+Angelina Jolie has had a career filled with great performances, including an Oscar nomination, but her best work was from a made-for-TV film.
+---------
+
+# Zelda Next-Gen Remake Footage Has Us Hyped For The Future
+
+Gaming, The Legend of Zelda: Breath of the Wild, The Legend of Zelda
+
+Sat, 09 May 2026 18:01:22 GMT
+
+https://screenrant.com/legend-of-zelda-next-gen-remake-pc-unofficial/
+
+Breath of the Wild is already one of the best looking games on the Switch, but on PC it's a whole different ball game.
+---------
+
+# A Star Wars Icon Just Solved Decades Of Continuity Issues With One Legendary Quote
+
+Star Wars, Star Wars: Maul - Shadow Lord
+
+Sat, 09 May 2026 18:01:22 GMT
+
+https://screenrant.com/star-wars-continuity-issues-sam-witwer-quote/
+
+Star Wars lore branches far beyond one sweeping generation in what is considered canon, but it may be a lot simpler than that.
+---------
+
+# 11 Dystopian Books Better Than The Hunger Games
+
+Books, The Hunger Games
+
+Sat, 09 May 2026 18:01:22 GMT
+
+https://screenrant.com/dystopian-books-better-than-the-hunger-games/
+
+If The Hunger Games was just an appetizer, there's over a century of dystopian fiction providing a hearty meal of political intrigue and revolution.
+---------
+
+# 10 Greatest Superhero Secret Identity Reveals In Movies & TV, Ranked
+
+Movies, Marvel Cinematic Universe, DC Universe, Spider-Man 2, Spider-Man: Homecoming, Spider-Man: Far from Home, Spider-Man: Into The Spider-Verse, Batman Returns, Harley Quinn, Iron Man, Superman & Lois, Daredevil: Born Again, Captain America: The Winter Soldier
+
+Sat, 09 May 2026 17:45:20 GMT
+
+https://screenrant.com/best-superhero-secret-identity-reveals-movies-tv-ranked/
+
+From Spider-Man to Superman, these superhero secret identity reveals from movies and TV shocked audiences and changed their stories forever.
+---------
+
+# The Sheep Detectives Earns Hugh Jackman's Biggest Non-Marvel Box Office Debut In 11 Years
+
+Movies, Box Office, The Sheep Detectives
+
+Sat, 09 May 2026 17:37:50 GMT
+
+https://screenrant.com/the-sheep-detectives-domestic-box-office-debut-hugh-jackman-comparison/
+
+Hugh Jackman's new comedy movie The Sheep Detectives earns the Oscar-nominated star his biggest non-Marvel domestic opening weekend in over a decade.
+---------
+
+# Priyanka Chopra’s Prime Video Spy Series Citadel Returns With Stronger Rotten Tomatoes Score
+
+TV, Rotten Tomatoes, Citadel
+
+Sat, 09 May 2026 18:02:37 GMT
+
+https://www.cbr.com/priyanka-chopra-citadel-audience-rotten-tomatoes-score/
+
+The series is one of the most expensive shows of all time.
+---------
+
+# Hatsune Miku Gets Massive New Mecha Upgrade in First-Look Design Reveal
+
+Anime, Hatsune Miku, merchandise, toys, kotobukiya
+
+Sat, 09 May 2026 18:01:15 GMT
+
+https://www.cbr.com/hatsune-miku-grande-scale-frame-music-girl-kotobukiya-model-kit/
+
+Hatsune Miku gets an upgrade in her newest Kotobukiya collectible model kit, complete with singing accessories and a pre-order bonus for her hair.
+---------
+
+# Pixar's Coco Hits Even Even Harder Than Disney's Encanto
+
+Movies, Encanto, Coco
+
+Sat, 09 May 2026 18:01:15 GMT
+
+https://www.cbr.com/pixar-coco-more-emotional-than-encanto/
+
+Encanto struck many hearts with its deep themes, but Pixar's Coco did the same and left an even larger impression that is still felt today.
+---------
+
+# This Forgotten 1990 Wolverine Comic Introduced Rare Marvel Universe Lore
+
+CBR Exclusives, X-Men
+
+Sat, 09 May 2026 18:01:15 GMT
+
+https://www.cbr.com/wolverine-bloodlust-neuri-obscure-marvel-lore/
+
+A surprisingly relevant Wolverine story introduces an underutilized corner of the Marvel universe while offering an important message at its core.
+---------
+
+# ‘Ocean’s Eleven’ Meets ‘Doctor Strange’ in Woody Harrelson's Hidden Gem Heist Sequel
+
+Movie News, Now You See Me: Now You Don't, Lionsgate, Woody Harrelson, Jesse Eisenberg
+
+Sat, 09 May 2026 18:00:15 GMT
+
+https://collider.com/woody-harrelson-heist-thriller-now-you-see-me-now-you-dont-streaming-success-starz-may-2026/
+
+Woody Harrelson's Now You See Me: Now You Don’t is now streaming after bringing back the magical heist franchise. Read on for more.
+---------
+
+# Forget ‘Daredevil: Born Again’: These 7 Series Have Much Better Action
+
+TV, Daredevil: Born Again, Action, Warrior, The Boys
+
+Sat, 09 May 2026 17:58:15 GMT
+
+https://collider.com/daredevil-born-again-shows-with-better-action/
+
+The Boys, Peacemaker, The Continental: From the World of John Wick, and more make up our list of shows with better action than Daredevil: Born Again.
+---------
+
+# Indiana Jones Movies in Order Chronologically and by Release Date
+
+Movie Lists, Indiana Jones, Harrison Ford
+
+Sat, 09 May 2026 18:01:21 GMT
+
+https://movieweb.com/indiana-jones-movies-in-order/
+
+Indiana Jones movies in chronological order from start to finish, including a complete breakdown of every film in the franchise.
+---------
+
+# ‘Locke & Key’ Is Netflix's Only Fantasy Series That's Perfect From Start To Finish
+
+Features, Locke and Key, Netflix
+
+Sat, 09 May 2026 18:01:20 GMT
+
+https://movieweb.com/locke-and-key-perfect-netflix-fantasy/
+
+'Locke and Key,' the fantasy Netflix series starring Emilia Jones, Connor Jessup, and Darby Stanchfield, streamed for three seasons.
+---------
+
 # The Boys Deleted Scene Reveals Jensen Ackles' True Tribute To Supernatural
 
 TV, The Boys, Supernatural
