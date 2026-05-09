@@ -1,3 +1,223 @@
+# Red Dead Redemption 2 Free Download Available For Just 48 Hours
+
+Gaming, Red Dead Redemption 2
+
+Sat, 09 May 2026 04:45:18 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-free-48-hours/
+
+Rockstar's Red Dead Online hosts 'The Naturalist' event in May, offering players 4X RDO$ and XP for completing challenges.
+---------
+
+# The Witcher 3's Geralt Officially Returns In New Sequel On May 13
+
+Gaming, The Witcher 3: Wild Hunt, PC
+
+Sat, 09 May 2026 04:30:18 GMT
+
+https://screenrant.com/witcher-3-wild-hunt-geralt-blood-stone-4/
+
+The Witcher 3: Wild Hunt features one of the most popular depictions of Geralt out there, and he's making an epic return on May 13 in a new adventure.
+---------
+
+# Cyberpunk 2077 Free Download Officially Announced
+
+Gaming, Cyberpunk 2077
+
+Sat, 09 May 2026 04:15:18 GMT
+
+https://screenrant.com/cyberpunk-2077-wuthering-waves-free-rebecca-download/
+
+Discover the exciting collaboration between Wuthering Waves and Cyberpunk: Edgerunners, featuring Edgerunners characters Lucy and Rebecca.
+---------
+
+# Bloodborne's First-Person Mode Makes It A Completely New Game
+
+Gaming, Bloodborne, Triple-A Games
+
+Sat, 09 May 2026 04:01:25 GMT
+
+https://screenrant.com/bloodborne-first-person-mod-fromsoftware/
+
+It looks like it's time to revisit Bloodborne again, amid annual community efforts to ensure that the Return to Yharnam event continues on.
+---------
+
+# Titus Welliver’s Impressive Performance In Just 3 Episodes Of This Sci-Fi Masterpiece Is Better Than Bosch
+
+Streaming TV, Lost, Titus Welliver, Bosch
+
+Sat, 09 May 2026 03:41:02 GMT
+
+https://screenrant.com/bosch-titus-welliver-lost-man-in-black-masterpiece/
+
+Titus Welliver is known for playing Harry Bosch, but he also played a vital role in a science-fiction masterpiece with 86% on Rotten Tomatoes.
+---------
+
+# 30 Must-Watch Anime Series For Adult Fans
+
+Anime, Cowboy Bebop
+
+Sat, 09 May 2026 03:30:19 GMT
+
+https://screenrant.com/best-anime-series-adult-fans/
+
+Sometimes, adult anime fans can exhausted with high school romances and teenage leads. Thankfully, there are plenty of shows for older fans.
+---------
+
+# Kingdom Come Deliverance Officially Returns With Brand-New Release
+
+Gaming, Kingdom Come: Deliverance II, Triple-A Games, PC
+
+Sat, 09 May 2026 03:00:20 GMT
+
+https://screenrant.com/kingdom-come-deliverance-2-limited-time-perfume/
+
+Just when we thought we'd seen it all, Kingdom Come's latest releases are something even long-time fans of the series could never have seen coming.
+---------
+
+# Prime Video's 16-Part Action Series Is The Perfect Mix Of Invincible & The Umbrella Academy
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 03:00:20 GMT
+
+https://screenrant.com/gen-v-prime-video-mix-invincible-umbrella-academy/
+
+Prime Video is the streaming home of a 16-part action show that seems like the perfect mix of some of Invincible and Umbrella Academy’s best aspects.
+---------
+
+# Lost Meets From In Apple TV’s New 10-Part Horror Comedy Hit
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 02:30:19 GMT
+
+https://screenrant.com/lost-from-widow-bay-apple-tv-horror/
+
+Apple TV’s new horror comedy series seems to combine some of the story elements of both From and Lost, but one thing makes it completely stand out.
+---------
+
+# 10 Classic Anime That Need New Seasons ASAP (#1 Is Undeniable)
+
+Anime
+
+Sat, 09 May 2026 02:11:41 GMT
+
+https://screenrant.com/classic-anime-need-new-seasons/
+
+Explore 10 classic anime series that left fans wanting more, with unfinished storylines and untapped potential, and deserve a full comeback.
+---------
+
+# 6 Near-Perfect Heist Movies Nobody Remembers
+
+Movies, Crime, No Sudden Move, Charley Varrick
+
+Sat, 09 May 2026 03:45:12 GMT
+
+https://www.cbr.com/near-perfect-heist-movies-nobody-remembers-list/
+
+From old-school classics to modern comedic twists, these are some of the greatest underrated heist movies of the past six decades.
+---------
+
+# 10 Anime With Unreliable Narrators That Will Melt Your Brain
+
+Anime, The Tatami Galaxy, Monogatari
+
+Sat, 09 May 2026 03:45:12 GMT
+
+https://www.cbr.com/brain-melting-anime-with-unreliable-narrators-list/
+
+These anime series will make viewers question everything they think they know about storytelling and unreliable narrators.
+---------
+
+# Why Fans of The Boys Need to Check Out This Under-Appreciated Series
+
+TV, The Boys, Banshee, Crime
+
+Sat, 09 May 2026 03:30:12 GMT
+
+https://www.cbr.com/the-boys-fans-should-check-out-banshee-underappreciated-series/
+
+While Antony Starr became an overnight star on The Boys, few viewers realize he played an equally compelling character in a much different role.
+---------
+
+# Garry's Mod's Sequel Leaves Gamers Unimpressed
+
+Games, Steam, Half-Life, Video Games
+
+Sat, 09 May 2026 03:16:12 GMT
+
+https://www.cbr.com/gmod-garrys-mod-sbox-steam-controversy/
+
+The new Garry's Mod game leaves plenty to be desired, which is a consensus held by many gamers.
+---------
+
+# SEGA Partners With Seiko for 65th Anniversary Limited-Edition Watch
+
+Anime, sega, merchandise
+
+Sat, 09 May 2026 03:00:13 GMT
+
+https://www.cbr.com/segas-anniversary-seiko-watch-international-release/
+
+A stylish new duo of watches from Seiko honors video game icon Sega, with the house of Sonic the Hedgehog long predating its legendary mascot.
+---------
+
+# 10 Anime So Disturbing You Can Only Watch Them Once
+
+Anime, Junji Ito Maniac: Japanese Tales of the Macabre, Satoshi Kon, Paranoia Agent, Studio Ghibli
+
+Sat, 09 May 2026 02:45:13 GMT
+
+https://www.cbr.com/most-disturbing-anime/
+
+Whether it's a hard look at the human condition or horrifying psychological devastation, some anime are so disturbing they can't be watched again.
+---------
+
+# 10 Classic Anime Movies That Are Masterpieces From Start to Finish
+
+Anime, Wolf Children, Ghost in the Shell, Akira
+
+Sat, 09 May 2026 02:45:13 GMT
+
+https://www.cbr.com/classic-anime-masterpieces-list/
+
+There is no shortage of iconic anime cinema, but movies like Akira, A Silent Voice, and Angel's Egg are completely without compromise.
+---------
+
+# 10 Greatest Fantasy Books of the Last 25 Years, Ranked
+
+Movie, Fantasy, Books, A Song of Ice and Fire, Harry Potter
+
+Sat, 09 May 2026 04:08:12 GMT
+
+https://collider.com/best-fantasy-books-last-25-years-ranked/
+
+Literary fantasy has thrived in the last 25 years, with books like A Dance with Dragons and Children of Blood and Bone becoming genuine masterpieces.
+---------
+
+# This ‘Office’ Cold Open Was So Offensive NBC Erased It From Existence
+
+TV Features, The Office, Steve Carell, John Krasinski, NBC
+
+Sat, 09 May 2026 03:58:13 GMT
+
+https://collider.com/the-office-most-controversial-cold-open-season-6-haunted-house/
+
+The haunted house cold open was removed from The Office’s Season 6 “Koi Pond” episode after airing just once, and now it’s newly relevant.
+---------
+
+# This Jean-Claude Van Damme Sci-Fi Movie Secretly Spawned One of TV's Best Hidden Gems
+
+TV Features, Timecop, Jean-Claude Van Damme, Sci-Fi, ABC
+
+Sat, 09 May 2026 03:06:14 GMT
+
+https://collider.com/timecop-jean-claude-van-damme-best-sci-fi-movie/
+
+Timecop took Jean-Claude Van Damme's sci-fi film of the same name and gave it more established lore and thrilling time travel adventures.
+---------
+
 # Solo Leveling Meets Food Wars In Streaming's Wildest New Power Fantasy (Exclusive)
 
 Anime, The Legend of Kitchen Soldier, Food Wars, Solo Leveling
