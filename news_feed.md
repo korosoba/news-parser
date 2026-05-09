@@ -1,3 +1,223 @@
+# Mortal Kombat 2 Writer Explains Why One Video Game Fighter Was Cut
+
+Movies, Mortal Kombat II
+
+Sat, 09 May 2026 23:36:39 GMT
+
+https://screenrant.com/mortal-kombat-2-cut-tremor-from-sequel/
+
+Mortal Kombat 2 writer, Jeremy Slater, revealed why he had to cut a fan-favorite video game character from the action-packed sequel.
+---------
+
+# The Sims 4: 22 Highest Paying Careers
+
+Gaming, The Sims, PC, Triple-A Games
+
+Sat, 09 May 2026 23:30:19 GMT
+
+https://screenrant.com/sims-4-highest-paying-careers-best-jobs/
+
+In order to make the most Simoleons and to live as lavishly as possible, players should take advantage of the best-paying careers in The Sims 4.
+---------
+
+# A New Heir to One of the Greatest Isekai Anime is Coming to Crunchyroll
+
+Anime, Crunchyroll
+
+Sat, 09 May 2026 23:30:18 GMT
+
+https://screenrant.com/hanaori-san-still-wants-fight-crunchyroll-successor-devil-part-timer/
+
+A new anime coming soon to Crunchyroll feels like the modern heir to one of the best isekai series and could prove even more satisfying for viewers.
+---------
+
+# Future Generations Will Say Better Call Saul Is Superior To Breaking Bad - Here's Why
+
+Classic TV, Better Call Saul, Breaking Bad
+
+Sat, 09 May 2026 23:30:18 GMT
+
+https://screenrant.com/better-call-saul-beats-breaking-bad-future-generations/
+
+Better Call Saul is the wiser, funnier, and more mature show of the Breaking Bad universe, and it's about time it gets the credit it deserves.
+---------
+
+# Henry Cavill's And David Corenswet's Supermen Become One In DC's 10/10 Live-Action Man Of Steel
+
+Classic TV, Superman & Lois, Superman, DC
+
+Sat, 09 May 2026 23:19:24 GMT
+
+https://screenrant.com/superman-and-lois-tyler-hoechlin-best-live-action-adaptation/
+
+Tyler Hoechlin's portrayal of Superman in Superman & Lois combines the best of Henry Cavill and David Corenswet, creating the most complete live-action version of the iconic character.
+---------
+
+# Tom Holland's 7 Best Movie Roles In Chronological Order
+
+Movies, Tom Holland
+
+Sat, 09 May 2026 23:15:19 GMT
+
+https://screenrant.com/tom-holland-best-movie-roles-chronological-order/
+
+Best known as MCU’s excitable Spider-Man, Tom Holland has given compelling performances in a range of dramas, thrillers, and kids’ movies.
+---------
+
+# Wednesday Season 3 Changing Genres Is Exciting & Worrying For The Same Reason
+
+Streaming TV, Wednesday
+
+Sat, 09 May 2026 23:00:19 GMT
+
+https://screenrant.com/wednesday-season-3-change-genre-exciting-worrying/
+
+Wednesday season 3's genre change will allow the show to prepare for the future, but it risks losing what made it such a hit in the first place, too.
+---------
+
+# Pokémon Winds & Waves Fans Torn On The Mystery Behind The Game's Professor
+
+Gaming, Pokemon, Pokemon Winds and Waves, Triple-A Games
+
+Sat, 09 May 2026 23:00:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-professor-identity-reaction/
+
+The Pokémon fan community is split on their opinions of the professor from the next generation of the franchise, Pokémon Winds & Waves.
+---------
+
+# Elden Ring: Boss Arena Will Push You To Your Limit
+
+Gaming, Elden Ring
+
+Sat, 09 May 2026 23:00:19 GMT
+
+https://screenrant.com/elden-ring-boss-arena-free-download-unofficial/
+
+Discover the Boss Arena mod for Elden Ring, a free download that allows players to fight iconic bosses repeatedly in a new way.
+---------
+
+# Marshals Episode 10 Officially Rewrites Kayce Dutton’s Yellowstone Story
+
+TV, Marshals, CBS, Yellowstone
+
+Sat, 09 May 2026 23:23:40 GMT
+
+https://www.cbr.com/marshals-episode-10-playing-with-fire-kayce-dutton-dolly-weaver/
+
+Marshals Episode 10 rethinks Kayce Dutton's entire Yellowstone story as the CBS spinoff approaches its Season 1 finale and a confirmed Season 2.
+---------
+
+# 10 Most Shocking Anime Betrayals That Still Devestate Fans
+
+Anime
+
+Sat, 09 May 2026 23:15:12 GMT
+
+https://www.cbr.com/most-shocking-anime-betrayals-devestated-fans/
+
+The betrayals of these anime villains didn't just sting; they continue to pain fans who once loved them to this day.
+---------
+
+# Netflix Users Running Out of Time to Binge Bryan Cranston's Your Honor
+
+TV, Your Honor
+
+Sat, 09 May 2026 23:00:12 GMT
+
+https://www.cbr.com/your-honor-exits-netflix-may-2026/
+
+Time is running out for Netflix subscribers to watch Bryan Cranston's first drama series after Breaking Bad.
+---------
+
+# This Weird 4-Part Sci-Fi Thriller From the ’90s Is a True Hidden Gem
+
+TV Features, Wild Palms, Jim Belushi, Robert Loggia, Sci-Fi
+
+Sat, 09 May 2026 23:36:13 GMT
+
+https://collider.com/wild-palms-sci-fi-thriller-miniseries/
+
+Wild Palms was a '90s sci-fi show that anticipated our current era of media control, virtual reality, and tech-driven manipulation.
+---------
+
+# Forget 'The Mummy,' You Can Stream This Brutal New Monster Reboot Right Now
+
+Movie News, Sci-Fi, Lee Cronin's The Mummy, Horror, Lee Cronin
+
+Sat, 09 May 2026 23:30:12 GMT
+
+https://collider.com/lee-cronin-the-mummy-monster-reboot-streaming-prime-video-may-2026/
+
+Lee Cronin’s The Mummy reboot is now streaming after bringing the classic monster franchise back to horror. Read on for details.
+---------
+
+# 14 Years Later, One of the Most Intense War Movies Ever Made Is Leaving Streaming
+
+Movie News, Zero Dark Thirty, Kathryn Bigelow, Jessica Chastain, War
+
+Sat, 09 May 2026 23:15:12 GMT
+
+https://collider.com/most-intense-war-movie-2010s-zero-dark-thirty-leaving-streaming-peacock-june-2026-kathryn-bigelow/
+
+Kathryn Bigelow's landmark espionage procedural, Zero Dark Thirty, is leaving its streaming home soon. Find out when.
+---------
+
+# 2026’s Wildly Divisive Gothic Romance Is Officially Streaming on HBO Max
+
+Movie News, Wuthering Heights, Emerald Fennell, Margot Robbie, Jacob Elordi
+
+Sat, 09 May 2026 23:00:13 GMT
+
+https://collider.com/margot-robbie-jacob-elordi-divisive-gothic-romance-wuthering-heights-streaming-success-hbo-max-may-2026/
+
+Emerald Fennell’s Wuthering Heights is now streaming on HBO Max after dividing critics and audiences in theaters.
+---------
+
+# The Punisher's Absence in Daredevil: Born Again Was Smarter Than You Think
+
+TV Features, Daredevil: Born Again, The Punisher, Daredevil, Disney+
+
+Sat, 09 May 2026 22:49:12 GMT
+
+https://collider.com/the-punisher-daredevil-born-again-season-2-finale-meaning/
+
+The Punisher wasn't in Season 2 of Daredevil: Born Again, because the season needed to conclude with beating Kingpin through logic and not violence.
+---------
+
+# ‘Uncut Gems’ Meets ‘The Wolf of Wall Street’ in A24’s Wildest Sports Movie Now Streaming
+
+Movie News, Marty Supreme, A24, Timothée Chalamet, Uncut Gems
+
+Sat, 09 May 2026 22:45:13 GMT
+
+https://collider.com/timothee-chalamet-wild-sports-movie-marty-supreme-a24-streaming-success-hbo-max-may-2026-uncut-gems-wolf-of-wall-street/
+
+A24’s Marty Supreme, starring Timothée Chalamet, is now streaming after becoming one of the year’s wildest sports movies.
+---------
+
+# Ridley Scott's Action Classic 'Gladiator' Is a Free Streaming Success on Pluto TV
+
+Movie News, Gladiator, Pluto TV, Hot on Streaming, Ridley Scott
+
+Sat, 09 May 2026 23:04:40 GMT
+
+https://movieweb.com/gladiator-streaming-success-pluto-may-2026/
+
+Ridley Scott's Oscar winning historical action movie 'Gladiator' is a free streaming success on Pluto TV in 2026.
+---------
+
+# Netflix's 'Man on Fire' Is Perfectly Timed to Replace 'Reacher's Delayed Season 4
+
+Features, Man on Fire, Reacher
+
+Sat, 09 May 2026 23:00:18 GMT
+
+https://movieweb.com/netflix-man-on-fire-perfect-timing-replacement-reacher-season-4/
+
+The top-trending debut of Netflix's 'Man On Fire' starring Yahya Abdul-Mateen II is perfectly to replace the delayed fourth season of 'Reacher'.
+---------
+
 # The Real Reason Star Wars' Inquisitors Aren't In A New Hope Is Seriously Dark
 
 Streaming TV, Star Wars, Star Wars: Maul - Shadow Lord, Ahsoka
