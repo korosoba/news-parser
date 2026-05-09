@@ -1,3 +1,124 @@
+# Skyrim "Ultimate" Next-Gen Remake Proves This Game Cannot Die
+
+Gaming, The Elder Scrolls V: Skyrim
+
+Sat, 09 May 2026 11:30:19 GMT
+
+https://screenrant.com/skyrim-ultimate-next-gen-graphics-overhaul/
+
+A fan-made next-gen remake of Skyrim showcases the game's potential with ultra-realistic graphics.
+---------
+
+# Hades & Dead Cells Collide In Outstanding New Adventure You Can Play Free Soon
+
+Gaming, Steam, PC, Indie
+
+Sat, 09 May 2026 11:00:18 GMT
+
+https://screenrant.com/hades-talaka-new-2027-steam-game-roguelike/
+
+Screen Rant had the opportunity to test a promising new roguelike adventure and talk to one of its developers during Gamescom LATAM 2026.
+---------
+
+# Minions & Monsters Trailer Is a Surprising Throwback Through Movie History
+
+Movies, Minions & Monsters
+
+Sat, 09 May 2026 11:30:13 GMT
+
+https://www.cbr.com/minions-monsters-trailer-movie-history-throwback/
+
+The Minions are making their very own monster movie, and they take a trip through movie history to do so.
+---------
+
+# The Most Poignant Line From Hacks Tells Fans Everything They Need to Know
+
+TV, HBO Max, Hacks, Drama
+
+Sat, 09 May 2026 11:30:13 GMT
+
+https://www.cbr.com/hbo-masterpiece-hacks-key-quote-gives-fans-everything-they-need-to-know/
+
+Hacks delivered the thesis statement of the series in season three with one shocking admission from Deborah Vance.
+---------
+
+# Popeye Slasher Horror Film Officially Kicks Off Production on 'Bigger & Bloodier' Sequel
+
+Movies, Popeye the Slayer Man
+
+Sat, 09 May 2026 11:00:12 GMT
+
+https://www.cbr.com/popeye-slasher-horror-slayer-man-2-enters-production/
+
+The public domain slasher film promises a sequel that will delight fans as well as draw in new horror lovers.
+---------
+
+# 5 Perfect Action Movies Nobody Talks About Anymore
+
+Movies, Action, Man on Fire, To Live and Die in L.A.
+
+Sat, 09 May 2026 11:00:12 GMT
+
+https://www.cbr.com/best-forgotten-action-movies-ever-list/
+
+The action genre is packed with absolutely incredible masterpieces, but these five classics of the genre have been sadly forgotten by fans.
+---------
+
+# 10 Marvel Duos Who Never Gave Up on Each Other
+
+Comics, Marvel
+
+Sat, 09 May 2026 11:00:12 GMT
+
+https://www.cbr.com/marvel-friends-who-never-gave-up-on-each-other/
+
+Despite all odds, these Marvel duos stuck together.
+---------
+
+# Line it is Drawn Tribute to Gerry Conway
+
+Comics, CSBG, The Line It Is Drawn, gerry conway
+
+Sat, 09 May 2026 03:54:37 GMT
+
+https://www.cbr.com/line-it-is-drawn-tribute-to-gerry-conway/
+
+The Line it is Drawn pays tribute to the late, great Gerry Conway
+---------
+
+# Netflix’s 3-Part Crime Thriller Is So Addictive, You’ll Lose an Entire Weekend to It
+
+TV News, Narcos: Mexico, Narcos, Diego Luna, Netflix
+
+Sat, 09 May 2026 11:30:13 GMT
+
+https://collider.com/netflix-crime-thriller-narcos-mexico-streaming-success-may-2026-diego-luna-scoot-mcnairy/
+
+Fans can't stop watching the spin-off of Netflix's greatest crime saga, Narcos: Mexico, which stars Scoot McNairy.
+---------
+
+# Say Goodbye to Liam Neeson's Taylor Sheridan-Like Neo-Western
+
+Movie News, Liam Neeson, The Marksman, Netflix, Action
+
+Sat, 09 May 2026 11:00:13 GMT
+
+https://collider.com/liam-neeson-neo-western-the-marksman-leaving-netflix-may-14-2026-taylor-sheridan/
+
+Liam Neeson's 2021 crime-thriller film, The Marksman, is sure to entertain fans of Taylor Sheridan, but it's leaving Netflix soon. Find out when.
+---------
+
+# 7 Netflix Mystery Shows No One Ever Talks About
+
+TV, Mystery, A Good Girl's Guide to Murder, The OA, The Residence
+
+Sat, 09 May 2026 10:52:13 GMT
+
+https://collider.com/netflix-mystery-shows-no-one-talks-about/
+
+Netflix has a vast library of original mystery shows, but too many series, like The OA, The Residence, and American Vandal, fall through the cracks.
+---------
+
 # GTA 6 Be Damned, GTA 4 Remastered Is A Thing Of Beauty
 
 Gaming, Grand Theft Auto 4, Grand Theft Auto
