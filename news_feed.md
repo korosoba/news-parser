@@ -1,3 +1,223 @@
+# Reclaiming The Phantom Menace: 5 Redeeming Qualities Of Star Wars' First Prequel
+
+Star Wars, Star Wars: Episode I - The Phantom Menace
+
+Sat, 09 May 2026 16:20:19 GMT
+
+https://screenrant.com/star-wars-phantom-menace-redeeming-qualities/
+
+There are several redeeming qualities of Star Wars: Episode I - The Phantom Menace that explain appreciation for George Lucas' prequel 27 years later.
+---------
+
+# Halo 7 Leak Confirms The Start Of A Bold New Era
+
+Gaming, Halo, Triple-A Games, PC
+
+Sat, 09 May 2026 16:17:25 GMT
+
+https://screenrant.com/halo-7-leaked-story-details-new-era/
+
+Halo is apparently gearing up for another mainline entry, and it might be continuing a path away from one classic element of the franchise.
+---------
+
+# 10 Greatest '80s Cartoons That Are Still Worth Rewatching Today
+
+Classic TV
+
+Sat, 09 May 2026 16:15:19 GMT
+
+https://screenrant.com/80s-cartoons-still-worth-watching/
+
+The 1980s were a great decade for TV, especially when it comes to cartoons, and some shows are still as great as they were back then.
+---------
+
+# Song Of The Samurai Episode 1 Review: HBO's Adaptation Captures The Heart Of Shogun & The Soul Of Anime
+
+Streaming TV, Song of the Samurai
+
+Sat, 09 May 2026 16:00:20 GMT
+
+https://screenrant.com/song-of-the-samurai-episode-1-review/
+
+The first episode of HBO's new live-action adaptation, Song of the Samurai, finds an excellent balance between Shogun-like intensity and anime spirit.
+---------
+
+# Lena Dunham's Too Much Is One Of Netflix's Best Shows To Binge
+
+Classic TV, Masked Recs
+
+Sat, 09 May 2026 16:00:20 GMT
+
+https://screenrant.com/lena-dunhams-10-part-girls-replacement-is-one-of-netflixs-best-shows-to-binge/
+
+Lena Dunham's new memoir, Famesick, has led to many rewatches of Girls. But fans should also check out her underrated yet bingeable Netflix series.
+---------
+
+# GTA 6 Gamers Slam Latest Official Delay Update
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Sat, 09 May 2026 16:00:20 GMT
+
+https://screenrant.com/gta-6-pc-delay-gamers-react/
+
+GTA VI is still coming to most platforms in November, but the reasoning for leaving others out leaves a lot to be desired.
+---------
+
+# 10 Best New-Gen Manga That Need Anime ASAP
+
+Anime, Op-Ed, Ranking, Kagurabachi
+
+Sat, 09 May 2026 16:00:20 GMT
+
+https://screenrant.com/new-gen-manga-need-anime-after-kagurabachi/
+
+These manga are all primed for anime.
+---------
+
+# Denzel Washington & Pedro Pascal’s Historical Movie Hit Just Got A Second Life
+
+Movies, Netflix
+
+Sat, 09 May 2026 15:55:20 GMT
+
+https://screenrant.com/gladiator-2-denzel-washington-pedro-pascal-movie-netflix-charts/
+
+One of the biggest historical action movies in recent history has had a new lease on life thanks to a major resurgence in its popularity.
+---------
+
+# Mortal Kombat II Is Putting Up A Good Fight, But Might Not Be The Box Office Champion
+
+Movies, Box Office, Mortal Kombat, Mortal Kombat II
+
+Sat, 09 May 2026 15:50:17 GMT
+
+https://screenrant.com/mortal-kombat-2-box-office-opening-weekend-domestic-chart-report/
+
+The new release action movie Mortal Kombat II is expected to turn out a solid performance in its debut weekend, but it might not take No. 1.
+---------
+
+# Glen Powell's 10 Best Movies & TV Shows, Ranked
+
+Streaming TV, Glen Powell
+
+Sat, 09 May 2026 15:45:20 GMT
+
+https://screenrant.com/glen-powell-best-movies-shows-ranked/
+
+Glen Powell's career has undeniably taken off in the 2020s, but some of the actor's most iconic television and film credits go way back.
+---------
+
+# 10 Anime That Tear Apart the Superhero Formula
+
+Anime, My Hero Academia, One-Punch Man
+
+Sat, 09 May 2026 16:15:13 GMT
+
+https://www.cbr.com/best-anime-that-tear-apart-the-superhero-formula/
+
+These anime push the superhero genre in directions far removed from standard heroic fantasies.
+---------
+
+# Solo Leveling Characters Who Would Dominate SAO
+
+Anime, Solo Leveling, Sword Art Online
+
+Sat, 09 May 2026 16:15:13 GMT
+
+https://www.cbr.com/solo-leveling-characters-dominate-sword-art-online/
+
+A number of Hunters from Solo Leveling have the skill set required to dominate the deadly virtual world of SAO.
+---------
+
+# This Open World Sci-Fi Game is Officially Free on Steam Until May 11
+
+Games, Steam
+
+Sat, 09 May 2026 16:10:13 GMT
+
+https://www.cbr.com/steam-official-free-open-world-game-may-2026/
+
+Fans of sci-fi games and open world adventures won't want to miss this limited-time only free Steam game.
+---------
+
+# Transformers Fans Get First Look at New G1-Inspired Devastator Combiner
+
+Anime, Transformers, merchandise, toys
+
+Sat, 09 May 2026 16:00:14 GMT
+
+https://www.cbr.com/transformers-war-within-hook-long-haul-devastator-first-look/
+
+Two more Constructicons have been revealed by Dr. Wu, along with new images of their combined form as Transformers: The War Within Devastator.
+---------
+
+# Rumored Harry Potter Reboot Actor Kevin McKidd Reacts to Arthur Weasley Casting Speculation
+
+TV, Harry Potter
+
+Sat, 09 May 2026 15:52:43 GMT
+
+https://www.cbr.com/kevin-mckidd-arthur-weasley-harry-potter-casting-speculation/
+
+The actor's previous experience teases that he does know the exact function of a rubber duck.
+---------
+
+# Jensen Ackles Vought Rising Season 2 Plans Confirmed by Franchise Creator
+
+TV, Vought Rising, The Boys
+
+Sat, 09 May 2026 15:37:51 GMT
+
+https://www.cbr.com/jensen-ackles-vought-rising-season-2-plans-eric-kripke/
+
+After Gen V's unexpected cancellation, The Boys franchise will keep thriving with a prequel spinoff.
+---------
+
+# 6 Best HBO Comedy Shows of All Time
+
+TV, HBO Max, Veep, The Larry Sanders Show
+
+Sat, 09 May 2026 15:30:13 GMT
+
+https://www.cbr.com/best-hbo-comedy-shows-ever-list/
+
+HBO is known for its prestige drama series, but it also has some of the best and funniest comedy shows.
+---------
+
+# 10 Greatest Disney Animated Movie Opening Scenes, Ranked
+
+Movie, Disney, Animation, The Lion King, Up
+
+Sat, 09 May 2026 16:19:13 GMT
+
+https://collider.com/best-disney-movie-opening-scenes-ranked/
+
+Beloved Disney movies like The Hunchback of Notre Dame, The Lion King, and The Little Mermaid all have unforgettable opening scenes.
+---------
+
+# ‘Reacher’ Star Alan Ritchson Swaps Fists for Heart in This Underrated Streaming Favorite
+
+Movie News, Alan Ritchson, Reacher, Ordinary Angels, Hilary Swank
+
+Sat, 09 May 2026 16:00:14 GMT
+
+https://collider.com/alan-ritchson-hilary-swank-ordinary-angels-streaming-success-peacock-may-2026/
+
+The heartfelt hidden gem, Ordinary Angels, starring Alan Ritchson and Hilary Swank, is now streaming on Peacock. Find out more here.
+---------
+
+# Chris Hemsworth's 10 Best Non-Marvel Movies, Ranked
+
+Movie Lists, Chris Hemsworth
+
+Sat, 09 May 2026 16:00:18 GMT
+
+https://movieweb.com/chris-hemsworth-best-non-marvel-movies/
+
+Through his work with directors like Michael Mann, Drew Goddard, and Ron Howard, Chris Hemsworth has done much more than just play Thor.
+---------
+
 # Hulu's 3-Part Space Opera Is So Good, Even A Sci-Fi Legend Couldn't Beat It
 
 Streaming TV, Masked Recs
