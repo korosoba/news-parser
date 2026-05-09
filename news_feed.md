@@ -1,3 +1,278 @@
+# 10 Best MCU Characters Who Only Appeared In One Movie
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Sat, 09 May 2026 12:55:19 GMT
+
+https://screenrant.com/best-mcu-characters-only-in-one-movie/
+
+Most MCU characters have popped up in several movies, yet a handful have managed to steal the show in their lone big screen appearance.
+---------
+
+# Who Is Demon Slayer's Kokushibo? Infinity Castle Part 2's Big Villain Explained
+
+Anime, Demon Slayer
+
+Sat, 09 May 2026 12:30:18 GMT
+
+https://screenrant.com/demon-slayer-kokushibo-identity-explained-infinity-castle/
+
+As a franchise, Demon Slayer is no stranger to some of the most intimidating villains in anime, and Kokushibo quite literally outranks them all.
+---------
+
+# Captain America: Civil War Is Great But It Lacks Some Of The Comic Book Stakes
+
+Movies, Captain America: Civil War, Op-Ed
+
+Sat, 09 May 2026 12:30:18 GMT
+
+https://screenrant.com/captain-america-civil-war-mcu-great-missing-comic-book-stakes/
+
+Captain America: Civil War is a fantastic movie but several aspects from the comics are missing, robbing it of some of the stakes it could've had.
+---------
+
+# PlayStation Drops 4 New Free Downloads For May, No PS Plus Needed
+
+Gaming, PlayStation (Original)
+
+Sat, 09 May 2026 12:30:18 GMT
+
+https://screenrant.com/playstation-4-free-downloads-may-2026-no-ps-plus/
+
+PlayStation offers four new free games for May 2026, including Call of the Elder Gods, Gladio Mori, Mashina, and more.
+---------
+
+# 10 Best '90s Movie Soundtracks
+
+Movies, Dazed and Confused, Belly, Clerks
+
+Sat, 09 May 2026 12:21:48 GMT
+
+https://screenrant.com/10-best-90s-movie-soundtracks-belly-clerks-dazed-confused/
+
+The most unforgettable '90s soundtracks.
+---------
+
+# Nathan Fillion's 8-Season Crime Thriller Gets Hit By Major Setback In Its Expansion Plans
+
+Network TV, The Rookie
+
+Sat, 09 May 2026 12:00:20 GMT
+
+https://screenrant.com/the-rookie-north-abc-order-setback/
+
+As the 2026-2027 TV cycle shapes up, new major developments indicate that the efforts to expand Nathan Fillion's 8-season crime hit are in jeopardy.
+---------
+
+# Paramount Plus’ 97% RT Sci-Fi Series Ending Was So Perfect, Fans Still Want More 3 Years Later
+
+TV, Star Trek, Star Trek: Picard
+
+Sat, 09 May 2026 12:00:20 GMT
+
+https://screenrant.com/star-trek-picard-season-3-ending-great-fans-want-legacy-spinoff/
+
+Star Trek: Picard season 3 ended three years ago with the perfect setup for a Legacy continuation series that fans, understandably, won't give up on.
+---------
+
+# Jordan Peele’s Sci-Fi Masterpiece Is Only 2 Weeks Away From Netflix
+
+Movies, Jordan Peele, Nope
+
+Sat, 09 May 2026 12:00:20 GMT
+
+https://screenrant.com/jordan-peele-nope-movie-netflix-release/
+
+One of Jordan Peele's most celebrated movies is set to arrive on Netflix in a few short weeks, bringing another iconic film to the streaming service.
+---------
+
+# Cyberpunk 2077 Official New Release Has Gamers Losing Their Minds
+
+Gaming, Cyberpunk 2077, Triple-A Games
+
+Sat, 09 May 2026 12:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-official-new-tarot-deck-gamers-react/
+
+Nearly six years out from its release, Cyberpunk 2077 continues to court fans, introducing them to the greater Cyberpunk world.
+---------
+
+# 10 Best Action Anime Heroes Who Don't Kill
+
+Anime, The Big O, Rurouni Kenshin, Vinland Saga, Monster, Fullmetal Alchemist, Case Closed, Psycho-Pass, Trigun, One Piece
+
+Sat, 09 May 2026 12:00:20 GMT
+
+https://screenrant.com/10-best-action-anime-heroes-who-dont-kill/
+
+Here are 10 amazing action anime characters who refuse to kill even the most dangerous and horrible of opponents they face, and where they are from.
+---------
+
+# 8 Detectives Smarter Than Harry Bosch
+
+TV, Bosch, Sherlock, Criminal Minds, Crime
+
+Sat, 09 May 2026 12:30:12 GMT
+
+https://www.cbr.com/smart-detectives-vs-bosch-list/
+
+From psychic con artists to self-taught geniuses, these detectives are smarter than Harry Bosch and will blow viewers' minds.
+---------
+
+# Deadpool Drops a Disturbing Confession That Changes Everything
+
+Comics, Deadpool
+
+Sat, 09 May 2026 12:00:13 GMT
+
+https://www.cbr.com/wade-wilson-deadpool-4-ellie-killed-confession/
+
+The Merc with a Mouth just made the best case for revoking his hero (or even anti-hero) status.
+---------
+
+# Hacks Star Reflects on the Comedy Series’ Massive Global Appeal
+
+TV, Hacks, Comedy
+
+Sat, 09 May 2026 12:00:13 GMT
+
+https://www.cbr.com/hacks-season-5-alex-moffat-comedy-universal-appeal-hbo-max/
+
+As its fifth season airs, Hacks star Alex Moffat is certain that the fan-favorite comedy has worldwide appeal.
+---------
+
+# The City Beneath Her Feet Concludes With an Action-Packed Adventure
+
+Comics, indie comics
+
+Sat, 09 May 2026 03:55:39 GMT
+
+https://www.cbr.com/city-beneath-her-feet-3-advance-review/
+
+In a CBR advance review of the finale of The City Beneath Her Feet, see how Zara navigates the hit on her head without being, you know, murdered
+---------
+
+# One of Quentin Tarantino’s Favorite WWII Movies Is Leaving Streaming Soon
+
+Movie News, Dunkirk, Quentin Tarantino, Christopher Nolan, World War II
+
+Sat, 09 May 2026 12:45:13 GMT
+
+https://collider.com/dunkirk-quentin-tarantino-favorite-ww2-movie-leaving-peacock-june-2026/
+
+The WW2 movie that earned Christopher Nolan his first Best Director nomination at the Oscars, Dunkirk, is leaving its streaming home soon.
+---------
+
+# The Greatest Sci-Fi Movie of All Time Is Dominating Hulu
+
+Movie News, Star Wars, Star Wars: Episode IV - A New Hope, Sci-Fi, Hulu
+
+Sat, 09 May 2026 12:30:12 GMT
+
+https://collider.com/george-lucas-sci-fi-masterpiece-star-wars-new-hope-streaming-success-hulu-may-2026/
+
+The greatest sci-fi movie of all time is dominating a new streamer. Find out how to watch the original Star Wars.
+---------
+
+# 11 Years Later, Netflix’s Forgotten All-Star Psychological Thriller Mojave Is One of Its Best Hidden Gems
+
+Movie Features, Mojave, Oscar Isaac, Garrett Hedlund, Walton Goggins
+
+Sat, 09 May 2026 12:29:14 GMT
+
+https://collider.com/mojave-netflix-forgotten-thriller-oscar-isaac-walton-goggins-performances-highlight/
+
+Netflix’s Mojave may not fully work, but the film’s chaotic energy and performances from cast such as Oscar Isaac make it a fascinating hidden gem.
+---------
+
+# Disney+’s Underrated 5-Part Pixar Series Is the Best One-Night Binge
+
+TV Features, Dug Days, Up, Disney+, Pixar Animation Studios
+
+Sat, 09 May 2026 12:17:13 GMT
+
+https://collider.com/disney-plus-pixar-series-up-dug-days-binge-one-sitting/
+
+Fans of Pixar's Up have an awesome and breezy binge to check out over on Disney+.
+---------
+
+# The 10 Greatest Video Game Masterpieces of All Time, Ranked
+
+Movie, Video Game, The Legend of Zelda, Legend of Zelda: Breath of the Wild, Elden Ring
+
+Sat, 09 May 2026 12:14:13 GMT
+
+https://collider.com/video-games-better-than-the-legend-of-zelda-breath-of-the-wild/
+
+Consider these the true Triforce of video game perfection!
+---------
+
+# ‘The Sheep Detectives’ Star Nicholas Braun Wants a Sequel: “It’s Fun as Hell”
+
+Movie, The Sheep Detectives, Nicholas Braun, Hugh Jackman, Amazon
+
+Sat, 09 May 2026 12:08:14 GMT
+
+https://collider.com/video/the-sheep-detectives-nicholas-braun-interview-sequel-movie/
+
+<strong><em><a href="https://collider.com/tag/movie/three-bags-full-a-sheep-detective-movie/">The Sheep Detectives</a></em></strong> might sound like one of the more unconventional films of 2026, but the surprise critical hit about a flock of sheep investigating the murder of their shepherd (<a href="https://collider.com/tag/hugh-jackman/">Hugh Jackman</a>) has clearly struck a much deeper chord. With audiences already embracing the film and its <a href="https://collider.com/the-sheep-detectives-review-hugh-jackman-amazon-mgm/">95% Rotten Tomatoes score</a> reinforcing its natural charm, Amazon MGM Studios’ latest murder-mystery-comedy proves there’s more to this herd than some one-liners and a very cute whodunit setup.For <a href="https://collider.com/tag/nicholas-braun/">Nicholas Braun</a>, that was kind of the point. The <em><a href="https://collider.com/tag/succession/">Succession</a></em> alum, who plays small-town officer Tim Derry, told Collider in Toronto, Canada, on April 20
+---------
+
+# Warner Bros.' Merger Robbed This 3-Part Sci-Fi Saga of Its Shot at Greatness
+
+TV Features, Final Space, Warner Bros. TV, Adult Swim, Olan Rogers
+
+Sat, 09 May 2026 12:04:13 GMT
+
+https://collider.com/final-space-cancellation-warner-bros-discovery-merger/
+
+Final Space was an epic sci-fi space opera that got unceremoniously cancelled before being written off by its corporate owners.
+---------
+
+# 10 Mystery Movies That Will Keep You Hooked From Start to Finish
+
+Movie, Mystery, Memento, Murder on the Orient Express, Parasite
+
+Sat, 09 May 2026 12:02:13 GMT
+
+https://collider.com/mystery-movies-keep-you-hooked-start-to-finish/
+
+Standalone thrillers like Memento and franchise fare like Wake Up Dead Man are among the best mystery movies that keep audiences entirely enthralled.
+---------
+
+# 52 Years Ago, Elton John Recorded the Song That Became the Second Best-Selling Single of All Time
+
+Music Features, Elton John, Rock, Music, Billboard Hot 100
+
+Sat, 09 May 2026 12:00:13 GMT
+
+https://collider.com/elton-john-candle-in-the-wind-best-selling-single-of-all-time/
+
+Elton John evolved from a tribute to Marilyn Monroe to an iconic anthem at Princess Diana's funeral, becoming one of the best-selling singles of all time.
+---------
+
+# Forget ‘Yellowstone,’ Taylor Sheridan’s Most Ruthless Thriller Is Leaving Streaming Soon
+
+Movie News, Hell or High Water, Taylor Sheridan, Jeff Bridges, Chris Pine
+
+Sat, 09 May 2026 12:00:13 GMT
+
+https://collider.com/taylor-sheridan-ruthless-thriller-hell-or-high-water-leaving-peacock-june-2026/
+
+Taylor Sheridan's best-reviewed film on Rotten Tomatoes, Hell or High Water, is leaving its streaming home soon. Find out when.
+---------
+
+# Netflix's 'Apex' Tops Sydney Sweeney's 'Euphoria' For Second Consecutive Week
+
+TV News, Apex, Hot on Streaming, Sydney Sweeney, Euphoria, Action
+
+Sat, 09 May 2026 12:00:19 GMT
+
+https://movieweb.com/netflix-thriller-apex-beats-sydney-sweeney-hbo-euphoria-on-streaming/
+
+Not even the power of Sydney Sweeney is enough to topple Netflix's newest action thriller, which continued its streaming dominance last week.
+---------
+
 # Skyrim "Ultimate" Next-Gen Remake Proves This Game Cannot Die
 
 Gaming, The Elder Scrolls V: Skyrim
