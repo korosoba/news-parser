@@ -1,3 +1,289 @@
+# Peacock's 8-Part Thriller That's "You Meets Big Little Lies" Deserves Its Streaming Success
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 19:30:19 GMT
+
+https://screenrant.com/all-her-fault-you-meets-big-little-lies/
+
+Big Little Lies and You are two of the 21st century's most successful thriller shows, and Peacock's 2025 limited series combines the best of both.
+---------
+
+# Dragon Quest Drops Official Date For Next Game Reveal
+
+Gaming, Dragon Quest, Triple-A Games, PC
+
+Sat, 09 May 2026 19:04:07 GMT
+
+https://screenrant.com/dragon-quest-new-game-announcement-may-2026/
+
+Dragon Quest creator Yuji Horii has just dropped a major update about when to expect the next game announcement, and fans don't have long to wait.
+---------
+
+# Star Wars' Best TV Show Changed Lightsabers Forever
+
+Star Wars, Andor
+
+Sat, 09 May 2026 19:00:19 GMT
+
+https://screenrant.com/star-wars-andor-tv-show-change-lightsabers/
+
+Lightsabers have been a staple of the Star Wars franchise since 1977, but the best TV show in a galaxy far, far away changed them forever.
+---------
+
+# Cyberpunk 2077 Sequel's Official Setting Has Gamers Losing Their Minds
+
+Gaming, Cyberpunk 2077
+
+Sat, 09 May 2026 19:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-sequel-setting-two-cities-gamers-react/
+
+Cyberpunk creator Mike Pondsmith reveals the sequel, codenamed Project Orion, will include a second city that 'feels like Chicago gone wrong'.
+---------
+
+# Yellowstone Spinoffs’ Missed Dutton Crossover Opportunity Addressed By Star
+
+TV, Yellowstone
+
+Sat, 09 May 2026 18:39:23 GMT
+
+https://screenrant.com/yellowstone-kayce-beth-dutton-question-gil-birmingham/
+
+The Yellowstone universe is expanding, and this star addresses a missed opportunity, as these Dutton siblings have yet to address one another.
+---------
+
+# 3-Part Forgotten Sci-Fi Show Is Firefly Meets Project Hail Mary
+
+Classic TV, Masked Recs
+
+Sat, 09 May 2026 18:30:19 GMT
+
+https://screenrant.com/dark-matter-2015-forgotten-firefly-project-hail-mary/
+
+Sci-fi fans need to revisit a forgotten show from the 2010s that feels like a mashup of the space western Firefly and the movie Project Hail Mary.
+---------
+
+# 3 Best Shows To Watch On HBO Max This Weekend: May 9–10, 2026
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Sat, 09 May 2026 18:18:19 GMT
+
+https://screenrant.com/best-hbo-max-shows-watch-weekend-may-9/
+
+The top 3 trending shows on HBO Max this weekend include Jean Smart's acclaimed comedy Hacks, Steve Carell's feel-good dramedy Rooster, and Half Man.
+---------
+
+# J. K. Simmons' The Closer Returns as PVOD Sensation 14 Years Later
+
+TV, The Closer
+
+Sat, 09 May 2026 19:30:12 GMT
+
+https://www.cbr.com/jk-simmons-the-closer-pvod-hit-may-2026/
+
+The police drama series featuring J. K. Simmons has made a surprise return with its sudden PVOD success.
+---------
+
+# All 5 Kung Fu Panda Movie Villains, Ranked
+
+Movies, Kung Fu Panda
+
+Sat, 09 May 2026 19:30:12 GMT
+
+https://www.cbr.com/kung-fu-panda-best-villains-list/
+
+Across the four main installments of DreamWorks' Kung Fu Panda film franchise, which of Po's fearsome enemies was the greatest antagonist?
+---------
+
+# Netflix's The Night Agent Is Ending at the Perfect Time
+
+TV, The Night Agent, Netflix
+
+Sat, 09 May 2026 19:30:12 GMT
+
+https://www.cbr.com/netflix-the-night-agent-ending-at-perfect-time/
+
+One Netflix series will be ending after its fourth season, but that's actually a good thing, ensuring the show goes out on a high note.
+---------
+
+# Terrifier 4 Confirms New Holiday Setting & Release Window
+
+Movies, Terrifier 4, Horror
+
+Sat, 09 May 2026 19:22:53 GMT
+
+https://www.cbr.com/terrifier-4-new-years-eve-release-window/
+
+Terrifier 4 director Damien Leone has also officially confirmed the sequel's release window along with its new holiday setting.
+---------
+
+# Anime With Delinquents Who Are Secretly the Good Guys
+
+Anime, Yu Yu Hakusho, Tokyo Revengers
+
+Sat, 09 May 2026 19:15:13 GMT
+
+https://www.cbr.com/best-anime-with-delinquent-good-guys/
+
+These anime center on characters that may be rough around the edges, but they also have surprisingly kind hearts.
+---------
+
+# 22 Years Later, Man on Fire Is Still Denzel Washington's Best Action Movie
+
+Movies, Man on Fire
+
+Sat, 09 May 2026 19:00:12 GMT
+
+https://www.cbr.com/best-denzel-washington-action-movie-man-on-fire/
+
+The 2004 version of Man on Fire directed by Tony Scott remains the absolute, undisputed masterpiece of Washington’s action career.
+---------
+
+# Emily Deschanel’s Bones Replacement Show Scrapped by NBC
+
+TV, NBC
+
+Sat, 09 May 2026 18:32:19 GMT
+
+https://www.cbr.com/nbc-passes-emily-deschanel-key-witness-pilot/
+
+Bones fans were looking forward to Emily Deschanel's return to television, but it won't be happening at NBC.
+---------
+
+# Half Man Is HBO Max’s Best True Detective Replacement Yet
+
+TV, Half Man, True Detective, HBO Max
+
+Sat, 09 May 2026 18:30:12 GMT
+
+https://www.cbr.com/shows-like-true-detective-half-man-hbo-max/
+
+Created by and starring Baby Reindeer's Richard Gadd, this HBO 6-part streaming hit trades murder mysteries for something far more unsettling.
+---------
+
+# Jon Bernthal Confirms Punisher's Relationship to Peter Parker in Spider-Man: Brand New Day
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, The Punisher, The Punisher: One Last Kill
+
+Sat, 09 May 2026 18:22:31 GMT
+
+https://www.cbr.com/jon-bernthal-peter-parker-punisher-relationship-spider-man-brand-new-day/
+
+Thanks to Spider-Man, the world is about to see a version of The Punisher it never thought possible.
+---------
+
+# The Most Handsome Dads in All of Anime
+
+Anime, Jujutsu Kaisen, Naruto, Spy X Family
+
+Sat, 09 May 2026 18:15:13 GMT
+
+https://www.cbr.com/most-handsome-anime-dads-of-all-time/
+
+Some anime dads are as good looking as they are charming and capable of kicking butt.
+---------
+
+# 10 Most Intense Thrillers of the Last 25 Years, Ranked
+
+Movie, Thriller, Black Swan, Oldboy, Whiplash
+
+Sat, 09 May 2026 19:37:13 GMT
+
+https://collider.com/most-intense-thriller-movies-last-25-years/
+
+Numerous nail-biting thrillers of maximum intensity have been released over the last 25 years, including masterworks like Uncut Gems and Black Swan.
+---------
+
+# 10 Most Universally Beloved TV Couples of All Time, Ranked
+
+TV, Television, Grey's Anatomy, The Simpsons, The Office
+
+Sat, 09 May 2026 19:19:12 GMT
+
+https://collider.com/universally-beloved-tv-couples-all-time-ranked/
+
+From Grey's Anatomy's Meredith and Derek to Parks and Recreation's April and Andy, which TV couple is the most universally beloved by audiences?
+---------
+
+# Say Goodbye to Bryan Cranston’s Brutal 2-Part Crime Saga Before It Leaves Streaming
+
+TV News, Your Honor, Bryan Cranston, Showtime, Edward Berger
+
+Sat, 09 May 2026 19:00:12 GMT
+
+https://collider.com/bryan-cranston-showtime-crime-saga-your-honor-leaving-netflix-may-2026/
+
+Bryan Cranston's two-part crime-thriller series, Your Honor, is leaving its streaming home soon. Find out when.
+---------
+
+# Forget ‘Stranger Things’ — Netflix’s Mind-Bending 3-Part Sci-Fi Thriller Is a Hidden Gem
+
+TV Features, Dark, Netflix, Louis Hofmann, Sci-Fi
+
+Sat, 09 May 2026 18:38:13 GMT
+
+https://collider.com/netflix-dark-tv-series-sci-fi-thriller-hidden-gem/
+
+Netflix's first German original series, Dark, is a mind-bending sci-fi thriller that spans three interconnected timelines and is a must-watch.
+---------
+
+# Netflix's 'Man on Fire' Officially Changes the Ending of Denzel Washington's 2004 Action Thriller
+
+TV Features, Man on Fire, Yahya Abdul-Mateen II, Netflix, Steven Caple Jr.
+
+Sat, 09 May 2026 18:28:12 GMT
+
+https://collider.com/man-on-fire-netflix-ending-change-john-creasy-fate/
+
+Netflix's Man on Fire action-thriller series diverges from the 2004 Denzel Washington film with a major change.
+---------
+
+# 10 Thriller Movies That Are Near-Masterpieces
+
+Movie, Heat, Chinatown, Se7en, Thriller
+
+Sat, 09 May 2026 18:28:12 GMT
+
+https://collider.com/thriller-movies-near-masterpieces/
+
+From Se7en to Zodiac, these thrillers come closest to perfection, balancing tension, control, and storytelling with almost nothing out of place.
+---------
+
+# Every Jason Statham Gangster Movie, Ranked
+
+Movie Lists, Jason Statham
+
+Sat, 09 May 2026 19:30:18 GMT
+
+https://movieweb.com/every-jason-statham-gangster-movie-ranked/
+
+It's hard to go wrong with Jason Statham and crime. Here's every gangster genre movie in his filmography, ranked against each other.
+---------
+
+# George Lucas Is Back in the Room - Does That Change Anything?
+
+Features, Star Wars
+
+Sat, 09 May 2026 19:00:18 GMT
+
+https://movieweb.com/george-lucas-star-wars-sequels/
+
+George Lucas is drawing attention again in the Star Wars world, but does his new museum opening mean anything in particular?
+---------
+
+# 'The Twilight Zone': The Classic Sci-Fi Masterpiece Perfected The 'X-Files' Format Decades Earlier
+
+Features, The Twilight Zone, The X-Files
+
+Sat, 09 May 2026 18:30:18 GMT
+
+https://movieweb.com/x-files-twilight-zone-monster-of-the-week/
+
+Rod Serling's 'The Twilight Zone' laid the ground for 'The X-Files' to walk on in one particular way, and it arguably did it better.
+---------
+
 # Homelander's Antony Starr Shares Hot Take On Thanos' Philosophy In The Avengers Movies
 
 Movies, Marvel Cinematic Universe, Thanos, Antony Starr
