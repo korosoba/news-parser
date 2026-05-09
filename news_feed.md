@@ -1,3 +1,377 @@
+# Solo Leveling Meets Food Wars In Streaming's Wildest New Power Fantasy (Exclusive)
+
+Anime, The Legend of Kitchen Soldier, Food Wars, Solo Leveling
+
+Sat, 09 May 2026 02:00:32 GMT
+
+https://screenrant.com/solo-leveling-food-wars-the-legend-of-kitchen-soldier/
+
+One of manhwa's strangest power fantasy twists comes alive and will stream next week on Rakuten Viki, with its studio excited for the world to see it.
+---------
+
+# PlayStation's New Free Open-World RPG Blows Gamers Away: "I Can't Believe It's Free"
+
+Gaming
+
+Sat, 09 May 2026 02:00:32 GMT
+
+https://screenrant.com/playstation-free-open-world-may-2026-gamer-reactions/
+
+A new open-world RPG on PlayStation is already blowing the minds of players, who are praising the free game's world, characters, and content.
+---------
+
+# 8 Must-Watch K-Dramas For Every Sci-Fi Fan
+
+Classic TV, K-Drama
+
+Sat, 09 May 2026 02:00:32 GMT
+
+https://screenrant.com/k-dramas-for-sci-fi-fans/
+
+Sci-fi television series are often hit-or-miss, but these eight masterpiece Korean dramas are international science fiction at its finest.
+---------
+
+# Mortal Kombat 2 Ending Explained: Who Dies & How It Sets Up A Third Movie
+
+Movies, Mortal Kombat II, Mortal Kombat, Mortal Kombat: Annihilation
+
+Sat, 09 May 2026 01:30:20 GMT
+
+https://screenrant.com/mortal-kombat-2-ending-explained-sequel-setup/
+
+The ending of Mortal Kombat II leaves many unanswered questions, and a potential sequel could explore some notable deaths in the roster.
+---------
+
+# Netflix’s Upcoming Lovecraftian Adaptation Continues 1 Mike Flanagan Horror Trend
+
+Streaming TV, Netflix, Mike Flanagan, Horror
+
+Sat, 09 May 2026 01:30:20 GMT
+
+https://screenrant.com/netflix-lovecraftian-bloody-smart-junji-ito/
+
+A new lovecraftian live-action adaptation is all set to land on Netflix very soon, and it is seemingly continuing one Mike Flanagan horror trend.
+---------
+
+# Yu-Gi-Oh! Creator Kazuki Takashi Is Finally Getting The Respect He Always Deserved
+
+Anime, Yu-Gi-Oh!, Op-Ed
+
+Sat, 09 May 2026 01:03:09 GMT
+
+https://screenrant.com/yugioh-kazuki-takahashi-respect-legacy/
+
+In celebration and remembrance of Kazuki Takahashi.
+---------
+
+# The Boys Season 5 Officially Ends An Era For Jensen Ackles’ Soldier Boy
+
+Streaming TV, The Boys
+
+Sat, 09 May 2026 00:45:19 GMT
+
+https://screenrant.com/the-boys-season-5-soldier-boy-jensen-ackles-era/
+
+Soldier Boy has transformed into a entirely different character in The Boys season 5, which finally ends a major era for the Jensen Ackles character.
+---------
+
+# Boruto Kicks Off 10-Year Anniversary With Special Release For Anime Fans
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Sat, 09 May 2026 00:30:20 GMT
+
+https://screenrant.com/naruto-sequel-boruto-10th-anniversary-anime-video/
+
+The Naruto franchise is celebrating its evolution as it releases the first video to mark 10 years since the day its Boruto manga began.
+---------
+
+# How Much Mortal Kombat 2 Cost To Make & What It Needs To Be A Box Office Success
+
+Movies, Mortal Kombat II
+
+Sat, 09 May 2026 00:30:20 GMT
+
+https://screenrant.com/mortal-kombat-2-budget-box-office-success/
+
+Mortal Kombat II is the latest movie adaptation of the fighting video game series, and it could be a profitable film based on its budget.
+---------
+
+# Golden Girls Meets This Is Us In Netflix’s New Movie Based On A Bestselling Book
+
+Movies, Masked Recs
+
+Sat, 09 May 2026 00:15:19 GMT
+
+https://screenrant.com/netflix-movie-remarkably-bright-creatures-recommendation/
+
+Netflix's new movie combines two of the ultimate comfort shows, Golden Girls and This Is Us, leading to a beautiful and heartwarming story.
+---------
+
+# The Best Animated Movies From Every Year of The 2000s
+
+Movies, Animation, Disney, dreamworks animation
+
+Sat, 09 May 2026 02:00:24 GMT
+
+https://www.cbr.com/best-animated-movies-every-year-2000s-ranked/
+
+The 2000s featured some of the best animated movies ever made. But some rise above all the competition and are still remembered fondly to this day.
+---------
+
+# 7 Near-Perfect Mystery Anime With No Bad Episodes
+
+Anime, Bungo Stray Dogs, Summer Time Rendering
+
+Sat, 09 May 2026 01:45:13 GMT
+
+https://www.cbr.com/near-perfect-mystery-anime-zero-bad-episodes-list/
+
+There's nothing quite like an engrossing mystery and anime like Summer Time Rendering and Bungo Stray Dogs offer uncompromised perfection.
+---------
+
+# 10 Best Decisions in Anime History That Changed the Industry Forever
+
+Anime, Crunchyroll, Studio Ghibli
+
+Sat, 09 May 2026 01:45:13 GMT
+
+https://www.cbr.com/biggest-anime-decisions-that-changed-history-forever/
+
+Over the decades, some decisions made in an instant have shaped the entire foundation of the anime industry.
+---------
+
+# Top Gun: Maverick Surges on Paramount+ Ahead of Theatrical Re-Release
+
+Movies, Top Gun: Maverick, Action, Paramount Plus
+
+Sat, 09 May 2026 01:38:53 GMT
+
+https://www.cbr.com/tom-cruise-top-gun-maverick-action-success-paramount-plus-may-2026/
+
+Tom Cruise's Top Gun: Maverick Is Back on the Paramount+ global streaming charts ahead of its return to movie theaters.
+---------
+
+# Best Quotes About Family In The Fast & Furious Movies
+
+Movies, Fast and Furious
+
+Sat, 09 May 2026 01:00:13 GMT
+
+https://www.cbr.com/best-family-quotes-fast-and-furious-movies/
+
+Letty, Han, Roman, and Tej are all members of Dominic Toretto's crew, and he frequently refers to them as his family in the Fast & Furious franchise.
+---------
+
+# A24’s Backrooms Set to Make 2x Its Budget Opening Weekend
+
+Movies, Backrooms
+
+Sat, 09 May 2026 00:57:59 GMT
+
+https://www.cbr.com/backrooms-box-office-projection/
+
+A24 is looking to have a major hit with the studio's next horror movie release.
+---------
+
+# Dragon Ball Super's Black Frieza Saga Officially Introduces a New Villain
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sat, 09 May 2026 00:45:12 GMT
+
+https://www.cbr.com/dragon-ball-super-black-frieza-saga-set-up-best-shonen-arc-of-all-time/
+
+The Black Frieza Saga will be one of the biggest Dragon Ball sagas ever, but what comes after may be even better.
+---------
+
+# 11 Years Ago, Activision Released Two Franchise Killing Games Within a Month of Each Other
+
+Games, Tony Hawk's Pro Skater, activision
+
+Sat, 09 May 2026 00:30:13 GMT
+
+https://www.cbr.com/activision-killed-guitar-hero-live-tony-hawk-pro-skater-5-franchises-same-time/
+
+Both games were poorly received in 2015, tarnishing the reputations of their respective series and dampening hopes for proper follow-ups.
+---------
+
+# Smallville's Clever Use of Superman's Colors, Explained
+
+TV, Smallville
+
+Sat, 09 May 2026 00:30:13 GMT
+
+https://www.cbr.com/smallville-clark-kent-detail-fans-never-notice/
+
+Clark Kent undergoes many changes over Smallville's 10 seasons, and the series conveys this through a single easy-to-miss detail.
+---------
+
+# Exit 8, the Best-Reviewed Video Game Movie Ever, Officially Streaming
+
+Movies, Exit 8
+
+Sat, 09 May 2026 00:24:11 GMT
+
+https://www.cbr.com/exit-8-now-streaming-vod/
+
+The hit video game adaptation can be streamed at home for those who missed it on the big screen.
+---------
+
+# The Best Fantasy Shows From Every Year of the 2010s
+
+TV, Game Of Thrones, Gravity Falls, The Good Place, Fantasy
+
+Sat, 09 May 2026 02:03:13 GMT
+
+https://collider.com/best-2010s-fantasy-shows-every-year/
+
+Revisit the best fantasy TV shows from each year of the 2010s, featuring top series like Game of Thrones, Adventure Time, and The Good Place.
+---------
+
+# Paramount’s 4-Part Crime Thriller Is Taking Over the World as Season Finale Looms
+
+TV News, NCIS: Sydney, Paramount Plus, NCIS, Crime
+
+Sat, 09 May 2026 02:00:24 GMT
+
+https://collider.com/paramount-plus-ncis-sydney-crime-thriller-spin-off-streaming-success-may-2026/
+
+As the NCIS: Sydney season finale nears, the Australian spin-off continues to rank on global streaming charts.
+---------
+
+# Netflix's 4-Part Dark Drama Is the Perfect Addictive Weekend Binge
+
+TV Features, 13 Reasons Why, Netflix, Dylan Minnette, Kate Walsh
+
+Sat, 09 May 2026 01:55:12 GMT
+
+https://collider.com/netflix-13-reasons-why-dark-drama-weekend-binge/
+
+13 Reasons Why is a character-driven drama that tackles heavy themes and keeps audiences hooked for a binge-worthy weekend watch on Netflix.
+---------
+
+# HBO Max’s 3-Part Masterpiece Hits 1 Billion Minutes Watched in a Single Week
+
+TV News, HBO Max, The Pitt, Noah Wyle, John Wells
+
+Sat, 09 May 2026 01:30:13 GMT
+
+https://collider.com/the-pitt-hbo-max-masterpiece-1-billion-minutes-watched-streaming-success-may-2026/
+
+HBO Max's blockbuster medical drama series The Pitt has achieved a truly impressive feat. Find out more.
+---------
+
+# 'Grey's Anatomy's Kevin McKidd Reacts to Leaving the Hit Medical Drama After 18 Years [Exclusive]
+
+TV News, Grey's Anatomy, Kevin McKidd, ABC, Kim Raver
+
+Sat, 09 May 2026 01:15:12 GMT
+
+https://collider.com/greys-anatomy-kevin-mckidd-leaving-after-18-years-reaction/
+
+Grey's Anatomy mainstay Kevin McKidd shared his emotional reaction to leaving Dr. Owen Hunt behind with one final send-off in Season 22.
+---------
+
+# Prime Video Made Crime Dramas Essential Again With This Modern Masterpiece
+
+TV Features, Bosch, Bosch: Legacy, Prime Video
+
+Sat, 09 May 2026 01:15:12 GMT
+
+https://collider.com/prime-video-bosch-crime-drama-essential-modern-masterpiece/
+
+Prime Video's gritty crime drama Bosch elevated the genre with its realistic portrayal of investigations and a stellar cast led by Titus Welliver.
+---------
+
+# ‘The Batman’ Director’s 10/10 Sci-Fi Masterpiece Is a Sudden Free Streaming Hit
+
+Movie News, Matt Reeves, Dawn of the Planet of the Apes, Andy Serkis, Sci-Fi
+
+Sat, 09 May 2026 01:00:13 GMT
+
+https://collider.com/dawn-of-the-planet-of-the-apes-matt-reeves-sci-fi-sequel-streaming-success-tubi-may-2026/
+
+Matt Reeves' Dawn of the Planet of the Apes saw a viewership spike on streaming after the announcement of a new reboot movie. Find out more.
+---------
+
+# 40 Years Later, These Are the 10 Best Movies of 1986
+
+Movie, Platoon, Aliens, Blue Velvet, The Fly
+
+Sat, 09 May 2026 00:45:12 GMT
+
+https://collider.com/best-movies-of-1986/
+
+All-time classic bangers like Aliens, Blue Velvet, and Platoon are all among the very best movies from the year 1986.
+---------
+
+# Taylor Sheridan's Biggest Paramount+ Series Since ‘Yellowstone’ Has Disappeared From Streaming Charts
+
+TV News, Taylor Sheridan, The Madison, Kurt Russell, Yellowstone
+
+Sat, 09 May 2026 00:30:14 GMT
+
+https://collider.com/taylor-sheridan-paramount-plus-the-madison-drop-yellowstone-franchise-streaming-success-may-2026/
+
+Taylor Sheridan's high-profile new series, The Madison, isn't proving to be as popular as his magnum opus, Yellowstone. Find out more.
+---------
+
+# How Hulu’s #1 Series Led to the MCU’s Next Major Streaming Hit [Exclusive]
+
+TV News, The Bear, The Punisher: One Last Kill, Jon Bernthal, Ebon Moss-Bachrach
+
+Sat, 09 May 2026 00:15:13 GMT
+
+https://collider.com/the-bear-gary-the-punisher-one-last-kill-special-jon-bernthal-explains-writing/
+
+Jon Bernthal unpacks writing the new Punisher Special Presentation and the new Bear special episode, Gary, which is now stremaing on Hulu.
+---------
+
+# 8 Near-Perfect Hidden Gem Sci-Fi Shows Everyone Should Watch
+
+TV Lists, Sci-Fi
+
+Sat, 09 May 2026 02:00:31 GMT
+
+https://movieweb.com/sci-fi-shows-feel-like-hidden-gems/
+
+These sci-fi shows are phenomenal, and yet everyone still seems to forget about them on "best-of" lists. Why aren't we talking about them?
+---------
+
+# First Look at Jason Voorhees in 'Friday the 13th' Prequel 'Crystal Lake' Revealed
+
+Movie News, Crystal Lake, Friday the 13th
+
+Sat, 09 May 2026 01:01:00 GMT
+
+https://movieweb.com/crystal-lake-jason-voorhees-first-look-friday-the-13th/
+
+The showrunner of the Peacock series posted and then quickly deleted the glimpse of the character.
+---------
+
+# Every Sydney Sweeney Thriller Movie, Ranked
+
+Movie Lists, Sydney Sweeney
+
+Sat, 09 May 2026 01:00:18 GMT
+
+https://movieweb.com/sydney-sweeney-thrillers-ranked/
+
+From 'Nocturne' to 'Immaculate' and beyond, Sydney Sweeney has succeeded in several subgenres of thriller.
+---------
+
+# Frank Miller's R-Rated Comic Book Movie 'Sin City' is Streaming for Free on Pluto TV
+
+Movie News, Sin City, Pluto TV, Coming/Leaving Streaming
+
+Sat, 09 May 2026 00:00:20 GMT
+
+https://movieweb.com/sin-city-streaming-free-pluto-may-2026/
+
+The R-rated comic book thriller 'Sin City' is streaming for free on Pluto TV in May 2026.
+---------
+
 # Is The MCU Setting Up Bullseye To Replace An Original Avenger?
 
 Superheroes, Bullseye, Daredevil: Born Again, Marvel Cinematic Universe
