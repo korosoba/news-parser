@@ -1,3 +1,223 @@
+# Hulu's 3-Part Space Opera Is So Good, Even A Sci-Fi Legend Couldn't Beat It
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 15:15:20 GMT
+
+https://screenrant.com/the-orville-sci-fi-series-not-beaten-by-star-trek/
+
+The Orville, a space opera from Family Guy creator Seth MacFarlane, influenced Star Trek: Discovery & paved the way for Star Trek: Strange New Worlds.
+---------
+
+# PlayStation 6 Official Release Date And Pricing Update Shared By Sony
+
+Gaming, PlayStation 6, PlayStation
+
+Sat, 09 May 2026 15:08:59 GMT
+
+https://screenrant.com/playstation-6-price-release-date-update-may-2026/
+
+Sony has been largely quiet about the PlayStation 6 so far, but the CEO just offered an update on the release plans and pricing amid market turmoil.
+---------
+
+# One Piece's Remake Episode Count Isn't As Disappointing As Fans Think
+
+Anime, One Piece
+
+Sat, 09 May 2026 15:00:19 GMT
+
+https://screenrant.com/one-piece-anime-remake-episode-count-controversy/
+
+One Piece's Wit Studio remake is finally getting off the ground, but even with a release date, fans are still worried about one thing.
+---------
+
+# Euphoria Season 3 Is Officially 1 Episode Away From Redeeming Itself
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Sat, 09 May 2026 15:00:19 GMT
+
+https://screenrant.com/euphoria-season-3-redemption-characters-back-together/
+
+Euphoria season 3 has been ravaged by critics and audiences alike, but the controversial HBO drama's next episode may just redeem the entire show.
+---------
+
+# Animal Crossing Free Download Available Until June 1
+
+Gaming, Animal Crossing, Animal Crossing New Horizons
+
+Sat, 09 May 2026 15:00:19 GMT
+
+https://screenrant.com/animal-crossing-free-download-may-2026/
+
+Animal Crossing is one of the most iconic franchise's Nintendo has right now and there are some free downloads available for fans.
+---------
+
+# Lord Of The Rings Star Ian McKellen Chooses Who Would Win In A Fight Between Wise Wizards: Gandalf Or Dumbledore?
+
+Movies, The Lord of the Rings, Ian McKellen
+
+Sat, 09 May 2026 14:56:45 GMT
+
+https://screenrant.com/ian-mckellen-gandalf-dumbledore-fight-debate-wise-wizards/
+
+LOTR's Gandalf and Harry Potter's Dumbledore are based on the same wizardly archetype, but which one of them would win in a wizard's duel?
+---------
+
+# Syfy's 19-Part Cyberpunk Series Is Criminally Underseen
+
+Classic TV, Caprica
+
+Sat, 09 May 2026 14:45:21 GMT
+
+https://screenrant.com/caprica-syfy-cyberpunk-series-underseen/
+
+Syfy released a cyberpunk TV series that only lasted for 19 episodes, but it deserves to be seen by many more fans of this sci-fi subgenre.
+---------
+
+# Harry Potter’s Rumored Arthur Weasley Star Clarifies HBO Series Casting
+
+TV, Harry Potter, Harry Potter - Season 1
+
+Sat, 09 May 2026 14:41:51 GMT
+
+https://screenrant.com/harry-potter-hbo-arthur-weasley-cast-rumors-kevin-mckidd-response/
+
+An actor rumored to be playing HBO's Arthur Weasley addresses if he is joining the Harry Potter series and reveals his history with the franchise.
+---------
+
+# Jon Bernthal’s Surprise New TV Episode Quietly Becomes A Global Streaming Sensation
+
+TV, Masked Recs
+
+Sat, 09 May 2026 14:31:07 GMT
+
+https://screenrant.com/the-bear-gary-episode-hulu-streaming-success-may-2026/
+
+Jon Bernthal has been in a number of well-known movies and TV shows throughout the past few years, but one of his most successful came as a surprise.
+---------
+
+# 10 Iconic Characters We Need In Smash Bros. For Nintendo Switch 2
+
+Gaming
+
+Sat, 09 May 2026 14:30:19 GMT
+
+https://screenrant.com/smash-bros-nintendo-switch-2-character-wishlist/
+
+From Nintendo icons to third-party legends, the next Super Smash Bros. video game needs to bring several highly anticipated fighters to screen ASAP.
+---------
+
+# The Most Powerful Aces in the Pokémon Anime, Ranked
+
+Anime, Pokemon
+
+Sat, 09 May 2026 15:15:14 GMT
+
+https://www.cbr.com/most-powerful-ace-pokmon-in-the-anime/
+
+Ash Ketchum isn't the only powerful trainer in the Pokémon anime with a remarkably strong Ace.
+---------
+
+# Avengers: Doomsday Director Addresses 'Over-Policed' Spoiler Culture
+
+Movies, MCU, Marvel, Marvel Comics, Avengers, Avengers: Doomsday, Avengers: Doomsday (2026), Avengers: Endgame, Avengers: Secret Wars
+
+Sat, 09 May 2026 15:14:15 GMT
+
+https://www.cbr.com/avengers-doomsday-director-addresses-spoiler-culture/
+
+The directors of the biggest film in the history of Marvel have something to say about spoiler culture.
+---------
+
+# ABC's The Rookie Is a Hulu Streaming Hit After Cliffhanger Finale
+
+TV, The Rookie
+
+Sat, 09 May 2026 15:00:13 GMT
+
+https://www.cbr.com/abc-the-rookie-season-8-cliffhanger-hulu-streaming-success-may-2026/
+
+The hit police procedural left fans dying for more with its Season 8 cliffhanger, but the new season already promises some answers.
+---------
+
+# 7 Near Perfect 2020s Games No One Talks About
+
+Games, Video Games, Far Cry
+
+Sat, 09 May 2026 15:00:13 GMT
+
+https://www.cbr.com/near-perfect-2020s-games-no-one-talks-about/
+
+The modern era of gaming is full of hidden gems that have sadly gone overlooked, including new entries in previously major franchises.
+---------
+
+# The Devil Wears Prada 2 Outgrosses the Original Movie as Talks About a Threequel Start
+
+Movies, The Devil Wears Prada, The Devil Wears Prada 2
+
+Sat, 09 May 2026 14:39:37 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-outgrosses-original-movie-threequel-talks/
+
+Gird your loins, The Devil Wears Prada 3 might actually happen.
+---------
+
+# Spider-Man: Brand New Day Breaks the Punisher's Worst MCU Trend
+
+Movies, Spider-Man: Brand New Day, The Punisher: One Last Kill, MCU
+
+Sat, 09 May 2026 14:30:13 GMT
+
+https://www.cbr.com/the-punisher-spider-man-brand-new-day-first-mcu-crossover/
+
+Jon Bernthal's Frank Castle returns in Spider-Man: Brand New Day, finally resolving the Punisher's worst MCU habit.
+---------
+
+# Prime Video's Forgotten 8-Part Sci-Fi Series Is One of Its Best Hidden Gems
+
+TV Features, Night Sky, J.K. Simmons, Sissy Spacek, Prime Video
+
+Sat, 09 May 2026 15:23:14 GMT
+
+https://collider.com/prime-video-sci-fi-series-night-sky-jk-simmons-sissy-spacek/
+
+Veteran actors J.K. Simmons and Sissy Spacek star in one of Prime Video's most overlooked sci-fi series.
+---------
+
+# Prime Video’s $300M James Bond Replacement Is an Overnight Streaming Sensation
+
+TV News, Citadel, Richard Madden, Priyanka Chopra Jonas, Prime Video
+
+Sat, 09 May 2026 15:00:13 GMT
+
+https://collider.com/prime-video-spy-thriller-citadel-season-2-streaming-success-may-2026/
+
+After a 3 year delay, Prime Video’s $300 million spy thriller series Citadel is back with a bang and it’s already taking over streaming.
+---------
+
+# Netflix Officially Has This Forgotten Dark Fantasy Movie by 'The Boys' Creator
+
+Movie Features, The House With a Clock in its Walls, The Boys, Netflix, Fantasy
+
+Sat, 09 May 2026 14:28:14 GMT
+
+https://collider.com/eric-kripke-fantasy-netflix-streaming-the-house-with-a-clock-in-its-walls-jack-black-eli-roth/
+
+Eric Kripke wrote the fantasy film The House With a Clock in Its Walls, a forgotten film starring Jack Black and Cate Blanchett.
+---------
+
+# When 'Mortal Kombat II' Will Stream on HBO Max
+
+Features, Mortal Kombat II
+
+Sat, 09 May 2026 15:00:17 GMT
+
+https://movieweb.com/when-mortal-kombat-ii-stream-hbo-max/
+
+Following its theatrical bow on May 8, 2026, discover when 'Mortal Kombat II' is most likely to arrive on HBO Max.
+---------
+
 # The Boys' Final Season Has Already Avoided One Problem That Plagued Stranger Things 5 Months Ago
 
 Streaming TV, The Boys, Stranger Things
