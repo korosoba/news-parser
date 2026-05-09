@@ -1,3 +1,245 @@
+# The Real Reason Star Wars' Inquisitors Aren't In A New Hope Is Seriously Dark
+
+Streaming TV, Star Wars, Star Wars: Maul - Shadow Lord, Ahsoka
+
+Sat, 09 May 2026 22:30:18 GMT
+
+https://screenrant.com/star-wars-inquisitors-not-in-new-hope-explanation-dark/
+
+Star Wars' Inquisitors vanished, but an in-universe book may have revealed their tragic fate.
+---------
+
+# The Only Lord Of The Rings Villain Who Dies For Real
+
+Movies, The Lord of the Rings
+
+Sat, 09 May 2026 22:30:18 GMT
+
+https://screenrant.com/only-lord-of-the-rings-villain-who-dies/
+
+The Lord of the Rings contains plenty of major villains, but only one in the trilogy actually dies for real, and even that isn't entirely conclusive.
+---------
+
+# 10 Best Slasher Horror Movie Franchises, Ranked By Number Of Films
+
+Movies, Horror, Ranking
+
+Sat, 09 May 2026 22:25:20 GMT
+
+https://screenrant.com/best-slasher-horror-franchises-number-of-films-ranked/
+
+The best slasher movie franchises scare the wits out of viewers again and again, but which of these classic horror series has the most films?
+---------
+
+# Prime Video's 10/10 Action Thriller Series Succeeds At Its Biggest Challenge
+
+Streaming TV, Reacher
+
+Sat, 09 May 2026 22:15:19 GMT
+
+https://screenrant.com/reacher-action-thriller-series-succeeds-talking-challenge/
+
+Adapting a book can be a difficult task, especially when the protagonist rarely speaks. However, Prime Video's action thriller series got it right.
+---------
+
+# Hulu's 8-Part Sci-Fi Thriller Can Only Get Better In Season 2
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 22:00:20 GMT
+
+https://screenrant.com/alien-earth-get-better-season-2/
+
+Alien: Earth got off to a strong start in its first season, but it'll only get even better in season 2 when Peter Dinklage joins the cast.
+---------
+
+# Fallout Officially Returns This August With Brand-New Release
+
+Gaming, Fallout
+
+Sat, 09 May 2026 22:00:20 GMT
+
+https://screenrant.com/fallout-august-2026-official-return-mr-handy/
+
+Fallout might not be getting a single-player release for a while yet, but there are still plenty of new releases coming out for fans.
+---------
+
+# Latest Major Xbox Shakeups Split Fans
+
+Gaming
+
+Sat, 09 May 2026 22:00:20 GMT
+
+https://screenrant.com/xbox-leadership-changes-fan-reactions/
+
+Microsoft Gaming’s new CEO is planning on appointing some new executives to the Xbox brand, and fans are split on what that means for its future.
+---------
+
+# 10 Most Underrated Superpowers in Spider-Man Lore, Ranked
+
+Comics, Spider-Man, Marvel
+
+Sat, 09 May 2026 22:00:20 GMT
+
+https://screenrant.com/spider-man-most-underrated-powers/
+
+Here are the 10 most underrated superpowers in the official Marvel Spider-Man and Spider-Verse lore, ranked from least impressive to most impressive.
+---------
+
+# Apple TV's Faultless 5-Part Spy Thriller Is So Good, It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Sat, 09 May 2026 21:45:20 GMT
+
+https://screenrant.com/slow-horses-season-6-7-renewed-apple-tv/
+
+Apple TV has so much faith in the future of its acclaimed spy drama, Slow Horses, that it's already renewed the show for seasons 6 and 7.
+---------
+
+# Prime Video’s The Consultant Is a Dark 1-Night Binge
+
+TV, Prime Video, Thriller, The Consultant
+
+Sat, 09 May 2026 22:30:12 GMT
+
+https://www.cbr.com/prime-video-the-consultant-perfect-thriller-binge/
+
+Following the sinister relationship between a boss and employee, The Consultant is a twisted, kooky, and downright gripping mystery thriller.
+---------
+
+# 10 2000s Thrillers That Still Hold Up Better Than Today's Movies
+
+Movies, Thriller
+
+Sat, 09 May 2026 22:30:12 GMT
+
+https://www.cbr.com/greatest-thrillers-from-2000s-list/
+
+While today's movies put in a good effort, there are 2000s thrillers that just can't be topped.
+---------
+
+# One of the Most Iconic Pokémon Spin-Offs Was Nearly a Metroid Game
+
+Games, Pokemon, Metroid, Nintendo
+
+Sat, 09 May 2026 22:15:12 GMT
+
+https://www.cbr.com/pokemon-pinball-metroid-game/
+
+While the game was once a massive hit, it sadly doesn't have much of a presence today.
+---------
+
+# Assassin's Creed: Heredis Officially Revealed With December 2026 Launch
+
+Games, Assassin's Creed
+
+Sat, 09 May 2026 22:05:13 GMT
+
+https://www.cbr.com/assassin-creed-heredis-reveal-coming-december-2026/
+
+Assassin's Creed: Heredis is launching in December that'll mark a significant moment for the franchise as it jumps mediums
+---------
+
+# Netflix's Sally Field Adaptation Remarkably Bright Creatures Is an Instant Streaming Hit
+
+Movies, Remarkably Bright Creatures, Netflix
+
+Sat, 09 May 2026 22:00:13 GMT
+
+https://www.cbr.com/sally-field-remarkably-bright-creatures-mystery-netflix-success-may-2026/
+
+Netflix's latest mystery drama adaptation is taking over the streaming charts barely 24 hours after making its debut on the platform.
+---------
+
+# Sailor Moon's Original Star Is Ready for a Very Different Kind of Transformation
+
+Anime, Sailor Moon, voice actors
+
+Sat, 09 May 2026 22:00:13 GMT
+
+https://www.cbr.com/sailor-moon-terri-hawkes-canada-election-run/
+
+Sailor Moon's original English dub voice actor of Usagi Tsukino is fighting for justice in real time in a municipal election.
+---------
+
+# 50 Most Powerful Devil Fruits In One Piece, Ranked
+
+Anime, One Piece, Eiichiro Oda, Monkey D. Luffy
+
+Sat, 09 May 2026 22:00:13 GMT
+
+https://www.cbr.com/one-piece-powerful-devil-fruits-ranked/
+
+One Piece's Devil Fruits are one of anime's zaniest power systems. From the String-String Fruit to the Human-Human fruit, these are the strongest.
+---------
+
+# Prime Video's 'Heat' Replacement With Netflix's Biggest Action Star Is Still a Must-Watch
+
+Movie News, Crime 101, Prime Video, Chris Hemsworth, Mark Ruffalo
+
+Sat, 09 May 2026 22:30:12 GMT
+
+https://collider.com/chris-hemsworth-mark-ruffalo-heat-replacement-heist-movie-crime-101-streaming-success-prime-video-may-2026/
+
+The new Heat-like heist thriller, Crime 101, starring Chris Hemsworth and Mark Ruffalo, is now streaming on Prime Video.
+---------
+
+# 'Squid Game’ Meets Stephen King in 2025's Most Savage Sci-Fi Reboot
+
+Movie News, The Running Man, Sci-Fi
+
+Sat, 09 May 2026 22:15:12 GMT
+
+https://collider.com/stephen-king-edgar-wright-sci-fi-reboot-the-running-man-streaming-success-paramount-plus-may-2026/
+
+The Running Man, Edgar Wright’s Stephen King sci-fi action reboot starring Glen Powell, is now streaming. Find out more here.
+---------
+
+# Before ‘John Wick,’ Keanu Reeves Made One of the Greatest Action Movies Ever and It's Coming to Free Streaming
+
+Movie News, Keanu Reeves, Speed, John Wick, Sandra Bullock
+
+Sat, 09 May 2026 22:00:13 GMT
+
+https://collider.com/keanu-reeves-sandra-bullock-greatest-action-movie-speed-free-streaming-tubi-june-2026/
+
+Keanu Reeves and Sandra Bullock pair up for one of the ‘90s most iconic action movies with Speed heading to a free streamer. Find out more here.
+---------
+
+# The 8 Most Surprising TV Crossovers of All Time, Ranked
+
+TV, It's Always Sunny in Philadelphia, Supernatural, Abbott Elementary, Cheers
+
+Sat, 09 May 2026 21:42:13 GMT
+
+https://collider.com/most-surprising-tv-crossovers-ranked/
+
+Explore the most surprising TV crossovers that take risks with genre and tonal clashes, seen in shows like Supernatural, Cheers, and Mr. Robot.
+---------
+
+# Charlie Cox Teases Matt Murdock's Next Steps and Decisions in 'Daredevil: Born Again' Season 3
+
+TV News, Daredevil: Born Again, Charlie Cox
+
+Sat, 09 May 2026 22:10:28 GMT
+
+https://movieweb.com/daredevil-born-again-season-3-charile-cox-major-revelation/
+
+Dardevil star Charlie Cox set the stage for some of what may happen in 'Daredevil: Born Again' Season 3.
+---------
+
+# 'Daredevil: Born Again' Season 2's Prison Twist Changes Matt Murdock Comic Storyline
+
+Features
+
+Sat, 09 May 2026 22:00:18 GMT
+
+https://movieweb.com/daredevil-born-again-matt-prison-comic-change/
+
+'Born Again' isn't the first time Matt Murdock has been to prison, as the Daredevil comics have done it twice before. Read on for more.
+---------
+
 # Netflix's 16-Part Hit With An All-Star Cast Revived A Dead Genre
 
 Streaming TV, Masked Recs
