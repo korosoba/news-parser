@@ -1,3 +1,245 @@
+# The Boys Deleted Scene Reveals Jensen Ackles' True Tribute To Supernatural
+
+TV, The Boys, Supernatural
+
+Sat, 09 May 2026 17:18:12 GMT
+
+https://screenrant.com/the-boys-deleted-scene-jensen-ackles-supernatural-tribute/
+
+The Boys star Jensen Ackles reunited with some old friends in a recent episode, and this deleted scene was the true Supernatural tribute.
+---------
+
+# 5 Best Star Wars Easter Eggs In Maul: Shadow Lord Season 1
+
+Movies, Star Wars
+
+Sat, 09 May 2026 17:15:19 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-season-1-easter-eggs-best/
+
+Season one of Maul: Shadow Lord was full of easter eggs, references, and callbacks to the broader Star Wars galaxy.
+---------
+
+# Song Of The Samurai Episode 1 Recap: The Shinsengumi Begins To Take Form
+
+Streaming TV, Song of the Samurai
+
+Sat, 09 May 2026 17:06:11 GMT
+
+https://screenrant.com/song-of-the-samurai-episode-1-recap/
+
+Episode 1 of HBO's Song of the Samurai begins Hijikata Toshizo's journey to becoming a member of the legendary Shinsengumi, along with his new family.
+---------
+
+# Netflix's 10/10 Martial Arts Series Is So Good, It Makes Cobra Kai Look Small
+
+TV, Netflix, Masked Recs
+
+Sat, 09 May 2026 17:02:19 GMT
+
+https://screenrant.com/bloodhounds-netflix-action-series-makes-cobra-kai-small/
+
+A martial arts series that outdoes Cobra Kai in terms of ambition and scope, Netflix's thriller plunges its heroes deep into a criminal underworld.
+---------
+
+# Mortal Kombat 2: 17 Easter Eggs, References And Cameos Explained
+
+Movies, Mortal Kombat II, Mortal Kombat, Quiz CV
+
+Sat, 09 May 2026 17:01:20 GMT
+
+https://screenrant.com/mortal-kombat-2-movie-easter-eggs-references-cameos/
+
+The Mortal Kombat II movie is overflowing with respectful nods to the source material, including references and Easter eggs you may have missed.
+---------
+
+# Marvel Fans Losing It Over Official Iron Man Redesign
+
+Gaming, Marvel, Triple-A Games
+
+Sat, 09 May 2026 17:01:20 GMT
+
+https://screenrant.com/marvel-rivals-iron-man-redesign/
+
+Iron Man has been a popular character for decades, and has seen a ton of different redesigns, but this one is setting off fans.
+---------
+
+# Why There Isn't A Marvel Movie Releasing In May This Year
+
+Movies, Marvel Cinematic Universe
+
+Sat, 09 May 2026 16:55:20 GMT
+
+https://screenrant.com/no-marvel-movie-release-may-2026/
+
+Since its launch in 2008, the Marvel Cinematic Universe has become known for kicking off summer movie season with big blockbusters, but not this year.
+---------
+
+# 3 Best Shows To Watch On Apple TV This Weekend: May 9–10, 2026
+
+Streaming TV, Apple TV, What to Watch on Apple TV+
+
+Sat, 09 May 2026 16:52:21 GMT
+
+https://screenrant.com/best-apple-tv-shows-watch-weekend-may-9/
+
+The top 3 must-watch shows on Apple TV this weekend include a crime thriller, a detective mystery, and a critically acclaimed comedy-horror series.
+---------
+
+# 10 Best Outfits From The Devil Wears Prada 2, Ranked
+
+Movies, The Devil Wears Prada 2
+
+Sat, 09 May 2026 16:45:20 GMT
+
+https://screenrant.com/devil-wears-prada-2-best-outfits/
+
+The Devil Wears Prada 2 is as fashion-forward as the original. All of the characters have evolved their style, and some outfits will become iconic.
+---------
+
+# Pedro Pascal Addresses Din Djarin’s Future Amid Concerning Mandalorian & Grogu Theories
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Sat, 09 May 2026 16:42:22 GMT
+
+https://screenrant.com/din-djarin-mandalorian-grogu-future-pedro-pascal-response/
+
+Din Djarin's future after The Mandalorian and Grogu is addressed by Pedro Pascal amid concerning theories about the character's fate.
+---------
+
+# The Bear's Surprise Episode Debuts With Rare Rotten Tomatoes Score
+
+TV, The Bear, Rotten Tomatoes
+
+Sat, 09 May 2026 17:18:24 GMT
+
+https://www.cbr.com/hulu-the-bear-special-episode-gary-rotten-tomatoes-score/
+
+The series has just proven why it's one of Hulu's best.
+---------
+
+# Modern Family Star Julie Bowen Addresses Potential Reboot 6 Years Later
+
+TV, Modern Family
+
+Sat, 09 May 2026 17:17:29 GMT
+
+https://www.cbr.com/modern-family-star-addresses-potential-reboot-6-years-later/
+
+One of the lead stars in the Modern Family just dropped a big update on a possible reboot.
+---------
+
+# 10 Best Minigames In the Like a Dragon Yakuza Games
+
+Games, video game, Yakuza, Like a Dragon: Yakuza, Yakuza 0, Like a Dragon 8
+
+Sat, 09 May 2026 17:15:12 GMT
+
+https://www.cbr.com/best-minigames-like-a-dragon-yakuza/
+
+Playing a Yakuza/Like a Dragon game is about more than just the plot; the abundant minigames keep players just as occupied as the hero's journey.
+---------
+
+# 3 Body Problem Season 1 Star Casts Doubt on Seasons 2 & 3 Return
+
+TV, 3 Body Problem
+
+Sat, 09 May 2026 17:09:11 GMT
+
+https://www.cbr.com/3-body-problem-cch-pounder-season-2-return-chances/
+
+The sci-fi series has yet to officially set a return date.
+---------
+
+# HBO Max's Latest Limited Series Half Man Becomes a Global Streaming Hit
+
+TV, Half Man, HBO Max
+
+Sat, 09 May 2026 17:00:14 GMT
+
+https://www.cbr.com/half-man-limited-series-drama-hbo-streaming-success-may-2026/
+
+HBO Max's new 6-part limited series Half Man becomes the No. 5 most-watched show worldwide.
+---------
+
+# 10 Star Trek Actors Who Appeared on The Twilight Zone
+
+TV, The Twilight Zone, Star Trek
+
+Sat, 09 May 2026 16:30:12 GMT
+
+https://www.cbr.com/star-trek-actors-in-the-twilight-zone-list/
+
+Actors like Leonard Nimoy and William Shatner made names for themselves in Star Trek and have also made guest appearances in The Twilight Zone.
+---------
+
+# 10 Forgotten Horror Movies That Are Amazing From Start to Finish
+
+Movies, Horror
+
+Sat, 09 May 2026 16:30:12 GMT
+
+https://www.cbr.com/forgotten-horror-movies-amazing-from-start-to-finish-list/
+
+Some of the best horror movies in cinema history have unfortunately been forgotten by the masses, but they deserve far more recognition.
+---------
+
+# 5 Fantasy Movie Series That Get Better With Every Entry
+
+Movie, Fantasy, How to Train Your Dragon, The Lord of the Rings, Harry Potter
+
+Sat, 09 May 2026 17:09:14 GMT
+
+https://collider.com/fantasy-franchises-get-better-every-movie/
+
+From Harry Potter to The Lord of the Rings, these fantasy movie series only get better with each new entry, raising the bar for the genre as a whole.
+---------
+
+# Only 8 Crime Shows Are More Rewatchable Than 'Breaking Bad'
+
+TV, Breaking Bad, The Sopranos, Better Call Saul, Crime
+
+Sat, 09 May 2026 17:04:13 GMT
+
+https://collider.com/crime-shows-more-rewatchable-breaking-bad/
+
+Find out which crime shows are more rewarding to rewatch than Breaking Bad, including The Wire, The Sopranos, and Twin Peaks.
+---------
+
+# 11 Years Later, Ridley Scott's Crowd-Pleasing Sci-Fi Thriller Is Leaving Streaming
+
+Movie News, The Martian, Matt Damon, Ridley Scott, Sci-Fi
+
+Sat, 09 May 2026 17:00:14 GMT
+
+https://collider.com/ridley-scott-matt-damon-sci-fi-thriller-the-martian-leaving-streaming-peacock-june-2026/
+
+Matt Damon's sci-fi classic The Martian, directed by Ridley Scott, is leaving its streaming home soon. Find out when.
+---------
+
+# 8 Near-Perfect Disney Animated Movies That No One Remembers Today
+
+Movie, Disney, Animation, Treasure Planet, Meet the Robinsons
+
+Sat, 09 May 2026 16:36:13 GMT
+
+https://collider.com/near-perfect-disney-animated-movies-no-one-remembers/
+
+From the sci-fi comedy Meet the Robinsons to the steampunk adventure Treasure Planet, these Disney animated movies have been forgotten by audiences.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Season 2 Avoids the Long Delay That Hurt 'Andor'
+
+Features, Star Wars: Maul - Shadow Lord, Star Wars, Andor
+
+Sat, 09 May 2026 17:00:19 GMT
+
+https://movieweb.com/star-wars-maul-shadow-lord-andor-delay/
+
+Production schedules can help or hinder a show's success, and the Star Wars franchise often deals with all sorts of challenges like these.
+---------
+
 # Reclaiming The Phantom Menace: 5 Redeeming Qualities Of Star Wars' First Prequel
 
 Star Wars, Star Wars: Episode I - The Phantom Menace
