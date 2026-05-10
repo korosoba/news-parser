@@ -1,3 +1,212 @@
+# 13 Years Later, The Best Isekai Anime Worldbuilding Is Still Undefeated
+
+Anime, Isekai, Log Horizon
+
+Sun, 10 May 2026 15:30:19 GMT
+
+https://screenrant.com/log-horizon-best-isekai-anime-worldbuilding/
+
+Few isekai anime execute a functional world beyond focusing on how it affects the protagonist, with one 2013 hit creating something truly special.
+---------
+
+# 007 First Light Game Length Splits Fans
+
+Gaming, 007 First Light, Triple-A Games, James Bond
+
+Sun, 10 May 2026 15:30:19 GMT
+
+https://screenrant.com/007-first-light-game-length-gamer-reaction/
+
+007 First Light is neither quaint nor gargantuan, and its reported length is already polarizing for many players ahead of its launch this month.
+---------
+
+# Netflix's 6-Part 'Tombstone Meets Bone Tomahawk' Western Series Quietly Saved A Genre
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 15:30:19 GMT
+
+https://screenrant.com/american-primeval-netflix-western-saved-genre/
+
+The Western genre was, until recently, dominated by Taylor Sheridan's soap-opera style TV shows, but this gory Western TV show changed the game.
+---------
+
+# Sebastian Stan’s Movie Future Makes One MCU Theory About Bucky’s Fate Even More Likely
+
+Movies, Marvel Cinematic Universe, Sebastian Stan
+
+Sun, 10 May 2026 15:30:19 GMT
+
+https://screenrant.com/sebastian-stan-movie-future-mcu-bucky-avengers-doomsday-death-theory/
+
+The exciting movie future of Sebastian Stan makes one major theory about what Bucky's future in the MCU will look like seem all the more likely.
+---------
+
+# Minecraft: The Ender Trials Officially Releases June 16
+
+Gaming, Minecraft, PC
+
+Sun, 10 May 2026 15:00:18 GMT
+
+https://screenrant.com/minecraft-the-ender-trials-official-june-2026-release/
+
+Minecraft fans are getting a brand-new release on June 16 with the launch of The Ender Trials; best to mark your calendars now.
+---------
+
+# Nicole Kidman’s 6-Hour Netflix Thriller Series With One Of Its Best Casts Keeps Getting Better
+
+Classic TV, Masked Recs
+
+Sun, 10 May 2026 15:00:18 GMT
+
+https://screenrant.com/the-perfect-couple-perfect-summer-show-elin-hilderbrand/
+
+Beachy drama is coming to TV this summer with The Five-Star Weekend, making now the perfect time to check out this Nicole Kidman thriller series.
+---------
+
+# The Boys Showrunner Reacts To Insane Donald Trump Parallel In Final Season
+
+TV, The Boys
+
+Sun, 10 May 2026 14:53:41 GMT
+
+https://screenrant.com/the-boys-eric-kripke-showrunner-donald-trump-parallel/
+
+The Boys is becoming a little too real, as showrunner Eric Kripke reacts to the ongoing unsettling parallels between Homelander and Donald Trump.
+---------
+
+# Game Of Thrones’ Mad King Prequel Reveals Gritty First Look From George R.R. Martin
+
+TV, Game of Thrones
+
+Sun, 10 May 2026 14:44:17 GMT
+
+https://screenrant.com/game-of-thrones-the-mad-king-prequel-official-poster/
+
+A new Game of Thrones prequel exploring the Mad King and the rebellion against him reveals a gritty first look from George R.R. Martin.
+---------
+
+# Netflix's Money Heist Teases New Expansion Ahead of Spinoff Return
+
+TV, Money Heist
+
+Sun, 10 May 2026 15:36:27 GMT
+
+https://www.cbr.com/netflix-money-heist-franchise-expansion/
+
+The original series boasts a 94% approval score and turned into a worldwide phenomenon.
+---------
+
+# 8 Best Korean Horror Series to Watch Right Now
+
+TV, All Of Us Are Dead, Sweet Home, Gyeongseong Creature, Horror
+
+Sun, 10 May 2026 15:30:12 GMT
+
+https://www.cbr.com/best-korean-horror-series-to-watch/
+
+These incredible Korean horror series offer spine-chilling supernatural and psychological thrills, from zombie apocalypses to demonic possessions.
+---------
+
+# Dragon Ball Super: Super Hero Makes the Video Game Series Is Canon
+
+Anime, Dragon Ball Super, Dragon Ball, Dragon Ball Super: Super Hero
+
+Sun, 10 May 2026 15:15:13 GMT
+
+https://www.cbr.com/dragon-ball-super-anime-movie-video-game-reference-canon/
+
+With one scene, Dragon Ball Super's latest anime made the entire DBZ video game series, including Xenoverse 3, canonical to Toriyama's main storyline.
+---------
+
+# Ben Affleck and Matt Damon Sued by Miami Cops Over Netflix's The Rip
+
+Movies, The Rip, matt damon, Ben Affleck
+
+Sun, 10 May 2026 15:12:50 GMT
+
+https://www.cbr.com/ben-affleck-matt-damon-sued-by-miami-cops-netflix-the-rip/
+
+The longtime friends and collaborators worked on a new Netflix film, which was a massive success.
+---------
+
+# Major Anime Streaming Site Animekai Officially Shuts Down
+
+Anime, Streaming, piracy
+
+Sun, 10 May 2026 15:11:57 GMT
+
+https://www.cbr.com/animekai-anime-streaming-site-shuts-down/
+
+One of the biggest anime streaming sites worldwide has officially shut down for good.
+---------
+
+# The Punisher: One Last Kill Star Judith Light Promises a 'Surprise' for Marvel Fans
+
+TV, Marvel, MCU, Marvel Comics, The Punisher, The Punisher: One Last Kill, Marvel's The Punisher, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 10 May 2026 15:10:19 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-surprise-judith-light/
+
+A massive 'surprise' was just teased by one of Jon Bernthal's co-stars in The Punisher: One Last Kill.
+---------
+
+# 7 Best Pokémon Games No One Talks About
+
+Games, Pokemon, Nintendo, Video Games
+
+Sun, 10 May 2026 15:00:12 GMT
+
+https://www.cbr.com/best-pokmon-games-no-one-talks-about/
+
+Games like Pokémon TCG and Hey You, Pikachu! are just some of the Pokémon spinoff titles fans never talk about.
+---------
+
+# Hugh Jackman’s Wild New Murder Mystery Is the Surprise Box Office Hit of the Year
+
+Movie News, Hugh Jackman, The Sheep Detectives, Nicholas Galitzine, Emma Thompson
+
+Sun, 10 May 2026 15:00:12 GMT
+
+https://collider.com/hugh-jackman-knives-out-meets-babe-the-sheep-detectives-box-office-15-million/
+
+Hugh Jackman’s new Knives Out meets Babe murder mystery movie, The Sheep Detectives, is the sleeper hit you didn’t see coming.
+---------
+
+# John Krasinski Shares 'A Quiet Place Part III' Set Update
+
+Movie News, A Quiet Place Part III, A Quiet Place, John Krasinski
+
+Sun, 10 May 2026 15:15:08 GMT
+
+https://movieweb.com/john-krasinski-a-quiet-place-part-iii-update/
+
+Celebrate as quietly as possible.
+---------
+
+# 'Spartacus: House of Ashur' Continues Its Impressive Run on Streaming
+
+TV News, Spartacus: House of Ashur, Hot on Streaming, Spartacus
+
+Sun, 10 May 2026 15:00:17 GMT
+
+https://movieweb.com/spartacus-house-of-ashur-streaming-hit-starz-may-2026/
+
+One of the bloodies and horniest TV shows ever made has been in the Top 10 on Starz for an impressive number of days, but where is Season 2?
+---------
+
+# 'Circe': Goodreads' "Best Fantasy Book of the Decade" Still Needs an Adaptation
+
+Features
+
+Sun, 10 May 2026 15:00:17 GMT
+
+https://movieweb.com/circe-best-fantasy-goodreads-deserves-adaptation/
+
+Stuck in development limbo for eight years, will Madeline Miller's 'Circe' finally be adapted after being named "Best Fantasy Book of the Decade"?
+---------
+
 # 10 Perfect New-Gen Shonen Anime Villains
 
 Anime
