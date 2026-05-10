@@ -1,3 +1,267 @@
+# Sydney Sweeney's Euphoria Character Is Facing Backlash After Offending OnlyFans Models
+
+TV, Euphoria
+
+Sun, 10 May 2026 18:32:50 GMT
+
+https://screenrant.com/euphoria-sydney-sweeney-backlash-onlyfans-models/
+
+Euphoria's controversial Sydney Sweeney is causing major online discourse, and OnlyFans models are not happy with her portrayal of their livelihoods.
+---------
+
+# Netflix's 131-Minute Action Thriller Is The 2020s' Answer To Rambo
+
+Movies, Masked Recs
+
+Sun, 10 May 2026 18:30:19 GMT
+
+https://screenrant.com/rebel-ridge-netflix-2020s-rambo/
+
+Netflix released a 131-minute crime thriller in the 2020s that effectively fills the same void that the Rambo franchise did in the 1980s.
+---------
+
+# 8 Movie Trilogies That Are More Rewatchable Than The Lord of the Rings
+
+Classic Movies, The Lord of the Rings
+
+Sun, 10 May 2026 18:05:19 GMT
+
+https://screenrant.com/movie-trilogies-rewatchable-lord-of-the-rings/
+
+Although many return to Peter Jackson's Middle-earth time and again, these incredible trilogies are even more rewatchable than The Lord of the Rings
+---------
+
+# Yellowstone's 22-Year-Old Predecessor Makes Taylor Sheridan's Show Look Tame
+
+TV, Masked Recs, Yellowstone, Taylor Sheridan
+
+Sun, 10 May 2026 18:02:20 GMT
+
+https://screenrant.com/deadwood-yellowstone-predecessor-darker-tv-show/
+
+In the gritty world of Western TV shows, one iconically brutal classic HBO show makes Taylor Sheridan's Yellowstone look tame by comparison.
+---------
+
+# 8 Things About Seinfeld Season 1 Everyone Forgets
+
+Classic TV, Seinfeld
+
+Sun, 10 May 2026 18:00:19 GMT
+
+https://screenrant.com/seinfeld-season-1-forgotten-details/
+
+From George's career as a real estate agent to Claire the main character who never was, everyone forgets these key details from Seinfeld season 1.
+---------
+
+# 10 Near-Perfect Pokémon Evolutions That Game Freak Somehow Made Even Better
+
+Gaming, Pokemon
+
+Sun, 10 May 2026 18:00:19 GMT
+
+https://screenrant.com/best-pokemon-evolutions-improved-mega-design/
+
+The best upgrades in Pokémon history.
+---------
+
+# 10 Pokémon Missing From Scarlet & Violet That We Need To See In Gen 10
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 10 May 2026 18:00:19 GMT
+
+https://screenrant.com/pokemon-gen-10-wishlist-scarlet-violet/
+
+Some beloved Pokémon were missing from Scarlet and Violet, and it's time for them to make a comeback in Gen 10, Pokémon Winds and Waves.
+---------
+
+# Adam Scott Promises Severance Season 3 Is Arriving "Much Sooner" Than Season 2
+
+TV, Severance
+
+Sun, 10 May 2026 17:48:33 GMT
+
+https://screenrant.com/severance-season-3-adam-scott-release-update/
+
+After a three-year hiatus between Severance seasons 1 and 2, Adam Scott promises fans that season 3 is going to be released "much sooner."
+---------
+
+# The Devil Wears Prada 2 Shatters OG Movie's All-Time Record In Just 10 Days
+
+Movies, Box Office, The Devil Wears Prada 2
+
+Sun, 10 May 2026 17:46:29 GMT
+
+https://screenrant.com/devil-wears-prada-2-original-movie-box-office-record/
+
+The Devil Wears Prada 2 is definitely the talk of the town, as the long-awaited sequel is making sure to topple this major box office record.
+---------
+
+# 10 Praiseworthy Psychological Thrillers No One Ever Talks About
+
+Movies, Thriller
+
+Sun, 10 May 2026 17:45:19 GMT
+
+https://screenrant.com/great-psychological-thriller-movies-forgotten/
+
+The best psychological thrillers plumb the depths of the human psyche, but these 10 praiseworthy gems have been overlooked.
+---------
+
+# Forget Harry Potter, Netflix's Narnia Looks Even Better
+
+Movies, The Chronicles of Narnia, Narnia: The Magician's Nephew
+
+Sun, 10 May 2026 18:30:13 GMT
+
+https://www.cbr.com/netflix-narnia-movie-better-than-harry-potter-show/
+
+While Harry Potter is looking to expand into the world of TV, Netflix's Narnia is taking the spotlight in the cinemas.
+---------
+
+# The Last of Us Fans Need to Watch HBO's Station Eleven
+
+TV, The Last of Us, HBO Max, Station Eleven
+
+Sun, 10 May 2026 18:30:13 GMT
+
+https://www.cbr.com/the-last-of-us-station-eleven-comparison/
+
+Fans waiting for The Last of Us Season 3 shouldn't sleep on another HBO post-apocalyptic series.
+---------
+
+# Outlander Star Sam Heughan Addresses James Bond Casting
+
+Movies, James Bond, Outlander
+
+Sun, 10 May 2026 18:22:06 GMT
+
+https://www.cbr.com/sam-heughan-james-bond-casting/
+
+Outlander is coming to an end after eight seasons, but what's next for Sam Heughan?
+---------
+
+# 10 Best Anime Scientists of All Time
+
+Anime, Dr. Stone, Dragon Ball, Naruto, Attack on Titan
+
+Sun, 10 May 2026 18:15:13 GMT
+
+https://www.cbr.com/official-best-anime-scientists-of-all-time/
+
+From mad geniuses to those seeking to benefit humanity, these ten anime scientists are among the best in their field.
+---------
+
+# Boruto Officially Launches Its 10th Anniversary With Two Blue Vortex
+
+Anime, Boruto: Two Blue Vortex, Naruto, merchandise
+
+Sun, 10 May 2026 18:00:13 GMT
+
+https://www.cbr.com/boruto-10th-anniversary-two-blue-vortex-figure/
+
+Ahead of Boruto's 10th anniversary, the franchise has unveiled a must-see treat for fans of Two Blue Vortex.
+---------
+
+# Robert Kirkman Needs To Bring Back This Genre-Defining Comic Series
+
+Comics, The Walking Dead, image comics, robert kirkman
+
+Sun, 10 May 2026 18:00:13 GMT
+
+https://www.cbr.com/the-walking-dead-should-have-more-comic-spinoffs-robert-kirkman/
+
+Robert Kirkman's The Walking Dead has had numerous spin-offs of varying quality, but there is still so much to mine from the Image Comics series.
+---------
+
+# Mortal Kombat III Confirmed by Director Amid Underwhelming Box Office Numbers
+
+Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat 1
+
+Sun, 10 May 2026 17:45:36 GMT
+
+https://www.cbr.com/mortal-kombat-3-confirmed-by-director-amid-underwhelming-box-office-numbers/
+
+These aren't the numbers Mortal Kombat II wanted, but the fight continues with Mortal Kombat III.
+---------
+
+# 8 HBO Miniseries That Are So Good, You’ll Have to Watch Them Twice
+
+TV, HBO, TV Miniseries, The Penguin, Sharp Objects
+
+Sun, 10 May 2026 18:50:13 GMT
+
+https://collider.com/hbo-miniseries-so-good-watch-them-twice/
+
+Chernobyl, The Night Of, The Penguin, Mare of Easttown, Sharp Objects, and more make up our list of great HBO miniseries to watch twice.
+---------
+
+# After Netflix's Most Controversial Movie, Jacques Audiard’s Mystery Thriller Deserves a Second Look
+
+Movie Features, Jacques Audiard, Vincent Cassel, Emilia Perez, Read My Lips
+
+Sun, 10 May 2026 18:40:14 GMT
+
+https://collider.com/read-my-lips-jacques-audiard-hidden-thriller-masterpiece/
+
+After Emilia Pérez divided audiences, Jacques Audiard’s forgotten thriller Read My Lips proves subtle noir suits him far better.
+---------
+
+# Forget ‘Squid Game,’ This $3 Billion Franchise Is the Perfect Sci-Fi Thriller Binge
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Jennifer Lawrence, Josh Hutcherson
+
+Sun, 10 May 2026 18:00:13 GMT
+
+https://collider.com/hunger-games-sci-fi-thriller-squid-game-replacement-streaming-success-hulu-may-2026/
+
+Stephen King's early work inspired a billion-dollar dystopian franchise that continues to grow with a new installment this year. Read on for more.
+---------
+
+# Showtime’s 8-Part Dark Comedy Series Quietly Becomes a Late-Night Favorite 14 Years Later
+
+TV Features, Weeds, Mary-Louise Parker, Elizabeth Perkins, Showtime
+
+Sun, 10 May 2026 17:58:13 GMT
+
+https://collider.com/showtime-dark-comedy-weeds-late-night-favorite-apple-tv-streaming/
+
+Showtime's Weeds, starring Mary-Louise Parker, is experiencing a new resurgence on streaming 14 years after its original finale.
+---------
+
+# The 10 Best Tom Cruise Action Thrillers, Ranked
+
+Movie Lists, Tom Cruise
+
+Sun, 10 May 2026 18:30:18 GMT
+
+https://movieweb.com/best-tom-cruise-action-thrillers/
+
+As one of the genre's most consistent stars, Tom Cruise has racked up dozens of action movie credits over the years.
+---------
+
+# Ridley Scott Action Thriller 'G.I. Jane' Returns to Streaming June 1
+
+Movie News, Ridley Scott, G.I. Jane, Coming/Leaving Streaming, Action
+
+Sun, 10 May 2026 18:00:18 GMT
+
+https://movieweb.com/ridley-scott-action-gi-jane-streaming-free-tubi-june-2026/
+
+While it is one of Scott's more divisive movies, there was someone who loved 'G.I. Jane' more than most critics: Roger Ebert.
+---------
+
+# Watch ‘Orphan Black’ Before Tatiana Maslany’s New Apple TV Comedy
+
+Features, Orphan Black, Maximum Pleasure Guaranteed
+
+Sun, 10 May 2026 18:00:18 GMT
+
+https://movieweb.com/orphan-black-sci-fi-masterpiece/
+
+Tatiana Maslany stars in the Apple TV comedy 'Maximum Pleasure Guaranteed,' and it's a great time to watch her sci-fi thriller series 'Orphan Black.'
+---------
+
 # Apple TV’s Near-Perfect RT Series With One Of Its Best Casts Is Officially A Must-Watch
 
 Streaming TV, Masked Recs
