@@ -1,3 +1,278 @@
+# 10 Sitcoms That Have Aged Like Fine Wine
+
+Classic TV, Sitcoms
+
+Sun, 10 May 2026 20:30:19 GMT
+
+https://screenrant.com/sitcoms-aged-like-fine-wine/
+
+These classic sitcoms remain relevant & funny decades later, showcasing how these comedy gems have aged like fine wine long after their original runs.
+---------
+
+# Lost's Real Villain Was Never The Man In Black, And It Took Me 16 Years To See It
+
+Classic TV, Lost
+
+Sun, 10 May 2026 20:15:20 GMT
+
+https://screenrant.com/lost-real-villain-not-man-in-black/
+
+Lost has some of the best TV villains in a complex and intriguing plot, but the real villain is not The Man In Black, as many viewers have thought.
+---------
+
+# James Gunn Is Finally Introducing The Live Action Version Of Stan Lee's Favorite DC Character 43 Years Later
+
+Comics, Stan Lee, Lobo
+
+Sun, 10 May 2026 20:10:43 GMT
+
+https://screenrant.com/lobo-favorite-stan-lee-character-dc-james-gunn/
+
+Even Marvel legend Stan Lee had a favorite DC character, and he once admitted he wished the icon had actually been part of the Marvel Universe.
+---------
+
+# Ryan Vs Reacher Has Nothing On This Spy Thriller Rivalry From 25 Years Ago
+
+TV, Tom Clancy's Jack Ryan, Reacher
+
+Sun, 10 May 2026 20:00:22 GMT
+
+https://screenrant.com/24-alias-spy-thriller-rivalry-like-jack-ryan-reacher/
+
+Action series don't get much bigger than Jack Ryan or Reacher, but another pair of even better TV shows went head-to-head in the early noughties.
+---------
+
+# Baldur's Gate 3: 14 Things To Do Before Entering Shadowfell (Nightsong Mission)
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 10 May 2026 20:00:22 GMT
+
+https://screenrant.com/baldurs-gate-3-quests-before-shadowfell-act-2/
+
+There is much to do in Baldur’s Gate 3 before entering Shadowfell. Lady Shar’s domain is a point of no return, so any loose ends need to be tied up.
+---------
+
+# Disney Officially Becomes 2026's First Studio To Pass Major Box Office Milestone
+
+Movies, Disney, Box Office, Box Office Milestone
+
+Sun, 10 May 2026 19:55:46 GMT
+
+https://screenrant.com/disney-2026-first-studio-2-billion-box-office-milestone/
+
+Even before The Mandalorian and Grogu, Toy Story 5, or Avengers: Doomsday, Disney has already become 2026's first studio to achieve this milestone.
+---------
+
+# Disney Becomes First Studio to Reach $2 Billion in 2026
+
+Movies, Disney, The Devil Wears Prada 2
+
+Sun, 10 May 2026 20:35:58 GMT
+
+https://www.cbr.com/disney-box-office-surpasses-2-billion/
+
+Disney reaches an impressive milestone at the box office just five months into 2026.
+---------
+
+# Ghosts Season 5 Finally Makes CBS History
+
+TV, CBS, Ghosts
+
+Sun, 10 May 2026 20:30:45 GMT
+
+https://www.cbr.com/ghosts-season-5-isaac-ghost-rep-story-make-history/
+
+CBS marks a historic development in Ghosts Season 5, which could usher in massive changes for a shortened Season 6 after network changes.
+---------
+
+# Fallout Officially Gets New Release Coming Later This Year
+
+Games, Fallout
+
+Sun, 10 May 2026 20:30:13 GMT
+
+https://www.cbr.com/fallout-new-release-official-august-2026/
+
+Fallout is officially returning later this year with a brand-new release.
+---------
+
+# 5 James Bond Movies That Are Better Than Skyfall
+
+Movies, James Bond, Skyfall
+
+Sun, 10 May 2026 20:30:13 GMT
+
+https://www.cbr.com/james-bond-movies-better-than-skyfall-list/
+
+Skyfall remains a definitive James Bond movie, but there have been others that surpass it in one way or another.
+---------
+
+# Arrested Development Has the Funniest First Episode in TV History
+
+TV, Arrested Development, Comedy, Netflix
+
+Sun, 10 May 2026 20:30:13 GMT
+
+https://www.cbr.com/arrested-development-funniest-sitcom-pilot-tv-history/
+
+Arrested Development's "Pilot" set the stage for a sitcom masterpiece, introducing memorable characters and hilarious running gags from the start.
+---------
+
+# 8 Anime That Finally Proved CGI Could Be Good
+
+Anime, Shonen, seinen
+
+Sun, 10 May 2026 20:15:12 GMT
+
+https://www.cbr.com/best-anime-that-finally-proved-cgi-could-be-good/
+
+CGI in anime has always been controversial, but these series proved that it was as useful an animation tool as any other.
+---------
+
+# White Lotus Season 4 Star Breaks Down Helena Bonham Carter Exit
+
+TV, The White Lotus
+
+Sun, 10 May 2026 20:14:18 GMT
+
+https://www.cbr.com/the-white-lotus-season-4-helena-bonham-carter-exit-addressed/
+
+The biggest star of The White Lotus Season 4 shockingly left the project right after filming started.
+---------
+
+# Dragon Ball Editor Slams Akira Toriyama’s Final Anime Release
+
+Anime, Dragon Ball, Dragon Ball DAIMA, Shonen Jump
+
+Sun, 10 May 2026 20:00:14 GMT
+
+https://www.cbr.com/dragon-ball-editor-slams-daima-akira-toriyama-final-anime/
+
+The legendary editor of Dragon Ball slammed the final anime release by the late Akira Toriyama.
+---------
+
+# The Best Action Movie From Every Year of the 2010s
+
+Movies, Action, Mad Max: Fury Road, John Wick
+
+Sun, 10 May 2026 20:00:14 GMT
+
+https://www.cbr.com/best-action-movie-every-year-2010s-list/
+
+The 2010s were a game-changing era for action movies, and these ten masterpieces stand as the best action flicks from each year of the iconic decade.
+---------
+
+# It's Officially a New Era for Nintendo in 2026
+
+Games, Nintendo
+
+Sun, 10 May 2026 19:55:13 GMT
+
+https://www.cbr.com/nintendo-new-era-2026-switch-2-sales-price-change/
+
+Nintendo is entering a new era with the Switch 2 price increase, for better and for worse.
+---------
+
+# Prime Video’s Divisive $300 Million Spy Thriller Is Quietly Attempting a Streaming Comeback
+
+TV News, Citadel, Prime Video, Thriller, Drama
+
+Sun, 10 May 2026 20:30:13 GMT
+
+https://collider.com/prime-video-failed-spy-thriller-franchise-citadel-streaming-success-may-2026/
+
+Prime Video's high-stakes spy series returns for a second season despite the franchise's failure. Get all the details here.
+---------
+
+# 10 Most Disappointing Best Picture Wins of All Time, Ranked
+
+Movie, Green Book, Best Picture, Crash, Driving Miss Daisy
+
+Sun, 10 May 2026 20:27:14 GMT
+
+https://collider.com/most-disappointing-best-picture-wins-all-time-ranked/
+
+There are plenty of Best Picture winners from Oscar history that are kind of disappointing and bland, including Driving Miss Daisy and Cavalcade.
+---------
+
+# 6 Most Important Noir Movies That Define the Genre
+
+Movie, Film Noir, Double Indemnity, The Maltese Falcon, Sunset Boulevard
+
+Sun, 10 May 2026 20:11:13 GMT
+
+https://collider.com/most-important-film-noir-define-genre/
+
+From the Humphrey Bogart classic The Maltese Falcon to the masterpiece Sunset Boulevard, these movies are among the most important in film noir.
+---------
+
+# Netflix’s New 4-Part Survival Thriller Is Quietly Dominating Streaming
+
+TV News, Lord of the Flies, Netflix, Drama, Thriller
+
+Sun, 10 May 2026 20:00:14 GMT
+
+https://collider.com/netflix-survival-thriller-series-lord-of-the-flies-streaming-success-may-2026/
+
+Lord of the Flies, Netflix's latest four-part survival thriller series has become a streaming hit in the U.S. Here's everything you should know.
+---------
+
+# 'The Godfather': The Movie Steven Spielberg Called the "Greatest American Film Ever Made"
+
+Features, Steven Spielberg, The Godfather, Quote
+
+Sun, 10 May 2026 20:30:18 GMT
+
+https://movieweb.com/steven-spielberg-the-godfather-masterpiece/
+
+Steven Spielberg is awed by Francis Ford Coppola's iconic gangster movie, 'The Godfather', and it's a great take.
+---------
+
+# 'Severance' Fans Get Encouraging Season 3 Update
+
+TV News, Severance, Apple TV, Adam Scott
+
+Sun, 10 May 2026 20:14:56 GMT
+
+https://movieweb.com/severance-season-3-encouraging-update-adam-scott/
+
+Star Adam Scott admits that the wait between Seasons 1 and 2 was "too long."
+---------
+
+# Movies That Pushed the Boundaries of Censorship
+
+Movie Lists
+
+Sun, 10 May 2026 20:00:21 GMT
+
+https://movieweb.com/movies-pushed-boundaries-of-censorship/
+
+The most controversial films in cinema history, the battles they fought, and how each one permanently changed what was allowed on screen.
+---------
+
+# Takashi Miike's Violent Samurai Action Movie '13 Assassins' Is Being Removed From Free Streaming
+
+Movie News, 13 Assassins, Tubi, Coming/Leaving Streaming, Action
+
+Sun, 10 May 2026 20:00:20 GMT
+
+https://movieweb.com/13-assassins-action-leaving-free-streaming-pluto-june-2026/
+
+The violent samurai action movie '13 Assassins' is streaming for free on Tubi for a limited time.
+---------
+
+# 'Heroes': The Cult Series Took a Hard Look at Superheroes Long Before 'The Boys' and 'Invincible'
+
+Features, Heroes, Invincible, The Boys, Comparison Recommendation
+
+Sun, 10 May 2026 20:00:20 GMT
+
+https://movieweb.com/heroes-the-boys-invincible-replacement/
+
+'The Boys' and 'Invincible' prove that it's not all just Marvel and DC, but they weren't the first shows to do it.
+---------
+
 # Why Victoria Season 4 Was Canceled, Explained By Jenna Coleman & ITV
 
 Streaming TV, Victoria
