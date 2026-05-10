@@ -1,3 +1,212 @@
+# Why Victoria Season 4 Was Canceled, Explained By Jenna Coleman & ITV
+
+Streaming TV, Victoria
+
+Sun, 10 May 2026 19:30:21 GMT
+
+https://screenrant.com/victoria-season-4-cancelation-explained-jenna-coleman-itv/
+
+The historical drama Victoria ended after three seasons but the announcement from ITV suggests that season 4 could still be a possibility.
+---------
+
+# Pokémon Is Officially Expanding Pokémon Centers To A New Country
+
+Gaming, Pokemon
+
+Sun, 10 May 2026 19:30:20 GMT
+
+https://screenrant.com/pokemon-center-thailand-opening-details-location/
+
+The Pokémon Center is opening a new retail location, the first of its kind in a new country, but it still may be a ways away for fans in the West.
+---------
+
+# HBO's Harry Potter Vs. Greta Gerwig's Narnia: Which Fantasy Reboot Is More Exciting?
+
+Streaming TV, Harry Potter, Narnia: The Magician's Nephew
+
+Sun, 10 May 2026 19:00:20 GMT
+
+https://screenrant.com/harry-potter-tv-show-narnia-reboot-more-exciting/
+
+New adaptations of Harry Potter and Narnia are on the way, and while both are exciting, one of these projects has a bit more potential.
+---------
+
+# John Wick Meets Dracula In New Series That More Than Lives Up To The Hype
+
+Comics, Dracula, John Wick
+
+Sun, 10 May 2026 19:00:20 GMT
+
+https://screenrant.com/operation-iron-coffin-dracula-john-wick/
+
+Believe the hype!
+---------
+
+# 2026 Is The End Of An Era For Anime In The Worst Way Possible
+
+Anime
+
+Sun, 10 May 2026 19:00:20 GMT
+
+https://screenrant.com/anime-longer-2026-end-era-worse/
+
+The Spring 2026 anime season is geared up for a wave of unending anime franchises, and that might not be what's best for anime in the long term.
+---------
+
+# Zelda Fans Torn Over Link's Replacement For New Game
+
+Gaming, The Legend of Zelda
+
+Sun, 10 May 2026 19:00:20 GMT
+
+https://screenrant.com/zelda-2d-leak-fan-reaction-2027/
+
+Rumors suggest a new 2D Zelda game is planned for release in 2027, with Ganondorf as the protagonist.
+---------
+
+# The Princess Diaries 3 Director Teases Filming Update And “Fun Returns” From Original Cast
+
+Movies, The Princess Diaries 3
+
+Sun, 10 May 2026 18:54:46 GMT
+
+https://screenrant.com/the-princess-diaries-3-director-adele-lim-original-cast-return/
+
+The Princess Diaries 3 could be arriving sooner than expected, as the director reveals "fun returns" from the original cast and a filming update.
+---------
+
+# 5 Trilogies That Got Better With Each Movie
+
+Movies, The Dark Knight, Star Wars
+
+Sun, 10 May 2026 19:30:13 GMT
+
+https://www.cbr.com/movie-trilogies-that-got-better-each-entry-list/
+
+From the American West to a galaxy far, far away, these trilogies not only get better with time but also from movie to movie.
+---------
+
+# The Big Three Isekai Just Dethroned Shonen Anime For the Rest of 2026
+
+Anime, Isekai, Shonen
+
+Sun, 10 May 2026 19:25:19 GMT
+
+https://www.cbr.com/best-isekai-anime-returning-2026-shonen-big-three-replacement-anime/
+
+Shonen anime can't compete with 2026's biggest isekai anime series.
+---------
+
+# 10 Sakamoto Days Characters Who Would Be Terrifying in Spy x Family
+
+Anime, Spy x Family, Sakamoto Days
+
+Sun, 10 May 2026 19:15:13 GMT
+
+https://www.cbr.com/sakamoto-days-characters-terrifying-in-spy-x-family/
+
+These characters from Sakamoto Days would completely disrupt the carefully balanced world of Spy x Family.
+---------
+
+# After 5 Years, The Chestnut Man Season 2 Finally Arrives on Netflix
+
+TV, The Chestnut Man
+
+Sun, 10 May 2026 19:00:13 GMT
+
+https://www.cbr.com/the-chestnut-man-season-2-netflix-streaming-may-2026/
+
+Fans have been waiting for five years to see the story continue on Netflix.
+---------
+
+# 8 Reasons It's Hard To Watch the Dark Knight Trilogy Today
+
+Movies, The Dark Knight Trilogy
+
+Sun, 10 May 2026 19:00:13 GMT
+
+https://www.cbr.com/hard-to-watch-the-dark-knight-trilogy-today-list/
+
+Christopher Nolan's Dark Knight Trilogy is a feat of superhero cinema, but there are more than a few moments that make it a tough watch now.
+---------
+
+# Netflix's 2-Part Fantasy Series Is So Good, You'll Finish It in One Sitting
+
+TV Features, Shadow and Bone, Netflix, Fantasy, Jessie Mei Li
+
+Sun, 10 May 2026 19:41:14 GMT
+
+https://collider.com/netflix-fantasy-shadow-and-bone-finish-one-sitting/
+
+Netflix's Shadow and Bone is a unique fantasy series that combines epic action, humor, and intricate storytelling — perfect for genre fans.
+---------
+
+# Before 'Crime 101,' Its Director Made a Very Different Crime Film
+
+Movie Features, american animals, Barry Keoghan, Evan Peters, Crime 101
+
+Sun, 10 May 2026 19:39:13 GMT
+
+https://collider.com/american-animals-heist-movie-crime-101-director/
+
+Bart Layton's American Animals is a unique take on the heist film that prioritizes a low-stakes heist and the testimonials of the men really involved.
+---------
+
+# Apple TV's 8-Part Sci-Fi Thriller Doesn't Have a Single Bad Episode
+
+TV Features, Shining Girls, Apple TV, Elisabeth Moss, Wagner Moura
+
+Sun, 10 May 2026 19:14:13 GMT
+
+https://collider.com/apple-tv-shining-girls-sci-fi-thriller-no-bad-episodes/
+
+Shining Girls is a captivating sci-fi thriller from Apple TV that features masterful storytelling and nuanced performances.
+---------
+
+# Ahead of Season 4, Apple TV’s Most Beloved Series Is Crushing Streaming Charts Again
+
+TV News, Ted Lasso, Apple TV, Drama, Comedy
+
+Sun, 10 May 2026 19:01:14 GMT
+
+https://collider.com/apple-tv-fan-favorite-series-ted-lasso-streaming-success-may-2026/
+
+Ted Lasso, Apple TV's most Emmy-nominated show, makes a splash ahead of its fourth season premiere. Get all the details.
+---------
+
+# James Gunn Could Revive a 25-Year-Old Plastic Man DC Movie Pitch in 'Man of Tomorrow'
+
+Features, Man of Tomorrow, DCU, James Gunn
+
+Sun, 10 May 2026 19:30:19 GMT
+
+https://movieweb.com/james-gunn-dcu-matthew-lillard-plastic-man/
+
+When filming 'Scooby-Doo', James Gunn and Matthew Lillard pitched a DC superhero movie that can now finally happen.
+---------
+
+# 'Michael' Passes Major Box Office Milestone
+
+Movie News, Michael, box office, The Devil Wears Prada 2, Mortal Kombat II
+
+Sun, 10 May 2026 19:23:36 GMT
+
+https://movieweb.com/michael-box-office-milestone-devil-wears-prada-mortal-kombat/
+
+'Michael' took third place at the box office in its third weekend out, while a pair of sequels battled for the top spot.
+---------
+
+# Sally Field Reflects on Robin Williams Not Being Funny on 'Mrs. Doubtfire' Set
+
+Movie News, Mrs. Doubtfire, Sally Field, Robin Williams
+
+Sun, 10 May 2026 19:17:34 GMT
+
+https://movieweb.com/mrs-doubtfire-sally-field-robin-williams-funny/
+
+According to Sally Field, the late Robin Williams could not make her laugh on the set of 'Mrs. Doubtfire.'
+---------
+
 # Sydney Sweeney's Euphoria Character Is Facing Backlash After Offending OnlyFans Models
 
 TV, Euphoria
