@@ -1,3 +1,366 @@
+# Naruto's True Sasuke Successor Is Literally One Step Away From God-Tier
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Sun, 10 May 2026 02:00:31 GMT
+
+https://screenrant.com/naruto-sasuke-successor-sarada-uchiha-god-tier/
+
+The Uchiha Clan's truly incredible young heir has the makings of a truly god-tier Naruto franchise character, and is one step away from this goal.
+---------
+
+# God Of War Official Kratos Recast Is An Inspired Choice
+
+Gaming, God of War
+
+Sun, 10 May 2026 02:00:31 GMT
+
+https://screenrant.com/god-of-war-kratos-recast-opinion/
+
+The God of War franchise recasts original Kratos voice actor, sparking debate over the future of the series and the roles of both voice actors.
+---------
+
+# Stephen King’s Returning Show In 2026 Makes Up For The Boys Spinoff’s Cancellation
+
+Streaming TV, Stephen King, The Boys, Gen V, The Institute
+
+Sun, 10 May 2026 01:46:13 GMT
+
+https://screenrant.com/stephen-king-the-institute-gen-v-cancellation/
+
+The Boys’ incredible spin-off show has sadly been cancelled after two seasons, but a returning Stephen King show can perfectly make up for its end.
+---------
+
+# Disney+'s 9-Part 'WandaVision Meets Doctor Who' Series Is One Of Its Best Fantasy Shows
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 01:43:29 GMT
+
+https://screenrant.com/agatha-all-along-disney-wandavision-meets-doctor-who-fantasy/
+
+Disney has a brilliant nine-part fantasy show that quickly became one of its best, and it's a combination of WandaVision and Doctor Who.
+---------
+
+# Who Were The Shinsengumi? Song Of The Samurai's Elite Force Explained
+
+Streaming TV, Song of the Samurai
+
+Sun, 10 May 2026 01:30:19 GMT
+
+https://screenrant.com/song-of-the-samurai-shinsengumi-japan-history-explained/
+
+HBO's Song of the Samurai tells a fictionalized version of the story surrounding the legendary Shinsengumi, a secret Shogunate police force.
+---------
+
+# Netflix’s Latest June Update Just Stole Two Absolute Masterpieces From Crunchyroll
+
+Anime, Netflix
+
+Sun, 10 May 2026 01:30:19 GMT
+
+https://screenrant.com/netflix-assassination-classroom-shangri-la-frontier-peak-june/
+
+Two of the most hyped anime series are officially coming to Netflix this June. Find out why they’re an absolute must-watch series.
+---------
+
+# All 6 Sherlock Holmes Movies & TV Shows Happening Right Now
+
+Streaming TV, Sherlock Holmes
+
+Sun, 10 May 2026 01:15:20 GMT
+
+https://screenrant.com/all-sherlock-holmes-tv-shows-movies-2026/
+
+Sherlock Holmes is one of the most iconic literary figures of all time, as evidenced by his never-ending adaptations— including numerous 2026 titles.
+---------
+
+# Super Rant Rewatch: The Multiverse Saga Needed A Movie Like Age of Ultron (Before Doomsday)
+
+Superheroes, Avengers: Age of Ultron, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sun, 10 May 2026 01:07:34 GMT
+
+https://screenrant.com/super-rant-rewatch-avengers-age-of-ultron-before-doomsday-op-ed/
+
+After rewatching Age of Ultron, it's clear the second Avengers movie is the type of crossover the Multiverse Saga is missing ahead of Doomsday.
+---------
+
+# 7 Years Later, Netflix's Relentless Spy Thriller Is A Near-Perfect Binge Missing 1 Fix
+
+Anime, K-Drama, Vagabond, Netflix
+
+Sun, 10 May 2026 01:00:19 GMT
+
+https://screenrant.com/netflix-spy-thriller-vagabond-k-drama-perfect-needs-season-2/
+
+One of the finest spy thrillers available to stream simply must come back to Netflix ASAP.
+---------
+
+# 10 Greatest Sci-Fi Movies About UFO
+
+Classic Movies, Sci-Fi, Ranking
+
+Sun, 10 May 2026 01:00:19 GMT
+
+https://screenrant.com/best-sci-fi-movies-ufo-aliens/
+
+The idea of UFOs has been huge in Hollywood for many years, and here are the best movies released that deal with these unidentified flying objects.
+---------
+
+# New Ranking Reveals Spring 2026's Top 10 Male Anime Crushes
+
+Anime, Mission: Yozakura Family, Witch Hat Atelier, The Angel Next Door Spoils Me Rotten, Kill Blue
+
+Sun, 10 May 2026 02:00:23 GMT
+
+https://www.cbr.com/biggest-male-crush-spring-2026-anime-top-ranking/
+
+A prominent ranking site reveals which anime men are making the most viewers 'fall in love at first sight' in Spring 2026.
+---------
+
+# 7 Near-Perfect Seinen Anime Series No One Ever Talks About
+
+Anime, seinen
+
+Sun, 10 May 2026 01:45:12 GMT
+
+https://www.cbr.com/near-perfect-seinen-anime-series-that-are-forgotten/
+
+The hidden gems of the seinen anime world couldn't count on their incredible writing to make them as popular as Berserk and Witch Hat Atelier.
+---------
+
+# 10 Must-Read Books That Started Out as Fan Fiction
+
+Movies, Fifty Shades of Grey
+
+Sun, 10 May 2026 01:30:13 GMT
+
+https://www.cbr.com/greatest-books-started-as-fan-fiction-list/
+
+It's no secret that some authors start their careers by writing fanfiction, but sometimes those fanfics become new stories in their own rights
+---------
+
+# 10 Manga Masterpieces With No Bad Arcs
+
+Anime, Manga, Fullmetal Alchemist, Akane-banashi, Haikyuu!
+
+Sun, 10 May 2026 01:25:12 GMT
+
+https://www.cbr.com/manga-masterpieces-no-bad-arcs/
+
+Some manga manage to stay strong from beginning to end without any weak stretches in their storytelling.
+---------
+
+# Pedro Pascal's Materialists Becomes Global Streaming Hit on HBO Max
+
+Movies, Materialists, HBO Max, Romance
+
+Sun, 10 May 2026 01:00:12 GMT
+
+https://www.cbr.com/pedro-pascal-materialists-romance-comedy-drama-hbo-max-success-may-2026/
+
+Pedro Pascal, Dakota Johnson, and Chris Evans' romantic comedy-drama Materialists becomes a global streaming hit on HBO Max.
+---------
+
+# Stephen King's The Talisman Deserves a TV Adaptation
+
+TV, Stephen King, Horror, Fantasy, The Talisman
+
+Sun, 10 May 2026 01:00:12 GMT
+
+https://www.cbr.com/stephen-king-the-talisman-deserves-adaptation/
+
+One of Stephen King's best dark fantasy projects has never been put to the screen, and when it finally is, it may have the best werewolf of all time.
+---------
+
+# The Elusive Samurai Rejects Traditional Anime Bravery
+
+Anime, The Elusive Samurai
+
+Sun, 10 May 2026 00:45:13 GMT
+
+https://www.cbr.com/the-elusive-samurai-rejects-traditional-anime-bravery/
+
+The Elusive Samurai's refusal to follow typical shonen ideals gives the story a unique identity.
+---------
+
+# Yellowstone’s Most Brutal Scene Shows Exactly Who Rip Wheeler Really Is
+
+TV, Dutton Ranch, Yellowstone
+
+Sun, 10 May 2026 00:30:27 GMT
+
+https://www.cbr.com/everything-need-to-knpw-rip-wheeler-dutton-ranch-yellowstone-season-3/
+
+Yellowstone Season 3 quietly reveals everything audiences need to know about Cole Hauser's brutal character as Rip Wheeler's comeback approaches.
+---------
+
+# Nicolas Cage's Pig Leaves Netflix This Month
+
+Movies, Netflix, Pig, Nicolas Cage
+
+Sun, 10 May 2026 00:30:13 GMT
+
+https://www.cbr.com/nicolas-cage-pig-leaving-netflix-may-2026/
+
+Time is running out for Netflix subscribers to watch Nicolas Cage's best-reviewed live-action movie.
+---------
+
+# 10 Best Games to Play If You Loved Clair Obscur: Expedition 33
+
+Games, Gaming, RPG, JRPG
+
+Sun, 10 May 2026 00:30:13 GMT
+
+https://www.cbr.com/best-game-recommendations-for-clair-obscur-expedition-33-fans/
+
+Finished Clair Obscur: Expedition 33? Here are 10 games that match its combat, characters, and emotional storytelling — your next RPG awaits.
+---------
+
+# 7 Most Universally Loved Movies Ever, Ranked
+
+Movie, Jurassic Park, The Breakfast Club, The Lion King, Goodfellas
+
+Sun, 10 May 2026 01:33:13 GMT
+
+https://collider.com/most-universally-loved-movies-ever-ranked/
+
+Back to the Future, Jurassic Park, The Breakfast Club, The Lion King, Goodfellas, and more make up our list of the most universally loved movies ever.
+---------
+
+# 8 Drama Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Drama, Game Of Thrones, Breaking Bad, The Sopranos
+
+Sun, 10 May 2026 01:08:13 GMT
+
+https://collider.com/drama-shows-masterpieces-first-10-minutes/
+
+Certain drama shows kick off in amazing fashion and then never let up, including classics like Game of Thrones, The Sopranos, and Breaking Bad.
+---------
+
+# David Fincher's 127-Minute Crime Masterpiece Officially Returns to Streaming Next Month
+
+Movie News, Se7en, David Fincher, Brad Pitt, Morgan Freeman
+
+Sun, 10 May 2026 01:00:13 GMT
+
+https://collider.com/david-fincher-brad-pitt-crime-masterpiece-se7en-free-streaming-tubi-june-2026/
+
+David Fincher’s best crime drama, Se7en, starring Brad Pitt and Morgan Freeman, is on its way to a free streamer. Read on for more.
+---------
+
+# 26 Years Later, Mel Gibson’s 3-Hour War Epic Is Preparing To Take Over the World
+
+Movie News, The Patriot, Mel Gibson, Heath Ledger, Roland Emmerich
+
+Sun, 10 May 2026 00:45:13 GMT
+
+https://collider.com/mel-gibson-heath-ledger-war-epic-the-patriot-free-streaming-tubi-june-2026/
+
+Nearly three decades since its arrival, the best Mel Gibson film of all time, The Patriot, is heading to a free streamer. Find out more here.
+---------
+
+# 10 'Spider-Man: The Animated Series' Episodes That Are Considered Masterpieces
+
+TV, Spider-Man: The Animated Series, Spider-Man, Superhero
+
+Sun, 10 May 2026 00:34:13 GMT
+
+https://collider.com/spider-man-the-animated-series-episodes-masterpieces/
+
+Spider-Man: The Animated Series marked a high point for the Web-Slinger, with many episodes that can be considered as masterpieces in their own right.
+---------
+
+# Forget ‘True Detective,’ Nicole Kidman’s Mystery Thriller Is Leaving Netflix Soon
+
+Movie News, The Paperboy, Nicole Kidman, Zac Efron, Netflix
+
+Sun, 10 May 2026 00:30:13 GMT
+
+https://collider.com/nicole-kidman-zac-efron-true-detective-replacement-mystery-thriller-the-paperboy-leaving-netflix-may-2026/
+
+Nicole Kidman's bonkers southern gothic mystery film with Zac Efron, The Paperboy, is leaving Netflix soon. Find out when.
+---------
+
+# Forget ‘Emily in Paris,’ Hulu's Fashion World Nightmare Is the Ultimate Comfort Rewatch
+
+Movie News, The Devil Wears Prada, The Devil Wears Prada 2, Meryl Streep, Anne Hathaway
+
+Sun, 10 May 2026 00:15:13 GMT
+
+https://collider.com/meryl-streep-fashion-world-nightmare-the-devil-wears-prada-streaming-success-hulu-may-2026/
+
+The Devil Wears Prada is now streaming, giving viewers another chance to revisit fashion’s most ruthless workplace movie.
+---------
+
+# ‘Coraline’ Meets ‘The Babadook’ in This Twisted Fantasy Nightmare Now Streaming
+
+Movie News, Coraline, The Babadook, Dust Bunny, Horror
+
+Sun, 10 May 2026 00:00:12 GMT
+
+https://collider.com/mads-mikkelsen-fantasy-nightmare-dust-bunny-streaming-success-hbo-max-may-2026/
+
+The family fantasy film Dust Bunny, starring Mads Mikkelsen and Sigourney Weaver, is now a must-watch on HBO Max. Find out more here.
+---------
+
+# Apple TV's 10-Part Sci-Fi Series That's 'Mad Men' Meets 'Fallout' Is Quietly One of Its Best Shows To Binge
+
+TV Features, Hello Tomorrow!, Apple TV, Billy Crudup, Sci-Fi
+
+Sat, 09 May 2026 23:52:12 GMT
+
+https://collider.com/hello-tomorrow-apple-tv-sci-fi-mad-men-meets-fallout-best-binge/
+
+Apple TV's Hello Tomorrow! masterfully blends the charm of Mad Men with the retrofuturistic elements of Fallout, creating a must-watch sci-fi series.
+---------
+
+# Nicolas Cage’s Best Revenge Thriller Is Leaving Netflix in 17 Days
+
+Movie News, Pig, Nicolas Cage, Thriller, Netflix
+
+Sat, 09 May 2026 23:45:13 GMT
+
+https://collider.com/nicolas-cage-revenge-thriller-masterpiece-pig-leaving-netflix-may-2026/
+
+Nicolas Cage's revenge thriller masterpiece, Pig, is leaving streaming soon. Find out where to watch one of Cage's favorite performances.
+---------
+
+# Shawn Levy Set to Direct New Netflix Movie 'Somewhere Out There'
+
+Movie News, Star Wars: Starfighter, Shawn Levy, Netflix
+
+Sun, 10 May 2026 02:04:32 GMT
+
+https://movieweb.com/shawn-levy-director-netflix-somewhere-out-there/
+
+Following his work on 'Star Wars: Starfighter,' director Shawn Levy is reuniting with Netflix to direct a new movie, 'Somewhere Out There.'
+---------
+
+# Before 'I Am Legend 2,' Will Smith's Horror Action Zombie Movie is a Streaming Success on AMC+
+
+Movie News, I Am Legend, AMC+, Hot on Streaming, I Am Legend 2
+
+Sun, 10 May 2026 00:00:17 GMT
+
+https://movieweb.com/i-am-legend-sci-fi-streaming-success-amc-may-2026/
+
+Michael B. Jordan is officially confirmed to lead 'I Am Legend 2.' But, before that, the original zombie movie is a streaming success.
+---------
+
+# Mike Flanagan’s Netflix Horror Series 'Midnight Mass' Keeps Getting Better
+
+Features, Midnight Mass, Netflix, Quote
+
+Sun, 10 May 2026 00:00:17 GMT
+
+https://movieweb.com/midnight-mass-best-mike-flanagan-netflix-series/
+
+'Midnight Mass,' the horror series by Mike Flanagan released on Netflix in 2021, stars Zach Gilford, Hamish Linklater, and Samantha Sloyan.
+---------
+
 # Mortal Kombat 2 Writer Explains Why One Video Game Fighter Was Cut
 
 Movies, Mortal Kombat II
