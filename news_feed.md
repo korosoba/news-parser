@@ -1,3 +1,278 @@
+# Benedict Cumberbatch Gets Into Road Rage Incident With Cyclist
+
+Movies, Benedict Cumberbatch
+
+Sun, 10 May 2026 16:42:49 GMT
+
+https://screenrant.com/benedict-cumberbatch-road-rage-incident-cyclist/
+
+Benedict Cumberbatch is not very amused, as a public road rage incident with a cyclist is the talk of the town, and the actor was labelled "deluded".
+---------
+
+# Hugh Jackman's 10 Best Movie Roles That Aren't Wolverine
+
+Classic Movies, Hugh Jackman, Ranking
+
+Sun, 10 May 2026 16:40:22 GMT
+
+https://screenrant.com/hugh-jackman-best-movie-roles-not-wolverine/
+
+Hugh Jackman has delivered amazing performances over his career, and with Sheep Detectives coming out, here are his best roles other than Wolverine.
+---------
+
+# One Piece Just Revealed A Character Way Stronger Than Luffy
+
+Anime, One Piece
+
+Sun, 10 May 2026 16:31:19 GMT
+
+https://screenrant.com/one-piece-god-tier-villain-zaza-reveal/
+
+One Piece has a new major threat.
+---------
+
+# 10 Shows Everyone Was Watching In 1996
+
+Classic TV
+
+Sun, 10 May 2026 16:31:19 GMT
+
+https://screenrant.com/tv-shows-everyone-was-watching-1996/
+
+30 years ago, at the height of network television's "Must See TV" era, these ten shows were the talk of the town.
+---------
+
+# New Hogwarts Legacy 2 Leaks Unite Gamers Everywhere
+
+Gaming, Hogwarts Legacy, Triple-A Games
+
+Sun, 10 May 2026 16:31:19 GMT
+
+https://screenrant.com/hogwarts-legacy-2-massive-leak-gamer-reaction/
+
+While fans are waiting for more concrete info on Hogwarts Legacy 2, the leaks are piling up, and some of them are pretty massive.
+---------
+
+# Daredevil: Born Again Villain Weighs In Whether Bullseye Will Join The MCU's New Avengers
+
+TV, Daredevil: Born Again, The Avengers, Marvel Cinematic Universe, Daredevil
+
+Sun, 10 May 2026 16:29:21 GMT
+
+https://screenrant.com/daredevil-born-again-bullseye-thunderbolts-wilson-bethel/
+
+After his fate in Daredevil: Born Again season 2, Bullseye actor Wilson Bethel shares if Poindexter will be part of the MCU's new version of Avengers.
+---------
+
+# Lewis Pullman’s New Netflix Fantasy Adaptation Swims To The Top Of The Streaming Charts
+
+Movies, Masked Recs
+
+Sun, 10 May 2026 16:23:20 GMT
+
+https://screenrant.com/remarkably-bright-creatures-netflix-streaming-success-may-2026/
+
+Ahead of his return to the MCU in Avengers: Doomsday, Lewis Pullman's new Netflix fantasy movie based on a popular book has become a streaming hit.
+---------
+
+# Twin Peaks’ Animated Successor Just Got The Green Light
+
+TV, Twin Peaks
+
+Sun, 10 May 2026 16:20:19 GMT
+
+https://screenrant.com/twin-peaks-animated-successor-where-is-tracy-maddison-funded/
+
+An animated series that draws strong inspiration from Twin Peaks is now set to have its pilot release later down the line thanks to a recent update.
+---------
+
+# 10 Shows Like The Summer I Turned Pretty On Prime Video
+
+Streaming TV
+
+Sun, 10 May 2026 16:00:18 GMT
+
+https://screenrant.com/shows-like-the-summer-i-turned-pretty-prime-video/
+
+10 shows that are similar to The Summer I Turned Pretty on Prime Video, featuring intense relationships, emotional depth, and captivating teen drama.
+---------
+
+# Legend Of Zelda Creator Reveals The One Entry He Considers A Failure
+
+Gaming, The Legend of Zelda
+
+Sun, 10 May 2026 16:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-miyamoto-failure-adventure-of-link/
+
+The Legend of Zelda creator Shigeru Miyamoto has revealed the one game he considers a failure and why it didn't live up to expectations.
+---------
+
+# Mortal Kombat II's Bartender Cameo Explained
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Sun, 10 May 2026 16:30:13 GMT
+
+https://www.cbr.com/mortal-kombat-2-movie-ed-boon-bartender-cameo/
+
+In addition to the many video game characters who appeared in the Mortal Kombat II film, one famous face served a drink to protagonist Johnny Cage.
+---------
+
+# This Supernatural Star Nearly Played Smallville's Superman Instead of Tom Welling
+
+TV, Smallville, Supernatural, Jensen Ackles
+
+Sun, 10 May 2026 16:30:13 GMT
+
+https://www.cbr.com/supernatural-jensen-ackles-smallville-superman-casting/
+
+Smallville fans can't imagine anyone but Tom Welling as Clark Kent, yet another actor almost played young Superman before landing his own iconic role.
+---------
+
+# Doctor Strange Star Benedict Cumberbatch Dubbed 'Deluded' During Bike Road Rage Incident
+
+Movies, benedict cumberbatch
+
+Sun, 10 May 2026 16:16:43 GMT
+
+https://www.cbr.com/benedict-cumberbatch-bike-road-rage-incident/
+
+After Alan Ritchson's bike argument, the MCU star was involved in an argument with a cyclist.
+---------
+
+# Reigen Is the Adult Mentor Shonen Anime Didn't Know It Needed
+
+Anime, Mob Psycho 100
+
+Sun, 10 May 2026 16:15:12 GMT
+
+https://www.cbr.com/mob-psycho-reigen-best-shonen-adult-mentor/
+
+Mob Psycho 100's Reigen shows mentorship from an angle rarely ever seen in shonen anime.
+---------
+
+# Transformers Finally Gives the 1st Movie's Smallest Decepticon a New Screen-Accurate Release
+
+Anime, Transformers
+
+Sun, 10 May 2026 16:00:12 GMT
+
+https://www.cbr.com/transformers-2007-frenzy-dr-wu-prototype/
+
+One of the most complex designs from the first Michael Bay Transformers movie has finally been given a screen-accurate action figure from Dr. Wu.
+---------
+
+# Marvel Brings Back Spider-Man’s Most Controversial Girlfriend for 60th Anniversary Event
+
+Comics, Spider-Man
+
+Sun, 10 May 2026 16:00:12 GMT
+
+https://www.cbr.com/mary-jane-face-it-tiger-release-date/
+
+The most beloved (and hotly debated) romantic partner in Spider-Man's entire life is officially celebrating her 60th anniversary with a bold new title
+---------
+
+# 5 Forgotten R-Rated Action Movies That Are Perfect From Start to Finish
+
+Movies, Action
+
+Sun, 10 May 2026 16:00:12 GMT
+
+https://www.cbr.com/r-rated-action-movies-no-one-remembers/
+
+R-rated action movies can sometimes get a bad reputation, but these forgotten gems are perfect from the first frame.
+---------
+
+# Hollywood's Most Iconic Star Won His Only Oscar 20 Years Too Late — and Never Saw It Coming
+
+Movie Features, Charlie Chaplin, Limelight, Academy Awards, Oscar
+
+Sun, 10 May 2026 16:41:15 GMT
+
+https://collider.com/limelight-oscar-win-20-years-later-larry-russell-explained/
+
+Inside Limelight’s sparse score, Chaplin’s exile, and the rule that delayed its Oscar win for decades.
+---------
+
+# Forget 'Jaws' — Steven Spielberg's Stellar Detective Thriller Is a Masterpiece From Start to Finish
+
+Movie Features, Catch Me If You Can, Steven Spielberg, Tom Hanks, Leonardo DiCaprio
+
+Sun, 10 May 2026 16:23:15 GMT
+
+https://collider.com/steven-spielberg-masterpiece-catch-me-if-you-can-forget-jaws/
+
+Catch Me If You Can stands out among Steven Spielberg's greatest films ever made.
+---------
+
+# 10 Near-Perfect Horror Thrillers That No One Remembers Today
+
+Movie, Horror, Absentia, Eden Lake, Hush
+
+Sun, 10 May 2026 16:06:14 GMT
+
+https://collider.com/near-perfect-horror-thrillers-no-one-remembers/
+
+Horror has produced many timeless masterpieces, but forgotten movie gems like Oculus and Peeping Tom are almost as perfect and deserve more attention.
+---------
+
+# Ridley Scott’s Brutal Historical Epic Is Quietly Taking Over the World
+
+Movie News, Ridley Scott, Gladiator II, Netflix, Streaming
+
+Sun, 10 May 2026 16:00:12 GMT
+
+https://collider.com/ridley-scott-historical-epic-gladiator-2-global-streaming-success-netflix-may-2026/
+
+Ridley Scott's swords-and-sandals sequel, Gladiator II, starring Denzel Washington, is officially a streaming hit worldwide. Read on for more.
+---------
+
+# The Greatest Sci-Fi Series Beat 'Black Mirror' at Its Own Game in Just 1 Episode
+
+TV Features, Battlestar Galactica, Ronald Moore, Katee Sackhoff, Edward James Olmos
+
+Sun, 10 May 2026 15:54:13 GMT
+
+https://collider.com/greatest-sci-fi-series-beat-black-mirror-battlestar-galactica/
+
+Battlestar Galactica set the stage for a groundbreaking sci-fi series that explored complex political themes and riveting character dynamics.
+---------
+
+# 'Devil May Cry' Reportedly Renewed for Season 3 at Netflix
+
+TV News, Devil May Cry, Netflix, Horror
+
+Sun, 10 May 2026 16:36:28 GMT
+
+https://movieweb.com/devil-may-cry-season-3-netflix/
+
+Netflix has renewed 'Devil May Cry' for a third season before the second even drops.
+---------
+
+# John Wayne's Classic Western 'The Searchers' Still Holds Up 70 Years Later
+
+Features, The Searchers, John Wayne
+
+Sun, 10 May 2026 16:00:17 GMT
+
+https://movieweb.com/john-wayne-classic-the-searchers-holds-up/
+
+John Ford's landmark Western 'The Searchers' remains one of the greatest movies ever made, and is John Wayne's personal favorite.
+---------
+
+# The Most Dysfunctional Mother-Son Movie Relationships
+
+Movie Lists
+
+Sun, 10 May 2026 16:00:17 GMT
+
+https://movieweb.com/dysfunctional-mother-son-movie-relationships/
+
+The most dysfunctional mother-son movie relationships cover the most toxic, complicated, and deeply unsettling family dynamics on screen.
+---------
+
 # 13 Years Later, The Best Isekai Anime Worldbuilding Is Still Undefeated
 
 Anime, Isekai, Log Horizon
