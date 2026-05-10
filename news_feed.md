@@ -1,3 +1,234 @@
+# Marvel Officially Confirms a Major Hero Is Permanently Dead and Won't Return
+
+Comics, Spider-Man, Ultimate Marvel
+
+Sun, 10 May 2026 23:30:20 GMT
+
+https://screenrant.com/ultimate-spider-man-dead-permanent-no-resurrection/
+
+So... anyone believe them?
+---------
+
+# Marvel Studios Is Officially Remaking One Of The Greatest X-Men Sagas
+
+Streaming TV, X-Men '97, X-Men: The Animated Series, X-Men, Marvel
+
+Sun, 10 May 2026 23:30:20 GMT
+
+https://screenrant.com/x-men-97-season-2-age-of-apocalypse-remake/
+
+Discover how Marvel's X-Men '97 animated series will reimagine the epic Age of Apocalypse saga, bringing new twists to this iconic X-Men story.
+---------
+
+# Summer 2026's Box Office Is Officially Off To A Great Start
+
+Movies, The Devil Wears Prada 2, Michael
+
+Sun, 10 May 2026 23:15:22 GMT
+
+https://screenrant.com/summer-2026-box-office-season-start/
+
+2026's summer movie slate includes many exciting projects, and the season's box office is already performing well, thanks to two notable films.
+---------
+
+# Star Wars' New Sith Is Showing Kylo Ren How It's Done
+
+Streaming TV, Star Wars, Ben Solo/Kylo Ren
+
+Sun, 10 May 2026 23:00:21 GMT
+
+https://screenrant.com/star-wars-visions-ronin-former-sith-redemption-kylo-ren/
+
+Kylo Ren and Ben Solo deserved a better future, and a character from Star Wars' most creative Disney+ show offers a glimpse of what could have been.
+---------
+
+# Naruto and Sasuke Have Never Been The Franchise's Deepest Hero
+
+Anime, Naruto
+
+Sun, 10 May 2026 23:00:21 GMT
+
+https://screenrant.com/naruto-kakashi-deepest-franchise-character/
+
+Explore how Kakashi Hatake's tragic past, internalized pain, and unwavering loyalty set him apart as one of Naruto's most complex and relatable heroes
+---------
+
+# Elden Ring 2 Splits Gamers Down The Middle
+
+Gaming, Elden Ring
+
+Sun, 10 May 2026 23:00:21 GMT
+
+https://screenrant.com/elden-ring-2-gamers-react-speculation/
+
+Elden Ring fans passionately discuss the possibility of a sequel versus a new IP, with opinions split between refining the game further.
+---------
+
+# Star Wars: Return of the Jedi Star Michael Pennington Passes Away
+
+Movies, Star Wars: Episode VI - Return of the Jedi
+
+Sun, 10 May 2026 22:43:30 GMT
+
+https://screenrant.com/star-wars-return-of-the-jedi-michael-pennington-passes-away/
+
+Star Wars: Episode VI – Return of the Jedi star and critically acclaimed stage actor, Michael Pennington passes away at 82 years old.
+---------
+
+# 1 of the Best Dystopian Dramas, The Handmaid's Tale, Is a Hit on Netflix
+
+TV, The Handmaid's Tale, The Testaments, Netflix
+
+Sun, 10 May 2026 23:30:13 GMT
+
+https://www.cbr.com/the-handmaids-tale-dystopia-the-testaments-netflix-success-may-2026/
+
+The Handmaid's Tale, based on Margaret Atwood's novel, is a Netflix streaming sensation worldwide amid sequel series, The Testaments.
+---------
+
+# 10 Most Universally Beloved Sci-Fi Movie Villains, Ranked
+
+Movies, Sci-Fi
+
+Sun, 10 May 2026 23:30:13 GMT
+
+https://www.cbr.com/beloved-sci-fi-movie-villains-list/
+
+There are many sci-fi movie villains we just can't help but love, even though they might have done some of the worst things in cinema history.
+---------
+
+# Damon Salvatore Is the True Main Character of The Vampire Diaries
+
+TV, The Vampire Diaries
+
+Sun, 10 May 2026 23:30:13 GMT
+
+https://www.cbr.com/damon-saved-vampire-diaries-not-elena/
+
+The Vampire Diaries has many characters that act as protagonists. While all points would lead to Elena being the focus, it's actually someone else.
+---------
+
+# 10 Greatest Anime Masterpieces of the 1990s
+
+Anime
+
+Sun, 10 May 2026 23:15:14 GMT
+
+https://www.cbr.com/official-greatest-anime-masterpieces-of-the-1990s/
+
+The 1990s took anime global and presented fans around the world with some of the greatest masterpieces in the medium's history.
+---------
+
+# Ridley Scott’s Horror Series The Horror the Devil in Silver Is Officially 1 of the Most Popular Shows on Streaming
+
+TV, The Terror
+
+Sun, 10 May 2026 23:00:13 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-devil-in-silver-horror-amc-plus-success-may-2026/
+
+The new entry has had a fantastic reception.
+---------
+
+# 5 Harry Potter Characters More Powerful Than Voldemort, Ranked
+
+Movies, Harry Potter
+
+Sun, 10 May 2026 23:00:13 GMT
+
+https://www.cbr.com/harry-potter-characters-more-powerful-than-voldemort-list/
+
+Voldemort is the scariest enemy in the Harry Potter franchise, but there are other wizards who are even more powerful and dangerous.
+---------
+
+# ‘The Devil Wears Prada 2’ Stars Just Pulled Off One of Hollywood’s Biggest Power Moves
+
+Movie News, The Devil Wears Prada 2, Meryl Streep, Anne Hathaway, Emily Blunt
+
+Sun, 10 May 2026 23:30:13 GMT
+
+https://collider.com/the-devil-wears-prada-2-salaries-meryl-streep-anne-hathaway-emily-blunt-12-million/
+
+Meryl Streep, Anne Hathaway, and Emily Blunt negotiated equal paydays for The Devil Wears Prada 2, and are likely to earn significant bonuses.
+---------
+
+# Netflix's 7-Part Horror Miniseries Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Midnight Mass, Mike Flanagan, Hamish Linklater, Netflix
+
+Sun, 10 May 2026 23:27:13 GMT
+
+https://collider.com/netflix-horror-miniseries-midnight-mass-mike-flanagan-rewatch/
+
+Mike Flanagan's Midnight Mass is a gripping horror miniseries that gets better every time you rewatch it.
+---------
+
+# Forget ‘Mr. & Mrs. Smith,’ Netflix’s New 127-Minute Action-Romance Is an Instant Global Hit
+
+Movie News, Action, Netflix, Mr. and Mrs. Smith, John Wick
+
+Sun, 10 May 2026 23:15:15 GMT
+
+https://collider.com/netflix-mr-and-mrs-smith-replacement-action-romance-my-dearest-assassin-streaming-success-may-2026/
+
+Netflix's stylish new action-romance film, My Dearest Assassin, is taking over the worldwide streaming chart immediately after its release.
+---------
+
+# 'Rivals' Season 2 Is Bigger, Better, and Raunchier Than Ever | Review
+
+TV Reviews, Rivals, Hulu, Aidan Turner, Drama
+
+Sun, 10 May 2026 23:01:14 GMT
+
+https://collider.com/rivals-season-2-review-hulu/
+
+With a bigger cast, more episodes, and deeper storylines, does Hulu's Rivals impress in its second season? Read our review.
+---------
+
+# 12 Years Later, Angelina Jolie’s Twisted Fantasy Blockbuster Finds New Life on Streaming
+
+Movie News, Angelina Jolie, Maleficent, Fantasy, Elle Fanning
+
+Sun, 10 May 2026 23:00:13 GMT
+
+https://collider.com/angelina-jolie-twisted-fantasy-blockbuster-disney-villain-maleficent-streaming-success-may-2026/
+
+The fantasy epic Maleficent, starring Angelina Jolie as the titular anti-heroine, has re-emerged on streaming charts over a decade after its release.
+---------
+
+# Prime Video’s Forgotten but Brilliant 2-Part Horror Anthology Is a Perfect Binge
+
+TV Features, Lore, Prime Video, Horror, Anthology
+
+Sun, 10 May 2026 22:46:14 GMT
+
+https://collider.com/prime-video-lore-horror-anthology-perfect-binge/
+
+Lore is a chilling and underrated horror anthology that looks at historical events behind movie monsters and talks about urban myths and legends.
+---------
+
+# 2026's Most Divisive Blockbuster Officially Crushes a Colossal Box Office Milestone
+
+Movie News, Michael, Box Office, Biopic, Colman Domingo
+
+Sun, 10 May 2026 22:45:14 GMT
+
+https://collider.com/michael-jackson-2026-biopic-biggest-box-office-sensation-500-million-worldwide-box-office/
+
+The Michael Jackson biopic has become the third Hollywood film of the year to pass the half-billion mark at the worldwide box office. Find out more.
+---------
+
+# Netflix Crime Thriller With MCU Stars Tessa Thompson and Jon Bernthal Is Must-See TV
+
+Features, MCU
+
+Sun, 10 May 2026 23:00:18 GMT
+
+https://movieweb.com/netflix-his-and-hers-mcu-hidden-gem/
+
+Netflix crime mystery thriller series, 'His & Hers,' puts MCU stars Tessa Thompson and Jon Bernthal in a murder tale you'll enjoy.
+---------
+
 # Netflix's 3-Part Sci-Fi Adaptation Is Already Guaranteed To Finish Its Story
 
 Streaming TV, Masked Recs
