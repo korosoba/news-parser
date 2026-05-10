@@ -1,3 +1,289 @@
+# 10 Most Iconic Xbox 360 Games Of All Time
+
+Gaming, Microsoft
+
+Sun, 10 May 2026 13:00:19 GMT
+
+https://screenrant.com/most-iconic-xbox-360-games-all-time/
+
+From iconic co-op masterpieces to genre-bending legends, the most iconic games to ever hit the Xbox 360 are still must-play titles.
+---------
+
+# 10 Most Brutal Anime Universes, Ranked
+
+Anime
+
+Sun, 10 May 2026 13:00:19 GMT
+
+https://screenrant.com/most-brutal-anime-universes-ranked/
+
+Explore the most dangerous and violent anime universes where survival is a constant battle against deadly threats and forces beyond control.
+---------
+
+# 10 Harsh Realities Of Rewatching Twister 30 Years After Its Release
+
+Movies, Twister
+
+Sun, 10 May 2026 12:55:18 GMT
+
+https://screenrant.com/twister-movie-harsh-realities-30-years-later/
+
+Twister is a beloved disaster movie that holds up surprisingly well, but certain aspects around its plot and characters haven't aged gracefully.
+---------
+
+# A Quiet Place 3 Gets Massive Filming Update From John Krasinski
+
+Movies, A Quiet Place Part III
+
+Sun, 10 May 2026 12:52:42 GMT
+
+https://screenrant.com/a-quiet-place-3-official-filming-start-john-krasinski/
+
+Five years after the second movie was released, John Krasinski provides a massive filming update for the next installment in the horror franchise.
+---------
+
+# Netflix's Record-Breaking Crime Series Money Heist Gets Surprising Announcement
+
+TV, Money Heist
+
+Sun, 10 May 2026 12:30:37 GMT
+
+https://screenrant.com/money-heist-netflix-renewal-teaser-announcement/
+
+Ahead of the premiere of season 2 of Berlin, the flagship series Money Heist (La Casa de Papel) has had a surprising renewal announcement.
+---------
+
+# From Finally Reveals The Disturbing Answer To A 4-Year-Old Sara Mystery
+
+Streaming TV, From, FROM - Season 4
+
+Sun, 10 May 2026 12:30:20 GMT
+
+https://screenrant.com/from-season-4-sara-voices-man-in-yellow-reveal/
+
+A mystery that began in From season 1 has finally been answered, with the disturbing answer revealed in season 4, episode 4 of the horror series.
+---------
+
+# The Best Fantasy Movie From Each Year Of The '90s
+
+Movies, Fantasy, Ranking
+
+Sun, 10 May 2026 12:30:20 GMT
+
+https://screenrant.com/best-fantasy-movies-1990-1999/
+
+The '90s were a great time for the fantasy genre, with timeless movies from Disney, Studio Ghibli, Tim Burton, and more coming out each year.
+---------
+
+# Pokémon Sacred Gold Is The Ultimate Johto Remake
+
+Gaming, Pokemon
+
+Sun, 10 May 2026 12:30:20 GMT
+
+https://screenrant.com/pokemon-sacred-gold-johto-rom-hack/
+
+Discover Pokémon Sacred Gold, a fan-made ROM hack that offers a challenging and content-rich Johto experience, with 493 Pokémon, and much more.
+---------
+
+# 10 Worst Decisions Ever Made By Superhero Movies
+
+Movies, Marvel Cinematic Universe, DC Universe, Sony's Spider-Man Universe, Ant-Man & the Wasp: Quantumania, Batman v Superman: Dawn of Justice, X-Men: The Last Stand, Suicide Squad, Spider-Man 3, Fantastic Four: Rise of the Silver Surfer, Catwoman, X-Men Origins: Wolverine
+
+Sun, 10 May 2026 12:30:20 GMT
+
+https://screenrant.com/superhero-movie-worst-decisions-ever/
+
+From a dancing emo Spider-Man to Galactus as a cloud, these superhero movie decisions still frustrate comic book audiences years later.
+---------
+
+# Demon Slayer’s Muzan Might Be the Most Incompetent Villain in Shonen
+
+Anime, Demon Slayer
+
+Sun, 10 May 2026 12:30:20 GMT
+
+https://screenrant.com/demon-slayer-muzan-most-incompetent-anime-villain/
+
+Despite his immense power, Muzan Kibutsuji's arrogance, paranoia, and shortsightedness make him one of the most incompetent villains in shonen.
+---------
+
+# In Just 1 Day, Starz's Divisive New Historical Drama Is Fighting Outlander for No. 1
+
+TV, Amadeus
+
+Sun, 10 May 2026 13:00:12 GMT
+
+https://www.cbr.com/starz-historical-drama-amadeus-streaming-success-may-2026/
+
+The new series, starring Paul Bettany, has critics and audiences divided - but it's already battling for the top of the charts.
+---------
+
+# 5 Masterpiece Comedy Westerns Even Better Than 'Blazing Saddles'
+
+Movies, Western, Blazing Saddles, Django Unchained
+
+Sun, 10 May 2026 13:00:12 GMT
+
+https://www.cbr.com/comedy-westerns-better-than-blazing-saddles-list/
+
+Mel Brooks turned in a perfect Western spoof with Blazing Saddles, but some Western comedies have proven to be even better.
+---------
+
+# Why AMC Tried to Ban "Self-Help" on The Walking Dead
+
+TV, The Walking Dead, AMC
+
+Sun, 10 May 2026 12:30:12 GMT
+
+https://www.cbr.com/the-walking-dead-amc-nearly-banned-self-help-episode/
+
+This Walking Dead episode was allegedly almost censored by AMC for reasons that are still unknown.
+---------
+
+# Marvel Confirms Wild New Spider-Man and Hulk Crossover
+
+Comics, Spider-Man, Hulk
+
+Sun, 10 May 2026 12:00:13 GMT
+
+https://www.cbr.com/spider-man-hulk-fire-and-brimstone-release-date-confirmed/
+
+Marvel brings Hulk and Spider together for an unlikely and unsettling adventure.
+---------
+
+# Leslie Bibb Explains How She Landed Her Hacks Role
+
+TV, Hacks, Comedy, HBO Max
+
+Sun, 10 May 2026 12:00:13 GMT
+
+https://www.cbr.com/leslie-bibb-hacks-guest-star-dark-comedy-hbo-max/
+
+Hacks guest star Leslie Bibb finally reveals the story of how she booked her role on the hit HBO Max dark comedy.
+---------
+
+# Apple TV’s First Sci-Fi Super-Hit Passes Massive 500-Day Streaming Milestone
+
+TV News, For All Mankind, Apple TV, Sci-Fi, Joel Kinnaman
+
+Sun, 10 May 2026 13:01:13 GMT
+
+https://collider.com/apple-tv-original-sci-fi-hit-for-all-mankind-streaming-milestone-500-days/
+
+Apple TV’s OG Sci-Fi super-hit, For All Mankind, has officially passed a massive streaming milestone weeks ahead of its first spin-off.
+---------
+
+# 33 Years Later, the Greatest Quote in This Iconic Sci-Fi Star Wars Movie Still Lives Rent-Free In Our Heads
+
+Movie Features, Star Wars: Episode IV - A New Hope, Star Wars, Alec Guinness, Lucasfilm
+
+Sun, 10 May 2026 12:56:12 GMT
+
+https://collider.com/star-wars-the-force-will-be-with-you-always-best-franchise-quote/
+
+This unforgettable quote spoken by Ben Kenobi still captures the emotional core of the Star Wars franchise 33 years later.
+---------
+
+# Forget ‘John Wick,’ Jason Statham’s Ruthless Action Thriller Is a Streaming Sensation Again
+
+Movie News, Jason Statham, Action, Mechanic: Resurrection, Netflix
+
+Sun, 10 May 2026 12:45:13 GMT
+
+https://collider.com/jason-statham-john-wick-replacement-action-thriller-mechanic-resurrection-global-streaming-success-netflix-may-2026/
+
+Jason Statham's action sequel alongside Jessica Alba, Mechanic: Resurrection, is taking over a global streaming chart. Read on for details.
+---------
+
+# Forget ‘The Day of the Jackal,’ Peacock’s New 9-Part Crime Thriller Is the Ultimate Weekend Binge
+
+TV News, M.I.A., Peacock, Crime, Thriller
+
+Sun, 10 May 2026 12:31:14 GMT
+
+https://collider.com/peacock-day-of-the-jackal-replacement-crime-thriller-mia-premiere-date-plot-details-rotten-tomatoes-score/
+
+Peacock's new crime thriller has become the top show on the streaming platform one day after release. Get all the details here.
+---------
+
+# Netflix Lands Global Hit With Paul Rudd’s 99-Minute Horror Thriller Reboot Anaconda
+
+Movie Features, Anaconda, Paul Rudd, Jack Black
+
+Sun, 10 May 2026 12:27:13 GMT
+
+https://collider.com/anaconda-netflix-paul-rudd-jack-black-streaming-hit-analysis/
+
+Paul Rudd and Jack Black’s 2025 Anaconda continues to dominate on Netflix, proving the chaotic creature feature is exactly what the streamer needed.
+---------
+
+# 10 Fantasy Shows Where Every Episode Is a Masterpiece
+
+TV, House of the Dragon, Arcane, Avatar: The Last Airbender, Fantasy
+
+Sun, 10 May 2026 12:21:14 GMT
+
+https://collider.com/fantasy-shows-every-episode-masterpiece/
+
+Discover fantasy TV shows where every great episode features stunning visuals and captivating stories, from House of the Dragon to Arcane.
+---------
+
+# 10 Most Underrated Classic Rock Albums of All Time, Ranked
+
+Music Features, Jethro Tull: Live At Montreux 2003, Paul McCartney, Aerosmith, Queen
+
+Sun, 10 May 2026 12:21:14 GMT
+
+https://collider.com/most-underrated-classic-rock-albums-of-all-time/
+
+Underrated classic rock albums like Strange Days by The Doors and Get Your Wings by Aerosmith deserve far more credit and exposure.
+---------
+
+# 10 Greatest Movies Where the Protagonist Has Zero Character Development
+
+Movie, The Big Lebowski, 12 Angry Men, Back to the Future, The Good, the Bad and the Ugly
+
+Sun, 10 May 2026 12:18:13 GMT
+
+https://collider.com/best-movies-protagonist-no-character-development/
+
+Movies like Mary Poppins and Mad Max: Fury Road prove that the main character doesn't need to undergo a substantial change to make the narrative work.
+---------
+
+# Netflix’s Addictive 2-Part Hidden Gem Is Quietly Becoming a Global Sensation
+
+TV News, Netflix, Running Point, Streaming, Kate Hudson
+
+Sun, 10 May 2026 12:00:13 GMT
+
+https://collider.com/netflix-kate-hudson-hidden-gem-series-running-point-streaming-success-may-2026/
+
+Netflix's answer to Ted Lasso, Running  Point, starring Kate Hudson, is continuing its run as one of the most-watched shows in the world.
+---------
+
+# 8 Forgotten Sci-Fi Movies That Are Perfectly Written
+
+Movie, Sci-Fi, Gattaca, Dark City, Moon
+
+Sun, 10 May 2026 11:57:13 GMT
+
+https://collider.com/forgotten-sci-fi-movies-perfectly-written/
+
+Forgotten sci-fi movies like Primer and Gattaca deserve to be rediscovered, and praised for their impressive screenwriting.
+---------
+
+# "Reacher Meets Rambo" Action Thriller 'The Nowhere Man' Shoots up Streaming Ranks
+
+TV News, The Nowhere Man, Action, Thriller, STARZ
+
+Sun, 10 May 2026 13:00:17 GMT
+
+https://movieweb.com/nowhere-man-stream-may-2026-action/
+
+The series follows an ex-soldier drawn back into a world of violence after witnessing a home invasion.
+---------
+
 # Batman: The Animated Series Officially Returns In Unexpected Comeback
 
 Gaming, LEGO Batman: Legacy of the Dark Knight, Triple-A Games, PC
