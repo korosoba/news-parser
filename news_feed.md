@@ -1,3 +1,113 @@
+# Every Hugh Jackman Wolverine Costume, Ranked Worst To Best
+
+Movies, Marvel
+
+Sun, 10 May 2026 10:30:19 GMT
+
+https://screenrant.com/hugh-jackman-wolverine-costumes-ranked/
+
+No actor has embodied a comic book superhero character more than Hugh Jackman, with Jackman donning a wide variety of suits across his appearances.
+---------
+
+# Marvel Studios Is Changing Forever In 7 Months
+
+Movies, Avengers: Doomsday
+
+Sun, 10 May 2026 10:00:30 GMT
+
+https://screenrant.com/avengers-doomsday-marvel-studios-change-future/
+
+Marvel Studios has seen incredible highs and devastating lows, but this year will see it face off against the greatest challenge yet in December.
+---------
+
+# Skyrim: Nightingale Officially Available Now
+
+Gaming, The Elder Scrolls V: Skyrim, PC
+
+Sun, 10 May 2026 10:00:30 GMT
+
+https://screenrant.com/skyrim-nightingale-official-release/
+
+Skyrim: Nightingale is an official release from Bethesda featuring the notorious sect of elite thieves from The Elder Scrolls 5, available now.
+---------
+
+# HBO's Cancellation of Westworld Left a Lasting Void in Sci-Fi TV
+
+TV, Westworld, HBO Max, Sci-Fi
+
+Sun, 10 May 2026 10:30:12 GMT
+
+https://www.cbr.com/hbo-westworld-cancellation-sci-fi-tv-void/
+
+HBO still remains the pinnacle of television programming, but hasn't quite lived up to its own legacy.
+---------
+
+# The Outer Limits Episode 1 Defied 1960s TV
+
+TV, The Outer Limits, Sci-Fi
+
+Sun, 10 May 2026 10:00:26 GMT
+
+https://www.cbr.com/the-outer-limits-episode-1-shocking-bleak-ending/
+
+The Outer Limits changed sci-fi forever with a shockingly bleak debut episode that ignored 1960s TV tropes and feels just as impactful today.
+---------
+
+# 5 Forgotten Thrillers Based on a True Story That Are Amazing From Start to Finish
+
+Movies, Thriller
+
+Sun, 10 May 2026 10:00:26 GMT
+
+https://www.cbr.com/forgotten-thrillers-based-on-a-true-story-list/
+
+Thrillers are sometimes based on real events, and some of the best examples of this have been almost forgotten.
+---------
+
+# Hulu's 7-Part Psychological Thriller Is Perfect To Binge This Weekend
+
+TV Features, A Murder at the End of the World, Brit Marling, Zal Batmanglij, Emma Corrin
+
+Sun, 10 May 2026 10:44:12 GMT
+
+https://collider.com/hulu-psychological-thriller-murder-at-the-end-of-the-world-perfect-binge/
+
+Hulu's gripping 7-part psychological thriller, starring Emma Corrin, follows an unraveling mystery in a remote Icelandic hotel.
+---------
+
+# After 7 Years, Apple TV’s Grounded Space Epic Is Struggling To Keep American Audiences Hooked
+
+TV News, For All Mankind, Apple TV, Sci-Fi, Drama
+
+Sun, 10 May 2026 10:30:12 GMT
+
+https://collider.com/apple-tv-space-sci-fi-epic-for-all-mankind-season-5-streaming-american-chart-may-2026/
+
+Despite critical acclaim, Apple TV's sci-fi drama is struggling to retain viewers in Season 5, falling behind newer titles.
+---------
+
+# Only These 8 ‘90s Action Movies Can Be Considered True Masterpieces
+
+Movie, 1990s, Action, The Matrix, Terminator 2: Judgment Day
+
+Sun, 10 May 2026 10:01:26 GMT
+
+https://collider.com/90s-action-movies-masterpieces/
+
+Terminator 2: Judgment Day, Speed, Heat, Mission: Impossible, and more make up our list of '90s action movies that can be considered masterpieces.
+---------
+
+# HBO Max’s Addictive 5-Part Sleeper Hit Is the Perfect Weekend Binge
+
+TV News, Hacks, HBO Max, Streaming, Jean Smart
+
+Sun, 10 May 2026 10:00:27 GMT
+
+https://collider.com/jean-smart-sleeper-hit-series-hacks-streaming-success-hbo-max-may-2026/
+
+A five-part sleeper hit, Hacks, starring the award-winning Jean Smart, is currently dominating the global HBO Max charts.
+---------
+
 # Zelda Fans Losing It Over Ocarina Remake Graphics Following Official N64 Remake Trailer
 
 Gaming, The Legend of Zelda: Ocarina of Time
