@@ -1,3 +1,223 @@
+# Apple TV’s Near-Perfect RT Series With One Of Its Best Casts Is Officially A Must-Watch
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 17:42:20 GMT
+
+https://screenrant.com/apple-tv-margos-got-money-troubles-cast-series-must-watch/
+
+Apple TV's new comedy-drama series with a near-perfect Rotten Tomatoes score has one of the streamer's best casts, making it a must-watch right now.
+---------
+
+# Sam Raimi & Dylan O’Brien’s R-Rated Horror Thriller Instantly Becomes The #1 Movie In The World
+
+Movies, Masked Recs
+
+Sun, 10 May 2026 17:38:51 GMT
+
+https://screenrant.com/send-help-hulu-disney-plus-streaming-success-may-2026/
+
+Sam Raimi's first horror movie in 17 years, which stars Dylan O'Brien and Rachel McAdams, is now the #1 movie in the world on streaming.
+---------
+
+# Good Omens Is About To Introduce Its Most Divisive Character
+
+Streaming TV, Good Omens
+
+Sun, 10 May 2026 17:32:19 GMT
+
+https://screenrant.com/good-omens-prime-video-jesus-most-controversial-character/
+
+Good Omens is ending with one feature-length episode, and, as seen in the trailer, it will introduce the show's most divisive character.
+---------
+
+# Marvel Officially Unveils Major Spider-Man Villain Redesigns
+
+Gaming, Marvel, Spider-Man, Triple-A Games, Marvel Tokon: Fighting Souls
+
+Sun, 10 May 2026 17:30:19 GMT
+
+https://screenrant.com/marvel-tokon-spider-man-villain-redesigns/
+
+Marvel is teasing multiple character redesigns for Spider-Man's rogues' gallery villains, and they may not be the antagonists fans initially think.
+---------
+
+# 10 Unbeatable Classic Horror Movies (#1 Defined An Era)
+
+Movies, Horror, Alien, The Shining, Bride of Frankenstein, The Thing, Ringu, The Texas Chainsaw Massacre, The Exorcist, Jaws, Psycho, The Silence of the Lambs
+
+Sun, 10 May 2026 17:15:19 GMT
+
+https://screenrant.com/classic-horror-movies-unbeatable/
+
+From Psycho to The Texas Chainsaw Massacre, these classic horror movies terrified audiences, transformed cinema, and still define the genre today.
+---------
+
+# NCIS's Official Perfect McGee Replacement Sets Up Sean Murray's Hero Exit
+
+Network TV, NCIS
+
+Sun, 10 May 2026 17:02:20 GMT
+
+https://screenrant.com/ncis-official-mcgee-replacement-allows-exit/
+
+Ahead of the finale, NCIS officially confirms the perfect replacement for Timothy McGee, clearing the path for the character's MCRT exit.
+---------
+
+# 10 Greatest 2010s Manga Still Running In 2026
+
+Anime, Op-Ed, Ranking
+
+Sun, 10 May 2026 17:00:20 GMT
+
+https://screenrant.com/best-ongoing-2010s-manga/
+
+All of these 2010s hits are alive and well.
+---------
+
+# The Boys Season 5 Secretly Unites 3 Star Trek Actors
+
+TV, The Boys, Star Trek
+
+Sun, 10 May 2026 17:00:20 GMT
+
+https://screenrant.com/star-trek-actors-the-boys-season-5/
+
+Karl Urban and Jack Quaid have Star Trek pedigrees and starred in The Boys since it began, but season 5 added another, lesser known Star Trek actor.
+---------
+
+# Final Fantasy: Lost Stranger Officially Releases May 12
+
+Gaming, Final Fantasy, PC
+
+Sun, 10 May 2026 17:00:20 GMT
+
+https://screenrant.com/final-fantasy-lost-stranger-may-12-release/
+
+Final Fantasy is officially making an epic return later this week with a brand-new Lost Stranger release, available on Tuesday, May 12.
+---------
+
+# The Next Ghostbusters Sequel Is Coming At The Perfect Time
+
+Movies, Ghostbusters
+
+Sun, 10 May 2026 16:55:19 GMT
+
+https://screenrant.com/ghostbusters-show-release-window-timing/
+
+The next instalment in the Ghostbusters franchise comes at a perfect point in the series' real-world timeline for more than one reason.
+---------
+
+# 5 Most Overrated Shows of the Last 10 Years
+
+TV, Fantasy, Sci-Fi, Invincible
+
+Sun, 10 May 2026 17:30:13 GMT
+
+https://www.cbr.com/most-overrated-shows-last-10-years-euphoria/
+
+The last decade has seen TV reach its peak in genres like fantasy, superhero and action, but it's undeniable that some are absurdly overrated.
+---------
+
+# John Krasinski Shares A Quiet Place 3 Photo as Filming Begins
+
+Movies, A Quiet Place, A Quiet Place Part III, Horror
+
+Sun, 10 May 2026 17:21:10 GMT
+
+https://www.cbr.com/a-quiet-place-3-production-start-john-krasinski/
+
+John Krasinski confirms that cameras are finally rolling on A Quiet Place Part III, the long-awaited sequel starring Emily Blunt.
+---------
+
+# 10 Nintendo 3DS Games That Are 10/10, No Notes
+
+Games, Nintendo, Mario Kart, The Legend of Zelda
+
+Sun, 10 May 2026 17:15:13 GMT
+
+https://www.cbr.com/best-nintendo-3ds-games-flawless-start-to-finish/
+
+Nintendo's final handheld console ended a legacy with a bang, being home to numerous flawless games.
+---------
+
+# 10 Hulu Miniseries Where Every Episode Is a Masterpiece
+
+TV, Hulu, Normal People, Little Fires Everywhere
+
+Sun, 10 May 2026 17:34:13 GMT
+
+https://collider.com/hulu-miniseries-every-episode-masterpiece/
+
+Normal People, Little Fires Everywhere, and Looking for Alaska are among the rare class of Hulu miniseries where every episode is a masterpiece.
+---------
+
+# 10 Greatest Scandinavian Movies of All Time, Ranked
+
+Movie, The Hunt, Persona, The Seventh Seal, Sentimental Value
+
+Sun, 10 May 2026 17:31:14 GMT
+
+https://collider.com/best-scandinavian-movies-all-time-ranked/
+
+Masterpieces like Persona and modern classics like The Hunt perfectly illustrate the distinct power and overall effectiveness of Scandinavian cinema.
+---------
+
+# Stanley Tucci's Delicious National Geographic Series Returns This Week With New Sneak Peek [Exclusive]
+
+TV News, Stanley Tucci, National Geographic, Citadel, The Devil Wears Prada 2
+
+Sun, 10 May 2026 17:30:13 GMT
+
+https://collider.com/stanley-tucci-national-geographic-food-series-tucci-in-italy-season-2-sneak-peek-le-marche/
+
+Check out a sneak peek from Season 2 of Stanley Tucci's hit National Geographic series, Tucci in Italy, before it returns this week.
+---------
+
+# 'The Office' Meets 'The Sopranos' in Hulu's Hidden Gem Returning for Season 2 on May 28
+
+TV News, Hulu, Deli Boys, Comedy, Crime
+
+Sun, 10 May 2026 17:00:13 GMT
+
+https://collider.com/hulu-the-office-replacement-deli-boys-season-2-streaming-release-date-may-2026/
+
+Hulu's hidden 96% RT gem returns for Season 2 on May 28, blending workplace comedy with dangerous family secrets. Get all the details here.
+---------
+
+# 'The Terror: Devil in Silver' Reaches Rotten Tomatoes Perfection
+
+TV News, The Terror, Horror, AMC+
+
+Sun, 10 May 2026 17:34:09 GMT
+
+https://movieweb.com/terror-devil-in-silver-rotten-tomatoes-perfection/
+
+'The Terror' is back with a new and improved third season, 'Devil in Silver.'
+---------
+
+# 'The Night Of': HBO's Forgotten Crime Thriller Deserves Its 94% Rotten Tomatoes Score
+
+Features, The Night Of, Holds Up
+
+Sun, 10 May 2026 17:30:18 GMT
+
+https://movieweb.com/the-night-of-hbo-holds-up/
+
+10 years after its premiere, HBO's criminally slept-on crime series 'The Night Of' remains a masterpiece that launched Riza Ahmed's career.
+---------
+
+# Every Fatality in 'Mortal Kombat II', Ranked
+
+Movie Lists, Mortal Kombat, Mortal Kombat II, Action, video games
+
+Sun, 10 May 2026 17:00:19 GMT
+
+https://movieweb.com/every-fatality-mortal-kombat-ii-ranked/
+
+How do the violent deaths and gory video game fatalities stack up in 'Mortal Kombat II?
+---------
+
 # Benedict Cumberbatch Gets Into Road Rage Incident With Cyclist
 
 Movies, Benedict Cumberbatch
