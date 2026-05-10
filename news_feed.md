@@ -1,3 +1,223 @@
+# Cyberpunk 2077 Fans Losing It Over Official New Edgerunners DLC
+
+Gaming, Cyberpunk 2077
+
+Sun, 10 May 2026 05:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-wuthering-waves-dlc-gamers-react/
+
+The popular open-world gacha game Wuthering Waves announces a collaboration with the hit anime Cyberpunk: Edgerunners.
+---------
+
+# Elden Ring, Skyrim Collide In New RPG You Can Try Free On Steam Now
+
+Gaming, Steam, RPG, Indie, PC
+
+Sun, 10 May 2026 04:30:19 GMT
+
+https://screenrant.com/steam-free-demo-blades-of-fire/
+
+Players on Steam have the opportunity to test out a brand-new dark fantasy RPG, with elements from both Elden Ring and Skyrim, entirely for free.
+---------
+
+# Steam Drops 2 Free Games You Have 24 Hours To Grab
+
+Gaming, Steam
+
+Sun, 10 May 2026 04:16:19 GMT
+
+https://screenrant.com/steam-may-2026-free-games-24-hours/
+
+Steam has become a great place to go for free games, and this weekend has been no exception, with 24 hours left on the offers.
+---------
+
+# Astro Bot Makes Official Surprise Return In September 2026
+
+Gaming, Astro Bot, PC
+
+Sun, 10 May 2026 04:00:28 GMT
+
+https://screenrant.com/astro-bot-nendoroid-surprise-return-september-2026/
+
+Astro Bot has become a global sensation since its release and subsequent GOTY win, and it's making an official comeback this summer.
+---------
+
+# Studio Bones Can Fix My Hero Academia's Ending With One Bold Move
+
+Anime, My Hero Academia
+
+Sun, 10 May 2026 03:54:41 GMT
+
+https://screenrant.com/my-hero-academia-bones-fix-ending/
+
+A fifth My Hero Academia film could deliver a fitting conclusion, offering deeper insights into Class 1-A's careers and the series' legacy.
+---------
+
+# Every Ninja Eye Technique In The Naruto Franchise
+
+Anime, Naruto
+
+Sun, 10 May 2026 03:45:22 GMT
+
+https://screenrant.com/naruto-anime-every-eye-technique-sharingan/
+
+The Naruto franchise is full of strange and powerful eye-based techniques. As the list continues to grow, we break down each Dojutsu and its powers.
+---------
+
+# 10-Part Spy Thriller’s Rule-Breaking Formula Reveals Exactly Why Reacher’s Successful
+
+Streaming TV, The Day of the Jackal, Reacher
+
+Sun, 10 May 2026 03:42:27 GMT
+
+https://screenrant.com/day-of-jackal-reacher-story-formula/
+
+A highly acclaimed spy thriller seems to break many rules of the genre, and its unique storytelling formula highlights why Reacher is successful.
+---------
+
+# Netflix's 5-Part 'One Piece Meets The Witcher' Series Was Designed To Be Binged In One Sitting
+
+Classic TV, Masked Recs
+
+Sun, 10 May 2026 03:31:20 GMT
+
+https://screenrant.com/yu-yu-hakusho-live-action-one-piece-meets-the-witcher-binge/
+
+Netflix is the go-to spot for action-adventure adaptations, from The Witcher to the live-action One Piece— but this hidden gem deserves another look.
+---------
+
+# Apple TV’s New Horror Show Borrows Stephen King’s Greatest Storytelling Trick
+
+Streaming TV, Apple TV, Stephen King, Widow's Bay
+
+Sun, 10 May 2026 02:48:03 GMT
+
+https://screenrant.com/apple-tv-stephen-king-monsters-inspiration/
+
+Apple TV’s new horror series is unique in its own right, but it also seems to cleverly borrow one of Stephen King’s greatest storytelling tricks.
+---------
+
+# New Crunchyroll Anime Is Already 2026's Most Emotionally Devastating Series
+
+Anime, Crunchyroll
+
+Sun, 10 May 2026 02:38:20 GMT
+
+https://screenrant.com/agents-four-seasons-dance-spring-crunchyroll-emotionally-devastating/
+
+This new Crunchyroll anime is already shaping up as 2026's most profoundly human story, becoming a must-see series for fans seeking intense emotions.
+---------
+
+# 10 Best Anime Where The Villain Actually Won
+
+Anime, Neon Genesis Evangelion, Berserk, Cyberpunk: Edgerunners
+
+Sun, 10 May 2026 03:46:14 GMT
+
+https://www.cbr.com/best-anime-where-villains-actually-win/
+
+Not every anime has a happy ending and, in some particularly dark series, the villains outright win.
+---------
+
+# The Walking Dead's Original Ending is Much Better Than the TV Show's Finale
+
+TV, The Walking Dead
+
+Sun, 10 May 2026 03:30:12 GMT
+
+https://www.cbr.com/the-walking-dead-original-ending-better-than-finale/
+
+The final episode of The Walking Dead set up its multiple spin-offs, but its original, more definitive ending probably would've suited it far better.
+---------
+
+# 10 SNES Games You Should Play in 2026
+
+Games, Nintendo, The Legend of Zelda, Super Mario World, Star Fox
+
+Sun, 10 May 2026 03:15:13 GMT
+
+https://www.cbr.com/must-play-super-nintendo-games-still-hold-up-list/
+
+These timeless SNES games have stood the test of time, offering modern players unforgettable experiences with classic gameplay and graphics.
+---------
+
+# Netflix Adds 3 More Major Anime Sequels in New June 2026 Streaming Update
+
+Anime, My Hero Academia, Shangri-La Frontier, Netflix, Assassination Classroom
+
+Sun, 10 May 2026 03:00:13 GMT
+
+https://www.cbr.com/netflix-anime-june-2026-update-my-hero-academia/
+
+Netflix is adding three more of the hottest anime series to its streaming library next month, and fans couldn't be more excited.
+---------
+
+# 10 Best Anime Heroes With a Heart of Gold
+
+Anime, Frieren: Beyond Journey's End, Sailor Moon, Mob Psycho 100, One Piece
+
+Sun, 10 May 2026 02:46:13 GMT
+
+https://www.cbr.com/anime-heroes-with-hearts-of-gold/
+
+Anime heroes who are kind, compassionate and brave quickly become some of the most treasured protagonists with hearts of gold.
+---------
+
+# 10 Greatest Movie Endings of the Last 50 Years, Ranked
+
+Movies, Star Wars, Rocky, Western
+
+Sun, 10 May 2026 02:20:12 GMT
+
+https://www.cbr.com/greatest-movie-endings-50-years-list/
+
+Every great writer or director knows a strong ending is essential for ensuring a film's success, and these phenomenal conclusions prove it.
+---------
+
+# 10 Near-Perfect 2020s Games That Are 10/10, No Notes
+
+Games, Video Games
+
+Sun, 10 May 2026 02:16:13 GMT
+
+https://www.cbr.com/near-perfect-2020s-games-list/
+
+Video game fans love pointing to old retro games as the height of the medium, but the 2020s have already produced some all-time classics.
+---------
+
+# This Sci-Fi Movie With 100% on Rotten Tomatoes Is a Near-Perfect Time Loop From Start to Finish
+
+Movie Reviews, River, Sci-Fi, Rotten Tomatoes, Foreign Films
+
+Sun, 10 May 2026 03:41:18 GMT
+
+https://collider.com/river-greatest-time-loop-sci-fi-movie/
+
+Junta Yamaguchi's River cleverly navigates time loop chaos with a playful narrative, using whimsical challenges to update the familiar trope.
+---------
+
+# 8 Near-Perfect Netflix Miniseries Nobody Remembers
+
+TV, Netflix, TV Miniseries, Alias Grace, Pluto
+
+Sun, 10 May 2026 03:39:13 GMT
+
+https://collider.com/near-perfect-netflix-miniseries-nobody-remembers/
+
+Unbelievable, Alias Grace, Maniac, Maid, Dracula, and more make up our list of near-perfect Netflix miniseries that nobody remembers.
+---------
+
+# 30 Best '90s Cartoons, Ranked
+
+TV, Cartoons, South Park, Family Guy, Batman: The Animated Series
+
+Sun, 10 May 2026 03:12:13 GMT
+
+https://collider.com/best-90s-cartoons-ranked/
+
+The 1990's were a golden era for cartoons. From Animaniacs to Dexter's Laboratory, these cartoons provided tons of entertainment for '90s kids.
+---------
+
 # Naruto's True Sasuke Successor Is Literally One Step Away From God-Tier
 
 Anime, Naruto, Boruto: Two Blue Vortex
