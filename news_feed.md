@@ -1,3 +1,300 @@
+# Marvel Just Basically Confirmed How It's Going To Introduce The New Iron Man
+
+Marvel Comics, Iron Man, Marvel
+
+Sun, 10 May 2026 21:35:37 GMT
+
+https://screenrant.com/new-iron-man-adam-ware/
+
+Iron Man's official successor is set to become an even more powerful version of the Armored Avenger than Tony Stark, defying death itself.
+---------
+
+# Paramount's 5-Part Space Opera Deserves More Than Its 94% Rotten Tomatoes Score
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 21:30:19 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-paramount-deserves-rotten-tomatoes-score/
+
+Star Trek: Strange New Worlds is the best modern Star Trek show by far, but its current ranking on Rotten Tomatoes sadly doesn't reflect that.
+---------
+
+# Pokémon Winds & Waves Fans Crushed By New Nintendo News
+
+Gaming, Pokemon Winds and Waves, Pokemon, Triple-A Games
+
+Sun, 10 May 2026 21:30:19 GMT
+
+https://screenrant.com/pokemon-winds-waves-switch-2-price-reaction/
+
+Many fans of Pokémon are planning to get a new console alongside the latest Generation of the series, but recent pricing news may ruin that idea.
+---------
+
+# 10 Best Sports Movies Of All Time, Ranked By Box Office
+
+Movies, Sports, Ranking
+
+Sun, 10 May 2026 21:30:19 GMT
+
+https://screenrant.com/sports-movies-best-of-all-time-ranked-by-box-office/
+
+The best sports movies can be inspiring, tragic, and triumphant, but how do the greatest of all time stack up in terms of box office gross?
+---------
+
+# Matt Damon & Ben Affleck Sued For The Rip
+
+Movies, The Rip
+
+Sun, 10 May 2026 21:27:53 GMT
+
+https://screenrant.com/matt-damon-ben-affleck-netflix-the-rip-miami-police-defamation/
+
+Matt Damon and Ben Affleck face legal troubles after two police offers file a lawsuit due to the film's portrayal of law enforcement.
+---------
+
+# Sydney Sweeney's Gritty Psychological Drama Series Euphoria Ends An Impressive HBO Record
+
+TV, Euphoria
+
+Sun, 10 May 2026 21:16:19 GMT
+
+https://screenrant.com/euphoria-season-3-sydney-sweeney-hbo-record/
+
+Euphoria season 3 may be the worst-reviewed season of the gritty HBO series, but it will set one hard-to-beat HBO record a few weeks from now.
+---------
+
+# Indiana Jones Is Reimagined For The 2020s In Paramount's 2-Part Adventure Series
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 21:15:20 GMT
+
+https://screenrant.com/indiana-jones-2000s-blood-and-treasure-tv-show/
+
+Indiana Jones is one of the most iconic movie heroes, but the original movies have not always aged well. However, he has a spiritual successor on TV.
+---------
+
+# New Doctor Doom Explained, As Marvel Unveils Replacement
+
+Marvel Comics, Doctor Doom, Marvel
+
+Sun, 10 May 2026 21:15:20 GMT
+
+https://screenrant.com/marvel-new-doctor-doom-clone-replacement/
+
+Marvel reveals who exactly is replacing the original Doctor Doom and sets the stage for a new version who may look and behave very differently.
+---------
+
+# One Piece Finally Confirmed a 20-Year Theory About Monkey D. Dragon’s Secret Power
+
+Anime, One Piece
+
+Sun, 10 May 2026 21:00:20 GMT
+
+https://screenrant.com/one-piece-dragon-god-tier-upgrade-rain-god/
+
+With the Rain Goddess Zaza finally making her debut, Dragon's mysterious weather powers finally make total sense.
+---------
+
+# Matlock Season 3’s Best Story Will Finally Fulfill Its Original Promise
+
+Network TV, Matlock
+
+Sun, 10 May 2026 21:00:20 GMT
+
+https://screenrant.com/matlock-season-3-wellbrexa-case-end-procedural-focus/
+
+Matlock's game-changing season 2 finale ending sets Kathy Bates' show up to go in a fresh direction that some viewers may have been waiting for.
+---------
+
+# HBO Horror Series Tales from the Crypt Is a Streaming Hit 30 Years Later
+
+TV, Tales from the Crypt
+
+Sun, 10 May 2026 21:30:13 GMT
+
+https://www.cbr.com/tales-from-the-crypt-horror-hbo-amc-success-may-2026/
+
+The iconic HBO horror series Tales from the Crypt, based on EC Comics, is a streaming sensation 30 years after its finale.
+---------
+
+# 5 Stephen King TV Shows Better Than IT: Welcome to Derry
+
+TV, Horror, It: Welcome to Derry, Mr. Mercedes, Stephen King
+
+Sun, 10 May 2026 21:30:13 GMT
+
+https://www.cbr.com/stephen-king-tv-shows-better-it-welcome-to-derry-list/
+
+IT: Welcome to Derry is one of the most popular Stephen King-adapted TV shows ever made, but it's a far cry from being the best.
+---------
+
+# Anime Characters Even More Dangerous Than The Boys' Homelander
+
+Anime, Akame ga Kill!, One Piece, Death Note, The Boys
+
+Sun, 10 May 2026 21:15:13 GMT
+
+https://www.cbr.com/most-dangerous-anime-characters-homelander-the-boys/
+
+The Boys' fans who found Homelander's sadistic violence entertaining will appreciate this list of terrifyingly powerful, unhinged anime villains.
+---------
+
+# It's Officially The End of an Era for NCIS: Origins
+
+TV, NCIS: Origins, NCIS, CBS
+
+Sun, 10 May 2026 21:04:10 GMT
+
+https://www.cbr.com/ncis-origins-season-2-finale-nis-rebrand/
+
+It's officially the end of an era for CBS's Navy prequel as NCIS: Origins Season 2's finale covers one of the franchise's most historic developments.
+---------
+
+# Netflix Horror Series If Wishes Could Kill Is a Global Streaming Hit
+
+TV, Netflix
+
+Sun, 10 May 2026 21:00:13 GMT
+
+https://www.cbr.com/if-wishes-could-kill-netflix-may-2026/
+
+Netflix's newest horror series is a worldwide streaming hit.
+---------
+
+# DC Reveals General Zod’s Surprise Return With a Shocking New Twist
+
+Comics, Superman, Supergirl, Superboy, Action Comics
+
+Sun, 10 May 2026 21:00:13 GMT
+
+https://www.cbr.com/kingdom-of-zod-release-date-confirmed/
+
+DC Comics is about to bring the most ruthless Kryptonian of all time back to the spotlight, and the Kingdom of Zod will hit the whole Superman family.
+---------
+
+# Keanu Reeves' The Day the Earth Stood Still is a Sci-Fi Cult Classic
+
+Movies, The Day the Earth Stood Still, John Wick, Keanu Reeves
+
+Sun, 10 May 2026 21:00:13 GMT
+
+https://www.cbr.com/keanu-reeves-sci-fi-cult-classic-the-day-the-earth-stood-still/
+
+Keanu Reeves has seen a huge recent resurgence for portraying legendary hitman John Wick, a role he started to perfect in a 2008 sci-fi cult classic.
+---------
+
+# Ridley Scott’s Highest-Grossing Movie of All Time Officially Defeated by 2026’s Sci-Fi Masterpiece
+
+Movie News, Project Hail Mary, The Martian, Andy Weir, Sci-Fi
+
+Sun, 10 May 2026 21:30:13 GMT
+
+https://collider.com/ryan-gosling-sci-fi-epic-project-hail-mary-overtakes-matt-damon-ridley-scott-the-martian-641-million/
+
+Project Hail Mary has overtaken Ridley Scott's The Martian at the box office, becoming Andy Weir's highest-grossing film adaptation.
+---------
+
+# 8 Most Perfectly Made Action Movies, Ranked
+
+Movie, Action, Mad Max: Fury Road, Die Hard, Terminator 2: Judgment Day
+
+Sun, 10 May 2026 21:23:13 GMT
+
+https://collider.com/most-perfectly-made-action-movies-ranked/
+
+From Die Hard to Terminator 2, these action masterpieces show what perfectly engineered movie adrenaline really looks like.
+---------
+
+# A24's Colossal Fantasy Epic Arrives in Theaters in Just 1 Month
+
+Movie News, Hugh Jackman, The Death of Robin Hood, Jodie Comer, Bill Skarsgård
+
+Sun, 10 May 2026 21:15:13 GMT
+
+https://collider.com/hugh-jackman-a24-fantasy-epic-the-death-of-robin-hood-release-date-june-2026/
+
+A24’s The Death of Robin Hood, starring Hugh Jackman, Jodie Comer, and Bill Skarsgård, hits theaters on June 19. See the latest TV spot here.
+---------
+
+# Want More Like ‘Rooster’? Prime Video’s 8-Part Comedy Is a Masterpiece From Start to Finish
+
+TV Features, Bob Odenkirk, Lucky Hank, Prime Video, Rooster
+
+Sun, 10 May 2026 21:03:14 GMT
+
+https://collider.com/best-rooster-replacement-show-lucky-hank-bob-odenkirk/
+
+Lucky Hank is the perfect Rooster replacement, with Bob Odenkirk leading a sharp academic comedy canceled too soon after season 1.
+---------
+
+# Brad Pitt's Sci-Fi Hit Officially Surges on Paramount+ After Making Almost 3x Its Budget
+
+Movie News, Brad Pitt, World War Z, Zombie, Action
+
+Sun, 10 May 2026 21:01:13 GMT
+
+https://collider.com/brad-pitt-sci-fi-thriller-world-war-z-streaming-success-paramount-plus-may-2026/
+
+Brad Pitt's long-dormant sci-fi thriller is devouring streaming charts again as the long-awaited sequel is finally on the way.
+---------
+
+# 24 Years After ‘Psycho,’ This Horror Scene Made Bathrooms Scary Again
+
+Horror, Psycho, A Nightmare on Elm Street, Alfred Hitchcock, Robert Englund
+
+Sun, 10 May 2026 20:47:14 GMT
+
+https://collider.com/nightmare-on-elm-street-bathtub-scene-psycho-shower-scene-horror/
+
+A Nightmare on Elm Street’s bathtub scene redefined horror by turning comfort, exhaustion, and safe spaces into something terrifying.
+---------
+
+# 31 Years Later, This Near-Perfect ‘Simpsons’ Episode Is Getting Better With Age
+
+TV Features, The Simpsons, Disney+, Fox, Hulu
+
+Sun, 10 May 2026 20:43:13 GMT
+
+https://collider.com/most-important-simpsons-episode-lisas-wedding-future-predictions/
+
+31 years later, “Lisa’s Wedding” remains The Simpsons’ smartest future episode — and its predictions still sting.
+---------
+
+# Ricky Gervais’ Netflix Series Sets Summer 2026 Release
+
+TV News, Ricky Gervais, Comedy, Netflix
+
+Sun, 10 May 2026 21:36:51 GMT
+
+https://movieweb.com/ricky-gervais-alley-cats-netflix-release-date/
+
+Gervais created, stars in, and directs the adult animated series 'Alley Cats.'
+---------
+
+# 'Game of Thrones': The 10 Greatest Swordsmen in Franchise History, Ranked
+
+TV Lists, Game Of Thrones
+
+Sun, 10 May 2026 21:30:18 GMT
+
+https://movieweb.com/game-of-thrones-greatest-swordsmen-ranked/
+
+Swordsmanship is probably the most important skill to have in Westeros.
+---------
+
+# 'Transcendence': Johnny Depp's Sci-Fi Thriller Streaming Free Hits Harder After 12 Years
+
+Features, Johnny Depp, Transcendence, Cultural Reassessment
+
+Sun, 10 May 2026 21:00:18 GMT
+
+https://movieweb.com/johnny-depp-transcendence-christopher-nolan-sci-fi-thriller/
+
+Despite being a critical and commercial failure in 2014, Johnny Depp's AI thriller 'Transcendence' is far more relevant today.
+---------
+
 # 10 Sitcoms That Have Aged Like Fine Wine
 
 Classic TV, Sitcoms
