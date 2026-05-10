@@ -1,3 +1,267 @@
+# Netflix's 3-Part Sci-Fi Adaptation Is Already Guaranteed To Finish Its Story
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 22:33:20 GMT
+
+https://screenrant.com/3-body-problem-finish-story-netflix/
+
+Netlfix's ongoing sci-fi series has been renewed for a second and a third season, which means we will definitely be getting a definitive ending.
+---------
+
+# Every Main Frieren Character's Age Explained
+
+Anime, Frieren: Beyond Journey's End
+
+Sun, 10 May 2026 22:30:20 GMT
+
+https://screenrant.com/every-main-frieren-characters-age-explained/
+
+Ages range wildly in Frieren: Beyond Journey's End, so it can be hard to tell exactly how old some of the characters are, but we figured it out.
+---------
+
+# 10 Best Picture Oscar Wins That Have Aged Like Milk
+
+Movies, Oscars, Quiz CV
+
+Sun, 10 May 2026 22:25:19 GMT
+
+https://screenrant.com/oscars-best-picture-wins-aged-poorly/
+
+The Academy Awards doesn't always get it right, and some movies that win Best Picture end up aging like milk instead of fine wine.
+---------
+
+# The 6-Part Crime Masterpiece That Changed TV Forever Is Aging Well
+
+Classic TV, Masked Recs
+
+Sun, 10 May 2026 22:12:21 GMT
+
+https://screenrant.com/better-call-saul-crime-masterpiece-aging-well/
+
+A six-season crime television show is one of the modern masterpieces of the genre, and a few years later, the series has only aged gracefully.
+---------
+
+# Netflix's 10/10 Zombie Thriller Series Makes The Walking Dead Look Small
+
+Streaming TV, Masked Recs
+
+Sun, 10 May 2026 22:02:20 GMT
+
+https://screenrant.com/kingdom-netflix-zombie-show-makes-walking-dead-look-small/
+
+The Walking Dead often struggled to make its world feel truly expansive despite its massive runtime, but a hidden Netflix gem solves this issue.
+---------
+
+# 25 Anime Series with the Greatest Animation
+
+Anime
+
+Sun, 10 May 2026 22:00:22 GMT
+
+https://screenrant.com/anime-series-best-animation/
+
+The quality of animation, visuals, and art is crucial to the success of an anime. These are the anime loved for their magnificent animation style!
+---------
+
+# 10 Greatest Performances In Black Mirror Episodes
+
+Streaming TV, Black Mirror
+
+Sun, 10 May 2026 22:00:21 GMT
+
+https://screenrant.com/black-mirror-best-acting-performances/
+
+Black Mirror is renowned for its shocking plot twists and prescient future predictions, but it also has some of the best acting performances on TV.
+---------
+
+# Fallout 5's Official Setting Has Been Right Under Our Noses
+
+Gaming, Fallout
+
+Sun, 10 May 2026 22:00:21 GMT
+
+https://screenrant.com/url/fallout-5-setting-connected-season-3-show-colarado/
+
+Fans theorize possible locations for Fallout 5, including Colorado and Northern California, as they eagerly await news on the next installment.
+---------
+
+# Christopher Nolan's Most Underrated Movie Is Andy Serkis' Favorite Movie
+
+Movies, The Prestige
+
+Sun, 10 May 2026 21:46:41 GMT
+
+https://screenrant.com/hristopher-nolan-the-prestige-andy-serkis-favorite-starring-movie/
+
+Audiences and stars alike have been debating about the best Christopher Nolan movie for years. Now, Andy Serkis offers an unconventional pick.
+---------
+
+# Neon's Horror Movie Exit 8 Is Already a PVOD Hit
+
+Movies, Exit 8
+
+Sun, 10 May 2026 22:30:13 GMT
+
+https://www.cbr.com/exit-8-pvod-success-may-2026/
+
+After becoming the highest-rated video game movie ever, the new horror film is also a PVOD hit.
+---------
+
+# 8 Best Female Characters in The Boys, Ranked
+
+TV, The Boys, superheroes, Prime Video
+
+Sun, 10 May 2026 22:30:13 GMT
+
+https://www.cbr.com/the-boys-best-female-characters-ranked/
+
+The Boys has a large ensemble cast full of amazing characters, and some of the show's best women still fight to stop Homelander's reign in the finale.
+---------
+
+# 5 Gaming Trends That Are Already Dead (They Just Don't Know It Yet)
+
+Games, Call of Duty, Apex Legends., Marvel Rivals
+
+Sun, 10 May 2026 22:15:12 GMT
+
+https://www.cbr.com/worst-gaming-trends-that-are-already-dead/
+
+Call of Duty, Apex Legends, Genshin Impact, Honkai: Star Rail, and Marvel Rivals are just a few of the titles still using these 5 dead gaming trends.
+---------
+
+# All JJK Deaths in the Manga
+
+Anime, Jujutsu Kaisen
+
+Sun, 10 May 2026 22:05:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-anime-manga-major-character-deaths/
+
+Gege Akutami's Jujutsu Kaisen pulls no punches when it comes to killing off popular characters, making it one of the darkest shonen manga of them all.
+---------
+
+# Greenland and Greenland 2 Top the HBO Max Chart
+
+Movies, Greenland 2: Migration, Greenland, HBO Max
+
+Sun, 10 May 2026 22:00:14 GMT
+
+https://www.cbr.com/gerard-butler-greenland-post-apocalyptic-success-hbo-max-may-2026/
+
+Gerard Butler duo of disaster movies, Greenland and Greenland 2: Migration, are surging on HBO Max.
+---------
+
+# No Game No Life Surges in Official Ranking With 1st New Release in 3 Years
+
+Anime, No Game No Life
+
+Sun, 10 May 2026 22:00:14 GMT
+
+https://www.cbr.com/no-game-no-life-light-novel-ranking/
+
+The hit isekai series has returned to dominate the sales charts in Japan, overtaking other popular titles.
+---------
+
+# 10 Most Universally Beloved Sports Movies Of All Time, Ranked From The Sandlot To Raging Bull
+
+Movies, Field of Dreams, Rocky
+
+Sun, 10 May 2026 22:00:14 GMT
+
+https://www.cbr.com/beloved-sports-movies-list/
+
+From Cool Runnings to Raging Bull, the best sports movies of all time capture humanity’s most inspirational stories.
+---------
+
+# Anya Taylor-Joy’s Long-Awaited TV Comeback Finally Arrives This Summer
+
+TV News, Anya Taylor-Joy, Lucky, Apple TV, Thriller
+
+Sun, 10 May 2026 22:30:13 GMT
+
+https://collider.com/anya-taylor-joy-new-crime-thriller-tv-series-lucky-apple-tv-plot-details-release-date-july-2026/
+
+Anya Taylor-Joy's new Apple TV thriller with Timothy Olyphant, Lucky, arrives this summer. Get all the details here.
+---------
+
+# Michael B. Jordan’s New Fantasy Adventure Is Quietly Dominating Netflix Worldwide
+
+Movie News, Michael B. Jordan, Netflix, Swapped, Juno Temple
+
+Sun, 10 May 2026 22:15:13 GMT
+
+https://collider.com/michael-b-jordan-fantasy-adventure-swapped-streaming-success-netflix-may-2026/
+
+Oscar winner Michael B. Jordan's next movie following Sinners is officially a hit on Netflix. Find out more about the fantasy movie here.
+---------
+
+# 2026 Sci-Fi Shows That Already Look Better Than ‘Stranger Things’
+
+TV, Stranger Things, Sci-Fi, 3 Body Problem, The Boroughs
+
+Sun, 10 May 2026 22:03:13 GMT
+
+https://collider.com/sci-fi-shows-2026-better-than-stranger-things/
+
+The Boroughs, Spider-Noir, Star City, Lanterns, and more make up our list of 2026 sci-fi shows that already look better than Stranger Things.
+---------
+
+# Ryan Reynolds’ 108-Minute Crowd-Pleaser Is Quietly Crushing Netflix Charts
+
+Movie News, Ryan Reynolds, The Proposal, Netflix, Sandra Bullock
+
+Sun, 10 May 2026 22:00:14 GMT
+
+https://collider.com/ryan-reynolds-sandra-bullock-crowd-pleaser-rom-com-the-proposal-streaming-success-netflix-may-2026/
+
+Ryan Reynolds' forgotten comedy with Sandra Bullock, The Proposal, is proving popular on streaming. Find out where to watch the rom-com.
+---------
+
+# Before Jason Statham's 'The Meg,' This 85-Minute Creature Feature Was a Bizarre Underwater Horror Disaster
+
+Horror, Up from the Depths, Jaws, Piranha, The Meg
+
+Sun, 10 May 2026 21:56:14 GMT
+
+https://collider.com/up-from-the-depths-meg-prehistoric-creature-feature-comedy/
+
+Nearly 40 years before The Meg, this 1979 creature feature turns underwater horror into comedy thanks to uneven effects, tone, and editing.
+---------
+
+# 6 Most Extreme Jason Statham Action Movies, Ranked
+
+Movie, Jason Statham, Crank, Crank: High Voltage, Death Race
+
+Sun, 10 May 2026 21:43:14 GMT
+
+https://collider.com/most-extreme-jason-statham-action-movies-ranked/
+
+Jason Statham’s most intense films showcase extreme action, absurd missions, relentless momentum, and high-stakes physical chaos.
+---------
+
+# 10 Nostalgic Non-Disney Family Movies From the '90s
+
+Features, Family
+
+Sun, 10 May 2026 22:00:20 GMT
+
+https://movieweb.com/nostalgic-non-disney-family-movies-from-the-90s-list/
+
+Disney Animation Studios produced many acclaimed family movies from the 1990s, but plenty of non-Disney classics emerged from the decade.
+---------
+
+# Denzel Washington's Action Thriller 'The Equalizer' Is a Streaming Success on Prime Video
+
+Movie News, The Equalizer, Prime Video, Hot on Streaming, Action
+
+Sun, 10 May 2026 22:00:20 GMT
+
+https://movieweb.com/the-equalizer-action-streaming-success-prime-video-may-2026/
+
+Denzel Washington's modern action masterpiece 'The Equalizer' is streaming on Prime Video. Two more sequels are in development.
+---------
+
 # Marvel Just Basically Confirmed How It's Going To Introduce The New Iron Man
 
 Marvel Comics, Iron Man, Marvel
