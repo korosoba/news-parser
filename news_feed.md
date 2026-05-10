@@ -1,3 +1,146 @@
+# Batman: The Animated Series Officially Returns In Unexpected Comeback
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Triple-A Games, PC
+
+Sun, 10 May 2026 11:30:19 GMT
+
+https://screenrant.com/lego-batman-animated-series-legacy-dark-knight-recreated/
+
+The animated series is still fondly remembered by fans to this day, making its recent surprise return even more appreciated after its lengthy absence.
+---------
+
+# 3 Years Ago, Disney+ Permanently Deleted One Of Its Best Legacy Sequels
+
+Streaming TV, The Mighty Ducks: Game Changers, The Mighty Ducks
+
+Sun, 10 May 2026 11:00:19 GMT
+
+https://screenrant.com/disney-delete-mighty-ducks-game-changers-legacy-sequel/
+
+In May 2023, Disney+ deleted a whole host of original shows and movies from its streaming platform, including one of its best legacy sequel series.
+---------
+
+# GTA 6 Finally Crosses Major Milestone And Fans Are Pumped
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Sun, 10 May 2026 11:00:19 GMT
+
+https://screenrant.com/gta-6-delay-speculation-celebration/
+
+Grand Theft Auto 6's development seems to be never-ending, but a major milestone seems to indicate that we're finally clear of more delays.
+---------
+
+# 5 Sith More Powerful Than Darth Maul in Star Wars
+
+TV, Star Wars, Star Wars: Maul - Shadow Lord, Sci-Fi
+
+Sun, 10 May 2026 11:31:14 GMT
+
+https://www.cbr.com/powerful-star-wars-sith-not-darth-maul-list/
+
+Darth Maul is one of the most powerful Sith in Star Wars, but these Dark Side users outclass the Shadow Lord.
+---------
+
+# Warner Bros. Settles $57M Legal Battle Over Matrix Resurrections
+
+Movies, The Matrix Resurrections
+
+Sun, 10 May 2026 11:00:12 GMT
+
+https://www.cbr.com/warner-bros-village-roadshow-matrix-resurrections-lawsuit-settlement/
+
+The 2021 Keanu Reeves film sparked a huge legal battle between Warner Bros. and Village Roadshow Pictures.
+---------
+
+# 28 Years Ago, Sam Neill Delivered the Absolute Scariest Quote in Sci-Fi Movie History
+
+Movies, Event Horizon, Sci-Fi
+
+Sun, 10 May 2026 11:00:12 GMT
+
+https://www.cbr.com/sam-neill-event-horizon-scariest-sci-fi-quote-ever/
+
+1997 delivered sci-fi fans one of the most terrifying cult classics ever made, and Sam Neill left them with a chilling line about Hell.
+---------
+
+# 10 Beloved Marvel Characters Who Need to Return ASAP
+
+Comics, Marvel
+
+Sun, 10 May 2026 11:00:12 GMT
+
+https://www.cbr.com/legendary-marvel-characters-who-deserve-a-comeback/
+
+Marvel's character roster is too deep to feature everyone in prime roles. But these classic characters deserve a proper return.
+---------
+
+# Netflix’s Answer to ‘The Handmaid’s Tale’ Is the Perfect 6-Part Weekend Binge
+
+TV News, Netflix, The Handmaid's Tale, Unchosen, Streaming
+
+Sun, 10 May 2026 11:45:13 GMT
+
+https://collider.com/netflix-handmaids-tale-replacement-unchosen-streaming-success-may-2026/
+
+A riveting new Netflix series likened to The Handmaid's Tale, Unchosen, is a global streaming hit. Here's everything you should know.
+---------
+
+# 10 Worst Remakes of Beloved Fantasy Movies, Ranked
+
+Movie, Fantasy, Around the World in 80 Days, Conan the Barbarian, Clash of the Titans
+
+Sun, 10 May 2026 11:44:13 GMT
+
+https://collider.com/worst-remakes-of-beloved-fantasy-movies/
+
+Fantasy remakes keep missing what made originals work, and films like The Mummy and Pinocchio reveal a wider creative breakdown.
+---------
+
+# Apple TV's Bizarre Thriller Series Officially Becomes a Global Streaming Sensation
+
+TV News, Apple TV, Widow's Bay, Horror, Comedy
+
+Sun, 10 May 2026 11:30:13 GMT
+
+https://collider.com/apple-tv-bizarre-thriller-series-widows-bay-streaming-success-may-2026/
+
+Apple TV's new mystery thriller has quickly become a streaming sensation with perfect reviews and a top ranking in America.
+---------
+
+# The Only TV Show Siskel & Ebert Ever Reviewed Is a 2-Part Hidden Gem Worth Revisiting
+
+TV Features, The Critic, Siskel & Ebert, Gene Siskel, Roger Ebert
+
+Sun, 10 May 2026 11:23:14 GMT
+
+https://collider.com/the-only-tv-show-siskel-and-ebert-ever-reviewed-the-critic/
+
+Gene Siskel and Roger Ebert only ever reviewed one television series during their illustrious careers together: The Critic, a sitcom on Fox.
+---------
+
+# HBO Max Viewers Can’t Stop Watching Anna Kendrick’s Wild Murder Mystery Hit
+
+Movie News, Anna Kendrick, HBO Max, Another Simple Favor, Blake Lively
+
+Sun, 10 May 2026 11:00:13 GMT
+
+https://collider.com/anna-kendrick-murder-mystery-thriller-another-simple-favor-streaming-success-hbo-max-may-2026/
+
+A Big Little Lies replacement starring Anna Kendrick has shot up the HBO Max streaming charts. Find out more here.
+---------
+
+# The Best Crime Shows From Every Year of the 2000s
+
+TV, Crime, 2000s, The Wire, Breaking Bad
+
+Sun, 10 May 2026 11:00:13 GMT
+
+https://collider.com/best-2000s-crime-shows-every-year/
+
+Explore the best crime shows from each year of the 2000s, including influential and iconic series like CSI, The Wire, and Breaking Bad.
+---------
+
 # Every Hugh Jackman Wolverine Costume, Ranked Worst To Best
 
 Movies, Marvel
