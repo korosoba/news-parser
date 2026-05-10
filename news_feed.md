@@ -1,3 +1,267 @@
+# 10 Perfect New-Gen Shonen Anime Villains
+
+Anime
+
+Sun, 10 May 2026 14:32:31 GMT
+
+https://screenrant.com/best-new-gen-shonen-anime-villains/
+
+Shonen anime is home to some of the most memorable villains ever seen on screen, and here are a few of the standout new additions
+---------
+
+# Only One Dragon Ball Super Moment Was So Good It Gave Akira Toriyama Goosebumps
+
+Anime, Dragon Ball, Dragon Ball Super: Super Hero
+
+Sun, 10 May 2026 14:30:18 GMT
+
+https://screenrant.com/dragon-ball-super-super-hero-akira-toriyama-goose-bumps/
+
+One particular battle in the latest Dragon Ball movie thrilled the series' creator more than any moment he's made in the past.
+---------
+
+# Artist Aurélien Predal Shares Insight Into Beyond The Spider-Verse, Project Hail Mary, And More (Exclusive)
+
+Movies
+
+Sun, 10 May 2026 14:15:20 GMT
+
+https://screenrant.com/aurelien-predal-beyond-the-spider-verse-project-hail-mary-interview/
+
+Exclusive: Aurélien Predal has worked on some of the biggest movies today, and he shared brand-new insight into those projects with Screen Rant.
+---------
+
+# 10 Recommended Dark Fantasy Shows Nobody Talks About
+
+Streaming TV, Fantasy
+
+Sun, 10 May 2026 14:15:20 GMT
+
+https://screenrant.com/dark-fantasy-tv-shows-recommended-not-talked-about/
+
+Dark fantasy is defined by less hopeful themes than traditional fantasy, and a signature dark aesthetic. The subgenre has many hidden gems to watch.
+---------
+
+# Realistic RDR2 Outfits Arthur Morgan Would Actually Wear
+
+Game Features, Red Dead Redemption, Red Dead Redemption 2, PC
+
+Sun, 10 May 2026 14:00:21 GMT
+
+https://screenrant.com/red-dead-redemption-2-arthur-morgan-outfit-ideas/
+
+Red Dead Redemption 2 gives players a wide selection of clothes to dress Arthur Morgan in, but there are certain outfit combos that suit him more.
+---------
+
+# Apple TV's New Horror Series Is The Unofficial Halloween Follow-up Fans Didn't Know They Needed
+
+TV, Halloween, Widow's Bay, Apple TV
+
+Sun, 10 May 2026 14:00:20 GMT
+
+https://screenrant.com/apple-tvs-widows-bay-halloween-michael-myers-connection/
+
+Michael Myers PTSD spreads to a New England town, but this time it's kinda funny!
+---------
+
+# Prime Video Has 3 Replacements For The Boys, And They're All Perfect
+
+Streaming TV, The Boys
+
+Sun, 10 May 2026 14:00:20 GMT
+
+https://screenrant.com/prime-video-the-boys-replacements-perfect/
+
+With The Boys coming to an end, Prime Video needs a new flagship superhero show, and it already has three perfect replacements to choose from.
+---------
+
+# Xbox Game Pass Loses Multiple Free Games On May 15
+
+Gaming, Xbox Game Pass
+
+Sun, 10 May 2026 14:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-games-leaving-may-2026/
+
+Xbox Game Pass has announecd its free titles for May 2026, but that means a bunch of games are about to leave the service in just a few days.
+---------
+
+# Karl Urban's 10 Best Movies And TV Shows
+
+Movies, Karl Urban
+
+Sun, 10 May 2026 13:45:19 GMT
+
+https://screenrant.com/karl-urban-best-movies-tv-shows-ranked/
+
+The best Karl Urban movies and TV shows reflect an impressive career in a wide variety of genres, from sci-fi to horror.
+---------
+
+# Young Jason Voorhees First Look Shared Ahead Of Friday The 13th’s Crystal Lake Trailer
+
+TV, Horror, Friday the 13th, Crystal Lake, Crystal Lake - Season 1
+
+Sun, 10 May 2026 13:36:24 GMT
+
+https://screenrant.com/friday-the-13th-crystal-lake-jason-voorhees-first-look/
+
+Audiences are given a first look at young Jason Voorhess in the Friday the 13th prequel series Crystal Lake ahead of the show's trailer premiere.
+---------
+
+# This Star Trek: TNG Episode Reveals Picard at His Weakest (& His Strongest)
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount Plus
+
+Sun, 10 May 2026 14:30:13 GMT
+
+https://www.cbr.com/star-trek-tng-family-reveals-picard-strength-weakness/
+
+After a traumatic ordeal, Picard reveals a weakness fans don't often see in him, making his most iconic character arc even more captivating.
+---------
+
+# 10 Most Beautiful Anime Moms
+
+Anime, Dragon Ball, Spy x Family, Naruto: Shippuden, shonen anime
+
+Sun, 10 May 2026 14:15:12 GMT
+
+https://www.cbr.com/most-beautiful-anime-moms/
+
+Not all anime moms get the chance to take center stage, but those who do arrive with unforgettable beauty and grace.
+---------
+
+# Channing Tatum's Epic Sci-Fi Action Franchise Returns as a PVOD Streaming Hit 17 Years Later
+
+Movies, G.I. Joe: The Rise of Cobra
+
+Sun, 10 May 2026 14:00:13 GMT
+
+https://www.cbr.com/channing-tatum-gi-joe-rise-of-cobra-pvod-success-may-2026/
+
+The film was trashed by critics, but nearly two decades later it clearly remains an underrated fan-favorite.
+---------
+
+# Canon Events: Zatanna Sacrificed Everything in the Face of DC's Greatest Evil
+
+Comics, Canon Events, Zatanna, DC Comics
+
+Sun, 10 May 2026 14:00:13 GMT
+
+https://www.cbr.com/canon-events-zatanna-father-sacrifice-vs-the-great-darkness/
+
+Alan Moore's Swamp Thing revealed the ultimate sacrifice against the Great Darkness, setting Zatanna up as one of DC's most powerful magic users.
+---------
+
+# Forgotten '90s Anime Classic Finally Returns With New Mecha Model Kit After 35 Years
+
+Anime, Samurai Pizza Cats, merchandise, toys
+
+Sun, 10 May 2026 14:00:13 GMT
+
+https://www.cbr.com/samurai-pizza-cats-speedy-cerviche-model-kit-release/
+
+The classic 1990s anime Samurai Pizza Cats is back with a mecha model kit recreation of fearless leader Speedy Cerviche and his trusted Goonie Bird.
+---------
+
+# 8 Most Iconic '90s Cartoon Characters, Ranked
+
+TV, SpongeBob SquarePants, Courage the Cowardly Dog, Rugrats (1991), cartoons
+
+Sun, 10 May 2026 13:30:12 GMT
+
+https://www.cbr.com/iconic-90s-cartoon-characters-list/
+
+The '90s was a golden age for animation, and several characters, like Courage and Arnold, are still iconic.
+---------
+
+# Best Anime For Fans Who Love Overpowered Idiots
+
+Anime, Dragon Ball, One-Punch Man
+
+Sun, 10 May 2026 13:15:12 GMT
+
+https://www.cbr.com/best-anime-for-fans-who-love-overpowered-idiots/
+
+These anime feature heroes who are incredibly strong but not exactly the brightest, and fans wouldn't have it any other way.
+---------
+
+# 'Evil Dead' Burns On, but It's Been 34 Years Since We Got the Last Great One
+
+Movie Features, Army of Darkness, The Evil Dead, Sam Raimi, Bruce Campbell
+
+Sun, 10 May 2026 14:09:13 GMT
+
+https://collider.com/army-of-darkness-last-great-evil-dead-horror-fantasy-movie/
+
+We've gotten some good Evil Dead movies since Bruce Campbell departed, but Army of Darkness was the last time the franchise delivered a great one.
+---------
+
+# ‘Mortal Kombat 2’ Recoups Reported Budget in Just 3 Days at the Box Office
+
+Movie News, Mortal Kombat II, Karl Urban, Mortal Kombat, Video Game
+
+Sun, 10 May 2026 14:00:13 GMT
+
+https://collider.com/mortal-kombat-2-global-box-office-80-million/
+
+In just 3 days, Mortal Kombat 2 has already recovered its entire reported budget at the box office. The film stars Karl Urban as Johnny Cage.
+---------
+
+# 10 Best Facts About Making the Lord of the Rings Trilogy
+
+Movie, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Sun, 10 May 2026 13:55:13 GMT
+
+https://collider.com/the-lord-of-the-rings-trilogy-facts/
+
+From Ian McKellen bumping his head on a ceiling to multiple Peter Jackson cameos, these are the best facts about making The Lord of the Rings.
+---------
+
+# 2026’s Biggest Original Sci-Fi Movie Just Passed One of the Best Alien Invasion Sequels Ever
+
+Movie News, Project Hail Mary, Ryan Gosling, Sci-Fi, Box Office
+
+Sun, 10 May 2026 13:30:13 GMT
+
+https://collider.com/project-hail-mary-overtakes-sci-fi-sequel-men-in-black-3-655-million/
+
+Project Hail Mary has officially passed one last box office milestone by overtaking Will Smith’s best Sci-Fi sequel.
+---------
+
+# The 10 Best Horror Franchises of All Time
+
+Features, Horror
+
+Sun, 10 May 2026 14:00:18 GMT
+
+https://movieweb.com/10-best-horror-franchises-all-time/
+
+From slashers and spooks to extraterrestrials and zombies, this is a definitive list of the greatest horror franchises ever based purely on quality.
+---------
+
+# Kelly Reilly Talks Possible Dutton Ranch and Marshals Yellowstone Crossover
+
+TV News, Yellowstone, Kelly Reilly, Dutton Ranch, Marshals
+
+Sun, 10 May 2026 13:14:12 GMT
+
+https://movieweb.com/dutton-ranch-yellowstone-crossover-kelly-reilly/
+
+The 'Dutton Ranch' star says she wants to work with Luke Grimes again, while her comments also suggest Kayce Dutton isn't part of Season 1.
+---------
+
+# 'Long Story Short' Creator & Star Explain Why Food Is the Heart of the Show
+
+TV News, Long Story Short, Netflix
+
+Sun, 10 May 2026 13:06:56 GMT
+
+https://movieweb.com/long-story-short-lisa-edelstein-raphael-bob-waksberg/
+
+'Long Story Short' star Lisa Edelstein and creator Raphael Bob-Waksberg discuss the role food plays for the Netflix show's core family.
+---------
+
 # 10 Most Iconic Xbox 360 Games Of All Time
 
 Gaming, Microsoft
