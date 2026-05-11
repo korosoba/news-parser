@@ -1,3 +1,168 @@
+# 6 Horror Books Better Than Stephen King's The Shining
+
+Books, Stephen King, The Shining
+
+Mon, 11 May 2026 03:45:20 GMT
+
+https://screenrant.com/horror-books-better-than-the-shining/
+
+Stephen King’s The Shining is easily one of the greatest horror novels ever written, but a few books of the genre are arguably better in some ways.
+---------
+
+# Netflix's 4-Part 'Lost Meets Twilight Zone' Series Was So Good, Fans Brought It Back From The Dead
+
+Streaming TV, Masked Recs
+
+Mon, 11 May 2026 03:30:20 GMT
+
+https://screenrant.com/manifest-netflix-fans-brought-back-cancel/
+
+During a time when so many promising shows are canceled before their prime, this captivating mystery avoided the axe thanks to its devoted fandom.
+---------
+
+# HBO's 3-Part Dark Fantasy Is The Perfect Comic Book Show For People Who Hate Comic Book Shows
+
+Streaming TV, Masked Recs
+
+Mon, 11 May 2026 03:14:59 GMT
+
+https://screenrant.com/todd-mcfarlane-spawn-must-watch-different-superhero-show/
+
+Superhero fatigue has made many people annoyed with comic book shows, but one three season dark fantasy show from HBO is a perfect solution.
+---------
+
+# 2026's One Cyberpunk Series Bigger Than Neuromancer Lands Official Prime Video Release Date
+
+Anime, Ghost in the Shell
+
+Mon, 11 May 2026 02:34:33 GMT
+
+https://screenrant.com/the-ghost-in-the-shell-prime-video-release-date/
+
+One of the most influential cyberpunk classics of all time gets a sleek retro-style reboot to kick off a killer summer.
+---------
+
+# 10 Classic Sci-Fi Anime That Are Unwatchable Today
+
+Anime, Tokyo Ghoul, Battle Angel
+
+Mon, 11 May 2026 03:45:13 GMT
+
+https://www.cbr.com/classic-sci-fi-anime-aged-poorly-list/
+
+These once-celebrated sci-fi anime titles have struggled to stand the test of time, with dated animation, slow pacing, and convoluted lore.
+---------
+
+# 10 Annoying Sitcom Endings Fans Still Can't Stand
+
+TV, Sitcoms, New Girl, The Good Place, How I Met Your Mother
+
+Mon, 11 May 2026 03:30:12 GMT
+
+https://www.cbr.com/annoying-sitcom-endings-list/
+
+Sitcoms are among the greatest subgenres in television, but some endings of great shows have failed to live up to that and left fans frustrated.
+---------
+
+# 7 Classic SNES Games That Give Modern Games a Run for Their Money
+
+Games, Nintendo, Chrono Trigger, Super Mario World, The Legend of Zelda
+
+Mon, 11 May 2026 03:16:14 GMT
+
+https://www.cbr.com/classic-snes-games-that-give-modern-games-a-run-for-their-money/
+
+From iconic platformers to groundbreaking fighters, these classic SNES games are timeless gems that continue to impress.
+---------
+
+# Elden Ring: Academy of Raya Lucaria Officially Coming July 2026
+
+Games, Elden Ring
+
+Mon, 11 May 2026 03:00:14 GMT
+
+https://www.cbr.com/elden-ring-new-release-academy-of-raya-lucaria-july-2026/
+
+Elden Ring fans are about to be able to bring home their very own Academy of Raya Lucaria, and it is terrifying how perfect it is.
+---------
+
+# 10 12 Episode Anime That Are Perfect from Start to Finish
+
+Anime, Kids on the Slope, Death Parade
+
+Mon, 11 May 2026 02:45:13 GMT
+
+https://www.cbr.com/perfect-single-season-anime-list/
+
+It's not easy to tell a complete, flawless story in only a dozen episodes, but anime like Kaiba, Kids on the Slope, and Death Parade stick the landing
+---------
+
+# Steam 2025 Game Officially Free to Keep Forever Until May 13
+
+Games, Steam
+
+Mon, 11 May 2026 02:40:12 GMT
+
+https://www.cbr.com/steam-free-game-may-2026-metroidvania/
+
+A Steam game from December 2025 is 100% free for a limited time.
+---------
+
+# Netflix’s 4-Part Sci-Fi Series Feels Like It Was Made To Be Binged
+
+TV Features, The Umbrella Academy, Netflix, Sci-Fi, Elliot Page
+
+Mon, 11 May 2026 03:59:15 GMT
+
+https://collider.com/netflix-umbrella-academy-sci-fi-binge/
+
+Netflix's The Umbrella Academy is an addictive sci-fi series for superhero fans and binge-watchers alike.
+---------
+
+# 10 Crime Movies From the 20th Century That Are Actually Perfect
+
+Movie, Crime, The Godfather, Goodfellas, The Maltese Falcon
+
+Mon, 11 May 2026 03:59:15 GMT
+
+https://collider.com/crime-movies-20th-century-actually-perfect/
+
+From pioneering classics like The Maltese Falcon to unforgettable thrillers like Se7en, these crime movies are the absolute best of the 20th century.
+---------
+
+# HBO Max's 90% Rotten Tomatoes Classic Is the Most Realistic War Movie You've Never Seen
+
+Movie Features, Overlord, War, World War II, Classics
+
+Mon, 11 May 2026 03:49:53 GMT
+
+https://collider.com/overlord-realistic-war-movie-hbo-max-streaming/
+
+Stuart Cooper's tragic epic, Overlord, combines archival footage with a tear-jerking everyman story for an unflinching look at war.
+---------
+
+# 10 Worst Remakes of Beloved '70s Movies, Ranked
+
+Movie, The Wicker Man, The Omen, The Stepford Wives, Get Carter
+
+Mon, 11 May 2026 03:29:14 GMT
+
+https://collider.com/worst-70s-movies-remakes/
+
+Remakes of classic '70s movies like Halloween, Straw Dogs, and The Omen failed to justify their own existence.
+---------
+
+# 7 Forgotten HBO Shows That Have Aged Like Fine Wine
+
+TV, HBO, Perry Mason, Vice Principals, The Leftovers
+
+Mon, 11 May 2026 03:22:13 GMT
+
+https://collider.com/forgotten-hbo-shows-aged-like-fine-wine/
+
+Time has been kind to forgotten HBO shows like Perry Mason, Vice Principals, and I May Destroy You, with their reputation improving with age.
+---------
+
 # Where Queen Maeve Is During The Boys Season 5
 
 Streaming TV, The Boys
