@@ -1,3 +1,432 @@
+# Solo Leveling Just Stealth Dropped 2 Official New Manhwa Chapters
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Mon, 11 May 2026 16:05:23 GMT
+
+https://screenrant.com/solo-leveling-arise-manhwa-surprise-release/
+
+It is official, Solo Leveling has released two new manhwa chapters that reveal brand-new Hunters and their extremely dark origin stories.
+---------
+
+# Gen V Supes’ First Return After Cancellation Revealed In The Boys Season 5 Episode 7 Teaser
+
+TV, The Boys
+
+Mon, 11 May 2026 16:04:39 GMT
+
+https://screenrant.com/the-boys-season-5-episode-7-trailer-shows-homelander-becoming-president/
+
+The Boys' latest teaser shows Homelander in a whole new position, as Gen V cast return after news of the series' cancellation rocks entire fandom.
+---------
+
+# 7 Years Later, HBO's 5-Part Thriller With 95% RT Score Is Still Its Best Miniseries Of All Time
+
+TV, HBO, Masked Recs
+
+Mon, 11 May 2026 16:02:20 GMT
+
+https://screenrant.com/chernobyl-revisited-hbo-best-miniseries/
+
+One of HBO's greatest drama miniseries of all time introduced viewers to a slew of future A-list stars with its tragic, gripping real-life tale.
+---------
+
+# Call of the Elder Gods Review: Tasteful Puzzles And Adventuring
+
+Gaming, Indie Games
+
+Mon, 11 May 2026 16:00:19 GMT
+
+https://screenrant.com/call-of-the-elder-gods-review/
+
+From the developer of the surprisingly out-of-nowhere indie hit Call of the Sea comes a sequel, and it's even more intriguing.
+---------
+
+# Off Campus Review: A Surprisingly Insightful & Sexy Romance Book Adaptation
+
+Streaming TV, Off Campus, Off Campus - Season 1
+
+Mon, 11 May 2026 16:00:19 GMT
+
+https://screenrant.com/off-campus-season-1-review/
+
+Prime Video's Off Campus is a delightfully insightful, sweet, and sexy romance, elevated by a great ensemble cast and its two lead performances.
+---------
+
+# New The Rivals Of Amziah King Trailer
+
+Movies, The Rivals of Amziah King
+
+Mon, 11 May 2026 16:00:19 GMT
+
+https://screenrant.com/the-rivals-of-amziah-king-trailer/
+
+Kurt Russell & Matthew McConaughey’s critically acclaimed crime thriller just dropped a brand-new trailer ahead of its theatrical release.
+---------
+
+# Joker's Batcave Officially Revealed, And 1 Detail Will Shock Fans
+
+DC Comics, The Joker, Joker, Batman
+
+Mon, 11 May 2026 15:53:59 GMT
+
+https://screenrant.com/absolute-batman-joker-batcave/
+
+The Joker has officially claimed the Batcave, and we mean that literally. This new secret base is not just a generic, Joker-themed headquarters.
+---------
+
+# Fast & Furious TV Series With Vin Diesel Officially Coming To Streaming
+
+TV, Fast & Furious, Vin Diesel
+
+Mon, 11 May 2026 15:53:31 GMT
+
+https://screenrant.com/fast-and-furious-show-vin-diesel-streaming-peacock-development/
+
+The Fast & Furious property is officially getting a television show through the world of streaming with long-time franchise star Vin Diesel.
+---------
+
+# These Stan Lee Quotes Will Help You Understand Marvel Comics Better
+
+Comics, Stan Lee, Marvel
+
+Mon, 11 May 2026 15:53:27 GMT
+
+https://screenrant.com/best-stan-lee-quotes-marvel-comics/
+
+Stan the Man's most illuminating quotes.
+---------
+
+# The Most Iconic Moment In The Devil Wears Prada Was Meryl Streep's Idea
+
+Movies, The Devil Wears Prada
+
+Mon, 11 May 2026 15:30:23 GMT
+
+https://screenrant.com/iconic-the-devil-wears-prada-scene-meryl-streep-influence/
+
+The Devil Wears Prada is one of the most quotable movies of all time, and one of its best signature scenes was heavily influenced by Meryl Streep.
+---------
+
+# Jack Ryan Director Confirms the Franchise Fate's Ahead of Highly Anticipated Movie
+
+Movies, Tom Clancy's Jack Ryan: Ghost War
+
+Mon, 11 May 2026 16:21:10 GMT
+
+https://www.cbr.com/jack-ryan-ghost-war-sequel-fate-andrew-bernstein/
+
+Jack Ryan director Andrew Bernstein reveals if Ghost War was designed as the final chapter for John Krasinski's take on the Tom Clancy character.
+---------
+
+# Classic Digimon Game Finally Available in English May 15
+
+Games, Digimon
+
+Mon, 11 May 2026 16:16:13 GMT
+
+https://www.cbr.com/digimon-game-new-english-release-may-15/
+
+Digimon fans who have felt empty since Time Stranger will soon be able to play a game from the franchise that never received an English localization.
+---------
+
+# 8 Things We Want To See In Jujutsu Kaisen Modulo's Anime
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo, shonen anime
+
+Mon, 11 May 2026 16:16:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-modulo-anime-fan-requests/
+
+With the recent announcement of JJK Modulo's anime adaptation, fans can't wait to see their favorite moments on screen.
+---------
+
+# =Marvel Confirms Fan-Favorite Hero’s Death Is Final
+
+Comics
+
+Mon, 11 May 2026 16:00:13 GMT
+
+https://www.cbr.com/marvel-confirms-ultimate-spider-man-death/
+
+Marvel reveals one of its most iconic heroes is dead, and fans shouldn't expect them to be resurrected anytime soon.
+---------
+
+# Alan Ritchson & Hilary Swank's Ordinary Angels is an Underrated Gem
+
+Movies, Ordinary Angels, Hilary Swank, Reacher
+
+Mon, 11 May 2026 16:00:13 GMT
+
+https://www.cbr.com/alan-ritchson-hilary-swank-underrated-movie-ordinary-angels/
+
+In this 2024 religious drama, inspired by a true story, Reacher's Alan Richson showed off his soft side opposite Hilary Swank.
+---------
+
+# The Legend of Vox Machina Is Becoming a Modern Fantasy Classic
+
+TV, The Legend of Vox Machina, Critical Role, The Mighty Nein, Prime Video
+
+Mon, 11 May 2026 15:55:13 GMT
+
+https://www.cbr.com/prime-video-the-legend-of-vox-machina-fantasy-classic/
+
+Prime Video has its fair share of fantasy series, but one series dominates all the rest.
+---------
+
+# Hacks' Cherry Jones Reveals Her 'Professional Crush' From Another Standout Sitcom
+
+CBR Exclusives, Hacks
+
+Mon, 11 May 2026 15:25:27 GMT
+
+https://www.cbr.com/hacks-cherry-jones-jean-smart-professional-crush-designing-women/
+
+Hacks Season 5 guest star Cherry Jones shares how Designing Women sparked her “professional crush” on Jean Smart.
+---------
+
+# Stephen Amell's Fox Reboot of '90s Cult Classic Series Finally Unveils First Look & Release Window
+
+TV, Baywatch, fox
+
+Mon, 11 May 2026 15:20:13 GMT
+
+https://www.cbr.com/stephen-amell-baywatch-reboot-first-look-release-window/
+
+Fox reveals the release window and first look at its upcoming Baywatch reboot starring Stephen Amell and Shay Mitchell.
+---------
+
+# 10 Modern Anime Hits That Will Not Age Well
+
+Anime, Solo Leveling, Jujutsu Kaisen, Dandadan
+
+Mon, 11 May 2026 15:15:15 GMT
+
+https://www.cbr.com/modern-anime-hits-will-wont-age-well/
+
+These anime series might be the biggest modern sensations, yet hardly anyone would remember them years from now.
+---------
+
+# Lord of the Rings Nazgul King Replica Officially Arrives Spring 2027
+
+Games, The Lord of the Rings
+
+Mon, 11 May 2026 15:10:15 GMT
+
+https://www.cbr.com/lotr-nazgul-king-mask-official-spring-2027/
+
+Lord of the Rings fans who want to look like the Witch-King of Angmar can do so in 2027, as pre-orders have opened for a detailed Nazgul mask.
+---------
+
+# Forget ‘Blade Runner’ — Ridley Scott’s 2-Part Sci-Fi Masterpiece Is the One That Needs a Revival
+
+TV Features, Raised by Wolves, Ridley Scott, Sci-Fi, Blade Runner
+
+Mon, 11 May 2026 16:18:13 GMT
+
+https://collider.com/ridley-scott-raised-by-wolves-cancelled-sci-fi-better-than-blade-runner/
+
+Ridley Scott’s Raised by Wolves may be his boldest sci-fi, surpassing Blade Runner with its story, ideas, and why it still deserves a revival.
+---------
+
+# Fast & Furious Officially Gets a TV Series After More Than 20 Years on the Big Screen
+
+TV News, Fast & Furious, Vin Diesel, Fast X, Fast Forever
+
+Mon, 11 May 2026 16:11:49 GMT
+
+https://collider.com/fast-and-furious-tv-series-adaptation-4-shows-vin-diesel-producing-peacock/
+
+Vin Diesel’s Fast & Furious franchise is about to get a whole lot bigger with 4 television shows officially in the works at Peacock.
+---------
+
+# Forget 'Silence of the Lambs' — 41 Years Later, Prime Video's Serial Killer Film Is Still One of the Best
+
+Movie Features, The Mean Season, Kurt Russell, Mariel Hemingway, Silence of the Lambs
+
+Mon, 11 May 2026 16:11:13 GMT
+
+https://collider.com/kurt-russell-the-mean-season-silence-of-the-lambs-replacement/
+
+The Mean Season, starring Kurt Russell, predates the majority of serial killer films and is an underrated entry in the crime genre.
+---------
+
+# Prime Video's 'Off Campus' Is Exactly What Romance Novel Lovers Want From a TV Adaptation | Review
+
+TV Reviews, Off Campus, Prime Video, Romance, Ella Bright
+
+Mon, 11 May 2026 16:00:13 GMT
+
+https://collider.com/off-campus-tv-series-review-prime-video/
+
+Prime Video's Off Campus TV series delivers a captivating romance adaptation that will satisfy book lovers and newcomers alike.
+---------
+
+# Matthew McConaughey’s 97% Rotten Tomatoes Neo-Western Is Officially Coming to Theaters This Summer
+
+Movie News, The Rivals of Amziah King, Matthew McConaughey, Kurt Russell, Tony Revolori
+
+Mon, 11 May 2026 16:00:13 GMT
+
+https://collider.com/matthew-mcconaughey-neo-western-the-rivals-of-amziah-king-trailer-release-date-august-14-2026/
+
+Black Bear has released the first official trailer for Matthew McConaughey's The Rivals of Amziah King, confirming that it will be released in August.
+---------
+
+# HBO and A24's Wildest Docuseries Ever Is Officially in Production on Season 2 [Exclusive]
+
+Collider Signature, Neighbors, HBO, A24, HBO Max
+
+Mon, 11 May 2026 16:00:13 GMT
+
+https://collider.com/neighbors-hbo-a24-docuseries-season-2-in-production-creators-interview/
+
+HBO and A24's wild docuseries Neighbors is officially in production on Season 2, and the creators are revealing what to expect from its return.
+---------
+
+# Prime Video’s 100% RT Fantasy Hit Returns With New Look Ahead of Summer Release [Exclusive]
+
+Exclusives, The Legend of Vox Machina, Prime Video, Collider Exclusive Preview, Critical Role
+
+Mon, 11 May 2026 16:00:13 GMT
+
+https://collider.com/the-legend-of-vox-machina-season-4-first-look-prime-video-critical-role/
+
+Discover the emotional depth of Percy and Vex's relationship in a new look at The Legend of Vox Machina Season 4, premiering June 3 on Prime Video.
+---------
+
+# New 'Yellowstone' Meets 'Joe Pickett' Crime Thriller Sets Release Date With Must-See Trailer
+
+TV News, Joe Pickett, Yellowstone, USA Network, Western
+
+Mon, 11 May 2026 15:12:23 GMT
+
+https://collider.com/crime-thriller-series-like-yellowstone-joe-pickett-anna-pigeon-trailer-release-date-usa-network/
+
+USA Network's new original drama Anna Pigeon sets August release date as it unveils a new trailer featuring a Chicago P.D. fan-favorite.
+---------
+
+# Ryan Reynolds and Rob Mac Reveal the Definitive Opening Date for Wrexham’s Stadium Expansion [Exclusive]
+
+Exclusives, Welcome to Wrexham, Ryan Reynolds, Rob Mac, Deadpool
+
+Mon, 11 May 2026 15:08:24 GMT
+
+https://collider.com/ryan-reynolds-rob-mac-welcome-to-wrexham-stadium-expansion-season-5-interview/
+
+Ryan Reynolds and Rob Mac discuss Welcome to Wrexham Season 5, the next three seasons, stadium expansion, Far Cry, and more Deadpool.
+---------
+
+# ‘Game of Thrones’ Star Kit Harington Trades Westeros for Charles Dickens in New Look at Historical Epic [Exclusive]
+
+TV News, A Tale Of Two Cities, MGM, Kit Harington, Collider Exclusive Preview
+
+Mon, 11 May 2026 15:00:15 GMT
+
+https://collider.com/a-tale-of-two-cities-images-kit-harington-mirren-mack-mgm-plus/
+
+Two new images from MGM+'s A Tale of Two Cities series find Kit Harington and Mirren Mack navigating the timeless Charles Dickens tale.
+---------
+
+# 'Friday the 13th' Prequel 'Crystal Lake' Sets October Streaming Release Date on Peacock
+
+TV News, Crystal Lake, Friday the 13th
+
+Mon, 11 May 2026 16:05:18 GMT
+
+https://movieweb.com/crystal-lake-release-date-peacock/
+
+The A24-produced 'Crystal Lake' will run for eight episodes and debut on Peacock on Oct. 15, 2026.
+---------
+
+# Every Season of 'Scrubs,' Ranked
+
+TV Lists, Scrubs
+
+Mon, 11 May 2026 16:00:18 GMT
+
+https://movieweb.com/every-scrubs-season-ranked/
+
+Every season of Scrubs (so far) ranked from the season that killed the series to the triumphant return over a decade later.
+---------
+
+# Crunchyroll's Darkest Anime 'Takopi's Original Sin' Can Be Binge-Watched in a Single Day
+
+Features, Takopi's Original Sin, Crunchyroll, Streaming Recommendations, Anime
+
+Mon, 11 May 2026 16:00:17 GMT
+
+https://movieweb.com/takopi-original-sin-crunchyroll-darkest-anime/
+
+Crunchyroll's seinen anime that's even darker than 'Berserk,' 2025's 'Takopi's Original Sin,' is a masterpiece on streaming.
+---------
+
+# 8 Stephen King Thriller Series That Are 10/10, No Notes
+
+TV Lists, Stephen King
+
+Mon, 11 May 2026 16:00:17 GMT
+
+https://movieweb.com/stephen-king-perfect-thriller-tv-series/
+
+Stephen King has many horror and supernatural TV shows adapted from his bestselling novels, but his thriller series deserve more attention.
+---------
+
+# 'Baywatch' Reboot Delayed to January 2027 as Fox Shares First Look at Stephen Amell Series
+
+TV News, Baywatch, Stephen Amell, Shay Mitchell
+
+Mon, 11 May 2026 15:46:21 GMT
+
+https://movieweb.com/baywatch-delayed-first-look-stephen-amell-reboot/
+
+Stephen Amell’s 'Baywatch' reboot now has a later Fox premiere date, first image, and a clearer shape.
+---------
+
+# 'The Pitt' Star Supriya Ganesh Responds To Fan Reactions After Suddent Season 2 Exit
+
+TV News, The Pitt
+
+Mon, 11 May 2026 15:06:20 GMT
+
+https://movieweb.com/the-pitt-supriya-ganesh-exit-reaction/
+
+After Dr. Samira Mohan’s departure, Ganesh said seeing their name trend sent them offline.
+---------
+
+# David Boreanaz's 'The Rockford Files' Reboot Gets First Look & Release
+
+TV News, David Boreanaz, The Rockford Files
+
+Mon, 11 May 2026 14:21:50 GMT
+
+https://movieweb.com/david-boreanaz-rockford-files-images-release/
+
+NBC has ordered the David Boreanaz-led revival to series for 2026-27, and the first images suggest Jim Rockford is now firmly back in business.
+---------
+
+# 'Liminal' Set Images Unveil Apple’s Sci-Fi Action Epic Starring Yahya Abdul-Mateen II & Vanessa Kirby
+
+Movie News
+
+Mon, 11 May 2026 14:07:54 GMT
+
+https://movieweb.com/apple-tv-liminal-first-look-set-images/
+
+The first look at the epic new superhero film reveals Yahya Abdul-Mateen II and Vanessa Kirby in costume.
+---------
+
+# ‘The Walking Dead’ Is So Good, It Could Run Forever
+
+Features, The Walking Dead
+
+Mon, 11 May 2026 14:00:18 GMT
+
+https://movieweb.com/the-walking-dead-franchise-could-last/
+
+'The Walking Dead' is a post-apocalyptic zombie thriller TV series that aired from 2010 to 2022 starring Andrew Lincoln, and it has several spin-offs.
+---------
+
 # Sebastian Stan's New The Batman 2 Character Transformation Officially Begins In Exciting Tease
 
 Movies, The Batman Part II, Batman
