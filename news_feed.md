@@ -1,3 +1,300 @@
+# If Euphoria Killed Off THAT Main Character, Season 3 Is Officially Doomed
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Mon, 11 May 2026 22:30:21 GMT
+
+https://screenrant.com/euphoria-season-3-rue-potential-death-episode-5/
+
+Euphoria season 3, episode 5, "This Little Piggy," ended on a huge cliffhanger, possibly spelling the death of the show's best character.
+---------
+
+# Mortal Kombat 2 Mythology Explained: Tournament Rules, Amulet of Shinnok & More
+
+Movies, Mortal Kombat II, Mortal Kombat, Mortal Kombat: Annihilation
+
+Mon, 11 May 2026 22:30:21 GMT
+
+https://screenrant.com/mortal-kombat-2-movie-mythology-tournament-rules-amulet-shinnok/
+
+Mortal Kombat II delves into established myths from the video game series, but also leaves a few key elements and lore unexplained.
+---------
+
+# Marvel Officially Confirms Captain America Will Have Brutal Hulk Injury in New Appearance
+
+Comics, Captain America
+
+Mon, 11 May 2026 22:30:21 GMT
+
+https://screenrant.com/captain-america-redesign-injury-hulk-steve-rogers/
+
+That is... extreme.
+---------
+
+# Why Is Hugh Jackman's The Sheep Detectives Taking Over The World
+
+Movies, Masked Recs
+
+Mon, 11 May 2026 22:28:59 GMT
+
+https://screenrant.com/hugh-jackman-the-sheep-detectives-theatrical-success-may-2026/
+
+Hugh Jackman is one of the actors in a star-studded murder mystery that is off to a solid debut, and there are plenty of reasons behind its success.
+---------
+
+# The Lord Of The Rings: The Rings Of Power Season 3 Release Date Officially Revealed At Prime Video
+
+TV, The Lord of the Rings: The Rings of Power
+
+Mon, 11 May 2026 22:24:44 GMT
+
+https://screenrant.com/lord-of-the-rings-rings-of-power-season-3-release-date-confirmed/
+
+The release date for The Lord of the Rings: The Rings of Power season 3 has been officially revealed by Prime Video, along with a new image.
+---------
+
+# HBO's 6-Part Fantasy Show Is Officially Saving An Entire Genre
+
+Streaming TV
+
+Mon, 11 May 2026 22:17:19 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-hbo-saving-fantasy-genre/
+
+After almost a decade and a half of pessimistic and dark fantasy TV shows, one HBO series with six episodes is swooping in to save the genre.
+---------
+
+# Prime Video's 2-Part 'Slow Horses Meets Bond' Series Is One Of Its Best Spy Shows
+
+Streaming TV, Masked Recs
+
+Mon, 11 May 2026 22:15:19 GMT
+
+https://screenrant.com/the-night-manager-prime-video-slow-horses-meets-bond-show/
+
+Prime Video’s extensive library features a spy thriller that shares several similarities with Apple TV’s Slow Horses and the iconic James Bond.
+---------
+
+# Guy Ritchie's New Detective Show Has Already Replaced Sherlock Holmes 3
+
+Streaming TV, Masked Recs
+
+Mon, 11 May 2026 22:00:22 GMT
+
+https://screenrant.com/guy-ritchie-young-sherlock-replaced-sherlock-holmes-3/
+
+Guy Ritchie's newest detective show was a huge success over at Prime Video, and it has now replaced his long-awaited Sherlock Holmes 3 movie.
+---------
+
+# Resident Evil 10 Lead Character Splits Gamers
+
+Gaming, Resident Evil, Triple-A Games
+
+Mon, 11 May 2026 22:00:22 GMT
+
+https://screenrant.com/resident-evil-10-leak-claire-redfield/
+
+Fans are hungry for more information on Resident Evil 10, despite the fact that the DLC for Resident Evil Requiem hasn't fully rolled out yet.
+---------
+
+# 7 Near-Perfect Musicals with a Totally Unique Twist
+
+Movies, Musical
+
+Mon, 11 May 2026 22:00:22 GMT
+
+https://screenrant.com/best-musicals-different-twist-movies-songs/
+
+Chimps, zombies, ghosts... oh, and singing.
+---------
+
+# Colleen Hoover's Regretting You Tops Streaming Charts in the United States
+
+Movies, Regretting You, Prime Video, Balls Up
+
+Mon, 11 May 2026 22:30:13 GMT
+
+https://www.cbr.com/colleen-hoover-regretting-you-romance-drama-prime-video-success-may-2026/
+
+Colleen Hoover's book adaptation, Regretting You, surpasses Mark Wahlberg's Balls Up to become the No. 1 movie on Prime Video in the US.
+---------
+
+# The Lord of the Rings Officially Returns With New Release in 2026
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Mon, 11 May 2026 22:28:57 GMT
+
+https://www.cbr.com/rings-of-power-season-3-release-date-prime-video-lotr/
+
+The Lord of the Rings is back in 2026.
+---------
+
+# DC Studios Confirms New Batman Movie Trilogy
+
+Movies, Batman
+
+Mon, 11 May 2026 22:18:11 GMT
+
+https://www.cbr.com/batman-knightfall-movie-trilogy-dc-studios/
+
+A new Batman movie trilogy is officially on the way.
+---------
+
+# 10 Classic Anime Hits That Would Flop Today
+
+Anime, Sailor Moon, Dragon Ball, Isekai, shonen anime, Shojo
+
+Mon, 11 May 2026 22:15:13 GMT
+
+https://www.cbr.com/classic-anime-that-would-flop-today/
+
+These anime series were once the face of the medium, yet they could never become hits if they were released today.
+---------
+
+# Clair Obscur: Expedition 33 New Release Is Official Gustave's Arm Replica
+
+Games, Video Games
+
+Mon, 11 May 2026 22:13:13 GMT
+
+https://www.cbr.com/clair-obscur-expedition-33-new-anniversary-release-2027/
+
+Those who want to hold the hand of one of gaming's biggest hunks can do so, as Gustave's arm from Clair Obscur: Expedition 33 now has a replica.
+---------
+
+# Marvel Reveals Spider-Man’s Terrifying New Monster Transformation
+
+Comics, Spider-Man, Marvel Comics, Superhero Costumes
+
+Mon, 11 May 2026 22:00:14 GMT
+
+https://www.cbr.com/amazing-spider-man-queen-in-black-redesign-revealed/
+
+This unexpected choice turns the iconic wall-crawler into a massive, nightmare-inducing spider, with his human body helplessly dangling from its belly
+---------
+
+# James Gunn Already Revealed Matthew Lillard as Plastic Man in the DCU
+
+Movies, Man of Tomorrow, DCU, James Gunn
+
+Mon, 11 May 2026 22:00:14 GMT
+
+https://www.cbr.com/matthew-lillard-plastic-man-dcu-character/
+
+Matthew Lillard has been cast in James Gunn's upcoming Man of Tomorrow movie, and his undisclosed role might have already secretly been revealed.
+---------
+
+# 9 Worst Remakes of Beloved Family Movies
+
+Movie, Home Sweet Home Alone, Family, The Lion King, Pinocchio
+
+Mon, 11 May 2026 22:42:13 GMT
+
+https://collider.com/worst-family-movie-remakes/
+
+From Home Sweet Home Alone to Pinocchio, these remakes stripped beloved family films of heart, warmth, and emotional magic.
+---------
+
+# 3 Near-Perfect Movies to Watch on Prime Video This Week
+
+Movie, Prime Video, The Running Man, The Idea of You, Despicable Me 4
+
+Mon, 11 May 2026 22:34:13 GMT
+
+https://collider.com/best-movies-prime-video-may-11/
+
+The Running Man, Despicable Me 4, and The Idea of You make up our list of the best movies to watch on Prime Video the week of May 11, 2026.
+---------
+
+# FX's 5-Part Mystery Series Proves It’s Still the Greatest Anthology of the Century
+
+TV News, Fargo, FX, Noah Hawley, Coen Brothers
+
+Mon, 11 May 2026 22:30:14 GMT
+
+https://collider.com/best-anthology-series-in-20-years-fargo-series-streaming-success-may-2026/
+
+The greatest anthology series of the last couple of decades, Fargo, is attracting interest on the PVOD market after ending its run. Find out more.
+---------
+
+# Prime Video’s Biggest Fantasy Series Officially Returns in 6 Months
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, Fantasy
+
+Mon, 11 May 2026 22:23:29 GMT
+
+https://collider.com/lord-of-the-rings-the-rings-of-power-season-3-release-date-prime-video-november-2026/
+
+Prime Video has officially confirmed the return date for Season 3 of its biggest fantasy series, Lord of the Rings: The Rings of Power.
+---------
+
+# Stephen King Has 2 Spielberg Masterpieces in His Top 10, and It Makes Perfect Sense
+
+Movie Features, Steven Spielberg, Stephen King, Jaws, Close Encounters of The Third Kind
+
+Mon, 11 May 2026 22:15:13 GMT
+
+https://collider.com/stephen-king-top-10-favorite-movies-spielberg-jaws-close-encounters/
+
+Stephen King revealed his top 10 favorite films of all time, and it's no surprise that these two Spielberg projects made the list.
+---------
+
+# The Most Underrated Sci-Fi Film of 2026 Achieves Stunning Streak on Streaming
+
+Movie News, Good Luck, Have Fun, Don't Die, Sam Rockwell, Gore Verbinski, Sci-Fi
+
+Mon, 11 May 2026 22:00:14 GMT
+
+https://collider.com/good-luck-have-fun-dont-die-most-underrated-sci-fi-film-of-2026-streaming-milestone-30-days/
+
+The most underrated sci-fi film of the year — Gore Verbinski's Good Luck, Have Fun, Don't Die — is on a stunning streak on streaming. Find out more.
+---------
+
+# 10 Greatest Prison Dramas Since 'The Shawshank Redemption'
+
+Movie, The Shawshank Redemption, Sing Sing, A Prophet (2009), The Green Mile
+
+Mon, 11 May 2026 21:53:14 GMT
+
+https://collider.com/best-prison-drama-movies-since-shawshank-redemption/
+
+The Shawshank Redemption was a before and after for the prison genre, but great movies like Sing Sing and 25th Hour have carried on with its legacy.
+---------
+
+# 'The Rings of Power' Gets November Release Date From Prime Video
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video
+
+Mon, 11 May 2026 22:45:13 GMT
+
+https://movieweb.com/lord-of-the-rings-rings-of-power-season-3-release-date/
+
+Get ready to return to Middle-earth before the end of the year.
+---------
+
+# 'Lower Decks' Is the Worst Show for New 'Star Trek' Fans
+
+Features, Star Trek Lower Decks, Star Trek
+
+Mon, 11 May 2026 22:00:20 GMT
+
+https://movieweb.com/star-trek-lower-decks-not-for-newcomers/
+
+The 'Star Trek' franchise can be very intimidating to fans who don't know where to start. There's no correct answer, but there is an incorrect one.
+---------
+
+# Matthew McConaughey Crime Thriller 'The Rivals of Amziah King' Gets Official Trailer
+
+Movie News, The Rivals of Amziah King, Matthew McConaughey
+
+Mon, 11 May 2026 21:55:24 GMT
+
+https://movieweb.com/rivals-of-amziah-king-trailer-matthew-mcconaughey/
+
+The first trailer for the SXSW favorite promises family drama, violence, and a little bit of music.
+---------
+
 # Youngblood Is Back To Reclaim Its Throne As King Of The Modern Superhero Universe (Exclusive)
 
 Comics, image comics, Rob Liefeld
