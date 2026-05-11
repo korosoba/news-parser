@@ -1,3 +1,344 @@
+# Where Queen Maeve Is During The Boys Season 5
+
+Streaming TV, The Boys
+
+Mon, 11 May 2026 02:30:20 GMT
+
+https://screenrant.com/where-is-queen-maeve-in-the-boys-season-5/
+
+Many viewers expected Queen Maeve to return in The Boys season 5 in some capacity, but her absence from the show’s final arc makes a lot of sense.
+---------
+
+# DC Hints That Batman’s Best Robin Is Officially Gone For Good After Shocking Twist
+
+Comics, Batman
+
+Mon, 11 May 2026 02:00:32 GMT
+
+https://screenrant.com/tim-drake-best-robin-gone-batman-dc/
+
+Robin has gracefully left the Bat-Family, and whether or not he will be returning any time soon has been answered in the latest issue of Batman.
+---------
+
+# What Fatima Is Building In From Season 4 & Its Deeper Meaning Explained
+
+Streaming TV, From, FROM - Season 4
+
+Mon, 11 May 2026 02:00:32 GMT
+
+https://screenrant.com/from-season-4-fatima-building-golem-meaning-explained/
+
+After the trauma she experienced in From season 3, Fatima Hassan is building something massive out of dirt in season 4, and it has a deeper meaning.
+---------
+
+# Devil May Cry's Original Creator Demolishes Netflix Series Backlash With 5 Words
+
+Anime, Devil May Cry
+
+Mon, 11 May 2026 02:00:32 GMT
+
+https://screenrant.com/devil-may-cry-creator-responds-netflix-series-backlash/
+
+One of Netflix's boldest new animated projects came under fire by fans of its game source material, with Devil May Cry's first director responding.
+---------
+
+# Batman: Arkham Is Finally Officially Back In A Big Way
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, 007 First Light, Batman, Triple-A Games
+
+Mon, 11 May 2026 02:00:32 GMT
+
+https://screenrant.com/batman-arkham-fans-2026-releases/
+
+The Batman: Arkham franchise and its gameplay formulas are timeless, inspiring the two most highly anticipated games of May 2026 in fascinating ways.
+---------
+
+# Ted Lasso Season 4 Could Not Come At A More Perfect Time
+
+Streaming TV, Ted Lasso
+
+Mon, 11 May 2026 01:46:01 GMT
+
+https://screenrant.com/ted-lasso-season-4-womens-soccer-fifa-perfect-timing/
+
+Ted Lasso is returning for season 4 with a fresh new angle, and the new season's story direction could not come at a more perfect time
+---------
+
+# Casting Franky In One Piece Live-Action: 8 Actors Who'd Be Perfect
+
+Streaming TV, One Piece
+
+Mon, 11 May 2026 01:45:20 GMT
+
+https://screenrant.com/one-piece-live-action-franky-casting-actors/
+
+As Netflix's One Piece expands, the hit original series will need to find the perfect actor to play Franky in live action.
+---------
+
+# 10 Found Footage Horror Movies That Feel Disturbingly Real
+
+Movies, The Poughkeepsie Tapes, The Blair Witch Project, Hell House LLC, Lake Mungo, Devil's Pass, The Blackwell Ghost, The Phoenix Tapes '97, Creep, Willow Creek, Horror in the High Desert
+
+Mon, 11 May 2026 01:45:20 GMT
+
+https://screenrant.com/found-footage-horror-movies-that-feel-real/
+
+Many found-footage horror movies are frightening, but some use their unique perspective to deliver stories that feel disturbingly real.
+---------
+
+# X-Men Officially Reveals True Meaning Of A Powerful Villain's Name For The First Time
+
+Marvel Comics, X-Men, Marvel
+
+Mon, 11 May 2026 01:30:21 GMT
+
+https://screenrant.com/x-men-villain-name-origin-scurvy/
+
+One of the X-Men's villains owes his sinister name to something incredibly mundane but tragic for someone with such a powerful mutant ability.
+---------
+
+# 7 Ways The Boys' Final Season Sets Up Prime Video's New Vought Spinoff
+
+Streaming TV, The Boys, Vought Rising
+
+Mon, 11 May 2026 01:30:21 GMT
+
+https://screenrant.com/the-boys-final-season-vought-rising-spinoff-setup/
+
+Prime Video is set to release a Vought-centric spin-off to The Boys in 2027, causing the latter’s final season to include a lot of setup.
+---------
+
+# Tubi Streaming Both Seasons of Sheena, Queen of the Jungle Reboot
+
+TV, Sheena
+
+Mon, 11 May 2026 02:25:10 GMT
+
+https://www.cbr.com/sheena-streaming-free-tubi-may-2026/
+
+Several decades before the TV show, the character made history as the first heroine to lead her own comic book series.
+---------
+
+# 10 Multiplayer Games To Play With Friends
+
+Games, Multiplayer Games, Video Games
+
+Mon, 11 May 2026 02:15:13 GMT
+
+https://www.cbr.com/best-multiplayer-games-with-friends-list/
+
+These multiplayer games are fun to play with friends and anyone should try them. These games feature fun gamemodes, endgame content, and cool themes.
+---------
+
+# 10 Action-Packed Anime No One Remembers That Hit Like Blockbuster Movies
+
+Anime
+
+Mon, 11 May 2026 02:00:23 GMT
+
+https://www.cbr.com/forgotten-anime-like-blockbuster-action-movies-list/
+
+Some of the best forgotten anime feel like lost Blockbuster classics.
+---------
+
+# Berserk Reunites Guts and Zodd for 1 of Its Biggest Showdowns
+
+Anime, Berserk, merchandise
+
+Mon, 11 May 2026 02:00:23 GMT
+
+https://www.cbr.com/berserk-guts-zodd-ichiban-kuji-release/
+
+The latest Berserk Ichiban Kuji lottery series features multiple collectibles based on different forms and concepts tied to both Guts and Zodd.
+---------
+
+# 5 Forgotten War Movies That Are Amazing From Start to Finish
+
+Movies, Paths of Glory, The Killing Fields, Cross of Iron
+
+Mon, 11 May 2026 02:00:23 GMT
+
+https://www.cbr.com/forgotten-war-movies-amazing-start-to-finish-list/
+
+Some of the greatest war movies in cinema history have been forgotten
+---------
+
+# 10 Must-Watch Hidden Gem Seinen Anime
+
+Anime, seinen, Planetes, Paranoia Agent, Mushishi
+
+Mon, 11 May 2026 01:45:13 GMT
+
+https://www.cbr.com/best-hidden-gem-seinen-anime/
+
+The best Seinen anime lives outside the algorithm, with no flashy battle power systems or seasonal discourse, just dense, confident storytelling.
+---------
+
+# 10 Greatest Anime Masterpieces of the Last 30 Years
+
+Anime, Cowboy Bebop, Fullmetal Alchemist: Brotherhood, shonen anime
+
+Mon, 11 May 2026 01:25:13 GMT
+
+https://www.cbr.com/greatest-anime-masterpieces-last-30-years/
+
+Over the last 30 years, anime celebrated the release of numerous all-time classics fans deem flawless.
+---------
+
+# The Boys EP Dismisses 1 Major Concern About Vought Rising Spinoff
+
+TV, Vought Rising, The Boys
+
+Mon, 11 May 2026 01:21:07 GMT
+
+https://www.cbr.com/the-boys-vought-rising-stormfront-sympathy/
+
+One big concern The Boys fans may have about the next spinoff has been addressed by Eric Kripke.
+---------
+
+# Spartacus: House of Ashur Gets a Disappointing Streaming Update Amid Uncertain Future
+
+TV, Spartacus, Spartacus: House of Ashur
+
+Mon, 11 May 2026 01:00:13 GMT
+
+https://www.cbr.com/spartacus-house-of-ashur-historical-starz-top-10-drop-may-2026/
+
+Three months after its season finale, the brutal historical drama series got a new streaming update.
+---------
+
+# 10 Lord of the Rings Actors Who Also Appeared in Star Wars
+
+Movies, The Lord of the Rings, Star Wars, The Hobbit
+
+Mon, 11 May 2026 01:00:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-actors-in-star-wars-list/
+
+The Lord of the Rings and Star Wars are some of the most beloved film franchises of all time, and these ten actors played characters in both.
+---------
+
+# 10 Sitcoms That Are Amazing From Start to Finish
+
+TV, Sitcom, Schitt's Creek, BoJack Horseman, The Good Place
+
+Mon, 11 May 2026 02:21:13 GMT
+
+https://collider.com/tv-sitcoms-amazing-start-to-finish/
+
+Schitt's Creek, BoJack Horseman, and What We Do in the Shadows are all among the best TV sitcoms that are truly amazing from start to finish.
+---------
+
+# The 10 Most Stressful TV Shows of All Time, Ranked
+
+TV, The Bear, The Pitt, Chernobyl, The Handmaid's Tale
+
+Mon, 11 May 2026 01:22:13 GMT
+
+https://collider.com/most-stressful-shows-ranked/
+
+Dive into the most stressful and suspenseful TV shows that can keep viewers on the edge of their seats, including The Pitt, The Bear, and Chernobyl.
+---------
+
+# Gerard Butler’s 125-Minute Crime Thriller Sequel Is Dominating Streaming Worldwide
+
+Movie News, Gerard Butler, Den of Thieves, Den of Thieves 2: Pantera, HBO Max
+
+Mon, 11 May 2026 01:01:14 GMT
+
+https://collider.com/gerard-butler-crime-thriller-sequel-den-of-thieves-2-pantera-streaming-success-hbo-max-may-2026/
+
+Gerard Butler's Den of Thieves 2: Pantera has found a new audience on streaming platforms, with the sequel making waves on HBO Max's global charts.
+---------
+
+# ‘Spider-Man’ Director’s First Horror Movie in Over a Decade Is a #1 Late-Night Favorite
+
+Movie News, Sam Raimi, Send Help, Rachel McAdams, Disney+
+
+Mon, 11 May 2026 00:45:14 GMT
+
+https://collider.com/sam-raimi-survival-horror-thriller-send-help-streaming-success-hulu-disney-plus-may-2026/
+
+Sam Raimi's return to horror with Send Help starring Rachel McAdams and Dylan O'Brien has topped global streaming charts.
+---------
+
+# Forget ‘Peaky Blinders,’ Netflix’s Addictive New Crime Thriller Is an Instant Global Hit
+
+TV News, Narcos, Peaky Blinders, Netflix, Legends
+
+Mon, 11 May 2026 00:30:13 GMT
+
+https://collider.com/netflix-peaky-blinders-replacement-crime-thriller-legends-streaming-success-may-2026/
+
+Netflix’s newest crime thriller is exploding worldwide by blending brutal cartel chaos with razor-sharp gangster drama.
+---------
+
+# 10 Best Albums of the 2000s, Ranked
+
+Music Features, Music, 2000s, Kanye West, Daft Punk
+
+Mon, 11 May 2026 00:21:14 GMT
+
+https://collider.com/best-2000s-albums-ranked/
+
+The 2000s was a decade with its fair share of iconic albums, including masterpieces like Daft Punk's Discovery and Funeral by Arcade Fire.
+---------
+
+# Taylor Sheridan’s Paramount+ Reign Has Officially Been Interrupted by CBS’ Biggest Crime Franchise
+
+TV News, CBS, NCIS, Marshals
+
+Mon, 11 May 2026 00:15:13 GMT
+
+https://collider.com/cbs-police-procedural-ncis-overtakes-taylor-sheridan-paramount-plus-may-2026/
+
+A longtime TV giant just crushed one of streaming’s biggest modern franchises in a chart battle nobody saw coming.
+---------
+
+# 10 Divisive TV Shows That Nobody Remembers Today
+
+TV, Degrassi High, Iron Fist, Tiger King, Dear White People
+
+Mon, 11 May 2026 00:02:14 GMT
+
+https://collider.com/forgotten-divisive-shows/
+
+Explore once-divisive and now-forgotten TV shows from past decades that caused uproar for their bold content, from Skins to Iron Fist.
+---------
+
+# Following Netflix's Reboot, Denzel Washington's Action Thriller Officially Makes a Comeback
+
+Movie News, Denzel Washington, Man on Fire, Action
+
+Mon, 11 May 2026 00:00:13 GMT
+
+https://collider.com/denzel-washington-action-thriller-man-on-fire-streaming-success-netflix-may-2026/
+
+A brutal revenge classic is climbing streaming charts again as a major reboot drags one forgotten action legend back into chaos.
+---------
+
+# 10 Major Box Office Flops No One Could Have Predicted
+
+Movie Lists, box office
+
+Mon, 11 May 2026 02:00:30 GMT
+
+https://movieweb.com/major-box-office-flops-no-one-predicted/
+
+From a 'Mad Max' prequel to 'Indiana Jones' and a sequel to a billion-dollar MCU film, how did these ten films bomb at the box office?
+---------
+
+# 16-Year-Old Nine-Part Action Thriller Series '24' Still Cannot Be Beat
+
+Features, 24
+
+Mon, 11 May 2026 00:15:18 GMT
+
+https://movieweb.com/24-greatest-action-thriller-series/
+
+FOX's '24' might have focused on counter-terrorism, but many of its elements still hold up today.
+---------
+
 # Marvel Officially Confirms a Major Hero Is Permanently Dead and Won't Return
 
 Comics, Spider-Man, Ultimate Marvel
