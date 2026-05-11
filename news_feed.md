@@ -1,3 +1,399 @@
+# Daredevil: Born Again Season 2’s Finale Sets Up A New Jessica Jones Series
+
+Superheroes, Jessica Jones, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe, Quiz CV
+
+Mon, 11 May 2026 20:10:20 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-new-jessica-jones-series-mcu-setup/
+
+After Daredevil: Born Again season 2, Krysten Ritter's Jessica Jones is coming back for more, and that could include a new MCU solo series.
+---------
+
+# DMV Season 2: Release Date, Story, & Everything We Know
+
+Network TV, DMV
+
+Mon, 11 May 2026 20:00:19 GMT
+
+https://screenrant.com/dmv-season-2-release-date-story-everything-we-know/
+
+CBS's workplace sitcom DMV follows the goofball employees at the eponymous, and groan-inducing, institution, so what's next for season 2?
+---------
+
+# Netflix's 3-Part 'The Hunger Games Meets Inception' Series Is One Of Its Best Fantasy Shows
+
+Classic TV, Masked Recs
+
+Mon, 11 May 2026 20:00:19 GMT
+
+https://screenrant.com/alice-in-borderland-netflix-show-hunger-games-meets-inception/
+
+Shows and movies about deadly games are a dime a dozen, but a dystopian fantasy masterpiece on Netflix makes the premise feel fresh again.
+---------
+
+# James Cameron's Ambitious New Movie Sets All-Time Career Rotten Tomatoes Record For Legendary Sci-Fi Director
+
+Movies, Masked Recs
+
+Mon, 11 May 2026 19:59:09 GMT
+
+https://screenrant.com/james-cameron-billie-eilish-hit-me-hard-and-soft-rotten-tomatoes-audience-record/
+
+James Cameron's new movie has now set a career record-high Rotten Tomatoes audience score, surpassing his legendary '80s sci-fi sequel.
+---------
+
+# 5 Best Darth Vader Moments In Disney Star Wars
+
+Movies, Star Wars
+
+Mon, 11 May 2026 19:55:19 GMT
+
+https://screenrant.com/disney-star-wars-darth-vader-best-moments/
+
+Darth Vader is one of the most iconic characters in all of Star Wars, and he's had a number of memorable moments since Disney took over.
+---------
+
+# Netflix Binge Guide (May 11–15): 6-Part Crime Thriller With Perfect RT Score Is Officially A Must-Watch
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 11 May 2026 19:42:19 GMT
+
+https://screenrant.com/netflix-shows-guide-watch-week-may-11/
+
+This week's Netflix binge guide is led by a 6-part crime thriller series with a perfect 100% Rotten Tomatoes score that is officially a must-watch.
+---------
+
+# 18 Years After The Force Unleashed, Star Wars Needs Sam Witwer More Than Ever
+
+Streaming TV, Star Wars, Star Wars: Maul - Shadow Lord, Sam Witwer, Star Wars: The Force Unleashed
+
+Mon, 11 May 2026 19:30:19 GMT
+
+https://screenrant.com/star-wars-sam-witwer-franchise-involvement-maul-future/
+
+Discover how Sam Witwer's performances in The Force Unleashed and Maul - Shadow Lord prove he could be the key to revitalizing the Star Wars franchise with his deep understanding of storytelling and the Force.
+---------
+
+# Why There Is No New The Rookie Tonight (April 30) & When Fresh Episodes Release
+
+Network TV, The Rookie
+
+Mon, 11 May 2026 19:30:19 GMT
+
+https://screenrant.com/the-rooki-no-new-episode-may-11-2026-season-9-release-date/
+
+The Rookie season 8, episode 18 left the story on a major cliffhanger, and unfortunately, fans will have to wait a long time for its resolution.
+---------
+
+# 10 Best Scary Movies On Netflix
+
+Movies, Horror
+
+Mon, 11 May 2026 19:20:19 GMT
+
+https://screenrant.com/best-scary-movies-netflix/
+
+Netflix is home to some of the best scary movies for horror fans wanting a new thing to stream, and these are ten of the best you can find there.
+---------
+
+# John Krasinski’s Jack Ryan Future After Ghost War Gets Encouraging Update
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan, John Krasinski
+
+Mon, 11 May 2026 19:05:56 GMT
+
+https://screenrant.com/john-krasinski-jack-ryan-future-ghost-war-update/
+
+EXCLUSIVE: Jack Ryan: Ghost War will be released May 20 on Prime Video, and star John Krasinski has revealed what the future holds for the franchise.
+---------
+
+# Mark Wahlberg's Action Thriller Shooter Dominates Streaming Charts
+
+Movies, Shooter, Thriller, Action
+
+Mon, 11 May 2026 20:00:13 GMT
+
+https://www.cbr.com/mark-wahlberg-shooter-action-thriller-streaming-success-may-2026/
+
+Mark Wahlberg's 2007 action thriller 'Shooter' is making a comeback, currently ranking as the No. 9 most-watched movie on Paramount+ in the US.
+---------
+
+# Marvel Fans Stunned After Mechagodzilla’s New Pilot Is Revealed
+
+Comics, Godzilla, Marvel Comics
+
+Mon, 11 May 2026 20:00:13 GMT
+
+https://www.cbr.com/godzilla-infinity-roar-4-mechagodzilla-pilot/
+
+Mechagodzilla just got a brand-new pilot, and he might just be the one Marvel villain capable of stopping the original kaiju's reign of terror.
+---------
+
+# Jason Statham’s The Mechanic is Officially Replacing James Bond
+
+Movies, The Mechanic
+
+Mon, 11 May 2026 20:00:13 GMT
+
+https://www.cbr.com/jason-statham-the-mechanic-perfect-james-bond-replacement/
+
+The James Bond void is becoming a difficult one to fill, but this Statham classic may just tide fans over before the latest 007 outing arrives.
+---------
+
+# Fantastic Four Writer Expected Doomed Reboot to Be 'Next Dark Knight'
+
+Movies, Fantastic Four
+
+Mon, 11 May 2026 19:54:57 GMT
+
+https://www.cbr.com/fantastic-four-2015-next-dark-knight/
+
+The reviled superhero movie was expected to turn the filmmakers into the "next Christopher Nolan" according to writer Jeremy Slater.
+---------
+
+# Ryan Coogler's The X-Files Reboot Adds Weapons Star Amy Madigan, Steve Buscemi & 7 Others
+
+TV, The X-Files
+
+Mon, 11 May 2026 19:54:37 GMT
+
+https://www.cbr.com/ryan-cooglers-the-x-files-reboot-amy-madigan-steve-buscemi-new-cast/
+
+Hulu has yet to officially pick up the series.
+---------
+
+# James Gunn's DC Studios Superman Series Officially Casts Superboy
+
+TV, My Adventures With Superman, HBO Max, Superman
+
+Mon, 11 May 2026 19:52:50 GMT
+
+https://www.cbr.com/my-adventures-with-superman-superboy-darren-criss/
+
+The Superman family is expanding.
+---------
+
+# Dutton Ranch's Biggest Change Since Its Original Pitch, According to Kelly Reilly and Cole Hauser
+
+CBR Exclusives, Dutton Ranch, Yellowstone, Paramount Plus
+
+Mon, 11 May 2026 19:51:43 GMT
+
+https://www.cbr.com/yellowstone-kelly-reilly-cole-hauser-reveal-biggest-dutton-ranch-change/
+
+Beth and Rip's big move wasn't always in the plan for the new Taylor Sheridan series, say Kelly Reilly and Cole Hauser.
+---------
+
+# Nintendo Hit WWE Star Cody Rhodes With Cease and Desist Over Zelda Boots
+
+Games, The Legend of Zelda, WWE, Nintendo
+
+Mon, 11 May 2026 19:45:13 GMT
+
+https://www.cbr.com/nintendo-wwe-cody-rhodes-zelda-boots-official-cease-and-desist/
+
+WWE superstar Cody Rhodes has revealed that he once received a cease-and-desist letter from Nintendo due to the Zelda symbol on his boots.
+---------
+
+# Blade Runner Officially Returns in 2027 With 2 Unmissable Releases
+
+TV, Sci-Fi, Blade Runner 2099
+
+Mon, 11 May 2026 19:29:56 GMT
+
+https://www.cbr.com/blade-runner-immersive-experience/
+
+Blade Runner is back in 2027.
+---------
+
+# Dragon Ball Super Finally Has a New Manga Update for Fans Waiting on Chapter 105
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Mon, 11 May 2026 19:17:52 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-chapter-105-update-toyotarou-cover-poll/
+
+Dragon Ball Super Chapter 105 could be coming sooner than fans thought, as the manga teases a big announcement from Toyotarou in the coming months.
+---------
+
+# Every Character Design in Netflix's 'Swapped,' Ranked
+
+Movie, Swapped, Netflix, Animation, Michael B. Jordan
+
+Mon, 11 May 2026 20:05:14 GMT
+
+https://collider.com/swapped-netflix-character-design-ranked/
+
+Netflix's newest animated hit, Swapped, boasts several wild designs for its animal and plant characters, with a few standing out for their creativity.
+---------
+
+# Prime Video's Most-Watched Sci-Fi Show Hits #1 Worldwide
+
+TV News, The Boys, Prime Video, Karl Urban, Antony Starr
+
+Mon, 11 May 2026 20:00:13 GMT
+
+https://collider.com/prime-video-top-sci-fi-show-the-boys-must-watch-tv-streaming-success-may-2026/
+
+Prime Video's #1 sci-fi show this week, The Boys, is officially must-watch TV following the polarizing ending to the latest episode.
+---------
+
+# 7 R-Rated Fantasy Movies That Changed the Genre Forever
+
+Movie, Fantasy, The Fall, Pan's Labyrinth, Conan the Barbarian
+
+Mon, 11 May 2026 19:41:13 GMT
+
+https://collider.com/r-rated-fantasy-movies-changed-the-genre-forever/
+
+Pan' Labyrinth, The Fall, and Excalibur are excellent, R-rated dark fantasy movies that left a permanent mark on the genre.
+---------
+
+# Every Season of HBO's 'The Comeback,' Ranked
+
+Movie, The Comeback, HBO, Lisa Kudrow, Comedy
+
+Mon, 11 May 2026 19:31:13 GMT
+
+https://collider.com/the-comeback-lisa-kudrow-hbo-seasons-ranked/
+
+The Comeback might just be HBO's most singular and forward-thinking comedy, and while its three seasons are all incredible, one is absolutely better.
+---------
+
+# 3 Near-Perfect Netflix Movies to Watch This Week
+
+Movie, Netflix, Bugonia, There's Something About Mary, Mrs. Harris Goes to Paris
+
+Mon, 11 May 2026 19:19:14 GMT
+
+https://collider.com/best-netflix-movies-watch-week-may-11/
+
+Mrs. Harris Goes to Paris, Bugonia, and There's Something About Mary make up our list of the best Netflix movies to watch the week of May 11, 2026.
+---------
+
+# ‘Westworld’ Remake Officially Sets ‘Jurassic Park’ Reunion With Major Update
+
+Movie News, David Koepp, Westworld, Michael Crichton
+
+Mon, 11 May 2026 19:06:30 GMT
+
+https://collider.com/western-fantasy-westworld-remake-writer-david-koepp-jurassic-park-reunion-michael-crichton/
+
+Warner Bros. upcoming remake of Michael Crichton’s Western fantasy, Westworld, has officially set a Jurassic Park reunion with a new update.
+---------
+
+# ‘The Sopranos’ Hid Its Darkest Tony Soprano Detail in Plain Sight the Whole Time
+
+TV Features, The Sopranos, James Gandolfini, HBO, HBO Max
+
+Mon, 11 May 2026 18:58:12 GMT
+
+https://collider.com/the-sopranos-gabagool-tony-soprano-childhood-trauma-meaning/
+
+Tony Soprano’s gabagool obsession in The Sopranos connects to his childhood trauma and his violent family legacy.
+---------
+
+# This 94% Netflix Crime Thriller Is the Best Catch-Up Watch Ahead of Its Long-Awaited Return
+
+TV Features, Money Heist, Netflix, Crime, Series
+
+Mon, 11 May 2026 18:56:12 GMT
+
+https://collider.com/money-heist-best-netflix-crime-thriller-catch-up-watch-return/
+
+Why Money Heist remains Netflix’s most addictive binge ahead of the franchise’s long-awaited return.
+---------
+
+# ‘The Rookie’ Spin-Off Officially Gets the Update Fans Have Been Waiting For
+
+TV News, The Rookie, Nathan Fillion, ABC, Hulu
+
+Mon, 11 May 2026 18:32:29 GMT
+
+https://collider.com/abc-crime-thriller-the-rookie-spin-off-officially-ordered-to-series-the-rookie-north-jay-ellis/
+
+ABC has officially ordered a full season of the spin-off of its best crime thriller series, The Rookie. Here’s what we know about The Rookie: North.
+---------
+
+# Daveed Diggs' Sweet Song Turns Sour in Tense Sneak Peek at New Romantic Drama [Exclusive]
+
+Exclusives, Magic Hour, Daveed Diggs, Susan Sullivan, Brad Garrett
+
+Mon, 11 May 2026 18:30:14 GMT
+
+https://collider.com/magic-hour-sneak-peek-daveed-diggs-katie-aselton-romantic-road-trip-drama/
+
+A new sneak peek at Katie Aselton's new film Magic Hour sees Daveed Diggs' singing give way to tense relationship drama. Check it out here!
+---------
+
+# 'Breaking Bad' Star Aaron Paul Cast in Prime Video's 'Fallout' Season 3
+
+TV News, Fallout, Aaron Paul, Breaking Bad
+
+Mon, 11 May 2026 20:09:52 GMT
+
+https://movieweb.com/fallout-season-3-aaron-paul/
+
+Season 3 of Prime Video's 'Fallout' will now include 'Breaking Bad' star Aaron Paul in an undisclosed role.
+---------
+
+# 12 Great Sci-Fi Books With Better World-Building Than 'Star Wars'
+
+Movie Lists, Star Wars
+
+Mon, 11 May 2026 20:00:18 GMT
+
+https://movieweb.com/sci-fi-books-better-world-building-star-wars/
+
+The 'Star Wars' franchise may have fantastic world-building, but these science-fiction books have better and more memorable settings.
+---------
+
+# Sebastian Stan Has Begun Training for 'The Batman - Part II'
+
+Movie News, The Batman Part II, Sebastian Stan
+
+Mon, 11 May 2026 19:25:56 GMT
+
+https://movieweb.com/sebastian-stan-transformation-batman-2/
+
+With filming on 'The Batman' sequel about to begin, Sebastian Stan is preparing to step into the role of one of DC's most famous villains, Two-Face.
+---------
+
+# Matt Damon & Ben Affleck Sued by Cops Over Their New Netflix Crime Thriller 'The Rip'
+
+Movie News, The Rip, Matt Damon, Ben Affleck
+
+Mon, 11 May 2026 19:20:48 GMT
+
+https://movieweb.com/the-rip-movie-netflix-miami-police-lawsuit/
+
+Two officers claim the movie didn't differentiate fact from fiction enough for their reputations.
+---------
+
+# Ryan Coogler's 'The X-Files' Reboot Adds 'Weapons' and 'Big Lebowski' Stars
+
+TV News, The X-Files, Sci-Fi
+
+Mon, 11 May 2026 18:47:41 GMT
+
+https://movieweb.com/the-x-files-reboot-adds-weapons-big-lebowski-stars/
+
+Ryan Coogler's 'The X-Files' reboot just added eight names to the cast, including a 'Weapons' Academy Award winner and 'Big Lebowski' star.
+---------
+
+# 'Greenland 2' Dethrones 'Wuthering Heights' as Most Popular Movie on HBO Max
+
+Movie News, Margot Robbie, Wuthering Heights, Hot on Streaming, Gerard Butler, Greenland 2: Migration
+
+Mon, 11 May 2026 18:30:19 GMT
+
+https://movieweb.com/greenland-2-beats-wuthering-heights-streaming-success-hbo-max-may-2026/
+
+After spending nearly two weeks at #1 in the United States, Margot Robbie's 'Wuthering Heights' has finally been dethroned by Gerard Butler.
+---------
+
 # Westworld Getting New Reboot After HBO's Premature Cancellation Of Hit Sci-Fi Series
 
 Movies, Westworld
