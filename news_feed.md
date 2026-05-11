@@ -1,3 +1,366 @@
+# Youngblood Is Back To Reclaim Its Throne As King Of The Modern Superhero Universe (Exclusive)
+
+Comics, image comics, Rob Liefeld
+
+Mon, 11 May 2026 21:46:14 GMT
+
+https://screenrant.com/youngblood-100-rob-liefeld-covers-spinoff/
+
+Forever young.
+---------
+
+# Hannah Waddingham's New Prime Video Action Comedy Series Ride Or Die Sets Premiere Date With First Images
+
+TV
+
+Mon, 11 May 2026 21:43:12 GMT
+
+https://screenrant.com/ride-or-die-prime-video-show-release-date-first-images/
+
+Ted Lasso season 4 isn't the show Hannah Waddingham has coming out this summer, as she also has a Prime Video action comedy series on the way.
+---------
+
+# The Rainmaker Season 2 Filming Gets Major Update From Returning Star
+
+TV, The Rainmaker
+
+Mon, 11 May 2026 21:40:35 GMT
+
+https://screenrant.com/the-rainmaker-season-2-filming-confirmed/
+
+It’s been seven months since The Rainmaker season 1 ended on USA, and now a cast member is revealing a major new update about the show’s future.
+---------
+
+# Why The Mandalorian & Grogu Is Star Wars’ First Movie In 7 Years Addressed By Jon Favreau
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Mon, 11 May 2026 21:26:35 GMT
+
+https://screenrant.com/mandalorian-and-grogu-first-star-wars-movie-7-years-jon-favreau-explained/
+
+After a seven-year hiatus for Star Wars movies, Jon Favreau addresses why The Mandalorian and Grogu brings the franchise back to theaters.
+---------
+
+# Tuner Is A Perfect Memorial Day Throwback
+
+Movies, Tuner
+
+Mon, 11 May 2026 21:20:20 GMT
+
+https://screenrant.com/tuner-movie-recomendation/
+
+If you're looking for a creative crime caper that delivers on a classic approach to the thriller genre, Tuner is a great pick for the holiday weekend.
+---------
+
+# 5 Biggest Worldwide Opening Weekend Box Office Movies Of 2026 (So Far)
+
+Movies, Box Office
+
+Mon, 11 May 2026 21:20:20 GMT
+
+https://screenrant.com/2026-movies-biggest-opening-weekend-box-office/
+
+2026 is already shaping up to be a blockbuster year at the box office, and these five films hold the record for the biggest opening weekends so far.
+---------
+
+# Former Superman Actor Officially Confirmed To Return As New DC Hero In The Man Of Steel's Next Appearance
+
+TV, Superman, My Adventures With Superman
+
+Mon, 11 May 2026 21:17:13 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-darren-criss-casting/
+
+A former Superman actor is returning as a new DC hero in the Man of Steel's upcoming appearance, which comes after his character's universe ended.
+---------
+
+# Apple TV's 5-Part Space Opera Almost Feels Like A Prequel To The Expanse
+
+Streaming TV, Masked Recs
+
+Mon, 11 May 2026 21:15:05 GMT
+
+https://screenrant.com/for-all-mankind-prequel-to-the-expanse/
+
+There are certain features of Apple TV’s 5-season ambitious space opera that make it feel very much like a prequel to Prime Video’s The Expanse.
+---------
+
+# Prime Video Binge Guide (May 11–15): A Star-Studded Fantasy Epic Finally Returns After 3 Years
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 11 May 2026 21:13:19 GMT
+
+https://screenrant.com/prime-video-shows-guide-watch-week-may-11/
+
+The top shows to watch on Prime Video this week, May 11–15, 2026, include a star-studded fantasy series that finally makes its return after 3 years.
+---------
+
+# Landman Season 3 Production Quietly Gets Disappointing New Update From Billy Bob Thornton
+
+TV, Landman
+
+Mon, 11 May 2026 21:07:57 GMT
+
+https://screenrant.com/landman-season-3-filming-start-august-billy-bob-thornton/
+
+Landman season 3 production quietly receives a disappointing new update from Billy Bob Thornton after the season 2 finale aired in January 2026.
+---------
+
+# 10 Greatest Hard Sci-Fi Movies of the 21st Century, Ranked
+
+Movies, Sci-Fi
+
+Mon, 11 May 2026 21:30:12 GMT
+
+https://www.cbr.com/greatest-hard-sci-fi-movies-21st-century-list/
+
+The sci-fi genre has a wide range of media for all fans, but some of the best hard sci-fi films of all time came out in the 21st Century.
+---------
+
+# The Last of Us Fans Still Aren’t Over Its Saddest Standalone Episode
+
+TV, The Last of Us, HBO Max, Horror
+
+Mon, 11 May 2026 21:30:12 GMT
+
+https://www.cbr.com/the-last-of-us-long-long-time-fans-saddest-standalone-episode/
+
+The Last of Us' saddest episode left a mark on audiences that makes it one of the most emotional 75-minutes of television in recent memory.
+---------
+
+# 7 Flawless Sega Genesis Games Nobody Talks About
+
+Games, Sega Genesis, sega
+
+Mon, 11 May 2026 21:15:20 GMT
+
+https://www.cbr.com/flawless-sega-genesis-games-everyone-forgot/
+
+Almost no one ever talks about classic Sega Genesis games like Elemental Master and Decap Attack.
+---------
+
+# 5 Forgotten Netflix Action Movies That Are Perfect From Start to Finish
+
+Movies, Action
+
+Mon, 11 May 2026 21:00:12 GMT
+
+https://www.cbr.com/perfect-netflix-action-movies-no-one-remembers-list/
+
+The action genre is full of movies that range from terrible to spectacular, but some perfect Netflix movies have already been forgotten.
+---------
+
+# Netflix Hit With New Legal Drama by Republican Texas Attorney General for 'Spying' on Users
+
+TV, Netflix
+
+Mon, 11 May 2026 20:50:46 GMT
+
+https://www.cbr.com/netflix-lawsuit-republican-texas-attorney-general/
+
+Not long after it lost a case about its frequent price hikes, Netflix was hit with a new lawsuit.
+---------
+
+# 8 Reasons Why Pirates of the Caribbean Doesn't Hold Up Today
+
+Movies, Pirates of the Caribbean
+
+Mon, 11 May 2026 20:30:12 GMT
+
+https://www.cbr.com/reasons-pirates-of-the-caribbean-hard-to-watch-today-list/
+
+The legacy action-adventure franchise relies heavily on nostalgia, turning a rewatch into a cringeworthy event.
+---------
+
+# 10 Best Anime for Beginners to Watch on Crunchyroll
+
+Anime, Crunchyroll
+
+Mon, 11 May 2026 20:19:25 GMT
+
+https://www.cbr.com/crunchyroll-best-beginner-anime-animay-2026/
+
+According to Crunchyroll, these easy-to-watch anime are the best way to introduce new fans to the medium.
+---------
+
+# Romance Anime That Older Fans Refuse to Watch
+
+Anime, Vampire Knight, School Days
+
+Mon, 11 May 2026 20:16:13 GMT
+
+https://www.cbr.com/romance-anime-older-fans-refuse-to-watch/
+
+A few once-beloved love stories become harder to connect with as audiences grow older.
+---------
+
+# 10 Most Powerful 'Daredevil: Born Again' Characters, Ranked by Strength
+
+TV, Daredevil: Born Again, MCU, Daredevil, Marvel
+
+Mon, 11 May 2026 21:36:13 GMT
+
+https://collider.com/daredevil-born-again-most-powerful-characters-strength-ranked/
+
+From Krysten Ritter's Jessica Jones to Jon Bernthal's Frank Castle, which Daredevil: Born Again character is the most powerful, based on strength?
+---------
+
+# 8 Years Later, Netflix's Controversial Best Picture Winner Is a Streaming Hit
+
+Movie Features, Green Book, Peter Farrelly, Viggo Mortensen, Mahershala Ali
+
+Mon, 11 May 2026 21:31:13 GMT
+
+https://collider.com/green-book-best-picture-controversy-netflix-may-2026-streaming-success/
+
+The 2018 film Green Book, starring Viggo Mortensen and Mahershala Ali, won Best Picture and immediately faced backlash for its many problems.
+---------
+
+# Lord of the Rings Director's New Film Collapses at the Box Office With $310 Per Theater
+
+Movie News, Animal Farm, Andy Serkis, The Lord of the Rings, Box Office
+
+Mon, 11 May 2026 21:30:13 GMT
+
+https://collider.com/animal-farm-lord-of-the-rings-director-andy-serkis-movie-box-office-disaster-5-million/
+
+Andy Serkis' long-in-development animated film, Animal Farm, has tanked at the box office. Find out how much it has grossed so far.
+---------
+
+# 32 Years Later, James Cameron's Hardcore Action Movie Is Still One of the Best Ever Made
+
+Movie Features, True Lies, James Cameron, Arnold Scharzenegger, Jamie Lee Curtis
+
+Mon, 11 May 2026 21:09:12 GMT
+
+https://collider.com/james-cameron-best-action-movie-ever-made-true-lies-arnold-schwarzenegger/
+
+James Cameron re-teamed with Arnold Schwarzenegger for one of the most bonkers spy movies of the '90s in True Lies.
+---------
+
+# Cillian Murphy’s Long-Awaited Horror Sequel Officially Begins Production With First-Look Image
+
+Movie News, A Quiet Place Part III, Cillian Murphy, John Krasinski, Emily Blunt
+
+Mon, 11 May 2026 21:00:12 GMT
+
+https://collider.com/a-quiet-place-part-3-behind-the-scenes-image-john-krasinski-emily-blunt-cillian-murphy/
+
+The horror sequel six years in the making, A Quiet Place Part III, finally gets a first-look image from behind-the-scenes from John Krasinski.
+---------
+
+# 10 Best Playing-Against-Type Performances in Movie History, Ranked
+
+Movie, The Dark Knight, Green Room, Once Upon a Time in the West, Insomnia
+
+Mon, 11 May 2026 20:48:12 GMT
+
+https://collider.com/best-playing-against-type-movie-performances-ranked/
+
+Some of the best performances that saw actors playing against type include Heath Ledger in The Dark Knight and Patrick Stewart in Green Room.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Week
+
+TV, Netflix, Veronica Mars, Long Story Short, Legends
+
+Mon, 11 May 2026 20:47:15 GMT
+
+https://collider.com/netflix-shows-binge-may-11/
+
+Legends, Veronica Mars, and Long Story Short make up our list of the best Netflix shows to watch the week of May 11, 2026.
+---------
+
+# 5 Years Later, This Brutal Video Game Reboot Is Taking Over Streaming All Over Again
+
+Movie News, Mortal Kombat, HBO Max, Action
+
+Mon, 11 May 2026 20:30:12 GMT
+
+https://collider.com/video-game-reboot-movie-mortal-kombat-streaming-success-sequel-release-may-2026/
+
+Mortal Kombat, the brutal video game film adaptation, sees a streaming comeback following the release of its sequel, Mortal Kombat II.
+---------
+
+# Hulu's 3-Part Historical Comedy Is So Good, You'll Wish You Found It Sooner
+
+TV Features, The Great, Elle Fanning, Nicholas Hoult, Tony McNamara
+
+Mon, 11 May 2026 20:24:12 GMT
+
+https://collider.com/hulu-the-great-elle-fanning-historical-comedy/
+
+The Great is a brilliant reimagining of Catherine the Great with striking production design and Elle Fanning's standout performance.
+---------
+
+# 'The Punisher: One Last Kill' Runtime Reportedly Revealed Before Disney+ Debut
+
+TV News, The Punisher: One Last Kill, Disney+
+
+Mon, 11 May 2026 21:19:10 GMT
+
+https://movieweb.com/the-punisher-one-last-kill-runtime-disney-plus/
+
+A new social media post has reportedly revealed the runtime for Marvel Television's 'The Punisher: One Last Kill' on Disney+.
+---------
+
+# 'Mortal Kombat II' Writer Jeremy Slater Says He's Currently Writing Third Movie
+
+Movie News, Mortal Kombat II, Jeremy Slater
+
+Mon, 11 May 2026 21:01:22 GMT
+
+https://movieweb.com/mortal-kombat-3-plans-jeremy-slater/
+
+'Mortal Kombat II' writer Jeremy Slater reveals that a third movie has not officially been greenlit, but he has finished a new draft of the script.
+---------
+
+# 'The Terror: Devil in Silver' Takes Over Streaming Following Season 3 Premiere
+
+TV News, The Terror, Hot on Streaming, Ridley Scott, Horror
+
+Mon, 11 May 2026 21:00:18 GMT
+
+https://movieweb.com/the-terror-devil-in-silver-ridley-scott-streaming-hit-amc-may-2026/
+
+After a seven-year hiatus, 'The Terror' is finally back with a new installment titled 'Devil in Silver,' and it's already a streaming hit.
+---------
+
+# HBO’s Sci-Fi ‘Westworld’ Missed Its Chance With One of the Greatest TV Casts
+
+Features, Westworld
+
+Mon, 11 May 2026 21:00:18 GMT
+
+https://movieweb.com/westworld-hbo-sci-fi-great-cast/
+
+'Westworld,' the HBO sci-fi series, had a talented cast including Jeffrey Wright, James Marsden, Thandiwe Newton, and Evan Rachel Wood.
+---------
+
+# Netflix Confirms 'Money Heist' Expansion With New Teaser
+
+TV News, Money Heist, Berlin, Netflix
+
+Mon, 11 May 2026 20:48:08 GMT
+
+https://movieweb.com/netflix-money-heist-expansion-teaser/
+
+An unexpected announcement from the streaming platform promises more 'La Casa de Papel.'
+---------
+
+# New 'Westworld' Film in the Works From 'Jurassic Park' Screenwriter
+
+Movie News, Westworld, David Koepp
+
+Mon, 11 May 2026 20:23:47 GMT
+
+https://movieweb.com/westworld-reboot-movie-david-koepp/
+
+David Koepp is adapting the movie written and directed by Michael Crichton.
+---------
+
 # Daredevil: Born Again Season 2’s Finale Sets Up A New Jessica Jones Series
 
 Superheroes, Jessica Jones, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe, Quiz CV
