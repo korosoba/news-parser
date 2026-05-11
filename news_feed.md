@@ -1,3 +1,399 @@
+# Westworld Getting New Reboot After HBO's Premature Cancellation Of Hit Sci-Fi Series
+
+Movies, Westworld
+
+Mon, 11 May 2026 18:14:40 GMT
+
+https://screenrant.com/westworld-movie-reboot-warner-bros-david-koepp/
+
+Westworld is finally returning.
+---------
+
+# Reacher Season 5's Fate Officially Decided By Prime Video
+
+TV, Reacher
+
+Mon, 11 May 2026 18:09:57 GMT
+
+https://screenrant.com/reacher-season-5-renewed-prime-video/
+
+Reacher season 5's fate has officially been decided by Prime Video ahead of season 4's premiere later this year.
+---------
+
+# Crunchyroll Just Quietly Removed The Best Sci-Fi Anime Of The Last 10 Years
+
+Anime, Crunchyroll
+
+Mon, 11 May 2026 18:05:30 GMT
+
+https://screenrant.com/crunchyroll-best-sci-fi-anime-decade-86-removed/
+
+Crunchyroll has quietly removed the critically acclaimed sci-fi series 86: EIGHTY-SIX from its platform, leaving fans searching for answers.
+---------
+
+# It Took Decades Of One Piece But Zoro Finally Gave Sanji The Respect He Deserves
+
+Anime, One Piece
+
+Mon, 11 May 2026 18:00:20 GMT
+
+https://screenrant.com/one-piece-elbaph-zoro-sanji-respect/
+
+As things go from bad to worse on Elbaph, Zoro and Sanji share an unexpected moment before the Straw Hat crew faces their greatest challenge yet.
+---------
+
+# Netflix's 3-Part 'Lost Meets The Walking Dead' Series Is One Of Its Best Supernatural Shows
+
+Classic TV, Glitch
+
+Mon, 11 May 2026 18:00:20 GMT
+
+https://screenrant.com/glitch-netflix-supernatural-show-walking-dead-meets-lost/
+
+There is a three-season supernatural drama available on Netflix that is part-The Walking Dead, part-Lost, and worth the 18-episode investment.
+---------
+
+# Netflix's 8-Part 'Dark Meets True Detective' Is One Of Its Best Sci-Fi Shows
+
+Classic TV, Masked Recs, Netflix
+
+Mon, 11 May 2026 17:35:21 GMT
+
+https://screenrant.com/bodies-netflix-dark-meets-true-detective-sci-fi-show/
+
+The same human corpse is discovered four times, in the same place, at four different points throughout history in Netflix's twisty sci-fi series.
+---------
+
+# On Brand With Jimmy Fallon Canceled By NBC After Just One Season
+
+TV, Jimmy Fallon
+
+Mon, 11 May 2026 17:34:00 GMT
+
+https://screenrant.com/on-brand-with-jimmy-fallon-canceled-nbc/
+
+Jimmy Fallon's new eight-part NBC series has officially been canceled after only one season, over six months since the last episode aired.
+---------
+
+# Liam Neeson Sets "Great Gatsy-esque" Role In New Fantasy Movie The Splendid Thing
+
+Movies, Liam Neeson
+
+Mon, 11 May 2026 17:13:37 GMT
+
+https://screenrant.com/liam-neeson-the-splendid-thing-casting/
+
+Liam Neeson is making his first fantasy movie in ten years as he joins the cast of a new project co-written and directed by Matthew Modine.
+---------
+
+# The Rookie: North Spinoff Series' Fate Finally Confirmed By ABC After Pilot
+
+TV, The Rookie
+
+Mon, 11 May 2026 17:09:13 GMT
+
+https://screenrant.com/the-rookie-north-pilot-order-confirmed/
+
+After months of waiting, ABC has officially made a decision about Alexi Hawley's franchise expansion of Nathan Fillion's hit crime thriller series.
+---------
+
+# After 57 Years, Batgirl’s Most Radical Costume Redesign Finally Arrives
+
+Comics, Batgirl
+
+Mon, 11 May 2026 17:06:06 GMT
+
+https://screenrant.com/after-57-years-batgirls-most-radical-costume-redesign-finally-arrives/
+
+The Batgirl and Oracle eras looked very different, but neither compares to Barbara Gordon’s newest overhaul, her most radical redesign yet.
+---------
+
+# Reacher's Future Confirmed By Prime Video After 4 Seasons
+
+TV, Reacher, Prime Video, Crime
+
+Mon, 11 May 2026 18:04:56 GMT
+
+https://www.cbr.com/reacher-season-5-renewed-prime-video/
+
+Prime Video has revealed its plans for Reacher.
+---------
+
+# Amy Poehler's Parks & Rec Replacement Officially Sets Release Window
+
+TV, Dig, Parks and Recreation
+
+Mon, 11 May 2026 18:01:55 GMT
+
+https://www.cbr.com/amy-poehler-dig-peacock-release-window/
+
+11 years after Parks & Rec ended, Amy Poehler has a new replacement.
+---------
+
+# Netflix's Lord of the Flies Explores Themes Similar to Lost
+
+TV, Netflix, Lost, Lord of the Flies
+
+Mon, 11 May 2026 18:00:12 GMT
+
+https://www.cbr.com/netflix-lord-of-the-flies-perfect-for-lost-fans/
+
+Netflix has a new, nightmarish miniseries about island survival, making it the perfect binge for Lost fans.
+---------
+
+# The Marvel Horror Storyline That Nearly Ruined an Entire Franchise
+
+Comics, Marvel
+
+Mon, 11 May 2026 18:00:12 GMT
+
+https://www.cbr.com/marvel-ultimatum-almost-ruin-marvel-forever/
+
+It was a huge risk for Marvel to go down this path and unfortunately for this series, it did not pay off.
+---------
+
+# Marvel Reveals Dark New Direction for Spider-Man, X-Men, and Fantastic Four
+
+Comics, Marvel
+
+Mon, 11 May 2026 17:54:52 GMT
+
+https://www.cbr.com/marvel-comics-midnight-release-confirmed/
+
+Marvel Comics is bracing for its most disturbing era yet.
+---------
+
+# Peacock's Friday the 13th Prequel Series Officially Sets Fall Release Date (But Misses 1 Big Opportunity)
+
+Movies, Crystal Lake, Friday the 13th
+
+Mon, 11 May 2026 17:48:55 GMT
+
+https://www.cbr.com/friday-the-13th-crystal-lake-peacock-release-date/
+
+Jason Voorhees finally gets resurrected after 17 years.
+---------
+
+# The Devil Wears Prada 2 Officially Leaves the Door Open for a Third Movie
+
+Movies, The Devil Wears Prada 2, The Devil Wears Prada, Comedy
+
+Mon, 11 May 2026 17:30:13 GMT
+
+https://www.cbr.com/the-devil-wears-prada-2-storyline-third-movie/
+
+The Devil Wears Prada 2 explores Andy writing about Miranda, a nod to Lauren Weisberger's book about Anna Wintour, leaving the door open for 3rd film.
+---------
+
+# 8 Greatest Western Shows of the 21st Century
+
+TV, Western, Deadwood, 1883
+
+Mon, 11 May 2026 17:30:13 GMT
+
+https://www.cbr.com/best-21st-century-western-tv-series-list/
+
+As great as neo-Westerns may be, it's always worth reminding audiences that the 21st century has produced some great traditional Western shows too.
+---------
+
+# Iconic Jobs Final Fantasy 14 Needs To Add
+
+Games, Final Fantasy, final fantasy xiv, RPG, Video Games
+
+Mon, 11 May 2026 17:16:12 GMT
+
+https://www.cbr.com/final-fantasy-14-jobs-fans-want/
+
+Final Fantasy 14 is adding even more jobs in its latest expansion, but there are some classes from throughout the series that need to be included.
+---------
+
+# CBS' 7-Part Sherlock Holmes Crime Series Returns as a Global Digital Hit 7 Years Later
+
+TV, Elementary
+
+Mon, 11 May 2026 17:00:13 GMT
+
+https://www.cbr.com/cbs-sherlock-holmes-crime-series-elementary-global-pvod-success-may-2026/
+
+One of the most critically acclaimed Sherlock Holmes adaptations of an entire generation is making major waves on the streaming charts.
+---------
+
+# Prime Video's 'Reacher' Gets Shocking Renewal Update Ahead of Alan Ritchson's Season 4 Return
+
+TV News, Reacher, Prime Video, Alan Ritchson, Action
+
+Mon, 11 May 2026 18:10:09 GMT
+
+https://collider.com/reacher-season-5-renewed-prime-video-alan-ritchson/
+
+Prime Video officially decides the fate of Alan Ritchson's Reacher series months ahead of the Season 4 premiere.
+---------
+
+# Apple TV’s Mind-Bending Sci-Fi Hit Gets Bonkers First Look Ahead of Summer Release [Exclusive]
+
+TV News, Dark Matter, Sci-Fi, Apple TV, Collider Exclusive Preview
+
+Mon, 11 May 2026 18:00:13 GMT
+
+https://collider.com/dark-matter-season-2-apple-tv-joel-edgerton-jennifer-connelly-first-look-image/
+
+Get an exclusive first look at Season 2 of Apple TV's 10/10 Sci-Fi masterpiece Dark Matter, featuring Joel Edgerton and Jennifer Connelly.
+---------
+
+# Netflix’s Divisive 7-Part Sci-Fi Series Is Still One of Its Worst Ever Made
+
+TV Features, The I-Land, Netflix, Natalie Martinez, Kate Bosworth
+
+Mon, 11 May 2026 17:48:13 GMT
+
+https://collider.com/netflix-worst-show-ever-sci-fi-series-the-i-land/
+
+Back in 2019, Netflix released one if its worst shows to date in The I-land, a sci-fi series that completely missed the mark.
+---------
+
+# 10 Greatest Opening Scenes in International Horror Movies, Ranked
+
+Movie, 28 Weeks Later, Train to Busan, Wolf Creek 2, The Untamed
+
+Mon, 11 May 2026 17:14:13 GMT
+
+https://collider.com/best-opening-scenes-in-international-horror-movies-ranked/
+
+Foreign horror movies like 28 Weeks Later, Train to Busan, and The Vanishing have some of the best opening scenes in the genre's history.
+---------
+
+# The 20 Most Iconic Masked Killers in Horror Movies, Ranked
+
+Movie, Horror, Friday the 13th, Halloween, Scream
+
+Mon, 11 May 2026 17:12:13 GMT
+
+https://collider.com/horror-movies-masked-killers-characters-ranked/
+
+Believe it or not, there are relatively few horror movie killers that wear masks. Who are the most iconic ones?
+---------
+
+# The Biggest Horror Villain of 2025 Just Joined Ryan Coogler's 'X-Files' Reboot
+
+TV News, The X-Files, Steve Buscemi, Amy Madigan, Ben Foster
+
+Mon, 11 May 2026 17:11:25 GMT
+
+https://collider.com/x-files-reboot-cast-amy-madigan-steve-buscemi-ryan-coogler/
+
+Ryan Coogler's X-Files reboot has officially added several new stars, including Oscar-winning Weapons and Fargo actors.
+---------
+
+# Prime Video's Sci-Fi Hit Officially Sets ‘Westworld’ Reunion With New Season 3 Cast
+
+TV News, Fallout, Prime Video, Aaron Paul, Sci-Fi
+
+Mon, 11 May 2026 17:10:00 GMT
+
+https://collider.com/fallout-season-3-cast-aaron-paul-prime-video-game-adaptation/
+
+Prime Video’s biggest video game adaptation, Fallout, has officially added Breaking Bad star Aaron Paul to the cast for Season 3.
+---------
+
+# 3-Part Superman Series Officially Confirms Cast for Beloved DC Hero Ahead of Summer Release [Exclusive]
+
+TV News, My Adventures With Superman, Darren Criss, Jack Quaid, Collider Exclusive Preview
+
+Mon, 11 May 2026 17:00:14 GMT
+
+https://collider.com/my-adventures-with-superman-season-3-first-look-superboy-connor-kent-darren-criss/
+
+My Adventures With Superman Season 3 adds a DC Alum and Glee star to the hit Adult Swim series as Superboy, aka Connor Kent. See the first look here!
+---------
+
+# 'Reacher' Officially Renewed for Season 5 by Prime Video
+
+TV News, Reacher
+
+Mon, 11 May 2026 18:13:50 GMT
+
+https://movieweb.com/prime-video-reacher-season-5-confirmed/
+
+Alan Ritchson is offically back for more 'Reacher.'
+---------
+
+# ‘In the Grey’: Henry Cavill & Guy Ritchie Could End Their Action Thriller Bomb Streak
+
+Features, In the Grey, Upcoming Tease
+
+Mon, 11 May 2026 18:00:17 GMT
+
+https://movieweb.com/in-the-grey-henry-cavill-guy-ritchie/
+
+'In the Grey,' the action thriller directed by Guy Ritchie and starring Henry Cavill and Jake Gyllenhaal, will be released on May 15, 2026.
+---------
+
+# 'Good Omens 3' Review: This Troubled Neil Gaiman Series Deserved a Better Send-Off
+
+TV Reviews, Good Omens
+
+Mon, 11 May 2026 17:30:15 GMT
+
+https://movieweb.com/good-omens-season-3-review/
+
+David Tennant and Michael Sheen carry the 'Good Omens' finale on their backs.
+---------
+
+# ‘Blood of Zeus’: A Netflix Fantasy Masterpiece That Tells a Complete Story
+
+Features, Fantasy, Blood of Zeus, Netflix
+
+Mon, 11 May 2026 17:00:19 GMT
+
+https://movieweb.com/blood-of-zeus-netflix-fantasy-binge/
+
+Unlike many other fantasy TV shows, 'Blood of Zeus' was never canceled, and the Netflix series features Jessica Henwick and Derek Phillips.
+---------
+
+# Why 'The Mentalist' Was Canceled After Season 7, Explained
+
+Features, The Mentalist
+
+Mon, 11 May 2026 17:00:19 GMT
+
+https://movieweb.com/the-mentalist-canceled-explained/
+
+'The Mentalist' aired for seven seasons, but its cancellation seemed abrupt to fans. Here's what happened to 'The Mentalist'.
+---------
+
+# 4 New 'Fast & Furious; TV Streaming Spin-Offs Announced by Vin Diesel
+
+TV News, Fast and Furious, Vin Diesel
+
+Mon, 11 May 2026 16:52:52 GMT
+
+https://movieweb.com/fast-furious-spin-offs-peacock/
+
+Ahead of the release of the final film, 'Fast Forever,' Peacock is developing at least one series set within the 'Fast & Furious' universe.
+---------
+
+# DC Studios To Debut Batman 'Knightfall' Movie & More Animated Projects Next Month
+
+Movie News, Batman, DCU, Animation
+
+Mon, 11 May 2026 16:51:13 GMT
+
+https://movieweb.com/dc-studios-batman-knightfall-animated/
+
+DC Studios and WB Animation are showcasing their upcoming animated titles, including 'Knightfall,' at The Annecy International Animation Film Fest.
+---------
+
+# Netflix Releases First Trailer for New Kevin Hart Movie, '72 Hours'
+
+Movie News, Kevin Hart, Netflix
+
+Mon, 11 May 2026 16:47:36 GMT
+
+https://movieweb.com/72-hours-netflix-kevin-hart-trailer/
+
+Netflix officially released the first trailer for a new movie titled '72 Hours,' starring Kevin Hart and set for release in July 2026.
+---------
+
 # Solo Leveling Just Stealth Dropped 2 Official New Manhwa Chapters
 
 Anime, Solo Leveling, Solo Leveling:ARISE
