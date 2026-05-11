@@ -1,3 +1,223 @@
+# Netflix's Best Crime Thriller Series Rewrites The Rules Of The Genre In New Episodes
+
+TV, Masked Recs
+
+Mon, 11 May 2026 23:33:17 GMT
+
+https://screenrant.com/the-chestnut-man-netflix-crime-thriller-series-rules-rewrite/
+
+Netflix's best crime thriller series has returned with new episodes, and the gritty show rewrites the genre's rules with a bloody reveal.
+---------
+
+# Scarlett Johansson’s First TV Show Is Prime Video’s Answer To The Most-Watched Netflix Series Of 2026
+
+Streaming TV, Masked Recs
+
+Mon, 11 May 2026 23:30:19 GMT
+
+https://screenrant.com/just-cause-scarlett-johansson-first-tv-show-prime-video-his-and-hers/
+
+Scarlett Johansson is one of the foremost movie stars of her generation, but she's never worked in TV until this Prime Video crime thriller remake.
+---------
+
+# Idris Elba's 6-Part Detective Thriller Is Aging Like Fine Wine
+
+Classic TV, Masked Recs
+
+Mon, 11 May 2026 23:15:22 GMT
+
+https://screenrant.com/idris-elba-luther-series-aging-well/
+
+16 years ago, the iconic Idris Elba starred in an impeccable detective thriller that is as good today as it was the year it premiered on BBC One.
+---------
+
+# After 55 Years, DC Permanently Ends Iconic Batman Villain’s Legacy With Shocking Death
+
+Comics, Batman
+
+Mon, 11 May 2026 23:00:20 GMT
+
+https://screenrant.com/absolute-superman-villain-permanent-death-batman/
+
+One of the most iconic Batman villains of all time has finally met his end after 55 years, a shocking development given his recent reinvention.
+---------
+
+# War Of The Worlds Meets Indiana Jones In Steven Spielberg's 5-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Mon, 11 May 2026 23:00:20 GMT
+
+https://screenrant.com/falling-skies-spielberg-war-of-the-worlds-meets-indiana-jones/
+
+Spielberg's fingerprints are all over this hidden 2010s sci-fi gem which blends alien invasions with academic-turned-action-hero energy.
+---------
+
+# PlayStation Plus Drops Massive Bonus Freebie For May
+
+Gaming, PlayStation Plus, PlayStation
+
+Mon, 11 May 2026 23:00:20 GMT
+
+https://screenrant.com/playstation-plus-may-2026-bonus-free-download/
+
+PlayStation Plus members get access to a massive new freebie this month, which is a cool bonus on top of the usual batch of free games for May.
+---------
+
+# 5 Most Important Star Wars Movies And Shows To Watch Before The Mandalorian & Grogu
+
+Star Wars, The Mandalorian and Grogu
+
+Mon, 11 May 2026 23:00:20 GMT
+
+https://screenrant.com/star-wars-movies-shows-watch-mandalorian-and-grogu/
+
+Whether it's for story or broader influence on The Mandalorian and Grogu, these are the Star Wars stories you should watch before the new movie.
+---------
+
+# Sailor Moon Ocean Bomb Reveals New Sailor Jupiter Melon Can Design
+
+Anime, Sailor Moon, Sailor Moon Crystal, merchandise, drinks
+
+Mon, 11 May 2026 23:02:33 GMT
+
+https://www.cbr.com/sailor-moon-ocean-bomb-sailor-jupiter-new-release/
+
+One of anime's most iconic magical girls has officially debuted her newest look.
+---------
+
+# Terrifier Star Must Choose 'Man or Bear' in New Survival Thriller
+
+Movies, Horror, Thriller
+
+Mon, 11 May 2026 23:02:17 GMT
+
+https://www.cbr.com/lauren-lavera-man-or-bear-survival-thriller/
+
+Scream queen Lauren LaVera must make the viral choice in a new survival thriller movie.
+---------
+
+# Stephen King's Dark Tower TV Series Will Rival Game of Thrones
+
+TV, Stephen King, The Dark Tower, Fantasy
+
+Mon, 11 May 2026 23:00:13 GMT
+
+https://www.cbr.com/stephen-king-the-dark-tower-tv-show-rival-game-of-thrones/
+
+Mike Flanagan is adapting Stephen King's most immersive universe, and it could be streaming's next big fantasy hit.
+---------
+
+# 8 Forgotten Police Movies You'll Wish You Watched Sooner
+
+Movies, Thriller, Crime, Cop Land
+
+Mon, 11 May 2026 23:00:13 GMT
+
+https://www.cbr.com/greatest-police-movies-no-one-remembers-list/
+
+Police drama and thriller movies have served as some of Hollywood's strongest stories but these films prove some forgotten ones deserve a second look.
+---------
+
+# Netflix's Biggest New Release Skyrockets to Nearly 80 Million Views in 2 Weeks
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Mon, 11 May 2026 23:30:13 GMT
+
+https://collider.com/netflix-blockbuster-apex-charlize-theron-taron-egerton-80-million-views-streaming-success-may-2026/
+
+Netflix's new blockbuster film Apex, starring Charlize Theron and Taron Egerton, has accumulated nearly 80 million views since its release.
+---------
+
+# Apple TV’s Best Sci-Fi Series Is Quietly Becoming a Streaming Hit Again
+
+TV News, For All Mankind, Star City, Sci-Fi, Apple TV
+
+Mon, 11 May 2026 23:18:51 GMT
+
+https://collider.com/for-all-mankind-streaming-success-apple-tv-may-2026/
+
+Apple TV's best sci-fi series is officially back on streaming charts as anticipation builds for the spin-off series' release.
+---------
+
+# Time Travel Fantasy Romance Ends Series Run With Complete Streaming Domination
+
+TV News, Outlander, Outlander: Blood of My Blood, Fantasy, Starz
+
+Mon, 11 May 2026 23:18:46 GMT
+
+https://collider.com/outlander-final-season-streaming-success-starz-may-2026/
+
+The final season of the hight time travel romance series Outlander is ending on a high note as it claims global streaming dominance.
+---------
+
+# 10 Most Perfect Comedy-Drama Shows of the Last 5 Years, Ranked
+
+TV, Drama, Comedy, The Bear, Shrinking
+
+Mon, 11 May 2026 23:14:14 GMT
+
+https://collider.com/most-perfect-comedy-drama-shows-last-5-years-ranked/
+
+HBO Max's Hacks, Apple TV's Shrinking, and Hulu's The Bear are among the best comedy-drama shows of the last 5 years, but which one is the greatest?
+---------
+
+# This Insane '80s Horror Movie Delivers the Wildest Killer Doll Chaos Ever Put on Screen
+
+Horror, Attack of the Beast Creatures, Trilogy of Terror, Gremlins, Demonic Toys
+
+Mon, 11 May 2026 23:08:13 GMT
+
+https://collider.com/attack-of-the-beast-creatures-1985-killer-dolls-horror-movie/
+
+Attack of the Beast Creatures is a bizarre 1985 horror movie where tiny killer dolls terrorize shipwreck survivors on a deadly island.
+---------
+
+# Decadent 5-Part Historical Series Proves It's One of Starz’s Best Shows Despite Review-Bombing
+
+TV News, Amadeus, Will Sharpe, Paul Bettany, STARZ
+
+Mon, 11 May 2026 23:01:13 GMT
+
+https://collider.com/5-part-historical-epic-starz-amadeus-will-sharpe-paul-bettany-streaming-success-may-2026/
+
+Amadeus, a quirky period drama about a fictionalized heated rivalry, has landed on Starz after airing in the United Kingdom late last year.
+---------
+
+# Prime Video’s 10-Part Drama Is a Series You Won’t Be Able To Stop Watching
+
+TV Features, Daisy Jones & The Six, Riley Keough, Sam Claflin, Prime Video
+
+Mon, 11 May 2026 22:52:13 GMT
+
+https://collider.com/daisy-jones-and-the-six-prime-video-drama-series/
+
+The tumultuous journey of Daisy Jones & The Six follows a legendary fictional rock band based on a bestselling novel inspired by Fleetwood Mac.
+---------
+
+# Chris Pratt's Action Thriller 'The Terminal List' Season 2 Gets October Premiere Date
+
+TV News, The Terminal List, Chris Pratt, Prime Video
+
+Mon, 11 May 2026 23:43:42 GMT
+
+https://movieweb.com/the-terminal-list-season-2-premiere-date/
+
+The spy series based on novels from Jack Carr is returning with another batch of episodes.
+---------
+
+# WWII Zombies Action Movie 'Overlord' Will Stream for Free on Tubi in June 2026
+
+Movie News, Overlord, Tubi, Coming/Leaving Streaming, Action
+
+Mon, 11 May 2026 23:00:18 GMT
+
+https://movieweb.com/overlord-zombies-war-streaming-free-tubi-june-2026/
+
+The World War II action horror zombie movie 'Overlord' will stream for free on Tubi in June 2026.
+---------
+
 # If Euphoria Killed Off THAT Main Character, Season 3 Is Officially Doomed
 
 Streaming TV, Euphoria, Euphoria - Season 3
