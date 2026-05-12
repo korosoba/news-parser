@@ -1,3 +1,333 @@
+# Godzilla’s Next Era Begins With Ambitious 4-Part Origin Reboot
+
+Comics, Godzilla
+
+Tue, 12 May 2026 22:30:20 GMT
+
+https://screenrant.com/the-horror-of-godzilla-new-origin-series-details-update/
+
+Godzilla has officially claimed a brand-new series that will deliver a new origin reboot for the legendary kaiju that will be darker than ever before.
+---------
+
+# The Top 10 Things I Loved From Star Wars Nites 2026 & Season of the Force
+
+Movies, Star Wars, Disneyland
+
+Tue, 12 May 2026 22:30:20 GMT
+
+https://screenrant.com/disneyland-star-wars-nites-2026-season-of-the-force-event/
+
+Here are the best things we saw from Star Wars Nites 2026 including new characters, exclusive experiences, and Disney's major Galaxy's Edge overhaul.
+---------
+
+# Netflix's 8-Part Action Series Is So Good, You'll Finish It In One Sitting
+
+TV, Netflix, Masked Recs
+
+Tue, 12 May 2026 22:30:20 GMT
+
+https://screenrant.com/blue-eye-samurai-netflix-action-show-binge-one-sitting/
+
+This samurai series was praised by Hideo Kojima, and it is a Netflix action-adventure show that viewers will find themselves unable to stop.
+---------
+
+# Kevin Hart's 10 Best Movies, Ranked
+
+Movies, Kevin Hart, Ranking
+
+Tue, 12 May 2026 22:30:20 GMT
+
+https://screenrant.com/kevin-hart-best-movies-ranked/
+
+Kevin Hart has starred in some fun blockbusters over the years, with his best films being huge adventure movies and hilarious romantic comedies.
+---------
+
+# Netflix's New 14-Part Fantasy Series Is Officially A Worldwide Streaming Hit
+
+TV, Masked Recs
+
+Tue, 12 May 2026 22:28:54 GMT
+
+https://screenrant.com/my-royal-nemesis-netflix-series-streaming-hit/
+
+Netflix's new 14-episode fantasy series has officially become a worldwide streaming sensation shortly after its full release on May 8.
+---------
+
+# New Doctor Dolittle Reboot Movie Begins Filming 6 Years After Robert Downey Jr.'s Flop
+
+Movies, Doctor Dolittle
+
+Tue, 12 May 2026 22:18:56 GMT
+
+https://screenrant.com/doctor-dolittle-king-of-the-wild-production-update/
+
+Despite Robert Downey Jr.’s Doctor Dolittle revival flopping at the box office in 2020, another reboot is in the works, with some major changes.
+---------
+
+# Prime Video's Upcoming Sci-Fi Show Brings Back One Of The Greatest Cyberpunk Stories Of All Time
+
+Streaming TV, Masked Recs
+
+Tue, 12 May 2026 22:08:19 GMT
+
+https://screenrant.com/ghost-in-the-shell-new-anime-amazon-prime-cyberpunk/
+
+It's an exciting time for cyberpunk TV, but among all the upcoming series stands out for its return to a pillar of the entire genre as fans know it.
+---------
+
+# 28 Years Later: Bone Temple Sequel's Fate Seemingly Revealed After Trilogy Uncertainty
+
+Movies, 28 Years Later: The Bone Temple, 28 Days Later
+
+Tue, 12 May 2026 22:04:44 GMT
+
+https://screenrant.com/28-years-later-bone-temple-sequel-fate-alfie-williams/
+
+After uncertainty about whether the trilogy will get its conclusion, the fate of the 28 Years Later: The Bone Temple sequel is seemingly revealed.
+---------
+
+# Stardew Valley Creator ConcernedApe Reveals New 1.7 Update Plans
+
+Gaming, Stardew Valley, Indie Games, PC
+
+Tue, 12 May 2026 22:00:52 GMT
+
+https://screenrant.com/stardew-valley-17-update-may-2026/
+
+ConcernedApe is still hard at work on Stardew Valley's 1.7 update, and he's just dropped new details about what he's currently exploring.
+---------
+
+# New Agatha Christie Movie Casts Felicity Jones As Iconic Author In New Mystery Movie
+
+Movies, Agatha Christie, Felicity Jones
+
+Tue, 12 May 2026 22:00:42 GMT
+
+https://screenrant.com/eleven-missing-days-agatha-christie-movie-felicity-jones-casting/
+
+An upcoming movie delving into the real-life mysterious disappearance of Agatha Christie has cast its lead actor to play the iconic author.
+---------
+
+# Tracker's Velma Replacement Changed Justin Hartley's Show in the Wrong Way
+
+TV, Tracker
+
+Tue, 12 May 2026 22:20:12 GMT
+
+https://www.cbr.com/cbs-tracker-velma-replacement-who-is-mel/
+
+Tracker Season 3 ended an era, and as a result, some of its charm is missed as it reshuffled its cast to replace Colter's most formative teammates.
+---------
+
+# 10 Powerful Anime Characters Who Became Gods
+
+Anime, Dragon Ball, Berserk, Death Note
+
+Tue, 12 May 2026 22:15:13 GMT
+
+https://www.cbr.com/most-powerful-anime-characters-became-gods/
+
+Some anime characters achieved Godhood, here are 10 examples of personalities ascended to deity status over the course of their respective series.
+---------
+
+# Christopher Nolan Breaks Down Why He Chose Controversial Rapper for Bard Role in The Odyssey
+
+Movies, The Odyssey, Fantasy
+
+Tue, 12 May 2026 22:05:49 GMT
+
+https://www.cbr.com/christopher-nolan-travis-scott-bard-the-odyssey/
+
+Christopher Nolan explains the thinking behind this controversial casting in The Odyssey.
+---------
+
+# Hulu Sets Replacement for Sydney Sweeney's $398M R-Rated Thriller The Housemaid With Lindsay Lohan & Kit Harington
+
+TV, The Housemaid, Hulu
+
+Tue, 12 May 2026 22:03:32 GMT
+
+https://www.cbr.com/hulu-count-my-lies-confirmed-lindsay-lohan-kit-harington-shailene-woodley/
+
+Thrillers with a mystery secret will never stop being popular, and Hulu just grabbed a slice of the pie.
+---------
+
+# Dafne Keen's Supernatural Horror Film Whistle Tops US Streaming Charts
+
+Movies, Whistle, Horror, AMC
+
+Tue, 12 May 2026 22:00:12 GMT
+
+https://www.cbr.com/dafne-keen-whistle-supernatural-horror-amc-streaming-success-may-2026/
+
+Dafne Keen's supernatural horror Whistle, directed by The Nun's Corin Hardy, becomes a streaming hit in the US, despite mixed reviews from critics.
+---------
+
+# Al Pacino’s Godfather Wedding Line Is Still the Most Powerful Quote in Movie History
+
+Movies, The Godfather
+
+Tue, 12 May 2026 22:00:12 GMT
+
+https://www.cbr.com/the-godfather-al-pacino-not-my-family-most-powerful-quote/
+
+Michael’s conversation with Kay at Connie and Carlo’s wedding is a tragic irony that foreshadows his eventual downfall in the Godfather trilogy.
+---------
+
+# Absolute Wonder Woman Reveals Ares’ Shocking Return
+
+Comics, Wonder Woman, DC Comics, Absolute Universe
+
+Tue, 12 May 2026 22:00:12 GMT
+
+https://www.cbr.com/absolute-wonder-woman-ares-return-confirmed/
+
+The god of war is making his way into the Absolute Universe, but writer Kelly Thompson hints that their relationship complicated.
+---------
+
+# Pokémon Officially Gets New Deluxe Collector's Release Coming August 25
+
+Games, Pokemon
+
+Tue, 12 May 2026 21:51:14 GMT
+
+https://www.cbr.com/pokemon-new-official-kanto-release-collectors-edition-august-25/
+
+Pokémon fans are getting a brand-new collectors item that is sure to be a must-have for everyone who has been with the game from the beginning.
+---------
+
+# CBS Quietly Confirms Gibbs’ NCIS Return
+
+TV, NCIS, CBS
+
+Tue, 12 May 2026 21:44:51 GMT
+
+https://www.cbr.com/ncis-season-23-episode-19-leory-jethro-gibbs-return/
+
+CBS quietly confirms its biggest development in five years heading into NCIS Season 23's finale as Leroy Jethro Gibbs officially makes a comeback.
+---------
+
+# Every Main Character's Fate At The End Of The Sopranos
+
+TV, The Sopranos, hbo
+
+Tue, 12 May 2026 21:30:12 GMT
+
+https://www.cbr.com/sopranos-main-character-fates/
+
+It wasn't uncommon for characters in The Sopranos to meet a grizzly ending, but who actually survived the final episode, and who killed Tony Soprano?
+---------
+
+# Michael B. Jordan's First Sinners Follow-Up Is Already on Netflix (and Dominating the Charts)
+
+Movie Features, Michael B. Jordan, Swapped, Sinners, Netflix
+
+Tue, 12 May 2026 22:21:13 GMT
+
+https://collider.com/michael-b-jordan-new-movie-netflix-swapped-streaming-hit/
+
+After winning Best Actor for his dual roles in Sinners, Michael B. Jordan is now leading Netflix's newest animated hit, Swapped.
+---------
+
+# 10 Near-Perfect Family Sitcoms That No One Remembers Today
+
+TV, Sitcom, One Day at a Time, The Bernie Mac Show, Life in Pieces
+
+Tue, 12 May 2026 21:44:14 GMT
+
+https://collider.com/near-perfect-family-sitcoms-no-one-remembers/
+
+From Fox's The Bernie Mac Show to Netflix's One Day at a Time to CBS' Life in Pieces, these family sitcoms have been forgotten by audiences.
+---------
+
+# Forget 'The Godfather' — Prime Video's Crime Epic Is a Masterpiece From Start to Finish
+
+Movie Features, Goodfellas, Martin Scorsese, The Godfather, Crime
+
+Tue, 12 May 2026 21:42:15 GMT
+
+https://collider.com/goodfellas-prime-video-crime-epic-masterpiece-start-to-finish-forget-godfather/
+
+Martin Scorsese's brilliant crime thriller Goodfellas, starring Robert De Niro, Joe Pesci, and Ray Liotta, is a 10/10 masterpiece.
+---------
+
+# Disney's $1 Billion Sci-Fi Epic Officially Releases on Streaming Next Month
+
+Movie News, Avatar, Avatar: Fire and Ash, Avatar: The Way of Water, James Cameron
+
+Tue, 12 May 2026 21:23:13 GMT
+
+https://collider.com/2025-blockbuster-sci-fi-sequel-avatar-fire-and-ash-disney-plus-streaming-release-date-june-24-2026-james-cameron/
+
+Disney's $1 billion dollar sci-fi sequel, Avatar: Fire and Ash, finally has a summer 2026 streaming release date.
+---------
+
+# All 3 Star Wars Sequels Are Disappointing, but One Is Actually Worthwhile
+
+Movie, Star Wars, Star Wars: Episode VII - The Force Awakens, Star Wars: Episode VIII - The Last Jedi, Star Wars: Episode IX - The Rise of Skywalker
+
+Tue, 12 May 2026 21:23:13 GMT
+
+https://collider.com/star-wars-sequels-disappointing-ranked/
+
+The Star Wars sequels didn't live up to fans' expectations, producing three underwhelming movies with only one being worthy of the Skywalker legacy.
+---------
+
+# Marvel's 'WandaVision' Trilogy Will Officially Conclude in 2026
+
+TV News, Vision Quest, Paul Bettany, MCU, Disney+
+
+Tue, 12 May 2026 21:16:27 GMT
+
+https://collider.com/mcu-wandavision-sequel-series-visionquest-release-window-october-2026-paul-bettany/
+
+VisionQuest, the WandaVision sequel series starring Paul Bettany and James Spader, will officially premiere this year.
+---------
+
+# 'The Punisher: One Last Kill' Director Reinaldo Marcus Green Confirms Disney+ Special's Placement in MCU Timeline
+
+TV News, The Punisher: One Last Kill, MCU
+
+Tue, 12 May 2026 22:37:33 GMT
+
+https://movieweb.com/the-punisher-one-last-kill-mcu-timeline/
+
+Director Reinaldo Marcus Green revealed when 'The Punisher: One Last Kill' takes place amidst the greater MCU timeline.
+---------
+
+# 'Avatar: Fire and Ash' Sets Streaming Release Date on Disney+
+
+Movie News, Avatar: Fire and Ash, Disney+
+
+Tue, 12 May 2026 22:01:41 GMT
+
+https://movieweb.com/avatar-fire-and-ash-officially-sets-streaming-release-date/
+
+James Cameron's 'Avatar: Fire and Ash' now has its Disney+ release date set after a long run in theaters.
+---------
+
+# 8 Gritty Spin-Offs That Go Against Their Franchise's Family-Friendly Values
+
+TV Lists
+
+Tue, 12 May 2026 22:00:17 GMT
+
+https://movieweb.com/gritty-spin-offs-in-family-franchises/
+
+Family-friendly media is an industry cornerstone, but sometimes franchises want to try another approach.
+---------
+
+# The 'Blade Runner' Franchise Returns in 2027 With 2 New Projects and Release Dates
+
+TV News, Blade Runner, Prime Video, Blade Runner 2099, Blade Runner 2049
+
+Tue, 12 May 2026 21:28:37 GMT
+
+https://movieweb.com/blade-runner-franchise-returns-2099-virtual-reality/
+
+Ridley Scott's cyberpunk dystopia is headed to streaming.
+---------
+
 # Marvel’s VisionQuest Series Gets Official 2026 Disney+ Release Date
 
 TV, Vision Quest, Marvel Cinematic Universe
