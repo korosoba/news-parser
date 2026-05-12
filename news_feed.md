@@ -1,3 +1,377 @@
+# Michael B. Jordan Confirms Filming Start Date For New Creed Spinoff
+
+TV, Creed, Delphi, Rocky
+
+Tue, 12 May 2026 02:04:25 GMT
+
+https://screenrant.com/creed-spinoff-michael-b-jordan-filming-start-date/
+
+Three years after the release of Creed III, Michael B. Jordan confirms when the television series spinoff Delphi will officially begin filming.
+---------
+
+# 35 Steamiest K-Dramas To Watch Now: From Love And Leashes To Eve
+
+Streaming TV, K-Drama
+
+Tue, 12 May 2026 01:30:21 GMT
+
+https://screenrant.com/love-leashes-passionate-steamy-k-dramas/
+
+By blending romance, intimacy, and passion to set them apart, steamy K-dramas like Love and Leashes and Eve heat up traditional K-drama tropes.
+---------
+
+# Invincible Is Officially Doubling Down On Season 4’s Biggest Criticism
+
+TV, Invincible, Invincible - Season 4
+
+Tue, 12 May 2026 01:22:24 GMT
+
+https://screenrant.com/invincible-season-4-side-quest-criticism-robert-kirkman-response/
+
+Despite one of Invincible season 4's episodes being the lowest-rated of the entire season, the show will double down on its major critique.
+---------
+
+# Will One Piece's Straw Hat Crew Add Loki?
+
+Anime, One Piece
+
+Tue, 12 May 2026 01:00:22 GMT
+
+https://screenrant.com/one-piece-final-straw-crew-decided-more-factoid/
+
+Eiichiro Oda planned the Straw Hat crew from the start, but now that One Piece has introduced Loki, will he officially be joining the crew?
+---------
+
+# Dandadan Is Derailing Its Biggest Romance, And Honestly, It's A Welcome Change
+
+Anime, Dandadan
+
+Tue, 12 May 2026 01:00:20 GMT
+
+https://screenrant.com/dandadan-okarun-momo-romance-love-triangle/
+
+One of the best shonen romances around had progressed too smoothly until recently, and now some real conflict makes it rewarding to see through.
+---------
+
+# 5 Moments Where The Monsterverse Proved Godzilla Is Superior To Kong
+
+Movies, Monsterverse
+
+Tue, 12 May 2026 01:00:20 GMT
+
+https://screenrant.com/godzilla-stronger-than-kong-prove-monsterverse-moments-prove/
+
+Legendary's Monsterverse has proven on more than one occasion that Godzilla - and not Kong - is the true King of the Monsters.
+---------
+
+# Arnold Schwarzenegger & Alan Ritchson’s New Action Movie The Man With The Bag Sets Perfect 2026 Release Date
+
+Movies, The Man with the Bag
+
+Tue, 12 May 2026 00:40:44 GMT
+
+https://screenrant.com/the-man-with-the-bag-arnold-schwarzenegger-alan-ritchson-movie-release-date/
+
+Arnold Schwarzenegger and Alan Ritchson are set to star together in the action film The Man with the Bag, and the film has just gotten a release date.
+---------
+
+# 7 Near-Perfect High Fantasy Shows That No One Remembers Today
+
+Classic TV
+
+Tue, 12 May 2026 00:30:20 GMT
+
+https://screenrant.com/near-perfect-high-fantasy-shows-no-one-remembers/
+
+Some of the best TV shows of all time are high fantasy, but other great and near-perfect shows have faded into obscurity over the years.
+---------
+
+# Punisher: One Last Kill First Reactions Are In For Jon Bernthal's Marvel Special
+
+TV, The Punisher: One Last Kill, Marvel Cinematic Universe, The Punisher
+
+Tue, 12 May 2026 00:17:42 GMT
+
+https://screenrant.com/punisher-one-last-kill-marvel-disney-plus-reactions/
+
+The first reactions for Jon Bernthal's Punisher: One Last Kill have finally arrived on social media as Frank Castle gets ready to return to the MCU.
+---------
+
+# Scarlett Johansson’s Tense Movie Paper Tiger Gets First Images Starring Miles Teller & Adam Driver
+
+Movies, Paper Tiger
+
+Tue, 12 May 2026 00:13:09 GMT
+
+https://screenrant.com/paper-tiger-movie-scarlett-johansson-miles-teller-adam-driver-images/
+
+Scarlett Johansson stars in the intense family drama Paper Tiger, whose first look images hint at what seems to be a heavy-hitting drama.
+---------
+
+# 10 Times a Studio Change Saved a Sinking Anime Franchise
+
+Anime, Attack On Titan, mappa
+
+Tue, 12 May 2026 02:15:13 GMT
+
+https://www.cbr.com/studio-changes-that-saved-anime-franchise/
+
+Making a studio change once an anime has already aired is a major gamble, but sometimes it can save a franchise.
+---------
+
+# The 10 Greatest Movie Climaxes Of the 21st Century, Ranked
+
+Movies, Drama, Man on Fire, Action
+
+Tue, 12 May 2026 02:00:25 GMT
+
+https://www.cbr.com/greatest-movie-climaxes-21st-century-ranked-list/
+
+These 21st century film climaxes are the greatest finales in modern movie history.
+---------
+
+# Netflix's New Lord of the Flies Revives a 72-Year-Old Controversy for the 21st Century
+
+TV, Netflix, Lord of the Flies, Horror
+
+Tue, 12 May 2026 02:00:25 GMT
+
+https://www.cbr.com/netflix-lord-of-the-flies-revives-72-year-old-controversy/
+
+The source material behind Netflix's newest hit miniseries has been banned multiple times, and the controversy is set to continue.
+---------
+
+# 10 Turn-Based RPGs With an Incredible Class System
+
+Games, Role Playing Game, Fire Emblem, JRPG
+
+Tue, 12 May 2026 01:45:14 GMT
+
+https://www.cbr.com/greatest-turn-based-rpgs-best-class-systems-list/
+
+RPGs like Fire Emblem: Three Houses show how good turn-based combat can be when it's combined with a good class system.
+---------
+
+# One Piece Officially Proves It Belongs at Universal Studios
+
+Anime, One Piece, universal studios hollywood
+
+Tue, 12 May 2026 01:25:13 GMT
+
+https://www.cbr.com/one-piece-grand-pirate-show-universal-studios/
+
+Replacing Universal Hollywood's outdated WaterWorld stunt show with the One Piece: Grand Pirate Show is what fans and park goers want!
+---------
+
+# Amazon's Fourth Wing Officially Escapes Development Hell After 3 Years
+
+TV, Prime Video
+
+Tue, 12 May 2026 01:12:58 GMT
+
+https://www.cbr.com/fourth-wing-series-ordered-prime-video/
+
+Michael B. Jordan's Fourth Wing series at Prime Video finally gets a major update after years in development.
+---------
+
+# Curry Barker Talks Horror, Fame & Twisted Wishes in Obsession
+
+CBR Exclusives, Obsession
+
+Tue, 12 May 2026 01:10:09 GMT
+
+https://www.cbr.com/video/curry-barker-talks-horror-fame-twisted-wishes-in-obsession/
+
+Obsession director Curry Barker talks horror movies, filmmaking pressure, and the strange reality of becoming numb to your own scares. In this creative interview, Curry and host, Grae Drake, draw their ultimate wishes while discussing Obsession, audience reactions, creepy performances, and the evolution from viral YouTube horror projects to larger-scale filmmaking.Curry explains how he cast the film’s unsettling lead performance, why The Invisible Man is one of his favorite modern horror movies, and how editing horror changes your relationship to fear. He also teases his upcoming project Anything But Ghosts and shares the funniest fan reactions to Milk & Serial.For horror fans and aspiring filmmakers, this is a fascinating look inside the mind of a rising genre director.
+---------
+
+# 15 Clues That Gave Away the Plot Twist in Shutter Island
+
+Movies, Shutter Island, Martin Scorsese, Leonardo DiCaprio, Thriller
+
+Tue, 12 May 2026 01:00:13 GMT
+
+https://www.cbr.com/shutter-island-plot-twist-clues/
+
+Shutter Island is known for its big plot twist. Many viewers may have missed the clues that gave away the surprise ending.
+---------
+
+# The Top 8 Strongest Star Wars: Unlimited Cards (Right Now)
+
+Games, Star Wars, TCG, Tabletop
+
+Tue, 12 May 2026 00:45:13 GMT
+
+https://www.cbr.com/strongest-star-wars-unlimited-cards-right-now/
+
+Star Wars: Unlimited is on the verge of exploring a whole new corner of the Galaxy Far, Far Away, and some of the strongest cards are game changers.
+---------
+
+# The Underrated Western Dark Winds Offers A New Perspective on the Genre
+
+TV, Dark Winds, AMC, Western
+
+Tue, 12 May 2026 00:30:12 GMT
+
+https://www.cbr.com/underrated-dark-winds-fresh-perspective-western-series/
+
+Combining crime drama with supernatural thriller, Dark Winds has revolutionized the western genre through the lens of a Native American perspective.
+---------
+
+# HBO’s Near-Perfect 2-Part Series Just Proved It Could Run for Years
+
+TV Features, The Pitt, HBO Max, Noah Wyle, The Boys
+
+Tue, 12 May 2026 01:48:13 GMT
+
+https://collider.com/hbo-max-the-pitt-near-perfect-viewership-records/
+
+A new report shows that The Pitt has quickly become one of HBO's biggest shows — and that it could last for multiple seasons.
+---------
+
+# The ‘Money Heist’ Universe Officially Expands on Netflix Ahead of New Spin-Off
+
+TV News, Netflix, Money Heist, Berlin, Berlin and the Lady with an Ermine
+
+Tue, 12 May 2026 01:15:13 GMT
+
+https://collider.com/netflix-money-heist-future-seasons-update-teaser-after-berlin-season-2/
+
+Netflix doubles down on its global heist universe after one breakout spin-off reignited worldwide obsession with red jumpsuits and gold bars.
+---------
+
+# 3 Binge-Worthy Shows to Watch on Prime Video This Week
+
+TV, Prime Video, Castle, Snowpiercer, Scarpetta
+
+Tue, 12 May 2026 01:12:13 GMT
+
+https://collider.com/best-shows-binge-prime-video-may-11-2026/
+
+Castle, Snowpiercer, and Scarpetta make up our list of the best shows to watch on Prime Video the week of May 11, 2026.
+---------
+
+# Only 3 Steven Spielberg Movies Are Kind of Bad
+
+Movie, The Terminal, Steven Spielberg, The BFG, War Horse
+
+Tue, 12 May 2026 01:12:13 GMT
+
+https://collider.com/worst-steven-spielberg-movies/
+
+Misfires from Steven Spielberg are quite rare, in the overall scheme of things, but he has made a few kind of bad movies, like War Horse and The BFG.
+---------
+
+# The 'Reacher' Meets 'Rambo' Action Series You've Never Heard of Is a Surprise Streaming Smash
+
+TV News, Reacher, Rambo, STARZ, Action
+
+Tue, 12 May 2026 01:00:13 GMT
+
+https://collider.com/the-nowhere-man-starz-streaming-success-reacher-rambo-action-thriller-may-2026/
+
+The Nowhere Man, a Reacher-meets-Rambo-style action thriller, is climbing the streaming charts on Starz.
+---------
+
+# Apple TV’s Biggest Sleeper Hit Just Did What Its Best Sci-Fi Shows Couldn’t
+
+TV Features, The Studio, Apple TV, Seth Rogen, Catherine O'Hara
+
+Tue, 12 May 2026 00:52:13 GMT
+
+https://collider.com/apple-tv-the-studio-baftas-most-awarded-series/
+
+Apple TV's hilarious industry series, The Studio, made history by sweeping at the BAFTA TV Awards.
+---------
+
+# 6 Stephen King Books Better Than 'IT'
+
+Movie, Stephen King, It, The Dark Tower, The Stand
+
+Tue, 12 May 2026 00:41:13 GMT
+
+https://collider.com/stephen-king-books-better-than-it/
+
+While there aren't too many Stephen King books that top IT, a few arguably do, including masterpieces like Different Seasons, Misery, and The Stand.
+---------
+
+# ‘Yellowstone’ Spin-Off Star Confirms She Has Never Met Creator Taylor Sheridan
+
+TV News, Taylor Sheridan, Yellowstone, Arielle Kebbel, Marshals
+
+Tue, 12 May 2026 00:30:13 GMT
+
+https://collider.com/yellowstone-spin-off-marshals-arielle-kebbel-taylor-sheridan-never-met/
+
+Marshals star Arielle Kebbel reveals she has never met Yellowstone creator Taylor Sheridan, despite starring in the spin-off.
+---------
+
+# The WWII Movie Everyone's Waiting For Gets Official Release in 3 Weeks
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, Kerry Condon
+
+Tue, 12 May 2026 00:00:13 GMT
+
+https://collider.com/new-favorite-ww2-movie-pressure-release-date-may-29-2026-brendan-fraser/
+
+Pressure, your new favorite WWII movie starring Brendan Fraser and Andrew Scott, will officially premiere in theaters in less than three weeks.
+---------
+
+# Prime Video’s Gritty ‘Reacher’ Replacement Just Set the Date for Season 2
+
+TV News, Chris Pratt, The Terminal List, Prime Video, Reacher
+
+Mon, 11 May 2026 23:57:33 GMT
+
+https://collider.com/prime-video-chris-pratt-reacher-replacement-the-terminal-list-season-2-release-date/
+
+Prime Video has confirmed when its military smash hit The Terminal List will return for Season 2. Here's what we know.
+---------
+
+# 8 Netflix Thriller Masterpieces Everyone Has To Try At Least Once
+
+TV Lists, Netflix, Thriller
+
+Tue, 12 May 2026 02:00:30 GMT
+
+https://movieweb.com/netflix-thriller-masterpieces-watch-once/
+
+These Netflix TV thrillers range from miniseries to series that ran for several seasons, and they feature unforgettable premises and solid characters.
+---------
+
+# ABC Moves Forward With 'The Rookie' Spin-Off with 'Top Gun: Maverick' Star
+
+TV News, The Rookie
+
+Tue, 12 May 2026 00:51:25 GMT
+
+https://movieweb.com/the-rookie-spin-off-official/
+
+Jay Ellis will star in 'The Rookie: North', which is expected to air on ABC in 2027.
+---------
+
+# 'The White Lotus' Season 4 Casts Ben Kingsley, Max Minghella & More to HBO Ensemble
+
+TV News, The White Lotus, Ben Kingsley
+
+Tue, 12 May 2026 00:29:27 GMT
+
+https://movieweb.com/the-white-lotus-season-4-ben-kingsley/
+
+The hit anthology series continues to add to its absolutely stacked cast.
+---------
+
+# ‘Widow’s Bay’ Is Apple TV’s New Hit That’s John Carpenter Meets ‘Parks and Rec’
+
+Features, Widow's Bay
+
+Tue, 12 May 2026 00:00:18 GMT
+
+https://movieweb.com/widows-bay-apple-tv-hit-thriller/
+
+'Widow's Bay,' the Apple TV series starring Matthew Rhys, blends horror and comedy in a fascinating way.
+---------
+
 # Netflix's Best Crime Thriller Series Rewrites The Rules Of The Genre In New Episodes
 
 TV, Masked Recs
