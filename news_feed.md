@@ -1,3 +1,410 @@
+# 10 Movie Chase Scenes So Good They Make The Entire Film Worth Watching
+
+Movies, Terminator 2: Judgment Day, The Dark Knight, Mission: Impossible - Fallout, The Adventures of Tintin, Casino Royale, Children of Men, Baby Driver, Ronin, The French Connection, Bullitt
+
+Tue, 12 May 2026 17:45:21 GMT
+
+https://screenrant.com/movie-chase-scenes-worth-watching/
+
+Chase scenes are an integral part of many of the best action movies, and some are so good that they make the entire film worth watching.
+---------
+
+# Netflix's Hit New 6-Part Crime Thriller Series Debuts To Exceptional Audience Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Tue, 12 May 2026 17:33:11 GMT
+
+https://screenrant.com/netflix-legends-audience-rotten-tomatoes-score-debut/
+
+Netflix's hit new six-part crime thriller series debuts to an exceptional Rotten Tomatoes audience score shortly after its release on May 7.
+---------
+
+# Casting Pokémon's 8 Kanto Gym Leaders In Live-Action
+
+Classic TV, Pokemon
+
+Tue, 12 May 2026 17:30:21 GMT
+
+https://screenrant.com/pokemon-kanto-gym-leaders-live-action-casting/
+
+The gym leaders of Pokémon's first generation are among the franchise's most iconic characters, so picking the right live-action actors is crucial.
+---------
+
+# Dungeon Crawler Carl Is Finally Back With a Major Release
+
+Anime, Webtoon
+
+Tue, 12 May 2026 17:01:34 GMT
+
+https://screenrant.com/dungeon-crawler-carl-webtoon-second-season-return/
+
+There's no better time to be a Dungeon Crawler Carl fan, because in addition to a new volume hitting stores, there's another big release coming soon.
+---------
+
+# 10 Harsh Realities Of Rewatching The Crown A Decade Later
+
+TV, The Crown
+
+Tue, 12 May 2026 17:00:20 GMT
+
+https://screenrant.com/the-crown-netflix-harsh-realities-rewatching-10-years-later/
+
+Netflix's historical drama The Crown was a royal success, but there are some harsh realities to the show, 10 years after its streaming debut.
+---------
+
+# Venom Is Officially Getting His Biggest Release Since the Tom Hardy Movie Era
+
+Comics, Venom
+
+Tue, 12 May 2026 16:53:38 GMT
+
+https://screenrant.com/marvel-new-venom-the-first-40-years-after-tom-hardy/
+
+The symbiote is poised to make a major comeback with his biggest release since the Tom Hardy era, following the announcement of a new Venom special.
+---------
+
+# ABC Moves Shifting Gears Premiere To Mid-Season After Season 3 Renewal
+
+TV, Shifting Gears, Tim Allen, Kat Dennings, ABC
+
+Tue, 12 May 2026 16:46:35 GMT
+
+https://screenrant.com/shifting-gears-season-3-release-window-abc/
+
+ABC announces Tim Allen's Shifting Gears will premiere in mid-season following its season 3 renewal, while the Scrubs reboot gets the fall slot. The network cites momentum for Scrubs as the reason for the scheduling change.
+---------
+
+# Prime Video's Scarpetta Just Cemented A Major Streaming Streak
+
+TV, Masked Recs
+
+Tue, 12 May 2026 16:45:21 GMT
+
+https://screenrant.com/prime-video-scarpetta-thriller-series-streaming-charts-streak/
+
+Prime Video's hit new crime series is one of the streamer's biggest 2026 releases, and the thriller has now cemented a major streaming streak.
+---------
+
+# New Percy Jackson Spinoff Series Officially Releasing This Fall
+
+Books, Percy Jackson & The Olympians
+
+Tue, 12 May 2026 16:42:54 GMT
+
+https://screenrant.com/percy-jackson-camp-half-blood-spinoff-books-release-date/
+
+Two seasons of the Percy Jackson TV series are available on Disney+, and a new project set in this fantasy world has just been announced.
+---------
+
+# Marvel Confirms Major Xavier Redesign for X-Men's New Appearance
+
+Comics, X-Men
+
+Tue, 12 May 2026 16:30:19 GMT
+
+https://screenrant.com/x-men-xavier-redesign-new-costume-sauron/
+
+Professor X has never been deadlier.
+---------
+
+# Cartoon Network’s 96% RT 8-Part Masterpiece Releases First New Episode in 9 Years on YouTube
+
+TV, Regular Show, Comedy, Cartoon Network
+
+Tue, 12 May 2026 17:50:45 GMT
+
+https://www.cbr.com/regular-show-the-lost-tapes-episode-1-youtube/
+
+The Cartoon Network classic is back and streaming free on YouTube.
+---------
+
+# Alan Ritchson's The Man with the Bag Gets Prime Video Release Date
+
+Movies, The Man with the Bag
+
+Tue, 12 May 2026 17:44:49 GMT
+
+https://www.cbr.com/alan-ritchson-the-man-with-the-bag-prime-video-release-date/
+
+The two fan-favorite action stars are finally joining forces for an upcoming Christmas movie on Prime Video.
+---------
+
+# Doctor Dolittle Is Officially Getting Another Reboot
+
+Movies, Dolittle, robert downey jr, Doctor Dolittle
+
+Tue, 12 May 2026 17:40:30 GMT
+
+https://www.cbr.com/doctor-dolittle-animated-reboot-announced/
+
+The adventure film is getting reimagined once again just six years after Robert Downey Jr. took on the titular role.
+---------
+
+# Prime Video's Hit Fantasy Show Good Omens Returns With Record Rotten Tomatoes Score
+
+TV, Good Omens
+
+Tue, 12 May 2026 17:35:54 GMT
+
+https://www.cbr.com/prime-video-good-omens-season-3-rotten-tomatoes-score/
+
+The fantasy is finally coming to an end, with an unexpected record.
+---------
+
+# With Clayface, DC Is Officially Replacing Batman
+
+Movies, Clayface, Batman, DCU
+
+Tue, 12 May 2026 17:30:14 GMT
+
+https://www.cbr.com/dc-clayface-batman-replacement-gotham-superhero-movie/
+
+An upcoming DC movie officially replaces Batman. What does this mean for the future of the DCU?
+---------
+
+# 5 Best Nordic Noir Crime Thrillers to Watch on Netflix
+
+TV, Jo Nesbø's Detective Hole, Netflix, Thriller, Deadwind
+
+Tue, 12 May 2026 17:30:14 GMT
+
+https://www.cbr.com/best-netflix-nordic-noir-crime-thrillers-list/
+
+Jo Nesbø's Detective Hole is one of the best Nordic noir crime thrillers on Netflix, but the streaming platform has many more to offer.
+---------
+
+# The Boys' Nathan Miller Reveals Why Black Noir’s Story Is So Tragic
+
+CBR Exclusives, The Boys
+
+Tue, 12 May 2026 17:27:27 GMT
+
+https://www.cbr.com/nathan-miller-the-boys-black-noir-tragic/
+
+Black Noir's tragedy is hidden in plain sight.
+---------
+
+# Jay Pharoah Does Stand-Up as Toilet Paper in Rock Paper Scissors Sneak Peek
+
+TV, Nickelodeon
+
+Tue, 12 May 2026 17:16:47 GMT
+
+https://www.cbr.com/exclusive-rock-paper-scissors-season-3-clips/
+
+Exclusive: Rock Paper Scissors returns with all-new episodes on Nickelodeon this month with amazing guest stars and CBR has a new sneak peek.
+---------
+
+# 10 Retro TCGs from the 2000s No One Remembers
+
+Games, TCG, Buffy The Vampire Slayer, Avatar: The Last Airbender, Harry Potter, WWE, The Simpsons, Tabletop
+
+Tue, 12 May 2026 17:15:14 GMT
+
+https://www.cbr.com/forgotten-tcgs-from-the-2000s/
+
+Trading card games are huge right now, but in the 2000s, quite a few near-hits ended up being forgotten before they were able to be successful.
+---------
+
+# Transformers and Hot Wheels Rev Up 2 Official New Autobot Crossovers in First Look
+
+Anime, Transformers, Hot Wheels, merchandise, toys, action figures, hasbro, mattel
+
+Tue, 12 May 2026 17:03:51 GMT
+
+https://www.cbr.com/transformers-hot-wheels-el-segundo-gt-scorcher/
+
+Two brand-new toys represent the 2026 wave of Hot Wheels x Transformers action figures, making two classic Hot Wheels designs more than meets the eye.
+---------
+
+# 10 Movies To Watch if You Loved Netflix's 'Swapped'
+
+Movie, Swapped, Rio, The Wild Robot, Hoppers
+
+Tue, 12 May 2026 17:52:14 GMT
+
+https://collider.com/movies-like-swapped-netflix/
+
+If you loved Netflix's newest body-swap animated comedy, Swapped, then you'll surely love brilliant movies like The Wild Robot and the recent Hoppers.
+---------
+
+# Kelly Marie Tran's New Thriller Explores the Art of Crime in New Sneak Peek [Exclusive]
+
+Movie News, Forge, Kelly Marie Tran, T.R. Knight, Thriller
+
+Tue, 12 May 2026 17:45:14 GMT
+
+https://collider.com/new-crime-thriller-forge-kelly-marie-tran-sneak-peek/
+
+Learn the ins and outs of art forgery in this Collider-exclusive sneak peek of the new crime thriller Forge. Watch it now.
+---------
+
+# Apple TV's New Horror Series Gives the Perfect, Bone-Chilling Toast in New Sneak Peek [Exclusive]
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys, Horror
+
+Tue, 12 May 2026 17:30:14 GMT
+
+https://collider.com/apple-tv-horror-thriller-series-widows-bay-episode-4-sneak-peek-kate-oflynn/
+
+A new sneak peek at Episode 4 of Apple TV's new horror series Widow's Bay haunts Kate O'Flynn's perfect toast with an eerie surprise.
+---------
+
+# Starz’s New ‘Creed’ Meets ‘A Thousand Blows’ Crime Thriller Gets Perfect Image Before Summer Premiere [Exclusive]
+
+TV News, STARZ, Creed, A Thousand Blows, Collider Exclusive Preview
+
+Tue, 12 May 2026 17:01:14 GMT
+
+https://collider.com/new-crime-thriller-series-fightland-image-50-cent-starz/
+
+Starz has released a new image from FIghtland, the new crime thriller show with shades of Creed and A Thousand Blows.
+---------
+
+# After 32 Years, 'The Crow' Remains the Iconic Gothic Revenge Thriller Against Which All Others Are Judged | Retro Review
+
+Movie Features, The Crow, Alex Proyas, Dimension Films
+
+Tue, 12 May 2026 16:45:14 GMT
+
+https://collider.com/the-crow-iconic-revenge-thriller/
+
+The Crow, the '90s most quintessential vigilante epic, remains as poignant as it is stylish.
+---------
+
+# 'Elsbeth' Is Star-Struck By an Emmy-Winning Television Legend in New Season 3 Sneak Peek [Exclusive]
+
+Exclusives, Elsbeth, Carrie Preston, Tracey Ullman, CBS
+
+Tue, 12 May 2026 16:30:12 GMT
+
+https://collider.com/elsbeth-season-3-episode-19-carrie-preston-tracey-ullman/
+
+A new sneak peek from Elsbeth Season 3 sees Carrie Preston in awe of the great Tracey Ullman. Check it out here!
+---------
+
+# Tom Hardy and Gerard Butler's Guy Ritchie Crime Thriller Gets Long Awaited Sequel Update [Exclusive]
+
+Exclusives, RocknRolla, Guy Ritchie, Crime, Gerard Butler
+
+Tue, 12 May 2026 16:10:36 GMT
+
+https://collider.com/tom-hardy-gerard-butler-rocknrolla-2-potential-sequel-update-guy-ritchie/
+
+Guy Ritchie discusses the potential for a RocknRolla sequel, revealing that some ideas from the unmade film found their way into The Gentlemen.
+---------
+
+# Beth and Rip’s ‘Yellowstone’ Sequel Heads to Texas in Explosive New Look [Exclusive]
+
+Exclusives, Dutton Ranch, Yellowstone, Taylor Sheridan, Collider Exclusive Preview
+
+Tue, 12 May 2026 16:00:14 GMT
+
+https://collider.com/dutton-ranch-kelly-reilly-cole-hauser-first-look-image-release-date-may-2026/
+
+Get a fresh look at Dutton Ranch, the upcoming Yellowstone spinoff series, featuring Beth Dutton and Rip Wheeler facing new challenges in Texas.
+---------
+
+# Tom Cruise Reportedly Eyeing New Spy Thriller Franchise From Producer Ryan Coogler
+
+Movie News, Tom Cruise, Ryan Coogler
+
+Tue, 12 May 2026 17:55:46 GMT
+
+https://movieweb.com/tom-cruise-doppelganger-thriller-rumor/
+
+Tom Cruise is reportedly looking at producer Ryan Coogler for a partnership in a new spy thriller franchise.
+---------
+
+# Prime Video's 'Sex Criminals' Series Adds 'The Marvels' Director Nia DaCosta
+
+TV News, Nia DaCosta, Imogen Poots, John Reynolds, Sex Criminals
+
+Tue, 12 May 2026 17:31:45 GMT
+
+https://movieweb.com/nia-dacosta-prime-video-sex-criminals/
+
+'The Marvels' and '28 Years Later: The Bone Temple' director Nia DaCosta will direct the first two episodes of the acclaimed comic adaptation.
+---------
+
+# Sydney Sweeney's 'The Voyeurs' Now Streaming Free on Tubi
+
+Movie News, The Voyeurs, Sydney Sweeney, Coming/Leaving Streaming, Thriller
+
+Tue, 12 May 2026 17:00:19 GMT
+
+https://movieweb.com/sydney-sweeney-the-voyeurs-streaming-free-tubi-may-2026/
+
+Sydney Sweeney's 2021 erotic thriller that turned heads is now streaming free for the month of May.
+---------
+
+# Every 'Power Rangers' TV Series in Release Order
+
+TV Lists, Power Rangers
+
+Tue, 12 May 2026 17:00:19 GMT
+
+https://movieweb.com/every-power-rangers-tv-series-release-order/
+
+There have been more than 20 'Power Rangers' shows, and this is their release order.
+---------
+
+# Kristen Stewart Returns to Vampires With A24 Thriller 'Flesh of the Gods'
+
+Movie News, Kristen Stewart, Wagner Moura, Panos Cosmatos
+
+Tue, 12 May 2026 16:47:00 GMT
+
+https://movieweb.com/kristen-stewart-flesh-of-the-gods-a24/
+
+Kristen Stewart is returning to vampire territory with A24’s 'Flesh of the Gods,' an 80s-set thriller from 'Mandy' director Panos Cosmatos.
+---------
+
+# 'Once Upon a Time in America' Origins Movie in the Works
+
+Movie News, Once Upon a Time in America, Sergio Leone
+
+Tue, 12 May 2026 16:35:09 GMT
+
+https://movieweb.com/once-upon-a-time-in-america-origins-movie/
+
+A 'Once Upon a Time in America' origins movie is in the works, detailing Sergio Leone's grueling 15-year quest to make his 1984 gangster classic.
+---------
+
+# 'Train to Busan' Director's New Zombie Action Thriller Lands Worldwide Release
+
+Movie News, Train to Busan, Horror, Action
+
+Tue, 12 May 2026 16:09:14 GMT
+
+https://movieweb.com/train-to-busan-zombie-action-thriller-release-colony/
+
+Yeon Sang-ho looks ready to reinvent the zombie movie a second time with 'Colony.'
+---------
+
+# Every Steven Spielberg Sci-Fi Movie, Ranked
+
+Movie Lists, Steven Spielberg
+
+Tue, 12 May 2026 16:00:20 GMT
+
+https://movieweb.com/steven-spielberg-sci-fi-movies-ranked/
+
+Steven Spielberg is one of the most legendary Hollywood directors, and his science-fiction movies are among some of the most popular and impressive.
+---------
+
+# 10 Best Black Gangster Movies of All Time
+
+Movie Lists, Crime
+
+Tue, 12 May 2026 16:00:20 GMT
+
+https://movieweb.com/best-black-gangster-movies/
+
+Gangster movies like Juice and Boyz n the Hood carefully examine Black culture while digging into the lives of gangsters.
+---------
+
 # Why Disney+'s New #1 Movie Is Taking Over The World
 
 Movies, Masked Recs, Disney Plus
