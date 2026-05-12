@@ -1,3 +1,377 @@
+# Netflix's 4-Part Jurassic Park Series Makes The Franchise's Most Disappointing Movie Better
+
+TV, Masked Recs
+
+Tue, 12 May 2026 19:42:23 GMT
+
+https://screenrant.com/netflix-jurassic-world-chaos-theory-dominion-better/
+
+This Netflix Jurassic Park series is the perfect answer to the franchise's most disappointing movie, as the show makes the film better in many ways.
+---------
+
+# Taylor Sheridan's Two Western Series Narrowly Defeated By Netflix's Crime Thriller As The Most Watched 2026 Show
+
+TV, His & Hers, Marshals, Landman
+
+Tue, 12 May 2026 19:37:22 GMT
+
+https://screenrant.com/netflix-his-hers-most-watched-2026-show-data/
+
+Taylor Sheridan's two Western series have been narrowly defeated by Netflix's crime thriller to become the most-watched show of 2026 so far.
+---------
+
+# Netflix's Swapped Breaks All-Time Viewership Record In A Single Week
+
+Movies, Swapped
+
+Tue, 12 May 2026 19:31:55 GMT
+
+https://screenrant.com/netflix-swapped-movie-largest-audience-seven-day-period-record/
+
+Netflix's new animated fantasy adventure film, Swapped, is a major hit with audiences, crushing an all-time record for weekly viewership.
+---------
+
+# One Piece’s Funniest Live-Action Tribute To The Manga Was Iñaki Godoy’s Idea
+
+Streaming TV, One Piece
+
+Tue, 12 May 2026 19:30:20 GMT
+
+https://screenrant.com/one-piece-season-2-luffy-chopsticks-nose-inaki-godoy-idea/
+
+One of the funniest moments in Netflix’s live-action adaptation of One Piece, which was a nod to the manga, came straight from Iñaki Godoy himself.
+---------
+
+# Crimson Desert Is Being Review Bombed Following Latest Update
+
+Gaming, Crimson Desert, PC
+
+Tue, 12 May 2026 19:28:31 GMT
+
+https://screenrant.com/crimson-desert-may-2026-update-review-bomb/
+
+Crimson Desert is facing new backlash after a recent massive update, with players flooding the game's page with negative reviews.
+---------
+
+# Why Devil May Cry Season 2, Episode 1 Is Dedicated To James Van Der Beek
+
+Streaming TV, James Van Der Beek, Devil May Cry
+
+Tue, 12 May 2026 19:22:43 GMT
+
+https://screenrant.com/devil-may-cry-james-van-der-beek-tribute-explained/
+
+The premiere of Devil May Cry season 2 gave tribute to the late James Van Der Beek despite the actor not being part of the Netflix show's voice cast.
+---------
+
+# Xbox Handing Out Lifetime Bans Ahead Of Next Major Release
+
+Gaming, Forza Horizon 6, Triple-A Games, PC
+
+Tue, 12 May 2026 19:14:48 GMT
+
+https://screenrant.com/forza-horizon-6-leak-warning-hardware-ban/
+
+Xbox is no stranger to handing out brutal bans for certain users, but this latest release is coming with a hefty cost for accessing it early.
+---------
+
+# After 10 Years, Ryan Gosling’s Hit Crime Thriller Shows Why Matt Bomer’s New Villain Role In The Day Of The Jackal Is Perfect
+
+Streaming TV, The Day of the Jackal, Matt Bomer, Ryan Gosling
+
+Tue, 12 May 2026 19:12:19 GMT
+
+https://screenrant.com/matt-bomer-day-of-the-jackal-season-2-villain-role-nice-guys/
+
+Matt Bomer's new role in The Day of the Jackal season 2 makes even more sense when recalling his villainous assassin role in a Ryan Gosling thriller.
+---------
+
+# Bradley Cooper & Dave Bautista Set Guardians Of The Galaxy Reunion In Bong Joon Ho's New Movie Ally
+
+Movies, Bong Joon Ho, Bradley Cooper, Dave Bautista
+
+Tue, 12 May 2026 19:01:14 GMT
+
+https://screenrant.com/ally-movie-bradley-cooper-dave-bautista-reunion-voice-casting/
+
+Parasite director Bon Joon Ho is helming a new movie that will include two actors from the Guardians of the Galaxy cast, among other talent.
+---------
+
+# Brand New Day Is Adapting One Of The Best Spider-Man Stories Of All Time
+
+Movies, Spider-Man: Brand New Day, Spider-Man: The Animated Series, Marvel, Spider-Man
+
+Tue, 12 May 2026 19:00:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-neogenic-nightmare-arc-adapt-mcu/
+
+Spider-Man: Brand New Day appears to be adapting the Man-Spider story from the classic animated series, with new twists and ties to the MCU.
+---------
+
+# David Tennant's 10/10 Hulu Sleeper Hit Returns With Fantastic Rotten Tomatoes Score, Better Than Season 1
+
+TV, Rivals
+
+Tue, 12 May 2026 19:45:18 GMT
+
+https://www.cbr.com/rivals-season-2-rotten-tomatoes-score/
+
+David Tennant's hit Hulu series has returned with even stronger reviews than the highly-acclaimed Season 1.
+---------
+
+# Agatha Christie Movie Eleven Missing Days Officially in the Works but It’s Not Based on Any Book
+
+Movies, Agatha Christie's Seven Dials, felicity jones
+
+Tue, 12 May 2026 19:41:05 GMT
+
+https://www.cbr.com/agatha-christie-noir-thriller-eleven-missing-days-felicity-jones/
+
+The new film is based on Christie's true story, but it comes with a twist.
+---------
+
+# John Travolta's Psychological Thriller Domestic Disturbance Is Netflix Hit
+
+Movies, Domestic Disturbance, Thriller, Netflix
+
+Tue, 12 May 2026 19:30:14 GMT
+
+https://www.cbr.com/domestic-disturbance-psychological-thriller-netflix-success-may-2026/
+
+John Travolta's 2001 psychological thriller Domestic Disturbance becomes one of the most-watched movies on Netflix.
+---------
+
+# Moon Knight Creator Finally Reveals the Real Reason He Exited the Series Before Its Debut
+
+TV, Moon Knight
+
+Tue, 12 May 2026 19:11:54 GMT
+
+https://www.cbr.com/moon-knight-creator-jeremy-slater-exit/
+
+Four years later, Moon Knight creator Jeremy Slater reflects on leaving the MCU series before it even debuted on Disney+.
+---------
+
+# The Bionic Woman Resurfaces as a U.S. Streaming Hit Almost 50 Years Later
+
+TV, The Bionic Woman, Apple TV, Sci-Fi
+
+Tue, 12 May 2026 19:00:13 GMT
+
+https://www.cbr.com/the-bionic-woman-sci-fi-superhero-streaming-success-apple-tv-may-2026/
+
+A surprising cult classic sci-fi/superhero show is rising on the streaming charts decades after it went off the air.
+---------
+
+# Netflix’s Dark YA Fantasy Series Shadow and Bone Is Better Than Game of Thrones
+
+TV, Shadow and Bone, Game Of Thrones, Netflix
+
+Tue, 12 May 2026 19:00:13 GMT
+
+https://www.cbr.com/netflix-shadow-and-bone-beats-game-of-thrones-at-its-own-game/
+
+Shadow and Bone is a rare, young adult fantasy series that actually outclasses Game of Thrones.
+---------
+
+# 10 Greek Mythology Books Better Than The Odyssey
+
+Movies, The Odyssey, books, Fantasy
+
+Tue, 12 May 2026 19:00:13 GMT
+
+https://www.cbr.com/greek-mythology-books-better-than-the-odyssey-list/
+
+With Christopher Nolan's upcoming adaptation of Homer's masterpiece, The Odyssey, there is no better time to read these Greek mythology retellings
+---------
+
+# Stranger Things Officially Returns in New Video Game Coming Summer 2026
+
+Games, Stranger Things
+
+Tue, 12 May 2026 18:15:12 GMT
+
+https://www.cbr.com/stranger-things-official-new-video-game-announcement-summer-2026/
+
+Stranger Things fans are about to get the chance to return to Hawkins and take on the series' most iconic monsters for themselves.
+---------
+
+# 7 Strongest Anime Characters Who Would Survive the Sendai Colony Clash
+
+Anime, Jujutsu Kaisen, Solo Leveling
+
+Tue, 12 May 2026 18:15:12 GMT
+
+https://www.cbr.com/strongest-anime-characters-survive-sendai-colony-jjk/
+
+These anime characters have the strength and instincts needed to endure the chaos of the Sendai Colony battle.
+---------
+
+# The Amazing Digital Circus Movie Reveals Official Popcorn Bucket Ahead of U.S. Release
+
+Anime, The Amazing Digital Circus, YouTube, fathom events
+
+Tue, 12 May 2026 18:15:09 GMT
+
+https://www.cbr.com/the-amazing-digital-circus-movie-popcorn-bucket/
+
+The Amazing Digital Circus officially reveals its collectible popcorn bucket and beverage cup for the U.S. theatrical screening of its series finale.
+---------
+
+# 10 Detective Shows That Are Perfect From Start to Finish
+
+TV, Only Murders in the Building, Mare of Easttown, True Detective, Dexter
+
+Tue, 12 May 2026 19:44:14 GMT
+
+https://collider.com/detective-shows-perfect-start-to-finish/
+
+Only Murders in the Building, The Wire, Mare of Easttown, Dexter, True Detective, and more make up our list of perfect detective shows.
+---------
+
+# Star Wars Officially Returns With Its Biggest Sci-Fi Project of 2026 Next Week
+
+Movie News, Star Wars, The Mandalorian, The Mandalorian and Grogu
+
+Tue, 12 May 2026 19:27:42 GMT
+
+https://collider.com/star-wars-officially-returns-with-its-biggest-sci-fi-project-of-2026-next-week/
+
+Star Wars: The Mandalorian and Grogu is officially one week away from blasting into theaters.
+---------
+
+# 20 Greatest Fantasy Video Game Masterpieces of All Time, Ranked
+
+Movie, Video Game, Fantasy, The Legend of Zelda, The Witcher 3: Wild Hunt
+
+Tue, 12 May 2026 19:23:13 GMT
+
+https://collider.com/best-fantasy-video-game-masterpieces-all-time-ranked/
+
+The fantasy genre is responsible for many of the all-time best and most celebrated video games, including God of War and  The Witcher 3: Wild Hunt.
+---------
+
+# Apple TV's 7-Part Psychological Thriller Is a Forgotten but Brilliant Miniseries
+
+TV Features, Disclaimer, Apple TV, Cate Blanchett, Louis Partridge
+
+Tue, 12 May 2026 19:21:14 GMT
+
+https://collider.com/apple-tv-disclaimer-psychological-thriller-miniseries/
+
+Apple TV's Disclaimer is a binge-worthy and visually stunning miniseries with a stellar cast that deserves your attention.
+---------
+
+# Oscar Isaac’s Netflix Crime Thriller Gets Official Title as Alec Baldwin Joins the Cast
+
+TV News
+
+Tue, 12 May 2026 19:15:48 GMT
+
+https://collider.com/netflix-oscar-isaac-crime-thriller-the-roman-cast-betty-gilpin-alec-baldwin-david-costabile/
+
+Oscar Isaac’s Scorsese-produced Netflix crime thriller has officially found a new title as 3 big names join the cast.
+---------
+
+# The Lord of the Rings Project Everyone's Been Waiting for Arrives on June 1
+
+Movie News, Lego, The Lord of the Rings, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Hunt for Gollum
+
+Tue, 12 May 2026 19:10:38 GMT
+
+https://collider.com/new-lord-of-the-rings-project-minas-tirith-lego-set-image-release-date-june-1-2026/
+
+The LEGO set of Lord of the Rings fans' dreams is here with a stunning $600 dollar LEGO set. See it here!
+---------
+
+# The First Great Sci-Fi Movie of 2026 Just Arrived on Streaming
+
+Movie News, Project Hail Mary, Ryan Gosling, Sci-Fi, Prime Video
+
+Tue, 12 May 2026 19:10:28 GMT
+
+https://collider.com/new-favorite-sci-fi-movie-project-hail-mary-streaming-release-date-may-2026-ryan-gosling/
+
+2026's sci-fi masterpiece, Project Hail Mary, is officially available to stream right now on digital platforms. Read on for more.
+---------
+
+# ‘Good Omens’ Season 3 Is an Unfortunate Finale for One of Prime Video’s Best Shows | Review
+
+TV Reviews, Good Omens, Prime Video, Michael Sheen, David Tennant
+
+Tue, 12 May 2026 18:00:15 GMT
+
+https://collider.com/good-omens-season-3-review-prime-video/
+
+Despite strong performances from David Tennant and Michael Sheen, Good Omens Season 3 is a disappointing end to the beloved series.
+---------
+
+# Netflix’s Hit Small-Town Drama Is Getting Its Biggest Shake-Up Yet in New Look at Season 5 [Exclusive]
+
+TV News, Sweet Magnolias, Netflix, Drama, Collider Exclusive Preview
+
+Tue, 12 May 2026 18:00:15 GMT
+
+https://collider.com/sweet-magnolias-season-5-image-heather-headley-joanna-garcia-swisher-brooke-elliott/
+
+A new image from Netflix's Sweet Magnolias Season 5 teases a wedding in Helen's future, with her best friends by her side. Check it out here!
+---------
+
+# Sequel in Iconic Martial Arts Franchise Gets US Release Date
+
+Movie News, Martial Arts, Action, IP Man
+
+Tue, 12 May 2026 19:47:27 GMT
+
+https://movieweb.com/ip-man-sequel-us-release-date/
+
+The latest installment in the sprawling 'Ip Man' franchise is officially coming to the U.S.
+---------
+
+# New Prime Video Action Comedy 'Ride or Die' Gets Release Date
+
+TV News, Love Actually, Bill Nighy, Ride or Die
+
+Tue, 12 May 2026 19:36:52 GMT
+
+https://movieweb.com/ride-or-die-bill-nighy-release-date/
+
+The "fast-paced" European thrill ride will premiere in a binge-worthy drop this summer.
+---------
+
+# ‘Your Friends & Neighbors’ Is the Perfect ‘Breaking Bad’ Replacement
+
+Features, Breaking Bad, Your Friends and Neighbors, Comparison Recommendation
+
+Tue, 12 May 2026 19:00:19 GMT
+
+https://movieweb.com/your-friends-and-neighbors-breaking-bad-replacement/
+
+'Your Friends & Neighbors' is an Apple TV series starring Jon Hamm and is perfect for fans of the AMC drama 'Breaking Bad' starring Bryan Cranston.
+---------
+
+# Jean-Claude Van Damme To Lead New WWII Action Thriller 'Raid Pacific'
+
+Movie News, Jean-Claude Van Damme
+
+Tue, 12 May 2026 18:34:58 GMT
+
+https://movieweb.com/jean-claude-van-damme-raid-pacific/
+
+The upcoming action epic stars Van Damme as a submarine captain during World War II.
+---------
+
+# Netflix Crime Thriller 'The Chestnut Man' Season 2 Continues Perfect Streak on Rotten Tomatoes
+
+TV News, The Chestnut Man, Netflix, Mystery
+
+Tue, 12 May 2026 18:13:59 GMT
+
+https://movieweb.com/chestnut-man-hide-and-seek-rotten-tomatoes/
+
+'The Chestnut Man' Season 2 took its sweet time, but the wait was worth it, according to critic reviews.
+---------
+
 # 10 Movie Chase Scenes So Good They Make The Entire Film Worth Watching
 
 Movies, Terminator 2: Judgment Day, The Dark Knight, Mission: Impossible - Fallout, The Adventures of Tintin, Casino Royale, Children of Men, Baby Driver, Ronin, The French Connection, Bullitt
