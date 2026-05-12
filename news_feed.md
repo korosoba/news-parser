@@ -1,3 +1,267 @@
+# Kevin Costner's Subtle Role In New Yellowstone Spinoff Explained By Star
+
+Exclusive, Yellowstone, Dutton Ranch
+
+Tue, 12 May 2026 23:47:40 GMT
+
+https://screenrant.com/dutton-ranch-kevin-costner-presence-subtle-cole-hauser/
+
+Exclusive: Dutton Ranch star Cole Hauser addresses the impact of Kevin Costner and how his legacy carries over into Paramount+'s Yellowstone spinoff.
+---------
+
+# Jon Bernthal Explains Why Marvel Let Him Make The Darkest Punisher Story Ever
+
+TV, The Punisher, The Punisher: One Last Kill, Cover Story
+
+Tue, 12 May 2026 23:41:47 GMT
+
+https://screenrant.com/jon-bernthal-punisher-one-last-kill-interview/
+
+Exclusive interview with Jon Bernthal on Punisher: One Last Kill, Frank Castle’s MCU future, and Marvel’s darker direction.
+---------
+
+# Fantastic Four's Invisible Woman Can Kill Galactus, Confirmed
+
+Comics, Galactus
+
+Tue, 12 May 2026 23:30:20 GMT
+
+https://screenrant.com/galactus-weakness-invisible-woman-powers/
+
+A big step.
+---------
+
+# Apple TV’s 3-Part Crime Drama Is Officially Its Version Of The White Lotus
+
+Streaming TV, Masked Recs, The White Lotus
+
+Tue, 12 May 2026 23:30:20 GMT
+
+https://screenrant.com/your-friends-and-neighbors-apple-tv-version-the-white-lotus/
+
+Apple TV now has a satirical comedy-drama of its own to rival HBO's The White Lotus, which continues to get better with every new episode.
+---------
+
+# The Punisher: One Last Kill Cast & Character Guide: Who's Back From The Netflix Show?
+
+Superheroes, The Punisher: One Last Kill
+
+Tue, 12 May 2026 23:22:56 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-cast-character-guide/
+
+The Punisher: One Last Kill continues Frank Castle’s Marvel Cinematic Universe adventure, with a cast full of new and familiar faces alike.
+---------
+
+# Rooster Creators Discuss Season 2,  Returning Characters & Emotional Season 1 Finale
+
+TV, Rooster, Steve Carell, Bill Lawrence, HBO Max
+
+Tue, 12 May 2026 23:21:19 GMT
+
+https://screenrant.com/rooster-season-1-ending-season-2-plot-returning-characters-bill-lawrence-matt-tarses/
+
+Rooster creators Bill Lawrence and Matt Tarses discuss their plans for season 2, including new characters and the emotional season 1 finale. Learn more about the show's future and how it will build on the first season's storylines.
+---------
+
+# Star Wars: Starfighter Will Break George Lucas' Number 1 Rule
+
+Movies, Star Wars: Starfighter, Star Wars
+
+Tue, 12 May 2026 23:15:21 GMT
+
+https://screenrant.com/star-wars-starfighter-skywalker-family-george-lucas-rule/
+
+Discover how Star Wars: Starfighter, set to release in 2027, will break George Lucas' most significant rule by departing from the Skywalker family focus that defined the franchise.
+---------
+
+# Disney+'s Smash Hit Space Opera That Started A Franchise Is One Of Its Best
+
+Movies, Masked Recs
+
+Tue, 12 May 2026 23:12:48 GMT
+
+https://screenrant.com/disney-plus-guardians-of-the-galaxy-sci-fi-movie-best/
+
+Disney+ is the home of a space opera that started one of the Sci-Fi genre's best franchises, and the movie is one of the best on the streamer.
+---------
+
+# 4 Years Later, Prime Video's 6-Part Sci-Fi With 95% RT Score Is Still One Of Its Best Shows Of All Time
+
+Streaming TV, Masked Recs
+
+Tue, 12 May 2026 23:12:19 GMT
+
+https://screenrant.com/the-expanse-revisited-amazon-prime-best-series/
+
+One epic space opera may have concluded its phenomenal run in 2022, but its impact on science fiction is still being felt across every new release.
+---------
+
+# Pokémon Winds & Waves Is Officially Going To Be More Expensive Than We Thought
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Tue, 12 May 2026 23:00:20 GMT
+
+https://screenrant.com/pokemon-winds-waves-switch-2-price-increases/
+
+After official confirmation that Nintendo Switch 2 prices are increasing, it's looking like Pokémon Winds & Waves may suffer a similar fate.
+---------
+
+# Free Crunchyroll Rival Is Quietly Giving Anime Fans What They Actually Want in May 2026
+
+Anime, Crunchyroll, Streaming, viz media, 86: EIGHTY-SIX, Naruto, Bleach, Hunter X Hunter, RWBY
+
+Tue, 12 May 2026 23:15:14 GMT
+
+https://www.cbr.com/pluto-tv-free-anime-streaming-schedule-may-2026/
+
+Pluto TV is joining forces with a major manga publisher to beat out Crunchyroll as the best anime streaming service this month.
+---------
+
+# Ridley Scott’s $630M Sci-Fi Praised by Space Experts Returns as PVOD Hit in America
+
+Movies, The Martian, Sci-Fi
+
+Tue, 12 May 2026 23:11:29 GMT
+
+https://www.cbr.com/the-martian-sci-fi-success-pvod-vudu-may-2026/
+
+Ridley Scott's highly regarded space movie has returned to the PVOD charts in America following the success of its spiritual sequel.
+---------
+
+# 10 Most Universally Beloved Movie Masterpieces of the 1970s, Ranked
+
+Movies, Sci-Fi, Rocky, Star Wars
+
+Tue, 12 May 2026 23:00:13 GMT
+
+https://www.cbr.com/beloved-perfect-movies-1970s-list/
+
+The 1970s is widely regarded as a second golden age for Hollywood, and it produced plenty of films regarded as timeless masterpieces.
+---------
+
+# Apple TV’s Only Sci-Fi Series With No Bad Episodes Finally Gets Season 3 Return Update
+
+TV News, Severance, Adam Scott, Apple TV, Sci-Fi
+
+Tue, 12 May 2026 23:45:13 GMT
+
+https://collider.com/apple-tv-sci-fi-series-severance-season-3-update-adam-scott/
+
+Apple TV's only sci-fi show with no bad episodes, Severance, gets an exciting Season 3 return update from leading star Adam Scott.
+---------
+
+# 'Reacher' Season 5 Could Be Its Best Yet — but Only With This Lee Child Book
+
+TV Features, Reacher, Prime Video, Series, Streaming
+
+Tue, 12 May 2026 23:30:13 GMT
+
+https://collider.com/reacher-season-5-worth-dying-for-best-book-adaptation/
+
+Worth Dying For could give Reacher Season 5 its darkest villains and most intense action story yet.
+---------
+
+# In Just 1 Week, Netflix's New Spy Thriller Is Officially the Biggest 'Reacher' Competitor Yet
+
+TV News, Yahya Abdul-Mateen II, Man on Fire, Netflix, Reacher
+
+Tue, 12 May 2026 23:30:13 GMT
+
+https://collider.com/netflix-reacher-replacement-spy-thriller-man-on-fire-11-million-views-first-week/
+
+Netflix's action-packed new series, Man on Fire, has clocked 11 million views in its opening week of release. Find out more.
+---------
+
+# =Apple TV’s 8-Part Sleeper Hit Miniseries Officially Becomes a Sci-Fi Show in Its Best Episode So Far
+
+TV Features, Margo's Got Money Troubles, Apple TV, Elle Fanning, Michelle Pfeiffer
+
+Tue, 12 May 2026 23:18:14 GMT
+
+https://collider.com/margos-got-money-troubles-apple-tv-miniseries-genre-change-best-episode/
+
+Apple TV's Margo's Got Money Troubles delves into sci-fi in its sixth episode, adding a new layer to the miniseries.
+---------
+
+# The Spy Thriller That Inspired ‘Reacher’ Casts Generational Heartthrob in Season 2 Villain Role
+
+TV News, The Day of the Jackal, Eddie Redmayne, Matt Bomer, Reacher
+
+Tue, 12 May 2026 23:15:14 GMT
+
+https://collider.com/peacock-day-of-the-jackal-season-2-cast-matt-bomer-villain-role/
+
+Peacock's spy thriller series The Day of the Jackal is making major progress, with Matt Bomer being cast in a villain role for the second season.
+---------
+
+# This 83% Rotten Tomatoes Sci‑Fi Western Is 'Jurassic Park' Meets 'Tombstone'
+
+Movie Features, Westworld, Jurassic Park, Tombstone, Sci-Fi
+
+Tue, 12 May 2026 23:15:14 GMT
+
+https://collider.com/westworld-movie-sci-fi-western-jurassic-park-meets-tombstone/
+
+The twisted 1973 movie Westworld merges the best parts of iconic films Jurassic Park and Tombstone.
+---------
+
+# David Tennant’s Best Series Since ‘Doctor Who’ Is a Massive Hit on Rotten Tomatoes
+
+TV News, Rivals, David Tennant, Hulu, Rotten Tomatoes
+
+Tue, 12 May 2026 23:00:13 GMT
+
+https://collider.com/hulu-david-tennant-series-rivals-season-2-rotten-tomatoes-score-is-it-good/
+
+Hulu's raunchy cult classic series, Rivals, has stunned critics with a near-perfect debut on Rotten Tomatoes.
+---------
+
+# ‘Sons of Anarchy’s Biggest Unresolved Storyline Is Still Its Most Troubling Failure
+
+TV Features, Sons of Anarchy, Charlie Hunnam, Katey Segal, FX
+
+Tue, 12 May 2026 22:46:13 GMT
+
+https://collider.com/sons-of-anarchy-season-2-zobelle-gemma-storyline-biggest-mistake/
+
+Sons of Anarchy Season 2 left Ethan Zobelle’s brutal Gemma Teller storyline unresolved, making it one of the show’s most frustrating arcs.
+---------
+
+# 'Camp Rock 3' Gets Release Window and First Poster
+
+Movie News, Camp Rock
+
+Tue, 12 May 2026 23:37:32 GMT
+
+https://movieweb.com/camp-rock-3-first-look-release-window/
+
+The long-awaited third film in the 'Camp Rock' series starring the Jonas Brothers will debut on Disney+ and Disney Channel in August 2026.
+---------
+
+# 'Devil May Cry' Season 2 Lands Perfect 100% Return on Rotten Tomatoes
+
+TV News, Devil May Cry, Netflix
+
+Tue, 12 May 2026 23:01:42 GMT
+
+https://movieweb.com/devil-may-cry-season-2-rotten-tomatoes/
+
+The video game adaptation is another hit for the streaming platform.
+---------
+
+# Prime Video's 'Sex Criminals' Will Be Ever Ruder Than 'The Boys'
+
+Features, Sex Criminals, The Boys, Prime Video
+
+Tue, 12 May 2026 23:00:18 GMT
+
+https://movieweb.com/sex-criminals-more-r-rated-the-boys-prime-video/
+
+Prime Video's new comic book adaptation, 'Sex Criminals,' will be even more R-rated than 'The Boys.'
+---------
+
 # Godzilla’s Next Era Begins With Ambitious 4-Part Origin Reboot
 
 Comics, Godzilla
