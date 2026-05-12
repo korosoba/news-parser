@@ -1,3 +1,322 @@
+# Marvel’s VisionQuest Series Gets Official 2026 Disney+ Release Date
+
+TV, Vision Quest, Marvel Cinematic Universe
+
+Tue, 12 May 2026 21:05:11 GMT
+
+https://screenrant.com/visionquest-show-disney-plus-release-date-mcu/
+
+Paul Bettany's VisionQuest TV show finally gets its official release day on Disney+, as the next installment in the WandaVision trilogy is on its way.
+---------
+
+# HBO's Global Hit 8-Part Fantasy Series Fails In Its Hardest Task
+
+TV, Masked Recs
+
+Tue, 12 May 2026 21:00:23 GMT
+
+https://screenrant.com/hbo-game-of-thrones-ending-bad-hardest-task/
+
+One of the biggest TV shows of all time, this 8-part HBO fantasy series failed in the hardest task it could have faced, but there could be a fix.
+---------
+
+# Jujutsu Kaisen Star Just Dropped First Season 4 Tease, And The Fandom Simply Isn't Prepared (Exclusive)
+
+Anime, Jujutsu Kaisen
+
+Tue, 12 May 2026 21:00:23 GMT
+
+https://screenrant.com/jujutsu-kaisen-first-season-4-tease/
+
+Yuji Itadori's English dub voice actor gave ScreenRant his next most-anticipated moment in Jujutsu Kaisen he knows fans will love.
+---------
+
+# PlayStation Drops Free Game For All, No PS Plus Required
+
+Gaming, PlayStation, Triple-A Games
+
+Tue, 12 May 2026 21:00:23 GMT
+
+https://screenrant.com/playstation-free-game-may-2026-no-ps-plus-blindfire/
+
+While PlayStation Plus offers monthly free games to grab, the PSN will often give us freebies, with no strings or subscriptions attached.
+---------
+
+# Ahsoka Season 2 Release Window Officially Confirmed By Disney
+
+TV, Ahsoka
+
+Tue, 12 May 2026 20:55:28 GMT
+
+https://screenrant.com/ahsoka-season-2-release-window-confirmed-disney-plus-star-wars/
+
+Ahsoka gets a release window from Disney+ after the Star Wars series concluded its first season with a major cliffhanger almost three years ago.
+---------
+
+# Avatar: Fire & Ash Gets Official Disney+ Release Date
+
+Movies, Avatar: Fire and Ash
+
+Tue, 12 May 2026 20:53:30 GMT
+
+https://screenrant.com/avatar-fire-and-ash-disney-plus-release-date-confirmed/
+
+Following its theatrical run, James Cameron's Avatar. Fire & Ash has finally landed its official streaming release date on the Disney+ platform.
+---------
+
+# Prime Video's 10/10 Superhero Series Makes The MCU's Multiverse Look Small
+
+TV, Marvel Cinematic Universe, Prime Video, Masked Recs
+
+Tue, 12 May 2026 20:45:21 GMT
+
+https://screenrant.com/invincible-prime-video-mcu-multiverse-feel-small/
+
+This unexpected choice makes Prime Video's critically acclaimed animated superhero series feel larger than life compared to the MCU's multiverse.
+---------
+
+# Baldur’s Gate 3: All Dribbles The Clown Body Part Locations
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC, Triple-A Games
+
+Tue, 12 May 2026 20:30:22 GMT
+
+https://screenrant.com/baldurs-gate-bg3-dribbles-clown-part-locations/
+
+In Baldur's Gate 3, you can search for the body parts of Dribbles the Clown. Seven body parts can be found all across Baldur's Gate and Rivington.
+---------
+
+# 10 Chilling Ghost Movies Nobody Talks About Today
+
+Movies, Lake Mungo, Mama, The Woman In Black, Grave Encounters, Stir of Echoes, The Orphanage, Session 9, The Innkeepers, We Are Still Here, The Changeling
+
+Tue, 12 May 2026 20:30:21 GMT
+
+https://screenrant.com/ghost-movies-nobody-talks-about-today/
+
+We all know the most popular ghost movies, but many frightening entries in the genre are rarely talked about nowadays and are worth your time.
+---------
+
+# Dutton Ranch Creator's Firing By Taylor Sheridan Gets First Official Response From Producer
+
+TV, Dutton Ranch, Dutton Ranch - Season 1, Yellowstone, Taylor Sheridan
+
+Tue, 12 May 2026 20:25:10 GMT
+
+https://screenrant.com/dutton-ranch-creator-firing-taylor-sheridan-christina-voros-response/
+
+Exclusive: Returning Yellowstone franchise producer Christina Voros offers the first official response on Dutton Ranch's creator getting fired.
+---------
+
+# After 3-Year Wait, Star Wars: Ahsoka Season 2 Gets Official Disney+ Release Window
+
+TV, Ahsoka, Disney+, Star Wars
+
+Tue, 12 May 2026 21:10:27 GMT
+
+https://www.cbr.com/star-wars-ahsoka-season-2-release-disney-plus-2027/
+
+Star Wars fans will have to wait even longer than expected for Ahsoka Season 2.
+---------
+
+# The Punisher: One Last Kill Redefines Frank Castle's Antihero Journey
+
+TV, The Punisher: One Last Kill, Marvel Cinematic Universe, Disney+
+
+Tue, 12 May 2026 21:09:31 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-frank-castle-antihero/
+
+The Punisher: One Last Kill finally gives Frank Castle a comics-accurate upgrade, evolving him beyond revenge and into a genuine antihero protector.
+---------
+
+# 5 Years Later, WandaVision Spinoff Finally Gets Disney+ Release Update
+
+TV, Vision Quest
+
+Tue, 12 May 2026 21:09:25 GMT
+
+https://www.cbr.com/visionquest-october-2026-disney-plus-debut/
+
+After five years, we finally know when Paul Bettany's WandaVision spinoff is going to debut on Disney+.
+---------
+
+# Disney's Avatar: Fire and Ash Finally Sets Disney+ Release Date
+
+Movies, Avatar: Fire and Ash
+
+Tue, 12 May 2026 21:04:43 GMT
+
+https://www.cbr.com/disney-avatar-fire-and-ash-disney-plus-release-date-june-2026/
+
+The new entry just topped the charts on digital platforms, over a month since its release.
+---------
+
+# 5 Forgotten Book-to-Movie Adaptations That Are Perfect From Start to Finish
+
+Movies, Stardust
+
+Tue, 12 May 2026 21:01:13 GMT
+
+https://www.cbr.com/perfect-book-to-movie-adaptations-no-one-remembers-list/
+
+Not every movie is Lord of the Rings and there are plenty of forgotten book-to-movie adaptations that deserve to be seen.
+---------
+
+# Shared Universe Competing With Marvel and DC Launches Cosmic Series
+
+Comics, indie comics
+
+Tue, 12 May 2026 20:58:59 GMT
+
+https://www.cbr.com/exclusive-summit-comics-wayfarer-scott-snyder/
+
+In a CBR exclusive interview, see how Summit Comics is launching a new series that will explore its cosmos in a throwback science fiction concept
+---------
+
+# Guillermo del Toro & Ron Perlman Reunite for Epic Fantasy Film
+
+Movies, guillermo del toro, Hellboy
+
+Tue, 12 May 2026 20:54:54 GMT
+
+https://www.cbr.com/guillermo-del-toro-ron-perlman-the-buried-giant/
+
+Guillermo del Toro and Ron Perlman are finally reuniting for another epic film, but it's not Hellboy 3.
+---------
+
+# 10 Greatest R-Rated Westerns Since Unforgiven
+
+Movies, Western, Unforgiven, Tombstone
+
+Tue, 12 May 2026 20:30:13 GMT
+
+https://www.cbr.com/best-r-rated-westerns-since-unforgiven-list/
+
+Clint Eastwood turned in the greatest R-rated Western ever made when he directed Unforgiven, pushing Hollywood towards the dark side of the West.
+---------
+
+# 10 Most Epic Westerns of the Last 50 Years, Ranked
+
+Movies, Western
+
+Tue, 12 May 2026 20:30:13 GMT
+
+https://www.cbr.com/greatest-westerns-last-50-years-list/
+
+The epic Western is a dying art form in Hollywood, but some movies prove it's still ripe with potential for good storytelling.
+---------
+
+# Netflix’s 6-Part Thriller Based on a Book Is Officially the No. 1 Most-Watched Show of 2026
+
+TV, Netflix, His & Hers
+
+Tue, 12 May 2026 20:21:31 GMT
+
+https://www.cbr.com/netflix-his-hers-most-watched-series-2026/
+
+Netflix is dominating streaming in 2026 with the year's most-watched series so far.
+---------
+
+# Disney's Biggest Star Wars Series Officially Returns in 2027
+
+TV News, Ahsoka, Disney+, Dave Filoni, Rosario Dawson
+
+Tue, 12 May 2026 21:05:26 GMT
+
+https://collider.com/star-wars-series-ahsoka-season-2-disney-plus-release-window-early-2027/
+
+At long last, we finally know when Ahsoka Season 2 will premiere on Disney+, but fans will still have to wait a while.
+---------
+
+# 20 Years Later, This Massive Disaster Epic Is Reclaiming the Streaming Spotlight
+
+Movie News, The Day After Tomorrow, Peacock, Science Fiction, Jake Gyllenhaal
+
+Tue, 12 May 2026 20:00:13 GMT
+
+https://collider.com/biggest-disaster-movies-of-the-2000s-the-day-after-tomorrow-streaming-success-may-2026/
+
+Discover why The Day After Tomorrow, the 2004 climate change disaster film starring Jake Gyllenhaal and Dennis Quaid, is making a streaming comeback.
+---------
+
+# Stephen King Sci-Fi Series 'The Institute' Continues To Be a Hit for MGM+
+
+TV News, Stephen King, The Institute, Hot on Streaming, Sci-Fi, Horror
+
+Tue, 12 May 2026 21:00:21 GMT
+
+https://movieweb.com/stephen-king-the-institute-streaming-hit-mgm-plus-may-2026/
+
+Nine months after Season 1 of 'The Institute' came to a close, the sci-fi horror series continues to draw in viewers on MGM+.
+---------
+
+# HBO's 'House of the Dragon' Will Officially Rewrite 'Game of Thrones' Tradition Next Month
+
+Features, House of the Dragon, Game of Thrones
+
+Tue, 12 May 2026 21:00:21 GMT
+
+https://movieweb.com/hbo-house-of-the-dragon-rewrite-game-of-thrones-tradition/
+
+The 'Game of Thrones' prequel promises action from the get-go, breaking franchise tradition and setting a new standard.
+---------
+
+# 'Moon Knight' Creator Finally Addresses His Exit From the Disney+ Series
+
+TV News, Moon Knight, MCU, Jeremy Slater
+
+Tue, 12 May 2026 20:59:21 GMT
+
+https://movieweb.com/moon-knight-creator-explains-exit-marvel-mortal-kombat-ii/
+
+'Moon Knight' creator Jeremy Slater clashed with a director on the Marvel TV show, but had a much smoother experience working on 'Mortal Kombat II.'
+---------
+
+# 'Lord of the Rings' Icon Elijah Wood Honors Peter Jackson at Cannes Film Festival Opening
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Elijah Wood, Peter Jackson
+
+Tue, 12 May 2026 20:42:51 GMT
+
+https://movieweb.com/lord-of-the-rings-peter-jackson-elijah-wood-cannes/
+
+'The Lord of the Rings' star Elijah Wood helped to honor director Peter Jackson as part of the 2026 Cannes Film Festival
+---------
+
+# 'Punisher: One Last Kill' Director Wants a Feature Film With Jon Bernthal
+
+TV News, The Punisher: One Last Kill, Reinaldo Marcus Green, MCU
+
+Tue, 12 May 2026 20:17:19 GMT
+
+https://movieweb.com/punisher-one-last-kill-future-return/
+
+The director behind the Marvel Studios Special Presentation would be open to returning to the character in the future.
+---------
+
+# 'The Punisher: One Last Kill' Director Wants To Bring Miles Morales Spider-Man Into the MCU
+
+Movie News, Spider-Man, The Punisher: One Last Kill, MCU
+
+Tue, 12 May 2026 20:02:17 GMT
+
+https://movieweb.com/punisher-director-miles-morales-spider-man-mcu/
+
+The director of 'King Richard' wants to return to Marvel to bring Miles Morales / Spider-Man to live-action.
+---------
+
+# 'Obsession' Review: Be Careful What You Wish for in Gruesome Friend-Zone Horror
+
+3 star movies, Obsession
+
+Tue, 12 May 2026 20:00:19 GMT
+
+https://movieweb.com/obsession-review/
+
+Curry Barker's 'Obsession' is a slow-burn horror thriller that explores the dangerous consequences of wish fulfillment.
+---------
+
 # Netflix's 4-Part Jurassic Park Series Makes The Franchise's Most Disappointing Movie Better
 
 TV, Masked Recs
