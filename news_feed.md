@@ -1,3 +1,443 @@
+# Official New Pokémon Winds & Waves Video Drops
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Wed, 13 May 2026 16:36:14 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-video/
+
+Pokémon Winds & Waves is still a long way away, slated for a 2027 release, but for now, we can enjoy this official video from Nintendo.
+---------
+
+# The Rings Of Power Season 3's Confirmed Release Date Creates An Almighty Streaming Battle
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Harry Potter
+
+Wed, 13 May 2026 16:32:19 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-streaming-battle/
+
+The Rings of Power season 3's November 11 release date sets the stage for a massive fantasy streaming showdown between Prime Video and HBO.
+---------
+
+# Marvel Officially Brings Back Forgotten MCU Villains With A Major Redesign
+
+Marvel Comics, Marvel
+
+Wed, 13 May 2026 16:30:19 GMT
+
+https://screenrant.com/superman-origin-change-kents-adopted/
+
+One of Marvel's most powerful villains uses a cosmic weapon to transform another antagonist's army into enhanced versions of his own followers.
+---------
+
+# Ted Lasso Star Signs With Real Life Pro Soccer Club
+
+TV, Ted Lasso
+
+Wed, 13 May 2026 16:24:38 GMT
+
+https://screenrant.com/ted-lasso-cristo-fernandez-pro-soccer-club-sign-contract/
+
+A Ted Lasso star signs with a real-life professional soccer club, turning his role into reality ahead of the season 4 premiere this summer.
+---------
+
+# Mashle Season 3 Gets Official Release Window
+
+Anime, Mashle: Magic and Muscles
+
+Wed, 13 May 2026 16:17:57 GMT
+
+https://screenrant.com/mashle-anime-season-3-release-date-window/
+
+After two long years, Mashle: Magic and Muscles finally gets an official Season 3 release window and new visual, leaving fans excited for what's next.
+---------
+
+# Every MCU Movie Trilogy, Ranked Worst To Best
+
+Movies, Marvel Cinematic Universe, Ranking
+
+Wed, 13 May 2026 16:15:19 GMT
+
+https://screenrant.com/mcu-movie-trilogies-ranked/
+
+The MCU has given trilogies to six of its main characters over the years, with some being among the best film trilogies to ever grace the big screen.
+---------
+
+# In The Grey Clip Highlights Jake Gyllenhaal's Threatening Aura
+
+Videos, In the Grey, Jake Gyllenhaal, Chelsea Handler, Eiza González
+
+Wed, 13 May 2026 16:00:29 GMT
+
+https://screenrant.com/video/in-the-grey-movie-jake-gyllenhaal-eiza-gonzalez-guy-ritchie-clip/
+
+Exclusive: ScreenRant presents a clip from In The Grey, Guy Ritchie's spy action thriller starring Jake Gyllenhaal, Henry Cavill & Eiza González.
+---------
+
+# The Boys Season 5's Most Heartbreaking Death Yet Addressed By Creator
+
+TV, The Boys
+
+Wed, 13 May 2026 16:00:29 GMT
+
+https://screenrant.com/the-boys-season-5-frenchie-death-eric-kripke/
+
+EXCLUSIVE: The Boys creator Eric Kripke acknowledges season 5's most heartbreaking death yet as the series finale of the superhero show looms.
+---------
+
+# How The Boys Season 5 Convinced Daveed Diggs To Break His Musical Rejection Streak After Hamilton
+
+TV, The Boys
+
+Wed, 13 May 2026 16:00:29 GMT
+
+https://screenrant.com/the-boys-season-5-musical-number-rejection-convince-daveed-diggs/
+
+EXCLUSIVE: Daveed Diggs explains how The Boys season 5 convinced him to break his musical rejection streak after having starred in Hamilton.
+---------
+
+# Devil May Cry Season 2 Is Somehow Even Worse Than Season 1
+
+Anime, Devil May Cry, Op-Ed
+
+Wed, 13 May 2026 16:00:29 GMT
+
+https://screenrant.com/devil-may-cry-anime-season-2-failure/
+
+Devil May Cry is still a travesty.
+---------
+
+# 10 Life-Changing Slice-of-Life Anime for People Who Hate Slice-of-Life
+
+Anime, Girls' Last Tour, The Devil Is a Part-Timer!, Barakamon
+
+Wed, 13 May 2026 16:15:13 GMT
+
+https://www.cbr.com/slice-of-life-anime-for-people-who-hate-slice-of-life/
+
+The best slice-of-life anime carry deep meaning beneath their pastel surface.
+---------
+
+# Robert Kirkman Confirms Invincible's Biggest Fight Is On The Way
+
+Comics, Invincible, Invincible (TV Show), Invincible Presents: Atom Eve
+
+Wed, 13 May 2026 16:05:28 GMT
+
+https://www.cbr.com/robert-kirkman-confirms-invincible-biggest-fight-is-on-the-way/
+
+The fight against Thragg and the Viltrumites could pale in comparison to this.
+---------
+
+# The Boys Season 5: Nathan Mitchell Explains the Biggest Black Noir Changes Yet
+
+CBR Exclusives, The Boys
+
+Wed, 13 May 2026 16:04:32 GMT
+
+https://www.cbr.com/the-boys-season-5-black-noir-changes-nathan-mitchell/
+
+Unveiling the duality of Black Noir, The Boys delves into the intricate layers of the enigmatic character, subverting audience expectations.
+---------
+
+# Tom Hanks' New World War II Series Officially Comes Out in 2 Weeks
+
+TV, Tom Hanks
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://www.cbr.com/world-war-2-with-tom-hanks-history-channel-release-date/
+
+After Saving Private Ryan, Tom Hanks' new project can give it a new run for its money.
+---------
+
+# The Boys Confirms the Only Member of the Seven Who Can't Die
+
+TV, The Boys, superheroes, Prime Video
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://www.cbr.com/the-boys-the-deep-only-member-the-seven-who-should-live/
+
+While it's looking more and more like every member of The Seven will perish by the end of The Boys, for one, the punishment of life would be worse.
+---------
+
+# Stephen King-Backed Western, Killing Faith, Becomes a Sleeper Hit
+
+Movies, Stephen King, Killing Faith, Western
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://www.cbr.com/stephen-king-killing-faith-supernatural-western-sleeper-hit-streaming/
+
+Stephen King is a huge tastemaker in the world of horror and his endorsement of a supernatural western may have helped it become a sleeper hit.
+---------
+
+# Why 1883 Season 2 Was Canceled
+
+TV, Yellowstone, 1883
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://www.cbr.com/yellowstone-1883-season-2-canceled-explained/
+
+Despite Yellowstone's overall success, the prequel 1883 did not get a Season 2, and there are many reasons behind the shocking cancellation.
+---------
+
+# Scarlet Witch and Doctor Strange Are Officially Reuniting, Marvel Reveals
+
+Comics, Doctor Strange, Scarlet Witch
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://www.cbr.com/marvel-scarlet-witch-doctor-strange-return-details/
+
+The Scarlet Witch will officially return - and she's going to give Doctor Strange a run for his money.
+---------
+
+# Disney+’s New Marvel Special Scores Higher RT Than Original as Netflix Series Surges
+
+TV, The Punisher: One Last Kill, Marvel Cinematic Universe, Disney+
+
+Wed, 13 May 2026 15:34:59 GMT
+
+https://www.cbr.com/disney-plus-marvel-the-punisher-one-last-kill-rt-score-netflix-pvod/
+
+Marvel's latest is outdoing the Netflix show, but the original series is surging as well.
+---------
+
+# The Punisher's Absence in Daredevil: Born Again Explained in One Last Kill
+
+TV, The Punisher: One Last Kill, MCU, Daredevil: Born Again
+
+Wed, 13 May 2026 15:28:22 GMT
+
+https://www.cbr.com/punisher-one-last-kill-fixes-daredevil-born-again-mcu-timeline/
+
+Disney+'s new MCU Special Presentation One Last Kill reveals why The Punisher wasn't in Daredevil: Born Again Season 2.
+---------
+
+# Only 8 Musical Biopics Can Be Considered True Masterpieces
+
+Movie, Musical, A Complete Unknown, Biopic, Amadeus
+
+Wed, 13 May 2026 16:34:13 GMT
+
+https://collider.com/musical-biopic-movies-masterpieces/
+
+A few precious musical biopics, like Rocketman and Amadeus, go beyond mere frivolity to offer a more intimate portrayal of larger-than-life figures.
+---------
+
+# Forget ‘Bosch’ — Titus Welliver’s New Crime Series Is the Gritty ‘Narcos’ Replacement You Need
+
+TV Features, Bosch, Titus Welliver, Narcos, MGM
+
+Wed, 13 May 2026 16:06:49 GMT
+
+https://collider.com/bosch-tv-series-replacement-the-westies-titus-welliver/
+
+Titus Welliver’s new MGM+ crime drama The Westies premieres July 12 and could be the perfect gritty binge for Narcos fans.
+---------
+
+# ‘The Boys’ Star Teases a “Full Circle” Ending for The Deep That’s Well Deserved
+
+Exclusives, The Boys, Chace Crawford, Antony Starr, Eric Kripke
+
+Wed, 13 May 2026 16:01:17 GMT
+
+https://collider.com/the-boys-season-5-episode-7-chace-crawford-interview/
+
+Chace Crawford discusses The Boys Season 5, The Deep's loyalty to Homelander, that Samuel L. Jackson voice cameo, and his finale fate.
+---------
+
+# 'The Boys' Rocky Penultimate Episode Is Saved by a Powerful Cliffhanger | Review
+
+TV Reviews, The Boys, Karl Urban, Tomer Capone, Prime Video
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://collider.com/the-boys-season-5-episode-7-recap-prime-video/
+
+The penultimate episode of The Boys has a rocky start but a strong conclusion, setting up a heartbreaking series finale next week.
+---------
+
+# 'Off Campus' Star Officially Confirms Hannah and Garrett Are Still a Big Part of Season 2
+
+Exclusives, Ladies Night, Ella Bright, Off Campus, Prime Video
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://collider.com/off-campus-season-2-hannah-and-garrett-ella-bright/
+
+Off Campus' Ella Bright joins Perri Nemiroff for a Ladies Night interview to discuss Hannah's biggest moments in Season 1 and the character's future.
+---------
+
+# ‘The Boys’ Creator Knew Season 5’s Most Heartbreaking Moment Had To “Rip the Audience’s Heart Out”
+
+Exclusives, The Boys, Eric Kripke, Antony Starr, Jensen Ackles
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://collider.com/the-boys-season-5-episode-7-frenchie-death-meaning-eric-kripke-interview/
+
+Show Creator Eric Kripke discusses The Boys Season 5, that heartbreaking death, the Gen V cancellation, and the mix of fights and heart in the finale.
+---------
+
+# Hulu's Crime Comedy Sleeper Hit Welcomes an 'SNL' Favorite and Tony Nominee in New Season 2 Sneak Peek [Exclusive]
+
+TV News, Deli Boys, Hulu, Asif Ali, Collider Exclusive Preview
+
+Wed, 13 May 2026 16:00:19 GMT
+
+https://collider.com/deli-boys-season-2-sneak-peek-hulu-crime-series/
+
+A new sneak peek at Deli Boys Season 2 introduces Fred Armisen and Andrew Rannells as an eccentric casino magnate and district attorney duo.
+---------
+
+# TV's Next Great Sci-Fi Spin-Off Sets Release Date With First Teaser
+
+TV News, The Big Bang Theory, Stuart Fails to Save the Universe, HBO Max, Kevin Sussman
+
+Wed, 13 May 2026 15:05:33 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-release-date-teaser-the-big-bang-theory-sci-fi-spin-off-hbo-max/
+
+Warner Bros. released the first teaser for Stuart Fails to Save the Universe, promising a bonkers sci-fi spin-off to The Big Bang Theory.
+---------
+
+# Disney’s New Anime-Inspired Fantasy Series Looks Like Its Next Big Hit [Exclusive]
+
+Exclusives, DisneyXD, Collider Exclusive Preview, Sports, Fantasy
+
+Wed, 13 May 2026 15:00:13 GMT
+
+https://collider.com/dragon-striker-images-disney-animated-fantasy-soccer-series/
+
+New images from Disney's animated sports fantasy series Dragon Striker show off a fierce underdog team of superpowered soccer players.
+---------
+
+# Hulu's Biggest Sci-Fi Series Ever Sets Season 14 Release Date With First Perfect Images [Exclusive]
+
+Exclusives, Futurama, Hulu, Matt Groening, Collider Exclusive Preview
+
+Wed, 13 May 2026 15:00:13 GMT
+
+https://collider.com/hulu-sci-fi-series-futurama-season-14-release-date-first-images/
+
+Hulu is preparing Futurama Season 14 for blast-off with a release date and new images teasing another zany sci-fi adventure for Planet Express.
+---------
+
+# 'Backrooms' Official Final Trailer Teases A24's Liminal Nightmare
+
+Movie News, Backrooms, A24
+
+Wed, 13 May 2026 16:17:35 GMT
+
+https://movieweb.com/backrooms-final-trailer-a24/
+
+A new look at Kane Parsons' A24 horror film, 'Backrooms,' starring Chiwetel Ejiofor and Renate Reinsve, has been released online.
+---------
+
+# 'The Boys' Season 5 Theory Uses Spin-off To Revert a Major Character Death
+
+Features, The Boys
+
+Wed, 13 May 2026 16:05:19 GMT
+
+https://movieweb.com/the-boys-season-5-theory-frenchie-death/
+
+'The Boys' Season 5, Episode 7, "The Frenchman, the Female, and the Man Called Mother's Milk," features a major character death.
+---------
+
+# Netflix Action Hit 'Man on Fire' Soars to Over 23 Million Views
+
+TV News, Man on Fire, Hot on Streaming, Action, Netflix
+
+Wed, 13 May 2026 16:01:45 GMT
+
+https://movieweb.com/man-on-fire-ratings-netflix-streaming-may-4-10-2026/
+
+Netflix's action thriller series added an additional 12.6 million views to its total, making it the most-watched series for the week of May 4-10.
+---------
+
+# The Weakest Anime Characters of All Time
+
+TV Lists, Anime
+
+Wed, 13 May 2026 16:00:27 GMT
+
+https://movieweb.com/weakest-anime-characters-of-all-time/
+
+Their contribution to battle may be minimal, but these characters' impact on the show’s dynamic was nothing short of delightful.
+---------
+
+# 'Punisher: One Last Kill' Casts the Perfect Marvel Villain to Face Frank Castle [Exclusive]
+
+Exclusives, Punisher, The Punisher: One Last Kill, MCU
+
+Wed, 13 May 2026 16:00:26 GMT
+
+https://movieweb.com/the-punisher-one-last-kill-villain-judith-light/
+
+Reinaldo Marcus Green, the director of 'The Punisher: One Last Kill' details Judith Light's impact on the series as the villainous Ma Gnucci.
+---------
+
+# First 'Stuart Fails to Save the Universe' Teaser Trailer Reveals Sci-Fi Action 'Big Bang Theory' Spin-Off
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Wed, 13 May 2026 15:55:50 GMT
+
+https://movieweb.com/stuart-fails-to-save-the-universe-teaser-trailer/
+
+'Stuart Fails to Save the Universe' teaser trailers unveils the first big-budget sci-fi action series set in the 'Big Bang Theory' universe.
+---------
+
+# 'Rush Hour 4': Brett Ratner Scouting Locations in China With Donald Trump
+
+Movie News, Rush Hour 4, Brett Ratner, Donald Trump
+
+Wed, 13 May 2026 15:02:46 GMT
+
+https://movieweb.com/rush-hour-4-brett-ratner-donald-trump-china-trip/
+
+'Rush Hour 4' director Brett Ratner is reportedly traveling to China with Donald Trump to scout locations ahead of production on the action sequel.
+---------
+
+# The Best Movies About the Roman Empire, Ranked
+
+Movie Lists
+
+Wed, 13 May 2026 15:00:19 GMT
+
+https://movieweb.com/roman-empire-best-movies/
+
+The Roman Empire remains a cinematic staple, and here are the best movies to explore the era's scale and scandals.
+---------
+
+# 'The Boys' Season 5 Officially Kills Off Main Character Ahead of Series Finale
+
+TV News, The Boys
+
+Wed, 13 May 2026 14:45:32 GMT
+
+https://movieweb.com/the-boys-season-5-episode-7-death/
+
+The latest episode of 'The Boys' killed off a key character from the series since the show debuted in 2019.
+---------
+
+# 'The Odyssey' Cyclops Actor Confirmed as 'Interstellar’s Bill Irwin
+
+Movie News, Bill Irwin, The Odyssey, Christopher Nolan
+
+Wed, 13 May 2026 14:15:16 GMT
+
+https://movieweb.com/the-odyssey-cyclops-bill-irwin-interstellar/
+
+Christopher Nolan's 'The Odyssey' has confirmed Bill Irwin, the 'Interstellar' actor behind TARS, as the performer guiding the film’s Cyclops.
+---------
+
 # Star Wars: Fate Of The Old Republic Story Length Praised By Gamers
 
 Gaming, Star Wars: Fate of the Old Republic, Triple-A Games
