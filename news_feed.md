@@ -1,3 +1,399 @@
+# Chris Pratt’s 'Terminal List' Franchise Finally Rivals ‘Reacher’ After Season 2 Release Date Reveal
+
+Streaming TV, The Terminal List, Chris Pratt
+
+Wed, 13 May 2026 18:52:19 GMT
+
+https://screenrant.com/chris-pratt-terminal-list-season-2-release-rivals-reacher/
+
+Chris Pratt's The Terminal List franchise on Prime Video can finally rival Alan Ritchson's popular Reacher series after its new season 2 date reveal.
+---------
+
+# Disney+'s 2-Season The Punisher Series With Jon Bernthal Is The Perfect Weekend Binge
+
+Superheroes, Masked Recs
+
+Wed, 13 May 2026 18:50:19 GMT
+
+https://screenrant.com/the-punisher-disney-plus-action-thriller-series-must-watch/
+
+Disney+'s action thriller series that tells a revenge story in bloody fashion across two seasons is the perfect weekend binge, and it is timely.
+---------
+
+# Widow’s Bay Episode 4 Recap: Patricia’s Demented Cocktail Party Means More Trouble For The Island
+
+Streaming TV, Widow's Bay
+
+Wed, 13 May 2026 18:45:20 GMT
+
+https://screenrant.com/widows-bay-episode-4-recap/
+
+Widow's Bay season 1, episode 4, "Beach Reads," dives into exactly what went wrong at Patricia's anticipated Sunset Cocktails event.
+---------
+
+# Barbara Gordon's Batgirl Officially Reveals Her New Codename in DC Lore
+
+Comics, Batgirl
+
+Wed, 13 May 2026 18:31:19 GMT
+
+https://screenrant.com/batgirl-barbara-gordon-new-codename-breakout/
+
+Barbara Gordon has a new mission, but not as a bat.
+---------
+
+# Netflix’s Yellowstone Replacement Could Last Forever
+
+TV, Masked Recs, Netflix
+
+Wed, 13 May 2026 18:31:19 GMT
+
+https://screenrant.com/ansom-canyon-netflix-western-book-series-last-forever/
+
+One Netflix Western show that can match Yellowstone became the streaming service's first entry in the genre in years to last more than one outing.
+---------
+
+# Daredevil: Born Again Season 2's Ending Sets Up A Truly Powerful Villain For Season 3
+
+TV, Daredevil: Born Again
+
+Wed, 13 May 2026 18:31:19 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-ending-3-villain/
+
+Daredevil: Born Again season 2's finale ended Daredevil's latest battle with Kingpin, but it may be setting up an even bigger threat for season 3.
+---------
+
+# Maggie Hands Over Lucille To Negan In First Image For The Walking Dead: Dead City Season 3
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Wed, 13 May 2026 18:21:52 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-image-lucille-maggie-negan/
+
+Maggie hands Lucille over to Negan in a first image for The Walking Dead: Dead City season 3 as the spinoff show's upcoming return looms.
+---------
+
+# Punisher: One Last Kill's Dog Scene Fuels Outrage As Director Defends It's "Vital" To MCU Special
+
+TV, The Punisher: One Last Kill, The Punisher
+
+Wed, 13 May 2026 18:21:39 GMT
+
+https://screenrant.com/punisher-one-last-kill-dog-death-viewer-outrage-explained-reinaldo-martin-green/
+
+Even though The Punisher: One Last Kill has received mostly positive reviews, the director is pushing back against criticism of the dog scene.
+---------
+
+# Futurama Season 14 Release Date Confirmed For Hulu's Hit Sci-Fi Series
+
+TV, Futurama
+
+Wed, 13 May 2026 18:15:22 GMT
+
+https://screenrant.com/futurama-season-14-hulu-release-date-image/
+
+The release date for Futurama season 14 has been confirmed, revealing when Hulu's hit animated sci-fi series will be coming back with more episodes.
+---------
+
+# Halo: Rogue Will Keep You Busy Until Campaign Evolved Launches
+
+Gaming, Halo, Minecraft, Triple-A Games, PC
+
+Wed, 13 May 2026 18:09:52 GMT
+
+https://screenrant.com/halo-rogue-minecraft-mode-xbox/
+
+Halo: Campaign Evolved will define the future of the Halo series, but there's something new for fans to occupy themselves with in the meantime.
+---------
+
+# Netflix Is Finally Giving Harlan Coben Fans the Series They've Been Waiting For (& Extends Deal)
+
+TV, Netflix
+
+Wed, 13 May 2026 18:50:11 GMT
+
+https://www.cbr.com/netflix-harlan-coben-myron-bolitar-adaptation/
+
+The partnership between Netflix and Harlen Coben continues with highly anticipated adaptation.
+---------
+
+# 10 Thriller Anime You Should Watch in 2026
+
+Anime, Thriller
+
+Wed, 13 May 2026 18:45:13 GMT
+
+https://www.cbr.com/best-thriller-anime-2026/
+
+Sometimes powerful thriller anime slide under the radar, but these selections deserve attention today.
+---------
+
+# One Piece Fans Get First-Look Reveal at New Official Nike Release for Fall 2026
+
+Anime, One Piece, Clothing, merchandise
+
+Wed, 13 May 2026 18:40:58 GMT
+
+https://www.cbr.com/one-piece-nike-devil-fruit-sneaker-first-look/
+
+A One Piece x Nike sneaker collection featuring Eiichiro Oda's famous Devil Fruit designs is on the horizon, with a first look now revealed.
+---------
+
+# The Punisher: One Last Kill Goes Viral as Fans Compare CGI to PlayStation 3 Graphics
+
+TV, The Punisher: One Last Kill, Marvel Cinematic Universe, Disney+
+
+Wed, 13 May 2026 18:38:22 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-viral-scene-cgi-playstation-3/
+
+Marvel's The Punisher special on Disney+ is going viral for the wrong reasons.
+---------
+
+# Once Upon a Time in America Officially Getting a Prequel
+
+Movies, Once Upon a Time in America
+
+Wed, 13 May 2026 18:21:20 GMT
+
+https://www.cbr.com/once-upon-a-time-in-america-origins-movie/
+
+Over four decades later, the iconic gangster movie is officially getting an origins film.
+---------
+
+# HBO's Perfect 10/10 Drama Breaks Tradition With Confirmed Time Setting
+
+TV, The Pitt
+
+Wed, 13 May 2026 18:07:51 GMT
+
+https://www.cbr.com/hbo-the-pitt-season-3-change-time-setting/
+
+The series is expected to return early next year.
+---------
+
+# The Legend of Korra Sequel Confirmed — Release May Happen Sooner Than Fans Expected
+
+Comics, The Legend of Korra
+
+Wed, 13 May 2026 18:04:44 GMT
+
+https://www.cbr.com/legend-of-korra-sequel-kya-secret-of-the-sands-graphic-novel-confirmed/
+
+Avatar fans get their first look at the upcoming Korra story releasing later this summer.
+---------
+
+# Scarlet Witch Fans Need To Read This Forgotten Solo Avengers Issue
+
+Comics, Scarlet Witch, Marvel, Avengers
+
+Wed, 13 May 2026 18:00:13 GMT
+
+https://www.cbr.com/a-love-that-never-dies-scarlet-witch-forgotten-comic/
+
+A short story from 1987's Solo Avengers #5 finds Scarlet Witch learning an important lesson while face-to-face with a familiar foe.
+---------
+
+# Tomb Raider Free DLC Officially Available Until May 19
+
+Games, Tomb Raider, PowerWash Simulator
+
+Wed, 13 May 2026 17:55:13 GMT
+
+https://www.cbr.com/tomb-raider-free-dlc-powerwash-simulator-may-19/
+
+One of the most underrated indie games of the decade is giving away free Tomb Raider DLC, but fans only have days left to get it for themselves.
+---------
+
+# CBS Officially Confirms Nick Torres' Status After NCIS Season 23 Finale Cliffhanger
+
+TV, NCIS
+
+Wed, 13 May 2026 17:51:23 GMT
+
+https://www.cbr.com/ncis-season-23-nick-torres-fate-confirmed/
+
+A major update on Nick Torres' fate has been officially revealed following the NCIS Season 23 cliffhanger.
+---------
+
+# The Fate of Netflix's Better 'Ted Lasso' Replacement Has Finally Been Decided
+
+TV News, Running Point, Kate Hudson, Netflix, Ted Lasso
+
+Wed, 13 May 2026 18:51:13 GMT
+
+https://collider.com/netflix-ted-lasso-replacement-running-point-season-3-renewed-kate-hudson/
+
+Netflix has decided the fate of Kate Hudson's Netflix series, Running Point, after 2 seasons.
+---------
+
+# Netflix's New 10/10 Crime Thriller Is Officially Returning for Season 2
+
+TV News, Big Mistakes, Dan Levy, Netflix, Schitt's Creek
+
+Wed, 13 May 2026 18:49:14 GMT
+
+https://collider.com/netflix-dan-levy-crime-series-big-mistakes-season-2-renewed/
+
+Netflix has officially renewed Dan Levy's latest must-watch crime series, Big Mistakes, and also signed the star/writer to a first-look deal.
+---------
+
+# Netflix Is Officially Making a Sequel to Another Adam Sandler Classic After 13 Years of Fan Demand
+
+Movie News, Grown Ups, Grown Ups 2, Adam Sandler, Netflix
+
+Wed, 13 May 2026 18:47:13 GMT
+
+https://collider.com/netflix-adam-sandler-sequel-grown-ups-3-announced/
+
+Netflix has confirmed Grown Ups 3 is in development, with Adam Sandler co-writing and producing.
+---------
+
+# J.K. Simmons Rules Hell's Kitchen in MGM+'s Brutal New ‘Gangs of New York’ Meets ‘The Sopranos’ Crime Saga [Exclusive]
+
+Exclusives, The Westies, Titus Welliver, J.K. Simmons, Collider Exclusive Preview
+
+Wed, 13 May 2026 18:00:13 GMT
+
+https://collider.com/new-crime-thriller-the-westies-mgm-plus-jk-simmons-first-look-image/
+
+Get a first look at The Westies, a crime drama set in the early 1980s featuring J.K. Simmons as Eamon Sweeney, head of the Irish-American gang.
+---------
+
+# Steven Spielberg's Most-Anticipated Sequel Is Officially Happening
+
+Movie News, The Adventures of Tintin, Steven Spielberg, Peter Jackson, Fran Walsh
+
+Wed, 13 May 2026 17:54:40 GMT
+
+https://collider.com/steven-spielberg-sequel-the-adventures-of-tintin-2-script-update/
+
+15 years later, an Adventures of Tintin sequel is finally happening, with Peter Jackson providing a long-awaited script update.
+---------
+
+# ‘The Boys’ Is Repeating the Exact Pattern That Broke This 5-Part Sci-Fi Series
+
+TV Features, The Boys, Stranger Things, Vought Rising, Stranger Things: The First Shadow
+
+Wed, 13 May 2026 17:54:13 GMT
+
+https://collider.com/the-boys-stranger-things-prequel-setup-problem-meaning/
+
+The Boys has been more focused on setting up a prequel than wrapping up its final season, similar to Stranger Things.
+---------
+
+# The Last 10 Stephen King Books, Ranked
+
+Movie, Stephen King, Books, The Outsider, Horror
+
+Wed, 13 May 2026 17:41:14 GMT
+
+https://collider.com/stephen-king-last-10-books-ranked/
+
+Although none come close to his early masterpieces, Stephen King has written many gems late in his literary career, from Elevation to The Outsider.
+---------
+
+# In Just 1 Week, Netflix's New Fantasy Epic Has Shattered an All-Time Viewership Record
+
+Movie News, Swapped, Netflix, Fantasy, Michael B. Jordan
+
+Wed, 13 May 2026 17:10:57 GMT
+
+https://collider.com/new-netflix-fantasy-movie-swapped-all-time-viewership-record-michael-b-jordan/
+
+Michael B. Jordan's new fantasy movie, Swapped, has officially claimed an all-time streaming record in just one week.
+---------
+
+# Lucille Is Officially Back in First Look at ‘The Walking Dead: Dead City’ Season 3 [Exclusive]
+
+Exclusives, The Walking Dead: Dead City, Collider Exclusive Preview, Jeffrey Dean Morgan, Lauren Cohan
+
+Wed, 13 May 2026 17:00:13 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-first-look-image-lucille-maggie-negan/
+
+Maggie, Negan, and Lucille take front and center in a brand new look at The Walking Dead: Dead City Season 3. See it here.
+---------
+
+# HBO Max's 'The Pitt' Season 3 Officially Confirms First Plot Details
+
+TV News, The Pitt, Noah Wyle, HBO Max, HBO
+
+Wed, 13 May 2026 16:59:24 GMT
+
+https://collider.com/hbo-max-the-pitt-season-3-setting-early-november-noah-wyle/
+
+Noah Wyle has confirmed when The Pitt Season 3 will take place as work kicks off on the HBO Max series' next chapter.
+---------
+
+# 'The Pitt' Season 3 Officially Sets November Time Jump & Holiday Setting
+
+TV News, The Pitt, HBO Max
+
+Wed, 13 May 2026 18:44:53 GMT
+
+https://movieweb.com/the-pitt-season-3-time-jump-november/
+
+Season 3 of 'The Pitt' will officially be set in November, taking on a new holiday setting after Season 2's Fourth of July timeframe.
+---------
+
+# 'The Boys' Season 5, Episode 7 Recap & Review: Kills Characters and Momentum
+
+TV Reviews, The Boys
+
+Wed, 13 May 2026 18:11:41 GMT
+
+https://movieweb.com/the-boys-season-5-episode-7-recap-review/
+
+The end is drawing near on 'The Boys,' and the stakes have never been higher.
+---------
+
+# 6 Reasons Why Reviews for the New Horror Movie ‘Obsession’ Are So Incredible
+
+Features, Obsession, Horror
+
+Wed, 13 May 2026 18:00:19 GMT
+
+https://movieweb.com/horror-movie-obsession-2026-positive-reviews/
+
+Critics have praised the movie's gut-wrenching gore, wicked humor, and an all-time horror performance from its lead actress in reviews.
+---------
+
+# 'The Punisher: One Last Kill' Lands Fresh Rotten Tomatoes Score
+
+TV News, The Punisher: One Last Kill
+
+Wed, 13 May 2026 17:54:10 GMT
+
+https://movieweb.com/the-punisher-one-last-kill-rotten-tomatoes-score/
+
+'The Punisher: One Last Kill' continues the MCU's hot streak as it scored an 85% fresh rating and strong audience score.
+---------
+
+# Samuel L. Jackson Makes Surprise Voiceover Cameo in 'The Boys' Season 5, Episode 7
+
+TV News, The Boys, Samuel L. Jackson
+
+Wed, 13 May 2026 17:40:58 GMT
+
+https://movieweb.com/the-boys-samuel-l-jackson-cameo-season-5/
+
+The penultimate episode of 'The Boys' included a wild cameo from Samuel L. Jackson, portraying a shark.
+---------
+
+# David Fincher's New 4K Ultra HD 'Fight Club' Release Changes His 1999 Cult Classic
+
+Features, Fight Club, David Fincher
+
+Wed, 13 May 2026 17:00:19 GMT
+
+https://movieweb.com/david-fincher-fight-club-4k-hd-version-changes/
+
+David Fincher is officially entering his George Lucas phase with the director making divisive changes for 'Fight Club's new 4K Ultra HD release.
+---------
+
 # Official New Pokémon Winds & Waves Video Drops
 
 Gaming, Pokemon Winds and Waves, Triple-A Games
