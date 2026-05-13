@@ -1,3 +1,212 @@
+# Pokémon Reveals Two New Exclusive Squishmallows
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 13 May 2026 04:30:19 GMT
+
+https://screenrant.com/pokemon-squishmallows-raichu-oshawott-pokemon-center-exclusives/
+
+The Pokémon Company is no slouch when it comes to merchandise, and there are two new exclusive Squishmallows to peruse right now.
+---------
+
+# David Tennant's Rivals Season 2 Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs, David Tennant, Hulu
+
+Wed, 13 May 2026 03:56:47 GMT
+
+https://screenrant.com/david-tennant-rivals-season-2-rotten-tomatoes-score/
+
+David Tennant has a very busy television schedule, including his returning hit series, which has debuted with a rare Rotten Tomatoes score.
+---------
+
+# Jujutsu Kaisen Proved That Gojo Was the Strongest, But Not For the Reason Fans Thought
+
+Anime, Jujutsu Kaisen
+
+Wed, 13 May 2026 03:45:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-gojo-strongest-hard-work/
+
+The outstanding power of Satoru Gojo does not come from his family's techniques alone, as proven by Jujutsu Kaisen's latest chapters.
+---------
+
+# "A Dream Come True": Dragon Ball's Studio May Have Its Coolest Successor Already (Exclusive)
+
+Anime, Dragon Ball, Webtoon
+
+Wed, 13 May 2026 03:00:20 GMT
+
+https://screenrant.com/dragon-ball-successor-toei-animation-gosu-anime/
+
+Dragon Ball's studio is always hard at work, but this particular collaboration is a huge one to follow for fans of Korea's manhwa scene.
+---------
+
+# Dark Shonen Anime Appeals to Western Audiences for 1 Simple Reason
+
+Anime, Shonen, Jujutsu Kaisen, Chainsaw Man, Hell's Paradise: Jigokuraku (2023), Dorohedoro, Attack on Titan, Horror
+
+Wed, 13 May 2026 03:45:14 GMT
+
+https://www.cbr.com/dark-shonen-anime-horror-movie-connection/
+
+Dark shonen anime has risen in popularity in the West thanks to its borrowed elements from traditional horror films.
+---------
+
+# The 10 Most Perfectly Directed Thrillers Of the 21st Century, Ranked
+
+Movies, Thriller, Gone Girl
+
+Wed, 13 May 2026 03:45:14 GMT
+
+https://www.cbr.com/10-perfectly-directed-thrillers-21st-century-ranked/
+
+Thriller movies are a dime a dozen in the 21st century, but only a select few have perfect direction
+---------
+
+# NCIS: Origins Officially Canceled Gibbs and Lala's Romantic Storyline
+
+TV, NCIS, NCIS: Origins
+
+Wed, 13 May 2026 03:30:13 GMT
+
+https://www.cbr.com/ncis-origins-season-2-romance-gibbs-lala/
+
+NCIS: Origins canceled a highly anticipated Leroy Jethro Gibbs story due to lore that already exists about Mark Harmon's legendary character.
+---------
+
+# Donald Gibb, Revenge of the Nerds Star, Dies at 71
+
+Movies, obituary, Revenge of the Nerds
+
+Wed, 13 May 2026 03:24:49 GMT
+
+https://www.cbr.com/donald-gibb-dead/
+
+Donald Gibb, who appeared in iconic 80s movies like Revenge of the Nerds and Bloodsport, has passed away.
+---------
+
+# Every Rockstar Game Ranked (& What GTA 6 Can Learn From Them)
+
+Games, rockstar games, Grand Theft Auto, Red Dead Redemption
+
+Wed, 13 May 2026 03:15:15 GMT
+
+https://www.cbr.com/every-rockstar-game-ranked-what-gta6-can-learn/
+
+This is every Rockstar game ranked from Table Tennis to RDR2 — and the exact design lessons GTA 6 must steal from each one before November.
+---------
+
+# 10 Classic Game Consoles That Are Unplayable Today
+
+Games, retro games
+
+Wed, 13 May 2026 03:00:12 GMT
+
+https://www.cbr.com/throwback-game-console-aged-badly-nintendo-sega-list/
+
+Some of the best game consoles of the past are totally unplayable these days.
+---------
+
+# Patlabor Returns With New Manga One-Shot After 32 Years in First Look
+
+Anime, Patlabor: The TV Series
+
+Wed, 13 May 2026 03:00:12 GMT
+
+https://www.cbr.com/patlabor-2026-new-manga-release-date/
+
+Patlabor is back in 2026, with the original manga writer and artist returning for an upcoming one-shot that continues the futuristic story.
+---------
+
+# LEGO Officially Reveals Biggest Lord of the Rings Set Ever
+
+Games, LEGO, The Lord of the Rings
+
+Wed, 13 May 2026 02:52:39 GMT
+
+https://www.cbr.com/lord-of-the-rings-largest-lego-set-ever/
+
+The Lord of the Rings gets its biggest-ever LEGO set.
+---------
+
+# Every Sean Connery James Bond Movie in Order
+
+Movies, James Bond
+
+Wed, 13 May 2026 02:45:13 GMT
+
+https://www.cbr.com/every-sean-connery-james-bond-movie-list/
+
+There have been countless Bond films, but with Sean Connery as the first, he has quite a few movies worth watching.
+---------
+
+# 10 Near-Perfect Shojo Anime That Prove Shojo Isn't Just Romance
+
+Anime, Shojo, Ouran High School Host Club
+
+Wed, 13 May 2026 02:45:13 GMT
+
+https://www.cbr.com/shojo-anime-more-than-romance/
+
+People often equate shojo with romance, but so many amazing anime series prove it's far more than just love stories.
+---------
+
+# Forget 'Alien' — Netflix’s Overlooked 8-Part Sci-Fi Horror Series Turns 1 Fatal Error Into a Survival Nightmare
+
+TV Features, Exception, Netflix, Horror, Sci-Fi
+
+Wed, 13 May 2026 04:45:12 GMT
+
+https://collider.com/netflix-sci-fi-horror-series-exception-survival-nightmare/
+
+Netflix's 8-part sci-fi horror series intertwines survival in space with profound existential questions about humanity.
+---------
+
+# 8 Praiseworthy Dark Fantasy Movies No One Ever Talks About
+
+Movie, Fantasy, Sleepy Hollow, The Dark Crystal, The Green Knight
+
+Wed, 13 May 2026 04:27:13 GMT
+
+https://collider.com/great-dark-fantasy-movies-no-one-talks-about/
+
+The Dark Crystal, The Last Unicorn, Sleepy Hollow, The Green Knight, and more make up our list of dark fantasy movies no one talks about.
+---------
+
+# Only 5 Fantasy Movies From the 2010s Can Be Considered True Masterpieces
+
+Movie, Fantasy, The Shape of Water, How to Train Your Dragon, Midnight in Paris
+
+Wed, 13 May 2026 04:15:12 GMT
+
+https://collider.com/fantasy-movies-2010s-true-masterpieces/
+
+The 2010s gave us many great fantasy movies, but only some, like The Shape of Water and How to Train Your Dragon, can be considered true masterpieces.
+---------
+
+# Netflix’s 6-Part Crime Thriller Is the Perfect ‘Ozark’ Replacement Fans Have Been Waiting For
+
+TV Features, Legends, Netflix, Ozark, Steve Coogan
+
+Wed, 13 May 2026 03:42:12 GMT
+
+https://collider.com/netflix-new-crime-series-legends-tv-ozark-replacement-streaming/
+
+Based on a riveting true story, Netflix's Legends might be the streamer's next great drama.
+---------
+
+# 50 Years Later, These Are the 10 Best Movies of 1976
+
+Movie, Taxi Driver, Rocky, All the President's Men, Network
+
+Wed, 13 May 2026 03:26:12 GMT
+
+https://collider.com/best-movies-of-1976/
+
+Taxi Driver, Rocky, and Network are all among the very best classic movies from the red-letter cinema year of 1976.
+---------
+
 # 14 Biggest Easter Eggs, MCU References, and Netflix Nods in The Punisher: One Last Kill
 
 Superheroes, The Punisher: One Last Kill, Marvel Cinematic Universe
