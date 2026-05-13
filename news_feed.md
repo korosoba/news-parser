@@ -1,3 +1,366 @@
+# The Next Rocky Balboa Has Officially Been Chosen
+
+TV, Creed, Rocky, Delphi
+
+Wed, 13 May 2026 20:23:21 GMT
+
+https://screenrant.com/creed-delphi-spinoff-show-next-rocky-balboa/
+
+The Rocky franchise has finally selected its next story with the news that Creed's long-awaited spinoff series Delphi is set to start filming.
+---------
+
+# Prime Video's The Summer I Turned Pretty Movie Gets First Image Reuniting Belly & Conrad
+
+Movies, The Summer I Turned Pretty
+
+Wed, 13 May 2026 20:22:27 GMT
+
+https://screenrant.com/the-summer-i-turned-pretty-movie-image-belly-conrad/
+
+The Summer I Turned Pretty may have ended in 2025, but the series is continuing with a movie, and the first image from the set has been released.
+---------
+
+# The Librarians: The Next Chapter Season 2 Release Date
+
+TV, The Librarians: The Next Chapter
+
+Wed, 13 May 2026 20:20:56 GMT
+
+https://screenrant.com/the-librarians-the-next-chapter-season-2-release-date-tnt-confirmed/
+
+Warner Bros. Discovery announced the return of The Librarians: The Next Chapter and the science fiction series' release date on TNT.
+---------
+
+# Chicago Med Season 12: Release Date, Story, & Everything We Know
+
+Network TV, Chicago Med, One Chicago
+
+Wed, 13 May 2026 20:15:20 GMT
+
+https://screenrant.com/chicago-med-season-12-explained/
+
+NBC is bringing Chicago Back for season 12 following the season 11 finale, guaranteeing another round for One Chicago's medical drama.
+---------
+
+# Will Ferrell’s Netflix Ted Lasso Replacement The Hawk Sets Premiere Date & First Trailer
+
+TV
+
+Wed, 13 May 2026 20:08:24 GMT
+
+https://screenrant.com/will-ferrell-the-hawk-netflix-2026-premiere-date-trailer/
+
+Ted Lasso season 4 is releasing this summer, but Netflix has their own sports comedy series on the way with Will Ferrell's new show The Hawk.
+---------
+
+# Bryan Cranston’s ‘Breaking Bad’ Follow-Up Thriller Is Officially Leaving Netflix Soon – Last Chance To Binge
+
+Streaming TV, Masked Recs
+
+Wed, 13 May 2026 20:07:20 GMT
+
+https://screenrant.com/bryan-cranston-breaking-bad-follow-up-your-honor-leaving-netflix-soon/
+
+Bryan Cranston's follow-up thriller series after Breaking Bad ended is officially leaving Netflix soon, making this month the last chance to binge it.
+---------
+
+# GTA 6 Trailer 3 Date Has Gamers Losing Their Minds
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6, Rockstar Games
+
+Wed, 13 May 2026 20:00:19 GMT
+
+https://screenrant.com/gta-6-missed-trailer-3-date-reaction/
+
+Gamers eagerly await potential release of Grand Theft Auto VI trailer 3 in May, as excitement builds for the highly anticipated game's launch in Nov.
+---------
+
+# The Ultimate Solo Leveling Killer Teases 2027 Anime, And It Could Be Huge
+
+Anime, Omniscient Reader (2020), Solo Leveling
+
+Wed, 13 May 2026 19:51:27 GMT
+
+https://screenrant.com/solo-leveling-killer-omniscient-readers-viewpoint-anime-2027-release/
+
+While fans wait for an update on Season 3 of Solo Leveling, its biggest rival, Omniscienmt Reader, has locked down a 2027 anime release.
+---------
+
+# Marvel Is Rebooting Captain America: Brave New World, And It's Glorious
+
+Marvel Comics, Marvel Cinematic Universe, Marvel
+
+Wed, 13 May 2026 19:41:04 GMT
+
+https://screenrant.com/captain-america-brave-new-world-dissapointment-reboot/
+
+Marvel secretly released a remake of one of the MCU's most controversial Phase 5 releases to improve a villain's arc and set up an even bigger event.
+---------
+
+# Venom Lore Changes Forever, as the Symbiote Picks a Powerful New Host (Exclu
+
+Comics, Thor, Venom
+
+Wed, 13 May 2026 19:39:45 GMT
+
+https://screenrant.com/marvel-what-if-thor-venom-symbiote/
+
+Here comes the light.
+---------
+
+# Is Curtis Dead in The Punisher: One Last Kill?
+
+TV, The Punisher: One Last Kill, The Punisher, Marvel Cinematic Universe
+
+Wed, 13 May 2026 20:25:50 GMT
+
+https://www.cbr.com/is-curtis-dead-in-the-punisher-one-last-kill/
+
+The Punisher: One Last Kill finally sees Frank Castle's friend Curtis return, but leaves fans wondering if he is truly alive.
+---------
+
+# Fruits Basket Is Still the Perfect Shojo Anime, Here's Why
+
+Anime, Fruits Basket, Fruits Basket -prelude-
+
+Wed, 13 May 2026 20:15:13 GMT
+
+https://www.cbr.com/fruits-basket-most-perfect-shojo-anime-explained/
+
+Fruits Basket is a beautiful story about love, acceptance, and breaking toxic cycles that stands tall as peak shojo storytelling.
+---------
+
+# Joker’s Batcave Debuts in Absolute Batman — and One Detail Makes No Sense
+
+Comics, Absolute Batman
+
+Wed, 13 May 2026 20:00:12 GMT
+
+https://www.cbr.com/absolute-batman-joker-batcave-revealed/
+
+Secrets of Absolute Joker's lair unveiled!
+---------
+
+# Obsession Officially Makes This DC Star An Instant Horror Icon
+
+Movies, Obsession, Superman & Lois
+
+Wed, 13 May 2026 20:00:12 GMT
+
+https://www.cbr.com/obsession-inde-navarrette-horror-icon/
+
+An unlikely DC TV star is making the jump to a new genre and becoming one of the new icons of horror films.
+---------
+
+# Demon Slayer: Does Tanjiro Become a Demon?
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 13 May 2026 20:00:12 GMT
+
+https://www.cbr.com/demon-slayer-does-tanjiro-become-demon/
+
+Tanjiro and the Demon Slayer Corps put all their might into battling Muzan and his demons, but what happens if Tanjiro becomes a demon?
+---------
+
+# Netflix Officially Decides the Future of Kate Hudson's Hit Series 3 Weeks After Season Finale
+
+TV, Running Point
+
+Wed, 13 May 2026 19:36:59 GMT
+
+https://www.cbr.com/netflix-kate-hudson-running-point-season-3-future/
+
+The LA Waves are going for another win.
+---------
+
+# Netflix Reveals Fiery First Look at Florence Pugh's Modern Adaptation of Classic Novel
+
+TV, East of Eden, Netflix
+
+Wed, 13 May 2026 19:33:45 GMT
+
+https://www.cbr.com/netflix-release-window-first-look-east-of-eden/
+
+A literary masterpiece gets a modern reimagining with Florence Pugh at Netflix.
+---------
+
+# Terminator: The Sarah Connor Chronicles Is a Streaming Hit
+
+TV, Terminator: The Sarah Connor Chronicles, Sci-Fi, Apple TV
+
+Wed, 13 May 2026 19:31:13 GMT
+
+https://www.cbr.com/terminator-sarah-connor-chronicles-sci-fi-streaming-success-may-2026/
+
+A cult classic Terminator spinoff series is rising on the streaming charts almost two decades after its premature cancellation.
+---------
+
+# Vault Comics’ Hit Medieval Fantasy Series Is Coming to Netflix
+
+Comics, Barbaric
+
+Wed, 13 May 2026 19:22:24 GMT
+
+https://www.cbr.com/barbaric-comic-netflix-adaptation-confirmed/
+
+Vault Comics' best-selling series is set to captivate audiences with its medieval fantasy drama on Netflix.
+---------
+
+# Once Upon a Time Completely Changed Neverland Lore
+
+TV, Once Upon A Time, Fantasy, Disney
+
+Wed, 13 May 2026 19:00:13 GMT
+
+https://www.cbr.com/once-upon-a-time-dark-neverland-lore/
+
+One fantasy show reimagined Neverland as a nightmarish realm where Peter Pan rules through manipulation and the Lost Boys are trapped forever.
+---------
+
+# ‘House of the Dragon’ Season 3 Officially Reveals One of House Stark’s Most Legendary Warriors
+
+TV News, Game Of Thrones, House of the Dragon, HBO, HBO Max
+
+Wed, 13 May 2026 19:59:14 GMT
+
+https://collider.com/game-of-thrones-house-of-the-dragon-season-3-black-aly-reveal-tease-first-look/
+
+HBO has released a first look at House of the Dragon Season 3, which reveals a glimpse of a key figure in House Stark lore. See it here.
+---------
+
+# Netflix Officially Announces New 'KPop Demon Hunters' Project for 2026
+
+Movie News, KPop Demon Hunters, Netflix, Animation, Musical
+
+Wed, 13 May 2026 19:35:15 GMT
+
+https://collider.com/new-netflix-kpop-demon-hunters-project-global-concert-tour/
+
+Netflix and AEG Presents are launching a global KPop Demon Hunters concert tour inspired by the Oscar-winning film.
+---------
+
+# Netflix Officially Orders New Fantasy Series From 'X-Men: First Class' Writer
+
+TV News, Sam Claflin, Netflix, Sheldon Turner, Fantasy
+
+Wed, 13 May 2026 19:31:48 GMT
+
+https://collider.com/netflix-barbaric-comic-book-series-adaptation-x-men-first-class-writer-sheldon-turner/
+
+Netflix has officially confirmed an adaptation of the cult classic comic Barbaric is officially in the works. Read on for more.
+---------
+
+# Netflix Reveals Official Release Window for 'Bridgerton' Season 5
+
+TV News, Bridgerton, Netflix, Shonda Rhimes, Romance
+
+Wed, 13 May 2026 19:28:51 GMT
+
+https://collider.com/netflix-romance-series-bridgerton-season-5-release-window-2027/
+
+Bridgerton fans rejoice! The hit romance saga will officially return sometime in 2027. Read on for more.
+---------
+
+# 'Top Gun's 40th Anniversary Popcorn Buckets Will Have You Feeling the "Need for Speed"
+
+Movie News, Tom Cruise, top gun, Top Gun: Maverick, Joseph Kosinski
+
+Wed, 13 May 2026 19:23:03 GMT
+
+https://collider.com/top-gun-40th-anniversary-flight-helmet-popcorn-buckets-tom-cruise/
+
+Tom Cruise's Top Gun is returning to theaters for its 40th anniversary, and now its incredible popcorn buckets have been revealed.
+---------
+
+# 10 Slickest Action Movies of All Time
+
+Movie, Action, The Bourne Ultimatum, The Matrix, Drive
+
+Wed, 13 May 2026 19:19:14 GMT
+
+https://collider.com/slickest-action-movies-all-time/
+
+The slickest action movies ever made, like Mad Max: Fury Road and Drive, offer the perfect balance of narrative, choreography, spectacle, and pacing.
+---------
+
+# Netflix Officially Doubles Down on Harlan Coben Crime Thrillers
+
+TV News, Harlan Coben, Netflix, Run Away, I Will Find You
+
+Wed, 13 May 2026 19:09:58 GMT
+
+https://collider.com/netflix-harlan-coben-crime-thrillers-first-look-deal/
+
+Netflix has signed an exclusive first-look deal with Harlan Coben to bring more of his crime thrillers to the screen.
+---------
+
+# Tony Danza's Mob Boss Is Ready for War in New 'Power Book III: Raising Kanan' Season 5 Image [Exclusive]
+
+Exclusives, Power Book III: Raising Kanan, STARZ, Crime, Collider Exclusive Preview
+
+Wed, 13 May 2026 19:00:14 GMT
+
+https://collider.com/power-book-3-raising-kanan-season-5-image-tony-danza/
+
+A new image from Power Book III: Raising Kanan's fifth and final season sees Tony Danza's mob boss Stefano looking fierce and ready for war.
+---------
+
+# Florence Pugh Is One of Literature's Most Iconic Villains in First Look at New Netflix Thriller
+
+TV News, Florence Pugh, Zoe Kazan, Christopher Abbott, East of Eden
+
+Wed, 13 May 2026 18:56:13 GMT
+
+https://collider.com/netflix-florence-pugh-thriller-john-steinbeck-adaptation-east-of-eden-first-look-teaser/
+
+Florence Pugh will star in Netflix's new adaptation of John Steinbeck's classic novel, East of Eden. See the first look here.
+---------
+
+# Kate Hudson Comedy 'Running Point' Gets Season 3 Renewal From Netflix
+
+TV News, Running Point, Netflix, Kate Hudson
+
+Wed, 13 May 2026 20:13:28 GMT
+
+https://movieweb.com/running-point-season-3-netflix-renewal/
+
+Kate Hudson's 'Running Point' will dive into another season of basketball action after a Season 3 renewal from Netflix
+---------
+
+# First Photo for 'A Minecraft Sequel Confirms Kirsten Dunst as Alex
+
+Movie News, A Minecraft Movie 2, Kirsten Dunst
+
+Wed, 13 May 2026 19:47:10 GMT
+
+https://movieweb.com/minecraft-2-kirsten-dunst-alex-first-photo/
+
+The former 'Spider-Man' star steps into another iconic role as she will play Alex after the character was briefly teased in 'A Minecraft Movie.'
+---------
+
+# 'The Punisher: One Last Kill' Director Details Jon Bernthal's Most Emotional Disney+ Scene
+
+TV News, The Punisher: One Last Kill, Jon Bernthal, Reinaldo Marcus Green
+
+Wed, 13 May 2026 19:15:21 GMT
+
+https://movieweb.com/punisher-one-last-kill-jon-berthal-most-emotional-scene/
+
+Jon Bernthal gets one of his most emotional moments ever as the Punisher, as was detailed by 'One Last Kill' director Reinaldo Marcus Green.
+---------
+
+# 'Grown Ups 3' Officially in Development at Netflix With Adam Sandler Set To Return
+
+Movie News, Grown Ups, Grown Ups 2, Adam Sandler
+
+Wed, 13 May 2026 19:07:38 GMT
+
+https://movieweb.com/grown-ups-3-netflix-adam-sandler/
+
+It's official: Adam Sandler is set to return to his massively popular comedy 'Grown Ups' franchise for Netflix.
+---------
+
 # Chris Pratt’s 'Terminal List' Franchise Finally Rivals ‘Reacher’ After Season 2 Release Date Reveal
 
 Streaming TV, The Terminal List, Chris Pratt
