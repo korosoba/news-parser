@@ -1,3 +1,377 @@
+# 14 Biggest Easter Eggs, MCU References, and Netflix Nods in The Punisher: One Last Kill
+
+Superheroes, The Punisher: One Last Kill, Marvel Cinematic Universe
+
+Wed, 13 May 2026 02:00:31 GMT
+
+https://screenrant.com/punisher-one-last-kill-easter-eggs-mcu-references/
+
+The MCU's new Punisher special features some fun Easter eggs and MCU references, including some great callbacks to Frank Castle's Netflix era.
+---------
+
+# Dark Souls 3 10th Anniversary Remake Splits Gamers, And We Get it
+
+Gaming, Dark Souls 3
+
+Wed, 13 May 2026 02:00:31 GMT
+
+https://screenrant.com/dark-souls-3-10th-anniversary-remake-gamers-react/
+
+As Dark Souls III turns 10, fans debate the need for a remaster, with some arguing the game has aged well enough.
+---------
+
+# Jon Bernthal Explains Why The Punisher’s One Last Kill Ending Quietly Reinvents Frank Castle's MCU Story
+
+TV, The Punisher: One Last Kill, The Punisher, Marvel Cinematic Universe
+
+Wed, 13 May 2026 01:53:29 GMT
+
+https://screenrant.com/punisher-one-last-kill-ending-mcu-future-jon-bernthal/
+
+EXCLUSIVE: Jon Bernthal breaks down the ending of The Punisher: One Last Kill and how it sets up Frank Castle's next story in the MCU franchise.
+---------
+
+# It Took 10 Years, But Jon Bernthal Is Finally The Punisher
+
+Streaming TV, The Punisher: One Last Kill
+
+Wed, 13 May 2026 01:40:20 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-jon-bernthal-comic-accurate-version/
+
+Jon Bernthal has been hailed as one of the best actors to have portrayed The Punisher in live-action, but the MCU stands out as something different.
+---------
+
+# Punisher: One Last Kill Rotten Tomatoes Score Officially Breaks All-Time Marvel Record By Miles
+
+TV, The Punisher: One Last Kill, The Punisher, Marvel Cinematic Universe
+
+Wed, 13 May 2026 01:37:24 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-rotten-tomatoes-score-disney-plus/
+
+The Punisher: One Last Kill has premiered on Disney+, as the official Rotten Tomatoes score for Jon Bernthal's MCU special has finally arrived.
+---------
+
+# The Punisher: One Last Kill Ending Explained: What's Next For Frank Castle
+
+Streaming TV, The Punisher: One Last Kill
+
+Wed, 13 May 2026 01:30:20 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-ending-explained/
+
+The Punisher: One Last Kill does a lot to build Frank Castle's story in the MCU, with the special presentation opening several doors for the character
+---------
+
+# In Just 3 Weeks, A New WWII Movie With A Blockbuster Cast Is Officially Hitting Theaters
+
+Movies, Masked Recs
+
+Wed, 13 May 2026 01:16:35 GMT
+
+https://screenrant.com/world-war-2-movie-pressure-release-date-cast-details/
+
+A new World War II movie with a star-studded cast led by Brendan Fraser and Andrew Scott is coming to theaters in just three weeks from now.
+---------
+
+# Is There A Post-Credits Scene In The Punisher: One Last Kill?
+
+Streaming TV, The Punisher: One Last Kill
+
+Wed, 13 May 2026 01:16:20 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-post-credits-scene/
+
+The Punisher: One Last Kill stands out as the latest Marvel Special Presentation in the MCU, but it's unclear how it connects to the rest of the MCU.
+---------
+
+# Why The Punisher: One Last Kill Is So Short
+
+Streaming TV, The Punisher: One Last Kill
+
+Wed, 13 May 2026 01:10:20 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-runtime-short/
+
+The Punisher: One Last Kill has a shorter runtime than many episodes of other MCU TV shows, but it makes sense for the character and story.
+---------
+
+# NCIS’s Vance Replacement Frontrunner Sets Up Season 24’s Crisis
+
+TV, NCIS
+
+Wed, 13 May 2026 01:03:28 GMT
+
+https://screenrant.com/ncis-vance-replacement-laroche-season-24-story-set-up/
+
+The NCIS Season 23 finale unveiled a frontrunner to take over as the new director from Leon Vance, setting up a new crisis for the main characters.
+---------
+
+# 10 Must-Watch Isekai Anime That Have Zero Bad Seasons
+
+Anime, Isekai
+
+Wed, 13 May 2026 02:15:14 GMT
+
+https://www.cbr.com/best-isekai-anime-no-bad-seasons-list/
+
+Isekai anime like Re:Zero come close to perfection, with one amazing season after another.
+---------
+
+# The Legend of Zelda Movie: Everything We Know So Far
+
+Games, The Legend of Zelda
+
+Wed, 13 May 2026 02:15:14 GMT
+
+https://www.cbr.com/zelda-movie-information-release-date-leaks-rumors/
+
+While Nintendo still hasn’t released very much information about the upcoming Zelda movie, the small tidbits are adding up to paint a broader picture.
+---------
+
+# Sherlock's Clever Deduction Scene in Episode 1: A Study in Pink
+
+TV, Sherlock
+
+Wed, 13 May 2026 02:00:24 GMT
+
+https://www.cbr.com/sherlock-smartest-detective-scene-tv-history/
+
+One scene from the BBC's Sherlock still has people overthinking their actions more than a decade later.
+---------
+
+# 10 Most Perfect Movies About Grief
+
+Movies, Drama
+
+Wed, 13 May 2026 02:00:24 GMT
+
+https://www.cbr.com/perfect-movies-about-grief-list/
+
+If you need to feel seen or have a good cry, these are the perfect movies about grief to get you through a tough time.
+---------
+
+# 10 '90s Anime That Hold Up Better Than Modern Series
+
+Anime, Mobile Suit Gundam Wing, Slayers
+
+Wed, 13 May 2026 01:45:13 GMT
+
+https://www.cbr.com/90s-anime-better-than-modern-series/
+
+The '90s were a crucial decade for anime, introducing critical series like Trigun, Slayers and Gundam Wing, that hold their own with modern hits.
+---------
+
+# 10 Greatest Hidden Gem Manga You'll Wish You Read Sooner
+
+Anime, Manga, Shonen, seinen
+
+Wed, 13 May 2026 01:25:13 GMT
+
+https://www.cbr.com/greatest-hidden-gem-manga-you-need-to-read/
+
+Everyone knows about the greatness of Seinen like Berserk and Shojo like Nana, but these hidden gems deserve just as much attention.
+---------
+
+# The Punisher: One Last Kill Review: Jon Bernthal is at His Best in a Violent But Imperfect MCU Special
+
+TV, The Punisher: One Last Kill, Marvel Cinematic Universe
+
+Wed, 13 May 2026 01:00:12 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-review/
+
+The Punisher: One Last Kill delivers Jon Bernthal's best performance yet, but the special also struggles with familiar problems.
+---------
+
+# The Complete Hunger Games Timeline, (Including Sunrise on the Reaping)
+
+Movies, The Hunger Games
+
+Wed, 13 May 2026 01:00:12 GMT
+
+https://www.cbr.com/hunger-games-timeline-explained/
+
+The Hunger Games franchise has a rich history that fans love, and with Sunrise on the Reaping, even the timeline has grown incredibly.
+---------
+
+# 10 Most Perfect Video Games of the Last 40 Years
+
+Games, Nintendo, The Legend of Zelda, Elden Ring, Red Dead Redemption
+
+Wed, 13 May 2026 00:45:13 GMT
+
+https://www.cbr.com/most-perfect-video-games-last-40-years/
+
+Over the last 40 years, there have been platformers, RPGs, and open world games that are simply flawless from start to finish.
+---------
+
+# 5 Great Steampunk Movies Nobody Remembers
+
+Movies, The Rocketeer
+
+Wed, 13 May 2026 00:30:15 GMT
+
+https://www.cbr.com/best-steampunk-movies-no-one-remembers-list/
+
+The steampunk genre has always been a beloved sci-fi staple, even if some of its greatest big-screen examples have been forgotten over the years.
+---------
+
+# 4 Years Later, Lewis Pullman Revisits 'Top Gun: Maverick' Ahead of the 40th Anniversary Re-Release
+
+Exclusives, Remarkably Bright Creatures, Lewis Pullman, Avengers: Doomsday
+
+Wed, 13 May 2026 02:30:12 GMT
+
+https://collider.com/lewis-pullman-avengers-doomsday-netflix-remarkably-bright-creatures-interview/
+
+Lewis Pullman discusses the intensity for Top Gun: Maverick, his scene with Sally Field in Remarkably Bright Creatures, and teases Spaceballs 2 news.
+---------
+
+# HBO’s Cancelled Sci-Fi Masterpiece Is Officially Getting a Movie Reboot, but That’s the Problem
+
+TV Features, Westworld, Jonathan Nolan, Lisa Joy, Evan Rachel Wood
+
+Wed, 13 May 2026 01:52:12 GMT
+
+https://collider.com/hbo-westworld-movie-reboot-mistake-meaning/
+
+Westworld is getting rebooted as a film, even though the HBO series was uniquely capable of tackling the complex themes before its cancellation.
+---------
+
+# 10 Most Perfect Adventure Movies of the Last 40 Years, Ranked
+
+Movie, The Lord of the Rings: The Return of the King, Jurassic Park, Princess Mononoke, Spider-Man Into the Spider-Verse
+
+Wed, 13 May 2026 01:43:13 GMT
+
+https://collider.com/most-perfect-adventure-movies-last-40-years-ranked/
+
+There have been some amazing adventure movies released in the last 40 years, including masterpieces like Jurassic Park and The Princess Bride.
+---------
+
+# 18 Years Later, Disney's Action Sci-Fi Is Taking Over the World Once Again
+
+Movie Features, Iron Man, MCU, Disney+, Robert Downey Jr, Avengers: Doomsday
+
+Wed, 13 May 2026 01:13:12 GMT
+
+https://collider.com/iron-man-sci-fi-dominating-disney-plus-streaming-success-may-2026/
+
+Iron Man is surging on streaming again, proving Robert Downey Jr.’s MCU classic still resonates with the Avengers: Doomsday release.
+---------
+
+# ‘The Punisher: One Last Kill’s Unrelentingly Action-Packed Hour of Television Marks the End of an Era | Review
+
+TV Reviews, The Punisher: One Last Kill, The Punisher, Disney+, Jon Bernthal
+
+Wed, 13 May 2026 01:01:13 GMT
+
+https://collider.com/the-punisher-one-last-kill-review-disney-plus-jon-bernthal/
+
+The Punisher: One Last Kill is a deep, spiraling look at Jon Bernthal's Frank Castle at his absolute lowest point.
+---------
+
+# Taylor Sheridan’s Most-Anticipated ‘Yellowstone’ Sequel Officially Debuts on Paramount+ in 3 Days
+
+TV News, Dutton Ranch, Taylor Sheridan, Yellowstone, Paramount Plus
+
+Wed, 13 May 2026 01:01:13 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-paramount-plus-release-date-may-15-2026-how-to-watch/
+
+Taylor Sheridan's latest Yellowstone spin-off, Dutton Ranch, will premiere on Paramount+ this week. Find out more details.
+---------
+
+# 10 Most Quotable Movies of the Past 10 Years, Ranked
+
+Movie, Everything Everywhere All at Once, Avengers: Endgame, Barbie, Black Panther
+
+Wed, 13 May 2026 00:55:13 GMT
+
+https://collider.com/most-quotable-movies-past-10-years-ranked/
+
+Sinners, Encanto, Wicked, Barbie, KPop Demon Hunters, Black Panther, and more make up our list of the most quotable movies of the past 10 years.
+---------
+
+# Steven Spielberg’s Most Divisive Sci-Fi Film Deserves Its Positive Rotten Tomatoes Score
+
+Movie Features, Steven Spielberg, Tom Cruise, Science Fiction, War of The Worlds
+
+Wed, 13 May 2026 00:51:13 GMT
+
+https://collider.com/war-of-the-worlds-steven-spielberg-most-ambitious-sci-fi-movie/
+
+The director makes some of the boldest choices of his career in the Tom Cruise-led War of the Worlds, an underappreciated sci-fi banger.
+---------
+
+# Tom Hanks’ Binge-Worthy WWII Series Officially Releases in 2 Weeks
+
+TV News, Tom Hanks, History Channel, Greyhound, Saving Private Ryan
+
+Wed, 13 May 2026 00:45:13 GMT
+
+https://collider.com/world-war-2-with-tom-hanks-release-date-may-25-how-to-watch/
+
+Tom Hanks officially returns in less than two weeks with a new WWII project, World War II with Tom Hanks, coming to the History Channel.
+---------
+
+# 10 '90s Thrillers That Hold Up Better Than Today's Movies
+
+Movie, The Silence of the Lambs, Se7en, Fargo, The Fugitive
+
+Wed, 13 May 2026 00:32:13 GMT
+
+https://collider.com/90s-thrillers-that-hold-up-better-than-movies-today/
+
+Thrillers from the '90s that hold up amazingly well include masterpieces like Fight Club, The Silence of the Lambs, and L.A. Confidential.
+---------
+
+# 10 Movies That Are Terrible From Beginning To End
+
+Movie Lists, Cats
+
+Wed, 13 May 2026 02:00:29 GMT
+
+https://movieweb.com/movie-terrible-start-to-finish/
+
+Whether boring, cringeworthy, or just a mess of a movie, these 10 films have no redeeming value from the first frame onward.
+---------
+
+# Lupita Nyong'o's Helen of Troy and Dual Role in Christopher Nolan's 'The Odyssey', Explained
+
+Features, The Odyssey, Lupita Nyong'o
+
+Wed, 13 May 2026 01:15:20 GMT
+
+https://movieweb.com/lupita-nyongo-the-odyssey-dual-role-explained/
+
+Christopher Nolan recently revealed that Academy Award winner Lupita Nyong'o would have more than one role in 'The Odyssey'.
+---------
+
+# 'VisionQuest' Lands October 2026 Release Date on Disney+
+
+TV News, Vision Quest, MCU
+
+Wed, 13 May 2026 00:50:21 GMT
+
+https://movieweb.com/visionquest-release-date-disney-plus/
+
+The third chapter in the 'WandaVision' trilogy starring Paul Bettany will debut on October 14, two months before 'Avengers: Doomsday.'
+---------
+
+# Prime Video Renews Unique Reality Comedy 'Jury Duty' for Season 3
+
+TV News, Jury Duty, Jury Duty Presents: Company Retreat, Prime Video
+
+Wed, 13 May 2026 00:29:31 GMT
+
+https://movieweb.com/jury-duty-prime-video-renewed-season-3/
+
+"Jury Duty," an off-kilter reality show, hinges entirely on the star quality of everyday people.
+---------
+
 # Kevin Costner's Subtle Role In New Yellowstone Spinoff Explained By Star
 
 Exclusive, Yellowstone, Dutton Ranch
