@@ -1,3 +1,289 @@
+# Garrett's Tattoo Meaning & Origin Story In Off Campus Explained: What Does "Nullum Gratuitum Prandium" Mean?
+
+Streaming TV, Off Campus
+
+Wed, 13 May 2026 21:45:24 GMT
+
+https://screenrant.com/prime-video-off-campus-garrett-tattoo-meaning-origin/
+
+Garrett Graham's tattoo in Off Campus has a fascinating origin story that connects back to the character and the actor who plays him.
+---------
+
+# The MCU Finally Reveals What The Punisher Was Doing During Daredevil: Born Again Season 2
+
+Streaming TV, The Punisher: One Last Kill, Daredevil: Born Again
+
+Wed, 13 May 2026 21:45:21 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-frank-events-daredevil-born-again-season-2/
+
+Frank Castle was one of many New York-based heroes who failed to join Matt Murdock for Daredevil: Born Again season 2, but it seems like he was busy.
+---------
+
+# Original Tangled Voice Star Wants To Play Rapunzel's Mom In Disney's New Live-Action Remake
+
+Movies, Tangled
+
+Wed, 13 May 2026 21:36:10 GMT
+
+https://screenrant.com/tangled-live-action-disney-remake-mandy-moore-rapunzel-mom-interest/
+
+One of the voice actors from the original Tangled would like to return in the live-action remake, in the same vein as other cameos in Disney movies.
+---------
+
+# Knull Vs Thanos Rematch Settles Who's Strongest
+
+Marvel Comics, Thanos, Marvel
+
+Wed, 13 May 2026 21:30:19 GMT
+
+https://screenrant.com/thanos-dead-knull-king-black-winner/
+
+Marvel confirms which cosmic villain is now the deadliest in the whole universe as Thanos suffers his most humiliating defeat, meeting his death.
+---------
+
+# Chicago PD Season 14: Release Date, Story, & Everything We Know
+
+Network TV, Chicago P.D., One Chicago
+
+Wed, 13 May 2026 21:30:19 GMT
+
+https://screenrant.com/chicago-pd-season-14-explained/
+
+NBC guaranteed Chicago PD for season 14 before the season 13 finale, so there will be more of the Windy City's primetime procedural action to come.
+---------
+
+# The Punisher: One Last Kill Interview with Jon Bernthal & Reinaldo Marcus Green
+
+Videos, The Punisher: One Last Kill, The Punisher, Jon Bernthal
+
+Wed, 13 May 2026 21:26:26 GMT
+
+https://screenrant.com/video/the-punisher-one-last-kill-jon-bernthal-reinaldo-marcus-green-interview/
+
+The Punisher: One Last Kill's Jon Bernthal & Reinaldo Marcus Green break down the special and how they arrived at Frank Castle's darkest moment yet.
+---------
+
+# The Death Of Sherlock Holmes Is Perfect For The Detective's Return After A Huge 2026 Release
+
+TV, Sherlock Holmes, Young Sherlock, Quiz CV
+
+Wed, 13 May 2026 21:20:19 GMT
+
+https://screenrant.com/the-death-of-sherlock-holmes-comparison-prime-video-young-sherlock/
+
+Sherlock Holmes' dark new series focuses on what happened to the detective when he was absent, and it is the perfect next step after a 2026 release.
+---------
+
+# ARC Raiders Devs Confirm Plans Through Early 2027
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Wed, 13 May 2026 21:17:58 GMT
+
+https://screenrant.com/arc-raiders-2026-2027-roadmap-teased/
+
+Following the release of ARC Raiders sixth map, Riven Tides, developer Embark Studios shows no sign of slowing down with new post-launch content.
+---------
+
+# Outer Banks Season 5 Teaser Reveals Aftermath Of JJ’s Shocking Death
+
+TV, Outer Banks
+
+Wed, 13 May 2026 21:17:56 GMT
+
+https://screenrant.com/outer-banks-season-5-first-look-teaser-netflix/
+
+After JJ's shocking death in Outer Banks season 4, a new season 5 teaser hints at the consequences and how the Pogues are forever changed.
+---------
+
+# Ted Lasso Just Became More Real Than Ever
+
+TV, Ted Lasso
+
+Wed, 13 May 2026 21:15:20 GMT
+
+https://screenrant.com/ted-lasso-cristo-fernandez-rea-life-soccer-player/
+
+Apple TV sitcom Ted Lasso immerses us in the world of top-level soccer players and coaches, but its gameplay just got a whole lot closer to real life.
+---------
+
+# House of the Dragon Season 3 Finally Reveals Greatest Non-Targaryen Warrior in HBO First Look
+
+TV, House of the Dragon, Fantasy, HBO Max
+
+Wed, 13 May 2026 21:33:31 GMT
+
+https://www.cbr.com/house-of-the-dragon-season-3-alysane-blackwood-black-aly-hbo-first-look/
+
+House of the Dragon introduces a major player in the Dance with Dragons.
+---------
+
+# Dutton Ranch Will Feel Like ‘A Completely Different Universe’ Than Yellowstone
+
+CBR Exclusives, Dutton Ranch, Yellowstone, Paramount Plus
+
+Wed, 13 May 2026 21:21:38 GMT
+
+https://www.cbr.com/dutton-ranch-kelly-reilly-cole-hauser-yellowstone-comparison/
+
+Kelly Reilly and Cole Hauser spill on what it's like for Beth and Rip in Texas after being in Yellowstone's Montana setting.
+---------
+
+# 10 Best Video Game Soundtracks of All Time
+
+Games, Final Fantasy, NieR, The Legend of Zelda, Red Dead Redemption
+
+Wed, 13 May 2026 21:15:13 GMT
+
+https://www.cbr.com/official-best-video-game-soundtracks-of-all-time/
+
+The best video game soundtracks come from legendary games old and new, from Red Dead Redemption to Clair Obscur.
+---------
+
+# Daisy Ridley's Thriller The Marsh King's Daughter Becomes a Streaming Hit
+
+Movies, The Marsh King's Daughter, Thriller, Peacock
+
+Wed, 13 May 2026 21:00:12 GMT
+
+https://www.cbr.com/daisy-ridley-the-marsh-kings-daughter-thriller-peacock-success-may-2026/
+
+Daisy Ridley's psychological thriller The Marsh King's Daughter has become a streaming hit on Peacock, despite mixed reviews.
+---------
+
+# 5 Near-Perfect PG Thriller Masterpieces
+
+Movies, Thriller, Rear Window, Tom Clancy
+
+Wed, 13 May 2026 21:00:12 GMT
+
+https://www.cbr.com/perfect-pg-thriller-movies-list/
+
+Despite many of the best thrillers being awarded a hard R rating, these films prove that a good crime or mystery story can secure a PG rating.
+---------
+
+# Chandler Riggs Is Unrecognizable in Chaotic Horror Comedy
+
+Movies, Horror
+
+Wed, 13 May 2026 20:59:13 GMT
+
+https://www.cbr.com/chandler-riggs-hacked-a-double-entendre-of-rage-fueled-karma-trailer/
+
+Multiple Walking Dead stars reunite in the wildly violent revenge movie.
+---------
+
+# Netflix's The Summer I Turned Pretty Replacement Scores Early Season 4 Renewal Before Season 3 Release
+
+TV, My Life with the Walter Boys
+
+Wed, 13 May 2026 20:51:36 GMT
+
+https://www.cbr.com/netflix-my-life-with-the-walter-boys-season-4-renewal/
+
+The series hasn't even set a Season 3 release date.
+---------
+
+# The Greatest Studio Ghibli Movies Highlight New Streaming Lineup This Month With Over 100 Hours of Free Anime
+
+Anime, Studio Ghibli, Spirited Away, My Neighbor Totoro, Ponyo, Castle in the Sky
+
+Wed, 13 May 2026 20:30:12 GMT
+
+https://www.cbr.com/greatest-studio-ghibli-movies-free-anime-streaming-may-2026/
+
+The greatest Studio Ghibli movies are streaming for free alongside over 100 hours of free anime TV and films this May.
+---------
+
+# Picard's Single Greatest Star Trek Line Hits Harder Than Any Sci-Fi Quote Since
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Wed, 13 May 2026 20:30:12 GMT
+
+https://www.cbr.com/picard-best-star-trek-line-picard-principle/
+
+Picard's heartfelt speech to Data in the TNG episode "Peak Performance" is a powerful lesson on resilience and perseverance in the face of failure.
+---------
+
+# ‘Widow’s Bay’ Just Added a Horrific New Layer to the Town’s Creepy Lore With 1 Shocking Scene
+
+Exclusives, Widow's Bay, Kate O'Flynn, Matthew Rhys, Horror
+
+Wed, 13 May 2026 21:47:17 GMT
+
+https://collider.com/widows-bay-episode-4-explained-kate-oflynn-interview/
+
+Kate O'Flynn discusses Widow's Bay, her character's painful painful backstory, and the moment when everything at Patricia's party turned horrific.
+---------
+
+# The Punisher: One Last Kill's 85% RT Score Comes With a Major Spider-Man Disappointment
+
+Movie Features, Spider-Man: Brand New Day, Tom Holland, The Punisher: One Last Kill, Jon Bernthal
+
+Wed, 13 May 2026 21:41:49 GMT
+
+https://collider.com/the-punisher-one-last-kill-no-spider-man-connection/
+
+Even though The Punisher is slated to appear in Spider-Man: Brand New Day, there is no visible connection to the webslinger in One Last Kill.
+---------
+
+# 25 Years Later, the Greatest Quote in This Iconic Lord of the Rings Movie Still Lives Rent-Free In Our Heads
+
+Movie Features, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings, Peter Jackson, Fantasy
+
+Wed, 13 May 2026 21:29:12 GMT
+
+https://collider.com/lord-of-the-rings-greatest-quote-galadriel-smallest-person-change-future/
+
+The best line from the Lord of the Rings trilogy was said by Galadriel and wasn't even written by J.R.R. Tolkien.
+---------
+
+# Steven Spielberg's Most Frequent Collaborator Isn't Who You'd Expect
+
+Movie Features, Steven Spielberg, John Williams, Disclosure Day, Spielberg
+
+Wed, 13 May 2026 20:54:13 GMT
+
+https://collider.com/steven-spielberg-most-frequent-collaborator-michael-kahn-not-john-williams/
+
+John Williams is well known for collaborating with Steven Spielberg many times, but Michael Kahn, Spielberg's frequent editor, has done so more often.
+---------
+
+# 10 Greatest HBO Miniseries You’ll Wish You Watched Sooner
+
+TV, TV Miniseries, HBO, Sharp Objects, Chernobyl
+
+Wed, 13 May 2026 20:28:13 GMT
+
+https://collider.com/greatest-underrated-hbo-miniseries/
+
+Sharp Objects, The Night Of, The Young Pope, The Undoing, and more make up our list of great HBO miniseries you'll wish you watched sooner.
+---------
+
+# 'The Boys' Showrunner Breaks Down That Major Character Death Ahead of Finale
+
+TV News, The Boys, Prime Video
+
+Wed, 13 May 2026 21:14:22 GMT
+
+https://movieweb.com/the-boys-season-5-death-showrunner-explained/
+
+Eric Kripke breaks down the most emotional moment in the series' penultimate episode.
+---------
+
+# 'The Punisher: One Last Kill': Bad CGI in Latest Marvel Special Sparks MCU Debate
+
+TV News, The Punisher: One Last Kill, MCU
+
+Wed, 13 May 2026 20:37:48 GMT
+
+https://movieweb.com/punisher-one-last-kill-cgi-mcu/
+
+Jon Bernthal's 'Punisher: One Last Kill' has a glaring CGI issue that's stirring up discussion online.
+---------
+
 # The Next Rocky Balboa Has Officially Been Chosen
 
 TV, Creed, Rocky, Delphi
