@@ -1,3 +1,311 @@
+# The Legend Of Zelda Movie Is Officially Releasing Early
+
+Movies, The Legend of Zelda
+
+Wed, 13 May 2026 22:55:38 GMT
+
+https://screenrant.com/legend-of-zelda-movie-release-date-change-early/
+
+The live-action Legend of Zelda movie has been long awaited, and now, it has been confirmed that the film will be getting an earlier release.
+---------
+
+# The X-Files' Upcoming Reboot Already Has One Of Hulu's Best Casts
+
+Streaming TV, The X-Files
+
+Wed, 13 May 2026 22:45:21 GMT
+
+https://screenrant.com/x-files-reboot-hulu-best-cast/
+
+Hulu's X-Files reboot has announced an impressive roster of A-list guest stars, and lots of guest stars means lots of case-of-the-week episodes.
+---------
+
+# Good Omens Season 3's Second Coming Explained & Why Aziraphale Wants To Change It
+
+Streaming TV, Good Omens
+
+Wed, 13 May 2026 22:30:21 GMT
+
+https://screenrant.com/good-omens-season-3-second-coming-aziraphale-plan-explained/
+
+Good Omens season 3 sees Aziraphale preparing the Second Coming, but he has different plans for it that lead to much bigger problems.
+---------
+
+# Boruto: Two Blue Vortex Chapter #34 Release Date & Time
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Wed, 13 May 2026 22:30:21 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-chapter-34-release-date-time/
+
+The Hidden Leaf just thwarted a horrific massacre, but can Boruto and his allies stop the Human Divine Trees from claiming any more victims?
+---------
+
+# Netflix Officially Reveals When The Lincoln Lawyer Will End
+
+TV, The Lincoln Lawyer, Netflix
+
+Wed, 13 May 2026 22:23:22 GMT
+
+https://screenrant.com/netflix-the-lincoln-lawyer-season-5-end-confirmed/
+
+Ahead of The Lincoln Lawyer season 5 being released, Netflix has officially revealed when the hit legal drama series will be ending its story.
+---------
+
+# Marvel's New Avengers: Doomsday Trailer Officially Marks The Start Of An Era For Channing Tatum's Gambit
+
+Superheroes, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Wed, 13 May 2026 22:18:22 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-channing-tatum-gambit-more-serious/
+
+Marvel's new Avengers: Doomsday features a key moment for Channing Tatum's Gambit, and allied to the actor's comments, it sets up the start of an era.
+---------
+
+# The Punisher: One Last Kill Quietly Remakes Charles Bronson's 52-Year-Old Action Movie
+
+Streaming TV, The Punisher: One Last Kill
+
+Wed, 13 May 2026 22:15:20 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-death-wish-remake/
+
+The Punisher was originally created as Marvel's answer to '70s vigilante thrillers like Death Wish, and One Last Kill is a stealth remake.
+---------
+
+# Superman Has a New Canon Weakness, Deadlier Than Kryptonite
+
+Comics, Superman
+
+Wed, 13 May 2026 22:00:19 GMT
+
+https://screenrant.com/superman-new-weakness-kryptonian-force/
+
+DC officially introduces a brand-new weakness for Superman, one that could prove even more deadly to the Man of Steel than Kryptonite itself.
+---------
+
+# God Of War Meets Diablo In Dark Fantasy RPG You Can Play Free
+
+Gaming, Steam, Triple-A Games
+
+Wed, 13 May 2026 22:00:19 GMT
+
+https://screenrant.com/gods-death-reapers-free-playtest-god-of-war-meets-diablo/
+
+Steam has a ton of free games on offer in 2026, but this one is something you can play for free, and mixes some classics together.
+---------
+
+# 10 21st Century Novels That Are Considered Masterpieces
+
+Books, No Country for Old Men, Train Dreams
+
+Wed, 13 May 2026 22:00:19 GMT
+
+https://screenrant.com/21st-century-fiction-masterpieces/
+
+Undisputed, must-read modern masterpieces of fiction.
+---------
+
+# Steam Users Have Until May 17 to Play 2026 RPG for Free
+
+Games, Steam, Video Games, RPG
+
+Wed, 13 May 2026 22:50:13 GMT
+
+https://www.cbr.com/steam-official-free-rpg-game-may-2026/
+
+RPG fans only have a few days to enjoy an incredible free 2026 game on Steam.
+---------
+
+# F1 Racing Meets KPop Demon Hunters and Fast & Furious in Explosive New Comic
+
+Comics, KPop Demon Hunters, The Fast and the Furious, image comics
+
+Wed, 13 May 2026 22:45:13 GMT
+
+https://www.cbr.com/m1-monster-racing-league-release-date-confirmed/
+
+The comic book that fans of KPop Demon Hunters and Fast & Furious did not know they needed.
+---------
+
+# Nintendo's The Legend of Zelda Movie Officially Moves Release Date 1 Year Before Debut
+
+Movies, The Legend of Zelda, Fantasy
+
+Wed, 13 May 2026 22:36:14 GMT
+
+https://www.cbr.com/nintendo-the-legend-of-zelda-movie-release-date-moved-april-2027/
+
+With almost exactly 1 years to go before release, Nintendo has shifted the release date of its highly anticipated Zelda movie.
+---------
+
+# 10 Strongest One Piece Characters Luffy Still Can’t Beat Alone
+
+Anime, One Piece
+
+Wed, 13 May 2026 22:15:13 GMT
+
+https://www.cbr.com/one-piece-characters-luffy-still-cannot-beat-alone/
+
+Even with Gear 5, a few characters still represent challenges too overwhelming for Luffy to handle solo at this point in One Piece.
+---------
+
+# The Lincoln Lawyer’s Future Officially Confirmed by Netflix After 5 Seasons
+
+TV, The Lincoln Lawyer, Netflix, Crime
+
+Wed, 13 May 2026 22:12:56 GMT
+
+https://www.cbr.com/the-lincoln-lawyer-canceled-netflix-season-5/
+
+Netflix has finally decided The Lincoln Lawyer's future.
+---------
+
+# It's Time to Say Goodbye to The Legend of Zelda's Wild Era
+
+Games, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom, Nintendo
+
+Wed, 13 May 2026 22:06:12 GMT
+
+https://www.cbr.com/zelda-botw-totk-wild-era-over/
+
+After nearly a decade, it's time for Zelda fans to say goodbye to the Wild Era forever.
+---------
+
+# A Minecraft Movie 2 Welcomes Spider-Man Star in First-Look Photo
+
+Movies, A Minecraft Movie 2, A Minecraft Movie, Spider-Man
+
+Wed, 13 May 2026 22:03:44 GMT
+
+https://www.cbr.com/minecraft-movie-2-kirsten-dunst-first-look/
+
+The hotly-anticipated sequel to A Minecraft Movie gives one of the warmest welcomes to a fan-favorite Spider-Man star ahead of her next big debut.
+---------
+
+# Ben 10 Confirms The Return Of A Fan-Favorite Villain With A Twist
+
+Comics, Ben 10, dynamite, cartoons
+
+Wed, 13 May 2026 22:00:12 GMT
+
+https://www.cbr.com/ben-10-zombozo-return-variant-cover/
+
+The Ben 10 comic series takes a dark turn with the unexpected return of Zombozo, a sinister clown who feeds on fear.
+---------
+
+# Jennifer's Body Is Officially More Relevant Than Ever
+
+Movies, Jennifer's Body, megan fox, Netflix
+
+Wed, 13 May 2026 22:00:12 GMT
+
+https://www.cbr.com/megan-fox-jennifers-body-netflix-modern-themes/
+
+Megan Fox's horror gem failed at the box office but is one of the best cult classics of the early aughts.
+---------
+
+# DC Legend Jenette Kahn Responds to James Gunn’s Superman and the Future of DC Films
+
+Movies, Superman, DCU
+
+Wed, 13 May 2026 21:53:48 GMT
+
+https://www.cbr.com/dc-comics-jenette-kahn-reacts-to-james-gunns-superman/
+
+Jenette Kahn started the modern realism trend in DC Comics, and she tells CBR how she feels about James Gunn's Silver Age Superman and the DCU.
+---------
+
+# Apple TV Officially Confirms Episode Count for 'Shrinking' Season 4
+
+TV News, Shrinking, Harrison Ford, Apple TV, Jason Segel
+
+Wed, 13 May 2026 22:37:32 GMT
+
+https://collider.com/apple-tv-shrinking-season-4-episode-count-confirmed-filming-update-harrison-ford/
+
+Shrinking is officially back, as Harrison Ford has confirmed Season 4's episode count and filming date.
+---------
+
+# 10 Most Intense Sci-Fi Movies Ever Made, Ranked
+
+Movie, The Martian, alien, The Invisible Man, Science Fiction
+
+Wed, 13 May 2026 22:22:13 GMT
+
+https://collider.com/most-intense-sci-fi-movies-ranked/
+
+From the monster mayhem of Cloverfield to the harrowing trauma of The Invisible Man, these great sci-fi movies offer incredibly intense experiences.
+---------
+
+# 'Ghosts' Season 5 Sneak Peek Reveals a Major Plot Twist Ahead of 1-Hour Finale [Exclusive]
+
+Exclusives, Ghosts, CBS, Rose McIver, Sitcom
+
+Wed, 13 May 2026 22:16:13 GMT
+
+https://collider.com/ghosts-season-5-episode-20-sneak-peek-rose-mciver-cbs/
+
+Get an exclusive sneak peek from the penultimate episode of Ghosts Season 5, featuring the return of Rose Abdoo, and a huge opportunity for Sam.
+---------
+
+# Potential Netflix 'Bosch' Crossover Officially Dead as Hit Series Is Cancelled
+
+TV News, Bosch, Bosch: Legacy, The Lincoln Lawyer
+
+Wed, 13 May 2026 22:10:33 GMT
+
+https://collider.com/netflix-bosch-replacement-the-lincoln-lawyer-season-6-cancelled/
+
+In a total shock move, Netflix's The Lincoln Lawyer will end with Season 5, spelling doom for a potential Bosch crossover.
+---------
+
+# 9 Hulu Miniseries That Are Perfect From Start to Finish
+
+TV, Hulu, TV Miniseries, Normal People, Little Fires Everywhere
+
+Wed, 13 May 2026 22:03:14 GMT
+
+https://collider.com/hulu-miniseries-perfect-start-to-finish/
+
+From Paul Mescal's romance Normal People to the psychological drama Little Fires Everywhere, these Hulu miniseries are perfect from start to finish.
+---------
+
+# Florence Pugh's 'East of Eden' Lands Trailer and Fall 2026 Release Window on Netflix
+
+TV News, East of Eden, Florence Pugh
+
+Wed, 13 May 2026 22:04:32 GMT
+
+https://movieweb.com/east-of-eden-trailer-florence-pugh/
+
+Zoe Kazan's adaptation of the 1952 novel by John Steinbeck will run for seven episodes.
+---------
+
+# ‘Baywatch’: the Steamiest TV Series Is Getting a Reboot, 38 Years Later
+
+Features, Baywatch
+
+Wed, 13 May 2026 22:00:17 GMT
+
+https://movieweb.com/baywatch-tv-reboot-upcoming/
+
+'Baywatch,' the long-running drama that aired from 1989 to 2001 and starred Pamela Anderson, is getting a TV reboot in 2027.
+---------
+
+# One of the Greatest Action Thriller Franchises Is Being Rediscovered on Streaming
+
+Movie News, Bourne, Action, Thriller
+
+Wed, 13 May 2026 22:00:17 GMT
+
+https://movieweb.com/jason-bourne-franchise-stream-may-2026/
+
+Several installments in the 'Bourne' franchise starring Matt Damon are now climbing the streaming charts.
+---------
+
 # Garrett's Tattoo Meaning & Origin Story In Off Campus Explained: What Does "Nullum Gratuitum Prandium" Mean?
 
 Streaming TV, Off Campus
