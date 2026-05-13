@@ -1,3 +1,399 @@
+# Star Wars: Fate Of The Old Republic Story Length Praised By Gamers
+
+Gaming, Star Wars: Fate of the Old Republic, Triple-A Games
+
+Wed, 13 May 2026 14:06:36 GMT
+
+https://screenrant.com/star-wars-fate-of-the-old-republic-story-length-reactions/
+
+Star Wars: Fate Of The Old Republic might be a ways out, but gamers are already praising its length after an official update from the studio.
+---------
+
+# PlayStation 5 Gamers Treated To Brand-New Free Game, No PS Plus Required
+
+Gaming, PlayStation 5, PlayStation Plus, PlayStation
+
+Wed, 13 May 2026 14:05:58 GMT
+
+https://screenrant.com/playstation-5-free-game-may-2026-no-ps-plus/
+
+Get ready for a mind-bending free horror experience on PlayStation 5, and there's no subscriptions required. Dive into this dark world for free..
+---------
+
+# Steven Spielberg's Adventures Of Tintin Is Officially Getting A Sequel After 15 Years
+
+Movies, The Adventures of Tintin
+
+Wed, 13 May 2026 14:05:32 GMT
+
+https://screenrant.com/adventures-of-tintin-sequel-peter-jackson-write-direct-confirmation/
+
+15 years after its release, Steven Spielberg's Adventures of Tintin is officially getting a sequel, and an Oscar-winning director is attached.
+---------
+
+# The Expert Take: A Real Top Gun Pilot Debunks the Top Gun Franchise
+
+Movies, Top Gun, top gun, Top Gun: Maverick
+
+Wed, 13 May 2026 14:00:20 GMT
+
+https://screenrant.com/video/the-expert-take-a-real-top-gun-pilot-debunks-the-top-gun-franchise/
+
+Top Gun Maverick gets a real-world breakdown from retired Marine Corps fighter pilot and former Top Gun instructor Dave Berke.Ever wondered how accurate Hollywood movies are about fighter jets? This is the Expert Take.In honor of Top Gun's 40th Anniversary, Berke reacts to some of the biggest moments from Top Gun and Top Gun: Maverick — from the iconic aircraft carrier launch to Maverick’s Mach 10 Darkstar flight and the movie’s intense final dogfight. He explains what Hollywood gets shockingly right about fighter aviation, where the movies stretch reality, and why Top Gun still resonates with real pilots decades later.
+---------
+
+# Teenage Mutant Ninja Turtles Finally Has Its One True Successor With Glorious New Series
+
+Comics, Teenage Mutant Ninja Turtles
+
+Wed, 13 May 2026 14:00:20 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-successor-super-mondo-mega-mutts/
+
+Good boys!
+---------
+
+# Top Gun's Maverick Wouldn't Last, Expert Reveals: "He Basically Steals The Airplane"
+
+Movies, Top Gun
+
+Wed, 13 May 2026 13:54:11 GMT
+
+https://screenrant.com/top-gun-maverick-real-pilot-interview-the-expert-take/
+
+Exclusive: As much as Maverick is an icon on the big screen, his ego and his recklessness would likely cost him his job, according to a TOPGUN expert.
+---------
+
+# Zelda: TOTK's Official New Paid DLC Isn't What Gamers Expected
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, Triple-A Games
+
+Wed, 13 May 2026 13:40:47 GMT
+
+https://screenrant.com/zelda-totk-september-2026-dlc-gamers-react/
+
+The Legend of Zelda: Tears of the Kingdom is a classic, but a new official DLC release has gamers both on edge and somewhat confused.
+---------
+
+# Stardew Valley Creator Confirms Size Of New Game, Haunted Chocolatier
+
+Gaming, Stardew Valley, Haunted Chocolatier, PC
+
+Wed, 13 May 2026 13:13:15 GMT
+
+https://screenrant.com/stardew-valley-haunted-chocolatier-map-size/
+
+Stardew Valley's ConcernedApe has officially confirmed the size of his upcoming new game, Haunted Chocolatier... brace yourselves.
+---------
+
+# New Backrooms Trailer Reveals Poolrooms & More Liminal Spaces In A24's Upcoming Horror Movie
+
+Movies, Backrooms
+
+Wed, 13 May 2026 13:10:43 GMT
+
+https://screenrant.com/backrooms-movie-trailer-poolrooms-a24-horror/
+
+A new trailer for Backrooms has been released, revealing poolrooms and other new, liminal spaces in the upcoming horror movie from A24.
+---------
+
+# Pokémon TCG: Chaos Rising Elite Trainer Box Review
+
+Gaming, Pokemon Trading Card Game
+
+Wed, 13 May 2026 13:00:27 GMT
+
+https://screenrant.com/pokemon-tcg-chaos-rising-cards-elite-trainer-box-review/
+
+The Pokémon Trading Card Game's Chaos Rising set is arriving, and the Elite Trainer Box is one product most collectors will want to snag.
+---------
+
+# From Star Confirms How Long the Hit Sci-Fi Horror Show Was Supposed to Last Ahead of Fifth & Final Season
+
+TV, From
+
+Wed, 13 May 2026 13:52:33 GMT
+
+https://www.cbr.com/from-hannah-cheramy-seasons-plan/
+
+Ahead of Season 4's premiere, MGM+ confirmed From would end with Season 5.
+---------
+
+# 15 Funniest The Far Side Comics About Sports
+
+Comics, The Far Side
+
+Wed, 13 May 2026 13:34:55 GMT
+
+https://www.cbr.com/funniest-far-side-comics-about-sports/
+
+Fans of the Olympics and funny comedy can enjoy sporting events in a new light thanks to Gary Larson's always hilarious The Far Side comic strip.
+---------
+
+# 10 Harsh Realities of Reading the Pokemon Manga
+
+Anime, Pokemon, Manga
+
+Wed, 13 May 2026 13:15:42 GMT
+
+https://www.cbr.com/pokmon-manga-darkest-harsh-realities/
+
+Going back to the Pokémon manga today, readers will find a dark and shocking story that isn't as good as they remember.
+---------
+
+# The WB’s Roswell Changed Teen Dramas From Episode 1
+
+TV, Roswell, Sci-Fi
+
+Wed, 13 May 2026 13:00:15 GMT
+
+https://www.cbr.com/the-wb-roswell-changed-tv-teen-dramas/
+
+The WB shaped a genre for two decades, and one particular teen drama has a lot to answer for when it comes to those major tropes.
+---------
+
+# This Mind-Bending Comic Series Returns With New Sci-Fi Stories
+
+Comics, Science Fiction, Black Sails
+
+Wed, 13 May 2026 13:00:15 GMT
+
+https://www.cbr.com/essentials-volume-2-release-date-confirmed/
+
+Luke Arnold and Chris Wyatt return with their mind-bending science fiction epic with Essentials Volume 2.
+---------
+
+# James Bond's Thunderball Scene is the Most Important In all Spy Movies
+
+Movies, James Bond, Thunderball
+
+Wed, 13 May 2026 13:00:15 GMT
+
+https://www.cbr.com/most-important-spy-movie-scene-thunderball-james-bond/
+
+Sean Connery remains the blueprint for a good James Bond story, and this single scene 007 from the star defined spy movies forever.
+---------
+
+# Masters of the Universe Director Debuts Teaser Trailer for Epic New Fantasy Film with LAIKA
+
+Movies, Wildwood
+
+Wed, 13 May 2026 12:30:14 GMT
+
+https://www.cbr.com/laika-travis-knight-wildwood-teaser-trailer/
+
+The exciting new dark fantasy film will make its way into theaters just in time for Halloween this year.
+---------
+
+# Youngblood Returning for Huge Milestone Event Celebration
+
+Comics, youngblood
+
+Wed, 13 May 2026 12:00:14 GMT
+
+https://www.cbr.com/rob-liefeld-summer-of-youngblood-celebration-details/
+
+Rob Liefeld shares exciting details of Youngblood's return coming later this summer, including a new spinoff and team-up with Robert Kirkman.
+---------
+
+# ‘Lupin’ Creator’s New Crime Thriller Gets Intense First Look Ahead of BritBox Debut [Exclusive]
+
+Exclusives, Gone, George Kay, Britbox, Eve Myles
+
+Wed, 13 May 2026 14:00:14 GMT
+
+https://collider.com/gone-british-mystery-series-images-eve-myles-david-morrissey-britbox/
+
+Two new images from George Kay's new mystery series, Gone, begin a new investigation with Eve Myles and David Morrissey.
+---------
+
+# Jon Bernthal’s Punisher Is Officially Better Off on Disney+ Than Netflix
+
+TV News, The Punisher: One Last Kill, Jon Bernthal, Reinaldo Marcus Green, Rotten Tomatoes
+
+Wed, 13 May 2026 13:52:45 GMT
+
+https://collider.com/jon-bernthal-new-punisher-one-last-kill-rotten-tomatoes-score-better-disney-plus-than-netflix/
+
+Jon Bernthal's Punisher is officially better of on Disney+ than on Netflix, following impressive Rotten Tomatoes debut.
+---------
+
+# It's the End of an Era For Prime Video's Hit Fantasy Adventure This Week
+
+TV News, Good Omens, David Tennant, Michael Sheen, Prime Video
+
+Wed, 13 May 2026 13:48:33 GMT
+
+https://collider.com/prime-video-end-of-an-era-fantasy-series-good-omens-season-3-rotten-tomatoes-score-is-it-good/
+
+The Rotten Tomatoes scores are in for one of Prime Video's best series as Good Omens officially ends.
+---------
+
+# Every James Bond Rock Theme Song, Ranked
+
+Music Features, 007, James Bond, Chris Cornell, Rock
+
+Wed, 13 May 2026 13:45:14 GMT
+
+https://collider.com/james-bond-rock-theme-songs-ranked/
+
+From Chris Cornell, to Paul McCartney and Wings, to Garbage, this is the definitive ranking of James Bond's rock theme songs.
+---------
+
+# Forget 'Daredevil: Born Again,' Jon Bernthal's 'Punisher' Special Just Set the Stage for Frank Castle's Comeback
+
+Exclusives, The Punisher, The Punisher: One Last Kill, Jon Bernthal, Marvel
+
+Wed, 13 May 2026 13:00:14 GMT
+
+https://collider.com/jon-bernthal-the-punisher-one-last-kill-one-shot-disney-plus-director-reinaldo-marcus-green-interview/
+
+Director Reinaldo Marcus Green discusses Jon Bernthal's return as Frank Castle in Marvel's Punisher: One Last Kill and potential future in the MCU.
+---------
+
+# Nick Offerman Breaks Down ‘Margo’s Got Money Troubles’ Episode 7’s Most Haunting Scene
+
+TV, Margo's Got Money Troubles, Nick Offerman, Apple TV, Michelle Pfeiffer
+
+Wed, 13 May 2026 12:31:14 GMT
+
+https://collider.com/margos-got-money-troubles-episode-7-nick-offerman-thaddea-graham-interview/
+
+Nick Offerman and Thaddea Graham break down Margo’s Got Money Troubles Episode 7’s heartbreaking overdose scene and a potential Season 2.
+---------
+
+# Laika's Long-Awaited Stop-Motion Fantasy Adaptation Just Released Its First Stunning Trailer
+
+Movie News, Wildwood, Laika, Travis Knight, Carey Mulligan
+
+Wed, 13 May 2026 12:31:14 GMT
+
+https://collider.com/new-fantasy-movie-wildwood-trailer-laika-peyton-elizabeth-lee/
+
+Laika released the stunning first trailer for its fantasy novel adaptation, Wildwood, teasing an ambitious and emotional woodland adventure.
+---------
+
+# Forget ‘The Twilight Zone’ — All 65 Episodes of This Cult Sci-Fi Series Are Streaming Free
+
+TV Features, USA Network, The Ray Bradbury Theater, Sci-Fi, Science Fiction
+
+Wed, 13 May 2026 12:24:14 GMT
+
+https://collider.com/twilight-zone-replacement-series-ray-bradbury-theater-streaming-free/
+
+All 65 episodes of The Ray Bradbury Theater are now streaming free, making the cult anthology series the perfect binge for sci-fi fans.
+---------
+
+# The Greatest War Movie Remake of All Time Is Netflix's Most Ambitious Film Ever
+
+Movie Features, All Quiet on the Western Front, Edward Berger, Netflix, War
+
+Wed, 13 May 2026 12:20:15 GMT
+
+https://collider.com/all-quiet-on-the-western-front-netflix-most-ambitious-film/
+
+Edward Berger's 2022 Netflix film All Quiet on the Western Front is a masterful remake of a 1930 war movie.
+---------
+
+# 2026’s Most Terrifying Horror Movie Debuts in 27 Days
+
+Movie News, Backrooms, Renate Reinsve, Chiwetel Ejiofor, Horror
+
+Wed, 13 May 2026 12:00:15 GMT
+
+https://collider.com/new-2026-horror-movie-backrooms-release-date-may-29-2026/
+
+The most anticipated horror adaptation of the year, Backrooms, is just a few weeks away from releasing in theaters. Read on for more details.
+---------
+
+# 'Swapped' Takes Down 'Apex' to Become Netflix’s Newest Global Hit
+
+Movie News, Apex, Swapped, Hot on Streaming, Netflix
+
+Wed, 13 May 2026 14:10:56 GMT
+
+https://movieweb.com/netflix-apex-swapped-streaming-charts-may-4-10-2026/
+
+The animated family hit, 'Swapped,' is already setting records for Netflix in its second week of release.
+---------
+
+# When Taylor Sheridan's 'Yellowstone' Spin-Off 'Dutton Ranch' Releases on Paramount+
+
+Features, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Wed, 13 May 2026 14:00:19 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-release-schedule/
+
+'Dutton Ranch,' Taylor Sheridan's spin-off of 'Yellowstone,' stars Cole Hauser and Kelly Reilly as Rip Wheeler and Beth Dutton.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Sequel 'Marshals' Is the 2nd Most Watched Show in 2026
+
+TV News, Marshals, Taylor Sheridan, Hot on Streaming, Yellowstone
+
+Wed, 13 May 2026 13:41:02 GMT
+
+https://movieweb.com/yellowstone-marshals-taylor-sheridan-second-most-watched-series-2026/
+
+Taylor Sheridan's 'Yellowstone' sequel, 'Marshals,' is the second most popular show of 2026, before 'Dutton Ranch's release.
+---------
+
+# Netflix’s New Jon Bernthal Crime Thriller 'His & Hers' Officially the #1 Show of 2026
+
+TV News, His & Hers, Netflix, Hot on Streaming, Jon Bernthal
+
+Wed, 13 May 2026 13:12:11 GMT
+
+https://movieweb.com/his-and-hers-most-watched-show-2026-netflix/
+
+Forget 'The Punisher: One Last Kill,' Jon Bernthal's Netflix crime thriller 'His & Hers' is the most popular show of 2026.
+---------
+
+# Prime’s ‘The Terminal List’ Season 2 Is Finally Coming in 2026
+
+Features, Action, The Terminal List
+
+Wed, 13 May 2026 13:00:19 GMT
+
+https://movieweb.com/the-terminal-list-season-2-2026/
+
+Amazon Prime Video's The Terminal List' Season 2, starring Chris Pratt, is finally returning in 2026.
+---------
+
+# 'Jack Ryan: Ghost War' Director Explains How Sienna Miller's Emma Marlowe Challenges Jack Ryan
+
+Exclusives, Tom Clancy's Jack Ryan: Ghost War, Prime Video, Sienna Miller, Jack Ryan, Action
+
+Wed, 13 May 2026 13:00:19 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-sienna-miller-character/
+
+Director Andrew Bernstein explores how Sienna Miller's 'Jack Ryan: Ghost War' character, Emma Marlow, challenges John Krasinski's leading hero.
+---------
+
+# 'Wildwood' Trailer Unveils Laika's Most Ambitious Stop-Motion Adventure Yet
+
+Movie News, Wildwood, Animation
+
+Wed, 13 May 2026 12:30:39 GMT
+
+https://movieweb.com/wildwood-trailer-laika-animation/
+
+Laika has debuted the first teaser trailer for Travis Knight's handcrafted epic fantasy, 'Wildwood,' offering a peek inside the movie's magical world.
+---------
+
+# Netflix's 'The Get Down' Musical Drama Is One of the Most Expensive Shows Ever Made
+
+Features, Netflix
+
+Wed, 13 May 2026 12:00:19 GMT
+
+https://movieweb.com/netflix-expensive-shows-the-get-down/
+
+'The Get Down' reportedly cost $11 million an episode to make. Today, it remains underrated, but it is worth any viewer's time.
+---------
+
 # Nick Torres’ Fate Is Officially Confirmed After NCIS Season 23’s Fatal Shooting
 
 Network TV, NCIS
