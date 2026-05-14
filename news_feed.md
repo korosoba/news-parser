@@ -1,3 +1,322 @@
+# GTA 6 Price Leak Finally Addresses Fans’ Biggest Fear
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC
+
+Thu, 14 May 2026 21:41:04 GMT
+
+https://screenrant.com/gta-6-price-leak-may-2026/
+
+Grand Theft Auto 6 fans have been talking about a potential $100 price point for a long time, and a leaker has finally narrowed down the range.
+---------
+
+# Prime Video’s ‘Heated Rivalry’ Replacement Series With Near-Perfect RT Score Is Officially A Must-Binge
+
+Streaming TV, Masked Recs
+
+Thu, 14 May 2026 21:36:20 GMT
+
+https://screenrant.com/prime-video-off-campus-heated-rivalry-replacement-must-binge/
+
+Prime Video's new 8-part series Off Campus, a Heated Rivalry replacement, has a near-perfect Rotten Tomatoes score and is now a must-binge.
+---------
+
+# Apple TV's Speed Racer Adaptation By JJ Abrams Is Coming At The Perfect Time
+
+Streaming TV, Speed Racer
+
+Thu, 14 May 2026 21:30:21 GMT
+
+https://screenrant.com/speed-racer-tv-show-apple-anime-adaptation-perfect-time/
+
+Apple TV and J.J. Abrams are working on a live-action adaptation of the Speed Racer anime, and the show could not come at a better time.
+---------
+
+# Netflix’s New 8-Part Detective Crime Thriller Series Debuts To Stellar Rotten Tomatoes Score
+
+TV, Netflix
+
+Thu, 14 May 2026 21:29:01 GMT
+
+https://screenrant.com/nemesis-netflix-rotten-tomatoes-score-debut/
+
+Netflix's new detective crime thriller series has been released on the streaming service, and the dark show debuts to a high Rotten Tomatoes score.
+---------
+
+# What's Going On With Fast and Furious 11?
+
+Movies, Fast Forever
+
+Thu, 14 May 2026 21:20:21 GMT
+
+https://screenrant.com/everything-we-know-fast-and-furious-11/
+
+Fast and Furious 11 has been on hold for a very long time since the release of Fast X and here is what we know about the final chapter in the saga.
+---------
+
+# Good Omens Officially Changes Aziraphale & Crowley’s First Meeting (For The 3rd Time)
+
+Streaming TV, Good Omens
+
+Thu, 14 May 2026 21:15:20 GMT
+
+https://screenrant.com/good-omens-season-3-aziraphale-crowley-meeting-orgins-change/
+
+Good Omens season 3 includes a flashback to one of Crowley and Aziraphale's many interactions, and it changes their first meeting for the third time.
+---------
+
+# Tyler Perry's The Oval Is Officially Ending This Year With First Trailer Revealed
+
+TV, The Oval, Tyler Perry
+
+Thu, 14 May 2026 21:03:30 GMT
+
+https://screenrant.com/tyler-perry-the-oval-season-7-trailer-release-date/
+
+Tyler Perry’s political drama has been on the air since 2019, but the long-running series is about to come to an end after seven seasons.
+---------
+
+# PlayStation Plus Officially Confirms Multiple New Day One Free Games
+
+Gaming, PlayStation Plus, PlayStation
+
+Thu, 14 May 2026 21:00:20 GMT
+
+https://screenrant.com/playstation-plus-2026-day-one-free-games/
+
+PlayStation Plus has confirmed that it’s planning a handful of day-one releases before the end of 2026; here’s what we know about them so far.
+---------
+
+# Law & Order Season 26: Release Date, Story, & Everything We Know
+
+Network TV, Law & Order
+
+Thu, 14 May 2026 21:00:20 GMT
+
+https://screenrant.com/law-order-season-26-explained/
+
+NBC has big plans for Law & Order Season 26 following the milestone 25th, with some big changes on the way for the network's primetime lineup.
+---------
+
+# Obsession Ending Explained: What The One Wish Willow Really Did To Nikki
+
+New Movies, Obsession, Explainer
+
+Thu, 14 May 2026 21:00:20 GMT
+
+https://screenrant.com/obsession-movie-2025-ending-explained/
+
+Obsession is about guy who lets his desire justify robbing a good friend of her agency and ends up paying for it. Did you expect a happy ending?
+---------
+
+# Demon Slayer Is Everything Wrong With Modern Manga, Shonen Jump Editor Says
+
+Anime, Demon Slayer, Manga
+
+Thu, 14 May 2026 21:30:13 GMT
+
+https://www.cbr.com/demon-slayer-modern-manga-problem-kazuhiko-torishima/
+
+The former Shonen Jump Editor-in-Chief highlights everything he deems 'wrong' with modern manga.
+---------
+
+# 5 Interactive Drama Games To Play After Directive 8020
+
+Games, Video Games, Until Dawn, Batman, Life is Strange
+
+Thu, 14 May 2026 21:15:13 GMT
+
+https://www.cbr.com/directive-8020-must-play-interactive-drama-games/
+
+Directive 8020 is already making gamers seek out other titles where every choice made affects the story.
+---------
+
+# Rick and Morty's End is Officially Here, and We Have an Exclusive Excerpt
+
+Comics, Rick and Morty
+
+Thu, 14 May 2026 21:06:59 GMT
+
+https://www.cbr.com/rick-and-morty-end-here-exclusive-excerpt/
+
+Rick and Morty: The End #6 is out this week, and CBR has an exclusive excerpt from Oni Press about the historic comic
+---------
+
+# Netflix's New 102-Minute Film Officially Breaks Major Record
+
+Movies, Swapped, Netflix, Animation
+
+Thu, 14 May 2026 21:06:31 GMT
+
+https://www.cbr.com/netflix-swapped-breaks-streaming-record/
+
+A new Netflix movie just crushed a record.
+---------
+
+# 10 Near-Perfect 90-Minute Movies of the Past 25 Years
+
+Movies
+
+Thu, 14 May 2026 21:00:14 GMT
+
+https://www.cbr.com/near-perfect-90-minute-movies-past-25-years-list/
+
+Sometimes movies go on for too long, but there are some 90-minute classics that are worth every minute of the audience's time.
+---------
+
+# 5 Trilogies That Got Worse With Each Movie
+
+Movies, Jurassic World, The Matrix
+
+Thu, 14 May 2026 20:31:13 GMT
+
+https://www.cbr.com/movie-trilogies-got-worse-each-movie-list/
+
+Movie trilogies are designed to get bigger and better with each entry, but sometimes trilogies like The Matrix prove the opposite can happen.
+---------
+
+# Netflix's Godless Has the Best Final Gunfights You'll Ever See on TV
+
+TV, Godless, Netflix, Western
+
+Thu, 14 May 2026 20:31:13 GMT
+
+https://www.cbr.com/netflix-godless-best-tv-western-gunfight-ever/
+
+A Netflix miniseries arguably takes the cake as having the best final gunfight in Western history, not wasting a single moment of action.
+---------
+
+# The Batman 2 Director Officially Confirms Game of Thrones Star in Cast
+
+Movies, The Batman Part II
+
+Thu, 14 May 2026 20:25:55 GMT
+
+https://www.cbr.com/the-batman-2-charles-dance-confirmed/
+
+A Game of Thrones icon is officially confirmed to appear in the anticipated sequel to Matt Reeves' The Batman.
+---------
+
+# Hulu Walks Back Controversial Futurama Change Less Than 1 Year Later
+
+TV, Futurama, Hulu, Sci-Fi
+
+Thu, 14 May 2026 20:24:11 GMT
+
+https://www.cbr.com/hulu-futurama-season-14-not-binge-release/
+
+Futurama is back, and it's reversing last season's most controversial decision.
+---------
+
+# 15 Funniest The Far Side Comics On an Island
+
+Comics, The Far Side
+
+Thu, 14 May 2026 20:15:47 GMT
+
+https://www.cbr.com/funniest-far-side-comics-set-on-an-island/
+
+The Far Side constantly features characters in kooky situations, but it doesn't get much weirder than being stranded on an island.
+---------
+
+# 10 '90s Shows That Are Better Than They Get Credit For
+
+TV, Millennium, The Young Indiana Jones Chronicles, Lois & Clark: The New Adventures of Superman, Homicide: Life on the Street
+
+Thu, 14 May 2026 21:31:13 GMT
+
+https://collider.com/90s-shows-better-than-they-get-credit-for/
+
+Forgotten '90s TV shows like Millennium, Brimstone, and Dark Skies deserve far more attention and praise from modern audiences.
+---------
+
+# Forget 'The Batman' — Matt Reeves' Stellar Sci-Fi Epic Is a Masterpiece From Start to Finish
+
+Movie Features, The Batman, Dawn of the Planet of the Apes, Matt Reeves, Planet of the Apes
+
+Thu, 14 May 2026 21:20:13 GMT
+
+https://collider.com/matt-reeves-the-batman-replacement-dawn-of-the-planet-of-the-apes/
+
+Before The Batman, Matt Reeves took on another fan-favorite franchise when he directed Dawn of the Planet of the Apes.
+---------
+
+# Matt Reeves' 'The Batman' Sequel Officially Casts a 'Homeland' Favorite
+
+Movie News, The Batman Part II, The Batman, Robert Pattinson, Matt Reeves
+
+Thu, 14 May 2026 21:11:31 GMT
+
+https://collider.com/the-batman-sequel-cast-homeland-star-sebastian-koch/
+
+Matt Reeves' The Batman sequel is still expanding its cast, this time with Homeland's Sebastian Koch.
+---------
+
+# Jon Bernthal's Most Hot-Headed Performance Is Also Low-Key One of His Best
+
+Movie, The Wolf of Wall Street, Jon Bernthal, Martin Scorsese, Crime
+
+Thu, 14 May 2026 21:09:13 GMT
+
+https://collider.com/jon-bernthal-best-performance-wolf-of-wall-street/
+
+In The Wolf of Wall Street, Jon Bernthal hits Jonah Hill for real, and that's just one reason why you can't take your eyes off his performance.
+---------
+
+# This Iconic 92% Rotten Tomatoes Horror Movie Is Official Proof That Jump Scares Are Overrated
+
+Movie Features, The Wicker Man, Edward Woodward, Christopher Lee, Midsommar
+
+Thu, 14 May 2026 21:00:14 GMT
+
+https://collider.com/the-wicker-man-1973-horror-movie-no-jump-scares/
+
+The Wicker Man remains one of horror’s most disturbing folk horror classics, proving terror doesn’t need jump scares.
+---------
+
+# Jason Statham's 'Mechanic: Resurrection' Becomes Global Hit on Netflix 10 Years Later
+
+Movie News, Jason Statham, Mechanic: Resurrection, Hot on Streaming, Action
+
+Thu, 14 May 2026 21:00:19 GMT
+
+https://movieweb.com/mechanic-resurrection-jason-statham-netflix-streaming-hit-may-2026/
+
+It may have been panned by critics, but this Jason Statham action classic sequel has found new life on Netflix.
+---------
+
+# How 'Ahsoka' Broke George Lucas's Very First 'Star Wars' Rule After 46 Years
+
+Features, Ahsoka, Star Wars, George Lucas
+
+Thu, 14 May 2026 21:00:19 GMT
+
+https://movieweb.com/disney-broke-george-lucass-star-wars-galaxy-rule/
+
+A major decision in Disney's 'Ahsoka' series changes the first thing we know about Star Wars.
+---------
+
+# Amazon's 'James Bond' Reboot Casting Recruits 'Game of Thrones' Vet
+
+Movie News, James Bond, Game Of Thrones
+
+Thu, 14 May 2026 20:43:44 GMT
+
+https://movieweb.com/james-bond-casting-amazon-mgm-nina-gold/
+
+'Game of Thrones' casting director Nina Gold is set to help Amazon MGM Studios find the next actor to take on James Bond.
+---------
+
+# Kate Beckinsale to Lead George A. Romero's Zombie Epic 'Twilight of the Dead'
+
+Movie News, Night of the Living Dead, Kate Beckinsale, George A. Romero
+
+Thu, 14 May 2026 20:17:34 GMT
+
+https://movieweb.com/twilight-of-the-dead-george-romero-kate-beckinsale/
+
+The actor replaces Milla Jovovich in the long-gestating movie.
+---------
+
 # Grey's Anatomy’s Owen Replacement Continues Its Oldest Toxic Trend That Needs To End
 
 Network TV, Grey's Anatomy
