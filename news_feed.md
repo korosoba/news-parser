@@ -1,3 +1,311 @@
+# Final Fantasy 7: Heroes Of Midgar Announced
+
+Gaming, Final Fantasy 7, Final Fantasy 7 Remake
+
+Thu, 14 May 2026 13:33:48 GMT
+
+https://screenrant.com/final-fantasy-7-heroes-of-midgar-announcement-kickstarter/
+
+Final Fantasy 7: Heroes Of Midgar has been announced, and if you're a fan of the original game or remakes, you'll definitely want to check it out.
+---------
+
+# Prime Video's The Boys Season 5 Episode Sets Unfortunate IMDb Record Ahead Of Series Finale
+
+TV, The Boys
+
+Thu, 14 May 2026 13:33:22 GMT
+
+https://screenrant.com/prime-videos-the-boys-season-5-episode-7-imdb-record-low/
+
+As the series finale of the Prime Video show approaches, The Boys season 5, episode 7, has just set an unfortunate record with viewers on IMDb.
+---------
+
+# After 20 Years, Zatch Bell's Inevitable Remake Is Closer Than Ever
+
+Anime, Zatch Bell!
+
+Thu, 14 May 2026 13:30:18 GMT
+
+https://screenrant.com/zatch-bell-anime-remake-theory/
+
+It's a new era for a classic 2000s anime.
+---------
+
+# Zelda: Wind Waker-Inspired Switch 2 Debut Unites Gamers
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker
+
+Thu, 14 May 2026 13:30:18 GMT
+
+https://screenrant.com/zelda-wind-waker-2-switch-2-gamer-hopes/
+
+Wind Waker has quietly become one of the most loved games in the Zelda series, and fans are desperate for it to return.
+---------
+
+# Netflix's Devil May Cry Restores The Big Part Of The Video Games Missing From Season 1
+
+Streaming TV, Devil May Cry
+
+Thu, 14 May 2026 13:30:18 GMT
+
+https://screenrant.com/devil-may-cry-netflix-series-ebony-ivory/
+
+Netflix's Devil May Cry season 2 has brought back a major video game icon into the story that was sorely missing from the first 8 episodes.
+---------
+
+# Spider-Man: Brand New Day's Opening Action Scene Officially Confirmed In New Teaser
+
+Movies, Spider-Man: Brand New Day
+
+Thu, 14 May 2026 13:29:49 GMT
+
+https://screenrant.com/spiderman-brand-new-day-trailer-first-action-scene-filming-teaser/
+
+A new Spider-Man: Brand New Day teaser showcases the massive opening action scene for Tom Holland's upcoming Marvel Cinematic Universe sequel.
+---------
+
+# Superman Fights His Replacement & Dons New Suit In Trailer For The Man Of Steel’s 2026 Return
+
+TV, Superman, My Adventures With Superman, DC Universe
+
+Thu, 14 May 2026 13:28:44 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-trailer/
+
+Superman dons an exciting new suit and takes on his replacement in the first trailer for the Man of Steel's 2026 return, with Superboy debuting.
+---------
+
+# Red Dead Redemption 2 PS5 Upgrade Unites Gamers Following Official Announcement
+
+Gaming, Red Dead Redemption 2, PC
+
+Thu, 14 May 2026 13:20:48 GMT
+
+https://screenrant.com/red-dead-redemption-2-ps5-upgrade-may-2026-hopes/
+
+After a recent announcement, Red Dead Redemption 2 gamers could finally be getting the next-gen upgrade they've been praying for.
+---------
+
+# The Batman 2 Has A 78-Year-Long DC Streak To Destroy Thanks To Paul Dano
+
+Movies, The Batman Part II, Batman
+
+Thu, 14 May 2026 13:00:21 GMT
+
+https://screenrant.com/the-batman-2-paul-dano-riddler-movie-record-break/
+
+The casting for Matt Reeves' The Batman - Part II is finally taking shape, and the return of Paul Dano could break a decades-long Riddler streak.
+---------
+
+# Order Of The Sinking Star Officially Confirmed For Nintendo Switch 2
+
+Gaming, Nintendo Switch 2
+
+Thu, 14 May 2026 13:00:21 GMT
+
+https://screenrant.com/order-of-the-sinking-star-nintendo-switch-2/
+
+Jonathan Blow's latest puzzle game has been confirmed for Nintendo Switch 2, and is expected to arrive later this year.
+---------
+
+# Red Dead Redemption 2 Free In-Game Items Officially Available Until June 1
+
+Games, Red Dead Redemption
+
+Thu, 14 May 2026 13:50:13 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-download-officially-available-until-june-1-2026/
+
+Red Dead Redemption 2 has big rewards for fans this May, with free clothing and other in-game rewards.
+---------
+
+# 10 Weak Anime Villains Who Could Solo The Demon Slayer Verse
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Naruto, Jujutsu Kaisen
+
+Thu, 14 May 2026 13:20:13 GMT
+
+https://www.cbr.com/weakest-anime-villains-who-could-defeat-strongest-demon-slayer/
+
+Demon Slayer may be one of the most popular shonen anime ever, but its universe would easily fall to so many villains.
+---------
+
+# NBC's Cop Comedy Series Brooklyn Nine-Nine Continues to Dominate on PVOD
+
+TV, Brooklyn Nine-Nine, Comedy, NBC
+
+Thu, 14 May 2026 13:00:14 GMT
+
+https://www.cbr.com/brooklyn-nine-nine-nbc-cop-comedy-pvod-success-may-2026/
+
+Critically acclaimed cop comedy series Brooklyn Nine-Nine remains a hit 5 years after its finale, now dominating PVOD charts.
+---------
+
+# Star Wars: Skeleton Crew Is a High for the Franchise
+
+TV, Star Wars, Star Wars: Skeleton Crew
+
+Thu, 14 May 2026 13:00:14 GMT
+
+https://www.cbr.com/star-wars-skeleton-crew-modern-cult-classic/
+
+Jude Law's presence in Star Wars: Skeleton Crew was a treat, but it was also a small part in what has helped make it a cult classic.
+---------
+
+# Absolute Batman's Popularity Is Topped By A Surprising Cartoon-Inspired Comic
+
+Comics, Absolute Batman
+
+Thu, 14 May 2026 12:00:13 GMT
+
+https://www.cbr.com/absolute-batman-beat-by-ben-10-comic/
+
+No one could have predicted that Absolute Batman would be dethroned by this comic.
+---------
+
+# Mobile Suit Gundam Hathaway Series Director Reveals the Depth Behind Hathaway’s Complexity
+
+CBR Exclusives, Mobile Suit Gundam Hathaway: The Sorcery of Nymph Circe
+
+Thu, 14 May 2026 12:00:13 GMT
+
+https://www.cbr.com/mobile-suit-gundam-hathaway-complexities-explained/
+
+The director breaks down Hathaway’s layered sense of self, emotional conflict, and the burden of living amid palpable tension.
+---------
+
+# Bob Dylan Ended 'Highway 61 Revisited' With This Epic 11-Minute Closing Track
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Thu, 14 May 2026 13:00:14 GMT
+
+https://collider.com/bob-dylan-highway-61-revisited-11-minute-closing-track/
+
+Bob Dylan's epic 11-minute closing track on Highway 61 Revisited, showcased his boundless imagination and influence from Beat poet Allen Ginsberg.
+---------
+
+# HBO's 2-Part 'ER' Meets '24' Medical Series Is One of Its Best
+
+TV Features, The Pitt, HBO Max, Noah Wyle, ER
+
+Thu, 14 May 2026 12:39:14 GMT
+
+https://collider.com/hbo-best-medical-drama-series-the-pitt/
+
+HBO's The Pitt combines the high-pressure stakes of emergency medicine from ER with the real-time storytelling of 24.
+---------
+
+# Billy Joel Says This 254-Year-Old Classical Legend Is the Greatest Composer Ever
+
+Music Features, Rock, Billy Joel: And So It Goes, Music, Billy Joel: Live From Long Island
+
+Thu, 14 May 2026 12:34:15 GMT
+
+https://collider.com/billy-joel-greatest-composer-who-ever-lived-beethoven/
+
+Billy Joel marks his 77th birthday and credits Beethoven as the greatest composer of all time while reflecting on classical music.
+---------
+
+# The 10 Greatest TV Villains of All Time, Ranked
+
+TV, Villains, The Boys, Breaking Bad, The Sopranos
+
+Thu, 14 May 2026 12:32:13 GMT
+
+https://collider.com/best-tv-villains-ranked/
+
+From Walter White to Homelander, these TV villains have certainly made their mark as the baddest of the bad.
+---------
+
+# Quentin Tarantino’s Early Anthology Short Has a Wild Alfred Hitchcock Connection
+
+Movie Features, Quentin Tarantino, four rooms, Alfred Hitchcock, Alfred Hitchcock Presents
+
+Thu, 14 May 2026 12:17:13 GMT
+
+https://collider.com/quentin-tarantino-four-rooms-alfred-hitchcock-presents-inspired/
+
+Quentin Tarantino's segment of the 1995 anthology film Four Rooms was inspired by a famous episode of Alfred Hitchcock's TV show.
+---------
+
+# 8 Years Later, Prime Video’s Spy Saga Is Giving ‘Reacher’ Fans Everything They Want
+
+TV News, Jack Ryan, Prime Video, James Bond, Streaming
+
+Thu, 14 May 2026 12:01:13 GMT
+
+https://collider.com/john-krasinski-spy-saga-reacher-replacement-jack-ryan-streaming-success-prime-video-may-2026/
+
+John Krasinski's Jack Ryan is about to make his Prime Video return, and fans are sending the previous installments up the streaming charts.
+---------
+
+# Forget 'Alien' and the Xenomorph, This '90s Sci-Fi Thriller Has an Even More Terrifying Creature
+
+Movie Features, species, H.R Giger, Sci-Fi, Thriller
+
+Thu, 14 May 2026 11:56:13 GMT
+
+https://collider.com/species-movie-1995-sci-fi-hr-giger-alien-creature/
+
+The 1995 sci-fi thriller Species is certainly no masterpiece, but the alien creature is brilliantly designed.
+---------
+
+# Prime Video’s 100% Fantasy Epic Is About To Return With Its Darkest Storyline Yet
+
+TV Features, The Legend of Vox Machina, Critical Role, Fantasy, Animation
+
+Thu, 14 May 2026 11:46:14 GMT
+
+https://collider.com/legend-of-vox-machina-season-4-darkest-storyline-prime-video/
+
+The Legend of Vox Machina Season 4 is set to adapt Critical Role’s darkest and most emotional storyline yet as the series returns to Prime Video.
+---------
+
+# 'Punisher: One Last Kill' Director Teases Ma Gnucci's MCU Future [Exclusive]
+
+TV News, The Punisher: One Last Kill, MCU, Punisher, Disney+
+
+Thu, 14 May 2026 13:00:18 GMT
+
+https://movieweb.com/punisher-one-last-kill-ma-gnucci-mcu-future/
+
+In an exclusive interview with MovieWeb, 'The Punisher: One Last Kill' director Reinaldo Marcus Green touched on Ma Gnucci's future as an MCU villain.
+---------
+
+# ‘Fallout’s Impressive TV Cast Is About to Get Even Better
+
+Features, Fallout, Prime Video
+
+Thu, 14 May 2026 13:00:18 GMT
+
+https://movieweb.com/fallout-great-cast-aaron-paul-season-3/
+
+'Fallout,' the post-apocalyptic video game TV adaptation that streams on Amazon Prime Video, has an impressive cast, including Ella Purnell.
+---------
+
+# Vin Diesel Pays Tribute to Paul Walker at 'Fast and Furious' Cannes Reunion
+
+Movie News, Fast and Furious, Cannes Film Festival, Vin Diesel, Paul Walker
+
+Thu, 14 May 2026 12:45:30 GMT
+
+https://movieweb.com/fast-and-furious-vin-diesel-cannes-paul-walker-tribute/
+
+Vin Diesel delivered a tearful tribute to Paul Walker during a special anniversary screening of 'The Fast and the Furious' at Cannes Film Festival.
+---------
+
+# Prime Video's 'Reacher' Deserves Its Impressive 95% Rotten Tomatoes Score
+
+Features, Reacher
+
+Thu, 14 May 2026 12:00:18 GMT
+
+https://movieweb.com/reacher-show-masterpiece-status-deserved/
+
+Prime Video has no shortage of action thrillers, but one of them stands out above the rest. There's a reason for that.
+---------
+
 # Star Wars Outlaws Free Download Officially Announced
 
 Gaming, Star Wars Outlaws
