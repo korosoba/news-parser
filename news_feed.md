@@ -1,3 +1,366 @@
+# Grey's Anatomy’s Owen Replacement Continues Its Oldest Toxic Trend That Needs To End
+
+Network TV, Grey's Anatomy
+
+Thu, 14 May 2026 20:10:20 GMT
+
+https://screenrant.com/greys-anatomy-owen-replacement-toxic-trend-continue/
+
+Owen Hunt has officially left Grey Sloan, and his best replacement character is already continuing its oldest toxic trend in Grey's Anatomy.
+---------
+
+# George A. Romero's Twilight Of The Living Dead Casts Lead Star In Franchise's Final Chapter
+
+Movies, Night of the Living Dead, Twilight Of The Dead
+
+Thu, 14 May 2026 20:04:11 GMT
+
+https://screenrant.com/george-a-romero-twilight-of-the-dead-kate-beckinsale-casting/
+
+Acclaimed Underworld actor takes the lead in Twilight of the Dead, the final chapter of George A. Romero's iconic zombie movie franchise.
+---------
+
+# Law & Order: SVU Season 28: Release Date, Story, & Everything We Know
+
+Network TV, Law & Order: Special Victims Unit
+
+Thu, 14 May 2026 20:00:22 GMT
+
+https://screenrant.com/law-order-svu-season-28-explained/
+
+NBC guaranteed season 28 of Law & Order: SVU with time to spare, so leading lady Mariska Hargitay will continue her long streak as Olivia Benson.
+---------
+
+# Shrinking Season 4 Episode Count Increase Confirmed By Harrison Ford As Filming Begins Very Soon
+
+TV, Shrinking, Harrison Ford
+
+Thu, 14 May 2026 19:56:17 GMT
+
+https://screenrant.com/shrinking-season-4-episode-count-filming-harrison-ford-confirmed/
+
+Harrison Ford, who will reprise Dr. Paul Rhoades in Shrinking season 4, has confirmed the next season will have a bigger number of episodes.
+---------
+
+# Julie's Time Travel Powers: The Key To Solving From's Mysteries?
+
+TV, From, Hannah Cheramy
+
+Thu, 14 May 2026 19:56:12 GMT
+
+https://screenrant.com/from-season-4-julie-story-walking-failure-future-tease-hannah-cheramy/
+
+From star Hannah Cheramy discusses Julie's storywalking abilities and their role in unraveling the town's secrets, despite her failed attempt to prevent her father's death in season 4.
+---------
+
+# Disney's Near-Perfect 4-Part Sci-Fi Saga Is So Good, You'll Finish It In One Weekend
+
+Movies, Masked Recs
+
+Thu, 14 May 2026 19:55:19 GMT
+
+https://screenrant.com/disney-guardians-of-the-galaxy-finish-one-weekend/
+
+It took Disney decades to produce a beloved sci-fi franchise, and this saga is so good that it's one of the easiest weekend binges you will ever find.
+---------
+
+# The Search For The Next James Bond Is Officially Underway
+
+Movies, Bond 26, James Bond
+
+Thu, 14 May 2026 19:49:47 GMT
+
+https://screenrant.com/james-bond-movie-casting-auditions-amazon-confirmed/
+
+The search for the next James Bond actor is officially underway, as Amazon enlists a Game of Thrones casting vet to help find the next 007.
+---------
+
+# Marvel Rivals: All Season 8 Buffs & Nerfs Explained
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Thu, 14 May 2026 19:30:21 GMT
+
+https://screenrant.com/marvel-rivals-all-season-8-buffs-nerfs-explained/
+
+The newest Season of Marvel Rivals introduces another round of character changes, meant to match the dinosaur-sized action in the game's evolution.
+---------
+
+# Ahsoka Season 2's Confirmed Release Window Changes Disney+ Forever
+
+Streaming TV, Ahsoka, Star Wars, Disney Plus
+
+Thu, 14 May 2026 19:30:21 GMT
+
+https://screenrant.com/ahsoka-season-2-release-window-no-live-action-star-wars-tv-2026-disney-plus/
+
+Three years after season 1 came out, Ahsoka season 2 finally has a confirmed release window, and it is going to change Disney+ forever.
+---------
+
+# Prime Video's Off Campus Season 2 Story & New Dean Mystery Teased By Series Creator
+
+TV, Off Campus
+
+Thu, 14 May 2026 19:04:39 GMT
+
+https://screenrant.com/off-campus-season-2-story-dean-mystery-tease-creator/
+
+Exclusive: The Prime Video's Off Campus show creator, Louisa Levy, discussed season 2 details and progress, including major story arcs.
+---------
+
+# James Bond Officially Enters a New Era
+
+Movies, James Bond
+
+Thu, 14 May 2026 20:04:40 GMT
+
+https://www.cbr.com/james-bond-26-casting-officially-underway/
+
+It's the dawn of a new era for 007 with the latest update on James Bond 26.
+---------
+
+# Speed Racer Star Reveals The Specific Moment He Realized The Movie Was A Cult Classic
+
+CBR Exclusives, Speed Racer, Speed Racer: The Movie, Speed Racer: Race to the Future, Speed Racer: The Next Generation
+
+Thu, 14 May 2026 20:03:33 GMT
+
+https://www.cbr.com/speed-racer-star-reveals-specific-moment-about-cult-classic/
+
+A single life-changing moment made Emile Hirsch realize Speed Racer is eternal.
+---------
+
+# New Star Wars Book Tees Up Cal Kestis' Live-Action Debut
+
+Movies, Star Wars
+
+Thu, 14 May 2026 20:00:14 GMT
+
+https://www.cbr.com/star-wars-cal-kestis-live-action-luke-skywalker-connection/
+
+Cal Kestis is a beloved Star Wars game character, and now a bridge for him to enter live action has finally been lowered.
+---------
+
+# One Robin May Return in Absolute Batman, Series Writer Says
+
+Comics, Absolute Batman, Batman, Robin, damian wayne
+
+Thu, 14 May 2026 20:00:14 GMT
+
+https://www.cbr.com/absolute-batman-damian-wayne-idea-confirmed-by-scott-snyder/
+
+Scott Snyder may have found a way to introduce this iconic character in Absolute Batman.
+---------
+
+# Percy Jackson Officially Expands With New Spinoff, Camp Half-Blood
+
+TV, Percy Jackson & The Olympians, Percy Jackson & the Olympians, Fantasy
+
+Thu, 14 May 2026 19:51:37 GMT
+
+https://www.cbr.com/percy-jackson-officially-expands-with-new-spinoff-camp-half-blood/
+
+The Percy Jackson universe is getting bigger.
+---------
+
+# Naruto Officially Revives 1 of the Uchiha Clan's Most Forgotten Legends With New First Look
+
+Anime, Naruto
+
+Thu, 14 May 2026 19:30:13 GMT
+
+https://www.cbr.com/izuna-uchiha-naruto-mobile-video/
+
+The character’s actions paved the way for one of the best villains in the Naruto universe.
+---------
+
+# 10 Best Lord of the Rings Games of All Time
+
+Games, The Lord of the Rings, Gaming, The Lord of the Rings Online, Middle-earth: Shadow of Mordor
+
+Thu, 14 May 2026 19:15:12 GMT
+
+https://www.cbr.com/best-lotr-games-all-time/
+
+For players that want to explore Tokien's Lord of The Rings universe more deeply, these games offer the best opportunity to dive right in.
+---------
+
+# George A. Romero's Final Chapter of Living Dead Saga Finally Moves Forward
+
+Movies, george a romero, Night of the Living Dead, Horror
+
+Thu, 14 May 2026 19:12:34 GMT
+
+https://www.cbr.com/george-a-romero-twilight-of-the-dead-kate-beckinsale/
+
+George A. Romero's "final chapter" of his epic zombie saga is finally moving forward with Underworld star Kate Beckinsale.
+---------
+
+# DC Unveils Stunning Alex Ross Variant Cover for JLA/Avengers Crossover
+
+Comics, DC Comics, Marvel Comics, alex ross
+
+Thu, 14 May 2026 19:08:49 GMT
+
+https://www.cbr.com/alex-ross-jla-avengers-crossover-variant-revealed/
+
+DC Comics gives fans their first look at the next line of connecting variant covers for JLA/Avengers by the legendary Alex Ross.
+---------
+
+# Glamorous '80s Cop Show Returns as a PVOD Streaming Hit Ahead of Michael B. Jordan's Reboot
+
+TV, Miami Vice
+
+Thu, 14 May 2026 19:00:14 GMT
+
+https://www.cbr.com/miami-vice-cop-show-pvod-hit-apple-tv-may-2026/
+
+Audiences are rediscovering a popular '80s cop show on PVOD ahead of Michael B. Jordan's upcoming film reboot.
+---------
+
+# This Twisty 8-Part Heist Thriller Is Your Next Netflix Weekend Binge
+
+TV Features, Netflix, Crooks, Thriller, Money Heist
+
+Thu, 14 May 2026 20:07:13 GMT
+
+https://collider.com/netflix-heist-thriller-series-crooks-weekend-binge/
+
+Fans of heist thrillers should look no further than this non-stop German series on Netflix.
+---------
+
+# Paramount+’s Longest-Running Crime Thriller Officially Returns This Month With Tense First Look [Exclusive]
+
+Exclusives, Collider Exclusive Preview, Criminal Minds, Paramount+ with Showtime, Paget Brewster
+
+Thu, 14 May 2026 20:00:14 GMT
+
+https://collider.com/criminal-minds-evolution-season-19-first-look-images-paramount-plus/
+
+A new first look at Criminal Minds: Evolution Season 19 teases a new, more dangerous set of cases for the BAU. See the new images here!
+---------
+
+# James Bond Reboot Officially Takes Major Step Forward With ‘Game Of Thrones’ Alum
+
+Movie News, James Bond, No Time to Die, Amazon, MGM
+
+Thu, 14 May 2026 19:53:51 GMT
+
+https://collider.com/james-bond-reboot-auditions-begin-casting-director-game-of-thrones-nina-gold-amazon-mgm/
+
+James Bond reboot takes a major step forward as Amazon MGM Studios taps Game of Thrones casting director Nina Gold to find the next 007.
+---------
+
+# Every 2026 Sci-Fi Movie So Far, Ranked Worst to Best
+
+Movie, Sci-Fi, In the Blink of an Eye, Project Hail Mary, Good Luck, Have Fun, Don't Die
+
+Thu, 14 May 2026 19:53:12 GMT
+
+https://collider.com/sci-fi-movies-2026-ranked/
+
+From Project Hail Mary and War Machine to Cold Storage and Mercy, the 2026 calendar has been filled with some game-changing sci-fi films.
+---------
+
+# 10 Most Powerful MCU Characters, Ranked by Strength
+
+Movie, MCU, Marvel, Superhero, Disney
+
+Thu, 14 May 2026 19:33:13 GMT
+
+https://collider.com/mcu-most-powerful-characters-strength-ranked/
+
+From Benedict Cumberbatch's Doctor Strange to Chris Hemsworth's Thor to Brie Larson's Captain Marvel, which MCU character is the most powerful?
+---------
+
+# Hulu's Record-Breaking Animated Revival Grills Up a Must-See First Look at Season 15 Ahead of July Release [Exclusive]
+
+Exclusives, King of the Hill, Mike Judge, Hulu, Collider Exclusive Preview
+
+Thu, 14 May 2026 19:00:14 GMT
+
+https://collider.com/king-of-the-hill-season-15-first-images-hulu/
+
+Hulu has shared the first images from King of the Hill Season 15, showing Hank Hill and his family readjusting to life in Arlen. Check them out here!
+---------
+
+# Netflix’s Perfect 8-Part Medical Drama Is a Stellar Weekend Binge for ‘Grey’s Anatomy’ Fans
+
+TV Features, Grey's Anatomy, The Pitt, The Trauma Code: Heroes on Call, Netflix
+
+Thu, 14 May 2026 18:58:13 GMT
+
+https://collider.com/greys-anatomy-replacement-series-netflix-trauma-code-heroes-on-call/
+
+Netflix’s hit medical K-drama The Trauma Code: Heroes on Call is the perfect binge for fans of early Grey’s Anatomy.
+---------
+
+# 'The Punisher' Special Director Reveals What That Frank Castle/Karen Page Scene Means: "The Two Actually Love Each Other" [Exclusive]
+
+TV News, The Punisher: One Last Kill, Reinaldo Marcus Green, Jon Bernthal, Deborah Ann Woll
+
+Thu, 14 May 2026 18:17:22 GMT
+
+https://collider.com/the-punisher-one-last-kill-frank-castle-karen-page-scene-love-explained-director-reinaldo-marcus-green/
+
+The Punisher: One Last Kill director Reinaldo Marcus Green unpacks that emotional hallucination scene between Frank and Karen and why it matters.
+---------
+
+# 'Dutton Ranch' Lands Fresh Rotten Tomatoes Score
+
+TV News, Dutton Ranch, Yellowstone
+
+Thu, 14 May 2026 19:29:23 GMT
+
+https://movieweb.com/dutton-ranch-rotten-tomatoes-score/
+
+Taylor Sheridan's new 'Yellowstone' sequel, 'Dutton Ranch,' featuring Beth and Rip, has debuted with a fresh score on Rotten Tomatoes.
+---------
+
+# Justin Long Continues Scream King Legacy With New Killer Bee Thriller 'Stung'
+
+Movie News, Justin Long, Horror
+
+Thu, 14 May 2026 19:12:06 GMT
+
+https://movieweb.com/justin-long-killer-bee-horror-movie/
+
+The new movie will see the actor reuniting with his 'Coyotes' filmmaker.
+---------
+
+# 'The Pitt' Has Streaming Setback as Sydney Sweeney's R-Rated Hit 'Euphoria' Dominates
+
+TV News, Comparison Recommendation, The Pitt, Euphoria, Sydney Sweeney
+
+Thu, 14 May 2026 19:00:20 GMT
+
+https://movieweb.com/the-pitt-euphoria-streaming-hbo-max-may-2026/
+
+Even though it's one of the latest hits to come out of HBO Max's headquarters, the medical drama is weirdly fading away.
+---------
+
+# The "Jill Sandwich" Can Fix 'Resident Evil's Missing Character Problem
+
+Features, Resident Evil, Zach Cregger, Horror
+
+Thu, 14 May 2026 19:00:20 GMT
+
+https://movieweb.com/resident-evil-zach-cregger-character-problem-retcon/
+
+'Resident Evil' fans are hesitant about Zach Cregger's upcoming movie, but one iconic game reference could make up for the lack of OG characters.
+---------
+
+# Val Kilmer Gave One of His Best Performances in 'The Salton Sea'
+
+Features, Val Kilmer
+
+Thu, 14 May 2026 18:31:19 GMT
+
+https://movieweb.com/val-kilmer-best-movies-salton-sea/
+
+The 2002 neo-noir thriller features one of Val Kilmer's best and most underrated performances.
+---------
+
 # John Wick's Caine Movie Casts New Franchise Character
 
 Movies, Caine John Wick Spinoff, John Wick
