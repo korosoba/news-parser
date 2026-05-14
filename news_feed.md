@@ -1,3 +1,443 @@
+# Xbox Game Pass Adds 3 Free Games This Weekend
+
+Gaming, Xbox Game Pass, PC, Triple-A Games, Battlefield 6
+
+Thu, 14 May 2026 16:00:35 GMT
+
+https://screenrant.com/xbox-game-pass-3-free-games-may-14/
+
+Three new games are being offered entirely for free via Xbox Game Pass as part of a surprise drop, but you may have to rush to play them.
+---------
+
+# Netflix's Returning Action Show Is Officially The End Of An Era
+
+Streaming TV, The Night Agent
+
+Thu, 14 May 2026 16:00:23 GMT
+
+https://screenrant.com/the-night-agent-season-4-end-of-an-era-action-shows/
+
+Netflix's hit action thriller has been confirmed for one more season, ending an era and leaving the streaming platform open for a successor TV show.
+---------
+
+# Tekkonkinkreet Officially Returns To Theaters With Epic New Trailer
+
+Anime
+
+Thu, 14 May 2026 16:00:23 GMT
+
+https://screenrant.com/tekkonkinkreet-best-anime-movie-2006-rerelease/
+
+After 20 years, one of anime's most unique and creative films of all time is making a comeback with a new remastered movie theater release.
+---------
+
+# Tom Holland's Spider-Man Finally Suits Up In Black Symbiote Costume In Spider-Man: Brand New Day Art
+
+Superheroes, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Thu, 14 May 2026 15:59:59 GMT
+
+https://screenrant.com/spider-man-brand-new-day-symbiote-suit-art/
+
+Spider-Man: Brand New Day sees the debut of Tom Holland's Symbiote Spider-Man in exciting MCU art that brings the iconic black suit to life.
+---------
+
+# ARC Raiders Confirms It's Experimenting With Team Sizes
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Thu, 14 May 2026 15:57:11 GMT
+
+https://screenrant.com/arc-raiders-larger-team-size-changes-teased/
+
+ARC Raiders only lets you assemble teams of up to three players, but that could change, potentially fulfilling the game's original vision.
+---------
+
+# Doctor Who's Best Era Is Officially Getting A New Streaming Home After Failed Disney Deal
+
+TV, Doctor Who
+
+Thu, 14 May 2026 15:55:26 GMT
+
+https://screenrant.com/doctor-who-amc-plus-streaming-release-june-2026/
+
+The best era of Doctor Who is officially getting a new, exclusive streaming home following the show's failed deal with Disney.
+---------
+
+# GTA 6 Is Already Being Review Bombed Following Delay
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Thu, 14 May 2026 15:31:19 GMT
+
+https://screenrant.com/gta-6-delay-may-2026-review-bombs/
+
+GTA fans will always find a way to make their voices heard, even when the game they're unhappy about hasn't arrived yet.
+---------
+
+# Clint Eastwood's The Outlaw Josey Wales: The Last Great Western Of The 1970s
+
+Movies, The Outlaw Josey Wales, Western
+
+Thu, 14 May 2026 15:31:19 GMT
+
+https://screenrant.com/outlaw-josey-wales-clint-eastwood-western-genre-killer/
+
+In 1976, Clint Eastwood released one of his greatest Westerns, which was so good that it all but killed the genre for the following decade.
+---------
+
+# Netflix’s Returning 8-Part Fantasy Action Series Debuts To Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Thu, 14 May 2026 15:21:29 GMT
+
+https://screenrant.com/devil-may-cry-season-2-rotten-tomatoes-score-debut/
+
+Netflix's latest fantasy series debuts with a rare Rotten Tomatoes score, combining stellar action and stunning visuals for rave reviews.
+---------
+
+# Marvel's New R-Rated Project Is Officially No. 1 On Disney+
+
+TV, Masked Recs, Marvel Cinematic Universe
+
+Thu, 14 May 2026 15:15:14 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-disney-plus-marvel-streaming-success-may-2026/
+
+Following The Punisher: One Last Kill's release on Disney+, Jon Bernthal's Marvel Cinematic Universe spinoff has already become a streaming success.
+---------
+
+# 1 Week Before Finale, Jon Hamm Gets Blackmailed in New Clip From Apple TV's Hit 2-Part Crime Drama
+
+CBR Exclusives, Your Friends and Neighbors
+
+Thu, 14 May 2026 16:00:16 GMT
+
+https://www.cbr.com/jon-hamm-blackmailed-new-clip-your-friends-and-neighbors-season-2/
+
+The show has been a success and it's nearing the finale.
+---------
+
+# 5 Forgotten Netflix Thrillers That Are Perfect From Start to Finish
+
+Movies, Netflix, Thriller
+
+Thu, 14 May 2026 16:00:16 GMT
+
+https://www.cbr.com/perfect-netflix-thrillers-that-no-one-remembers-list/
+
+These captivating thriller movies have been forgotten by the masses, so they deserve to be rediscovered on Netflix.
+---------
+
+# Dungeon Crawler Carl Returns Before Live-Action Show in Must-Read New Sequel
+
+Comics, vault comics, webtoon
+
+Thu, 14 May 2026 16:00:16 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-0-breakout-hit-comic/
+
+Dungeon Crawler Carl fans have yet another way to dive into their favorite series before the live-action adaptation makes its debut.
+---------
+
+# Sons of Anarchy's Biggest Villain Was Played by a Different Actor in the Pilot
+
+TV, Sons of Anarchy, Crime, FX
+
+Thu, 14 May 2026 16:00:16 GMT
+
+https://www.cbr.com/sons-of-anarchy-clay-morrow-actor-ron-perlman-scott-glenn/
+
+Ron Perlman gave one of his most beloved performances as the vicious Clay Morrow on Sons of Anarchy, but he nearly missed out on playing him entirely.
+---------
+
+# ‘Absolute Batman’ Sequel Confirmed by Scott Snyder — New Details Revealed
+
+Comics, Absolute Batman
+
+Thu, 14 May 2026 15:54:12 GMT
+
+https://www.cbr.com/absolute-batman-ark-m-sequel-scott-snyder-confirmed/
+
+A follow-up to one of the most acclaimed Absolute Batman chapters is imminent.
+---------
+
+# Netflix's Historic Tom Hardy & Timothy Olyphant Movie, Havoc, is Perfect
+
+Movies, Havoc
+
+Thu, 14 May 2026 15:45:13 GMT
+
+https://www.cbr.com/tom-hardy-timothy-olyphant-havoc-near-perfect/
+
+Netflix's action thriller with Tom Hardy and Timothy Olyphant is a near-perfect film and a non-stop rollercoaster.
+---------
+
+# Rebecca Ferguson's New Fantasy Epic Based on 87-Year-Old Bestselling Series Eyes 2 More Sequels Ahead of U.S. Release
+
+Movies, The Magic Faraway Tree
+
+Thu, 14 May 2026 15:20:22 GMT
+
+https://www.cbr.com/rebecca-ferguson-the-magic-faraway-tree-sequels/
+
+The fantasy film has debuted in international theaters already and its success might lead to not just one, but two more sequels.
+---------
+
+# Doctor Who Officially Finds New Streaming Home
+
+TV, Doctor Who, Doctor Who / Whoniverse, AMC
+
+Thu, 14 May 2026 15:17:18 GMT
+
+https://www.cbr.com/doctor-who-streaming-amc-plus-america/
+
+Doctor Who has found its new home, but there are still questions to be answered.
+---------
+
+# This Batman Anime Adaptation is Still Peak Dark Knight
+
+Anime, Batman, The Dark Knight Trilogy
+
+Thu, 14 May 2026 15:15:13 GMT
+
+https://www.cbr.com/batman-anime-adaptation-best-movie/
+
+The 2000s film Batman: Gotham Knight brings together six anime directors to explore the world of Christopher Nolan's Dark Knight Trilogy.
+---------
+
+# Tom Clancy's Jack Ryan Returns to the Streaming Charts Ahead of New Movie
+
+TV, Tom Clancy's Jack Ryan, Thriller, Prime Video
+
+Thu, 14 May 2026 15:00:13 GMT
+
+https://www.cbr.com/tom-clancy-jack-ryan-spy-thriller-streaming-success-prime-video-may-2026/
+
+Before its upcoming movie finale, this epic spy thriller is rising on Prime Video's streaming charts.
+---------
+
+# HBO’s New Kidnapping Thriller Just Proved Why It Should Be at the Top of Your Watchlist
+
+TV News, The Chain, Jodie Comer, Damon Lindelof, HBO
+
+Thu, 14 May 2026 16:00:16 GMT
+
+https://collider.com/hbo-damon-lindelof-kidnapping-thriller-the-chain-cast-jodie-comer/
+
+HBO has announced that Jodie Comer has joined the cast of The Chain, the new limited series being developed by Damon Lindelof.
+---------
+
+# Lestat Debuts a Rocking New Track in Epic Look at 'Interview with the Vampire's Long-Awaited Return [Exclusive]
+
+TV News, Interview with the Vampire, AMC+, Sam Reid, Collider Exclusive Preview
+
+Thu, 14 May 2026 16:00:16 GMT
+
+https://collider.com/the-vampire-lestat-new-song-teaser-sam-reid-interview-with-the-vampire-season-3/
+
+The Vampire Lestat released a new teaser, offering a preview of another track from his ascension to rock godhood this summer on AMC.
+---------
+
+# 6 Near-Perfect Horror Shows That No One Remembers Today
+
+TV, Horror, Marianne, Hemlock Grove, Penny Dreadful
+
+Thu, 14 May 2026 15:36:13 GMT
+
+https://collider.com/near-perfect-horror-shows-no-one-remembers/
+
+From Showtime's dark fantasy Penny Dreadful to the underrated Netflix series Hemlock Grove, these horror shows have been forgotten by audiences.
+---------
+
+# One of Netflix’s Most Anticipated Crime Shows Just Got the Biggest Update Yet
+
+TV News, Peaky Blinders, Steven Knight, Netflix, BBC
+
+Thu, 14 May 2026 15:16:23 GMT
+
+https://collider.com/peaky-blinders-sequel-series-production-update-filming-ending-soon/
+
+After dominating Netflix with a new movie, Peaky Blinders is set to return with a spin-off series, with filming set to wrap soon.
+---------
+
+# Netflix’s Hottest Binge of 2026 Racks Up 12M Views in Just 1 Week
+
+TV News, Man on Fire, Netflix, Yahya Abdul-Mateen II
+
+Thu, 14 May 2026 15:15:43 GMT
+
+https://collider.com/netflix-man-on-fire-series-12-million-views-week-2-numbers/
+
+Man on Fire, which has emerged as Netflix's hottest binge of the week, just added 12.6 million views during its second week on streaming.
+---------
+
+# ‘Apex’ Meets ‘The Beekeeper’ in Your New Favorite Action Movie Officially Coming This Year
+
+Movie News, Brad Pitt, David Ayer, Apex, The Beekeeper
+
+Thu, 14 May 2026 15:12:15 GMT
+
+https://collider.com/brad-pitt-heart-of-the-beast-release-date-september-2026-david-ayer/
+
+Heart of the Beast, the new action-adventure thriller directed by David Ayer and starring Brad Pitt, is coming to theaters in September.
+---------
+
+# Taylor Sheridan's New 'Yellowstone' Spin-Off Is Officially the Highest-Rated Series in the Franchise
+
+TV News, Dutton Ranch, Yellowstone, Paramount Plus, Rotten Tomatoes
+
+Thu, 14 May 2026 15:02:27 GMT
+
+https://collider.com/yellowstone-sequel-series-spin-off-dutton-ranch-rotten-tomatoes-score-is-it-good/
+
+Critics have delivered their verdict for Dutton Ranch, the latest Yellowstone spin-off. Get all the details here.
+---------
+
+# 'The Bear' Star's New Nostalgia-Filled Comedy Is Officially Hulu's Next Must-Watch Movie [Exclusive]
+
+Movie News, Hulu, Comedy, Never Change!, Sofia Black-D'Elia, Collider Exclusive Preview
+
+Thu, 14 May 2026 15:00:14 GMT
+
+https://collider.com/hulu-new-comedy-movie-never-change-release-date-images/
+
+Get an exclusive first look at Hulu's upcoming nostalgic comedy Never Change!, starring The Bear's Carmen Christopher and a great ensemble cast.
+---------
+
+# 'Doctor Who' Officially Has a New Streaming Home [Exclusive]
+
+TV News, Doctor Who, AMC+, David Tennant, Matt Smith
+
+Thu, 14 May 2026 14:31:13 GMT
+
+https://collider.com/doctor-who-176-episodes-streaming-release-date-amc-plus/
+
+All 13 seasons of the Doctor Who, starring Christopher Eccleston, David Tennant, Matt Smith, Peter Capaldi, and Jodie Whittaker are coming to AMC+.
+---------
+
+# Cancelled 4-Part Sci-Fi Western Masterpiece Surges on Streaming After Reboot Confirmed
+
+TV News, Westworld, HBO, Sci-Fi, Apple TV
+
+Thu, 14 May 2026 14:25:15 GMT
+
+https://collider.com/westworld-hbo-sci-fi-western-series-itunes-streaming-success-may-2026/
+
+Jonathan Nolan and Lisa Joy's canceled sci-fi series, which was gearing up for a final season, resurfaces on streaming. Get all the details.
+---------
+
+# 'Power' Creator's New Netflix Crime Thriller 'Nemesis' Is the Perfect 'Heat' Replacement
+
+TV News, Nemesis, Coming/Leaving Streaming, Heat, Netflix
+
+Thu, 14 May 2026 16:01:19 GMT
+
+https://movieweb.com/netflix-nemesis-heat-replacement-streaming-may-2026/
+
+'Nemesis' has officially arrived on Netflix, and Courtney A. Kemp's new crime thriller is perfect for fans of Michael Mann's 'Heat.'
+---------
+
+# M. Night Shyamalan's Jake Gyllenhaal Thriller Is the Best Movie of His Career
+
+Movie News, M. Night Shyamalan, Jake Gyllenhaal, Nicholas Sparks, Remain
+
+Thu, 14 May 2026 15:50:48 GMT
+
+https://movieweb.com/m-night-shyamalan-jake-gyllenhaal-nicholas-sparks-romantic-thriller/
+
+M. Night Shyamalan, Nicholas Sparks, and Jake Gyllenhaal team up for a romantic thriller with a twist.
+---------
+
+# 'The Batman Part II' Cast Officially Confirmed by Matt Reeves
+
+Movie News, The Batman Part II, The Batman
+
+Thu, 14 May 2026 15:37:53 GMT
+
+https://movieweb.com/matt-reeves-the-batman-2-official-cast/
+
+Matt Reeves has taken it upon himself to confirm the cast of 'The Batman Part II,' which features Robert Pattinson back in the title role.
+---------
+
+# ‘The Pitt’ Season 3’s Time Jump Can Fix Its Perplexing Dr. Mohan Exit
+
+Features, The Pitt
+
+Thu, 14 May 2026 15:09:47 GMT
+
+https://movieweb.com/the-pitt-season-3-time-jump-fix-mohan-exit/
+
+'The Pitt' Season 3's time jump has been confirmed, and it can
+---------
+
+# Alice Eve Stars in First Trailer for 'Chum' Shark Thriller
+
+Movie News, Alice Eve, Horror
+
+Thu, 14 May 2026 15:04:43 GMT
+
+https://movieweb.com/chum-alive-eve-trailer/
+
+A destination wedding turns bloody in the trailer for IFC's newest film, 'Chum,' a shark survival thriller starring 'Star Trek' alum Alice Eve.
+---------
+
+# The 8 Greatest Horror Movies That Were Rated X or NC-17
+
+Movie Lists, Horror
+
+Thu, 14 May 2026 15:00:19 GMT
+
+https://movieweb.com/best-rated-x-horror-movies/
+
+These horror movies challenged the censors with explicit material and became genre classics in the process.
+---------
+
+# Will Smith to Star in New Prison Action Thriller 'Supermax' for Amazon
+
+Movie News, Will Smith, Action
+
+Thu, 14 May 2026 14:48:48 GMT
+
+https://movieweb.com/will-smith-supermax-amazon-mgm-rights/
+
+Will Smith is attached to star in 'Supermax,' a prison action thriller that Amazon MGM Studios secured the worldwide rights to in a $70 million deal.
+---------
+
+# 'Spider-Man: Brand New Day' Gets Action-Packed Teaser Showing Off Practical Stunts
+
+Movie News, Spider-Man: Brand New Day
+
+Thu, 14 May 2026 14:34:19 GMT
+
+https://movieweb.com/spider-man-brand-new-day-practical-stunts-teaser/
+
+Sony Pictures shared a new behind-the-scenes look at the practical action being used for 'Spider-Man: Brand New Day.'
+---------
+
+# 'Margo’s Got Money Troubles' Renewed for Season 2 at Apple TV
+
+TV News, Elle Fanning, Margo's Got Money Troubles, Michelle Pfeiffer
+
+Thu, 14 May 2026 14:31:45 GMT
+
+https://movieweb.com/margos-got-money-troubles-season-2-apple-tv/
+
+Apple TV has renewed Elle Fanning's 'Margo’s Got Money Troubles' for Season 2 ahead of the Season 1 finale, with David E. Kelley returning.
+---------
+
+# 'Reacher' Is Prime's Action King Despite New Movie 'Jack Ryan: Ghost War'
+
+Features, Jack Ryan, Reacher
+
+Thu, 14 May 2026 14:01:21 GMT
+
+https://movieweb.com/reacher-season-5-confirmed-before-jack-ryan-movie/
+
+'Reacher' has been renewed for Season 5 by Amazon Prime Video, although 'Tom Clancy's Jack Ryan: Ghost War' starring John Krasinski will release soon.
+---------
+
 # Final Fantasy 7: Heroes Of Midgar Announced
 
 Gaming, Final Fantasy 7, Final Fantasy 7 Remake
