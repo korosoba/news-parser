@@ -1,3 +1,333 @@
+# M. Night Shyamalan's New Psychological Thriller Is The "Highest-Testing Movie" Of His Career
+
+Movies, Remain, M. Night Shyamalan
+
+Thu, 14 May 2026 03:05:32 GMT
+
+https://screenrant.com/m-night-shyamalan-remain-movie-highest-testing-movie-career/
+
+M. Night Shyamalan reveals that his upcoming romance thriller has ranked the higher than any of his other projects during test screenings.
+---------
+
+# Eric Kripke’s Plan For The Boys’ Cancelled Spin-Off Spells Hope For Its Future
+
+Streaming TV, The Boys, Gen V
+
+Thu, 14 May 2026 03:00:20 GMT
+
+https://screenrant.com/eric-kripke-gen-v-the-boys-future-cancellation/
+
+The Boys’ acclaimed two-season spin-off has been cancelled, but Erik Kripke’s future plan for its beloved characters still seemingly spells hope.
+---------
+
+# The MCU’s Punisher Just Went Full John Wick
+
+Superheroes, The Punisher: One Last Kill, Marvel Cinematic Universe, John Wick
+
+Thu, 14 May 2026 02:05:32 GMT
+
+https://screenrant.com/mcu-punisher-one-last-kill-john-wick-comparison/
+
+The MCU's brutal new Punisher special features a major turning point for Frank Castle (while also sharing key parallels with John Wick).
+---------
+
+# Reacher Will Quietly Switch Genres In Season 4
+
+Streaming TV, Reacher
+
+Thu, 14 May 2026 02:00:32 GMT
+
+https://screenrant.com/reacher-switch-genres-season-4/
+
+Prime Video’s Reacher follows a very familiar storytelling formula, but in season 4, it will seemingly switch genres from its opening moments itself.
+---------
+
+# Green Lantern's New Orange Lantern Is A History-Making Powerhouse
+
+DC Comics, Green Lantern
+
+Thu, 14 May 2026 02:00:05 GMT
+
+https://screenrant.com/green-lantern-corps-new-orange-lantern/
+
+DC introduces a new, ultra-powerful version of Green Lantern's most underrated villain, finally expanding an untapped part of the emotional spectrum.
+---------
+
+# Original Speed Racer Star Shares His Advice For Apple TV Reboot
+
+Movies, Speed Racer, Emile Hirsch
+
+Thu, 14 May 2026 00:54:15 GMT
+
+https://screenrant.com/speed-racer-apple-tv-reboot-advice-emile-hirsch/
+
+Exclusive: Speed Racer actor Emilie Hirsch passed along his advice for the reboot of the manga/anime property that's in development at Apple TV.
+---------
+
+# I Need Universal Studios’ Limited One Piece Event To Become Permanent
+
+TV, One Piece, Universal Studios Hollywood
+
+Thu, 14 May 2026 00:40:23 GMT
+
+https://screenrant.com/universal-studios-fan-fest-one-piece-show-should-become-permanent/
+
+After seeing Universal's One Piece stunt show during Fan Fest Nights, the fact that it's a limited-time event feels like a HUGE wasted opportunity.
+---------
+
+# Toei Confirms Dragon Ball Has Officially Lost Its Throne As Anime's Biggest Franchise
+
+Anime, Dragon Ball, One Piece
+
+Thu, 14 May 2026 00:30:20 GMT
+
+https://screenrant.com/dragon-ball-one-piece-anime-better-2026/
+
+After decades at the top, Dragon Ball has officially been dethroned. Find out which Shonen Jump rival just claimed Toei Animation's #1 spot for 2026.
+---------
+
+# Mortal Kombat II Set Up Fire God Liu Kang
+
+Movies, Mortal Kombat, Mortal Kombat II
+
+Thu, 14 May 2026 03:45:13 GMT
+
+https://www.cbr.com/mortal-kombat-2-movie-fire-god-liu-kang/
+
+A scene in the Mortal Kombat II film subtly paved the way for the introduction of the most powerful Kombatant from the video games.
+---------
+
+# Animekai's Shutdown Is Officially the End of an Era For Anime
+
+Anime, Streaming Content, Crunchyroll
+
+Thu, 14 May 2026 03:45:13 GMT
+
+https://www.cbr.com/animekai-shutdown-official-end-of-anime-era-2026/
+
+With the official announcement of Animekai's shutdown, anime viewers may find it more difficult to enjoy the medium outside the usual sources.
+---------
+
+# Netflix’s 8-Part Philip K. Dick Adaptation Will Show Silo & Fallout How Dystopian Drama Is Done
+
+TV, Netflix, Fallout, Silo, Sci-Fi
+
+Thu, 14 May 2026 03:30:13 GMT
+
+https://www.cbr.com/netflix-philip-k-dick-the-future-is-ours-vs-silo-fallout/
+
+This adaptation of one of Dick's early novels has the potential to eclipse the fascinating futures created in Apple TV and Prime Video's hit shows.
+---------
+
+# Hey You, Pikachu! Was the Only Game To Use a Rare N64 Peripheral
+
+Games, Pokemon, pikachu, Nintendo 64
+
+Thu, 14 May 2026 03:15:13 GMT
+
+https://www.cbr.com/pokmon-hey-you-pikachu-n64-peripheral/
+
+It may not have been as good as the other early Pokémon games, but it was perhaps the most innovative.
+---------
+
+# 10 Classic Game Boy Games That Are Unplayable Today
+
+Games, Nintendo, retro games
+
+Thu, 14 May 2026 03:00:13 GMT
+
+https://www.cbr.com/game-boy-classic-games-aged-badly/
+
+The Game Boy is home to classic titles like Tetris, but not every game on the system has aged well.
+---------
+
+# Gundam 00's Most Iconic Mecha Returns With Modern Real Grade Gunpla Redesign
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam 00, merchandise, toys, bandai
+
+Thu, 14 May 2026 03:00:13 GMT
+
+https://www.cbr.com/gundam-00-exia-repair-real-grade-gunpla/
+
+Gundam 00 lives on nearly 20 years later, with the newest version of the Gundam Exia revamping the mecha's model kit using modern engineering.
+---------
+
+# 8 Reasons It's Tough to Watch The Hunger Games Today
+
+Movies, The Hunger Games
+
+Thu, 14 May 2026 02:45:13 GMT
+
+https://www.cbr.com/the-hunger-games-tough-to-watch-today/
+
+The Hunger Games is a great franchise with a lot of important messages, but it can be a difficult series to rewatch in 2026.
+---------
+
+# 10 Shonen Anime Heroes Who Blur the Line Between Hero and Villain
+
+Anime, Attack On Titan, Code Geass: Lelouch of the Rebellion, Naruto, shonen anime, Shonen
+
+Thu, 14 May 2026 02:45:13 GMT
+
+https://www.cbr.com/shonen-anime-heroes-who-blur-lines-good-evil/
+
+Some of the best shonen anime heroes are the most imperfect ones.
+---------
+
+# Crunchyroll's Witch Hat Atelier Spiritually Succeeds Disney's The Owl House
+
+Anime, Witch Hat Atelier, The Owl House
+
+Thu, 14 May 2026 02:15:12 GMT
+
+https://www.cbr.com/crunchyroll-witch-hat-atelier-resembles-disney-the-owl-house/
+
+The Owl House was Disney's best fantasy, yet they pushed it towards a premature end. Now, Witch Hat Atelier has come to fill the hole that was left.
+---------
+
+# One Piece Filler Episodes and Arcs You Can Skip
+
+Anime, One Piece
+
+Thu, 14 May 2026 02:00:25 GMT
+
+https://www.cbr.com/one-piece-every-filler-arc/
+
+One Piece has tried to avoid meaningless episodes, but there are still some arcs of the Straw Hat Pirates' adventures worth skipping.
+---------
+
+# 20 Years Later, These Are the 7 Best Fantasy Movies of 2006
+
+Movie, Fantasy, Pan's Labyrinth, Pirates of the Caribbean: Dead Man's Chest, The Science of Sleep
+
+Thu, 14 May 2026 04:07:13 GMT
+
+https://collider.com/best-fantasy-movies-2006/
+
+In 2006, the fantasy genre thrived on the big screen, thanks to movie masterpieces like Pan's Labyrinth and forgotten gems like Stranger Than Fiction.
+---------
+
+# 'Off Campus' Ella Bright and Belmont Cameli Reveal the Most Difficult and "Exhausting" Scenes To Film
+
+Exclusives, Off Campus, Belmont Cameli, Ella Bright, Prime Video
+
+Thu, 14 May 2026 04:06:13 GMT
+
+https://collider.com/off-campus-ella-bright-belmont-cameli-chemistry-read-intimacy-coordinator/
+
+Off Campus stars Belmont Cameli and Ella Bright talk about their casting process, chemistry, and filming intimate scenes.
+---------
+
+# Stephen King’s Terrifying HBO Hit Just Teased a Major Sci-Fi Genre Shift for Season 2
+
+TV Features, It: Welcome to Derry, Stephen King, HBO Max, Horror
+
+Thu, 14 May 2026 03:15:13 GMT
+
+https://collider.com/stephen-king-it-welcome-to-derry-season-2-sci-fi-shift/
+
+IT: Welcome to Derry's Season 2 announcement hints at a sci-fi genre shift as the series explores Pennywise's time-travel abilities.
+---------
+
+# Anya Taylor-Joy’s 2-Part Period Mystery Miniseries Is a Stellar Talent Showcase
+
+TV Features, Anya Taylor-Joy, The Miniaturist, PBS, Drama
+
+Thu, 14 May 2026 03:09:13 GMT
+
+https://collider.com/anya-taylor-joy-most-underrated-performance-the-miniaturist/
+
+Before Lucky arrives on Apple TV, Anya Taylor-Joy delivered an underrated performance in this bleak period drama miniseries.
+---------
+
+# Shudder's New Arrival Is the Horror Fantasy That Will Keep You Up at Night
+
+Movie Features, Heresy, Horror, Fantasy, Shudder
+
+Thu, 14 May 2026 03:03:15 GMT
+
+https://collider.com/heresy-2024-horror-fantasy-movie-shudder-streaming/
+
+The 2024 folk horror fantasy Heresy available on Shudder is a visually stunning, twisted movie that reminds you not to go into the woods.
+---------
+
+# 7 Forgotten Crime Shows That Have Aged Like Fine Wine
+
+TV, Crime, We Own This City, The Night Of, Counterpart
+
+Thu, 14 May 2026 03:01:14 GMT
+
+https://collider.com/forgotten-crime-shows-aged-like-fine-wine/
+
+Time has been extremely kind to forgotten crime shows like We Own This City, The Night Of, and Counterpart, with their reputation improving with age.
+---------
+
+# Netflix's Newest Crime Thriller Officially Arrives in 1 Day
+
+TV News, Nemesis, Netflix, Crime, Power
+
+Thu, 14 May 2026 01:30:13 GMT
+
+https://collider.com/netflix-crime-thriller-nemesis-release-date-may-14-how-to-watch/
+
+Netflix's new crime thriller series, created by Power co-creator Courtney A. Kemp, hits the streamer on May 14. Get all the details.
+---------
+
+# Apple TV's Best Original Series of 2026 Is Officially Returning for Season 2
+
+TV News, Margo's Got Money Troubles, Elle Fanning, Michelle Pfeiffer, Apple TV
+
+Thu, 14 May 2026 01:16:31 GMT
+
+https://collider.com/apple-tv-michelle-pfieffer-series-margos-got-money-troubles-season-2-renewed/
+
+Apple TV has officially decided the fate of it's best original series of the year so far, Margo's Got Money Troubles.
+---------
+
+# Star Wars Fans Can Say Goodbye to a 7-Year Disney+ Streak in 2026
+
+TV Features, Ahsoka, Disney Plus, The Mandalorian and Grogu, Star Wars: Maul - Shadow Lord
+
+Thu, 14 May 2026 01:11:13 GMT
+
+https://collider.com/star-wars-ashoka-season-2-delay-7-year-disney-plus-streak/
+
+Season 2 of Ahsoka has been pushed to 2027, making this the first year that Disney+ won't have a live action Star Wars series.
+---------
+
+# 8 Greatest Blockbuster Trilogies of All Time, Ranked
+
+Movie, Star Wars, The Lord of the Rings: The Fellowship of the Ring, Spider-Man, Avatar
+
+Thu, 14 May 2026 01:03:13 GMT
+
+https://collider.com/best-blockbuster-trilogies-ranked/
+
+The greatest blockbuster trilogies of all time include The Lord of the Rings, the first three Star Wars movies, and Sam Raimi's Spider-Man trilogy.
+---------
+
+# 8 John Wayne Western Movies That Are Still 10/10 Masterpieces
+
+Movie Lists, John Wayne, Western
+
+Thu, 14 May 2026 02:00:31 GMT
+
+https://movieweb.com/john-wayne-best-western-movies/
+
+These John Wayne Western movies that are still genuine masterpieces, covering the films that defined his legacy and have stood the test of time.
+---------
+
+# Nintendo's 'The Legend of Zelda' Now Opening in Theaters One Week Early
+
+Movie News, The Legend of Zelda
+
+Thu, 14 May 2026 00:41:09 GMT
+
+https://movieweb.com/legend-of-zelda-release-date-change/
+
+Sony Pictures and Nintendo have moved 'The Legend of Zelda' up from May 7, 2027, to April 30.
+---------
+
 # Batman Beyond Open-World Game From Arkham Devs Splits Gamers
 
 Gaming, Batman, Batman: Arkham, Triple-A Games, Batman Beyond
