@@ -1,3 +1,333 @@
+# Batman Beyond Open-World Game From Arkham Devs Splits Gamers
+
+Gaming, Batman, Batman: Arkham, Triple-A Games, Batman Beyond
+
+Thu, 14 May 2026 00:00:19 GMT
+
+https://screenrant.com/batman-beyond-open-world-game-leak-rocksteady/
+
+Leaks regarding a hypothetical Batman Beyond-style Arkham game have been in the wind for years, but this latest one is maybe the last straw.
+---------
+
+# 10 Greatest Human Villains In Sci-Fi Movies, Ranked
+
+Movies, Sci-Fi
+
+Thu, 14 May 2026 00:00:19 GMT
+
+https://screenrant.com/best-human-sci-fi-movie-villains-ranked/
+
+While the science fiction genre has seen threats of all shapes and sizes, the most terrifying villains in the best films have tended to be human.
+---------
+
+# Sister Sage's Identity Crisis In The Boys Season 5
+
+TV, The Boys, Susan Heyward
+
+Wed, 13 May 2026 23:52:14 GMT
+
+https://screenrant.com/the-boys-sister-sages-identity-crisis-wont-lead-to-change-of-heart-susan-heyward/
+
+Sister Sage faces an identity crisis in The Boys Season 5 but fails to experience a genuine change of heart, continuing her evil ways despite teaming up with the heroes.
+---------
+
+# Marvel Officially Unveils Iron Man's New Archnemesis For Tony Stark's Next Era
+
+Marvel Comics, Iron Man, Marvel
+
+Wed, 13 May 2026 23:46:22 GMT
+
+https://screenrant.com/iron-man-new-villain-adam-ware-revealed/
+
+Marvel reveals Iron Man's next enemy, resurrected by AIM and transformed into a supervillain in a tragic turn of events Tony Stark fails to avoid.
+---------
+
+# The Batman 2's Full Cast Officially Revealed By Matt Reeves [LIVE UPDATES]
+
+Movies, The Batman Part II, CinemaCon, DC Universe
+
+Wed, 13 May 2026 23:42:02 GMT
+
+https://screenrant.com/the-batman-2-cast-confirmed-matt-reeves/
+
+Matt Reeves' The Batman - Part II is officially set to start filming this year, as DC Studios finally shares major updates on the DC sequel.
+---------
+
+# Superman Officially Returns This Summer With My Adventures With Superman Season 3
+
+Streaming TV, My Adventures With Superman, DC, Superman
+
+Wed, 13 May 2026 23:30:19 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-june-2026-returning-show/
+
+Superman makes an early comeback in the animated series My Adventures with Superman Season 3, premiering June 13, before his live-action appearance in Man of Tomorrow in 2027.
+---------
+
+# Prime Video's Off-Campus Debuts To Strong Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Wed, 13 May 2026 23:13:36 GMT
+
+https://screenrant.com/prime-video-off-campus-rotten-tomatoes-score/
+
+Prime Video's new eight-episode series based on a bestselling book debuts to a stellar Rotten Tomatoes score on the day of its release.
+---------
+
+# Hello Kitty’s Earliest Setback Almost Killed the Sanrio Icon
+
+Anime, Hello Kitty
+
+Wed, 13 May 2026 23:00:22 GMT
+
+https://screenrant.com/hello-kitty-sanrio-secret-history-unpopular-struggle/
+
+Hello Kitty designer Yuko Yamaguchi reveals how she took the character from obscurity to global fame through fan feedback and design innovation.
+---------
+
+# Pokémon Snap Just Made A Very Unexpected Return
+
+Gaming, Pokemon Snap (1999), Triple-A Games
+
+Wed, 13 May 2026 23:00:19 GMT
+
+https://screenrant.com/pokemon-snap-3ds-unofficial-port/
+
+Pokémon Snap kicked off in 1999, very early in the lifecycle of the Pokémon franchise, and has remained a staple spinoff ever since.
+---------
+
+# HBO's New Song Of The Samurai Finally Gives Netflix's One Piece A Proper Rival
+
+Streaming TV, Song of the Samurai, One Piece
+
+Wed, 13 May 2026 23:00:19 GMT
+
+https://screenrant.com/song-of-the-samurai-rival-one-piece-manga-anime-adaptations/
+
+Netflix's One Piece is the reigning champion of live-action anime adaptations, but HBO's new series based on a manga is ready to face off.
+---------
+
+# Kevin Hart & The Rock's Action Comedy Central Intelligence Is a Hit on Hulu
+
+Movies, Central Intelligence, Comedy, Hulu
+
+Thu, 14 May 2026 00:00:12 GMT
+
+https://www.cbr.com/kevin-hart-the-rock-central-intelligence-comedy-hulu-success-may-2026/
+
+Kevin Hart and The Rock's first team-up, the hilarious action-comedy Central Intelligence, is a hit on streaming ahead of Jumanji 4.
+---------
+
+# Gotham Central Is The Best Batman Comic That Doesn't Focus on Bruce Wayne
+
+Comics, Batman, DC Comics
+
+Thu, 14 May 2026 00:00:12 GMT
+
+https://www.cbr.com/best-batman-comic-in-25-years-doesnt-follow-bruce-wayne/
+
+This legendary Batman comic barely even features Gotham's iconic Dark Knight.
+---------
+
+# 25 Years Later, Matthew McConaughey's Frailty Has The Best Plot Twist In Horror History
+
+Movies, Frailty, Horror, Tubi, matthew mcconaughey
+
+Thu, 14 May 2026 00:00:12 GMT
+
+https://www.cbr.com/matthew-mcconaughey-forgotten-horror-movie-frailtyi-review/
+
+This 2001 hidden horror gem directed by Bill Paxton has one of the most unsettling double twists in horror cinema history.
+---------
+
+# Daemons of the Shadow Realm Isn’t Trying to Repeat Fullmetal Alchemist, Producer Says
+
+Anime, Fullmetal Alchemist, Daemons of the Shadow Realm
+
+Wed, 13 May 2026 23:04:28 GMT
+
+https://www.cbr.com/fullmetal-alchemist-vs-daemons-of-the-shadow-realm-not-revival/
+
+According to BONES Film producer Junji Takemoto, Daemons of the Shadow Realm is  entirely different from its legendary predecessor.
+---------
+
+# In Just 1 Day, Project Hail Mary Is Dominating the Charts on PVOD
+
+Movies, Project Hail Mary
+
+Wed, 13 May 2026 23:00:13 GMT
+
+https://www.cbr.com/ryan-gosling-project-hail-mary-sci-fi-pvod-success-may-2026/
+
+Just as anticipated, the film's success translates onto digital platforms.
+---------
+
+# Netflix's The Åre Murders Is the Perfect Cozy Nordic Noir Crime Thriller
+
+TV, The Åre Murders, Netflix, Crime
+
+Wed, 13 May 2026 23:00:13 GMT
+
+https://www.cbr.com/netflix-the-are-murders-bingeworthy-crime-thriller/
+
+The 5-part Nordic noir crime thriller, The Åre Murders, is a cozy yet grim series based on books, and the perfect weekend binge on Netflix.
+---------
+
+# How  Netflix’s Magician's Nephew Will Be Different From Disney’s Narnia Trilogy
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Wed, 13 May 2026 23:00:13 GMT
+
+https://www.cbr.com/netflix-narnia-magicians-nephew-different-disney-narnia-trilogy-list/
+
+Netflix's upcoming Narnia reboot will be very different from The Chronicles of Narnia trilogy released by Disney between 2005 and 2010.
+---------
+
+# Netflix’s 10/10 British Thriller Finally Scores a Promising Season 2 Update
+
+TV News, Adolescence, Stephen Graham, Netflix, Streaming
+
+Thu, 14 May 2026 00:00:13 GMT
+
+https://collider.com/netflix-thriller-adolescence-season-2-stephen-graham-update/
+
+It's official! A follow-up to Netflix's Emmy-winning masterpiece, Adolescence, is officially in development, says Stephen Graham.
+---------
+
+# Jack Black's New Video Game Movie Sequel Has Officially Starting Filming
+
+Movie News, Minecraft, A Minecraft Movie 2, A Minecraft Movie, Jack Black
+
+Wed, 13 May 2026 23:49:08 GMT
+
+https://collider.com/jack-black-a-minecraft-movie-2-sequel-filming-start-may-2026-kirsten-dunst-set-image/
+
+Jack Black's A Minecraft Movie sequel has officially started filming according to a new set image from Kirsten Dunst.
+---------
+
+# 'Stranger Things' Creators' New Sci-Fi Series Arrives on Netflix in Less than 10 Days
+
+TV News, The Boroughs, Duffer Brothers, Stranger Things, Netflix
+
+Wed, 13 May 2026 23:45:13 GMT
+
+https://collider.com/the-boroughs-duffer-brothers-new-sci-fi-series-netflix-release-date-may-21-2026-how-to-watch/
+
+The Duffer Brothers' new sci-fi series, The Boroughs, premieres in less than 10 days on Netflix. Find out more details.
+---------
+
+# Guy Ritchie’s First Theatrical Movie in 2 Years Officially Premieres on May 15
+
+Movie News, In the Grey, Guy Ritchie, Henry Cavill, Jake Gyllenhaal
+
+Wed, 13 May 2026 23:30:13 GMT
+
+https://collider.com/guy-ritchie-henry-cavill-thriller-in-the-grey-release-date-may-15-2026-how-to-watch/
+
+Guy Ritchie's latest movie, the action-thriller In the Grey, will be released in theaters this week. Find out more details.
+---------
+
+# 'Off Campus' Showrunner Explains Why the Show Made That Big Change Halfway Through the Season
+
+Exclusives, Off Campus, Louisa Levy, Prime Video, Romance
+
+Wed, 13 May 2026 23:24:13 GMT
+
+https://collider.com/off-campus-showrunner-louisa-levy-prime-video-elle-kennedy-books/
+
+Off Campus showrunner Louisa Levy discusses the series' adaptations from the books, the importance of keeping certain storylines intact, and plans for future seasons.
+---------
+
+# 5 Tom Cruise Movies That Are Genuinely Bad
+
+Movie, The Mummy, Tom Cruise, Cocktail, Legend
+
+Wed, 13 May 2026 23:22:13 GMT
+
+https://collider.com/worst-tom-cruise-movies/
+
+Most Tom Cruise movies range in quality from decent to great, but he's been in a few all-time stinkers, including The Mummy, Cocktail, and Losin' It.
+---------
+
+# Nintendo's Live-Action 'Legend of Zelda' Remake Officially Sets New Early Release Date
+
+TV News, The Legend of Zelda, Nintendo, Shigeru Miyamoto, Benjamin Evan Ainsworth
+
+Wed, 13 May 2026 23:19:26 GMT
+
+https://collider.com/nintendo-live-action-legend-of-zelda-movie-release-date-moved-up-april-30-2027/
+
+Nintendo legend Shigeru Miyamoto has confirmed that the live-action Legend of Zelda movie has a new release date.
+---------
+
+# 24 Years Later, Ryan Gosling's Forgotten Crime Thriller Is Officially Taking Over the World
+
+Movie News, Murder By Numbers, Ryan Gosling, Sandra Bullock, Netflix
+
+Wed, 13 May 2026 23:16:13 GMT
+
+https://collider.com/ryan-gosling-sandra-bullock-forgotten-crime-thriller-murder-by-numbers-streaming-success-netflix-may-2026-se7en/
+
+Ryan Gosling and Sandra Bullock's forgotten Se7en-style psychological thriller, Murder by Numbers, is a sudden streaming hit on Netflix.
+---------
+
+# 10 Thriller Movies That Are 10/10, No Notes
+
+Movie, Thriller, Knives Out, Black Swan, Alien
+
+Wed, 13 May 2026 23:11:13 GMT
+
+https://collider.com/thriller-movies-perfect-no-notes/
+
+Inception, Se7en, Prisoners, Alien, Black Swan, Misery, Knives Out, and more make up our list of perfect thriller movies.
+---------
+
+# 2026's First $1 Billion Sci-Fi Movie Officially Arrives on Digital Next Week
+
+Movie News, The Super Mario Galaxy Movie, Anya Taylor-Joy, Chris Pratt, Sci-Fi
+
+Wed, 13 May 2026 23:00:14 GMT
+
+https://collider.com/super-mario-galaxy-movie-grossing-1-billion-biggest-movie-of-2026-arrives-digital-next-week/
+
+Six weeks after releasing in North American theaters, The Super Mario Galaxy Movie is scheduled to release on digital PVOD platforms next week.
+---------
+
+# Samuel L. Jackson's Makes a Cameo in The Boys, Expanding His Superhero Resume
+
+Features, The Boys
+
+Thu, 14 May 2026 00:00:18 GMT
+
+https://movieweb.com/samuel-l-jacksons-the-boys-deep-cameo/
+
+'The Boys' is no stranger to welcoming A-list cameos, both in person and voice, and Samuel L. Jackson was a huge get for the show's final season.
+---------
+
+# Will Ferrell Sports Comedy 'The Hawk' Gets Teaser Trailer From Netflix
+
+TV News, The Hawk, Will Ferrell
+
+Wed, 13 May 2026 23:48:26 GMT
+
+https://movieweb.com/netflix-the-hawk-teaser-trailer/
+
+The comedian is taking another crack at sports comedies.
+---------
+
+# Who These 10 Would-Be 'Game of Thrones' Cast Members Would Have Played in the HBO Series
+
+TV Lists, Game Of Thrones
+
+Wed, 13 May 2026 23:00:18 GMT
+
+https://movieweb.com/game-of-thrones-cast-almost/
+
+The 'Game of Thrones' cast could have been very different if other actors had made it through their auditions. Read on for more.
+---------
+
 # The Legend Of Zelda Movie Is Officially Releasing Early
 
 Movies, The Legend of Zelda
