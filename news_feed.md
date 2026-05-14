@@ -1,3 +1,421 @@
+# John Wick's Caine Movie Casts New Franchise Character
+
+Movies, Caine John Wick Spinoff, John Wick
+
+Thu, 14 May 2026 18:12:11 GMT
+
+https://screenrant.com/john-wick-caine-movie-spinoff-dacre-montgomery-cast/
+
+The next John Wick movie, the Caine spinoff film, officially casts the franchise's first new character, joining Donnie Yen and Rina Sawayama.
+---------
+
+# New Xbox Hardware Leaks, And It Looks Wildly Different
+
+Gaming, Xbox, Triple-A Games
+
+Thu, 14 May 2026 18:11:59 GMT
+
+https://screenrant.com/xbox-hardware-new-controllers-leak/
+
+2026 is turning out to be a big year for hardware, and the newest project from Xbox is a major change from what we've seen in the past.
+---------
+
+# Prime Video's 3-Part 'Lord Of The Rings Meets Pirates Of The Caribbean' Series Keeps Getting Better
+
+TV, Prime Video, Masked Recs
+
+Thu, 14 May 2026 18:04:21 GMT
+
+https://screenrant.com/legend-of-vox-machina-amazon-prime-show-keeps-getting-better/
+
+This unexpectedly mature, R-rated, and bloody blend of Lord Of The Rings and Pirates of the Caribbean is Prime Video's most enjoyable fantasy epic.
+---------
+
+# How Guy Ritchie Keeps His Spy Thrillers Fresh And Exciting
+
+Movies, In the Grey, Guy Ritchie
+
+Thu, 14 May 2026 18:02:13 GMT
+
+https://screenrant.com/guy-ritchie-in-the-grey-spy-genre-movies-fresh/
+
+Guy Ritchie discusses his method for keeping spy genre movies fresh and engaging, as seen in his latest film, In The Grey, starring Jake Gyllenhaal, Henry Cavill, and Eiza González.
+---------
+
+# The Dream Of A Steven Spielberg Westworld Movie Was Just Shattered
+
+Movies, Westworld, Steven Spielberg
+
+Thu, 14 May 2026 17:45:19 GMT
+
+https://screenrant.com/westworld-movie-steven-spielberg-director-theory-debunked/
+
+Fan speculation for the upcoming Westworld reboot film placed Steven Spielberg as the director, but a new update just shattered the theory.
+---------
+
+# Netflix's Fantasy Mystery Dethrones Record-Shattering New Movie For No. 1 Chart Spot
+
+Movies, Masked Recs
+
+Thu, 14 May 2026 17:31:16 GMT
+
+https://screenrant.com/remarkably-bright-creatures-movie-chart-number-one-spot-netflix-streaming-success-swapped-comparison/
+
+Netflix's fantasy mystery film dethrones a record-shattering new movie for the No. 1 spot on their Top 10 streaming chart in the United States.
+---------
+
+# 8 Near-Perfect Detective Shows No One Remembers Today
+
+Classic TV
+
+Thu, 14 May 2026 17:30:21 GMT
+
+https://screenrant.com/perfect-detective-shows-no-one-remembers/
+
+The detective genre on TV is packed with great shows that are now classics, leading to other equally great shows being forgotten over the years.
+---------
+
+# When Forza Horizon 6 Goes Live In Your Region
+
+Gaming, Forza Horizon 6, Forza, Triple-A Games, PC
+
+Thu, 14 May 2026 17:08:46 GMT
+
+https://screenrant.com/forza-horizon-6-launch-time-date-region/
+
+Forza Horizon 6 is right around the corner, with various launch times and dates depending on region and which edition you've purchased.
+---------
+
+# Taylor Sheridan's Call Of Duty Movie Return Addressed By Major Black Ops Star
+
+Movies, Call of Duty, Call of Duty: Black Ops 6, Y'lan Noel
+
+Thu, 14 May 2026 17:08:11 GMT
+
+https://screenrant.com/taylor-sheridan-call-of-duty-movie-black-ops-return-ylan-noel-response/
+
+Exclusive: One of the stars from the Black Ops series is addressing the chances of returning for Taylor Sheridan's Call of Duty movie adaptation.
+---------
+
+# Shojo's Most Famous Creator Brings A Forgotten Classic To The West In New Trailer (Exclusive)
+
+Anime, Nana
+
+Thu, 14 May 2026 17:00:21 GMT
+
+https://screenrant.com/shojo-best-creator-ai-yazawa-nana-no-angel/
+
+From the creator of Nana, Neighborhood Story, Paradise Kiss, and more, this series put Ai Yazawa front-and-center in the shojo scene of the 1990s.
+---------
+
+# The Witcher 3 Officially Reveals Stunning New Ciri Figure Coming 2026
+
+Games, The Witcher 3: Wild Hunt, The Witcher
+
+Thu, 14 May 2026 18:11:14 GMT
+
+https://www.cbr.com/witcher-3-new-release-ciri-figure-coming-2026/
+
+The Witcher 3 fans have the chance to bring home an absolutely breathtaking sculpt of one of the franchise's most beloved characters.
+---------
+
+# Apple TV Decides Margo's Got Money Troubles' Future 6 Days Before Finale
+
+TV, Margo's Got Money Troubles
+
+Thu, 14 May 2026 18:04:49 GMT
+
+https://www.cbr.com/margos-got-money-troubles-renewed-season-2-apple-tv/
+
+You could say that the Margo's Got Money Troubles' fate has been sealed ahead of its finale on Apple TV.
+---------
+
+# 28 Years Later, the Ultimate Batman Crossover Reunion Fans Want Still Hasn’t Happened
+
+Comics, DC Comics, Batman, Judge Dredd
+
+Thu, 14 May 2026 18:01:14 GMT
+
+https://www.cbr.com/batman-fans-waiting-for-ultimate-crossover-judge-dredd/
+
+Batman has had some of the greatest crossovers ever told in comics, but one key antihero remains the reunion every fan wants to see.
+---------
+
+# Only One Sci-Fi Movie Has Better Fight Scenes Than The Matrix
+
+Movies, Upgrade, The Matrix, Sci-Fi
+
+Thu, 14 May 2026 17:30:13 GMT
+
+https://www.cbr.com/upgrade-better-fight-scenes-than-the-matrix/
+
+The Matrix remains one of the most iconic action movies in history, but 2018's Upgrade took the action to a new and even better level.
+---------
+
+# 3 Years Later, Prime Video Has Forgotten The Boys' Best Spinoff Series
+
+TV, The Boys, Prime Video
+
+Thu, 14 May 2026 17:30:13 GMT
+
+https://www.cbr.com/prime-video-forgot-the-boys-mexico-spinoff-series/
+
+The Boys has done a lot of set up for one of its upcoming spinoffs, but another has been completely forgotten by Prime Video.
+---------
+
+# Pokémon Brings Back Original 8-Bit Designs for New 30th Anniversary Release
+
+Anime, Pokemon, merchandise, Clothing
+
+Thu, 14 May 2026 17:26:46 GMT
+
+https://www.cbr.com/pokemon-red-anniversary-uniqlo-release/
+
+The 30th anniversary of Pokémon continues with another wave of nostalgic Uniqlo shirts honoring the 8-bit heritage of the multimedia franchise.
+---------
+
+# 7 PS1 Games That Have Aged Like Fine Wine
+
+Games, PlayStation (Original), Tony Hawk's Pro Skater, Spider-Man, Metal Gear Solid
+
+Thu, 14 May 2026 17:15:12 GMT
+
+https://www.cbr.com/ps1-games-that-aged-well/
+
+The PlayStation 1 hosted plenty of classics and these titles have somehow aged beautifully.
+---------
+
+# In Just 1 Day, Prime Video's Cult Fantasy Series Becomes a Streaming Hit Despite Franchise-Lowest Reception
+
+TV, Good Omens
+
+Thu, 14 May 2026 17:00:14 GMT
+
+https://www.cbr.com/good-omens-season-3-prime-video-success-may-2026/
+
+After three years, the fantasy series returned with the lowest-scored entry yet, but still became a hit.
+---------
+
+# Couple’s Weekend Cast Break Down the Movie’s Wildest Honest Moments
+
+Movies, Couples Weekend
+
+Thu, 14 May 2026 16:32:06 GMT
+
+https://www.cbr.com/video/couple-s-weekend-cast-break-down-the-movie-s-wildest-honest-moments/
+
+Ashley Park, Alexandra Daddario, and Nora Kirkpatrick break down the chaos, honesty, and chemistry behind Couple’s Weekend. From truth-serum confessions to the intense relationship dynamics at the center of the movie, the cast shares how the comedy balances emotional honesty with hilarious tension.Nora Kirkpatrick explains how she wrote the film’s biggest emotional moments while keeping the humor grounded in real life, while Ashley Park and Alexandra Daddario talk about building believable friendships and relationship conflict on set. The trio also reflects on the movie’s Tribeca premiere, audience reactions, and why the story continues to resonate years after filming.
+---------
+
+# After Claiming it Was 'Too Grueling,' Invincible Star Teases Shocking Season 5 Return
+
+TV, Invincible, Invincible Presents: Atom Eve
+
+Thu, 14 May 2026 16:31:26 GMT
+
+https://www.cbr.com/aaron-paul-teases-invincible-season-5-return/
+
+He refused to ever return to Invincible, but it looks like he's about to shock the world.
+---------
+
+# New First Look at 'The Batman' Sequel Reveals Sebastian Stan's Terrifying Two-Face
+
+Movie News, The Batman Part II, Sebastian Stan, The Batman, Matt Reeves
+
+Thu, 14 May 2026 18:13:15 GMT
+
+https://collider.com/the-batman-sequel-first-look-sebastian-stan-harvey-dent-two-face/
+
+Sebastian Stan's Harvey Dent has been revealed in an eerie first look at Robert Pattinson's The Batman sequel.
+---------
+
+# 60+ Year Old Psychological Thriller Officially Gets Chilling New Look in Apple TV Series [Exclusive]
+
+Exclusives, Cape Fear, Apple TV, Amy Adams, Collider Exclusive Preview
+
+Thu, 14 May 2026 18:00:15 GMT
+
+https://collider.com/cape-fear-remake-series-images-apple-tv-javier-bardem-amy-adams-patrick-wilson/
+
+Get an exclusive look at Apple TV's Cape Fear, a thrilling reimagining of the classic story starring Amy Adams, Patrick Wilson, and Javier Bardem.
+---------
+
+# New John Wick Movie Officially Casts a 'Stranger Things' Icon
+
+Movie News, Caine John Wick Spinoff, Donnie Yen, Dacre Montgomery, John Wick
+
+Thu, 14 May 2026 17:49:35 GMT
+
+https://collider.com/new-john-wick-movie-donnie-yen-caine-cast-dacre-montgomery/
+
+Donnie Yen's upcoming John Wick spin-off, Caine, has officially cast Stranger Things icon Dacre Montgomery. Read on for more.
+---------
+
+# 'Underworld's Kate Beckinsale Officially Starring in George A. Romero's Final Zombie Movie
+
+Movie News, George A. Romero, Kate Beckinsale, Horror, Night of the Living Dead
+
+Thu, 14 May 2026 17:21:42 GMT
+
+https://collider.com/underworld-star-kate-beckinsale-cast-twilight-of-the-dead-george-a-romero-final-horror-movie/
+
+Kate Beckinsale, best known for the Underworld movies, will lead the final installment of George A. Romero's Living Dead franchise.
+---------
+
+# Forget ‘The Boys’: These 6 Series Have Much Better Action
+
+TV, The Boys, Quarry, See, Action
+
+Thu, 14 May 2026 17:18:14 GMT
+
+https://collider.com/shows-better-action-than-the-boys/
+
+Banshee, Snowfall, Sons of Anarchy, Cobra Kai, See, and more make up our list of shows with better action than The Boys.
+---------
+
+# 6 Reasons It's Hard To Get Excited About 'Avengers: Doomsday'
+
+Movie, Avengers: Doomsday, Avengers: Endgame, Marvel, Avengers: Infinity War
+
+Thu, 14 May 2026 17:08:13 GMT
+
+https://collider.com/avengers-doomsday-why-its-hard-to-get-excited/
+
+Due to MCU oversaturation and questionable marketing, Avengers: Doomsday already feels shaky, as Marvel’s multiverse machine starts overheating again.
+---------
+
+# Prime Video’s Next Major Romance Series Gets Perfect First Look Just in Time for Summer Release [Exclusive]
+
+Exclusives, Collider Exclusive Preview, Every Year After, Prime Video, Romance
+
+Thu, 14 May 2026 17:00:14 GMT
+
+https://collider.com/prime-video-every-year-after-first-look-images-every-summer-after-series-adaptation/
+
+Prime Video invites fans to take a first look at their next teen summer obsession with a new set of images from Every Year After. See them here.
+---------
+
+# 'Mayor of Kingstown' Star Officially Joins Taylor Sheridan's 'Tulsa King' Season 4
+
+TV News, Mayor of Kingstown, Tulsa King, Taylor Sheridan, Jeremy Renner
+
+Thu, 14 May 2026 16:56:24 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-season-4-cast-mayor-of-kingstown-star-richie-stephens/
+
+Tulsa King Season 4 is set for a Taylor Sheridan reunion as a Mayor of Kingstown star officially joins the cast.
+---------
+
+# First Look at 'The Batman' Sequel Has Scarlett Johansson Officially Leaving Marvel Behind
+
+Movie News, The Batman Part II, Scarlett Johansson, Matt Reeves, The Batman
+
+Thu, 14 May 2026 16:47:37 GMT
+
+https://collider.com/robert-pattinson-the-batman-sequel-first-look-scarlett-johansson-matt-reeves/
+
+Scarlett Johansson has officially arrived to Gotham City in a first look at Robert Pattinson's The Batman sequel.
+---------
+
+# 'The Godfather' Is Officially Getting a New Sequel in 2027
+
+Movie News, The Godfather, The Godfather Part II, The Godfather Part III
+
+Thu, 14 May 2026 16:39:29 GMT
+
+https://collider.com/the-godfather-sequel-novel-crime-thriller-release-window-2027/
+
+57 years later, Mario Puzo's The Godfather is getting an official sequel, opening the doors to a potential Godfather Part IV movie.
+---------
+
+# Tom Hardy's Crime Thriller 'MobLand' Could Debut Season 2 Later This Year
+
+TV News, MobLand, Tom Hardy, Guy Ritchie
+
+Thu, 14 May 2026 18:03:37 GMT
+
+https://movieweb.com/mobland-season-2-release-update-tom-hardy/
+
+Guy Ritchie has shared an update that the Paramount+ crime thriller is expected to return before the end of 2026.
+---------
+
+# 'TBBT's 'Stuart Fails to Save the Universe' Makes a Genre Change to Sci-Fi
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Sci-Fi, Comedy, Kevin Sussman, Jim Parsons
+
+Thu, 14 May 2026 18:00:20 GMT
+
+https://movieweb.com/the-big-bang-theory-stuart-spinoff-changing-genres/
+
+'The Big Bang Theory's latest spinoff takes viewers out of the sitcom world and into a new multiverse, shaking things up massively for the franchise.
+---------
+
+# 'My Adventures With Superman' Season 3 Official Trailer Adds Superboy to the Fray
+
+TV News, My Adventures With Superman, Superman, HBO Max
+
+Thu, 14 May 2026 17:29:34 GMT
+
+https://movieweb.com/my-adventures-with-superman-season-3-trailer/
+
+The new look at the upcoming season of Adult Swim's 'My Adventures With Superman' teases more Supermen joining the story.
+---------
+
+# Netflix's 'The Lincoln Lawyer' Ending With Season 5
+
+TV News, The Lincoln Lawyer, Netflix
+
+Thu, 14 May 2026 17:22:28 GMT
+
+https://movieweb.com/the-lincoln-lawyer-renewed-final-season/
+
+The hit series based on the novels of the same name has proven to be a hit on the streaming platform.
+---------
+
+# DC's 'Lanterns' Images Revealed, New Plot Details Confirm 2 Different Timelines
+
+TV News, Lanterns, HBO Max
+
+Thu, 14 May 2026 17:02:37 GMT
+
+https://movieweb.com/lanterns-images-plot-details-timeline/
+
+DC Studios released exciting new images and plot details from the upcoming HBO Max series, 'Lanterns.'
+---------
+
+# ‘The Boys’ Season 5 Calls Out Taylor Sheridan’s Biggest TV Problem
+
+Features, Taylor Sheridan, The Boys
+
+Thu, 14 May 2026 17:00:20 GMT
+
+https://movieweb.com/the-boys-season-5-taylor-sheridan-joke/
+
+The Amazon Prime Video series 'The Boys' Season 5, Episode 7 features a joke about Taylor Sheridan, the creator of 'Yellowstone' and other TV series.
+---------
+
+# 'Saturday Night Live UK's Ncuti Gatwa Reveal Could Set up His 'Doctor Who' Comeback
+
+Features, Doctor Who, Ncuti Gatwa
+
+Thu, 14 May 2026 16:58:18 GMT
+
+https://movieweb.com/doctor-who-cryptic-ncuti-gatwa-comeback-tease/
+
+Ncuti Gatwa hasn't been announced as the leader of the 'Doctor Who' cast for the 2026 Christmas special, but he still could be.
+---------
+
+# Peter Jackson Offers Update on Stephen Colbert's 'Lord of the Rings: Shadows of the Past'
+
+Movie News, The Lord of the Rings, Peter Jackson, Stephen Colbert
+
+Thu, 14 May 2026 16:17:33 GMT
+
+https://movieweb.com/peter-jackson-lord-of-the-rings-shadow-of-the-past-update/
+
+Peter Jackson has shared new details on Stephen Colbert's 'The Lord of the Rings: Shadows of the Past,' a sequel set 14 years after Frodo’s departure.
+---------
+
 # Xbox Game Pass Adds 3 Free Games This Weekend
 
 Gaming, Xbox Game Pass, PC, Triple-A Games, Battlefield 6
