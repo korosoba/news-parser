@@ -1,3 +1,289 @@
+# Netflix's Frankenstein From Guillermo Del Toro Is One Of Its Best Movies
+
+Movies, Masked Recs, Quiz CV
+
+Thu, 14 May 2026 23:30:56 GMT
+
+https://screenrant.com/netflix-frankenstein-fantasy-movie-must-watch/
+
+This Netflix fantasy movie is a masterpiece that became a worldwide streaming sensation, serving as one of the best genre releases on the streamer.
+---------
+
+# Sasuke's One True Heir Hints At Naruto's New Itachi With One Tragic Twist
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Thu, 14 May 2026 23:30:20 GMT
+
+https://screenrant.com/naruto-sasuke-successor-sarada-uchiha-sharingan-itachi-twist/
+
+Naruto's sequel series has been exploring familiar territory for the Uchiha clan, coming to a head with their greatest weakness.
+---------
+
+# Silo & Fallout Feel Small Compared To Netflix’s 6-Part Post-Apocalyptic Sci-Fi
+
+Streaming TV, Masked Recs
+
+Thu, 14 May 2026 23:30:20 GMT
+
+https://screenrant.com/silo-fallout-netflix-the-eternaut-sci-fi/
+
+One of Netflix’s best post-apocalyptic sci-fi shows is so vast & ambitious with its vision that it makes both Silo and Fallout look relatively small.
+---------
+
+# How Jack Ryan's First Movie In 12 Years Elevates The Hit Franchise Explained By Ghost War Director & Stars
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan, John Krasinski, Michael Kelly
+
+Thu, 14 May 2026 23:26:28 GMT
+
+https://screenrant.com/jack-ryan-ghost-war-movie-action-elevated-show-comparison/
+
+EXCLUSIVE: John Krasinski is back for Jack Ryan: Ghost War, and the actor reveals how the film elevates the story from what fans saw on the TV show.
+---------
+
+# Euphoria's R-Rated Predecessor Makes The HBO Series Look Tame
+
+Classic TV, Euphoria
+
+Thu, 14 May 2026 23:15:21 GMT
+
+https://screenrant.com/euphoria-hbo-series-skins-uk-look-tame/
+
+Euphoria's R-rated predecessor, pushed boundaries even further with its raw and gritty storytelling, making the HBO series seem tame in comparison.
+---------
+
+# DC Confirms Clayface Reboot Ahead Of Film Debut, And It Will Be Pure Nightmare Fuel
+
+DC Comics, DC Universe, DC, Clayface, Batman
+
+Thu, 14 May 2026 23:00:21 GMT
+
+https://screenrant.com/scott-snyder-absolute-clayface-batman-dcu/
+
+Clayface is receiving a limelight this fall when he makes his live-action DCU debut, but an appearance beforehand could easily eclipse it.
+---------
+
+# 10 Years Later, The MCU’s Major Punisher Rewrite Opens The Door For An Exciting Future (Beyond Spider-Man)
+
+Superheroes, The Punisher: One Last Kill, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Thu, 14 May 2026 23:00:21 GMT
+
+https://screenrant.com/punisher-one-last-kill-sets-up-mcu-future-beyond-spiderman-brand-new-day/
+
+Punisher: One Last Kill is an incredibly unique MCU Special, setting up Frank Castle's future in Spider-Man: Brand New Day (and beyond).
+---------
+
+# PlayStation Plus Officially Revives A PS1 Classic
+
+Gaming, PlayStation Plus, Triple-A Games, PlayStation
+
+Thu, 14 May 2026 23:00:21 GMT
+
+https://screenrant.com/playstation-plus-ps1-classic-time-crisis/
+
+PlayStation Plus is adding some major hits in May, and one old-school title is both very cool and surprising to see on a modern platform.
+---------
+
+# 8 Best-Selling Manga That Still Don’t Have the Anime Adaptation They Deserve
+
+Anime
+
+Thu, 14 May 2026 23:00:21 GMT
+
+https://screenrant.com/best-selling-manga-no-anime-adaptation/
+
+The manga-anime pipeline is almost a given for most projects. However, the best manga performers often get the worst luck.
+---------
+
+# The Devil Wears Prada 2's Box Office Success Is A Great Sign For The Princess Diaries 3
+
+Movies, The Devil Wears Prada 2
+
+Thu, 14 May 2026 23:00:21 GMT
+
+https://screenrant.com/the-devil-wears-prada-2-box-office-anne-hathaway-sequel/
+
+The Devil Wears Prada 2 is a huge hit at the box office, and it's a promising sign for Anne Hathaway's upcoming sequel in a nostalgic franchise.
+---------
+
+# Dragon Ball Z Officially Completes Goku's Family Kamehameha
+
+Anime, Dragon Ball, merchandise, Dragon Ball Z
+
+Thu, 14 May 2026 23:30:12 GMT
+
+https://www.cbr.com/dragon-ball-z-ss-goku-blood-of-saiyans-release/
+
+Dragon Ball's premier family of Super Saiyans is officially reuniting under one of fans' favorite figure lines after a major new release.
+---------
+
+# 10 Classic 2000s Shonen Worse Than Any Anime Today
+
+Anime, Shonen, Yu-Gi-Oh!
+
+Thu, 14 May 2026 23:15:13 GMT
+
+https://www.cbr.com/classic-2000s-shonen-worse-than-2020s-anime/
+
+These shonen anime are classics, but they don't hold up, and they definitely don't hold a candle to new-gen series.
+---------
+
+# Classic Sonic Officially Returns This Summer After 35 Years
+
+Comics, Sonic the Hedgehog
+
+Thu, 14 May 2026 23:00:13 GMT
+
+https://www.cbr.com/classic-sonic-the-hedgehog-anniversary-special-release-date-confirmed/
+
+Classic Sonic makes a triumphant return for the 35th anniversary of the beloved franchise.
+---------
+
+# The MCU Needs More Special Presentations After Punisher: One Last Kill
+
+TV, MCU, The Punisher: One Last Kill, superheroes
+
+Thu, 14 May 2026 23:00:13 GMT
+
+https://www.cbr.com/more-mcu-special-presentations-after-punisher-one-last-kill/
+
+The Punisher: One Last Kill officially proves the best (and most underutilized) part of the controversial Multiverse Saga.
+---------
+
+# 5 Untouchable Action Movies Too Perfect to Ever Remake
+
+Movies, Action, Die Hard
+
+Thu, 14 May 2026 23:00:13 GMT
+
+https://www.cbr.com/untouchable-action-movies-too-perfect-to-remake-list/
+
+Some action movies defined the genre forever, and there are more than a few so great that the idea for a remake goes right out the window.
+---------
+
+# Hulu's Addictive 8-Part Crime Series Deserves Its 100% Rotten Tomatoes Score
+
+TV Features, Sunny Nights, D'Arcy Carden, Will Forte, Hulu
+
+Thu, 14 May 2026 23:49:13 GMT
+
+https://collider.com/sunny-nights-hulu-crime-comedy-masterpiece-series/
+
+D'Arcy Carden and Will Forte's Australia-set Hulu crime comedy Sunny Nights perfectly blends intense violence with witty humor.
+---------
+
+# 10 Most Realistic Hard Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, 2001: A Space Odyssey, Contact, Children of Men
+
+Thu, 14 May 2026 23:48:13 GMT
+
+https://collider.com/most-realistic-hard-sci-fi-movies-ranked/
+
+Contact, Children of Men, and 2001: A Space Odyssey are all among the most realistic hard sci-fi movies of all time.
+---------
+
+# 7 Greatest American Fantasy TV Shows of All Time, Ranked
+
+TV, Fantasy, Game Of Thrones, Supernatural, Avatar: The Last Airbender
+
+Thu, 14 May 2026 23:39:13 GMT
+
+https://collider.com/best-american-fantasy-shows-all-time-ranked/
+
+From the long-running series Supernatural to the HBO juggernaut Game of Thrones, these American fantasy shows are among the best of the genre.
+---------
+
+# Netflix's Darker 'Heartstopper' Replacement Officially Arrives in 2 Days
+
+TV News, Netflix, Romance, Drama, Heartstopper
+
+Thu, 14 May 2026 23:30:13 GMT
+
+https://collider.com/soul-mate-netflix-heartstopper-replacement-release-date-may-14-2026-how-to-watch/
+
+A dark, globe-trotting love story premieres on Netflix on May 14, and it's perfect for Heartstopper and Heated Rivalry fans.
+---------
+
+# 11 Greatest GameCube Games of All Time, Ranked
+
+Movie, Super Smash Bros., Nintendo, Video Game, The Legend of Zelda
+
+Thu, 14 May 2026 23:21:13 GMT
+
+https://collider.com/best-gamecube-games/
+
+The GameCube saw the released of some of the most beloved video games of the 2000s, including Resident Evil 4, Pikmin 2, and Metroid Prime.
+---------
+
+# 25 Miniseries That Can Be Called Masterpieces, Ranked
+
+TV, Chernobyl, Band of Brothers, Sharp Objects, TV Miniseries
+
+Thu, 14 May 2026 23:12:13 GMT
+
+https://collider.com/best-miniseries-masterpieces-ranked/
+
+Chernobyl, The Haunting of Hill House, and Band of Brothers are all among the best TV miniseries ever that can be called genuine masterpieces.
+---------
+
+# Netflix’s Latest $135 Billion Bet Is Quietly Changing How We Watch TV
+
+TV Features, Netflix, Streaming, TV Series, Ted Sarandos
+
+Thu, 14 May 2026 23:05:13 GMT
+
+https://collider.com/netflix-135-billion-content-spending-changed-tv-streaming/
+
+Netflix’s $135 billion content push changed how TV is made, distributed, and watched around the world.
+---------
+
+# Jason Statham’s Bone-Crunching Action Sequel Is Streaming for Free This Month
+
+Movie News, Mechanic: Resurrection, Jason Statham, Jessica Alba, Action
+
+Thu, 14 May 2026 23:00:14 GMT
+
+https://collider.com/jason-statham-mechanic-resurrection-streaming-free-streaming-fawesome/
+
+Jason Statham's action sequel, Mechanic: Resurrection, is streaming for free this month. Read on for more details.
+---------
+
+# Starz’s Most Underrated 3-Part Sitcom Just Became a Late-Night Favorite on Streaming
+
+TV Features, Party Down, Adam Scott, Lizzy Caplan, STARZ
+
+Thu, 14 May 2026 22:58:13 GMT
+
+https://collider.com/starz-underrated-sitcom-party-down-late-night-favorite-streaming/
+
+The cult-classic 3-part sitcom that launched Adam Scott's career is now finding a new audience on streaming.
+---------
+
+# 8 Perfect Action Movies Based on True Stories
+
+Movie, Braveheart, Ip Man, The Last Duel, Black Hawk Down
+
+Thu, 14 May 2026 22:54:12 GMT
+
+https://collider.com/perfect-action-movies-based-on-true-stories/
+
+Perfect action movies that are based on or inspired by true stories include classics like The Dam Busters, Braveheart, and The Longest Day.
+---------
+
+# New Netflix Time Travel Fantasy 'My Royal Nemesis' Is a Global Streaming Hit
+
+TV News, My Royal Nemesis, Netflix, Hot on Streaming
+
+Thu, 14 May 2026 23:00:19 GMT
+
+https://movieweb.com/my-royal-nemesis-streaming-success-netflix-fantasy-may-2026/
+
+Netflix's next big fantasy series is the K-Drama romance series 'My Royal Nemesis.'
+---------
+
 # The Terror Season 3's First Devil Appearance Explained By Director & Creators
 
 TV
