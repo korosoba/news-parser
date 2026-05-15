@@ -1,3 +1,234 @@
+# 1 Book Stephen King Almost Didn’t Write Should Be Mike Flanagan’s Next Adaptation
+
+Streaming TV, Stephen King, Pet Sematary, Mike Flanagan
+
+Fri, 15 May 2026 03:45:38 GMT
+
+https://screenrant.com/stephen-king-pet-sematary-mike-flanagan-remake/
+
+Mike Flanagan’s next Stephen King adaptation after Carrie and The Mist should be based on a novel the horror author almost did not end up publishing.
+---------
+
+# Mushoku Tensei Just Lost Its Throne As 2026’s Most Anticipated Isekai Anime
+
+Anime, Mushoku Tensei: Jobless Reincarnation
+
+Fri, 15 May 2026 03:31:19 GMT
+
+https://screenrant.com/saga-of-tanya-the-evil-best-isekai-not-mushoku-tensei-2026/
+
+A long-awaited isekai return years in the making is sure to be a dominant presence in Summer 2026's anime season.
+---------
+
+# 10 Must-Watch K-Dramas For Every Horror Fan
+
+Classic TV, K-Drama
+
+Fri, 15 May 2026 03:31:19 GMT
+
+https://screenrant.com/k-dramas-for-horror-fans/
+
+Many viewers may assume all K-dramas are lighthearted romantic comedies, but the genre is full of chills and thrills to impress any horror fan.
+---------
+
+# Netflix New #1 Trending Horror Show Is Alice In Borderland’s Perfect Follow-Up
+
+Streaming TV, Masked Recs
+
+Fri, 15 May 2026 03:14:30 GMT
+
+https://screenrant.com/netflix-alice-in-borderland-wishes-could-kill-followup/
+
+A new horror TV series on Netflix, which was trending #1 worldwide, comes off as the perfect follow up to the hit Japanese drama, Alice in Borderland.
+---------
+
+# The Last Of Us Meets Far Cry In New Zombie FPS
+
+Gaming
+
+Fri, 15 May 2026 03:00:21 GMT
+
+https://screenrant.com/last-of-us-azur-zombie-fps-far-cry-vibes/
+
+Discover AZUR, a thrilling PvP survival FPS set on the French island of Belmas, where players battle hordes of undead.
+---------
+
+# One Piece Star Officially Assumes Historic 30-Year Role Following Tragic Passing
+
+Anime, Detective Conan, One Piece
+
+Fri, 15 May 2026 04:43:39 GMT
+
+https://www.cbr.com/wakana-yamazaki-ran-mouri-detective-conan-dead/
+
+The leading female star of One Piece is officially assuming what was meant to be a temporary role in another iconic long-running anime series.
+---------
+
+# The Best Dragon Ball Arcs of All Time, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, Dragon Ball Z, Dragon Ball Super
+
+Fri, 15 May 2026 03:45:13 GMT
+
+https://www.cbr.com/official-best-dragon-ball-arcs-ranked/
+
+Dragon Ball's intricate adventures can be broken down into smaller sagas, with some of these arcs representing the anime's best work.
+---------
+
+# Crunchyroll Drops 24 Major Manga Releases in New May 2026 Update
+
+Anime, Crunchyroll, kodansha, Manga
+
+Fri, 15 May 2026 03:30:12 GMT
+
+https://www.cbr.com/crunchyroll-major-release-update-may-2026/
+
+Crunchyroll announces two dozen Kodansha series headed to the anime streaming giant's manga corner, and they're only days away from release.
+---------
+
+# Why Afton Williamson's Talia Bishop Left The Rookie
+
+TV, The Rookie
+
+Fri, 15 May 2026 03:30:12 GMT
+
+https://www.cbr.com/the-rookie-why-afton-williamson-talia-bishop-left-show/
+
+The Rookie's Afton Williamson played Talia Bishop in Season 1 but left the series at the end of the season.
+---------
+
+# 10 Years Later, Ghostbusters Reboot Star Defends Polarizing Film
+
+Movies, Ghostbusters
+
+Fri, 15 May 2026 03:19:26 GMT
+
+https://www.cbr.com/leslie-jones-reflects-ghostbusters-reboot/
+
+One of the main stars of the divisive Ghostbusters reboot says the film is much funnier than it gets credit for.
+---------
+
+# Nintendo's Poor Game Strategy Is Costing It Dearly
+
+Games, Nintendo
+
+Fri, 15 May 2026 03:15:14 GMT
+
+https://www.cbr.com/nintendo-poor-game-releases-nintendo-switch-2/
+
+Nintendo's share values have plummeted following a Switch 2 price increase, but it's not just the hardware that's to blame for losing investor trust.
+---------
+
+# Taylor Sheridan Officially Makes Yellowstone History In Marshals Episode 11
+
+TV, Marshals, CBS, Yellowstone
+
+Fri, 15 May 2026 03:04:13 GMT
+
+https://www.cbr.com/marshals-episode-11-on-thin-ice-historic-cold/
+
+Taylor Sheridan finally checks off an important moment for the flagship characters of Kevin Costner's original series in Marshals Episode 11.
+---------
+
+# 5 Weakest Akatsuki Members in Naruto, Ranked
+
+Anime, Naruto
+
+Fri, 15 May 2026 03:00:13 GMT
+
+https://www.cbr.com/naruto-shippuden-weakest-akatsuki-members-list/
+
+There are many powerful members of the Atatsuki clan in Naruto, but some just don't measure up.
+---------
+
+# Steam Officially Makes 9/10 Horror Game Completely Free Until May 19
+
+Games, Steam
+
+Fri, 15 May 2026 02:55:13 GMT
+
+https://www.cbr.com/steam-official-free-horror-game-may-2026/
+
+A psychological horror game with positive reviews is free to keep on Steam for a limited time.
+---------
+
+# The 10 Most Underrated Movie Villains of the 21st Century, Ranked
+
+Movies, Drama, Action, Avatar
+
+Fri, 15 May 2026 02:45:13 GMT
+
+https://www.cbr.com/most-underrated-movie-villains-21st-century-ranked/
+
+These modern movie villains haven't quite gotten the recognition from audiences that they so rightfully deserve.
+---------
+
+# 8 Most Divisive Shows Ever, Ranked
+
+TV, Euphoria, 13 Reasons Why, Skins, South Park
+
+Fri, 15 May 2026 04:51:13 GMT
+
+https://collider.com/most-divisive-shows-ever-ranked/
+
+Euphoria, Skins, 13 Reasons Why, South Park, and more make up our list of the most divisive shows ever.
+---------
+
+# 10 Greatest Sci-Fi Books of the Last 25 Years, Ranked
+
+Movie, Books, 3 Body Problem, Science Fiction, Annihilation
+
+Fri, 15 May 2026 04:15:13 GMT
+
+https://collider.com/best-sci-fi-books-last-25-years-ranked/
+
+From crowd-pleasers like The Martian to ambitious sagas like The Three-Body Problem, these are the best sci-fi books to come out in the last 25 years.
+---------
+
+# 10 Forgotten Netflix Shows That Are Perfect From Start to Finish
+
+TV, Netflix, Sense8, The Last Kingdom, Sex Education
+
+Fri, 15 May 2026 04:08:12 GMT
+
+https://collider.com/forgotten-netflix-shows-perfect-start-to-finish/
+
+From the British teen comedy Sex Education to the historical drama The Last Kingdom, these forgotten Netflix series are practically flawless.
+---------
+
+# 10 Amazing Thrillers That You Have Been Sleeping On
+
+Movie, Thriller, You Were Never Really Here, The Lookout, Calibre
+
+Fri, 15 May 2026 03:04:14 GMT
+
+https://collider.com/amazing-thrillers-you-have-been-sleeping-on/
+
+Movies like The Lookout and You Were Never Really Here are stellar examples of thrillers that are pretty much perfect yet remain sadly ignored.
+---------
+
+# Prime Video’s Forgotten Sci-Fi Miniseries Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Stargate Origins, Stargate, Prime Video, Sci-Fi
+
+Fri, 15 May 2026 03:04:14 GMT
+
+https://collider.com/stargate-origins-prime-video-sci-fi-miniseries/
+
+This standalone miniseries explores the origins of the Stargate franchise, set before the original film and featuring new adventures through the gate.
+---------
+
+# We're Still Waiting on a Sequel to the Best Fantasy Movie of the Last Decade 3 Years Later
+
+Movie Features, Dungeons & Dragons: Honor Among Thieves, Dungeons and Dragons, Chris Pine, Paramount
+
+Fri, 15 May 2026 02:37:13 GMT
+
+https://collider.com/dungeons-and-dragons-honor-among-thieves-sequel-three-years-best-fantasy-movie-2020s/
+
+Dungeons and Dragons: Honor Among Thieves is an incredible fantasy film that deserves a sequel.
+---------
+
 # Mortal Kombat II Director Reveals The Challenges Of Adapting Fan Favorite Character
 
 Movies, Mortal Kombat II
