@@ -1,3 +1,322 @@
+# Alex Ross' New Avengers Vs Justice League Art Revealed
+
+Marvel Comics, The Avengers, Justice League, Marvel, DC
+
+Fri, 15 May 2026 21:45:21 GMT
+
+https://screenrant.com/justice-league-avengers-alex-ross-art/
+
+Marvel and DC collaborate once more and enlist a legendary artist to create a stunning new cover for their landmark Avengers/JLA crossover.
+---------
+
+# After 5 Seasons, For All Mankind's Title Takes On A New Meaning
+
+Streaming TV, For All Mankind
+
+Fri, 15 May 2026 21:45:21 GMT
+
+https://screenrant.com/for-all-mankind-season-5-new-title-meaning-show-redefined/
+
+For All Mankind is an incredible spectacle of a sci-fi series, with the high-concept foundation building on a simple idea that continues to evolve.
+---------
+
+# Guy Ritchie & Henry Cavill's New R-Rated Action Thriller In The Grey Sets A Rotten Tomatoes Record
+
+Movies, Masked Recs, Guy Ritchie, Henry Cavill
+
+Fri, 15 May 2026 21:42:39 GMT
+
+https://screenrant.com/guy-ritchie-in-the-grey-rotten-tomatoes-score-henry-cavill-record/
+
+Guy Ritchie and Henry Cavill reunite for their third movie together, with the new R-rated action thriller setting a Rotten Tomatoes record.
+---------
+
+# David Tennant’s Near-Perfect Rotten Tomatoes Series With A Stellar Cast Is Officially One Of Hulu’s Best
+
+Streaming TV, Masked Recs
+
+Fri, 15 May 2026 21:42:21 GMT
+
+https://screenrant.com/rivals-season-2-david-tennant-cast-hulu-best-show/
+
+David Tennant's returning drama series with a near-perfect Rotten Tomatoes score features a stellar cast and is officially one of Hulu's best shows.
+---------
+
+# What If...? Takes Captain America To 2099
+
+Marvel Comics, Captain America, Marvel
+
+Fri, 15 May 2026 21:37:31 GMT
+
+https://screenrant.com/captain-america-what-if-spider-man-2099/
+
+Steve Rogers' origin story gets significantly overhauled as Captain America's modern history is rewritten thanks to the Marvel multiverse.
+---------
+
+# Netflix's Cowboy Bebop Remake Fumbled One Of The Greatest Sci-Fi Stories Of All Time
+
+Classic TV, Masked Recs
+
+Fri, 15 May 2026 21:30:21 GMT
+
+https://screenrant.com/cowboy-bebop-netflix-remake-greatest-sci-fi-shows/
+
+Netflix's live-action remake of Cowboy Bebop turned one of the greatest sci-fi shows ever made into one of the most mediocre and forgettable.
+---------
+
+# Magic Hour's Raw Exploration Of Grief Will Break Your Heart
+
+Movies, Magic Hour
+
+Fri, 15 May 2026 21:20:20 GMT
+
+https://screenrant.com/magic-hour-recommendation/
+
+The emotionally raw heart of Magic Hour is what elevates the film, all bolstered by strong performances by Katie Aselton and Daveed Diggs.
+---------
+
+# Martin Scorsese Is Officially Taking Over Streaming
+
+Streaming TV, Martin Scorsese
+
+Fri, 15 May 2026 21:15:21 GMT
+
+https://screenrant.com/martin-scorsese-upcoming-streaming-shows/
+
+Martin Scorsese has a lot of irons in the fire, and many of them are for streaming services, including an exciting new thriller series for Netflix.
+---------
+
+# Netflix's Record-Breaking Sci-Fi Series Makes Every Other Mystery Show Look Small
+
+TV, Netflix, Masked Recs
+
+Fri, 15 May 2026 21:01:21 GMT
+
+https://screenrant.com/stranger-things-netflix-makes-mystery-shows-look-small/
+
+One Netflix show's budget dwarfed all competition, but its divisive series finale revealed that bigger doesn't always equal better in streaming.
+---------
+
+# New D&D Subclass Is Perfect For Ravenloft Campaigns
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Fri, 15 May 2026 21:00:21 GMT
+
+https://screenrant.com/dungeons-dragons-new-subclass-undead-warlock-ravenloft-dnd/
+
+One of the confirmed subclasses for the upcoming Ravenloft book for Dungeons and Dragons 5.5e will be the perfect choice for horror campaigns.
+---------
+
+# 23 Years Later, the Most Notorious Zombie Movie Gets 'Unofficial Sequel'
+
+Movies, House of the Dead
+
+Fri, 15 May 2026 21:34:37 GMT
+
+https://www.cbr.com/house-of-the-dead-uwe-boll-remake/
+
+The most infamous zombie movie of all time is making a return with a title that trolls other zombie flicks.
+---------
+
+# NBC's 43-Part Horror Anthology Returns as a PVOD Hit 53 Years Later
+
+TV, Night Gallery, Horror, The Twilight Zone
+
+Fri, 15 May 2026 21:30:14 GMT
+
+https://www.cbr.com/nbc-rod-serling-night-gallery-horror-anthology-pvod-success-may-2026/
+
+NBC's most influential horror anthology series, Night Gallery, is a hit 53 years after finale.
+---------
+
+# Apple TV+’s Wheel of Time Replacement Finally Gets Production Update From Creator
+
+TV, The Stormlight Archive, The Cosmere, Apple TV
+
+Fri, 15 May 2026 21:15:23 GMT
+
+https://www.cbr.com/apple-tv-cosmere-stormlight-archive-series-update-brandon-sanderson/
+
+There's a new update on Apple TV's highly anticipated fantasy series.
+---------
+
+# 7 Forgotten ‘60s Anime Series That Have Aged Like Fine Wine
+
+Anime, Dororo, GeGeGe no Kitarō
+
+Fri, 15 May 2026 21:15:13 GMT
+
+https://www.cbr.com/60s-anime-series-that-aged-well/
+
+The 1960s were a pivotal decade for anime that introduced formative series like Attack No. 1 and Golden Bat that are still timeless classics.
+---------
+
+# Paramount+'s 18-Part Crime Drama Breaks Into the U.S. Top 10 2 Weeks Before Return
+
+TV, Criminal Minds, Crime
+
+Fri, 15 May 2026 21:00:14 GMT
+
+https://www.cbr.com/criminal-minds-crime-drama-paramount-success-may-2026/
+
+Paramount+'s beloved crime drama, Criminal Minds, is back on the streaming charts ahead of its highly anticipated return.
+---------
+
+# All 11 Confirmed The Batman Part II Cast Members And Their Roles
+
+Movies, The Batman Part II
+
+Fri, 15 May 2026 21:00:14 GMT
+
+https://www.cbr.com/confirmed-batman-2-cast-members-roles-list/
+
+Director Matt Reeves has announced the cast for his much-anticipated sequel, and it's now time for some wild speculation about who they're playing.
+---------
+
+# Fullmetal Alchemist Upgrades Gaming Setup With New Limited-Edition Glass Mouse Pad
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood
+
+Fri, 15 May 2026 21:00:14 GMT
+
+https://www.cbr.com/fullmetal-alchemist-limited-edition-pc-gaming-release/
+
+The 2026 revival of Fullmetal Alchemist: Brotherhood just got upgraded by the perfect new gaming setup inspired by one of the best anime ever created.
+---------
+
+# TWD: Dead City Season 3's Major Changes Mark the End of an Era
+
+TV, The Walking Dead: Dead City
+
+Fri, 15 May 2026 20:49:56 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-major-changes/
+
+The Walking Dead has reached the end of an era with the major changes revealed for Dead City Season 3.
+---------
+
+# 3 Near-Perfect Prime Video Movies to Watch This Weekend
+
+Movie, Mermaids, Minecraft, Goodfellas, Prime Video
+
+Fri, 15 May 2026 21:48:15 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-may-15/
+
+A Minecraft Movie, Mermaids, and Goodfellas make up our list of the best Prime Video movies to watch the weekend of May 15, 2026.
+---------
+
+# Netflix's Haunting Sci-Fi Thriller Is So Good, You Can Rewatch It Multiple Times
+
+Movie Features, Emma Stone, Sci-Fi, Thriller, Bugonia
+
+Fri, 15 May 2026 21:35:14 GMT
+
+https://collider.com/bugonia-netflix-streaming-success-emma-stone-sci-fi-thriller/
+
+Yorgos Lanthimos' 2025 sci-fi thriller Bugonia, starring Emma Stone and Jesse Plemons, unsurprisingly dominated Netflix earlier this year.
+---------
+
+# Netflix’s $200 Million Crime Thriller Is Still Its Biggest Cancellation Mistake
+
+TV Features, Netflix, Mindhunter, Thriller, David Fincher
+
+Fri, 15 May 2026 21:25:16 GMT
+
+https://collider.com/mindhunter-netflix-cancellation-budgets-explained/
+
+Netflix’s Mindhunter cost around $10M per episode, but David Fincher’s 97% crime thriller remains one of the streamer’s biggest cancellations.
+---------
+
+# 'The Batman Part II' Update: Sebastian Stan's Two-Face, Filming Delays, and No Riddler? [Exclusive]
+
+Movie Features, The Batman, The Batman Part II, Matt Reeves, Robert Pattinson
+
+Fri, 15 May 2026 21:09:14 GMT
+
+https://collider.com/the-batman-part-2-update-sebastian-stan-scarlett-johansson-delayed-2027-everything-we-know/
+
+With several delays and new cast members Sebastian Stan and Scarlett Johansson, The Batman Part II is set to be a massive 2027 hit.
+---------
+
+# 10 Worst Remakes of Beloved '80s Movies
+
+Movie, The Fog, Poltergeist, RoboCop, Red Dawn (2012)
+
+Fri, 15 May 2026 21:05:15 GMT
+
+https://collider.com/worst-80s-movies-remakes/
+
+When RoboCop and The Fog lose their bite, these infamous ‘80s remakes show how nostalgia can quietly drain the original magic.
+---------
+
+# 'For All Mankind' Star Promises a "Tense and Fraught" Finale for the Apple TV Sci-Fi Drama
+
+Exclusives, For All Mankind, Mireille Enos, Apple TV, Sci-Fi
+
+Fri, 15 May 2026 21:00:14 GMT
+
+https://collider.com/for-all-mankind-mireille-enos-season-5-finale/
+
+Mireille Enos discusses joining For All Mankind Season 5, working with Joel Kinnaman, and the dramatic finale to come on the Apple TV sci-fi series.
+---------
+
+# 10 Years Later, These Are The 10 Best Movies of 2016
+
+Movie, The Nice Guys, La La Land, Arrival, Silence
+
+Fri, 15 May 2026 20:50:14 GMT
+
+https://collider.com/best-movies-2016/
+
+2016 was an excellent year for movies, with modern classics like Arrival, La La Land, and The Nice Guys ranking among the very best.
+---------
+
+# The Raunchiest Show on Streaming 'Rivals' Returns This Week With Season 2
+
+TV News, Rivals, Hulu, Streaming Recommendations
+
+Fri, 15 May 2026 21:00:19 GMT
+
+https://movieweb.com/rivals-season-2-r-rated-series-streaming-hulu/
+
+The steamiest historical drama, 'Rivals,' is back with its second season on Hulu and Disney+. It's 100% rated on Rotten Tomatoes.
+---------
+
+# ‘Silo’: Apple TV’s Sci-Fi That Stephen King Loves Is a Gripping Weekend Binge
+
+Features, Stephen King, Silo
+
+Fri, 15 May 2026 21:00:19 GMT
+
+https://movieweb.com/silo-apple-tv-stephen-king/
+
+Stephen King praised Apple TV's sci-fi TV adaptation of the novel series 'Silo' by Hugh Howey, which stars Rebecca Ferguson.
+---------
+
+# Sam Raimi Directing Reboot of Anthony Hopkins Horror Movie 'Magic'
+
+Movie News, Magic, Sam Raimi
+
+Fri, 15 May 2026 20:52:47 GMT
+
+https://movieweb.com/magic-movie-remake-sam-raimi/
+
+The filmmaker is putting a new spin on the novel by William Goldman.
+---------
+
+# 'How to Train Your Dragon 2' Director Dean DeBlois Confirms Filming is Complete
+
+Movie News, How To Train Your Dragon 2
+
+Fri, 15 May 2026 20:40:35 GMT
+
+https://movieweb.com/how-to-train-your-dragon-2-set-photo-filming-complete/
+
+Director Dean DeBlois shared an exciting photo from the set of 'How to Train Your Dragon 2,' confirming that filming is complete.
+---------
+
 # Dutton Ranch's "Phoenix Rising From The Ashes" Opening & Character Loyalties Addressed By Yellowstone Spinoff Cast & Director
 
 TV, Dutton Ranch, Dutton Ranch - Season 1, Yellowstone, Cole Hauser
