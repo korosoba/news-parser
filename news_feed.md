@@ -1,3 +1,256 @@
+# Dutton Ranch's "Phoenix Rising From The Ashes" Opening & Character Loyalties Addressed By Yellowstone Spinoff Cast & Director
+
+TV, Dutton Ranch, Dutton Ranch - Season 1, Yellowstone, Cole Hauser
+
+Fri, 15 May 2026 20:30:22 GMT
+
+https://screenrant.com/dutton-ranch-episode-1-fire-phoenix-rising-theme-character-loyalties-cast-director/
+
+Dutton Ranch's Cole Hauser, Finn Little, Natalie Alyn Lind, Marc Menchaca, Juan Pablo Raba and Christina Alexandra Voros talk the fiery opening.
+---------
+
+# Tom Hardy’s Very First Role Was In TV’s Greatest Historical Drama Of All Time
+
+Classic TV, Masked Recs
+
+Fri, 15 May 2026 20:30:22 GMT
+
+https://screenrant.com/tom-hardy-band-of-brothers-first-role/
+
+Tom Hardy might be best-known for his roles in big-screen blockbusters, but he started out with a minor part in TV's greatest historical masterpiece.
+---------
+
+# Horror Icon Sam Raimi Set To Direct Movie Remake Of Magic
+
+Movies, Sam Raimi
+
+Fri, 15 May 2026 20:28:31 GMT
+
+https://screenrant.com/magic-movie-remake-sam-raimi-director/
+
+Iconic horror director, Sam Raimi, will helm a brand-new adaptation of a classic book that was published nearly five decades ago.
+---------
+
+# The Batman Part II Cast Confirmed — Here's Everything We Know So Far
+
+Movies, The Batman Part II
+
+Fri, 15 May 2026 20:20:22 GMT
+
+https://screenrant.com/the-batman-2-cast-everything-we-know/
+
+The Batman Part II has experienced years of delays and little public information, but concrete updates are finally flooding in as filming approaches.
+---------
+
+# Ryan Reynolds & Rob Mac’s Near-Perfect Rotten Tomatoes Show Is Officially Worth A Weekend Binge
+
+Streaming TV, Masked Recs
+
+Fri, 15 May 2026 20:18:21 GMT
+
+https://screenrant.com/welcome-to-wrexham-ryan-reynolds-rob-mac-weekend-watch/
+
+Ryan Reynolds & Rob Mac’s long-running series with near-perfect Rotten Tomatoes score is officially worth a weekend binge after its new season debut.
+---------
+
+# For All Mankind Season 5: Avery's Emotional Turning Point Explained
+
+TV, For All Mankind, Apple TV
+
+Fri, 15 May 2026 20:13:23 GMT
+
+https://screenrant.com/for-all-mankind-averys-episode-8-turning-point-explained-ines-asserson/
+
+Ines Asserson discusses the pivotal scene in For All Mankind Season 5, Episode 8, where Avery's character faces a devastating turning point after witnessing the death of her partner.
+---------
+
+# The 5 Biggest Characters Still Missing After Mortal Kombat 2, Ranked
+
+Movies, Mortal Kombat II, Mortal Kombat, Mortal Kombat: Annihilation
+
+Fri, 15 May 2026 20:00:19 GMT
+
+https://screenrant.com/mortal-kombat-2-missing-characters-biggest-appear-next/
+
+Mortal Kombat II showcases an impressive roster of fighters from the games, but there are still many others who deserve time in the spotlight.
+---------
+
+# 10 Fallout Locations Perfect For A Spinoff
+
+Gaming
+
+Fri, 15 May 2026 20:00:19 GMT
+
+https://screenrant.com/best-fallout-locations-future-games/
+
+The Fallout series' unique tone and parallel history would be a perfect fit for these locations that we'd love to see in a future title.
+---------
+
+# Yellowstone's Confusing Timeline: When Dutton Ranch Happens Compared To Marshals
+
+TV, Yellowstone, Dutton Ranch
+
+Fri, 15 May 2026 20:00:19 GMT
+
+https://screenrant.com/dutton-ranch-timeline-after-yellowstone/
+
+Dutton Ranch picks up Beth and Rip's story after the end of Yellowstone, but here's when Dutton Ranch happens and how it compares to Kayce's Marshals.
+---------
+
+# How Nickelodeon Sabotaged The Legend of Korra
+
+TV, Nickelodeon, The Legend of Korra, Avatar: The Last Airbender
+
+Fri, 15 May 2026 20:31:13 GMT
+
+https://www.cbr.com/nickelodeon-sabotaged-avatar-legend-of-korra/
+
+After the major success of Avatar: The Last Airbender, why wouldn't Nickelodeon give The Legend of Korra the same amount of respect and promotion?
+---------
+
+# 5 Forgotten Cosmic Horror Movies That Are Amazing From Start to Finish
+
+Movies, Horror
+
+Fri, 15 May 2026 20:31:13 GMT
+
+https://www.cbr.com/forgotten-cosmic-horror-movies-amazing-from-start-to-finish-list/
+
+Cosmic horror movies are great at twisting the thoughts of the audience, and some of the best of them are also forgotten by the masses.
+---------
+
+# The Most Wasted Naruto Character of All Time
+
+Anime, Naruto, Naruto: Shippuden, Shonen
+
+Fri, 15 May 2026 20:15:13 GMT
+
+https://www.cbr.com/naruto-most-wasted-character-orochimaru-anko/
+
+Naruto has more wasted characters than any other anime, but one stands out as the biggest missed opportunity of them all.
+---------
+
+# Sam Raimi to Direct Remake of 48-Year-Old Horror Cult Classic
+
+Movies, sam raimi, Magic
+
+Fri, 15 May 2026 20:03:15 GMT
+
+https://www.cbr.com/sam-raimi-directing-magic-remake/
+
+Sam Raimi teams back up with Send Help's writers to reimagine a cult classic horror movie.
+---------
+
+# Jumanji: The Next Level Returns to Hulu Charts Ahead of New Sequel
+
+Movies, Jumanji: The Next Level, Hulu, dwayne johnson
+
+Fri, 15 May 2026 20:00:12 GMT
+
+https://www.cbr.com/jumanji-the-next-level-adventure-hulu-success-may-2026/
+
+Hulu is revisiting Dwayne Johnson's seven-year-old blockbuster adventure movie ahead of its sequel hitting theaters this December.
+---------
+
+# The X-Men's Greatest Foe Returns To Face Off Against Wolverine
+
+Comics, X-Men, Marvel, comics
+
+Fri, 15 May 2026 20:00:12 GMT
+
+https://www.cbr.com/x-men-tomb-of-apocalypse-1-release-window-confirmed/
+
+In a shocking turn of events, Jubilee and Wolverine find themselves entangled in a dangerous mission against an enigmatic and deadly villain.
+---------
+
+# In Just 1 Month, Disney+ Drama Quietly Becomes Global Hit With 43M Hours Watched
+
+TV, Perfect Crown, Drama, Disney+
+
+Fri, 15 May 2026 19:32:50 GMT
+
+https://www.cbr.com/perfect-crown-drama-disney-plus-success-may-2026/
+
+Disney+ has a sleeper hit on its hands.
+---------
+
+# Steam's Officially Making 4 Games Free Until May 18
+
+Games, Steam
+
+Fri, 15 May 2026 19:24:17 GMT
+
+https://www.cbr.com/steam-free-games-may-18-2026/
+
+Steam is offering a handful of games free to play for a limited time.
+---------
+
+# Jason Momoa Finally Confirms What's Delaying Season 2 of Hit Historical Apple TV Series
+
+TV, Chief of War
+
+Fri, 15 May 2026 19:22:24 GMT
+
+https://www.cbr.com/jason-momoa-chief-of-war-delaying-season-2/
+
+The series was a huge success, but it hasn't received a Season 2 renewal yet.
+---------
+
+# 10 Classic Detective Shows That Nobody Remembers Today
+
+TV, Hawkins, Nowhere Man, Millennium, Crime
+
+Fri, 15 May 2026 20:14:13 GMT
+
+https://collider.com/forgotten-classic-detective-shows/
+
+Discover classic detective shows from TV history that have vanished from memory, including Strange Report, Hooperman, and Millennium.
+---------
+
+# Will Ferrell Is Ready for a Comeback in First Look at His New Must-See Netflix Series [Exclusive]
+
+Exclusives, The Hawk, Will Ferrell, Molly Shannon, Collider Exclusive Preview
+
+Fri, 15 May 2026 20:00:12 GMT
+
+https://collider.com/will-ferrell-new-netflix-series-the-hawk-first-look-image/
+
+Will Ferrell is on his way to a massive TV comeback via Netflix’s sports comedy series The Hawk. Check out a new look here.
+---------
+
+# 6 Sci-Fi Franchises That Get Better With Every Movie
+
+Movie, Science Fiction, Mad Max: Fury Road, Rise of the Planet of the Apes, Avatar
+
+Fri, 15 May 2026 19:29:13 GMT
+
+https://collider.com/sci-fi-franchises-get-better-every-movie/
+
+It's not easy for a franchise to keep improving with every new movie, but sci-fi staples like Mad Max and Avatar prove that it is indeed possible.
+---------
+
+# 'Off Campus' Spices Up Prime Video as 'Heated Rivalry' Replacement Soars on Streaming
+
+TV News, Off Campus, Hot on Streaming, Heated Rivalry, Prime Video
+
+Fri, 15 May 2026 20:00:18 GMT
+
+https://movieweb.com/off-campus-heated-rivalry-replacement-streaming-hit-prime-video-may-2026/
+
+Two days after its premiere on Prime Video, 'Off Campus' is already a smash hit for Amazon MGM Studios.
+---------
+
+# Marvel's Punisher Problem Just Got Worse Ahead of 'Spider-Man: Brand New Day'
+
+Features, The Punisher: One Last Kill, The Punisher, MCU, Spider-Man: Brand New Day, Spider-Man
+
+Fri, 15 May 2026 20:00:18 GMT
+
+https://movieweb.com/marvel-punisher-problem-spider-man-brand-new-day/
+
+'The Punisher: One Last Kill' just made a major MCU issue even worse before the character's 'Spider-Man' movie debut.
+---------
+
 # Dexter: Resurrection Season 2's Return Of OG Dexter Morgan Tradition Abandoned 5 Years Ago Teased By Michael C. Hall
 
 TV, Dexter: Resurrection, Dexter
