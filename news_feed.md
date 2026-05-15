@@ -1,3 +1,432 @@
+# Christian Bale's R-Rated Sci-Fi Movie Officially Releases On Streaming Next Week After $80M Box Office Disaster
+
+Movies, Masked Recs
+
+Fri, 15 May 2026 17:33:22 GMT
+
+https://screenrant.com/christian-bale-the-bride-hbo-max-streaming-release-may-2026/
+
+Christian Bale's R-rated sci-fi movie officially releases on streaming next week after losing Warner Bros. about $80 million at the box office.
+---------
+
+# Butcher's 'Spice Girls' Speech In The Boys Season 5 Was 7 Years In The Making
+
+Streaming TV, The Boys
+
+Fri, 15 May 2026 17:31:20 GMT
+
+https://screenrant.com/the-boys-butcher-spice-girls-speech-season-1-callback/
+
+After seven years and five seasons, The Boys has completed a big full-circle moment thanks to Billy Butcher and his Spice Girls speeches.
+---------
+
+# Glen Powell's Netflix Jurassic Park Series Reveals His Perfect Movie Future
+
+TV, Jurassic Park, Jurassic World: Camp Cretaceous, Quiz CV
+
+Fri, 15 May 2026 17:30:12 GMT
+
+https://screenrant.com/jurassic-world-camp-cretaceous-glen-powell-dave-casting/
+
+Glen Powell is one of the stars of Netflix's exciting Jurassic Park series, and it reveals the perfect path for him to join the franchise's movies.
+---------
+
+# Pirates Of The Caribbean 3 Cast: Where Are They Now?
+
+Movies, Pirates of the Caribbean: At World's End, Explainer
+
+Fri, 15 May 2026 17:21:20 GMT
+
+https://screenrant.com/pirates-of-the-caribbean-3-cast-where-are-they-now/
+
+It has been nearly 20 years since Pirates Of The Caribbean: At World's End was a blockbuster hit and the cast is mostly still doing great work.
+---------
+
+# Peter Jackson Is Officially Eyeing New Lord Of The Rings Adaptation: "Something Meatier..."
+
+Movies, The Lord of the Rings, Peter Jackson
+
+Fri, 15 May 2026 17:19:41 GMT
+
+https://screenrant.com/lord-of-the-rings-movie-peter-jackson-talks-tolkien-estate/
+
+Peter Jackson has his sights set on expanding the world of The Lord of the Rings, and he’s now revealing a major update about the franchise’s future.
+---------
+
+# Jason Momoa Confirms Chief Of War Season 2 Hopes Is In Limbo Despite Critical Acclaim
+
+TV, Chief of War
+
+Fri, 15 May 2026 17:12:33 GMT
+
+https://screenrant.com/apple-tv-chief-of-war-season-2-limbo-update-jason-momoa/
+
+Jason Momoa confirms that hopes for season 2 of his Apple TV historical series, Chief of War, are "in limbo" despite its 93% Rotten Tomatoes score.
+---------
+
+# Purge 6 Return Chances Addressed By Major Missing Franchise Star
+
+Movies, The Purge 6, The Purge, Y'lan Noel
+
+Fri, 15 May 2026 17:04:47 GMT
+
+https://screenrant.com/purge-6-return-chances-dmitri-missing-ylan-noel-response/
+
+EXCLUSIVE: The Purge is continuing with a sixth installment, and one of the franchise’s stars tells ScreenRant whether he’s reprising his character.
+---------
+
+# Netflix's New Crime Thriller Will Shift Audiences' Loyalties, Tease Nemesis Creators & Stars
+
+TV, Nemesis, Netflix, Matthew Law, Y'lan Noel
+
+Fri, 15 May 2026 17:00:20 GMT
+
+https://screenrant.com/nemesis-series-netflix-audience-loyalties-shift-creators-stars/
+
+Nemesis creators Courtney Kemp and Tani Marole, and stars Matthew Law and Y'lan Noel talk the Netflix thriller and testing audiences' loyalties.
+---------
+
+# Disney+'s 3-Part Sci-Fi Show Is So Good, You'll Finish It In One Sitting
+
+Streaming TV, Masked Recs
+
+Fri, 15 May 2026 17:00:20 GMT
+
+https://screenrant.com/star-wars-visions-disney-plus-sci-fi-anthology-binge/
+
+Star Wars: Visions is one of the best science fiction shows on Disney+, and it's tailor-made for binge-watching in just a matter of hours.
+---------
+
+# A Knight Of The Seven Kingdoms Season 2 Release Window Clarified After Unfortunate Filming Delays
+
+TV, A Knight Of The Seven Kingdoms
+
+Fri, 15 May 2026 16:46:14 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-release-impact-explained-ira-parker/
+
+A Knight of the Seven Kingdoms could be returning sooner rather than later as showrunner Ira Parker gives a vital season 2 production update.
+---------
+
+# Tom Cruise Best Quote is in Top Gun: Maverick
+
+Movies, Top Gun: Maverick
+
+Fri, 15 May 2026 17:30:14 GMT
+
+https://www.cbr.com/tom-cruise-best-quote-top-gun-maverick/
+
+Tom Cruise is an icon of the action genre and one movie has the best quote of all his incredible movies.
+---------
+
+# You Spent 5 Seasons Exposing Joe Goldberg’s White-Knight Delusion
+
+TV, You, Netflix
+
+Fri, 15 May 2026 17:30:14 GMT
+
+https://www.cbr.com/you-joe-goldberg-white-knight-delusion/
+
+The You series finale delivered a fitting end for Joe Goldberg, reminding fans just how heinous he really was.
+---------
+
+# Christian Bale's $24M Sci-Fi Horror Finally Sets HBO Max Streaming Release Date After Bombing in Theaters
+
+Movies, The Bride!
+
+Fri, 15 May 2026 17:28:26 GMT
+
+https://www.cbr.com/christian-bale-the-bride-sci-fi-hbo-max-release-may-2026/
+
+The Gothic horror received mixed reviews and had one of the worst hauls of 2026.
+---------
+
+# Pokémon TCG Pocket: 10 Best Decks You Have to Try, Ranked
+
+Games, Pokemon, Pokemon Trading Card Game Pocket, Pokemon TCG
+
+Fri, 15 May 2026 17:15:13 GMT
+
+https://www.cbr.com/pokmon-tcg-pocket-best-decks-may-2026/
+
+Pokémon TCG Pocket gives players the endorphin rush of ripping Pokémon packs and collecting cards without technically having to spend money.
+---------
+
+# 10 The Far Side Comics From 1984 That Prove Gary Larson is a Genius
+
+Comics, The Far Side
+
+Fri, 15 May 2026 17:00:23 GMT
+
+https://www.cbr.com/far-side-comics-from-1984-that-prove-gary-larson-is-a-genius/
+
+Gary Larson is undoubtedly a genius cartoonist, but his work on The Far Side in 1984 proved that he stands out among even his contemporaries.
+---------
+
+# DC’s Absolute Batman Just Changed the Dark Knight’s Origin Forever
+
+Comics, Batman
+
+Fri, 15 May 2026 17:00:14 GMT
+
+https://www.cbr.com/absolute-batman-20-batman-origin-change/
+
+DC Comics' Absolute Batman just learned the horrifying truth behind his own origin story, and it changes everything about his entire quest for justice
+---------
+
+# Star Wars’ First Movie in 7 Years Called “One of the Weakest” in Divided First Reactions
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Fri, 15 May 2026 16:50:48 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-first-reactions/
+
+The first screenings of the new Star Wars movie have divided audiences.
+---------
+
+# In Just 1 Day, Marvel's New Special Following Fan-Favorite Character Is an Instant Streaming Hit
+
+TV, The Punisher: One Last Kill, superheroes, MCU
+
+Fri, 15 May 2026 16:46:13 GMT
+
+https://www.cbr.com/in-just-1-day-marvels-new-special-following-fan-favorite-character-is-an-instant-streaming-hit/
+
+Marvel's new violent Special Presentation is at the top of the streaming charts just one day after its premiere.
+---------
+
+# Deadshot Officially Confirmed To Return In All-New DC Comics Special
+
+Comics, DCU, DC Comics, Suicide Squad
+
+Fri, 15 May 2026 16:44:38 GMT
+
+https://www.cbr.com/deadshot-officially-confirmed-to-return-in-all-new-dc-comics-special/
+
+Finally, Deadshot is back and his new storyline is one you — like him — can't miss.
+---------
+
+# The Expendables Is Officially Getting an All-Female Spinoff
+
+Movies, The Expendables
+
+Fri, 15 May 2026 16:36:51 GMT
+
+https://www.cbr.com/the-expendables-all-female-spinoff-back-in-development/
+
+14 years later, the scrapped all-female spinoff of The Expendables is back in development.
+---------
+
+# Henry Cavill Suffers Another Devastating Blow as New Action Thriller Hits All-Time Low
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie, Rotten Tomatoes
+
+Fri, 15 May 2026 17:36:00 GMT
+
+https://collider.com/new-henry-cavill-action-thriller-in-the-grey-rotten-tomatoes-score-is-it-good/
+
+Critics and audiences are split on Guy Ritchie and Henry Cavill's new action thriller according to Rotten Tomatoes.
+---------
+
+# Lucasfilm President Dave Filoni Officially Confirms Star Wars' Big-Screen Future [Exclusive]
+
+Movie News, The Mandalorian and Grogu, Dave Filoni, Jon Favreau, Star Wars
+
+Fri, 15 May 2026 17:30:14 GMT
+
+https://collider.com/dave-filoni-star-wars-future-projects-movie-theaters-disney-plus-series/
+
+Lucasfilm President and Star Wars creative Dave Filoni explains his plan for the future of projects in theaters and on Disney Plus.
+---------
+
+# TV's Steamiest Vampire Romance Returns With First Look at ‘The Black Dagger Brotherhood’ Season 2 [Exclusive]
+
+TV News, Romance, Fantasy, Streaming, Law & Order: Special Victims Unit
+
+Fri, 15 May 2026 17:30:14 GMT
+
+https://collider.com/the-black-dagger-brotherhood-season-2-first-images-alex-cubis-audrey-hare/
+
+The first images from Season 2 of the steamy vampire romance The Black Dagger Brotherhood tease sizzling chemistry with Alex Cubis and Audrey Hare.
+---------
+
+# Star Wars Just Made This 8-Part Cancelled Disney+ Show’s Ending Even More Tragic
+
+TV Features, The Acolyte, Star Wars, Disney+, Manny Jacinto
+
+Fri, 15 May 2026 17:28:14 GMT
+
+https://collider.com/star-wars-secrets-of-the-sith-the-acolyte-retcon-ending/
+
+There were plans for The Acolyte's The Stranger before its cancellation, but a new in-universe Sith book takes away the potential for the character.
+---------
+
+# 10 Greatest Military vs. Aliens Sci-Fi Action Movies
+
+Movie, Predator, Independence Day, Starship Troopers, Aliens
+
+Fri, 15 May 2026 17:04:14 GMT
+
+https://collider.com/sci-fi-action-movies-military-vs-aliens/
+
+Predator, Aliens, and Starship Troopers are all among the very best sci-fi action movies that memorably pit soldiers against aliens.
+---------
+
+# Electrifying New Revenge Thriller Just Introduced The World To a Major Big-Screen Talent
+
+Exclusives, Is God Is, Kara Young, Ladies Night, Broadway
+
+Fri, 15 May 2026 17:03:39 GMT
+
+https://collider.com/is-god-is-revenge-thriller-kara-young/
+
+Is God Is star, Tony Award winner Kara Young, joins Perri Nemiroff for a Ladies Night interview to celebrate her electrifying work in the film.
+---------
+
+# 'Little House on the Prairie' Officially Returns on Netflix This Summer With New First Look [Exclusive]
+
+TV News, Little House on the Prairie, Netflix, Western, Collider Exclusive Preview
+
+Fri, 15 May 2026 17:00:14 GMT
+
+https://collider.com/little-house-on-the-prairie-netflix-reboot-image-luke-bracey/
+
+Get a new look at Netflix's hotly anticipated reboot of the beloved Western series Little House on the Prairie ahead of its summer release.
+---------
+
+# Henry Cavill and Jake Gyllenhaal's New Action Thriller 'In the Grey' Is All Setup, No Payoff | Review
+
+Movie Reviews, In the Grey, Henry Cavill, Jake Gyllenhaal, Guy Ritchie
+
+Fri, 15 May 2026 16:56:43 GMT
+
+https://collider.com/in-the-grey-review-henry-cavill-jake-gyllenhaal-guy-ritchie/
+
+'In the Grey' is fun when it's being a process movie, but it struggles when it finally needs to bring the action.
+---------
+
+# Paramount+’s 4-Part High-Flying Medical Series Officially Returns With Thrilling First Look [Exclusive]
+
+TV News, SkyMed, Paramount Plus, Drama, Action
+
+Fri, 15 May 2026 16:30:13 GMT
+
+https://collider.com/skymed-season-4-first-look-images-sneak-peek-paramount-plus-medical-series/
+
+Get an exclusive first look at the return of Paramount+'s most underrated medical drama, SkyMed, before Season 4 arrives later this month.
+---------
+
+# 8 Forgotten Vampire Action Movies Worth Revisiting
+
+Movie, Dracula Untold, Van Helsing, 30 Days of Night, Underworld: Evolution
+
+Fri, 15 May 2026 16:07:13 GMT
+
+https://collider.com/forgotten-vampire-action-movies-worth-revisiting/
+
+Dracula Untold, Blade II, and Van Helsing are all underrated and forgotten vampire action movies that deserve to be rediscovered.
+---------
+
+# Guy Ritchie Still Wants 'Sherlock Holmes 3' To Happen
+
+Movie News, Sherlock Holmes, Guy Ritchie
+
+Fri, 15 May 2026 17:39:33 GMT
+
+https://movieweb.com/guy-ritchie-sherlock-holmes-3-update/
+
+Director Guy Ritchie still has hope that he can make 'Sherlock Holmes 3' a reality nearly two decades after the last movie was released.
+---------
+
+# 'Mortal Kombat 3' Writer Reveals First Details About Video Game Sequel
+
+Exclusives, Mortal Kombat II, Mortal Kombat
+
+Fri, 15 May 2026 17:25:28 GMT
+
+https://movieweb.com/mortal-kombat-3-sequel-details/
+
+'Mortal Kombat 3' will feature some "iconic moments" from the video game franchise in the next action-packed sequel.
+---------
+
+# Matt Damon's Acclaimed Crime Thriller 'The Talented Mr. Ripley' Streaming Free
+
+Movie News, The Talented Mr. Ripley, Coming/Leaving Streaming
+
+Fri, 15 May 2026 17:00:19 GMT
+
+https://movieweb.com/talented-mr-ripley-streaming-pluto-tv-may-2026/
+
+It is arguably Damon's most important (and creepiest) role.
+---------
+
+# Jodie Comer Cast in Damon Lindelof HBO Thriller Series Adaptation, 'The Chain'
+
+TV News, The Chain, Jodie Comer, Damon Lindelof
+
+Fri, 15 May 2026 16:52:54 GMT
+
+https://movieweb.com/jodie-comer-the-chain-hbo-damon-lindelof/
+
+Jodie Comer will lead HBO’s 'The Chain', an eight-episode limited series from 'Lost' and 'Watchmen' creator Damon Lindelof.
+---------
+
+# 'Doctor Who' Lands New U.S. Streaming Home on AMC+ in June 2026
+
+TV News, Doctor Who, AMC+
+
+Fri, 15 May 2026 16:48:54 GMT
+
+https://movieweb.com/doctor-who-amc-plus-us-streaming/
+
+'Doctor Who's modern 2005-2022 run is moving to AMC+ in the U.S. starting June 11, 2026, with 13 seasons joining the streamer.
+---------
+
+# Uwe Boll Directing "Unofficial" Video Game Horror Sequel '23 Years Later'
+
+Movie News, Uwe Boll, The House of the Dead, House of the Dead, Horror
+
+Fri, 15 May 2026 16:07:39 GMT
+
+https://movieweb.com/uwe-boll-unofficial-house-of-the-dead-sequel/
+
+Uwe Boll is directing an "unofficial" video game sequel to a franchise that already has an official film in development.
+---------
+
+# Netflix's ‘Magic: The Gathering’ Series Will Make 'The Witcher' Seem Small
+
+Features, The Witcher, Magic The Gathering, Netflix
+
+Fri, 15 May 2026 16:01:20 GMT
+
+https://movieweb.com/magic-the-gathering-netflix-upcoming-fantasy/
+
+'Magic: The Gathering' is an upcoming epic fantasy TV series that will premiere on Netflix and is based on the tabletop game.
+---------
+
+# 'Obsession' Director Curry Baker Says Movie Originally Had a Darker Ending
+
+Exclusives, Obsession, Blumhouse, Horror
+
+Fri, 15 May 2026 16:01:20 GMT
+
+https://movieweb.com/obsession-original-darker-ending/
+
+The new horror film from Blumhouse and Focus features had its ending changed during filming, director Curry Baker confirmed.
+---------
+
+# 'The Batman Part II': Brian Tyree Henry Teased as Harvey Bullock
+
+Movie News, The Batman Part II, Brian Tyree Henry, Matt Reeves
+
+Fri, 15 May 2026 16:00:14 GMT
+
+https://movieweb.com/the-batman-2-brian-tyree-henry/
+
+Matt Reeves hints that Brian Tyree Henry may be playing Harvey Bullock in 'The Batman: Part II.'
+---------
+
 # Fast & Furious Admits Franchise "Lost Nuance" & Hopes 1 Element Restores In Fast Forever
 
 Movies, Fast & Furious, Jordana Brewster, Fast Forever
