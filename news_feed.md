@@ -1,3 +1,234 @@
+# One Piece's Biggest Retcon Confirms How Fans Completely Misunderstood Luffy's Rubber Powers
+
+Anime, One Piece
+
+Fri, 15 May 2026 23:30:21 GMT
+
+https://screenrant.com/one-piece-biggest-retcon-luffy-devil-fruit-nika-gear-5-powers-rubber/
+
+Luffy's true Devil Fruit power is not rubber, but something far more fantastical and liberating that changes everything he's done in One Piece so far.
+---------
+
+# Taylor Sheridan's New Yellowstone Show Just Called Out Kevin Costner's John Dutton
+
+Streaming TV, Dutton Ranch
+
+Fri, 15 May 2026 23:30:21 GMT
+
+https://screenrant.com/dutton-ranch-yellowstone-taylor-sheridan-john-dutton-callout/
+
+Yellowstone portrayed John Dutton as the ultimate Western patriarch, but Dutton Ranch is showing the flaws in the Kevin Costner character.
+---------
+
+# 10 Most Unsettling Anime Episodes Of All Time
+
+Anime
+
+Fri, 15 May 2026 23:30:21 GMT
+
+https://screenrant.com/most-unsettling-anime-episodes-ever/
+
+Anime is home to a host of disturbing episodes, and these ten sit firmly on top of the list
+---------
+
+# Lord Of The Rings Open-World RPG Leak Has Gamers Losing It
+
+Gaming, The Lord of the Rings, PC
+
+Fri, 15 May 2026 23:00:20 GMT
+
+https://screenrant.com/lord-of-the-rings-open-world-rpg-leak-fan-reactions/
+
+Lord of the Rings fans are absolutely losing it after a recent leak suggests a massive new open-world RPG is in the works from an iconic studio.
+---------
+
+# Only One Upper Moon In Demon Slayer Truly Won His Fight In The End
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer
+
+Fri, 15 May 2026 23:00:20 GMT
+
+https://screenrant.com/demon-slayer-upper-moon-akaza-fight-humanity/
+
+In a series where demons are decisively defeated, Akaza's unique ending sets him apart as the only Upper Moon who breaks free from Muzan's control.
+---------
+
+# Netflix's 2-Season Fantasy Series With Near-Perfect RT Score Is Back To Steal Supernatural's Crown
+
+Streaming TV, Masked Recs
+
+Fri, 15 May 2026 23:00:20 GMT
+
+https://screenrant.com/devil-may-cry-season-2-netflix-steal-supernatural-crown/
+
+Supernatural has long been considered the pinnacle of fantasy-based action, but a Netflix release just returned to challenge Sam and Dean's rule.
+---------
+
+# 10 Hunter X Hunter Characters Most Likely To Die When The Manga Returns
+
+Anime, Hunter X Hunter, Manga
+
+Fri, 15 May 2026 23:45:14 GMT
+
+https://www.cbr.com/hunter-x-hunter-manga-possible-character-deaths/
+
+Togashi has never been shy about using conflicts to kill characters Hunter x Hunter readers care about.
+---------
+
+# 10 Crunchyroll Anime So Good, You'll Want to Binge Them in One Weekend
+
+Anime, Crunchyroll, Chainsaw Man
+
+Fri, 15 May 2026 23:15:12 GMT
+
+https://www.cbr.com/best-crunchyroll-anime-to-binge-in-1-weekend/
+
+These Crunchyroll anime series tell concise yet unforgettable stories perfect for a weekend binge.
+---------
+
+# In Just 1 Week, Stephen King-Approved Survival Series Based on Banned Classic Gets Disappointing Streaming Update
+
+TV, Lord of the Flies
+
+Fri, 15 May 2026 23:00:13 GMT
+
+https://www.cbr.com/lord-of-the-flies-survival-netflix-drop-may-2026/
+
+The classic has been adapted before, but it's the first time as a limited series.
+---------
+
+# Marvel Confirms Captain America's Dark Fate In Shocking New Comic
+
+Comics, Captain America
+
+Fri, 15 May 2026 23:00:13 GMT
+
+https://www.cbr.com/marvel-confirms-captain-america-is-dead-in-shocking-new-comic/
+
+Captain America has fallen, and there doesn't look to be any turning back for the war that just claimed the Star Spangled Avenger's life.
+---------
+
+# 10 Most Universally Beloved Movie Masterpieces of the 1980s, Ranked
+
+Movies
+
+Fri, 15 May 2026 23:00:13 GMT
+
+https://www.cbr.com/most-beloved-masterpieces-of-the-1980s-list/
+
+The '80s were a great time for movies, and now, decades later, there are still many masterpieces that everyone adores.
+---------
+
+# Hugh Jackman’s Detective Masterpiece Is in Deep Trouble Despite Rave Reviews
+
+Movie News, Hugh Jackman, The Sheep Detectives, MGM, Bryan Cranston
+
+Fri, 15 May 2026 23:45:14 GMT
+
+https://collider.com/hugh-jackman-the-sheep-detectives-detective-movie-box-office-30-million/
+
+Hugh Jackman’s The Sheep Detectives reportedly needs at least $128.6 million worldwide to break even.
+---------
+
+# 3 Best Shows to Binge on Prime Video This Weekend
+
+TV, Prime Video, Off Campus, Good Omens, It's Not Like That
+
+Fri, 15 May 2026 23:43:15 GMT
+
+https://collider.com/best-prime-video-shows-watch-weekend-may-15/
+
+Good Omens, Off Campus, and It's Not Like That make up our list of the best Prime Video shows to binge the weekend of May 15, 2026.
+---------
+
+# Prime Video's #1 Action Hit Was One of Its Most Expensive Movies Ever
+
+Movie News, Heads of State, John Cena, Idris Elba, Prime Video
+
+Fri, 15 May 2026 23:30:15 GMT
+
+https://collider.com/prime-video-action-movie-heads-of-state-budget-streaming-success-may-2026-john-cena-idris-elba/
+
+Prime Video's Heads of State reportedly cost $190 million after its budget ballooned during the Hollywood strikes.
+---------
+
+# Apple TV Spent Half a Billion Dollars on This Chart-Topping 10/10 Spy Thriller
+
+TV News, Slow Horses, Gary Oldman, Apple TV, Comedy
+
+Fri, 15 May 2026 23:15:14 GMT
+
+https://collider.com/apple-tv-spy-thriller-slow-horses-half-billion-budget-streaming-success-may-2026-gary-oldman/
+
+Apple has spent more than half a billion dollars on Slow Horses, according to newly revealed financial filings.
+---------
+
+# 10 Stephen King Movie Adaptations That Are Very Different From the Book
+
+Movie, The Shining, Stephen King, The Dark Tower, The Running Man
+
+Fri, 15 May 2026 23:05:14 GMT
+
+https://collider.com/stephen-king-movie-adaptations-different-from-the-books/
+
+Plenty of Stephen King movies change various things from the books they're based on, including The Shining, The Dark Tower, and Doctor Sleep.
+---------
+
+# HBO’s Epic Sci-Fi Prequel Series Gets a Galaxy-Shaking Update on Season 2 [Exclusive]
+
+TV News, Dune: Prophecy, Josh Heuston, HBO Max, Off Campus
+
+Fri, 15 May 2026 23:00:14 GMT
+
+https://collider.com/dune-prophecy-season-2-update-josh-heuston/
+
+Season 2 of Dune: Prophecy is coming soon to HBO Max, and star Josh Heuston promises it will be worth the wait. Read on for more.
+---------
+
+# 11 Years Later, Michael Fassbender's 92% Rotten Tomatoes Western Film Has Aged Like Fine Wine
+
+Movie Features, Slow West, Michael Fassbender, Kodi Smit-McPhee, Ben Mendelsohn
+
+Fri, 15 May 2026 22:48:13 GMT
+
+https://collider.com/slow-west-michael-fassbender-forgotten-western-film/
+
+Michael Fassbender and Kodi Smitt-McPhee take a journey that redefines the western genre in 2015's Slow West.
+---------
+
+# 'Spider-Noir' Showrunner Says Peter Parker Doesn't Exist in Prime Video Series
+
+TV News, Spider-Noir, Spider-Man
+
+Fri, 15 May 2026 23:37:27 GMT
+
+https://movieweb.com/spider-noir-peter-parker-season-1-explained/
+
+Or at least Oren Uziel confirms he doesn't exist "yet" in the show.
+---------
+
+# 'Obsession' Ending Explained: What Happens to Nikki and Bear
+
+Features, Obsession, Horror
+
+Fri, 15 May 2026 23:00:19 GMT
+
+https://movieweb.com/obsession-ending-explained-2026-curry-barker/
+
+Blumhouse's twisted new horror movie ends with a bleak and bloody finale that will stick with viewers long after the credits roll.
+---------
+
+# Tom Cruise's Modern Sci-Fi Classic 'Edge of Tomorrow' Makes Global Comeback Following Animated Reboot
+
+Movie News, Edge of Tomorrow, Netflix, Hot on Streaming, Edge of Tomorrow 2
+
+Fri, 15 May 2026 23:00:19 GMT
+
+https://movieweb.com/edge-of-tomorrow-netflix-streaming-success-may-2026-sci-fi/
+
+Tom Cruise's sci-fi action movie 'Edge of Tomorrow' is a streaming success on Netflix, despite the canceled sequel and animated reboot.
+---------
+
 # Claire’s White Hair In Outlander Season 8 Delivers On A 7-Year-Old Mystery
 
 Streaming TV, Outlander, Outlander - Season 8
