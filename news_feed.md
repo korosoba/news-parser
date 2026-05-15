@@ -1,3 +1,322 @@
+# Jon Favreau Wants The Mandalorian & Grogu To Recapture The Magic Of A New Hope
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Fri, 15 May 2026 13:41:22 GMT
+
+https://screenrant.com/jon-favreau-the-mandalorian-and-grogu-star-wars-a-new-hope/
+
+EXCLUSIVE: Writer and director Jon Favreau reveals that he wants The Mandalorian and Grogu to recapture the magic of Star Wars: A New Hope.
+---------
+
+# Michael Box Office Inches Closer To All-Time Record With Major Global Milestone
+
+Movies, Michael, Box Office
+
+Fri, 15 May 2026 13:33:12 GMT
+
+https://screenrant.com/michael-movie-box-office-600-million-global-milestone/
+
+The Michael Jackson biopic continues to climb at the global box office and has now passed a major global milestone as it chases an all-time record.
+---------
+
+# Daredevil: Born Again Season 2 Sets Up The Return Of Two MCU Phase 3 Heroes
+
+Superheroes, Daredevil: Born Again, Daredevil, Marvel Cinematic Universe
+
+Fri, 15 May 2026 13:30:13 GMT
+
+https://screenrant.com/iron-fist-elektra-mcu-return-daredevil-born-again-season-3-setup/
+
+A 2026 Marvel Cinematic Universe release has just set up the perfect storyline to bring back two MCU Phase 3 heroes several years later.
+---------
+
+# Zelda: Ocarina Of Time Remake Release Date Splits Gamers
+
+Gaming, The Legend of Zelda: Ocarina of Time
+
+Fri, 15 May 2026 13:30:13 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-release-date-speculation/
+
+Fans eagerly await potential release of The Legend of Zelda: Ocarina of Time remake on Nintendo Switch 2.
+---------
+
+# The Future Of Star Trek Has Never Been Brighter
+
+Star Trek
+
+Fri, 15 May 2026 13:30:13 GMT
+
+https://screenrant.com/star-trek-future-brighter/
+
+Things may look bleak, but that's when the heroes of Starfleet do their best work
+---------
+
+# New Lord Of The Rings Movie Confirms 25 Years Of Waiting Is Finally Over
+
+Movies, The Lord of the Rings: Shadow of the Past
+
+Fri, 15 May 2026 13:30:13 GMT
+
+https://screenrant.com/lord-of-the-rings-new-movie-tom-bombadil/
+
+Stephen Colbert's new Lord of the Rings movie, Shadow of the Past, will bring one of Tolkien's most mysterious characters to the big screen.
+---------
+
+# Parallel Tales Review: Asghar Farhadi's Latest Is Disappointingly Empty [Cannes]
+
+New Movies, Parallel Tales, Cannes Film Festival
+
+Fri, 15 May 2026 13:03:49 GMT
+
+https://screenrant.com/parallel-tales-movie-2026-review-cannes/
+
+Though its stellar cast find ways to entertain, this film comes in well below the potential of uniting Asghar Farhadi and Isabelle Huppert.
+---------
+
+# Dutton Ranch Episodes 1 & 2 Ending Explained: Why Rip Did THAT After The Murder In Texas
+
+TV, Dutton Ranch, Yellowstone
+
+Fri, 15 May 2026 13:01:19 GMT
+
+https://screenrant.com/dutton-ranch-season-1-episode-1-2-ending-explained/
+
+Beth and Rip find no peace in Dutton Ranch as they find themselves against new enemies in Texas who will do anything to protect their secrets.
+---------
+
+# The Witcher 3: Dawn Over Kovir Perfectly Sets Up The Witcher 4
+
+Gaming, The Witcher 3: Wild Hunt
+
+Fri, 15 May 2026 13:00:20 GMT
+
+https://screenrant.com/witcher-3-dawn-over-kovir-ciri-mod/
+
+Explore a new region and play as Ciri in this fan-made The Witcher 3: Wild Hunt mod, which sets up the storyline for The Witcher 4.
+---------
+
+# 2 New Star Trek Series Announced, And They're Taking The Franchise In A Bold Direction (Exclusive)
+
+Anime, Star Trek, Webtoon
+
+Fri, 15 May 2026 13:00:20 GMT
+
+https://screenrant.com/new-star-trek-series-webtoon/
+
+Star Trek has two brand-new canon adventures building on classic worlds across The Next Generation, Deep Space Nine, and Voyager.
+---------
+
+# Every One Piece Yonko, Ranked (By Strength)
+
+Anime, One Piece
+
+Fri, 15 May 2026 13:15:12 GMT
+
+https://www.cbr.com/one-piece-emperor-ranked-by-strength/
+
+The Emperors are the strongest characters in One Piece, and Monkey D. Luffy has only surpassed some of his current peers.
+---------
+
+# CBR's Exclusive Marvel Interview With The Russo Brothers in The Backstage Pass
+
+CBR Exclusives, CBR's Backstage Pass
+
+Fri, 15 May 2026 13:12:27 GMT
+
+https://www.cbr.com/cbrs-exclusive-marvel-interview-with-the-russo-brothers-in-the-backstage-pass/
+
+Also, exclusive interview for Maul, The Boys, and Mortal Kombat 2
+---------
+
+# Netflix's New Easy-to-Binge Crime Thriller Has 1 of the Best Casts in Streaming TV History
+
+TV, Legends, Netflix, Crime
+
+Fri, 15 May 2026 13:00:12 GMT
+
+https://www.cbr.com/netflix-easy-to-binge-crime-thriller-legends-best-cast-streaming-tv-history/
+
+Netflix's ensemble cast steals the show in this gripping crime thriller, with big names and character actors alike delivering nuanced performances.
+---------
+
+# 10 Must-Watch PG-13 Thrillers That Are Amazing From Start To Finish
+
+Movies, Thriller, James Bond, The Dark Knight
+
+Fri, 15 May 2026 13:00:12 GMT
+
+https://www.cbr.com/best-pg-13-thrillers-list/
+
+Since the golden age of cinema, Hollywood's best directors have shown that audiences can be treated to serious thrillers with a mainstream rating.
+---------
+
+# DC Officially Kills Off Major Batman Villain After 55 Years
+
+Comics, Superman, Batman
+
+Fri, 15 May 2026 12:00:13 GMT
+
+https://www.cbr.com/absolute-superman-ras-al-ghul-death/
+
+One of the most infamous and terrifying Batman villains of all time has just been dealt an absolutely brutal end by an overpowered nemesis.
+---------
+
+# ‘Lanterns’ Officially Blasts Off With the Update DC Fans Needed to Hear [Exclusive]
+
+TV News, Lanterns, Collider Exclusive Preview, James Gunn, Kyle Chandler
+
+Fri, 15 May 2026 13:00:13 GMT
+
+https://collider.com/dc-most-anticipated-project-2026-lanterns-green-lantern-series-update-showrunner-chris-mundy-what-to-expect/
+
+DC's most anticipated project of 2026, Lanterns, gets an exciting update ahead of its August premiere. See what showrunner Chris Mundy said.
+---------
+
+# ‘The Terror’ Director Explains Why Season 3’s Monster Works Best When You Can’t See It
+
+Exclusives, The Terror, Karyn Kusama, Dan Stevens, Jennifer's Body
+
+Fri, 15 May 2026 13:00:13 GMT
+
+https://collider.com/the-terror-devil-in-silver-episode-2-monster-reveal-director-karyn-kusama-interview/
+
+Director Karyn Kusama discusses The Terror: Devil in Silver, working with Dan Stevens, showing less for bigger scares, and the Jennifer's Body sequel.
+---------
+
+# This Near-Perfect Sci-Fi Thriller With 92% on Rotten Tomatoes Deserved a Far Better Ending
+
+TV Features, Colony, Josh Holloway, USA Network, Ryan Condal
+
+Fri, 15 May 2026 12:43:14 GMT
+
+https://collider.com/colony-alien-invasion-thriller-better-ending/
+
+USA Network's science fiction series Colony was canceled too soon and deserved a better ending.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Weekend
+
+TV, Netflix, Nemesis, Devil May Cry, One Day at a Time
+
+Fri, 15 May 2026 12:42:14 GMT
+
+https://collider.com/netflix-shows-binge-may-15/
+
+Nemesis, Devil May Cry, and One Day at a Time make up our list of the best Netflix shows to binge the weekend of May 13, 2026.
+---------
+
+# The Best WWII Movie of 2025 Also Gave Us the Genre's Most Devious Villain in Decades
+
+Movie Features, Sisu: Road to Revenge, Stephen Lang, Sisu, War
+
+Fri, 15 May 2026 12:23:13 GMT
+
+https://collider.com/sisu-road-to-revenge-ww2-movie-stephen-lang-villain/
+
+The brutal action movie Sisu: Road to Revenge has a terrifying villain in Stephen Lang's Yeagor Draganov in the aftermath of WWII.
+---------
+
+# Bob Dylan’s 1974 Song Has Become the Unofficial Soundtrack to New Year’s Celebrations
+
+Music Features, Bob Dylan, Music, Rock, A Complete Unknown
+
+Fri, 15 May 2026 12:12:13 GMT
+
+https://collider.com/bob-dylans-new-years-song-forever-young-1974/
+
+Bob Dylan’s 1974 hit Forever Young, from Planet Waves, became a timeless unofficial New Year’s anthem celebrated worldwide.
+---------
+
+# Prime Video’s Most Brutal Sci-Fi Phenomenon Ends Next Week With Its Final Episode
+
+TV News, Prime Video, The Boys, Antony Starr, Action
+
+Fri, 15 May 2026 12:00:13 GMT
+
+https://collider.com/prime-video-explosive-sci-fi-drama-the-boys-season-5-ending-may-2026/
+
+One of streaming’s wildest sci-fi phenomena is ending with apocalyptic stakes, franchise expansion, and massive finale pressure.
+---------
+
+# It's the End of an Era for the Greatest Sci-Fi Blockbuster on Netflix
+
+Movie Features, Independence Day, Netflix, Will Smith, Jeff Goldblum
+
+Fri, 15 May 2026 11:57:14 GMT
+
+https://collider.com/netflix-independence-day-greatest-sci-fi-blockbuster-leaving-may-31/
+
+Sci-fi fans have only a few weeks to watch Roland Emmerich's classic blockbuster Independence Day before it leaves Netflix.
+---------
+
+# 8 Unsung Sci-Fi Movies That Any Fan of the Genre Should Watch
+
+Movie, Upgrade, Aniara, Predestination, Sci-Fi
+
+Fri, 15 May 2026 11:36:13 GMT
+
+https://collider.com/unsung-sci-fi-movies/
+
+From The Vast of Night to Aniara, these forgotten sci-fi movies prove that some of the genre’s weirdest ideas age the best.
+---------
+
+# 'Euphoria' Season 3 Finally Hits #1 on Streaming After Five Weeks
+
+TV News, Euphoria, Sydney Sweeney, Hot on Streaming
+
+Fri, 15 May 2026 13:39:36 GMT
+
+https://movieweb.com/euphoria-season-3-streaming-success-may-5-10-hbo/
+
+Sydney Sweeney and Zendaya's R-rated HBO smash finally came out on top for the week of May 5-10
+---------
+
+# 'The Punisher: One Last Kill' Follows James Gunn's DCU Example of Tailoring Each Project to Its Main Character
+
+Features, The Punisher: One Last Kill, James Gunn
+
+Fri, 15 May 2026 13:00:18 GMT
+
+https://movieweb.com/punisher-special-james-gunn-mcu-legacy/
+
+James Gunn is being given a lot of freedom while building the DCU, which is something that Marvel is clearly learning from.
+---------
+
+# 'Jack Ryan: Ghost War' Director Breaks Down Biggest Action Scene [Exclusive]
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan, Action
+
+Fri, 15 May 2026 13:00:18 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-biggest-action-scene/
+
+In an exclusive interview with MovieWeb, 'Tom Clancy's Jack Ryan: Ghost War' director Andrew Bernstein discussed his approach to capturing the action.
+---------
+
+# 'The Expendables' Female Action Spin-Off 'The Expendabelles' in the Works
+
+Movie News, The Expendables, ExpendaBelles, Cannes Film Festival
+
+Fri, 15 May 2026 12:20:38 GMT
+
+https://movieweb.com/expendabelles-female-expendables-spinoff-in-development/
+
+An all-female spin-off of 'The Expendables' franchise, titled 'The Expendabelles,' is back in active development after years of attempts.
+---------
+
+# 12 Near-Perfect Weekend Binge Miniseries No One Ever Talks About
+
+TV Lists, TV Miniseries
+
+Fri, 15 May 2026 12:00:18 GMT
+
+https://movieweb.com/tv-miniseries-near-perfect-binge-no-one-talks-about/
+
+From comedies to sci-fi and beyond, these brilliant miniseries are well worth bingeing this weekend, even though nobody talks about them anymore.
+---------
+
 # Elden Ring 2026 DLC Officially Confirmed
 
 Gaming, Elden Ring
