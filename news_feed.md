@@ -1,3 +1,355 @@
+# Mortal Kombat II Director Reveals The Challenges Of Adapting Fan Favorite Character
+
+Movies, Mortal Kombat II
+
+Fri, 15 May 2026 02:06:30 GMT
+
+https://screenrant.com/mortal-kombat-ii-adapting-baraka-fight/
+
+Mortal Kombat II director, Simon McQuoid, reveals how much time and effort it took to bring this fan favorite character to the big screen.
+---------
+
+# Apple TV’s New Horror Show Just Dropped 1 Of The Greatest Episodes Of The Genre
+
+Streaming TV, Widow's Bay, Apple TV
+
+Fri, 15 May 2026 02:00:32 GMT
+
+https://screenrant.com/widows-bay-apple-tv-greatest-episode-horror/
+
+Apple TV’s new horror TV series, with a near-perfect Rotten Tomatoes score, just dropped one of the greatest episodes of the genre in a long time.
+---------
+
+# 6 Things We Want To See From Rodan In Godzilla's Monsterverse
+
+Movies, Monsterverse
+
+Fri, 15 May 2026 02:00:32 GMT
+
+https://screenrant.com/rodan-monsterverse-return-future-stories-happen/
+
+It took seven years, but Legendary's Monsterverse has finally brought back Rodan, a decision that carries a lot of promise for future stories.
+---------
+
+# Andor Meets Mass Effect In Prime Video’s New Space Opera From Expanse’s Creators
+
+Streaming TV, Masked Recs
+
+Fri, 15 May 2026 01:00:20 GMT
+
+https://screenrant.com/andor-mass-effect-captive-war-expanse-prime-video/
+
+Prime Video’s mew space opera adaptation, which is being developed by The Expanse’s creators, will be the perfect combination of Andor & Mass Effect.
+---------
+
+# June's Replacement In The Handmaid's Tale Makes Hulu's 2026 Spinoff Worthwhile
+
+Streaming TV, The Testaments
+
+Fri, 15 May 2026 00:30:20 GMT
+
+https://screenrant.com/the-handmaids-tale-agnes-june-different-testaments/
+
+The Testaments has made a point to distance itself from The Handmaid's Tale in many ways, but its biggest departure is its protagonist.
+---------
+
+# Netflix’s New Lovecraftian Manga Adaptation Repeats 1 Stephen King Show’s Risky Concept
+
+Streaming TV, Stephen King, Castle Rock, Netflix
+
+Fri, 15 May 2026 00:15:20 GMT
+
+https://screenrant.com/netflix-bloody-smart-junji-ito-stephen-king-castle-rock/
+
+Netflix’s has a Lovecraftian manga adaptation lined up, and it looks like it will repeat one of the riskiest concepts from a Stephen King TV show.
+---------
+
+# Harley Quinn Unleashes God-Tier Upgrade in Absolute Batman
+
+Comics, Harley Quinn, Batman, DC Comics, DC
+
+Fri, 15 May 2026 00:00:20 GMT
+
+https://screenrant.com/harley-quinn-mallet-upgrade-absolute-batman/
+
+Harley Quinn has been enjoying one of her best iterations in years, and her trusty, iconic weapon is now in hand with a glorious upgrade.
+---------
+
+# 10 Player-Made Tomodachi Life Decorations You Desperately Need To Add To Your Island
+
+Gaming, Tomodachi Life: Living the Dream, Triple-A Games, PC
+
+Fri, 15 May 2026 00:00:20 GMT
+
+https://screenrant.com/best-tomodachi-life-decoration-ideas/
+
+Custom designs are one of the best features in Tomodachi Life, with plenty of inspiration out there already for taking your island to the next level.
+---------
+
+# Netflix’s 128-Minute Assassin Drama Quietly Tops the Charts With 8.5M Views
+
+Movies, Netflix
+
+Fri, 15 May 2026 02:30:21 GMT
+
+https://www.cbr.com/my-dearest-assassin-netflix-streaming-may-2026/
+
+The violent assassin drama is a streaming success on Netflix.
+---------
+
+# 10 Most Colorful Anime Transformations in Shonen History
+
+Anime, Kill la Kill, Naruto, Dragon Ball Super, Bleach, shonen anime
+
+Fri, 15 May 2026 02:15:13 GMT
+
+https://www.cbr.com/most-colorful-shonen-anime-transformations/
+
+Some of shonen's best transformations have been glorious to behold
+---------
+
+# The 10 Most Popular Pokémon of All Time, Ranked
+
+Anime, Pokemon, Pokémon
+
+Fri, 15 May 2026 02:00:24 GMT
+
+https://www.cbr.com/most-popular-pokemon-ranked/
+
+Several Pokémon are widely popular among fans, yet there are a select few that appear to be especially beloved.
+---------
+
+# Ridley Scott's The Terror: Devil in Silver With 92% RT is 2026's First True TV Masterpiece
+
+TV, The Terror, Horror
+
+Fri, 15 May 2026 02:00:23 GMT
+
+https://www.cbr.com/ridley-scott-the-terror-devil-in-silver-first-true-tv-masterpiece-2026/
+
+With a massive 95% on Rotten Tomatoes, Ridley Scott's creepy psychiatric ward nightmare is officially the first must-watch TV show of 2026.
+---------
+
+# The 10 Greatest Fantasy Books of the Last 10 Years, Ranked
+
+Movies, Fantasy, books
+
+Fri, 15 May 2026 02:00:23 GMT
+
+https://www.cbr.com/greatest-fantasy-books-last10-years-list/
+
+These books are must-read masterpieces of the popular genre. Despite only being recently published, they are already modern fantasy classics.
+---------
+
+# Kate Beckinsale Set to Star in New Jaws-Style Shark Thriller
+
+Movies, Horror
+
+Fri, 15 May 2026 01:56:45 GMT
+
+https://www.cbr.com/white-shark-horror-movie-kate-beckinsale/
+
+Kate Beckinsale's newest movie aims to make great white sharks scary again.
+---------
+
+# Netflix's DMC Merch Confirms the Anime's Haters Were Right
+
+Anime, Devil May Cry
+
+Fri, 15 May 2026 01:45:13 GMT
+
+https://www.cbr.com/netflix-devil-may-cry-anime-vergil-merch-spelling-mistake/
+
+Netflix’s Devil May Cry just made a major merch mistake that accidently proved everything its haters said about Adi Shankar’s new series 100% correct.
+---------
+
+# Transformers Revives the Original Optimus Prime With a Crystal-Clear G1 Makeover
+
+Anime, Transformers, merchandise, toys, action figures
+
+Fri, 15 May 2026 01:30:13 GMT
+
+https://www.cbr.com/transformers-alpha-action-elite-select-clear-optimus-prime-action-figure/
+
+40 years after his death, a new version of a previous Optimus Prime action figure gives the classic Autobot leader a new transparent color scheme.
+---------
+
+# Satoshi Kon's Undeniable Influence on The Dark Shonen Trio, Explained
+
+Anime, Chainsaw Man, Jujutsu Kaisen, Hell's Paradise: Jigokuraku, Satoshi Kon, shonen anime
+
+Fri, 15 May 2026 01:25:13 GMT
+
+https://www.cbr.com/satoshi-kon-dark-shonen-trio-influence/
+
+Satoshi Kon, the amazing Director behind Paprika and Perfect Blue, has an undeniable influence on Chainsaw Man, Jujutsu Kaisen, and Hell's Paradise.
+---------
+
+# 5 Perfect Video Game Franchises Where Every Game Is a 10/10
+
+Games, Video Games, Uncharted, Mario Kart, Super Smash Bros. Brawl (2008), Dishonored
+
+Fri, 15 May 2026 00:45:13 GMT
+
+https://www.cbr.com/perfect-video-game-franchises/
+
+Perfect video game franchises are a rarity, but they do exist, and fans who've played every single game know exactly why the franchise succeeds.
+---------
+
+# 'Lincoln Lawyer' Fans Turn to Nearly 30-Year-Old Legal Thriller 1 Day After Cancellation News
+
+Movie News, Matt Damon, The Rainmaker, Tubi, The Lincoln Lawyer
+
+Fri, 15 May 2026 02:00:24 GMT
+
+https://collider.com/matt-damon-thriller-the-rainmaker-free-streaming-success-tubi-may-2026-the-lincoln-lawyer/
+
+Following The Lincoln Lawyer's sudden cancellation, fans are finding solace in Matt Damon's free streaming hit.
+---------
+
+# ‘KPop Demon Hunters’ Reunion Set for New Psychological Thriller [Exclusive]
+
+Exclusives, KPop Demon Hunters, Adeline Rudolph, Arden Cho, Mortal Kombat II
+
+Fri, 15 May 2026 02:00:24 GMT
+
+https://collider.com/adeline-rudolph-perfect-girl-tease-kpop-demon-hunters-reunion-horror-thriller/
+
+Adeline Rudolph teases her new psychological thriller, Perfect Girl, and the reunion between KPop Demon Hunters stars Arden Cho and May Hong in it.
+---------
+
+# Jason Momoa Officially Addresses The Future of His R-Rated Apple TV War Drama Series
+
+Exclusives, On the Roam, Jason Momoa, HBO Max, Chief of War
+
+Fri, 15 May 2026 02:00:24 GMT
+
+https://collider.com/jason-momoa-chief-of-war-season-2-status-apple-tv-interview/
+
+Jason Momoa and Brian Andrew Mendoza discuss the future of Apple TV's Chief of War and their adventures for HBO Max's On the Roam Season 2.
+---------
+
+# 'Harry Potter's Early HBO Season 2 Renewal Fixes the Reboot's Biggest Problem
+
+TV Features, Harry Potter, HBO, Warner Bros.
+
+Fri, 15 May 2026 01:36:13 GMT
+
+https://collider.com/harry-potter-hbo-season-2-renewal-fixes-biggest-problem-cast-aging/
+
+HBO's Harry Potter securing an early renewal for Season 2 addresses the reboot's biggest problem before the series even premieres.
+---------
+
+# The Greatest Fantasy Saga Ever Made Officially Returns for Part 3 Next Month
+
+TV News, House of the Dragon, Game Of Thrones, George R.R. Martin, HBO
+
+Fri, 15 May 2026 01:30:13 GMT
+
+https://collider.com/game-of-thrones-spin-off-house-of-the-dragon-season-3-premiere-date-hbo-max-june-2026/
+
+House of the Dragon Season 3 returns next month on HBO and HBO Max as the Targaryen civil war escalates.
+---------
+
+# 10 Greatest Fantasy Shows Even Diehards Haven't Seen
+
+TV, Fantasy, Pushing Daisies, dead like me, Extraordinary
+
+Fri, 15 May 2026 01:25:12 GMT
+
+https://collider.com/greatest-fantasy-shows-you-probably-missed/
+
+Wynonna Earp, Dead Like Me, Pushing Daisies, Extraordinary, and more make up our list of the greatest fantasy shows even diehards haven't seen.
+---------
+
+# ‘Ghosts’ Season 5 Finale Tease Gives Fans 1 Massive Reason to Watch [Exclusive]
+
+Exclusives, Ghosts, CBS, Rose Abdoo, Sitcom
+
+Fri, 15 May 2026 01:00:13 GMT
+
+https://collider.com/ghosts-season-5-finale-what-to-expect-rose-mciver-rose-abdoo-returning/
+
+Ghosts star Rose Abdoo discusses returning to the series and teases a can’t-miss finale for fans as Sam and Jay take big swings to protect Woodstone.
+---------
+
+# LL COOL J’s New ‘NCIS’ Spin-Off Has the Perfect Opportunity for a ‘Los Angeles’ Reunion [Exclusive]
+
+Exclusives, Chris O'Donnell, LL Cool J, NCIS: Los Angeles, 9-1-1: Nashville
+
+Fri, 15 May 2026 01:00:13 GMT
+
+https://collider.com/ncis-new-york-spin-off-chris-odonnell-ll-cool-j-los-angeles-reunion-chances/
+
+NCIS: Los Angeles alum Chris O'Donnell is open to the idea of reuniting with LL COOL J for his new spin-off, NCIS: New York. Here's what we know.
+---------
+
+# 'Ted Lasso's Biggest Star Enters Her John Wick Era in First Look for New Action Series
+
+TV News, Octavia Spencer, Hannah Waddingham, Bill Nighy, Prime Video
+
+Fri, 15 May 2026 01:00:13 GMT
+
+https://collider.com/ted-lasso-star-hannah-waddingham-action-movie-ride-or-die-first-images-octavia-spencer/
+
+The new Prime Video series Ride or Die has released first look images, featuring Ted Lasso's Hannah Waddingham on a motorcycle.
+---------
+
+# Director of 2026’s Biggest Fantasy Movie Breaks His Silence on a Third Movie
+
+Movie News, Mortal Kombat, Mortal Kombat II, Karl Urban, Fantasy
+
+Fri, 15 May 2026 00:30:13 GMT
+
+https://collider.com/fantasy-sequel-mortal-kombat-2-sequel-update-director-simon-mcquoid/
+
+Mortal Kombat II director Simon McQuoid discusses the potential for a third installment as the new film hits theaters.
+---------
+
+# 12 Movies That Were Ruined by Bad Casting Decisions
+
+Movie Lists, Suicide Squad, Man of Steel, Star Wars
+
+Fri, 15 May 2026 02:00:30 GMT
+
+https://movieweb.com/movies-ruined-bad-casting-decisions/
+
+Some movies suffer from bad scripts and studio interference, but others go wrong during the casting stage, as proven by these 12 movies.
+---------
+
+# 'Mortal Kombat II' Writer Confirms Plans for Dead Character's Sequel Return
+
+Exclusives, Mortal Kombat II, Mortal Kombat, Jeremy Slater
+
+Fri, 15 May 2026 00:43:09 GMT
+
+https://movieweb.com/mortal-kombat-ii-writer-dead-character-return/
+
+One 'Mortal Kombat II' character won't remain in the Netherrealm after their brutal fatality, according to writer Jeremy Slater.
+---------
+
+# 'The Boys' Season 5 Episode 7 Becomes Lowest-Rated Episode of the Entire Franchise
+
+TV News, The Boys
+
+Fri, 15 May 2026 00:36:22 GMT
+
+https://movieweb.com/the-boys-season-5-episode-7-lowest-rated/
+
+Viewers took to IMDb to express their frustrations with the latest episode.
+---------
+
+# 9 Great Movies You Won't Want To Watch Twice
+
+Movie Lists, Drama, War, Schindler's List, Uncut Gems, Sophie's Choice
+
+Fri, 15 May 2026 00:00:19 GMT
+
+https://movieweb.com/great-movies-you-wont-want-to-watch-twice/
+
+Some of the best films of all time may also not be the easiest to watch, demanding your attention, even if just once.
+---------
+
 # Netflix's Frankenstein From Guillermo Del Toro Is One Of Its Best Movies
 
 Movies, Masked Recs, Quiz CV
