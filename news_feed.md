@@ -1,3 +1,333 @@
+# Fast & Furious Admits Franchise "Lost Nuance" & Hopes 1 Element Restores In Fast Forever
+
+Movies, Fast & Furious, Jordana Brewster, Fast Forever
+
+Fri, 15 May 2026 15:46:36 GMT
+
+https://screenrant.com/fast-forever-movie-practical-stunts-return-jordana-brewster/
+
+The Fast & Furious films launched in 2001 and spawned a $7.4 billion franchise. Now one of the stars is revealing why the series lost its nuance.
+---------
+
+# Scarlett Johansson's 10 Best Movie Roles That Aren't Black Widow
+
+Movies, Scarlett Johansson, Ranking
+
+Fri, 15 May 2026 15:45:20 GMT
+
+https://screenrant.com/scarlett-johansson-best-movie-roles-not-black-widow/
+
+Scarlett Johansson is most known for her work as Black Widow in the MCU but some of her greatest acting comes from roles outside of the franchise.
+---------
+
+# Archer's Dramatic Chicago Med Confession Secretly Reveals His Best Future With Hannah
+
+Network TV, Chicago Med, One Chicago
+
+Fri, 15 May 2026 15:45:20 GMT
+
+https://screenrant.com/chicago-med-season-11-episode-21-archer-confession-best-future-hannah-reveal/
+
+Chicago Med's season 11 finale didn't end tragically for Archer and Hannah as feared, but with a confession that bodes well for the future.
+---------
+
+# 12 Best Snoopy Comics In Peanuts History
+
+Comics
+
+Fri, 15 May 2026 15:27:56 GMT
+
+https://screenrant.com/best-snoopy-comics-peanuts/
+
+The best of the best Snoopy cartoons.
+---------
+
+# Jack Reacher Returns As Surprise US Streaming Smash Hit At The Perfect Time
+
+Movies, Jack Reacher
+
+Fri, 15 May 2026 15:20:18 GMT
+
+https://screenrant.com/jack-reacher-paramount-plus-streaming-success-may-2026/
+
+After a major franchise update, Jack Reacher is surprisingly back for more streaming success and climbing the US charts with a star-studded release.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (May 16-17)
+
+Movies, HBO Max, Recommendation
+
+Fri, 15 May 2026 15:20:19 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-may-16/
+
+Don't forget to check HBO Max this weekend for some excellent movie picks. These three films are streaming now and should go to the top of your list.
+---------
+
+# After One Piece & Wednesday, Netflix Has A New Ambitious Fantasy Franchise
+
+Streaming TV, Netflix
+
+Fri, 15 May 2026 15:15:19 GMT
+
+https://screenrant.com/after-one-piece-wednesday-netflix-has-a-new-ambitious-fantasy-franchise/
+
+One Piece and Wednesday are the biggest fantasy shows on Netflix, but the streamer has an upcoming series from the genre that could rival them.
+---------
+
+# Win A Pair of Sunday Badges to FAN EXPO Denver
+
+Movies, Fan Expo
+
+Fri, 15 May 2026 15:15:14 GMT
+
+https://screenrant.com/fan-expo-denver-2026-tickets-giveaway/
+
+ScreenRant is giving away 2 Sunday badges to FAN EXPO Denver with a guest list that includes the Hobbits actors, David Tennant, and Orlando Bloom.
+---------
+
+# 7 Classic Rock Anthems You’ll Never Hear Live Again (And Why)
+
+Music, Classic Rock, Radiohead, Oasis, The Rolling Stones, Led Zeppelin, Rock
+
+Fri, 15 May 2026 15:15:12 GMT
+
+https://screenrant.com/classic-rock-songs-retired-live/
+
+From Robert Plant to Noel Gallagher, these rock stars walked away from their biggest hits. Discover why these 7 classic rock anthems are now retired.
+---------
+
+# Marvel Studios Is Officially Recreating One Of The Greatest X-Men Movies
+
+Movies, Avengers: Doomsday, Avengers: Secret Wars, X-Men: Days of Future Past, X-Men, Marvel
+
+Fri, 15 May 2026 15:00:21 GMT
+
+https://screenrant.com/avengers-doomsday-secret-wars-x-men-days-of-future-past/
+
+Avengers: Doomsday is poised to recreate some of the best aspects of X-Men: Days of Future Past, from its reboot of the X-Men to its time travel.
+---------
+
+# New Look at Spider-Man: Brand New Day Opening Scene Confirms Major Action Upgrade
+
+Movies, Marvel, MCU, Marvel Comics, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Homecoming, Spider-Man: Far from Home, Spider-Man: No Way Home
+
+Fri, 15 May 2026 15:50:27 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-opening-scene-confirms-major-upgrade/
+
+The opening scene for Brand New Day might show Avengers: Doomsday how it's done.
+---------
+
+# Guy Ritchie Officially Clarifies MobLand Season 2’s Paramount+ Release Timeline
+
+TV, MobLand
+
+Fri, 15 May 2026 15:36:06 GMT
+
+https://www.cbr.com/guy-ritchie-mobland-season-2-paramount-plus-release-timeline/
+
+Another season of MobLand is on the way, with director/executive producer Guy Ritchie confirming the release window for the crime drama series.
+---------
+
+# Peter Jackson Says New Tolkien Era May Finally Unlock Lord of the Rings’ Silmarillion Movies
+
+Movies, The Lord of the Rings, Fantasy
+
+Fri, 15 May 2026 15:35:30 GMT
+
+https://www.cbr.com/peter-jackson-tolkien-lord-of-the-rings-silmarillion-movies/
+
+The greatets treasure trove of Lord of the Rings lore may finally be on the table to for movie adaptations.
+---------
+
+# Netflix's Upcoming Gundam Live-Action Film Starring Sydney Sweeney Is Doomed
+
+Anime, Gundam, G-Saviour, The Housemaid, Netflix, Euphoria
+
+Fri, 15 May 2026 15:15:12 GMT
+
+https://www.cbr.com/netflix-gundam-live-action-movie-sydney-sweeney-casting/
+
+Netflix's upcoming live-action Gundam film starring Sydney Sweeney is the perfect storm for another disastrous adaptation.
+---------
+
+# 6 War Movies Better Than Saving Private Ryan
+
+Movies, War
+
+Fri, 15 May 2026 15:00:13 GMT
+
+https://www.cbr.com/best-war-movies-better-than-saving-private-ryan-list/
+
+Spielberg's Saving Private Ryan is a must-see war film, but movies like Apocalypse Now and Schindler's List tackle the topic even more effectively.
+---------
+
+# 6 Forgotten '90s Games That Have Aged Like Fine Wine
+
+Games, Video Games, epic games
+
+Fri, 15 May 2026 15:00:13 GMT
+
+https://www.cbr.com/forgotten-90s-games-that-aged-well/
+
+'90s games like Cannon Fodder and Myst deserve to be remembered for the masterpieces they are.
+---------
+
+# Avatar: The Last Airbender Quietly Teases New Movie Designs for Aang, Zuko and More
+
+Anime, The Legend of Aang: The Last Airbender, Avatar: The Last Airbender, merchandise
+
+Fri, 15 May 2026 15:00:13 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-legend-of-aang-art-of-the-movie-release-date/
+
+Fans of Avatar: The Last Airbender can officially look forward to some astonishing new looks for the cast of The Legend of Aang: The Last Airbender
+---------
+
+# The Greatest Movie Trilogy of All Time Is Officially Returning With a New Story in 2027
+
+Movies, The Godfather, The Godfather Part II, The Godfather Part III, The Godfather: Part II
+
+Fri, 15 May 2026 14:57:22 GMT
+
+https://www.cbr.com/godfather-trilogy-officially-returning-with-new-story-2027/
+
+The greatest trilogy of all-time , The Godfather, is coming back in 2027 — nearly 40 years later.
+---------
+
+# The Best-Rated Horror Movie of 2026 Is Officially This Supernatural Sleeper Hit
+
+Movies, Obsession, Rotten Tomatoes
+
+Fri, 15 May 2026 14:53:27 GMT
+
+https://www.cbr.com/obsession-best-rated-horror-movie-of-2026-rotten-tomatoes-score/
+
+The film just dethroned Sam Raimi's Send Help.
+---------
+
+# Michael Bay’s Ambulance is His Best Movie Since The Rock
+
+Movies, Ambulance, michael bay, Thriller
+
+Fri, 15 May 2026 14:30:16 GMT
+
+https://www.cbr.com/michael-bay-ambulance-best-movie-the-rock/
+
+Michael Bay's latest action outing is a refreshing back-to-basics thriller that's his best work since The Rock
+---------
+
+# 'Rivals' Season 2 Stars Reveal What It Will Take To Bring Rupert and Taggie Back Together
+
+Exclusives, Rivals, Bella Maclean, Alex Hassell, Hulu
+
+Fri, 15 May 2026 15:30:20 GMT
+
+https://collider.com/rivals-season-2-alex-hassell-bella-maclean-rupert-taggie-relationship/
+
+Rivals' Bella Maclean and Alex Hassell discuss their characters' journey, favorite scenes, and what it will take for the lovers to finally reunite.
+---------
+
+# Jason Statham's Biggest Action Franchise Is Officially Getting a New Movie, But There's a Catch
+
+Movie News, The Expendables, The Expendables 2, The Expendables 3
+
+Fri, 15 May 2026 15:00:30 GMT
+
+https://collider.com/the-expendables-spin-off-movie-expendabelles-all-female-team/
+
+Jason Statham's most bonkers action franchise, The Expendables, is officially returning with a new movie, but there’s a major twist.
+---------
+
+# Mindy Kaling's Raunchy New Hulu Series Is 'Not Suitable for Work' in New First Look [Exclusive]
+
+TV News, Mindy Kaling, Hulu, Comedy, Collider Exclusive Preview
+
+Fri, 15 May 2026 15:00:14 GMT
+
+https://collider.com/mindy-kaling-new-hulu-series-not-suitable-for-work-first-look-images/
+
+Discover a first look at Mindy Kaling's new series, Not Suitable for Work, a raunchy coming-of-age comedy premiering on June 2, starring Ella Hunt.
+---------
+
+# 'Stranger Things' Creators Officially Reveal New Look at Must-See Sci-Fi Mystery Netflix Series [Exclusive]
+
+Exclusives, The Boroughs, Netflix, Duffer Brothers, Collider Exclusive Preview
+
+Fri, 15 May 2026 14:00:14 GMT
+
+https://collider.com/the-boroughs-image-alfred-molina-duffer-brothers-sci-fi-mystery-netflix/
+
+A new image from Netflix's new sci-fi mystery, The Boroughs, welcomes Alfred Molina to idyllic senior living. Check it out here!
+---------
+
+# First Star Wars Movie in 7 Years Slammed for Bad Dialogue in First Reactions
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Star Wars, Pedro Pascal
+
+Fri, 15 May 2026 13:49:13 GMT
+
+https://collider.com/first-star-wars-movie-in-7-years-mandalorian-and-grogu-bad-dialogue-first-reactions/
+
+The first reactions for The Mandalorian & Grogu are in, and critics are divided between praise and criticism for the new Star Wars movie.
+---------
+
+# 'Obsession' Rotten Tomatoes Score Certifies It as a "Horror Masterpiece"
+
+Movie News, Obsession, Horror
+
+Fri, 15 May 2026 15:50:27 GMT
+
+https://movieweb.com/obsession-rotten-tomatoes-score/
+
+'Obsession' has achieved one of the best Rotten Tomatoes scores of the year, as critics heap on the praise for Curry Barker's horror feature.
+---------
+
+# 'Dutton Ranch': 'Yellowstone' Finally Returns for "Season 6" Today
+
+Features, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Fri, 15 May 2026 15:32:32 GMT
+
+https://movieweb.com/yellowstone-dutton-ranch-season-6-returns/
+
+'Yellowstone's new spin-off, dubbed "Season 6" by its creators as a faithful continuation to the original series, is out today on Paramount+.
+---------
+
+# Why Megan Fox Left the Transformers Franchise and Will She Ever Return?
+
+Features, Megan Fox, Transformers
+
+Fri, 15 May 2026 15:00:20 GMT
+
+https://movieweb.com/why-megan-fox-left-the-transformers-franchise/
+
+Megan Fox left the Transformers series long ago, but is there hope for her return?
+---------
+
+# Henry Cavill Action Thriller 'In the Grey' From Guy Ritchie Lands Rotten Tomatoes Debut
+
+Movie News, In the Grey, Henry Cavill, Guy Ritchie, Jake Gyllenhaal, Eiza Gonzalez
+
+Fri, 15 May 2026 14:31:56 GMT
+
+https://movieweb.com/in-the-grey-rotten-tomatoes/
+
+Starring Henry Cavill, Jake Gyllenhaal and Eiza González, 'In the Grey' has landed a score on Rotten Tomatoes.
+---------
+
+# Zach Braff Just Teased That 'Scrubs' Season 2 Will See JD & Elliot Single Again
+
+Features, Scrubs
+
+Fri, 15 May 2026 14:00:19 GMT
+
+https://movieweb.com/scrubs-revival-season-2-jd-tease/
+
+ABC has announced that 'Scrubs' is coming back later this year, and Braff has been talking about what to expect. Read on for more.
+---------
+
 # Jon Favreau Wants The Mandalorian & Grogu To Recapture The Magic Of A New Hope
 
 Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
