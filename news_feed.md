@@ -1,3 +1,344 @@
+# Dexter: Resurrection Season 2's Return Of OG Dexter Morgan Tradition Abandoned 5 Years Ago Teased By Michael C. Hall
+
+TV, Dexter: Resurrection, Dexter
+
+Fri, 15 May 2026 19:20:18 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-boat-water-burial-return-tease-michael-c-hall/
+
+EXCLUSIVE: Michael C. Hall addresses whether Dexter: Resurrection season 2 will finally bring back a major original Dexter Morgan kill tradition.
+---------
+
+# Hiccup’s Fire Sword Finally Unveiled In New How To Train Your Dragon 2 Teaser Image
+
+Movies, How To Train Your Dragon 2, How to Train Your Dragon
+
+Fri, 15 May 2026 19:08:34 GMT
+
+https://screenrant.com/how-to-train-your-dragon-2-fire-sword-hiccup-image-teaser/
+
+How to Train Your Dragon 2 director Dean DeBlois reveals a major production update as he unveils a teaser image of Hiccup’s fire sword.
+---------
+
+# James Cameron's Avatar 4 & 5 "Metric" Revealed As Disney Sequels Get Major Writing Update
+
+Movies, Avatar 4, Avatar 5, Avatar
+
+Fri, 15 May 2026 19:05:45 GMT
+
+https://screenrant.com/avatar-4-5-cost-filming-metric-writing-update-james-cameron/
+
+James Cameron's Avatar 4 and 5 "metric" has been revealed as the Disney sequels get a major writing update from the franchise's creator.
+---------
+
+# Marvel Rivals: How To Play Devil Dinosaur (Abilities, Ultimate, Tips & Tricks)
+
+Gaming, Marvel Rivals, PC, Live Service Games
+
+Fri, 15 May 2026 19:01:19 GMT
+
+https://screenrant.com/marvel-rivals-devil-dinosaur-build-best-abilities-ultimate-team-comps/
+
+The newest character for Marvel Rivals Season 8 is Devil Dinosaur, a massive Vanguard whose abilities change the game for teammates and foes alike.
+---------
+
+# Netflix Binge Guide (May 15–17): New 8-Part Crime Thriller Becomes Instant Top 3 Hit
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 15 May 2026 18:53:20 GMT
+
+https://screenrant.com/netflix-shows-binge-watch-guide-may-15/
+
+The best shows to binge-watch on Netflix this weekend, May 15–17, 2026, include three hit thriller series that have dominated global streaming charts.
+---------
+
+# Major The Boys Character Quietly Exits Season 5 Ahead Of Finale
+
+TV, The Boys
+
+Fri, 15 May 2026 18:52:26 GMT
+
+https://screenrant.com/the-boys-soldier-boy-showrunner-eric-kripke-episode-7-exit/
+
+The Boys has lost yet another star in its series, as showrunner Eric Kripke confirms this major character has quietly exited after episode 7.
+---------
+
+# ARC Raiders Devs Tease Blueprint & Expedition Changes After Player Feedback
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Fri, 15 May 2026 18:52:23 GMT
+
+https://screenrant.com/arc-raiders-blueprints-expedition-progression-changes/
+
+Exclusive: Embark Studios teases major ARC Raiders blueprint and expedition changes after months of player feedback about endgame progression.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (May 16-17)
+
+Movies, Disney+, Recommendation
+
+Fri, 15 May 2026 18:44:05 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-may-16/
+
+Disney+'s best movies to watch this weekend range from an underrated action movie to a new thriller with an iconic hero and a Sci-Fi adventure.
+---------
+
+# Taylor Sheridan's Role In New 9-Part Yellowstone Spinoff Clarified By Rip Star
+
+TV, Dutton Ranch, Yellowstone
+
+Fri, 15 May 2026 18:34:11 GMT
+
+https://screenrant.com/taylor-sheridan-dutton-ranch-role-clarified-cole-hauser/
+
+Taylor Sheridan's role in this Yellowstone spinoff has officially been confirmed, as Rip star Cole Hauser opens up about Sheridan and the franchise.
+---------
+
+# Prime Video's Hit Action Series Is So Good, It's Already Renewed For 2 More Seasons
+
+TV, Masked Recs, Prime Video
+
+Fri, 15 May 2026 18:33:21 GMT
+
+https://screenrant.com/reacher-prime-video-renewed-more-seasons/
+
+Prime Video's iconic action thriller adaptation will last at least two more seasons after winning over both critics and a massive audience.
+---------
+
+# 8 Bleach Bankai That Deserved More Screen Time
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Fri, 15 May 2026 19:16:13 GMT
+
+https://www.cbr.com/bleach-bankai-that-deserved-more-screen-time/
+
+These Bankai showcased incredible potential but disappeared too quickly in Bleach.
+---------
+
+# Crunchyroll Anime Awards 2026: Date, Time, How to Watch
+
+Anime, Crunchyroll, Crunchyroll Premium
+
+Fri, 15 May 2026 19:16:13 GMT
+
+https://www.cbr.com/crunchyroll-anime-awards-2026-date-time-how-to-watch/
+
+The 2026 Crunchyroll Anime Awards event is set to take place in late May. Here's what fans need to know in order to tune in and follow along.
+---------
+
+# Bob Saget's 8-Season Hit Sitcom Returns as a PVOD Streaming Hit 31 Years After Finale
+
+TV, Full House (US)
+
+Fri, 15 May 2026 19:00:13 GMT
+
+https://www.cbr.com/full-house-returns-pvod-may-2026/
+
+PVOD viewers are learning that everywhere you look, there's a hand to hold onto.
+---------
+
+# The Punisher: One Last Kill's Frank Castle Outshines John Wick
+
+TV, The Punisher: One Last Kill, John Wick, Marvel Cinematic Universe
+
+Fri, 15 May 2026 19:00:13 GMT
+
+https://www.cbr.com/the-punisher-one-last-kill-john-wick-replacement/
+
+As he is one of the most unstoppable action heroes of his time, it's no wonder Disney has introduced its own version of Keanu Reeves' John Wick.
+---------
+
+# 8 Reasons It's Hard To Watch 'Escape From New York' Today
+
+Movies, Escape From New York
+
+Fri, 15 May 2026 19:00:13 GMT
+
+https://www.cbr.com/escape-from-new-york-hard-to-watch-list/
+
+Does John Carpenter's Escape from New York still offer pure escapism today?
+---------
+
+# It's Officially The End of an Era for The Lord of the Rings After 25 Years
+
+Movies, The Lord of the Rings, The Hobbit, The Lord of the Rings: The Hunt for Gollum
+
+Fri, 15 May 2026 19:00:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-peter-jackson-director-end-of-an-era/
+
+The upcoming Hunt for Gollum will be the first LOTR movie beyond Peter Jackson
+---------
+
+# Good Omens Season 3: Crowley & Aziraphale's Kiss Controversy, Explained
+
+TV, Good Omens, Prime Video
+
+Fri, 15 May 2026 18:47:14 GMT
+
+https://www.cbr.com/good-omens-season-3-aziraphale-crowley-kiss-controversy-explained/
+
+Good Omens fans have been eager to see what happens to Crowley and Aziraphale, but Season 3 subverts expectations in the worst way.
+---------
+
+# New Lord of the Rings Movie Confirms Surprising Connection to Joaquin Phoenix's Joker
+
+Movies, The Lord of the Rings: The Hunt for Gollum, Joker, The Lord of the Rings
+
+Fri, 15 May 2026 18:19:24 GMT
+
+https://www.cbr.com/lord-of-the-rings-hunt-for-gollum-joaquin-phoenix-joker/
+
+The next Lord of the Rings movie has a surprising inspiration.
+---------
+
+# 10 Best Anime Sidekicks of All Time
+
+Anime, shonen anime
+
+Fri, 15 May 2026 18:15:13 GMT
+
+https://www.cbr.com/best-anime-sidekicks-all-time/
+
+The most impactful anime sidekick characters shape their series with support and loyalty.
+---------
+
+# Princess Mononoke Reveals New Cast Photos in Full Costume Ahead of Show Premiere
+
+Anime, Studio Ghibli, Princess Mononoke
+
+Fri, 15 May 2026 18:00:13 GMT
+
+https://www.cbr.com/studio-ghibli-princess-mononoke-super-kabuki-costume-reveal/
+
+The first official cast images for Princess Mononoke's upcoming adaptation, scheduled to debut this July, are finally revealed.
+---------
+
+# 8 Great Sci-Fi TV Shows With Plot Holes Too Big To Ignore
+
+TV, Sci-Fi, Westworld, Lost, The X-Files
+
+Fri, 15 May 2026 19:08:13 GMT
+
+https://collider.com/sci-fi-shows-with-plot-holes/
+
+Explore sci-fi shows that, despite their captivating storylines, are riddled with plot holes that fans can't help but notice, from Lost to Westworld.
+---------
+
+# The All-American Rejects' Nick Wheeler Talks 'Sandbox,' the Band's First Album in Over a Decade [Exclusive]
+
+Music Features, Music, The All American Rejects: Tournado, Rock, Billboard Hot 100
+
+Fri, 15 May 2026 19:05:40 GMT
+
+https://collider.com/the-all-american-rejects-sandbox-album-release-interview/
+
+In an exclusive interview, The All-American Rejects' guitarist Nick Wheeler talks about the band's first album in over a decade, Sandbox, and how the song that inspired the album brought them back together.
+---------
+
+# FX's 10/10 'Tulsa King' Rival Officially Recruits a 'Westworld' Favorite
+
+TV News, The Lowdown, Ethan Hawke, Martha Plimpton, Clifton Collins Jr.
+
+Fri, 15 May 2026 18:33:46 GMT
+
+https://collider.com/fx-tulsa-king-replacement-the-lowdown-season-2-cast-martha-plimpton-clifton-collins-jr/
+
+Season 2 of FX's Tulsa King replacement, The Lowdown, has added stars from The Goonies and Westworld to the cast.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Spin-Off Is in Dangerous Territory Ahead of Season 1 Finale [Exclusive]
+
+TV News, Marshals, Taylor Sheridan, Luke Grimes, Yellowstone
+
+Fri, 15 May 2026 18:30:13 GMT
+
+https://collider.com/marshals-season-1-episode-12-sneak-peek-cbs/
+
+CBS has released a new sneak peek at Marshals Season 1, Episode 12, proving that Luke Grimes is better off as a U.S. marshal than a rancher.
+---------
+
+# ‘Avatar: The Last Airbender’ Smashes Back Into Action With Epic New Season 2 Image [Exclusive]
+
+TV News, Avatar: The Last Airbender, Netflix, Collider Exclusive Preview
+
+Fri, 15 May 2026 18:00:13 GMT
+
+https://collider.com/avatar-the-last-airbender-live-action-season-2-new-image-netflix-release-date/
+
+Netflix has released a new image from Avatar: The Last Airbender Season 2 before the live-action show returns on June 25.
+---------
+
+# James Cameron Hints at Potential Delay for 'Avatar 4'
+
+Movie News, Avatar 4, James Cameron
+
+Fri, 15 May 2026 19:15:20 GMT
+
+https://movieweb.com/avatar-4-james-cameron-budget-production-cuts/
+
+James Cameron provided an update on 'Avatar 4' that may indicate the film could be delayed from its 2029 release
+---------
+
+# 'In the Grey' Ending, Explained: What Happens During the Island Escape
+
+Features, In the Grey, Guy Ritchie
+
+Fri, 15 May 2026 19:10:19 GMT
+
+https://movieweb.com/in-the-grey-2026-ending-explained/
+
+Guy Ritchie's new action thriller features a cast of his frequent collaborators manipulating international powers to their will.
+---------
+
+# Lucasfilm's Dave Filoni Explains His Plans for 'Star Wars' Big-Screen Future
+
+Movie News, Star Wars, Dave Filoni
+
+Fri, 15 May 2026 19:02:48 GMT
+
+https://movieweb.com/star-wars-future-movies-dave-filoni/
+
+The filmmaker confirmed that a compelling story is more important than annual expectations.
+---------
+
+# Jason Statham Action Thriller 'Viva la Madness' From Guy Ritchie Wraps Production
+
+Movie News, Viva La Madness, Jason Statham, Guy Ritchie, Action
+
+Fri, 15 May 2026 18:11:55 GMT
+
+https://movieweb.com/jason-stathams-new-guy-ritchie-action-thriller-hits-major-milestone/
+
+Jason Statham and Guy Ritchie's new action thriller, 'Viva La Madness,' is an unofficial sequel to 'Layer Cake.'
+---------
+
+# The Reason Richard Gere Was Banned From the Oscars & Blacklisted From Hollywood
+
+Features, Richard Gere, Quote
+
+Fri, 15 May 2026 18:00:18 GMT
+
+https://movieweb.com/richard-gere-banned-oscars-hollywood/
+
+Richard Gere was banned from the Oscars after his appearance in 1993, and he has talked about how it affected his movie career.
+---------
+
+# Are 'The Lord of the Rings' Extended Editions That Different & Worth It?
+
+Features, The Lord of the Rings, The Hobbit
+
+Fri, 15 May 2026 18:00:18 GMT
+
+https://movieweb.com/lord-of-the-rings-how-different-are-the-extended-editions/
+
+The extended editions of 'The Lord of the Rings' have a reputation for being better than the theatrical. How different are they, really?
+---------
+
 # Christian Bale's R-Rated Sci-Fi Movie Officially Releases On Streaming Next Week After $80M Box Office Disaster
 
 Movies, Masked Recs
