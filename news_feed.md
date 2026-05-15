@@ -1,3 +1,300 @@
+# Claire’s White Hair In Outlander Season 8 Delivers On A 7-Year-Old Mystery
+
+Streaming TV, Outlander, Outlander - Season 8
+
+Fri, 15 May 2026 22:45:20 GMT
+
+https://screenrant.com/outlander-season-8-claire-white-hair-mystery-solved/
+
+Claire undergoes a transformation in the final season of Outlander, and it all ties back to a moment shown on screen 7 years earlier in season 4.
+---------
+
+# Marvel's Runaways Debut Official Villain Costumes
+
+Comics, Marvel
+
+Fri, 15 May 2026 22:30:22 GMT
+
+https://screenrant.com/runaways-redesign-new-costumes-what-if/
+
+Run to the dark.
+---------
+
+# 10 Classic '80s TV Shows That Need A Reboot
+
+Classic TV
+
+Fri, 15 May 2026 22:30:22 GMT
+
+https://screenrant.com/1980s-tv-shows-need-reboot/
+
+There's never been more television to catch up on, yet these ten shows from 40 years ago are still begging to come back better than ever.
+---------
+
+# Prime Video's Horror Anthology Lore Is 'Black Mirror Meets Blair Witch Project'
+
+Classic TV, Masked Recs
+
+Fri, 15 May 2026 22:17:19 GMT
+
+https://screenrant.com/lore-prime-video-horror-anthology-found-footage-show/
+
+Prime Video's Lore is a chilling blend of horror and documentary, exploring the real-life origins of scary stories we've been telling for centuries.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (May 16-17)
+
+Movies, Prime Video, Recommendation
+
+Fri, 15 May 2026 22:10:44 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-may-16/
+
+The best Prime Video movies to watch this weekend include big action films, one with Jason Statham and the other with two stars, and a franchise hit.
+---------
+
+# Forza Horizon 6: 10 Fastest Cars
+
+Gaming, Forza Horizon 6, Forza, Triple-A Games, PC
+
+Fri, 15 May 2026 22:09:57 GMT
+
+https://screenrant.com/forza-horizon-6-fastest-cars/
+
+There's a lot of different reasons to like Forza Horizon 6, but there's still no better feeling in-game than simply going as fast as you can.
+---------
+
+# Halo Officially Enters A Brand-New Era
+
+Gaming, Halo, Triple-A Games, PC
+
+Fri, 15 May 2026 22:00:22 GMT
+
+https://screenrant.com/halo-officially-enters-a-brand-new-era/
+
+Halo is turning over a new leaf this year, and after a long period of both anticipation and criticism, it's finally manifested in a tangible sense.
+---------
+
+# Spider-Man: Brand New Day Can Officially Break A 14-Year Negative MCU Streak
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 15 May 2026 22:00:22 GMT
+
+https://screenrant.com/spider-man-brand-new-day-hulk-full-transformation-scene/
+
+Spider-Man: Brand New Day includes many characters from the wider MCU, one of whom could help fix a 14-year-long negative streak in the MCU.
+---------
+
+# 7 Near-Perfect Stephen King Stories You Can Read in 15 Minutes
+
+Books, Stephen King
+
+Fri, 15 May 2026 22:00:22 GMT
+
+https://screenrant.com/best-stephen-king-short-stories-horror-sci-fi/
+
+The perfect way to make your lunch break terrifying.
+---------
+
+# That Time the Partridge Family Visited an X-Rated Movie Set
+
+Comics, The Partridge Family, CSBG, Comic Book Legends Revealed
+
+Fri, 15 May 2026 22:36:41 GMT
+
+https://www.cbr.com/partridge-family-xrated-movie-set/
+
+In a brand-new Comic Book Legends Revealed, find out whether there was actually a Partridge Family comic where they visited an X-rated movie set
+---------
+
+# In the Grey Review: Guy Ritchie's Action Thriller Is Stylish, Fun & Messy
+
+Movies, In the Grey, Action, guy ritchie
+
+Fri, 15 May 2026 22:33:33 GMT
+
+https://www.cbr.com/in-the-grey-review/
+
+Guy Ritchie's In the Grey has thrilling action and a great cast, but its clunky setup and thin characters hold it back.
+---------
+
+# 10 Games That Prove Horror Games Don't Need Jump Scares
+
+Games, Horror, Alien, Silent Hill, Video Games
+
+Fri, 15 May 2026 22:15:13 GMT
+
+https://www.cbr.com/horror-games-do-not-need-jump-scares/
+
+Real dread needs no jump scares — just silence, atmosphere and stories that haunt, like a moving shadow in the corner at bedtime.
+---------
+
+# GTA 6 Price Leak Officially Has Gamers Nervous
+
+Games, gta, Grand Theft Auto
+
+Fri, 15 May 2026 22:05:33 GMT
+
+https://www.cbr.com/grand-theft-auto-6-price-leak-gamers-nervous/
+
+A possible leak for the price of Grand Theft Auto VI has some gamers feeling like the game will be too expensive.
+---------
+
+# HBO Max's Dune Is Officially the Anti-Star Wars
+
+Movies, Dune, Dune: Part Two, Star Wars
+
+Fri, 15 May 2026 22:00:15 GMT
+
+https://www.cbr.com/dune-officially-anti-star-wars/
+
+Dune inspired George Lucas to make Star Wars, and decades later, the modern Dune movies exist as the polar opposite to the galaxy far, far away.
+---------
+
+# 20 Strongest Pokémon in the Anime, Ranked
+
+Anime, Pokemon
+
+Fri, 15 May 2026 22:00:15 GMT
+
+https://www.cbr.com/strongest-pokemon-in-anime/
+
+From Zekrom to Arceus, some of the most powerful Pokémon have made appearances throughout the anime series.
+---------
+
+# Netflix Officially Welcomes a ‘Firefly’ Icon’s 10/10 Sci-Fi Series on June 6
+
+TV News, Resident Alien, Firefly, Alan Tudyk, Netflix
+
+Fri, 15 May 2026 22:45:13 GMT
+
+https://collider.com/alan-tudyk-sci-fi-series-resident-alien-season-4-netflix-release-date-june-6-2026/
+
+The fourth and final season of Resident Alien is set to release on Netflix on this June. Read on for more details.
+---------
+
+# 'Doctor Who's Reboot Is Already Falling Into the Franchise’s Oldest Mistake
+
+TV Features, Doctor Who / Whoniverse, Doctor Who, BBC
+
+Fri, 15 May 2026 22:34:14 GMT
+
+https://collider.com/doctor-who-franchise-reboot-rumors-oldest-franchise-mistake/
+
+A potential Doctor Who reboot could create the exact problems the long-running sci-fi franchise was originally designed to avoid.
+---------
+
+# Disney’s $220 Million Sci-Fi Bomb Officially Marks the End of an Era
+
+Movie News, TRON: Ares, Jared Leto, TRON: Legacy, Sci-Fi
+
+Fri, 15 May 2026 22:30:14 GMT
+
+https://collider.com/disney-sci-fi-bomb-tron-ares-streaming-drop-may-2026/
+
+Disney's $220 million sci-fi bomb, Tron: Ares, officially marks the end of the Tron franchise on the big screen as it loses its hold on streaming.
+---------
+
+# Netflix's Remake of a 55-Year-Old Sci-Fi Thriller Arrives on July 2
+
+TV News, Netflix, Sci-Fi, Thriller, Crime
+
+Fri, 15 May 2026 22:15:14 GMT
+
+https://collider.com/netflix-sci-fi-thriller-remake-human-vapor-trailer-release-date-july-2-2026-how-to-watch/
+
+Netflix's 8-part sci-fi thriller about an antihero who turns to gas sets premiere date and unveils first trailer. Get all the details here.
+---------
+
+# New 'Sonic the Hedgehog 4' First Look Officially Reveals the Sci-Fi Franchise's Scariest Villain Yet
+
+Movie News, Sonic the Hedgehog, Sonic the Hedgehog 2, Sonic the Hedgehog 3, Sonic the Hedgehog 4
+
+Fri, 15 May 2026 22:14:28 GMT
+
+https://collider.com/jim-carrey-sci-fi-sequel-sonic-the-hedgehog-4-first-look-metal-sonic/
+
+A new behind-the-scenes look at Sonic the Hedgehog 4 reveals the Blue Blur's scariest villain yet. Read on for more.
+---------
+
+# Apple TV’s ‘Family Plan 3’ Finally Gets an Update as Hit Action Series Takes Over Streaming [Exclusive]
+
+Movie News, Michelle Monaghan, The Family Plan, The Family Plan 2, Mark Wahlberg
+
+Fri, 15 May 2026 22:00:15 GMT
+
+https://collider.com/apple-tv-the-family-plan-3-update-michelle-monaghan/
+
+While The Family Plan and The Family Plan 2 dominate Apple TV charts, Michelle Monaghan discussed the potential of a third installment.
+---------
+
+# Every James Bond Pre-Title Sequence of the 60s, Ranked
+
+Movie, James Bond, 007, Goldfinger, Sean Connery
+
+Fri, 15 May 2026 22:00:15 GMT
+
+https://collider.com/james-bond-movie-pre-title-sequences-60s-ranked/
+
+From Goldfinger to From Russia with Love to You Only Live Twice to On Her Majesty's Secret Service, every Bond pre-title sequence of the 60s, ranked
+---------
+
+# 32 Must-Watch Series That Will Be Your Perfect Summer Binges
+
+TV, Collider Exclusive Preview, The Vampire Lestat, Every Year After, The Walking Dead: Dead City
+
+Fri, 15 May 2026 22:00:15 GMT
+
+https://collider.com/tv-summer-preview-exclusive-images-sneak-peeks-the-vampire-lestat-dark-matter-every-year-after/
+
+Discover the top 32 TV series to watch this summer, featuring exclusive previews and premieres. From action to comedy, find your perfect show!
+---------
+
+# 'Obsession's Terrifying Twist Isn't Possession — It's Something Much Darker
+
+Exclusives, Obsession, Curry Barker, Inde Navarrette, Horror
+
+Fri, 15 May 2026 22:00:15 GMT
+
+https://collider.com/obsession-curry-barker-pearl-midsommar-possession-explained/
+
+Obsession director Curry Barker shares the film's origins and the process behind crafting the mysterious One Wish Willow in a new interview.
+---------
+
+# 10 Most Important Superhero Movies That Define the Genre
+
+Movie, Superhero, The Dark Knight, Iron Man, The Incredibles
+
+Fri, 15 May 2026 21:59:14 GMT
+
+https://collider.com/most-important-superhero-movies-define-genre/
+
+From Christopher Nolan's masterpiece The Dark Knight to the Pixar classic The Incredibles, these superhero movies are the most important in the genre.
+---------
+
+# Henry Cavill & Guy Ritchie's New Action Thriller 'In the Grey' Just Released in Theaters
+
+Features, In the Grey, Henry Cavill, Action
+
+Fri, 15 May 2026 22:00:21 GMT
+
+https://movieweb.com/in-the-grey-henry-cavill-action-in-theaters/
+
+Henry Cavill and Guy Ritchie's new action movie 'In the Grey' is now in theaters, and it holds a good user score on Rotten Tomatoes.
+---------
+
+# 7 Classic Disney Characters You Had No Idea Were Modeled on Real People
+
+Movies, Disney, Disney+, Animation
+
+Fri, 15 May 2026 22:00:21 GMT
+
+https://movieweb.com/classic-disney-characters-based-on-real-people/
+
+Over the years, Disney's animated movies have introduced iconic characters, but did you know that some of them are inspired by real-life figures?
+---------
+
 # Alex Ross' New Avengers Vs Justice League Art Revealed
 
 Marvel Comics, The Avengers, Justice League, Marvel, DC
