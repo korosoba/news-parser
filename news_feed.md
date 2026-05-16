@@ -1,3 +1,278 @@
+# Whether Claire & Jamie Survived Outlander Series Finale Addressed By Showrunner
+
+TV, Outlander, Outlander - Season 8
+
+Sat, 16 May 2026 18:51:47 GMT
+
+https://screenrant.com/outlander-season-8-ending-jamie-claire-fate-matthew-b-roberts/
+
+After a shocking turn of events in the Outlander series finale, showrunner Matthew B. Roberts addresses whether Claire and Jamie survived.
+---------
+
+# New James Bond Must Satisfy Key Elements & Appeal As Auditions Begin For Next 007
+
+Movies, James Bond, Bond 26
+
+Sat, 16 May 2026 18:36:23 GMT
+
+https://screenrant.com/james-bond-26-audition-requirements-nina-gold/
+
+With the James Bond auditions now underway, a key creative figure has shared new details about the process and what they are looking for.
+---------
+
+# X-Men Officially Reveals New Redesign and Codename for Founding Member
+
+Comics, X-Men
+
+Sat, 16 May 2026 18:35:39 GMT
+
+https://screenrant.com/x-men-founding-hero-redesign-angel-new-codename-powers/
+
+Meet X-Men's Blood Angel.
+---------
+
+# John Dutton’s Replacement Could Learn The Truth About Yellowstone Season 5’s Deaths
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 16 May 2026 18:30:19 GMT
+
+https://screenrant.com/dutton-ranch-beulah-jackson-truth-john-jamie-yellowstone-death/
+
+Beth and Rip are hundreds of miles away from Montana in Dutton Ranch, but the truth they buried about John and Jamie's deaths may be exposed.
+---------
+
+# Why Prime Video's #1 Show Based On Bestselling Book Is Dominating Worldwide Streaming Charts
+
+Streaming TV, Masked Recs
+
+Sat, 16 May 2026 18:17:24 GMT
+
+https://screenrant.com/off-campus-prime-video-worldwide-streaming-charts/
+
+Prime Video's latest acclaimed book adaptation has stormed the streaming charts, capturing a worldwide audience mere days after its premiere.
+---------
+
+# Xbox Has Officially Changed Its Name In The Weirdest Way
+
+Gaming, Xbox, Triple-A Games
+
+Sat, 16 May 2026 18:14:26 GMT
+
+https://screenrant.com/xbox-official-name-change-rebrand/
+
+Xbox rebranding is proceeding at a rapid pace, and the latest fan-influenced change is a lot stranger than updating the logo or quitting ad campaigns.
+---------
+
+# Mortal Kombat II Box Office Surges Past The Previous Installment's Entire Run In Just 10 Days
+
+Movies, Box Office, Mortal Kombat II, Mortal Kombat
+
+Sat, 16 May 2026 18:06:18 GMT
+
+https://screenrant.com/mortal-kombat-2-box-office-week-2-domestic-report/
+
+After just two weekends, the video game movie Mortal Kombat II rushes past the all-time worldwide box office gross of its 2021 predecessor.
+---------
+
+# HBO's Upcoming Fantasy Show Marks The Beginning Of A New Era
+
+TV, Masked Recs, HBO
+
+Sat, 16 May 2026 18:05:19 GMT
+
+https://screenrant.com/harry-potter-show-hbo-new-era-streaming/
+
+HBO adapting its highly anticipated Harry Potter show's release to the streaming era's demands signals a seismic shift in the network's strategy.
+---------
+
+# Cyberpunk 2077 Unveils Official New 5th Anniversary Release
+
+Gaming
+
+Sat, 16 May 2026 18:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-5th-anniversary-collectors-set-preorders/
+
+5 years on, Cyberpunk 2077 has gone from a disaster to a well-loved RPG, and CD Projekt Red is celebrating its success with a new release.
+---------
+
+# Netflix's 100% Rotten Tomatoes Thriller Just Beat Game of Thrones at Its Own Game
+
+TV, The Chestnut Man, Game Of Thrones, Thriller
+
+Sat, 16 May 2026 18:30:13 GMT
+
+https://www.cbr.com/netflix-thriller-the-chestnut-man-beat-game-of-thrones/
+
+One of Netflix's most critically-acclaimed crime thrillers has returned for a shocking second season that pulls off Games of Thrones' best trick.
+---------
+
+# James Bond Casting Director Confirms the 1 Requirement for New 007 Actor
+
+Movies, James Bond
+
+Sat, 16 May 2026 18:27:42 GMT
+
+https://www.cbr.com/james-bond-casting-director-actor-requirement/
+
+The new James Bond saga is officially looking for the new 007 agent.
+---------
+
+# The Boys Creator Spoils Homelander's Fate 4 Days Ahead of Finale
+
+TV, The Boys
+
+Sat, 16 May 2026 18:18:31 GMT
+
+https://www.cbr.com/the-boys-eric-kripke-spoils-homelander-fate/
+
+An unfortunate slip of the tongue has spoiled the series finale of The Boys.
+---------
+
+# Takopi's Original Sin Is One of Anime’s Cruelest Emotional Traps
+
+Anime, Takopi's Original Sin
+
+Sat, 16 May 2026 18:15:12 GMT
+
+https://www.cbr.com/takopis-original-sin-anime-emotional-trap/
+
+Takopi's Original Sin draws viewers in with warmth before revealing something far more devastating underneath.
+---------
+
+# Forgotten Gundam Movie Returns With New Army-Building Gunpla Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam F91, merchandise
+
+Sat, 16 May 2026 18:00:14 GMT
+
+https://www.cbr.com/gundam-f91-denan-zon-gunpla/
+
+The main steampunk-inspired grunt unit from the Mobile Suit Gundam F91 anime movie is coming back in the form of a Reborn-One Hundred model kit.
+---------
+
+# 10 Marvel Characters Who Triggered Major Comic Book Events
+
+Comics, Marvel Comics
+
+Sat, 16 May 2026 18:00:14 GMT
+
+https://www.cbr.com/marvel-characters-who-started-major-comic-book-events/
+
+Even Marvel heroes are to blame for some of the comic book's most cataclysmic events.
+---------
+
+# 8 Most Universally Acclaimed Sci-Fi Movies of All Time, Ranked
+
+Movie, Blade Runner, 2001: A Space Odyssey, The Empire Strikes Back, Mad Max: Fury Road
+
+Sat, 16 May 2026 18:53:13 GMT
+
+https://collider.com/most-universally-acclaimed-sci-fi-movies-all-time-ranked/
+
+The most universally acclaimed sci-fi movies ever made include masterpieces like Blade Runner, Eternal Sunshine of the Spotless Mind, and Metropolis.
+---------
+
+# 'Rivals' Aidan Turner and Victoria Smurfit Pick Which of the O'Hara Kids Have the Worst Love Interest
+
+Interviews, Rivals, Victoria Smurfit, Aidan Turner, Hulu
+
+Sat, 16 May 2026 18:38:14 GMT
+
+https://collider.com/rivals-season-2-aidan-turner-victoria-smurfit-declan-maud-relationship-interview/
+
+Aidan Turner and Victoria Smurfit delve into Declan and Maud, their latest reunion, and the challenges they face in Rivals Season 2.
+---------
+
+# Gerard Butler’s Long-Awaited Sci-Fi Follow-Up Is Taking Over HBO Max
+
+Movie News, Gerard Butler, Greenland 2: Migration, Sci-Fi, HBO Max
+
+Sat, 16 May 2026 18:30:13 GMT
+
+https://collider.com/gerard-butler-sci-fi-sequel-greenland-2-migration-streaming-hit-hbo-max-may-2026/
+
+Gerard Butler's 2026 sci-fi sequel to Greenland is one of the most popular movies on HBO Max. Here's what you should know.
+---------
+
+# 25 Years Later, This Cult Classic Time-Travel Sci-Fi Movie Is So Good, You Need To Rewatch It Multiple Times
+
+Movie Features, Donnie Darko, Jake Gyllenhaal, Richard Kelly, Newmarket Films
+
+Sat, 16 May 2026 18:28:12 GMT
+
+https://collider.com/donnie-darko-cult-classic-time-travel-sci-fi-movie-rewatch-multiple-times/
+
+The 2001 sci-fi movie Donnie Darko, starring Jake Gyllenhaal, has only gotten better with age.
+---------
+
+# 8 Single-Season Action TV Masterpieces
+
+TV, Action, Interior Chinatown, Firefly, Watchmen
+
+Sat, 16 May 2026 18:26:13 GMT
+
+https://collider.com/best-action-tv-shows-one-season-list/
+
+The Brothers Sun, Firefly, Watchmen, Bodyguard, Interior Chinatown, Moon Knight, and more make up our list of single-season action TV masterpieces.
+---------
+
+# Apple TV’s Only Sci-Fi Show Better Than ‘Pluribus’ Is a 10/10 Weekend Binge
+
+TV News, Severance, Apple TV, Pluribus, Sci-Fi
+
+Sat, 16 May 2026 18:00:15 GMT
+
+https://collider.com/apple-tv-sci-fi-series-severance-better-than-pluribus-streaming-success-may-2026/
+
+Apple TV's only sci-fi series that's better than Pluribus is still being binged around the world, according to streaming charts.
+---------
+
+# 10 Shows That Prove HBO Max Is the Best Streamer of All Time
+
+TV, HBO Max, The Sopranos, Big Little Lies, Veep
+
+Sat, 16 May 2026 17:58:14 GMT
+
+https://collider.com/hbo-shows-best-streamer-all-time/
+
+Big Little Lies, Barry, Veep, The Sopranos, True Detective, and more make up our list of shows that prove HBO is the best streamer of all time.
+---------
+
+# Every 'Mortal Kombat II' Character and Cameo From the Video Games
+
+Movie Lists, Mortal Kombat II
+
+Sat, 16 May 2026 18:46:18 GMT
+
+https://movieweb.com/every-mortal-kombat-ii-character-cameo-from-the-video-games/
+
+The long-awaited sequel doesn't hold back in expanding the roster of the first movie.
+---------
+
+# Why 'Top Gun' Has a Rotten Score on Rotten Tomatoes
+
+Features, Top Gun
+
+Sat, 16 May 2026 18:43:30 GMT
+
+https://movieweb.com/top-gun-low-rotten-score/
+
+'Top Gun's Rotten Tomatoes score doesn't match the movie's popularity and legacy. So what happened?
+---------
+
+# Brendan Fraser's Highly-Anticipated World War II Movie 'Pressure' Arrives in 3 Weeks
+
+Features, Brendan Fraser
+
+Sat, 16 May 2026 18:00:19 GMT
+
+https://movieweb.com/brendan-fraser-wwii-movie-pressure-coming-soon/
+
+Brendan Fraser's next big picture could win him another Oscar.
+---------
+
 # Victor’s OG Warning About Christopher Has Dark Foreshadowing For Jade, Teases From Season 4 Star
 
 TV, From, FROM - Season 4
