@@ -1,3 +1,278 @@
+# 37 Years Later, HBO's Near-Perfect 7-Part Horror Is Still One Of TV's Greatest Anthologies
+
+TV, HBO, Masked Recs
+
+Sat, 16 May 2026 13:04:20 GMT
+
+https://screenrant.com/tales-from-the-crypt-hbo-horror-anthology-aged-well/
+
+In an era of sprawling fictional universes, HBO's iconic horror anthology proved that an entirely different sort of story works better in horror.
+---------
+
+# Upcoming Detective Series Based On 104-Year-Old Novel Gives Agatha Christie The Sherlock Treatment
+
+TV, Agatha Christie, Sherlock
+
+Sat, 16 May 2026 13:02:18 GMT
+
+https://screenrant.com/agatha-christie-tommy-and-tuppence-modern-day/
+
+This unexpected choice to make Agatha Christie's Tommy & Tuppence more like BBC's Sherlock could breathe new life into the mystery writer's work.
+---------
+
+# Nemesis Creators Have Big Plans For Netflix's Hit New Crime Thriller Series
+
+TV
+
+Sat, 16 May 2026 13:00:20 GMT
+
+https://screenrant.com/netflix-nemesis-season-2-plans-courtney-kemp-tani-marole/
+
+Courtney Kemp and Tani Marole, co-creators of Netflix's Nemesis, reveal their plans to expand the crime thriller series beyond its original limited series format, exploring the ongoing rivalry between characters Isaiah Stiles and Coltrane Wilder.
+---------
+
+# 8 Crime Novels Fans Of The Wire Have To Read ASAP
+
+Books, The Wire
+
+Sat, 16 May 2026 13:00:20 GMT
+
+https://screenrant.com/crime-novels-the-wire-pelecanos-lehane-price/
+
+Crime novels from The Wire's top writers.
+---------
+
+# Gohan Is a Better Father Than Goku Ever Was And Dragon Ball's Best Movie Proves It
+
+Anime, Dragon Ball, Dragon Ball Super: Super Hero
+
+Sat, 16 May 2026 13:00:20 GMT
+
+https://screenrant.com/dragon-ball-super-gohan-best-dad-not-goku/
+
+Gohan Is a Better Father Than Goku Ever Was And Dragon Ball's Best Movie Proves It
+---------
+
+# May 23 Is Going To Be A Big Day For Star Wars Battlefront Fans
+
+Gaming, Star Wars, Triple-A Games, Star Wars Battlefront 2 (2017)
+
+Sat, 16 May 2026 13:00:20 GMT
+
+https://screenrant.com/star-wars-battlefront-2-may-23-event/
+
+Star Wars Battlefront II has had its player counts fluctuate quite rapidly in the last couple of years, and it is set to spike once more this month.
+---------
+
+# Fallout: Battle For Boston Officially Launches July 2026
+
+Gaming, Fallout, Fallout 4
+
+Sat, 16 May 2026 13:00:20 GMT
+
+https://screenrant.com/fallout-battle-for-boston-july-2026/
+
+A new Fallout game launches this summer, sending players back to the post-war Boston of Fallout 4 and reuniting them with some familiar faces.
+---------
+
+# Marvel Legend Stan Lee Called This 400 Year Old Writer His #1 Creative Influence
+
+Comics, Marvel, Stan Lee
+
+Sat, 16 May 2026 12:56:47 GMT
+
+https://screenrant.com/stan-lee-shakespeare-biggest-influence/
+
+Stan Lee's greatest literary influence, explained.
+---------
+
+# Sylvester Stallone's Blunt Reaction To The Expendables 4's Failure: "A F****** Disaster!"
+
+Movies, Expend4bles, The Expendables, Sylvester Stallone
+
+Sat, 16 May 2026 12:55:19 GMT
+
+https://screenrant.com/expendables-4-sylvester-stallone-reaction-dolph-lundgren/
+
+Sylvester Stallone's hilariously blunt response to the failure of his latest action sequel has been revealed, and proves the film was always doomed.
+---------
+
+# 30 Best Family-Friendly Cartoons on Netflix for All Ages to Enjoy
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Sat, 16 May 2026 12:30:20 GMT
+
+https://screenrant.com/netflix-cartoons-adults-and-kids-love/
+
+When it comes to cartoons, they aren't just for kids anymore. Netflix understands that all too well, as proven with these fun cartoons for all ages
+---------
+
+# Alan Ritchson's $716M Action Blockbuster Returns to the Charts Amid TV Show Announcement
+
+Movies, Fast X, The Fast and the Furious
+
+Sat, 16 May 2026 13:00:12 GMT
+
+https://www.cbr.com/alan-ritchson-fast-furious-fast-x-pvod-success-may-2026/
+
+Ritchson stole the show in the blockbuster action franchise's latest installment, and it's climbing the charts after news of a TV series on the way.
+---------
+
+# The 10 Greatest Sci-Fi Movie Climaxes, Ranked
+
+Movies, Sci-Fi, Star Wars, Christopher Nolan
+
+Sat, 16 May 2026 13:00:12 GMT
+
+https://www.cbr.com/greatest-sci-fi-movie-climaxes-ranked-list/
+
+These sci-fi movie finales are the absolute best climaxes in the history of the legendary genre.
+---------
+
+# Bilbo's Greatest Line is the Funniest Quote in Lord of the Rings History
+
+Movies, The Lord of the Rings, Fantasy
+
+Sat, 16 May 2026 12:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-funniest-quote-bilbo-best-line/
+
+This humorous Bilbo Baggins line from The Lord of the Rings: The Fellowship of the Ring hid a deeper meaning beneath its surface.
+---------
+
+# 40 Years Ago Today, Top Gun Officially Started a New Blockbuster Era
+
+Movies, tom cruise, top gun, Top Gun: Maverick
+
+Sat, 16 May 2026 12:00:12 GMT
+
+https://www.cbr.com/top-gun-tom-cruise-started-new-blockbuster-era/
+
+40 years ago to the day, Tom Cruise's career changed thanks to the introduction and impact of Top Gun.
+---------
+
+# Peacock Officially Says Goodbye to M. Night Shyamalan's Most-Hated Movie
+
+Movie News, M. Night Shyamalan, The Last Airbender, Peacock, Fantasy
+
+Sat, 16 May 2026 12:45:13 GMT
+
+https://collider.com/m-night-shyamalan-most-hated-movie-avatar-the-last-airbender-leaving-streaming-peacock-june-2026/
+
+The most hated movie of M. Night Shyamalan's career, The Last Airbender, is leaving its streaming home soon. Find out when.
+---------
+
+# Prime Video’s Cancelled 3-Part Fantasy Epic Is Still the Perfect Weekend Binge
+
+TV News, The Wheel of Time, Prime Video, Fantasy, Rosamund Pike
+
+Sat, 16 May 2026 12:30:13 GMT
+
+https://collider.com/prime-video-best-fantasy-series-the-wheel-of-time-streaming-success-may-2026/
+
+Prime Video's best fantasy series, The Wheel of Time, continues to prove why it shouldn't have been cancelled as a massive streaming hit.
+---------
+
+# 29 Years Later, This Stellar Performance in a Divisive Thriller Is Still a Masterpiece
+
+Movie Features, Billy Bob Thornton, Oliver Stone, U Turn, Sean Penn
+
+Sat, 16 May 2026 12:21:14 GMT
+
+https://collider.com/billy-bob-thornton-movies-u-turn-oliver-stone-thriller-streaming-free-tubi/
+
+Landman star Billy Bob Thornton elevates Oliver Stone's divisive crime thriller U Turn with his freaky, funny, sleazy performance.
+---------
+
+# 14 Years Later, This Crime Drama Series Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Leverage, TNT, Prime Video, Aldis Hodge
+
+Sat, 16 May 2026 12:03:13 GMT
+
+https://collider.com/leverage-crime-drama-series-rewatch-multiple-times/
+
+The underrated 2008 TNT series Leverage follows a group of criminals use their talents for good in thrilling heists and character-driven storylines.
+---------
+
+# Quentin Tarantino Says This American Classic Filmmaker Made One of the "Worst Movies Ever"
+
+Movie Features, Quentin Tarantino, Robert Altman, Brewster McCloud, Shelley Duvall
+
+Sat, 16 May 2026 12:02:14 GMT
+
+https://collider.com/movies-quentin-tarantino-hates-brewster-mccloud-robert-altman/
+
+Quentin Tarantino has not been shy about sharing his opinions, with Robert Altman's Brewster McCloud being among his least favorite movies ever.
+---------
+
+# Forget 'Blood Sugar Sex Magik' — The Red Hot Chili Peppers' Greatest Album Saved a Broken Band
+
+Music Features, Flea, Red Hot Chili Peppers Live: I'm with You, The Rise of the Red Hot Chili Peppers: Our Brother, Hillel, Rock, Music
+
+Sat, 16 May 2026 12:00:13 GMT
+
+https://collider.com/red-hot-chili-peppers-californication-greatest-album/
+
+Red Hot Chili Peppers overcame near breakup and drug addiction to create their iconic album Californication in 1998, marking their rebirth and continued success.
+---------
+
+# Say Goodbye to Gerard Butler’s Forgotten $40M War Thriller on Peacock
+
+Movie News, Hunter Killer, Gary Oldman, Gerard Butler, Peacock
+
+Sat, 16 May 2026 12:00:13 GMT
+
+https://collider.com/gerard-butler-forgotten-war-thriller-hunter-killer-leaving-streaming-peacock-june-2026/
+
+Gerard Butler and Gary Oldman's forgotten submarine thriller, Hunter Killer, is leaving its streaming home soon. Find out when.
+---------
+
+# Apple TV’s Forgotten 9-Part War Drama Is One of Its Best Hidden Gems
+
+TV Features, Chief of War, Apple TV, Jason Momoa, War
+
+Sat, 16 May 2026 11:47:13 GMT
+
+https://collider.com/apple-tv-chief-of-war-drama-hidden-gem/
+
+Apple TV's 9-part epic Chief of War, starring Jason Momoa, is a hidden gem that deserves a second season.
+---------
+
+# 22 Years Later, This Wild $105 Million Sci-Fi Flop Is Crushing Streaming Across the Globe
+
+Movie News, The Chronicles of Riddick, Vin Diesel, Dune, The Lord of the Rings
+
+Sat, 16 May 2026 11:45:14 GMT
+
+https://collider.com/vin-diesel-sci-fi-thriller-the-chronicles-of-riddick-streaming-success-prime-video-apple-tv-may-2026/
+
+The $105 million sci-fi flop with shades of Dune and Lord of the Rings is officially staging a worldwide takeover, 22 years later.
+---------
+
+# John Krasinski Answers the "Best Question" He’s Ever Been Asked About 'Jack Ryan' [Exclusive]
+
+Exclusives, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, John Krasinski
+
+Sat, 16 May 2026 13:00:18 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-john-krasinski-best-question/
+
+Speaking with MovieWeb, John Krasinski discusses a message about compromise from the original 'Jack Ryan' show before 'Ghost War' is released.
+---------
+
+# Zendaya's R-Rated Smash ‘Challengers’ Heads to Tubi June 1
+
+Movie News, Zendaya Coleman, Challengers, Coming/Leaving Streaming, Drama
+
+Sat, 16 May 2026 12:00:18 GMT
+
+https://movieweb.com/zendaya-r-rated-challengers-streaming-free-tubi-june-1-2026/
+
+After 'Euphoria,' fans can stream Zendaya's 2024 hit, 'Challengers,' absolutely free next month.
+---------
+
 # 10 Off Campus Scenes That Prove Hannah & Garrett Are OTPs
 
 Streaming TV, Off Campus
