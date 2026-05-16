@@ -1,3 +1,322 @@
+# 11 Years Later, Batman’s Most Cursed Robin Design Is Back And More Haunting Than Ever
+
+Gaming, Batman, LEGO Batman: Legacy of the Dark Knight, Triple-A Games, Batman: Arkham Knight
+
+Sat, 16 May 2026 14:30:19 GMT
+
+https://screenrant.com/batman-cursed-robin-design-lego-game/
+
+One of the most polarizing Robin designs in any iteration of Batman's mythology is being celebrated in the character's newest appearance this month.
+---------
+
+# Disney's 16-Part Fantasy Adaptation Makes Even Harry Potter Look Small
+
+TV, Masked Recs, Disney+
+
+Sat, 16 May 2026 14:29:20 GMT
+
+https://screenrant.com/disney-percy-jackson-makes-harry-potter-look-small/
+
+One critically acclaimed fantasy series from Disney+ outdoes the world of Harry Potter, crafting a more immersive, impressive fictional universe.
+---------
+
+# The Boys Showrunner Spoils Major Character’s Fate Ahead Of Series Finale
+
+TV, The Boys
+
+Sat, 16 May 2026 14:16:23 GMT
+
+https://screenrant.com/the-boys-showrunner-eric-kripke-homelander-fate-finale/
+
+The Boys may have just been spoiled by showrunner Eric Kripke, as a major character's fate could have been confirmed ahead of the series finale.
+---------
+
+# The Agency Season 2 Release Window Reportedly Revealed
+
+TV, The Agency
+
+Sat, 16 May 2026 14:04:39 GMT
+
+https://screenrant.com/the-agency-season-2-release-window-summer-2026/
+
+Michael Fassbender's popular spy thriller may well be on track to return very soon, as a release window emerges for The Agency season 2.
+---------
+
+# Star Wars Actor Wants To Join Prime Video’s Fourth Wing For The Perfect Reason
+
+TV, Fourth Wing
+
+Sat, 16 May 2026 14:00:59 GMT
+
+https://screenrant.com/prime-video-fourth-wing-genevieve-oreilly-join-response/
+
+A Star Wars actor wants to be a part of Fourth Wing for all the right reasons, and this villain could be the perfect role for them to step into.
+---------
+
+# The Batman: Part II’s Alleged Lack Of Joker Is Secretly A Blessing In Disguise
+
+DC Comics, Batman, DC, The Batman, The Batman Part II
+
+Sat, 16 May 2026 14:00:20 GMT
+
+https://screenrant.com/batman-part-ii-no-joker-good-thing/
+
+The Batman: Part II's confirmed cast notably does not include Barry Keoghan's Joker, and that could be the sequel's best choice so far, if it is true.
+---------
+
+# Kevin Costner's 10 Best Movies & TV Shows In The 21st Century
+
+Movies, Kevin Costner
+
+Sat, 16 May 2026 14:00:20 GMT
+
+https://screenrant.com/kevin-costner-best-movies-shows-21st-century/
+
+From Thirteen Days to Man of Steel to Yellowstone, these are the very best movies and TV shows that Kevin Costner has made in the 21st century so far.
+---------
+
+# 10 Legendary & Mythical Pokémon Winds & Waves Absolutely Must Include
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Sat, 16 May 2026 14:00:20 GMT
+
+https://screenrant.com/pokemon-winds-waves-mythical-legendary-returning-gen-10/
+
+Pokémon Winds and Waves will include many returning Pokémon, but there are some Legendary and Mythical Pokémon that have to return in Gen 10.
+---------
+
+# "Something We Can Proudly Present": The One Piece Director Hypes Remake After Major Update
+
+Anime, One Piece
+
+Sat, 16 May 2026 14:00:20 GMT
+
+https://screenrant.com/netflix-one-piece-remake-director-quality/
+
+One Piece's highly awaited remake finally has a release date and while fans have concerns, the director of Wit Studio just stepped up to address them.
+---------
+
+# Sylvester Stallone’s Rambo Prequel Casts Controversial Star In Villain Role
+
+Movies, Rambo, John Rambo
+
+Sat, 16 May 2026 13:46:59 GMT
+
+https://screenrant.com/john-rambo-movie-james-franco-villain-cast/
+
+A controversial star is cast as the villain in John Rambo, opposite Noah Centineo as the younger version of Sylvester Stallone's character.
+---------
+
+# The Expanse's Protomolecule Is Lovecraftian Sci-Fi Horror at Its Best
+
+TV, The Expanse, Sci-Fi, Horror
+
+Sat, 16 May 2026 14:30:13 GMT
+
+https://www.cbr.com/the-expanse-protomolecule-lovecraftian-sci-fi-horror/
+
+The Expanse does pretty much everything better than most TV shows, but its sci-fi horror elements are on another level.
+---------
+
+# Maximum Pleasure Guaranteed Cast Reveal the Fun Behind Trevor’s Double Life
+
+TV, Maximum Pleasure Guaranteed
+
+Sat, 16 May 2026 14:15:13 GMT
+
+https://www.cbr.com/video/maximum-pleasure-guaranteed-cast-reveal-the-fun-behind-trevor-s-double-life/
+
+Maximum Pleasure Guaranteed stars Murray Bartlett and Brandon Flynn break down Trevor’s layered personality, the show’s New York filming locations, and why the character’s big reveal works so well. Brandon Flynn explains how his real tattoos became part of Trevor’s identity, while Murray Bartlett talks about filming across Queens, the Bronx, Manhattan, and even Water Island for the Apple TV+ series.The pair also discuss the balance between playful chemistry and the darker mystery elements that define Maximum Pleasure Guaranteed. From hidden character motives to rooftop NYC shoots, this interview dives into what makes the series feel both grounded and larger than life for fans.
+---------
+
+# 10 Most Cinematic Anime Soundtracks
+
+Anime, Death Note, Jojo's Bizarre Adventure, Howl's Moving Castle, Berserk, Made in Abyss, Neon Genesis Evangelion, Attack on Titan, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Devilman Crybaby, Puella Magi Madoka Magica, Music
+
+Sat, 16 May 2026 14:15:13 GMT
+
+https://www.cbr.com/most-cinematic-anime-soundtracks/
+
+These beloved anime soundtracks feel even more cinematic than Hollywood films, with everything from classical pianos to techno beats.
+---------
+
+# Transformers Brings Back Ironhide and Ratchet With Major G1 Makeovers
+
+Anime, Transformers, merchandise
+
+Sat, 16 May 2026 14:00:13 GMT
+
+https://www.cbr.com/transformers-galaxy-toys-g1-ironhide-g1-ratchet/
+
+Galaxy Toys has revealed several new Transformers toys based on G1 Ratchet and Ironhide, including variants based on some of their darkest personas.
+---------
+
+# The Batman Part II's Setting Officially Sets Up Mr. Freeze
+
+Movies, The Batman Part II
+
+Sat, 16 May 2026 14:00:13 GMT
+
+https://www.cbr.com/the-batman-part-ii-villain-mr-freeze-setting-tease/
+
+The Batman Part II is coming, and Matt Reeves just teased the possible debut of Mr. Freeze.
+---------
+
+# Yellowstone Officially Confirms Kevin Costner's John Dutton Replacement
+
+TV, Marshals, Yellowstone
+
+Sat, 16 May 2026 13:48:18 GMT
+
+https://www.cbr.com/marshals-kayce-dutton-john-dutton-yellowstone-replacement/
+
+Kevin Costner's exit from Yellowstone ended Taylor Sheridan's neo-Western flagship, but CBS selects John Dutton's rightful successor in Marshals.
+---------
+
+# Only One Transformers Cartoon Needs the X-Men '97 Treatment and It's Not G1
+
+TV, Transformers: Animated, X-Men '97, Transformers
+
+Sat, 16 May 2026 13:30:12 GMT
+
+https://www.cbr.com/transformers-animated-needs-fourth-season-revival/
+
+X-Men '97's success might entice Transformers fans to want a similar show for G1 or Beast Wars, but this 2007 cartoon is more deserving of a revival.
+---------
+
+# Lord of the Rings: Crown of Gondor Officially Announced for 2026
+
+Games, The Lord of the Rings
+
+Sat, 16 May 2026 13:26:12 GMT
+
+https://www.cbr.com/lotr-crown-of-gondor-official-release-2026/
+
+The Lord of the Rings fans are finally getting the chance to bring the Crown of Gondor home for themselves, although it won't come easy.
+---------
+
+# Stephen King's Chapelwaite Is Becoming a Modern Classic
+
+TV, Chapelwaite, Stephen King, Horror
+
+Sat, 16 May 2026 13:25:39 GMT
+
+https://www.cbr.com/stephen-king-chapelwaite-vampire-show-reppraisal/
+
+Stephen King's underrated 2021 Gothic series Chapelwaite is seeing a resurgence on streaming platforms, so now is the perfect time to check it out.
+---------
+
+# Hunter x Hunter's Best Arc Is Hiding in Plain Sight
+
+Anime, Hunter x Hunter
+
+Sat, 16 May 2026 13:15:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-yorknew-city-best-arc/
+
+Yorknew City Arc is arguably Hunter x Hunter's greatest storytelling achievement, but it's often overshadowed by the Chimera Ant Arc.
+---------
+
+# 10 Worst-Looking Movies That Cost More Than 200 Million Dollars
+
+Movie, Ant-Man and the Wasp: Quantumania, The Electric State, The Hobbit: The Battle of the Five Armies, Star Wars: Episode IX - The Rise of Skywalker
+
+Sat, 16 May 2026 14:28:12 GMT
+
+https://collider.com/worst-looking-movies-cost-more-than-200-million-dollars/
+
+Very expensive movies sometimes look very bad, as the likes of Ant-Man and the Wasp: Quantumania, Snow White, and The Electric State show.
+---------
+
+# This 112-Minute Sci-Fi Thriller's Best Scene Is Hidden in the Credits
+
+Movie Features, Sci-Fi, Thriller, Super 8, J.J. Abrams
+
+Sat, 16 May 2026 14:04:14 GMT
+
+https://collider.com/super-8-2011-jj-abrams-end-credits-zombie-movie-best-scene/
+
+J.J. Abrams' 2011 alien invasion sci-fi masterpiece Super 8 has the most rewarding scene in the end credits.
+---------
+
+# Apple TV’s Best-Kept Sci-Fi Secret Is Officially Returning in 1 Month
+
+TV News, Sugar, Colin Farrell, Apple TV, Sci-Fi
+
+Sat, 16 May 2026 14:00:13 GMT
+
+https://collider.com/apple-tv-crime-thriller-sci-fi-series-sugar-season-2-release-date-june-2026/
+
+Apple TV’s most underrated sci-fi mystery thriller series Sugar officially returns next month. See when new episodes arrive.
+---------
+
+# Forget 'Terminator' — This 10/10 Action Sci-Fi Is a Masterpiece From Start to Finish
+
+Movie Features, Prey, Predator, Dan Trachtenberg, Sci-Fi
+
+Sat, 16 May 2026 13:41:15 GMT
+
+https://collider.com/prey-2022-action-sci-fi-masterpiece-start-to-finish-forget-terminator/
+
+Dan Trachtenberg's 2022 movie Prey is a brilliant, gripping installment in the iconic Predator franchise.
+---------
+
+# The Best Sci-Fi Movie From Every Year of the 1990s
+
+Movie, Sci-Fi, Science Fiction, Jurassic Park, The Matrix
+
+Sat, 16 May 2026 13:24:12 GMT
+
+https://collider.com/best-90s-sci-fi-movies-every-year/
+
+From Steven Spielberg's Jurassic Park to the game-changing masterpiece The Matrix, the 1990s featured one excellent sci-fi movie after another.
+---------
+
+# Paramount+’s New ‘Yellowstone’ Spin-Off Confirms Taylor Sheridan Still Owns Streaming
+
+TV News, Taylor Sheridan, Yellowstone, Dutton Ranch, Paramount Plus
+
+Sat, 16 May 2026 13:15:12 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-streaming-success-premiere-paramount-plus-may-2026/
+
+Taylor Sheridan’s new Yellowstone sequel spin-off series officially proves that no one can usurp his throne on Paramount+’s streaming charts.
+---------
+
+# When 'In the Grey' Will Be Available to Stream
+
+Features, In the Grey, Guy Ritchie
+
+Sat, 16 May 2026 14:00:19 GMT
+
+https://movieweb.com/when-in-the-grey-will-stream/
+
+Guy Ritchie's latest action thriller just hit theaters, but those waiting to watch it at home will likely need to wait at least a month.
+---------
+
+# Taylor Sheridan's 'Lawmen: Bass Reeves' Finally Sets Netflix Premiere Date
+
+TV News, Lawmen: Bass Reeves, Coming/Leaving Streaming, Taylor Sheridan, Western
+
+Sat, 16 May 2026 14:00:19 GMT
+
+https://movieweb.com/lawmen-bass-reeves-taylor-sheridan-western-netflix-streaming-june-2026/
+
+Three years after it concluded its run on Paramount+, 'Lawmen: Bass Reeves' has finally set a Netflix premiere date.
+---------
+
+# Amazon Prime's 'Fourth Wing': Confirmation, Cast, Plot, & Everything We Know
+
+Features, Fantasy, Everything We Know
+
+Sat, 16 May 2026 14:00:19 GMT
+
+https://movieweb.com/amazon-prime-fourth-wing-everything-we-know/
+
+Based on Rebecca Yarros' novel, learn all the details about Prime Video's upcoming adaptation of 'Fourth Wing'.
+---------
+
 # 37 Years Later, HBO's Near-Perfect 7-Part Horror Is Still One Of TV's Greatest Anthologies
 
 TV, HBO, Masked Recs
