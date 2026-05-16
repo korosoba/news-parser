@@ -1,3 +1,344 @@
+# Cyberpunk 2077 Legends Officially Return With Multiple New 2026 Releases
+
+Gaming, Cyberpunk 2077, Triple-A Games, PC
+
+Sat, 16 May 2026 02:00:32 GMT
+
+https://screenrant.com/cyberpunk-2077-legends-jonny-judy-panam-statues/
+
+It might still be a while before we get the sequel to Cyberpunk 2077, but Johnny Silverhand and company are still being celebrated with new releases.
+---------
+
+# Every Supernatural Actor In The Boys
+
+Streaming TV, Supernatural, The Boys
+
+Sat, 16 May 2026 02:00:32 GMT
+
+https://screenrant.com/supernatural-boys-shows-actors-same/
+
+Supernatural and The Boys share a creator in the form of Eric Kripke, but the two popular shows also share several of the same actors.
+---------
+
+# David Tennant Reveals Surviving Villain Is "Unhinged" In Disney's Rivals Season 2
+
+TV, Rivals
+
+Sat, 16 May 2026 00:36:49 GMT
+
+https://screenrant.com/rivals-season-2-tony-baddingham-unhinged-david-tennant/
+
+David Tennant explains how his character Tony Baddingham in the Disney+ series Rivals becomes more "unhinged" in the show's second season.
+---------
+
+# Every Off Campus Couple, Ranked By Chemistry
+
+Streaming TV, Off Campus
+
+Sat, 16 May 2026 00:30:21 GMT
+
+https://screenrant.com/off-campus-every-couple-ranked-chemistry/
+
+Are Garrett and Hannah the hottest couple in Prime Video's Off Campus? The chemistry of Briar U couples, ranked.
+---------
+
+# 6 Martial Arts Tournament Movies To Watch After Mortal Kombat II
+
+Movies, Mortal Kombat II
+
+Sat, 16 May 2026 00:30:21 GMT
+
+https://screenrant.com/6-martial-arts-tournament-movies-to-watch-after-mortal-kombat-ii/
+
+The Mortal Kombat films aren't the only movies with brutally violent martial arts tournaments. Here's six movies to watch after Mortal Kombat II.
+---------
+
+# Sydney Sweeney's R-Rated Thriller Hit Gets Sequel Plot Details, Location, & Doubled Budget
+
+Movies, The Housemaid, The Housemaid's Secret
+
+Sat, 16 May 2026 00:15:20 GMT
+
+https://screenrant.com/sydney-sweeneys-r-rated-thriller-hit-gets-sequel-plot-details-location-doubled-budget/
+
+The Housemaid sequel starring Sydney Sweeney expands the story's scope, doubles the budget to $70-80 million, and aims to film by year's end.
+---------
+
+# Every Dragon Ball Arc Ranked from Worst to Best
+
+Anime, Dragon Ball
+
+Sat, 16 May 2026 00:00:23 GMT
+
+https://screenrant.com/every-dragon-ball-arc-ranked-worst-to-best/
+
+Dragon Ball is, without a doubt, one of the biggest anime franchises of all time, and here's how every story is ranked from worst to best.
+---------
+
+# Hogwarts Legacy 2 Live-Service Elements Leaving Gamers Concerned
+
+Gaming, Hogwarts Legacy, Harry Potter, Triple-A Games
+
+Sat, 16 May 2026 00:00:21 GMT
+
+https://screenrant.com/hogwarts-legacy-2-live-service-gamer-reactions/
+
+Hogwarts Legacy 2 has the weight of a whole fandom on its shoulders, and anything it does to change gameplay might ruin its experience irreparably.
+---------
+
+# 10 Best Xbox Game Pass Essential Games To Play Right Now
+
+Gaming, Xbox Game Pass, Live Service Games, PC
+
+Sat, 16 May 2026 00:00:21 GMT
+
+https://screenrant.com/best-xbox-game-pass-essential-games/
+
+It’s well-known that the Essential tier for Xbox Game Pass has fewer options than other tiers, but there are still fantastic games to choose from.
+---------
+
+# The 25 Best Anime Of The Last 25 Years, Ranked
+
+Anime
+
+Sat, 16 May 2026 02:00:25 GMT
+
+https://www.cbr.com/best-anime-since-2000-last-25-years-ranking-list/
+
+Many classic anime have been released since 2001, but these series stand as the very best.
+---------
+
+# The 10 Most Perfectly Directed Horror Movies of the 21st Century, Ranked
+
+Movies, Horror
+
+Sat, 16 May 2026 02:00:25 GMT
+
+https://www.cbr.com/perfectly-directed-horror-movies-21st-century-list/
+
+Horror movies have introduced the world to many great directors, and the 21st century feels like a modern renaissance for horror movies.
+---------
+
+# Doctor Who's First Modern Horror Episode Remains the Scariest 45 Minutes in Sci-Fi History
+
+TV, Doctor Who, Sci-Fi, bbc
+
+Sat, 16 May 2026 02:00:25 GMT
+
+https://www.cbr.com/doctor-who-rise-of-the-cybermen-scariest-45-minutes-in-sci-fi-history/
+
+Doctor Who has relied on horror elements in many of its most memorable episodes, but one of the first in the modern era scares us even now.
+---------
+
+# 20 Years Later, These Are the 10 Best Anime of 2006
+
+Anime, Nana, Death Note
+
+Sat, 16 May 2026 01:45:14 GMT
+
+https://www.cbr.com/best-anime-2006-list/
+
+2006 was an important year for anime, marking the releases of totemic titles like Death Note, Nana, and Ergo Proxy, which are still timeless classics.
+---------
+
+# 5 Clint Eastwood Western Movies That Are Still Masterpieces Today
+
+Movies, Clint Eastwood, Western
+
+Sat, 16 May 2026 01:31:14 GMT
+
+https://www.cbr.com/clint-eastwood-best-western-movies-list/
+
+Clint Eastwood has earned his place as a Western icon, and even now, some of his best movies are still masterpieces decades later.
+---------
+
+# 10 Action-Packed Anime That Are Perfect From Start to Finish
+
+Anime, Action
+
+Sat, 16 May 2026 01:25:14 GMT
+
+https://www.cbr.com/action-packed-anime-perfect-from-start-to-finish-list/
+
+Action anime like Fate/Zero and Cyberpunk: Edgerunners maintain thematic integrity throughout, delivering satisfying and surprising climaxes.
+---------
+
+# 1 Week Ahead of Finale, The Boys Season 5 Sets an Unfortunate Record
+
+TV, The Boys
+
+Sat, 16 May 2026 01:12:44 GMT
+
+https://www.cbr.com/the-boys-season-5-new-imdb-record/
+
+The Boys sets an unwanted record heading into its series finale on Prime Video.
+---------
+
+# 5 Most Unwatchable Classic '90s Anime
+
+Anime, Violence Jack: Evil Town, Garzey's Wing
+
+Sat, 16 May 2026 00:45:13 GMT
+
+https://www.cbr.com/unwatchable-90s-anime/
+
+The '90s OVA boom gave anime studios a format with no broadcast standards, and some of them squandered it.
+---------
+
+# The Mandalorian & Grogu Director Addresses New Star Wars Holiday Special
+
+TV, Star Wars, The Star Wars Holiday Special, The Mandalorian
+
+Sat, 16 May 2026 00:31:22 GMT
+
+https://www.cbr.com/star-wars-holiday-special-mandalorian-jon-favreau/
+
+Jon Favreau addresses making another Star Wars holiday special using characters from The Mandalorian.
+---------
+
+# Most Obscure Final Fantasy Games No One Has Played
+
+Games, Final Fantasy, Stranger of Paradise: Final Fantasy Origin, final fantasy xiv
+
+Sat, 16 May 2026 00:30:14 GMT
+
+https://www.cbr.com/obscure-final-fantasy-games/
+
+The Final Fantasy series has produced many amazing games, but a few obscure titles have slipped through the cracks and been ignored by the fans.
+---------
+
+# Forget 'Band of Brothers' — Tom Hanks' New War Series Is His Most Daring WWII Swing Yet
+
+TV Features, Tom Hanks, World War II, History Channel, docuseries
+
+Sat, 16 May 2026 02:10:14 GMT
+
+https://collider.com/tom-hanks-world-war-ii-docuseries-biggest-career-project/
+
+Tom Hanks expands his WWII storytelling ambitions with a 20-part global docuseries tackling the war from every angle.
+---------
+
+# 14 Years Later, Jake Gyllenhaal’s Iconic Crime Thriller Still Holds Up
+
+Movie News, End of Watch, David Ayer, Jake Gyllenhaal, Michael Pena
+
+Sat, 16 May 2026 02:00:25 GMT
+
+https://collider.com/jake-gyllenhaal-brutal-crime-thriller-end-of-watch-streaming-success-starz-may-2026/
+
+End of Watch, the gritty crime thriller starring Jake Gyllenhaal and directed by David Ayer, is still a #1 streaming favorite.
+---------
+
+# 10 Years Later, Michael Bay's Divisive Sci-Fi Hit Is Officially Taking Over the World
+
+Movie News, Teenage Mutant Ninja Turtles: Out of the Shadows, Teenage Mutant Ninja Turtles, Tubi, Michael Bay
+
+Sat, 16 May 2026 01:45:15 GMT
+
+https://collider.com/michael-bay-sci-fi-sequel-teenage-mutant-ninja-turtles-out-of-the-shadows-free-streaming-success-tubi-may-2026/
+
+Despite its box-office failure and negative reviews, Teenage Mutant Ninja Turtles: Out of the Shadows has found success on streaming platforms.
+---------
+
+# 10 Perfect Movies I Knew Were Masterpieces From the Opening Scene
+
+Movie, Pulp Fiction, Hundreds of Beavers, Raging Bull, Citizen Kane
+
+Sat, 16 May 2026 01:41:14 GMT
+
+https://collider.com/perfect-movies-from-the-opening-scene/
+
+Citizen Kane, Pulp Fiction, and Hundreds of Beavers are genuine masterpieces that work perfectly from their opening scenes.
+---------
+
+# The Biggest Fantasy Epic Since 'The Green Knight' Officially Debuts in 5 Weeks
+
+Movie News, The Death of Robin Hood, Hugh Jackman, A24, Jodie Comer
+
+Sat, 16 May 2026 01:30:14 GMT
+
+https://collider.com/new-a24-fantasy-blockbuster-the-death-of-robin-hood-release-date-june-19-2026-how-to-watch/
+
+A24's quest to level up continues next month with The Death of Robin Hood. Here's when you'll be able to watch the period epic.
+---------
+
+# Christopher Nolan's 'The Odyssey' Already Has a Huge Win Most Blockbusters Only Dream About
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Tom Holland
+
+Sat, 16 May 2026 01:15:13 GMT
+
+https://collider.com/christopher-nolan-fantasy-epic-the-odyssey-under-budget-ahead-of-schedule/
+
+A new profile shed light on the lightning-fast speed with which Christopher Nolan ran The Odyssey set. Get more details here.
+---------
+
+# The Best Album From Every Year of the 1990s
+
+Music Features, Radiohead, 1990s, Nirvana, Music
+
+Sat, 16 May 2026 01:14:14 GMT
+
+https://collider.com/best-album-every-year-1990s/
+
+Every year of the 1990s saw at least one great album, with the following, like Nevermind and OK Computer, being the best of their respective years.
+---------
+
+# Netflix's 4-Part Fantasy Series Is Perfect To Binge This Weekend
+
+TV Features, The Witcher, Henry Cavill, Liam Hemsworth, Netflix
+
+Sat, 16 May 2026 01:14:14 GMT
+
+https://collider.com/netflix-fantasy-the-witcher-perfect-weekend-binge/
+
+Netflix's The Witcher offers complex characters and epic adventures as Geralt and his allies navigate monsters, destiny, and an apocalyptic prophecy.
+---------
+
+# Only 3 Movies Have Better Battles Than The Lord of the Rings
+
+Movie, The Lord of the Rings, Ran, Saving Private Ryan, Lawrence of Arabia
+
+Sat, 16 May 2026 00:45:14 GMT
+
+https://collider.com/movies-better-battles-than-lord-of-the-rings/
+
+The Lord of the Rings has some of the greatest battle sequences in cinema, but movies like Saving Private Ryan are far better than Jackson's trilogy.
+---------
+
+# Netflix’s Sleeper Hit Crime Thriller Tops Taylor Sheridan's Record Breaking 'Yellowstone' Spin-Off in Shock Upset
+
+TV News, Marshals, His & Hers, Taylor Sheridan, Netflix
+
+Sat, 16 May 2026 00:45:14 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-overtaken-by-netflix-crime-thriller-his-and-hers-most-watched-title-2026/
+
+Nielsen streaming data has crowned Netflix's crime thriller, His & Hers, as the most-watched series of the year, ahead of Taylor Sheridan's Marshals.
+---------
+
+# Tom Cruise's 'Digger' Gets "Remarkable" Hype From Co-Star Sandra Hüller
+
+Movie News, Digger, Tom Cruise
+
+Sat, 16 May 2026 00:02:33 GMT
+
+https://movieweb.com/digger-hype-tom-cruise-sandra-huller/
+
+The 'Project Hail Mary' star had nothing but good things to say about the upcoming comedy.
+---------
+
+# ‘Legends’: Netflix’s New Thriller Is an Unpredictable One-Night Binge
+
+Features, Legends, Netflix
+
+Sat, 16 May 2026 00:00:20 GMT
+
+https://movieweb.com/legends-netflix-binge-watch/
+
+'Legends,' Netflix's new crime TV series starring Hayley Squires, Tom Burke, and Steve Coogan, is a great show to watch in one evening.
+---------
+
 # One Piece's Biggest Retcon Confirms How Fans Completely Misunderstood Luffy's Rubber Powers
 
 Anime, One Piece
