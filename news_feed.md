@@ -1,3 +1,223 @@
+# 10 Abandoned Comic Book Movies We're Glad Never Happened
+
+Superheroes, DC Universe, Marvel Cinematic Universe
+
+Sat, 16 May 2026 20:45:20 GMT
+
+https://screenrant.com/abandoned-comic-book-movies-never-happened-good/
+
+With Joker disasters and bizarre superhero comedies, we’re relieved these abandoned comic book movies were probably better left unmade forever.
+---------
+
+# Forget Vought Rising, The Boys Really Needs A 'Vought Villages' Spinoff
+
+Streaming TV, The Boys
+
+Sat, 16 May 2026 20:45:20 GMT
+
+https://screenrant.com/the-boys-needs-vought-older-supes-spinoff/
+
+The Boys season 5 is more interested in setting up Vought Rising than finishing the series at hand, but I'd much rather see an older supes spinoff.
+---------
+
+# Blumhouse Sets TV Adaptation For 17-Year-Old Award-Winning Comics Series For The First Time
+
+TV, Blumhouse
+
+Sat, 16 May 2026 20:35:38 GMT
+
+https://screenrant.com/blumhouse-chew-tv-show-development-rob-guillory/
+
+Blumhouse is adapting an award-winning independent comic book series from Image Comics nearly two decades after its initial release.
+---------
+
+# Star Trek Can Still Save Its 60th Anniversary
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 16 May 2026 20:30:20 GMT
+
+https://screenrant.com/star-trek-2026-save-60th-anniversary/
+
+The first half of Star Trek's 60th anniversary year hasn't gone the way fans hoped, but things might hit warp speed starting in July.
+---------
+
+# Star Wars Is Officially Failing Ahsoka Tano
+
+Streaming TV, Ahsoka Tano, Ahsoka, Star Wars
+
+Sat, 16 May 2026 20:15:19 GMT
+
+https://screenrant.com/star-wars-ahsoka-tano-fail-show-delay/
+
+Recent news about an upcoming Star Wars release date proves the franchise is failing one of its most important characters. She deserves better.
+---------
+
+# Netflix's 8-Part Noir Thriller Has 100% On Rotten Tomatoes And Totally Deserves It
+
+TV, Netflix, Masked Recs
+
+Sat, 16 May 2026 20:02:19 GMT
+
+https://screenrant.com/netflix-my-name-deserves-100-rotten-tomatoes-score/
+
+With slick style and a killer premise, this crime thriller inexplicably remains one of Netflix's most underrated hidden gems despite a 100% RT rating.
+---------
+
+# 2026's Best Attack on Titan Replacement Anime Is Officially Here
+
+Anime, Attack on Titan, Attack On Titan
+
+Sat, 16 May 2026 20:00:21 GMT
+
+https://screenrant.com/attack-on-titan-replacement-anime-nippon-sangoku-2026/
+
+One of the best anime of spring 2026 promises to be just what viewers need to fill the void left by the end of Attack on Titan.
+---------
+
+# LEGO Officially Says Goodbye to Legend of Zelda Set in 2026
+
+Games, LEGO, The Legend of Zelda
+
+Sat, 16 May 2026 20:48:34 GMT
+
+https://www.cbr.com/lego-goodbye-legend-of-zelda/
+
+LEGO builders have been given their last call to pick up one official Legend of Zelda set.
+---------
+
+# James Cameron Teases What Might Help With Avatar 4 & 5's Expensive Budgets
+
+Movies, Avatar, Avatar: Fire and Ash, Avatar: The Way of Water, james cameron
+
+Sat, 16 May 2026 20:48:16 GMT
+
+https://www.cbr.com/james-cameron-new-idea-avatar-expensive-budgets/
+
+The billion dollar Avatar franchise is looking to cut costs going forward.
+---------
+
+# 10 Essential Gundam Anime for Beginners
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing
+
+Sat, 16 May 2026 20:15:13 GMT
+
+https://www.cbr.com/must-watch-essential-gundam-anime-for-beginners/
+
+The Mobile Suit Gundam franchise has been around for nearly 50 years, but there are many standout series that work as introductions for newcomers.
+---------
+
+# 25 Best One Piece Anime Arcs, Ranked
+
+Anime, One Piece
+
+Sat, 16 May 2026 20:00:14 GMT
+
+https://www.cbr.com/best-one-piece-anime-arcs/
+
+One Piece has many fantastic sagas like the Arlong Park and the Skypiea arcs, keeping anime and manga fans hungry for more.
+---------
+
+# Strongest Fire-Type Pokémon, Ranked
+
+Games, Pokemon
+
+Sat, 16 May 2026 20:00:14 GMT
+
+https://www.cbr.com/pokemon-best-fire-types-ranked/
+
+Fire-type Pokémon have been a major part of the series since the first games, and many powerful Fire-type species have been introduced since.
+---------
+
+# Jason Statham's Mechanic: Resurrection Is 1 of the Most Popular Films in the World
+
+Movies, Mechanic: Resurrection
+
+Sat, 16 May 2026 20:00:13 GMT
+
+https://www.cbr.com/mechanic-resurrection-global-streaming-success-may-2026/
+
+Jason Statham is back on the streaming charts with his 10-year-old action sequel Mechanic: Resurrection.
+---------
+
+# Fist of the North Star Gets New Limited-Edition Seiko Watch for International Release
+
+Anime, Fist of the North Star, merchandise
+
+Sat, 16 May 2026 20:00:13 GMT
+
+https://www.cbr.com/fist-of-the-north-star-seiko-watch-international-release/
+
+The 40th anniversary of the Fist of the North Star anime coincides with the release of two classy new Hokuto no Ken branded watches from Seiko.
+---------
+
+# The Best Book-To-Movie Adaptation From Every Year of the 2010s
+
+Movies, books, adaptations
+
+Sat, 16 May 2026 20:00:13 GMT
+
+https://www.cbr.com/best-book-to-movie-adaptation-every-year-2010s-list/
+
+The films of the 2010s brought literary adaptations to a new level with its infinite supply of YA classics but these ten films are absolutely perfect.
+---------
+
+# 'True Detective' Meets 'Zodiac' in Landmark Crime Thriller Leaving Paramount+
+
+Movie News, Memories of Murder, Bong Joon Ho, Zodiac, True Detective
+
+Sat, 16 May 2026 20:30:13 GMT
+
+https://collider.com/memories-of-murder-bong-joon-ho-crime-thriller-leaving-paramount-plus-june-2026-true-detective-zodiac/
+
+Memories of Murder, the landmark crime thriller that inspired Zodiac and True Detective is leaving Paramount+ soon. Find out when.
+---------
+
+# Netflix’s 6-Part 25.6M-Viewer Thriller Proves Viewers Want One Thing From TV Now
+
+TV Features, His & Hers, Tessa Thompson, Jon Bernthal, Streaming
+
+Sat, 16 May 2026 20:06:14 GMT
+
+https://collider.com/netflix-his-and-hers-25-million-viewers-limited-series-trend/
+
+Netflix’s His & Hers became 2026’s biggest show by proving viewers want twisty, bingeable limited series over long franchises.
+---------
+
+# It's the End of an Era on Netflix for One of the Darkest War Movies of All Time
+
+Movie Features, The Deer Hunter, War, Netflix, Robert De Niro
+
+Sat, 16 May 2026 20:04:13 GMT
+
+https://collider.com/netflix-the-deer-hunter-darkest-war-movies-end-of-era/
+
+The Deer Hunter is a flawed classic, and one of the darkest war movies ever made, but it's harder to watch now, after being removed from Netflix.
+---------
+
+# ‘John Wick’ Meets ‘Reacher’ in Mark Wahlberg’s 10/10 Action Thriller Streaming for Free
+
+Movie News, Shooter, Mark Wahlberg, John Wick, Reacher
+
+Sat, 16 May 2026 20:00:13 GMT
+
+https://collider.com/mark-wahlberg-action-thriller-shooter-free-streaming-pluto-tv-may-2026-how-to-watch-john-wick-reacher/
+
+Mark Wahlberg's 10/10 action thriller with shades of John Wick and Reacher has now begun streaming for free on Pluto TV.
+---------
+
+# The 12 Best 'The Far Side' Comics About Dogs
+
+Movie Lists, gary larson
+
+Sat, 16 May 2026 20:30:18 GMT
+
+https://movieweb.com/far-side-best-dogs/
+
+From backyard observations to inner monologue gags, these are the best Far Side comics about dogs.
+---------
+
 # Adam Driver & Vanessa Kirby Officially Cast In Oscar-Winning Director's First Movie In 10 Years
 
 Movies
