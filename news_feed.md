@@ -1,3 +1,201 @@
+# Crunchyroll Officially Adds An Underrated 1990s Gem That's Aged Perfectly
+
+Anime, Crunchyroll, Kodocha
+
+Sat, 16 May 2026 21:30:20 GMT
+
+https://screenrant.com/kodocha-crunchyroll-underrated-1990s-anime/
+
+Crunchyroll adds classic 1990s anime series Kodocha, offering fans a chance to rediscover this underappreciated shoujo comedy drama.
+---------
+
+# This 2-Season Horror Series Was So Scary, The Network Refused To Air One Specific Episode
+
+TV, Masked Recs, Showtime
+
+Sat, 16 May 2026 21:27:21 GMT
+
+https://screenrant.com/masters-of-horror-showtime-refuse-to-air-episode/
+
+'The most disturbing film I've ever seen' - the creator of this iconic horror anthology series on the banned season 1 finale that never aired on TV.
+---------
+
+# How Dexter: Resurrection Season 2’s Story Keeps Deb’s Legacy Alive Teased By Star
+
+Exclusive, Dexter: Resurrection, Dexter
+
+Sat, 16 May 2026 21:15:56 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-harrison-deb-police-legacy-jack-alcott/
+
+EXCLUSIVE: Dexter: Resurrection will be honoring one of the original franchise characters and Dexter Morgan’s sister Debra and her legacy in season 2.
+---------
+
+# Where To Watch Westworld (Now That It's No Longer Streaming On HBO Max)
+
+Streaming TV, Westworld
+
+Sat, 16 May 2026 21:15:21 GMT
+
+https://screenrant.com/westworld-hbo-max-where-to-watch-stream/
+
+Information on where to watch Westworld episodes now that the once popular HBO series is no longer available on its popular streaming service HBO Max.
+---------
+
+# Netflix's 12-Part 'American Gods Meets His Dark Materials' Series Is The Best Dark Fantasy You Haven't Heard Of
+
+Classic TV, Masked Recs
+
+Sat, 16 May 2026 21:00:19 GMT
+
+https://screenrant.com/invisible-city-netflix-american-goods-meets-his-dark-materials-fantasy/
+
+International TV shows do not always get the attention that they deserve, and Netflix's Brazilian dark fantasy series with 89% on RT is worth watching
+---------
+
+# 10 D&D Subclasses Too OP For Their Own Good
+
+Tabletop, Dungeons & Dragons, Dungeons and Dragons, tabletop games
+
+Sat, 16 May 2026 21:00:19 GMT
+
+https://screenrant.com/dnd-overpowered-subclasses-op-dungeons-dragons/
+
+There are plenty of great subclass options for characters in Dungeons and Dragons, but some of them stand out for how overpowered they feel.
+---------
+
+# The 11-Part Classic War Comedy With the World Record for the Most-Watched Finale Returns as a PVOD Hit 43 Years Later
+
+TV, M*A*S*H, Comedy
+
+Sat, 16 May 2026 21:30:13 GMT
+
+https://www.cbr.com/mash-m-a-s-h-cbs-war-comedy-pvod-success-may-2026/
+
+CBS's record-breaking war comedy-drama series is finding new life 43 years after the show's finale.
+---------
+
+# Every Dragon Ball Z-Warrior, Ranked By Intelligence
+
+Anime, Dragon Ball, Akira Toriyama, Dragon Ball Z
+
+Sat, 16 May 2026 21:16:13 GMT
+
+https://www.cbr.com/dragon-ball-z-every-character-ranked-by-intelligence/
+
+Dragon Ball's Z-Warriors are Earth's strongest warriors, but some of them are also notably intelligent.
+---------
+
+# 5 Non-MCU Marvel Movies That Are Perfect From Start to Finish
+
+Movies, Marvel Cinematic Universe
+
+Sat, 16 May 2026 21:00:13 GMT
+
+https://www.cbr.com/best-non-mcu-marvel-movies-list/
+
+While the MCU has created an undeniable monopoly on Marvel films, there are still some beyond the MCU that are perfect.
+---------
+
+# Forget ‘Reacher,’ Kevin Costner’s Wild Action Thriller Is Leaving Streaming Soon
+
+Movie News, Kevin Costner, 3 Days to Kill, McG, Paramount Plus
+
+Sat, 16 May 2026 21:30:14 GMT
+
+https://collider.com/kevin-costner-reacher-replacement-action-thriller-3-days-to-kill-leaving-streaming-paramount-plus-may-2026/
+
+Kevin Costner's critically panned post-Taken action movie, 3 Days to Kill, is leaving its streaming home soon. Find out everything you should know.
+---------
+
+# 10 Most Addictive Movie Franchises of All Time, Ranked
+
+Movie, MCU, DCU, Star Wars, James Bond
+
+Sat, 16 May 2026 21:30:14 GMT
+
+https://collider.com/most-addictive-movie-franchises-all-time-ranked/
+
+Cinema has several franchises so good that you won't want to stop watching them, including the spy thrills of James Bond and the ever-expanding MCU.
+---------
+
+# 4 Years Later, Tom Cruise’s 10/10 Action Sequel Is Still One of the Biggest Streaming Hits on Paramount+
+
+Movie News, Top Gun: Maverick, Tom Cruise, Action, Pluto TV
+
+Sat, 16 May 2026 21:15:14 GMT
+
+https://collider.com/tom-cruise-greatest-action-sequel-top-gun-maverick-free-streaming-success-pluto-tv-may-2026/
+
+Tom Cruise's cinema-saving masterpiece Top Gun: Maverick is a streaming favorite on an unlikely platform. Here's what you should know.
+---------
+
+# The Godfather Franchise Is Officially Expanding To Fix a Glaring Mistake in the Crime Saga
+
+Movie Features, The Godfather, Francis Ford Coppola, The Godfather Part II
+
+Sat, 16 May 2026 21:14:15 GMT
+
+https://collider.com/the-godfather-sequel-connie-corleone-book-adriana-trigiani-2027/
+
+The Godfather universe is growing, with a new book Connie set from the perspective of Vito Corleone's only daughter.
+---------
+
+# Forget 'Wuthering Heights' — Apple TV’s 6-Part Gothic Drama Is a Perfect Weekend Binge
+
+TV Features, The Essex Serpent, Claire Danes, Tom Hiddleston, Apple TV
+
+Sat, 16 May 2026 21:10:14 GMT
+
+https://collider.com/apple-tv-essex-serpent-gothic-drama-weekend-binge/
+
+The Essex Serpent was a 6-part Gothic drama that blends Victorian era mystery, romance, and streaming television's mature, prestige styling.
+---------
+
+# Say Goodbye to Quentin Tarantino’s 92% RT Crime Thriller Masterpiece Before It Leaves Peacock
+
+Movie News, Pulp Fiction, Quentin Tarantino, Peacock, Crime
+
+Sat, 16 May 2026 21:00:13 GMT
+
+https://collider.com/quentin-tarantino-crime-thriller-masterpiece-pulp-fiction-leaving-peacock-june-2026/
+
+The best movie of 1994, Quentin Tarantino's Pulp Fiction, is leaving its streaming home. Here's everything you should know about the crime classic.
+---------
+
+# Gene Roddenberry's 'Earth: Final Conflict' Rewrote His 'Star Trek' rules
+
+Features, Earth: Final Conflict, Star Trek, Star Trek: The Original Series
+
+Sat, 16 May 2026 21:30:18 GMT
+
+https://movieweb.com/gene-roddenberry-earth-final-conflict-unlike-star-trek/
+
+'Star Trek' wasn't Gene Roddenberry's only sci-fi project, but it was his most successful. Others are largely forgotten.
+---------
+
+# The Best Erotic Thrillers From the '90s
+
+Movie Lists, Romance, Thriller, 1990s
+
+Sat, 16 May 2026 21:00:18 GMT
+
+https://movieweb.com/erotic-thriller-movies-90s/
+
+Take a trip down memory lane with these great steamy and gripping '90s erotic thrillers.
+---------
+
+# 2026's 'Michael' Biopic Thrives While the Late Singer's 'The Simpsons' Episode Remains Banned on Streaming
+
+Features, The Simpsons, Michael
+
+Sat, 16 May 2026 21:00:17 GMT
+
+https://movieweb.com/the-simpsons-banned-michael-jackson-episode-relevant/
+
+Jackson was first accused of child abuse in 1993, but it took until 2019 for 'The Simpsons' to pull his episode. So what about the 2026 biopic?
+---------
+
 # 10 Abandoned Comic Book Movies We're Glad Never Happened
 
 Superheroes, DC Universe, Marvel Cinematic Universe
