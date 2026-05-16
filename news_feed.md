@@ -1,3 +1,168 @@
+# Adam Driver & Vanessa Kirby Officially Cast In Oscar-Winning Director's First Movie In 10 Years
+
+Movies
+
+Sat, 16 May 2026 19:36:27 GMT
+
+https://screenrant.com/tomorrow-is-a-drag-movie-adam-driver-vanessa-kirby-cast/
+
+After starring in massive franchises like Star Wars and the MCU, Adam Driver and Vanessa Kirby have joined the cast of an Oscar winner's new film.
+---------
+
+# 3 Years Later, A Former Superman Actor Is Officially Marvel’s New Spider-Man
+
+Streaming TV, Superman, Spider-Man
+
+Sat, 16 May 2026 19:30:20 GMT
+
+https://screenrant.com/spider-noir-nicolas-cage-spider-man-former-superman/
+
+A major event in the world of screen superheroes is about to take place, as Spider-Man's suit is passed onto an actor formerly known as Superman.
+---------
+
+# A Knight Of The Seven Kingdoms Showrunner Teases Season 2 Plot Is "Wading Into Politics" With New Character
+
+TV, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Sat, 16 May 2026 19:01:11 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-2-dunk-politics-lady-rohanne-ira-parker/
+
+A Knight of the Seven Kingdoms showrunner explains how the arrival of a new character will impact Dunk beyond the battlefield and into politics.
+---------
+
+# The Boys Officially Rewrites Gen V In Season 5
+
+Streaming TV, The Boys, Gen V
+
+Sat, 16 May 2026 19:00:21 GMT
+
+https://screenrant.com/the-boys-rewrite-gen-v-canon/
+
+Gen V seemed like it would tie in perfectly with The Boys' final season, but the main series has completely altered the spinoff's importance.
+---------
+
+# Far Cry Fans Split Over Far Cry 7's Villain Actor
+
+Gaming, Far Cry
+
+Sat, 16 May 2026 19:00:21 GMT
+
+https://screenrant.com/far-cry-7-villain-actor-gamer-reactions/
+
+The Far Cry franchise has put forward some iconic villains over the years, but fans can't decide what they want for the next game.
+---------
+
+# James Franco Joins Sylvester Stallone's $819M Franchise Prequel
+
+Movies, John Rambo
+
+Sat, 16 May 2026 19:57:34 GMT
+
+https://www.cbr.com/james-franco-sylvester-stallone-john-rambo-casting/
+
+James Franco partners up with Sylvester Stallone with his next movie role.
+---------
+
+# Taylor Sheridan's Brutal Spy Series Returns to the Charts in Anticipation of Season 3
+
+TV, Lioness, Thriller
+
+Sat, 16 May 2026 19:30:13 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-spy-thriller-paramount-success-may-2026/
+
+Taylor Sheridan's underrated spy thriller, Lioness, is a hit on streaming ahead of highly anticipated return.
+---------
+
+# Ryan Reynolds Fuels Avengers: Doomsday Rumors With 'Bonkers Edit' of the MCU
+
+Movies, Avengers: Doomsday, Deadpool & Wolverine, ryan reynolds
+
+Sat, 16 May 2026 19:17:16 GMT
+
+https://www.cbr.com/ryan-reynolds-fuels-avengers-doomsday-rumors-mcu-edit/
+
+Deadpool has yet to be confirmed as a part of Avengers: Doomsday, but Ryan Reynolds is still fueling the rumors.
+---------
+
+# 10 Best Anime With No True Villains
+
+Anime, Isekai, Crayon Shin-Chan, The 100 Girlfriends Who Really, Really, Really, Really, Really Love You, Grimgar of Fantasy and Ash
+
+Sat, 16 May 2026 19:16:12 GMT
+
+https://www.cbr.com/best-anime-with-no-villains/
+
+Not every anime series needs to have an evil mastermind behind the scenes pulling the strings.
+---------
+
+# 4 Days Before Finale, Prime Video's Heated Rivalry Replacement Defeats The Boys as the Most-Watched Show in the World
+
+TV, Off Campus, The Boys
+
+Sat, 16 May 2026 19:00:13 GMT
+
+https://www.cbr.com/off-campus-drama-defeats-the-boys-prime-video-may-2026/
+
+There's a new ruler in town, and Prime Video's new series has already defeated Homelander on the charts.
+---------
+
+# DC Comics Wants Brutally Honest Feedback on the Absolute Universe
+
+Comics, DCU, comics, warner bros, Absolute Batman
+
+Sat, 16 May 2026 19:00:13 GMT
+
+https://www.cbr.com/dc-comics-wants-brutally-honest-feedback-on-the-absolute-universe/
+
+DC Comics' Absolute Universe has taken the comic world by storm, but what do fans really think? The publisher is seeking brutally honest feedback.
+---------
+
+# 10 Director's Cuts That Are Far Better Than the Movie Everyone Saw
+
+Movie, Zack Snyder's Justice League, Blade Runner, The Abyss, Once Upon a Time in America
+
+Sat, 16 May 2026 19:36:15 GMT
+
+https://collider.com/directors-cuts-better-than-original-movie/
+
+The director's cuts of movies like Justice League and Almost Famous are far superior, fleshing out the characters and expanding on the existing story.
+---------
+
+# 20 Years Later, Jason Statham’s Most Chaotic Action Movie Is Leaving Streaming
+
+Movie News, Crank, Jason Statham, Action, Peacock
+
+Sat, 16 May 2026 19:00:14 GMT
+
+https://collider.com/jason-statham-chaotic-action-movie-crank-leaving-peacock-june-2026/
+
+Jason Statham's cult classic action movie, Crank, is leaving its streaming home soon. Find out everything you should know here.
+---------
+
+# John Wayne's Iconic Quote in John Ford's Classic Western 'The Searchers' Still Goes Hard 70 Years Later
+
+Features, The Searchers, John Wayne
+
+Sat, 16 May 2026 19:30:19 GMT
+
+https://movieweb.com/john-wayne-quote-the-searchers/
+
+John Ford's all-time great 1956 western 'The Searchers' features a recurring John Wayne quote that hits harder than ever 70 years on.
+---------
+
+# Disney's 'Eragon' TV Series Will Finally Redeem the 2006 Film's $250M Flop
+
+Features, Eragon, Disney, Disney+, Fantasy, Upcoming Tease
+
+Sat, 16 May 2026 19:00:19 GMT
+
+https://movieweb.com/eragon-the-inheritance-cycle-disney-redeem-flop/
+
+Christopher Paolini's 'The Inheritance Cycle' books may finally get a good screen adaptation thanks to Disney+'s upcoming 'Eragon' TV series.
+---------
+
 # Whether Claire & Jamie Survived Outlander Series Finale Addressed By Showrunner
 
 TV, Outlander, Outlander - Season 8
