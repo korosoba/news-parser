@@ -1,3 +1,256 @@
+# Dexter: Resurrection Villain Actor Was "Honored" To Create Disappointing Major Franchise First For Dexter Morgan
+
+Exclusive, Dexter: Resurrection, Dexter
+
+Sat, 16 May 2026 16:50:15 GMT
+
+https://screenrant.com/dexter-resurrection-al-rapunzel-not-captured-eric-stonestreet-response/
+
+EXCLUSIVE: Dexter: Resurrection gave a franchise first, and this star was "honored" to deliver a major blow to Dexter Morgan ahead of season 2 return.
+---------
+
+# Project Hail Mary Star's New Movie Debuts To Stellar Rotten Tomatoes Score After Cannes Premiere
+
+Movies, Masked Recs
+
+Sat, 16 May 2026 16:45:49 GMT
+
+https://screenrant.com/sandra-huller-fatherland-movie-rotten-tomatoes-score/
+
+Project Hail Mary star Sandra Hüller has a new film, and it just debuted to an outstanding score on Rotten Tomatoes following its Cannes premiere.
+---------
+
+# 2027 Will Be The End Of An Era For Crime Dramas On Netflix
+
+Streaming TV, The Lincoln Lawyer, The Night Agent
+
+Sat, 16 May 2026 16:45:21 GMT
+
+https://screenrant.com/netflix-crime-dramas-lincoln-lawyer-night-agent-ending-2027/
+
+As Netflix's crime drama lineup shifts, The Lincoln Lawyer & The Night Agent prepare for their satisfying endings, leaving fans to wonder what's next.
+---------
+
+# Star Wars Fans Thought Rotta The Hutt Casting Leak Was Too Weird To Be Real
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Sat, 16 May 2026 16:40:45 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-rotta-hutt-jeremy-allen-white-casting-fan-response/
+
+EXCLUSIVE: Jeremy Allen White being cast to voice Rotta the Hutt in The Mandalorian and Grogu was more than surprising for some Star Wars fans.
+---------
+
+# The 10 Best Nameless TV Show Characters Of All Time
+
+Classic TV
+
+Sat, 16 May 2026 16:30:19 GMT
+
+https://screenrant.com/best-nameless-tv-show-characters/
+
+Some of the most iconic TV show characters of all time have no last name, or are known by a nickname. However, others have no name at all.
+---------
+
+# Blumhouse's New Horror Movie Obsession Earns 14 Times Its Budget During Its Box Office Debut
+
+Movies, Box Office, Horror, Obsession
+
+Sat, 16 May 2026 16:12:57 GMT
+
+https://screenrant.com/obsession-2026-movie-domestic-box-office-debut/
+
+Curry Barker's directorial debut, the buzzy Blumhouse horror movie Obsession, earns back more than ten times its reported budget in a single weekend.
+---------
+
+# Michael Jackson Biopic Moonwalks Back To No. 1 At The Box Office, Surging Past Two Newer Hits
+
+Movies, Michael, Box Office
+
+Sat, 16 May 2026 16:10:01 GMT
+
+https://screenrant.com/michael-2026-movie-box-office-weekend-4-domestic-chart-report/
+
+The Michael Jackson biopic has managed to defeat two newer blockbusters to return to No. 1 at the domestic box office during its fourth weekend.
+---------
+
+# GTA 6 Pre-Order Update Divides Fans
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Sat, 16 May 2026 16:00:41 GMT
+
+https://screenrant.com/gta-6-pre-order-update-may-2026/
+
+Grand Theft Auto 6 could be dropping pre-orders on Monday, but the latest update on the subject has cast a shadow over the community's hype.
+---------
+
+# Dragon Ball's Biggest Collaborator Slams Modern Manga, And He Might Be Right
+
+Anime, Dragon Ball, Blue Lock, Jujutsu Kaisen
+
+Sat, 16 May 2026 16:00:20 GMT
+
+https://screenrant.com/dragon-ball-torishima-hates-modern-manga/
+
+Does modern manga secretly suck?
+---------
+
+# Power: Origins: Courtney Kemp Shares Filming Update For Power Prequel
+
+Exclusive, Power, Power: Origins
+
+Sat, 16 May 2026 16:00:20 GMT
+
+https://screenrant.com/power-origins-ghost-tommy-prequel-filming-update-courtney-kemp/
+
+Starz's Power: Origins, a prequel series focusing on young James 'Ghost' St. Patrick and Tommy Egan, receives an exciting update from creator Courtney Kemp about its ongoing production and anticipated release.
+---------
+
+# Most Powerful Characters In Black Clover, Ranked
+
+Anime, Manga, Black Clover
+
+Sat, 16 May 2026 16:40:13 GMT
+
+https://www.cbr.com/strongest-black-clover-characters-ranked/
+
+Magical power is everything in Black Clover, leading the strongest characters to push each other past their limits, constantly increasing their might.
+---------
+
+# 10 Forgotten Psychological Thrillers That Are Amazing Start to Finish
+
+Movies, Thriller, Identity, Dead Calm
+
+Sat, 16 May 2026 16:30:12 GMT
+
+https://www.cbr.com/perfect-psychological-thrillers-no-one-remembers-list/
+
+The psychological thriller has long been the darkest side of the genre, and these hidden gem classics are a testament to that.
+---------
+
+# The Most Forgotten Transformers Eras Saved the Franchise
+
+Anime, Transformers, Transformers: Victory
+
+Sat, 16 May 2026 16:17:13 GMT
+
+https://www.cbr.com/forgotten-transformers-anime-eras-saved-franchise/
+
+Transformers is mostly defined by Generation 1, but two eras of anime helped sustain and revitalize the brand in different parts of the world.
+---------
+
+# Jason Statham & Guy Ritchie's New Action Thriller Based on Bestselling Novel Gets Massive Update
+
+Movies, Jason Statham, guy ritchie
+
+Sat, 16 May 2026 16:15:44 GMT
+
+https://www.cbr.com/jason-statham-guy-ritchie-viva-la-madness-filming-wrap-update/
+
+Jason Statham has been attached to the adaptation for over a decade.
+---------
+
+# Maximum Pleasure Guaranteed Cast Teases the Show’s Wild Mystery
+
+TV, Maximum Pleasure Guaranteed
+
+Sat, 16 May 2026 16:15:14 GMT
+
+https://www.cbr.com/video/maximum-pleasure-guaranteed-cast-teases-the-show-s-wild-mystery/
+
+Maximum Pleasure Guaranteed stars Charlie Hall and Kiarra Hamagami Goldberg tease the Apple TV mystery series’ chaotic coworker dynamic, hidden secrets, and “Scooby Gang” energy.The cast breaks down why Jerry and Rudy are so invested in uncovering the truth, how the show balances suspense with comedy, and what makes the office relationships feel so fun and unpredictable. Charlie Hall also talks about Rudy deleting his LinkedIn, while Kiarra Hamagami Goldberg shares why keeping the series’ twists secret has been exciting ahead of release.From Slack meme reactions to mystery teases, this interview dives into why Maximum Pleasure Guaranteed could become Apple TV’s next fan obsession.
+---------
+
+# Mckenna Grace's New Body Horror Is Officially the No. 1 Film on Paramount+ in the U.S.
+
+Movies, Slanted, Scooby-Doo
+
+Sat, 16 May 2026 16:00:13 GMT
+
+https://www.cbr.com/mckenna-grace-slanted-body-horror-paramount-plus-us-success-may-2026/
+
+A wildly underrated body horror film with one of the next Scooby-Doo stars in a twisted leading role is lighting up the streaming charts.
+---------
+
+# One Piece Is Officially Saying Goodbye to This Iconic LEGO Set Less Than 1 Year After Release
+
+Anime, One Piece, LEGO
+
+Sat, 16 May 2026 16:00:13 GMT
+
+https://www.cbr.com/one-piece-arlong-park-lego-set-retiring/
+
+One of the most beloved One Piece LEGO sets is officially being retired exactly one year after fans first got their hands on it.
+---------
+
+# This Intense Sci-Fi Thriller Is 'Jaws' Meets 'The Gorge'
+
+Movie Features, Sci-Fi, Thriller, Jaws, Last Sentinel
+
+Sat, 16 May 2026 16:36:15 GMT
+
+https://collider.com/last-sentinel-2023-sci-fi-thriller-jaws-meets-the-gorge-free-streaming-youtube/
+
+The 2023 movie Last Sentinel is an isolating, heart-pumping sci-fi thriller perfect for fans of Jaws and The Gorge.
+---------
+
+# Bob Dylan Wrote His Most Heartbreaking Song 2 Years After "Knockin' on Heaven's Door"
+
+Music Features, Bob Dylan, Rock, Music, Billboard Hot 100
+
+Sat, 16 May 2026 16:30:12 GMT
+
+https://collider.com/bob-dylan-simple-twist-of-fate-blood-on-the-tracks-1975-album/
+
+Bob Dylan's 1975 song may be his most emotional work, even surpassing Knockin' on Heaven’s Door in heartbreak and lyrical depth.
+---------
+
+# The Real John Wick Only Made One Appearance Across The Entire Franchise
+
+Movie Features, John Wick: Chapter 2, John Wick, Keanu Reeves, John Wick: Chapter 4
+
+Sat, 16 May 2026 16:18:12 GMT
+
+https://collider.com/real-john-wick-made-one-appearance-in-franchise/
+
+John Wick officially reverts to his contract killer role only once throughout the franchise, when he lets the "Baba Yaga" make a rare appearance.
+---------
+
+# Netflix’s ‘Reacher’ Replacement Becomes a Streaming Heavyweight With 130 Million Hours Viewed
+
+TV News, Yahya Abdul-Mateen II, Netflix, Man on Fire, Reacher
+
+Sat, 16 May 2026 16:00:13 GMT
+
+https://collider.com/netflix-reacher-replacement-man-on-fire-series-remake-yahya-abdul-mateen-130-million-hours-viewed/
+
+Netflix’s best Reacher replacement has officially crossed a massive milestone, accumulating over 130 million hours viewed in just 2 weeks.
+---------
+
+# Henry Cavill's Forgotten War Movie 'Sand Castle' Is a Streaming Hidden Gem on Netflix
+
+Features, Sand Castle, Netflix, Henry Cavill, Action
+
+Sat, 16 May 2026 16:30:17 GMT
+
+https://movieweb.com/sand-castle-henry-cavill-netflix-streaming-war/
+
+Henry Cavill's underrated Netflix war movie 'Sand Castle' is a hidden gem on streaming, following Guy Ritchie's 'In The Grey' action thriller.
+---------
+
+# 'Storm Rider': 'Mad Max' Meets 'Waterworld' in 2026's Craziest Sci-Fi Action Movie
+
+Features, Sci-Fi, Action, Storm Rider: Legend of Hammerhead, Mad Max, Waterworld, Comparison Recommendation
+
+Sat, 16 May 2026 16:00:18 GMT
+
+https://movieweb.com/storm-rider-legend-of-hammerhead-sci-fi/
+
+There's also a dash of 'Dune', 'The Hunger Games', and even 'Star Wars' in a madcap mix of genres that should be on everyone's 2026 radar.
+---------
+
 # Rewatching This 17-Year-Old Sci-Fi Series I Loved Is A Frustrating Experience In 2026
 
 Classic TV, Masked Recs
