@@ -1,3 +1,157 @@
+# 10 Off Campus Scenes That Prove Hannah & Garrett Are OTPs
+
+Streaming TV, Off Campus
+
+Sat, 16 May 2026 11:30:19 GMT
+
+https://screenrant.com/off-campus-scenes-garrett-hannah-otp/
+
+Prime Video's Off Campus season 1 tells the love story of Hannah Wells and Garrett Graham, and these ten scenes prove that they are truly OTPs.
+---------
+
+# Dark Souls Officially Returns May 20 With A New Adventure
+
+Gaming, Dark Souls, PC, Triple-A Games
+
+Sat, 16 May 2026 11:30:19 GMT
+
+https://screenrant.com/dark-souls-mother-of-mourning-may-2026/
+
+Dark Souls is returning in May for a new installment in a series that you might not have been aware of, full of epic storytelling and lore.
+---------
+
+# Skyrim: Lordbound Is The Expansion We Always Wanted
+
+Gaming, The Elder Scrolls V: Skyrim, The Elder Scrolls
+
+Sat, 16 May 2026 11:00:20 GMT
+
+https://screenrant.com/skyrim-lordbound-unofficial-expansion-bethesda/
+
+Skyrim: Lordbound is a hugely ambitious mod that hands a whole new region to the already enormous game.
+---------
+
+# Where Kayce Was During The Dutton Ranch Fire
+
+TV, Yellowstone, Dutton Ranch, Marshals
+
+Sat, 16 May 2026 11:00:20 GMT
+
+https://screenrant.com/dutton-ranch-fire-kayce-east-camp-location/
+
+Dutton Ranch begins with a huge fire in Montana that changed the course of Beth and Rip's lives. But where was Kayce Dutton and why didn't he help?
+---------
+
+# Sonic the Hedgehog 4 First Look Photo Brings Metal Sonic to Life
+
+Movies, Sonic the Hedgehog 4
+
+Sat, 16 May 2026 11:30:13 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-4-first-look-photo-brings-metal-sonic-to-life/
+
+The director is already calling it the "best" Sonic movie yet, and the first look is nothing short of amazing.
+---------
+
+# It's Official, Netflix Just Replaced Titus Welliver's 97% RT Crime Show
+
+TV, Crime, The Night Agent, Bosch
+
+Sat, 16 May 2026 11:30:13 GMT
+
+https://www.cbr.com/netflix-titus-welliver-bosch-energy-the-night-agent/
+
+With Bosch ending, Netflix leans on actor Titus Welliver in The Night Agent to bring the procedural crime drama energy to the new hit series.
+---------
+
+# The Sequel to 1 of 2025's Best Live-Action Films Unveils First Look With Major Update
+
+Movies, How To Train Your Dragon 2
+
+Sat, 16 May 2026 11:00:13 GMT
+
+https://www.cbr.com/how-to-train-your-dragon-2-major-filming-update/
+
+The film already has a release date planned for next year, and it just reached a massive milestone.
+---------
+
+# Charlie Sheen's The Arrival Is Ready for a Second Chance 30 Years Later
+
+Movies, Sci-Fi, The Arrival
+
+Sat, 16 May 2026 11:00:13 GMT
+
+https://www.cbr.com/charlie-sheen-the-arrival-sci-fi-flop-redemption/
+
+The Arrival is an underseen Charlie Sheen sci-fi movie that might've failed at first but deserves new eyes in a modern age.
+---------
+
+# This Forgotten X-Men Story Is More Relevant Than Ever in 2026
+
+Comics, X-Men
+
+Sat, 16 May 2026 11:00:13 GMT
+
+https://www.cbr.com/x-men-the-198-relevancy/
+
+With the X-Men heading into the MCU, fans are looking back on some forgotten stories to see where the team might head next.
+---------
+
+# Kevin Costner Goes Full Jason Statham in His Most Underrated Action Movie Heading to a Free Streamer
+
+Movie News, Revenge, Kevin Costner, Yellowstone, Tubi
+
+Sat, 16 May 2026 11:30:14 GMT
+
+https://collider.com/kevin-costner-action-thriller-revenge-free-streaming-tubi-june-2026/
+
+Kevin Costner channels his inner Jason Statham in one of his most underseen movies heading to a free streamer.
+---------
+
+# 12 Years Later, This Forgotten Sci-Fi Series Is Still a Near-Perfect Time-Travel Binge
+
+TV Features, Sci-Fi, Continuum, Rachel Nichols, Simon Barry
+
+Sat, 16 May 2026 11:23:13 GMT
+
+https://collider.com/continuum-underrated-sci-fi-series-perfect-time-travel-binge/
+
+Continuum remains one of the smartest sci-fi shows of the 2010s, blending time travel, dystopian politics, and gripping action.
+---------
+
+# Jon Favreau Explains Why 'The Mandalorian' Season 4 Didn’t Happen [Exclusive]
+
+Exclusives, The Mandalorian, The Mandalorian and Grogu, Star Wars, Jon Favreau
+
+Sat, 16 May 2026 11:01:13 GMT
+
+https://collider.com/the-mandalorian-season-4-movie-pivot-explained-jon-favreau/
+
+Jon Favreau explains why The Mandalorian Season 4 didn’t happen and how the story became The Mandalorian and Grogu.
+---------
+
+# ‘John Wick’ Meets ‘28 Days Later’ in Anya Taylor-Joy’s Brutal Sci-Fi Sleeper Hit
+
+Movie News, The Gorge, Anya Taylor-Joy, John Wick, 28 Days Later
+
+Sat, 16 May 2026 11:00:14 GMT
+
+https://collider.com/anya-taylor-joy-sci-fi-sleeper-hit-the-gorge-streaming-success-apple-tv-may-2026-john-wick-28-days-later/
+
+Anya Taylor-Joy's 10/10 sci-fi sleeper hit with shades of John Wick and 28 Days Later is the perfect streaming success story.
+---------
+
+# 50 Greatest 'SNL' Sketches of All Time, Ranked
+
+TV, Saturday Night Live, Comedy, NBC, Lorne Michaels
+
+Sat, 16 May 2026 10:52:13 GMT
+
+https://collider.com/saturday-night-live-best-sketches-ranked/
+
+Over 50 seasons, Saturday Night Live has entertained audiences for decades thanks to its iconic sketches, but which one will be crowned the best?
+---------
+
 # One Piece Season 3's Confirmed Release Solves The Netflix Adaptation's Only Real Flaw
 
 Streaming TV, One Piece
