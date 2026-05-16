@@ -1,3 +1,267 @@
+# Stardew Valley Meets Resident Evil In New Farming/Horror Hybrid
+
+Gaming, Stardew Valley, Resident Evil, PC
+
+Sat, 16 May 2026 05:00:20 GMT
+
+https://screenrant.com/besmirch-stardew-valley-meets-resident-evil/
+
+A new Stardew Valley-inspired “survival horror farming sim” has made its way onto Steam in early access, and it already looks promising.
+---------
+
+# Steam Makes Hit Single-Player RPG 100% Free For 24 Hours
+
+Gaming, Steam, RPG, Triple-A Games, GreedFall, PC
+
+Sat, 16 May 2026 04:45:19 GMT
+
+https://screenrant.com/steam-free-single-player-rpg-may-2026-24-hours/
+
+A single-player RPG released a few months ago is now 100% free on Steam, but players will need to move fast because the time to play it is limited.
+---------
+
+# Steam's New 9/10 Free RPG Is An Unexpected Treat
+
+Gaming, Steam, PC, Indie Games
+
+Sat, 16 May 2026 04:30:20 GMT
+
+https://screenrant.com/steam-free-rpg-may-2026-between-stops/
+
+Steam has a new free RPG, and it's already winning players over with its unique blend of gameplay mechanics, storytelling, and genres.
+---------
+
+# Bloodborne Is Getting The Sequel We Always Wanted
+
+Gaming, Bloodborne, FromSoftware
+
+Sat, 16 May 2026 04:00:29 GMT
+
+https://screenrant.com/bloodborne-hardborne-unofficial-2026-sequel/
+
+Bloodborne is already quite a difficult game, but there's one mod out there that dials up the challenge even further.
+---------
+
+# Blumhouse's New Horror Movie Obsession Has One Of The Studio's Best Rotten Tomatoes Scores In History
+
+Movies, Masked Recs, Blumhouse
+
+Sat, 16 May 2026 03:59:23 GMT
+
+https://screenrant.com/blumhouse-obsession-rotten-tomatoes-audience-score/
+
+Blumhouse's new supernatural horror movie is now in theaters and has one of the best Rotten Tomatoes audience scores in the studio's history.
+---------
+
+# Naruto's Next Anime Will Introduce The Franchise's Strongest Susanoo Of All Time
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Sat, 16 May 2026 03:59:21 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-anime-sarada-susanoo/
+
+While not appearing yet in the new sequel series, the Susanoo is bound to make an appearance as threats escalate to Ten-Tails levels once more.
+---------
+
+# MobLand Season 2 Update Gives Guy Ritchie Another Big Win
+
+Streaming TV, MobLand, Guy Ritchie
+
+Sat, 16 May 2026 03:42:59 GMT
+
+https://screenrant.com/mobland-season-2-guy-ritchie-2026-tv-show-returns/
+
+As Guy Ritchie’s small-screen presence continues to grow from strength to strength, he seems to have landed another major win with MobLand season 2.
+---------
+
+# Bosch Meets Dark In 11-Part Genre-Bending Sci-Fi That’s Perfect For Binge-Watching
+
+Streaming TV, Masked Recs
+
+Sat, 16 May 2026 03:31:28 GMT
+
+https://screenrant.com/the-devils-hour-prime-video-recommendation/
+
+Rather than sticking to a single genre, Prime Video's 11-part sci-fi blends multiple genres, making it the perfect combination of Bosch and Dark.
+---------
+
+# Isekai Has Officially Reached Its Final Form Thanks to Wild New Series
+
+Anime, Manhwa, Isekai
+
+Sat, 16 May 2026 03:30:20 GMT
+
+https://screenrant.com/otome-isekai-peak-final-form-child-protective-services/
+
+While isekai and power fantasies struggle with oversaturation, one branch of isekai waits to be discovered, and a new series proves its genius.
+---------
+
+# Sonic The Hedgehog 4 Gets Major Filming Update With First Look Of Villain
+
+Movies, Sonic the Hedgehog 4
+
+Sat, 16 May 2026 03:12:27 GMT
+
+https://screenrant.com/sonic-the-hedgehog-4-filming-update-metallic/
+
+Sonic The Hedgehog 4 director Jeff Fowler reveals a major filming update for the upcoming sequel along with a first look at the film's villain.
+---------
+
+# It's Officially The End Of An Era For Yellowstone In Dutton Ranch
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 16 May 2026 04:07:37 GMT
+
+https://www.cbr.com/dutton-ranch-beth-rip-texas-move-end-of-era/
+
+It's the end of an era for Taylor Sheridan's Yellowstone franchise in Beth and Rip's spinoff, as Dutton Ranch ushers in historic developments.
+---------
+
+# 10 Near-Perfect Shojo Manga You've Never Heard Of But Need to Start Reading
+
+Anime, Manga, Shojo
+
+Sat, 16 May 2026 03:45:14 GMT
+
+https://www.cbr.com/must-read-underrated-near-perfect-shojo-manga-list/
+
+From post-apocalyptic survival to supernatural abilities, these manga offer fresh perspectives and unforgettable characters that highlight the genre.
+---------
+
+# 10 Greatest R-Rated Thriller Masterpieces, Ranked
+
+Movies, Thriller, Heat, Se7en
+
+Sat, 16 May 2026 03:45:14 GMT
+
+https://www.cbr.com/perfect-r-rated-thrillers-list/
+
+A great thriller movie is at its best when directors embrace the darkness of crime and mystery, and these R-rated gems prove it.
+---------
+
+# 8 Sci-Fi Shows Better than Stranger Things
+
+TV, Stranger Things, Sci-Fi, Dark, Severance
+
+Sat, 16 May 2026 03:30:13 GMT
+
+https://www.cbr.com/sci-fi-shows-better-stranger-things-list/
+
+From Dark to Severance, these sci-fi series surpass Stranger Things with richer worldbuilding, smarter storytelling, and bolder genre innovation.
+---------
+
+# 10 Best GTA Themes, Ranked
+
+Games, Grand Theft Auto, Grand Theft Auto 5, rockstar games
+
+Sat, 16 May 2026 03:15:15 GMT
+
+https://www.cbr.com/gta-grand-theft-auto-theme-music-soundtrack/
+
+Vice City and San Andreas have the best theme songs in the GTA franchise.
+---------
+
+# Review - WEBTOON's Fog Land is the Next Genre Defining Action Horror Series
+
+Anime, webtoon
+
+Sat, 16 May 2026 03:00:14 GMT
+
+https://www.cbr.com/fog-land-webtoons-review-official-near-perfect-action-horror/
+
+The latest breakout hit horror series is quickly becoming a WEBTOON all-star, and it absolutely deserves all the attention it can get.
+---------
+
+# Mob Psycho 100 Releases New 10th Anniversary Anime Promo
+
+Anime, Mob Psycho 100
+
+Sat, 16 May 2026 03:00:14 GMT
+
+https://www.cbr.com/mob-psycho-100-10th-anniversary-first-look-reveal/
+
+Mob Psycho 100 rolls out the red carpet with new designs for Mob and his psychic crew in the anime's 10th Anniversary reveal.
+---------
+
+# 10 Greatest Fantasy Anime of the Last 25 Years
+
+Anime, Fantasy
+
+Sat, 16 May 2026 02:45:14 GMT
+
+https://www.cbr.com/best-fantasy-anime-past-25-years-list/
+
+The evolution of fantasy anime has moved beyond traditional tropes to reflect reality through myth, symbolism, and complex character development.
+---------
+
+# 10 Best Sailor Moon Ships, Ranked
+
+Anime, Sailor Moon
+
+Sat, 16 May 2026 02:15:13 GMT
+
+https://www.cbr.com/best-sailor-moon-ships-ranked-list/
+
+From the tragic to the tender, Sailor Moon's relationships reveal the show's deepest convictions about love and sacrifice.
+---------
+
+# 8 Perfect Sci-Fi Movies That Get Better With Every Rewatch
+
+Movie, Science Fiction, Donnie Darko, The Thing, Interstellar
+
+Sat, 16 May 2026 04:08:13 GMT
+
+https://collider.com/perfect-sci-fi-movies-get-better-every-rewatch/
+
+From cult classics like Donnie Darko to horror masterpieces like The Thing, these sci-fi movie gems keep getting better every time you rewatch them.
+---------
+
+# Apple TV’s 10-Part Sci-Fi Series Is the Perfect Binge Before Season 2
+
+TV Features, Murderbot, Alexander Skarsgard, Chris Weitz, David Dastmalchian
+
+Sat, 16 May 2026 04:02:14 GMT
+
+https://collider.com/apple-tv-sci-fi-murderbot-perfect-binge-before-season-2/
+
+Apple TV's 10-part sci-fi series Murderbot is the perfect binge before it returns for Season 2.
+---------
+
+# HBO Max’s 2-Part Masterpiece Hits 1.3 Billion Minutes Viewed In a Single Week
+
+Movie News, The Pitt, HBO Max, Noah Wyle, ER
+
+Sat, 16 May 2026 02:45:14 GMT
+
+https://collider.com/the-pitt-hbo-max-masterpiece-1-billion-minutes-viewed-nielsen-ratings/
+
+HBO Max's groundbreaking medical drama series, The Pitt, continues to rule over the competition in the latest Nielsen ratings. Find out more here.
+---------
+
+# The Most Ambitious ‘Lord of the Rings’ Project Since ‘Rings of Power’ Is Officially Dead
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power, Peter Jackson
+
+Sat, 16 May 2026 02:30:15 GMT
+
+https://collider.com/lord-of-the-rings-amazon-mmo-game-cancelled-3-years-development/
+
+Amazon's new Lord of the Rings project has been officially cancelled, despite being in development for over three full years.
+---------
+
+# It’s a ‘Brand New Day’ for Jon Bernthal’s Punisher as Disney+ Special Dominates Streaming
+
+TV News, The Punisher: One Last Kill, Jon Bernthal, Daredevil: Born Again, Spider-Man: Brand New Day
+
+Sat, 16 May 2026 02:15:13 GMT
+
+https://collider.com/daredevil-born-again-mcu-spin-off-the-punisher-one-last-kill-streaming-success-disney-plus-may-2026/
+
+Jon Bernthal's standout performance in The Punisher: One Last Kill has topped Disney+'s streaming charts.
+---------
+
 # Cyberpunk 2077 Legends Officially Return With Multiple New 2026 Releases
 
 Gaming, Cyberpunk 2077, Triple-A Games, PC
