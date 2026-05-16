@@ -1,3 +1,201 @@
+# Victor’s OG Warning About Christopher Has Dark Foreshadowing For Jade, Teases From Season 4 Star
+
+TV, From, FROM - Season 4
+
+Sat, 16 May 2026 17:35:43 GMT
+
+https://screenrant.com/from-season-4-victor-christopher-funny-warning-jade-tease-david-alpay/
+
+EXCLUSIVE: A dire warning given by Victor previously in From may lead to serious consequences according to this star of the MGM+ horror series.
+---------
+
+# Sherlock's First Episode Changed The Rules Of Television In Less Than 5 Minutes
+
+Classic TV, Sherlock
+
+Sat, 16 May 2026 17:30:21 GMT
+
+https://screenrant.com/sherlock-text-messages-scenes-changed-television/
+
+Sherlock is one of the best detective shows of all time, and it changed the game in its first couple of minutes with a brilliant visual trick.
+---------
+
+# Absolute Scarecrow Is Officially So Much Worse Than In Mainstream DC
+
+DC Comics, Batman
+
+Sat, 16 May 2026 17:00:20 GMT
+
+https://screenrant.com/absolute-batman-scarecrow-update/
+
+DC reveals why Batman's creepiest villain just became even more terrifying in 2026, leaving Bruce Wayne almost defenseless against this foe.
+---------
+
+# 10 Samurai TV Shows Currently Streaming (#1 Is A Masterpiece)
+
+TV, Ranking
+
+Sat, 16 May 2026 17:00:20 GMT
+
+https://screenrant.com/samurai-tv-shows-streaming/
+
+There have never been as many high-quality samurai TV series are there are today, with no fewer than 10 of them streaming on major platforms.
+---------
+
+# The Mortal Kombat Movie Franchise Needs To Fix Its Fatality Problem
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Sat, 16 May 2026 16:55:22 GMT
+
+https://screenrant.com/mortal-kombat-movie-fatality-problem-fix-problem/
+
+Mortal Kombat II improves on the 2021 movie in every way, but it continues the live-action saga's weird shyness about the game's fatalities.
+---------
+
+# Final Fantasy 7: Heroes of Midgar Officially Revealed
+
+Games, Final Fantasy VII, Final Fantasy
+
+Sat, 16 May 2026 17:25:14 GMT
+
+https://www.cbr.com/ff7-heroes-of-midgar-official-reveal-2026/
+
+The most beloved Final Fantasy game of all time is officially getting the symphony treatment that fans didn't even know they were missing out on.
+---------
+
+# 7 Near-Perfect PS1 Games With Multiple Discs
+
+Games, PlayStation (Original), Metal Gear Solid
+
+Sat, 16 May 2026 17:15:13 GMT
+
+https://www.cbr.com/near-perfect-ps1-games-multiple-discs/
+
+One disc wasn't enough to contain the greatness of Metal Gear Solid or Xenogears.
+---------
+
+# Everyone Is Flocking to Taylor Sheridan's Best Yellowstone Spinoff in Years
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 16 May 2026 17:00:13 GMT
+
+https://www.cbr.com/dutton-ranch-yellowstone-western-paramount-plus-success-may-2026/
+
+Even two years after the flagship series' finale, the Yellowstone universe is thriving.
+---------
+
+# Marvel Just Killed Off an Original Avenger, And It Seems Permanent
+
+Comics, The Ultimates, Ultimate Marvel, Captain America
+
+Sat, 16 May 2026 17:00:13 GMT
+
+https://www.cbr.com/marvel-killed-off-captain-america-permanent/
+
+One of the newest versions of a founding member of the Avengers is officially dead and gone, and there doesn't seem to be any coming back this time.
+---------
+
+# 10 Greatest Horror Thrillers of All Time, Ranked
+
+Movie, Thriller, The Silence of the Lambs, Horror, Diabolique
+
+Sat, 16 May 2026 17:28:13 GMT
+
+https://collider.com/best-horror-thrillers-all-time-ranked/
+
+From recent gems like Saint Maud to proper classics like The Silence of the Lambs, these are the all-time best horror thrillers in cinematic history.
+---------
+
+# 10 Greatest Western TV Actors of All Time, Ranked
+
+TV, Western, Clint Eastwood, Kevin Costner, Sam Elliott
+
+Sat, 16 May 2026 17:19:13 GMT
+
+https://collider.com/best-western-tv-actors-all-time-ranked/
+
+From the legendary Clint Eastwood to the gruff Sam Elliott and the charismatic Kevin Costner, who is the greatest Western TV actor of all time?
+---------
+
+# The Most Famous Lost Film in Oscar History Still Hasn’t Been Found
+
+Movie Features, Academy Awards, Oscar, History, The Patriot
+
+Sat, 16 May 2026 17:10:15 GMT
+
+https://collider.com/the-patriot-lost-oscar-nominated-silent-film/
+
+Nearly 100 years later, Oscar-nominated silent film The Patriot remains lost, with only fragments and a surviving trailer left behind.
+---------
+
+# Paul Dano Reveals First Details on Long Awaited Second Directorial Project [Exclusive]
+
+Exclusives, The Wizard of the Kremlin, Paul Dano, The Batman, The Batman Part II
+
+Sat, 16 May 2026 17:09:48 GMT
+
+https://collider.com/paul-dano-second-directorial-project-the-wizard-of-the-kremlin-interview/
+
+Paul Dano shares insights into his upcoming film, his thoughts on Steven Spielberg's movies, and his potential role in Matt Reeves' The Batman sequel.
+---------
+
+# 10 Classic Thriller TV Shows Still Worth Binge-Watching Today
+
+TV, Thriller, The Sopranos, Twin Peaks, Prison Break
+
+Sat, 16 May 2026 17:04:13 GMT
+
+https://collider.com/classic-thriller-shows-worth-binge-watching-today/
+
+Experience the excitement of these groundbreaking classic thriller TV shows that revolutionized the genre, from Twin Peaks to Miami Vice.
+---------
+
+# New Horror Movie Sensation 'Obsession' Had Its Ending Completely Changed, According to Star
+
+Interviews, Inde Navarrette, Obsession, Curry Barker, Ladies Night
+
+Sat, 16 May 2026 17:01:14 GMT
+
+https://collider.com/obsession-ending-completely-changed-inde-navarrette/
+
+Obsession breakout star Inde Navarrette joins Perri Nemiroff for a Ladies Night conversation to cover her jaw-dropping work in Curry Barker's film.
+---------
+
+# 24 Years Later, Brendan Fraser’s Banned Political Thriller Is Leaving Streaming Soon
+
+Movie News, Michael Caine, Brendan Fraser, The Quiet American, Paramount Plus
+
+Sat, 16 May 2026 17:01:14 GMT
+
+https://collider.com/michael-caine-brendan-fraser-political-thriller-quiet-american-leaving-paramount-plus-june-2026/
+
+Michael Caine and Brendan Fraser's The Quiet American, which had a difficult road to release after 9/11, is leaving Paramount+ soon. Find out when.
+---------
+
+# Denzel Washington Officially Beat Vin Diesel to the 'Hannibal' Trilogy He's Wanted for 24 Years
+
+Features, Denzel Washington, Vin Diesel, Hannibal the Conqueror
+
+Sat, 16 May 2026 17:30:19 GMT
+
+https://movieweb.com/denzel-washington-vin-diesel-hannibal-barca/
+
+Denzel Washington's Hannibal Barca movie is officially in production, decreasing the chances of Vin Diesel's similar project ever getting made.
+---------
+
+# 8 Cult Flops That Got a Long-Awaited Sequel Over 10 Years Later
+
+Movie Lists
+
+Sat, 16 May 2026 17:00:18 GMT
+
+https://movieweb.com/cult-flops-sequel-10-years-later/
+
+Lots of movies get sequels. Even movies that didn't succeed the first time around.
+---------
+
 # Dexter: Resurrection Villain Actor Was "Honored" To Create Disappointing Major Franchise First For Dexter Morgan
 
 Exclusive, Dexter: Resurrection, Dexter
