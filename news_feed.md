@@ -1,3 +1,267 @@
+# Demon Slayer: Infinity Castle Part 2 Is Finally Going To Give The Most Controversial Hashira His Time To Shine
+
+Anime, Demon Slayer
+
+Sat, 16 May 2026 22:30:20 GMT
+
+https://screenrant.com/demon-slayer-sanemi-most-controversial-hashira-explained/
+
+Demon Slayer: Infinity Castle Part 2 will give one of the most powerful, yet controversial, Hashira the moment fans have been waiting for.
+---------
+
+# Netflix’s New 7-Part Action Thriller Has One Of Its Best Casts
+
+TV, Masked Recs
+
+Sat, 16 May 2026 22:30:20 GMT
+
+https://screenrant.com/man-on-fire-netflix-best-cast/
+
+Netflix has an array of scintillating action thrillers, but this recent release has one of the streaming giant's best casts in the genre.
+---------
+
+# Resident Evil’s Most Frightening Enemy Is An Easter Egg 99% Of Fans Missed
+
+Gaming, Resident Evil, Triple-A Games
+
+Sat, 16 May 2026 22:30:20 GMT
+
+https://screenrant.com/resident-evil-easter-egg-movie-director-zach-cregger/
+
+One of the scariest enemies of any Resident Evil game may have a spiritual successor, and it could be thanks to how effectively terrifying it was.
+---------
+
+# 10 Cheesy Horror Movies We Still Love
+
+Movies, Horror
+
+Sat, 16 May 2026 22:25:20 GMT
+
+https://screenrant.com/cheesy-horror-movies-we-still-love/
+
+A little bit of cheese never hurt anyone, and these 10 horror gems are certainly more silly than they are scary. Nevertheless, we love them anyway.
+---------
+
+# A Hidden Detail Changes Everything About Outlander’s Series Finale
+
+Streaming TV, Outlander
+
+Sat, 16 May 2026 22:15:19 GMT
+
+https://screenrant.com/outlander-series-finale-claire-jamie-death-rock-magic-detail/
+
+Outlander's big finale was certainly impactful, but one small detail suggests that there is so much more to this conclusion than meets the eye.
+---------
+
+# The Final Episodes Of Alan Tudyk’s Hit Firefly Replacement Sci-Fi Series Officially Release On Netflix Next Month
+
+TV, Masked Recs, Alan Tudyk
+
+Sat, 16 May 2026 22:02:14 GMT
+
+https://screenrant.com/resident-alien-season-4-netflix-streaming-release-date/
+
+Alan Tudyk's beloved Sci-fi TV show, which is the perfect Firefly replacement, is finally set to release the final episodes on Netflix very soon.
+---------
+
+# 15 Greatest Dark Anime Of All Time
+
+Anime
+
+Sat, 16 May 2026 22:00:21 GMT
+
+https://screenrant.com/darkest-anime-series-ever-ranked/
+
+Anime has many dark series and movies, so here are the 15 darkest anime of all time that everyone needs to see at least once in their life.
+---------
+
+# 7 Years Ago Was A Difficult Time To Be A Batman Fan
+
+Superheroes, Batman
+
+Sat, 16 May 2026 22:00:20 GMT
+
+https://screenrant.com/batman-gotham-titans-weird-time-dc-tv/
+
+2019 was Batman's 80th anniversary, but two projects from that year didn't do the character justice and made it difficult to be a Batman fan.
+---------
+
+# The Last Of Us Joel & Ellie Officially Reunite In New Release
+
+Gaming, The Last of Us
+
+Sat, 16 May 2026 22:00:20 GMT
+
+https://screenrant.com/last-of-us-joel-ellie-summer-2026-release/
+
+Dark Horse releases a limited-edition The Last of Us statue featuring Joel and Ellie on horseback, capturing a pivotal moment from the game.
+---------
+
+# 10 Hidden Gem Action Movies You Need To Stream Right Now
+
+Classic Movies, Ranking
+
+Sat, 16 May 2026 21:55:21 GMT
+
+https://screenrant.com/hidden-gem-action-movies-streaming-now/
+
+There are several overlooked but great action movies are worth checking out on different streaming services and here are ones to watch right now.
+---------
+
+# Ahead of The Lord of the Rings Spinoff, Jamie Dornan's $1.32B Trilogy Is Leaving Netflix Soon
+
+Movies, Fifty Shades of Grey, The Lord of the Rings: The Hunt for Gollum
+
+Sat, 16 May 2026 22:30:13 GMT
+
+https://www.cbr.com/jamie-dornan-fifty-shades-of-grey-trilogy-leaving-netflix-june-2026/
+
+Discover Dornan's blockbuster franchise before he takes on a beloved role in The Lord of the Rings franchise.
+---------
+
+# The 10 Most Perfect Movies of the Last 30 Years, Ranked
+
+Movies, Drama, Mad Max: Fury Road, Christopher Nolan
+
+Sat, 16 May 2026 22:30:13 GMT
+
+https://www.cbr.com/most-perfect-movies-last-30-years-ranked-list/
+
+Since 1996, there have been countless masterpieces released, but these ten movies stand out as the most perfect experiences of the last three decades.
+---------
+
+# 10 Best Pokémon Cards of All Time, Ranked By Their Art
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Sat, 16 May 2026 22:16:13 GMT
+
+https://www.cbr.com/best-pokmon-full-art-cards/
+
+The Pokémon TCG is filled with cards that stand as true works of art.
+---------
+
+# Gus Van Sant's Best Movie in 18 Years Hits Netflix in 2 Weeks
+
+Movies, Dead Man's Wire
+
+Sat, 16 May 2026 22:00:13 GMT
+
+https://www.cbr.com/dead-mans-wire-netflix-release-date/
+
+Featuring Bill Skarsgård and Al Pacino, the acclaimed crime thriller is heading to Netflix after failing to get the success it deserved in theaters.
+---------
+
+# Daemons of the Shadow Realm Releases Official English Dub After 2 Week Delay
+
+Anime, Daemons of the Shadow Realm, Fullmetal Alchemist, Crunchyroll
+
+Sat, 16 May 2026 22:00:13 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-official-english-dub-release/
+
+Fullmetal Alchemist's successor is officially back on track with the latest release after an unfortunate update.
+---------
+
+# Mortal Kombat 2 Seals The Fate Of Cole Young
+
+Movies, Mortal Kombat II, Mortal Kombat, Fantasy
+
+Sat, 16 May 2026 22:00:13 GMT
+
+https://www.cbr.com/mortal-kombat-2-cole-young-fate-confirmed/
+
+As Mortal Kombat II continues to please fans of the franchise, its most brutal fatality is an act of pure fan service that studios need to learn from.
+---------
+
+# 10 Years Later, Jason Statham’s Ruthless Crime Thriller Is Leaving Streaming Soon
+
+Movie News, Jason Statham, Mechanic: Resurrection, Action, Peacock
+
+Sat, 16 May 2026 22:30:15 GMT
+
+https://collider.com/jason-statham-ruthless-crime-thriller-mechanic-resurrection-leaving-streaming-peacock-june-2026/
+
+Jason Statham's hit action sequel, Mechanic: Resurrection, is leaving its streaming home soon. Find out when.
+---------
+
+# Say Goodbye to One of the Best Sci-Fi Thrillers of the Decade
+
+Movie News, Nope, Jordan Peele, Daniel Kaluuya, Sci-Fi
+
+Sat, 16 May 2026 22:16:13 GMT
+
+https://collider.com/jordan-peele-daniel-kaluuya-sci-fi-thriller-nope-leaving-streaming-peacock-may-18-2026/
+
+One of the most underrated sci-fi movies of the last five years, Jordan Peele's Nope, is leaving its streaming home. Find out when.
+---------
+
+# 10 Comedy Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Comedy, Parks and Recreation, Abbott Elementary, Ghosts
+
+Sat, 16 May 2026 22:09:14 GMT
+
+https://collider.com/comedy-shows-masterpieces-first-10-minutes/
+
+Certain comedy shows kick off in hilarious fashion and then never let up, including series like Parks and Recreation, Abbott Elementary, and New Girl.
+---------
+
+# Say Goodbye to One of the Most Emotional WWII Movies Ever Made
+
+Movie News, Jessica Chastain, The Zookeeper's Wife, Peacock, Daniel Brühl
+
+Sat, 16 May 2026 22:00:14 GMT
+
+https://collider.com/jessica-chastain-emotional-ww2-movie-the-zookeepers-wife-leaving-streaming-peacock-june-2026/
+
+Jessica Chastain's forgotten WW2 movie, The Zookeeper's Wife, is leaving its streaming home soon. Here's everything you should know.
+---------
+
+# Netflix’s 8-Part Sci-Fi Thriller Is Perfect From Start to Finish
+
+TV Features, Bodies, Netflix, Stephen Graham, Sci-Fi
+
+Sat, 16 May 2026 21:48:14 GMT
+
+https://collider.com/netflix-bodies-sci-fi-thriller-perfect/
+
+Netflix's 8-part sci-fi thriller Bodies spans time and genres, following a murder investigation across four distinct eras.
+---------
+
+# 9 Lesser-Known Details That Will Change How You Watch 'Top Gun'
+
+Movie Lists, Top Gun
+
+Sat, 16 May 2026 22:30:19 GMT
+
+https://movieweb.com/top-gun-lesser-known-details/
+
+'Top Gun' just turned 40, and what better way to celebrate a classic than by diving into some fascinating behind-the-scenes facts.
+---------
+
+# Jason Statham's Cult Classic Action Thriller 'The Mechanic' Is a Major US Streaming Success
+
+Movie News, The Mechanic, Paramount Plus, Hot on Streaming, Action, Jason Statham
+
+Sat, 16 May 2026 22:00:51 GMT
+
+https://movieweb.com/the-mechanic-jason-statham-streaming-success-paramount-may-2026/
+
+Jason Statham's 2010s modern cult classic action thriller 'The Mechanic' is a major streaming success on Paramount+ in the US.
+---------
+
+# 'The Pitt’: HBO’s Masterpiece Is So Great, You'll Catch Up in One Weekend
+
+Features, The Pitt, HBO Max
+
+Sat, 16 May 2026 22:00:18 GMT
+
+https://movieweb.com/the-pitt-hbo-binge-watch/
+
+'The Pitt,' the medical series on HBO Max starring Noah Wyle, Taylor Dearden, and Katherine LaNasa, has two seasons, and a third is on the way.
+---------
+
 # Crunchyroll Officially Adds An Underrated 1990s Gem That's Aged Perfectly
 
 Anime, Crunchyroll, Kodocha
