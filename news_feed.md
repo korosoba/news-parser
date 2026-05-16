@@ -1,3 +1,256 @@
+# First Official James Bond 26 Contender Revealed In New 007 Audition Report
+
+Movies, James Bond
+
+Sat, 16 May 2026 23:41:47 GMT
+
+https://screenrant.com/james-bond-26-tom-francis-audition-contender/
+
+The first confirmed actor to audition for James Bond 26 has reportedly been revealed to be a Broadway star from Sunset Boulevard.
+---------
+
+# 15 Best Mega Evolutions In Pokémon Legends: Z-A
+
+Gaming, Pokemon Legends Z-A, Pokemon, Nintendo Switch 2, Op-Ed, Triple-A Games
+
+Sat, 16 May 2026 23:30:23 GMT
+
+https://screenrant.com/pokemon-legends-z-a-best-mega-evolutions/
+
+Pokemon Legends: Z-A has features a lot of exciting new Mega Evolutions for players to catch, but only a few can truly be considered the best.
+---------
+
+# The Best Anime To Watch After Solo Leveling Is Still This Overlooked Crunchyroll Gem
+
+Anime, Solo Leveling, Shangri-La Frontier
+
+Sat, 16 May 2026 23:30:21 GMT
+
+https://screenrant.com/shangri-la-frontier-best-anime-watch-after-solo-leveling/
+
+For those who needed a series similar to Solo Leveling but couldn't find anything that matches it, this anime on Crunchyroll is the perfect watch.
+---------
+
+# It's Been 20 Years Since Da Vinci Code Took Over Pop Culture
+
+Movies, Dan Brown
+
+Sat, 16 May 2026 23:30:21 GMT
+
+https://screenrant.com/da-vinci-code-20-year-retrospective/
+
+A famously controversial 2006 book-to-movie adaptation became a global phenomenon that surpassed Pirates of the Caribbean and X-Men at the box office.
+---------
+
+# With One Scene, The Boys Proves Why It Had To Let Kimiko Talk
+
+Streaming TV, The Boys
+
+Sat, 16 May 2026 23:30:21 GMT
+
+https://screenrant.com/the-boys-kimiko-talk-frenchie-death-scene/
+
+Kimiko's dialogue has been a point of contention in The Boys season 5, but one scene proved that the show was right to give her a voice.
+---------
+
+# Hunter x Hunter Filler List: Every Episode Fans Can Skip
+
+Anime, Hunter X Hunter, Hunter x Hunter
+
+Sat, 16 May 2026 23:00:21 GMT
+
+https://screenrant.com/hunter-x-hunter-filler-list-every-episode-skip/
+
+A complete guide to all of the filler episodes in both the 1999 and 2011 versions of the Hunter x Hunter anime, as well as information on the movies.
+---------
+
+# Paramount's Surprising 6-Part Action Series Deserves More Than Its 75% Rotten Tomatoes Score
+
+Streaming TV, Masked Recs
+
+Sat, 16 May 2026 23:00:21 GMT
+
+https://screenrant.com/knuckles-paramount-action-series-deserve-better-rotten-tomatoes-score/
+
+Most Paramount+ subscribers might scroll past this video game adaptation, but they would be missing out on one of the streamer's best shows.
+---------
+
+# Minecraft Meets Zelda In This Incredible Free Adventure
+
+Gaming, Minecraft
+
+Sat, 16 May 2026 23:00:21 GMT
+
+https://screenrant.com/minecraft-meets-zelda-2026-echoes-of-hyrule/
+
+Discover the ultimate Zelda adventure in Minecraft with Echoes of Hyrule mod pack, featuring iconic items, epic quests, and more.
+---------
+
+# Lanterns’ Latest Update Should Worry Hal Jordan Fans
+
+Streaming TV, Lanterns, Green Lantern
+
+Sat, 16 May 2026 22:45:19 GMT
+
+https://screenrant.com/lanterns-hal-jordan-villain-hint/
+
+New information released about HBO's Lanterns indicate that fans of Hal Jordan should be concerned about Kyle Chandler's version of the character.
+---------
+
+# AMC+'s Forgotten 6-Part Sci-Fi Series Is the Perfect Weekend Binge (Before It Leaves Netflix Soon)
+
+TV, Moonhaven
+
+Sat, 16 May 2026 23:30:14 GMT
+
+https://www.cbr.com/moonhaven-exit-netflix-may-2026/
+
+The hidden gem sci-fi series is available to binge in its entirety before soon being pulled from Netflix.
+---------
+
+# Lost's Second Episode Secretly Explains the Entire Show With a Throwaway Line
+
+TV, Lost, Mystery, ABC
+
+Sat, 16 May 2026 23:30:14 GMT
+
+https://www.cbr.com/lost-john-locke-backgammon-explained/
+
+While Lost is a complicated series to understand, it's not meant to be inscrutable, and one character explains the whole show's premise in the pilot.
+---------
+
+# Sorcerer Was Buried By George Lucas' Star Wars
+
+Movies, Thriller, Stephen King, Sorcerer
+
+Sat, 16 May 2026 23:30:14 GMT
+
+https://www.cbr.com/star-wars-beat-forgotten-thriller-sorcerer/
+
+The history of cinema is full of blockbusters defeating great movies at the box office, but none were as devastating as a gem buried by George Lucas.
+---------
+
+# 10 Anime Thrillers That Hook You in the First 5 Minutes
+
+Anime, Death Note, Attack on Titan, Thriller
+
+Sat, 16 May 2026 23:15:13 GMT
+
+https://www.cbr.com/anime-thrillers-hook-you-in-5-minutes/
+
+Some anime series take time to get good, yet these thriller anime set the stakes high at the very beginning.
+---------
+
+# Taylor Sheridan's 8-Part Western Series Officially Lands on Netflix in Just 2 Weeks
+
+TV, Lawmen: Bass Reeves, Western, Netflix
+
+Sat, 16 May 2026 23:00:13 GMT
+
+https://www.cbr.com/taylor-sheridan-lawmen-bass-reeves-western-coming-to-netflix-june-2026/
+
+One of Taylor Sheridan's most underrated Western series is coming to Netflix in June.
+---------
+
+# Taylor Sheridan Officially Confirms John Dutton's Yellowstone Replacement in Dutton Ranch
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 16 May 2026 22:42:45 GMT
+
+https://www.cbr.com/dutton-ranch-kevin-costner-john-replacement-beulah-jackson/
+
+In Dutton Ranch, Taylor Sheridan finally replaces Kevin Costner's John Dutton character in the narrative of his ever-expanding Yellowstone universe.
+---------
+
+# Hulu's Post-Apocalypse Sci-Fi Drama Is One of Its Best Kept Secrets — and Its Most Frustrating
+
+TV Features, Y: The Last Man, FX, Hulu, Ben Schnetzer
+
+Sat, 16 May 2026 23:37:14 GMT
+
+https://collider.com/y-the-last-man-hulu-sci-fi-post-apocalypse-drama-not-streaming/
+
+Y: The Last Man was a captivating post-apocalyptic drama from Hulu that's now lost in the streaming purge and can't be enjoyed by sci-fi fans anymore.
+---------
+
+# Ryan Reynolds Spends 94 Minutes in Pure Panic in This Free Streaming Thriller
+
+Movie News, Buried, Ryan Reynolds, Horror, Thriller
+
+Sat, 16 May 2026 23:30:14 GMT
+
+https://collider.com/ryan-reynolds-stressful-thriller-buried-streaming-free-fawesome-may-2026/
+
+Ryan Reynolds’ one-location thriller Buried is streaming for free this month on Fawesome. Here's everything you should know.
+---------
+
+# The Action Franchise That Defined the ’90s Is Preparing for Another Comeback
+
+Movie News, Bad Boys, Will Smith, Michael Bay, Martin Lawrence
+
+Sat, 16 May 2026 23:16:13 GMT
+
+https://collider.com/bad-boys-2-greatest-90s-action-franchise-free-streaming-tubi-june-2026/
+
+Michael Bay’s Bad Boys and Bad Boys II are officially making a comeback thanks to streaming. Find out more here.
+---------
+
+# 20 Years Later, Kevin Costner’s Intense Survival Thriller Is Quietly Dominating Streaming
+
+Movie News, Kevin Costner, The Guardian, Tubi, Thriller
+
+Sat, 16 May 2026 23:00:14 GMT
+
+https://collider.com/kevin-costner-survival-thriller-the-guardian-free-streaming-success-tubi-may-2026/
+
+Kevin Costner's 20-year-old survival thriller with Ashton Kutcher, The Guardian, is proving popular on streaming. Find out more here.
+---------
+
+# Before Taylor Sheridan's 'Tulsa King,' Sylvester Stallone Starred in the Action Masterpiece That's Dominating Streaming
+
+Movie News, Creed II, Sylvester Stallone, Tubi, Michael B. Jordan
+
+Sat, 16 May 2026 22:46:12 GMT
+
+https://collider.com/sylvester-stallone-michael-b-jordan-action-masterpiece-creed-2-free-streaming-success-tubi-may-2026/
+
+Tulsa King star Sylvester Stallone's blockbuster sequel to his underdog Rocky series, Creed II, is a free streaming sensation.
+---------
+
+# 'The Boys' Creator Eric Kripke Confirms Jensen Ackles' Exit as Soldier Boy Before Season 5 Finale
+
+TV News, The Boys, Jensen Ackles, Eric Kripke
+
+Sat, 16 May 2026 23:08:53 GMT
+
+https://movieweb.com/the-boys-season-5-soldier-boy-exit/
+
+Eric Kripke, creator of 'The Boys,' confirmed that Jensen Ackles played Soldier Boy for the last time in Season 5, Episode 7.
+---------
+
+# Sydney Sweeney's R-Rated Thriller 'The Housemaid Beaten By 'Project Hail Mary' on Digital Streaming
+
+Movie News, The Housemaid, Project Hail Mary, Comparison Recommendation
+
+Sat, 16 May 2026 23:00:19 GMT
+
+https://movieweb.com/sat-project-hail-mary-beats-the-housemaid-vod-charts/
+
+Sydney Sweeney's R-rated erotic thriller 'The Housemaid' has finally been toppled on digital streaming by 'Project Hail Mary.'
+---------
+
+# 'In the Grey' Exposes an Ongoing Problem with Guy Ritchie's Action Thrillers
+
+Features, In the Grey, Guy Ritchie
+
+Sat, 16 May 2026 23:00:19 GMT
+
+https://movieweb.com/in-the-grey-biggest-problem-guy-ritchie-inconsistency/
+
+Guy Ritchie's action thriller 'In the Grey' recently released in theaters, and unfortunately it continues an ongoing trend for Guy Ritchie's movies.
+---------
+
 # Demon Slayer: Infinity Castle Part 2 Is Finally Going To Give The Most Controversial Hashira His Time To Shine
 
 Anime, Demon Slayer
