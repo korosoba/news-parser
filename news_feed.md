@@ -1,3 +1,245 @@
+# 10 "Really Old TV Shows" That Are Still Considered Masterpieces
+
+Classic TV
+
+Sun, 17 May 2026 23:15:20 GMT
+
+https://screenrant.com/old-tv-shows-still-considered-masterpieces/
+
+From Star Trek to I Love Lucy to The Twilight Zone, these old TV shows are still considered masterpieces more than 50 years after they aired.
+---------
+
+# Every Spider-Man Actor's Best Non-Superhero Movie Performance
+
+Movies, Spider-Man
+
+Sun, 17 May 2026 23:15:20 GMT
+
+https://screenrant.com/spider-man-actors-best-performances/
+
+While best known as the friendly web-slinger, the Spider-Man actors have delivered outstanding performances in various other highly-rated films.
+---------
+
+# Peacock's 10-Part Spy Thriller Can Only Get Better In Season 2
+
+Streaming TV, Masked Recs
+
+Sun, 17 May 2026 23:12:19 GMT
+
+https://screenrant.com/day-of-the-jackal-series-get-better-season-2/
+
+Peacock has a 10-episode spy thriller series that had an acclaimed first season but might have an even better season 2, going by some cast news.
+---------
+
+# DC’s Absolute Batman Has Officially Become The Joker
+
+Comics, Batman, DC Comics
+
+Sun, 17 May 2026 23:00:20 GMT
+
+https://screenrant.com/dc-absolute-batman-has-become-the-joker-agent-of-chaos/
+
+Absolute Batman is taking the Dark Knight into some dark new territory, especially with Gotham City now viewing Batman as dangerous as The Joker.
+---------
+
+# Every Bloodborne Fan Should Experience These 7 Pieces of Media That Inspired the Game
+
+Gaming, Bloodborne
+
+Sun, 17 May 2026 23:00:20 GMT
+
+https://screenrant.com/media-like-bloodborne-inspired-movies-books/
+
+If you have enjoyed Hidetaka Miyazaki's Bloodborne game, then you absolutely need to check out these 7 games, books, and movies that inspired it.
+---------
+
+# Chase Stokes' Stranger Things Role Explained (& Who He Almost Played Instead)
+
+Streaming TV, Stranger Things
+
+Sun, 17 May 2026 23:00:20 GMT
+
+https://screenrant.com/chase-stokes-stranger-things-role-character-audition-explained/
+
+Chase Stokes is famous for playing Outer Banks's John B. Routledge, but his breakout role could have been Stranger Things if he nailed his audition.
+---------
+
+# From's Terrifying New Monsters Officially Reveal The Township's Darkest Secret Yet
+
+Streaming TV, From, FROM - Season 4
+
+Sun, 17 May 2026 22:45:20 GMT
+
+https://screenrant.com/from-season-4-new-monsters-dead-nightmares-explained/
+
+The MGM+ horror series From has no shortage of dark reveals, but the latest involving terrifying new monsters is the show's most sinister twist yet.
+---------
+
+# DC's New Absolute Universe Is Still Missing Its Best Hero 2 Years Later
+
+Comics, Absolute Universe
+
+Sun, 17 May 2026 22:30:20 GMT
+
+https://screenrant.com/dc-absolute-universe-incomplete-without-aquaman/
+
+DC is still overlooking one of its most legendary heroes, a character who arguably has the potential to deliver the very best Absolute title yet.
+---------
+
+# 10 Near-Perfect Documentaries Streaming On Netflix
+
+Streaming TV
+
+Sun, 17 May 2026 22:30:20 GMT
+
+https://screenrant.com/near-perfect-documentaries-on-netflix/
+
+10 exceptional Netflix documentaries that uncover compelling stories and truths across various genres and fields, from true crime to sports history.
+---------
+
+# Lord Of The Rings Fans Heartbroken Over Cancelled Game
+
+Gaming, The Lord of the Rings, Amazon, Triple-A Games
+
+Sun, 17 May 2026 22:25:52 GMT
+
+https://screenrant.com/lord-of-the-rings-cancelled-mmo/
+
+The Lord of the Rings games cannot catch a break lately, though with confirmation of a recently announced game's cancellation, a new game is teased.
+---------
+
+# 7 Hunter x Hunter Nen Abilities More Dangerous Than They Look
+
+Anime, Hunter x Hunter
+
+Sun, 17 May 2026 23:15:14 GMT
+
+https://www.cbr.com/hunter-x-hunter-nen-abilities-more-dangerous-than-they-look/
+
+Some Nen techniques in Hunter x Hunter hide terrifying potential beneath simple appearances.
+---------
+
+# Robin Williams’ $441M Comedy With His Most Unforgettable Performance Is Leaving Netflix Soon
+
+Movies, Mrs. Doubtfire
+
+Sun, 17 May 2026 23:00:13 GMT
+
+https://www.cbr.com/robin-williams-mrs-doubtfire-leaving-netflix-june-2026/
+
+Experience Robin Williams' unforgettable performance before it leaves Netflix on June 1.
+---------
+
+# 10 Greatest YA Book-To-Movie Adaptations of the 21st Century, Ranked
+
+Movies, Harry Potter, The Hunger Games, Twilight
+
+Sun, 17 May 2026 23:00:13 GMT
+
+https://www.cbr.com/greatest-ya-book-to-movie-adaptations-21st-century-list/
+
+YA books are some of the most popular stories in modern fiction, leading to unforgettable films and franchises in the recent years.
+---------
+
+# Taylor Sheridan Just Revived Yellowstone’s Most Brutal Storytelling Rule in Marshals
+
+TV, Marshals, Yellowstone, CBS
+
+Sun, 17 May 2026 22:23:55 GMT
+
+https://www.cbr.com/marshals-episode-11-on-thin-ice-yellowstone-death/
+
+A brutal Yellowstone story rears its head in Marshals Episode 11, "On Thin Ice," evoking a core theme of Taylor Sheridan's flagship series.
+---------
+
+# Clair Obscur: Expedition 33 Officially Began a New Era
+
+Games, Indie Games, RPG, Gaming
+
+Sun, 17 May 2026 22:15:12 GMT
+
+https://www.cbr.com/clair-obscur-expedition-33-official-new-era/
+
+Clair Obscur: Expedition 33 has already defined the future of RPGs and gaming as a whole.
+---------
+
+# Netflix's Bingeworthy Neo-Western Officially Returns in 2 Months
+
+TV News, Ransom Canyon, Netflix, Western, Drama
+
+Sun, 17 May 2026 23:15:14 GMT
+
+https://collider.com/netflix-neo-western-ransom-canyon-season-2-release-date-details-how-to-watch/
+
+Netflix has revealed the plot details and premiere date for its neo-Western, which is returning for Season 2 this summer. Get all the details.
+---------
+
+# Netflix’s New 6-Part Spy Thriller Is the Perfect Weekend Binge for ‘Slow Horses’ Fans
+
+TV News, Netflix, Slow Horses, Legends, Streaming
+
+Sun, 17 May 2026 23:00:14 GMT
+
+https://collider.com/tom-burke-slow-horses-replacement-spy-thriller-legends-streaming-success-netflix-may-2026/
+
+Netflix's answer to Slow Horses, the crime series Legends, is a major hit on the American streaming charts. Find out more here.
+---------
+
+# Apple TV's New Cyberpunk Series Is the Sci-Fi Gamble That Could Change Everything
+
+TV Features, Neuromancer, Apple TV, Sci-Fi, William Gibson
+
+Sun, 17 May 2026 22:46:13 GMT
+
+https://collider.com/apple-tv-neuromancer-cyberpunk-sci-fi-series/
+
+The groundbreaking potential of Apple TV's Neuromancer series, an adaptation of the seminal cyberpunk novel, is set to redefine sci-fi storytelling.
+---------
+
+# Forget ‘Wuthering Heights,’ Jacob Elordi’s Romantic Hidden Gem Is Finding New Life on Streaming
+
+Movie News, On Swift Horses, Jacob Elordi, HBO Max, Romance
+
+Sun, 17 May 2026 22:45:13 GMT
+
+https://collider.com/jacob-elordi-romance-movie-on-swift-horses-streaming-success-hbo-max-may-2026/
+
+Jacob Elordi's romance drama has unexpectedly become an HBO Max hit, despite its initial poor reception and low ratings. Get all the details.
+---------
+
+# 'Sheriff Country' Star’s Divisive Sci-Fi Thriller Is Quietly Dominating HBO Max
+
+Movie News, Elevation, Sci-Fi, HBO Max, Anthony Mackie
+
+Sun, 17 May 2026 22:30:13 GMT
+
+https://collider.com/morena-baccarin-anthony-mackie-sci-fi-thriller-elevation-streaming-success-hbo-max-may-2026/
+
+A disappointing 2024 sci-fi movie starring Sheriff Country's Morena Baccarin and Anthony Mackie, is a surprise American hit on HBO Max.
+---------
+
+# There's Only One Classic John Wayne Movie He Just Didn't Care For at All
+
+Movie Features, The Sons of Katie Elder, John Wayne, Westerns, Classics
+
+Sun, 17 May 2026 22:22:13 GMT
+
+https://collider.com/sons-of-katie-elder-john-wayne-classic/
+
+While The Sons of Katie Elder is remembered fondly today, making the Western was an uphill battle for John Wayne.
+---------
+
+# Netflix Says Goodbye to Margot Robbie's 3-Hour Cult Classic
+
+Movie News, Babylon, Margot Robbie, Brad Pitt, Damien Chazelle
+
+Sun, 17 May 2026 22:15:12 GMT
+
+https://collider.com/margot-robbie-brad-pitt-3-hour-cult-classic-babylon-leaving-netflix-june-2026/
+
+Damien Chazelle's Babylon, which lost Paramount nearly $90 million after bombing theatrically, is continuing its quest toward cult status on Netflix.
+---------
+
 # Marvel Director Wants To Helm Spider-Man Movie With The Perfect Miles Morales In Mind
 
 Movies, Spider-Man, Spider-Man: Into The Spider-Verse, Miles Morales, Marvel Cinematic Universe
