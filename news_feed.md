@@ -1,3 +1,223 @@
+# Official Fable Update Has Fans Fearing A Delay
+
+Gaming, Fable, Triple-A Games, PC, Xbox Game Pass
+
+Sun, 17 May 2026 06:00:19 GMT
+
+https://screenrant.com/fable-update-delay-rumors-fans-reactions/
+
+The developers at Playground Games have shared a new update for Fable, and players have expressed concerns over the game’s potential delay.
+---------
+
+# Steam Officially Makes 4 Great Games 100% Free For 24 Hours
+
+Gaming, Steam
+
+Sun, 17 May 2026 04:45:19 GMT
+
+https://screenrant.com/steam-free-games-may-2026-24-hours-critically-acclaimed/
+
+Steam has become a great place to go for some free weekend games, and this past break was no exception.
+---------
+
+# Halo: Campaign Evolved Limited-Time Free Download Officially Available Now
+
+Gaming, Halo, Halo: Campaign Evolved
+
+Sun, 17 May 2026 04:30:19 GMT
+
+https://screenrant.com/halo-limited-time-free-download-fanta-june-2026/
+
+Halo: Campaign Evolved is releasing this summer, and there are already free items available for players to get in-game when it drops.
+---------
+
+# Pokémon Officially Announces August Release, & Preorders Are Live Now
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 17 May 2026 04:02:21 GMT
+
+https://screenrant.com/pokemon-deluxe-character-guide-limited-edition-preorders/
+
+Pokémon is officially going back to the Kanto region and beyond, and you'll be able to grab a new release in August to celebrate the anniversary.
+---------
+
+# Jude Law's New R-Rated Political Thriller Officially Ends His Strong Rotten Tomatoes Streak
+
+Movies, Jude Law, Masked Recs
+
+Sun, 17 May 2026 03:59:36 GMT
+
+https://screenrant.com/the-wizard-of-the-kremlin-rotten-tomatoes-audience-score-jude-law-streak/
+
+Jude Law's new political thriller officially ends his strong Rotten Tomatoes streak, as the movie arrives in theaters in the United States.
+---------
+
+# Project Hail Mary Box Office Officially Passes Christopher Nolan's Magnum Opus With Major Milestone
+
+Movies, Project Hail Mary, Box Office Milestone
+
+Sun, 17 May 2026 03:54:29 GMT
+
+https://screenrant.com/project-hail-mary-box-office-330-million-domestic-oppenheimer-comparison/
+
+As Project Hail Mary nears the end of its theatrical run, the latest box office milestone is enough to surpass Christopher Nolan's magnum opus.
+---------
+
+# Kitana Star Wants Mortal Kombat III To Tie Back To A Sisterhood Storyline Despite A Character's Death
+
+Movies, Mortal Kombat II, Mortal Kombat
+
+Sun, 17 May 2026 03:47:15 GMT
+
+https://screenrant.com/mortal-kombat-3-mileena-return-hopes-adeline-rudolph/
+
+The star behind Kitana in Mortal Kombat II revealed what she would like to see in the sequel despite the fate of a major character.
+---------
+
+# Prime Video’s New Miniseries Based On A Banned Book Is Already 2026's Best Literary Adaptation
+
+Streaming TV, Prime Video
+
+Sun, 17 May 2026 03:45:22 GMT
+
+https://screenrant.com/prime-video-house-of-spirits-show-book-adaptation/
+
+Prime Video's new miniseries based on a renowned 44-year-old book already deserves a spot among the finest adaptations of 2026.
+---------
+
+# Apple TV Cyberpunk Show’s Update Confirms It’ll Avoid The Peripheral’s Mistake
+
+Streaming TV, The Peripheral, Neuromancer, Apple TV
+
+Sun, 17 May 2026 03:40:48 GMT
+
+https://screenrant.com/apple-tv-cyberpunk-neuromancer-peripheral-mistake/
+
+A new update surrounding Apple TV’s upcoming cyberpunk show confirms that it is avoiding the mistake that weighed down Prime Video’s The Peripheral.
+---------
+
+# Everything You Need To Know Before Watching The Mandalorian & Grogu
+
+New Movies, The Mandalorian and Grogu, Star Wars
+
+Sun, 17 May 2026 03:30:21 GMT
+
+https://screenrant.com/everything-you-need-to-know-before-the-mandalorian-grogu-star-wars/
+
+The release of The Mandalorian and Grogu is just days away, so here's everything you need to know about Lucasfilm's first Star Wars movie in 7 years.
+---------
+
+# Star Wars Actress Calls Dibs on Joining Prime Video's Fourth Wing Series
+
+TV, Prime Video
+
+Sun, 17 May 2026 03:55:26 GMT
+
+https://www.cbr.com/fourth-wing-prime-video-genevieve-oreilly/
+
+Now that Amazon's Fourth Wing adaptation is moving forward, a Star Wars star becomes the first person to lobby for a role.
+---------
+
+# 10 Strongest Anime Characters Who Made Fatal Mistakes
+
+Anime, Goku
+
+Sun, 17 May 2026 03:45:15 GMT
+
+https://www.cbr.com/strongest-anime-characters-fatal-mistakes-list/
+
+From Goku's naive generosity to Lelouch's deadly Geass slip, shocking mistakes made by anime's mightiest characters had devastating consequences.
+---------
+
+# Star Trek: Lower Decks Is the Boldest Entry in the Franchise
+
+TV, Star Trek, Star Trek Lower Decks
+
+Sun, 17 May 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-lower-decks-self-parody-improve-franchise/
+
+Lower Decks showed Star Trek how to laugh at itself, while embracing its more embarrassing corners. In the process, it elevated the entire franchise.
+---------
+
+# Harsh Realities of Replaying PS1 Games
+
+Games, PlayStation (Original), Video Games
+
+Sun, 17 May 2026 03:16:14 GMT
+
+https://www.cbr.com/harsh-realities-replaying-ps1-games-list/
+
+The PlayStation is one of the most important consoles of all time, but there are several aspects of the system that make it painful to go back to.
+---------
+
+# Yellowstone Officially Confirms Rip's Replacement in Dutton Ranch
+
+TV, Yellowstone, Dutton Ranch
+
+Sun, 17 May 2026 03:09:23 GMT
+
+https://www.cbr.com/dutton-ranch-rip-wheeler-cole-hauser-yellowstone-replacement/
+
+Dutton Ranch replaces Rip Wheeler's Yellowstone role in the latest spinoff of Taylor Sheridan's original series that Kevin Costner led as John Dutton.
+---------
+
+# Dragon Ball Dethroned by One Piece in New Official 2026 Ranking
+
+Anime, Dragon Ball
+
+Sun, 17 May 2026 03:00:14 GMT
+
+https://www.cbr.com/dragon-ball-dethroned-toei-official-report/
+
+Dragon Ball had topped the official rankings three out of four times in recent years.
+---------
+
+# Dexter: Resurrection Star Says Season 2 Keeps Deb's Legacy Alive
+
+TV, Dexter, Dexter: Resurrection
+
+Sun, 17 May 2026 03:00:00 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-honors-deb/
+
+Deb might not physically appear in Dexter: Resurrection, but her legacy lives on in the series moving forward.
+---------
+
+# 10 Modern Anime Hits That Will Age Like Fine Wine
+
+Anime, Vinland Saga, My Hero Academia, Odd Taxi
+
+Sun, 17 May 2026 02:45:14 GMT
+
+https://www.cbr.com/modern-anime-hits-aged-well-list/
+
+It's high time that old classics took a step back and let the timeless modern anime hits like Frieren: Beyond the Journey’s End and Haikyu!! shine.
+---------
+
+# HBO’s 3-Part Fantasy Masterpiece Quietly Fixed What ‘Game of Thrones’ Couldn’t
+
+TV Features, His Dark Materials, Game Of Thrones, HBO, Fantasy
+
+Sun, 17 May 2026 03:44:15 GMT
+
+https://collider.com/hbo-show-better-than-game-of-thrones-his-dark-materials/
+
+HBO’s His Dark Materials deserves more love after Game of Thrones, with smart adaptation choices, a stacked cast, and a perfect Max binge.
+---------
+
+# 8 Thriller Trilogies That Are Perfect From Start to Finish
+
+Movie, Thriller, The Dark Knight Trilogy, The Lord of the Rings, Die Hard
+
+Sun, 17 May 2026 03:39:13 GMT
+
+https://collider.com/thriller-trilogies-perfect-start-to-finish/
+
+The Vengeance Trilogy, The Lord of the Rings Trilogy, The Dark Knight Trilogy, and more make up our list of perfect thriller trilogies.
+---------
+
 # Scooby-Doo: Origins Cast: Who's Who In Netflix's Live-Action Scooby-Doo
 
 Streaming TV, Scooby-Doo
