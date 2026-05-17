@@ -1,3 +1,267 @@
+# HBO’s “ER Meets 24” Show Is The Best Medical Drama Of The 21st Century
+
+TV, Masked Recs, HBO
+
+Sun, 17 May 2026 13:01:19 GMT
+
+https://screenrant.com/the-pitt-hbo-best-medical-drama-21st-century/
+
+HBO's latest hit is an innovative medical drama that uses a unique approach to combine ER and 24, creating a fresh, exciting take on the genre.
+---------
+
+# Netflix Just Landed A Major Shonen Anime Movie, And It's A Huge Blow To Crunchyroll
+
+Anime, Netflix, Crunchyroll
+
+Sun, 17 May 2026 13:00:20 GMT
+
+https://screenrant.com/my-hero-academia-world-heroes-mission-netflix-blow-crunchyroll/
+
+Netflix is about to get a big movie from one of shonen anime's largest franchises, dealing a big blow to Crunchyroll's anime exclusivity.
+---------
+
+# Netflix’s 3-Part Harry Potter Replacement Has One Of Its Best Casts
+
+Classic TV, Masked Recs
+
+Sun, 17 May 2026 13:00:20 GMT
+
+https://screenrant.com/a-discovery-of-witches-netflix-best-cast-fantasy/
+
+While we wait for Harry Potter to finish up, there is a three-season fantasy series on Netflix with an excellent ensemble cast that is worth watching.
+---------
+
+# A Returning 20-Year-Old MTG Gimmick Has Already Made One Deck Type Much More Powerful
+
+Gaming
+
+Sun, 17 May 2026 13:00:20 GMT
+
+https://screenrant.com/mtg-reality-fracture-snapcaster-mage-preview-predictions/
+
+Magic: The Gathering is bringing back a style of card first seen in the late 2000s that might just shake up some of the game's popular archetypes.
+---------
+
+# Sebastian Stan's 10 Best Movie Roles That Aren't Bucky Barnes
+
+Movies, Sebastian Stan, Ranking
+
+Sun, 17 May 2026 12:55:20 GMT
+
+https://screenrant.com/sebastian-stan-best-movie-roles-not-bucky-barnes/
+
+Sebastian Stan is best known for playing Bucky Barnes in the MCU, yet many of his greatest performances come from outside of the franchise.
+---------
+
+# Michael Mann’s 42-Year-Old Crime Thriller Series Being Rebooted By Austin Butler Quietly Returns As Streaming Hit
+
+TV, Masked Recs
+
+Sun, 17 May 2026 12:45:59 GMT
+
+https://screenrant.com/miami-vice-series-apple-tv-store-vod-streaming-success-may-2026/
+
+Michael Mann's iconic crime series is trending on streaming charts, fuelled by the upcoming reboot adaptation, and the director's upcoming projects.
+---------
+
+# God Of War Fans Just Realizing How Old Kratos Really Is In Ragnarok
+
+Gaming, God of War, God of War: Ragnarok
+
+Sun, 17 May 2026 12:30:20 GMT
+
+https://screenrant.com/god-of-war-ragnarok-kratos-real-age/
+
+The God of War reboots was a notable departure from the original trilogy in a lot of ways, and that extends to Kratos' age.
+---------
+
+# Stranger Things Meets Godzilla In New Sci-Fi Series That Deserves the Hype
+
+Comics, Stranger Things, Godzilla
+
+Sun, 17 May 2026 12:30:20 GMT
+
+https://screenrant.com/hidden-springs-new-scifi-series-like-stranger-things/
+
+What if Eleven was four-stories tall?
+---------
+
+# 8 Sitcom Episodes That Have Aged Like Milk
+
+Classic TV
+
+Sun, 17 May 2026 12:30:20 GMT
+
+https://screenrant.com/sitcom-episodes-that-aged-like-milk/
+
+Sitcoms are known for their light and fun tone and for being relatable, but some have episodes that, over time, have become progressively bad.
+---------
+
+# 10 Praiseworthy 80s Thriller Movies No One Ever Talks About
+
+Movies, Thriller
+
+Sun, 17 May 2026 12:30:20 GMT
+
+https://screenrant.com/great-80s-thriller-movies-no-one-talks-about/
+
+The '80s produced so many unique thrillers that some were bound to be overlooked, but these praiseworthy movies aren't talked about enough.
+---------
+
+# Michael Mann's $43M Glossy Sports Biopic Lands on Netflix in Just 1 Week
+
+Movies, Ferrari
+
+Sun, 17 May 2026 13:00:14 GMT
+
+https://www.cbr.com/michael-mann-sports-biopic-ferrari-netflix-streaming-may-2026/
+
+The sleek sports drama starring Adam Driver races onto Netflix later this week.
+---------
+
+# The 10 Most Perfect Sci-Fi Books of the Last 25 Years, Ranked
+
+Movies, Science Fiction, Project Hail Mary, books
+
+Sun, 17 May 2026 13:00:14 GMT
+
+https://www.cbr.com/perfect-sci-fi-books-last-25-years-list/
+
+Science fiction has increased exponentially in the last 25 years but these literary masterpieces are already considered modern classics of the genre.
+---------
+
+# Stephen King's Nightmares & Dreamscapes Was TV"s Last Great Horror Event
+
+TV, Stephen King, Horror
+
+Sun, 17 May 2026 12:30:13 GMT
+
+https://www.cbr.com/stephen-king-nightmares-and-dreamscapes-best-200s-horror-tv-event/
+
+When it comes to Stephen King's short stories, no adaptations capture their character depth and details better than an anthological series.
+---------
+
+# Netflix’s New True Crime Documentary Is the Streaming Hit Everyone Is Talking About
+
+Movie News, Netflix, True Crime, Documentary, Crime
+
+Sun, 17 May 2026 13:00:14 GMT
+
+https://collider.com/netflix-true-crime-movie-documentary-the-crash-streaming-success-may-2026/
+
+Netflix’s new true crime documentary, The Crash, has viewers locked in around the world.
+---------
+
+# 5 Forgotten Neo-Noirs That Are Almost Perfect
+
+Movie, The Coen Brothers, Thief, Turner Classic Movies, James Caan
+
+Sun, 17 May 2026 12:57:13 GMT
+
+https://collider.com/forgotten-neo-noirs-almost-perfect/
+
+Bad Lieutenant, Across 110th Street, and One False Move are excellent, near-perfect neo-noir movies that have mostly been forgotten.
+---------
+
+# 'Yellowstone' Meets 'True Detective' in 'Chicago P.D' Alum's New Crime Thriller Debuting This August
+
+TV News, Tracy Spiridakos, Chicago P.D., Yellowstone, True Detective
+
+Sun, 17 May 2026 12:45:14 GMT
+
+https://collider.com/tracy-spiridakos-crime-thriller-series-anna-pigeon-usa-network-release-date-details/
+
+Chicago P.D. alum Tracy Spiridakos leads the cast in USA Network's new crime drama Anna Pigeon, premiering August 7. Get all the details here.
+---------
+
+# Harry Potter and The Riddler Teamed Up for A24's Absolutely Bonkers Cult Classic Now Streaming Free
+
+Movie News, Swiss Army Man, Paul Dano, Daniel Radcliffe, Daniels
+
+Sun, 17 May 2026 12:30:13 GMT
+
+https://collider.com/daniel-radcliffe-paul-dano-a24-cult-classic-swiss-army-man-streaming-free-kanopy-june-2026/
+
+Swiss Army Man, starring Daniel Radcliffe and Paul Dano, will stream for free on Kanopy. Here's everything you should know about this wild ride.
+---------
+
+# 10 Near-Perfect HBO Shows Nobody Remembers
+
+TV, HBO, Carnivale, The Corner, Six Feet Under
+
+Sun, 17 May 2026 12:21:13 GMT
+
+https://collider.com/forgotten-hbo-shows-near-perfect/
+
+Discover HBO shows that flew under the radar, offering compelling stories and exceptional performances worth revisiting, from The Corner to Carnivále.
+---------
+
+# Guy Ritchie's Best Action Movie in 20 Years Proves Jason Statham Is Actually a Great Actor
+
+Movie Features, Jason Statham, Guy Ritchie, Wrath of Man, Action
+
+Sun, 17 May 2026 12:18:14 GMT
+
+https://collider.com/jason-statham-wrath-of-man-guy-ritchie-best-action-movie/
+
+Jason Statham's immense restraint and vulnerability in Guy Ritchie's Wrath of Man reminds us that the action star can really act.
+---------
+
+# Prime Video’s Most Controversial Cancellation Proves Fantasy TV Is in Trouble
+
+TV Features, The Wheel of Time, Game Of Thrones, Prime Video, Shadow and Bone
+
+Sun, 17 May 2026 12:11:14 GMT
+
+https://collider.com/prime-video-controversial-cancellation-wheel-of-time-fantasy-tv-ending/
+
+Prime Video’s cancellation of The Wheel of Time after Season 3 may signal the end of the fantasy TV boom that followed Game of Thrones.
+---------
+
+# Adam Sandler's Best Performance of All Time Will Officially Be Free to Stream on June 5
+
+Movie News, Uncut Gems, Adam Sandler, Josh Safdie, Benny Safdie
+
+Sun, 17 May 2026 12:00:14 GMT
+
+https://collider.com/adam-sandler-best-performance-uncut-gems-streaming-free-kanopy-june-2026/
+
+One of Adam Sandler's best films, the stress-inducing Uncut Gems, is coming to free streaming next month. Find out more here.
+---------
+
+# ‘Rivals’ Star Reveals How She and David Tennant Created Season 2's Biggest Plot Twist
+
+Exclusives, Rivals, Emily Atack, Oliver Chris, Hulu
+
+Sun, 17 May 2026 11:57:13 GMT
+
+https://collider.com/rivals-season-2-episode-2-one-shot-baby-twist-oliver-chris-emily-atack-interview/
+
+Rivals stars Emily Atack and David Tennant discuss the creation of Season 2's biggest plot twist, Sarah's baby daddy reveal.
+---------
+
+# Marvel's Underseen Sci-Fi Reboot Is Officially Rewriting History on Disney+
+
+Movie News, MCU, The Fantastic Four: First Steps, Disney+, Pedro Pascal
+
+Sun, 17 May 2026 11:46:13 GMT
+
+https://collider.com/the-fantastic-four-first-steps-streaming-success-disney-plus-may-2026/
+
+Marvel's most impressive movie of 2025 is a popular streaming hit ahead of Spider-Man: Brand New Day. Read on for more details.
+---------
+
+# Iconic Comedy 'Spaceballs' Heads to Tubi Ahead of Long-Awaited Sequel
+
+Movie News, Spaceballs, Coming/Leaving Streaming, Spaceballs: The New One, Comedy
+
+Sun, 17 May 2026 13:00:19 GMT
+
+https://movieweb.com/spaceballs-best-comedy-movie-streaming-free-tubi-june-2026/
+
+Mel Brooks' comedy classic, 'Spaceballs,' is heading back to free streaming ahead of next year's anticipated sequel, 'Spaceballs 2: The New One.'
+---------
+
 # Uncharted 5 Has PlayStation Gamers More Excited Than Ever
 
 Gaming, Uncharted
