@@ -1,3 +1,333 @@
+# Marvel Director Wants To Helm Spider-Man Movie With The Perfect Miles Morales In Mind
+
+Movies, Spider-Man, Spider-Man: Into The Spider-Verse, Miles Morales, Marvel Cinematic Universe
+
+Sun, 17 May 2026 22:06:57 GMT
+
+https://screenrant.com/spiderman-movie-miles-morales-casting-reinaldo-marcus-green-interest/
+
+One Marvel director's personal connection with Miles Morales could lead to the perfect MCU introduction for the ultimate Spider-Man.
+---------
+
+# Charlie Cox Reveals His Favorite Stunt Was Cut From Daredevil: Born Again Season 2
+
+TV, Motor City Comic Con, Daredevil: Born Again
+
+Sun, 17 May 2026 22:04:28 GMT
+
+https://screenrant.com/daredevil-born-again-season-2-charlie-favorite-stunt-cut-explained/
+
+Exclusive: One of Charlie Cox's favorite action scenes from Daredevil: Born Again season 2 was unfortunately removed from the show.
+---------
+
+# 10 Revenge Anime That Are Considered Masterpieces
+
+Anime, Vinland Saga, Berserk, Yona of the Dawn, Moriarty the Patriot, Black Butler, Attack On Titan, 91 Days, Skip Beat!, Gankutsuou: The Count of Monte Cristo, Afro Samurai
+
+Sun, 17 May 2026 22:00:20 GMT
+
+https://screenrant.com/best-revenge-anime-masterpieces/
+
+Revenge stories are some of the best in existance, so here are 10 of the best revenge-centered anime that every fan needs to watch at least once.
+---------
+
+# Apple TV's 8-Part Thriller That's 'Mindhunter Meets Sharp Objects' Is One Of Its Best Crime Shows
+
+Streaming TV, Masked Recs
+
+Sun, 17 May 2026 22:00:20 GMT
+
+https://screenrant.com/presumed-innocent-apple-tv-mindhunter-meets-sharp-objects/
+
+Apple TV has an eight-episode legal thriller that is part-Mindhunter, part-Sharp Objects, and filled with incredible performances from the cast.
+---------
+
+# Batman’s New Suit Is A Poor Imitation Of One Of His Best
+
+Gaming, Batman, LEGO Batman: Legacy of the Dark Knight, Triple-A Games, Batman Beyond
+
+Sun, 17 May 2026 22:00:20 GMT
+
+https://screenrant.com/batman-beyond-suit-lego-legacy-dark-knight/
+
+One of Batman's coolest costumes is being iterated on in a new appearance for the character, and it is failing to live up to its inspiration.
+---------
+
+# Prime Video's Upcoming Captive's War Series Will Test The Limits Of Sci-Fi TV
+
+Streaming TV, Sci-Fi
+
+Sun, 17 May 2026 21:46:20 GMT
+
+https://screenrant.com/prime-video-captives-war-sci-fi-series-test-limits/
+
+The Expanse has become Prime Video's flagship sci-fi TV show, but its upcoming new sci-fi project could be even bigger and push more boundaries.
+---------
+
+# 10 Movies Celebrating Their 25th Anniversary In 2026
+
+Classic Movies, Ranking
+
+Sun, 17 May 2026 21:30:20 GMT
+
+https://screenrant.com/movies-celebrating-25th-anniversary-2026/
+
+Several movies are celebrating their 25th anniversary in 2026, and the number of acclaimed and popular films is bigger than almost any other year.
+---------
+
+# 10 Perfect Sci-Fi Shows We Can't Live Without
+
+Classic TV
+
+Sun, 17 May 2026 21:30:20 GMT
+
+https://screenrant.com/perfect-sci-fi-tv-shows-not-live-without/
+
+The best sci-fi TV shows have redefined the genre with their storytelling, characters, and impact on the industry. These are the top 10.
+---------
+
+# 10 Best Sci-Fi Movies From The 2000s, Ranked
+
+Movies, Sci-Fi, Ranking
+
+Sun, 17 May 2026 21:30:20 GMT
+
+https://screenrant.com/best-scifi-movies-2000s-ranked/
+
+From Star Wars to Avatar, the 2000s produced a wide variety of stellar science fiction films. Which sci-fi flick from the Aughts is the best?
+---------
+
+# Everything We Know About Ben Affleck's Unmade Batman Movie
+
+Movies, Batman
+
+Sun, 17 May 2026 21:15:19 GMT
+
+https://screenrant.com/ben-affleck-batman-movie-story-characters-explained/
+
+Before the SnyderVerse ended, Ben Affleck was lined up to direct and star in a Batman solo movie. Here's everything we know about the unmade film.
+---------
+
+# Netflix's New Format-Breaking Steamy Thriller Is Officially a Streaming Hit
+
+TV, Netflix
+
+Sun, 17 May 2026 22:00:13 GMT
+
+https://www.cbr.com/netflix-between-father-and-son-streaming-hit-may-2026/
+
+Netflix's new erotic thriller is a microdrama that has quickly become a global hit.
+---------
+
+# Maomao Gets Stunning Tribute in New The Apothecary Diaries Limited Edition Release
+
+Anime, The Apothecary Diaries
+
+Sun, 17 May 2026 22:00:13 GMT
+
+https://www.cbr.com/maomao-the-apothecary-diaries-starforge-systems-pc-release/
+
+The lovely Maomao receives a stunning tribute worthy of her beauty in the new limited-edition release of The Apothecary Diaries.
+---------
+
+# 5 Forgotten Coming-of-Age Movies That Are Perfect From Start to Finish
+
+Movies
+
+Sun, 17 May 2026 22:00:13 GMT
+
+https://www.cbr.com/best-coming-of-age-movies-no-one-remembers-list/
+
+Coming-of-age movies hold a special place in the hearts of audiences, and there are some hidden gems that everyone should see.
+---------
+
+# The Last of Us Officially Returns With New Release for Collectors
+
+Games, The Last of Us
+
+Sun, 17 May 2026 21:50:14 GMT
+
+https://www.cbr.com/last-of-us-new-release-june-2026-limited-time-statue-ellie-joel/
+
+Joel and Ellie reunite in a stunning new collectible from Dark Horse Direct.
+---------
+
+# Steve Carell’s Despicable Me Surges on Streaming Ahead of New Prequel
+
+Movies, Despicable Me, Comedy
+
+Sun, 17 May 2026 21:30:13 GMT
+
+https://www.cbr.com/steve-carell-despicable-me-animation-comedy-streaming-success-may-2026/
+
+Steve Carell's beloved hit Despicable Me is a streaming success 16 years later, ahead of new prequel.
+---------
+
+# 6 Near-Perfect Sci-Fi Movies No One Talks About Anymore
+
+Movies, Sci-Fi
+
+Sun, 17 May 2026 21:30:13 GMT
+
+https://www.cbr.com/best-sci-fi-movies-no-one-remembers-list/
+
+The science fiction genre is full of films that nailed their ideas and execution, yet slowly faded from the spotlight despite being nearly flawless.
+---------
+
+# Gillian Anderson's New Slasher Film Debuts With Rare Rotten Tomatoes Score
+
+Movies, Teenage Sex and Death at Camp Miasma, Rotten Tomatoes
+
+Sun, 17 May 2026 21:28:23 GMT
+
+https://www.cbr.com/teenage-sex-and-death-at-camp-miasma-rotten-tomatoes-score/
+
+The unique horror slasher film featuring Gillian Anderson has debuted at Cannes with a very rare Rotten Tomatoes score.
+---------
+
+# One Piece’s Biggest Streaming Question Is Getting Harder to Ignore
+
+Anime, One Piece
+
+Sun, 17 May 2026 21:15:13 GMT
+
+https://www.cbr.com/one-piece-biggest-streaming-question-getting-harder-to-ignore/
+
+A growing concern surrounding this franchise is becoming more difficult for fans and interested newcomers to overlook.
+---------
+
+# 7 Action Movies From the 21st Century That Are 10/10, No Notes
+
+Movie, Action, Mad Max: Fury Road, Crouching Tiger, Hidden Dragon, Oldboy
+
+Sun, 17 May 2026 22:04:14 GMT
+
+https://collider.com/perfect-action-movies-21st-century/
+
+Hot Fuzz, Revenge, Oldboy, Top Gun: Maverick, Mad Max: Fury Road, and more make up our list of perfect action movies from the 21st century.
+---------
+
+# HBO’s Divisive 3-Part Crime Thriller Is the Ultimate Weekend Binge of 2026
+
+TV News, Euphoria, HBO Max, Streaming, Sydney Sweeney
+
+Sun, 17 May 2026 22:00:13 GMT
+
+https://collider.com/hbo-max-divisive-crime-thriller-euphoria-streaming-milestone-50-days-may-2026/
+
+The most controversial show of 2026 just hit a huge streaming milestone on HBO Max. Here's what you should know about the series.
+---------
+
+# 10 Greatest Nintendo Switch Games of All Time, Ranked
+
+Movie, Nintendo, Video Game, Mario Kart, Legend of Zelda: Breath of the Wild
+
+Sun, 17 May 2026 21:55:13 GMT
+
+https://collider.com/best-nintendo-switch-games-all-time-ranked/
+
+The Legend of Zelda: Breath of the Wild, Super Smash Bros. Ultimate, and Super Mario Odyssey are among the best Nintendo Switch video games ever.
+---------
+
+# 10 Greatest Detective Shows Worth Watching Over and Over
+
+TV, Thriller, Crime, Murder, She Wrote, Criminal Minds
+
+Sun, 17 May 2026 21:54:13 GMT
+
+https://collider.com/best-detective-shows-worth-watching-over-and-over/
+
+Criminal Minds, CSI: New York, and Murder, She Wrote are all among the very best detective TV shows you can watch over and over.
+---------
+
+# 10 Most Universally Disliked Movies of All Time, Ranked
+
+Movie, The Last Airbender, Gotti, Cats, Gigli
+
+Sun, 17 May 2026 21:43:13 GMT
+
+https://collider.com/most-universally-disliked-movies-all-time-ranked/
+
+Cinematic dumpster fires like Cats, United Passions, and Gigli are all among the most universally hated movies ever made.
+---------
+
+# 'The Housemaid' Meets 'Gone Girl' in Rebecca Ferguson's Forgotten Detective Thriller Leaving Netflix
+
+Movie News, The Girl on the Train, Rebecca Ferguson, Emily Blunt, Thriller
+
+Sun, 17 May 2026 21:30:13 GMT
+
+https://collider.com/rebecca-ferguson-detective-thriller-the-housemaid-meets-gone-girl-on-the-train-leaving-netflix-june-2026/
+
+10 Years before The Housemaid, Rebecca Ferguson starred in a blockbuster thriller based on a bestselling novel. The movie is leaving Netflix soon.
+---------
+
+# 20 Years Ago 'Miami Vice' Redefined Both Action and Romance — And It Deserves Another Look
+
+Movie Features, Action, Michael Mann, Colin Farrell, Miami Vice
+
+Sun, 17 May 2026 21:23:12 GMT
+
+https://collider.com/miami-vice-2006-michael-mann-detective-thriller-masterpiece-forget-heat/
+
+Michael Mann's crime masterpiece Miami Vice turns 20 this year, and it changed action movies forever.
+---------
+
+# Netflix's Grown-Up Sci-Fi 'Stranger Things' Replacement Officially Arrives Next Week
+
+TV News, The Boroughs, Stranger Things, Netflix, Duffer Brothers
+
+Sun, 17 May 2026 21:15:13 GMT
+
+https://collider.com/netflix-grown-up-sci-fi-stranger-things-replacement-the-boroughs-duffer-brothers-premiere-date-plot-details-how-to-watch/
+
+Netflix is releasing a new series on May 21 that Stranger Things fans should watch, as it's quite similar. Get all the details here.
+---------
+
+# Stephen King Loves This 2-Part Netflix Sci-Fi Horror Spin-Off You Probably Missed
+
+TV Features, Stephen King, Black Summer, Z Nation, Netflix
+
+Sun, 17 May 2026 21:14:13 GMT
+
+https://collider.com/black-summer-netflix-stephen-king-loves-zombie-sci-fi-horror-spin-off/
+
+Black Summer, a sequel to Z Nation, delivers intense zombie action and a gripping storyline that was praised by horror king Stephen King.
+---------
+
+# 'John Wick' Star's Action Thriller 'One More Shot' Lands Free Streaming Release Date on Tubi
+
+Movie News, One More Shot, Tubi, Coming/Leaving Streaming, Action, John Wick
+
+Sun, 17 May 2026 22:00:18 GMT
+
+https://movieweb.com/one-more-shot-action-streaming-free-tubi-june-2026/
+
+'John Wick' actor, Scott Adkins' one-shot action thriller 'One More Shot' will stream for free on Tubi in June 2026.
+---------
+
+# 'Spider-Man: Brand New Day' Is Finally Fixing an Original Avengers Team-Up Problem After 10 Years
+
+Features, Spider-Man: Brand New Day, MCU, Canon Shift
+
+Sun, 17 May 2026 22:00:18 GMT
+
+https://movieweb.com/spider-man-hulk-thor-team-up-mcu/
+
+Ten years since Tom Holland debuted as Spider-Man in the MCU, he will finally fulfill a major milestone in 'Brand New Day'.
+---------
+
+# Zach Cregger's 'Resident Evil' Reboot Fixes a Glaring Video Game Movie Problem
+
+Features, Resident Evil, Zach Cregger, Horror
+
+Sun, 17 May 2026 21:30:18 GMT
+
+https://movieweb.com/resident-evil-reboot-fixes-video-game-movie-problem/
+
+Zach Cregger's 'Resident Evil' reboot trailer proves a long-standing video game movie problem has finally been solved.
+---------
+
 # Marvel Permanently Retires Its Most Hated Character With The Perfect Last Word
 
 Marvel Comics, Spider-Man, Venom, Marvel
