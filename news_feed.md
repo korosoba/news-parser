@@ -1,3 +1,344 @@
+# Scooby-Doo: Origins Cast: Who's Who In Netflix's Live-Action Scooby-Doo
+
+Streaming TV, Scooby-Doo
+
+Sun, 17 May 2026 02:15:21 GMT
+
+https://screenrant.com/scooby-doo-origins-cast-netflix-live-action/
+
+Netflix's upcoming drama Scooby-Doo: Origins may be the most highly-anticipated TV adaptation of the year, and its cast is already upping the ante.
+---------
+
+# Why Lanterns Made Hal Jordan Older Officially Revealed By Showrunner
+
+TV, Lanterns
+
+Sun, 17 May 2026 02:07:37 GMT
+
+https://screenrant.com/lanterns-dcu-hal-jordan-older-chris-mundy-explained/
+
+Lanterns showrunner Chris Mundy explained why it was decided to make Hal Jordan an older man in the DC Universe opposite the younger John Stewart.
+---------
+
+# 8 Marvel Characters Who Need A 'Special Presentation' After The Punisher
+
+Streaming TV, The Punisher: One Last Kill
+
+Sun, 17 May 2026 02:00:32 GMT
+
+https://screenrant.com/marvel-characters-need-special-presentation/
+
+The Punisher: One Last Kill proves Marvel's Special Presentation format is a potential goldmine for expanding on underutilized characters in the MCU.
+---------
+
+# Assassin's Creed Officially Returns With New Fall 2026 Release
+
+Gaming, Assassin's Creed, PC, Assassin's Creed Unity
+
+Sun, 17 May 2026 02:00:32 GMT
+
+https://screenrant.com/assassins-creed-arno-dorian-pure-arts-2026/
+
+One of Assassin's Creed's most iconic characters is officially returning this year with a brand-new release, expected to drop in fall 2026.
+---------
+
+# The Boys' Penultimate Episode Hints An Iconic Comic Scene Is About To Happen
+
+Streaming TV, The Boys
+
+Sun, 17 May 2026 01:45:20 GMT
+
+https://screenrant.com/the-boys-white-house-homelander-battle-president-set-up/
+
+A specific scene from The Boys season 5, episode 7 leads to a change in the status quo, as well as hinting that a big comic book moment will happen.
+---------
+
+# Daredevil & The Defenders Complete Timeline: What Order To Watch
+
+Superheroes, The Defenders, Marvel Cinematic Universe
+
+Sun, 17 May 2026 01:30:20 GMT
+
+https://screenrant.com/daredevil-defenders-netflix-marvel-timeline-best-order/
+
+The Netflix Marvel shows are more important to the Marvel Cinematic Universe than ever, and here is the correct order to watch every one of them.
+---------
+
+# Fallout Season 3’s Upcoming Sci-Fi Reunion Makes A Casting Wish More Possible
+
+Streaming TV, Fallout
+
+Sun, 17 May 2026 01:15:20 GMT
+
+https://screenrant.com/fallout-season-3-aaron-paul-westworld-ed-harris-mysterious-stranger-fancast/
+
+Fallout season 3 is set to reunite three people from an iconic sci-fi TV series. The show should bring in another great actor from the same series.
+---------
+
+# Marvel Is Officially Taking X-Men's Jubilee To The A-List
+
+Marvel Comics, X-Men, Marvel
+
+Sun, 17 May 2026 01:00:20 GMT
+
+https://screenrant.com/x-men-jubilee-a-list-character-change/
+
+Marvel lays the groundwork for the MCU's X-Men reboot with an unexpected focus on a certain mutant who stars in three different titles this year.
+---------
+
+# Justice League: Darkseid Officially Releases January 2027
+
+Gaming, Justice League, DC Comics, Darkseid, PC
+
+Sun, 17 May 2026 01:00:20 GMT
+
+https://screenrant.com/justice-league-darkseid-pure-arts-2027/
+
+DC Comics' most iconic supervillain and Justice League archenemy Darkseid officially returns early next year in an incredible new release.
+---------
+
+# 10 Near-Perfect Hard Sci-Fi Shows That Have Aged Like Fine Wine
+
+Classic TV, Sci-Fi
+
+Sun, 17 May 2026 01:00:20 GMT
+
+https://screenrant.com/hard-sci-fi-shows-aged-like-fine-wine/
+
+Hard sci-fi shows have always occupied a special place in television, with some series released over the years still being relevant today.
+---------
+
+# Xbox Officially Gets Odd Name Change Amid Rebranding Efforts
+
+Games, Xbox Series X (1)
+
+Sun, 17 May 2026 02:23:32 GMT
+
+https://www.cbr.com/xbox-slight-name-change-rebranding/
+
+Xbox officially gets an updated name, sort of.
+---------
+
+# The Best PlayStation Characters of Every Generation
+
+Games, PlayStation (Original), Marvel's Spider-Man, Uncharted, crash bandicoot
+
+Sun, 17 May 2026 02:15:13 GMT
+
+https://www.cbr.com/the-best-playstation-characters-of-every-generation/
+
+PlayStation's most iconic characters, like Crash Bandicoot and Nathan Drake, each appeared on new console generations, defining their gaming eras.
+---------
+
+# Rei Ami Gets a Magical Girl Redesign in Crunchyroll Ani-May Spotify Promo
+
+Anime, Sailor Moon, KPop Demon Hunters, Crunchyroll, Spotify
+
+Sun, 17 May 2026 02:00:25 GMT
+
+https://www.cbr.com/crunchyroll-spotify-playlist-rei-ami-magical-girl-redesign/
+
+This KPop Demon Hunters star just got the ultimate magical girl upgrade for her next role as Crunchyroll's official Ambassador.
+---------
+
+# 10 Darkest High School Anime of All Time
+
+Anime, Death Note, Parasyte The Maxim, Devilman Crybaby
+
+Sun, 17 May 2026 01:45:14 GMT
+
+https://www.cbr.com/darkest-high-school-anime-ever-list/
+
+From brutal horror classics to emotionally crushing psychological dramas, series like Death Note and Another transform high school into a nightmare.
+---------
+
+# 8 Most Perfect Anime Thrillers of the Last 25 Years, Ranked
+
+Anime, Death Note, Darker Than Black
+
+Sun, 17 May 2026 01:25:13 GMT
+
+https://www.cbr.com/most-perfect-anime-thrillers-past-25-years-ranked-list/
+
+There are some strong anime thrillers from the past 25 years, with Death Note, Monster, and Summertime Rendering representing the genre's very best.
+---------
+
+# The Bloodiest & Raunchiest TV Show in History Is Exploding on PVOD 14 Years Later
+
+TV, Spartacus
+
+Sun, 17 May 2026 01:00:13 GMT
+
+https://www.cbr.com/spartacus-historical-drama-pvod-success-may-2026/
+
+Although the flagship series ended, the franchise is still thriving.
+---------
+
+# Netflix’s Kingdom Outshines The Walking Dead
+
+TV, Netflix, Kingdom, Walking Dead
+
+Sun, 17 May 2026 01:00:13 GMT
+
+https://www.cbr.com/netflix-kingdom-outshines-the-walking-dead/
+
+Kingdom’s lack of modern advantages leads to a faster-paced, more intense, and more gripping apocalyptic story than The Walking Dead.
+---------
+
+# 10 Must-Watch Action Anime That Have Zero Bad Seasons
+
+Anime, Attack on Titan, Jujutsu Kaisen
+
+Sun, 17 May 2026 00:45:14 GMT
+
+https://www.cbr.com/must-watch-action-anime-zero-bad-seasons/
+
+Some anime series struggle to stay engaging throughout, yet these action masterpieces manage to go without a single bad season.
+---------
+
+# What Hollow Knight: Silksong's Delay Reveals About Gaming's Hype Culture
+
+Games, hollow knight silksong, Indie Games, Video Games
+
+Sun, 17 May 2026 00:30:13 GMT
+
+https://www.cbr.com/hollow-knight-silksong-delay-exposes-gaming-hype-culture/
+
+Hollow Knight: Silksong's delay exposed what gaming's toxic hype culture costs developers and players when anticipation becomes a weapon.
+---------
+
+# Shonen Anime Protagonists Are More Vulnerable Than Ever, And It Works
+
+Anime, Shonen, Jujutsu Kaisen, Chainsaw Man, My Hero Academia, Demon Slayer: Kimetsu no Yaiba, Naruto, Dragon Ball, Bleach, Mob Psycho 100, Neon Genesis Evangelion, shonen anime
+
+Sun, 17 May 2026 00:16:13 GMT
+
+https://www.cbr.com/shonen-anime-protagonist-vulnerability/
+
+Modern shonen anime heroes show real fear, trauma, and weakness, making their struggles more relatable and compelling than ever for fans.
+---------
+
+# 10 Greatest Movie Characters of the 2020s, Ranked
+
+Movie, Dune, Project Hail Mary, Everything Everywhere All at Once, The Wild Robot
+
+Sun, 17 May 2026 01:33:14 GMT
+
+https://collider.com/greatest-movie-characters-2020s-ranked/
+
+Rocky from Project Hail Mary, Paul Atreides from Dune, Art from Terrifier 2, and more make up our list of best movie characters from the 2020s.
+---------
+
+# 8 Near-Perfect Hard Fantasy Shows That No One Remembers Today
+
+TV, Fantasy, The Magicians, Carnival Row, Carnivale
+
+Sun, 17 May 2026 01:04:14 GMT
+
+https://collider.com/near-perfect-hard-fantasy-shows-no-one-remembers/
+
+From Syfy's underrated gem The Magicians to the Prime Video steampunk series Carnival Row, these fantasy series have been forgotten by audiences.
+---------
+
+# Prime Video's 'Heated Rivalry' Replacement Talk About That Major Season 1 Finale Twist
+
+Exclusives, Off Campus, Jalen Thomas Brooks, Antonio Cipriano, Stephen Kalyn
+
+Sun, 17 May 2026 01:02:13 GMT
+
+https://collider.com/off-campus-finale-twist-jalen-thomas-brooks-antonio-cipriano-stephen-kalyn/
+
+Off Campus stars Antonio Cipriano, Stephen Kalyn, and Jalen Thomas Brooks discuss the major Season 1 finale twist and what's in store for Season 2.
+---------
+
+# 9 Years Later, Robert Pattinson’s 101-Minute Crime Thriller Nightmare Is Officially Free to Stream
+
+Movie News, A24, Robert Pattinson, Josh Safdie, Good Time
+
+Sun, 17 May 2026 01:00:13 GMT
+
+https://collider.com/robert-pattinson-crime-thriller-good-time-free-streaming-fawesome-may-2026/
+
+Robert Pattinson’s crime thriller Good Time is streaming for free this month on Fawesome. Here's everything you should know.
+---------
+
+# Before ‘The Mandalorian and Grogu,’ Watch This Creepy New Horror Hit From a ‘Star Wars’ Favorite
+
+Movie News, We Bury the Dead, The Mandalorian and Grogu, Hulu, Daisy Ridley
+
+Sun, 17 May 2026 00:45:14 GMT
+
+https://collider.com/daisy-ridley-horror-movie-we-bury-the-dead-streaming-success-hulu-may-2026/
+
+Before The Mandalorian and Grogu, people can't stop watching this Star Wars icon's new horror movie. Read on for more details.
+---------
+
+# 12 Greatest HBO Shows of the Last 10 Years, Ranked
+
+TV, HBO, The Last of Us, The Pitt, House of the Dragon
+
+Sun, 17 May 2026 00:41:14 GMT
+
+https://collider.com/best-hbo-shows-last-10-years-ranked/
+
+Explore the top HBO shows of the last decade, ranked by their unique storytelling and cultural influence, from House of the Dragon to The White Lotus.
+---------
+
+# 24 Years Later, David Fincher’s Intense Crime Thriller Masterpiece Is Finally Free to Stream
+
+Movie News, Panic Room, Kristen Stewart, Jodie Foster, David Fincher
+
+Sun, 17 May 2026 00:30:14 GMT
+
+https://collider.com/david-fincher-crime-thriller-masterpiece-panic-room-free-streaming-fawesome-may-2026/
+
+Panic Room, which features a young Kristen Stewart, is streaming for free this month on Fawesome. Read on for more.
+---------
+
+# Jon Hamm Gave His Best Performance Since ‘Mad Men’ in This Exciting Spy Thriller From the Creator of ‘Andor’
+
+Movie Features, Beirut, Jon Hamm, Tony Gilroy, Andor
+
+Sun, 17 May 2026 00:22:13 GMT
+
+https://collider.com/beirut-jon-hamm-spy-thriller-from-creator-of-andor-tony-gilroy/
+
+Gilroy wrote the terrific, old-fashioned political thriller Beirut, which featured Jon Hamm in what may be his best film performance.
+---------
+
+# 'The Pitt's Biggest Competitor Is Still the Official King of Medical Thrillers
+
+TV News, Grey's Anatomy, Drama, Hulu, Streaming
+
+Sun, 17 May 2026 00:15:14 GMT
+
+https://collider.com/the-pitt-replacement-medical-thriller-series-greys-anatomy-streaming-success-hulu-may-2026/
+
+The greatest medical drama of all time is back at the top of the streaming charts. Here's what you should know about Grey's Anatomy.
+---------
+
+# 19 Years Later, Russell Crowe's Western Masterpiece Is a Sudden Streaming Hidden Gem
+
+Movie News, 3:10 to Yuma, Christian Bale, Russell Crowe
+
+Sun, 17 May 2026 00:00:14 GMT
+
+https://collider.com/russell-crowe-christian-bale-western-masterpiece-310-to-yuma-free-streaming-fawesome-may-2026/
+
+The acclaimed Western remake, 3:10 to Yuma, starring Russell Crowe, is streaming for free this month on Fawesome.
+---------
+
+# 'Dutton Ranch' Confirms John Dutton's Replacement in the 'Yellowstone' Universe
+
+Features, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Sun, 17 May 2026 00:15:18 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-confirms-john-dutton-replacement-beth/
+
+'Dutton Ranch' confirms that Beth Dutton is the character who will truly carry John Dutton's legacy forward in the 'Yellowstone' Universe.
+---------
+
 # First Official James Bond 26 Contender Revealed In New 007 Audition Report
 
 Movies, James Bond
