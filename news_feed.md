@@ -1,3 +1,267 @@
+# Taylor Sheridan Is Finally Releasing The Yellowstone Story That Everyone Wants
+
+Streaming TV, Yellowstone, Dutton Ranch
+
+Sun, 17 May 2026 15:45:20 GMT
+
+https://screenrant.com/yellowstone-season-6-story-dutton-ranch-telling-finally/
+
+Kayce's Marshals is a hit, but it isn't the best Yellowstone story that needs to be told. Thankfully, Taylor Sheridan is finally doing it.
+---------
+
+# Henry Cavill's New Thriller In The Grey Earns His Worst Box Office Debut In 14 Years
+
+Movies, Box Office, In the Grey
+
+Sun, 17 May 2026 15:41:19 GMT
+
+https://screenrant.com/in-the-grey-movie-domestic-box-office-debut-henry-cavill-record/
+
+Henry Cavill's new Guy Ritchie thriller movie In the Grey earns the star's worst wide domestic debut since 2012 and his second worst overall.
+---------
+
+# FX’s 'Friends Meets New Girl' Show Is The Best Sitcom You Missed
+
+Streaming TV, Masked Recs
+
+Sun, 17 May 2026 15:30:21 GMT
+
+https://screenrant.com/fx-adults-best-new-modern-sitcom/
+
+FX has a brilliant sitcom that brings together the best of Friends and New Girl, and in just one season, it managed to modernize sitcoms.
+---------
+
+# The Fast & The Furious Just Got A New R-Rated Successor In The Least Likely Place
+
+Movies, Mortal Kombat II, The Fast and the Furious
+
+Sun, 17 May 2026 15:30:21 GMT
+
+https://screenrant.com/the-fast-the-furious-mortal-kombat-movie-similarity/
+
+One newer movie series has already mirrored the main hallmark of The Fast & The Furious in a major way, teeing it up to be an accidental successor.
+---------
+
+# ARC Raiders Will Expand Beyond The Rust Belt With Brand-New Maps (Exclusive)
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Sun, 17 May 2026 15:28:52 GMT
+
+https://screenrant.com/arc-raiders-new-maps-world-expansion-beyond-rust-belt/
+
+ARC Raiders devs confirm new maps beyond the Rust Belt are in development as Embark plans major world expansions.
+---------
+
+# Ghosts: Every Character Who Knows About Sam's Woodstone Secret
+
+Network TV, Ghosts
+
+Sun, 17 May 2026 15:11:20 GMT
+
+https://screenrant.com/ghosts-every-character-knows-sam-woodstone-secret/
+
+Sam has to keep her big secret about her ability to see ghosts from almost everybody on the CBS sitcom, but there are some big exceptions to the rule.
+---------
+
+# 12 Best Minecraft Seeds To Play In 2026
+
+Gaming, Minecraft, PC
+
+Sun, 17 May 2026 15:00:21 GMT
+
+https://screenrant.com/minecraft-best-seeds-2026/
+
+Minecraft has evolved significantly over the course of this year, creating truly unique world seeds you can try as the iconic game enters 2026.
+---------
+
+# Star Wars: The Acolyte Is Better If You Ignore The Biggest Thing About It
+
+Streaming TV, The Acolyte, Star Wars
+
+Sun, 17 May 2026 15:00:20 GMT
+
+https://screenrant.com/the-acolyte-better-ignore-star-wars/
+
+Disney+'s 2024 TV show The Acolyte was canceled after just one season, but it becomes more enjoyable when you separate it from Star Wars.
+---------
+
+# The Boys Make Their Last Stand At The White House In Series Finale Trailer
+
+TV, The Boys
+
+Sun, 17 May 2026 14:46:23 GMT
+
+https://screenrant.com/the-boys-season-5-episode-8-finale-trailer/
+
+The Boys is officially coming to an end in the last trailer for the upcoming finale as beloved vigilantes attempt to destroy Homelander forever.
+---------
+
+# 16 Years Later, Lost Fan Favorite Finally Addresses Controversial Finale
+
+TV, Lost
+
+Sun, 17 May 2026 15:40:27 GMT
+
+https://www.cbr.com/lost-daniel-dae-kim-addresses-controversial-finale/
+
+The series is still considered one of the best, but fans have different opinions about the finale.
+---------
+
+# The X-Men Reveals Professor X's Most Radical Redesign Yet
+
+Comics, X-Men, uncanny x-men
+
+Sun, 17 May 2026 15:34:23 GMT
+
+https://www.cbr.com/the-x-men-reveals-professor-x-most-radical-redesign-yet/
+
+Professor X has just been reimagined like never before, and he might just be the coolest version of the character that fans have ever seen.
+---------
+
+# GTA 6 Price Officially Confirmed for November 2026 Launch
+
+Games, Grand Theft Auto
+
+Sun, 17 May 2026 15:20:15 GMT
+
+https://www.cbr.com/gta-6-price-official-confirmation-launch-date-news/
+
+Take-Two's CEO quietly commented on GTA 6's price earlier this year, but a new leak about pricing could be bad news for gamers.
+---------
+
+# Viral Lanterns Teaser Finally Reveals Superpowers That Has DC Fans Ecstatic
+
+TV, DCU, DC Comics, Lanterns, Green Lantern
+
+Sun, 17 May 2026 15:18:29 GMT
+
+https://www.cbr.com/lanterns-teaser-green-superpower-james-gunn/
+
+The latest Lanterns teaser is going viral but, this time, for the right reason.
+---------
+
+# 7 Fantasy Anime That Are As Good As Frieren
+
+Anime, The Apothecary Diaries, Frieren: Beyond Journey's End, Delicious in Dungeon
+
+Sun, 17 May 2026 15:15:13 GMT
+
+https://www.cbr.com/near-perfect-fantasy-anime-as-good-as-frieren/
+
+Frieren is one of the greatest fantasy anime of all time, but fans can also enjoy these seven titles that feel just like it and are near-perfect.
+---------
+
+# Claire & Jamie's Fate in Outlander Series Finale Addressed by Showrunner
+
+TV, Outlander
+
+Sun, 17 May 2026 15:14:07 GMT
+
+https://www.cbr.com/claire-jamie-fate-outlander-series-finale-showrunner/
+
+After eight seasons, the show has finally come to an end.
+---------
+
+# Before New Peaky Blinders Spinoff, This 4-Part Period Drama Is Required Viewing (& It's Leaving Netflix Soon)
+
+TV, TURN: Washington's Spies
+
+Sun, 17 May 2026 15:00:13 GMT
+
+https://www.cbr.com/jamie-bell-period-drama-turn-washingtons-spies-leaving-netflix-june-2026/
+
+Peaky Blinders fans don't have much time left to watch this must-see series ahead of the new spinoff.
+---------
+
+# Nintendo Continues to Beat Microsoft and Sony With the Switch 2
+
+Games, Nintendo, Gaming
+
+Sun, 17 May 2026 15:00:13 GMT
+
+https://www.cbr.com/nintendo-dominates-gaming-industry-switch-2/
+
+Nintendo dominates gaming by breaking industry rules with the Switch 2, while Sony and Microsoft still can't crack the winning formula.
+---------
+
+# ‘Mortal Kombat 2’ Suffers Box-Office Fatality Ahead of New Star Wars
+
+Movie News, Mortal Kombat II, Karl Urban, Box Office, The Mandalorian and Grogu
+
+Sun, 17 May 2026 15:30:15 GMT
+
+https://collider.com/mortal-kombat-2-box-office-101-million/
+
+Mortal Kombat 2 loses box office momentum after underwhelming debut, facing an uphill battle against the looming Star Wars release.
+---------
+
+# 8 Most Universally Beloved Animated Superhero Movies of All Time, Ranked
+
+Movie, Superhero, Animation, The Incredibles, Megamind
+
+Sun, 17 May 2026 15:04:14 GMT
+
+https://collider.com/animated-superhero-movies-universally-beloved-all-time-ranked/
+
+From Sony's Spider-Man: Into the Spider-Verse to Pixar's The Incredibles, which animated superhero movie is the most universally beloved by audiences?
+---------
+
+# Henry Cavill’s New Action Movie Isn’t Getting the Box Office Hero’s Welcome It Deserves
+
+Movie News, Henry Cavill, In the Grey, Guy Ritchie, Box Office
+
+Sun, 17 May 2026 15:00:13 GMT
+
+https://collider.com/henry-cavill-action-thriller-in-the-grey-box-office-debut-3-million/
+
+Henry Cavill’s latest Guy Ritchie-helmed action movie is struggling to find an audience at the box office after dividing critics and audiences.
+---------
+
+# Timothy Olyphant's 'Justified' Has One of the Best Opening Scenes in TV
+
+Features, Justified, Holds Up
+
+Sun, 17 May 2026 15:33:43 GMT
+
+https://movieweb.com/best-opening-justified-western/
+
+Timothy Olyphant's 'Justified' still holds up 16 years later, and its opening scene is an instant selling point.
+---------
+
+# 32 Years Ago, Woody Harrelson Made a Polarizing Cowboy Action Comedy
+
+Features, Woody Harrelson, The Cowboy Way
+
+Sun, 17 May 2026 15:00:20 GMT
+
+https://movieweb.com/woody-harrelson-the-cowboy-way-polarizing-disappeared/
+
+No matter how great an actor you are, you can always star in bad movies. For Woody Harrelson, 'The Cowboy Way' is that film.
+---------
+
+# Johnny Depp Crime Thriller 'Blow' Returns to Streaming June 1
+
+Movie News, Johnny Depp, Blow, Coming/Leaving Streaming, Crime, Thriller
+
+Sun, 17 May 2026 15:00:19 GMT
+
+https://movieweb.com/johnny-depp-blow-crime-thriller-streaming-tubi-june-2026/
+
+Following a brief departure from streaming, Depp's $83 million crime thriller, 'Blow,' will make its triumphant return to Tubi on June 1, 2026.
+---------
+
+# Tom Hanks & Billy Bob Thornton Upstage the Cast in Taylor Sheridan's Best TV Western During their Brief Cameos
+
+Features, 1883, Taylor Sheridan, Tom Hanks, Billy Bob Thornton
+
+Sun, 17 May 2026 15:00:19 GMT
+
+https://movieweb.com/billy-bob-thornton-tom-hanks-1883-cameos/
+
+In six minutes of screen time, Oscar winners Tom Hanks and Billy Bob Thornton steal the show in Taylor Sheridan's acclaimed western prequel '1883'.
+---------
+
 # 45 Years Later, The Evil Dead Franchise’s Best Sequel Is Not A Movie
 
 TV, Evil Dead, Masked Recs
