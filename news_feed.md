@@ -1,3 +1,190 @@
+# Why The Pitt Won't Have A Night Shift Spinoff Explained By Noah Wyle
+
+TV, The Pitt
+
+Sun, 17 May 2026 18:32:54 GMT
+
+https://screenrant.com/the-pitt-night-shift-spinoff-debunk-noah-wyle/
+
+Noah Wyle, star and executive producer of HBO's The Pitt, shares his reasoning behind the hit show not getting the demanded night shift spinoff.
+---------
+
+# Marvel Unveils Spider-Verse Remake For Next Big Crossover Event
+
+Marvel Comics, Spider-Verse, Marvel
+
+Sun, 17 May 2026 18:30:21 GMT
+
+https://screenrant.com/spider-verse-remake-marvel-miles-morales/
+
+Marvel secretly remakes Spider-Man: Across the Spider-Verse to set the stage for the biggest crossover event of the year, starring Miles Morales.
+---------
+
+# HBO’s 10-Part Historical Drama With 94% RT Score Is So Good, We Still Overlook Its Biggest Flaw
+
+TV, Masked Recs
+
+Sun, 17 May 2026 18:30:21 GMT
+
+https://screenrant.com/band-of-brothers-biggest-flaw-lack-representation/
+
+It's a major anniversary for one of the best HBO series of all time, which gives us the chance to assess its flaws as well as what makes it great.
+---------
+
+# Classic Capcom Franchise Gets Official Update On Return, And It's Great News
+
+Gaming, Capcom, Triple-A Games, PC
+
+Sun, 17 May 2026 18:30:21 GMT
+
+https://screenrant.com/capcom-new-devil-may-cry-dead-rising/
+
+As if Resident Evil fans weren't getting enough, Capcom's upcoming plans offer exciting promises for a handful of fan-favorite franchises.
+---------
+
+# The X-Files Meets Lost In Stephen King's 3-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Sun, 17 May 2026 18:06:20 GMT
+
+https://screenrant.com/under-the-dome-stephen-king-lost-meets-x-files/
+
+One underrated Stephen King series used its three-season story to mix Lost and The X-Files in a truly original sci-fi mystery with a wild premise.
+---------
+
+# Edgar Wright's 10 Favorite Movies, Ranked
+
+Movies, Edgar Wright, Ranking
+
+Sun, 17 May 2026 18:05:20 GMT
+
+https://screenrant.com/edgar-wright-favorite-movies-ranked/
+
+He directed Shaun of the Dead and The Running Man, and Edgar Wright's 10 favorite movies clearly inspired his own brilliant filmmaking.
+---------
+
+# New Star Wars: The Force Unleashed Easter Eggs Have Gamers United For A Sequel
+
+Gaming, Star Wars: The Force Unleashed, Star Wars: The Force Unleashed II, Star Wars, Triple-A Games
+
+Sun, 17 May 2026 18:00:21 GMT
+
+https://screenrant.com/star-wars-force-unleashed-maul-easter-eggs/
+
+Star Wars: The Force Unleashed's body is not as cold as some fans may think, and this new project is ensuring that its memory is not lost, either.
+---------
+
+# X-Men's "Blood of Apocalypse" is a Comic You Should Be Reading
+
+Comics, Comics You Should Be Reading, X-Men '97, X-Men
+
+Sun, 17 May 2026 18:30:14 GMT
+
+https://www.cbr.com/xmen-blood-of-apocalypse-comic-you-should-be-reading/
+
+The second season of X-Men '97 has teased the adaptation of an important moment in this oft-forgotten X-Event from a run that deserves revisiting.
+---------
+
+# Anthony Mackie & Dafne Keen’s Barracuda is the Perfect 'Logan' Replacement
+
+Movies, Action
+
+Sun, 17 May 2026 18:30:14 GMT
+
+https://www.cbr.com/anthony-mackie-dafne-keen-action-movie-barracuda-perfect-logan-replacement/
+
+Two Marvel heroes will soon be teaming up in a new action thriller that fans of 20th Century Fox's Logan will certainly enjoy.
+---------
+
+# 10 Harsh Realities of Rewatching Demon Slayer
+
+Anime, Demon Slayer
+
+Sun, 17 May 2026 18:15:12 GMT
+
+https://www.cbr.com/demon-slayer-harsh-realities-of-rewatching-anime/
+
+Demon Slayer is one of the most popular Shonen anime of all time, but it's got a lot of problems when watched for a second time.
+---------
+
+# Studio Ghibli Helps Totoro Fans Enjoy a Peaceful Night's Rest With New 'Rush Grass' Pillow Collection
+
+Anime, My Neighbor Totoro, Studio Ghibli
+
+Sun, 17 May 2026 18:00:14 GMT
+
+https://www.cbr.com/studio-ghibli-totoro-rush-grass-pillow-collection/
+
+Studio Ghibli's new Totoro-inspired pillows and bedroom mats fill your living space with the sweet scents of nature as you drift off to sleep.
+---------
+
+# A Complete Breakdown of Daredevil’s Most Important Love Interests
+
+Comics, Daredevil, Marvel, Elektra
+
+Sun, 17 May 2026 18:00:14 GMT
+
+https://www.cbr.com/marvel-daredevil-most-important-love-interests/
+
+Daredevil is known to be a smooth-talker in the Marvel universe, but some romances meant far more than others.
+---------
+
+# 8 Most Satisfying Fantasy Show Endings of All Time
+
+TV, Fantasy, The Good Place, Buffy The Vampire Slayer, Charmed
+
+Sun, 17 May 2026 18:49:15 GMT
+
+https://collider.com/most-satisfying-fantasy-show-endings-all-time/
+
+Lucifer, The Good Place, Penny Dreadful, Buffy the Vampire Slayer, Charmed, and more make up our list of the most satisfying fantasy show endings.
+---------
+
+# 8 Perfect Fantasy Movies That Get Better With Every Rewatch
+
+Movie, Fantasy, Beauty and the Beast, The Wizard of Oz, Willy Wonka and the Chocolate Factory
+
+Sun, 17 May 2026 18:40:13 GMT
+
+https://collider.com/perfect-fantasy-movies-get-better-every-rewatch/
+
+Fantasy has produced some of the most iconic movies, many of which seem to only keep getting better with age, like Beauty and the Beast and Barbie.
+---------
+
+# 39 Years Later, the Best Sci-Fi Parody Ever Made Will Be Free to Stream Ahead of the New Sequel
+
+Movie News, Star Wars, Spaceballs, Spaceballs: The New One, Sci-Fi
+
+Sun, 17 May 2026 18:00:14 GMT
+
+https://collider.com/mel-brooks-best-star-wars-sci-fi-parody-spaceballs-streaming-free-kanopy-june-2026/
+
+Ahead of the sequel, Mel Brooks’ highly lauded Star Wars parody Spaceballs will stream for free next month. Read on for details.
+---------
+
+# Elliot Page's Rumored Character in 'The Odyssey' May Be Elpenor, Not Achilles
+
+Features, The Odyssey, Christopher Nolan, Elliot Page
+
+Sun, 17 May 2026 18:30:19 GMT
+
+https://movieweb.com/the-odyssey-theory-elliot-page-elpenor-casting/
+
+Elliot Page is now rumored to be playing Elpenor, the youngest member of Odysseus' crew, not the fabled Greek hero Achilles.
+---------
+
+# ‘Black Mirror’: Netflix’s Sci-Fi Series Has One of the Greatest TV Casts
+
+Features, Black Mirror, Netflix
+
+Sun, 17 May 2026 18:00:19 GMT
+
+https://movieweb.com/black-mirror-netflix-great-cast/
+
+'Black Mirror,' the popular sci-fi series on Netflix, has an impressive cast including Jon Hamm, Rashida Jones, Jesse Plemons, and Rosemarie DeWitt.
+---------
+
 # Beef Season 2 Is A Lesser Version Of The White Lotus
 
 Streaming TV, Beef
