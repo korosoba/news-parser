@@ -1,3 +1,311 @@
+# Seinen's Wildest Sci-Fi Action Creator Lands Upcoming Giant Anime
+
+Anime, Gantz
+
+Sun, 17 May 2026 20:00:21 GMT
+
+https://screenrant.com/seinen-gantz-creator-hiroya-oku-gigant-anime/
+
+The creator of one of the most controversial manga and anime franchises ever has another work about to be adapted, with its film announced at Cannes.
+---------
+
+# Star Wars: The Clone Wars Episodes In Chronological Order (Correct Watch Order)
+
+Star Wars, Star Wars: The Clone Wars
+
+Sun, 17 May 2026 20:00:21 GMT
+
+https://screenrant.com/star-wars-the-clone-wars-correct-viewing-order/
+
+Star Wars: The Clone Wars originally aired non-chronologically; here is how to watch the show as it was released, but also in timeline order.
+---------
+
+# Guy Ritchie Addresses Fountain Of Youth Not Getting A Theatrical Release After Massive Streaming Success
+
+Movies, Fountain of Youth, Guy Ritchie
+
+Sun, 17 May 2026 19:51:26 GMT
+
+https://screenrant.com/guy-ritchie-fountain-of-youth-no-theatrical-release-response/
+
+EXCLUSIVE: Guy Ritchie weighs in on the debate between theatrical vs. streaming releases and what this meant for Apple TV's Fountain of Youth.
+---------
+
+# Dexter: Resurrection Season 2’s Dexter & Harrison Are “Unlike Any Other Version We’ve Seen” Throughout Franchise, Details Star
+
+Exclusive, Dexter: Resurrection, Dexter
+
+Sun, 17 May 2026 19:44:57 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-dexter-harrison-dynamic-tease-jack-alcott/
+
+EXCLUSIVE: Dexter: Resurrection season 2 could change Dexter and Harrison forever as this star explores their dynamics in the upcoming season.
+---------
+
+# Good Omens Season 3 Ending For Crowley & Aziraphale Explained By David Tennant & Michael Sheen
+
+TV, Good Omens
+
+Sun, 17 May 2026 19:34:13 GMT
+
+https://screenrant.com/good-omens-season-3-ending-crowley-aziraphale-explained-michael-sheen-david-tennant/
+
+Good Omens stars Michael Sheen and David Tennant reflect on the finale, which is fitting of the show’s themes of free will, love, and happiness.
+---------
+
+# Marvel Unveils Wolverine's Official Mech Redesign, And It's Epic
+
+Marvel Comics, Wolverine, Marvel
+
+Sun, 17 May 2026 19:30:19 GMT
+
+https://screenrant.com/wolverine-mech-redesign-marvel/
+
+Although Wolverine's adamantium skeleton makes him nearly invincible, Logan gets his own epic mech suit as he joins Marvel's new superhero team.
+---------
+
+# 10 Best Faking Dating Rom-Coms To Watch After Prime Video's Off Campus
+
+Streaming TV, Off Campus
+
+Sun, 17 May 2026 19:30:19 GMT
+
+https://screenrant.com/off-campus-fake-dating-rom-coms-recommendations/
+
+If you enjoyed the fake dating rom-com trope in Prime Video's Off Campus season 1, these ten TV shows and movies are absolute must-watches.
+---------
+
+# Dead Space 4 Gets Long-Awaited Update For "Fervent Fan Base"
+
+Gaming, Dead Space, Triple-A Games, PC
+
+Sun, 17 May 2026 19:30:19 GMT
+
+https://screenrant.com/dead-space-4-development-issues-budget/
+
+The Dead Space franchise helped define the horror genre, but its legacy might still not be enough to save the series ahead of Dead Space 4.
+---------
+
+# 8 Most Surprising Actor Transformations Into Controversial Real-Life Politicians
+
+Movies, The Wizard of the Kremlin
+
+Sun, 17 May 2026 19:25:20 GMT
+
+https://screenrant.com/surprising-actor-transformations-real-life-politicians-movies/
+
+Many of the most controversial and recognizable real-world political figures have had their stories told on film, with iconic actors playing them.
+---------
+
+# Netflix’s Most Twisted Dark Comedy Series Of All Time Officially Returns This Week
+
+Streaming TV, Masked Recs
+
+Sun, 17 May 2026 19:18:20 GMT
+
+https://screenrant.com/netflix-bad-thoughts-season-2-tom-segura-series-watch/
+
+Bad Thoughts, Netflix's most twisted dark comedy series of all time, created by one of the world's most popular comedians, returns for season 2.
+---------
+
+# The 20 Strongest One Piece Characters (So Far), Ranked
+
+Anime, One Piece
+
+Sun, 17 May 2026 20:00:14 GMT
+
+https://www.cbr.com/one-piece-strongest-characters-so-far-luffy/
+
+In the ever-changing world of One Piece, it's important to revisit the most powerful pirates on the seas.
+---------
+
+# In Just 1 Day, Netflix's Hit Crime Drama Spinoff Is Already the No. 1 Show in the World
+
+TV, Netflix, Money Heist, Berlin
+
+Sun, 17 May 2026 20:00:13 GMT
+
+https://www.cbr.com/berlin-money-heist-spinoff-netflix-success-may-2026/
+
+After three years, one of Netflix's most popular franchises is back with the promise of more.
+---------
+
+# Crunchyroll Officially Sets New Dragon Ball Anime Release Date for Goku’s Greatest Adventure Yet
+
+Anime, Dragon Ball DAIMA, Dragon Ball
+
+Sun, 17 May 2026 20:00:13 GMT
+
+https://www.cbr.com/crunchyroll-dragon-ball-daima-2026-release/
+
+Crunchyroll finally gives the latest hit Dragon Ball series the home media release date that fans have spent months eagerly awaiting.
+---------
+
+# 8 Reasons It's Hard To Watch The James Bond Movies Today
+
+Movies, James Bond
+
+Sun, 17 May 2026 20:00:13 GMT
+
+https://www.cbr.com/reasons-hard-to-watch-james-bond-movies-list/
+
+Bond is set for a reboot, so perhaps the new iteration can shed some of these age-old issues that plagued the early hits.
+---------
+
+# James Bond Rumored Actor Officially Shuts Down Auditioning for 007
+
+Movies, James Bond
+
+Sun, 17 May 2026 19:57:28 GMT
+
+https://www.cbr.com/james-bond-casting-cosmo-jarvis/
+
+Auditions are underway for the next 007, but one rumored name has confirmed that he's not in the running.
+---------
+
+# Daisy Ridley's Action Film Becomes Streaming Hit 1 Year Later
+
+Movies, Cleaner
+
+Sun, 17 May 2026 19:00:12 GMT
+
+https://www.cbr.com/daisy-ridley-cleaner-streaming-may-2026/
+
+Daisy Ridley's Die Hard-style action movie from the director of GoldenEye is earning some redemption one year later.
+---------
+
+# Teenage Mutant Ninja Turtles Spiritual Sequel Confirmed
+
+Comics, comics, Teenage Mutant Ninja Turtles, oni press
+
+Sun, 17 May 2026 19:00:12 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-spiritual-sequel-confirmed/
+
+With the success of IDW's Teenage Mutant Ninja Turtles series, the time is ripe for a new comic to strike. Can Super Mondo Mega Mutts become a hit?
+---------
+
+# 5 MCU Villains Stronger Than Thanos, Ranked
+
+Movies, MCU, Avengers: Infinity War, Avengers: Endgame
+
+Sun, 17 May 2026 19:00:12 GMT
+
+https://www.cbr.com/mcu-villains-more-powerful-than-thanos-list/
+
+Thanos was the overarching threat of the Infinity Saga, but he is not the strongest villain to have appeared in the Marvel Cinematic Universe.
+---------
+
+# Peter Jackson Clarifies Firing Ryan Gosling From Oscar-Nominated Film
+
+Movies, ryan gosling, The Lovely Bones
+
+Sun, 17 May 2026 18:59:35 GMT
+
+https://www.cbr.com/peter-jackson-on-firing-ryan-gosling-the-lovely-bones/
+
+Peter Jackson opens up on booting Ryan Gosling from the Oscar-nominated film after the actor transformed his body for the role.
+---------
+
+# Netflix's 2-Part Action Series Is 'John Wick' Meets 'Home Alone'
+
+Movie Features, Becky, The Wrath of Becky, John Wick, Netflix
+
+Sun, 17 May 2026 20:03:14 GMT
+
+https://collider.com/wrath-of-becky-netflix-trilogy-last-temptation-action-series-john-wick-meets-home-alone/
+
+Netflix has the first two Becky movies, an unexpectedly fun action franchise with a third installment on the way.
+---------
+
+# Charlize Theron’s Divisive Sci-Fi Bomb Is Getting a Second Chance on Free Streaming
+
+Movie News, Aeon Flux, Charlize Theron, Sci-Fi, Jonny Lee Miller
+
+Sun, 17 May 2026 20:00:14 GMT
+
+https://collider.com/charlize-theron-sci-fi-flop-aeon-flux-streaming-free-kanopy-june-2026/
+
+Charlize Theron’s 2005 sci-fi action flop which almost left her paralyzed, Aeon Flux, will stream for free next month on Kanopy.
+---------
+
+# Crunchyroll’s Near-Perfect Dark Fantasy Series Just Teased A Much-Needed Change of Pace in Season 4
+
+TV Features, Jujutsu Kaisen, Crunchyroll, Anime, Fantasy
+
+Sun, 17 May 2026 19:55:13 GMT
+
+https://collider.com/jujutsu-kaisen-season-4-change-of-pace-adam-mcarthur-yuji-quote/
+
+A new tease from Adam McArthur highlights why Jujutsu Kaisen’s comedic moments are so important to the series.
+---------
+
+# Netflix's Forgotten 2-Part Sitcom Is One of Its Best Shows To Binge
+
+TV Features, Unstable, Netflix, Rob Lowe, Sitcom
+
+Sun, 17 May 2026 19:41:14 GMT
+
+https://collider.com/netflix-sitcom-unstable-best-binge/
+
+Netflix's Unstable, starring Rob Lowe, is a hilarious workplace comedy with complex family dynamics perfect for binge-watching.
+---------
+
+# A 10/10 Sci-Fi Classic Is Quietly Dominating MGM+
+
+Movie News, Back to the Future, Sci-Fi, MGM, Michael J. Fox
+
+Sun, 17 May 2026 19:00:13 GMT
+
+https://collider.com/michael-j-fox-sci-fi-classic-back-to-the-future-streaming-success-mgm-plus-may-2026/
+
+The sci-fi classic Back to the Future is one of the most popular movies on an unlikely streamer. Here's everything you should know.
+---------
+
+# ‘Lord of the Flies’: A Bingeworthy Netflix Thriller That Stephen King Loves
+
+Features, Stephen King, Lord of the Flies, Netflix
+
+Sun, 17 May 2026 20:00:19 GMT
+
+https://movieweb.com/lord-of-the-flies-netflix-thriller-stephen-king/
+
+'Lord of the Flies,' the four-episode adaptation of the popular novel of the same name that is streaming on Netflix has been praised by Stephen King.
+---------
+
+# M. Night Shyamalan's Serial Killer Thriller 'Trap' Is a Netflix Hit
+
+Movie News, Trap, Hot on Streaming
+
+Sun, 17 May 2026 19:53:54 GMT
+
+https://movieweb.com/trap-netflix-streaming-hit-may-2026/
+
+Shyamalan's most recent film was divisive among fans and critics, but no one can say it didn't try to be very original.
+---------
+
+# Henry Cavill's 'In the Grey' Is in the Red After Dismal Opening Weekend
+
+Movie News, box office, Henry Cavill, In the Grey, Obsession, Michael, The Devil Wears Prada 2
+
+Sun, 17 May 2026 19:22:57 GMT
+
+https://movieweb.com/in-the-grey-henry-cavill-obsession-michael-box-office/
+
+Also, audiences are obsessed with this near-perfect low-budget horror hit, and Michael takes its place back on top of the box office.
+---------
+
+# Every TV Series Renewed For the 2026/2027 Season
+
+TV Lists
+
+Sun, 17 May 2026 19:00:18 GMT
+
+https://movieweb.com/every-tv-series-renewed-2026-2027/
+
+The 2026/2027 TV season is shaping up to be exciting, with new shows already renewed and popular ones confirmed or expected to be returning.
+---------
+
 # Why The Pitt Won't Have A Night Shift Spinoff Explained By Noah Wyle
 
 TV, The Pitt
