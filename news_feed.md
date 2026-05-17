@@ -1,3 +1,135 @@
+# Uncharted 5 Has PlayStation Gamers More Excited Than Ever
+
+Gaming, Uncharted
+
+Sun, 17 May 2026 11:30:20 GMT
+
+https://screenrant.com/uncharted-5-leak-gamers-react/
+
+Rumors suggest Naughty Dog is developing a new single-player game, potentially Uncharted 5, with director Shaun Escayg.
+---------
+
+# Final Fantasy 9: Memoria Project Is The Perfect 25th Anniversary Celebration
+
+Gaming, Final Fantasy 9
+
+Sun, 17 May 2026 11:00:20 GMT
+
+https://screenrant.com/final-fantasy-9-memoria-project-25th-anniversary/
+
+Final Fantasy IX: Memoria Project, an unofficial remake led by 50+ dedicated fans, brings the classic 2000 game to life.
+---------
+
+# Skyrim: Dragonbreak Is Your Perfect Excuse To Dive Back Into Skyrim
+
+Gaming, The Elder Scrolls V: Skyrim, The Elder Scrolls
+
+Sun, 17 May 2026 10:30:19 GMT
+
+https://screenrant.com/skyrim-dragonbreak-modlist-overhaul/
+
+Skyrim really is the game that keeps on giving, and much of that is thanks to the game's immense modding community.
+---------
+
+# Spider-Man Is at His Best When He Stays Close to Home
+
+Comics, The Amazing Spider-Man, Marvel Comics, superhero comics
+
+Sun, 17 May 2026 11:00:13 GMT
+
+https://www.cbr.com/spider-man-neighborhood-hero-best-narrative-choice/
+
+When Marvel's Amazing Spider-Man swings out of the bounds of NYC, he's likely to get tangled in a web of intrigue that's out of his depth.
+---------
+
+# La Brea Is Netflix's Most Bingeable New Sci-Fi Gem
+
+TV, Netflix, La Brea, Sci-Fi
+
+Sun, 17 May 2026 10:30:13 GMT
+
+https://www.cbr.com/netflix-la-brea-bingeable-sci-fi-time-travel-series/
+
+Netflix’s latest sci-fi offering is a high-concept time-travel mystery that will reel viewers back in time to 10,000 BC.
+---------
+
+# 'Mayor of Kingstown' Star's 10/10 War Thriller Finds a Free Streaming Home
+
+Movie News, The Hurt Locker, Jeremy Renner, Anthony Mackie, Kathryn Bigelow
+
+Sun, 17 May 2026 11:30:14 GMT
+
+https://collider.com/jeremy-renner-war-thriller-the-hurt-locker-streaming-free-fawesome-may-2026/
+
+Kathryn Bigelow’s Oscar-winning war thriller The Hurt Locker is streaming for free this month on Fawesome. Read on for more details.
+---------
+
+# Only 10 Crime Shows in the 2010s Can Be Considered True Masterpieces
+
+TV, Crime, Ozark, Sherlock, Mindhunter
+
+Sun, 17 May 2026 11:28:14 GMT
+
+https://collider.com/2010s-crime-shows-true-masterpieces/
+
+Explore the crime television series from the 2010s that stand out as true masterpieces, including Sherlock, Ozark, and Mindhunter.
+---------
+
+# 10 Best Detective Shows With Great Acting, Ranked
+
+TV, Mystery, High Potential, Dexter, The Wire
+
+Sun, 17 May 2026 11:09:14 GMT
+
+https://collider.com/best-detective-shows-great-acting-ranked/
+
+Showtime's Dexter, ABC's High Potential, FX's Fargo, and HBO's The Wire are all among the very best detective shows with incredible performances.
+---------
+
+# Chris Hemsworth's Cult Classic Sci-Fi Horror Movie Breaks Into Free Streaming This Month
+
+Movie News, Horror, Chris Hemsworth, The Cabin in the Woods, Drew Goddard
+
+Sun, 17 May 2026 11:00:14 GMT
+
+https://collider.com/chris-hemsworth-sci-fi-horror-the-cabin-in-the-woods-streaming-free-fawesome-may-2026/
+
+Chris Hemsworth's cult-classic sci-fi horror The Cabin in the Woods is now scaring up fans on a free streamer. Find out more here.
+---------
+
+# Netflix’s 8-Part Fantasy Series Is the Perfect Binge Before Season 2 Premieres
+
+TV Features, Avatar: The Last Airbender, Netflix, Fantasy
+
+Sun, 17 May 2026 10:44:14 GMT
+
+https://collider.com/netflix-avatar-the-last-airbender-fantasy-binge-before-season-2/
+
+Now is the perfect time to binge Netflix's live-action Avatar: The Last Airbender adaptation before it returns for Season 2.
+---------
+
+# Bruce Willis Goes Full John Wick in This Explosive 33-Year-Old Streaming Hit
+
+Movie News, Bruce Willis, Striking Distance, Netflix, Sarah Jessica Parker
+
+Sun, 17 May 2026 10:30:13 GMT
+
+https://collider.com/bruce-willis-john-wick-replacement-striking-distance-streaming-success-netflix-may-2026/
+
+Fans can't stop watching Bruce Willis' perfect '90s action movie on Netflix. Here's everything you should know about Striking Distance.
+---------
+
+# Only 3 Movies Have Better Screenplays Than 'Casablanca'
+
+Movie, Casablanca, Chinatown, Being John Malkovich, The Godfather
+
+Sun, 17 May 2026 10:22:13 GMT
+
+https://collider.com/movies-better-screenplays-than-casablanca/
+
+Casablanca's screenplay is famously considered among the best to ever be written for the screen, but movies like Chinatown might actually surpass it.
+---------
+
 # Pokémon Scorched Silver Is A Johto Sequel Set 20 Years After Gold & Silver
 
 Gaming, Pokemon
