@@ -1,3 +1,300 @@
+# 45 Years Later, The Evil Dead Franchise’s Best Sequel Is Not A Movie
+
+TV, Evil Dead, Masked Recs
+
+Sun, 17 May 2026 14:32:21 GMT
+
+https://screenrant.com/evil-dead-franchise-best-entry-ash-vs-evil-dead-show/
+
+The Evil Dead franchise has plenty of iconic horror movies, but its best sequel is a secret project that perfectly expanded its universe years ago.
+---------
+
+# One Piece Chapter #1183 Release Date & Time
+
+Anime, One Piece, One Piece (1997)
+
+Sun, 17 May 2026 14:30:21 GMT
+
+https://screenrant.com/one-piece-chapter-1183-release-date-time/
+
+One Piece Chapter 1183 goes on a break. Find out when the manga returns and how Luffy will unlock his Sun God powers to defeat Imu.
+---------
+
+# House Of The Dragon Season 3 Will Introduce Your New Favorite Game Of Thrones Character
+
+Streaming TV, House of the Dragon
+
+Sun, 17 May 2026 14:30:21 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-tommy-flanagan-roddy-ruin-fan-favorite-character/
+
+House of the Dragon season 3 will introduce a character from Fire & Blood that fans are going to love, and that's before you hear who's playing him.
+---------
+
+# Sean Bean's Gritty New Fantasy Series Returns As Streaming Giant After Major Season 2 Update
+
+TV, Masked Recs, Sean Bean
+
+Sun, 17 May 2026 14:26:16 GMT
+
+https://screenrant.com/robin-hood-mgm-plus-streaming-success-may-2026/
+
+Following the big season 2 update, Sean Bean's gritty TV show based on an iconic franchise property has become a massive streaming success once more.
+---------
+
+# Scooby-Doo Is Fully Switching Genres After 57 Years
+
+TV, Scooby-Doo, Netflix
+
+Sun, 17 May 2026 14:03:20 GMT
+
+https://screenrant.com/scooby-doo-netflix-reboot-genre-change/
+
+After years of uncertainty, the Scooby-Doo franchise is making a bold move into risky territory with Netflix's upcoming reboot, Scooby-Doo: Origins.
+---------
+
+# Gillian Anderson’s New Horror Movie Debuts With Perfect Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Sun, 17 May 2026 14:02:49 GMT
+
+https://screenrant.com/teenage-sex-and-death-at-camp-miasma-movie-rotten-tomatoes-score/
+
+Gillian Anderson and Hacks' Hannah Einbinder star in a new horror movie that concludes a trilogy and debuts with a perfect score on Rotten Tomatoes.
+---------
+
+# Dragon Ball's Biggest Collaborator Almost Killed The Franchise With One Disastrous Choice
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Sun, 17 May 2026 14:00:21 GMT
+
+https://screenrant.com/dragon-ball-editor-goku-adult-fandom-killed/
+
+Dragon Ball was incredibly close to death.
+---------
+
+# Zelda: The Wind Waker Has A Controversial Sequel You Might Not Remember
+
+Gaming, The Legend of Zelda: The Wind Waker, The Legend of Zelda
+
+Sun, 17 May 2026 14:00:21 GMT
+
+https://screenrant.com/zelda-wind-waker-controversial-sequel-phantom-hourglass/
+
+How easily we forget that Zelda: The Wind Waker has two direct sequels, one of which the fandom has left behind for all the wrong reasons.
+---------
+
+# Cyberpunk 2077 Free Download Gets Surprise Release
+
+Gaming, Cyberpunk 2077
+
+Sun, 17 May 2026 13:45:19 GMT
+
+https://screenrant.com/cyberpunk-2077-free-download-fortnite-surprise-release/
+
+CD Projekt RED's Cyberpunk 2077 collaborates with Fortnite, adding Adam Smasher skin and offering free download.
+---------
+
+# The Boys Series Finale Fails To Bring Closure For Gen V: "We Don't End Their Storyline"
+
+TV, The Boys, Gen V
+
+Sun, 17 May 2026 13:41:54 GMT
+
+https://screenrant.com/the-boys-gen-v-series-finale-eric-kripke-showrunner/
+
+The Boys may be ending, but Gen V fails to find closure as showrunner Eric Kripke shares a heartbreaking update on the series finale and cancellation.
+---------
+
+# Apple TV's Mistborn Movie Is the Perfect Wheel
+
+Movies, Mistborn
+
+Sun, 17 May 2026 14:30:14 GMT
+
+https://www.cbr.com/apple-tv-mistborn-movie-wheel-of-time-replacement/
+
+Apple TV's tackling another 'unfilmable' project, this time in the fantasy genre, and it's the perfect Wheel of Time replacement.
+---------
+
+# Data’s Greatest TNG Line Remains the Most Powerful Star Trek Quote
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Sun, 17 May 2026 14:30:14 GMT
+
+https://www.cbr.com/star-trek-best-data-line-the-offspring/
+
+Expressing the sentiment that prejudice is a weakness of humanity, Data’s heartfelt speech to his daughter Lal reflects Star Trek’s value of diversity
+---------
+
+# 10 Perfect Shojo Manga From the Last 5 Years Fans Love
+
+Anime, Manga, Shojo
+
+Sun, 17 May 2026 14:15:13 GMT
+
+https://www.cbr.com/perfect-shojo-manga-last-5-years-fans-love/
+
+Shojo manga isn't as popular as it once was, but there are still some near-flawless series being released.
+---------
+
+# Maximum Pleasure Guaranteed Creator David J. Rosen Talks “Scooby Gang” Chaos
+
+TV, Maximum Pleasure Guaranteed
+
+Sun, 17 May 2026 14:15:13 GMT
+
+https://www.cbr.com/video/maximum-pleasure-guaranteed-creator-david-j-rosen-talks-scooby-gang-chaos/
+
+Maximum Pleasure Guaranteed creator and executive producer David J. Rosen joins director and executive producer David Gordon Green to break down the mystery, dark comedy, and chaotic ensemble energy behind Apple TV+’s new series.The duo discusses the show’s “Scooby Gang” workplace dynamic, balancing grounded emotional storytelling with outrageous mystery twists, and why the characters make messy, realistic decisions instead of perfect ones. They also explain how the series plays with classic mystery tropes while keeping audiences guessing.Plus, David Gordon Green reveals how actors learned major story details in real time during production, adding even more unpredictability to the experience.
+---------
+
+# Dragon Ball Goes Small for Its Biggest Release Yet
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Sun, 17 May 2026 14:00:14 GMT
+
+https://www.cbr.com/dragon-ball-plush-collection-walmart-2026-release/
+
+2026 continues to be a great year for Dragon Ball fans in the U.S.
+---------
+
+# Marvel Is Already Ruining The Midnight Universe
+
+Comics, Marvel, Spider-Man, Absolute Batman
+
+Sun, 17 May 2026 14:00:14 GMT
+
+https://www.cbr.com/marvel-is-already-ruining-the-midnight-universe-heres-why/
+
+Marvel's Midnight Universe sounds like a promising move for the company, but it's missing the point of what 616 readers want from the publisher.
+---------
+
+# Golden Girls' 'Mixed Blessings' Episode Controversy, Explained
+
+TV, The Golden Girls
+
+Sun, 17 May 2026 13:31:13 GMT
+
+https://www.cbr.com/golden-girls-mixed-blessings-controversial-episode/
+
+There was one Golden Girls episode that sparked some controversy, even though it was actually progressive in the 1980s.
+---------
+
+# Disney's Maleficent Is Officially a Cult Classic
+
+Movies, Maleficent, Disney
+
+Sun, 17 May 2026 13:31:13 GMT
+
+https://www.cbr.com/angelina-jolie-maleficent-disney-cult-classic/
+
+Angelina Jolie has been in many great movies, but her turn in Maleficent is finally getting more recognition.
+---------
+
+# 7 Wistoria Characters Who Rival Black Clover's Magic Knights
+
+Anime, Wistoria: Wand and Sword, Black Clover
+
+Sun, 17 May 2026 13:15:13 GMT
+
+https://www.cbr.com/wistoria-black-clover-magic-knights-exam/
+
+These characters from Wistoria possess exactly the kind of talent the Magic Knights look for in Black Clover.
+---------
+
+# This Sci-Fi Western Fantasy Is 'Jurassic Park' Meets 'Unforgiven'
+
+Movie Features, The Valley of Gwangi, Western, Sci-Fi, Fantasy
+
+Sun, 17 May 2026 14:09:14 GMT
+
+https://collider.com/valley-of-gwangi-sci-fi-western-fantasy-jurassic-park-meets-unforgiven/
+
+The 1969 Western fantasy The Valley of Gwangi is a fun B-movie that puts a dinosaur adventure in the Old West.
+---------
+
+# Henry Cavill's New Action Movie Demolished by YouTuber's Indie Horror in Box Office Upset
+
+Movie News, Obsession, In the Grey, Henry Cavill, Guy Ritchie
+
+Sun, 17 May 2026 14:00:14 GMT
+
+https://collider.com/obsession-curry-barker-overtakes-henry-cavill-in-the-grey-box-office-debut-14-million/
+
+A YouTuber’s indie horror movie just pulled off a shocking box office upset against Henry Cavill and Guy Ritchie’s latest action thriller.
+---------
+
+# The Lord of the Rings Fandom Is So Powerful, It Invented a Beloved Movie Character
+
+Movie Features, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings, Peter Jackson, Fantasy
+
+Sun, 17 May 2026 13:31:13 GMT
+
+https://collider.com/lord-of-the-rings-fandom-figwit-character-bret-mckenzie/
+
+The Lord of the Rings character Figwit was made from a fan's comment, and the fandom completely ran with the concept.
+---------
+
+# Ridley Scott’s 3-Part Nightmare Is Officially Streaming’s New Horror Obsession
+
+TV News, Dan Stevens, The Terror, Ridley Scott, Horror
+
+Sun, 17 May 2026 13:30:14 GMT
+
+https://collider.com/the-terror-season-3-the-devil-in-silver-streaming-success-amc-plus-may-2026/
+
+Ridley Scott’s 3-part horror anthology series, starring Dan Stevens, is officially tearing the competition apart on streaming.
+---------
+
+# 2026's Biggest Box Office Bomb Gets Streaming Release Date
+
+Movie News, The Bride!, HBO Max, Streaming
+
+Sun, 17 May 2026 14:40:56 GMT
+
+https://movieweb.com/the-bride-streaming-release-date-hbo-max/
+
+'The Bride!' combed hard at the box office, but could it redeem itself on streaming?
+---------
+
+# ‘E.T.’: Steven Spielberg’s Sci-Fi Movie Still Has His Most Powerful Quote
+
+Features, Steven Spielberg, E.T., Great Line
+
+Sun, 17 May 2026 14:00:19 GMT
+
+https://movieweb.com/et-steven-spielberg-best-quote/
+
+Steven Spielberg's sci-fi movie 'E.T. the Extra-Terrestrial' stars Henry Thomas, Drew Barrymore, and Dee Wallace, and was released in 1982.
+---------
+
+# Christopher Nolan's 'The Odyssey' Is the Biggest Film He's Ever Made
+
+Movie News, The Odyssey, Christopher Nolan
+
+Sun, 17 May 2026 13:52:23 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-biggest-film-ever/
+
+The director spoke with '60 Minutes' about the massive ambition that fueled his Homer adaptation.
+---------
+
+# David Fincher's 112-Minute 'Panic Room' Flees Onto New Streaming Home
+
+Movie News, Panic Room, Coming/Leaving Streaming
+
+Sun, 17 May 2026 13:31:12 GMT
+
+https://movieweb.com/panic-room-streaming-hulu-may-2026/
+
+Though considered one of his lesser works, the 2002 suspense feature stands among Fincher's most interesting films.
+---------
+
 # HBO’s “ER Meets 24” Show Is The Best Medical Drama Of The 21st Century
 
 TV, Masked Recs, HBO
