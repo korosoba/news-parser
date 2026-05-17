@@ -1,3 +1,256 @@
+# Marvel Permanently Retires Its Most Hated Character With The Perfect Last Word
+
+Marvel Comics, Spider-Man, Venom, Marvel
+
+Sun, 17 May 2026 21:00:20 GMT
+
+https://screenrant.com/venom-kill-off-paul-final-words/
+
+Marvel Comics delivers the final send-off for the most universally disliked character in Spider-Man lore with a single, hilariously direct word.
+---------
+
+# The Boys Finally Debuts The OTHER Soldier Boy (Sort Of)
+
+Streaming TV, The Boys
+
+Sun, 17 May 2026 21:00:20 GMT
+
+https://screenrant.com/the-boys-soldier-boy-costume-comics/
+
+Soldier Boy is one of the central characters in Prime Video’s The Boys, which slyly introduced a different version of the character from the comics.
+---------
+
+# PlayStation Plus Adds 10/10 Steam-Rated Dark Fantasy Banger
+
+Gaming, Steam, PlayStation Plus, PC
+
+Sun, 17 May 2026 21:00:20 GMT
+
+https://screenrant.com/playstation-plus-steam-hit-bramble-the-mountain-king/
+
+PlayStation Plus just announced a fresh new lineup of incredible games available for free to subscribers, including a 10/10 Steam-rated hit.
+---------
+
+# Jon Bernthal’s 2016 DC Movie Still Has A Higher Review Score Than Punisher: One Last Kill
+
+Superheroes, Marvel Cinematic Universe, The Punisher: One Last Kill, The Punisher, Justice League vs. Teen Titans
+
+Sun, 17 May 2026 20:45:20 GMT
+
+https://screenrant.com/jon-bernthal-punisher-one-last-kill-justice-league-vs-teen-titans/
+
+Jon Bernthal’s Punisher: One Last Kill special earned strong reviews, but his 2016 DC movie still holds a higher Rotten Tomatoes score.
+---------
+
+# 12 X-Men: The Animated Series Episodes That Are Considered Masterpieces
+
+Classic TV, X-Men: The Animated Series, X-Men, Marvel
+
+Sun, 17 May 2026 20:45:20 GMT
+
+https://screenrant.com/x-men-animated-series-episodes-considered-masterpieces/
+
+X-Men: The Animated Series is one of the best X-Men adaptations of all time, and these 12 episodes are just as good now as they were in the 1990s.
+---------
+
+# Taylor Sheridan's New 9-Part Yellowstone Spinoff Didn't Kill Off Matthew McConaughey's Sequel Show
+
+TV, Yellowstone, Dutton Ranch
+
+Sun, 17 May 2026 20:31:17 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-dutton-ranch-spinoff-rumors-clarified-cole-hauser/
+
+Taylor Sheridan's new Yellowstone spinoff didn't kill this actor's sequel series, as this star confirms what happened behind the scenes.
+---------
+
+# 'Succession Meets Pretty Little Liars' In Prime Video's 8-Part Psychological Thriller That's Renewed For Season 2
+
+Streaming TV, Masked Recs
+
+Sun, 17 May 2026 20:30:19 GMT
+
+https://screenrant.com/we-were-liars-season-2-prime-video-succession-pretty-little-liars/
+
+Prime Video's We Were Liars blends elements of Succession and Pretty Little Liars, creating a captivating psychological thriller that's set to return.
+---------
+
+# Devil May Cry Just Got Its Most Promising Release Update Yet
+
+Gaming, Devil May Cry, Triple-A Games, PC
+
+Sun, 17 May 2026 20:30:19 GMT
+
+https://screenrant.com/devil-may-cry-capcom-official-release-update/
+
+The wait for a new Devil May Cry game has been getting more excruciating each year, but a recent update looks incredibly promising for fans.
+---------
+
+# One Piece Officially Redeemed The Worst Live-Action Anime Adaptation Of All Time
+
+Streaming TV, One Piece
+
+Sun, 17 May 2026 20:15:20 GMT
+
+https://screenrant.com/one-piece-live-action-mackenyu-redeemed-knights-of-the-zodiac/
+
+There have been some pretty bad live-action anime adaptations, but One Piece arrived just in time to redeem the star and genre of one of the worst.
+---------
+
+# The 8 Best X-Files Episodes Written By Vince Gilligan
+
+Classic TV, The X-Files
+
+Sun, 17 May 2026 20:15:20 GMT
+
+https://screenrant.com/best-x-files-episodes-written-by-vince-gilligan/
+
+Before Breaking Bad, Vince Gilligan was responsible for some of the most iconic episodes of The X-Files, one of which influenced Breaking Bad.
+---------
+
+# 1 of the Most Brutal Horrors of 2024 Is Quietly Dominating Global HBO Max Streaming Charts
+
+Movies, Terrifier 3, Terrifier 2
+
+Sun, 17 May 2026 21:00:13 GMT
+
+https://www.cbr.com/terrifier-3-horror-global-hbo-max-success-may-2026/
+
+The bloodiest horror film of 2024 is lighting up the streaming charts ahead of the hit series' hotly-anticipated fourth chapter.
+---------
+
+# Marvel Officially Reveals Galactus' Biggest Weakness, And It's Not What Fans Think
+
+Comics, Fantastic Four, Galactus
+
+Sun, 17 May 2026 21:00:13 GMT
+
+https://www.cbr.com/marvel-officially-reveals-galactus-biggest-weakness-and-its-not-what-fans-think/
+
+The Fantastic Four just discovered the one weakness that not even Galactus can overcome, and it makes one member of the team utterly unstoppable.
+---------
+
+# Dexter: Resurrection Season 2 Will Show a Side of Dexter & Harrison Fans Have Never Seen
+
+TV, Dexter: Resurrection
+
+Sun, 17 May 2026 20:48:22 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-father-son-dynamic/
+
+Dexter: Resurrection star Jack Alcott reveals how fans will see something they've never seen before in Season 2.
+---------
+
+# 5 Forgotten Movie Musicals That Are Amazing Start to Finish
+
+Movies
+
+Sun, 17 May 2026 20:30:12 GMT
+
+https://www.cbr.com/best-movie-musicals-no-one-remembers-list/
+
+For every musical like Grease or La La Land, there are more forgotten gems that audiences are missing out on.
+---------
+
+# 10 Isekai Heroes Who Are Actually Well-Written
+
+Anime, Isekai, RE: Zero - Starting Life In Another World, Mushoku Tensei: Jobless Reincarnation, Welcome to Demon School! Iruma-kun
+
+Sun, 17 May 2026 20:15:13 GMT
+
+https://www.cbr.com/most-well-written-isekai-heroes/
+
+One of the weaknesses in the isekai genre is that many of its heroes aren't exactly well-written, but there are some who transcend wish-fulfillment.
+---------
+
+# Fans of Tom Hanks' 'Greyhound' Will Love This Underrated Cold War Thriller That's About to Leave Netflix
+
+Movie News, K-19: The Widowmaker, Kathryn Bigelow, Harrison Ford, Liam Neeson
+
+Sun, 17 May 2026 21:01:13 GMT
+
+https://collider.com/harrison-ford-underrated-cold-war-thriller-k19-widowmaker-leaving-streaming-netflix-june-2026-greyhound/
+
+Kathryn Bigelow's underrated Cold War submarine thriller, K-19: The Widowmaker, is leaving Netflix soon. Find out when.
+---------
+
+# Tubi's Forgotten 3-Part Zombie Franchise Return of the Living Dead Is One of Its Best Hidden Gems
+
+Movie Features, Zombie, Return of the Living Dead, Return of the Living Dead III, Horror
+
+Sun, 17 May 2026 20:47:13 GMT
+
+https://collider.com/return-of-the-living-dead-free-streaming-weekend-binge/
+
+Horror fans can now stream all three original Return of the Living Dead movies, one of zombie cinema’s strangest and most entertaining franchises.
+---------
+
+# This ‘Twilight Zone’ Masterpiece Figured Out Society’s Biggest Problem 60 Years Ago
+
+TV Features, The Twilight Zone, Sci-Fi, Fantasy, Rod Serling
+
+Sun, 17 May 2026 20:44:13 GMT
+
+https://collider.com/the-twilight-zone-masterpiece-episode-its-a-good-life-meaning/
+
+The Twilight Zone’s “It’s a Good Life” remains disturbingly relevant in 2026 as Rod Serling’s warning about power feels sharper than ever.
+---------
+
+# Forget Prime Video's ‘Crime 101,’ Mark Ruffalo’s Heist Franchise Hit Is Crushing Streaming
+
+Movie News, Now You See Me: Now You Don't, STARZ, Streaming, Mark Ruffalo
+
+Sun, 17 May 2026 20:30:13 GMT
+
+https://collider.com/mark-ruffalo-heist-thriller-now-you-see-me-now-you-dont-streaming-success-starz-may-2026/
+
+Woody Harrelson's heist threequel, Now You See Me: Now You Don't, is a huge hit on American streaming. Find out more here.
+---------
+
+# 10 Greatest Heist Movie Climaxes, Ranked'
+
+Movie, Heat, Le Cercle Rouge, Reservoir Dogs, Fast Five
+
+Sun, 17 May 2026 20:27:13 GMT
+
+https://collider.com/best-heist-movie-climaxes-ranked/
+
+Some of the best climaxes in the history of the heist genre can be found in masterpieces like Rififi, Heat, The Italian Job, and Le Cercle Rouge.
+---------
+
+# Only 3 Drama Movies Are Better Than 'The Godfather'
+
+Movie, The Godfather, Ran, Citizen Kane, The Shawshank Redemption
+
+Sun, 17 May 2026 20:11:13 GMT
+
+https://collider.com/drama-movies-better-than-the-godfather/
+
+Few movies that belong to the drama genre are as good as The Godfather, and only a small number, including Citizen Kane and Ran, are arguably better.
+---------
+
+# 'Star Trek's 10 Greatest Non-Human Characters of All Time, Ranked
+
+TV Lists, Star Trek
+
+Sun, 17 May 2026 21:00:19 GMT
+
+https://movieweb.com/star-trek-best-non-human-characters/
+
+Great human characters are everywhere in 'Star Trek,' but non-human franchise icons are a little less common. Let's break the best ones.
+---------
+
+# The Best Medieval Shows & Movies on Netflix
+
+TV Lists, Netflix
+
+Sun, 17 May 2026 21:00:19 GMT
+
+https://movieweb.com/best-medieval-shows-on-netflix/
+
+The best medieval Netflix content explored across every subgenre, from gritty historical dramas to fantasy epics.
+---------
+
 # Seinen's Wildest Sci-Fi Action Creator Lands Upcoming Giant Anime
 
 Anime, Gantz
