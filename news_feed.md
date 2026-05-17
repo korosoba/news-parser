@@ -1,3 +1,245 @@
+# The 8-Part 'Game Of Thrones Meets Walking Dead' Series That Has A Better Ending Than Both
+
+Classic TV, Masked Recs
+
+Sun, 17 May 2026 16:45:20 GMT
+
+https://screenrant.com/attack-on-titan-better-ending-game-of-thrones-walking-dead/
+
+Game of Thrones and The Walking Dead are two of the biggest TV shows in recent memory, but a series that combined both had the superior ending.
+---------
+
+# Assassin’s Creed Black Flag Resynced Feature Unites All AC Fans
+
+Gaming, Assassin's Creed Black Flag Resynced, Assassin's Creed 4: Black Flag, Triple-A Games
+
+Sun, 17 May 2026 16:45:20 GMT
+
+https://screenrant.com/assassins-creed-black-flag-resynced-feature-vote/
+
+Assassin's Creed Black Fag Resynced fans have cast their votes on which feature they are most excited for, and it is a massive landslide victory.
+---------
+
+# Blumhouse's Obsession Director Details The Horror Movie's Original Ending
+
+Movies, Obsession, Horror
+
+Sun, 17 May 2026 16:42:40 GMT
+
+https://screenrant.com/blumhouse-obsession-original-ending-curry-barker/
+
+The director of Blumhouse's buzzy horror movie Obsession details the bonkers original ending he shot and decided not to use, but could revive.
+---------
+
+# Why Jon Hamm's Gabriel Didn't Return In Good Omens Season 3 Explained By Director
+
+TV, Good Omens
+
+Sun, 17 May 2026 16:41:52 GMT
+
+https://screenrant.com/good-omens-season-3-jon-hamm-gabriel-not-return-explained-rachel-talalay/
+
+Jon Hamm was an important member of the Good Omens cast for the first two seasons, but time constraints meant he didn’t return for season 3.
+---------
+
+# Every Jake Gyllenhaal Movie, Ranked From Worst To Best
+
+Movies, Jake Gyllenhaal
+
+Sun, 17 May 2026 16:40:22 GMT
+
+https://screenrant.com/jake-gyllenhaal-movies-ranked-worst-best/
+
+He boasts a highly impressive catalog of films to date, but what exactly are the definitively best and worst Jake Gyllenhaal movies of all time?
+---------
+
+# Every Marvel Character Ever Imprisoned In The Raft In The MCU, In Order
+
+Movies, Marvel Cinematic Universe
+
+Sun, 17 May 2026 16:40:21 GMT
+
+https://screenrant.com/mcu-marvel-characters-raft-prison-in-order/
+
+The Raft, an underwater prison designed to house superhumans, has become a notorious fixture in the MCU, imprisoning both heroes and villains.
+---------
+
+# Sheep In The Box: Hirokazu Koreeda’s Curious Sci-Fi Drama Explores Grief Through AI
+
+Movies, Sheep in the Box, Cannes Film Festival
+
+Sun, 17 May 2026 16:33:50 GMT
+
+https://screenrant.com/sheep-in-the-box-movie-2026-review-cannes/
+
+A beautiful yet simple sci-fi story about using artificial intelligence to manage grief, Sheep in the Box hits all the right emotional notes.
+---------
+
+# Off Campus Season 1 Interview with Stars & Showrunner
+
+TV, Off Campus, Off Campus - Season 1
+
+Sun, 17 May 2026 16:32:41 GMT
+
+https://screenrant.com/video/off-campus-stars-showrunner-adaptation-changes/
+
+Off Campus stars Ella Bright, Belmont Cameli, Mika Abdalla, Josh Heuston, Jalen Thomas Brooks, Antonio Cipriano, Stephen Kalyn, and showrunner Louisa Levy explain how they approached Prime Video's adaptation of the books and why certain changes were made for the show.
+---------
+
+# Off Campus Shows What Heated Rivalry Stands To Lose In Season Two
+
+Streaming TV, Heated Rivalry, Off Campus
+
+Sun, 17 May 2026 16:30:20 GMT
+
+https://screenrant.com/heated-rivalry-season-2-off-campus/
+
+A seemingly minor difference between Off Campus and Heated Rivalry reveals the key to Heated Rivalry's success - and what it might lose in season 2.
+---------
+
+# 7 High Fantasy Books That Desperately Need TV Adaptations
+
+Books, Fantasy
+
+Sun, 17 May 2026 16:15:20 GMT
+
+https://screenrant.com/high-fantasy-books-need-tv-shows/
+
+High fantasy can be a difficult genre to adapt for the screen due to large-scale storylines, but these high fantasy books deserve TV adaptations.
+---------
+
+# Amid James Bond Casting, the White House Reimagines Donald Trump as the 007 Spy
+
+Movies, James Bond
+
+Sun, 17 May 2026 16:38:23 GMT
+
+https://www.cbr.com/white-house-donald-trump-james-bond/
+
+After the similarities with Homelander, the White House shifted the narrative towards James Bond.
+---------
+
+# Why Jeffrey Donovan Abruptly Left Law & Order
+
+TV, Law & Order, Crime, NBC
+
+Sun, 17 May 2026 16:30:12 GMT
+
+https://www.cbr.com/law-and-order-jeffrey-donovan-abrubt-departure-explained/
+
+Although Jeffrey Donovan was cast as the lead of Law & Order's 2022 reboot, his abrupt departure a year later spawned many questions among fans.
+---------
+
+# Naruto Characters Who Were Wasted After the Pain Invasion Arc
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 17 May 2026 16:15:13 GMT
+
+https://www.cbr.com/naruto-characters-wasted-after-pain-invasion-arc/
+
+These Naruto characters seemed to lose their importance after the Pain Invasion storyline.
+---------
+
+# The 10 Greatest Action Movie Climaxes Of the Last 50 Years, Ranked
+
+Movies, Action, Star Wars, Die Hard
+
+Sun, 17 May 2026 16:00:13 GMT
+
+https://www.cbr.com/greatest-action-movie-climaxes-last-50-years-list/
+
+The modern age of action filmmaking has given fans plenty of iconic finales, but these ten action climaxes are the very best of the last five decades.
+---------
+
+# Transformers Iron Factory Legends Scale Samurai Motormaster
+
+Anime, Transformers, merchandise
+
+Sun, 17 May 2026 16:00:13 GMT
+
+https://www.cbr.com/transformers-iron-factory-legends-scale-samurai-motormaster/
+
+The leader of the Generation 1 Stunticons is reborn as a feudal ronin, complete with a dekotora vehicle mode and a samurai combined form as Menasor.
+---------
+
+# 10 Single-Location Thrillers That Are Gripping From Start to Finish, Ranked
+
+Movie, Thriller, Dog Day Afternoon, Rear Window, Phone Booth
+
+Sun, 17 May 2026 16:23:13 GMT
+
+https://collider.com/best-thriller-movies-single-location-gripping/
+
+Great thrillers like Rear Window and Dog Day Afternoon maximize the tension by sticking to a limited space and creating a claustrophobic atmosphere.
+---------
+
+# Ahead of 'The Odyssey,' Anne Hathaway’s Latest Box Office Hit Destroys Half-Billion Milestone
+
+Movie News, Anne Hathaway, The Devil Wears Prada 2, Meryl Streep, Box Office
+
+Sun, 17 May 2026 16:16:14 GMT
+
+https://collider.com/the-devil-wears-prada-2-box-office-milestone-over-546-million-anne-hathaway/
+
+Ahead of The Odyssey, Anne Hathaway’s latest blockbuster sequel, The Devil Wears Prada 2, has officially crossed a bonkers box office milestone.
+---------
+
+# HBO Max's Hit Mad Max Meets Twister Franchise Is One of the Best Action Series
+
+Movie Features, Greenland, Greenland 2: Migration, Gerard Butler, HBO Max
+
+Sun, 17 May 2026 16:06:14 GMT
+
+https://collider.com/greenland-movies-gerard-butler-hbo-max-streaming-mad-max-meets-twister/
+
+Gerard Butler's cult-hit Greenland and its sequel Greenland 2: Migration are underrated action movies on HBO Max.
+---------
+
+# 'Rivals' Nafessa Williams Reveals the One Thing That Cameron Doesn't See Coming in Season 2
+
+Exclusives, Rivals, Nafessa Williams, Luke Pasqualino, Hulu
+
+Sun, 17 May 2026 15:54:14 GMT
+
+https://collider.com/rivals-season-2-nafessa-williams-luca-pasqualino-rupert-cameron-bas/
+
+Williams and Luca Pasqualino talk about the romantic troubles ahead in 'Rivals'.
+---------
+
+# George Lucas Explained the Canon Reason Why the Prequel Trilogy's Lightsaber Duels Are So Much More "Energetic"
+
+Features, Star Wars, George Lucas
+
+Sun, 17 May 2026 16:00:18 GMT
+
+https://movieweb.com/george-lucas-reason-prequel-trilogy-lightsaber-duels/
+
+George Lucas had his own reasons for the difference between the lightsaber duels of the prequels and the originals.
+---------
+
+# Netflix Recruits Jason Statham Director for New Hostage Action Thriller
+
+Movie News, Ric Roman Waugh, Netflix, Jason Statham
+
+Sun, 17 May 2026 15:59:20 GMT
+
+https://movieweb.com/netflix-jason-statham-director-six-minutes-to-freedom/
+
+Ric Roman Waugh will direct 'Six Minutes to Freedom,' about the real-life rescue of army vet Kurt Muse from a Panamanian prison in 1989.
+---------
+
+# Samuel L. Jackson and Renny Harlin Reunite for New Action Thriller
+
+Movie News, Samuel L. Jackson, Renny Harlin
+
+Sun, 17 May 2026 15:57:23 GMT
+
+https://movieweb.com/samuel-l-jackson-renny-harlin-the-beast/
+
+Buckle up for Samuel L. Jackson's next big action picture, 'The Beast.'
+---------
+
 # Taylor Sheridan Is Finally Releasing The Yellowstone Story That Everyone Wants
 
 Streaming TV, Yellowstone, Dutton Ranch
