@@ -1,3 +1,245 @@
+# Beef Season 2 Is A Lesser Version Of The White Lotus
+
+Streaming TV, Beef
+
+Sun, 17 May 2026 17:30:19 GMT
+
+https://screenrant.com/beef-season-2-netflix-the-white-lotus-problem/
+
+Beef season 2 was being compared to The White Lotus before it even came out, but the similarities proved to be a weakness rather than a strength.
+---------
+
+# Elden Ring Meets The Witcher In Must-Play New PlayStation Freebie
+
+Gaming, PlayStation Plus, RPG, Indie, PC
+
+Sun, 17 May 2026 17:30:19 GMT
+
+https://screenrant.com/playstation-plus-free-game-soulslike-elden-ring-style/
+
+PlayStation Plus is packed this month, but if you’re looking for a new RPG that mixes Elden Ring with The Witcher, this may be the free game for you.
+---------
+
+# Resident Evil Leak Teases "Strong Horror Direction" For Upcoming Remake
+
+Gaming, Resident Evil, Triple-A Games, PC
+
+Sun, 17 May 2026 17:30:19 GMT
+
+https://screenrant.com/resident-evil-code-veronica-remake-horror-direction-leak/
+
+While Resident Evil Requiem struck a balance between action and horror, the next entry will mark another major shift for the series.
+---------
+
+# Viggo Mortensen Paid Lord Of The Rings Stunt Performers' Lawyer Fees
+
+Movies, The Lord of the Rings, Motor City Comic Con
+
+Sun, 17 May 2026 17:27:44 GMT
+
+https://screenrant.com/viggo-mortensen-lord-of-the-rings-stunt-lawyer-fees/
+
+EXCLUSIVE: Viggo Mortensen proved to be a real-life hero when he quietly paid the legal fees for The Lord of the Rings' stunt performers.
+---------
+
+# Paper Tiger Review: Miles Teller & Adam Driver Shine in James Gray's Underwhelming Crime Drama [Cannes]
+
+New Movies, Paper Tiger
+
+Sun, 17 May 2026 17:06:22 GMT
+
+https://screenrant.com/paper-tiger-movie-2026-review-cannes/
+
+There was an exceptional film in here somewhere, but despite the Hollywood firepower in its cast, James Gray’s Paper Tiger was unable to find it.
+---------
+
+# 20 Years Ago, History's Greatest Superhero Cartoon Ended On The Highest-Note Possible
+
+DC Comics, Justice League Unlimited, DC Animated Universe, Op-Ed
+
+Sun, 17 May 2026 17:00:22 GMT
+
+https://screenrant.com/greatest-superhero-cartoon-dcau-finale/
+
+This is still the greatest superhero cartoon.
+---------
+
+# NCIS Killing Torres In The Season 23 Finale Would Be CBS’s Worst Timing Ever
+
+Network TV, NCIS
+
+Sun, 17 May 2026 17:00:22 GMT
+
+https://screenrant.com/ncis-season-23-episode-20-nick-torres-death-worst-timing/
+
+Nick Torres' fate was left uncertain in the NCIS season 23 finale. If CBS ends up killing the character, his death would have the worst timing ever.
+---------
+
+# The Epic Pokémon Fantasy RPG Nobody Remembers
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 17 May 2026 17:00:22 GMT
+
+https://screenrant.com/pokemon-conquest-fantasy-rpg-nobody-remembers/
+
+The Pokémon Series is turning 30 this year, and it has an incredibly long history, including an epic RPG that deserves to be remembered.
+---------
+
+# Henry Cavill's 10 Best Movies And TV Shows
+
+Movies, Henry Cavill
+
+Sun, 17 May 2026 16:55:09 GMT
+
+https://screenrant.com/henry-cavill-best-movies-tv-shows/
+
+From one of the biggest superheroes of all time to going head-to-head with Tom Cruise, Henry Cavill's best movies and TV shows highlight his talents.
+---------
+
+# Dutton Ranch Season 1 Interview with Cole Hauser, Cast & EP
+
+Videos, Dutton Ranch, Dutton Ranch - Season 1
+
+Sun, 17 May 2026 16:52:29 GMT
+
+https://screenrant.com/video/dutton-ranch-season-1-cole-hauser-cast-ep-interview/
+
+Dutton Ranch stars Cole Hauser (Rip Wheeler), Finn Little (Carter Wheeler), Natalie Alyn Lind (Oreana Lynn Jackson), Marc Menchaca (Zachariah Moss), Juan Pablo Raba (Joaquin Jackson), and EP Christina Alexandra Voros explain how the characters maintain their trajectories from Yellowstone while carving out a unique identity for the spinoff.
+---------
+
+# Hidden Gem Sci-Fi Series With Dinosaurs & Time Travel Streaming for Free
+
+TV, Primeval: New World
+
+Sun, 17 May 2026 17:52:09 GMT
+
+https://www.cbr.com/primeval-new-world-streaming-free-youtube-may-2026/
+
+All episodes of the forgotten sci-fi series featuring time travel and dinosaurs can be streamed for free.
+---------
+
+# Outlander Boss Confirms Which Major Death Had to Stay Despite Filming 1 Scene That Never Aired
+
+TV, Outlander
+
+Sun, 17 May 2026 17:31:48 GMT
+
+https://www.cbr.com/outlander-black-jack-randall-different-death/
+
+Throughout the eight-season run, Outlander lost several major characters.
+---------
+
+# It's Officially the End of an Era for Lord of the Rings in 2026
+
+Games, The Lord of the Rings
+
+Sun, 17 May 2026 17:16:17 GMT
+
+https://www.cbr.com/lord-of-the-rings-official-end-of-era-2026/
+
+The Lord of the Rings franchise has suffered a huge blow in 2026, with a major video game project shuttered before it could get off the ground.
+---------
+
+# 'The Fugitive' Meets 'Extraction' in Apple TV's 10-Part American Thriller Series
+
+TV Features, The Last Frontier, Apple TV, Jason Clarke, Thriller
+
+Sun, 17 May 2026 17:43:13 GMT
+
+https://collider.com/the-last-frontier-apple-tv-american-thriller-series/
+
+Apple TV's The Last Frontier is a gripping 10-part series revolving around a dangerous manhunt in the unforgiving wilderness.
+---------
+
+# 8 Psychological Thrillers With the Most Shocking Endings
+
+Movie, Thriller, Memento, Oldboy, Prisoners
+
+Sun, 17 May 2026 17:31:13 GMT
+
+https://collider.com/psychological-thrillers-shocking-endings/
+
+The final scene can make all the difference for a psychological thriller, with films like Enemy, Oldboy, and Fight Club being among the most shocking.
+---------
+
+# This Unhinged Thriller With 87% on Rotten Tomatoes Is a Near-Perfect Sci-Fi From Start to Finish
+
+Movie Features, Bugonia, Yorgos Lanthimos, Sci-Fi, Thriller
+
+Sun, 17 May 2026 17:03:13 GMT
+
+https://collider.com/sci-fi-thriller-bugonia-unhinged-near-perfect-from-start-to-finish/
+
+Bugonia, from Yorgos Lanthimos, works as a sci-fi film, a thriller, and a dark comedy all at once, and got an impressive 87% on Rotten Tomatoes.
+---------
+
+# Nicolas Winding Refn Honored at Cannes Ahead of His First Film in Nearly a Decade
+
+Movie News, Nicolas Winding Refn, Her Private Hell, Cannes Film Festival, Horror
+
+Sun, 17 May 2026 16:58:38 GMT
+
+https://collider.com/nicolas-winding-refn-honored-fantastic-pavilion-cannes-marche-du-film/
+
+Nicolas Winding Refn was honored by Fantastic Pavilion at the Cannes Film Festival's Marché du Film, ahead of the premiere of his new horror movie.
+---------
+
+# 10 Greatest 'Doctor Who' Companions of All Time, Ranked
+
+TV, Doctor Who, Science Fiction
+
+Sun, 17 May 2026 16:58:13 GMT
+
+https://collider.com/best-doctor-who-companions-all-time-ranked/
+
+Doctor Who is nothing without their companions, like Rose Tyler and Donna Noble, but who is the greatest of the long-running BBC sci-fi series?
+---------
+
+# There Are 2 Names Kevin Feige Reportedly Banned From Returning to the MCU (& Here's Why)
+
+Features, MCU, Kevin Feige
+
+Sun, 17 May 2026 17:30:18 GMT
+
+https://movieweb.com/kevin-feige-joss-whedon-edward-norton-banned-mcu/
+
+Cancel culture has nothing to do with Kevin Feige's Marvel blacklist reasoning, though it's still undoubtedly relevant.
+---------
+
+# 'John Rambo' Prequel Adds James Franco to Cast
+
+Movie News, John Rambo, James Franco, Rambo
+
+Sun, 17 May 2026 17:02:38 GMT
+
+https://movieweb.com/john-rambo-prequel-james-franco-cast/
+
+James Franco will star in a 'Rambo' prequel movie alongside Noah Centineo and David Harbour.
+---------
+
+# Jason Statham's $214 Million Action Thriller 'The Expendables 3' Nearly Killed Him During Filming
+
+Features, The Expendables 3, Jason Statham, Action, Streaming Recommendations
+
+Sun, 17 May 2026 17:01:19 GMT
+
+https://movieweb.com/the-expendables-3-action-jason-statham-nearly-died/
+
+Jason Statham nearly died while filming a deadly stunt for 'The Expendables 3'
+---------
+
+# 8 Cult Classic Movies That Deserve a Sequel
+
+Movie Lists
+
+Sun, 17 May 2026 17:01:19 GMT
+
+https://movieweb.com/cult-classic-movies-deserve-sequels/
+
+These eight cult classics featured elaborate world‑building and characters that could’ve easily launched full cinematic universes.
+---------
+
 # The 8-Part 'Game Of Thrones Meets Walking Dead' Series That Has A Better Ending Than Both
 
 Classic TV, Masked Recs
