@@ -1,3 +1,366 @@
+# Michael Fassbender Film Hope Drops New Trailer
+
+Movies, hope, Michael Fassbender
+
+Mon, 18 May 2026 01:22:50 GMT
+
+https://screenrant.com/hope-new-trailer-cannes/
+
+A new South Korean science fiction movie starring Michael Fassbender just released a brand-new trailer after debuting ant Cannes Film Festival.
+---------
+
+# After 86 Years, DC Is Completely Flipping Batman’s Origin On Its Head In The Best Way
+
+DC Comics, Batman, DC
+
+Mon, 18 May 2026 01:16:59 GMT
+
+https://screenrant.com/dc-batman-origin-flipping-absolute-scarecrow/
+
+The murder of Bruce Wayne's parents has been reinterpreted in a wild new direction, and it is perfectly appropriate for the universe's mythos.
+---------
+
+# Syfy's 2-Part Science Fiction Horror Is So Good, You'll Finish It In One Sitting
+
+Classic TV, Masked Recs
+
+Mon, 18 May 2026 01:00:20 GMT
+
+https://screenrant.com/helix-syfy-show-vampire-virus-horror-binge/
+
+There's a lot of great horror sci-fi TV shows out there, but few defy audience expectations like this hidden Syfy network gem from the 2010s.
+---------
+
+# Zelda: Twilight Princess Has A Sequel Nobody Remembers
+
+Gaming
+
+Mon, 18 May 2026 01:00:20 GMT
+
+https://screenrant.com/zelda-twilight-princess-has-a-sequel-nobody-remembers/
+
+Everyone remembers Zelda sequels like Majora's Mask, but few remember the strange direct follow-up to The Legend of Zelda: Twilight Princess.
+---------
+
+# 10 Greatest Monsters In Fantasy Movies
+
+Movies, Fantasy
+
+Mon, 18 May 2026 01:00:20 GMT
+
+https://screenrant.com/fantasy-movies-best-monsters/
+
+There have been all kinds of monsters seen in fantasy movies through the years, and these ten are the best and most complex iterations.
+---------
+
+# 8 Denzel Washington Performances That Are Considered Masterpieces
+
+Movies, Denzel Washington
+
+Mon, 18 May 2026 01:00:20 GMT
+
+https://screenrant.com/denzel-washington-best-performances-top-movies/
+
+Denzel Washington's legacy as a definer of cinema is most evident in these performances.
+---------
+
+# 10 The Flash Episodes That Are Considered Masterpieces
+
+Streaming TV, The Flash
+
+Mon, 18 May 2026 00:45:21 GMT
+
+https://screenrant.com/the-flash-episodes-considered-masterpieces/
+
+The Flash stands out as one of the best shows in the Arrowverse, but it also contains several episodes that are masterpieces in the superhero genre.
+---------
+
+# Edgerunners Is Secretly Netflix's Official Answer To Solo Leveling (No, Really)
+
+Anime, Netflix, Solo Leveling, Cyberpunk: Edgerunners
+
+Mon, 18 May 2026 00:30:21 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-netflix-answer-solo-leveling-better/
+
+Solo Leveling has rightfully become one of the most popular shonen series of the past decade, but Netflix has a series that rivals it in every way.
+---------
+
+# Netflix's 4-Part Thriller Series Is So Good, You'll Finish It In One Sitting
+
+Streaming TV, Masked Recs
+
+Mon, 18 May 2026 00:30:21 GMT
+
+https://screenrant.com/adolescence-thriller-series-finish-one-sitting/
+
+Netflix's most addictive shows in years is far from an easy ride, with every installment being jarring in ways that linger for months after viewing.
+---------
+
+# Man Of Tomorrow’s Brainiac Star Breaks Silence On Playing DCU Villain
+
+Movies, Man of Tomorrow
+
+Mon, 18 May 2026 00:20:58 GMT
+
+https://screenrant.com/superman-man-of-tomorrows-brainiac-lars-eidinger-dcu/
+
+The actor behind Brainiac in the upcoming DCU film Man of Tomorrow discusses playing the iconic Superman villain and joining the franchise.
+---------
+
+# 10 Hidden Gem Anime Movies You Can Only Watch On Netflix
+
+Anime, Inu-Oh, Words Bubble Up Like Soda Pop, Netflix
+
+Mon, 18 May 2026 01:25:15 GMT
+
+https://www.cbr.com/netflix-exclusive-hidden-gem-anime-list/
+
+Netflix is full of underrated anime gems like Drifting Home, Inu-Oh and Bubble that leave a lasting impact despite their often low-profile release.
+---------
+
+# Leonardo DiCaprio's One Battle After Another Heading to Prime Video
+
+Movies, One Battle After Another, Action, Prime Video
+
+Mon, 18 May 2026 01:00:13 GMT
+
+https://www.cbr.com/leonardo-dicaprio-one-battle-after-another-streaming-prime-video-may-2026/
+
+Leonardo DiCaprio's critically acclaimed action thriller will reach new audiences on Prime Video in just one week.
+---------
+
+# 5 Biggest Spider-Man Villains Missing From the MCU
+
+Movies, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Mon, 18 May 2026 01:00:13 GMT
+
+https://www.cbr.com/mcu-missing-spider-man-villains-list/
+
+Tom Holland's version of Peter Parker has faced more supervillains than any other, but some of his greatest enemies are still absent from the MCU.
+---------
+
+# Dragon Ball Villains Who Changed the Franchise Forever
+
+Anime, Dragon Ball
+
+Mon, 18 May 2026 00:45:14 GMT
+
+https://www.cbr.com/dragon-ball-villains-who-changed-the-franchise-forever/
+
+These Dragon Ball villains left such a massive impact that the series was never the same afterward.
+---------
+
+# Zelda's Connection to Star Fox Is Coming Full Circle In 2026
+
+Games, The Legend of Zelda: Ocarina of Time, Star Fox, The Legend of Zelda
+
+Mon, 18 May 2026 00:30:14 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-star-fox-remake-connection-references/
+
+The Legend of Zelda series has been inexplicably linked to the Star Fox franchise since the N64 era, and that special bond is now coming full-circle.
+---------
+
+# 5 My Hero Academia Pro Heroes Who Failed Their Students
+
+Anime, My Hero Academia
+
+Mon, 18 May 2026 00:15:14 GMT
+
+https://www.cbr.com/my-hero-academia-heroes-who-failed-their-students/
+
+These beloved pro heroes in My Hero Academia fell short when it came to guiding the next generation.
+---------
+
+# Netflix's New 8-Part Crime Series Is Officially 1 of the Most-Watched Shows in the World
+
+TV, Nemesis
+
+Mon, 18 May 2026 00:00:13 GMT
+
+https://www.cbr.com/nemesis-crime-series-netflix-success-may-2026/
+
+The line between a hero and a villain is blurred in this fast-paced hit series.
+---------
+
+# All of Sukuna's Forms, Ranked by Strength
+
+Anime, Jujutsu Kaisen, Shonen
+
+Mon, 18 May 2026 00:00:13 GMT
+
+https://www.cbr.com/jjk-sukuna-strongest-forms-ranked-list/
+
+The King of Curses is undeniably powerful, but some of Ryomen Sukuna's forms are stronger than others.
+---------
+
+# The Greatest Studio Ghibli Films Officially Return to the Big Screen in New U.S. Release
+
+Anime, Studio Ghibli, Spirited Away, Ponyo, Castle in the Sky, Princess Mononoke
+
+Mon, 18 May 2026 00:00:13 GMT
+
+https://www.cbr.com/ghibli-fest-2026-movie-release-dates/
+
+Studio Ghibli Fest 2026 officially kicks off next month, bringing iconic films like My Neighbor Totoro and Spirited Away back to the silver screen.
+---------
+
+# It's the End of an Era for Absolute Batman's Scott Snyder's Indie Series
+
+Comics, scott snyder
+
+Sun, 17 May 2026 23:56:17 GMT
+
+https://www.cbr.com/white-boat-3-review-scott-snyder-indie-series-end-era/
+
+It's the End of an Era for Absolute Batman's Scott Snyder's Indie Series
+---------
+
+# 10 Crime Thriller Shows That Are Perfect From Start to Finish
+
+TV, Thriller, Breaking Bad, The Night Agent, Hannibal
+
+Mon, 18 May 2026 01:21:14 GMT
+
+https://collider.com/crime-thriller-shows-perfect-start-to-finish/
+
+From the AMC masterpiece Breaking Bad to the Netflix action series The Night Agent, these crime thriller shows are perfect from start to finish.
+---------
+
+# The Actor Who Played the Older Private Ryan in the World War II Classic Has His Own History
+
+Movie Features, Saving Private Ryan, Matt Damon, Steven Spielberg, Tom Hanks
+
+Mon, 18 May 2026 01:03:14 GMT
+
+https://collider.com/saving-private-ryan-old-matt-damon-harrison-young/
+
+The older version of Private Ryan is played by Harrison Young, whose wholesome performance gave 'Saving Private Ryan its most tear-jerking moment.
+---------
+
+# 21 Years Later, Mark Wahlberg’s Forgotten Crime Thriller Is Finally Free to Stream
+
+Movie News, Four Brothers, Mark Wahlberg, Chiwetel Ejiofor, Andre 3000
+
+Mon, 18 May 2026 01:00:14 GMT
+
+https://collider.com/mark-wahlberg-forgotten-crime-thriller-four-brothers-streaming-free-kanopy-june-2026/
+
+Mark Wahlberg’s critically mauled revenge thriller Four Brothers, also starring Chiwetel Ejiofor, will stream for free on Kanopy.
+---------
+
+# ‘Bosch’ Meets ‘Dexter’ in One of the Greatest Crime Thrillers Ever Made Surging on Streaming
+
+Movie News, Se7en, Brad Pitt, Bosch, Dexter
+
+Mon, 18 May 2026 00:45:14 GMT
+
+https://collider.com/david-fincher-greatest-crime-thriller-se7en-streaming-success-prime-video-apple-tv-may-2026-bosch-dexter/
+
+Se7en, which is one of the greatest crime thrillers ever made with DNA from Bosch and Dexter, is surging on streaming charts.
+---------
+
+# 10 Stellar Thriller Movies That Are Worth Your Time
+
+Movie, Thriller, Prisoners, Bugonia, Primal Fear
+
+Mon, 18 May 2026 00:42:13 GMT
+
+https://collider.com/stellar-thriller-movies-worth-your-time/
+
+Prisoners, Gone Girl, Primal Fear, Parasite, Shutter Island, and more make up our list of stellar thriller movies that are worth your time.
+---------
+
+# 3 Weeks After Its Finale, Prime Video’s Brutal 5-Part Sci-Fi Phenomenon Refuses To Slow Down
+
+TV News, Prime Video, Invincible, Action, Thriller
+
+Mon, 18 May 2026 00:30:15 GMT
+
+https://collider.com/prime-video-brutal-sci-fi-series-invincible-streaming-success-may-2026/
+
+Prime Video’s brutal superhero phenomenon, Invincible, is still dominating weeks after its finale, fueled by emotional fallout and relentless hype.
+---------
+
+# This Forgotten 7-Part Superhero Series Is Better Than You Remember
+
+TV Features, DC's Legends of Tomorrow, Caity Lotz, Brandon Routh, Dominic Purcell
+
+Mon, 18 May 2026 00:20:14 GMT
+
+https://collider.com/dc-legends-of-tomorrow-superhero-series/
+
+DC's Legends of Tomorrow outshines other Arrowverse series, balancing comedy, action, and heart over its 7-season run.
+---------
+
+# Forget ‘Reacher,’ Alan Ritchson Proves He’s More Than an Action Star in This Streaming Hit
+
+Movie News, Alan Ritchson, Ordinary Angels, Hilary Swank, Paramount Plus
+
+Mon, 18 May 2026 00:16:14 GMT
+
+https://collider.com/reacher-star-alan-ritchson-more-than-action-hero-ordinary-angel-streaming-success-paramount-plus-may-2026/
+
+Alan Ritchson's heartfelt drama Ordinary Angels, co-starring Hilary Swank, gains popularity on streaming platforms. Find out more here.
+---------
+
+# 10 Miniseries That Will Keep You Hooked From Start to Finish
+
+TV, TV Miniseries, Band of Brothers, Adolescence, Chernobyl
+
+Mon, 18 May 2026 00:02:14 GMT
+
+https://collider.com/miniseries-keep-you-hooked-start-to-finish/
+
+Explore a curated list of top-notch miniseries that deliver start-to-finish thrills, including Band of Brothers, Chernobyl, and Adolescence.
+---------
+
+# Netflix’s New Action Thriller Is the Perfect Weekend Binge for ‘John Wick’ Fans
+
+Movie News, Netflix, Action, Thriller, John Wick
+
+Mon, 18 May 2026 00:01:14 GMT
+
+https://collider.com/netflix-john-wick-replacement-action-thriller-my-dearest-assassin-streaming-success-may-2026/
+
+Netflix’s newest international thriller is dominating global charts with massive viewership, emotional stakes, and breakout momentum.
+---------
+
+# 10 Great '80s Sci-Fi Movies That Rewrote the Rules of the Genre
+
+Movie Lists, Sci-Fi, 1980s
+
+Mon, 18 May 2026 01:00:19 GMT
+
+https://movieweb.com/great-80s-sci-fi-movies-rewrote-rules-genre/
+
+Contemporary sci-fi movies are still trying to top these '80s classics that helped redefine genre expectations.
+---------
+
+# The Fate of Kevin Costner's 'Horizon' Saga Remains Unclear After 2 Years
+
+Features, Horizon: An American Saga - Chapter 1, Kevin Costner, Horizon: An American Saga - Chapter 2
+
+Mon, 18 May 2026 00:30:20 GMT
+
+https://movieweb.com/kevin-costner-horizon-an-american-saga-unfinished-fate-unclear/
+
+Kevin Costner exited 'Yellowstone' to pursue his passion project 'Horizon: An American Saga" but the fate of the ambitious series is unclear.
+---------
+
+# 10 High Fantasy TV Shows With Great Magic Systems
+
+TV Lists, Fantasy
+
+Mon, 18 May 2026 00:15:20 GMT
+
+https://movieweb.com/high-fantasy-tv-shows-best-magic-systems/
+
+They'll make you wish you could wield magic in the real world.
+---------
+
 # 10 "Really Old TV Shows" That Are Still Considered Masterpieces
 
 Classic TV
