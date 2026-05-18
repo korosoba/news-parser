@@ -1,3 +1,311 @@
+# 5 Prime Video Shows To Watch This Week (#1 Drops Its Can't-Miss Finale In Less Than 2 Days)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 18 May 2026 22:47:20 GMT
+
+https://screenrant.com/prime-video-shows-watch-week-may-18/
+
+These five Prime Video shows have all achieved must-watch status this week, May 18–22, 2026, including Off Campus, Good Omens, & The Boys.
+---------
+
+# Tom Kane's 10 Greatest Roles, From Star Wars To The Powerpuff Girls
+
+Classic TV, Tom Kane
+
+Mon, 18 May 2026 22:45:21 GMT
+
+https://screenrant.com/tom-kane-best-roles-voice-acting/
+
+Tom Kane passed away on May 18, 2026, and the world lost one of its great voice actors, with characters in Star Wars, The Powerpuff Girls, and more.
+---------
+
+# Why 2026’s Masters Of The Universe Is Missing An Iconic Character Explained By Director
+
+Movies, Masters of the Universe
+
+Mon, 18 May 2026 22:41:25 GMT
+
+https://screenrant.com/masters-of-the-universe-2026-merman-missing-why-travis-knight/
+
+Masters of the Universe director Travis Knight explained the rationale of why one of the franchise's more popular villains isn't in the reboot.
+---------
+
+# Martin Scorsese's Unofficial 'Casino' Trilogy Is Finally Complete
+
+Streaming TV, The Roman
+
+Mon, 18 May 2026 22:30:20 GMT
+
+https://screenrant.com/martin-scorsese-casino-trilogy-the-roman/
+
+Among Martin Scorsese's upcoming projects is a Netflix TV show starring Oscar Isaac, through which his unofficial Casino trilogy will be completed.
+---------
+
+# Netflix's Most Viewed Series Of All Time Is The Only Harry Potter Answer They Need
+
+Streaming TV, Wednesday, Harry Potter
+
+Mon, 18 May 2026 22:30:20 GMT
+
+https://screenrant.com/wednesday-netflix-most-viewed-series-answer-harry-potter/
+
+Harry Potter is hard to beat, but Netflix does have one award-winning show that captures a similar school setting and a sense of supernatural whimsy.
+---------
+
+# Karl Urban Candidly Fires Back At The Boys Season 5 Criticisms Ahead Of Series Finale
+
+TV, The Boys, The Boys - Season 5
+
+Mon, 18 May 2026 22:14:44 GMT
+
+https://screenrant.com/the-boys-season-5-criticism-karl-urban-response/
+
+Amid many fan criticisms of The Boys season 5 and ahead of the series finale, Karl Urban shares a candid response that would make Billy Butcher proud.
+---------
+
+# Subnautica 2 PlayStation 5 Release Date Leaves Gamers Frustrated
+
+Gaming, Subnautica 2, PlayStation 5
+
+Mon, 18 May 2026 22:00:20 GMT
+
+https://screenrant.com/subnautica-2-playstation-5-release-date-speculation/
+
+Many players were devastated to discover that Subnautica 2’s PS5 release date may be years away — but there’s a silver lining, as others remind us.
+---------
+
+# Netflix’s Near-Perfect 3-Part Fantasy Series Is ‘Harry Potter Meets Twilight’
+
+Classic TV, Masked Recs
+
+Mon, 18 May 2026 22:00:20 GMT
+
+https://screenrant.com/a-discovery-of-witches-netflix-harry-potter-twilight/
+
+A fantasy series that immerses viewers in a rich, atmospheric, and magical world to tell a love story that rivals any sparkling vampire's.
+---------
+
+# 8 Most Universally Beloved High-Fantasy Movies of All Time
+
+Movies, Fantasy
+
+Mon, 18 May 2026 22:00:20 GMT
+
+https://screenrant.com/high-fantasy-movies-universally-beloved-all-time/
+
+Yes, we're counting Lord of the Rings as one entry...
+---------
+
+# 10 Sci-Fi Movies To Watch Before Steven Spielberg’s Disclosure Day
+
+Movies, Disclosure Day
+
+Mon, 18 May 2026 21:59:20 GMT
+
+https://screenrant.com/sci-fi-movies-before-disclosure-day-steven-spielberg/
+
+Steven Spielberg's new UFO movie is coming to theaters in June 2026, and here are 10 similar movies to prepare you for this major cinematic event.
+---------
+
+# Disney Finally Gets Good Star Wars News Days Before New Movie After Divided Reactions
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Mon, 18 May 2026 22:48:20 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-box-office-tracking-85-100-million/
+
+Finally, some good news for Star Wars.
+---------
+
+# 15 Best Manhwa With Strong Female Leads
+
+Anime, manhwa
+
+Mon, 18 May 2026 22:35:13 GMT
+
+https://www.cbr.com/best-manhwa-strong-female-leads/
+
+These 20 manhwa heroines deserve just as much recognition as female manga characters.
+---------
+
+# 7 Darkest Anime Series of All Time
+
+Anime, Devilman Crybaby, Now and Then, Here and There
+
+Mon, 18 May 2026 22:15:12 GMT
+
+https://www.cbr.com/darkest-anime-series-of-all-time/
+
+Uplifting stories is not the only thing anime has to offer, and these anime series take viewers to the darkest, most unsettling places.
+---------
+
+# Clayface Officially Marks The End of An Era For Batman Movies After 37 Years
+
+Movies, Clayface, Batman, DCU
+
+Mon, 18 May 2026 22:01:14 GMT
+
+https://www.cbr.com/dc-clayface-batman-horror-movie-genre-end-of-era/
+
+This upcoming Batman movie is officially sending the Dark Knight into a whole new era of big screen storytelling.
+---------
+
+# Marvel Confirms the One Character Stronger Than Hulk
+
+Comics, Captain America, Hulk
+
+Mon, 18 May 2026 22:01:14 GMT
+
+https://www.cbr.com/captain-america-11-red-hulk-strongest-confirmed/
+
+One fan-favorite Avengers just confirmed exactly which Marvel Comics behemoth is stronger than the original Hulk, and it hurts.
+---------
+
+# Absolute Batman Has Become DC Comics’ New Version of Joker
+
+Comics, Absolute Batman
+
+Mon, 18 May 2026 22:01:14 GMT
+
+https://www.cbr.com/absolute-batman-joker-similarities-confirmed/
+
+Absolute Batman officially proves that one is one's own worst enemy.
+---------
+
+# 36 Years Later, Dragon Ball Reveals an Alternative Look for Rare ‘Realism-Seeping’ Goku
+
+Anime, Dragon Ball
+
+Mon, 18 May 2026 22:01:14 GMT
+
+https://www.cbr.com/dragon-ball-goku-alternate-version-art/
+
+This new Dragon Ball draft is a rare find as this version was eventually shelved and never released.
+---------
+
+# ‘Tracker’ Finally Revealed the Truth About Ashton Shaw’s Death
+
+TV Features, Tracker, Justin Hartley, Lee Tergesen, CBS
+
+Mon, 18 May 2026 22:52:13 GMT
+
+https://collider.com/tracker-season-3-episode-21-ashton-shaw-murder-chrono-stasis/
+
+Ashton Shaw's death is finally resolved in Tracker's latest episode, revealing a connection to the mysterious Chrono Stasis program.
+---------
+
+# Noah Wyle Finally Reveals If 'The Pitt's Night Shift Spin-Off Will Happen
+
+TV News, HBO, HBO Max, The Pitt, Noah Wyle
+
+Mon, 18 May 2026 22:47:09 GMT
+
+https://collider.com/noah-wyle-the-pitt-night-shift-spinoff-update/
+
+Noah Wyle has addressed whether The Pitt could expand with a night shift spinoff centered on fan-favorite characters.
+---------
+
+# Forget ‘Fourth Wing’ — The Best Fantasy Book of the Last 10 Years Needs a TV Adaptation Now
+
+TV Features, Fantasy, Books, Streaming, Television
+
+Mon, 18 May 2026 22:41:13 GMT
+
+https://collider.com/circe-book-fantasy-tv-adaptation/
+
+Circe, hailed as the best fantasy book of the decade, deserves a TV adaptation for its unique take on mythology.
+---------
+
+# Matthew Lillard Is Officially Returning to Scooby-Doo
+
+TV News, Scooby-Doo, Tubi, Frank Welker, Matthew Lillard
+
+Mon, 18 May 2026 22:35:24 GMT
+
+https://collider.com/new-scooby-doo-series-anime-yokoso-cast-matthew-lillard/
+
+Matthew Lillard is officially returning to his best franchise as Tubi green-lights new anime series Yokoso Scooby-Doo! Here’s what you need to know!
+---------
+
+# 3 Near-Perfect Movies to Watch on Prime Video This Week
+
+Movie, Prime Video, Babe, Some Like It Hot, Long Shot
+
+Mon, 18 May 2026 22:34:13 GMT
+
+https://collider.com/best-movies-prime-video-may-18/
+
+Babe, Long Shot, and Some Like It Hot make up our list of the best movies to watch on Prime Video the week of May 18, 2026.
+---------
+
+# 10 Best Albums of the 2010s, Ranked
+
+Music Features, Music, David Bowie, Kanye West, Daft Punk
+
+Mon, 18 May 2026 22:15:12 GMT
+
+https://collider.com/best-2010s-albums-ranked/
+
+The best albums released in the 2010s include modern classics like Kendrick Lamar's To Pimp a Butterfly and Random Access Memories by Daft Punk.
+---------
+
+# HBO Eases All DC Fan Fears With Perfect Trailer for Their Upcoming Sci-Fi Thriller Series
+
+TV Features, Lanterns, HBO Max, Kyle Chandler, Aaron Pierre
+
+Mon, 18 May 2026 22:11:13 GMT
+
+https://collider.com/hbo-max-lanterns-dc-studios-perfect-trailer-release/
+
+Lanterns has finally won fans over with its second trailer, which showcases the cosmic action of the Green Lantern Corps.
+---------
+
+# 12 Years Later, One of the Greatest Action Thriller Franchises Is a Streaming Hit
+
+Movie Features, The Equalizer, The Equalizer 2, Denzel Washington, Pedro Pascal
+
+Mon, 18 May 2026 21:53:14 GMT
+
+https://collider.com/best-action-thrillers-equalizer-movies-streaming-prime-video-denzel-washington/
+
+Denzel Washington's Equalizer franchise remains one of the best action sagas of the 2010s.
+---------
+
+# Stephen King's Coming-of-Age Masterpiece 'Stand By Me' Is Coming to Free Streaming
+
+Movie News, Coming/Leaving Streaming, Stand by Me, Stephen King
+
+Mon, 18 May 2026 22:00:19 GMT
+
+https://movieweb.com/stand-by-me-free-streaming-tubi-june-2026/
+
+Try to find a better cast in an '80s movie.
+---------
+
+# 8 Critically Panned Ridley Scott Movies That Became Streaming Mega-Hits
+
+Movie Lists, Ridley Scott
+
+Mon, 18 May 2026 22:00:19 GMT
+
+https://movieweb.com/ridley-scott-panned-movies-streaming-success/
+
+Ridley Scott may be known for hit movies like 'Gladiator,' but some of his movies that critics didn't love have done well on streaming.
+---------
+
+# A24's Remastered 'Stop Making Sense' Concert Movie Leaving Free Streaming in June
+
+Movie News, Stop Making Sense, Tubi
+
+Mon, 18 May 2026 22:00:19 GMT
+
+https://movieweb.com/stop-making-sense-leaving-free-streaming-tubi-june-2026/
+
+Forget Taylor Swift, Talking Heads' remastered 'Stop Making Sense' concert movie is streaming for free on Tubi for a limited time.
+---------
+
 # PlayStation Officially Confirms The End Of An Era
 
 Gaming, Gaming Hardware, PlayStation
