@@ -1,3 +1,366 @@
+# 3 Years Later, Prime Video's Jack Ryan Officially Returns This Week (But There's A Twist)
+
+Movies, Masked Recs
+
+Mon, 18 May 2026 18:16:49 GMT
+
+https://screenrant.com/jack-ryan-ghost-war-prime-video-may-2026-release/
+
+One of Prime Video's best TV shows is coming back with a twist this week, as this hit spy thriller takes its iconic character on another mission.
+---------
+
+# Jon Snow's Game Of Thrones Spinoff Series Isn't Officially Dead, Confirms Kit Harington
+
+TV, Jon Snow, Game of Thrones, Motor City Comic Con
+
+Mon, 18 May 2026 18:01:02 GMT
+
+https://screenrant.com/game-of-thrones-jon-snow-series-not-dead-kit-harington/
+
+Jon Snow's Game of Thrones spinoff isn't officially dead, Kit Harington confirms, after previously revealing it is no longer in active development.
+---------
+
+# 10 21st Century Comics That Are Considered Masterpieces
+
+Comics, The Walking Dead, Batman, X-Men
+
+Mon, 18 May 2026 17:54:50 GMT
+
+https://screenrant.com/comics-21st-century-masterpieces/
+
+Must-read modern comic masterpieces.
+---------
+
+# Anne Hathaway’s 22-Year-Old Cult Classic Fantasy Getting New TV Remake With Major Changes
+
+Movies, Ella Enchanted
+
+Mon, 18 May 2026 17:45:51 GMT
+
+https://screenrant.com/ella-enchanted-tv-reboot-anne-hathaway-return/
+
+Anne Hathaway will be returning to this iconic cult classic after 22 years, however the TV adaptation will face some major changes on Disney+.
+---------
+
+# Studio Ghibli Announces New Era With One Big Change Coming This Summer
+
+Anime, Studio Ghibli
+
+Mon, 18 May 2026 17:42:26 GMT
+
+https://screenrant.com/studio-ghibli-new-president-era/
+
+The iconic Studio Ghibli is about to enter a brand-new era with this big change that is coming Summer 2026, so here is everything fans need to know.
+---------
+
+# Masters Of The Universe 2 Plans Addressed By Director Ahead Of Long-Awaited Reboot’s Release
+
+Movies, Masters of the Universe, Travis Knight
+
+Mon, 18 May 2026 17:37:27 GMT
+
+https://screenrant.com/masters-of-the-universe-2-plans-travis-knight/
+
+With the new Masters of the Universe film being released on June 5, director Travis Knight discusses his plans for a potential sequel in the future.
+---------
+
+# How Kyle Chandler's Hal Jordan Costume Compares To Ryan Reynolds' Green Lantern & The Comics
+
+Streaming TV, Lanterns, Green Lantern, DC
+
+Mon, 18 May 2026 17:33:43 GMT
+
+https://screenrant.com/lanterns-kyle-chandler-hal-jordan-costume-explained/
+
+The new trailer for Lanterns fully revealed Kyle Chandler's Hal Jordan costume: here's how it compares to comics and Ryan Reynolds' version.
+---------
+
+# 5 Better Call Saul Episodes That Prove It's Superior To Breaking Bad (& 5 That Prove The Opposite)
+
+Classic TV, Better Call Saul, Breaking Bad
+
+Mon, 18 May 2026 17:30:20 GMT
+
+https://screenrant.com/better-call-saul-episodes-better-than-breaking-bad-opposite/
+
+The age-old debate — is Better Call Saul a better show than Breaking Bad? — can be settled with a handful of episodes to support each argument.
+---------
+
+# The Super Mario Galaxy Movie Was A Major Success, But Why Didn't It Surpass The First Film's Box Office?
+
+Movies, The Super Mario Galaxy Movie, The Super Mario Bros. Movie
+
+Mon, 18 May 2026 17:20:20 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-box-office-first-movie-comparison/
+
+The Super Mario Galaxy Movie is the biggest movie of 2026 so far, but it's surprising to see it hasn't matched the first film's box office.
+---------
+
+# Honkai Star Rail 4.3 Livestream: Date & Time, New Characters & Banners, Updates & More
+
+Gaming, Honkai: Star Rail, PC, Live Service Games
+
+Mon, 18 May 2026 17:09:23 GMT
+
+https://screenrant.com/honkai-star-rail-43-livestream-date-time-characters/
+
+HoYoverse has revealed when the Honkai: Star Rail 4.3 livestream will occur, and players should look forward to the patch’s new character.
+---------
+
+# 10 Shonen Anime That Officially Broke The Internet
+
+Anime, Attack on Titan, Chainsaw Man, Dragon Ball Super, Jujutsu Kaisen, Jojo's Bizarre Adventure, One Piece, Demon Slayer: Kimetsu no Yaiba, shonen anime
+
+Mon, 18 May 2026 18:15:14 GMT
+
+https://www.cbr.com/shonen-anime-broke-the-internet/
+
+Shonen anime occasionally breaks the internet with viral fights, shocking twists and record-breaking fan reactions worldwide.
+---------
+
+# The Boys Creator Reveals The Surprising Character He’d ‘Very Much’ Like To Bring Back
+
+CBR Exclusives, The Boys
+
+Mon, 18 May 2026 18:05:38 GMT
+
+https://www.cbr.com/the-boys-creator-reveals-surprising-character-to-bring-back/
+
+You will never believe who The Boys showrunner wants to see return in the future.
+---------
+
+# It’s Officially Over for Isekai, New Report Reveals
+
+Anime, Isekai, Kadokawa
+
+Mon, 18 May 2026 18:00:14 GMT
+
+https://www.cbr.com/isekai-kadokawa-financial-losses-2026/
+
+The leading isekai publisher just suffered its biggest financial losses yet.
+---------
+
+# Say Goodbye to The Big Bang Theory as HBO Pulls the Plug on a Sitcom Era
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, Young Sheldon
+
+Mon, 18 May 2026 18:00:14 GMT
+
+https://www.cbr.com/hbo-stuart-fails-to-save-the-universe-ends-tbbt-sitcom-era/
+
+HBO's new spin-off, Stuart Fails to Save the Universe, officially leaves traditional sitcoms like The Big Bang Theory and Young Sheldon behind.
+---------
+
+# 10 Marvel Alternate Reality Ideas That Were Better Than Expected
+
+Comics, Marvel
+
+Mon, 18 May 2026 18:00:14 GMT
+
+https://www.cbr.com/marvel-alternate-reality-concepts-that-somehow-worked/
+
+Dive into the Marvel multiverses where mutants rule, and heroes you know are changed forever.
+---------
+
+# September 17 Will Be a Great Day for Transformers Fans
+
+Movies, Transformers, The Transformers: The Movie, Sci-Fi
+
+Mon, 18 May 2026 17:56:36 GMT
+
+https://www.cbr.com/transformers-the-movie-theatrical-re-release-dates-september-17-21/
+
+Transformers fans should mark their calendars.
+---------
+
+# The 6 Creepiest Star Wars Aliens, Ranked
+
+Movies, Star Wars
+
+Mon, 18 May 2026 17:30:14 GMT
+
+https://www.cbr.com/creepiest-star-wars-aliens-ever-list/
+
+Star Wars' alien species are some of the franchise's most intriguing elements, and a few inhabitants of the galaxy far, far away are truly terrifying.
+---------
+
+# Steven Spielberg's Adventures of Tintin is His Most Underrated Movie
+
+Movies, The Adventures of Tintin, steven spielberg, tintin
+
+Mon, 18 May 2026 17:30:14 GMT
+
+https://www.cbr.com/steven-spielberg-most-underrated-movie-adventures-of-tintin/
+
+Finally returning for a long-awaited sequel, Steven Spielberg and Peter Jackson's second adaptation of the Tintin comic books is in development.
+---------
+
+# Tom Kane, Legendary Star Wars and Powerpuff Girls Voice Actor, Dies at 64
+
+TV, Star Wars: Clone Wars, The Powerpuff Girls
+
+Mon, 18 May 2026 17:16:42 GMT
+
+https://www.cbr.com/tom-kane-dead-64-star-wars-clone-wars-powerpuff-girls/
+
+The voice of Yoda and Professor Utonium has died.
+---------
+
+# Jon Favreau & Dave Filoni Reveal What’s Next After The Mandalorian and Grogu
+
+Movies, The Mandalorian and Grogu
+
+Mon, 18 May 2026 17:16:30 GMT
+
+https://www.cbr.com/video/jon-favreau-dave-filoni-reveal-what-s-next-after-the-mandalorian-and-grogu/
+
+Jon Favreau and Dave Filoni discuss the future of The Mandalorian and Grogu, the evolving Star Wars galaxy, and whether more stories with Din Djarin could still happen. The longtime collaborators open up about Star Wars canon debates, animated characters crossing into live action, and why fan discussions are such a huge part of the franchise experience.Favreau and Filoni also break down how legendary effects artist Phil Tippett returned for an ambitious stop-motion sequence in The Mandalorian and Grogu, including the challenges of blending classic techniques with modern filmmaking. Plus, the duo teases how animation could continue expanding Star Wars storytelling in exciting new ways.
+---------
+
+# 8 Action Shows That Will Keep You Hooked From Start to Finish
+
+TV, Action, Reacher, The Boys, Banshee
+
+Mon, 18 May 2026 18:23:13 GMT
+
+https://collider.com/action-shows-hooked-start-to-finish/
+
+From the superhero series The Boys to the crime thriller Reacher, these action TV shows will keep you hooked to your screen from start to finish.
+---------
+
+# 'Yellowjackets' Star's New Coming-of-Age Heist Movie Sets World Premiere With First Image [Exclusive]
+
+Movie News, Yellowjackets, Kevin Alves, Action, Drama
+
+Mon, 18 May 2026 18:08:39 GMT
+
+https://collider.com/yellojackets-star-kevin-alves-lucky-weekend-first-image-raindance-world-premiere/
+
+The first image from Yellowjackets star Kevin Alves' new film Lucky Weekend assembles its heist crew before its world premiere at Raindance.
+---------
+
+# Official ‘The Mandalorian and Grogu’ Release Gives Fans a Preview Before the Movie [Exclusive]
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Pedro Pascal, Star Wars
+
+Mon, 18 May 2026 18:00:14 GMT
+
+https://collider.com/the-mandalorian-and-grogu-new-coloring-book-release-pages-first-look-images/
+
+Immerse yourself in the world of Din Djarin and Grogu with an exclusive look at the Art of Coloring: Star Wars: The Mandalorian and Grogu.
+---------
+
+# You Need to Binge This Near-Perfect Sitcom Before Season 2 Changes Everything
+
+TV Features, Adults, FX, Series, Tribeca Film Festival
+
+Mon, 18 May 2026 17:48:13 GMT
+
+https://collider.com/fx-adults-best-weekend-binge-before-season-2/
+
+FX’s Adults is one of the sharpest sitcoms in years. Here’s why now is the perfect time to binge it before Season 2.
+---------
+
+# Netflix's 2-Part Dystopian Sci-Fi Thriller Is a Perfect Weekend Binge
+
+Movie Features, Code 8, Netflix, Robbie Amell, Stephen Amell
+
+Mon, 18 May 2026 17:48:13 GMT
+
+https://collider.com/netflix-code-8-dystopian-sci-fi-thriller-weekend-binge/
+
+Love superhero movies, science fiction, or dystopian landscapes? The Code 8 series is the perfect binge-watch.
+---------
+
+# HBO's Harry Potter Hit With Shock Exit Before Series Premiere
+
+TV News, Harry Potter, HBO Max, J.K. Rowling
+
+Mon, 18 May 2026 17:16:37 GMT
+
+https://collider.com/harry-potter-series-recast-ginny-weasley-season-2-gracie-cochrane-exit/
+
+HBO's Harry Potter series is already recasting a key character as one of the core cast officially exits the series ahead of its debut.
+---------
+
+# 10 Suspenseful Movies That Will Thrill Pretty Much Anyone
+
+Movie, Suspense, Jaws, Rear Window, The Fugitive
+
+Mon, 18 May 2026 17:15:14 GMT
+
+https://collider.com/suspenseful-movies-that-will-thrill-anyone/
+
+From Jaws to Phone Booth, these suspenseful thrillers prove tension, paranoia, and nerve-shredding storytelling never go out of style.
+---------
+
+# 15 Best Miniseries of the 2020s (So Far)
+
+TV, TV Miniseries, Adolescence, Maid, The Penguin
+
+Mon, 18 May 2026 17:12:13 GMT
+
+https://collider.com/best-mini-series-of-the-2020s-so-far-ranked/
+
+Discover the top-rated miniseries of the 2020s, featuring critically acclaimed shows like Adolescence, WandaVision, and The Queen's Gambit.
+---------
+
+# John Travolta’s Abysmal New Movie Crashes Upon Cannes Take-Off | Review
+
+Movie Reviews, Propeller One-Way Night Coach, John Travolta, Cannes Film Festival
+
+Mon, 18 May 2026 16:45:32 GMT
+
+https://collider.com/propeller-one-way-night-coach-review-john-travolta-cannes-2026/
+
+John Travolta’s directorial debut, Propeller One-Way Night Coach, could be the worst film to ever screen at the Cannes Film Festival.
+---------
+
+# 'Man of Tomorrow' Star Lars Eidinger Says Brainiac Is "Almost Shakespearean"
+
+Movie News, Superman, Man of Tomorrow, DCU
+
+Mon, 18 May 2026 18:22:46 GMT
+
+https://movieweb.com/man-of-tomorrow-lars-eidinger-brainiac-shakespearean/
+
+The theater actor Lars Eidingerfound interesting parallels while on set of the highly anticipated James Gunn 'Superman' sequel.
+---------
+
+# HBO 'Harry Potter' Set To Recast Ginny Weasley as Gracie Cochrane Exits Series
+
+TV News, Harry Potter
+
+Mon, 18 May 2026 17:29:49 GMT
+
+https://movieweb.com/hbo-harry-potter-reboot-ginny-weasley-recast/
+
+One of the stars of the upcoming 'Harry Potter' has announced that she will not return as Ginny Weasley after filming the first season.
+---------
+
+# 'Star Wars' & 'Powerpuff Girls' Voice Actor Tom Kane Dies Aged 64
+
+Movie News, Tom Kane, Star Wars
+
+Mon, 18 May 2026 17:08:27 GMT
+
+https://movieweb.com/star-wars-tom-kane-dies-64/
+
+Legendary voice actor Tom Kane, known for his roles in 'Star Wars' and 'Powerpuff Girls,' passed away at the age of 64.
+---------
+
+# 'Stranger Things' Not Casting David Harbour Would Have Been a Mistake
+
+Features, Stranger Things, Netflix, David Harbour
+
+Mon, 18 May 2026 17:04:56 GMT
+
+https://movieweb.com/stranger-things-billy-crudup-david-harbor-casting/
+
+'Stranger Things,' the sci-fi series on Netflix, almost cast Billy Crudup instead of David Harbour in the role of Hawkins chief Jim Hopper.
+---------
+
 # Starbuck's Next Hello Kitty-Level Collaboration Is Officially Here, And It's Simply Too Adorable
 
 Anime, Hello Kitty, Miffy the Farmer
