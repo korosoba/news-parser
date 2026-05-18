@@ -1,3 +1,344 @@
+# PlayStation Officially Confirms The End Of An Era
+
+Gaming, Gaming Hardware, PlayStation
+
+Mon, 18 May 2026 21:36:13 GMT
+
+https://screenrant.com/playstation-exclusives-no-pc-release-end-era/
+
+Sony's gaming reputation was built on its first-party games, and a new policy for PlayStation Studios renews confidence in the quality of its titles.
+---------
+
+# After 3 Years, Netflix’s Crime Thriller Series From Hit Franchise Returns As No.1 Streaming Sensation
+
+TV, Masked Recs
+
+Mon, 18 May 2026 21:24:37 GMT
+
+https://screenrant.com/berlin-season-2-netflix-streaming-success-may-2026/
+
+One of Netflix's best crime thriller series comes from a major franchise at the streamer, and it has just returned to lead global charts after years.
+---------
+
+# Matthew Lillard Is Officially Returning For Scooby-Doo's Biggest Franchise Evolution In 57 Years
+
+Anime, Scooby-Doo
+
+Mon, 18 May 2026 21:24:10 GMT
+
+https://screenrant.com/yokoso-scooby-doo-new-series-matthew-lillard-return-anime/
+
+Matthew Lillard is officially back for the Scooby-Doo franchise's newest and most creative show ever, so here is everything you need to know.
+---------
+
+# 5 Netflix Shows To Watch This Week (#1 Is A New 8-Part Sci-Fi Produced By Stranger Things Creators)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 18 May 2026 21:18:20 GMT
+
+https://screenrant.com/netflix-shows-watch-week-may-18/
+
+Five of the top Netflix shows to watch this week, May 18–22, 2026, include new releases like The Boroughs and classic series like Wildfire.
+---------
+
+# Mephisto's Potential MCU Return Addressed By Sacha Baron Cohen
+
+TV, Mephisto, Sacha Baron Cohen, Marvel Cinematic Universe
+
+Mon, 18 May 2026 21:15:23 GMT
+
+https://screenrant.com/mephisto-mcu-return-after-ironheart-sacha-baron-cohen-response/
+
+Exclusive: Sacha Baron Cohen talk about Mephisto's potential MCU return after he debuted as the character in the Disney+ series Ironheart.
+---------
+
+# CIA Season 2: Release Date, Story, & Everything We Know
+
+Network TV, CIA
+
+Mon, 18 May 2026 21:00:20 GMT
+
+https://screenrant.com/cia-season-2-explained/
+
+CBS's CIA has already been renewed for a second season, and here's everything we know about the release date and story for the Dick Wolf show.
+---------
+
+# Furiosa Is One Of The Best Prequels Ever Made & It's Time To Start Being Honest About It
+
+Movies, Furiosa: A Mad Max Saga, Op-Ed
+
+Mon, 18 May 2026 21:00:20 GMT
+
+https://screenrant.com/furiosa-great-prequel-mad-max/
+
+Furiosa: A Mad Max Saga flopped at the box office, yet it's time we're honest and admit that it deserves to go down as an all-time great prequel film.
+---------
+
+# This Is When The Sopranos Proved It Could Make You Laugh At Anything
+
+Classic TV, The Sopranos
+
+Mon, 18 May 2026 21:00:20 GMT
+
+https://screenrant.com/the-sopranos-christopher-intervention-laugh-at-anything/
+
+With the hilarious scene in which Christopher's intervention devolves into chaos, The Sopranos proved it could make the darkest things funny.
+---------
+
+# Taika Waititi's Very Young Frankenstein Prequel Show Officially Moving Forward
+
+TV, Very Young Frankenstein, Taika Waititi
+
+Mon, 18 May 2026 20:59:23 GMT
+
+https://screenrant.com/taika-waititi-very-young-frankenstein-prequel-show-greenlit-fx-hulu/
+
+After directing Thor: Ragnarok and Jojo Rabbit, Taika Waititi is heading back to the small screen for a project that’s based on an iconic character.
+---------
+
+# Why Jared Leto’s Skeletor Is So Different From Original Masters Of The Universe Series Explained By Reboot Director
+
+Movies, Masters of the Universe, Jared Leto
+
+Mon, 18 May 2026 20:40:11 GMT
+
+https://screenrant.com/masters-of-the-universe-2026-jared-leto-skeletor-different-why-travis-knight/
+
+Jared Leto is stepping into the role of Skeletor in Masters of the Universe, and he’ll be creating a different interpretation of the character.
+---------
+
+# 20 Years Later, Star Wars: Shadows of the Empire Officially Returns With New Release
+
+Movies, Star Wars, Sci-Fi, Star Wars Legends
+
+Mon, 18 May 2026 21:42:12 GMT
+
+https://www.cbr.com/star-wars-shadows-of-the-empire-luke-skywalker-hot-toys/
+
+The beloved Star Wars story returns.
+---------
+
+# Primer is the Smartest Time-Travel Movie Ever Made
+
+Movies, Primer
+
+Mon, 18 May 2026 21:30:12 GMT
+
+https://www.cbr.com/primer-smartest-time-travel-movie-ever/
+
+Made with a budget of $7,000, this 2004 indie Sci-fi flick was a disaster on box office, but it was successful in achieving a subculture of its own.
+---------
+
+# Kelly Reilly Reveals the Deeper ‘Truthful’ Questions Behind the Dutton Ranch Story
+
+CBR Exclusives, Dutton Ranch, Yellowstone, Paramount Plus
+
+Mon, 18 May 2026 21:17:10 GMT
+
+https://www.cbr.com/dutton-ranch-kelly-reilly-reveals-biggest-questions/
+
+What did Kelly Reilly and co-star Cole Hauser want to know in Yellowstone's next spinoff?
+---------
+
+# 2026 Video Games That Can Beat GTA6 For GOTY
+
+Games, Grand Theft Auto, Video Games, Forza
+
+Mon, 18 May 2026 21:15:12 GMT
+
+https://www.cbr.com/2026-video-games-to-challenge-gta6-goty/
+
+Grand Theft Auto 6 is widely considered the frontrunner for 2026 Game of the Year, but there are a few challengers to Rockstar's new game.
+---------
+
+# 5 Movie Trilogies That Are More Rewatchable Than The Godfather
+
+Movies, The Godfather
+
+Mon, 18 May 2026 21:00:13 GMT
+
+https://www.cbr.com/best-movie-trilogies-more-rewatchable-than-the-godfather-list/
+
+While The Godfather films are cinematic powerhouses, there are other movie trilogies easier to watch on repeat.
+---------
+
+# Marvel Comics Reveals New Boss Before Next MCU Movie Releases
+
+Comics, Marvel Comics
+
+Mon, 18 May 2026 20:50:47 GMT
+
+https://www.cbr.com/marvel-comics-new-head-dan-buckley-brad-winderbaum/
+
+Longtime Marvel Comics President, Dan Buckley, is stepping down, and Brad Winderbaum will be taking over as the head of Marvel's Comics Division
+---------
+
+# Eric Kripke Says The Boys Season 5 Will Feature an 'Incredible Sacrifice'
+
+CBR Exclusives, The Boys
+
+Mon, 18 May 2026 20:47:09 GMT
+
+https://www.cbr.com/the-boys-season-5-eric-kripke-incredible-sacrifice/
+
+Fans can't wait to see what happens in The Boys' final stand.
+---------
+
+# Dutton Ranch Star Cole Hauser Opens Up About Beth and Rip’s Powerful Relationship
+
+CBR Exclusives, Dutton Ranch, Yellowstone, Paramount Plus
+
+Mon, 18 May 2026 20:33:43 GMT
+
+https://www.cbr.com/dutton-ranch-cole-hauser-beth-and-rip-relationship-explained/
+
+Forget wealth and guns. Love is the most powerful weapon on Dutton Ranch.
+---------
+
+# Kelsey Grammer's Disappointment Led to Hank's Cancellation
+
+TV, Sitcoms, Hank, kelsey grammer
+
+Mon, 18 May 2026 20:30:13 GMT
+
+https://www.cbr.com/kelsey-grammer-canceled-hank-sitcom/
+
+Kelsey Grammer is well-known for his comedic prowess and theatrical demeanor, but one sitcom forced him to quit the project prematurely.
+---------
+
+# All 20 'SNL' Season 51 Hosts, Ranked
+
+TV, Saturday Night Live, Bad Bunny, NBC, Comedy
+
+Mon, 18 May 2026 21:36:13 GMT
+
+https://collider.com/saturday-night-live-hosts-season-51-ranked/
+
+From beloved veterans like Will Ferrell to Grammy-winning artists like Sabrina Carpenter, we rank every guest host of Saturday Night Live Season 51.
+---------
+
+# ‘Tinker Tailor Soldier Spy’ Meets 'The Godfather' in Controversial 4-Hour Gangster Epic Captivating Global Audience
+
+Movie News, Dhurandhar: The Revenge, Thriller, Netflix, Crime
+
+Mon, 18 May 2026 21:35:13 GMT
+
+https://collider.com/4-hour-gangster-movie-dhurandhar-streaming-success-netflix-may-2026/
+
+Discover the gripping story of undercover agent Hamza Ali Mazari in Dhurandhar, a controversial yet captivating spy thriller taking over the world.
+---------
+
+# ‘Iron Lung’ Officially Sets Release Date Following Record-Breaking Box Office Run
+
+Movie News, Iron Lung, Science Fiction, Horror, YouTube
+
+Mon, 18 May 2026 21:31:13 GMT
+
+https://collider.com/markiplier-sci-fi-horror-movie-iron-lung-official-release-date-may-31-2026/
+
+Markiplier's indie sci-fi horror film Iron Lung officially gives fans another chance to catch the movie as it finally sets a digital release date.
+---------
+
+# This New-to-Hulu Survival Horror Movie Deserves Its 93% RT Score
+
+Movie Features, Send Help, Rachel McAdams, Dylan O'Brien, Horror
+
+Mon, 18 May 2026 21:31:13 GMT
+
+https://collider.com/send-help-hulu-sam-raimi-horror-movie-deserves-rotten-tomatoes-score/
+
+Sam Raimi's survival horror thriller Send Help, starring Rachel McAdams and Dylan O'Brien, is a must-watch on Hulu.
+---------
+
+# 50+ Years Later, Mel Brooks’ Cult Classic Monster Movie Is Officially Coming Back With a Twist
+
+TV News, Very Young Frankenstein, FX, Zach Galifianakis, Taika Waititi
+
+Mon, 18 May 2026 21:29:28 GMT
+
+https://collider.com/very-young-frankenstein-series-order-hulu-fx-cast-zach-galifianakis/
+
+After more than 50 years, FX has officially revived Mel Brooks’ cult classic monster movie Young Frankenstein with a major twist.
+---------
+
+# Alan Ritchson's $700M Action Thriller Officially Returns to Streaming Charts Ahead of a TV Spin-Off
+
+Movie News, Alan Ritchson, Fast X, The Fast and the Furious, Vin Diesel
+
+Mon, 18 May 2026 21:15:13 GMT
+
+https://collider.com/alan-ritchson-action-thriller-fast-x-streaming-success-vudu-may-2026/
+
+Fast X, the high-stakes action film with a star-studded cast, returns to streaming as fans eagerly await the franchise's TV spin-offs.
+---------
+
+# 10 Heaviest Thrillers of All Time, Ranked
+
+Movie, Se7en, Chinatown, Martyrs, Battle Royale
+
+Mon, 18 May 2026 21:08:14 GMT
+
+https://collider.com/heaviest-thrillers-all-time-ranked/
+
+The heaviest thrillers of all time include masterpieces like Se7en and Chinatown, alongside more obscure films like Punishment Park and Violent Cop.
+---------
+
+# HBO’s 3-Part Sci-Fi Masterpiece With Over 90M Views Gets First Season 3 Images
+
+TV News, The Last of Us, HBO, Sci-Fi, Kaitlyn Dever
+
+Mon, 18 May 2026 21:04:39 GMT
+
+https://collider.com/hbo-sci-fi-masterpiece-the-last-of-us-season-3-set-images-kaitlyn-dever-kyriana-kratter/
+
+HBO's three-part sci-fi series with only 90 million views during its first two seasons, The Last of Us, gets first Season 3 set images.
+---------
+
+# Sydney Sweeney's Riskiest Movie Yet Crushed by New Sci-Fi Masterpiece on Streaming
+
+Movie News, The Housemaid, Sydney Sweeney, Project Hail Mary, Sci-Fi
+
+Mon, 18 May 2026 21:00:13 GMT
+
+https://collider.com/sydney-sweeney-riskiest-movie-overtaken-by-new-sci-fi-masterpiece-project-hail-mary-digital-streaming-charts-may-2026/
+
+Project Hail Mary, starring Ryan Gosling, has dethroned Sydney Sweeney's The Housemaid on Digital, appearing in top charts across platforms.
+---------
+
+# 3 Binge-Worthy Netflix Shows to Watch This Week
+
+TV, Outlander, The WONDERfools, Everyone Is Doing Great, Netflix
+
+Mon, 18 May 2026 20:47:13 GMT
+
+https://collider.com/netflix-shows-binge-may-18/
+
+Everyone Is Doing Great, The WONDERfools, and Outlander make up our list of the best Netflix shows to watch the week of May 18, 2026.
+---------
+
+# 'Stranger Things' Creators Originally Wanted Billy Crudup to Play Chief Hopper
+
+TV News, Stranger Things, Billy Crudup, David Harbour
+
+Mon, 18 May 2026 21:24:05 GMT
+
+https://movieweb.com/stranger-things-hopper-original-billy-crudup/
+
+The actor reportedly wasn't interested in a role on TV at the time.
+---------
+
+# 'The Housemaid' Director Set for New 'Fatal Attraction'-Style Thriller With a Twist
+
+Movie News, The Housemaid, Paul Feig, Fatal Attraction
+
+Mon, 18 May 2026 20:14:32 GMT
+
+https://movieweb.com/paul-feig-persona-thriller/
+
+'90s erotic thriller energy is back as 'The Housemaid' director sets a new thriller adaptation based on a novella from Marc Guggenheim.
+---------
+
 # The Real Reason Speed Racer Was A $93M Bomb Addressed By Star Ahead Of New Release
 
 Movies, Speed Racer, Emile Hirsch
