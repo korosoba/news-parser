@@ -1,3 +1,366 @@
+# The Real Reason Speed Racer Was A $93M Bomb Addressed By Star Ahead Of New Release
+
+Movies, Speed Racer, Emile Hirsch
+
+Mon, 18 May 2026 20:00:19 GMT
+
+https://screenrant.com/speed-racer-movie-bomb-real-reason-emile-hirsch/
+
+Exclusive: Emile Hirsch reflects on Speed Racer's infamous $93 million box office bombing and his thoughts on the real reason it flopped.
+---------
+
+# FBI Season 9: Release Date, Story, & Everything We Know
+
+Network TV, FBI
+
+Mon, 18 May 2026 20:00:19 GMT
+
+https://screenrant.com/fbi-season-9-explained/
+
+CBS guaranteed that FBI will return for a ninth season early on, and there's already information available about what to expect from what's next.
+---------
+
+# Netflix Stranger Things' 2026 Return With New Episodes Marks The End Of An Era For Steve Harrington
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Mon, 18 May 2026 19:55:19 GMT
+
+https://screenrant.com/netflix-stranger-things-tales-from-85-steve-not-important/
+
+Stranger Things has returned with new episodes, as the Netflix franchise brings back several fan-favorite characters and starts a new era for Steve.
+---------
+
+# Tom Kane, Iconic Star Wars & Powerpuff Girls Actor, Dies At 64
+
+TV, Tom Kane
+
+Mon, 18 May 2026 19:54:10 GMT
+
+https://screenrant.com/tom-kane-death-obituary/
+
+Tom Kane – an actor known for his roles in the Star Wars franchise, The Powerpuff Girls, and much more – has passed away at the age of 64.
+---------
+
+# New D&D Subclass Officially Brings Back Game-Breaking Spell
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Mon, 18 May 2026 19:50:05 GMT
+
+https://screenrant.com/dungeons-dragons-new-subclass-hollow-warden-ranger-dnd/
+
+A game-breaking crowd control spell is making a free comeback with the imminent arrival of a brand-new subclass in Dungeons and Dragons.
+---------
+
+# Marvel Officially Unveils New X-Men And Fantastic Four Team-Up
+
+Gaming, MARVEL Cosmic Invasion, Marvel, Triple-A Games
+
+Mon, 18 May 2026 19:35:31 GMT
+
+https://screenrant.com/marvel-cosmic-invasion-cyclops-the-thing-dlc/
+
+Two of Marvel's best affiliations, the X-Men and the Fantastic Four, are joining forces once again for a momentous occasion that nobody saw coming.
+---------
+
+# New Masters Of The Universe Reboot Borrowed 1 Key Trick From $6.7B Sci-Fi Franchise
+
+Movies, Masters of the Universe
+
+Mon, 18 May 2026 19:34:33 GMT
+
+https://screenrant.com/masters-of-the-universe-2026-avatar-franchise-eternia-language-creation/
+
+EXCLUSIVE: The reboot movie for Masters of the Universe borrowed one key trick from a $6.7 billion sci-fi franchise, says producer Jason Blumenthal.
+---------
+
+# Netflix's 4-Part 'Stranger Things Meets The Boys' Is One Of Its Best Fantasy Shows
+
+Streaming TV, Masked Recs
+
+Mon, 18 May 2026 19:30:21 GMT
+
+https://screenrant.com/umbrella-academy-netflix-fantasy-stranger-things-meets-the-boys/
+
+Among Netflix's best fantasy shows to date is one that brings together the best elements of Stranger Things and The Boys, with some fun sci-fi twists.
+---------
+
+# Mortal Kombat II Is Just Days Away From Obliterating A 31-Year Franchise Record
+
+New Movies, Mortal Kombat II, Mortal Kombat
+
+Mon, 18 May 2026 19:20:21 GMT
+
+https://screenrant.com/mortal-kombat-2-highest-grossing-movie-franchise-record-soon/
+
+Mortal Kombat II has been a record-breaking hit, and it's going to obliterate another franchise record that's stood for 31 years in a matter of days.
+---------
+
+# DC Officially Unveils New Lobo Redesign Ahead of His Next Appearance
+
+Comics, Lobo
+
+Mon, 18 May 2026 19:04:18 GMT
+
+https://screenrant.com/dc-official-lobo-child-design/
+
+DC officially unveils new Lobo redesign ahead of his next appearance, teasing a bold new era for the Main Man that fans won't want to miss.
+---------
+
+# KPop Demon Hunters Creator Reveals “Dark, Adult” Version of Hit Netflix Movie
+
+Movies, KPop Demon Hunters, Netflix, Fantasy
+
+Mon, 18 May 2026 20:01:18 GMT
+
+https://www.cbr.com/kpop-demon-hunters-dark-adult-violent-version-netflix/
+
+The filmmakers behind Kpop Demon Hunters reveal the movie's “dark, adult and very violent" origin.
+---------
+
+# After 50 Years, Marvel Reveals What’s Next for What If…?
+
+Comics, What If...?, Marvel
+
+Mon, 18 May 2026 20:00:13 GMT
+
+https://www.cbr.com/marvel-what-if-50-anniversary-release-dates/
+
+Marvel Comics is giving What If...? fans the best possible way to celebrate the hit series' fiftieth anniversary, and it looks absolutely stunning.
+---------
+
+# Kathryn Newton’s MCU Return Makes an Avengers: Endgame Change Necessary
+
+Movies, Avengers: Endgame, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 18 May 2026 20:00:13 GMT
+
+https://www.cbr.com/avengers-endgame-re-release-kathryn-newton-return/
+
+Kathryn Newton has confirmed her return as Cassie Lang in Avengers: Doomsday, but we might see her in the MCU before then.
+---------
+
+# Crunchyroll Unveils New Trigun Apparel Collection Worthy of the '$60 Billion Man'
+
+Anime
+
+Mon, 18 May 2026 20:00:13 GMT
+
+https://www.cbr.com/crunchyroll-trigun-steady-hands-collection/
+
+Vash the Stampede lives once again thanks to the release of Crunchyroll's latest official collaboration.
+---------
+
+# LEGO Batman: Legacy of the Dark Knight Review
+
+Games, Batman
+
+Mon, 18 May 2026 19:45:12 GMT
+
+https://www.cbr.com/lego-batman-legacy-of-the-dark-knight-review-batman-arkham-replacement/
+
+LEGO Batman: Legacy of the Dark Knight combines the charm of LEGO games mixed with the Arkham style gameplay that Batman fans need to check out.
+---------
+
+# Star Wars & LEGO Bring The Mandalorian's Razor Crest to Life in New Release
+
+Games, Star Wars
+
+Mon, 18 May 2026 19:15:13 GMT
+
+https://www.cbr.com/star-wars-lego-official-mandalorian-razor-crest-new-release/
+
+LEGO released an unbelievable recreation of the Razor Crest just in time for The Mandalorian and Grogu
+---------
+
+# Will Smith’s Action-Packed $817M Sci-Fi Is Losing Its Streaming Home in Just 2 Weeks
+
+Movies, Independence Day, Netflix
+
+Mon, 18 May 2026 19:00:13 GMT
+
+https://www.cbr.com/will-smith-independence-day-leaving-netflix-june-1-2026/
+
+There isn't much time left for Netflix subscribers to watch one of Will Smith's biggest movies before it leaves the streaming service.
+---------
+
+# 10 Fantasy Movie Heroes Even More Likable Than Harry Potter, Ranked
+
+Movies, Harry Potter
+
+Mon, 18 May 2026 19:00:13 GMT
+
+https://www.cbr.com/fantasy-movie-heroes-better-than-harry-potter-list/
+
+Harry Potter may be one of the most well known fantasy heroes, there are some characters who are even easier to love in their movies.
+---------
+
+# DC Comics Confirms A Brand New Batman Event With A Poison Ivy Twist
+
+Comics, DCU, DC Comics, Batman, Batman (1989), The Batman, The Batman Part II, Poison Ivy
+
+Mon, 18 May 2026 18:55:47 GMT
+
+https://www.cbr.com/dc-comics-confirms-brand-new-batman-event-with-poison-ivy/
+
+Batman has never faced this version of Poison Ivy before.
+---------
+
+# Jamie Dutton's Complex Arc in Yellowstone, Explained
+
+TV, Yellowstone
+
+Mon, 18 May 2026 18:30:05 GMT
+
+https://www.cbr.com/yellowstone-final-season-confirmed-jamie-dutton-failure/
+
+Yellowstone has many morally gray characters throughout its run, but one character's decisions may have stemmed from years of abuse.
+---------
+
+# Jason Statham’s New Action Movie Finally Scores First Victory Since Release
+
+Movie News, Jason Statham, Shelter, Ric Roman Waugh, Blu-ray
+
+Mon, 18 May 2026 20:00:13 GMT
+
+https://collider.com/jason-statham-shelter-digital-blu-ray-sales-success-may-2026/
+
+After struggling at the box office, Jason Statham's action thriller 'Shelter' finds success on digital platforms, becoming the most purchased movie.
+---------
+
+# Taylor Sheridan’s Paramount+ Crime Thriller Hit Adds Fresh Blood Before Season 4
+
+TV News, Tulsa King, Taylor Sheridan, Sylvester Stallone, Marvel
+
+Mon, 18 May 2026 19:53:47 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-cast-season-4-eden-lee/
+
+Ahead of Season 4, Taylor Sheridan’s biggest crime saga officially adds a Marvel star opposite Sylvester Stallone. See who’s joining Tulsa King.
+---------
+
+# Alan Ritchson and Henry Cavill's WWII Classic Just Found a New Streaming Home
+
+Movie News, Alan Ritchson, World War II, Henry Cavill, The Ministry of Ungentlemanly Warfare
+
+Mon, 18 May 2026 19:47:16 GMT
+
+https://collider.com/alan-ritchson-henry-cavill-ww2-movie-the-ministry-of-ungentlemanly-warfare-streaming-peacock-may-2026/
+
+Alan Ritchson and Henry Cavill’s epic World War 2 movie, The Ministry of Ungentelmanly Warfare, is officially available on a new streamer.
+---------
+
+# All 5 Super Smash Bros. Games, Ranked
+
+Movie, Video Game, Super Smash Bros. Ultimate, Nintendo, Super Smash Bros.
+
+Mon, 18 May 2026 19:41:13 GMT
+
+https://collider.com/super-smash-bros-games-nintendo-ranked/
+
+Super Smash Bros. is among Nintendo's most enduring and acclaimed series, but which of the five games released thus far conquers the others in battle?
+---------
+
+# Scarlett Johansson and Adam Driver's Cannes Crime Thriller Plays It Too Safe | Review
+
+Movie Reviews, Paper Tiger, Scarlett Johansson, Miles Teller, Adam Driver
+
+Mon, 18 May 2026 19:39:10 GMT
+
+https://collider.com/paper-tiger-review-adam-driver-scarlett-johansson-miles-teller-cannes-2026/
+
+James Gray’s crime thriller Paper Tiger, starring Scarlett Johansson, Adam Driver, and Miles Teller, fails to make much of an impression.
+---------
+
+# 3 Near-Perfect Netflix Movies That Are Worth Your Time This Week
+
+Movie, Netflix, The Lost City, Black Phone 2, GOAT
+
+Mon, 18 May 2026 19:20:14 GMT
+
+https://collider.com/best-netflix-movies-watch-week-may-18/
+
+Black Phone 2, GOAT, and The Lost City make up our list of the best Netflix movies to watch the week of May 18, 2026.
+---------
+
+# James Bond Officially Kicks Off Its Next Chapter With New Release in 9 Days
+
+Movie News, James Bond, Daniel Craig, Pierce Brosnan, No Time to Die
+
+Mon, 18 May 2026 19:12:24 GMT
+
+https://collider.com/james-bond-game-007-first-light-release-date-may-27-2026/
+
+A new era of James Bond officially begins in just 9 days with a hotly anticipated new release. Here’s what you need to know about 007 First Light.
+---------
+
+# Anne Hathaway’s 22-Year-Old Fantasy Movie Is Getting a Disney+ Series
+
+TV News, Ella Enchanted, Anne Hathaway, Disney+, Fantasy
+
+Mon, 18 May 2026 18:28:21 GMT
+
+https://collider.com/disney-remake-ella-enchanted-series-anne-hathaway-returning/
+
+Disney officially confirms reimagining of Anne Hathaway’s beloved cult classic fantasy movie Ella Enchanted, with a major twist. Here’s what we know.
+---------
+
+# ‘Dutton Ranch’ Reaches #1 on Streaming Following Series Premiere on Paramount+
+
+TV News, Dutton Ranch, Hot on Streaming, Taylor Sheridan, Yellowstone
+
+Mon, 18 May 2026 20:00:18 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-streaming-success-may-2026/
+
+Following a two-episode premiere on May 15, 'Dutton Ranch' is proving to be another massive hit for Taylor Sheridan and company.
+---------
+
+# 'Ella Enchanted Confirmed for Disney+ Reboot With Anne Hathaway as Producer
+
+TV News, Ella Enchanted, Disney+, Anne Hathaway
+
+Mon, 18 May 2026 19:34:57 GMT
+
+https://movieweb.com/ella-enchanted-disney-plus-reboot-anne-hathaway/
+
+Disney is rebooting Anne Hathaway's 'Ella Enchanted' as a Disney+ series, with Hathaway involved as an executive producer.
+---------
+
+# 'The Transformers: The Movie' Returns to Theaters for 40th Anniversary
+
+Movie News, The Transformers: The Movie, Transformers
+
+Mon, 18 May 2026 19:07:57 GMT
+
+https://movieweb.com/transformers-the-movie-anniversary-theatrical-release/
+
+Hasbro and Fathom Entertainment will re-release the cult classic for one week from September 14 to the 21st.
+---------
+
+# When 'Tom Clancy's Jack Ryan: Ghost War' Releases on Amazon Prime
+
+Features, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan
+
+Mon, 18 May 2026 19:00:18 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-release-date-prime/
+
+'Tom Clancy's Jack Ryan: Ghost War' continues the story of Amazon Prime Video's action thriller series 'Jack Ryan' starring John Krasinski.
+---------
+
+# Jason Statham 'John Wick' Meets 'Taken' Action Thriller 'A Working Man' Dominates Streaming
+
+Movie News, Jason Statham, A Working Man, Action, Thriller, Prime Video, HBO Max
+
+Mon, 18 May 2026 19:00:18 GMT
+
+https://movieweb.com/jason-statham-a-working-man-stream-may-2026/
+
+Reuniting Statham with 'The Beekeeper's David Ayer, 'A Working Man' is now climbing the charts on various popular streaming platforms.
+---------
+
 # 3 Years Later, Prime Video's Jack Ryan Officially Returns This Week (But There's A Twist)
 
 Movies, Masked Recs
