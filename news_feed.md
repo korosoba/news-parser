@@ -1,3 +1,124 @@
+# Anime Finally Has Its Official Gojo Replacement, And They're His Perfect Opposite
+
+Anime, Witch Hat Atelier, Jujutsu Kaisen
+
+Mon, 18 May 2026 23:30:20 GMT
+
+https://screenrant.com/witch-hat-atelier-qifrey-gojo-replacement-jujutsu-kaisen/
+
+Anime's new Gojo is here.
+---------
+
+# Scarlett Johansson & Adam Driver's Crime Movie Debuts With Solid Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Mon, 18 May 2026 23:27:44 GMT
+
+https://screenrant.com/paper-tiger-movie-rotten-tomatoes-score-debut/
+
+Scarlett Johansson, Adam Driver, and Miles Teller's new crime movie debuts with a solid Rotten Tomatoes score following its premiere on May 16.
+---------
+
+# God Of War’s New Lead Character Has Gamers Torn
+
+Gaming, God of War, Triple-A Games
+
+Mon, 18 May 2026 23:19:42 GMT
+
+https://screenrant.com/god-of-war-faye-leak-gamers-react/
+
+God of War's new game is rumored to have a protagonist that nobody suspected, and its announcement may be here a lot sooner than we think.
+---------
+
+# Friday 4 Filming Update: Chris Tucker's Return & Movie Details Revealed
+
+Movies, Friday, Ice Cube, Chris Tucker, Mike Epps, Last Friday
+
+Mon, 18 May 2026 23:13:16 GMT
+
+https://screenrant.com/last-friday-filming-start-window-chris-tucker-return/
+
+Mike Epps and Ice Cube confirm that Last Friday is in production, with Chris Tucker potentially reprising his role as Smokey. The film will focus on gentrification in South Central Los Angeles.
+---------
+
+# Now Is The Perfect Time To Watch Natalie Portman's R-Rated DC Movie
+
+Superheroes, Masked Recs
+
+Mon, 18 May 2026 23:06:13 GMT
+
+https://screenrant.com/v-for-vendetta-dc-movie-paramount-plus-must-watch/
+
+After a recent reboot announcement, now is the perfect time to watch Natalie Portman's R-rated DC movie, which has become a global smash hit.
+---------
+
+# Star Wars Jedi Gamers Unite Over Sith Spinoff Game
+
+Gaming, Star Wars Jedi: Survivor, Triple-A Games, Star Wars
+
+Mon, 18 May 2026 23:00:21 GMT
+
+https://screenrant.com/star-wars-jedi-sith-spinoff-game-hopes/
+
+With news about a sequel to Star Wars: Jedi Survivor circulating once again, fans are rallying behind the idea of a darker game in the iconic series.
+---------
+
+# Star Trek Switched Genres In 2026, And Must Do It Again In 2027
+
+Streaming TV, Star Trek
+
+Mon, 18 May 2026 23:00:21 GMT
+
+https://screenrant.com/star-trek-switched-genres-starfleet-academy/
+
+2026 saw a stark change in genres for the long-running Star Trek franchise, but the same thing now needs to happen again when 2027 arrives.
+---------
+
+# The Rookie Season 8 Finale Shatters A Series Record
+
+TV, The Rookie
+
+Mon, 18 May 2026 22:53:45 GMT
+
+https://screenrant.com/the-rookie-season-8-finale-record-viewership/
+
+Ahead of the renewed season 9, ABC's hit procedural series The Rookie shattered a series record with the release of its season 8 finale.
+---------
+
+# Apple's New 97% RT Horror Series Quickly Confirms TV's Next Great Stephen King Replacement
+
+TV, Widow's Bay, Apple TV, Stephen King
+
+Mon, 18 May 2026 23:00:14 GMT
+
+https://www.cbr.com/apple-horror-widows-bay-new-stephen-king-replacement/
+
+There's something in the fog in Apple's critically-acclaimed comedy horror series, proving it's the best replacement for any Stephen King adaptation.
+---------
+
+# 5 Sequels To Beloved Movies That Turned Out To Be Just Okay
+
+Movies, The Devil Wears Prada 2, Jumanji, Frozen II
+
+Mon, 18 May 2026 23:00:14 GMT
+
+https://www.cbr.com/sequels-not-as-good-as-originals-list/
+
+Forget a good or bad sequel, these five sequels from popular movie franchises are merely mediocre.
+---------
+
+# Superman’s Next TV Return Will Come With a Cost
+
+TV News, My Adventures With Superman, Superman, Jack Quaid, DCU
+
+Mon, 18 May 2026 23:15:13 GMT
+
+https://collider.com/superman-powers-reduced-my-adventures-with-superman-season-3/
+
+Superman is ditching his upgraded suit before My Adventures With Superman Season 3, meaning Clark is going back to basics.
+---------
+
 # 5 Prime Video Shows To Watch This Week (#1 Drops Its Can't-Miss Finale In Less Than 2 Days)
 
 Streaming TV, Prime Video, What to Watch on Prime Video
