@@ -1,3 +1,443 @@
+# Starbuck's Next Hello Kitty-Level Collaboration Is Officially Here, And It's Simply Too Adorable
+
+Anime, Hello Kitty, Miffy the Farmer
+
+Mon, 18 May 2026 16:38:29 GMT
+
+https://screenrant.com/starbucks-miffy-collaboration-hello-kitty/
+
+Starbucks' latest collectible pop culture collaboration is the brand's most adorable merch drop since 2025's successful Hello Kitty release.
+---------
+
+# LEGO Batman: Legacy Of The Dark Knight - All Playable Characters, Ranked
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, LEGO Batman
+
+Mon, 18 May 2026 16:35:30 GMT
+
+https://screenrant.com/lego-batman-legacy-dark-knight-all-playable-characters-ranked/
+
+Each of the playable characters in LEGO Batman: Legacy of the Dark Knight comes with unique skills, costumes, and vehicles, but which is the best?
+---------
+
+# Far Cry 7 Release Date Finally Narrowed Down In New Leak
+
+Gaming, Far Cry, Triple-A Games
+
+Mon, 18 May 2026 16:34:42 GMT
+
+https://screenrant.com/far-cry-7-leaked-release-date-2027/
+
+It has been an abnormally long wait for a new Far Cry game, but a new leak suggests Ubisoft is hoping to release Far Cry 7 relatively soon.
+---------
+
+# Speed Racer 2's Potential Revival Gets Hopeful Update From Original Star After Scrapped Script
+
+Movies, Speed Racer, Emile Hirsch
+
+Mon, 18 May 2026 16:32:28 GMT
+
+https://screenrant.com/speed-racer-2-revival-scrapped-script-update-emile-hirsch/
+
+Exclusive: Emile Hirsch offers a hopeful update on Speed Racer 2's potential revival while confirming a script was scrapped for the sequel.
+---------
+
+# 3 Years Later, Netflix's 5-Season Crime Thriller Is Still One Of Its Best-Ever Shows
+
+Classic TV, Masked Recs
+
+Mon, 18 May 2026 16:30:19 GMT
+
+https://screenrant.com/netflix-top-boy-best-shows-crime-thriller/
+
+This gritty British crime drama follows two drug dealers as they navigate the treacherous streets of London, vying for control in a high-stakes game.
+---------
+
+# DC Officially Retcons John Stewart's Green Lantern Origin Story
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 18 May 2026 16:30:06 GMT
+
+https://screenrant.com/lanterns-john-stewart-origin-story-different-comics/
+
+HBO's Green Lanterns series has released an exciting new trailer, and it confirms a major origin change for John Stewart in James Gunn's DC Universe.
+---------
+
+# HBO's Green Lantern Show Reveals Why Hal And John Don't Use Their Powers A Lot
+
+Streaming TV, Lanterns
+
+Mon, 18 May 2026 16:17:23 GMT
+
+https://screenrant.com/lanterns-trailer-hal-john-powers-when-use-ring-explanation/
+
+Lanterns has finally revealed key details about how powers work in the DCU series, and what to expect in one of the most hotly anticipated HBO shows.
+---------
+
+# Spider-Man's Hit TV Show Is So Good, It's Already Renewed For 2 More Seasons
+
+Superheroes, Spider-Man, Spidey and His Amazing Friends, Marvel Cinematic Universe, Quiz CV
+
+Mon, 18 May 2026 16:15:18 GMT
+
+https://screenrant.com/disney-plus-spider-man-tv-show-renewed-more-seasons/
+
+Spider-Man's TV show is a massive streaming hit, and it is so good that Peter Parker and other heroes will already return for two more seasons.
+---------
+
+# PlayStation Plus Price Increases Officially Confirmed
+
+Gaming, PlayStation Plus, Triple-A Games
+
+Mon, 18 May 2026 16:12:45 GMT
+
+https://screenrant.com/playstation-plus-price-increase-may-2026/
+
+Fans have been afraid of price hikes for PlayStation Plus for ages, and now Sony has officially confirmed that it will be raising its prices soon.
+---------
+
+# Superman Has Officially Lost His Title Of DC’s Most Powerful Hero 88 Years Later
+
+DC Comics, Superman
+
+Mon, 18 May 2026 16:12:24 GMT
+
+https://screenrant.com/superman-replaced-dc-most-powerful-hero/
+
+After 88 years as DC’s most powerful hero, Superman has been unseated by a brand-new hero whose diverse ability set may surpass anything seen before.
+---------
+
+# Cartoon Network's 10-Part Hit Series Officially Returns With New Episodes Next Month
+
+TV, Adventure Time: Side Quests, Disney+, Hulu
+
+Mon, 18 May 2026 16:22:35 GMT
+
+https://www.cbr.com/adventure-time-side-quests-release-date-hulu-disney-plus/
+
+The beloved animated series finally returns to Cartoon Network next month.
+---------
+
+# 10 Shonen Protagonists Who Are Actually Well-Written
+
+Anime, One Piece, Chainsaw Man, Fullmetal Alchemist
+
+Mon, 18 May 2026 16:15:12 GMT
+
+https://www.cbr.com/best-written-shonen-protagonists-of-all-time/
+
+Shonen anime isn't known for well-written main characters, yet these heroes prove the stereotypes wrong.
+---------
+
+# Dave Filoni Shares the Most Important Rule of Star Wars Canon
+
+Movies, The Mandalorian and Grogu
+
+Mon, 18 May 2026 16:11:13 GMT
+
+https://www.cbr.com/dave-filoni-star-wars-canon-most-important-thing/
+
+As The Mandalorian and Grogu prepare to return to the big screen, Dave Filoni shares his thoughts on the evolving Star Wars canon
+---------
+
+# Pokémon Officially Lets Fans Dress Like Farfetch'd With Cozy New Jacket
+
+Games, Pokemon
+
+Mon, 18 May 2026 16:06:12 GMT
+
+https://www.cbr.com/pokemon-official-release-farfetchd-jacket-available-now/
+
+A new official Pokémon jacket is going up for sale soon that will let players dress like Farfetch'd, a giant leek in a quiver, and all.
+---------
+
+# Smallville's Creators Had 1 Major Regret About the Series (& They Were Right)
+
+TV, Smallville, The CW, superheroes
+
+Mon, 18 May 2026 16:00:13 GMT
+
+https://www.cbr.com/smallville-creators-regret-lana-clark-relationship/
+
+Smallville creators reflected on the series 20 years later, and they have one major regret about the show.
+---------
+
+# It’s Officially the End of an Era for Studio Ghibli
+
+Anime, Studio Ghibli
+
+Mon, 18 May 2026 16:00:13 GMT
+
+https://www.cbr.com/studio-ghibli-kenichi-yoda-new-president/
+
+Studio Ghibli's President is stepping down -- a move which leaves many question regarding the future of Hayao Miyazaki's iconic production house.
+---------
+
+# The Star Wars Movie and TV Show Timeline
+
+Movies, Star Wars, Star Wars: Episode VI - Return of the Jedi, Star Wars: Episode V - The Empire Strikes Back
+
+Mon, 18 May 2026 16:00:13 GMT
+
+https://www.cbr.com/star-wars-movies-tv-shows-chronological-order/
+
+Between films, animated series and live-action shows, The Star Wars movie and TV timeline is intimidating, but it doesn't have to be.
+---------
+
+# Netflix’s Mystery Stranger Things Spinoff Gets Cautious Update From Creators
+
+TV, Stranger Things
+
+Mon, 18 May 2026 15:51:44 GMT
+
+https://www.cbr.com/netflix-stranger-things-spinoff-update-duffer-brothers/
+
+Netflix is keeping everything under wraps when it comes to the new Stranger Things spinoff.
+---------
+
+# HBO's Lanterns Trailer Officially Confirms Ozark Star, Hal Jordan's Green Lantern Suit & More
+
+TV, Lanterns, DCU
+
+Mon, 18 May 2026 15:44:46 GMT
+
+https://www.cbr.com/hbo-lanterns-new-trailer-laura-linney-cast/
+
+DC Studios and HBO drop a new trailer for Lanterns, which reveals a new addition to the DC Universe show's cast.
+---------
+
+# Lanterns Official Teaser 2 HBO Max
+
+TV, Lanterns
+
+Mon, 18 May 2026 15:38:10 GMT
+
+https://www.cbr.com/video/dc-universe-lanterns-official-teaser-2/
+
+HBO Max unveiled the second official teaser for DC Universe's Lanterns.
+---------
+
+# Brendan Fraser's New Must-Watch WWII Movie Officially Releases in 3 Weeks
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, Saving Private Ryan
+
+Mon, 18 May 2026 16:17:52 GMT
+
+https://collider.com/new-ww2-movie-brendan-fraser-pressure-release-date-may-29-2026/
+
+Brendan Fraser’s new World War 2 movie, Pressure, officially arrives in just 3 weeks. Here’s why it should be at the top of your watchlist.
+---------
+
+# 'John Wick' Icon's Relentless 102-Minute Action Thriller Hits Free Streaming
+
+Movie News, John Wick, Scott Adkins, One Shot, One More Shot
+
+Mon, 18 May 2026 16:15:38 GMT
+
+https://collider.com/john-wick-star-scott-adkins-action-thriller-one-more-shot-streaming-free-tubi-june-2026/
+
+John Wick icon Scott Adkins has another relentless action movie coming to free streaming next month that you don’t want to miss.
+---------
+
+# 8 Biggest Soft Sci-Fi Masterpieces of All Time
+
+Movie, Science Fiction, Arrival, Metropolis, Melancholia
+
+Mon, 18 May 2026 16:12:14 GMT
+
+https://collider.com/biggest-soft-sci-fi-masterpieces-all-time/
+
+Soft sci-fi is one of the most influential subgenres in cinematic history, and movies like Arrival and Metropolis rank among its biggest masterpieces.
+---------
+
+# Legendary Star Wars Voice Actor Tom Kane Dead at 64
+
+TV News, Star Wars: The Clone Wars, The Powerpuff Girls, The Wild Thornberrys, Foster's Home for Imaginary Friends
+
+Mon, 18 May 2026 15:56:17 GMT
+
+https://collider.com/tom-kane-dead-at-64-star-wars-clone-wars-yoda-voice-actor/
+
+Tom Kane, known best for voicing Yoda in the Star Wars franchise, has died at age 64.
+---------
+
+# Jason Statham’s New Guy Ritchie Action Thriller Just Hit an Epic Milestone
+
+Movie News, Layer Cake, Guy Ritchie, Jason Statham, Crime
+
+Mon, 18 May 2026 15:54:16 GMT
+
+https://collider.com/jason-statham-new-action-thriller-viva-la-madness-guy-ritchie-movie-update-filming-wrapped/
+
+Jason Statham and Guy Ritchie’s new movie, Viva La Madness, gets an official update and takes a major step toward the big screen.
+---------
+
+# The Lord of the Rings Officially Returns With New 2026 Release
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, Fantasy
+
+Mon, 18 May 2026 15:53:26 GMT
+
+https://collider.com/prime-video-fantasy-series-lord-of-the-rings-rings-of-power-season-3-release-date-november-11-2026/
+
+Prime Video has finally set an official return date for the greatest fantasy franchise ever made as The Rings of Power finally sets Season 3.
+---------
+
+# Kristen Stewart and Woody Harrelson's Absurd Comedy Is an Exhausting, Pretentious Nightmare
+
+Movie Reviews, Full Phil, Kristen Stewart, Woody Harrelson, Cannes Film Festival
+
+Mon, 18 May 2026 15:43:14 GMT
+
+https://collider.com/full-phil-movie-review-kristen-stewart-woody-harrelson-cannes-2026/
+
+Quentin Dupieux's Full Phil is a tedious, pretentious comedy starring Woody Harrelson and Kristen Stewart that you should completely avoid.
+---------
+
+# Prime Video Officially Brings Jack Ryan Back This Week With New Release
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Prime Video, Tom Clancy's Jack Ryan, Reacher
+
+Mon, 18 May 2026 15:42:32 GMT
+
+https://collider.com/prime-video-tom-clancys-jack-ryan-ghost-war-movie-release-date-may-20-2026/
+
+Tom Clancy’s Jack Ryan officially returns to Prime Video this week with a new release. Here’s what we know about Ghost War.
+---------
+
+# New ‘Lanterns’ Trailer Confirms ‘True Detective’ Meets ‘Watchmen’ Vibes Ahead of Summer Release
+
+TV News, Lanterns, Kyle Chandler, Aaron Pierre, DC Comics
+
+Mon, 18 May 2026 15:15:24 GMT
+
+https://collider.com/lanterns-trailer-hbo-max-dcu-green-lantern-show/
+
+The DCU’s new True Detective meets Watchmen superhero series, Lanterns, is officially a must-watch after bonkers new trailer.
+---------
+
+# Lee Cronin’s ‘The Mummy’ Sets Home Release Date With Terrifying New Look [Exclusive]
+
+Exclusives, Lee Cronin, Lee Cronin's The Mummy, Universal, Jack Reynor
+
+Mon, 18 May 2026 15:00:14 GMT
+
+https://collider.com/lee-cronins-the-mummy-digital-release-date-sneak-peek-jack-reynor-laia-costa/
+
+A new sneak peek at Lee Cronin's The Mummy provides a stomach-churning look at Natalie Grace's possessed Katie running amok.
+---------
+
+# 'In the Grey's Opening Weekend Box Office Further Proves Henry Cavill Isn't a Very Bankable Movie Star
+
+Features, Henry Cavill, In the Grey
+
+Mon, 18 May 2026 16:35:20 GMT
+
+https://movieweb.com/in-the-grey-henry-cavill-not-bankable/
+
+Henry Cavill occupies a unique place in the entertainment industry. Casting him doesn't guarantee a project's success, but it has other advantages.
+---------
+
+# Natalie Portman & Jonathan Bailey Thriller 'Pumping Black' Lands at Amazon in $20M+ Cannes Deal
+
+Movie News, Jonathan Bailey, Natalie Portman, Pumping Black
+
+Mon, 18 May 2026 16:33:14 GMT
+
+https://movieweb.com/jonathan-bailey-natalie-portman-pumping-black-amazon/
+
+Amazon/MGM has acquired 'Pumping Black,' the Jonathan Bailey and Natalie Portman cycling thriller from 'Fresh' director Mimi Cave.
+---------
+
+# 'Forrest Gump': Actors Almost Cast in the Movie
+
+Movie Lists, Forrest Gump
+
+Mon, 18 May 2026 16:03:47 GMT
+
+https://movieweb.com/forrest-gump-cast-actors-almost/
+
+Every actor who almost appeared in 'Forrest Gump,' from the lead role considerations to the supporting cast near misses.
+---------
+
+# John Cazale Only Made 5 Movies In His Career & They Were All Masterpieces
+
+Features
+
+Mon, 18 May 2026 16:00:18 GMT
+
+https://movieweb.com/john-cazale-five-movies-masterpieces/
+
+No actor in cinematic history has had a better run than John Cazale, who starred in only five films, which are all incredible.
+---------
+
+# 'Her Private Hell' Trailer Unveils Nicolas Winding Refn's First Film in 10 Years
+
+Movie News, Her Private Hell, Nicolas Winding Refn, Cannes Film Festival
+
+Mon, 18 May 2026 15:59:39 GMT
+
+https://movieweb.com/her-private-hell-trailer/
+
+The first trailer for Nicolas Winding Refn's horror thriller, 'Her Private Hell,' has debuted ahead of the movie's premiere at Cannes Film Festival.
+---------
+
+# HBO 'Lanterns' Trailer Unveils Action-Packed Green Lantern DC Reboot
+
+TV News, Lanterns
+
+Mon, 18 May 2026 15:05:43 GMT
+
+https://movieweb.com/hbo-lanterns-official-trailer/
+
+DC Studios released the second official trailer for HBO Max's 'Lanterns,' delivering new looks at stars Aaron Pierre and Kyle Chandler.
+---------
+
+# Duffer Brothers Confirm 'Stranger Things' Live-Action Spin-Off Details
+
+TV News, Stranger Things, Matt Duffer, Ross Duffer
+
+Mon, 18 May 2026 15:03:42 GMT
+
+https://movieweb.com/stranger-things-live-action-spin-off-duffer-brothers/
+
+The Duffer Brothers confirmed the live-action 'Stranger Things' spin-off will feature an entirely new cast and setting.
+---------
+
+# 'The Mandalorian & Grogu' Brings 'Star Wars' Back to Theaters This Friday for the First Time in 6 Years
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Mon, 18 May 2026 15:02:18 GMT
+
+https://movieweb.com/the-mandalorian-and-grugo-star-wars-movie-comeback/
+
+'Star Wars' was always built for the big screen, so it's great that it's coming back this week. Read on for more.
+---------
+
+# 'The Super Mario Galaxy Movie' Comes to Digital Streaming This Week
+
+Movie News, The Super Mario Galaxy Movie, Coming/Leaving Streaming, Box Office Milestones, Super Mario Bros.
+
+Mon, 18 May 2026 15:00:18 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-2026-1-billion-digital-streaming-release-date/
+
+'The Super Mario Galaxy Movie' is expected to be the first $1 billion movie of 2026 by the time its worldwide theatrical run is over.
+---------
+
+# 10 Best Adaptations of 'The Odyssey' To Watch Before Christopher Nolan’s Next Epic
+
+Movie Lists, The Odyssey
+
+Mon, 18 May 2026 15:00:18 GMT
+
+https://movieweb.com/the-odyssey-best-adaptations-to-watch-before-christopher-nolan-epic/
+
+Before Nolan’s version hits the big screen, it’s worth revising these other great adaptations of Homer's epic.
+---------
+
 # LEGO Batman: Legacy of the Dark Knight Early Access Time & Launch Schedule
 
 Gaming, LEGO Batman: Legacy of the Dark Knight, Triple-A Games
