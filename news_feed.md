@@ -1,3 +1,289 @@
+# Mortal Kombat Movies New Vs Old: 10 Things That Are Completely Different
+
+Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
+
+Tue, 19 May 2026 21:51:23 GMT
+
+https://screenrant.com/mortal-kombat-movies-old-new-comparison-differences/
+
+The new Mortal Kombat movies share plenty of similarities with the 90s films, but also feature major differences beyond just the story.
+---------
+
+# Baldur's Gate 3 Follow-Up Game Officially Cancelled
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons, Triple-A Games, PC
+
+Tue, 19 May 2026 21:41:10 GMT
+
+https://screenrant.com/dnd-upcoming-game-canceled-may-2026/
+
+This project was set to be "a definitive moment" for Dungeons & Dragons video games, but it officially won't be seeing the light of day.
+---------
+
+# Euphoria Season 3’s R-Rated Sydney Sweeney Storyline Just Did The Unthinkable
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Tue, 19 May 2026 21:30:20 GMT
+
+https://screenrant.com/euphoria-season-3-sydney-sweeney-cassie-r-rated-scenes-deepen-character/
+
+Just when you think Sydney Sweeney's R-rated Euphoria season 3 storyline couldn't get any wilder, it goes to the most shocking place of all.
+---------
+
+# Demi Moore's 10 Best Movies, Ranked
+
+Movies, Demi Moore
+
+Tue, 19 May 2026 21:20:21 GMT
+
+https://screenrant.com/demi-moore-best-movies-ranked/
+
+Actress Demi Moore rose to prominence in the 1980s, and since then, has starred in some truly outstanding movies, from Ghost to The Substance.
+---------
+
+# Donald Glover’s Mr. & Mrs. Smith Season 2 Return As John Reportedly Confirmed After Cliffhanger Ending
+
+TV, Mr. & Mrs. Smith
+
+Tue, 19 May 2026 21:20:19 GMT
+
+https://screenrant.com/mr-and-mrs-smith-season-2-donald-glover-maya-erskine-return-cast-report/
+
+After Mr. & Mrs. Smith season 1's cliffhanger ending, Donald Glover is reportedly returning to reprise his role as John in season 2 of the series.
+---------
+
+# Blade Runner Meets Jason Bourne In Netflix's 2-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Tue, 19 May 2026 21:15:21 GMT
+
+https://screenrant.com/altered-carbon-netflix-show-blade-runner-meets-jason-bourne/
+
+There is a two-season sci-fi show on Netflix that is a little bit Blade Runner and a little bit Jason Bourne, and is definitely worth the binge-watch.
+---------
+
+# GOAT's Netflix Success Further Proves That Sony Is An Animation Powerhouse
+
+Movies, GOAT, Explainer, Streaming Charts
+
+Tue, 19 May 2026 21:00:20 GMT
+
+https://screenrant.com/goat-netflix-hit-sony-pictures-animation-success/
+
+GOAT is the latest film from Sony Pictures Animation and it's now a hit on Netflix's streaming charts, giving the studio another rousing success.
+---------
+
+# Batman Beyond Officially Returns For Brand-New Video Game
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Batman Beyond, Batman, Triple-A Games, PC
+
+Tue, 19 May 2026 21:00:20 GMT
+
+https://screenrant.com/batman-beyond-official-return-legacy-of-dark-knight/
+
+If you still wax nostalgic for Batman Beyond, you'll probably appreciate the newest celebration of the iconic take on the caped crusader.
+---------
+
+# Amazon's Upcoming Fantasy Show Will Officially Change BookTok Forever
+
+Streaming TV, Fourth Wing
+
+Tue, 19 May 2026 21:00:20 GMT
+
+https://screenrant.com/amazons-upcoming-fantasy-show-will-officially-change-booktok-forever/
+
+Prime Video is preparing to revolutionize the book community on TikTok, finally bringing to life a popular series and opening the door for more.
+---------
+
+# Michael Box Office Passes Major Global Milestone In Less Than One Month In Theaters
+
+Movies, Michael, Box Office
+
+Tue, 19 May 2026 21:00:12 GMT
+
+https://screenrant.com/michael-box-office-700-million-global-milestone/
+
+The Michael Jackson biopic continues to achieve major success worldwide, as Michael passes a global box office milestone in less than a month.
+---------
+
+# The Apothecary Diaries Star Explains Why Maomao Is the Anime’s Most Important Character
+
+CBR Exclusives, The Apothecary Diaries
+
+Tue, 19 May 2026 21:41:21 GMT
+
+https://www.cbr.com/the-apothecary-diaries-emi-lo-maomao-importance/
+
+Despite the elegance of the imperial court and the political intrigue surrounding her, the heart of The Apothecary Diaries has always been Maomao.
+---------
+
+# The Official Hardest RPGs Ever Made
+
+Games, Role Playing Game, Video Games, Final Fantasy, Dark Souls
+
+Tue, 19 May 2026 21:16:14 GMT
+
+https://www.cbr.com/official-hardest-rpgs-of-all-time-ranked/
+
+RPGs like Final Fantasy Tactics and Demon's Souls rank among the hardest RPGs of all time.
+---------
+
+# 6 The Lord of the Rings Actors Who Also Appeared in Game of Thrones
+
+Movies, Fantasy, The Lord of the Rings, Game Of Thrones
+
+Tue, 19 May 2026 21:00:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-actors-in-game-of-thrones-list/
+
+Love when an actor pops up in multiple fantasy universes? See how these characters appeared in The Lord of the Rings and Game of Thrones franchises.
+---------
+
+# DC Comics' Best Batgirl Will Join The Absolute Universe
+
+Comics, Batgirl
+
+Tue, 19 May 2026 20:38:17 GMT
+
+https://www.cbr.com/batgirl-cassandra-cain-dc-comics-absolute-universe/
+
+A fan favorite Batgirl's Absolute Universe debut has been confirmed.
+---------
+
+# Arnold Schwarzenegger’s King Conan Is Officially Moving Forward
+
+Movies, king conan, Arnold Schwarzenegger
+
+Tue, 19 May 2026 20:33:36 GMT
+
+https://www.cbr.com/king-conan-starts-filming-2027/
+
+Arnold Schwarzenegger shares an official update on the long-awaited sequel that fans have been anticipating for decades.
+---------
+
+# Gary Larson Fans May Have Missed the Best Version of The Far Side
+
+TV, Tales from the Far Side, Comedy, Animation
+
+Tue, 19 May 2026 20:30:16 GMT
+
+https://www.cbr.com/gary-larson-tales-from-the-far-side-special-explained/
+
+Gary Larson's The Far Side became a crucial part of the cartooning industry, but the comic strip also became a TV special in Tales from the Far Side.
+---------
+
+# 5 Forgotten R-Rated Westerns That Are Perfect From Start to Finish
+
+Movies, Western, Ravenous, The Proposition
+
+Tue, 19 May 2026 20:30:16 GMT
+
+https://www.cbr.com/perfect-r-rated-westerns-no-one-remembers-list/
+
+As much as audiences have fallen in love with the darker side of the Western, some of its best R-rated masterpieces have fallen into obscurity.
+---------
+
+# 9 Sci-Fi Shows Better Than 'The X-Files'
+
+TV, The X-Files, Sci-Fi, Twin Peaks, Black Mirror
+
+Tue, 19 May 2026 21:44:15 GMT
+
+https://collider.com/sci-fi-shows-better-than-the-x-files/
+
+As stellar as The X-Files is as a series, sci-fi shows like Twin Peaks, Battlestar Galactica, Black Mirror, and Station Eleven are arguably better.
+---------
+
+# Peter Jackson Reveals Plans to Take The Lord of the Rings Franchise in a Whole New Direction
+
+Movie News, Peter Jackson, The Lord of the Rings, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum
+
+Tue, 19 May 2026 21:30:14 GMT
+
+https://collider.com/new-lord-of-the-rings-movies-franchise-future-peter-jackson-rights-plans-the-silmarillion/
+
+Director Peter Jackson hints at the possibility of adapting previously restricted material from J.R.R. Tolkien's The Silmarillion for future movies.
+---------
+
+# You Only Have 8 Days To Watch Nicolas Cage's Best Movie in Years Before It Leaves Netflix
+
+Movie Features, Nicolas Cage, Pig, Netflix, Drama
+
+Tue, 19 May 2026 21:23:14 GMT
+
+https://collider.com/pig-leaving-netflix-may-26-nicolas-cage/
+
+The masterful, slow-paced movie Pig, starring Nicolas Cage, is a beautiful, heartbreaking drama you need to watch before it leaves Netflix.
+---------
+
+# Netflix's Popular Series With 1.4 Billion Minutes Viewed Is Ending This Year
+
+TV News, Netflix, Outer Banks, Crime, Mystery
+
+Tue, 19 May 2026 21:15:15 GMT
+
+https://collider.com/netflix-outer-banks-ending-2026-most-popular-show-1-4-billion-minutes-viewed/
+
+Netflix's action-adventure series, Outer Banks, returning this year, has unveiled its first footage for the fifth and final season.
+---------
+
+# ‘Gundam’ Officially Brings Back Most Beloved ’90s Series Ahead of Sydney Sweeney's Live-Action Reboot
+
+TV News, Mobile Suit Gundam Hathaway: The Sorcery of Nymph Circe, Mobile Suit Gundam, Anime, Hulu
+
+Tue, 19 May 2026 21:00:14 GMT
+
+https://collider.com/mobile-suit-gundam-wing-new-anime-future-confirmed/
+
+A '90s Gundam favorite gets new animation as the franchise expands its 50-year revival plan across remasters, films, and global growth.
+---------
+
+# Cult-Classic Video Game Franchise Sets Movie Adaptation
+
+Movie News, video games, Mystery, Adventure
+
+Tue, 19 May 2026 21:11:55 GMT
+
+https://movieweb.com/broken-sword-video-game-movie-adaptation/
+
+Thirty years after the first game came out, the adventure series 'Broken Sword' is coming to the big screen.
+---------
+
+# HBO's 'Lanterns' Reportedly Sets New Writer & Producer for Season 2
+
+TV News, Lanterns
+
+Tue, 19 May 2026 21:08:13 GMT
+
+https://movieweb.com/hbo-lanterns-season-2-new-writer/
+
+'Halt and Catch Fire' co-creator Christopher Cantwell will reportedly be taking over from Damon Lindelof and Tom King.
+---------
+
+# David Fincher's $327M Crime Thriller Masterpiece 'Se7en' Streams Free Next Month
+
+Movie News, Se7en, Coming/Leaving Streaming
+
+Tue, 19 May 2026 21:00:19 GMT
+
+https://movieweb.com/seven-streaming-free-tubi-june-2026/
+
+David Fincher's classic crime thriller 'Se7en,' starring Brad Pitt and Morgan Freeman, is set to stream for free on Tubi.
+---------
+
+# 'Mortal Kombat 2' Writer Confirms Talks With James Gunn About DCU
+
+Movie News, Mortal Kombat II, Jeremy Slater, DCU
+
+Tue, 19 May 2026 20:51:23 GMT
+
+https://movieweb.com/dcu-project-jeremy-slater-writer/
+
+One key creative member from the hit video game adaptation is open to collaborating with DC Studios.
+---------
+
 # Netflix's New Action Comedy Is 'Stranger Things Meets Umbrella Academy' (#3 Trending Worldwide)
 
 Streaming TV, The WONDERfools
