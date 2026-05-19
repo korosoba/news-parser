@@ -1,3 +1,267 @@
+# Nintendo Direct Leak Suggests Fans Should Get Ready
+
+Gaming, Nintendo Direct, Nintendo
+
+Tue, 19 May 2026 22:48:58 GMT
+
+https://screenrant.com/nintendo-direct-leak-june-2026/
+
+A leak earlier today suggests a Nintendo Direct event is going to be happening soon, and this one sounds highly likely.
+---------
+
+# A Free Anime Streaming Service Has Finally Risen To Challenge Netflix and Crunchyroll's Throne
+
+Anime, Crunchyroll, Netflix
+
+Tue, 19 May 2026 22:40:33 GMT
+
+https://screenrant.com/anime-k-drama-streaming-free-amasian-tv/
+
+Anime streaming is one of the most competitive entertainment markets right now, so here is an amazing free streaming service for anime and K-dramas.
+---------
+
+# DC’s Confirmed Past Superman Actor Return In Clark Kent’s Next Release Comes At The Perfect Time
+
+Superheroes, Superman, My Adventures With Superman
+
+Tue, 19 May 2026 22:31:51 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-man-of-tomorrow-connection/
+
+DC's next Man of Steel appearance includes the return of a former Superman actor as a new hero, and the comeback is timely for a key reason.
+---------
+
+# Prime Video's The Boys Replacement Could Run For At Least 5 More Seasons
+
+Streaming TV, Masked Recs
+
+Tue, 19 May 2026 22:30:20 GMT
+
+https://screenrant.com/invincible-amazon-prime-the-boys-replacement-future/
+
+With The Boys coming to an end after five seasons, another Prime Video superhero show is ready to take its place for many seasons to come.
+---------
+
+# Midsommar Meets Alien In Terrifying New Horror Series with Masterpiece Potential
+
+Comics, Horror, Masked Recs
+
+Tue, 19 May 2026 22:30:20 GMT
+
+https://screenrant.com/new-horror-series-masterpiece-odin-like-alien/
+
+Don't miss this one.
+---------
+
+# X-Men Meets The Walking Dead in a Brutal New Superhero Series Invincible Fans Will Love
+
+Comics, The Walking Dead, X-Men, Invincible, Masked Recs
+
+Tue, 19 May 2026 22:25:23 GMT
+
+https://screenrant.com/x-men-meets-the-walking-dead-new-superhero-series-invincible/
+
+From Robert Kirkman (Invincible) comes a brand-new superhero series that the creator himself describes as “X-Men meets The Walking Dead.”
+---------
+
+# MCC: Shawn Ashmore Teases Wesley's Next Arc In The Rookie & His Advice For The MCU Iceman
+
+TV, The Rookie, X-Men, Marvel Cinematic Universe, Motor City Comic Con
+
+Tue, 19 May 2026 22:17:10 GMT
+
+https://screenrant.com/motor-city-comic-con-2026-shawn-ashmore-interview/
+
+During an interview at Motor City Comic Con, Shawn Ashmore teased Wesley's potential direction for The Rookie season 9 and reflected on being Iceman.
+---------
+
+# Dexter: Resurrection’s “Nasty” New York Ripper Is Officially Redoing A Killer From The Original Show
+
+Streaming TV, Dexter: Resurrection, Dexter
+
+Tue, 19 May 2026 22:00:22 GMT
+
+https://screenrant.com/dexter-resurrection-new-york-ripper-similar-tooth-fairy-killer/
+
+Michael C. Hall recently described the New York Ripper as "nasty," which could indicate that Dexter: Resurrection season 2 is redoing this OG villain.
+---------
+
+# One Piece Finally Confirms The One Pirate Who Has Surpassed Roger
+
+Anime, One Piece (1997), One Piece
+
+Tue, 19 May 2026 22:00:22 GMT
+
+https://screenrant.com/one-piece-roger-shanks-surpassed-roger-stronger/
+
+Recent One Piece feats and unparalleled Haki mastery prove one legendary character to be the new pinnacle of pirates.
+---------
+
+# Square Enix Drops Free Download For Zelda-Inspired RPG
+
+Gaming, Square Enix
+
+Tue, 19 May 2026 22:00:22 GMT
+
+https://screenrant.com/square-enix-free-download-adventures-of-elliot/
+
+Square Enix has a brand-new Zelda-inspired RPG coming out this summer, and you can try it out with a new free download available today.
+---------
+
+# 10 Near-Perfect '80s Shonen Manga That Hold Up Today
+
+Anime, Manga, Dragon Ball, JoJo's Bizarre Adventures
+
+Tue, 19 May 2026 22:15:14 GMT
+
+https://www.cbr.com/best-80s-shonen-manga-that-still-hold-up/
+
+‘80s shonen manga aren't just nostalgic, they still hold up today because of how confidently they established their identities.
+---------
+
+# The Mandalorian and Grogu Can Fix Star Wars' Biggest Lightsaber Mistake
+
+Movies, The Mandalorian and Grogu
+
+Tue, 19 May 2026 22:00:15 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-officially-fix-yoda-lightsaber-problem/
+
+The Mandalorian and Grogu is a big return to the movies for Star Wars and one thing could help to fix Star Wars TV's biggest error.
+---------
+
+# Mecha Wolverine Officially Arrives in Marvel’s Latest Reveal
+
+Comics, xmen, Wolverine, Marvel Comics
+
+Tue, 19 May 2026 22:00:15 GMT
+
+https://www.cbr.com/wolverine-goes-full-mecha-in-marvels-new-reveal/
+
+Wolverine's iconic claws get an oversized upgrade as he takes on a new form – a giant mech suit. What powers, if any, does he posses?
+---------
+
+# Animated Lord of the Rings Returns in Early 2027 With New Release
+
+Movies, The Lord of the Rings, Fantasy
+
+Tue, 19 May 2026 21:55:23 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-1978-boromir-merry-pippin-dark-horse-direct/
+
+The classic Lord of the Rings movie gets its due.
+---------
+
+# This Forgotten Sci-Fi Series Has Quietly Become a 91.9 Million-Hour Streaming Obsession
+
+TV Features, La Brea, Netflix, NBC, Sci-Fi
+
+Tue, 19 May 2026 22:46:17 GMT
+
+https://collider.com/forgotten-sci-fi-streaming-hit-la-brea-nbc-netflix/
+
+La Brea became a surprise streaming hit in 2025, pulling 91.9 million hours viewed after its NBC run ended and proving sci-fi fans missed out.
+---------
+
+# Netflix Officially Confirms New Sci-Fi Series From ‘Stranger Things’ Creators Drops in Less Than 48 Hours
+
+TV News, The Boroughs, Stranger Things, Duffer Brothers, Sci-Fi
+
+Tue, 19 May 2026 22:45:22 GMT
+
+https://collider.com/stranger-things-creators-duffer-brothers-new-netflix-sci-fi-series-the-boroughs-release-date-may-21/
+
+The Duffer Brothers' new sci-fi series for Netflix, The Boroughs, arrives in all its glory this week. Find out when you can watch it.
+---------
+
+# Forget 'Slow Horses,’ Netflix's Addictive 6-Part Spy Thriller Is a Masterpiece From Start to Finish
+
+TV News, Legends, Steve Coogan, Netflix, Slow Horses
+
+Tue, 19 May 2026 22:30:14 GMT
+
+https://collider.com/netflix-crime-thriller-legends-slow-horses-meets-narcos-series-streaming-success-may-2026/
+
+Netflix's recent crime drama series, Legends, is emerging as a hit no one saw coming. Find out more.
+---------
+
+# Only 10 Movies From the 2010s Are Truly Perfect From Start to Finish
+
+Movie, Black Swan, Mad Max: Fury Road, Parasite, Moonlight
+
+Tue, 19 May 2026 22:22:14 GMT
+
+https://collider.com/only-movies-2010s-perfect-start-to-finish/
+
+Oscar-winning gems like Parasite and underappreciated masterpieces like The Tree of Life are among the only 2010s movies that are genuinely perfect.
+---------
+
+# Fired Star Wars Writer Officially Breaks Silence on Cancelled Rey Skywalker Movie
+
+Movie News, Star Wars, Daisy Ridley, Star Wars: New Jedi Order, Damon Lindelof
+
+Tue, 19 May 2026 22:17:24 GMT
+
+https://collider.com/star-wars-rey-skywalker-spin-off-movie-damon-lindelof-fired-response/
+
+Legendary screenwriter Damon Lindelof reveals he was fired from Star Wars' Rey Skywalker movie and explains why. Read on for more details.
+---------
+
+# Brittain’s Most Gripping Detective Thriller Officially Lands Season 4 Renewal
+
+TV News, Dalgliesh, Acorn TV, British TV, Drama
+
+Tue, 19 May 2026 22:15:15 GMT
+
+https://collider.com/3-part-british-detective-drama-dalgliesh-season-4-renewed/
+
+Acorn TV and New Pictures announce the renewal of the intriguing British detective drama Dalgliesh for a fourth season, with a change in broadcast.
+---------
+
+# Netflix's 8-Part Crime Thriller Is Already the No. 1 Show in America
+
+TV News, Netflix, Crime, Thriller, Nemesis
+
+Tue, 19 May 2026 22:00:15 GMT
+
+https://collider.com/new-netflix-crime-thriller-nemesis-streaming-success-may-2026/
+
+Netflix's new 8-part crime thriller Nemesis has taken over the top spot on US streaming charts, outperforming other popular shows and documentaries.
+---------
+
+# 10 Worst Remakes of Beloved 2000s Movies
+
+Movie, Oldboy, Martyrs, One Missed Call, Shutter
+
+Tue, 19 May 2026 21:55:16 GMT
+
+https://collider.com/worst-2000s-movie-remakes/
+
+From Martyrs to Pulse, these disastrous 2000s movie remakes turned cult favorites into hollow, sanitized disappointments.
+---------
+
+# Fired 'Star Wars' Writer Damon Lindelof Reveals His Pitch That Lucasfilm Loved
+
+Movie News, Star Wars, Damon Lindelof
+
+Tue, 19 May 2026 22:19:25 GMT
+
+https://movieweb.com/star-wars-damon-lindelof-plans-canceled/
+
+The filmmaker explained how the slow writing process meant the studio had a change of heart about the project.
+---------
+
+# 10 Ambiguous Movie Endings That Had Ridiculously Simple Solutions
+
+Movie Lists, Inception, The Shining, Sci-Fi, Horror, Thriller
+
+Tue, 19 May 2026 22:00:20 GMT
+
+https://movieweb.com/ambiguous-movie-endings-that-had-simple-solutions/
+
+Some head-scratching movie endings may offer more definitive answers than you think, and some have been debated for decades.
+---------
+
 # Mortal Kombat Movies New Vs Old: 10 Things That Are Completely Different
 
 Movies, Mortal Kombat, Mortal Kombat II, Mortal Kombat: Annihilation
