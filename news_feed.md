@@ -1,3 +1,443 @@
+# 10 Tips & Tricks In LEGO Batman: Legacy Of The Dark Knight For 100% Completion
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, LEGO Batman
+
+Tue, 19 May 2026 16:38:30 GMT
+
+https://screenrant.com/lego-batman-legacy-dark-knight-tips-tricks-completion/
+
+If you're looking to 100% LEGO Batman: Legacy of the Dark Knight, here are some tips and tricks to help you reach that goal quickly and efficiently.
+---------
+
+# Ben Stiller's There's Something About Mary Getting Surprise New Adaptation 28 Years Later
+
+Movies, There's Something About Mary, Peter Farrelly
+
+Tue, 19 May 2026 16:33:47 GMT
+
+https://screenrant.com/ben-stiller-theres-something-about-mary-broadway-adaptation-farrelly-brothers/
+
+EXCLUSIVE: Ben Stiller has starred in several iconic comedies over the years, and one of those films is being adapted in a surprising new way.
+---------
+
+# Netflix's Returning Series Adapts One Of The Greatest Fantasy Stories Of All Time
+
+Streaming TV, Masked Recs
+
+Tue, 19 May 2026 16:30:19 GMT
+
+https://screenrant.com/avatar-the-last-airbender-netflix-returning-season-2-best/
+
+The return of Netflix's adaptation of one of the best fantasy stories of the age is almost here, so now is the time to get on board.
+---------
+
+# Pokémon Reveals Adorable New Pikachu Design
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 19 May 2026 16:28:18 GMT
+
+https://screenrant.com/pokemon-new-pikachu-design-fossil-museum-plush/
+
+The Pokémon Company is at it again, as Pikachu, one of the most iconic characters in the series, has a new design that's sure to warm some hearts.
+---------
+
+# Hello Kitty’s Upcoming Live-Action Movie Gets a Big Update
+
+Anime, Hello Kitty
+
+Tue, 19 May 2026 16:13:26 GMT
+
+https://screenrant.com/hello-kitty-live-action-movie-update/
+
+After years of development, Hello Kitty's long-awaited Hollywood movie gains serious momentum with new directors and a shift to major animation.
+---------
+
+# The Expanse's Secret 6-Part Series Makes The Sci-Fi Space Opera Hit Even Better
+
+TV, The Expanse, The Expanse: A Telltale Series, Quiz CV
+
+Tue, 19 May 2026 16:00:21 GMT
+
+https://screenrant.com/the-expanse-telltale-series-prime-video-better/
+
+The Expanse is one of the best Sci-Fi shows of all time, and the story of the hit space opera series becomes even better after this secret release.
+---------
+
+# The Boys Season 5 Shatters Prime Video Record Ahead Of Series Finale
+
+TV, The Boys
+
+Tue, 19 May 2026 16:00:21 GMT
+
+https://screenrant.com/the-boys-season-5-prime-video-streaming-record/
+
+The Boys is shattering more than bones in season 5 as Prime Video reveals a record-breaking statistic ahead of the highly anticipated series finale.
+---------
+
+# Osmosis Is One Of Netflix's Most Underrated Sci-Fi Shows
+
+Streaming TV, Masked Recs
+
+Tue, 19 May 2026 16:00:21 GMT
+
+https://screenrant.com/osmosis-netflix-sci-fi-show-dystopian-dating-app/
+
+Netflix's underrated sci-fi series Osmosis imagines a dystopian near-future where a dating app analyzes your brain data to find a perfect match.
+---------
+
+# Every Anime Coming To Netflix In Summer 2026
+
+Anime, Netflix, One Piece
+
+Tue, 19 May 2026 15:59:10 GMT
+
+https://screenrant.com/netflix-summer-anime-releases-2026/
+
+Netflix continues to grow out its licensed library while gradually correcting one of its biggest glaring omissions ahead of new exclusive anime.
+---------
+
+# New Grey’s Anatomy Spinoff Officially Releasing Next Year With Major Location Change
+
+TV, Grey's Anatomy
+
+Tue, 19 May 2026 15:37:57 GMT
+
+https://screenrant.com/grey-anatomy-texas-spinoff-release-location-update/
+
+A spinoff of Grey's Anatomy is in the works, with Shonda Rhimes returning, though there will be one big location change for the long-running drama.
+---------
+
+# Prime Video's 5-Part Hit Series Hits 57 Million Viewers Per Episode Amid Fan Backlash
+
+TV, The Boys
+
+Tue, 19 May 2026 16:44:23 GMT
+
+https://www.cbr.com/prime-video-the-boys-season-5-ratings-fan-backlash/
+
+The series holds a near-perfect Rotten Tomatoes score.
+---------
+
+# Grey's Anatomy Universe Officially Expands With First Spinoff In 2 Years
+
+TV, Grey's Anatomy, ABC, Drama
+
+Tue, 19 May 2026 16:41:50 GMT
+
+https://www.cbr.com/greys-anatomy-spinoff-texas-abc/
+
+The Grey's Anatomy universe is getting larger.
+---------
+
+# Steam Officially Removes D&D, Warhammer, & LEGO in Tags Purge
+
+Games, Steam, Dungeons and Dragons, Warhammer 40K, LEGO
+
+Tue, 19 May 2026 16:40:12 GMT
+
+https://www.cbr.com/steam-removes-dd-warhammer-lego-in-tags-purge/
+
+Steam has removed a number of tags that developers can use to promote their games, including licensed names such as Dungeons & Dragons and Warhammer.
+---------
+
+# Pedro Pascal Teases The Mandalorian & Grogu’s Next Chapter
+
+Movies, The Mandalorian and Grogu
+
+Tue, 19 May 2026 16:27:31 GMT
+
+https://www.cbr.com/video/pedro-pascal-teases-the-mandalorian-grogu-s-next-chapter/
+
+Pedro Pascal discusses the future of The Mandalorian and Grogu, teasing why he hopes Din Djarin and Grogu continue far beyond the new movie. The Mandalorian star explains why Jon Favreau and Dave Filoni’s corner of Star Wars still has endless storytelling potential and how Grogu has remained one of the most impressive creative collaborations in the franchise.Pascal also opens up about the evolution of Grogu’s puppetry, working alongside the Legacy Effects team, and the surprising challenge of keeping Mando physically consistent between multiple performers. Plus, he praises stunt performers Brendan Wayne and Latif Crowder for helping define Din Djarin’s iconic presence.
+---------
+
+# Captain America Still Has the Greatest Quote In Superhero Movie History
+
+Movies, Captain America: The First Avenger
+
+Tue, 19 May 2026 16:16:13 GMT
+
+https://www.cbr.com/mcu-captain-america-first-avenger-greatest-quote-superhero-movie/
+
+The MCU has modernized the superhero genre, and one quote still defines the franchise and the entire genre.
+---------
+
+# 10 Comfort Anime That End In Misery
+
+Anime, Puella Magi Madoka Magica, Made in Abyss, The Promised Neverland
+
+Tue, 19 May 2026 16:16:13 GMT
+
+https://www.cbr.com/cozy-anime-with-sad-endings/
+
+These anime may seem cozy, but they deliver something but sadness and pain.
+---------
+
+# Nicolas Cage Twists Spider-Man’s Greatest Line in Final Spider-Noir Trailer
+
+TV, Spider-Noir, Spider-Man, Prime Video
+
+Tue, 19 May 2026 16:15:25 GMT
+
+https://www.cbr.com/spider-noir-trailer-nicolas-cage-power-responsibility/
+
+The Spider takes a different approach to power and responsibilty.
+---------
+
+# Star Wars Canon Comics, Explained
+
+Comics, Star Wars
+
+Tue, 19 May 2026 16:11:13 GMT
+
+https://www.cbr.com/star-wars-comics-canon/
+
+Star Wars canon has changed a lot since Disney acquired it, with Marvel publishing multiple series that are canon.
+---------
+
+# HBO’s Harry Potter Reboot Casting Could Redefine Snape’s Origin Story
+
+TV, Harry Potter, HBO Max
+
+Tue, 19 May 2026 16:00:13 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-snape-new-origin-story/
+
+With all the hate and severe harassment, stepping into the role of Severus Snape remains a massive challenge for Paapa Essiedu.
+---------
+
+# This Forgotten Star Wars Line Remains the Most Important Quote in the Sequel Trilogy
+
+Movies, Star Wars, Star Wars: Episode VII - The Force Awakens
+
+Tue, 19 May 2026 16:00:13 GMT
+
+https://www.cbr.com/force-awakens-forgotten-star-wars-line-most-important-sequel-trilogy/
+
+The Star Wars sequel trilogy may not be as loved as past films, but it delivered one of the era's most important and forgotten lines.
+---------
+
+# 27 Years Later, Worst Star Wars Prequel Gave Us a Quote That Still Lives Rent-Free in Our Heads
+
+Movie Features, Star Wars, Star Wars: Episode I - The Phantom Menace, Liam Neeson, Sci-Fi
+
+Tue, 19 May 2026 16:45:38 GMT
+
+https://collider.com/27-years-later-worst-star-wars-prequel-gave-us-a-quote-that-still-lives-rent-free-in-our-heads/
+
+One quote spoken by Qui-Gon Jinn in The Phantom Menace still stands as one of the entire Star Wars prequel trilogy’s most unforgettable moments.
+---------
+
+# Seth Rogen’s Heartbreaking New Movie Stuns Cannes with Massive Ovation
+
+Exclusives, Seth Rogen, Cannes Film Festival, Bryan Cranston, Tangles
+
+Tue, 19 May 2026 16:09:45 GMT
+
+https://collider.com/seth-rogen-julia-louis-dreyfus-abbi-jacobson-tangles-movie-alzheimers-cannes-interview/
+
+Tangles' team discusses adapting Sarah Leavitt's emotional graphic novel memoir into a beautifully animated film at the Cannes Film Festival.
+---------
+
+# ‘Grey’s Anatomy’ Is Officially Getting a New Spin-Off to Rival the Taylor Sheridan Universe
+
+TV News, Grey's Anatomy, Shonda Rhimes, Ellen Pompeo, Private Practice
+
+Tue, 19 May 2026 16:00:33 GMT
+
+https://collider.com/greys-anatomy-spin-off-set-in-texas-shondaland-ellen-pompeo-producing/
+
+Grey’s Anatomy is officially in Taylor Sheridan territory as ABC orders new Texas-set spin-off series from Shondaland. Get the details here.
+---------
+
+# One of Marvel's Most Groundbreaking Comics Gets a Stunning Reimagining With New Artwork [Exclusive]
+
+Exclusives, Marvel Comics, The Marvels, Spider-Man, Fantastic Four
+
+Tue, 19 May 2026 16:00:13 GMT
+
+https://collider.com/marvel-spider-man-fantastic-four-comic-novelization-artwork-images-alex-ross-kurt-busiek-steve-darnall/
+
+Marvels: The Novelization is celebrating its release with new artwork commemorating some of the groundbreaking Marvel comics' greatest moments.
+---------
+
+# 2026 Just Delivered a Near-Perfect Sci-Fi With an Amazing Monster Reveal
+
+Movie Reviews, Hope, Alicia Vikander, Michael Fassbender, Cannes Film Festival
+
+Tue, 19 May 2026 15:48:13 GMT
+
+https://collider.com/hope-movie-review-cannes-2026-sci-fi-alien-invasion/
+
+Na Hong-jin's sci-fi movie Hope, starring Hwang Jung-min, Jung Ho-yeon, Michael Fassbender, and Alicia Vikander, is a funny, action-packed ride.
+---------
+
+# 'Masters of the Universe' Is Officially the Most Fun You'll Have at the Movies This Summer
+
+Movie News, Masters of the Universe, Travis Knight, Nicholas Galitzine, Camila Mendes
+
+Tue, 19 May 2026 15:36:49 GMT
+
+https://collider.com/new-he-man-movie-masters-of-the-universe-first-reactions-is-it-good/
+
+The first reactions to the new He-Man movie suggest that Masters of the Universe is set to be the most fun you'll have in theaters this year.
+---------
+
+# Steven Spielberg’s Bonkers New Release Gets First Look Ahead of Sci-Fi Return [Exclusive]
+
+Movie News, Steven Spielberg, Disclosure Day, Sci-Fi, Graphic Novel
+
+Tue, 19 May 2026 15:00:14 GMT
+
+https://collider.com/steven-spielberg-graphic-novel-titan-comics-release-date-september-1-details-images/
+
+Titan Comics has debuted the first-look images from the new graphic novel, Spielberg, which launches around the world this September.
+---------
+
+# Patti LuPone Is Ready for Her Final Bow in ‘Elsbeth’ Season 3 Finale Sneak Peek [Exclusive]
+
+TV News, Elsbeth, Carrie Preston, Patti LuPone, CBS
+
+Tue, 19 May 2026 15:00:14 GMT
+
+https://collider.com/elsbeth-season-3-finale-sneak-peek-patti-lupone-carrie-preston/
+
+A new sneak peek at Elsbeth's Season 3 finale welcomes MCU favorite Patti LuPone to emotionally serenade Carrie Preston with a classic tune.
+---------
+
+# 'The Mandalorian and Grogu' Lands Much Higher Rotten Tomatoes Score Than 'The Rise of Skywalker'
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Pedro Pascal
+
+Tue, 19 May 2026 14:42:44 GMT
+
+https://collider.com/the-mandalorian-and-grogu-rotten-tomatoes-score-is-it-good/
+
+The Mandalorian and Grogu has landed a remarkably middling Rotten Tomatoes score, ranking above The Rise of Skywalker and below Solo.
+---------
+
+# ‘Jason Bourne’ Meets ‘Mindhunter’ in the Trailer for Paramount+’s Best Spy Thriller Returning Next Month
+
+TV News, The Agency, Michael Fassbender, Paramount Plus, Jeffrey Wright
+
+Tue, 19 May 2026 14:34:53 GMT
+
+https://collider.com/paramount-plus-spy-thriller-the-agency-season-2-trailer-release-date-june-2026/
+
+Mindhunter meets Jason Bourne in the first trailer for Season 2 of Paramount+’s most gripping spy thriller, The Agency. Watch it here.
+---------
+
+# 23 Movies That Accurately Portray Drug Addiction
+
+Movie Lists
+
+Tue, 19 May 2026 16:00:20 GMT
+
+https://movieweb.com/movies-that-accurately-portray-drug-addiction/
+
+The most accurate drug addiction movies ever made that refused to sanitize the subject.
+---------
+
+# Netflix's 'Legends' Gives the Platform a Hit Show That's Immune to Cancellation
+
+Features, Legends, Netflix
+
+Tue, 19 May 2026 16:00:19 GMT
+
+https://movieweb.com/legends-netflix-fixes-cancellation-problem/
+
+As big as Netflix is as a streaming service, subscribers are often left frustrated by shows that are canceled before their time. Read on for more.
+---------
+
+# 'Mortal Kombat II' Breaks All-Time Action Box Office Record
+
+Movie News, Mortal Kombat II, Box Office Milestones, Action
+
+Tue, 19 May 2026 16:00:19 GMT
+
+https://movieweb.com/mortal-kombat-2-highest-grossing-fighting-action-movie/
+
+Karl Urban's action video game movie 'Mortal Kombat II' breaks major box office record ahead of confirmed sequel.
+---------
+
+# 'The Odyssey' Trailer Officially Becomes The Most Disliked of Christopher Nolan's Career
+
+Movie News, The Odyssey, Christopher Nolan, Lupita Nyong'o
+
+Tue, 19 May 2026 15:57:23 GMT
+
+https://movieweb.com/the-odyssey-trailer-most-disliked-christopher-nolan-youtube/
+
+Although positive reactions still greatly outnumber negative ones.
+---------
+
+# Michael Fassbender Spy Thriller 'The Agency' Returns in Season 2 Trailer & Streaming Release Date
+
+TV News, Michael Fassbender, The Agency
+
+Tue, 19 May 2026 15:42:23 GMT
+
+https://movieweb.com/the-agency-season-2-trailer-release-date/
+
+The Michael Fassbender spy thriller series 'The Agency' finally returns with an explosive Season 2 trailer from Paramount+.
+---------
+
+# Final 'Spider-Noir' Trailer Features Nicolas Cage Battling Classic Spider-Man Marvel Villains
+
+TV News, Spider-Noir, Spider-Noir (2025), Nicolas Cage, Prime Video
+
+Tue, 19 May 2026 15:30:23 GMT
+
+https://movieweb.com/final-spider-noir-trailer/
+
+The final trailer for Prime Video's 'Spider-Noir' teases an epic showdown between Nicolas Cage's superhero and several Spider-Man villains.
+---------
+
+# 'Westworld' Reboot Movie Can Finally Set Up More Focus on the Other Parks
+
+Features, Westworld
+
+Tue, 19 May 2026 15:00:20 GMT
+
+https://movieweb.com/westworld-reboot-movie-other-parks/
+
+HBO's 'Westworld' show is done, but the new movie can fix what the larger franchise has always failed to do. Read on for more.
+---------
+
+# Every Jack Ryan Move in Chronological Order
+
+Features, Jack Ryan
+
+Tue, 19 May 2026 15:00:20 GMT
+
+https://movieweb.com/every-jack-ryan-move-in-chronological-order/
+
+A complete look at every Jack Ryan film in chronological order, covering all five actors who played the iconic role.
+---------
+
+# 'South Park' Season 29 Release Date Officially Confirmed
+
+TV News, South Park
+
+Tue, 19 May 2026 14:52:48 GMT
+
+https://movieweb.com/south-park-season-29-release-date/
+
+Get your popcorn ready: 'South Park' will be back in time for a tense midterm election season.
+---------
+
+# 'The Mandalorian & Grogu' Rotten Tomatoes Debut Reveals if 'Star Wars' Is Back
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Tue, 19 May 2026 14:27:06 GMT
+
+https://movieweb.com/the-mandalorian-grogu-rotten-tomatoes-debut/
+
+The reception for the first 'Star Wars' movie in almost a decade is finally here.
+---------
+
 # The Mandalorian & Grogu Debuts With One Of The Worst Rotten Tomatoes Scores Of Star Wars’ Disney Era
 
 Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
