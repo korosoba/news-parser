@@ -1,3 +1,366 @@
+# Upcoming Lovecraft Remake Is The Next Best Thing After The New Evil Dead Movie
+
+Movies, Re-Animator, Evil Dead Burn, Evil Dead
+
+Tue, 19 May 2026 03:45:21 GMT
+
+https://screenrant.com/lovecraft-remake-reanimator-evil-dead-burn/
+
+A classic H.P. Lovecraft movie is being remade after decades, and it seems like the next best thing in horror after the upcoming Evil Dead movie.
+---------
+
+# 10 Worst End-Game Couples In Sitcom History
+
+Classic TV
+
+Tue, 19 May 2026 03:30:20 GMT
+
+https://screenrant.com/worst-end-game-couples-sitcom-history/
+
+Some sitcom couples stand the test of time as iconic pairings, but even the best series have fumbled a beloved character's supposed happy ever-after.
+---------
+
+# Former He-Man Star Dolph Lundgren Confirms Appearance In New Masters Of The Universe Movie
+
+Movies, Masters of the Universe
+
+Tue, 19 May 2026 03:02:58 GMT
+
+https://screenrant.com/masters-of-the-universe-dolph-lundgren-appearance-confirmed/
+
+After previously hinting that he might be in the new Masters of the Universe movie, Lundgren confirms that he will appear in the franchise's new film.
+---------
+
+# 7 Months Before Doomsday, Marvel Reveals Major Doctor Doom Twists As Wild As Casting RDJ
+
+Comics, Doctor Doom, Avengers: Doomsday, Marvel
+
+Tue, 19 May 2026 02:46:56 GMT
+
+https://screenrant.com/marvel-reveals-major-doctor-doom-twist-before-doomsday-clone/
+
+Months before Doctor Doom is set to make his epic MCU debut, Marvel continues to introduce major changes to Victor von Doom's typical status quo.
+---------
+
+# Apple TV’s New ‘Stephen King Meets R.L. Stine’ Horror Show Brilliantly Switches Genres
+
+Streaming TV, Masked Recs
+
+Tue, 19 May 2026 02:30:21 GMT
+
+https://screenrant.com/apple-tv-widows-bay-stephen-king-stine-genre-switch/
+
+Apple TV’s latest horror TV series not only perfectly combines the best of Stephen King and R.L. Stine’s worlds but also brilliantly switches genres.
+---------
+
+# How Bill & Colin's Dynamic Will Change After CIA Season 1 Ending Teased By Stars
+
+TV, CIA, CIA - Season 1, FBI, CBS, Tom Ellis, Nick Gehlfuss
+
+Tue, 19 May 2026 02:02:21 GMT
+
+https://screenrant.com/cia-season-1-ending-bill-colin-dynamic-season-2-change-ellis-gehlfuss/
+
+Stars Tom Ellis and Nick Gehlfuss talk the intense CIA season 1 ending and how Colin and Bill's dynamic is going to change heading into season 2.
+---------
+
+# Netflix's New Superhero Series Is The Perfect Successor To An Iconic 2017 Classic
+
+Anime, Netflix
+
+Tue, 19 May 2026 02:00:33 GMT
+
+https://screenrant.com/netflix-wonderfools-strong-girl-bong-soon-superhero-successor/
+
+One of May's most anticipated releases dropped this past weekend, and it's a hilarious 8-episode superhero romp.
+---------
+
+# HBO Max's 4-Part Fantasy Epic With 92% Audience Score Is One Of Its Best
+
+Movies, Masked Recs
+
+Tue, 19 May 2026 01:30:21 GMT
+
+https://screenrant.com/zack-snyder-justice-league-hbo-max-best-fantasy-movie/
+
+Zack Snyder's Justice League is a superhero movie, but it also has so many fantasy elements that it's one of HBO Max's best examples of the genre.
+---------
+
+# 24 Years Later, Nicolas Cage Reveals Why He Didn’t Play Green Goblin In Sam Raimi’s Spider-Man
+
+Movies, Nicolas Cage, Spider-Man, Green Goblin
+
+Tue, 19 May 2026 01:21:23 GMT
+
+https://screenrant.com/nicolas-cage-green-goblin-spider-man-casting-pass-response/
+
+More than two decades before Spider-Noir, Nicolas Cage was in contention to play the Green Goblin, and he now reveals why he didn't get the part.
+---------
+
+# Who Is Laura Linney Playing In The DCU’s Lanterns Series (We Think We Know)
+
+Superheroes, Lanterns, DC Universe
+
+Tue, 19 May 2026 01:00:20 GMT
+
+https://screenrant.com/who-is-laura-linney-playing-in-lanterns-dc-trailer-theory/
+
+The DCU's latest Lanterns trailer gives us our first look at Laura Linney, though we don't yet know who she'll be playing in the upcoming series.
+---------
+
+# 5 Forgotten Martial Arts Anime That Are Perfect From Start to Finish
+
+Anime, Kenichi: The Mightiest Disciple, Flame Of Recca, shonen anime
+
+Tue, 19 May 2026 03:46:14 GMT
+
+https://www.cbr.com/perfect-martial-arts-anime-forgotten/
+
+There is no shortage of anime that celebrate martial arts, but top-tier titles like Air Master and Shura no Toki don't get their due.
+---------
+
+# Netflix's New 93-Minute True Crime Movie Is the No. 1 Film in the U.S.
+
+Movies, Netflix
+
+Tue, 19 May 2026 03:43:47 GMT
+
+https://www.cbr.com/netflix-the-crash-streaming-may-2026/
+
+The newest true crime story on Netflix is pulling in huge numbers on streaming.
+---------
+
+# Twilight Zone's Banned Episode: The Encounter Controversy, Explained
+
+TV, The Twilight Zone
+
+Tue, 19 May 2026 03:30:13 GMT
+
+https://www.cbr.com/the-twilight-zone-the-encounter-banned-episode-explained/
+
+One episode of The Twilight Zone was kept out of circulation for 50 years because of a problematic, controversial theme.
+---------
+
+# 10 Greatest JRPG Masterpieces of All Time, Ranked
+
+Games, Role Playing Game, Video Games, Nintendo
+
+Tue, 19 May 2026 03:15:13 GMT
+
+https://www.cbr.com/best-jrpgs-all-time-final-fantasy-persona/
+
+Final Fantasy VII and Persona 5 are among the greatest JRPGs ever made.
+---------
+
+# 8 Reasons It's Tough to Watch The Princess Bride Today
+
+Movies, The Princess Bride, Fantasy
+
+Tue, 19 May 2026 03:15:13 GMT
+
+https://www.cbr.com/reasons-tough-to-watch-the-princess-bride-list/
+
+The Princess Bride remains a fantasy masterpiece, but even the best films can age badly
+---------
+
+# Forest Whitaker’s Saw Gerrera Officially Returning to Star Wars in Upcoming Project
+
+Comics, Star Wars, Rogue One: A Star Wars Story, Star Wars: The Clone Wars
+
+Tue, 19 May 2026 03:12:30 GMT
+
+https://www.cbr.com/star-wars-rogue-one-saw-gerrera-1-release-date-confirmed/
+
+Forest Whitaker's fan-favorite Star Wars freedom fighter is returning in a brand-new title, and it's just one of several Rogue One stories to come.
+---------
+
+# Adam Scott Reveals His Least Favorite Part of Making Movies
+
+CBR Exclusives, Hokum, Adam Scott
+
+Tue, 19 May 2026 02:49:09 GMT
+
+https://www.cbr.com/adam-scott-least-favorite-part-of-making-movies/
+
+Hokum star Adam Scott opens up about the “magic trick” of making horror and the everyday downside of working on movies and TV shows.
+---------
+
+# Solo Leveling Censors Jinwoo's Fight Against Thomas Andre in Arise
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Tue, 19 May 2026 02:45:14 GMT
+
+https://www.cbr.com/solo-leveling-arise-jinwoo-thomas-andre-fight-censorship/
+
+One of Sung Jinwoo's most iconic panels in the manhwa just got censored by Solo Leveling's new release, suggesting a concerning outlook for Season 3.
+---------
+
+# Witch Hat Atelier Episode 8 Review: Magic Makes a Harsh World
+
+Anime, Witch Hat Atelier
+
+Tue, 19 May 2026 02:25:14 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-8-review/
+
+Witch Hat Atelier Episode 8 does away with the innocent wonder of magic and explores the harsher truth.
+---------
+
+# Daredevil Production Designer Reveals Why Real NY Police Almost Shut Born Again Down
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Tue, 19 May 2026 02:15:35 GMT
+
+https://www.cbr.com/daredevil-born-again-police-almost-shut-down-set/
+
+Daredevil: Born Again Production Designer Michael Shaw talks about how the NYPD almost stopped the series from filming.
+---------
+
+# This Underseen 7-Part Psychological Thriller Is Your Next Netflix Weekend Binge
+
+TV Features, Echoes, Michelle Monaghan, Netflix, Thriller
+
+Tue, 19 May 2026 03:16:15 GMT
+
+https://collider.com/netflix-echoes-psychological-thriller-weekend-binge/
+
+Netflix's Echoes is a hidden gem series that keeps viewers on edge with its twisty plot and complex twin characters.
+---------
+
+# 10 Greatest Final Shots of All Time, Ranked
+
+Movie, Titanic, The Godfather, Casablanca, Citizen Kane
+
+Tue, 19 May 2026 03:11:15 GMT
+
+https://collider.com/best-final-movie-shots-all-time-ranked/
+
+Classics like The Godfather, Casablanca, and Planet of the Apes all have some of the most unforgettable final shots in the history of cinema.
+---------
+
+# ‘CIA’ Star Tom Ellis Reveals How the Brutal Finale Twists Will Change Colin in Season 2
+
+Exclusives, CIA, Tom Ellis, FBI, Lucifer
+
+Tue, 19 May 2026 02:00:47 GMT
+
+https://collider.com/cia-season-1-finale-episode-12-toni-betrayal-tom-ellis-interview/
+
+Tom Ellis discusses CIA, the finale twists that will change Agent Colin Glass in Season 2, and why the TV series Second Wife is no longer happening.
+---------
+
+# Stephen King’s Returning Horror Series Is Exactly What Fans of ‘The Boys’ Cancelled Spin-off Need
+
+TV Features, Gen V, The Institute, Stephen King, MGM
+
+Tue, 19 May 2026 01:47:15 GMT
+
+https://collider.com/stephen-king-the-institute-gen-v-replacement-series/
+
+Stephen King’s The Institute returns for Season 2 in 2026, and it’s the perfect replacement for fans disappointed by Gen V’s cancellation.
+---------
+
+# 10 Greatest Cult Classic Movies No One Ever Talks About Anymore
+
+Movie, Short Term 12, Delicatessen, Blue Ruin, The Station Agent
+
+Tue, 19 May 2026 01:38:15 GMT
+
+https://collider.com/best-cult-classic-movies-no-one-talks-about/
+
+1990s gems like Delicatessen and triumphs of the 2010s like Short Term 12 are among the best cult classic movies that hardly anyone remembers today.
+---------
+
+# 3 Prime Video Shows Worth Binge-Watching This Week
+
+TV, Prime Video, Daisy Jones & The Six, Chicago P.D., The Originals
+
+Tue, 19 May 2026 01:11:13 GMT
+
+https://collider.com/best-shows-binge-prime-video-may-18-2026/
+
+Daisy Jones & the Six, Chicago P.D., and The Originals make up our list of the best Prime Video shows to binge the week of May 18, 2026.
+---------
+
+# In Just 3 Days, Netflix’s 2-Part Crime Thriller Prequel Is the No. 1 TV Series in the World
+
+TV Features, Netflix, Berlin, Money Heist, Crime
+
+Tue, 19 May 2026 00:52:12 GMT
+
+https://collider.com/netflix-crime-thriller-berlin-and-the-lady-with-an-ermine-streaming-hit/
+
+On May 15, 2026, Netflix premiered Berlin and the Lady With an Ermine, the second season of Berlin’s prequel series before Money Heist.
+---------
+
+# Marvel's $449 Million Box Office Sci-Fi Is So Good, You Can Rewatch It Multiple Times
+
+Movie Features, thor, Chris Hemsworth, Tom Hiddleston, MCU
+
+Tue, 19 May 2026 00:41:13 GMT
+
+https://collider.com/thor-movie-2011-chris-hemsworth-mcu/
+
+Yes, the success of Robert Downey Jr.'s Iron Man was crucial to the franchise, though Thor is what officially made Marvel a universe.
+---------
+
+# Markiplier's 'Iron Lung' Digital Release Date Confirmed
+
+Movie News, YouTube, Iron Lung, Horror
+
+Tue, 19 May 2026 03:12:56 GMT
+
+https://movieweb.com/markiplier-iron-lung-digital-release-date-youtube/
+
+If Markiplier has his way, this will just be the beginning.
+---------
+
+# 10 Underrated War Movies That Are So Close To Being Perfect
+
+Movie Lists, Hacksaw Ridge, Enemy At The Gates, Fury, Overlord
+
+Tue, 19 May 2026 02:00:31 GMT
+
+https://movieweb.com/war-movies-almost-perfect/
+
+These war movies are underappreciated and almost perfect, but they are held back by a few elements, from storylines to tone and questions of accuracy.
+---------
+
+# 8 Years Later, 'Dutton Ranch' Highlighted John Dutton's Biggest Flaw
+
+Features, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Tue, 19 May 2026 01:00:35 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-confirmation-john-biggest-flaw/
+
+Taylor Sheridan’s latest hit show has proved a worthy replacement for 'Yellowstone', and has highlighted one of the biggest flaws of John Dutton.
+---------
+
+# 'Drive' Director Nicolas Winding Refn Wants to Direct 'Batgirl' Movie for DC Studios
+
+Movie News, Nicolas Winding Refn, DCU, Batgirl
+
+Tue, 19 May 2026 00:41:55 GMT
+
+https://movieweb.com/nicolas-winding-refn-batgirl-direct/
+
+While promoting his latest film, 'Her Private Hell,' director Nicolas Winding Refn revealed he wants to direct a 'Batgirl' movie.
+---------
+
+# Mel Brooks Prequel 'Very Young Frankenstein' Ordered to Series by FX
+
+TV News, Young Frankenstein, Taika Waititi
+
+Tue, 19 May 2026 00:08:09 GMT
+
+https://movieweb.com/very-young-frankenstein-prequel-mel-brooks/
+
+The series was developed by Taika Waititi and will star Zach Galifianakis.
+---------
+
 # Anime Finally Has Its Official Gojo Replacement, And They're His Perfect Opposite
 
 Anime, Witch Hat Atelier, Jujutsu Kaisen
