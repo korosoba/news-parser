@@ -1,3 +1,366 @@
+# All 9 American Horror Story Cast Members Returning For Season 13 (So Far)
+
+Streaming TV, American Horror Story, American Horror Story - Season 13
+
+Tue, 19 May 2026 18:30:19 GMT
+
+https://screenrant.com/american-horror-story-season-13-returning-cast-members/
+
+American Horror Story has been a little underwhelming in recent seasons, but season 13 has confirmed several iconic cast members will return.
+---------
+
+# In The Grey Director Guy Ritchie Talks Raising The Stakes In Latest Spy Thriller: 'It's An Odd Dynamic'
+
+Movies, In the Grey
+
+Tue, 19 May 2026 18:30:19 GMT
+
+https://screenrant.com/in-the-grey-guy-ritchie-raising-stakes-spy-thriller-odd-dynamic/
+
+Director Guy Ritchie's latest action thriller In The Grey is in theaters, and the filmmaker shared how he raised the stakes for this film.
+---------
+
+# The Thing Meets True Detective in New Series with Major Walking Dead Connection
+
+Comics, Crime, Horror, Masked Recs
+
+Tue, 19 May 2026 18:27:25 GMT
+
+https://screenrant.com/new-crime-series-neo-noir-horror-true-detective/
+
+Texas crime with a supernatural secret...
+---------
+
+# HBO's Green Lantern Series May Have Just Revealed The DCU's First Justice League-Level Villain
+
+Streaming TV, Lanterns, Green Lantern, DC
+
+Tue, 19 May 2026 18:00:20 GMT
+
+https://screenrant.com/lanterns-parallax-yellow-ring-dcu-villain-theory/
+
+The trailer for Lanterns heavily hinted at Sinestro, Parallax, and Hal Jordan's corruption, which could set hte stage for the DCU's Justice League
+---------
+
+# Marvel Finally Has A New Idea As Epic As The Infinity Stones
+
+Marvel Comics, Thanos, Marvel
+
+Tue, 19 May 2026 18:00:20 GMT
+
+https://screenrant.com/knull-king-black-venom-lore-change-garden-crowns/
+
+One of Marvel's strongest villains transforms the universe's most iconic rulers into a terrifying alternative of Thanos' Infinity Stones.
+---------
+
+# Sylvester Stallone Is Developing First TV Adaptation For 9-Year-Old Bestselling Crime Thriller Series
+
+TV, Sylvester Stallone
+
+Tue, 19 May 2026 17:59:09 GMT
+
+https://screenrant.com/sylvester-stallone-4mk-tv-show-development/
+
+Sylvester Stallone has produced projects like Rambo: Last Blood, Creed III and Tulsa King. Now the action star has his sights set on a new TV show.
+---------
+
+# Tom Clancy's Jack Ryan: Ghost War Rotten Tomatoes Score Sets Multiple Records For Iconic Spy Series
+
+TV, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan
+
+Tue, 19 May 2026 17:55:30 GMT
+
+https://screenrant.com/tom-clancy-jack-ryan-ghost-war-rotten-tomatoes-score-record/
+
+The first reviews for Tom Clancy's Jack Ryan: Ghost War, and the John Krasinski action movie breaks multiple franchise records, with a twist.
+---------
+
+# “Embark Is Cooking” With New ARC Raiders Update
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Tue, 19 May 2026 17:54:20 GMT
+
+https://screenrant.com/arc-raiders-update-1-29-player-reaction/
+
+ARC Raiders recently announced it was slowing down its major content updates, but the most recent patch is being welcomed with open arms.
+---------
+
+# From The Rise Of Skywalker To The Mandalorian & Grogu: Detailing Star Wars' 7 Year Movie Gap
+
+Star Wars, The Mandalorian and Grogu
+
+Tue, 19 May 2026 17:47:39 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-movie-release-gap/
+
+Star Wars has endured a 7-year gap between new movies after The Rise of Skywalker, and here's how The Mandalorian and Grogu ended the streak.
+---------
+
+# Netflix’s New Crime Thriller Nemesis Divides Critics & Audiences On Rotten Tomatoes
+
+TV, Masked Recs, Netflix
+
+Tue, 19 May 2026 17:36:27 GMT
+
+https://screenrant.com/netflix-nemesis-rotten-tomatoes-audience-score/
+
+Despite strong reviews on Rotten Tomatoes, a new eight-part Netflix crime thriller series has been sharply dividing critics and audiences.
+---------
+
+# Apple TV's Peanuts Franchise Is Releasing New Episodes Next Month
+
+TV, Peanuts, Camp Snoopy
+
+Tue, 19 May 2026 18:48:10 GMT
+
+https://www.cbr.com/apple-tv-new-peanuts-streaming-june-2026/
+
+Charlie Brown and Snoopy are back with their pals with a lot more Peanuts content for fans.
+---------
+
+# Stranger Things Creators Officially Confirm When Eleven's Fate Will Be Revealed
+
+TV, Stranger Things
+
+Tue, 19 May 2026 18:47:01 GMT
+
+https://www.cbr.com/stranger-things-creators-eleven-fate-revealed/
+
+The Stranger Things finale is still creating debates for longtime fans.
+---------
+
+# 7 R-Rated Fantasy Movies That Changed the Genre Forever
+
+Movies, Fantasy
+
+Tue, 19 May 2026 18:30:13 GMT
+
+https://www.cbr.com/r-rated-fantasy-movies-changed-genre-list/
+
+While many of the best fantasy movies are family-friendly, the genre has been at its best when it isn't afraid to get dark, and these movies prove it.
+---------
+
+# Michael Fassbender's 10-Part James Bond Replacement Officially Returns Next Month
+
+TV, The Agency, Paramount Plus
+
+Tue, 19 May 2026 18:19:41 GMT
+
+https://www.cbr.com/paramount-plus-the-agency-season-2-trailer/
+
+Paramount+ officially sets a streaming premiere date for the spy thriller's return.
+---------
+
+# All Of Marvel's Omega-Level Mutants, Ranked By Power
+
+Comics, Marvel Comics, X-Men
+
+Tue, 19 May 2026 18:19:25 GMT
+
+https://www.cbr.com/every-omega-level-mutant-ranked/
+
+From Magneto to the Fantastic Four's Franklin Richards, Marvel's omega-level mutants have both life-giving abilities and destructive powersets.
+---------
+
+# Jake Johnson & Jessy Hodges Break Down the Twists in Maximum Pleasure Guaranteed
+
+TV, Maximum Pleasure Guaranteed
+
+Tue, 19 May 2026 18:15:13 GMT
+
+https://www.cbr.com/video/jake-johnson-jessy-hodges-break-down-the-twists-in-maximum-pleasure-guaranteed/
+
+Maximum Pleasure Guaranteed stars Jake Johnson and Jessy Hodges reveal how the Apple TV+ mystery series kept surprising them throughout filming.Because scripts arrived gradually, the cast discovered major twists and character secrets at the same pace as the audience. Jake Johnson explains why the writing constantly changed his perspective on the story, while Jessy Hodges shares how the show avoided the common “plot hole” problems that can happen in mystery series.The pair also talk about filming across New York City, working with David Gordon Green, and how Maximum Pleasure Guaranteed balances chaotic storytelling with grounded character moments that always feel believable.
+---------
+
+# 10 Anime Characters Who Love Breaking the Fourth Wall
+
+Anime, Gintama, The Disastrous Life of Saiki K., JoJo's Bizarre Adventure
+
+Tue, 19 May 2026 18:15:13 GMT
+
+https://www.cbr.com/anime-characters-break-the-fourth-wall/
+
+Breaking the fourth wall is a great tactic to draw the viewer right out of the anime, and these characters excel at it.
+---------
+
+# Solo Leveling Producer Opens up About the Global Impact of the Dark Fantasy Anime
+
+Anime, Solo Leveling
+
+Tue, 19 May 2026 18:00:13 GMT
+
+https://www.cbr.com/solo-leveling-global-impact-dark-fantasy-anime/
+
+Atsushi Kaneko discusses the explosive trajectory of Solo Leveling and the unexpected success of the hit anime series on the global stage.
+---------
+
+# Long Before The Mandalorian, This Star Wars Comic Introduced Mandalorians
+
+Comics, Star Wars
+
+Tue, 19 May 2026 18:00:13 GMT
+
+https://www.cbr.com/mandalorians-first-mentioned-star-wars-68/
+
+Long before Attack of the Clones established the Mandalorians' role in the Clone Wars, a 1982 Star Wars comic told a very different story.
+---------
+
+# DC's New Batman Will Officially Be Revealed in 3 Days
+
+Movie News, The Batman – Part II, The Batman, DCU, Ben Affleck
+
+Tue, 19 May 2026 18:28:35 GMT
+
+https://collider.com/dc-warner-bros-new-lego-batman-legacy-of-the-dark-knight-release-date-may-22-2026/
+
+Batman officially returns this week with the highly anticipated release of his most acclaimed project since the 2022 reboot.
+---------
+
+# Prime Video’s ‘Bosch’ Meets ‘Reacher’ Crime Thriller Casts Star Wars Icon
+
+TV News, Bishop, Prime Video, Bosch, Reacher
+
+Tue, 19 May 2026 18:24:20 GMT
+
+https://collider.com/prime-video-reacher-replacement-detective-crime-thriller-cast-star-wars-icon-jennifer-beals/
+
+Star Wars alum Jennifer Beals has officially joined the cast of Prime Video's upcoming Reacher replacement, Bishop. Read on for more details.
+---------
+
+# Star Trek Officially Announces Massive 60th Anniversary Project
+
+TV News, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation, Star Trek Lower Decks
+
+Tue, 19 May 2026 18:16:31 GMT
+
+https://collider.com/star-trek-60th-anniversary-comic-brian-michael-bendis-mike-mcmahan-writing/
+
+Brian Michael Bendis and Mike McMahan are teaming up for a new Star Trek project to celebrate the sci-fi franchise's 60th Anniversary.
+---------
+
+# Christopher Nolan's Mind-Bending 93% RT Noir Film Is Near-Perfect From Start to Finish
+
+Movie Features, Christopher Nolan, Memento, Guy Pearce, Thriller
+
+Tue, 19 May 2026 18:06:14 GMT
+
+https://collider.com/memento-christopher-nolan-movie-near-perfect-noir/
+
+Christopher Nolan's brilliant neo-noir Memento, starring Guy Pearce, is an early masterpiece from the Oppenheimer director.
+---------
+
+# HBO Officially Launches Surprise 'Game of Thrones' Project
+
+TV News, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, George R.R. Martin
+
+Tue, 19 May 2026 17:58:47 GMT
+
+https://collider.com/hbo-new-game-of-thrones-projects-podcasts/
+
+HBO has officially revealed a a major new project for Game of Thrones that will launch very soon.
+---------
+
+# 5 Worst Rebel Wilson Movies, Ranked
+
+Movie, Rebel Wilson, Cats, The Hustle, Senior Year
+
+Tue, 19 May 2026 17:52:15 GMT
+
+https://collider.com/worst-rebel-wilson-movies-ranked/
+
+From The Hustle to Cats, these are Rebel Wilson films where chaotic comedy, tone issues, and missed potential collide.
+---------
+
+# ‘You’ve Got Mail’ Meets ‘P.S. I Love You’ in New Trailer for Netflix’s Next Must-Watch Rom-Com
+
+Movie News, Voicemails for Isabelle, Netflix, Sleepless In Seattle, Notting Hill
+
+Tue, 19 May 2026 17:17:50 GMT
+
+https://collider.com/new-netflix-rom-com-voicemails-for-isabelle-zoey-deutch-nick-robinson/
+
+Watch the new trailer for Zoey Deutch’s next Netflix rom-com, Voicemails for Isabelle, with You’ve Got Mail meets P.S. I Love You vibes.
+---------
+
+# Taylor Sheridan’s Forgotten 7-Part Hulu Crime Thriller Is So Good, You’ll Wish You Found It Sooner
+
+TV Features, Sons of Anarchy, Taylor Sheridan, Charlie Hunnam, Ron Perlman
+
+Tue, 19 May 2026 17:03:14 GMT
+
+https://collider.com/taylor-sheridan-sons-of-anarchy-crime-thriller/
+
+For three seasons, Taylor Sheridan starred in FX's Sons of Anarchy as Deputy Hale, the only force for good in Charming, California.
+---------
+
+# Sydney Sweeney's 'The Housemaid' Franchise Expands With New Stage Adaptation
+
+Movie News, The Housemaid, Sydney Sweeney, Thriller
+
+Tue, 19 May 2026 18:29:05 GMT
+
+https://movieweb.com/sydney-sweeney-r-rated-erotic-thriller-the-housemaid-stage/
+
+'The Housemaid' is coming to the stage.
+---------
+
+# Prime Video's 'Off Campus' Finally Topples 'The Boys' To Become #1 Hit in U.S.
+
+TV News, Off Campus, Hot on Streaming, Comparison Recommendation, Prime Video
+
+Tue, 19 May 2026 18:00:18 GMT
+
+https://movieweb.com/off-campus-prime-video-beats-the-boys-streaming-hit-may-2026/
+
+Prime Video's raunchy new romance, 'Off Campus' has finally become a certified global hit.
+---------
+
+# New 'Grey's Anatomy' Spin-Off Officially Ordered by ABC, Set in Texas
+
+TV News, Grey's Anatomy, Shonda Rhimes, Private Practice, Station 19
+
+Tue, 19 May 2026 17:48:56 GMT
+
+https://movieweb.com/greys-anatomy-texas-spinoff-abc/
+
+ABC has officially ordered a new 'Grey's Anatomy' spin-off set in rural West Texas, with Shonda Rhimes, Meg Marinis and Ellen Pompeo.
+---------
+
+# 'Game of Thrones' Star Kit Harington Confirms Canceled Spin-Off Might Not Be Dead
+
+TV News, Game Of Thrones, Kit Harington, Game of Thrones, HBO Max
+
+Tue, 19 May 2026 17:39:50 GMT
+
+https://movieweb.com/game-of-thrones-canceled-spin-off-jon-snow-kit-harington/
+
+In a recent convention appearance, 'Game of Thrones' icon Kit Harington addressed the current state of his canceled Jon Snow spin-off.
+---------
+
+# 'The Untouchables': Don Johnson Turned Down Kevin Costner Role
+
+Features, Don Johnson, The Untouchables, Kevin Costner
+
+Tue, 19 May 2026 17:30:18 GMT
+
+https://movieweb.com/don-johnson-declined-untouchables-kevin-costner/
+
+Exhausted of being associated with the cop shtick, Don Johnson happily passed on his chance to match wits against Al Capone.
+---------
+
+# HBO Has Already Proven You Won't Notice 'Harry Potter's Ginny Recasting
+
+Features, Harry Potter
+
+Tue, 19 May 2026 17:00:19 GMT
+
+https://movieweb.com/harry-potter-hbo-ginny-recasting/
+
+Ginny Wesley is being recast in HBO's 'Harry Potter' TV adaptation, but HBO has recast characters before.
+---------
+
 # 10 Tips & Tricks In LEGO Batman: Legacy Of The Dark Knight For 100% Completion
 
 Gaming, LEGO Batman: Legacy of the Dark Knight, LEGO Batman
