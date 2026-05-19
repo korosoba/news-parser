@@ -1,3 +1,333 @@
+# Netflix's New Action Comedy Is 'Stranger Things Meets Umbrella Academy' (#3 Trending Worldwide)
+
+Streaming TV, The WONDERfools
+
+Tue, 19 May 2026 20:15:21 GMT
+
+https://screenrant.com/the-wonderfools-netflix-superhero-show-trending-may-2026/
+
+One of Netflix's most highly-anticipated new releases of 2026 is here, and it echoes some of the best sci-fi/superhero stories in television history.
+---------
+
+# Hulu’s Official Shutdown Timeline Gets Major New Update From Disney
+
+TV, Hulu, Disney Plus
+
+Tue, 19 May 2026 20:10:27 GMT
+
+https://screenrant.com/hulu-app-subscription-shutdown-us-plans-disney/
+
+The official shutdown of Hulu, which was previously announced to be merging with Disney+, receives an important update regarding the timeline.
+---------
+
+# Paramount+'s Trending #1 Show Is Officially The End Of An Era
+
+Streaming TV, Masked Recs
+
+Tue, 19 May 2026 20:07:36 GMT
+
+https://screenrant.com/dutton-ranch-paramount-plus-new-era-taylor-sheridan-shows/
+
+Paramount+'s newest trending show has established the dominance of its flagship TV franchise, even if it means closing a definitive chapter.
+---------
+
+# Netflix's 2-Part Crime Series With 100% Rotten Tomatoes Score Officially Marks The End Of An Era
+
+Streaming TV, Netflix, The Chestnut Man
+
+Tue, 19 May 2026 20:05:51 GMT
+
+https://screenrant.com/netflix-thriller-series-the-chestnut-man-thulin-death-change/
+
+Netflix's 2-part crime thriller series sets the end of an era for the streaming service with its new season, as the global hit can never be the same.
+---------
+
+# Supernatural’s Comeback Introduces a Monster Unlike Any in the Show’s History
+
+Comics, Supernatural
+
+Tue, 19 May 2026 20:00:21 GMT
+
+https://screenrant.com/supernatural-series-new-monster-lore-update/
+
+Dean and Sam officially return for a new Supernatural adventure this summer, and it already promises to set itself apart from the original show.
+---------
+
+# Why There's No NCIS Season 23 Tonight (May 19) & When New Episodes Release
+
+Network TV, NCIS
+
+Tue, 19 May 2026 20:00:21 GMT
+
+https://screenrant.com/ncis-no-new-episode-may-19-2026-season-24-release-date/
+
+NCIS season 23, episode 20 ended with a big cliffhanger, which is something that won't be resolved for a while because of CBS's scheduling.
+---------
+
+# Why The Mandalorian & Grogu's Rotten Tomatoes Score Is 3rd Worst Of All Live-Action Star Wars Movies
+
+Star Wars, The Mandalorian and Grogu, Rotten Tomatoes
+
+Tue, 19 May 2026 19:56:21 GMT
+
+https://screenrant.com/star-wars-mandalorian-grogu-rotten-tomatoes-score-reviews-explained/
+
+The Mandalorian and Grogu has been met with a mixed reception, putting its Rotten Tomatoes score among the worst for Star Wars movies for key reasons.
+---------
+
+# Dan Harmon Confirms Rick & Morty Movie Is Officially Happening With Franchise Vet As Director
+
+Movies, Rick and Morty
+
+Tue, 19 May 2026 19:36:23 GMT
+
+https://screenrant.com/rick-morty-movie-director-details-confirmation-dan-harmon/
+
+Rick and Morty co-creator Dan Harmon has confirmed that a movie spinning out of the Adult Swim series is in the works with a familiar director.
+---------
+
+# Disney+'s Near-Perfect Action Thriller Deserves Its Streaming Success (#1 In The U.S.)
+
+Streaming TV, Masked Recs
+
+Tue, 19 May 2026 19:30:21 GMT
+
+https://screenrant.com/the-punisher-one-last-kill-disney-plus-success/
+
+Disney+ has released a stunning new action-thriller on its platform that is well worth checking out and can easily be consumed in just one sitting.
+---------
+
+# 45 Years Later, Friday The 13th Part 2 Has A Brutal Death That Would Never Fly Today
+
+Movies, Friday the 13th Part 2, Friday The 13th
+
+Tue, 19 May 2026 19:20:23 GMT
+
+https://screenrant.com/friday-the-13th-part-2-mark-death-today/
+
+Friday the 13th Part 2 is officially turning 45 this year, and it still features one of the most brutal taboo deaths in the franchise.
+---------
+
+# 6 One Piece Characters Who’d Be Better Main Characters Than Luffy
+
+Anime, One Piece
+
+Tue, 19 May 2026 20:15:14 GMT
+
+https://www.cbr.com/one-piece-characters-better-main-character-than-luffy/
+
+These One Piece characters have the kind of depth and presence that could easily carry their own story.
+---------
+
+# Your Name Studio's Official Pokemon Anime Gets Surprise Streaming Release
+
+Anime, Pokemon, Nintendo
+
+Tue, 19 May 2026 20:00:14 GMT
+
+https://www.cbr.com/pokemon-dragonite-special-delivery-2026-release/
+
+CoMIX Wave Films brings its gorgeously animated Pokémon short, Dragonite and the Special Delivery, to streaming for Pokémon fans worldwide.
+---------
+
+# It's Official, Star Wars Returns to Theaters This Week
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Tue, 19 May 2026 20:00:14 GMT
+
+https://www.cbr.com/greatest-sci-fi-franchise-star-wars-officially-back/
+
+The Mandalorian and Grogu is set to lead Star Wars into a brand-new era, one that could determine the future of George Lucas' galaxy far, far away.
+---------
+
+# Star Trek Returns to Deep Space Nine With Official New Story
+
+Comics, Star Trek, Star Trek: Deep Space Nine
+
+Tue, 19 May 2026 20:00:14 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-stargazers-webtoon-series-announcement/
+
+The Star Trek franchise teases a new Deep Space Nine story with new characters and locations.
+---------
+
+# Pokémon Leaks Officially Reveal Cut Content From Scarlet & Violet
+
+Games, Pokemon
+
+Tue, 19 May 2026 19:55:14 GMT
+
+https://www.cbr.com/pokemon-leaks-official-scarlet-violet-cut-content-gyarados/
+
+A Pokémon Scarlet & Violet leak has revealed that Magikarp and Gyarados were meant to have regional Dragon-type variants that were cut before launch.
+---------
+
+# Kit Harington Defends Game of Thrones Amid Canceled Spinoff
+
+TV, Game Of Thrones, Fantasy, hbo
+
+Tue, 19 May 2026 19:53:34 GMT
+
+https://www.cbr.com/kit-harington-defends-game-of-thrones-canceled-spinoff-jon-snow/
+
+The Game of Thrones star, who previously seemed to be distancing himself from the HBO fantasy franchise, stepped up to defend it.
+---------
+
+# Michael B. Jordan’s Creed Returns 3 Years Later With New Cast
+
+TV, Creed, Delphi
+
+Tue, 19 May 2026 19:37:55 GMT
+
+https://www.cbr.com/michael-b-jordan-creed-spinoff-delphi-full-cast/
+
+The long-running franchise continues with an exciting addition.
+---------
+
+# Dragon Ball Super Takes Over V-Jump's July 2026 Issue
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Super: Beerus
+
+Tue, 19 May 2026 19:26:14 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-v-jump-july-2026-scans/
+
+Dragon Ball has a huge presence in the upcoming issue of V-Jump, suggesting a promising outlook for the manga’s long-awaited return with Chapter 105.
+---------
+
+# The Rock's $80M Forgotten Action Comedy Resurfaces as a Streaming Hit on Peacock 23 Years Later
+
+Movies, The Rundown
+
+Tue, 19 May 2026 19:20:36 GMT
+
+https://www.cbr.com/dwayne-johnson-the-rundown-action-comedy-peacock-success-may-2026/
+
+After starring in The Mummy franchise, Dwayne Johnson headlined a forgotten action comedy film that is currently finding success on Peacock.
+---------
+
+# 30 Years Later, Beloved Video Game Franchise Finally Gets First Feature Film Adaptation
+
+Movies
+
+Tue, 19 May 2026 19:16:29 GMT
+
+https://www.cbr.com/broken-sword-feature-film-adaptation/
+
+A hit video game franchise is getting its first feature film adaptation after 30 years.
+---------
+
+# 6 Most Perfect Thriller Movies of the Last 50 Years, Ranked
+
+Movie, Thriller, The Silence of the Lambs, Memories of Murder, Shutter Island
+
+Tue, 19 May 2026 19:44:14 GMT
+
+https://collider.com/most-perfect-thriller-movies-last-50-years-ranked/
+
+From Se7en to The Silence of the Lambs, these thrillers redefined suspense with unforgettable tension and masterful storytelling.
+---------
+
+# HBO's 10-Part WWII Miniseries Is a Masterpiece From Start to Finish
+
+TV News, HBO, HBO Max, Band of Brothers, The Pacific
+
+Tue, 19 May 2026 19:25:11 GMT
+
+https://collider.com/best-ww2-miniseries-the-pacific-masterpiece-hbo-max-streaming-may-2026/
+
+Forget Band of Brothers, this 10-part HBO miniseries is a masterpiece from start to finish and it should be next on your late-night binge watchlist.
+---------
+
+# 10 Praiseworthy Sci-Fi Movies of the 20th Century That Still Hold Up Today
+
+Movie, Science Fiction, The Iron Giant, alien, The Matrix
+
+Tue, 19 May 2026 19:23:15 GMT
+
+https://collider.com/praiseworthy-sci-fi-movies-20th-century-still-hold-up/
+
+From Forbidden Planet to Alien, these great 20th-century sci-fi movies are as close to perfect as they can get and remain classics of the genre today.
+---------
+
+# Hulu's 5-Part Sci-Fi Series That's Designed To Be Binged Is 'The X-Files' Meets 'Dark'
+
+TV Features, Anna Torv, John Noble, Joshua Jackson, Fringe
+
+Tue, 19 May 2026 19:21:14 GMT
+
+https://collider.com/fringe-hulu-x-files-meets-dark-binge-watch/
+
+Fringe evolves from a creepy procedural into a heartbreaking sci-fi story about love, regret, and consequences, making it an ideal binge watch.
+---------
+
+# Netflix’s Family Fantasy Is Officially Giving ‘Kpop Demon Hunters’ a Run for Its Money
+
+Movie News, Swapped, Streaming, Netflix, KPop Demon Hunters
+
+Tue, 19 May 2026 19:00:38 GMT
+
+https://collider.com/netflix-fantasy-adventure-swapped-top-movie-80-million-views/
+
+Netflix’s epic new fantasy movie starring Michael B. Jordan and Juno Temple has officially amassed over 80 million views in less than 3 weeks.
+---------
+
+# Emile Hirsch Reveals He Auditioned for 'The Matrix' Sequels Before Landing 'Speed Racer'
+
+Movie News, Emile Hirsch, The Matrix
+
+Tue, 19 May 2026 20:20:17 GMT
+
+https://movieweb.com/emile-hirsch-the-matrix-audition/
+
+The actor tried joining the Wachowski canon long before 2008's 'Speed Racer.'
+---------
+
+# Netflix Confirms the End of an Era & Cancels ‘The Lincoln Lawyer’ & ‘The Night Agent’
+
+Features, The Night Agent, The Lincoln Lawyer, Netflix
+
+Tue, 19 May 2026 20:00:19 GMT
+
+https://movieweb.com/netflix-lincoln-lawyer-night-agent-cancelled/
+
+Netflix has cancelled legal drama 'The Lincoln Lawyer' and action thriller 'The Night Agent,' and each will only have one more season.
+---------
+
+# First 10 Minutes of 'The Mandalorian and Grogu' Now Streaming on Fortnite
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Tue, 19 May 2026 19:49:36 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-streaming-fortnite/
+
+'Fortnite' players can now watch the first 10 minutes of the latest Star Wars movie, 'The Mandalorian and Grogu,' in a new creative island.
+---------
+
+# Netflix's 'Swapped' Adds 24.4 Million Views in Third Week To Maintain Top Spot on Streaming
+
+Movie News, Swapped, Hot on Streaming, Netflix
+
+Tue, 19 May 2026 19:06:19 GMT
+
+https://movieweb.com/swapped-netflix-streaming-ratings-may-11-17-2026/
+
+After a record-breaking second week, 'Swapped' added an additional 24.4 million views, bringing its overall total to 80.6 million.
+---------
+
+# 10 TV Shows That Became Hits by Abandoning Their Original Premise
+
+TV Lists, Fringe, The Good Place, Breaking Bad
+
+Tue, 19 May 2026 19:00:19 GMT
+
+https://movieweb.com/tv-shows-changed-premise/
+
+These TV shows, from popular sitcoms to iconic dramas, changed their original premises and became even more successful and entertaining.
+---------
+
 # All 9 American Horror Story Cast Members Returning For Season 13 (So Far)
 
 Streaming TV, American Horror Story, American Horror Story - Season 13
