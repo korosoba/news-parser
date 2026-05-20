@@ -1,3 +1,377 @@
+# Brand-New D&D Subclass Is Already A DM's Worst Nightmare
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Wed, 20 May 2026 04:00:29 GMT
+
+https://screenrant.com/dungeons-dragons-new-subclass-ancestral-sorcerer-dnd/
+
+There’s a strong new subclass for Dungeons and Dragons arriving in the TTRPG in 2026 that may be a player’s paradise and a DM’s nightmare.
+---------
+
+# IT: Welcome To Derry Seasons 2 & 3's Most Important Story Change From Season 1 Teased By Andy & Barbara Muschietti
+
+TV, It: Welcome to Derry, IT: Welcome to Derry - Season 1, IT
+
+Wed, 20 May 2026 03:46:25 GMT
+
+https://screenrant.com/it-welcome-to-derry-seasons-2-3-themes-change-muschiettis-tease/
+
+IT: Welcome to Derry co-creators Andy and Barbara Muschietti discuss how the show's moral questions will shape future seasons of the series.
+---------
+
+# Berserk Finally Returns With First New Release Of 2026
+
+Anime, Berserk
+
+Wed, 20 May 2026 03:30:20 GMT
+
+https://screenrant.com/berserk-manga-return-chapter-384-release-date/
+
+The greatest manga of all time may still have some steam left as leaks surface about its upcoming new chapter.
+---------
+
+# 6 Prime Video Shows That Will Hook You With The First Scene
+
+Streaming TV, Prime Video
+
+Wed, 20 May 2026 03:00:27 GMT
+
+https://screenrant.com/prime-video-shows-hook-audiences-opening-scene/
+
+While Prime Video has many great shows, these six TV shows across different genres will hook viewers with their very first scene.
+---------
+
+# After 7 Years, Disneyland Finally Has A Galaxy’s Edge For All Star Wars Fans
+
+Star Wars, Disneyland, The Mandalorian and Grogu
+
+Wed, 20 May 2026 02:20:16 GMT
+
+https://screenrant.com/disneyland-has-a-galaxys-edge-for-all-star-wars-fans-mandalorian-original-trilogy/
+
+Thanks to a variety of new additions and incoming changes, Disneyland has finally expanded its Star Wars-themed land for every kind of fan.
+---------
+
+# ER: Every Doctor Who Died On The Show (& How)
+
+Network TV, ER
+
+Wed, 20 May 2026 02:15:11 GMT
+
+https://screenrant.com/er-show-doctors-deaths-episodes-who-how/
+
+Many of the doctors in ER die during the 15 seasons of the NBC medical drama. Here are all the doctors who died on ER.
+---------
+
+# Every Upcoming Star Wars Game (2026 & Beyond)
+
+Gaming, PC, Star Wars
+
+Wed, 20 May 2026 02:00:34 GMT
+
+https://screenrant.com/every-upcoming-star-wars-games/
+
+Now that EA isn't the sole proprietor of Star Wars games, there are plenty of titles in development for fans to look forward to in 2026 and beyond.
+---------
+
+# Netflix May Have Found Its Hotel Del Luna Successor With Upcoming Summer Series
+
+Anime, Netflix, Hotel Del Luna
+
+Wed, 20 May 2026 02:00:33 GMT
+
+https://screenrant.com/netflix-spooky-chilling-romance-hotel-del-luna-successor/
+
+A familiar setting involving hotels, hauntings, and two leads trying to help spirits move on has plenty of promise and chemistry joining Netflix.
+---------
+
+# Webtoon's Best Action Fantasy Creator Is Back With New Can't-Miss Series
+
+Anime, Webtoon, The God of High School
+
+Wed, 20 May 2026 01:30:19 GMT
+
+https://screenrant.com/the-god-of-high-school-best-action-fantasy-creator-mumumu/
+
+The God of High School's creator has returned with a new martial arts webtoon and it's already a must-read.
+---------
+
+# New Interview With The Vampire Series Officially Releases This Week Before Lestat's Big Return
+
+TV, Interview with the Vampire, Interview with the Vampire - Season 3, Immortal Universe
+
+Wed, 20 May 2026 01:19:25 GMT
+
+https://screenrant.com/interview-with-the-vampire-lestat-after-dark-series-release-date/
+
+Interview with the Vampire fans not only have The Vampire Lestat to look forward to, but another series as well that will be debuting first.
+---------
+
+# 5 Biggest Sonic The Hedgehog Characters Still Missing from the Movies
+
+Movies, Sonic the Hedgehog, Sonic the Hedgehog 4
+
+Wed, 20 May 2026 03:46:13 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-movies-missing-characters-list/
+
+Sonic the Hedgehog 4 is coming, and with it, new characters, but there are many more that are long overdue to get the movie treatment.
+---------
+
+# 10 Best Dragon Ball Kamehamehas of All Time
+
+Anime, Dragon Ball, Akira Toriyama
+
+Wed, 20 May 2026 03:46:13 GMT
+
+https://www.cbr.com/best-dragon-ball-kamehamehas-of-all-time/
+
+Dragon Ball's Kamehameha is the anime's most famous attack and it's been utilizes in some of the franchise's greatest moments!
+---------
+
+# 58 Years Later, McCoy’s Greatest Star Trek Line Is Still the Scariest Quote in Sci-Fi History
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Wed, 20 May 2026 03:30:14 GMT
+
+https://www.cbr.com/star-trek-tos-mccoy-ai-quote-scariest-sci-fi-line/
+
+One of Leonard McCoy's lines in "The Ultimate Computer" is among the most terrifyingly relevant quotes in Star Trek history.
+---------
+
+# 10 Best Roguelike Games of All Time
+
+Games, Indie Games, Pokemon, Hades 2, Gaming
+
+Wed, 20 May 2026 03:15:13 GMT
+
+https://www.cbr.com/best-roguelike-games-all-time/
+
+From Rogue's ASCII dungeons to Hades II's mythological masterpiece, these are some of the best roguelike games ever made.
+---------
+
+# Vin Diesel’s Gritty 109-Minute Superhero Movie Finds Streaming Redemption After Poor Box Office
+
+Movies, Bloodshot, vin diesel
+
+Wed, 20 May 2026 03:00:47 GMT
+
+https://www.cbr.com/vin-diesel-bloodshot-streaming-may-2026/
+
+Vin Diesel's superhero film makes a return on streaming.
+---------
+
+# 10 Near-Perfect Sailor Moon Manga Volumes to Add to Your Collection
+
+Anime, Sailor Moon
+
+Wed, 20 May 2026 02:45:13 GMT
+
+https://www.cbr.com/near-perfect-sailor-moon-manga-volumes-must-owns-collection/
+
+Even for fans who don't want to own every Sailor Moon manga volume, there are some that absolutely needed to be added to everyone's collection.
+---------
+
+# Steam's Top-Selling Game for April 2026 Is Officially 1 of the Best Pirate Games Ever
+
+Games, Steam, Gaming, Video Games
+
+Wed, 20 May 2026 02:16:14 GMT
+
+https://www.cbr.com/steam-best-selling-game-april-2026-windrose/
+
+The pirate genre is much-loved within the video game industry and players are discovering new shores with this massive Steam hit.
+---------
+
+# The Legend of Zelda Anime Can Finally Dethrone Solo Leveling on Crunchyroll
+
+Anime, The Legend of Zelda, Crunchyroll, Solo Leveling
+
+Wed, 20 May 2026 02:00:24 GMT
+
+https://www.cbr.com/zelda-twilight-princess-manga-anime-adaptation-beat-solo-leveling/
+
+The Twilight Princess manga is the perfect source material for an anime that could beat Solo Leveling.
+---------
+
+# Ghost in the Shell Gets New Stylish Collection Ahead of Anime Remake Release
+
+Anime, Ghost in the Shell, Ghost in the Shell: Stand Alone Complex, merchandise
+
+Wed, 20 May 2026 02:00:24 GMT
+
+https://www.cbr.com/ghost-in-the-shell-stand-alone-complex-anime-collection/
+
+Before the new adaptation comes out, Ghost in the Shell fans can revisit one of the previous anime with a line of new clothes and accessories.
+---------
+
+# 10 Biggest Lord of the Rings LEGO Sets, Ranked by Piece Count
+
+Movies, The Lord of the Rings
+
+Wed, 20 May 2026 02:00:24 GMT
+
+https://www.cbr.com/biggest-lord-of-the-rings-lego-sets-list/
+
+Explore the largest Lord of the Rings LEGO sets ranked by piece count, from iconic battles to Middle-earth locations, perfect for collectors and fans.
+---------
+
+# 7 Greatest Apple TV Shows You’ll Wish You Watched Sooner
+
+TV, Ted Lasso, Severance, Pachinko, Apple TV
+
+Wed, 20 May 2026 04:27:12 GMT
+
+https://collider.com/greatest-apple-tv-shows-youll-wish-you-watched-sooner/
+
+Shrinking, Ted Lasso, Pluribus, Severance, and more make up our list of Apple TV shows you'll wish you watched sooner.
+---------
+
+# 10 Stellar Sci-Fi Books That No One Talks About
+
+Movie, Science Fiction, Books, Sci-Fi
+
+Wed, 20 May 2026 04:14:13 GMT
+
+https://collider.com/best-sci-fi-books-no-one-talks-about/
+
+From Flowers for Algernon to The Gameplayers of Zan, these sci-fi books are worthy of far more recognition than what mainstream audiences give them.
+---------
+
+# 20 Years Later, Grey’s Anatomy Is Still Expanding — But Should It Be?
+
+TV Features, Grey's Anatomy, Station 19, Private Practice, ABC
+
+Wed, 20 May 2026 03:33:12 GMT
+
+https://collider.com/greys-anatomy-spinoff-franchise-fatigue-should-it-end/
+
+ABC’s new Grey’s Anatomy spinoff raises a bigger question about franchise fatigue and whether the medical drama should finally end.
+---------
+
+# 10 Fantasy Movies You Should Watch Instead of 'Harry Potter'
+
+Movie, Fantasy, Harry Potter, Pan's Labyrinth, The Chronicles of Narnia: Prince Caspian
+
+Wed, 20 May 2026 03:18:16 GMT
+
+https://collider.com/fantasy-movies-watch-not-harry-potter/
+
+Pan’s Labyrinth, Spirited Away, The Chronicles of Narnia, and more make up our list of fantasy movies you should watch instead of Harry Potter.
+---------
+
+# 10 Forgotten Sci-fi Movies That Are Actually Great, Ranked
+
+Movie, Sci-Fi, Dark City, Seconds, The Quiet Earth
+
+Wed, 20 May 2026 03:04:15 GMT
+
+https://collider.com/forgotten-sci-fi-movies-actually-great/
+
+From Enemy Mine to Seconds, these forgotten sci-fi movies transform paranoia, identity, and isolation into greatness.
+---------
+
+# The Historical Epic Christopher Nolan Was Supposed To Direct Is a Quiet Streaming Hit
+
+Movie News, Christopher Nolan, Troy, Brad Pitt, AMC+
+
+Wed, 20 May 2026 01:45:13 GMT
+
+https://collider.com/brad-pitt-historical-epic-troy-streaming-success-amc-plus-may-2026/
+
+Ahead of Christopher Nolan's The Odyssey, the historical epic he was originally supposed to direct is suddenly surging on streaming.
+---------
+
+# 'Reacher' Season 4’s Biggest Risk Could Be Exactly What the Show Needs
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Lee Child
+
+Wed, 20 May 2026 01:42:22 GMT
+
+https://collider.com/reacher-season-4-big-change-series-flashbacks-lee-child/
+
+Following the plot of Lee Child's Gone Tomorrow, Reacher Season 4 is going to shake up the show's formula.
+---------
+
+# Taylor Sheridan Isn’t Giving Up His Paramount+ Crown Anytime Soon
+
+TV News, The Madison, Taylor Sheridan, Paramount Plus, Kurt Russell
+
+Wed, 20 May 2026 01:30:13 GMT
+
+https://collider.com/taylor-sheridan-binge-worthy-neo-western-the-madison-streaming-success-paramount-plus-may-2026/
+
+The Madison, the binge-worthy neo-Western from the mind of Taylor Sheridan, has reached #1 on Paramount Plus streaming charts.
+---------
+
+# HBO Max's Darkly Twisted 131-Minute Thriller Is Officially a Worldwide Streaming Hit
+
+Movie Features, Saltburn, Jacob Elordi, Barry Keoghan, Emerald Fennell
+
+Wed, 20 May 2026 01:12:13 GMT
+
+https://collider.com/jacob-elordi-saltburn-thriller-smash-hit/
+
+Jacob Elordi stars in Saltburn, a classic Gothic tale of an obsessive grifter who falls for a world of privilege and affluence.
+---------
+
+# 10 True Crime Docuseries That Are 10/10, No Notes
+
+TV, True Crime, Don't F**k with Cats: Hunting an Internet Killer, The Trials Of Gabriel Fernandez, Jeffrey Epstein: Filthy Rich
+
+Wed, 20 May 2026 00:55:14 GMT
+
+https://collider.com/perfect-true-crime-docuseries/
+
+Jeffrey Epstein: Filthy Rich, The Trials of Gabriel Fernandez, and more make up our list of perfect true crime docuseries.
+---------
+
+# 8 Perfect HBO Shows Without a Single Bad Episode
+
+TV Lists, Industry, The White Lotus, Curb Your Enthusiasm, The Wire, Oz, Barry, The Comeback
+
+Wed, 20 May 2026 02:00:31 GMT
+
+https://movieweb.com/hbo-shows-perfect-no-bad-episodes/
+
+From comedies to dramas, these HBO shows don't have any bad episodes, and everyone should watch them thanks to their high quality storytelling.
+---------
+
+# 10 Movies That Aren't as Bad as Everyone Says
+
+Movie Lists
+
+Wed, 20 May 2026 02:00:31 GMT
+
+https://movieweb.com/movies-not-as-bad-as-everyone-says/
+
+The most unfairly maligned movies ever made, covering ten films that were written off too quickly and deserve a second chance.
+---------
+
+# 'Rick and Morty' Movie Officially Confirmed
+
+Movie News, Rick and Morty, Adult Swim, Sci-Fi
+
+Wed, 20 May 2026 00:46:50 GMT
+
+https://movieweb.com/rick-and-morty-movie-officially-confirmed/
+
+The movie will be directed by Jacob Hair, who has a long history with the show.
+---------
+
+# 'Tom Clancy's Jack Ryan: Ghost War' Debuts to Disappointing Rotten Tomatoes Score
+
+Movie News
+
+Wed, 20 May 2026 00:36:34 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-rotten-tomatoes/
+
+John Krasinski revived his character for a new movie on Prime Video.
+---------
+
 # Goku's Entire Dragon Ball Family Tree, Explained
 
 Anime, Dragon Ball
