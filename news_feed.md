@@ -1,3 +1,399 @@
+# Stranger Things' New Episodes Coming This Fall Won't Solve The Big Eleven Mystery
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Wed, 20 May 2026 22:03:20 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-new-episodes-fall-eleven-mystery/
+
+Stranger Things continues to expand, and there will be new episodes coming later this year, but they still won't solve Eleven's biggest mystery.
+---------
+
+# The Boys' Last Jab At Marvel Is Its Best
+
+Streaming TV, The Boys, Marvel Cinematic Universe
+
+Wed, 20 May 2026 22:00:20 GMT
+
+https://screenrant.com/the-boys-marvel-chair-joke/
+
+The Boys season 5 has concluded the show, featuring one last joke aimed at the Marvel Cinematic Universe that just so happens to be its best.
+---------
+
+# Netflix's Biggest Heartthrob Is Officially Back In Your Next Big K-Drama Obsession
+
+TV, Sold Out on You, Netflix, Business Proposal, Hometown Cha-Cha-Cha
+
+Wed, 20 May 2026 22:00:20 GMT
+
+https://screenrant.com/sold-out-on-you-ahn-hyo-seop-heartthrob-obsession-kdrama-netflix/
+
+Ahn Hyo-seop, the heartthrob who stole millions of hearts with Business Proposal, is back in a new Netflix rom-com that's taking over.
+---------
+
+# Top Gun Cast: Where Are They Now?
+
+Movies, Top Gun
+
+Wed, 20 May 2026 21:50:20 GMT
+
+https://screenrant.com/top-gun-cast-where-are-they-now-2026/
+
+Nearly 40 years after Top Gun, Maverick, Charlie, Iceman, Goose, and more stars have taken wildly different paths in Hollywood and beyond.
+---------
+
+# Apple TV's Dark Matter Sci-Fi Series Based On Bestselling Novel Succeeds In Its Hardest Task
+
+TV, Masked Recs
+
+Wed, 20 May 2026 21:49:54 GMT
+
+https://screenrant.com/apple-tv-dark-matter-sci-fi-series-multiverse-hardest-task/
+
+Apple TV's sci-fi series are some of the best at the moment, and this 8-part show that will return for season 2 in 2026 succeeds in a daunting task.
+---------
+
+# How Tom Clancy's Jack Ryan: Ghost War Keeps His 42-Year-Old Hero Feeling Fresh Explained By Director & Stars
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan, Amazon, John Krasinski
+
+Wed, 20 May 2026 21:30:20 GMT
+
+https://screenrant.com/tom-clancy-jack-ryan-ghost-war-character-franchise-fresh-director-stars/
+
+John Krasinski and the cast and director of Tom Clancy's Jack Ryan: Ghost War talk the new movie and how it helps keep the iconic hero feeling fresh.
+---------
+
+# 31 Years Later, Cosmo Kramer's Best Seinfeld Line Is Still One Of The Funniest Quotes In Sitcom History
+
+Classic TV, Seinfeld
+
+Wed, 20 May 2026 21:30:20 GMT
+
+https://screenrant.com/seinfeld-kramer-best-line-funniest-sitcom-history/
+
+More than three decades later, Cosmo Kramer's monologue about the foibles of marriage in Seinfeld is still one of the best sitcom lines ever.
+---------
+
+# Cancelled Rey-Led Star Wars Movie Plot Details Finally Revealed By "Fired" Creative Damon Lindelof: "It Didn't Work”
+
+Movies, Damon Lindelof, Star Wars
+
+Wed, 20 May 2026 21:25:31 GMT
+
+https://screenrant.com/star-wars-scrapped-rey-movie-plot-details-damon-lindelof-firing/
+
+Damon Lindelof shared details about what the Star Wars movie focused on Rey would have explored, as well as shared his thoughts on being "fired."
+---------
+
+# Disney+'s 2-Part Sci-Fi Epic That Keeps Getting Better Succeeds In Its Hardest Task
+
+Movies, Masked Recs
+
+Wed, 20 May 2026 21:15:21 GMT
+
+https://screenrant.com/avengers-infinity-war-endgame-succeeds-ensemble-cast-aged-well/
+
+Avengers: Infinity War and Endgame managed to be massive successes despite their huge ambition, and they've only gotten better over the years.
+---------
+
+# Magic: The Gathering's Marvel Collaboration Just Got An Incredibly Promising Update
+
+Gaming, Magic: The Gathering, Triple-A Games, PC
+
+Wed, 20 May 2026 21:11:42 GMT
+
+https://screenrant.com/mtg-official-marvel-card-art-update/
+
+Marvel's collaboration with MTG has always come with a few additional catches, but their biggest drawback is finally getting a massive update.
+---------
+
+# Cartoon Network’s Revival of an 8-Season Masterpiece Is the No. 2 Show in the World on HBO Max
+
+TV, Regular Show, HBO Max, Animation
+
+Wed, 20 May 2026 22:08:08 GMT
+
+https://www.cbr.com/regular-show-the-lost-tapes-success-hbo-max-may-2026/
+
+The beloved Cartoon Network series is back and blowing up on streaming.
+---------
+
+# 2 Years Later, Taylor Sheridan Is Finally Delivering Yellowstone Season 6
+
+TV, Yellowstone, Dutton Ranch
+
+Wed, 20 May 2026 22:00:38 GMT
+
+https://www.cbr.com/dutton-ranch-beth-rip-spinoff-yellowstone-season-6/
+
+Taylor Sheridan finally reveals the blueprint for Yellowstone Season 6, continuing the story of Kevin Costner's flagship John Dutton character.
+---------
+
+# 25 Years Later, James Van Der Beek’s 90-Minute Western Flop Finally Finds Streaming Redemption
+
+Movies, Texas Rangers, Paramount Plus
+
+Wed, 20 May 2026 22:00:13 GMT
+
+https://www.cbr.com/texas-rangers-paramount-plus-streaming-may-2026/
+
+James Van Der Beek's forgotten Western finally earns redemption after 25 years.
+---------
+
+# Peter Capaldi’s 2-Part Apple TV Crime Thriller Reaches Major Streaming Milestone
+
+TV, Criminal Record, Apple TV, Crime
+
+Wed, 20 May 2026 22:00:13 GMT
+
+https://www.cbr.com/peter-capaldi-criminal-record-crime-thriller-apple-tv-success-may-2026/
+
+Peter Capaldi's latest crime thriller is reaching new heights on the streaming charts.
+---------
+
+# Solo Leveling Levels Up With Airwalk for Limited Edition Footwear Collection
+
+Anime, Solo Leveling, Crunchyroll
+
+Wed, 20 May 2026 22:00:13 GMT
+
+https://www.cbr.com/solo-leveling-sandals-airwalk-limited-edition-shoe-collection/
+
+Solo Leveling fans can now step out of the shadows and into the sun with a new collection of sandals based on Sung Jinwoo's beloved Shadow Soldiers.
+---------
+
+# The Punisher: One Last Kill Set Up the X-Men's Jean Grey
+
+Movies, Spider-Man: Brand New Day, The Punisher: One Last Kill, Marvel Cinematic Universe
+
+Wed, 20 May 2026 22:00:13 GMT
+
+https://www.cbr.com/mcu-the-punisher-one-last-kill-set-up-jean-grey-mutant/
+
+According to a new theory, the Punisher already has a connection to one of the Marvel Cinematic Universe's most powerful upcoming mutant superheroes.
+---------
+
+# AMC Fans Are Getting a Treat With Even More Lestat With New The Vampire Lestat Follow-Up
+
+TV, Interview with the Vampire, Anne Rice
+
+Wed, 20 May 2026 21:24:47 GMT
+
+https://www.cbr.com/amc-fans-are-getting-a-treat-with-even-more-lestat-with-new-the-vampire-lestat-follow-up/
+
+AMC is giving fans of Anne Rice's Immortal Universe a brand-new way to celebrate The Vampire Lestat in a format they already know and love.
+---------
+
+# 10 Xbox Games to Play Now That Xbox Is on PlayStation
+
+Games, Xbox Series X (1), PlayStation 5, Halo
+
+Wed, 20 May 2026 21:15:13 GMT
+
+https://www.cbr.com/xbox-games-officially-available-now-on-playstation/
+
+Xbox games are finally on PS5. These are the ten of the best Microsoft exclusives PS5 players should try first, from Halo to Sea of Thieves.
+---------
+
+# New Teenage Mutant Ninja Turtles Series Trailer Officially Reveals YouTube Release Date
+
+TV, Teenage Mutant Ninja Turtles, YouTube, Animation
+
+Wed, 20 May 2026 21:03:25 GMT
+
+https://www.cbr.com/tmnt-teeny-mutant-ninja-turtles-trailer-release-date-youtube/
+
+The Ninja Turtles are back like you've never seen them before.
+---------
+
+# HBO's 6-Part Controversial Series With 89% Returns as a Streaming Hit 9 Years Later
+
+TV, Girls, HBO Max, Comedy
+
+Wed, 20 May 2026 21:00:12 GMT
+
+https://www.cbr.com/girls-comedy-drama-hbo-streaming-success-may-2026/
+
+The HBO comedy-drama that launched the careers of many renowned stars is back on the streaming charts 9 years after its finale.
+---------
+
+# All 10 Deaths in 'The Boys' Season 5, Ranked
+
+TV, The Boys, Prime Video, Superhero, Action
+
+Wed, 20 May 2026 22:03:13 GMT
+
+https://collider.com/the-boys-season-5-deaths-ranked/
+
+The Boys Season 5 brought plenty of carnage and destruction, and we rank every major death of the Prime Video superhero show's final season.
+---------
+
+# The Horror Film Everyone Wrote Off in 2026 Is Finding Its Audience on Streaming
+
+Movie News, Prime Video, Horror, Return to Silent Hill, Streaming
+
+Wed, 20 May 2026 22:00:13 GMT
+
+https://collider.com/return-to-silent-hill-streaming-hit-prime-video-may-2026/
+
+After a disappointing theatrical run, Return to Silent Hill finds success on streaming platforms, becoming one of the most-watched movies worldwide.
+---------
+
+# The Most Divisive Star Wars Film Is Surging on Disney+
+
+Movie Features, Star Wars: Episode I - The Phantom Menace, Star Wars, Disney+
+
+Wed, 20 May 2026 21:51:13 GMT
+
+https://collider.com/star-wars-phantom-menace-most-divisive-disney-plus-charts/
+
+The Phantom Menace was the most watched Star Wars film on Disney+ on Star Wars Day, May the 4th. There's a good reason for that.
+---------
+
+# Prime Video's New Action Thriller Can't Come Close to Filling ‘Reacher's Shoes
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Prime Video, Reacher, Rotten Tomatoes
+
+Wed, 20 May 2026 21:30:13 GMT
+
+https://collider.com/tom-clancys-jack-ryan-ghost-war-john-kraskinski-rotten-tomatoes-is-it-good/
+
+Critics aren't holding back in their reviews of  Tom Clancy's Jack Ryan: Ghost War, with the film receiving a devastating Rotten Tomatoes score.
+---------
+
+# Jon Bernthal and Dwayne Johnson's Forgotten Action Thriller Doesn't Deserve Its 57% RT Score
+
+Movie Features, Dwayne Johnson, Jon Bernthal, Snitch, Thriller
+
+Wed, 20 May 2026 21:29:14 GMT
+
+https://collider.com/snitch-movie-2013-jon-bernthal-dwayne-johnson-action-thriller/
+
+The 2013 action movie Snitch, starring Dwayne Johnson and Jon Bernthal, is a forgotten thriller that showcases both actors' impressive range.
+---------
+
+# Prime Video’s Best Spy Thriller Finally Gets an Update After 2 Years of Delays
+
+TV News, Prime Video, Thriller, Martin Scorsese, Mr. & Mrs. Smith
+
+Wed, 20 May 2026 21:00:13 GMT
+
+https://collider.com/mr-and-mrs-smith-season-2-cast-francesca-scorsese/
+
+Prime Video's hit series Mr. and Mrs. Smith secures Hollywood's Francesca Scorsese for Season 2, following the show's record-breaking debut.
+---------
+
+# 10 Best Epic Adventure Movies, Ranked
+
+Movie, The Lord of the Rings, Lawrence of Arabia, The Right Stuff, Ben-Hur
+
+Wed, 20 May 2026 20:54:14 GMT
+
+https://collider.com/best-epic-adventure-movies-ranked/
+
+The greatest adventure movies made on an epic scale include masterpieces like Lawrence of Arabia, The Lord of the Rings, and Interstellar.
+---------
+
+# Scarlett Johansson's New Crime Thriller is Her Second-Highest-Rated Film of the Decade
+
+Movie News, Scarlett Johansson, Crime, Paper Tiger, Rotten Tomatoes
+
+Wed, 20 May 2026 20:30:14 GMT
+
+https://collider.com/scarlett-johansson-crime-thriller-paper-tiger-rotten-tomatoes-is-it-good/
+
+Critics are praising Paper Tiger, starring Scarlett Johansson, as her second-highest rated film of the decade on Rotten Tomatoes. See the score.
+---------
+
+# The 10 Most Universally Beloved Movie Masterpieces of the Last 6 Years
+
+Movie, Barbie, Encanto, Project Hail Mary, Sinners
+
+Wed, 20 May 2026 20:28:14 GMT
+
+https://collider.com/beloved-movie-masterpieces-last-six-years/
+
+From Sinners to KPop Demon Hunters, Barbie to Project Hail Mary, we've watched some incredible masterpieces premiere in the last few years
+---------
+
+# ‘The Boys’ Series Finale Just Gave This Character What the Comics Couldn’t
+
+TV Features, The Boys, Prime Video, Karen Fukuhara, Gen V, Ladies Night
+
+Wed, 20 May 2026 20:06:14 GMT
+
+https://collider.com/the-boys-series-finale-kimiko-fate-comics-karen-fukuhara-interview/
+
+Karen Fukuhara recently discussed the series finale of 'The Boys' and how Kimiko's fate differs from the comics.
+---------
+
+# Amazon Prime’s ‘Off Campus’ Is So Good, You'll Watch It in One Sitting
+
+Features, Off Campus, Prime Video
+
+Wed, 20 May 2026 22:00:18 GMT
+
+https://movieweb.com/off-campus-prime-binge-watch/
+
+'Off Campus,' the Amazon Prime Video series based on the book series by Elle Kennedy, stars Belmont Cameli and Ella Bright as Garrett and Hannah.
+---------
+
+# 'Michael Jackson: The Verdict' Documentary Gets First Trailer From Netflix
+
+TV News, michael jackson, Netflix
+
+Wed, 20 May 2026 21:45:44 GMT
+
+https://movieweb.com/michael-jackson-the-verdict-netflix-trailer/
+
+Netflix released the first trailer for a new documentary on Michael Jackson, titled 'Michael Jackson: The Verdict.'
+---------
+
+# Homelander's Ending in 'The Boys' Finale Was Worth the 7 Year Wait
+
+Features, The Boys
+
+Wed, 20 May 2026 21:00:17 GMT
+
+https://movieweb.com/homelander-the-boys-finale-fate/
+
+Antony Starr's career-defining performance as Homelander helped carry 'The Boys' throughout all five seasons.
+---------
+
+# Johnny Depp's '90s Fantasy Monster Classic 'Edward Scissorhands' Leaves Free Streaming Next Month
+
+Movie News, Edward Scissorhands, Coming/Leaving Streaming
+
+Wed, 20 May 2026 20:30:19 GMT
+
+https://movieweb.com/edward-scissorhands-leaving-tubi-free-streaming-june-2026/
+
+Weirdly, it is one of the most romantic movies of the 1990s.
+---------
+
+# Michael Bay Officially Sets New Action Thriller Based on Iran War Operation Epic Fury
+
+Movie News, Michael Bay, Action
+
+Wed, 20 May 2026 20:22:13 GMT
+
+https://movieweb.com/michael-bay-action-thriller-iran-war-rescue/
+
+Expect explosions when Michael Bay returns to the director's chair for a new film based on the rescue mission "Operation Epic Fury."
+---------
+
+# Team Behind Netflix's 'One Piece' Bringing Brandon Sanderson Book Saga to Life
+
+TV News, Skyward, Brandon Sanderson, One Piece
+
+Wed, 20 May 2026 20:19:18 GMT
+
+https://movieweb.com/netflix-one-piece-brandon-sandersons-skyward-cytoverse/
+
+Although it may not be the saga you're thinking of.
+---------
+
 # How Spider-Man's New Appearance Permanently Changes His Powers, Confirmed By Marvel
 
 Marvel Comics, Spider-Man, Marvel
