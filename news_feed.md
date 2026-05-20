@@ -1,3 +1,344 @@
+# 21 Years After Revenge Of The Sith, George Lucas' Star Wars Is Officially Back
+
+Movies, Star Wars
+
+Wed, 20 May 2026 23:45:20 GMT
+
+https://screenrant.com/mandalorian-and-grogu-george-lucas-star-wars-revival/
+
+Ever since George Lucas retired from film directing following Revenge of the Sith in 2005, Star Wars has left its creator behind. Until now, that is.
+---------
+
+# Star Trek Meets The Expanse In Glorious New Release From A Sci-Fi Master (Exclusive)
+
+Comics, Masked Recs
+
+Wed, 20 May 2026 23:33:16 GMT
+
+https://screenrant.com/salvations-child-adrian-tchaikovsky-graphic-novel-preview/
+
+Exclusive: Sci-Fi master Adrian Tchaikovsky returns to his acclaimed The Final Architecture series with a new graphic novel.
+---------
+
+# Deadpool Creator Alleges Massive X-Men Reboot Failed Due To Legal Threats
+
+Marvel Comics, Deadpool, X-Men
+
+Wed, 20 May 2026 23:30:20 GMT
+
+https://screenrant.com/x-men-krakoan-era-rob-liefeld-allegations/
+
+Deadpool co-creator Rob Liefeld claims that the X-Men's most acclaimed fresh start faced legal issues that led directly to its collapse.
+---------
+
+# Netflix's Underrated 8-Part Sci-Fi Series Is 'Terminator Meets Ghost In The Shell’
+
+Streaming TV, Masked Recs
+
+Wed, 20 May 2026 23:30:20 GMT
+
+https://screenrant.com/terminator-zero-netflix-underrated-anime-ghost-in-the-shell/
+
+A Netflix sci-fi original series that blends Terminator with Ghost in the Shell ranks as one of the streamer's more underrated offerings.
+---------
+
+# The Boys Is Officially Switching Genres In 2027
+
+Streaming TV, The Boys, Vought Rising
+
+Wed, 20 May 2026 23:15:20 GMT
+
+https://screenrant.com/the-boys-changing-genres-spinoff/
+
+When The Boys comes back with its next spinoff, Vought Rising, it'll become more of a post-war period romance than a sly superhero satire.
+---------
+
+# Netflix's New 8-Part Superhero Series Is Officially A Streaming Hit After Just 5 Days
+
+TV, Masked Recs
+
+Wed, 20 May 2026 23:08:12 GMT
+
+https://screenrant.com/netflix-the-wonderfools-streaming-hit-may-2026/
+
+Netflix's new 8-episode superhero series is a breath of fresh air for the genre, and it has become a streaming smash hit in less than a week.
+---------
+
+# Xbox Drops 2 New Free Downloads, No Game Pass Required
+
+Gaming, Xbox Series X/S, Triple-A Games
+
+Wed, 20 May 2026 23:00:20 GMT
+
+https://screenrant.com/xbox-2-free-downloads-may-2026-no-game-pass/
+
+Although Xbox Game Pass has gone down in price lately, it's also still expensive for many fans - thankfully these downloads are free.
+---------
+
+# Inception Meets Blade Runner In Prime Video's Near-Perfect 8-Part Cyberpunk Series
+
+Streaming TV, Masked Recs
+
+Wed, 20 May 2026 23:00:20 GMT
+
+https://screenrant.com/the-peripheral-inception-meets-blade-runner-cyberpunk-show/
+
+The unexpected collision of Inception and Blade Runner created a thrilling new world in Amazon's overlooked science-fiction masterpiece.
+---------
+
+# Fantastic Four Officially Resurrects The One Character Nobody Expected To Return
+
+Marvel Comics, Doctor Doom, Fantastic Four, Marvel
+
+Wed, 20 May 2026 23:00:20 GMT
+
+https://screenrant.com/fantastic-four-doctor-doom-resurrect-original-valeria/
+
+Doctor Doom faces the opportunity to rewrite history and resurrect one of the most important people in his life, which may have major consequences.
+---------
+
+# Apple TV's Wild New Crime Thriller Maximum Pleasure Guaranteed Debuts With Stellar Rotten Tomatoes Score
+
+TV, Maximum Pleasure Guaranteed, Maximum Pleasure Guaranteed - Season 1
+
+Wed, 20 May 2026 22:58:48 GMT
+
+https://screenrant.com/maximum-pleasure-guaranteed-apple-tv-show-rotten-tomatoes-score/
+
+Apple TV is back with a new crime thriller series, this time led by Tatiana Maslany, and it has debuted with a stellar score on Rotten Tomatoes.
+---------
+
+# Red Dead Redemption 2 Officially Free This Week
+
+Games, Red Dead Redemption 2, open world
+
+Wed, 20 May 2026 23:35:13 GMT
+
+https://www.cbr.com/rdr2-free-download-official-playstation-plus/
+
+As of this week, PlayStation Plus users can get Red Dead Redemption 2 for free.
+---------
+
+# 10 Best Star Wars: Visions Episodes of All Time
+
+Anime, Star Wars: Visions, Star Wars
+
+Wed, 20 May 2026 23:30:13 GMT
+
+https://www.cbr.com/best-star-wars-visions-episodes-ranked-list/
+
+The greatest Star Wars: Visions episodes show how good Star Wars anime can be.
+---------
+
+# Karl Urban's Almost Human Is a Misunderstood Cyberpunk Sci-Fi Series
+
+TV, Cyberpunk, Almost Human, karl urban, Sci-Fi
+
+Wed, 20 May 2026 23:00:13 GMT
+
+https://www.cbr.com/karl-urban-almost-human-forgotten-cyberpunk-sci-fi-show/
+
+A canceled series might seem like a 'waste' of viewers' time, but Karl Urban's Almost Human is a near-perfect cyberpunk cop show and TV classic.
+---------
+
+# Steven Spielberg Classics Reworked for New Release Ahead of Upcoming Sci-Fi Blockbuster
+
+Comics, steven spielberg
+
+Wed, 20 May 2026 23:00:13 GMT
+
+https://www.cbr.com/steven-spielberg-titan-comics-graphic-novel-preview/
+
+As Spielberg's Disclosure Day draws closer, the legendary director's past films get a surprising rework in a brand new retrospective.
+---------
+
+# 10 Darkest Quotes in Star Wars Movie History
+
+Movies, Star Wars, Sci-Fi
+
+Wed, 20 May 2026 23:00:13 GMT
+
+https://www.cbr.com/darkest-star-wars-quotes-list/
+
+Take a trip to the Dark Side with some of the grittiest and most terrifying quotes from the Star Wars franchise.
+---------
+
+# Star Wars’ Most Important Series Returns to Disney+ Charts as First Movie in 7 Years Opens
+
+TV, Star Wars, The Mandalorian, Disney+
+
+Wed, 20 May 2026 22:50:59 GMT
+
+https://www.cbr.com/the-mandalorian-star-wars-success-disney-plus-may-2026/
+
+Star Wars' most important Disney+ series is having a well-deserved moment on streaming.
+---------
+
+# The Boys Creator Reveals Why 1 Former Star Turned Down Series Finale Return
+
+TV, The Boys
+
+Wed, 20 May 2026 22:46:30 GMT
+
+https://www.cbr.com/the-boys-series-finale-queen-maeve/
+
+Eric Kripke reveals why one major star opted not to return for the series finale of The Boys.
+---------
+
+# Dragon Ball Super's Zamasu Finally Makes Sense of Toyotarou's AF Manga
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Wed, 20 May 2026 22:29:13 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-return-redeem-goku-evil-son-xicor/
+
+All signs point to an upcoming return for the Dragon Ball Super manga, and the series has already set the stage to reintroduce Goku’s evil son, Xicor.
+---------
+
+# 7 Demon Slayer Characters Carried Entirely by Their Designs
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 20 May 2026 22:15:13 GMT
+
+https://www.cbr.com/demon-slayer-characters-carried-by-their-designs/
+
+These characters in Demon Slayer stand out more for their appearance than their actual depth.
+---------
+
+# Prime Video’s 2-Part Sci-Fi Saga Just Proved Why It Shouldn’t Have Been Cancelled
+
+TV News, Gen V, Prime Video, The Boys, Sci-Fi
+
+Wed, 20 May 2026 23:45:14 GMT
+
+https://collider.com/prime-video-2-part-sci-fi-show-gen-v-cancelled-streaming-success-may-2026/
+
+Gen V, the two-part Prime Video sci-fi show spun off from The Boys, is still proving why it should never have been cancelled.
+---------
+
+# Taylor Sheridan's 2-Part Neo-Western Crime Saga Is Relentless From Start to Finish
+
+Movie News, Sicario, Sicario: Day Of The Soldado, Sicario 2, Taylor Sheridan
+
+Wed, 20 May 2026 23:31:13 GMT
+
+https://collider.com/taylor-sheridan-sicario-2-day-of-the-soldado-global-streaming-success-may-2026/
+
+Taylor Sheridan's epic two-part crime saga, Sicario and Sicario: Day of the Soldado, are being binged by fans on streaming around the world.
+---------
+
+# Netflix Is Losing This 4-Part Historical Thriller, but It’s Still a Perfect Weekend Binge
+
+TV Features, TURN: Washington's Spies, Jamie Bell, Netflix, History
+
+Wed, 20 May 2026 23:24:14 GMT
+
+https://collider.com/turn-washington-spies-leaving-netflix-weekend-binge/
+
+Turn: Washington's Spies blends espionage and character-driven drama during the American Revolution and will be leaving Netflix soon!
+---------
+
+# 10 Amazing Gangster Movies That You Have Been Sleeping On
+
+Movie, Crime, A Prophet (2009), Sonatine, Chopper
+
+Wed, 20 May 2026 23:22:21 GMT
+
+https://collider.com/best-gangster-movies-you-have-been-sleeping-on/
+
+From forgotten noir gems like The Big Combo to underrated international treats like A Prophet, these gangland movies deserve way more love from fans.
+---------
+
+# MTV's Most Outrageous Sitcom Officially Arrives on Netflix for the First Time in June
+
+TV News, Beavis and Butt-Head, Beavis and Butt-Head Do America, Netflix
+
+Wed, 20 May 2026 23:16:14 GMT
+
+https://collider.com/beavis-and-butt-head-netflix-release-date-june-16-2026/
+
+After airing on MTV, Paramount+, and Comedy Central, Beavis and Butt-Head will make its streaming debut on Netflix in June. Here's all to know.
+---------
+
+# 8 Perfect Prime Video Shows Where Every Episode Is a 10/10, No Notes
+
+TV, Prime Video, Fleabag, Undone, Good Omens
+
+Wed, 20 May 2026 23:12:13 GMT
+
+https://collider.com/prime-video-shows-every-episode-perfect/
+
+The Legend of Vox Machina, 12 Monkeys, Fleabag, Undone, and more make up our list of perfect Prime Video shows.
+---------
+
+# Sydney Sweeney's Steamy New Thriller Franchise Just Got Even Bigger
+
+Movie News, Sydney Sweeney, The Housemaid, Thriller, Lionsgate
+
+Wed, 20 May 2026 23:00:14 GMT
+
+https://collider.com/sydney-sweeney-thriller-franchise-the-housemaid-stage-show/
+
+Lionsgate announced a stage adaptation of Sydney Sweeney's steamy new mystery thriller franchise, The Housemaid. Here's what you need to know.
+---------
+
+# Apple TV’s Near-Perfect 5-Part Spy Show Proves the Anti-Netflix Strategy Still Works
+
+TV Features, Slow Horses, Apple TV, Gary Oldman
+
+Wed, 20 May 2026 22:57:14 GMT
+
+https://collider.com/apple-tv-best-thriller-slow-horses-anti-netflix-renewal-strategy/
+
+By giving Slow Horses time to breathe and find an audience, Apple developed one of the best spy shows on television.
+---------
+
+# 2026's Highest-Grossing Sci-Fi Levels Up After Historic Box Office Surge
+
+Movie News, Sci-Fi, The Super Mario Galaxy Movie, Jurassic World Fallen Kingdom, Box Office
+
+Wed, 20 May 2026 22:45:13 GMT
+
+https://collider.com/2026-sci-fi-sequel-super-mario-galaxy-movie-overtakes-jurassic-world-fallen-kingdom-box-office-967-million/
+
+The highest-grossing sci-fi movie of 2026 so far just dethroned the third most expensive movie ever made at the domestic box office.
+---------
+
+# CBS Is Making Room for a New Spooky Sitcom, but ‘Ghosts’ Isn’t Going Anywhere [Exclusive]
+
+Exclusives, Ghosts, Eternally Yours, CBS, Sitcom
+
+Wed, 20 May 2026 22:31:13 GMT
+
+https://collider.com/ghost-crossover-potential-new-vampire-sitcom-eternally-yours-cbs/
+
+Ghosts showrunners The Joes discuss Season 6's production plans amid surprising schedule changes and what to expect from their new vampire sitcom.
+---------
+
+# 'The Testaments' Officially Renewed for Season 2 by Hulu
+
+TV News, The Testaments, Hulu
+
+Wed, 20 May 2026 23:29:48 GMT
+
+https://movieweb.com/the-testaments-renewed-season-2-hulu/
+
+The first season of the series has yet to conclude.
+---------
+
+# Henry Cavill & Guy Ritchie's WWII Action Movie 'The Ministry of Ungentlemanly Warfare Finds Streaming Success on Peacock
+
+Movie News, The Ministry of Ungentlemanly Warfare, Peacock, Hot on Streaming, Henry Cavill, Action
+
+Wed, 20 May 2026 23:00:18 GMT
+
+https://movieweb.com/ministry-of-ungentlemanly-warfare-henry-cavill-guy-ritchie-streaming-success-peacock-may-2026-action/
+
+Henry Cavill, Alan Ritchson, and Guy Ritchie's WWII action war movie 'The Ministry of Ungentlemanly Warfare' is a streaming success on Peacock.
+---------
+
 # Stranger Things' New Episodes Coming This Fall Won't Solve The Big Eleven Mystery
 
 Streaming TV, Stranger Things: Tales from '85, Stranger Things
