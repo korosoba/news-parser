@@ -1,3 +1,267 @@
+# Goku's Entire Dragon Ball Family Tree, Explained
+
+Anime, Dragon Ball
+
+Wed, 20 May 2026 00:00:24 GMT
+
+https://screenrant.com/goku-family-tree-dragon-ball-explained/
+
+Goku has an extensive family in Dragon Ball, all of whom have played roles of varying importance over the years. Here's every member of Goku's family.
+---------
+
+# 3 Years Later, Disney+'s 3-Part Sci-Fi Series With 90% RT Score Officially Returns This Week
+
+TV, Masked Recs
+
+Wed, 20 May 2026 00:00:21 GMT
+
+https://screenrant.com/the-mandalorian-disney-plus-return-theatrical-movie/
+
+A major new theatrical release serves as the follow-up to a popular and acclaimed Disney+ series which transformed the future of its franchise.
+---------
+
+# PlayStation Quietly Drops Free Game, No PlayStation Plus Needed
+
+Gaming, PlayStation, PlayStation Plus, Indie, PC
+
+Wed, 20 May 2026 00:00:21 GMT
+
+https://screenrant.com/playstation-free-game-may-2026-no-ps-plus-cake-maker/
+
+A new game has been dropped for PlayStation players for free, out of nowhere, and you won’t need a PS Plus membership to claim and play it.
+---------
+
+# Casting The Expendabelles: 10 Perfect Actresses For The Expendables Spinoff
+
+Movies, The Expendables, ExpendaBelles
+
+Wed, 20 May 2026 00:00:21 GMT
+
+https://screenrant.com/expendables-spinoff-expendabelles-casting-choices/
+
+The female-led spinoff to Sylvester Stallone’s 2010 box office hit The Expendables is back on, and needs an exciting and dynamic cast to work.
+---------
+
+# 6 Classic Avengers Characters We're Still Waiting To See In The MCU
+
+Movies, Marvel Cinematic Universe
+
+Wed, 20 May 2026 00:00:21 GMT
+
+https://screenrant.com/classic-avengers-still-not-in-the-mcu/
+
+The vast majority of the Avengers have already appeared in the MCU in some form, but these six classic characters still haven't shown up yet.
+---------
+
+# Syfy's 4-Part Post-Apocalyptic Series That's Dark Meets The Last Of Us Is One Of Its Best
+
+Classic TV, Masked Recs
+
+Tue, 19 May 2026 23:30:21 GMT
+
+https://screenrant.com/12-monkeys-syfy-post-apocalyptic-time-travel-show/
+
+Syfy's 12 Monkeys is an adaptation of a classic Brad Pitt and Bruce Willis sci-fi film, but it's closer to shows like Dark or The Last of Us.
+---------
+
+# DC Names Superman and Batman's Official Replacements in Mainstream Lore
+
+Comics, Batman, Superman
+
+Tue, 19 May 2026 23:30:21 GMT
+
+https://screenrant.com/batman-superman-replaced-fathers-alfred/
+
+For 85 years, Batman and Superman have claimed the title of “World’s Finest.” However, this summer DC is shaking things up.
+---------
+
+# Quentin Tarantino & Robert De Niro's Crime Thriller Adaptation Officially Releases On Major Streamer This Week
+
+Movies, Masked Recs
+
+Tue, 19 May 2026 23:25:40 GMT
+
+https://screenrant.com/quentin-tarantino-jackie-brown-peacock-streaming-release-may-2026/
+
+Quentin Tarantino and Robert De Niro's crime thriller adaptation is officially releasing on a major streaming service later this week.
+---------
+
+# Marvel Officially Unveils New Codename and Costume for Doctor Strange's New Appearance
+
+Comics, Doctor Strange
+
+Tue, 19 May 2026 23:00:22 GMT
+
+https://screenrant.com/doctor-strange-new-codename-redesign-costume/
+
+Meet LORD STRANGE!
+---------
+
+# Final Fantasy 6 Remake Trailer Kicks Up Serious Controversy
+
+Gaming, Final Fantasy
+
+Tue, 19 May 2026 23:00:22 GMT
+
+https://screenrant.com/final-fantasy-6-ai-teaser-square-enix/
+
+A fan-made trailer for a hypothetical Final Fantasy 6 remake went viral for all the wrong reasons, attracting attention from Square Enix devs.
+---------
+
+# Soulcalibur Needs a Movie Adaptation After Mortal Kombat and Street Fighter
+
+Movies, Mortal Kombat, Street Fighter, Soulcalibur VI
+
+Wed, 20 May 2026 00:00:14 GMT
+
+https://www.cbr.com/soulcalibur-fighting-game-deserves-movie-adaptation/
+
+Live-action adaptations of fighting games are on the rise, and the Soulcalibur franchise is a perfect candidate for the next Hollywood blockbuster.
+---------
+
+# Rick and Morty Officially Reveals Its Future 5 Days Before Season 9 Return
+
+Movies, Rick and Morty, Sci-Fi, Animation
+
+Tue, 19 May 2026 23:12:24 GMT
+
+https://www.cbr.com/rick-and-morty-movie-offical-dan-harmon/
+
+Big things are ahead for Rick and Morty beyond Season 9.
+---------
+
+# Horror Icon John Carpenter Confirms An Addition To His Upcoming Comic That Fans Will Need
+
+Comics, John Carpenter
+
+Tue, 19 May 2026 23:00:14 GMT
+
+https://www.cbr.com/john-carpenter-confirms-cathedral-comic-music-album-tie-in-first-track/
+
+John Carpenter is back with an exciting mixed media project.
+---------
+
+# McDonald’s Reveals the Feast of the Gods with New Saint Seiya Collab
+
+Anime, Saint Seiya, mcdonald's
+
+Tue, 19 May 2026 23:00:14 GMT
+
+https://www.cbr.com/saint-seiya-mcdonalds/
+
+40 years after the debut of the manga and anime, Saint Seiya cries out to the gods with a new wave of flavorful sandwiches at McDonald's Japan.
+---------
+
+# 10 Heaviest Sci-Fi Movies of All Time, Ranked
+
+Movies, Science Fiction, Interstellar
+
+Tue, 19 May 2026 23:00:14 GMT
+
+https://www.cbr.com/heaviest-sci-fi-movies-list/
+
+With sci-fi's ability to show humanity at its very best and at its lowest depths, some films still plague its viewers' minds weeks after watching it.
+---------
+
+# After Years of Debate, Head of Lucasfilm Officially Reveals The Correct Order to Watch the Star Wars Movies
+
+Exclusives, The Mandalorian and Grogu, Jon Favreau, Dave Filoni, Star Wars
+
+Wed, 20 May 2026 00:02:38 GMT
+
+https://collider.com/what-order-to-watch-star-wars-movies-jon-favreau-dave-filoni-mandalorian-and-grogu-interview/
+
+Jon Favreau and Dave Filoni discuss The Mandalorian & Grogu, The Mandalorian's lost Season 4, and the future of Star Wars.
+---------
+
+# Netflix's Matt Damon and Ben Affleck Crime Thriller Officially Makes Streaming History
+
+Movie News, The Rip, Netflix, Matt Damon, Ben Affleck
+
+Wed, 20 May 2026 00:00:14 GMT
+
+https://collider.com/matt-damon-ben-affleck-crime-thriller-netflix-viewership-bonus-biggest-movie-since-happy-gilmore-2/
+
+Matt Damon and Ben Affleck's crime thriller The Rip has set another Netflix record, passing the one set by Adam Sandler's Happy Gilmore 2.
+---------
+
+# HBO’s Biggest Sci-Fi Series of 2026 Officially Recruits an ‘Ozark’ Star
+
+TV News, Lanterns, Laura Linney, Ozark, HBO
+
+Tue, 19 May 2026 23:45:15 GMT
+
+https://collider.com/hbo-biggest-2026-sci-fi-series-lanterns-cast-laura-linney-ozark/
+
+Ozark star Laura Linney has officially joined the cast of the biggest HBO sci-fi series of 2026, Lanterns. Here's what we know about her role.
+---------
+
+# After 8 Seasons, ABC's #1 Show Desperately Needs a Villain Reset in Season 9
+
+TV Features, The Rookie, ABC, Nathan Fillion, Alexi Hawley
+
+Tue, 19 May 2026 23:42:15 GMT
+
+https://collider.com/the-rookie-season-9-abc-needs-a-villain-reset/
+
+The Rookie's Season 8 finale proves that the show needs a complete rehaul of its villains after the loss of Monica Stevens.
+---------
+
+# 'The Rookie' Season 8 Finale Breaks a Major Record Ahead of Season 9
+
+TV News, The Rookie, Nathan Fillion, ABC, TV Ratings
+
+Tue, 19 May 2026 23:30:15 GMT
+
+https://collider.com/the-rookie-season-8-finale-ratings-streaming-records-viewership-abc/
+
+ABC's hit crime drama The Rookie secured a new streaming record with its Season 8 finale amid anticipation for its ninth season. Find out more here.
+---------
+
+# Jon Bernthal's Punisher Needs To Officially Move On From 1 Aspect of the Character
+
+TV Features, Jon Bernthal, The Punisher, The Punisher: One Last Kill, Marvel
+
+Tue, 19 May 2026 23:18:14 GMT
+
+https://collider.com/the-punisher-one-last-kill-jon-bernthal-character-move-on-trauma/
+
+Jon Bernthal's Punisher needs to evolve beyond constant references to his tragic past, allowing for deeper character development in the MCU.
+---------
+
+# 10 Greatest Directors Who Never Directed a Best Picture Oscar Nominee
+
+Movie, Hayao Miyazaki, Akira Kurosawa, Sergio Leone, Sam Raimi
+
+Tue, 19 May 2026 23:15:14 GMT
+
+https://collider.com/greatest-directors-never-directed-best-picture-oscar-nominee/
+
+Plenty of legendary filmmakers have never directed a Best Picture Oscar nominee, including the likes of Hayao Miyazaki, Sam Raimi, and John Woo.
+---------
+
+# Apple TV’s Gripping 10/10 British Detective Series Hits Gigantic Streaming Milestone
+
+TV News, Apple TV, Peter Capaldi, Criminal Record, Cush Jumbo
+
+Tue, 19 May 2026 23:15:14 GMT
+
+https://collider.com/criminal-record-apple-tv-gripping-british-mystery-series-streaming-milestone-100-days/
+
+One of Apple TV's best-kept secrets is Criminal Record, a detective thriller that recently hit a massive streaming milestone.
+---------
+
+# Apple TV's Next Big Sci-Fi Series Officially Premieres in Just 10 Days
+
+TV News, Star City, Rhys Ifans, Sci-Fi, Apple TV
+
+Tue, 19 May 2026 23:00:15 GMT
+
+https://collider.com/apple-tv-next-big-sci-fi-series-star-city-for-all-mankind-spin-off-release-date-may-29/
+
+Apple TV hopes to continue its sci-fi hot streak with the upcoming Star City, a spin-off to For All Mankind. Find out when the show premieres.
+---------
+
 # Nintendo Direct Leak Suggests Fans Should Get Ready
 
 Gaming, Nintendo Direct, Nintendo
