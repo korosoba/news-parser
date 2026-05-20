@@ -1,3 +1,377 @@
+# How Spider-Man's New Appearance Permanently Changes His Powers, Confirmed By Marvel
+
+Marvel Comics, Spider-Man, Marvel
+
+Wed, 20 May 2026 20:00:20 GMT
+
+https://screenrant.com/spider-man-spidersense-powers-change/
+
+Spider-Man is set to awaken the full potential of one of his most useful superpowers, which could give him a massive power upgrade in his new arc.
+---------
+
+# Xbox Game Pass Officially Getting One Of The Greatest JRPGs Ever Made
+
+Gaming, Xbox Game Pass, Final Fantasy
+
+Wed, 20 May 2026 20:00:20 GMT
+
+https://screenrant.com/xbox-game-pass-greatest-rpg-ever-made/
+
+Xbox Game Pass is getting a new round of games, and this batch includes one of the greatest JRPGs of all time. Don't miss out on playing it for free.
+---------
+
+# One Of The Greatest Cyberpunk Shows Of All Time Is Officially Coming Back
+
+Streaming TV, Masked Recs
+
+Wed, 20 May 2026 20:00:20 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-2-netflix-sequel-exciting/
+
+Four years after it first arrived on screens, a timeless cyberpunk series is defying fate and returning with a brand new standalone story.
+---------
+
+# Michael Bay Officially Adapting His First War Movie In 10 Years
+
+Movies, Michael Bay
+
+Wed, 20 May 2026 19:47:11 GMT
+
+https://screenrant.com/michael-bay-operation-epic-fury-war-movie/
+
+Michael Bay is officially adapting his first war movie in a decade, following the controversial 13 Hours: The Secret Soldiers of Benghazi in 2016.
+---------
+
+# Chris Pratt's $303M 'Titanic Meets Gravity' Space Sci-Fi Officially Releases On Netflix In Just 2 Weeks
+
+Movies, Masked Recs
+
+Wed, 20 May 2026 19:36:44 GMT
+
+https://screenrant.com/chris-pratt-passengers-netflix-streaming-release-june-2026/
+
+Chris Pratt's $303 million space sci-fi film, famously described as "Titanic meets Gravity," officially releases on Netflix in just two weeks.
+---------
+
+# Margo's Got Money Troubles Season 2: Confirmation, Story & Everything We Know
+
+Streaming TV, Margo's Got Money Troubles
+
+Wed, 20 May 2026 19:30:20 GMT
+
+https://screenrant.com/margos-got-money-troubles-season-2-confirmation-story-everything-we-know/
+
+Margo's Got Money Troubles has been a critical darling for Apple TV, and the streaming platform has officially greenlit the series for season 2.
+---------
+
+# The Creator Of Japan's Most Controversial Isekai Breaks Silence On Genre's Reported Death
+
+Anime, Isekai
+
+Wed, 20 May 2026 19:22:15 GMT
+
+https://screenrant.com/mushoku-tensei-creator-isekai-death-response/
+
+Following a financial report suggesting that Isekai are headed for extinction, the creator of the genre' most infamous anime broke his silence.
+---------
+
+# Netflix's Once Upon A Time In Hollywood Sequel Delays Release Date For IMAX Debut
+
+Movies, Once Upon a Time in Hollywood, The Adventures of Cliff Booth
+
+Wed, 20 May 2026 19:20:42 GMT
+
+https://screenrant.com/brad-pitt-adventures-of-cliff-booth-ouatih-netflix-imax-release-november-2026/
+
+The release date for Netflix's Once Upon a Time... in Hollywood sequel The Adventures of Cliff Booth is pushed back to make room for an IMAX run.
+---------
+
+# The Stakes Couldn't Be Higher For A $3.3 Billion Franchise's Return This Year
+
+New Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Wed, 20 May 2026 19:20:20 GMT
+
+https://screenrant.com/hunger-games-franchise-return-2026-stakes-high/
+
+A massively popular franchise that's made over $3.3 billion at the box office returns later this year, and the stakes couldn't be higher.
+---------
+
+# Hugh Jackman’s Record-Breaking Hit New Movie Officially Releases On Netflix Next Month
+
+Movies, Masked Recs, Netflix
+
+Wed, 20 May 2026 19:03:09 GMT
+
+https://screenrant.com/hugh-jackman-song-sung-blue-netflix-streaming-release-june-2026/
+
+Hugh Jackman's latest hit movie is set to be released on Netflix next month, following its highest Rotten Tomatoes score yet for the star.
+---------
+
+# The Umbrella Academy Confirmed to Return After Divisive Ending
+
+Comics, The Umbrella Academy
+
+Wed, 20 May 2026 20:01:13 GMT
+
+https://www.cbr.com/the-umbrella-academy-plan-b-series-details/
+
+Gerard Way returns to The Umbrella Academy for a new miniseries that expands the universe's lore after its divisive Netflix ending.
+---------
+
+# It's Official, Wuthering Heights Failed Because of Saltburn
+
+Movies, Wuthering Heights, Saltburn, Emerald Fennell
+
+Wed, 20 May 2026 20:01:13 GMT
+
+https://www.cbr.com/saltburn-wuthering-heights-gothic-thriller-replacement/
+
+Despite Emerald Fennell's edgy reputation, Wuthering Heights didn't live up to its scandalous promise.
+---------
+
+# Goku Takes Flight in Rare 32-Year-Old Dragon Ball Ultimate Draft Design
+
+Anime, Dragon Ball
+
+Wed, 20 May 2026 20:01:13 GMT
+
+https://www.cbr.com/dragon-ball-goku-ultimate-draft-design/
+
+Dragon Ball fans get the chance to check out a classic piece of art that hasn't been officially published in over three decades.
+---------
+
+# Marvel's Wolverine Officially Returns June 2026 With Big Reveal
+
+Games, Marvel's Wolverine, PlayStation 5
+
+Wed, 20 May 2026 19:50:13 GMT
+
+https://www.cbr.com/marvels-wolverine-ps5-official-reveal-june-2026-state-of-play/
+
+Sony has announced a State of Play for June 2026, which includes an extended look at the upcoming Marvel's Wolverine, as well as other PS5 games.
+---------
+
+# 10 Star Wars Collectibles So Good They're Officially Selling Out in 2026
+
+Games, Star Wars
+
+Wed, 20 May 2026 19:35:13 GMT
+
+https://www.cbr.com/best-star-wars-collectibles-in-2026/
+
+The best Star Wars collectibles of 2026 are already selling out fast.
+---------
+
+# Say Goodbye to Hulu’s Shutdown Timeline as Disney Quietly Reverses Major Streaming Shift
+
+TV, Hulu, Disney+
+
+Wed, 20 May 2026 19:34:11 GMT
+
+https://www.cbr.com/hulu-streaming-shutdown-timeline-disney/
+
+Disney has sneakily changed its plans for Hulu's future.
+---------
+
+# Midnight Spider-Man Writer Addresses Controversy Surrounding Upcoming Universe
+
+Comics, Spider-Man, Marvel Comics
+
+Wed, 20 May 2026 19:23:43 GMT
+
+https://www.cbr.com/midnight-spider-man-phillip-kennedy-johnson-comments/
+
+Midnight Spider-Man scribe Phillip Kennedy Johnson breaks down why the Midnight Universe was never going to be what some fans expected.
+---------
+
+# Zelda Fans Have 2 Dates to Watch for the OOT Switch 2 Remake
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Wed, 20 May 2026 19:16:13 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-release-date-speculation-theory/
+
+Amid a flurry of rumors and leaks surrounding the Ocarina of Time remake, two important dates stand out for Zelda fans: June 16 and November 19.
+---------
+
+# HBO Max's 10/10 Period Drama Masterpiece Is Officially a Streaming Hit Ahead of New Season
+
+TV, The Gilded Age, HBO Max, Drama
+
+Wed, 20 May 2026 19:00:13 GMT
+
+https://www.cbr.com/the-gilded-age-period-drama-hbo-max-success-may-2026/
+
+HBO Max's Downton Abbey replacement, The Gilded Age, is a hit on streaming ahead of highly anticipated return.
+---------
+
+# 10 Most Universally Beloved Martial Arts Movies of the Last 50 Years, Ranked
+
+Movies, Ip Man, The Raid
+
+Wed, 20 May 2026 19:00:13 GMT
+
+https://www.cbr.com/most-universally-beloved-martial-arts-movies-last-50-years-list/
+
+The past 50 years delivered amazing martial arts films, and some remain praised even now.
+---------
+
+# Netflix’s New 8-Part Superhero Series Is Officially Taking Over the World
+
+TV News, Netflix, The WONDERfools, Comedy, Drama
+
+Wed, 20 May 2026 20:00:14 GMT
+
+https://collider.com/netflix-stan-lee-sci-fi-superhero-series-the-wonderfools-streaming-success-may-2026/
+
+Netflix’s delayed superhero experiment is suddenly exploding worldwide, making it a must-watch for The Boys fans once the Prime Video series finishes.
+---------
+
+# Quentin Tarantino’s First Movie in 7 Years Is Officially Coming to Theaters Ahead of Netflix Release
+
+Movie News, The Adventures of Cliff Booth, Once Upon a Time in Hollywood, Brad Pitt, Quentin Tarantino
+
+Wed, 20 May 2026 19:26:56 GMT
+
+https://collider.com/new-quentin-tarantino-movie-the-adventures-of-cliff-booth-theatrical-release-date-imax-netflix/
+
+Quentin Tarantino’s first movie in 7 years officially heads to IMAX as Netflix confirms limited run of the Brad Pitt-led feature ahead of streaming.
+---------
+
+# 10 Action Movies With the Greatest Dialogue Ever
+
+Movie, Action, The Good, the Bad and the Ugly, Heat
+
+Wed, 20 May 2026 19:19:13 GMT
+
+https://collider.com/action-movies-best-dialogue-ever/
+
+While good dialogue isn't something you think of when considering action, movies like Die Hard and Heat prove the genre can indeed excel in that area.
+---------
+
+# Win Tickets to Our Early Screening of Explosive Martial Arts Action Thriller 'The Furious'
+
+Exclusives, The Furious, Screening, Joe Taslim, Action
+
+Wed, 20 May 2026 18:45:11 GMT
+
+https://collider.com/the-furious-screening-joe-taslim-miao-xie-kenji-tanigaki/
+
+Details on how to enter for your chance to win free tickets to our early screening of The Furious, starring Joe Taslim and Miao Xie.
+---------
+
+# 46 Years Later, ‘Star Wars’ Greatest Quote Was Rewritten in This Sci-Fi Spin-Off
+
+TV Features, Star Wars, Andor, Yoda
+
+Wed, 20 May 2026 17:52:13 GMT
+
+https://collider.com/greatest-star-wars-quote-yoda-do-or-do-not-there-is-no-try-andor-improved/
+
+Andor completely changes the meaning behind Yoda’s iconic “Do or do not” quote from The Empire Strikes Back.
+---------
+
+# All 7 Pre-Disney Star Wars Movies, Ranked
+
+Movie, Star Wars, The Empire Strikes Back, Return of the Jedi, Star Wars: Episode III - Revenge of the Sith
+
+Wed, 20 May 2026 17:42:13 GMT
+
+https://collider.com/star-wars-movies-pre-disney-ranked/
+
+There were seven theatrically released Star Wars movies made before Disney bought Lucasfilm, but which of them stands as the best overall?
+---------
+
+# 'Bosch' Star's New '80s-Set Crime Thriller Packs a Punch in First Teaser Trailer
+
+Movie News, The Westies, Bosch, J.K. Simmons, Titus Welliver
+
+Wed, 20 May 2026 17:36:36 GMT
+
+https://collider.com/the-westies-teaser-trailer-titus-welliver-crime-thriller/
+
+Watch the first teaser trailer for Titus Welliver's gritty Bosch follow-up, the '80s-set crime thriller The Westies.
+---------
+
+# 'The Adventures of Cliff Booth' Sets Netflix Streaming Date & IMAX Theatrical Release
+
+Movie News, The Adventures of Cliff Booth, Netflix
+
+Wed, 20 May 2026 19:52:04 GMT
+
+https://movieweb.com/the-adventures-of-cliff-booth/
+
+'The Adventures of Cliff Booth,' produced by Netflix, had its streaming release date and IMAX theatrical release date announced.
+---------
+
+# 'The Boys' Creator Eric Kripke Breaks Down Series Finale's Final Battle
+
+TV News, The Boys, Eric Kripke
+
+Wed, 20 May 2026 19:33:12 GMT
+
+https://movieweb.com/the-boys-final-battle-explained-eric-kripke/
+
+The showrunner of the hit Prime Video series broke down the bloody conclusion.
+---------
+
+# Netflix's 'Devil May Cry' Action Fantasy Series Sufferes Bad Viewership for Season 2
+
+TV News, Devil May Cry, Netflix, Hot on Streaming
+
+Wed, 20 May 2026 19:30:19 GMT
+
+https://movieweb.com/devil-may-cry-season-2-viewership-lower-acion-netflix/
+
+Netflix's 98% rated action fantasy video game series 'Devil May Cry' suffers a poor viewership drop with new season.
+---------
+
+# Ryan Gosling Officially Recast With Matt Damon in Daniels' New Sci-Fi Action Thriller
+
+Movie News, Daniel Scheinert, Ryan Gosling, Sci-Fi, Matt Damon
+
+Wed, 20 May 2026 19:06:55 GMT
+
+https://movieweb.com/ryan-gosling-matt-damon-the-daniels-sci-fi-thriller/
+
+The Daniels have a stellar new lead lined up to replace Ryan Gosling in their next complexly layered sci-fi thriller.
+---------
+
+# 'Abbott Elementary' Creator Quinta Brunson Developing Betty Boop Movie
+
+Movie News, Abbott Elementary, Quinta Brunson, Betty Boop
+
+Wed, 20 May 2026 18:32:10 GMT
+
+https://movieweb.com/quinta-brunson-betty-boop-movie/
+
+Quinta Brunson is teaming up with Mark Fleischer, the grandson of Betty Boop creator Max Fleischer, for the character's first theatrical feature film.
+---------
+
+# 'The Boys' Series Finale Recap & Review: A Rushed but Satisfying Conclusion
+
+TV Reviews, The Boys
+
+Wed, 20 May 2026 17:51:45 GMT
+
+https://movieweb.com/the-boys-season-5-episode-8-review/
+
+It might not be as diabolical as expected, but 'The Boys' series finale gets the job done.
+---------
+
+# 'Masters of the Universe' Trailer Officially Reveals the Heroic Warriors in Action
+
+Movie News, Masters of the Universe
+
+Wed, 20 May 2026 17:38:19 GMT
+
+https://movieweb.com/masters-of-the-universe-final-trailer/
+
+The final 'Masters of the Universe' trailer is loaded with character reveals and action!
+---------
+
 # Tatiana Maslany's Apple TV+ Thriller Promises "Enjoyable Anxiety"
 
 Interviews, Maximum Pleasure Guaranteed, Tatiana Maslany, Apple TV
