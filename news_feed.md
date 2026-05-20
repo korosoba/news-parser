@@ -1,3 +1,443 @@
+# Tatiana Maslany's Apple TV+ Thriller Promises "Enjoyable Anxiety"
+
+Interviews, Maximum Pleasure Guaranteed, Tatiana Maslany, Apple TV
+
+Wed, 20 May 2026 17:35:35 GMT
+
+https://screenrant.com/maximum-pleasure-guaranteed-apple-tv-enjoyable-anxiety-tatiana-maslany-creators-cast/
+
+Apple TV+'s Maximum Pleasure Guaranteed follows Tatiana Maslany as divorced mom Paula Sanders caught in a web of murder, blackmail, and deceit. Creators and stars discuss the high-intensity series.
+---------
+
+# Peter Jackson's Lord Of The Rings Franchise Is Officially Switching Genres
+
+Movies, The Lord of the Rings
+
+Wed, 20 May 2026 17:30:20 GMT
+
+https://screenrant.com/lord-of-the-rings-peter-jackson-franchise-genre-change/
+
+The Lord of the Rings film franchise is expanding, but Hunt for Gollum and Shadow of the Past won't fit the same sort of mold as their predecessors.
+---------
+
+# Avengers: Doomsday Is A "Complete Reinvention" For Tony Stark & Steve Rogers' "Unresolved" Dynamic, Teases Russo Brothers
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Wed, 20 May 2026 17:28:33 GMT
+
+https://screenrant.com/avengers-doomsday-steve-rogers-tony-stark-dynamic-reinvention-russos/
+
+The directors of Avengers: Doomsday have revealed how Iron Man and Captain America's unresolved dynamic shifts as Steve Rogers and Doctor Doom rise.
+---------
+
+# Netflix's Blockbuster Action Thriller With Two Of Its Biggest Stars Is Heading For A Huge Accomplishment
+
+New Movies, Netflix, Masked Recs
+
+Wed, 20 May 2026 17:20:20 GMT
+
+https://screenrant.com/netflix-apex-movie-viewership-top-10-finish/
+
+Netflix recently released a major action thriller and has found a lot of success with it, positioning it to achieve a huge accomplishment.
+---------
+
+# Titus Welliver's Gritty New Crime Series Unveiled In The Westies' First Teaser Trailer
+
+TV, The Westies, The Westies - Season 1
+
+Wed, 20 May 2026 17:19:39 GMT
+
+https://screenrant.com/titus-welliver-the-westies-trailer/
+
+Titus Welliver's gritty new crime series has been unveiled in the first teaser trailer for The Westies, coming to streaming this summer.
+---------
+
+# Apple TV's Slow Horses Season 6 Has "Slightly Different Flavor" After Showrunner Exit
+
+TV, Slow Horses - Season 6, Slow Horses
+
+Wed, 20 May 2026 17:01:57 GMT
+
+https://screenrant.com/apple-tv-slow-horses-season-6-differece-showrunner-christopher-chung/
+
+Apple TV's Slow Horses season 6 will have a “slightly different flavor” after showrunner Will Smith’s exit, says Roddy actor Christopher Chung.
+---------
+
+# Sydney Sweeney's Dark Handmaid's Tale Role, Explained
+
+Streaming TV, The Handmaid's Tale
+
+Wed, 20 May 2026 17:00:24 GMT
+
+https://screenrant.com/sydney-sweeney-handmaids-tale-role-explained/
+
+Sydney Sweeney is known for playing young adults in tough, intense situations, and her role  as Eden in The Handmaid's Tale is significant.
+---------
+
+# Speed Racer's Continued Cult Classic Legacy Still Has Emile Hirsch In Shock
+
+Movies, Speed Racer, Emile Hirsch
+
+Wed, 20 May 2026 17:00:22 GMT
+
+https://screenrant.com/speed-racer-movie-cult-classic-legacy-emile-hirsch-shocked/
+
+Emile Hirsch reflects on Speed Racer's continued cult classic legacy, why it's been a more "organic" evolution than many others, and the 4K remaster.
+---------
+
+# Pierce Brosnan Teaches Young Naz To Fight In Giant Clip
+
+Exclusive, Pierce Brosnan, Giant
+
+Wed, 20 May 2026 17:00:22 GMT
+
+https://screenrant.com/video/giant-movie-pierce-brosnan-prince-naz-boxing-clip/
+
+Exclusive: ScreenRant presents a clip from Giant, detailing the true story of boxing champion Naz (Amir El-Masry) and his trainer (Pierce Brosnan).
+---------
+
+# DC Announces Brand New Green Lantern Color for Lobo's Next Appearance
+
+Comics, Green Lantern, Lobo
+
+Wed, 20 May 2026 17:00:20 GMT
+
+https://screenrant.com/green-lantern-new-color-mauve-lobo/
+
+Meet the new Lantern!
+---------
+
+# Boots Riley & LaKeith Stanfield Break Down the Wildest Scenes in I Love Boosters
+
+Movies, I Love Boosters
+
+Wed, 20 May 2026 17:32:33 GMT
+
+https://www.cbr.com/video/boots-riley-lakeith-stanfield-break-down-the-wildest-scenes-in-i-love-boosters/
+
+Boots Riley and LaKeith Stanfield break down the surreal world of I Love Boosters, including the movie’s accidental iconic moments, Keke Palmer’s scene-stealing energy, and the chaos behind bringing the film to life.The Sorry to Bother You collaborators discuss the real-life experiences that inspired the story, why LaKeith embraced the mystery of his character, and the unforgettable visuals that made Boots Riley feel like he was creating something audiences had never seen before. They also reveal how a production “mess up” became one of the movie’s most memorable shots and why Keke Palmer feels like she’s “from the future.”For fans of surreal comedy, stylish filmmaking, and Boots Riley’s signature storytelling, this conversation is packed with behind-the-scenes insight.
+---------
+
+# House of the Dragon Creator Fires Back at Toxic Fandom: “We Have So Turned Against Ourselves”
+
+TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Wed, 20 May 2026 17:31:32 GMT
+
+https://www.cbr.com/house-of-the-dragon-creator-fires-back-at-toxic-fandom/
+
+The House of the Dragon creator is fed up and unleashed on toxic fans and haters.
+---------
+
+# Apple TV's 87% Masterpiece Officially Resurrected Hard Sci-Fi for the 2020s
+
+TV, Apple TV, Foundation, Sci-Fi
+
+Wed, 20 May 2026 17:30:13 GMT
+
+https://www.cbr.com/apple-tv-foundation-officially-resurrected-hard-sci-fi/
+
+Apple TV's foray into sci-fi has delivered many great shows, including one that has successfully reintroduced hard sci-fi for a new generation.
+---------
+
+# Fan Hype Is Officially Destroying GTA 6
+
+Games, gta, Grand Theft Auto, rockstar games
+
+Wed, 20 May 2026 17:30:13 GMT
+
+https://www.cbr.com/fan-hype-destroying-gta-6/
+
+GTA 6 expectations have grown beyond what any game can deliver. Is the decade of hype already setting Rockstar’s biggest release up to disappoint?
+---------
+
+# Sega's Best JRPG Gets Even Better This May With New Persona 3 Update
+
+Anime, Persona, Persona 3 Reload, Persona 5, sega, atlus
+
+Wed, 20 May 2026 17:00:14 GMT
+
+https://www.cbr.com/sega-jrpg-persona-5-phantom-x-may-2026-update/
+
+Sega's best JRPG is crossing over with Persona 3 in the latest May 2026 update.
+---------
+
+# 10 Best-Selling Manga Of All Time & How Many Sold As of 2026
+
+Anime, Dragon Ball, One Piece, Eiichiro Oda, Akira Toriyama, Doraemon, golgo 13, Detective Conan, Naruto, Demon Slayer: Kimetsu no Yaiba, Slam Dunk, Manga
+
+Wed, 20 May 2026 16:30:13 GMT
+
+https://www.cbr.com/best-selling-manga-how-many-copies-sold/
+
+Outselling other popular manga by hundreds of millions, the highest-selling manga of all time take no prisoners on their way to the top.
+---------
+
+# Milly Alcock Reveals Why She Nearly Turned Down Supergirl
+
+Movies, Supergirl
+
+Wed, 20 May 2026 16:27:24 GMT
+
+https://www.cbr.com/milly-alcock-nearly-turned-down-supergirl/
+
+Milly Alcock almost rejected the role of the DCU's Supergirl.
+---------
+
+# Milly Alcock's Next DCU Appearance After Supergirl Revealed
+
+Movies, Man of Tomorrow, DCU
+
+Wed, 20 May 2026 16:24:38 GMT
+
+https://www.cbr.com/milly-alcock-next-dcu-appearance-man-of-tomorrow/
+
+Milly Alcock's third DC Universe appearance as Supergirl has just been confirmed by DC Studios.
+---------
+
+# New Batman & Robin Sequel Confirmed, With Catwoman Set to Return
+
+Comics, Batman and Robin
+
+Wed, 20 May 2026 16:21:42 GMT
+
+https://www.cbr.com/batman-and-robin-year-one-dynamic-duos-1-release-date-confirmed/
+
+The Caped Crusader and the Boy Wonder are back in action, but this time, they'll face a new challenge: a gang of street kids causing chaos.
+---------
+
+# 5 Forgotten Horror Anime That Are Perfect From Start to Finish
+
+Anime, From the New World, Hell Girl: Two Mirrors
+
+Wed, 20 May 2026 16:15:13 GMT
+
+https://www.cbr.com/forgotten-horror-anime-that-are-perfect-start-to-finish/
+
+Horror and anime have a strong relationship that's led to some incredible scary series, but some have sadly slipped through the cracks.
+---------
+
+# Brendan Fraser and Andy Garcia's Detective Movie Puts an Unexpected Twist on the Noir | Review
+
+Movie Reviews, Andy Garcia, Brendan Fraser, Diamond, Cannes Film Festival
+
+Wed, 20 May 2026 16:51:13 GMT
+
+https://collider.com/diamond-movie-brendan-fraser-andy-garcia-crime-noir-cannes-2026/
+
+Andy Garcia and Brendan Fraser lead Diamond, a familiar crime noir with a twist that elevates the detective story to new heights.
+---------
+
+# Hulu Officially Reveals Fate of ‘The Handmaid’s Tale’ Spin-Off 1 Week Before Finale
+
+TV News, The Testaments, Chase Infiniti, Hulu, The Handmaid's Tale
+
+Wed, 20 May 2026 16:48:31 GMT
+
+https://collider.com/the-handmaids-tale-spin-off-the-testaments-renewed-season-2-hulu/
+
+With over 45 million hours streamed, Hulu has officially revealed the fate of its Handmaid’s Tale spin-off The Testaments, starring Chase Infiniti.
+---------
+
+# 8 Perfect War Thrillers That No One Ever Talks About
+
+Movie, War, Army of Shadows, Thriller, The Siege of Jadotville
+
+Wed, 20 May 2026 16:34:14 GMT
+
+https://collider.com/perfect-war-thriller-movies-no-one-talks-about/
+
+War thrillers like When Trumpets Fade and The Beast are stellar entries into the subgenre that deserve far more attention from mainstream audiences.
+---------
+
+# New He-Man Movie Trailer Reveals the Summer's Most Exciting Blockbuster
+
+Movie News, Masters of the Universe, Travis Knight, Nicholas Galitzine, Idris Elba
+
+Wed, 20 May 2026 16:30:30 GMT
+
+https://collider.com/new-he-man-movie-masters-of-the-universe-final-trailer/
+
+Watch the final trailer for Masters of the Universe, as the new He-Man movie promises to be the most fun you'll have in theaters this summer.
+---------
+
+# Ridley Scott’s Psychological Thriller Series Just Proved Why It’s Must-Watch TV [Exclusive]
+
+TV News, The Terror, Ridley Scott, Dan Stevens, AMC+
+
+Wed, 20 May 2026 16:30:14 GMT
+
+https://collider.com/the-terror-devil-in-silver-episode-3-ridley-scott-dan-stevens-sneak-peek/
+
+The Terror: Devil in Silver, which is produced by Ridley Scott, gets a sneak peek before the next episode starring Dan Stevens.
+---------
+
+# KJ Apa Transforms Into One of the Greatest Actors of All Time in New Must-Watch Biopic Trailer
+
+Movie News, Jimmy, KJ Apa, James Stewart, Jason Alexander
+
+Wed, 20 May 2026 16:27:23 GMT
+
+https://collider.com/jimmy-movie-trailer-kj-apa-jimmy-stewart-biopic/
+
+Watch KJ Apa transform into one of the greatest Hollywood actors of all time in the new trailer for Jimmy, a biopic of the iconic Jimmy Stewart.
+---------
+
+# ‘The Testaments’ Star Breaks Down Daisy’s Most Unsettling Episode 9 Scene
+
+Exclusives, The Testaments, Lucy Halliday, Elisabeth Moss, The Handmaid's Tale
+
+Wed, 20 May 2026 16:01:14 GMT
+
+https://collider.com/the-testaments-episode-9-dentist-scene-lucy-halliday-interview/
+
+Lucy Halliday discusses The Testaments, life in Gilead, working with The Handmaid's Tale star Elisabeth Moss, and Daisy's decision about the dentist.
+---------
+
+# ‘Yellowstone’ Legend Faces Life-or-Death Threat in ‘Marshals’ Season 1 Finale First Look [Exclusive]
+
+TV News, Yellowstone, Marshals, Luke Grimes, CBS
+
+Wed, 20 May 2026 16:00:14 GMT
+
+https://collider.com/marshals-season-1-finale-sneak-peek-kayce-rainwater-assassination-plot/
+
+Kayce Dutton faces his deadliest mission yet in this exclusive Marshals Season 1 finale sneak peek. Watch it here!
+---------
+
+# 'The Boys' Officially Ends on a Rushed but Mostly Satisfying Note | Review
+
+TV Reviews, The Boys, Prime Video, Karl Urban, Antony Starr
+
+Wed, 20 May 2026 16:00:14 GMT
+
+https://collider.com/the-boys-series-finale-recap-prime-video/
+
+The Boys concludes on a mostly satisfying note, but its rushed resolution leaves the series finale feeling incomplete.
+---------
+
+# Keke Palmer Is No One’s Supporting Character
+
+Collider Signature, Keke Palmer, I Love Boosters, Boots Riley, Demi Moore, profile
+
+Wed, 20 May 2026 16:00:14 GMT
+
+https://collider.com/keke-palmer-i-love-boosters-movie-interview/
+
+Keke Palmer reflects on I Love Boosters, her approach to acting and hosting, working with Demi Moore, and why interviews need to feel human.
+---------
+
+# Milly Alcock Confirmed To Return as Supergirl in 'Man of Tomorrow'
+
+Movie News, Man of Tomorrow, Supergirl, DCU, Milly Alcock
+
+Wed, 20 May 2026 17:30:34 GMT
+
+https://movieweb.com/milly-alcock-supergirl-man-of-tomorrow/
+
+After debuting in a cameo in 'Superman', Milly Alcock will get a larger role in the DCU sequel after headlining her own solo movie.
+---------
+
+# 'The Death of Robin Hood' Writer Teases Hugh Jackman's "Bloodthirsty" Hero
+
+Movie News, The Death of Robin Hood, Hugh Jackman
+
+Wed, 20 May 2026 17:12:52 GMT
+
+https://movieweb.com/death-robin-hood-jackman-sarnoski-bloodthirsty/
+
+'The Death of Robin Hood' writer Michael Sarnoski teased more from Hugh Jackman's "bloodthirsty" Robin Hood in a new featurette for the movie.
+---------
+
+# Every Major Death in 'The Boys' Finale Ranked by Brutality
+
+TV Lists, The Boys
+
+Wed, 20 May 2026 17:05:19 GMT
+
+https://movieweb.com/the-boys-season-5-finale-deaths/
+
+'The Boys' Season 5's final episode did not shy away from killing off main characters. Some died more brutally than others, though.
+---------
+
+# How Greta Gerwig’s ‘Narnia’ Book Order Change Can Fix Susan’s Ending
+
+Features, Narnia: The Magician's Nephew, Greta Gerwig, The Chronicles of Narnia, Fantasy, Netflix
+
+Wed, 20 May 2026 17:00:19 GMT
+
+https://movieweb.com/narnia-movie-book-order-susan-change/
+
+Greta Gerwig's 'Narnia' movie will be a fresh start for the franchise, and the upcoming release can finally fix Susan Pevensie's controversial ending.
+---------
+
+# 'The Boys' Season 5 Ending, Explained
+
+Features, The Boys, Prime Video
+
+Wed, 20 May 2026 16:40:21 GMT
+
+https://movieweb.com/the-boys-season-5-ending-explained/
+
+'The Boys' Season 5 finale streamed on Amazon Prime Video on May 20, 2026, bringing the superhero satire story starring Antony Starr to an end.
+---------
+
+# 'The X-Files' Has Three Complete Episodes From Season 7 You've Never Seen
+
+Features, The X-Files, Sci-Fi
+
+Wed, 20 May 2026 16:00:20 GMT
+
+https://movieweb.com/the-x-files-complete-episodes-season-7/
+
+Even die-hard fans often miss this out on these 22-year-old 'X-Files' episodes featuring the cast of the beloved sci-fi series.
+---------
+
+# Netflix's 'My Royal Nemesis' Scores Big in Week 2 With 5.1 Million Views
+
+TV News, My Royal Nemesis, Hot on Streaming, Netflix, Fantasy
+
+Wed, 20 May 2026 15:47:17 GMT
+
+https://movieweb.com/my-royal-nemesis-k-drama-netflix-streaming-hit-may-2026/
+
+Netflix's new time travel fantasy K-drama has been a big hit with viewers around the globe.
+---------
+
+# James Bond Writer Hints Amazon Reboot Could Be a 007 Origin Story
+
+Movie News, James Bond 26, James Bond
+
+Wed, 20 May 2026 15:46:17 GMT
+
+https://movieweb.com/james-bond-26-origin-story-clues/
+
+Screenwriter Steven Knight has hinted that 'James Bond 26' will be a reimagined origin story, delving into the backstory of the famed 007 agent.
+---------
+
+# 'Ip Man: Kung Fu Legend' Trailer Unleashes Action-Packed New Chapter
+
+Movie News, IP Man, Ip Man: Kung Fu Master, Action, Martial Arts
+
+Wed, 20 May 2026 15:33:49 GMT
+
+https://movieweb.com/ip-man-kung-fu-legend-trailer-release/
+
+Dennis To returns as Bruce Lee's former martial arts teacher in this year's sequel to the iconic action franchise.
+---------
+
+# Tatiana Maslany Thriller 'Maximum Pleasure Guaranteed' Debuts on Apple TV With Fresh Rotten Tomatoes Score
+
+TV News, Maximum Pleasure Guaranteed, Tatiana Maslany
+
+Wed, 20 May 2026 15:05:56 GMT
+
+https://movieweb.com/maximum-pleasure-guaranteed-rotten-tomatoes/
+
+A new dark comedy-thriller starring 'Orphan Black' Emmy winner Tatiana Maslany has landed on Apple TV.
+---------
+
 # Xbox Gamers Surprised With Free 360-Era Remaster
 
 Gaming, Xbox, Xbox 360, Darksiders
