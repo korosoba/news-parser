@@ -1,3 +1,366 @@
+# Passenger Review: Clever, Scary Touches Elevate An Otherwise By-The-Numbers Horror Movie
+
+Movies, Passenger
+
+Thu, 21 May 2026 18:52:41 GMT
+
+https://screenrant.com/passenger-2026-movie-review/
+
+Passenger doesn't really try anything unique, but solid scares and committed lead performances give this road trip horror movie some teeth.
+---------
+
+# Only Murders In The Building Season 6 Set Photos Reveal Selena Gomez, Martin Short & Steve Martin In London
+
+TV, Only Murders in the Building
+
+Thu, 21 May 2026 18:52:13 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-6-london-set-photos-selena-gomez-martin-short-steve-martin/
+
+Steve Martin gives fans of Only Murders in the Building a teaser of the new season with a brand-new set photo as the cast begins filming season 6.
+---------
+
+# 5 Most Disturbing Scenes In Obsession
+
+Movies, Obsession
+
+Thu, 21 May 2026 18:30:20 GMT
+
+https://screenrant.com/obsession-movie-most-disturbing-scenes/
+
+Obsession has already been labeled by critics and fans as the best horror film of 2026, and here are five disturbing scenes that prove it.
+---------
+
+# Hulu's New Prison Break Series Officially Recasts Major Role With Animal Kingdom Star
+
+TV, Prison Break, Hulu
+
+Thu, 21 May 2026 18:30:15 GMT
+
+https://screenrant.com/hulu-prison-break-series-recast-kelli-berglund/
+
+Hulu's new Prison Break series hits a slight snag as the series has officially recast a major role from the pilot with an Animal Kingdom star.
+---------
+
+# Geena Davis Teases Sequel Return Ideas For The Fly & A League Of Their Own
+
+Exclusive, The Fly, A League of Their Own
+
+Thu, 21 May 2026 18:28:11 GMT
+
+https://screenrant.com/geena-davis-the-fly-league-of-their-own-sequel-return-ideas/
+
+EXCLUSIVE: In her interview for her new show The Boroughs, Geena Davis teases some fun sequel ideas for two of her classics 20th century movies.
+---------
+
+# Stephen King Releases "F***ed Up" New Horror Story That Can Be Read For Free
+
+Books, Stephen King
+
+Thu, 21 May 2026 18:14:12 GMT
+
+https://screenrant.com/stephen-king-dinahs-hat-short-story-release/
+
+Legendary author Stephen King has just released a surprise brand-new short horror story, which can now be read by many for free online.
+---------
+
+# Ben Affleck Joins Hulu's New Docuseries Hunting Whitey Bulger
+
+TV
+
+Thu, 21 May 2026 18:13:59 GMT
+
+https://screenrant.com/ben-affleck-hunting-whitey-bulger-hulu-series-narrator-role/
+
+Ben Affleck is joining an upcoming Hulu series based on a notorious crime boss, as new details reveal the Academy Award winner's unique role.
+---------
+
+# HBO's Smash Hit Fantasy Franchise Is So Good, It's Already Renewed For 3 More Seasons
+
+TV, Masked Recs, Quiz CV
+
+Thu, 21 May 2026 18:12:44 GMT
+
+https://screenrant.com/hbo-game-of-thrones-spinoffs-renewed-more-seasons/
+
+HBO's fantasy franchise has become a consolidated global smash hit, and it's so good that multiple TV shows are coming back for three seasons.
+---------
+
+# Saccharine Review: Striking Diet Pill Horror Movie Should Be Lighter On Its Feet
+
+New Movies, Saccharine
+
+Thu, 21 May 2026 18:08:05 GMT
+
+https://screenrant.com/saccharine-movie-2026-review/
+
+Though director Natalie Erika James creates several memorable images, Saccharine lacks the urgency to keep whatever momentum it generates.
+---------
+
+# The Legend Of Zelda Officially Returns September 4 For 40th Anniversary Release
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Thu, 21 May 2026 18:00:20 GMT
+
+https://screenrant.com/legend-of-zelda-september-2026-vinyl-40th-anniversary/
+
+The Legend of Zelda series is coming back in a big way, as it celebrates its 40th anniversary this year amid several rumored releases.
+---------
+
+# 6 Years After Little Fires Everywhere, Kerry Washington Returns to Hulu in Thriller Based on Bestselling Book
+
+TV, Little Fires Everywhere, Hulu
+
+Thu, 21 May 2026 18:52:43 GMT
+
+https://www.cbr.com/kerry-washington-hulu-thriller-what-remains/
+
+The Scandal star has a new hit in the works with Hulu.
+---------
+
+# Forgotten 7-Part Star Wars Series Finds New Life on Streaming Ahead of New Movie
+
+TV, Star Wars, The Book of Boba Fett, Disney+
+
+Thu, 21 May 2026 18:47:15 GMT
+
+https://www.cbr.com/star-wars-the-book-of-boba-fett-success-disney-plus-may-2026/
+
+A mostly forgotten Star Wars series is seeing a surprising streaming surge ahead of the franchise's return to theaters.
+---------
+
+# 10 Toughest Spaghetti Western Heroes of All Time, Ranked
+
+Movies, Western
+
+Thu, 21 May 2026 18:30:13 GMT
+
+https://www.cbr.com/best-spaghetti-western-heroes-list/
+
+The Spaghetti Western genre has a whole batch of heroes among the best and toughest in cinema history.
+---------
+
+# Jack Ryan Director Explains How Harrison Ford and The West Wing Influenced His New Spy Thriller
+
+Movies, Jack Ryan, Jack Ryan: Shadow Recruit, Tom Clancy's Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, Action
+
+Thu, 21 May 2026 18:18:27 GMT
+
+https://www.cbr.com/jack-ryan-director-explains-how-harrison-ford-influenced-spy-thriller/
+
+Jack Ryan was inspired by some of the best spy thrillers of all-time.
+---------
+
+# Spider-Noir Stars Reveal the BEST Way to Watch the Series
+
+TV, Spider-Noir
+
+Thu, 21 May 2026 18:16:15 GMT
+
+https://www.cbr.com/video/spider-noir-stars-reveal-the-best-way-to-watch-the-series/
+
+The Spider-Noir cast is officially divided over one major question: black and white or color? Jack Huston, Li Jun Li, and Abraham Popoola explain how each version completely changes the experience of watching Spider-Noir.The trio also opens up about working alongside Nicolas Cage and why his take on Ben Reilly feels both incredibly controlled and constantly surprising. Plus, Abraham Popoola shares which massive Spider-Noir sets impressed him the most, from lavish parties to the show’s richly detailed noir environments.For Marvel fans curious about Spider-Noir’s visual style, Nicolas Cage’s performance choices, and the series’ ambitious production design, this conversation offers a fascinating behind-the-scenes look at one of Marvel’s most unique projects.
+---------
+
+# 5 Perfect Anime With 12 Episodes No One Remembers
+
+Anime, Sonny Boy, Asobi Asobase
+
+Thu, 21 May 2026 18:16:15 GMT
+
+https://www.cbr.com/perfect-short-anime-no-one-remembers/
+
+It's hard to tell a complete, satisfying story in only 12 episodes, but overlooked gems like Sonny Boy and Deca-Dence make it look easy.
+---------
+
+# Cliffhanger Reboot Eyes New U.S. Home Ahead of Release
+
+Movies, Cliffhanger
+
+Thu, 21 May 2026 18:13:12 GMT
+
+https://www.cbr.com/cliffhanger-reimagining-new-us-home-neon-decal/
+
+Pierce Brosnan's Cliffhanger may have finally found a new domestic home after its original distributor, Row K, came into some financial troubles.
+---------
+
+# HBO Announces New House of the Dragon Release in 8 Days
+
+Movies, House of the Dragon, HBO Max, Fantasy
+
+Thu, 21 May 2026 18:07:39 GMT
+
+https://www.cbr.com/house-of-the-dragon-asl-hbo-max/
+
+A new House of the Dragon release is on the way.
+---------
+
+# Tomb Raider Lands on HBO Max in Just 3 Days
+
+Movies, Tomb Raider, HBO Max
+
+Thu, 21 May 2026 18:00:13 GMT
+
+https://www.cbr.com/tomb-raider-hbo-max-premiere-may-24-2026/
+
+HBO Max subscribers will soon be able to stream a popular video game reboot that made $275 million in theaters back in 2018.
+---------
+
+# 10 Star Wars Comic Characters Fans Want in Live Action
+
+Comics, Star Wars
+
+Thu, 21 May 2026 18:00:13 GMT
+
+https://www.cbr.com/star-wars-comic-characters-who-need-live-action-debuts/
+
+The Star Wars comic run has an endless supply of compelling characters, many of which would fit perfectly into live-action.
+---------
+
+# Forget "Stairway to Heaven" — Led Zeppelin's True Masterpiece Came in 1975
+
+Music Features, Led Zeppelin, Music, Rock, Billboard Hot 100
+
+Thu, 21 May 2026 18:42:16 GMT
+
+https://collider.com/led-zeppelin-1975-kashmir-greatest-song/
+
+Led Zeppelin's true masterpiece has unique instrumentals, global inspiration, and powerful storytelling that sets it apart from Stairway to Heaven.
+---------
+
+# Hulu's 'Prison Break' Reboot Officially Recasts Key Role With 'Animal Kingdom' Star
+
+TV News, Prison Break, Hulu, Kelli Berglund, Lukas Gage
+
+Thu, 21 May 2026 18:40:16 GMT
+
+https://collider.com/hulu-crime-thriller-reboot-prison-break-cast-animal-kingdom-star-kelli-berglund/
+
+Hulu's Prison Break reboot officially recasts a key role with an Animal Kingdom star. See who's joining the next chapter.
+---------
+
+# Legendary 5-Part Irish Detective Thriller Officially Returns With a Stunning New Trailer
+
+Movie News, Harry Wild, Jane Seymour, Acorn TV, Thriller
+
+Thu, 21 May 2026 18:37:07 GMT
+
+https://collider.com/acorn-tv-irish-detective-mystery-thriller-harry-wild-season-5-trailer/
+
+Harry Wild is officially back, as a new trailer for the Irish detective thriller's fifth season has debuted. See it here!
+---------
+
+# The Biggest Sci-Fi Fantasy Franchise of All Time Is Officially Dead
+
+Movie News, Destiny 2, Nathan Fillion, Lance Reddick, Fantasy
+
+Thu, 21 May 2026 18:08:20 GMT
+
+https://collider.com/nathan-fillion-sci-fi-fantasy-franchise-destiny-2-updates-cancelled/
+
+Nathan Fillion's hit sci-fi fantasy saga, Destiny 2, will no longer be getting further support from Bungie after 9 years.
+---------
+
+# You'll Take Back Every Bad Thing You've Said About Rami Malek After Seeing His Bold New Drama | Review
+
+Movie Reviews, The Man I Love, Rami Malek, Ira Sachs, Cannes Film Festival
+
+Thu, 21 May 2026 17:46:52 GMT
+
+https://collider.com/the-man-i-love-review-rami-malek-cannes-2026/
+
+Ira Sachs' latest, The Man I Love, is a hugely emotional drama set during the AIDS epidemic.
+---------
+
+# 10 Near-Perfect Marvel Shows No One Ever Talks About
+
+TV, Marvel, Agents of S.H.I.E.L.D., Hawkeye, Wonder Man
+
+Thu, 21 May 2026 17:18:13 GMT
+
+https://collider.com/best-forgotten-marvel-shows/
+
+Agents of S.H.I.E.L.D, Hawkeye, Legion, Jessica Jones, and more make up our list of near-perfect Marvel shows no one ever talks about.
+---------
+
+# 10 Greatest Movie Masterpieces of the Last 80 Years
+
+Movie, The Godfather, 2001: A Space Odyssey, Seven Samurai, Bicycle Thieves
+
+Thu, 21 May 2026 17:08:13 GMT
+
+https://collider.com/best-movie-masterpieces-last-80-years/
+
+From The Godfather to The Shawshank Redemption, these movie masterpieces of the last 80 years have become foundational to our understanding of cinema.
+---------
+
+# Pierce Brosnan Trains the Next Rocky in Sneak Peek From Sylvester Stallone's New Boxing Epic [Exclusive]
+
+Exclusives, Giant, Pierce Brosnan, Sylvester Stallone, Action
+
+Thu, 21 May 2026 17:00:13 GMT
+
+https://collider.com/pierce-brosnan-sylvester-stallone-boxing-movie-giant-sneak-peek/
+
+Get an exclusive sneak peek at Giant, the upcoming sports biopic executive-produced by Sylvester Stallone, starring Pierce Brosnan and Amir El-Masry.
+---------
+
+# New 'Resident Evil' Trailer Showcases Classic POV Scene from the Video Games
+
+Movie News, Resident Evil
+
+Thu, 21 May 2026 18:04:05 GMT
+
+https://movieweb.com/zach-cregger-resident-evil-first-person-action/
+
+Director Zach Cregger details how he wanted to bring the feeling of dread and terror of playing a 'Resident Evil' game to a movie.
+---------
+
+# Maika Monroe Stars in the Trailer for New Horror Movie 'Victorian Psycho'
+
+Movie News, Victorian Psycho, Maika Monroe
+
+Thu, 21 May 2026 18:01:27 GMT
+
+https://movieweb.com/victorian-psycho-trailer-maika-monroe/
+
+The new movie is set to be unleashed this fall.
+---------
+
+# Liam Neeson’s Thriller Delivered "Mounting Dread" According to Roger Ebert
+
+Features, Liam Neeson, Roger Ebert
+
+Thu, 21 May 2026 18:00:18 GMT
+
+https://movieweb.com/liam-neeson-the-grey-roger-ebert-walked-out-next-movie/
+
+The Liam Neeson-led survival thriller 'The Grey' packed a powerful punch when it premiered, leaving a lasting impression on Roger Ebert.
+---------
+
+# 'Jackass' Returns to Paramount+ With "Restored" Original Episodes
+
+TV News
+
+Thu, 21 May 2026 17:48:19 GMT
+
+https://movieweb.com/jackass-show-streaming-paramount-restored/
+
+Before the final movie in the franchise lands in theaters, you can see how the long-running stunt show started.
+---------
+
+# 'The Adventures of Cliff Booth' Is the Second of Three Potential Quentin Tarantino Milestones in a Row
+
+Features, Quentin Tarantino, The Adventures of Cliff Booth
+
+Thu, 21 May 2026 17:00:18 GMT
+
+https://movieweb.com/quentin-tarantino-cliff-booth-milestones/
+
+Quentin Tarantino is already a movie-making legend, but this would really cement his status. Read on for more.
+---------
+
 # The Canadian Game Awards 2026: How & When To Watch
 
 Gaming, Canadian Game Awards
