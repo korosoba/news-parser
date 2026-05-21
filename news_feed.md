@@ -1,3 +1,399 @@
+# The Canadian Game Awards 2026: How & When To Watch
+
+Gaming, Canadian Game Awards
+
+Thu, 21 May 2026 16:34:40 GMT
+
+https://screenrant.com/canadian-game-awards-2026-how-to-watch/
+
+The Canadian Game Awards celebrates Canada's gaming industry. Here is everything to know about the award show, including hosts and how to watch.
+---------
+
+# House Of The Dragon Season 3 Will Officially Release With Two Different Versions On HBO Max This Summer
+
+TV, House of the Dragon, Game of Thrones, House of the Dragon - Season 3
+
+Thu, 21 May 2026 16:31:23 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-asl-version-release-hbo-max/
+
+House of the Dragon season 3 will arrive on HBO Max next month with two versions as the streamer continues its efforts with accessibility.
+---------
+
+# 3 Years Later, The Boys Brings Back A Powerful Anti-Supe Weapon From Gen V
+
+Streaming TV, The Boys
+
+Thu, 21 May 2026 16:31:20 GMT
+
+https://screenrant.com/the-boys-sound-whistle-gen-v-weapon/
+
+Gen V introduced a lot of aspects to the world of The Boys, some of which have been used in the latter, including a powerful anti-Supe weapon.
+---------
+
+# Tomb Raider Officially Confirms The Start Of A New Era
+
+Gaming, Tomb Raider, Triple-A Games, PC
+
+Thu, 21 May 2026 16:22:58 GMT
+
+https://screenrant.com/tomb-raider-new-era-embracer/
+
+Another change for Tomb Raider is on the way, with a major behind-the-scenes shift setting a new course for the legendary franchise's future.
+---------
+
+# Original Tomb Raider Games Officially Free To Download Until May 28
+
+Gaming, Tomb Raider, PC, Tomb Raider 1-3 Remastered Starring Lara Croft
+
+Thu, 21 May 2026 16:22:28 GMT
+
+https://screenrant.com/tomb-raider-remastered-epic-free-download-may-28/
+
+The original Tomb Raider games are officially available to download for a limited time, and you can claim them for free from now until May 28.
+---------
+
+# Jensen Ackles Wants 1 Key Soldier Boy Mystery Addressed In Vought Rising
+
+TV, The Boys
+
+Thu, 21 May 2026 16:21:11 GMT
+
+https://screenrant.com/the-boys-vought-rising-soldier-boy-clara-relationship-mystery-jensen-ackles/
+
+EXCLUSIVE: The Boys star Jensen Ackles opens up about the Soldier Boy mystery that he wants to see addressed in the Vought Rising prequel.
+---------
+
+# Lanterns Season 2 Is The Perfect Opportunity To Keep Copying HBO's Masterpiece Series
+
+Superheroes, Lanterns, DC Universe
+
+Thu, 21 May 2026 16:15:20 GMT
+
+https://screenrant.com/lanterns-season-2-anthology-copy-true-detective/
+
+Lanterns season 2 is making strides at DC Studios, and Hal Jordan and John Stewart's roles are the perfect opportunity to copy an HBO masterpiece.
+---------
+
+# Sinners Is Officially Returning This Year With A Brand New Immersive Experience
+
+Movies, Sinners, Horror
+
+Thu, 21 May 2026 16:13:56 GMT
+
+https://screenrant.com/universal-sinners-halloween-horror-nights-house-confirmed/
+
+Sinners is officially returning this year with a brand new immersive experience after making $370 million at the box office and earning 16 Oscar nods.
+---------
+
+# Xbox Game Pass Makes 5 Games Free For This Weekend Only
+
+Gaming, Xbox Game Pass
+
+Thu, 21 May 2026 16:07:28 GMT
+
+https://screenrant.com/xbox-game-pass-free-games-may-21-2026/
+
+Game Pass subscribers can enjoy five extra free games the last weekend of May thanks to the return of the service’s Free Play Days event.
+---------
+
+# Red Dead Redemption Officially Returning May 29, GTA 6 Can Wait
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2, PC, Rockstar Games
+
+Thu, 21 May 2026 16:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-may-2026-next-gen-release/
+
+Grand Theft Auto 6 be damned, Rockstar's Red Dead Redemption is making an official return on May 29 with a long-awaited new release.
+---------
+
+# Spider-Noir’s Lamorne Morris Roasts Jake Johnson’s Peter Parker
+
+TV, Spider-Noir
+
+Thu, 21 May 2026 16:20:02 GMT
+
+https://www.cbr.com/video/spider-noir-s-lamorne-morris-roasts-jake-johnson-s-peter-parker/
+
+Spider-Noir stars Lamorne Morris and Karen Rodriguez open up about working with Nicolas Cage, Jake Johnson, and breakout young actor Cary Christopher in the highly anticipated Spider-Man series. Lamorne reveals what it was like doing a full Nic Cage impression directly in front of Nicolas Cage, while Karen explains why Cary Christopher may be the show’s secret weapon.The duo also breaks down Robbie Robertson’s dynamic with Jake Johnson’s Peter Parker, the noir-inspired world of Spider-Noir, and the incredible costumes and production design behind the series. Fans of Spider-Man Noir, Nicolas Cage, and the Spider-Verse mythology won’t want to miss these hilarious behind-the-scenes stories.
+---------
+
+# 10 Anime Schools Worse Than Euphoria High
+
+Anime, Euphoria
+
+Thu, 21 May 2026 16:15:13 GMT
+
+https://www.cbr.com/euphoria-worst-anime-schools-to-attend/
+
+Euphoria's titular high school might be bad, but some schools in anime are definitely worse.
+---------
+
+# Scream 7 Finally Sets Paramount+ Release Date
+
+Movies, Scream 7
+
+Thu, 21 May 2026 16:11:40 GMT
+
+https://www.cbr.com/scream-7-paramount-plus-release-date/
+
+After a record-breaking run at the box office, Paramount's controversial slasher sequel is heading to streaming.
+---------
+
+# Dragon Ball Unleashes Super Saiyan Goku and More in New U.S. Collection
+
+Anime, Dragon Ball, Jujutsu Kaisen, One Piece, Dandadan, Gachiakuta
+
+Thu, 21 May 2026 16:02:20 GMT
+
+https://www.cbr.com/dragon-ball-super-saiyan-goku-anime-collection/
+
+Dragon Ball is headlining a specially curated line of apparel for Ani-May 2026, featuring Super Saiyan Goku and more.
+---------
+
+# 10 Years Ago, Rogue One Changed Star Wars' Rebellion Forever
+
+Movies, Star Wars, Rogue One, Andor
+
+Thu, 21 May 2026 16:00:13 GMT
+
+https://www.cbr.com/rogue-one-changed-star-wars-rebellion/
+
+Star Wars has always maintained a certain formula, but this all changed with one of the best entries to the franchise.
+---------
+
+# The Boys Creator Fires Back at 'Hurricane' of Hate for Series Finale
+
+TV, The Boys
+
+Thu, 21 May 2026 15:54:36 GMT
+
+https://www.cbr.com/the-boys-creator-eric-kripke-fires-back-at-season-5-hate/
+
+Fed up with The Boys hate, the show's creator finally took his gloves off.
+---------
+
+# The Batman 2 Set Videos Reveal First Day of Filming
+
+Movies, The Batman Part II
+
+Thu, 21 May 2026 15:52:15 GMT
+
+https://www.cbr.com/the-batman-2-set-videos-reveal-first-day-filming/
+
+DC fans just got their first up-close look at the set of The Batman: Part II, and it already looks like an absolutely wild ride for the Dark Knight.
+---------
+
+# Donkey Kong LEGO Set Officially Announced
+
+Games, Donkey Kong, LEGO, Nintendo
+
+Thu, 21 May 2026 15:40:14 GMT
+
+https://www.cbr.com/donkey-kong-lego-set-officially-announced-nintendo/
+
+LEGO has announced a new Nintendo first-party franchise collaboration: a Donkey Kong toy set featuring orange rolling barrels is on the way.
+---------
+
+# Netflix Officially Confirms Emily in Paris’ Future After 6 Seasons
+
+TV, Emily in Paris
+
+Thu, 21 May 2026 15:34:15 GMT
+
+https://www.cbr.com/netflix-emily-in-paris-future-season-six/
+
+Emily in Paris is currently in production for Season 6.
+---------
+
+# 6 MonsterVerse Titans Powerful Enough to Defeat Kong
+
+Movies, Monsterverse
+
+Thu, 21 May 2026 15:15:13 GMT
+
+https://www.cbr.com/most-powerful-monsterverse-titans-defeat-kong-list/
+
+There are many powerful MonsterVerse Titans, and some can even take down 'The Greatest King' there is, King Kong.
+---------
+
+# Only 5 Sci-Fi Movies From the 2010s Can Be Considered True Masterpieces
+
+Movie, Science Fiction, Blade Runner 2049, Dawn of the Planet of the Apes, Inception
+
+Thu, 21 May 2026 16:21:12 GMT
+
+https://collider.com/sci-fi-movies-2010s-true-masterpieces/
+
+Thoughtful pieces like Arrival and mind-blowing thrillers like Inception are among the few 2010s sci-fi movies worthy of being called masterpieces.
+---------
+
+# Netflix's 'Emily in Paris' Has Been Officially Cancelled After 6 Seasons
+
+TV News, Emily in Paris, Netflix, Lily Collins, Ashley Park
+
+Thu, 21 May 2026 16:17:30 GMT
+
+https://collider.com/netflix-emily-in-paris-season-6-cancelled-production-start/
+
+Netflix's divisive yet popular rom-com series, Emily in Paris, will officially be ending with Season 6 as production kicks off.
+---------
+
+# Dark Horse’s New 4-Part Detective Thriller Miniseries Goes Full Sci-Fi Noir in First Look [Exclusive]
+
+Movie News, Jordan Blum, Comic Book, Mystery, Science Fiction
+
+Thu, 21 May 2026 16:00:13 GMT
+
+https://collider.com/new-comic-book-miniseries-the-big-shakedown-jordan-blum-tim-seeley-scott-koblish-nate-piekos/
+
+This new 4-part comic book miniseries is a sci-fi noir thriller set in post-quake Los Angeles, and Collider has the first look. Read on for more.
+---------
+
+# Apple TV's 8-Part Sleeper Hit Series Just Scored a Surprise Season 2 Renewal That Changes Everything
+
+TV Features, Margo's Got Money Troubles, Apple TV, Elle Fanning, Michelle Pfeiffer
+
+Thu, 21 May 2026 15:49:13 GMT
+
+https://collider.com/margos-got-money-troubles-apple-tv-season-2-renewed/
+
+Apple TV's surprise Season 2 renewal for Margo's Got Money Troubles promises to dive deeper into unresolved plotlines and introduce new characters.
+---------
+
+# The World War II Movie Everyone's Waiting For Officially Drops New Trailer
+
+Movie News, Pressure, World War II, Brendan Fraser, Andrew Scott
+
+Thu, 21 May 2026 15:02:56 GMT
+
+https://collider.com/new-favorite-ww2-movie-pressure-trailer-brendan-fraser-andrew-scott/
+
+Brendan Fraser and Andrew Scott lead Pressure, a tense World War 2 drama about the final hours before D-Day. Watch the new trailer here!
+---------
+
+# ‘The Gilded Age’s Morgan Spector Returns in First Look at Haunted Coming-of-Age Movie [Exclusive]
+
+Movie News, Zach Cherry, Morgan Spector, Chiara Aurelia, Indie
+
+Thu, 21 May 2026 15:00:13 GMT
+
+https://collider.com/morgan-spector-zach-cherry-new-movie-caity-first-look-images/
+
+Get an exclusive sneak peek of indie drama 'Caity,' starring Morgan Spector & Chiara Aurelia as a father-daughter duo grappling with personal demons.
+---------
+
+# Maika Monroe Is Overcome With Hysteria in the First Trailer for ‘Victorian Psycho'
+
+Movie News, Jason Isaacs, Maika Monroe, Victorian Psycho, Horror
+
+Thu, 21 May 2026 14:38:20 GMT
+
+https://collider.com/victorian-psycho-trailer-maika-monroe-new-horror-movie/
+
+Watch Maika Monroe absolutely lose her mind in the first trailer for unhinged horror movie Victorian Psycho, also starring Jason Isaacs & Ruth Wilson.
+---------
+
+# Netflix's 'The Boroughs' Lands Near-Perfect Rotten Tomatoes Score
+
+TV News, The Boroughs, Stranger Things, Netflix, Ross Duffer, Matt Duffer
+
+Thu, 21 May 2026 16:30:22 GMT
+
+https://movieweb.com/the-boroughs-rotten-tomatoes-score/
+
+Sci-fi horror series 'The Boroughs' has earned a near-perfect Rotten Tomatoes score, establishing itself as Netflix's 'Stranger Things' replacement.
+---------
+
+# 'Dungeons & Dragons: Honor Among Thieves' Will Exclusively Stream for Free on Pluto TV in June 2026
+
+Movie News, Dungeons & Dragons: Honor Among Thieves, Pluto TV, Coming/Leaving Streaming, Fantasy
+
+Thu, 21 May 2026 16:00:18 GMT
+
+https://movieweb.com/dungeons-and-dragons-honor-among-thieves-streaming-free-pluto-june-2026/
+
+Chris Pine's Dungeons & Dragons movie is a high fantasy action cult classic that will stream for free on Pluto TV next month.
+---------
+
+# 'The Mandalorian & Grogu': 3 Essential Movies & 2 TV Shows To Watch Before
+
+Movie Lists, The Mandalorian and Grogu, Star Wars
+
+Thu, 21 May 2026 16:00:18 GMT
+
+https://movieweb.com/star-wars-movies-watch-before-mandalorian-grogu/
+
+''The Mandalorian & Grogu' starring Pedro Pascal and Jeremy Allen White will be released in theaters on May 22, 2026.
+---------
+
+# ‘The Boys’ Creator Explains Why Major Cameo Didn't Happen
+
+TV News, The Boys, Prime Video, Eric Kripke
+
+Thu, 21 May 2026 15:35:44 GMT
+
+https://movieweb.com/the-boys-series-finale-cameo-queen-maeve/
+
+Fans hoping to see Queen Maeve (Dominique McElligott) one more time were disappointed.
+---------
+
+# After Movies in Order Chronologically and by Release Date
+
+Movie Lists, After, After Everything
+
+Thu, 21 May 2026 15:00:19 GMT
+
+https://movieweb.com/after-movies-in-order/
+
+The After series is long, and they each have very similar names, but don't worry, this guide will help you get things in order.
+---------
+
+# 'Star Trek' Adds Unexpected Alex Kurtzman-Era Stories for the Franchise's 60th Anniversary
+
+Features, Star Trek, Alex Kurtzman
+
+Thu, 21 May 2026 15:00:18 GMT
+
+https://movieweb.com/star-trek-60th-anniversary-kurtzman/
+
+Although 'Star Trek' is largely winding down in its 60th year, other corners of the sci-fi saga are keeping the flame burning.
+---------
+
+# 'The X-Files: I Want to Believe' Director's Cut Heading to Disney+ This June
+
+Movie News, The X-Files: I Want to Believe, Coming/Leaving Streaming, The X-Files, Disney+
+
+Thu, 21 May 2026 15:00:18 GMT
+
+https://movieweb.com/x-files-i-want-to-believe-directors-cut-streaming-disney-plus-june-2026/
+
+Chris Carter's definitive cut of 'The X-Files: I Want to Believe' will finally make its long-awaited premiere on Disney+ next month.
+---------
+
+# 'Twilight of the Warriors' Action Franchise Returns With First Look at Sequel
+
+Movie News, Twilight of the Warriors: Walled In, Action, Thriller, Martial Arts
+
+Thu, 21 May 2026 14:48:23 GMT
+
+https://movieweb.com/twilight-warriors-sequel-final-chapter-first-images/
+
+Alongside a prequel, a sequel, 'Twilight of the Warriors: The Final Chapter,' is now filming.
+---------
+
+# 'The Boroughs' Season 1 Ending, Explained
+
+Features, The Boroughs, Netflix
+
+Thu, 21 May 2026 14:00:19 GMT
+
+https://movieweb.com/the-boroughs-season-1-ending-explained/
+
+'The Boroughs,' the Netflix sci-fi thriller series starring Alfred Molina and executive-produced by the Duffer Brothers, premiered on May 21, 2026.
+---------
+
 # Scream 7's Streaming Release Date On Paramount+ Officially Confirmed
 
 Movies, Scream 7, Scream, Horror
