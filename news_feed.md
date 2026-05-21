@@ -1,3 +1,300 @@
+# Netflix's New Rom-Com Just Made K-Drama History
+
+Streaming TV, Masked Recs
+
+Thu, 21 May 2026 02:30:22 GMT
+
+https://screenrant.com/the-wonderfools-park-eun-bin-cha-eun-woo-k-drama-history/
+
+Netflix just released one of its most exciting new K-dramas of 2026, and the masterpiece has already made history with an iconic casting decision.
+---------
+
+# Taylor Sheridan’s New Crime Spinoff Repeats A Piece Of Yellowstone History
+
+Streaming TV, Frisco King, Yellowstone
+
+Thu, 21 May 2026 02:00:32 GMT
+
+https://screenrant.com/frisco-king-taylor-sheridan-rewrite-repeats-yellowstone-season-3/
+
+Another Taylor Sheridan TV spinoff is on the way, and this one is already repeating a dramatic turn of events from Yellowstone's historic run.
+---------
+
+# Tom Clancy's Jack Ryan: Ghost War Ending Explained
+
+Movies, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Thu, 21 May 2026 01:46:22 GMT
+
+https://screenrant.com/jack-ryan-ghost-war-movie-ending-explained/
+
+John Krasinski launches Tom Clancy's Jack Ryan into a 2-hour action movie format on Prime Video, with the fate of the world once again at stake.
+---------
+
+# Marvel's New Era Officially Begins With Raft Of New Characters
+
+Marvel Comics, Marvel
+
+Thu, 21 May 2026 01:42:13 GMT
+
+https://screenrant.com/marvel-new-characters-ultimate-impact-reborn/
+
+Marvel's new event kicks off with the introduction of five completely new superpowered characters, each with unique backgrounds and abilities.
+---------
+
+# 10 Best Villains In The Vampire Diaries (All Shows)
+
+Classic TV, The Vampire Diaries, The Originals, Legacies
+
+Thu, 21 May 2026 01:30:41 GMT
+
+https://screenrant.com/vampire-diaries-franchise-best-villains/
+
+The Vampire Diaries features phenomenal villains who you can't help but love, and these ten rise above the rest as the most compelling and ruthless.
+---------
+
+# Apple TV’s Hit Sci-Fi Show That's 'Westworld Meets Resident Alien' Deserves Its Streaming Success
+
+Streaming TV, Masked Recs
+
+Thu, 21 May 2026 01:30:21 GMT
+
+https://screenrant.com/murderbot-apple-tv-show-westworld-meets-resident-alien-success/
+
+Apple TV's Murderbot was a huge success with critics and viewers, and its similarities to Westworld and Resident Alien make that success well earned.
+---------
+
+# I Love Boosters And Sorry To Bother You: Connections Clarified
+
+Interviews, I Love Boosters, LaKeith Stanfield
+
+Thu, 21 May 2026 01:20:42 GMT
+
+https://screenrant.com/i-love-boosters-sorry-to-bother-you-connections-boots-riley-lakeith-stanfield/
+
+Boots Riley clarifies the connection between his latest film, I Love Boosters, and his 2018 debut, Sorry to Bother You, discussing the subtle nods and shared themes.
+---------
+
+# James Bond 26 Writer Teases Research Details For New 007 Script
+
+Movies, Bond 26, James Bond
+
+Thu, 21 May 2026 01:15:51 GMT
+
+https://screenrant.com/james-bond-story-research-sas-steven-knight/
+
+Bond 26 writer Steven Knight reveals how much research went into the script for Amazon MGM's upcoming installment of the franchise.
+---------
+
+# Amy Adams’ Iconic $163M Cult Classic Is Officially Returning To Theaters After 20 Years
+
+Movies, Masked Recs
+
+Thu, 21 May 2026 01:13:02 GMT
+
+https://screenrant.com/amy-adams-talladega-nights-ballad-ricky-bobby-theatrical-rerelease-june-2026/
+
+20 years after grossing $163 million worldwide, this highly quotable cult classic starring Amy Adams is returning to theaters for a limited time.
+---------
+
+# Marvel Officially Unveils Controversial Daredevil Redesign
+
+Gaming, Daredevil, Triple-A Games
+
+Thu, 21 May 2026 01:00:21 GMT
+
+https://screenrant.com/marvel-rivals-daredevil-new-skin-netflix-redesign/
+
+Daredevil has been riding high lately, but this Marvel redesign has fans on edge, especially given his appearance in Born Again.
+---------
+
+# 10 Anime Openings Better Than The Actual Show
+
+Anime
+
+Thu, 21 May 2026 02:15:14 GMT
+
+https://www.cbr.com/anime-openings-better-than-the-actual-show/
+
+Anime openings are often iconic, and capable of being the highlight of the series that they're attached to.
+---------
+
+# Frieren Unleashes Fantastical Anime Collection for New and Retro Fans
+
+Anime, Frieren: Beyond Journey's End, Inuyasha, Ranma 1/2, Uzumaki
+
+Thu, 21 May 2026 02:00:24 GMT
+
+https://www.cbr.com/boxlunch-frieren-inuyasha-ranma-uzumaki-manga-merch/
+
+Frieren is leading BoxLunch's Summer 2026 release of new merchandise inspired by the works of two big-names in the manga industry.
+---------
+
+# The Highest Grossing Films of 2016, Ranked
+
+Movies, Finding Dory, Captain America: Civil War, Deadpool
+
+Thu, 21 May 2026 02:00:24 GMT
+
+https://www.cbr.com/highest-grossing-movies-2016-list/
+
+A whole decade later, these movies might be the highest-grossing films of 2016, but that doesn't mean that they are all the best of the bunch.
+---------
+
+# PlayStation Plus Officially Ends an Era After 16 Years
+
+Games, PlayStation (Original)
+
+Thu, 21 May 2026 01:45:14 GMT
+
+https://www.cbr.com/playstation-plus-official-end-of-an-era/
+
+Sony has implemented a PlayStation Plus price increase, leaving fans wondering whether the subscription service is worth signing up for anymore.
+---------
+
+# 10 Strongest Anime Villains Who Wanted to Destroy the World
+
+Anime, Bleach, Naruto, Attack On Titan, Neon Genesis Evangelion
+
+Thu, 21 May 2026 01:25:13 GMT
+
+https://www.cbr.com/strongest-anime-villains-power-to-destroy-the-world/
+
+Anime villains frequently share a desire to destroy the world, and they're often powerful enough to make it happen.
+---------
+
+# TV History's Most Iconic Killer Clown Since Pennywise Officially Set to Return This Year
+
+TV, American Horror Story
+
+Thu, 21 May 2026 01:15:14 GMT
+
+https://www.cbr.com/john-carroll-lynch-american-horror-story-twisty-return/
+
+The small screen's freakiest killer clown is returning to television nearly a decade after his last appearance.
+---------
+
+# Superman’s Radical Origins Are Impossible to Ignore, Even In Absolute Superman
+
+Comics, Superman, DCU
+
+Thu, 21 May 2026 01:00:13 GMT
+
+https://www.cbr.com/superman-more-radical-than-fans-want-to-admit/
+
+Superman's unwavering commitment to hope and justice, even in the face of his own mortality, sets him apart as a radical icon.
+---------
+
+# 10 Best Star Wars Games That Aren't Canon
+
+Games, Star Wars
+
+Thu, 21 May 2026 00:45:13 GMT
+
+https://www.cbr.com/best-star-wars-legends-games/
+
+These Star Wars titles are now non-canon Legends, but they are well-worth playing.
+---------
+
+# 6 Animated Superhero Masterpieces You Forgot Existed
+
+Movies, superheroes
+
+Thu, 21 May 2026 00:30:14 GMT
+
+https://www.cbr.com/best-animated-superhero-movies-no-one-remembers-list/
+
+Everyone remembers the live-action outings for most major superheroes, but these six excellent animated films have been sadly forgotten.
+---------
+
+# Supernatural Owes Everything to a Single 20-Year-Old Dean Winchester Quote
+
+TV, Supernatural, The CW, Horror
+
+Thu, 21 May 2026 00:30:14 GMT
+
+https://www.cbr.com/supernatural-family-motto-sam-dean-winchester/
+
+Dean Winchester's line in Season One of The CW's Supernatural became the mission statement for the series and set the tone for 15 years of hunting.
+---------
+
+# Karl Urban’s Bonkers Action Hit Officially Demolishes One of the Worst Video Game Movies Ever
+
+Movie News, Box Office, Mortal Kombat II, Max Payne, Video Game
+
+Thu, 21 May 2026 02:30:15 GMT
+
+https://collider.com/mortal-kombat-2-box-office-overtakes-max-payne-mark-wahlberg-critically-panned-video-game-movie/
+
+Mortal Kombat II has overtaken one of the most poorly received video game adaptations ever at the box office: Mark Wahlberg's Max Payne.
+---------
+
+# In Just 7 Days, Netflix's True Crime Hit Surges Past 12 Million Views Worldwide
+
+Movie News, Netflix, True Crime, Documentary, Crime
+
+Thu, 21 May 2026 02:00:24 GMT
+
+https://collider.com/netflix-true-crime-sensation-the-crash-viewership-12-million-views/
+
+Netflix's latest true crime offering, The Crash, has emerged as a major new hit for the streamer. Find out more.
+---------
+
+# Netflix's Biggest Survival Thriller Surges to 100 Million Views in Under a Month
+
+Movie News, Apex, Charlize Theron, Taron Egerton, Netflix
+
+Thu, 21 May 2026 01:30:14 GMT
+
+https://collider.com/netflix-survival-thriller-apex-viewership-100-million-views/
+
+Netflix's latest blockbuster, Apex, has passed a monumental viewership milestone. Find out more.
+---------
+
+# Netflix's New Sci-Fi Thriller Officially Drops Tonight
+
+TV News, The Boroughs, Sci-Fi, Netflix, Duffer Brothers
+
+Thu, 21 May 2026 01:00:14 GMT
+
+https://collider.com/netflix-new-sci-fi-thriller-the-boroughs-release-date-may-21-plot-details/
+
+Prepare for Netflix's next sci-fi series when it hits the platform at midnight on May 21. Get all the details here.
+---------
+
+# Lord of the Rings Officially Launches New Era With Ambitious Announcement
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power, Fantasy
+
+Thu, 21 May 2026 00:30:14 GMT
+
+https://collider.com/lord-of-the-rings-open-world-game-in-development-warhorse-studios/
+
+Warhorse Studios, which has delivered both Kingdom Come games, is officially working on a new open-world Lord of the Rings game.
+---------
+
+# ‘Tulsa King’s Sylvester Stallone Officially Goes Full ’Bosch’ for New Crime Thriller
+
+TV News, Sylvester Stallone, Tulsa King, Bosch, Dexter
+
+Thu, 21 May 2026 00:00:14 GMT
+
+https://collider.com/sylvester-stallone-new-bosch-like-crime-series-4mk-adaptation-first-details/
+
+Tulsa King star Sylvester Stallone is channeling his inner Bosch for a new crime thriller series coming soon to streaming.
+---------
+
+# 'Body Heat': Seductive Erotic Thriller Masterpiece Gets Even Better With New 4K Release
+
+Features, Body Heat, Thriller, Holds Up
+
+Thu, 21 May 2026 00:00:20 GMT
+
+https://movieweb.com/body-heat-4k-release/
+
+William Hurt and Kathleen Turner turn out star-making performances in a classic noir infused with '80s sexuality, and it just keeps getting better.
+---------
+
 # 21 Years After Revenge Of The Sith, George Lucas' Star Wars Is Officially Back
 
 Movies, Star Wars
