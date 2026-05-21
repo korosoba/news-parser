@@ -1,3 +1,377 @@
+# GTA 6 Release Timing Praised By Gamers Following Official Update
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Thu, 21 May 2026 20:42:02 GMT
+
+https://screenrant.com/gta-6-may-release-update-fan-reaction/
+
+Take-Two CEO Strauss Zelnick provided an official update for Grand Theft Auto 6 in a new earnings call, and it's great news for fans.
+---------
+
+# A Minecraft Sequel Set Photos Reveal First Look At Jack Black's Return With Tweaked Steve Design
+
+Movies, A Minecraft Movie, Minecraft, Jack Black
+
+Thu, 21 May 2026 20:35:40 GMT
+
+https://screenrant.com/minecraft-sequel-set-photos-jack-black/
+
+Jack Black's return as Steve in the second Minecraft movie sparks excitement with new set photos featuring Steve's Lava Chicken food truck.
+---------
+
+# Maximum Pleasure Guaranteed Interviews with Tatiana Maslany, Jake Johnson, Cast & EPs
+
+Videos, Maximum Pleasure Guaranteed, Tatiana Maslany, Jake Johnson
+
+Thu, 21 May 2026 20:33:03 GMT
+
+https://screenrant.com/video/maximum-pleasure-guaranteed-tatiana-maslany-jake-johnson-cast-eps/
+
+Maximum Pleasure Guaranteed stars Tatiana Maslany, Jake Johnson, Jessy Hodges, showrunner David Rosen, and director David Gordon Green break down the unreliable narrator at the heart of Apple TV's new thriller and tease anxious viewing for the audience.
+---------
+
+# Apple TV’s 10-Part Thriller Is Quietly Taking Over & More Shows To Watch This Weekend
+
+Streaming TV, Apple TV, What to Watch on Apple TV+, Masked Recs
+
+Thu, 21 May 2026 20:32:21 GMT
+
+https://screenrant.com/apple-tv-shows-to-watch-now-weekend-binge/
+
+What shows to watch on Apple TV this Memorial Day weekend 2026: Margo's Got Money Problems, Widow's Bay, and Maximum Pleasure Guaranteed.
+---------
+
+# Netflix's Avatar: The Last Airbender Officially Recreates One Of The Show's Greatest Moments
+
+Streaming TV, Avatar: The Last Airbender
+
+Thu, 21 May 2026 20:30:22 GMT
+
+https://screenrant.com/avatar-the-last-airbender-netflix-season-2-war-ba-sing-se-scene/
+
+The live-action Avatar: The Last Airbender is officially adapting the Dai Lee's secret takeover of Ba Sing Se from the original animated series.
+---------
+
+# How Old Every Major Actor Is In Netflix’s The Boroughs
+
+Streaming TV, The Boroughs
+
+Thu, 21 May 2026 20:16:21 GMT
+
+https://screenrant.com/the-boroughs-netflix-show-actors-ages-explained/
+
+Netflix's The Boroughs gives a twist to sci-fi TV shows by following a group of retirees at a seemingly perfect retirement community.
+---------
+
+# GTA 6 Release Date Gets Official Update In Take-Two Earnings Report
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Thu, 21 May 2026 20:14:13 GMT
+
+https://screenrant.com/gta-6-release-date-update-earnings-call-may-2026/
+
+After a long wait for even a crumb of news about GTA 6, parent company Take-Two Interactive shared some news about the game's release date.
+---------
+
+# Legend Of Zelda Fans Unite Over Perfect New LEGO Set
+
+Gaming, The Legend of Zelda, LEGO
+
+Thu, 21 May 2026 20:00:21 GMT
+
+https://screenrant.com/lego-zelda-hyrule-castle-set-gamer-hopes/
+
+A few LEGO sets for The Legend of Zelda have already released, but fans are rallying around a set that would be a must-buy for a lot of people.
+---------
+
+# Ghosts Season 6: Release Date, Story, & Everything We Know
+
+Network TV, Ghosts
+
+Thu, 21 May 2026 20:00:21 GMT
+
+https://screenrant.com/ghosts-season-6-explained/
+
+It has been a year for Sam and Jay and their spirit friends at Woodstone, but now, they can all look forward to what's next in Ghosts season 6.
+---------
+
+# Why Netflix's New #1 Movie The Crash Is Taking Over The World
+
+Movies, Netflix, Explainer
+
+Thu, 21 May 2026 19:55:21 GMT
+
+https://screenrant.com/the-crash-movie-netflix-streaming-success-may-2026/
+
+The Crash is the new number one movie on Netflix, and it is hitting it big thanks to several items that subscribers look for in the true crime genre.
+---------
+
+# Lupita Nyong’o Addresses The Odyssey Casting Controversy
+
+Movies, The Odyssey
+
+Thu, 21 May 2026 20:31:31 GMT
+
+https://www.cbr.com/the-odyssey-casting-criticism-lupita-nyongo/
+
+Lupita Nyong'o breaks her silence on the online hullabaloo surrounding her casting in The Odyssey.
+---------
+
+# Twelve Monkeys' Smartest Time-Loop Episode Is Still the Most Untouchable in Sci-Fi History
+
+TV, 12 Monkeys, Sci-Fi, universal
+
+Thu, 21 May 2026 20:30:13 GMT
+
+https://www.cbr.com/12-monkeys-smartest-time-loop-episode-ever/
+
+A classic time-loop episode of Twelve Monkeys is an untouchable masterpiece in both the familiar genre device and its service to the characters.
+---------
+
+# 5 Forgotten Fantasy Films That Are Perfect From Start To Finish
+
+Movies, Fantasy
+
+Thu, 21 May 2026 20:30:13 GMT
+
+https://www.cbr.com/perfect-fantasy-films-no-one-remembers-list/
+
+Not every fantasy movie gets the renown of The Lord of the Rings, but there are some forgotten gems that deserve remembering.
+---------
+
+# 1 of the Best Teenage Mutant Ninja Turtles Movies Makes Free Streaming Debut Next Month
+
+Movies, Teenage Mutant Ninja Turtles: Mutant Mayhem, Teenage Mutant Ninja Turtles, Animation
+
+Thu, 21 May 2026 20:23:21 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-mutant-mayhem-streaming-free-pluto-june-2026/
+
+The perfect free streaming treat for TMNT fans is coming next month.
+---------
+
+# Cyberpunk: Edgerunners Star Explains Why Lucy and David’s Love Story Is So Heartbreaking
+
+CBR Exclusives, Cyberpunk: Edgerunners
+
+Thu, 21 May 2026 20:21:23 GMT
+
+https://www.cbr.com/cyberpunk-edgerunners-lucy-love-story-pain/
+
+Lucy's love, though she may seem like a femme fatale, is pure and admirable.
+---------
+
+# 5 Best Anime Like Star: Wars Visions
+
+Anime, Star Wars: Visions, The Animatrix, Space Dandy
+
+Thu, 21 May 2026 20:15:13 GMT
+
+https://www.cbr.com/best-anime-like-star-wars-visions/
+
+Star Wars: Visions gives the iconic sci-fi franchise an anime makeover, but there are other great anime that tap into similar vibes!
+---------
+
+# Robert Kirkman Talks The 'Dream Team' Behind Terminal and the Jack Kirby Influence On The Book
+
+Comics, image comics, robert kirkman
+
+Thu, 21 May 2026 20:04:49 GMT
+
+https://www.cbr.com/terminal-robert-kirkman-joe-casey-andy-kubert-interview/
+
+In an exclusive CBR interview, Robert Kirkman, Joe Casey, and Andy Kubert discuss their brand-new Image team book, Terminal
+---------
+
+# September 30 Is a Major Date for Indiana Jones Fans
+
+Comics, Indiana Jones
+
+Thu, 21 May 2026 20:00:13 GMT
+
+https://www.cbr.com/indiana-jones-marvel-comics-deluxe-collection/
+
+Marvel invites fans to relive the rest of Indiana Jones' greatest adventures.
+---------
+
+# Sonic the Hedgehog x Crocs Reveals New Classic Clog Collection Releasing May 19
+
+Anime, Sonic the Hedgehog
+
+Thu, 21 May 2026 20:00:13 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-crocs-official-may-2026-release/
+
+Sonic the Hedgehog is celebrating his 35th anniversary in style with this dashing new Crocs collection.
+---------
+
+# Star Wars' Yoda Has the Greatest Sci-Fi Quote of All Time
+
+Movies, Star Wars
+
+Thu, 21 May 2026 20:00:13 GMT
+
+https://www.cbr.com/greatest-sci-fi-quote-yoda-star-wars-phantom-menace/
+
+Yoda is one of the wisest figures in the entire Star Wars canon so it comes as no surprise that he has one of the best sci-fi quotes of all time.
+---------
+
+# This 10/10 R-Rated Romance Officially Hits HBO Max in 2 Weeks
+
+Movie News, Pillion, Alexander Skarsgard, Harry Melling, A24
+
+Thu, 21 May 2026 20:42:26 GMT
+
+https://collider.com/a24-romance-pillion-streaming-release-date-hbo-max-june-5-2026/
+
+A24's most critically acclaimed movie of 2026 has finally set its official release date for this June. Read on for more details.
+---------
+
+# James Bond Finally Returns in Action-Packed Trailer for Next Week's New Release
+
+Movie News, James Bond, Daniel Craig, Pierce Brosnan, No Time to Die
+
+Thu, 21 May 2026 20:37:22 GMT
+
+https://collider.com/james-bond-007-first-light-video-game-final-trailer-release-date-may-27-2026/
+
+James Bond's official return is just one week away, with a stunning final trailer teasing what's in store for the super spy's next adventure.
+---------
+
+# HBO’s Biggest Fantasy Franchise Gets Surprise Expansion Before Season 3
+
+TV News, House of the Dragon, Game Of Thrones, A Knight Of The Seven Kingdoms, HBO Max
+
+Thu, 21 May 2026 20:21:13 GMT
+
+https://collider.com/hbo-max-fantasy-house-of-the-dragon-season-2-3-asl-release-date-june-2026/
+
+Ahead of House of the Dragon Season 3, the Game of Thrones spin-off is getting a surprise expansion on HBO Max next month.
+---------
+
+# HBO Max's 9-Part Sci-Fi Masterpiece Officially Returns in 1 Month
+
+TV News, Rick and Morty, HBO Max, Adult Swim, Animation
+
+Thu, 21 May 2026 20:18:43 GMT
+
+https://collider.com/hbo-max-sci-fi-masterpiece-rick-and-morty-season-9-streaming-release-date-june-15-2026/
+
+Sci-fi masterpiece Rick and Morty Season 9 hits Adult Swim next week. Here's when you can watch it on HBO Max.
+---------
+
+# Sherlock Holmes’ New Series Officially Does What 100 Years of Adaptations Never Dared To
+
+TV Features, Sherlock Holmes, Series, Rafe Spall, Robert Downey Jr
+
+Thu, 21 May 2026 20:07:14 GMT
+
+https://collider.com/the-death-of-sherlock-holmes-series-missing-years-story/
+
+The Death of Sherlock Holmes finally explores the detective’s missing years after Reichenbach Falls.
+---------
+
+# Steven Spielberg's Sci-Fi Hit That Grossed 4x Its Budget Returns 1 Month Before 'Disclosure Day'
+
+Movie News, Steven Spielberg, Ready Player One, Sci-Fi, Ready Player Two
+
+Thu, 21 May 2026 20:05:25 GMT
+
+https://collider.com/steven-spielberg-sci-fi-hit-ready-player-one-streaming-release-date-hbo-max-june-3-2026/
+
+Ahead of Disclosure Day, Steven Spielberg's most recent sci-fi hit is coming to HBO Max soon. Read on for more.
+---------
+
+# Every 2026 Thriller Movie, Ranked Worst to Best
+
+Movie, Thriller, Send Help, Mercy, 28 Years Later: The Bone Temple
+
+Thu, 21 May 2026 19:53:14 GMT
+
+https://collider.com/thriller-movies-2026-ranked/
+
+2026 has seen many thriller film releases, ranging from great films like Dead Man's Wire to notably obnoxious films like Mercy.
+---------
+
+# Glen Powell's Answer to 'American Psycho' Gets an Official HBO Max Release
+
+Movie News, Glen Powell, How to Make a Killing, A24, Topher Grace
+
+Thu, 21 May 2026 19:52:37 GMT
+
+https://collider.com/glen-powell-crime-thriller-american-psycho-ready-or-not-replacement-how-to-make-a-killing-streaming-release-date-june-19-2026/
+
+Glen Powell's A24 crime thriller is officially getting a second chance on streaming, with HBO Max becoming its official new home.
+---------
+
+# Win Tickets to Our Early 'The Legend of Vox Machina' Season 4 Screening and Q&A
+
+Exclusives, Screening, The Legend of Vox Machina, Prime Video, Critical Role
+
+Thu, 21 May 2026 19:47:34 GMT
+
+https://collider.com/the-legend-of-vox-machina-season-4-screening-critical-role-cast-matthew-mercer-ashley-johnson/
+
+Details on how to enter for your chance to win free tickets to our early screening of Prime Video's The Legend of Vox Machina Season 4 with Q&amp;A.
+---------
+
+# 2026's Biggest Horror-Thriller Hit Makes a Scream-Worthy Debut on Paramount+ After Making 4x Its Budget
+
+Movie News, Scream, Scream 7
+
+Thu, 21 May 2026 19:43:37 GMT
+
+https://collider.com/2026-biggest-horror-hit-scream-7-streaming-paramount-plus-may-2026/
+
+Fans can now see Sidney Prescott face Ghostfaces from her past as Scream 7 is now available to stream on Paramount+.
+---------
+
+# ‘Jurassic Park’: the Greatest Quote in Steven Spielberg's Sci-Fi Movie Lives On
+
+Features, Steven Spielberg, Jurassic Park, Great Line
+
+Thu, 21 May 2026 20:00:19 GMT
+
+https://movieweb.com/jurassic-park-steven-spielberg-iconic-quote/
+
+'Jurassic Park,' the 1993 science fiction action movie directed by Steven Spielberg and starring Jeff Goldblum, has one particularly memorable quote.
+---------
+
+# 'The Boys' Creator Shares Hilarious Reaction to Elon Musk Calling Finale "Pathetic"
+
+TV News, The Boys, Eric Kripke, Elon Musk
+
+Thu, 21 May 2026 19:28:24 GMT
+
+https://movieweb.com/the-boys-finale-elon-musk-reaction-showrunner/
+
+Eric Kripke says of Musk's response that he'll "never have a better review."
+---------
+
+# Netflix's New 100% Rated Superhero Series 'The Wonderfools' Is Exploding on Streaming
+
+TV News, The WONDERfools, The Boys, Superhero, Netflix
+
+Thu, 21 May 2026 19:00:28 GMT
+
+https://movieweb.com/netflix-the-wonderfools-stream-may-2026/
+
+The streaming giant has already found the perfect 'The Boys' replacement.
+---------
+
+# ‘Mindhunter’: Netflix’s Thriller Deserves Its 97% Rotten Tomatoes Score
+
+Features, Mindhunter, Netflix, Holds Up
+
+Thu, 21 May 2026 19:00:28 GMT
+
+https://movieweb.com/mindhunter-netflix-thriller-masterpiece/
+
+'Mindhunter,' David Fincher's Netflix psychological thriller series, stars Anna Torv, Holt McCallany, and Jonathan Groff.
+---------
+
 # Passenger Review: Clever, Scary Touches Elevate An Otherwise By-The-Numbers Horror Movie
 
 Movies, Passenger
