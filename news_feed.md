@@ -1,3 +1,399 @@
+# Elsbeth Season 4: Release Date, Story, & Everything We Know
+
+Network TV, Elsbeth
+
+Thu, 21 May 2026 22:05:20 GMT
+
+https://screenrant.com/elsbeth-season-4-explained/
+
+Carrie Preston's Elsbeth is returning to CBS for a fourth season, and there are already some details about what to look forward to next.
+---------
+
+# Netflix's Upcoming Fantasy Series Based On A 10/10 Universe Will Make Arcane Look Small
+
+Streaming TV, Masked Recs
+
+Thu, 21 May 2026 22:02:20 GMT
+
+https://screenrant.com/magic-the-gathering-netflix-show-lore-bigger-than-arcane/
+
+League of Legends gave Netflix a lot to play with when making Arcane, but their next fantasy game adaptation offers near-limitless source material.
+---------
+
+# The Next Chapter in the Rocketeer Saga is Here, and It Lives Up to the Hype (Exclusive)
+
+Comics, The Rocketeer
+
+Thu, 21 May 2026 22:00:21 GMT
+
+https://screenrant.com/rocketeer-infiltrator-idw-next-chapter/
+
+Fly high!
+---------
+
+# The Boys' Finale: 8 Big Changes To The Comic Book Ending
+
+Streaming TV, The Boys
+
+Thu, 21 May 2026 22:00:21 GMT
+
+https://screenrant.com/the-boys-ending-comic-book-changes/
+
+The Boys’ overarching conclusion had many similarities to the comic books, but several big differences were nestled between the battles and deaths.
+---------
+
+# The Boroughs Interview with Alfre Woodard & Alfred Molina
+
+TV, The Boroughs, The Boroughs - Season 1
+
+Thu, 21 May 2026 21:58:52 GMT
+
+https://screenrant.com/video/the-boroughs-stranger-things-alfre-woodard-alfred-molina-interview/
+
+The Boroughs stars Alfre Woodard and Alfred Molina clarify how accurate the parallels are between their sci-fi show and Stranger Things.
+---------
+
+# Marvel Unveils Punisher’s Most Disturbing Costume Of All Time, Bar None
+
+Comics, punisher, The Punisher, Marvel
+
+Thu, 21 May 2026 21:52:23 GMT
+
+https://screenrant.com/punisher-redesign-new-costume-jigsaw/
+
+The Punisher's new series has reintroduced a classic villain with a brand-new methodology, with gruesome kills resulting in a haunting costume.
+---------
+
+# The Mandalorian & Grogu Doesn't Have A Post-Credits Scene, But If You Leave Early, You're Missing Out
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Thu, 21 May 2026 21:50:21 GMT
+
+https://screenrant.com/star-wars-mandalorian-grogu-movie-credits-scene/
+
+The Mandalorian & Grogu may be the first Star Wars movie in seven years, but it doesn't have a credits scene. It gives viewers another reason to stay.
+---------
+
+# HBO Max’s Controversial Drama Divides Audiences & More Shows To Binge This Weekend
+
+Streaming TV, HBO Max, What to Watch on Max, Masked Recs
+
+Thu, 21 May 2026 21:49:21 GMT
+
+https://screenrant.com/hbo-max-shows-to-watch-now-weekend-binge/
+
+The top 3 HBO Max shows to watch this Memorial Day weekend 2026: Euphoria season 3, Hacks season 5, and Baylen Out Loud season 3.
+---------
+
+# Netflix's New 8-Part Series That's 'Stranger Things For Adults' Is The Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Thu, 21 May 2026 21:30:20 GMT
+
+https://screenrant.com/the-boroughs-netflix-stranger-things-creators-show-binge/
+
+The latest addition to Netflix's catalog of sci-fi TV shows is a perfect weekend binge watch, and it feels like a Stranger Things version for adults.
+---------
+
+# The Mandalorian & Grogu's Ending Explained: What's Next For Din Djarin & Grogu?
+
+Star Wars, The Mandalorian and Grogu
+
+Thu, 21 May 2026 21:20:22 GMT
+
+https://screenrant.com/mandalorian-grogu-ending-explained-star-wars/
+
+The ending of The Mandalorian & Grogu ends with a climactic battle worthy of the big screen, resulting in new fates for key Star Wars characters.
+---------
+
+# In Just 1 Day, Prime Video's 107-Minute Reacher Replacement Is Officially the No. 1 Film in the World
+
+TV, Tom Clancy's Jack Ryan: Ghost War
+
+Thu, 21 May 2026 22:00:14 GMT
+
+https://www.cbr.com/jack-ryan-ghost-war-spy-action-prime-video-global-success-may-2026/
+
+Prime Video is the home of many action-packed movies, but the new release shot straight to No. 1 globally.
+---------
+
+# After 11 Years, Former Shonen Jump Artist Finally Reveals What Doomed His Precursor to My Hero Academia
+
+Anime, My Hero Academia
+
+Thu, 21 May 2026 22:00:14 GMT
+
+https://www.cbr.com/lady-justice-superhero-manga-cancellation-reason/
+
+The author was forced to include fanservice which did not align with his initial idea for the story.
+---------
+
+# Prime Video Has Already Doomed Henry Cavill's Next Sci-Fi Franchise
+
+Movies, Voltron (Live-Action)
+
+Thu, 21 May 2026 22:00:14 GMT
+
+https://www.cbr.com/henry-cavill-sci-fi-voltron-doomed-franchise/
+
+A controversial decision may have consigned this potential blockbuster to the cultural scrapheap before a frame of footage has even been shown.
+---------
+
+# Steam Officially Makes 9/10 Game 100% Free to Keep Until May 28
+
+Games, Warhammer 40K
+
+Thu, 21 May 2026 21:54:58 GMT
+
+https://www.cbr.com/steam-free-warhammer-40k-gladius-relics-of-war-may-2026/
+
+The franchise title has garnered "Very Positive" reviews from thousands of players.
+---------
+
+# Complete MandoVerse Timeline, Explained (Including The Mandalorian & Grogu)
+
+TV, Star Wars
+
+Thu, 21 May 2026 21:30:13 GMT
+
+https://www.cbr.com/star-wars-mandoverse-explained-sci-fi-guide/
+
+The Mandoverse is the next big phase of the Star Wars universe. But what properties make up the universe, and what other stories are on the way?
+---------
+
+# Choose Your Own Adventure Is Finally Becoming a Movie
+
+Movies
+
+Thu, 21 May 2026 21:25:55 GMT
+
+https://www.cbr.com/choose-your-own-adventure-movie-radio-silence/
+
+The legendary interactive book series is making the transition to the big screen.
+---------
+
+# Chris Pine's 3-Year-Old Box Office Flop Is Officially Heading to Free Streaming
+
+Movies, Dungeons & Dragons: Honor Among Thieves, Fantasy, Dungeons and Dragons
+
+Thu, 21 May 2026 21:17:43 GMT
+
+https://www.cbr.com/dungeons-and-dragon-honor-among-thieves-free-streaming-pluto-june-2026/
+
+Chris Pine's fantasy flop will soon be free.
+---------
+
+# 10 Perfect Yakuza Villains In RGG's Like a Dragon Games
+
+Games, RPG, Yakuza, open world, Like a Dragon 8, Yakuza 0, Yakuza: Like a Dragon
+
+Thu, 21 May 2026 21:15:14 GMT
+
+https://www.cbr.com/best-yakuza-villains-like-a-dragon-games/
+
+RGG's Yakuza Like a Dragon franchise is home some of the most formidable villains in gaming.
+---------
+
+# Justice League: Darkseid Officially Coming January 2027
+
+Games, Zack Snyder's Justice League, Justice League
+
+Thu, 21 May 2026 21:10:15 GMT
+
+https://www.cbr.com/justice-league-darkseid-zack-snyder-official-mask-january-2027/
+
+The Darkseid from Zack Snyder's Justice League is about to come to life like never before, and fans can already get their own on pre-order.
+---------
+
+# The 5 Biggest Mario Characters Still Missing After The Super Mario Galaxy Movie
+
+Movies, The Super Mario Galaxy Movie
+
+Thu, 21 May 2026 21:00:15 GMT
+
+https://www.cbr.com/characters-still-missing-after-super-mario-galaxy-movie-list/
+
+The Super Mario Galaxy Movie brought us new characters to love, but there are still some missing that we hope to see in the next installment.
+---------
+
+# It's Officially the End of an Era for HBO Max's Stellar Action Trilogy
+
+Movie Features, The Mummy, The Mummy Returns, The Mummy: Tomb of the Dragon Emperor, HBO Max
+
+Thu, 21 May 2026 22:08:17 GMT
+
+https://collider.com/hbo-max-the-mummy-action-trilogy-leaving-may-29/
+
+Time is running out to check out the original Mummy trilogy on HBO Max, as it departs on May 29.
+---------
+
+# 'The Mandalorian and Grogu' Ending Explained, Revealing the Future of Star Wars
+
+Movie Features, The Mandalorian and Grogu, Star Wars, Lucasfilm, Jon Favreau
+
+Thu, 21 May 2026 21:53:37 GMT
+
+https://collider.com/the-mandalorian-and-grogu-ending-explained-star-wars-future/
+
+The Mandalorian and Grogu brings Star Wars back to theaters for the first time in seven years, and it's time to unpack the movie's ending.
+---------
+
+# 7 Book Scenes We Need To See in 'Off Campus' Season 2
+
+TV, Off Campus, Prime Video, Romance, Sports
+
+Thu, 21 May 2026 21:53:13 GMT
+
+https://collider.com/off-campus-season-2-book-scenes-needed-prime-video/
+
+Off Campus Season 2 is likely to focus on Allie and Dean, and we hope the Prime Video series includes these scenes from Elle Kennedy's The Score.
+---------
+
+# ‘The Boys’ Divisive Finale Completely Changed the Ending From the Comics
+
+TV Features, The Boys, Prime Video, Eric Kripke, Antony Starr
+
+Thu, 21 May 2026 21:53:13 GMT
+
+https://collider.com/the-boys-series-finale-prime-video-black-noir-comics-changes-meaning/
+
+The Boys could have had a wildly different ending if it had adapted a key twist from the comics.
+---------
+
+# 8 Stellar Action Movies That You Have Been Sleeping On
+
+Movie, Action, Smokin' Aces, Dredd, Ronin
+
+Thu, 21 May 2026 21:45:14 GMT
+
+https://collider.com/best-action-movies-you-have-been-sleeping-on/
+
+Movies like Den of Thieves and Ronin are perfect examples of action done right, but they sadly remain underseen and undervalued by mainstream viewers.
+---------
+
+# 26 Years Ago, 'Everybody Loves Raymond's Most Controversial Episode Changed the Sitcom Genre in a Major Way
+
+TV Features, Everybody Loves Raymond, Patricia Heaton, Ray Romano, Sitcom
+
+Thu, 21 May 2026 21:28:14 GMT
+
+https://collider.com/everybody-loves-raymond-patricia-heaton-best-episode-bad-moon-rising/
+
+Everybody Loves Raymond showcases Patricia Heaton's exceptional, award-winning talent in a very controversial episode that has aged terribly today.
+---------
+
+# Mel Gibson’s ‘Passion of the Christ’ Sequel Gets First Look as Part 2 Hit With Major Delay
+
+Movie News, The Passion of the Christ, The Resurrection of the Christ Part 1, The Resurrection of the Christ Part 2, Mel Gibson
+
+Thu, 21 May 2026 21:20:22 GMT
+
+https://collider.com/mel-gibson-passion-of-the-christ-sequel-resurrection-of-the-christ-first-look-release-date-delay/
+
+Lionsgate has dropped an official first look at Mel Gibson’s biblical sequel, The Resurrection of the Christ, to soften major release date delay news.
+---------
+
+# Only 8 Legacy Sequels Were Actually Any Good
+
+Movie, Top Gun: Maverick, Star Wars: Episode VII - The Force Awakens, Creed, Blade Runner 2049
+
+Thu, 21 May 2026 21:19:16 GMT
+
+https://collider.com/legacy-sequels-that-were-actually-good/
+
+Legacy sequels aren't always great, but there have still been some good ones released, including Blade Runner 2049, Creed, and Top Gun: Maverick.
+---------
+
+# The Forgotten '90s Swashbuckler That Wrote the Playbook for 'Pirates of the Caribbean'
+
+Movie Features, Disney, The Three Musketeers, Pirates of the Caribbean, Action
+
+Thu, 21 May 2026 21:09:15 GMT
+
+https://collider.com/the-three-musketeers-movie-1993-disney-plus-pirates-of-the-caribbean/
+
+The 1993 Disney action movie The Three Musketeers is an underappreciated adventure movie that laid the groundwork for Pirates of the Caribbean.
+---------
+
+# 10 Most Powerful Star Wars Characters, Ranked by Strength
+
+Movie, Star Wars, Star Wars: The Clone Wars, Star Wars: Rebels, The Mandalorian and Grogu
+
+Thu, 21 May 2026 20:57:15 GMT
+
+https://collider.com/star-wars-most-powerful-characters-strength-ranked/
+
+From Darth Vader and Luke Skywalker to Clone Wars' The Daughter, which Star Wars character is the most powerful, based on their individual strength?
+---------
+
+# Amazon's 'Jack Ryan' Officially Reaches the End of an Era With 'Ghost War' Reviews
+
+Features, Jack Ryan, Tom Clancy's Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, Prime Video
+
+Thu, 21 May 2026 22:00:19 GMT
+
+https://movieweb.com/amazon-jack-ryan-reviews-officially-end-era/
+
+Prime Video's acclaimed 'Jack Ryan' series reaches the end of an era in the bleakest way possible with the new 'Ghost War' movie.
+---------
+
+# 'Emily in Paris' Ending With Season 6 on Netflix
+
+TV News, Emily in Paris, Lily Collins, Netflix
+
+Thu, 21 May 2026 21:53:36 GMT
+
+https://movieweb.com/emily-in-paris-season-6-netflix-ending/
+
+Netflix has confirmed that 'Emily in Paris' will end with Season 6, now filming in Greece, as Lily Collins says goodbye to Emily Cooper.
+---------
+
+# 'Scream 7' Officially Streaming on Paramount+ on May 28
+
+Movie News, Scream 7, Scream, Paramount Plus
+
+Thu, 21 May 2026 21:26:34 GMT
+
+https://movieweb.com/scream-7-streaming-release-date/
+
+Paramount+ has confirmed when 'Scream 7' starts streaming. Here's the official North American release date and what's included.
+---------
+
+# Prime Video Finds New #1 Action Thriller With 'Jack Ryan: Ghost War'
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Hot on Streaming, Action, Prime Video
+
+Thu, 21 May 2026 21:00:20 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-prime-video-streaming-success-may-2026/
+
+Despite receiving mixed reviews from both fans and critics, 'Jack Ryan: Ghost War' has skyrocketed to the top of the streaming charts on Prime Video.
+---------
+
+# John Wayne vs. Clint Eastwood: Who's Really the Greatest Western Star of All Time?
+
+Features, John Wayne, Clint Eastwood, Western
+
+Thu, 21 May 2026 21:00:20 GMT
+
+https://movieweb.com/john-wayne-vs-clint-eastwood-greatest-western-star/
+
+Two of the most legendary movie western icons, it's time to see once and for all who reigns supreme - John Wayne or Clint Eastwood.
+---------
+
+# 'The Super Mario Galaxy Movie' Star Keegan-Michael Key Surprised to Learn Nintendo Has Existed Since 1889
+
+Movie News, The Super Mario Galaxy Movie, Keegan Michael Key
+
+Thu, 21 May 2026 20:50:53 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-keegan-key-nintendo-history/
+
+Nintendo first began its operations over a century ago, much to the surprise of Toad actor Keegan-Michael Key from 'The Super Mario Galaxy Movie.'
+---------
+
 # GTA 6 Release Timing Praised By Gamers Following Official Update
 
 Gaming, Grand Theft Auto 6, Triple-A Games
