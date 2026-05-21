@@ -1,3 +1,344 @@
+# Weekly Shonen Jump Is In Hot Water After a Former Artist Calls The Magazine Out
+
+Anime, Shonen Jump
+
+Thu, 21 May 2026 23:30:20 GMT
+
+https://screenrant.com/shonen-jump-female-character-problem-lady-justice-callout/
+
+Ken Ogino, author of Lady Justice, reveals how Shonen Jump's editorial team demanded erotic content for his series, stifling his creative vision.
+---------
+
+# Apple TV's 2-Part Dystopian Sci-Fi Series Makes Severance Look Small
+
+Streaming TV, Masked Recs
+
+Thu, 21 May 2026 23:30:20 GMT
+
+https://screenrant.com/silo-apple-tv-makes-severance-look-small/
+
+Apple TV's Severance is one of the best sci-fi mystery box shows out there, but the streamer's dystopian series Silo is even bigger and better.
+---------
+
+# Prime Video's New Jack Ryan Movie Rotten Tomatoes Sets Audience Score Record For John Krasinski Era
+
+Movies, Tom Clancy's Jack Ryan: Ghost War, Jack Ryan
+
+Thu, 21 May 2026 23:07:18 GMT
+
+https://screenrant.com/tom-clancy-jack-ryan-ghost-war-rotten-tomatoes-audience-score-john-krasinski-era-record/
+
+Tom Clancy's Jack Ryan: Ghost War is now available on Prime Video, and the new spy film breaks an unwanted record for John Krasinski's version.
+---------
+
+# Guardians Of The Galaxy Vol. 2 Has One Of Space Operas' Biggest Deaths
+
+Movies, Masked Recs, Quiz CV
+
+Thu, 21 May 2026 23:00:21 GMT
+
+https://screenrant.com/disney-plus-guardians-of-the-galaxy-vol-2-yondu-death/
+
+Disney+'s box office hit space opera is one of the genre's saddest releases of all time, as the sci-fi movie presents an unforgettable death.
+---------
+
+# The Boroughs Interviews with Geena Davis, Denis O'Hare, Clarke Peters & Creators
+
+TV, The Boroughs, The Boroughs - Season 1, Geena Davis
+
+Thu, 21 May 2026 23:00:21 GMT
+
+https://screenrant.com/video/the-boroughs-geena-davis-denis-ohare-clarke-peters-eps-interview/
+
+The cast and creators of The Boroughs clarify how accurate the parallels are between their sci-fi show and Stranger Things.
+---------
+
+# I Love Boosters Ending Explained: The True Meaning Behind Boots Riley's Fashion Social Satire
+
+Movies, I Love Boosters
+
+Thu, 21 May 2026 23:00:21 GMT
+
+https://screenrant.com/i-love-boosters-ending-explained/
+
+I Love Boosters is a powerful new satire by Boots Riley that highlights the most powerful weapon people can use to fight for their place in society.
+---------
+
+# One Piece's Ending Will Show Naruto How It's Done
+
+Anime, One Piece (1997), Naruto (1999)
+
+Thu, 21 May 2026 23:00:21 GMT
+
+https://screenrant.com/one-piece-ending-show-naruto-how-done/
+
+With the similarities between One Piece's endgame and the ending to Naruto building, Luffy is about to show the Shōnen shinobi how it's done.
+---------
+
+# IMAX Potential Sale Report Sends Shockwaves Through Stock Market
+
+Movies, film genre
+
+Thu, 21 May 2026 22:40:44 GMT
+
+https://screenrant.com/imax-potential-sale-rise-stock-market/
+
+IMAX might be looking to sell, exploring several options and sending the stock market into a frenzy after hours on May 21, 2026.
+---------
+
+# 7 New Romantasy Books That Already Have Goodreads Members Hooked (Exclusive)
+
+Books, Romantasy
+
+Thu, 21 May 2026 22:30:21 GMT
+
+https://screenrant.com/new-romantasy-books-rec-list-goodreads-exclusive/
+
+Goodreads data reveals the most anticipated romantasy books of 2026, from already released hits to upcoming must-reads fans can’t wait for.
+---------
+
+# Mr. Inbetween Is Disney+'s Biggest Hidden Gem Crime Drama
+
+TV, Disney+
+
+Thu, 21 May 2026 22:30:21 GMT
+
+https://screenrant.com/disney-mr-inbetween-show-crime-drama-hidden-gem/
+
+Disney+ has a near-perfect crime drama show that has tragically become something of a hidden gem compared to other series of a similar quality.
+---------
+
+# 10 Demon Slayer Manga Panels That Look Better Than The Anime
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba, Shonen, shonen anime
+
+Thu, 21 May 2026 23:15:13 GMT
+
+https://www.cbr.com/demon-slayer-manga-panels-better-than-anime/
+
+Koyoharu Gotouge’s original manga panels carry something the Demon Slayer anime cannot translate.
+---------
+
+# 5 Underrated MCU Movies That Are Perfect From Start to Finish
+
+Movies, Marvel Cinematic Universe
+
+Thu, 21 May 2026 23:00:14 GMT
+
+https://www.cbr.com/most-underrated-perfect-mcu-movies-list/
+
+The MCU has countless movies that have been passed over by fans, but there are a few underrated movies that are still perfect.
+---------
+
+# Netflix's Magic: The Gathering Series Will Rival HBO's Game of Thrones
+
+TV, Magic: The Gathering, Fantasy, Netflix
+
+Thu, 21 May 2026 23:00:14 GMT
+
+https://www.cbr.com/netflix-magic-the-gathering-rival-hbo-game-of-thrones/
+
+HBO's Game of Thrones has been TV's premier fantasy show, but an upcoming Netflix series will challenge that status.
+---------
+
+# Agatha Christie’s Greatest Detective Is Officially Getting a Reboot
+
+TV, Poirot
+
+Thu, 21 May 2026 22:55:15 GMT
+
+https://www.cbr.com/bbc-hercule-poirot-reboot-agatha-christie/
+
+The time has come for the iconic detective to be reimagined once again.
+---------
+
+# Star Trek's William Shatner Blasts Magic: The Gathering Card: 'Looks Like AI'
+
+Games, Magic: The Gathering, Star Trek
+
+Thu, 21 May 2026 22:27:14 GMT
+
+https://www.cbr.com/star-trek-magic-the-gathering-card-william-shatner-ai-controversy/
+
+William Shatner has publicly blasted the official Magic: The Gathering Captain Kirk card, claiming that the artwork looks like it was made by AI.
+---------
+
+# CBS Is Officially Changing FBI's Maggie & OA Partnership After 8 Years
+
+TV, FBI
+
+Thu, 21 May 2026 22:24:26 GMT
+
+https://www.cbr.com/cbs-changes-fbi-maggie-oa-partnership/
+
+It's the end of an era for FBI fans after almost a decade.
+---------
+
+# One Piece Needs to Stop Treating Franky Like a Background Character
+
+Anime, One Piece
+
+Thu, 21 May 2026 22:15:13 GMT
+
+https://www.cbr.com/one-piece-stop-treating-franky-like-background-character/
+
+Franky is a longtime crew member, but he's slowly faded into the background despite his importance.
+---------
+
+# 8 Years Later, the Greatest Western of the 21st Century Is Officially Free
+
+Gaming News, Red Dead Redemption, Red Dead Redemption 2, Western, PlayStation 5
+
+Thu, 21 May 2026 23:30:13 GMT
+
+https://collider.com/best-western-red-dead-redemption-2-free-download-playstation-plus/
+
+Red Dead Redemption 2, one of the greatest Westerns ever made, is now free to download for PlayStation Plus Extra and Premium members.
+---------
+
+# All 4 Movies Called 'The Mummy,' Ranked
+
+Movie
+
+Thu, 21 May 2026 23:21:14 GMT
+
+https://collider.com/movies-called-the-mummy-ranked/
+
+There are four movies from cinema history called The Mummy, including 1932's original film and the beloved 1999 blockbuster... but which is the best?
+---------
+
+# Marvel Fans Officially Dub New Wolverine Actor as the Perfect Replacement for Hugh Jackman
+
+Gaming News, X-Men, Hugh Jackman, Insomniac Games, Deadpool & Wolverine
+
+Thu, 21 May 2026 23:16:14 GMT
+
+https://collider.com/marvel-wolverine-actor-liam-mcintyre-fan-reaction-playstation-5-game/
+
+Marvel’s Wolverine fans are already loving Liam McIntyre’s take on Logan ahead of the PS5 game’s release.
+---------
+
+# 10 Best Sitcoms of the 2000s, Ranked
+
+TV, Sitcom, 2000s, It's Always Sunny in Philadelphia, The Office
+
+Thu, 21 May 2026 23:12:14 GMT
+
+https://collider.com/best-2000s-sitcoms-ranked/
+
+The best sitcoms of the 2000s made TV history and defined the era, from The Office to The Big Bang Theory.
+---------
+
+# Forget 'Peaky Blinders,' Prime Video’s Underseen 8-Part Crime Thriller Is a Masterpiece From Start to Finish
+
+TV Features, Peaky Blinders, ZeroZeroZero, Prime Video, Dane DeHaan
+
+Thu, 21 May 2026 23:04:14 GMT
+
+https://collider.com/peaky-blinders-replacement-prime-video-thriller-series-zerozerozero/
+
+Fans of crime dramas like Peaky Blinders and Narcos need to watch the underseeen Prime Video gem ZeroZeroZero.
+---------
+
+# Star of Apple TV’s Best New Sci-Fi Series Officially Returns to the Streamer, But Not for Season 2
+
+Movie News, Pluribus, Sci-Fi, Apple TV, Rhea Seehorn
+
+Thu, 21 May 2026 23:00:14 GMT
+
+https://collider.com/apple-tv-best-sci-fi-series-pluribus-star-rhea-seehorn-cast-new-movie-running/
+
+Rhea Seehorn has joined Apple Studios’ Running, from Gavin O’Connor and Bill Dubuque, as fans wait for Pluribus Season 2.
+---------
+
+# Warner Bros. Discovery’s Growing TV Problem Is Now Dragging Streaming Down With It
+
+TV Features, Warner Bros., HBO Max, Paramount Plus, David Ellison
+
+Thu, 21 May 2026 22:58:14 GMT
+
+https://collider.com/warner-bros-discovery-tv-problem-just-got-worse-streaming/
+
+Warner Bros. Discovery faces challenges integrating pay-TV content with streaming, as Paramount's acquisition threatens HBO Max's success.
+---------
+
+# 10 Best Film Noir Movies That Are Pure Cinema, Ranked
+
+Movie, The Third Man, Laura, Double Indemnity, Out Of The Past
+
+Thu, 21 May 2026 22:54:13 GMT
+
+https://collider.com/best-film-noir-movies/
+
+The Maltese Falcon, Double Indemnity, and The Third Man are all among the greatest classic film noir movies ever made.
+---------
+
+# 'The Late Show with Stephen Colbert' Delivers Final Episode in May 2026 After Cancelation
+
+TV News, The Late Show with Stephen Colbert, Stephen Colbert
+
+Thu, 21 May 2026 23:07:40 GMT
+
+https://movieweb.com/stephen-colbert-late-show-ends/
+
+Late-night host Stephen Colbert will deliver the final episode of his talk show, 'The Late Show with Stephen Colbert,' on May 21.
+---------
+
+# 9 Jason Statham Movies That Audiences and Critics Disagreed on
+
+Movie Lists, Jason Statham
+
+Thu, 21 May 2026 23:00:19 GMT
+
+https://movieweb.com/jason-statham-movies-audiences-critics-disagree/
+
+Jason Statham's movies often leave audiences and critics divided. The following instances show the widest gaps in opinion.
+---------
+
+# Reboot of Sylvester Stallone's Action Classic 'Cliffhanger' Lands August Release
+
+Movie News, Sylvester Stallone, Cliffhanger, Lily James, Pierce Brosnan
+
+Thu, 21 May 2026 22:45:09 GMT
+
+https://movieweb.com/cliffhanger-reboot-release-date/
+
+The adrenaline-fueled classic is getting an all-new adaptation and it'll be hitting theaters soon.
+---------
+
+# First Look at Lupita Nyong'o as Clytemnestra in 'The Odyssey' Revealed
+
+Movie News, The Odyssey, Lupita Nyong'o
+
+Thu, 21 May 2026 22:36:26 GMT
+
+https://movieweb.com/lupita-nyongo-odyssey-first-look/
+
+The first look at Lupita Nyong'o as Clytemnestra, one of her two roles, in Christopher Nolan's latest film has been revealed.
+---------
+
+# The Best Stephen King Adaptation in Years 'The Long Walk' Strides to Streaming Success
+
+Movie News, Stephen King, The Long Walk, Hot on Streaming
+
+Thu, 21 May 2026 22:30:19 GMT
+
+https://movieweb.com/the-long-walk-stephen-king-streaming-hit-starz-may-2026/
+
+It is easily the best dystopian adaptation in the author's catalog of films and TV shows.
+---------
+
+# 'The Boys' Creator Eric Kripke Explains Terror's Death in Series Finale
+
+TV News, The Boys, Eric Kripke
+
+Thu, 21 May 2026 22:20:30 GMT
+
+https://movieweb.com/the-boys-season-5-eric-kripke-terror-death/
+
+Eric Kripke explains the reasoning for killing off Butcher's dog, Terror, in the final episode of Prime Video's 'The Boys.'
+---------
+
 # Elsbeth Season 4: Release Date, Story, & Everything We Know
 
 Network TV, Elsbeth
