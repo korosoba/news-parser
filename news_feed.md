@@ -1,3 +1,234 @@
+# Why The Boys Series Finale Changed Butcher & Homelander's Fates From The Comics
+
+TV, The Boys
+
+Thu, 21 May 2026 03:59:44 GMT
+
+https://screenrant.com/the-boys-season-5-ending-homelander-butcher-hughie-comic-change-eric-kripke-explained/
+
+The Boys showrunner Eric Kripke explains why the series finale deviates from the comics, especially concerning Homelander and Butcher's fates.
+---------
+
+# Gen V Season 3 Story Details Officially Revealed After Cancellation & The Boys Series Finale
+
+TV, Gen V, The Boys
+
+Thu, 21 May 2026 03:54:27 GMT
+
+https://screenrant.com/gen-v-season-3-story-details-eric-kripke-explained/
+
+Following the series finale of The Boys, Eric Kripke reveals what the main story of Gen V season 3 was going to be before it was canceled.
+---------
+
+# Train To Busan Director's New Zombie Thriller Colony Debuts To A Solid Rotten Tomatoes Score
+
+Movies, Masked Recs, Train to Busan, Yeon Sang-ho
+
+Thu, 21 May 2026 03:50:28 GMT
+
+https://screenrant.com/colony-movie-rotten-tomatoes-score-train-to-busan-comparison/
+
+Train to Busan filmmaker returns to the zombie genre with a new action horror movie, which has debuted to a solid Rotten Tomatoes score.
+---------
+
+# Toad & Peach Spinoff Potential After Super Mario Galaxy Movie Addressed By Keegan Michael-Key
+
+Movies, The Super Mario Galaxy Movie, Keegan Michael Key
+
+Thu, 21 May 2026 03:23:46 GMT
+
+https://screenrant.com/super-mario-galaxy-movie-toad-peach-spinoff-potential-keegan-michael-key/
+
+Exclusive: Keegan Michael-Key, star of Super Mario Galaxy and the voice of Toad, discussed a spinoff for his character as the universe expands.
+---------
+
+# Netflix's 7-Season Dystopian Sci-Fi Reinvents The Twilight Zone For A Modern Era
+
+Streaming TV, Masked Recs
+
+Thu, 21 May 2026 03:20:52 GMT
+
+https://screenrant.com/black-mirror-reinvent-the-twilight-zone/
+
+Almost seven decades after the release of the OG, Netflix's dystopian sci-fi has rightfully earned the title of The Twilight Zone for a modern era.
+---------
+
+# New Duffer Bros. Series The Boroughs' Parallels To Stranger Things Detailed By Stars & Creators: “Golf Carts Instead Of Bicycles”
+
+TV, The Boroughs, The Boroughs - Season 1
+
+Thu, 21 May 2026 02:42:57 GMT
+
+https://screenrant.com/the-boroughs-stranger-things-comparisons-cast-creators-response/
+
+EXCLUSIVE: The cast and creators of The Boroughs clarify how accurate the parallels are between their sci-fi show and Stranger Things.
+---------
+
+# 10 Anime Swordsmen Who Could Beat Luke Skywalker
+
+Anime, Star Wars, Attack on Titan, Demon Slayer, One Piece
+
+Thu, 21 May 2026 03:45:14 GMT
+
+https://www.cbr.com/anime-swordsmen-stronger-than-luke-skywalker/
+
+These anime swordsmen are all far too strong for Luke Skywalker to defeat with a mere lightsaber.
+---------
+
+# Captain Janeway's Greatest Star Trek Line Hits Hard
+
+TV, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Thu, 21 May 2026 03:30:14 GMT
+
+https://www.cbr.com/captain-janeway-best-star-trek-line-sci-fi-quote/
+
+In Voyager’s Season 4 finale, Captain Janeway’s blunt truth to Seven of Nine captures the burden of command and why isolation defines her leadership.
+---------
+
+# Netflix’s Nope Is Still the Smartest Sci-Fi Movie of the Decade
+
+Movies, Netflix, Nope, Horror
+
+Thu, 21 May 2026 03:16:14 GMT
+
+https://www.cbr.com/netflix-nope-smartest-sci-fi-movie-of-decade/
+
+A movie unlike anything else of its kind, Netflix’s latest addition, Nope, is a smart and creative spin on an overdone sci-fi trope.
+---------
+
+# 10 Hardest Sega Dreamcast Games of All Time, Ranked by Difficulty
+
+Games, dreamcast, Video Games, Sonic the Hedgehog, Resident Evil
+
+Thu, 21 May 2026 03:16:14 GMT
+
+https://www.cbr.com/official-hardest-sega-dreamcast-games-of-all-time/
+
+Blood-boiling titles like Sonic Shuffle and Resident Evil – Code: Veronica represent the difficulty the Sega Dreamcast had to offer.
+---------
+
+# Chelsea Handler Blasts 'Disgusting' Shane Gillis for Kevin Hart Roast Jokes
+
+TV, Netflix
+
+Thu, 21 May 2026 03:11:38 GMT
+
+https://www.cbr.com/chelsea-handler-responds-shane-gillis-kevin-hart-roast/
+
+Shane Gillis responds after Chelsea Handler calls him out for going too far on Netflix's The Roast of Kevin Hart.
+---------
+
+# 5 High Fantasy Anime That Are 10/10, No Notes
+
+Anime, Slayers, Rokka: Braves Of The Six Flowers, Isekai, Fantasy
+
+Thu, 21 May 2026 02:46:14 GMT
+
+https://www.cbr.com/perfect-high-fantasy-anime/
+
+There are endless high fantasy anime out there, but it takes rare titles like Rokka and Slayers to truly perfect the genre's staples.
+---------
+
+# The 10 Most Important KPop Demon Hunters Quotes, Ranked
+
+Movies, KPop Demon Hunters
+
+Thu, 21 May 2026 02:46:14 GMT
+
+https://www.cbr.com/best-kpop-demon-hunters-quotes-list/
+
+KPop Demon Hunters was a worldwide sensation for Netflix, and the film continues to have some important and powerful quotes.
+---------
+
+# 8 Years Ago, This '9-1-1' Episode Changed the Show Forever
+
+TV Features, 9-1-1, Procedural, ABC, Fox
+
+Thu, 21 May 2026 04:07:13 GMT
+
+https://collider.com/9-1-1-earthquake-disaster-changed-show-forever/
+
+9-1-1 Season 2's major earthquake not only shook the city but also transformed the series, setting the stage for future multi-episode disasters.
+---------
+
+# This Once-Lost Film From a Star Wars Legend Was 'The Empire Strikes Back's Dark, Fantastic Opener
+
+Movie Features, Black Angel, 20th Century Fox, Star Wars, Star Wars: Episode V - The Empire Strikes Back
+
+Thu, 21 May 2026 03:57:16 GMT
+
+https://collider.com/star-wars-roger-christian-black-angel-indiegogo-update/
+
+Intended to play before The Empire Strikes Back, the short film Black Angel disappeared, leaving only a degraded copy until it was miraculously found.
+---------
+
+# This 100% Rotten Tomato-Rated Detective Thriller Helped Change Society for the Better
+
+Movie Features, Victim, Thriller, Film Noir, Dirk Bogarde
+
+Thu, 21 May 2026 03:24:18 GMT
+
+https://collider.com/crime-noir-thriller-victim-1961-changed-queer-society/
+
+Victim, a critically acclaimed 1961 noir thriller helped kickstart the decriminalization of homosexuality.
+---------
+
+# This 96% RT Crime Thriller Should Be Your Next Binge After Netflix's 'Legends'
+
+TV Features, Legends, Ponies, Netflix, Peacock
+
+Thu, 21 May 2026 03:17:14 GMT
+
+https://collider.com/crime-thriller-series-ponies-legends-replacement/
+
+As Legends continue to claim Netflix’s Top 10 worldwide, the spy thriller series Ponies should be your next watch.
+---------
+
+# One of the All-Time Greatest Western Franchises Is Still an Undisputed Streaming Hit 8 Years Later
+
+TV Features, Yellowstone, Marshals, Dutton Ranch, Paramount Plus
+
+Thu, 21 May 2026 03:15:14 GMT
+
+https://collider.com/yellowstone-franchise-western-streaming-hit-dutton-ranch-marshals/
+
+Yellowstone spin-offs Dutton Ranch and Marshals are maintaining strong viewership on Paramount+, showcasing the franchise's enduring popularity.
+---------
+
+# 30 Years Later, This Forgotten ‘X-Files’ Episode Has Never Been More Alarmingly Relevant
+
+TV Features, The X-Files, Gillian Anderson, David Duchovny, Hulu
+
+Thu, 21 May 2026 03:09:15 GMT
+
+https://collider.com/the-x-files-forgotten-episode-2shy-relevant-today/
+
+The X-Files episode "2Shy" explores loneliness, predatory behavior, and societal biases still relevant today in true crime stories and online dating.
+---------
+
+# 9 Hulu Shows That Will Keep You Hooked From Start to Finish
+
+TV, Hulu, Only Murders in the Building, The Testaments, Paradise
+
+Thu, 21 May 2026 03:02:14 GMT
+
+https://collider.com/hulu-shows-hooked-start-to-finish/
+
+From the sci-fi thriller Paradise to the true crime miniseries The Dropout, these Hulu shows will keep you hooked to your screen from start to finish.
+---------
+
+# Adam Driver Reveals the Subtle "American Tragedy" Driving His New Crime Thriller
+
+Exclusives, Adam Driver, Paper Tiger, Cannes Film Festival, Scarlett Johansson
+
+Thu, 21 May 2026 03:00:15 GMT
+
+https://collider.com/adam-driver-paper-tiger-scarlett-johansson-miles-teller-james-gray-interview/
+
+Adam Driver delves into his role in Paper Tiger, working with Scarlett Johansson and Miles Teller, and the challenges of portraying complex dynamics.
+---------
+
 # Netflix's New Rom-Com Just Made K-Drama History
 
 Streaming TV, Masked Recs
