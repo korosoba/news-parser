@@ -1,3 +1,355 @@
+# One-Punch Man's Anime Has Become A Disaster To Its Fans But The Franchise Still Has Hope
+
+Anime, One-Punch Man
+
+Fri, 22 May 2026 02:30:20 GMT
+
+https://screenrant.com/one-punch-man-anime-failure-manga-better/
+
+Saitama's seen better days with now two of the anime's three seasons being progressively more disappointing, but it's not over yet.
+---------
+
+# Seth Rogen’s The Studio Season 2 Gets Official Apple TV Release Window
+
+TV, The Studio
+
+Fri, 22 May 2026 02:19:59 GMT
+
+https://screenrant.com/the-studio-season-2-apple-tv-release-window/
+
+Apple TV+ and Seth Rogen's original satirical comedy series The Studio has officially received a release window for its second season.
+---------
+
+# Prime Video's 2-Part Post-Apocalyptic Series Is So Good, It Could Last Forever
+
+TV, Masked Recs
+
+Fri, 22 May 2026 02:00:32 GMT
+
+https://screenrant.com/fallout-prime-video-show-universe-story-run-forever/
+
+Prime Video's biggest sci-fi series begins its story with the end, so has no conceivable ending in sight after record-breaking streaming success.
+---------
+
+# 2026 Is Officially The Golden Age For Carnage
+
+Comics, Carnage, Spider-Man, Marvel, Marvel Tokon: Fighting Souls, Marvel Rivals
+
+Fri, 22 May 2026 02:00:32 GMT
+
+https://screenrant.com/carnage-marvel-best-era-2026/
+
+2026 has all the pieces in place for Cletus Kasady's Carnage to wreak havoc in one particular medium, marking a great new era for the super-villain.
+---------
+
+# Get Out X Black Mirror Energy Runs Through Netflix’s Greatest Sci-Fi Movie
+
+Movies, Masked Recs
+
+Fri, 22 May 2026 01:45:19 GMT
+
+https://screenrant.com/get-out-black-mirror-they-cloned-tyrone-netflix/
+
+One of the greatest sci-fi movies of all time on Netflix feels like the perfect mishmash of some of Get Out and Black Mirror’s best story elements.
+---------
+
+# Sherlock Creator's 2-Part Historical Detective Drama With Rare Perfect Rotten Tomatoes Score Could Last Forever
+
+Streaming TV, Masked Recs
+
+Fri, 22 May 2026 01:30:20 GMT
+
+https://screenrant.com/bookish-mark-gatiss-detective-drama-last-forever/
+
+Sherlock co-creator Mark Gatiss' new historical detective drama has everything it needs to become a long-running and iconic murder mystery series.
+---------
+
+# Netflix’s Next One Piece Has Never Been More Obvious
+
+Anime, One Piece, Netflix
+
+Fri, 22 May 2026 01:00:21 GMT
+
+https://screenrant.com/netflix-next-one-piece-jojos-bizarre-adventure-peak/
+
+If Netflix could nail a live-action adaptation of this series like it did for One Piece, other anime wouldn't Stand a chance.
+---------
+
+# 66 Easter Eggs, References, & Deep-Cut Star Wars Trivia in The Mandalorian & Grogu
+
+Star Wars, The Mandalorian and Grogu
+
+Fri, 22 May 2026 01:00:21 GMT
+
+https://screenrant.com/mandalorian-grogu-easter-eggs-deep-cut-star-wars-references-breakdown/
+
+The Mandalorian & Grogu is finally in theaters, bringing with it a very fun collection of Star Wars Easter eggs, references, and cool ties.
+---------
+
+# Silo Will Officially Explore A New Genre In Season 3
+
+Streaming TV, Silo, Apple TV
+
+Fri, 22 May 2026 00:46:22 GMT
+
+https://screenrant.com/silo-season-3-new-genre/
+
+Silo season 3 is set to premiere on Apple TV soon, and, as its story details suggest, it will explore an entirely new genre in the new instalment.
+---------
+
+# Solo Leveling's Sequel Success Only Continues To Highlight Its Greatest Isekai Rival
+
+Anime, Solo Leveling, Villains Are Destined to Die
+
+Fri, 22 May 2026 00:30:20 GMT
+
+https://screenrant.com/solo-leveling-sequel-otome-isekai-rival-manhwa/
+
+As Solo Leveling: Ragnarok takes home a major award, an unexpected series proves to be its biggest rival.
+---------
+
+# Beavis and Butt-Head Finally Coming to Netflix for First Time Ever
+
+TV, Beavis and Butt-Head
+
+Fri, 22 May 2026 02:39:00 GMT
+
+https://www.cbr.com/beavis-butt-head-netflix-first-time-june-2026/
+
+Beavis and Butt-Head are, like, getting a new streaming home and stuff.
+---------
+
+# These Forgotten 1960s Manga Have Aged Like Fine Wine
+
+Anime, Manga
+
+Fri, 22 May 2026 02:15:14 GMT
+
+https://www.cbr.com/forgotten-1960s-manga-aged-like-fine-wine/
+
+These old-school manga have hardly been read by anyone, but they've all aged marvelously.
+---------
+
+# These 10/10 Crunchryoll Anime Are the Perfect Solo Leveling Replacements
+
+Anime, Solo Leveling
+
+Fri, 22 May 2026 02:00:25 GMT
+
+https://www.cbr.com/solo-leveling-season-3-replacement-best-crunchyroll-anime/
+
+Solo Leveling season 3 isn't here yet, but these 10/10 anime can make the wait easier.
+---------
+
+# All 13 Star Wars Movies (Including The Mandalorian and Grogu), Ranked By Rotten Tomatoes Score
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Fri, 22 May 2026 02:00:25 GMT
+
+https://www.cbr.com/star-wars-movies-mandalorian-and-grogu-rotten-tomatoes-list/
+
+Star Wars movies have been around for decades, and according to Rotten Tomatoes, there are some that soar high above others.
+---------
+
+# After 13 Years, Gantz Creator Officially Returns With His Biggest Anime Release Yet
+
+Anime, Gantz
+
+Fri, 22 May 2026 02:00:25 GMT
+
+https://www.cbr.com/gantz-creator-gigant-new-anime-release/
+
+A new anime based on a manga series by the Gantz creator is official as of the Cannes Film Festival.
+---------
+
+# 7 Strongest Shonen Anime Villains of All Time
+
+Anime, shonen anime
+
+Fri, 22 May 2026 01:45:13 GMT
+
+https://www.cbr.com/strongest-shonen-anime-villains-of-all-time/
+
+The strongest shonen anime villains range from aliens to sorcerers to gods.
+---------
+
+# 1 Year After Removal, Jackass Officially Returns With a Major Twist
+
+TV, Jackass
+
+Fri, 22 May 2026 01:35:28 GMT
+
+https://www.cbr.com/jackass-returns-streaming-paramount-plus/
+
+Jackass is back with a big change after being pulled from streaming last year.
+---------
+
+# 10 Hardest Sega Genesis Games of All Time, Ranked
+
+Games, Sega Genesis
+
+Fri, 22 May 2026 01:30:13 GMT
+
+https://www.cbr.com/official-hardest-sega-genesis-games-all-time-ranked/
+
+Sega Genesis games like Ecco the Dolphin and Ghouls 'N Ghosts were brutally hard.
+---------
+
+# 10 Anime Rivalries That Were Basically Love Stories
+
+Anime, Berserk, Naruto, My Hero Academia, Jujutsu Kaisen, Gintama, Dragon Ball, shonen anime
+
+Fri, 22 May 2026 01:25:13 GMT
+
+https://www.cbr.com/anime-rivalry-love-stories/
+
+Some anime rivalries are so charged with tension that fans can't help but point out the obvious romantic feelings between them.
+---------
+
+# The Mandalorian and Grogu Doesn't Have A Post-Credits Scene, But The Music Is Enough Reason To Stay
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Fri, 22 May 2026 01:00:14 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-post-credits-scene/
+
+The latest Star Wars movie's greatest aspect is one that fans can only fully experience during the credits.
+---------
+
+# Forget 'Ted Lasso,' Apple TV's 3-Part Sitcom Is the Weekend Binge You've Been Looking For
+
+TV Features, Ted Lasso, Shrinking, Apple TV, Brett Goldstein
+
+Fri, 22 May 2026 02:12:14 GMT
+
+https://collider.com/ted-lasso-shrinking-apple-tv-sitcom-weekend-binge/
+
+Shrinking and Ted Lasso deal with many of the same emotional issues, and their differences only make them more complimentary to each other.
+---------
+
+# ‘Ghosts’ Showrunners Confirm Season 6 Time Jump After Shocking Finale Cliffhanger [Exclusive]
+
+Exclusives, Ghosts, CBS, Sitcom, Richie Moriarty
+
+Fri, 22 May 2026 02:00:25 GMT
+
+https://collider.com/ghosts-season-6-time-jump-pete-disappears-season-5-finale-explained/
+
+Ghosts showrunners Joe Port and Joe Wiseman discuss the Season 5 finale's major cliffhanger and confirm a major time jump when Season 6 returns.
+---------
+
+# 6-Part British Detective Thriller Gets the Update Fans Have Been Waiting For
+
+TV News, Professor T, British TV, PBS, Crime
+
+Fri, 22 May 2026 01:45:13 GMT
+
+https://collider.com/british-detective-thriller-professor-t-season-6-update-ben-miller/
+
+British detective thriller Professor T returns for Season 5 soon, with star Ben Miller confirming plans for a sixth. Here's all to know.
+---------
+
+# This Short-Lived 6-Episode Sci-Fi Was Removed From Streaming By Its Own Network
+
+TV Features, Moonbase 8, Tim Heidecker, John C. Reilly, Showtime
+
+Fri, 22 May 2026 01:36:14 GMT
+
+https://collider.com/moonbase-8-sci-fi-series-removed-from-streaming/
+
+Moonbase 8 looked like the perfect sci-fi alt-comedy, but the star-studded show was removed from streaming after only a few years.
+---------
+
+# Sci-Fi Masterpiece Officially Gets TV Series Adaptation From Marvel Alums and Beloved Fantasy Genius
+
+TV News, Brandon Sanderson, Skyward, Marvel, Sci-Fi
+
+Fri, 22 May 2026 01:30:13 GMT
+
+https://collider.com/brandon-sanderson-sci-fi-adaptation-skyward-marvel-jed-whedon-maurissa-tancharoen/
+
+Legendary author Brandon Sanderson is officially teaming up with some Marvel alums for a brand-new sci-fi adaptation.
+---------
+
+# Apple TV’s Remake of a Legendary Robert De Niro Crime Thriller Officially Releases on June 5
+
+TV News, Cape Fear, Javier Bardem, Amy Adams, Apple TV
+
+Fri, 22 May 2026 01:15:14 GMT
+
+https://collider.com/apple-tv-2026-crime-thriller-remake-cape-fear-release-date-june-5/
+
+Apple TV's most anticipated crime thriller of 2026, Cape Fear, officially premieres in two weeks. Find out what you need to know here.
+---------
+
+# Netflix’s New Sci-Fi Series Could Be the Next ‘Stranger Things’
+
+TV News, The Boroughs, Stranger Things, Duffer Brothers, Netflix
+
+Fri, 22 May 2026 01:00:15 GMT
+
+https://collider.com/netflix-new-sci-fi-series-the-boroughs-duffer-brothers-rotten-tomatoes-score-is-it-good/
+
+The Duffer Brothers continue their winning streak with Netflix's latest sci-fi series. Get all the details here.
+---------
+
+# Forget ‘The Mandalorian and Grogu,’ Pedro Pascal’s Star-Studded Western Scores a Colossal Update
+
+Movie News, Park Chan-wook, Matthew McConaughey, Pedro Pascal, Austin Butler
+
+Fri, 22 May 2026 00:46:15 GMT
+
+https://collider.com/pedro-pascal-matthew-mcconaughey-western-park-chan-wook-movie-brigands-of-rattlecreek-warner-bros/
+
+Brigands of Rattlecreek, Park Chan-wook's new Western co-starring Matthew McConaughey and Pedro Pascal, has finally found a home.
+---------
+
+# 16 Years Later, John Carpenter Is Officially Returning to the Horror Genre
+
+Movie News, John Carpenter, Horror, Halloween, The Thing
+
+Fri, 22 May 2026 00:30:14 GMT
+
+https://collider.com/john-carpenter-horror-return-cathedral-album-graphic-novel-details-release-date-august-2026/
+
+John Carpenter has announced Cathedral, a new horror graphic novel and companion album created with Cody Carpenter and Daniel Davies.
+---------
+
+# Forget ‘In the Grey,’ Henry Cavill’s WWII Team-Up With ‘Reacher’s Alan Ritchson Is a Colossal Streaming Hit
+
+Movie News, Guy Ritchie, The Ministry of Ungentlemanly Warfare, In the Grey, Henry Cavill
+
+Fri, 22 May 2026 00:15:13 GMT
+
+https://collider.com/henry-cavill-ww2-epic-ministry-of-ungentlemanly-warfare-streaming-success-peacock-may-2026-reacher-alan-ritchson/
+
+Following the record-low box-office debut of In the Grey, Guy Ritchie and Henry Cavill's cult classic WW2 thriller is a major streaming hit.
+---------
+
+# 8 Classic American Western Movies That Haven't Aged Well
+
+Movie Lists, Western
+
+Fri, 22 May 2026 02:00:30 GMT
+
+https://movieweb.com/classic-american-westerns-havent-aged-well/
+
+Did Hollywood romanticize the Wild West a little too much? These classic Westerns have been celebrated for decades, but they're not flawless.
+---------
+
+# Mel Gibson Shares First Image & May 2027 Release Date for 'The Resurrection of the Christ'
+
+Movie News, The Resurrection of the Christ Part 1, Mel Gibson
+
+Fri, 22 May 2026 00:28:32 GMT
+
+https://movieweb.com/ressurection-of-the-christ-mel-gibson-first-look/
+
+Director Mel Gibson shared the first official image and a new May 2027 release date for 'The Resurrection of the Christ.'
+---------
+
 # Weekly Shonen Jump Is In Hot Water After a Former Artist Calls The Magazine Out
 
 Anime, Shonen Jump
