@@ -1,3 +1,289 @@
+# Every Time Din Djarin Has Taken His Helmet Off (& Why)
+
+Star Wars, The Mandalorian, The Mandalorian and Grogu
+
+Fri, 22 May 2026 20:45:21 GMT
+
+https://screenrant.com/the-mandalorian-every-time-din-djarin-take-helmet-off/
+
+The Mandalorian established strict rules for Din Djarin to keep his helmet on, but he has shown his face repeatedly for different reasons.
+---------
+
+# MobLand's Tom Hardy Update Is A Huge Blow To Season 3
+
+Streaming TV, MobLand, Tom Hardy
+
+Fri, 22 May 2026 20:45:21 GMT
+
+https://screenrant.com/mobland-season-3-no-tom-hardy-hurt-story/
+
+A new surprising update has revealed the details surrounding Tom Hardy's future with MobLand after season 2, which is a huge blow for the series.
+---------
+
+# The Late Show With Stephen Colbert Finale Breaks Record
+
+TV, The Late Show with Stephen Colbert
+
+Fri, 22 May 2026 20:34:16 GMT
+
+https://screenrant.com/the-late-show-with-stephen-colbert-finale-viewership-record/
+
+NBC reveals The Late Show With Stephen Colbert's final episode broke a major all-time viewership record after eleven years on air.
+---------
+
+# Beloved 1990s Shooter Game Postal Returns With An Exciting New Chapter
+
+Comics, Postal
+
+Fri, 22 May 2026 20:30:20 GMT
+
+https://screenrant.com/postal-video-game-roditeli-productions-kickstarter/
+
+Go get 'em
+---------
+
+# Tom Cruise's 8-Part Action Franchise Officially Began 30 Years Ago
+
+Movies, Mission: Impossible, Tom Cruise
+
+Fri, 22 May 2026 20:30:20 GMT
+
+https://screenrant.com/mission-impossible-movie-30-year-anniversary/
+
+Tom Cruise has made a defining career as an action hero, yet the first part of his biggest franchise officially began 30 years ago.
+---------
+
+# 10 Greatest Fantasy Books Released In The Past Decade
+
+Books
+
+Fri, 22 May 2026 20:30:20 GMT
+
+https://screenrant.com/best-fantasy-books-released-past-decade/
+
+Several great fantasy works that captivated readers, pushed creative boundaries, and redefined what fantasy can be were published in the past decade.
+---------
+
+# Marshals Season 2 Is "An Even Better Season" Promises Yellowstone Spinoff Star In New Release Window Update
+
+TV, Marshals, Yellowstone, Logan Marshall-Green
+
+Fri, 22 May 2026 20:28:49 GMT
+
+https://screenrant.com/yellowstone-marshals-season-2-release-window-even-better-logan-marshall-green/
+
+Exclusive: Logan Marshall-Green teases that Marshals season 2 is "an ever better season" while also confirming the release window for its return.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (May 23-24)
+
+Movies, Prime Video, Recommendation
+
+Fri, 22 May 2026 20:16:59 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-may-23/
+
+The best Prime Video movies to watch this weekend are ruled by a smash hit new spy thriller, an intense horror, and a Leonardo DiCaprio masterpiece.
+---------
+
+# The Sims 5 Step Aside, We’re Getting The Next Best Thing On May 25
+
+Gaming, The Sims, Indie, PC
+
+Fri, 22 May 2026 20:13:39 GMT
+
+https://screenrant.com/the-sims-5-paralives-may-2026-release-date/
+
+While we're still recovering from The Sims 5 officially being cancelled, this new release is even more exciting for all the right reasons.
+---------
+
+# Jor-El Replaces Kal-El As Superman In DC's New Origin Story
+
+DC Comics, Superman
+
+Fri, 22 May 2026 20:00:21 GMT
+
+https://screenrant.com/new-superman-jor-el-rewrite-origin-dc-comics/
+
+DC's new Superman release reimagines the Man of Steel's origins and replaces Kal-El with a familiar Kryptonian character who escapes Krypton.
+---------
+
+# Forza Horizon 6 and Toyota Officially Give Gamers a Memorial Day Challenge
+
+Games, Forza Horizon 5, Forza
+
+Fri, 22 May 2026 20:44:13 GMT
+
+https://www.cbr.com/forza-horizon-6-toyota-official-memorial-day-challenge/
+
+Forza Horizon 6 and Toyota are celebrating Memorial Day Weekend with a one-of-a-kind event that drops players right into the action for themselves.
+---------
+
+# Stephen King's The Institute Is a Masterful Blend of Sci-Fi & Horror
+
+TV, The Institute, Stephen King
+
+Fri, 22 May 2026 20:30:12 GMT
+
+https://www.cbr.com/the-institute-best-stephen-king-sci-fi-horror/
+
+Stephen King's MGM+ series blends sci-fi and horror well, striking the perfect balance between the two genres.
+---------
+
+# 10 Star Wars Actors Who Also Appeared in Star Trek
+
+Movies, Star Wars, Star Trek
+
+Fri, 22 May 2026 20:30:12 GMT
+
+https://www.cbr.com/star-wars-actors-in-star-trek-list/
+
+While Star Wars and Star Trek fans have a friendly rivalry, these performers have appeared in both franchises.
+---------
+
+# The Most Controversial Anime Endings That Divided the Internet
+
+Anime, Attack on Titan, Neon Genesis Evangelion, Puella Magi Madoka Magica
+
+Fri, 22 May 2026 20:15:13 GMT
+
+https://www.cbr.com/most-controversial-anime-endings-divided-the-internet/
+
+It's a tall order to end an anime in a way that satisfies every fan, but some endings were so controversial they made the internet explode.
+---------
+
+# The Mandalorian and Grogu Gets Bad News at the Box Office 1 Day Before Opening
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Fri, 22 May 2026 20:08:43 GMT
+
+https://www.cbr.com/mandalorian-and-gorgu-box-office-previews/
+
+The new Star Wars movie got some bad news early.
+---------
+
+# Keanu Reeves' Outcome Returns to No. 1 on the Charts Despite 27% RT Score
+
+Movies, Outcome, Apple TV, Comedy
+
+Fri, 22 May 2026 20:00:13 GMT
+
+https://www.cbr.com/keanu-reeves-outcome-comedy-drama-apple-tv-success-may-2026/
+
+Keanu Reeves' latest film is a hit with viewers despite negative reviews from critics.
+---------
+
+# Jujutsu Kaisen Finally Dethroned as Japan Crowns a New Anime Champion
+
+Anime, Jujutsu Kaisen, Fist of the North Star, One Punch Man
+
+Fri, 22 May 2026 20:00:13 GMT
+
+https://www.cbr.com/jujutsu-kaisen-dethroned-2026-survey/
+
+Jujutsu Kaisen suffers yet another major loss this year as Japan names a new top anime in a survey covering a key fighting category.
+---------
+
+# Netflix’s Narnia Movie Has 1 Advantage Over HBO’s Harry Potter
+
+Movies, Narnia: The Magician's Nephew, Harry Potter
+
+Fri, 22 May 2026 20:00:13 GMT
+
+https://www.cbr.com/netflix-narnia-movie-reboot-better-than-hbo-harry-potter/
+
+Both The Chronicles of Narnia and Harry Potter franchises are being rebooted for modern audiences, but the former has the upper hand.
+---------
+
+# Animal Crossing Officially Has New Collectible Release Coming September 2026
+
+Games, Animal Crossing: New Horizons, Animal Crossing, Nintendo
+
+Fri, 22 May 2026 19:31:15 GMT
+
+https://www.cbr.com/animal-crossing-new-bandai-collab-official-september-2026/
+
+Animal Crossing and Bandai are teaming up to give fans the chance to bring home their favorite characters this Fall, and they are absolutely adorable.
+---------
+
+# Only 3 Fantasy Movies Have Better Production Values Than The Lord of the Rings
+
+Movie, The Lord of the Rings, The Fall, Pan's Labyrinth, The Dark Crystal
+
+Fri, 22 May 2026 20:50:14 GMT
+
+https://collider.com/fantasy-movies-better-production-values-than-lord-of-the-rings/
+
+The Lord of the Rings is the gold standard for high production values in fantasy, but movies like Pan's Labyrinth and The Fall surpass the trilogy.
+---------
+
+# Outrageous GTA 6 Price Officially Confirmed for November 2026 Release
+
+Gaming News, Grand Theft Auto, Grand Theft Auto 5, Grand Theft Auto V, Grand Theft Auto: San Andreas - The Introduction
+
+Fri, 22 May 2026 20:33:00 GMT
+
+https://collider.com/gta-6-price-update-confirmed-november-2026-release-grand-theft-auto/
+
+Grand Theft Auto 6 is set to launch on November 19, 2026, and Take-Two’s latest comments offer clarity on what fans can expect from the game’s price.
+---------
+
+# Netflix Quietly Rolls Out Major Changes for Subscribers
+
+TV News, Netflix, Squid Game, Adolescence, Wednesday
+
+Fri, 22 May 2026 19:44:46 GMT
+
+https://collider.com/netflix-new-search-feature-accessibility-subscriber-changes/
+
+Netflix introduces a new search update, allowing subscribers to find movies and shows by language, subtitles, dubbing, and audio descriptions.
+---------
+
+# HBO Max's Must-See 6-Part Fantasy Series Is a Stellar Franchise That's a Perfect Weekend Binge
+
+Movie Features, The Lord of the Rings, Peter Jackson, HBO Max, Fantasy
+
+Fri, 22 May 2026 19:29:13 GMT
+
+https://collider.com/lord-of-the-rings-trilogy-the-hobbit-hbo-max-streaming-weekend-binge/
+
+Peter Jackson's 6-movie adaptation of J.R.R. Tolkien's fantasy series is a masterpiece worth multiple watches on HBO.
+---------
+
+# 'The Mandalorian & Grogu' Is Star Wars' Big-Screen Unveiling of the Original Chewbacca Design
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Fri, 22 May 2026 20:35:18 GMT
+
+https://movieweb.com/star-wars-mandalorian-grogu-original-chewie-concept/
+
+Star Wars characters often go through several unused iterations before looking like how we know them today. Some versions are dusted off, though.
+---------
+
+# 'The Odyssey's Inclusion of Lupita Nyong'o's Clytemnestra is a Key Story Change
+
+Features, The Odyssey, Christopher Nolan, Lupita Nyong'o
+
+Fri, 22 May 2026 20:00:19 GMT
+
+https://movieweb.com/lupita-nyongo-clytemnestra-odyssey-change-christopher-nolan/
+
+Christopher Nolan's inclusion of Lupita Nyong'o's second character, Clytemnestra, in his interpretation of 'The Odyssey' departs from Homer.
+---------
+
+# Netflix Crime Thriller 'Nemesis' Is a #1 Smash on Streaming
+
+TV News, Nemesis, Hot on Streaming, Netflix, Crime, Thriller
+
+Fri, 22 May 2026 20:00:19 GMT
+
+https://movieweb.com/nemesis-crime-thriller-netflix-streaming-hit-may-2026/
+
+Tani Marole and 'Power' creator Courtney A. Kemp have scored a massive win with 'Nemesis,' which has been dominating Netflix since its debut.
+---------
+
 # 3 Best Movies To Watch On Netflix This Weekend (May 23-24)
 
 Movies, Netflix, Recommendation
