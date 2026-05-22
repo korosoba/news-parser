@@ -1,3 +1,410 @@
+# James Gunn's DCU Is Officially Switching Genres Twice This Summer
+
+Movies, DC Universe
+
+Fri, 22 May 2026 17:30:20 GMT
+
+https://screenrant.com/james-gunn-dcu-summer-2026-supergirl-lanterns-genre/
+
+With the double whammy of space adventure Supergirl and murder mystery Lanterns, James Gunn's DCU is about to change genres twice back-to-back.
+---------
+
+# New Rosamund Pike Netflix Fantasy Remake's Key Change From The Original Explained By Director & Cast
+
+Movies, Ladies First, Netflix, Rosamund Pike
+
+Fri, 22 May 2026 17:30:20 GMT
+
+https://screenrant.com/ladies-first-netflix-remake-key-change-rosamund-pike-sacha-baron-cohen-thea-sharrock/
+
+Rosamund Pike, Sacha Baron Cohen and director Thea Sharrock talk Ladies First and how the Netflix fantasy remake makes one key change in tone.
+---------
+
+# The Mandalorian & Grogu Sets Major Rotten Tomatoes Record For Star Wars’ Disney Era
+
+Movies, The Mandalorian and Grogu, Star Wars, The Mandalorian
+
+Fri, 22 May 2026 17:28:09 GMT
+
+https://screenrant.com/the-mandalorian-grogu-disney-star-wars-rotten-tomatoes-audience-score-record/
+
+Star Wars is back in theaters with The Mandalorian and Grogu, which has set a Rotten Tomatoes record for the franchise's Disney-era movies.
+---------
+
+# The Ultimate Apothecary Diaries Follow Up Anime Is Officially Here
+
+Anime, Masked Recs
+
+Fri, 22 May 2026 17:20:36 GMT
+
+https://screenrant.com/eccentric-doctor-moon-flower-apothecary-diaries-follow-up/
+
+The ultimate next-watch anime for fans of The Apothecary Diaries and the Maomao x Jinshi ship is finally here, and it looks absolutely amazing.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (May 23-24)
+
+Movies, Disney+, Recommendation
+
+Fri, 22 May 2026 17:20:22 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-may-23/
+
+One of the best movies on Disney+ this weekend is a game-changing space opera, with a superhero epic and an adventure film also being great choices.
+---------
+
+# New Virginia Woolf Movie Based On 101-Year-Old Classic Debuts To Rare Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Fri, 22 May 2026 17:11:46 GMT
+
+https://screenrant.com/virginia-woolf-clarissa-rotten-tomatoes-score/
+
+One of the Virginia Woolf’s novels has been re-adapted as a contemporary story and just premiered at Cannes, earning a rare score from critics.
+---------
+
+# Taylor Sheridan’s Gritty R-Rated Western Crime Thriller Officially Releases On HBO Max In 2 Weeks
+
+Movies, Masked Recs, Taylor Sheridan
+
+Fri, 22 May 2026 17:06:44 GMT
+
+https://screenrant.com/taylor-sheridan-hell-or-high-water-hbo-max-streaming-release-june-2026/
+
+HBO Max is set to become a new streaming home for Taylor Sheridan's R-rated western crime film, as the movie is on its way to the major platform.
+---------
+
+# Anya Taylor-Joy & Chris Evans' Action Movie Sacrifice Officially Acquired By Netflix With Streaming Release Soon
+
+Movies, Netflix
+
+Fri, 22 May 2026 17:04:25 GMT
+
+https://screenrant.com/anya-taylor-joy-sacrifice-movie-chris-evans-netflix-streaming-release/
+
+Anya Taylor-Joy and Chris Evans' new action movie Sacrifice has been picked up for release by Netflix in the US, with a release date still to come.
+---------
+
+# Beth & Rip’s Dutton Ranch Cow Crisis: Foot & Mouth Disease Explained
+
+TV, Yellowstone, Dutton Ranch
+
+Fri, 22 May 2026 17:00:21 GMT
+
+https://screenrant.com/dutton-ranch-foot-mouth-disease-explained/
+
+Just when things were starting to go well for Beth and Rip, Dutton Ranch is hit with a terrible crisis that threatens their future.
+---------
+
+# John Wick Meets Conan The Barbarian In Keanu Reeves Series That's Making A Big Comeback In 2026
+
+Comics, BRZRKR, Keanu Reeves, John Wick
+
+Fri, 22 May 2026 16:54:39 GMT
+
+https://screenrant.com/brzrkr-comeback-2026-john-wick-conan/
+
+A major new release tied to Keanu Reeves’ universe brings back a legendary protagonist blending Conan’s brutality with John Wick’s fury.
+---------
+
+# Joshua Williamson Talks Wolf Man And 'The Best Horror Line In Comics'
+
+Comics, The Wolf Man, image comics
+
+Fri, 22 May 2026 17:37:23 GMT
+
+https://www.cbr.com/joshua-williamson-universal-monsters-wolf-man-interview/
+
+In a CBR exclusive interview with superstar writer, Joshua Williamson, we talk about his new Universal Monsters: Blood of the Wolf Man comic book
+---------
+
+# Pokémon and LEGO Finally Return to Hoenn With New Rayquaza LEGO Set
+
+Games, Pokemon, LEGO
+
+Fri, 22 May 2026 17:31:14 GMT
+
+https://www.cbr.com/pokemon-lego-set-rayquaza-official-2026/
+
+LEGO is bringing Pokémon fans back to Hoenn with a brand-new Rayquaza set, and it is just one of nearly a dozen that are coming soon.
+---------
+
+# It's Official, The Mandalorian and Grogu Was Inspired by John Woo's Hard Boiled
+
+Movies, The Mandalorian and Grogu, Star Wars, Hard Boiled
+
+Fri, 22 May 2026 17:31:14 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-officially-inspired-by-hard-boiled/
+
+The latest Star Wars movie officially takes inspiration from this iconic 34-year-old action masterpiece.
+---------
+
+# Netflix Officially Replaces Several Stranger Things Main Characters
+
+TV, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Fri, 22 May 2026 17:31:14 GMT
+
+https://www.cbr.com/netflix-stranger-things-tales-from-85-main-character-absences/
+
+The latest Stranger Things tale overlooks several key characters from the original series, disappointing longtime fans of the hit Netflix series.
+---------
+
+# 10 Best Soulslike Games Not Made by FromSoftware
+
+Games, Dark Souls, Elden Ring, Bloodborne
+
+Fri, 22 May 2026 17:15:14 GMT
+
+https://www.cbr.com/official-best-soulslike-games-not-by-fromsoftware/
+
+The best soulslike games not made by FromSoftware, range from Lies of P to Remnant II.
+---------
+
+# Peaky Blinders Sequel Officially Confirms Stranger Things Star's Key Role
+
+TV, Peaky Blinders, Peaky Blinders: The Immortal Man, Crime
+
+Fri, 22 May 2026 16:52:03 GMT
+
+https://www.cbr.com/peaky-blinders-sequel-charlie-heaton-role/
+
+He has now gone from a critical role in Stranger Things to a major one in Peaky Blinders.
+---------
+
+# Suguru Geto Voice Actor Reveals the Real Reason Gojo and Geto Separated
+
+CBR Exclusives, Jujutsu Kaisen
+
+Fri, 22 May 2026 16:49:42 GMT
+
+https://www.cbr.com/suguru-geto-lex-lang-gojo-geto-breakup-explained-jujutsu-kaisen/
+
+The devastating emotional fracture between Gojo and Geto's mutual heartbreak could have been completely avoided.
+---------
+
+# Michael Mann’s Heat 2 Expands Cast With Terminator Star in Mystery Role
+
+Movies, Heat 2, Crime
+
+Fri, 22 May 2026 16:45:40 GMT
+
+https://www.cbr.com/heat-2-cast-jason-clarke/
+
+The long-awaited Heat sequel adds another star to its cast.
+---------
+
+# Timothy Olyphant’s New R-Rated Remake With 'Hitchcockian Flair' Is Officially Heading to Digital Next Week
+
+Movies, Over Your Dead Body
+
+Fri, 22 May 2026 16:40:32 GMT
+
+https://www.cbr.com/timothy-olyphant-over-your-dead-body-digital-release-date-june-2026/
+
+The twisty thriller is a remake of a Nordic Netflix hit.
+---------
+
+# The Boroughs Cast on Aging, Chaos & Their Retiree “Gang”
+
+TV, The Boroughs
+
+Fri, 22 May 2026 16:15:13 GMT
+
+https://www.cbr.com/video/the-boroughs-cast-on-aging-chaos-their-retiree-gang/
+
+The Boroughs cast opens up about the emotional and surprising challenge of bringing this mysterious new series to life. Geena Davis, Alfred Molina, Alfre Woodard, Denis O’Hare, and Clarke Peters discuss balancing humor, suspense, and heartfelt moments while playing a group of retirees thrown into something far bigger than themselves.From chaotic tunnel sequences to the unique chemistry of their unlikely “gang,” the cast explains how The Boroughs blends tension, mystery, and comedy in unexpected ways. Alfred Molina and Denis O’Hare also share why portraying older characters in action-heavy situations made the series feel completely fresh compared to past projects.
+---------
+
+# 3 Underseen 2025 Movies on Prime Video Perfect for This Weekend
+
+Movie, Prime Video, Black Bag, The Ballad of Wallis Island, John Candy: I Like Me
+
+Fri, 22 May 2026 17:30:14 GMT
+
+https://collider.com/prime-video-underseen-movies-2025-perfect-weekend-may-22-24/
+
+Movies like The Ballad of Wallis Island and Black Bag are ideal to watch over the weekend, and they're available with your Prime Video subscription.
+---------
+
+# 2 Years Later, Netflix's 3-Part Zombie Thriller Is Still the Best Horror Binge on the Platform
+
+TV Features, Sweet Home, Series, Netflix, Zombie
+
+Fri, 22 May 2026 17:28:14 GMT
+
+https://collider.com/netflix-sweet-home-zombie-best-horror-binge/
+
+Two years later, Netflix’s Sweet Home remains the platform’s best horror binge thanks to its monsters, characters, and genre twists.
+---------
+
+# Neil Diamond Wrote One of His Greatest Songs in Just 30 Minutes
+
+Music Features, Neil Diamond: Greatest Hits Live, Rock, Music, Billboard Hot 100
+
+Fri, 22 May 2026 17:23:58 GMT
+
+https://collider.com/neil-diamond-greatest-song-sweet-caroline/
+
+Neil Diamond wrote one of the most famous stadium anthems in 1969 in just 30 minutes, later titled Sweet Caroline.
+---------
+
+# 7 Best Sci-Fi Movies on Netflix Under 100 Minutes
+
+Movie, Sci-Fi, Science Fiction, Netflix, The End of Evangelion
+
+Fri, 22 May 2026 17:04:14 GMT
+
+https://collider.com/best-sci-fi-movies-on-netflix-100-minutes/
+
+From the apocalyptic anime film The End of Evangelion to the slasher Time Cut, these are the best sci-fi movies on Netflix under 100 minutes.
+---------
+
+# One of Gaming’s Biggest Sci-Fi Franchises Is Getting a Massive New Release Next Week
+
+TV News, Halo, Xbox Series X/S, Halo: Infinite, Sci-Fi
+
+Fri, 22 May 2026 16:56:44 GMT
+
+https://collider.com/halo-waypoint-chronicles-anniversary-release-may-26/
+
+Halo is officially returning next week with a massive new release for the sci-fi franchise’s 25th anniversary.
+---------
+
+# Timothy Olyphant’s R-Rated Thriller Remake Officially Releases On Digital in 4 Days
+
+Movie News, Over Your Dead Body, Timothy Olyphant, Samara Weaving, Jason Segel
+
+Fri, 22 May 2026 16:55:18 GMT
+
+https://collider.com/timothy-olyphant-r-rated-remake-over-your-dead-body-vod-release-date-may-2026/
+
+Timothy Olyphant’s new R-rated thriller remake, Over Your Dead Body, has officially set its VOD release date. Here’s when you can watch it.
+---------
+
+# Netflix’s New 8-Part Sci-Fi Series Officially Beats 'Stranger Things' in One Major Way
+
+TV News, The Boroughs, Netflix, Duffer Brothers, Rotten Tomatoes
+
+Fri, 22 May 2026 16:44:53 GMT
+
+https://collider.com/new-netflix-sci-fi-series-the-boroughs-rotten-tomatoes-score-is-it-good-better-than-stranger-things/
+
+Netflix’s new 8-part sci-fi series The Boroughs, executive produced by the Duffer Brothers, has debuted to a rare Rotten Tomatoes score.
+---------
+
+# Netflix’s ‘Peaky Blinders’ Sequel Officially Reveals Tommy Shelby’s Son in New First Look
+
+TV News, Peaky Blinders, Peaky Blinders: The Immortal Man, Charlie Heaton, Netflix
+
+Fri, 22 May 2026 16:42:47 GMT
+
+https://collider.com/peaky-blinders-sequel-series-netflix-update-charlie-heaton-first-look-tommy-shelby-son/
+
+Netflix’s Peaky Blinders sequel series has revealed new details about Tommy Shelby’s son, played by Stranger Things star Charlie Heaton, in new look.
+---------
+
+# 'The Mandalorian and Grogu' Is Officially in Trouble With Lower Box Office Projections Than 'Solo'
+
+Movie News, The Mandalorian and Grogu, The Mandalorian, Box Office, Solo: A Star Wars Story
+
+Fri, 22 May 2026 16:26:23 GMT
+
+https://collider.com/disney-new-star-wars-movie-the-mandalorian-and-grogu-box-office-projections-12-million-previews-lower-than-solo/
+
+The Mandalorian and Grogu is in trouble, with the new Star Wars movie opening to lower previews than Solo. Read on for more.
+---------
+
+# The Sequel to 2026's Most Controversial Blockbuster Is Officially Moving Forward
+
+Movie News, Michael, Colman Domingo, Biopic, Musical
+
+Fri, 22 May 2026 16:25:04 GMT
+
+https://collider.com/michael-jackson-movie-controversial-2026-blockbuster-sequel-update/
+
+After becoming 2026’s most controversial blockbuster so far, Antione Fuqua’s Michael moves forward with major sequel update.
+---------
+
+# 'The Mandalorian and Grogu' Earns 'Star Wars' Worst Opening Box Office of Modern Era
+
+Movie News, The Mandalorian and Grogu, Star Wars
+
+Fri, 22 May 2026 17:37:23 GMT
+
+https://movieweb.com/mandalorian-and-grogu-thursday-box-office/
+
+'The Mandalorian and Grogu' grossed only $12 million in Thursday night previews in North America, the worst 'Star Wars' opening in decades.
+---------
+
+# How Much 'The Mandalorian & Grogu' Needs To Make At The Box Office To Be Called A Success
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Fri, 22 May 2026 17:30:18 GMT
+
+https://movieweb.com/mandalorian-and-grogu-box-office-budget-profit/
+
+With a lower budget than any Disney-era 'Star Wars' film, 'The Mandalorian and Grogu' does not need to gross $1 billion to be considered a hit.
+---------
+
+# 'Teenage Sex and Death at Camp Miasma' Lands Perfect Rotten Tomatoes Score
+
+Movie News, Teenage Sex and Death at Camp Miasma, Rotten Tomatoes, Gillian Anderson
+
+Fri, 22 May 2026 17:27:37 GMT
+
+https://movieweb.com/gillian-andersons-new-meta-horror-movie-scores-100-on-rotten-tomatoes/
+
+Jane Schoenbrun's follow-up to 'I Saw the TV Glow' is getting rave reviews from critics, positioning itself as one of the best films of the year.
+---------
+
+# 'Yellowstone' Officially Confirms Beth & Rip's Replacement in 'Dutton Ranch'
+
+Features, Dutton Ranch, Yellowstone
+
+Fri, 22 May 2026 17:01:19 GMT
+
+https://movieweb.com/yellowstone-dutton-ranch-beth-rip-replacement-carter-oreana/
+
+Beth and Rip's adopted son Carter and the Rio Paloma princess Oreana are echoing the storyline of young Beth and Rip from 'Yellowstone'.
+---------
+
+# 'Obsession' Breaks 'Paranormal Activity' Record 17 Years Later
+
+Movie News, Obsession
+
+Fri, 22 May 2026 16:34:49 GMT
+
+https://movieweb.com/obsession-breaks-17-year-box-office-record/
+
+Obsession held the number one spot from Monday through Wednesday, becoming the cheapest movie to produce to lead the box office.
+---------
+
+# 'The Boroughs' Wastes No Time Becoming Netflix's Newest Streaming Hit
+
+TV News, The Boroughs, Hot on Streaming, Sci-Fi, Netflix
+
+Fri, 22 May 2026 16:01:19 GMT
+
+https://movieweb.com/the-boroughs-netflix-streaming-success-may-2026/
+
+24 hours after its debut, the new sci-fi series that's been dubbed a 'Stranger Things' replacement is already taking over Netflix.
+---------
+
+# You Can Now Stream the British TV Sci-Fi Drama 'Humans' Entirely for Free
+
+Features, Humans, Sci-Fi
+
+Fri, 22 May 2026 16:01:19 GMT
+
+https://movieweb.com/humans-sci-fi-hidden-gem-streaming-free/
+
+Channel 4 and AMC's 'Humans' is an astounding watch, full of heavy sci-fi themes and loaded questions about the future of humanity and the use of AI.
+---------
+
 # Ladies First: A Shameful Misfire With A Better Cast Than It Deserves
 
 New Movies, Ladies First
