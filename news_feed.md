@@ -1,3 +1,333 @@
+# 3 Best Movies To Watch On Netflix This Weekend (May 23-24)
+
+Movies, Netflix, Recommendation
+
+Fri, 22 May 2026 19:20:19 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-may-23/
+
+The best movies on Netflix this weekend are a Guy Ritchie action hit with many stars, one of the best Marvel movies ever, and a gritty new release.
+---------
+
+# The Boys Star Calls It “A Miracle” Their Character Survived The Brutal Series Finale
+
+Exclusive, The Boys
+
+Fri, 22 May 2026 19:19:25 GMT
+
+https://screenrant.com/the-boys-ending-ashley-survived-miracle-colby-minifie/
+
+EXCLUSIVE: The Boys has reached its conclusion, and this star is surprised and calls it "a miracle" that they survived the brutal series finale.
+---------
+
+# Dan Harmon Has An Encouraging Community Movie Update As He Acknowledges "Tortured" Fan Base's 15-Year Wait
+
+Movies, Community, Dan Harmon
+
+Fri, 22 May 2026 19:10:33 GMT
+
+https://screenrant.com/community-movie-update-encouraging-fanbase-waiting-dan-harmon/
+
+Exclusive: Dan Harmon offers a new update on the long-awaited Community movie as he addresses Donald Glover's recent comments progress is happening.
+---------
+
+# Timothée Chalamet's A Complete Unknown Finally Joins His Other Hit Movies On HBO Max
+
+Movies, A Complete Unknown
+
+Fri, 22 May 2026 19:00:12 GMT
+
+https://screenrant.com/a-complete-unknown-movie-hbo-max-timothee-chalamet/
+
+This May, A Complete Unknown will find a new home on HBO Max, among Timothée Chalamet's five other hit movies already on the streamer.
+---------
+
+# 10 Pokémon TCG: Chaos Rising Cards Worth The Most Money
+
+Gaming, Pokemon Trading Card Game
+
+Fri, 22 May 2026 18:42:17 GMT
+
+https://screenrant.com/pokemon-tcg-chaos-rising-cards-most-valuable-worth-money/
+
+Discover the 10 most valuable cards from the Pokémon TCG: Chaos Rising set, including rare illustrations and high market prices on TCGPlayer.
+---------
+
+# Ben Stiller Sets New Apple TV Crime Series With Major Difference From Severance
+
+TV, Ben Stiller, Apple TV
+
+Fri, 22 May 2026 18:39:04 GMT
+
+https://screenrant.com/ben-stiller-protective-custody-starring-producing-apple-tv-series/
+
+Ben Stiller sets a new Apple TV crime series with one major difference from Severance, on which he serves as a director and executive producer.
+---------
+
+# Netflix’s 8-Part Stranger Things Replacement & More New Shows To Binge This Weekend
+
+Streaming TV, Netflix, What to Watch on Netflix, Masked Recs
+
+Fri, 22 May 2026 18:36:20 GMT
+
+https://screenrant.com/netflix-shows-to-watch-now-weekend-binge/
+
+What to watch on Netflix this Memorial Day Weekend 2026: The Boroughs, Bad Thoughts season 2, and Mating Season are all trending now.
+---------
+
+# Tom Holland's New Movie Based On 5-Year-Old Bestselling Novel Reportedly Stalled Over $30M Price Tag
+
+Movies, Tom Holland
+
+Fri, 22 May 2026 18:32:12 GMT
+
+https://screenrant.com/tom-holland-the-lincoln-highway-stalled-paramount-merger-reported/
+
+Ahead of The Odyssey and Spider-Man: Brand New Day, Tom Holland has signed on to another project, but there are major hurdles to overcome.
+---------
+
+# The Boys' Elon Musk Parody Continues A 20-Year Feud
+
+Streaming TV, The Boys
+
+Fri, 22 May 2026 18:30:20 GMT
+
+https://screenrant.com/the-boys-elon-musk-parody/
+
+The Boys has never held back with its satire of celebrities and public figures, but the finale's Elon Musk parody is a specific vendetta for Amazon.
+---------
+
+# Is God Is Ending Explained
+
+Movies, Is God Is
+
+Fri, 22 May 2026 18:30:20 GMT
+
+https://screenrant.com/is-god-is-ending-explained/
+
+The new film, which centers on two sisters seeking revenge against their father for what he did when they were kids, has an incredibly intense ending.
+---------
+
+# Dragon Ball Super Manga's Comeback Confirmed in V-Jump Preview
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Fri, 22 May 2026 19:15:13 GMT
+
+https://www.cbr.com/dragon-ball-super-manga-return-june-v-jump-confirmation-update/
+
+The Dragon Ball Super manga's inevitable return to V-Jump has finally been officially confirmed by a preview of the next issue to be released in June.
+---------
+
+# 7 Naruto Fights Better Than the Final Battle
+
+Anime, Naruto
+
+Fri, 22 May 2026 19:15:13 GMT
+
+https://www.cbr.com/naruto-fights-better-than-the-final-battle/
+
+These battles proved the series had already reached greatness long before the finale.
+---------
+
+# In Just 1 Day, Netflix's New 8-Part Supernatural Mystery Series Is an Instant Global Hit
+
+TV, The Boroughs
+
+Fri, 22 May 2026 19:00:16 GMT
+
+https://www.cbr.com/the-boroughs-supernatural-mystery-netflix-global-hit-may-2026/
+
+The new series is the perfect Stranger Things replacement.
+---------
+
+# Disney Confirms New Nightmare Before Christmas Sequel for 2026
+
+Comics, The Nightmare Before Christmas
+
+Fri, 22 May 2026 19:00:16 GMT
+
+https://www.cbr.com/the-nightmare-before-christmas-the-shiver-of-christmas-town-release-date-confirmed/
+
+A special new Nightmare Before Christmas story is on the way, right in time for Halloween...
+---------
+
+# 10 Most Intense Thrillers of the Last 25 Years, Ranked
+
+Movies, Thriller, Children of Men, Sicario
+
+Fri, 22 May 2026 19:00:16 GMT
+
+https://www.cbr.com/best-intense-thrillers-last-25-years-list/
+
+When the thriller is done well, it can serve up the most intense cinematic experiences imaginable, keeping viewers hooked at every turn.
+---------
+
+# Arcane Star Reveals Silco’s True Purpose After Season 2 Ending
+
+CBR Exclusives, Arcane
+
+Fri, 22 May 2026 18:35:38 GMT
+
+https://www.cbr.com/jason-spisak-arcane-silco-true-purpose-confirmed/
+
+Even after Arcane took its final bow, Silco's legacy lives on.
+---------
+
+# The Maltese Falcon Got a Rare Perfect Score From Roger Ebert
+
+Movies, The Maltese Falcon
+
+Fri, 22 May 2026 18:30:12 GMT
+
+https://www.cbr.com/roger-ebert-perfect-score-the-maltese-falcon/
+
+Roger Ebert has delivered some definitive reviews, and one of his highest scores went to an iconic film noir that hasn't aged a day.
+---------
+
+# Attack on Titan Characters Who Completely Ruined Their Own Legacy
+
+Anime, Attack On Titan
+
+Fri, 22 May 2026 18:16:14 GMT
+
+https://www.cbr.com/attack-on-titan-characters-who-completely-ruined-their-own-legacy/
+
+From Floch to Bertholdt, the actions of these characters reshaped the way audiences remember them for the worse.
+---------
+
+# Steam Officially Makes 2025 Co-Op Game 100% Free Until May 25
+
+Games, Steam
+
+Fri, 22 May 2026 18:10:13 GMT
+
+https://www.cbr.com/steam-free-official-co-op-game-may-2026/
+
+One of the most fun co-op games of 2025 is now completely free on Steam.
+---------
+
+# Liam Neeson's $303M Sci-Fi Action Movie Returns as Streaming Hit
+
+Movies, Battleship, liam neeson
+
+Fri, 22 May 2026 18:05:56 GMT
+
+https://www.cbr.com/liam-neeson-battleship-streaming-prime-video-may-2026/
+
+Liam Neeson's forgotten sci-fi action film makes a return as a streaming hit after 14 years.
+---------
+
+# Dustin Hoffman and Leo Woodall Headline the Year's Most Unique Thriller | Review
+
+Movie Reviews, Tuner, Dustin Hoffman, Leo Woodall, Navalny
+
+Fri, 22 May 2026 19:17:41 GMT
+
+https://collider.com/tuner-review-dustin-hoffman-leo-woodall-daniel-roher/
+
+'Tuner' stars Leo Woodall as a piano tuner who develops a unique ability to crack safes in Daniel Roher's inventive blend of rance and thrills
+---------
+
+# 10 Miniseries That Are Even Better the Second Time Around
+
+TV, TV Miniseries, Chernobyl, Band of Brothers, The Haunting of Hill House
+
+Fri, 22 May 2026 19:08:14 GMT
+
+https://collider.com/best-miniseries-to-rewatch/
+
+Dive into miniseries that are even more impressive on a second watch, including Chernobyl, Band of Brothers, and The Haunting of Hill House.
+---------
+
+# Marvel Officially Sets Major X-Men Reveal for June 2
+
+Gaming News, Wolverine, Hugh Jackman, X-Men, Marvel
+
+Fri, 22 May 2026 19:01:13 GMT
+
+https://collider.com/x-men-update-wolverine-video-game-marvel-sony-playstation-state-of-play-details/
+
+Marvel is officially ushering the X-Men into a new era with new Wolverine release details coming in 2 weeks. Here’s what you need to know.
+---------
+
+# Netflix Is Officially Dropping Eric Dane’s Best Action Thriller Series Next Month
+
+TV News, The Last Ship, Eric Dane, Netflix, TNT
+
+Fri, 22 May 2026 18:12:58 GMT
+
+https://collider.com/netflix-eric-dane-thriller-series-the-last-ship-streaming-june-2026/
+
+Netflix is officially adding Eric Dane’s best apocalyptic action thriller series to its catalog next month. Here’s what you need to know.
+---------
+
+# Maika Monroe's Unhinged Victorian Slasher Masterpiece Will Have You Rooting for the Killer | Review
+
+Movie Reviews, Maika Monroe, Victorian Psycho, Horror, Slasher
+
+Fri, 22 May 2026 17:55:14 GMT
+
+https://collider.com/victorian-psycho-maika-monroe-horror-slasher-cannes-2026/
+
+Victorian Psycho, a new slasher starring Maika Monroe, is a near-perfect horror movie from Zachary Wigon.
+---------
+
+# Police Reveal 'Virgin River' Actor Stewart McLean May Have Been Murdered
+
+TV News, Virgin River
+
+Fri, 22 May 2026 19:14:59 GMT
+
+https://movieweb.com/virgin-river-stewart-mclean-murdered-police-report/
+
+After going missing, a new police reports that 'Virgin River' star Stewart McLean may have been the victim of a homicide.
+---------
+
+# Nicolas Cage's 'Spider-Noir' Rotten Tomatoes Score Revealed
+
+TV News, Spider-Noir, Rotten Tomatoes
+
+Fri, 22 May 2026 18:46:42 GMT
+
+https://movieweb.com/spider-noir-nic-cage-rotten-tomatoes/
+
+Rotten Tomatoes shared the first official Tomatometer score for Prime Video's 'Spider-Noir' series, starring Nicolas Cage.
+---------
+
+# 'The Super Mario Galaxy Movie' Star Keegan-Michael Key Wants 'Tron' for Double Feature
+
+Movie News, The Super Mario Galaxy Movie, Keegan Michael Key, Tron
+
+Fri, 22 May 2026 18:36:53 GMT
+
+https://movieweb.com/super-mario-galaxy-tron-keegan-michael-key/
+
+Keegan-Michael Key suggested pairing his 'The Super Mario Galaxy Movie' with the 1982 hit, 'Tron,' for a fun video-game movie double feature.
+---------
+
+# 'Citadel' Loses the Action Thriller Streaming War to 'Jack Ryan' on Prime Video
+
+TV News, Comparison Recommendation, Citadel, Jack Ryan, Prime Video, Action, Thriller, Tom Clancy's Jack Ryan: Ghost War
+
+Fri, 22 May 2026 18:00:19 GMT
+
+https://movieweb.com/citadel-jack-ryan-ghost-war-stream-may-2026/
+
+The long-awaited return of John Krasinski's secret agent in 'Ghost War' topples the new season of Amazon's big-budget spy series.
+---------
+
+# 16 Incredibly Touching Animated Romance Movies
+
+Movie Lists, Animation, Romance
+
+Fri, 22 May 2026 18:00:19 GMT
+
+https://movieweb.com/very-touching-animated-romance-movies/
+
+From 'Elemental' to 'Entergalactic,' these animated romance movies are guaranteed to tug on your heart.
+---------
+
 # James Gunn's DCU Is Officially Switching Genres Twice This Summer
 
 Movies, DC Universe
