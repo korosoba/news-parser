@@ -1,3 +1,410 @@
+# Ladies First: A Shameful Misfire With A Better Cast Than It Deserves
+
+New Movies, Ladies First
+
+Fri, 22 May 2026 15:39:02 GMT
+
+https://screenrant.com/ladies-first-movie-2026-review/
+
+Though it’s capably filmed and stars a great group of British and Irish actors, this woefully misguided gender comedy is ends up kind of insulting.
+---------
+
+# 5 Law & Order: Organized Crime Stars Who Should Join Other Dick Wolf Shows
+
+Network TV, Law & Order: Organized Crime, Law & Order: Special Victims Unit, Law & Order
+
+Fri, 22 May 2026 15:30:20 GMT
+
+https://screenrant.com/law-and-order-organized-crime-characters-dick-wolf-shows/
+
+Law & Order: Organized Crime was cancelled after five seasons, but there are still stars who should rejoin the Dick Wolf franchise on other shows.
+---------
+
+# The Late Show With Stephen Colbert Bows Out With A Bang, Even Without The Pope
+
+Network TV, The Late Show with Stephen Colbert
+
+Fri, 22 May 2026 15:15:11 GMT
+
+https://screenrant.com/stephen-colbert-the-late-show-cbs-ending/
+
+The Late Show with Stephen Colbert has come to an end after 33 years on the air, and the finale was a joyful reminder of why it was so beloved.
+---------
+
+# Christopher Nolan’s Record-Setting The Odyssey Runtime Reportedly Revealed
+
+Movies, The Odyssey
+
+Fri, 22 May 2026 15:08:51 GMT
+
+https://screenrant.com/the-odyssey-christopher-nolan-runtime-report-record/
+
+Christopher Nolan's upcoming epic fantasy action movie The Odyssey has set a record as the director's second-longest running movie behind Oppenheimer.
+---------
+
+# Wesley's The Rookie Season 9 Story & Rivalry Teased By Star
+
+TV, The Rookie
+
+Fri, 22 May 2026 15:08:01 GMT
+
+https://screenrant.com/the-rookie-season-9-wesley-story-tease-shawn-ashmore/
+
+Exclusive: The Rookie star Shawn Ashmore previews Wesley's season 9 storyline, hinting at his return to defense law and the dynamics with Angela.
+---------
+
+# Tom Hardy & Guy Ritchie’s Returning Crime Drama Is Chasing Another Taylor Sheridan Record
+
+TV, MobLand
+
+Fri, 22 May 2026 15:00:20 GMT
+
+https://screenrant.com/mobland-landman-season-2-record-paramount-plus/
+
+Hardy and Ritchie's show has already broken streaming records with previous episodes, but Taylor Sheridan's biggest Western series has raised the bar.
+---------
+
+# Stephen Colbert's CBS Exit Celebrated By Trump, President Threatens Other Late Show Hosts: "May They All Rest In Peace"
+
+TV, The Late Show with Stephen Colbert, Stephen Colbert, Donald Trump
+
+Fri, 22 May 2026 14:54:06 GMT
+
+https://screenrant.com/late-show-stephen-colbert-exit-donald-trump-warning/
+
+Fans and celebrities have been mourning the cancelation of The Late Show with Stephen Colbert, but Donald Trump’s reaction is the complete opposite.
+---------
+
+# 3 Best Movies To Watch On Peacock This Weekend (May 23-24)
+
+Movies, Peacock, Recommendation
+
+Fri, 22 May 2026 14:30:21 GMT
+
+https://screenrant.com/best-peacock-movies-watch-weekend-may-23/
+
+A Peacock subscription really pays off on the weekends, and these three handpicked streaming gems are the perfect way to while away the hours.
+---------
+
+# 27 Years Later, Star Trek Officially Proved Captain Sisko's Greatest Win
+
+TV, Star Trek, Star Trek: Deep Space Nine, Star Trek: Starfleet Academy
+
+Fri, 22 May 2026 14:30:21 GMT
+
+https://screenrant.com/star-trek-captain-sisko-honor-starfleet-academy/
+
+Captain Sisko won the Dominion War, protected Bajor, and saved the Federation, but Star Trek: Starfleet Academy revealed the best thing
+---------
+
+# Prime Video's New R-Rated Spider-Man Series Debuts To Stellar Rotten Tomatoes Score
+
+TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Fri, 22 May 2026 14:27:47 GMT
+
+https://screenrant.com/spider-noir-rotten-tomatoes-score-prime-video-spiderman/
+
+Nicolas Cage's Spider-Noir TV show, featuring the Hollywood legend as a new Spider-Man, has finally received its official Rotten Tomatoes score.
+---------
+
+# Prime Video's New R-Rated Spider-Man Series Debuts to 1 of the Best Rotten Tomatoes Scores in the Franchise
+
+TV, Rotten Tomatoes, Spider-Noir
+
+Fri, 22 May 2026 15:32:45 GMT
+
+https://www.cbr.com/prime-video-spider-noir-rotten-tomatoes-score/
+
+With great power comes great responsibility, and Prime Video nailed it.
+---------
+
+# Michael 2 Gets Update From Lionsgate Boss After Divisive Reception
+
+Movies, Michael
+
+Fri, 22 May 2026 15:30:54 GMT
+
+https://www.cbr.com/michael-jackson-sequel-update-lionsgate-adam-fogelson/
+
+Lionsgate offers an update on a sequel to the Michael Jackson biopic that is finding success at the box office but not with critics.
+---------
+
+# 10 Greatest Star Wars Games of All Time, Ranked
+
+Games, Star Wars, Video Games, Star Wars: Knights of the Old Republic, Star Wars: The Force Unleashed
+
+Fri, 22 May 2026 15:16:14 GMT
+
+https://www.cbr.com/greatest-star-wars-games-kotor-the-force-unleashed/
+
+The best video games based on the Star Wars universe include Knights of the Old Republic and Battlefront.
+---------
+
+# One Piece Retcon Proves Fans Misunderstood Luffy's Power
+
+Anime, One Piece
+
+Fri, 22 May 2026 15:16:14 GMT
+
+https://www.cbr.com/one-piece-retcon-luffy-devil-fruit-gum-gum-nika-gear-5/
+
+Oda revealed the truth about One Piece and Luffy when he revealed the truth about the most important Devil Fruit.
+---------
+
+# After Divisive Finale, The Boys New Spinoff Officially Unveils First Teaser
+
+TV, Vought Rising, The Boys
+
+Fri, 22 May 2026 14:54:30 GMT
+
+https://www.cbr.com/vought-rising-first-teaser/
+
+The Boys universe continues.
+---------
+
+# Vought Rising - First Look
+
+TV, Vought Rising
+
+Fri, 22 May 2026 14:47:32 GMT
+
+https://www.cbr.com/video/vought-rising-first-look/
+
+Prime Video unveils first look for Vought Rising
+---------
+
+# Matt Damon's True Grit Western Remake Has the Best Duel in Movie History
+
+Movies, True Grit
+
+Fri, 22 May 2026 14:30:14 GMT
+
+https://www.cbr.com/matt-damon-true-grit-western-best-duel/
+
+The Western genre has been made great by some of Hollywood's greatest showdowns, and Matt Damon headlined a film with an unparalleled duel.
+---------
+
+# Apple TV's The Studio Season 2 Gets Official Release Window
+
+TV, The Studio
+
+Fri, 22 May 2026 14:27:29 GMT
+
+https://www.cbr.com/apple-tv-the-studio-season-2-release-window/
+
+The critically acclaimed series will return sooner than expected.
+---------
+
+# 10 Most Disappointing Classic 2000s Anime, Ranked
+
+Anime, Soul Eater, Fairy Tail
+
+Fri, 22 May 2026 14:15:13 GMT
+
+https://www.cbr.com/most-disappointing-classic-2000s-anime/
+
+Back in the 2000s, these anime series were the staples of the medium, yet fans today are likely to find them disappointing.
+---------
+
+# Spider-Noir Review: Nicolas Cage Delivers One of the Best Superhero Shows of the Decade
+
+TV, Spider-Noir
+
+Fri, 22 May 2026 14:00:13 GMT
+
+https://www.cbr.com/spider-noir-review/
+
+Spider-Noir lets Nicolas Cage reinvent Marvel’s web-slinger in a bold, black-and-white superhero series with stunning noir style.
+---------
+
+# Harrison Ford’s Greatest Sci-Fi Adventure Movie Officially Returns 46 Years Later
+
+Movie News, Star Wars: Episode V - The Empire Strikes Back, Star Wars, Sci-Fi, The Empire Strikes Back
+
+Fri, 22 May 2026 15:27:23 GMT
+
+https://collider.com/harrison-ford-greatest-sci-fi-movie-empire-strikes-back-streaming-success-disney-plus-may-2026/
+
+After 46 years, the greatest sci-fi movie in history, The Empire Strikes Back, has returned to the spotlight as a massive streaming success.
+---------
+
+# Rebecca Ferguson's Sci-Fi Epic Officially Returns With a Game-Changing Twist
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Fri, 22 May 2026 15:24:27 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-series-silo-season-3-juliette-mayor-sneak-peek-apple-tv/
+
+Silo, the three-part Apple TV series starring Rebecca Ferguson, gets a new look at Season 3 that changes everything.
+---------
+
+# The Most Anticipated WWII Movie of 2026 Will Be Shockingly Hard to Find in Theaters
+
+Movie News, Pressure, Brendan Fraser, World War II, Andrew Scott
+
+Fri, 22 May 2026 15:14:50 GMT
+
+https://collider.com/pressure-brendan-fraser-world-war-2-thriller-hard-to-watch-screen-count-release-date-may-29/
+
+The new World War II movie Pressure, starring Brendan Fraser and Andrew Scott, has been allotted an underwhelming screen count in its opening week.
+---------
+
+# Marvel’s ‘The Vision’ Creative Team Returns With Brutal New Noir Thriller ‘Six of Us’ [Exclusive]
+
+TV News, Comic Book, Lanterns, Mystery, Supergirl
+
+Fri, 22 May 2026 15:00:14 GMT
+
+https://collider.com/tom-king-new-comic-hollywood-noir-six-of-us-first-look-pages/
+
+Tom King and Gabriel H. Walta reunite for Six of Us, a Hollywood noir mystery, and Collider has an exclusive sneak peek. Read it now.
+---------
+
+# Tom Hardy Officially Fired From Paramount+'s Guy Ritchie Crime Thriller After 2 Seasons
+
+TV News, MobLand, Tom Hardy, Guy Ritchie, Pierce Brosnan
+
+Fri, 22 May 2026 14:38:33 GMT
+
+https://collider.com/tom-hardy-fired-mobland-season-2-exit-issues-explained-guy-ritchie-paramount-plus/
+
+Guy Ritchie's biggest crime thriller show, MobLand, has lost its best character as Tom Hardy has officially been fired from the Paramount+ series.
+---------
+
+# Make Me Laugh | With the cast of Mating Season
+
+TV, Mating Season
+
+Fri, 22 May 2026 14:00:14 GMT
+
+https://collider.com/video/make-me-laugh-with-the-cast-of-mating-season/
+
+In this chaotic game of meme-creation, the cast of Netflix’s adult animated comedy Mating Season — Nick Kroll (Big Mouth), June Diane Raphael (Grace and Frankie), Zach Woods (The Office, Silicon Valley), and Sabrina Jalees (Abbott Elementary) — spiral into wildly unhinged conversations about reciprocity, Housewives lore, “regional hype up massages,” and the strangest memes imaginable.Who can keep a straight face the longest while absolutely derailing the game?Mating Season premieres May 22 on Netflix.
+---------
+
+# ‘The Boys’ Officially Returns With Bone-Crunching First ‘Vought Rising’ Trailer
+
+TV News, Vought Rising, Jensen Ackles, Aya Cash, The Boys
+
+Fri, 22 May 2026 14:00:14 GMT
+
+https://collider.com/prime-video-jensen-ackles-vought-rising-trailer/
+
+Prime Video has released the first trailer for Vought Rising following the conclusion of The Boys Season 5. Check it out here.
+---------
+
+# Nicolas Cage's 'Spider-Noir' Is a Fun, Pulpy Superhero Throwback | Review
+
+TV Reviews, Spider-Noir, Nicolas Cage, Prime Video, Spider-Man
+
+Fri, 22 May 2026 14:00:14 GMT
+
+https://collider.com/spider-noir-review-nicolas-cage-prime-video/
+
+Nicolas Cage is having the time of his life in Spider-Noir, even if sometimes the pulpy vibe dilutes into cheesy territory. Read our full review here!
+---------
+
+# 3 Binge-Worthy Netflix Series Worth Watching This Weekend
+
+TV, Netflix, The Boroughs, Law & Order, Mating Season
+
+Fri, 22 May 2026 12:41:13 GMT
+
+https://collider.com/netflix-shows-binge-may-22/
+
+The Boroughs, Mating Season, and Law & Order make up our list of binge-worthy series to watch on Netflix the weekend of May 22, 2026.
+---------
+
+# Timothy Olyphant Thriller 'Over Your Dead Body' Sets Digital Release Date
+
+Movie News, Over Your Dead Body, Timothy Olyphant, Thriller
+
+Fri, 22 May 2026 15:25:32 GMT
+
+https://movieweb.com/over-your-dead-body-digital-release-date/
+
+The digital VOD release date has been set for 'Over Your Dead Body,' an R-rated thriller starring Timothy Olyphant, Jason Segel, and Samara Weaving.
+---------
+
+# 'The Samurai and the Prisoner' Is a Mystery Thriller Classic on Rotten Tomatoes
+
+Movie News, Mystery, Thriller, Shogun, Agatha Christie, Rotten Tomatoes
+
+Fri, 22 May 2026 15:15:19 GMT
+
+https://movieweb.com/samurai-prisoner-rotten-tomatoes-reviews/
+
+The historical whodunit has been hailed as "'Shōgun' Meets Agatha Christie" by critics following its Cannes premiere.
+---------
+
+# Intense Romance Movies Where You Can Feel the Passion
+
+Movie Lists, Romance
+
+Fri, 22 May 2026 15:00:20 GMT
+
+https://movieweb.com/intense-romance-movies-feel-the-passion/
+
+Every intensely passionate romance movie is worth watching, from slow-burning love stories to overwhelmingly charged relationships.
+---------
+
+# Guy Ritchie's Latest Action Thriller Flop Continues a
+
+Features, Guy Ritchie, Thriller, Career Arc Reframe
+
+Fri, 22 May 2026 15:00:19 GMT
+
+https://movieweb.com/guy-ritchie-in-the-grey-career-tv-switch/
+
+Guy Ritchie's 'In the Grey' is a box office flop. The director has now gone five years without a hit. Is this the end for him?
+---------
+
+# 'Vought Rising' Trailer Reveals 'The Boys' Prequel Series on Prime Video
+
+TV News, Vought Rising, Prime Video, Jensen Ackles
+
+Fri, 22 May 2026 14:52:56 GMT
+
+https://movieweb.com/vought-rising-first-trailer-jensen-ackles/
+
+Following the series finale of 'The Boys,' Prime Video shared the first official trailer for the new 'Vought Rising' Spin-off series.
+---------
+
+# Netflix Finds New Sci-Fi Hit With Spielbergian Alien Horror Movie 'Nope'
+
+Movie News, Nope, Hot on Streaming, Sci-Fi, Horror, Netflix
+
+Fri, 22 May 2026 14:30:19 GMT
+
+https://movieweb.com/nope-netflix-streaming-may-2026/
+
+Jordan Peele's twisted take on extraterrestrial horror is his most divisive movie yet.
+---------
+
+# 'The Boroughs’: the Netflix Series Is So Good, You'll Watch It All Weekend
+
+Features, The Boroughs, Netflix
+
+Fri, 22 May 2026 14:00:19 GMT
+
+https://movieweb.com/the-boroughs-netflix-weekend-binge-watch/
+
+'The Boroughs,' the Netflix sci-fi thriller series executive produced by the Duffer Brothers, is a perfect binge for fans of 'Stranger Things.'
+---------
+
+# 'Spider-Noir' Review: Nicolas Cage Finally Gets the Superhero Saga He Deserves
+
+TV Reviews, Spider-Noir, Nicolas Cage
+
+Fri, 22 May 2026 14:00:19 GMT
+
+https://movieweb.com/spider-noir-review/
+
+The new series fully leans into noir tropes to make for a pulpy throwback.
+---------
+
 # Elden Ring’s New Classes Have Gamers Split Over Official DLC
 
 Gaming, Elden Ring
