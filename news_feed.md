@@ -1,3 +1,333 @@
+# Power Rangers' New Green Ranger Series Is Officially Here, And It's Epic
+
+Comics, Power Rangers
+
+Fri, 22 May 2026 23:31:16 GMT
+
+https://screenrant.com/power-rangers-new-green-ranger-series-epic/
+
+Power Rangers is kicking off an epic new era for Tommy Oliver, as he makes his return as the franchise’s Green Ranger.
+---------
+
+# Taylor Sheridan's Yellowstone Spinoff Has Officially Found Its Beth Dutton Replacement
+
+Streaming TV, Masked Recs
+
+Fri, 22 May 2026 23:31:16 GMT
+
+https://screenrant.com/dutton-ranch-oreana-beth-replacement/
+
+Beth Dutton is a character unto herself, but Taylor Sheridan's latest show in the Yellowstone universe has found a phenomenal 2.0 version.
+---------
+
+# Subnautica 2 Third-Person Mode Feels Like A Completely New Game
+
+Gaming, Subnautica 2, Triple-A Games
+
+Fri, 22 May 2026 23:00:19 GMT
+
+https://screenrant.com/subnautica-2-third-person-mod/
+
+Although it exploded with millions in sales in Early Access already, Subnautica 2 still has a ways to go, including more quality-of-life options.
+---------
+
+# Umbrella Academy's Next Official Release Is The Perfect Palate Cleanser After Controversial Series Finale
+
+Comics, The Umbrella Academy
+
+Fri, 22 May 2026 23:00:19 GMT
+
+https://screenrant.com/umbrella-academy-plan-b-new-release/
+
+The backlash surrounding The Umbrella Academy's fourth and final season hit hard among longtime fans, but this new release for the series is perfect.
+---------
+
+# Disney+'s 3-Hour Sci-Fi Epic Is So Good, It's Coming Back With New Scenes And A Sequel
+
+Streaming TV, Masked Recs
+
+Fri, 22 May 2026 22:45:19 GMT
+
+https://screenrant.com/avengers-endgame-direct-sequel-doomsday/
+
+Disney has managed to create a monopoly at the top of the box office leaderboards, and one incredible sci-fi epic is set to make a special comeback.
+---------
+
+# 10 Shows With 5 Or More Seasons That Nailed Their Ending
+
+Classic TV
+
+Fri, 22 May 2026 22:30:21 GMT
+
+https://screenrant.com/shows-with-5-or-more-seasons-nailed-the-ending/
+
+Discover the rare TV shows that maintained quality and emotional closure across 5+ seasons without losing their essence or resorting to cheap twists.
+---------
+
+# Guillermo Del Toro's Scary Stories To Tell in the Dark Is Aging Like Wine
+
+Movies, Guillermo del Toro, Scary Stories to Tell in the Dark, Masked Recs
+
+Fri, 22 May 2026 22:30:21 GMT
+
+https://screenrant.com/7-years-later-guillermo-del-toro-adaptation-scary-stories-to-tell-in-the-dark-is-aging-like-fine-wine/
+
+This banned book adaptation holds up.
+---------
+
+# Rick And Morty's Next Three Seasons Are Even Further Along Than You Think, Reveals Showrunner
+
+TV, Rick and Morty
+
+Fri, 22 May 2026 22:15:18 GMT
+
+https://screenrant.com/rick-and-morty-future-seasons-production-update-far-scott-marder/
+
+Exclusive: With Rick and Morty season 9 underway, showrunner Scott Marder shared how far along the Adult Swim series' next three seasons are.
+---------
+
+# One Of The Greatest Superman Versions Of The Century Is Officially Coming Back
+
+Streaming TV, Masked Recs
+
+Fri, 22 May 2026 22:15:19 GMT
+
+https://screenrant.com/my-adventures-with-superman-best-adaptation-returning-season-3/
+
+The DCU is building a strong identity around Clark Kent and Superman on the big screen, but there is another version that deserves some more love.
+---------
+
+# Yellowstone Officially Confirms Jamie Dutton's Replacement in Dutton Ranch
+
+TV, Dutton Ranch, Yellowstone
+
+Fri, 22 May 2026 23:35:45 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-episode-3-jamie-dutton-replacement-joaquin-jackson/
+
+Taylor Sheridan has officially revived Jamie Dutton's role in his Yellowstone franchise as Dutton Ranch Episode 3 introduces his 10-Petal counterpart.
+---------
+
+# Christopher Nolan’s The Odyssey Runtime Reportedly Revealed, and It’s Shorter Than You Think
+
+Movies, The Odyssey, Fantasy
+
+Fri, 22 May 2026 23:23:19 GMT
+
+https://www.cbr.com/christopher-nolan-the-odyssey-runtime/
+
+Christopher Nolan's The Odyssey may be less epic than fans were expecting.
+---------
+
+# TV's Bloodiest & Horniest Series Ever Gets Canceled Following 'Woke' Criticism
+
+TV, Spartacus: House of Ashur
+
+Fri, 22 May 2026 23:11:50 GMT
+
+https://www.cbr.com/spartacus-house-of-ashur-season-2-canceled/
+
+The bloody spinoff series has officially been axed after just one season.
+---------
+
+# Clair Obscur Officially Drops Long-Awaited New Release Coming November 2026
+
+Games, Video Games, RPG
+
+Fri, 22 May 2026 23:05:13 GMT
+
+https://www.cbr.com/clair-obscur-official-new-release-coming-november-2026/
+
+Clair Obscur was the biggest game of 2025, and now the hit RPG has a major new release set for later in 2026.
+---------
+
+# Prime Video's 4-Part Reacher Replacement Returns to No. 1 Immediately After Sequel Release
+
+TV, Tom Clancy's Jack Ryan, Prime Video, Tom Clancy's Jack Ryan: Ghost War
+
+Fri, 22 May 2026 23:00:13 GMT
+
+https://www.cbr.com/tom-clancy-jack-ryan-action-thriller-pvod-success-may-2026/
+
+The political action thriller series returned to the streaming charts as the movie sequel holds the No. 1 spot.
+---------
+
+# Major 2026 Superhero Comic Announces All-New Title From Industry Legends
+
+Comics, skybound, image comics
+
+Fri, 22 May 2026 23:00:13 GMT
+
+https://www.cbr.com/skybound-comics-terminal-legendary-artist-variant-covers/
+
+Skybound Comics brings in an arsenal of icons for its new superhero series.
+---------
+
+# 10 Near-Perfect Modern Black & White Movies, Ranked
+
+Movies, Sin City
+
+Fri, 22 May 2026 23:00:13 GMT
+
+https://www.cbr.com/perfect-modern-black-white-movies-list/
+
+Black and white filmmaking is not only a thing of the past, as there have been many incredible examples of monochrome movies that need to be seen.
+---------
+
+# The Mandalorian and Grogu’s Budget Confirms How Much the Star Wars Movie Must Make To Succeed
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Fri, 22 May 2026 22:51:41 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-star-wars-budget-box-office-success/
+
+The Mandalorian's toughest battle may be at the box office.
+---------
+
+# 5 Video Game Villains More Powerful Than Sephiroth
+
+Games, Final Fantasy, The Legend of Zelda, God of War
+
+Fri, 22 May 2026 22:15:12 GMT
+
+https://www.cbr.com/final-fantasy-villains-stronger-than-sephiroth/
+
+Sephiroth is considered one of the most powerful antagonists of all time, but these five villains make battling the one-winged angel feel easy.
+---------
+
+# Today Is a Great Day For Quentin Tarantino Fans
+
+Movies, Peacock, Quentin Tarantino, Kill Bill: The Whole Bloody Affair
+
+Fri, 22 May 2026 22:03:14 GMT
+
+https://www.cbr.com/quentin-tarantino-movies-streaming-peacock-may-2026/
+
+Today is a day for Quentin Tarantino fans to celebrate.
+---------
+
+# Netflix’s New Near-Perfect Sci-Fi Series Is Officially the Next ‘Stranger Things’
+
+TV News, The Boroughs, Duffer Brothers, Netflix, Sci-Fi
+
+Fri, 22 May 2026 23:30:54 GMT
+
+https://collider.com/new-netflix-sci-fi-series-stranger-things-creators-duffer-brothers-the-boroughs-streaming-success-may-2026/
+
+The Boroughs, 2026's Netflix series executive produced by the Duffer Brothers, has emerged as a major hit.
+---------
+
+# 'The Odyssey' Star Officially Responds to Backlash for Christopher Nolan's Fantasy Epic
+
+Movie News, Christopher Nolan, Lupita Nyong'o, The Odyssey, Matt Damon
+
+Fri, 22 May 2026 23:15:13 GMT
+
+https://collider.com/christopher-nolan-fantasy-epic-the-odyssey-casting-backlash-respone-lupita-nyongo/
+
+Oscar-winning actress Lupita Nyong'o responds to backlash over her casting as Helen of Troy in Christopher Nolan's The Odyssey.
+---------
+
+# Only 5 Horror Movies in the 2020s Can Be Considered True Masterpieces
+
+Movie, Horror, Sinners, Weapons, Godzilla Minus One
+
+Fri, 22 May 2026 23:06:14 GMT
+
+https://collider.com/horror-movies-2020s-true-masterpieces/
+
+Horror is thriving in the 2020s, but only a select few movies, like When Evil Lurks and Sinners, can be considered genuine masterpieces of the genre.
+---------
+
+# Quentin Tarantino's Biggest Release Ever Is Finally Streaming
+
+Movie News, Quentin Tarantino, Kill Bill: The Whole Bloody Affair, Kill Bill: Vol. 1, Action
+
+Fri, 22 May 2026 23:00:13 GMT
+
+https://collider.com/quentin-tarantino-action-thriller-kill-bill-the-whole-bloody-affair-cut-streaming-peacock-may-22-2026/
+
+Quentin Tarantino’s legendary revenge epic, Kill Bill: The Whole Bloody Affair, is now available to stream. Read on for more.
+---------
+
+# 8 Most Universally Beloved HBO Shows of All Time, Ranked
+
+TV, HBO, The Sopranos, The Wire, Succession
+
+Fri, 22 May 2026 22:44:13 GMT
+
+https://collider.com/hbo-shows-universally-beloved-all-time-ranked/
+
+Discover HBO's top universally beloved shows known for their widespread acclaim, including The Sopranos, The Wire, and Succession.
+---------
+
+# 'Boardwalk Empire’ Fans May Have Finally Found Their Next Must-Watch Crime Drama
+
+TV Features, Boardwalk Empire, The Westies, MGM, Prime Video
+
+Fri, 22 May 2026 22:34:13 GMT
+
+https://collider.com/boardwalk-empire-the-westies-mgm-plus-must-watch-crime-drama/
+
+MGM+ is looking to deliver the next great crime drama with The Westies.
+---------
+
+# Jensen Ackles Returns to CBS’ High-Stakes Crime Thriller in Season 3 Finale Sneak Peek [Exclusive]
+
+TV News, Tracker, Jensen Ackles, Justin Hartley, CBS
+
+Fri, 22 May 2026 22:30:14 GMT
+
+https://collider.com/tracker-season-finale-clip-jensen-ackles/
+
+Jensen Ackles is back on Tracker as he and Justin Hartley plot a dangerous mission in an exclusive sneak peek from the Season 3 finale. Watch it now.
+---------
+
+# 10 Greatest '90s Movie Soundtracks, Ranked
+
+Movie, Pulp Fiction, 10 Things I Hate About You, The Bodyguard, Clueless
+
+Fri, 22 May 2026 22:19:13 GMT
+
+https://collider.com/best-90s-movie-soundtracks-ranked/
+
+Pulp Fiction, Cruel Intentions, and 10 Things I Hate About You feature exceptional soundtracks, but which '90s movie is considered the greatest?
+---------
+
+# Prime Video's 'Mighty Nein' & 'Vox Machina' Are the Perfect 'Dungeons & Dragons' Replacements
+
+Features, Dungeons & Dragons: Honor Among Thieves, The Legend of Vox Machina, The Mighty Nein
+
+Fri, 22 May 2026 23:00:18 GMT
+
+https://movieweb.com/dungeons-and-dragons-sequel-vox-machina-mighty-nein-prime-video-fantasy/
+
+'Dungeons & Dragons: Honor Among Thieves 2' might never happen, but Prime Vidoe's two Dungeons & Dragons shows are the perfect fantasy replacements.
+---------
+
+# The 'Scrubs' Revival Is On Pace To Pay Off Its 5-Season Plan by 2028
+
+Features, Scrubs
+
+Fri, 22 May 2026 23:00:18 GMT
+
+https://movieweb.com/scrubs-revival-renewal-harsh-reality/
+
+'Scrubs' Season 2 is already confirmed for this fall, but the news comes with a surprising downside.
+---------
+
+# Horror Filmmaker Dario Argento Announces New Trilogy of Thriller Movies at Cannes
+
+Movie News, Dario Argento
+
+Fri, 22 May 2026 22:08:46 GMT
+
+https://movieweb.com/dario-argento-trilogy-flesh-of-my-flesh/
+
+First footage of the debut installment, 'Flesh of My Flesh,' just premiered at the festival.
+---------
+
 # Netflix's 6-Part 'Yellowstone Meets Game Of Thrones' Series Is One Of Its Best Westerns
 
 TV, Masked Recs
