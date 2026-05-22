@@ -1,3 +1,300 @@
+# Netflix's 6-Part 'Yellowstone Meets Game Of Thrones' Series Is One Of Its Best Westerns
+
+TV, Masked Recs
+
+Fri, 22 May 2026 22:00:21 GMT
+
+https://screenrant.com/territory-netflix-western-yellowstone-meets-game-of-thrones/
+
+Netflix might still be looking for its own version of Yellowstone or Game of Thrones, but this one-season Western feels like a combination of both.
+---------
+
+# A Classic Zelda Officially Returns In Unexpected Nintendo Release
+
+Gaming, The Legend of Zelda
+
+Fri, 22 May 2026 22:00:21 GMT
+
+https://screenrant.com/zelda-link-between-worlds-nintendo-music/
+
+A classic Legend of Zelda game has gotten a surprise new release. And this time, it's officially from Nintendo, so be sure to check it out.
+---------
+
+# The Last of Us Meets Attack on Titan in New Sci-Fi Series with a Unique Twist
+
+Comics, Masked Recs, Sci-Fi
+
+Fri, 22 May 2026 22:00:21 GMT
+
+https://screenrant.com/new-sci-fi-series-only-savage-are-left-post-apocalypse/
+
+Smoking kaiju to stay human (yes, literally.)
+---------
+
+# Tuner Star Reveals Unique Preparation For 96% RT Heist Thriller
+
+Exclusive, Tuner, Leo Woodall
+
+Fri, 22 May 2026 21:47:39 GMT
+
+https://screenrant.com/tuner-movie-hyperacusis-leo-woodall-interview/
+
+Tuner star Leo Woodall shares the research he did to understand his character's hyperacusis condition and reveals his favorite scene from the script.
+---------
+
+# Netflix's 2-Part Fantasy Series Is So Good, It Could Be The Next Stranger Things
+
+Streaming TV, Masked Recs
+
+Fri, 22 May 2026 21:45:19 GMT
+
+https://screenrant.com/wednesday-netflix-flagship-show-after-stranger-things/
+
+Stranger Things was Netflix's flagship series for a decade, but there is a new contender ready to fill the void left behind with equal energy.
+---------
+
+# David Tennant's Return Marked The End Of An Era For Doctor Who
+
+Streaming TV, Doctor Who, David Tennant
+
+Fri, 22 May 2026 21:30:20 GMT
+
+https://screenrant.com/doctor-who-david-tennant-return-end-of-an-era-regeneration/
+
+David Tennant returned to Doctor Who to play the Fourteenth Doctor in the 60th anniversary specials, and this also marked the end of an era.
+---------
+
+# Spartacus: House Of Ashur Canceled After One Season
+
+TV, Spartacus: House of Ashur, Spartacus
+
+Fri, 22 May 2026 21:29:43 GMT
+
+https://screenrant.com/spartacus-house-of-ashur-starz-canceled/
+
+Over a decade after Spartacus ended on Starz, the premium cable network debuted a spinoff, but House of Ashur now has an unfortunate fate.
+---------
+
+# Midori Francis' New Horror Movie Saccharine Is Both "Absurd" & "Peak Intensity," Teases Director & Stars
+
+Movies, Saccharine, Midori Francis, Horror
+
+Fri, 22 May 2026 21:27:18 GMT
+
+https://screenrant.com/midori-francisaccharine-movie-absurd-peak-intensity-director-stars/
+
+Midori Francis and the writer/director and stars of her new horror movie Saccharine talk its "absurd" and "peak intensity" and deep thematics.
+---------
+
+# Disney+’s 10-Part Psychological Thriller Is A Perfect Weekend Binge & More Shows To Watch
+
+Streaming TV, Disney+, What to Watch on Disney Plus, Masked Recs
+
+Fri, 22 May 2026 21:18:21 GMT
+
+https://screenrant.com/disney-plus-shows-to-watch-now-weekend-binge/
+
+What to watch on Hulu/Disney+ this weekend: The Testaments is a perfect binge. The Mandalorian and Marvel's The Punisher both have new movie sequels.
+---------
+
+# Scarlett Johansson's "Masterpiece" Hit $73M Sci-Fi Officially Releases On HBO Max In 2 Weeks
+
+Movies, Masked Recs
+
+Fri, 22 May 2026 21:10:24 GMT
+
+https://screenrant.com/scarlett-johansson-isle-of-dogs-hbo-max-streaming-release-june-2026/
+
+Scarlett Johansson's hit $73 million sci-fi film, which has been hailed as a "masterpiece" several times, officially releases on HBO Max in two weeks.
+---------
+
+# Anya Taylor-Joy's New $968M Sequel Is an Instant Streaming Hit on Digital
+
+TV, The Super Mario Galaxy Movie
+
+Fri, 22 May 2026 22:00:14 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-movie-pvod-success-may-2026/
+
+After a divisive debut, the film turned into 2026's biggest movie yet.
+---------
+
+# Macross Finally Gets First-Time U.S. Release After 40 Years
+
+Anime, mecha, Macross: Do You Remember Love?, Gundam
+
+Fri, 22 May 2026 22:00:14 GMT
+
+https://www.cbr.com/macross-anime-movie-july-2026-release/
+
+Anime Expo 2026 will have two panels based on the iconic Macross, with these including North America's first screening of the original Macross movie.
+---------
+
+# Hulu's Prison Break Reboot Officially Recasts Character After Series Order
+
+TV, Prison Break, Hulu
+
+Fri, 22 May 2026 21:40:24 GMT
+
+https://www.cbr.com/prison-break-reboot-recasting-pilot-role/
+
+Prison Break is coming back with a reboot series on Hulu with new casting information revealed.
+---------
+
+# GTA 6 Officially Confirms Its Final Release Date
+
+Games, Grand Theft Auto
+
+Fri, 22 May 2026 21:35:13 GMT
+
+https://www.cbr.com/gta-6-confirms-official-final-release-date-news/
+
+Without any further delays, Grand Theft Auto 6 finally has an official, confirmed release date.
+---------
+
+# 5 Forgotten Time Travel Anime That Are Perfect From Start to Finish
+
+Anime, Link Click, Noein: To Your Other Self
+
+Fri, 22 May 2026 21:15:12 GMT
+
+https://www.cbr.com/forgotten-time-travel-anime-flawless-start-to-finish/
+
+Anime is rich in rewarding time travel stories, but some of the genre's best offerings are cult classics that have slipped through the cracks.
+---------
+
+# 5 MCU Heroes Smarter Than Tony Stark, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Fri, 22 May 2026 21:00:13 GMT
+
+https://www.cbr.com/mcu-heroes-smarter-than-tony-stark-list/
+
+Tony Stark may think he is the smartest hero in the multiverse, but the MCU has some heroes who outrank even his intelligence.
+---------
+
+# Ben Stiller Sets Career First With Upcoming Apple TV Comedy Series
+
+TV, Apple TV
+
+Fri, 22 May 2026 20:59:23 GMT
+
+https://www.cbr.com/ben-stiller-mike-judge-comedy-apple-tv/
+
+Beavis and Butt-Head creator Mike Judge recruits Ben Stiller for a new project that marks a career first for the actor.
+---------
+
+# 'Star Wars' Is Officially Crushing Streaming Charts Across the Globe Ahead of the 'Mandalorian' Movie
+
+Movie Features, Star Wars: Episode IV - A New Hope, George Lucas, Disney+, Sci-Fi
+
+Fri, 22 May 2026 21:59:14 GMT
+
+https://collider.com/star-wars-greatest-sci-fi-masterpiece-streaming-hit/
+
+George Lucas' 1977 film Star Wars remains a huge hit on Disney+ 49 years later, and it's easy to see why.
+---------
+
+# 3 Near-Perfect Prime Video Movies to Watch This Weekend
+
+Movie, Prime Video, Tom Clancy's Jack Ryan: Ghost War, Blink Twice, Missing
+
+Fri, 22 May 2026 21:48:15 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-may-22/
+
+Missing, Tom Clancy's Jack Ryan: Ghost War, and Blink Twice make up our list of the best Prime Video movies to watch the weekend of May 22, 2026.
+---------
+
+# Sebastian Stan Fends Off a Witch Hunt in His New Movie Rooted in Real-Life Hate | Review
+
+Movie Reviews, Fjord, Sebastian Stan, Renate Reinsve, Cannes Film Festival
+
+Fri, 22 May 2026 21:47:55 GMT
+
+https://collider.com/fjord-review-sebastian-stan-renate-reinsve-cannes-2026/
+
+Cristian Mungiu reunites Renate Reinsve and Sebastian Stan for a modern tale of religious persecution.
+---------
+
+# 10 Classic Sci-Fi Movies That Are Still Perfect Today
+
+Movie, 2001: A Space Odyssey, Sci-Fi, Star Wars: Episode IV - A New Hope, Blade Runner
+
+Fri, 22 May 2026 21:35:13 GMT
+
+https://collider.com/classic-sci-fi-movies-still-perfect/
+
+The sci-fi genre has stood as one of the most celebrated genres in film history thanks to perfect classics like Blade Runner, Star Wars, and Godzilla.
+---------
+
+# Prime Video's New Jack Ryan Movie Sets Rotten Tomatoes Record For John Krasinski Era
+
+Movie News, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War, Tom Clancy, John Krasinski
+
+Fri, 22 May 2026 21:23:49 GMT
+
+https://collider.com/tom-clancy-jack-ryan-ghost-war-rotten-tomatoes-audience-score-john-krasinski-record/
+
+The movie is officially available to stream now.
+---------
+
+# One of Starz' Biggest Shows Has Been Officially Cancelled
+
+TV News, Spartacus: House of Ashur, STARZ, Steven S. DeKnight, Ivana Baquero
+
+Fri, 22 May 2026 21:08:24 GMT
+
+https://collider.com/starz-gladiator-epic-spartacus-house-of-ashur-season-2-cancelled/
+
+Starz has officially confirmed that Spartacus: House of Ashur Season 2 will not be moving forward. Read on for more details.
+---------
+
+# 'The Mandalorian and Grogu' Reveals a Major Unknown Detail About Snowtroopers
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Fri, 22 May 2026 22:00:19 GMT
+
+https://movieweb.com/star-wars-snowtrooper-hood-mystery/
+
+The latest 'Star Wars' film gives a new look at the Stormtroopers 46 years after they debuted in 'The Empire Strikes Back.'
+---------
+
+# Margot Robbie's R-Rated Box Office Flop 'Babylon' Is Leaving Netflix
+
+Movie News, Babylon, Netflix, Coming/Leaving Streaming, Margot Robbie
+
+Fri, 22 May 2026 22:00:19 GMT
+
+https://movieweb.com/babylon-r-rated-margot-robbie-leaving-streaming-netflix-june-2026/
+
+Margot Robbie and Brad Pitt's R-rated box office flop 'Babylon' is leaving Netflix in June 2026.
+---------
+
+# The 10 Greatest Kung Fu Movie Stars, Ranked
+
+Movie Lists, Martial Arts, Action, Jackie Chan, Bruce Lee, Jet Li
+
+Fri, 22 May 2026 21:00:19 GMT
+
+https://movieweb.com/greatest-kung-fu-movie-stars-ranked/
+
+Bruce Lee, Gordon Liu, Jackie Chan - How do the greatest kung fu movie stars of all time stack up?
+---------
+
+# Apple TV's 'Silo' Season 3 Teaser Gives Rebecca Ferguson an All-New Mission
+
+TV News, Silo
+
+Fri, 22 May 2026 20:58:24 GMT
+
+https://movieweb.com/silo-season-3-teaser-rebecca-ferguson/
+
+Ferguson's Juliette has gotten a promotion since we last saw her in the Season 2 finale.
+---------
+
 # Every Time Din Djarin Has Taken His Helmet Off (& Why)
 
 Star Wars, The Mandalorian, The Mandalorian and Grogu
