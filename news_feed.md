@@ -1,3 +1,234 @@
+# Dr. Grove’s The Testaments Episode 9 Fate & Agnes Betrayal Clarified By Star
+
+TV, The Testaments
+
+Fri, 22 May 2026 04:05:36 GMT
+
+https://screenrant.com/the-testaments-episode-9-dr-grove-death-agnes-betrayal-mattea-conforti/
+
+The Testaments star confirmed the fate of Dr. Grove and how her character's relationships changed in the aftermath of her actions.
+---------
+
+# Far Cry 7 Official Announcement Splits Gamers
+
+Gaming, Far Cry, Triple-A Games, PC
+
+Fri, 22 May 2026 04:02:21 GMT
+
+https://screenrant.com/far-cry-7-official-ubisoft-tease-gamers-react/
+
+While the wait for Far Cry 7 has been the longest yet, fans have been losing their minds over Ubisoft's latest announcement for th series.
+---------
+
+# All 13 Demon Slayer Hashira, Ranked Weakest To Strongest
+
+Anime, Demon Slayer
+
+Fri, 22 May 2026 03:58:20 GMT
+
+https://screenrant.com/demon-slayer-hashira-ranked-strength/
+
+Demon Slayer's Hashira are some of the strongest characters in the series, but some Hashira are much stronger and more powerful than their peers.
+---------
+
+# 2026 Canadian Game Awards Winners: South of Midnight Wins Big
+
+Gaming, Canadian Game Awards, South of Midnight
+
+Fri, 22 May 2026 03:47:24 GMT
+
+https://screenrant.com/2026-canadian-game-awards-winners/
+
+South of Midnight dominated the 2026 Canadian Game Awards, winning Game of the Year and multiple top honors for Compulsion Games.
+---------
+
+# Berserk Sets Up Shocking Back-To-Back Releases For Its Return
+
+Anime, Berserk
+
+Fri, 22 May 2026 03:25:35 GMT
+
+https://screenrant.com/berserk-manga-return-consecutive-chapter-release-report/
+
+The triumphant return of Studio Gaga's Berserk, taking on Kentaro Miura's vision, appears to have far more coming sooner than expected.
+---------
+
+# Apple TV’s 9-Part Post-Apocalyptic Drama Makes Its Ridiculous Plot Look Genius
+
+Streaming TV, Masked Recs
+
+Fri, 22 May 2026 03:00:21 GMT
+
+https://screenrant.com/apple-tv-pluribus-ridiculous-genius/
+
+One of Apple TV’s greatest sci-fi shows sounds absolutely ridiculous on paper, but its perfect execution manages to make its bizarre story look genius
+---------
+
+# Stephen Colbert Says Goodbye to The Late Show in Emotional Final Episode
+
+TV, The Late Show with Stephen Colbert
+
+Fri, 22 May 2026 05:18:18 GMT
+
+https://www.cbr.com/stephen-colbert-final-late-show-episode-recap/
+
+Paul McCartney, Bryan Cranston and Ryan Reynolds were among the star studded cameos in the Late Show's final episode.
+---------
+
+# Amazing Spider-Man Hits #1000 in Marvel's Official August 2026 Solicitations
+
+Comics, Marvel Comics, solicitations
+
+Fri, 22 May 2026 03:58:57 GMT
+
+https://www.cbr.com/marvel-august-2026-solicitations-amazing-spider-man-1000-midnight/
+
+Amazing Spider-Man hits #1000, and the Midnight Universe launches in Marvel's August 2026 solicitations
+---------
+
+# 10 Strongest Saiyans in Dragon Ball Super, Officially Ranked
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Fri, 22 May 2026 03:45:14 GMT
+
+https://www.cbr.com/dragon-ball-super-official-strongest-saiyans/
+
+Saiyans represent most of Dragon Ball Super's strongest characters, but some of these warriors go above and beyond when it comes to pure power.
+---------
+
+# The Dystopian CW Series The 100 is Perfect For The Walking Dead Fans
+
+TV, The 100, The Walking Dead, Sci-Fi
+
+Fri, 22 May 2026 03:30:16 GMT
+
+https://www.cbr.com/the-100-walking-dead-similarities-post-apocalypse-series/
+
+This beloved dystopian CW series is perfect for fans of The Walking Dead franchise.
+---------
+
+# Quentin Tarantino's Long-Awaited Kill Bill Cut Officially Drops on Peacock Tomorrow
+
+Movies, Kill Bill: The Whole Bloody Affair, Kill Bill, Peacock
+
+Fri, 22 May 2026 03:20:57 GMT
+
+https://www.cbr.com/kill-bill-the-whole-bloody-affair-peacock-streaming-date-may-2026/
+
+After 20 Years, Tarantino fans can finally stream Kill Bill as it was meant to be.
+---------
+
+# 5 Forgotten SNES Games That Are Officially 10/10, No Notes
+
+Games, Nintendo, Goof Troop, NBA
+
+Fri, 22 May 2026 03:15:46 GMT
+
+https://www.cbr.com/forgotten-snes-games-flawless-start-to-finish/
+
+The Super Nintendo has a library filled with classic games, but it's also home to an assortment of hidden gems.
+---------
+
+# DC Comics Hints at the Return of a Classic Forgotten Hero
+
+Comics, static, DC Comics, Milestone Comics
+
+Fri, 22 May 2026 03:01:11 GMT
+
+https://www.cbr.com/dc-comics-teases-new-static-comics/
+
+Static is on his way back!
+---------
+
+# Netflix's 74-Episode Thriller Beats You and Killing Eve At Their Own Game
+
+Anime, Monster, You, Killing Eve
+
+Fri, 22 May 2026 02:45:13 GMT
+
+https://www.cbr.com/netflixs-thriller-anime-monster-beats-you-and-killing-eve/
+
+Naoki Urasawa's Monster anime has taken psychological thrillers to the next level on Netflix, usurping You and Killing Eve.
+---------
+
+# Why The Mandalorian and Grogu Reviews Are So Bad
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Fri, 22 May 2026 02:45:13 GMT
+
+https://www.cbr.com/star-wars-mandalorian-and-grogu-bad-reviews-reasons-list/
+
+The Mandalorian is widely regarded as one of Star Wars' best shows, so why has The Mandalorian and Grogu been ravaged by critics?
+---------
+
+# 10 Greatest Psychological Thrillers of the Last 20 Years, Ranked
+
+Movie, Thriller, Inception, Saltburn, Black Swan
+
+Fri, 22 May 2026 04:52:13 GMT
+
+https://collider.com/best-psychological-thrillers-last-20-years-ranked/
+
+Black Swan, Gone Girl, Midsommar, Nightcrawler, Parasite, and more make up our list of the best psychological thrillers of the past 20 years.
+---------
+
+# 8 Steamy Drama Series That 'Rivals' Fans Need To Watch Next
+
+TV, Rivals, Your Friends and Neighbors, Mad Men, Drama
+
+Fri, 22 May 2026 04:07:14 GMT
+
+https://collider.com/shows-like-rivals-hulu/
+
+Fans of the hit Hulu series Rivals need to add shows like Apple TV's Your Friends & Neighbors, HBO's Industry, and AMC's Mad Men to their watchlist.
+---------
+
+# 10 Greatest Sci-Fi Thrillers of the Last 15 Years, Ranked
+
+Movie, Science Fiction, Gravity, Thriller, Bugonia
+
+Fri, 22 May 2026 04:05:13 GMT
+
+https://collider.com/best-sci-fi-thrillers-last-15-years-ranked/
+
+From major blockbusters like Nope to underrated gems like Predestination, these sci-fi thrillers are the greatest the genre has seen in recent years.
+---------
+
+# 'Back to the Future's Original Ending Was Much, Much Darker
+
+Movie Features, Back to the Future, Michael J. Fox, Robert Zemeckis, Christopher Lloyd
+
+Fri, 22 May 2026 03:58:11 GMT
+
+https://collider.com/back-to-the-future-original-ending-much-darker/
+
+Robert Zemeckis’ Back to the Future was supposed to involve an atomic bomb. So what happened?
+---------
+
+# 11 Years Later, This Stellar 7-Part Historical Drama Is Already Considered a Classic
+
+TV Features, Mad Men, AMC, Matthew Weiner, Jon Hamm
+
+Fri, 22 May 2026 03:04:14 GMT
+
+https://collider.com/mad-men-historical-drama-classic-tv-show/
+
+Mad Men is a groundbreaking historical drama renowned for its nuanced storytelling and remarkable performances, making it an instant classic.
+---------
+
+# 10 Most Thrilling Stephen King Books, Ranked
+
+Movie, The Stand, Stephen King, The Dark Tower, Misery
+
+Fri, 22 May 2026 03:03:14 GMT
+
+https://collider.com/thrilling-stephen-king-books-ranked/
+
+Plenty of classic Stephen King books are amazingly thrilling, including fast-paced reads like The Stand, The Dark Tower VII, and The Running Man.
+---------
+
 # One-Punch Man's Anime Has Become A Disaster To Its Fans But The Franchise Still Has Hope
 
 Anime, One-Punch Man
