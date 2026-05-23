@@ -1,3 +1,311 @@
+# The Boys Season 5 Rotten Tomatoes Officially Breaks All-Time Audience Score Record After Series Finale
+
+TV, The Boys, Prime Video
+
+Sat, 23 May 2026 20:32:58 GMT
+
+https://screenrant.com/the-boys-season-5-rotten-tomatoes-audience-score-record-update/
+
+After the series finale dropped on Prime Video, The Boys season 5 has officially set a Rotten Tomatoes record with its audience score.
+---------
+
+# The Mandalorian & Grogu Review: A Crowd-Pleaser With One Big Catch
+
+Movies, The Mandalorian and Grogu
+
+Sat, 23 May 2026 20:30:21 GMT
+
+https://screenrant.com/video/the-mandalorian-grogu-review-crowd-pleaser/
+
+The Mandalorian & Grogu review: Star Wars delivers a fun, fan-friendly big-screen adventure with Din Djarin, Grogu, action, nostalgia, and one major storytelling catch.
+---------
+
+# 2026 Is Going To Be The Isekai Renaissance Fans Aren't Ready For
+
+Anime, Isekai
+
+Sat, 23 May 2026 20:30:21 GMT
+
+https://screenrant.com/2026-isekai-renaissance-manga-adaptations/
+
+2026 will mark the biggest change in Isekai anime, as animation studios have rediscovered the potential of one of the most underrated subgenres.
+---------
+
+# Sheriff Country Season 2: Release Date, Story, & Everything We Know
+
+Network TV, Sheriff Country
+
+Sat, 23 May 2026 20:30:21 GMT
+
+https://screenrant.com/sheriff-country-season-2-explained/
+
+Sheriff Country was one of CBS's biggest hits during season 1, and now fans can look forward to what will be coming up next in season 2.
+---------
+
+# Batman: Arkham Knight Free Download Officially Available For Millions Right Now
+
+Gaming, Batman: Arkham Knight
+
+Sat, 23 May 2026 20:30:21 GMT
+
+https://screenrant.com/batman-arkham-knight-free-download-pc-game-pass-may-2026/
+
+Get ready to fight crime in Gotham City as Batman: Arkham Knight, the 2015 critically acclaimed game, is now available for free.
+---------
+
+# Taylor Sheridan's Best TV Show Is The One Everyone Forgets
+
+TV, Masked Recs
+
+Sat, 23 May 2026 20:22:19 GMT
+
+https://screenrant.com/taylor-sheridan-best-tv-show-willie-nelson-and-family/
+
+Taylor Sheridan now has too many TV shows to count, but his very best production for the small screen is a hugely underappreciated docuseries.
+---------
+
+# The Punisher’s MCU Comeback Has A Massive Villain Problem
+
+Movies, The Punisher: One Last Kill
+
+Sat, 23 May 2026 20:15:20 GMT
+
+https://screenrant.com/video/the-punisher-mcu-villain-problem/
+
+The Punisher’s MCU comeback faces a massive villain problem as Marvel struggles to find an enemy dangerous, personal, and grounded enough to make Frank Castle’s return truly matter.
+---------
+
+# 20 Years Later, These Are The 10 Best TV Shows That Debuted In 2006
+
+Classic TV
+
+Sat, 23 May 2026 20:15:20 GMT
+
+https://screenrant.com/best-shows-released-in-2006/
+
+The best TV shows that debuted in 2006, marking a shift towards the streaming era & introducing innovative, fantasy-infused content that redefined TV.
+---------
+
+# 10 Best Official Animal Crossing: New Horizons Custom Designs Ever
+
+Gaming, Animal Crossing New Horizons
+
+Sat, 23 May 2026 20:01:42 GMT
+
+https://screenrant.com/best-animal-crossing-custom-designs-acnh/
+
+Explore the best official custom designs in Animal Crossing: New Horizons, from Nintendo and other brands, available for free to enhance your island.
+---------
+
+# Dutton Ranch Review: Yellowstone’s Sequel Trades Chaos For Character
+
+TV, Dutton Ranch
+
+Sat, 23 May 2026 19:46:21 GMT
+
+https://screenrant.com/video/dutton-ranch-review-yellowstone-sequel/
+
+A gripping, character-driven Yellowstone sequel, Dutton Ranch swaps explosive chaos for emotional depth, delivering layered performances, family drama, Western intrigue, and a fresh neo-Western story fans of the Dutton universe won’t want to miss.
+---------
+
+# 5 Sci-Fi Shows That Did Star Wars Better Than Star Wars
+
+TV, Star Wars, Sci-Fi, Star Trek: Strange New Worlds
+
+Sat, 23 May 2026 20:30:13 GMT
+
+https://www.cbr.com/sci-fi-shows-better-than-star-wars-list/
+
+Star Wars' impact on sci-fi can't be overstated, but there are other great shows since then that are even better than the franchise.
+---------
+
+# Shailene Woodley Gives Encouraging Answer About Divergent Future After Canceled Last Movie
+
+Movies, Divergent
+
+Sat, 23 May 2026 20:20:55 GMT
+
+https://www.cbr.com/shailene-woodley-divergent-future-canceled-last-movie/
+
+The franchise was supposed to be the next The Hunger Games.
+---------
+
+# One Piece Officially Dethrones Dragon Ball, and Toei Animation Backs It Up
+
+Anime, Dragon Ball, One Piece, shonen anime, Toei Animation, Shonen
+
+Sat, 23 May 2026 20:15:14 GMT
+
+https://www.cbr.com/one-piece-dethrones-dragon-ball-toei-animation/
+
+One Piece slipped past Dragon Ball to become the most valuable Toei Animation franchise
+---------
+
+# 7 Years Later, Scary Stories to Tell in the Dark 2 Gets Some Bad News
+
+Movies, Scary Stories to Tell in the Dark
+
+Sat, 23 May 2026 20:09:24 GMT
+
+https://www.cbr.com/scary-stories-to-tell-in-the-dark-sequel-update/
+
+An unfortunate update is revealed for the long-awaited sequel to Scary Stories to Tell in the Dark.
+---------
+
+# Sigourney Weaver Explains Why Fan Theory About Her Mandalorian and Grogu Character Is 'Possible, but Unlikely'
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Sat, 23 May 2026 20:00:31 GMT
+
+https://www.cbr.com/sigourney-weaver-the-mandalorian-and-grogu-fan-theory-ward-spy/
+
+Star Wars newcomer and Hollywood icon Sigourney Weaver breaks down the harsh reality behind a fan-favorite film The Mandalorian and Grogu film theory
+---------
+
+# The Easiest Places To Grind In Pokémon Scarlet & Violet
+
+Games, Pokemon, Pokemon Scarlet and Violet, Video Games
+
+Sat, 23 May 2026 20:00:17 GMT
+
+https://www.cbr.com/pokemon-scarlet-violet-best-grinding-spots/
+
+Pokémon Scarlet and Violet's Paldea region is filled with wild Pokémon that are perfect for battling to grind experience and materials.
+---------
+
+# Bob Dylan's $140M Biopic Is Coming to HBO Max Next Week
+
+Movies, A Complete Unknown
+
+Sat, 23 May 2026 20:00:15 GMT
+
+https://www.cbr.com/bob-dylan-biopic-a-complete-unknown-hbo-max-may-2027/
+
+Discover the critically acclaimed biopic coming to streaming on HBO Max next week.
+---------
+
+# Solo Leveling Loses Big Time at the 2026 Crunchyroll Anime Awards
+
+Anime, Solo Leveling
+
+Sat, 23 May 2026 20:00:15 GMT
+
+https://www.cbr.com/solo-leveling-loser-crunchyroll-anime-awards-2026/
+
+Solo Leveling just lost 8 out of its 10 nominations at the Crunchyroll Anime Awards, providing its plethora of haters plenty of new bragging rights.
+---------
+
+# Absolute Clayface's First Look Is Faking Fans Out
+
+Comics, clayface, Absolute Batman
+
+Sat, 23 May 2026 20:00:15 GMT
+
+https://www.cbr.com/absolute-batman-absolute-clayface-first-look-confirmed/
+
+The Absolute Universe debut of this iconic villain has the world seeing double.
+---------
+
+# 5 Jedi Stronger Than Luke Skywalker, Ranked
+
+Movies, Star Wars
+
+Sat, 23 May 2026 20:00:15 GMT
+
+https://www.cbr.com/jedi-stronger-than-luke-skywalker-list/
+
+Luke Skywalker is the most famous Jedi in Star Wars, but there are still some others who outrank him in power.
+---------
+
+# 10 Perfect Fantasy Movies That Are About 90 Minutes Long
+
+Movie, Fantasy, The Princess Bride, Bridge to Terabithia, The Seventh Seal
+
+Sat, 23 May 2026 20:30:13 GMT
+
+https://collider.com/perfect-fantasy-movies-90-minutes-long/
+
+There are some incredible fantasy movies, like Bridge to Terabithia and The Princess Bride, that you can experience in just around 90 minutes.
+---------
+
+# Forget ‘Weapons,’ This Brutal Horror Rollercoaster Is Leaving Streaming Soon
+
+Movie News, Zach Cregger, Barbarian, Horror, Georgina Campbell
+
+Sat, 23 May 2026 20:30:13 GMT
+
+https://collider.com/zach-cregger-horror-rollercoaster-barbarian-leaving-streaming-netflix-june-2026/
+
+Barbarian, the modern horror classic that dealt viewers massive narrative surprises, is leaving its streaming home on Netflix. Find out when.
+---------
+
+# Taylor Sheridan’s Forgotten 2-Part Action Thriller Is a Paramount+ Hidden Gem
+
+TV Features, Lioness, Zoe Saldana, Nicole Kidman, Taylor Sheridan
+
+Sat, 23 May 2026 20:06:14 GMT
+
+https://collider.com/taylor-sheridan-lioness-hidden-gem-paramount-plus/
+
+Taylor Sheridan’s Lioness is one of Paramount+’s most underrated thrillers, led by a fierce Zoe Saldaña performance.
+---------
+
+# Netflix Loses This Infamous Blockbuster That Earned 14x Its Budget in 8 Days
+
+Movie News, Fifty Shades of Grey, Dakota Johnson, Jamie Dornan, Thriller
+
+Sat, 23 May 2026 20:00:16 GMT
+
+https://collider.com/thriller-blockbuster-fifty-shades-of-grey-leaving-netflix-june-2026/
+
+Fifty Shades of Grey, which earned over 14x its budget, is leaving its streaming home on Netflix soon. Here's everything you should know.
+---------
+
+# Marvel's 3-Part Sci-Fi Adventure Trilogy Is a Perfect Weekend Binge
+
+Movie Features, Spider-Man, Spider-Man 2, Spider-Man 3, Sci-Fi
+
+Sat, 23 May 2026 19:49:13 GMT
+
+https://collider.com/spider-man-trilogy-sam-raimi-perfect-weekend-binge/
+
+Sam Raimi's brilliant Spider-Man trilogy, starring Tobey Maguire, Kirsten Dunst, and Willem Dafoe, is the perfect weekend escape.
+---------
+
+# The 10 Best 'The Far Side' Comics That Went to Hell
+
+Movie Lists
+
+Sat, 23 May 2026 20:30:18 GMT
+
+https://movieweb.com/far-side-best-hell/
+
+Gary Larson visited Hell repeatedly throughout 'The Far Side's run, and these comics represent the absolute best of his infernal output.
+---------
+
+# 'Breaking Bad': 20 Facts That Change Everything You Knew
+
+Features, Breaking Bad
+
+Sat, 23 May 2026 20:01:41 GMT
+
+https://movieweb.com/breaking-bad-facts/
+
+AMC's 'Breaking Bad' is one of the biggest and best TV shows of all time, but even the most passionate fans don't know everything about it.
+---------
+
+# 16 Best South Indian Horror Movies to Watch
+
+Movie Lists, Horror
+
+Sat, 23 May 2026 20:01:41 GMT
+
+https://movieweb.com/best-south-indian-horror-movies/
+
+Horror cinema from South India is unlike any other, featuring a mix of action, comedy, and a healthy serving of folklore-inspired terrors.
+---------
+
 # Stephen Amell's New Reboot Of Iconic '90s Series Gets First Official Trailer For Baywatch
 
 TV, Baywatch
