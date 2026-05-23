@@ -1,3 +1,377 @@
+# Sonic Adventure Officially Returns With Stunning New Release
+
+Gaming, Sonic Adventure, Triple-A Games
+
+Sat, 23 May 2026 02:00:31 GMT
+
+https://screenrant.com/sonic-adventure-officially-returns-with-stunning-new-release/
+
+Sonic Adventure is one of those franchises that will never go away, in part because it has so many fans; which led to this new release.
+---------
+
+# After 8 Years, Toei Is Finally Telling The Dragon Ball Story Everyone Wants
+
+Anime, Dragon Ball
+
+Sat, 23 May 2026 02:00:31 GMT
+
+https://screenrant.com/dragon-ball-galactic-patrol-story-fans-want/
+
+It's been 8 long years since Dragon Ball fans have gotten an adaptation of Dragon Ball Super, and it looks like the wait is finally coming to an end.
+---------
+
+# Reacher’s Confirmed Return After 2026 Opens The Door For A Complete Genre Shift
+
+Streaming TV, Reacher
+
+Sat, 23 May 2026 01:45:20 GMT
+
+https://screenrant.com/reacher-prime-video-season-5-genre-shift/
+
+It has been confirmed that Prime Video’s Reacher will return for season 5 even after 2026, paving the way for the series to completely shift genres.
+---------
+
+# The Mandalorian & Grogu's Villains Explained: Imperials, Hutts, And More
+
+Star Wars, The Mandalorian and Grogu
+
+Sat, 23 May 2026 01:39:52 GMT
+
+https://screenrant.com/mandalorian-grogu-movie-villains-explained-imperial-warlords-hutt-twins-explained/
+
+The new Mandalorian & Grogu movie features a handful of Star Wars villains going up against Pedro Pascal's Din Djarin and his adopted son.
+---------
+
+# Disney's Best '90s Cartoon, Talespin, Is Officially Returning With New Modern Series
+
+Comics, TaleSpin, Disney
+
+Sat, 23 May 2026 01:30:19 GMT
+
+https://screenrant.com/talespin-return-best-disney-series/
+
+Fly higher
+---------
+
+# The 10 Most Anticipated Movies Releasing In June 2026, Ranked By Hype
+
+Movies
+
+Sat, 23 May 2026 01:30:19 GMT
+
+https://screenrant.com/most-anticipated-movies-june-2026-ranked-hype/
+
+While each upcoming movie has its own segment of excited fans, several June releases enjoy particularly uproarious hype going into the month.
+---------
+
+# Stephen King’s Returning 2026 Show Is Stranger Things With Higher Stakes & Less Plot Armor
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 01:15:20 GMT
+
+https://screenrant.com/stranger-things-the-institute-stephen-king-plot-armor/
+
+A Stephen King show that returns in 2026 comes off as the perfect Stranger Things replacement, but it has far higher stakes and a lot less plot armor.
+---------
+
+# Jujutsu Kaisen's Anime Still Hasn't Shown The Main Villain's Final Form, And It's A Masterpiece
+
+Anime, Jujutsu Kaisen
+
+Sat, 23 May 2026 01:00:20 GMT
+
+https://screenrant.com/jujutsu-kaisen-247-sukuna-cursed-technique-severed-hand/
+
+Jujutsu Kaisen's anime adaptation has shockingly still not revealed the main villains final form, and when the anime does it will be truly epic.
+---------
+
+# Apple TV’s Returning 10/10 Sci-Fi Will Turn Even More Dystopian In 2026
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 00:45:20 GMT
+
+https://screenrant.com/silo-season-3-more-dystopian/
+
+One of Apple TV’s best sci-fi shows is set to return soon in 2026, and its story details suggest it turn even more dystopian in its upcoming season 3.
+---------
+
+# 1 Year After Season 2's End, Solo Leveling Is Ready To Break Another Major Anime Record
+
+Anime, Solo Leveling
+
+Sat, 23 May 2026 00:30:20 GMT
+
+https://screenrant.com/solo-leveling-major-anime-record-crunchyroll-most-ratings/
+
+Solo Leveling is close to setting a new record on Crunchyroll, beating even One Piece, Jujutsu Kaisen, and Demon Slayer.
+---------
+
+# 7 Most Brutal Dragon Ball Fights, Ranked by Pure Destruction
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 23 May 2026 02:15:12 GMT
+
+https://www.cbr.com/most-destructive-dragon-ball-fights-ranked-list/
+
+Dragon Ball is filled with unforgettable fights, but some of these battles feature reckless destruction and unfathomable fallout!
+---------
+
+# 10 Times History Repeated Itself in Naruto
+
+Anime, Naruto, Naruto: Shippuden
+
+Sat, 23 May 2026 02:00:23 GMT
+
+https://www.cbr.com/naruto-anime-history-repeated-itself-list/
+
+Naruto Uzumaki's world is shaped by ancient cycles, and over the course of the franchise, there are times when history seems to repeat itself.
+---------
+
+# 5 Forgotten R-Rated Sci-Fi Movies That Are Perfect From Start to Finish
+
+Movies, Sci-Fi
+
+Sat, 23 May 2026 02:00:23 GMT
+
+https://www.cbr.com/forgotten-r-rated-sci-fi-movies-perfect-from-start-to-finish-list/
+
+R-rated sci-fi can redefine the genre when done right, but sometimes equally great movies often get forgotten.
+---------
+
+# Lawman: Bass Reeves Is the Best Sheridan-Produced Western Series
+
+TV, Western, Yellowstone, Lawmen: Bass Reeves
+
+Sat, 23 May 2026 02:00:23 GMT
+
+https://www.cbr.com/taylor-sheridan-lawman-bass-reeves-better-than-yellowstone/
+
+After creating the ultimate Western success with Yellowstone, Taylor Sheridan went on to produce an even better frontier story often missed by fans.
+---------
+
+# Gundam Officially Gets First-Ever Custom Mecha Collection Ahead of 50th Anniversary
+
+Anime, Mobile Suit Gundam, merchandise, Gundam
+
+Sat, 23 May 2026 02:00:23 GMT
+
+https://www.cbr.com/gundam-miximize-custom-figure-collection/
+
+This September, Bandai is unleashing a new line of Gundam figures that allow fans to build, mix and match to create incredible custom Gundam robots.
+---------
+
+# 5 Heaviest Anime of All Time
+
+Anime, Berserk, Happy Sugar Life
+
+Sat, 23 May 2026 01:45:12 GMT
+
+https://www.cbr.com/heaviest-anime-of-all-time-list/
+
+Anime can tell deeply hopeful and uplifting stories, but there's just as much of an appetite for bleak, depressing tales of woe, like in Berserk.
+---------
+
+# Colin Farrell's Mystery Drama Better Than True Detective Finally Returns
+
+TV, Sugar
+
+Sat, 23 May 2026 01:40:34 GMT
+
+https://www.cbr.com/colin-farrell-sugar-season-2-apple-tv-june-2026/
+
+The underappreciated detective drama starring Colin Farrell is finally returning with new episodes after a two-year wait.
+---------
+
+# 10 Smartest One Piece Characters, Ranked By Intelligence
+
+Anime, One Piece
+
+Sat, 23 May 2026 01:25:12 GMT
+
+https://www.cbr.com/smartest-one-piece-characters-ranked-list/
+
+From strategic masterminds to scientific geniuses, these One Piece characters prove that intelligence comes in many forms.
+---------
+
+# 10 Shonen Heroes Who Are Actually Well Written
+
+Anime, Shonen, Fullmetal Alchemist: Brotherhood, One Piece
+
+Sat, 23 May 2026 00:45:12 GMT
+
+https://www.cbr.com/best-written-shonen-heroes-of-all-time/
+
+Heroes in shonen anime can be shallow and genetic, yet these brilliantly written heroes go against the stereotypes.
+---------
+
+# Trump Celebrates Late Show Ending, Shares AI Video Confronting Colbert
+
+TV
+
+Sat, 23 May 2026 00:32:51 GMT
+
+https://www.cbr.com/trump-celebrates-stephen-colbert-late-show-ending/
+
+The President of the United States celebrates the end of The Late Show and shares an AI video of himself confronting Stephen Colbert.
+---------
+
+# 10 Near-Perfect Fantasy TV Shows Nobody Remembers
+
+TV, Lost Ollie, The Bastard Son & The Devil Himself, Gargoyles, Fantasy
+
+Sat, 23 May 2026 02:02:13 GMT
+
+https://collider.com/forgotten-fantasy-shows-near-perfect/
+
+Discover near-perfect fantasy shows that have been forgotten despite their impressive storytelling and world-building, from Gargoyles to Shahmaran.
+---------
+
+# 5 Years Later, Star Wars’ Most Divisive Spin-Off Series Is Taking Over Disney+
+
+TV News, The Book of Boba Fett, Disney+, Star Wars, The Mandalorian and Grogu
+
+Sat, 23 May 2026 02:00:24 GMT
+
+https://collider.com/disney-star-wars-spin-off-series-the-book-of-boba-fett-streaming-success-may-2026/
+
+The Book of Boba Fett, the Star Wars spin-off series featuring Temuera Morrison, has returned to the top 10 on Disney+ in the U.S.
+---------
+
+# 10 Years Later, This Stellar Crime Mystery With a 'Severance' Star Is Binge-Worthy From Start to Finish
+
+TV Features, Unforgettable, CBS, Britt Lower, Tawny Cypress
+
+Sat, 23 May 2026 01:55:13 GMT
+
+https://collider.com/unforgettable-britt-lower-crime-mystery-binge-watch/
+
+CBS series Unforgettable starred Severance actress Britt Lower before her breakout role. The fast-paced crime drama is a must-watch.
+---------
+
+# Agatha Christie Finally Returns With New Detective Series
+
+TV News, Poirot, Agatha Christie, Murder on the Orient Express, BBC
+
+Sat, 23 May 2026 01:45:13 GMT
+
+https://collider.com/greatest-detective-new-agatha-christie-adaptation-hercule-poirot-series-the-bbc-reboot/
+
+The BBC is reviving Agatha Christie's beloved detective in a major new television series, set to run for up to three seasons. Here's all to know.
+---------
+
+# Nicolas Cage's Latest Superhero Outing is a Hit With Critics
+
+TV News, Spider-Noir, Nicolas Cage, Prime Video, Spider-Man: Into The Spider-Verse
+
+Sat, 23 May 2026 01:30:13 GMT
+
+https://collider.com/nicolas-cage-sci-fi-detective-thriller-spider-noir-series-rotten-tomatoes-score-is-it-good/
+
+Critics are praising Nicolas Cage's new sci-fi detective series, Spider-Noir, which has garnered a near-perfect Rotten Tomatoes score.
+---------
+
+# 8 Scariest Movies of the Last 40 Years, Ranked
+
+Movie, Obsession, Horror, Tetsuo: The Iron Man, Hereditary
+
+Sat, 23 May 2026 01:14:14 GMT
+
+https://collider.com/scariest-movies-last-40-years-ranked/
+
+Ringu, Hereditary, and Obsession are all among the best and most purely terrifying horror movies released over the last 40 years.
+---------
+
+# The Highest-Grossing Sci-Fi Movie of 2026 Is Officially Getting a Sequel
+
+Movie News, The Super Mario Galaxy Movie, Keegan Michael Key, Nintendo, Sci-Fi
+
+Sat, 23 May 2026 01:01:13 GMT
+
+https://collider.com/2026-sci-fi-hit-super-mario-galaxy-movie-sequel-confirmed-toad-actor-keegan-michael-key/
+
+Super Mario Galaxy Movie star Keegan-Michael Key hints at a 2029 release date for the third installment in Nintendo's Mario movie franchise.
+---------
+
+# This Lost Stephen King Prequel Script Sounds Too Good to Stay Buried [Exclusive]
+
+Movie News, The Shining, Stephen King, André Ovredal, Passenger
+
+Sat, 23 May 2026 01:01:13 GMT
+
+https://collider.com/the-shining-prequel-script-overlook-hotel-andre-ovredal-stephen-king/
+
+Horror director André Øvredal reveals a Stephen King prequel he wrote, but he doesn't think it'll ever see the light of day. Read on for more.
+---------
+
+# 11 Years Later, This Underappreciated Fantasy Crime Drama Is Still One of the Best
+
+TV Features, Forever, ABC, Ioan Gruffudd, Judd Hirsch
+
+Sat, 23 May 2026 00:39:14 GMT
+
+https://collider.com/forever-underappreciated-fantasy-crime-drama-tv-show/
+
+A unique blend of fantasy and police procedural, Forever offers a fresh take on crime dramas following an immortal medical examiner in modern-day NYC.
+---------
+
+# James Bond Fans Can Officially Own a Piece of Franchise History for Just $9,400
+
+Movie News, James Bond, Daniel Craig, 007, Denis Villeneuve
+
+Sat, 23 May 2026 00:30:15 GMT
+
+https://collider.com/james-bond-return-007-first-light-video-game-omega-seamaster-watch/
+
+Agent 007 returns with a brand-new adventure, and fans can own a piece of James Bond history for just $9,400. Find out more.
+---------
+
+# 9 Perfect Netflix Miniseries With 6 Episodes or Less
+
+TV Lists, Netflix, TV Miniseries
+
+Sat, 23 May 2026 02:00:29 GMT
+
+https://movieweb.com/netflix-miniseries-perfect-six-episodes/
+
+Netflix has many incredible miniseries, and these true crime documentary and thriller series make a big impression with only six episodes or fewer.
+---------
+
+# Starz Cancels 'Spartacus: House of Ashur' After 1 Season
+
+TV News, Spartacus: House of Ashur, STARZ
+
+Sat, 23 May 2026 00:58:27 GMT
+
+https://movieweb.com/spartacus-house-of-ashur-starz/
+
+Starz's streaming Spartacus spin-off, 'Spartacus: House of Ashur,' will not continue on past its first season of work.
+---------
+
+# Nicolas Winding Refn's 'Maniac Cop' Reboot Movie Finally Happening
+
+Movie News, Maniac Cop, Nicolas Winding Refn
+
+Sat, 23 May 2026 00:32:49 GMT
+
+https://movieweb.com/maniac-cop-remake-nicolas-winging-refn/
+
+The filmmaker has tried to make the project happen for more than a decade.
+---------
+
+# Who Is Embo in 'The Mandalorian and Grogu' and Why His Inclusion Is a Missed Opportunity
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Sat, 23 May 2026 00:00:22 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-embo-dissapointment/
+
+The latest 'Star Wars' movie featured the 'Clone Wars' era character Embo, but ultimately struggled to justify his inclusion in the film.
+---------
+
 # Power Rangers' New Green Ranger Series Is Officially Here, And It's Epic
 
 Comics, Power Rangers
