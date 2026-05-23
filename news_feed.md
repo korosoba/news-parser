@@ -1,3 +1,267 @@
+# Spider-Noir Review: Nicolas Cage Makes Spider-Man Weird Again
+
+TV, Spider-Noir
+
+Sat, 23 May 2026 21:45:20 GMT
+
+https://screenrant.com/video/spider-noir-review-nicolas-cage-spider-man-weird/
+
+A stylish, surreal superhero noir, Spider-Noir turns Nicolas Cage loose in Marvel’s strangest live-action Spider-Man yet, blending pulpy detective vibes, brutal action, and psychological mystery into a bold reinvention of the web-slinger.
+---------
+
+# 10 Fantasy Shows With Perfect Worldbuilding
+
+Streaming TV
+
+Sat, 23 May 2026 21:45:20 GMT
+
+https://screenrant.com/fantasy-shows-with-perfect-worldbuilding/
+
+A look at the intricacies of worldbuilding in these 10 top-rated fantasy TV shows, from entirely new worlds to seemingly seamless storytelling.
+---------
+
+# The Batman 2’s Cast Reveal May Expose The REAL Villain
+
+Movies, The Batman Part II
+
+Sat, 23 May 2026 21:30:19 GMT
+
+https://screenrant.com/video/the-batman-2-cast-villain/
+
+A new cast reveal for The Batman Part II may have accidentally exposed the film’s true villain, hinting that Matt Reeves is hiding a far more dangerous mastermind behind Gotham’s latest mystery.
+---------
+
+# 5 Highest-Grossing Horror Movies Of 2026 So Far
+
+Movies, Horror
+
+Sat, 23 May 2026 21:30:19 GMT
+
+https://screenrant.com/highest-grossing-horror-movies-2026-so-far/
+
+There have already been a few horror movie blockbusters already in 2026, but which horror flicks from this year are the highest-grossing so far?
+---------
+
+# 10 One Piece Characters With Strongest Haki
+
+Anime, One Piece
+
+Sat, 23 May 2026 21:30:19 GMT
+
+https://screenrant.com/one-piece-characters-strongest-haki/
+
+The Final Saga just completely shattered the power scale. Explore the strongest Haki users in One Piece, from modern Emperors to ancient gods.
+---------
+
+# Val Kilmer’s AI Role May Be Hollywood’s Point Of No Return
+
+Movies, Artificial Intelligence
+
+Sat, 23 May 2026 21:15:20 GMT
+
+https://screenrant.com/video/val-kilmer-ai-role-hollywood-no-return/
+
+Explore the shocking reality behind Hollywood’s AI takeover, from digital actors and AI-generated scripts to the growing battle between studios, creatives, and the future of entertainment.
+---------
+
+# 10 Crime Movie Anti-Heroes Who Were Actually The Good Guys
+
+Classic Movies, Ranking, Crime
+
+Sat, 23 May 2026 21:15:20 GMT
+
+https://screenrant.com/crime-movie-antiheroes-who-were-good-guys/
+
+Crime movies often have viewers cheering for the bad guys, but there are often cases where these are anti-heroes and they were actually the good guys.
+---------
+
+# Steam Drops 8 New Free Games You Can Download And Keep Forever
+
+Gaming, Steam, Indie, Triple-A Games, PC
+
+Sat, 23 May 2026 21:00:20 GMT
+
+https://screenrant.com/steam-8-free-games-may-2026-download-keep-forever/
+
+Players can now enjoy eight new free games that have just been added to Steam, which they can download and keep forever in their libraries.
+---------
+
+# 10 Cheesy Sci-Fi Movies We Still Love
+
+Movies, Sci-Fi
+
+Sat, 23 May 2026 21:00:20 GMT
+
+https://screenrant.com/cheesy-scifi-movies-we-still-love/
+
+Though these 10 science fiction movies might be cheesy, they remain some of the most entertaining examples of the genre and we'll always love them.
+---------
+
+# 8 Clint Eastwood Western Movies That Are Still Perfect Masterpieces Today
+
+Movies, Clint Eastwood
+
+Sat, 23 May 2026 20:45:21 GMT
+
+https://screenrant.com/clint-eastwood-western-movies-perfect-masterpieces/
+
+Clint Eastwood is an icon of the western genre, and these 8 classic movies are still perfect masterpieces to this day.
+---------
+
+# The Hunting Wives Finally Gets Update From Lead Star With Season 3 Tease
+
+TV, The Hunting Wives
+
+Sat, 23 May 2026 21:28:23 GMT
+
+https://www.cbr.com/the-hunting-wives-season-2-wrapped-dermot-mulroney/
+
+The series is officially moving to Netflix.
+---------
+
+# 10 Saddest Naruto Backstories Ranked by Pure Trauma
+
+Anime, Naruto, Naruto: Shippuden, shonen anime
+
+Sat, 23 May 2026 21:15:13 GMT
+
+https://www.cbr.com/saddest-naruto-backstories-pure-trauma/
+
+Naruto has some of the most heart wrenching character backstories in all of anime.
+---------
+
+# What's Coming to HBO Max in June 2026? Everything Arriving Next Month
+
+TV, HBO Max
+
+Sat, 23 May 2026 21:05:07 GMT
+
+https://www.cbr.com/what-coming-hbo-max-june-2026-full-list/
+
+Summer is almost here, and HBO Max is getting ready for the perfect easy-to-binge during the hotter months.
+---------
+
+# 5 Best The Silmarillion Stories for Peter Jackson's Next LOTR Movie
+
+Movies, The Lord of the Rings, The Hobbit, peter jackson
+
+Sat, 23 May 2026 21:00:13 GMT
+
+https://www.cbr.com/best-silmarillion-stories-next-peter-jackson-lotr-movie-list/
+
+Peter Jackson is negotiating with the Tolkien Estate to adapt The Silmarillion, and these parts of the novel would be perfect for the silver screen.
+---------
+
+# 10 Classic Sci-Fi TV Shows Still Worth Binge-Watching Today
+
+TV, Sci-Fi, The Twilight Zone, Farscape, Cowboy Bebop
+
+Sat, 23 May 2026 21:41:14 GMT
+
+https://collider.com/classic-sci-fi-shows-worth-binge-watching-today/
+
+Discover classic sci-fi TV shows with timeless stories that are still worth binge-watching today, from The Twilight Zone to Farscape.
+---------
+
+# Say Goodbye to the Greatest Sci-Fi Sequel of the Decade
+
+Movie News, Blade Runner 2049, Ryan Gosling, Denis Villeneuve, Harrison Ford
+
+Sat, 23 May 2026 21:30:13 GMT
+
+https://collider.com/greatest-sci-fi-sequel-of-the-decade-blade-runner-2049-leaving-netflix-june-2026/
+
+Denis Villeneuve's landmark sci-fi sequel, Blade Runner 2049, is leaving Netflix soon. Find out how long you have left to watch it.
+---------
+
+# 4 Near-Perfect Classic Rock Songs That Broke Every Rule by Becoming Masterpieces
+
+Music Features, Queen, Freddie Mercury, David Bowie, Led Zeppelin, Rock, Music
+
+Sat, 23 May 2026 21:24:35 GMT
+
+https://collider.com/queen-david-bowie-led-zeppelin-the-doors-classic-rock-songs/
+
+Queen, David Bowie, Led Zeppelin, and The Doors broke every rule in rock music to create timeless classic rock anthems that changed music forever.
+---------
+
+# 'Dune: Part Two's Most Ambitious Scene Has a Deeper Meaning
+
+Movie Features, Dune: Part Two, Dune: Part Three, Dune: Prophecy, Dune
+
+Sat, 23 May 2026 21:15:13 GMT
+
+https://collider.com/dune-2-best-scene-feyd-rautha-jom-gabbar-margot/
+
+The scene between Feyd-Rautha and Lady Margot highlights an underrated aspect of Dune: Part Two that reveals more about the Bene Gesserit.
+---------
+
+# 24 Years Later, Steven Spielberg’s Slickest Crime Thriller Is Leaving Streaming
+
+Movie News, Catch Me If You Can, Tom Hanks, Leonardo DiCaprio, Steven Spielberg
+
+Sat, 23 May 2026 21:15:13 GMT
+
+https://collider.com/steven-spielberg-leonardo-dicaprio-tom-hanks-crime-thriller-catch-me-if-you-can-leaving-netflix-june-2026/
+
+Steven Spielberg's modern comedy classic Catch Me If You Can, starring Leonardo DiCaprio and Tom Hanks, is leaving Netflix soon. Find out when.
+---------
+
+# Forget 'Ted Lasso' — Apple TV+'s 8-Part Comedy Is One of Its Best Series Yet
+
+TV Features, Margo's Got Money Troubles, Elle Fanning, Nick Offerman, Michelle Pfieffer
+
+Sat, 23 May 2026 21:05:14 GMT
+
+https://collider.com/apple-tv-best-comedy-margos-got-money-troubles/
+
+Margo's Got Money Troubles is the newest Ted Lasso replacement, a comedy full of laughter and tears.
+---------
+
+# 7 Years Later, Dwayne Johnson’s Crowd-Pleasing Fantasy Epic Is a Streaming Hit Again
+
+Movie News, Dwayne Johnson, Jumanji: The Next Level, Hulu, Streaming
+
+Sat, 23 May 2026 21:00:13 GMT
+
+https://collider.com/dwayne-johnson-fantasy-epic-jumanji-the-next-level-streaming-success-hulu-may-2026/
+
+Dwayne Johnson's $800 million blockbuster is a streaming hit ahead of the next installment. Read on for more details.
+---------
+
+# Forget 'Baby Reindeer,' HBO's New 6-Part Drama Miniseries Is a Masterpiece From Start to Finish
+
+TV Features, Half Man, Jamie Bell, HBO, Drama
+
+Sat, 23 May 2026 20:47:14 GMT
+
+https://collider.com/half-man-hbo-richard-gadd-drama-miniseries-masterpiece/
+
+With alternating timelines and haunting authenticity, Richard Gadd's new HBO drama Half Man is a must-watch.
+---------
+
+# The 'Lord of the Rings' Story Stephen Colbert Wanted To Make Is Happening in 'The Rings of Power'
+
+Features, The Lord of the Rings: The Rings of Power, Stephen Colbert, The Lord of the Rings, Upcoming Tease
+
+Sat, 23 May 2026 21:30:19 GMT
+
+https://movieweb.com/lord-of-the-rings-numenor-stephen-colbert/
+
+Giant 'Lord of the Rings' nerd Stephen Colbert has wanted to see this major Tolkien event on-screen for years.
+---------
+
+# Netflix's Sci-Fi Series ‘The Boroughs’ Officially Marks the End of an Era
+
+Features, The Boroughs, Netflix, Matt Duffer, Ross Duffer
+
+Sat, 23 May 2026 21:00:19 GMT
+
+https://movieweb.com/the-boroughs-netflix-duffer-brothers-era/
+
+'The Boroughs,' the new sci-fi series executive-produced by the Duffer Brothers, is the last project the 'Stranger Things' creators have at Netflix.
+---------
+
 # The Boys Season 5 Rotten Tomatoes Officially Breaks All-Time Audience Score Record After Series Finale
 
 TV, The Boys, Prime Video
