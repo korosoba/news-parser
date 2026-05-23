@@ -1,3 +1,278 @@
+# Netflix's 10 Most Watched 2026 Movies (So Far)
+
+New Movies, Netflix
+
+Sat, 23 May 2026 16:55:22 GMT
+
+https://screenrant.com/netflix-movies-2026-most-watched/
+
+Netflix keeps releasing new movies, and many of them become major streaming hits. These are the 10 most-watched Netflix originals from 2026.
+---------
+
+# Netflix's 2-Part 'Game Of Thrones Meets Harry Potter' Is One Of Its Best High Fantasy Shows
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 16:52:23 GMT
+
+https://screenrant.com/shadow-and-bone-netflix-game-of-thrones-meets-harry-potter-fantasy/
+
+The gritty intrigue of Game of Thrones gets injected into a dark inversion of Hogwarts in this criminally underrated Netflix fantasy TV show.
+---------
+
+# 10 Greatest MCU Moments Where Heroes Fought Each Other, Ranked
+
+Classic Movies, Marvel Cinematic Universe, Ranking
+
+Sat, 23 May 2026 16:40:20 GMT
+
+https://screenrant.com/best-mcu-heroes-fight-scenes-ranked/
+
+There have been several massive hero vs. hero battles in the MCU, and here are the best of the times that the good guys fought each other.
+---------
+
+# One Kiss Just Destroyed X-Men's Most Popular Couple Of All Time
+
+Marvel Comics, X-Men, Captain Marvel
+
+Sat, 23 May 2026 16:30:22 GMT
+
+https://screenrant.com/x-men-new-romance-gambit-captain-marvel-kiss/
+
+Marvel's most iconic romantic couple breaks up with an unexpected kiss that creates a new love triangle between two X-Men and an Avenger.
+---------
+
+# American Horror Story Season 13's Coven Return Promises An 8-Year Mystery Will Be Solved
+
+Streaming TV, American Horror Story
+
+Sat, 23 May 2026 16:30:22 GMT
+
+https://screenrant.com/american-horror-story-season-13-coven-return-antichrist-mystery/
+
+American Horror Story season 13 is a continuation of season 3, Coven, and thanks to that, it can finally solve the show's biggest mystery.
+---------
+
+# GTA 6 Fans Getting Anxious Given New Pre-Order Info
+
+Gaming, Grand Theft Auto 6, PC
+
+Sat, 23 May 2026 16:30:22 GMT
+
+https://screenrant.com/gta-6-pre-order-trailer-3-fan-reaction/
+
+Grand Theft Auto 6 pre-orders could open up worldwide at any moment, but fans are starting to get anxious after a recent announcement.
+---------
+
+# New Maniac Cop Remake Sets Revival Next Year After Years In Development
+
+Movies, Maniac Cop
+
+Sat, 23 May 2026 16:26:11 GMT
+
+https://screenrant.com/maniac-cop-remake-movie-filming-start-development-report/
+
+A twisted and violent cult favorite 1980s/90s action-horror franchise is officially being revived by the award-winning director of Drive.
+---------
+
+# Quentin Tarantino Told Brad Pitt He’d Be “Dead In This Business” During Heated On-Set Moment
+
+Movies, Once Upon a Time in Hollywood, Brad Pitt, Quentin Tarantino
+
+Sat, 23 May 2026 16:24:18 GMT
+
+https://screenrant.com/quentin-tarantino-brad-pitt-ouatih-set-heated-moment-bruce-dern/
+
+Once Upon a Time in Hollywood actor Bruce Dern recalled when Quentin Tarantino and Brad Pitt got into a tense confrontation while filming a scene.
+---------
+
+# Tuner's Final Scene Highlights Just How Much Of A Music Moment Modern Movies Are Having
+
+Movies, Tuner
+
+Sat, 23 May 2026 16:20:21 GMT
+
+https://screenrant.com/tuner-movie-music-scene-op-ed/
+
+Tuner's ending is one of the most powerful scenes in the film, and part of a recent trend in terrific modern musical moments in movies.
+---------
+
+# Disney+'s Longest-Running TV Show Isn't What You Expect
+
+TV, Disney+, Masked Recs
+
+Sat, 23 May 2026 16:20:21 GMT
+
+https://screenrant.com/disney-plus-longest-running-show-unexpected/
+
+Disney+ has launched some very popular shows, like The Mandalorian and Percy Jackson, but the one that lasted the longest will likely surprise you.
+---------
+
+# Frank Grillo's Forgotten 3-Part Sports Drama With 97% RT Audience Score Gets Reunion Tease From Star
+
+TV, Tulsa King, Sheriff Country, Fire Country, Kingdom
+
+Sat, 23 May 2026 16:51:30 GMT
+
+https://www.cbr.com/frank-grillo-forgotten-3-part-sports-drama-kingdom-gets-reunion-tease/
+
+It sounds closer to happening than not, and that has Frank Grillo fans excited.
+---------
+
+# Fire Country Star Addresses Major Season 4 Exit & Season 5 Tease
+
+TV, Fire Country
+
+Sat, 23 May 2026 16:47:42 GMT
+
+https://www.cbr.com/fire-country-max-thieriot-season-5-tease/
+
+One of the co-creators and stars of Fire Country opens up about what fans can expect in Season 5 after Season 4's multiple major shakeups.
+---------
+
+# Bruce Campbell's 38-Year-Old Cult Horror Getting a 'Resurrection'
+
+Movies, Maniac Cop
+
+Sat, 23 May 2026 16:41:17 GMT
+
+https://www.cbr.com/maniac-cop-nicolas-winding-refn-reboot-official/
+
+A Bruce Campbell slasher movie from the 1980s is officially getting a "resurrection."
+---------
+
+# Stargate SG-1's 'Window of Opportunity' Remains a 10/10 Sci-Fi Gem
+
+TV, Stargate SG-1, Sci-Fi
+
+Sat, 23 May 2026 16:30:14 GMT
+
+https://www.cbr.com/stargate-sg-1-greatest-richard-dean-anderson-episode-sci-fi-gem/
+
+Stargate SG-1 offers many fun episodes, but the show's best one, starring Richard Dean Anderson, features a fantastic time-loop story.
+---------
+
+# All 7 Chronicles of Narnia Books In Chronological Order
+
+Movies, The Chronicles of Narnia, Fantasy, books
+
+Sat, 23 May 2026 16:30:14 GMT
+
+https://www.cbr.com/chronicles-of-narnia-books-chronological-order-list/
+
+Although the books from The Chronicles of Narnia weren't published in chronological order, they should be read that way.
+---------
+
+# 10 Anime Transformations That Were Basically Emotional Breakdowns
+
+Anime, Shonen, Digimon, Demon Slayer: Kimetsu no Yaiba
+
+Sat, 23 May 2026 16:15:13 GMT
+
+https://www.cbr.com/anime-transformations-emotional-breakdowns/
+
+The strongest transformations usually require a character reaching their emotional limit.
+---------
+
+# AMC's Silicon Valley Replacement The Audacity Unveils Intoxicating Clip 1 Week Before Season Finale
+
+TV, The Audacity
+
+Sat, 23 May 2026 16:00:13 GMT
+
+https://www.cbr.com/amc-the-audacity-season-1-clip/
+
+EXCLUSIVE: CBR unveils a new clip from The Audacity Episode 7, which has Zach Galifianakis and Billy Magnussen at odds again.
+---------
+
+# Superman/Spider-Man Writer Calls Out Lawyers for 'Dumb F--king Notes' During Comic Reviews
+
+Comics, Marvel, Superman, SpiderMan, DC Comics
+
+Sat, 23 May 2026 16:00:13 GMT
+
+https://www.cbr.com/matt-fraction-superman-spider-man-lawyer-notes-comments/
+
+As Marvel and DC collaborate on a crossover event, the creative process becomes fraught with 'dumb f***ing notes' from corporate lawyers.
+---------
+
+# Lex Lang Confirms a Major Truth About Suguru Geto and Kenjaku
+
+CBR Exclusives, Jujutsu Kaisen
+
+Sat, 23 May 2026 15:57:45 GMT
+
+https://www.cbr.com/lex-lang-key-difference-between-suguru-geto-and-kenjaku/
+
+The Jujutsu Kaisen star breaks down key moments in the anime that showcase the stark contrast between the two characters.
+---------
+
+# 10 Most Entertaining Movies of the 2010s, Ranked
+
+Movie, Parasite, Inception, The Social Network, Once Upon a Time in Hollywood
+
+Sat, 23 May 2026 16:52:16 GMT
+
+https://collider.com/most-entertaining-movies-2010s-ranked/
+
+From chaotic brilliance of Mad Max: Fury Road to the mind-bending Inception, these 2010s films never let the energy drop.
+---------
+
+# 8 Classic Martial Arts Movies With 10/10 Action From Start To Finish
+
+Movie, Martial Arts, Action, Bloodsport, Drunken Master II
+
+Sat, 23 May 2026 16:36:13 GMT
+
+https://collider.com/classic-martial-arts-movies-with-1010-action-from-start-to-finish/
+
+From Enter the Dragon to Ip Man, these martial arts classics still deliver harder hits than modern action movies.
+---------
+
+# 17 Years Later, Jason Voorhees Is Officially Back
+
+Movie News, Friday the 13th, Horror, Slasher
+
+Sat, 23 May 2026 16:17:28 GMT
+
+https://collider.com/friday-the-13th-jason-voorhees-dead-by-daylight-new-killer/
+
+Jason Voorhees will officially reunite with Freddy Krueger as the hockey-masked killer finally joins Dead by Daylight. Read on for more.
+---------
+
+# Forget ‘Reacher,’ Prime Video Has a New Blockbuster Alternative Taking Over the World
+
+Movie News, Tom Clancy's Jack Ryan: Ghost War, Tom Clancy's Jack Ryan, Prime Video, John Krasinski
+
+Sat, 23 May 2026 16:15:14 GMT
+
+https://collider.com/tom-clancy-jack-ryan-ghost-war-prime-video-reacher-replacement-streaming-hit-may-2026/
+
+Prime Video’s Jack Ryan: Ghost War is taking off globally, giving action fans a blockbuster new alternative to Reacher.
+---------
+
+# Season 2 of Netflix's Live-Action 'Avatar: The Last Airbender' Releases Soon
+
+Features, Avatar: The Last Airbender, Netflix, Fantasy
+
+Sat, 23 May 2026 16:00:19 GMT
+
+https://movieweb.com/netflix-avatar-the-last-airbender-season-2-fantasy-streaming-june/
+
+After two years, Netflix's live-action 'Avatar: The Last Airbender' series returns to streaming in June 2026.
+---------
+
+# 'Sands of Iwo Jima': John Wayne's Greatest Non-Western Is a Classic War Movie Masterpiece
+
+Features, John Wayne, War, Cultural Reassessment
+
+Sat, 23 May 2026 16:00:19 GMT
+
+https://movieweb.com/john-wayne-sands-of-iwo-jima/
+
+John Wayne is mostly remembered for his Western movies, but with such a legendary career, he starred in plenty of other films, too.
+---------
+
 # 5 DC Characters More Powerful Than Darkseid, Ranked
 
 Movies, DC Universe, Darkseid
