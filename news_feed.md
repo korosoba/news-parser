@@ -1,3 +1,278 @@
+# Red Dead Redemption 2 Free DLC Available For 48 Hours
+
+Gaming, Red Dead Redemption, Red Dead Online, Red Dead Redemption 2
+
+Sat, 23 May 2026 04:30:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-freebie-48-hours-to-claim/
+
+Rockstar are back with their latest set of releases for Red Dead Redemption 2, and there's definitely some items you'll want to grab.
+---------
+
+# Steam Drops Brand-New Free RPG With 100% Positive Reviews
+
+Gaming, Steam
+
+Sat, 23 May 2026 04:00:30 GMT
+
+https://screenrant.com/steam-free-horror-rpg-high-rated-2026/
+
+Check out this truly unique, hand-painted psychological horror game on Steam this weekend: it’s absolutely free to add to your library permanently.
+---------
+
+# The Real Meaning Behind The Ending Of Alexandra Daddario & Ashley Park's New Movie Couples Weekend
+
+Movies, Couples Weekend
+
+Sat, 23 May 2026 03:59:59 GMT
+
+https://screenrant.com/couples-weekend-ending-meaning-alexandra-daddario-ashley-park-nora-kirkpatrick/
+
+Exclusive: The stars of Couples Weekend Alexandra Daddario and Ashley Park offer their opinions regarding the film's ambiguous ending.
+---------
+
+# Naruto's Next Anime Is Threatening To Kill The Original Series' Most Controversial Character
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Sat, 23 May 2026 03:50:11 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-anime-kill-sasuke/
+
+With the very soul of one of Naruto's most iconic characters caught in the balance, future arcs of its next anime will need to tread carefully.
+---------
+
+# The Mandalorian & Grogu's New Razor Crest Explained (And What Happened To The N-1)
+
+Star Wars, The Mandalorian and Grogu
+
+Sat, 23 May 2026 03:37:13 GMT
+
+https://screenrant.com/mandalorian-grogu-new-razor-crest-explained-what-happened-to-n1/
+
+The Mandalorian & Grogu gives Pedro Pascal's Din Djarin his old ship from the first two seasons of The Mandalorian series (but what about the N-1?)
+---------
+
+# Netflix’s New R-Rated Fantasy Remake Debuts To 18% Score On Rotten Tomatoes
+
+Movies, Masked Recs
+
+Sat, 23 May 2026 03:16:17 GMT
+
+https://screenrant.com/ladies-first-netflix-rotten-tomatoes-score-debut/
+
+Netflix's new R-rated fantasy remake of a notable French movie debuts to a staggeringly low 18% score from critics on Rotten Tomatoes.
+---------
+
+# 8 Near-Perfect Fantasy Shows That Make Game Of Thrones Look Small
+
+Classic TV, Game Of Thrones
+
+Sat, 23 May 2026 03:15:21 GMT
+
+https://screenrant.com/fantasy-shows-make-game-of-thrones-look-small/
+
+Game of Thrones is understandably hailed as the biggest fantasy TV show of all time, but there are plenty of other immersive titles worth a watch.
+---------
+
+# Forget Silo, Station Eleven’s True Replacement Adapts A Book That Inspired Stephen King Forget Silo, Station Eleven’s True Replacement Adapts A Book That Inspired Stephen King
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 03:00:39 GMT
+
+https://screenrant.com/earth-abides-station-eleven-silo-stephen-king/
+
+Apple TV’s Silo’s great, but Station Eleven’s true post-apocalyptic replacement is based on a book that also inspired one of Stephen King’s best works
+---------
+
+# Martin Scorsese's Mandalorian And Grogu Character & Secret Star Wars Connections Explained
+
+Star Wars, The Mandalorian and Grogu, Martin Scorsese
+
+Sat, 23 May 2026 02:35:05 GMT
+
+https://screenrant.com/martin-scorsese-mandalorian-grogu-character-hugo-durant-star-wars-explained/
+
+Martin Scorsese plays one of The Mandalorian & Grogu's best new characters (who also has secret connections to the greater Star Wars galaxy).
+---------
+
+# Netflix's 8-Episode Dark Comedy Thriller Is A Surprisingly Addictive Mystery Hit
+
+Anime, Netflix
+
+Sat, 23 May 2026 02:30:19 GMT
+
+https://screenrant.com/netflix-dark-comedy-thriller-killer-paradox-addictive-binge/
+
+Some truly exceptional talent heads this 8-episode thriller exploring vigilantism and what one should do when evil faces impunity.
+---------
+
+# Jujutsu Kaisen Star Sues TikTok Over 188 Unauthorized Videos in First-Ever AI Voice Cloning Lawsuit
+
+Anime, Jujutsu Kaisen, TikTok, Shonen Jump
+
+Sat, 23 May 2026 05:23:40 GMT
+
+https://www.cbr.com/jujutsu-kaisen-kenjiro-tsuda-tiktok-ai-voice-cloning-lawsuit/
+
+The Jujutsu Kaisen, Yu-Gi-Oh! star is suing TikTok in the first-ever AI lawsuit over the illegal imitation of his voice in nearly 200 videos.
+---------
+
+# 10 Darkest Westerns of the Last 50 Years, Ranked
+
+Movies, Western, Unforgiven, No Country for Old Men
+
+Sat, 23 May 2026 03:45:14 GMT
+
+https://www.cbr.com/darkest-western-movies-last-50-years-list/
+
+These modern Western masterpieces are the ultimate examples of the genre at its absolute darkest.
+---------
+
+# 10 Best Anime Characters Who Deserved Their Own Spinoff
+
+Anime, One Piece, Dragon Ball, Chainsaw Man, Jujutsu Kaisen
+
+Sat, 23 May 2026 03:45:14 GMT
+
+https://www.cbr.com/best-anime-characters-deserve-spinoffs-list/
+
+These beloved anime side characters are so popular that fans still want to see them given their own spin-off series.
+---------
+
+# Dean Winchester's Greatest Supernatural Quote is Still Undisputed
+
+TV, Supernatural
+
+Sat, 23 May 2026 03:30:13 GMT
+
+https://www.cbr.com/supernatural-dean-winchester-greatest-quote/
+
+Dean Winchester’s confession in this Season 13 episode revealed the true cost of hunting and foreshadowed how Supernatural would finally end.
+---------
+
+# Near-Perfect High Fantasy Games That No One Remembers
+
+Games, Fantasy, Fable III, God of War: Ghost of Sparta
+
+Sat, 23 May 2026 03:15:12 GMT
+
+https://www.cbr.com/near-perfect-forgotten-high-fantasy-games/
+
+High fantasy has been dominating the video game landscape for the last few years, but standouts like Fable III and Arx Fatalis have been lost to time.
+---------
+
+# All Episodes of The Phantom's Forgotten Animated Series Streaming for Free
+
+TV, Phantom 2040
+
+Sat, 23 May 2026 03:11:24 GMT
+
+https://www.cbr.com/phantom-2040-streaming-free-youtube/
+
+The hidden gem series is streaming for three over three decades after ending its run on television.
+---------
+
+# Official Choose Your Own Adventure Series Launches New Sci-Fi Adventure
+
+Comics, oni press, Sci-Fi
+
+Sat, 23 May 2026 03:00:13 GMT
+
+https://www.cbr.com/choose-your-own-adventure-space-and-beyond-comic-book-release-date/
+
+Oni Press' upcoming sci-fi comic puts the reader in control of the story.
+---------
+
+# 5 Fantasy Anime That Changed the Genre Forever
+
+Anime, Slayers, Sword Art Online
+
+Sat, 23 May 2026 02:45:13 GMT
+
+https://www.cbr.com/fantasy-anime-that-changed-the-genre-forever/
+
+Anime has a lot of love for fantasy stories, but titles like Slayers, Berserk, and Sword Art Online helped break new ground and push the genre forward
+---------
+
+# It's Official, Dune: Part Three Is Already the Sci-Fi Movie Event of the Decade
+
+Movies, Dune: Part Three, zendaya, Sci-Fi
+
+Sat, 23 May 2026 02:45:13 GMT
+
+https://www.cbr.com/dune-part-three-sci-fi-movie-event-of-the-decade/
+
+Denis Villeneuve's third Dune installment is set to serve as the definitive Return of the King for the 2020s.
+---------
+
+# 10 Greatest Fantasy Movie Masterpieces of the Last 80 Years, Ranked
+
+Movie, The Princess Bride, Ugetsu, Harry Potter and the Prisoner of Azkaban, Fantasy
+
+Sat, 23 May 2026 04:08:13 GMT
+
+https://collider.com/best-fantasy-movie-masterpieces-last-80-years-ranked/
+
+The past 80 years have produced some of the all-time best fantasy movies in the cinema, including gems like The Princess Bride and Pan's Labyrinth.
+---------
+
+# ‘For All Mankind’ Just Nailed the Most Important Moment of Season 5 Ahead of the Finale
+
+TV Features, For All Mankind, Apple TV, Ronald Moore, Science Fiction
+
+Sat, 23 May 2026 04:02:15 GMT
+
+https://collider.com/for-all-mankind-season-5-episode-9-alex-baldwin-avery-jarrett-stevens-meeting/
+
+For All Mankind Season 5's long-awaited first meeting between Alex Baldwin and Avery Jarrett sets the stage for the finale.
+---------
+
+# This '90s Cult-Classic Fantasy Thriller Deserves a Revival More Than 'The X-Files'
+
+TV Features, Millennium, Lance Henriksen, Chris Carter, Sci-Fi
+
+Sat, 23 May 2026 03:41:13 GMT
+
+https://collider.com/millenium-x-files-cult-classic-tv-deserves-revival/
+
+Similar to The X-Files, the cult-classic thriller Millennium deserves a revival for a modern audience that enjoys fantasy and the paranormal.
+---------
+
+# 10 Thriller Movies That Will Disturb You From Start to Finish
+
+Movie, Zodiac, Dead Ringers, Straw Dogs, Lost Highway
+
+Sat, 23 May 2026 03:09:15 GMT
+
+https://collider.com/thriller-movies-disturbing-from-start-to-finish/
+
+If you're after consistently engaging and disturbing thrillers, it's worth watching masterpieces like Memories of Murder, Straw Dogs, and Zodiac.
+---------
+
+# Apple TV's Stephen King Replacement Is So Good You'll Finish It In One Sitting
+
+TV Features, Widow's Bay, Stephen King, Apple TV, Horror
+
+Sat, 23 May 2026 03:07:16 GMT
+
+https://collider.com/widows-bay-stephen-king-replacement-apple-tv/
+
+Apple TV's Widow's Bay is a spiritual successor to Stephen King's horror stories, full of quirky characters in a small, haunted town in Maine.
+---------
+
+# HBO’s ‘Band of Brothers’ Has One Episode That’s Almost Impossible To Rewatch 24 Years Later
+
+TV Features, Band of Brothers, HBO, Tom Hanks, Steven Spielberg
+
+Sat, 23 May 2026 02:44:14 GMT
+
+https://collider.com/hbo-band-of-brothers-miniseries-why-we-fight-episode-9-hard-to-watch/
+
+HBO’s Band of Brothers remains a WWII masterpiece, but Episode 9, “Why We Fight,” is even harder to watch 24 years later.
+---------
+
 # Sonic Adventure Officially Returns With Stunning New Release
 
 Gaming, Sonic Adventure, Triple-A Games
