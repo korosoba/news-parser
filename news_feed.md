@@ -1,3 +1,234 @@
+# All 3 Actors Playing Harry Bosch In 2026
+
+Streaming TV, Bosch, Ballard, Bosch: Start of Watch
+
+Sat, 23 May 2026 22:30:19 GMT
+
+https://screenrant.com/harry-bosch-actors-ballard-start-of-watch-2026/
+
+Harry Bosch is back on Prime Video in no fewer than three different guises in 2026, with some rising stars taking on the role for the first time.
+---------
+
+# Fans Of Widow's Bay Need To Watch This 3 Part Series That's The Perfect Weekend Binge
+
+Streaming TV, Widow's Bay, Stan Against Evil
+
+Sat, 23 May 2026 22:30:19 GMT
+
+https://screenrant.com/fans-of-widows-bay-need-to-watch-this-3-part-series-thats-the-perfect-weekend-binge/
+
+With a little more snark and a lot more gore than Widow's Bay, this horror comedy will make you laugh, and may make you puke.
+---------
+
+# 8 Star Wars TV Shows That No One Remembers
+
+TV, Star Wars
+
+Sat, 23 May 2026 22:12:21 GMT
+
+https://screenrant.com/star-wars-tv-shows-forgotten/
+
+Star Wars is one of the world's largest screen franchises with dozens of TV shows, so it's no wonder a few of them have been forgotten about.
+---------
+
+# 7 Harsh Realities Of Watching The Lost Series Finale, 16 Years Later
+
+Classic TV, Lost
+
+Sat, 23 May 2026 22:03:19 GMT
+
+https://screenrant.com/lost-series-finale-rewatch-harsh-realities/
+
+The ending of Lost remains among the most famous finales in TV history, but rewatching the episode 16 years later brings up some harsh realities.
+---------
+
+# 15 Strongest Anime Characters Of All Time
+
+Anime
+
+Sat, 23 May 2026 22:00:21 GMT
+
+https://screenrant.com/strongest-anime-characters-ranked/
+
+With so much combat-focused content in anime, it’s no surprise that debates about who is the strongest anime character are a staple of the fandom.
+---------
+
+# The Boys Finale Wasted Its Biggest Homelander Moment
+
+TV, The Boys
+
+Sat, 23 May 2026 22:00:20 GMT
+
+https://screenrant.com/video/the-boys-finale-homelander-moment/
+
+Homelander’s biggest finale moment in The Boys should have changed everything, but instead the shocking twist wasted his most terrifying potential.
+---------
+
+# Astro Bot Fans Mark Calendars For Official Sequel Announcement
+
+Gaming, Astro Bot, PlayStation 5, PC
+
+Sat, 23 May 2026 22:00:20 GMT
+
+https://screenrant.com/astro-bot-2-official-2026-announcement/
+
+Astro Bot fans are marking their calendars this year for the highly anticipated PlayStation exclusive follow-up to the GOTY-winning hit.
+---------
+
+# 10 Underrated Slasher Movie Villains Who Deserve A Comeback
+
+Classic Movies, Horror, Ranking
+
+Sat, 23 May 2026 21:56:37 GMT
+
+https://screenrant.com/horror-slasher-villains-comeback/
+
+There were some great slasher movie villains who didn't get long-running franchises, and here are the best of those who deserve a comeback.
+---------
+
+# HBO Max Officially Releases One Of 2026's Best Horror Movies Next Month
+
+Movies, undertone
+
+Sat, 23 May 2026 21:53:58 GMT
+
+https://screenrant.com/hbo-max-undertone-movie-streaming-release-june-2026/
+
+One of A24's best horror movies of the year so far is finally on its way to streaming, ready to haunt HBO Max indefinitely next month.
+---------
+
+# Netflix's Near-Perfect 2-Part Sci-Fi Show Makes Pacific Rim Look Small
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 21:52:21 GMT
+
+https://screenrant.com/pacific-rim-the-black-netflix-show-makes-movie-small/
+
+Pacific Rim delivered all the mecha-vs-kaiju combat fans could dream of, but one Netflix show reveals the 2013 movie didn't tell enough of its story.
+---------
+
+# The 5 Best Thriller Movies of the 2020s, Ranked
+
+Movies, Thriller, The Invisible Man
+
+Sat, 23 May 2026 22:30:13 GMT
+
+https://www.cbr.com/best-thriller-movies-of-the-2020s-list/
+
+Thrillers have had a resurgence in the 2020s, and with it, there have been more than a few unforgettably epic films.
+---------
+
+# 5 Most Unplayable Classic '80s Games
+
+Games, Back to the Future, Pac-Man, E.T. the Extra-Terrestrial, atari, Video Games
+
+Sat, 23 May 2026 22:16:14 GMT
+
+https://www.cbr.com/5-most-unplayable-classic-80s-games/
+
+The 1980s had some excellent titles that are still enjoyed to this day, but these five games are more likely to collect dust on the shelves of gamers.
+---------
+
+# Josh Hartnett's True-Crime Drama Target Number One Is a Hit on Paramount+
+
+Movies, Target Number One, Crime, Paramount+ with Showtime
+
+Sat, 23 May 2026 22:00:13 GMT
+
+https://www.cbr.com/josh-hartnett-target-number-one-crime-drama-paramount-success-may-2026/
+
+Josh Hartnett's true-crime drama Target Number One is finding redemption on streaming 6 years later.
+---------
+
+# The Expendables Is Replacing Sylvester Stallone
+
+Movies, The Expendables
+
+Sat, 23 May 2026 22:00:13 GMT
+
+https://www.cbr.com/expendables-replacing-sylvester-stallone-all-female-reboot/
+
+Sly will have to say goodbye to the gun-toting franchise he helped shepherd into existence, before it forges ahead on a completely new path.
+---------
+
+# Cyberpunk 2077 Official Giveaway Available Until May 28
+
+Games, Cyberpunk 2077, Cyberpunk
+
+Sat, 23 May 2026 21:51:15 GMT
+
+https://www.cbr.com/cyberpunk-2077-official-giveaway-may-28/
+
+Cyberpunk 2077 fans have less than a week left to make sure they have a chance at getting in on one of the coolest giveaways of the year.
+---------
+
+# ‘The Bear’ Writer’s Near-Perfect Psychological Thriller Is a Surprise Streaming Hit
+
+Movie News, The Bear, Thriller, Lurker, HBO Max
+
+Sat, 23 May 2026 22:31:13 GMT
+
+https://collider.com/the-bear-director-alex-russell-mystery-thriller-lurker-streaming-success-hbo-max-may-2026/
+
+Alex Russell, who penned one of The Bear's best episodes, directed the 2025 mystery thriller Lurker, which is a streaming hit. Find out more here.
+---------
+
+# ‘Assassin’s Creed’ Meets ‘Black Hawk Down’ in Taron Egerton's Failed Fantasy Franchise-Starter
+
+Movie News, Taron Egerton, Robin Hood, Jamie Foxx, Eve Hewson
+
+Sat, 23 May 2026 22:16:14 GMT
+
+https://collider.com/taron-egerton-failed-fantasy-franchise-starter-robin-hood-leaving-netflix-june-2026-assassins-creed-black-hawk-down/
+
+One of the worst franchise starters of the last decade, Robin Hood, is leaving its streaming home on Netflix. Find out when.
+---------
+
+# 'Blue Bloods' Replacement Officially Reshapes the Franchise's Most Popular Character
+
+TV Features, Boston Blue, Blue Bloods, Donnie Wahlberg
+
+Sat, 23 May 2026 22:11:14 GMT
+
+https://collider.com/boston-blue-bloods-danny-reagan-character-change/
+
+Danny Reagan has undergone an overall character evolution in Blue Bloods that now fully comes to light in the new sequel series Boston Blue.
+---------
+
+# Jason Statham's 5 Best Performances, Ranked
+
+Movie, Jason Statham, Crank, Wrath of Man, Spy
+
+Sat, 23 May 2026 22:05:14 GMT
+
+https://collider.com/jason-statham-best-performances-ranked/
+
+Action star Jason Statham is a better actor that he gets credit for, as seen in strong performances in movies like The Beekeeper and Snatch.
+---------
+
+# The Most Important Movie in the MCU Is a Streaming Hit Ahead of 'Doomsday'
+
+Movie News, MCU, Iron Man, Avengers: Doomsday, Disney+
+
+Sat, 23 May 2026 22:00:14 GMT
+
+https://collider.com/robert-downey-jr-important-mcu-movie-iron-man-streaming-success-disney-plus-may-2026/
+
+The most important movie in the Marvel Cinematic Universe is a streaming hit before Avengers: Doomsday. Read on for more.
+---------
+
+# Every Harlan Coben Netflix Series, Ranked
+
+TV Lists, Fool Me Once, Run Away, I Will Find You, Netflix
+
+Sat, 23 May 2026 22:00:18 GMT
+
+https://movieweb.com/every-harlan-coben-netflix-series-ranked/
+
+There are 12 Harlan Coben shows on Netflix. I recently binged all of them over the space of two months, and this is my ranking.
+---------
+
 # Spider-Noir Review: Nicolas Cage Makes Spider-Man Weird Again
 
 TV, Spider-Noir
