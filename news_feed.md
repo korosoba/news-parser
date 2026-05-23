@@ -1,3 +1,311 @@
+# Ladies First Interview with Director Thea Sharrock
+
+Movies, Ladies First
+
+Sat, 23 May 2026 18:00:21 GMT
+
+https://screenrant.com/video/ladies-first-movie-director-thea-sharrock-differences-interview/
+
+Ladies First director Thea Sharrock talks the Netflix fantasy comedy remake, themes of motherhood and changes from the original French film.
+---------
+
+# Every Winner At Crunchyroll's Anime Awards 2026
+
+Anime
+
+Sat, 23 May 2026 18:00:21 GMT
+
+https://screenrant.com/every-winner-at-crunchyrolls-anime-awards-2026/
+
+The biggest winners of the Crunchyroll Anime Awards.
+---------
+
+# Netflix's Hit Period Drama Is So Massive, It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 18:00:21 GMT
+
+https://screenrant.com/bridgerton-netflix-renewed-seasons-5-6/
+
+One of the most successful Netflix Original shows of all time is a stunning period drama, and it's already been renewed for two more seasons.
+---------
+
+# Skyrim Just Got Its Most Unbelievable Re-Release To Date
+
+Gaming, The Elder Scrolls V: Skyrim
+
+Sat, 23 May 2026 18:00:21 GMT
+
+https://screenrant.com/skyrim-fallout-4-pip-boy-port/
+
+Discover how a dedicated modder has created an incredible Skyrim playable experience within Fallout 4's Pip-Boy.
+---------
+
+# The Duffer Brothers’ Rotten Tomatoes Streak Officially Ends With Their New Netflix Sci-Fi Show
+
+TV, Masked Recs
+
+Sat, 23 May 2026 17:55:23 GMT
+
+https://screenrant.com/the-boroughs-rotten-tomatoes-audience-score-duffer-brother-streak-end/
+
+A Rotten Tomatoes streak that began with Stranger Things season 5 officially comes to an end for the Duffer Brothers with their new Netflix show.
+---------
+
+# The Mandalorian & Grogu Interviews with Pedro Pascal, Dave Filoni, And Jon Favreau
+
+Videos, The Mandalorian and Grogu, Pedro Pascal, Jon Favreau, Dave Filoni
+
+Sat, 23 May 2026 17:38:32 GMT
+
+https://screenrant.com/video/the-mandalorian-grogu-pedro-pascal-dave-filoni-jon-favreau-interview/
+
+The Mandalorian & Grogu director Jon Favreau, producer Dave Filoni, and star Pedro Pascal discuss the scope of the new Star Wars movie and the magic of bringing Din (and Rotta the Hutt) to life.
+---------
+
+# Netflix’s 2-Part Mystery Thriller With Strong RT Score Gets Even Better Ahead Of Its Return
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 17:30:20 GMT
+
+https://screenrant.com/a-good-girls-guide-to-murder-netflix-return-season-2-better/
+
+Netflix's adaptation of a crime book is a classic murder mystery that sees a teenage girl becoming an amateur detective, with season 2 on its way.
+---------
+
+# The PlayStation 6's Design Is Already Being Roasted By Gamers
+
+Gaming, PlayStation 6
+
+Sat, 23 May 2026 17:30:20 GMT
+
+https://screenrant.com/playstation-6-design-speculation-gamer-hopes/
+
+Gamers are already discussing and critiquing the potential design of the upcoming PlayStation 6.
+---------
+
+# Every Star Wars Cameo In The Mandalorian & Grogu
+
+Star Wars, The Mandalorian and Grogu
+
+Sat, 23 May 2026 17:15:20 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-cameos/
+
+The Mandalorian and Grogu includes some surprise Star Wars cameos alongside Din Djarin and Baby Yoda, with some on-screen and others just vocal.
+---------
+
+# Ladies First Interview with Sacha Baron Cohen & Rosamund Pike
+
+Movies, Ladies First, Rosamund Pike, Sacha Baron Cohen
+
+Sat, 23 May 2026 17:09:18 GMT
+
+https://screenrant.com/video/ladies-first-movie-sacha-baron-cohen-rosamund-pike-interview/
+
+Ladies First stars Sacha Baron Cohen and Rosamund Pike talk the Netflix fantasy comedy remake, themes of motherhood and Pike's unique cast connection.
+---------
+
+# The Best Sci-Fi Movie From Every Year of The 2010s
+
+Movies, Sci-Fi, Mad Max: Fury Road, Inception
+
+Sat, 23 May 2026 18:00:15 GMT
+
+https://www.cbr.com/best-sci-fi-movie-every-year-2010s-decade-list/
+
+The 2010s were an incredible era for science fiction, and these ten movies are the best entries in the genre for each year of the decade.
+---------
+
+# Best X-Men #1 Issues in Marvel History, Ranked
+
+Comics, comics, Marvel Comics, X-Men
+
+Sat, 23 May 2026 18:00:15 GMT
+
+https://www.cbr.com/best-x-men-1-issues-ranked/
+
+The X-Men have always been excellent at first issues.
+---------
+
+# The Mandalorian and Grogu Director Officially Explains Why New Star Wars Movie Doesn't Have 1 Iconic Detail
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Sat, 23 May 2026 17:52:25 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-jon-favreau-no-opening-crawl/
+
+Director Jon Favreau explains why one key piece of the Star Wars franchise is missing from The Mandalorian and Grogu, and it makes perfect sense.
+---------
+
+# Missing Virgin Actor Stewart McLean Found Dead at 45
+
+TV, obituary, Virgin River
+
+Sat, 23 May 2026 17:50:08 GMT
+
+https://www.cbr.com/stewart-mclean-dies-at-45/
+
+After making headlines for the past few days as a missing person, the investigation turned into homicide.
+---------
+
+# Sheriff Country Boss Teases Mickey and Boone’s Romantic Future After Emotional Finale
+
+TV, Sheriff Country, Fire Country, Kingdom
+
+Sat, 23 May 2026 17:32:16 GMT
+
+https://www.cbr.com/sheriff-country-boss-teases-mickey-and-boone-romantic-future-after-finale/
+
+Something romantic is cooking in Sheriff Country, but there's a reason that isn't ready yet.
+---------
+
+# 5 Dark Superhero Shows Perfect for Fans of The Boys
+
+TV, The Boys
+
+Sat, 23 May 2026 17:30:13 GMT
+
+https://www.cbr.com/dark-superhero-shows-perfect-for-fans-of-the-boys/
+
+The Boys has come to an end after five brilliant seasons, but there are many other gritty superhero shows ready to watched instead.
+---------
+
+# Spider-Man: Brand New Day Officially Ends the High-Tech Spider-Man Era
+
+Movies, Spider-Man: Brand New Day, MCU
+
+Sat, 23 May 2026 17:30:13 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-ends-high-tech-era/
+
+Spider-Man: Brand New Day is making many changes to Peter Parker, distancing him even further from his former mentor in the MCU.
+---------
+
+# Star Wars Fans Were Robbed Of The Ultimate Sith Video Game
+
+Games, Star Wars, Video Games
+
+Sat, 23 May 2026 17:15:14 GMT
+
+https://www.cbr.com/star-wars-jedi-knight-2-cheats/
+
+One Star Wars game almost gave fans the chance to play as a violent Sith, but it was heavily censored, and only cheats can restore its content.
+---------
+
+# Dead by Daylight Finally Adds Friday the 13th's Jason Voorhees
+
+Games, Friday The 13th, Dead by Daylight
+
+Sat, 23 May 2026 17:12:41 GMT
+
+https://www.cbr.com/dead-by-daylight-jason-voorhees-friday-the-13th/
+
+Dead by Daylight unveils the first look at Jason Voorhees' long-awaited arrival.
+---------
+
+# Dutton Ranch Just Officially Delivered a Historic Yellowstone Franchise First
+
+TV, Dutton Ranch, Yellowstone
+
+Sat, 23 May 2026 17:11:35 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-foot-and-mouth-disease/
+
+Beth and Rip's Yellowstone spinoff officially makes history for Taylor Sheridan's neo-Western franchise as a devastating development hits Rio Paloma.
+---------
+
+# 2025's Most Chilling Horror Sequel Is Officially Stealing the Spotlight on Netflix
+
+Movie News, Netflix, Black Phone 2, The Black Phone, Ethan Hawke
+
+Sat, 23 May 2026 18:00:15 GMT
+
+https://collider.com/ethan-hawke-horror-sequel-black-phone-2-streaming-success-netflix-may-2026/
+
+The most chilling horror sequel of 2025, the Ethan Hawke-starring Black Phone 2, is a surprise hit on Netflix. Read on for more details.
+---------
+
+# 10 Netflix True Crime Docuseries You'll Wish You Watched Sooner
+
+TV, True Crime, Jeffrey Epstein: Filthy Rich, Conversations With A Killer: The Ted Bundy Tapes, Trainwreck: Poop Cruise
+
+Sat, 23 May 2026 17:57:15 GMT
+
+https://collider.com/best-netflix-true-crime-docuseries/
+
+Netflix has a massive library of great true crime docuseries, like Jeffrey Epstein: Filthy Rich, Trainwreck, Conversations With a Killer, and more.
+---------
+
+# 20 Years Later, These 10 Movies Deserve a Sequel
+
+Movie, Click, Idiocracy, The Departed, Nacho Libre
+
+Sat, 23 May 2026 17:28:14 GMT
+
+https://collider.com/2006-movies-deserve-sequel/
+
+From Oscar winners like The Departed to prescient comedies like Idiocracy, it would be great if these 2006 movies received sequels two decades later.
+---------
+
+# 10 Greatest Netflix Shows of the Last 5 Years, Ranked
+
+TV, Netflix, Wednesday, Arcane, Adolescence
+
+Sat, 23 May 2026 17:04:14 GMT
+
+https://collider.com/best-netflix-shows-last-5-years-ranked/
+
+Discover the top Netflix shows from the past five years known for their quality and cultural impact, including Wednesday, Arcane, and Adolescence.
+---------
+
+# Netflix Officially Says Goodbye to 'The Bear' Star's Forgotten Chaotic Dramedy
+
+Movie News, Shiva Baby, Rachel Sennott, Emma Seligman, Molly Gordon
+
+Sat, 23 May 2026 17:00:14 GMT
+
+https://collider.com/the-bear-star-molly-gordon-rachel-sennott-chaotic-dramedy-shiva-baby-leaving-netflix-june-2026/
+
+The critically acclaimed dark comedy gem Shiva Baby, starring Rachel Sennott in a breakout role, is leaving Netflix soon. Find out when.
+---------
+
+# 'Project Hail Mary' Has Nearly Beaten Henry Cavill's Hit Sci-Fi Blockbuster at the Box Office
+
+Movie News, Project Hail Mary, Man of Steel, Box Office Milestones, Sci-Fi
+
+Sat, 23 May 2026 18:00:20 GMT
+
+https://movieweb.com/project-hail-mary-beats-henry-cavill-man-of-steel-box-office-sci-fi/
+
+Ryan Gosling's sci-fi adventure, 'Project Hail Mary,' is a major box office success, nearly beating Henry Cavill's DCEU 'Man of Steel.'
+---------
+
+# 10 1990s TV Shows That Are 10/10 Masterpieces, No Notes
+
+TV Lists, Seinfeld, ER
+
+Sat, 23 May 2026 18:00:20 GMT
+
+https://movieweb.com/1990s-tv-shows-masterpieces/
+
+From a quirky legal drama to a few beloved sitcoms, these popular TV shows from the 1990s are some of the best TV series ever made.
+---------
+
+# 6 Ways 'The Mandalorian & Grogu' Breaks 'Star Wars' Tradition
+
+Movie Lists, The Mandalorian and Grogu, Star Wars
+
+Sat, 23 May 2026 17:01:20 GMT
+
+https://movieweb.com/mandalorian-grogu-breaks-star-wars-tradition/
+
+The latest entry in the 'Star Wars' franchise breaks some major hallmarks, including opening credits and no lightsabers.
+---------
+
 # Netflix's 10 Most Watched 2026 Movies (So Far)
 
 New Movies, Netflix
