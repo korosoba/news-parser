@@ -1,3 +1,289 @@
+# Boruto's Best New Chapter Exposes The Manga's Biggest Flaw
+
+Anime, Naruto, Boruto: Naruto Next Generations, Boruto: Two Blue Vortex
+
+Sat, 23 May 2026 13:00:19 GMT
+
+https://screenrant.com/boruto-two-blue-vortex-best-chapter-naruto-problem/
+
+The biggest problem with Boruto is revealed.
+---------
+
+# Off Campus Season 2 "Resets The Clock" For One Major Couple
+
+TV, Off Campus, Off Campus - Season 1
+
+Sat, 23 May 2026 13:00:19 GMT
+
+https://screenrant.com/off-campus-season-2-allie-dean-reset-mika-abdalla-stephen-kalyn/
+
+Off Campus, Amazon's newest hit show, seems poised to explore one specific couple's relationship faster than in the book series ever did.
+---------
+
+# Can't Wait For Heat 2? Netflix's New Crime Series Is The Next Best Thing
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 13:00:19 GMT
+
+https://screenrant.com/heat-2-netflix-nemesis-next-best-thing/
+
+Netflix’s latest crime drama is the perfect TV show to watch while waiting for the release of Michael Mann’s highly anticipated Heat 2.
+---------
+
+# Cyberpunk 2077 Adam Smasher DLC Leaves Gamers Impressed
+
+Gaming, Cyberpunk 2077
+
+Sat, 23 May 2026 13:00:19 GMT
+
+https://screenrant.com/cyberpunk-2077-adam-smasher-fortnite-dlc/
+
+Adam Smasher, the menacing cyborg from Cyberpunk 2077, has made his way into Fortnite, adding a new layer of destruction and excitement.
+---------
+
+# The Boys Creator Called The Finale "The Worst Idea in History" Years Before It Aired
+
+Comics, The Boys
+
+Sat, 23 May 2026 13:00:08 GMT
+
+https://screenrant.com/boys-finale-creator-reaction-homelander-death-kimiko-powers/
+
+And he wasn't joking.
+---------
+
+# Will The Mandalorian & Grogu 2 Happen — Or The Mandalorian Season 4?
+
+Movies, The Mandalorian and Grogu
+
+Sat, 23 May 2026 12:55:20 GMT
+
+https://screenrant.com/mandalorian-grogu-2-mandalorian-season-4-explained/
+
+Star Wars' brand-new installment, The Mandalorian and Grogu, is finally here—but what's next for Din Djarin and Grogu, now that this movie is out?
+---------
+
+# Disney Is Officially Rebooting One Of The Greatest Sci-Fi Franchises Of All Time
+
+Movies, Planet of the Apes, Kingdom of the Planet of the Apes
+
+Sat, 23 May 2026 12:30:19 GMT
+
+https://screenrant.com/planet-of-the-apes-next-movie-disney-reboot/
+
+The next Planet of the Apes movie is reportedly not a sequel to Kingdom, which means Disney is changing the iconic sci-fi franchise forever.
+---------
+
+# 10 Best 1990s Buddy Comedies
+
+Movies, Wayne's World, Dumb and Dumber
+
+Sat, 23 May 2026 12:30:19 GMT
+
+https://screenrant.com/best-90s-buddy-comedies/
+
+The best buddy comedies of the '90s, ranked.
+---------
+
+# Obsession Has Already Made Over 30 Times Its Budget
+
+Movies, Obsession
+
+Sat, 23 May 2026 12:30:19 GMT
+
+https://screenrant.com/obsession-movie-box-office-budget-comparison/
+
+One of 2026's newest movie releases has already brought in a box office result that is worlds higher than what is reportedly cost to make.
+---------
+
+# Dutton Ranch’s Mystery Villain Explained
+
+TV, Yellowstone, Dutton Ranch
+
+Sat, 23 May 2026 12:01:19 GMT
+
+https://screenrant.com/dutton-ranchs-mystery-villain-explained/
+
+Dutton Ranch introduced Beulah Jackson, the powerful owner of the 10-Petals Ranch. However, there is an even bigger boss in Rio Paloma she answers to.
+---------
+
+# 8 Reasons It's Tough To Watch The Matrix Today
+
+Movies, The Matrix, The Matrix Reloaded, The Matrix Revolutions
+
+Sat, 23 May 2026 13:00:12 GMT
+
+https://www.cbr.com/reasons-tough-to-watch-the-matrix-list/
+
+The Matrix changed cinema forever, but reappraising the franchise in the 2020s reveals a few issues
+---------
+
+# 8 Miniseries That Hook You in 10 Minutes or Less
+
+TV, Chernobyl, Dopesick, Baby Reindeer, TV Miniseries
+
+Sat, 23 May 2026 12:30:12 GMT
+
+https://www.cbr.com/most-captivating-miniseries-hooked-from-the-start-list/
+
+From psychological thrillers like Adolescence to award-winning masterpieces like Chernobyl, these miniseries have audiences hooked within minutes.
+---------
+
+# Star Wars: The Last Jedi Was Never The Real Problem
+
+Movies, Star Wars, Star Wars: The Last Jedi
+
+Sat, 23 May 2026 12:04:45 GMT
+
+https://www.cbr.com/video/star-wars-the-last-jedi-was-never-the-real-problem/
+
+The Last Jedi remains one of Star Wars’ most debated sequels, but did The Rise of Skywalker make Episode VIII look worse in hindsight?For Star Wars Week, Klein Felt and Jamie Parker revisit Rian Johnson’s The Last Jedi and break down the ways Lucasfilm could have followed up its boldest ideas. They explore whether The Rise of Skywalker failed to pay off Rey’s “nobody” reveal, Finn’s Force-sensitive arc, Rose Tico’s importance, Kylo Ren becoming Supreme Leader, and the larger stakes of the sequel trilogy.The Last Jedi still shapes Star Wars debate nearly a decade later, but should Rey have stayed a nobody? Should Finn and Rose have led a bigger Resistance story? Should Kylo Ren have gone darker before any redemption?
+---------
+
+# Geoff Johns Makes Major Claim About The Trillion Dollar Kid
+
+Comics, image comics
+
+Sat, 23 May 2026 12:00:14 GMT
+
+https://www.cbr.com/geoff-johns-trillion-dollar-kid-buyback-offer/
+
+Critically acclaimed creator Geoff Johns offers comic book stores one of the best deals of all time ahead of the debut of his next indie hit.
+---------
+
+# The Mandalorian and Grogu Officially Repeats The First Season's Force Reveal
+
+Movies, The Mandalorian and Grogu, Star Wars, Sci-Fi
+
+Sat, 23 May 2026 12:00:14 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-repeats-major-star-wars-force-moment/
+
+The newest Star Wars film's climax features a bold repeat of one of the most iconic moments in modern sci-fi history.
+---------
+
+# 10 Scariest Horror Movie Climaxes of All Time, Ranked
+
+Movie, The Blair Bitch Project, Halloween, Sinister, Horror
+
+Sat, 23 May 2026 12:47:14 GMT
+
+https://collider.com/scariest-horror-movie-climaxes-ranked/
+
+Horror movies like Sinister, Hereditary, and The Blair Witch Project have some of the scariest, most unforgettable climaxes in the genre's history.
+---------
+
+# Stephen King’s Favorite Apple TV Sci-Fi Series Is Still Proving Why It Deserves Another Season
+
+Movie News, Constellation, Stephen King, Apple TV, Sci-Fi
+
+Sat, 23 May 2026 12:45:13 GMT
+
+https://collider.com/stephen-king-favorite-apple-tv-series-constellation-streaming-success-may-2026/
+
+Constellation, the Apple TV sci-fi series praised by horror legend Stephen King, continues to prove why it shouldn't have been cancelled.
+---------
+
+# Say Goodbye to Scarlett Johansson's Rewatchable WWII Masterpiece
+
+Movie News, Taika Waititi, Jojo Rabbit, Scarlett Johansson, World War II
+
+Sat, 23 May 2026 12:30:13 GMT
+
+https://collider.com/taika-waititi-divisive-ww2-satirical-masterpiece-jojo-rabbit-leaving-peacock-june-2026/
+
+Taika Waititi's divisive WW2 movie, Jojo Rabbit, is leaving Peacock soon. Find out how long you have to watch it.
+---------
+
+# This Underseen 83% Rotten Tomatoes Sci-Fi Is Exactly What 'Interstellar' Fans Need
+
+Movie Features, Ad Astra, Brad Pitt, Interstellar, Sci-Fi
+
+Sat, 23 May 2026 12:29:13 GMT
+
+https://collider.com/interstellar-fans-watch-ad-astra-2019-movie-brad-pitt-sci-fi/
+
+Fans of Christopher Nolan's Interstellar need to check out James Gray's underseen 2019 sci-fi Ad Astra starring Brad Pitt. Here's why.
+---------
+
+# 3 Years Later, This 6-Part Netflix Sci-Fi Thriller Is Still a Stellar Weekend Binge
+
+TV Features, Black Knight, Netflix, South Korea, Series
+
+Sat, 23 May 2026 12:17:12 GMT
+
+https://collider.com/netflix-black-knight-still-weekend-binge/
+
+Netflix’s Black Knight delivers dystopian action, sharp worldbuilding, and a charismatic lead in one gripping six-episode binge.
+---------
+
+# The Greatest Horror Sci-Fi Movie of All Time Gave Away Its Plot in the First 10 Minutes
+
+Movie Features, The Thing, John Carpenter, Kurt Russell, Keith David
+
+Sat, 23 May 2026 12:15:15 GMT
+
+https://collider.com/best-sci-fi-horror-all-time-movie-the-thing-dog-plot/
+
+While The Thing stands as a horror classic, it gave away the movie's plot from the start.
+---------
+
+# Ridley Scott's Brutal Action Thriller the Critics Hated Needs To Be Rediscovered in 2026
+
+Movie Features, The Counselor, Ridley Scott, Thriller, Cormac McCarthy
+
+Sat, 23 May 2026 12:02:12 GMT
+
+https://collider.com/ridley-scott-the-counselor-movie-2013-thriller/
+
+Ridley Scott's 2013 thriller The Counselor, starring Brad Pitt, Javier Bardem, and Penélope Cruz, doesn't deserve all the hate.
+---------
+
+# One of the Greatest Action Movies Ever Made Is Quietly Crushing Streaming Charts 4 Years Later
+
+Movie News, Top Gun: Maverick, Tom Cruise, Top Gun, Val Kilmer
+
+Sat, 23 May 2026 12:00:14 GMT
+
+https://collider.com/tom-cruise-important-blockbuster-top-gun-maverick-streaming-success-paramount-plus-may-2026/
+
+Hollywood's most important blockbuster of the last 25 years is still a #1 streaming favorite even after returning to theaters. Find out more below.
+---------
+
+# 'Rick and Morty' Season 9 Makes Another Major Story Change That Doesn't Work | Review
+
+TV Reviews, Rick and Morty, Adult Swim, Justin Roiland, Animation
+
+Sat, 23 May 2026 12:00:14 GMT
+
+https://collider.com/rick-and-morty-season-9-review/
+
+Rick and Morty Season 9 is still fun, but it attempts a new thematic structure that often feels redundant, and neglects supporting characters.
+---------
+
+# 10 Pixar Movies That Are Perfectly Written
+
+Movie, Toy Story, Toy Story 3, Up, Coco
+
+Sat, 23 May 2026 11:53:13 GMT
+
+https://collider.com/pixar-movies-perfectly-written/
+
+Inside Out, Toy Story 3, and Coco are all among the best Pixar movies of all time, thanks in no small part to their perfect screenplays.
+---------
+
+# 'The Sum of All Fears': Ben Affleck's Turn as Jack Ryan Explodes Onto Streaming
+
+Movie News, Ben Affleck, The Sum Of All Fears, Coming/Leaving Streaming, Jack Ryan
+
+Sat, 23 May 2026 12:00:19 GMT
+
+https://movieweb.com/the-sum-of-all-fears-ben-affleck-jack-ryan-streaming-tubi-june-2026/
+
+Following in the footsteps of Alec Baldwin and Harrison Ford, Affleck played Jack Ryan in an adaptation of Tom Clancy's 1991 novel.
+---------
+
 # God Of War: Thor Officially Arrives January 2027
 
 Gaming, God of War, God of War: Ragnarok, PC
