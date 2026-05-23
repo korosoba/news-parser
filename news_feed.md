@@ -1,3 +1,322 @@
+# Stephen Amell's New Reboot Of Iconic '90s Series Gets First Official Trailer For Baywatch
+
+TV, Baywatch
+
+Sat, 23 May 2026 19:34:25 GMT
+
+https://screenrant.com/stephen-amell-baywatch-reboot-show-trailer/
+
+A first trailer for Stephen Amell's reboot of an iconic '90s show has been released as production continues on season 1 of the series.
+---------
+
+# What's Going On With The White Collar Reboot - Everything We Know
+
+Streaming TV, White Collar
+
+Sat, 23 May 2026 19:30:21 GMT
+
+https://screenrant.com/white-collar-reboot-is-it-happening-status-updates/
+
+Get the latest on the White Collar reboot, Renaissance, including its development status, potential release window, and how the show plans to return.
+---------
+
+# Disney Upfronts 2026: Stars Tease Everything From Percy Jackson Season 3 To Avengers: Doomsday
+
+TV, Disney+, Tom Hiddleston, Percy Jackson & the Olympians, Lindsay Lohan
+
+Sat, 23 May 2026 19:30:19 GMT
+
+https://screenrant.com/video/disney-upfronts-2026-percy-jackson-season-3-avengers-doomsday/
+
+ScreenRat chats with Tom Hiddleston, Leah Sava Jeffries, Aryan Simhadri, Lindsay Lohan, and more Disney+, Hulu, and ABC stars at the Disney Upfronts.
+---------
+
+# Fallout 4: Horizon Proves There’s Life In This Game Yet
+
+Gaming, Fallout, Fallout 4
+
+Sat, 23 May 2026 19:30:19 GMT
+
+https://screenrant.com/fallout-4-horizon-fan-expansion/
+
+Fallout 4 really is the game that keeps on giving, with thousands of modders breathing new life into the title every day.
+---------
+
+# Now Is The Perfect Time To Binge Webtoon's Most Untouchable Action Fantasy
+
+Anime, Omniscient Reader, Webtoon
+
+Sat, 23 May 2026 19:30:19 GMT
+
+https://screenrant.com/omniscient-readers-viewpoint-webtoon-action-fantasy/
+
+Webtoon's best action fantasy manhwa just wrapped up its first season, and the hiatus just gave fans the perfect chance to catch up!
+---------
+
+# 6 Greatest Horror Movies Made By YouTube Creators (Including Obsession)
+
+Movies, Obsession, Iron Lung, Lights Out, Talk to Me, Together, Bring Her Back
+
+Sat, 23 May 2026 19:25:22 GMT
+
+https://screenrant.com/best-horror-movies-made-by-youtube-creators/
+
+Obsession has become the latest in a long line of horror films made by YouTube creators, and it's just one of six films that shows their creativity.
+---------
+
+# Why A Star Wars Rule Excludes The Mandalorian And Grogu From A Classic Tradition
+
+Movies, The Mandalorian and Grogu, Star Wars, The Mandalorian
+
+Sat, 23 May 2026 19:15:50 GMT
+
+https://screenrant.com/mandalorian-and-grogu-no-star-wars-opening-crawl-jon-favreau-explained/
+
+The Mandalorian and Grogu does not feature a classic Star Wars tradition, with Jon Favreau and Dave Filoni explaining the reasoning behind this.
+---------
+
+# The Punisher: One Last Kill Review — Marvel Finally Gets Frank Castle Right
+
+Videos, The Punisher: One Last Kill
+
+Sat, 23 May 2026 19:10:31 GMT
+
+https://screenrant.com/video/the-punisher-one-last-kill-review-marvel-frank-castle/
+
+A brutal, emotionally charged review of The Punisher: One Last Kill exploring how Marvel finally captures Frank Castle’s rage, morality, and tragic antihero legacy in one of the character’s darkest and most faithful stories yet.
+---------
+
+# The Boys Series Finale Interviews with Eric Kripke & Cast
+
+Videos, The Boys, Eric Kripke
+
+Sat, 23 May 2026 19:00:20 GMT
+
+https://screenrant.com/video/the-boys-series-finale-eric-kripke-erin-moriarty-jensen-ackles-cast-interview/
+
+ScreenRant speaks to The Boys' Eric Kripke, Erin Moriarty, Chace Crawford, Nathan Mitchell, Laz Alonso, Jessie T. Usher, Jensen Ackles, and more.
+---------
+
+# Pokémon Finally Solves Two Red & Blue Mysteries That Have Haunted Players For 30 Years
+
+Anime, Pokemon, Pokemon Red and Blue
+
+Sat, 23 May 2026 19:00:20 GMT
+
+https://screenrant.com/pokemon-how-doduo-fly-rhydon-surf-answered/
+
+A major Pokémon mystery is finally solved.
+---------
+
+# ALBW Soundtrack Release Teases Something Big for 2D Zelda
+
+Games, The Legend of Zelda
+
+Sat, 23 May 2026 19:34:14 GMT
+
+https://www.cbr.com/zelda-albw-soundtrack-nintendo-music-next-2d-game-tease/
+
+Nintendo just shadow dropped A Link Between Worlds' soundtrack for free, and history suggests this is teasing something major for Zelda coming soon.
+---------
+
+# Netflix's Avatar: The Last Airbender Will Adapt the Cartoon's Best Episodes
+
+TV, Avatar: The Last Airbender, Netflix
+
+Sat, 23 May 2026 19:30:13 GMT
+
+https://www.cbr.com/netflix-avatar-last-airbender-adapt-best-cartoon-episodes/
+
+The latest Avatar: The Last Airbender trailed revealed that Netflix's live-action remake will adapt the series' two most unique episodes.
+---------
+
+# 10 Best Monsters in the Harry Potter Movies, Ranked
+
+Movies, Harry Potter
+
+Sat, 23 May 2026 19:30:13 GMT
+
+https://www.cbr.com/harry-potter-best-monsters-list/
+
+Harry Potter has a fully developed world full of fantasy monsters, but the best ones put a spin on classic lore.
+---------
+
+# Dragon Ball Characters Akira Toriyama Didn’t Know What to Do With
+
+Anime, Dragon Ball, Dragon Ball Z, Akira Toriyama
+
+Sat, 23 May 2026 19:15:13 GMT
+
+https://www.cbr.com/dragon-ball-characters-akira-toriyama-wasted-potential/
+
+These characters showed promise, but Dragon Ball unfortunately struggled to use them meaningfully.
+---------
+
+# Gruesome Stephen King-esque Horror Movie Returns to No. 2 on Paramount+'s Top 10 Movies
+
+Movies, Primate, Paramount+ with Showtime
+
+Sat, 23 May 2026 19:15:10 GMT
+
+https://www.cbr.com/primate-streaming-paramount-plus-may-2026/
+
+Paramount's brutal and very R-rated creature feature continues to dominate on streaming.
+---------
+
+# Stephen Amell Unveils First Teaser for Baywatch Reboot: 'I Love Playing Superheroes'
+
+TV, Baywatch
+
+Sat, 23 May 2026 18:32:22 GMT
+
+https://www.cbr.com/stephen-amell-first-baywatch-teaser-trailer/
+
+Stephen Amell shares the first teaser trailer for his next TV series.
+---------
+
+# Ridley Scott’s HBO Series Raised by Wolves Is a Sci-Fi Masterpiece
+
+TV, Sci-Fi, hbo, Raised by Wolves
+
+Sat, 23 May 2026 18:30:13 GMT
+
+https://www.cbr.com/hbo-raised-by-wolves-best-ridley-scott-sci-fi-series/
+
+Raised by Wolves is a gripping and mythological sci-fi series exploring the boundaries of AI, creation, and faith.
+---------
+
+# Daredevil Cinematographer Reveals the Biggest Changes Made to One-Shot Fight Scenes
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Sat, 23 May 2026 18:25:47 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-fight-scenes-camera-work/
+
+Hillary Fyfe Spera reveals how Daredevil: Born Again Season 2 made its action scenes feel more immersive.
+---------
+
+# In Just 1 Day, Jordan Peele’s 130-Minute Sci-Fi Horror Is Netflix’s No. 7 Movie in America
+
+Movies, Horror, Jordan Peele, Nope
+
+Sat, 23 May 2026 18:20:45 GMT
+
+https://www.cbr.com/jordan-peele-nope-sci-fi-horror-streaming-success-netflix-may-2026/
+
+It only took 24 hours for Jordan Peele's class horror flick to take over Netflix.
+---------
+
+# 10 Black Clover Characters Fans Completely Underestimated
+
+Anime, Black Clover, shonen anime, Shonen
+
+Sat, 23 May 2026 18:15:13 GMT
+
+https://www.cbr.com/most-underestimated-black-clover-characters/
+
+Not every Black Clover character is flashy, some are highly underestimated before they reveal their true selves.
+---------
+
+# 8 Most Perfect Anime of the Last 10 Years, Ranked
+
+TV, Anime, Mob Psycho 100, Jujutsu Kaisen, The Apothecary Diaries
+
+Sat, 23 May 2026 19:20:14 GMT
+
+https://collider.com/most-perfect-anime-shows-last-10-years-ranked/
+
+Jujutsu Kaisen, The Apothecary Diaries, and Astra Lost in Space are among the best anime of the last decade, but which series is the greatest?
+---------
+
+# HBO Max's Bold Fantasy Is the Gold Standard Every Other Video Game Adaptation Should Envy
+
+Movie, Mortal Kombat, Cary-Hiroyuki Tagawa, Martial Arts, video game movies
+
+Sat, 23 May 2026 19:17:15 GMT
+
+https://collider.com/mortal-kombat-1995-hbo-max-streaming-fantasy-video-game-adaptation/
+
+The 1995 Mortal Kombat movie remains an underrated video game adaptation thanks to its martial arts cast, fan service, and nostalgic charm.
+---------
+
+# 10 Years Later, Netflix Says Goodbye to Its Star-Studded 98-Minute Thriller
+
+Movie News, Money Monster, Jack O'Connell, George Clooney, Julia Roberts
+
+Sat, 23 May 2026 19:00:14 GMT
+
+https://collider.com/george-clooney-financial-thriller-money-monster-leaving-netflix-june-2026/
+
+The breakneck 2016 thriller Money Monster, starring Julia Roberts and George Clooney alongside a young Jack O'Connell, is leaving Netflix.
+---------
+
+# ‘SNL UK’ Is Already Fixing the American Show’s Most Exhausting Problem
+
+TV Features, Saturday Night Live UK, Saturday Night Live, Lorne Michaels, Comedy
+
+Sat, 23 May 2026 18:39:13 GMT
+
+https://collider.com/saturday-night-live-uk-lorne-michael-note-crowd-audience-set-meaning/
+
+Alongside its British comedy and references, SNL UK needs to embrace Lorne Michael's key note on performing for the live audience first.
+---------
+
+# The Beach Boys Song No One Thought Would Become Their Greatest — and Why It’s Now Their Most Covered Classic
+
+Movie Features, The Beach Boys, Pop, Rock, David Bowie
+
+Sat, 23 May 2026 18:31:13 GMT
+
+https://collider.com/the-beach-boys-best-song-god-only-knows-most-covered-song/
+
+The Beach Boys released God Only Knows, and it unexpectedly became their greatest song and most covered classic of all time.
+---------
+
+# Taylor Sheridan’s $350M Yellowstone Series Is Still the Best in Franchise History
+
+TV Features, 1923, Taylor Sheridan, Harrison Ford, Helen Mirren
+
+Sat, 23 May 2026 18:27:13 GMT
+
+https://collider.com/best-taylor-sheridan-yellowstone-series-1923/
+
+Taylor Sheridan's 1923 is a powerful Yellowstone prequel that delves into a tumultuous era in American history.
+---------
+
+# 'The Hunt for Red October': The Jack Ryan Gold Standard Amazon Just Can't Beat
+
+Features, The Hunt for Red October, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Sat, 23 May 2026 19:30:18 GMT
+
+https://movieweb.com/jack-ryan-amazon-the-hunt-for-red-october/
+
+Released 36 years ago, 'The Hunt for Red October', starring Sean Connery and Alec Baldwin, is still the best Jack Ryan movie.
+---------
+
+# 'Star Wars: Maul – Shadow Lord' Season 2 Can Make up for Recasting Maul's Voice Actor in 'Solo'
+
+Features, Star Wars, Peter Serafinowicz
+
+Sat, 23 May 2026 19:00:19 GMT
+
+https://movieweb.com/star-wars-original-maul-actor-apology/
+
+Sam Witwer has established himself as Star Wars' main Maul actor over the years, but he wasn't the first one to play the Zabrak. Read on for more.
+---------
+
+# ‘Wayward’: Netflix’s Unsettling Thriller Is a Perfect Weekend Binge Watch
+
+Features, Wayward, Netflix
+
+Sat, 23 May 2026 18:30:17 GMT
+
+https://movieweb.com/wayward-netflix-thriller-binge-watch/
+
+'Wayward,' the Netflix thriller series starring Toni Collette and Mae Martin, premiered on Netflix in September 2025.
+---------
+
 # Ladies First Interview with Director Thea Sharrock
 
 Movies, Ladies First
