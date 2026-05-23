@@ -1,3 +1,322 @@
+# Paramount+’s Yellowstone Spinoff Is Officially A Hit & More Shows To Binge This Weekend
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+, Masked Recs
+
+Sat, 23 May 2026 14:42:21 GMT
+
+https://screenrant.com/paramount-plus-shows-to-watch-now-weekend-binge/
+
+Best shows to binge on Paramount+ this Memorial Day weekend: Taylor Sheridan's Yellowstone spinoff Dutton Ranch, SkyMed season 4, and Nathan For You.
+---------
+
+# 2026 Marks The End Of An Era For Tom Hardy's MobLand
+
+TV, MobLand
+
+Sat, 23 May 2026 14:40:21 GMT
+
+https://screenrant.com/mobland-season-2-tom-hardy-fired-paramount-plus-final/
+
+2026 is reportedly confirmed to mark the end of an era for MobLand, the Tom Hardy crime thriller series that dominated Paramount+ charts.
+---------
+
+# Naruto Is Sabotaging Its Next Anime With One Disastrous Choice
+
+Anime, Naruto, Boruto: Naruto Next Generations, Boruto: Two Blue Vortex, Op-Ed
+
+Sat, 23 May 2026 14:30:20 GMT
+
+https://screenrant.com/naruto-next-anime-boruto-two-blue-vortex-worst-arc/
+
+Boruto: Two Blue Vortex just keeps getting worse.
+---------
+
+# Netflix's Best Stranger Things Replacement Officially Takes America By Storm
+
+TV, Masked Recs
+
+Sat, 23 May 2026 14:21:28 GMT
+
+https://screenrant.com/the-boroughs-netflix-streaming-success-may-2026/
+
+A Stranger Things replacement series produced by Matt and Ross Duffer has wasted no time becoming a Netflix streaming hit in the United States.
+---------
+
+# 10 Near-Perfect 80s Kids Movies That No One Remembers Today
+
+Movies, All Dogs Go to Heaven, Willow, The Last Unicorn, Time Bandits, The Black Cauldron, The Last Starfighter, Flight of the Navigator, The Brave Little Toaster, The Secret of NIMH
+
+Sat, 23 May 2026 14:15:21 GMT
+
+https://screenrant.com/great-80s-kids-movies-no-one-remembers/
+
+Many beloved movie franchises started in the 80s, but there are also plenty of great kids' movies from the era that are rarely mentioned today.
+---------
+
+# Only One Dragon Ball Anime Truly Lived Up To Akira Toriyama's Vision, So Why Was It So Controversial?
+
+Anime, Dragon Ball, Dragon Ball DAIMA
+
+Sat, 23 May 2026 14:00:19 GMT
+
+https://screenrant.com/dragon-ball-daima-akira-toriyama-vision-controversy/
+
+Despite its popularity, several Dragon Ball anime series failed to meet the creators' expectations, but one was more Dragon Ball than the rest.
+---------
+
+# GTA 6 Fans Up In Arms Over Pre-Order Price Controversy
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Sat, 23 May 2026 14:00:19 GMT
+
+https://screenrant.com/gta-6-pre-order-controversy-mistake/
+
+Grand Theft Auto 6 is one of the most susceptible games to leaks and rumors in recent memory, and fans are sad that one leak turned out to be false.
+---------
+
+# The 38 Best TV Shows On Hulu
+
+Streaming TV, Hulu
+
+Sat, 23 May 2026 14:00:19 GMT
+
+https://screenrant.com/best-shows-on-hulu/
+
+From side-splitting comedies to spine-chilling thrillers, Hulu has countless must-watch titles of every genre in its massive streaming library.
+---------
+
+# The Boys Creator Has 1 Major Regret From The Show’s 5-Season Run
+
+TV, The Boys
+
+Sat, 23 May 2026 13:53:25 GMT
+
+https://screenrant.com/the-boys-stillwell-death-regret-eric-kripke/
+
+EXCLUSIVE: The Boys creator Eric Kripke opens up about his regrets when it comes to the show as he looks back on characters that were killed off.
+---------
+
+# 10 Best Ben Affleck Movies You Didn't Know He Was In
+
+Movies, Ben Affleck
+
+Sat, 23 May 2026 13:45:20 GMT
+
+https://screenrant.com/ben-affleck-best-movies-underrated/
+
+Ben Affleck is one of the greatest actors of all time, but it is easy to forget his roles in these surprisingly strong and powerful films.
+---------
+
+# Boston Blue Boss Teases Season 2 'Driving Force' After Explosive Finale
+
+TV, Boston Blue
+
+Sat, 23 May 2026 14:31:14 GMT
+
+https://www.cbr.com/boston-blue-season-2-tease-cast-exit-details/
+
+Boston Blue's EP hints at what is to come in Season 2 of the Blue Bloods spinoff - including who might not be coming back.
+---------
+
+# Netflix's Lost in Space Is a Perfect Sci-Fi Remake
+
+TV, Lost In Space
+
+Sat, 23 May 2026 14:30:14 GMT
+
+https://www.cbr.com/netflix-lost-in-space-perfect-sci-fi-remake/
+
+This 21st-century sci-fi remake from Netflix deserved all the praise it received.
+---------
+
+# Anime's Worst Genre is Dying (& That Could Be a Good Thing)
+
+Anime, Isekai
+
+Sat, 23 May 2026 14:15:14 GMT
+
+https://www.cbr.com/anime-worst-genre-isekai-downturn-benefits/
+
+Isekai may finally be on the way out, but there's no telling what will replace it as one of the biggest genres in anime, manga and light novels.
+---------
+
+# Spider-Man: No Way Home Is the Best Blockbuster of the 2020s
+
+Movies, Spider-Man: No Way Home, Marvel Cinematic Universe, Disney+
+
+Sat, 23 May 2026 14:00:13 GMT
+
+https://www.cbr.com/spider-man-no-way-home-best-blockbuster-2020s/
+
+Many blockbusters have come and gone since 2020, but none have reached the same cheer-inducing heights as Spider-Man: No Way Home.
+---------
+
+# Dutton Ranch Star Reveals Her Favorite Details About Working on the Yellowstone Spinoff: 'Hitting Men'
+
+TV, Dutton Ranch, Yellowstone
+
+Sat, 23 May 2026 13:55:09 GMT
+
+https://www.cbr.com/dutton-ranch-star-likes-hitting-men-in-yellowstone-spinoff/
+
+The Yellowstone franchise's newest star gets candid about what it's like filming the new spinoff.
+---------
+
+# Steins;Gate Re:Boot Officially Confirms Streaming Ban
+
+Games, Steins;Gate
+
+Sat, 23 May 2026 13:45:14 GMT
+
+https://www.cbr.com/steinsgate-reboot-streaming-ban-official-confirmation/
+
+Fans of Steins;Gate won't be able to stream their favorite franchise's next title, and the internet is far from being for the drastic decision.
+---------
+
+# 33 Years Later, Sisko’s Greatest Deep Space Nine Line Still Defines All of Star Trek
+
+TV, Star Trek: Deep Space Nine, Sci-Fi, Star Trek
+
+Sat, 23 May 2026 13:30:13 GMT
+
+https://www.cbr.com/star-trek-ds9-best-sisko-line/
+
+In Star Trek: Deep Space Nine’s opening episode, Sisko's speech encapsulates Starfleet's pursuit of knowledge more so than any other in the franchise.
+---------
+
+# 5 Dragon Ball Villains Better Than Frieza
+
+Anime, Dragon Ball
+
+Sat, 23 May 2026 13:15:12 GMT
+
+https://www.cbr.com/dragon-ball-villains-better-than-frieza/
+
+A few antagonists surpassed the franchise’s most iconic enemy in surprising ways.
+---------
+
+# Netflix’s New 8-Part Sci-Fi Smash Is Already a Global Streaming Sensation
+
+TV News, The Boroughs, Duffer Brothers, Sci-Fi, Netflix
+
+Sat, 23 May 2026 14:36:20 GMT
+
+https://collider.com/netflix-new-sci-fi-series-the-boroughs-global-streaming-success-may-2026/
+
+Netflix’s new eight-part sci-fi series ‘The Boroughs’ is becoming a global streaming sensation as viewers discover the latest genre hit.
+---------
+
+# 10 Underrated Vampire Movies That Are Bangers From Start to Finish
+
+Movie, Vampire, Cronos, let me in, Thirst
+
+Sat, 23 May 2026 14:28:14 GMT
+
+https://collider.com/underrated-vampire-movies-bangers/
+
+From Daybreakers to Cronos, these underrated vampire movies reinvent bloodlust with style, dread, and emotion.
+---------
+
+# 33 Years Later, This Undersung Crime Thriller Is Still As Gripping as It Was the Day It Came Out
+
+Movie Features, Julia Roberts, The Pelican Brief, Denzel Washington, Thriller
+
+Sat, 23 May 2026 14:04:13 GMT
+
+https://collider.com/the-pelican-brief-denzel-washington-julia-roberts-crime-thriller/
+
+Julia Roberts and Denzel Washington's The Pelican Brief is a brilliant John Grisham adaptation that is still riveting in 2026.
+---------
+
+# Prime Video’s 5-Part Superhero Masterpiece Fails To Crack 1 Billion Minutes Watched for the Third Time in a Row
+
+TV News, The Boys, Prime Video, Karl Urban, Jack Quaid
+
+Sat, 23 May 2026 14:00:13 GMT
+
+https://collider.com/the-boys-season-5-streaming-milestone-failure-1-billion-minutes-prime-video/
+
+Prime Video’s superhero hit has missed the 1 billion minutes watched milestone for a third time, despite going out with a bang.
+---------
+
+# Only 3 Action Movies Are More Extreme Than 'Crank'
+
+Movie, Crank, Crank: High Voltage, The Boxer's Omen, The Night Comes For Us
+
+Sat, 23 May 2026 13:41:14 GMT
+
+https://collider.com/action-movies-more-extreme-than-crank/
+
+Crank, starring Jason Statham, is one of the most extreme action movies of all time, but a few are even wilder, like its sequel and The Boxer's Omen.
+---------
+
+# 35 Years Later, These Are the 10 Best Movies of 1991
+
+Movie, The Silence of the Lambs, JFK, Boyz n the Hood, Barton Fink
+
+Sat, 23 May 2026 13:23:13 GMT
+
+https://collider.com/best-movies-of-1991/
+
+Barton Fink, The Silence of the Lambs, and JFK are all among the best movies released in the great year for cinema that was 1991.
+---------
+
+# Spider-Man Officially Returns This Week With New Must-See Release
+
+TV News, Spider-Noir, Nicolas Cage, Superhero, Prime Video
+
+Sat, 23 May 2026 13:16:13 GMT
+
+https://collider.com/marvel-best-superhero-spider-man-spider-noir-release-date-prime-video-may-2026/
+
+The world’s most beloved superhero returns this week with Spider-Noir, bringing Spider-Man back in a new Marvel story.
+---------
+
+# 'The Mandalorian & Grogu's Dragonsnake Scene Improves Upon 'Return of the Jedi's Dated Rancor Sequence
+
+Features, The Mandalorian and Grogu, Star Wars, Return of the Jedi
+
+Sat, 23 May 2026 14:30:19 GMT
+
+https://movieweb.com/star-wars-mandalorian-grogu-dragonsnake-rotj-improvement/
+
+'Star Wars: Episode VI – Return of the Jedi' still holds up today. That doesn't mean it can't be bettered, though. Read on for more.
+---------
+
+# 'Big Trouble in Little China' Returns to Free Streaming June 1
+
+Movie News, Big Trouble in Little China, Kurt Russell, Coming/Leaving Streaming, Action, Tubi
+
+Sat, 23 May 2026 14:00:18 GMT
+
+https://movieweb.com/big-trouble-in-little-china-kurt-russell-streaming-tubi-june-2026/
+
+Kurt Russell's 1986 action thriller classic directed by John Carpenter remains one of the duo's best movies.
+---------
+
+# When 'The Mandalorian & Grogu' Will Stream on Disney+
+
+Features, The Mandalorian and Grogu, Disney+, Star Wars
+
+Sat, 23 May 2026 14:00:18 GMT
+
+https://movieweb.com/the-mandalorian-grogu-streaming-disney/
+
+Jon Favreau's  'The Mandalorian & Grogu' will stream on Disney+ after its theatrical run. Here's when you can expect it.
+---------
+
+# Leonardo DiCaprio's Crime Masterpiece 'Catch Me if You Can' Comes to Hulu
+
+Movie News, Catch Me If You Can, Coming/Leaving Streaming
+
+Sat, 23 May 2026 13:07:43 GMT
+
+https://movieweb.com/catch-me-if-you-can-hulu-streaming-june-2026/
+
+The film tells the unbelievable story of one of the most successful criminals in history.
+---------
+
 # Boruto's Best New Chapter Exposes The Manga's Biggest Flaw
 
 Anime, Naruto, Boruto: Naruto Next Generations, Boruto: Two Blue Vortex
