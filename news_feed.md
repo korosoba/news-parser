@@ -1,3 +1,223 @@
+# 5 DC Characters More Powerful Than Darkseid, Ranked
+
+Movies, DC Universe, Darkseid
+
+Sat, 23 May 2026 15:55:21 GMT
+
+https://screenrant.com/dc-characters-more-powerful-than-darkseid/
+
+Darkseid is DC’s ultimate tyrant, but these five DC movie characters possess powers so immense they could actually defeat him in battle.
+---------
+
+# 10 Pokémon Cards With Infamous Artwork
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Sat, 23 May 2026 15:46:21 GMT
+
+https://screenrant.com/pokemon-tcg-cards-artwork-bad-inappropriate/
+
+Explore the most infamous Pokémon cards, known for their terrible artwork that ranges from strange pairings to cultural insensitivity.
+---------
+
+# The Mandalorian And Grogu Box Office Debut Exceeds Expectations, Still One Of Star Wars' Worst
+
+Movies, The Mandalorian and Grogu, Star Wars, Box Office
+
+Sat, 23 May 2026 15:41:23 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-box-office-opening-weekend-domestic-chart-report/
+
+The projected domestic debut of The Mandalorian and Grogu is better than expected, but still lingers near the underwhelming Star Wars prequel Solo.
+---------
+
+# Paramount's 10-Part Spy Thriller Shows James Bond The Actor It Could've Had
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 15:32:18 GMT
+
+https://screenrant.com/the-agency-paramount-james-bond-michael-fassbender/
+
+James Bond 26 is just around the corner, but the iconic spy franchise has missed out on a 007 contender to this stylish Paramount thriller series.
+---------
+
+# Every Robin's Special Skill In DC Lore Explained
+
+Daily Deals, Robin, Nightwing, Red Hood, Batgirl
+
+Sat, 23 May 2026 15:32:18 GMT
+
+https://screenrant.com/every-robin-special-skill-explained-dc-lore/
+
+Batman's sidekicks need to have special skills, but they don't all have the same ones.
+---------
+
+# 10 Most Universally Beloved Thriller Movies Of All Time
+
+Movies, Thriller
+
+Sat, 23 May 2026 15:32:18 GMT
+
+https://screenrant.com/thriller-movies-universally-beloved-all-time/
+
+Even the best movies in history have their detractors, but these 10 thrillers have no haters and are the most beloved films in their genre.
+---------
+
+# Netflix's Mating Season Debuts To Solid Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Sat, 23 May 2026 15:29:32 GMT
+
+https://screenrant.com/netflix-mating-season-rotten-tomatoes-score/
+
+A raunchy new comedy series is now available to stream on Netflix, and the show is off to a solid start with critics on Rotten Tomatoes.
+---------
+
+# Jason Voorhees Officially Returns In Chilling New Trailer
+
+Gaming, Dead by Daylight, Friday The 13th, Triple-A Games, PC
+
+Sat, 23 May 2026 15:29:26 GMT
+
+https://screenrant.com/dead-by-daylight-friday-13-jason-voorhees-trailer/
+
+At long last, the Friday the 13th franchise is gearing up again, and the next deadly appearance of Jason Voorhees has finally been revealed.
+---------
+
+# Obsession Box Office Set For A Week 2 Drop So Small It's Almost Unheard Of
+
+Movies, Obsession, Box Office, Horror
+
+Sat, 23 May 2026 15:26:52 GMT
+
+https://screenrant.com/obsession-2026-movie-box-office-week-2-domestic-drop/
+
+Obsession's week 2 drop at the domestic box office is not only one of the smallest ever for a horror movie, it's one of the smallest in history.
+---------
+
+# Betty Boop Movie Officially Moving Forward With Emmy-Winning Star
+
+Movies, Quinta Brunson
+
+Sat, 23 May 2026 15:06:35 GMT
+
+https://screenrant.com/betty-boop-movie-quinta-brunson-development/
+
+Betty Boop is getting her own movie possibly akin to Barbie, with an award-winning creator and actor set to star as the iconic flapper.
+---------
+
+# Stephen Colbert's The Late Show Goes Out on a High Note & Sets Viewership Record
+
+TV, The Late Show with Stephen Colbert
+
+Sat, 23 May 2026 15:48:24 GMT
+
+https://www.cbr.com/stephen-colbert-the-late-show-viewership-record/
+
+After President Donald Trump claimed Stephen Colbert had "no ratings," the canceled CBS talk show scored a major viewership record.
+---------
+
+# Netflix's Nemesis Is Perfect for Blacklist Fans
+
+TV, Nemesis, Netflix
+
+Sat, 23 May 2026 15:32:17 GMT
+
+https://www.cbr.com/netflix-nemesis-the-blacklist-replacement/
+
+Netflix has found a perfect replacement for The Blacklist fans who were missing the cat-and-mouse chase thriller storyline.
+---------
+
+# 10 Strongest One Piece Characters In the Elbaph Arc
+
+Anime, One Piece, Shonen
+
+Sat, 23 May 2026 15:15:13 GMT
+
+https://www.cbr.com/one-piece-most-powerful-characters-elbaph-arc-ranked-list/
+
+Ancient bloodlines, immortality, and Conqueror's Haki collide in a battle for supremacy in the latest One-Piece arc that redefines strength itself.
+---------
+
+# 5 Underrated Star Wars Games That Are Perfect From Start to Finish
+
+Games, Star Wars, Vader Immortal: A Star Wars VR Series - Episode I
+
+Sat, 23 May 2026 15:00:14 GMT
+
+https://www.cbr.com/underrated-star-wars-games-perfect-from-start-to-finish/
+
+Out of the hundreds of Star Wars games that have been released, there are a few that aren't just underrated, but a must-play for fans.
+---------
+
+# 'The Boroughs' Creators Address the Biggest Unanswered Questions From Season 1 [Exclusive]
+
+Exclusives, The Boroughs, Netflix, Duffer Brothers, Stranger Things
+
+Sat, 23 May 2026 15:25:08 GMT
+
+https://collider.com/the-boroughs-netflix-season-1-ending-meaning-peach-pitt-mothers-blood-explained/
+
+Discover how the Duffer Brothers shaped The Boroughs, explore Season 1's unanswered questions, and delve into the show's themes and characters.
+---------
+
+# HBO's 2-Part DC Superhero Series Is a Masterpiece That Puts 'The Boys' to Shame
+
+TV Features, Peacemaker, HBO, James Gunn, John Cena
+
+Sat, 23 May 2026 15:23:14 GMT
+
+https://collider.com/peacemaker-hbo-dc-superhero-series-masterpiece/
+
+The DC series Peacemaker delves deep into the complexities of an antihero's journey, setting a new standard in the superhero genre.
+---------
+
+# Will Smith Completely Changed The Way One of Hollywood's Hottest Directors Creates Stories
+
+Exclusives, I Love Boosters, Boots Riley, Neon, Keke Palmer
+
+Sat, 23 May 2026 15:19:22 GMT
+
+https://collider.com/boots-riley-i-love-boosters-will-smith-influence-interview/
+
+Boots Riley shares his thoughts on data centers, AI, and his unique philosophy to storytelling for his new film, I Love Boosters.
+---------
+
+# New Star Wars Movie Tops 2026’s Biggest Sci-Fi Release at the Box Office, But Eyes Underwhelming Debut
+
+Movie News, The Mandalorian and Grogu, Star Wars, Box Office, Project Hail Mary
+
+Sat, 23 May 2026 15:15:14 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-box-office-debut-80-million/
+
+The Mandalorian and Grogu opened ahead of major sci-fi competition at the box office. See how much it’s made.
+---------
+
+# The 8 Most Famous Quotes From The Blues Brothers
+
+Movie Lists, The Blues Brothers
+
+Sat, 23 May 2026 15:00:20 GMT
+
+https://movieweb.com/most-famous-quotes-from-the-blues-brothers/
+
+Relive the funniest and most famous quotes featured in the classic '80s comedy 'The Blues Brothers.'
+---------
+
+# 'The Rookie': 8-Season Action Thriller With Solid Rotten Tomatoes Score Is a Must-Watch
+
+Features, The Rookie, Thriller
+
+Sat, 23 May 2026 15:00:19 GMT
+
+https://movieweb.com/abc-the-rookie-action-thriller-series-renewed/
+
+Network TV dramas are hit or miss, but ABC's 'The Rookie' has proven to be one of the most underrated gems of its time.
+---------
+
 # Paramount+’s Yellowstone Spinoff Is Officially A Hit & More Shows To Binge This Weekend
 
 Streaming TV, Paramount Plus, What to Watch on Paramount+, Masked Recs
