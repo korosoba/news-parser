@@ -1,3 +1,245 @@
+# Netflix’s New Lovecraftian Horror Show Can Finally Break 1 Adaptation Curse
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 23:45:08 GMT
+
+https://screenrant.com/netflix-bloody-smart-lovecraftian-junji-ito-curse/
+
+A new Lovecraftian horror show will soon premiere on Netflix, and it is hard not to see how it could potentially break one major adaptation curse.
+---------
+
+# One Of Crunchyroll's Biggest Competitors Just Landed 2026's Best New Shonen Anime
+
+Anime, NIPPON SANGOKU: The Three Nations of the Crimson Sun
+
+Sat, 23 May 2026 23:30:21 GMT
+
+https://screenrant.com/crunchyroll-rival-prime-video-nippon-sangoku-best-shonen/
+
+Crunchyroll almost always has the best anime series of the season, but they missed out on the best shonen of Summer 2026 in a major way.
+---------
+
+# One Star Trek: The Original Series Episode Shouldn't Be Considered Canon
+
+Classic TV, Star Trek: The Original Series, Star Trek
+
+Sat, 23 May 2026 23:30:21 GMT
+
+https://screenrant.com/star-trek-the-original-series-assignment-earth-non-canon/
+
+There are a lot of great Star Trek: The Original Series episodes, but there's a specific one that's a weird entry in the show and shouldn't be canon.
+---------
+
+# 10 Star Trek: The Original Series Episodes Everyone Should Watch
+
+TV, Star Trek: The Original Series, Quiz CV
+
+Sat, 23 May 2026 23:15:20 GMT
+
+https://screenrant.com/star-trek-episodes-everyone-should-watch/
+
+In lieu of watching all 79 episodes of Star Trek: The Original Series, everyone should see these 10 episodes at least once in their lifetime.
+---------
+
+# 2023's Best Anime Is Finally On Crunchyroll, And It's A Must-Watch
+
+Anime, Oshi No Ko, Crunchyroll
+
+Sat, 23 May 2026 23:01:20 GMT
+
+https://screenrant.com/crunchyroll-best-anime-2023-oshi-no-ko/
+
+When this series first dropped four years ago, people were shocked they couldn't watch it on Crunchyroll. Now, that has all changed (for the better).
+---------
+
+# 10 Best Magical Realist TV Shows, Ranked
+
+Classic TV
+
+Sat, 23 May 2026 23:01:20 GMT
+
+https://screenrant.com/magical-realist-tv-shows-best-all-time/
+
+While few have done it, some TV shows have successfully incorporated magical realism into their narratives, creating memorable and layered stories.
+---------
+
+# The Best Western For 6 Of The Genre's Top Stars On Prime Video
+
+Movies, Western
+
+Sat, 23 May 2026 23:01:20 GMT
+
+https://screenrant.com/westerns-best-movie-each-star-prime-video-watch/
+
+Several of the biggest Western stars of all time have at least one of their best contributions to the genre available to watch on Prime Video.
+---------
+
+# Netflix's Philip K. Dick Adaptation Fills The Void After Dune 3
+
+Streaming TV, Dune: Part Three, Dune
+
+Sat, 23 May 2026 23:00:57 GMT
+
+https://screenrant.com/netflix-philip-k-dick-dune-three/
+
+Netflix is adapting a cult classic Philip K. Dick book, and it is hard not to see how the upcoming show could fill the void Dune will leave behind.
+---------
+
+# Netflix's Near-Perfect Sci-Fi Series Was So Good, It Changed Streaming Forever
+
+Streaming TV, Masked Recs
+
+Sat, 23 May 2026 22:45:22 GMT
+
+https://screenrant.com/stranger-things-netflix-success-changed-streaming/
+
+Netflix's most powerful series demonstrated what streaming TV is capable of, restoring the potential of original concepts in the modern landscape.
+---------
+
+# Stars Wars & Witch Hat Atelier: How Coco is the New Anakin Skywalker
+
+Anime, Star Wars, Witch Hat Atelier
+
+Sat, 23 May 2026 23:45:15 GMT
+
+https://www.cbr.com/anakin-skywalker-star-wars-coco-witch-hat-atelier-shirahama-connection/
+
+The spirit of Star Wars' most tragic character becomes the center of a riveting fantasy anime inspired by the long-lived sci-fi franchise.
+---------
+
+# Matt Reeves' 8-Episode Tales From the Loop Is Becoming a Sci-Fi Cult Classic
+
+TV, Tales from the Loop, Sci-Fi, Prime Video
+
+Sat, 23 May 2026 23:30:17 GMT
+
+https://www.cbr.com/matt-reeves-sci-fi-tales-from-the-loop-cult-classic/
+
+Tales from the Loop is one of the most criminally overlooked sci-fi shows of the 2020s, which is thankfully starting to find the audience it deserves.
+---------
+
+# 10 My Hero Academia Characters Who Deserved Better Writing
+
+Anime, My Hero Academia
+
+Sat, 23 May 2026 23:15:13 GMT
+
+https://www.cbr.com/my-hero-academia-characters-deserved-better-writing/
+
+These characters in My Hero Academia had far more potential than the story ultimately explored.
+---------
+
+# Stephen King's Needful Things Is a Must-Watch for Obsession Fans
+
+Movies, Needful Things, Stephen King, Obsession, Horror
+
+Sat, 23 May 2026 23:01:00 GMT
+
+https://www.cbr.com/forgotten-stephen-king-thriller-needful-things-just-like-obsession/
+
+Obsession is one of the best horror movies of the year, and Stephen King's Needful Thing is a prefect for fans looking for more.
+---------
+
+# 6 Forgotten '80s Sci-Fi TV Shows That Are Perfect in 2026
+
+TV, Sci-Fi, Amazing Stories, Red Dwarf
+
+Sat, 23 May 2026 23:01:00 GMT
+
+https://www.cbr.com/best-forgotten-80s-sci-fi-tv-shows-list/
+
+From buddy cop dramas to comedic spoofs, these are some of the biggest and best forgotten sci-fi series of the 1980s.
+---------
+
+# Transformers Reveals First-Look at New Missing Link Ironhide for Fall 2026
+
+Anime, Transformers, merchandise, The Transformers
+
+Sat, 23 May 2026 23:01:00 GMT
+
+https://www.cbr.com/transformers-takara-tomy-missing-link-c-14-ironhide/
+
+Takara is rolling out in a new direction for Transformers Missing Link, with two upcoming Autobot toys going against the grain for the line's concept.
+---------
+
+# Jason Statham’s Savage Revenge Thriller Is Quietly Crushing Streaming Charts 15 Years Later
+
+Movie News, The Mechanic, Jason Statham, Action, Ben Foster
+
+Sat, 23 May 2026 23:45:16 GMT
+
+https://collider.com/jason-statham-revenge-thriller-the-mechanic-streaming-success-paramount-plus-may-2026/
+
+15 years later, Jason Statham's hit The Mechanic, which also stars Ben Foster, has found a new life on streaming.
+---------
+
+# This Shocking 6-Part Mystery Thriller on Netflix Is the Perfect Weekend Binge for 'Scandal' Fans
+
+TV Features, How to Get Away With Murder, Viola Davis, Thriller, Hulu
+
+Sat, 23 May 2026 23:36:15 GMT
+
+https://collider.com/how-to-get-away-with-murder-mystery-thriller-weekend-binge/
+
+Shonda Rhimes' How to Get Away with Murder features complex characters and shocking twists that keep viewers engaged through its 6 seasons.
+---------
+
+# Glen Powell's 10/10 Disaster Sequel Is Still a Streaming Juggernaut 2 Years Later
+
+Movie News, Glen Powell, Hulu, Twisters, Streaming
+
+Sat, 23 May 2026 23:30:17 GMT
+
+https://collider.com/glen-powell-blockbuster-sequel-twisters-streaming-success-hulu-may-2026/
+
+Glen Powell's blockbuster survival sequel Twisters is storming the U.S. streaming charts. Read on for more details.
+---------
+
+# Hulu's Hottest Series Is Officially Steaming Up Streaming With New Episodes
+
+TV News, Rivals, Hulu, Streaming, Aidan Turner
+
+Sat, 23 May 2026 23:15:14 GMT
+
+https://collider.com/hulu-david-tennant-aidan-turner-hottest-series-rivals-streaming-success-may-2026/
+
+Hulu's steamiest series has returned to the streaming charts. Here's what you should know about Rivals.
+---------
+
+# Taylor Sheridan's Official 'Yellowstone' Sequel Is Taking Over the World
+
+TV News, Yellowstone, Dutton Ranch, Paramount Plus, Taylor Sheridan
+
+Sat, 23 May 2026 23:01:00 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-western-sequel-dutton-ranch-streaming-success-paramount-plus-may-2026/
+
+Yellowstone continues to prove it is one of TV’s biggest franchises following the debut of its sequel series, Dutton Ranch.
+---------
+
+# 10 Most Perfect Action Thrillers of the Last 40 Years, Ranked
+
+Movie, Action, Thriller, The Dark Knight, One Battle After Another
+
+Sat, 23 May 2026 22:52:21 GMT
+
+https://collider.com/most-perfect-action-thrillers-last-40-years-ranked/
+
+The Dark Knight, One Battle After Another, and Terminator 2: Judgment Day are all among the best, most perfect action thrillers of the last 40 years.
+---------
+
+# Quentin Tarantino's Epic Crime Masterpiece Is a Late-Night Favorite Ahead of Sequel
+
+Movie News, Quentin Tarantino, Once Upon a Time in Hollywood, Hulu, Streaming
+
+Sat, 23 May 2026 22:45:14 GMT
+
+https://collider.com/quentin-tarantino-epic-crime-masterpiece-once-upon-a-time-in-hollywood-streaming-success-hulu-may-2026/
+
+Quentin Tarantino's epic masterpiece Once Upon a Time in Hollywood is a streaming hit before the sequel starring Brad Pitt.
+---------
+
 # All 3 Actors Playing Harry Bosch In 2026
 
 Streaming TV, Bosch, Ballard, Bosch: Start of Watch
