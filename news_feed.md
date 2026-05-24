@@ -1,3 +1,256 @@
+# Netflix's The Hunting Wives Seasons 2 & 3 Get Exciting Update From Star
+
+TV, The Hunting Wives
+
+Sun, 24 May 2026 23:51:13 GMT
+
+https://screenrant.com/netflixs-the-hunting-wives-seasons-2-3-get-exciting-update-from-star/
+
+Netflix's The Hunting Wives star Dermot Mulroney reveals that season 2 has wrapped and season 3 is in development, hinting at new storylines.
+---------
+
+# Marvel Officially Confirms Minimalist Thing Costume For Marvel Cosmic Invasion DLC
+
+Comics, Marvel, Fantastic Four, MARVEL Cosmic Invasion
+
+Sun, 24 May 2026 23:40:46 GMT
+
+https://screenrant.com/marvel-cosmic-invasion-thing-costume-design/
+
+The Thing has been shadow-dropped as a playable character in Marvel Cosmic Invasion, and his alternate palettes include a lot of deep-cut references.
+---------
+
+# Stranger Things Meets She-Ra In Your New Favorite Metal Band
+
+Music, Masked Recs
+
+Sun, 24 May 2026 23:30:19 GMT
+
+https://screenrant.com/stranger-things-she-ra-castle-rat-metal-band/
+
+Some metal bands are instantly recognizable, and one is currently dominating festival stages with its fantasy influences and distinctive costumes.
+---------
+
+# 10 Greatest Manga One-Shots of All Time
+
+Anime
+
+Sun, 24 May 2026 23:30:19 GMT
+
+https://screenrant.com/greatest-manga-one-shots-ever/
+
+Manga one-shots are a category deserving of their own special attention, and these are some of the best ever released.
+---------
+
+# 4 Years Later, Star Trek: Strange New Worlds Is Officially Making A Huge Villain
+
+Streaming TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 24 May 2026 23:20:36 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-no-main-villain/
+
+Star Trek: Strange New Worlds season 4 will take a big step in regards to its villains to bring the prequel closer to Star Trek: The Original Series.
+---------
+
+# 8 Biggest Unanswered Questions After Watching The Mandalorian & Grogu
+
+Star Wars, The Mandalorian and Grogu
+
+Sun, 24 May 2026 23:15:20 GMT
+
+https://screenrant.com/mandalorian-grogu-8-biggest-unanswered-questions-star-wars/
+
+After watching The Mandalorian & Grogu, there are some lingering questions about the events of the new Star Wars movie and the franchise's future.
+---------
+
+# Netflix's 8-Part Anime Adaptation Divided Fans, But It's Already Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 23:02:19 GMT
+
+https://screenrant.com/netflix-avatar-the-last-airbender-renewed-more-seasons/
+
+Live-action anime adaptations are notoriously tricky to get right, but sometimes, even the most divisive shows can score dual-season renewals.
+---------
+
+# 10 Most Devastating Injuries Wolverine Has Survived in Official Lore
+
+Comics, Wolverine
+
+Sun, 24 May 2026 23:00:20 GMT
+
+https://screenrant.com/times-batman-beat-superman-canon/
+
+Wolverine's epithet as Marvel's 'Pain Eater' has almost never been in doubt but these specific instances do more than prove it.
+---------
+
+# Red Dead Redemption 2 Players Can Now Explore Guarma In This Map Expansion
+
+Gaming, Red Dead Redemption 2
+
+Sun, 24 May 2026 23:00:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-new-guarma-map-mod/
+
+Immerse yourself in an expanded Guarma experience with 'The Aftermath of Guarma' mod for Red Dead Redemption 2.
+---------
+
+# 10 Best Naruto Episodes of All Time
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 24 May 2026 23:45:12 GMT
+
+https://www.cbr.com/best-naruto-episodes-all-time/
+
+Many of Naruto's most outstanding episodes capture a sense of emotional depth that outshines shonen anime across the board.
+---------
+
+# 5 Most Perfect Space Movies of the Last 50 Years, Ranked
+
+Movies, Interstellar, Alien, The Martian
+
+Sun, 24 May 2026 23:30:13 GMT
+
+https://www.cbr.com/perfect-space-movies-of-the-last-50-years-list/
+
+Sci-fi films have dominated cinema for decades, but these stories in space are the creme of the crop.
+---------
+
+# Battlestar Galactica's Pilot Is Still the Darkest in TV History
+
+TV, Sci-Fi, Battlestar Galactica
+
+Sun, 24 May 2026 23:30:13 GMT
+
+https://www.cbr.com/battlestar-galactica-darkest-sci-fi-pilot-all-time/
+
+Ronald D. Moore's Battlestar Galactica re-imagining delivered the darkest series premiere of all time.
+---------
+
+# 10 Best Anime With Irredeemable Villains
+
+Anime, Demon Slayer, Chainsaw Man, Jujutsu Kaisen, shonen anime
+
+Sun, 24 May 2026 23:15:14 GMT
+
+https://www.cbr.com/anime-irredeemable-villains/
+
+Some of the best anime series in history have villains that are irredeemable, and these ten antagonists are among the worst offenders of all time.
+---------
+
+# The Perfect Blair Witch Project Replacement Is Coming to HBO Max Next Month
+
+Movies, undertone
+
+Sun, 24 May 2026 23:00:12 GMT
+
+https://www.cbr.com/undertone-streaming-hbo-max-june-2026/
+
+A must-see supernatural horror flick is soon heading to HBO Max.
+---------
+
+# 5 Best Hidden Cameos in Star Wars Movies
+
+Movies, Star Wars
+
+Sun, 24 May 2026 23:00:12 GMT
+
+https://www.cbr.com/secret-star-wars-cameos-list/
+
+Star Wars has many great traditions, and one of them is sneaking secret celebrity cameos into the most unexpected places.
+---------
+
+# 'The Last of Us' Meets 'Ex Machina' in Margot Robbie’s Forgotten Sci-Fi Thriller Leaving Streaming
+
+Movie News, Z For Zachariah, Margot Robbie, The Last of Us, Ex Machina
+
+Sun, 24 May 2026 23:45:12 GMT
+
+https://collider.com/margot-robbie-sci-fi-thriller-z-for-zachariah-leaving-streaming-prime-video-may-31-2026/
+
+Margot Robbie’s bleak sci-fi drama Z for Zachariah is leaving streaming soon, making now the time to revisit it. Find out how much time you have left.
+---------
+
+# Tom Hanks’ Historical Thriller Is the Perfect Late-Night Watch for WWII Movie Fans
+
+Movie News, Greyhound, Tom Hanks, World War II, Apple TV
+
+Sun, 24 May 2026 23:31:14 GMT
+
+https://collider.com/tom-hanks-historical-ww2-thriller-greyhound-streaming-success-apple-tv-may-2026/
+
+Tom Hanks’ WWII thriller Greyhound has quietly become one of the most gripping modern war movies on streaming. Find out where to watch it here.
+---------
+
+# Apple TV’s Underrated 8-Part Sci-Fi Is the Perfect Binge Before Season 2 Premieres
+
+TV Features, Colin Farrell, Sugar, Amy Ryan, Apple TV
+
+Sun, 24 May 2026 23:28:13 GMT
+
+https://collider.com/apple-tv-sugar-underrated-sci-fi-perfect-binge-before-season-2/
+
+Apple TV's Sugar pairs a unique blend of noir and sci-fi, as a private investigator's case takes on an unexpected otherworldly twist.
+---------
+
+# Tom Hanks Nearly Died Filming ‘Cast Away’
+
+Movie Features, Cast Away, Tom Hanks, Robert Zemeckis, Helen Hunt
+
+Sun, 24 May 2026 23:25:13 GMT
+
+https://collider.com/tom-hanks-almost-died-filming-cast-away/
+
+Cast Away's production was not without its challenges, as Tom Hanks nearly died from a leg infection during filming.
+---------
+
+# Forget ‘Sicario,’ Taylor Sheridan’s Brutal Survival Thriller Is the Perfect Late-Night Watch
+
+Movie News, Taylor Sheridan, Those Who Wish Me Dead, Angelina Jolie, Thriller
+
+Sun, 24 May 2026 23:15:14 GMT
+
+https://collider.com/taylor-sheridan-sicario-replacement-survival-thriller-those-who-wish-me-dead-streaming-success-vod-may-2026/
+
+Taylor Sheridan’s Those Who Wish Me Dead remains one of his most underrated thrillers, and it’s finding new life on streaming. Find out more below.
+---------
+
+# Ridley Scott’s Forgotten 10-Part Horror Saga Has Returned as a Streaming Sensation
+
+Movie News, The Terror, Ridley Scott, Jared Harris, AMC+
+
+Sun, 24 May 2026 23:00:13 GMT
+
+https://collider.com/ridley-scott-horror-series-the-terror-streaming-success-amc-plus-may-2026/
+
+Ridley Scott’s forgotten horror series The Terror has returned to streaming charts as viewers rediscover the chilling AMC drama. Find out more here.
+---------
+
+# 11 Greatest Fantasy Books of the 21st Century
+
+Movie Lists, Fantasy
+
+Sun, 24 May 2026 23:30:18 GMT
+
+https://movieweb.com/greatest-fantasy-books-21st-century/
+
+Fantasy lovers, look no further. These books have pushed Professor Tolkien's genre into the 21st century and proved its place in a brave new world.
+---------
+
+# Amazon's 'Jack Ryan: Ghost War' Proves We Need 'Reacher' Season 4 More Than Ever
+
+Features, Reacher, Prime Video, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Sun, 24 May 2026 23:00:18 GMT
+
+https://movieweb.com/jack-ryan-ghost-war-proves-reacher-season-4/
+
+Prime Video's latest attempt to fill the 'Reacher' void proves Season 4 of Alan Ritchson's hit action series can't come fast enough.
+---------
+
 # James Cameron's Avatar Movies Are Officially Switching Genres In 2029
 
 Movies, Avatar 4, Avatar
