@@ -1,3 +1,168 @@
+# The Legend Of Zelda: Skyward Sword Prequel Backed By Gamers
+
+Gaming, The Legend of Zelda: Skyward Sword, The Legend of Zelda
+
+Sun, 24 May 2026 11:45:20 GMT
+
+https://screenrant.com/zelda-skyward-sword-prequel-potential/
+
+The Legend Of Zelda: Skyward Sword is still the earliest game in the series chronologically, and fans want to go further back still.
+---------
+
+# Assassin’s Creed Ancient Rome RPG Unites Gamers
+
+Gaming, Assassin's Creed
+
+Sun, 24 May 2026 11:31:20 GMT
+
+https://screenrant.com/assassins-creed-ancient-rome-setting-gamer-hopes/
+
+Fans speculate about an upcoming Assassin's Creed game set in Ancient Rome, covering a vast time period and historical events.
+---------
+
+# New D&D Subclass Fixes Everything Wrong With This Character Option
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 24 May 2026 11:00:20 GMT
+
+https://screenrant.com/dungeons-dragons-new-subclass-arcane-archer-fighter-dnd/
+
+A rework for an underpowered subclass in Dungeons and Dragons is coming to the TTRPG pretty soon, and it may fix all the current problems.
+---------
+
+# Star Wars Fan Are Wrong About the Force
+
+Movies, Star Wars, Star Wars: Episode I - The Phantom Menace
+
+Sun, 24 May 2026 11:30:16 GMT
+
+https://www.cbr.com/star-wars-fan-are-wrong-about-the-force/
+
+Since The Phantom Menace introduced midi-chlorians to Star Wars, misunderstanding this concept has led fans to make wrong assumptions about the Force.
+---------
+
+# 5 Mandalorians Stronger Than Din Djarin
+
+TV, Star Wars, The Mandalorian
+
+Sun, 24 May 2026 11:30:16 GMT
+
+https://www.cbr.com/mandalorians-stronger-than-din-djarin-list/
+
+The Mandalorian's Din Djarin is one of the coolest and most skilled Mandalorians in Star Wars, but he's only the start.
+---------
+
+# Marshals Season 2 Gets Fantastic Update From Star Ahead of Season 1 Finale: 'Even Better Season'
+
+TV, Marshals
+
+Sun, 24 May 2026 11:00:13 GMT
+
+https://www.cbr.com/marshals-season-2-update-release-window-logan-marshall-green/
+
+The new Yellowstone spin-off is already renewed for a second season, and it's promising to be better than ever.
+---------
+
+# 30 Years Later, Ryan Gosling's Strangest Sci-Fi Role Will Make You Do a Double Take
+
+TV Features, PSI Factor: Chronicles of the Paranormal, Ryan Gosling, Project Hail Mary, Dan Aykroyd
+
+Sun, 24 May 2026 11:57:17 GMT
+
+https://collider.com/ryan-gosling-psi-factor-cameo-project-hail-mary/
+
+This forgotten Canadian sci-fi series featured a young Ryan Gosling encountered terrifying forces from outer space before Project Hail Mary.
+---------
+
+# HBO Max Subscribers Flock to New Divisive 6-Part Thriller Ahead of This Week's Finale
+
+TV News, Half Man, HBO Max, Drama, Thriller
+
+Sun, 24 May 2026 11:45:12 GMT
+
+https://collider.com/hbo-max-divisive-thriller-series-half-man-streaming-success-finale-may-28-2026/
+
+HBO Max's new thriller has courted controversy for its approach to sensitive themes, but it's a streaming hit. Get all the details here.
+---------
+
+# 10 Awful Fantasy Movies That Tried To Be the Next ‘Lord of the Rings’
+
+Movie, The Lord of the Rings, The Huntsman: Winter's War, The Golden Compass, The Brothers Grimm
+
+Sun, 24 May 2026 11:44:13 GMT
+
+https://collider.com/worst-fantasy-movies-that-tried-to-be-lord-of-the-rings/
+
+Critically lambasted films like Eragon and Warcraft failed chasing fantasy franchise glory after the genre-defining The Lord of the Rings.
+---------
+
+# Say Goodbye To Netflix’s Best 5-Part Weekend Binge Before It Exits the Streamer in June
+
+TV Features, Kim's Convenience, Netflix, Simu Liu, Series
+
+Sun, 24 May 2026 11:43:14 GMT
+
+https://collider.com/kims-convenience-leaving-netflix-june-2026/
+
+Kim’s Convenience leaves Netflix in June. Here’s why the beloved sitcom became one of the streamer’s easiest binges.
+---------
+
+# Russell Crowe's Epic 'Rocky' Replacement Is About To Be a Knockout on Netflix
+
+Movie News, Cinderella Man, Russell Crowe, Ron Howard, Netflix
+
+Sun, 24 May 2026 11:31:14 GMT
+
+https://collider.com/russell-crowe-rocky-replacement-boxing-movie-cinderella-man-streaming-netflix-june-2026/
+
+Russell Crowe's critically acclaimed sports masterpiece, Cinderella Man, is heading to streaming. Find out when you can watch it.
+---------
+
+# 10 HBO Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, HBO, Game Of Thrones, The Sopranos, The White Lotus
+
+Sun, 24 May 2026 11:10:16 GMT
+
+https://collider.com/hbo-shows-masterpieces-first-10-minutes/
+
+Certain HBO shows kick off in amazing fashion and then never let up, including series like Game of Thrones, The Sopranos, and The White Lotus.
+---------
+
+# Boots Riley's 'I Love Boosters' Is a "Blueprint for a Revolution" Inside a Star-Powered Trojan Horse
+
+Exclusives, I Love Boosters, Taylour Paige, Boots Riley, Eiza Gonzalez
+
+Sun, 24 May 2026 11:00:13 GMT
+
+https://collider.com/i-love-boosters-explained-eiza-gonzalez-taylour-paige-naomi-ackie-poppy-liu-interview/
+
+Taylour Paige, Eiza González, Naomi Ackie, and Poppy Liu discuss the film's surreal tone, social commentary, and what audiences misunderstand most.
+---------
+
+# Ridley Scott’s Most Anticipated Sci-Fi Thriller in Years Officially Lands This Summer
+
+Movie News, The Dog Stars, Ridley Scott, Sci-Fi, Action
+
+Sun, 24 May 2026 11:00:13 GMT
+
+https://collider.com/ridley-scott-sci-fi-thriller-the-dog-stars-release-date-summer-plot-details-august-28-2026/
+
+With a star-studded cast and a veteran director, this year's most anticipated sci-fi thriller has a release date. Get all the details here.
+---------
+
+# 10 Lord of the Rings Characters More Powerful Than Gandalf, Ranked
+
+Movie, The Lord of the Rings: The Rings of Power, The Lord of the Rings, The Hobbit, Lord of the Rings: The Fellowship of the Ring
+
+Sun, 24 May 2026 10:59:13 GMT
+
+https://collider.com/lord-of-the-rings-characters-stronger-than-gandalf-ranked/
+
+Discover the strongest characters in The Lord of the Rings who outrank Gandalf in power, from Valar to dragons, and more.
+---------
+
 # DC's New Batman Series Sets Up The Next DC Animated Universe
 
 Streaming TV, DC Animated Universe
