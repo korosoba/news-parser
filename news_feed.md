@@ -1,3 +1,278 @@
+# Recasting Indiana Jones With Karl Urban Gets Definitive Response From The Boys Star
+
+Movies, Indiana Jones, Karl Urban
+
+Sun, 24 May 2026 14:44:53 GMT
+
+https://screenrant.com/indiana-jones-recasting-karl-urban-response/
+
+As the future of the Indiana Jones franchise remains uncertain, Karl Urban directly responds to whether he would ever take over the iconic role.
+---------
+
+# Sebastian Stan Reveals He's Playing "Many Roles" in The Batman 2
+
+Movies, The Batman Part II
+
+Sun, 24 May 2026 14:41:51 GMT
+
+https://screenrant.com/the-batman-part-2-sebastian-stan-many-roles-teased/
+
+The Batman: Part II is getting many new faces, and some characters may have two faces as Sebastian Stan teases his "many roles" in the new movie.
+---------
+
+# The Mandalorian And Grogu’s Clone Wars Movie Callback Is The Best Kind Of Fan Service
+
+Star Wars, The Mandalorian and Grogu
+
+Sun, 24 May 2026 14:40:20 GMT
+
+https://screenrant.com/mandalorian-grogu-clone-wars-rotta-hutt-fan-service/
+
+The new Star Wars movie is full of Easter eggs, callbacks, and references to past films in the franchise, but one in particular shines through.
+---------
+
+# Dexter: Resurrection Subtly Reveals Two Secret Character Returns In Production Update
+
+TV, Dexter: Resurrection
+
+Sun, 24 May 2026 14:34:54 GMT
+
+https://screenrant.com/dexter-resurrection-marcos-siega-production-update/
+
+Dexter: Resurrection could be bringing back some iconic characters as director and producer Marcos Siega shares an exciting production update.
+---------
+
+# Prime Video's 4-Part Action Masterpiece Series Perfected Its Genre
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 14:30:20 GMT
+
+https://screenrant.com/reacher-amazon-prime-perfect-thriller-book-adaptation-genre/
+
+Prime Video has a multi-season action masterpiece series that has perfected the action thriller to TV show pipeline, along with a few other shows.
+---------
+
+# 10 Longest-Running Movie Franchises Of All Time
+
+Movies, Box Office, Superman, Batman, Marvel, Godzilla, James Bond, Star Wars, King Kong, Jurassic Park, Alien
+
+Sun, 24 May 2026 14:23:20 GMT
+
+https://screenrant.com/longest-running-movie-franchises-all-time/
+
+Explore the 10 longest-running movie franchises of all time. See how iconic series like Godzilla, Batman, and Alien stood the test of time.
+---------
+
+# 10 Sci-Fi Movies That Will Keep You Hooked From Start To Finish
+
+Movies, Minority Report, Men in Black, Terminator 2: Judgment Day, Total Recall, Aliens, Sunshine, The Matrix, Event Horizon, The Fifth Element, Star Wars: Episode V - The Empire Strikes Back
+
+Sun, 24 May 2026 14:15:12 GMT
+
+https://screenrant.com/sci-fi-movies-keep-you-hooked-from-start-to-finish/
+
+The sci-fi genre is overflowing with incredible movies, and some are so thrilling that they keep audiences hooked for their entire runtimes.
+---------
+
+# Mahito Isn't Just Jujutsu Kaisen's Best Villain, He Ranks Among Shonen Jump's Greatest Ever
+
+Anime, Jujutsu Kaisen
+
+Sun, 24 May 2026 14:00:21 GMT
+
+https://screenrant.com/jujutsu-kaisen-best-villain-mahito-shonen-jump-greats/
+
+Jujutsu Kaisen is amazing because of how captivating its villains are, but out of them all, there's one who stands head and shoulders above the rest.
+---------
+
+# Fallout Is Officially Entering A Controversial New Era
+
+Gaming, Fallout, Xbox
+
+Sun, 24 May 2026 14:00:21 GMT
+
+https://screenrant.com/fallout-is-officially-entering-a-controversial-new-era/
+
+Fallout, and a bunch of other huge releases, could soon find themselves back under the yoke of exclusivity, if Xbox decides to redirect its strategy.
+---------
+
+# X-Men ’97 Finally Gave Gambit the Hero Moment He Deserved
+
+TV, X-Men '97, X-Men
+
+Sun, 24 May 2026 14:30:14 GMT
+
+https://www.cbr.com/x-men-97-best-gambit-hero-moment/
+
+X-Men '97 was a mature return to a great series, and the one thing it did best was give Gambit the heroic moment he always needed.
+---------
+
+# Marvel's Original Star Wars Deal Was Wild - Inside The Unprecedented Deal
+
+Comics, Star Wars, CSBG, Comic Book Legends Revealed
+
+Sun, 24 May 2026 14:29:19 GMT
+
+https://www.cbr.com/marvel-star-wars-comic-deal-free/
+
+In a brand-new Comic Book Legends Revealed, learn just how surprisingly good the deal that Marvel had for Star Wars comic books in 1977
+---------
+
+# The First Star Wars Movie in 7 Years Eyes Franchise-Low Box Office Despite Strong Audience Score
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Sun, 24 May 2026 14:26:12 GMT
+
+https://www.cbr.com/star-wars-mandalorian-and-grogu-franchise-low-box-office-weekend/
+
+The new Star Wars installment is on track for a record low at the box office, but Memorial Day Weekend could still turn things around.
+---------
+
+# 7 2000s Anime Series That Are 10/10, No Notes
+
+Anime, Fullmetal Alchemist: Brotherhood, Samurai Champloo, mecha
+
+Sun, 24 May 2026 14:15:17 GMT
+
+https://www.cbr.com/perfect-2000s-anime-series/
+
+Numerous exceptional anime series released during the 2000s, but these classic masterpieces stand out as virtually flawless.
+---------
+
+# The Legend of Zelda Film Steals a Key Strategy From The Lord of the Rings
+
+Movies, The Legend of Zelda, Nintendo
+
+Sun, 24 May 2026 14:00:15 GMT
+
+https://www.cbr.com/nintendo-zelda-movie-filming-lord-of-the-rings-strategy/
+
+Nintendo's Legend of Zelda movie is following in the footsteps of Peter Jackson's The Lord of the Rings trilogy.
+---------
+
+# 32 years later, Bandai Revives Iconic G Gundam Designs with New Model Kits
+
+Anime, Mobile Suit Gundam, Mobile Fighter G Gundam, merchandise
+
+Sun, 24 May 2026 14:00:15 GMT
+
+https://www.cbr.com/g-gundam-gunpla-3-kits-re-release/
+
+Three Gunpla model kits derived from one of the zaniest and most controversial Gundam anime ever are being re-released through Premium Bandai.
+---------
+
+# Florence Pugh's New Fantasy Drama Based on Bestselling Novel Kicks Off Cannes Market's Biggest Deal
+
+Movies, Fantasy
+
+Sun, 24 May 2026 13:57:12 GMT
+
+https://www.cbr.com/florence-pugh-midnight-library-fantasy-cannes-update/
+
+Pugh will star in the new fantasy adaptation, with multiple studios vying to be its distributor at this year's Cannes.
+---------
+
+# Philip K. Dick's The Future is Ours Will be The Netflix Event of the Decade
+
+TV, Netflix, Sci-Fi
+
+Sun, 24 May 2026 13:30:12 GMT
+
+https://www.cbr.com/netflix-phillip-k-dick-the-future-is-ours-miniseries/
+
+Netflix has an upcoming science fiction miniseries inspired by Philip K. Dick's early work, and it will make TV history.
+---------
+
+# 10 Most Perfect Animated Movies of the Last 40 Years, Ranked
+
+Movie, Animation, Toy Story 3, It's Such A Beautiful Day, Spirited Away
+
+Sun, 24 May 2026 14:33:14 GMT
+
+https://collider.com/most-perfect-animated-movies-last-40-years-ranked/
+
+Toy Story 3, It's Such a Beautiful Day, and Perfect Blue are all among the best, most perfect animated movies released over the last 40 years.
+---------
+
+# 7 Worst Movie Soundtracks of All Time, Ranked
+
+Movie, Suicide Squad, Lost Horizon, Cocktail, Godzilla
+
+Sun, 24 May 2026 14:09:16 GMT
+
+https://collider.com/worst-movie-soundtracks-all-time-ranked/
+
+Less-than-great movies like Suicide Squad, Lost Horizon, and Thor: Love and Thunder have rather bad soundtracks that misuse the songs they feature.
+---------
+
+# Taylor Sheridan’s ‘Landman’ Reclaims Digital Dominion 4 Months After Season Finale
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Ali Larter
+
+Sun, 24 May 2026 14:00:15 GMT
+
+https://collider.com/landman-taylor-sheridan-digital-charts-streaming-success-may-2026/
+
+Taylor Sheridan’s Landman has reclaimed digital dominance months later, proving the Paramount+ drama still has major staying power.
+---------
+
+# Forget This Iconic 2002 Horror Remake, You Must Watch the Original Masterpiece Instead
+
+Movie Features, Ringu, Gore Verbinski, The Ring, Horror
+
+Sun, 24 May 2026 13:56:14 GMT
+
+https://collider.com/the-ring-horror-remake-ringu-original-1998-movie-masterpiece/
+
+Gore Verbinski's 2002 horror movie remake The Ring might be iconic, but the original 1998 Japanese film Ringu is a masterpiece.
+---------
+
+# 10 Forgotten Romantic Movies That Are Amazing From Start to Finish
+
+Movie, Romance, The Lunchbox, Love Jones, The Baxter
+
+Sun, 24 May 2026 13:31:13 GMT
+
+https://collider.com/forgotten-romantic-movies-that-are-actually-great-ranked/
+
+From Love Jones to Only You, these forgotten romantic movies prove the genre once understood longing, timing, and emotional intimacy better.
+---------
+
+# Will Smith's '90s Sci-Fi Blockbuster 'Independence Day' Lands on Hulu
+
+Movie News, Independence Day, Coming/Leaving Streaming
+
+Sun, 24 May 2026 14:15:34 GMT
+
+https://movieweb.com/independence-day-hulu-streaming-june-2026/
+
+The film has a new streaming home just in time to prepare for the upcoming July 4 celebration.
+---------
+
+# Netflix Buys Romain Gavras' 'Sacrifice' With Chris Evans, Anya Taylor-Joy
+
+Movie News, Sacrifice, Chris Evans, Anya Taylor-Joy
+
+Sun, 24 May 2026 14:00:33 GMT
+
+https://movieweb.com/netflix-sacrifice-chris-evans-anya-taylor-joy/
+
+Netflix has picked up Romain Gavras' satire 'Sacrifice' at Cannes, nine months after a rough TIFF debut. Here's the deal and what it means.
+---------
+
+# 'The Umbrella Academy': Netflix's Near-Perfect Superhero Adventure Series Makes 'The Boys' Look Small
+
+Features, The Umbrella Academy, Netflix, The Boys, Cultural Reassessment
+
+Sun, 24 May 2026 14:00:19 GMT
+
+https://movieweb.com/netflix-superhero-series-the-umbrella-academy-the-boys/
+
+Netflix's' The Umbrella Academy' might have had a subpar final season, but it remains a better superhero series than 'The Boys'.
+---------
+
 # In Defense Of The Mandalorian & Grogu Changing A Star Wars Movie Tradition
 
 Movies, The Mandalorian and Grogu
