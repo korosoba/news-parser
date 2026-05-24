@@ -1,3 +1,355 @@
+# The Wonderfools Is Netflix's Perfect Replacement For The Boys
+
+TV, The WONDERfools, Netflix, Masked Recs
+
+Sun, 24 May 2026 02:21:10 GMT
+
+https://screenrant.com/wonderfools-netflix-the-boys-replacement/
+
+Now that Amazon's The Boys has ended, Netflix's The WONDERfools is stepping up as a perfect replacement to fill the void.
+---------
+
+# Netflix’s Record-Breaking 16-Part Romance Created A Viral Trend In North Korea
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 02:15:20 GMT
+
+https://screenrant.com/crashing-landing-on-you-viral-trend-north-korea/
+
+North Korea has never been truly removed from pop culture, as proven by one of the most renowned international romance series of all time.
+---------
+
+# The Most Important Anime Of The 2000s Is Being Forgotten, But It Deserves So Much Better
+
+Anime, The Melancholy Of Haruhi Suzumiya
+
+Sun, 24 May 2026 02:00:31 GMT
+
+https://screenrant.com/haruhi-forgotten-deserves-better-most-important-2000s-anime/
+
+The Melancholy of Haruhi Suzumiya is slowly being forgotten by younger fans despite its significant impact on anime culture and industry.
+---------
+
+# Prime Video's 8-Part Spy Series Has No Right Being So Good
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 01:45:21 GMT
+
+https://screenrant.com/mr-and-mrs-smith-prime-video-streaming-good-spy-series/
+
+Prime Video's 8-part original series, Mr. & Mrs. Smith, defied expectations and became a sleeper hit, despite facing challenges in its development.
+---------
+
+# Prime Video's 16-Part 'Mindhunter Meets Sherlock' Series Is Even Better In Season 2
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 01:42:38 GMT
+
+https://screenrant.com/prime-video-cross-season-2-better-mindhunter-sherlock/
+
+A Prime Video thriller, which combines the best aspects of Mindhunter & Sherlock, has surprisingly turned out to be even better in its second season.
+---------
+
+# Robert Downey Jr. Confirms Who Makes The Final Decision On Sherlock Holmes 3's Fate
+
+Movies, Sherlock Holmes, Sherlock Holmes 3
+
+Sun, 24 May 2026 01:37:25 GMT
+
+https://screenrant.com/sherlock-holmes-3-fate-susan-downey-final-robert-downey-jr/
+
+Sherlock Holmes 3's fate rests in the hands of Robert Downey Jr.'s wife and producer, Susan Downey, according to the actor's recent comments.
+---------
+
+# New Follow-Up To Oscar Winner's Best True Crime Thriller Is A Must-Watch On Streaming
+
+Streaming TV, Memories of Murder, Bong Joon Ho
+
+Sun, 24 May 2026 01:30:20 GMT
+
+https://screenrant.com/the-scarecrow-followup-memories-of-murder-bong-joon-ho/
+
+23 years later, viewers can find the answer to one of the best true crime films of all time in a new thriller series that's already a must-watch.
+---------
+
+# 7 Katharine Hepburn Performances That Are Considered Masterpieces
+
+Movies
+
+Sun, 24 May 2026 01:30:20 GMT
+
+https://screenrant.com/katharine-hepburn-best-performances-top-movies/
+
+Katharine Hepburn was more than a legend of Hollywood and certain roles she played are definitive proof.
+---------
+
+# Every Actor Confirmed For The White Lotus Season 4
+
+Streaming TV, The White Lotus
+
+Sun, 24 May 2026 01:15:19 GMT
+
+https://screenrant.com/every-actor-confirmed-for-the-white-lotus-season-4/
+
+The White Lotus season 4 cast includes big names like Oscar winner Laura Dern, Chris Messina, Rosie Perez, and Ben Kingsley, among others.
+---------
+
+# 10 'Anime Of The Year' Winners From The Last Decade & Who Should Have Won Instead
+
+Anime
+
+Sun, 24 May 2026 01:00:19 GMT
+
+https://screenrant.com/anime-year-winners-last-decade-ranked/
+
+Look back at Crunchyroll's most controversial snubs and the most deserving Anime of the Year winners from 2017 to 2026.
+---------
+
+# 5 Best Star Wars Prequel Games, Ranked
+
+Games, Star Wars, Video Games
+
+Sun, 24 May 2026 02:15:13 GMT
+
+https://www.cbr.com/best-star-wars-prequel-games-ranked-list/
+
+These prequel era Star Wars games feature epic battles and deep narratives that are must-plays for any fan of the galaxy far, far away.
+---------
+
+# After 50 Days, Sydney Sweeney's $398M R-Rated Thriller Is Officially Dethroned by Jason Statham's New Action Movie
+
+Movies, The Housemaid, Shelter
+
+Sun, 24 May 2026 02:00:23 GMT
+
+https://www.cbr.com/sydney-sweeney-thriller-the-housemaid-dethroned-jason-statham-shelter-starz-may-2026/
+
+Sydney Sweeney's new franchise was a major commercial hit but it can't defeat Jason Statham.
+---------
+
+# Star Wars Keeps Proving Yoda and Obi-Wan Were Wrong About Order 66
+
+Movies, Star Wars, Star Wars: Episode III - Revenge of the Sith, Obi-Wan Kenobi
+
+Sun, 24 May 2026 02:00:23 GMT
+
+https://www.cbr.com/star-wars-yoda-obi-wan-failed-to-save-jedi-order/
+
+Obi-Wan Kenobi and Yoda are seen as wise Jedi Masters, but modern Star Wars stories suggest they were wrong to go into hiding and not fight the Empire
+---------
+
+# Jon Hamm’s Your Friends & Neighbors Is the Perfect White Lotus Replacement
+
+TV, Your Friends and Neighbors, The White Lotus
+
+Sun, 24 May 2026 02:00:23 GMT
+
+https://www.cbr.com/jon-hamm-apple-tv-your-friends-and-neighbors-perfect-white-lotus-replacement/
+
+If you're looking for something to fill the void before The White Lotus returns with its fourth season, Jon Hamm's Apple TV series is just for you.
+---------
+
+# 31 Years Later, Gohan's Greatest Dragon Ball Quote Hits Harder Than Any Other
+
+Anime, Dragon Ball, gohan, Dragon Ball Z
+
+Sun, 24 May 2026 01:45:14 GMT
+
+https://www.cbr.com/gohan-line-best-dragon-ball-quote-ever/
+
+Gohan has been crucial to some of Dragon Ball's biggest moments, but a game-changing threat marks a fundamental shift in his character.
+---------
+
+# The Legend of Zelda Officially Celebrates Its 40th Anniversary With Stunning New Release
+
+Games, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
+
+Sun, 24 May 2026 01:29:14 GMT
+
+https://www.cbr.com/zelda-40th-anniversary-official-new-release-master-sword/
+
+The Legend of Zelda fans are getting another 40th anniversary release that recreates one of the most iconic parts of Tears of the Kingdom.
+---------
+
+# My Hero Academia Gave Shigaraki the Wrong Kind of Redemption
+
+Anime, My Hero Academia
+
+Sun, 24 May 2026 01:25:13 GMT
+
+https://www.cbr.com/my-hero-academia-shigaraki-wrong-redemption/
+
+The series struggled to balance sympathy for Shigaraki with the weight of his actions.
+---------
+
+# Stargate Origins Is a Must-Watch Prequel to the Franchise's Roots
+
+TV, Stargate, Stargate Origins
+
+Sun, 24 May 2026 01:00:12 GMT
+
+https://www.cbr.com/stargate-origins-must-watch-prequel/
+
+As fans eagerly await Amazon MGM Studios' upcoming reboot, Stargate Origins is mandatory viewing for its expansion of the franchise's universe.
+---------
+
+# The JSA Continues to Rewrite DC’s Golden Age History Years After Being Erased
+
+Comics, justice society of america, comics, DC Comics
+
+Sun, 24 May 2026 01:00:12 GMT
+
+https://www.cbr.com/the-jsa-continues-to-rewrite-history-years-later/
+
+The Justice Society are the torch-bearers, the blueprint by which all heroes are measured, and have been written into and out of DC history.
+---------
+
+# Liam Neeson's Battleship Is The Perfect Prime Video Binge
+
+Movies, Battleship, Prime Video
+
+Sun, 24 May 2026 01:00:12 GMT
+
+https://www.cbr.com/perfect-prime-video-binge-liam-neeson-battleship-movie/
+
+A surprising sci-fi action movie is moving up the streaming charts on Prime Video, and it's worth the watch for one impressive reason.
+---------
+
+# 8 Thriller Shows That Are So Great, You'll Want to Watch Them Twice
+
+TV, Thriller, True Detective, Broadchurch, Breaking Bad
+
+Sun, 24 May 2026 01:33:14 GMT
+
+https://collider.com/thriller-shows-so-great-watch-twice/
+
+Breaking Bad, Fargo, Broadchurch, True Detective, and more make up our list of thriller shows that are so great, you'll want to watch them twice.
+---------
+
+# 9 Most Bingeworthy Miniseries of All Time, Ranked
+
+TV, TV Miniseries, Band of Brothers, Little Fires Everywhere, Adolescence
+
+Sun, 24 May 2026 01:03:14 GMT
+
+https://collider.com/tv-miniseries-most-bingeworthy-ranked/
+
+From the HBO masterpiece Band of Brothers to the psychological drama Little Fires Everywhere, these are the most bingeworthy miniseries ever.
+---------
+
+# Forget ‘It Ends With Us,’ This Divisive Colleen Hoover Movie Is Crushing Prime Video
+
+Movie News, Prime Video, Colleen Hoover, Regretting You, Streaming
+
+Sun, 24 May 2026 01:01:13 GMT
+
+https://collider.com/colleen-hoover-divisive-romance-movie-regretting-you-streaming-success-prime-video-may-2026/
+
+A controversial Colleen Hoover adaptation starring Mckenna Grace is topping the Prime Video streaming charts. Read on for more details.
+---------
+
+# Marvel's Forgotten 2-Part Series Is a Hidden Gem Worth Binging This Weekend
+
+TV Features, Agent Carter, MCU, ABC, Hayley Atwell
+
+Sun, 24 May 2026 01:01:13 GMT
+
+https://collider.com/marvel-mcu-agent-carter-hidden-gem-binge-watch/
+
+Peggy Carter showcases her intelligence and determination in a post-WWII setting in the forgotten Agent Carter TV show.
+---------
+
+# Prime Video’s 8-Part Romance Obsession Is the Perfect Weekend Binge for ‘Heated Rivalry’ Fans
+
+TV News, Prime Video, Heated Rivalry, Off Campus, Streaming
+
+Sun, 24 May 2026 00:45:13 GMT
+
+https://collider.com/prime-video-heated-rivalry-replacement-romance-series-off-campus-streaming-success-may-2026/
+
+Prime Video's answer to the hit series Heated Rivalry is one of the most popular shows on streaming. Read on for more details.
+---------
+
+# All 11 Taylor Sheridan Shows, Ranked by Action
+
+TV, Taylor Sheridan, Yellowstone, Dutton Ranch, Landman
+
+Sun, 24 May 2026 00:35:13 GMT
+
+https://collider.com/taylor-sheridan-shows-action-ranked/
+
+From the neo-Western show Landman to the Yellowstone spin-off Dutton Ranch, which Taylor Sheridan series is the greatest, based on its action?
+---------
+
+# Forget ‘The Madison,’ This Emotional Western Epic Is Paramount+’s Surprise Sleeper Hit
+
+Movie News, Paramount Plus, An Unfinished Life, Robert Redford, Western
+
+Sun, 24 May 2026 00:30:13 GMT
+
+https://collider.com/robert-redford-an-unfinished-life-streaming-success-paramount-plus-may-2026/
+
+The Madison meets Legends of the Fall in Robert Redford's movie currently proving popular on Paramount+. Find out more details here.
+---------
+
+# 2026's Sci-Fi Masterpiece Is an Instant Hit on Prime Video
+
+Movie News, Project Hail Mary, Sci-Fi, Interstellar, Ryan Gosling
+
+Sun, 24 May 2026 00:16:13 GMT
+
+https://collider.com/ryan-gosling-sci-fi-masterpiece-project-hail-mary-streaming-success-prime-video-may-2026-how-to-watch/
+
+Project Hail Mary, the only modern sci-fi movie better than Interstellar, is taking over Prime Video in its streaming debut. Find out more below.
+---------
+
+# Apple TV's 2-Part Crime Masterpiece Just Hit a Streaming Milestone
+
+TV News, Apple TV, Criminal Record, Peter Capaldi, Thriller
+
+Sun, 24 May 2026 00:00:16 GMT
+
+https://collider.com/apple-tv-peter-capaldi-crime-masterpiece-criminal-record-100-days-streaming-milestone-may-2026/
+
+Apple TV's two-part crime thriller starring Peter Capaldi has just hit an impressive streaming milestone. Read on for more details.
+---------
+
+# Prime Video’s Sleeper-Hit Sitcom Is Facing a Completely New Challenge After Its Surprise Season 3 Renewal
+
+TV Features, Jury Duty, Jury Duty Presents: Company Retreat, Prime Video, Comedy
+
+Sat, 23 May 2026 23:52:13 GMT
+
+https://collider.com/prime-video-sitcom-jury-duty-season-3-renewed-meaning/
+
+Prime Video's Jury Duty faces new challenges with its Season 3 renewal, requiring fresh settings and casting to maintain its secret premise.
+---------
+
+# 10 Scariest Movies Released Since 'Hereditary,' Ranked
+
+Features, Horror, Hereditary, Obsession
+
+Sun, 24 May 2026 02:00:29 GMT
+
+https://movieweb.com/10-scariest-movies-ranked-since-hereditary/
+
+Ari Aster's supernatural horror 'Hereditary' set a new standard for horror in 2018, so we ranked the scariest movies that have released since then.
+---------
+
+# Jason Statham's 12 Greatest Fight Scenes, Ranked
+
+Movie Lists, Jason Statham, Action, Martial Arts
+
+Sun, 24 May 2026 00:00:09 GMT
+
+https://movieweb.com/jason-statham-greatest-fight-scenes-ranked/
+
+From 'The Transporter' to ' Fast & Furious', how do the best fight scenes of Jason Statham's career stack up?
+---------
+
 # Netflix’s New Lovecraftian Horror Show Can Finally Break 1 Adaptation Curse
 
 Streaming TV, Masked Recs
