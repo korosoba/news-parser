@@ -1,3 +1,344 @@
+# James Cameron's Avatar Movies Are Officially Switching Genres In 2029
+
+Movies, Avatar 4, Avatar
+
+Sun, 24 May 2026 22:30:20 GMT
+
+https://screenrant.com/avatar-4-james-cameron-sequel-switch-genres-kiri-narrator/
+
+Kiri is taking over as the narrator in Avatar 4, so James Cameron's sci-fi saga will switch genres from a war movie to a coming-of-age story.
+---------
+
+# Every Time Batman Beat Superman, And How
+
+Comics, Batman, Superman, DC Comics
+
+Sun, 24 May 2026 22:30:20 GMT
+
+https://screenrant.com/every-time-batman-beat-superman-and-how/
+
+Despite being a man of vast resources and peak human capacity, Batman is a mortal man compared to the Son of Krypton. But even mortals can slay gods
+---------
+
+# The Karate Kid Trilogy Hits Netflix In Just Days
+
+Movies, The Karate Kid, Netflix
+
+Sun, 24 May 2026 22:25:20 GMT
+
+https://screenrant.com/the-karate-kid-movie-trilogy-netflix-release/
+
+One of the most famous movie series of all time is days away from becoming available on Netflix, which is major for the platform and its viewers.
+---------
+
+# 7 Spider-Man Comics Published Since 2000 That Are Considered Masterpieces
+
+Comics, Spider-Man, Marvel
+
+Sun, 24 May 2026 22:00:20 GMT
+
+https://screenrant.com/spider-man-best-comics-since-2000-masterpieces/
+
+Spider-Man's comic history is largely considered to have gone downhill since 'One More Day,' but several stories prove that his legacy is upheld.
+---------
+
+# 3 Years After Their "Final" Defeat, The Borg Are Already Returning In Star Trek's Darkest New Series
+
+Comics, Star Trek
+
+Sun, 24 May 2026 22:00:20 GMT
+
+https://screenrant.com/star-trek-borg-return-last-starship/
+
+They're back
+---------
+
+# Far Cry 2 “Remastered” Gameplay Is A Thing Of Beauty
+
+Gaming, Far Cry 2
+
+Sun, 24 May 2026 22:00:20 GMT
+
+https://screenrant.com/far-cry-2-remastered-unofficial-gameplay/
+
+Experience the enhanced visuals and gameplay of Far Cry 2 with the unofficial remastered mod.
+---------
+
+# 8 Near-Perfect Book-To-TV Adaptations Nobody Remembers
+
+Classic TV
+
+Sun, 24 May 2026 22:00:20 GMT
+
+https://screenrant.com/near-perfect-book-tv-show-adaptations-nobody-remembers/
+
+TV shows often use novels as a source of inspiration for their stories, but not all of them have remained firmly etched in audiences’ minds.
+---------
+
+# 10 Praiseworthy Animated Movies No One Ever Talks About
+
+Movies, Animation
+
+Sun, 24 May 2026 21:55:19 GMT
+
+https://screenrant.com/great-animated-movies-no-one-talks-about/
+
+The history of cinema is stuffed with classic animated movies that everyone remembers, but these gems don't get the attention they deserve.
+---------
+
+# Disney's 2-Season Space Opera Deserves Even More Than Its 96% Rotten Tomatoes Score
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 21:32:21 GMT
+
+https://screenrant.com/andor-disney-space-opera-deserve-rotten-tomatoes-score/
+
+Disney has a critical hit in its library with a 96% Rotten Tomatoes score, but even that isn't high enough after the latest batch of episodes.
+---------
+
+# Star Trek: Discovery's Sonequa Martin-Green Confirms Franchise Return Talks
+
+TV, Star Trek, Star Trek: Discovery
+
+Sun, 24 May 2026 22:39:44 GMT
+
+https://www.cbr.com/star-trek-discovery-sonequa-martin-green-talks-return/
+
+Sonequa Martin-Green speaks about the possibility of returning to Star Trek as Michael Burnham.
+---------
+
+# The Witcher 3's Triss Merigold Officially Returns With Stunning 2027 Release
+
+Games, The Witcher 3: Wild Hunt
+
+Sun, 24 May 2026 22:32:40 GMT
+
+https://www.cbr.com/the-witcher-3-triss-merigold-official-new-release-statue-2027/
+
+Triss Merigold is one of the best parts of The Witcher 3: Wild Hunt, as she's receiving a starring role in a stunning upcoming 2027 release.
+---------
+
+# Naruto’s Winning Streak Continues in New Official 2026 Ranking Ahead of 25th Anniversary
+
+Anime, Naruto
+
+Sun, 24 May 2026 22:31:13 GMT
+
+https://www.cbr.com/naruto-anime-tv-tokyo-top-rank/
+
+The anime beat out major titles, including Black Clover and Pokémon, to top the new rankings.
+---------
+
+# The Magic Faraway Tree Is a Perfect Harry Potter Replacement
+
+Movies, The Magic Faraway Tree
+
+Sun, 24 May 2026 22:31:13 GMT
+
+https://www.cbr.com/rebecca-fergusson-magic-faraway-tree-adaptation-harry-potter-replacement/
+
+With Mission: Impossible behind her, Rebecca Ferguson is taking the lead in a new franchise that is the perfect Harry Potter replacement.
+---------
+
+# 10 Underrated PS2 Games That Officially Need a Modern Remake
+
+Games, PlayStation 2, Video Games
+
+Sun, 24 May 2026 22:15:12 GMT
+
+https://www.cbr.com/ps2-classics-need-modern-remakes/
+
+It's about time hidden PS2 gems like Maximo: Ghosts to Glory and Def Jam: Fight for NY received remakes.
+---------
+
+# Dexter: Resurrection Season 2 Update Teases 2 Major Character Returns
+
+TV, Dexter: Resurrection
+
+Sun, 24 May 2026 22:14:49 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-update-returning-cast/
+
+Two big returns for Dexter: Resurrection Season 2 may have just been quietly spoiled.
+---------
+
+# Netflix's New Big Mouth Replacement Turns Into an Instant Streaming Hit After Solid RT Score
+
+TV, Mating Season, Big Mouth, Netflix
+
+Sun, 24 May 2026 22:00:13 GMT
+
+https://www.cbr.com/mating-season-adult-animated-sitcom-netflix-success-may-2026/
+
+Netflix's latest adult animated romantic comedy from the minds behind Big Mouth, Mating Season, is a streaming hit.
+---------
+
+# Deadpool Creator Alleges Legal Complications Killed Major X-Men Comic
+
+Comics, X-Men, house of x, powers of x
+
+Sun, 24 May 2026 22:00:13 GMT
+
+https://www.cbr.com/deadpool-creator-rob-liefeld-house-of-x-plagiarism-allegations/
+
+Legendary comic book creator Rob Liefeld makes some major allegations regarding one of the most controversial X-Men storylines of all time.
+---------
+
+# 5 Most Rewatchable Movies Streaming On Netflix Right Now
+
+Movies, Netflix
+
+Sun, 24 May 2026 22:00:13 GMT
+
+https://www.cbr.com/netflix-most-rewatchable-movies-streaming-may-2026-list/
+
+Some movies are meant to be rewatched over and over again, and some of the movies Netflix has streaming right now are perfect for that.
+---------
+
+# This Stellar 6-Part WWII Miniseries Is Your Next Netflix Weekend Binge
+
+TV Features, Hitler and the Nazis: Evil on Trial, Netflix, Documentary, World War II
+
+Sun, 24 May 2026 22:50:13 GMT
+
+https://collider.com/hitler-and-the-nazis-evil-on-trial-netflix-world-war-2-documentary/
+
+Netflix's Hitler and the Nazis: Evil on Trial is a documentary that covers World War II via the powerful Nuremberg trials.
+---------
+
+# Forget Jason Statham's ‘The Meg,’ This Shark Horror Classic Still Delivers Pure Chaos 28 Years Later
+
+Movie News, Deep Blue Sea, Sci-Fi, Samuel L. Jackson, Thomas Jane
+
+Sun, 24 May 2026 22:46:14 GMT
+
+https://collider.com/jason-statham-the-meg-replacement-shark-horror-deep-blue-sea-streaming-starz-may-2026/
+
+Deep Blue Sea remains one of the most outrageous shark thrillers ever made, and it's now taking a bite out of streaming. Read on for more.
+---------
+
+# Stephen King's 4-Part Post-Apocalyptic Horror Series Is the Perfect Weekend Binge
+
+TV Features, Stephen King, The Stand, Rob Lowe, Molly Ringwald
+
+Sun, 24 May 2026 22:46:14 GMT
+
+https://collider.com/stephen-king-the-stand-post-apocalyptic-horror-weekend-binge/
+
+Stephen King's The Stand follows a pandemic in a post-apocalyptic world. The gripping 4-episode miniseries is one horror fans can't miss.
+---------
+
+# Liam Neeson's Forgotten Sci-Fi War Epic Is Officially a Prime Video Sleeper Hit
+
+Movie News, Battleship, Liam Neeson, Taylor Kitsch, Prime Video
+
+Sun, 24 May 2026 22:30:13 GMT
+
+https://collider.com/liam-neeson-sci-fi-war-epic-battleship-streaming-success-prime-video-may-2026/
+
+Battleship, starring Liam Neeson, remains one of the strangest and most jaw-dropping sci-fi blockbusters of the 2010s.
+---------
+
+# Denzel Washington Goes Full John Wick Across This Explosive 3-Part Crime Saga
+
+Movie News, Denzel Washington, The Equalizer, The Equalizer 2, The Equalizer 3
+
+Sun, 24 May 2026 22:15:12 GMT
+
+https://collider.com/denzel-washington-crime-saga-the-equalizer-trilogy-streaming-netflix-may-2026-john-wick/
+
+Denzel Washington’s Equalizer trilogy, directed by Antoine Fuqua, remains one of the most satisfying modern action-crime sagas.
+---------
+
+# Taika Waititi Needs To Get This 1 Thing Right in His Judge Dredd Franchise Reboot
+
+Movie Features, Judge Dredd, Karl Urban, Taika Waititi, Dredd
+
+Sun, 24 May 2026 22:10:12 GMT
+
+https://collider.com/judge-dredd-franchise-reboot-taika-waititi-walter-the-wobot/
+
+Taika Waititi is set to helm a franchise reboot of Judge Dredd, and if there is one thing he needs to get right, it's Walter the Wobot.
+---------
+
+# 10 Greatest Fantasy Books of the Last 10 Years, Ranked
+
+Movie, Fantasy, Books, George R.R. Martin, J.R.R. Tolkien
+
+Sun, 24 May 2026 22:04:13 GMT
+
+https://collider.com/best-fantasy-books-last-10-years-ranked/
+
+From R. F. Kuang's The Burning God to Brandon Sanderson's Oathbringer, these are the best fantasy books that have been published in the last decade
+---------
+
+# One of the Best Fantasy Movies of the Last Decade Is Officially Headed to Free Streaming
+
+Movie News, Dungeons & Dragons: Honor Among Thieves, Fantasy, Adventure, Chris Pine
+
+Sun, 24 May 2026 22:00:14 GMT
+
+https://collider.com/best-fantasy-movie-of-the-decade-dungeons-and-dragons-honor-among-thieves-free-streaming-pluto-tv-june-1-2026/
+
+One of the best fantasy movies of the past decade is finally available on free streaming after sadly flopping at the box office.
+---------
+
+# 10 Most Perfect War Movies of the Last 40 Years, Ranked
+
+Movie, War, Saving Private Ryan, The Thin Red Line, Oppenheimer
+
+Sun, 24 May 2026 21:55:13 GMT
+
+https://collider.com/most-perfect-war-movies-last-40-years-ranked/
+
+Saving Private Ryan, Full Metal Jacket, and The Thin Red Line are all among the best, most perfect war movies released over the last 40 years.
+---------
+
+# Peacock’s Forgotten 13-Episode Spy Show Is Still a Near-Perfect Weekend Binge 6 Years Later
+
+TV Features, Peacock, David Schwimmer, Nick Mohammed, Intelligence
+
+Sun, 24 May 2026 21:50:13 GMT
+
+https://collider.com/peacock-spy-series-intelligence-weekend-binge/
+
+Back in 2020, David Schwimmer and Ted Lasso’s Nick Mohammed teamed up in this must-see sitcom on Peacock.
+---------
+
+# George Lucas Explained Why Palpatine Broke a Sith Rule With Dooku After Maul
+
+Features, Star Wars, George Lucas, Star Wars: Episode II - Attack of the Clones, Quote
+
+Sun, 24 May 2026 22:30:18 GMT
+
+https://movieweb.com/george-lucas-palpatine-sith-dooku-maul/
+
+Palpatine is known for his meticulous planning, but the loss of Darth Maul wasn’t something he ever accounted for.
+---------
+
+# Idris Elba Admits He is Out of Running for New James Bond Actor
+
+Movie News, james bond, James Bond, Idris Elba
+
+Sun, 24 May 2026 22:14:59 GMT
+
+https://movieweb.com/james-bond-idris-elba-reboot-casting/
+
+MCU and DC star Idris Elba confirms that he is not in the running for the next James Bond under Amazon MGM Studios
+---------
+
+# 10 Classic American War Movies With Great Action
+
+Movie Lists, War
+
+Sun, 24 May 2026 22:00:18 GMT
+
+https://movieweb.com/classic-american-war-movies-great-action/
+
+It's harder to find better action than on the battlefield in an intense war movie. These films take their visceral combat up a notch.
+---------
+
 # One Dragon Ball Fight Proves Akira Toriyama's Genius, And It's Not The One Fans Think
 
 Anime, Dragon Ball
