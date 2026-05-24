@@ -1,3 +1,267 @@
+# In Defense Of The Mandalorian & Grogu Changing A Star Wars Movie Tradition
+
+Movies, The Mandalorian and Grogu
+
+Sun, 24 May 2026 13:15:20 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-and-grogu-modernized-music/
+
+The Mandalorian and Grogu didn't do too much to break the mold, although the movie does controversially deviate from one Star Wars tradition.
+---------
+
+# Cartoon Network's New Revival Of Popular 8-Season Series Finally Releases On HBO Max In 2 Weeks
+
+TV, Masked Recs
+
+Sun, 24 May 2026 13:14:34 GMT
+
+https://screenrant.com/regular-show-the-lost-tapes-hbo-max-june-2026-release-date/
+
+A revival of a popular Cartoon Network show is coming to HBO Max in just a few weeks, picking up the legacy of an Emmy-winning franchise.
+---------
+
+# Crunchyroll's Biggest Fantasy Anime Of 2026 Officially Reveals Its Dark Depths
+
+Anime, Crunchyroll, Witch Hat Atelier
+
+Sun, 24 May 2026 13:00:20 GMT
+
+https://screenrant.com/crunchyroll-best-anime-witch-hat-atelier-dark-side-2026/
+
+Crunchyroll's latest fantastic fantasy franchise has finally shown audiences why there's much more to mystifying magic and vivacious visuals here.
+---------
+
+# Netflix’s One Piece Season 3 Gets Early Rave Review From Original Creator
+
+TV, One Piece
+
+Sun, 24 May 2026 13:00:20 GMT
+
+https://screenrant.com/one-piece-season-3-netflix-early-review-eiichiro-oda/
+
+One Piece creator Eiichiro Oda visited the set of Netflix's live-action TV adaptation in South Africa, and he shared some early praise for season 3.
+---------
+
+# Pokémon Winds & Waves Pre-Order Price Already Has Everyone Angry
+
+Gaming, Pokemon Winds and Waves, Triple-A Games
+
+Sun, 24 May 2026 13:00:20 GMT
+
+https://screenrant.com/pokemon-winds-waves-preorder-price-reactions/
+
+As the Switch 2 enters a new era of pricing, fans are wondering how the final price for Pokémon Winds and Waves will shake out.
+---------
+
+# HBO's 23-Year-Old Mystery Series Was Ahead Of Its Time
+
+Classic TV, Masked Recs
+
+Sun, 24 May 2026 13:00:20 GMT
+
+https://screenrant.com/carnivale-hbo-mystery-series-ahead-of-time/
+
+HBO has a 23-year-old mystery, fantasy series that came a few years too early but would be right at home in the modern streaming era of television.
+---------
+
+# Sorry Star Wars, Buff Rotta The Hutt Is Still Too Goofy Even After The Mandalorian & Grogu
+
+Movies, The Mandalorian and Grogu
+
+Sun, 24 May 2026 12:55:21 GMT
+
+https://screenrant.com/sorry-star-wars-buff-rotta-the-hutt-is-still-too-goofy-even-after-the-mandalorian-grogu/
+
+The Mandalorian and Grogu brought Rotta the Hutt back after Star Wars: The Clone Wars, but he's looking very different since that show.
+---------
+
+# Boruto's Best Sakura Moment In Years Is Ruined By One Simple Fact
+
+Anime, Boruto: Two Blue Vortex, Naruto
+
+Sun, 24 May 2026 12:30:19 GMT
+
+https://screenrant.com/boruto-naruto-best-sakura-moment-ruined-catchpharse/
+
+The Boruto: Two Blue Vortex manga delivered a needed scene between Sakura and her daughter that would have been heartwarming if not for a mistake.
+---------
+
+# 10 Greatest Monsters In Animated Movies, Ranked
+
+Movies, Animation, Ranking
+
+Sun, 24 May 2026 12:30:19 GMT
+
+https://screenrant.com/best-monsters-animated-movies-ranked/
+
+These monsters turned seemingly unassuming animated films into terrifying experiences, but which cartoon creature is the very best?
+---------
+
+# Hogwarts Legacy 2 Fans Losing It Over Official Teaser
+
+Gaming, Hogwarts Legacy
+
+Sun, 24 May 2026 12:30:19 GMT
+
+https://screenrant.com/hogwarts-legacy-2-state-of-play-june-2026-hopes/
+
+Fans eagerly await the Hogwarts Legacy 2 announcement, with rumors pointing towards a potential reveal at the upcoming State of Play event.
+---------
+
+# 5 Bleach Bankai That Are Cooler Than They Are Useful
+
+Anime, Bleach
+
+Sun, 24 May 2026 13:15:13 GMT
+
+https://www.cbr.com/bleach-bankai-cool-but-not-useful/
+
+These Bankai in Bleach look impressive and stylish, but lack actual practicality.
+---------
+
+# Steven Spielberg's $608M Sci-Fi Fantasy Flick That Still Needs a Sequel Finds a New Streaming Home Next Month
+
+Movies, Ready Player One
+
+Sun, 24 May 2026 13:00:13 GMT
+
+https://www.cbr.com/steven-spielberg-ready-player-one-new-streaming-home-june-2026/
+
+The film's sequel has been in development for several years, with Spielberg confirming things were still moving back in 2024.
+---------
+
+# The 10 Greatest Opening Shots of the 21st Century, Ranked
+
+Movies, The Brutalist, Melancholia
+
+Sun, 24 May 2026 13:00:13 GMT
+
+https://www.cbr.com/greatest-opening-movie-shots-21st-century-ranked/
+
+These opening shots have gone down in history as some of the most impressive and memorable, establishing their movies as the 21st century's best.
+---------
+
+# David Tennant Delivered 1 of TV's Most Devastating Scenes in Broadchurch
+
+TV, Broadchurch
+
+Sun, 24 May 2026 12:30:13 GMT
+
+https://www.cbr.com/broadchurch-what-is-the-point-of-you-devastating-scene/
+
+David Tennant and Olivia Colman delivered some of their best performances yet in one of the best crime drama series in recent memory.
+---------
+
+# Scarlett Johansson's Most Impressive Movie, Under the Skin, Is Now on Netflix
+
+Movies, Under the Skin, scarlett johansson
+
+Sun, 24 May 2026 12:00:43 GMT
+
+https://www.cbr.com/scarlett-johansson-r-rated-sci-fi-thriller-under-the-skin-netflix/
+
+Scarlett Johansson has had an impressive acting career, but 2013's Under the Skin includes her strongest performance to date.
+---------
+
+# Power Rangers Return in Stunning New Art Book Every Fan Needs to See
+
+Comics, Power Rangers
+
+Sun, 24 May 2026 12:00:43 GMT
+
+https://www.cbr.com/power-rangers-art-of-dan-mora-art-book/
+
+The Power Rangers have rarely looked so mighty.
+---------
+
+# Anya Taylor-Joy’s Criminally Underrated Sci-Fi Spectacle Becomes a Streaming Hit 2 Years Later
+
+Movie News, Furiosa: A Mad Max Saga, Anya Taylor-Joy, George Miller, Sci-Fi
+
+Sun, 24 May 2026 13:15:13 GMT
+
+https://collider.com/mad-max-furiosa-anya-taylor-joy-streaming-success-may-2026/
+
+2 years after its release, Anya Taylor-Joy’s sci-fi spectacle Furiosa has become a sudden streaming sensation.
+---------
+
+# 10 Best Martial Arts Revenge Movies, Ranked
+
+Movie, John Wick, Lady Snowblood, Kill Bill: Vol. 1, Kill Bill: Vol. 2
+
+Sun, 24 May 2026 12:57:14 GMT
+
+https://collider.com/best-martial-arts-revenge-movies-ranked/
+
+Plenty of great martial arts movies feature main characters seeking revenge, including Kill Bill, The 8 Diagram Pole Fighter, and Lady Snowblood.
+---------
+
+# Forget ‘Peaky Blinders,’ Cillian Murphy’s Tense Thriller Is Finally Returning to Streaming
+
+Movie News, Peaky Blinders, Cillian Murphy, Red Eye, STARZ
+
+Sun, 24 May 2026 12:45:14 GMT
+
+https://collider.com/cillian-murphy-rachel-mcadams-tense-thriller-red-eye-streaming-starz-june-2026/
+
+Cillian Murphy's most underrated movie, the Wes Craven-directed Red Eye, is streaming on a new platform next month. Read on for more.
+---------
+
+# 10 Stellar Sci-Fi Movies That You Have Been Sleeping On
+
+Movie, Attack the Block, Moon, Meet the Robinsons, Science Fiction
+
+Sun, 24 May 2026 12:34:14 GMT
+
+https://collider.com/best-sci-fi-movies-sleeping-on/
+
+Sci-gems like Meet the Robinsons and Attack the Block have been undervalued and underseen for far too long, and it's time we acknowledge their genius.
+---------
+
+# Ridley Scott’s Near-Perfect Sci-Fi Series Is a #1 Weekend Binge Before It Returns for Season 2
+
+TV News, Alien: Earth, Ridley Scott, Sci-Fi, Hulu
+
+Sun, 24 May 2026 12:31:14 GMT
+
+https://collider.com/ridley-scott-near-perfect-sci-fi-series-alien-earth-streaming-success-hulu-may-2026/
+
+Alien: Earth, the near-perfect sci-fi series executive produced by Ridley Scott, is a knockout weekend binge before it returns for Season 2.
+---------
+
+# The 10 Greatest Apple TV Shows of the Last 5 Years, Ranked
+
+TV, Severance, Shrinking, Slow Horses, Apple TV
+
+Sun, 24 May 2026 12:22:13 GMT
+
+https://collider.com/best-apple-tv-shows-last-5-years-ranked/
+
+Discover the best Apple TV shows from the past five years, featuring high-quality series like Severance, Ted Lasso, and Horses.
+---------
+
+# Forget Frodo, Elijah Wood's Darkest Role Is a Thriller Masterclass
+
+Movie Features, Elijah Wood, Sin City, Frank Miller, Crime
+
+Sun, 24 May 2026 12:19:14 GMT
+
+https://collider.com/elijah-wood-sin-city-kevin-role-thriller-masterclass/
+
+Elijah Wood might be known for Lord of the Rings, but he gives a terrifying, unforgettable performance in Sin City as Kevin.
+---------
+
+# 'Mechanic: Resurrection' Falls to 'Jack Ryan: Ghost War' on Prime Video
+
+Movie News, Jason Statham, Comparison Recommendation, Mechanic Resurrection, Tom Clancy's Jack Ryan: Ghost War, Action
+
+Sun, 24 May 2026 12:01:18 GMT
+
+https://movieweb.com/mechanic-resurrection-beaten-by-jack-ryan-ghost-war-prime-video/
+
+Despite seeing a resurgence on streaming as of late, Statham's 2016 action sequel is no match for the return of Jack Ryan.
+---------
+
 # The Legend Of Zelda: Skyward Sword Prequel Backed By Gamers
 
 Gaming, The Legend of Zelda: Skyward Sword, The Legend of Zelda
