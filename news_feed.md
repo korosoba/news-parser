@@ -1,3 +1,267 @@
+# Netflix's 3-Part Thriller That's Designed To Be Binged Deserves Its Streaming Success
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 20:15:20 GMT
+
+https://screenrant.com/squid-game-netflix-streaming-success-deserved-binge/
+
+Countless Netflix original series have become record-breaking streaming successes, but one of its best has ironically struggled from its acclaim.
+---------
+
+# The Duffer Brothers’ New Sci-Fi Series The Boroughs Is Saving 3 Mysteries For Future Seasons
+
+TV, The Boroughs, The Boroughs - Season 1
+
+Sun, 24 May 2026 20:07:28 GMT
+
+https://screenrant.com/the-boroughs-sam-glitching-cave-tree-mother-origins-explained/
+
+While many of the mysteries are answered in the Duffer Brothers' new science-fiction show, three specific mysteries were saved for future seasons.
+---------
+
+# Marvel Officially Reveals Doctor Doom Costume For New Appearance
+
+Marvel Comics, Doctor Doom, Marvel
+
+Sun, 24 May 2026 20:03:43 GMT
+
+https://screenrant.com/doctor-doom-redesign-new-costume-armor/
+
+Doctor Doom sports a more detailed version of his iconic mask, armor, and cloak, with clear parallels to his MCU counterpart from Avengers: Doomsday.
+---------
+
+# Ethan Hawke Never Got Enough Credit For His Marvel Villain Role
+
+Streaming TV, Ethan Hawke, Moon Knight
+
+Sun, 24 May 2026 20:02:21 GMT
+
+https://screenrant.com/ethan-hawke-moon-knight-arthur-harrow-marvel-villain-role/
+
+Ethan Hawke starred in the Disney+ series Moon Knight as lead antagonist Arthur Harrow, and he deserves more credit for his Marvel villain role.
+---------
+
+# Chrono Trigger Has A Sequel Nobody Remembers
+
+Gaming, Chrono Trigger, Chrono Cross
+
+Sun, 24 May 2026 20:00:21 GMT
+
+https://screenrant.com/chrono-trigger-sequel-nobody-remembers/
+
+Chrono Trigger is fondly recalled as one of the greatest RPGs of all time, but fewer remember its weird and wild sequel — even though they should.
+---------
+
+# Marshals Season 2: Release Date, Story, & Everything We Know
+
+Network TV, Marshals, Yellowstone
+
+Sun, 24 May 2026 20:00:21 GMT
+
+https://screenrant.com/marshals-season-2-explained/
+
+Taylor Sheridan's first network TV series has been a success, with Marshals season 2 aiming to continue Yellowstone's legacy on traditional broadcast.
+---------
+
+# Daenerys Targaryen Star Emilia Clarke On Moving Forward From Game of Thrones 7 Years Later
+
+TV, Game Of Thrones
+
+Sun, 24 May 2026 19:48:43 GMT
+
+https://screenrant.com/game-of-thrones-life-acting-career-emilia-clarke/
+
+Game of Thrones' star Emilie Clarke is leaving the Targaryen name behind, as the actress opens up on how she's moving forward after seven years.
+---------
+
+# Hulu's 10-Part Historical Epic Miniseries Is So Good, It's Becoming A Full Series
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 19:30:20 GMT
+
+https://screenrant.com/shogun-hulu-miniseries-returning-season-2-success/
+
+The show has an impressive Rotten Tomatoes score and excellent reviews, becoming so successful that the miniseries is being expanded to a full series.
+---------
+
+# Peter Jackson's New Lord Of The Rings Movie Could Fix The Director's Biggest Mistake
+
+Movies, The Lord of the Rings, The Silmarillion
+
+Sun, 24 May 2026 19:26:08 GMT
+
+https://screenrant.com/lord-of-the-rings-movie-peter-jackson-fix/
+
+Peter Jackson is finally working on a new Lord of the Rings movie, creating the perfect opportunity for him to undo The Hobbit’s biggest error.
+---------
+
+# 5 Perfect Anime Movies That Get Better With Every Rewatch
+
+Anime, Pokemon, Neon Genesis Evangelion, Akira
+
+Sun, 24 May 2026 20:15:13 GMT
+
+https://www.cbr.com/perfect-anime-movies-better-with-every-rewatch/
+
+Once a blockbuster movie is seen, audiences feel a sense of satisfaction, but these five titles have made many return for another watch or two.
+---------
+
+# Hogwarts Legacy: The Pros & Cons Of Each House
+
+Games, Hogwarts Legacy, Harry Potter
+
+Sun, 24 May 2026 20:00:15 GMT
+
+https://www.cbr.com/harry-potter-hogwarts-legacy-pros-cons-each-house/
+
+Hogwarts Legacy brings the same magic from Harry Potter fans everywhere have adored since childhood, including the iconic houses.
+---------
+
+# Steven Spielberg & Tom Hanks' Perfect War Series Return as a PVOD Hit 25 Years Later
+
+TV, Band of Brothers, War
+
+Sun, 24 May 2026 20:00:14 GMT
+
+https://www.cbr.com/steven-spielberg-tom-hanks-band-of-brothers-streaming-success-may-2026/
+
+The epic war drama series that pioneered prestige television, Band of Brothers, is now a hit on PVOD 25 years later.
+---------
+
+# Supernatural Sequel Teases an All-New Monster Fans Have Never Seen
+
+Comics, Supernatural, dynamite, comics
+
+Sun, 24 May 2026 20:00:14 GMT
+
+https://www.cbr.com/supernatural-9-new-monster-confirmed/
+
+The Winchester brothers thought they had seen every kind of monster, demon, and spirit. But a new comic series may debut the toughest yet.
+---------
+
+# Gruesome Horror With 95% RT Earns 100x Its Budget in Less Than 2 Weeks
+
+Movies, Obsession
+
+Sun, 24 May 2026 19:43:54 GMT
+
+https://www.cbr.com/obsession-100-times-budget-box-office-record/
+
+One of the best-reviewed horror movies of the year so far has already made 100 times its budget.
+---------
+
+# Rosamund Pike's New 93-Minute Netflix Movie Is the No. 1 Film in the World Despite Abysmal Reviews
+
+Movies, Ladies First
+
+Sun, 24 May 2026 19:30:13 GMT
+
+https://www.cbr.com/rosamund-pike-drama-ladies-first-netflix-success-may-2026/
+
+Netflix is adding even more original films, and Rosamund Pike's new release is an instant streaming hit.
+---------
+
+# 6 TV Antiheroes More Ruthless Than Tony Soprano
+
+TV, The Sopranos, Crime, The Punisher
+
+Sun, 24 May 2026 19:30:13 GMT
+
+https://www.cbr.com/tv-antiheroes-more-ruthless-than-tony-soprano-list/
+
+Tony Soprano is one of TV's most recognizable and ruthless antiheroes, but others, such as Walter White and Frank Castle, surpass him.
+---------
+
+# 10 Anime Scoundrels Who Could Outsmart Han Solo
+
+Anime, Star Wars, Cowboy Bebop, Jojo's Bizarre Adventure
+
+Sun, 24 May 2026 19:15:13 GMT
+
+https://www.cbr.com/anime-scoundrels-smarter-than-han-solo/
+
+The world of anime is filled with dashing rogues, including ones far cooler and smarter than Star Wars' Han Solo.
+---------
+
+# 7 R-Rated Fantasy Movies That Permanently Changed the Genre
+
+Movie, Fantasy, Heavy Metal, The Northman, The Green Knight
+
+Sun, 24 May 2026 20:11:14 GMT
+
+https://collider.com/r-rated-fantasy-movies-changed-the-genre/
+
+Great R-rated fantasy films like Pan’s Labyrinth and The Green Knight dragged the genre into darker, stranger territory forever.
+---------
+
+# Mark Wahlberg's Best Crime Caper Is Officially Chasing Waterfalls on a New Streamer
+
+Movie News, Mark Wahlberg, Comedy, The Other Guys, STARZ
+
+Sun, 24 May 2026 20:00:14 GMT
+
+https://collider.com/mark-wahlberg-will-ferrell-crime-caper-the-other-guys-streaming-starz-june-2026/
+
+Mark Wahlberg's career-defining comedy alongside Will Ferrell is heading to Starz next month. Here's everything you should know.
+---------
+
+# The Walking Dead Franchise Desperately Needs a Major Reset After 2026
+
+TV Features, The Walking Dead, The Walking Dead: Dead City, The Walking Dead: Daryl Dixon, AMC
+
+Sun, 24 May 2026 19:41:13 GMT
+
+https://collider.com/the-walking-dead-franchise-major-reset-after-2026/
+
+After 2026, The Walking Dead franchise must undergo a significant overhaul, introducing new characters and a return to horror roots to stay relevant.
+---------
+
+# HBO's 10/10 'Downton Abbey' Replacement Officially Returns in 2026
+
+TV News, HBO, The Gilded Age, Carrie Coon, Louisa Jacobson
+
+Sun, 24 May 2026 19:37:56 GMT
+
+https://collider.com/hbo-max-downton-abbey-replacement-the-gilded-age-season-4-first-look-release-window-2026/
+
+HBO Max has finally debuted a first look at The Gilded Age Season 4, confirming when the hit series will return.
+---------
+
+# HBO's 'Harry Potter' Reboot Proves Why It's 2026's Most Anticipated Fantasy Series in New Sizzle Reel
+
+TV News, Harry Potter, HBO, HBO Max, Fantasy
+
+Sun, 24 May 2026 19:21:51 GMT
+
+https://collider.com/hbos-harry-potter-reboot-proves-why-its-2026s-most-anticipated-fantasy-series-in-new-sizzle-reel/
+
+Ahead of its December 25 debut, HBO Max has shared a brand-new look at its upcoming Harry Potter reboot. See it here!
+---------
+
+# 'Sneaky Pete': Prime's Forgotten Crime Thriller Is the Perfect 'Sopranos' Replacement
+
+Features, The Sopranos, sneaky pete, Comparison Recommendation, Thriller
+
+Sun, 24 May 2026 20:00:19 GMT
+
+https://movieweb.com/sneaky-pete-perfect-sopranos-replacement/
+
+'The Sopranos' is a masterpiece that's left a hole in our lives, and this forgotten series can fill that absence.
+---------
+
+# Sydney Sweeney's Western Heist Movie Coming to Streaming This Summer
+
+Movie News, Americana, Sydney Sweeney, Hulu
+
+Sun, 24 May 2026 19:52:26 GMT
+
+https://movieweb.com/sydney-sweeney-americana-streaming-hulu/
+
+'Americana' didn't perform well at the box office, but could get rediscovered on Hulu.
+---------
+
 # Ryan Murphy's Spiritual Successor To American Horror Story Was Made To Be Binged
 
 TV, Masked Recs
