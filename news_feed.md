@@ -1,3 +1,278 @@
+# The Punisher: One Last Kill Has The Exact Opposite Problem The Original Netflix Show Had
+
+Movies, The Punisher: One Last Kill, The Punisher, Marvel
+
+Sun, 24 May 2026 17:45:21 GMT
+
+https://screenrant.com/punisher-one-last-kill-too-short-netflix-bloated/
+
+The Punisher: One Last Kill is the best MCU outing for the antihero yet, and it has the opposite issue that plagued the original Netflix show.
+---------
+
+# Ghosts Season 6 Time Jump Officially Confirmed After Season 5’s Cliffhanger Ending
+
+TV, Ghosts
+
+Sun, 24 May 2026 17:37:41 GMT
+
+https://screenrant.com/ghosts-season-6-time-jump-confirmed-showrunner/
+
+After Ghosts season 5's cliffhanger ending, showrunner Joe Port confirms that there will be a time jump when the show returns for season 6.
+---------
+
+# 8 Great TV Shows Turned Into Terrible Movies
+
+Classic TV
+
+Sun, 24 May 2026 17:30:22 GMT
+
+https://screenrant.com/great-tv-shows-turned-into-bad-movies/
+
+A good TV series does not guarantee that a movie adaptation will be of the same quality. Many movie adaptations fail to capture the TV show's spirit.
+---------
+
+# 5 Transformers Characters More Powerful Than Megatron, Ranked
+
+Classic Movies, Transformers, Ranking
+
+Sun, 24 May 2026 17:16:20 GMT
+
+https://screenrant.com/transformers-characters-more-powerful-than-megatron/
+
+The Transformers franchise was built around Megatron as the main villain, but he has never been the most powerful Transformer in the franchise.
+---------
+
+# 10 Near-Perfect Dystopian Sci-Fi Shows Nobody Remembers Today
+
+Classic TV
+
+Sun, 24 May 2026 17:16:20 GMT
+
+https://screenrant.com/great-dystopian-sci-fi-shows-nobody-remembers/
+
+Despite their brilliance, some of these near-perfect dystopian science fiction series have slipped through the cracks of pop culture memory.
+---------
+
+# Titus Welliver’s ‘Sopranos Meets Peaky Blinders’ Series Already Looks Like A Must-Watch
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 17:02:20 GMT
+
+https://screenrant.com/titus-welliver-the-westies-crime-drama-sopranos-meets-peaky-blinders/
+
+Bosch actor Titus Welliver is taking on a new crime drama that feels like "The Sopranos meets Peaky Blinders," and the show already looks fantastic.
+---------
+
+# Netflix’s Next True Crime Drama From Ryan Murphy Is Even Scarier For One Key Reason
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 17:01:21 GMT
+
+https://screenrant.com/monster-ryan-murphy-netflix-lizzie-borden-scarier/
+
+Ryan Murphy has made some controversial crime dramas for Netflix, and his next true crime TV show is his most disturbing yet, due to its subject.
+---------
+
+# 2025's Best Anime Was Robbed At The Crunchyroll Anime Awards
+
+Anime, Crunchyroll, Masked Recs, Op-Ed
+
+Sun, 24 May 2026 17:01:21 GMT
+
+https://screenrant.com/dandadan-robbed-crunchyroll-anime-year-awards/
+
+The biggest snub at the 2026 Anime Awards.
+---------
+
+# New Open-World Lord Of The Rings RPG Already Has GOTY Contender Written All Over It
+
+Gaming, The Lord of the Rings
+
+Sun, 24 May 2026 17:01:21 GMT
+
+https://screenrant.com/lord-of-the-rings-open-world-rpg-warhorse-goty-potential/
+
+The new Lord Of The Rings open-world RPG is officially on the way, and it's safe to say it could be an all-time classic.
+---------
+
+# Lord of the Rings: The Black Rider Officially Coming Summer 2026
+
+Games, The Lord of the Rings
+
+Sun, 24 May 2026 17:31:14 GMT
+
+https://www.cbr.com/lotr-the-black-rider-official-new-release-summer-2026/
+
+The nine Ringwraiths from The Lord of the Rings are among the most iconic villains of all time, and one of them is at the center of The Black Rider.
+---------
+
+# Every Star Wars Prequel Show, Ranked
+
+TV, Star Wars, Disney+, Lucasfilm
+
+Sun, 24 May 2026 17:30:16 GMT
+
+https://www.cbr.com/every-star-wars-prequel-show-ranked-list/
+
+Star Wars prequel shows like The Clone Wars and Rebels feature some of the most underrated stories and influential moments in the beloved franchise.
+---------
+
+# Star Wars Scribe Confirms The Characters Who Are Part of Galaxy's Edge
+
+Comics, Star Wars
+
+Sun, 24 May 2026 17:29:41 GMT
+
+https://www.cbr.com/star-wars-galaxys-edge-ethan-sacks-interview/
+
+In a CBR exclusive interview with Star Wars: Galaxy's Edge writer, Ethan Sacks, learn about the expansion of the Galaxy's Edge "universe"
+---------
+
+# What’s Coming to Disney+ In June 2026? Everything Coming Next Month
+
+TV, Disney+
+
+Sun, 24 May 2026 17:21:46 GMT
+
+https://www.cbr.com/what-coming-disney-plus-june-2026-full-list/
+
+One of the biggest sci-fi franchise is finally debuting on Disney+ in June.
+---------
+
+# Pokémon Competitor With 13 Million Players Officially Puts Nintendo On Notice
+
+Games, Pokemon, Nintendo, Steam, Gaming, Video Games
+
+Sun, 24 May 2026 17:15:14 GMT
+
+https://www.cbr.com/roco-kingdom-world-pokemon-threat/
+
+A new Pokémon competitor has entered the chat, and with 13 million players joining the world, it may put Game Freak on official notice.
+---------
+
+# 85 Bob Dylan Comic Book References
+
+Comics, CSBG, Knowledge Waits, A Complete Unknown
+
+Sun, 24 May 2026 17:04:39 GMT
+
+https://www.cbr.com/85-bob-dylan-comic-book-references/
+
+We pay tribute to Bob Dylan's 85th birthday by spotlighting 85 times that comic books have referenced Bob Dylan over the years.
+---------
+
+# Shia LaBeouf's 23-Year-Old Classic Becomes a Disney+ Sensation After Scrapped Reboot
+
+Movies, Holes
+
+Sun, 24 May 2026 17:00:14 GMT
+
+https://www.cbr.com/shia-labeouf-holes-disney-plus-success-may-2026/
+
+Shia LaBeouf's 2003 coming-of-age film is experiencing a streaming resurgence on Disney+.
+---------
+
+# HBO Teases Harry Potter, Lanterns, The Gilded Age & More in 2026 Preview
+
+TV, HBO Max
+
+Sun, 24 May 2026 16:57:02 GMT
+
+https://www.cbr.com/hbo-harry-potter-series-preview-2026-shows/
+
+2026 will continue to be a strong year for HBO.
+---------
+
+# 8 Romance Shows That Are Better Than 'Heated Rivalry'
+
+TV, Heated Rivalry, Romance, Interview with the Vampire, Outlander
+
+Sun, 24 May 2026 17:34:14 GMT
+
+https://collider.com/romance-shows-better-than-heated-rivalry/
+
+Heated Rivalry might be a breakout hit, but historical dramas like Outlander and gothic horrors like Interview with the Vampire have better romance.
+---------
+
+# 10 Upcoming Movie Sequels, Ranked by Anticipation
+
+Movie, Avengers: Doomsday, Dune: Part Three, Sequel, Practical Magic 2
+
+Sun, 24 May 2026 17:31:14 GMT
+
+https://collider.com/upcoming-movie-sequels/
+
+From Dune: Part Three to The Batman Part II, we've ranked the most notable upcoming movie sequels according to how much they're hyped and anticipated.
+---------
+
+# ‘Reacher’ Meets ‘John Wick’ in Chris Pratt’s 2-Part Military Thriller Returning This Year
+
+TV News, The Terminal List, Chris Pratt, Reacher, John Wick
+
+Sun, 24 May 2026 17:01:14 GMT
+
+https://collider.com/chris-pratt-reacher-john-wick-replacement-military-thriller-terminal-list-season-2-release-date-october-prime-video/
+
+Chris Pratt's bingeworthy two-part thriller series with shades of John Wick and Reacher is officially returning this year. Read on for more details.
+---------
+
+# Why JJ Abrams Is Thanked in the Credits of 'The Mandalorian & Grogu'
+
+Features, The Mandalorian and Grogu, Star Wars, J.J. Abrams
+
+Sun, 24 May 2026 17:30:20 GMT
+
+https://movieweb.com/why-jj-abrams-thanked-mandalorian-grogu/
+
+J.J. Abrams, along with Guillermo del Toro and Edgar Wright, are thanked in the end credits of the newest 'Star Wars' film.
+---------
+
+# Sebastian Stan Plays "Many Roles" in 'The Batman: Part II'
+
+Movie News, Sebastian Stan, The Batman Part II, The Batman
+
+Sun, 24 May 2026 17:27:18 GMT
+
+https://movieweb.com/sebastian-stan-the-batman-part-ii/
+
+The MCU veteran is "excited" and "nervous" to take on an iconic DC role in 'The Batman: Part II.'
+---------
+
+# 'The Mandalorian & Grogu' Tops Box Office Charts in Opening Weekend
+
+Movie News, The Mandalorian and Grogu, box office
+
+Sun, 24 May 2026 17:24:49 GMT
+
+https://movieweb.com/the-mandalorian-and-grogu-box-office-opening-weekend/
+
+In its opening weekend, Lucasfilm's 'The Mandalorian & Grogu' is the highest-grossing film at the box office.
+---------
+
+# 'Project Hail Mary' Passes Johnny Depp's 'Pirates of the Caribbean' at Worldwide Box Office
+
+Movie News, Project Hail Mary, Box Office Milestones, Pirates of the Caribbean: The Curse of the Black Pearl, Sci-Fi
+
+Sun, 24 May 2026 17:00:19 GMT
+
+https://movieweb.com/project-hail-mary-beats-johnny-depp-pirates-of-the-caribbean-box-office/
+
+Ryan Gosling's sci-fi hit has now passed one of the defining blockbusters of the 2000s at the worldwide box office.
+---------
+
+# 'Spider-Noir' Is Officially Releasing Two Whole Days in Advance
+
+Features, Spider-Noir, Spider-Man
+
+Sun, 24 May 2026 17:00:19 GMT
+
+https://movieweb.com/spider-noir-mgm-plus-early-release-prime-video-schedule/
+
+'Spider-Noir' is planned for an early release. Here's exactly when you can catch it on MGM+ and Amazon Prime Video.
+---------
+
 # 10 Best Comedy Movies On Netflix Everyone Needs To See At Least Once
 
 Movies, Netflix, Comedy, Recommendation
