@@ -1,3 +1,311 @@
+# One Dragon Ball Fight Proves Akira Toriyama's Genius, And It's Not The One Fans Think
+
+Anime, Dragon Ball
+
+Sun, 24 May 2026 21:30:20 GMT
+
+https://screenrant.com/dragon-ball-goku-vs-vegeta-proves-akira-toriyama-genius/
+
+Dragon Ball's iconic showdown between Goku and Vegeta showcases Akira Toriyama's genius storytelling and masterful artistic skills.
+---------
+
+# Star Wars' 4-Season Series Reinvented The Lightsaber
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 21:30:20 GMT
+
+https://screenrant.com/star-wars-rebels-ezra-reinvent-lightsaber/
+
+This Star Wars show introduced one of the most unique lightsabers the franchise has ever seen, changing our understanding of the Jedi's iconic weapon.
+---------
+
+# 10 Classic Horror Movies That Are Still Just As Scary Today
+
+Movies, Horror
+
+Sun, 24 May 2026 21:30:20 GMT
+
+https://screenrant.com/classic-horror-movies-still-scary-terrifying-today/
+
+Not every classic horror movie still holds the power to shock and terrify modern audiences, but the entires featured on this list do just that.
+---------
+
+# Zelda Ocarina Of Time Remake Footage Showcases Iconic Scene
+
+Gaming, The Legend of Zelda: Ocarina of Time
+
+Sun, 24 May 2026 21:30:20 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-fan-remake-goron-city/
+
+See the iconic Ocarina of Time scene from Zelda remastered in stunning modern graphics.
+---------
+
+# Mortal Kombat 2 Actor Says His Original Death Was More Graphic
+
+Movies, Mortal Kombat II
+
+Sun, 24 May 2026 21:24:41 GMT
+
+https://screenrant.com/mortal-kombat-2-liu-kang-original-death-ludi-lin/
+
+Mortal Kombat II actor reveals that his character's original death was very graphic, but it was cut because viewers couldn't handle it.
+---------
+
+# Stephen King’s First 10 Movie Adaptations, Ranked
+
+Movies, Stephen King, Ranking
+
+Sun, 24 May 2026 21:15:20 GMT
+
+https://screenrant.com/stephen-king-first-movies-ranked/
+
+The King of Horror got off to a hot start with his first 10 movie adaptation, but which of Stephen King's earliest films is the best?
+---------
+
+# DC Reveals Superman’s Next Villain and Redesign Ahead of New Appearance
+
+Comics, Superman
+
+Sun, 24 May 2026 21:00:19 GMT
+
+https://screenrant.com/official-announcement-superman-next-villain-redesign-metallo/
+
+DC has unveiled Superman’s next villain ahead of his upcoming appearance, and the rogue’s horrifying redesign may make him the hero’s wildest foe yet.
+---------
+
+# Syfy's 4-Part Steampunk Series Deserves To Be A Cult Classic
+
+Classic TV, Masked Recs
+
+Sun, 24 May 2026 21:00:19 GMT
+
+https://screenrant.com/sanctuary-sci-fi-steampunk-series-cult-classic/
+
+An underrated 2000s Syfy show deserves far more recognition in the streaming era for its ahead-of-its-time blending steampunk and sci-fi.
+---------
+
+# There’s Only 2 Weeks Left Until Cillian Murphy’s War Drama Movie Anthropoid Releases On Netflix
+
+Movies
+
+Sun, 24 May 2026 21:00:19 GMT
+
+https://screenrant.com/cillian-murphy-anthropoid-war-drama-movie-netflix-release/
+
+Cillian Murphy's historical action drama is days away from its arrival on Netflix alongside a wide range of other major additions to the platform.
+---------
+
+# Pokémon Officially Returning To Sinnoh For New Release
+
+Gaming, Pokemon
+
+Sun, 24 May 2026 21:00:19 GMT
+
+https://screenrant.com/pokemon-sinnoh-lego-sets-leaked/
+
+Discover the latest Pokémon Lego sets rumored to launch in 2026, including Mew, Bidoof, and Garchomp.
+---------
+
+# The Greek Mythology Epic Christopher Nolan Almost Directed Before The Odyssey Is a Streaming Hit 22 Years Later
+
+Movies, Troy
+
+Sun, 24 May 2026 21:30:13 GMT
+
+https://www.cbr.com/troy-greek-mythology-epic-amc-success-may-2026/
+
+Ahead of The Odyssey, the Greek epic that could've had Christopher Nolan at the helm is a perfect watch.
+---------
+
+# 5 Hardest Sci-Fi Shows to Binge
+
+TV, Sci-Fi, Foundation, The Expanse
+
+Sun, 24 May 2026 21:30:13 GMT
+
+https://www.cbr.com/hardest-sci-fi-shows-to-binge-list/
+
+Sci-fi shows like Foundation have defined the genre in massive ways, but just because they are good doesn't mean they are easy to binge.
+---------
+
+# Rick and Morty Returns With Season 9 Setting Rotten Tomatoes Record
+
+TV, Rick and Morty
+
+Sun, 24 May 2026 21:18:53 GMT
+
+https://www.cbr.com/rick-and-morty-season-9-rotten-tomatoes-score/
+
+Rick and Morty Season 9 debuts with a new record on Rotten Tomatoes.
+---------
+
+# Best One Piece Characters Who Could Carry Their Own Spin-Off Series
+
+Anime, One Piece
+
+Sun, 24 May 2026 21:15:13 GMT
+
+https://www.cbr.com/best-one-piece-characters-for-spin-off-series/
+
+These One Piece characters are compelling enough to headline entire stories on their own.
+---------
+
+# In Just 1 Day, Christian Bale's R-Rated Sci-Fi Horror Is Officially the No. 1 Title on HBO Max After $90M Loss
+
+Movies, The Bride!, christian bale
+
+Sun, 24 May 2026 21:00:13 GMT
+
+https://www.cbr.com/christian-bale-sci-fi-horror-the-bride-hbo-max-success-may-2026/
+
+Christian Bale's latest project flopped in theaters but it's getting a second life on streaming.
+---------
+
+# The Mandalorian and Grogu Officially Changes Mando's Oldest Rule
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Sun, 24 May 2026 21:00:13 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-changes-helmet-rule/
+
+Din Djarin has always insisted that he can never remove his helmet, but The Mandalorian and Grogu adds a new caveat to this rule.
+---------
+
+# What's Coming to Hulu in June 2026? Everything Arriving Next Month
+
+TV, Hulu
+
+Sun, 24 May 2026 20:30:12 GMT
+
+https://www.cbr.com/what-coming-hulu-june-2026-full-list/
+
+Discover the latest additions to Hulu in June 2026, including original series premieres and a variety of movies across various genres.
+---------
+
+# 10 Fantasy Movies That Are Even Better the Second Time Around
+
+Movies, Fantasy, The Lord of the Rings, Conan the Barbarian
+
+Sun, 24 May 2026 20:30:12 GMT
+
+https://www.cbr.com/best-fantasy-movies-better-the-second-time-watching-list/
+
+The fantasy genre has produced some of the greatest timeless classics ever made, some getting better every time around.
+---------
+
+# Transformers Officially Revives Shattered Glass Optimus Prime for New 40th Anniversary Release
+
+Anime, Transformers, merchandise
+
+Sun, 24 May 2026 20:30:12 GMT
+
+https://www.cbr.com/transformers-flame-toys-shattered-glass-optimus-prime/
+
+Optimus Prime revisits a "classic" take on the reversed Transformers: Shattered Glass continuity in an upcoming and evil Flame Toys model kit.
+---------
+
+# 10 Greatest Opening Shots of All Time, Ranked
+
+Movie, A Clockwork Orange, Star Wars, Touch of Evil, The Godfather
+
+Sun, 24 May 2026 21:23:14 GMT
+
+https://collider.com/best-opening-movie-shots-all-time-ranked/
+
+The greatest opening shots in cinema history can be found in classics like Apocalypse Now, Touch of Evil, and Star Wars: Episode IV – A New Hope.
+---------
+
+# 'Cop Land' Meets 'Spotlight' in This Crime Drama Captivating Global Audiences
+
+Movie News, Netflix, Cop Land, Shah Rukh Khan, Bollywood
+
+Sun, 24 May 2026 21:16:13 GMT
+
+https://collider.com/netflix-indian-crime-thriller-kartavya-streaming-success-may-2026-cop-land-spotlight/
+
+Netflix's gritty new crime thriller has caught the attention of global audiences. Read on for more details.
+---------
+
+# The Best Teenage Mutant Ninja Turtles Movie Ever Made Officially Kicks Onto Free Streaming This June
+
+Movie News, Teenage Mutant Ninja Turtles: Mutant Mayhem, Animation, Teenage Mutant Ninja Turtles, Comedy
+
+Sun, 24 May 2026 21:00:13 GMT
+
+https://collider.com/teenage-mutant-ninja-turtles-mutant-mayhem-sci-fi-reboot-free-streaming-pluto-tv-june-1-2026/
+
+2023's widely praised Teenage Mutant Ninja Turtles reboot is getting a free-streaming revival before its massive sequel arrives.
+---------
+
+# ‘The Mandalorian and Grogu’ Does One Thing Better Than Any Other Disney Star Wars Movie
+
+Movie Features, The Mandalorian and Grogu, Star Wars, Dave Filoni, Sigourney Weaver
+
+Sun, 24 May 2026 20:48:44 GMT
+
+https://collider.com/star-wars-mandalorian-and-grogu-x-wing-nal-hutta-battle/
+
+The Mandalorian & Grogu’s X-wing assault on Nal Hutta perfectly captures what makes Star Wars unforgettable.
+---------
+
+# This Twisty Sci-Fi Movie Got a 22-Episode TV Spinoff That Fell Apart Immediately
+
+TV Features, Limitless, Robert De Niro, Bradley Cooper, Paramount Plus
+
+Sun, 24 May 2026 20:43:24 GMT
+
+https://collider.com/limitless-22-episode-tv-spinoff-fell-apart-immediately/
+
+Limitless got a 22-episode TV spinoff on CBS that fell apart fast, turning its twisty sci-fi premise into a confusing mess over one season.
+---------
+
+# HBO’s Most-Hated Show Is Also One of Its Most Popular
+
+TV News, Euphoria, HBO, Beef, The Pitt
+
+Sun, 24 May 2026 20:31:14 GMT
+
+https://collider.com/hbo-crime-thriller-euphoria-season-3-nielsen-ratings-658-million-minutes-watched-in-1-week/
+
+HBO's most divisive series, Euphoria, remains one of the network's biggest shows despite fan backlash. Read on for more details.
+---------
+
+# 'Landman': Taylor Sheridan's Series Beats 'Yellowstone' at Its Own Game
+
+Features, Landman, Yellowstone, Taylor Sheridan
+
+Sun, 24 May 2026 21:30:18 GMT
+
+https://movieweb.com/taylor-sheridan-landman-beats-yellowstone-story/
+
+'Yellowstone' might currently be Taylor Sheridan's opus, but there are other contenders in hot pursuit of the crown.
+---------
+
+# Ridley Scott's 'Gladiator' Streaming on Hulu in June 2026
+
+Movie News, Gladiator, Hulu, Coming/Leaving Streaming, Action
+
+Sun, 24 May 2026 21:00:18 GMT
+
+https://movieweb.com/gladiator-streaming-hulu-june-2026-action/
+
+Ridley Scott's historical action masterpiece, 'Gladiator,' will stream on Hulu in June 2026.
+---------
+
+# Every 'The Boys' Season, Ranked
+
+TV Lists, The Boys
+
+Sun, 24 May 2026 21:00:18 GMT
+
+https://movieweb.com/every-the-boys-season-ranked/
+
+'The Boys' has come to an end, and it's undoubtedly seen divisive responses. But how does Season 5 stack up against the rest?
+---------
+
 # Netflix's 3-Part Thriller That's Designed To Be Binged Deserves Its Streaming Success
 
 Streaming TV, Masked Recs
