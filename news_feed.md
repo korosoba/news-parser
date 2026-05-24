@@ -1,3 +1,388 @@
+# Ryan Murphy's Spiritual Successor To American Horror Story Was Made To Be Binged
+
+TV, Masked Recs
+
+Sun, 24 May 2026 19:02:20 GMT
+
+https://screenrant.com/grotesquerie-perfect-watch-one-go-american-horror-story/
+
+Ryan Murphy's seminal horror anthology series American Horror Story returns this year, so now is the perfect time to binge its spiritual successor.
+---------
+
+# New Silo Teaser Confirms 1 Major Change For Rebecca Ferguson’s Character
+
+Streaming TV, Silo
+
+Sun, 24 May 2026 19:01:22 GMT
+
+https://screenrant.com/silo-rebecca-ferguson-juliette-season-3-mayor/
+
+Apple TV has released a new teaser for Silo season 3 before its July premiere, confirming that a big shift lies ahead for Rebecca Ferguson’s Juliette.
+---------
+
+# Xbox Game Pass Free Game Is The Stranger Things RPG We Always Wanted
+
+Gaming, Xbox Game Pass, Indie, PC, Echo Generation
+
+Sun, 24 May 2026 19:01:22 GMT
+
+https://screenrant.com/xbox-game-pass-free-stranger-things-vibes-echo-generation-2/
+
+A remarkable new RPG is arriving on Xbox Game Pass as a day-one release, and it’s carrying heavy Stranger Things and 1980s inspirations.
+---------
+
+# LEGO Batman: Legacy of the Dark Knight Combines All My Favorite Batman Movies (And Yours Too)
+
+Superheroes, Batman, LEGO Batman: Legacy of the Dark Knight
+
+Sun, 24 May 2026 18:55:21 GMT
+
+https://screenrant.com/lego-batman-legacy-of-the-dark-knight-combines-favorite-movie-moments/
+
+As a life-long fan, I'm incredibly impressed by LEGO's newest Batman game and how well it combines all of my favorite movie moments into one plot.
+---------
+
+# Sylvester Stallone’s Gritty $666M Trilogy Officially Releases On Netflix Next Week Following Huge Franchise Update
+
+Movies, Masked Recs, Netflix, Sylvester Stallone
+
+Sun, 24 May 2026 18:37:36 GMT
+
+https://screenrant.com/creed-trilogy-netflix-streaming-release-june-2026/
+
+Netflix is soon becoming the home for Sylvester Stallone's major movie trilogy, and the timing couldn't be better for the iconic, gritty franchise.
+---------
+
+# Netflix's 7-Part Comedy With 90% Rotten Tomatoes Score Has One Of Its Best Casts
+
+Streaming TV, Masked Recs
+
+Sun, 24 May 2026 18:30:20 GMT
+
+https://screenrant.com/netflix-grace-and-frankie-best-comedy-cast/
+
+One of Netflix's longest-running comedy shows also features one of the streamer's best-ever casts. This A-list ensemble is tough to beat.
+---------
+
+# Latest GTA 6 Update Leaves Xbox Gamers Hyped
+
+Gaming, Grand Theft Auto 6, Triple-A Games, PC, Grand Theft Auto
+
+Sun, 24 May 2026 18:30:20 GMT
+
+https://screenrant.com/gta-6-release-date-confirmation-xbox-reaction/
+
+It's been a big week for Grand Theft Auto 6, and a new Xbox post about the game is sparking plenty of conversations among franchise fans.
+---------
+
+# Wonder Woman's Girlfriend Officially Returns in New Image of Upcoming Appearance
+
+Comics, Wonder Woman
+
+Sun, 24 May 2026 18:24:37 GMT
+
+https://screenrant.com/wonder-woman-girlfriend-return-dark-knights-steel/
+
+Only readers deep in DC lore may know about one of Wonder Woman’s lesser-known romances with an iconic DC heroine that returns this summer.
+---------
+
+# Why The MCU Is Recasting Robert Downey Jr.
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sun, 24 May 2026 18:12:21 GMT
+
+https://screenrant.com/robert-downey-jr-recast-doctor-doom-not-iron-man-explained/
+
+Robert Downey Jr. will appear in several upcoming MCU movies, but in an entirely new, recast role after playing Tony Stark for over a decade.
+---------
+
+# The Madison Star Details Brutal Filming Conditions For Taylor Sheridan's Western Series
+
+TV, The Madison
+
+Sun, 24 May 2026 18:09:48 GMT
+
+https://screenrant.com/taylor-sheridan-the-madison-filming-brutal-conditions-michelle-pfeiffer/
+
+The Madison's brutal filming conditions have been revealed, as this star reveals the true behind-the-scenes reality of this Sheridan-led series.
+---------
+
+# Chainsaw Man Volume 24’s Cover Art Reveals a Brand-New Denji
+
+Anime, Chainsaw Man
+
+Sun, 24 May 2026 19:10:13 GMT
+
+https://www.cbr.com/chainsaw-man-manga-volume-24-cover-art-denji-analysis/
+
+Chainsaw Man's final volume cover is one of Fujimoto's best artworks in years, and it also subtly confirms that many fans misread Denji's growth arc.
+---------
+
+# Canon Events: Illyana Rasputin Became Magik After The X-Men Lost Her in Hell
+
+Comics, Canon Events, X-Men, magik
+
+Sun, 24 May 2026 19:00:15 GMT
+
+https://www.cbr.com/canon-events-xmen-illyana-rasputin-magik-dark-origins/
+
+Magik's time in Limbo was filled with dark secrets and betrayals that shaped this powerful mutant, leaving a trauma that forever changed the X-Men.
+---------
+
+# Taylor Sheridan's 102-Minute Neo-Western Crime Thriller Finds New Streaming Home 1 Month After Leaving Netflix
+
+Movies, Hell or High Water
+
+Sun, 24 May 2026 19:00:15 GMT
+
+https://www.cbr.com/taylor-sheridan-hell-or-high-water-neo-western-hbo-max-june-2026/
+
+The ten-year-old neo-Western turned into a cult classic and fans didn't have to wait long after it left Netflix.
+---------
+
+# 5 Lessons Narnia: The Magician's Nephew Can Learn From The Rings of Power
+
+Movies, The Chronicles of Narnia, The Lord of the Rings, Narnia: The Magician's Nephew
+
+Sun, 24 May 2026 19:00:15 GMT
+
+https://www.cbr.com/lessons-magicians-nephew-can-learn-from-rings-of-power/
+
+If Greta Gerwig's Narnia: The Magician's Nephew is to succeed, it must learn from the strengths and weaknesses of another recent fantasy reboot.
+---------
+
+# Netflix’s One Piece Anime Remake Gets New First-Look Ahead of 2027 Release
+
+Anime, One Piece, Netflix, Shonen Jump
+
+Sun, 24 May 2026 18:34:48 GMT
+
+https://www.cbr.com/netflix-the-one-piece-anime-remake-new-first-look-2027-release/
+
+Ahead of its 2027 premiere, Netflix's The One Piece anime remake reveals a near-perfect first look at Shanks, Zoro and more.
+---------
+
+# Prime Video's New 8-Part Drama With 100% RT Quietly Turns Into a Streaming Hit
+
+TV, Prime Video, It's Not Like That
+
+Sun, 24 May 2026 18:30:13 GMT
+
+https://www.cbr.com/prime-video-drama-its-not-like-that-success-may-2026/
+
+A Prime Video original series has quietly become a streaming hit with a perfect 100% Rotten Tomatoes rating.
+---------
+
+# The Legend of Zelda is Adapting the Ocarina of Time
+
+Movies, The Legend of Zelda
+
+Sun, 24 May 2026 18:30:13 GMT
+
+https://www.cbr.com/the-legend-of-zelda-movie-ocarina-of-time-adaptation/
+
+New leaks suggest The Legend of Zelda movie may adapt Ocarina of Time, embracing the classic game’s darker themes and legendary visuals.
+---------
+
+# 7 Dragon Ball Characters Who Could Still Unlock New Forms
+
+Anime, Dragon Ball, Super saiyan, shonen anime, Shonen
+
+Sun, 24 May 2026 18:15:13 GMT
+
+https://www.cbr.com/dragon-ball-characters-unlock-new-forms/
+
+Strong transformations are one of Dragon Ball's most beloved tropes and there are still some powerful players who deserve to reach new heights.
+---------
+
+# Stephen Colbert's Hosting Return Hit With Copyright Notice From Paramount
+
+TV, The Late Show with Stephen Colbert, stephen colbert, Paramount, The Late Show
+
+Sun, 24 May 2026 18:11:54 GMT
+
+https://www.cbr.com/stephen-colbert-only-in-monroe-hosting-paramount-copyright-notice/
+
+Paramount seemingly launches highly questionable copyright takedown requests at copies of Stephen Colbert's recent Michigan public access appearance.
+---------
+
+# Apple TV’s Dark New 10-Part Thriller With 86% RT Is 1 of the Biggest Shows in the World
+
+TV, Maximum Pleasure Guaranteed
+
+Sun, 24 May 2026 18:00:13 GMT
+
+https://www.cbr.com/maximum-pleasure-guaranteed-apple-tv-success-may-2026/
+
+Apple TV's new thriller featuring one fan-favorite Marvel Cinematic Universe star is officially taking the top ten chart by storm.
+---------
+
+# Netflix Hits Its Worst Streaming Week as Pressure Mounts on Upcoming Titles
+
+TV Features, Netflix, Gray's Anatomy, Beef, Little House on the Prairie
+
+Sun, 24 May 2026 19:14:14 GMT
+
+https://collider.com/netflix-worst-streaming-week-explained-loses-to-prime-video/
+
+Netflix faces its worst streaming week ever, failing to have any original programming in Nielsen's top 10 charts, as competitors gain ground with original shows.
+---------
+
+# HBO's First 'Game of Thrones' Spin-Off Officially Returns With a Stunning New Look
+
+TV News, House of the Dragon, Game Of Thrones, A Knight Of The Seven Kingdoms, HBO
+
+Sun, 24 May 2026 19:02:40 GMT
+
+https://collider.com/hbo-max-game-of-thrones-spin-off-house-of-the-dragon-season-3-new-look-release-date-june-21-2026/
+
+HBO has shared a brand-new look at its hit Game of Thrones spin-off, House of the Dragon, ahead of its penultimate season.
+---------
+
+# Apple TV’s Addictive 2-Part Thriller Is So Intense, You’ll Finish It in One Sitting
+
+TV News, Hijack, Apple TV, Thriller, Drama
+
+Sun, 24 May 2026 19:00:16 GMT
+
+https://collider.com/idris-elba-apple-tv-thriller-hijack-streaming-success-may-2026/
+
+Despite no Season 3 renewal, Apple TV's high-octane thriller with Idris Elba remains a weekend binge favorite. Get all the details here.
+---------
+
+# 6 Spy Movies Better Than James Bond
+
+Movie, James Bond, North By Northwest, The Bourne Ultimatum, Mission: Impossible - Fallout
+
+Sun, 24 May 2026 18:49:14 GMT
+
+https://collider.com/spy-movies-better-than-james-bond/
+
+North by Northwest, The Bourne Ultimatum, Mission: Impossible — Fallout, and more make up our list of spy movies better than James Bond.
+---------
+
+# 10 Forgotten Action Movies That Are Amazing From Start to Finish
+
+Movie, Action, Drive, The Last Boy Scout, The Long Kiss Goodnight
+
+Sun, 24 May 2026 18:40:13 GMT
+
+https://collider.com/10-forgotten-action-movies-that-are-actually-great-ranked/
+
+From The Long Kiss Goodnight to The Last Boy Scout, these forgotten action movies prove the genre once had far more personality and chaos.
+---------
+
+# This Long-Lost 'X-Files' Feature Is Finally Hitting Disney+ 18 Years Later
+
+TV Features, The X-Files, The X-Files: I Want to Believe, David Duchovny, Gillian Anderson
+
+Sun, 24 May 2026 18:20:13 GMT
+
+https://collider.com/the-x-files-i-want-to-believe-directors-cut-disney-plus-streaming/
+
+The X-Files: I Want to Believe is preparing to release a director's cut on Disney+, offering fans a new perspective on this mysterious chapter.
+---------
+
+# 12 Years Later, Michael Bay’s 5-Part Apocalyptic Sci-Fi Saga Is Finally Heading to Netflix
+
+TV News, Michael Bay, Netflix, Eric Dane, The Last Ship
+
+Sun, 24 May 2026 18:01:14 GMT
+
+https://collider.com/michael-bay-eric-dane-apocalyptic-sci-fi-series-the-last-ship-streaming-netflix-june-2026/
+
+The five-season apocalyptic sci-fi series The Last Ship, starring the late Eric Dane, is heading to Netflix for the first time ever.
+---------
+
+# Annie's Final Moment in 'The Boys' Is Exactly What She Deserved
+
+Exclusives, Erin Moriarty, The Boys, Ladies Night, Prime Video
+
+Sun, 24 May 2026 17:58:17 GMT
+
+https://collider.com/the-boys-series-finale-annie-pregnancy-erin-moriarty/
+
+Erin Moriarty returns to Collider Ladies Night for The Boys series finale and explains why that ending was the perfect big finish for Annie.
+---------
+
+# This Netflix Fantasy Horror Series Completely Deserves Its 100% RT Score 20 Years Later
+
+TV Features, Death Note, Anime, Horror, Fantasy
+
+Sun, 24 May 2026 17:58:13 GMT
+
+https://collider.com/death-note-netflix-fantasy-horror-100-rotten-tomatoes-score/
+
+Death Note turns a supernatural premise into a gripping psychological war, making it a fantasy horror series that still holds up 20 years later.
+---------
+
+# HBO Max Trailer Reveals New Footage from 'Lanterns,' 'Harry Potter,' & More 2026 Releases
+
+TV News, HBO Max, Harry Potter, Lanterns
+
+Sun, 24 May 2026 19:12:57 GMT
+
+https://movieweb.com/hbo-max-2026-trailer-lanterns-harry-potter/
+
+HBO Max released new footage for 'Lanterns,' 'Harry Potter,' and much more in a trailer teasing new streaming releases coming in 2026.
+---------
+
+# Romance Movies Where One of the Main Characters Dies at the End
+
+Movie Lists, Romance
+
+Sun, 24 May 2026 19:00:22 GMT
+
+https://movieweb.com/romance-movies-main-character-dies-at-the-end/
+
+Covering the best and most emotionally charged romance films that end with the death of one of the main characters.
+---------
+
+# Liam Neeson's Action Thriller 'Cold Pursuit' is Leaving Streaming on Netflix
+
+Movie News, Cold Pursuit, Netflix, Coming/Leaving Streaming, Action
+
+Sun, 24 May 2026 19:00:21 GMT
+
+https://movieweb.com/cold-pursuit-liam-neeson-action-leaving-streaming-netflix-june-2026/
+
+Liam Neeson's cult-classic action thriller 'Cold Pursuit' is being removed from streaming by Netflix in June 2026.
+---------
+
+# 21 Years Later, 'Lost's Most Perfect Episode 'Numbers' Doesn't Get Enough Credit
+
+Features, Lost
+
+Sun, 24 May 2026 19:00:21 GMT
+
+https://movieweb.com/lost-numbers-perfect-episode/
+
+'Lost' Season 1, Episode 18, "Numbers," focuses on Hurley Reyes' (Jorge Garcia) background and shares the mystery of the numbers.
+---------
+
+# 'Mandalorian & Grogu' Nabs Record-Setting Rotten Tomatoes Audience Score
+
+Movie News, The Mandalorian and Grogu, Star Wars, The Mandalorian
+
+Sun, 24 May 2026 18:56:49 GMT
+
+https://movieweb.com/mandalorian-grogu-rotten-tomatoes-audience-score/
+
+Despite fears that it would flop, 'The Mandalorian and Grogu' is a hit with audiences, if not critics.
+---------
+
+# 7 Classic Monsters Already Set up for a 'Godzilla Minus Zero' Appearance
+
+Features, Godzilla Minus Zero, Godzilla
+
+Sun, 24 May 2026 18:00:18 GMT
+
+https://movieweb.com/classic-monsters-set-up-godzilla-minus-zero-list/
+
+'Godzilla Minus Zero' is the highly-anticipated sequel to Takashi Yamazaki's Oscar-winning kaiju epic, and it will likely feature a foe for Godzilla.
+---------
+
 # The Punisher: One Last Kill Has The Exact Opposite Problem The Original Netflix Show Had
 
 Movies, The Punisher: One Last Kill, The Punisher, Marvel
