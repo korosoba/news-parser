@@ -1,3 +1,234 @@
+# 10 Best A24 Movies That Are Out On Streaming Now
+
+Movies, A24, Ranking
+
+Sun, 24 May 2026 15:55:20 GMT
+
+https://screenrant.com/a24-best-movies-on-streaming-now/
+
+A24 has been behind some of the most creative modern films and some of the very best are currently available to watch on streaming services.
+---------
+
+# Dutton Ranch Finally Brought Back The Real Beth Dutton
+
+Streaming TV, Dutton Ranch, Dutton Ranch - Season 1
+
+Sun, 24 May 2026 15:45:20 GMT
+
+https://screenrant.com/dutton-ranch-brought-back-beth-yellowstone/
+
+The two-part premiere of Dutton Ranch presented a far less violent version of Beth Dutton, but the iconic Yellowstone character returned in episode 3.
+---------
+
+# The Mandalorian And Grogu To Earn Its Budget Back In Just 4 Days With Global Box Office Debut
+
+Movies, Star Wars, Box Office, The Mandalorian and Grogu
+
+Sun, 24 May 2026 15:38:34 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-global-box-office-debut/
+
+The Mandalorian and Grogu is set to exceed box office expectations with its 4-day Memorial day weekend debut, earning its budget back worldwide.
+---------
+
+# After 19 Years, One Piece Finally Solves A Major Straw Hat Mystery
+
+Anime, One Piece
+
+Sun, 24 May 2026 15:30:21 GMT
+
+https://screenrant.com/one-piece-chapter-1183-solves-brook-mystery/
+
+Another Straw Hat Pirate is getting their backstory arc.
+---------
+
+# Lord Of The Rings: Saruman Gets Official 2026 Release
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Fellowship of the Ring, PC
+
+Sun, 24 May 2026 15:30:21 GMT
+
+https://screenrant.com/lord-of-the-rings-saruman-infinity-release/
+
+Lord of the Rings: Saruman is getting an official 2026 release from Infinity Studio and Juxta Films featuring the franchise's notorious dark wizard.
+---------
+
+# 6 Animated Movie Trilogies Where Every Entry Is Near-Perfect
+
+Movies, Animation, The Rugrats Movie, How to Train Your Dragon, Cars, Justice League: Crisis on Infinite Earths Part One, Batman: Mask of the Phantasm
+
+Sun, 24 May 2026 15:30:21 GMT
+
+https://screenrant.com/animated-movie-trilogy-every-film-great/
+
+These animated trilogies don’t drop the ball once, delivering strong storytelling, standout visuals, and consistent quality throughout.
+---------
+
+# The Legend Of Zelda Has A Trilogy Nobody Remembers
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Sun, 24 May 2026 15:30:21 GMT
+
+https://screenrant.com/legend-of-zelda-trilogy-nobody-remembers/
+
+The Legend of Zelda is primarily an anthology series with a notoriously convoluted timeline, and three contiguous games are often overlooked.
+---------
+
+# It's An Exciting New Era For Brandon Sanderson Fans
+
+Streaming TV, Brandon Sanderson
+
+Sun, 24 May 2026 15:22:22 GMT
+
+https://screenrant.com/brandon-sanderson-new-era-three-upcoming-book-adaptations/
+
+Get ready for a thrilling new era in fantasy and sci-fi as Brandon Sanderson's most beloved books series come to life on screen in live-action.
+---------
+
+# Star Trek: Strange New Worlds Tried To Get William Shatner In The Series Every Season
+
+TV, Star Trek: Strange New Worlds, Star Trek: Strange New Worlds - Season 4, Star Trek
+
+Sun, 24 May 2026 15:18:00 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-william-shatner-appearance-attempts/
+
+Before Star Trek: Strange New Worlds comes to an end, it has been revealed that there were numerous attempts to get William Shatner in the series.
+---------
+
+# The Walking Dead Originally Had Matthew Lillard as Negan
+
+TV, The Walking Dead, Horror
+
+Sun, 24 May 2026 15:30:13 GMT
+
+https://www.cbr.com/the-walking-dead-matthew-lillard-negan-audition/
+
+Another actor known for playing iconic horror villains was cast as The Walking Dead's Negan for only five minutes.
+---------
+
+# Netflix's Near-Perfect 8-Episode Sci-Fi Saga Is a Perfect Weekend Binge
+
+Anime, Pluto, Astro Boy, Netflix
+
+Sun, 24 May 2026 15:15:14 GMT
+
+https://www.cbr.com/netflix-near-flawless-sci-fi-series-perfect-weekend-binge/
+
+This Netflix sci-fi mystery series combines both genres perfectly, with a thrilling story that takes a classic hero to new places.
+---------
+
+# The Boys Is Officially Replaced as No. 1 on Prime Video Only 3 Days After Divisive Series Finale
+
+TV, The Boys, Off Campus
+
+Sun, 24 May 2026 15:00:13 GMT
+
+https://www.cbr.com/the-boys-replaced-off-campus-prime-video-global-charts-may-2026/
+
+The Boys just got knocked from the top of the streaming charts, and its replacement is an incredibly steamy new romance series.
+---------
+
+# 7 Fantasy Novel Series That Deserve The Witcher Games Treatment
+
+Games, Video Games, The Witcher, The Dark Tower, The Chronicles of Narnia, Gaming, Fantasy
+
+Sun, 24 May 2026 15:00:13 GMT
+
+https://www.cbr.com/fantasy-novels-that-deserve-witcher-games-treatment/
+
+From page to console, these incredible fantasy series would thrive as video games.
+---------
+
+# Ocarina of Time Officially Revealed Zelda's 40th Anniversary
+
+Games, The Legend of Zelda
+
+Sun, 24 May 2026 14:50:13 GMT
+
+https://www.cbr.com/ocarina-of-time-revealed-zeldas-40th-anniversary/
+
+The Legend of Zelda is celebrating its 40th anniversary with a new release that'll be apart of your nighttime routine
+---------
+
+# HBO’s 8-Part Crime Drama Quietly Became the Best Adaptation Ever Made
+
+TV Features, The Penguin, Colin Farrell, Cristin Milioti, Mark Strong
+
+Sun, 24 May 2026 15:54:13 GMT
+
+https://collider.com/the-penguin-hbo-crime-drama-best-comic-book-show/
+
+The Penguin is a gritty and captivating origin story set in Gotham's criminal underworld that moves beyond the bounds of a simply comic book story.
+---------
+
+# ‘The Mandalorian and Grogu’ Recovers Reported Budget in Just 1 Weekend
+
+Movie News, The Mandalorian and Grogu, Star Wars, Jon Favreau, Pedro Pascal
+
+Sun, 24 May 2026 15:27:54 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-box-office-budget-opening-weekend-160-million/
+
+The Mandalorian and Grogu reached a major box office milestone by reportedly recovering its budget during its opening weekend.
+---------
+
+# All 14 Batman Villains, Ranked by Intelligence
+
+Movie, The Dark Knight, The Batman, Batman
+
+Sun, 24 May 2026 15:04:15 GMT
+
+https://collider.com/batman-movie-villains-intelligence-ranked/
+
+Batman has a stellar rogues' gallery, including the likes of The Joker, Two-Face, Ra's al Ghul, and Catwoman, but which villain is the smartest?
+---------
+
+# Henry Cavill's New Action Thriller Trails His Underrated James Bond-Style Guy Ritchie Team-Up
+
+Movie News, In the Grey, Guy Ritchie, Henry Cavill, Box Office
+
+Sun, 24 May 2026 15:00:14 GMT
+
+https://collider.com/in-the-grey-box-office-henry-cavill-guy-ritchie-james-bond-dupe-man-from-uncle-5-million/
+
+Guy Ritchie’s In the Grey continues to struggle at the box office, falling far behind one of the director’s previous spy-action disappointments.
+---------
+
+# '30 Rock' Cast Member Grizz Chapman Dies at 52
+
+TV News, 30 Rock, Comedy, Peacock
+
+Sun, 24 May 2026 15:14:41 GMT
+
+https://movieweb.com/grizz-chapman-dies-30-rock/
+
+Chapman was a fan favorite on '30 Rock' before going on to do other TV work.
+---------
+
+# The Best Con Artist TV Shows of the 21st Century (So Far), Ranked
+
+TV Lists, Crime
+
+Sun, 24 May 2026 15:00:19 GMT
+
+https://movieweb.com/best-con-artist-tv-shows-21st-century/
+
+A definitive ranking of the best con artist TV shows since 2000, exploring the series that made deception compelling.
+---------
+
+# 16 Nearly-Identical Movies That Coincidentally Came Out in the Same Year
+
+Movie Lists
+
+Sun, 24 May 2026 15:00:18 GMT
+
+https://movieweb.com/identical-movies-released-same-year/
+
+Hollywood has always chased the most popular trends, and that has inevitably led to competing studios producing nearly identical movies.
+---------
+
 # Recasting Indiana Jones With Karl Urban Gets Definitive Response From The Boys Star
 
 Movies, Indiana Jones, Karl Urban
