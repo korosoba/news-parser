@@ -1,3 +1,245 @@
+# The Last Of Us: Powerlines Is An Official New Release For Serious Fans
+
+Gaming, The Last of Us, The Last of Us Part 2, PC, The Last of Us: Part 1, The Last of Us 3
+
+Mon, 25 May 2026 04:45:18 GMT
+
+https://screenrant.com/the-last-of-us-powerlines-cook-and-becker-2026/
+
+The Last of Us: Powerlines is getting an official new 2026 release from Naught Dog, and fans of the franchise will absolutely not want to miss out.
+---------
+
+# PlayStation Plus Free 150-Hour RPG Is Final Fantasy Meets Stardew Valley
+
+Gaming, PlayStation Plus, Stardew Valley, Final Fantasy
+
+Mon, 25 May 2026 04:30:20 GMT
+
+https://screenrant.com/playstation-plus-150-hour-rpg-final-fantasy-vibes/
+
+PlayStation Plus is full of brilliant games to play in any genre, but there's one RPG you might have missed along the way.
+---------
+
+# Fallout: New Vegas Has A Perfect Free Remaster Via Xbox Game Pass
+
+Gaming, Fallout
+
+Mon, 25 May 2026 04:00:28 GMT
+
+https://screenrant.com/fallout-new-vegas-xbox-game-pass-fps-boost/
+
+Discover how Xbox's FPS Boost feature enhances Fallout: New Vegas performance, offering smoother gameplay on Xbox Series X/S consoles.
+---------
+
+# Daredevil: Born Again Season 3 Sparks Rumors Of Marvel Hero's Return After MCU Star Confirms Set Visit
+
+TV, Daredevil: Born Again, Ms. Marvel, Marvel Cinematic Universe
+
+Mon, 25 May 2026 03:59:12 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-ms-marvel-iman-vellani-rumor/
+
+One Marvel hero may be making a surprise visit to Hell's Kitchen in the upcoming third season of Daredevil: Born Again after star reveals set visit.
+---------
+
+# Sorry Miyazaki, But Another Director Deserves The Throne Of Ghibli's Greatest Director
+
+Anime, Studio Ghibli, Hayao Miyazaki
+
+Mon, 25 May 2026 03:58:30 GMT
+
+https://screenrant.com/isao-takahata-best-ghibli-director-not-miyazaki/
+
+Isao Takahata's uncompromising realism and stylistic boldness that elevate his films, making him the greatest director the studio has seen.
+---------
+
+# Euphoria Triggers Commotion Over Major Character's Death
+
+TV, Euphoria
+
+Mon, 25 May 2026 03:57:37 GMT
+
+https://screenrant.com/euphoria-season-3-nate-death/
+
+One of the most controversial characters in Sydney Sweeney's popular thriller series met a gruesome end, shocking the show's devoted fans.
+---------
+
+# 2026 Is The Year Isekai Has Finally Been Dethroned As Anime's Top Genre
+
+Anime, Isekai
+
+Mon, 25 May 2026 03:30:22 GMT
+
+https://screenrant.com/fantasy-anime-beats-isekai-anime-2026/
+
+There's no denying isekai's dominance over the past few years, but 2026 has shown that the popular genre might finally be losing its spot at the top.
+---------
+
+# Stranger Things Meets Close Encounters In Prime Video's Underseen 10/10 Sci-Fi
+
+Movies, Masked Recs
+
+Mon, 25 May 2026 03:16:12 GMT
+
+https://screenrant.com/the-vast-of-night-prime-video-stranger-things-close-encounters/
+
+Prime Video is the streaming home of an overlooked but brilliant sci-fi movie that merges Stranger Things’ intrigue with Close Encounters’ scale.
+---------
+
+# Spring 2026's Best Action-Comedy Anime Is Flying Criminally Under The Radar
+
+Anime, Kill Blue
+
+Mon, 25 May 2026 03:15:20 GMT
+
+https://screenrant.com/kill-blue-action-comedy-shonen-anime-underrated/
+
+A socially-inept assassin suddenly gets his second chance at a childhood in this charming, hilarious action-comedy anime.
+---------
+
+# Green Lantern Fans React to New Look at Hal Jordan's Lanterns Suit
+
+TV, Lanterns
+
+Mon, 25 May 2026 03:47:32 GMT
+
+https://www.cbr.com/lanterns-hbo-max-promo-hal-jordan-costume/
+
+A new look at Lanterns has resulted in more criticism leveled against HBO Max's DCU series.
+---------
+
+# 10 Anime Heroes Who Quietly Became The Final Boss
+
+Anime, Naruto, Code Geass: Lelouch of the Rebellion
+
+Mon, 25 May 2026 03:46:16 GMT
+
+https://www.cbr.com/anime-heroes-quietly-became-the-main-villain/
+
+Some anime heroes don't just fall to darkness; they become the main villain of their entire series.
+---------
+
+# Sam Neill's 3-Part Mystery Thriller Is the Tightest Adaptation of an Agatha Christie Novel
+
+TV, And Then There Were None, Mystery, bbc
+
+Mon, 25 May 2026 03:31:13 GMT
+
+https://www.cbr.com/sam-neill-and-then-there-were-none-tightest-agatha-christie-adaptation/
+
+The BBC’s And Then There Were None is a masterclass in how to adapt an Agatha Christie novel, refusing to dampen its bleak, cruel tone for comfort.
+---------
+
+# Forgotten 6-Part Procedural Spinoff Is Officially Heading to Free Streaming
+
+TV, Major Crimes
+
+Mon, 25 May 2026 03:22:41 GMT
+
+https://www.cbr.com/major-crimes-free-streaming-pluto-tv-june-2026/
+
+All six seasons of the police procedural series are getting a free streaming home.
+---------
+
+# The Best JRPGs For Final Fantasy Fans
+
+Games, Final Fantasy, JRPG, Pokemon
+
+Mon, 25 May 2026 03:15:13 GMT
+
+https://www.cbr.com/best-jrpgs-like-final-fantasy/
+
+The Final Fantasy series has produced some of the best JRPGs ever made, but those who have finished all of them can find similar titles elsewhere.
+---------
+
+# Diablo 4 Officially Drops Free Download Available Until June 10
+
+Games, Diablo 4, Halo, world of warcraft
+
+Mon, 25 May 2026 03:10:13 GMT
+
+https://www.cbr.com/diablo-4-free-download-official-june-10/
+
+Fans of Diablo 4, Halo, and several other hit video games can get free downloads and more up through June 10, and it's all thanks to Fanta.
+---------
+
+# 10 Perfect Action Anime to Watch After Jujutsu Kaisen Season 3
+
+Anime, Jujutsu Kaisen, Shonen
+
+Mon, 25 May 2026 03:00:12 GMT
+
+https://www.cbr.com/best-action-anime-jjk-season-3-list/
+
+It's hard to find anime like Jujutsu Kaisen, but these action anime are the perfect replacements.
+---------
+
+# 5 Dark Anime Series That Are Perfect From Start to Finish
+
+Anime
+
+Mon, 25 May 2026 02:45:12 GMT
+
+https://www.cbr.com/best-dark-anime-series-perfect-from-start-to-finish/
+
+These unskippable dark anime series that do not let down viewers from beginning to end.
+---------
+
+# Prime Video's $50 Million Royal Family Drama Is 'The Crown's Darker Replacement
+
+TV Features, The Romanoffs, Matthew Weiner, Corey Stoll, Noah Wyle
+
+Mon, 25 May 2026 03:59:13 GMT
+
+https://collider.com/prime-video-royal-family-drama-the-romanoffs-the-crown-replacement/
+
+Prime Video's The Romanoffs is a visually stunning and thought-provoking exploration of royal lineage — and more than worthy of a second look.
+---------
+
+# Netflix's Insane Thriller Is a Sinister Cat-and-Mouse Game You Can't Look Away From
+
+Movie Features, I Came By, Hugh Bonneville, Netflix, Thriller
+
+Mon, 25 May 2026 03:34:13 GMT
+
+https://collider.com/i-came-by-netflix-thriller/
+
+I Came By, starring Hugh Bonneville and George MacKay, delivers a grim but compelling psychological thriller.
+---------
+
+# The Quirky 5-Part Sci-Fi Series Is Impossible To Stop Watching
+
+TV Features, Eureka, SyFy, Sci-Fi, Sitcom
+
+Mon, 25 May 2026 03:32:13 GMT
+
+https://collider.com/sci-fi-series-eureka-streaming-free-now/
+
+Eureka is a charming sci-fi series with a small-town vibe and a fascinating premise. With over 70 episodes, it's the perfect winter binge-watch.
+---------
+
+# 8 Underrated Sci-Fi Shows That Are Actually Masterpieces From Start to Finish
+
+TV, Science Fiction, The OA, Orphan Black, 12 Monkeys
+
+Mon, 25 May 2026 03:22:01 GMT
+
+https://collider.com/sci-fi-tv-shows-underrated-masterpieces/
+
+From the Netflix cult classic The OA to the underrated Orphan Black, these sci-fi shows are masterpieces that never got the attention they deserved.
+---------
+
+# Prime Video’s #1 New Series Is the Cringe-Worthy Summer Binge We Secretly Needed
+
+TV Features, Off Campus, Books, Prime Video, Romance
+
+Mon, 25 May 2026 02:56:13 GMT
+
+https://collider.com/off-campus-prime-video-new-series/
+
+Elle Kennedy's Off Campus, Prime Video's newest romance drama, is more than just another guilty pleasure.
+---------
+
 # Evil Season 5 Story Details Revealed By Mike Colter
 
 TV, Evil
