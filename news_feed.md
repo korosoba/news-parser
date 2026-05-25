@@ -1,3 +1,333 @@
+# 20 Best XP Farms For Minecraft 1.21
+
+Gaming, Minecraft, PC
+
+Mon, 25 May 2026 18:46:49 GMT
+
+https://screenrant.com/best-xp-farms-minecraft/
+
+XP remains one of the most valuable resources in Minecraft 1.21, but the best farms for experience also gather important materials for you to use.
+---------
+
+# One Piece Confirms Another Straw Hat Swordsman Outclasses Zoro
+
+Anime, One Piece, One Piece (1997)
+
+Mon, 25 May 2026 18:30:19 GMT
+
+https://screenrant.com/one-piece-brook-better-swordsman-zoro/
+
+A Straw Hat crew member's past reveals sword skills that outmatch Zoro's current abilities with techniques that could teach him a thing or two.
+---------
+
+# 10 Highest Grossing Memorial Day Weekend Movie Openings Of All Time At The U.S. Box Office
+
+Classic Movies, Ranking
+
+Mon, 25 May 2026 18:30:19 GMT
+
+https://screenrant.com/greatest-memorial-day-weekend-opening-box-office-america/
+
+Memorial Day weekend is always a big movie-going holiday, and here are the 10 highest grossing weekend releases for the first holiday of the summer.
+---------
+
+# Amazon's Hit Detective Franchise Is So Good, It's Already Renewed For At Least 2 More Seasons
+
+TV, Masked Recs
+
+Mon, 25 May 2026 18:29:20 GMT
+
+https://screenrant.com/bosch-amazon-franchise-renewed-ballard-start-of-watch/
+
+A rare feat: Amazon's iconic cop show is set to air both a spinoff and a prequel simultaneously, outdoing even popular shows like Reacher and Cross.
+---------
+
+# Benson & Stabler's Future In Law & Order: SVU Gets Candid Response From Showrunner After Christopher Meloni's Spinoff Cancellation
+
+TV, Law & Order: Special Victims Unit, Law and Order
+
+Mon, 25 May 2026 18:18:45 GMT
+
+https://screenrant.com/law-and-order-benson-stabler-future-organized-crime-cancellation-michele-fazekas/
+
+Law & Order: SVU showrunner Michele Fazekas gets candid about Benson and Stabler's future after the latter's spinoff cancellation.
+---------
+
+# All 3 Marvel And DC Movies & Shows Releasing On Disney+ & HBO Max In June 2026
+
+Superheroes, Disney+, HBO Max, Marvel Cinematic Universe, DC Universe, Quiz CV
+
+Mon, 25 May 2026 18:12:31 GMT
+
+https://screenrant.com/marvel-dc-movies-shows-release-disney-plus-hbo-max-june-2026/
+
+HBO Max and Disney+ will see the release of multiple Marvel and DC movies and TV shows in June, with characters like Superman, Iron Man, and more.
+---------
+
+# Euphoria Season 3 Has Officially Failed Nate Jacobs
+
+Streaming TV, Euphoria
+
+Mon, 25 May 2026 18:12:14 GMT
+
+https://screenrant.com/euphoria-season-3-failed-nate-jacobs/
+
+Jacob Elordi once played a complex and frightening character on the HBO spectacle, but Nate has become unrecognizable, and there's no going back now.
+---------
+
+# DC Officially Debuts "All-New, All-Different Bat-Family" for Batman's New Appearance
+
+DC Comics, Batman
+
+Mon, 25 May 2026 18:05:53 GMT
+
+https://screenrant.com/joker-new-bat-family-members-batman-hush-sequel/
+
+DC Comics is now upending the typical Bat-Family roster by debuting an “all-new, all-different Bat-Family” ahead of Batman’s next appearance.
+---------
+
+# Lord Of The Rings New Open World RPG Release Date Is A Way Off
+
+Gaming, The Lord of the Rings, Kingdom Come: Deliverance II, Triple-A Games, Kingdom Come: Deliverance
+
+Mon, 25 May 2026 18:03:26 GMT
+
+https://screenrant.com/kingdom-come-lotr-game-release-window-info/
+
+The newly announced open-world Middle-earth RPG from Warhorse is fantastic news, but it will probably be a long while until we hear from it again.
+---------
+
+# Disney+'s 10/10 Star Wars Series Makes Revenge Of The Sith Look Small
+
+Classic TV, Masked Recs
+
+Mon, 25 May 2026 18:00:20 GMT
+
+https://screenrant.com/star-wars-clone-wars-makes-revenge-of-the-sith-small/
+
+Revenge of the Sith is arguably the biggest Star Wars movie, but even it pales in comparison to the sheer size and scope of The Clone Wars.
+---------
+
+# Daredevil Cinematographer Explains the 'Really Interesting Flip' She Included That Most Fans Likely Missed
+
+TV, Daredevil: Born Again, Marvel Cinematic Universe
+
+Mon, 25 May 2026 18:51:09 GMT
+
+https://www.cbr.com/daredevil-born-again-season-2-kingpin-daredevil-color-flip/
+
+Daredevil: Born Again Season 2 Cinematographer Hillary Fyfe Spera sheds light on an Easter egg most fans missed.
+---------
+
+# Elder Scrolls 6 Release Date Finally Gets Update
+
+Games, The Elder Scrolls
+
+Mon, 25 May 2026 18:35:12 GMT
+
+https://www.cbr.com/elder-scrolls-6-release-date-finally-gets-update-its-bad-news-for-fans/
+
+Bethesda announced The Elder Scrolls 6 far too early, as a new leak suggests the game is still a long way off, likely into the PlayStation 6 era.
+---------
+
+# All 5 Seasons of Michael Bay's Sci-Fi Series Are Finally Coming to Netflix
+
+TV, The Last Ship
+
+Mon, 25 May 2026 18:20:59 GMT
+
+https://www.cbr.com/the-last-ship-streaming-netflix-june-2026/
+
+The underrated sci-fi series produced by Michael Bay is coming to Netflix for the first time.
+---------
+
+# 10 Greatest Anime Movie Villains of All Time
+
+Anime, Dragon Ball Z: Battle of Gods, Demon Slayer the Movie: Mugen Train, Akira, shonen anime, Pokemon
+
+Mon, 25 May 2026 18:15:12 GMT
+
+https://www.cbr.com/greatest-anime-movie-villains/
+
+Anime movies wouldn't be as memorable if not for a note-worthy antagonist, and these ten feature films have some of the greatest villains of all time.
+---------
+
+# A Quiet Place Returns: First Look at the Franchise’s Terrifying New Nightmare
+
+Comics, A Quiet Place
+
+Mon, 25 May 2026 18:00:13 GMT
+
+https://www.cbr.com/a-quiet-place-storm-warning-3-preview/
+
+There is no harm in getting loud over the latest chapter in the A Quiet Place franchise.
+---------
+
+# Chopper Officially Returns to the NBA in New One Piece Crossover Collection
+
+Anime, One Piece, NBA
+
+Mon, 25 May 2026 18:00:13 GMT
+
+https://www.cbr.com/one-piece-nba-collab-chopper-plush-toys/
+
+The One Piece x NBA Masters Stars Piece collaboration restocks the much-desired Tony Tony Chopper plushies, available for limited pre-order.
+---------
+
+# Andrew Lincoln Stole the Show in Strike Back
+
+TV, Strike Back, andrew lincoln, The Walking Dead
+
+Mon, 25 May 2026 17:30:12 GMT
+
+https://www.cbr.com/strike-back-impressive-andrew-lincoln-performance/
+
+Rick Grimes is Andrew Lincoln's longest-running role, but he delivered one of his shortest yet most impressive performances in another series.
+---------
+
+# Prime Video Confirms Jack Ryan's Future After 'Ghost War'
+
+Movies, Tom Clancy's Jack Ryan: Ghost War
+
+Mon, 25 May 2026 17:30:12 GMT
+
+https://www.cbr.com/jack-ryan-prime-video-future-confirmed/
+
+After pivoting from a streaming series to a direct-to-streaming movie, is that all she wrote for John Krasinski's CIA analyst-turned-field agent?
+---------
+
+# Video Games Turning 20 In 2026
+
+Games, Video Games, The Elder Scrolls, The Legend of Zelda, super mario bros, Nintendo
+
+Mon, 25 May 2026 17:15:15 GMT
+
+https://www.cbr.com/video-games-turning-20-in-2026/
+
+2006 was a long time ago, but its biggest video games are still fondly remembered today, even as they finally celebrate their 20th birthday.
+---------
+
+# HBO’s New ‘Harry Potter’ Trailer Is Already Fixing a Major Problem From the Original Movies
+
+TV Features, Harry Potter, HBO Max, Daniel Radcliffe
+
+Mon, 25 May 2026 18:56:14 GMT
+
+https://collider.com/hbo-harry-potter-television-trailer-fixing-snape-mystery/
+
+HBO's Harry Potter television reboot seems to be separating itself from the films by adapting the books more faithfully.
+---------
+
+# 10 Most Shocking Moments of 'The Boys' Series Finale, Ranked
+
+TV, The Boys, Prime Video, Superhero, Action
+
+Mon, 25 May 2026 18:22:13 GMT
+
+https://collider.com/the-boys-series-finale-most-shocking-moments-ranked/
+
+The Boys' series finale, starring Karl Urban and Antony Starr, was filled with many jaw-dropping moments, but which scene is the most shocking?
+---------
+
+# John Cena and Eric André Bring Netflix’s Next Chaotic Romp to Life in Bonkers New Look
+
+Movie News, Little Brother, John Cena, Eric Andre, Collider Exclusive Preview
+
+Mon, 25 May 2026 18:01:13 GMT
+
+https://collider.com/little-brother-netflix-john-cena-eric-andre-preview-image/
+
+Get an exclusive look at Netflix’s Little Brother, the upcoming movie starring John Cena and Eric André, ahead of its June release.
+---------
+
+# 10 Greatest Seinen Manga of All Time, Ranked
+
+Movie, Manga, Dorohedoro, Grand Blue Dreaming, Anime
+
+Mon, 25 May 2026 17:30:13 GMT
+
+https://collider.com/best-seinen-manga-all-time-ranked/
+
+The seinen demographic is the target for some of the all-time best manga ever written, including masterpieces of the medium like Berserk and Vagabond.
+---------
+
+# DC Is Officially Replacing Batman's Alfred Pennyworth After 83 Years
+
+Movie News, Batman, Comics, DC, The Batman Part II
+
+Mon, 25 May 2026 17:15:46 GMT
+
+https://collider.com/batman-new-alfred-bat-family-ally-dc-comics/
+
+New Batman release introduces a mysterious new Bat-Family ally described as Alfred Pennyworth’s “gift from beyond the grave.”
+---------
+
+# 10 Chilling International Horror Movies Directed by Women
+
+Movie, Relic, Huesera: The Bone Woman, Slash/Back, Tiger Stripes
+
+Mon, 25 May 2026 17:15:15 GMT
+
+https://collider.com/international-horror-movies-directed-by-women/
+
+Relic, The Shadow Within, and Blood and Chocolate are memorably frightening international horror movies directed by women.
+---------
+
+# The 17 Best Fantasy Movies of the Last 5 Years, Ranked
+
+Movie, All of Us Strangers, Fantasy, Megalopolis, The Boy and the Heron
+
+Mon, 25 May 2026 17:12:13 GMT
+
+https://collider.com/fantasy-movies-last-5-years-best-ranked/
+
+Underrated gems like Three Thousand Years of Longing and masterpieces like All of Us Strangers are among the best fantasy movies of the last 5 years.
+---------
+
+# New Star Wars Movie Needs To Earn Back the Budget of the Franchise’s Most Expensive Movie
+
+Movie News, The Mandalorian and Grogu, Box Office, Star Wars, Pedro Pascal
+
+Mon, 25 May 2026 17:02:21 GMT
+
+https://collider.com/the-mandalorian-and-grogu-budget-break-even-point-500-million-box-office/
+
+The Mandalorian and Grogu's reported break-even point puts the majesty of the Star Wars franchise into perspective. Find out more.
+---------
+
+# New Horror Movie Grosses 100x Its Budget in Just 10 Days
+
+Movie News, Obsession, Inde Navarrette, Box Office, Horror
+
+Mon, 25 May 2026 17:00:54 GMT
+
+https://collider.com/new-horror-masterpiece-obsession-grosses-100x-budget-box-office/
+
+Curry Barker's Obsession, starring Indi Navarrette, has already earned 100x its budget in just 10 days at the box office.
+---------
+
+# Jensen Ackles' 'The Boys' Finale Role Sets up Perfect 'Vought Rising' Format
+
+Features, The Boys, Vought Rising
+
+Mon, 25 May 2026 18:00:18 GMT
+
+https://movieweb.com/the-boys-vought-rising-format/
+
+Jensen Ackles wasn't in 'The Boys' Season 5 finale, but that doesn't necessarily mean we won't see Soldier Boy's future. Read on for more.
+---------
+
+# 'Masters of the Universe' Is Getting Another Reboot Alongside Upcoming Film
+
+Movie News, Masters of the Universe
+
+Mon, 25 May 2026 17:43:46 GMT
+
+https://movieweb.com/masters-of-the-universe-getting-another-reboot/
+
+The next 'Masters of the Universe' reboot is ready to make its debut, premiering mere days after the new movie hits theaters.
+---------
+
 # Who Euphoria Creator Sam Levinson Blames For Season 3's Big Death
 
 Streaming TV, Euphoria, Euphoria - Season 3
