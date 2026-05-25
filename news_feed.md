@@ -1,3 +1,256 @@
+# GTA 5 Freebie Officially Available To Grab Before June 10
+
+Gaming, Grand Theft Auto, Grand Theft Auto 5
+
+Mon, 25 May 2026 11:30:19 GMT
+
+https://screenrant.com/gta-5-online-free-download-june-2026/
+
+GTA V is still the premier game in the series for another six months or so, and there's some freebies you can pick up if you're still playing.
+---------
+
+# GTA 6 Gameplay Glimpse Surfaces Ahead Of Trailer Three
+
+Gaming, Grand Theft Auto 6
+
+Mon, 25 May 2026 11:29:13 GMT
+
+https://screenrant.com/gta-6-gameplay-glimpse-surfaces-ahead-of-trailer-three/
+
+GTA 6 looks to be one of the most detailed game of all time, and this latest glimpse at gameplay is definitely pumping up the hype.
+---------
+
+# Cyberpunk 2077 Is Getting So Much New Free Content This Year
+
+Gaming, Cyberpunk 2077, Cyberpunk
+
+Mon, 25 May 2026 11:00:20 GMT
+
+https://screenrant.com/cyberpunk-2077-mod-highlights-2026/
+
+Cyberpunk 2077 is one of the best RPGs of all-time, and fans are bringing out content all the time that advances the overall experience.
+---------
+
+# Pokémon Ocean Blue Is The Perfect Return To Kanto
+
+Gaming, Pokemon
+
+Mon, 25 May 2026 10:30:20 GMT
+
+https://screenrant.com/pokemon-ocean-blue-kanto-return-rom-hack/
+
+Discover the immersive world of Pokémon Ocean Blue, a revamped Kanto region ROM hack featuring new areas, story, and more.
+---------
+
+# Steam Machine Price Leaks, And It's Not Pretty
+
+Gaming, Steam
+
+Mon, 25 May 2026 10:21:44 GMT
+
+https://screenrant.com/steam-machine-price-leaks-and-its-not-pretty/
+
+The Steam Machine's price may have just leaked thanks to Valve, and it's clear you'll want to start saving as soon as possible.
+---------
+
+# Red Dead Redemption 2 Ultimate Is A Wildly Impressive Upgrade
+
+Gaming, Red Dead Redemption 2, Red Dead Redemption
+
+Mon, 25 May 2026 10:00:30 GMT
+
+https://screenrant.com/red-dead-redemption-2-ultimate-mod-upgrade/
+
+Red Dead Redemption 2 is a brilliant game in its own right, but that doesn't mean we can't make things a little better all the same.
+---------
+
+# Star Trek: Strange New Worlds EPs Reveal Details On Already Divisive Season 4 Episode
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Mon, 25 May 2026 09:31:04 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-puppet-episode-details/
+
+Star Trek: Strange New Worlds executive producers Alex Kurtzman and Akiva Goldsman drop more info about season 4's upcoming puppet episode.
+---------
+
+# Final Fantasy 7 Remake Free Download Officially Available Now
+
+Gaming, Final Fantasy 7 Remake, PlayStation Plus
+
+Mon, 25 May 2026 09:31:04 GMT
+
+https://screenrant.com/final-fantasy-7-remake-free-download-ps-plus/
+
+The Final Fantasy 7 Remake is the first part of an epic trilogy of games that brings the all-time classic back to life in a whole new way.
+---------
+
+# Lord Of The Rings: Gandalf - Mithrandir Officially Arrives July 2026
+
+Gaming, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings, PC
+
+Mon, 25 May 2026 09:00:54 GMT
+
+https://screenrant.com/lord-of-the-rings-gandalf-mithrandir-vanderstelt-release/
+
+Lord of the Rings's Gandalf: Mithrandir is getting an official release in July 2026 featuring the franchise's iconic grey wizard.
+---------
+
+# Steam 9/10 Game Completely Free To Keep Forever For Next 48 Hours
+
+Gaming, Steam
+
+Mon, 25 May 2026 08:03:19 GMT
+
+https://screenrant.com/steam-2017-game-free-download-keep-48-hours/
+
+Steam gamers can grab an excellent 2017 game for free right now, but you only have 48 hours to do so.
+---------
+
+# 10 Heaviest Film Noir Movies of All Time, Ranked
+
+Movie, Chinatown, Sunset Boulevard, The Night of the Hunter, Vertigo
+
+Mon, 25 May 2026 11:31:15 GMT
+
+https://collider.com/heaviest-film-noir-movies-all-time-ranked/
+
+Film noir movies are almost always at least a little heavy, though classics like Chinatown, Double Indemnity, and Scarlet Street go the extra mile.
+---------
+
+# Prime Video Says Goodbye to Bruce Willis' Greatest Sci-Fi Classic
+
+Movie News, Twelve Monkeys, Sci-Fi, Brad Pitt, Bruce Willis
+
+Mon, 25 May 2026 11:30:13 GMT
+
+https://collider.com/bruce-willis-brad-pitt-sci-fi-time-travel-classic-twelve-monkeys-leaving-prime-video-may-31-2026/
+
+Twelve Monkeys, Terry Gilliam’s mind-bending sci-fi classic starring Bruce Willis and Brad Pitt, is leaving Prime Video soon. Read on for more.
+---------
+
+# 8 Upcoming Video Game Adaptations, Ranked by Anticipation
+
+Movie, Video Game, Resident Evil, Angry Birds Movie, A Minecraft Movie 2
+
+Mon, 25 May 2026 11:20:14 GMT
+
+https://collider.com/upcoming-video-game-adaptations-ranked-by-anticipation/
+
+There are many high profile video game adaptations that fans are highly excited for, including A Minecraft Sequel, Helldivers, and Elden Ring.
+---------
+
+# 'Stranger Things' Easter Egg May Have Just Revealed the Future of Netflix's New Stellar Sci-Fi Series
+
+Exclusives, The Boroughs, Netflix, Geena Davis, Duffer Brothers
+
+Mon, 25 May 2026 11:00:14 GMT
+
+https://collider.com/the-boroughs-netflix-stranger-things-easter-egg-meaning-explained-episode-8/
+
+Geena Davis, Denis O'Hare, and Clarke Peters discuss The Boroughs Season 1 cliffhanger, future seasons, and on-set camaraderie.
+---------
+
+# Time Is Running Out To Watch Ryan Gosling’s Haunting Crime Epic
+
+Movie News, Ryan Gosling, The Place Beyond the Pines, Crime, Thriller
+
+Mon, 25 May 2026 11:00:14 GMT
+
+https://collider.com/ryan-gosling-crime-thriller-the-place-beyond-the-pines-leaving-streaming-prime-video-may-31-2026/
+
+Ryan Gosling’s brutal crime saga The Place Beyond the Pines, also featuring Eva Mendes, is about to leave streaming soon. Read on for more.
+---------
+
+# ‘The Mandalorian and Grogu’ Needs a Box Office Miracle After an Underwhelming Opening
+
+Movie News, The Mandalorian and Grogu, Box Office, Jon Favreau, Star Wars
+
+Mon, 25 May 2026 10:30:14 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-box-office-break-even-point-500-600-million/
+
+The Mandalorian and Grogu opened to an underwhelming box-office response this weekend, but it doesn't have to climb an Ewok hideout to break even.
+---------
+
+# 5 Forgotten Clint Eastwood Movies That Are Almost Perfect
+
+Movie, Clint Eastwood, Play Misty for Me, Classics, The Beguiled
+
+Mon, 25 May 2026 10:11:28 GMT
+
+https://collider.com/forgotten-clint-eastwood-movies-almost-perfect/
+
+The Beguiled, Play Misty for Me, and Tightrope are lesser-known Clint Eastwood movies that come close to true perfection.
+---------
+
+# 2026's New WWII Epic Is Officially the Ultimate Dad Movie
+
+Movie Reviews, Pressure, Brendan Fraser, Andrew Scott, World War II
+
+Mon, 25 May 2026 10:00:26 GMT
+
+https://collider.com/2026-ww2-movie-pressure-sneak-preview-dad-screening/
+
+The upcoming World War II movie Pressure is being marketed directly to its target audience — dads. Find out more about a sneak preview held recently.
+---------
+
+# One of the Most Divisive Sci-Fi Movies of the 2000s Is Finding New Life on Netflix
+
+Movie News, I Am Legend, I Am Legend 2, Will Smith, Sci-Fi
+
+Mon, 25 May 2026 09:31:24 GMT
+
+https://collider.com/will-smith-i-am-legend-divisive-sci-fi-thriller-streaming-success-netflix-may-2026/
+
+I Am Legend remains one of the 21st century’s most debated sci-fi horror movies, and it’s back as a streaming hit.
+---------
+
+# The 15 Best Sci-Fi Comedies of All Time, Ranked
+
+Movie, Sci-Fi, Back to the Future, Bill & Ted's Excellent Adventure, Comedy
+
+Mon, 25 May 2026 09:11:13 GMT
+
+https://collider.com/sci-fi-comedy-movies-best-ranked/
+
+Sci-fi comedy is a genre that has delivered some of the most iconic and hilarious films that fans still love, from Ghostbusters to Back to the Future.
+---------
+
+# Mike Myers Confirms 'Shrek 6' in Development Ahead of 'Shrek 5' Sequel
+
+Movie News, Shrek 5, Shrek, Mike Myers
+
+Mon, 25 May 2026 11:30:54 GMT
+
+https://movieweb.com/shrek-6-development-franchise-future/
+
+Dana Carvey has revealed that Mike Myers confirmed 'Shrek 6' is in development ahead of the release of next year's 'Shrek 5' sequel.
+---------
+
+# The 10 Most Original Movies of the 2020s (So Far)
+
+Movie Lists, 2020s, Drama, Sci-Fi, The Substance, Sinners, Barbie
+
+Mon, 25 May 2026 11:00:19 GMT
+
+https://movieweb.com/most-original-movies-2020s-so-far/
+
+These fantastic films have been defining the decade with bold and original ideas across drama, sci-fi, horror, and comedy.
+---------
+
+# 'Corporate Retreat' Review: Gruesome Horror-Comedy Pushes Limits
+
+Movie Reviews, Corporate Retreat, Horror
+
+Mon, 25 May 2026 08:49:27 GMT
+
+https://movieweb.com/corporate-retreat-review/
+
+'Corporate Retreat' satisfies its grisly premise with shocking visuals and a twisted narrative.
+---------
+
 # The Last Of Us: Powerlines Is An Official New Release For Serious Fans
 
 Gaming, The Last of Us, The Last of Us Part 2, PC, The Last of Us: Part 1, The Last of Us 3
