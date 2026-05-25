@@ -1,3 +1,421 @@
+# Who Euphoria Creator Sam Levinson Blames For Season 3's Big Death
+
+Streaming TV, Euphoria, Euphoria - Season 3
+
+Mon, 25 May 2026 17:00:19 GMT
+
+https://screenrant.com/euphoria-season-3-nate-jacobs-death-sam-levinson-audience/
+
+The penultimate episode of Euphoria season 3 features a major character death, but the guilty party, according to Sam Levinson, is a huge shock.
+---------
+
+# 3 Body Problem Season 2’s Delay Will Have A Massive Payoff
+
+Streaming TV, 3 Body Problem
+
+Mon, 25 May 2026 17:00:19 GMT
+
+https://screenrant.com/3-body-problem-season-2-delay-release-fast-return-payoff/
+
+Netflix's 3 Body Problem season 2 delay reshaped expectations, leading to an ambitious & truncated series that promises a massive payoff for patience.
+---------
+
+# Why Tom Hanks Keeps Acting In & Producing World War II Movies & TV Shows After 28 Years
+
+Movies, Tom Hanks
+
+Mon, 25 May 2026 16:45:32 GMT
+
+https://screenrant.com/tom-hanks-world-war-2-movies-shows-return-actor-producer-explained/
+
+After hit projects like Band of Brothers, The Pacific, and Greyhound, Tom Hanks explains why he keeps making more World War II movies and TV shows.
+---------
+
+# One Of The MCU's Best Villains Is Actually Also Its Strongest Hero
+
+Movies, Marvel Cinematic Universe, Op-Ed
+
+Mon, 25 May 2026 16:45:20 GMT
+
+https://screenrant.com/mcu-great-villain-scarlet-witch-strongest-hero/
+
+Wanda Maximoff, also known as the Scarlet Witch, is the MCU's most chilling antagonist, yet she also happens to be its most powerful hero.
+---------
+
+# The Mandalorian And Grogu Officially Passes Multiple Box Office Milestones In 4 Days Despite Star Wars Record
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars, Box Office
+
+Mon, 25 May 2026 16:33:13 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-memorial-day-weekend-box-office-debut/
+
+The Mandalorian and Grogu, Disney’s first Star Wars film in seven years, is now in theaters and has already passed multiple box office milestones.
+---------
+
+# DC’s Next Superman Officially Debuts With a Silver Costume and New Origin Story
+
+DC Comics, Superman
+
+Mon, 25 May 2026 16:30:33 GMT
+
+https://screenrant.com/new-superman-origin-silver-costume-father-tomorrow/
+
+A new era for Superman has officially begun as DC reimagines the hero's mythos like never before with one of its boldest takes on the character yet.
+---------
+
+# Taylor Sheridan’s First Official Streaming Hit Is Still The Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Mon, 25 May 2026 16:30:19 GMT
+
+https://screenrant.com/taylor-sheridan-1883-first-streaming-show-success-perfect-binge/
+
+1883 was Taylor Sheridan's first major streaming hit, and it's still the perfect 10-episode Western series to binge-watch six years later.
+---------
+
+# The MCU’s Young Avengers Team-Up Gets Disappointing Update From Star 3 Years Later
+
+Movies, Young Avengers, The Avengers, Marvel Cinematic Universe
+
+Mon, 25 May 2026 16:23:57 GMT
+
+https://screenrant.com/young-avengers-mcu-teamup-update-iman-vellani/
+
+The Young Avengers team may not get the Marvel Cinematic Universe payoff that everyone has been waiting for, according to one of the main stars.
+---------
+
+# Where To Find The Pope's Gandalf Quote In The Lord Of The Rings
+
+Movies, The Lord of the Rings
+
+Mon, 25 May 2026 16:21:25 GMT
+
+https://screenrant.com/pope-leo-xiv-gandalf-quote-lord-of-the-rings-where-to-find/
+
+Pope Leo's new encyclical on the dangers of A.I. includes a great Gandalf quote from The Lord of the Rings. But where can you find the quote?
+---------
+
+# Leonardo DiCaprio Passed On Playing Jack Reacher's Prototype In This Unmade Blockbuster
+
+Movies, Reacher, Leonardo DiCaprio
+
+Mon, 25 May 2026 16:15:21 GMT
+
+https://screenrant.com/travis-mcgee-movie-jack-reacher-leonardo-dicaprio-rejection/
+
+Leonardo DiCaprio almost played the character who acted as the prototype for Jack Reacher, before the planned movie franchise hit a snag.
+---------
+
+# Starfleet Academy Rewrote Gene Roddenberry’s 60-Year Rule About Star Trek Characters
+
+TV, Star Trek, Sci-Fi, Star Trek: Starfleet Academy
+
+Mon, 25 May 2026 17:00:12 GMT
+
+https://www.cbr.com/starfleet-academy-rewrote-gene-roddenberry-rule-about-star-trek-dialogue/
+
+Gene Roddenberry laid down a rule for Star Trek dialogue that Starfleet Academy breaks right away, but it's done for a good reason.
+---------
+
+# Underrated Hitchcockian Fairytale Film Quietly Heads to HBO Max
+
+Movies, Stoker
+
+Mon, 25 May 2026 17:00:12 GMT
+
+https://www.cbr.com/hbo-max-stoker-june-2026/
+
+The psychological thriller was also produced by Ridley Scott.
+---------
+
+# The Mechanic Resurfaces as a Streaming Hit on Paramount+ 15 Years Later
+
+Movies, The Mechanic, Paramount Plus, Thriller
+
+Mon, 25 May 2026 16:30:13 GMT
+
+https://www.cbr.com/the-mechanic-spy-thriller-streaming-success-paramount-may-2026/
+
+More than a decade after hitting theaters, Jason Statham's gritty spy thriller is a streaming sensation once again.
+---------
+
+# 10 Best One Piece Episodes of All Time
+
+Anime, One Piece, shonen anime
+
+Mon, 25 May 2026 16:15:14 GMT
+
+https://www.cbr.com/best-one-piece-episodes-all-time/
+
+Toei Animation consistently rises to meet Eiichiro Oda's source material, especially in its most challenging moments.
+---------
+
+# Euphoria Creator Breaks Down 'Horrific' & 'Anxiety-Inducing' Major Death (Spoilers ahead if you're watching Euphoria, don't include this in the headline)
+
+TV, Euphoria
+
+Mon, 25 May 2026 16:14:57 GMT
+
+https://www.cbr.com/euphoria-creator-major-death-spoilers/
+
+Euphoria creator Sam Levinson explains exactly why one fan-favorite character had to meet such a gruesome and anxiety-inducing end in Season 3.
+---------
+
+# Lord of the Rings: Gandalf - Mithrandir Officially Coming This July
+
+Games, The Lord of the Rings
+
+Mon, 25 May 2026 16:05:15 GMT
+
+https://www.cbr.com/lotr-gandalf-mithrandir-official-new-release-july-2026/
+
+Gandalf might be the most iconic Lord of the Rings character, and he's the focal point of Lord of the Rings: Gandalf - Mithrandir, launching in July.
+---------
+
+# Shrek 6 Teased by Mike Myers 13 Months Before Fifth Movie
+
+Movies, Shrek 5, Shrek, dreamworks
+
+Mon, 25 May 2026 16:00:12 GMT
+
+https://www.cbr.com/shrek-6-sequel-mike-myers-tease-dreamworks-animation/
+
+Comedy legend Mike Myers finally opens up about the long-awaited Shrek sequel set to hit theaters in 2027--and a potential sixth film.
+---------
+
+# Solo Leveling Finally Confirms the Anime's Future After 2026 Crunchyroll Awards Win
+
+Anime, Solo Leveling
+
+Mon, 25 May 2026 16:00:12 GMT
+
+https://www.cbr.com/solo-leveling-confirms-season-3-anime-awards-2026/
+
+Solo Leveling’s anime continuation has now officially been confirmed, but whether it’s Season 3 or the heavily-rumored movie is still up in the air.
+---------
+
+# Showtime's 8-Part Hit Drama Returns as a Streaming Hit on Paramount+
+
+TV, The Chi
+
+Mon, 25 May 2026 16:00:12 GMT
+
+https://www.cbr.com/the-chi-showtimes-streaming-hit-paramount-plus-may-2026/
+
+One of the best Showtime series of all time is making major waves after debuting on Paramount+ and immediately taking over the US streaming charts.
+---------
+
+# DC Comics Replaces Superman Before Man of Tomorrow Soars Into Theaters
+
+Comics, Superman, DC Comics, DCU, Superman: Man of Tomorrow, Supergirl
+
+Mon, 25 May 2026 16:00:12 GMT
+
+https://www.cbr.com/dc-comics-replaces-superman-before-man-of-tomorrow/
+
+Of all the ways to replace Superman, this takes the cake ahead of Man of Tomorrow.
+---------
+
+# The Next Lord of the Rings Star Is Ready for a Life of Crime in New Look at Must-Watch Heist Thriller
+
+Movie News, Tuner, Leo Woodall, Thriller, Collider Exclusive Preview
+
+Mon, 25 May 2026 17:00:13 GMT
+
+https://collider.com/new-heist-thriller-tuner-leo-woodall-dustin-hoffman-first-look-image/
+
+Get an exclusive first look at Tuner, a heist thriller starring Leo Woodall and Dustin Hoffman, ahead of its wide theatrical release on May 29.
+---------
+
+# 'Lord of the Rings: The Black Rider' Officially Sets Summer 2026 Release
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power, Peter Jackson
+
+Mon, 25 May 2026 16:34:13 GMT
+
+https://collider.com/new-lord-of-the-rings-black-rider-release-summer-2026/
+
+New Lord of the Rings collectible of the Black Rider has officially set a summer release, available now for pre-order.
+---------
+
+# Celebrate the King of Westerns With 75+ John Wayne Movies Streaming for Free
+
+Movie News, John Wayne, How the West Was Won, Western, Streaming
+
+Mon, 25 May 2026 16:19:57 GMT
+
+https://collider.com/75-john-wayne-westerns-streaming-free-fawesome-may-2026/
+
+More than 75 John Wayne movies are streaming free on Fawesome in honor of the Western legend’s 119th birthday.
+---------
+
+# ‘Buffy the Vampire Slayer’ Officially Confirms Release Date for ‘Angel’ Sequel
+
+TV News, Buffy The Vampire Slayer, Angel, David Boreanaz, Buffy the Vampire Slayer Sequel Series
+
+Mon, 25 May 2026 16:19:23 GMT
+
+https://collider.com/buffy-the-vampire-slayer-angel-sequel-release-date-comic-series/
+
+Buffy the Vampire Slayer and Angel are officially continuing with a new sequel release, coming this summer.
+---------
+
+# 10 Most Perfect Sci-Fi Movies of the Last 40 Years, Ranked
+
+Movie, Arrival, Sci-Fi, Dune: Part Two, Akira
+
+Mon, 25 May 2026 16:12:02 GMT
+
+https://collider.com/most-perfect-sci-fi-movies-last-40-years-ranked/
+
+Project Hail Mary, Dune: Part Two, and Arrival are all among the best, most perfect sci-fi movies of the last 40 years.
+---------
+
+# 'Deli Boys' Season 2 Proves That Hulu's Best Crime Comedy Is Just Getting Started | Review
+
+TV Reviews, Deli Boys, Hulu, Crime, Comedy
+
+Mon, 25 May 2026 16:00:13 GMT
+
+https://collider.com/deli-boys-season-2-hulu-review/
+
+Hulu’s Deli Boys Season 2 delivers stellar performances, sharp comedy, and chaotic crime energy despite a frustratingly short episode count.
+---------
+
+# Alan Ritchson’s New Revenge Thriller Is the Brutal ‘Reacher’ Follow-Up Fans Have Been Waiting For
+
+Exclusives, Motor City, Alan Ritchson, Thriller, Collider Exclusive Preview
+
+Mon, 25 May 2026 16:00:13 GMT
+
+https://collider.com/alan-ritchson-revenge-thriller-motor-city-first-look-image/
+
+Discover the gripping story of John Miller's quest for vengeance in Motor City, starring Alan Ritchson, an unconventional, action-packed thriller.
+---------
+
+# The Greatest Fantasy Trilogy of All Time Referenced in New Letter From Pope Leo
+
+Movie News, J.R.R. Tolkien, The Lord of the Rings, The Lord of the Rings: The Return of the King, Fantasy
+
+Mon, 25 May 2026 15:22:16 GMT
+
+https://collider.com/lord-of-the-rings-pope-leo-gandalf-quote-speech-encyclical-debut-magnificent-humanity/
+
+Lord of the Rings officially quoted in new letter from Pope Leo for his encyclical debut, titled Magnificent Humanity.
+---------
+
+# Disney's Franchise-Saving Sci-Fi Hit Holds a $40 Million Edge Over ‘The Mandalorian and Grogu’
+
+Movie News, The Mandalorian and Grogu, Box Office, Predator: Badlands, Pedro Pascal
+
+Mon, 25 May 2026 15:04:52 GMT
+
+https://collider.com/the-mandalorian-and-grogu-box-office-144-million-trails-predator-badlands-184-million/
+
+The Mandalorian and Grogu still trails Disney's franchise-saving sci-fi spin-off, Predator: Badlands, at the box office after its opening weekend.
+---------
+
+# 2 Years After Cancellation, ‘Blue Bloods’ Is Officially Back
+
+TV News, Blue Bloods, Boston Blue, CBS, Paramount Plus
+
+Mon, 25 May 2026 15:03:48 GMT
+
+https://collider.com/blue-bloods-streaming-success-paramount-plus-may-2026/
+
+Only two years after being cancelled by CBS, Blue Bloods is officially back in the spotlight as one of Paramount's most-watched titles.
+---------
+
+# How a Disney Slasher Movie Became a Cult Classic 20 Years Later
+
+Features, Stay Alive
+
+Mon, 25 May 2026 17:00:17 GMT
+
+https://movieweb.com/disney-slasher-cult-classic-stay-alive/
+
+A flop in theaters and panned by critics, the video game-inspired slasher would earn its cult status 2 years afterward.
+---------
+
+# The Greatest Fantasy Series Returns Next Month With a Divisive Reboot
+
+Features, Fantasy, Netflix, Avatar: The Last Airbender, Upcoming Tease
+
+Mon, 25 May 2026 16:00:17 GMT
+
+https://movieweb.com/avatar-the-last-airbender-netflix-season-2-returns/
+
+Netflix's live-action adaptation of a beloved fantasy story left fans divided, and Season 2 is coming soon to the streaming service.
+---------
+
+# 'Bones': Where the Cast Is Today
+
+Features, Bones, Emily Deschanel
+
+Mon, 25 May 2026 16:00:17 GMT
+
+https://movieweb.com/bones-cast-today/
+
+A vast army of diehard crime drama fans developed over the course of 'Bones' 12-season run on TV. But where is the cast of 'Bones' nowadays?
+---------
+
+# Iconic 'Spider-Man' Villain Says He'd Suit up Again for the MCU "No Doubt"
+
+Movie News, Spider-Man, Alfred Molina, Spider-Man: No Way Home, MCU
+
+Mon, 25 May 2026 15:48:46 GMT
+
+https://movieweb.com/spider-man-doc-ock-alfred-molina-mcu-return/
+
+While promoting Netflix's 'The Boroughs,' Alfred Molina says he'd play Doc Ock again — but doubts Marvel will call.
+---------
+
+# 'Angel' Returns as 'Buffy' Spin-off Sequel Confirms Release Date
+
+TV News, Angel, Buffy The Vampire Slayer
+
+Mon, 25 May 2026 15:33:39 GMT
+
+https://movieweb.com/angel-comic-sequel-release-date-confirmed/
+
+Dynamite's 'Angel' #1 from Kelly Thompson has an official release date, continuing the Buffyverse alongside the new 'Buffy the Vampire Slayer' comic.
+---------
+
+# Leonardo DiCaprio's $213 Million Action Thriller Now Streaming on Prime Video
+
+Movie News, One Battle After Another, Hot on Streaming, Leonardo DiCaprio, Action
+
+Mon, 25 May 2026 15:00:19 GMT
+
+https://movieweb.com/one-battle-after-another-streaming-success-prime-video-may-2026/
+
+After five months, 'One Battle After Another' has finally left the confines of HBO Max and is now streaming on Prime Video.
+---------
+
+# Netflix Star Is New James Bond Favorite to Lead Amazon Reboot
+
+Movie News, james bond, James Bond, Action
+
+Mon, 25 May 2026 14:50:18 GMT
+
+https://movieweb.com/james-bond-favorite-leo-suter-amazon-reboot/
+
+Amazon is expected to reveal who will play the next 007 this year, and thus take over from Daniel Craig, with auditions now taking place.
+---------
+
+# New 'Masters of the Universe' Clip Unveils He-Man's Iconic Sky-Sled
+
+Movie News, Masters of the Universe
+
+Mon, 25 May 2026 14:40:33 GMT
+
+https://movieweb.com/masters-of-the-universe-he-man-sky-sled-clip/
+
+A new clip from the live-action 'Masters of the Universe' film has debuted, showing He-Man taking to the skies in his signature Sky-Sled vehicle.
+---------
+
 # Netflix's New R-Rated Remake Of 8-Year-Old Comedy Is Officially No.1 On Streaming Despite Poor Reviews
 
 Movies, Masked Recs
