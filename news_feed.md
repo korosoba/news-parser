@@ -1,3 +1,234 @@
+# George R.R. Martin's Sci-Fi Horror Series Deserved More Than A 10-Episode Run
+
+Streaming TV, Masked Recs
+
+Mon, 25 May 2026 22:45:19 GMT
+
+https://screenrant.com/george-rr-martin-nightflyers-sci-fi-horror-more-seasons/
+
+In addition to the novels that made way for Game of Thrones, George R. R. Martin is also behind a sci-fi horror series that deserved better.
+---------
+
+# Netflix's 2-Part Cyberpunk Series Has One Of Its Best Pieces Of Worldbuilding
+
+TV, Masked Recs
+
+Mon, 25 May 2026 22:30:19 GMT
+
+https://screenrant.com/altered-carbon-netflix-show-cyberpunk-sci-fi-worldbuilding/
+
+This underrated Netflix classic's intricate worldbuilding laid the groundwork for a new trend in sci-fi TV, shaping Silo, Foundation, and more.
+---------
+
+# Near-Perfect Horror Series Officially Confirms New Game and Movie Adaptations
+
+Comics, Horror, Masked Recs
+
+Mon, 25 May 2026 22:30:19 GMT
+
+https://screenrant.com/horror-series-exquisite-corpses-game-movie-new-season/
+
+If you're not familiar with Exquisite Corpses, now might be the time...
+---------
+
+# Steven Spielberg’s Ready Player One Is Coming To HBO Just In Time to Set Up The Sequel
+
+Movies, HBO Max, Ready Player One
+
+Mon, 25 May 2026 22:30:19 GMT
+
+https://screenrant.com/steven-spielberg-ready-player-one-movie-hbo-max/
+
+One of Steven Spielberg's most famous movies is due for a HBO Max release very shortly, which should prove helpful for the film's upcoming sequel.
+---------
+
+# Netflix's R-Rated Cobra Kai Replacement Is One Of Its Best Martial Arts Shows
+
+TV, Masked Recs
+
+Mon, 25 May 2026 22:14:19 GMT
+
+https://screenrant.com/bloodhounds-netflix-cobra-kai-r-rated-martial-arts-show/
+
+Netflix found a perfect replacement for Cobra Kai, but this brutal martial arts show couldn't be more different from the Karate Kid spinoff series.
+---------
+
+# Fallout Meets High Potential in New Post-Apocalyptic Detective Series
+
+Comics, Masked Recs, Sci-Fi
+
+Mon, 25 May 2026 22:00:19 GMT
+
+https://screenrant.com/new-detective-series-sci-fi-big-shakedown/
+
+A sci-fi investigation in a ruined city.
+---------
+
+# Pedro Pascal's Screentime In The Mandalorian & Grogu Sets A Shocking Record
+
+Star Wars, The Mandalorian and Grogu
+
+Mon, 25 May 2026 21:50:20 GMT
+
+https://screenrant.com/mandalorian-grogu-pedro-pascal-screentime-record/
+
+Pedro Pascal's screentime in The Mandalorian and Grogu is surprising, but it's a record associated with his appearance that's really shocking.
+---------
+
+# 10 Most Badass Anime Characters With No Powers
+
+Anime, shonen anime, Spy x Family, Death Note, Dr. Stone
+
+Mon, 25 May 2026 22:15:13 GMT
+
+https://www.cbr.com/badass-anime-characters-no-powers/
+
+Stepping into risky situations without a genetic mutation or a cursed power requires a special kind of audacity for these anime characters.
+---------
+
+# Netflix’s 7-Part Reacher Replacement Is Climbing Up the Charts Again Amid Uncertain Season 2
+
+TV, Man on Fire
+
+Mon, 25 May 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-man-on-fire-action-success-may-2026/
+
+The series has been a constant hit for almost a month.
+---------
+
+# Avatar: The Last Airbender Finally Brings Back Azula in Fiery New First Look
+
+Anime, Avatar: The Last Airbender, Avatar Legends (RPG)
+
+Mon, 25 May 2026 22:00:12 GMT
+
+https://www.cbr.com/azula-avatar-the-last-airbender-fighting-game/
+
+Avatar: The Last Airbender's upcoming RPG game, Avatar Legends: The Fighting Game, dropped an action packed new character trailer for Azula.
+---------
+
+# Gail Simone’s Legendary Red Sonja Run Gets a Must-Have Collector’s Edition
+
+Comics, Red Sonja
+
+Mon, 25 May 2026 22:00:12 GMT
+
+https://www.cbr.com/gail-simone-the-compelete-red-sonja-paperback-releas-confirmed/
+
+Dynamite Entertainment is giving fans the chance to bring home Gail Simone's entire Red Sonja run in one place, and collectors won't want to miss it.
+---------
+
+# Netflix's 10/10 Dark Fantasy Movie Is the Anti-Lord of the Rings
+
+Movies, The Green Knight
+
+Mon, 25 May 2026 22:00:12 GMT
+
+https://www.cbr.com/netflix-the-green-knight-anti-lord-of-the-rings-movie/
+
+The Lord of the Rings defined fantasy movies for over a decade but this A24 treat reshapes what audiences know about the genre.
+---------
+
+# Harry Potter’s New Mrs. Weasley Teases Bigger Season 2 Role in HBO Series
+
+TV, Harry Potter
+
+Mon, 25 May 2026 21:55:02 GMT
+
+https://www.cbr.com/harry-potter-katherine-parkinson-mrs-weasley-bigger-season-2-role/
+
+The upcoming series has yet to cast Mr. Weasley, though.
+---------
+
+# 'The Mandalorian and Grogu' Just Broke a 50-Year-Old Star Wars Tradition
+
+Movie News, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Mon, 25 May 2026 22:45:13 GMT
+
+https://collider.com/the-mandalorian-and-grogu-no-lightsabers-star-wars-tradition/
+
+The Mandalorian and Grogu breaks a 50-year-old Star Wars tradition by being the first theatrical film to completely omit this key franchise element.
+---------
+
+# 6 Greatest Epic Trilogies of All Time, Ranked
+
+Movie, Star Wars, The Godfather, The Lord of the Rings, The Dark Knight
+
+Mon, 25 May 2026 22:42:15 GMT
+
+https://collider.com/best-epic-trilogies-all-time-ranked/
+
+Epic film trilogies that stay consistent throughout are rare and worth celebrating, with The Lord of the Rings and The Godfather being among the best.
+---------
+
+# In Just 5 Minutes, 'From' Season 4 Pulled Off Its Most Shocking Twist Yet
+
+TV Features, From, Horror, Harold Perrineau, MGM
+
+Mon, 25 May 2026 22:41:38 GMT
+
+https://collider.com/from-season-4-episode-6-donna-heart-attack-shocking-twist/
+
+From Season 4 Episode 6 delivers a shocking twist for one character, showcasing horror realism at its most terrifying.
+---------
+
+# 3 Movies to Watch on Prime Video Before the End of May
+
+Movie, Prime Video, One Battle After Another, Horizon: An American Saga - Chapter 1, She Came to Me
+
+Mon, 25 May 2026 22:35:13 GMT
+
+https://collider.com/best-movies-prime-video-may-25/
+
+One Battle After Another, Horizon: An American Saga – Chapter 1, and She Came to Me make our list of the best Prime Video movies to watch this week.
+---------
+
+# One of Anya Taylor-Joy’s Lowest-Rated Movies Is Officially Getting a Netflix Release
+
+Movie News, Anya Taylor-Joy, Sacrifice, Chris Evans, Netflix
+
+Mon, 25 May 2026 22:30:13 GMT
+
+https://collider.com/anya-taylor-joy-new-thriller-sacrifice-chris-evans-netflix-streaming-release/
+
+Anya Taylor-Joy's 2025 thriller Sacrifice, starring Chris Evans, has found a new streaming home and could also hit theaters internationally.
+---------
+
+# ‘Yellowstone’s Sequel Just Gave Its Biggest Threat a Major Weak Spot
+
+TV News, Ed Harris, Annette Bening, Yellowstone, Dutton Ranch
+
+Mon, 25 May 2026 22:15:13 GMT
+
+https://collider.com/dutton-ranch-episode-3-annette-bening-beulah-everett-twist-explained/
+
+Dutton Ranch star Annette Bening unpacks Episode 3's big twist that reveals Beulah’s true history with Everett & how it pushed her to join the show.
+---------
+
+# This Underseen 67% RT War Drama Was the End of an Era for Margot Robbie
+
+Movie Features, Margot Robbie, Whiskey Tango Foxtrot, Tina Fey, War
+
+Mon, 25 May 2026 22:15:13 GMT
+
+https://collider.com/margot-robbie-whiskey-tango-foxtrot-war-movie/
+
+The undersung war dramedy Whiskey Tango Foxtrot was one of the last projects where Margot Robbie didn't have the burden of a blockbuster on her back.
+---------
+
+# ‘Dutton Ranch’ Stars Reveal They Didn’t Work With Taylor Sheridan “At All”
+
+TV News, Yellowstone, Dutton Ranch, Taylor Sheridan, Paramount Plus
+
+Mon, 25 May 2026 22:01:12 GMT
+
+https://collider.com/dutton-ranch-taylor-sheridan-not-on-set-yellowstone-spin-off-paramount-plus/
+
+Dutton Ranch cast members reveal they have not met Yellowstone franchise creator Taylor Sheridan, as a new showrunner takes the reins for Season 2.
+---------
+
 # Percy Jackson Is Officially Coming To Netflix Next Month Ahead Of Disney+'s Season 3 & It's A Must-Watch
 
 Movies, Percy Jackson & The Olympians
