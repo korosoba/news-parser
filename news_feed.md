@@ -1,3 +1,344 @@
+# Percy Jackson Is Officially Coming To Netflix Next Month Ahead Of Disney+'s Season 3 & It's A Must-Watch
+
+Movies, Percy Jackson & The Olympians
+
+Mon, 25 May 2026 21:30:53 GMT
+
+https://screenrant.com/percy-jackson-netflix-release-june-2026-must-watch/
+
+Before Percy Jackson and the Olympians season 3 releases later this year on Disney+, Percy Jackson is officially coming to Netflix in June.
+---------
+
+# After 28 Years, Zoro Finally Gets The One Piece Origin Story He Deserves
+
+Anime, One Piece, One Piece (1997)
+
+Mon, 25 May 2026 21:30:09 GMT
+
+https://screenrant.com/one-piece-zoro-origin-story-book/
+
+After years of waiting, One Piece is finally giving Zoro the spotlight he deserves by revealing his early days in East Blue as a Pirate Hunter.
+---------
+
+# FX's 3-Part Sci-Fi Masterpiece Series Gets Even Better On A Rewatch
+
+Classic TV, Masked Recs
+
+Mon, 25 May 2026 21:30:09 GMT
+
+https://screenrant.com/legion-fx-sci-fi-marvel-show-better-upon-a-rewatch/
+
+FX's Marvel superhero show Legion is a masterpiece of science fiction, and its twisty and psychedelic plot makes it perfect for rewatching.
+---------
+
+# Star Wars: Skeleton Crew Season 2 Receives Hopeful Update From Star
+
+Movies, Star Wars: Skeleton Crew, Star Wars, Skeleton Crew - Season 1
+
+Mon, 25 May 2026 21:28:46 GMT
+
+https://screenrant.com/star-wars-skeleton-crew-season-2-update-kerry-condon-response/
+
+EXCLUSIVE: More than a year after the season 1 finale, Star Wars: Skeleton Crew season 2 receives a hopeful update from a key cast member.
+---------
+
+# 10 Best Netflix Original Horror Movies In History
+
+Movies, Netflix, Horror, Ranking
+
+Mon, 25 May 2026 21:20:19 GMT
+
+https://screenrant.com/best-netflix-original-horror-movies/
+
+Netflix has put out some incredible original horror films over the past decade or so, from Stephen King adaptations to claustrophobic tales.
+---------
+
+# Brad Pitt’s F1 Sequel Will Be A "Bit Of A Wait,” Reveals Star
+
+Movies, F1
+
+Mon, 25 May 2026 21:16:33 GMT
+
+https://screenrant.com/f1-movie-sequel-update-kerry-condon-response/
+
+F1 star Kerry Condon reveals that progress is happening on the Brad Pitt Formula One sequel, but audiences may have to wait a while for the film.
+---------
+
+# Twin Peaks Meets IT: Welcome to Derry in Hulu’s 2-Part Stephen King Series
+
+TV, Masked Recs
+
+Mon, 25 May 2026 21:15:20 GMT
+
+https://screenrant.com/castle-rock-hulu-show-twin-peaks-meets-welcome-to-derry/
+
+This Stephen King adaptation became a cult classic by blending the supernatural soap opera of Twin Peaks with the horror of It: Welcome to Derry.
+---------
+
+# Gilded Age Season 4 Release Timeline Gets Official HBO Max Update & Bertha Russell's First Look Revealed
+
+TV, The Gilded Age
+
+Mon, 25 May 2026 21:04:40 GMT
+
+https://screenrant.com/gilded-age-season-4-bertha-russell-first-look-release-hbo-max-trailer/
+
+The Gilded Age season 4 release timeline receives an official update from HBO Max, with a first look at Carrie Coon's Bertha Russell also revealed.
+---------
+
+# Mads Mikkelsen Has 1 Condition For His Hannibal Return
+
+TV, Hannibal, Mads Mikkelsen
+
+Mon, 25 May 2026 21:01:31 GMT
+
+https://screenrant.com/hannibal-season-4-tv-return-condition-mads-mikkelsen/
+
+Exclusive: Hannibal star Mads Mikkelsen reveals his condition for a potential return to his iconic role in season 4 of the horror TV show adaptation.
+---------
+
+# Netflix Is Changing Forever In 6 Months
+
+Movies, Masked Recs
+
+Mon, 25 May 2026 21:00:05 GMT
+
+https://screenrant.com/netflix-cliff-booth-fincher-movie-imax-run-strategy/
+
+Netflix's long-awaited first 'true theatrical' release may finally see the streaming service change their attitude toward big-screen movies.
+---------
+
+# Tombstone's Real Best Quote Is Not Val Kilmer's "I'm Your Huckleberry"
+
+Movies, Tombstone
+
+Mon, 25 May 2026 21:30:14 GMT
+
+https://www.cbr.com/tombstone-val-kilmer-doc-holliday-youre-a-daisy-if-you-do-quote/
+
+Val Kilmer's portrayal of Doc Holliday is nothing short of legendary, but the best quote in Tombstone is frequently overlooked.
+---------
+
+# 6 Western Shows Better Than Deadwood
+
+TV, Western, Deadwood, Justified, Hell on Wheels
+
+Mon, 25 May 2026 21:30:14 GMT
+
+https://www.cbr.com/western-shows-better-than-deadwood-list/
+
+The Wild West has inspired some of the greatest TV series of all time, but only a few have surpassed the near-perfection of HBO's Deadwood.
+---------
+
+# CBS Backtracks on Copyright Notices for Stephen Colbert's Surprise Hosting Show Amid Backlash
+
+TV, stephen colbert, The Late Show with Stephen Colbert
+
+Mon, 25 May 2026 21:15:35 GMT
+
+https://www.cbr.com/cbs-backtracks-copyright-notice-stephen-colbert-only-in-monroe/
+
+CBS quickly backtracks on launching DMCA takedown requests against Stephen Colbert's recent Only in Monroe guest hosting appearance.
+---------
+
+# Aerith's Single Greatest Final Fantasy VII Line Quietly Offered Hope to the Hopeless
+
+Games, Final Fantasy VII, Video Games, Final Fantasy, Final Fantasy VII Rebirth
+
+Mon, 25 May 2026 21:15:13 GMT
+
+https://www.cbr.com/final-fantasy-vii-rebirth-best-aerith-quote/
+
+FF7's Aerith is one of the franchise's most beloved characters, and with her dying breath she makes a hopeful promise that lingers.
+---------
+
+# Paul Rudd's Dark Fantasy Horror Returns as a Streaming Hit on HBO Max After $16M Theatrical Run
+
+Movies, Death of a Unicorn
+
+Mon, 25 May 2026 21:00:21 GMT
+
+https://www.cbr.com/paul-rudd-dark-fantasy-horror-death-of-a-unicorn-hbo-max-success-may-2026/
+
+2025's divisive fantasy horror starring Paul Rudd and Jenna Ortega is once again making a run for the top of the streaming charts.
+---------
+
+# The Best Book-To-Movie Adaptations from Every Year of the 2000s
+
+Movies, The Lord of the Rings
+
+Mon, 25 May 2026 21:00:21 GMT
+
+https://www.cbr.com/perfect-book-to-movie-adaptations-2000s-list/
+
+Ushering a new era of cinema, the millenium saw a plethora of literary adaptations that launched some of the most iconic film franchises in history.
+---------
+
+# Christopher Meloni's Law & Order: SVU Return Gets Fantastic Update From Showrunner
+
+TV, Law & Order: Special Victims Unit
+
+Mon, 25 May 2026 20:54:40 GMT
+
+https://www.cbr.com/christopher-meloni-law-order-svu-return-update-showrunner/
+
+Benson & Stabler's reunion is back on.
+---------
+
+# Spider-Noir Star Clears Up Fan Debate Over Nicolas Cage’s New Marvel Series
+
+TV, Spider-Noir
+
+Mon, 25 May 2026 20:48:33 GMT
+
+https://www.cbr.com/spider-noir-jack-huston-black-and-white-color-debate/
+
+This Spider-Noir actor shares the proper way to watch the Marvelous new series.
+---------
+
+# Netflix's The Abandons Is a Modern Western That Deserves Recognition
+
+TV, The Abandons, Netflix, Western
+
+Mon, 25 May 2026 20:30:13 GMT
+
+https://www.cbr.com/netflix-the-abandons-modern-tv-western-classic/
+
+Supported by a strong cast, early setup, and a lack of excess, this Western show's one season was enough to live on as a modern classic.
+---------
+
+# 10 Most Perfect Will Smith Action Movies Ever, Ranked
+
+Movies, Bad Boys, Men in Black, Independence Day
+
+Mon, 25 May 2026 20:30:13 GMT
+
+https://www.cbr.com/best-will-smith-action-movies-list/
+
+Will Smith is expanding his action movie roster with his upcoming feature, Supermax, but there are lots of other action movies to watch before.
+---------
+
+# 10 Best '80s Cartoons That Are Worth Revisiting
+
+TV, 1980s, Cartoons, Animation, He-Man and the Masters of the Universe
+
+Mon, 25 May 2026 21:36:17 GMT
+
+https://collider.com/best-80s-cartoons-worth-revisiting/
+
+He-Man and the Masters of the Universe, ThunderCats, and Teenage Mutant Ninja Turtles are among the best 1980s cartoons that are worth revisiting.
+---------
+
+# Nintendo's Best Franchise Officially Returns in 1 Month
+
+Movie News, Nintendo, Sci-Fi, Star Fox, The Super Mario Galaxy Movie
+
+Mon, 25 May 2026 21:35:42 GMT
+
+https://collider.com/new-nintendo-sci-fi-game-star-fox-release-date-june-2026/
+
+Nintendo’s beloved sci-fi franchise Star Fox is officially returning with a new game launching in 1 month.
+---------
+
+# 11 Years Ago, One of the Greatest Sci-Fi Movies of All Time Was Released
+
+Movie Features, Ex Machina, Alicia Vikander, Oscar Isaac, Netflix
+
+Mon, 25 May 2026 21:31:12 GMT
+
+https://collider.com/ex-machina-best-sci-fi-movie-streaming-netflix/
+
+In the not-too-distant future, a humble programmer and eccentric inventor test the limits of a robot only to learn they are in way over their heads
+---------
+
+# New James Bond Release Defends Its Controversial Young 007 After Fan Backlash
+
+Gaming News, James Bond, No Time to Die, IO Interactive, Hitman
+
+Mon, 25 May 2026 21:30:15 GMT
+
+https://collider.com/james-bond-007-first-light-release-io-interactive-may-2026/
+
+Discover the origins of James Bond in IO Interactive's new action-stealth game 007 First Light, launching this week.
+---------
+
+# Reacher's Most Menacing Villain Isn't in Alan Ritchson's Prime Video Series
+
+Movie Features, Jack Reacher, Tom Cruise, Werner Herzog, Reacher
+
+Mon, 25 May 2026 21:08:13 GMT
+
+https://collider.com/jack-reacher-werner-herzog-villain-tom-cruise-movie/
+
+Tom Cruise's 2012 action movie Jack Reacher features Werner Herzog in a perfect, terrifying villain role.
+---------
+
+# Another ‘Big Bang Theory’ Star Officially Joins the Sci-Fi Spin-Off in New Teaser
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max, Wil Wheaton
+
+Mon, 25 May 2026 21:00:21 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-cast-big-bang-theory-alum-wil-wheaton-hbo-max-teaser/
+
+Another Big Bang Theory alum joins the sci-fi spin-off, Stuart Fails to Save the Universe, as seen in a new HBO Max teaser. Here's all to know.
+---------
+
+# All 8 Lightsaber Colors in Star Wars, Ranked by Power
+
+Movie, Star Wars, Star Wars Jedi: Fallen Order, Star Wars: Episode IV - A New Hope, Star Wars: Episode IX - The Rise of Skywalker
+
+Mon, 25 May 2026 20:48:13 GMT
+
+https://collider.com/star-wars-lightsaber-colors-ranked-power/
+
+Lightsabers are one of the most iconic and major parts of the Star Wars canon, and their colors reveal much about their nature, power, and meaning.
+---------
+
+# 3 Newest Binge-Worthy Shows on Netflix
+
+TV, Netflix, Something Very Bad Is Going to Happen, Vladimir, Music
+
+Mon, 25 May 2026 20:47:13 GMT
+
+https://collider.com/new-netflix-shows-binge-watch-may-25/
+
+Something Very Bad is Going to Happen, Vladimir, and Kylie make up our list of new binge-worthy shows on Netflix the week of May 25, 2026.
+---------
+
+# CBS Is Fast-Tracking Taylor Sheridan’s ‘Yellowstone’ Follow-Up After Record-Breaking First Season
+
+TV News, Marshals, Dutton Ranch, Taylor Sheridan, Yellowstone
+
+Mon, 25 May 2026 20:30:13 GMT
+
+https://collider.com/marshals-season-2-release-window-cbs-taylor-sheridan-yellowstone-spin-off/
+
+Taylor Sheridan’s Marshals sets Season 2 release window on CBS after the Yellowstone follow-up broke a major network premiere record.
+---------
+
+# Netflix's Hit Crime Thriller Overtaken by New 95% Rated Sci-Fi Smash
+
+TV News, Nemesis, The Boroughs, Hot on Streaming, Sci-Fi, Netflix
+
+Mon, 25 May 2026 21:00:06 GMT
+
+https://movieweb.com/the-boroughs-beats-nemesis-netflix-streaming-may-2026/
+
+After spending most of last week in first place, Netflix's hot new crime thriller series has finally been dethroned by a sci-fi favorite.
+---------
+
+# Kevin Feige's Tony Stark Plan Almost Ruined Marvel's Most-Rewatched Scene
+
+Features, MCU, Iron Man
+
+Mon, 25 May 2026 21:00:06 GMT
+
+https://movieweb.com/kevin-feige-tony-stark-iron-man-plan/
+
+Is Kevin Feige considering his original plans for Iron Man?
+---------
+
 # 25 Years Later, Buffy Summers' Best Line Is Still One Of TV's Greatest Quotes
 
 TV, Masked Recs
