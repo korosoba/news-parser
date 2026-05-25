@@ -1,3 +1,366 @@
+# 25 Years Later, Buffy Summers' Best Line Is Still One Of TV's Greatest Quotes
+
+TV, Masked Recs
+
+Mon, 25 May 2026 20:13:19 GMT
+
+https://screenrant.com/buffy-summers-best-quote-tv-history/
+
+Buffy's most iconic quote perfectly encapsulated the show's unique blend of character comedy, teen drama, and horror mysteries.
+---------
+
+# The Mandalorian And Grogu Director Teases Characters' "Wide Open Canvas" Future Under Star Wars' New Leadership
+
+Movies, Star Wars, Jon Favreau
+
+Mon, 25 May 2026 20:11:58 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-star-wars-future-tease-jon-favreau/
+
+The Mandalorian and Grogu director Jon Favreau shared what he knows about what's planned for Star Wars characters under Lucasfilm's new leadership.
+---------
+
+# Everything You Need To Know About Evil Morty’s Rick & Morty Season 9 Return
+
+Streaming TV, Rick and Morty
+
+Mon, 25 May 2026 20:00:20 GMT
+
+https://screenrant.com/rick-and-morty-season-9-evil-morty-return-explained/
+
+Rick and Morty returned with a bang in season 9, and the show's biggest remaining villain, Evil Morty, stole the show in a thrilling premiere.
+---------
+
+# LEGO Batman: Legacy Of The Dark Knight Fans Can't Stop Comparing It To This Classic RPG
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Triple-A Games, PC
+
+Mon, 25 May 2026 20:00:20 GMT
+
+https://screenrant.com/lego-batman-legacy-rdr2/
+
+Legacy of The Dark Knight has been pushing the LEGO formula far past its limits, to the point where it's beating out one infamously impressive game.
+---------
+
+# Netflix's New Fantasy Movie Has One Of Its Best Twists Ever
+
+New Movies, Swapped
+
+Mon, 25 May 2026 19:55:20 GMT
+
+https://screenrant.com/netflix-swapped-movie-twist-best-ever/
+
+Netflix has just delivered one of its best twists ever, as a fresh chart-topping fantasy movie has a surprise reveal that's absolutely worth watching.
+---------
+
+# Sullivan's Crossing Season 4 Sets Official Streaming Release Date On Netflix
+
+TV, Sullivan's Crossing, Sullivan's Crossing - Season 4
+
+Mon, 25 May 2026 19:34:16 GMT
+
+https://screenrant.com/sullivans-crossing-season-4-netflix-streaming-date-confirmed/
+
+Netflix confirms an official streaming release date for its hit four-part Virgin River replacement series – Sullivan's Crossing season 4.
+---------
+
+# Fallout: Maximus Officially Releases August 2027
+
+Gaming, Fallout, Fallout 4, PC
+
+Mon, 25 May 2026 19:30:20 GMT
+
+https://screenrant.com/fallout-maximus-power-armor-prime-studio-2027/
+
+Fallout: Maximus is a brand-new official release from Prime 1 Studio set to arrive in August 0f 2027, featuring a fan-favorite character.
+---------
+
+# It's Officially The End Of An Era For Harry Potter
+
+Streaming TV, Harry Potter
+
+Mon, 25 May 2026 19:30:20 GMT
+
+https://screenrant.com/harry-potter-show-reboot-end-of-an-era/
+
+The Harry Potter movies of the 2000s have long been the definitive face of the franchise, but a new era is coming, with the former coming to an end.
+---------
+
+# Apple TV's Masterpiece Dystopian Sci-Fi Series Silo Is So Good, It's Already Renewed For 2 More Seasons
+
+TV, Masked Recs
+
+Mon, 25 May 2026 19:20:20 GMT
+
+https://screenrant.com/apple-tv-silo-sci-fi-series-renewed-more-seasons/
+
+Apple TV's sci-fi series that is a true masterpiece — one of the genre's best in years — is so good that it was already renewed for two more seasons.
+---------
+
+# Nicolas Cage's Latest Marvel Role Marks The Beginning Of A New Era
+
+Streaming TV, Masked Recs
+
+Mon, 25 May 2026 19:00:19 GMT
+
+https://screenrant.com/spider-noir-nicolas-cage-tv-leading-role-new-era/
+
+Nicolas Cage has been a major player in Hollywood for decades, but his career appears to be changing course with his latest Marvel role.
+---------
+
+# 10 Jujutsu Kaisen Characters Who Felt Doomed From the Start
+
+Anime, Jujutsu Kaisen, Shonen, shonen anime
+
+Mon, 25 May 2026 20:15:24 GMT
+
+https://www.cbr.com/jujutsu-kaisen-deaths-characters-doomed-from-the-start/
+
+Plenty of characters tragically die in Jujutsu Kaisen, yet these deaths fans saw coming from the very beginning.
+---------
+
+# Naruto Officially Revives Jiraiya in Powerful New Master and Student Reveal
+
+Anime, Naruto
+
+Mon, 25 May 2026 20:00:13 GMT
+
+https://www.cbr.com/naruto-mobile-jiraiya-cgi-animation-intro-reveal/
+
+Naruto's beloved mentor is back, and the new teaser for his revival looks nothing short of amazing.
+---------
+
+# Batman's New Butler Rightfully Captures The Internet's Attention
+
+Comics, DC Comics, DCU, Batman, The Batman, The Batman Part II, The Batman – Part II, Clayface
+
+Mon, 25 May 2026 20:00:13 GMT
+
+https://www.cbr.com/batman-viral-new-butler-captures-internet-attention/
+
+DC Comics just broke the internet with Batman's new butler.
+---------
+
+# Brad Pitt’s $135M Underrated Sci-Fi Was 'Taken Away' From Its Director
+
+Movies, Ad Astra
+
+Mon, 25 May 2026 19:37:25 GMT
+
+https://www.cbr.com/brad-pitt-ad-astra-taken-away-james-gray/
+
+The movie had a strong premise but it ended up failing, and the director explains how much the movie was changed.
+---------
+
+# Rick and Morty's X-Files-Like Spinoff Officially Unveils First Trailer
+
+TV, President Curtis, Rick and Morty
+
+Mon, 25 May 2026 19:35:38 GMT
+
+https://www.cbr.com/president-curtis-teaser-trailer-rick-and-morty-spinoff/
+
+Adult Swim's new Rick and Morty spinoff series gets its first teaser trailer ahead of this summer's debut.
+---------
+
+# One of the Greatest Fantasy Shows of the '90s Is a Global Streaming Hit 20 Years Later
+
+TV, Sabrina the Teenage Witch, Fantasy
+
+Mon, 25 May 2026 19:30:12 GMT
+
+https://www.cbr.com/sabrina-the-teenage-witch-fantasy-comedy-paramount-success-may-2026/
+
+One of the best and most beloved fantasy series, Sabrina the Teenage Witch, is a hit on streaming three decades later.
+---------
+
+# Anya Taylor-Joy’s 127-Minute Sci-Fi Horror Climbs the Charts on Apple TV 1 Year Later
+
+Movies, The Gorge
+
+Mon, 25 May 2026 19:00:12 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-apple-tv-success-may-2026/
+
+Apple TV's unexpected sci-fi horror hit starring Anya Taylor-Joy and Miles Teller is tearing through the streaming competition all over again.
+---------
+
+# Why The Haunting of Hill House Is Still Netflix’s Best Horror Show
+
+TV, The Haunting of Hill House, Horror, Netflix
+
+Mon, 25 May 2026 19:00:12 GMT
+
+https://www.cbr.com/netflix-haunting-of-hill-house-no-replacement/
+
+Netflix's The Haunting of Hill House changed the baseline expectations for television horror by turning trauma into a literal ghost story.
+---------
+
+# 4 Must-Watch Fantasy Movies Still Begging for a Sequel
+
+Movies, Fantasy, The Goonies
+
+Mon, 25 May 2026 19:00:12 GMT
+
+https://www.cbr.com/best-fantasy-movies-that-need-a-sequel-list/
+
+The fantasy genre has given audiences an endless library of Hollywood classics, but some stand out as being long overdue for a modern-day sequel.
+---------
+
+# Apple TV’s 95% RT Sci-Fi Just Got a Major Clue About It's Future Ahead of Season 2
+
+TV Features, Murderbot, Apple TV, Alexander Skarsgard, Sci-Fi
+
+Mon, 25 May 2026 20:07:13 GMT
+
+https://collider.com/apple-tv-murderbot-sci-fi-clue-season-2-future/
+
+Murderbot author Martha Wells is planning to end her series soon, which may impact the Apple TV adaptation.
+---------
+
+# Henry Cavill's Favorite Video Game Officially Returns Soon
+
+Gaming News, Warhammer 40k, Henry Cavill, Fantasy, Gaming
+
+Mon, 25 May 2026 20:02:40 GMT
+
+https://collider.com/warhammer-40000-dawn-of-war-4-pc-release-date-september-17-2026/
+
+Warhammer 40,000: Dawn of War 4 arrives on PC this September as Henry Cavill’s beloved sci-fi franchise keeps expanding.
+---------
+
+# Taylor Sheridan’s Modern Western Masterpiece Hits HBO Max in 1 Week
+
+Movie News, Taylor Sheridan, Hell or High Water, Jeff Bridges, HBO Max
+
+Mon, 25 May 2026 20:00:14 GMT
+
+https://collider.com/taylor-sheridan-neo-western-hell-or-high-water-hbo-max-streaming-release-june-2026/
+
+Hell or High Water, Taylor Sheridan's critically acclaimed neo-western starring Chris Pine and Jeff Bridges, arrives on a new streamer in 1 week.
+---------
+
+# Samara Weaving and Kyle Gallner’s New Crime Romance Looks Like a True Throwback
+
+Movie News, Carolina Caroline, Samara Weaving, Kyle Gallner, Collider Exclusive Preview
+
+Mon, 25 May 2026 20:00:14 GMT
+
+https://collider.com/carolina-caroline-samara-weaving-kyle-gallner-first-look-image/
+
+Get a new look at Carolina Caroline, the stylish crime romance starring Samara Weaving and Kyle Gallner ahead of its June theatrical release.
+---------
+
+# The Most Ambitious Vampire Fantasy in Years Officially Sets Summer Release Date
+
+Movie News, Interview with the Vampire, Vampire, Sinners, Blade
+
+Mon, 25 May 2026 19:54:39 GMT
+
+https://collider.com/new-vampire-video-game-the-blood-of-dawnwalker-release-date-september-2026/
+
+The most ambitious new vampire fantasy RPG of the year has officially set a launch date and pre-orders are available now.
+---------
+
+# 10 Greatest Sci-Fi Thriller Masterpieces of All Time, Ranked
+
+Movie, Science Fiction, Minority Report, The Thing, Alien
+
+Mon, 25 May 2026 19:41:13 GMT
+
+https://collider.com/best-sci-fi-thriller-masterpieces-all-time-ranked/
+
+Movies like Alien and Children of Men excel at blending the heady thoughtfulness of sci-fi with the exhilarating, non-stop approach of the thriller.
+---------
+
+# 3 Perfect Netflix Movies to Watch Before the End of the Month
+
+Movie, Netflix, True Romance, Jumanji, And So It Goes...
+
+Mon, 25 May 2026 19:19:13 GMT
+
+https://collider.com/best-netflix-movies-watch-week-may-25/
+
+True Romance, And So It Goes, and Jumanji: Welcome to the Jungle make up our list of perfect Netflix movies to watch the week of May 25, 2026.
+---------
+
+# Jennifer Lopez and Brett Goldstein Are Your New Favorite Power Couple in New Look at Netflix's Next Big Rom-Com [Exclusive]
+
+Exclusives, Office Romance, Collider Exclusive Preview, Brett Goldstein, Jennifer Lopez
+
+Mon, 25 May 2026 19:00:12 GMT
+
+https://collider.com/netflix-rom-com-office-romance-image-jennifer-lopez-brett-goldstein-ol-parker/
+
+Ol Parker previewed the warmth and chemistry of Jennifer Lopez and Brett Goldstein in his new film Office Romance, alongside a charming new image.
+---------
+
+# Spider-Man Breaks Officially Breaks Franchise Tradition With New TV Series
+
+Features, Spider-Man, Spider-Noir, Upcoming Tease
+
+Mon, 25 May 2026 20:00:19 GMT
+
+https://movieweb.com/spider-noir-new-live-action-tv-series/
+
+The Spider-Man franchise breaks a long-held tradition with a new TV series that is premiering soon.
+---------
+
+# 'Euphoria' Season 3 Star Breaks Silence on Shocking Death of Main Character
+
+TV News, Jacob Elordi, Euphoria
+
+Mon, 25 May 2026 19:26:08 GMT
+
+https://movieweb.com/euphoria-season-3-death-elordi-breaks-silence/
+
+The HBO drama's final season is going out in style—and just a little blood.
+---------
+
+# Perfect 'Toy Story 5' Casting Confirms Bullseye Speaks in Disney/Pixar Sequel
+
+Movie News, Toy Story, Toy Story 5, Alan Cumming, Disney, Pixar
+
+Mon, 25 May 2026 19:25:06 GMT
+
+https://movieweb.com/toy-story-5-confirms-bullseye-alan-cumming/
+
+A classic 'Toy Story' character finally finds their voice in the upcoming sequel, with news of the perfect actor joining the cast.
+---------
+
+# Henry Cavill 98-Minute Action Thriller Flop Dominates £1.5b Sequel on Streaming
+
+Movie News, Henry Cavill, Night Hunter, Top Gun: Maverick, Action, Thriller, Comparison Recommendation
+
+Mon, 25 May 2026 19:00:18 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-maverick-may-2026-action/
+
+It's the little action thriller flop that could.
+---------
+
+# 'The Mandalorian & Grogu' Changes Who Said Din Djarin's Best Line From the Trailer
+
+Features, The Mandalorian and Grogu, Pedro Pascal, Star Wars
+
+Mon, 25 May 2026 19:00:18 GMT
+
+https://movieweb.com/mandalorian-grogu-din-djarin-line-change/
+
+Din Djarin has a great line in 'The Mandalorian & Grogu's trailer, but the actual movie made someone else say it. Read on for more.
+---------
+
+# James Gunn Reveals 'Creature Commandos' Season 2 Will Be Released After 'Man of Tomorrow'
+
+TV News, Creature Commandos, DCU, James Gunn
+
+Mon, 25 May 2026 19:00:10 GMT
+
+https://movieweb.com/creature-commandos-season-2-release-window/
+
+The second season of the acclaimed animated series will be part of the DCU's 2027 slate of titles.
+---------
+
 # 20 Best XP Farms For Minecraft 1.21
 
 Gaming, Minecraft, PC
