@@ -1,3 +1,399 @@
+# Netflix's New R-Rated Remake Of 8-Year-Old Comedy Is Officially No.1 On Streaming Despite Poor Reviews
+
+Movies, Masked Recs
+
+Mon, 25 May 2026 14:29:09 GMT
+
+https://screenrant.com/ladies-first-movie-netflix-streaming-success-may-2026/
+
+Netflix's new smash hit comedy has become No.1 on streaming after just two days, and it features quite the talented duo of leads in an R-rated remake.
+---------
+
+# Metal Gear Solid's Official Return Leaves Gamers Floored
+
+Gaming, Metal Gear Solid, Triple-A Games
+
+Mon, 25 May 2026 14:25:29 GMT
+
+https://screenrant.com/metal-gear-solid-4-remaster-footage/
+
+Even if Konami never puts out another entry ever again, the Metal Gear Solid series will live on as one of the most iconic franchises in gaming.
+---------
+
+# Sydney Sweeney's Euphoria Predecessor Show Was So Good, It Deserved At Least 1 More Season
+
+TV, Masked Recs
+
+Mon, 25 May 2026 14:16:03 GMT
+
+https://screenrant.com/sydney-sweeney-everything-sucks-netflix-canceled-early/
+
+Before Sydney Sweeney became a household name, her teen drama that Netflix canceled deserved more than just one season on the streaming service.
+---------
+
+# Marshals Season 1's Shocking Cliffhanger Ending & Those 2 Characters' Fates Addressed By Yellowstone Spinoff Star
+
+TV, Marshals, Marshals - Season 1, Yellowstone, Logan Marshall-Green
+
+Mon, 25 May 2026 14:15:51 GMT
+
+https://screenrant.com/yellowstone-marshals-season-1-ending-cliffhanger-cal-belle-fates-logan-marshall-green/
+
+Logan Marshall-Green breaks down Marshals season 1's shocking cliffhanger ending, the fates of Cal and Belle and future of the Yellowstone spinoff.
+---------
+
+# Tomb Raider Free Download Officially Available For Next 72 Hours
+
+Gaming, Tomb Raider, Epic Games
+
+Mon, 25 May 2026 14:00:20 GMT
+
+https://screenrant.com/tomb-raider-trilogy-free-download-72-hours/
+
+Spend some time with Lara Croft over the next few days. Tomb Raider fans can grab a special free download for the next 72 hours.
+---------
+
+# DC Reveals Clayface's Full Villain Design in First Image of Showdown with Batman
+
+Comics, Clayface, Batman
+
+Mon, 25 May 2026 14:00:20 GMT
+
+https://screenrant.com/absolute-batman-clayface-design-villain/
+
+Bruce Wayne faces... himself?
+---------
+
+# The Elder Scrolls 6 Release Year Leaves Gamers More Concerned Than Ever
+
+Gaming, The Elder Scrolls 6, Triple-A Games
+
+Mon, 25 May 2026 13:58:25 GMT
+
+https://screenrant.com/elder-scrolls-6-release-year-speculation-reactions/
+
+The Elder Scrolls 6 was revealed back in 2018, and we haven't seen much from it since - fans are getting antsy.
+---------
+
+# Brad Pitt’s Sci-Fi Masterpiece Was “Taken Away” From Its Director & Changed 1 Key Element
+
+Movies, Ad Astra
+
+Mon, 25 May 2026 13:57:19 GMT
+
+https://screenrant.com/brad-pitt-ad-astra-20th-century-fox-creative-control-james-gray/
+
+After his most recent film premiered at Cannes, James Gray explains how one key element of Ad Astra was changed, "taking" the film away from him.
+---------
+
+# President Curtis Leads An X-Files-Like Team In First Rick And Morty Spinoff Trailer
+
+TV, President Curtis, Rick and Morty
+
+Mon, 25 May 2026 13:50:21 GMT
+
+https://screenrant.com/rick-and-morty-spinoff-president-curtis-trailer-released/
+
+An official trailer for the Rick and Morty spinoff titled President Curtis has officially arrived ahead of the series' release in July.
+---------
+
+# Why Does Russell Betray Colter? Jensen Ackles' Tracker Departure Explained
+
+Network TV, Tracker
+
+Mon, 25 May 2026 13:48:59 GMT
+
+https://screenrant.com/tracker-season-3-episode-22-russell-betray-colter-exit-explained/
+
+Tracker season 3 ends with a new path for Russell that threatens his relationship with Colter and explains Jensen Ackles' future absence.
+---------
+
+# 5 Action Thriller Shows More Addictive Than The Night Agent
+
+TV, The Night Agent, Action, 24
+
+Mon, 25 May 2026 14:30:29 GMT
+
+https://www.cbr.com/action-thriller-shows-better-than-the-night-agent-list/
+
+The Night Agent is an addictive action-packed thriller, but a few shows take it even further.
+---------
+
+# 8 Fantasy Movies That Would Never Get Made Today
+
+Movies, Fantasy
+
+Mon, 25 May 2026 14:30:13 GMT
+
+https://www.cbr.com/fantasy-movies-never-get-made-today-list/
+
+The fantasy genre has given cinema some of its biggest spectacles and greatest cult classics, but some just wouldn't get a shot in 2026.
+---------
+
+# Sam Raimi's Legend of the Seeker Is a Hidden Fantasy Gem
+
+TV, Legend of the Seeker, sam raimi, Fantasy
+
+Mon, 25 May 2026 14:27:45 GMT
+
+https://www.cbr.com/sam-raimi-legend-of-the-seeker-underrated-fantasy-show/
+
+Sam Raimi's lesser-known fantasy series, Legend of the Seeker, is a campy and nostalgic adventure with a cult following.
+---------
+
+# Paul Newman's Empire Falls a Perfect HBO Binge Watch
+
+TV, Empire Falls, Drama, HBO Max
+
+Mon, 25 May 2026 14:17:12 GMT
+
+https://www.cbr.com/hbo-empire-falls-perfect-paul-newman-drama/
+
+HBO's Empire Falls is perfect for fans of slice-of-life dramas looking for an easy and comforting four-hour binge.
+---------
+
+# 10 Anime Underdogs With the Best Character Arcs
+
+Anime, shonen anime, Demon Slayer: Kimetsu no Yaiba, My Hero Academia
+
+Mon, 25 May 2026 14:15:43 GMT
+
+https://www.cbr.com/anime-underdogs-best-character-arcs/
+
+An anime underdog's journey never leads directly to the top, but watching these characters grow provides some of the best arcs in their series.
+---------
+
+# Bandai Reveals the Newest Gundam Waifu-Based Mecha
+
+Anime, Mobile Suit Gundam, mecha
+
+Mon, 25 May 2026 14:00:13 GMT
+
+https://www.cbr.com/bandai-gundam-hololive-mori-pekora-irys-gunpla/
+
+The newest hololive x Gundam Mecha designs have been revealed by Bandai, mashing up six other VTubers with some of the most iconic mobile suits.
+---------
+
+# The Boroughs Is Netflix's New Sci-Fi Summer TV Event
+
+TV, The Boroughs, Netflix, Sci-Fi
+
+Mon, 25 May 2026 13:58:49 GMT
+
+https://www.cbr.com/netflix-the-boroughs-sci-fi-tv-show-of-the-summer/
+
+Following Stranger Things' conclusion, The Boroughs is the next sci-fi series to take over Netflix... and possibly the television industry as a whole.
+---------
+
+# Nicolas Cage Passed on 24-Year-Old Thriller & It Ended Future Christopher Nolan Offers: 'They Get Their Feelings Hurt'
+
+Movies, Nicolas Cage, Madden, Insomnia, Christopher Nolan
+
+Mon, 25 May 2026 13:49:17 GMT
+
+https://www.cbr.com/nicolas-cage-passed-insomnia-ended-christopher-nolan-offers/
+
+Hollywood icon Nicolas Cage explains why he passed on a classic 2000s thriller while discussing his upcoming role as the legendary John Madden.
+---------
+
+# Star Trek Announces New Spin-Off Set in a Completely New Universe
+
+Comics, Star Trek
+
+Mon, 25 May 2026 13:18:38 GMT
+
+https://www.cbr.com/star-trek-recollection-new-universe-confirmed/
+
+The new canon Star Trek adventure is inspired by The Next Generation and Voyager.
+---------
+
+# The Mandalorian & Grogu is the Perfect Standalone Star Wars Movie
+
+Movies, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Mon, 25 May 2026 13:00:13 GMT
+
+https://www.cbr.com/the-mandalorian-grogu-perfect-standalone-star-wars-movie/
+
+The Mandalorian and Grogu film is the blueprint for the future of Star Wars movies, and done right means this universe could go on forever.
+---------
+
+# A24 Invites You Into the 'Backrooms' in New Look at Viral Horror Adaptation Releasing May 29
+
+Movie News, Backrooms, Kane Parsons, Collider Exclusive Preview, Chiwetel Ejiofor
+
+Mon, 25 May 2026 14:00:14 GMT
+
+https://collider.com/backrooms-image-chiwetel-ejiofor-a24-horror/
+
+A new image from A24's much-anticipated Backrooms movie shows Chiwetel Ejiofor staring in complete terror at the liminal-space horrors.
+---------
+
+# Bob Dylan’s 1974 Song Unofficially Became the Soundtrack to New Year’s Celebrations
+
+Music Features, Bob Dylan, Neil Young: Heart of Gold, Rock, Music
+
+Mon, 25 May 2026 13:02:14 GMT
+
+https://collider.com/bob-dylan-forever-young-1974-best-new-years-song/
+
+Bob Dylan’s 1974 hit Forever Young, from Planet Waves, became a timeless unofficial New Year’s anthem celebrated worldwide.
+---------
+
+# Callum Turner's 100% RT Time-Travelling Sci-Fi Mystery Sets Sail on Rough Waters in New Images
+
+Exclusives, Rose of Nevada, Callum Turner, Collider Exclusive Preview, George MacKay
+
+Mon, 25 May 2026 13:00:13 GMT
+
+https://collider.com/rose-of-nevada-images-callum-turner-george-mackay-sci-fi-drama/
+
+New images from the sci-fi drama Rose of Nevada place Callum Turner and George McKay in rough waters. Check them out here!
+---------
+
+# After 'Tombstone,' This Unsung Actor Should've Been a Western King
+
+Movie Features, Tombstone, Michael Biehn, The Magnificent Seven, Western
+
+Mon, 25 May 2026 12:33:15 GMT
+
+https://collider.com/tombstone-johnny-ringo-actor-michael-biehn/
+
+Michael Biehn’s performance in Tombstone alongside Kurt Russell and Val Kilmer is proof we need more of the actor in Westerns.
+---------
+
+# 10 Greatest Fantasy Action Movies of All Time, Ranked
+
+Movie, Fantasy, Action, The Lord of the Rings: The Return of the King, Castle in the Sky
+
+Mon, 25 May 2026 12:19:14 GMT
+
+https://collider.com/best-fantasy-action-movies-all-time-ranked/
+
+From animated gems like Castle in the Sky to the masterful The Lord of the Rings trilogy, these are the best movies that blend fantasy and action.
+---------
+
+# 2026’s Breakout Horror Hit Is About To Shatter a Historic Box Office Record
+
+Movie News, Obsession, Curry Barker, Inde Navarrette, Box Office
+
+Mon, 25 May 2026 12:00:14 GMT
+
+https://collider.com/2026-horror-sleeper-hit-obsession-100x-return-on-investment-box-office-projection/
+
+The breakout hit of 2026, Curry Barker's Obsession, grossed more in its second weekend at the box office than it did in its first. Find out more.
+---------
+
+# 'Masters of the Universe' Is Officially Doing What Modern Fantasy Movies Forgot How To Do
+
+Exclusives, Masters of the Universe, Travis Knight, He-Man and the Masters of the Universe, Set Visit
+
+Mon, 25 May 2026 12:00:14 GMT
+
+https://collider.com/masters-of-the-universe-color-good-lighting-set-visit/
+
+Learn how Masters of the Universe is breaking the mold of monochromatic fantasy films by embracing vibrant colors and practical effects.
+---------
+
+# ‘The Mandalorian and Grogu’ Proves the Franchise Hinges on ‘Star Wars: The Clone Wars’
+
+Movie Features, The Mandalorian and Grogu, Star Wars, Star Wars: The Clone Wars, Lucasfilm
+
+Mon, 25 May 2026 11:52:15 GMT
+
+https://collider.com/star-wars-mandalorian-and-grogu-clone-wars-best-characters-embo/
+
+The Mandalorian and Grogu proves once again that The Clone Wars created some of Star Wars coolest characters with Embo and Rotta’s live-action debuts.
+---------
+
+# 10 Greatest Gangster Movies Worth Watching Over and Over
+
+Movie, The Godfather, The Godfather Part II, Goodfellas, Once Upon a Time in America
+
+Mon, 25 May 2026 11:40:14 GMT
+
+https://collider.com/best-gangster-movies-worth-watching-over-and-over/
+
+Timeless and endlessly rewatchable gangster movies like Goodfellas and The Godfather expertly explore power, paranoia, and tragedy.
+---------
+
+# 10 Western Movies That Will Keep You Hooked From Start to Finish
+
+Movie, Western, The Good, the Bad and the Ugly, Django Unchained, The Wild Bunch
+
+Mon, 25 May 2026 11:40:14 GMT
+
+https://collider.com/western-movies-keep-you-hooked-from-start-to-finish/
+
+From Unforgiven to Tombstone, these Westerns prove the genre can thrill absolutely anyone from start to finish.
+---------
+
+# Your New Favorite Action Hero Returns for "Brutal" Upcoming Crime Thriller
+
+Movie News, Action, Thriller, Crime
+
+Mon, 25 May 2026 14:13:00 GMT
+
+https://movieweb.com/bren-foster-marx-action-thriller/
+
+The 'Life After Fighting' breakout joins a Scott Adkins collaborator for the new action crime thriller 'Marx.'
+---------
+
+# Why 'The Boys' Season 5 Failed
+
+Features, The Boys, Prime Video
+
+Mon, 25 May 2026 14:00:18 GMT
+
+https://movieweb.com/the-boys-season-5-failure-explained/
+
+'The Boys' Season 5 streamed on Amazon Prime Video in April and May 2026 and starred Erin Moriarty, Antony Starr, Jack Quaid, and Karl Urban.
+---------
+
+# 12 Great Sci-Fi Shows With Incredible Lore
+
+TV Lists, Sci-Fi
+
+Mon, 25 May 2026 13:00:18 GMT
+
+https://movieweb.com/sci-fi-tv-shows-best-lore/
+
+These sci-fi TV shows have impressive lore and tell stories about space, aliens, and other incredible settings that viewers are still talking about.
+---------
+
+# Jason Statham Finds New Action Hit as 2026 Thriller Shoots to #1 on Streaming
+
+Movie News, Jason Statham, Hot on Streaming, Shelter, Action, Thriller
+
+Mon, 25 May 2026 12:30:19 GMT
+
+https://movieweb.com/jason-statham-shelter-action-stream-may-2026/
+
+The overlooked action thriller finds redemption after bombing at the box office.
+---------
+
+# 'VisionQuest' Marks the End of the WandaVision Mini-Franchise
+
+Features, Vision Quest, Paul Bettany, MCU
+
+Mon, 25 May 2026 12:15:18 GMT
+
+https://movieweb.com/visionquest-ends-mcu-mini-franchise/
+
+Paul Bettany is coming back to bookend the 'WandaVision' storyline, and it's making me sad that it's almost over. Read on for more.
+---------
+
+# Tom Hardy May Not Be Finished With 'MobLand' as New Details Revealed
+
+TV News, Tom Hardy, MobLand
+
+Mon, 25 May 2026 11:53:29 GMT
+
+https://movieweb.com/tom-hardy-mobland-not-fired-limbo/
+
+The actor was reportedly "fired" from the series last week, but he's not sleeping with the fishes yet.
+---------
+
 # GTA 5 Freebie Officially Available To Grab Before June 10
 
 Gaming, Grand Theft Auto, Grand Theft Auto 5
