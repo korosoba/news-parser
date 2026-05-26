@@ -1,3 +1,443 @@
+# HBO's Band Of Brothers Marked The End Of An Era For TV
+
+Classic TV, Masked Recs
+
+Tue, 26 May 2026 17:30:20 GMT
+
+https://screenrant.com/hbo-band-of-brothers-miniseries-end-of-era-tv/
+
+HBO's greatest miniseries of all time, Band of Brothers, was the first TV show to prove cinematic visuals weren't exclusive to the big screen.
+---------
+
+# Netflix's New 8-Part Superhero Series Is Already One Of Its Best
+
+TV, Masked Recs
+
+Tue, 26 May 2026 17:30:15 GMT
+
+https://screenrant.com/netflix-the-wonderfools-superhero-series-best/
+
+Netflix's new superhero series has only been on the streaming service for a short time, but it is undoubtedly one of Netflix's best TV shows.
+---------
+
+# Speed Racer 4K Release Interview with Emile Hirsch
+
+Movies, Speed Racer, Emile Hirsch
+
+Tue, 26 May 2026 17:30:15 GMT
+
+https://screenrant.com/video/speed-racer-4k-release-emile-hirsch-interview/
+
+Emile Hirsch reflects on Speed Racer's continued cult classic legacy, why it's been a more "organic" evolution than many others, and the 4K remaster.
+---------
+
+# It's Officially A New Era For Harry Potter Games
+
+Gaming
+
+Tue, 26 May 2026 17:27:10 GMT
+
+https://screenrant.com/harry-potter-games-new-era-2026/
+
+Recent behind-the-scenes moves regarding the Harry Potter franchise may have a big impact on the series future in gaming.
+---------
+
+# 4 Years Later, Star Wars Announces New Boba Fett Series
+
+Comics, Star Wars, The Book of Boba Fett, Boba Fett
+
+Tue, 26 May 2026 17:22:35 GMT
+
+https://screenrant.com/star-wars-new-boba-fett-series/
+
+Four years after The Book of Boba Fett ended on Disney+, Boba Fett is finally returning in a brand-new Star Wars series this September.
+---------
+
+# The 10 Highest-Grossing Original Horror Movies This Decade
+
+New Movies, Box Office
+
+Tue, 26 May 2026 17:20:20 GMT
+
+https://screenrant.com/highest-grossing-original-horror-movies-2020s-box-office/
+
+The 2020s have produced some very successful original horror movies, and these are the highest-grossing releases of the decade to this point.
+---------
+
+# 5 Best Netflix Shows To Binge-Watch This Week (May 25–29, 2026)
+
+Streaming TV, What to Watch on Netflix, Netflix
+
+Tue, 26 May 2026 17:18:21 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-watch-week-may-2026/
+
+Netflix has a brand new slate of exciting new streaming releases this week, May 25–29, 2026, including the return of two of its most popular series.
+---------
+
+# Netflix's New 8-Part Reboot Of 66-Year-Old Toho Sci-Fi Thriller Human Vapor Officially Releases This Summer
+
+TV, Netflix
+
+Tue, 26 May 2026 17:17:35 GMT
+
+https://screenrant.com/netflix-human-vapor-reboot-release-date-teaser/
+
+Netflix's new eight-part reboot of a 66-year-old sci-fi thriller from Toho studios, The Human Vapor, officially releases later this summer.
+---------
+
+# The Chi Season 8 Interviews with Jacob Latimore, Michael V. Epps, Jason Weaver & More
+
+TV, The Chi
+
+Tue, 26 May 2026 17:17:24 GMT
+
+https://screenrant.com/video/the-chi-season-8-jacob-latimore-michael-v-epps-jason-weaver-interview/
+
+The Chi stars Jacob Latimore, Birgundi Baker, Hannaha Hall, Shamon Brown Jr., Michael V. Epps, Luke James, and Jason Weaver reflect on the show's 8 seasons and what it means to say goodbye to Chicago after so long.
+---------
+
+# Godzilla Announces Earth-Shattering Comic-Con Appearance, Teasing Major New Release
+
+Comics, Godzilla
+
+Tue, 26 May 2026 16:54:02 GMT
+
+https://screenrant.com/godzilla-comic-con-san-diego-appearance/
+
+Godzilla brings total destruction to San Diego Comic-Con this July as the King of the Monsters unleashes chaos on the fans who made him famous.
+---------
+
+# George R.R. Martin's Game of Thrones Stage Play Debuts in 2 Months
+
+TV, Game Of Thrones
+
+Tue, 26 May 2026 17:40:12 GMT
+
+https://www.cbr.com/george-r-r-martin-game-of-thrones-the-mad-king-premiere-details/
+
+Following the 15th anniversary of the TV series, a new Game of Thrones project debuts this summer.
+---------
+
+# In Just 1 Day, Returning 100% RT Animated Show Becomes Global Hit
+
+TV, Rick and Morty
+
+Tue, 26 May 2026 17:30:13 GMT
+
+https://www.cbr.com/rick-and-morty-season-9-instant-success/
+
+Streaming viewership numbers are strong in addition to the new season earning a perfect Rotten Tomatoes score.
+---------
+
+# CBS' Tracker Season 3 Finale Goes Sci-Fi
+
+TV, Tracker
+
+Tue, 26 May 2026 17:30:13 GMT
+
+https://www.cbr.com/tracker-season-3-finale-sci-fi-genre-jump/
+
+Tracker ended its third season with an unexpected genre twist, suggesting the show continues to struggle to find its footing.
+---------
+
+# Éomer Fixed King Théoden's Greatest LOTR Mistake
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Tue, 26 May 2026 17:30:13 GMT
+
+https://www.cbr.com/lord-of-the-rings-eomer-fixed-theoden-mistake/
+
+Decades before the War of the Ring, King Théoden made a disastrous decision that Éomer needed to undo after the events of The Lord of the Rings.
+---------
+
+# Blumhouse's Canceled Cyberpunk Sequel Gets Official Details From Lead Star
+
+TV, Upgrade
+
+Tue, 26 May 2026 17:27:12 GMT
+
+https://www.cbr.com/blumhouses-upgrade-tv-show-details-logan-marshall-green/
+
+The cyberpunk action thriller was a major hit, but a sequel never materialized.
+---------
+
+# Spider-Noir Star Reveals the Show’s Unexpected Connection to an Oscar-Winning Horror Film With a 93% RT Score
+
+Comics, Spider-Noir
+
+Tue, 26 May 2026 17:25:24 GMT
+
+https://www.cbr.com/spider-noir-cary-christopher-character-weapons-connection/
+
+Spider-Noir's Karen Rodriguez confirms the hit new superhero series' ties to one of the most critically-acclaimed horror films of all time.
+---------
+
+# Star Wars Officially Confirms Boba Fett's Long-Awaited Return
+
+Comics, Star Wars
+
+Tue, 26 May 2026 17:18:59 GMT
+
+https://www.cbr.com/star-wars-the-book-of-boba-fett-comic-release-date-confirmed/
+
+Boba Fett's journey from the Sarlacc pit to ruling Tatooine continues in a new series.
+---------
+
+# 10 Best Video Games Where the Villain Actually Won
+
+Games, Final Fantasy, Call of Duty, Red Dead Redemption
+
+Tue, 26 May 2026 17:15:13 GMT
+
+https://www.cbr.com/best-video-games-where-thevillain-wins/
+
+Sometimes, a video game reaches legendary status by ripping a victory away from the beloved heroes and handing it to the evil antagonists.
+---------
+
+# Fallout Officially Reveals New Collection Available Today
+
+Games, Fallout, Fallout 76
+
+Tue, 26 May 2026 17:12:14 GMT
+
+https://www.cbr.com/fallout-new-release-official-reveal-available-may-2026/
+
+The Official Bethesda Gear Store has added the Fallout Marshall Mallow Collection, featuring items based on the mascot from Fallout 76.
+---------
+
+# Enola Holmes 3 Poster Faces Fierce Backlash 1 Month Before the Film's Netflix Premiere
+
+Movies, Enola Holmes 3, Enola Holmes, Netflix
+
+Tue, 26 May 2026 17:04:18 GMT
+
+https://www.cbr.com/enola-holmes-3-poster-backlash-ai/
+
+One of the new posters for Enola Holmes 3 faces a wave of online backlash barely a month before the film makes its debut on Netflix.
+---------
+
+# Apple TV’s Best Sci-Fi Series Is Running Out of Options in Season 5 Finale Sneak Peek [Exclusive]
+
+TV News, For All Mankind, Sci-Fi, Apple TV, Joel Kinnaman
+
+Tue, 26 May 2026 17:35:54 GMT
+
+https://collider.com/for-all-mankind-season-5-finale-sneak-peek-mars-titan-mission/
+
+Watch an exclusive clip from the For All Mankind Season 5 finale, before it premieres on Friday, May 29, on Apple TV.
+---------
+
+# ‘Reacher’ Drops Official Update on Long-Awaited Prime Video Spin-Off
+
+TV News, Reacher, Neagley, Alan Ritchson, Maria Sten
+
+Tue, 26 May 2026 17:15:13 GMT
+
+https://collider.com/reacher-spin-off-neagley-release-update-maria-sten-prime-video/
+
+Reacher star Maria Sten has offered a promising new update on the long-awaited Prime Video spin-off Neagley.
+---------
+
+# $700M Horror Franchise Returns With a Terrifying New Look at Summer Release
+
+Exclusives, Insidious: Out of the Further, Collider Exclusive Preview, Lin Shaye, Horror
+
+Tue, 26 May 2026 17:00:14 GMT
+
+https://collider.com/insidious-out-of-the-further-lin-shaye-first-look-image/
+
+Get a new look at Insidious: Out of the Further, the sixth installment in the horror franchise, with Lin Shaye returning as Elise Rainier.
+---------
+
+# 10 Heaviest Movies of the Last 25 Years, Ranked
+
+Movie, The Zone of Interest, Amour, Irréversible, Manchester By the Sea
+
+Tue, 26 May 2026 16:46:13 GMT
+
+https://collider.com/heaviest-movies-last-25-years-ranked/
+
+Killers of the Flower Moon, The Zone of Interest, and Amour are all among the heaviest movies of the last 25 years.
+---------
+
+# One of the Greatest Games of All Time Is Officially Getting a Remake in Just Over 1 Month
+
+Gaming News, Assassin's Creed IV: Black Flag, Black Sails, Pirates of the Caribbean, Assassin's Creed
+
+Tue, 26 May 2026 16:45:27 GMT
+
+https://collider.com/pirate-fantasy-assassins-creed-black-flag-resynced-release-date-july-9/
+
+Black Sails fans will be pleased soon with the release of a new pirate-based project, which is launching in early July.
+---------
+
+# Apple TV’s Gripping 10/10 British Detective Series Releases Tense New Look at Season 2 [Exclusive]
+
+TV News, Criminal Record, Peter Capaldi, Cush Jumbo, Apple TV
+
+Tue, 26 May 2026 16:30:13 GMT
+
+https://collider.com/apple-tv-british-detective-series-criminal-record-season-2-episode-6-sneak-peek/
+
+Apple TV's popular British detective series, Criminal Record, which stars Peter Capaldi and Cush Jumbo, releases a new Season 2 sneak peek.
+---------
+
+# Star Trek History Comes Alive in First Look at Free ‘Roddenberry Archives’ Series [Exclusive]
+
+TV News, Gene Roddenberry, Star Trek, Star Trek: The Original Series, Star Trek: The Motion Picture
+
+Tue, 26 May 2026 16:30:13 GMT
+
+https://collider.com/star-trek-sneak-peek-into-the-roddenberry-archives-free-series-youtube/
+
+Take a journey through the Star Trek archives, showcasing rare artifacts & more from the iconic franchise's history in Into the Roddenberry Archives.
+---------
+
+# Tom Hanks’ New Must-Watch WWII Series Officially Drops 3 New Episodes
+
+TV News, Tom Hanks, World War II, Greyhound, History Channel
+
+Tue, 26 May 2026 16:17:34 GMT
+
+https://collider.com/world-war-2-with-tom-hanks-20-episode-history-channel-how-to-watch/
+
+Tom Hanks has returned to his favorite genre with his grandest series yet, World War II with Tom Hanks, which began its 20-episode run on Memorial Day
+---------
+
+# ‘Supergirl’ Takes Flight in New Look at the Most Anticipated Superhero Movie of the Year
+
+Exclusives, Milly Alcock, Supergirl, DCU, Collider Exclusive Preview
+
+Tue, 26 May 2026 16:00:13 GMT
+
+https://collider.com/supergirl-milly-alcock-new-image-summer-release-dcu-james-gunn/
+
+Discover the dark, cosmic journey of Milly Alcock's Supergirl in a new look at DC's boldest era yet, ahead of the hotly anticipated summer release.
+---------
+
+# Michelle Monaghan Interview | Robert De Niro, Your Friends & Neighbors & Potential Family Plan 3
+
+Interviews
+
+Tue, 26 May 2026 15:54:50 GMT
+
+https://collider.com/video/michelle-monaghan-interview-robert-de-niro-your-friends-neighbors-potential-family-plan-3/
+
+In this exclusive interview with Collider, Michelle Monaghan sits down to talk about her upcoming projects and collaborations. She teases The Whisper Man, directed by James Ashcroft, by talking about her experience working with Robert De Niro and Adam Scott, and what excites her most about the story and script.Monaghan talks about joining the cast of Your Friends & Neighbors for Season 3, alongside Jon Hamm, Amanda Peet and Olivia Munn, how it’s different from her previous work, and the challenges that excite her. She also opens up about a possible Family Plan 3 movie with Mark Wahlberg and how she’d love for that opportunity to come.
+---------
+
+# 'The Mandalorian & Grogu' and 'Obsession Dominate Memorial Day Weekend 2026
+
+Movie News
+
+Tue, 26 May 2026 17:28:01 GMT
+
+https://movieweb.com/memorial-day-box-office-obsession-mandalorian-grogu/
+
+Star Wars' 'The Mandalorian & Grogu' wins the box office over Memorial Day Weekend, as 'Obsession' trails in second on the charts.
+---------
+
+# 'Masters of the Universe' Director Reveals Drastic Change to Skeletor He Rejected
+
+Movie News, Masters of the Universe
+
+Tue, 26 May 2026 17:27:46 GMT
+
+https://movieweb.com/masters-of-the-universe-almost-made-major-skeletor-change-until-travis-knight-stepped-in/
+
+The director of the 'Masters of the Universe' reveals that before he signed on to direct, a previous attempt had Skeletor wearing a gold skull mask.
+---------
+
+# Hugh Jackman Gives History Lesson in 'The Death of Robin Hood' Video
+
+Movie News, The Death of Robin Hood
+
+Tue, 26 May 2026 17:25:18 GMT
+
+https://movieweb.com/death-of-robin-hood-history-featurette/
+
+Hugh Jackman retells the history of Robin Hood in a new video ahead of the release of A24's 'The Death of Robin Hood.'
+---------
+
+# 'Ad Astra' Director Disowns Final Cut Over Claims Of Studio Interference
+
+Movie News, Ad Astra, James Gray, Brad Pitt, Sci-Fi
+
+Tue, 26 May 2026 17:18:16 GMT
+
+https://movieweb.com/brad-pitt-james-grey-ad-astra/
+
+If director James Gray had his way, his 2019 cerebral sci-fi odyssey would actually be shorter, not longer.
+---------
+
+# Will Tom Hardy Be in 'MobLand' Season 2?
+
+Features, MobLand, Tom Hardy
+
+Tue, 26 May 2026 17:00:19 GMT
+
+https://movieweb.com/mobland-season-2-tom-hardy/
+
+'MobLand' stars Tom Hardy, Pierce Brosnan, and Helen Mirren, and Season 1 premiered on Paramount+ in March 2025.
+---------
+
+# This Frankenstein-Inspired Horror-Comedy Is the Only Movie to Get an 'S' Rating
+
+Features, Horror, Comedy
+
+Tue, 26 May 2026 17:00:19 GMT
+
+https://movieweb.com/fankenhooker-s-rating/
+
+Inspired by Frankenstein, the horror-comedy received an unusual, unprecedented rating upon its release.
+---------
+
+# Star Wars Retcons Mandalorian Lore Again To Avoid Din Djarin Plot Hole
+
+Features, The Mandalorian and Grogu, Star Wars
+
+Tue, 26 May 2026 16:55:18 GMT
+
+https://movieweb.com/star-wars-din-djarin-retcon/
+
+'The Mandalorian' taught me a lot about Mandalorian lore, but now Star Wars has made another retcon. Read on for more.
+---------
+
+# 'Toy Story 5' Final Trailer Reveals New Conflict Between Toys and Technology
+
+Movie News, Toy Story 5
+
+Tue, 26 May 2026 16:52:45 GMT
+
+https://movieweb.com/toy-story-5-final-trailer/
+
+Pixar has released the final trailer for 'Toy Story 5' with tickets now on sale.
+---------
+
+# Millie Bobby Brown & Henry Cavill Return in First Look at 'Enola Holmes 3'
+
+Movie News, Enola Holmes 3, Enola Holmes, Henry Cavill, Millie Bobby Brown, Netflix
+
+Tue, 26 May 2026 16:06:38 GMT
+
+https://movieweb.com/millie-bobby-brown-henry-cavill-enola-holmes-3/
+
+Based on these posters, something goes sideways at the wedding between Enola Holmes (Millie Bobby Brown) and Tewkesbury (Louis Partridge).
+---------
+
+# Kevin Costner's Western Action Epic Lands Streaming Release
+
+Movie News, Horizon: An American Saga - Chapter 1, Prime Video, Coming/Leaving Streaming, Kevin Costner
+
+Tue, 26 May 2026 16:00:18 GMT
+
+https://movieweb.com/horizon-an-american-saga-streaming-prime-video-june-2026/
+
+Kevin Costner's $100 million western action movie 'Horizon: An American Saga' is streaming on Prime Video, despite 'Chapter 2's lack of release date.
+---------
+
 # 007 First Light: Malta Training Walkthrough (Final Mission)
 
 Gaming, 007 First Light, Triple-A Games, PC
