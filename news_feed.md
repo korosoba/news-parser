@@ -1,3 +1,399 @@
+# 007 First Light: Malta Training Walkthrough (Final Mission)
+
+Gaming, 007 First Light, Triple-A Games, PC
+
+Tue, 26 May 2026 14:00:20 GMT
+
+https://screenrant.com/007-first-light-malta-final-mission-walkthrough/
+
+The first real test of Bond's skills and improvisation in 007 First Light comes at the MI6 training camp in Malta, and the right approach is key.
+---------
+
+# 007 First Light: All Card Locations
+
+Gaming, 007 First Light, Triple-A Games, PC
+
+Tue, 26 May 2026 14:00:20 GMT
+
+https://screenrant.com/007-first-light-all-card-locations-collectibles/
+
+007 First Light has a long list of cards to find throughout the game, and you aren't likely to spot them all without a bit of assistance.
+---------
+
+# Zendaya's Euphoria Future Is At Risk Ahead Of Season 3's Finale
+
+Streaming TV, Euphoria
+
+Tue, 26 May 2026 14:00:20 GMT
+
+https://screenrant.com/euphoria-season-3-rue-death-foreshadowing-ali-book/
+
+Euphoria season 3 ends next week, and I'm worried the show has been foreshadowing the untimely death of Rue Bennett in the finale.
+---------
+
+# 007 First Light Has More Bad News For Fans Ahead Of Its Release
+
+Gaming, 007 First Light, Triple-A Games, PC
+
+Tue, 26 May 2026 14:00:20 GMT
+
+https://screenrant.com/007-first-light-no-preload-denuvo/
+
+007 First Light has been having a rocky few days leading up to its release, but IO Interactive's latest update has fans furious over the change.
+---------
+
+# Mattel Confirms Next Official Barbie Release, With New High Fantasy Setting
+
+Books, Barbie
+
+Tue, 26 May 2026 14:00:20 GMT
+
+https://screenrant.com/barbie-new-novel-ya-dreamscape-alex-aster/
+
+Mattel shares image of the bright pink armor.
+---------
+
+# Hideo Kojima Hails The Mandalorian & Grogu As An “Entertaining Spectacle” In Rave Review
+
+Movies, The Mandalorian and Grogu, The Mandalorian, Star Wars
+
+Tue, 26 May 2026 13:48:05 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-grogu-hideo-kojima-review/
+
+Hideo Kojima has given a rave review to The Mandalorian and Grogu, calling the new Star Wars movie an "entertaining spectacle."
+---------
+
+# Stephen King Calls Netflix’s New 8-Part Sci-Fi Series “An Absolute Delight” In Glowing Review
+
+TV, The Boroughs, Stephen King
+
+Tue, 26 May 2026 13:44:27 GMT
+
+https://screenrant.com/stephen-king-netflix-the-boroughs-review/
+
+Stephen King has given a rare glowing review to this new Netflix sci-fi series and states it's an "absolute delight" as it achieves a rare feat.
+---------
+
+# Downton Abbey Creator's 3-Season HBO Period Drama Is The Superior Series
+
+Streaming TV, Masked Recs
+
+Tue, 26 May 2026 13:30:22 GMT
+
+https://screenrant.com/downton-abbey-the-gilded-age-better-julian-fellowes/
+
+The creator of Downton Abbey, Julian Fellowes, is at the helm of another historical drama, which might just be better than the iconic British TV show.
+---------
+
+# Superman/Batman: Apocalypse Is Days Away From A Streaming Release
+
+Movies, DC Universe, DC, Superman/Batman: Apocalypse
+
+Tue, 26 May 2026 13:30:22 GMT
+
+https://screenrant.com/superman-batman-apocalypse-movie-hbo-max-release/
+
+One of Batman and Superman's film adventures is set for a new streaming release soon, allowing viewers to see an often forgotten part of DC history.
+---------
+
+# Marvel Officially Unveils Incredible Wolverine Redesign
+
+Gaming, Marvel, Wolverine, Marvel Rivals, PC
+
+Tue, 26 May 2026 13:18:38 GMT
+
+https://screenrant.com/marvel-rivals-wolverine-2099-costume/
+
+Marvel has officially launched a brand-new stunning look for the iconic Wolverine, and it's unlike anything we've seen before.
+---------
+
+# Pokémon Gives Pikachu and Friends New Official Summer Designs for 30th Anniversary
+
+Anime, Pokémon, Pokemon
+
+Tue, 26 May 2026 14:00:14 GMT
+
+https://www.cbr.com/pokemon-30th-anniversary-summer-apparel-collection/
+
+Pokémon fans looking for a new summer fit need to check out the franchise's latest collab.
+---------
+
+# 10 Shojo Anime Couples That Set Impossible Romance Standards
+
+Anime, Sailor Moon, Nana
+
+Tue, 26 May 2026 13:15:12 GMT
+
+https://www.cbr.com/best-shojo-anime-couples-set-impossible-romance-standards/
+
+These Shojo anime couples were so perfect that they ruined romance for everyone else.
+---------
+
+# Mark Hamill's Revival of Iconic Cartoon Network Show Officially Arrives in 2 Weeks
+
+TV, Regular Show: The Lost Tapes
+
+Tue, 26 May 2026 13:00:12 GMT
+
+https://www.cbr.com/mark-hamill-regular-show-lost-tapes-hbo-max-release-date/
+
+Hamill returns to one of his most underrated projects, and it's making its way to HBO Max in the coming weeks.
+---------
+
+# Netflix's The Boroughs Challenges Ageism in Hollywood
+
+TV, The Boroughs, Netflix
+
+Tue, 26 May 2026 13:00:12 GMT
+
+https://www.cbr.com/netflix-the-boroughs-challenges-hollywood-ageism-problem/
+
+A recent Netflix show is described as "Stranger Things with grandparents," but its talented cast and wonderful script prove it's far more than that
+---------
+
+# The 10 Most Terrifying James Bond Villains Ever, Ranked By Threat Level
+
+Movies, James Bond, Villains, Action
+
+Tue, 26 May 2026 13:00:12 GMT
+
+https://www.cbr.com/scariest-james-bond-villains-ranked-list/
+
+These famous James Bond villains are the most terrifying and threatening of them all.
+---------
+
+# Mandalorian & Grogu Sneaks in the Only Star Wars Actor in Every Film
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Tue, 26 May 2026 12:00:12 GMT
+
+https://www.cbr.com/the-mandalorian-grogu-quietly-confirms-anthony-daniels-role/
+
+Only one actor has appeared in every single Star Wars movie, and the tradition continues with The Mandalorian and Grogu.
+---------
+
+# Teenage Mutant Ninja Turtles Reunite to Fight a Long-Forgotten Villain
+
+Comics, Teenage Mutant Ninja Turtles
+
+Tue, 26 May 2026 12:00:12 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-panda-khan-saturday-morning-adventures/
+
+TMNT are finally getting a story that includes this forgotten character from the 90s.
+---------
+
+# Hololive Officially Says Goodbye to 6 Talents Following Financial Shut Down With Final June 2026 Stream
+
+Anime, YouTube
+
+Tue, 26 May 2026 11:52:42 GMT
+
+https://www.cbr.com/hololive-officially-says-goodbye-june-2026/
+
+Nearly 10 years later, Hololive is officially saying goodbye to multiple talents following the company's recent financial woes.
+---------
+
+# New Elden Ring Live-Action Movie Set Leaks Have Fans Saying the Same Thing
+
+Movies, Elden Ring
+
+Tue, 26 May 2026 11:30:13 GMT
+
+https://www.cbr.com/elden-ring-live-action-stormveil-conwy-castle-footage/
+
+Leaked video from the set of Elden Ring has the internet in agreement about the upcoming dark fantasy video game film.
+---------
+
+# 9 Live-Action Netflix Shows With Rare Perfect Rotten Tomatoes Scores
+
+TV, Netflix, The Snow Girl, Marianne, Supacell
+
+Tue, 26 May 2026 11:30:13 GMT
+
+https://www.cbr.com/best-live-action-netflix-shows-list/
+
+It's rare that TV shows get a 100% approval rating on Rotten Tomatoes, but these Netflix series have earned their critical acclaim.
+---------
+
+# The Most Intense Action Thriller of the Year Gets 10/10 First Look
+
+Exclusives, The Furious, Joe Taslim, Collider Exclusive Preview, Action
+
+Tue, 26 May 2026 14:01:13 GMT
+
+https://collider.com/martial-arts-action-epic-the-furious-images-xie-miao-joe-taslim-yang-enyou/
+
+New images from the massively acclaimed martial arts epic The Furious see Xie Miao and Joe Taslim standing ready for the fight of their lives.
+---------
+
+# The Most Exciting WWII Movie of 2026 Gets a Tense New Look Ahead of May 29 Release
+
+Movie News, Pressure, Brendan Fraser, Damian Lewis, Collider Exclusive Preview
+
+Tue, 26 May 2026 13:00:13 GMT
+
+https://collider.com/world-war-2-movie-pressure-brendan-fraser-andrew-scott-d-day-first-look/
+
+Get a new look at Pressure, the World War II drama starring Brendan Fraser, Andrew Scott, and Damian Lewis, ahead of its May release.
+---------
+
+# Forget Grand Theft Auto, PlayStation's 3-Part Open World Series Is a Masterpiece From Start to Finish
+
+Gaming News, Grand Theft Auto 5, Marvel's Spider-Man, Marvel's Spider-Man: Miles Morales, PlayStation 5
+
+Tue, 26 May 2026 12:58:41 GMT
+
+https://collider.com/grand-theft-auto-playstation-spider-man-insomniac-masterpiece/
+
+The PlayStation consoles have been home to some of the best open world games, but nothing beats Insomniac's Spider-Man series.
+---------
+
+# Forget ‘The Last of Us,’ Netflix’s 5-Part Sci-Fi Apocalypse Thriller Is the Perfect Weekend Binge
+
+TV Features, The Last Ship, Eric Dane, Netflix, TNT
+
+Tue, 26 May 2026 12:31:13 GMT
+
+https://collider.com/the-last-ship-netflix-perfect-weekend-binge/
+
+Netflix’s The Last Ship mixes post-apocalyptic survival, naval warfare, and explosive action into an easy weekend binge.
+---------
+
+# The 12 Best Crime Thrillers of the Last 5 Years, Ranked
+
+Movie, Thriller, Crime, The Killer, One Battle After Another
+
+Tue, 26 May 2026 12:14:14 GMT
+
+https://collider.com/crime-thriller-movies-last-5-years-ranked/
+
+Discover the best and most exhilarating crime thrillers of the last 5 years, from One Battle After Another to The Killer.
+---------
+
+# New James Bond Project Is Officially His Best Outing Since 'Skyfall' | Review
+
+Movie, 007, James Bond, Video Game, 007 First Light
+
+Tue, 26 May 2026 12:01:13 GMT
+
+https://collider.com/007-first-light-review/
+
+IO Interactive's 007 First Light successfully reinvents James Bond for modern gaming with excellent action and expansive world building.
+---------
+
+# 21st-Century Sci-Fi Movies That Are 10/10, No Notes
+
+Movie, Inception, Arrival, Blade Runner 2049, Sci-Fi
+
+Tue, 26 May 2026 11:52:13 GMT
+
+https://collider.com/perfect-sci-fi-movies-21st-century/
+
+Edge of Tomorrow, Arrival, Inception, Annihilation, Children of Men, and more make up our list of perfect 21st-century sci-fi movies.
+---------
+
+# This 'The Godfather' Deleted Scene Should've Never Been Cut
+
+Movie Features, The Godfather, James Caan, Francis Ford Coppola
+
+Tue, 26 May 2026 11:31:14 GMT
+
+https://collider.com/the-godfather-deleted-scene-sonny-corleone/
+
+A deleted scene from The Godfather shows Sonny's reaction to finding out about Vito's shooting, providing a nuanced look at the Don's legacy.
+---------
+
+# Elvis Presley's Most Heartbreaking Ballad Is a Haunting Warning About Fame
+
+Music Features, Elvis, Music, Rock, Billboard Hot 100
+
+Tue, 26 May 2026 11:30:13 GMT
+
+https://collider.com/elvis-presley-most-heartbreaking-song-long-black-limousine/
+
+Elvis Presley's haunting ballad that delivers a powerful warning about the emotional cost of chasing fame and success.
+---------
+
+# ‘Se7en’ Meets ‘Prisoners’ in Henry Cavill’s Ice-Cold $1 Million Crime Thriller Dominating Streaming Charts
+
+Movie News, Prisoners, Henry Cavill, Se7en, Night Hunter
+
+Tue, 26 May 2026 11:30:13 GMT
+
+https://collider.com/henry-cavill-crime-thriller-night-hunter-streaming-success-paramount-plus-may-2026/
+
+David Raymond's crime thriller Night Hunter, starring Henry Cavill, Ben Kingsley, and Alexandra Daddario, is quietly dominating Paramount+.
+---------
+
+# Star Trek's Teased Sci-Fi Crossover Might Never Happen Now
+
+Features, Star Trek, Doctor Who
+
+Tue, 26 May 2026 14:00:19 GMT
+
+https://movieweb.com/star-trek-crossover-time-running-out/
+
+'Star Trek: Strange New Worlds' Season 3 seemed to be quietly setting up a game-changing crossover. Will it still happen? Read on for more.
+---------
+
+# 'The Big Bang Theory' Favorite Wil Wheaton Officially Joins 'Stuart Fails to Save the Universe'
+
+TV News, Stuart Fails to Save the Universe, The Big Bang Theory, Wil Wheaton
+
+Tue, 26 May 2026 13:48:10 GMT
+
+https://movieweb.com/stuart-fails-save-universe-wil-wheaton-returns/
+
+Wil Wheaton is officially returning to the 'Big Bang Theory' universe in HBO Max spin-off 'Stuart Fails to Save the Universe.'
+---------
+
+# 'Avatar 4's Narrator Change Doesn't Seem Different Enough To Justify Another Sequel
+
+Features, Avatar, James Cameron, Avatar 4
+
+Tue, 26 May 2026 13:00:18 GMT
+
+https://movieweb.com/avatar-4-kiri-change-needs-justification/
+
+It's been announced that 'Avatar 4' will have a new narrator, but is that enough to make it feel fresh? Read on for more.
+---------
+
+# 10 Harsh Realities of Watching the 'Harry Potter' Movies Today
+
+Movie Lists, Harry Potter
+
+Tue, 26 May 2026 12:00:18 GMT
+
+https://movieweb.com/harry-potter-harsh-realities-watching-today/
+
+The 'Harry Potter' film franchise based on J.K. Rowling's popular novels has eight movies released from 2001 to 2011 starring Daniel Radcliffe.
+---------
+
+# Steven Spielberg's Sci-Fi Action Masterpiece Is His Greatest Movie Of all Time
+
+Features, Jurassic Park, Steven Spielberg
+
+Tue, 26 May 2026 11:00:19 GMT
+
+https://movieweb.com/jurassic-park-steven-spielberg-best-movie/
+
+Steven Spielberg's 'E.T.' is one of his most beloved movies, but a sci-fi action movie that he made several decades ago is the best film he has made.
+---------
+
+# 'Paddington 4' Hires R-Rated Comedy Genius to Mastermind Fresh Sequel
+
+Movie News, Paddington, Paddington 2, Paddington in Peru
+
+Tue, 26 May 2026 10:26:10 GMT
+
+https://movieweb.com/paddington-4-armando-iannucci-writer/
+
+'Paddington 4' has enlisted comedy writing duo Armando Iannucci and Simon Blackwell to pen the script, with Dougal Wilson in talks to return.
+---------
+
 # 15 Best Seinen Anime Adaptations of All Time, Ranked
 
 Anime, Vinland Saga, Berserk
