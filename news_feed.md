@@ -1,3 +1,443 @@
+# Ranking Every Action Sequence In The Mandalorian & Grogu
+
+Movies, The Mandalorian and Grogu
+
+Tue, 26 May 2026 20:02:22 GMT
+
+https://screenrant.com/mandalorian-and-grogu-action-sequences-ranked/
+
+The Mandalorian and Grogu is packed to the gills with big action set-pieces, and some of them are great, but others are more forgettable.
+---------
+
+# Elden Ring Officially Returns In Winter 2026, Collectors Take Note
+
+Gaming, Elden Ring, PC
+
+Tue, 26 May 2026 20:00:20 GMT
+
+https://screenrant.com/elden-ring-malenia-spirit-cat-winter-2026-release/
+
+Elden Ring gamers are officially in for an exciting winter 2026, with a brand-new release featuring one of the game's most iconic characters.
+---------
+
+# Netflix's 2-Part Fantasy Series Is So Good, It United A Split Fandom
+
+Streaming TV, Masked Recs
+
+Tue, 26 May 2026 20:00:20 GMT
+
+https://screenrant.com/netflixs-2-part-fantasy-series-is-so-good-it-united-a-split-fandom/
+
+For years the debate on whether certain stories could work in live action was fierce, but then a single Netflix show proved it could be done.
+---------
+
+# Passenger Ending Explained
+
+Movies, Passenger
+
+Tue, 26 May 2026 19:55:20 GMT
+
+https://screenrant.com/passenger-ending-explained/
+
+The new film, which released in theaters this weekend, features an ending full of suspense, horror, and scares.
+---------
+
+# The Original Green Ranger Finds His Successor In Power Rangers' Tommy Oliver Spinoff
+
+Classic TV, Power Rangers
+
+Tue, 26 May 2026 19:49:27 GMT
+
+https://screenrant.com/power-rangers-soul-of-the-dragon-tommy-oliver-spinoff-successor/
+
+No characters have left their mark on Power Rangers quite like Tommy Oliver, and nowhere is this celebrated more than in an essential franchise tie-in
+---------
+
+# George Lucas' Controversial Star Wars Movie Just Got A Surprising Sequel
+
+Movies, Masked Recs
+
+Tue, 26 May 2026 19:30:19 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-sequel-return-of-the-jedi/
+
+Return of the Jedi is one of the most controversial Star Wars movies George Lucas made, but The Mandalorian and Grogu serves as a direct sequel to it.
+---------
+
+# Aegon’s Dream Is Officially Changing Rhaenyra Targaryen With Book-Accurate Twist In House Of The Dragon Season 3
+
+TV, House of the Dragon, House of the Dragon - Season 3, Game of Thrones
+
+Tue, 26 May 2026 19:29:16 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-aegons-dream-rhaenyra-villain-change/
+
+Ryan Condal and Emma D'Arcy tease Rhaenyra Targaryen's darker descent in House of the Dragon season 3, reflecting the character's key book arc.
+---------
+
+# Rick's Emotional New Arc In Rick And Morty Season 9 Broken Down By Star
+
+TV, Rick and Morty, Rick and Morty - Season 9
+
+Tue, 26 May 2026 19:21:52 GMT
+
+https://screenrant.com/rick-and-morty-season-9-rick-new-arc-emotional-ian-cardoni/
+
+Exclusive: Ian Cardoni breaks down Rick's emotional new arc in Rick and Morty season 9 and the "pretty intense stuff" to come this season.
+---------
+
+# Star Wars' New Release Officially Extends One Of Its Best Traditions
+
+Star Wars, The Mandalorian and Grogu
+
+Tue, 26 May 2026 19:21:19 GMT
+
+https://screenrant.com/mandalorian-grogu-anthony-daniels-star-wars-role-streak/
+
+Star Wars' newest release doesn't follow all of the franchise traditions, but it does extend one of the best streaks that started back in 1977.
+---------
+
+# The Boys Officially Dethroned On Prime Video By New Viral Hit
+
+TV, Off Campus, Off Campus - Season 1, The Boys
+
+Tue, 26 May 2026 19:19:28 GMT
+
+https://screenrant.com/off-campus-prime-video-debut-the-boys-dethroned/
+
+With The Boys officially over, there’s a new TV show on Prime Video that’s become a huge hit after being released on the streaming platform on May 13.
+---------
+
+# The Mandalorian and Grogu Finally Ended Star Wars' Hutt Storyline
+
+Movies, The Mandalorian and Grogu, Star Wars
+
+Tue, 26 May 2026 20:01:13 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-finally-ended-hutt-storyline/
+
+The Mandalorian and Grogu is a simple adventure story that ended the decades-long Hutt storyline.
+---------
+
+# In Just 12 Days, Prime Video's New 8-Part Fan-Favorite Series Scores Third-Best Debut Ever
+
+TV, Off Campus
+
+Tue, 26 May 2026 19:46:23 GMT
+
+https://www.cbr.com/off-campus-season-1-debut-prime-video-top-3-ever/
+
+The new series has delighted fans, and The Boys series finale stood no chance.
+---------
+
+# Boston Blue Star Reveals What's Holding Back Tom Selleck Return
+
+TV, Boston Blue, Blue Bloods
+
+Tue, 26 May 2026 19:38:38 GMT
+
+https://www.cbr.com/boston-blue-season-2-tom-selleck-appearance/
+
+Sonequa Martin-Green comments on Tom Selleck joining the Blue Bloods offshoot in Season 2.
+---------
+
+# Lamorne Morris Roasts Jake Johnson’s Spider-Man While Teasing Spider-Verse Crossover
+
+TV, Spider-Noir, New Girl, Spider-Man
+
+Tue, 26 May 2026 19:25:33 GMT
+
+https://www.cbr.com/spider-noir-lamorne-morris-jake-johnson-spider-verse-spider-man/
+
+New Girl's Lamorne Morris and Jake Johnson also have Spider-Man-related roles in common.
+---------
+
+# Witch Hat Atelier Episode 9 Review: Qifrey Lies & Magic Can't Heal
+
+Anime, Witch Hat Atelier
+
+Tue, 26 May 2026 19:01:13 GMT
+
+https://www.cbr.com/witch-hat-atelier-episode-9-review/
+
+Witch Hat Atelier Episode 9 reveals a terrible truth that hinders Coco's desperate efforts to save her mother.
+---------
+
+# 7 Must-Watch Movie Reboots From the 21st Century That Are Actually Perfect
+
+Movies, Dredd, Action, Mad Max
+
+Tue, 26 May 2026 19:01:13 GMT
+
+https://www.cbr.com/best-movie-reboots-of-the-21st-century-list/
+
+As much as audiences typically dread the idea of their favorite movie getting a reboot, these success stories prove it can be done well.
+---------
+
+# Elsbeth Boss Breaks Down Why Bringing More The Good Wife Stars Is 'Very Tricky'
+
+TV, Elsbeth
+
+Tue, 26 May 2026 18:39:12 GMT
+
+https://www.cbr.com/elsbeth-the-good-wife-returning-characters-very-tricky/
+
+The door isn't entirely closed on more The Good Wife characters appearing on Elsbeth after Marissa Gold recurred during Season 3.
+---------
+
+# 8 Sci-Fi Movie Remakes Nobody Asked For
+
+Movies, Sci-Fi
+
+Tue, 26 May 2026 18:31:14 GMT
+
+https://www.cbr.com/sci-fi-movie-remakes-nobody-wanted-list/
+
+Science fiction has given moviegoers some of the best films ever made, but the same can rarely be said for their remakes.
+---------
+
+# The Apothecary Diaries Finally Drops Official Palace Chronicles Trailer Ahead of Season 3 Release
+
+Anime, The Apothecary Diaries, Crunchyroll
+
+Tue, 26 May 2026 18:31:14 GMT
+
+https://www.cbr.com/maomao-the-apothecary-diaries-palace-chronicles-trailer/
+
+Fresh off her win at the 2026 Anime Awards, Best Anime Main Character Maomao gets an exciting update for The Apothecary Diaries.
+---------
+
+# Final Fantasy 10 Reveals Official Brand-New Release Coming July 2026
+
+Games, Final Fantasy
+
+Tue, 26 May 2026 18:25:14 GMT
+
+https://www.cbr.com/final-fantasy-10-officially-reveals-new-release-july-2026/
+
+Final Fantasy 10 is officially returning this summer, and fans should prepare to experience Spira is a brand-new way.
+---------
+
+# Olivia Wilde’s New Age-Gap Thriller Officially Gets Steamy First Look
+
+Movie News, I Want Your Sex, Cooper Hoffman, Olivia Wilde, Collider Exclusive Preview
+
+Tue, 26 May 2026 20:00:13 GMT
+
+https://collider.com/olivia-wilde-cooper-hoffman-age-gap-thriller-i-want-your-image/
+
+I Want Your Sex, the age-gap thriller co-starring Olivia Wilde and Cooper Hoffman, gets a new sneak peek before its July 31 premiere.
+---------
+
+# Netflix’s 7-Part 'Reacher' Replacement Is Crushing It on Streaming Amid Season 2 Speculation
+
+TV News, Netflix, Man on Fire, Action, Crime
+
+Tue, 26 May 2026 19:45:14 GMT
+
+https://collider.com/netflix-reacher-replacement-action-thriller-man-on-fire-streaming-success-may-2026/
+
+Netflix's smash-hit Reacher replacement, Man on Fire, is still setting streaming ablaze as fans wait for news on Season 2.
+---------
+
+# 10 Greatest 4-Episode Miniseries, Ranked
+
+TV, Miniseries, Adolescence, When They See Us, Landscapers
+
+Tue, 26 May 2026 19:45:14 GMT
+
+https://collider.com/best-miniseries-4-episodes-ranked/
+
+Unorthodox, Adolescence, Landscapers, Toxic Town, Death by Lightning, and more make up our list of the best four-episode miniseries.
+---------
+
+# Only 3 Sci-Fi Video Games Are Better Than 'Mass Effect 2'
+
+Movie, Science Fiction, Mass Effect 2, Video Game, The Last of Us
+
+Tue, 26 May 2026 19:24:13 GMT
+
+https://collider.com/sci-fi-video-games-better-than-mass-effect-2/
+
+Mass Effect 2 is widely considered the peak of science fiction in the gaming world, but titles like Portal 2 and The Last of Us arguably surpass it.
+---------
+
+# Your Next Favorite WWII Epic Officially Arrives This Friday
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, War
+
+Tue, 26 May 2026 19:15:13 GMT
+
+https://collider.com/brendan-fraser-new-ww2-movie-pressure-release-date-may-29-2026/
+
+Brendan Fraser's WW2 movie, Pressure, following the pivotal Operation Overlord, officially releases in theaters this week.
+---------
+
+# 'Andor' Star Diego Luna Explains How the Sci-Fi Masterpiece Inspired His Return to Directing
+
+Exclusives, Diego Luna, Cannes Film Festival, Andor, Ashes
+
+Tue, 26 May 2026 19:09:47 GMT
+
+https://collider.com/diego-luna-andor-tony-gilroy-directing-ashes-interview/
+
+Diego Luna discusses his directing process on Ashes, returning to indie filmmaking, and how Tony Gilroy's Andor inspired his vision.
+---------
+
+# Hulu’s New Boxing Drama Turns an Ex-Con’s Redemption Into an Underdog Story in First Look
+
+Exclusives, They Fight, Collider Exclusive Preview, Wendell Pierce, Andre Holland
+
+Tue, 26 May 2026 19:00:13 GMT
+
+https://collider.com/they-fight-image-wendell-pierce-andre-holland-anthony-b-jenkins/
+
+A new image from the documentary adaptation They Fight shows Wendell Pierce and André Holland coaching Anthony B. Jenkins to box.
+---------
+
+# 'Stranger Things' Star's Criminally Overlooked 'F1' Rival Officially Hits HBO Max Next Week
+
+Movie News, Gran Turismo, David Harbour, Orlando Bloom, HBO Max
+
+Tue, 26 May 2026 18:45:12 GMT
+
+https://collider.com/david-harbour-f1-replacement-video-game-movie-gran-turismo-streaming-hbo-max-june-1-2026/
+
+Neill Blomkamp's Gran Turismo, the underrated racing movie with brilliant visuals and compelling performances, is coming to HBO Max.
+---------
+
+# New 'Pride & Prejudice' Spin-Off Gives Mary Bennet the Romance She Deserves in Sneak Peek [Exclusive]
+
+TV News, Britbox, The Other Bennet Sister, Jane Austen, Pride & Prejudice
+
+Tue, 26 May 2026 18:30:14 GMT
+
+https://collider.com/pride-and-prejudice-spin-off-the-other-bennet-sister-sneak-peek-britbox/
+
+Discover Mary Bennet's quest for love in The Other Bennet Sister, a captivating new Pride and Prejudice-inspired adaptation on BritBox.
+---------
+
+# Paramount+'s New Western Series Is Officially Its Biggest Streaming Premiere Ever
+
+TV News, Dutton Ranch, Taylor Sheridan, Paramount Plus, Cole Hauser
+
+Tue, 26 May 2026 18:18:51 GMT
+
+https://collider.com/taylor-sheridan-new-western-yellowstone-spin-off-dutton-ranch-paramount-plus-streaming-record-debut-12-million-views/
+
+Forget Marshals and The Madison, Taylor Sheridan's new Yellowstone spin-off, Dutton Ranch, is Paramount+'s biggest premiere of all time.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off Dominates Paramount's 'Reacher' Replacement
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Yellowstone
+
+Tue, 26 May 2026 20:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-dutton-ranch-beating-tracker-streaming-paramount-may-2026/
+
+Taylor Sheridan's new 'Yellowstone' spin-off, 'Dutton Ranch,' is a major streaming success, beating Paramount+'s 'Reacher' replacement 'Tracker.'
+---------
+
+# Paramount+'s 'Lost' Meets 'Hannibal' Thriller Is a Must-Watch Before Its Final Season
+
+Features, Yellowjackets, Paramount Plus
+
+Tue, 26 May 2026 20:00:18 GMT
+
+https://movieweb.com/paramount-lost-meets-hannibal-recommendation/
+
+There are a bunch of hidden gems on Paramount+, but this one should be a much bigger hit than it is. Read on for more.
+---------
+
+# Every Taylor Sheridan Movie, Ranked
+
+Movie Lists, Taylor Sheridan, Hell or High Water, Sicario
+
+Tue, 26 May 2026 20:00:18 GMT
+
+https://movieweb.com/taylor-sheridan-movies-ranked/
+
+Taylor Sheridan may be famous for his TV shows like the 'Yellowstone' franchise and 'The Madison,' but he has made several movies, too.
+---------
+
+# Chris Hemsworth's New Crime Thriller Adds 'Yellowstone' Universe Star to Its Cast
+
+Movie News, Kockroach, Brian Geraghty, Chris Hemsworth
+
+Tue, 26 May 2026 19:45:15 GMT
+
+https://movieweb.com/chris-hemsworth-kockroach-1923-brian-geraghty/
+
+'1923' veteran Brian Geraghty joins the cast of 'Kockroach,' about a cockroach who becomes a man who becomes a mob boss.
+---------
+
+# Keegan-Michael Key Wants a 'Battle of the Planets' Live-Action Reboot
+
+Movie News, Keegan Michael Key, Voltron
+
+Tue, 26 May 2026 19:20:22 GMT
+
+https://movieweb.com/keegan-michael-key-voltron-battle-of-the-planets-reboot/
+
+The 'Super Mario Galaxy Movie' star has his eye on another group of iconic animated characters.
+---------
+
+# New 'Reacher' Spin-Off Series 'Neagley' Finally Gets Long-Awaited Update
+
+TV News, Reacher, Neagley, Prime Video
+
+Tue, 26 May 2026 18:38:26 GMT
+
+https://movieweb.com/reacher-spin-off-neagley-update/
+
+We still don't have a release date for 'Neagley,' but it sounds like that could change soon.
+---------
+
+# 'Barbarian' Star's 'Psycho Killer' Lands Hulu Release Date
+
+Movie News, Psycho Killer
+
+Tue, 26 May 2026 18:24:24 GMT
+
+https://movieweb.com/psycho-killer-streaming-release-date/
+
+The horror thriller is led by 'Barbarian' rising star Georgina Campbell.
+---------
+
+# One of TV's Bloodiest and Raunchiest Shows Hits Major Streaming Milestone
+
+TV News, Outlander, Hot on Streaming, Fantasy, Romance
+
+Tue, 26 May 2026 18:00:19 GMT
+
+https://movieweb.com/outlander-streaming-success-starz-may-2026/
+
+The hit historical fantasy series has enjoyed tremendous success on Starz over the last 12 years, and its spin-off is poised to do the same.
+---------
+
+# Russell Crowe Defends Viral Fight With Autograph Seekers on Social Media
+
+Movie News, Russell Crowe, Gladiator
+
+Tue, 26 May 2026 17:48:28 GMT
+
+https://movieweb.com/russell-crowe-viral-fight-autograph-seekers/
+
+Russell Crowe went to social media to defend his interaction with autograph seekers after a video from TMZ went viral.
+---------
+
+# New James Bond Villain Celebrates Birthday As 007 Reboot Gets Great Reviews
+
+Features, James Bond, Lenny Kravitz
+
+Tue, 26 May 2026 17:48:12 GMT
+
+https://movieweb.com/lenny-kravitz-bond-villain-007-reboot-reviews/
+
+A 'James Bond' villain is celebrating their birthday on May 26, and the '007' reboot is getting positive reviews as well.
+---------
+
 # HBO's Band Of Brothers Marked The End Of An Era For TV
 
 Classic TV, Masked Recs
